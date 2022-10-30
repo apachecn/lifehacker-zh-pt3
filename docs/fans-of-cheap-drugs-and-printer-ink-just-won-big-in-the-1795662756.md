@@ -4,7 +4,7 @@
 
 本周二，一桩骇人听闻的案件 [在美国最高法院达成了一个出人意料的积极结果](http://www.ipwatchdog.com/2017/05/30/supreme-court-lexmark-sales-exhausted-patent-rights/id=83824/) 。 *Impression Products，Inc .诉 Lexmark International，Inc.* 一家小企业和一家国际公司之间长达七年的对峙，颠覆了消费者权益的世界，尤其是对科技和制药公司而言。你猜怎么着:小家伙赢了。
 
-Watch
+
 
 其核心是，*印象诉利盟* [专利案](https://www.usnews.com/news/us/articles/2017-05-30/us-top-court-restricts-patent-owners-right-to-block-resale-of-goods) 。印象产品，一个有 25 名员工的商店，通过购买用过的打印机墨盒，重新灌装，然后转售给消费者来建立自己的业务。这给原本扭曲和垄断的消费打印机世界引入了一些受欢迎的竞争，结果，使消费者有可能节省一些钱。显然，庞大的打印机帝国利盟不喜欢这样，几年前开始起诉像 Impression 这样的小公司，依据的是一项特殊的专利法。Impression 是唯一一家拒绝和解的公司，该公司将案件一直告到最高法院，并取得了胜利。
 

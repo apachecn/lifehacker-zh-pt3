@@ -4,7 +4,7 @@
 
 新的一年带来了新的歌手、音乐家、作曲家和说唱歌手，他们将永远改变乐坛。这些是今年值得你关注的艺术家。
 
-Watch
+
 
 我们根据[Google Play](https://blog.google/products/google-play/google-play-musics-ones-watch-artists-2017/)[Spotify](https://play.spotify.com/user/warnermusicus/playlist/4FzLms9h928aX5UaHgoXHv)[Pandora](http://blog.pandora.com/us/artists-to-watch-2017/)[Tidal](http://read.tidal.com/article/tidal-rising-2017-5-artists-to-watch-in-the-new-year)[Amazon Music Unlimited](https://www.amazon.com/gp/product/B01N5RJR2B/ref=dm_dp_pl_rdr?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-top-artists-to-watch-in-2017-and-where-to-hear-thei-1791395809&asc_source=&tag=kinjalifehackerlink-20)[Soundcloud](https://soundcloud.com/search?q=artists%20to%20watch)[Billboard](http://realtime.billboard.com/?chart=emergingartists)以及更多内容来编制一个 top 20 以下是几个突出的例子，排名不分先后:
 

@@ -4,7 +4,7 @@
 
 在这一周的比赛中，我们将稍微偏离我们关注目标的话题，比如让[更快](http://vitals.lifehacker.com/turkey-trot-throwdown-week-3-try-this-mini-speed-work-1787929719)[调整我们的齿轮](http://vitals.lifehacker.com/turkey-trot-throwdown-week-5-take-off-your-underwear-1788489684) 。相反，我们要用这个技能来达到一个不同的额外目的:减压。
 
-Watch
+
 
 <small>*本帖是*</small> [<small>*火鸡小跑大赛*</small>](http://vitals.lifehacker.com/introducing-the-turkey-trot-throwdown-let-s-run-togeth-1787445111) <small>*的一部分，一系列迷你挑战点燃(或重燃)你对跑步的热爱。等到感恩节到来的时候，你已经准备好赛跑了——或者，如果你喜欢的话，在坐下来享受你的盛宴之前绕着街区慢跑一圈。你应得的。*T15】</small>
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/what-to-do-if-your-snapchat-streak-disappears-1829331970>
 
-Watch
+
 
 如果你每天都使用 Snapchat，很有可能你至少会定期给一两个人拍照，甚至是每天。每天互相抓拍的人可以积累一个快照；一个旁边有火焰的小数字记录了你们互相抓拍的时间。一些人(见:青少年)对那个数字超级投入， [竭尽全力保持连胜。](https://lifehacker.com/its-time-to-stop-using-snapchat-unless-youre-a-teen-1821919274)T3】
 

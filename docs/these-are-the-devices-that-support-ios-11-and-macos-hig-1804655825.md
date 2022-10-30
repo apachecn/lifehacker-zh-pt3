@@ -4,7 +4,7 @@
 
 在昨天的新闻发布会上，苹果 [宣布了一系列新产品](http://gizmodo.com/everything-apple-announced-today-1803822055) ，包括三款新 iPhone(如[【999 美元的 iPhone X](http://gizmodo.com/iphone-x-everything-you-need-to-know-about-apples-most-1803141685) )、一款配备 LTE 功能的 Apple Watch，以及一款能够在 HDR 4K 播放电影的 Apple TV。这些公告也恰逢一些软件更新消息，即 iOS 11 和 macOS High Sierra 的发布日期，分别是苹果移动和桌面操作系统的更新版本。
 
-Watch
+
 
 ### **支持 iOS 11 的设备**
 

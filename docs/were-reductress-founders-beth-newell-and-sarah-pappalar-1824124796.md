@@ -4,7 +4,7 @@
 
 很少有网站能以“搞笑假新闻”的形式出名。基本上有洋葱、 [和](http://reductress.com/) 。今天我们要和一个以“女性新闻”为口号的人谈话。女性化。”最近的头条新闻包括“ [如何在每个人都错过你刚才说的话时保持冷静，这真的很好](http://reductress.com/post/how-to-stay-calm-even-though-everyone-missed-what-you-just-said-and-it-was-really-good/) ， [哇！这个美女不会闭嘴接受他妈的恭维](http://reductress.com/post/wow-this-beautiful-woman-wont-shut-up-and-take-the-fucking-compliment/) 。”
 
-Watch
+
 
 莎拉·帕帕拉多和贝丝·纽维尔在 2013 年开始将 reduce RESS[作为对女性媒体](https://www.thecut.com/2016/10/talking-to-beth-newell-and-sarah-pappalardo-of-reductress.html) 的模仿，然后将其扩展为一个更普遍的女性幽默网站，现在达到了每月 100 万读者。他们告诉 Lifehacker 如何经营一家小企业，以及他们如何选择要写的故事。
 

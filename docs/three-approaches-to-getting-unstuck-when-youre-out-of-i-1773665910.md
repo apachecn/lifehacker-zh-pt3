@@ -4,7 +4,7 @@
 
 第一步(总是最难的吧？)解决问题就是认识到你有一个问题。我们都很熟悉这种与挠头者纠缠不清的感觉。可能需要一段时间才能将我们盯着屏幕的时间与我们被困在某件事情上的事实联系起来，是时候尝试新的方法了。
 
-Watch
+
 
 *本帖原载于* [*帮侦察兵博客*](https://www.helpscout.net/blog/get-unstuck/) *。*
 
@@ -42,11 +42,7 @@ Help Scout 首席执行官尼克·弗朗西斯说:“我很容易在那一刻做
 
 “我把问题分解成我能理解的更小的块，然后就困扰我的块寻求帮助，”克里斯说，他在工作之外从同伴团体那里收集想法。他属于一个由其他八位工程副总裁组成的小组，他们每季度会面，在闲暇时聊天，甚至遵守约定规则。他们讨论政治问题、人事问题和棘手的技术问题，并互相帮助。“我们无话不谈，”克里斯说。“在这个群体中，我们没有恐惧。”
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Three Approaches to Getting Unstuck When You&#39;re Out of Ideas](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/mental-models-solve-problems-by-approaching-them-from-1682835620) [###### 心智模型:从新的角度解决问题](https://lifehacker.com/mental-models-solve-problems-by-approaching-them-from-1682835620) 
 
-俗话说，如果你唯一的工具是锤子，那么所有的问题看起来都像钉子。…
-
-[Read more](https://lifehacker.com/mental-models-solve-problems-by-approaching-them-from-1682835620)</aside>
 
 ### **没有人是免疫的**
 

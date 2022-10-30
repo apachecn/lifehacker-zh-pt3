@@ -4,7 +4,7 @@
 
 上周，当所有的作家聚集在纽约参加一个盛大的会议时，我发现自己和 [【贝丝】](https://kinja.com/bethskw)[【帕特里克】](https://kinja.com/patrickallan) 在一个杂货铺里，寻找瓶装水和营养零食。我抓了一份午餐，然后一边往嘴里塞一堆太圆的火鸡片和加工过的奶酪，一边想“为什么我不经常吃这些呢？”
 
-Watch
+
 
 老实说，我不经常吃它们，因为——除非你在某个地方，喝酒——我年轻时的午餐真的不好吃，但这并不意味着它们不好，从概念上来说。毕竟 [熟食板只是成年人的便当](https://www.reddit.com/r/Showerthoughts/comments/3xmbnv/charcuterie_boards_are_lunchables_for_adults/) ，熟食板才是*的好*。但是，如果说为真正的孩子准备的午餐教会了我什么的话，那就是你不必坚持经典的肉类奶酪饼干的配置。事实上，构建午餐桌的唯一规则是:
 

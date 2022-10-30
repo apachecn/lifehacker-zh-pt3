@@ -4,7 +4,7 @@
 
 没有人喜欢感冒和流感带来的打喷嚏、发烧和疼痛，但不幸的是，一旦你生病了，你所能做的就是等待。在获得大量的液体和更多的休息之间，你可以尝试一些正念冥想来帮助你找到一些精神和情绪上的放松。
 
-Watch
+
 
 另外，冥想 [可能有助于增强你的免疫系统](https://www.ncbi.nlm.nih.gov/pubmed/26799456) 。这种科学仍然是试验性的，但即使是心理效应也足以让病假冥想值得一试。这里有五种不同的方法来利用冥想让自己感觉不那么痛苦。
 
@@ -40,11 +40,7 @@ Watch
 
 你想的就是你相信的。这就是为什么当你生病的时候，说积极的想法可以成为一种 [强大的冥想常规](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Try These Types of Meditation to Feel Better When You’re Sick](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) [###### 为什么冥想应该是你大脑的“定期维护”](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) 
 
-从技术上来说，睡眠已经是我们大脑的定期维护，但如果有任何…
-
-[Read more](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329)</aside>
 
 不要对你目前的感觉生闷气，你可以把你的想法转向你未来想要的感觉——快乐、健康和充满活力。
 

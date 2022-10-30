@@ -4,7 +4,7 @@
 
 如果你从来没有检查过你的应用程序订阅，我不怪你。这是一个深深埋藏在你的 iOS 设备中的功能。但是，你可能会发现一个每周收费 100 美元的应用程序，所以保持警惕是值得的。
 
-Watch
+
 
 [开发者林剑衡](https://medium.com/@johnnylin/how-to-make-80-000-per-month-on-the-apple-app-store-bdb943862e88) 在苹果 2017 年 WWDC 主题演讲中感到好奇，当时首席执行官蒂姆·库克宣布从 App Store 向开发者支付 700 亿美元。
 

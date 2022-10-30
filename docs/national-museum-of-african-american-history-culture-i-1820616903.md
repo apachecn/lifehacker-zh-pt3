@@ -4,7 +4,7 @@
 
 将像录像带这样的模拟媒体数字化是一个繁琐的过程，并且需要你家里可能没有的设备(你的扫描仪不能完全转换 VHS 磁带)。为了降低媒体转换的障碍，国家非裔美国人历史&文化博物馆正在提供一个 [免费数字化项目](https://nmaahc.si.edu/explore/initiatives/great-migration-home-movie-project) ，该项目将为非裔美国家庭提供博物馆的设备和专家，以帮助将模拟媒体转换为可搜索的数字版本。
 
-Watch
+
 
 由 Robert Frederick Smith Explore Your Family History Center 提供支持的社区策展计划 旨在帮助人们将模拟媒体数字化，以保护文化身份，并进一步探索非裔美国人的历史。
 

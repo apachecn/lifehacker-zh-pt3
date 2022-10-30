@@ -4,7 +4,7 @@
 
 闪亮的亚马逊 Prime 订阅或 Spotify 礼品卡可能不是你愿望清单上最有趣的项目，但它们和你每天使用的其他网络服务仍然可以成为伟大、有用的礼物，在季节结束后很长一段时间内继续赠送。以下是一些我们最喜欢的值得赠送的高级应用和网络服务。
 
-Watch
+
 
 ### 亚马逊 Prime
 
@@ -54,11 +54,7 @@ Pandora Plus，前身为 Pandora One，刚刚获得了 [一些很棒的更新](h
 
 [Xbox Live Gold](http://www.xbox.com/en-US/live/gold) 和[PlayStation Plus](https://www.playstation.com/en-us/explore/playstation-plus/)[都有很多你可能不知道](https://lifehacker.com/the-best-perks-of-xbox-live-gold-and-playstation-plus-y-1676052998) 的好处，但你或者你生活中的游戏玩家可能没有考虑过 60 美元/年(Xbox Live Gold)或 50 美元/年(PlayStation Plus)的价格标签。如果你正在为你名单上的主机拥有者寻找一个很棒的礼物，考虑升级他们的帐户一年。他们每个月都会得到免费游戏，大量的测试版和试玩版，这些都是他们以前无法获得的。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Give the Gift of Premium Apps and Web Services](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-perks-of-xbox-live-gold-and-playstation-plus-y-1676052998) [###### 你可能不知道 Xbox Live Gold 和 PlayStation Plus 的最佳福利](https://lifehacker.com/the-best-perks-of-xbox-live-gold-and-playstation-plus-y-1676052998) 
 
-无论你有 Xbox One 还是 PlayStation 4，如果你想和朋友一起玩在线游戏，你会…
-
-[Read more](https://lifehacker.com/the-best-perks-of-xbox-live-gold-and-playstation-plus-y-1676052998)</aside>
 
 这是一个非常受欢迎的礼物，两个平台的礼品卡都很容易买到。你可以直接从 PlayStation 网站 购买三个月或一整年的 PlayStation Plus 卡，并从微软商店 获得 [三个月一年的 Xbox Live 黄金会员资格。或者，你可以在亚马逊](https://www.microsoftstore.com/store/msusa/en_US/pdp/Xbox-Live-Gold-Membership/productID.5077265200) 获得那些 [PlayStation Plus 礼品卡](https://smile.amazon.com/1-Year-PlayStation-Plus-Membership-Digital/dp/B004RMK5QG?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/give-the-gift-of-premium-apps-and-web-services-1788463516&asc_source=&tag=kinjalifehackerlink-20) 或 [Xbox One 礼品卡。](https://smile.amazon.com/Microsoft-Xbox-Month-Membership-Physical-360/dp/B00EQNP8F4?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/give-the-gift-of-premium-apps-and-web-services-1788463516&asc_source=&tag=kinjalifehackerlink-20)
 
@@ -70,11 +66,7 @@ Pandora Plus，前身为 Pandora One，刚刚获得了 [一些很棒的更新](h
 
 这不是最性感的礼物，但 VPN 订阅可以是无价的，无论你是想在流媒体上 [绕过地理区块](http://lifehacker.com/the-always-up-to-date-guide-to-streaming-blocked-conten-5983904)[在公共 Wi-Fi 上保持安全](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927) ，还是只是 [看看你的 ISP 是否在限制你](http://lifehacker.com/use-a-vpn-to-bypass-your-isps-throttling-of-netflix-or-1608538080) 。当然，你需要 [一个你可以信任的 VPN](http://lifehacker.com/how-do-i-know-if-my-vpn-is-trustworthy-508866499)，尤其是如果你打算把安全作为礼物送给你生命中的其他人，而 [我们有一些最喜欢的](http://lifehacker.com/five-best-vpn-service-providers-5935863) 和 [吨从](http://lifehacker.com/this-massive-vpn-comparison-spreadsheet-helps-you-choos-1764427219) 中选择。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Give the Gift of Premium Apps and Web Services](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927) [###### 如何在公共 Wi-Fi 网络上保持安全](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927) 
 
-公共 Wi-Fi 网络——如咖啡店或酒店中的网络——远没有你想象的那么安全。…
-
-[Read more](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927)</aside>
 
 我们与 [私人互联网接入](https://www.privateinternetaccess.com/) 有着良好的体验，他们提供 [完全匿名的礼品卡订阅](https://www.privateinternetaccess.com/pages/gift-card-payment) 你可以在这个假期给。
 

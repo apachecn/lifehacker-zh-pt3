@@ -4,7 +4,7 @@
 
 如果你一直渴望在你朋友的 Pixel 2(或 iPhone)上使用肖像模式，现在也有一种方法可以实现它——前提是你有一台运行奥利奥的 Android 设备。
 
-Watch
+
 
 开发人员 Charles Chow 最近发布了一个谷歌相机模块，将该功能引入到旧设备中。名为相机 NX， [Droidlife](https://www.droid-life.com/2018/01/02/google-portrait-mode-ported/) 已经证实，它可以在旧的谷歌设备上工作，如原始的 Pixel，Pixel XL 和 Nexus 5X。另一个版本，标签为 Camera NX Enhanced，可在运行奥利奥的非谷歌设备上工作，包括 OnePlus 3/3T 和 Galaxy Note 8(只要其运行 [a 泄露的奥利奥 ROM](https://www.xda-developers.com/samsung-galaxy-note-8-oreo-beta-leak/) )。奥利奥那部分是关键，所以如果你用的是旧手机，你暂时就解决了。
 

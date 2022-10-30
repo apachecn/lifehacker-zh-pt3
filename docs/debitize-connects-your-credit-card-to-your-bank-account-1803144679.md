@@ -4,7 +4,7 @@
 
 使用信用卡比借记卡有 [的好处](http://lifehacker.com/top-10-ways-to-squeeze-more-rewards-out-of-your-credit-1771374664) ，但是用信用卡做预算会很麻烦。一次挥霍或一次失算，你就可能以债务周转告终——这可不是明智之举。适用于网络/ioS 的借记功能让你 [在没有风险](http://twocents.lifehacker.com/money-advice-not-everyone-agrees-on-using-credit-card-1594620799) 的情况下获得奖励。
 
-Watch
+
 
 就我个人而言，我喜欢信用卡的诸多好处:免费旅游奖励、价格保护、信用监控等等。我几乎把所有的东西都放在了我的卡上，这样我就能获得尽可能多的奖励——这是我在过去几年里支付旅行费用的方式。不过，把所有东西都记在我的卡上让预算变得令人沮丧。 [我的一般原则是银行账户上的钱永远不要超过我的卡上的钱，这很有效，但因为我的银行账户上还有其他开销，所以这个过程并不完美。简而言之，很难控制这种支出方式。](http://www.thewildwong.com/a-beginners-guide-to-travel-hacking-with-credit-card-rewards/)
 

@@ -4,7 +4,7 @@
 
 一次来回的徒步旅行看起来很容易，但是为了食物和安全，你仍然需要携带很多装备。读者 J Brew 分享了他们最近的瑞尼尔山之旅。
 
-Watch
+
 
 这包是一个 [所罗门 S-Lab 巅峰 20](https://www.amazon.com/Salomon-S-Lab-Peak-Hydration-Backpack/dp/B014EBR1HU/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-hikers-day-pack-1786531549&asc_source=&ie=UTF8&keywords=Salomon S-Lab Peak 20 Set&qid=1473697134&sr=8-1&tag=kinjalifehackerlink-20) ，下面是里面的东西:
 

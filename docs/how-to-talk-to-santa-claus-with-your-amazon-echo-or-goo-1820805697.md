@@ -4,7 +4,7 @@
 
 感恩节来了又去，这意味着开始庆祝圣诞节(或光明节，如果你像我一样)正式安全了。 [装饰](https://lifehacker.com/how-to-keep-your-christmas-lights-tangle-free-1751130430) 上升， [圣诞音乐](https://lifehacker.com/the-holiday-party-playlist-1789580299) 在每个商店播放，现在你可以在你的智能家居设备上与他交谈一个月，而不是给圣诞老人写信的经典测试选项。 [谷歌](https://lifehacker.com/preview/google-knocks-30-off-its-home-mini-smart-speaker-for-b-1820409960) 和 [亚马逊](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219) 都提供了通过各自的智能音箱与 Kris Kringle 聊天的方式。它是这样工作的。
 
-Watch
+
 
 ### 如何用 Google Home 与圣诞老人对话
 

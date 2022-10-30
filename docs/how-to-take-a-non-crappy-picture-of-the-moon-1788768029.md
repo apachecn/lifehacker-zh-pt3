@@ -4,7 +4,7 @@
 
 11 月 14 日，我们将迎来自 1948 年以来最接近的满月，18 年内不会再次发生。如果你想拍一张月球辉煌的照片，请做好准备。以下是如何为下周的超级月亮 拍摄一张 [的照片，这将会给它带来一些公正，甚至可能值得作为壁纸。](https://gizmodo.com/get-ready-for-the-supermoon-of-a-lifetime-1788584842)
 
-Watch
+
 
 ### 从合适的相机和镜头开始
 
@@ -16,11 +16,7 @@ Watch
 
 你不能用你的智能手机拍出很棒的照片，因为尽管有其他很酷的设置，你手机的变焦和焦距不是为它设计的。基本上，焦距是镜头和焦点之间的距离。大多数像样的月球照片都是用焦距至少 300mm 的 [长焦镜头拍摄的](https://lifehacker.com/how-do-i-pick-the-right-lens-for-my-dslr-5963484) 。例如，上面视频中的捕捉是用 500mm 镜头拍摄的。相比之下，你手机的焦距大概是 20mm 左右。智能手机相机和傻瓜相机设计得非常紧凑和方便，可以放在口袋里。它们只是不能处理与 DLSR、无反光镜相机或任何其他可互换镜头相机相同的功能。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Take a Non-Crappy Picture of the Moon](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-pick-the-right-lens-for-my-dslr-5963484) [###### 我如何为我的 DSLR 选择合适的镜头？](https://lifehacker.com/how-do-i-pick-the-right-lens-for-my-dslr-5963484) 
 
-亲爱的 Lifehacker，我有一台配有普通变焦镜头的 DSLR。很好，但是我想得到一个
-
-[Read more](https://lifehacker.com/how-do-i-pick-the-right-lens-for-my-dslr-5963484)</aside>
 
 然而，也有带光学变焦的可拆卸智能手机镜头 。你可以想象，那些也没那么厉害，但是你可以用它们得到 [稍微好一点的镜头](https://www.youtube.com/watch?v=tN4DG6S5rGw&ab_channel=AndroidTweaker%2525E2%252584%2525A2) 。它们不会很棒，但会比你用其他方式得到的更好。
 

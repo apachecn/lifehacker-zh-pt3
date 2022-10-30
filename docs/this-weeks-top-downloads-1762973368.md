@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [在](http://lifehacker.com/run-a-game-boy-emulator-in-terminal-1761536320)终端运行一个 Game Boy 模拟器
 

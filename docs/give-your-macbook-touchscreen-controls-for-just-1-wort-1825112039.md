@@ -4,7 +4,7 @@
 
 苹果仍然拒绝发布触摸屏 [MacBook](https://lifehacker.com/dont-buy-an-apple-laptop-until-the-new-macbook-air-come-1823519381) (不， [Touch Bar](https://lifehacker.com/fix-your-touch-bar-with-this-app-1823463782) 不算)，但一群开发者想出了的巧妙解决方案。使用一些令人印象深刻的人工智能软件和大约一美元价值的硬件，该团队能够为苹果笔记本电脑带来基本的触摸屏控制。
 
-Watch
+
 
 这种设置的工作原理是将 MacBook 的内置摄像头向下反射到屏幕上。从这个视角，特殊的计算机视觉软件可以根据手指与屏幕反射之间的距离判断出你何时触摸了屏幕。它还可以绘制出你手指的准确位置。
 

@@ -4,7 +4,7 @@
 
 上次你有一个重大项目要处理，你给自己设定了一个最后期限——然后差一点就完成了。结果是:你匆忙完成(或者熬了个通宵)，然后发誓你再也不会重复那种经历。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/4-better-ways-to-create-deadlines-that-youll-actually-stick-to) *。*
 

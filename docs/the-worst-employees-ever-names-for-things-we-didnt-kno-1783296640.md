@@ -4,7 +4,7 @@
 
 向人类第一艘星际飞船致敬，在有历史记录之前发生了什么，小时候被欺负如何改变你的成年生活，以及有史以来最糟糕的雇员都在本周的 Lifehacker Brain 自助餐中等待着你。
 
-Watch
+
 
 <small>*欢迎来到 Lifehacker 的*</small> [<small>*周一大脑自助*</small>](http://lifehacker.com/tag/monday-brain-buffet) <small>*，这是一个系列节目，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，它们会教你一些新东西，启发你，并有希望让你的一周有一个良好的开端。*T15】</small>
 

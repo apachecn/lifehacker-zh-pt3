@@ -4,7 +4,7 @@
 
 新总统带来了新的联邦通信委员会。该机构有了一位新主席 ，他在过去几天里已经开始进行重大变革。下面是正在发生的事情以及它如何影响 [网络中立原则](https://lifehacker.com/an-introduction-to-net-neutrality-what-it-is-what-it-5720407) 向前发展。
 
-Watch
+
 
 ### **Ajit Pai 现在是新的联邦通信委员会主席**
 

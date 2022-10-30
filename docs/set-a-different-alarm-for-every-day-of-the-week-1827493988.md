@@ -4,7 +4,7 @@
 
 每周三， [这个 YouTube 系列](https://www.youtube.com/watch?v=9K4-jllrPrE&list=PLy3-VH7qrUZ5IVq_lISnoccVIYZCMvi-8) 都会增加一个新的音乐视频，视频中一只尖叫的青蛙在说“今天是周三，我的兄弟们。”难道这些周三歌曲中的一首不会比“Radar (Default)”更能让你在周三早上醒来吗？你能做到的，伙计们。
 
-Watch
+
 
 ## 最好的闹钟是你喜欢但从未听过的音乐
 

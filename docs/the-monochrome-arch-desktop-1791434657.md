@@ -4,7 +4,7 @@
 
 读者 [Linux Jess](http://kinja.com/eyecandylinux) 向我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 提交了这款由 Arch Linux 驱动的单色桌面，我们不禁对其进行了特写。它干净、优雅、易于复制。以下是方法。
 
-Watch
+
 
 Linux Jess 对于这个设置只有几个移动的部分，对于 Linux 用户来说都不会陌生。如果你想要同样的造型，你需要做以下事情:
 

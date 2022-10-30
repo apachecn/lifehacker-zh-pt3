@@ -4,7 +4,7 @@
 
 如果你买不起 Galaxy S9 ，有很多方法可以让你的现有设备焕然一新。我们已经向您展示了如何在任何手机上获得三星新的 [自动翻译](https://lifehacker.com/how-to-get-the-galaxy-s9s-translation-feature-on-any-ph-1823307084) 和 [化妆试戴](https://lifehacker.com/get-the-galaxy-s9s-makeup-try-on-feature-on-any-phone-u-1823307779) 功能。现在，您可以将 S9 的专属壁纸添加到列表中。
 
-Watch
+
 
 痴迷于三星的科技博客 [SamMobile](https://www.sammobile.com/wallpaper/galaxy-s9/) 最近得到了 Galaxy S9 的 19 张新背景图片，并将它们上传到一个 [Google Drive 文件夹](https://drive.google.com/file/d/1foxKhJ-TAQ7xQCqHHpznjqyY2x-1ZlUi/view) 供任何人使用。这些文件很大，但你可以把它们全部下载到你的电脑上，或者直接下载到你的智能手机上，或者选择你想要的原始质量的图像。
 

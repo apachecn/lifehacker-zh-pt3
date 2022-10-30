@@ -4,7 +4,7 @@
 
 如果你仔细阅读偶尔涉足我们生活的科技出版物，你很可能会看到贝尔·贝丝·库珀 的作品。她的作品在网络上随处可见；在描述自我完善、编码和写作本身的追求时，她声音清晰。
 
-Watch
+
 
 Belle 在许多网站上发表了她的作品，如 [、The Next Web](http://thenextweb.com/author/bellebethcooper/) 、 [Crew](http://blog.crew.co/) ，以及 now [Ghost](https://ghost.org/) ，我们也经常在 Lifehacker 上展示她的作品。由于她经常写关于生产力和学习的文章，同时追求一系列折衷的项目，Belle 是典型的生活黑客材料。我请她告诉我们她的工作习惯和她用来完成工作的最喜欢的工具。
 
@@ -30,11 +30,7 @@ Belle 在许多网站上发表了她的作品，如 [、The Next Web](http://the
 
 我在 Mac 上整天使用 [TextExpander](https://smilesoftware.com/TextExpander/index.html) ，手机内置 iOS 快捷方式。我用它们来打字，比如我的电子邮件地址和我经常输入的网站。我也有一些必须经常输入的 Markdown 语法的快捷方式，比如`！[]()`插入图像。我很少想到 TextExpander，但我经常使用它，它真的加快了我的一天。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled I&#39;m Belle Beth Cooper, Writer and Entrepreneur, and This Is How I Work](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/a-comprehensive-guide-to-textexpander-1616374942) [###### TextExpander 综合指南](https://lifehacker.com/a-comprehensive-guide-to-textexpander-1616374942) 
 
-当你发现自己输入同样的内容时，文本扩展应用程序是节省时间的好方法…
-
-[Read more](https://lifehacker.com/a-comprehensive-guide-to-textexpander-1616374942)</aside>
 
 我也用我的神奇鼠标或笔记本电脑的触摸板广泛使用 [BetterTouchTool](http://www.bettertouchtool.net/) 。我用它来设置各种点击和滑动的自定义快捷方式，这样我就可以用三个手指向左滑动来在浏览器中打开一个新标签，用三个手指上下滑动来在标签之间切换。一旦肌肉对这些手势的记忆根深蒂固，工作就会快得多。
 

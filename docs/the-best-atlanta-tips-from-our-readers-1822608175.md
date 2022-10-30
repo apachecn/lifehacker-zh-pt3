@@ -4,7 +4,7 @@
 
 本周一，亚特兰大的读者在我们的黑客城市请求 上发表了近 150 条评论，我们在最初的评论帖子中突出了最好的。这里有一个关于这座城市的有用而巧妙的集锦，当地人不叫它 Hotlanta。
 
-Watch
+
 
 *<small></small>*<small>[*<small>Hack Your City</small>*](https://lifehacker.com/c/hack-your-city)*<small>每周一，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及对游客和当地人的任何其他建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。</small>T15】*</small>
 

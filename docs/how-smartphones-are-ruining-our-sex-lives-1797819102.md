@@ -4,7 +4,7 @@
 
 在智能手机时代，人们对性和关系的状态有各种各样的绝望——网上约会正在毁掉浪漫！天啊，那个色情短信！
 
-Watch
+
 
 为了筛选炒作，并获得一些关于在一个超级连接但过度刺激的世界中保持健康性生活的严肃智慧，我们采访了 [Cleo Stiller，Fusion TV 上“Sex Right Now”的主持人，](http://fusion.net/author/cleo-stiller/) 和 [Sari Cooper，CST 董事兼爱与性中心的创始人，](https://centerforloveandsex.com/) 寻求关于“保持火焰不灭”而不觉得陈腐的建议，利用技术提高你的性沟通技巧，等等。哦，我们还让纽约人走上街头，征求他们最好的性和约会建议。
 

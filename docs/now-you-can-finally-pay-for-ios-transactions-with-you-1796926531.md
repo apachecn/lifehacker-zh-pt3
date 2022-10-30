@@ -4,7 +4,7 @@
 
 多亏了苹果和贝宝 之间的 [合作，你终于可以好好利用你账户里所有的钱了。这两家公司宣布了一项合作，将允许 PayPal 作为 iOS 设备上的支付选项。如果你没有借记卡或信用卡，或者只是想用你的 PayPal 余额来支付媒体购买费用，现在你的机会来了。](http://www.cnbc.com/2017/07/12/you-can-now-buy-itunes-apps-music-and-more-with-paypal.html)
 
-Watch
+
 
 该功能早就应该推出了。自 2004 年以来，用户可以在 MAC 和 PC 上使用 PayPal 支付 iTunes 购物。若要启用 PayPal 作为支付方式，请打开您的 App Store 或 iTunes Store 应用程序，并在底部选择您的 Apple ID。在帐户设置页面上，选择付款信息并选择 PayPal。一旦您登录，您的默认支付方式将从您的信用卡或借记卡切换到您的 PayPal 帐户。
 

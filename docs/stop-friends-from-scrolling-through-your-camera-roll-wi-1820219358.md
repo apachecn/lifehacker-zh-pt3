@@ -4,7 +4,7 @@
 
 安卓:你调出 [一张照片](https://lifehacker.com/how-to-take-better-pictures-with-your-smartphones-camer-5662812#_ga=2.141559666.1180107317.1509977685-1313785359.1499701416) ，把你的手机递给一个朋友，这样他们就能看到了。在你意识到之前，他们会浏览你的整个相机胶卷，查看你储存在里面的任何截图、裸照或其他令人尴尬的图片。我们都遇到过这种情况(而且我们可能都会因为偷看朋友的照片而感到内疚)。现在有一个解决方案，至少如果你在使用 [安卓](https://lifehacker.com/this-is-the-lifehacker-pack-essential-apps-and-downloa-1784483538) 的话。
 
-Watch
+
 
 [安全照片查看器](https://play.google.com/store/apps/details?id=com.gtp.showapicturetoyourfriend) ，一款免费的 Android 应用程序，可以很容易地将你的手机锁定到特定的照片或照片组，这样你就可以安全地将它交给朋友，因为他们只会看到你希望他们看到的内容。
 

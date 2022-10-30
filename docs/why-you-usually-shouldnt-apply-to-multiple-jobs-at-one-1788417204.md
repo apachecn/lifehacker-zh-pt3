@@ -4,7 +4,7 @@
 
 我清楚地记得，在我受雇的日子里，我浏览了各种职位的申请，发现有一个人决定为每一个职位都提交一份申请。这比你想象的要多——老实说，这比我刚开始招聘时的预期还要多。然而，随着我开始审阅越来越多的简历，有一件事变得很明显:在某个地方，有一个人显然在告诉人们，获得雇主关注的最佳方式是尽可能多地申请他们的职位。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/3-times-you-think-applying-to-two-jobs-at-one-company-is-the-right-move-and-what-to-do-instead) *。*
 

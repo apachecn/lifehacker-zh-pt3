@@ -4,7 +4,7 @@
 
 在 Flickr 上， [拉赞](https://www.flickr.com/photos/altdigitalphotography/) 发送到她的工作空间，在那里她处理日常工作，她的激情(摄影)，当然，还有她放松的地方。空间也必须是她的卧室的两倍，所以空间是一个溢价——但看看黑板墙。这里还有一些照片。
 
-Watch
+
 
 首先，我们来听听 Razan 是如何描述她的工作空间的。她说:
 

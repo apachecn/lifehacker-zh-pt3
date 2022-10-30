@@ -4,7 +4,7 @@
 
 [Venmo](https://twocents.lifehacker.com/whats-better-apple-pay-cash-vs-google-wallet-vs-venm-1821218263) 方便与朋友分摊账单， [Grubhub](https://lifehacker.com/im-grubhub-cto-maria-belousova-and-this-is-how-i-work-1819373669#_ga=2.161602684.151127572.1523807864-396842925.1520800403) 方便用手机点餐。将这两种服务结合成一个单一的体验似乎是显而易见的，但直到现在它还不是一个选项。
 
-Watch
+
 
 拥有 Seamless 和 Eat24 的食品配送巨头 GrubHub 本周推出了一项更新，让你可以用 Venmo 支付订单。多亏了这一点，你现在可以在发出去之前从你的朋友那里为送货订单收钱——所以没有人可以在吃完他们的披萨后方便地忘记他们的那份披萨账单。
 

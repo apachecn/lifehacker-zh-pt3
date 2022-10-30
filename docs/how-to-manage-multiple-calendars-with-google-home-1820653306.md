@@ -4,7 +4,7 @@
 
 [【Google Home】](https://lifehacker.com/preview/google-knocks-30-off-its-home-mini-smart-speaker-for-b-1820409960)，搜索巨头对 [的回应，亚马逊的 Echo 音箱](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219) ，推出时至少有一个明显的遗漏:访问和管理多个日历的能力。考虑到如此多的人使用谷歌自己的日历应用程序 来组织他们的生活，这一点尤其令人惊讶，但是，谢天谢地，该公司现在似乎正在推出一个逾期的更新。
 
-Watch
+
 
 许多人报告说在他们的 Google Home 应用程序中看到了新的弹出选项。下面是它的工作原理(由 [安卓警察](http://www.androidpolice.com/2017/11/21/google-home-now-supports-multiple-calendars-default-one-create-events/) 提供)。
 

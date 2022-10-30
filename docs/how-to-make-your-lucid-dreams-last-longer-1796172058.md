@@ -4,7 +4,7 @@
 
 在做梦的时候变得清醒实际上是容易的部分，oneironauts。现在我们要学习如何抓住它，让我们的夜间冒险持续下去。欢迎来到我们第四周的 [**清明梦工作坊**](http://lifehacker.com/tag/lucid-dream-workshop) 。
 
-Watch
+
 
 ### **如何保持睡眠和清醒**
 

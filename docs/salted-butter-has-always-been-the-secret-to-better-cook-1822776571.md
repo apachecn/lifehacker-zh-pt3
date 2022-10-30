@@ -4,7 +4,7 @@
 
 艾莉森·罗曼的咸黄油巧克力块酥饼到处都是。[食者](https://www.eater.com/2017/12/21/16805630/alison-roman-salted-chocolate-chip-shortbread-cookies-recipe-dining-in)[尼龙](https://nylon.com/articles/alison-roman-salted-chocolate-chunk-shortbread-cookies-viral-recipe)[神魂颠倒的厨房](https://smittenkitchen.com/2017/12/salted-butter-chocolate-chunk-shortbread/)[《纽约时报》](https://cooking.nytimes.com/recipes/1019152-salted-chocolate-chunk-shortbread-cookies) 对它们进行了详尽的报道；这些饼干几乎每天都会出现在我的 Instagram discover feed 上。最好的食谱不仅仅是它们各部分的总和，但是大量令人屏息凝神的评论表明，到目前为止，相当多的人过着贫困、没有咸黄油饼干的生活。
 
-Watch
+
 
 就我而言，我张开双臂欢迎咸黄油的罗马式诞生，因为不加盐的黄油完全没有意义。我用咸黄油煎鸡蛋，然后涂在吐司上，当然，我也专门用它烤面包。我的推理是盐不仅仅使食物味道好；它让食物尝起来有味道。我一比一地用盐代替不加盐，甚至没有减少食谱中要求的盐，因为我坚信额外的半茶匙盐不会损害四杯面粉和糖的食谱。用咸黄油烘烤对大多数人来说仍然是禁忌，通过要求，饼干给了成千上万的家庭厨师做一些相当淘气的事情的许可。我认为，这就是它们受欢迎的秘密。
 

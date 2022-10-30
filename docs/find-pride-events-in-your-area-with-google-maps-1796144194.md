@@ -4,7 +4,7 @@
 
 骄傲月 [正在如火如荼地进行](http://www.gaypridecalendar.com/june) ，谷歌地图让你更容易发现当地的骄傲活动，或者在这些活动中导航。
 
-Watch
+
 
 在 6 月的剩余时间里，谷歌地图将 [显示全球 35 个城市](https://blog.google/products/maps/find-pride-events-map/) 所有骄傲游行的地点和路线，包括三藩市、罗马、纽约市、巴黎、芝加哥、圣保罗、休斯顿等等。谷歌地图还将动态地改变活动地点周围所有司机的路线。
 

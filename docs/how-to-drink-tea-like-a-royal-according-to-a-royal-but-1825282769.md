@@ -4,7 +4,7 @@
 
 皇家婚礼就在眼前。虽然那天肯定会倒很多香槟，但喝茶也是皇室一天的一大部分——这是有规定的。
 
-Watch
+
 
 *商业内幕* [最近采访了前皇家管家格兰特·哈罗德](http://www.businessinsider.com/the-correct-way-to-stir-your-tea-according-to-a-royal-butler-2018-4) 。他说，如果你是皇室成员，喝茶有几个规则，特别是:
 

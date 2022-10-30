@@ -4,7 +4,7 @@
 
 不管你可能读过什么，亚马逊 Echo 从来都不是一款万能的智能家居设备。当然，它可以告诉你天气情况，也许还可以控制你的灯，但它缺乏引擎盖下的集线器功能，无法让所有连接的设备一起工作。 [新的亚马逊 Echo 加上](https://www.amazon.com/dp/B06XB29FPF/ref_=fs_ods_fs_aucc_sr?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/amazons-echo-plus-gets-close-to-giving-us-the-easy-smar-1820091030&asc_source=&tag=kinjagizmodolink-20&th=1) 正好提供了这一点。我不确定这是否值得，但这完全取决于你。
 
-Watch
+
 
 推销很简单。Amazon Echo Plus 是一款经典的 Amazon Echo，并且能够作为精选智能家居设备的中心。该设备本身看起来就像原来的回声，而“全新的回声”更小，坦率地说，更漂亮。但是！Echo Plus 可以控制整个类别的设备，如飞利浦 Hue lighting、三星 SmartThings 设备以及 Kwikset 制造的任何设备。(Kwikset 生产智能锁，并作为一款兼容 Echo Plus 的设备获得了最高的价格。)这意味着，在特定情况下，你不需要一个单独的集线器来帮助你的联网设备相互通信。它还有一种漂亮的新颜色:银色。
 

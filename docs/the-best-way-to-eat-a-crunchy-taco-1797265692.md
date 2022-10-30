@@ -4,7 +4,7 @@
 
 如果你不小心的话，一个硬壳的墨西哥玉米卷在你的手里咬几口后就会碎掉。诀窍是以正确的方式拿着它，一边吃一边从两边咬。
 
-Watch
+
 
 [http://skillet . life hacker . com/this-may-be-the-best-way-to-eat-a-sandwich-1797058131](https://lifehacker.com/this-may-be-the-best-way-to-eat-a-sandwich-1797058131)T3】
 

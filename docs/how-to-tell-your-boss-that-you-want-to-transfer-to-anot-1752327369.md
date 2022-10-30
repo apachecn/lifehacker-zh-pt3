@@ -4,7 +4,7 @@
 
 有时你发现自己有一份不错的工作，但你想在同一个公司里稍微转一下。接近你的老板并告诉他们你想调到不同的团队或部门的最好方式是什么？
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-break-the-news-to-your-boss-that-you-want-to-transfer-to-another-team) *。*
 

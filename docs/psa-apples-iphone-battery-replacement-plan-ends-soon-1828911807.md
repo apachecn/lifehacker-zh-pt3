@@ -4,7 +4,7 @@
 
 如果你一直在拖延修理旧 iPhone 的电池，你只剩下几个月的时间来以 29 美元的价格更换电池。从 12 月 31 日开始，更换价格将增加一倍以上，达到 79 美元，即使您有资格根据较便宜的计划进行更换。
 
-Watch
+
 
 苹果将于 2018 年 12 月 31 日结束更换计划。 [Gadgethacks 注意到](https://ios.gadgethacks.com/news/still-need-battery-replaced-your-older-iphone-get-done-soon-itll-cost-you-0186961/) 这个结局只适用于当前超出保修期的设备。因此，如果出于某种原因，你有一台旧设备仍在苹果的保修或苹果维修计划范围内，那么你应该是清白的。
 

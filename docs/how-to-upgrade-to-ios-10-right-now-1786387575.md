@@ -4,7 +4,7 @@
 
 [iOS 10 下周二就要到了](http://lifehacker.com/everything-apple-announced-today-at-their-iphone-7-even-1786332079) ，不过如果你有少年的耐心，不用担心，马上升级到 iOS 10 还是有可能的。
 
-Watch
+
 
 编辑: *iOS 10 正式发布，请从你的更新或 iTunes 下载。*
 

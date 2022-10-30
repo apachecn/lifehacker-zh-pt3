@@ -4,7 +4,7 @@
 
 当 BB-8 在《原力觉醒》中翻滚时，他偷走了我们所有人的心。如果官方的《星球大战》BB-8 播放列表(是的，真的)有任何暗示的话，他在音乐方面也有相当不错的品味。
 
-Watch
+
 
 完全披露:自从我们 [第一次开始展示播放列表](http://lifehacker.com/the-rock-and-roll-neighborhood-playlist-1757172760) 以来，我一直在等着拿出这个播放列表。这个播放列表——同样来自官方的《星球大战》Spotify 账户——非常搞笑*。从 Chamillionaire 的*riding’*到 Steppenwolf 的*Born to Wild*到 Justin Timberlake 的 *SexyBack* 都有。我的新脑袋佳能:这是整部电影在 BB-8 的脑袋里播放的东西。*
 

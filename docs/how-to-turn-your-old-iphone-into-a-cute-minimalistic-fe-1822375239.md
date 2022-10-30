@@ -4,7 +4,7 @@
 
 如果你还拥有一部 iPhone 4，它很可能正躺在抽屉里积满灰尘。你可能想过扔掉它，但现在你终于可以用你的 [旧智能手机](https://lifehacker.com/seven-ways-to-reuse-and-get-creative-with-your-old-ipho-5576310) 做些有用的事情了:把它变成一部 [功能手机](https://lifehacker.com/five-best-feature-phones-1518601513) 。
 
-Watch
+
 
 这是一位 Reddit 用户在 [分享他们简化版 iPhone 4 的图片](https://www.reddit.com/r/iphone/comments/7sj1fb/turned_my_old_and_slow_iphone_4_into_fast_ultra/?st=jcsri44w&sh=61c0bc97) 之前所做的。照片蹿上 Reddit 首页后，他们提供了一份 [全步骤指南](https://www.reddit.com/r/jailbreak/comments/7slvnz/tutorial_guide_to_make_iphone_4_faster_with_ultra/?st=jct7yr80&sh=453a572d) ，涉及 [越狱手机](https://lifehacker.com/are-you-still-interested-in-jailbreaking-your-iphone-1792091456) ，重新设计主屏幕，禁用一吨软件功能。
 

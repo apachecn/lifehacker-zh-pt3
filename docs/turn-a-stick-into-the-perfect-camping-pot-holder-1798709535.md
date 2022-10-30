@@ -4,7 +4,7 @@
 
 如果你不小心，在篝火上烧水很容易被烫伤。这个聪明的锅架可以帮你省点事，只需要你有一把刀和一根棍子。
 
-Watch
+
 
 足智多谋的生存黑客从 [历史频道展示](http://www.history.com/shows/alone)*想出了上面显示的 [“厨棒”工具](http://www.history.com/shows/alone/season-4/episode-8/survival-hacks-kitchen-stick) 。以下是如何制作你自己的:*
 

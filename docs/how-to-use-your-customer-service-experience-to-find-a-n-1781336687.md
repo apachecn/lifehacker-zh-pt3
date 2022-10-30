@@ -4,7 +4,7 @@
 
 我们中的许多人一开始都在客户服务部工作，作为下一份工作的垫脚石，但想知道如何爬上公司的阶梯可能很难。Quora 上的一位读者最近询问他们如何从客户服务过渡到其他方面。
 
-Watch
+
 
 [*一位匿名读者问*](https://www.quora.com/How-do-I-get-out-of-customer-service?srid=VDZ) *他们如何才能从客户服务工作中转行，从事其他能发挥他们技能的工作。Jae Alexis Lee，前客户服务经理，* [*回复如下*](https://www.quora.com/How-do-I-get-out-of-customer-service/answer/Jae-Alexis-Lee) *:*
 

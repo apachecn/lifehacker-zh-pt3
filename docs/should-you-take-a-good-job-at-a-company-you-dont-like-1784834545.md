@@ -4,7 +4,7 @@
 
 我的一个朋友最近面试了一份在很多方面都非常适合她的工作。这个角色完全符合她过去的经历，领导团队鼓舞人心且聪明，团队成员看起来很棒，她的通勤时间会更短！只有一件事阻碍了她:这家公司处于一个她无法兴奋起来的行业。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-know-if-you-should-take-a-great-job-at-a-company-youre-not-excited-about?ref=carousel-slide-0) *。*
 

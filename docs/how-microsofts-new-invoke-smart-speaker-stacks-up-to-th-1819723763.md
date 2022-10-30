@@ -4,7 +4,7 @@
 
 迟到总比不到好，对吧？今年早些时候，微软推出了基于 Cortana 的亚马逊 Echo，终于准备好参与智能扬声器市场的竞争。上周日发布的 [哈曼卡顿 Invoke](https://www.microsoft.com/en-us/cortana/devices/invoke) 搭载高品质音响和时尚设计，售价 199 美元。
 
-Watch
+
 
 但它与来自亚马逊、谷歌、苹果和 Sonos 的竞争相比如何呢？让我们找出答案。
 

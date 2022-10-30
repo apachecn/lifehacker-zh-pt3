@@ -4,7 +4,7 @@
 
 [iOS 9 越狱](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943) ，这意味着是时候开始收集利用其新功能的最佳应用和调整了。这一次有很多非常酷的东西，既增强了 iOS 9 的新功能，又将其中一些功能带到了旧设备上。
 
-Watch
+
 
 越狱可能是 [这几天失宠](http://gizmodo.com/is-there-any-reason-to-jailbreak-after-ios-8-1588158735#_ga=1.63590183.968941705.1436971740) ，但是对于那些喜欢调整和定制的人来说还是有用的。无论你是厌倦了苹果的围墙花园，还是你只是喜欢某种方式的一切，越狱都可以让你真正控制你的 iPhone。它不像以前那么必要了，但还是和以前一样有趣。
 

@@ -4,7 +4,7 @@
 
 欢迎来到 Lifehacker 的 [**清明梦工作坊**](http://lifehacker.com/tag/lucid-dream-workshop) 。每周我们都会学到更多关于睡眠科学的神秘领域，梦，以及当我们熟睡时如何“醒来”。
 
-Watch
+
 
 ### 什么是梦？
 

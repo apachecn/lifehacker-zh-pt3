@@ -4,7 +4,7 @@
 
 我们本周升级版的嘉宾是作家斯蒂芬·卡尼尔，他的书《如何像猫一样思考》 赞美了采用猫的思维方式的许多优点。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/bde68685-3231-4ba5-965d-b8ecafa948cc/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/bde68685-3231-4ba5-965d-b8ecafa948cc/embed)
 

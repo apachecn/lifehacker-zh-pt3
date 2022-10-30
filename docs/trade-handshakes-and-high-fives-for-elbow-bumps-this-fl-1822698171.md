@@ -4,7 +4,7 @@
 
 当你遇到同事或朋友时，问候通常包括某种形式的身体接触。无论是握手，击掌，还是老式的拥抱，在流感季节都是非常危险的，尤其是在这个 T2 T3 流感季节。
 
-Watch
+
 
 这并不意味着你需要避免接触所有在一起。取而代之的是，[*暗示了利比里亚人的肘击交换*](https://www.npr.org/sections/goatsandsoda/2018/02/03/581805417/the-liberian-elbow-bump-is-your-good-friend-during-flu-season)*，这种肘击得名于利比里亚人在埃博拉病毒爆发期间避免握手。* 
 

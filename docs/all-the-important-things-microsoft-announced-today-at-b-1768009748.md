@@ -4,7 +4,7 @@
 
 微软的 Build 大会总是充满了关于 Windows、Office、Xbox 和其他微软产品的新闻，Build 2016 也不例外。我们看到了今年夏天最新的 Windows 10 更新，Xbox One 的新功能，以及 Windows 商店的更新。这是我们看到的最好的新东西。
 
-Watch
+
 
 ### **Windows 10 的周年更新将于今年夏天到来**
 

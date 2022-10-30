@@ -4,7 +4,7 @@
 
 在大公司办公室工作是福是祸是 T2 T3。一方面，你有大量的资源可以支配——技术帮助、创意团队、导师、库存充足的供应室，以及你需要的任何东西，只需一张订单就能得到。但另一方面，公司环境中的官僚作风很容易抑制新想法，拖慢你需要完成的工作。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-deal-with-the-worst-organizational-bureaucracy) *。*
 
@@ -38,11 +38,7 @@ Watch
 
 尽管这些规则可能令人沮丧，但它们可能有合理的理由。我发现如果 [我能够获得更多关于那些原因](http://www.themuse.com/advice/pick-your-battles-3-questions-to-ask-before-disagreeing-at-work) 的信息，这有助于我接受(并执行)它们。例如，如果我发现我们的 PTO 系统除了 4 或 8 小时的请求之外根本不能处理任何事情，我会比假设我们的人力资源部门只是想迫使我们尽快用完我们的时间更满意。(我也知道，鉴于这是制定该规定的唯一原因，或许可以绕过它——比如允许员工跳过午餐时间，以弥补因预约医生而迟到的时间。)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Deal with Frustrating Workplace Bureaucracy](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-avoid-being-a-human-bottleneck-at-work-1621627003) [###### 如何避免成为工作中的人力瓶颈](https://lifehacker.com/how-to-avoid-being-a-human-bottleneck-at-work-1621627003) 
 
-没有人想挡别人的路。有时你可能甚至没有意识到你造成了
-
-[Read more](https://lifehacker.com/how-to-avoid-being-a-human-bottleneck-at-work-1621627003)</aside>
 
 ### 问题:缺乏决策能力
 

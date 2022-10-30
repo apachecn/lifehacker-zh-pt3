@@ -4,7 +4,7 @@
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。情人节很快就要到了，但我决定用邪恶的血橙来为这个节日增色，而不是做一杯有气泡和玫瑰香味的鸡尾酒。
 
-Watch
+
 
 如果那罐醉醺醺的柑橘对你来说看起来很熟悉，那是因为你跟着 [*和克莱尔*](https://lifehacker.com/c/eating-trash-with-claire) 一起吃垃圾，你知道里面装着 [浸了血橙的苦艾酒](https://skillet.lifehacker.com/preserve-fruit-in-oxidized-vermouth-1822599722) 。你可以诚实地直接啜饮罐子里的东西，并且完全快乐——我是这样做的，我也是——但是我认为情人节需要一些更强烈的东西。要制作这种多汁、略带甜味但却很有效的饮料，你需要:
 

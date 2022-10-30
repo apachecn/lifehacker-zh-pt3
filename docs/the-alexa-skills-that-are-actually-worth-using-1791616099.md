@@ -4,7 +4,7 @@
 
 你可以用亚马逊称为“Alexa 技能”的小应用程序给你的 [亚马逊 Echo](https://www.amazon.com/Amazon-Echo-Bluetooth-Speaker-with-Alexa-Black/dp/B00X4WHP5E/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-alexa-skills-that-are-actually-worth-using-1791616099&asc_source=&tag=kinjalifehackerlink-20) 添加大量功能大部分都是垃圾。我们从这些乱七八糟的东西中筛选出实际上有用的最好的。
 
-Watch
+
 
 ### **用这些智能家居技能用你的声音控制你的整个房子**
 

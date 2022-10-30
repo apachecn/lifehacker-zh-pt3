@@ -4,17 +4,13 @@
 
 如果你雇佣了一个税务筹划者，你这么做可能很大程度上是因为它提供了内心的平静，通过保证所有复杂的扣除和费用都被计算在内——没有人愿意与 IRS 打交道，除非绝对必要。但有时即使是专业人士也会搞砸。
 
-Watch
+
 
 虽然这种情况很少发生，但如果你的准备人搞砸了，那么他们也有责任提交和修改申报表并通知国税局，格雷格麦克布莱德说，的首席财务分析师。“在有审计的情况下，他们也应该代表你，”麦克布赖德说。“就回答国税局提出的任何问题而言，你的报税人应该承担责任。”
 
 另一方面，如果因为你忽略或忘记了某些信息而发生了错误，你就有麻烦了——你可以要求他们修改你的文件，但你可能需要再次为他们的服务付费，这可能会让你损失几百美元。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What to Do If Your Tax Preparer Makes a Mistake](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487) [###### 我如何找到一个好的税务专业人士？](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487) 
 
-亲爱的生活黑客，在考虑了我是否应该准备自己的税之后，我决定
-
-[Read more](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487)</aside>
 
 你可能遇到的一个类似的问题是被收取比预期更多的费用。再次，这归结为谁可能误导了谁。
 

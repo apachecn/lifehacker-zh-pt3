@@ -4,7 +4,7 @@
 
 如果你以任何身份使用微软的 Edge 浏览器，恭喜你！你非常罕见，以至于像 [Statcounter](http://gs.statcounter.com/browser-market-share) 这样的服务甚至没有把你的浏览器列入前六名。
 
-Watch
+
 
 你可能会认为 Edge 1.86%的市场份额——根据我们撰写本文时 Statcounter 的数据——会高一点，因为微软将浏览器植入了 Windows 10，这是你在一个全新的、未受影响的操作系统版本上的唯一选择。但是你走了。没有人真的在使用 Edge，但这并没有阻止微软在 11 月正式推出适用于安卓和安卓的浏览器版本，并在本周推出对 iOS[和安卓平板](https://blogs.windows.com/windowsexperience/2017/11/30/microsoft-edge-now-available-for-ios-and-android/) 的支持。
 

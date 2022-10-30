@@ -4,7 +4,7 @@
 
 苹果并不容易找出你在 iOS 上订阅了哪些应用程序— [go figure](https://slate.com/technology/2018/02/apples-app-store-is-becoming-a-major-revenue-source-for-apple.html) 。事实上，仅仅记住去哪里查看你的订阅(如果需要的话，取消它们)通常需要去你最喜欢的搜索引擎。或者，至少，它做到了。
 
-Watch
+
 
 瑞安·琼斯，前苹果公司的创始人，现在是即将推出的轻浮的应用程序 的创始人，已经走了，做了苹果应该做的事情，哦，当订阅 [首次在应用程序商店推出](https://www.apple.com/newsroom/2011/02/15Apple-Launches-Subscriptions-on-the-App-Store/) 。
 

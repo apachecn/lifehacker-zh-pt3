@@ -4,7 +4,7 @@
 
 这里有一个已经在 [出现了一段时间](http://gizmodo.com/netflix-has-a-whopping-76-897-ways-to-describe-movies-1493206216) 却可能与你擦肩而过的技巧:网飞工程师添加的秘密类别代码，可以帮助你缩小点播视频的选择范围。从经典战争电影到巴西戏剧，以下是如何深入挖掘网飞图书馆的方法。
 
-Watch
+
 
 每当你在网飞网站上搜索某个流派时，你都会得到一个类似于[【www.netflix.com/browse/genre/6839】](http://www.netflix.com/browse/genre/6839)的 URL 如果你摆弄那个结尾数字，你会发现一些隐藏的宝石。 [适合 5-7 岁的视觉冲击片](http://www.netflix.com/browse/genre/2851) 怎么样？还是 [期棋子](http://www.netflix.com/browse/genre/12123) ？我们在网上找到了两份非官方名单，这里和这里。
 

@@ -4,7 +4,7 @@
 
 如果你在过去几年里买了一台新的 [MacBook](https://lifehacker.com/how-to-set-up-your-macbook-from-scratch-1825920271) 或 MacBook Pro，你可能会对苹果提起诉讼。一项 [新的集体诉讼](https://www.girardgibbs.com/apple-macbook-pro-keyboard-defect-lawsuit/#the-form) 称该公司故意销售键盘有缺陷的笔记本电脑。以下是你需要了解的关于新诉讼以及如何参与的内容。
 
-Watch
+
 
 ### 有什么问题？
 

@@ -4,7 +4,7 @@
 
 无论你是想为你孩子的大学学费、攒够一套房子的首付还是仅仅为了能够 [舒适地退休](https://www.learnvest.com/2016/03/7-terms-to-know-before-you-open-a-retirement-account/) ，实现长期的金钱目标似乎都是势不可挡的。
 
-Watch
+
 
 *本帖原载于*[*learn vest*](https://www.learnvest.com/2016/08/get-going-on-your-long-term-financial-goals/)*。*
 

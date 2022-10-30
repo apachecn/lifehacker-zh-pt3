@@ -4,7 +4,7 @@
 
 经常使用桌面的作者 JonRedcorn2 通常使用 Windows，但这次他有一台 Mac——这并没有阻止他按照自己喜欢的方式定制。这是他如何设置这个漂亮干净的桌面。
 
-Watch
+
 
 JonRedcorn2 使用的是 bersicht， [一个我们在](https://lifehacker.com/ubersicht-customizes-your-os-x-desktop-with-widgets-and-1591137635) 之前已经强调过的 macOS 定制套件。您将需要抓住它开始，但它几乎是所有您需要的。
 

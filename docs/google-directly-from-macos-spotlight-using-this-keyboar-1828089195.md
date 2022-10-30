@@ -4,7 +4,7 @@
 
 有时候你想 Google(或者 Bing？由你做主...)的东西，但打开另一个浏览器标签感觉有点太费力了。如果你使用 MacOS，试试这个方便的键盘命令，让 Spotlight 的搜索查询 [自动在你默认浏览器的搜索引擎中打开。](https://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836) 
 
-Watch
+
 
 首先，通过按 Command+空格键，打开 spot light——Mac OS 内置的搜索栏，您可能会使用它来查找 Mac 系统上的文件和应用程序。
 

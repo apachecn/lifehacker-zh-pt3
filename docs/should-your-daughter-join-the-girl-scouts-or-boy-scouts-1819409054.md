@@ -4,7 +4,7 @@
 
 童子军 [即将迎来少女](http://www.scoutingnewsroom.org/press-releases/bsa-expands-programs-welcome-girls-cub-scouts-highest-rank-eagle-scout/) 。这是一个分裂的举动——一些人认为这是所有多年来参加 [竞选但被](https://www.nytimes.com/2015/11/23/us/girls-in-california-are-latest-to-seek-to-become-boy-scouts.html?_r=0) 拒绝的女孩的长期斗争的胜利，而另一些人则认为这是对传统的拒绝，是支撑不断下降的成员的孤注一掷的尝试，或者是“左翼”的一些重大策略不管怎样，想加入童子军组织的女孩现在有了一个选择。
 
-Watch
+
 
 那么他们应该选择哪个呢？尽管这两个群体有着共同的刻板印象，但这并不是简单的打结和卖饼干的问题。男童子军和女童子军有很多相似的价值观和活动，但是他们在一些基本的方面有所不同。如果你正在为你的女儿考虑这两者，以下是你需要了解的关于这两个组织的信息，以帮助你做出决定:
 

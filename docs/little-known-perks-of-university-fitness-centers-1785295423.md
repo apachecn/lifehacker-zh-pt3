@@ -4,13 +4,9 @@
 
 击退大一十五并不意味着你的选择仅限于跑步机和举重。大学健身中心充满了 [令人惊讶、有趣的设施](https://lifehacker.com/the-best-university-amenities-and-services-you-may-not-1631896259) 来帮助你保持体形，养成健康的习惯，甚至在大考前减压。最重要的是，对许多学生来说，这都是免费的。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Little Known Perks of University Fitness Centers](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-university-amenities-and-services-you-may-not-1631896259) [###### 最好的大学设施和服务，你可能不会使用](https://lifehacker.com/the-best-university-amenities-and-services-you-may-not-1631896259) 
 
-你为上大学付出了巨大的代价，但许多学生没能利用这一机会。
 
-[Read more](https://lifehacker.com/the-best-university-amenities-and-services-you-may-not-1631896259)</aside>
 
 请记住，美国有超过 2600 所经认证的四年制大学，没有哪两所学校是完全一样的。这意味着你可能在你的学校找不到这里提到的所有东西。也就是说，你永远不会知道，直到你去调查自己。打电话给你健身中心的前台，查看他们的网站，寻找健身中心的广告牌或海报，或者更好的是，询问你的 RA 或在招生办公室工作的人。他们什么都知道。对于许多学校来说，大学健身中心对学生是“免费”的，但是让我们诚实地说:无论你是否使用它，你都是在用你的学费支付。所以用吧！
 
@@ -74,11 +70,7 @@ Watch
 
 你也可以在专门的冥想室里做一些的大脑保养。 [东北大学](http://www.campusrec.neu.edu/) ， [北达科他大学](https://und.edu/health-wellness/wellness/) 和 [加州大学洛杉机分校](http://www.recreation.ucla.edu/) ，这些学校都在娱乐中心为学生提供超安静的地方，让他们集中精力。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Little Known Perks of University Fitness Centers](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) [###### 为什么冥想应该是你大脑的“定期维护”](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) 
 
-从技术上来说，睡眠已经是我们大脑的定期维护，但如果有任何…
-
-[Read more](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329)</aside>
 
 ### **报名参加团体课程和娱乐旅行**
 

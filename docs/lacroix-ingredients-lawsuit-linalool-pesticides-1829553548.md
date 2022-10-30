@@ -4,7 +4,7 @@
 
 LaCroix 苏打水爱好者的一个令人不安的声明(有罪)，一名妇女对该饮料的母公司提起了集体诉讼，声称“广告中宣传的‘全天然’苏打水包括一种用于蟑螂杀虫剂的成分以及其他人工成分，”CBS 费城 T3 说。
 
-Watch
+
 
 据 LaCroix 网站 的 [报道，各种饮料的“口味”都来自于从我们每种 LaCroix 口味中使用的命名水果中提取的天然精油。这些提取的香料中不含任何糖或人工成分。”但是代表原告 Lenora Rice](https://www.lacroixwater.com/nutritional-faqs/)[的 Beaumont Costales 律师事务所的一份声明称](https://www.cbsnews.com/news/lacroix-ingredients-lawsuit-alleges-all-natural-claim-is-false/) “测试显示 LaCroix 含有许多人工成分，包括用于蟑螂杀虫剂的芳樟醇。”
 

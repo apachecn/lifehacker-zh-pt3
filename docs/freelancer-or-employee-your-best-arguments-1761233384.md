@@ -4,7 +4,7 @@
 
 无论你是自由职业者还是全职员工，你做的工作可能是一样的，但收入和生活方式可能会大不相同。哪种工作安排比较好？ [我们问你](http://lifehacker.com/is-it-better-to-be-a-freelancer-or-an-employee-1760813111) ，这些是你给我们的一些最好的论据。
 
-Watch
+
 
 ### 员工获得稳定的收入和福利
 

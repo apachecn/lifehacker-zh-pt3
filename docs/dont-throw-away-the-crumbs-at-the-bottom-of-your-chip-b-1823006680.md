@@ -4,7 +4,7 @@
 
 如果说我们从 [LadyDoritoGate](https://skillet.lifehacker.com/heres-a-lady-dip-for-your-lady-chips-1822769865) 身上学到了什么，那就是女人们讨厌把薯片屑倒进她们张大的嘴里。但也许这与撑场面无关；也许这些精明的女人把面包屑留给了聪明、美味的用途。
 
-Watch
+
 
 *这是《与克莱尔一起吃垃圾》的一部分* [*，这是一个生活黑客系列，克莱尔·劳尔说服你将你的厨余转化为可食用的美味。*](http://lifehacker.com/tag/eating-trash-with-claire)
 

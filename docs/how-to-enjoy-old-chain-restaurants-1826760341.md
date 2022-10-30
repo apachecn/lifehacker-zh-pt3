@@ -4,7 +4,7 @@
 
 [IHOP 现在是 IHOB](https://thetakeout.com/ihop-is-now-ihob-an-international-house-of-burgers-1826730029) ，现在是在 [与所有汉堡连锁店](https://www.highsnobiety.com/p/burger-king-trolls-ihop/) 的一场战斗，因为在我们这个破败的世界里，没有什么能保持纯净。幸运的是 [Metafilter](https://www.metafilter.com/174425/Whatever-Happened-To) 最近发现了一个名为 [断链](http://actionsdower.blogspot.com/) 的迷人博客，它回顾了早已过了鼎盛时期的连锁餐厅的剩余位置，如[Lum 的](http://actionsdower.blogspot.com/2018/05/whats-left-of-lums.html) ，以及 [约克牛排馆](http://actionsdower.blogspot.com/2018/05/mideighties-times.html) 。
 
-Watch
+
 
 我问喜剧演员尼克·维格和迈克·米歇尔，他们在他们的播客中热切地讨论连锁餐馆，关于老连锁店的魅力。他们对此颇有普鲁斯特式的感觉:他们说，老连锁店“总是值得一去，试图了解他们想成为什么样的人。看看它现在是什么样子，并与你对它过去的记忆(或想象)进行比较。”例如，他们参观了南帕萨迪纳的一家 [Carrows](http://www.carrows.com/) :“它的装潢、食物和服务都反映了一个正在慢慢消失的行业。”
 

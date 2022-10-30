@@ -4,7 +4,7 @@
 
 在 20 到 40 年内，性将不再是首选的生殖方式。取而代之的是，拥有良好医疗保健的一半人口将——不骗你——拥有从人类皮肤中培育的卵子并与精子受精，然后对大约 100 个胚胎样本的整个基因组进行测序，仔细阅读最重要的部分，并选择最佳模型进行移植。至少这是斯坦福大学法学教授兼生物伦理学家汉克·格里利在《T2:性的终结和人类生殖的未来》中所预言的。除了皮肤生长的人类，我们还要多久才能拥有“设计婴儿”？
 
-Watch
+
 
 我们现在的情况是:在过去的几年里，一个名为 CRISPR/Cas9 的基因编辑工具已经产生了各种各样的可怕奇迹。在八月 的 [里，一群科学家宣布他们已经成功编辑了一个人类胚胎来根除一种心脏疾病。(他们发表在*自然*杂志上的论文的有效性现在受到争议，但中国科学家也声称在 2015 年](https://www.washingtonpost.com/news/to-your-health/wp/2017/08/02/first-human-embryo-editing-experiment-in-u-s-corrects-gene-for-heart-condition/?utm_term=.e81d4d7901b7) 获得了 [编辑胚胎，尽管不太成功。)和“设计师宠物”已经触手可及；老鼠已经被](https://www.nature.com/news/chinese-scientists-genetically-modify-human-embryos-1.17378) [变成了绿色](http://www.businessinsider.com/mice-skin-feet-green-crispr-genetic-diseases-2017-10) 。比格犬的肌肉量已经 [翻倍](https://www.technologyreview.com/s/542616/first-gene-edited-dogs-reported-in-china/) 。猪 [被缩小](https://www.technologyreview.com/s/608207/china-genomics-giant-drops-plans-for-gene-edited-pets/) 到有“名牌皮毛”的可卡犬大小长毛猛犸象 [正在尝试](https://www.nature.com/news/welcome-to-the-crispr-zoo-1.19537) 。
 

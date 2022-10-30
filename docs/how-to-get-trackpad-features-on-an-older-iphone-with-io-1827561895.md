@@ -4,7 +4,7 @@
 
 Ah 3D Touch，苹果的压感智能手机功能。艺术家从前(creepily？)称为 [Force Touch](https://lifehacker.com/everything-apple-announced-today-that-actually-matters-1690313457) 为支持它的 iPhones 用户提供了额外的选项。例如，推动屏幕的左边缘，以显示应用切换器。按下应用程序的主屏幕图标，显示快捷方式。按下键盘将光标移动到你想要的任何地方。
 
-Watch
+
 
 如果你曾经发现自己在编辑短信时没有把光标放在正确的位置，那么最后一个方法既有趣又非常有用。现在，在 iOS 12 中，没有 3D Touch 的 iPhones 也可以访问该功能。
 

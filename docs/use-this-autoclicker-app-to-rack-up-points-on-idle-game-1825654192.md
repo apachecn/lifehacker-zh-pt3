@@ -4,7 +4,7 @@
 
 Windows:无论你的毒药—[【被遗忘国度的闲散冠军】](https://store.steampowered.com/app/627690/Idle_Champions_of_the_Forgotten_Realms/) ，还是 [小猫游戏](http://bloodrizer.ru/games/kittens/http://bloodrizer.ru/games/kittens/)——几乎不需要你投入就能玩的游戏，都有一些怪异和有趣的地方。
 
-Watch
+
 
 这些被亲切地称为“点击者”的人都倾向于遵循相同的公式:你点击、点击、再点击来执行一些任务并获得某种虚拟货币，然后你将这些虚拟货币用于为你点击的功能和升级。这个循环一直重复，直到你耗尽了游戏的升级，或者厌倦了一天 24 小时离开你的台式机或笔记本电脑。
 

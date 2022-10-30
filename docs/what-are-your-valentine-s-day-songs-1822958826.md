@@ -4,7 +4,7 @@
 
 Spotify 是一个将你的音乐收听习惯转化为公共内容的服务，它分析了数千个以爱情、性、心痛或憎恨情人节为主题的用户播放列表，并制作了四个最常播放的歌曲的前十播放列表。
 
-Watch
+
 
 高居 [“全球情歌”播放列表](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DX3MUw1LRwa5i) 榜首的是艾德·施林的《完美》，现在你觉得自己老了。 [《全球顶级性爱歌曲》](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DWTwYPNpfHA7Z) 从*五十度灰*中威肯的《赚到了》开始； [《全球顶级心痛歌曲》](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DX46zHlTTyolY) 从萨姆·史密斯的《太擅长告别》开始老实说，唯一一个我们看起来完全熟悉的播放列表是反情人节的，最前面是 TLC 的“没有手术”
 

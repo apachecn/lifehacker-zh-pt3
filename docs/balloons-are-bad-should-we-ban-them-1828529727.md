@@ -4,7 +4,7 @@
 
 气球是庆祝、生日和狂喜的同义词。但是现在一些环保主义者正在向他们全面开战。
 
-Watch
+
 
 F 罗 [大学校园](https://www.tigernet.com/update/No-More-Balloons-Clemson-ends-30-year-tradition-of-balloon-launch-30428) 到 [全岛社区](https://www.blockislandtimes.com/article/council-bans-use-and-sale-balloons/52079) ，禁气球正在成为一件事。本周，随着一所南方大学恢复上课，这个问题引起了全国的关注——没有了放飞气球的历史传统。很有可能气球禁令会以同样的方式席卷全国 [塑料](https://earther.gizmodo.com/plastic-straw-bans-leave-out-people-with-disabilities-1827456627) [稻草](https://earther.gizmodo.com/this-latest-straw-ban-also-comes-with-a-ban-on-toxic-fo-1827926215) [禁令](https://earther.gizmodo.com/hell-yeah-no-more-plastic-straws-in-seattle-1827298270) [有](https://earther.gizmodo.com/people-are-realizing-that-straws-suck-1822156363) 。但是它们有必要吗？
 

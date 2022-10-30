@@ -4,7 +4,7 @@
 
 航班延误经常发生，但在一天中的特定时间发生的可能性要小得多。如果你需要一趟几乎保证准点的航班，你最好泡上一壶咖啡——你需要一大早就离开。
 
-Watch
+
 
 根据美国运输部的 [航空旅行消费者报告](https://www.transportation.gov/sites/dot.gov/files/docs/resources/individuals/aviation-consumer-protection/308801/2018-april-atcr.pdf) 二月份的统计数据，早上的航班是最准时的选择。就预定起飞时间而言，航班准点率在凌晨开始时约为 92-95%，然后逐渐下降，到下午晚些时候和晚上早些时候低至 73%。所以，你可能要重新考虑一下下午 5 点的航班。
 

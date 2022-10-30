@@ -4,7 +4,7 @@
 
 每个人有时都需要一点指导，今年我们花了很多时间来提供指导。无论你是在旅行、存钱、寻找人生目标，还是在考虑是否应该发送那张迪克照片，以下是我们 2017 年的最佳建议。
 
-Watch
+
 
 ### [**如何规划你的人生目标，停止在地球上浪费你的宝贵时间**](https://lifehacker.com/how-to-craft-your-lifes-purpose-and-stop-wasting-your-p-1820649467)
 

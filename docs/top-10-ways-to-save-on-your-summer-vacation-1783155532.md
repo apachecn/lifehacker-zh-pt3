@@ -4,7 +4,7 @@
 
 气温升高了，太阳出来了，我们的思绪飘向了一个美妙的夏日度假，说实话——我们都没有时间或金钱去度假。然而，并不是所有的都失去了。你可以离开，即使是一点点，甚至在预算之内。这里有一些提示可以帮助你开始。
 
-Watch
+
 
 ### 10.到户外去
 
@@ -28,11 +28,7 @@ Watch
 
 当然，如果你真的想要那种酒店体验，或者你更喜欢豪华住宿提供的舒适，你总是可以在酒店 省钱。但是如果你愿意自己做饭，或者呆在一个更小、更有魅力、更有个性的地方， [考虑 Airbnb——或者更好，original B&B](https://lifehacker.com/how-to-save-money-when-traveling-to-any-destination-1677596104)——在你想去的地方附近。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Ways to Save On Your Summer Vacation](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-save-money-when-traveling-to-any-destination-1677596104) [###### 去任何目的地旅行如何省钱](https://lifehacker.com/how-to-save-money-when-traveling-to-any-destination-1677596104) 
 
-在假期花很多钱并不意味着你会比那些…
-
-[Read more](https://lifehacker.com/how-to-save-money-when-traveling-to-any-destination-1677596104)</aside>
 
 老式的床和早餐仍然提供一些最好的旅行和住宿体验，它们仍然是酒店住宿成本的一小部分，并为您提供更多。当你到达那里时，我们有一些 [的小贴士帮你在](https://lifehacker.com/how-to-setup-your-hotel-room-for-a-more-pleasant-stay-1754307978) 过得愉快。
 

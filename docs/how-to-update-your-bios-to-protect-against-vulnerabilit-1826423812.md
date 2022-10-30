@@ -4,7 +4,7 @@
 
 是我，还是我们看到了更多影响系统核心组件的大而可怕的漏洞被披露？就在大约一周前，微软和谷歌宣布了更多问题——[流氓系统寄存器读取和投机商店绕过](https://www.us-cert.gov/ncas/alerts/TA18-141A)——这些都是今年 [主导科技新闻周期](https://www.theregister.co.uk/2018/01/04/intel_amd_arm_cpu_vulnerability/) 的 Spectre 和 Meltdown 漏洞的花哨变种。
 
-Watch
+
 
 这对你意味着什么？好吧，你可能已经或者将要为你的 CPU 处理一些更新，很可能以固件更新的形式为你的系统提供(习惯上称为 BIOS 更新，尽管 [你可能正在更新你的统一可扩展固件接口](https://www.pcworld.com/article/187437/software/how-to-update-your-bios.html) ，或者 UEFI，取而代之)。
 

@@ -4,7 +4,7 @@
 
 将你所有的照片 [储存在云端](https://lifehacker.com/which-cloud-storage-service-should-you-use-1822761662) 会很棒，直到它不再棒。有时候，你使用的存储服务可能会抬高价格，或者你的一些照片可能会莫名其妙地消失。更糟糕的是，你的私人照片可能会出现在陌生人的智能手机上。
 
-Watch
+
 
 这听起来很疯狂，但这就是发生在俄勒冈州一名男子身上的。存储在 [【威瑞森】](https://lifehacker.com/how-to-transfer-contacts-from-your-old-verizon-dumbphon-5978677) 云服务上的他和未婚妻的照片(包括一些裸照)不知怎么出现在了另一部威瑞森手机上。谢天谢地，在这种情况下，手机的主人认识这对夫妇，并警告他们，导致对运营商的 400 万美元的诉讼。
 

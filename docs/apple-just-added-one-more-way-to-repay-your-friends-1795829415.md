@@ -4,7 +4,7 @@
 
 在苹果 2017 年 WWDC 大会上，Craig Federighi(又名 Hair Force One)宣布了 Apple Pay 的一些不错的升级——这些升级使其与 Venmo、Square、脸书和谷歌直接竞争。
 
-Watch
+
 
 Apple Pay 现在只支持通过 Apple Messages 进行个人对个人的资金转账，如果话题转到你在麦克索利酒吧花了多少钱，它会分析你的信息，并建议你何时应该付钱给某人(不过拜托，我想你知道什么时候有人要钱)。
 

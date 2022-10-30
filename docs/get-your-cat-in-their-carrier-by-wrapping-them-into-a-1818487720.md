@@ -4,7 +4,7 @@
 
 你的猫知道发生了什么。即使她看到母舰不跑不躲，她也不可能不战而降。但是战斗会让她紧张，会让你沮丧和抓伤——更不用说去看兽医迟到了。进入小猫卷饼。
 
-Watch
+
 
 基本上，你需要约束你的猫的四肢，既保护你自己免受爪子的伤害，又防止她抓住载体的外部。(这么小的动物怎么这么强壮？？)被包裹起来也可以帮助安抚你的猫，就像 [襁褓中的婴儿](http://lifehacker.com/baby-boot-camp-the-skills-every-new-parent-needs-to-le-1709234325) 或者把一只焦虑的狗放进 [雷衫](http://gizmodo.com/how-to-keep-your-dog-happy-when-fireworks-go-off-usi-1598830293) 。很简单:
 

@@ -4,7 +4,7 @@
 
 我有比我需要的更多的东西。在过去的几年里，我有意识地努力减少我的财产。然而，当面对扔掉一个旧的棋盘游戏时，我自然会情不自禁地想，也许有一天我会需要它。为什么扔掉东西这么难？
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/the-challenge-of-getting-rid-of-stuff/) *上。*
 

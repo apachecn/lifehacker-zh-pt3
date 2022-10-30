@@ -4,7 +4,7 @@
 
 如果你使用 [Gmail](https://lifehacker.com/top-10-gmail-tips-for-power-users-1787627908) 和 [谷歌日历](https://lifehacker.com/add-google-calendar-events-straight-from-your-chrome-br-1790289009) ，通过电子邮件计划活动应该很容易，但在两个应用程序之间来回切换以检查你的可用性可能会很烦人。现在，看起来谷歌终于有了这个第一世界问题的解决方案，你会在即将到来的 Gmail 桌面视图的重大更新中找到它。
 
-Watch
+
 
 通过 [The Verge](https://www.theverge.com/2018/4/12/17227974/google-gmail-design-features-update-2018-redesign) ，我们知道谷歌正计划在 Gmail 中添加一个新的侧边栏，可以显示你日历的大而漂亮的视图。这样，如果你的同事给你发了一封邮件，建议在本周晚些时候开会，你只需向右看一眼，看看你什么时候有空。侧边栏还可以用来显示 Keep ( [谷歌令人印象深刻的笔记应用](https://lifehacker.com/not-just-another-notes-app-why-you-should-use-google-k-509256637) )，或者[Tasks](https://lifehacker.com/gmail-tasks-keeps-it-too-simple-5314872)(Gmail 中已经内置的 [有用的待办事项列表)。](https://www.howtogeek.com/school/gmail-guide/lesson7/)
 

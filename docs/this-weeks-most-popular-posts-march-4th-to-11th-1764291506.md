@@ -4,7 +4,7 @@
 
 本周，谷歌发布了他们手机操作系统的下一个版本 Android N 的开发者预览版，让我们大吃一惊。N 代表什么？鉴于他们过去对 [甜食命名法](https://en.wikipedia.org/wiki/Android_version_history) 的偏好，也许是 Nutella。牛轧糖？这一点以及本周《生活黑客》中的更多内容。这里回顾一下。
 
-Watch
+
 
 ## [安卓 N](http://lifehacker.com/all-the-new-features-coming-in-android-n-1763790001#_ga=1.237028805.410417895.1430444016)T3】所有新功能来袭
 

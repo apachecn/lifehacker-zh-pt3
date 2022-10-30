@@ -4,7 +4,7 @@
 
 本周, [Twitter 宣布它将放弃 Mac 桌面客户端](https://www.theverge.com/2018/2/16/17021960/twitter-mac-desktop-app-discontinued-support-ending) 的 Twitter。这款应用很糟糕，死时的评分是 1.7 分(满分 5 分)，所以可以肯定地说，它不会被严重错过。
 
-Watch
+
 
 也就是说，Twitter 的网页版也有一些不足之处。
 

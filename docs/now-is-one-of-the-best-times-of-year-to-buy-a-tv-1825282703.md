@@ -4,7 +4,7 @@
 
 如果你想买一台新电视，现在是一年中最好的购买时机之一。
 
-Watch
+
 
 春天是电视机制造商清理旧型号为新型号让路的时候。这意味着你经常可以在电视机上达成一笔交易，而几个月前这可能要贵得多，只要你今年愿意买一台“旧”型号而不是新的，根据 [*Ars Technica* 的 Dealmaster](https://arstechnica.com/gadgets/2018/04/dealmaster-figuring-out-the-right-time-to-buy-a-new-tv-in-2018/) 的说法。
 

@@ -4,7 +4,7 @@
 
 在过去的几年里，你可以要求一架无人机做两件事:好的或小的。但从不两者兼得。Mavic Air 改变了游戏。事实上，我甚至可以说，Mavic Air 赢得了这场比赛，事情将永远不会是一样的。
 
-Watch
+
 
 DJIs 的新折叠无人机不到一磅，长度超过六英寸，可以舒适地放在你的手掌中。我曾描述过它的兄弟姐妹 Mavic ProT3，折叠起来大约有一个意大利三明治那么大，但 Mavic Air 更像是半个 BLT。展开后，它不比飞盘宽。就是这么小，它让的[产生了火花，DJI 最小的无人机](https://gizmodo.com/the-dji-spark-is-an-incredibly-exciting-start-to-an-ins-1797103115) ，基本上看起来很蠢，既然它不折不扣。
 

@@ -4,7 +4,7 @@
 
 [安卓棉花糖](https://lifehacker.com/all-the-new-features-of-android-m-1707454646) 今天到货。当然，一些手机可能仍然需要几个月或几年才能获得更新。我们已经收集了关于哪些设备将在何时获得更新的所有信息。
 
-Watch
+
 
 下面，你会发现一个不完整的列表，列出了我们能找到的所有可能收到 Android Marshmallow 更新的手机和平板电脑。请记住，我们没有任何特殊的内部消息。我们只知道制造这些设备的公司宣布了什么。我们将尽最大努力更新此列表，并在更新到期时进行检查。然而，一些制造商可能会改变他们的计划，或者干脆不承认一些手机完全。
 
@@ -141,11 +141,7 @@ T-Mobile 宣布了自己的设备列表，这些设备将接收 Android Marshmal
 
 如果你的设备不打算正式接收棉花糖，你也可以尝试 [给你的手机](http://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397) 和 [安装一个自定义 ROM](https://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281) 。有时，社区会收拾残局，更新可能不符合条件的旧手机。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Every Phone That&#39;s Getting Updated to Android Marshmallow](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281) [###### 如何将 ROM 闪存到您的 Android 手机中](https://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281) 
 
-安卓很棒，但是有时候，你用手机得到的版本——不管是普通的安卓…
-
-[Read more](https://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281)</aside>
 
 当我们得到新的信息时，我们将定期更新这个列表。如果你看到一个确认或承诺的更新不在这个列表中， [发邮件给我们](mailto:eric@lifehacker.com) 。
 

@@ -4,7 +4,7 @@
 
 Windows 10 的周年更新将于今年夏天晚些时候推出，但你现在可以通过 Windows Insider 计划尝试所有新功能 [，如 Bash 和来自 Android 手机](http://lifehacker.com/all-the-important-things-microsoft-announced-today-at-b-1768009748) 的通知。
 
-Watch
+
 
 ### **使用 Windows Insider 保持领先**
 

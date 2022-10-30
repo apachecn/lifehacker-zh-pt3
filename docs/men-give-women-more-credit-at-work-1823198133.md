@@ -4,7 +4,7 @@
 
 男人！Mule Design 联合创始人 Erika Hall 有 [七种方法让你抵消工作中的性别歧视](https://medium.com/@mulegirl/be-a-pal-my-dudes-a34c06df1b1d) 。有些会帮助你消除公开的性别歧视；一些称呼比较无意识的习惯如 [打断女性的话](https://www.advisory.com/daily-briefing/2017/07/07/men-interrupting-women) 。你不需要掌握权力来使用它们。霍尔的文章没有填充符，所以请全部阅读，但这里有我们最喜欢的提示:
 
-Watch
+
 
 “在其他男人面前公开称赞女人，”霍尔说。在交谈中以及在她为职业女性 举办的 [研讨会上，霍尔经常听到男人们将女性的想法归功于自己。男人不应该害怕大声地、频繁地称赞女人:“对有能力的人来说，信用不是稀缺资源。”因此，霍尔说，立即说出女性的好主意，然后带着信任重复它们。](https://muledesign.com/cut-the-bias)
 

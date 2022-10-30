@@ -4,7 +4,7 @@
 
 他们说用蜂蜜比用醋能抓到更多的苍蝇，但是苹果醋实际上很擅长吸引果蝇。不过， [据 Food52](https://food52.com/blog/22965-how-to-get-rid-of-fruit-flies-with-this-aperol-spritz-hack) 说，用 [Aperol spritz](https://skillet.lifehacker.com/the-aperol-spritz-is-like-a-grown-up-orange-soda-1827748207) 可以抓到*甚至更多的*苍蝇。
 
-Watch
+
 
 我不知道这是不是因为果蝇已经进化成了漂亮的小伙子，因此对它们的死亡陷阱变得更加敏锐，但当 Food52 测试它时，这种甜酒被证明是非常诱人的。然而，为果蝇提供夏季鸡尾酒可能会有点贵，而且鉴于我所在的城市存在开胃酒短缺的事实，当我身边有一瓶氧化味美思时，我就是无法让自己使用完美的开胃酒。
 

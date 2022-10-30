@@ -4,7 +4,7 @@
 
 播客已经成为最好的娱乐形式之一，但很难跟踪你喜欢的，抛弃你不感兴趣的剧集，甚至管理你想听的内容。 [Pocket Casts](https://www.shiftyjelly.com/pocketcasts/) 是帮助你组织播客的最好的应用程序之一，但是你需要对它进行一点试验，让它为你工作。
 
-Watch
+
 
 虽然 Pocket Casts 可用于(3.99 美元)和[iOS](https://itunes.apple.com/us/app/pocket-casts/id414834813?mt=8)(3.99 美元)，但这些技巧中的许多也可以转移到其他播客应用程序，你需要在不同的地方寻找设置。
 

@@ -4,7 +4,7 @@
 
 超过 7000 名皮草商将于本周末来到匹兹堡参加 Anthrocon，这是一年一度的大会，人们穿得像狼、龙以及狼龙组合。大会包括一次公众游行，去年有 2100 人参加。Anthrocon 众议员约翰·科尔给了倾斜一些 [与 furies](https://theincline.com/2017/06/27/6-etiquette-tips-for-meeting-furries-at-anthrocon-in-pittsburgh-this-weekend/)互动的礼仪提示。这个建议可以归结为两条经验法则:不要有侵犯性，记住毛皮服非常热。
 
-Watch
+
 
 科尔说，问愤怒的人问题是可以的，但要记住他们是有感情的人。再加上有些宁愿不说话。要求拍照，问能不能进一步提问。如果你有孩子，教他们不要拥挤任何人或未经他们允许触摸他们。
 

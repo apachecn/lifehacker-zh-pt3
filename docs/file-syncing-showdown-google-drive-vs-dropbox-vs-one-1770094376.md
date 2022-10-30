@@ -4,7 +4,7 @@
 
 无论是工作还是娱乐，访问像样的云存储几乎是必不可少的，但每个人似乎都有一个最佳选择。让我们来分析一下三个最流行的文件同步服务，看看哪一个是至高无上的。
 
-Watch
+
 
 ### **竞争者**
 
@@ -64,11 +64,7 @@ Watch
 
 **您可以上传任何大小不超过 10GB 的文件或文件夹，OneDrive 会自动按文件类型对其进行分类。您还可以从任何地方访问您的文件，包括您的 Xbox 360 或 Xbox One 游戏机。此外，OneDrive 与 Outlook 集成，因此您可以随时将云中的文件附加到电子邮件中。如果您拍摄了大量照片， [OneDrive 会根据拍摄地点和时间自动将您的照片组织到图库](https://lifehacker.com/how-does-the-new-onedrive-compare-to-other-cloud-servic-1529728733) 中。你还可以添加标题或位置标签，甚至将你的照片上传到脸书。**
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">**[![Image for article titled File Syncing Showdown: Google Drive vs. Dropbox vs. OneDrive](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-does-the-new-onedrive-compare-to-other-cloud-servic-1529728733) [###### 新的 OneDrive 与其他云服务相比如何？](https://lifehacker.com/how-does-the-new-onedrive-compare-to-other-cloud-servic-1529728733) 
 
-亲爱的 Lifehacker，我从来没有仔细看过 SkyDrive，但人们告诉我它真的很好。
-
-[Read more](https://lifehacker.com/how-does-the-new-onedrive-compare-to-other-cloud-servic-1529728733)**</aside>
 
 **微软 Office 也完全集成了 OneDrive。这使得共享文档、电子表格和幻灯片变得容易，并且它还允许 Office 365 订户进行实时协作。你可以通过电子邮件邀请或链接分享其他文件，就像 Google Drive 和 Dropbox 一样。**
 

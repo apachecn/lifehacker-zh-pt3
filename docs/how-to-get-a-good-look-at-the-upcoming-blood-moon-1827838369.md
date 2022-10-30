@@ -4,7 +4,7 @@
 
 日历上有一些有趣的天文事件在等着我们，只要做一点准备，你就可以在家里看到它们。
 
-Watch
+
 
 7 月 27 日，星期五，将会有一次血月或月食，尽管不是所有的月食都会让月亮呈现红色。 [据](https://www.forbes.com/sites/trevornace/2018/07/23/dont-miss-this-weeks-deep-red-blood-moon-the-longest-lunar-eclipse-of-this-century/#355a8b056c2a) 福布斯报道，这种特殊效果是由太阳的间接光穿过地球大气层并散射较长的蓝色和紫色波长造成的。剩下的就是那不祥的红色和橙色。
 

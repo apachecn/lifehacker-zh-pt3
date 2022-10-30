@@ -4,7 +4,7 @@
 
 如果你重视舒适和富裕胜过驾驶的刺激，你会想要驾驶像 [奔驰 S 级](http://buyersguide.jalopnik.com/mercedes-s-class-the-ultimate-buyers-guide-1737909691)[凯迪拉克凯雷德](http://buyersguide.jalopnik.com/cadillac-escalade-the-ultimate-buyers-guide-1746051059?rev=1449181436976) 和其他在炫耀性汽车列表中的汽车。
 
-Watch
+
 
 也许你是 [一个迅速走红的嘻哈歌手](http://jalopnik.com/watch-jay-z-kanye-west-saw-the-top-off-a-maybach-5830270#_ga=1.246445956.1273901456.1445270859) 想要向所有的敌人展示你赚了多少钱。或者也许你是一个 [制药公司的兄弟](http://gawker.com/cool-martin-shkreli-dissed-ghostface-killah-1755772083) 假装是那些嘻哈明星中的一员。你也可以是一个嘲笑饥饿的平民的俄罗斯外交官，或者在去高中同学会的路上。不管是哪种情况，你都需要一辆奢华的车。说“我成功了，我比你强”的东西
 

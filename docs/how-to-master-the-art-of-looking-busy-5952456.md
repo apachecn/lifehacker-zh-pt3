@@ -4,7 +4,7 @@
 
 看起来很忙有坏名声。有时候你必须看起来很忙，这样你才能真正做重要的事情。以下是如何欺骗别人，让他们相信你已经排满了日程，这样你就有了喘息的空间来真正完成任务。
 
-Watch
+
 
 *这篇文章最初发表于 2012 年，是我们 Lifehacker 的* [*邪恶周*](http://lifehacker.com/welcome-to-lifehackers-sixth-annual-evil-week-1738276927#_ga=1.267541390.1055861349.1441835238) *系列的一部分，在这里我们看到了做事的阴暗面。有时邪恶是正当的，而其他时候，知道邪恶意味着知道如何打败它。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evil-week) *。*
 
@@ -12,11 +12,7 @@ Watch
 
 在这篇文章中，我们将通过一些方法来确保你交谈的每个人——无论是你的老板还是分散注意力的同事——都知道你很忙，而不用你用事实来打击他们。当涉及到生产力时，其中一些是很好的感觉，但其中一些提示可能会适得其反，但请坚持，我们将解释为什么所有这些都有效。让我们开始吧。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Master the Art of Looking Busy](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-stop-coworkers-from-distracting-me-while-i-m-t-5869367) [###### 在我努力工作的时候，我如何阻止同事分散我的注意力？](https://lifehacker.com/how-do-i-stop-coworkers-from-distracting-me-while-i-m-t-5869367) 
 
-亲爱的 Lifehacker，我有几个同事似乎总是在我的办公桌前和我说话。是否…
-
-[Read more](https://lifehacker.com/how-do-i-stop-coworkers-from-distracting-me-while-i-m-t-5869367)</aside>
 
 ### 首先处理重大胜利
 

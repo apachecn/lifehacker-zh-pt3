@@ -4,7 +4,7 @@
 
 我最近偶然发现了扩展 Toby([Chrome](https://chrome.google.com/webstore/detail/toby-for-chrome/hddnkoipeenegfoeaoibdmnaalmgkpip?hl=en)[Firefox](http://www.gettoby.com/firefox))，我很惊讶我有多喜欢它。以至于它已经取代了我每次打开新标签时一直使用的谷歌地球 扩展中漂亮的 [Chrome Delight](https://chrome.google.com/webstore/detail/chrome-delight/hehbgjdnbibkndghdlilefececadokpb?hl=en) 和 [地球视图。我现在是百分之百的托比，因为这是我见过的最好的方法之一，可以更好地控制浏览器中所有打开的标签。](https://chrome.google.com/webstore/detail/earth-view-from-google-ea/bhloflhklmhfpedakmangadcdofhnnoh?hl=en)
 
-Watch
+
 
 我推荐那些可以“零浏览器”的人——只在你需要的时候打开和关闭标签，而不是使用打开的标签(和你的浏览器的“从我离开的地方开始”功能)来存储你应该查看的永无止境的网站流，但出于任何原因都懒得添加书签。
 

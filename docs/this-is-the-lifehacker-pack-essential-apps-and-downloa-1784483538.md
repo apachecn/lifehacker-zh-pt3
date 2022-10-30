@@ -4,7 +4,7 @@
 
 在过去的两周里，我们像每年一样，给了你一个我们认为每个主要平台的每个用户都应该尝试的基本应用、扩展和下载的快照。错过一个？它们都在这里，在一个整洁的包裹里。
 
-Watch
+
 
 ### [**Mac 版 Lifehacker Pack:我们的基本 Mac 应用清单**](http://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836)
 

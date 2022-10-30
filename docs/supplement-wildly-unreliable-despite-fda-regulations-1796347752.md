@@ -4,7 +4,7 @@
 
 很多人对补品有自己的看法。但是当你去商店买的时候，你会期望有效成分的数量是一致的，对吗？显然，这似乎不会发生。
 
-Watch
+
 
 科学家测试了一种有时用于治疗高胆固醇的补充剂，称为“红曲米”他们从 GNCs，Walgreens 和其他商店购买了大量的补充剂，并分析了药片中有益化学物质 monacolin K 的含量。结果发现，同样大小的药丸中莫那可林 K 的含量差异很大。所有这一切都发生在美国美国食品药品监督管理局 2007 年补充生产 [法规](https://www.fda.gov/food/guidanceregulation/guidancedocumentsregulatoryinformation/dietarysupplements/ucm238182.htm) 之后*。*
 

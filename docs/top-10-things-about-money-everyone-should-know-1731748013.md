@@ -4,7 +4,7 @@
 
 金钱规则可能很简单，但并不总是容易坚持。如果你想积累财富，你必须不断地 [改变你的金钱习惯](http://lifehacker.com/top-10-better-money-habits-you-can-build-this-year-1677014117) ，并重新思考你与金钱的关系。以下是我们多年来分享的一些最好的个人理财建议，每个人都应该学习或重新学习。
 
-Watch
+
 
 ### 10.没有放之四海而皆准的方法
 
@@ -44,11 +44,7 @@ Watch
 
 这可能是我们所有人都凭直觉知道的事情，但直到你见证了复利的力量，以及当你年轻时时间是你最强大的资产，你才会意识到，见鬼，我应该从昨天(或去年或过去十年)开始存钱。根据沃伦·巴菲特 的说法，没有养成早存钱的习惯是 [我们犯的最大的金钱错误。(如果你不相信，看看这张退休储蓄图表](http://lifehacker.com/the-biggest-money-mistakes-we-make-according-to-warren-1525117382) 。)也就是说，现在 [开始存钱永远不晚](http://lifehacker.com/starting-your-retirement-savings-late-doesnt-mean-youre-1699402318) 。 [还能赶上](http://twocents.lifehacker.com/what-to-do-when-you-re-40-and-have-nothing-saved-for-re-1665477939#_ga=1.246024898.730952464.1413835802) 。下面是 [你应该知道的关于退休储蓄的](http://lifehacker.com/top-10-things-everyone-should-know-about-saving-for-ret-1687055516) ，包括我们的 [投资入门](http://twocents.lifehacker.com/how-to-build-an-easy-beginner-set-and-forget-investm-1686878594#_ga=1.153735166.730952464.1413835802) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Things About Money Everyone Should Know](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906) [###### 被误解的金钱数学:为什么利息比你想象的更重要](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906) 
 
-兴趣很可能是普通人必须使用的最复杂的数学工具…
-
-[Read more](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906)</aside>
 
 1.了解金钱是一个持续的过程。不断向他人学习
 

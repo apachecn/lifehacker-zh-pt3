@@ -4,7 +4,7 @@
 
 想要更多空间来存放您的文档吗？你当然知道。今天，你可以在 Google Drive 上免费获得 2GB 的额外容量。以下是方法。
 
-Watch
+
 
 你需要做的只是 [前往谷歌](https://security.google.com/settings/security/secureaccount) 并运行一个非常简单的安全更新——检查你的备份电子邮件地址是否正确，更新账户权限，诸如此类的事情。工作几分钟后，您将获得 2GB 的额外硬盘存储空间。你还在等什么？ [去做吧](https://security.google.com/settings/security/secureaccount) 。
 

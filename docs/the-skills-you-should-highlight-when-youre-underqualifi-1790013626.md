@@ -4,7 +4,7 @@
 
 你看到了一份你想申请的工作——但是有一个问题，你不能满足所有的要求。尽管如此，你知道不合格的 [和不合格的](https://www.themuse.com/advice/how-to-know-if-youre-underqualified-or-unqualified-for-a-job-theres-a-difference) 之间的区别，你自信自己属于前者而不是后者。*你可以做这份工作。*
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/the-2-kinds-of-skills-you-should-highlight-when-youre-underqualified-for-a-job) *。*
 

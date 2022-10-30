@@ -4,7 +4,7 @@
 
 在一个慵懒的周五下午，我最喜欢做的一件事(我应该在工作，但是我已经提前发了几篇帖子，我的思绪有点乱)是做一次“大脑倾倒”
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/the-value-of-a-brain-dump-friday/) *上。*
 

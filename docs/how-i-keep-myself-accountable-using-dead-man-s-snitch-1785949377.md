@@ -4,7 +4,7 @@
 
 说到要完成的事情，我是一个列清单的人，以至于我的清单上都有清单。但是如果我忘记了一项任务，谁来让我负责或者提醒我呢？我从我们的开发者那里获得了一些灵感，用 Todoist，Zapier 和 Dead Man 's Snitch 设置了一个警报。
 
-Watch
+
 
 *本帖原载于* [*集体想法博客*](http://collectiveidea.com/blog/archives/2016/08/26/keeping-on-task-using-dead-mans-snitch/) *。*
 

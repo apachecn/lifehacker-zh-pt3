@@ -4,7 +4,7 @@
 
 过去几年，像 [Acorns](https://www.acorns.com/) 、 [Clink](https://clink.com/) 和 [Stas](https://www.stashinvest.com/) h 这样的微投资平台被预言为金融科技领域的下一个大事件，因为它们允许用户以极低的费用将小额资金投资于 ETF。但取决于你用它做什么，你可能更适合传统形式的银行和投资。
 
-Watch
+
 
 下面是上面提到的三大小额投资应用的细分:
 

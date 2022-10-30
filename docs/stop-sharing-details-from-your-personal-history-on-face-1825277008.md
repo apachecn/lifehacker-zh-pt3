@@ -4,7 +4,7 @@
 
 如果说过去几周的 [、脸书丑闻](https://lifehacker.com/how-to-find-out-if-cambridge-analytica-had-your-data-1825155752) 揭示了什么，那就是社交网络已经知道了太多关于我们的事情。但如果你需要另一个理由停止向脸书提供你的个人信息，这里有一个很好的理由:它可能会让你的在线账户被黑。
 
-Watch
+
 
 最近来自 [Krebs 的一篇关于安全](https://krebsonsecurity.com/2018/04/dont-give-away-historic-details-about-yourself/) 的帖子指出，脸书充斥着流行的页面，询问通常在 [安全问题](https://lifehacker.com/use-fake-answers-to-online-security-questions-1821628011) 中使用的信息类型，以保护你的账户。看似无伤大雅的状态更新询问你的第一只宠物或你长大的街道的详细信息可能看起来很有趣，但同样的信息很有可能会保护你的在线身份免受黑客攻击。
 

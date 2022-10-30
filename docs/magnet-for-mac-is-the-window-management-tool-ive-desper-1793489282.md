@@ -4,7 +4,7 @@
 
 这些年来，我们已经在 Mac 上 [看到了几个不同的工具](http://lifehacker.com/hyperdock-brings-window-previews-other-dock-enhancemen-5649024)[Windows 风格的窗口管理](http://lifehacker.com/snap-any-window-to-half-the-screen-size-in-windows-7-5077728) ，但是没有一个适合我的工作流程。 [Magnet](http://magnet.crowdcafe.com/) 是一个已经存在了一段时间的应用程序，但最近的几次更新终于使它成为我需要的应用程序。
 
-Watch
+
 
 一眼看去， [磁铁](http://georiot.co/AhK) (售价 4.99 美元，但目前正以 99 英镑出售)就像任何窗口捕捉工具一样。您可以整齐地并排组织窗口，以全屏幕、四分之一、三分之一或任何您想要的组合。您可以通过拖动窗口、设置键盘快捷键或使用菜单栏来管理窗口。这对于像我这样的人来说很有帮助，我通常会打开几十个大小不一的窗口，它们以一种杂乱无章的方式堆叠在一起，这让我在应用切换器上花费了比我想要的更多的时间。如果我真的费心去手动调整一个窗口的大小，那通常只是为了让它大到足以从另一堆应用中跳出。
 

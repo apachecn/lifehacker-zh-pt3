@@ -4,7 +4,7 @@
 
 作为一种沟通策略，总统的推特账户是前所未有的，这是一系列意识流公报，让任何想避免战争或继续保留宪法的美国人感到恐惧。但是他在推特上的咆哮，尽管经常如此怪异和疯狂(“covfefe”)，至少是他思维过程的一个窗口。我的意思是，我宁愿知道他在想什么，也不愿不知道。
 
-Watch
+
 
 但这并没有让阅读这些幼稚的、拼写错误的咆哮变得更容易。幸运的是，有一个 [新的 Chrome 插件](https://chrome.google.com/webstore/detail/make-trump-tweets-eight-a/iopebbikefjcknnbmdkkcebchlnaioen/related?hl=en) 可以自动将他的推文文本转换成蜡笔字体。
 

@@ -4,7 +4,7 @@
 
 几乎每一个我交谈过的任天堂 Switch 车主都 [表白了他们对便携式游戏机](https://kotaku.com/the-switch-has-made-nintendo-cool-again-1797975407) 的喜爱。虽然其光滑的设计允许使用小型、可移动的 Joy-Con 控制器进行方便的本地多人游戏，但它们握起来并不舒服。幸运的是，任天堂的 [最新 4.00 软件更新](http://en-americas-support.nintendo.com/app/answers/detail/a_id/22525/p/897) 让你可以使用游戏机过去最受欢迎的控制器之一:Gamecube 控制器。
 
-Watch
+
 
 只要你有合适的适配器，将你的 Gamecube 控制器连接到你的交换机是相当容易的。它取决于你的交换机坞站上的两个 USB 端口，只有当你的交换机坞站时才工作(这应该不会很不方便，反正 Gamecube 控制器是有线的)。 [据 Ars Technica](https://arstechnica.com/gaming/2017/10/your-old-gamecube-controllers-now-work-with-the-nintendo-switch/) 报道，第三方适配器不如任天堂官方 Gamecube 控制器适配器可靠。过去，它在网上单独销售，或者作为捆绑销售的一部分，包括 Wii U 的 Super Smash Bros。不幸的是，这种适配器已经停产，所以你可能需要支付额外的费用才能买到。
 

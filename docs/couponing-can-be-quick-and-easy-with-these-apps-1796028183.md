@@ -4,7 +4,7 @@
 
 与真人秀节目 所说的 [相反，优惠券并不一定要走极端。没有必要在垃圾箱里翻找传单，或者一周花 20 个小时剪报。这里有一些最好的应用程序，可以让你轻松快捷地用优惠券省钱。](https://www.tlc.com/tv-shows/extreme-couponing/) 
 
-Watch
+
 
 《华盛顿邮报》 [最近以此为题，](https://www.washingtonpost.com/lifestyle/home/tech-has-taken-the-work-out-of-couponing-heres-how-to-save-big-with-little-effort/2017/06/05/a8ef1a2a-40b8-11e7-8c25-44d09ff5a4a8_story.html?utm_term=.d03cca963e89) 指出 CouponMom.com是取消优惠券工作的较好网站之一。该网站列出了大多数大型杂货店、连锁药店和大卖场每周出售的所有商品。它还列出了相同商品的优惠券和返现交易，所以你可以通过将优惠券翻倍来省钱(该网站还包括在线打印优惠券的链接)。
 

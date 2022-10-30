@@ -4,7 +4,7 @@
 
 随着现代汽车变得更加互联，功能更加智能，黑客攻击是一个真正的危险。很少见，但已经在发生了。我们还没有进入“停止引擎”的世界，但是很容易闯入一辆无钥匙进入的汽车 并偷走里面的一切，而车主却不知道车已经解锁。
 
-Watch
+
 
 坏消息是:闯入你的汽车只是一个问题，无钥匙进入不是唯一的漏洞。但也有一个好消息:你并没有真正的人身危险。然而，无论如何。由于这些“智能”和互联系统中的漏洞，今天的问题包括盗窃和闯入。不过，这并不意味着未来没有问题。
 
@@ -33,11 +33,7 @@ OBD(简称 [车载诊断](https://en.wikipedia.org/wiki/On-board_diagnostics) ) 
 
 网络钓鱼诈骗很有说服力。在这种情况下，研究人员在附近的餐馆推出免费汉堡，作为交换，他们将一个应用程序下载到受害者的智能手机上，然后使用智能手机访问汽车。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Car Hacking Is a Thing, but Are You Really in Danger?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050) [###### 如何提高您的网络钓鱼检测技能并避免电子邮件诈骗](https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050) 
 
-网络钓鱼诈骗——通过伪装成…
-
-[Read more](https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050)</aside>
 
 其他常见的网络钓鱼诈骗包括看似来自您的银行或信用卡公司的电子邮件，或者引诱您点击恶意网站的提议。 [学会识别和避免试图窃取你的密码和个人信息](https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050) 到 [保护自己免受诈骗](https://lifehacker.com/how-to-protect-yourself-from-online-fraud-and-identity-5858197) 。
 

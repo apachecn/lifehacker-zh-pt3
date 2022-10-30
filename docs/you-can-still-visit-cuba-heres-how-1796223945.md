@@ -4,7 +4,7 @@
 
 川普总统 [最近宣布，美国将重新实施对古巴](https://www.nytimes.com/2017/06/15/us/politics/cuba-trump-obama.html?hp&action=click&pgtype=Homepage&clickSource=story-heading&module=first-column-region&region=top-news&WT.nav=top-news&_r=0)*的旅行限制，部分取消了川普之前的政策变化。那么，你还能去古巴吗？看情况。* 
 
-Watch
+
 
 ### 去古巴旅游总是非法的
 

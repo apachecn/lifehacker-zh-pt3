@@ -4,7 +4,7 @@
 
 你不想住在一个不尊重你这个人的地方。由加拿大 PFLAG 公司和广告公司 FCB/SIX 建立的目的地自豪感(Destination Pride)根据城市给予 LGBTQ 人群的法律权利和保护，对世界各地的城市进行排名。虽然它被包装成一个度假评级器，但它在选择长期住宿地时更有用。
 
-Watch
+
 
 搜索一个城市，Destination Pride 会根据当地、州和国家的民权法律以及最近的相关社交媒体对话对其进行评分。它用一个可爱的彩虹旗图总结了结果。在城市层面，分数并不总是与一个地方作为度假胜地的潜力相对应——[火山岛](https://destinationpride.org/destination/united-states/new-york/fire-island) 分数为 65 分(满分为 100 分)，而 [迈阿密海滩](https://destinationpride.org/destination/united-states/florida/miami-beach) 分数为 39 分——但这是一个更好的衡量你是否能在那里真正建立生活的标准。(例如，大多数美国目的地在住房和就业的法律保护方面得分很低。)
 

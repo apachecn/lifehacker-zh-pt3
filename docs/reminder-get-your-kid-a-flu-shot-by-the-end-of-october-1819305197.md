@@ -4,7 +4,7 @@
 
 如果让你的孩子注射流感疫苗是你一直在拖延的事情，不要等太久。美国儿科学会建议 6 个月及以上的儿童在 10 月底 前接种流感疫苗 [**。现在是去你的医生办公室或者在这张**](https://www.aap.org/en-us/about-the-aap/aap-press-room/Pages/AAP-Issues-Flu-Vaccine-Recommendations-for-2017-2018.aspx) **[非常方便的地图](https://vaccinefinder.org/)** **上找到你最近的免疫地点的时候了。** 
 
-Watch
+
 
 就像去年一样，注射是主要的选择——AAP 和疾病控制和预防中心(CDC)都不建议使用鼻喷雾流感疫苗 FluMist，尽管它在那些讨厌针头的人(即基本上所有儿童)中很受欢迎。
 

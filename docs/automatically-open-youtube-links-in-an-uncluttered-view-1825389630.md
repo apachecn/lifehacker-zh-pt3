@@ -4,7 +4,7 @@
 
 如果你喜欢使用替代网站观看 YouTube 视频(像极简主义者，我们 [最近报道过](https://lifehacker.com/avoid-unexpected-youtube-bing-watching-sessions-with-tu-1825275041) ，或者*更多的*极简主义者 [Surprise.ly](http://surprise.ly/v/?RPS-Cq4uMFs) ，我们 [很久以前报道过](https://lifehacker.com/suprise-ly-shares-links-to-clutter-free-youtube-videos-1513284946) ，那么你可以设置一个 Chrome 扩展来在你每次点击 YouTube 链接时重定向你。
 
-Watch
+
 
 要将 YouTube 视频重定向到 Tube，安装 [重定向器](https://chrome.google.com/webstore/detail/redirector/ocgpenflpmgnfapjedencafcfakcekcd?hl=en) Chrome 扩展。从 Chrome 工具栏打开扩展，点击“创建新的重定向”，像这样填写:
 

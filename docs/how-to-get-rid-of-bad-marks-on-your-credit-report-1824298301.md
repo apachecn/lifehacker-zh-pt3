@@ -4,7 +4,7 @@
 
 根据学生贷款再融资公司 LendEU2017 年的一份 [分析，信用报告中的错误非常普遍，是消费者金融保护局网站上的头号投诉。尽管你可能认为它们很讨厌，但这些错误会给你的财务生活带来严重后果。](https://lendedu.com/blog/credit-reporting-complaints) 
 
-Watch
+
 
 一个例子:根据莱克星顿法律公司最近的一项研究，超过 70%的人被拒绝抵押贷款是因为信用差，而这些低分数往往是某人报告中的错误造成的。根据纽约美联储银行 的数据，2017 年第二季度，只有 9%的抵押贷款发放给了次级信用评分的借款人。换句话说，如果你报告中的错误拖累了你的分数，祝你好运获得抵押贷款批准。
 
@@ -38,11 +38,7 @@ Watch
 
 你也可以给你的债权人——例如，信用卡公司或房东——发一封信，告诉他们你对报告中的错误有争议。CFPB 对他们也有 [样信](https://www.consumerfinance.gov/ask-cfpb/how-do-i-dispute-an-error-on-my-credit-report-en-314/) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Get Rid of Bad Marks on Your Credit Report](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-get-companies-to-stop-gouging-me-for-money-i-d-5959956) [###### 我如何让公司停止向我索要我不欠的钱？](https://lifehacker.com/how-do-i-get-companies-to-stop-gouging-me-for-money-i-d-5959956) 
 
-亲爱的 Lifehacker，我的手机账单上有一笔虚假的费用，我打电话想把它删除，结果却收到了…
-
-[Read more](https://lifehacker.com/how-do-i-get-companies-to-stop-gouging-me-for-money-i-d-5959956)</aside>
 
 ### 联系联邦监管机构
 

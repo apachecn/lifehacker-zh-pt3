@@ -4,7 +4,7 @@
 
 我是年度回顾图表的忠实粉丝，比如 Spotify 的 [2017 Wrapped](https://2017wrapped.com/) ，甚至是设计师 Nicholas Felton 的 [个人年度报告](http://feltron.com/FAR14.html) 。这里有另一个好方法:用 iPhone 日历应用程序 [Pod](https://pod.io/) 的制造商提供的 工具来分析你的日历。
 
-Watch
+
 
 您将获得最繁忙的工作日和月份、典型会议规模和其他数据的图表。你还会得到一份详细的清单，上面列有你和谁在一起的时间最长——前提是你安排了一个共同的日历活动。
 

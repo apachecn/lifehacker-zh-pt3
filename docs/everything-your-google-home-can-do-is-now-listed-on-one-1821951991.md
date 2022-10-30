@@ -4,7 +4,7 @@
 
 如果你在假期买了一个谷歌主页，你可能会想，除了查看天气和播放音乐，它还有什么用途。 [谷歌的智能音箱](https://lifehacker.com/the-first-google-home-with-a-screen-already-offers-more-1821910986) 可能没有亚马逊的 Alexa 那么多 [第三方技能，但你仍然可以做很多事情。](https://www.cnet.com/news/google-home-is-smarter-than-the-amazon-echo-does-it-matter/) 
 
-Watch
+
 
 考虑到这一点，谷歌建立了一个新的页面，在这里你可以找到它的人工智能助手能够做到的一切。根据谷歌的说法，有超过 100 万件事情可以尝试，但是为了让事情变得简单，这个列表被分成了几个类别，比如“家庭控制”、“游戏&乐趣”和“生产力”主页还指出了新的和流行的技能，以及一个搜索栏，以防你仍然找不到你想要的东西。
 

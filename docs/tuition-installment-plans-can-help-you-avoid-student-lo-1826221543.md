@@ -4,7 +4,7 @@
 
 如果你的大学学费马上就要到期了，而你又不想陷入 [学生债务](https://lifehacker.com/tag/student-loan-debt) 的困境，那就向你学校的财务办公室咨询付款方案。
 
-Watch
+
 
 这些分期付款计划让你在一个学期或一个学年内付清账单，而不是一次性付清。根据 [《消费者报告》](https://www.consumerreports.org/paying-for-college/tuition-payment-plan-can-make-paying-bill-easier/) ，“几乎每所学校都提供这样的计划，几乎每个人都有资格使用这样的计划。”
 

@@ -4,7 +4,7 @@
 
 你的环境有不可思议的能力来塑造你的行为。如果你把你的环境设计成有利于健康习惯，那么你会发现自己甚至不用想就能改善你的饮食。
 
-Watch
+
 
 *本帖原载于*[](http://jamesclear.com/eat-healthy-without-thinking)**。**
 

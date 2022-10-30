@@ -4,7 +4,7 @@
 
 决定让一个应用程序免费，另一个五美元，还是让另一个按月订阅，需要考虑很多因素。我们大多数人都看不到这一点，但开发商在选择价格标签时会面临艰难的选择——这些选择可能会让他们变得富有，只是支付他们的账单，或者让他们一文不名。
 
-Watch
+
 
 好的软件需要大量的工作。当人们抱怨“贪婪的开发者”竟敢对他们自己开发的应用收取 0.99 美元时，毫无疑问，一些最好的软件是要花钱的，但是大量优秀的软件是免费下载的。为了了解应用程序定价疯狂的方法，我采访了 [布莱恩·穆勒](http://lifehacker.com/im-brian-mueller-and-this-is-the-story-behind-carrot-1454800997) ， [胡萝卜系列应用程序](http://www.meetcarrot.com/) ， [迈克尔·西蒙斯](http://lifehacker.com/behind-the-app-the-story-of-fantastical-1569811300) ，at [Flexibits](https://flexibits.com/) (以 [奇幻](https://flexibits.com/fantastical) 闻名)，以及来自 [扎布卡特](http://zabkat.com/) 的尼科斯
 

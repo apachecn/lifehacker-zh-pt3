@@ -4,7 +4,7 @@
 
 你可能在假期中有一些停工时间，无论你是从工作中休息几天( [你应该](http://gawker.com/reminder-take-your-vacation-days-idiots-1624370255) )，还是在为考试而学习后享受寒假( [你没有](https://lifehacker.com/improve-your-test-scores-with-the-hard-start-jump-to-e-1790599531) )。随着 2018 年的到来，你可以通过提前准备你的决心计划来开始新的一年。当然，决心有各种形式和大小，所以真正的问题是:你如何在你的决心上领先一步？
 
-Watch
+
 
 ### **规划你的下一步职业发展**
 

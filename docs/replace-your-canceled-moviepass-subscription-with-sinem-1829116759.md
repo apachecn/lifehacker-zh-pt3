@@ -4,7 +4,7 @@
 
 如果你一直在哀悼失去 MoviePass 的无限电影计划，现在你可以选择从其最大的竞争对手那里获得类似的交易。Sinemia 周一宣布，它将为 [提供一种新的“无限”机票选择](https://www.sinemia.com/new-plans/us/los-angeles) ，每月 29.99 美元。
 
-Watch
+
 
 该计划允许订户在美国、加拿大、澳大利亚和英国每天获得一张 2D 电影票。
 

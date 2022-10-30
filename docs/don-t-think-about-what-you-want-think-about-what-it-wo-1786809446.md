@@ -4,7 +4,7 @@
 
 最简单的个人理财建议之一就是不再想要更多的东西。这很简单，但却是真的——如果你有一个简单的方法，除了满足最基本需求的东西之外，基本上消除你获取任何新东西的欲望，个人理财就会变得非常容易。可悲的是，人类不是这样工作的。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/dont-think-about-what-you-want-think-about-what-it-would-take-to-get-it/) *上。*
 

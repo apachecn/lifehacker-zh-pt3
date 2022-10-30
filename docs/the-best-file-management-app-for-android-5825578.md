@@ -4,7 +4,7 @@
 
 文件管理器在 Android 上可能不多见，但 Solid Explorer 却脱颖而出。随着先进的功能，管理和浏览您的文件，无论是在您的手机和远程，它是我们最喜爱的新的文件管理器。
 
-Watch
+
 
 *更新:最近，我们之前的 pick ES 文件浏览器已经开始* [*在其免费版*](http://www.androidpolice.com/2016/05/10/es-file-explorer-updated-with-super-shady-speed-charging-adware/) *中添加一些黑幕广告软件。据报道，付费版本(*[*【2.99 美元*](https://play.google.com/store/apps/details?id=com.estrongs.android.pop.pro) *)仍然是安全的，但我们决定更新我们的首选以反映这一新的发展。*
 

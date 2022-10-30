@@ -8,7 +8,7 @@
 
 听上面的升级或者在所有通常提供播客的地方找到我们，包括 [苹果播客](https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2)[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/show/8-The-Upgrade-by-Lifehacker/)[Stitcher](http://www.stitcher.com/podcast/lifehacker-podcast)[NPR One](http://one.npr.org/i/522439906:522439908)。请订阅、评分、评论！
 
-Watch
+
 
 ### 我们在这一集回答的问题:
 

@@ -4,7 +4,7 @@
 
 每次吃饭都是在赌自己吃东西的能力和生存能力。老实说，我们可能都把这个责任看得太轻了。美国国家安全委员会报告称， [窒息是美国意外伤害死亡的第四大原因](https://www.nsc.org/home-safety/safety-topics/choking-suffocation) ，而 [意外伤害](https://www.nsc.org/in-the-newsroom/accidental-injury-becomes-3-cause-of-death-for-the-first-time-in-us-history-2) 死亡是总体死亡的第三大原因。我们可以把一个人送上月球，但不能相信我们会慢慢咀嚼而不死去。
 
-Watch
+
 
 谁知道每次你在厨房里吃剩下的牛排玉米片时赌注会这么高？前一分钟，你穿着睡衣独自站在水槽边，狼吞虎咽地吃着你藏起来的玉米片；然后下一件你知道的事情，一块冷牛排堵塞了你的呼吸道和继续生存的手段。我们都知道意识到我们可能无法呼吸，然后又想起我们没有穿可爱的内衣时的恐慌，这肯定不是我们希望我们的遗产如何结束。
 

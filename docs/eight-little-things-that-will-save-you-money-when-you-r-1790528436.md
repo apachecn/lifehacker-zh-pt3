@@ -4,7 +4,7 @@
 
 我有一个小笔记，我不断更新和保存(使用 [Evernote](http://www.evernote.com/) )，里面充满了我学到或想到的小技巧和策略，并希望在某个时候包含在帖子中。最终，我收集了一大堆。这里有八个购物的小策略，让你花更少的钱，买更少你不真正需要的东西。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/eight-little-things-to-always-remember-when-youre-shopping/) *上。*
 

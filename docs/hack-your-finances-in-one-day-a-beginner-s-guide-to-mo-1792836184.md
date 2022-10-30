@@ -4,7 +4,7 @@
 
 你知道，如果你想摆脱债务，去度假，或者有一天退休，控制你的钱是很重要的。问题是，很多人不知道从哪里开始，或者觉得没有时间。如果你只有一天时间，我们会帮你安排好的。
 
-Watch
+
 
 个人理财的很大一部分是行为性的，所以我们不会假装这个指南会让你在一天内完全掌握你的财务。任何努力实现财务安全的人都会告诉你:养成更好的习惯需要时间。然而，你可以在一天内取得很大的进步。如果你是个人理财新手，以下是你可以做的事情。
 
@@ -118,11 +118,7 @@ Annualcreditreport.com 是获得免费报告的最佳地点。您有权每年从
 
 然后还有 401(k)费用。许多 401(k)计划的维护成本很高，但你可以使用 [在线计算器](http://401kfee.com/) 来确定和比较随着时间的推移这些费用将花费你多少。获得匹配仍然是值得的，但如果你的 401(k)费用很高，你可能想在其他地方投资任何额外的东西。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Hack Your Finances in One Day: A Beginner’s Guide to Money Management](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-should-i-do-with-my-old-orphaned-401-k-s-1624399449) [###### 我该如何处理我的旧的、失去父母的 401(k)养老金？](https://lifehacker.com/what-should-i-do-with-my-old-orphaned-401-k-s-1624399449) 
 
-亲爱的 Lifehacker，我做过几份工作，它们都提供了 401(k)退休计划。…
-
-[Read more](https://lifehacker.com/what-should-i-do-with-my-old-orphaned-401-k-s-1624399449)</aside>
 
 ### 开立个人退休账户
 

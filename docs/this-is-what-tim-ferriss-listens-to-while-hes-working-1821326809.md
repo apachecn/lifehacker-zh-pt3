@@ -6,7 +6,7 @@
 
 > 早上我通常会听巴西音乐电台——通常是波沙·诺瓦桑巴。
 
-Watch
+
 
 [https://open.spotify.com/embed/track/6hwrxnBXln6pXeMJc6b6Im](https://open.spotify.com/embed/track/6hwrxnBXln6pXeMJc6b6Im)
 

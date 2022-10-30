@@ -4,7 +4,7 @@
 
 微软针对 Windows 10 的十月大更新来了。如果微软还没有把它推广到你的 Windows 机器上，你可以 [强制手动更新](https://blogs.windows.com/windowsexperience/2018/10/02/how-to-get-the-windows-10-october-2018-update/) ，只需点击你的开始按钮，键入单词“检查”，并选择“检查更新”选项。单击 Windows Update 下的灰色“检查更新”框，它应该会出现。
 
-Watch
+
 
 (你也可以通过调出 Windows 10 的系统信息，寻找你的操作系统的“版本”，来查看你是否已经有了 10 月份的更新。如果至少是“版本 10.0.17763 内部版本 17763”，那就很好。)
 

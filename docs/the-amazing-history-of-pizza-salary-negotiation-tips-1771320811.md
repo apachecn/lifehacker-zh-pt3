@@ -4,7 +4,7 @@
 
 披萨的惊人历史，RC 可乐的悲惨历史，协商薪水的最佳方式，制作更好的咖啡，以及本周版 Lifehacker Brain Buffet 的更多内容。
 
-Watch
+
 
 <small>*欢迎来到 Lifehacker 的*</small> [<small>*【周一大脑自助】*</small>](http://lifehacker.com/tag/monday-brain-buffet) <small>*，这是一个新的系列，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，将教给你一些新的东西，激励你，并有希望以正确的方式开始你的一周。让我们开始吧。*T15】</small>
 

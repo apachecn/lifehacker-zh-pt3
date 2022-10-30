@@ -4,7 +4,7 @@
 
 我忍住了把控制器扔到房间另一边的冲动，再次尝试去击败第一个该死的关卡 *Cuphead* 。我一直在尝试使用迄今为止最好的 PC 游戏控制器之一， [微软 Xbox One Elite](https://gizmodo.com/the-xbox-elite-controller-looks-great-so-we-took-a-cra-1738027420) 。但这并没有发生。然后我切换到雷蛇的可笑命名 [金刚狼终极版。Razer 控制器上的按钮似乎有相同的响应时间，但它们也有很好的咬合，按起来更舒服。我终于打败了关卡。](https://www.razerzone.com/gaming-controllers/razer-wolverine-ultimate-for-xbox-one)
 
-Watch
+
 
 控制器很重要，尤其是如果你正从选择有限的游戏机游戏转向 PC 游戏，而阻止你购买特定控制器的唯一因素就是钱。但是，虽然每个控制器都试图给你一个优势，有些人比其他人做得更好。有些感觉更舒服，有些允许你做更多的事情，有些只是看起来更酷。所以我花了几个星期玩了很多视频游戏，以找到你能买到的最好的控制器。
 

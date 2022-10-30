@@ -4,7 +4,7 @@
 
 每次我写关于如何寻求免费建议的或 [如何给出免费建议的](https://lifehacker.com/how-to-handle-a-request-to-pick-your-brain-1821650693) 时，我都会嫉妒那些被一个恶心的问题轰炸的人 [“我能向你请教一下吗？”因此，对于二月份，我要问 Lifehacker 的读者:你能向我请教一下吗？](https://lifehacker.com/stop-asking-people-if-you-can-pick-their-brains-1818561632) 
 
-Watch
+
 
 在接下来的四周里，你可以 [给我](mailto:nick.douglas@lifehacker.com?subject=Pick%20Your%20Brain) (主题:集思广益)发电子邮件，向我寻求专业建议、想法、批评或我参差不齐的专业技能的任何其他好处。如果你在纽约，你可以给我买一杯咖啡，或者我们可以各付各的午餐或啤酒费用。我会尽我所能帮助每个人，至少是一点点。
 

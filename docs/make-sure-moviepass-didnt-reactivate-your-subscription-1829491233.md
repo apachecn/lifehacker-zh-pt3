@@ -4,7 +4,7 @@
 
 如果您取消了 MoviePass 订阅，请检查您的电子邮件和垃圾邮件文件夹中是否有主题为“MoviePass 更新” 的电子邮件，因为 MoviePass 可能在未经您允许的情况下重新打开了您的订阅，您需要选择退出。
 
-Watch
+
 
 是的，MoviePass 再次取消了*，六周后。这一次，[Business Insider](https://www.businessinsider.com/moviepass-emails-former-subscribers-saying-they-are-enrolled-in-new-plan-unless-opt-out-2018-10)表示，MoviePass 向一些客户发送电子邮件，提醒他们每月 3 部电影的“新服务”,价格为 9.95 美元，并告诉他们，除非他们在 10 月 4 日之前选择退出，否则他们将自动注册这项服务。许多人在推特上发布了这封邮件的截图，抱怨这种卑鄙的举动。*
 

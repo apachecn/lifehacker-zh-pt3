@@ -4,7 +4,7 @@
 
 在线约会服务 OkCupid [最近对他们的平台](https://theblog.okcupid.com/an-open-letter-on-why-were-removing-usernames-addressed-to-the-worst-ones-we-ve-ever-seen-dd017c75d49a) 做了两个大的改变，其中一个涉及用户名。简而言之，你再也不能躲在类似于“甜心宝贝 37”或“StudddMuffin96”的 AIM 屏幕名称后面了没错，他们现在要实名。幸运的是，有一个简单的方法仍然保持你的匿名。
 
-Watch
+
 
 这项新政策让许多 OkCupid 用户相当恼火，而且理由相当充分。其他交友平台，如 Tinder 和 Bumble，要求你通过脸书使用真实姓名登录，但这也是很多人选择使用 OkCupid 的原因。他们希望能够在交出任何真实的个人信息之前，通过深入的个人资料和信息*了解更多关于潜在约会对象的信息。用户不希望他们对隐私问题的回答被所有人看到。现在，公平地说，OkCupid [并不是要求你给出你的全名](https://theblog.okcupid.com/an-open-letter-on-why-were-removing-usernames-addressed-to-the-worst-ones-we-ve-ever-seen-dd017c75d49a) :*
 

@@ -4,7 +4,7 @@
 
 由于令人困惑的捆绑、隐藏的收费、误导的承诺和模糊的条款，每个人都同意有线电视和互联网提供商绝对是最糟糕的。我试着比较我所在地区的互联网服务，结果却是一堆乱七八糟的粗略术语和追加销售。不应该是这样的。
 
-Watch
+
 
 ### **数据上限完全是任意收费农场**
 
@@ -44,11 +44,7 @@ Watch
 
 **这里唯一的防御就是阅读*绝对一切*。有线电视公司的网站被设计成迷宫，掩盖了各种各样的费用和加价。我花了一整天的时间来检查多个包裹的每个细节，因为这是我的工作，我仍然不知道我找到了每一笔费用。在绝对最坏的情况下，如果你不确定你将被指控什么，打电话问别人。如果你能()合法地录下与客服代表的对话，并让一个人告诉你确切的费用和频率，那就更好了。**
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">**[![Image for article titled The Worst Ways Cable Companies Confuse You Into Paying More](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/is-it-legal-to-record-phone-calls-5491190) [###### 对电话录音合法吗？](https://lifehacker.com/is-it-legal-to-record-phone-calls-5491190) 
 
-亲爱的生活黑客，我一次又一次地在电话中收到公司糟糕的客户服务，我想…
-
-[Read more](https://lifehacker.com/is-it-legal-to-record-phone-calls-5491190)**</aside>
 
 ### ****千兆部署公告被过分夸大了****
 

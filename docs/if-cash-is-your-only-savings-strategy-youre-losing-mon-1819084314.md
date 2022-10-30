@@ -4,7 +4,7 @@
 
 投资并不像看起来那么难(或有风险)，但它需要大量的信息，而且需要一些时间来学习，这让许多人对它望而却步。然而，如果你一直在推迟，并且你有大量的现金储蓄，考虑一下通货膨胀 的 [问题。](https://twocents.lifehacker.com/consider-inflation-if-you-re-still-scared-of-investing-1672032060)
 
-Watch
+
 
 根据贝莱德 的一项调查显示，58%的美国人以现金形式持有资产，而所有这些现金都容易受到通货膨胀的影响。而 [正如石英指出的](https://qz.com/index/1080714/cash-may-feel-safe-but-inflation-is-not-your-friend/) ，膨胀不是你的朋友。
 

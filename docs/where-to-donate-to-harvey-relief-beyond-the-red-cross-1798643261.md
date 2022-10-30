@@ -4,7 +4,7 @@
 
 红十字会可能是这个国家最知名的紧急救援组织——但是他们不一定是最好的[。对](https://www.washingtonpost.com/news/post-nation/wp/2017/08/28/people-are-urging-donations-for-harvey-relief-efforts-just-not-to-the-red-cross/?utm_term=.e7e204680ff0) [管理不善](http://www.slate.com/articles/business/metropolis/2017/08/don_t_give_money_to_the_red_cross_we_need_a_new_way.html) 的指责已经 [困扰着他们对国家和国际灾难的反应](https://twitter.com/ProPublica/status/902978775368990720) ，他们的知名度(以及简易的短信捐赠系统)可能会让当地和基层组织相形见绌。
 
-Watch
+
 
 当你决定如何支持救灾工作时，不仅要考虑你在哪里捐赠，还要考虑捐赠的内容。当然，供应是非常需要的，但即使一个组织有亚马逊的愿望清单，直接的金钱捐赠也可以让他们以更快的速度和更大的灵活性做出回应。参见 [这个*连线*片](https://www.wired.com/story/harvey-donations-amazon-wish-lists-cash/) 了解更多原因。(并且请不要向任何组织发送*未经请求的*捐赠物资。他们很可能无法使用它。)不要忘记，大多数非营利组织，即使他们组织了志愿者，也仍然依赖员工来运作——金钱捐赠有助于确保那些关键员工得到报酬。
 

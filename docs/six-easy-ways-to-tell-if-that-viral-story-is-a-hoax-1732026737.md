@@ -4,7 +4,7 @@
 
 保守邮报 的标题为 [“就这样开始了……在德国的难民中，ISIS 旗帜对抗警察”。“有了这张新泄露的照片，一切似乎都得到证实”。该图片据称显示一群叙利亚难民举着 ISIS 旗帜袭击德国警察。](http://conservativepost.com/and-so-it-beginsisis-flag-among-refugees-in-germany-fighting-the-police-pictures/)
 
-Watch
+
 
 对于那些拒绝接受难民进入欧洲的人来说，这个故事是天赐之物。这张照片在社交媒体上迅速传播，由极右翼团体推动，如和 [Pegida UK](http://www.independent.co.uk/news/uk/home-news/pegida-in-london-british-supporters-of-antiislamisation-group-rally-in-downing-street-10155887.html) 。在撰写本文时，该网页声称已被分享超过 30 万次。
 

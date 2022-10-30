@@ -4,7 +4,7 @@
 
 想去野外远足，寻找一些动物和自然的精选照片吗？读者扎卡里·埃斯尼分享了他的书包就是为了做到这一点。
 
-Watch
+
 
 这个包是一个 [国家地理](http://www.amazon.com/National-Geographic-NG-W2400-Accessories/dp/B009PK8SVY/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-wildlife-photography-bag-1752304063&asc_source=&ie=UTF8&keywords=National Geographic Walkabout&qid=1452541518&sr=8-1&tag=kinjalifehackerlink-20)漫步者斜挎包。这是里面的内容:
 

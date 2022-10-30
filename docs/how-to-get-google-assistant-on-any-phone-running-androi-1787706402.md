@@ -4,7 +4,7 @@
 
 谷歌助手 [新的智能、对话式虚拟助手](https://lifehacker.com/all-the-things-you-can-do-with-google-assistant-that-yo-1787444497) ，遗憾的是只对 [他们的新 Pixel 手机](http://lifehacker.com/everything-google-announced-at-its-made-by-google-eve-1787404179) 正式可用。然而，只要稍加调整，你就可以在任何运行 Android Marshmallow 或更高版本的手机上获得它，以及 Assistant 的所有强大的搜索和聊天功能。以下是方法。
 
-Watch
+
 
 谷歌助手，一旦你尝试了，是非常有用的。每天早上你都可以得到一份每日简报，告诉你所在地区的天气、上下班路上的交通状况以及你当天的日程安排。你也可以用手机进行复杂的对话。例如，当你问正在上映什么电影时，你可以通过询问放映时间、评论等等来跟进。你所有的 [旧的最喜欢的语音命令](http://lifehacker.com/everything-you-didnt-know-you-could-do-with-google-voi-512727229#_ga=1.33219710.1347662518.1465819317) 仍然存在，但整个体验更好。如果你喜欢调整你的手机，那就值得一试。
 

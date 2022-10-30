@@ -4,7 +4,7 @@
 
 你不会认为智能手机车载基座会引发强烈的意见，但我在这里告诉你，你错了。我一直在寻找一个汽车底座，既能装下我越来越大的手机，又不会显得太烦人。奥基磁性汽车支架完美地完成了这项任务。
 
-Watch
+
 
 [奥基磁力车坞](http://www.amazon.com/Aukey-Generation-Reinforced-Cradle-less-HD-C5/dp/B00WU3W43G/ref=sr_1_5?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-aukey-magnetic-car-mount-is-a-dead-simple-phone-mou-1750287542&asc_source=&ie=UTF8&keywords=aukey&qid=1450840709&sr=8-5&tag=kinjalifehackerlink-20)(7 美元)是一个看似简单的装置。基座本身是一个扁平的小圆圈，背面有四个坚硬的尖头。你可以把它滑到任何标准空调通风口的板条上。然后，在你的手机上，你可以在你的外壳里放置一块磁铁，或者 [如果你不使用外壳](http://lifehacker.com/do-you-use-a-case-on-your-phone-5891671) ，把磁铁直接粘在你手机的背面。只需将您的手机放在 pad 上，您的手机就会保持原位。作为补充说明:虽然磁铁对现代智能手机无害(这有多棒？)，一些手机使用磁铁来触发一些功能，如关闭外壳中的屏幕或 [激活汽车模式](https://www.reddit.com/r/MotoX/comments/20eqpg/weird_discovery_with_magnet_instant_driving_mode/) 。当您设置任何磁性底座时，请务必检查您箱子中磁铁的位置！
 

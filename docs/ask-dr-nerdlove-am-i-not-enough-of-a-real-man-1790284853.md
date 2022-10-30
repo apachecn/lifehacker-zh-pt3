@@ -4,7 +4,7 @@
 
 你好，所有你喜欢的东西。欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个可以帮助你争论你的巧克力豆和爱抚你的谷歌的约会专栏。
 
-Watch
+
 
 让我们开门见山吧。
 

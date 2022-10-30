@@ -4,7 +4,7 @@
 
 一个常见的节省食物开支的策略出现在许多节俭书籍和许多节俭网站上，那就是“用餐准备日”的想法，有时简称为“用餐准备日”，因为人们经常利用周日来做这件事。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/twelve-strategies-for-a-successful-meal-prep-day/) *上。*
 

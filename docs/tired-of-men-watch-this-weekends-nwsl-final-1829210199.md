@@ -4,7 +4,7 @@
 
 已经过了 [又一个](https://splinternews.com/wall-street-journal-wins-the-award-for-most-appalling-b-1829134326) [悲惨](https://splinternews.com/trump-has-very-very-very-many-things-to-say-about-bre-1829195674) [周](https://jezebel.com/theyre-here-1829060174) 对于存在于这个世界上的人来说，已经不是人了。如果你要躲起来过一个疯狂的周末，对着枕头尖叫，给国会议员打电话，我可以建议你享受一下由全国女子足球联盟提供的 90 分钟无拘无束的女性表演吗？你应得的。
 
-Watch
+
 
 女足是一个硬推销，这是一个耻辱，因为它的规则。人们认为他们讨厌足球的一切在女足比赛中基本上不存在:没有假摔，没有的停跳翻滚动作，没有催人泪下、足以吸引裁判的奥斯卡奖。更确切地说，与顶级男子联赛、Twitter、新闻、威望电视、白宫、大多数工作场所和普通公众生活不同，NWSL 游戏完全没有薪酬过高的成年男子为了达到自己的目的而大发脾气。什么概念！
 

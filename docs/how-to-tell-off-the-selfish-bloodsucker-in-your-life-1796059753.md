@@ -4,7 +4,7 @@
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 
-Watch
+
 
 这个星期，我们有一个人担心他的朋友正在压榨他，一个人需要和一个极端自私的“朋友”一劳永逸地断绝关系，还有一个人嫉妒他成功的同事。
 
@@ -30,11 +30,7 @@ Watch
 
 但是你现在觉得不舒服，你想把她推向另一个方向。好吧。当你出去玩的时候，像和你的男性朋友说话一样和她说话。你知道，像卡车、色情、电子游戏和综合格斗之类的东西(这就是男人们谈论的，对吗？)她曾经对你的神奇老二有过的任何吸引力都将一去不复返。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Tell Off the Selfish Bloodsucker in Your Life](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-get-along-with-your-ex-after-a-breakup-1671056421) [###### 分手后如何和前任相处](https://lifehacker.com/how-to-get-along-with-your-ex-after-a-breakup-1671056421) 
 
-学会与前任相处对共同的朋友、孩子或职业来说是必要的…
-
-[Read more](https://lifehacker.com/how-to-get-along-with-your-ex-after-a-breakup-1671056421)</aside>
 
 ### 这个人被一个非常自私的朋友榨干了
 
@@ -66,11 +62,7 @@ Watch
 
 如果你是那种神经质的人，不喜欢那种诚实，那就干掉他，Eggos。狠狠地揍那个吸血鬼。把他完全拒之门外，去和你真正的朋友在一起，他们关心你，不想看到你说闲话。你的生活中不需要那种负面影响。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Tell Off the Selfish Bloodsucker in Your Life](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-you-should-stop-caring-about-being-nice-and-just-be-1681433778) [###### 为什么你不应该在乎做好人，而是要诚实](https://lifehacker.com/why-you-should-stop-caring-about-being-nice-and-just-be-1681433778) 
 
-每个人都想被人喜欢和尊重，但是当你被自己绊倒而变得友善时，你…
-
-[Read more](https://lifehacker.com/why-you-should-stop-caring-about-being-nice-and-just-be-1681433778)</aside>
 
 ### 这家伙需要专注于他自己的工作
 

@@ -4,7 +4,7 @@
 
 你能相信离你的火鸡大餐只有一周了吗？不要惊慌——我们有一个很好的方法让你在比赛日测试你的勇气，这是一个简单可行的训练的一部分。
 
-Watch
+
 
 <small>*本帖是*</small> [<small>*火鸡小跑大赛*</small>](http://vitals.lifehacker.com/introducing-the-turkey-trot-throwdown-let-s-run-togeth-1787445111) <small>*的一部分，一系列迷你挑战点燃(或重燃)你对跑步的热爱。等到感恩节到来的时候，你已经准备好赛跑了——或者，如果你喜欢的话，在坐下来享受你的盛宴之前绕着街区慢跑一圈。你应得的。*T15】</small>
 

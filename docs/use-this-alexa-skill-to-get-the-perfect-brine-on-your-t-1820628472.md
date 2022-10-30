@@ -4,7 +4,7 @@
 
 如果你在这个感恩节被火鸡税缠住了，你吓坏了，亚马逊来帮你了。多亏了莫顿盐公司的一项新的 [Alexa 技能](https://lifehacker.com/the-first-alexa-skills-to-enable-on-your-new-amazon-ech-1796841634) ，乐意在网上卖给你一只火鸡的同一家公司也能教你如何准备它。
 
-Watch
+
 
 [莫顿盐水时间](https://www.amazon.com/gp/product/B077BR3Y9M?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-this-alexa-skill-to-get-the-perfect-brine-on-your-t-1820628472&asc_source=&tag=kinjalifehackerlink-20) 是第一个声控盐水助手，据卖盐的说(这一点我们并不是怀疑他们)。如果你对 [腌制](https://lifehacker.com/brine-your-thanksgiving-turkey-for-juicier-results-5400707) 不熟悉，这是在烹饪之前将火鸡浸泡在盐水(加上一些其他调料)中的过程，这样可以保留水分，从烤箱中取出后更多汁。这听起来可能不像是你需要人工智能助手来帮助你的事情，但我们在这里。
 

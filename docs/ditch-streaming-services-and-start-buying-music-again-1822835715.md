@@ -4,7 +4,7 @@
 
 还记得忠诚吗？Spotify 没有。该公司此前宣布对其 Spotify Connect 平台进行更新的不幸终止了流媒体服务在各种表面上宣传为 Spotify 连接设备的扬声器上的功能。其中一些(来自 Onkyo 和 Denon 等公司)非常昂贵的 Spotify 连接设备。这对你来说意味着什么？好吧，如果你有一个扬声器没有预定接收任何更新修复断开连接， [根据 the Verge](https://www.theverge.com/circuitbreaker/2018/2/6/16979102/spotify-ends-support-speakers-receivers-pioneer-denon) ，你将不得不找到一种新的方式来获得音频。与其四处寻找最终会让你失望的新流媒体服务，为什么不跳过中间人，开始使用你实际拥有的音乐库呢？像不间断的音乐，增加的便携性，延长你实际使用的硬件的寿命这样的优势使它值得花费一些专辑。
 
-Watch
+
 
 ### **你的音乐库不在乎授权**
 

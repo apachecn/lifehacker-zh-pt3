@@ -4,7 +4,7 @@
 
 喝酒很好，但喝便宜的更好，这就是为什么当我的编辑提醒我有 [加州根](https://corporate.target.com/article/2017/08/california-roots-wine) 的时候，我非常兴奋，这是一种只卖 5 美元一瓶的独家葡萄酒。
 
-Watch
+
 
 虽然五美元不是一个很大的数目，但它仍然是我不想让你浪费的五美元。有了这些钱，你可以买一个早餐三明治，几块糖果，或者一张 [照片，纪念一个美好的夜晚](https://www.instagram.com/p/BXdfs1ZA35Q/?hl=en&taken-by=clairelizlower) ，比如我和 [帕特里克](https://kinja.com/patrickallan) 和 [帕特里克](https://kinja.com/patbits) 当 [我们都在纽约](http://skillet.lifehacker.com/3-ingredient-happy-hour-last-minute-punch-1797518067#_ga=2.243070466.1498726717.1504461867-949419976.1446553382) 的时候。
 

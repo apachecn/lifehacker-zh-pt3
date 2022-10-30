@@ -4,7 +4,7 @@
 
 成为一个善于讲故事的人可以提高你在工作中的表达能力，提升你的社交技能，让你总体上更讨人喜欢。但这不是每个人天生就有的能力。如果你不确定如何讲述吸引观众的故事，这些简单的注意事项会给你一个好的开始。
 
-Watch
+
 
 最近，纽约市漫画 [杰夫·西蒙](http://www.jeffsimmermon.com/) 分享了一些他在成为专业单口喜剧演员和讲故事者的过程中学会的讲述更好故事的 [一般经验法则。他甚至在课堂上教授这些技巧，它们似乎对人们很有帮助。以下是一些亮点:](https://medium.com/@jeff.simmermon/this-is-a-boring-shark-attack-8-rules-for-fascinating-storytelling-3b9d2bab6dca)
 

@@ -4,7 +4,7 @@
 
 茶和咖啡是世界上最受欢迎的两种非水饮料，它们含有大量社会上最常用的药物:咖啡因，这并非巧合。在美国，绝大多数消费者更喜欢早茶；最近的一项皮尤研究显示，超过四分之三的被调查者选择喝咖啡而不是茶。其中，绝大多数人从不点无咖啡因咖啡。尽管如此，这并没有阻止科学完善脱咖啡因的方法，开发一个现代化学奇迹的过程。
 
-Watch
+
 
 脱咖啡因可以追溯到 1903 年，当时一位德国咖啡商人 Ludwig Roselius 开始尝试去除咖啡因的方法。至于为什么罗塞留斯会受到启发，去搅乱可以说是他产品的主要卖点， [传说中的](https://books.google.com/books?id=DNckOv-D5joC&pg=PA163&lpg=PA163&dq=ludwig+roselius+father+poisoned&source=bl&ots=hlyNr2d8_F&sig=Nj1quFpFJ59vstE7kO0zn94MrjE&hl=en&sa=X&ved=0ahUKEwiCmaSQ7JHPAhUJ8YMKHbzADWkQ6AEIHDAA#v=onepage&q=ludwig%20roselius%20father%20poisoned&f=false) 是出于个人恩怨。他认为过多的咖啡因导致了他父亲的早逝，他的父亲是一名专业的咖啡品尝师，他试图对这种致命的化学物质进行报复。众所周知的“罗赛利厄斯过程”包括在盐水溶液中蒸咖啡豆，然后用苯提取兴奋剂。
 

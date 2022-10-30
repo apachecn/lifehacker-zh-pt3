@@ -4,7 +4,7 @@
 
 捷蓝航空公司从今天开始销售一款桌面游戏，并附赠一份丰厚的奖品:一张免费的捷蓝航空往返机票。限量版的游戏，叫做打包！显然， [于美国东部时间下午 12 点开始在亚马逊](https://www.amazon.com/dp/B077XNXYXW?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-can-get-a-roundtrip-jetblue-ticket-by-buying-a-20-1821215387&asc_source=&tag=kinjalifehackerlink-20) 短暂发售，售价 19.99 美元。
 
-Watch
+
 
 只有 [200 个游戏可用](https://twitter.com/JetBlue/status/940264190845038592) ，它们似乎在几秒钟内就消失了。亚马逊页面现在显示“我们都卖完了！我们将于 12 月 18 日美国东部时间下午 3 点重新进货
 

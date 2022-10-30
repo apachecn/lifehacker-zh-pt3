@@ -4,7 +4,7 @@
 
 深呼吸...等等...呼出...现在在再次吸气前等待一秒钟。书签 [QuietKit 的盒子呼吸](http://quietkit.com/box-breathing/) 后续动画，帮助你在任何需要的时候做到这一点。
 
-Watch
+
 
 这个技巧，在过程的每一步暂停四秒，是海军海豹突击队队员用来平静他们神经的战斗战术呼吸的核心，但它也是日常生活中 [放松的便捷方式](https://lifehacker.com/use-the-combat-breathing-technique-to-help-control-nerv-1730993811) 。
 

@@ -4,7 +4,7 @@
 
 又来了。Radware 的威胁研究小组 [最近宣布](https://blog.radware.com/security/2018/04/stresspaint-malware-campaign-targeting-facebook-credentials/) 超过 40，000 名脸书用户被骗下载了一个“缓解压力绘画”应用程序，通过一封狡猾的钓鱼邮件，当他们在应用程序中假装绘画时，他们的登录凭据和浏览器 cookies 被盗。更糟糕的是，这种攻击足够聪明，可以避免被典型的反病毒应用程序标记出来。
 
-Watch
+
 
 那么，在这些情况下，如何保证数据的安全呢？让我们回顾一下:
 

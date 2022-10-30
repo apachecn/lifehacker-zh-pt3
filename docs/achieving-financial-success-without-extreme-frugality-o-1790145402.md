@@ -4,7 +4,7 @@
 
 在媒体上不难找到看似普通的人获得巨大经济成功的故事。你听说一个看似普通的男人或女人在看似普通的职业道路上工作，不知何故他们在银行里有了一百万美元。他们是怎么做到的？
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/achieving-financial-success-without-extreme-frugality-or-a-huge-income/) *上。*
 

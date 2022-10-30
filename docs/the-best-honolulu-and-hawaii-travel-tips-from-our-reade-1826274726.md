@@ -4,7 +4,7 @@
 
 大家好！(“Aloha，Lifehacker！”)本周，我们得到了去檀香山和夏威夷其他地方旅行的绝佳建议。去看看这个评论帖 中“员工”标签下的所有最佳提示 [，或者只是浏览下面的亮点。](https://lifehacker.com/tell-us-your-honolulu-travel-tips-1826149142) 
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

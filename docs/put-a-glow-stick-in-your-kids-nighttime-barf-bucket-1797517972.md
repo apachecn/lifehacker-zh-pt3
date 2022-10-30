@@ -4,7 +4,7 @@
 
 有个生病的孩子很难。有一个呕吐的生病的孩子是困难和混乱的。有一个生病的孩子在黑暗中呕吐是很难的，肮脏的，可怕的。
 
-Watch
+
 
 当灯熄灭时，为了增加可怜的哈珀成功瞄准水桶的机会，她有 1.8 秒的时间找到它，在里面放一根荧光棒。 [Reddit 用户 canthelphelpping](https://www.reddit.com/r/LifeProTips/comments/36ycgr/lpt_if_your_kids_are_sick_and_throwing_up_and_it/?st=j5wqbybi&sh=107af836#bottom-comments)分享了他的三个孩子同时生病的故事。
 

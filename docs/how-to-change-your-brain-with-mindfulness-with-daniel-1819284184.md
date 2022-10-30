@@ -4,7 +4,7 @@
 
 正念是拥有一个瞬间。一个流行的时刻，具体来说:标签[# mindfullnessinamerica](https://twitter.com/search?q=%23mindfulnessinamerica&src=tyah)目前正在 Twitter 上流行，这要归功于这些词被输入时美国正念会议正在进行。但即使在朱厄尔和安德森·库珀 [联手](http://mindfulnessinamericasummit.com/) 之前，冥想(尤其是正念冥想)已经变得越来越受欢迎，这要归功于诸如 Headspace 和 studies 这样的应用程序，它们宣扬正念对身心的持久影响。但是这些 app 真的和认真的冥想训练一样有效吗？这些研究的发现在现实中有依据吗？
 
-Watch
+
 
 《改变的特质:科学揭示冥想如何改变你的思想、大脑和身体 》一书的合著者丹尼尔·戈尔曼将和我们一起讨论这些问题。丹是一名心理学家和科学记者，因其众多关于情商的书籍而闻名，包括畅销书 [*情商*](https://www.amazon.com/Emotional-Intelligence-Matter-More-Than/dp/055338371X/ref=asap_bc?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-change-your-brain-with-mindfulness-with-daniel-1819284184&asc_source=&ie=UTF8&tag=kinjalifehackerlink-20) 。在《改变的特质》一书中，他和他的合著者理查德·戴维森(Richard Davidson)仔细研究了已经发表的数千项关于正念的研究，确定了我们应该注意的数据，以及我们应该忽视的炒作。他们还揭示了戴维森自己的实验室的最新结果:数据表明思维训练方法的未来应该是什么样的。
 

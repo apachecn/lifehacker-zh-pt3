@@ -4,7 +4,7 @@
 
 晨跑可能会很艰难，但是通过团队合作、友情和对死亡的欢快歌唱来度过它是有帮助的。幸运的是，所有你喜欢的流媒体服务上都有军事跑步节奏。
 
-Watch
+
 
 节奏是呼唤和回应的圣歌，对于跑步来说，每分钟大约 180 步。(也有行进节奏，大约每分钟 110 拍，但这些不是我们在这里想要的。)在 Spotify、iTunes 或您选择的音乐来源中搜索专辑系列 [【以节奏跑步】](https://open.spotify.com/album/31twElbOpbA5iWXPTLRZ5c?si=97l38lElRtW95SwHcg1OvA) 或 [【以节奏跑步】](https://itunes.apple.com/us/album/workout-to-the-running-cadences-u-s-military/4960526) 。抑扬顿挫听起来像这样:
 

@@ -4,7 +4,7 @@
 
 贤明的接待员和休息室的哲学家一直教导我们，每一天都有它自己的情感。你的一周从周一到周三的驼峰日进展到感谢上帝今天是周五，循环到周日忧郁，也被称为周日恐怖或周日悲伤。你熬过了那个扫兴的周末，因为你知道每个人都在处理它。只是有些人没有。
 
-Watch
+
 
 周日忧郁是一种文化现象；像[BuzzFeed](https://www.buzzfeed.com/brittneygibson/sunday-blues)[The Muse](https://www.themuse.com/advice/when-your-sunday-scaries-are-the-sign-of-a-much-bigger-problem)[Real Simple](https://www.realsimple.com/health/mind-mood/emotional-health/why-you-feel-sad-on-sunday)， [HuffPost](http://www.huffingtonpost.com/2013/10/13/sunday-night-blues_n_4086390.html) ， [《纽约时报》](http://www.nytimes.com/1991/09/08/us/it-s-sunday-afternoon-and-here-come-the-blahs.html?pagewanted=all) ，甚至 [Lifehacker](https://lifehacker.com/how-to-beat-the-sunday-night-blues-and-get-more-out-of-1693755357) 都有关于如何对抗它们的文章。我向临床心理学家、YouTube 上心理节目 的主持人阿里·马特图博士询问了这一现象背后的科学。事实证明，并没有太多。
 

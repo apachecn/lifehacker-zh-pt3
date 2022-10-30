@@ -4,7 +4,7 @@
 
 你的梦想工作刚刚发布，你非常兴奋。只有一个问题:你实际上没有相关的工作经验。无论你是转行者还是没有实习经历的应届毕业生，你能在简历上写些什么让你看起来尽可能合格呢？
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/what-to-put-on-your-resume-when-you-have-no-relevant-work-experience) *。*
 
@@ -16,11 +16,7 @@ Watch
 
 别告诉我你没有。你认为你能做这份工作一定有原因。你可能从以前不相关的经历中获得了可转移的能力，或者你在学校做学术项目时发展了技能。无论如何，如果你是一个职业改变者，试着在简历的开头用概括你的所有技能。应届毕业生们，把你的 [技能部分](https://www.themuse.com/advice/the-resume-section-that-matters-more-than-youd-think) 从简历底部弹出到你所受教育的正下方。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What to Put on Your Resume When You Have No Relevant Work Experience](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-get-a-job-when-i-have-no-relevant-experience-5720706) [###### 我没有相关经验怎么找工作？](https://lifehacker.com/how-do-i-get-a-job-when-i-have-no-relevant-experience-5720706) 
 
-亲爱的生活黑客，我在我想工作的领域没有相关的经验，并且我有一个
-
-[Read more](https://lifehacker.com/how-do-i-get-a-job-when-i-have-no-relevant-experience-5720706)</aside>
 
 ### **相关方及学术项目**
 

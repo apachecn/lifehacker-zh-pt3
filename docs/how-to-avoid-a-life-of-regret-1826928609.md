@@ -4,7 +4,7 @@
 
 当你的生命结束时，你最后悔的事情是什么？没有履行你的职责和义务？还是追随梦想的失败？康奈尔大学的新研究表明，我们最大的遗憾与我们生活中的责任无关。
 
-Watch
+
 
 心理学家汤姆·吉洛维奇(Tom Gilovich)《未选择的理想之路》(The Ideal Road Not taked)[的主要作者在期刊*情感*](http://psycnet.apa.org/doiLanding?doi=10.1037%2Femo0000326) 上发表文章称，我们最大的遗憾是没能实现我们的“理想自我”基本上，我们不会因为我们犯的错误或我们应该做的事情而烦恼，而是因为我们从未成为我们真正想成为的人而烦恼。 [基洛维奇解释道](http://news.cornell.edu/stories/2018/05/woulda-coulda-shoulda-haunting-regret-failing-our-ideal-selves) :
 

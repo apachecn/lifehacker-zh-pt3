@@ -4,7 +4,7 @@
 
 这一周都是关于微软的。他们的年度开发者大会带来了对今年晚些时候 Windows 和其他产品的一瞥，而在农场，我们一直在重温他们熟悉和复杂的办公套件。让我们来回顾一下本周的热门帖子。
 
-Watch
+
 
 ## [微软今天在 Build 2016](http://lifehacker.com/all-the-important-things-microsoft-announced-today-at-b-1768009748) 上宣布的所有重要事情
 

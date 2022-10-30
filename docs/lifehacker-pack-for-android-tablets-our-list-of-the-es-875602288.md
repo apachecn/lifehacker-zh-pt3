@@ -4,7 +4,7 @@
 
 今年，当我们得知 Android 平板电脑的应用程序 [也将很快进入 chrome book](http://lifehacker.com/android-apps-for-chrome-os-are-here-and-theyre-the-fut-1782279369)时，我们感到一阵兴奋。在上周的 [第七届年度 Android pack](https://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535) 的后续报道中，我们盘点了在大屏幕上表现最好的应用。
 
-Watch
+
 
 ***life hacker Pack**是我们最喜欢的平台上我们最喜欢的基本应用程序的年度快照。对于我们不断更新的所有最佳应用目录，请务必将我们的* [*安卓应用目录*](http://lifehacker.com/the-lifehacker-app-directory-android-5825401) *加入书签。*
 

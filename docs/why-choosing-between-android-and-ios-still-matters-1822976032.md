@@ -4,7 +4,7 @@
 
 点燃一部 [iPhone X](https://gizmodo.com/i-hate-how-much-i-love-the-iphone-x-1820086867) 和一部 [Galaxy Note 8](https://gizmodo.com/samsung-note-8-the-return-of-the-original-jumbo-phone-1798321067) 你可能不会认为在 Android 和 iOS 之间有太多选择。他们提供相同的应用程序，在相同的网格中，有相似的通知和快速设置方法，在游戏的这个阶段，你可能会对你选择的移动操作系统感到满意，并坚持下去。真的有理由转行吗？嗯，是的——还是有一些！
 
-Watch
+
 
 多年来，Android 和 iOS 可能互相借鉴了足够多的功能，使得表面上的差异不再那么大(iOS 现在甚至有了小工具)，但再深入一点，你就会发现苹果的移动平台与谷歌的移动平台有三个主要不同之处。这是你需要了解的，也是你选择智能手机操作系统仍然重要的原因。
 

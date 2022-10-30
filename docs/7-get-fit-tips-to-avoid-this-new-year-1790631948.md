@@ -4,7 +4,7 @@
 
 我知道你希望今年身体健康，因为这是最流行的新年决心。很多人也想帮助你，从饮食建议到锻炼建议。他们会告诉你去做一些 [生活方式的改变](http://www.health.com/health/gallery/0,,20766435,00.html) ，去下载 [一个新的应用](http://www.chicagotribune.com/lifestyles/health/sc-cons-0105-fitness-aps-20170103-story.html) ，甚至去买一个 [可穿戴的](http://mashable.com/2017/01/01/best-fitness-tech-for-new-years-resolutions/#AC_3DqDmtOqL) 健身追踪器(顺便说一句，那些 [大概不能用](http://gizmodo.com/that-fitness-tracker-might-actually-make-losing-weight-1786881845#_ga=1.267998222.1471213417.1454946308) )。但是随着大量建议的出现，必然会有不好的建议——那些植根于确认偏差、潮流和除科学证据之外的几乎任何东西的建议。
 
-Watch
+
 
 如果*真的*想要保持身材，而不是因为你的朋友告诉你而在一种新时尚上花些钱，美国国家卫生研究院 [提示表](https://www.nhlbi.nih.gov/health/health-topics/topics/obe/causes) 建议开始一种新的健身常规，更好地监控你的食物摄入量，并与受过训练的医疗专业人士谈论可能导致你健康不佳的原有疾病。但是要避免下面列出的健康疗法。在最好的情况下，他们中的大多数人会有安慰剂效应的额外好处。在最坏的情况下，一些可能会造成伤害。
 

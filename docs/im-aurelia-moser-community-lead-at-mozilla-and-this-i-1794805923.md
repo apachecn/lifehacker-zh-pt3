@@ -4,7 +4,7 @@
 
 Aurelia Moser 是一名开发人员、教师、作者，同时也是一名制图师。她在 [Mozilla 科学实验室](https://science.mozilla.org/) 与研究人员合作开源项目，同时也是 [女孩开发 It](https://www.girldevelopit.com/chapters/new-york) 的导师。
 
-Watch
+
 
 Mozilla 科学实验室是一个由程序员和科学家组成的社区，他们一起工作，分享他们的数据，并本着与 Mozilla 相同的开源精神进行合作。除了她在 [SVA-DSI](http://dsi.sva.edu/) 和 [帕森斯](http://www.newschool.edu/lang/journalism-design/) 的教学之外，奥雷利亚是那些似乎同时有十份工作，但不知何故通过颜色编码、文本编辑器和 IRC 系统保持组织的人之一。她是这样工作的。
 

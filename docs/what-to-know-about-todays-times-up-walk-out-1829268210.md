@@ -4,7 +4,7 @@
 
 鉴于对最高法院提名人布雷特·卡瓦诺(Brett Kavanaugh)的性行为不端指控，反对性骚扰的时代运动呼吁人们穿黑色衣服，并在今天举行罢工。
 
-Watch
+
 
 该组织是一个为在工作场所遭受性骚扰的妇女设立的法律保护基金，呼吁全国罢工，以声援分别在高中和大学期间被卡瓦诺指控性虐待的 [克里斯蒂娜·布拉西·福特](https://www.npr.org/2018/09/23/650916906/kavanaugh-accuser-christine-blasey-ford-to-testify-thursday) 和 [黛博拉·拉米雷斯](https://www.newyorker.com/news/news-desk/senate-democrats-investigate-a-new-allegation-of-sexual-misconduct-from-the-supreme-court-nominee-brett-kavanaughs-college-years-deborah-ramirez) 。卡瓦诺否认了这两项指控，白宫继续支持他。
 

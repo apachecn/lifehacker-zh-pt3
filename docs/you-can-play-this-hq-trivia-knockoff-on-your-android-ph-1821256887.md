@@ -4,7 +4,7 @@
 
 Android:在短短的几个月内，HQ Trivia 已经从一个很酷的新应用发展成为一个成熟的现象，每天吸引成千上万的玩家多次通过回答现场琐事问题来赢得一些现金。尽管取得了所有这些成功，你仍然不能没有 iOS 设备玩游戏，但谢天谢地，对于所有的 [安卓](https://lifehacker.com/save-your-battery-and-sanity-by-modifying-your-android-1820980053) 粉丝来说，已经有了一个替代选择——而且相当不错。
 
-Watch
+
 
 昨天下载了 [The Q](https://twitter.com/theqtrivia) (问题的简称)，一个和 HQ 琐事完全一样前提的 [Android](https://play.google.com/store/apps/details?id=live.trivia.theq&hl=en) 和 [iOS](https://itunes.apple.com/us/app/the-q-live-trivia-game-show/id1300622049?mt=8) 的免费 app。主持人实时问一系列选择题，获胜者分享奖金。它不像 HQ 那么完美，主持人也没有那么有经验，但是在某些方面 Q 实际上可能更好。
 

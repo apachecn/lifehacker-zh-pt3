@@ -4,7 +4,7 @@
 
 当你冲动地花钱时，它不一定是在奢侈品上。我们买一些相当无聊的东西: [比如家居清洁用品](https://www.thewildwong.com/impulsive-spending/) 。 [研究显示](https://academic.oup.com/jcr/article-abstract/43/6/1031/2687775/Control-Deprivation-Motivates-Acquisition-of) 我们喜欢购买实用、有用的东西，这使得冲动消费更加危险。
 
-Watch
+
 
 当你买无聊的东西时，你可能不会想太多。没什么特别的感觉，所以你把它加入你的亚马逊购物车，继续你的一天。当谈到我们的消费时，我们大多数人都可以受益于更多的意识，而消费规则可以帮助我们做到这一点。以下是我最喜欢的五个。
 

@@ -4,7 +4,7 @@
 
 今天的父母压力很大。他们失去了老朋友。 他们怀念自己的老爱好。他们对性 [太累了](http://www.parenting.com/blogs/show-and-tell/sex-and-marriage) 。他们 [感觉被判断](https://www.nytimes.com/2017/08/07/well/family/most-mothers-feel-judged-with-families-often-the-worst-critics.html?mtrref=www.google.com&gwh=8C1C790BDD905C0977B87B0291783B80&gwt=pay) 。几年前， [一项研究](https://www.cnn.com/2015/08/12/health/stressed-parents-second-child-irpt/index.html) 报告称，有了第一个孩子后，幸福感的下降幅度比经历失业、离婚或伴侣去世时更大。是的，*失业，* *离婚*或者*伴侣死亡*。这场斗争中有很多因素——经济、社交媒体、育儿村的解体——但最重要的一个因素是:我们非常关心满足孩子的愿望。
 
-Watch
+
 
 在 Reddit 育儿社区 的 [讨论中，一位爸爸坦承，如果时光倒流，他就不会有他的两个孩子了。他说，当然，他“会为他们挡子弹”，并发誓“尽一切努力确保他们有一个美好的生活”，但他认为他们的存在“是以牺牲我以前生活中喜欢的一切、我的所有兴趣和我对未来的所有希望为代价的。”他的结论是:](https://www.reddit.com/r/Parenting/comments/7tsdwm/i_need_to_confess_if_i_had_my_time_over_i_wouldnt/)
 

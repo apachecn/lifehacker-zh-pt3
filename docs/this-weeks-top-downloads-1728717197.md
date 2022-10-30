@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [驾驶模式在你驾驶](http://lifehacker.com/drivemode-uses-gestures-and-your-voice-to-control-your-1726509873) 时使用手势和你的声音来控制你的手机
 

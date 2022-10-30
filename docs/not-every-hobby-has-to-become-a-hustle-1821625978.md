@@ -4,7 +4,7 @@
 
 我喜欢侧推。我的爱好——博客、播客、制作喜剧视频，甚至推特——都成了我的工作。我甚至促成了一本名为 [*的书《喧嚣的经济:将你的创造力转化为职业*](https://www.amazon.com/Hustle-Economy-Transforming-Creativity-Career/dp/0762460199?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/not-every-hobby-has-to-become-a-hustle-1821625978&asc_source=&tag=kinjalifehackerlink-20) 》。所以相信我告诉你:你的爱好也是允许完全无用的。
 
-Watch
+
 
 对于一些爱好来说，这是显而易见的。这些年来，我的父亲参加过遥控车比赛，参加过慈善自行车巡回赛，还建造过帆船。他从来不需要假装这些只是打发时间的一种有趣和满足的方式。他从来不需要把它们变成骗局。
 

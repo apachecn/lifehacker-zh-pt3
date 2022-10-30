@@ -4,7 +4,7 @@
 
 Gmail 是我生活中必不可少的东西之一，但这也让我的生活变得更加烦人。几年前，我放弃了 [收件箱零](https://lifehacker.com/how-i-went-from-1-000-emails-to-inbox-zero-and-stayed-5984417) (此时我对收件箱 1000 封感到满意)，每天我都会收到几十封无用的垃圾邮件，这让我更难找到任何不到一周的重要邮件。
 
-Watch
+
 
 如果你像我一样，但你想更好地管理你的 Gmail 账户，有一种方法可以做到这一点，而不必承担彻底清理收件箱的艰巨任务。相反，你可以使用一些聪明的 Gmail 搜索技巧(由 [科普](https://www.popsci.com/advanced-gmail-searches) 提供)来浏览垃圾邮件，甚至可能清理一些空闲空间。
 

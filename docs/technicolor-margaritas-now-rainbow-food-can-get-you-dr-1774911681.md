@@ -4,7 +4,7 @@
 
 因为这样或那样的原因，彩虹色的食物正在成为一种趋势。就在我们的 [拿铁](http://mentalfloss.com/article/78780/rainbow-lattes-are-latest-thing-coffee-art) 里。就在我们的 [百吉饼](http://www.thebagelstoreonline.com/) 里。甚至我们的 [披萨](http://www.neatorama.com/2016/04/19/rainbow-pizza/) 也不安全。我甚至做了一些 [研究](http://gizmodo.com/why-are-we-turning-our-favorite-foods-into-rainbow-colo-1772070100#_ga=1.114092167.1204971313.1461002213) 为什么我们一直吃这些东西(颜色可能会欺骗我们的大脑去品尝不存在的味道)。现在你可以一边系上一个一边赶潮流，我们有一位专家向我们展示如何在五月五日节及时完成。
 
-Watch
+
 
 欢迎来到 Gizmodo 的欢乐时光。书呆子滥用药物。
 

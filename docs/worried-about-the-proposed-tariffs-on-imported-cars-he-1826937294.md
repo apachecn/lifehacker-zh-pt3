@@ -4,7 +4,7 @@
 
 你可能听说过唐纳德·川普总统的 [提议对所有进口到美国的汽车征收 25%的关税](https://jalopnik.com/trumps-auto-tariffs-will-mean-higher-car-prices-and-cou-1826759174) 那是*所有的*进口汽车。但你知道特朗普的商务部正在接受对该提案的评论吗？嗯，的确如此，你必须在 6 月 22 日之前对此发表意见。
 
-Watch
+
 
 如果你需要快速复习一下，25%关税的想法出现在上个月底，当时特朗普下令调查向美国进口汽车是否会威胁国家安全。( [认真。](https://www.bloomberg.com/news/articles/2018-05-24/chavez-like-how-auto-and-trade-experts-reacted-to-car-crackdown) )
 

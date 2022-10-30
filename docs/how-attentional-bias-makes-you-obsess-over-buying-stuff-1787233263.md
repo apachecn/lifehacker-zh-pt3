@@ -4,7 +4,7 @@
 
 每隔几天，我的注意力就会被一些新的东西抓住(或者，有时，一些我已经忘记的旧东西)。可能是电影吧。可能是桌游吧。也许是个新玩意。也许是一本书。不管那是什么，它吸引了我的注意力。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/attentional-bias-why-you-talk-yourself-into-buying-the-thing-youre-obsessing-over-in-your-head-and-how-to-stop-it/) *上。*
 

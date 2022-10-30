@@ -4,7 +4,7 @@
 
 教育部正在与各州 就他们更严格监管学生贷款服务公司的努力进行斗争，消费者权益倡导者称这可能会增加管理不善和欺骗性贷款行为的机会。
 
-Watch
+
 
 在贝琪·德沃斯的领导下，教育部已经采取了一系列措施，放松对学生贷款服务公司的监管，这些公司负责处理由教育部监管的联邦贷款账单。据《华盛顿邮报》(Washington Post)报道，包括康涅狄格州、【加利福尼亚州】和伊利诺伊州 在内的几个州[](https://www.marketwatch.com/story/states-to-devos-well-keep-cracking-down-on-student-loan-companies-2018-03-02#false)[最近已经通过或试图通过自己的立法，以更密切地监控这些公司，包括制定](https://www.washingtonpost.com/news/grade-point/wp/2018/03/09/education-dept-tells-student-loan-companies-to-ignore-state-authority/?utm_term=.014f7b6a5c4e) 一项“借款人权利法案，其中包含及时付款处理、错误纠正和沟通的最低标准”。教育部认为各州缺乏管理它们的权力。
 

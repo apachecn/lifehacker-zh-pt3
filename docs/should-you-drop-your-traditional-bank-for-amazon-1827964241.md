@@ -4,7 +4,7 @@
 
 据《T4 华尔街日报》3 月份报道，亚马逊预计将开始为没有银行账户的消费者提供类似于支票账户的产品 。其他科技公司，如投资平台 [Stash](https://www.stashbanking.com/) 和学生贷款再贷款 [SoFi](https://www.sofi.com/money-waitlist/) ，也试图进入支票账户游戏。
 
-Watch
+
 
 那么，你应该放弃传统银行，转而选择科技吗？
 

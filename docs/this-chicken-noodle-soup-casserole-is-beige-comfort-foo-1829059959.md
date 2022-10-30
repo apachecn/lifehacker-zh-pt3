@@ -4,7 +4,7 @@
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅菜。今天，我们将令人欣慰的鸡肉面汤，并将其转化为一种更奶油，更易于舀取的版本，配以盐浇头。
 
-Watch
+
 
 鸡肉面汤是有很多变化空间的菜肴之一，这种品质延续到了这道砂锅菜。和汤一样，这里你可以操作的主要东西是鸡肉、肉汤和蔬菜。你*可以*用预先烤好的烤鸡和商店买的肉汤做这道砂锅，或者你可以为自己创造更多(美味)的工作，然后 [水煮一整只鸡](https://lifehacker.com/maximize-a-chickens-meal-potential-by-poaching-it-first-1822353539) ，这会给你大量多汁的肉和非常美味的定制肉汤。
 

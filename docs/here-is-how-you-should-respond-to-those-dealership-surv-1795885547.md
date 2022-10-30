@@ -4,7 +4,7 @@
 
 如果你曾经买过车或在汽车经销商处做过服务，你知道在交易后不久，你会接到电话或电子邮件，要求你 [就你的经历进行调查](https://jalopnik.com/how-to-use-the-car-dealership-survey-as-leverage-to-get-1595835486) 。但是如果你给出了一个糟糕的调查，它能在以后反咬你一口吗？
 
-Watch
+
 
 *欢迎提问 Automatch！你可以问我你的买车问题。有一个场景或情况，你不知道该怎么做？发邮件给 Tom.McParland@jalopnik.com**的* [*，我会尽力帮你解决。*](mailto:tom.mcparland@jalopnik.com)
 

@@ -4,7 +4,7 @@
 
 如果你一直使用谷歌 Chrome 来存储你所有的登录信息和密码，那就太好了——比把你的密码写在便利贴上，贴在你的桌面显示器或笔记本电脑上要好得多。第三方 [密码管理器](https://lifehacker.com/the-five-best-password-managers-5529133) 甚至更好(在许多情况下是跨平台的)，新的 Chrome 设置现在可以轻松地将所有浏览器保存的密码转移到新的应用程序。
 
-Watch
+
 
 正如 [Android Police](https://www.androidpolice.com/2018/03/08/yes-chrome-lets-export-saved-logins-csv-easily-import-favorite-password-manager/) 所说，谷歌 Chrome 已经将你保存的用户名和密码信息存储在它自己的密码管理器中——如果你允许的话。要查看密码列表，请访问设置>高级>管理密码。在那里，你可以编辑或删除你的登录信息，或者切换自动登录，这样你就不用为你喜欢的网站输入复杂的密码了。
 

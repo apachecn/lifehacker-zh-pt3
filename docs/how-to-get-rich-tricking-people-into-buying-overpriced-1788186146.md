@@ -4,7 +4,7 @@
 
 你准备好赚很多钱，卖很多奶昔了吗？这不会是一条容易的路，但如今想在这个行业取得成功的人比比皆是。如果你没有收到健康挑战的邀请，或者没有在社交媒体上看到朋友们摆姿势握手...恭喜你。你有一大堆新顾客准备听你的推销。
 
-Watch
+
 
 *<small>这篇文章是我们的</small>* [*<small>恶周</small>*](https://lifehacker.com/welcome-to-lifehackers-seventh-annual-evil-week-1788085206) *<small>系列的一部分，在这里我们看到了做事的阴暗面。有时邪恶是正当的，而其他时候，知道邪恶意味着知道如何打败它。想要更多吗？查看我们的</small>* [*<small>恶周标签页</small>*](http://lifehacker.com/tag/evil-week#_ga=1.105669515.968941705.1436971740) *<small>。</small>*
 

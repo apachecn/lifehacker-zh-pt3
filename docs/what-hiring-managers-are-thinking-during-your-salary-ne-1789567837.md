@@ -4,7 +4,7 @@
 
 当你的朋友得到工作机会时，告诉他们谈判是很容易的。但是当涉及到你的时候？有一个唠叨的声音在说，“不要做任何可能会毁了这一切的事情。”虽然你会告诉你的朋友深呼吸，放松，但当你觉得自己激动人心的新职位仍悬而未决时，这种反应是很自然的。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/3-real-thoughts-the-hiring-manager-has-when-youre-negotiating-salary?ref=home-small-tile-2) *。*
 

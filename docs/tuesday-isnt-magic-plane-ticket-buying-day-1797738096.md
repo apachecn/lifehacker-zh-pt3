@@ -4,7 +4,7 @@
 
 如果你认为自己是一个聪明、注重预算的旅行者，你可能已经听到过建议，告诉你等到周二 再买机票，因为那是一周中机票最便宜的时候。嗯，现在可能不再是这样了。
 
-Watch
+
 
 不幸的是，对于我们这些真正的信徒来说，Hopper 分析的 [航空公司数据显示，周二并不是所承诺的神奇旅行预订日。在这种情况下，你必须在午夜准时订票，即使这样，也只能节省大约 6%(平均大约 18 美元)。哦，而且只对 1.6%的国内航线有效。](https://www.bloomberg.com/news/articles/2017-07-05/why-you-shouldn-t-wait-unti-tuesday-to-buy-plane-tickets) [在彭博](https://www.bloomberg.com/news/articles/2017-07-05/why-you-shouldn-t-wait-unti-tuesday-to-buy-plane-tickets) ，Hopper 的首席数据科学家 Patrick Surry 解释了为什么旧的“黄金法则”不复存在。过去，航空公司的收入经理会手动创建快速销售，以满足每周的目标和指标，现在他们已经被计算机取代。基本上，所有的决策都是自动化的，所以这些销售模式现在更难预测。
 

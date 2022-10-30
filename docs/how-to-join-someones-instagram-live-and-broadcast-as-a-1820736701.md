@@ -4,7 +4,7 @@
 
 Instagram Live 不一定是单行道。如果击碎那个心脏按钮还不够，如果评论还不能满足你的互动需求，现在你可以自己加入进来。
 
-Watch
+
 
 让一位嘉宾分享屏幕并不是什么新鲜事，但过去这是由电视台决定的。直播仍然控制谁可以加入流媒体，但是， [TechCruch 报道](https://techcrunch.com/2017/11/21/you-can-now-request-to-join-someones-instagram-live-stream/?ncid=rss) ，直播的观众现在可以请求加入。
 

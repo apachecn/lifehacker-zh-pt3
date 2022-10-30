@@ -4,7 +4,7 @@
 
 本周，我们看了一些新的应用程序和在线服务，它们试图让治疗变得更容易接受，回到投资基础，了解股票和债券的区别，在家里烤一些狗食，等等。这里回顾一下。
 
-Watch
+
 
 ## [**当你提前到达并入住酒店时该怎么办**](http://lifehacker.com/what-to-do-when-you-arrive-too-early-to-check-into-your-1792644813)
 

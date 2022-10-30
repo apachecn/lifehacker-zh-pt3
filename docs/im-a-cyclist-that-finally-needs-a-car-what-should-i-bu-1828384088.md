@@ -4,7 +4,7 @@
 
 帕特里克喜欢汽车，但从未真正需要过。他骑自行车还过得去。现在他有了一份新工作，在 DC 的交通地狱景观中通勤的时间更长了。如果他想活下来，他需要四个轮子和门。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link) *)*
 

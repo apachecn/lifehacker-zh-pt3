@@ -4,7 +4,7 @@
 
 部分由于气候变化，蜱在 [比以往](https://www.npr.org/sections/goatsandsoda/2017/04/21/523066394/-curiousgoat-will-climate-change-help-ticks-and-mosquitoes-spread-disease) 更多的地区探索领地(包括你的皮肤)。在我住的宾夕法尼亚地区，它们过去很少见，但最近每年夏天我都不得不从自己或家人身上摘一些。不要对每一个问题都大惊小怪，开始一个剪贴簿。
 
-Watch
+
 
 这个想法来自 Jena Whiston，她写了她给恐怖妈咪 的“tick kit”。我自己的 tick 工具包只包含一个项目——tick key，它可以让你 [移除一个 tick，而无需触摸它](https://lifehacker.com/how-to-remove-a-tick-without-touching-it-1796714398) 。(在你需要之前，准备一个你选择的除虱装置*现在*，把它藏在你存放重要急救装备的地方。)
 

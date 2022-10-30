@@ -4,7 +4,7 @@
 
 在世界上众多不公正的事件中，有两个在飓风哈维 [中救助他人的人感染了“食肉”细菌](http://www.cnn.com/2017/10/24/health/houston-flood-flesh-eating-bacteria-kills-man-bn/index.html) 。另一个人，一个在洪水中摔倒并摔断了胳膊的女人，也患上了类似的严重感染，她因此而死亡。幸运的是，他们的故事很少。
 
-Watch
+
 
 ### 这种细菌是什么，它是如何吃掉你的肉的？
 

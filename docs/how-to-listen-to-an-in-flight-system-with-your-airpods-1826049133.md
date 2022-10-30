@@ -4,7 +4,7 @@
 
 我爱我的蓝牙耳塞，考虑到苹果 [AirPods](https://lifehacker.com/the-gross-but-effective-way-to-clean-your-airpods-1820945258) 的 [暴走成功](https://qz.com/1068001/apples-airpods-generated-a-ton-of-cash-since-they-were-released/) ，我不是一个人。但偶尔我会遇到一种情况，我希望我仍然有一些带 3.5 毫米好电缆的耳机。
 
-Watch
+
 
 飞机是一个很好的例子，主要是因为没有简单的方法将你的 AirPods 连接到飞机上的娱乐系统。如果你喜欢在跑步机上看电视直播，健身房也是一样。
 

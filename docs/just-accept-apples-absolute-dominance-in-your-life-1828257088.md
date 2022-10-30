@@ -4,7 +4,7 @@
 
 上次我们召集 Lifehacker 员工的 [周升级](https://lifehacker.com/stop-looking-at-twitter-so-much-unless-its-for-puppy-p-1828082794?rev=1533924407515) 时，我们的编辑正在削减 Twitter 和 Taco Bell 上的内容，晒小狗图片，并寻找新的方法来减少我们的咖啡消耗量。
 
-Watch
+
 
 本周，我们发现了新的播客，淹没了飞机上的背景噪音，充分利用了电影票，做了苹果让我们做的任何事情。
 

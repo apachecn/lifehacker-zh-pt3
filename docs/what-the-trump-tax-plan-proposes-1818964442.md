@@ -4,7 +4,7 @@
 
 周三， [川普总统透露了他对美国税法进行重大改革的计划](https://www.nytimes.com/video/us/politics/100000005463190/live-trump-tax-cut-plan.html?mcubz=0) 。一切都还没有定下来，也没有太多的细节，但以下是政府的建议。
 
-Watch
+
 
 ### 标准扣除额增加
 

@@ -4,7 +4,7 @@
 
 白天找时间健身有时会有点…复杂。如果你时间紧迫，但仍想锻炼一下，Alexa 可以通过 Alexa 的 7 分钟锻炼技能t .
 
-Watch
+
 
 顾名思义，这项技能会带你完成著名的 中的所有 [练习。](https://well.blogs.nytimes.com/2013/05/09/the-scientific-7-minute-workout/)
 

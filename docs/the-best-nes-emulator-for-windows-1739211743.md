@@ -4,7 +4,7 @@
 
 如果你想要怀旧的老式 NES 与高清晰度电视的质量和方便，模拟器可以带你走得很远。如果你想要一个完美的 NES 体验，你会想去 RetroArch 的 Nestopia UE core。
 
-Watch
+
 
 ### (带内视 UE 核心)
 

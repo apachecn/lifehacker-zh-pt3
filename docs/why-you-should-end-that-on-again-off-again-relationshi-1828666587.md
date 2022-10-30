@@ -4,7 +4,7 @@
 
 坠入爱河和失恋是一种常见的经历，不幸的是，这经常发生在完全相同的伴侣身上。这被称为“关系循环”，事实证明这是一个比感觉更大的情感能量吸收。
 
-Watch
+
 
 《T4 家庭关系》杂志的一项新的 [研究](https://onlinelibrary.wiley.com/doi/abs/10.1111/fare.12336) 调查了一次又一次与某人分手又复合所造成的“心理困扰”，Cut [报道](https://www.thecut.com/2018/08/the-gloomy-psychology-of-on-again-off-again-relationships.html?utm_source=Sailthru&utm_medium=email&utm_campaign=The%20Cut-%20August%2027%2C%202018&utm_term=Subscription%20List%20-%20The%20Cut%20%281%20Year%29) 。任何做过这种事的人都会告诉你这有多糟糕，但是现在我们有一些研究证实了为什么。
 

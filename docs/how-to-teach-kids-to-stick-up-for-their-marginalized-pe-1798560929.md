@@ -4,7 +4,7 @@
 
 我遇到的父母都想培养出能与不公正斗争的孩子。他们带着孩子去集会。他们很早就开始 [谈论种族](https://lifehacker.com/how-to-talk-to-young-kids-about-race-1797811655) ，性别，性取向和体能。他们介绍探索 [争取平等](http://offspring.lifehacker.com/11-kids-books-that-will-help-them-understand-the-strugg-1797940769#_ga=2.36776738.304312588.1503953950-185554498.1503953950) 的书籍。孩子们确实明白这一点——他们非常关心公平和批判性思维的能力。
 
-Watch
+
 
 尽管如此，当涉及到那些大型测试时，那些在教室或篮球场或学校食堂突然出现的测试，那些以仇视伊斯兰教的言论或“这太同性恋了”的形式出现的测试，对一个人的“象征性黑人朋友”的诽谤或玩笑，很难知道孩子们(甚至成年人)会如何反应。他们会为被边缘化的同龄人挺身而出吗？即使他们的朋友坐在令人不安的沉默中，他们也会介入吗？他们会不会是 [“暴发户”而不是旁观者](https://d3n8a8pro7vhmx.cloudfront.net/themes/51172dcc1ad07a63d6000002/attachments/original/1361485107/10WaystoBeanUpstander_copy.pdf?1361485107) ？
 

@@ -4,7 +4,7 @@
 
 iPhone 4s 于 2011 年作为 Siri 的硬件先锋推出，是苹果公司的一次重大软件飞跃。但是 iOS 10，其中 [甚至把](http://gizmodo.com/ios-10-everything-you-need-to-know-1781888060#_ga=1.58267817.289535885.1450363954) 集中到让 Siri 比以往更好上， [在 iPhone 4s 上就不行了](http://www.apple.com/ios/ios10-preview/) 。伤心！
 
-Watch
+
 
 苹果实际上将埋葬所有超过四年的 iOS 设备。iOS 更新不支持 iPad 2、iPad 3、iPad mini 和所有 iPod touches(最新一代除外)。
 

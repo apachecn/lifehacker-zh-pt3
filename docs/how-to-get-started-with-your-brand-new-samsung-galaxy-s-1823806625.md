@@ -4,7 +4,7 @@
 
 新三星 Galaxy S9 和/或 S9+用户发布日快乐！现在你有了全新的设备(或者还在 [每五分钟刷新一次它的发货状态](https://lifehacker.com/how-to-start-tracking-your-iphone-x-delivery-as-soon-as-1819975250) ，同时等待它的到来)，这里有一些我们最喜欢的提示、技巧和调整，你可以用来开始。
 
-Watch
+
 
 ### 设置您的全新 Galaxy S9
 

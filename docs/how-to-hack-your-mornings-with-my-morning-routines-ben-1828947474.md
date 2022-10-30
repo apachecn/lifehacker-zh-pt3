@@ -4,7 +4,7 @@
 
 早上。我们很多人讨厌它们；我们中的一些人爱他们；我们都想充分利用它们。但是我们到底该怎么做呢？首先，我们向《我的清晨惯例: [的合著者](https://www.amazon.com/My-Morning-Routine-Successful-Inspired-ebook/dp/B074LZDNV8/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-hack-your-mornings-with-my-morning-routines-ben-1828947474&asc_source=&ie=UTF8&keywords=benjamin spall&qid=1536608284&s=books&sr=1-1&tag=kinjalifehackerlink-20) [本杰明·斯帕尔](https://benjaminspall.com/) 询问如何创造终极清晨惯例。我们也和瓦妮莎·马林谈了谈，她是一位有执照的性治疗师(也是《下班后生活黑客》的撰稿人，为什么我们应该偶尔抛弃常规，直接去做)。梅丽莎就著名艺术家的古怪习惯(早上和其他)向爱丽丝提问。很好玩！我们玩得很开心。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/77dfafa4-443d-41bd-a1d8-738c98750da4/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/77dfafa4-443d-41bd-a1d8-738c98750da4/embed)
 

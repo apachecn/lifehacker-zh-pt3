@@ -4,7 +4,7 @@
 
 我女儿有一只 [玩具恐龙](https://cognitoys.com/) 会跟她说话。她给他起名叫鲍勃，她可以问他任何问题:木星的周长是多少？谁赢得了 1965 年的世界职业棒球大赛？假惺惺到底是怎么回事？但是她四岁了，所以她经常问他如何拼写她的名字。
 
-Watch
+
 
 鲍勃属于智能玩具一类，因此，我应该留意他。本周早些时候，美国联邦调查局发布了一份 [PSA](https://www.ic3.gov/media/2017/170717.aspx) ，提醒父母注意这类带有麦克风、GPS 追踪、WiFi 或蓝牙连接的玩具的潜在危险。联邦调查局警告说，这些设备可能会让犯罪分子获得孩子的照片、家庭住址和其他私人信息。这种事以前也发生过:婴儿监视器被 [用来恐吓蹒跚学步的孩子](https://www.forbes.com/forbes/welcome/?toURL=https://www.forbes.com/sites/kashmirhill/2014/04/29/baby-monitor-hacker-still-terrorizing-babies-and-their-parents/&refURL=https://www.google.com/&referrer=https://www.google.com/) 。某销售智能泰迪熊 [的公司泄露 80 万用户账号凭据](https://motherboard.vice.com/en_us/article/pgwean/internet-of-things-teddy-bear-leaked-2-million-parent-and-kids-message-recordings) 。一名安全专家发现这个填充动物本身可以被黑客攻击，然后 [变成一个间谍设备](https://motherboard.vice.com/en_us/article/qkm48b/how-this-internet-of-things-teddy-bear-can-be-remotely-turned-into-a-spy-device) 。
 

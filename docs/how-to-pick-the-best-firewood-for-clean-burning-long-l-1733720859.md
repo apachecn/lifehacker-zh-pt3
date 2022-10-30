@@ -4,7 +4,7 @@
 
 正式入秋了，也就是说是时候 [清理壁炉](http://lifehacker.com/clean-your-brick-fireplace-with-cream-of-tartar-1696693826#_ga=1.106149763.127976026.1441054335)[检查烟囱](http://workshop.lifehacker.com/sweep-your-chimney-without-getting-on-the-roof-1679228929#_ga=1.106149763.127976026.1441054335) 了。这也是建立柴火堆的理想时间。以下是如何挑选和准备最好的柴火。
 
-Watch
+
 
 ### 越干燥越好
 

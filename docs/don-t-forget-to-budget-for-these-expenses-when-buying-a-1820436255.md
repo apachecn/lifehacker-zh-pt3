@@ -4,7 +4,7 @@
 
 汽车很贵，它们巨大的价格标签超过了你在当地经销店橱窗里看到的标价。司机要支付一些日常费用，所以如果你想买车，别忘了为这些做预算。
 
-Watch
+
 
 它被称为总拥有成本，或 TCO——一段时间内你为一辆汽车支付的总价格。制造商使用 TCO 来帮助您更好地比较车辆。A 车可能在地段上比 B 车便宜，但是随着时间的推移， [一旦你计算维修和其他因素](https://twocents.lifehacker.com/the-car-brands-with-the-highest-maintenance-costs-over-1781639773) ，A 车实际上可能更贵。
 

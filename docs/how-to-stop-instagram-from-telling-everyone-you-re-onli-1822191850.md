@@ -4,7 +4,7 @@
 
 Android/iOS:你最喜欢的社交网络 [假装你有一个完美的生活](https://lifehacker.com/your-instagram-posts-may-offer-warning-signs-of-depress-1797821497) 现在准备好让所有人知道你何时在线和潜伏。Instagram 在你的直接消息列表中添加了一个活动状态指示器，让你知道他们何时在线，并忽略你最近发送的有趣视频。如果你和我有同样的想法，你可能想知道如何禁用这个可怕的新功能。好消息， [潜伏者](https://gizmodo.com/the-case-for-lurking-on-twitter-1519486404) :你可以！
 
-Watch
+
 
 根据 Next Web 的说法，这个功能可能是 Facebook Messenger [的延续，但仅仅因为你可以知道某人何时在线，并通过滚动图像来消磨时间并不意味着你应该这样做。](https://thenextweb.com/apps/2018/01/18/instagram-last-activity-hide/)
 

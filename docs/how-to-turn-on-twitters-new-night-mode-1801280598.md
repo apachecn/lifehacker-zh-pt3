@@ -4,7 +4,7 @@
 
 当你坐在黑暗的会议室或舒适的床上准备睡觉时，打开笔记本电脑看 Twitter 就像直视太阳一样。有时白色背景很棒，而其他时候，稍微暗一点的颜色会是一个受欢迎的变化。
 
-Watch
+
 
 Twitter 首次在 Android 和 iOS 应用中亮相，本周终于开始在网络上推出黑暗模式，我打赌在我下一次红眼航班上坐在我旁边的人对这一发展非常兴奋(当我在 *TechCrunch* 上阅读这篇文章时，我知道我是 [)。](https://techcrunch.com/2017/09/06/twitter-brings-its-dark-night-mode-theme-to-the-web/) 
 

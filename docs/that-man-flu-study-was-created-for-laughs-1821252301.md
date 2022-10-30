@@ -4,7 +4,7 @@
 
 听到美国有线电视新闻网[时间](http://time.com/5060429/what-is-man-flu/)[卫报](https://www.theguardian.com/lifeandstyle/2017/dec/11/stop-accusing-men-of-overreacting-man-flu-really-does-exist-claims-doctor) 的报道，你会认为在“男性流感”领域有了重大的医学突破，一劳永逸地回答了男人在面对普通感冒时是否是懦夫的问题。但是人类流感研究来自一个奇怪的愚人节传统，真正的科学家发表半开玩笑的论文，新闻媒体用它们作为点击诱饵。
 
-Watch
+
 
 这些论文来自 BMJ[(该杂志前身为《英国医学杂志》)的圣诞特刊。从某种意义上说，这期杂志每年都会发表真正科学的研究，但它们是为了搞笑而构建的，并不十分严谨。比如，如果你*想把人流感作为一个普遍的公共健康问题来研究，你可能会召集一个不止一个人的团队来做这件事。*](http://www.bmj.com/specialties/christmas)
 

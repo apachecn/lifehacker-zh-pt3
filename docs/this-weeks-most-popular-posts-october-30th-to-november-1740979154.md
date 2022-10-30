@@ -4,7 +4,7 @@
 
 本周，我们探讨了为什么你应该停止购买运营商的手机，测试了一个可以让你保持凉爽的枕头，了解了如何在 iPhone 上获得完美的全谷歌体验，等等。这里回顾一下。
 
-Watch
+
 
 ## [从运营商买手机烂透了，是时候让我们停止](http://lifehacker.com/buying-phones-from-carriers-sucks-and-its-time-for-us-1740266139) 了
 

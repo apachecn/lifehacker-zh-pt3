@@ -4,7 +4,7 @@
 
 你可能知道美国有导弹防御系统，光是这个想法就让你觉得在美国(相对)安全舒适。但是你知道这些系统是如何工作的吗？或者它们能有多有效？他们不是你想的那种无法穿透的盾牌。
 
-Watch
+
 
 朝鲜 [最近试射了另一枚导弹](https://www.washingtonpost.com/amphtml/news/worldviews/wp/2017/11/29/north-koreas-late-night-missile-test-may-hint-at-broader-strategy/) ，有专家确信 [整个美国大陆现在都在他们洲际弹道导弹](https://lifehacker.com/where-in-the-world-north-koreas-arsenal-of-missiles-can-1820009566) 的射程之内，假设导弹携带轻载荷的话。这让人们更加关注美国的导弹防御系统，以及它们是否真的有效。在沙特阿拉伯使用美国提供的爱国者导弹系统进行了一次失败的防御尝试后，人们开始怀疑“我们安全吗？”但是在我们深入了解这些东西有多有效之前，让我们先来谈谈它们是如何工作的。
 

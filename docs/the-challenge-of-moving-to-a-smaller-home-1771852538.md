@@ -4,7 +4,7 @@
 
 我长大的房子面积非常有限，这是我每次去看望父母时都会注意到的。它本质上是一个两居室的房子，当绝对需要时，它相当于一个储物壁橱，可以转换成第三个卧室。客厅很小，厨房也很小。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/the-challenge-of-moving-to-a-smaller-home/) *上。*
 

@@ -4,7 +4,7 @@
 
 谷歌给了我们 [最好的电子邮件服务](https://lifehacker.com/tag/gmail)[最好的地图应用](https://lifehacker.com/tag/google-maps)[之一最好的人工智能助手](https://lifehacker.com/all-the-things-you-can-do-with-google-assistant-that-yo-1787444497)[最好的搜索引擎](https://lifehacker.com/the-tiny-essential-google-tricks-for-way-better-search-1826791031) 。现在，他们也进入了正念游戏。
 
-Watch
+
 
 如果你搜索“呼吸练习”或“深呼吸”(或类似的术语)，你会在搜索结果的顶部看到一个蓝框。点击它会启动一个白点，随着“吸气”一进一出....呼气….”该序列持续一分钟，然后停止。
 

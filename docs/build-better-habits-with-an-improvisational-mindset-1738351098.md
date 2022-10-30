@@ -4,7 +4,7 @@
 
 打破你的日常惯例可能是一种强大的方式来释放伟大的新思想，无论是个人还是职业。爵士音乐家和即兴喜剧演员通常是打破常规，采用新方法的大师。
 
-Watch
+
 
 *本帖原载于* [*帮侦察兵博客*](http://www.helpscout.net/blog/disrupt-daily-routine/) *。*
 
@@ -52,11 +52,7 @@ Watch
 
 *例如，研究人员发现，根据谷歌搜索数据显示，“饮食”一词的搜索频率上升，健身房的出勤率通常会增加，当人们认为自己正在重新开始时，他们会更有动力改变自己的习惯和行为——在一年、一季、一个月甚至一周的开始。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled Build Better Habits With an Improvisational Mindset](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-debug-your-brain-and-build-better-habits-1654118579) [###### 如何调试大脑，养成更好的习惯](https://lifehacker.com/how-to-debug-your-brain-and-build-better-habits-1654118579) 
 
-如果你能像调试坏代码一样调试你的大脑，那不是很好吗？我们可能不会…
-
-[Read more](https://lifehacker.com/how-to-debug-your-brain-and-build-better-habits-1654118579)*</aside>
 
 ### ***拥抱“即兴思维”***
 

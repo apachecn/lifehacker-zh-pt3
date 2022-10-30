@@ -4,7 +4,7 @@
 
 如今，使用密码管理器基本上是互联网安全 101，但这并没有减少它们的威胁。如果你从来没有使用过密码管理器，它们很烦人，使用起来很麻烦，而且一眼看上去就让人困惑。1 密码是最容易使用的选项之一，但这并不意味着您不需要一些帮助来设置它。
 
-Watch
+
 
 密码管理器创建难以破解的强密码，它们跟踪这些密码，因此您不必记住它们，并且它们使您在遭到黑客攻击后很容易更改密码。你 [有一大堆密码管理器](https://lifehacker.com/lifehacker-faceoff-the-best-password-managers-compare-1682443320) 的选择，但对于本指南，我们将重点放在[1 密码](https://1password.com/) 。使用 1Password，您可以使用云服务在您的设备之间同步您的密码。Dropbox 或 iCloud，它可以在所有主流操作系统上运行。与 1Password 最大的竞争对手 [LastPass](http://lifehacker.com/the-beginners-guide-to-setting-up-lastpass-1785424440) 不同，你的密码也可以存储在本地，而不是云端。您使用哪个密码管理器是一个偏好问题，取决于您的需要；没有一个是完美的，他们都有自己的长处和短处。
 

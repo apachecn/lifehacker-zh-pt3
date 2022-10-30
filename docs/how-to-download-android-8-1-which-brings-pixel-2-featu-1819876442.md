@@ -4,7 +4,7 @@
 
 Android:[Pixel 2](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085)配备了 [的特殊功能](https://lifehacker.com/how-to-get-the-pixel-2s-new-camera-app-on-your-old-goog-1819447692) 超出了你从普通 Android 获得的功能，现在谷歌将这些额外的功能带到了装有 Android 8.1 的旧设备上。最新的更新要到 12 月才会正式发布，但是你现在不用太费力就可以下载第一个预览版。
 
-Watch
+
 
 ### 如何下载 Android 8.1 预览版
 

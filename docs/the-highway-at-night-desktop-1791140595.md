@@ -4,7 +4,7 @@
 
 读者 [塞巴斯蒂安](http://kinja.com/sebastianerz) 向我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 提交了这个漂亮的桌面，壁纸和几个有品味的皮肤的结合是一个坚实，锐利的外观。他是这样设计的。
 
-Watch
+
 
 首先，Sebastian 使用 Rainmeter 得到这个外观，而 [我们刚刚更新了我们的 Rainmeter](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 指南，所以如果你想开始调整它，你可以检查一下。
 

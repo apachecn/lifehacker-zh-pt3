@@ -4,7 +4,7 @@
 
 学生贷款诈骗案 [呈上升趋势](https://twocents.lifehacker.com/have-you-been-the-victim-of-a-student-loan-scam-1827689198) ，但你需要担心的不仅仅是第三方会利用你。在许多情况下，你的服务商可能会在没有适当通知的情况下搞乱付款、拖延贷款申请或出售你的债务。
 
-Watch
+
 
 如果这些发生了，你要做好准备。学生贷款英雄有 [破落](https://studentloanhero.com/featured/screwed-over-by-student-loan-servicer/) 如果你的服务者耍了你该怎么办。
 

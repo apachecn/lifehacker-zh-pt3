@@ -4,7 +4,7 @@
 
 TCL P 系列听起来好得令人难以置信。这些 Roku 驱动的 4K 电视价格几乎是类似配套电视机的一半，具有全阵列局部调光、[【HDR】](https://www.cnet.com/news/what-is-hdr-for-tvs-and-why-should-you-care/)和 [杜比视界](https://www.whathifi.com/advice/dolby-vision-hdr-everything-you-need-to-know) 等高端功能。所有这些，一个 55 英寸的型号只会花掉你 650 美元。那么真的好到不真实吗？一点点。但只有一点点。
 
-Watch
+
 
 我们已经写了很多关于[4K 电视](http://gizmodo.com/a-skeptics-guide-to-buying-or-not-buying-a-4k-tv-1744272556) 这个令人兴奋的新时代，当这些不可能的清晰显示器最终比一辆二手奔驰便宜的时候。最近，一些型号的价格比一辆像样的自行车还低。TCL 是以神奇的低价将高品质显示器带给大众的领先品牌之一。新的 P 系列为购买 500 至 700 美元范围内的精美画质提供了一个全新的机会。这些新电视是如何做到这一点的，总的来说，令人印象深刻。因为该死的， [TCL P 系列](http://www.tclusa.com/products/home-theater/p-series) 看起来*还不错。*
 

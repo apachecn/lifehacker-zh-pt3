@@ -4,7 +4,7 @@
 
 用你的 [智能音箱](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716) 打电话已经是一种选择了(无论你更喜欢 [亚马逊的 Alexa AI](https://www.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-send-android-text-messages-with-your-amazon-echo-1822639048&asc_source=&nodeId=202136150&tag=kinjalifehackerlink-20) 还是 [Google Home 设备](https://support.google.com/googlehome/answer/7363847?co=GENIE.Platform%3DAndroid&hl=en) )，但发送 [短信](https://lifehacker.com/why-you-should-use-facebook-messenger-instead-of-sms-1796907913) 则完全是另一回事了。
 
-Watch
+
 
 亚马逊本周刚刚增加了短信支持，尽管目前仅限于美国的 Android 设备。Google Home 仍然不能处理短信，但是有一些变通方法值得一试。以下是开始用智能音箱发短信时你需要知道的。
 

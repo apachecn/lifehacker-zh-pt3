@@ -4,7 +4,7 @@
 
 孩子们在听。在选举期间，仇恨、恐惧和不容忍的信息通过不同媒体传播到各个社区。信息还在继续。当父母观看和聆听这些无处不在的信息时，他们的孩子也在旁边，通过一个不具备辨别负面陈规定型观念和不正确描述的能力的镜头来聆听这些信息。
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/to-honor-dr-king-pediatricians-offer-four-tips-to-teach-kindness-to-kids-70620) *。*
 

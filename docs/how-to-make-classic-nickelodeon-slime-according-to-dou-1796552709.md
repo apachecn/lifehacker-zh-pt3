@@ -6,7 +6,7 @@
 
 如果你是看着 *Double Dare、*或任何 Nickelodeon 节目长大的，你可能还记得绿色黏液。人们多年来一直试图制作自己版本的，但现在真正的配方终于揭晓了。
 
-Watch
+
 
 正如 [主持人马克·萨默斯](http://jezebel.com/behold-marc-summers-is-the-most-wonderful-tv-host-ever-1151607394) 在这段来自 [科技内幕](https://www.youtube.com/watch?v=O_YuTMDkWfI) 的视频中解释的那样，尼克德隆史莱姆被认为是*双敢*和*你会怎么做？*，但它实际上起源于一个叫做*的节目，你不能在电视上这么做*。孩子们似乎很喜欢它，所以 Nickelodeon 就开始播放了。直到今天，在儿童选择奖上，名人仍然会被弄脏。
 

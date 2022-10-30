@@ -4,7 +4,7 @@
 
 我们问你，当你完成工作 并交付成果时，你喜欢听什么音乐 [。以下是 Lifehacker 的读者们精心挑选的六个非常棒的生产力播放列表。](https://lifehacker.com/what-are-your-favorite-tunes-for-getting-work-done-1732880999)
 
-Watch
+
 
 ### 寒冷
 
@@ -46,11 +46,7 @@ T2】
 
 T2】
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Lifehacker Work Playlists: Your Ideal Music for Getting Things Done](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-music-to-work-or-study-to-could-be-video-game-1542298206) [###### 工作或学习的最佳音乐可能是电子游戏的原声音乐](https://lifehacker.com/the-best-music-to-work-or-study-to-could-be-video-game-1542298206) 
 
-许多不同的声音可以让你在工作或学习时更有效率(尤其是音乐……
-
-[Read more](https://lifehacker.com/the-best-music-to-work-or-study-to-could-be-video-game-1542298206)</aside>
 
 ### 国家
 

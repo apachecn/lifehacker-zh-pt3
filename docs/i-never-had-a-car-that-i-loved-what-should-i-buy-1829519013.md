@@ -4,7 +4,7 @@
 
 杰克刚刚离婚。他有了一份新工作和一个新的开始，所以他正在寻找一个新的旅程。然后他意识到他从未拥有过一辆能让他真正产生共鸣的车。他在卡车和更注重性能的东西之间左右为难。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link) *)*
 

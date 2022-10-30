@@ -4,7 +4,7 @@
 
 我们已经听说了很多关于[2200 万人将在](https://www.cbo.gov/system/files/115th-congress-2017-2018/costestimate/52849-hr1628senate.pdf) [更好的保健和解法案](https://www.budget.senate.gov/imo/media/doc/SENATEHEALTHCARE.pdf) 下失去 的保险，以及在个人市场上将花费多少额外的保险。但是如果你有工作保险呢？原来你也不能免受法案的影响。到处都是坏消息。
 
-Watch
+
 
 顺便说一下，把这种东西归类为坏消息并不是一个党派声明。只有 17%的美国人喜欢《T2 法案》，包括不到一半的共和党人。同样反对的还有: [美国医学协会](https://wire.ama-assn.org/ama-news/ama-strongly-opposes-senates-health-reform-proposal)[美国退休人员协会](https://press.aarp.org/2017-06-27-AARP-Response-to-Congressional-Budget-Office-Score-of-Senate-Health-Bill)[美国医院协会](http://www.aha.org/presscenter/pressrel/2017/062217-pr-senatebill.shtml)[美国癌症协会的行动网络](https://www.acscan.org/call-your-us-senator-ask-them-vote-no-senate-health-care-bill)[美国医学院协会](https://news.aamc.org/press-releases/article/senate-reform-bill-06222017/)[天主教健康协会](https://www.chausa.org/newsroom/news-releases/2017/06/28/health-care-leaders-denounce-senate's-proposal) ，老实说我
 

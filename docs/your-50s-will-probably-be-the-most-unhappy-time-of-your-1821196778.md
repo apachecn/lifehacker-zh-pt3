@@ -4,7 +4,7 @@
 
 每个人的生活都充满了起起落落，但新的研究表明，当谈到我们的总体满意度时，每个人的生活都遵循一种特定的模式。到了中年，我们似乎都很沮丧。
 
-Watch
+
 
 根据美国国家经济研究局 对生活满意度的一项新分析，该分析包括七项大规模调查和来自 51 个国家的 130 万随机抽样调查，对大多数人来说，人生的最低点在 50 岁出头左右。另一方面，人们报告说，一旦退休，他们在 20 多岁和 60 多岁时会非常快乐。总而言之，我们的生活似乎遵循一条特定的满意度抛物线( [《华盛顿邮报》有一个很棒的图表，你可以查看一下](https://www.washingtonpost.com/news/wonk/wp/2017/08/24/under-50-you-still-havent-hit-rock-bottom-happiness-wise/?utm_term=.56e738ab9ef3) )。
 
@@ -12,11 +12,7 @@ Watch
 
 为什么我们 50 多岁是低谷？首先，研究人员指出，中年人通常处于职业生涯的巅峰，这造成了很大的压力。或者，人们觉得自己应该处于职业生涯的巅峰，但他们甚至还没有接近。此外，到你四五十岁的时候，父母已经有了要担心的成年子女。似乎经常被开玩笑的“中年危机”是对一个非常真实的低谷的反应。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Your 50s Will Probably Be the Most Unhappy Time of Your Life](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-buy-happiness-the-purchases-most-likely-to-brin-1681780686) [###### 如何买到幸福:最有可能带给你快乐的东西](https://lifehacker.com/how-to-buy-happiness-the-purchases-most-likely-to-brin-1681780686) 
 
-虽然真正的幸福可能只能在心里找到，但有很多…
-
-[Read more](https://lifehacker.com/how-to-buy-happiness-the-purchases-most-likely-to-brin-1681780686)</aside>
 
 如果你想减轻这种看似自然的幸福曲线对你一生的影响，这里有一些建议:
 

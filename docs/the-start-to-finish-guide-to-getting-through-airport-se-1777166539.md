@@ -4,7 +4,7 @@
 
 机场安检线 [尤其是最近噩梦般的](https://lifehacker.com/expect-longer-than-usual-tsa-wait-times-at-airports-thi-1774340011) ，这要归咎于几个因素:坐飞机的人越来越多，新的安检程序，美国运输安全管理局人手严重不足。今年夏天在机场要避免比平时更长的等待时间是很难的，但是一点点计划至少会帮助你尽快通过安检。
 
-Watch
+
 
 ### 注册一个类似 PreCheck 的服务
 

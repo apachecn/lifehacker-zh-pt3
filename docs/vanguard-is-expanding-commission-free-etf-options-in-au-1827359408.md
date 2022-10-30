@@ -4,7 +4,7 @@
 
 先锋集团正在实现投资者最大的愿望之一:对其大部分 ETF 期权进行免佣金交易。
 
-Watch
+
 
 这家投资巨头将从 8 月份开始通过其在线经纪服务为投资者提供近 1800 种不同的交易所交易基金 的免佣金服务，这是第一家这样做的公司。该公司已经向投资者提供了自己的[Vanguard ETF](https://investor.vanguard.com/etf/list#/etf/asset-class/month-end-returns)免佣金，但现在将把该交易扩展到其现有的“绝大多数”基金，杠杆或反向 ETF 除外。
 

@@ -4,7 +4,7 @@
 
 没有任何声音能像吸奶器有节奏的嗡嗡声一样把我带回到初为人父母的阴霾中。起初在我看来像是现代刑具的东西很快变成了让我女儿接受母乳喂养的必要工具——它增加了我的奶水供应，减轻了压力，并让我在不得不回去工作时(或者根本就不在家，没有婴儿)建立一个冰箱。
 
-Watch
+
 
 吸奶器也是我比较昂贵的婴儿护理用品之一——我用的这个系统 大约花了 200 美元。直到很久以后，我才意识到我可以通过我的保险，在患者保护与平价医疗法案名下免费得到一个高质量的泵*。*
 
@@ -31,7 +31,7 @@ Watch
 
 *虽然一些最新的吸奶器还没有被覆盖(如 [柳树](https://www.willowpump.com/) )，许多 DME 提供流行的品牌，如 Ameda Finesse，Evenflo Advanced，Lansinoh Signature Pro，Spectra S2 Plus 和 Medela Pump In Style。在选择水泵时，食品药品监督管理局有 [一些准则](https://www.fda.gov/medicaldevices/productsandmedicalprocedures/homehealthandconsumer/consumerproducts/breastpumps/ucm061939.htm) 。*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">*[![Image for article titled How to Get a Free Breast Pump Through Your Insurance](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-nobody-tells-you-about-pregnancy-1826950035)*</aside>
+
 
 *问自己几个问题:你会在哪里泵水？(如果你经常出差，你可能不想要最重、最笨重的型号。)乳罩适合你吗？(如果标准防护屏不舒适，你需要确保可以更换不同尺寸或质地的防护屏。)*
 

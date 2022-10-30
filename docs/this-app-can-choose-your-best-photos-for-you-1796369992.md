@@ -4,7 +4,7 @@
 
 Android:如果你的手机存储空间不足，你可能想开始从手机中删除一些低质量的照片，或者用类似 [谷歌照片](http://lifehacker.com/how-the-new-google-photos-makes-your-picture-library-aw-1708189976) 的应用程序进行备份。照片应用 [EyeEm](http://eyeem.com/) 周三宣布了一项更新，该应用使用人工智能来挑选出你最好的照片。
 
-Watch
+
 
 虽然 EyeEm 主要是摄影师出售照片的地方，但这项功能有助于确定哪些照片要发布到其他社交媒体上，以及对应该删除的照片进行分类。
 

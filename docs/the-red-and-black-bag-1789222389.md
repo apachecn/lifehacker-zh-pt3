@@ -4,7 +4,7 @@
 
 有时候，你包里的颜色搭配很好。日常携带读者的埃德维索索的包管理一个不错的一致的红色和黑色的主题。
 
-Watch
+
 
 包里是一个 [温格状态的 MacBook/iPad 包](https://www.amazon.com/dp/B00HIXXDN8?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-red-and-black-bag-1789222389&asc_source=&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

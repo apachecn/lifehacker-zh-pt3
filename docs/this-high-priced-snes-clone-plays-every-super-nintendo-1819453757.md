@@ -4,7 +4,7 @@
 
 最近发布的 [超级任天堂经典版](https://gizmodo.com/snes-classic-is-the-best-way-to-experience-nintendos-go-1818811285) 是重播 21 款你最喜欢的 16 位 SNES 游戏的绝佳方式——但是 [任天堂排除的所有其他经典](https://gizmodo.com/without-chrono-trigger-the-snes-classic-is-just-a-fanc-1796434315) 呢？如果你家里还有一堆旧的超级任天堂手推车，模拟超级 Nt 应该可以让你在几年前升级到的高清电视上欣赏它们。
 
-Watch
+
 
 超级 nt 是 [模拟 Nt 的必然后续，模拟 Nt 是最初的任天堂娱乐系统](https://gizmodo.com/a-souped-up-nes-clone-ruined-my-childhood-1783929888#_ga=2.242160578.1378749914.1508154860-1040338627.1508154860) 的克隆，具有升级的接口和连接器，这样你就可以在分辨率高得多、端口少得多的现代电视上轻松播放 8 位盒式磁带。与 Analogue Nt 一样，新的 Super Nt 使用一根 HDMI 电缆而不是五六根模拟线连接到您的平板显示器，并采用一个定制芯片，确保您记忆犹新的 16 位图形在您的高清显示器上完美再现。
 

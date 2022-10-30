@@ -4,7 +4,7 @@
 
 上周，Niantic 的约翰·汉克 [警告 *Pokémon Go* 玩家，流行的追踪网站可能在未来不再有效。](http://kotaku.com/pokemon-gos-creators-are-wrong-about-cheating-in-the-ga-1784496384) 看来现在时刻已经到来。
 
-Watch
+
 
 昨天， *Pokémon Go* 收到了一个新的更新，其中， [摆脱了提醒玩家其他怪物在多远产卵的“脚步”机制。](http://kotaku.com/thats-one-way-to-fix-pokemon-gos-three-step-glitch-1784589719) 更新前的机械师成为了 [很多挫折的来源，因为它不准确地显示了最大距离](http://kotaku.com/pokemon-gos-three-step-glitch-makes-tracking-pokemon-im-1783854268) 处的每一个生物——这使得几乎不可能追踪到具体的怪物。
 

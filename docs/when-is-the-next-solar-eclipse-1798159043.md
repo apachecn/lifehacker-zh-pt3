@@ -4,7 +4,7 @@
 
 如果你错过了今天的日食，不要担心，还会有更多的。有些看起来会更有趣。把这当成你未来的日食计划指南。
 
-Watch
+
 
 利用来自 [NASA](https://eclipse2017.nasa.gov/) 和 [维基百科](https://en.wikipedia.org/wiki/List_of_solar_eclipses_in_the_21st_century) ， [的历史数据，泰勒在 MicroStrategy](https://www.microstrategy.com/us/blog/data-visualization/a-century-of-solar-eclipses) 的传达能够拼凑出一张有用的日食图。绿点是今天的“大”日食，红点是未来在美国可以看到的所有日食。圆点的大小是日食的持续时间，而每个圆点在图表上的位置代表日食路径的宽度(或可以看到日食的区域)。
 

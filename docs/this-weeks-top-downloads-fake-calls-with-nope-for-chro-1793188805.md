@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**日复一日帮你坚持“不断链”的方法**](http://lifehacker.com/day-by-day-helps-you-stick-to-the-don-t-break-the-chai-1792955554)
 

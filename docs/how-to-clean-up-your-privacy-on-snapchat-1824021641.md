@@ -4,7 +4,7 @@
 
 Snapchat 推出了 [全新更新](https://www.theverge.com/2018/3/22/17151014/snapchat-map-explore-feature-update-snap-map) ，让你的朋友更容易在它的“快照地图”上找到你尽管你必须选择让你的 Bitmoji 出现在地图上，但这是一个查看你的 Snapchat 隐私设置的好时机(如果你不感兴趣，就和 Snap 地图说再见吧)。
 
-Watch
+
 
 ### 避免快照地图陷阱
 

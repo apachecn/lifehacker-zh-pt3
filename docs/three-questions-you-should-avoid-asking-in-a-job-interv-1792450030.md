@@ -4,7 +4,7 @@
 
 当我是一名招聘人员时，我被问了很多聪明的问题，这些问题让我说，“哇，这个候选人在她的游戏中处于领先地位。”但是我也听到了很多让我想知道这个人接受了谁的面试建议——或者这个人是否曾经寻求过帮助。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/3-interview-questions-youll-be-tempted-to-ask-but-absolutely-should-not) *。*
 

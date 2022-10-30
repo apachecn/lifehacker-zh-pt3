@@ -4,7 +4,7 @@
 
 你汽车的汽油引擎浪费了三分之二的燃料能量作为热量，那么为什么不利用这些能量来做一顿美味的饭菜呢？又好玩又轻松，你也能做到。
 
-Watch
+
 
 我最近读了《多种命运》[*，这是一本很棒的书，详细介绍了如何用汽车发动机烹饪食物。作为一个曾经设计和测试引擎盖下部件热降解的人，我认为我对引擎盖下的热点有相当好的把握，所以自然地，我认为我会成为一名伟大的汽车发动机厨师。*](https://www.amazon.com/dp/1416596232?asc_campaign=InlineText&asc_refurl=https://jalopnik.com/how-to-cook-a-delicious-meal-with-your-car-1775720726&asc_source=&linkCode=ogi&psc=1&smid=ATVPDKIKX0DER&tag=kinjajalopniklink-20&th=1)
 

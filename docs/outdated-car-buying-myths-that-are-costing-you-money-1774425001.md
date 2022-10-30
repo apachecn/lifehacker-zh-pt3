@@ -4,7 +4,7 @@
 
 大约每周我都会看到一篇文章，声称提供“购车技巧”，或声称告诉“经销商不想让你知道的秘密”虽然有些建议很有帮助，但其他建议只是泛泛而谈，可能不会让你得到最好的交易。
 
-Watch
+
 
 这里有一些“规则”经常被抛来抛去，但并不总是有用的。
 
@@ -12,11 +12,7 @@ Watch
 
 我以前讨论过这个话题，但是这条格言仍然有效。这个概念是基于这样一个事实，即汽车一离开停车场就会贬值，因此二手车会比新车便宜。事实是，潜在的节省取决于汽车和市场。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--jalopnik" data-commerce-source="inset">[![Image for article titled These Outdated Car Buying Myths Are Costing You Money](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://jalopnik.com/heres-four-reasons-why-you-should-never-ever-finance-a-1638384343) [###### 以下是你永远不要为新车融资的四个理由](https://jalopnik.com/heres-four-reasons-why-you-should-never-ever-finance-a-1638384343) 
 
-拥有一辆理想的汽车是几乎每个成年人都希望至少经历的一种仪式…
-
-[Read more](https://jalopnik.com/heres-four-reasons-why-you-should-never-ever-finance-a-1638384343)</aside>
 
 我经常会遇到一些客户，他们并不真的想买二手车，而是打算买新车，但他们会说“如果我能通过买一辆 1 年或 2 年的旧车来节省几千美元，我会买的。”
 

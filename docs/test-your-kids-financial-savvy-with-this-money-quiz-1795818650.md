@@ -4,7 +4,7 @@
 
 消费者金融保护局(CFPB)一直让那些利用客户的大银行[发薪日贷款机构](https://www.consumerfinance.gov/about-us/blog/weve-proposed-rule-protect-consumers-payday-debt-traps/) 头疼，但他们一直是消费者和金融知识的优秀倡导者。
 
-Watch
+
 
 最近，CFPB [发布了一项基于国际学生评估项目 PISA 的五题测验](https://www.consumerfinance.gov/about-us/blog/take-our-quiz-see-how-prepared-you-are-make-financial-decisions/) 。PISA 测试 15 岁的孩子对各种话题的了解程度，它 [包括一个关于基本金融知识的部分](http://www.oecd.org/newsroom/launch-of-oecd-pisa-report-on-financial-literacy-wednesday-24-may-11-00-paris-time-cest.htm) ，比如如何阅读发票，解读股票图表，以及处理来自银行和其他金融机构的敏感电子邮件。
 

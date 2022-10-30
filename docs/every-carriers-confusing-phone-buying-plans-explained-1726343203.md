@@ -4,7 +4,7 @@
 
 下次你去买新手机的时候，事情看起来会有很大的不同。受补贴的两年期合同几乎已经死亡，运营商已经用一堆令人困惑的新选项取而代之。以下是 2016 年买手机需要了解的内容。
 
-Watch
+
 
 ***2016 年 1 月:*** *这篇文章已经更新了关于 AT & T 的计划的新信息。截止到 1 月 8 日，& T 将* [*不再有补贴合约*](http://lifehacker.com/at-t-is-killing-off-two-year-contracts-starting-january-1750438092) *，请做好相应计划。或者停止购买运营商的手机，因为* [*真的很烂*](https://lifehacker.com/buying-phones-from-carriers-sucks-and-its-time-for-us-1740266139) *。*
 

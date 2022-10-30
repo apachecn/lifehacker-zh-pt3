@@ -4,7 +4,7 @@
 
 从朋友那里获得了 YouTube 上一个音乐视频的链接，却发现自己无法观看，这真是令人沮丧。你可以用一个非常简单的扩展绕过 YouTube 基于位置的限制，坦白地说，每个人都应该安装这个扩展。叫 [F*ck YouTube](https://chrome.google.com/webstore/detail/fck-youtube/mmbfionaddihoimkpiebodbgfmhjolkf) (因为当然是了)。
 
-Watch
+
 
 根据 [The Next Web](https://thenextweb.com/google/2017/11/29/chrome-google-youtube-region-video/) 的说法，免费的扩展使得在视频托管服务上观看区域锁定的内容就像复制和粘贴 YouTube 视频 URL 一样简单。你看到的不是告诉你你的视频在你的国家不可用的信息，而是 YouTube 扩展试图取消阻止该视频。只需等待几秒钟，它就会发挥它的魔力(好奇的程序员可以在 [Github 用户 AlessandroFC15 的页面](https://github.com/AlessandroFC15) 上查看该扩展的源代码)。无需刷新页面，该扩展会自动加载未阻止的视频。
 

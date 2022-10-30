@@ -4,7 +4,7 @@
 
 内森的妈妈跑得很快，但她的增压黑斑羚跑了。他们有一辆福特 V8，正在考虑换一辆价格适中但有点豪华的车——但也许她对 V8 车的渴望也能在别处找到。他们应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

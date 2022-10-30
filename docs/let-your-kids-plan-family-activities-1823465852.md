@@ -4,7 +4,7 @@
 
 当你的孩子不在学校时，事情会变得有些杂乱无章。为了防止屏幕时间给你带来的春夏假期，我认识的许多父母都在他们的日历上安排课程、夏令营和 [家庭外出日](https://offspring.lifehacker.com/its-time-to-admit-that-the-family-day-out-is-really-n-1798407048) 。但是假设你，妈妈或爸爸，独自负责计划活动并不能真正帮助任何人。这给你带来了压力，也把你的孩子推到了众所周知的后座。他们耸耸肩，认为别人应该对他们生活中的快乐和失望负责。
 
-Watch
+
 
 在为使用 GTD 工作-生活管理系统的人举办的 [成事播客](https://gettingthingsdone.com/2016/06/episode-18-sharing-gtd-with-kids-teens/) 中，教练 Meg Edwards 和 Mike Williams 讲述了让你的孩子参与计划过程的技巧。(我想说，即使你不经常练习 GTD，也值得一试。)活动采用了 [让它发生](https://gettingthingsdone.com/wp-content/uploads/2014/10/MakeItUp.pdf) 的原则。这很有趣，它让每个人都在思考，它教会孩子们可以把他们头脑中的疯狂想法变成现实。
 

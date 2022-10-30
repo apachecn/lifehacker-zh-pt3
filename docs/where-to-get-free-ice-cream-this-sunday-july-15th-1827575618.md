@@ -4,7 +4,7 @@
 
 七月是全国冰淇淋月，周日是全国冰淇淋日，所以是打折的时候了。 [Refinery29](https://www.refinery29.com/2018/07/203409/national-ice-cream-day-2018-deals-freebies) 和 [U.S. News](https://money.usnews.com/money/blogs/my-money/articles/2018-07-12/best-freebies-and-deals-for-national-ice-cream-day-2018) 都有提供免费和打折冰淇淋的连锁店名单。有些交易只在周日进行，有些会持续到下周，有些会持续整个月。
 
-Watch
+
 
 前景并不像 [全国甜甜圈日](https://lifehacker.com/where-to-get-free-donuts-today-1826482171) 那么美好，当几家全国连锁店发放免费甜甜圈时，有些只是让你先买杯咖啡。到目前为止，只有两个真正免费的全国性交易:在 Dippin' Dots 玩两个小时的“迷你杯”，如果你下载了 Dairy Queen 应用程序，还可以免费玩一场小暴雪。
 

@@ -4,7 +4,7 @@
 
 自从他的女儿艾玛上小学以来，w .加思.卡拉汉就在餐巾纸上记下鼓舞人心的名言和父亲的智慧，然后把笔记放进她的午餐盒。这成了他们特别的东西，他们联系的方式。他想确保艾玛在毕业前的每一天都能读到她父亲写的便条——即使她已经不在了。
 
-Watch
+
 
 自 2011 年以来，卡拉汉已被诊断出五次患有癌症。他相信这些餐巾纸可能是艾玛留给他的唯一的东西。他写的回忆录 [*餐巾纸笔记:让午餐变得有意义，生活会跟着*](https://www.amazon.com/Napkin-Notes-Lunch-Meaningful-Follow/dp/0062363433?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-w-garth-callaghan-napkin-notes-dad-and-this-is-ho-1827618994&asc_source=&tag=kinjalifehackerlink-20)*其中瑞茜·威瑟斯彭正在改编成电影。今年秋天，当卡拉汉准备送艾玛去上大学时，他反思了自己是如何为人父母的。*
 

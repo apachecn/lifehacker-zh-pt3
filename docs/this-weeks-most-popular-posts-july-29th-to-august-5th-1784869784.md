@@ -4,7 +4,7 @@
 
 本周，微软对 Windows 10 进行了重大更新，我们探索了所有很酷的新功能。我们还尝试用益智“智能”药物提升自己，比较两位总统候选人的网络安全平台，与作家玛丽·罗奇交谈，等等。这里回顾一下。
 
-Watch
+
 
 ## [**Windows 10 周年更新的所有最酷功能**](http://lifehacker.com/all-the-coolest-features-of-windows-10s-anniversary-upd-1784698775)
 

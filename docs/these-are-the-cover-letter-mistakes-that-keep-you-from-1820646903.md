@@ -4,7 +4,7 @@
 
 我们都有在网上申请工作的经历——你把简历和求职信提交到某个在线招聘门户网站的黑暗深渊，除了自动生成的“感谢申请！”电子邮件，你再也听不到雇主的任何声音。
 
-Watch
+
 
 “他们收到了上百万份申请，别往心里去，”你的朋友告诉你。是的，这是真的，他们可能确实收到了一百万份申请，这就是为什么有那么多关于如何 [写](http://lifehacker.com/how-to-write-a-cover-letter-that-employers-will-actuall-5880545) [封面](http://lifehacker.com/write-your-cover-letters-like-your-job-depends-on-it-b-479770619) [字母](http://lifehacker.com/write-your-cover-letter-like-an-acceptance-speech-1587406177) 和工艺[视觉上吸引人的](http://lifehacker.com/this-tool-helps-make-your-resume-visually-appealing-1709672920)[行动导向的](http://lifehacker.com/highlight-your-impact-not-your-tasks-for-a-better-res-1780559134) [简历](http://lifehacker.com/improve-your-resume-with-this-simple-formula-recommende-1566107526) 让你脱颖而出的文章。
 

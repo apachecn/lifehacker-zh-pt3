@@ -4,7 +4,7 @@
 
 你已经做了调查。你试驾过各种各样的摩托车。你知道你想要什么。因此，现在你正在检查你的信用评分，看看什么样的利率，你可以开始支付你的第一辆自行车。好主意，对吧？实际上，一点也不。
 
-Watch
+
 
 我们在这里发布了许多针对新的和有抱负的骑手的故事，虽然它们包含了关于 [自行车选择](https://jalopnik.com/how-to-buy-your-first-motorcycle-1775932586)[骑行装备](http://gizmodo.com/everything-you-ever-wanted-to-know-about-motorcycle-sa-1596858706) 和 [培训课程](http://lanesplitter.jalopnik.com/how-to-start-riding-motorcycles-for-real-after-you-do-t-1789977333) 的宝贵建议，但我想在集锦中增加一点智慧:永远不要为你的第一辆摩托车融资。
 

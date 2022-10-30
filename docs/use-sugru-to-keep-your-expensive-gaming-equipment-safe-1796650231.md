@@ -4,7 +4,7 @@
 
 [娃儿和](http://vitals.lifehacker.com/how-to-make-screen-time-rules-that-work-for-your-family-1789243170) 通常不会混在一起。多亏了我的兄弟姐妹，我有不止一个坏掉的耳机插孔和一个丢失的 iPod。随着我的 [家人本周来访](http://lifehacker.com/how-to-visit-family-without-being-treated-like-a-kid-1748051426) ，我的妹妹将会寻找一些控制器形状的东西来玩并迅速拆除。因此，我正在用一些 [Sugru](http://lifehacker.com/im-jane-ni-dhulchaointigh-inventor-and-ceo-of-sugru-a-1741898770) 为我客厅的游戏控制器做准备，这种硅胶和橡胶粘合油灰可以让你定制你拥有的基本所有东西。
 
-Watch
+
 
 嗯，我不会定制我目前的 PS4 控制器。那些要放在盒子里。我在 Sugru 给旧的 Xbox 360 控制器涂上涂层，确保它们能够经受住实际儿童的挑战。
 

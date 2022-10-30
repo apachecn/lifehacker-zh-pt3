@@ -4,7 +4,7 @@
 
 macOS(还有我们写完这个之后， [Windows](https://blog.agilebits.com/2018/05/29/1password-7-for-windows-the-best-ever/) ！):几年前，AgileBits 发布了其杀手级密码管理应用程序 [1Password](https://1password.com/downloads/) 的重大更新，这就是为什么大家对 1Password 7 上周的首次亮相如此兴奋。在这一点上，这个应用程序应该是一个家喻户晓的名字，因为它是我们推荐的创建和存储超级安全的 [密码和密码短语](https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324) 的主要密码管理器之一。
 
-Watch
+
 
 如果您没有使用 1Password，您可能会使用 LastPass 等应用程序，该应用程序允许您在您的设备之间存储和同步密码，而无需支付月费。尽管如此，每月 3 美元对于 1Password 提供的便利性和安全性来说并不算多，而且您可以在它的最新版本中找到所有有趣的新功能。
 

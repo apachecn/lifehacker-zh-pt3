@@ -4,7 +4,7 @@
 
 当你为美国的下一次日全食等待七年时，看看《纽约时报》 [天文事件日历](https://www.nytimes.com/interactive/2017/science/astronomy-space-calendar.html) 。订阅，永远不会错过另一场流星雨，火箭发射，或至日。
 
-Watch
+
 
 下一个列出的事件是一个有趣的事件:9 月 15 日，卡西尼飞船(如上图所示)将在发射 20 年后撞上土星。
 

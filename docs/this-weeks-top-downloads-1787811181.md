@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**如何在任何运行安卓牛轧糖的手机上获得谷歌助手**](http://lifehacker.com/how-to-get-google-assistant-on-any-phone-running-androi-1787706402)
 

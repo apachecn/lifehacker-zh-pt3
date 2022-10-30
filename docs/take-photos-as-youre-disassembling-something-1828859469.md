@@ -4,7 +4,7 @@
 
 任何时候搬家，你都可以选择把宜家家具塞进门里，或者把它拆成便于管理的部件。后一种选择通常更好，但它也有自己的挑战。
 
-Watch
+
 
 Reddit 用户 [u/SillyCyban](https://www.reddit.com/user/SillyCyban) 向任何在 r/LifeProTips 上拆开自己物品的人提供了一条非常简单的 [建议](https://www.reddit.com/r/LifeProTips/comments/9ddfvw/lpt_before_starting_a_repair_job_that_requires/) :
 

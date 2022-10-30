@@ -4,7 +4,7 @@
 
 几年前，我计划去另一个城市见一些朋友。我提前两个月预订了 [酒店](https://lifehacker.com/book-each-night-separately-at-a-hotel-to-get-the-best-r-1695156362) (这对我来说是罕见的)，并对自己的准备工作感到非常满意。直到我发现一个在我之后预订的朋友付的钱更少。事实证明，酒店价格、 [就像机票](https://twocents.lifehacker.com/cheapair-s-when-to-buy-tool-tells-you-the-prime-booki-1761388673) 一样，是会波动的——有时在游戏后期会出现更好的交易。
 
-Watch
+
 
 今天早些时候，技术公司 [Service](https://getservice.com/) 提出了解决这一困境的方法:它会监控你的酒店预订率，如果预订率下降，它会自动为你重新预订。(从而使你成为最得意的人。)
 

@@ -4,7 +4,7 @@
 
 [密码管理服务](http://lifehacker.com/the-five-best-password-managers-5529133) 像 [LastPass](http://lifehacker.com/you-can-now-use-lastpass-on-multiple-devices-for-free-1788458452) 和 [1Password](https://lifehacker.com/the-beginners-guide-to-1password-1794464866) 都很棒，因为它们可以通过使用一个加密的主密码轻松保护你的所有在线账户……至少在理论上是这样。
 
-Watch
+
 
 LastPass 是最受欢迎的选项之一，在过去几年里，它已经受到了多次安全漏洞和问题的冲击。最近，三月的一个让黑客窃取密码成为可能的重大漏洞被揭露。对此，LastPass 告诉用户保持高度警惕，直到问题最终得到解决。另一个由 LastPass 浏览器扩展中的一些坏代码引起的漏洞利用早一年[2016](https://labs.detectify.com/2016/07/27/how-i-made-lastpass-give-me-all-your-passwords/)[2015](https://arstechnica.com/information-technology/2015/06/hack-of-cloud-based-lastpass-exposes-encrypted-master-passwords/)公司确认了一个全面的安全漏洞。
 

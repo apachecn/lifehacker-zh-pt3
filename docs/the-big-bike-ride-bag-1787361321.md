@@ -4,7 +4,7 @@
 
 几周前，我冒险骑了 135 英里的自行车穿越南加州的群山。很难决定到底要带些什么，但我选择了这些。
 
-Watch
+
 
 [我们的 Flickr 池最近有点安静](https://www.flickr.com/groups/2301352@N21/pool/) ，所以我想在这里分享一下我自己的。包包分别是一个 [路跑者卷饼至尊](https://roadrunnerbags.us/products/burrito-supreme-handle-bar-bag) 车把包和一个 [路跑者绘图员鞍座包](https://roadrunnerbags.us/products/the-drafter-saddle-bag) 。事实证明，至尊墨西哥卷饼非常适合像这样的长途旅行，而且提供了足够的空间吃零食，不会太碍事。沿途只有两个加油站，一个在起点，一个在中间，所以零食是打包的重要东西。这是里面的东西:
 

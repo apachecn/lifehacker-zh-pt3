@@ -4,7 +4,7 @@
 
 对我们大多数人来说，最好的跑步鞋是 [，穿上它跑起来感觉最好的是](https://lifehacker.com/pick-running-shoes-based-on-comfort-to-prevent-foot-inj-1449138178) 。但是鞋类公司声称，某些鞋子——尤其是耐克 250 美元的[Zoom vapor fly 4%](https://www.nike.com/t/zoom-vaporfly-4-unisex-running-shoe-DNTBov7o)——可以帮你节省很多能量，甚至让你跑得更快。现在，我们终于有数据来回答这个问题，看起来耐克不是在虚张声势。
 
-Watch
+
 
 我们必须清楚这项研究中的偏见:耐克公司资助了它。但是这些实验是在一个受人尊敬的实验室中进行的，亚历克斯·哈钦森在《T2》在线报道说，结果显示跑步者需要更少的氧气，这意味着他们没有努力工作。这意味着节省能量，你可以用它来推动自己走得更快。研究的全文是 [此处可用](https://link.springer.com/article/10.1007/s40279-017-0811-2) 。
 

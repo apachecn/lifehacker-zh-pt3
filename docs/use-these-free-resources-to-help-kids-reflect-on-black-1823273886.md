@@ -4,7 +4,7 @@
 
 *黑豹，*几乎全是黑人演员，鼓舞着观众——看到 [黑人孩子看电影](https://www.huffingtonpost.com/entry/these-photos-of-black-kids-watching-black-panther-highlight-need-for-this-film_us_5a8ee853e4b005bb0fef340e) 的照片是纯粹的快乐。在教室和餐桌上，这部电影开启了关于不公正、政治和变革的对话。
 
-Watch
+
 
 [黑豹挑战](https://blackpantherchallenge.org/) ，这是一个让更多孩子进入影院观看*【黑豹】*的运动，提供 [免费在线资源](https://blackpantherchallenge.org/kids/resources) 帮助孩子、青少年和成年人反思这部电影。
 

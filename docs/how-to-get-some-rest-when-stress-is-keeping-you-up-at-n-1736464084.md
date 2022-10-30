@@ -4,7 +4,7 @@
 
 现在是半夜，你知道你应该睡觉，但你不能。有什么事情让你睡不着觉:也许一个同事想把你扔到公共汽车底下，或者你的朋友说了一些粗鲁的话。不管是什么，你都忘不了，明天工作需要睡觉。糟透了。
 
-Watch
+
 
 我也经历过那些夜晚，它们是最糟糕的。也不一定是什么严重的事情让你睡不着。有时候很小；挖苦的评论或断言你没有做好你的工作。其他时候可能很严重，比如听到小道消息说某个重要的人说了一些关于你的不健康的话。再加上哪怕一点点压力和焦虑，你的大脑就会在最糟糕的时候——午夜——去参加比赛。我敢打赌你也去过那里。
 
@@ -22,11 +22,7 @@ Watch
 
 问题来了。当你在凌晨安静的时候，所有这些焦虑、愤怒的想法在你的脑海中盘旋，你可能最不想去的地方就是你自己的头脑中。如果你是冥想 的 [专家，你可以克服周围环境的寂静、房屋沉降的嘎吱声、公寓窗外的警报声以及你纷乱的思绪——真正放松下来。另一方面，如果你凌晨 2 点起床阅读关于压力的博客文章，并且之前从未冥想过，你需要一些没有学习曲线的东西。](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Get Some Rest When Stress Is Keeping You Up at Night](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) [###### 为什么冥想应该是你大脑的“定期维护”](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) 
 
-从技术上来说，睡眠已经是我们大脑的定期维护，但如果有任何…
-
-[Read more](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329)</aside>
 
 如果你在家里有一些忙碌的工作要做，现在是做的好时机。轻度清洁(当然，如果不会吵醒邻居、孩子或你的配偶)，整理，甚至在弱光下阅读都是不错的选择。点燃你积压的播客或有声读物，让美妙的 [这种美国生活](http://www.thisamericanlife.org/) 的音调哄你入睡。试试像 [和我一起睡](http://www.sleepwithmepodcast.com/) 这样的播客，它是专门为帮助你放松和休息而设计的。你甚至可以 [尝试冥想着色](http://vitals.lifehacker.com/try-meditative-coloring-to-help-ease-stress-and-anxiety-1734692552) ，这对缓解当下的焦虑和压力大有裨益。尽量选择有趣有思想的，但不要太刺激的。
 
@@ -40,11 +36,7 @@ Watch
 
 如果无论我们说什么，你都必须拿起手机或打开笔记本电脑，请调低亮度，或者安装类似于 [f.lux](http://stereopsis.com/flux/) (适用于 Windows、OS X、iOS 和 Linux)或 [Twilight](https://play.google.com/store/apps/details?id=com.urbandroid.lux) (适用于 Android)的应用程序。)两者都可以根据一天中的不同时间调整显示器的色温，让眼睛感觉舒适。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Get Some Rest When Stress Is Keeping You Up at Night](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/is-e-ink-really-better-for-my-eyes-than-my-ipad-30791836) [###### E-Ink 对我的眼睛真的比我的 iPad 好吗？](https://lifehacker.com/is-e-ink-really-better-for-my-eyes-than-my-ipad-30791836) 
 
-亲爱的生活黑客，我听说屏幕明亮的平板电脑——比如 iPad——会导致眼睛疲劳和…
-
-[Read more](https://lifehacker.com/is-e-ink-really-better-for-my-eyes-than-my-ipad-30791836)</aside>
 
 这些都不是完美的解决方案，但我们在这里将是现实的。对于我们许多人来说，当我们睡不着的时候，我们做的第一件事就是拿起手机，花几分钟时间阅读 Twitter，喜欢 Instagram 上的照片，或者观看有趣的 YouTube 视频来放松。没关系——只要确保一旦你平静下来，你就给自己一个最好的机会获得宁静的睡眠。
 

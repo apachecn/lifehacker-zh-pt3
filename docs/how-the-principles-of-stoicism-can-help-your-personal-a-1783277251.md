@@ -4,7 +4,7 @@
 
 也许比其他任何话题都重要，我从被称为斯多葛派的哲学思想中发现了难以置信的个人价值。我发现斯多葛主义对于驾驭现代世界，同时保持任何表面的自我控制是无价的。我认为斯多葛派的思想是我自己财务生活(以及个人生活)的重要组成部分。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/how-stoicisms-principles-can-help-you-transform-your-financial-life/) *上。*
 

@@ -4,13 +4,9 @@
 
 大多数人与家人、朋友和爱人一起度过假期。如果你在一年中的这个时候远离家人、朋友或爱人，很难不想家。以下是几种应对方法。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What to Do When You’re Feeling Homesick Around the Holidays](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-decide-whose-family-to-visit-for-the-holidays-1653985239) [###### 如何决定假期去拜访谁的家人](https://lifehacker.com/how-to-decide-whose-family-to-visit-for-the-holidays-1653985239) 
 
-假期即将来临，你和你的另一半等待计划的时间越长，你就越…
 
-[Read more](https://lifehacker.com/how-to-decide-whose-family-to-visit-for-the-holidays-1653985239)</aside>
 
 ### 开始一项新的传统，比如做志愿者
 

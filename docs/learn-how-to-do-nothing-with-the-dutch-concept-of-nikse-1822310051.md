@@ -4,7 +4,7 @@
 
 在丹麦的舒适概念“hygge”和瑞典的鼓励平衡生活的“T2 T3”之间，有许多时髦的北欧生活方式，支持者声称它们会让你成为一个更好的人。但是，如果你的问题不在于寻找快乐，而在于忽略你头脑中那些唠叨的声音，你可能会想稍微往南走一点，去体验一下荷兰人对“尼克森”的概念。
 
-Watch
+
 
 Niksen 是一种来自荷兰的减压方法，字面意思是什么都不做，或者无所事事。在(非)实践中，这意味着“做一些没有目的的事情，比如盯着窗外，闲逛，或者听音乐，”Carolien Hamming，CSR Centrum 的一名教练，一个致力于对抗压力和倦怠的组织，告诉[Olga Mecking](https://woollymag.com/author/olga-mecking)for[*Woolly Magazine*](https://woollymag.com/culture/the-new-dutch-trend-thats-better-than-hygge.html)*，*我在那里遇到了这个概念。
 

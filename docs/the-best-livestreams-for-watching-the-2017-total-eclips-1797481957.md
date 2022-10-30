@@ -4,7 +4,7 @@
 
 2017 年 8 月 21 日将发生日全食，这是近百年来的第一次，从 [美国大陆](http://lifehacker.com/this-tool-shows-you-exactly-what-the-eclipse-will-look-1797235950) 的大部分地区都可以看到月球毫不掩饰的太阳阻挡力(尽管 [某些位置](http://lifehacker.com/how-and-where-to-watch-the-solar-eclipse-in-august-1796176093#_ga=2.123347211.1689379943.1501711108-234471903.1501503509) 当然会比其他位置更有利)。警告: [不要用肉眼直视](https://eclipse2017.nasa.gov/safety) 而是使用 [认证日食眼镜](https://lifehacker.com/watch-out-for-counterfeit-solar-eclipse-glasses-1797430021) 或者这里介绍的 [针孔法](https://eclipse2017.nasa.gov/safety) 。
 
-Watch
+
 
 在美国，日食将从西向东穿越整个国家，最佳视角开始于俄勒冈州林肯海滩太平洋时间上午 9 点 05 分左右，根据美国宇航局 的 [，全天向东南移动，于美国东部时间下午 2 点 48 分在南卡罗来纳州查尔斯顿附近结束(在这里输入](https://eclipse2017.nasa.gov/eclipse-who-what-where-when-and-how) [你的位置](https://www.timeanddate.com/eclipse/map/2017-august-21) 找到什么时间可以仰望)。
 

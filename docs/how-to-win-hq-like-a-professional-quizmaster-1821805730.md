@@ -4,7 +4,7 @@
 
 看完专业琐事作家保罗·帕凯 的 [这篇分析，我对琐事游戏](http://nymag.com/selectall/2017/12/trivia-expert-paul-paquet-knows-the-secret-to-hq.html)[HQ](https://twitter.com/hqtrivia)([iOS](https://itunes.apple.com/us/app/hq-live-trivia-game-show/id1232278996?mt=8)和 [Android](https://play.google.com/store/apps/details?id=com.intermedia.hq) )多了很多敬意。在阅读了他的建议后，我也觉得更有把握获胜。
 
-Watch
+
 
 帕凯为 Encarta、QuizUp、*约翰叔叔的浴室阅读器*和*琐碎的追求*写了琐事材料，还经营着一个酒吧智力竞赛联盟。他赞扬了总部简洁的问题，指出了他们必须面对的极端限制。
 

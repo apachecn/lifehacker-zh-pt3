@@ -4,7 +4,7 @@
 
 包括专门的胸部例行锻炼将改善你的上身力量，姿势和信心。不幸的是，许多女士基于被误导的观念，对恐惧给胸部带来的好处不以为然。以下是你需要知道的关于胸部锻炼的知识，以及它们是如何影响你的——咳咳——胸部的。
 
-Watch
+
 
 首先，快速解剖课:你的胸部由两块主要肌肉组成，称为胸大肌和胸小肌(我们简称它们为胸肌)。那些赤膊的男性健身模特有着巨大的金刚胸，他们的胸肌非常发达，是两个人中肌肉比较大的一个。是的，我们女人也有同样的胸肌！
 
@@ -52,11 +52,7 @@ Watch
 
 好消息是，你可能已经在训练你的胸部了，甚至没有意识到这一点。俯卧撑和其他运动，如哑铃挤压，锻炼你的手臂，是的，但主要是你的胸部。请记住，胸部练习不必复杂。 [俯卧撑](http://vitals.lifehacker.com/what-to-do-if-push-ups-hurt-your-wrists-1716150180) 是一个梦幻般的起点(真的对任何人来说)；像卧推和胸肌腾空这样屡试不爽的运动也很棒。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Ladies: Don&#39;t Be Afraid of Chest Workouts](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/are-bodyweight-exercises-effective-1684200011) [###### 体重练习有效吗？](https://lifehacker.com/are-bodyweight-exercises-effective-1684200011) 
 
-亲爱的生活黑客，我喜欢不用额外设备就能锻炼身体的想法，但是有些…
-
-[Read more](https://lifehacker.com/are-bodyweight-exercises-effective-1684200011)</aside>
 
 在帮助她的客户增强上肢力量时，Kate 喜欢确保他们首先能够在预期的最大范围内活动上半身的关节，尤其是肩膀。(凯特在她的 [视频](https://www.youtube.com/watch?v=yGjnKQgf2Ls) 中展示了一个保持肩关节健康的好方法。)她这样做是为了防止过度使用或一般性肩部损伤，并提醒你应该:
 

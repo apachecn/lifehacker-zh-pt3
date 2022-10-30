@@ -4,7 +4,7 @@
 
 亚马逊超过一半的销售额来自第三方商品。但是那些物品上的评论都是 [不可信](https://lifehacker.com/heres-why-amazon-cant-fix-review-spam-1825955852) 。继 [BuzzFeed 新闻报道](https://www.buzzfeednews.com/article/nicolenguyen/amazon-fake-review-problem) 关于亚马逊虚假评论的怪异世界之后，播客回复 All [采访了一位虚假评论作者](https://www.gimletmedia.com/reply-all/124#episode-player) ，他揭露了“虚假评论的特征”
 
-Watch
+
 
 在所有的赞扬之后，一个虚假的评论通常包括“一个容易被忽略的负面的东西。”也许一副太阳镜如果你不清洗会变脏，或者如果你用力不够，手机壳不会扣上。那种只有白痴才会注意到或抱怨的瑕疵——正是真正的顾客会抱怨的那种瑕疵。评审者可以撒谎说真正的缺陷很容易修复。
 

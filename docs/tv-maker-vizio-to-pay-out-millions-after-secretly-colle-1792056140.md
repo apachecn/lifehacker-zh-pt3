@@ -4,7 +4,7 @@
 
 美国联邦贸易委员会 [今天宣布](https://www.ftc.gov/news-events/press-releases/2017/02/vizio-pay-22-million-ftc-state-new-jersey-settle-charges-it?utm_source=govdelivery) 已经与 Vizio 达成和解，该公司指控 Vizio 在其智能电视收集的数据方面误导消费者。Vizio 同意支付 220 万美元的罚款，包括向 FTC 支付 150 万美元，向新泽西州消费者事务部门支付 100 万美元，其中 30 万美元暂停支付。
 
-Watch
+
 
 这起诉讼集中在 Vizio 的“智能互动”功能上，该公司称该功能“能够提供程序和建议”。听起来很棒！我喜欢提议和建议，我的朋友和家人也是如此！
 
@@ -18,11 +18,7 @@ Watch
 
 与此同时，Vizio 没有告知消费者它正在收集数据，也没有对收集的内容做出任何解释。2014 年 8 月之后购买的电视根本没有显示跟踪功能已启用的通知，2014 年更新的电视收到的通知没有告诉消费者智能互动功能实际上在做什么，只是说它已启用，可以通过设置禁用。30 秒后，屏幕上的通知消失了。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--gizmodo" data-commerce-source="inset">[![Image for article titled TV Maker Vizio to Pay Out Millions After Secretly Collecting Customer Data](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/samsungs-smart-tv-privacy-policy-raises-accusations-of-1684534051) [###### 三星智能电视隐私政策引发数字间谍指控](https://gizmodo.com/samsungs-smart-tv-privacy-policy-raises-accusations-of-1684534051) 
 
-这一切都始于三星智能电视安全政策中的一句话。的…
-
-[Read more](https://gizmodo.com/samsungs-smart-tv-privacy-policy-raises-accusations-of-1684534051)</aside>
 
 在一份声明中，Vizio 表示，在获得消费者对数据收集的同意方面，它现在处于“领先地位”:
 

@@ -4,7 +4,7 @@
 
 你可能认为短期财务计划——比如为度假存钱，或者把一个月的额外工资存进应急基金——并不难做到。毕竟，你只需要在有限的时间内勒紧裤腰带。此外，结果来得更快，这激励你坚持到底。
 
-Watch
+
 
 *本帖原载于*[*learn vest*](https://www.learnvest.com/2016/11/are-you-sabotaging-your-short-term-money-goals/)*。*
 

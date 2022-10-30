@@ -4,7 +4,7 @@
 
 iOS:当然， [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 有无边框屏幕和 [面部识别安全](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) ，但该设备最受关注的功能可能只是。唯一的问题？Animoji 卡在苹果的信息应用程序中，长度限制在 10 秒。
 
-Watch
+
 
 令人欣慰的是，有人只用了几天时间就创建了一个独立的 20 秒时限的 Animoji 应用程序，如果你愿意做一些额外的工作，现在可以下载了。
 

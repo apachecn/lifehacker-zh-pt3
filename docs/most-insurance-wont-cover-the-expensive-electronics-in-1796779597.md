@@ -4,7 +4,7 @@
 
 随着 [电子产品禁令在](https://www.dhs.gov/news/2017/03/21/fact-sheet-aviation-security-enhancements-select-last-point-departure-airports) 对大多数来自中东和北非的航班实施，以及 [笔记本电脑禁令的威胁笼罩着我们的头顶](http://jalopnik.com/the-u-s-will-expand-the-laptop-ban-to-71-more-internat-1796090221#_ga=2.167813924.440406047.1499703745-27973805.1434581949) ，在即将到来的航班上，你很有可能不得不将昂贵的电子产品与行李一起托运。可惜你无法弥补损失或损害。
 
-Watch
+
 
 无论你是否被迫检查你的笔记本电脑，航空公司都坚决不承担任何损坏、盗窃或物品丢失的责任。它包含在你每次飞行时同意的所有主要航空公司的运输合同中。例如， [美联航](https://www.united.com/web/en-US/content/contract-of-carriage.aspx#sec23) ， [美航](https://www.aa.com/i18n/customer-service/support/conditions-of-carriage.jsp#baggageliability) 和 [达美](https://www.delta.com/content/dam/delta-www/pdfs/legal/contract_of_carriage_dom.pdf) 几乎都在说同样的话:我们会运输它，但我们不对它负责。如果你的东西在运输途中出了什么事，你就完了。
 

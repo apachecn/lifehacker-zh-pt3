@@ -4,7 +4,7 @@
 
 读者[snovcrash](http://kinja.com/snovvcrash)在我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 分享了这个定制的桌面，它也让我们感觉像在飞。以下是如何在你的电脑上获得相同的外观。
 
-Watch
+
 
 snovcrash正在使用雨量计，如果你不熟悉， [我们的入门指南](http://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 可以帮你解决。
 

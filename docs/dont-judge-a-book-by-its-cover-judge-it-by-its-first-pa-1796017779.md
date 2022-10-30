@@ -4,7 +4,7 @@
 
 [【Recommendmeabook.com】](http://www.recommendmeabook.com/)向你展示一本随机流行书籍的第一页，去掉了识别信息。喜欢的话，揭盖；如果没有，请点按“下一本书”
 
-Watch
+
 
 比如:你觉得这个怎么样？
 

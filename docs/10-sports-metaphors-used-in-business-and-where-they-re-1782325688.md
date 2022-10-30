@@ -4,13 +4,9 @@
 
 体育行话渗透到生活的许多方面，尤其是商业领域。你可能在办公室里听到过这些话，比如“倒计时”或者某个项目是“灌篮”以下是这些流行体育短语的词源，对于外行人来说，它们真正的意思是什么。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled 10 Sports Metaphors Used in Business, and Where They Really Came From](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138) [###### 我怎样才能学到足够的体育知识来和别人交谈？](https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138) 
 
-亲爱的 Lifehacker，每个人都在办公室谈论体育。我不是特别感兴趣，但是…
 
-[Read more](https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138)</aside>
 
 ### 球在他们的球场上
 
@@ -90,11 +86,7 @@ Watch
 
 如果你在工作中“丢了球”，这意味着你已经 [犯了一个大错误](https://lifehacker.com/how-to-handle-big-time-mess-ups-at-work-1623238231) ，你或者你的同事将会为此付出代价。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled 10 Sports Metaphors Used in Business, and Where They Really Came From](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-handle-big-time-mess-ups-at-work-1623238231) [###### 如何处理工作中的大混乱](https://lifehacker.com/how-to-handle-big-time-mess-ups-at-work-1623238231) 
 
-犯错是人之常情，有时当我们意识到自己在工作中犯了错误时，我们会发现…
-
-[Read more](https://lifehacker.com/how-to-handle-big-time-mess-ups-at-work-1623238231)</aside>
 
 ### **稳操胜券**
 

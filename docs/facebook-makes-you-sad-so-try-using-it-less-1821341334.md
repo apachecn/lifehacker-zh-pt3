@@ -4,7 +4,7 @@
 
 欢迎来到狗屁抵抗学校的特别版。今天的课是受脸书 [的一个帖子的启发，他承认脸书对你的心理健康有害](https://newsroom.fb.com/news/2017/12/hard-questions-is-spending-time-on-social-media-bad-for-us/) 。总之，他们希望你多使用脸书。等等，什么？
 
-Watch
+
 
 以下是脸书研究人员的发现:
 

@@ -4,7 +4,7 @@
 
 苹果在发布 AirPods 时粉碎了一个大问题。多年来，各公司一直试图制造真正的无线耳塞，但都失败了。但是后来苹果出现了，就像这样，“他们在这里！”现在，轮到博斯了。新款 SoundSport 免费无线耳塞 外观时尚、功能强大且可靠。Bose buds 可以做 AirPods 做不到的 [事情](https://gizmodo.com/apple-airpods-are-too-simple-for-their-own-good-1790271698) 。它们也是 250 美元。
 
-Watch
+
 
 先把这个价格放在脑后，想象一下你想要一副完全无线的耳塞。对我来说，最重要的是连接性。如果耳塞努力与你的设备或彼此保持连接， [它们基本上毫无价值](https://gizmodo.com/these-completely-wireless-jaybird-headphones-are-almost-1803758431) 。(由于苹果专有的 W1 芯片，AirPods 可靠的蓝牙连接是这些无线耳塞成功的一大原因。)一个仅次于良好蓝牙性能的绝佳契合点。如果耳塞不在你的耳朵里，又何必呢？最后，还有经典的耳机材料:音质、可用性和耐用性。
 

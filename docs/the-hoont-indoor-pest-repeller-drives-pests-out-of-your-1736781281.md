@@ -4,7 +4,7 @@
 
 不管你住在乡村、城市还是郊区，你都有可能在你的生活空间里与各种各样的害虫战斗。我已经尝试了书中的每一种害虫控制技巧，到目前为止，最容易和最简单的工具就是这个电磁和超声波插件。
 
-Watch
+
 
 这是名为 Lifehacker 评论一切的新系列的第一篇文章。我们 [*问你想让我们回顾什么*](http://lifehacker.com/the-lifehacker-staff-will-review-anything-you-want-1733408447#_ga=1.106133379.127976026.1441054335) *，你带回了很多想法——*[*包括*](http://lifehacker.com/the-ultrasonic-pest-repeller-http-www-amazon-com-rid-1733435416) *一款我自己已经在试用的产品:* [*Hoont 室内驱虫器*](http://smile.amazon.com/Hoont-Indoor-Powerful-Plug-Repeller/dp/B010KJ9OUW?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-hoont-indoor-pest-repeller-drives-pests-out-of-your-1736781281&asc_source=&tag=kinjalifehackerlink-20) *。*
 

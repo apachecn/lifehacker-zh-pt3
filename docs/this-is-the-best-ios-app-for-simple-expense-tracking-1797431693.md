@@ -4,7 +4,7 @@
 
 iOS:我从来都不擅长理财。但现在我即将成为一名父亲，我突然发现有必要知道这一切将走向何方。是的，有很多广受好评的预算和费用跟踪应用程序 ，比如 [Mint](http://twocents.lifehacker.com/an-intermediates-guide-to-getting-more-out-of-mint-1696389687) 和 [你需要预算(YNAB)](https://lifehacker.com/budgeting-software-showdown-mint-vs-you-need-a-budget-1764607246) 。我和妻子用前者做家庭预算，它的功能很棒——允许我们按类别查看日常支出，设置自动账单支付，跟踪我们的收入，并计划储蓄。
 
-Watch
+
 
 问题是，我还想要更简单的东西:它不会与我的银行账户和信用卡关联，也不会随着我的每一笔交易自动更新。为什么？因为对我来说，这些自动化应用程序消除了跟踪我自己支出的责任感。我想要的东西需要我手动输入我的所有支出，迫使我在支出发生时正视它。进入名副其实的 [费用](https://itunes.apple.com/us/app/expense-spending-tracking-made-easy/id1020335225?mt=8) ，这是一款直观、设计精美的免费费用追踪应用，适用于运行 iOS 8 及以上版本的苹果移动设备。
 

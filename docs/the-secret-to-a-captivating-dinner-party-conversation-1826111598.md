@@ -4,7 +4,7 @@
 
 晚餐聚会通常是不同的人聚在一个屋檐下喝提神饮料，吃美味的家常菜。正因为如此，谈话只能是对每个人的谋生之道的尴尬解释。你可以做得更好！以这种方式开始。
 
-Watch
+
 
 根据《谈得好的人》[](https://www.amazon.com/dp/B00329UW5E/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-secret-to-a-captivating-dinner-party-conversation-1826111598&asc_source=&tag=kinjalifehackerlink-20)*的作者丹尼尔·梅纳克尔的说法，最好是用 [将谈话引向“第三件事”这意味着谈话不是关于你，不是关于他们，而是其他第三个话题。所以，试着避开诸如“你是做什么工作的？”或者“你怎么知道某某的？”提出一个没有太大争议的刺激话题。](https://www.nytimes.com/2011/07/10/fashion/mastering-the-art-of-dinner-party-talk-this-life.html)*
 

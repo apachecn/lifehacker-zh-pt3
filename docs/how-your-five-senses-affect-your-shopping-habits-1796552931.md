@@ -4,7 +4,7 @@
 
 广告商不断使用心理伎俩 让我们购买他们的产品，但一项新的研究表明，他们可能会开始利用我们的感官向我们推销商品。
 
-Watch
+
 
 根据 [Fast Company](https://www.fastcompany.com/40436321/taste-smell-sight-or-sound-which-senses-make-you-buy-sooner) 报道的发表在 [消费者研究](https://academic.oup.com/jcr/article-abstract/doi/10.1093/jcr/ucx070/3829544/So-Close-I-Can-Almost-Sense-It-The-Interplay?redirectedFrom=fulltext) 杂志上的一项研究，视觉、嗅觉和声音等远端感官体验导致人们想要在更遥远的未来购买东西，而触觉和味觉等更接近的感官体验导致更直接的购买。
 

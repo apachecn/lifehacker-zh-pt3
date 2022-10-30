@@ -4,7 +4,7 @@
 
 “我不相信投资，”一个朋友曾经说过。我问她为什么。” [是不是有点像玩彩票？](https://twocents.lifehacker.com/psa-investing-your-money-is-not-the-same-as-gambling-1677649583) 她问道。投资对人们来说已经够吓人的了。扔进像加密货币这样不可预测的东西，人们会完全放弃它。它强化了投资就像购买一堆刮刮乐的观念。
 
-Watch
+
 
 [无论你怎么看待加密货币](https://lifehacker.com/what-you-should-know-about-cryptocurrency-1797516688)——这是一个 [庞氏骗局](https://thenextweb.com/hardfork/2017/12/01/bitconnect-ponzi-ethereum-litecoin/?utm_source=social&utm_medium=feed&utm_campaign=profeed) ，它是下一个大事件——有一点是肯定的: [比特币肯定是该死的而不是一个退休计划。](https://splinternews.com/hey-idiots-youre-gonna-lose-all-your-money-on-bitcoin-1820805131)T13】
 

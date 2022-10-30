@@ -4,7 +4,7 @@
 
 本周，苹果手机操作系统的最新升级版 iOS 10 发布了。虽然我们了解了所有的新功能(和贴纸)，但这是一个以小工具为中心的一周，因为我们还讨论了廉价 4K 电视的优点，如何充分利用 GoPro 相机，比较 DIY 电子板等等。
 
-Watch
+
 
 ## [**两分钟内 iOS 10 所有新功能**](http://lifehacker.com/all-the-new-features-in-ios-10-in-two-minutes-1786554385)
 

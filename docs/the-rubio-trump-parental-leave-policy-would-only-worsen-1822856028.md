@@ -4,7 +4,7 @@
 
 佛罗里达州参议员马尔科·卢比奥和伊万卡·特朗普可能会有一个新的育儿假政策想法，他们希望你考虑一下，据报道，这是基于独立妇女论坛的这个提议 :新父母被给予 12 周的假期，赚取他们正常工资的 45%(相当于社会保障残疾)。对于这项协议，父母放弃六周的社会保障福利，当他们有资格。
 
-Watch
+
 
 你可能还记得，在选举期间，总统的长女将自己定位为职业母亲的捍卫者。在回避关于她 [父亲对待女性](http://klewtv.com/news/nation-world/live-ivanka-trump-speaking-at-most-powerful-women-summit) 的问题和关于她自己公司 [休假计划](https://www.thecut.com/2016/10/ivanka-trump-reportedly-had-no-maternity-leave-policy.html) 的问题之间，据说伊万卡非常重视育儿假*。事实上，她参与起草了她父亲的第一个 [育儿假政策](http://time.com/money/4490116/three-questions-about-trumps-child-care-proposal-tax-deduction/) ，该政策提议给新生儿和养母延长六周的带薪假期。*
 

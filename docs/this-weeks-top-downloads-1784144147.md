@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**阳光，华丽的 iOS 天气 App，现已在安卓**](http://lifehacker.com/sunshine-the-gorgeous-ios-weather-app-is-now-out-on-a-1783962370) 上发售
 

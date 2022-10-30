@@ -4,7 +4,7 @@
 
 如今，人工智能(AI)似乎已经准备好运行世界的大部分地区:它是检测皮肤癌的，在脸书寻找仇恨言论的，甚至是西班牙警方报告中可能存在的。但是人工智能并不都是由大公司和政府经营的；你可以下载一些算法，自己玩，往往会有爆笑的结果。
 
-Watch
+
 
 有一张 [假 Coachella 海报，上面满是假乐队名](http://digg.com/2018/coachella-lineup-ai-band-names) ，这是通过将一堆真实的乐队名输入神经网络，并要求它想出一些自己的名字来创建的。还有以类似方式创造的 [食谱](https://gist.github.com/nylki/1efbaa36635956d35bcc) ，其中“烧烤牛肉”需要“1 杯啤酒——切成方块”然后还有我最喜欢的，Janelle Shane 的 [AI 生成的颜料颜色](http://aiweirdness.com/post/160776374467/new-paint-colors-invented-by-neural-network) (自己标记，我是多克伍德)。
 

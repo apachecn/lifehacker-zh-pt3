@@ -4,7 +4,7 @@
 
 有时候我就是不想在健身房锻炼一个小时。你知道吗？有时候锻炼不需要 [甚至不需要那么长的](http://thefyslife.com/article/upper-body-beach-workout-hawaii/) 。每当我想进出健身房，但仍能增强力量和耐力时，我的首选就是这种具有挑战性、让人喘不过气来的锻炼，称为杠铃综合练习。
 
-Watch
+
 
 一个复杂的串在一起，通常有四到八个练习，一个接一个无缝地完成，中间很少或没有休息。因为它只涉及一件设备(在这种情况下是杠铃)，所以当你空间有限或者 [在繁忙的健身房](http://vitals.lifehacker.com/five-ways-to-work-out-in-the-gym-when-its-crazy-packed-1790783192) 时，综合设施是完美的。
 

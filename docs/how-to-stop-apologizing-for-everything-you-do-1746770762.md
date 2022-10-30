@@ -4,7 +4,7 @@
 
 对我们许多人来说，“对不起”这个词已经成为我们反应性地说出的东西，不管我们是否做错了什么。这种看似无害的习惯实际上会降低你的自尊，为别人的糟糕行为辩护，让你完全变成一个容易被说服的人。
 
-Watch
+
 
 为自己做过的 [坏事](https://lifehacker.com/the-best-ways-to-apologize-when-you-screw-up-at-work-or-560654609) 道歉没什么错。但是当说对不起成为你对任何让你感到有点不舒服的事情的自动反应时，这就有问题了。例如，当*和别人*在酒吧或俱乐部撞到我时，我会道歉。我会马上平静地举起手，微笑着迅速说“对不起”，尽管他们刚刚把我 14 美元饮料的一半洒在了地板上。我这样做礼貌吗？也许吧，但我不是那个需要道歉的人。事实上，我一点也不感到抱歉，我只是感到恼火，你可能在某个时候也有同样的感觉。从你嘴里说出来的“对不起”不是道歉，而是为了避免节外生枝，让事情变得尴尬(当我写这篇文章时，在咖啡店里越过我的肩膀看这篇文章的女人同意了)。
 
@@ -12,11 +12,7 @@ Watch
 
 不必要的道歉还会传达出这样的信息:你宁愿讨人喜欢也不愿诚实。久而久之，你过多的道歉会给人一种顺从的印象，而 [会让你成为一个容易被人利用的](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201) ，别人会试图在工作和家庭中利用你。过度道歉还会毫无必要地在你心中制造负罪感，并伤害你自己的自尊。你不仅不断地告诉别人你要对所有出错的事情负责，你也在告诉自己。当你一直落在一把从一开始就不该出鞘的剑上时，你很难自我感觉良好。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Stop Apologizing for Everything You Do](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201) [###### 如何不再是一个容易被说服的人](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201) 
 
-如果你觉得自己总是被占便宜，而且看起来好像要输了…
-
-[Read more](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201)</aside>
 
 ### **道歉重述**
 

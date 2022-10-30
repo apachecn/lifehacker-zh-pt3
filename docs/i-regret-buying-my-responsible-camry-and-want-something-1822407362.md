@@ -4,7 +4,7 @@
 
 莫希特想做负责任的事，买了一辆 2016 款凯美瑞。这很好，但是拥有一辆无聊的车和一份无聊的工作并不能解决问题。他想要一些能吸引他冒险意识的东西，但又不至于倾家荡产。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

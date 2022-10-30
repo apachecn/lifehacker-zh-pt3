@@ -4,7 +4,7 @@
 
 [亚马逊](https://lifehacker.com/the-best-place-for-your-echo-dot-is-actually-on-the-cei-1820916306) 可能是第一个提供智能家居显示器的 [Echo Show](https://gizmodo.com/the-amazon-echo-show-is-the-best-dumb-smart-machine-in-1796380588) ，但是 [谷歌](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716#_ga=2.27966780.1017631282.1515423304-1313785359.1499701416) 刚刚在一个关键领域击败了对手:隐私。
 
-Watch
+
 
 与联想合作，搜索巨头本周在 2018 年[CES](https://gizmodo.com/here-comes-ces-2018-the-biggest-gadget-show-in-the-wor-1821789975#_ga=2.27966780.1017631282.1515423304-1313785359.1499701416)上发布了其 [新型智能显示器](https://www3.lenovo.com/us/en/events/ces/?cid=ww:lenovosocial:bpvfzr#Shot12) 。这款设备运行谷歌助手和其他一些谷歌服务，目前还没有第三方支持。与 Echo Show 和 Echo Spot 一样，它也有一个用于进行视频通话的摄像头，但与亚马逊的设备不同，它有一个物理快门，用于在不需要使用时盖住镜头。
 

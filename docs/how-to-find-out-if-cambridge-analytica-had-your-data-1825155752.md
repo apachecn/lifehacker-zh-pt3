@@ -4,7 +4,7 @@
 
 脸书昨天推出了一个工具，你可以用它来发现你或你的朋友是否与特朗普的关联公司剑桥分析公司(Cambridge Analytica)分享了信息，该公司从脸书的一个应用程序中收集数据，以支持特朗普在 2016 年总统选举中的努力。
 
-Watch
+
 
 如果你受到了直接影响——而且你有 [大量的](https://www.wired.com/story/facebook-exposed-87-million-users-to-cambridge-analytica/) [公司](https://www.wired.com/story/facebook-exposed-87-million-users-to-cambridge-analytica/) ，如果是这样——你应该已经收到了脸书的一点通知。如果你在你的新闻订阅中遗漏了这一点(或者你已经发誓远离脸书，但想检查一下你的信息是否被泄露)，脸书也有一个方便的小 [剑桥分析工具](https://www.facebook.com/help/1873665312923476) 供你使用。
 

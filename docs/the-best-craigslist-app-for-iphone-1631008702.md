@@ -4,7 +4,7 @@
 
 虽然过去有几十种选择，但 Craigslist 应用程序远没有过去那么流行了。尽管如此，你还是有一些好的选择。如果你经常使用这项服务，我们选择 CPlus。
 
-Watch
+
 
 ### [CPU lus](https://itunes.apple.com/us/app/cplus-for-craigslist-app-mobile/id955286870?mt=8)
 

@@ -4,7 +4,7 @@
 
 是时候让小家伙睡觉了。你是做什么的？放上有声书，给他们读一个有趣味图片的睡前故事，或者打开一些动画片？一项新的研究表明，古老的带插图的睡前故事最有利于开发孩子的大脑。
 
-Watch
+
 
 这项研究， [在 2018 年儿科学术学会会议](https://www.eurekalert.org/pub_releases/2018-05/pas-nsm042618.php) 上发表，由辛辛那提儿童医院研究员兼儿科医生约翰·赫顿博士领导。为了观察儿童的大脑对不同形式的故事的反应，赫顿让 27 名 4 岁左右的儿童连接到一台功能性核磁共振成像仪上，该仪器用于观察大脑不同区域的活动以及这些区域之间的联系。每个孩子都被展示了来自儿童作家 [Robert Munsch](https://www.amazon.com/Robert-Munsch/e/B000APX51G?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-picture-books-are-perfect-bedtime-stories-1826481061&asc_source=&tag=kinjalifehackerlink-20) 的故事，这些故事有三种不同的形式:纯音频、动画片和带音频画外音的插图页面。
 

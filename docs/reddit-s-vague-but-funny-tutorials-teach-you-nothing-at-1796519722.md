@@ -4,7 +4,7 @@
 
 能教的，不能总教。当你已经学习一项技能很多年的时候，很难分解你的步骤并记住新学习者不知道的东西。这就是你如何结束编写上述指令的过程，Reddit 用户 kdesh 将其命名为 [“步骤 1。subred dit/r/restofthefuckingowl](https://www.reddit.com/r/restofthefuckingowl/comments/6k55ci/step_1_threaten_the_coconut_with_a_machete/)上的一个帖子里用砍刀威胁椰子。
 
-Watch
+
 
 受恶搞教程 [【如何画猫头鹰】](https://www.reddit.com/r/pics/comments/d3zhx/how_to_draw_an_owl/) 的启发，这个 subreddit 大多涵盖了有意模糊的艺术指令，像 [【如何画浣熊】](https://www.reddit.com/r/restofthefuckingowl/comments/63ehqc/how_to_draw_a_raccoon/) 出自艺术家吉姆·麦肯齐的网络系列[【Makin ' Things】](https://www.youtube.com/watch?v=-HZ2pyMycvI):
 

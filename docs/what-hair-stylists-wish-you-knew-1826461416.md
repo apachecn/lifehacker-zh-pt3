@@ -4,7 +4,7 @@
 
 他们是拿着剪刀的士兵，死亡之神，以及令人惊叹的设计者。他们是你的发型师，他们有些事情非常想让你，顾客，了解他们的工作。
 
-Watch
+
 
 为了找出我们多毛的人类如何才能让双方的造型体验更好， [我问专业人士，他们希望人们了解他们工作的哪些方面](https://lifehacker.com/hair-stylists-what-do-you-wish-people-knew-about-your-1825468952) 。我甚至还和我自己的造型师 Janine Ker([@ Janine _ Ker _ hair](https://www.instagram.com/janine_ker_hair/))就这个话题进行了深入的对话，她一边给我打理着我的鬃毛。他们是这样说的。
 
@@ -96,11 +96,7 @@ Ker 还建议你仔细阅读头发和造型术语的真正含义:
 
 是啊，别那么做。雨果恳求道，如果你要迟到了，请尽快告诉他们。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What Hair Stylists Wish You Knew](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/pick-the-best-mens-hairstyle-for-your-face-with-this-ch-1683541152) [###### 用这张图表选出最适合你脸型的男士发型](https://lifehacker.com/pick-the-best-mens-hairstyle-for-your-face-with-this-ch-1683541152) 
 
-挑选合适的发型比看起来要困难得多。错误的剪裁会让任何人看起来…
-
-[Read more](https://lifehacker.com/pick-the-best-mens-hairstyle-for-your-face-with-this-ch-1683541152)</aside>
 
 ### **发型师没有哄抬你的价格**
 

@@ -4,7 +4,7 @@
 
 你超速行驶了五英里，这时你注意到后面有蓝色的闪光灯。一名警察让你靠边停车，给了你一张超速罚单。你可以像大多数人一样，忍气吞声，付罚单，或者去法院提出异议。幸运的是，有一个应用程序可以让你足不出户就能买到票。
 
-Watch
+
 
 [场外记录](https://itunes.apple.com/us/app/off-the-record-fight-your-traffic-ticket/id1032930471?mt=8) 是一款 [iPhone](https://itunes.apple.com/us/app/off-the-record-fight-your-traffic-ticket/id1032930471?mt=8) 和 [web](https://offtherecord.com) app 平均成功率 97%，据 [GeekWire](https://www.geekwire.com/2016/off-record-speeding-ticket-app/) 。要使用这款应用，用户需要给自己的车票拍张照片，回答几个简短的问题，然后付费。费用从 59 美元到 599 美元不等，取决于你所在的州和县。然后，该应用将案件分配给附近的律师，为用户进行辩护。这些律师是根据他们在法庭上的成功率被审查的。用户可以通过该应用程序发送消息并接收律师的更新，而不必亲自与律师见面或出庭。
 

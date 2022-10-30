@@ -4,7 +4,7 @@
 
 无铝除臭剂有一个完整的市场。它们被称为或或不知何故 [对你来说更好的](https://www.ursamajorvt.com/collections/body/products/hoppin-fresh-deodorant?gclid=EAIaIQobChMIyIiP-8qj2gIVTlYNCh0Z1Ay4EAAYASAAEgJSnPD_BwE) 。但是等一下:为什么你要避免铝，它(不像那些天然除臭剂)实际上会阻止你出汗？挺好的。
 
-Watch
+
 
 铝——是的，是制造“锡箔”和饮料罐的同一种金属——在阿尔茨海默氏症患者的大脑和乳腺肿瘤中出现了微量。然而，与铝 [一起工作的人不会比其他任何人](http://alzheimer.ca/en/Home/About-dementia/Alzheimer-s-disease/Risk-factors/Aluminum?gclid=EAIaIQobChMI04yNor-j2gIVCl6GCh0jdQv_EAAYASAAEgLA8fD_BwE) 患痴呆症或老年痴呆症的几率更高，铝 [在健康乳房组织中的发现率与在肿瘤中的发现率相同](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3599564/) 。没有证据表明避免铝会降低你患这两种疾病的风险。
 

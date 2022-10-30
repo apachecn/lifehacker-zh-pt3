@@ -4,7 +4,7 @@
 
 如果你在手机上收到突发新闻通知，你会经常发现你不同意 CNN、*《纽约时报》*或苹果关于什么是新闻的观点。相反，你可以转而使用新闻聚合应用 [Nuzzel](http://nuzzel.com/) ，当一定数量的你的 Twitter 好友链接到同一个网址时，它会通知你，无论来源如何。
 
-Watch
+
 
 使用 Nuzzel for[Android](https://play.google.com/store/apps/details?id=com.nuzzel.android&hl=en)和 [iOS](https://itunes.apple.com/us/app/nuzzel-news-newsletters-for-busy-professionals/id692285770?mt=8) ，你可以设置有多少朋友(从 3 到 25 个)需要在你被通知之前发布一个链接。你也可以设置每日最大数量，并获取每日电子邮件摘要。当你打开一个故事时，你会看到你的朋友们对它的推文。就像一个不烂的聚合评论版块。
 

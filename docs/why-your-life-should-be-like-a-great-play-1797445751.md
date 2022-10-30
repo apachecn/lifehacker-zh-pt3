@@ -4,7 +4,7 @@
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 
-Watch
+
 
 本周的选集来自塞内卡写给西西里当时的检察官卢西留斯的信。学者们不确定他和卢西留斯是否真的通信过，但尽管如此，塞内卡还是给他写了 124 封信。这些都是收集在作品中的*斯多葛派的书信，*或者是 [*写给卢西尔斯*](https://en.wikisource.org/wiki/Moral_letters_to_Lucilius) 的道德书信。
 
@@ -14,11 +14,7 @@ Watch
 
 生活就像一场戏，但你不是在表演一个故事，而是在经历它。你活多久并不重要，重要的是你活得有多好。美好的生活就像一出好戏，充满了扣人心弦的曲折和起伏，最重要的是，有一个引人注目的主角，别人会为他喝彩。塞内卡建议说，只要你活出真实的自己，死亡并不重要，你可以找到一种优雅地鞠躬的方式。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Why Your Life Should Be Like a Great Play](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-motivate-yourself-by-living-your-life-like-a-mov-1662568064) [###### 如何像电影一样生活来激励自己](https://lifehacker.com/how-to-motivate-yourself-by-living-your-life-like-a-mov-1662568064) 
 
-每个人都喜欢电影，很多人希望他们的生活也像电影一样。电影让我们兴奋，…
-
-[Read more](https://lifehacker.com/how-to-motivate-yourself-by-living-your-life-like-a-mov-1662568064)</aside>
 
 ### 从中吸取什么
 

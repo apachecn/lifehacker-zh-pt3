@@ -4,7 +4,7 @@
 
 在过去的两年里，“宪法危机”这个词已经出现在很多人的脑海里，但是它意味着什么呢？这会导致什么？以下是你需要知道的。
 
-Watch
+
 
 实际上，“宪法危机”这个词有点模糊，没有确切、固定的定义，就像“倦怠”或“神经崩溃”一样，尽管大多数政治学家和律师都知道这个词的意思。一个 [宪法危机](https://en.wikipedia.org/wiki/Constitutional_crisis) 是指一个国家的宪法无法明确解决手头的问题，无论是冲突还是法律问题。宪法危机的原因 [分为几大类](https://fivethirtyeight.com/features/constitutional-crisis/) :
 

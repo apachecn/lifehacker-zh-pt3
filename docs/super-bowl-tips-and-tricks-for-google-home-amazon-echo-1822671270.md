@@ -4,7 +4,7 @@
 
 超级碗快到了，无论你关心的是 [食物](https://skillet.lifehacker.com/preview/super-bowl-snacks-for-your-vegan-friends-1822634476?rev=1517515739027)[广告](https://lifehacker.com/how-to-watch-just-the-super-bowl-commercials-1757433459) ，还是真正的比赛，都有值得兴奋的事情。但是如果你对这些都不感兴趣，也许你会从与你选择的人工智能助手谈论足球中得到乐趣。
 
-Watch
+
 
 这里有一些与你的谷歌主页、亚马逊 Echo 或 Siri 谈论超级碗的技巧和诀窍。
 

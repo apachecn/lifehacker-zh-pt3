@@ -4,7 +4,7 @@
 
 【movie pass】，在影院看电影的包月服务，让事情变得越来越复杂。价格忽高忽低。某些电影得到 [禁播](https://www.theverge.com/2018/3/2/17073386/moviepass-limited-access-red-sparrow-death-wish-amc-film-studio-negotiations) 。新订户每月获得 [四部电影](https://lifehacker.com/moviepass-is-struggling-so-use-it-while-you-can-1825407405#_ga=2.14625200.624615268.1525096119-1297080755.1497980211) 。(旧的计划不受每月 30 英镑费率的限制。)而现在的订阅者 [不能多次观看某些电影](https://www.theverge.com/2018/4/27/17291242/moviepass-unlimited-movie-deal-repeat-viewings-theater-blackouts) 。
 
-Watch
+
 
 the Verge 称:“该公司对哪些电影将受到影响没有提供任何指导或透明度。”。与此同时，MoviePass 要求新用户提前支付前三个月的费用。他们要求更多的客户信任，同时给客户更少的理由去信任他们。*和* MoviePass 越来越不信任顾客——据 the Verge 报道，该服务要求越来越多的顾客用票根照片证明他们的购买行为。
 

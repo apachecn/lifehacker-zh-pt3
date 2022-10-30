@@ -4,7 +4,7 @@
 
 你不希望你的孩子淹死。我也不希望你的小孩淹死。游泳课很棒，可以帮助他们在水中更舒适，但请不要依赖它们让你在泳池里安心。
 
-Watch
+
 
 梅林达·温纳-莫耶 [在 Slate](http://www.slate.com/articles/life/the_kids/2017/06/swim_lessons_won_t_keep_your_toddler_from_drowning.html) 上写道:有一个会游泳的孩子实际上让我们不太可能像老鹰一样看着他们。溺水是儿童最常见的基于伤害的死亡方式，游泳课 [并不能完全预防](https://www.aap.org/en-us/about-the-aap/aap-press-room/aap-press-room-media-center/Pages/Swimming-Programs-for-Infants-and-Toddlers.aspx) 。
 

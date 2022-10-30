@@ -4,7 +4,7 @@
 
 当人们决定改善他们的财务习惯并开始存钱时，他们通常是被暂时的钱荒所驱使。也许你失业了，或者面临一些意想不到的账单，但是在危机过去后，你如何让你新获得的财务责任感持续下去呢？
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/when-financial-improvement-is-just-a-phase/) *上。*
 

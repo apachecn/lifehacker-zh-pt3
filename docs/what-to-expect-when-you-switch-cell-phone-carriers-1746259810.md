@@ -4,7 +4,7 @@
 
 每个人都喜欢抱怨他们的手机运营商。可能他们客服很烂，费用太高，或者上不了 4G。但是我们很少真的费事去更换运营商，因为这看起来总是很痛苦。令人欣慰的是，转换的过程比以前简单多了(也便宜多了)。
 
-Watch
+
 
 [挑选哪家运营商最适合你](http://lifehacker.com/this-interactive-tool-helps-you-pick-the-right-cellphon-1712135230) 是 [本身就是一个过程](https://lifehacker.com/every-carriers-confusing-phone-buying-plans-explained-1726343203) 但是在你这么做之前，有必要在你做出转换之前仔细检查一些细节。我们不会在这里告诉你选择哪家运营商，但我最近( [终于](http://lifehacker.com/your-least-favorite-cellphone-carrier-at-t-1458725933) )从 AT & T 换了，所以我想是时候分享一下我的经历了。无论你选择谁，你都可以免费使用你的旧电话号码(尽管如果你的新运营商没有你的旧区号，你可能会遇到麻烦)。
 

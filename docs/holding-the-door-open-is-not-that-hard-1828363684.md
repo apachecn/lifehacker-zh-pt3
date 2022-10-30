@@ -4,7 +4,7 @@
 
 不难。感觉很硬！当你正好在别人前面走进一扇门时，你需要为他们把门打开，否则你是不礼貌的。但是，如果他们离你有点太远，他们必须赶紧赶上来，然后(正如 redditor Voldetitty [最近指出的](https://www.reddit.com/r/Showerthoughts/comments/97gbfw/people_holding_open_doors_for_you_is_either_a/) )你实际上很烦人。在某个模糊的距离，有一个从“不要让门开着”到“让门开着”的相变，判断失误会毁掉你的生活长达五秒钟。
 
-Watch
+
 
 最初我们打算计算这个距离。但当然它并不确切存在。即使有，你也不能每次都通过计算来判断。相反，你需要提前计划。就在几秒钟前。
 

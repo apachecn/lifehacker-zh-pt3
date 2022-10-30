@@ -4,7 +4,7 @@
 
 我四岁的女儿喜欢看一些很棒的儿童节目，包括 *Noddy Toyland 侦探*、 *Ruby 的工作室*、 *Julie 的休息室*等等 *Daniel Tiger* ，但偶尔她会要求在 iPad 或手机上看 YouTube，当我答应时，她会笑着，眼睛里闪过一丝诡秘的光芒。嗯哦，我会考虑的。今天会发生什么？
 
-Watch
+
 
 面向儿童的 YouTube 内容世界就像一个怪异的深渊——学龄前儿童吞食狂躁、无脑的剪辑，而父母则瞥一眼，感到困惑，有时甚至有点不安，想知道这是什么？你点开一个看似无关痛痒的*粉红猪小妹*视频，交出手机，然后 12 分钟后，他们已经被带进了一个兔子洞 [【爸爸手指】](https://www.youtube.com/watch?v=YJyNoFkud6g) 各种语言的合唱，闪闪发光的粘液，连续几天的惊喜彩蛋，还有大人 [玩娃娃](https://www.youtube.com/watch?v=_qi_cwhzCC0)[高声说话](http://lifehacker.com/how-to-get-someone-to-stop-talking-in-a-baby-voice-1797238235) ( *“啊哈！你又拉屎了？好乱！”*)。
 

@@ -4,7 +4,7 @@
 
 如果你是少数使用微软 Groove Music 应用程序和 Groove Music Pass 流媒体服务的人之一，那么坏消息是:该公司将在年底停止 Groove Music Pass 订阅以及使用 Groove Music 应用程序播放、购买或下载音乐的功能。相反，微软正在与 Spotify 合作，让用户将精选的 Groove 音乐内容转移到流媒体服务。
 
-Watch
+
 
 这当然很不方便，但至少你不用从头开始重建你的音乐库。 [在一篇宣布服务关闭的博客文章](https://blogs.windows.com/windowsexperience/2017/10/02/microsoft-to-bring-spotify-to-groove-music-pass-customers/#6OGiHPXUCJEepcSI.97) 中，微软宣布支持从你的 Groove 音乐应用平稳过渡到 Spotify 自己的音乐应用和流媒体服务。
 

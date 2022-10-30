@@ -4,7 +4,7 @@
 
 Apple Pay Cash 是该公司理论上的 Venmo-killer，你可以使用这项服务通过 iPhone 上的 iMessage 收发资金。听起来很棒，但是有这么多点对点的支付系统，你真的需要注册吗？
 
-Watch
+
 
 大多数提供相同的基线安全性(更多信息， [阅读此](https://lifehacker.com/which-online-money-transfer-service-is-the-most-secure-1688912343)——尽管注意 Venmo 和 Square 现在确实提供 [双因素认证](https://lifehacker.com/heres-everywhere-you-should-enable-two-factor-authentic-5938565) )。除此之外，这里有一个最流行的支付平台的比较。
 

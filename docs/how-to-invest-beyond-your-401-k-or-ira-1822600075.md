@@ -4,7 +4,7 @@
 
 许多投资建议都围绕着你的退休:向 401(k)计划缴纳多少钱，每个年龄你应该存多少钱，传统个人退休帐户和 Roths 之间的区别，等等。但是，为了短期目标(或者仅仅是因为)，还有很多其他的投资方式。
 
-Watch
+
 
 一些注意事项:在考虑这些选项之前，最谨慎的举措是确保你的应急基金已经准备好，并且你正在尽可能多地(或最大限度地)向你的退休账户缴款(这里的一个例外 [可能是你的 529](https://twocents.lifehacker.com/how-to-save-for-your-kids-college-and-still-live-1821927308) ，这取决于你的情况)。
 
@@ -69,11 +69,7 @@ CD 并不性感，但它们能在短期内有所帮助，而且它们有保险�
 
 我对加密货币没什么可说的——一些专家将购买加密货币比作投机而非投资。如果你仍然不知道它们是什么或者为什么你应该关心，我们有一些很好的解释:
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Invest Beyond Your 401(k) or IRA](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-is-bitcoin-and-what-can-i-do-with-it-5991523) [###### 比特币是什么，我能用它做什么？](https://lifehacker.com/what-is-bitcoin-and-what-can-i-do-with-it-5991523) 
 
-亲爱的 Lifehacker，我所到之处，都看到比特币越来越多的冒出来。许多 web 服务接受…
-
-[Read more](https://lifehacker.com/what-is-bitcoin-and-what-can-i-do-with-it-5991523)</aside>
 
 如果你在 2017 年卖了比特币或者用它买了什么东西，记住那是 [应税所得](https://www.theverge.com/2018/1/29/16928768/cryptocurrency-bitcoin-how-to-file-taxes-2018-return-compliance-irs) (要缴纳资本利得税)。
 

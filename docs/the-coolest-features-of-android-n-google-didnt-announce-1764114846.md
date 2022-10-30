@@ -4,7 +4,7 @@
 
 昨天， [谷歌为 Nexus 机主发布了安卓牛轧糖](http://lifehacker.com/android-nougat-has-arrived-rolling-out-to-recent-nexus-1785598253) 。它带有一些可爱的新功能，如多窗口支持和捆绑通知。在 [深入开发者预览](http://lifehacker.com/how-to-install-the-android-n-developer-preview-on-your-1763813851) 之后，我们发现了更多你可能已经错过的东西。
 
-Watch
+
 
 ### **瞌睡现在即使在你移动的时候也能工作**
 

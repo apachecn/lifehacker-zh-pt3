@@ -4,7 +4,7 @@
 
 十年前，如果你看我的简历，它看起来就像是我在一页上随便写了。我做了太多不同的事情，以至于它读起来更像是“不能投身于一项事业”，而不是“经验丰富的专业人士”
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-tell-a-compelling-career-story-when-youve-done-a-little-bit-of-everything) *。*
 

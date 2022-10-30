@@ -6,7 +6,7 @@
 
 当听到哈维·韦恩斯坦(以及比尔·科斯比和唐纳德·川普和[所有那些仍然没有透露姓名的](https://www.washingtonpost.com/news/arts-and-entertainment/wp/2017/10/09/will-harvey-weinsteins-downfall-change-hollywoods-culture-of-silence-around-sexual-abuse/?utm_term=.f705515ffe94) )等当权者虐待和性骚扰的消息时，以一种无可奈何的愤怒来回应变得越来越常见。几天前，马伊姆·拜力克在她的在线社区群中写了一篇文章，讲述了她 [听到温斯坦的指控](http://groknation.com/hollywood/not-surprised-harvey-weinstein-heres/) 并不感到惊讶，她写道，“很遗憾，我认为这只是一直在发生的事情。”这就是权力和父权制的样子，她说，这很糟糕。
 
-Watch
+
 
 但是 Bialik 受到了她的朋友的压力，他们可能认为她的观点看起来有点自鸣得意。一位朋友，GrokNation 的编辑 Avital Norman Nathman，问了她一个令她震惊的问题。它是:“你的男孩会这样吗？”她问 Bialik 她自己是否正在抚养她的两个儿子成为女孩和女人都害怕的男人。
 

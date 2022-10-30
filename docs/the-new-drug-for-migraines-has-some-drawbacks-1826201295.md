@@ -4,7 +4,7 @@
 
 美国食品和药物管理局刚刚批准了一种新的首个用于预防偏头痛的药物 。它装在一个自动注射装置里(你每月刺自己一次)，标价是 575 美元一个。在一篇关于美国药品价格的悲伤评论中，这是一个比投资者预期的 便宜的 [价格。与此同时，治疗偏头痛的人说，这并不比他们已经服用的其他药物贵多少。](https://www.statnews.com/2018/05/17/amgen-migraine-drug-cost-wall-st/)
 
-Watch
+
 
 新药 Aimovig 是一种 [抗体](https://en.wikipedia.org/wiki/Antibody) ，就像我们的免疫系统产生的抗体一样，用来攻击病毒和其他入侵者。这些抗体是在实验室生产的，旨在附着在我们体内的受体上，否则这些受体会与一种叫做[【CGRP】](https://en.wikipedia.org/wiki/Calcitonin_gene-related_peptide)的蛋白质相互作用。尚不清楚 CGRP 到底做了什么，也不清楚为什么在偏头痛期间水平会增加。Aimovig 的制造商 Amgen 在其网站 上总结了当前知识的状态:“CGRP、CGRP 受体和偏头痛之间可能有联系。”
 

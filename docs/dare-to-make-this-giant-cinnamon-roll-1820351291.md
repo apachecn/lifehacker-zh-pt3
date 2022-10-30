@@ -4,7 +4,7 @@
 
 每个人都知道肉桂卷是一种美味的放纵。这个食谱预先假定的是…也许它们应该更大？我的意思是比以前大很多。这是可能的，说实话，这也很美。
 
-Watch
+
 
 “品味”的邪恶天才们——我应该在这里认出凯莉·康纳博伊的名字，上帝保佑她——着手在一个普通的家庭厨房里做出最大的肉桂卷。它需要一个 [16 英寸的短蛋糕盘](https://www.amazon.com/gp/product/B002NU6MZC/ref=od_aui_detailpages00?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/dare-to-make-this-giant-cinnamon-roll-1820351291&asc_source=&ie=UTF8&psc=1&tag=kinjalifehackerlink-20) ，一个厨房桌子大小的工作台面，还有 14 杯面粉。很费工，也很乱，但是效果极其可观。
 

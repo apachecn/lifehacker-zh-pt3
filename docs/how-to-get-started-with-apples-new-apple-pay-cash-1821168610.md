@@ -4,7 +4,7 @@
 
 本周，苹果终于推出了 Apple Pay Cash，这是 iPhone 的 Venmo 竞争。有了它，你可以发送和接收朋友的现金，就像你在 iPhone 上使用 iMessage 使用 PayPal、Square 和 Venmo 等服务一样。它使用起来超级简单，但是如果你不确定你在做什么，可能会有点混乱。
 
-Watch
+
 
 要使用 Apple Pay Cash，你需要将 iOS 11.2 下载到手机上。如果你还没有，现在是更新的好时机。
 

@@ -4,7 +4,7 @@
 
 Linux 有如此多的风格，它们的库中有如此棒的应用程序，要找到合适的应用程序来完成任务是很困难的。在我们的年度 Lifehacker Pack for Linux 中，我们强调了提高生产力、通信、媒体管理等的必备下载。
 
-Watch
+
 
 ***life hacker Pack**是我们最喜欢的平台上我们最喜欢的基本应用程序的年度快照。对于我们所有最好的应用程序的不断更新的目录，请务必将我们的* [*Linux 应用程序目录*](https://lifehacker.com/the-lifehacker-app-directory-linux-5858066) *加入书签。*T12】
 

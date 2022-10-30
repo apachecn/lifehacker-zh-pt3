@@ -4,7 +4,7 @@
 
 我不是最大的粉丝 [威瑞森对网络中立](https://arstechnica.com/tech-policy/2018/03/attverizon-lobbyists-to-aggressively-sue-states-that-enact-net-neutrality/) 的立场，无线运营商的成本，或不相关的事实，我仍然无法在硅谷获得 FIOS，但根据 PCMag，威瑞森无线拥有 [全国最快的无线服务](https://www.pcmag.com/Fastest-Mobile-Networks) 。在你居住的地方，运营商可能没有最快的服务，甚至没有任何像样的服务(湾区的一些人口密集的地区感觉像威瑞森覆盖的黑洞)，但它通常是最好的。
 
-Watch
+
 
 有大量的[网站](https://opensignal.com/) 你可以用它们来找出你住的地方哪个主要的无线运营商提供最好的服务，包括运营商自己的覆盖地图，这些地图很可能会告诉你 [你将获得有史以来最快的服务](https://lifehacker.com/do-wireless-coverage-maps-actually-reflect-the-service-5830034) 。方便，但不总是准确的。
 

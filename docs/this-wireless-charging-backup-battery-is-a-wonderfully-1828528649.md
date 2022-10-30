@@ -4,7 +4,7 @@
 
 除了让它们变得更小、增加容量或增加更多端口，备用电池没有多少创新空间。但是 Avido 的新 WiBa 电力银行设法将无线充电 压缩到一个便携式电源中，非常方便，现在它可以放在我的智能手机的任何地方。
 
-Watch
+
 
 如果你是一个生活在 [【脸书】](https://gizmodo.com/former-facebook-workers-we-routinely-suppressed-conser-1775461006) 的重度智能手机用户，不停地在 Instagram 上发帖，而 [似乎无法打破一个*糖果粉碎*瘾](https://gizmodo.com/holy-shit-i-just-spent-236-on-candy-crush-help-1032185653) ，你可能也会花很多时间对你的电池寿命感到压力。记住办公室和日常通勤路上每个可用电源插座的位置是一个解决方案，但更简单的选择是随身携带备用电池。
 

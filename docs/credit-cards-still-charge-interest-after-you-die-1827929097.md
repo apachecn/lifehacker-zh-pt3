@@ -4,7 +4,7 @@
 
 有句话说，当你死的时候，你不能带走任何东西。至于你的债务，那是因为它们在地球上不断积累。
 
-Watch
+
 
 就信用卡而言，已故持卡人的债务成为其遗产的责任，利息不会立即停止累积。然而，如果死者有一个在世的共同签名人，债务就变成了他们的，显然利息会持续增长。配偶也可以在 [夫妻共同财产状态](https://www.investopedia.com/personal-finance/which-states-are-community-property-states/) 中为债务排队。
 

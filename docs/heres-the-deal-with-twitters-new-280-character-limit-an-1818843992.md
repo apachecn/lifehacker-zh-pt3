@@ -4,7 +4,7 @@
 
 Twitter 向来以简洁著称:140 个字符的限制最初是由短信数据限制规定的。但 Twitter 用户也总能找到绕过这一限制的方法，从线程化的 [【推特风暴】](https://lifehacker.com/how-to-tweetstorm-without-embarrassing-yourself-1796304750#_ga=2.78503318.349212122.1506344743-1313785359.1499701416) 到分享更大文本块的推特 [作为截图](https://www.buzzfeed.com/mathonan/the-rise-of-the-screenshort?utm_term=.djOo5q61lv#.sgN57ByQqM) 。现在，社交网络终于屈服于大众需求，将其字符限制翻了一番，达到 280 个字符。
 
-Watch
+
 
 什么时候可以开始分享更长的推文？这对 Twitter 的未来意味着什么？以下是你需要知道的。
 

@@ -4,7 +4,7 @@
 
 [飓风佛罗伦萨袭击了北卡罗来纳海岸，](https://earther.gizmodo.com/hurricane-florence-begins-its-assault-on-the-carolinas-1829034451) 已经在沿河内陆城镇造成大规模洪水。气象学家预计佛罗伦萨将在周末逗留并进一步向内陆移动，这意味着很多人需要救援。以下是你可以提供帮助的方式。
 
-Watch
+
 
 ### **地方组织**
 

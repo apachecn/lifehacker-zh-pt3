@@ -4,7 +4,7 @@
 
 有时候，最好也是唯一的放松方式是打开一瓶(或一罐)你最喜欢的饮料，把灯光调暗一点(或者点上一两支 [或二十支](https://www.youtube.com/watch?v=m_t59BGR8C8) )，播放一些鲍勃·罗斯的视频。
 
-Watch
+
 
 是的，你没听错。无论你是在办公室度过艰难的一天，还是在周末感到无聊，或者是从世界上最糟糕的宿醉中恢复过来，看着这位多产的画家快乐地工作都是令人难以置信的安慰。虽然很容易在 [、YouTube](https://www.youtube.com/user/BobRossInc/videos) 或 [Twitch](https://www.twitch.tv/bobross/videos/all) (如果你真的想在白雪皑皑或树木覆盖的山上跑马拉松)，但我很高兴地看到冥想应用 Calm 最近决定也在罗斯教堂做礼拜。
 

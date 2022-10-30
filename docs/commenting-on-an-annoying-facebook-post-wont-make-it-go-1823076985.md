@@ -4,7 +4,7 @@
 
 脸书今年又一次彻底改革了它的新闻订阅，承诺专注于“ [时间的充分利用](https://www.facebook.com/zuck/posts/10104413015393571) ”以及来自家人和朋友的帖子，但是一篇新的 [BuzzFeed 文章](https://www.buzzfeed.com/katienotopoulos/how-i-cracked-facebooks-new-algorithm-and-tortured-my?utm_term=.mlYl7z6xn4#.qqZ1GnKYDX) 显示出这个社交网络一如既往地令人讨厌。唯一不同的是，脸书有了一种衡量帖子受欢迎程度的新方法:评论。
 
-Watch
+
 
 在一篇有趣而有见地的帖子中，凯蒂·诺托普洛斯(Katie Notopoulos)透露了她是如何将一个随机的 6 分钟视频放在她朋友的新闻提要顶部，并连续 12 天保持在那里的。这个视频没什么特别的，是一个女人炫耀她无聊的布鲁克林公寓，但它很快吸引了评论，把它推上了脸书算法的顶端。
 

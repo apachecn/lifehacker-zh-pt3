@@ -4,7 +4,7 @@
 
 用鼠标做东西是 [酷](https://lifehacker.com/use-a-gaming-mouse-and-browse-the-web-like-a-king-1795895457) 。用键盘做事更酷。这些是最重要的键盘快捷键，从最好到最差排列。(除非特别说明，我们已经列出了 Windows 快捷键；Mac 用户用 cmd 代替 ctrl。)除了一个例外，尽管有任何缺陷，下面所有的捷径从根本上来说都是好的。
 
-Watch
+
 
 #### **1、ctrl+Z** 的缩写形式
 

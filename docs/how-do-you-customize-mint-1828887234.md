@@ -4,7 +4,7 @@
 
 [Mint](https://lifehacker.com/budgeting-software-showdown-mint-vs-you-need-a-budget-1764607246) 最好也是最重要的一点是，你可以为基本上任何东西创建类别来跟踪你的支出。当然，有你的标准支出，比如住房和交通，但如果你想更密切地关注你的丝芙兰习惯，例如，或者你在工作日经常去的午餐点花了多少钱，你可以。它是完全可定制的。
 
-Watch
+
 
 在 Mint subreddit 上，类别是一个常见的讨论点。最好跟踪哪些类别？你到底需要多少？
 

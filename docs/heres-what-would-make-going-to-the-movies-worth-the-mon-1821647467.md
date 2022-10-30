@@ -4,7 +4,7 @@
 
 我们听到人们不像过去那样经常去看电影已经有一段时间了。对一些人来说，原因是显而易见的:它在一些城市几乎贵得令人望而却步，当你唯一的选择是最新的 [超级英雄电影](https://lifehacker.com/1821608250) 或稍旧的 [超级英雄电影](https://lifehacker.com/1821608293) 时，对很多观众来说没有太大的吸引力。
 
-Watch
+
 
 我们问你 [会有什么鼓励你在](https://lifehacker.com/what-would-make-you-actually-go-to-the-movies-1821605002) [【彭博】](https://www.bloomberg.com/news/articles/2017-12-26/material-world-movie-theaters-want-you-back-so-they-re-rushing-to-modernize) 之后再去 看看不断下滑的门票收入，价格和 [品种](https://lifehacker.com/1821607333) 确实是很大的因素。再加上 [烦人的邻座](https://lifehacker.com/1821607734) 和破旧的剧院，离开你的沙发似乎没有任何意义。而你们中的一些人，嗯，你只是想和某人一起欣赏电影。
 

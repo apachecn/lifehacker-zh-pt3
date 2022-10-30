@@ -4,7 +4,7 @@
 
 如果你也一直在与认知失调作斗争，格莱姆斯，一个去除流派的音乐家，他创造了几个世界级的唱片和 EPs，也创造了有史以来最好的音乐视频之一[，现在正在与埃隆·马斯克约会，一个非常不酷的富人，有人曾把他描述为现实世界的托尼·斯塔克，他现在似乎痴迷于实现这一描述，包括像](https://www.youtube.com/watch?v=JtH68PJIQLE) [这样的老掉牙的企业，销售大型火焰喷射器](https://sploid.gizmodo.com/elon-musk-would-like-to-sell-you-a-flamethrower-1822496000) 并声称他将 [很诡异。Grimes 是一个非常古怪的人，她已经形成了自己的视听风格，现在她穿着特斯拉标志的项链出现在大都会歌剧院。这不应该。](https://news.avclub.com/elon-musk-says-he-is-building-a-checks-notes-cyborg-1825565531) 
 
-Watch
+
 
 幸运的是，外面有帮手。一个新的 Chrome 扩展 将用“格莱姆斯的男朋友”替换所有“埃隆·马斯克”的实例，从而恢复宇宙的秩序。因为，虽然这种关系不一定能解除，但我们至少可以重新配置我们对事物的看法，比如那个 [造不出足够多汽车](https://jalopnik.com/tesla-switching-to-24-7-shifts-to-push-for-6-000-model-1825335216) 又想 [造一条大隧道的家伙(？)](https://gizmodo.com/elon-musks-hyperloop-concept-is-now-even-more-hopelessl-1823675120) 和 [现在做喜剧的](https://www.theonion.com/elon-musk-embarrassed-after-realizing-he-proposing-idea-1823804914) 是做了*盖迪质数* EP 的人的附庸，从而拥有。这种延伸也是一种方便的社会评论，关于女性如何在新闻报道中仅仅被描述为她们丈夫的附属品。
 

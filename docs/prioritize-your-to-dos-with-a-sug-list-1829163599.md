@@ -4,7 +4,7 @@
 
 如果你正在寻找一种方法来提升你的标准待办事项清单的效率，大卫·努尔，努尔集团公司 的创始人，在 [*快公司*](https://www.fastcompany.com/3057716/use-this-formula-to-overhaul-your-totally-worthless-to-do-) *:* 中写了一个有用的替代方法，把它变成一个 SUG 清单。
 
-Watch
+
 
 SUG 代表严肃、紧急和成长。当你创建每日、每周或每月的清单时，你需要考虑这三件事，以便更好地安排你的时间。考虑:
 

@@ -4,7 +4,7 @@
 
 到今年年底，我们应该知道大规模的税收改革计划 [正在国会](https://lifehacker.com/what-you-need-to-know-about-the-latest-changes-to-the-s-1820472970) 折腾，我们的立场是什么。尽管如此，有一个群体可能会面临大幅增税:研究生。
 
-Watch
+
 
 众议院版本的税收计划希望取消某些税收抵免，如学生贷款利息扣除，但它包括一些税收减免，包括增加标准扣除额。虽然这些优惠中的一些将随着时间的推移而消失，但《纽约时报》报道称，大多数纳税人 [将在短期内受益](https://www.nytimes.com/interactive/2017/09/29/us/politics/trump-tax-plan-analysis.html?_r=0) (特别是最富裕的纳税人)，尽管经济学家警告说，这将以 1.4 至 1.5 万亿美元的赤字 为代价。
 

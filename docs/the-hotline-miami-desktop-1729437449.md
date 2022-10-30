@@ -4,7 +4,7 @@
 
 你可能记得几周前的[bionicfemme](http://kinja.com/bionicfemme)[earth bound desktop](http://lifehacker.com/the-earthbound-desktop-1721828694)——现在她带着这个令人敬畏的热线 Miami desktop 回来了，它完美地抓住了游戏的主题和感觉，我们忍不住要分享它。她是这样设计的。
 
-Watch
+
 
 再说一次，Bionicfemme 使用的是 OS X，所以如果你想让你的 Mac 也有类似的外观，下面是你需要的:
 

@@ -4,7 +4,7 @@
 
 Instagram 不仅仅是为了检查你的前任或者放纵你对 [小](https://www.instagram.com/p/BNsK7y5BZxM/?taken-by=tinksthegriffon)[怪](https://www.instagram.com/p/BYYT0TYjtUf/?taken-by=owenthegriff) [狗](https://www.instagram.com/p/BW3ni5YD_-T/?taken-by=koutakotaro) 的爱。视觉驱动的社交媒体网络也是浏览服务的一种方式:理发师、纹身师，以及——这有点跳跃，但也很有意义——整形外科医生。
 
-Watch
+
 
 **头条:** [为什么在 Instagram 上找整形医生会有风险](http://www.cnn.com/2017/08/30/health/instagram-plastic-surgery-study/index.html) (CNN)
 

@@ -4,7 +4,7 @@
 
 准备好抢到新的 iPhone 8 了吗？如果你不想折腾或者 [把你的旧的](http://lifehacker.com/how-to-sell-your-old-phone-before-the-new-one-arrives-1798437219) 卖掉，为什么不送给你的后代呢？这比给他们买一个他们肯定会放错或弄坏的新设备要好，只要你采取了 [适当的预防措施](http://offspring.lifehacker.com/how-to-set-smartphone-limits-for-your-kids-1798154097) ，你就能跟踪他们在做什么。你不能保护你的孩子 [远离每一个不良网站](http://offspring.lifehacker.com/how-to-protect-your-kids-from-disturbing-fake-peppa-pi-1797768331) 或网上图片，但你绝对可以通过一些限制和规则把他们引向正确的方向。
 
-Watch
+
 
 ### **倒回去，擦干净**
 

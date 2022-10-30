@@ -4,7 +4,7 @@
 
 医用大麻是一种安全的替代治疗选择( [相比之下](http://www.huffingtonpost.com/2015/02/24/marijuana-safer-than-alcohol-tobacco_n_6738572.html) )，但它仍然是一种强大的药物，如果你不知道自己在做什么，它会给你带来问题。然而，只要有一点知识和实践，你就可以用它来缓解一些症状，并控制负面的副作用。
 
-Watch
+
 
 <small>*这篇文章是 Lifehacker 的*</small> [<small>*绿周*</small>](http://lifehacker.com/tag/green-week) <small>*中的第四篇，在这一系列文章中，我们将讨论医用大麻，它的好处，缺点，以及你需要知道的一切。请记住，我们不是医生，所以你应该在尝试之前检查你的医生，同样，遵守你所在地区关于医用大麻采购和使用的法律法规。*T15】</small>
 

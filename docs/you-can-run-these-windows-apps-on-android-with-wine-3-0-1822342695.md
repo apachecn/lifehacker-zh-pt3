@@ -4,7 +4,7 @@
 
 有数以百万计的 Android 应用程序可供选择，但如果你想超越 [Google Play](https://lifehacker.com/watch-out-for-this-fake-whatsapp-app-in-the-google-play-1820222637) 所能提供的，那么你很幸运。由于最近的一次更新，你可以使用一个名为 [Wine 3.0](https://www.winehq.org/announce/3.0) 的程序在 Android 上运行 [Windows 7](https://lifehacker.com/lifehackers-complete-guide-to-windows-7-5386953) 应用程序。
 
-Watch
+
 
 Wine 实际上从 1993 年就出现了，使得在苹果硬件和 Linux 驱动的电脑上运行 Windows 软件成为可能。随着它的最新更新，同样的功能正在扩展到 Android，尽管它的功能有一些限制。
 

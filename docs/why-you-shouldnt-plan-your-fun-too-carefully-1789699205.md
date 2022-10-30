@@ -4,7 +4,7 @@
 
 你有没有发现自己害怕一项你提前几天或几周就迫不及待安排好的休闲活动？几年前，当我回土耳其旅行时，我第一次发现自己这样做了。我兴奋地计划会见一些老朋友。但令我惊讶的是，随着日期的临近，我开始对这些期待已久的团聚感到不情愿和不热情。
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/how-making-fun-weekend-plans-can-actually-ruin-your-weekend-68131) *。*
 

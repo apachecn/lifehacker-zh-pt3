@@ -4,7 +4,7 @@
 
 昨天互联网上沸沸扬扬，有报道称俄勒冈州波特兰市一个家庭的亚马逊回声录下了一段“私人对话”，并发送给了一个“随机的陌生人”。这听起来比实际发生的要险恶得多，谢天谢地，你可以用一个小技巧来确保这种事情不会发生在你身上。
 
-Watch
+
 
 在我开始调整你的回声设备之前，让我们先回顾一下事实。以下是当地新闻机构 [KIRO 7](https://www.kiro7.com/news/local/woman-says-her-amazon-device-recorded-private-conversation-sent-it-out-to-random-contact/755507974) 对情况的描述:
 

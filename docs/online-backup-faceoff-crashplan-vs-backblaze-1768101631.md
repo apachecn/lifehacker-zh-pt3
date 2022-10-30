@@ -4,7 +4,7 @@
 
 您不想考虑备份:您希望它们在后台自动发生在您所有的计算机上。您希望从任何位置、任何设备、任何操作系统访问这些备份。为此有两个优秀的服务: [CrashPlan](http://www.code42.com/crashplan/) 和 [Backblaze](https://www.backblaze.com) 。两者都很受欢迎，我们过去都推荐过。我们来对比一下。
 
-Watch
+
 
 正如我们之前说过的 ，没有理由不备份你的电脑。有一天你的硬盘会出故障，当它出故障时，你不想丢失所有的数据。您可以将系统备份到本地驱动器，但是出于冗余的考虑，您还应该将它备份到异地位置。这就是在线备份解决方案的用武之地。 [虽然你在这个领域有很多选择](http://lifehacker.com/five-best-online-backup-services-1006345049) ，CrashPlan 和 Backblaze 是两个最有声望和最知名的服务。
 

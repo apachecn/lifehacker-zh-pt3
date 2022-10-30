@@ -5,7 +5,7 @@
 亲爱的生活黑客，
 [OS X El Capitan](https://www.apple.com/osx/elcapitan-preview/) 今天出了。看起来不错，但还是升级，任何升级都有可能变坏。你们一直在用它。你怎么想呢?是准备好黄金时间了，还是我应该等待下一个补丁来修复人们不可避免会发现的 bug？
 
-Watch
+
 
 真诚的，我的船长
 

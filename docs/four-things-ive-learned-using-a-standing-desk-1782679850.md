@@ -4,7 +4,7 @@
 
 我已经使用立式办公桌几个月了，我很喜欢它。它 [让我感觉更有效率](https://lifehacker.com/a-standing-desk-makes-me-more-productive-even-if-it-s-1766137972) ，让我保持活跃，而且几乎不花我一分钱。尽管如此，我还是有一些成长的烦恼。如果你正在考虑设置一个立式办公桌，这是我学到的，这样你就不必这么做了。
 
-Watch
+
 
 我的设置非常简单，但它可以完成工作。我有一张我的室友打算扔掉的普通书桌/桌子，在那上面我有一个 [或](http://oristand.co/) ，我的 [苹果魔法键盘](http://www.apple.com/shop/product/MLA22LL/A/magic-keyboard-us-english) 、 [罗技 M510 无线鼠标](https://www.amazon.com/Logitech-910-001822-M510-Wireless-Mouse/dp/B003NR57BY/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/four-things-ive-learned-using-a-standing-desk-1782679850&asc_source=&tag=kinjalifehackerlink-20) 和[戴尔 XPS 13](http://www.dell.com/us/p/xps-13-9350-laptop/pd) 可以舒适地休息。Oristand 由厚纸板制成，加上运费，售价 25 美元，可以在旅行时轻松折叠。除此之外，我还有一个小小的办公桌收纳盒，一些 [作家汁](https://en.wikipedia.org/wiki/Lagavulin_distillery) ，还有几支喜欢整天逗我的雪茄。
 
@@ -14,11 +14,7 @@ Watch
 
 我的立式办公桌有几双鞋可供选择。首先是一双好看的跑鞋，我的 [新百伦鲜沫 Vongos](http://www.newbalance.com/pd/fresh-foam-vongo/MVNGO.html#color=Grey_with_Outer%20Space_and_Toxic) 。当我在城市中跑步时，它们为我的脚提供了大量的缓冲，并为我的膝盖提供了稳定性，它们也非常适合长时间站立。如果你有一双像样的跑鞋，就穿这双吧。否则，确保你的鞋子有合适的缓冲、支撑和 [也许是一个特殊的鞋垫](https://lifehacker.com/how-to-survive-long-holiday-shifts-as-a-retail-worker-1464023647) 。我的另一个选择是一双我奶奶从来没有用过的毛绒拖鞋。他们有很好的泡沫鞋垫，我穿着它们感觉很清新——这有时比舒适更重要。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Four Things I&#39;ve Learned Using a Standing Desk](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-survive-long-holiday-shifts-as-a-retail-worker-1464023647) [###### 作为一名零售工作者，如何度过长假轮班](https://lifehacker.com/how-to-survive-long-holiday-shifts-as-a-retail-worker-1464023647) 
 
-假日购物季开始升温，虽然这意味着许多人…
-
-[Read more](https://lifehacker.com/how-to-survive-long-holiday-shifts-as-a-retail-worker-1464023647)</aside>
 
 增加站立区域的衬垫也是一个好主意。即使穿着鞋子，你也可以让你的站立区域越柔软越好。我用的是超厚的 [Spoga 运动瑜伽垫，带舒适泡沫(25 美元)](https://www.amazon.com/dp/B00O92OUUG/ref=twister_B018JSWVJM?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/four-things-ive-learned-using-a-standing-desk-1782679850&asc_source=&psc=1&tag=kinjalifehackerlink-20) 。它提供了一些衬垫，非常适合我锻炼。两只鸟？认识一下这种超软的石头。马克每日苹果公司的马克·西森也建议在站立时定期抬起一只脚。它可以帮助你防止背部僵硬，让你的腿稍微休息一下。我用一个小纸箱做这个(没有图片)，但是如果你想要看起来更好的东西，网上有很多脚凳可供选择。
 
@@ -44,11 +40,7 @@ Watch
 
 你还应该把你的键盘舒适地放在伸手可及的地方，这样你的肘部可以成 90 度角，你的电脑屏幕应该足够高，这样你就可以 [阅读它，根本不用倾斜你的脖子](http://lifehacker.com/an-easy-way-to-find-the-perfect-height-for-your-chair-o-1580097680)——[，就像你坐着的时候](https://lifehacker.com/how-to-ergonomically-optimize-your-workspace-30833302) 。我不得不在我的笔记本电脑下面堆几个盒子来实现这一点，但这是值得的，即使它看起来不那么漂亮。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Four Things I&#39;ve Learned Using a Standing Desk](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-ergonomically-optimize-your-workspace-30833302) [###### 如何从人体工程学角度优化你的工作空间](https://lifehacker.com/how-to-ergonomically-optimize-your-workspace-30833302) 
 
-如果你一天大部分时间都坐在办公桌前，你很可能知道这有多糟糕
-
-[Read more](https://lifehacker.com/how-to-ergonomically-optimize-your-workspace-30833302)</aside>
 
 ### 多坐一会儿
 

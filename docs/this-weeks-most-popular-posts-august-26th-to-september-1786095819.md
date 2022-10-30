@@ -4,7 +4,7 @@
 
 本周，我们看了看起来聪明但实际上会伤害你的信用的金钱习惯，比较了最初的魔兽世界和它的最新版本，学习了如何做完美的木板，等等。下面回顾一下本周最受欢迎的帖子。
 
-Watch
+
 
 ## [**会损害你信用的良好理财习惯**](http://twocents.lifehacker.com/good-money-habits-that-can-hurt-your-credit-1785962981)
 

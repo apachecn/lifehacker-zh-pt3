@@ -4,7 +4,7 @@
 
 世界正在变暖。对此不再有任何疑问。随着一份 [的新报告详细说明我们](https://gizmodo.com/we-have-a-decade-to-prevent-a-total-climate-disaster-1829585748) 到底有多惨，是时候回顾一下我们所处的基本情况了。
 
-Watch
+
 
 ### 为什么世界变暖了？
 

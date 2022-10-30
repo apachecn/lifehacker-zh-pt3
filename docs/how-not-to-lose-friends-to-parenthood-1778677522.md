@@ -4,7 +4,7 @@
 
 有一种观点认为平行宇宙同时存在，历史上每一个事件的每一个可能的结果都发生在其中。如果这是正确的，那么在时间和空间的某个地方， [德兹·布莱恩特抓住了](http://deadspin.com/dez-bryants-overturned-catch-ruined-our-fun-1678854513) ，小唐纳德·川普死于婴儿猝死综合症，9/11 不是监守自盗， [川普的气味仍然打得何塞·包蒂斯塔](http://screengrabber.deadspin.com/watch-rougned-odor-punch-jose-bautista-in-extreme-slow-1776800607) 屁滚尿流，但这次他们是两足剑齿虎。
 
-Watch
+
 
 史蒂芬·霍金 [相信多元宇宙](https://www.youtube.com/watch?v=oFUgMXVj0js) ，我也是，我去过平行宇宙。我和我的孩子们道别，登上飞机，降落在一个没有孩子的世界。我是说，这世界真小。只是一栋房子，真的。但这已经足够了。
 

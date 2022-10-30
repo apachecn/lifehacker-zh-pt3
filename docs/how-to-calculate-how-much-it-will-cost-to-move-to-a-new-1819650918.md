@@ -4,13 +4,9 @@
 
 假设你的目标是一座新城市，你准备好打包行李，离开道奇，在这个国家的另一个地方开始新的生活。(甚至是全世界！) [摆脱道奇是昂贵的](https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924) ，但很容易得到一个大概的成本。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Calculate How Much It Will Cost to Move to a New City](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924) [###### 在预算紧张的情况下行动:节省大量金钱的七种方法](https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924) 
 
-除非你是一个虔诚的极简主义者，否则搬家会让人望而生畏——尤其是当你手头很紧的时候…
 
-[Read more](https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924)</aside>
 
 像 [城市间迁移计算器](http://www.citytocitymoving.us/) 这样的在线工具可以帮助你分解迁移到一个新城市的成本，这取决于距离和许多其他因素。输入你的旧城市，你的新城市，然后输入一些关于你将如何生活的细节，计算器会告诉你你预计会花多少钱。该工具假设你会开车而不是坐飞机，并使用像 PODs 这样的服务，这可能会使搬迁变得更加昂贵。
 

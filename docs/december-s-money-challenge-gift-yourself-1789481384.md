@@ -4,7 +4,7 @@
 
 今年，我们挑战你去 [存更多的](http://twocents.lifehacker.com/januarys-money-challenge-no-restaurant-spending-1749975621) ，控制住，甚至 [赚点外快](http://twocents.lifehacker.com/november-s-money-challenge-sell-your-unwanted-stuff-1788424216) 。在今年 [终极金钱挑战](https://lifehacker.com/lifehacker-readers-lets-take-a-money-challenge-togethe-1747419781) 的最后一期，我们希望你给自己一份礼物——节省一部分假期开销。
 
-Watch
+
 
 对于您今年购买的每一件礼物，我们都要求您节省一定比例的费用。花 100 美元为你的另一半买了一副耳机？把其中的 10%存入储蓄账户。(如果你没有花在礼物上， [把这条规则](http://twocents.lifehacker.com/save-the-same-amount-you-splurge-to-curb-impulse-buying-1746324536#_ga=1.155697979.1268082208.1431441811) 用在另一项可自由支配的开支上，比如餐馆或小玩意。)
 

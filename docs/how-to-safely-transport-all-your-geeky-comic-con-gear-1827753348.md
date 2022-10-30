@@ -4,7 +4,7 @@
 
 圣地亚哥动漫展就要来了。如果你要飞去参加这个会议，或者计划去参加另一个极客大会，你可能已经知道你应该和不应该在你的行李里装什么 。(当你把手臂举在空中，就像你不在乎身体扫描仪一样，用热雷管、Gom Jabbar 或立法者复制品来惊讶运输安全局，这不是你的最佳利益。)
 
-Watch
+
 
 虽然 [光剑可以带着](https://www.tsa.gov/travel/security-screening/whatcanibring/items/light-saber) 旅行——而泡沫剑则不行(至少 [不能作为随身携带的](https://www.tsa.gov/travel/security-screening/whatcanibring/items/foam-toy-sword))——那么你要从一个会议上带回来的所有其他东西呢？昂贵的亲笔签名漫画？无价的收藏品？服装配饰？
 

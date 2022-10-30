@@ -4,7 +4,7 @@
 
 有时候，你只是想要一个简单的包，几个笔记本，几个写作用具。《每日邮报》的读者约瑟夫·德科默分享了他的袋子里装的就是这些东西。
 
-Watch
+
 
 这个包是一个 [的铜河单肩包](http://www.copperriverbags.com/copy-of-new-medium-14-lewis-clark-courier-mail-bag-made-in-the-u-s-a-14-325-10-00/) 。这是里面的内容:
 

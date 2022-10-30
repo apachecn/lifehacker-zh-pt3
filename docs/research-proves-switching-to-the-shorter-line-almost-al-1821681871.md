@@ -4,7 +4,7 @@
 
 当你在一个似乎无处可去的杂货店排队时，你不应该换到另一个队列。研究人员称，除非收银员不需要等待就在你旁边开门，否则从一条线跳到另一条线实际上会适得其反。
 
-Watch
+
 
 哈佛商学院的研究人员最近发现，当有人发现自己在一条线的尽头时，他们更倾向于做出可能适得其反的决定。这个问题来自于没有人想成为“最后一个”， [报道*《卫报》*](https://www.theguardian.com/science/2017/dec/27/back-to-front-why-switching-queues-will-get-you-nowehere-faster) 。
 

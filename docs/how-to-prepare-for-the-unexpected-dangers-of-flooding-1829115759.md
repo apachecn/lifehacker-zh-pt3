@@ -4,7 +4,7 @@
 
 暴风雨会摧毁你的家，夷平你的邻居，但即使在暴风雨过后，洪水也会带来你可能没有意识到的独特危险。事实证明，即使是在水中行走也会致命。
 
-Watch
+
 
 想想很可怕，但另一方面，一点点准备可能会救你一命。在 subreddit LifeProTips 上，用户 u[/daynanfighter](https://www.reddit.com/user/daynanfighter)[解释了为什么最好使用小船从一个地方到另一个地方，即使洪水看起来是可以步行的:](https://www.reddit.com/r/LifeProTips/comments/9gjbld/lpt_for_those_in_flooded_areas_use_extreme/)
 

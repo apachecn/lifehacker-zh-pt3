@@ -4,7 +4,7 @@
 
 我们之前已经注意到，当谈到营养 时，每个人都同意的只有三件事 [。多亏了营养研究人员的会议，我们可以在这个清单上增加一些东西。](http://vitals.lifehacker.com/the-only-three-things-everybody-agrees-on-when-it-comes-1709039566#_ga=1.253474569.1055861349.1441835238)
 
-Watch
+
 
 这份共识声明的第一点来自于 11 月举行的一次会议，简单地说就是:**更多的植物、坚果、豆类、海鲜**。研究人员认可了[2015 年饮食指南咨询委员会](http://health.gov/dietaryguidelines/2015-scientific-report/) 的调查结果，该委员会在推荐这些食物的同时，建议人们避免含糖食品和饮料，以及精制谷物。
 

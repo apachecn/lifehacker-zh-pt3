@@ -4,7 +4,7 @@
 
 鞭打虹吸管似乎是高级餐厅厨师的最佳工具。我很感激你可以用它们做的一切，但我不会用 [烟熏三文鱼](http://www.isi.com/us/culinary/rezepte/rezept/raeucherlachs-espuma/?no_cache=1&cHash=934d637950fbb4b09c82fbdc2951e721) 来结束我的工作日晚餐。我对它如何帮助我*加快速度*很感兴趣，尤其是输液。这里有一些巧妙的方法，你可以把它用在家里。
 
-Watch
+
 
 为了看看虹吸管能否帮助我更快更美味地制作食物和饮料，我拿起了 iSi Gourmet Whip(我有这种型号， [在亚马逊大约 113 美元，](https://www.amazon.com/gp/product/B004GFS2I2/ref=od_aui_detailpages00?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-practical-uses-for-a-whipping-siphon-go-way-beyon-1782127928&asc_source=&ie=UTF8&psc=1&tag=kinjalifehackerlink-20) ，试着浸泡、发泡和起泡。
 

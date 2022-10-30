@@ -4,7 +4,7 @@
 
 如果你想要一个温和的提醒，不要在网上浪费时间——不要投资一个功能齐全的付费应用程序，如 [【自由】](https://lifehacker.com/freedom-blocks-distractions-in-sync-across-every-device-1747878326)——尝试一下 [互联网上什么都没有](http://www.nothingontheinternet.com/) ，这是 Chrome 和 Safari 的一个扩展，它关闭了网络的所有内容，留下了一片禅宗般的空白线框。
 
-Watch
+
 
 [正如 Fast Company notes](https://www.fastcodesign.com/90153585/heres-an-internet-off-button-for-when-you-just-cant-take-it-anymore) 一样，extension(由创意机构 [副业集体](https://sidelinecollective.com/) )也是一个不错的网页设计工具，因为它展示了一个网站的底层结构。查看集体图库中的 [热门网站被剥离内容](https://sidelinecollective.com/nothingontheinternet/) 。
 

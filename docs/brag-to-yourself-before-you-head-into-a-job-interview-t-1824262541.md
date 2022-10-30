@@ -4,7 +4,7 @@
 
 每个人在工作面试前都会紧张，但是有很多方法可以让你振作起来，摆脱紧张。当然你需要对公司做你的 [研究](https://lifehacker.com/research-a-prospective-employer-to-shine-in-the-intervi-30912338) ，对最常见的面试问题做 [练习回答](https://lifehacker.com/prepare-for-a-job-interview-by-writing-three-replies-to-1692538320) 。你准备得越多，你就越有信心。此外，在我可能会紧张但需要留下印象的任何类型的情况之前，我喜欢听我的 [跑步播放列表](https://lifehacker.com/the-lifehacker-pump-up-song-playlist-1823091251) 。你可能也有自己的诀窍。
 
-Watch
+
 
 但是，当这位 [在纽约大学和哥伦比亚大学](http://web-docs.stern.nyu.edu/management/Kilduff/KilduffGalinskyOnlineProof.pdf) 学习时，你应该把这种宣传更进一步，在你去见招聘经理之前吹嘘一下自己。
 

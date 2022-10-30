@@ -4,7 +4,7 @@
 
 [【Face ID】](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)[iPhone X](https://lifehacker.com/what-do-you-like-or-hate-about-iphone-x-1820179520)大部分时间都非常完美地工作，尽管它似乎确实有一些问题来区分 [家庭成员](https://lifehacker.com/don-t-use-face-id-on-the-iphone-x-if-you-re-worried-abo-1821014444) 。但是，如果苹果新的面部识别技术不能区分你和某个随机的人，比如同事，会怎么样呢？
 
-Watch
+
 
 根据中国 的一份 [报告，当一位女士的同事多次尝试都能轻松解锁她的 iPhone X 时，这正是发生在她身上的事情。据报道，这位女士能够获得退款，但苹果公司并没有让它变得容易。](http://www.scmp.com/news/china/society/article/2124313/chinese-woman-offered-refund-after-facial-recognition-allows)
 

@@ -4,7 +4,7 @@
 
 谁说青少年不喜欢汽车？乔伊马上就要 16 岁了，他迫不及待地想要得到他的第一辆车。他有高达一万美元的可观预算，想要一些有趣的东西，但也需要安全。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

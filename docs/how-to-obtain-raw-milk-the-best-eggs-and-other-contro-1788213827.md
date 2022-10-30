@@ -4,7 +4,7 @@
 
 包括食物在内的许多东西，当它们是非法的时候会更有趣一点，我一直认为你应该能够把你想要的任何东西放进你的身体里，因为它是你自己的。虽然食用生乳制品、未冷冻的鸡蛋和马肉在技术上并不违法，但购买这些东西可能有点可疑，我们在这里向你展示如何获得这些商品。
 
-Watch
+
 
 *<small>这篇文章是我们的</small>* [*<small>恶周</small>*](https://lifehacker.com/welcome-to-lifehackers-seventh-annual-evil-week-1788085206) *<small>系列的一部分，在这里我们看到了做事的阴暗面。有时邪恶是正当的，而其他时候，知道邪恶意味着知道如何打败它。想要更多吗？查看我们的</small>* [*<small>恶周标签页</small>*](http://lifehacker.com/tag/evil-week#_ga=1.105669515.968941705.1436971740) *<small>。</small>*
 

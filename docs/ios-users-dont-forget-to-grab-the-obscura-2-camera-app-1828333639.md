@@ -4,7 +4,7 @@
 
 **iOS:** “苹果”和“免费”这两个词有点像油和水——只要问问在该公司工作的任何人，他们就知道了，硅谷的习俗是为所有人提供免费午餐和晚餐。然而，库克神父这个月感觉很慷慨，苹果免费提供优秀的 [暗箱 2](https://itunes.apple.com/us/app/obscura-2/id1290342794?mt=8) 相机应用。以下是你如何得到它(并节省 5 美元)。
 
-Watch
+
 
 首先，在 iOS 上调出 Apple Store 应用。 I 如果你早就把那个从你的设备上删除了，你可以从 App Store [这里](https://itunes.apple.com/us/app/apple-store/id375380948?mt=8) 重新下载。没错，Apple Store 应用和 App Store 应用是两个不同的东西。
 

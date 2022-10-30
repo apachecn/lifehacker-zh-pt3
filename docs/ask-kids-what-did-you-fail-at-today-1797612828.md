@@ -4,7 +4,7 @@
 
 在精英大学，教员们已经注意到一个问题。许多学生虽然在理论上令人印象深刻，但似乎无法应对简单的斗争——被分配到他们不喜欢的宿舍，期中考试得分低于 A -,或者没有入选校队。缺乏弹性已经变得如此明显，以至于史密斯学院现在提供了一整门关于如何让 失败的课程。(一个令人不舒服的课堂项目:将你最大的失败投射到校园中心的大屏幕上。哎哟。)
 
-Watch
+
 
 关于[参与奖杯](https://www.nytimes.com/roomfordebate/2016/10/06/should-every-young-athlete-get-a-trophy/participation-trophies-send-a-dangerous-message)[直升机育儿](http://www.npr.org/sections/ed/2017/07/24/533059271/are-helicopter-parents-ruining-summer-camp) 如何毁了一切，或者至少让孩子无法做艰难的事情，有各种各样的咆哮和报道，但是如果父母是这样的，他们很难打破这个循环。属于这一类的人我举手。简单地说“停止溺爱”不会有多大帮助。但是欢迎失败进入你的家庭和家庭讨论可能会。
 

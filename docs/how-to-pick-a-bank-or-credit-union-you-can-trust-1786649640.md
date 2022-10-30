@@ -4,7 +4,7 @@
 
 你可能遇到过这样的人，他说他们不信任银行，并把他们的钱藏在床垫下。你注销它们，继续使用你的借记卡和支票账户。然后，像富国银行这样的事情 [发生了](http://lifehacker.com/what-you-should-know-if-you-think-wells-fargo-ripped-yo-1786461333?rev=1473464299757) ，突然间，投资你的钱似乎不是一个坏主意。
 
-Watch
+
 
 尽管我们害怕，但银行在大多数情况下为我们提供了很好的服务。当我们需要付房租时，我们的钱就在那里。我们可以随时转账。该系统在日常交易中运行良好，但这并不意味着银行完全值得信赖。许多客户了解到，在 2008 年 银行业崩溃的 [期间，银行几乎没有因为不正当的商业行为遭受什么后果。富国银行(Wells Fargo)最近的这条消息令人不安地提醒我们，银行可以利用你的个人信息，甚至更糟的是你的钱，做一些偷偷摸摸、非法的事情。信任一家银行从来都不是一件容易的事，但如今似乎不可能了。那么如何挑选一个真正值得信赖的呢？这里有几个选择。](https://www.theguardian.com/business/2008/dec/28/markets-credit-crunch-banking-2008) 
 
@@ -36,11 +36,7 @@ Watch
 
 富国银行丑闻的发生是因为员工试图达到销售配额。毕竟，富国银行是一家盈利的大公司。像其他公司一样，他们也有销售目标。与银行不同的是， [信用合作社是非营利性的](https://lifehacker.com/five-best-credit-unions-1656438536) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Pick a Bank or Credit Union You Can Trust](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-best-credit-unions-1656438536) [###### 五大最佳信用合作社](https://lifehacker.com/five-best-credit-unions-1656438536) 
 
-如果你正在寻找一个更好的地方投资，信用合作社是一个好的选择。
-
-[Read more](https://lifehacker.com/five-best-credit-unions-1656438536)</aside>
 
 信用社没有顾客；他们有成员。我们之前已经告诉过你银行和信用合作社 之间的区别，但是 Inova 联邦信用合作社 [的 Dallys Bergl 总结得很好](http://www.inovafcu.org/finance-talk/credit-unions-vs.-banks.html) :
 
@@ -48,11 +44,7 @@ Watch
 
 诚然，伯格尔是信用合作社的总裁，所以他的观点可能不是 100%客观，但我们的读者也是他们的忠实粉丝 。一般来说，大多数信用合作社成员只会说一些关于他们的令人敬畏的事情。你很难对银行客户说同样的话。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Pick a Bank or Credit Union You Can Trust](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-switch-from-my-bank-to-a-credit-union-5857091) [###### 我如何从银行转到信用社？](https://lifehacker.com/how-do-i-switch-from-my-bank-to-a-credit-union-5857091) 
 
-亲爱的生活黑客，我正在考虑从我的银行转到当地的信用社。我应该…
-
-[Read more](https://lifehacker.com/how-do-i-switch-from-my-bank-to-a-credit-union-5857091)</aside>
 
 信用合作社通常也有更好的利率和更少的费用。不过，其中许多是会员制的，有些可能没有银行那样的便利。好消息是，这些 [烦恼中的许多都很容易绕过](http://lifehacker.com/how-to-fix-credit-unions-biggest-annoyances-1629502038#_ga=1.106450435.1403566012.1473902594) 。
 

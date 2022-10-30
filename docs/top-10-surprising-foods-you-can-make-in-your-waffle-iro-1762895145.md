@@ -4,7 +4,7 @@
 
 是时候掸掉那台被忽视的华夫饼机和华夫饼干了。这里有 10 多种非常适合用华夫饼干机烹饪的食物(不是华夫饼)。
 
-Watch
+
 
 你几乎可以在华夫饼机里制作任何东西，从小吃到甜点。双重加热元件让你 [毫不费力地做出脆皮豆腐](http://lifehacker.com/make-perfectly-crispy-tofu-with-a-waffle-iron-1671416946)； [把老薯条变成华夫饼薯条](http://lifehacker.com/turn-old-french-fries-into-delicious-waffle-fries-1538670316)； [煮得香脆，不那么凌乱的腊肉](http://lifehacker.com/make-better-less-messy-bacon-in-a-waffle-iron-30946020)；和 [煮包装好的肉桂卷](http://lifehacker.com/cook-packaged-cinnamon-rolls-in-your-waffle-maker-5922663) 。虽然可能性几乎是无穷无尽的，但在某些方面，下面的食物用华夫饼干机制作比用传统方法制作更好。
 

@@ -8,7 +8,7 @@
 
 听上面的升级或者在所有通常提供播客的地方找到我们，包括 [苹果播客](https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2)[Google Play](https://play.google.com/music/m/D4ffrtfbq2bhno63bsi4v5qlruq?t=How_to_Hack_Happiness_With_Gretchen_Rubin-The_Upgrade_by_Lifehacker)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/show/8-The-Upgrade-by-Lifehacker/)[Stitcher](http://www.stitcher.com/podcast/lifehacker-podcast)[NPR One](http://one.npr.org/i/522439906:522439908)。请订阅、评分、评论！
 
-Watch
+
 
 **本周的讨论**
 

@@ -4,7 +4,7 @@
 
 每年的这个时候，我都会收到一些人发来的信息和邮件，他们正在努力为生活中节俭的人挑选礼物。对于那些花钱非常谨慎并且似乎什么都不想要的人，他们会得到什么呢？
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/flexible-holiday-gift-ideas-for-a-frugal-person/) *上。*
 

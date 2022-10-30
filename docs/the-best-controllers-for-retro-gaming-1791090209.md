@@ -4,7 +4,7 @@
 
 无论你是在[Windows](http://lifehacker.com/how-to-set-up-an-all-in-one-retro-game-emulator-with-re-1745863517)[Mac](http://lifehacker.com/openemu-emulates-nearly-every-classic-console-on-mac-1489122040)上通过模拟器玩复古游戏，还是在 [定制的树莓派主机](http://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192) 上玩复古游戏，你都需要一个控制器。我们测试了一些最受欢迎的选项，从简单的 Xbox 控制器到复古复制品和昂贵的蓝牙游戏手柄，以找出哪些是值得你花钱的。
 
-Watch
+
 
 ### 竞争者
 

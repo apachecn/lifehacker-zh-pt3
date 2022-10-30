@@ -4,7 +4,7 @@
 
 谷歌的 Chrome 浏览器充满了难以置信的扩展，增加了各种功能。虽然很难在商店中筛选出有用的东西，但让我们通过收集我们最喜欢的 Chrome 扩展来节省您的时间。
 
-Watch
+
 
 *[***life hacker Pack***](http://lifehacker.com/tag/lifehacker-pack)*是我们最喜欢的年度快照，是我们最喜欢的平台的必备应用程序。要完整下载该包，请前往 Chrome 网上商店* [*我们的收藏*](https://chrome.google.com/webstore/category/collection/lifehacker) *！**
 

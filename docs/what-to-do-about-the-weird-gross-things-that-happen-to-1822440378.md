@@ -4,7 +4,7 @@
 
 怀孕的身体——这是一个美丽的东西！这也是一件出汗、胀气、抽筋、疼痛、渗漏、颠簸的事情。没有人说培育一个新的人类是容易的，但很少有人告诉你在这九个月中可能会突然出现的所有奇怪和严重的疾病。以下是它们发生的原因，以及你可以做些什么。
 
-Watch
+
 
 ### 到处发痒
 
@@ -64,11 +64,7 @@ Watch
 
 如果你感到抽筋，通过 [尽全力收缩对侧肌肉](https://lifehacker.com/release-a-muscle-cramp-instantly-by-contracting-the-opp-1677584412) 来缓解。如果你的小腿抽筋，相对的肌肉是你胫骨前肌的，在你胫骨的前面。为此，弯曲你的脚，就好像你试图让你的脚趾接触你的胫骨，并保持这个姿势几秒钟。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What to Do About the Weird, Gross Things That Happen to Your Pregnant Body](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/release-a-muscle-cramp-instantly-by-contracting-the-opp-1677584412) [###### 通过收缩对面的肌肉来立即缓解肌肉痉挛](https://lifehacker.com/release-a-muscle-cramp-instantly-by-contracting-the-opp-1677584412) 
 
-有没有小腿抽筋在半夜把你吵醒，或者在半夜把你撞倒
-
-[Read more](https://lifehacker.com/release-a-muscle-cramp-instantly-by-contracting-the-opp-1677584412)</aside>
 
 ### 潮热
 

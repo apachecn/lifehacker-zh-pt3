@@ -6,7 +6,7 @@
 
 我知道我不是唯一有这个问题的人。 [我第一次尝试上自行车课](https://vitals.lifehacker.com/what-to-know-your-first-time-at-group-cycling-class-1821878105) ，教练帮我把脚穿上借来的自行车鞋，绑在踏板上。第二次，我独自一人，花了整整两首歌的时间，在黑暗中用脚踩着踏板，祈祷出现某种奇迹。
 
-Watch
+
 
 专门的骑行鞋通常在鞋底使用 [防滑钉](https://spinning.com/guide-to-cycling-shoes/) ，在踏板上使用配套的弹簧夹。SPD 防滑钉是你可能在课堂上看到的最常见的类型。(专业提示:这些被称为“无剪辑”踏板，即使你必须剪辑，因为剪辑，又名脚趾剪辑， [是完全不同的东西](http://www.bike-manual.com/brands/trek/om/hybrid/toe_clips.htm)
 

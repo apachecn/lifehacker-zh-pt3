@@ -4,7 +4,7 @@
 
 当你在不熟悉的领域旅行时，有时逐路段导航是不够的。谷歌地图 的新 [设计更新来帮你了。](http://www.androidpolice.com/2017/05/12/google-maps-gains-street-view-images-for-directions-and-a-bottom-bar-for-location-info-directions-and-more/)
 
-Watch
+
 
 谷歌悄悄推出了一项功能，以街景图像的形式添加你从 A 点到 b 点需要转弯的每条道路的视觉提示。这项更新目前仅适用于 Android 应用程序用户，是谷歌地图应用程序的新功能，但它并不是一个全新的概念。
 

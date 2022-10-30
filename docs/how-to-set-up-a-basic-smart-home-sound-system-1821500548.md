@@ -4,7 +4,7 @@
 
 我们的 [Homehackers](https://lifehacker.com/tag/homehackers#_ga=2.108937921.238213999.1513610342-27973805.1434581949) 视频系列回来了，帮助你将典型的家庭变成一个超级酷的智能家居。在这一集里，我们将讲述智能家庭音响的基础知识，并讨论在家中任何房间听音乐的最佳入门级选择。
 
-Watch
+
 
 我在 Homehackers 总部再次会见了家用技术专家 John Quain，了解了最近大多数人都在摇滚的智能音响系统。首先是 Bose sound link Color Bluetooth speaker II，这是最容易设置的，对于 130 美元的扬声器来说，它的音质非常好，并且是电池供电的，所以你可以带着它去任何地方(即使你不在家)。接下来是 150 美元的 [亚马逊 Echo Plus](https://www.amazon.com/all-new-amazon-echo-plus-speaker-with-smart-home-hub-silver/dp/B06XB29FPF?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-set-up-a-basic-smart-home-sound-system-1821500548&asc_source=&tag=kinjalifehackerlink-20) ，对于想要 Alexa 的功能并且不介意好但不太好的音质的非发烧友来说，这是一个很好的选择。最后但并非最不重要的是，流行的 [Sonos PLAY:1](https://www.sonos.com/en-us/shop/play1.html) 拥有一流的音质，允许你在同一个房间里设置多个扬声器，每个 200 美元(目前的新低价是 150 美元)。
 

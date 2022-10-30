@@ -4,7 +4,7 @@
 
 韦氏词典 [四年来第一次更新了官方拼字词典](https://apnews.com/9e99f02fdf1444b78208d6f76b78677a)([在此购买](https://www.amazon.com/Official-SCRABBLE-Players-Dictionary-paperback/dp/0877795967/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-new-dick-move-for-winning-scrabble-1829271408&asc_source=&tag=kinjalifehackerlink-20) )，增加了一些新词，如 *bizjet* (以复数开头 *bizjets* 获得 120 分)，加上一些终于被认为可以玩的旧词，包括 *OK* 、 *ew* 、 *zen* 和 *qapik 这些新词将改变游戏，而且在一段时间内，它们可能会给你一个赢得拼字游戏的新方法。* 
 
-Watch
+
 
 两个字母的单词很重要。一名韦氏词典编辑告诉美联社，它们是“游戏的生命线”，可能是因为它们帮助玩家将一个更长的单词与另一个平行放置，将所有垂直的两个字母单词的分数翻倍。 *OK* 和 *ew* 是加入拼字字典的第 102 个和第 103 个两个字母的单词。
 

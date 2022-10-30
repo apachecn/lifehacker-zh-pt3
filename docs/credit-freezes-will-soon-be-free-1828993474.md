@@ -4,7 +4,7 @@
 
 随着Equifax 违规事件一周年纪念日的到来，这里提醒您，由于今年早些时候通过的一项联邦法律，您将能够 [冻结您的信用报告](https://twocents.lifehacker.com/credit-freezes-are-about-to-become-free-1826260411) 并注册为期一年的 [免费欺诈警报，从 9 月 21 日](https://www.consumer.ftc.gov/blog/2018/06/free-credit-freezes-are-coming-soon-0) 开始。
 
-Watch
+
 
 这对于消费者来说是个好消息，过去，根据州的不同，他们不得不为每个局支付 2 到 10 美元来冻结他们的信用。你仍然需要在三个主要的信用机构冻结你的信用:Equifax，Experian 和 TransUnion。
 

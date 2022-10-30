@@ -4,7 +4,7 @@
 
 在编制今年最佳和最差电子产品榜单时，我注意到一个非常令人难过的事实:谷歌同时上榜。在全力投入硬件游戏的第二年，谷歌设法创造出如此糟糕的耳塞，以至于把它们放在充电盒里需要一段视频解释，还有一台如此神奇的笔记本电脑，我花了很多时间在论坛上策划如何在上面加载一个更有用的操作系统。在这两个小工具之间的巨大鸿沟中，隐藏着谷歌今年宣布的所有其他东西，这些硬件一起描绘了一幅令人困惑的画面。谷歌你到底在干什么？
 
-Watch
+
 
 [Pixelbook 才是真正的离群点](https://gizmodo.com/the-google-pixelbook-made-me-alter-my-existence-1819663762) 。在谷歌今年发布的所有设备中，它是感觉真正有灵感的一款。使用它让我想起了其他非常具有前瞻性的设备，如 [原版 iPhone](https://gizmodo.com/apple-iphone-review-276116#iphonemassive) 或 [Surface](https://gizmodo.com/surface-pro-3-review-the-greatest-laptop-tablet-hybrid-1581896186) 。它们不是同类设备中的第一个，但却是第一个让一切都恰到好处的设备。像素书是一样的。这是第一款真正感觉像是笔记本电脑和平板电脑完美融合的 2 合 1 设备。这款 1000 美元的 Chromebook 居然有视觉！
 

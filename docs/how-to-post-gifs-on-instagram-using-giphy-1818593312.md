@@ -4,7 +4,7 @@
 
 Instagram 是一个分享各种有趣视觉效果的好地方——除了你最喜欢的 gif。Instagram 不让你上传它们。幸运的是，Giphy 应用程序可以让你在智能手机上做到这一点。
 
-Watch
+
 
 Instagram 只接受照片或视频文件，所以你要做的第一件事就是把那个时髦的 GIF 文件转换成视频文件。要做到这一点，Digital Trends 的安东尼·瑟斯顿(Anthony Thurston)建议你使用 Giphy 应用程序，你可以在 iOS 或安卓设备 上下载 [。一旦你明白了，你要做的是:](https://itunes.apple.com/us/app/id974748812)
 

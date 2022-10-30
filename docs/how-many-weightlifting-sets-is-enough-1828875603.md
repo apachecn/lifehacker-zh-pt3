@@ -4,7 +4,7 @@
 
 你需要举起多少重量才能变得更强壮？一项新的研究表明，这并没有你想象的那么多——但就肌肉尺寸而言，越多越好。
 
-Watch
+
 
 在这项研究中， [发表在*医学&体育科学&运动*](https://journals.lww.com/acsm-msse/Abstract/publishahead/Resistance_Training_Volume_Enhances_Muscle.96822.aspx) ，并由其作者总结 [此处](http://www.lookgreatnaked.com/blog/how-much-volume-do-you-need-to-get-stronger-and-build-muscle/) ，34 名有负重训练经验的年轻男性都做了同样的锻炼，每周三次，持续八周。这些练习包括胸部按压、肩部按压、横向下拉、坐式划船、深蹲、腿部按压和腿部伸展，每组做 8 到 12 次。
 

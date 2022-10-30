@@ -4,7 +4,7 @@
 
 如果说 Equifax 数据泄露事件还不够糟糕的话，许多消费者已经在抱怨该公司处理善后事宜的草率方式。例如，有 Equifax 的网站专门针对此事:。
 
-Watch
+
 
 正如 Gizmodo 的 Dell Cameron 指出的, ,这个看起来非官方的网址很容易被欺骗，这正是开发者 Nick Sweeting 在创建 securityequifax2017.com 时所做的。Sweeting 制作了这个假网站，以证明复制 Equifax 的网站进行网络钓鱼欺诈是多么容易，然后欺骗消费者访问该网站。看看这个:
 

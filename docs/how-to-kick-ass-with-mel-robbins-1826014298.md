@@ -4,7 +4,7 @@
 
 梅尔·罗宾斯(Mel Robbins)是一位励志演说家，也是《T2》《5 秒法则》《T4》《T5》的作者。她也是新的 Audible 原创歌曲《 [与梅尔·罗宾斯](https://www.audible.com/ep/mel-robbins?ref=mrq_mel_aud_prvan&source_code=MRQORWS04091800YG) 一起踢屁股》的主持人在这一集里，我们谈论动机，驯服我们头脑中的负面声音，以及我们如何踢自己的屁股从优秀变得伟大。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/b1a41532-1802-4e88-8658-79486a5f8a39/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/b1a41532-1802-4e88-8658-79486a5f8a39/embed)
 

@@ -4,7 +4,7 @@
 
 今天是科学 的 [游行，全国人民走上街头抗议一切反科学的议程和政策。如果你打算表达你的支持，还有时间用这些简单的文字游戏提示做一些令人难忘的标志。](https://www.marchforscience.com/) 
 
-Watch
+
 
 正如语言学家兼播客主持人 [丹尼尔·米奇利](http://danielmidgley.com/) [在 Quartz](https://qz.com/888554/a-linguist-explains-how-to-write-protest-signs-that-everyone-will-remember/) 上解释的那样，制作巧妙的抗议标语是很困难的，因为你的空间有限，而且你的信息必须被迅速吸收(因为你会四处走动)。无论你要抗议什么，米奇利提供了七种方法，可以帮助你的标志真正被看到:
 

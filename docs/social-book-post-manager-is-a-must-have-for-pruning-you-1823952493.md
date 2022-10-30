@@ -4,7 +4,7 @@
 
 尽管每个人都在谈论 [删除他们的脸书账户](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) ，我们怀疑你的大多数朋友可能像往常一样开始他们的一天——在早上通勤时查看脸书。但是如果你真的想清理你的脸书生活，Chrome 扩展 [社交图书管理员](https://chrome.google.com/webstore/detail/social-book-post-manager/ljfidlkcmdmmibngdfikhffffdmphjae?hl=en-US) 是一个很好的工具。
 
-Watch
+
 
 虽然你必须给 Social Book Post Manager 在脸书上“阅读和更改你的数据”的许可——这可能不会让那些希望减少第三方访问他们脸书信息的人感到兴奋——但这是你能够让扩展发挥其魔力的唯一方式。
 

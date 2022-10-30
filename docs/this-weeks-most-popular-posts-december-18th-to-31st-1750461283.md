@@ -4,7 +4,7 @@
 
 假期即将结束，某些编辑 即将离开，但在 2015 年的最后几周，裁员仍将继续。我们学习了撬锁和安全剧场，尝试在一天内读完一整本书，比较了最好的中级 Android 手机，等等。以下是过去两周的热门帖子。
 
-Watch
+
 
 ## [学撬锁让我知道了门锁到底有多烂](http://lifehacker.com/learning-to-pick-locks-taught-me-how-crappy-door-locks-1750091711)
 

@@ -4,7 +4,7 @@
 
 根据 Chime 2015 年的一份报告，近 70%的千禧一代 [更喜欢借记卡而不是信用卡](https://www.chimebank.com/2015/10/01/2015-millennial-money-mindset-report/) ，而 Transunion [报告称](https://www.creditcards.com/credit-card-news/transunion-millennials-gen-xers-card-study.php) 他们比老一代人拥有更少的银行发行的和私人标签卡。
 
-Watch
+
 
 可以理解他们可能会很谨慎——信用卡债务在美国是一个严重的问题，一旦你陷入其中，就很难自拔。信贷行业难以置信的不透明和掠夺性。但是，信用卡也是一个重要的工具，当负责任地使用时，可以帮助你改善一生的财务状况。
 

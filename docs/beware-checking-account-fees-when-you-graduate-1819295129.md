@@ -4,7 +4,7 @@
 
 对于大多数学生来说，当他们毕业的时候，金钱问题变得很现实 。在 [确保你的学生贷款被正确使用](https://twocents.lifehacker.com/make-sure-your-extra-student-loan-payment-is-applied-co-1709667429) 以跟上一堆新的开支之间，你学会了在财务上保持警惕。另一个需要注意的货币问题？支票账户费用。
 
-Watch
+
 
 你不一定要成为大学生才能获得一个免费的支票账户，但是它们通常对学生来说更容易获得。例如，我上大学时，在美国银行注册了一个学生账户。然而，在我毕业后不久，他们就把我转入了一个最低余额为 1500 美元的定期支票账户。我没有 1500 美元，这意味着每个月我都要支付一笔费用来维持这个账户。(我也不是唯一一个。一个 [Reddit 的帖子](https://www.reddit.com/r/personalfinance/comments/6c35ne/this_is_just_a_reminder_that_bank_of_america/) 提醒了我这一点。)如果你有直接存款，有些账户会免收手续费，但这仍然是你需要注意的。
 

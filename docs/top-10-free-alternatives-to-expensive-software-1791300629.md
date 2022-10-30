@@ -4,7 +4,7 @@
 
 除非你有一家公司为你购买许可证，否则像 Photoshop、Pro Tools、Maya 甚至 Windows 这样的工具可能会严重侵蚀你的钱包。这里有一些比通常昂贵的应用程序更实惠的选择，可以帮助你停止烦恼，完成更多工作。
 
-Watch
+
 
 ### 10. [GIMP](https://www.gimp.org/) (免费，用于 Windows、macOS 和 Linux)
 
@@ -22,11 +22,7 @@ Libre Office 近年来也取得了长足的进步。过去看起来非常像刻�
 
 如果你使用矢量图形、构建徽标，甚至为印刷或其他出版物设置文档格式，Adobe Illustrator 是一个必备工具，但同样，如果你不打算购买 Creative Cloud 订阅服务，[【Inkscape】](https://inkscape.org/en/)一直是 [长期以来最受欢迎的](https://lifehacker.com/manipulate-vector-images-with-open-source-inkscape-5115354) ，因为，你可以在 Illustrator 中完成几乎所有的事情，而没有大多数人实际上懒得使用的花哨功能。另外，它是免费的、开源的、跨平台的。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Free Alternatives to Expensive Software](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/manipulate-vector-images-with-open-source-inkscape-5115354) [###### 使用开源的 Inkscape 处理矢量图像](https://lifehacker.com/manipulate-vector-images-with-open-source-inkscape-5115354) 
 
-所有平台:Inkscape 是一个开源的矢量编辑程序。如果你正在寻找一个免费的…
-
-[Read more](https://lifehacker.com/manipulate-vector-images-with-open-source-inkscape-5115354)</aside>
 
 Inkscape 也有一个庞大的用户社区，在 [上有大量的指南，它的教程博客](https://inkscapetutorials.org/) 可以帮助你快速入门，如果你需要一点帮助的话。我们在 [中更详细地讨论了这一点，我们的指南是用负担得起的应用程序](https://lifehacker.com/build-your-own-adobe-creative-suite-with-free-and-cheap-5976725) 替换 Creative Suite，如果 Inkscape 不适合你，还有一些替代方案。
 

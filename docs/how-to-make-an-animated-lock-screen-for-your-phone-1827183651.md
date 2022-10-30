@@ -4,7 +4,7 @@
 
 动画锁屏是一个可爱的噱头。你的手机有一些默认选项。但如果你想在 Android 或 iOS 上制作自己的应用，你需要一个第三方应用。
 
-Watch
+
 
 在 iOS 上，使用 [intoLive](https://itunes.apple.com/us/app/intolive-live-wallpapers/id1061859052?mt=8) 将视频、动态 gif 或静态照片集变成“动态照片”(你也可以使用任何你用手机拍摄的“现场照片”。但是因为实时照片很占空间，而且毫无用处，你可能很久以前就把它们关掉了。)
 

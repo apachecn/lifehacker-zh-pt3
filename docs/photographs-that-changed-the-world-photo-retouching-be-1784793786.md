@@ -4,7 +4,7 @@
 
 改变了世界和思想的照片，人们在 Photoshop 出现之前是如何编辑照片的，这是一个很好的提醒，可以备份你自己的照片，嗯，还有一些更漂亮的照片，都在本周的大脑自助餐中。
 
-Watch
+
 
 <small>*欢迎来到 Lifehacker 的*</small> [<small>*周一大脑自助*</small>](http://lifehacker.com/tag/monday-brain-buffet) <small>*，这是一个系列节目，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，它们会教你一些新东西，启发你，并有希望让你的一周有一个良好的开端。*T15】</small>
 

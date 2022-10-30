@@ -4,7 +4,7 @@
 
 如果你经常旅行，并且有尚未使用的里程，可以考虑将其捐赠给一个组织，该组织可以使用这些里程让在美墨边境失散的家人团聚。
 
-Watch
+
 
 昨晚，密歇根大学法学院教授贝丝·威伦斯基 [在推特上发布了](https://twitter.com/bethwilensky/status/1026478286942232576) 的想法，并鼓励人们与类似 [密歇根支持圈](https://www.misupportcircle.org/) 和 [Miles4Migrants](https://www.miles4migrants.org/mission.php) 的组织取得联系。
 

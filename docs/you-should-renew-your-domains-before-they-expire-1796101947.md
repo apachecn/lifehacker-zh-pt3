@@ -4,7 +4,7 @@
 
 由于我认为是某人公司卡的问题，三星忘记更新一个潜在危险的域名，让它被 Anubis Labs 首席技术办公室和 nice guy joo Gou veia 购买。 [据主板](https://motherboard.vice.com/en_us/article/samsung-left-millions-vulnerable-to-hackers-because-it-forgot-to-renew-a-domain) 报道，与三星的 S Suggest 应用“ssuggest.com”相关联的域名似乎被放弃了，给了 Gouveia(或任何黑客)购买它的机会。
 
-Watch
+
 
 我记得我让第一个域名过期。我是在一集里听说芝麻街用域名后买的 areyoucool.cool。我开玩笑地把它重定向到我的个人页面。抛开文化上的昙花一现不谈，到了续费的时候，我在支付 20 美元的费用上犹豫不决。你和三星一样，知道接下来发生了什么。
 

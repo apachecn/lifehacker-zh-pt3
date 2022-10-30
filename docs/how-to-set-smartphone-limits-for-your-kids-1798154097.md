@@ -6,7 +6,7 @@
 
 我对我的第一部手机(诺基亚 6610)的感觉近乎共价，那是无法接触到今天名副其实的游戏和社交网络的——更不用说整个互联网了。
 
-Watch
+
 
 不管你认为它对代际优先事项说了什么，累积的数据是明确的: [移动接入互联网已经成为青少年体验的必要条件](https://www.theatlantic.com/magazine/archive/2017/09/has-the-smartphone-destroyed-a-generation/534198/) ，孩子们上网的年龄正在下降。
 

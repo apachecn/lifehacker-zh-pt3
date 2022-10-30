@@ -4,7 +4,7 @@
 
 Android:[Android P](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465)今年晚些时候才会正式推出。虽然你可以通过查看 [谷歌最新的开发者预览版](https://developer.android.com/preview/) 来提前一点进入，但如果你担心测试软件有问题，还有另一种方法可以在你目前的智能手机上体验 Android P。
 
-Watch
+
 
 [动作启动器](https://lifehacker.com/action-launcher-pro-puts-widgets-folders-and-shortcut-5993574#_ga=2.178623398.367633666.1525095724-3846207152.1521480874) ，一个受欢迎的功能丰富的 Android 皮肤， [本周宣布了它的最新更新](https://play.google.com/store/apps/details?id=com.actionlauncher.playstore) ，它融入了 Android P 的一些设计思想。该软件的第 35 版复制了谷歌即将推出的操作系统的主屏幕搜索坞——包括它的圆角和透明阴影。应用程序文件夹也得到同样的圆角处理。
 

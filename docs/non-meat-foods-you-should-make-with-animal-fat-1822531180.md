@@ -4,7 +4,7 @@
 
 如果你在这些地方呆过一段时间，你就会知道我的生活基本上是由鸭肉 赞助的 [。无论我是](https://skillet.lifehacker.com/turn-even-the-driest-turkey-into-a-delicious-spread-1820483164) [腌制火鸡腿](https://skillet.lifehacker.com/these-confit-turkey-legs-taste-like-the-renaissance-fai-1820339857) 还是 [制作蛋黄酱](https://skillet.lifehacker.com/why-duck-fat-mayo-is-the-mayo-you-should-be-making-1821972304) ，我几乎都是为了餐桌上的美味而活。
 
-Watch
+
 
 但是鸭子并不是唯一一种提供优质美味脂肪的动物。Shmaltz(鸡油)、鹅油和培根油在厨房中都有其美味的用途，尤其是在准备蔬菜或其他非肉类美食时。以下是我最喜欢的几个:
 

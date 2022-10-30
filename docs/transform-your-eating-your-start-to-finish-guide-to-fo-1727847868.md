@@ -4,7 +4,7 @@
 
 上周二的午餐，我吃了一份拌有咖喱碎牛肉的蔬菜炒菜和一份米饭(当然，上面都是 Sriracha)。我能回忆起一周前的这顿饭，因为我每天都记录我的食物。它不仅让我保持在目标的顶端，而且现在当事情从“在控制之下”变成“哦，sh*t”时，我有记录可以查看。
 
-Watch
+
 
 ### **有什么意义？**
 
@@ -50,11 +50,7 @@ Watch
 
 你也可以(也应该)在一个数字食品秤(最好是以克为单位)上称一下你的食物，然后震惊于 [标签的份量是](http://vitals.lifehacker.com/the-labels-that-actually-tell-you-if-food-is-healthy-1707435536) 的多少(或少多少)。(我的意思是，你有没有称过一份花生酱？ *Egads* 。)虽然食品跟踪的准确性非常重要，但没有必要跟踪每一片生菜叶子。这篇 [文章概述了你不一定需要插入的“免费食物”](https://lifehacker.com/the-free-foods-you-can-eat-to-stay-full-on-a-diet-1693374739) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Transform Your Eating: A Start-to-Finish Guide to Tracking Your Food](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-free-foods-you-can-eat-to-stay-full-on-a-diet-1693374739) [###### 你可以通过吃“免费”食物来保持饱腹感](https://lifehacker.com/the-free-foods-you-can-eat-to-stay-full-on-a-diet-1693374739) 
 
-几乎所有的食物都含有卡路里，但有些食物的卡路里含量很低，所以它们不值得食用
-
-[Read more](https://lifehacker.com/the-free-foods-you-can-eat-to-stay-full-on-a-diet-1693374739)</aside>
 
 ### **计算卡路里与计算宏量营养素**
 

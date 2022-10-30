@@ -4,7 +4,7 @@
 
 有时外面的汽车温度计是如此不准确，以至于它们感觉像随机数发生器。它们基本上是汽车最糟糕的功能，仅次于 [汽车的信息娱乐系统](http://lifehacker.com/why-does-every-car-infotainment-system-look-so-crappy-1794534701#_ga=2.116637574.1251083041.1497974194-672228682.1489692420) 。那是因为它们实际上不是温度计，它们实际上是*热敏电阻*。
 
-Watch
+
 
 [有什么区别？](https://weather.com/science/weather-explainers/news/car-thermometer-thermistor-temperature-wrong) 与测量热量的温度计不同，热敏电阻测量的是热量增减后电流的变化。温度计和热敏电阻做的事情非常相似，所以这不是你的车在测量外部温度方面如此糟糕的原因(但我们仍然感到震惊和不安，因为它不是温度计)。
 

@@ -4,7 +4,7 @@
 
 招聘经理在决定面试哪些求职者、工作机会的细节以及雇佣谁的过程中起着关键的作用。因此，如果我们应该向任何人学习求职技巧，那就是他们。
 
-Watch
+
 
 我找到了一些招聘经理，问了他们一些问题，比如“求职者可以做些什么来让你的工作变得更容易？”以及“很少有求职者会做但绝对应该做的事情是什么？”如果你读过任何 [求职面试](http://lifehacker.com/tag/job-interviews) 和 [求职技巧](http://lifehacker.com/tag/job-search) 的话，他们下面的答案可能听起来显而易见，但是——直接来自马嘴——这些是你在申请工作和与招聘经理沟通时应该知道的最重要的事情。
 
@@ -50,11 +50,7 @@ Lending Club 的首席人事官兼人力资源专家安吉拉·勒弗勒补充�
 
 问问你想知道而在网上找不到的事情:你在这个职位上会参与的最重要的项目，公司如何提供发展机会，你将在哪个部门工作，甚至“是什么让你夜不能寐？”雷夫勒说。需要更多建议？以下是你可以问面试官的五个最好的问题[另外 12 个值得问的问题](http://lifehacker.com/12-questions-worth-asking-in-your-next-job-interview-1684257779#_ga=1.151165113.127976026.1441054335) 和 [更多的问题](http://lifehacker.com/ask-these-questions-at-your-next-job-interview-to-leave-5897390#_ga=1.151165113.127976026.1441054335) 将有助于显示你对这份工作的认真。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What Hiring Managers Wish You Knew About Applying for a Job](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-five-best-questions-a-job-candidate-can-ask-1599296074) [###### 求职者可以问的五个最佳问题](https://lifehacker.com/the-five-best-questions-a-job-candidate-can-ask-1599296074) 
 
-当你参加工作面试时，你问面试官的问题和你的…
-
-[Read more](https://lifehacker.com/the-five-best-questions-a-job-candidate-can-ask-1599296074)</aside>
 
 ### 在简历上列出你所有的软件技能
 

@@ -4,7 +4,7 @@
 
 假设 [你的银行烂了](https://lifehacker.com/wells-fargo-customers-should-check-their-bank-accounts-1822193514) ，待你很差，而 [你准备和他们分手。当你在寻找一个新的、更好的地方存钱时，记住这一点:一些银行会付钱给你。](https://twocents.lifehacker.com/signs-its-time-to-leave-your-bank-and-how-to-choose-a-1749343101)
 
-Watch
+
 
 没错，很多银行都提供签约奖金。它们有点像 [信用卡签约奖金](https://twocents.lifehacker.com/beat-credit-card-companies-at-their-own-game-by-churni-1819822277#_ga=2.44047459.697691212.1517521860-1203953178.1494430188) ，但你得到的不是积分，而是冷、硬现金。然而，并不是所有的银行奖金都值得。其中一些附带令人沮丧的细则，如每月维护费。你不想从一家坏账银行换到另一家，所以我们梳理了一些最受欢迎的报价，从中挑选最好的。
 

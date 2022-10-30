@@ -4,7 +4,7 @@
 
 亚马逊试图用一种新的 Alexa 技能杀死你的控制器，这种技能旨在使看电视变得超级简单——但你仍然需要正确的设备。
 
-Watch
+
 
 被称为 [视频技能 API](https://developer.amazon.com/public/solutions/alexa/alexa-skills-kit/docs/understanding-the-video-skill-api?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-ll-be-able-to-use-alexa-to-talk-to-your-tv-eventua-1795937952&asc_source=&tag=kinjalifehackerlink-20) ，它可以让你搜索和控制视频播放以及在你支持的设备上更换频道。也支持按演员和流派搜索。
 

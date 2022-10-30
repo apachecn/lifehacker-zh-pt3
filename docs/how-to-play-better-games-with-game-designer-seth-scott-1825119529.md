@@ -4,7 +4,7 @@
 
 我们本周的嘉宾是视频游戏设计师和 Seth Scott，他是任天堂 Switch[膜](https://www.nintendo.com/games/detail/membrane-switch) 的创造者，以及 YouTuber Brian Lewis，他是《魔法:收集建议频道 [托利亚社区学院](https://www.youtube.com/user/tolariancommunity/featured) 的创造者。我们讨论如何使用聚会游戏和卡牌游戏作为破冰船、创造力的渠道和全面发展的爱好。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/e767ff52-8a1e-4324-9027-9cbd7072a637/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/e767ff52-8a1e-4324-9027-9cbd7072a637/embed)
 

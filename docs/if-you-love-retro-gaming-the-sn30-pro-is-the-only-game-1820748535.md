@@ -4,7 +4,7 @@
 
 任天堂承诺， [Switch 即将推出的在线服务将包括一个经典游戏](https://kotaku.com/nintendo-details-switch-online-service-will-be-20-yea-1795743981) 库，这将有助于将便携式游戏机变成一台史诗般——但并不完美——的复古游戏机。Switch 缺少的一件东西是一个真正的四向 D-pad，但这可以通过 [8Bitdo 的新 SN30 Pro 游戏手柄](https://gizmodo.com/this-snes-style-nintendo-switch-controller-is-designed-1795858424#_ga=2.10591921.487118478.1511787444-1848090429.1511787444)—[经典和现代手柄](http://www.8bitdo.com/sn30pro-sf30pro/) 的巧妙混合来轻松弥补。
 
-Watch
+
 
 今年早些时候，我评测了 8Bitdo 的优秀 NES30 Pro 控制器 ，这是你可以为任天堂 Switch 和其他兼容蓝牙控制器的游戏系统购买的最好的便携式控制器。
 

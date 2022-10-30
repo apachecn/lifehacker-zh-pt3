@@ -4,7 +4,7 @@
 
 多人视频游戏 [会很快中毒](https://kotaku.com/overwatchs-competitive-mode-is-depressing-right-now-1796780238) ，尤其是当你被困在一个由被超越的失败者组成的团队中，而你是唯一一个守卫最后一个占领点的人，而垃圾 6 号只是四处游荡。你向你的朋友或伴侣抱怨，他们会问你为什么还要玩这个游戏，如果它让你如此生气的话。然后你会觉得在这个世界上完全孤独。
 
-Watch
+
 
 但是 redditor 和 Overwatch 玩家 SirBenny 嫁给了一个治疗师 ，所以她有了一个解决方案。不是为了修理 SirBenny 的垃圾队友，而是为了帮助他真正对玩他的视频游戏感到满意。
 

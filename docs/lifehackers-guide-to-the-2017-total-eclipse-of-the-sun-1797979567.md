@@ -4,7 +4,7 @@
 
 8 月 21 日星期一，当月亮完全遮住太阳时，你会在哪里？无论你是在全食的道路上，还是在工作中坐在办公桌前观看全食，无论你的生活中有光明，还是黑暗中只有爱，我们都会保护你。
 
-Watch
+
 
 ## [**如何在哪里观看日食**](http://lifehacker.com/how-and-where-to-watch-the-solar-eclipse-in-august-1796176093)
 

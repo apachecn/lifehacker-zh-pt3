@@ -4,7 +4,7 @@
 
 青少年在课堂上打瞌睡是有原因的，而不仅仅是关于多项式的最后一堂课。他们困了。他们犯困的一个原因是学校太早开学了。
 
-Watch
+
 
 多年来，人们一直在推动初中和高中学生推迟上学时间，这些学生每天早上 7 点就拖着身体坐到座位上。 [美国儿科学会](http://pediatrics.aappublications.org/content/early/2014/08/19/peds.2014-1697)[美国心理协会](http://www.apa.org/pi/families/resources/school-start-times.pdf)[国家睡眠基金会](http://www.sleepfoundation.org/article/hot-topics/backgrounder-later-school-start-times)[疾病控制和预防中心](https://www.cdc.gov/media/releases/2015/p0806-school-sleep.html) (CDC)，这里仅列举几个团体。然而，正如大多数学区所代表的那样，学校的时间安排与青少年生物学并不同步。
 

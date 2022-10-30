@@ -4,7 +4,7 @@
 
 不仅仅是你的心态可以塑造你的饮食习惯。你的环境也是一个因素。就你的厨房而言，一堆脏盘子可能会以你意识不到的方式影响你。
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/curbing-cravings-can-kitchen-chaos-influence-cookie-consumption-54300) *。*
 

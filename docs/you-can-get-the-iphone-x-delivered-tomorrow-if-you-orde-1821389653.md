@@ -4,7 +4,7 @@
 
 自从 11 月初 iPhone X 首次发布以来，拿到它并不总是一件容易的事情，但看起来苹果终于开始行动了。该公司目前提供 [免费次日送达](https://www.apple.com/shop/buy-iphone/iphone-x) ，只要你在当地时间下午 3 点前下单。
 
-Watch
+
 
 根据 [MacRumors](https://www.macrumors.com/2017/12/18/iphone-x-next-day-delivery/) 的说法，这一优惠涵盖了除未锁定的 64GB 型号以外的所有 iPhone X——你必须等待 2-4 天才能获得该版本。iPhone X 的次日送达也仅限于美国 [和英国](https://www.apple.com/uk/shop/buy-iphone/iphone-x) ，至少目前如此。
 

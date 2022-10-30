@@ -4,7 +4,7 @@
 
 如果婴儿湿巾引起食物过敏，那就太可怕了，对吧？好消息是我们没有这方面的证据。最近的一项研究报告说，这似乎是为什么每个人都对花生过敏的答案，但你猜怎么着？这项研究没有证明这一点。也不包括婴儿湿巾。它甚至没有涉及(人类)婴儿。
 
-Watch
+
 
 **头条** : [婴儿湿巾‘引起食物过敏’，新研究警告](https://www.telegraph.co.uk/science/2018/04/06/baby-wipes-cause-food-allergy-new-study-warns/) (英国《电讯报》)； [你经常用婴儿湿巾吗？它能引发婴儿食物过敏](https://economictimes.indiatimes.com/magazines/panache/do-you-use-baby-wipes-often-it-can-trigger-food-allergies-in-infants/articleshow/63683949.cms) (经济时报)
 

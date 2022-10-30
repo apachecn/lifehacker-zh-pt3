@@ -4,7 +4,7 @@
 
 你可能有一些超便携笔记本电脑或入门级 MacBook，但这并不意味着你不能享受 3a 视频游戏的乐趣。Nvidia 的游戏流媒体服务 GeForce Now 已经安装在 Shield 机顶盒上，但你可以在 Mac 或 PC 上试用它，并从云中开始流媒体游戏，而无需拥有昂贵的 PC。如果你真的想一整天都玩，那就准备好付额外的钱吧。
 
-Watch
+
 
 GeForce Now 的 [之前公布的价格结构](https://blogs.nvidia.com/blog/2017/01/04/live-nvidia-ces-2017-keynote/) 非常简单，但是如果你是一个经常玩游戏的人，它会变得很贵。 [Cnet 根据生存游戏 PlayerUnknown's Battlegrounds 的平均游戏时间进行了快速计算](https://www.cnet.com/news/things-you-need-to-know-about-geforce-now-nvidia/) 。GeForce Now 每两周的平均播放时间约为 12 小时(每年总计 325 小时)，每 20 小时的流媒体播放费用为 25 美元，因此客户需要支付 410 美元才能在动力不足的笔记本电脑上玩 PubG。
 

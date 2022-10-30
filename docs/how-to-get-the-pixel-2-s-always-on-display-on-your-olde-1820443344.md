@@ -4,7 +4,7 @@
 
 [Pixel 2 的关键特性之一](https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006) 就是它的常亮显示屏。由于手机的[【OLED 面板】](https://lifehacker.com/how-to-unlock-google-s-hidden-dark-theme-on-the-pixel-2-1819654177) ，它可以让屏幕一直保持黑色但处于活动状态，这样你就可以在不耗尽电池的情况下快速访问信息(如时间、日期和通知)。
 
-Watch
+
 
 谷歌没有为 Pixel、Pixel XL 和 Nexus 6P 等老款有机发光二极管手机提供同样的功能，但谢天谢地有解决方案。[【XDA】](https://www.xda-developers.com/enable-google-pixel-2-always-on-display-on-nexus-6p-pixel-xl/)的开发者最近找到了一种方法，可以让这些设备在不需要任何 [生根](https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397#_ga=2.125537487.418524875.1510583504-1313785359.1499701416) 的情况下一直显示。下面是怎么做的。
 

@@ -4,7 +4,7 @@
 
 在美国，汽车零件商店免费出租专业工具，让大众也能使用扳手。这是一件美妙的事情，尤其是有这么多令人惊奇的工具可供选择。这里有一些你可以从当地汽车零部件零售商那里借来的硬件，而不用花一分钱。
 
-Watch
+
 
 现在，我正处于 [重大痛苦考验](https://jalopnik.com/tag/project-redwood) 的阵痛中，我的预算几乎不存在。幸运的是，我当地的零件商店借给我一些工具，我真的不想买，因为它们很贵，而且我很少用。例如，这里有一个 [压力测试仪](https://www.autozone.com/loan-a-tools/compression-tester-gauge/oem-compression-tester-gauge-set/424906_0_0) 我几天前刚借的:
 

@@ -4,7 +4,7 @@
 
 女人不只是做 [更多的照顾孩子](https://theconversation.com/dads-are-more-involved-in-parenting-yes-but-moms-still-put-in-more-work-72026) 和做 [更多的家务决定](http://www.pewsocialtrends.org/2008/09/25/women-call-the-shots-at-home-public-mixed-on-gender-roles-in-jobs/) 。根据最近的一些调查，她们也比男性进行更多的抗议、行动和政治参与。男人们，你们能稍微收拾一下吗？
 
-Watch
+
 
 例如,“每日行动”( Daily Action)每天都给订户发短信，敦促他们打电话给国会议员，让他们把事情做完。(它不隶属于任何候选人或政党，但许多行动旨在抵制特朗普的议程。)他们最近 [调查了他们最活跃的用户](https://dailyaction.org/files/2017/03/poll.pdf) ，结果 86%是女性。将近一半的人在 45 到 65 岁之间。年轻人，为什么你们要把这份工作留给你们的妈妈？
 

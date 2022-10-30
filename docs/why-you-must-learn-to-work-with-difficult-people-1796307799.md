@@ -4,7 +4,7 @@
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 
-Watch
+
 
 本周的条目是马可·奥勒留写的，当时他正在沿 [格兰(Hron)河](https://en.wikipedia.org/wiki/Hron) 与日耳曼 [夸迪部落](https://en.wikipedia.org/wiki/Quadi) 作战:
 

@@ -4,7 +4,7 @@
 
 如果你一直在考虑购买 Galaxy S9，但不确定你是否准备好咬紧牙关，三星为你创造了一种方法，让你使用当前的设备试驾这款手机。
 
-Watch
+
 
 Galaxy S9/S9+ 的 [体验应用可以安装在任何运行 Android 6.0 或更高版本的 Android 手机上，让你感受一下“S9 体验”可能是什么样的。](https://play.google.com/store/apps/details?id=com.samsung.retailexperience.retailstar.star.google&rdid=com.samsung.retailexperience.retailstar.star.google)
 

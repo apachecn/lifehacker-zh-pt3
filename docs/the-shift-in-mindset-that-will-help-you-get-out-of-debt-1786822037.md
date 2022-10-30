@@ -4,7 +4,7 @@
 
 摆脱债务并不容易，尽管有大量的 [实用建议来帮助](https://lifehacker.com/top-10-ways-to-conquer-your-debt-1737097563) ，但心理上的伤害是一个巨大的、经常被忽视的障碍。当你对债务感到完全无能为力时，只会让这个过程变得更加困难。虽然完成工作需要金钱，但是将你的心态转变为一种有能力的心态将会帮助你度过通往财务自由的漫漫长路。
 
-Watch
+
 
 在[*亲爱的债务*](https://www.amazon.com/Dear-Debt-Story-About-Breaking/dp/0692684808?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-shift-in-mindset-that-will-help-you-get-out-of-debt-1786822037&asc_source=&tag=kinjalifehackerlink-20) *，*个人理财作者梅拉妮·洛克特描述了她自己在不到五年的时间里偿还了价值超过 8 万美元的学生贷款债务的故事。她说，虽然所有基本的理财建议都是该计划的必要组成部分，但对她帮助最大的是改变她对金钱的看法。
 

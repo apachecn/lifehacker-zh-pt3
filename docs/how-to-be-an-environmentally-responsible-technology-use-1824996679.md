@@ -4,7 +4,7 @@
 
 技术是不可避免的，无论是你口袋里的 [智能手机](https://lifehacker.com/ten-tricks-for-checking-your-phone-less-1803137141) ，你桌上的 [电脑](https://lifehacker.com/top-10-things-to-do-on-your-familys-computer-when-you-g-1790003745) ，还是你收件箱里的 [电子邮件](https://lifehacker.com/literally-email-like-a-boss-1820931425) 。不幸的是，所有这些小工具和应用程序也对环境产生了相当可怕的影响。
 
-Watch
+
 
 没有人要求你完全抛弃你的技术，但是只要多一点思考和一些牺牲，你就可以减少你的设备对世界的污染。这里有三种方法开始把地球放在第一位。
 
@@ -26,11 +26,7 @@ Watch
 
 如果你觉得慈善，有很多组织会把你的旧设备用于慈善事业。 [重新连接](http://dellreconnect.com/) (戴尔与 Goodwill 的合作)，是一个可靠的选择。 [无线基金会](http://www.wirelessfoundation.org/home.aspx) 是另一项向家庭虐待组织捐赠翻新手机的伟大服务。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Be an Environmentally Responsible Technology User](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/map-your-local-freecycle-group-382566) [###### 映射您当地的 Freecycle 组](https://lifehacker.com/map-your-local-freecycle-group-382566) 
 
-为了纪念地球日，雅虎建立了一个“免费是好的”网站，宣传以前…
-
-[Read more](https://lifehacker.com/map-your-local-freecycle-group-382566)</aside>
 
 有了这些选择，一旦最终到了说再见的时候，为你的旧智能手机、平板电脑或电脑找到一个好的归宿应该不会太难。
 

@@ -4,7 +4,7 @@
 
 你可以吃得好，锻炼身体，但是为了完善你作为一个做出健康选择的人的身份，你可能会觉得你需要一天几次排空一个大水瓶。突突 H <sub>2</sub> O 的好处是 [万千](http://greatist.com/health/health-benefits-water) 和 [传说中的](http://www.webmd.com/diet/6-reasons-to-drink-water) ，但它们是真实的吗？
 
-Watch
+
 
 似乎每周都有人提出新的 [小工具](https://www.indiegogo.com/projects/blufit-bottle) 或 [应用](http://appcrawlr.com/ios-apps/best-apps-water-drinking) 到 [跟踪](http://caktus.me/) 多少 [水](https://www.myvessyl.com/) 你 [喝](https://www.kickstarter.com/projects/582920317/hidrateme-smart-water-bottle) (并督促你多喝)。最大限度地增加你的水摄入量是一件简单可行的事情，但是我们知道 [专注于小的容易的改变可能会适得其反](http://lifehacker.com/when-every-little-bit-helps-improve-your-health-and-1697858546#_ga=1.143241269.127976026.1441054335) 如果它们分散了你对生活中有意义的改善的注意力。
 

@@ -4,7 +4,7 @@
 
 你在网上订购了一些东西，但当它到达时看起来完全不同。首先，你没有注意到衣领的怪异形状，也没有注意到背面用小字 写着 [【星期一很糟糕】。](https://www.reddit.com/r/malefashionadvice/comments/5k4dm8/is_there_an_actual_reason_why_stores_like_forever/)
 
-Watch
+
 
 来自 Reddit 帖子 的避免这个问题的建议:先看最浅颜色的衣服，再看其他颜色的。较浅的颜色可以让你捕捉到原本会错过的细节，而且你可以更近距离地看到它们，而不会让它们融入阴影中。
 

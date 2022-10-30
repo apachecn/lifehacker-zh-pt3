@@ -4,7 +4,7 @@
 
 伊森搬到了俄克拉荷马州，他的家庭在不断壮大。他不得不放弃他的庞蒂亚克夏至，去追求一些实用的、有趣的东西，以及我只能称之为“俄克拉何马问题”的逃脱龙卷风的能力。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？，在这里我们给真实的人提供关于买车的真实建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

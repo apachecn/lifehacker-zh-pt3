@@ -4,7 +4,7 @@
 
 你最喜欢的泡沫填充家具中大多都含有阻燃化学物质——直到最近，加州的一项法律甚至要求使用阻燃化学物质。但是它们不能预防火灾，而且会带来健康风险。现在，美国消费品安全委员会离禁止它们更近了一步。
 
-Watch
+
 
 [石英报道](https://qz.com/1098161/the-us-government-is-finally-acknowledging-the-flame-retardants-in-your-furniture-and-baby-products-are-not-just-ineffective-but-also-dangerous/) 美国消费品安全委员会(CPSC)近日 [公布了一份指导性文件](https://www.federalregister.gov/documents/2017/09/28/2017-20733/guidance-document-on-hazardous-additive-non-polymeric-organohalogen-flame-retardants-in-certain) ，告诉制造商不要使用有机卤素阻燃剂(OFR)。该文件还要求经销商停止销售含有这些化学物质的产品，并要求消费者——尤其是孕妇——询问他们购买的家具和婴儿用品中含有什么。以下是他们对证据解读的描述:
 

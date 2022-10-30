@@ -4,7 +4,7 @@
 
 无论在一年中的什么时候分手都很糟糕，但在假期里尤其糟糕。当所有人都在庆祝的时候，你却在孤独和心碎中挣扎。无论你是分手的给予方还是接受方，以下是如何在假期应对这种损失的方法。
 
-Watch
+
 
 ### **保留拜访朋友和家人的计划**
 
@@ -24,11 +24,7 @@ Watch
 
 争取和你的朋友一起参加小型聚会，这样你就可以在大型聚会之间挤出时间和他们在一起。如果你的朋友举办了一个大型聚会，你的前任也被邀请了，如果可能的话，和他们谈谈如何让你们两个分开。不幸的是，你们中的一个可能要退出派对了。如果你这样做了，试着找另一个你可以代替的朋友或爱人的活动。十二月通常是忙碌的一个月，所以除了一个人呆在家里，你可能还能找到其他事情做。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Survive a Breakup During the Holidays](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-get-along-with-your-ex-after-a-breakup-1671056421) [###### 分手后如何和前任相处](https://lifehacker.com/how-to-get-along-with-your-ex-after-a-breakup-1671056421) 
 
-学会与前任相处对共同的朋友、孩子或职业来说是必要的…
-
-[Read more](https://lifehacker.com/how-to-get-along-with-your-ex-after-a-breakup-1671056421)</aside>
 
 ### **从前任家人那里获得一些空间**
 

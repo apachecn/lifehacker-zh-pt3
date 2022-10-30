@@ -4,7 +4,7 @@
 
 [亚马逊](https://lifehacker.com/how-to-stop-giving-amazon-your-money-1823468097?rev=1520460652473) 想上你的车。与该公司之前的 [送货上门服务](https://lifehacker.com/why-you-shouldn-t-get-the-amazon-key-right-now-1819924272) 不同，此举其实有些道理。如果你不喜欢让一个陌生人进入你的房子，但你也不希望你的包裹在门廊上被偷，那么亚马逊的新车内送货服务是一个不错的妥协。
 
-Watch
+
 
 问题？亚马逊不能随便给什么车送货。该公司的主干递送服务目前支持 2015 年或以后的任何雪佛兰、别克、GMC 或凯迪拉克，只要它有一个有效的安吉星账户。这项服务也适用于使用“ [沃尔沃电话服务](https://www.volvocars.com/intl/own/connectivity/volvo-on-call) ”的新款沃尔沃(2015 年或之后的车型)这涵盖了大约 700 万人，亚马逊表示未来将支持更多车辆。
 

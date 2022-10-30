@@ -4,7 +4,7 @@
 
 让我们面对现实吧——以一种建设性的、非居高临下的方式公开反对某人可能很难。但是，当那个人是 [你的老板](https://www.themuse.com/advice/the-2-things-you-need-to-do-before-you-openly-disagree-with-your-boss) 呢？事情突然变得更加棘手。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-disagree-with-your-boss-without-getting-fired) *。*
 

@@ -4,7 +4,7 @@
 
 这是充满不确定性的一周，但我们正在向前推进，并坚持我们最擅长的。我们解释了为什么所谓的“投资件”往往只是浪费金钱，试图用一些事实来缓解对飞行的恐惧，比较了亚马逊 Echo 和谷歌 Home，等等。这里回顾一下。
 
-Watch
+
 
 ## [**现在到处都认为大麻是合法的，而**](http://lifehacker.com/everywhere-that-marijuana-is-legal-now-and-what-it-mea-1788760465) 对你意味着什么
 

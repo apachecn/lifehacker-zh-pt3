@@ -4,7 +4,7 @@
 
 2018 年 iPhone 系列发布会离只有几个小时了，苹果肯定会推出各种令人兴奋的进展。对我们大多数人来说，真正重要的是我们是否能立即得到它。
 
-Watch
+
 
 当然，你可以购买，但是那些正在为他们的旧手机制定融资计划的人也许可以通过这个计划升级。 [据](https://ios.gadgethacks.com/how-to/are-you-eligible-upgrade-latest-iphone-heres-check-0187277/) Gadget Hacks 报道，如果你计划每月支付一定金额来支付比如 iPhone X 的费用，你应该有资格在一个月内升级。这是假设你是在手机发布时购买的——为了升级，你通常必须支付整整 12 个月的合同费用。
 

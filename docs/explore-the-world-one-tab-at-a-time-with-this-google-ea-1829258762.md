@@ -4,7 +4,7 @@
 
 谷歌地球是我喜欢玩但从来不玩的东西之一。本周，我遇到了一个 Chrome 扩展，它让这种探索变得更加容易。
 
-Watch
+
 
 [来自谷歌地球的地球视图](https://chrome.google.com/webstore/detail/earth-view-from-google-ea/bhloflhklmhfpedakmangadcdofhnnoh) 每次你打开一个新标签页，就会显示来自谷歌浏览器的一张新图片。因此，每当你打开新窗口查看工作邮件或支付信用卡账单时，首先映入眼帘的是一幅有趣的图像。
 

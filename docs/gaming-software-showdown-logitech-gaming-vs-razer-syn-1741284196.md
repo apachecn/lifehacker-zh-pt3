@@ -4,7 +4,7 @@
 
 罗技和雷蛇都有一些非常棒的游戏外设。无论你是在玩游戏还是 [完成真正的工作](http://lifehacker.com/why-i-started-using-gaming-peripherals-to-get-real-work-1705459320) ，它们都是很好的选择。他们使用的软件有一些微小但重要的区别。这是它们之间的对比。
 
-Watch
+
 
 无论是 [罗技](http://gaming.logitech.com/) 还是 [雷蛇](http://www.razerzone.com/) 都有大量的游戏外设可供选择，我们不会在这篇文章中推荐任何特定的型号。相反，我们想知道软件作为一个整体的能力。在我们的测试过程中，我们使用了 [罗技 G410 键盘](http://www.amazon.com/Logitech-Spectrum-Tenkeyless-Mechanical-920-007731/dp/B01645FHEI/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/gaming-software-showdown-logitech-gaming-vs-razer-syn-1741284196&asc_source=&ie=UTF8&keywords=logitech g410&qid=1446842836&sr=8-2&tag=kinjalifehackerlink-20) 和 [G602 鼠标](http://www.amazon.com/Logitech-Wireless-Gaming-Mouse-Battery/dp/B00E4MQODC/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/gaming-software-showdown-logitech-gaming-vs-razer-syn-1741284196&asc_source=&ie=UTF8&keywords=logitech g602&qid=1446843330&sr=8-1&tag=kinjalifehackerlink-20) ，以及 [雷蛇黑寡妇色度锦标赛版键盘](http://www.amazon.com/Razer-Blackwidow-Tournament-Chroma-Keyboard/dp/B00YZ4E3YG/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/gaming-software-showdown-logitech-gaming-vs-razer-syn-1741284196&asc_source=&ie=UTF8&keywords=razer blackwidow chroma tournament edition&qid=1446843409&sr=8-1&tag=kinjalifehackerlink-20) 和 [Naga Epic 色度鼠标](http://www.amazon.com/Razer-Chroma-Multi-Color-Wireless-Gaming/dp/B00NW6T6CC/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/gaming-software-showdown-logitech-gaming-vs-razer-syn-1741284196&asc_source=&ie=UTF8&keywords=naga epic chroma&qid=1446843429&sr=8-1&tag=kinjalifehackerlink-20) 。虽然我们可以说很多关于具体型号等的事情，但今天我们将谈论一些没有人真正评论的事情——他们的软件，以及用宏、配置文件甚至灯光定制您的设备是多么容易。
 

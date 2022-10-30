@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**Photoshop Fix，简单的照片修图工具，自带安卓**](http://lifehacker.com/photoshop-fix-the-simple-photo-retouching-tool-comes-1788526439)T5】
 

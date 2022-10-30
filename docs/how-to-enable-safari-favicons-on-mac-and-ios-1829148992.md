@@ -4,7 +4,7 @@
 
 苹果于 9 月 17 日为 macOS Sierra 和 High Sierra 用户推出了其 Safari 网络浏览器的最新版本 [、Safari 12](https://developer.apple.com/safari/download/) ，它带来了一系列新的安全功能和方便的小功能——包括图标。
 
-Watch
+
 
 Safari 12 现在自动阻止网站或嵌入内容在未经 Safari 用户允许的情况下跟踪其浏览数据；阻止特定网站上的弹出窗口；帮助您创建更强的密码，避免重复使用旧密码；并且打击未经适当审查的第三方浏览器扩展。这一更新也让广告商更难识别特定的 Mac 电脑，而是让它们看起来像普通的“Mac 电脑”
 

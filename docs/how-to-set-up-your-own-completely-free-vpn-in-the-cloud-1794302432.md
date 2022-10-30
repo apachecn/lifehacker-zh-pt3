@@ -4,7 +4,7 @@
 
 虚拟专用网络(VPN) [是给你的浏览增加安全](https://lifehacker.com/why-you-should-be-using-a-vpn-and-how-to-choose-one-5940565) 的好方法，同时还能防止窥探( [包括你的互联网服务提供商](http://lifehacker.com/why-is-everyone-talking-about-vpns-1793768312) )，但是 [VPN 提供商是出了名的粗略](https://lifehacker.com/how-do-i-know-if-my-vpn-is-trustworthy-508866499) 。你可以做一些研究来找到一个好的。或者你可以在 10 分钟内自己做。
 
-Watch
+
 
 快速复习一下，VPN 会在数据离开您的设备之前对其进行加密，然后数据在通过您的本地网络和互联网服务提供商(ISP)时保持加密状态，直到最终被 VPN 服务器解密。在这种情况下，您将在 web 服务上安装 VPN 软件。
 
@@ -22,11 +22,7 @@ Watch
 
 无论如何，算法保护和加密你的连接，这对我们大多数人来说已经足够了。如果你不愿意把钱支付给一个匿名的、随机的 VPN 提供商，这是最好的解决方案。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Set Up Your Own Completely Free VPN In the Cloud](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927) [###### 如何在公共 Wi-Fi 网络上保持安全](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927) 
 
-公共 Wi-Fi 网络——如咖啡店或酒店中的网络——远没有你想象的那么安全。…
-
-[Read more](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927)</aside>
 
 ### 第一步:注册一个亚马逊 EC2 账户
 

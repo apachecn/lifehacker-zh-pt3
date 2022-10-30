@@ -4,7 +4,7 @@
 
 我已经尝试了几十种清理收件箱的方法，到目前为止，Chrome 的 [Sortd](http://www.sortd.com/) 扩展最能帮助我以工作的方式使用和组织电子邮件。Sortd 将 Gmail 转换成一个拖放式的工作空间，其中包含多列可定制的列表。就像 [生活整理 web app](http://lifehacker.com/how-to-use-trello-to-organize-your-entire-life-1683821040)[Trello](http://trello.com)一样，但是对于电子邮件来说。
 
-Watch
+
 
 Sortd 适合我，因为它符合我的想法和获取信息的方式:可视化和列表化。像其他人一样，我的电子邮件问题是我有太多的邮件，我一直在努力处理哪些需要采取行动，哪些需要保留，哪些需要立即丢弃。Sortd 帮了大忙，原因有二:它有一个杀手级的用户界面，它给 Gmail 带来了有用的任务管理功能。
 

@@ -4,7 +4,7 @@
 
 当人们问我住在哪里时，我更可能会说“推特”，而不是我居住的城市。就像我真实的城市一样，有时我需要离开城镇，躲到别的地方——有真实的树和真实的鸟在鸣叫的地方。
 
-Watch
+
 
 每个人都有自己处理 [网络倦怠](http://nymag.com/selectall/2016/09/andrew-sullivan-technology-almost-killed-me.html) 的方式。远离技术的周末；写关于远离互联网如何让你的生活变得更好(或更坏)的文章；甚至把你的手机 [放入法拉第笼](https://techcrunch.com/2016/11/16/block-is-a-fancy-faraday-cage-to-take-your-dinner-party-offline/) 都可以帮助你缓解查看收件箱的感觉。
 

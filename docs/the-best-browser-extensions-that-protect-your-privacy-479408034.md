@@ -4,7 +4,7 @@
 
 有大量的浏览器扩展承诺保护你的隐私，这导致了一些自然的问题:哪个是最好的？他们都做同样的事情吗？我到底应该下载什么？在本指南中，我们将看看承诺保护您在线隐私的最流行的浏览器扩展，并给你我们的建议。
 
-Watch
+
 
 我们已经在这里多次讨论过 [为什么你应该关心](https://lifehacker.com/why-you-should-care-about-and-defend-your-privacy-5904966) [你的隐私](http://lifehacker.com/plenty-to-hide-5918171)，所以是否 [你选择做一些事情来保护你自己](http://lifehacker.com/how-much-do-you-care-about-your-online-privacy-5993120) 取决于你自己——我们不打算重复它。相反，我们将深入研究可用于保护数据安全的工具。不过，别担心。你不需要下载大量的应用程序来保护你自己的安全和你的数据。以下是各组中的佼佼者。
 

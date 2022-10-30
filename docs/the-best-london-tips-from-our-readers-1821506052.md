@@ -4,7 +4,7 @@
 
 我有一群可爱的伦敦小混混。以下是他们的全部引文。你的 [Hack Your City](https://lifehacker.com/c/hack-your-city) 专栏作家今天在 Dayquil 上，并有意识地引导你浏览本周早些时候从我们聪明且可能漂亮的读者 那里收集的伦敦、 [最佳贴士。去看看整个线程，或阅读最好的最好的就在这里。](https://lifehacker.com/tell-us-your-best-london-tips-1821340180) 
 
-Watch
+
 
 在每周一的《Hack Your City》节目中，我们向读者征集关于一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。T3】
 

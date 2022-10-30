@@ -4,7 +4,7 @@
 
 对于任何一部新的iPhone，你想做的第一件事就是训练 [Siri](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 识别你的声音——如果苹果的人工智能助手 [给你带来麻烦，重新训练它也不失为一个好主意。在训练过程中，你的第一反应可能是把 iPhone 拿在手里(甚至举到嘴边)，但实际上，你最好先放下手机，后退几步。](https://lifehacker.com/reset-siris-training-data-to-force-it-to-relearn-your-v-1721343298) 
 
-Watch
+
 
 如果你训练你的 iPhone 在几英尺远的地方就能识别你的“嘿 Siri”命令，那么在现实世界中，当你没有手持设备时，它更有可能工作。这对于早上你的 iPhone 可能正放在床头柜上充电，或者当你做饭时把它放在厨房柜台上的时候非常有用。
 

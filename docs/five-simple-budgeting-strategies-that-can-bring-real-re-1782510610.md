@@ -4,7 +4,7 @@
 
 从我还是个孩子的时候起，我就对数字有着浓厚的兴趣。我父亲喜欢讲这样一个故事:当我七岁的时候，我凭记忆纠正了一个家伙的数学错误——当然，这种纠正对我父亲不利，还花了他一些钱。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/does-budgeting-seem-too-complex-five-simple-alternative-strategies-that-can-bring-real-results/) *上。*
 

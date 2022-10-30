@@ -4,7 +4,7 @@
 
 盖伊·拉兹(Guy Raz)是三个 NPR 播客的创作者和主持人——两个面向成年人( [*我是如何建立这个*](https://www.npr.org/podcasts/510313/how-i-built-this) 和[*TED 广播小时*](https://www.npr.org/programs/ted-radio-hour/) ) 和一个面向孩子([*Wow in the World*](https://www.npr.org/podcasts/510321/wow-in-the-world)*)。*在我们家的车里， w 自从那个关于双头太空蠕虫、大脑冷冻和便便科学的节目开导了 u s 之后，我们就有点痴迷于 *Wow in World* 。拉兹用两个直接告诉他的听众来测试他的孩子的满足感:他的两个儿子。这是他为人父母的方式。
 
-Watch
+
 
 * * *
 

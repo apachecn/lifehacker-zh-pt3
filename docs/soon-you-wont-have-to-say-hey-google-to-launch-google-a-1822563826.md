@@ -4,7 +4,7 @@
 
 [亚马逊的 Alexa](https://lifehacker.com/the-first-alexa-skills-to-enable-on-your-new-amazon-ech-1796841634) 可能有更多的 [技能](https://lifehacker.com/the-alexa-skills-that-are-actually-worth-using-1791616099) ，连接更多的服务，但说到人工智能 smarts， [谷歌助手](https://lifehacker.com/how-to-change-google-assistant-to-a-male-voice-1819293856) [有竞争击败](https://seekingalpha.com/article/4078591-google-assistant-smarter-siri-cortana-alexa) (抱歉 [Siri](https://lifehacker.com/tell-siri-this-for-a-witty-response-1797172897) ，差远了)。
 
-Watch
+
 
 唯一的问题是，用来激活谷歌助手的热门词汇并不准确。“嘿，谷歌”和“好的，谷歌”可能真的很拗口，不管你是我醒来，努力在早上第一件事就是把这些词说出来，还是一个意大利奶奶，她不能完全正确。
 

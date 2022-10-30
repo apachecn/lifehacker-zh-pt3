@@ -4,7 +4,7 @@
 
 很明显，机器人有一个时刻。甚至在脸书在他们的开发者大会上发布用于信使 的 [机器人之前，已经有大量的](https://developers.facebook.com/blog/post/2016/04/12/bots-for-messenger/) [投资](https://betaworks.com/botcamp/)[争议](http://fortune.com/2016/03/24/chat-bot-racism/)[批评](http://gizmodo.com/facebook-messenger-chatbots-are-more-frustrating-than-h-1770732045#_ga=1.189639083.1224299049.1454957731) 。所以我想学习如何制作自己的机器人——并让它发挥作用！
 
-Watch
+
 
 一方面，聊天机器人并不是什么新鲜事。它们自 20 世纪 60 年代以及伊莱扎 的时代就已经存在了。但是突然之间，创建有意义的、个性化的对话的工具很容易大规模部署。我们有 API，持续监控和解析消息相关性的能力，以及用于分发的巨大消息平台——这是人们这些天花费 [大部分时间](http://www.businessinsider.com/the-messaging-app-report-2015-11?IR=T) 的地方。
 

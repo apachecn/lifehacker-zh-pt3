@@ -4,7 +4,7 @@
 
 在家庭自动化的战斗中，亚马逊 Echo 可能已经领先了一步，但谷歌 home 正在快速追赶。谷歌 [周四](https://www.blog.google/products/assistant/turning-your-house-smart-home-google-assistant/) 宣布，其智能音箱和智能助手现在可以控制来自各大品牌的 5000 多台设备(年初为 1500 台)。
 
-Watch
+
 
 要拆开的东西太多了，但大部分都是老一套的智能灯和声控恒温器。下面让我们快速浏览一下用 Google Home 控制智能家居的一些最有趣、最有用的新方法。
 

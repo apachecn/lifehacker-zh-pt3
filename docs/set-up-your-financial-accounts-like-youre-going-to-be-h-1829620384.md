@@ -4,7 +4,7 @@
 
 仅在过去一周，[【Experian】](https://twocents.lifehacker.com/check-your-credit-report-after-experians-credit-freeze-1829556105)和 [谷歌](https://www.theguardian.com/technology/2018/oct/08/google-plus-security-breach-wall-street-journal) 都经历了(或泄露，在谷歌的情况下)不同严重程度的安全漏洞，潜在地暴露了人们的私人信息。更别提 Equifax 和去年发生的数千起其他违规事件了。
 
-Watch
+
 
 正如 Sheera Frenkel 在《纽约时报》[](https://www.nytimes.com/2018/10/03/technology/personaltech/hacking-protection-passwords.html)**中所写的，这就是为什么当涉及到你的财务安全时，采取守势是很重要的，并且设置你的账户就好像你会被黑客攻击一样。**
 

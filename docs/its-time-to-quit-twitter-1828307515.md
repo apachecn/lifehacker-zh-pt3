@@ -4,7 +4,7 @@
 
 为了我们自己的精神健康和民主，我们被鼓励 [离开脸书](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407#_ga=2.167688574.1172634167.1534167125-3846207152.1521480874) ，考虑到这两个相同的目标，也是时候放弃推特了。
 
-Watch
+
 
 8 月 17 日，Twitter 用户在#DEACTIDAY 标签下组织了一次社交媒体罢工。BoingBoing 作家 Mark Frauenfelder [在](https://boingboing.net/2018/08/12/im-joining-the-campaign-to-d.html) 上发帖称，他决定离开的主要原因是平台拒绝禁止亚历克斯·琼斯，他们 [承认](https://money.cnn.com/2018/08/10/media/infowars-twitter-alex-jones/index.html?utm_content=2018-08-12T19%3A11%3A08&utm_medium=social&utm_source=twmoney&utm_term=image) 违反了他们的官方政策。琼斯长期以来一直向他的众多追随者传播阴谋论，并鼓励桑迪胡克事件受害者的父母继续骚扰。他是一个可怕的巨魔，Twitter 的封禁政策一直不一致，令人困惑，正如其首席执行官杰克·多西承认的那样:
 

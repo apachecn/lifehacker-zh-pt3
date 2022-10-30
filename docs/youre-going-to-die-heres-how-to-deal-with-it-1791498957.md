@@ -4,7 +4,7 @@
 
 除了出生，这个星球上的每一个人肯定会发生的另一件事就是死亡。没有例外，没有办法。除了你自己的死亡，你很有可能会被你所爱的人的死亡所影响，并且很有可能在你自己的葬礼到来之前计划一两个葬礼。
 
-Watch
+
 
 经常思考和谈论死亡的人经常被贴上“病态”或“死亡困扰”的标签我想，罪名成立。但这正是我建议做的。尽你所能地学习，谈论你自己的死亡和葬礼愿望，告诉你的朋友和家人他们的愿望。大多数人都不想——作为一个有意识的人的缺点之一是意识到有一天你会死去，这很正常，会让你感到害怕。否认死亡是现代西方文化的默认，以至于我们试图将生命延长到失去意义的程度，并雇佣人们为我们所爱的人的尸体穿衣化妆，以创造一个据称令人安慰的 [“记忆画面”](https://books.google.com/books?id=QbRreZuttqMC&pg=PA44&lpg=PA44&dq=memory+picture,+funeral&source=bl&ots=Xssy02dZSW&sig=yHZZffA9w6cATSKcKSMLgsa5Llw&hl=en&sa=X&ved=0ahUKEwjUiJPnncPRAhUBXRoKHfoNB0YQ6AEInwEwDA#v=onepage&q=memory%20picture%2C%20funeral&f=false)
 

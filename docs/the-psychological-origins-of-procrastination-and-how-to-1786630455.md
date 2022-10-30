@@ -4,7 +4,7 @@
 
 我们都有这样的经历:想要完成一个项目，但却把它推迟到以后。有时我们等待是因为我们对项目不够关心，但其他时候我们非常关心——但最终还是做了其他事情。拿我来说，当我有很多论文要批改时，我就不得不打扫我的房间，尽管我知道我需要批改它们。
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/the-psychological-origins-of-procrastination-and-how-we-can-stop-putting-things-off-47905) *。*
 

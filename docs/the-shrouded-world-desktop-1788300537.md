@@ -4,7 +4,7 @@
 
 读者 [Alec](http://kinja.com/stranaha2) 向我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 提交了这款桌面，除了一张惊艳的壁纸，就是一台定制的整整齐齐的 Mac。他是这样安排一切的。
 
-Watch
+
 
 Alec 正在使用 bersicht， [一个 macOS 定制套件，我们在](https://lifehacker.com/ubersicht-customizes-your-os-x-desktop-with-widgets-and-1591137635) 之前已经强调过了。您将需要抓住它开始，但它几乎是所有您需要的。
 

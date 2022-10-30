@@ -4,7 +4,7 @@
 
 今年，Windows 10 以名副其实的周年更新庆祝了它的第一年。免费升级也终于用完了。以下是我们 2016 年最大的 Windows 帖子。
 
-Watch
+
 
 ### [Windows 10 周年更新的所有最酷功能](http://lifehacker.com/all-the-coolest-features-of-windows-10s-anniversary-upd-1784698775)
 

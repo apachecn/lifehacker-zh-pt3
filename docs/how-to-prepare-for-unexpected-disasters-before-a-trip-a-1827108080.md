@@ -4,7 +4,7 @@
 
 旅行是一场狂野的冒险，而让它成为一场冒险的部分原因是它有可能遭遇彻底的灾难。这里有一些建议，告诉你如何为最坏的情况做准备，这样你就可以放松，享受你的旅行所能提供的最好的东西，同时最小化最坏情况的风险。
 
-Watch
+
 
 当你离开美国 S. 作为美国公民出国旅游的时候，你有几个安全网， Reddit 用户[u/BAC girl](https://www.reddit.com/user/baccgirl)[在 LifeProTips 上指出 ou](https://www.reddit.com/r/LifeProTips/comments/8thd0a/lpt_if_travelling_internationally_always_make/) t 你应该在航班起飞前知道它们是什么。一个很大的例子是你国家的大使馆；在你到达之前，确保你知道大使馆在你目的地的什么地方，以及他们的工作时间。评论者 u/[double stitch](https://www.reddit.com/user/doublestitch)[补充道](https://www.reddit.com/r/LifeProTips/comments/8thd0a/lpt_if_travelling_internationally_always_make/e18rnpb/) 你最好为你国家的领事馆获取这些信息，因为大使馆一般会处理外交事务。但是，为什么不两者兼得呢？
 

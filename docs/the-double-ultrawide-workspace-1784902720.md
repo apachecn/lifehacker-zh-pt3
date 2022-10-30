@@ -4,7 +4,7 @@
 
 两台超宽显示器装饰一张桌子可能看起来很多，但当其中一台处于纵向模式以方便阅读和减少滚动时，整个东西都被显示器臂高高举起，以获得一个漂亮、干净的桌子和良好的电缆管理，嗯，我们无法抗拒。这里还有一些照片。
 
-Watch
+
 
 redditor[sigma month](https://www.reddit.com/user/sigmammoth)将这些发布到了 Battlestations subreddit(链接如下)，如果我在我的办公桌上再添加一个 ultrawide(你可能记得，我最近已经 [爱上了一个](http://lifehacker.com/how-using-an-ultrawide-monitor-boosted-my-productivity-1782833923) )，我可能不得不采取这种方法。两个显示器都是 [这些 29 英寸的三星曲面超宽显示器](https://www.amazon.com/gp/product/B00TR0518U/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-double-ultrawide-workspace-1784902720&asc_source=&tag=kinjalifehackerlink-20) ，但右边的显示器是纵向安装的，这对于阅读来说非常好——特别是因为网络的大部分是垂直的，所以没有必要有更多的水平空间。这是另一个来自左边的镜头，拳头碰撞的冲锋队在前面和中间:
 

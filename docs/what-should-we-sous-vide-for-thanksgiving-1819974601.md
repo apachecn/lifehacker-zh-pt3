@@ -4,7 +4,7 @@
 
 各位网友大家好，欢迎回到 [*的另一个选题环节。*](http://lifehacker.com/tag/will-it-sous-vide) ，列在那里我用我的沉浸循环器做任何你想让我做的事。
 
-Watch
+
 
 虽然十月还没有结束，但火鸡日很快就会到来，我总是发现最好早点开始准备。去年我们供应了 [一整只火鸡](https://skillet.lifehacker.com/will-it-sous-vide-a-whole-thanksgiving-turkey-1789112054) 和 [几只火鸡](https://skillet.lifehacker.com/will-it-sous-vide-glorious-thanksgiving-sides-1789074625) ，但我相信我们可以做得更多。我有一些感恩节主题的想法，包括:
 

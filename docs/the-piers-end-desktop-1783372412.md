@@ -6,7 +6,7 @@
 
 当 Sebastian 提交他的桌面时，我们准备按原样分享它，但后来他链接到了 Behance 的项目，其中包括整个活动的可爱视频。这是一个漂亮的系统用户界面定制，他包括了许多组件，所以你可以自己制作。以下是方法。
 
-Watch
+
 
 当然，首先你需要了解 Rainmeter 及其工作原理，如果你需要入门帮助， [我们这里的向导](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 可以给你一些基本知识。
 

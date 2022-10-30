@@ -4,7 +4,7 @@
 
 如果你曾经尝试过 [root 你的安卓手机](https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397) 或者 [flash a ROM](http://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281) ，你可能听说过 ADB 和/或 fastboot。这两个工具惊人地强大，但是安装起来有点过于复杂。下面是简单的方法。
 
-Watch
+
 
 *更新:Google* [*最近发布了 ADB 和 fastboot 作为独立下载*](http://lifehacker.com/google-finally-lets-you-download-adb-and-fastboot-as-st-1790840830) *。现在你不需要下载一个巨大的开发者工具包来修改你的手机了！我们已经更新了下面的指南，以反映这些变化，并使用谷歌的官方下载，而不是第三方服务。*
 

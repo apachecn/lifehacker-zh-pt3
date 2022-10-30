@@ -4,7 +4,7 @@
 
 酒店生活是甜蜜的，尤其是如果你在行李中留有空间放所有的迷你洗发水和毛巾。糟糕的是，离开你的公寓休息一晚是如此昂贵，你最好去贝德柏士比昂公司。也就是说，除非你能学会用一种完全合法的方式骗到一个免费的家。
 
-Watch
+
 
 在 subreddit/r/social engering[网站上，一个名为](https://www.reddit.com/r/SocialEngineering/comments/774rn2/found_dangerous_insects_in_my_hotel_room_moved/)[youlovethisthis](https://www.reddit.com/user/youlovethisish)(我愿意)的 Redditor 在发现黄蜂蹲坐在他们已经付费的房间后，询问 免费的酒店房间:
 

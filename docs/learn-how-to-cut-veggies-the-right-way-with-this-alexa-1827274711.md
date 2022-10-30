@@ -6,7 +6,7 @@
 
 虽然有些水果和蔬菜很容易知道如何切，但有些就不那么直观了。本周，我偶然发现了 Alexa 的一项技能，旨在帮助解决更困难的蔬菜。
 
-Watch
+
 
 叫做 [剁剁](https://www.amazon.com/bondad-fm-Chop/dp/B07CRKPSZQ/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/learn-how-to-cut-veggies-the-right-way-with-this-alexa-1827274711&asc_source=&ie=UTF8&keywords=chop chop&qid=1530487353&s=digital-skills&sr=1-1&tag=kinjalifehackerlink-20) ，这个技巧的全部意义在于向你展示如何剁你可能有疑问的东西。该技能是为 Echo Show 或 Echo Spot(带有屏幕的 Echo 设备)设计的，但它也适用于 Dot 或常规的纯语音 Alexa。
 

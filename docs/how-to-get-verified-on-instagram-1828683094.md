@@ -4,7 +4,7 @@
 
 我们都渴望在社交媒体平台上看到的蓝色复选标记往往神秘地难以实现。人们是如何得到它的？Twitter 一度允许人们提交自己，但那个系统是 [目前暂停](https://gizmodo.com/twitter-halts-verifications-after-refusing-to-say-why-i-1820288878) 。然而，Instagram 正在尝试。
 
-Watch
+
 
 公司已宣布今日发布多项更新， [按](http://nymag.com/selectall/2018/08/how-to-get-verified-on-instagram.html) 全选，全部与安全挂钩。你现在可以检查一个大账户是否更改过名字，何时加入，是否投放过广告。您也可以提交自己进行验证，这有一些好处。这些措施包括在 Instagram 故事中嵌入向上滑动广告，让人们更认真地对待你——经过验证的人的评论在可见性方面更有分量，这让那些关注你的人放心，你就是你声称的那个人。
 

@@ -4,7 +4,7 @@
 
 葬礼是一个记住所爱的人并衷心道别的时刻，而不是吸引别人的注意力。然而，有些人确实是这样做的。仅仅因为你盛装打扮并不意味着一张[#葬礼自拍](https://www.instagram.com/explore/tags/funeralselfie/) 是正当的。
 
-Watch
+
 
 来自魁北克的著名葬礼导演丹尼斯·德斯罗彻斯在加拿大广播电台的 *Gravel le Matin* 上谈论了葬礼自拍的问题。德斯罗彻斯解释说，他和他的业内同事 [很难教育人们正确的葬礼行为](http://www.telegraph.co.uk/news/2017/02/08/stop-taking-selfies-funerals-say-funeral-directors/) ，并提到葬礼自拍是糟糕礼仪的主要例子之一。他主要担心的是那些家庭，他们通常不想在社交媒体上看到这种类型的照片，因为它们不断提醒着他们的损失。他们也有点不尊重人，因为这种类型的照片通常品味很差。如果你不相信我，可以看看现在已经废弃的 [葬礼自拍 Tumblr](http://selfiesatfunerals.tumblr.com/) 。
 

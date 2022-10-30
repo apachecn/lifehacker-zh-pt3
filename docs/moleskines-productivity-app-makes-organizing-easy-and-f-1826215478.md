@@ -4,7 +4,7 @@
 
 在我生命的大部分时间里，除了自己的记忆，我设法保持相对有条理，但最近我开始使用苹果的 [提醒](https://lifehacker.com/turn-apples-reminders-into-a-quality-gtd-app-1464442575) 应用程序来跟踪主要的工作任务和个人琐事。它完成了工作，但使用起来并不令人兴奋。直到我测试了 [Moleskin](https://lifehacker.com/inside-the-offices-of-moleskine-5594252#_ga=2.86059480.1369191435.1526907270-1723114163.1524514905) e 的优秀 iOS 生产力应用程序 [动作](https://us.moleskine.com/actions/p1230) ，我才意识到**乐趣**是一个选项。
 
-Watch
+
 
 受最近一篇文章 [Fast Company](https://www.fastcodesign.com/90172785/moleskines-productivity-app-is-as-addictive-as-its-notebooks?partner=feedburner&utm_source=feedburner&utm_medium=feed&utm_campaign=feedburner+fastcodesign&utm_content=feedburner) 的启发，我下载了 Actions 并尝试了一下。我首先注意到的是设计。它漂亮、干净、简单——这是苹果公司应该做的极简主义软件，但最近却找不到了。
 

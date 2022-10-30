@@ -4,7 +4,7 @@
 
 [“什么样的产品或服务是你绝对不能廉价购买的？”](https://old.reddit.com/r/AskReddit/comments/9en0j5/whats_a_product_or_service_you_should_never_cheap/) 问 redditor Kill_Dr_Phil。成千上万的 redditors 有答案。我们收集了一些经过深思熟虑的答案。
 
-Watch
+
 
 *   “任何能保护你的东西，”她说。"头盔、工作靴、运动器材等."[shartweekonvd](https://old.reddit.com/r/AskReddit/comments/9en0j5/whats_a_product_or_service_you_should_never_cheap/e5q22rb/)指出，防护工作服(或任何只能用于工作而不能用于其他地方的衣服)是 [可扣税的](https://www.1040.com/tax-guide/taxes-and-your-job/work-clothes-and-uniforms/) 。
 *   [说【垃圾袋】](https://old.reddit.com/r/AskReddit/comments/9en0j5/whats_a_product_or_service_you_should_never_cheap/e5q03fg/)说。“相信我，你不会后悔把一个装满腐烂农产品和猫砂的袋子拖到垃圾箱，试图把它甩到边缘，并在上升时感觉它在你手中被撕裂。”

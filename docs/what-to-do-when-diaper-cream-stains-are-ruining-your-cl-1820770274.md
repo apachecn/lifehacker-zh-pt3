@@ -4,7 +4,7 @@
 
 朱莉·可儿是清洁专家、建议专栏作家，也是《纽约时报》畅销书 [的作者...而其他的事情你不能问玛莎](https://www.amazon.com/Boyfriend-Barfed-Handbag-Things-Martha/dp/0142196932?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/what-to-do-when-diaper-cream-stains-are-ruining-your-cl-1820770274&asc_source=&tag=kinjalifehackerlink-20) *。她的旗舰专栏“问一个干净的人”于 2011 年首次推出。在《后代》杂志上，我们推出了一个新版本，聚焦于养育子女和它带来的所有混乱。*
 
-Watch
+
 
 * * *
 

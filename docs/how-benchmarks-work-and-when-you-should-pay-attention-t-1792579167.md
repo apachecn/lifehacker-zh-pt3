@@ -4,7 +4,7 @@
 
 当你买一个新的小玩意时，你会想要一个速度最快、功能最强大的。基准测试可以帮助您找出哪些设备拥有最大的能力，但有时它们只是一种干扰。
 
-Watch
+
 
 ### **标杆管理的真正作用是什么？**
 
@@ -41,11 +41,7 @@ Passmark 将其排名分为几个图表，以帮助您缩小您需要的 CPU 类
 
 SD 卡基准有点难以获得，但 Pi Dramble 和 [TechFunology](http://www.techfunology.com/electronics/digital-cameras/memory-cards/sd-cards/the-best-hcsd-cards-of-2014-our-top-10/) 等网站提供了一些最受欢迎的卡的比较。对于一般用户来说，你可以简单地专注于获得更高等级的 SD 卡([10 级最快](https://www.sdcard.org/developers/overview/speed_class/) ，最低写入速度为 10MB/s)，但如果你的 Raspberry Pi 项目或专业摄影相机需要绝对最快的卡，请查看上面的网站，了解哪些是最快的。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How Benchmarks Work and When You Should Pay Attention to Them](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-choose-the-best-sd-card-for-my-camera-5841697) [###### 我如何为我的相机选择最好的 SD 卡？](https://lifehacker.com/how-do-i-choose-the-best-sd-card-for-my-camera-5841697) 
 
-亲爱的 Lifehacker，我刚买了一台新相机，旧相机的 SD 卡坏了。…
-
-[Read more](https://lifehacker.com/how-do-i-choose-the-best-sd-card-for-my-camera-5841697)</aside>
 
 ### **当您可以安全地忽略基准测试时**
 

@@ -4,7 +4,7 @@
 
 使用任何一种药物都有一些固有的风险，但不可否认的是，有些药物比其他药物更安全。根据今年的 [全球毒品调查](https://www.globaldrugsurvey.com/) ，大嚼神奇蘑菇是最安全的旅行方式之一。
 
-Watch
+
 
 由[Adam Winstock](http://www.kcl.ac.uk/ioppn/depts/addictions/people/profiles/DrAdamRWinstock.aspx)博士、Monica Barratt 博士、Jason Ferris 博士和 Larissa Maier 博士领导的调查发现，去年来自 50 个不同国家的 12000 多人中，只有 0.2%的人报告寻求医疗。其他较重的娱乐性药物，如摇头丸、迷幻药和可卡因的医疗治疗率至少是这个数字的五倍。
 

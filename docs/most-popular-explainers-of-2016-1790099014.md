@@ -4,7 +4,7 @@
 
 今年有各种各样的话题需要阐述。我们在街上抓到了神奇宝贝，学会了如何开会和投票，校准了我们新买的 HDR 电视，还服用了一些智能药物。以下是 2016 年最佳解释者。
 
-Watch
+
 
 ### [***神奇宝贝 Go* 训练师高级战术手册**](http://lifehacker.com/the-pokemon-go-trainers-advanced-tactics-handbook-1784003725)
 

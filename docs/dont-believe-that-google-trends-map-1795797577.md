@@ -4,7 +4,7 @@
 
 上周，Google Trends 发布了一张地图，上面有美国各州最常拼错的单词:
 
-Watch
+
 
 这种 [很快被美国另一家互联网巨头 porn hub](https://www.pornhub.com/insights/misspelled-porn-searches)模仿:
 

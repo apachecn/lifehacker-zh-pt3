@@ -4,7 +4,7 @@
 
 虽然不是每个人都对 2017 年的坐立不安旋转器爆炸感到兴奋，但它确实带来了更多关于患有多动症、自闭症和其他疾病的孩子，或者那些可能只是感到过度刺激和焦虑的孩子的触觉辅助的意识。职业治疗师的工具袋里有各种各样的物品，可以帮助孩子冷静下来，保持专注。这里有五种产品，家长们说它们对孩子的生活产生了很大的影响。
 
-Watch
+
 
 ### [加重毯](https://www.amazon.com/5lb-Weighted-Blanket-Autism-Anxiety/dp/B01BCVYS6W/ref=pd_lpo_vtph_229_tr_t_2?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/5-tools-that-help-overstimulated-kids-calm-down-and-foc-1819641313&asc_source=&dpID=41JF5bNIlQL&dpSrc=detail&preST=_SX300_QL70_&psc=1&refRID=Z03AQK85M8WJGXS7V684&tag=kinjalifehackerlink-20) 和 [膝盖垫](https://www.amazon.com/Sensory-Weighted-Lap-Pad-Kids/dp/B01LX9D33Y?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/5-tools-that-help-overstimulated-kids-calm-down-and-foc-1819641313&asc_source=&tag=kinjalifehackerlink-20)
 

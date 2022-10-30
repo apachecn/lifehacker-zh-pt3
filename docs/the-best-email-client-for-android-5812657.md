@@ -4,7 +4,7 @@
 
 Gmail 应用程序不再仅仅是 Gmail 的了。在添加了对 IMAP、POP 和 Exchange 的支持，以及大量管理和控制您的电子邮件的功能后，我们建议 Gmail 管理您在 Android 上的所有电子邮件帐户，即使是非 Google-y 帐户。
 
-Watch
+
 
 ### [](https://mail.google.com/)
 

@@ -4,7 +4,7 @@
 
 Trader Joe's 是一家非常独特的杂货店，虽然你不能真的在那里购物，但它确实有它的优点。除了有 [美味的小吃](http://skillet.lifehacker.com/why-i-buy-all-of-my-plane-snacks-from-trader-joes-1793461509) 和 [混合调料](http://skillet.lifehacker.com/this-everything-bagel-seasoning-is-quite-literally-my-1793624935) 之外，他们还有大量的食物和配料，可以让你以不到 10 美元的价格组装一顿快速美味的两人工作日晚餐。
 
-Watch
+
 
 下面，你会发现一些我最喜欢的简单晚餐，你可以用比外卖更少的钱来做。有意大利面、比萨饼、沙拉，甚至还有素食选择。请记住，这些食谱假设你有基本的东西，如盐和胡椒，也许还有一点橄榄油，但这些食物中的一些非常便宜，你可以添加一瓶 EVOO，但仍然不会花费超过 10 英镑。此外，请记住，这些价格是基于我当地的贸易商乔的，可能会因地区而异。
 

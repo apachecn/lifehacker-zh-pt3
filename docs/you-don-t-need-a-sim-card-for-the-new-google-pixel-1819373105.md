@@ -4,7 +4,7 @@
 
 谷歌的 Pixel 2 和 Pixel 2 XL 是该公司最新的智能手机，但它们并没有完全打破常规。 [都运行 Android 8.0](https://gizmodo.com/pixel-2-what-you-need-to-know-about-googles-new-top-an-1819121718#_ga=2.147429687.1277776602.1507643556-1371574852.1507643556) ，放弃耳机插孔以换取 IP67 防水防尘性能，采用铝制机身，所有高端 Android 智能手机中的标杆。但 Pixel 2 中有一个很酷的功能是迄今为止发布的所有智能手机都没有的:嵌入式 SIM(也称为 eSIM)支持。
 
-Watch
+
 
 ### **什么是 eSIM？**
 

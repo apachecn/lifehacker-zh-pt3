@@ -4,7 +4,7 @@
 
 Windows 的防病毒程序多得数不清，而且没有一个是完美的。目前，我们推荐 Avira，因为它在保护、易用性和成本之间取得了最佳平衡。
 
-Watch
+
 
 *更新:*我们以前的选秀权，Avast！根据 AV 比较和 AV 测试，在防病毒测试中的得分低于往年。它还添加了 [烦人的弹出窗口](http://lifehacker.com/how-to-disable-avasts-annoying-sounds-and-popups-1530732542) ， [未经询问就自行添加到电子邮件签名中](http://lifehacker.com/stop-avast-from-adding-its-signature-into-your-outgoing-1748130504) ，该公司的 SafeZone 浏览器 [因安全漏洞](http://www.pcworld.com/article/3030319/security/researcher-finds-serious-flaw-in-chromium-based-avast-safezone-browser.html) 而受到抨击。所以，我们决定更新我们的选择。
 

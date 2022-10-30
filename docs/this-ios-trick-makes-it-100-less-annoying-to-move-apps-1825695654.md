@@ -4,7 +4,7 @@
 
 停止印刷。我不 [整理我 iPhone 的应用](https://lifehacker.com/organize-your-home-screen-app-icons-by-color-1823427479) 的一个主要原因是因为长按一个应用 要花费 [太多时间，等待它摆动，将它移到一个文件夹，并为它的其他 60 个朋友重复这个过程。但是多亏了](https://www.youtube.com/watch?v=ykWffWpaakI) [Finer Tech](https://finertech.com/2018/04/19/how-to-move-multiple-apps-at-once-on-iphone-and-ipad/) 的天才们，有了一个更加简单的方法来调整你的应用程序。
 
-Watch
+
 
 它是这样工作的。长按应用程序，直到它开始摆动。稍微移动一下应用程序——相信我，这部分很重要。我不确定你要移动多少，但我宁愿选择“相当多”也许暂时让摆动的应用程序与页面上的另一个应用程序交换位置。不要停止按住你的手指；保持应用程序摆动。
 

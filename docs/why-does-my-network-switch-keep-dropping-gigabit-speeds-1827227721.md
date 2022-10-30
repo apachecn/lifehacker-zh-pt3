@@ -4,7 +4,7 @@
 
 虽然感觉我是在 [和自己](https://www.youtube.com/watch?v=epeSCeztN64) 跳舞，但本周的*科技 911* 专栏——你问科技问题，我们提供科技答案——会有点颠倒。我不会回答你通过电子邮件、评论或推特(用 GIF)发给我的问题，而是寻求你的*帮助解决我遇到的一个小问题。相信我，这很有趣。*
 
-Watch
+
 
 * * *
 
@@ -22,11 +22,7 @@ Watch
 
 *嗯。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled Why Does My Network Switch Keep Dropping Gigabit Speeds?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/do-i-ever-need-to-upgrade-my-cable-modem-5994018) [###### 我需要升级我的电缆调制解调器吗？](https://lifehacker.com/do-i-ever-need-to-upgrade-my-cable-modem-5994018) 
 
-亲爱的 Lifehacker，我已经好几年没搬家了，还在用我…
-
-[Read more](https://lifehacker.com/do-i-ever-need-to-upgrade-my-cable-modem-5994018)*</aside>
 
 *关于我房间的设置:我在墙上有两个以太网插孔，都通过单独的 5e 类或 6 类以太网电缆连接到房子的主交换机。(我相信两个 Cat 6 电缆，但我并不积极，我的室友正在观看 *Westworld* 的赛季大结局，所以我现在不打算跑出去问。)我将一个 16 端口的千兆位交换机连接到一个墙上的插孔，我房间里的所有设备都连接到交换机，都使用 5e 类电缆，每根电缆不太可能超过 10 英尺。* 
 

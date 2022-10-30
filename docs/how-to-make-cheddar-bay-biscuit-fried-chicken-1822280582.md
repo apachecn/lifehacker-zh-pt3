@@ -4,7 +4,7 @@
 
 *欢迎来到* [**感谢，评论者！**](https://thetakeout.com/c/thanks-commenters) *，我们挖掘、借用、窃取*外卖*的评论者提出的创意。*T12】
 
-Watch
+
 
 上周，*外卖*的格温·伊纳特 [评论了红龙虾的切达贝饼干组合](https://thetakeout.com/cheddar-bay-biscuit-mix-lets-you-take-the-best-part-of-1822196176) ，她称之为对家庭厨师复制红龙虾的标志性菜肴“毫无启示”。
 

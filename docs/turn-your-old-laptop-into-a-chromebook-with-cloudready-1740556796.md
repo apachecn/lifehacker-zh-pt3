@@ -4,7 +4,7 @@
 
 如果你已经有一段时间没有使用 Chromebook 了，那么它们已经走过了的漫长道路。但是你不需要为了运行 Chrome 操作系统而花钱买一台新的笔记本电脑。你可以将它安装在几乎任何装有 CloudReady 应用程序的笔记本电脑上。
 
-Watch
+
 
 谷歌版本的 Chrome OS 不供用户安装，但其开源基础 Chrome OS——以及来自开发商 [Neverware](http://www.neverware.com/) 的 [CloudReady](http://www.neverware.com/free) ，使其安装在你的笔记本电脑上变得非常简单。不需要摆弄驱动程序或寻找兼容的硬件-只需点击安装。
 

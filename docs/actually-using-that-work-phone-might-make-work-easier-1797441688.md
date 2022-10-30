@@ -4,7 +4,7 @@
 
 谁更喜欢电话而不是电子邮件？谁也不是，就是谁。如果为了工作打电话 [引发了一点焦虑](http://lifehacker.com/get-over-your-phone-anxiety-with-cognitive-restructuri-1792448810) ，你并不孤单。TrackMaven 首席执行官艾伦·甘尼特也更喜欢发短信和电子邮件，而不是老式的电话，但他决定效仿更有效率的人的特点，并 [转向可靠的电话](https://www.fastcompany.com/40446728/what-happened-when-i-replied-call-me-to-every-email-i-got-for-a-week) 而不是没有人情味的电子邮件。
 
-Watch
+
 
 如果你想了解顾客或客户对某件事的真实感受，通过电话与他们联系可能会更有帮助。众所周知，解读短信和电子邮件中的情感是非常困难的；2005 年的一项研究显示，接受严肃或讽刺邮件的人只有 56%的时间能够辨别出邮件的语气 。
 

@@ -4,7 +4,7 @@
 
 当亚马逊在 2016 年春天发布 [Kindle Oasis](https://gizmodo.com/the-amazon-oasis-is-the-best-e-reader-ever-made-1773295033#_ga=2.119838920.1752932370.1508168193-1766955622.1506526262) 时，我们说这是有史以来最好的电子阅读器。但这并不意味着它是完美的，在它问世的一年半时间里，很明显还有改进的空间。旧款 Oasis 的起价为 290 美元，有点贵，它有一个块状(现在已经过时)的设计，并且缺少一些功能，如更老的 Kindle Voyage 上的自适应背光。尽管它的名字会让人立刻联想到水池和喷泉，但之前的绿洲也没有任何防水功能。但现在，亚马逊正在进行另一次尝试，推出名为 [的新款 Kindle Oasis](https://www.amazon.com/dp/B06XD5YCKX/ref=fs_ods_fs_eink_cc?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/amazons-sick-high-end-kindle-got-a-serious-overhaul-1819330183&asc_source=&tag=kinjagizmodolink-20) ，它看起来解决了所有这些缺点，同时还增加了许多新的改进。
 
-Watch
+
 
 新款 Oasis 的起价为 250 美元，配备了更大的 7 英寸显示屏(相比之下，旧款 Oasis 的屏幕为 6 英寸)，亚马逊声称，在保持旧款 300 PPI 像素密度的同时，可以显示多达 30%的文本。亚马逊还将 LED 背光的数量从 10 个增加到 12 个，因此现在屏幕应该比以前更亮，同时由于环境光传感器的回归，还能够在需要时自动变暗。但更重要的是，新的 Oasis 具有 IPX8 防水功能，可在 5 英尺深的水中保持 30 分钟，亚马逊声称，与大多数防水设备不同，这种功能在盐水和淡水中都适用。
 

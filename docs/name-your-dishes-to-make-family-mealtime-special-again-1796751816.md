@@ -4,7 +4,7 @@
 
 家庭用餐技巧主要集中在效率上。批量烹制。立刻冻结 [一个月的](https://happymoneysaver.com/freezer-meals/) 菜肴。已经买了该死的 [即溶壶](https://www.amazon.com/dp/B00FLYWNYQ?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/name-your-dishes-to-make-family-mealtime-special-again-1796751816&asc_source=&tag=kinjalifehackerlink-20) 。
 
-Watch
+
 
 我明白了。时间永远不够，我们需要不停地移动填饱肚子的传送带。但是体验呢？欢乐呢？(好吧，是的，速食锅可以很欢乐。我们明白了，即时大麻的人。)
 

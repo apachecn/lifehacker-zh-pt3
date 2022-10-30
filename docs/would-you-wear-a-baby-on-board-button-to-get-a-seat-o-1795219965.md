@@ -4,7 +4,7 @@
 
 站着的怀孕地铁乘客出于礼貌提出了一个两难的问题:你是主动让座让她坐下，还是在她没有怀孕的情况下管好自己的事情，因为你认为她怀孕了而感到尴尬？
 
-Watch
+
 
 在纽约市，MTA[现在提供](https://www.nytimes.com/2017/05/14/nyregion/if-a-pregnant-straphangers-bump-isnt-obvious-maybe-the-button-will-be.html) “婴儿在船上”按钮，如果你怀孕了，想让别人知道你会感谢有机会离开自己，你可以穿上它。还有一个中性的“请给我让座”按钮，供老年人、残疾人或其他在公共交通上站不稳的人使用，他们希望能够坐下。你可以在这里 [请求按钮](http://nymta.civicconnect.com/courtesy) 。不需要医生证明:这是荣誉系统。
 

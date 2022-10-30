@@ -4,7 +4,7 @@
 
 我们 [问你](http://lifehacker.com/what-are-the-best-life-hacks-youve-learned-from-fiction-1797874041) 你从小说中学到的最好的生活窍门，你给了我们一套 [简直太棒了](http://lifehacker.com/go-ahead-and-use-literally-figuratively-1797636385) 的小窍门，从如何用吹风机给镜子去雾，到像“恐惧是精神杀手”这样宏大的生活建议
 
-Watch
+
 
 我们从一个经济不公平的理论开始，这个理论也提出了实用的时尚建议，这个理论来自一系列小说，讲的是一个中世纪的世界，四头大象坐在一只乌龟的身上。
 

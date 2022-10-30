@@ -4,7 +4,7 @@
 
 新年前夜是纵情畅饮的时间，没有什么比分发小瓶烈酒更特别的了，这些小瓶烈酒冻在适合柯林斯酒杯的冰块里。这是一个非常“酒瓶服务”的派对把戏，执行起来也没那么难。
 
-Watch
+
 
 Alcademics [的 Ice master Camper English 可以在他的博客](http://www.alcademics.com/2017/06/freezing-mini-bottles-inside-collins-ice-cube-spears.html?utm_content=bufferc601a&utm_medium=social&utm_source=twitter.com&utm_campaign=buffer) 上带你走过整个过程，但你需要一个冷却器、塑料礼品盒和小瓶你最喜欢的乙醇。
 

@@ -4,7 +4,7 @@
 
 随着过去一周左右的市场波动，有人质疑何时重新平衡你的投资组合。有人说这不应该妨碍你的长期计划，并且要坚持一年一次。其他人说，重新平衡的时机就在市场上涨或下跌 5%或更多之后。
 
-Watch
+
 
 如果你投资于目标日期基金，你使用机器人或顾问管理你的账户，你不需要太担心。这篇 [文章](https://www.marketwatch.com/story/the-right-way-to-rebalance-your-portfolio-2014-02-18) 主张每季度做一次，而这篇来自 [先锋](https://www.vanguard.com/pdf/icrpr.pdf) 的文章说，不管你做多频繁，结果不会有太大变化(尽管费用和税收会有影响)。正如 [美林](https://www.merrilledge.com/article/how-and-when-rebalance-your-portfolio) 所解释的，你想要重新平衡的一个例子是:
 

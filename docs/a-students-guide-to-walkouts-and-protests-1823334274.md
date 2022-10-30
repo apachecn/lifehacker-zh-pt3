@@ -4,7 +4,7 @@
 
 佛罗里达州帕克兰的校园枪击事件在全国范围内引发了一波学生运动:青少年正在游行、组织，并在社交媒体上向他们的代表施压，要求有意义的枪支立法。在过去的两周里，学生们走出学校进行抗议，还有更多的抗议活动正在计划中:计划于 3 月 14 日 [举行的抗议活动鼓励学生在上午 10 点走出教室，持续 17 分钟](https://offspring.lifehacker.com/walk-out-of-school-to-demand-safer-gun-laws-1823053578#_ga=2.68444245.590162503.1519654208-640366746.1501881373) ，为帕克兰遇害的每一个人默哀一分钟，以及 4 月 20 日 [全国高中的罢工](https://twitter.com/schoolwalkoutUS) ，这是科伦拜恩大学 19 周年纪念日。你可以在这里 找到你身边的 [事件。](http://act.indivisible.org/event/national-school-walkout/search/)
 
-Watch
+
 
 一些学校管理者 [威胁说，如果学生在学校财产或上课时间参与任何罢课或抗议，他们将受到纪律处分](https://www.cnn.com/2018/02/21/us/student-walkout-punishment-trnd/index.html) 。休斯顿附近的一所学校的负责人在学校的脸书页面上发帖称，学生如果参加任何抗议活动，将被停课三天。
 

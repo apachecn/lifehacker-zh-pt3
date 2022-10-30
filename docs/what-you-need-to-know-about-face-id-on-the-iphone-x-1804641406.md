@@ -4,7 +4,7 @@
 
 iPhone X 的全屏显示可能是你注意到这款新设备的第一件事，但苹果升级的前置摄像头也值得你关注。也许更是如此。
 
-Watch
+
 
 苹果公司利用 iPhone X 推出了指纹扫描标准，该标准是它与 [【触控 ID】](http://lifehacker.com/fix-your-iphone-s-touch-id-by-retraining-it-1680003851)一起引入的，取而代之的是面部扫描技术。Face ID 更加安全(至少苹果是这样认为的)，它为 999 美元的智能手机 [带来了一些很酷的新功能，以及你可能会想到的面部扫描技术带来的隐私问题](http://gizmodo.com/face-id-raises-some-scary-questions-here-are-some-answe-1804313075) 。以下是你需要知道的。
 

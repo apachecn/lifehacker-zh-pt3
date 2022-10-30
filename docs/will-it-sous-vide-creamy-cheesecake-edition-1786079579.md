@@ -4,7 +4,7 @@
 
 大家好，欢迎回到 [*的另一个纷乱、旋转的版本，它会分开吗？*](https://lifehacker.com/welcome-to-will-it-sous-vide-the-immersion-cooker-col-1785515345) ，你去告诉我该怎么处理我的 [方差分析精密炊具](https://anovaculinary.com/) 那一栏。(如果你需要一个关于真空烹饪的快速入门， [点击这里查看我们的指南](http://lifehacker.com/sous-vide-101-how-to-cook-the-most-tender-and-flavorfu-5868685) 。)
 
-Watch
+
 
 周一最受欢迎的建议话题是芝士蛋糕 ，它有 16 颗星:
 

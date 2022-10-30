@@ -4,7 +4,7 @@
 
 今年夏天纽约市持续的地铁危机已经演变成一种烈性鸡尾酒，在炎热、幽闭、地下的噩梦般的地铁里，混合着通勤者最恐惧的事情。延迟的 [在增加](http://gothamist.com/2017/07/09/report_majority_of_nyers_have_been.php) ，可追溯到 20 世纪 30 年代的破旧设备急需更换，而实际的 [PTSD 可能正在设定在](http://nypost.com/2017/06/11/your-awful-morning-commute-could-be-giving-you-ptsd/) 。你和其他恐慌的人一起被困在隧道里的可能性只会越来越大。(如果你需要确信事情很糟糕，我们会把你带到现在已经臭名昭著的六月视频中，视频显示绝望的地铁受害者从一辆卡住的过热的车里爬出来。)
 
-Watch
+
 
 尽管如此，每天乘坐地铁是数百万日常通勤者不可避免的生活事实，因此，为了获得在地铁地狱中生存的实用技巧，我们求助于应对其他公共交通工具幽闭恐怖症细菌管的专家:飞机。空乘人员当然不仅仅是(引用替代者的话)空中服务员:他们是训练有素、思维敏捷的空中第一道防线，他们必须处理各种各样的小危机，同时还要面带微笑，确保你感到舒适，这绝对不是 MTA 试图做的事情。(顺便说一句，我们向 MTA 寻求处理地下危机的最佳建议，但尚未收到任何信息——如果有回音，我们会及时更新。)
 
@@ -20,11 +20,7 @@ Watch
 
 “分散他们的注意力，让他们不去想他们脑子里想的东西，”史密斯说。简单的问题有助于转移他们的注意力，比如问他们要去哪里，他们从哪里来，或者这是不是他们的常规地铁线路。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Stay Safe on a Subway That&#39;s Stuck Underground](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/three-tricks-for-dealing-with-anxiety-in-the-moment-1607266321) [###### 应对当下焦虑的三招](https://lifehacker.com/three-tricks-for-dealing-with-anxiety-in-the-moment-1607266321) 
 
-你可能已经为紧张的情况做好了准备，比如工作面试、重要会议或
-
-[Read more](https://lifehacker.com/three-tricks-for-dealing-with-anxiety-in-the-moment-1607266321)</aside>
 
 “我让他们四处看看，”尼基·汤普森说，她已经在一家国际航空公司做了四年的空姐。这里的策略是让恐慌的乘客回到那一刻。她避免把任何不好的想法放在他们的脑海里(不要说“火车还没着火呢！”).相反，选择一些直截了当的话，比如，“现在你的四肢都完好无损。“我们周围的一切都很好，”汤普森建议道。
 

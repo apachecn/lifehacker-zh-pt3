@@ -4,7 +4,7 @@
 
 做奶昔似乎已经成为 [一项极限运动](https://www.google.com/search?q=black+tap+milkshakes&tbm=isch&tbo=u&source=univ&sa=X&ved=0ahUKEwjo9f6iisbWAhVP3GMKHQKVDMQQsAQIMQ&biw=1366&bih=637) 。有烈酒奶昔，糖果奶昔，还有整片蛋糕的奶昔。然而，有一种经典的、标志性的奶昔从这个浸满乳制品的狂热梦想中消失了:巧克力麦芽。
 
-Watch
+
 
 *欢迎来到* [***复古周***](https://lifehacker.com/tag/retro-week) ***，**在这里，我们将启动通量电容器，为您带来 20 世纪 50 年代的各种知识，从砂锅制作到防辐射防空洞建设，再到让孩子们放松和玩垃圾的乐趣。*
 

@@ -4,7 +4,7 @@
 
 戈多经历了三重厄运。他的家被盗，他的车被偷，然后他的房子被烧毁。他已经向前看了，现在正在寻找能再次带给他快乐的东西。
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

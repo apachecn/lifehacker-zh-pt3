@@ -4,7 +4,7 @@
 
 你认为你孩子的艺术值得展示在冰箱门外吗？今天是谷歌涂鸦大赛 十周年纪念日，K-12 学生还有 [三周时间](https://www.blog.google/topics/education/get-inspired-three-weeks-left-submit-artwork-doodle-4-google/) 提交他们对谷歌标志的翻译。获胜者将获得 3 万美元的奖学金，为他们的学校提供 5 万美元的技术包，并有机会与谷歌动画师合作，将他们的杰作转化为 Google.com 上的互动涂鸦。
 
-Watch
+
 
 今年的主题是“是什么激励了你？”年轻的艺术家可以使用他们喜欢的任何材料来创作他们的作品——蜡笔、粘土、平面设计，甚至食物。所需要的就是涂鸦包含字母 G-o-o-g-l-e
 

@@ -4,7 +4,7 @@
 
 这一周都是关于智能手机的:苹果更新的设备，升级你的 iPhone 的最佳时间，将你的手机安装在汽车上，等等。加上我们表达了对铝箔的喜爱。这里回顾一下。
 
-Watch
+
 
 ## [苹果今天宣布的一切实际上都很重要](http://lifehacker.com/everything-apple-announced-today-that-actually-matters-1729602963)
 

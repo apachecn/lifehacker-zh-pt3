@@ -4,7 +4,7 @@
 
 虽然用笔和纸写下歌词和吉他和弦非常简单，但 TabBank 让它在你的 iOS 设备上也同样简单。这就像输入文本一样简单。
 
-Watch
+
 
 今天发布的这款应用来自设计师 [克里斯·拉德](http://www.chrisladd.net/) ，他制作了吉他课应用 [ChordBank](http://www.chordbank.com/) 和笔记应用 [Better Notes](https://lifehacker.com/better-notes-for-iphone-organizes-your-notes-with-hasht-1783527294) 。它可以让你将歌曲与和弦、歌词甚至琴谱放在一起，然后打印出来或以 PDF 格式在线分享。该应用还允许你从网上导入现有的标签，这样你就可以自己调整它们，或者使用该应用的音频预览功能来听独奏应该是怎样的声音。导入需要一个移动 Safari 扩展，但一旦你安装了它，只需前往你最喜欢的吉他标签网站，找到你喜欢的歌曲，然后点击分享按钮。该歌曲将出现在应用程序中。
 

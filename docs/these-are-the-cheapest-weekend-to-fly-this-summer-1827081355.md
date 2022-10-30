@@ -4,7 +4,7 @@
 
 如果你还在为你的家庭暑假计划做最后的润色，我说的“最后润色”是指挑选一个日期，那么 Kayak 已经为你提供了一些建议。
 
-Watch
+
 
 旅行规划网站查看了未来几个月的机票价格，并提出了几个你可能比其他人更划算的周末， [*Money* 报道](https://www.travelandleisure.com/syndication/cheapest-weekend-travel-summer-2018) 。
 

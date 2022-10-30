@@ -4,7 +4,7 @@
 
 我们已经讨论过冻结 [支出](https://twocents.lifehacker.com/howd-you-do-on-your-month-long-financial-detox-1823370993) ，允许我们自己不时地购买 [好东西](https://twocents.lifehacker.com/its-ok-to-buy-the-damn-coffee-1825722875) 以及描绘我们的 [金钱目标](https://twocents.lifehacker.com/whats-your-2018-money-goal-1821064068) ，所有这些都有助于让我们以正确的财务心态去 [存钱](https://twocents.lifehacker.com/the-best-advice-for-saving-as-much-as-you-can-1821196524) 。我喜欢的另一个策略是通过挑选一些期待的东西来克服即时满足的冲动。
 
-Watch
+
 
 它可以是在一天、一周、一月或一年结束时发生的事情，是你正在为之做预算的事情——无论是周日 5 美元的日场电影票还是 100 美元的一双鞋。
 

@@ -4,7 +4,7 @@
 
 虚拟专用网订阅是要花钱的，而且他们通常需要一点研究来确定他们是否合法 。如果你有一台旧的 Mac，你可以把它变成最简单的 DIY VPN，非常适合在公共 Wi-Fi 上安全浏览或在旅途中从家里的电脑上抓取文件。
 
-Watch
+
 
 ### 你会得到什么
 
@@ -14,11 +14,7 @@ Watch
 
 另外，这非常简单。运行自己的 VPN 通常意味着经历令人挠头的 OpenVPN 设置，但是 OS X Server 极大地简化了这个过程——你甚至不必进入命令行。如果你有一台旧的苹果电脑，坐在那里收集灰尘，花 20 美元在软件上，你可以让这个虚拟专用网立刻运行起来。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Turn an Old Mac Into a Cheap VPN with OS X Server](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927) [###### 如何在公共 Wi-Fi 网络上保持安全](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927) 
 
-公共 Wi-Fi 网络——如咖啡店或酒店中的网络——远没有你想象的那么安全。…
-
-[Read more](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927)</aside>
 
 ### 你需要什么
 

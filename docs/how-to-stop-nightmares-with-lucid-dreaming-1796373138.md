@@ -4,7 +4,7 @@
 
 噩梦困扰着你的大脑，破坏你的睡眠，但清醒梦可以有所帮助——如果你勇敢的话。欢迎来到 Lifehacker 最后一周的 [**清明梦工作坊**](http://lifehacker.com/tag/lucid-dream-workshop) ，oneironauts。
 
-Watch
+
 
 ### **直面噩梦，击退噩梦**
 

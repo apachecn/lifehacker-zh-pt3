@@ -4,7 +4,7 @@
 
 多年来，微软 OneNote 一直是我们最喜欢的笔记应用之一，而且它一直在变得越来越好。这款应用程序可以完全免费地安装在你的 Mac 或 Windows 桌面上，并让你在直观的数字笔记本界面中以任何方式格式化笔记。以下是如何开始使用 OneNote 并让您的笔记更上一层楼。
 
-Watch
+
 
 *<small>这篇文章是</small>* [*<small>微软 Office 周</small>*](http://lifehacker.com/tag/microsoft-office-week) *<small>的一部分，在 Lifehacker 我们提供入门或掌握微软 Office 的技巧。想要更多吗？一定要留意</small>* [*<small>办公周标签页</small>*](http://lifehacker.com/tag/microsoft-office-week) *<small>的整个一周。</small>*
 

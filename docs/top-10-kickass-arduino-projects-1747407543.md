@@ -4,7 +4,7 @@
 
 Arduino 是一种廉价的电子板， [允许你在没有大量编码经验的情况下制作自己的电子产品](https://lifehacker.com/how-to-start-making-your-own-electronics-with-arduino-a-5875365) 。我们喜欢 Arduino，但像任何电子项目一样，想出建造什么的想法是困难的。无论你只是在寻找灵感还是需要一个开始的地方，让我们来看看十个最酷的 Arduino 项目。
 
-Watch
+
 
 ### 10.制作一个微型天气显示器
 

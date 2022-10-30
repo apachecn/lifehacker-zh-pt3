@@ -4,7 +4,7 @@
 
 Hulu 备受期待的直播电视服务 [现已推出测试版](http://gizmodo.com/hulus-live-tv-service-is-now-available-in-beta-with-50-1794869996) ，从我的观看体验来看，这是迄今为止最强的服务，这要归功于它结合了直播电视、Hulu 原创以及数千种电影和电视节目的点播选择。
 
-Watch
+
 
 过去，如果你想看 ESPN，你必须订阅传统的有线电视套餐。对于想在 AMC、TNT 或 FX 等网络上观看直播的人来说，情况也是如此。随后在 2015 年初， [S](http://gizmodo.com/sling-tv-review-holy-crap-weve-figured-out-internet-1681592627#_ga=2.169673954.278465006.1493915191-1400882675.1486143502) [凌 TV](http://gizmodo.com/sling-tv-review-holy-crap-weve-figured-out-internet-1681592627#_ga=2.169673954.278465006.1493915191-1400882675.1486143502) 发布，终于为用户提供了一种合法( [RIP，Aereo](http://gizmodo.com/goodbye-aereo-company-to-sell-off-its-assets-to-the-h-1675781564) )的方式访问有线电视网络，而不需要有线电视盒或订阅合同的麻烦。几个月后，PlayStation Vue 推出了类似的服务(但有更多的频道)，去年，我们已经看到了其他流媒体电视节目，包括 DirecTV Now、T21、YouTube、YouTube 和 YouTube。
 

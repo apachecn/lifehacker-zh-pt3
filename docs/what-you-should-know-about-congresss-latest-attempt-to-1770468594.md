@@ -4,7 +4,7 @@
 
 国会的一项新法案草案将迫使科技公司在执法部门要求的任何时候破坏或破解自己的安全功能和加密。听起来很可怕？确实是。这是账单上写的，以及你能做的。
 
-Watch
+
 
 对于那些刚刚了解情况的人来说，苹果和联邦调查局 [最近就圣伯纳迪诺大规模枪击案](https://lifehacker.com/how-the-fbi-s-fight-with-apple-could-change-the-future-1762392996) 枪手赛义德·里兹万·法鲁克的一部 iPhone进行了一场法律大战。联邦调查局要求苹果公司开发一种工具来绕过手机的 PIN 锁。苹果认为这是一个不必要的负担，会削弱所有 iPhones 的安全性。最终，联邦调查局做出了让步， [找到了一家第三方公司来解锁 iPhone](http://www.technobuffalo.com/2016/04/10/apple-were-not-going-to-sue-fbi-for-hacking-into-iphone/) ，尽管 [现在还有另一款手机](http://recode.net/2016/04/08/apple-fbi-encryption-battle-shifts-to-new-york/) ，只是在全国范围内。
 

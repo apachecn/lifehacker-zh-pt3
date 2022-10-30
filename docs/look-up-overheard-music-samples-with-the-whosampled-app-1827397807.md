@@ -4,7 +4,7 @@
 
 [WhoSampled](https://www.whosampled.com/) ，识别音乐样本的服务，最近 [更新了他们的 iOS/Android 应用](https://www.whosampled.com/apps/) 以包括 [Shazam](https://www.shazam.com/) 风格的音乐识别。现在，当你在酒吧或商店里听到一首歌时，你不仅可以查找这首歌，还可以查找它采样的其他音乐。
 
-Watch
+
 
 WhoSampled 返回艺术家的名字，并跟踪它是否在他们的样本数据库中，所以你可以用它作为 Shazam 或 [SoundHound](https://soundhound.com/) 的低功能替代。如果歌曲在样本数据库中，WhoSampled 将加载样本歌曲，您可以在应用程序中播放。
 

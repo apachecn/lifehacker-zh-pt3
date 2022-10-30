@@ -4,7 +4,7 @@
 
 一个月来，我们一直在努力，现在是时候总结一下我们所学到的东西了。你成功地做了一个真正的倒立吗？(我没有。)你有没有完成什么新的事情？(我做到了！)
 
-Watch
+
 
 我 [踢飞几下成墙倒立](https://vitals.lifehacker.com/how-to-approach-handstands-when-youre-still-kinda-scare-1828256190) ，这本身就是胜利。我还学会了如何在一个 [瑜伽式的三脚架倒立](https://vitals.lifehacker.com/how-to-work-up-to-your-first-yoga-headstand-1828419168#_ga=2.26740734.2102425869.1535379936-1456718367.1520458611) 中保持平衡——这是我以前从未想过的事情。
 

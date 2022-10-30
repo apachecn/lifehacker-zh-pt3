@@ -4,7 +4,7 @@
 
 你们中的许多人在上个月的 挑战中 [节省了几百美元——太棒了！然而，如果你在这个月的挑战中成功，你将节省一整年。二月挑战:](http://twocents.lifehacker.com/how-much-did-you-save-during-january-s-money-challenge-1755788866#_ga=1.205326608.1662698338.1411053142) [账单砍价日](https://lifehacker.com/have-a-bill-haggle-day-to-reduce-your-monthly-expense-1614156154) 。
 
-Watch
+
 
 这可能是一个困难的问题，因为你们中的许多人已经非常擅长节省账单。对于那些没有这样做的人，或者那些认为他们可以节省更多的人，让我们试试 [打电话给一个或多个账单提供商](http://lifehacker.com/save-a-pile-of-cash-every-year-with-these-five-phone-ca-5887659) 询问更好的价格。这里有一些想法和提示让你开始。
 

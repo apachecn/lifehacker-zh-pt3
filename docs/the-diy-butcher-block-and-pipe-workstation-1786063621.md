@@ -4,7 +4,7 @@
 
 redditor[ksmithbaylor](https://www.reddit.com/user/ksmithbaylor)建造了这个华丽的屠夫街区和钢管工作站，我们爱死它了。当然，它又宽敞又干净，但是向 DIY 精神脱帽致敬，为了让它工作，工作得很好，看起来很好。这里还有一些完成后的照片。
 
-Watch
+
 
 顶部的镜头是直的，展示了 ksmithbaylor 的所有三个显示器，连接到安装在背面和其他显示器上方的 Macbook Pro。至于为整个系统提供动力的设备，以下是 Imgur gallery(链接如下)要说的:
 

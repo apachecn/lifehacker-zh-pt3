@@ -6,7 +6,7 @@
 
 生活中充满了深奥复杂的问题，而你在学校教育中并没有学到任何答案。进入 iOS 上的生活学校 app，你可以观看有见地的视频，进行有智慧的对话，有希望找到一些答案。
 
-Watch
+
 
 我是生活学院的忠实粉丝，我们之前报道过很多 [他们优秀的 YouTube 视频](https://www.youtube.com/user/schooloflifechannel/featured) 。从 [为什么我们会生伴侣的气](https://lifehacker.com/why-we-get-angrier-at-our-partners-than-other-people-in-1756971981#_ga=2.232340761.723083393.1505749944-27973805.1434581949) 到 [利用嫉妒作为生产工具](https://lifehacker.com/this-video-explains-how-to-use-envy-as-a-productive-too-1762781378#_ga=2.232340761.723083393.1505749944-27973805.1434581949) 到 [为什么需要帮助的人会让我们感到不舒服](https://lifehacker.com/why-needy-people-might-make-you-uncomfortable-1793013787#_ga=2.232340761.723083393.1505749944-27973805.1434581949) 。这些都是很棒的东西，现在您可以在一个地方找到它们。但生活学校 app 不仅仅是视频的集合。它也有大量的文章可以从 [生命之书](http://www.thebookoflife.org/) 中阅读，这是他们写的内容，并充当各种各样的社交网络。
 

@@ -6,7 +6,7 @@
 
 [共和党全国代表大会](http://convention.gop/) 正式 [在克利夫兰](https://lifehacker.com/how-do-political-conventions-work-1783853559) 进行中。今年的大会从 7 月 18 日(星期一)持续到 7 月 21 日(星期四)，不会缺少演讲、会议和对话。如果你收听的话，这里有什么值得期待的。
 
-Watch
+
 
 ### 如何观看
 

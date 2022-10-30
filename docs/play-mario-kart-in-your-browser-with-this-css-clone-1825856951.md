@@ -4,7 +4,7 @@
 
 闪电糟透了。谢天谢地，软件工程师斯蒂芬·库克的辛勤工作没有包括任何这些(骗子)伎俩。在他的简化版 [马里奥卡丁车](https://lifehacker.com/how-to-turn-google-maps-into-mario-kart-1823635766?rev=1520575494861#_ga=2.177534182.2130151020.1525698930-3846207152.1521480874) 中，你可以在你的浏览器 中直接玩 [，你只需要担心轻松驾驶，而不是物品管理。](https://codesandbox.io/s/zk15o120xl)
 
-Watch
+
 
 库克的任天堂山寨版令人印象深刻的部分是，它几乎完全是用 [CSS](https://lifehacker.com/how-to-make-a-web-site-part-ii-styling-and-css-5789294#_ga=2.177534182.2130151020.1525698930-3846207152.1521480874) 构建的——一种主要用于控制你访问的网站的外观和感觉的样式表语言。CSS 已经 [进化了多年](https://medium.mybridge.co/26-impressive-web-projects-built-with-css-only-4a4c2f773a21) ，狡猾的创作者现在可以用它来构建一切，从 [《蒙娜丽莎》](http://codepen.io/jaysalvat/pen/HaqBf) 到 [可玩的国际象棋游戏](http://codepen.io/juliangarnier/pen/BsIih) 。
 

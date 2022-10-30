@@ -4,7 +4,7 @@
 
 [不小心丢了所有工作](https://www.youtube.com/watch?v=_GxC4kKD9qA) 比以前难了。应用程序带有自动保存功能，Chrome 会在你关闭一个有未保存工作的标签页之前试图警告你。但是输入太快，或者崩溃，你仍然会丢失很多内容。它可能发生在脸书更新、申请表或博客文章上。但是 Chrome 扩展 [类型表单恢复](https://chrome.google.com/webstore/detail/typio-form-recovery/djkbihbnjhkjahbhjaadbepppbpoedaa?hl=en) 可以保存你写的内容并马上粘贴回去。
 
-Watch
+
 
 一旦你安装了 Typio，你会在每个网页表格的角落看到一个蓝色的小按钮。您还会在页面顶部看到一条绿色条纹，每当 Typio 保存新文本时，它就会发光。在设置中禁用条纹。要恢复丢失的文本，您可以单击蓝色按钮，键入可自定义的键盘快捷键，或者在右键菜单中找到它。
 

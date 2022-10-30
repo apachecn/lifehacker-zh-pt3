@@ -4,7 +4,7 @@
 
 上周，Equifax 宣布了一个“”的网络安全事件，影响了 1 . 43 亿用户。在冻结、欺诈警报和信用监控之间，你可能会束手无策。
 
-Watch
+
 
 首先， [在报名参加 Equifax 的免费信用监测](http://lifehacker.com/think-twice-before-signing-up-for-equifaxs-free-credit-1802747105#_ga=2.233152214.913904954.1505149294-1268082208.1431441811) 之前要三思。你可以自己做。 [监控你自己的信用](http://lifehacker.com/how-to-monitor-your-own-credit-for-free-forever-1510277742#_ga=2.164469495.913904954.1505149294-1268082208.1431441811) 每年在[annualcreditreport.com](https://www.annualcreditreport.com/)的所有三个局，还有许多免费的工具和服务可以帮助你监控你的信用。我们已经告诉你一旦你拿到你的报告，如何阅读和破译。
 

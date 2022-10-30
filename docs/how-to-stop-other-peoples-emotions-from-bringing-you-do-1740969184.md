@@ -4,7 +4,7 @@
 
 移情是 [拥有](https://lifehacker.com/why-empathy-is-your-most-important-skill-and-how-to-pr-1505011685) 的一项了不起的技能，但太多的移情会让你被他人的负面情绪淹没。以下是如何停止吸收你周围其他人的感受，同时仍然是一个善解人意的人。
 
-Watch
+
 
 同情他人是我们的天性。在 [*移情时代*](http://www.amazon.com/The-Age-Empathy-Natures-Lessons/dp/0307407772?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-stop-other-peoples-emotions-from-bringing-you-do-1740969184&asc_source=&tag=kinjalifehackerlink-20) 中，灵长类动物学家 Frans de Waal 解释说，移情是研究人员在从灵长类动物到老鼠的群居动物中观察到的本能行为。德瓦尔说，由于父母的本能，我们很可能进化出了同情的能力:父母，无论是人类还是老鼠，都需要融入他们的后代，既与他们建立联系，又理解他们何时感到痛苦。(这就是为什么婴儿的哭声会让我们如此痛苦，而他们的笑声却如此具有感染力。)移情就是当别人打 喷嚏或打哈欠时，我们会无意识地模仿别人的肢体语言 [和面部表情](http://link.springer.com/article/10.1023%2FA%3A1023608506243) 。我们的大脑 [是为它而生的](http://www.apa.org/monitor/oct05/mirror.aspx) 。
 

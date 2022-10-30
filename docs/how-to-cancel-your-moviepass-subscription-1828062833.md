@@ -4,7 +4,7 @@
 
 过去几周的古怪行为让许多 MoviePass 用户考虑取消订阅。然而，他们中的一些人发现这个过程并不像他们想象的那样直观。
 
-Watch
+
 
 进入应用程序并输入书面取消原因的用户发现，当他们这样做时，他们无法按下“取消订阅”按钮来完成从服务中删除， [*商业内幕*注释](https://www.businessinsider.com/how-to-cancel-moviepass-if-youre-having-trouble-with-button-2018-8) 。
 

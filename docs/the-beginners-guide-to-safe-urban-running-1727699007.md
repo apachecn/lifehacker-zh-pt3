@@ -4,7 +4,7 @@
 
 在大都市的中心地带跑步与在安静的街区跑步或者在小道上跑会有很大的不同。风景本身就是一个障碍，每个角落都潜伏着潜在的危险。幸运的是，如果你知道如何驾驭它们，在城市中跑步是保持身材的好方法。
 
-Watch
+
 
 ### 第一:经常练习基础知识
 
@@ -18,11 +18,7 @@ Watch
 
 此外，不要忘记其他一些让你顺利起步的要素。买一双好的跑鞋，这样你就不会伤到你的脚，绑紧鞋带以适应你的脚型，慢慢开始，这样你就不会拉伤了。这份指南将关注许多城市特有的提示，但不要忘记适用于各种跑步者的重要内容。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Beginner&#39;s Guide to Safe Urban Running](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/top-10-ways-to-be-a-better-runner-1658899075) [###### 成为更好的跑步者的十大方法](https://lifehacker.com/top-10-ways-to-be-a-better-runner-1658899075) 
 
-跑步是获得良好有氧运动的最简单的方法之一(而且它是一项重要的技能…
-
-[Read more](https://lifehacker.com/top-10-ways-to-be-a-better-runner-1658899075)</aside>
 
 ### **绘制最安全的路线**
 

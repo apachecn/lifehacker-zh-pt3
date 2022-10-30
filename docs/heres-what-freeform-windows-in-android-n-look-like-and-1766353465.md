@@ -4,7 +4,7 @@
 
 当 [谷歌宣布 Android N](http://lifehacker.com/all-the-new-features-coming-in-android-n-1763790001) 时，他们展示了分屏多任务处理，可以让你在同一个屏幕上同时使用多个应用。这看起来很不错，但是隐藏在表面之下的是更酷的东西:自由形式的窗口。下面是它的实际效果，以及如何亲自尝试。
 
-Watch
+
 
 ### **自由形式的窗口将改变 Android 的工作方式**
 

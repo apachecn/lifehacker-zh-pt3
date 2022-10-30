@@ -4,7 +4,7 @@
 
 iPhone X 上的 Face ID 非常适合快速解锁你的设备，但有时你不想让它工作——比如如果一个朋友抢了你的手机，一个抢劫犯偷走了它，或者你不得不 [对付警察](https://www.theatlantic.com/technology/archive/2017/09/can-cops-force-you-to-unlock-your-phone-with-your-face/539694/) 。
 
-Watch
+
 
 如果你的手是空的，而 iPhone X 还在你手上，关闭 Face ID 是很容易的。只需按下所有三个物理按钮(调高音量、调低音量和侧边按钮)即可关闭该功能。但是，如果有人已经抢走了你的手机，或者你的手因为你在开车而没有空出来怎么办？别担心，苹果也想到了这一点。
 

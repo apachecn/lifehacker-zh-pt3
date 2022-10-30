@@ -4,7 +4,7 @@
 
 如果我们已经说过一次，我们已经说过一百万次了:你应该在任何可能的地方使用双因素认证。这是一个很容易实施的安全措施，应该会让您更加放心。
 
-Watch
+
 
 从技术上来说，微软用“ [两步验证](https://lifehacker.com/the-difference-between-two-factor-and-two-step-authenti-1787159870#_ga=2.24026296.343801233.1535464336-1723114163.1524514905) ”而不是双因素验证来保护其应用。微软身份部门项目管理副总裁 Alex Simons 在一篇博客文章 [中描述了原因，这篇文章强调了苹果手表对微软认证应用的新支持](https://cloudblogs.microsoft.com/enterprisemobility/2018/08/27/microsoft-authenticator-companion-app-for-apple-watch-now-in-public-preview/) :
 

@@ -4,7 +4,7 @@
 
 MoviePass 的 [每月 10 美元的新价格点](https://lifehacker.com/moviepass-now-offers-unlimited-movies-in-theaters-for-1797865400) 似乎太好了，不能错过。他们迅速扩大了用户群，尽管惹恼了美国最大的剧院运营商，但似乎没有人能对此做些什么。
 
-Watch
+
 
 仅仅两天， [MoviePass](https://www.moviepass.com/) 就能将自己的分等级提升到 15 万以上， [根据 Deadline Hollywood](http://deadline.com/2017/08/moviepass-passed-150000-sub-target-from-price-drop-publicity-1202154481/) 。这是他们去年 12 月订户数量的七倍多(当时裸机套餐价格为 15 美元)，并且已经超过了他们 2018 年底的订户目标水平。最近购买了 MoviePass 的 Helios and Matheson Analytics 报告说，MoviePass 在他们未命名的影院连锁合作伙伴中的上座率已经在上升(从每周 206 人上升到每周 4137 人)。人们想要他们的无限电影，他们现在就想要。
 

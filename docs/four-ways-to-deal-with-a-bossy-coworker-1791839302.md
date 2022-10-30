@@ -4,7 +4,7 @@
 
 你有一个同事，用外交辞令来说，很难控制自己的 [领导倾向](https://www.themuse.com/advice/5-ways-to-keep-your-leadership-tendencies-in-check-when-youre-not-in-charge) 。换句话说，他对待你就像他是老板。他提供大量建设性的反馈(即使你没有要求)，在团队项目中划分角色(给自己最好的一个)，并取消任何其他人发言的机会。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/a-realistic-guide-to-handling-a-coworker-who-acts-like-your-boss) *。*
 

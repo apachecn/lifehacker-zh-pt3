@@ -4,7 +4,7 @@
 
 MacOS:有些人保持电脑桌面整洁。有些人乐于保持桌面凌乱。对于那些想要一个干净的桌面却又难以维护的人来说，有 [清理器](https://itunes.apple.com/us/app/declutter-organize-desktop/id950644971?mt=12) 。
 
-Watch
+
 
 保持你的桌面整洁 [可能会加速你的 Mac](https://lifehacker.com/an-overly-cluttered-desktop-can-seriously-slow-down-you-5893054)；这肯定会让你感觉不那么分心，甚至更平静。你可以在桌面上做一个文件夹，然后把所有的文件都放进去。但是你可能想要更有条理一点，你可能想要一个自动为你移动文件的应用程序。这就是解决办法。
 

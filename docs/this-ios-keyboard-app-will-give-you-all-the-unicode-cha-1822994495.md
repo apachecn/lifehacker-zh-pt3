@@ -4,7 +4,7 @@
 
 iOS: [Unicode 创建的表情符号](https://lifehacker.com/finding-the-right-emoji-can-be-hard-but-these-apps-mak-1819324984) 现在可能很流行，但当你需要在文档或完全诙谐的文本消息中访问更多晦涩的标点符号、重音字符和货币符号时，它们就没什么用了。不要像复制和粘贴动物一样复制和粘贴互联网搜索结果，使用[Unicode](https://jordanhipwell.com/UniChar/)，这是一个 iOS 键盘应用程序，它将 Unicode 的其余更传统的字符和符号(甚至盲文！)当你需要它们的时候，就在前面和中央。
 
-Watch
+
 
 UniChar 是一个第三方的 iOS 键盘，可以打开奇怪的 Unicode 字符的广阔世界。服务标志、版权标志、数学符号、技术符号，如苹果的“splat”图标或放射性指示器等，都可以在独立的应用程序和键盘插件中找到，只要你需要键入一些东西，你就可以使用它们。
 

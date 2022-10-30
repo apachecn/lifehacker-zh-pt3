@@ -4,7 +4,7 @@
 
 这个桌面实际上是第二个屏幕，定制了一些真正符合主题的元素，给了我们一点 80 年代怀旧的味道。主显示器使用相同的桌面，但这是一个值得讨论的。这里是你需要得到同样的外观。
 
-Watch
+
 
 像许多像这样定制的 Windows 桌面一样，Rainmeter 是当今的工具。我们这里有 [使用它的入门](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) ，一旦你有了基本的东西，你就可以继续前进了。
 

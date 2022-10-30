@@ -4,7 +4,7 @@
 
 在一个理想的世界里，你会有大量的工作来填满你的一天。但是让我们现实一点:你出现并被安排了准确数量的任务的可能性很小。更有可能的是，你会(至少有时)感到不知所措、未被充分利用或彻底厌倦。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/the-classic-goldilocks-problem-how-to-ask-your-boss-for-just-the-right-amount-of-work) *。*
 

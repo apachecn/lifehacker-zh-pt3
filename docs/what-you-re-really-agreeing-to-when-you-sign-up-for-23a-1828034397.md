@@ -4,7 +4,7 @@
 
 23andMe[与制药巨头葛兰素史克](https://gizmodo.com/23andme-is-getting-lots-of-money-from-big-pharma-to-sha-1827891890) 达成协议，让该公司获得他们(你)的基因数据，以潜在开发新药。他们刚刚出卖了我们吗？不完全是。
 
-Watch
+
 
 这不是 23andMe 第一次允许公司使用他们的(你的)数据进行研究。当你购买他们的一个 spit 工具包并发送你的 DNA 时，该公司可以赚到 199 美元，但他们的商业模式一直依赖于 [利用他们积累的数据作为结果](https://gizmodo.com/of-course-23andmes-business-plan-has-been-to-sell-your-1677810999) 。该公司此前曾与基因泰克和辉瑞进行过类似的交易，尽管规模较小。
 

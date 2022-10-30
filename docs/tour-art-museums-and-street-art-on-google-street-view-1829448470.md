@@ -4,7 +4,7 @@
 
 谷歌多年来一直在谷歌地图的街景中添加建筑物的内部，谷歌艺术与文化(Google Arts & Culture)一直在收集你可以在街景中看到的各种艺术:博物馆、著名建筑、街头艺术和现实生活中已经关闭的艺术展览。以下是谷歌虚拟艺术收藏指南。
 
-Watch
+
 
 Google Arts & Culture 上的 [街景画廊](https://artsandculture.google.com/project/street-view) 收集了著名艺术博物馆的最佳点击拖动游览，包括 [大都会艺术博物馆](https://artsandculture.google.com/streetview/metropolitan-museum-of-art/KAFHmsOTE-4Xyw?sv_h=342.9&sv_p=0&sv_pid=KeFx8oXHzeuY8L5rfepHaA&sv_lid=188478045706887050&sv_lng=-73.9624786&sv_lat=40.7803959&sv_z=1) 、 [J. Getty 博物馆](https://artsandculture.google.com/streetview/cwFdGYSXlaOg6w?sv_h=2&sv_p=0&sv_pid=SQiOe6lNRxGuLEN-mwxVdA&sv_lid=1642224056320697583&sv_lng=-118.47349300000002&sv_lat=34.0771277&sv_z=1) 、和 [乌菲齐画廊](https://artsandculture.google.com/streetview/uffizi-gallery/1AEhLnfyQCV-DQ?sv_h=0&sv_p=0&sv_pid=BVLiSlIAlLP0xHA5-yERqw&sv_lid=11445198885088425697&sv_lng=11.25589130000003&sv_lat=43.768841&sv_z=1) ，以及历史博物馆、地标和自然景观。
 

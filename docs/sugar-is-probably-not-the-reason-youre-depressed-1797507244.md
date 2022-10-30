@@ -4,7 +4,7 @@
 
 最近的一项研究发现，甜食与男性抑郁症有关，但与女性无关。糖有特殊的力量能把男人赶走吗？大概不会。让我们开始吃吧。
 
-Watch
+
 
 **头条** : [吃太多糖与男性抑郁有关，穷人](http://nymag.com/scienceofus/2017/07/eating-too-much-sugar-is-linked-to-depression-for-men.html) (美国科学)
 

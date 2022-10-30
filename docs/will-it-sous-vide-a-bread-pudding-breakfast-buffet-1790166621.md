@@ -4,7 +4,7 @@
 
 你好，我的摄影爱好者朋友们，欢迎回到温暖舒适的 [*版本，它会摄影吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 
-Watch
+
 
 在 [我们的选题环节](http://skillet.lifehacker.com/will-it-sous-vide-lets-pick-another-topic-1789939843) 中，面包布丁赢得了很多人的喜爱和支持，卡尔为我们提供了许多迭代:
 

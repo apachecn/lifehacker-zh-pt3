@@ -4,7 +4,7 @@
 
 为了帮助你的宝宝在泳池中变得舒适，这里有一个简单的技巧:在浸泡他们之前对着他们的脸吹气。他们会本能地 [大口吸气，屏住呼吸](https://www.youtube.com/watch?v=2ivl82QIWSw) ，这是一个绝佳的机会，让你在一瞬间假装这个孩子是下一个迈克尔·菲尔普斯。
 
-Watch
+
 
 这是游泳教练常用的技术——一阵风激活了所谓的 [哺乳动物潜水反射](https://en.wikipedia.org/wiki/Diving_reflex) ，这种反射在六个月左右的婴儿身上非常强烈。(它 [在较大的婴儿](https://www.ncbi.nlm.nih.gov/pubmed/12022304) 中仍然存在，但逐渐减轻。)这种反应是身体的一种防御机制，与 [保护它们避免将牛奶吸入肺部的机制相同](https://www.popsci.com/blog-network/kinderlab/born-swim) 。
 

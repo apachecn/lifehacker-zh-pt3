@@ -4,7 +4,7 @@
 
 Google Trends 刚刚发布了其在搜索 2017 年 中的 [年，其中包括排名前 10 的“如何”搜索。事实证明，Lifehacker 回答了十分之九。而](https://trends.google.com/trends/yis/2017/GLOBAL/) [那第十个](https://trends.google.com/trends/explore?date=2017-01-01%202017-12-31&q=How%20to%20watch%20Mayweather%20vs%20McGregor) 真的已经无所谓了。
 
-Watch
+
 
 1.  如何制作黏液:我们为你准备了两个食谱: [尼克儿童频道原创](https://lifehacker.com/how-to-make-classic-nickelodeon-slime-according-to-dou-1796552709#_ga=2.222662235.170030974.1513005915-1297080755.1497980211) (香草布丁、苹果酱、绿色食用色素和燕麦片)和 [一个自制的替代品](https://lifehacker.com/create-some-homemade-halloween-slime-5844773) (颜料、热水和增稠剂)。
 2.  日食眼镜怎么做:你不想自己做眼镜。(而且再过几年，就不需要了。)但是这里的 [去哪里买](https://lifehacker.com/what-to-buy-for-the-solar-eclipse-so-you-dont-damage-yo-1796880389)[最后一刻去哪里买](https://lifehacker.com/where-to-get-eclipse-glasses-at-the-last-minute-1798150150)[没有它们怎么看](https://lifehacker.com/forget-special-glasses-the-best-views-of-the-eclipse-j-1797949429#_ga=2.118769609.170030974.1513005915-1297080755.1497980211)[怎么回收](https://lifehacker.com/how-to-recycle-and-donate-your-leftover-eclipse-glasses-1798226149)[如何避免假货](https://lifehacker.com/watch-out-for-counterfeit-solar-eclipse-glasses-1797430021) 。

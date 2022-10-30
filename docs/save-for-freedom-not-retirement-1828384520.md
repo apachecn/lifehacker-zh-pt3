@@ -4,7 +4,7 @@
 
 如果你不能为退休储蓄做好心理准备——你会说，有太多其他的事情要担心，而且我永远也不会退休——那就把储蓄当成给自己自由。
 
-Watch
+
 
 这是来自 [NerdWallet](https://www.nerdwallet.com/blog/investing/retirement-wrong-savings-goal/) 的这篇文章的前提，它很好地提炼了所有这些个人理财文章的最终目的:用你想要的方式生活所需的信息武装你。换句话说，自由。
 

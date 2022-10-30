@@ -4,7 +4,7 @@
 
 我承认，当我试图记住我所有的科技产品的电线在哪个插槽时，我有点沮丧。
 
-Watch
+
 
 答案很简单(而且不贵)，就像一支颜色鲜艳的记号笔，就像在[this Imgur post](http://imgur.com/s6lC46i)([h/t Reddit](https://www.reddit.com/r/lifehacks/comments/5lbzro/my_dad_needs_help_logging_into_his_email_but_then/))中看到的那样。
 

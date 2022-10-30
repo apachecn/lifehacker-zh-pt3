@@ -4,7 +4,7 @@
 
 大家好，欢迎来到*给道格的信*，这是你们每周的 *Jalopnik* 专栏，在这里人们来信，我一边敲着键盘听 Jimmy Eat World 组合的音乐，一边公开嘲笑他们。
 
-Watch
+
 
 如果这听起来像是你想参与的事情，那么尽一切办法:在[【Letters2Doug@gmail.com】](mailto:letters2doug@gmail.com)给我发电子邮件，这是我的官方*信件给道格*的电子邮件地址。别担心:我保证会改写信人的名字，以防万一你想承认一些可怕的事情，比如你仍在向第一代大众途锐(Volkswagen Touareg)砸钱。
 

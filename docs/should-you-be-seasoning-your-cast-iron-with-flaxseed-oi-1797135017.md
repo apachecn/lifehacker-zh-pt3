@@ -6,7 +6,7 @@
 
 用亚麻籽油给铸铁调味并不是什么新鲜事——谢丽尔·坎特(Sheryl Canter)七年前首次在她的博客 上写道——但它有一些忠实的粉丝。 [库克的插图](https://www.cooksillustrated.com/how_tos/5820-the-ultimate-way-to-season-cast-iron) 和 [The Kitchn](http://www.thekitchn.com/i-seasoned-my-cast-iron-pan-with-flaxseed-oil-and-heres-what-happened-224612) 都是信徒，前者说它创造了“一种透明、防粘的贴面，即使用去污剂喷一喷穿过我们的商用洗碗机，它们也完全毫发无损。”
 
-Watch
+
 
 但是海伦·雷尼更关心烹饪而不是清洁，所以她调味了两个锅——一个铸铁锅和一个碳钢锅——并做了一些测试，看看它们是否能处理粘稠的煎蛋和酸性红酒。(幸运的是，她也拍下来了。)
 

@@ -4,7 +4,7 @@
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周我想谈谈那些技术上不属于厨房，但仍有烹饪用途的工具。
 
-Watch
+
 
 你可能知道也可能不知道，我是 [的忠实粉丝，在我的厨房](https://skillet.lifehacker.com/why-you-need-measuring-tape-in-your-kitchen-1823554133) 里放了一个卷尺，用来测量馅饼皮的尺寸之类的。吹风机是另一个意想不到的非厨房工具，具有美味的应用；美食作家海伦·罗斯纳最近在推特上引起了一点骚动，因为 [用她的来帮助弄脆一些鸡皮](https://lifehacker.com/use-a-hair-dryer-to-crisp-chicken-skin-1824061388) 。我今天只有几个具体的问题，第一个是最重要的。
 

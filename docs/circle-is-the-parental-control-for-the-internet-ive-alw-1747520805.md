@@ -4,7 +4,7 @@
 
 为人父母通常意味着管理一个小网络。这很有挑战性，因为没有一种内置的方法可以在您家人使用的所有平板电脑、笔记本电脑和其他设备上应用相同的家长控制。这就是 [圈](https://meetcircle.com/) 的用武之地。它可以帮助您轻松管理每个家庭成员的内容和屏幕时间。
 
-Watch
+
 
 Circle 是一个 3 英寸的白色立方体，可以连接到您的 Wi-Fi 网络。这款售价 99 美元的设备允许你过滤内容，添加时间限制，并查看网络上每台设备的活动报告。这就像是你家无线网络设备的上帝模式。你只需插上 Circle 的电源线，用你的 iPhone 或 iPad 通过 Wi-Fi 连接到你的路由器，在 Circle 应用中设置好每个家庭成员的设置。(抱歉 Android 和其他非 iOS 用户，Android 和基于 web 的设置和管理仍在进行中，这令人失望，但对于第一代产品来说是常见的。)Circle 不仅可以管理平板电脑和笔记本电脑，还可以管理游戏机和智能家居设备——任何通过 Wi-Fi 连接的设备。
 
@@ -16,11 +16,7 @@ Circle 是一个 3 英寸的白色立方体，可以连接到您的 Wi-Fi 网络
 
 问题是，使用传统方法**你必须在你拥有的每台设备上设置家长控制**。除了 Windows 10 出色的家长控制功能(在 Windows 设备上遵循您孩子的 Microsoft 帐户设置)之外，家长控制是一项针对每台设备的功能。这意味着我必须为我的孩子可以使用的 iPad、Chromebook、Windows 笔记本电脑和 Mac 电脑逐一进行设置。(如果我真的想疯狂，我可以为智能电视、Wii、PS4 等设置家长控制。)我甚至无法想象为两个孩子的小玩意做这些，更别说超过两个了。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Circle Is the Parental Control for the Internet I&#39;ve Always Wanted](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-kid-proof-my-pc-and-gadgets-5946947) [###### 我该如何保护我的电脑和小工具？](https://lifehacker.com/how-can-i-kid-proof-my-pc-and-gadgets-5946947) 
 
-亲爱的生活黑客，我有时让我的孩子和侄子使用我的电脑、平板电脑和智能手机，…
-
-[Read more](https://lifehacker.com/how-can-i-kid-proof-my-pc-and-gadgets-5946947)</aside>
 
 同样重要的是:**每个系统的设置都是不同的——没有一致性**。例如，iOS 允许您限制您的孩子可以访问的特定应用程序和媒体类型，但不允许您限制他们在手机或平板电脑上花费的时间。Chrome OS 只能让你屏蔽或允许特定的网站，而不是应用程序或时间限制。虽然你可以使用 [OpenDNS](http://opendns.com) 或你路由器的家长控制，但这些只能设置网站过滤器，不能设置特定的应用程序。大多数路由器的家长控制通常只限制设备的时间使用或特定的 URL。(让我们面对现实吧，有多少父母会进入他们的路由器管理控制，将个人网站列入黑名单？)
 

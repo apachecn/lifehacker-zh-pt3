@@ -4,7 +4,7 @@
 
 我想有一些夫妇觉得他们对半分家务和照顾孩子，并且一直都很快乐，每天晚上都给对方做足部按摩。但对我认识的大多数人来说，每天都是打地鼠、障碍赛和鞭打的结合，特别令人疲惫不堪。在鞭打过程中，如果你认为自己承担了过多的责任，你很难不感到愤怒。
 
-Watch
+
 
 进入由马克和艾米·瓦雄经营的网站， [*均摊育儿:改写新一代父母规则*](http://www.amazon.com/Equally-Shared-Parenting-Rewriting-Generation/dp/0399535586/ref=sr_1_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-an-equality-calculator-to-see-if-you-and-your-par-1802708560&asc_source=&ie=UTF8&qid=1246496515&s=books&sr=8-3&tag=kinjalifehackerlink-20) *的作者。*他们(显然)是平均分配工作的支持者，为此，他们提供了“平等计算器”，或用于照顾孩子、家务、养家糊口和“自我时间”的 [工作表](http://www.equallysharedparenting.com/Toolbox.htm) ，以及一个财务评估计算器。
 

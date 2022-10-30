@@ -4,7 +4,7 @@
 
 [Android P](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465) 充满了 [令人兴奋的新功能](https://lifehacker.com/how-to-get-the-android-p-public-beta-on-your-phone-righ-1825875562) ，但它也为你如何导航智能手机带来了巨大的变化。谷歌正在用一个药丸形状的图标和一大串滑动来取代我们熟悉和喜爱的虚拟导航按钮。
 
-Watch
+
 
 新系统看起来非常直观(而且 [与苹果 iPhone X 的](https://www.theverge.com/2018/5/8/17326890/android-p-gesture-navigation-announced-google-io-2018) 非常相似)，但是习惯这些手势仍然需要一点努力。以下是你在 Android P 中需要知道的一切，包括如果你错过了 Android 的旧导航，你可以尝试的几个技巧:
 

@@ -4,7 +4,7 @@
 
 Android:在一个完美的世界中，我们在开车时都会忽略我们的手机，但令人悲伤的事实是，有些人就是无法抗拒新短信或脸书通知的多巴胺增加。
 
-Watch
+
 
 像苹果和谷歌这样的大公司已经在努力解决这个问题——即使你是那种不想解决这个问题的人。当你开车时，iOS 11 会自动将你的 iPhone 置于勿扰模式，谷歌的 Pixel 2 和 Pixel 2 XL 智能手机也提供类似的功能。现在，多亏了一个新的安卓应用[，你可以在开车时自动打开任何安卓智能手机的免打扰功能。](https://www.androidpolice.com/2018/05/17/driving-detective-brings-automatic-not-disturb-driving-non-pixel-phones-using-official-transition-api/)
 

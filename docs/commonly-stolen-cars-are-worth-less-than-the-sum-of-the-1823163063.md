@@ -4,7 +4,7 @@
 
 大多数汽车盗窃案并不涉及一系列秘密超级跑车和尼古拉斯凯奇驾驶野马跑车。新款丰田凯美瑞、尼桑 Altimas 和 GMC Sierras 显然是被偷的，因为仅仅几个容易拆卸的零件就几乎比整辆车还值钱。
 
-Watch
+
 
 上周，国家保险犯罪局[公布了](https://www.nicb.org/about-nicb) [一份报告](https://www.nicb.org/news/news-releases/rising-cost-parts-fuels-interest-car-thieves) 强调了一些体积庞大但可快速获得的部件相对于整辆汽车的市场价值是多么昂贵，该机构自称为“国家首要的非营利组织，专门致力于打击保险欺诈和犯罪”。
 

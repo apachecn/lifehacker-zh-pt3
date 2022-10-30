@@ -4,7 +4,7 @@
 
 在这一集里，我们采访了小说《梦游者的舞蹈指南》 的作者米拉·雅各布，讲述了她的小说是如何花了十年时间来写的，以及她在这个过程中学到了什么。我们还从 Lifehacker 的专职作家尼克·道格拉斯、帕特里克·艾伦和贝丝·斯克沃莱茨基那里听到了关于全国小说写作月(也称为 NaNoWriMo)的消息，在这个月里，作家们承诺在 30 天内写出 5 万字。贝丝已经完成了 10 次 NaNoWriMo 帕特里克今年第一次尝试。尼克调查为什么有人会做这样的事情。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/0252355a-6d8d-4cae-a6f8-13cfc0adea05/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/0252355a-6d8d-4cae-a6f8-13cfc0adea05/embed)
 

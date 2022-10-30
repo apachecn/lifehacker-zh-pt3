@@ -4,7 +4,7 @@
 
 AirPods 它们非常适合大多数耳朵，听起来非常好，并配有一个 [光滑的充电外壳](https://lifehacker.com/use-your-airpods-case-as-an-on-the-go-iphone-stand-1820478755)——另外，如果我们诚实的话，你可能不会错过 [Siri](https://lifehacker.com/take-a-few-steps-back-from-siri-when-you-train-it-to-re-1822729595) 。
 
-Watch
+
 
 唯一真正的问题是，在 Android 上没有简单的方法来检查 AirPods 的电池寿命(苹果在 iPhone 上给了你几个不同的选项，但这些功能都没有实现)。谢天谢地，有一个简单的解决方案。你只需要下载安卓开发者格奥尔格·弗里德里希的免费应用。
 

@@ -4,7 +4,7 @@
 
 当我在大学时，我最不喜欢写研究论文的部分是弄清楚如何写参考书目。引用资料是乏味的，而且如果你不得不在一些不同的风格中工作的话，会变得混乱。本周，我偶然发现了一个 Chrome 扩展，我希望我在大学时就有，它能帮你处理繁重的工作，至少对网站来说是这样。
 
-Watch
+
 
 名为 [为我引用这个](https://chrome.google.com/webstore/detail/cite-this-for-me-web-cite/nnnmhgkokpalnmbeighfomegjfkklkle?hl=en) ，它会自动创建 APA、MLA、Chicago 或 Harvard 风格的网站引用，只需快速点击浏览器工具栏上的图标。
 

@@ -4,7 +4,7 @@
 
 本周我们看了新的 Windows 10 Creators 更新中所有很酷的东西，使用云服务制作了我们自己的 VPN，解释了我们听到的所有可怕的武器，并学会了克服小分手。下面回顾一下本周最受欢迎的帖子。
 
-Watch
+
 
 ## [**Windows 10 中所有最酷的新功能创造者更新**](http://lifehacker.com/all-the-coolest-new-features-in-the-windows-10-creators-1794220142)
 

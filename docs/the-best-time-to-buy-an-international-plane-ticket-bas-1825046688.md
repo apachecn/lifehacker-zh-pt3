@@ -4,7 +4,7 @@
 
 上周末我们分享了[CheapAir.com](http://CheapAir.com)的 2018 年机票研究结果。在的研究中 it [查看了 9.17 亿张不同的机票](https://lifehacker.com/the-best-time-to-buy-fights-based-on-917-million-airfa-1824233023) 并做出一些决定，如果你想得到一笔好交易，什么时候是购买的“正确”时间。
 
-Watch
+
 
 上周它发布了国内航班的一些具体结果，本周它又发布了国际旅行 的专门结果。
 

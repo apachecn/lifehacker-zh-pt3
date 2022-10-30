@@ -4,7 +4,7 @@
 
 如果你正在考虑为你的下一次智能手机升级选择 [Pixel 2 XL](https://lifehacker.com/google-made-the-pixel-xl-2-even-harder-to-repair-than-l-1819680350) ，你可能需要三思，或者至少把你的决定推迟几天。该设备的早期版本可能有一个硬件缺陷，导致屏幕永久性损坏。
 
-Watch
+
 
 自从 Pixel 2 XL 上周首次推出以来，已有多人报告了“烧屏”的情况。这意味着在重复出现的图像(如 Android 导航按钮)使屏幕变色的区域，显示器可能会永久损坏。
 

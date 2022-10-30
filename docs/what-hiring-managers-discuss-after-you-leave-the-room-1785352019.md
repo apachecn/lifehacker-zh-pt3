@@ -4,7 +4,7 @@
 
 如果你像我认识的许多人一样，你会担心在你退出面试的那一刻，招聘经理会怎么评价你。因此，你可能会认为他们对你的答案吹毛求疵，只雇佣没有缺点的人。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/behind-the-scenes-3-things-hiring-managers-actually-discuss-after-the-interview) *。*
 

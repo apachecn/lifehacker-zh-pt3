@@ -4,7 +4,7 @@
 
 你是一名程序员还是想兼职赚点钱的白帽黑客？昆虫赏金猎人可能是你的最佳选择。
 
-Watch
+
 
 ### 什么是虫子赏金猎人？
 
@@ -30,11 +30,7 @@ Bug 赏金猎人正在寻找软件、网站和网络应用程序中的漏洞。�
 
 然后去看看 OWASP WebGoat 实验室(OWASP WebGoat lab)的，在那里你可以练习寻找 web 应用程序中的错误和漏洞，也可以去看看谷歌 Bughunter 大学(Google bug hunter University)。他们有很多很棒的信息 bug 搜索，以及如何编写可靠的漏洞报告来让你获得报酬。像 Bugcrowd 和 [HackerOne](https://www.hackerone.com/blog) 这样的网站也可以在这方面有所帮助。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Earn Money as a Bug Bounty Hunter](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071) [###### 如何利用 Kali Linux 入侵您自己的网络并增强其安全性](https://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071) 
 
-Kali Linux 是一个注重安全性的操作系统，您可以在任何地方从 CD 或 USB 驱动器上运行。…
-
-[Read more](https://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071)</aside>
 
 ### 找到 Bug 赏金清单，然后去打猎
 

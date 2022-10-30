@@ -4,7 +4,7 @@
 
 你的 [同事抱怨](https://www.themuse.com/advice/3-ways-to-stay-positive-when-your-coworker-complains-about-every-little-thing) 你大声打电话分散了他的注意力，你回击说他开会总是迟到。或者你试图告诉你的老板她实施的新系统效率低下，但发现自己在兜圈子。或者你的团队已经为如何完成一项任务争论了几个星期，现在你就要错过最后期限了。如果这些听起来很熟悉，你并不孤单。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-disagree-with-a-coworker-without-getting-into-a-fight-because-you-dont-have-time-for-that?ref=carousel-slide-0) *。*
 

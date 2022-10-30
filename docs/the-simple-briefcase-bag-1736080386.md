@@ -4,7 +4,7 @@
 
 每个人在一天中需要不同的负载，但 Carry reader rogeragne 采取了一种简单的方法，只带一个小包和一些物品。
 
-Watch
+
 
 包包是一款 [公文包包包复古 668](http://pt.aliexpress.com/store/product/Free-Shipping-Men-s-Canvas-Briefcase-Bags-Vintage-Cross-Body-Laptop-Bussiness-Bag-668/110971_783863493.html?storeId=110971)T3。这是里面的内容:
 

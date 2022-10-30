@@ -4,7 +4,7 @@
 
 回到 [CES](https://gizmodo.com/tag/ces) ， [松下发布了](https://gizmodo.com/panasonic-cut-the-lumix-gh5s-resolution-in-half-to-get-1821865792) 一款相机，它主要是为了做一件高于一切的事情:获得尽可能好的弱光图片和视频。不幸的是，直到最近，我们才真正测试了松下对其新 GH5S 的声明。
 
-Watch
+
 
 但上周，我有机会检查了 GH5S 的弱光功能。这个机会是松下为了展示 GH5S 的弱光性能而特别设计的，因此，地点是昏暗的麦基特里克酒店，这也是一个受欢迎的改编*麦克白*叫 [*睡不着了*](https://mckittrickhotel.com/sleep-no-more/) *的地方。出于我无法理解的原因，剧院里的演员都是模特。尽管这场活动的舞台布置过于精致，感觉控制太严格，无法反映现实，但我必须承认，GH5S 拍出的照片给我留下了深刻的印象。*
 

@@ -4,7 +4,7 @@
 
 在过去的几个月里，我写了很多文章试图揭开加密货币世界的神秘面纱(从 [硬币本身](https://lifehacker.com/preview/beyond-bitcoin-your-guide-to-the-other-major-cryptocur-1821656104?rev=1514581574792) 到 [区块链](https://lifehacker.com/what-is-blockchain-1822094625) 到它对你的税收意味着什么)，但仍然有很多内容需要讨论。你可能会在今年剩下的时间里阅读关于加密货币的文章，但问题仍然多于答案。我不建议任何人真的这么做，但是如果你想的话，有一个网站你应该去看看。
 
-Watch
+
 
 安德森·霍洛维茨(Andreessen Horowitz)是一家硅谷风险投资公司，在 Twitter、脸书、Airbnb、Lyft 和许多其他公司投资了，最近出版了它所谓的“ [密码典](https://a16z.com/2018/02/10/crypto-readings-resources/) ”它本质上是一个链接和文章的列表，涵盖了你可能想知道的关于比特币和其他加密货币的一切——从基本到非常具体，以及介于两者之间的一切。
 

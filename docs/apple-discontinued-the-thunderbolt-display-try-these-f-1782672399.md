@@ -4,7 +4,7 @@
 
 苹果最近停止了其 [独立雷电显示器](http://www.imore.com/apple-discontinues-thunderbolt-display) ，这很烂，因为它 [是我们最喜欢的](https://lifehacker.com/most-popular-computer-monitor-apple-thunderbolt-27-di-5967429) 之一。为了抚平创伤，这里有一些我们发现的最好的显示器，可以取代苹果公司已经过时的显示器，其中大多数都提供类似的功能，但没有价格标签。
 
-Watch
+
 
 ### 我们喜欢老式雷电显示器的原因
 

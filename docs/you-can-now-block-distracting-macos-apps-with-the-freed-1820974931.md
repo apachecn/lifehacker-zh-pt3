@@ -4,7 +4,7 @@
 
 macOS: [自由](https://freedom.to/) ， [屏蔽杂念网站](https://lifehacker.com/freedom-blocks-distractions-in-sync-across-every-device-1747878326#_ga=2.37124832.1136386225.1512398802-1297080755.1497980211) 的跨平台 app，刚刚变得更加强大。现在在 macOS 上， [Freedom 可以屏蔽桌面应用](https://freedom.to/blog/whats-new-freedom-1-6-introducing-desktop-app-blocking-mac/) 。
 
-Watch
+
 
 在 Freedom 1.6 中，您可以打开所有桌面应用程序的列表，然后选择您想要阻止的应用程序。然后(就像屏蔽网站一样)，你可以随时屏蔽这些应用，或者在预定时间屏蔽。所以你可以屏蔽 Chrome 和 TweetDeck，同时在 Excel 中完成一个小时的工作。或者你可以在 10-6 档屏蔽你所有的游戏。
 

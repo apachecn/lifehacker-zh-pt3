@@ -4,7 +4,7 @@
 
 虽然完全数字化的日子似乎越来越近，但有时仍有报纸需要讨厌的真实签名。虽然文件扫描应用程序意味着你不必拥有一台扫描仪或深夜跑去 Kinko，但现有的选项远非完美的 ，现在是你开始利用你的微型掌上电脑的时候了。
 
-Watch
+
 
 《华尔街日报》(文章 paywalled)推荐 Adobe Fill&Sign([iOS](https://itunes.apple.com/us/app/adobe-fill-sign-easy-pdf-form-filler/id950099951?mt=8)， [Android](https://play.google.com/store/apps/details?id=com.adobe.fas&hl=en) )用于大多数表单，因为它允许你在屏幕上签名，然后存储签名图像并将其放在适当的位置，并根据需要在未来的文档中调整大小。它甚至有一个功能，可以填充你永远无法正确对齐的单个字母矩形(比如，你会在要求填写 SSN 的税单上找到)。
 

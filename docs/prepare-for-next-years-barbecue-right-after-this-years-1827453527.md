@@ -4,7 +4,7 @@
 
 也许没有什么比在一场大型户外派对后醒来，却看到你的房子和后院被彻底毁坏更让人筋疲力尽的了。当你清理昨晚的食物时，你最不想做的事就是计划下一次的野餐。但这可能是最好的时机。
 
-Watch
+
 
 至少，Reddit 用户[u/xenomorphgirl](https://www.reddit.com/user/xenomorphgirl)[在/r/LifeProTips 上写的](https://www.reddit.com/r/LifeProTips/comments/8x2cmp/lpt_the_day_after_your_annual_party_or_bbq/) 是这么说的，他们多年来已经了解到，当你知道前一年出了什么问题时，年度烧烤会更容易计划:
 

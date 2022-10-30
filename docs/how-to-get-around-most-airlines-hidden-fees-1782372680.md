@@ -4,7 +4,7 @@
 
 坐飞机比过去便宜了。经通货膨胀调整后，1955 年从洛杉矶到堪萨斯城的机票为 575 美元，相比之下今天只需几百美元。如今航班更便宜了，但是 [几乎所有航班都要额外收费](https://lifehacker.com/the-most-common-hidden-airline-fees-all-in-one-list-1599316486) 。以下是如何绕过那些费用，尤其是那些隐藏的费用。
 
-Watch
+
 
 ### 使用智能包装和航空信用卡避免行李费用
 
@@ -16,11 +16,7 @@ Watch
 
 当然，规避这项费用最明显的方法是根本不托运行李，把所有东西都装进一个随身携带的 。 [滚动](https://lifehacker.com/the-skivvy-roll-packs-your-basic-clothing-into-one-simp-1624300470) 是我最喜欢的方法之一。你把你的衣服打包成一个紧凑、方便的卷，如果你做得对，你也可以避免褶皱。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Get Around Most Airlines&#39; Hidden Fees](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-skivvy-roll-packs-your-basic-clothing-into-one-simp-1624300470) [###### Skivvy Roll 将您的基本衣物打包成一个简单的球](https://lifehacker.com/the-skivvy-roll-packs-your-basic-clothing-into-one-simp-1624300470) 
 
-我们已经分享了无数有效打包衣服的方法，但这里还有一个我最喜欢的…
-
-[Read more](https://lifehacker.com/the-skivvy-roll-packs-your-basic-clothing-into-one-simp-1624300470)</aside>
 
 有大量的 [小技巧和窍门可以把所有东西都塞进一个袋子里](https://lifehacker.com/how-to-fit-two-weeks-worth-of-luggage-under-the-airplan-5990659) 。然而，这也有一些缺点。首先，头顶上的箱子空间有限。你可能坐过这样的航班，机舱里的箱子已经装满了，乘客们被迫打开登机口托运行李，不管他们喜欢与否。如果你是最后登机的人之一，你的随身行李可能会免费托运，如果你打算托运的话，这真是太棒了。然而，如果你不想在着陆时等行李的麻烦，那你就不走运了。所以这种情况对许多旅行者来说是一种痛苦。
 

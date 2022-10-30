@@ -8,7 +8,7 @@
 
 要做转椅运动，你要从坐在椅子上开始。应该是两腿之间没有横杠的那种，除非我假设你很瘦。然后你简单地爬到椅子下面，再回到座位上，不要碰到地面。这能有多难？美国忍者战士选手 [埃里卡库克](http://www.espn.com/espnw/culture/article/17104535/erica-cook-american-ninja-warrior-rookie-underestimate-her) 能 [做到](https://www.instagram.com/p/BCwAO2TobhT/) 。攀岩者 [可以做](https://www.youtube.com/watch?v=2i2_XDRfkio) ，在他们其他训练练习之间，比如指尖引体向上。当然，我想，我能做到。
 
-Watch
+
 
 我钻到椅子下面，没有摔到头。我把腿放在椅子的座位上，同时伸手抓住椅背，试图爬上去。问题是，如果我把腿从座位上拿开，我会摔倒在地上。
 

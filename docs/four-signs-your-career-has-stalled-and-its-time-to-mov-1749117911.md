@@ -4,7 +4,7 @@
 
 从你记事起，你就一直在做同样的工作。新技能？新的职责？我一时想不出任何一个名字。事实上，你开始觉得事情有点停滞了。是时候关注一下你的工作对你整个职业生涯的影响了。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/4-signs-your-careers-totally-stalled-and-its-time-to-move-on) *。*
 

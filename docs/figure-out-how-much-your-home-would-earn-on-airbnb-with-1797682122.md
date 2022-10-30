@@ -4,7 +4,7 @@
 
 Airbnb 喜欢将他们的产品包装成一种全球社区，将旅行者和主人联系起来，获得改变生活的体验。但是我们知道你向陌生人 开放你的公寓或备用卧室的真正原因:为了得到报酬！然而，在你拿出客用亚麻制品，开始拍摄准备上市的照片之前，你必须做一些数学计算。你住的地方合适的价格是多少？
 
-Watch
+
 
 Airbnb 有一个 [内置估算器](https://www.airbnb.com/host/homes?from_nav=1) ，但是相当模糊。(很明显，该网站不想做出任何承诺——同样很明显，如果你的租约和当地法律允许的话，你只应该是 Airbnb 的主人 [！)输入一个社区或城镇，无论是私人房间、共享房间还是整个公寓，以及客人的数量。然后 Airbnb 会给你一个周平均值，并附上免责声明:“你实际赚了多少可能会因你的定价、房源类型和位置、季节、需求和其他因素而异。”(这很可能也取决于](https://www.airbnb.com/help/article/376/what-legal-and-regulatory-issues-should-i-consider-before-hosting-on-airbnb) [你的图片有多好](http://twocents.lifehacker.com/how-to-photograph-your-house-for-airbnb-1796493566) 。)
 

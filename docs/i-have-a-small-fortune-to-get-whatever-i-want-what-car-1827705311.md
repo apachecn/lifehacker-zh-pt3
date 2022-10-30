@@ -4,7 +4,7 @@
 
 凯文和他的妻子打赌赢了，虽然打赌的细节是个谜，但重要的是他现在要花 20 万到 30 万美元买一辆非常快的车。但他不确定该往哪个方向走。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link) *)*
 

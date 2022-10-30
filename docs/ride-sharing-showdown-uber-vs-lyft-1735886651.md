@@ -4,7 +4,7 @@
 
 优步和 Lyft 的拼车服务都可以让你轻松地用手机搭车，在几分钟内到达你要去的地方，并自动支付旅程费用，而不需要现金或信用卡。我们决定找出搭顺风车的最佳方式。
 
-Watch
+
 
 ### **竞争者**
 
@@ -105,11 +105,7 @@ Watch
 
 **同样值得注意的是，优步和 Lyft 过去都存在一些安全问题。网站[谁在载你？](http://www.whosdrivingyou.org/rideshare-incidents) 保留了一份优步和 Lyft 司机涉嫌攻击的清单，你可以仔细阅读。总的来说，优步的事故比较多， [司机殴打乘客](http://valleywag.gawker.com/uber-driver-charged-for-bashing-a-passenger-in-the-head-1639711808#_ga=1.69452304.1667622160.1441735094) ，涉嫌绑架等等，你就随便拿吧。**
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--kinja" data-commerce-source="inset"> **[###### 优步司机因用锤子猛击乘客头部而被起诉](http://valleywag.gawker.com/uber-driver-charged-for-bashing-a-passenger-in-the-head-1639711808) 
 
-一名优步司机被指控使用致命武器袭击他人并殴打他人
-
-[Read more](http://valleywag.gawker.com/uber-driver-charged-for-bashing-a-passenger-in-the-head-1639711808)**</aside>
 
 **底线是这两种服务在很多方面几乎相同，但如果你有选择的话，Lyft 似乎在照顾客户和司机方面走得更远。如果你一直只使用优步，你可能会想试试 Lyft，反之亦然——尝试两者并拨打自己的电话没有坏处，但我们的研究表明，你会更喜欢 Lyft。你更喜欢哪种拼车服务，为什么？**
 

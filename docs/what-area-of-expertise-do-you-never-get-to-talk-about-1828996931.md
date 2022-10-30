@@ -4,7 +4,7 @@
 
 今天，Ask Reddit 用户正在互相谈论 [哪些专业领域是他们在正常生活中永远不会谈论的](https://old.reddit.com/r/AskReddit/comments/9f6ok8/what_is_a_subject_that_you_have_extensive/) 。主题包括火箭科学、连环杀手、口袋妖怪 Go 元战略、NFL(作为一名外籍人士)和罗马历史的“R 级部分”。我们希望从 Lifehacker 的读者那里听到同样的消息，只是有一点小小的改变。
 
-Watch
+
 
 大多数 redditors 都说出了他们想谈论的话题，但是没有谈论这些话题。我们希望你两样都做。Lifehacker 的读者们，你们通常不会讨论的专业领域是什么，在这个领域你们最喜欢的事实、观点或想法是什么？
 

@@ -4,7 +4,7 @@
 
 许多父母、祖父母和婴儿食品公司都认为婴儿应该从谷类食物开始。儿科医生曾经大力提倡，有些甚至鼓励两天大的孩子使用。今天，许多人仍然推荐它，但只是作为一种方便的铁质来源。事实上，这只是众多选择之一。
 
-Watch
+
 
 只要婴儿从食物、配方奶粉或补充剂中获取铁，谷类食品就不是必需的。“按照传统，通常先介绍单谷物谷物，”美国儿科学会 的 [在关于](https://www.aap.org/) [开始喂养婴儿](https://www.healthychildren.org/English/ages-stages/baby/feeding-nutrition/Pages/Switching-To-Solid-Foods.aspx) 的一页上说。“然而，没有医学证据表明以任何特定的顺序引入固体食物对你的宝宝有好处。”
 

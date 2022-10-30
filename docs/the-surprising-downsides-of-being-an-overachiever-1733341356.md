@@ -4,7 +4,7 @@
 
 成为办公室的佼佼者可能感觉很好，因为你的老板会拍拍你的背，竖起大拇指。但是在尽你最大的努力和成为一个长期超常发挥者之间有一条细微的界限，这可能会让你失败。这就是为什么你可能要重新考虑“我可以做所有事情”的态度。"
 
-Watch
+
 
 然而，如果你是一个长期超常发挥者，仅仅足够是远远不够的。偶尔，给你的工作额外的东西是正确的事情，但是养成习惯会把你的超额完成变成你新的工作基准。这听起来是件好事，但实际上会导致一些严重的问题。这些问题中的一些实际上会阻碍你的工作， [导致更多的压力和倦怠](https://lifehacker.com/burnout-is-real-how-to-identify-and-address-your-burno-5884439) ，甚至导致你讨厌你所做的事情和你的同事。最糟糕的是，它实际上会阻止你实现目标；这就违背了超额完成任务的初衷。
 
@@ -26,11 +26,7 @@ Watch
 
 花一分钟想想你的职责到底是什么。如果你不确定，和你的老板坐下来问问他们。你的老板可能甚至不希望你做你正在做的事情的一半。当然，他们会感激完成了这件事，但他们可能不明白这样一个事实:你才是做所有事情的人。见鬼，他们甚至可能不知道。学会说“不”，请别人帮助你，并开始思考做某些任务对你有什么好处。问问你自己，“这是我应该做的事情吗？如果我做了，它会给我带来什么好处？”
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Surprising Downsides of Being an Overachiever](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201) [###### 如何不再是一个容易被说服的人](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201) 
 
-如果你觉得自己总是被占便宜，而且看起来好像要输了…
-
-[Read more](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201)</aside>
 
 ### **你可能会错过促销活动**
 

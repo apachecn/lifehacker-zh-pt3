@@ -4,7 +4,7 @@
 
 临床试验是我们测试新药物和疗法的方式，它们可以给患者带来好处:如果当前的治疗方法对你无效，你可以帮助测试一种新的治疗方法。作为对成为试验品的感谢，你的医疗费用已经支付，你甚至可能得到一些额外的补偿。
 
-Watch
+
 
 但是粗略的干细胞诊所现在正在使用国家卫生研究院的临床试验登记处，ClinicalTrials.gov 的 T0 T1，T2 的 T3，作为宣传他们昂贵服务的平台。 [Ars Technica 在此](https://arstechnica.com/science/2017/07/stem-cell-clinics-using-nih-trial-registry-to-tout-pricey-dubious-therapies/) 报道发表在*再生医学* 上的 [分析结果，该分析指出了网站上发现的有问题的研究。](https://www.futuremedicine.com/doi/full/10.2217/rme-2017-0015)
 

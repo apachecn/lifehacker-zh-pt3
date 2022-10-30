@@ -4,7 +4,7 @@
 
 [LG](https://gizmodo.com/lg-g-flex-2-hands-on-back-bent-better-1677472599) ， [三星](https://gizmodo.com/samsungs-flexible-flip-phone-might-be-coming-next-year-1805252364) ，甚至 [联想](https://gizmodo.com/lenovos-folding-tablet-prototype-is-my-dream-gadget-1797186988) 到现在都在尝试把可折叠屏幕的小玩意做成一个东西有一段时间了。但是在一个小小的谣言说苹果可能也在研究一个之后，突然每个人都变得狂热起来？求你了。
 
-Watch
+
 
 据美国消费者新闻与商业频道报道，人们正在研究的唯一信息是美国银行分析师瓦姆西·莫汉的一句话，“我们的调查还表明，苹果正在与供应商合作开发一款可折叠手机(有可能兼作平板电脑)，将于 2020 年推出。”
 

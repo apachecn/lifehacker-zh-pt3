@@ -4,7 +4,7 @@
 
 FCC 提议 [终结网络中立](https://lifehacker.com/the-fccs-new-plan-dismantles-net-neutrality-to-rely-on-1794675979#_ga=2.175460512.303451680.1497830696-1887250931.1497314809) ，这意味着自由开放的互联网可能终结。根据网络中立规则，FCC 要求康卡斯特和 AT & T 等互联网服务提供商对所有网站和互联网服务一视同仁。
 
-Watch
+
 
 像上次 的 [一样，FCC 也开放了一个论坛来评论他们的提议。意见征询将持续到 7 月 18 日，意见回复截止日期为 8 月 16 日。到目前为止，有五百万条评论。](https://gizmodo.com/fcc-extends-its-net-neutrality-comment-deadline-due-to-1605423025) 
 

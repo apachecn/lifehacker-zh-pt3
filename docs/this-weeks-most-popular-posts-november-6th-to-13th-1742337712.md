@@ -4,7 +4,7 @@
 
 本周，我们学习了如何将 Waze 变成终极导航应用程序，构建了一个便宜但功能强大的 Steam 机器，了解了急救基础知识，等等。让我们来回顾一下本周的热门帖子。
 
-Watch
+
 
 ## [如何把 Waze 变成终极导航 App](http://lifehacker.com/how-to-turn-waze-into-the-ultimate-navigation-app-1740833171)
 

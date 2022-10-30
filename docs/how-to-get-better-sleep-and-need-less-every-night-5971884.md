@@ -4,7 +4,7 @@
 
 我们中的许多人每天晚上都在努力获得充足的睡眠，但是我们的睡眠质量好吗？虽然充足的睡眠很重要，但更好的睡眠比更多的睡眠时间更有用。我们和一位睡眠专家坐在一起，通过一堆研究来帮助你获得更好的睡眠，并在这个过程中减少睡眠。以下是方法。
 
-Watch
+
 
 *本帖最初发表于 2013 年。为了纪念世界睡眠日*[](http://worldsleepday.org/)**，今天我们将重温这个关于如何睡得更好的老话题。**
 
@@ -48,11 +48,7 @@ Watch
 
 *切断干扰。孩子们吵醒你了吗？你可能对此无能为力，但如果你的手机让你醒来，有通知或新邮件嗡嗡作响，是时候关掉它了，设置一些安静的时间， [改善你的通知，让它们帮助你入睡](http://lifehacker.com) ，或者只是在你上床睡觉时设置为静音。如果你的邻居很吵，让你无法入睡，试着用一个白噪声发生器或者一些舒缓的音乐来消除噪音，帮助你休息。*照片由*[*maxriesgo*](http://www.shutterstock.com/pic.mhtml?id=119628208)*(Shutterstock)拍摄。**
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled How to Get Better Sleep (and Need Less Every Night)](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376) [###### 我怎样才能在睡觉的时候保持凉爽？](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376) 
 
-亲爱的 Lifehacker，我们没有空调，而且天气这么热，很容易出去…
-
-[Read more](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376)*</aside>
 
 #### ***定时***
 

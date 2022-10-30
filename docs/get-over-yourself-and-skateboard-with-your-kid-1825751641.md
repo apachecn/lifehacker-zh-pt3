@@ -4,7 +4,7 @@
 
 我十岁的儿子德克斯特最近吹掉了他在车库里找到的旧滑板上的灰尘，开始沿着车道试探性地跑起来，这让我想起了他蹒跚的第一步。
 
-Watch
+
 
 “来上*吧，爸爸！和我一起滑冰。会很棒的，”他会说。*
 
@@ -74,11 +74,7 @@ Val Surf 的员工汉森认为，最好的建议是“做你知道的事情”
 
 地面也比以前更加坚硬。我在当地的滑板公园发现了这一点，当时我第一次尝试从摇滚到 fakie，结果却是重重地摔在了水泥地上。你会感觉骑得很棒，你的身体会欺骗你，让你以为你可以“迅速恢复”到以前的动作和技巧，但这是一种错觉。虽然我很快就想起了基础知识，但是滑冰更难的方面——垂直骑行、脚跟翻转等——已经不像以前那样了。所以放轻松。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Get Over Yourself and Skateboard With Your Kid](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-quickly-recover-after-a-tough-workout-5877310) [###### 剧烈运动后如何快速恢复？](https://lifehacker.com/how-can-i-quickly-recover-after-a-tough-workout-5877310) 
 
-亲爱的 Lifehacker，前几天我去健身房做了一个非常困难(残酷)的锻炼，现在…
-
-[Read more](https://lifehacker.com/how-can-i-quickly-recover-after-a-tough-workout-5877310)</aside>
 
 作为一名年长的滑冰运动员，你有可能重新掌握你的老动作，甚至变得更好，但你必须以不同的方式来对待它。孩子们会不顾后果地把自己扔进半管里，然后消灭 50 次，直到他们最终成功。对于孩子来说，这是一个很好的学习方式，但是当你长大后，你需要小心翼翼、循序渐进地挑战极限。老狗可以学习新把戏，但你必须仔细学习。
 

@@ -4,7 +4,7 @@
 
 在信用卡、借记卡、移动支付应用甚至比特币之间，完全无现金正变得前所未有的容易。不幸的是，这样做会让许多依赖小额现金小费的人受到冷落。现金为王，尤其是在节假日前后。
 
-Watch
+
 
 人们不再携带现金也就不足为奇了。太方便了。正如《纽约时报》 最近提到的 [，调查显示](https://www.nytimes.com/2017/12/18/style/seasonal-tips-cash-free-payments.html?_r=0) [只有 50%的美国人随身携带现金](https://www.usbank.com/newsroom/news/digital-payment-platforms-primed-to-topple-cash.html) (只有一半的时间)，大多数人 [更喜欢其他支付方式而不是现金](https://www.tsys.com/Assets/TSYS/downloads/rs_2016-us-consumer-payment-study.pdf) 。如果你不需要，为什么要去自动取款机，对吗？嗯，这种便利常常给门卫、送货司机、露天酒吧调酒师、 [酒店管家、](https://lifehacker.com/how-much-you-should-tip-hotel-housekeeping-1798796580) 、电梯操作员、服务员、美甲师或其他通常不会通过数字方式给小费，但却依赖现金小费来维持生活的人带来麻烦。
 

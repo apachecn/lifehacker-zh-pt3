@@ -4,7 +4,7 @@
 
 我们将镜头转向本周的 [**理工 911**](https://lifehacker.com/c/tech-911) 。Lifehacker 执行编辑弗吉尼亚·史密斯(Virginia Smith)在我们的内部 Slack 频道上提出了一个问题，这个问题深入浅出:*“从我的 iPhone 上删除照片是安全的，对吗？”*
 
-Watch
+
 
 答案比你想象的要复杂一些——如果你答错了，可能会有灾难性的后果。
 

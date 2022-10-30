@@ -4,7 +4,7 @@
 
 我吃过 [乌鸡](https://thetakeout.com/how-to-make-supremely-crunchy-fried-chicken-1829017782) 。我吃过 [鸭油炒鸡](https://thetakeout.com/karaage-is-the-japanese-method-for-making-superior-frie-1798257206) 。我吃过 [叶油炒鸡](https://bigjoneschicago.com/dine/dinner/) 。我尝过用非动物脂肪炸的鸡肉。我从来没有尝过用鸡油炸的鸡肉。
 
-Watch
+
 
 灯泡。头。平！
 

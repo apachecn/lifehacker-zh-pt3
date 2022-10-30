@@ -4,7 +4,7 @@
 
 给出建议 [比接受建议](https://twocents.lifehacker.com/the-money-advice-i-wish-i-learned-sooner-1795032862https://twocents.lifehacker.com/the-money-advice-i-wish-i-learned-sooner-1795032862) 容易。你告诉你的朋友，她真的需要甩了那个混蛋，但同时，你不能和你自己的混蛋断绝关系。我们大多数人都经历过这种情况，尤其是涉及到金钱的时候。根据最近的一项研究，我们可能高估了自己的钱相对于别人的价值。
 
-Watch
+
 
 发表在《消费者研究杂志》上的新研究[](https://academic.oup.com/jcr/advance-article/doi/10.1093/jcr/ucx119/4747902)**表明我们更看重自己的购买力。在研究摘要中，研究人员解释道:**
 

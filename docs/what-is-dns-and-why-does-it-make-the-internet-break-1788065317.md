@@ -4,7 +4,7 @@
 
 今天， [美国一半的互联网关闭了](http://gizmodo.com/this-is-probably-why-half-the-internet-shut-down-today-1788062835) ，当时黑客对主要 DNS 主机 Dyn 的 [服务器发动了大规模分布式拒绝服务(DDoS)攻击。目前还不清楚到底是谁实施了这次攻击，以及为什么，但不管怎样，这次事件证明了如果受到坚定的黑客攻击，大面积的网络可以多么容易地被清除。](https://www.dynstatus.com/incidents/nlr4yrr162t8) 
 
-Watch
+
 
 在大修之后，Dyn [发布了此声明](https://www.dynstatus.com/incidents/nlr4yrr162t8) :
 

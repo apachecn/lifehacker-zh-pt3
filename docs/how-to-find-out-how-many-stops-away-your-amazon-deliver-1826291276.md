@@ -4,7 +4,7 @@
 
 现在，你不用知道你的亚马逊包裹将在“晚上 8 点前”到达，而是能够实时跟踪它的位置，并准确知道送货司机在他们到达你家门口之前要经过多少站。这要归功于亚马逊一项名为地图追踪的新功能。
 
-Watch
+
 
 去年年底，亚马逊正式为一小部分用户推出了地图追踪功能，并逐渐向其他用户推广。本周，该公司将向其在美国的所有客户推出这一功能，[*报道*](https://www.cnet.com/news/amazon-reportedly-rolling-out-map-tracking-which-shares-exact-package-location/)*。* 
 

@@ -4,7 +4,7 @@
 
 像我写这篇文章时一样，在谷歌上搜索“脐带血”，你会发现各种服务都不遗余力地向你乞求你孩子的脐带血，哦，只要几千美元。在一份 [更新的政策声明](https://www.healthychildren.org/English/ages-stages/prenatal/decisions-to-make/Pages/Should-We-Store-Our-Newborns-Cord-Blood.aspx) 中，美国儿科学会说:不要听那些家伙的。有更好的选择，而且是免费的。
 
-Watch
+
 
 你很少听说免费脐带血银行，因为(令人震惊)他们没有同样的广告预算。但是这些免费的公共脐带银行更有可能挽救一个孩子的生命。
 

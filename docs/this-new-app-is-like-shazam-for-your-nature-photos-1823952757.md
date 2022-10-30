@@ -4,7 +4,7 @@
 
 2016 年 7 月，成千上万的人在一款非常受欢迎的野生动物应用程序的指引下漫步街头和公园。这款应用是 Pokemon Go，实际上，野生动物并不存在。然而，当口袋妖怪粉丝试图收集神奇的——如果最终是数字的——动物时，一些人不可避免地发现了真实的动物。 的脱节衍生出不少笑话，大多涉及 [负鼠](https://www.pinterest.co.uk/pin/341569952972625092/) ，生态学家和 [博物馆馆长](https://nhm.org/site/node/4707) ，感觉到一个学习的机会，提供了以口袋妖怪 Go 为主题的推广活动；安娜·特凯特是伯明翰的一名动物园管理员，我的同校同学， [因其口袋妖怪风格的动物标牌而在网上迅速走红。](http://alabamanewscenter.com/2016/08/05/naked-mole-rat-go-birmingham-zoo-offers-pokemon-discount-reasons-look-phone/)T15】
 
-Watch
+
 
 然而，如果你想要一个模仿 Pokemon Go 的应用程序，但却是针对现有物种的，那你就很不幸了。这种情况在 3 月初发生了变化，社交媒体网站 in naturalist[发布了 SEEK](https://www.inaturalist.org/pages/seek_app) ，这是一款 [iOS 应用](https://itunes.apple.com/app/apple-store/id1353224144?mt=8) ，供想要搜索当地动植物的人使用。这个新的应用程序是正在进行的尝试的一部分，旨在吸引人们进入公民科学——并让他们看到他们可能会忽略的物种奇迹。
 

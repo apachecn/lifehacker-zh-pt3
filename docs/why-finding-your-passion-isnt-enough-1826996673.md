@@ -4,7 +4,7 @@
 
 我们喜欢说，人们应该“找到他们的激情”来体验他们事业上的成功，因此，在他们的生活中。如果你真的喜欢某样东西，它会让你感觉简单而正确。正确这可能是接触新企业的最糟糕的方式。
 
-Watch
+
 
 斯坦福大学的心理学家进行的一项新的研究表明，这句老话已经深深地渗透到我们的脑海中，它改变了我们对工作热情的看法。这个故事在 Reddit 上变得非常受欢迎，在周三由 u/ [ekser](https://www.reddit.com/user/ekser) 发布的 [。斯坦福新闻](https://www.reddit.com/r/science/comments/8si2i9/instead_of_finding_your_passion_try_developing_it/) [报道](https://news.stanford.edu/2018/06/18/find-passion-may-bad-advice/) 研究人员保罗·奥基夫、卡罗尔·德韦克和格雷戈里·沃尔顿认为告诉某人“找到他们的激情”有无声的暗示——基本上，如果你真的热爱某件事，那会很容易。这意味着当你不可避免地遇到一些障碍时，你更有可能放弃。
 

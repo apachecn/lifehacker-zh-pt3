@@ -4,7 +4,7 @@
 
 [马克·乔丹](https://www.flickr.com/photos/68673721@N05/) 的工作区干净整洁，实际上看起来好像有人在里面完成工作——主要是因为马克是一名电脑技术人员，他使用左边的整个区域来维修和维护客户端系统。但这并不意味着他的主要设置不好看。
 
-Watch
+
 
 马克的主要电脑是一台 Mac 电脑，拥有一个漂亮的弯曲木制显示器支架、Bose 扬声器和一对手机(一部用于工作，另一部用于个人)——一部 iPhone 和一部 LG G4，他将它与自己的 Moto 360 智能手表一起使用。你可以点击 [查看他的手机特写](https://www.flickr.com/photos/68673721@N05/25734264900/in/pool-lifehacker-workspace-showandtell/) ，以及一张更近的与一些 [客串机器人人物的照片](https://www.flickr.com/photos/68673721@N05/26279534886/in/dateposted/) 。至于他的技术，他说他每天都在使用:
 

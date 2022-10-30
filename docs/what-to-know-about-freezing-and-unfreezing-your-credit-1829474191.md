@@ -4,7 +4,7 @@
 
 既然三个主要的信用机构被要求向你提供 [免费信用冻结](https://twocents.lifehacker.com/credit-freezes-will-soon-be-free-1828993474) ，有几件事要记住。
 
-Watch
+
 
 概括一下:冻结你的信用档案意味着贷方无法检查你的信用，这有助于防止骗子以你的名义开立信用额度(如果你的档案被冻结，你仍然可以使用你当前的信用账户；您将无法开设任何新帐户)。为了最有效，建议消费者在所有三个局冻结他们的报告:[益百利](https://www.experian.com/freeze/center.html) 和 [TransUnion](https://www.transunion.com/credit-freeze) 。
 

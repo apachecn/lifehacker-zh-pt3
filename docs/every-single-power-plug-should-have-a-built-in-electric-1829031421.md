@@ -4,7 +4,7 @@
 
 如果你看不到自己在做什么，北美和世界其他地方插头上使用的一对细小的插脚几乎不可能插入电源插座。 [Ten One Design 的新款 Stella plug 在设计上做了改进，用了一些我们以前从未见过的东西](https://tenonedesign.com/stella.php) :一个内置的手电筒，可以自动打开附近的插座照亮道路。
 
-Watch
+
 
 有一些尖端技术承诺，有一天，当我们开始担心设备的电池快没电时，我们不仅需要找到电源插座，还需要电线和电缆。例如， [Ossia 的 Cota 技术](https://gizmodo.com/this-aa-battery-sucks-power-right-out-of-the-air-1821966213) 可以向电子设备无线供电，就像 wifi 向你的手机和电脑提供互联网一样。但是这种系统的实际大规模推广还需要几年的时间。
 

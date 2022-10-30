@@ -4,7 +4,7 @@
 
 Bose 的最新耳机旨在帮助你做一件事:睡眠。在尝试了 Bose 的“ sleepbuds”、 [(今天售价 250 美元](https://www.bose.com/en_us/products/wellness/noise_masking_sleepbuds/noise-masking-sleepbuds.html) )之后，我认为屏蔽噪音的耳塞可能会让不眠之夜变得更加罕见。而且，这意味着你可以不用带着塞在头骨里的不舒服的耳塞睡觉了。
 
-Watch
+
 
 Bose sleepbuds 最初是 Indiegogo 的一个项目，Bose 希望通过众筹网站寻找其屏蔽噪音耳塞的潜在测试者。Bose 公司没有采用众所周知的噪音消除技术，而是转向了噪音屏蔽，即用一种声音淹没另一种声音。本质上，Bose 为你的耳朵创造了一台白噪音机器，它可以淹没各种声音，这要归功于各种可用的声音。
 

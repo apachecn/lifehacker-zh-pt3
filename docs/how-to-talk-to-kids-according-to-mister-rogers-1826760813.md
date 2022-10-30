@@ -4,7 +4,7 @@
 
 今年是《罗杰斯先生的邻居》50 周年纪念，随着新纪录片 [*的上映，你不想做我的邻居吗？在刚刚过去的这个周末，我们听到了关于儿童电视偶像弗雷德·罗杰斯的一些事实，这些事实揭示了他对自己所做的每一件事有多用心。比如他会如何在节目中叙述自己喂他的鱼，因为一个失明的女孩在信中提到她担心鱼饿了(克莉茜·泰根的*](http://focusfeatures.com/wont-you-be-my-neighbor/) *[推文](https://twitter.com/chrissyteigen/status/965758687414554624?ref_src=twsrc%5Etfw&ref_url=http%3A%2F%2Fwww.upworthy.com%2Fthere-s-a-wonderful-reason-why-mister-rogers-always-said-aloud-he-s-feeding-his-fish)* *这个花絮让互联网集体攥住了它冰冷的心)。以及他如何回复每一位花时间给他写信的粉丝(他每天会收到 50 到 100 封信)。以及他如何确保整个《罗杰斯先生》目录尽可能地保持最新* ，即使这意味着重温旧集，穿上同样的衣服，重新拍摄新插页，因为他第一次弄错了一个代词。
 
-Watch
+
 
 毫无疑问，罗杰斯在和孩子们说话时也格外小心。在即将出版的新书 [*《好邻居:弗雷德·罗杰斯*](https://www.indiebound.org/book/9781419727726) 的生活和工作》的改编节选中，作者麦克斯韦·金分享了该节目的两位编剧在 1977 年创作的一本图文并茂的手册的内容，该书发表在 [*《大西洋》*](https://www.theatlantic.com/family/archive/2018/06/mr-rogers-neighborhood-talking-to-kids/562352/) 上。阿瑟·格林沃尔德(Arthur Greenwald)和巴里·海德(Barry Head)写的《让我们谈谈弗雷德什》(Let 's Talk About Freddish)是一本有趣的、略带讽刺的指南，讲述了“为罗杰斯找到合适词汇的艰难过程”。
 

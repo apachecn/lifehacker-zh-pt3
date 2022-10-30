@@ -4,7 +4,7 @@
 
 周三，推特 [推出了](https://blog.twitter.com/2017/building-new-data-controls-and-updating-our-privacy-policy) 最新隐私政策，这让用户担心他们的私人信息是如何被追踪、存储和使用的。在这项政策中，这个微博平台宣布计划终止它以前尊重的隐私偏好，将你的 cookies 保存更长时间，并改变 Twitter 分享你的私人数据的方式。
 
-Watch
+
 
 非营利组织电子隐私信息中心的主席马克·罗滕博格告诉美联社[](http://abcnews.go.com/Technology/wireStory/twitters-privacy-update-means-47489363)*“推特的声明对网络隐私来说是个坏消息”。"该公司放弃了“不要追踪”,让广告商能够获得更多的用户数据."* 
 

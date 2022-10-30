@@ -4,7 +4,7 @@
 
 每年，成千上万的美国青少年竞相成为 Word、Excel 和 PowerPoint 方面的佼佼者，并在 [微软 Office 专家美国全国锦标赛](http://moschampionship.com/us/) 中赢得高达 3000 美元的奖金。它是由 Certiport 组织的，certi port 是一家提供 MS Office、AutoCAD 和 Adobe Creative Suite 等软件认证的测试公司。我们向今年的第一名获奖者询问了他们的最佳办公室建议。
 
-Watch
+
 
 ## MS Excel:条件格式
 

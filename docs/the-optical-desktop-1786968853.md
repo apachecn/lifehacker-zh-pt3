@@ -4,7 +4,7 @@
 
 经常投稿的人 [JonRedcorn2](https://www.flickr.com/photos/134554762@N08/) 在 reg 上切换他的桌面，最近的这个引起了我们的注意。它既对称又有趣，而且没有太多的小部件和工具。以下是你可以得到同样外观的方法。
 
-Watch
+
 
 像往常一样，这是一个 Windows 桌面，这意味着 Rainmeter 正在幕后运行。如果你不熟悉雨量计， [本指南可以帮助你入门](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 。
 

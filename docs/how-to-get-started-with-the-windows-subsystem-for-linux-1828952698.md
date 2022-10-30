@@ -4,7 +4,7 @@
 
 Linux 用户可能对 Wine 很熟悉——一种允许 Windows 软件在 Linux 上运行的软件。
 
-Watch
+
 
 但是你知道吗，你可以在 Windows 上下载并运行 Linux，而且可以通过任何地方的微软商店下载。是的，我是认真的。
 

@@ -4,7 +4,7 @@
 
 最近在 [*抑郁和焦虑*](http://onlinelibrary.wiley.com/doi/10.1002/da.22653/abstract) 的一项研究发现，想要快乐的社会压力会导致抑郁水平上升。
 
-Watch
+
 
 墨尔本大学心理科学学院的心理学副教授布洛克·巴斯蒂安说:“我们真的开始认识到，我们所处的文化和社会环境对于决定我们的抑郁程度以及我们如何应对负面事件非常重要。”
 
@@ -56,8 +56,3 @@ Watch
 
 虽然你不应该抛弃你的 [感恩日志](http://lifehacker.com/why-gratitude-makes-you-a-happier-person-1743397610) ，你也不应该忽视你的负面情绪。“有时我们并不感激。有时我们对自己感觉不积极，拥抱这一点就像拥抱感恩一样重要。”再加上，心情不好有 [多的好处](http://lifehacker.com/a-bad-mood-can-be-good-for-you-1796057355) ，比如提高回忆记忆力。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Wanting to Be Happy Can Make You Unhappy—Here&#39;s What To Do Instead](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-history-of-sadness-and-how-we-can-deal-with-it-1645697669) [###### 悲伤的历史，以及我们如何处理它](https://lifehacker.com/the-history-of-sadness-and-how-we-can-deal-with-it-1645697669) 
-
-每个人都有难过的时候。这是人类的一部分，但处理它仍然很困难。…
-
-[Read more](https://lifehacker.com/the-history-of-sadness-and-how-we-can-deal-with-it-1645697669)</aside>

@@ -4,7 +4,7 @@
 
 如果你像我认为的那样为面试做了充分的准备，你可能会有一长串 [问题要问](https://www.themuse.com/advice/51-interview-questions-you-should-be-asking) 。但是你可能也会担心哪些是可以提出来的，哪些会让你丢掉工作。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/4-nosy-interview-questions-youre-allowed-to-ask-because-the-answers-matter) *。*
 
@@ -22,11 +22,7 @@ Watch
 
 所以，除了获得 [内部消息](https://www.themuse.com/advice/22-interview-questions-thatll-get-you-the-real-inside-scoop-on-company-culture) 关于对该角色的期望，借此机会了解公司是否有定期的评估期来讨论绩效和薪酬。一些公司将这一过程正式化，而另一些公司则优先考虑全年的定期反馈。不管是什么情况，不要羞于提出来。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Four Nosy Questions You Shouldn&#39;t Be Afraid to Ask in Your Job Interview](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-five-best-questions-a-job-candidate-can-ask-1599296074) [###### 求职者可以问的五个最佳问题](https://lifehacker.com/the-five-best-questions-a-job-candidate-can-ask-1599296074) 
 
-当你参加工作面试时，你问面试官的问题和你的…
-
-[Read more](https://lifehacker.com/the-five-best-questions-a-job-candidate-can-ask-1599296074)</aside>
 
 ### **3。员工有哪些职业成长的机会？**
 

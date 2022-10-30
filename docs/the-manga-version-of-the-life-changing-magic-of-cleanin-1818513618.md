@@ -4,7 +4,7 @@
 
 玛丽·近藤(Marie Kondo)围绕她“改变生活”的整理方法建立了一个帝国，激励数百万人放弃将袜子卷成球的残忍行为，并开始感谢引发欢乐的无生命家居物品。她现在接触到了新的受众:漫画小说粉丝。
 
-Watch
+
 
 近藤将她标志性的整理指南改编成了一部漫画，[](https://www.amazon.com/Life-Changing-Manga-Tidying-Up-Magical/dp/0399580530/ref=cm_cr_arp_d_product_top?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-manga-version-of-the-life-changing-magic-of-cleanin-1818513618&asc_source=&ie=UTF8&tag=kinjalifehackerlink-20)*这是一部改变人生的关于整理的漫画，讲述了一个虚构的 20 多岁的销售代表千秋的故事，他的生活是一种比喻和字面上的混乱。在这个由艺术家段丽阳·浦本绘制的故事中，卡通人物玛丽·近藤(Marie Kondo)闯入千秋的公寓灾难并拯救了这一天，向她传授了近体法的原则。(“那些看起来会喜欢在微风中飘动的衣服，或者那些看起来太合身而不能弯曲的衣服应该挂在衣架上，”卡通近藤解释道。)*
 

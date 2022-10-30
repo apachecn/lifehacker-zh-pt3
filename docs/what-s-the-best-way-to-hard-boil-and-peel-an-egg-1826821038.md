@@ -4,7 +4,7 @@
 
 在人的一生中，偶尔会跌跌撞撞地走进一扇看不见的门，一旦走进这扇门，就再也没有回头路了。他们做出选择，表达自己的偏好，提到他们碰巧非常喜欢这本书或那种颜色，然后*砰*一声，门在他们身后砰地关上了。以前的艾莉森已经死了。全新的艾莉森万岁，她现在显然很喜欢茶杯。你可能会说这从未发生在你身上。作为回应，我会微笑、点头，然后转向你那满是州主题酒杯的架子，问他们对此有何看法。
 
-Watch
+
 
 话说回来，几周前，我写了关于 [我心爱的煮蛋器](https://thetakeout.com/the-egg-cooker-is-the-laziest-way-to-make-hardboiled-eg-1826372715#_ga=2.266830726.900668361.1528739717-1849608324.1522274105) ，还有*嘭*，我现在是*外卖*的蛋人。这不是投诉！我做的，其实就是 [爱蛋](https://thetakeout.com/how-to-make-eggs-fried-eggs-over-easy-sunny-side-up-1846677844) 。炒鸡蛋三明治是我最喜欢的食物之一。当我完善了“我他妈的快饿死了，但又迟到了”的微波鸡蛋技术后，我的 20 多岁变得更加可以忍受了。 [荷包蛋](https://thetakeout.com/how-to-make-a-poached-egg-1827871416) 让我觉得全是花里胡哨和狗屁。拌饭是一种完美的食物。鸡蛋很棒。乐于做 [蛋人](https://thetakeout.com/tv-egg-cooker-eggmaster-hamilton-beach-eggstractor-1847614135) 。这比茶杯好多了。
 

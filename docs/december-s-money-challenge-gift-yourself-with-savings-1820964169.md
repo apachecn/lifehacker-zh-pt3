@@ -4,7 +4,7 @@
 
 整整一年，我们挑战你去 [存更多的](https://twocents.lifehacker.com/may-s-money-challenge-let-s-haggle-1794740686#_ga=2.112136132.1522724306.1512352226-225857320.1512352226) ，削减 [冲动消费](https://twocents.lifehacker.com/septembers-money-challenge-no-restaurant-spending-1798515491#_ga=2.112136132.1522724306.1512352226-225857320.1512352226) ，甚至 [通过清理你的衣橱来赚取一些额外的现金](https://lifehacker.com/the-best-places-to-sell-your-junk-depending-on-the-jun-1819338691#_ga=2.117310790.1522724306.1512352226-225857320.1512352226) 。在今年的最后一场 [终极金钱挑战赛](http://twocents.lifehacker.com/lifehacker-readers-lets-take-a-money-challenge-togethe-1747419781#_ga=2.117310790.1522724306.1512352226-225857320.1512352226) 中，我们希望你给自己一份礼物——用存款。换句话说，节省一部分假期开销。
 
-Watch
+
 
 假期很容易超支，许多人因为假期开销而负债。通过这次挑战，我们希望帮助您避免所有这些。
 

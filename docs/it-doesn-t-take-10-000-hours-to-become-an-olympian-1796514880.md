@@ -4,7 +4,7 @@
 
 根据一些研究推断，成为世界级音乐家需要 [10 年](http://lifehacker.com/what-mozart-and-kobe-bryant-can-teach-us-about-delibera-1442488267) 或 [10，000 小时的练习](http://lifehacker.com/three-studies-that-changed-the-way-we-think-about-produ-5965021) ，好像他们可以解释每一个熟练职业的成功( [他们不能](http://lifehacker.com/study-shows-that-10-000-hours-of-practice-isnt-the-magi-1601141560) )。那么，要成为一名奥林匹克运动员，到底需要什么呢？一个 [新分析](https://link.springer.com/article/10.1007%2Fs40279-017-0740-0) 给了我们一些线索。
 
-Watch
+
 
 但是首先:你可能已经猜到了，精英运动员和我们其他人不一样。他们有很好的遗传基因，并设法找到了大量的时间和金钱，因此他们可以将他们的(通常是年轻的)生命奉献给训练。根据来自温盖特研究所的弗拉基米尔·伊苏林的评论，优秀运动员也异常积极、专注、坚定、坚持和富有创造力。他们是可教的，他们进步很快，他们愿意工作更长时间，尝试更难的事情。
 

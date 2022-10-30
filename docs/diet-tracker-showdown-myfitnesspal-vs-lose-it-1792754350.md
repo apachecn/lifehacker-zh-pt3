@@ -4,7 +4,7 @@
 
 无论你是想保持严格的卡路里计数，还是仅仅为了 [了解你在](https://lifehacker.com/transform-your-eating-your-start-to-finish-guide-to-fo-1727847868) 中摄入了何种营养，一个好的食物记录应用程序都是必不可少的。MyFitnessPal 和 Lose It 是两个最受欢迎的应用商店，它们也是你最喜欢的。让我们看看他们是如何堆叠的。
 
-Watch
+
 
 ### 竞争者
 

@@ -4,7 +4,7 @@
 
 一加通过以低廉的价格提供高质量的硬件，在竞争激烈的智能手机市场为自己开拓了一个利基市场。该公司的最新手机 [OnePlus 5T](https://gizmodo.com/here-are-the-3-biggest-upgrades-on-the-new-oneplus-5t-1820507459) 也没有什么不同，提供你期望从最新的苹果或三星设备中获得的技术，但价格只有一半。
 
-Watch
+
 
 周四上午发布的新款 Android 智能手机起价仅为 500 美元。相比于苹果的[iPhone X](https://lifehacker.com/iphone-x-teardown-finds-more-battery-power-than-the-iph-1820118383)(1000 美元)，三星的[Galaxy Note 8](https://lifehacker.com/how-to-disable-the-bixby-button-on-your-galaxy-s8-or-no-1819043354)(929 美元)，甚至谷歌的[Pixel 2](https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006)(649 美元)和[Pixel 2 XL](https://lifehacker.com/google-made-the-pixel-xl-2-even-harder-to-repair-than-l-1819680350)(849 美元)，这简直是太便宜了。但是 OnePlus 5T 真的能经得起这些名牌设备吗？让我们仔细看看一加能提供什么。
 

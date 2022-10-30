@@ -4,7 +4,7 @@
 
 无论是报道不多的关于 [黑掉三星电视](https://www.wired.com/2017/03/worried-cia-hacked-samsung-tv-heres-tell/) 的故事，还是令人悲伤的关于 [黑掉泰迪熊](https://arstechnica.com/security/2017/02/creepy-iot-teddy-bear-leaks-2-million-parents-and-kids-voice-messages/) 的爆笑故事，甚至是更多关于窃听微波炉 的 [离奇说法，真实的、虚假的、夸大的关于我们选择用来连接互联网的设备可能发生的所有事情的报道都占据了新闻。我们给自己带来了这个愚蠢的未来。](http://theslot.jezebel.com/kellyanne-when-asked-about-trump-wiretapping-claims-b-1793211096) 
 
-Watch
+
 
 在过去的几年里，我们打着简单的幌子，尽可能地将任何东西连接到互联网上。可以连接 [灯泡](https://www.lifx.com/)[冰箱](http://www.samsung.com/us/explore/family-hub-refrigerator/)[情趣用品](http://we-vibe.com/)[宠物喂食器](http://www.petnet.io/) 等等。这些设备通常被称为物联网(IoT)。他们的想法是多么糟糕，已经成为一个笑话，但是这并没有阻止他们以更快的速度出现。
 

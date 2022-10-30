@@ -4,7 +4,7 @@
 
 Equifax 在大规模数据被黑几周后 [发布了正式道歉](https://www.wsj.com/articles/on-behalf-of-equifax-im-sorry-1506547253) 并提出和解:到 1 月 31 日，他们将提供一项新服务，让你可以轻松锁定和解锁对 Equifax 文件的访问。那是什么意思呢？
 
-Watch
+
 
 该公司临时首席执行官小保利诺·多减压阀·巴罗斯通过《华尔街日报》 发表了道歉 [:](https://www.wsj.com/articles/on-behalf-of-equifax-im-sorry-1506547253)
 

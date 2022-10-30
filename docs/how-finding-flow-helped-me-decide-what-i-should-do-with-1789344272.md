@@ -4,7 +4,7 @@
 
 在我生命的大部分时间里，我只是随波逐流。我会在一件事情上热情地工作一段时间，然后我会在这件事情上筋疲力尽，然后转向其他事情。我觉得我很好地把握住了我今天需要做的事情，但就思考我生活的大图景而言，我只是没有任何想法。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/what-should-i-do-with-my-life-the-fundamental-question-of-personal-finance-and-a-surprising-answer/) *上。*
 

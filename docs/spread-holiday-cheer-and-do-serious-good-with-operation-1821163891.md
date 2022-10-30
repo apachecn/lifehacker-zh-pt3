@@ -4,7 +4,7 @@
 
 好吧，是的，把你的慈善工作寄托在假期 [可能是个问题](https://lifehacker.com/why-you-shouldnt-volunteer-at-a-soup-kitchen-this-thank-1820521504) 。但是，每年的这个时候都有很多人需要——既有让生活感觉良好的季节性礼物，也有冬季必需品——而 [圣诞老人](https://www.delivercheer.com/letters) 行动是一种切实可行的帮助方式。
 
-Watch
+
 
 通过“圣诞老人行动”,美国邮政总局收集寄给“红衣大人物”的信件，并将它们与希望给予的人联系起来。
 

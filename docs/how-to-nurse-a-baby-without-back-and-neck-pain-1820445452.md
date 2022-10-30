@@ -4,7 +4,7 @@
 
 *这是* [*产后疼痛诊所*](https://lifehacker.com/tag/postpartum-pain-clinic) *的第五部分，这是一个关于管理新生儿和婴儿护理带来的疼痛的多部分系列。*
 
-Watch
+
 
 到目前为止，在我们为新父母开设的在线诊所中，我们已经讲述了 [如何抱着婴儿](http://offspring.lifehacker.com/how-to-hold-a-baby-1819287074#_ga=2.215481311.919070749.1509938319-21963309.1506530761) 、 [如何给婴儿换尿布](http://offspring.lifehacker.com/how-to-change-a-babys-diaper-1819615400#_ga=2.173987051.919070749.1509938319-21963309.1506530761) 、 [如何推婴儿车](http://offspring.lifehacker.com/how-to-hold-a-baby-1819287074#_ga=2.34137441.1163814780.1509898951-1923768905.1509387479) ，以及 [如何提尿布包](https://offspring.lifehacker.com/how-to-carry-a-diaper-bag-1820191412?rev=1510688671340) 而不会伤到你的脖子、手腕或后背(或者至少让问题变得更糟)。本周我们将探讨产后疼痛的另一个来源:母乳喂养。
 

@@ -4,7 +4,7 @@
 
 [比特币](https://lifehacker.com/the-best-bitcoin-and-ethereum-explainers-1796654705) 的价格是几周以来的最低点，你可能想在它的价值再次反弹之前参与进来(假设它曾经反弹)。投资一些钱在 [加密货币](https://lifehacker.com/preview/beyond-bitcoin-your-guide-to-the-other-major-cryptocur-1821656104?rev=1514581574792) 没有错——只要是 [钱，你就能承受损失](https://lifehacker.com/only-buy-bitcoin-if-youre-ready-to-lose-it-1820006087)——但是越来越多的人开始用他们的信用卡购买比特币。
 
-Watch
+
 
 取决于你如何去做，用信用卡购买比特币可能和其他任何方法一样安全，但也可能非常危险。以下是关于使用信用卡投资加密货币你需要知道的事情，以及为什么你应该三思而后行。
 

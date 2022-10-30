@@ -4,7 +4,7 @@
 
 您已经可以使用您的 PayPal 帐户通过 Google Pay 购物。现在，谷歌和贝宝正在 [扩展他们的合作关系](https://www.paypal.com/stories/us/deepening-our-partnership-with-google-pay) ，允许你使用你的贝宝账户支付谷歌生态系统中的东西，包括 Gmail、YouTube 和谷歌商店。更好的是，如果你把你的 PayPal 账户和 Google Pay 连接起来，你就不用每次想交易的时候都登录 PayPal 了。
 
-Watch
+
 
 首先，启动 Google Pay 应用程序，点击页面底部的“卡”标签。在那里，点击左下角的+按钮，然后选择“添加其他支付方式”，在这里您会看到 PayPal 是一个新的选项。点击它，然后按照屏幕上的指示链接您的 PayPal 帐户。
 

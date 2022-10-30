@@ -4,7 +4,7 @@
 
 在家工作最大的好处是你不必真的呆在家里。你可以在 [咖啡馆](https://lifehacker.com/how-to-work-on-your-laptop-at-a-coffee-shop-without-bei-1796712438) ，在 [当地酒吧](https://lifehacker.com/why-i-work-at-bars-instead-of-coffee-shops-1823164289) 工作，甚至可以在国家的另一端工作。
 
-Watch
+
 
 上周三，当我从纽约飞往加利福尼亚，享受两周的阳光、放松和工作时，我正是这么做的。多亏了互联网的奇迹，一些仔细的计划，和一点纪律，我已经能够在享受假期的同时保持我通常的写作时间表。
 

@@ -4,7 +4,7 @@
 
 如果你想在 之外赚取额外的 [现金，从](https://lifehacker.com/the-complete-guide-to-making-money-in-your-spare-time-1291903155) [Airbnb](https://www.airbnb.com/) 到 [Lyft](https://www.lyft.com/) 到 [Etsy](https://www.etsy.com/) 有很多选择。你可能听说过这被称为演出、共享或按需经济。不管你怎么称呼它，如果你以这种方式获得任何收入，你都必须考虑税收。以下是你需要知道的。
 
-Watch
+
 
 ### 即使你挣得不多，你(可能)也要付钱
 

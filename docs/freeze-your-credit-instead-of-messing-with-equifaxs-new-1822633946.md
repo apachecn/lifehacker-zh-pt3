@@ -4,7 +4,7 @@
 
 Equifax 有一个新的应用程序( [iOS](https://itunes.apple.com/us/app/lock-alert/id1325259833?ls=1&mt=8) ， [Android](https://play.google.com/store/apps/details?id=com.equifax.lockandalert) )，这意味着可以轻松锁定和解锁对你的信用文件的访问，这是该公司在去年的安全漏洞导致 1.45 亿人容易遭受金融欺诈和身份盗窃后采取的挽回面子的措施之一。但是你最好冻结你的信用，而不是搞乱公司的新产品。
 
-Watch
+
 
 《纽约时报》的*有一篇 [的深度文章](https://www.nytimes.com/2018/01/31/your-money/new-service-same-old-equifax-credit-locking-app-freezes-up.html) 讲述了设置应用程序会有多耗时(如果你能做到的话)。我试着注册，但它无法验证我的身份，所以我在等几天，等他们用蜗牛邮件给我发验证码(我可以试着给他们打电话，但我 [比那更看重我的时间](https://arstechnica.com/information-technology/2018/02/equifax-releases-credit-report-locking-app-thatlocks-up/) )。对于那些试图在 Equifax 网站上查看自己是否是黑客的受害者或者注册其 [TrustedID Premier 服务](https://twocents.lifehacker.com/the-latest-news-on-the-equifax-hack-updating-1812224799) 的人来说，这可能并不奇怪，这两种服务都是有缺陷的“服务”，更多的是激怒消费者，而不是带来任何真正的好处。*
 

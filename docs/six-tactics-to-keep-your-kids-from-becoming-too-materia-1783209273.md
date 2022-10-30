@@ -4,7 +4,7 @@
 
 所有的父母都希望他们的孩子在成长过程中明白，生活中最美好的东西都是免费的，幸福与积累无关。然而，让孩子们掌握这些概念比以往更加复杂。
 
-Watch
+
 
 *本帖原载于*[*learn vest*](https://www.learnvest.com/2016/06/how-to-raise-kids-who-arent-materialistic/)*。*
 

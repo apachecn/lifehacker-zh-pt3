@@ -4,7 +4,7 @@
 
 谷歌知道很多关于你的，其中相当一部分信息来自 YouTube。默认情况下，视频网站会跟踪你观看和搜索的所有内容(包括那次我连续播放了两个小时 的同一个 [泰勒·斯威夫特的视频)，因此它可以推荐更好的视频——当然，还会给你更多相关的广告。](https://www.youtube.com/watch?v=U3do0LuuA9k)
 
-Watch
+
 
 如果你不喜欢 YouTube 的建议被你的一些陌生视频视图弄得乱七八糟(就像前面提到的 Tay Tay)，或者你只是不希望 YouTube 监视你观看的内容，看来该服务正准备添加一个新的私人浏览模式。 [安卓警察](https://www.androidpolice.com/2018/05/15/youtube-testing-incognito-mode-android-app/) 报道称，YouTube 目前正在测试一种新的“匿名模式”，这种模式将使隐藏你的活动变得容易。
 

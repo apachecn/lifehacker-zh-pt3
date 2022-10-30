@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/why-you-shouldnt-stir-your-coffee-1825323842>
 
-Watch
+
 
 声明:与其说这是一个“”的小技巧，不如说是一种“小乐趣”。Lifehacker 用这个标签来指代 [的简单技巧](https://skillet.lifehacker.com/motivate-yourself-to-do-the-dishes-with-a-cocktail-1824195336#_ga=2.15234738.549030854.1523890271-2107713592.1518549088) 这是我每天做的让我开心的事情。除了我早晨的味道，它没有改善任何东西，每个人都应该尝试一下。(这是一个浓缩咖啡双关语。)
 

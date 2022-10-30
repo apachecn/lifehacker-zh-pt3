@@ -4,7 +4,7 @@
 
 即使我有发展心理学的博士学位，我仍然记得把我刚出生的女儿从医院带回家后的第一个令人害怕的时刻。我不知道该怎么做，也不确定我是否有能力成为她需要我成为的父母。
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/worrying-about-being-a-perfect-mother-makes-it-harder-to-be-a-good-parent-58690) *。*
 

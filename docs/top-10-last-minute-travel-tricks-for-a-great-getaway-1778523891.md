@@ -4,17 +4,13 @@
 
 精心计划一次度假旅行，选择正确的地点，正确的时间，然后去旅行，这是有道理的。在漫长而又糟糕的一周之后，还有一些别的事情可以让你放松一下。下面是一些让后者尽可能奢华的小技巧。
 
-Watch
+
 
 ### 10.不要屈从于“最后一分钟”的天价
 
 仅仅因为你的最后一分钟逃离，顾名思义，是最后一分钟，并不意味着你不能付出一点努力来确保你正在做的事情真的会让你充电。无论你是订了一家酒店，飞到城外，还是跳上车去看当地的风景，然后回来睡在自己的床上，稍微想想你想做什么。它不一定很贵，有时在你自己的城市 旅游——在淡季住在当地的酒店，在附近住宿和吃早餐，去附近的公园或博物馆看看——也是一个不错的度假和更新。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Last-Minute Travel Tricks for a Great Getaway](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/take-a-cheap-vacation-in-your-own-city-348407) [###### 在你自己的城市度过一个便宜的假期](https://lifehacker.com/take-a-cheap-vacation-in-your-own-city-348407) 
 
-一周又一周的项目、截止日期和新的挑战在工作中过去了，你已经准备好了…
-
-[Read more](https://lifehacker.com/take-a-cheap-vacation-in-your-own-city-348407)</aside>
 
 此外， [最后一分钟的旅行不一定是昂贵的](https://lifehacker.com/how-to-plan-an-awesome-last-minute-vacation-on-the-che-5840381) ，技术可以帮你抢生意。也就是说，任何提前时间都是好的提前时间，即使是在你周末休息之前的几个小时，或者是在周三下午 2 点，你正在考虑在接下来的几天里请病假，去阳光明媚的海滩。
 
@@ -76,11 +72,7 @@ Watch
 
 *一旦你安全到家，打开行李，放松一下，准备好回到地面。你可以 [一鸣惊人](https://lifehacker.com/how-can-i-hit-the-ground-running-when-i-return-from-vac-5908180) ，但你不需要在这个过程中给自己压力。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled Top 10 Last-Minute Travel Tricks for a Great Getaway](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-hit-the-ground-running-when-i-return-from-vac-5908180) [###### 度假归来，我如何才能立即投入工作？](https://lifehacker.com/how-can-i-hit-the-ground-running-when-i-return-from-vac-5908180) 
 
-亲爱的生活黑客，我即将开始一个急需的假期，虽然计划我的旅行是一个爆炸，…
-
-[Read more](https://lifehacker.com/how-can-i-hit-the-ground-running-when-i-return-from-vac-5908180)*</aside>
 
 *你也可能一回到办公室或坐在办公桌前，就感觉到的节后忧郁。他们不是不可能被打败，但是记住，一旦你从一个假期回来，这是开始计划下一个假期的好时机。如果可以，下次不要勉强接受最后一分钟，即使你喜欢肾上腺素激增。慢慢来， [当你需要减压的时候，去度几个桌面假期](http://lifehacker.com/relaxpls-takes-you-on-a-soothing-desktop-vacation-5871533) ，然后 [为下次你需要出城](http://lifehacker.com/how-to-ditch-tourist-spots-and-build-your-own-kickass-v-1566817968) 的时候 计划你的梦想之旅。这样你会像真正的旅行一样欣赏这个过程。*
 

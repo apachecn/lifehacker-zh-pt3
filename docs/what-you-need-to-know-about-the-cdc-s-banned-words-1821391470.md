@@ -4,7 +4,7 @@
 
 周五， [《华盛顿邮报》](https://www.washingtonpost.com/national/health-science/cdc-gets-list-of-forbidden-words-fetus-transgender-diversity/2017/12/15/f503837a-e1cf-11e7-89e8-edec16379010_story.html?utm_term=.49c670b5d240) 报道称，疾病预防控制中心官员告诉工作人员在预算文件中保留七个术语:胎儿、多样性、跨性别、弱势、权利、基于科学和基于证据。这些话对大多数科学家来说是就事论事，但对政治家来说，它们是政治性的。
 
-Watch
+
 
 疾控中心主任 [澄清说，并没有全面“禁止”](https://www.statnews.com/2017/12/17/cdc-chief-science-forbidden-words/) 这几个字，但并没有否认它们被排除在预算文件之外。一位匿名的卫生和人类服务官员告诉 STAT，他们选择不使用这些词，因为 CDC 认为他们的预算文件没有这些词会有更好的机会。
 

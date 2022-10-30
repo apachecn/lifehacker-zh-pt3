@@ -4,7 +4,7 @@
 
 [谷歌 Chrome](http://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393#_ga=2.62623980.151127572.1523807864-396842925.1520800403) 自带内置安全措施，警告你危险的网站并清除 [网络钓鱼诈骗](https://lifehacker.com/modern-phishing-attempts-look-more-legit-but-the-metho-1794914817#_ga=2.62623980.151127572.1523807864-396842925.1520800403) ，但当你浏览时有更多(或更好)的安全措施也无妨。
 
-Watch
+
 
 微软刚刚发布了一款针对 ChromeT3 的 [Windows Defender 扩展。它基本上提供了与谷歌浏览器相同的实时保护，但微软声称其扩展可以阻止 99%的网络钓鱼攻击，而 Chrome 只能拦截 87%。他们在吵架。](https://chrome.google.com/webstore/detail/windows-defender-browser/bkbeeeffjjeopflfhgeknacdieedcoml)
 

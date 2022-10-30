@@ -4,7 +4,7 @@
 
 有没有在路上看到一双鞋子，想知道它们是怎么到那里的？不，这不是什么可怕事故的残留物。实际上有一些非常简单的解释。
 
-Watch
+
 
 别担心，好奇的朋友们。Redditor 86Quiche 最近肯定也遇到了“路上随意丢鞋”的现象， [昨天问了同样的问题](https://www.reddit.com/r/AskReddit/comments/72ebdg/people_whove_lost_a_shoe_on_the_highway_howd_that/):*有人在高速公路上丢了一只鞋，这是怎么回事？其他评论者很快做出了回应——一些人也要求知道真相，而另一些人很快给出了自己的解释。* 
 

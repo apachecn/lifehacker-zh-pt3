@@ -4,7 +4,7 @@
 
 还记得上周，当我问你们大家 [你们希望早点得到什么理财建议](https://lifehacker.com/what-money-advice-do-you-wish-youd-gotten-sooner-1794801502) ？你们分享了一些很棒的答案，但你们中的许多人说，这不是关于你*何时得到*建议的，而是关于你*何时决定真正采纳它的。*
 
-Watch
+
 
 ### “首先支付自己”
 

@@ -4,7 +4,7 @@
 
 Spotify 为学生们提供了一种非常划算的夏末安慰。
 
-Watch
+
 
 这家音乐流媒体服务公司在其 [网站](https://www.spotify.com/us/student/) 上宣布，Spotify Premium for Students 将包括无限制的无广告音乐和播客，以及访问 Hulu 有限的商业广告和 Showtime 流媒体服务。这仅适用于“高等教育”学生；抱歉，青少年。你也不能之前就已经尝试过 Spotify Premium，或者现在就有它。
 

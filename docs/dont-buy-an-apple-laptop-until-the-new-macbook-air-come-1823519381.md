@@ -4,7 +4,7 @@
 
 在过去的几年里，苹果对 MacBook Air 并没有太多好感，但这种情况可能会在今年春天发生改变。广受欢迎的苹果分析师 Ming-Chi Kuo(via[MAC rumors](https://www.macrumors.com/2018/03/03/kgi-cheaper-macbook-air-2q-2018/))的一份新报告称，我们可能会在未来几个月内买到更便宜的 MacBook Air，在这之前，你可能应该暂缓购买任何新的苹果笔记本电脑。
 
-Watch
+
 
 Kuo 没有透露价格以外的任何细节，价格将低于目前的 999 美元。同样不清楚的是，这是否意味着苹果将重新推出更小的 11 英寸 Macbook Air ( [早在 2016 年就已停产](https://www.cultofmac.com/451438/11-inch-macbook-air-officially-dead/) )或者只是大幅削减当前 13 英寸笔记本电脑的成本。
 

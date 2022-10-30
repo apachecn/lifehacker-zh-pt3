@@ -4,7 +4,7 @@
 
 你好，欢迎来到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的分层创作的专栏。很兴奋能和大家分享这周的项目，好吃到差点疼。
 
-Watch
+
 
 所以首先让我跟你说实话: [A.A .牛顿的华夫饼屋砂锅](https://lifehacker.com/what-should-we-casserole-next-1819232880) 其实在我们的选题环节中得到了最多的票数，但是在 [这个](https://skillet.lifehacker.com/make-two-weeks-worth-of-breakfasts-with-one-sheet-pan-1819690171) 和 [这个](https://skillet.lifehacker.com/use-a-cake-pan-to-make-smaller-portions-of-sheet-pan-me-1819654391) 之后，我就有点昏头了。(我知道，我也觉得那不可能。)所以我没有用土豆丝做砂锅，而是用土豆泥做了一个，我一点也不后悔。
 

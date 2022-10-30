@@ -4,7 +4,7 @@
 
 很难理解 Equifax 数据黑客的程度——数百万个社会安全号码被盗——现在你已经学会监控你的信用和 [冻结你的报告](https://lifehacker.com/everything-you-need-to-know-about-a-credit-freeze-1803139061) 。然而，黑客不仅仅拥有你的个人信息。他们可能也有你的信用卡号码。
 
-Watch
+
 
 消费者至上主义者 [提醒我们](https://consumerist.com/2017/09/14/lets-not-forget-that-equifax-hackers-also-stole-200k-credit-card-numbers/)20 万张信用卡号码也被黑客窃取:
 

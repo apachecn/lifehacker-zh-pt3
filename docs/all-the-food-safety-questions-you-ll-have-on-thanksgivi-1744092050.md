@@ -4,7 +4,7 @@
 
 感恩节的家庭分歧不仅限于 [餐桌上的政治](http://lifehacker.com/the-guidelines-for-a-rational-political-discussion-with-5904594) :如果你曾经站在厨房里和你奶奶争论火鸡做好了没有，你就会明白我们的意思。因此，我们请来了食品安全专家 [【本·查普曼】](http://yfcs.cals.ncsu.edu/people/benjamin-chapman-ph-d/) 来解决你最有可能出现的争议。
 
-Watch
+
 
 ### 我能把生火鸡上的汁液洗掉吗？
 
@@ -26,11 +26,7 @@ Watch
 
 不过，有一种方法可以变通这个规则。神奇的 165 是瞬间杀死沙门氏菌和朋友的温度，但你也可以通过将肉保持在较低温度下更长时间来杀死相同的细菌。例如，你可以把你的火鸡烧到 150 度，只要你确保它在 150 度(或更高)的温度下保持五分钟，你可以用像这样的高科技温度计来验证这一点。这种高科技温度计在火鸡烹饪时会留在你的火鸡体内，并将数据发送到你的智能手机上。将它的读数与这些家禽的时间-温度图表进行比较，以确保你的火鸡是安全的。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled All The Food Safety Questions You’ll Have On Thanksgiving Day, Answered](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-avoid-poisoning-everyone-at-thanksgiving-dinne-5861452) [###### 我如何避免在感恩节晚餐上毒害每个人？](https://lifehacker.com/how-do-i-avoid-poisoning-everyone-at-thanksgiving-dinne-5861452) 
 
-亲爱的 Lifehacker，今年我要在我家举办感恩节晚餐，我很紧张。我不…
-
-[Read more](https://lifehacker.com/how-do-i-avoid-poisoning-everyone-at-thanksgiving-dinne-5861452)</aside>
 
 ### 我必须洗蔬菜做沙拉吗？我要做的蔬菜怎么办？
 

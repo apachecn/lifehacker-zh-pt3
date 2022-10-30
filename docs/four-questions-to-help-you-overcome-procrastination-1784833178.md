@@ -4,7 +4,7 @@
 
 拖延症就像你脑海中的一个声音，给了你几个看似合理的理由来避免做某事。通常很难提出反驳来克服它。因此，与其对着那个告诉你推迟某事的声音大喊大叫，为什么不问它一个问题呢？
 
-Watch
+
 
 *本帖原载于* [*快公司*](http://www.fastcompany.com/3058529/how-to-be-a-success-at-everything/asking-these-4-questions-can-help-you-stop-procrastinating) *。*
 

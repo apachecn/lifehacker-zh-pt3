@@ -4,7 +4,7 @@
 
 “妨碍司法公正”这个词最近经常被提起，尤其是当你看新闻的时候。特朗普 [总统被指控妨碍司法公正](http://thehill.com/homenews/politics-101/373216-what-is-obstruction-of-justice) 关于罗伯特·穆勒可能与俄国勾结的调查，现在众议院情报委员会主席德文·努内斯 [正把矛头指向他](https://www.nytimes.com/2018/02/12/opinion/devin-nunes-obstruction-justice.html) 为 [创建自己的另类新闻网站](https://www.politico.com/story/2018/02/11/devin-nunes-alternative-news-site-402097) 。但是妨碍司法公正是什么意思呢？
 
-Watch
+
 
 [根据美国联邦法律](https://www.law.cornell.edu/wex/obstruction_of_justice) ，妨碍司法公正是当某人”...腐败或通过威胁或武力，或通过任何恐吓信或通信，影响、妨碍或阻碍，或试图影响、妨碍或阻碍正当司法."基本上，当有人在官方司法程序中，或在国会或联邦机构的未决程序中，故意干扰或妨碍检察官或其他政府官员时，这是一种联邦犯罪，例如，对可能的串通进行调查。这项重罪指控的处罚可能包括巨额罚款，或长达五年的监禁，或两者兼而有之。
 

@@ -4,7 +4,7 @@
 
 如果你预先订购了 iPhone XS 或 XS Max，并一直在测试版中试驾 iOS 12，你会希望避免将你的设备更新到 iOS 12.1。为什么不活在边缘？因为没有适用于 iPhone XS 或 XS Max 的 iOS 12.1 测试版。
 
-Watch
+
 
 当你在邮件中收到那部闪亮的新手机时(或者在苹果商店排队等候世界上最糟糕的时候)，你将无法从运行 iOS 12.1 测试版的旧 iPhone 中恢复你的信息，因为这在技术上不是新设备的一个选项， [Reddit 用户 Matuteg](https://www.reddit.com/r/apple/comments/9gwymt/psa_do_not_update_to_ios_121_beta_if_you_pre/)指出。
 

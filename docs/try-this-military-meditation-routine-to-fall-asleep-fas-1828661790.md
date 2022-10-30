@@ -4,7 +4,7 @@
 
 需要快速入睡？美国海军飞行前学校开发的一种中世纪放松技术，据说在几分钟内就能奏效。这可能不是魔术，但这似乎是放松身心的好方法。
 
-Watch
+
 
 在 [*放松并赢得*](https://www.amazon.com/gp/product/0498025411/ref=as_li_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/try-this-military-meditation-routine-to-fall-asleep-fas-1828661790&asc_source=&camp=1789&creative=390957&creativeASIN=0498025411&ie=UTF8&linkCode=as2&linkId=FSXA3GZUT5SFDAZ4&tag=kinjalifehackerlink-20) 和 [中描述的基础知识，在 Medium](https://medium.com/s/story/combat-tested-training-unwind-and-sleep-anywhere-in-120-seconds-27d5307b7606) 上总结，是一部分一部分地放松你的身体，然后尝试在十秒钟内完全清理你的头脑。这里有一个脚本:
 

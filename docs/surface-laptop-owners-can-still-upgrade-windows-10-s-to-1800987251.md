@@ -4,7 +4,7 @@
 
 微软 6 月份发布的 Surface 笔记本电脑的用户有更多的时间从附带的 Windows 10 S 升级到全功能的 Windows 10 Pro 操作系统。
 
-Watch
+
 
 在本周的一篇 [博客文章](https://blogs.windows.com/devices/2017/09/05/surface-laptop-colors-arriving-additional-countries/#mmRcMKAuu15KwXg1.97) 中，微软宣布将其 Windows 10 S 升级计划延长三个月，最初定于 2017 年底完成。新的升级截止日期是 2018 年 3 月 31 日，这让这款出奇沉稳的笔记本电脑的所有者有更多的时间来决定他们想要运行哪个版本的 Windows 10，是对教育工作者友好的 Windows 10 S 还是更强大的 Windows 10 Pro。
 

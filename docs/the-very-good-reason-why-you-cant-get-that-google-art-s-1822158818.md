@@ -4,7 +4,7 @@
 
 伊利诺斯州和 [得克萨斯州](https://twitter.com/GodivaMorte/status/953114218894589952) 的一些居民对感到愤怒，他们无法轻易确定哪件艺术品与他们有 42%的相似度，却允许谷歌捕捉他们的生物特征灵魂。
 
-Watch
+
 
 谷歌艺术与文化应用已经推出大约一年半了，但最近它登上了安卓和 iPhone 下载排行榜的榜首，因为一项新的 [功能很受欢迎，该功能使用机器学习将自拍与来自 1200 多家博物馆的肖像](https://sploid.gizmodo.com/google-can-now-tell-you-which-works-of-art-you-look-lik-1822074643#_ga=2.72594579.145513436.1516195501-1067492155.1516195501) 进行匹配。这款应用引发了人们对谷歌如何处理这些数据的隐私担忧。不过，公平地说，没有证据表明谷歌保留生物特征数据或窃取灵魂。谷歌的一位发言人告诉 [华盛顿邮报](https://www.washingtonpost.com/news/the-switch/wp/2018/01/16/google-app-that-matches-your-face-to-artwork-is-wildly-popular-its-also-raising-privacy-concerns/?utm_term=.3bcdf9015c79)
 

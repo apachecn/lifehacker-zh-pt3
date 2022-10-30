@@ -4,7 +4,7 @@
 
 如果你已经是 Spotify 的高级客户，我们为你提供了一个交易:现在你可以以每月 12.99 美元 的价格获得 Spotify 和 Hulu 有限商业计划 [。](https://www.spotify.com/us/hulu/premium-intro/) 
 
-Watch
+
 
 这笔交易是两家公司长期合作的结果。目前，这项交易仅适用于当前的 Spotify 高级客户，但应该在夏天之前对所有人开放， [*The Verge* 报道](https://www.theverge.com/2018/4/11/17222646/spotify-hulu-bundle-deal-now-available-pricing) 。
 

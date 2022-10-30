@@ -4,7 +4,7 @@
 
 如果你喜欢出去吃饭，尤其是在大城市，那么 OpenTable 可以很快成为你最好的朋友。该应用程序可以帮助你快速、轻松地在热门餐厅预订座位，而无需拿起手机(也不可避免地永远处于等待状态)。
 
-Watch
+
 
 本周 OpenTable [推出了一个新功能](https://blog.opentable.com/2018/introducing-seating-options-opentable-lets-diners-book-their-favorite-seat-in-the-house/) 让它变得更好:座位请求。有了它，你可以在预订的时候告诉餐馆你想坐在哪里。你不能当场选择“你的桌子”，但你可以提出特殊要求，比如户外座位或酒吧座位。
 

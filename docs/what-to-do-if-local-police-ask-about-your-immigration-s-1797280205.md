@@ -6,7 +6,7 @@
 
 在特朗普的美国，地方执法和移民与海关执法局(ICE)之间的界限变得越来越模糊。
 
-Watch
+
 
 五月，一名明尼阿波利斯的交通警察被摄像机拍到向一名乘客询问州 IDT3，并询问他是否“非法”在此得克萨斯州 [最近通过了一项法律](https://www.usatoday.com/story/news/nation/2017/05/03/texas-sanctuary-cities-bill-immigration-status-police/101268244/) ，该法律将于 9 月生效，要求地方和州执法部门质疑居民的移民身份。
 

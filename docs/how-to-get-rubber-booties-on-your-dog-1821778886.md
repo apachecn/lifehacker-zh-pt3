@@ -4,7 +4,7 @@
 
 随着气候变化导致的世界末日向我们逼近，重要的是不仅要考虑我们自己的死亡，还要考虑我们宠物的安全和舒适。在户外度过任何时间的狗都特别需要冬季护理，虽然它们的爪子有循环系统来帮助它们应对寒冷的天气，但雪、冰和盐会造成很大的伤害。你可能会想到狗狗爪子上的 [脱毛蜡](https://www.amazon.com/Mushers-Secret-Pet-Protection-200-Gram/dp/B0002XIZXY?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-rubber-booties-on-your-dog-1821778886&asc_source=&tag=kinjalifehackerlink-20) ，或者——尤其是你住在人行道很咸的地区——你可能会想到狗靴。
 
-Watch
+
 
 我从未想过我会成为那个给狗穿靴子的宠物主人，但是看到盐让我的狗伊西如此不舒服，我决定是时候咬紧牙关了。首先，我研究了什么样的靴子适合我的狗的品种，因为它们爪子和腿的大小和形状对它们的穿着有很大的影响。
 

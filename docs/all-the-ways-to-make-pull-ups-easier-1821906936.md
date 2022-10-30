@@ -4,7 +4,7 @@
 
 从零个引体向上到一个引体向上 的 [旅程是漫长而艰难的，有时似乎难以逾越。一旦你到了那里，胜利就转瞬即逝:你尝试的每一套都包含一个微不足道的代表。无论哪种方式，你都需要一些方法来实现这个崇高的练习。](https://lifehacker.com/january-s-fitness-challenge-grab-onto-that-pull-up-bar-1821717656) 
 
-Watch
+
 
 这份清单上的练习比严格的引体向上更容易，但它们锻炼的是部分或全部相同的肌肉。选择一些感觉有挑战性但可行的事情，即使你在 [我们的挑战](https://lifehacker.com/january-s-fitness-challenge-grab-onto-that-pull-up-bar-1821717656) 结束时没有做满引体向上，你至少会更接近目标。
 

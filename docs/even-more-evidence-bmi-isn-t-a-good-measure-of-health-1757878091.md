@@ -4,7 +4,7 @@
 
 我们已经知道身体质量指数 [并不能很好地衡量一个人是否肥胖](http://lifehacker.com/this-illustration-shows-why-bmi-can-be-a-misleading-ind-1716511933) ，但现在一项研究证实，它也不能很好地衡量健康。
 
-Watch
+
 
 身体质量指数，即身体质量指数，很受欢迎，因为它很容易测量。把你的身高和体重， [输入计算器](http://www.nhlbi.nih.gov/health/educational/lose_wt/BMI/bmicalc.htm) ，就会弹出一个数字，医生和保险公司用它来评估你的健康状况。如果你曾经读过一个关于“肥胖”研究的标题，他们几乎从来没有提到研究对象身上有多少脂肪:这是 [所有关于身体质量指数](http://www.hsph.harvard.edu/obesity-prevention-source/obesity-definition/obesity-definition-full-story/) 。的确，较胖的人通常有较高的身体质量指数，而身体质量指数较高的人更有可能有更多的胰岛素抵抗、高血压和其他 [心脏病和代谢紊乱的风险因素](http://www.heart.org/HEARTORG/Conditions/Diabetes/PreventionTreatmentofDiabetes/Know-Your-Health-Numbers_UCM_313882_Article.jsp#.Vrj1xLIrLCI) 。
 

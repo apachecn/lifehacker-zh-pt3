@@ -4,7 +4,7 @@
 
 在本周的 Brain Buffet 中，我们探究了为什么猫喜欢蜷缩在盒子或其他小空间里，展示了一台分发书籍的自动售货机，看了一些播客来开始你的一天，等等。
 
-Watch
+
 
 <small>*欢迎来到 Lifehacker 的*</small> [<small>*周一大脑自助*</small>](http://lifehacker.com/tag/monday-brain-buffet) <small>*，这是一个系列节目，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，它们会教你一些新东西，启发你，并有希望让你的一周有一个良好的开端。*T15】</small>
 

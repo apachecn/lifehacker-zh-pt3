@@ -4,7 +4,7 @@
 
 Alexa 旨在与你的声音一起工作，但有时对虚拟助理大喊大叫并不完全理想。现在你可以和 Alexa 交谈，并在空闲时使用她的大部分能力。
 
-Watch
+
 
 它叫[SilentEcho](https://silentecho.bepoken.io/)T3。由 Bespoken 开发的这个机器人( [，目前正处于测试阶段](https://bespoken.tools/blog/2017/07/13/silent-echo-for-alexa) )使用文本到语音转换技术将你输入的单词转换成语音。然后，它使用亚马逊的 API 将语音信息发送给 Alexa 来处理你的任务，即使背景中有尖叫的孩子、手提钻或大声的音乐。 
 

@@ -4,7 +4,7 @@
 
 还记得当我们都有点害怕 [基因检测公司可以被迫将你的数据交给执法部门](https://www.theroot.com/this-can-t-be-good-genealogy-companies-say-they-r-1820587830#_ga=2.16069622.1970518754.1524514905-1723114163.1524514905) 的时候吗？啊，那是更简单的时代。警察 [本周找到了被怀疑是金州黑仔的男子](https://www.theroot.com/this-can-t-be-good-genealogy-companies-say-they-r-1820587830) 部分归功于公开的 DNA 数据库中一个亲戚的样本。你的*亲戚可能已经在的那种。* 
 
-Watch
+
 
 对于这种类型的使用，隐私政策怎么说或者公司是否愿意交出你的数据都无关紧要。各大 DNA 公司都没有交出任何数据，你可以在 [这个还在更新的 Buzzfeed 故事](https://www.buzzfeed.com/danvergano/serial-killer-dna-testing?utm_term=.uoA1V37Jg#.uyXkjKW7E) 上看到他们的很多说法。相反，首席调查员保罗·孔斯 [说他的团队通过一个名为](https://www.mercurynews.com/2018/04/26/ancestry-23andme-deny-assisting-law-enforcement-in-east-area-rapist-case/) [GEDmatch](https://www.gedmatch.com/login1.php) 的公共数据库运行他们的文件 。
 

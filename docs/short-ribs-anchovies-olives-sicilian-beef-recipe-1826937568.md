@@ -4,7 +4,7 @@
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 
-Watch
+
 
 人生苦短，没有时间翻阅烹饪书去寻找难以捉摸的绝招。我最近增加的几道家常菜直接来自餐馆——这些是我品尝过并发现非常美味的菜肴，我利用自己美食作家的身份 [礼貌地向厨师们讨要他们的菜谱](https://thetakeout.com/ask-the-salty-waitress-how-do-i-ask-for-a-restaurant-s-1826265906) 。
 

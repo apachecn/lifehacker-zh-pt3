@@ -4,7 +4,7 @@
 
 失去宠物感觉很糟糕。你很伤心，害怕，绝望——你会做任何事情让你的毛茸茸的朋友回来。这让你成为骗子的完美目标。
 
-Watch
+
 
 [据商业改善局](https://www.bbb.org/council/news-events/bbb-scam-alerts/2017/07/lost-pet-watch-out-for-this-text-message-scam/) 报道，最近骗子们一直试图利用丢失宠物的主人。它是这样工作的:
 

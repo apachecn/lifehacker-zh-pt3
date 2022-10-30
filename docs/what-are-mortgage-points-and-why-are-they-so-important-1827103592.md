@@ -4,7 +4,7 @@
 
 几周前，我问你关于买房 有哪些 [问题。本周我将攻克一个](https://twocents.lifehacker.com/what-do-you-want-to-know-about-buying-a-house-1825932105#_ga=2.217235027.47977805.1529932552-3846207152.1521480874) [其中几个](https://twocents.lifehacker.com/how-much-to-put-down-for-your-first-house-1827029793?rev=1529937160455#_ga=2.217235027.47977805.1529932552-3846207152.1521480874) 。
 
-Watch
+
 
 这里有一个来自 [拉烈](http://twocents.lifehacker.com/1825949615) :
 

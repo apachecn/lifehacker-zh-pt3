@@ -4,7 +4,7 @@
 
 Pokémon Go 非常适合徒步探险，但就像最初的 Game Boy 游戏一样，拥有一辆自行车会让一切变得更好。你走得更快，你可以带更多的东西，这是一个狗屎的乐趣。以下是我如何打造终极口袋自行车，以及你如何打造自己的口袋自行车。
 
-Watch
+
 
 [https://gfycat.com/ifr/BleakHollowCockatoo](https://gfycat.com/ifr/BleakHollowCockatoo)
 

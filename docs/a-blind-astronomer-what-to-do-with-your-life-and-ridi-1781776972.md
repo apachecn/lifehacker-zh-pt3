@@ -4,7 +4,7 @@
 
 一个失明的天文学家，如何决定你大学毕业后的生活，被盗最多的书，以及更多的在我们的 Lifehacker Brain Buffet 开始你的一周！
 
-Watch
+
 
 <small>*欢迎来到 Lifehacker 的*</small> [<small>*【周一大脑自助】*</small>](http://lifehacker.com/tag/monday-brain-buffet) <small>*，这是一个新的系列，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，将教给你一些新的东西，激励你，并有希望以正确的方式开始你的一周。*T15】</small>
 

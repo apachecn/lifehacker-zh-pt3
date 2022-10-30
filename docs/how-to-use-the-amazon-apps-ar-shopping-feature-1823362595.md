@@ -4,7 +4,7 @@
 
 iOS/Android:去年， [亚马逊](https://lifehacker.com/how-to-install-kodi-on-your-fire-tv-edition-amazon-powe-1820843225) 涉足 [增强现实](https://lifehacker.com/use-ios-ar-apps-to-help-redecorate-your-apartment-1822193960)[AR 视图](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-use-the-amazon-apps-ar-shopping-feature-1823362595&asc_source=&node=17403032011&tag=kinjalifehackerlink-20) ，“让 iPhone 用户用亚马逊应用在自己家里定位虚拟家具、扬声器和几乎所有其他东西。现在，同样的功能正在安卓系统中出现，从少数高端手机开始。
 
-Watch
+
 
 以下是你需要了解的关于亚马逊 AR 视图的信息，无论你是刚刚在 Android 上获得更新，还是最终打算在 iOS 上查看它。
 

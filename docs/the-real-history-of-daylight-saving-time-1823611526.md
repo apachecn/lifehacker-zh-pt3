@@ -4,7 +4,7 @@
 
 快到 [时间了](https://lifehacker.com/psa-daylight-savings-time-starts-sunday-remember-to-s-1823598431) 为 [夏令时](https://en.wikipedia.org/wiki/Daylight_saving_time) ，但是谁想出了这种诡异的做法？为什么呢？如果你只是回答“本杰明·富兰克林”和“帮助农民”，你可能应该看看这个。
 
-Watch
+
 
 许多美国人喜欢声称本杰明·富兰克林发明了夏令时，但这并不完全正确。富兰克林确实在 1784 年写了一篇文章 [建议巴黎人应该最大限度地利用白天的时间](https://news.nationalgeographic.com/2016/03/060309-daylight-saving-savings-time-nation-science-sunday/) ，但是这篇文章带有讽刺的性质，部分是为了取笑法国人。基本上，他解释说，如果每个人都早点醒来，更多地利用日光，他们可以节省大量的蜡烛费用。富兰克林没有提到任何关于调整时间本身的事情。
 

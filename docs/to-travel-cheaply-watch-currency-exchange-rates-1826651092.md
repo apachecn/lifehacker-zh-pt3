@@ -4,7 +4,7 @@
 
 奢侈旅游网站 [的匿名主编安德鲁·哈珀](https://www.andrewharper.com/) 说，节省旅行费用就是灵活性。他告诉 Lifehacker 一些可靠的方法来观察豪华旅行的折扣，其中一种方法会让你觉得自己是宇宙的完全主人，你已经知道了，因为我们在标题中破坏了它。
 
-Watch
+
 
 编辑背书惯用战术: [获得大通蓝宝石优选卡](https://www.chase.com/card-benefits/sapphirereserve/travel) 赚取积分。在旺季两边的“肩季”旅行(他说，在加勒比海，价格从高峰到肩下降了一半以上)。保持你的日期的灵活性，寻找一周中间的航班。他喜欢国际航班 [【高级经济舱】](https://lifehacker.com/the-premium-economy-seats-worth-paying-for-on-internati-1677010254) 座位的潮流。
 

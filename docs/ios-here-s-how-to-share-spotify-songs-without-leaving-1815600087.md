@@ -4,7 +4,7 @@
 
 iOS: Spotify 的最新更新 [增加了 iMessage 支持](https://techcrunch.com/2017/09/14/spotify-launches-an-imessage-app-for-texting-songs-to-friends/) ，在文字对话中更容易与好友分享曲目。最重要的是，发送者和接收者都可以在不打开应用程序的情况下播放共享的曲目——至少在你想听整首歌之前是这样。
 
-Watch
+
 
 你可能习惯于在音乐应用程序中分享 Spotify 曲目，并通过 iMessage 将其发送给某人。不幸的是，接收端的人不得不退出 iMessage，打开 Spotify，听这首歌，然后回到 iMessage，发表他们对所有歌曲 electroclash 的严厉批评。现在，由于 Spotify 的新键盘应用程序，他们可以在 iMessage 上试听这首歌。
 

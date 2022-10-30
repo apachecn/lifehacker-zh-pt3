@@ -4,7 +4,7 @@
 
 在 Mari Takahashi 加入娱乐公司 Smosh 之前，她的工作是芭蕾舞，她的职业抱负是以教舞蹈为生。现在，她负责 YouTube 上一个拥有超过 700 万用户的频道 [Smosh Games](https://www.youtube.com/user/SmoshGames) ，她经常出现在视频中，比如她的《我的世界》秀 [MariCraft](https://www.youtube.com/playlist?list=PLeImKFecYFCxv_jb8bu2JKZ65YHCLlYWU) 。她告诉我们她是如何完成工作的，她使用的工具，有策略但灵活。
 
-Watch
+
 
 * * *
 

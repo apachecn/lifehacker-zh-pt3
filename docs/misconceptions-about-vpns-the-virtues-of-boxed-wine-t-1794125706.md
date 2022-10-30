@@ -4,7 +4,7 @@
 
 本周，我们仔细研究了 VPN，看看它们是否真的是完美的隐私拯救者(它们不是)，学习了一些细致的削铅笔的方法，并在享受高质量盒装葡萄酒的同时进行了创新。这里回顾一下。
 
-Watch
+
 
 ## [**对 VPN 最大的误解**](http://lifehacker.com/the-biggest-misconceptions-about-vpns-1794038237)
 

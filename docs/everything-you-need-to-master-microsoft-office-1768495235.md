@@ -4,7 +4,7 @@
 
 本周，我们将带您了解如何快速入门、充分利用和掌握 Microsoft Office 中的每个应用程序。也许你错过了一个，或者想要一个快速指南。好吧，给你。
 
-Watch
+
 
 *<small>这篇文章是</small>* <small></small>[*<small>微软 Office 周</small>*](http://lifehacker.com/tag/microsoft-office-week) *<small>的最后一篇，在 Lifehacker 我们提供入门或掌握微软 Office 的技巧。错过一个帖子？检查背面</small>*<small>[*<small>办公周标签页</small>*](http://lifehacker.com/tag/microsoft-office-week) *<small>赶上来了。</small>T31<small>T33】</small>*</small>
 

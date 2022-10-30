@@ -10,6 +10,5 @@
 
 接下来就让杰森教你 [如何画出某人的肖像](https://lifehacker.com/how-to-draw-faces-1826104011) ，以及 [如何画出一幅漫画](https://lifehacker.com/how-to-draw-cartoons-1826116384) 。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Draw Like a New Yorker Cartoonist](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-draw-faces-1826104011)</aside>
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Draw Like a New Yorker Cartoonist](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-draw-cartoons-1826116384)</aside>
+

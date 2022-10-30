@@ -4,7 +4,7 @@
 
 购买举重腰带就像购买跑鞋一样:你需要知道自己需要什么，并尝试不同的适合度、舒适度和功能性。在你的第一条腰带中，有很多变量需要考虑，所以让我们来帮你理清头绪。
 
-Watch
+
 
 我们已经讨论过 [举重腰带](https://lifehacker.com/when-weightlifting-belts-are-necessary-and-when-theyre-1766557417) 的好处，所以在这篇文章中我们将直接讨论你的选择。大部分举重带会把你 [背 50 美元](http://www.amazon.com/Leather-Power-Weight-Lifting-Medium/dp/B0028H00HG/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-choose-your-first-weightlifting-belt-1774624026&asc_source=&ie=UTF8&keywords=powerlifting belt&qid=1462337709&refinements=p_72:1248957011&s=exercise-and-fitness&sr=1-1&tag=kinjalifehackerlink-20) 到 [超过 100 美元](http://www.bestbelts.net/Powerlifting-Belts/Athlete.aspx) ，所以这不是一笔微不足道的投资。从好的一面来看，如果你选择好并照顾好它，它会持续你很多年。
 

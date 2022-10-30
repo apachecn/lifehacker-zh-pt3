@@ -4,7 +4,7 @@
 
 无论是 Chipotle 的大肠杆菌还是 Blue Bell 冰激凌中的 T2 李斯特菌，经销受污染食品的公司通常不会倒闭。他们清理、解决问题，然后继续前进。如果他们很好地处理了疫情，他们的食物应该是安全的，但我们理解你是否有点紧张。
 
-Watch
+
 
 无论最近是否有疫情爆发，都不可能保证食品安全。取决于你对家中食品安全的关注程度，餐馆和工厂的食品甚至可能更安全。那些生产商要求测试他们冰箱 的 [温度，例如，食物在](http://lifehacker.com/what-temperature-should-you-keep-your-refrigerator-set-533534221) [危险区](http://lifehacker.com/how-can-i-tell-if-food-left-at-room-temperature-is-safe-1460920090) 停留的时间。
 

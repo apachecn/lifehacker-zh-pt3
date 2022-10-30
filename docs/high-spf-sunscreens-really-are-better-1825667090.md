@@ -4,7 +4,7 @@
 
 理论上，SPF 50 和 SPF 100 是非常相似的防晒霜:一种能阻挡 98%的 UVB 射线，另一种能阻挡 99%。问题是，没有人会按照瓶子上标明的防晒系数来涂抹防晒霜。所以实际上你从这两个瓶子中得到非常不同的保护。
 
-Watch
+
 
 不，答案不仅仅是多申请(虽然它肯定会有帮助)。你试过*实际上*涂一小杯防晒霜吗？Amy Marturana [做到了，并为自己](https://www.self.com/story/i-tried-to-follow-sunscreen-instructions-perfectly-and-realized-ive-been-using-it-wrong-my-entire-life) 写下了这段经历。她设法涂上了防晒霜，但要花很长时间才能涂进去，她也不能充分地重新涂上，她写道:“我的皮肤整天都感觉被乳液湿透了。即使在室内，当我不再流汗时，我也感到几乎被压得喘不过气来。”这不是一个实际的防晒霜用量。
 

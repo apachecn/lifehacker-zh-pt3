@@ -4,7 +4,7 @@
 
 自从微软收购 LinkedIn 以来，我一直担心有一天屏幕上会弹出通知，把一个我从未见过的人加入我的职业网络。事实证明，这一天已经到来， [LinkedIn 宣布了其 Windows 10 应用程序，该应用程序提供了关于你不关心的任何职业废话的通知。幸运的是，你可以在 Windows 10 操作中心改变需要你关注的应用。](https://blog.linkedin.com/2017/july/17/work-smarter-and-stay-connected-with-new-linkedin-app-windows) 
 
-Watch
+
 
 如果你是决定安装 [LinkedIn 应用](https://blog.linkedin.com/2017/july/17/work-smarter-and-stay-connected-with-new-linkedin-app-windows) 的勇敢者之一，你可能比大多数人更关注你的职业。但是那些更新博文的评论和好友请求是 [实际上不利于完成工作](http://lifehacker.com/how-long-it-takes-to-get-back-on-track-after-a-distract-1720708353) 。像通知这样的干扰会让你远离重要的任务，被打断后回到正轨需要的时间比你想象的长得多。
 

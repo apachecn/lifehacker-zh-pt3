@@ -4,7 +4,7 @@
 
 有证据表明，以色列食物最近已经成为焦点:洛杉矶的 Freehand 酒店刚刚开设了一家名为 [The Exchange](https://freehandhotels.com/los-angeles/the-exchange/) 的新以色列餐厅；由 Zahav 厨师 Michael Solomonov 主持的名为 [*寻找以色列美食*](http://www.israelicuisinefilm.com/) 的 2016 年纪录片在网飞播出；像纽约的 [努尔](http://nurnyc.com/) 、新奥尔良的 [沙亚](http://www.shayarestaurant.com/) 和洛杉矶的 [Kismet](http://www.kismetlosangeles.com/) 这样的泛中东餐馆赢得了好评。
 
-Watch
+
 
 但尽管最近备受关注，以色列的食物和它所融合的中东传统却是古老的。和任何菜肴一样，明显的以色列菜和从其他文化中借鉴和吸收的菜之间的界限很难确定。特拉维夫的食物不同于加利利的食物，也不同于西岸的食物，而且以色列境内的许多民族和种族也造就了其烹饪的多样性。
 

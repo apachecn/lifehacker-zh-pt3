@@ -4,7 +4,7 @@
 
 “到目前为止，我在谷歌上搜索最多的是‘我能喝这些抗生素吗？’”，艾米·舒默在她本周末的 SNL 独白 中说以及‘这些抗生素会让我的节育措施变得毫无价值吗？’“撇开喜剧不谈，这些实际上是很好的问题——也是我们大多数人在被开出处方时可能会问的问题。以下是一些答案。
 
-Watch
+
 
 毕竟， [我们每年有 80%的人服用抗生素](http://www.jwatch.org/na37789/2015/05/05/numbers-behind-antibiotic-overuse) (根据最近的数据，从 2011 年开始)。这些药物是强大的，常见的，当我们服用它们时，我们并不总是知道我们体内发生了什么。
 
@@ -62,11 +62,7 @@ Watch
 
 大多数带你去看医生的普通疾病 [都无法通过抗生素](https://lifehacker.com/how-to-know-when-you-actually-need-antibiotics-1677768347) 得到帮助，包括鼻窦感染、咳嗽和流鼻涕。对于少数可以，如链球菌喉咙，在大多数情况下，您的提供者应该在开处方前进行测试，以确保它是细菌性的，并找出它会对哪些抗生素产生反应。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Your Burning Questions About Antibiotics, Answered](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-know-when-you-actually-need-antibiotics-1677768347) [###### 如何知道你什么时候真正需要抗生素](https://lifehacker.com/how-to-know-when-you-actually-need-antibiotics-1677768347) 
 
-当你咳嗽或感冒时，从医生那里拿一包药是没有用的，如果…
-
-[Read more](https://lifehacker.com/how-to-know-when-you-actually-need-antibiotics-1677768347)</aside>
 
 你可以提前告诉你的医生，除非绝对必要，否则你不喜欢服用抗生素。如果对抗生素的需求不确定，有一种策略对你们双方都有帮助，那就是 [把处方带回家，以后再配药，这取决于你的感觉](http://www.bmj.com/content/348/bmj.g1606) 。我发现当我告诉医生这是我想要的时，他们似乎松了一口气——而且通常我根本不需要按处方配药。
 

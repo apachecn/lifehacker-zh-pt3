@@ -4,7 +4,7 @@
 
 在《回到未来 2》中，马蒂于 2015 年 10 月 21 日抵达未来——恰好是今天。似乎我们创造了另一条时间线，因为我们没有得到《马蒂的未来》中所有精彩的东西——但我们确实得到了很多。这是我们在这个时间线中仍然拥有的未来科技。
 
-Watch
+
 
 ### **使用 Apple 和 Android Pay 支付带有指纹的物品**
 
@@ -30,11 +30,7 @@ Watch
 
 在所有的事情中，这件事在我们的时间线中完好无损地保留了下来。他们只是没有命名掉 [Chromecast](http://www.bestbuy.com/site/google-chromecast-2015-model-black/4397400.p?id=1219757973565) 。如果你有一个 Chromecast 插在你的电视上， [背景功能](http://lifehacker.com/chromecasts-new-backdrop-feature-which-customizes-your-1643882322#_ga=1.145241652.1610386042.1433200380) 它将显示从太空观看的风景、艺术、地球上有趣的地方，以及太空本身的图片。太完美了。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Live Like Marty With This Real Life Back to the Future Tech You Can Actually Use](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/four-things-you-didnt-know-you-can-do-with-your-chromec-1676260180) [###### 你不知道你可以用 Chromecast 做的四件事](https://lifehacker.com/four-things-you-didnt-know-you-can-do-with-your-chromec-1676260180) 
 
-谷歌的 Chromecast 是在你的客厅播放任何内容的好方法，但是掌握它的…
-
-[Read more](https://lifehacker.com/four-things-you-didnt-know-you-can-do-with-your-chromec-1676260180)</aside>
 
 ### **吃饭时用 VR 耳机粗暴地看电视**
 

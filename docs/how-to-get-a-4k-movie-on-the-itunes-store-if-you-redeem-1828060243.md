@@ -4,7 +4,7 @@
 
 下次你购买电影时，如果它带有“兑换此代码以在你最喜欢的平台上获得数字版本”的通知，请确保你选择了正确的服务，如果你想在尽可能多的其他流媒体服务上获得最高质量的视频。
 
-Watch
+
 
 例如，如果你已经在苹果的生态系统上出售，但你也在任何地方使用 [电影](https://moviesanywhere.com/)——你应该这样做，因为这太棒了——你可能想在 iTunes 商店上兑换一部新的高清电影，首先，如果 [你可以](https://docs.google.com/spreadsheets/d/1gIDEYKfpuPcnOBHrvKs80WAjYv0h7htdu0V7KUHMggw/edit#gid=1286045225) 。否则，如果你想要这部电影的 4K 版本，你必须重新购买。你不会免费得到它。
 

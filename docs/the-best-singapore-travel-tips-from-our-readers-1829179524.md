@@ -4,7 +4,7 @@
 
 像汤姆·威兹一样， [我们本周驶往新加波](https://www.youtube.com/watch?v=QywH5lialsU) 。 [我们询问了你对这个热带岛国的最佳旅行建议](https://lifehacker.com/tell-us-your-singapore-travel-tips-1829070489) ，你给了我们几十条。以下是一些亮点，原评论帖里还有更多很棒的推荐。看看他们！
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

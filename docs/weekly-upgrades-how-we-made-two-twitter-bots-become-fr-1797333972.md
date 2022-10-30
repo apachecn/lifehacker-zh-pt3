@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/weekly-upgrades-how-we-made-two-twitter-bots-become-fr-1797333972>
 
-Watch
+
 
 上周，我们开始了每周升级 的综述，包括黄金日购物、补水和扔掉不必要的化妆品。
 

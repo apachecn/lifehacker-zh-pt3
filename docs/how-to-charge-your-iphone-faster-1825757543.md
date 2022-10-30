@@ -4,7 +4,7 @@
 
 今天的“我看到它才会相信”iPhone 谣言关注的不是 iPhone 本身，而是它的充电器——你会在它的 [精心制作的包装](https://gizmodo.com/apples-packaging-is-so-good-because-it-employs-a-dedica-5879097) 中找到最重要的配件。据猜测，苹果据称正在考虑将 iPhone 9 或 iPhone X2 的默认充电器从 5W 提高到 18W。
 
-Watch
+
 
 我对此表示怀疑，因为我不认为苹果会在乎帮助客户更快地为他们的设备充电——尤其是当它可以为支持更快充电速度的适配器收取更多费用的时候。
 

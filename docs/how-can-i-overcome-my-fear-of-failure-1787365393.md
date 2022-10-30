@@ -4,7 +4,7 @@
 
 高中时，我们的曲棍球教练是个半神半人。曲棍球在学校非常重要，几乎超越了体育的概念。我们的教练是一位天生的老师，他巧妙地将生活课程融入到几乎每一堂曲棍球课中。还有很多曲棍球课。
 
-Watch
+
 
 *本回答最初在 Quora* *上出现为* [*的一个回复。*](https://www.quora.com/How-can-I-overcome-the-fear-of-failure-1/answer/Evan-Asano)
 

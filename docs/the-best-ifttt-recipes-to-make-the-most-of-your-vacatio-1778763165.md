@@ -4,7 +4,7 @@
 
 当你休假时，你可以探索一个新的地方，远离日常琐事。当然，度假需要大量的准备工作，IFTTT 这个超级有用的工具可以帮助你。
 
-Watch
+
 
 我们已经讨论了 [如果这个，那么那个](https://ifttt.com/) (IFTTT)相当多。如果你对它不熟悉， [试试这个指南](https://lifehacker.com/how-to-supercharge-all-your-favorite-webapps-with-ifttt-5842307) 。简而言之，IFTTT 将不同的 web 应用程序链接起来，使它们之间的任务自动化。 [将带标签的脸书照片保存到 Dropbox](https://ifttt.com/recipes/15-save-photos-you-re-tagged-in-to-dropbox) 。当你丢失手机时，用电子邮件给你的手机打电话。可能性几乎是无穷无尽的，当你想拔掉插头，充分享受你的假期时，IFTTT 就变得格外方便。
 
@@ -33,11 +33,7 @@ Watch
 
 如果你的父母和我的父母一样，即使你已经长大并独自旅行，他们还是会担心你。每当我到达目的地 [时，他们都喜欢我联系他们，这样他们就知道我是安全的](https://lifehacker.com/how-can-i-stay-safe-while-traveling-alone-5984288) ， [这个食谱](https://ifttt.com/recipes/134835-send-an-email-when-you-land) 可以自动做到这一点，这样我就不会忘记并担心他们生病。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Best IFTTT Recipes to Make the Most of Your Vacation](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-stay-safe-while-traveling-alone-5984288) [###### 一个人旅行怎么才能保持安全？](https://lifehacker.com/how-can-i-stay-safe-while-traveling-alone-5984288) 
 
-亲爱的 Lifehacker，我打算很快自己去旅行。我很兴奋，但也有点…
-
-[Read more](https://lifehacker.com/how-can-i-stay-safe-while-traveling-alone-5984288)</aside>
 
 它利用你的位置向你选择的联系人发送电子邮件——需要去机场接你的朋友，你回家的配偶，或者你疯狂的、过度保护的父母。你也可以调整动作通道来发送文本。
 

@@ -4,7 +4,7 @@
 
 你已经听过无数次了:“记住，你在采访他们，正如他们在采访你一样。问自己一些(好的)问题，感受一下自己是否真的想在那里工作。”
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/5-questions-to-ask-in-an-interview-thatll-reveal-a-lot-about-the-company-1) *。*
 

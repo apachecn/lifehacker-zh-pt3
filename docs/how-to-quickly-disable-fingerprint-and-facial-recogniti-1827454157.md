@@ -4,7 +4,7 @@
 
 用指纹或面部识别打开手机既酷又方便。但是在美国，如果你被逮捕了，启用触控 ID 或 Face ID 基本上可以让警察自由进入你的手机。谢天谢地，iOS 和 Android 允许你用几种不同的方法暂时关闭指纹或人脸识别。
 
-Watch
+
 
 为什么你需要快速锁定你的手机？好吧，好几个法院都裁定执法部门不能强迫你输入手机的密码，但是他们可以 [用你的指纹](https://www.theatlantic.com/technology/archive/2016/05/iphone-fingerprint-search-warrant/480861/) 强迫你打开手机。因此，任何时候你期待与执法部门擦肩而过——通过 [运输安全管理局或海关](https://lifehacker.com/how-to-keep-your-data-safe-when-traveling-abroad-1795545604) ，或者任何时候你 [被拦下](https://www.theroot.com/drivingwhileblackwithleavesonthewindshield-kansas-man-1826176285)[参加抗议](https://splinternews.com/575-people-including-congresswoman-arrested-in-capito-1827223091) ，或者 [做任何接近受惊吓的白人](https://www.theroot.com/tag/white-people-calling-the-police-on-black-people#_ga=2.213719057.40787213.1531149169-1297080755.1497980211) 的事情——你都应该锁好你的手机。以下是方法。
 

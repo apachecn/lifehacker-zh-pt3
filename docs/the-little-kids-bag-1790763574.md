@@ -4,7 +4,7 @@
 
 小孩子也会随身携带包，这就是为什么 Flickr 用户包配置分享他们儿子的包，里面装满了小孩子需要的所有东西。
 
-Watch
+
 
 包里是一个 [幼崽背包](http://cubcubs.com/collections/new/products/cub-ruck?variant=19774364422) 。这是里面的内容:
 

@@ -4,7 +4,7 @@
 
 如果你拥有一台 Chromecast，并且有令人讨厌的朋友或室友，你可能厌倦了他们通过 [向你的设备](https://www.reddit.com/r/Chromecast/comments/1togo6/prevent_roommates_from_casting_porn_to_my_tv/) 传输愚蠢的视频来打断你的电影观看。Rickrolls 在第一次是有趣的，而不是第 26 次，尤其是当你投资于你最喜欢的节目或电影时。
 
-Watch
+
 
 Chromecast 使流媒体传输到联网电视变得容易，但这种对 T2 使用的便利也是该设备的致命弱点。任何与 Chromecast 连接到同一个无线网络的人都可以向它发送流媒体，不管你是否希望他们这样做。
 

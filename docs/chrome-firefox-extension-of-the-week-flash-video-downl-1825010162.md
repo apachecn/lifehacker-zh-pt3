@@ -4,7 +4,7 @@
 
 有时候，你只是不想等待视频流。或者一个视频如此引人注目，你想制作一个离线副本，这样你就可以随时把它拿出来(给你的朋友看)。
 
-Watch
+
 
 虽然 Flash 视频下载器扩展( [Chrome](https://chrome.google.com/webstore/detail/flash-video-downloader/aiimdkdngfcipjohbjenkahhlhccpdbc?hl=en) ， [Firefox](https://addons.mozilla.org/en-US/firefox/addon/flash-video-downloader/) )可能属于 Lifehacker 的年度 [邪恶周](https://lifehacker.com/tag/evil-week) )，但鉴于你要用它来下载你通常不应该下载的视频，你不会是一个糟糕的公司。据 Chrome 网上商店称，该扩展有超过 200 万用户，其中相当可观的一部分——2.2 万人——给了它 4.5 星的平均评级。
 

@@ -4,7 +4,7 @@
 
 [三星](https://medium.com/samsung-internet-dev/samsung-internet-v6-2-now-stable-ab7f95ed8b4b) 正在将其 [智能手机浏览器](https://lifehacker.com/the-best-web-browser-for-android-5832026) 带到所有安卓手机上(假设你运行的是安卓 5.0 或更高版本)，它比谷歌自己的 [Chrome](https://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393) 浏览器有一大优势。三星互联网应用程序具有内置广告跟踪拦截器的功能，可防止其他网站跟踪您在互联网上的活动。
 
-Watch
+
 
 这就是为什么如果你关心隐私，你可能会考虑将三星互联网作为你的主要 Android 浏览器。
 

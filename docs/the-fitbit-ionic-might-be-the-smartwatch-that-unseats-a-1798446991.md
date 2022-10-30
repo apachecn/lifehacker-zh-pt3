@@ -4,7 +4,7 @@
 
 在经历了 [个月的泄露和暗示](http://gizmodo.com/fitbit-is-reportedly-making-another-ugly-smartwatch-1794218921#_ga=2.15115507.452435519.1503922405-1400882675.1486143502) 之后，Fibit 终于公布了其最新的可穿戴手腕: [售价 300 美元的 Fitbit Ionic](https://www.fitbit.com/home) 。Fitbit 声称电池续航时间长达四天，操作系统经过优化，可以与运行 iOS、Android 和 Windows 的设备完美匹配，还有一个全新的传感器可以跟踪你的心率。这款智能手表在视觉上让人想起苹果手表和 Fitbit Surge 的私生子，对于这家庞大的可穿戴公司来说是一个自然的进步。就在去年，它抢购了知名智能手表制造商 [Pebble](http://gizmodo.com/pebble-is-dead-and-its-customers-are-completely-screwe-1789775408) 和[Vector](http://vectorwatch.com/fitbit)[一家报出 3800 万美元](http://gizmodo.com/what-fitbit-paid-for-pebble-is-undeniably-sad-1792652616) 。在 [近乎完美的 Surge](http://gizmodo.com/fitbit-surge-review-if-only-this-was-actually-a-smartw-1683726165#_ga=2.24401338.1690660400.1503406392-891363519.1479843118) 和 [难以置信的 Blaze](http://gizmodo.com/fitbit-blaze-review-this-is-why-people-hate-smartwatch-1762749809) 之间，Fitbit 对可穿戴市场的智能手表领域感兴趣已经有一段时间了。这是这种兴趣的顶点。它非常丑陋——就像以前出现的每一个 Fitbit 一样，但它可能在技术上足够酷，以至于你可能不会在意。
 
-Watch
+
 
 智能手表，即使是一款不太好看的手表，现在对 Fitbit 来说也是有意义的。根据 IDC 的数据，Fitbit 的市场份额在过去一年中暴跌，导致这个曾经的第一大可穿戴品牌的市场份额跌至第三位，落后于苹果和中国科技巨头小米。虽然你不会在美国的许多手腕上找到小米健身追踪器或智能手表，但你会找到 Apple Watch。在纽约，我每天上班时都会在手腕上看到一些。然而，尽管 Fitbit 的市场份额缩水，但该公司仍声称拥有超过 5000 万注册用户和超过 6700 万台设备。它下降了，但没有退出，显然希望离子将有助于扭转局面。
 

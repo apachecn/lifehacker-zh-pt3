@@ -4,7 +4,7 @@
 
 没有什么比缓慢的数据速度更令人沮丧的了，尤其是在崭新的设备上，这些设备被认为比早期版本的 要好得多。不幸的是，自从 iPhone XS 和 XS Max 上周五上市以来，用户们报告了 wifi 和蜂窝连接问题，包括测试速度比他们更换的 iPhone 慢。
 
-Watch
+
 
 虽然互联网 [对导致这些速度变慢的原因有不同的看法](https://www.zdnet.com/article/new-apple-connection-problem-iphone-xs-users-report-subpar-cell-and-wi-fi-reception/) ，但可能会有一些快速修复 iPhone XS 和 XS Max 连接问题的方法。据 Reddit 帖子 称，重置手机网络设置可以显著提高手机上传和下载速度。
 

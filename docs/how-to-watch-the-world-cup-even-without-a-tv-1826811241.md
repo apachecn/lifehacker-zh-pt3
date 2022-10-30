@@ -4,15 +4,11 @@
 
 世界杯今天正式开幕，持续到 7 月 15 日。美国今年没有晋级，但其他 32 个国家晋级了，下个月将会是世界足球(或橄榄球，取决于你是谁)的一个大日子。
 
-Watch
+
 
 如果你想看今年的比赛，你可以在 FOX 上看到 38 场比赛，你只需要一个广播天线。其他 26 场比赛将在福克斯体育 1 台播出，需要有线电视、卫星或流媒体服务订阅才能观看。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Watch the World Cup (Even Without a TV)](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138) [###### 我怎样才能学到足够的体育知识来和别人交谈？](https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138) 
 
-亲爱的 Lifehacker，每个人都在办公室谈论体育。我不是特别感兴趣，但是…
-
-[Read more](https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138)</aside>
 
 [点击这里查看](https://www.foxsports.com/soccer/fifa-world-cup/tv-schedule) 的官方时间表，以及每场比赛将在哪一站进行。这些往往会反弹一点，所以有可能你会看到两个游戏。下面是如何实现的:
 

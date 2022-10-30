@@ -4,7 +4,7 @@
 
 苹果全球开发者大会，也被称为 WWDC，于周一正式开幕。顾名思义，年会的中心是为你的 iPhone、iPad、Apple Watch 和 Mac 开发应用和服务的开发者。
 
-Watch
+
 
 这意味着，虽然我们不太可能在这次活动中听到大量新硬件的发布(苹果将在今年晚些时候为 iPhones 等产品举办活动)，但我们很可能会听到很多关于下一版本 iOS、watchOS、tvOS 和 macOS 的消息——可能还会有新的 Mac 或 iPad Pro 展示。
 

@@ -4,13 +4,9 @@
 
 买耳机是一个 [居然个人决定](https://lifehacker.com/how-to-choose-the-perfect-pair-of-headphones-5800772) ，但还是有几款这么受欢迎，你得去试试。今天，我们来比较世界上最受欢迎的三种易拉罐。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Headphone Showdown: Grado SR80e vs Audio-Technica ATH-M50x vs Sony MDR-V6](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-choose-the-perfect-pair-of-headphones-5800772) [###### 如何选择一副完美的耳机](https://lifehacker.com/how-to-choose-the-perfect-pair-of-headphones-5800772) 
 
-不管你是在家还是在路上，我们很多人都花很多时间在手机上听音乐…
 
-[Read more](https://lifehacker.com/how-to-choose-the-perfect-pair-of-headphones-5800772)</aside>
 
 ### 竞争者
 
@@ -34,11 +30,7 @@ Audio-Technica ATH-M50x(如上图)是我在这个价位用过的制作最精良�
 
 索尼 MDR-V6 和 MDR-7506 在另外两个耳机之间占据了一个很好的空间。它们像 Grados 一样轻，但感觉更结实一些。它们也可以折叠起来旅行，比 M50x 更小巧(还带有一个人造革包)。有一些小电线从头箍到罩杯，这有点烦人，耳垫往往会在一段时间后开始剥落小块皮革，这意味着你肯定会想要一些 [替换垫](http://www.bhphotovideo.com/c/product/888545-REG/Auray_eps_mdr7506_Genuine_Sheepskin_Leather_Earpads.html) 。它们带有一根盘绕的电缆，我很欣赏，但它是不可拆卸的。所以如果你喜欢直电缆，你就不走运了。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Headphone Showdown: Grado SR80e vs Audio-Technica ATH-M50x vs Sony MDR-V6](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/get-better-sound-from-your-favorite-headphones-with-the-1516562484) [###### 使用这些 DIY 模块，从您最喜爱的耳机中获得更好的声音](https://lifehacker.com/get-better-sound-from-your-favorite-headphones-with-the-1516562484) 
 
-找到一副完美的耳机是一个挑战——尤其是因为有时候，没有…
-
-[Read more](https://lifehacker.com/get-better-sound-from-your-favorite-headphones-with-the-1516562484)</aside>
 
 ### 声音
 

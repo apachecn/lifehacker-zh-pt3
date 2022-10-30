@@ -4,7 +4,7 @@
 
 任何时候一项新技术的引入，都会扰乱价值观、惯例和行为。这可以追溯到印刷术取代口述历史或电话取代面对面交谈之前，但今天在我们查看智能手机 [通知](http://dx.doi.org/10.1111/comt.12090) 的常规习惯中显而易见。孩子们在自动播放 [流媒体视频](http://dx.doi.org/10.1145/2858036.2858278) 和在 [我们需要他们安静的时候使用我们的手机的期望中成长。](https://medium.com/@awsamuel/why-kids-screen-time-is-a-feminist-issue-53d941681717#.4chc59sfi)
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/how-should-we-teach-our-kids-to-use-digital-media-67446) *。*
 

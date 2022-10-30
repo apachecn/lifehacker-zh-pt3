@@ -4,7 +4,7 @@
 
 加里·科恩辞去唐纳德·特朗普总统首席经济顾问 [钢铝关税](https://twocents.lifehacker.com/heres-who-would-be-bothered-by-trumps-import-tariffs-1823469353) 的职务，导致道琼斯指数周三下跌 300 点。
 
-Watch
+
 
 为什么市场受到惊吓？因为科恩的退出“标志着特朗普政府绝对会推进关税，贸易战的风险现在更高了，”独立顾问联盟(Independent Advisor Alliance)首席投资官克里斯·扎卡雷利(Chris Schmidt)告诉 CNN 财经 。
 

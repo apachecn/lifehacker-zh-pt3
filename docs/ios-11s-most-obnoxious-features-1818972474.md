@@ -4,7 +4,7 @@
 
 iOS 11 为 iPhone 和 iPad 带来了 [许多令人兴奋的新功能](https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209) 。也带来了很多相当讨厌的。
 
-Watch
+
 
 像大多数新操作系统一样，iOS 11 在上市的第一周也出现了一些小问题，包括一个漏洞，即微软 Exchange 用户无法使用他们的 iPhones 发送或接收电子邮件 。
 

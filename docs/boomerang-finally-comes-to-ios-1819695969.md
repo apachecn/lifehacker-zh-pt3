@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/boomerang-finally-comes-to-ios-1819695969>
 
-Watch
+
 
 Boomerang 是一个电子邮件插件，可以让你控制何时发送电子邮件，现在是 iOS 上一个免费的全功能电子邮件应用程序。多年来，我们一直在我们的 [Android 下载包](https://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535) 中包含 Android 版本，该应用程序于 2010 年作为 Gmail 插件开始使用，所以这是一个漫长的过程。根据该应用程序设置菜单中的常见问题，iOS 版本处于测试阶段。
 

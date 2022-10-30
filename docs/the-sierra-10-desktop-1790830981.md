@@ -4,7 +4,7 @@
 
 读者 [亚历克](http://kinja.com/stranaha2) 提交了这个桌面，它给 macOS 带来了一点 Windows 10，但只是好的部分。Mission Control 有一个可爱的统一外观，底部有一个应用程序启动器，功能像一个任务栏。这是所有设置的方式。
 
-Watch
+
 
 如果你不是很了解的话，你会认为 Alec 的桌面实际上是一台 Windows PC，但仔细看看上面的 GIF，你会发现不——它实际上是一台 Mac，运行 Sierra。它只是稍微定制了一下，引入了 Windows 的一些熟悉的方面，作为一个跨平台工作的人，我可以理解这一点。Alec 在这里选择的工具是[über sicht](http://tracesof.net/uebersicht/)，一个我们在 之前已经强调过的定制工具 [。](https://lifehacker.com/ubersicht-customizes-your-os-x-desktop-with-widgets-and-1591137635)
 

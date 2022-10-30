@@ -4,7 +4,7 @@
 
 安德烈拥有并喜爱有史以来最两极分化的汽车之一，庞蒂亚克阿兹特克。她把那辆车开到 350，000 英里，不得不卖掉它。现在，她正在寻找具有同样“魅力”的东西。她应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

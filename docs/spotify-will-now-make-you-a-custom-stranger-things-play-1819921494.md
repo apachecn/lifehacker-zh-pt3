@@ -4,7 +4,7 @@
 
 在营销噱头包括网飞倒计时 [时钟和以“奇怪模式”为主题的 Lyft 游乐设施](https://lifehacker.com/kick-off-halloween-weekend-with-a-stranger-things-lyft-1819874421#_ga=2.67303251.371366763.1509106385-1153831064.1487619421) 之后，又增加了一个迷人的*陌生事物*噱头:与今天的第二季发布相结合， [Spotify 推出了以节目中不同角色为主题的定制播放列表](https://www.spotify-strangerthings.com/) ，并将分析你的收听习惯来选择你的“角色简介”和播放列表。
 
-Watch
+
 
 就我而言，我显然适合参加“疯狂的麦克斯的 Sk8 会议”:
 

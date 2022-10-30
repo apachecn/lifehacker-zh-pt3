@@ -4,7 +4,7 @@
 
 如果你需要在 OS X 内部运行 Windows，你有三个选择:VirtualBox、VMware 和 Parallels。每一种都有自己的优点和缺点，以及一种比另一种更好的不同用例。让我们来分解一下每一个什么时候是最好的，为了什么。
 
-Watch
+
 
 ### 竞争者
 
@@ -28,11 +28,7 @@ Watch
 
 ****它们都很简单，尽管 Parallels 对新用户来说有一点优势，因为它在整个过程中都握着你的手。就用户友好性而言，Parallels 一直是我们测试的三款产品中最强的。这使得它成为对设置不感兴趣的人的一个很好的解决方案。****
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">****[![Image for article titled Run Windows on Your Mac: VirtualBox vs VMware Fusion vs Parallels](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-install-windows-8-in-a-virtual-machine-5841065) [###### 如何在虚拟机中安装 Windows 8？](https://lifehacker.com/how-do-i-install-windows-8-in-a-virtual-machine-5841065) 
 
-亲爱的 Lifehacker，在看到 Windows 8 中一些有趣的新功能后，我想给它…
-
-[Read more](https://lifehacker.com/how-do-i-install-windows-8-in-a-virtual-machine-5841065)****</aside>
 
 ### ****与众不同的附加功能****
 

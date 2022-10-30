@@ -4,7 +4,7 @@
 
 [比特币](https://lifehacker.com/what-is-bitcoin-and-what-can-i-do-with-it-5991523) 的价格可能仍在 [下跌](https://www.coindesk.com/2-month-low-bitcoin-price-drops-9k/) ，但这并没有阻止一些大公司蜂拥而上的 [加密货币](https://lifehacker.com/preview/beyond-bitcoin-your-guide-to-the-other-major-cryptocur-1821656104?rev=1514581574792) 热潮。上个月是 [柯达](https://lifehacker.com/why-kodaks-bitcoin-scheme-is-a-scam-you-should-avoid-1821957658) ，现在 Square(Twitter 联合创始人杰克·多西创建的移动支付公司)也加入了比特币的行列。
 
-Watch
+
 
 [多西周三](https://twitter.com/jack/status/958743238512328704?ref_src=twsrc%5Etfw&ref_url=https%3A%2F%2Fwww.digitaltrends.com%2Fmobile%2Fcash-app-bitcoin%2F) 宣布，Square Cash，该公司对 Venmo 的回答，将让你从应用程序内部买卖比特币。整个过程看起来非常简单，但如果你需要一些帮助，这里有一个用现金投资原始加密货币的快速指南。
 

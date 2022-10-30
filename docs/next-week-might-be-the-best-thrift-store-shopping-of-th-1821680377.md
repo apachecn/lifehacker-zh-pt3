@@ -4,7 +4,7 @@
 
 如果你在寻找新的东西，但不打算买新的，那么接下来的几周可能是一年中你去当地旧货店的最佳时间。
 
-Watch
+
 
 [Reddit 用户 Loreleigeller 建议](https://www.reddit.com/r/LifeProTips/comments/7n5so4/lpt_need_newtoyou_stuff_the_first_week_of_january/) 一月的第一周是去旧货店购物的最佳时间。这个想法是，人们花时间清理一些多余的东西，这样他们就可以开始新的一年。假日季节也经常让人们感觉更慷慨，这意味着他们可能会赠送他们原本会保留的物品，或者在收到新的礼物后更愿意放弃旧的立式搅拌机之类的东西。
 

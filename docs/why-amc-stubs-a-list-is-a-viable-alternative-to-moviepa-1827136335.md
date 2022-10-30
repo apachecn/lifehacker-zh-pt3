@@ -4,7 +4,7 @@
 
 上周有消息称，AMC 影院将推出自己的电影- 观看订阅节目 ，与 MoviePass 和 Sinemia 竞争。如今， [Stubs A-List](https://www.amctheatres.com/amcstubs/alist) 服务已经上线运行，每周提供三场 AMC 电影放映(任何类型)，每月收费 20 美元。
 
-Watch
+
 
 [AMC 存根](https://www.amctheatres.com/amcstubs) 本身并不新鲜。标准的免费票根忠诚度奖励计划已经存在了一段时间，为 AMC 的回头客免费续杯大爆米花，周二的廉价电影票，以及赢取折扣 m ovie 电影票积分的机会。现在有一个新的付费票根层，让你每周看几部电影，就像电影通行证一样: [票根 A-List](https://www.amctheatres.com/amcstubs/alist) 。以下是你需要知道的细节:
 

@@ -4,7 +4,7 @@
 
 当你在求职申请中犯了一个大错误时，你通常会知道。你忘了附上你的简历。你发错版本了。你将求职信发送给克里斯·艾伦先生，然后意识到克里斯很有可能是女性。但是其他时候你不知道你在犯错误。
 
-Watch
+
 
 <small>*本帖原载于*</small> [<small>*缪斯*</small>](https://www.themuse.com/advice/4-job-search-techniques-you-think-work-but-dont) <small>*。*T15】</small>
 

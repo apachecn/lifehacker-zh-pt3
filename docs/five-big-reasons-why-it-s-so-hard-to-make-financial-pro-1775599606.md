@@ -4,7 +4,7 @@
 
 虽然我喜欢写作和谈论财务独立和财务进步的所有好处，但我会第一个承认这条道路是艰难的。虽然个人理财背后的[*想法*很容易](http://www.thesimpledollar.com/everything-you-ever-really-needed-to-know-about-personal-finance-on-the-back-of-five-business-cards/) ，但实际上要付诸实施却是难上加难。那么，我们如何克服挑战呢？
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/five-big-reasons-why-its-so-hard-to-make-financial-progress-and-strategies-for-overcoming-each-one/) *上。*
 

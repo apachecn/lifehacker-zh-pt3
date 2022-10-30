@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**唤醒模式说服孩子上床**](http://vitals.lifehacker.com/wake-mode-convinced-my-child-to-go-to-bed-1793341957#_ga=1.192261546.1646006925.1460757386)
 

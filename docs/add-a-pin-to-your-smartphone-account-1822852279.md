@@ -4,7 +4,7 @@
 
 如果你在手机上设置了密码，并在智能手机上设置了基于短信的双重认证，你可能会认为自己很安全，不会被黑客攻击。
 
-Watch
+
 
 虽然你比大多数人做得好得多，但你的手机——以及你与之关联的所有账户——实际上仍然容易受到攻击者的攻击。在最近的一个故事中， [*Buzzfeed* 注意到](https://www.buzzfeed.com/nicolenguyen/how-to-prevent-mobile-account-hacking?utm_term=.impDQrNxL#.dlpA6P3Xp) 一个聪明的黑客可以访问你的社会保险号的最后四位数字或者你的假身份证，他仍然可以冒充你，把你的电话号码转移到另一个设备上，保留你的号码。
 

@@ -4,13 +4,9 @@
 
 这个世界可能是一个危险的地方，尤其是对粗心的旅行者来说。美国国务院尽最大努力提醒游客注意的风险，但这些警告并不总是清晰的。事实证明，发布旅游警告最多的国家并不总是最危险的。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Countries That Are Actually the Most Dangerous for Tourists](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-stay-safe-while-traveling-alone-5984288) [###### 一个人旅行怎么才能保持安全？](https://lifehacker.com/how-can-i-stay-safe-while-traveling-alone-5984288) 
 
-亲爱的 Lifehacker，我打算很快自己去旅行。我很兴奋，但也有点…
 
-[Read more](https://lifehacker.com/how-can-i-stay-safe-while-traveling-alone-5984288)</aside>
 
 对美国游客来说，去墨西哥、马里、以色列和巴基斯坦等被发布警告和警戒的国家旅行会致命吗？算是吧。 [通过数据收集数据。《世界与价格经济学》显示](https://blog.data.world/do-state-department-travel-warnings-reflect-real-danger-be4156970722) 在一个国家遇难的美国游客数量和发布的旅游警告数量之间肯定存在显著的关系。但是对于哪些地方实际上是最危险的，还存在一些困惑
 

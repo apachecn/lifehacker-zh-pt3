@@ -4,7 +4,7 @@
 
 就像你大学时的朋友不停地在脸书上发帖一样，柯达真的对 [加密货币](https://lifehacker.com/preview/beyond-bitcoin-your-guide-to-the-other-major-cryptocur-1821656104?rev=1514581574792) 着迷。在 [CES 2018](https://lifehacker.com/the-first-google-home-with-a-screen-already-offers-more-1821910986) 期间，该公司宣布了一项双管齐下的区块链战略:1)其名为 [KodakCoin](https://www.kodak.com/kodakone/default.htm) 的自有加密货币，旨在改善摄影师的图像权利；2)名为 KashMiner 的比特币开采计划，客户可以租赁设备，据称可以在两年内赚钱。
 
-Watch
+
 
 第一个主意不错。它使用区块链技术来解决一个合法的问题，柯达的成熟品牌可以帮助普及图像权利公共分类账的想法，以确保摄影师从他们的工作中获得报酬。然而，第二个声明很快被认为是一个骗局，证明了比特币泡沫即将破裂。
 

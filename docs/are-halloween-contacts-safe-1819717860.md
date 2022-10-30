@@ -4,7 +4,7 @@
 
 接触猫的瞳孔或霓虹的颜色会很有趣，但是你确定你想把一片服装店的塑料放进你的眼睛里吗？我们从美国验光配镜协会 那里得到了一些建议，告诉我们如何在聚会上看起来很酷，而不会引起严重的眼部感染。
 
-Watch
+
 
 首先，如果你可以在没有眼科医生处方的情况下购买隐形眼镜，它们是不合法的。不过，实物可能会很贵:我们发现每个镜头的价格从 22 美元到 50 美元不等*[【lens.com】](https://www.lens.com/halloween-contact-lenses/)[AClens](https://www.aclens.com/halloween-type)和 [Wicked Eyez](https://wickedeyez.com/) 。(这些网站都允许你在线订购，但你必须在结账屏幕上提供你的医生信息。)*
 

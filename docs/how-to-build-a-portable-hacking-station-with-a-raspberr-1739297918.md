@@ -4,17 +4,13 @@
 
 [、破解 Wi-Fi 密码](http://lifehacker.com/how-to-crack-a-wi-fi-password-5953047) 、 [、欺骗账户](http://lifehacker.com/how-to-tap-your-network-and-see-everything-that-happens-1649292940#_ga=1.63072039.968941705.1436971740) 和 [测试网络](http://lifehacker.com/know-your-network-the-complete-guide-5833254) 是否有漏洞都很有趣，但如果你想在路上表演，你需要一个方便携带的装备。输入 [卡莉 Linux](http://www.kali.org/) 和 [树莓派](https://www.raspberrypi.org/) 。
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-sixth-annual-evil-week-1738276927) *系列的一部分，在这里我们看到了做事的阴暗面。有时邪恶是正当的，而其他时候，知道邪恶意味着知道如何打败它。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evil-week#_ga=1.105669515.968941705.1436971740) *。*
 
 Kali Linux 是 [为网络渗透测试](https://lifehacker.com/linux-security-distros-compared-tails-vs-kali-vs-qub-1658139404) 而打造的操作系统。你可以在你的笔记本电脑上运行它来破解附近的 Wi-Fi 密码，欺骗网络，测试蓝牙漏洞，以及许多其他事情。记住，利用这些知识侵入受保护的网络可能会让你被捕并被控重罪——可能是违反计算机安全法的联邦指控。你应该把这些知识用于好的方面，用于你自己的学习，并且只玩你控制的网络。在使用 之前，我们已经非常广泛地讨论了使用 [Kali Linux，所以我们不会在这里详细讨论，但是请查看我们的](http://lifehacker.com/behind-the-app-the-story-of-kali-linux-1666168491#_ga=1.261824013.1055861349.1441835238) [指南，了解您可以使用它做的一切](https://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071) 。所有这些都适用于我们将在这里构建的 Raspberry Pi 版本。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Build a Portable Hacking Station with a Raspberry Pi and Kali Linux](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071) [###### 如何利用 Kali Linux 入侵您自己的网络并增强其安全性](https://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071) 
 
-Kali Linux 是一个注重安全性的操作系统，您可以在任何地方从 CD 或 USB 驱动器上运行。…
-
-[Read more](https://lifehacker.com/how-to-hack-your-own-network-and-beef-up-its-security-w-1649785071)</aside>
 
 Raspberry Pi 是一款小型的信用卡大小的电脑，使用起来不需要太多电力。当你把 Raspberry Pi 和 Kali Linux 结合在一起时，你就得到一台超级便携的网络测试机，你可以把它带到任何地方。在本指南中，我们将向您展示如何让 Kali 通过触摸屏在 Raspberry Pi 上运行。这样，您永远不需要在您的主计算机上安装 Kali Linux。
 

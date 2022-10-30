@@ -4,7 +4,7 @@
 
 社会保障已经是一个热点问题，最近的变化让人们 [*真的*为之抓狂](http://boston.cbslocal.com/2016/03/02/is-social-security-doomed-5/) ，这让人们很难忘记愤怒，只是面对事实。以下是你应该知道的变化。
 
-Watch
+
 
 如果你不熟悉社会保障是如何运作的，没关系——这个程序是 [复杂且经常被误解的](https://lifehacker.com/everything-you-need-to-know-about-social-security-1737691457) ，但是获取福利的基本原理很容易理解。去年，政府 [签署了两党预算法案](https://www.govtrack.us/congress/bills/114/hr1314) 成为法律，该法案包括了一些对社会保障福利征收规则的修改。这些变化最近开始生效，他们取消了一些帮助人们实现利益最大化的明智策略。
 

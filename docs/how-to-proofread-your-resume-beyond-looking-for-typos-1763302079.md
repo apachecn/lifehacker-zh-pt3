@@ -4,7 +4,7 @@
 
 你的简历不仅是你职业生涯的总结，也是你下一个绝佳机会的门票。所以，是的，这是件大事。考虑到这一点，在你使用它做任何事情之前，有一双额外的眼睛来检查它以确保它处于最佳状态是一个好主意。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/3-questions-to-ask-a-friend-editing-your-resume-besides-are-there-any-typos) *。*
 
@@ -16,11 +16,7 @@ Watch
 
 让你的面试官猜一猜你会申请什么样的职位，这能让你很好地了解你看起来适合什么样的角色。如果你得到的答案太离谱，可以考虑 [为这个职位量身定制你的简历](https://www.themuse.com/advice/what-it-really-means-to-tailor-your-resume) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Proofread Your Resume Beyond Looking for Typos](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-things-job-candidates-obsess-over-that-hiring-mana-1670410029) [###### 招聘经理不关心的五件事](https://lifehacker.com/five-things-job-candidates-obsess-over-that-hiring-mana-1670410029) 
 
-你有没有精心制作一份字体完美的简历？你可能关注错了
-
-[Read more](https://lifehacker.com/five-things-job-candidates-obsess-over-that-hiring-mana-1670410029)</aside>
 
 ### **2。你是从什么时候开始略读的？**
 

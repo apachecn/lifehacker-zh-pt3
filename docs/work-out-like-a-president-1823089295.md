@@ -4,7 +4,7 @@
 
 巴拉克奥巴马 [打篮球](http://ftw.usatoday.com/2017/01/president-barack-obama-basketball-how-good-arne-duncan-photos-videos) 。比尔·克林顿和布什夫妇 [喜欢跑步](https://www.runnersworld.com/celebrity-runners/running-mates-running-with-potus) 。即使是唐纳德·特朗普 [也有时间打高尔夫球](https://www.cnn.com/2018/02/14/golf/donald-trump-golf-swing-barack-obama-george-bush-intl/index.html) 。但是如果你想尝试一些更老派的运动，这里有一些历史上总统们最喜欢的运动。
 
-Watch
+
 
 **早起游泳**。约翰·昆西·亚当斯喜欢清晨散步，如果天气好的话，他喜欢在波托马克河的一条支流里裸泳。(有一个故事说，一个记者曾经跟着他到河边，坐在他的衣服上，直到他同意对她进行采访，但是 [这可能不是真的](http://ploddingthroughthepresidents.blogspot.com/2017/02/john-quincy-adams-skinny-dipping.html) 。)
 

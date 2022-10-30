@@ -4,7 +4,7 @@
 
 利兰·梅尔文是人类的独角兽。他被国家橄榄球联盟选中，在最后的边疆飞行(两次)，现在， [写了一本书](http://www.barnesandnoble.com/w/chasing-space-leland-melvin/1124484021) 叫做*追逐太空*。在互联网上，这位前美国宇航局宇航员最出名的是这张令人难忘的照片 [和他的两只狗](http://gizmodo.com/the-story-behind-this-astronauts-viral-photo-is-even-cu-1791888042) ，杰克和斯科特登上了他新回忆录的封面。Gizmodo 与 Melvin 坐下来谈论蒸汽领域的多样性、教育，当然还有太空中的好狗。
 
-Watch
+
 
 我们还跳了两次皮特保罗舞。以下是经过轻微编辑和压缩的采访内容。
 

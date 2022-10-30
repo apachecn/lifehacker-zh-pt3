@@ -4,7 +4,7 @@
 
 信件滚滚而来， [庆祝活动刷爆互联网](https://www.cnn.com/videos/us/2018/03/24/college-acceptance-family-celebration-smith-hln-sot.hln) 。对于高中毕业生来说，等待他们申请的大学的回音，是一年中最令人伤脑筋的时候。
 
-Watch
+
 
 会有喜悦，但也会有许多失望。以下是你可以帮助你的孩子克服被梦想学校拒绝的痛苦的方法:
 

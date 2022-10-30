@@ -4,7 +4,7 @@
 
 “关于拼写，重要的是要知道，这不仅仅是死记硬背，”2017 年斯克里普斯全国拼写大赛的冠军 Ananya Vinay 说，他将在下周举行今年的大赛。虽然 Vinay 使用抽认卡来学习特定的单词，但她说真正的诀窍是了解不同单词的来源。
 
-Watch
+
 
 英语拼写大多模糊不清，因为它借用了许多其他语言的词汇。每种语言都有更可靠的拼写规则。所以要拼一个单词，你要知道它的来源。(在蜜蜂中，参赛者可以 [要求](http://spellingbee.com/sites/default/files/inline-files/Contest_Rules_of_the_2018_Scripps_National_Spelling_Bee.pdf) 一个词的起源，以及它的定义、词性和在句子中的用法。)
 

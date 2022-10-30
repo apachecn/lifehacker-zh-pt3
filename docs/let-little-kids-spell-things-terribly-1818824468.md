@@ -4,7 +4,7 @@
 
 小孩子会拼写最不可思议的事情，我是正确的吗？作为家长，你可能会有些担心，甚至可能会忍不住拿出红色的教师笔，但要知道，“发明拼写”是完全正常的，甚至可能是早期阅读成功的关键。
 
-Watch
+
 
 今年发表在 [*发展心理学*](https://www.researchgate.net/publication/308036659_Invented_Spelling_in_Kindergarten_as_a_Predictor_of_Reading_and_Spelling_in_Grade_1_A_New_Pathway_to_Literacy_or_Just_the_Same_Road_Less_Known) 上的一项 [研究发现，在幼儿园里更多地“自我指导尝试用印刷体表达单词”的孩子——基本上，那些试图仅用他们对字母发音的了解来写单词的孩子——在一年级时具有更强的识字技能。这些发现似乎支持了一些教育工作者多年来一直宣扬的观点:让阅读技能蓬勃发展的是有目的的故事和写作，而不是抽认卡、工作表和每周信函。](http://psycnet.apa.org/doiLanding?doi=10.1037%2Fdev0000179)
 

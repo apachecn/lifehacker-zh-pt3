@@ -4,7 +4,7 @@
 
 “ [人像模式](https://lifehacker.com/remains-of-the-day-apples-new-portrait-mode-for-iphone-1786963746) ”自苹果推出 iPhone 7 Plus 以来就已经存在，而 [散景式摄影](https://lifehacker.com/create-your-own-bokeh-for-beautiful-photo-effects-5142551) 在那之前很久就已经存在了。如今， [大多数高端智能手机](https://www.zdnet.com/article/smartphone-portrait-mode-shootout-eight-phones-starting-at-200-challenge-the-1000-apple-iphone-x/) 都带有某种背景模糊相机模式。如今，Instagram 也加入了这一行列。
 
-Watch
+
 
 脸书公司 [周二宣布了](https://instagram-press.com/blog/2018/04/10/introducing-focus/) 新的“焦点”设置，作为该应用程序最新更新(版本 39.0)的一部分。它适用于 iPhone SE、6S、6S Plus、7、7 Plus、8、8 Plus 和 X，以及“选择 Android 设备”
 

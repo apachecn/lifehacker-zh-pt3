@@ -4,7 +4,7 @@
 
 亚马逊增强了其语音控制助手 Alexa 的一些基本功能。你最喜欢的女士现在可以设置提醒和多个定时器，每个都有不同的名字。因为如果有什么比助手更好的话，那就是助手会提醒你事情何时完成以及需要多长时间——尤其是当你问的时候。
 
-Watch
+
 
 亚马逊不断用 [新技能](https://www.amazon.com/s/ref=sr_hi_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/amazon-s-alexa-now-features-reminders-and-multiple-time-1795764830&asc_source=&bbn=13727921011&ie=UTF8&qid=1496441148&rh=n:13727921011&tag=kinjalifehackerlink-20) 更新 Alexa，范围从平凡到关键——后者是提醒和列表。运行多个定时器意味着你可以在炖肉烘烤的时候问你的馅饼定时器还剩多长时间。考虑到设置计时器是多么常见和有用，这个附加功能应该是自 Alexa 诞生以来就应该有的。
 

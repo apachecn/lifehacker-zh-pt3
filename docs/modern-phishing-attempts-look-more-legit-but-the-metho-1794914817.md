@@ -4,7 +4,7 @@
 
 你收到一封新邮件，看起来像是来自朋友、公司、政府官员，甚至是家庭成员。那封邮件里只有一个链接。你点击它，因为，你当然会点击。您将进入一个登录页面，在这里输入您的凭证。然后，该网站被证明是假的，并收集您的密码。恭喜你，你被钓鱼了。
 
-Watch
+
 
 网络钓鱼是一种由来已久的获取您的登录凭证或访问您的帐户的方式。网络钓鱼背后的想法非常简单:它是欺骗你交出你的信息，所以没有实际的黑客攻击是必要的。从历史上看，这意味着给你发一封电子邮件，并希望你点击它。该链接指向网络钓鱼者建立的一个网站，该网站看起来像是真实网站的登录页面。登录后，网站会保存您的用户名和密码。这种情况从上世纪 90 年代就开始了，当时, [warez 社区【](https://books.google.com/books?id=mrBBFkCaulkC&pg=PA227&lpg=PA227&dq=warez+aol+phishing&source=bl&ots=LS4xfLKJzA&sig=Tzm2QEle-Nr3QTBBSSJVhHDUbA8&hl=en&sa=X&ved=0ahUKEwj14JqhttbTAhVkwVQKHZpEDXc4ChDoAQgoMAE#v=onepage&q=warez%20aol%20phishing&f=false)】T3】利用钓鱼邮件窃取人们的 AOL 密码。
 

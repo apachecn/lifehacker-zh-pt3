@@ -4,7 +4,7 @@
 
 写日记表面上看起来似乎很傻，但是写日记是非常有用的 ，它既是你思想的永久记录，也是一种宣泄。不管你打算如何使用日记，我们在 iPhone 上最喜欢的是第一天。
 
-Watch
+
 
 ### [第一天](https://itunes.apple.com/us/app/day-one-journal/id1044867788?mt=8)
 

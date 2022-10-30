@@ -4,7 +4,7 @@
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 
-Watch
+
 
 就在这一年，我们发现了 [酱油加黄油](https://thetakeout.com/magic-happens-when-you-combine-soy-sauce-and-butter-1798260779) 的炼金术奇迹，这是一种风味组合，它让所有接触到的食物都充满了强烈的牛肉味。也许牛肉不是一个合适的词，但它确实解释了当你咬下一口油腻的里贝叶牛排时，舌头上覆盖的那种满满的味觉。*这就是鲜味和大豆黄油不费吹灰之力就能达到的美味。*
 

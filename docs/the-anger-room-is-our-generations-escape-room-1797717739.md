@@ -4,7 +4,7 @@
 
 几个世纪前，从 2007 年到 2016 年，最吸引人的是 [逃生室](https://io9.gizmodo.com/could-you-solve-enough-puzzles-to-make-it-out-of-this-l-1622405374) ，这是一种真人版的 Myst 游戏，在这里你可以解开谜题，离开地牢、图书馆或蒸汽朋克实验室。但现在是 2017 年，不是玩脑力游戏的时候。是时候发泄愤怒了。愤怒屋时间到了。
 
-Watch
+
 
 在愤怒屋，你花钱去砸电子产品、家具、人体模型和房间本身。虽然这些房间至少从 2008 年 起就已经在 [附近了，但它们最近生意兴隆，来自*纽约时报*的佩内洛普·格林说，她](http://newsfeed.time.com/2012/05/12/go-ahead-smash-everything-in-the-room-its-therapy/) [参观了曼哈顿的破坏俱乐部，在电视上摇摇晃晃，拿着棒球棒](https://www.nytimes.com/2017/08/09/style/anger-rooms-the-wrecking-club.html) 点盘子。
 

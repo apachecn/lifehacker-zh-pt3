@@ -4,7 +4,7 @@
 
 如果你认为你的学区或学院基于性别、种族或残疾歧视学生，你有权 [向美国教育部民权办公室](https://www2.ed.gov/about/offices/list/ocr/complaints-how.html) 投诉。性骚扰和攻击也是投诉的理由。该办公室应该进行全面调查，如有必要，建议采取纠正措施来纠正任何错误。
 
-Watch
+
 
 但是 [ProPublica 报道](https://www.propublica.org/article/devos-has-scuttled-more-than-1-200-civil-rights-probes-inherited-from-obama) 与她的前任相比，在贝琪·德沃斯的领导下，教育部现在驳回了更多没有采取行动的案例。为了配合他们的报告，他们发布了 [工具，让你可以查找你所在的学区或学院](https://projects.propublica.org/graphics/civil-rights-violations#186) 来了解在过去几年中有多少调查已经开始，以及它们是如何解决的。
 

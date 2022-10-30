@@ -4,7 +4,7 @@
 
 如果你有一双 [AirPods](https://lifehacker.com/fast-pair-brings-one-of-apple-s-best-airpod-features-to-1820042148) ，你甚至没有意识到你已经随身携带了一个 [智能手机支架](https://lifehacker.com/make-a-super-quick-phone-or-tablet-stand-out-of-cardboa-1512059509) 。事实证明，当你想休息一下看视频时，无线耳塞套也是支撑你的 iPhone 的完美形状。
 
-Watch
+
 
 这个意想不到的功能是由应用程序开发人员 Omar Elfanek 发现的，他在 Twitter 上分享了这一实现，并附有快速 GIF 作为证据:
 

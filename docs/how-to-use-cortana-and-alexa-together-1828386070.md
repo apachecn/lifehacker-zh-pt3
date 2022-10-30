@@ -4,7 +4,7 @@
 
 就在这个月， [亚马逊和微软迫使他们的语音助手开始相互交谈](https://www.tomshardware.com/news/microsoft-amazon-preview-cortana-alexa-integration,37607.html) ，你现在可以使用 Cortana 访问 Alexa，反之亦然，如果你在美国，新发现的友谊为更简单的组织和管理打开了大门，因为你最终将不必在两者之间来回切换来管理你的个人或职业生活。(要是所有的数字助理都能效仿就好了。)
 
-Watch
+
 
 目前，Alexa-Cortana 连接相当有限，大多数功能只能在亚马逊 Echo 设备、Windows 10 PC 或哈曼卡顿 Invoke 扬声器上工作。然而，微软和亚马逊已经启用了一些很酷的功能，你现在就可以尝试，并承诺未来会有更多的功能。以下是开始的方法:
 

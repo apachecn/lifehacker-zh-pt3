@@ -4,7 +4,7 @@
 
 周末外出探险是很棒的，但是你总会想要一些随身物品。以下是《每日邮报》读者皮特·K 带来的报道。
 
-Watch
+
 
 袋子里是一个 [劳阿尔卑斯扛的](http://www.amazon.com/dp/B019L3P3KI/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-weekend-adventure-bag-1772919685&asc_source=&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

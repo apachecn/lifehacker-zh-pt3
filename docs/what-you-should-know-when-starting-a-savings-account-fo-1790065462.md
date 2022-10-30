@@ -4,7 +4,7 @@
 
 你有婴儿床。婴儿监视器。婴儿车。安全性最高的汽车座椅。你为你家庭的新成员考虑得很周到。还是你有？宝宝的财务前途如何？
 
-Watch
+
 
 *本帖原载于* [*慢慢变富*](http://www.getrichslowly.org/blog/2016/11/15/saving-for-your-newborn/) *。*
 

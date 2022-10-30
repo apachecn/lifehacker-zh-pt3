@@ -4,7 +4,7 @@
 
 苏格兰爱丁堡的旅游小贴士变得很棒。以下是本周 [黑你的城市](https://lifehacker.com/c/hack-your-city) 的亮点。下面的大部分提示来自更长的评论，所以去阅读我们周一帖子 中的 Staff 标签下的完整评论 [。用你最好最差的苏格兰口音读出来。](https://lifehacker.com/tell-us-your-best-edinburgh-travel-tips-1828095330) 
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

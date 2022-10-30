@@ -6,11 +6,7 @@
 
 *Watch*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled How to Make Perfect Scrambled Eggs, No Matter How You Like Them](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-a-perfect-over-easy-egg-1798540985) [###### 如何做一个完美的鸡蛋](https://lifehacker.com/how-to-make-a-perfect-over-easy-egg-1798540985) 
 
-在所有简单的早餐中，我最喜欢一份煎得太嫩的鸡蛋面包。这些…
-
-[Read more](https://lifehacker.com/how-to-make-a-perfect-over-easy-egg-1798540985)*</aside>
 
 *首先，不管你的目标是什么样的蛋蛋结果，你都需要合适的设备。对于你的锅，你会想要一些的不粘锅，你还会需要 [一个硅胶锅铲](https://skillet.lifehacker.com/the-three-spatulas-every-kitchen-needs-1800013242) 来执行抓取的动作。你还需要一些鸡蛋(我每人用三个)，一汤匙(可选)乳制品(我喜欢一半一半)，一小撮盐和一些胡椒。我总是在烹饪前加盐— [盐在分子水平上起作用，给你更嫩的凝乳](https://lifehacker.com/salt-scrambled-eggs-15-minutes-before-cooking-for-the-p-1737044156)——然后放入胡椒。*
 

@@ -4,7 +4,7 @@
 
 给狗打疫苗是件好事。没有人希望弗劳尔斯先生死于狂犬病，也不希望他传染给其他宠物或人。(提醒:未经治疗的狂犬病是致命的，而且非常可怕。)但人们很容易被疫苗副作用的谣言吓到，一些人拒绝为他们的宠物注射疫苗。
 
-Watch
+
 
 每日电讯 [报道](http://www.dailywire.com/news/19240/idiot-hipsters-think-vaccines-are-making-their-hank-berrien) 跳过狗疫苗是“白痴潮人”正在做的事情，但它实际上是导致人们避免给孩子或自己接种疫苗的 [相同因素](https://lifehacker.com/you-can-convince-people-to-vaccinate-but-not-just-by-1734727861) 的自然延伸。(老实说:你去年打流感疫苗了吗？)
 

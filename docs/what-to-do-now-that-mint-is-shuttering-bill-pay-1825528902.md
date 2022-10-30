@@ -4,7 +4,7 @@
 
 薄荷，最受欢迎的预算应用 之一，将于 6 月 30 日结束其 [账单支付](https://lifehacker.com/how-i-used-mint-bills-to-finally-simplify-my-bill-payme-1717972364) 功能，该公司在其 [网站](https://help.mint.com/Bill-Pay/1060777521/Mint-bill-pay-is-no-longer-supported.htm) 上表示。
 
-Watch
+
 
 当被联系到发表评论时，Mint 的一位发言人说，“我们已经决定，让我们的团队专注于创新和创造最佳方式来帮助用户管理他们的钱是很重要的，并且没有看到大量用户通过 Mint 支付账单。”
 

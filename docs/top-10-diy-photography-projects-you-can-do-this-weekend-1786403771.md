@@ -4,7 +4,7 @@
 
 无论你是喜欢用 DSLR、智能手机还是介于两者之间的东西拍照，现在都是拍摄完美照片的绝佳时机。如果你需要配件、一些照明、一个工作室或其他工具来帮助你，这里有一些伟大的项目，需要一点时间、精力和一些 DIY 精神。
 
-Watch
+
 
 ### 10.打造负担得起、便携、优质的照明设备
 
@@ -32,11 +32,7 @@ Watch
 
 每个人都喜欢你在网上看到的那些美丽的延时视频。夜空中旋转的星星，阳光照耀下美丽的自然景观，甚至久而久之的街道和来来往往的人们——它们都很有趣，但它们并没有你想象的那么难制作。这个周末花一点时间 [，学习它们如何工作](https://lifehacker.com/effortlessly-document-your-party-with-simple-photo-proj-363311) ，尝试一两次——也许是为你的朋友录制一个聚会，或者甚至是一天中你窗外的风景。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 DIY Photography Projects You Can Do This Weekend](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/effortlessly-document-your-party-with-simple-photo-proj-363311) [###### 通过简单的照片项目轻松记录您的聚会](https://lifehacker.com/effortlessly-document-your-party-with-simple-photo-proj-363311) 
 
-每个人都喜欢回顾聚会上的照片，但是除非你很幸运…
-
-[Read more](https://lifehacker.com/effortlessly-document-your-party-with-simple-photo-proj-363311)</aside>
 
 如果你需要一点帮助， [微软的 Hyperlapse 可以帮你出](http://lifehacker.com/microsoft-hyperlapse-builds-time-lapse-highlight-reels-1704462375) ，Instagram 自带的[Hyperlapse 工具](http://lifehacker.com/instagram-releases-hyperlapse-creates-dead-simple-time-1626944135) 也可以。这两者都值得研究，取决于你是想拍摄一个短周期，然后让它超快，还是拍摄一个真正长周期，然后缩短它。
 

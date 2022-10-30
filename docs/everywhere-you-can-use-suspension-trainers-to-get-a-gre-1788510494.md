@@ -4,7 +4,7 @@
 
 当我旅行时，能够进行力量训练是我的第二要务(第一要务是拥有良好的互联网)，但我不能总是指望找到健身房。所以不管我在哪里，我已经开始依赖我的悬浮训练器和 MacGyver 式的感觉来进行我的 [力量训练](http://thefyslife.com/article/strength-bodyweight-workout-travel/) 。你也可以这样做。
 
-Watch
+
 
 悬浮训练器是一对带子，你可以挂在不同的地方，帮助你做无数不同的体重练习( [效果很好，](http://vitals.lifehacker.com/how-i-went-from-weight-lifting-to-bodyweight-exercises-1747454329) )。我去哪里旅行都带着它们，因为它们非常便携——基本上是把它们卷起来塞进你的旅行包里——但它们仍然足够多功能，你可以把它们放在自己家里或公园里，作为你标准养生的一部分。这里的诀窍是学会识别你可以如何悬挂这些悬挂训练器。
 

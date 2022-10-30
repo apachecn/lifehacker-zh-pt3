@@ -4,7 +4,7 @@
 
 Waze 一直是我们最喜欢的导航应用之一，即使 [谷歌早在 2013 年](http://www.businessinsider.com/how-google-bought-waze-the-inside-story-2015-8) 就收购了 Waze way，两者依然并存。谷歌地图很棒，但如果调整得当，Waze 也可以很棒——尤其是在交通繁忙的城市。
 
-Watch
+
 
 随着谷歌向地图添加更多类似 Waze 的功能，区分这两者变得越来越困难。尽管如此，对于驾驶来说(Waze 对任何其他类型的交通工具都没有任何用处)，Waze 往往更擅长在飞行中改变路线，提醒你注意警察和各种事件，并更专注于让你更快到达目的地的体验。都是些小特征，像 [Waze 的堵车估计](http://lifehacker.com/waze-now-tells-you-how-long-you-ll-be-stuck-in-traffic-1695389168#_ga=1.145748660.1610386042.1433200380) 和 [封路信息](http://lifehacker.com/waze-updates-to-help-you-easily-avoid-road-closures-5986831#_ga=1.145748660.1610386042.1433200380) 。
 

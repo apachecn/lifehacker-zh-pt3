@@ -4,7 +4,7 @@
 
 iPhone XS 和 XS Max 的困境仍在继续:除了 [蜂窝和 wifi 连接问题](https://lifehacker.com/how-to-fix-connectivity-issues-on-your-iphone-xs-1829340414) 之外，一些用户报告了他们设备的充电问题——主要是在他们的 iPhone 屏幕关闭时。
 
-Watch
+
 
 当他们去给他们的设备充电时，一些用户报告说必须首先唤醒屏幕才能开始充电。其他人说，当 Lightning 电缆首次插入时，他们的设备必须解锁或屏幕亮起。
 

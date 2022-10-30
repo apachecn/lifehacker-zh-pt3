@@ -4,7 +4,7 @@
 
 每年，当一个新的科技产品发布时，世界分成两种人:排队购买新的闪亮的东西的人，和大声抱怨新的闪亮的东西如何糟糕的人。这两组人都是笨蛋。对一个品牌的忠诚——不管是爱还是恨——都是让你变傻的毒药。
 
-Watch
+
 
 ### 品牌忠诚度将你锁定在任性、懒惰的垄断企业中
 
@@ -22,11 +22,7 @@ Watch
 
 从营销的角度来看，“品牌”的全部意义在于鼓励人们对产品产生情感依恋。公司不只是*要*你站出来维护他们， [他们靠的是](http://gawker.com/brands-are-not-your-friend-1684232182) 。他们想尽一切办法让你觉得你的身份与你购买的产品、你喝的饮料、你用的电脑、甚至你用来擦屁股的卫生纸有某种联系。他们需要你感受到那种依恋，因为这是最重要的，是让你回来的原因。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--kinja" data-commerce-source="inset"> [###### 品牌不是你的朋友](http://gawker.com/brands-are-not-your-friend-1684232182) 
 
-可口可乐上一次为你做好事是什么时候？
-
-[Read more](http://gawker.com/brands-are-not-your-friend-1684232182)</aside>
 
 还记得 2012 年 Wii U 上市的时候吗？ [它推出](http://kotaku.com/wii-u-the-kotaku-review-update-5961536) 后，被当时[的评论者普遍指责](http://www.ign.com/articles/2012/11/21/wii-u-review) 缺少游戏[其他问题。你会认为人们会耐心等待。没有。这并没有阻止人们在寒冷的冬天排队购买商店的限量供应，或者](http://www.wired.com/2012/11/10-things/) [制作 Wii U 追踪器](http://www.nowinstock.net/videogaming/consoles/nintendo/wiiu/) ，在网上寻找线索，睡在停车场，开几个小时的车去买一个。
 

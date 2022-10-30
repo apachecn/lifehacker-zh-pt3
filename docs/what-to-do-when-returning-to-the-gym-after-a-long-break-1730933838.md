@@ -4,17 +4,13 @@
 
 如果你已经远离你的日常锻炼很长时间了，想要恢复状态，你可能会想从你停下来的地方重新开始。但是你可能最终会伤害到自己或者 [变得如此疼痛](http://vitals.lifehacker.com/when-muscle-soreness-helps-muscle-growth-and-when-it-d-1720076931) 以至于你发誓再也不踏进健身房一步。以下是你如何聪明地对待你的胜利回归。
 
-Watch
+
 
 我们以前写过如何从体育馆 中抽出一些计划好的时间 [实际上可以*帮助*你的进步，但是突然的](http://vitals.lifehacker.com/get-better-results-by-taking-a-break-from-the-gym-1705423982) [动机忧郁](https://lifehacker.com/five-steps-to-get-back-into-your-fitness-routine-1658435892) 的发作，一次受伤，或者只是生活总的来说是一个完全不同的难题。这些事情中的任何一个都可能让你缺席几周(甚至几个月)，但是当你最终回到你的日常锻炼中时，你可能不确定你的开始(重新开始？)点或者也许甚至觉得有点紧张。
 
 嘿，那是完全正常的，而且它将需要一些时间让事情再次进行。你将不得不降低你的期望，因为毫无疑问会有一点“生锈”。不要对自己有这么高的自我要求，你也就不容易感到沮丧和放弃。所以准备好要有耐心！
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What to Do When Returning to the Gym After a Long Break](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-steps-to-get-back-into-your-fitness-routine-1658435892) [###### 五步回到你的健身常规](https://lifehacker.com/five-steps-to-get-back-into-your-fitness-routine-1658435892) 
 
-我们都曾在某个时候没能坚持锻炼。几周不训练，…
-
-[Read more](https://lifehacker.com/five-steps-to-get-back-into-your-fitness-routine-1658435892)</aside>
 
 在你回来的头几个星期，BodyRecomposition 的 Lyle McDonald 建议:
 

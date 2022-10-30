@@ -4,7 +4,7 @@
 
 所以你 [找不到你四年前购买的比特币](https://www.wsj.com/articles/good-news-you-are-a-bitcoin-millionaire-bad-news-you-forgot-your-password-1513701480) 。正如金融行业监管机构 [周四警告投资者](http://www.finra.org/investors/alerts/don%E2%80%99t-fall-cryptocurrency-related-stock-scams) 的那样，不要过度投资于突然决定“进入区块链”的可疑公司。因为它们可能只是个骗局。
 
-Watch
+
 
 FINRA 写道:“在购买任何提供加密货币投资机会的公司的股票之前，都要做好研究。”“不要被通过新闻稿、垃圾邮件、电话营销电话或在网上或社交媒体上发布的不切实际的退货和索赔预测所迷惑。”
 

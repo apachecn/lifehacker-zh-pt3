@@ -4,7 +4,7 @@
 
 构建一台 hackintosh——即在非苹果硬件上安装 macOS 过去需要极其有限的硬件选择和相当多的专业知识。现在您的选择范围很广，安装过程也相当简单。考虑到这一点，这里是我们构建 hackintosh 的最新指南，它将引导您购买兼容的部件，构建您的机器，并自行安装 macOS。
 
-Watch
+
 
 **目前最新版本:macOS 10.12 (UniBeast 方法)**
 
@@ -14,11 +14,7 @@ Watch
 
 一台 hackintosh 简单来说就是任何非苹果的硬件，被制造出来或者被“黑”出来运行 macOS。这适用于任何硬件，无论是制造商制造的还是个人制造的电脑。出于本指南的目的，我们只讨论一个可靠的方法来构建你*构建的黑客工具。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Always Up-to-Date Guide to Building a Hackintosh (macOS Sierra)](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/can-i-hackintosh-my-laptop-5869731) [###### 我能黑进我的笔记本电脑吗？](https://lifehacker.com/can-i-hackintosh-my-laptop-5869731) 
 
-亲爱的生活黑客，我有一个 Sorny Inspiron book mate 2564300 ip00。我能做 Hackintosh 吗？但是说真的，
-
-[Read more](https://lifehacker.com/can-i-hackintosh-my-laptop-5869731)</aside>
 
 这意味着你需要习惯于 [建造自己的机器](http://lifehacker.com/how-to-build-a-computer-lesson-3-building-the-compute-5827491) 并在遇到问题时提供自己的技术支持。如果您是构建 hackintosh 的新手，这种前景可能有点可怕，但它也将为您节省大量资金，同时仍然为您提供一台功能强大、完全可定制的机器。我们还会为您提供一些资源，帮助您了解构建计算机所需的一切知识，让您在第一次完成整个计算机构建过程时充满信心。这不是一个初学者的项目，但它是任何人都可以学会做的事情。
 
@@ -32,11 +28,7 @@ Watch
 
 挑选硬件和组装电脑通常是这个过程中最令人望而生畏的部分。谢天谢地，我们在这里为你做了很多工作！虽然您当然可以 [自己研究](https://lifehacker.com/how-do-i-choose-the-right-hardware-when-building-a-hack-5837615) 并挑选兼容的部件，但我们已经创建了一个 [大型预配置系统选择](http://www.customac.com/) 以及一个兼容部件列表，供您构建自己的系统。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Always Up-to-Date Guide to Building a Hackintosh (macOS Sierra)](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-choose-the-right-hardware-when-building-a-hack-5837615) [###### 构建 Hackintosh 时，我如何选择合适的硬件？](https://lifehacker.com/how-do-i-choose-the-right-hardware-when-building-a-hack-5837615) 
 
-亲爱的 Lifehacker，我已经阅读了你关于如何构建一个普通黑客电脑和一个迷你黑客电脑的指南，但是
-
-[Read more](https://lifehacker.com/how-do-i-choose-the-right-hardware-when-building-a-hack-5837615)</aside>
 
 我们的 [构建列表](http://www.customac.com/) 包括以下类型的机器:
 
@@ -50,11 +42,7 @@ Watch
 
 一旦你有了硬件，你就需要把它组装成一台可以工作的计算机。我们有一个关于计算机构建 的 [整个夜校课程，但是](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) [这个特定的课程将带你经历如何构建你的第一台计算机](http://lifehacker.com/how-to-build-a-computer-lesson-3-building-the-compute-5827491?tag=nightschool) 。努力遵循它，*仔细阅读您的主板和机箱手册*，您应该很快就会拥有一台功能正常的机器。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Always Up-to-Date Guide to Building a Hackintosh (macOS Sierra)](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) [###### 如何建造一台计算机:完全指南](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 
 
-从零开始构建一台计算机会为您提供满足您需求的完美机器，但它可能…
-
-[Read more](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747)</aside>
 
 ### 如何在你的 Hackintosh 上安装 macOS
 

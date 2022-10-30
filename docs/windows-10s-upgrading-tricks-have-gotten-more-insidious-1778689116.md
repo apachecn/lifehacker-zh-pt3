@@ -4,7 +4,7 @@
 
 未来几年，微软希望 [Windows 10 在 10 亿台设备上运行。](http://techcrunch.com/2015/04/29/microsoft-expects-1-billion-windows-10-devices-in-2-3-years/) 确保这种情况发生的一种方式是通过欺骗用户以不正当的方式升级。但真正的问题是:Windows 10 是一个很好的操作系统，而微软的策略给了它一个坏名声。
 
-Watch
+
 
 那些关于人们意外升级到 Windows 10 的故事并不是虚构的； [几个月前发生在我身上的](http://kotaku.com/my-pc-upgraded-to-windows-10-without-asking-then-immed-1764756440)T3！有一段时间，当升级框弹出时，我会简单地将其安排在以后——冲洗并重复。然后不管什么原因，它决定一夜之间自发升级。由于一个小故障，Windows 10 随后锁定了我的文件，并由于驱动程序问题中断了我的互联网连接。
 

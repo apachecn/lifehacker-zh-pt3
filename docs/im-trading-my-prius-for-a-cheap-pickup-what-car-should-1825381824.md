@@ -4,7 +4,7 @@
 
 亚历克斯弄坏了他的普锐斯，但他正利用这个机会得到他一直想要的东西:一辆皮卡。唯一的困难是他的预算很紧，我们都知道找到一辆便宜的好卡车并不容易。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

@@ -4,7 +4,7 @@
 
 在考虑诸如或 [Windows](https://fieldguide.gizmodo.com/10-useful-windows-10-features-you-probably-never-use-bu-1820980875) 之类的干扰之前，苹果公司有一种明确的倾向，即让其设备彼此良好合作，多年来，iPhone 和 Mac 已经建立了很强的理解。你可能不知道它们有多少种不同的方式可以无缝协作——以下是你需要知道的。
 
-Watch
+
 
 并非所有这些功能都一直运行良好，但随着时间的推移，苹果已经设法让它们达到了令人尊敬的直观性和稳定性水平。你需要开始的是一台运行 [iOS 11](https://fieldguide.gizmodo.com/24-things-you-can-do-in-ios-11-that-you-couldnt-before-1803136080) 的 iPhone 和一台运行 [macOS High Sierra](https://fieldguide.gizmodo.com/14-things-you-can-do-in-macos-high-sierra-that-you-coul-1805662455) 的 2012 或更高版本 Mac，两者都用相同的凭证登录到同一个 iCloud 账户。
 

@@ -4,7 +4,7 @@
 
 它已经准备了将近一年，谷歌伟大的广告末日即将来临。周四，Chrome 浏览器将开始自动过滤掉不符合特定质量标准的广告。你的浏览体验将会有所改变。以下是你需要知道的。
 
-Watch
+
 
 去年 4 月，新闻首次披露谷歌 [计划](https://www.wsj.com/articles/google-plans-ad-blocking-feature-in-popular-chrome-browser-1492643233) 在其浏览器中集成某种形式的广告拦截功能，该功能将默认开启。从那时起，我们已经看到了一个 [渐进](https://gizmodo.com/chrome-will-soon-block-autoplay-videos-with-sound-heres-1814207806) [推出](https://gizmodo.com/google-finally-lets-you-mute-autoplay-videos-in-chrome-1821326546) 的功能，从 [功能](https://gizmodo.com/google-finally-lets-you-mute-autoplay-videos-in-chrome-1821326546) 开始，在你选择的网站上静音自动播放视频。现在，谷歌全力以赴，为 Chrome 中的广告制定了一套标准。
 

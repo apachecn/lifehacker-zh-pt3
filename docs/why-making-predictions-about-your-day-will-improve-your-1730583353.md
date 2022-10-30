@@ -4,7 +4,7 @@
 
 这是一个挑战，你现在就可以尝试。做一个关于某事的预测— *任何事—* 你可以在接下来的二十四小时内亲自验证结果。你的一天会立刻变得更好——*不管你的预测是对还是错。*
 
-Watch
+
 
 *(以下节选自*[***super better***](http://www.amazon.com/SuperBetter-Revolutionary-Approach-Stronger-Resilient--Powered/dp/1594206368/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-making-predictions-about-your-day-will-improve-your-1730583353&asc_source=&ie=UTF8&keywords=superbetter&qid=1439086362&sr=8-1&tag=kinjalifehackerlink-20)***:一种革命性的一种让自己变得更强大、更快乐、更勇敢、更有韧性的革命性方法，由游戏科学驱动)。*T13】**
 

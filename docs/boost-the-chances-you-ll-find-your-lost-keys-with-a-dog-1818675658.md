@@ -4,7 +4,7 @@
 
 丢钥匙是最糟糕的事情，所以如果钥匙放错了地方，尽你所能确保钥匙安全地回到你身边是有意义的。对一些人来说，这可能意味着要安装一个蓝牙定位追踪器，但我可不想在我的闪存盘旁边的钥匙链上再多一个笨重的塑料玩意儿。幸运的是，网络已经提出了一个相当低技术含量的方法来确保你的钥匙被安全归还。但是首先，你需要去一家宠物店。
 
-Watch
+
 
 Redditor jordanlund 提出了这个巧妙的想法:在你的钥匙链上使用狗牌 ID。可以去宠物店用狗牌刻字机或者 [在线订购一个](https://www.petco.com/shop/en/petcostore/product/dog/dog-collars-leashes-and-harnesses/dog-id-tags/quick-tag-chrome-circle-personalized-engraved-pet-id-tag) 。只需选择您的标签，并添加您的姓名和手机或工作号码。现在你的钥匙已经被确认了，如果有人找到了你丢失的钥匙，而且它们基本上是完好的，他们会联系你努力归还它们。
 

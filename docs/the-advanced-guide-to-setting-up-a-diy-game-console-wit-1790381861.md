@@ -4,7 +4,7 @@
 
 众所周知，把一个 [树莓派变成一个复古游戏控制台](https://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192) 无疑是你可以用一个 Pi 做的最流行、最简单、最有趣的项目。这份最初的指南仅仅是个开始，如果你真的想从你的 DIY 小游戏中获得更多，你会想要深入了解一些高级技巧。
 
-Watch
+
 
 *这是我们的* [*设置指南的后续内容*](https://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192) *，因此我们将假设您已经启动并运行，复制了您的 rom，并设置了互联网访问。你还需要一个键盘来完成这些，或者你可以在一台台式电脑上使用*[*SSH*](https://www.raspberrypi.org/documentation/remote-access/ssh/unix.md)*。如果您没有设置这些，请在继续之前查阅原始指南。*
 

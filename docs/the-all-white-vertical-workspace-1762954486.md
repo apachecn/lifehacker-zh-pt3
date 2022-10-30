@@ -4,7 +4,7 @@
 
 我们已经看到了令人敬畏的单色工作空间，但如果那太麻烦，你仍然可以在像这样的空间中欣赏简单。读者看看下面更多的照片。
 
-Watch
+
 
 这篇文章顶部的照片光线很好。pljohns 实际上有一些更柔和、更蓝的灯光，用于那些需要你工作到晚上的夜晚。你可以看看下面——照片说明说 pljohns 正在使用一台 [飞利浦色相绽放](http://www.amazon.com/Philips-259945-Frustration-Personal-Wireless/dp/B00I12YFP0?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-all-white-vertical-workspace-1762954486&asc_source=&tag=kinjalifehackerlink-20) 来获得蓝色效果，你实际上可以看到光线就在工作区的中心。
 

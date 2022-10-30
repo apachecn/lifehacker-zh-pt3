@@ -4,7 +4,7 @@
 
 子编辑[/r/trip through time](https://www.reddit.com/r/trippinthroughtime/)是关于历史人物的模因，其中艺术或老照片中的某人看起来很困惑或愚蠢。每幅画都有一个标题，通常将怪异的艺术视为某种现代的相关情况。但是在评论帖中，你经常会发现有人在解释原创作品的一些很酷的事实。比如:
 
-Watch
+
 
 上面 [热门帖](https://www.reddit.com/r/trippinthroughtime/comments/6zs915/oh_so_many_times/) 上的 [置顶评论](https://www.reddit.com/r/trippinthroughtime/comments/6zs915/oh_so_many_times/dmxv1hg/)(redditor[cloud 吞噬者](https://www.reddit.com/r/trippinthroughtime/comments/6zs915/oh_so_many_times/dmxv1hg/) )解释了这幅画到底是怎么回事:
 

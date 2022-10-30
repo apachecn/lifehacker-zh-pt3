@@ -4,7 +4,7 @@
 
 苹果正在迅速远离我们都知道和喜爱的经典 iPhone Home 键。去年的 [iPhone 7](https://lifehacker.com/why-apples-iphone-7-headphones-dont-work-on-the-latest-1797826496) 用触摸板和触觉反馈取代了物理按钮，即将推出的 iPhone X 完全取消了这一功能，取而代之的是一款未来主义的 [面部扫描相机](http://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) 。
 
-Watch
+
 
 抛弃 Home 键也意味着找到一种新的方法来 [强迫你的 iPhone 重启](https://lifehacker.com/how-do-i-fix-my-bricked-iphone-ipad-or-ipod-touch-5848640) ，因为 [老方法](https://lifehacker.com/reboot-your-iphone-before-being-detained-by-police-to-d-1653394400) 不再管用。如果你的新 iPhone 8 停止工作，这里有如何手动重启它的方法，如果这也不能解决你手机的任何问题，还有一些其他更激烈的选择。
 

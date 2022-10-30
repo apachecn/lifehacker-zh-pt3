@@ -4,7 +4,7 @@
 
 有几个大家都知道的程序可以添加到新电脑上:Chrome、Spotify、Dropbox，以及一些工作应用程序，如 Excel 或 Photoshop。但我们中的许多人也有自己喜欢的助手应用程序和实用程序来定制我们的工作流程。
 
-Watch
+
 
 我有一整套助手应用，比如 [自由](https://freedom.to/) ，用于在我需要工作时屏蔽社交网站； [轰](http://www.globaldelight.com/boom/index.php) ，用于在笔记本电脑上调高音量；还有 [调酒师](https://www.macbartender.com/) ，一个整理我所有菜单栏 app 的菜单栏 app。在新电脑上的头几周，我最终把它们都加了进去。
 

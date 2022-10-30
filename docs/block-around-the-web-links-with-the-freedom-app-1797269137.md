@@ -4,7 +4,7 @@
 
 Freedom 还有第二个用途，它是一个简单的应用程序，可以让你屏蔽 Twitter 等分散注意力的网站几分钟、几小时或几天。正如该应用的博客所指出的， [Freedom 还可以作为一个点击诱饵拦截器](https://freedom.to/blog/eliminate-clickbait-online/) ，它可以隐藏新闻文章底部的恶心和误导性的“网络周围”链接(也称为 [chumbox](https://theawl.com/a-complete-taxonomy-of-internet-chum-de0b7a070a2d) )。
 
-Watch
+
 
 如果你不使用广告拦截器，这很有用，但原理是一样的:Freedom 会阻止来自指定域的所有流量。这对于屏蔽大多数广告来说是不切实际的，因为这些广告来自一个庞大且不断变化的不同领域。但是大部分的“环绕网络”链接都是通过几个顶级出版商，你可以很容易地在 Freedom 中把它们变成黑名单。
 

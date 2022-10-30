@@ -4,7 +4,7 @@
 
 程序员 [艺术家](https://brannondorsey.com/) ) Brannon Dorsey 写了一篇关于前几天 [DNS 重新绑定](https://medium.com/@brannondorsey/attacking-private-networks-from-the-internet-with-dns-rebinding-ea7098a2d325) 的危险的有趣且相当技术性的文章。如果你对网络浏览器如何阻止一个网站(比如说一个诈骗网站)向另一个网站(你的银行)发送请求、清空你的账户或操纵你的凭证(没有网站的明确许可)有一丁点兴趣，这本书就值得一读。
 
-Watch
+
 
 他的研究主要集中在 [DNS 重新绑定](https://www.wired.com/story/chromecast-roku-sonos-dns-rebinding-vulnerability/) 如何让恶意网站(或其背后的人)篡改设备，如你的 Google Home、Roku、智能恒温器或路由器等。至于后果，你可能要面对的不仅仅是一个网站强迫你的智能音箱播放 [the trololo song](https://www.youtube.com/watch?v=GGgLG2kxFD4) :
 

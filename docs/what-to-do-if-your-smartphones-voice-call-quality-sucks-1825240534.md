@@ -4,7 +4,7 @@
 
 使用智能手机与朋友和家人保持联系的方式有很多，但经典的 [打电话](https://lifehacker.com/how-to-get-your-smartphone-to-screen-potential-scam-cal-1818881172#_ga=2.63991087.1869468182.1523479293-542336946.1523479293) 仍然是很多人的选择。不幸的是， [通话质量](https://lifehacker.com/how-to-make-sure-your-voice-calls-and-audio-chats-are-c-1690302645#_ga=2.63991087.1869468182.1523479293-542336946.1523479293) 并没有完全跟上数字革命，导致了混乱的对话——有时甚至是在高端智能手机上。
 
-Watch
+
 
 如果你在纠结于听起来很糟糕的电话，有一些不同的方法可以解决它们。以下是你需要知道的(承蒙来自 [PCMag](https://www.pcmag.com/article/360357/how-to-make-your-cell-phone-calls-sound-better) 的详尽深入探究)。
 

@@ -4,7 +4,7 @@
 
 有一种新的趋势正在席卷全国——实际上是全世界——这就是所谓的 plogging。不，不是在平台上写博客(三年前那个“plogging”[来来去去](https://www.wired.com/2015/10/long-blogging-hello-yep-going-say-plogging/) )，而是边跑边捡垃圾。Plogging 来自瑞典语短语“plocka upp”，意思是捡起来，从 [*【华盛顿邮报】*](https://www.washingtonpost.com/news/inspired-life/wp/2018/02/23/plogging-is-the-swedish-fitness-craze-for-people-who-want-to-save-the-planet-its-making-its-way-to-the-u-s/?utm_term=.84acf569f95f) 到 [*【男性健康】*](https://www.menshealth.com/fitness/a18698660/i-tried-plogging-the-swedish-fitness-craze-that-involves-literal-garbage/) 等出版物都掀起了这股热潮。就我而言，永远不会。
 
-Watch
+
 
 你可能在想，有什么不喜欢的呢？在清理环境的同时进行锻炼是双赢的，显然这对腹肌很有好处……弯腰捡垃圾时，你会收获不止一种六块腹肌。对于那些致力于应用驱动的生活的人来说， [Lifesum](https://lifesum.com/) 健身应用甚至包括作为锻炼选项的 plogging。
 

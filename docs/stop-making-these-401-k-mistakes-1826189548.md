@@ -4,7 +4,7 @@
 
 如果你已经承诺为你的 401(k)计划做出贡献——太好了！在为健康退休做准备方面，你走在了很多人的前面。
 
-Watch
+
 
 但是设置你的自动缴费是比较容易的部分。正如米奇·塔奇曼在 [市场观察](https://www.marketwatch.com/story/all-the-ways-you-can-mess-up-your-401k-even-if-you-max-out-your-contributions-2018-05-18) 中所写的，有很多方式会损害你的退休储蓄，而这些方式是你想要避免的。有些是显而易见的(收费！)，其他的就不那么了:
 

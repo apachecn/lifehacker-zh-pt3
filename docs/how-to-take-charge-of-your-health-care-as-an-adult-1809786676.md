@@ -4,7 +4,7 @@
 
 你第一次必须为自己预约医生会让你希望有一天——也许是不久前——妈妈或爸爸为你做这一切。如果你是这种情况下的家长，可能很难后退一步。这里有一个指南，帮助年轻人负责自己的健康保健。
 
-Watch
+
 
 *拿出那些捕兽器，削尖你的 2 号铅笔——这是* [*返校*](http://lifehacker.com/tag/back-to-school) *周！在教室之外，Lifehacker 将为您带来天才的技巧和想法，告诉您如何开始日常工作，重温旧技能或在今年秋天学习新东西。*
 
@@ -38,11 +38,7 @@ Watch
 
 如果你已经有了某种健康专家，问问他们是否可以推荐某人。例如，我通过助产士的推荐找到了我孩子的儿科医生。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Take Charge of Your Health Care as an Adult](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) [###### 怎么才能找到好医生？](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) 
 
-亲爱的生活黑客，我刚刚改变了保险计划，我正在寻找一个新的医生。我有如此…
-
-[Read more](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213)</aside>
 
 ### 如何预约
 

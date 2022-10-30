@@ -18,10 +18,6 @@
 
 *从鱼开始，然后一步步往下，直到它们闭嘴。如果另一个人有任何社会意识，他们应该学会其中至少一个。或者你可以试试我最喜欢的(也是相当粗鲁的)策略——问他们的节目是否有中场休息。如果他们不停下来，很明显他们不尊重你或你的时间，你应该停止和他们说话。去找一个想和你交谈的人，而不是一个只会找听众的多嘴多舌的人。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled Shut Someone Up With These Nonverbal Cues](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-deal-with-someone-who-constantly-rambles-1677630626) [###### 如何对付一个爱东拉西扯的人](https://lifehacker.com/how-to-deal-with-someone-who-constantly-rambles-1677630626) 
 
-一次好的谈话是关于来回的；双方都在倾听和回应。如果…
-
-[Read more](https://lifehacker.com/how-to-deal-with-someone-who-constantly-rambles-1677630626)*</aside>
 
 *[如何委婉地打断别人并让他们停止说话](https://www.scienceofpeople.com/nicely-interrupt-someone-get-stop-talking/) |人的科学*

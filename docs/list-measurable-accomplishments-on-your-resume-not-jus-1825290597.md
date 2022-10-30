@@ -4,7 +4,7 @@
 
 简单地在简历上列出你过去的工作职责对招聘经理来说，就像说明你精通微软办公套件一样有帮助。如今，雇主们希望看到有分寸的结果。
 
-Watch
+
 
 “文件中缺乏衡量标准和结果是我最大的简历通病，” [高管简历撰稿人和职业战略家](http://www.careerimpressions.ca/) 艾德丽安·汤姆告诉 [商业内幕](http://www.businessinsider.com/biggest-resume-mistake-makes-recruiters-cringe-2018-2) 。"没有任何成功的衡量标准，这份文件缺乏技能的证明."
 

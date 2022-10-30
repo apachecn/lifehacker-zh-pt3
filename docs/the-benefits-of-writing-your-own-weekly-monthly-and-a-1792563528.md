@@ -4,7 +4,7 @@
 
 当我们反思自己的所作所为时，会有一些很特别的事情发生。实际上，有两件事。一个是我们对自己做过或学过的东西有了更好的理解。另一个是 [我们的自我效能提高了](http://jkglei.com/reflection/)——也就是我们对自己能力的信念。
 
-Watch
+
 
 *本帖原载于* [*改版博客*](http://blog.rescuetime.com/2017/02/14/weekly-monthly-annual-reviews/) *。*
 

@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**iOS 10 和 macOS Sierra 公测版现已上市**](http://lifehacker.com/ios-10-and-macos-sierra-public-betas-are-available-now-1783283002)
 

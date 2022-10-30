@@ -4,7 +4,7 @@
 
 桃子可能有点粘人，尤其是在把它们从核里取出来的时候，但是你可以做一些事情来让这个有趣的任务变得简单一些。
 
-Watch
+
 
 *这是*[***The Grown Kitchen***](http://lifehacker.com/tag/the-grown-up-kitchen)*的一部分，Skillet 系列旨在回答您最基本的烹饪问题，并填补您的家庭厨师教育中可能缺失的任何空白。*
 

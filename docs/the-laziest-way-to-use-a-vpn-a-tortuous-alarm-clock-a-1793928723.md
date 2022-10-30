@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**这个邪恶的闹钟 App 是我现在清醒的唯一原因**](http://lifehacker.com/this-evil-alarm-clock-app-is-the-only-reason-i-m-awake-1793682623)
 

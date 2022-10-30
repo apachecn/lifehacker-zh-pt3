@@ -4,7 +4,7 @@
 
 **Android，iOS:** 你可能有的权利用怀疑的眼光看待那些承诺“跟踪你的整个生活”的应用或服务。一家公司如何处理这些数据？你真的需要一些东西来记录你去的每一个地方，拍的每一张照片，感受的每一种情绪吗？
 
-Watch
+
 
 我仍然对这种做法持观望态度，正因为如此，我最近对脸书不太感冒。但是如果你仍然在寻找一种很好的方式来捕捉你每天做的事情，那么考虑一下适用于 [安卓](https://play.google.com/store/apps/details?id=com.gyroscope.gyroscope&hl=en_US) 和 [iOS](https://itunes.apple.com/us/app/gyroscope-health/id1104085053?mt=8) 的免费增值应用陀螺仪。
 

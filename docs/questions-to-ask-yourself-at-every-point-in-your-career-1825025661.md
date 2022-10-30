@@ -4,7 +4,7 @@
 
 当你开始你的日常工作时，当你完成你现在需要完成的任务时，很容易把关于你职业生涯的重要问题——你真正想做什么，你如何到达那里——放在次要位置。谁愿意在我们休息的几个小时里考虑工作呢？
 
-Watch
+
 
 但是迷失在每天的中意味着你会错过更大的图景，而不会朝着实现你更大的目标前进。所以这里有一个快乐的方法:在你的下一个 [个人盘点日](https://twocents.lifehacker.com/schedule-a-personal-inventory-day-each-month-1821807681) 或者在你的下一个 [人生审计](https://twocents.lifehacker.com/perform-a-life-audit-to-set-yourself-up-for-success-in-1821648221) 期间，根据你在职业生涯中的位置，花些时间回答以下问题。
 

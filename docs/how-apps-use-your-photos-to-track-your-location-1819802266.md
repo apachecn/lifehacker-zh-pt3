@@ -12,11 +12,7 @@ Watch [https://lifehacker.com/embed/inset/iframe?id=twitter-913034580852117504&a
 
 如果这让你感到害怕，你可以通过 [禁用照片上的地理标记](https://lifehacker.com/psa-make-sure-your-phone-s-photos-aren-t-revealing-you-1634872007) 来防止这种情况。正如我们在 2014 年解释的那样，Android 用户可以在他们的相机设置中关闭地理标记；iOS 用户可以在隐私设置中将其关闭。当然，那样你就做不出照片地图了。没有具体的设置来禁用第三方应用的地理标记。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How Apps Use Your Photos to Track Your Location](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/psa-make-sure-your-phone-s-photos-aren-t-revealing-you-1634872007) [###### PSA:确保你手机上的照片不会泄露你的位置](https://lifehacker.com/psa-make-sure-your-phone-s-photos-aren-t-revealing-you-1634872007) 
 
-你的照片可能会在你没有意识到的情况下泄露你的位置。以下是如何确保…
-
-[Read more](https://lifehacker.com/psa-make-sure-your-phone-s-photos-aren-t-revealing-you-1634872007)</aside>
 
 当然，如果你已经可以随时与谷歌和脸书分享你的位置，你可能可以将它交给任何想要访问一两张照片的应用程序。意识到你放弃了多少信息是件好事。
 

@@ -4,7 +4,7 @@
 
 不管你认为自己有多聪明或有多有经验，重要的是要记住，在某些事情上，你永远是个新手。听起来显而易见，但这是经理、企业家和其他商业领袖容易忘记的事情，尤其是当涉及到他们如何管理时间的时候。
 
-Watch
+
 
 *本帖原载于* [*快公司*](http://www.fastcompany.com/3051375/3-time-management-mistakes-you-dont-know-youre-making) *。*
 

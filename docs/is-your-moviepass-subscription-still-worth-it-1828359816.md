@@ -4,7 +4,7 @@
 
 我们正在实时观看电影通行证的死亡。上周，电影票订购服务开始主动关闭自己的棺材，通过 [取消用户取消的](https://lifehacker.com/how-to-stop-moviepass-from-reversing-your-cancellation-1828331003) 和 [限制你可以观看的电影，以及除观看次数外的](https://news.avclub.com/moviepass-is-now-down-to-2-movies-at-a-time-1828311928) 。
 
-Watch
+
 
 随着它的消亡,“吃到饱”的电影票销售方式也随之消失。我们最初对 MoviePass 的兴趣很大程度上是基于它的承诺:每月 10 美元，你就可以每天看一部电影，让你全权去看更多的电影。你可以看看每一部听起来有点意思的电影。当然，也有其他的电影票订阅，但没有一个提供像 MoviePass 最初的 10 美元固定费用那样诱人的交易。
 

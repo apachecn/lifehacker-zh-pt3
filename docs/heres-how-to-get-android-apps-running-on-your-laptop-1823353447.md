@@ -4,7 +4,7 @@
 
 在笔记本电脑上安装一些 Android 应用程序比以往任何时候都更有意义。除了让你访问没有桌面或网络对等物的应用程序(如)之外，它还非常适合在大屏幕上玩游戏——我们在 Pixelbook 上安装并运行了 [奥拓的冒险](https://play.google.com/store/apps/details?id=com.noodlecake.altosadventure) 没有任何问题，许多其他游戏也将受益于额外的屏幕空间。
 
-Watch
+
 
 这对于能够正确使用键盘的应用程序来说也是一个福音，像 [Word](https://play.google.com/store/apps/details?id=com.microsoft.office.word) 或 [Evernote](https://play.google.com/store/apps/details?id=com.evernote) ，大大提高了你的打字速度。或者对于从鼠标和触控板的额外精度中受益的应用程序，想想 [SketchBook](https://play.google.com/store/apps/details?id=com.adsk.sketchbook) 或[Adobe Photoshop Sketch](https://play.google.com/store/apps/details?id=com.adobe.creativeapps.sketch)。任何在小屏幕上让你沮丧的应用程序都可以在笔记本电脑或台式机上很好地工作。
 

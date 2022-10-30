@@ -4,7 +4,7 @@
 
 当我们最后一次召集 Lifehacker 员工的 [周升级](https://lifehacker.com/just-accept-apples-absolute-dominance-in-your-life-1828257088?rev=1534534607702) 时，我们的编辑正在探索新的播客，给苹果公司捐钱，并寻找与一只坏脾气的猫更好相处的方法。
 
-Watch
+
 
 本周，我们要想办法不让孩子弄坏我们的厕所，在我们的锻炼计划中加入新的活动，同时还要想办法和一只坏脾气的猫更好地相处。
 

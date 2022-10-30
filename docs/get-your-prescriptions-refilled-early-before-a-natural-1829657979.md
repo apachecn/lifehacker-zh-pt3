@@ -4,7 +4,7 @@
 
 在飓风季节中，有无数的事情需要记住和准备:加固你的门[【打包行李】](https://lifehacker.com/how-to-pack-an-evacuation-go-bag-1819669582) 确保你的 [宠物得到照顾](https://lifehacker.com/know-how-to-protect-your-pets-when-disaster-strikes-1639644600)——不胜枚举。
 
-Watch
+
 
 你可能已经忘记的一个问题是如何处理你的处方，特别是如果你已经被转移了。
 

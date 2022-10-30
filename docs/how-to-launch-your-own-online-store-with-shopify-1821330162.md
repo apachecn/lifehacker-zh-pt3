@@ -4,7 +4,7 @@
 
 *在我们的新系列* [获得 It](https://lifehacker.com/c/getting-it) *中，我们将为您提供您需要知道的所有信息，帮助您开始并擅长各种在线和离线技术。在这里，我们将带你在最受欢迎的在线零售平台 Shopify 上建立自己的商店。*
 
-Watch
+
 
 开一家商店曾经是一项重大任务，包括租赁空间、购买可能会或可能不会出售的存货、搭建货架，以及在收银台前长时间工作。现在，多亏了被称为万维网的小发明，只需点击几下鼠标和几个小时的时间，就可以开店了。在这里，我们将看看最流行的方式之一，推出网上商店。
 
@@ -34,11 +34,7 @@ Shopify 为你希望开设的每一家商店提供 14 天的免费试用，所�
 
 选择主题后，点击“自定义”,您就可以添加页面、更改照片、添加文本、创建博客、自定义页眉和页脚等等。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Launch Your Own Online Store With Shopify](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-avoid-getting-screwed-when-selling-on-craigsl-5915608) [###### 在 Craigslist 上卖东西，怎么才能避免上当？](https://lifehacker.com/how-can-i-avoid-getting-screwed-when-selling-on-craigsl-5915608) 
 
-亲爱的 Lifehacker，我刚开始在 Craigslist 上卖东西，有点吃不消。我一直…
-
-[Read more](https://lifehacker.com/how-can-i-avoid-getting-screwed-when-selling-on-craigsl-5915608)</aside>
 
 ### **产品**
 

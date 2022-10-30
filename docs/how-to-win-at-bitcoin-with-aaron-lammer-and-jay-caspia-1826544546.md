@@ -4,7 +4,7 @@
 
 本周我们的嘉宾是 [币谈](https://medium.com/s/cointalk) 的主持人，这是一个关于比特币、加密货币和区块链的播客。记者亚伦·拉默和杰伊·凯斯宾·康向我们讲述了他们的节目，他们自己的冒险交易密码，以及由 ico、骗子和投机者组成的怪异文化，亚伦称之为“硬币世界”
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/b45920da-5896-44bf-a9e4-15d08bf7e313/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/b45920da-5896-44bf-a9e4-15d08bf7e313/embed)
 

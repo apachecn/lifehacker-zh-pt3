@@ -4,7 +4,7 @@
 
 寻找关于网飞的完美电影有时会很困难。 [更好地浏览](https://chrome.google.com/webstore/detail/better-browse-for-netflix/olciafpppkdhlcjfmaibelnopafmhmdd?hl=en) 旨在通过将网飞的内容分类到额外的类别中，使这一过程至少变得简单一点。
 
-Watch
+
 
 Chrome 扩展在网飞菜单栏上添加了一个“浏览全部”菜单，里面有大量的“隐藏类别”,可以将网飞的传统类别分成更具体的类别。例如，你可以用“动作喜剧”和“动作惊悚片”来代替“动作片”
 

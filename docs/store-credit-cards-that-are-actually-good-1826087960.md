@@ -15,7 +15,7 @@
 
 但问题是:你不能在任何地方使用返现。你只能在宜家兑换。所以实际上，这些都是相当狭窄的产品，尤其是与其他返现卡相比。除非你是一个狂热的宜家购物者，或者你正在 reg(它...你可能——希望如此？—不)，这不是最好的交易。
 
-Watch
+
 
 此外，根据市场观察[的数据，像许多商店信用卡一样，年利率是荒谬的 21.99%(平均利率为 16.94%)。](https://www.marketwatch.com/story/ikea-releases-a-new-credit-cardbut-it-comes-with-one-major-caveat-2018-05-15)
 

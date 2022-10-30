@@ -4,7 +4,7 @@
 
 读者 [麦克塔库斯](http://kinja.com/PaladinJ) 将这个跳动的心脏桌面提交给了我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) ，并以动画的形式，情不自禁地展示给世人。以下是他是如何做到的，你也可以这样做。
 
-Watch
+
 
 这里 有很多 [的雨量计，但都很好，看起来都很棒。](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789)
 

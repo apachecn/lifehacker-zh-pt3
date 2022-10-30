@@ -4,7 +4,7 @@
 
 当你开始你的日常工作时，你不可避免地会和那些消极的人打交道。你如何处理不愉快的工作环境？你如何利用积极心理学来加强你的事业？来帮忙的是米歇尔·吉兰(Michelle Gielan)， [广播幸福](http://www.amazon.com/Broadcasting-Happiness-Igniting-Sustaining-Positive/dp/1941631304?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/ask-an-expert-all-about-utilizing-positivity-in-the-wo-1727702360&asc_source=&tag=kinjalifehackerlink-20) 的作者。
 
-Watch
+
 
 米歇尔提倡用积极的心态来创造变化，无论你只是想改善你目前的工作还是想继续你的职业生涯，她最近与合作，根据书 创作了一幅 [信息图。当然，在工作中寻找快乐没有灵丹妙药，但是避免基于恐惧的心态，转向积极将有助于你成功。](http://www.happify.com/hd/broadcasting-happiness-infographic/)
 

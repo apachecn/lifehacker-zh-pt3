@@ -4,7 +4,7 @@
 
 卢克驾驶一辆 2016 款梅赛德斯 S550，这是一辆既快速又豪华的车，但像任何有动力和雄心的人一样，他想要更多。我不能说我责怪他，特别是因为他有一个健康的预算来取代它。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

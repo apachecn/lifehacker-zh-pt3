@@ -4,7 +4,7 @@
 
 如果你昨天看了“谷歌制造”的活动——或者 [读了我们的综述](http://lifehacker.com/everything-google-announced-at-its-made-by-google-eve-1787404179)——如果你错过了一个全新版本的 Android，你会被原谅。谷歌本身几乎没有注意到和。以下是我们对它的了解。
 
-Watch
+
 
 新款 Pixel 手机 将率先运行 Android 7.1。值得注意的是，与今年夏天的 [Android 7.0 牛轧糖](http://lifehacker.com/the-coolest-features-of-android-n-google-didnt-announce-1764114846) 不同，该版本的 Android 没有专门的公告，也没有任何测试版(到目前为止)供用户试用。事实上，从谷歌的声明中甚至不清楚 Pixel 的哪些功能是 Android 7.1 的一部分，哪些功能将适用于所有手机。
 

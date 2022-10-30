@@ -4,7 +4,7 @@
 
 我总是很惊讶在我们的 [Hack Your City 专栏](https://lifehacker.com/c/hack-your-city) 中，哪些城市的评论最多。读者在周一的帖子上留下了多达 231 条评论， [“告诉我们你最好的费城建议。”](https://lifehacker.com/tell-us-your-best-philadelphia-tips-1820929798)我还按类别对建议进行了分类，所以你可以选择最好的博物馆或酒吧，或者平庸的交通系统的替代品。 
 
-Watch
+
 
 ### 博物馆
 

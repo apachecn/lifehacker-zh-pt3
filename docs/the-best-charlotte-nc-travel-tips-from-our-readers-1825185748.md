@@ -4,7 +4,7 @@
 
 读者 [Jeebs](http://lifehacker.com/1825102902) 是 [我们北卡罗来纳州夏洛特旅游贴士](https://lifehacker.com/tell-us-your-charlotte-nc-travel-tips-1825054177) 的最大撰稿人之一。这可能是一个低门槛，但友好的夏洛特读者(包括一些来自/r/Charlotte 的 [redditors)留下了超过 100 条评论，列出了他们城市的最佳之处。以下是他们的最佳建议。](https://www.reddit.com/r/Charlotte/comments/8ayrwo/lifehacker_is_looking_for_charlotte_nc_travel_tips/) 
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

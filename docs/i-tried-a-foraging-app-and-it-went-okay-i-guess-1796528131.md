@@ -5,7 +5,7 @@
 著名厨师/森林精灵雷内·雷泽皮 [发布了一款名为 VILD 疯](https://munchies.vice.com/en_us/article/bj8w4w/nomas-rene-redzepi-has-launched-a-mobile-foraging-app?utm_source=munchiesfbus)
 的应用程序，帮助你用手机找到“美味的食物”。作为一个喜欢吃好草料的人(看着她的手机)，wilds 马德似乎是一个肯定能提高我生活质量的应用程序，所以我把它下载到这个手机上，然后出发去波特兰东南部的荒野。
 
-Watch
+
 
 几乎每个应用都有我喜欢的东西，也有我不喜欢的东西。我们从好的方面开始。
 

@@ -4,7 +4,7 @@
 
 你有没有注意到当你等待 Twitter 加载、你的电子邮件刷新或者你的蓝牙设备连接的时候，有一瞬间的屏住呼吸？当你等待技术发挥作用时，你的肌肉会痉挛吗？你的手机突然变成该死的车管所整整六秒钟？
 
-Watch
+
 
 作家琳达·斯通 [称之为电子邮件呼吸暂停](https://lindastone.net/2014/11/24/are-you-breathing-do-you-have-email-apnea/) ，虽然她推荐了 [科学上可疑的 Buteyko 呼吸法](https://sciencebasedmedicine.org/buteyko-breathing-technique-nothing-to-hyperventilate-about/) 来对抗它，你不需要重新训练你的呼吸来在这些时刻放松一点。
 

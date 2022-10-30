@@ -4,7 +4,7 @@
 
 当你的社会安全号码被泄露时，有许多邪恶的活动需要小心。由于最近的 Equifax 数据泄露事件，您可能想知道如何辨别窃贼是否在使用您窃取的信息。
 
-Watch
+
 
 首先在 [查看 Equifax 的 TrustedID 网站](https://trustedidpremier.com/eligibility/eligibility.html) 的潜在影响。你必须输入你的社会安全号码的最后 6 位数字(和你的姓)，网站会告诉你是否有理由相信你的信息被盗了。当漏洞第一次被公布时，他们告诉你回头看看，这非常令人沮丧，但该网站现在会立即告诉你你被黑客攻击的可能性有多大。(**注意**:一些用户已经 [报告从](http://www.zdnet.com/article/we-tested-equifax-data-breach-checker-it-is-basically-useless/) 网站获得了相互矛盾的信息，所以你可能只是想谨慎行事，假设你的数据已经被泄露。)
 

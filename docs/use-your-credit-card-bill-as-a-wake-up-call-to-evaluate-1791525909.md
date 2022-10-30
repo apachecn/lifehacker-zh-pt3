@@ -4,7 +4,7 @@
 
 这里有一个小练习供你尝试。从你最常用的信用卡中取出你最新的信用卡账单。如果是电子账单就打印出来；否则，就拿起笔，把账单放在你面前的桌子上。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/using-your-credit-card-bill-as-a-wake-up-call/) *上。*
 

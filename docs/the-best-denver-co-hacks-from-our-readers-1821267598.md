@@ -4,7 +4,7 @@
 
 本周在 [黑你的城市](https://lifehacker.com/c/hack-your-city) 节目中，我们收到了超过 125 条关于科罗拉多州丹佛市的建议。一些主题:有很棒的徒步旅行，和很棒的酿酒厂，但是在你适应海拔高度的时候放松一下。这里有一些最好的建议。 [转到原帖](https://lifehacker.com/tell-us-your-best-denver-tips-1821129147) 求几十更。
 
-Watch
+
 
 [evenbagiertrousers 7](http://lifehacker.com/1821179839#_ga=2.9339765.170030974.1513005915-1297080755.1497980211)高度上:
 

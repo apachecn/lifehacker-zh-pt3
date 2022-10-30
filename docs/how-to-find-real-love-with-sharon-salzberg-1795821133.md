@@ -4,7 +4,7 @@
 
 本周，我们采访了作家兼冥想导师莎伦·萨尔茨伯格。
 
-Watch
+
 
 莎伦·萨尔茨伯格是将佛教冥想和正念实践带到西方并进入主流文化的人之一。她在马萨诸塞州的巴雷市共同创立了 [顿悟冥想协会](https://www.dharma.org/) ，并且是九本书的作者，其中包括《纽约时报》畅销书 [【真正的幸福】](https://www.amazon.com/Real-Happiness-Meditation-28-Day-Program/dp/0761159258/ref=asap_bc?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-find-real-love-with-sharon-salzberg-1795821133&asc_source=&ie=UTF8&tag=kinjalifehackerlink-20) ，她的开创性著作 [【爱](https://www.amazon.com/Lovingkindness-Revolutionary-Happiness-Shambhala-Classics/dp/157062903X/ref=pd_bxgy_14_img_2?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-find-real-love-with-sharon-salzberg-1795821133&asc_source=&pd_rd_i=157062903X&pd_rd_r=JS8FP6TF4K9PXCQSXKJF&pd_rd_w=fGr2n&pd_rd_wg=UkREC&psc=1&refRID=JS8FP6TF4K9PXCQSXKJF&tag=kinjalifehackerlink-20) ，以及她将于明天出版的新书 [【真正的爱:用心联系的艺术](https://www.amazon.com/Real-Love-Art-Mindful-Connection-ebook/dp/B01N928XGF/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-find-real-love-with-sharon-salzberg-1795821133&asc_source=&ie=UTF8&keywords=Real Love: The Art of Mindful Connection&qid=1496683657&sr=8-1&tag=kinjalifehackerlink-20) 。沙龙加入了我们的工作室，谈论她的新书《冥想、爱、羞耻、心碎和同情》。
 

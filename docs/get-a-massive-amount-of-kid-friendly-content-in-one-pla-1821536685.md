@@ -4,7 +4,7 @@
 
 我总是在想办法监控我的孩子看电视的时间——不一定是数量，而是质量。他看的节目适合他的年龄吗？他应该读更多的书吗？我如何确保他不会被古怪的 YouTube 视频绊倒？ [亚马逊 FreeTime](https://www.amazon.com/Amazon-FreeTime-Unlimited-Monthly-Subscription/dp/B01I499BNA?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-a-massive-amount-of-kid-friendly-content-in-one-pla-1821536685&asc_source=&tag=kinjalifehackerlink-20) ，一项为 1000 万 3-12 岁儿童用户提供适龄数字内容的在线订阅服务，努力为家长们解答这些问题。
 
-Watch
+
 
 ### 如何免费获得空闲时间
 

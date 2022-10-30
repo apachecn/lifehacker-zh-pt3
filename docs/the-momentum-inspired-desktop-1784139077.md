@@ -4,7 +4,7 @@
 
 读者 [geeklibrarian](http://kinja.com/geekylibrarian) 的桌面灵感来自于气势， [我们最喜欢的 Chrome 扩展之一](http://lifehacker.com/momentum-adds-inspirational-quotes-and-to-dos-to-chrome-1465454691) ，看起来很美。宁静平和，但同时也能增长见识。以下是如何获得相同的外观。
 
-Watch
+
 
 首先，你需要 Geektool，一个用于 Mac 的系统监控和定制引擎。如果你对它不熟悉， [这里是我们的入门指南](https://lifehacker.com/build-an-attractive-informative-mac-desktop-with-geekt-5834676) ，应该可以帮你入门。
 

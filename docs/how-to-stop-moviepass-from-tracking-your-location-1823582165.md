@@ -4,7 +4,7 @@
 
 就在昨天，我们了解到 MoviePass [会主动追踪你的位置](https://lifehacker.com/moviepass-is-tracking-your-location-before-and-after-mo-1823549979)——不仅仅是当你在电影院或使用该应用程序时。你的第一反应可能是愤怒地取消这项服务，但是如果你可以继续以便宜的价格 看电影而不牺牲你的数字隐私，会怎么样呢？
 
-Watch
+
 
 以下是如何阻止 MoviePass 跟踪你，同时又不放弃一项非常棒的交易。
 

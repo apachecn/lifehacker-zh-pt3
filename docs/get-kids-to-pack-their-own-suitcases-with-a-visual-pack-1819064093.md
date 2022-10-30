@@ -4,7 +4,7 @@
 
 让我四岁的女儿收拾行李去旅行，让她自己决定，她会带上她的毛绒兔子、一件艾尔莎裙子和四颗软糖。她需要一份清楚的装箱单，但她还不识字。这个来自 Reddit 用户 passingglan s 的 [想法会给她很大帮助。](https://www.reddit.com/r/ADHD/comments/731p5n/this_visual_packing_list_enabled_my_kids_to/) 
 
-Watch
+
 
 redditor 创建了简单的可视化包装清单，因为这家人即将开始为期一个月的露营之旅。不需要任何艺术技巧——只需要谷歌图片搜索。孩子们可以把放进袋子里的每样东西都划掉。
 

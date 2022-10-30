@@ -4,7 +4,7 @@
 
 亚马逊想奖励你从他们那里买东西，但是有一个条件:你必须使用你的借记卡，并将现金转入亚马逊账户。这并不复杂，但这里有你应该知道的关于新的 [亚马逊重装](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/amazon-will-now-give-you-2-cash-back-for-paying-with-y-1796096789&asc_source=&node=15452216011&tag=kinjalifehackerlink-20) 程序。
 
-Watch
+
 
 首先，你必须是亚马逊的 Prime 客户。然后，你 [将你的银行账户](https://www.amazon.com/asv/reload/bank-account?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/amazon-will-now-give-you-2-cash-back-for-paying-with-y-1796096789&asc_source=&ref=prlmarketingrewards&tag=kinjalifehackerlink-20) 和借记卡链接到亚马逊(你还需要你的驾照)。从那里，你 [将钱存入虚拟的](https://www.amazon.com/asv/reload?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/amazon-will-now-give-you-2-cash-back-for-paying-with-y-1796096789&asc_source=&ref=prlmarketing&tag=kinjalifehackerlink-20) 亚马逊礼品卡。你可以选择你想要的任何数量。现在你有一个礼品卡余额，当你用这个余额在亚马逊购物时，你将获得所有购物的 2%的现金返还奖励。无论如何，如果你在亚马逊上买很多东西，这是一笔不错的交易。
 

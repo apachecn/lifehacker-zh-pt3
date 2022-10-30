@@ -4,7 +4,7 @@
 
 寻找完美的耳机就像是一个永无止境的旅程。由于每个人都有不同的口味，别人不可能为你推荐完美的罐头。但不管怎样，我已经找到了我的，我永远不会放弃他们。
 
-Watch
+
 
 每个发烧友的耳机之旅都是不同的，但通常是这样的:买一副便宜的耳挂式耳机。被吹走。通过购买稍微贵一点的东西来融入耳机的世界。然后，也许你的口味变了，或者你厌倦了，你会得到更贵的东西。然后也许你会得到一个耳机放大器。等等，等等，一直到时间的尽头和你钱包的底部。
 
@@ -29,11 +29,7 @@ Q701([目前零售价为 180 美元](https://www.amazon.com/dp/B004444O3W?asc_ca
 
 没有一套耳机是完美的。我认为这是导致人们走上“升级跑步机”的部分原因，感觉你总是在寻找下一个最好的东西。但是如果你愿意弄脏你的手[，你可以做很多事情来改进一副耳机。](https://lifehacker.com/get-better-sound-from-your-favorite-headphones-with-the-1516562484) 
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled I&#39;ve Found My Holy Grail of Headphones: The AKG Q701](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/get-better-sound-from-your-favorite-headphones-with-the-1516562484) [###### 使用这些 DIY 模块，从您最喜爱的耳机中获得更好的声音](https://lifehacker.com/get-better-sound-from-your-favorite-headphones-with-the-1516562484) 
 
-找到一副完美的耳机是一个挑战——尤其是因为有时候，没有…
-
-[Read more](https://lifehacker.com/get-better-sound-from-your-favorite-headphones-with-the-1516562484)</aside>
 
 在我看来，Q701 有两个缺点:低音有点贫血，头带非常不舒服。我用 DIY mods 解决了这两个问题。
 

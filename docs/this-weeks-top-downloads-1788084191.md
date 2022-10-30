@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**用这个免费的 PDF 学习 C 编程语言的基础知识**](http://lifehacker.com/learn-the-basics-of-the-c-programming-language-with-thi-1787894419)
 

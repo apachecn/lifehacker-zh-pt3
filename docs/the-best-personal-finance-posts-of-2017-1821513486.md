@@ -4,7 +4,7 @@
 
 金钱是令人困惑的，在过去的 12 个月里，它并没有变得更容易理解。有一个 [新税单](https://twocents.lifehacker.com/the-basics-of-the-gop-tax-plan-explained-1821583174#)[医保困境](https://vitals.lifehacker.com/health-insurance-suddenly-just-got-cheaper-for-a-lot-of-1820047484) ，还有 [海量数据泄露](https://lifehacker.com/how-to-find-out-if-you-were-affected-by-the-equifax-hac-1806121695) 要应对。在预算和比特币之间，我们试图尽可能地帮助你更好地了解你的钱包。以下是我们 2017 年最赚钱的帖子。
 
-Watch
+
 
 ### [一天黑掉你的财务:理财入门指南](https://twocents.lifehacker.com/hack-your-finances-in-one-day-a-beginner-s-guide-to-mo-1792836184#_ga=2.49229606.126234739.1514089040-691019473.1512506211)
 

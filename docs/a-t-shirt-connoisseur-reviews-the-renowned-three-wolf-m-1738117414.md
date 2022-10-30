@@ -4,7 +4,7 @@
 
 我是个 t 恤迷。我从未长大成人，所以我几乎每天都穿。而且因为你自找的，我买了山的 [三狼月衫](http://smile.amazon.com/The-Mountain-Three-Short-Sleeve/dp/B002HJ377A?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/a-t-shirt-connoisseur-reviews-the-renowned-three-wolf-m-1738117414&asc_source=&tag=kinjalifehackerlink-20) 复习。还行吧。
 
-Watch
+
 
 这是 Lifehacker 评论任何东西的一部分，在这个系列中，我们评论 [*任何你想让我们评论的东西*](http://lifehacker.com/the-lifehacker-staff-will-review-anything-you-want-1733408447) *。今日精选:三狼月亮 t 恤出自* [*大山*](http://www.themountain.com/) *。*
 

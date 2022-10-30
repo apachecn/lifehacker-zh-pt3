@@ -4,7 +4,7 @@
 
 升调过去似乎是一件坏事。“山谷女孩”的演讲模式，即演讲者的陈述以向上的音调结束，使它们听起来像问题，在 20 世纪 70 年代由语言学家 首次发现，并长期被嘲笑为不严肃的标志。1993 年， [*《纽约时报》*作家詹姆斯·戈尔曼](http://www.nytimes.com/1993/08/15/magazine/on-language-like-uptalk.html) 承认它可能有一些用途，但他担心它会被像飞机驾驶员这样的权威人士使用。
 
-Watch
+
 
 这是一个糟糕的比较；典型的飞行员对讲机独白听起来像一个连续的句子，在每个短语的结尾都轻快活泼。升调越来越普遍，也越来越辩护，在 [石板](http://www.slate.com/blogs/lexicon_valley/2014/12/16/uptalk_is_okay_young_women_shouldn_t_have_to_talk_like_men_to_be_taken_seriously.html)[*观察者*](http://observer.com/2015/03/girl-talk-when-it-comes-to-language-women-are-in-charge/)[BBC](http://www.bbc.com/news/magazine-28708526)[*时代*](https://well.blogs.nytimes.com/2013/12/23/overturning-the-myth-of-valley-girl-speak/)。一位加拿大人力资源顾问建议，歧视像升调 [这样的语调可能构成歧视](http://www.canadianbusiness.com/innovation/get-like-over-it/) 。升调是如此普遍，以至于在研究关于它的老研究时，我几乎认不出这些例子有什么不寻常。
 

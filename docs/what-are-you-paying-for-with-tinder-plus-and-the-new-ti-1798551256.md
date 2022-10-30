@@ -4,7 +4,7 @@
 
 刷卡交友应用 Tinder[刚刚推出了一个新的 iOS 订阅层，名为“Tinder Gold”](http://blog.gotinder.com/introducing-tinder-gold-a-first-class-swipe-experience/)。但这到底是什么？它与已经存在的 Tinder Plus 有何不同？
 
-Watch
+
 
 任何人都可以免费使用 Tinder，但他们的付费订阅计划可能会有点混乱。例如，Tinder Plus 为您提供:
 

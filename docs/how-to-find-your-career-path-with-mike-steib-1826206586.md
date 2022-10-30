@@ -4,7 +4,7 @@
 
 在最新一期节目中，XO 集团首席执行官、《职业宣言:发现你的使命，创造非凡人生》 的作者迈克·斯泰伯(Mike Steib)谈到了弄清你的目标，承担适当的风险，并找到一份令人满意的职业。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/caae6dd1-74a7-4cef-8262-f54e4b7e1346/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/caae6dd1-74a7-4cef-8262-f54e4b7e1346/embed)
 

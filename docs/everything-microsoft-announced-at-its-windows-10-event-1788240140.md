@@ -4,7 +4,7 @@
 
 今天，微软宣布了新的 Surface Studio 一体机，升级的 Surface Book，以及今年春天即将到来的另一个 Windows 10 更新。这里是你需要知道的所有重要细节。
 
-Watch
+
 
 ### Windows 10 的“创作者更新”将于 2017 年春天到来
 

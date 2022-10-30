@@ -4,7 +4,7 @@
 
 一般来说，我不使用不粘锅，但也有一些情况——比如 [烹饪完美的两面煎鸡蛋](http://skillet.lifehacker.com/how-to-make-a-perfect-over-easy-egg-1798540985) 、煎蛋卷和薄煎饼——其他东西都不行。然而，我不建议在一个上面花很多钱。
 
-Watch
+
 
 现在，在我们进一步讨论之前，让我们来解决每个人最喜欢的不粘怪物:特氟隆，以及围绕它的安全问题。 [根据美国癌症协会](https://www.cancer.org/cancer/cancer-causes/teflon-and-perfluorooctanoic-acid-pfoa.html) 的说法，你可能会因为吸入过热的特氟隆(其中 [不应该加热到 500 华氏度](https://www.chemours.com/Teflon/en_US/products/safety/key_questions.html) )排出的气体而出现类似流感的症状，所以不要这样做。除此之外，还有一些关于 PFOA 的小问题，它在特氟隆的制造过程中使用，但不存在于最终产品中(或者只存在非常少量)。
 

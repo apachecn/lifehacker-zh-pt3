@@ -4,7 +4,7 @@
 
 现在是 9 月，这只能意味着一件事:苹果刚刚宣布了一些新的 iPhones。今年，该公司推出了本月晚些时候发布的 [iPhone 8 和 8 Plus](https://www.apple.com/iphone-8/) ，以及将于 10 月下旬发布的经过大修的 [iPhone X](https://www.apple.com/iphone-x/) 。
 
-Watch
+
 
 抵制闪亮的苹果新设备的诱惑可能很难，但在你决定购买 iPhone 8 或 iPhone 8 Plus 之前，有几件事需要考虑。这里有一个关于你是否应该升级到苹果最新版本的快速纲要，这取决于你目前使用的设备和你对新智能手机的期望。
 

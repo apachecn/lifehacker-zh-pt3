@@ -4,7 +4,7 @@
 
 几年前，当我丈夫和我有了第一个孩子时，我们觉得经济上有所准备。我们不得不动用积蓄来支付生育治疗和相关的医疗费用，但我一直在做自由作家和编辑来弥补这一损失。当我们的小男孩出生时，我们的银行账户状况良好。我们是三口之家。
 
-Watch
+
 
 *本帖原载于*[*learn vest*](https://www.learnvest.com/2017/02/5-tricks-this-mom-uses-to-save-money-on-diapers-formula-clothes-and-more/)*。*
 

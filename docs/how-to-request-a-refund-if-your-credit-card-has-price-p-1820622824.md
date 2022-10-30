@@ -4,7 +4,7 @@
 
 比方说，上周你屈服了，买下了你一直觊觎的那台别致的浓缩咖啡机。你很开心，而且含有咖啡因，但是你看到 [这个周便宜了 50 美元](http://deals.kinja.com/the-impossibly-small-nespresso-mini-is-half-off-for-bla-1820619255#[ks%7Cnativestream&_ga=2.59269230.258803392.1511217924-1268082208.1431441811) *。真扫兴。好消息是，如果你用正确的卡付款，你可能会享受到降价的好处。*
 
-Watch
+
 
 一些信用卡额外提供价格保护。如果你用那张卡购买的商品在一定时间内价格下跌，如果零售商没有提供他们自己的降价政策，你可以要求退款( [，许多零售商都提供](https://twocents.lifehacker.com/the-stores-that-will-refund-your-money-when-a-price-dro-1620915956) )。
 

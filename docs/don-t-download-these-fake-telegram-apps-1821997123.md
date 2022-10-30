@@ -4,7 +4,7 @@
 
 [识破假冒 app](https://lifehacker.com/how-to-spot-fake-apps-in-apples-app-store-and-google-pl-1821428717) 通常相当容易，但这并没有阻止来自 [的黑客和骗子试图欺骗我们](https://lifehacker.com/watch-out-for-this-fake-whatsapp-app-in-the-google-play-1820222637) 。最新的例子是一对假冒的 [Telegram](https://lifehacker.com/telegram-messenger-provides-secure-chat-photo-and-vid-1529645378) 应用程序，它们看起来和工作起来就像真的一样，但却用广告轰炸你来赚取额外的钱。
 
-Watch
+
 
 网络安全公司 [赛门铁克](https://www.symantec.com/blogs/threat-intelligence/open-source-apps-google-play) 最近发现了 Telegram 的假冒版本，Telegram 是一款专注于安全的流行消息应用。它们看起来都像是真实事物的近乎完美的复制品，尽管它们的谷歌 Play 商店页面确实有一些危险信号。
 

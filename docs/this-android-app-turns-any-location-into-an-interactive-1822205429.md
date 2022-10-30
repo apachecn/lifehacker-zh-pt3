@@ -4,7 +4,7 @@
 
 厌倦了你无聊的老 [智能手机壁纸](https://lifehacker.com/how-to-pick-the-perfect-smartphone-wallpaper-1477967380) ？这款新的 [Android](https://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535) 应用程序可以获取你当前的位置(或地球上的任何其他地点),并将其转化为你手机上的背景图像。Google Play 上[【1.99 美元】现已发售。](https://play.google.com/store/apps/details?id=com.JustZht.Skyline) 
 
-Watch
+
 
 [Skyline](https://play.google.com/store/apps/details?id=com.JustZht.Skyline) 由独立开发者贾斯汀·芬奇(Justin Fincher)创建，利用卫星和航拍照片创建任何地点的互动图像。这意味着当你刷手机在页面之间移动时，图像会轻微移动。当你旋转设备时，它还会滑动，以产生深度感。
 

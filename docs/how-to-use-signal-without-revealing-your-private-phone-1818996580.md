@@ -4,7 +4,7 @@
 
 [信号](https://lifehacker.com/signal-the-encrypted-chat-app-is-now-available-on-des-1787103250) 使 [加密](https://lifehacker.com/secure-messaging-app-showdown-whatsapp-vs-signal-1794684943) 为大众所用，但安全消息服务也留下了一点个人信息暴露:你的私人电话号码。
 
-Watch
+
 
 该应用程序需要一个工作电话号码来注册你的帐户，这可能会让你受到骚扰甚至黑客的攻击。令人欣慰的是，有一种方法可以在不泄露任何个人信息的情况下使用 Signal，尽管这可能需要大量的跑腿工作，具体取决于你使用的是 Android 还是 iOS。
 

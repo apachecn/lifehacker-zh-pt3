@@ -4,7 +4,7 @@
 
 我们不能完全确定片状面膜是每个人护肤梦想的答案——它是一种纸面膜？)浸泡在一些据称有益健康的液体中，当你让血清渗入时，你会将这些液体粘在脸上，然后在 Instagram 上发布一张自己的照片，看起来与 13 号星期五的杰森惊人地相似。有用吗？20 分钟的遮瑕能让你的皮肤保湿，让你看起来神采奕奕吗？
 
-Watch
+
 
 这取决于你问谁。如果你问 [纲要](https://theoutline.com/post/3151/the-skincare-con-glossier-drunk-elephant-biologique-recherche-p50?zd=1) ，所有的护肤都是骗局，我们在 [*涂抹的现代药水和血清构成了“化学暴力”如果你问我，大部分的口罩都没用。他们可能会给你一剂慢剂量的*](http://www.jewish-languages.org/jewish-english-lexicon/words/500) *[紫色西兰花](https://www.sephora.com/product/hydrating-coconut-gel-mask-brightening-purple-broccoli-P399979?icid2=:p399979:product)* *或 [蜗牛分泌物](https://www.amazon.com/SKEDERM-Sheets-Hydrogel-Secretion-Filtrate/dp/B01KLOS5KQ/ref=sr_1_5_a_it?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-super-fancy-sk-ii-sheet-masks-on-ebay-for-way-less-1822591184&asc_source=&ie=UTF8&keywords=snail sheet mask&qid=1517401353&sr=8-5&tag=kinjalifehackerlink-20) 或 [鸡蛋奶油](https://www.sephora.com/product/egg-cream-sheet-mask-P400284?icid2=:p400284:product) ，你也可能会发现自己，就像我一样，盯着镜子里你那张可怕的面具脸，问自己这是否真的是溺爱的极致，如果是，为什么我感觉自己像个傻瓜？*
 

@@ -4,7 +4,7 @@
 
 [【Skype】](https://lifehacker.com/now-you-can-send-friends-cash-using-skype-1797572254)是最受欢迎的消息应用之一，但它从未提供那种在其他服务中成为标准的[WhatsApp](https://lifehacker.com/whatsapp-just-added-live-location-sharing-heres-how-to-1819658511)和 [iMessage](https://lifehacker.com/how-to-prevent-imessages-from-accidentally-appearing-on-1794255706) 。
 
-Watch
+
 
 现在，这种情况终于要改变了，这要归功于微软(拥有 Skype)和 Signal(爱德华·斯诺登批准的超级安全消息应用程序 [)之间的，这是一个名为](https://gizmodo.com/edward-snowden-s-favored-encrypted-chat-app-signal-is-1740236667) [私人消息](https://support.skype.com/en/faq/FA34824/what-are-private-conversations-in-the-new-skype) 的新功能。以下是如何在 Skype 中实现端到端加密，以及如何使用它。
 

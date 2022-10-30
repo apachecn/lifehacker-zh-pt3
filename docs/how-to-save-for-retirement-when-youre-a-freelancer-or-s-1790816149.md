@@ -4,7 +4,7 @@
 
 当你从事全职工作，每月收入稳定时，为退休储蓄并不容易。但是如果你是自由职业者，小企业主或者独立承包人呢？为退休储蓄足够的钱会更有挑战性，因为你的收入每个月会有很大的变化。
 
-Watch
+
 
 *本帖原载于*[](http://www.money-rates.com/personal-finance/save-retirement-self-employed-freelance.html)**。**
 

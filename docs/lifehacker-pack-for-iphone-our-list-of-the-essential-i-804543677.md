@@ -4,7 +4,7 @@
 
 iPhone 在移动端有最大的应用选择，但这意味着它也是最令人沮丧的发现什么是值得的。因此，我们将重点介绍有助于您保持高效、互联、知情和娱乐的应用。
 
-Watch
+
 
 ***life hacker Pack**是我们最喜欢的平台的必备应用程序的年度快照。要获得 iPhone 上最佳应用程序的最新指南，请查看* [*iPhone 应用程序目录*](https://lifehacker.com/the-lifehacker-app-directory-iphone-5825402) *。*
 

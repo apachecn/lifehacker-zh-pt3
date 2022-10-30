@@ -4,7 +4,7 @@
 
 如果你想让你的 [智能家庭音响系统](https://lifehacker.com/how-to-set-up-a-basic-smart-home-sound-system-1821500548) 更上一层楼，这里有一个有趣的方法。通过一些额外的工作和一些 RFID 技术，你可以构建自己的卡片驱动的 [点唱机](https://lifehacker.com/how-to-build-a-raspberry-pi-jukebox-any-non-geek-can-us-1712107103) ，它一定会在你的下一次聚会上留下深刻印象。
 
-Watch
+
 
 由 YouTube 用户 [霍维曼](https://www.youtube.com/watch?v=AvCseOQidSw) 创建(并被 [安卓警察](https://www.androidpolice.com/2018/03/26/guy-builds-super-cool-rfid-jukebox-google-home-chromecast-speakers/) 发现)，这个令人印象深刻的设置使用了 RIFD 卡和连接到树莓 Pi 计算机的匹配扫描仪。每张特别印制的卡片激活一个不同的专辑或播放列表。其余的技术被巧妙地隐藏在桌子里面。
 

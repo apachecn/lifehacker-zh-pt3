@@ -4,7 +4,7 @@
 
 免费畅饮！还有零食！这么多插座！毫不夸张地说 [大通蓝宝石储备](http://gear.lifehacker.com/for-frequent-travelers-the-chase-sapphire-reserve-is-a-1796407364) 毁了我。
 
-Watch
+
 
 尽管它可能是目前最热门的信用卡，但它并不是唯一一张向持卡人提供免费机场休息室的信用卡。
 

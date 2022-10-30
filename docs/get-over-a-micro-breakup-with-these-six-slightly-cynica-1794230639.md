@@ -4,7 +4,7 @@
 
 当我从与我丈夫、两条狗和一只猫合住的公寓里搬出去时，真的很痛，但这种痛是我完全预料到的。伴随着十年关系的解除而产生的感情并没有什么令人惊讶的；我崩溃了，但如果我没有崩溃那才奇怪呢。整部电影的情节都致力于大的，适当的，资本 B 分手，但没有太多关注较小的，似乎不太重要的" [微分手](https://www.washingtonpost.com/news/soloish/wp/2017/04/06/the-surprising-weight-of-the-micro-breakup/?utm_term=.733d52e11b11) ， [一个由布里特尼·罗宾逊](https://www.washingtonpost.com/news/soloish/wp/2017/04/06/the-surprising-weight-of-the-micro-breakup/?utm_term=.733d52e11b11) 用来描述从未真正结束的事情的术语。
 
-Watch
+
 
 这可能是为什么我第一次回到约会的世界时非常漫不经心。不仅我的期望相当低——根据我所读到和看到的关于网络时代约会的一切，这将是糟糕的——而且我觉得自己是不可战胜的，感情受到了伤害。我失去了我的丈夫，所以我不会因为孩子们称我为“混蛋”而哭泣。
 
@@ -16,11 +16,7 @@ Watch
 
 很有可能，你的悲伤情绪与失去一个人关系不大，更多的是与拒绝、受伤的自尊和约会的挫败感有关。当马特·伯宁格的二重身取消的时候，他不喜欢我比他突然离开我的生活更让我难过。尽管我们的约会包括他在喝威士忌时痛苦地抱怨他的前任，我还是很兴奋，因为一个英俊的家伙似乎对我感兴趣，突然缺乏这种兴趣让我对自己感到难过。意识到我的自我受到了挫伤，但我的心甚至没有一点点破碎，这没有立即在我的脸上露出笑容，但它鼓励我练习一些自我照顾，对自己好一点，这有助于我重新建立自尊。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Get Over a Micro-Breakup With These Six Slightly Cynical Strategies](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/write-morning-pages-by-hand-every-day-to-boost-produc-1623157620) [###### 每天手写“早晨的页面”来提高工作效率](https://lifehacker.com/write-morning-pages-by-hand-every-day-to-boost-produc-1623157620) 
 
-作家兼记者朱莉娅·卡梅伦声称，高效工作的秘诀其实很简单…
-
-[Read more](https://lifehacker.com/write-morning-pages-by-hand-every-day-to-boost-produc-1623157620)</aside>
 
 如果你很难确定你心烦意乱的确切原因，我建议走 [晨报](https://lifehacker.com/write-morning-pages-by-hand-every-day-to-boost-produc-1623157620) 的路线，手写三页，意识流风格，用你脑海中浮现的任何东西填满这些页面。不要想；就写吧。你可能会对接下来发生的事情感到惊讶。一旦你明白了自己为什么感到沮丧，你就可以处理它，继续前进。
 

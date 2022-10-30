@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**谷歌的 Hangouts 扩展现在操作起来更像自己的 App**](http://lifehacker.com/googles-hangouts-extension-operates-more-like-its-own-a-1786443446)
 

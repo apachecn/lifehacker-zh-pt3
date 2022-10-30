@@ -4,7 +4,7 @@
 
 亚历克斯·戈德曼是 Gimlet Media 关于互联网的流行播客 [回复所有](https://www.gimletmedia.com/reply-all) 的共同主持人。(关于戈德曼和他的工作的介绍，可以看看 [《亚历克斯·戈德曼的秘密生活》](https://www.gimletmedia.com/reply-all/96-the-secret-life-of-alex-goldman) 他让他的搭档主持人 PJ·沃格特窃听他的手机的那一集，以及《长途， [第一部分](https://www.gimletmedia.com/reply-all/long-distance) 和 [第二部分，](https://gimletmedia.com/episode/103-long-distance-part-ii/) “他调查了一个诈骗电话，并在地球的另一端结束了一场疯狂的调查。)他目前正在休陪产假，照顾家里的新成员:三周大的波利。这是他为人父母的方式。
 
-Watch
+
 
 * * *
 

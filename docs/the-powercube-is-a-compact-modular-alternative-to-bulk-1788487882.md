@@ -4,7 +4,7 @@
 
 如果你需要在充电时使用这些小玩意，那么电源板会很大、很笨拙、很难操作。PowerCube 摒弃了笨重的设备，在一个紧凑的封装中为您提供了大量的插座，当您在家中使用设备时，可以轻松地插入设备。这就是我喜欢它的原因，也是我认为你也会喜欢它的原因。
 
-Watch
+
 
 [power cube](http://www.allocacoc.com/Index/detail.html)([【亚马逊】](https://www.amazon.com/dp/B00IUC8ZWA/ref=twister_B01CDQB85O?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-powercube-is-a-compact-modular-alternative-to-bulk-1788487882&asc_source=&psc=1&tag=kinjalifehackerlink-20) 上 19.95 美元带浪涌保护，或者[【13.25 美元不带](https://www.amazon.com/dp/B00O3GX658/ref=twister_B01CDQB85O?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-powercube-is-a-compact-modular-alternative-to-bulk-1788487882&asc_source=&tag=kinjalifehackerlink-20&th=1) )就是一个简单的插线板，稍微拧一下。PowerCube 不是将六个电源插座放在一个长板上，而是将五个插座放在一个小立方体上(电缆从第六面出来)。最棒的是，你可以用一个方便的粘扣板把它安装在五个插座面中的任何一个上。
 

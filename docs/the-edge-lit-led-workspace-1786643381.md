@@ -4,7 +4,7 @@
 
 [Devin](https://www.flickr.com/photos/129615447@N04/) 的工作区里挤满了漂亮的、会变色的 LED 灯条，效果看起来很棒。他有三个显示器，一个华丽的镶框的 [船底座星云](https://en.wikipedia.org/wiki/Carina_Nebula) 照明视图，在他的工作区还有一个水族馆，我们很嫉妒。
 
-Watch
+
 
 顶部的照片是他工作空间里所有东西的一个很好的后视图。戴文解释道:
 

@@ -4,7 +4,7 @@
 
 iPhone X 发布已经六个月了，有一点是成立的:它仍然很贵。然而，尽管我恨我自己 [买了一部 1000 美元的手机](https://gizmodo.com/im-going-to-buy-the-iphone-x-and-i-hate-myself-for-it-1804418016) ，尽管我恨我自己 [喜欢它](https://gizmodo.com/i-hate-how-much-i-love-the-iphone-x-1820086867) ，与 iPhone X 相处半年揭示了一些新的真相。第一，当 Jony Ive [说 Face ID 比看起来更重要时，他是对的。第二，苹果对卓越质量控制的把握正在下滑。第三，一旦你爱上了 iPhone X，就没有回头路了。](https://9to5mac.com/2017/10/11/jony-ive-interview-iphone-x/)
 
-Watch
+
 
 iPhone X 就是这么容易爱。但即使是最可爱的东西也有令人厌恶的缺陷。开箱即用，iPhone X 是一款设备的怪异变种。它看起来(有点)像 iPhone，你可以像 iPhone 一样与它互动。但这款 iPhone 与之前几代设备之间的一些主要差异是显而易见的。屏幕延伸至整个设备。Home 键没了。以奇怪的方式滑动是导航设备的新方式。这意味着，首先，简单的苹果式的无废话互动似乎并不存在。这些基本事实证实了 iPhone X 的与众不同，但我对自己学习新行为的速度感到惊讶。在使用手机的几个星期里，不同的感觉开始变好。
 

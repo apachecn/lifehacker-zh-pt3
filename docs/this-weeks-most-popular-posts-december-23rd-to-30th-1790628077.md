@@ -4,7 +4,7 @@
 
 一年的最后一周就像一个漫长的周日下午，我们利用这段安静的时间来看看哪里可以观看 2016 年的最佳电影，预示着 CyanogenMod 的结束，评估汽车黑客的威胁，等等。这里回顾一下。
 
-Watch
+
 
 ## [**2016 年 25 部最佳电影，去哪里看**](http://lifehacker.com/the-25-best-movies-of-2016-and-where-to-watch-them-1790413006)
 

@@ -4,7 +4,7 @@
 
 我是 [众所周知的](https://skillet.lifehacker.com/how-to-make-dinner-for-two-by-spending-less-than-10-at-1797444208) ，一个被称为乔氏的小杂货店的忠实粉丝。我喜欢他们价格合理、库存充足的奶酪部。我喜欢他们方便的预煮扁豆和罐装火鸡辣椒。我喜欢 [这个该死的魔法摇壶](https://skillet.lifehacker.com/this-everything-bagel-seasoning-is-quite-literally-my-1793624935#_ga=2.66529838.1240862638.1510584657-392757988.1502389723) 。因此，我非常兴奋地查看他们的感恩节产品，希望我能找到一些宝石，使一个更容易和更美味的假期。
 
-Watch
+
 
 不幸的是，这次品尝测试并不像我想象的那么愉快。在购买了我能找到的每一种与感恩节相关的商品之后——除了南瓜派和南瓜派的衍生产品，因为在 之前 [我已经尝过了所有这些——我回到我的公寓，开始有条不紊地吃起这堆积如山的火鸡、南瓜和鼠尾草气味的碳水化合物。有些很好，有些非常平庸，有些非常非常差。先说好的。](https://www.xojane.com/fun/every-pumpkin-item-at-trader-joes)
 

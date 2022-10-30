@@ -4,7 +4,7 @@
 
 试图找到最好的工具来组织一群人并分享知识可能是一件痛苦的事情。谷歌团队可能会觉得非常复杂。脸书不在乎你的隐私。如果你还在使用雅虎群组... [为什么是](https://www.bleepingcomputer.com/news/technology/yahoo-groups-plagued-by-downtime-technical-issues-for-almost-a-week/) ？不要考虑三大巨头，考虑一个像 [Groups.io](https://groups.io/) 这样的服务，一个明智的，非常容易使用的免费平台。
 
-Watch
+
 
 简单介绍一下背景，Groups.io 是由马克·弗莱彻(Mark Fletcher)创建的，他有着丰富的在线协作服务经验。他在 1998 年创建了 ONElist，后来成为 eGroups，后来被雅虎收购，并转变为我们现在所知的雅虎集团，首先是它的名字和领域的保护者。
 

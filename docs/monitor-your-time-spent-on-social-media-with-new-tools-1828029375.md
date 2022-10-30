@@ -4,7 +4,7 @@
 
 我们大多数人都知道我们在手机上花了太多时间。这导致了一系列关于负面影响的研究，而且不断偷看你的通知和抓住每一个机会关注那些数字松鼠肯定会有影响。
 
-Watch
+
 
 我们以前提供过一些解决方案，从 [使用你的电池信息来查看你在哪里度过你的时间](https://lifehacker.com/use-your-iphone-s-battery-to-learn-where-your-time-goes-1798443821#_ga=2.130802634.476387945.1533042847-3846207152.1521480874) 到 [像 iOS 上的 Forest](https://lifehacker.com/the-best-app-to-help-you-stay-off-of-your-phone-1823474344#_ga=2.130802634.476387945.1533042847-3846207152.1521480874)这样的应用程序温和地鼓励你放下手机一会儿。脸书现在也认识到了这个问题，并推出了 [来提醒自己，你在脸书和 Instagram](https://newsroom.fb.com/news/2018/08/manage-your-time/) 上花了太多时间。
 

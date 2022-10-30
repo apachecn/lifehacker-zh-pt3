@@ -4,7 +4,7 @@
 
 自助书籍(和博客)是大生意，因为我们都愿意相信我们能解决自己的问题。在《糟糕的感觉》一书中，迈克尔·班尼特博士和喜剧作家莎拉·班尼特认为，与其解决生活中不可能解决的问题，我们应该学会接受现状，并从现状出发。
 
-Watch
+
 
 *这是 Lifehacker 新* [*书评*](http://lifehacker.com/book-reviews) *系列的一部分。不是每个生活帮都能在一篇博客文章中概括，所以我们决定回顾一些我们最喜欢的改变生活的书籍，更深入地探讨生活中最重要的话题。*
 
@@ -33,11 +33,7 @@ Watch
 
 你不需要读完整本书，这是它最好的部分之一。除非你在生活的各个方面都很挣扎(对不起)，否则你可以挑选对你有吸引力的章节，把其他的丢在一边。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled F*ck Feelings: A Book on How Life Is Kind of Terrible but That&#39;s Okay](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-select-a-therapist-or-counselor-5874359) [###### 我如何选择治疗师或顾问？](https://lifehacker.com/how-do-i-select-a-therapist-or-counselor-5874359) 
 
-亲爱的生活黑客，最近我过得很艰难，我想和一个…
-
-[Read more](https://lifehacker.com/how-do-i-select-a-therapist-or-counselor-5874359)</aside>
 
 ### 一个你可以带走的技巧
 

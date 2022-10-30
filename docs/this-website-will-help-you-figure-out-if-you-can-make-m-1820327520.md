@@ -4,7 +4,7 @@
 
 放弃你的日常工作，在你的 Instagram timeline 上为奇特的利尿茶制作赞助内容，这很有诱惑力。或者至少会是，如果你有足够多的追随者。等等。你知道吗？现在有一个网站可以告诉你离成为一个有影响力的人有多近。
 
-Watch
+
 
 商业内幕 [报道](http://www.businessinsider.com/inkifi-website-tells-you-how-much-your-instagram-posts-are-worth-2017-11)[Inkifi.com](https://inkifi.com/earnings-on-instagram/)允许你提交你的 Instagram 句柄，并获得你的帖子可能价值的确切数字。作家 Rosie Fitzmaurice 将她的博客上传到了网站上，只有大约 400 名粉丝，一篇赞助帖子可以让她赚到大约 2.35 美元。不是非常多，但是你能赚到的钱会以指数级的速度增长。
 

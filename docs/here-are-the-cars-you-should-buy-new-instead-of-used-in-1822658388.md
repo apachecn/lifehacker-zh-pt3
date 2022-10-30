@@ -4,7 +4,7 @@
 
 我从来没有赞同“总是买二手车”的哲学，但一些人仍然相信，由于贬值，二手车是最聪明的金融购买。这项来自 iSeeCars.com 的 [*的研究显示，对于今年的一些汽车来说，二手版本并不能为你节省那么多。*](https://www.iseecars.com/used-car-finder#section=studies&study=cars_to_buy_new) 
 
-Watch
+
 
 最近， [我们报道了折旧率最低的汽车](https://jalopnik.com/the-best-resale-list-for-2018-is-basically-all-trucks-a-1822584771) ，很自然地，这些车型中的许多都出现在一年前的二手车价格仅比全新价格低几千英镑的汽车列表中。
 

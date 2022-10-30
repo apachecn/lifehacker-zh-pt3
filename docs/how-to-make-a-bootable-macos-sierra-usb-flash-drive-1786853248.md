@@ -4,7 +4,7 @@
 
 如果你想全新安装 [macOS Sierra](http://lifehacker.com/all-the-new-stuff-in-macos-sierra-1786817117) ，或者你有多台 MAC 要安装它，那么一个可启动的闪存驱动器是你轻松安装的最佳选择。下面是制作一个的方法。
 
-Watch
+
 
 ### 简单的选择:磁盘创建器
 

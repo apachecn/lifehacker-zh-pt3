@@ -4,7 +4,7 @@
 
 如果你对约会应用程序上的性别选项感到沮丧，你可能会有一个在 OkCupid 上受益的新朋友。
 
-Watch
+
 
 2017 年末，OkCupid 让用户 [放弃他们的手柄](https://lifehacker.com/how-to-get-around-okcupids-stupid-new-real-name-policy-1821632068) ，并强迫他们改用真实姓名。或者至少一个比“studhorze69”更真实的名字这一决定遭到了许多人的反对、、[，尤其是 LGBTQ 社区](https://jezebel.com/okcupid-says-you-can-hit-the-highway-with-your-goofy-us-1821529171)、，他们被这款交友应用的上一版本中略微匿名的安全性所吸引。OkCupid 刚刚宣布了一个新的选项，可能会让一些沮丧的人回到这个网站:你可以选择你的性别代词作为你个人资料的一部分。
 

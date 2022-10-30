@@ -4,7 +4,7 @@
 
 读者们，你们搞定了 [一月金钱挑战赛](http://twocents.lifehacker.com/how-d-you-do-during-the-january-money-challenge-1791754292#_ga=1.221743640.1268082208.1431441811) 。花一分钟祝贺你自己，然后为二月做准备。这个月，让我们通过抛弃旧的、未使用的订阅和会员资格来省钱。
 
-Watch
+
 
 我们并不是要求你放弃你使用和喜爱的订阅(你可以把网飞从我冰冷的手里撬出来)。但是如果有一项延迟服务你没有使用 [或者可能忘记了](https://lifehacker.com/how-to-turn-off-the-automatic-subscription-renewal-in-a-1714905341) ，并且它正在从你的预算中流失现金，是时候切断绳索了。
 

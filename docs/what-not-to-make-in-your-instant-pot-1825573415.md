@@ -4,7 +4,7 @@
 
 我真的，真的很喜欢我的速溶壶，根据许多博客、食谱和 [脸书集团](https://skillet.lifehacker.com/these-facebook-groups-will-help-you-master-the-instant-1821718330) ，世界其他地方也是如此。但是，就像任何被大肆宣传的设备一样，事情变得有点失控。知道什么时候*不*使用速溶壶和知道什么时候*应该*使用它一样有价值。
 
-Watch
+
 
 速溶壶的核心是一个容易接近的高压锅。我可能热力学差点不及格，但连我都知道:压力越高，煮的时间越短。这对于富含纤维的蔬菜、 [含有大量结缔组织的肉块、](https://skillet.lifehacker.com/5-succulent-meats-you-should-make-in-your-instant-pot-1822311136) 、 [丰盛的谷物](https://skillet.lifehacker.com/just-how-multi-functional-is-the-instant-pots-multigrai-1823336340) 和干豆来说是很棒的。
 

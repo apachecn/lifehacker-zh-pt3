@@ -4,7 +4,7 @@
 
 如果说 [Equifax 数据泄露](http://twocents.lifehacker.com/the-latest-news-on-the-equifax-hack-updating-1812224799#_ga=2.123993354.1275430105.1505050985-167189482.1495477587) 泄露[1.43 亿人的个人信息](http://lifehacker.com/equifax-hackers-might-have-your-social-security-and-cre-1802159442) 还不够，现在骗子们正在利用影响客户的困惑和焦虑。如果接到自称是 Equifax 一部分人的电话， [不要相信](https://consumerist.com/2017/09/14/if-someone-calls-you-from-equifax-to-verify-your-account-its-a-scam/) 。
 
-Watch
+
 
 Lisa Weintraub Schifferle， [的律师在 FTC 的博客上发表了一篇文章](https://www.consumer.ftc.gov/blog/2017/09/equifax-isnt-calling) ，提醒客户注意来自声称与 Equifax 有关的人的欺骗性电话的威胁。“停，”希弗勒写道。什么都不要告诉他们。他们不是来自 Equifax。这是个骗局。Equifax 不会突然打电话给你。“知道就好。
 

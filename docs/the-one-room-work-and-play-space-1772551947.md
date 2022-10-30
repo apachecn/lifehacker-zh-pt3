@@ -4,7 +4,7 @@
 
 lorby351 的工作空间藏在客厅的一侧，但这并不意味着它不够整洁、井井有条，不适合安顿下来完成一些真正的工作或娱乐。这里还有一些照片。
 
-Watch
+
 
 上面的照片是桌子区域，虽然 lorby351 有一些整个房间的伟大照片，但他们没有对它的内容说太多。从我们所看到的来看，双显示器装置的右边是一架钢琴，左边是一张桌子，一个带有显示器臂的双显示器装置从它的右侧伸出来，显示器之间整齐地管理着电缆， [Ducky Shine 键盘](http://www.duckychannel.com.tw/en/keyboard.html) 在桌子上，而 [Corsair Vengence MMO 游戏鼠标](http://www.amazon.com/Corsair-Vengeance-Performance-Gaming-CH-9000026-NA/dp/B00B5QLS2C?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-one-room-work-and-play-space-1772551947&asc_source=&tag=kinjalifehackerlink-20) 都在桌子的顶部，下面是那个 [CM Storm Stryker 外壳](http://www.amazon.com/CM-Storm-Stryker-Computer-Carrying/dp/B00BCXF6JE?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-one-room-work-and-play-space-1772551947&asc_source=&tag=kinjalifehackerlink-20) 。
 

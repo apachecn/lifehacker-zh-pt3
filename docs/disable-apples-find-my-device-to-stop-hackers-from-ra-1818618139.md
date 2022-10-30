@@ -4,7 +4,7 @@
 
 黑客正在利用苹果的 [“找到我”服务](https://support.apple.com/explore/find-my-iphone-ipad-mac-watch) 远程持有设备进行勒索， [报道 MacRumors](https://www.macrumors.com/2017/09/20/hackers-find-my-iphone-remote-mac-lock/) 。在过去的一周里，许多人在推特上发布了账户被盗的消息。双因素认证并不能防止黑客攻击。
 
-Watch
+
 
 “查找我的”服务旨在帮助您找回丢失或被盗的手机或电脑。它还可以让您远程锁定您的设备。这是为了阻止盗窃，因为它使被盗的手机无用。它还可以让你向丢失的设备发送自定义消息，比如“找到后奖励 50 美元”或“请回到松树街 55 号”
 

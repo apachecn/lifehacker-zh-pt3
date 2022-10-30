@@ -4,7 +4,7 @@
 
 有时，某些单词和短语会出现在右翼单词云中——耶利米·赖特、出生证明、文斯·福斯特、肯尼亚、班加西。最新登上前台的是《铀一号》(Uranium One)，这是关于克林顿涉嫌渎职的最新报道，成为右翼和主流媒体的头条新闻。
 
-Watch
+
 
 简单介绍一下:俄罗斯公司 Rosatom 于 2010 年收购了加拿大铀壹公司(Uranium One)的多数股权，并于 2013 年收购了其余股权。正如 [美联社解释的](https://www.washingtonpost.com/politics/whitehouse/ap-explains-what-happened-when-russia-bought-uranium-one/2017/11/15/48e9eb78-c9e3-11e7-b506-8a10ed11ecf5_story.html?utm_term=.7d5c6138ad3e) :
 

@@ -4,7 +4,7 @@
 
 在我们的 [桌面陈列柜](http://kinja.com/tag/desktop-showcase) 中，我们几乎没有足够的双显示器桌面，所以当我们看到一个时——尤其是像这样好看的——我们必须突出它。最重要的是，它没有太多的东西，如果你有两个自己的显示器，就很容易安装。以下是方法。
 
-Watch
+
 
 读者 [工具没有一个有趣的名字](http://kinja.com/twain2) 提交了这一个，并使用雨量计来完成这项工作。如果你对雨量计不熟悉，我们这里有 [的入门指南](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 来帮你。
 

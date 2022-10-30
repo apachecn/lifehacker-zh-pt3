@@ -4,7 +4,7 @@
 
 **Mac:** 在更新 [Lifehacker 的 2018](https://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836)Mac 包时，一些读者注意到我这次没有包含任何剪贴板管理应用。这不是针对个人的；我认为还有其他更有趣的应用程序。
 
-Watch
+
 
 也就是说，生活黑客读者**卢拉·梅·百老汇**在评论中调出了应用 [粘贴 2](https://pasteapp.me/appstore) 。我检查了一下，虽然它有点贵——完整版 15 美元——但它有一些引人注目的功能，以及免费试用，这使得它值得考虑。
 

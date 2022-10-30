@@ -4,7 +4,7 @@
 
 有人认为穷很简单。你没有足够的钱买很多东西，所以你被迫少买一些东西。但事实并非如此。当你破产的时候，你不可能做所有能长期改善你预算的小事。贫穷实际上要付出更多的代价。
 
-Watch
+
 
 当你很穷的时候，你不能批量购买你的 [食物](http://lifehacker.com/the-ultimate-guide-to-buying-in-bulk-1447310078) ，购买能够持续 的 [高质量的东西，或者拥有你自己的](http://lifehacker.com/when-it-makes-sense-to-buy-quality-instead-of-saving-mo-1689373996) [而不是租用](http://lifehacker.com/is-it-ever-a-good-idea-to-rent-a-modem-5949278#_ga=1.85057433.127976026.1441054335) 。从长远来看，要省钱就要先花钱。更糟糕的是，贫穷往往伴随着隐藏的、无形的成本，这让你摆脱贫穷变得更加困难。
 

@@ -4,7 +4,7 @@
 
 如果你不关注硅谷的日常运作，你可能不会意识到谷歌不仅仅收购初创公司——它们还深度参与风险投资。GV 是 Alphabet Inc .的风险投资部门，自成立以来，他们已经向有前途的公司投入了超过 20 亿美元。
 
-Watch
+
 
 杰克·纳普 是 GV 的一名设计合作伙伴，是他们“冲刺”过程的幕后推手，这是一种在短短五天内将抽象想法转化为可测试阶段的方法。他曾与像 [Slack](http://slack.com) 和 [Nest](https://nest.com/) 这样的初创公司合作过，并写了一本书(与合作伙伴 Braden Kowitz 和 John Zeratsky 一起)讲述他们的成功公式，书名很恰当，叫做 [Sprint](http://www.amazon.com/Sprint-Solve-Problems-Test-Ideas/dp/150112174X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-jake-knapp-design-partner-at-gv-google-ventures-1762185840&asc_source=&tag=kinjalifehackerlink-20) 。那么，杰克和他的团队如何在不出现重大失误的情况下，做到力不从心呢？我们采访了杰克，以了解他是如何工作的。
 
@@ -36,11 +36,7 @@ Watch
 
 在我的 iPhone 上，我已经关闭了电子邮件和 Safari，卸载了脸书和 Twitter 以及任何有着源源不断有趣内容的东西。我已经 [这样做了一段时间](https://lifehacker.com/my-year-with-a-distraction-free-iphone-1634907314) ，虽然它对我的注意力范围或自制力没有什么好处，但它非常有效。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled I&#39;m Jake Knapp, Design Partner at GV (Google Ventures), and This Is How I Work](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/my-year-with-a-distraction-free-iphone-1634907314) [###### 我的一年没有分心的 iPhone](https://lifehacker.com/my-year-with-a-distraction-free-iphone-1634907314) 
 
-2012 年，我意识到自己有问题。我的 iPhone 让我焦躁不安。我能感觉到它在我的口袋里，…
-
-[Read more](https://lifehacker.com/my-year-with-a-distraction-free-iphone-1634907314)</aside>
 
 #### 你最喜欢的待办事项管理器是什么？
 

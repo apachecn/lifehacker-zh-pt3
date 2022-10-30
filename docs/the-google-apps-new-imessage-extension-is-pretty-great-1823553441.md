@@ -4,7 +4,7 @@
 
 iOS:谷歌周一宣布 [对其](https://www.blog.google/products/search/getting-more-done-search-ios/) [iOS 应用](https://itunes.apple.com/us/app/google/id284815942?mt=8) 进行新的大更新 。如果你只是通过在浏览器的地址栏中键入搜索查询来与 iPhone 上的谷歌互动，那么安装一个独立的“谷歌”应用程序 的概念可能会感觉有点奇怪。别担心。
 
-Watch
+
 
 更新后的谷歌应用并不完美——我一会儿会谈到这一点——但谷歌新的 iMessage 扩展现在给了 iPhone 用户一个令人信服的理由来拿起这款应用，并将其深埋在 iPhone 文件夹中。让我兴奋。
 

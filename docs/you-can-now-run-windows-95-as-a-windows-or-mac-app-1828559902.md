@@ -6,7 +6,7 @@
 
 如果你不记得上一次 Windows 95 酷是什么时候，我们会帮助你:感恩而死完成了他们的最后一场演出，旧金山 49 人队赢得了他们的第五个超级碗，凯文·米特尼克被扔进了监狱。
 
-Watch
+
 
 大约 20 多年后，Windows 95 感觉并不十分酷——与微软的视频可能让你相信的相反——但由于一个聪明的小黑客，你可以享受像 MS-DOS 提示符(现在的命令提示符)、电话拨号器(现在的 Skype)和 Freecell(现在的 [一个奇怪的应用](https://www.microsoft.com/en-us/p/freecell-collection-free/9wzdncrdn9kt) 这样的应用程序的怀旧之情。
 

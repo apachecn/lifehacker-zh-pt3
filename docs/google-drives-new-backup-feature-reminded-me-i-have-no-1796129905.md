@@ -4,7 +4,7 @@
 
 如果你没有异地云存储计划( [，你真的应该](http://lifehacker.com/online-backup-faceoff-crashplan-vs-backblaze-1768101631) )，谷歌对其云存储服务的最新更新 Google Drive 已经准备好修复你的数据备份漏洞，让你选择你想要备份到 Google Drive 上的文件夹，而不是强迫你将文件放在一个单独的 Google Drive 文件夹中。这叫备份&同步。
 
-Watch
+
 
 ### 备份和同步使备份变得简单(r)
 

@@ -4,7 +4,7 @@
 
 没有什么比有时间赶到机场，却碰上蜿蜒的 [安检线](https://lifehacker.com/the-start-to-finish-guide-to-getting-through-airport-se-1777166539) 更糟糕的了，这条安检线长得足以让你误机。你总是可以提前到达，但这样你就有可能轻松通过安检，并在候机厅浪费几个小时，把钱花在高价小吃上。
 
-Watch
+
 
 如果你遇到过这些情况中的任何一种，你可能希望在你到达机场之前就有办法跟踪安检线。现在你可以了，这要归功于旅行行程应用 [TripIt](https://www.tripit.com/) 的更新。
 

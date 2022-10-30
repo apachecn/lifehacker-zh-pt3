@@ -4,7 +4,7 @@
 
 电脑黑客在电视和电影中被完全错误地展示的历史由来已久，但如果有任何展示接近准确，那就是机器人先生。所以，让我们来看看艾略特·奥尔德逊的背包。
 
-Watch
+
 
 根据 Reddit 上的 [一些探听，节目上的背包(极有可能)是一个](https://www.reddit.com/r/MrRobot/comments/3c2v4u/what_backpack_is_elliott_wearing/) [3V Velox II](https://www.amazon.com/3V-Gear-Tactical-Backpack-Compatible/dp/B00TXUW2FY?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/mr-robots-mobile-hacking-go-bag-1788163372&asc_source=&tag=kinjalifehackerlink-20) 。除了大量的药物外，还有 [连线](https://www.wired.com/2015/08/peek-inside-mr-robots-toolbox/) 和 [Quora](https://www.quora.com/What-does-Elliott-from-Mr-Robot-carry-in-his-backpack-and-why) ，下面是里面的内容:
 

@@ -4,7 +4,7 @@
 
 本周，苹果公司的新闻随着 macOS Sierra 的到来而继续，这一更新包括了不错的(如果说是渐进的)改进。我们还研究了昂贵的房屋维修，通过少量维护就可以避免，处理了雅虎的巨大数据泄露，进入了谷歌新的 Allo 聊天应用程序，等等。
 
-Watch
+
 
 ## [**MAC OS 塞拉**](http://lifehacker.com/all-the-new-stuff-in-macos-sierra-1786817117)T5】中的所有新功能
 

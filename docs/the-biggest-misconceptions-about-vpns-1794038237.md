@@ -4,7 +4,7 @@
 
 你听说了吗？ [互联网服务提供商想要出售你的数据](https://lifehacker.com/senate-votes-to-let-internet-providers-sell-your-web-hi-1793574677) 和一个 [虚拟专用网络(VPN)是告诉他们滚蛋的最好方式](https://lifehacker.com/why-is-everyone-talking-about-vpns-1793768312) 。但是有一个问题。VPN 是出了名的可疑，比它们看起来更复杂，它们不受监管，如果你不正确设置它们，可能比它们的价值更有安全风险。
 
-Watch
+
 
 在 之前，我们已经多次讨论过什么是 [VPN，但是让我们花点时间快速复习一下。VPN 会在数据离开您的设备之前对其进行加密，当数据通过您的本地网络和互联网服务提供商(ISP)到达 VPN 提供商的服务器之前，它会保持加密状态。这个过程被称为“隧道效应”当流量到达 VPN 的服务器时，它被解密并被发送到整个互联网。如果你在公共场所使用互联网，这通常是有用的，比如咖啡店的 Wi-Fi 网络，在那里有人可能试图监视你的流量。如果你想对你的 ISP 隐藏你的流量或者绕过政府的防火墙，它也是有用的，因为他们不会看到你访问的网站。](https://lifehacker.com/why-you-should-be-using-a-vpn-and-how-to-choose-one-5940565)
 

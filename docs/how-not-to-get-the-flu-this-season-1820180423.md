@@ -4,7 +4,7 @@
 
 我们不会粉饰这一点:很有可能这个冬天你可以做对每一件事，但仍然以可怕的流感结束。
 
-Watch
+
 
 也就是说，要避免成为每年 3500 万流感患者中的一员，还有很多工作要做，首先要注射最重要的流感疫苗。( [如果你还没有得到你的，你还在等什么？](https://vitals.lifehacker.com/don-t-let-these-myths-scare-you-away-from-a-flu-shot-1787136173) )
 

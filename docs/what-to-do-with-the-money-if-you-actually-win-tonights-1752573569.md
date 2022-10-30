@@ -4,7 +4,7 @@
 
 比起赢得强力球，你更有可能在青蛙雷暴中被闪电击中，但是，嘿，玩亿万富翁总是很有趣的。如果你赢了( [而你赢不了](https://lifehacker.com/winning-the-powerball-lottery-won-t-solve-your-problems-1752378740) )，你应该做几件事来保护和优化你的奖金。
 
-Watch
+
 
 ### 做出选择:一次付清还是年金
 

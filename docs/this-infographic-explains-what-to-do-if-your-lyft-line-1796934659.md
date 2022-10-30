@@ -4,7 +4,7 @@
 
 拼车服务让我们许多时间紧张的生活变得更加轻松，但伴随这些便利而来的是一系列其他问题:司机和 [乘客安全问题](https://www.theatlantic.com/technology/archive/2015/03/are-taxis-safer-than-uber/386207/)[公司丑闻](http://gizmodo.com/travis-kalanick-has-resigned-his-role-as-uber-ceo-1796287392) ，当然，还有潜在的交通事故。不管你的车是发生了轻微事故还是追尾事故，你都需要知道这些。
 
-Watch
+
 
 最大的问题也许是:保险到底涵盖了什么？毫不奇怪，这是一个合法的沼泽地，对各个州和城市的政策很敏感。大多数司机应该有自己的个人保险，但是他们也可以从他们的拼车合同中得到补充。 [谁在载你](http://www.whosdrivingyou.org/faq) ，一个倡导保护司机和乘客的网站写道:
 

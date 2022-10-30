@@ -4,7 +4,7 @@
 
 对我们大多数人来说，没有什么比面对一张白纸更令人畏缩的了。当然，白板意味着你可以把一个项目带向任何方向，但是这种无边界会很快变得难以承受。
 
-Watch
+
 
 *本帖原载于* [*帮侦察兵博客*](https://www.helpscout.net/blog/procrastination-habits-productivity/) *。*
 

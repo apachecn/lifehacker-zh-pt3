@@ -4,7 +4,7 @@
 
 出于某种原因，黏液对孩子来说是不可抗拒的。无论是你在家里做的那种，还是 [商店买来的](https://www.amazon.com/s?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/what-to-do-when-slime-gets-in-your-kid-s-hair-1823887392&asc_source=&k=slime&ref=nb_sb_noss&tag=kinjalifehackerlink-20) t 粘液，很有可能你的孩子要么有自己的粘液，要么在朋友家玩。如果是这样的话，他们头发里也很有可能有一些。如果发生这种情况，应该这么做。
 
-Watch
+
 
 ### **变成粘液**
 

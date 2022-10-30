@@ -4,7 +4,7 @@
 
 你知道 [不要故意让你的宠物兴奋](https://lifehacker.com/stop-trying-to-get-your-pets-high-1818511881) ，但是有时候你的狗会发现你藏的东西，或者它们在公园里“散步”时偶然发现一个可食用的东西(嘿，这可能会发生)。下面是要做的事情。
 
-Watch
+
 
 狗或猫的大麻中毒症状包括醉酒、流口水和看起来抑郁。(老实说，96%的时间里， [，那只是](https://www.veterinarypracticenews.com/treating-marijuana-toxicity/#Footnote2)。)你的宠物也可能呕吐，或者癫痫发作，或者你会看到它们的心率和呼吸变慢。这些症状也可能来自其他类型的中毒，或其他健康问题，所以不要 st upid: 如果你的宠物明显生病了，*寻求帮助*。
 
@@ -22,4 +22,3 @@ Watch
 
 在大多数情况下，你的宠物会很快和你一起回家。在他们等待的时候，给他们看这个视频 ，将来，把你的特别布朗尼放在你的宠物够不到的地方。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What to Do If Your Pet Accidentally Eats Weed](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-do-if-youre-too-high-1825412214)</aside>

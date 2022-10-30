@@ -4,7 +4,7 @@
 
 本周，我们舒适地学习了丹麦应对严冬的“hygge”概念，测试了最好的复古游戏控制器，比较了流行的语言学习应用程序，等等。这里回顾一下。
 
-Watch
+
 
 ## [**如何用丹麦的概念度过一个悲惨的冬天 *Hygge***](http://lifehacker.com/how-to-get-through-a-miserable-winter-with-the-danish-c-1791001000)
 

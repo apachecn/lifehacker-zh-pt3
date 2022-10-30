@@ -4,7 +4,7 @@
 
 五年前，我花了大约 500 美元 ，买下了我心爱的电视机，一台(当时)非常薄的 32 英寸三星 [。今天，你可以花 500 美元](http://gizmodo.com/why-is-my-smart-home-so-fucking-dumb-1684949715) 买到一台 50 英寸的 4K 电视 [。真正的问题是:你到底该不该买一台 4K 电视？](http://www.amazon.com/Sceptre-U508CV-UMK-50-Inch-Glass-Ultra/dp/B00S4HI7CO?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/a-skeptics-guide-to-buying-or-not-buying-a-4k-tv-1744272556&asc_source=&tag=kinjagizmodolink-20)
 
-Watch
+
 
 今年，4K 电视不再是 CES 展厅里的舶来品，而是你每次去百思买都会被绊倒的销售商品。现在市场上有大量的 4K 电视，他们终于买得起了。甚至 4K 电视内容也不像过去那样难以找到。然而，根据客厅的大小和眼球的需求，1080p 的机型可能会让你物有所值，甚至不会注意到视觉上的差异。
 

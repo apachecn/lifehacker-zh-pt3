@@ -4,7 +4,7 @@
 
 我们告诉过你特朗普的税收计划会带来什么，该计划于本周三发布。虽然不是很详细，但计划 [或多或少包含了大家所期待的](https://twocents.lifehacker.com/what-to-expect-from-trump-s-plan-for-the-biggest-tax-c-1794633060) 。以下是谁将受益最大的分析。
 
-Watch
+
 
 尽管 [在](http://www.cbsnews.com/videos/trumps-tax-plan-lacks-basic-details/) 计划中缺乏细节，以下是最值得注意的重大变化:
 

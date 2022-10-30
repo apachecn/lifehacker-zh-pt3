@@ -4,7 +4,7 @@
 
 我对《镜的边缘:催化剂》感到非常兴奋，而这个由读者 [0BUX](http://kinja.com/sahajkoka) 提交给我们的 [桌面展示](http://kinja.com/tag/desktop-showcase) 的桌面肯定没有帮助。看起来很神奇。以下是如何让它成为你的。
 
-Watch
+
 
 这是一个 Windows 10 桌面，但尽管它的屏幕尺寸和分辨率很奇怪，但你仍然可以在你的 PC 上获得相同的效果。它使用 rainmet，所以如果你不熟悉如何用它定制你的桌面， [在开始之前，在这里](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 查看我们的 rainmet 入门指南。
 

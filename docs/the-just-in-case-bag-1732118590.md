@@ -4,7 +4,7 @@
 
 做好准备意味着准备好应急物资。在《日常携带》中，读者泰勒·吉诺维斯分享了他的小袋子，当需要时，它可以很容易地放入其他大袋子中。
 
-Watch
+
 
 包里有一个 [秃鹰 T 和 T 小袋](http://www.amazon.com/dp/B0046NWMWG/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-just-in-case-bag-1732118590&asc_source=&tag=kinjalifehackerlink-20)T3。这是里面的内容:
 

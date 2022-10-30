@@ -4,7 +4,7 @@
 
 核桃已经有了健康食品的形象，但是加州核桃委员会想知道更多。一项新的研究询问，核桃——已经与降低患和 [【二型糖尿病】](http://jn.nutrition.org/content/143/4/512.full.pdf+html) 心脏病的风险相关——是否可能通过改变我们大脑对食物的反应来带来一些健康益处。
 
-Watch
+
 
 **头条:** [核桃减肥？](https://www.nytimes.com/2017/08/18/well/eat/walnuts-for-weight-loss.html)[(](https://www.nytimes.com/2017/08/18/well/eat/walnuts-for-weight-loss.html)N[e](https://www.nytimes.com/2017/08/18/well/eat/walnuts-for-weight-loss.html)wY[o](https://www.nytimes.com/2017/08/18/well/eat/walnuts-for-weight-loss.html)r[k](https://www.nytimes.com/2017/08/18/well/eat/walnuts-for-weight-loss.html)[T](https://www.nytimes.com/2017/08/18/well/eat/walnuts-for-weight-loss.html)I[m](https://www.nytimes.com/2017/08/18/well/eat/walnuts-for-weight-loss.html)e[s](https://www.nytimes.com/2017/08/18/well/eat/walnuts-for-weight-loss.html))
 

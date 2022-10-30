@@ -4,7 +4,7 @@
 
 如果你和我一样，你会难以置信地在一天中被诱惑几次，把钱花在你并不真正需要的东西上。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/ten-useful-strategies-for-learning-financial-self-control/) *上。*
 

@@ -4,7 +4,7 @@
 
 一年多来，*忍者神龟*导演戴夫·格林和演员乔·科布登一直在 Yelp 上发布 [越来越精细的 12 秒视频评论](https://www.yelp.com/user_local_photos?start=0&userid=Mpo1cdF9KUx8UBBS2VoeOA) 。他们和一些朋友一起制作了 41 部关于洛杉矶餐馆的视频，经常使用特效、特技和定格，让人想起 Vine 的黄金时代。
 
-Watch
+
 
 这个名为“牙齿图片”的系列节目一开始是对 Yelp 几乎被忽视的“视频回顾”工具的巧妙利用，但现在这些视频正在突破 Yelp 的 12 秒障碍。在 [牙贴 Instagram](https://www.instagram.com/toothpix/?hl=en) 上可以看到所有完整版本。以下是我们的最爱。
 

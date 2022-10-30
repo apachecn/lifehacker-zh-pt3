@@ -4,7 +4,7 @@
 
 在这一集里，我们将采访《两个最重要的日子:如何找到你的目标——过上更快乐、更健康的生活 》的作者桑基夫·乔普拉和吉娜·维尔德。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/b32e6bb3-c47a-41ca-85ce-c26fb8715187/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/b32e6bb3-c47a-41ca-85ce-c26fb8715187/embed)
 

@@ -8,7 +8,7 @@
 
 好莱坞的分类公式是这样的:作家 Walt Hickey 根据票房收入和评论评级来绘制演员的电影。然后，他在不同的数据点周围画出斑点，并用定性分析来证明它们，讨论演员的职业生涯，经常使用演员自己在采访中的术语。
 
-Watch
+
 
 该系列中最好的剧集涵盖了具有特别不拘一格的作品主体的演员，或者具有明确“时代”的职业生涯弧: [【亚当·桑德勒】](https://fivethirtyeight.com/features/the-three-types-of-adam-sandler-movies/)[【道恩·强森】](https://fivethirtyeight.com/features/the-three-types-of-dwayne-the-rock-johnson-movies/)[斯嘉丽·约翰逊](https://fivethirtyeight.com/features/the-four-types-of-scarlett-johansson-movies/) 。所以尼古拉斯·凯奇是《柳条人》和《改编电影》的主演，这是一个亮点。例如，希基探讨了这样一种理论，即凯奇制作了如此多糟糕的直接录像电影，是因为他在房地产崩盘中损失了很多钱。
 

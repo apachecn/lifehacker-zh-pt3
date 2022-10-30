@@ -4,7 +4,7 @@
 
 科技网站 Mashable 称，你应该买一个儿童泳池 。不是为了你的孩子，是为了你自己。正如他们指出的，如果你有一个屋顶或后院，[15 美元](https://www.amazon.com/s/ref=nb_sb_noss_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/adults-buy-yourself-a-kiddie-pool-1827579614&asc_source=&field-keywords=kiddie pool&tag=kinjalifehackerlink-20&url=search-alias=aps) ，和一个花园软管或一个大水桶，那么宝贝，你就有一个游泳池了。(他们声称你也可以在防火梯上放一个儿童泳池。我不能赞同这种特殊的变化。)
 
-Watch
+
 
 你的儿童泳池会很快变脏，你会看起来像 2009 年的潮人，但你会比“成人”泳池使用更少的水或空间。五分钟就能装满，一分钟就能倒空。你永远不必学习氯片是如何工作的。
 

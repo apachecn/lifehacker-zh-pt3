@@ -4,7 +4,7 @@
 
 想买一部新手机吗？谷歌只是让你更容易找到你应该买哪一个。
 
-Watch
+
 
 正如 [*The Next Web* 报道](https://thenextweb.com/google/2017/11/06/google-just-made-comparing-phone-specs-ridiculously-easy/#) 所言，现在当你搜索“Note 8 与 iPhone X”之类的东西时，搜索引擎会弹出一个表格，比较这两款设备的规格，并提供客户对这两款设备的评论。
 

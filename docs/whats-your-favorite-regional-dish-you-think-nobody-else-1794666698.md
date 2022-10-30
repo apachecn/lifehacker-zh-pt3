@@ -4,7 +4,7 @@
 
 地方美食通常是任何地区最好的隐藏宝石。无论是北达科他州的还是北卡罗来纳州的 [虾和玉米粉](http://www.southernseason.com/recipes/main-courses/crooks-corner-shrimp-and-grits/) ，到处都有自己的食物，我们想听听你的最爱。
 
-Watch
+
 
 就我个人而言，我最喜欢的是科罗拉多/新墨西哥风格的绿辣椒。直到我离开科罗拉多，我才意识到这是一个地区性的事情。当然，每个人都有自己的这道菜，但它基本上是切丁或切丝的猪肩肉，几打烤青椒(最好是孵化的)，西红柿泥(或西红柿泥)，以及各种香料。最终的结果是半炖半蘸酱，也可以 [放在墨西哥卷饼](http://www.westword.com/restaurants/the-ten-best-green-chiles-in-denver-2015-edition-6727198) 上面。
 

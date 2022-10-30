@@ -4,7 +4,7 @@
 
 即使你是下一个斯蒂芬·金或乔治·r·r·马丁——如果你是后者，请试着写得更快——每个人都需要写作的帮手。这就是为什么世界上有编辑，文字编辑，语法教练，一千万本关于写作的书，最重要的是，可以帮助你提高写作水平的浏览器扩展。
 
-Watch
+
 
 让我们面对它；你可能是一个相当不错的作家，但是自我编辑你的作品可能是一个痛苦的过程。虽然 [Chrome](https://chrome.google.com/webstore/detail/grammarly-for-chrome/kbfnbcaeplbcioakkpcpgfkobkghlhen?hl=en) 和 [Firefox](https://addons.mozilla.org/en-US/firefox/addon/grammarly-1/) 扩展在语法上不能涵盖一切，但它在标记明显的语法错误和可怕的拼写错误方面做得很好。
 

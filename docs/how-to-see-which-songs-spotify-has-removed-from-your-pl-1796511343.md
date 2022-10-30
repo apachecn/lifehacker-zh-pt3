@@ -4,7 +4,7 @@
 
 Spotify 流媒体播放超过[3000 万首歌曲](https://press.spotify.com/us/about/) ，拥有超过 20 亿个播放列表，这就是为什么有时很难跟踪来来去去的歌曲。如果你曾经注意到你最喜欢的一首歌停止了播放，不要马上责怪算法；这可能意味着该歌曲已从流媒体服务中删除。
 
-Watch
+
 
 有时艺术家会从 Spotify 上下载他们的音乐，这会自动导致流媒体服务在整个目录中隐藏歌曲，而不会通知用户。但是不用担心:有一个设置可以让你看到哪些歌曲从你的播放列表中消失了。如果你想在 iTunes 上永久购买歌曲，并且仍然在 Spotify 上以本地文件 的形式播放 [，这非常有用。](https://support.spotify.com/us/using_spotify/features/listen-to-local-files/)
 

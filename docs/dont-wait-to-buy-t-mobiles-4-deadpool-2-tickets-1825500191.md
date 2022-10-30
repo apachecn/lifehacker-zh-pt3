@@ -4,7 +4,7 @@
 
 我们讨厌“T-Mobile Tuesdays”这个词，但该运营商的最新报价肯定值得一些眼球:4 美元门票，为该公司的大量移动用户提供夏季大片《死侍 2》。
 
-Watch
+
 
 有什么问题吗？你必须等到 5 月 15 日——也就是所说的周二——才能获得门票，首先你必须通过 T-Mobile 的应用程序( [iOS](https://itunes.apple.com/us/app/tmobile-tuesdays/id1111876388) ， [Android](https://play.google.com/store/apps/details?id=com.tmobile.tuesdays) )申领门票，并在 Atom 门票应用程序( [iOS、](https://itunes.apple.com/us/app/atom-movie-tickets-times/id926058555?mt=8)[Android](https://play.google.com/store/apps/details?id=org.gamatech.androidclient.app&hl=en_US))中兑换门票，所有这些都是为了 5 月 17 日开始放映的电影。
 

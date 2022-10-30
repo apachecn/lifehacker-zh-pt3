@@ -4,7 +4,7 @@
 
 你可能知道你当地的图书馆不仅提供书籍，还提供 DVD、CD、杂志、 [流媒体电影](https://lifehacker.com/now-you-can-stream-criterion-films-with-a-library-card-1797516428) ，以及 [电子书](https://lifehacker.com/how-to-load-up-your-ereader-with-ebooks-for-free-5856977#_ga=2.22293883.1161899640.1506969953-1297080755.1497980211) 。但它也可能提供一些更令人惊讶的物理项目。
 
-Watch
+
 
 了解图书馆提供什么服务的最好方法是给他们打电话——许多图书馆网站没有提前列出他们所有的服务。为了给你一些思路，这里有来自全国各地图书馆的例子。
 

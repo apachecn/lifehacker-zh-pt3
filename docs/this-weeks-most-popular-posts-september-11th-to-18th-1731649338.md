@@ -4,7 +4,7 @@
 
 本周我们看了 iOS 9 的所有新功能，了解了患有焦虑症是什么样的，和亨特·S·汤普森一起乘坐了蝙蝠之国，等等。这里回顾一下。
 
-Watch
+
 
 ## [iOS 9](http://lifehacker.com/the-best-secret-features-of-ios-9-1730142209)的最佳秘密功能
 

@@ -4,7 +4,7 @@
 
 肯·詹宁斯以一种简单的方式成名——通过在 *Jeopardy* 上前所未有的 74 场连胜，价值 252 万美元。自 2004 年以来，这位和蔼可亲的 quizmaster 继续与 [合作主持一个播客](https://www.omnibusproject.com/) ，成为 [一个受人喜爱的 Twitter 英雄](https://twitter.com/KenJennings) ，写了几本书(包括新发布的 [*星球滑稽:喜剧如何接管我们的文化*](https://www.amazon.com/Planet-Funny-Comedy-Took-Culture/dp/1501100580?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-ken-jennings-author-and-jeopardy-champ-and-this-is-1826875423&asc_source=&tag=kinjalifehackerlink-20) *)* ，并继续与妻子 Mindy 抚养他的两个孩子。这是他为人父母的方式。
 
-Watch
+
 
 * * *
 

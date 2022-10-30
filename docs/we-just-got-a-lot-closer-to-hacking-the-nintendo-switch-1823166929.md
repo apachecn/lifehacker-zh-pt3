@@ -4,7 +4,7 @@
 
 [【任天堂 Switch】](https://lifehacker.com/if-you-hate-joy-cons-use-an-old-gamecube-controller-on-1819836689)是一款很棒的游戏设备，但(除了流媒体 [Hulu](https://gizmodo.com/its-about-time-the-nintendo-switch-got-a-real-streaming-1820292731) )它没什么别的功能。谢天谢地，如果你愿意黑掉你 300 美元的平板电脑，这种情况可能不会持续太久。
 
-Watch
+
 
 黑客集体 fail0verflow 本周末发布了一段视频，展示了一个运行 [Linux 操作系统](https://lifehacker.com/how-to-get-started-with-the-linux-operating-system-1819644874) 的改良版任天堂 Switch。长达一分钟的演示展示了一个工作桌面、一个功能浏览器和触摸屏支持。这是它实际运行的样子:
 

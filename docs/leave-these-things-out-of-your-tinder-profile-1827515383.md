@@ -4,7 +4,7 @@
 
 你有没有想过为什么在 Tinder 或 Bumble 上找不到任何匹配？我们认为这些应用程序只是关于照片的，但是如果你运气不好，考虑一下你的简历。它可能需要更新。
 
-Watch
+
 
 很多人写“关于他们”的部分就像是一次性的，或者他们以后会改变它。改成现在的*。有很多事情让人感到非常不愉快。例如，Reddit 用户 [u/Troelski](https://www.reddit.com/user/Troelski) 对所有自称“擅长讽刺”的人都有意见这又回到了那句老话——展示，不要说。在 r/LifeProTips 中，他们 [写道](https://www.reddit.com/r/LifeProTips/comments/8xye24/lpt_in_your_online_dating_profile_dont_say_youre/) 字面上说你讽刺或机智是一个迹象，表明你可能一点也不好笑:*
 

@@ -4,7 +4,7 @@
 
 欢迎来到本周的 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏，我通常用我的沉浸式循环器在那里制作你想要我做的任何东西。本周早些时候，我在做一个超级秘密和令人兴奋的视频项目，所以我决定为本周的专栏做一个快速而简单的实验，看看我是否能快速做出通常需要几周时间才能做出的酸甜调味品。
 
-Watch
+
 
 你可能注意到了，也可能没有注意到， [我最近对柠檬脯](http://skillet.lifehacker.com/preserved-lemons-are-your-new-favorite-condiment-1796458618) 非常着迷，但是制作它们需要等待一段时间，我想看看能不能利用真空腌制的力量来加快这个过程。我看到博客吹嘘 [腌制的柠檬仅用了一个小时](http://www.amazingfoodmadeeasy.com/info/modernist-recipes/more/sous-vide-preserved-lemon-confit) ，对此我既充满希望，也充满怀疑。
 

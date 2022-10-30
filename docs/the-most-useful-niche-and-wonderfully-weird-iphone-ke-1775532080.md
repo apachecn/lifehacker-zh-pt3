@@ -4,15 +4,11 @@
 
 iPhone 定制键盘最初推出时是一个受欢迎的惊喜，但随着时间的推移，似乎大多数人都放弃了它们 。但这并不意味着没有一些有用的键盘，事实证明它们越古怪越小众越好。
 
-Watch
+
 
 当第三方键盘在 iOS 8 中到来时， [我们涵盖了一些最流行和最有用的](https://lifehacker.com/the-best-third-party-keyboards-for-ios-8-1636566071) 。如果你正在寻找一个替代现有 iPhone 键盘的键盘，像[【Swype】](http://go.redirectingat.com/?id=33330X911647&site=lifehacker.com&xs=1&isjs=1&url=https%3A%2F%2Fitunes.apple.com%2Fus%2Fapp%2Fswype-keyboard%2Fid916365675&xguid=7701797331255e816207580aa8402705&xuuid=87d89aa590831b7a9b05fc455e409aec&xsessid=&xcreo=0&xed=0&sref=http%3A%2F%2Flifehacker.com%2Fthe-best-third-party-keyboards-for-ios-8-1636566071&pref=https%3A%2F%2Fwww.google.com%2F&xtz=420&abp=1)[swift key](http://go.redirectingat.com/?id=33330X911647&site=lifehacker.com&xs=1&isjs=1&url=https%3A%2F%2Fitunes.apple.com%2Fapp%2Fswiftkey-keyboard%2Fid911813648&xguid=7701797331255e816207580aa8402705&xuuid=87d89aa590831b7a9b05fc455e409aec&xsessid=&xcreo=0&xed=0&sref=http%3A%2F%2Flifehacker.com%2Fthe-best-third-party-keyboards-for-ios-8-1636566071&pref=https%3A%2F%2Fwww.google.com%2F&xtz=420&abp=1)和 [Fleksy](http://go.redirectingat.com/?id=33330X911647&site=lifehacker.com&xs=1&isjs=1&url=https%3A%2F%2Fitunes.apple.com%2Fus%2Fapp%2Ffleksy-keyboard-happy-typing%2Fid520337246%3Fmt%3D8&xguid=7701797331255e816207580aa8402705&xuuid=87d89aa590831b7a9b05fc455e409aec&xsessid=&xcreo=0&xed=0&sref=http%3A%2F%2Flifehacker.com%2Fthe-best-third-party-keyboards-for-ios-8-1636566071&pref=https%3A%2F%2Fwww.google.com%2F&xtz=420&abp=1) 这样的键盘仍然很棒。但并不是所有的键盘都是替代品。有些只是奇怪的小配件，让你的 iPhone 使用起来更有趣。有时它们也很有用，但更多时候它们只是普通键盘的附件。这根本不是一件坏事，可以说这些更奇怪的利基键盘比替代品更有用，因为它们只是做了一件有用的小事，真的很好。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Most Useful, Niche, and Wonderfully Weird iPhone Keyboards](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-third-party-keyboards-for-ios-8-1636566071) [###### iOS 8 的最佳第三方键盘](https://lifehacker.com/the-best-third-party-keyboards-for-ios-8-1636566071) 
 
-现在 iOS 8 已经上市，它带来了大量的第三方键盘，这些键盘提供了各种功能…
-
-[Read more](https://lifehacker.com/the-best-third-party-keyboards-for-ios-8-1636566071)</aside>
 
 ### Slash Keyboard 将大量其他应用程序集成到您的键盘中
 

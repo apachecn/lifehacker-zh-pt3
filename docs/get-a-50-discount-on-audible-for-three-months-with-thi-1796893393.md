@@ -4,7 +4,7 @@
 
 如果你喜欢有声读物， [可听绝对值得一试](https://lifehacker.com/most-popular-audiobook-service-audible-1689489712) 。但它的订阅价格结构让一些人望而却步。这里有一个简单的方法，只要你还在免费试用期内，就可以 50%享受三个月的服务。
 
-Watch
+
 
 拥有 Audible 的亚马逊喜欢尽一切可能留住客户——包括向那些试图取消订阅的人提供交易。如果你在 Audible 的 30 天免费试用期内，还需要说服的话， [redditor Sharplookout 找到了一个延长你储蓄的方法](https://www.reddit.com/r/YouShouldKnow/comments/6ihzee/ysk_if_you_attempt_to_cancel_your_free_trial/) :
 

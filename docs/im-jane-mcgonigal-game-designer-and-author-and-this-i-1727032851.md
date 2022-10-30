@@ -4,7 +4,7 @@
 
 简·麦克戈尼格尔 是一名游戏设计师——但她并没有参与下一部《马里奥》。相反，她给游戏带来了学术视角，并着眼于游戏如何改善我们的生活和解决实际问题。
 
-Watch
+
 
 她的新书 [SuperBetter](http://www.amazon.com/SuperBetter-Revolutionary-Approach-Stronger-Resilient-Powered/dp/1594206368?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-jane-mcgonigal-game-designer-and-author-and-this-i-1727032851&asc_source=&tag=kinjalifehackerlink-20) 对我们如何在玩游戏时管理压力和挑战进行了科学研究，并将这些知识应用到现实生活中。在这本书问世之前， [超好项目](https://www.superbetter.com/) 是由一次创伤性事件引发的:简遭受了严重的脑震荡，导致她无法工作，情绪低落，甚至有自杀倾向。但她通过给自己设置挑战避免了螺旋式下降，实质上是把她的康复变成了一场游戏。那次个人挑战最终变成了一款 iOS 应用，这是她众多项目中的一个，展示了游戏和生活不需要被视为独立的领域。我们采访了简，以了解更多关于她的工作和她最近玩的游戏。
 

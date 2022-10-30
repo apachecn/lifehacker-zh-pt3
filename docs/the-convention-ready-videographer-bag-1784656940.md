@@ -6,7 +6,7 @@
 
 作为一名摄像师报道大型活动总是很艰难，但如果你想知道专业人士是如何做到的，那么 Tested 的工作人员将展示他们今年为动漫展带来的东西。
 
-Watch
+
 
 包里是一个 [Porta 撑钻机——FS5Q](http://www.bhphotovideo.com/c/product/1190637-REG/porta_brace_rig_fs5q_compact_carrying_case_for.html)。上面的视频向你展示了包里所有东西的用途，但如果你想快速浏览一下，下面是里面的东西:
 

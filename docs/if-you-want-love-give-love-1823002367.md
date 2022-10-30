@@ -4,7 +4,7 @@
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 
-Watch
+
 
 本周精选来自罗德斯的早期斯多葛派 [赫卡托](https://en.wikipedia.org/wiki/Hecato_of_Rhodes)。人们对他的生平知之甚少，但他经常被其他人引用，比如塞内卡《致路西利厄斯的道德信件》中的[(IX)](https://en.wikisource.org/wiki/Moral_letters_to_Lucilius/Letter_9):
 

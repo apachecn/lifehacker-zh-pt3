@@ -4,7 +4,7 @@
 
 饱满的圣诞树看起来很棒，但是浇水的时候会很痛苦。
 
-Watch
+
 
 如果你的树有低垂的树枝，很难看出你是否需要给树浇水。 [Reddit 用户 SolidDoctor](https://www.reddit.com/r/lifehacks/comments/7h6qha/cant_tell_if_your_christmas_tree_needs_water_make/) 有一个简单的解决问题的方法:在蓄水池里放一个乒乓球。
 

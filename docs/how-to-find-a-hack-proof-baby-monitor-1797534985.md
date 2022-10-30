@@ -4,7 +4,7 @@
 
 我妻子和我就要有孩子了，这太好了！但正如大多数新父母很快了解到的那样，现代婴儿似乎需要很多附件——婴儿床、换尿布、汽车座椅、婴儿车，当然，还有婴儿监视器(以及其他许多东西)。
 
-Watch
+
 
 事实证明，选择合适的婴儿监视器对我来说尤其是一个有趣的挑战:我回忆起最近各种关于 [婴儿监视器被轻松入侵](http://splinternews.com/watch-out-new-parents-internet-connected-baby-monitors-1793850489) 的头条新闻，它们的视频流被破坏，双向通话功能中传来可怕的声音， [在黑暗中对着婴儿尖叫](https://nakedsecurity.sophos.com/2013/08/14/baby-monitor-hacker-spies-on-and-swears-at-sleeping-2-year-old/) 。作为一名据说精通科学和技术的记者，我想确保我选择了最安全的婴儿监视器，价格在 200 美元左右或更低。
 

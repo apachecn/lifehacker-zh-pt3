@@ -4,7 +4,7 @@
 
 假期旅行几乎总是意味着，如果你是家里懂技术、懂电脑的人，有人会让你看看他们的笔记本电脑、手机或台式机。下次你回家时，用这份建议清单阻止他们。
 
-Watch
+
 
 ### 10.运行操作系统更新(到达后立即运行)
 
@@ -28,11 +28,7 @@ Watch
 
 无论是 Mac 电脑还是 Windows 电脑，没有什么比 [卸载 OEM crapware](https://lifehacker.com/the-complete-guide-to-avoiding-and-removing-windows-c-1630577558) 以及任何其他在后台安静运行的你确实不需要的应用程序和服务更能给你带来更好的即时体验了。扔掉它们，给你的家人一台速度更快的电脑。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Things to Do On Your Family&#39;s Computer When You Go Home for the Holidays](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-complete-guide-to-avoiding-and-removing-windows-c-1630577558) [###### 避免(和删除)Windows 垃圾软件的完整指南](https://lifehacker.com/the-complete-guide-to-avoiding-and-removing-windows-c-1630577558) 
 
-Windows 有很多优势，但它也背负着计算最大的烦恼之一:
-
-[Read more](https://lifehacker.com/the-complete-guide-to-avoiding-and-removing-windows-c-1630577558)</aside>
 
 拿一份 Windows 的 [Decrap](http://www.decrap.org/) 并让它完成它的工作，取出你的 PC 制造商决定你必须拥有的所有无用工具，像“支持和帮助”工具，只是他们的网站的支持部分的美化链接，或者一些你永远不会使用的 DVD 创作工具。然后，抓取一份 [Revo 卸载程序](http://www.revouninstaller.com/index.html) 、我们最喜欢的 Windows[应用卸载程序](http://lifehacker.com/the-best-app-uninstaller-for-windows-5829096) 或 [AppCleaner](http://freemacsoft.net/) 、 [我们最喜欢的 Mac](http://lifehacker.com/the-best-app-uninstaller-for-mac-5828738) 的副本，把剩下的你家人用不到的东西处理掉。他们不会注意到垃圾不见了，但他们会注意到一台更快的电脑。
 
@@ -40,11 +36,7 @@ Windows 有很多优势，但它也背负着计算最大的烦恼之一:
 
 回到到他们最喜欢的应用、设置和工具， [尽可能自动化一切](https://lifehacker.com/what-kind-of-maintenance-do-i-need-to-do-on-my-windows-5815256) 。系统更新？将它们设定为在夜间或电脑不使用的“安静时间”自动安装。您的备份也是如此。将您的家庭成员的所有喜爱的应用程序配置为自动下载更新和安全补丁，然后在下次应用程序打开时安装它们。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Things to Do On Your Family&#39;s Computer When You Go Home for the Holidays](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-kind-of-maintenance-do-i-need-to-do-on-my-windows-5815256) [###### 我需要对我的 Windows PC 进行什么样的维护？](https://lifehacker.com/what-kind-of-maintenance-do-i-need-to-do-on-my-windows-5815256) 
 
-亲爱的 Lifehacker，你们最近谈到了 Mac 维护，但坦率地说，我仍然有点…
-
-[Read more](https://lifehacker.com/what-kind-of-maintenance-do-i-need-to-do-on-my-windows-5815256)</aside>
 
 本质上，如果有任何你可以自动化的事情，就去做 ，让他们知道你已经做了。这样一来，你就永远不需要接听某个司机说有更新，他们不知道该怎么办，或者某个其他应用程序说有新版本，他们不知道如何处理的电话。就让这一切自动发生吧。
 
@@ -60,11 +52,7 @@ Windows 有很多优势，但它也背负着计算最大的烦恼之一:
 
 听着，我在 IT 行业工作了很长一段时间，甚至我让人们自学和学习他们的计算机和应用程序如何工作的最大努力也经常遇到“但是我可以打电话给你，你会帮助我的！”—如果没有大声说出来，肯定是在态度上。即便如此，每四五个有这种反应的人中，就有一个 [真的想要](https://lifehacker.com/how-can-i-make-my-parents-more-tech-savvy-5919612) [学习](https://lifehacker.com/how-can-i-make-my-parents-more-tech-savvy-5919612)并且真的想要自给自足。为了他们。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Things to Do On Your Family&#39;s Computer When You Go Home for the Holidays](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-make-my-parents-more-tech-savvy-5919612) [###### 我怎样才能让我的父母更懂技术？](https://lifehacker.com/how-can-i-make-my-parents-more-tech-savvy-5919612) 
 
-亲爱的 Lifehacker，我父母不太懂电脑。他们几乎不能操作他们的…
-
-[Read more](https://lifehacker.com/how-can-i-make-my-parents-more-tech-savvy-5919612)</aside>
 
 给他们一个链接或工具的小列表，他们可以使用这些链接或工具来解决他们自己的问题，以及在哪里他们可以了解更多关于他们的技术是如何工作的。也许你甚至可以把他们带到 Lifehacker 或者我们的 Lifehacker U online 课程，他们可以自己学习一点技术。
 
@@ -80,11 +68,7 @@ Windows 有很多优势，但它也背负着计算最大的烦恼之一:
 
 说到家庭技术支持，我做过的最好的事情就是在我父亲的电脑上安装了 Teamviewer。他不经常需要我的帮助，但当他需要时，远程连接到他的计算机并查看他所看到的内容比尝试和解释他对我不使用的应用程序或我从未见过的设置屏幕的描述并指导他完成这些要容易得多。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Things to Do On Your Family&#39;s Computer When You Go Home for the Holidays](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-troubleshoot-my-parents-pc-remotely-5846072) [###### 如何远程诊断我父母的电脑？](https://lifehacker.com/how-do-i-troubleshoot-my-parents-pc-remotely-5846072) 
 
-亲爱的生活黑客，我即将去学校几个月，我是个懂技术的人…
-
-[Read more](https://lifehacker.com/how-do-i-troubleshoot-my-parents-pc-remotely-5846072)</aside>
 
 Teamviewer 不是你的风格？我们有 [多种选择](https://lifehacker.com/five-best-remote-desktop-tools-1508597379) 也能完成工作——但这是一个巨大的帮助，比坐在电话上一遍又一遍地说“点击按钮就在那里”和听到“什么按钮，我没有看到按钮”要好得多。
 
@@ -92,11 +76,7 @@ Teamviewer 不是你的风格？我们有 [多种选择](https://lifehacker.com/
 
 最后，你能做的最重要的事情——至少为了你自己的理智——是礼貌地退出将来作为家庭技术支持的。如果你不喜欢(有些人喜欢！)有时候，最好是不要让所有人失望，给你爱的人更多的选择，让他们自己去帮助，或者去其他地方寻求帮助，而不必打电话给你来救援。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Things to Do On Your Family&#39;s Computer When You Go Home for the Holidays](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-get-out-of-doing-all-my-familys-tech-repair-5861649) [###### 我怎样才能摆脱做我家所有的技术维修？](https://lifehacker.com/how-can-i-get-out-of-doing-all-my-familys-tech-repair-5861649) 
 
-亲爱的 Lifehacker，我的家人总是在我忙的时候打电话给我寻求技术支持，并保留了一份清单…
-
-[Read more](https://lifehacker.com/how-can-i-get-out-of-doing-all-my-familys-tech-repair-5861649)</aside>
 
 山姆·伍利的插图。附加照片由[*<small>Christiaan Colen</small>*](https://www.flickr.com/photos/132889348@N07/20013669693)*<small></small>*<small>[*<small>empd++</small>*](https://en.wikipedia.org/wiki/File:Mbamappwindow.png)<small></small>*[<small>*in xti*</small>](http://www.shutterstock.com/pic.mhtml?id=180624848&src=id)<small>*(shuttle)*</small>*</small>
 

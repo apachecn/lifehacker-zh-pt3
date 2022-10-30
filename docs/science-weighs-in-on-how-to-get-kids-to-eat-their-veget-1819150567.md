@@ -4,7 +4,7 @@
 
 我最大的孩子只会吃一种蔬菜:胡萝卜。(以前是西兰花，他换了。)他的小弟弟只会吃玉米。因为蔬菜对孩子有益，如果我们知道一些让孩子吃蔬菜的简单方法，那就太好了。科学没有可靠的答案，但它确实给了我们一些线索。
 
-Watch
+
 
 最近，[的科学家们回顾了旨在增加儿童水果和蔬菜摄入量的不同干预措施的证据](http://www.cochrane.org/CD008552/VASC_interventions-increasing-eating-fruit-and-vegetables-children-aged-five-years-and-under) 。他们只考虑了一些研究，其中一些孩子得到了蔬菜促进计划，而另一些没有，而且研究人员实际上测量了孩子们吃了什么。
 

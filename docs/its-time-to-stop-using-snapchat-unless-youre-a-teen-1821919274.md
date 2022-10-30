@@ -4,7 +4,7 @@
 
 临近 2017 年底，奇怪的事情开始发生了。 [Snapchat 的](https://lifehacker.com/how-to-design-your-own-custom-snapchat-geofilters-direc-1796670916) iPhone 应用一直让我注销账户。前几次，我迅速重新登录，但第四次或第五次之后，我就不再理会了。我已经开始对 Snapchat 感到厌倦，我很快发现 Instagram 的 [模仿故事功能](https://lifehacker.com/instagram-stories-apes-snapchat-lets-you-draw-stuff-on-1784704876) 也一样好——如果不是更好的话。
 
-Watch
+
 
 然后，在阅读了《每日野兽》关于 Snapchat 办公室内实际发生的事情后，我删除了手机上的应用程序。所以我现在宣布。2018 年是我们都应该抛弃 Snapchat 的一年——嗯，除非你是青少年。
 

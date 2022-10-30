@@ -4,7 +4,7 @@
 
 谷歌地图无疑是 Android 和 iPhone 上最好的导航应用之一，但考虑到我们大多数人在开车时使用它，很容易错过它的一些功能。无论你是谷歌地图的新手还是老手，让我们来看看充分利用它的最佳方式。
 
-Watch
+
 
 ### 保存你的家庭和工作地址
 
@@ -26,11 +26,7 @@ Watch
 
 根据你如何使用谷歌地图，你有几个方便的方法来保存位置。历史上， [“我的地图”](https://www.google.com/maps/d/u/0/) 一直是首选，但这需要你有一台台式电脑。进入你电脑上的“我的地图”网站，你可以创建一个私人或公共地图，在手机上的谷歌地图中可以访问。 [如果你正试图为一次度假制定一条路线，计划一项活动，或者你正与朋友一起制作一张合作地图，这是很方便的。](https://lifehacker.com/the-best-ways-to-use-googles-new-ish-my-maps-tool-1635833998) 
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Get the Most Out of Google Maps](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-ways-to-use-googles-new-ish-my-maps-tool-1635833998) [###### 使用谷歌新的“我的地图”工具的最佳方式](https://lifehacker.com/the-best-ways-to-use-googles-new-ish-my-maps-tool-1635833998) 
 
-昨天，谷歌更新了它早已被遗忘的“我的地图”工具。这项服务一直伪装成…
-
-[Read more](https://lifehacker.com/the-best-ways-to-use-googles-new-ish-my-maps-tool-1635833998)</aside>
 
 也许在你忙碌的时候更有用的是一个 [新列表功能](https://lifehacker.com/google-maps-now-lets-you-organize-your-favorite-places-1792293019) 。在谷歌地图中搜索一个位置，然后点击保存按钮。在这里，您可以找到您的位置列表，包括预定义的列表，称为收藏夹、想去的地方和标有星号的地方。您还会看到一个选项，将该位置添加到自定义列表或创建一个新的完整列表。
 

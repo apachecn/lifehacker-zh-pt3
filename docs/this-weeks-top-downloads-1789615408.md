@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**干净的谷歌日历就是你一直想要的美好 GCal**](http://lifehacker.com/clean-google-calendar-is-the-beautiful-gcal-you-always-1789487677)
 

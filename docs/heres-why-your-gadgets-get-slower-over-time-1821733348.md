@@ -4,7 +4,7 @@
 
 众所周知， [随着设备的老化](https://gizmodo.com/how-to-tell-if-your-iphone-battery-is-screwed-and-what-1821554872) 它们会变慢——你三年前的笔记本电脑或手机不会像你第一次打开盒子时那样有弹性了。但是造成这种不可避免的不景气的因素是什么呢？你的宝贝设备只是简单地磨损了吗？
 
-Watch
+
 
 小工具速度变慢通常不仅仅是一个原因造成的( [苹果最近的电池问题是一个罕见的例外](https://gizmodo.com/apple-gives-in-to-furious-customers-slashes-price-on-i-1821634150#_ga=2.65193390.1029815187.1514899621-637574394.1506543594) )，而是几个因素共同作用的结果，这就是为什么不同设备(即使是相同的品牌和型号)之间的问题不同， [在某些情况下可以在一定程度上缓解](http://fieldguide.gizmodo.com/4-tips-to-make-your-windows-10-computer-run-faster-1759839684) 。硬件和软件都会受到影响，这就是为什么完全重置不一定能解决所有速度问题。
 

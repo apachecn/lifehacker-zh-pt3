@@ -4,7 +4,7 @@
 
 我倾向于认为美好的生活是充满好的投资的生活。如果你利用你的资源(金钱、时间、精力等)。)以一种聪明的方式，他们会给你更多的价值作为回报。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/ten-simple-investments-you-can-make-in-yourself-for-a-huge-return-on-your-money-and-time/) *上。*
 

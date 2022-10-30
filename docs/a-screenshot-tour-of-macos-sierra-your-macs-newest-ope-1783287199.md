@@ -4,7 +4,7 @@
 
 苹果操作系统的最新版本 [macOS Sierra](http://www.apple.com/macos/sierra-preview/) 要到秋天才会发布，但一个 [公开测试版已经向任何有胆量立即安装的人开放。如果你宁愿不去管你的 Mac，但你仍然对它的新功能感到好奇，不要担心，我们会看看所有的新功能。](https://lifehacker.com/ios-10-and-macos-sierra-public-betas-are-available-now-1783283002) 
 
-Watch
+
 
 ### Siri 的工作方式几乎和它在 iOS 上一样，但有一个问题
 

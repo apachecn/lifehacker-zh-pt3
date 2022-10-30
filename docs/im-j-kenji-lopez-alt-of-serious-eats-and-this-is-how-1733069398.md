@@ -4,7 +4,7 @@
 
 J.Kenji López-Alt 是食品实验室[的作者，这是一个关于严肃饮食的专栏，现在是一本用科学的眼光探索烹饪的书的作者。事实上，纽约时报](http://www.seriouseats.com/the-food-lab) [刚刚称 Kenji](http://www.nytimes.com/2015/09/30/dining/cookbook-review-the-food-lab-j-kenji-lopez-alt.html) 为“网络烹饪之王”
 
-Watch
+
 
 但这不是深奥的疯狂科学——食品实验室以其实用性和清晰性以及细致的实验而闻名。做一碗完美的芝士通心粉是一回事，但你可能不想花七个小时去做。考虑到这一点，Kenji 有条不紊地处理这项任务，并在解释烹饪的基本化学时，将他所学到的知识提炼为简单、清晰的方向。我们采访了 Kenji，了解了一些他离不开的厨房小工具，罪恶的食物乐趣，以及他的工作方式。
 

@@ -4,7 +4,7 @@
 
 [比特币](https://lifehacker.com/how-to-get-your-money-out-of-bitcoin-1821536561) 正在崩盘，但你可能已经知道了。然而，如果你没有在过去几周拼命刷新 [CoinMarketCap](https://lifehacker.com/how-one-person-caused-the-price-of-cryptocurrencies-to-1822396438) (或其他跟踪 [加密货币](https://lifehacker.com/preview/beyond-bitcoin-your-guide-to-the-other-major-cryptocur-1821656104?rev=1514581574792) 价值的网站)，你可能会错过一次令人震惊的下跌，那次下跌抹去了 2017 年积累的大部分价值。
 
-Watch
+
 
 目前仍不清楚到底是什么导致比特币价格如此迅速地下跌(目前徘徊在 6250 美元左右，低于一个月前的 17000 美元)。当然，加密货币的价值可能会波动，这已经不是什么秘密，但是 [最近的报道](https://mashable.com/2018/01/29/bitcoin-tether-stablecoin-alleged-scam/) 表明，一种特定的货币可能是人为推高比特币价格的原因，导致了这次暴跌。
 

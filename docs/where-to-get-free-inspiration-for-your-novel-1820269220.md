@@ -4,7 +4,7 @@
 
 纳米瑞莫怎么样了？你的硬盘上有 20%的小说吗？如果没有，也许你在思考该写些什么方面有困难。幸运的是，在 nanowrimo.org 的上有一个地方，充满了可供窃取的成熟想法。
 
-Watch
+
 
 是一个叫 [领养社](https://nanowrimo.org/forums/adoption-society) 的论坛，所以不，其实不是偷。人们想到 [剧情](https://nanowrimo.org/forums/adoption-society/threads/414948) ，把不能用的(或者愿意分享的)“拿出来领养。”同样 [人物](https://nanowrimo.org/forums/adoption-society/threads/415598) ， [支线剧情](https://nanowrimo.org/forums/adoption-society/threads/423436) ， [片头](https://nanowrimo.org/forums/adoption-society/threads/415044) ， [更有](https://nanowrimo.org/forums/adoption-society/threads/415658) 。你需要在 NaNoWriMo 网站上有一个免费账户才能浏览这个论坛，但是无论你是否参加这个月的挑战，我都推荐你。收养协会充满了孤儿的想法，只是在你的下一部小说中乞求一个家。
 

@@ -4,7 +4,7 @@
 
 在今年的 [我如何工作](https://lifehacker.com/c/how-i-work) 节目中，我们了解了喜剧演员、作家、开发商和鬼屋设计师的工作习惯。以下是今年最好的采访，以及一些他们最伟大的名言。
 
-Watch
+
 
 ## **最具评论:**[**【Ven】赖，雪佛兰**](https://lifehacker.com/im-ven-lai-creative-designer-at-chevrolet-and-this-is-1791633250#_ga=2.101040904.826540226.1514326571-1982267347.1503874148) 创意设计师
 

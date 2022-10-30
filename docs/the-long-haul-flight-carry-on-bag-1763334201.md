@@ -4,7 +4,7 @@
 
 长途飞行是艰难的，但是摩托车记者和日常随身读物读者韦斯用他的随身包尽可能地让事情变得愉快。
 
-Watch
+
 
 袋子里是一张 [北脸北极光](https://www.thenorthface.com/shop/borealis) 。这是里面的内容:
 

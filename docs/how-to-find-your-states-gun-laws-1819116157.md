@@ -4,7 +4,7 @@
 
 各州之间的枪支法律差异很大，当你只是在你所在州的密集立法信息中挖掘时，很难找到这些法律。如果你想知道在你住的地方应该如何使用枪支，你可以这么做。
 
-Watch
+
 
 首先，除非你精通法律术语，否则不要去关注你所在州的立法网站( [看起来就像这个](http://leginfo.legislature.ca.gov/faces/codesTextSearch.xhtml) )。相反， [防止枪支暴力法律中心](http://smartgunlaws.org/) 和美国负责任解决方案基金会的执行律师艾利森·安德曼建议你通过 [一个像他们的](http://smartgunlaws.org/search-gun-law-by-state/) 一样的倡导团体目录来做你的研究。
 

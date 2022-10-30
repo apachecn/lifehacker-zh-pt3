@@ -4,7 +4,7 @@
 
 游轮被认为是臭名昭著的养病温床， [尤其是“两头发火”的那种](https://lifehacker.com/stop-blaming-food-poisoning-on-the-last-thing-you-ate-1796688099) 。如果你宁愿在旅途中晒晒太阳，喝喝巴哈马奶妈，也不愿意反过来看你的自助晚餐，遵循以下建议。
 
-Watch
+
 
 尽管你听说过乘客被困在呕吐号上的恐怖故事，但胜算通常对你有利。CDC 的 [船只卫生项目](https://www.cdc.gov/nceh/vsp/)[的负责人 Aimee Treffiletti 向《洛杉矶时报》](http://www.latimes.com/travel/la-tr-cruise-news-norovirus-20170709-story.html) 解释说，急性胃肠疾病(AGE)相当罕见，而且患病的几率正在下降。事实上，特雷弗莱蒂说，2008 年至 2014 年间，7300 万游轮乘客中只有不到 0.25%的人年龄偏大，所以没必要担心。
 

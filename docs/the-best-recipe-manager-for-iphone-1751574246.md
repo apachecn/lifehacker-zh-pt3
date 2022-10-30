@@ -4,7 +4,7 @@
 
 管理一大堆食谱过去就像拿出一盒索引卡一样简单。现在事情变得更聪明了，但这也意味着它们变得更复杂了。为了在你的 iPhone 上将你所有的食谱整理成一个合理的顺序，我们喜欢辣椒粉。
 
-Watch
+
 
 ### [辣椒粉](https://itunes.apple.com/us/app/paprika-recipe-manager-for/id406732590?mt=8)
 

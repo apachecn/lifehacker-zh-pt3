@@ -4,7 +4,7 @@
 
 糖对我们的健康有害，不仅仅是因为甜食含有大量的卡路里。大量的研究表明，相同卡路里的糖和其他食物对我们的身体会产生非常不同的影响。新的研究表明，糖业试图隐藏这些发现。
 
-Watch
+
 
 在过去五十年左右的时间里，传统观点认为饮食中的脂肪是心脏病的主要诱因。这些假设最终受到了挑战— [这并不是说你从鸡蛋或牛排中摄入的胆固醇会从你的胃中流入你的动脉](https://vitals.lifehacker.com/most-people-have-cholesterol-all-wrong-1715512922) 。而最近十年的研究已经 [开始固化](https://www.health.harvard.edu/blog/eating-too-much-added-sugar-increases-the-risk-of-dying-with-heart-disease-201402067021) [糖分摄入与心脏病](http://www.heart.org/HEARTORG/HealthyLiving/HealthyEating/Nutrition/Added-Sugars-Add-to-Your-Risk-of-Dying-from-Heart-Disease_UCM_460319_Article.jsp#) 之间的联系。
 

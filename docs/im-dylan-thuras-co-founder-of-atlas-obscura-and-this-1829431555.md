@@ -4,7 +4,7 @@
 
 迪伦·瑟拉斯(Dylan Thuras)是《图册暗箱 》的联合创始人和创意总监，这是一本世界隐藏奇迹指南。在这个地方，你可以被带到 [一个猫比人多的日本岛屿](https://www.atlasobscura.com/places/tashirojima) 或 [美国著名的古怪医学博物馆](https://www.atlasobscura.com/places/mutter-museum) 或 [澳大利亚的湖泊，它的粉红色无法用科学解释。](https://www.atlasobscura.com/places/lake-hillier)【Thuras】合著了新的儿童读物[*【The Atlas Obscura Explorer ' s Guide for The World ' s mosaic Kid*](https://www.atlasobscura.com/unique-gifts/atlas-obscura-kids-book)】，形容它是“我们这个世界上令人惊奇和精彩的一个小小的采样器”作为两个孩子的父亲，他告诉我们他是如何为人父母的。
 
-Watch
+
 
 * * *
 

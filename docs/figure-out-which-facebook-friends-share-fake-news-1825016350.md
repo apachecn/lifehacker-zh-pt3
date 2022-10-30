@@ -4,7 +4,7 @@
 
 不管你的政治信仰如何，“假新闻”这个词是最让人难以忍受的——尤其是如果你有几个“ [”难道就不会有人想到孩子们吗？](https://www.youtube.com/watch?v=RybNI0KB1bg)”——那些总是在你的脸书新闻订阅上塞满了为什么人类注定要灭亡的理由的朋友们。
 
-Watch
+
 
 除此之外，你的其他脸书朋友也加入进来告诉他们他们有多垃圾，我们不怪你时不时地想拿 [开个脸书](https://vitals.lifehacker.com/facebook-makes-you-sad-so-try-using-it-less-1821341334) 。
 

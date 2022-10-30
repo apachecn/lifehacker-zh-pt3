@@ -4,7 +4,7 @@
 
 Windows:问题来了:HEIF 图像格式，苹果现在在 iOS 11 中以 [HEIC 文件](https://www.phonearena.com/news/Apple-and-iOS-11-could-revolutionize-smartphone-photography-with-next-generation-image-file-format_id98159) 的形式使用，是 JPEG 的一个很好的替代品。HEIC 图像占用更少的空间，并支持大量的额外功能，如深度图和 16 位颜色。太好了。太棒了。
 
-Watch
+
 
 然而，取决于你如何将照片从你的 iPhone 转移到你的 Windows 系统，你可能会遇到你最喜欢的照片编辑工具不能处理的大量图片(或者你最喜欢的网站 不能接受的上传，或者...你明白了。)
 

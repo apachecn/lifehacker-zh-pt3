@@ -4,7 +4,7 @@
 
 一项新的研究表明，我们的孩子正在大量摄入婴儿食品和配方奶粉中的铅和其他污染物。但是这项研究有些可疑。首先，它来自一个主张标签“透明”的团体...但是隐藏了他们所有的数据。
 
-Watch
+
 
 **头条** : [在新的研究](https://www.usatoday.com/story/news/nation-now/2017/10/25/these-baby-foods-and-formulas-tested-positive-arsenic-lead-and-bpa-new-study/794291001/) (今日美国)中，这些婴儿食品和配方奶粉被检测出砷、铅和双酚 a 呈阳性
 

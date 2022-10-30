@@ -4,7 +4,7 @@
 
 如果你想更快地还清你的信用卡债务，你可以把你的余额转到一张低息(或者更好，零利息)信用卡上。这不是一个你想轻易做出的举动，但它可能是一个有用的黑客。令人惊讶的是，它实际上可能会提高你的信用评分。
 
-Watch
+
 
 ### 余额转移的工作原理
 
@@ -12,11 +12,7 @@ Watch
 
 不过，你必须对这个 黑客超级小心。这应该不用说，真的，但请确保您阅读小字:许多卡将向您收取余额转移费。其他的有六个月左右的零利息促销期，然后在那段时间后收取天价利息(比如 30%)。因此，如果你当时没有付清余额，你可能要支付比一开始更多的利息。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What Happens to Your Credit Score When You Transfer a Balance? ](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/should-i-take-advantage-of-credit-card-balance-transfer-5849885) [###### 我应该利用信用卡余额转移优惠吗？](https://lifehacker.com/should-i-take-advantage-of-credit-card-balance-transfer-5849885) 
 
-亲爱的 Lifehacker，我不时会在邮件中收到这些 0%或 2.99%的支票和报价…
-
-[Read more](https://lifehacker.com/should-i-take-advantage-of-credit-card-balance-transfer-5849885)</aside>
 
 ### 余额转移如何影响您的信用
 

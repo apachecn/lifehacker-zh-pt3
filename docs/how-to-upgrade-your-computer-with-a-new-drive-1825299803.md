@@ -4,7 +4,7 @@
 
 驱动器出现故障。无论你有多少备份，当你正在做重要的事情时，丢失一个驱动器——我的同名定律——真的很痛苦。值得庆幸的是，用一个全新的驱动器替换你的旧驱动器 是你能做的最简单的升级之一。
 
-Watch
+
 
 ### 你应该得到哪个驱动器？
 
@@ -24,11 +24,7 @@ Watch
 
 固态硬盘可能比硬盘贵一点，但往往比同等大小的固态硬盘便宜得多。与硬盘相比，你不太可能看到大容量的固态硬盘(4TB 以上)，所以如果你需要大量空间，你必须做出选择(我们怀疑你会选择硬盘)。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Upgrade Your Computer With a New Drive](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/which-type-of-drive-is-best-for-my-needs-hdd-ssd-or-5908411) [###### 哪种类型的硬盘最适合我的需求:硬盘、固态硬盘还是混合硬盘？](https://lifehacker.com/which-type-of-drive-is-best-for-my-needs-hdd-ssd-or-5908411) 
 
-亲爱的 Lifehacker，固态硬盘很贵，硬盘很慢。现在…
-
-[Read more](https://lifehacker.com/which-type-of-drive-is-best-for-my-needs-hdd-ssd-or-5908411)</aside>
 
 **硬盘驱动器**
 

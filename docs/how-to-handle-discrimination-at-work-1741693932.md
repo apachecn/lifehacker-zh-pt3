@@ -4,7 +4,7 @@
 
 工作场所的歧视，无论是种族、民族、性别、残疾、性取向、年龄还是宗教歧视，都不是闹着玩的，处理歧视也不像“找律师”那么简单。在你走法律途径之前，这里有一些你应该知道的事情。
 
-Watch
+
 
 职场歧视有多种形式，而且比你想象的更普遍。根据罗格斯大学 2002 年一项关于工作场所种族的研究，28%的非洲裔美国人、22%的西班牙裔和拉丁裔美国人以及 6%的美国白人在工作中遭受过公然的歧视。 [另一项针对亚裔美国人的研究发现](http://thesocietypages.org/colorline/2009/01/26/asian-americans-and-workplace-employment-discrimination/) 高达 31%的受访者有类似经历。更多的人报告了不公平待遇，所有这些数字都可能被低估了。一份 [2013 年《哈佛商业评论》研究总结](https://hbr.org/2013/09/women-in-the-workplace-a-research-roundup) 发现职场女性也有类似的惨淡经历，一份[2007 年威廉姆斯学院关于职场性取向和性别认同的研究](http://williamsinstitute.law.ucla.edu/wp-content/uploads/Badgett-Sears-Lau-Ho-Bias-in-the-Workplace-Jun-2007.pdf) 发现，在某些情况下，高达 68%的被调查 LGBT 人群都经历过不公平待遇或歧视。这些只是一些研究；虽然关于这一主题的大量研究中数字各不相同，但它们都有一个共同点:这是一个真正的问题。
 
@@ -58,11 +58,7 @@ FindLaw 建议你写工作日记(我们在 之前已经建议过的东西)或任
 
 这种对话也不一定是对抗性的。有时候就是这么简单，让你的老板知道他们说的话冒犯了你，你宁愿他们不要再说了。做 [诚实自信](https://lifehacker.com/be-assertive-not-aggressive-to-get-what-you-need-at-w-5808438) ，避免做价值判断。毕竟，你没有试图改变任何人的想法或偏见，教育他们也不是你的工作。你只是希望他们尊重你，在 [一个无毒的环境](https://lifehacker.com/how-to-handle-a-toxic-work-environment-1627385030) 中工作。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What to Do If You Feel Like You&#39;re Being Discriminated Against at Work](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-handle-a-toxic-work-environment-1627385030) [###### 如何处理有毒的工作环境](https://lifehacker.com/how-to-handle-a-toxic-work-environment-1627385030) 
 
-不喜欢自己的工作是一回事，但上班时感到身体不适是另一回事。…
-
-[Read more](https://lifehacker.com/how-to-handle-a-toxic-work-environment-1627385030)</aside>
 
 #### 不要去找人力资源部(至少在没有先和律师谈过的情况下)
 

@@ -4,7 +4,7 @@
 
 如果你整天都在为买哪辆 964 代保时捷 911 而苦恼，前往阿米莉亚岛的 RM 苏富比“保时捷专属” [系列](https://rmsothebys.com/en/search#/?SortBy=Default&SearchTerm=Exclusively%20Porsche%20-%20The%20964%20Collection&Category=All%20Categories&IncludeWithdrawnLots=false&Auction=&OfferStatus=All%20availability&AuctionYear=&Model=Model&Make=Make&FeaturedOnly=false&Collection=All%20Lots&WithoutReserveOnly=false&page=1&pageSize=0) 正好给了你一个简单的答案。964 各方面都很好，所以你应该全部买下。
 
-Watch
+
 
 该系列有 12 款 964 可供出售，每款都有，但不要因此而停止购买。不管怎样，这是我们的建议。当我们毫无意义的生活很可能以可怕的核灾难告终时，谁还需要像积蓄或房子这样愚蠢的东西呢？购买所有 911 是最明智的现金使用方式。
 

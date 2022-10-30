@@ -4,7 +4,7 @@
 
 沃尔格林公司本周宣布，他们现在正在 46 个州 的柜台销售纳洛酮，这种药物可以逆转阿片类药物过量。(如果有处方，在任何州都可以买到。)CVS 在 43 个州 柜台提供 [。](https://www.cvs.com/content/prescription-drug-abuse/save-a-life) 
 
-Watch
+
 
 但是，是哪个州呢？CVS [有一个清单](https://cvshealth.com/thought-leadership/prescription-drug-abuse) :在特拉华州、夏威夷州、缅因州、密歇根州、内布拉斯加州、俄克拉荷马州和怀俄明州仍然需要处方。据一位发言人称，他们所有的商店都有库存，或者可以在下一个工作日订购。
 

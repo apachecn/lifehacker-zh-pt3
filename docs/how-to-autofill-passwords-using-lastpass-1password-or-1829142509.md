@@ -4,7 +4,7 @@
 
 iOS 12 中有很多好玩的新花样 [。如果你很重视安全——*谁不是呢！你会爱上苹果最新手机操作系统中的所有密码主题的小功能。其中一些非常明显，比如能够自动填充基于短信的验证码，而不必切换到信息，或者新的密码建议，您可以使用它来生成强而唯一的密码(通过 iCloud 同步到您的其他设备)。*](https://lifehacker.com/how-to-get-apples-ios-watchos-and-tvos-updates-today-1829108062) 
 
-Watch
+
 
 那些不使用 iCloud 而更喜欢第三方应用程序来管理密码的人，如 [LastPass](https://lifehacker.com/the-beginners-guide-to-setting-up-lastpass-1785424440#_ga=2.41409445.647277737.1537282231-396842925.1520800403) 、 [1Password](https://lifehacker.com/1passwords-updated-password-manager-is-a-must-have-for-1826379117) 或 [Dashlane](https://www.dashlane.com/) ，会喜欢在 iOS 12 中自动填充密码是多么容易。每次需要时，您不必打开密码应用程序来复制和粘贴您的凭据；每当你点击用户名或密码栏时，你可以点击键盘上方出现的自动填充提示，iOS 12 会从你喜欢的应用程序中提取你的凭据。
 

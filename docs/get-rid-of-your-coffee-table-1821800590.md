@@ -4,7 +4,7 @@
 
 曾几何时，我的咖啡桌是我最珍视的家具。在“shelfies”之前，它是我客厅的焦点，是我 20 多岁时的抱负的展示。在放在工业铜管制成的腿上的矩形玻璃片的顶部，放着几本光滑的书——[*设计*家里的海绵*](https://www.amazon.com/Design-Sponge-Home-Grace-Bonney/dp/1579654312?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-rid-of-your-coffee-table-1821800590&asc_source=&tag=kinjalifehackerlink-20) 来展示我的现代审美和 [*可食用的塞尔比*](https://www.amazon.com/Edible-Selby-Todd/dp/0810998041?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-rid-of-your-coffee-table-1821800590&asc_source=&tag=kinjalifehackerlink-20) 因为我喜欢去世界各地进行美食冒险的*想法*——还有各种各样的《纽约客》杂志，我告诉自己我会坐下来在所有阅读材料的旁边是一支从未点燃过的漂亮蜡烛，还有一些会随着季节变化的装饰性小饰品。(每年 12 月都会出现一群闪闪发光的驯鹿，让我老公呻吟不已。)“哦，漂亮的桌子，”新客人走进房间时会说，我会笑着说。
 
-Watch
+
 
 然后——就在这一页，很多故事发生了急转弯——我们有了一个孩子。随着这个婴儿的成长，变得越来越灵活，咖啡桌变成了另外一个东西:一个危险的陷阱。“这东西怎么会在这里？”我会问，皱眉。“为什么它有这么多角？”它不再有任何美——相反，每当我看着它，我就会在我宝贝女儿的额头上出现一个很深的伤口，这将导致一个永久的疤痕，这将导致一个故事，以“所以我妈妈有这张愚蠢的桌子”开头很明显，咖啡桌必须搬走。
 

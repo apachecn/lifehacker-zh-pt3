@@ -4,7 +4,7 @@
 
 请看下图:
 
-Watch
+
 
 看到那个 [尖尖的](https://trends.google.com/trends/explore?date=2011-08-09%202018-08-09&geo=US&q=donkey%20sauce) 了吗？这发生在 2012 年 11 月，当时两个神奇的词进入了美国方言，让我们谷歌一下，看看到底是什么。
 

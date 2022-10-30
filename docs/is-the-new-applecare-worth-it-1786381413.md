@@ -4,7 +4,7 @@
 
 在 [iPhone 7 兴奋当中](http://gizmodo.com/iphone-7-first-impressions-not-just-the-same-thing-all-1786351450) 昨天( [两个摄像头](http://gizmodo.com/the-iphone-7-is-here-everything-you-need-to-know-1786260590) ！ [丑耳机](http://gizmodo.com/i-stuck-apples-airpods-in-my-ears-and-it-shockingly-was-1786353534) ！ [勇气](http://gizmodo.com/you-dont-need-an-iphone-1786273116) ！)苹果还对其 AppleCare+计划进行了一些更低调的改变。截至昨天，注册 AppleCare+意味着你可以花 29 美元获得一个破碎的 iPhone 屏幕。但是它值这个钱吗？
 
-Watch
+
 
 当然，也有一些陷阱。第一个也是最明显的:你要为 AppleCare+付费。注册费用为 129 美元，包括两次因“搬运造成的意外损坏”(ADH)而进行的维修。这意味着你的第一次屏幕维修总共要花费整整 158 美元。但是你的下一个只要 29 美元。
 

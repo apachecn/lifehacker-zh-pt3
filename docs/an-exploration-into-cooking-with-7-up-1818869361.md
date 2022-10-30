@@ -4,7 +4,7 @@
 
 中世纪的烹饪往往会联想到明胶“沙拉”、砂锅菜和 [滥用香蕉](https://www.google.com/search?q=mid+century+banana+recipes&source=lnms&tbm=isch&sa=X&ved=0ahUKEwifpYTb3cbWAhVO52MKHdTMB8YQ_AUICygC&biw=1366&bih=637#imgrc=cBGqoYeVAURdYM:) 的画面，但你听说过用 pop 烹饪的好消息吗？事实证明，苏打——尤其是七喜——除了饮用之外，实际上还有广泛的烹饪用途，我们将探索三种最受欢迎的食谱。
 
-Watch
+
 
 *欢迎来到* [***复古周***](https://lifehacker.com/tag/retro-week) ***，**在这里，我们将启动通量电容器，为您带来 20 世纪 50 年代的各种知识，从砂锅制作到防辐射防空洞建设，再到让孩子们放松和玩垃圾的乐趣。*
 

@@ -4,7 +4,7 @@
 
 你现在可能会担心很多事情:你的工作、你的健康、你的人际关系、你爱的人、你在 Twitter 上读到的最后一条消息、我们当前的政治形势、核战争的威胁...你明白了。
 
-Watch
+
 
 但是如果你在想“哦，太好了，你刚刚提醒了我，我不得不担心核战争的威胁”，不要担心。
 
@@ -30,11 +30,7 @@ Watch
 
 如果你很难将自己限制在一个焦虑的时间段，那么是时候开始练习正念了。莱希建议我们把我们的忧虑想象成是经过大中央车站的火车——我们不必登上每一列进站的火车。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Turn Unproductive Worries Into Productive Ones](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174) [###### 什么是“正念”，为什么每个人都在谈论它？](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174) 
 
-亲爱的 Lifehacker，我不断看到“正念”这个词无处不在，它与从失去…
-
-[Read more](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174)</aside>
 
 如果这种方法不起作用，莱希建议使用重复来减少担忧的影响。“每天重复这个想法几百次。一次又一次地让自己接触这种想法，直到你厌倦为止。”
 

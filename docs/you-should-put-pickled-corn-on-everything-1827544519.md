@@ -4,7 +4,7 @@
 
 也许你以为你会熬过这个夏天，没有我 [谈论](https://skillet.lifehacker.com/you-know-you-dont-have-to-cook-corn-right-1797841831) [玉米](https://skillet.lifehacker.com/make-a-golden-stock-out-of-corn-cobs-1827181520) [然而](https://skillet.lifehacker.com/remove-errant-strings-of-corn-silk-with-a-gripper-pad-1827206286)又来了，但是你想错了，伙计。除了蒸、烤和啃生玉米粒，我现在迷上了腌制新鲜玉米。
 
-Watch
+
 
 腌制玉米是我的新宠，有几个原因。首先，它既便宜又简单——这两点是我个人品牌的重要因素。对于那些已经进入你厨房的“额外”玉米来说，这也是一个很好的用途，因为新鲜的玉米在几天后会变得奇怪。但是腌玉米的主要吸引力在于它是辣、甜、酸、咸的完美平衡，而且几乎在 T2 的所有食物上都有惊人的味道。
 

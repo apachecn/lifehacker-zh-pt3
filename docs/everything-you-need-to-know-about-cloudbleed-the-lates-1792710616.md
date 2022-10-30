@@ -4,7 +4,7 @@
 
 你听说了吗？Cloudflare 代码中的一个小错误导致了数量不明的数据——包括密码、个人信息、消息、cookies 等等——[泄露到整个互联网](https://www.theregister.co.uk/2017/02/24/cloudbleed_buffer_overflow_bug_spaffs_personal_data/) 。如果你没有听说过所谓的 Cloudbleed 漏洞，那就继续读下去吧。这是一件可怕的大事。
 
-Watch
+
 
 让我们从好消息开始。世界上最大的互联网安全公司之一 Cloudflare 在谷歌 Project Zero 的安全研究员塔维斯·奥曼迪发现该漏洞后迅速采取了行动。
 

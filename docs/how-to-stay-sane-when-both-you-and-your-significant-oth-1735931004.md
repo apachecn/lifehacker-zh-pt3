@@ -4,7 +4,7 @@
 
 如果你和你的伴侣都在家工作，你应该很清楚这会给你们的关系带来的独特挑战。从感觉自己总是压在对方身上，到你所有的宝贵时间都被打断，自由职业者的生活在人际关系上可能很艰难。以下是当你们都在家工作时保持激情的方法。
 
-Watch
+
 
 ### 创建分离
 
@@ -50,11 +50,7 @@ Watch
 
 新鲜空气和换换环境对你的理智和你们关系的健康都是必要的。一起一个人走出家门真好。试着打破工作日，每周有几天一起在咖啡馆或公园吃午饭，或者独自去喝咖啡。或者把一起遛狗作为你一天结束的仪式。周末出去远足或自驾游，这样你就不会觉得自己一周七天都在办公室。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Stay Sane When Both You and Your Significant Other Work from Home](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-beat-inertia-and-get-out-more-often-when-you-wor-1655128954) [###### 当你在家工作时，如何克服惰性，多出去走走](https://lifehacker.com/how-to-beat-inertia-and-get-out-more-often-when-you-wor-1655128954) 
 
-在家工作很棒，但有时感觉像是不自觉地被关在家里。你坐着…
-
-[Read more](https://lifehacker.com/how-to-beat-inertia-and-get-out-more-often-when-you-wor-1655128954)</aside>
 
 ### 保持性感
 

@@ -4,7 +4,7 @@
 
 尽管已经在美国销售手机多年，但 2018 年应该是华为在美国的大型亮相派对。在 CES 上，我坐在那里听了一场关于华为如何扩展到家庭 wifi 的演示，甚至还签约了神奇女侠本人 作为该公司的新品牌大使。
 
-Watch
+
 
 但随后[AT&](https://gizmodo.com/report-at-t-cancels-plans-to-sell-phones-from-chinese-1821898633)[威瑞森](https://gizmodo.com/report-verizon-dumps-huawei-phones-as-us-government-pr-1822545973)[百思买](https://gizmodo.com/best-buy-plans-to-stop-selling-huawei-devices-as-new-co-1823980180) 都退出或取消了在零售店销售该公司手机的交易；与此同时，华为面临着来自美国情报部门更大的压力。这让华为的最新旗舰手机 P20 Pro 陷入了一个奇怪的境地，因为我们没有可能成为第一款在美国销售的 P 系列手机，而是看着它在海外蓬勃发展，而没有希望在美国本土发布。这真是太可惜了，因为凭借华丽的设计和创新的三摄像头设置，P20 Pro 实际上是一款非常棒的设备。
 

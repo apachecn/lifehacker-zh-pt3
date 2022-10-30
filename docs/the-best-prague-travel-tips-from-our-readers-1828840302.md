@@ -4,7 +4,7 @@
 
 本周， [Hack Your City](https://lifehacker.com/c/hack-your-city) 去了一个美丽的欧洲城市，那里的建筑在文艺复兴时期仍然看起来很新鲜。布拉格是欧洲大陆最热门的旅游目的地之一，所以我们向读者们询问了参加不太出名的 T4 消费电子展的最佳建议。我们得到了那些，加上一些旧标准的 rec， [在评论线程](https://lifehacker.com/tell-us-your-prague-travel-tips-1828589770) 。去那里看看最好的评论全文，或者阅读下面的一些亮点。
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

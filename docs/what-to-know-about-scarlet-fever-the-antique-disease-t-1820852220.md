@@ -4,7 +4,7 @@
 
 在过去，猩红热会在城镇肆虐，杀死儿童 。(在小说中，它杀死了四个 [小妇人](http://littlewomen.wikia.com/wiki/Elizabeth_March) 中的一个，并威胁了至少 [一个绒兔主人](https://archive.org/stream/thevelveteenrabb11757gut/11757.txt) 。)这种疾病从未消失过，但现在它在亚洲和英国呈上升趋势。
 
-Watch
+
 
 根据发表在*《柳叶刀传染病* 上的研究 [，2014 年英国的猩红热病例增加了两倍，目前处于 50 年来的最高水平。在此之前，韩国、越南、中国和香港的猩红热病例急剧增加。](http://www.thelancet.com/journals/laninf/article/PIIS1473-3099(17)30693-X/fulltext?elsca1=tlpr)
 

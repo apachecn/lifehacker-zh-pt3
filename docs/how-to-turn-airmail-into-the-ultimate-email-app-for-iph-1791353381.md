@@ -4,7 +4,7 @@
 
 你的手机可能是你使用电子邮件最多的设备，而 Airmail 是最好的阅读、回复和整理电子邮件的 iPhone 应用程序之一。航空邮件完全是通过定制 进行 [管理，尽管开箱即用很好，但稍加调整就会变得更好。](https://lifehacker.com/airmail-for-iphone-is-an-email-app-built-for-people-who-1756416103) 
 
-Watch
+
 
 [Mac 版(9.99 美元)](https://itunes.apple.com/us/app/airmail-3/id918858936?mt=12&ign-mpt=uo%3D4) 和 [iOS 版(4.99 美元)](https://itunes.apple.com/app/apple-store/id993160329?mt=8) 都有空邮，但我们要把重点放在 iPhone 版上。然而，如果你两者都有，你在 iPhone 上调整的几乎所有设置都会通过 iCloud Sync 传输到 Mac 上。同样，我们在下面介绍的一切也是 Mac 上的一个选项。
 

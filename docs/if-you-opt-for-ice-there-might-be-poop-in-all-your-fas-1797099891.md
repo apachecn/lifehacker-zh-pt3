@@ -4,7 +4,7 @@
 
 无糖汽水可能会也可能不会要你的命，而 [全味汽水可能会也可能不会要你的命，但不管怎样:如果你在速食冷饮店喝酒，很有可能你会把它和一堆粪便一起吞下去。但也许只有在英国才会这样！](https://www.rodalesorganiclife.com/wellbeing/9-disturbing-side-effects-of-soda%3Fslide%3D1)
 
-Watch
+
 
 [美国消费者新闻与商业频道报道称，BBC“看门狗”系列](http://www.cnbc.com/2017/07/20/poo-bacteria-found-in-drinks-served-by-mcdonalds-burger-king-and-kfc.html) 的调查人员检测了英国麦当劳、汉堡王和肯德基连锁店的 10 份冰样本，发现三家连锁店都有“粪大肠菌群”的痕迹，其中汉堡王和肯德基的含量“很高”。
 

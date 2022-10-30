@@ -4,7 +4,7 @@
 
 我喜欢在我的生活中有一些方向，但是签署一个 12 周的跑步计划，或者一整周的特定膳食，是一种很大的承诺。阿迪达斯的新健身应用， [全天](http://www.adidas.com/us/allday) (在 [iOS](https://itunes.apple.com/us/app/id1205969214?mt=8) 和 [Android](https://play.google.com/store/apps/details?id=com.adidas.allday) 上免费)，采取了一种不同的方式:它充满了可供选择的短暂、独立的冒险。
 
-Watch
+
 
 接受 Stephen Cheuk 的力量和高强度间歇训练(HIIT)锻炼计划。这实际上只是两种锻炼:一种是力量，一种是 HIIT。该应用程序可以帮助你设置提醒——建议一周三次，持续两周——当时间到了，你可以选择其中一项锻炼并完成它。就是这样。
 

@@ -4,7 +4,7 @@
 
 iOS:布满我们 iPhone 主屏幕的 [红色通知徽章](https://lifehacker.com/hack-your-notification-badges-to-encourage-good-habits-1819139456) 大部分是有用的，但有时它们会非常烦人。例如，你可能厌倦了在你的 iPhone 设置应用上看到那个丑陋的红点，它永远提醒你是时候设置 [Apple Pay](https://lifehacker.com/how-to-get-started-with-apples-new-apple-pay-cash-1821168610) 了。值得庆幸的是，有一个简单的解决方案藏在显而易见的地方——如果你不想(或不能)将你的信用卡与 Apple Pay 关联起来。
 
-Watch
+
 
 正如苹果博主约翰·格鲁伯 所说，第一步有点违反直觉:打开设置应用，点击“设置 Apple Pay”一旦该过程开始，您可以通过选择“取消”或稍后在 Wallet 中设置来轻松退出。“这两个选项都应该可以将红点从你的设置应用中完全移除，至少在另一个重要更新到来之前是如此。
 

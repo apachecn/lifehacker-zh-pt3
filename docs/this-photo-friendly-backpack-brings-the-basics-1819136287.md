@@ -19,4 +19,3 @@
 
 我们知道你有一个很酷的包，里面有一些聪明的想法，所以告诉我们吧！在我们的 [Lifehacker Go Bag Show 中分享你的包，并告诉](https://www.flickr.com/groups/2301352@N21) Flickr pool，通过下面的链接给我留言，或者发布到你自己的 Kinja 博客，标签为“ [精选包](https://kinja.com/tag/featured-bag) ”照片必须至少为 800x450，并应包括关于您的包，里面的设备，以及它的伟大之处的信息。
 
-Watch

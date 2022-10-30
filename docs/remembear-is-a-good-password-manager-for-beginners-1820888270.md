@@ -4,7 +4,7 @@
 
 你现在知道了 [你绝对需要一个密码管理器](https://lifehacker.com/how-to-create-a-strong-password-1797681069) 。但是你从来没有时间去买一个。让我们现在用[remember](https://www.remembear.com/)来解决这个问题，这是一个新的密码管理器，很容易安装和计算。我们对其进行了测试，虽然对于大多数用户来说，我们仍然更喜欢 1Password ，但我们建议初学者使用 RememBear，尤其是在其免费测试期。
 
-Watch
+
 
 ### 为什么我们喜欢它
 

@@ -4,7 +4,7 @@
 
 在你洗了几次衣服后，你的洗涤剂量杯会变得粘糊糊的。如果你厌倦了，你可以在下次洗衣服的时候彻底清洗一下。
 
-Watch
+
 
 Redditor [bluechris11 建议](https://www.reddit.com/r/LifeProTips/comments/8csufn/lpt_tired_of_your_laundry_detergent_caps_being/) 你把那顶看起来很丑的洗涤剂帽和你的衣服一起扔进洗衣机。把你需要的洗涤剂倒入，然后把盖子放进去。当你的衣服脱水后，帽子会看起来像新的一样。
 

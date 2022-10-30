@@ -4,7 +4,7 @@
 
 尽管人们嘲笑互联网是一个让你表达最无聊想法的地方，但事实上，吸引注意力的竞争是如此激烈，如果你想得到任何回应，你必须超级有趣。即使是著名的 subred dit[/r/mildlyinteries](https://www.reddit.com/r/mildlyinteresting/)也充满了令人着迷的东西，就像 [惊慌失措的自动售货机](https://www.reddit.com/r/mildlyinteresting/comments/6h4p6z/vending_machine_at_work_made_an_error_and/)[出其不意的双胞胎](https://www.reddit.com/r/mildlyinteresting/comments/7lp60y/my_friend_met_a_stranger_at_a_wedding_that_looked/) 和[九指钢琴家](https://www.reddit.com/r/mildlyinteresting/comments/7oczjg/i_have_only_four_fingers_on_my_left_hand_and_have/) 。你那无聊的故事没人注意。除非你去[/r/benigne existence](https://www.reddit.com/r/BenignExistence/)。
 
-Watch
+
 
 例如，redditor KidishBambino [在早上停电](https://www.reddit.com/r/BenignExistence/comments/7w7s9f/the_power_is_back_in_my_home/) 后煮了一些汤。而韧带状的和[打开了一个窗口](https://www.reddit.com/r/BenignExistence/comments/7vrru4/i_opened_the_window_for_the_first_time_in_a_while/) 。在一个异常戏剧性的转折中，塔尔柴 [有时会紧张他们的老师不喜欢他们](https://www.reddit.com/r/BenignExistence/comments/7vno98/i_get_nervous_that_my_teachers_secretly_hate_me/) ，尽管他们知道这很傻。通读这些故事，可以让你的思绪飘入一片温柔的灰色阴霾。
 

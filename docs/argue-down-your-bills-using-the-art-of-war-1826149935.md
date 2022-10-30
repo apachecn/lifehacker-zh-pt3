@@ -4,7 +4,7 @@
 
 中国将军孙子的著作《孙子兵法》不仅是字面上的战术演习，也是心理战。写于公元前五世纪，人们已经找到了各种方法来利用这部大部头著作的建议在 [的日常生活中机动](https://lifehacker.com/applying-lessons-from-sun-tzu-and-the-art-of-war-to-eve-1787621192) 。那么，为什么不用*孙子兵法*来省点钱呢？
 
-Watch
+
 
 Vice 的作家尼克·格林决定尝试在《经典手稿》的帮助下，将他的网络账单从 65 美元降到 39.99 美元。他的 [描述](https://www.vice.com/en_us/article/zm3da5/i-used-sun-tzus-the-art-of-war-to-lower-my-internet-bill) 的旅程充满了更富有诗意的《孙子兵法》语录，但这里是最基本的。
 

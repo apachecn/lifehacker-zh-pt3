@@ -4,7 +4,7 @@
 
 [亚马逊的黄金日](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/tips-for-a-successful-amazon-prime-day-1796756798&asc_source=&ie=UTF8&node=13887280011&pf_rd_i=navbar-4201&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=041b6ad0-b641-48cf-abfe-4c79f0af794b&pf_rd_p=041b6ad0-b641-48cf-abfe-4c79f0af794b&pf_rd_r=0WPKD582SSH8T7PWWKCV&pf_rd_r=0WPKD582SSH8T7PWWKCV&pf_rd_s=nav-sitewide-msg&pf_rd_t=4201&tag=kinjalifehackerlink-20) 是 7 月 11 日星期二，交易将于美国东部时间明天 7 月 10 日晚上 9 点开始。如果你从未参加过前一天的活动，这可能会有点让人不知所措。这有点像在黑色星期五去沃尔玛，除了因为这是在互联网上，你不太可能受到攻击。
 
-Watch
+
 
 在连续 30 个小时的时间里，新交易大约每 5 分钟就会下降一次，所以这是一场马拉松，而不是短跑，良好的战略是成功的关键。虽然没有万无一失的方法来确保你得到你想要的所有交易，但是你可以做一些事情来增加你成功的机会:
 

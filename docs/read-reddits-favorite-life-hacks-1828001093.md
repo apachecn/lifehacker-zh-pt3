@@ -4,7 +4,7 @@
 
 Redditors 们 [在 AskReddit 帖子中分享他们最喜欢的“生活专业建议”](https://www.reddit.com/r/AskReddit/comments/936cps/what_life_pro_tip_have_you_learned_from_reddit/) ，我们收集了以下最佳内容。(有些是 Lifehacker 的读者所熟悉的。)串在一起，它们感觉就像一部世俗的现代*兵法*:为打好仗而制定的简明扼要的战术和战略。学习入睡、开始艰难任务和计算百分比的技巧。
 
-Watch
+
 
 ## 在家
 
@@ -68,11 +68,7 @@ RandyOwl 说，要快速冷却一瓶或一罐啤酒，用湿纸巾包起来，�
 
 我们已经利用这一点开始了许多博客帖子:为了打破作家的瓶颈， [PolarbearSafari](https://www.reddit.com/r/AskReddit/comments/936cps/what_life_pro_tip_have_you_learned_from_reddit/e3bd0nj/) 说，“写一句话，看看它会怎么样”。"不要想太多，也不要批评这些想法，直接跳进去做就行了."正如 [立体声](https://www.reddit.com/r/AskReddit/comments/936cps/what_life_pro_tip_have_you_learned_from_reddit/e3bwsb0/) 所说，“即使今天很糟糕，也要创造一些东西。”
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled These Are Reddit&#39;s Favorite Life Hacks](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/six-ways-to-power-through-writers-block-1640533341) [###### 突破写作瓶颈的六种方法](https://lifehacker.com/six-ways-to-power-through-writers-block-1640533341) 
 
-文思枯竭是所有想动笔的人的祸根。不管是你的想法，…
-
-[Read more](https://lifehacker.com/six-ways-to-power-through-writers-block-1640533341)</aside>
 
 当你穿过某人的道路时，为了避免人行道上的混乱:看着你想要去的方向，说[waltothewalnut](https://www.reddit.com/r/AskReddit/comments/936cps/what_life_pro_tip_have_you_learned_from_reddit/e3b9kqg/)。“当接近一群人时，放慢速度，这样他们更有可能给你腾出空间，”T4 说。并避免目光接触，表示 [熊猫 _ 碗](https://www.reddit.com/r/AskReddit/comments/936cps/what_life_pro_tip_have_you_learned_from_reddit/e3c0ic9/) 。做一个有可预测路径的缓慢移动的物体。
 

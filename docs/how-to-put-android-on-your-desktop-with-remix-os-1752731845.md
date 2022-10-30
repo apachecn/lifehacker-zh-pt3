@@ -4,7 +4,7 @@
 
 [Remix OS](http://www.jide.com/en/remixos-for-pc) ， [昨天出来的](http://lifehacker.com/remixos-brings-desktop-style-android-to-intel-based-pcs-1752436333) ，是一个杀手级的安卓变种，给安卓带来了一个圆滑的桌面风格界面。现在，你可以把它安装在 u 盘上，在电脑上试用。
 
-Watch
+
 
 Android [并不完全是为键盘鼠标](http://gizmodo.com/google-pixel-c-review-androids-not-ready-for-a-tablet-1747368432#_ga=1.97940058.431406394.1415821409) 打造的，但这并没有阻止我们中的一些人尝试。来自开发者 [Jide](http://www.jide.com/en) 的 [RemixOS](http://www.jide.com/en/remixos-for-pc) ，想要通过给 Android 添加桌面、窗口应用等来改变这一点。以下是如何尝试*非常*实验阿尔法。
 

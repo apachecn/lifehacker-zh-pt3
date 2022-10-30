@@ -4,7 +4,7 @@
 
 2017 年是 [加密货币](https://lifehacker.com/automatically-invest-your-spare-change-in-cryptocurrenc-1819028364) 最终成为主流的一年，因为 [比特币](https://lifehacker.com/how-to-get-your-money-out-of-bitcoin-1821536561) 的价值从不到 1000 美元飙升至近 2 万美元，而且 [看起来不像是](http://fortune.com/2017/12/21/bitcoin-price-value-prediction-bubble/) 事情会在 2018 年放缓。
 
-Watch
+
 
 如果你觉得错过了使用比特币的机会，还有很多其他数字货币可供选择。这里有一个快速指南，介绍 2017 年蓬勃发展但价格仍远低于比特币的其他一些加密货币。
 

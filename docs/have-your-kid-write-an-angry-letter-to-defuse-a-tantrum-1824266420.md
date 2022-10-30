@@ -4,7 +4,7 @@
 
 防止发脾气最有效的工具是什么？不，这不是让 YouTube 上的孩子们分散注意力，也不是让冰淇淋成为贿赂，也不是把自己锁在浴室里直到听到“*但我想用筷子喝汤！”*平息。相反，为了帮助你的孩子在崩溃中控制自己的情绪，你可能只需要一支笔和一些纸。
 
-Watch
+
 
 在她的书 [*中，幼儿专家希瑟·舒梅克写道，发脾气是让你的孩子给他们有强烈情绪的人或事写信的最佳时机。如果他们还不知道怎么写，没问题——你可以在他们口述的时候帮他们写。重要的是，他们把自己的情绪从头脑中释放出来，写在一张他们能看得见、摸得着、握得住的纸上。工作原理:“写作让孩子感到被重视和被倾听，对她来说，这通常比随心所欲更重要，”舒梅克解释道。*](https://www.amazon.com/Share-Renegade-Raising-Competent-Compassionate/dp/1585429368?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/have-your-kid-write-an-angry-letter-to-defuse-a-tantrum-1824266420&asc_source=&tag=kinjalifehackerlink-20)
 

@@ -4,7 +4,7 @@
 
 自发布以来的几年里，Apple TV 经常落后于竞争对手，似乎被苹果遗忘，而青睐手机、电脑甚至手表。当你注意到 4K 派对已经很晚了，苹果电视在苹果销售清单上的“另类”地位就显而易见了。 [Roku 去年推出了 4K 盒子](https://gizmodo.com/roku-premiere-and-ultra-are-better-than-the-competitio-1787662906)Nvidia 两年前推出了基于安卓系统的盒子 。幸运的是(对苹果粉丝来说),苹果电视 4K 是如此的完美，以至于感觉等待是值得的。
 
-Watch
+
 
 但要明确的是，除非你已经深深地爱上了苹果的生态系统，尤其是 iTunes 商店，否则 Apple TV 4K 不值得等待。它非常擅长它所做的事情——即以扩展的色域和 HDR 播放 4K 的内容(它支持 HDR10 和 Dolbyvision——[两种竞争的 HDR 格式](https://gizmodo.com/what-the-hell-is-hdr-1790991673) )，但与此同时，你可以有一个 [非常便宜的 Roku，或者一个昂贵但更灵活的 Nvidia Shield](http://fieldguide.gizmodo.com/battle-of-the-tv-boxes-android-vs-apple-vs-amazon-vs-r-1795501336) 。Apple TV 售价 180 美元，仅比 200 美元的 Nvidia Shield 便宜一点，后者也支持 4K、HDR 和游戏。只有那台设备，因为它运行 Android TV，还可以播放任天堂 rom 和亚马逊 Prime 流。
 

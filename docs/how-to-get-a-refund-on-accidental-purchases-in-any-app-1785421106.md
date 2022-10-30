@@ -4,7 +4,7 @@
 
 今年早些时候， [加州一家法院裁定](https://www.theguardian.com/technology/2016/jul/27/facebook-refund-children-app-purchases-lawsuit) 脸书必须向孩子意外购买应用程序的家长退款。如果你去过那里，或者你不小心购买了你自己不想要的应用程序，好消息是大多数数字商店提供某种退款政策。以下是如何拿回你的钱。
 
-Watch
+
 
 ### 苹果 iTunes 和应用商店
 

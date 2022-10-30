@@ -4,7 +4,7 @@
 
 昨晚披露的川普 2005 年纳税申报单 中的一个突出项目是所谓的“替代最低税”(AMT)。如果你对它不是很熟悉，下面是 AMT 多功能体适一体机的全部内容及其重要性。
 
-Watch
+
 
 大卫·凯·约翰斯顿(David Cay Johnston)是《每日野兽》(Daily Beast)的记者、税务分析师和作者，他在特朗普的邮箱中发现了特朗普的 2005 年 IRS 1040，并在网上(以及雷切尔·玛多 上的)分享了它。每日野兽 [报道](http://www.thedailybeast.com/cheats/2017/03/14/report-trump-s-2005-taxes-revealed.html?via=desktop&source=copyurl) :
 

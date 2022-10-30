@@ -4,7 +4,7 @@
 
 你好，互联网！欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个提供生活中约会常见问题的约会建议专栏。
 
-Watch
+
 
 说到爱和游戏，在我开始本周的问题之前，有一个简短的提示:如果你这个周末要去波士顿的 PAX East，并且喜欢思考电子游戏背后的故事，请到我的小组来: [电子游戏浪漫——我们热爱的故事和它们教给我们的教训](http://east.paxsite.com/schedule/panel/video-game-romance-stories-we-love-and-lessons-they-teach) ，周五晚上 8 点在蜘蛛剧场。我们将讨论游戏中的关系机制，它们如何影响我们，以及它们是否能在现实生活中教会我们什么。
 

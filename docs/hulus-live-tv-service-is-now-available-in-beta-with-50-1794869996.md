@@ -4,7 +4,7 @@
 
 在今天早上的前期演示中，Hulu 展示了其新的直播服务的更多细节，并宣布该服务现在可以从今天开始进行公开测试。感兴趣的用户可以在 [这里报名](http://www.hulu.com/live-tv) 。
 
-Watch
+
 
 Hulu [在 2016 年 5 月首次宣布](http://gizmodo.com/hulu-says-it-will-offer-live-tv-streaming-starting-in-2-1774669792#_ga=1.63562415.122581585.1444279257) 的直播电视服务，从那以后，我们看到直播电视插队市场变得更加拥挤，来自 [DirecTV Now](http://gizmodo.com/tag/directv-now) 和 [YouTube TV](http://gizmodo.com/youtube-tv-isnt-perfect-but-its-very-promising-1794070458) 的新产品。就连传统的有线电视运营商，如 [、威瑞森](https://www.bloomberg.com/news/articles/2017-03-30/verizon-said-to-be-planning-online-tv-package-for-summer-launch) 和 [康卡斯特](https://www.bloomberg.com/news/articles/2017-03-23/comcast-said-to-gain-rights-to-offer-web-tv-service-nationwide) ，也在计划进军在线电视领域。随着传统有线电视订阅量的下降，电视网和提供商开始寻找其他收入来源是有道理的。
 

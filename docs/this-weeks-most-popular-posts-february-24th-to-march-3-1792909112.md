@@ -4,7 +4,7 @@
 
 本周，我们学习了如何在一天内彻底检查我们所有的财务状况，简化我们的阅读习惯以阅读更多的书，思考运动裤的优点，等等。这里回顾一下。
 
-Watch
+
 
 ## [**我如何骗自己多读书**](http://lifehacker.com/how-i-tricked-myself-into-reading-more-books-1792775150)
 

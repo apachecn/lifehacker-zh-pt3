@@ -4,7 +4,7 @@
 
 在本周的《黑客城市》节目中，我们为你提供了关于超人最喜欢的度假胜地尼亚加拉瀑布的旅行建议。我们已经在 [原始评论线程](https://lifehacker.com/tell-us-your-niagara-falls-travel-tips-1827574245) 的 Staff 选项卡中突出显示了几十个很棒的提示。下面是我们最喜欢的几个。
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

@@ -4,7 +4,7 @@
 
 当火山 [渗出熔岩](https://earther.com/why-kilaueas-eruption-is-oozing-and-not-exploding-1825824265) 时，人们知道要让开。他们知道火红的东西威胁着他们的家园和生命。但是当火山爆发产生大量的火山灰和气体时呢？那东西也是致命的。
 
-Watch
+
 
 位于夏威夷帕霍亚的基拉韦厄火山从本月早些时候的 开始持续喷发 [。周二之前，大岛的居民和游客不得不警惕从裂缝中渗出的](https://earther.com/believe-it-or-not-this-is-normal-1825773510?rev=1525450848968#r9fv0q1wh&_ga=2.171043872.1863614505.1526427068-1762295482.1524154050) [熔岩，它摧毁了至少 26 栋房屋。现在，他们还得担心火山顶部火山口](https://earther.com/why-kilaueas-eruption-is-oozing-and-not-exploding-1825824265) [喷出的](https://earther.com/kilauea-spews-ash-golf-continues-1826069099) 火山灰会飞到 12000 英尺的空中，这是另一种可怕的方式。
 

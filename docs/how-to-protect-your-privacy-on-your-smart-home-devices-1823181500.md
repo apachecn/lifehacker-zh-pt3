@@ -4,7 +4,7 @@
 
 智能音箱使用起来很酷，很方便，也很有趣，但在隐私方面，它们还有很多不足之处。如果你有一个 [亚马逊 Echo](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219) 、一个 [谷歌主页](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716) ，或者一个 [HomePod](https://lifehacker.com/put-a-coaster-under-your-apple-homepod-to-protect-woode-1823003436) ，如果你担心保护你的个人数据，有一堆设置和功能需要调整。
 
-Watch
+
 
 以下是你需要知道的关于智能音箱和隐私的知识，无论你是刚刚打开盒子，还是已经吠了几个星期的语音命令。
 

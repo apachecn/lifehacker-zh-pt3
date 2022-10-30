@@ -4,7 +4,7 @@
 
 还有什么比 店里的 [烤鸡更好吃的吗？只要挑一个坏男孩，你就已经做好了一半的晚餐。不过，根据你家庭的大小，你可能会吃到一些剩下的鸟。为了纪念我们的](https://thetakeout.com/best-rotisserie-chicken-taste-test-1829124375) [烤鸡大战](https://thetakeout.com/best-rotisserie-chicken-taste-test-1829124375) (我们的冰箱里有*很多*鸡肉)，我们询问了我们的员工和厨师专家:你最喜欢用什么方式来用完剩余的烤鸡？
 
-Watch
+
 
 * * *
 

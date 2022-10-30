@@ -4,7 +4,7 @@
 
 如果你的新年决心之一是走出家门，多活动一会儿，一款名为 Sweatcoin 的移动应用程序可能会帮助你激励自己每天从沙发上多起来几分钟。
 
-Watch
+
 
 [安卓](https://play.google.com/store/apps/details?id=in.sweatco.app&hl=en) 和 [iOS 应用](https://itunes.apple.com/us/app/sweatcoin-coin-for-sweat-app/id971023427?mt=8) 每天跟踪你的脚步，然后将它们转换成一种叫做“汗水币”的数字货币，可以用来购买像德尔塔或贝宝礼品卡或 iPhone X 这样的东西。这有点像挖掘比特币，只不过“挖掘”是去散步。
 

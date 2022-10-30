@@ -4,6 +4,6 @@
 
 第一次约会紧张吗？无法停止与你的另一半争吵？在今天的 [Lifehacker 十周年庆典](http://lifehacker10.lifehacker.com/welcome-to-lifehackers-10th-anniversary-celebration-1723672659) 中，我们将回顾一些最佳恋爱技巧和建议，无论你处于恋爱的哪个阶段。
 
-Watch
+
 
 查看以下完整列表，查看更多我们十周年回顾。

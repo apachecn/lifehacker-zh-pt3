@@ -4,7 +4,7 @@
 
 我们中的大多数人在没有真正理解税收如何运作的情况下付了税 。当然，税收很复杂，但这张方便的图表分解了一个重要的概念:不同的州政府是如何获得资金的。
 
-Watch
+
 
 除了销售税和所得税，各州还通过其他来源获得资金，如公司税、资遣税(对石油等不可再生资源的生产征收的税)或财产税。在下图中， [皮尤慈善信托](http://www.pewtrusts.org/en/multimedia/data-visualizations/2017/how-states-raise-their-tax-dollars) 细分了 50 个州中这些来源的百分比。尤其是 [现在在我们的政府里这么悬而未决](http://twocents.lifehacker.com/what-to-expect-from-trump-s-plan-for-the-biggest-tax-c-1794633060) ，这种透明度很重要。
 

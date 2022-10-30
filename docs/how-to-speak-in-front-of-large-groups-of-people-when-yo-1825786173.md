@@ -4,7 +4,7 @@
 
 已经九年了(！！！)多年前，我受邀担任保罗·卡里克·布伦森(Paul Carrick Brunson)在华盛顿特区举办的《现代媒人》直播活动的专题小组成员，也就是说，距离我第一次在众多观众面前发表演讲已经过去了九年。还有，九年前我非常害怕在所有这些人面前出现，我在演出前半小时喝了五杯轩尼诗——一种明显被高估的饮料，人们假装喜欢它，因为图帕克喝了它——只是为了让自己冷静下来。
 
-Watch
+
 
 从那以后的几年里，我越来越适应做这种事情。我现在属于 [演讲协会](https://www.kepplerspeakers.com/speakers/damon-young) ，仅今年一年我就在几所不同的学院和大学演讲。周四晚上，我是在匹兹堡举行的 [*【洛维特或离开它】*](https://crooked.com/podcast-series/lovett-or-leave-it/)*[现场播客的小组成员之一，该播客在 1500 人面前举行](https://twitter.com/VerySmartBros/status/992221775537852416) 。两周前，我做了一个 25 分钟的演讲 [关于匹兹堡](https://creativemornings.com/talks/damon-young) 的创意早晨，围绕着“游戏”的概念*
 

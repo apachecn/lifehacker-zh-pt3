@@ -4,7 +4,7 @@
 
 新的一年开始了，我们已经开始跑步了——真的，因为我的状态不好，需要在离开一段时间后去健身房。除了本周的锻炼，我们还通过购买质量更好的衣服、投资指数基金、学习一些 Spotify 技巧等等来改善我们的生活。
 
-Watch
+
 
 ## [可能改变你一生的十大 TED 演讲](http://lifehacker.com/top-10-ted-talks-that-could-change-your-life-1750618612)
 

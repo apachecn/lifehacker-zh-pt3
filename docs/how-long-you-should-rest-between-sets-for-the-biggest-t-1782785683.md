@@ -4,7 +4,7 @@
 
 集合和练习之间的休息对你健康的影响与 [集合和重复次数](https://lifehacker.com/does-it-matter-how-many-reps-you-do-when-you-work-out-1742905045) 一样大。如果你的休息时间太短，你就剥夺了他们的好处，或者更糟，增加了受伤的风险。如果太长，说明你的 [锻炼不够努力](https://lifehacker.com/more-weight-or-more-reps-which-should-i-focus-on-first-1752080884) 。甜蜜点是基于你为什么锻炼，以及你做了什么运动。
 
-Watch
+
 
 当你举起时，你的肌肉会消耗掉有限的燃料，你的身体只能继续产生更多的燃料，让你在不到 10 秒的时间内 完成真正艰苦的努力，就像做几次 [超重型硬拉](http://vitals.lifehacker.com/why-deadlifts-are-worth-the-hype-and-how-to-do-them-sa-1756526319) 。
 

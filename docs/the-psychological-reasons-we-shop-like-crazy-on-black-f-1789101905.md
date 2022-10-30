@@ -4,7 +4,7 @@
 
 即使你不打算破门而入，也无法逃脱黑色星期五的疯狂。自 10 月以来，商店一直在 [【泄露】交易](http://dealnews.com/features/Leaked-Black-Friday-Ads-Are-Fake-But-Still-Useful-For-Shoppers/1476586.html) ，用预览来戏弄购物者，甚至试图用特殊的在线交易和闪购来吸引购物骗子。尽管去年的数字有所下降，但在 2014 年感恩节周末，购物者仍然花费了大约 509 亿美元 。
 
-Watch
+
 
 *本帖原载于*[*deal news*](http://dealnews.com/features/Deals-Go-to-Your-Head-A-Professor-Explains-Black-Friday-Psychology/1188245.html)*。*
 

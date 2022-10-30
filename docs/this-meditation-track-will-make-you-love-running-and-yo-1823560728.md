@@ -4,7 +4,7 @@
 
 iOS/Android:我跑步的时候内心独白听起来像是好教练和坏教练的争论。一个声音告诉我要放松，找到我的最佳速度，不要看表，只要找到正确的努力程度。然后另一个声音插嘴说:“哦，看看你，跑得这么慢，你已经累了！你吸！”
 
-Watch
+
 
 这些年来，我的很多训练都依赖于控制不好的教练，并暂时选择相信好的教练。这也是为什么我完全爱上了减速 2 提速，三个 [之一的新念跑赛道](https://news.nike.com/news/nike-headspace-partnership) 【免费】 [耐克跑步俱乐部 app](https://www.nike.com/us/en_us/c/nike-plus/running-app-gps) 。耐克教练克里斯·班尼特(Chris Bennett)与安迪·普迪康比(Andy Puddicombe)联手，后者是 [Headspace](https://lifehacker.com/headspace-teaches-you-how-to-meditate-in-ten-minutes-a-1733754902) 的声音，他们引导你通过越来越快的间歇，同时要求你注意自己的身体和心灵。但他们不像我脑子里的教练那样决斗；他们都永远支持我。
 

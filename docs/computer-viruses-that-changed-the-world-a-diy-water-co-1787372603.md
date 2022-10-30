@@ -4,7 +4,7 @@
 
 本周我们将谈论历史上的英雄，他们实际上是可怕的人，为一星 Yelp 评论者伸张正义，回顾肆虐全球的计算机病毒，等等。
 
-Watch
+
 
 *<small>欢迎来到 Lifehacker 的</small>* [*<small>周一大脑自助</small>*](http://lifehacker.com/tag/monday-brain-buffet) *<small>，这是一个系列节目，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，它们会教你一些新东西，启发你，并有希望让你的一周有一个良好的开端。</small>T15】*
 

@@ -4,7 +4,7 @@
 
 亚历克斯是整个 Gizmodo 媒体集团长期受苦的执行总编，这意味着他忍受着贾洛普尼克不断的精神虐待。俗话说，屎往上流，大家都知道我们满脑子都是屎。他得出了一个不可避免的结论，如果你真的想开车去某个地方，纽约就是垃圾，他正在寻找一些便宜的东西来逃离疯狂。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？*[](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link)*[*在我们的表格上提交您的故事。)*](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link)* 
 

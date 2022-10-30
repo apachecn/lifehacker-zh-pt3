@@ -4,7 +4,7 @@
 
 现在你已经 [润色了你的简历](https://lifehacker.com/list-measurable-accomplishments-on-your-resume-not-jus-1825290597) 并且练习了 [让你的自我膨胀了一点](https://twocents.lifehacker.com/brag-to-yourself-before-you-head-into-a-job-interview-t-1824262541) ，你已经准备好搞定你的工作面试了。你可能已经准备好了最常见问题的答案，甚至是一套全新的西装，但还有一件事要记住:你的肢体语言。
 
-Watch
+
 
 以下是肢体语言专家给出的一些面试技巧，它们将帮助你显得自信，给人留下良好的第一印象，并获得这份工作。
 

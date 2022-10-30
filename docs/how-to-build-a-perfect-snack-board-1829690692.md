@@ -4,9 +4,9 @@
 
 当谈到以食物为重点的董事会，奶酪和/或熟食通常是明星。这两样东西我都喜欢，但是它们不一定要成为零食板块的焦点，尤其是当有这么多其他类型的零食的时候。
 
-Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Build a Perfect Snack Board—Even Without Cheese](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-anatomy-of-a-perfect-cheese-board-1828745149)</aside>
+
+
 
 [根据 GOOP](https://goop.com/food/the-vesper-board-is-the-new-cheese-plate/) (我知道，我也从没想过我会写这个)，德国版的这块板被称为“夜宵板”，它由“一顿小餐组成，主人可以不用在厨房里热着，有更多的时间啜饮开胃酒。”(补充说明:你知道“GOOP”代表“格温妮丝·奥逊·威尔斯·奥逊·威尔斯·帕特洛”吗这是事实，不是我编造的。)
 

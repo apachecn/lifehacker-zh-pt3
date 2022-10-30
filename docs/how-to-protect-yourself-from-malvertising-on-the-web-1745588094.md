@@ -4,7 +4,7 @@
 
 在与互联网安全威胁的无休止的战斗中，有一个新的敌人正在迅速传播:恶意广告，或者当你查看广告时下载到你电脑上的恶意软件，即使你使用了广告拦截器。以下是你应该注意的，为什么这是一个问题，以及如何保护自己。
 
-Watch
+
 
 ### 广告如何运作
 
@@ -20,11 +20,7 @@ Watch
 
 所以解决方法只是将 [禁用 Flash](http://gizmodo.com/disable-flash-1688209571) 和 [卸载 Java](https://lifehacker.com/what-is-java-is-it-insecure-and-should-i-use-it-5988800) 对吧？很可能你不再需要它们了，所以不用它们浏览网页会让一切变得更好。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Protect Yourself from &quot;Malvertising&quot; on the Web](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-is-java-is-it-insecure-and-should-i-use-it-5988800) [###### Java 是什么，不安全吗，该不该用？](https://lifehacker.com/what-is-java-is-it-insecure-and-should-i-use-it-5988800) 
 
-亲爱的 Lifehacker，似乎每隔一天，Java 就有另一个每个人都会犯的安全漏洞
-
-[Read more](https://lifehacker.com/what-is-java-is-it-insecure-and-should-i-use-it-5988800)</aside>
 
 这是一个好的开始，但故事还没完。禁用 Flash 和 Java 插件是很好的第一步，这将为你提供一个很好的安全方法，但你也应该禁用任何你不使用的插件，卸载你不需要的插件，并定期更新你的浏览器，正如《T2》[这本指南从 How-To Geek 解释了](http://www.howtogeek.com/227205/what-is-malvertising-and-how-do-you-protect-yourself/) 。你可能会想“哦，这只是 Flash”，但下一个漏洞可能不是那么容易被禁用的——或者它可能内置于你的浏览器中。
 

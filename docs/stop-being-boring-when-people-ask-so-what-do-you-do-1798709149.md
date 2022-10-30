@@ -4,7 +4,7 @@
 
 闲聊永远不会不尴尬，因为要了解一个人，你必须问一些令人担忧的问题。有些问题 [不应该问](http://lifehacker.com/the-small-talk-questions-you-should-never-ask-1795578480) ，但是问“你是做什么工作的？”不过，回答这个问题可能会很麻烦。
 
-Watch
+
 
 也许你最不想谈的就是你的烂工作。也许你的工作很复杂，你不容易解释清楚。也许，像我一样，你进入治疗模式，开始卸下你职业生涯中所有的情感障碍。为了避免这些陷阱，试试[*快速公司关于吸引人地描述你做什么*](https://www.fastcompany.com/40461483/how-to-answer-the-question-what-do-you-do-without-boring-anyone)*的建议:*
 

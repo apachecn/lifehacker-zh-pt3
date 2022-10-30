@@ -4,7 +4,7 @@
 
 当一款全新的车型问世，尤其是赢得一堆 [大多是毫无意义的奖项](http://www.thenational.ae/arts-lifestyle/motoring/an-insiders-guide-to-the-world-car-of-the-year-award) 的车型，一些车商会以此为契机，让你多掏钱。根据可用库存，聪明的购物者仍然可以获得很大的优惠。
 
-Watch
+
 
 2016 款本田思域被一群记者评为北美年度汽车*[](http://naias.com/press/news/honda-civic-wins-2016-north-american-car-of-the-year-and-volvo-xc90-takes-north-american-truckutility-of-the-year/)*，他们一直抱怨本田向国际市场提供了“更好”的思域。所以本田最终给了我们一些好东西，比如涡轮增压发动机，一个大而炫的“H”徽章，一辆即将上市的掀背车 和[R 型](http://jalopnik.com/hondas-big-surprise-is-a-truly-worldwide-civic-5-door-1695047474#_ga=1.150190454.1551709916.1441293991) 。**
 

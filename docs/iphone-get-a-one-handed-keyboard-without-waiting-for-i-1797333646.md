@@ -4,7 +4,7 @@
 
 今年晚些时候，苹果将公开发布 iOS 11，其中包括一个默认键盘 的 [单手模式。这是一个很好的想法，这也是为什么这么多第三方键盘已经有了这个功能。而且你不用](http://www.idownloadblog.com/2017/07/18/how-to-use-one-handed-iphone-keyboard/) [越狱](http://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-1797058645) 或者做什么怪异的事情。
 
-Watch
+
 
 *   [微软字流](https://itunes.apple.com/us/app/word-flow-keyboard-gif-swipe-custom-theme/id1077864246?mt=8) 可以把键盘绕着你的一个拇指变成一个弧形。它还可以让你通过滑动拇指来打字，只需离开键盘就可以完成一个单词。
 

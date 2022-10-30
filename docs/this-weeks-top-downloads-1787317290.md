@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ### [新的树莓派 OS 来了，看起来很棒](http://lifehacker.com/the-new-raspberry-pi-os-is-here-and-it-looks-great-1787194540)
 

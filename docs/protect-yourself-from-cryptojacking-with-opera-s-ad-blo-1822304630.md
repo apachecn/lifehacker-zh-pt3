@@ -4,7 +4,7 @@
 
 [加密货币](https://lifehacker.com/what-to-know-about-the-major-cryptocurrencies-besides-b-1821656104) 的兴起让很多人 [变得富有](https://www.nytimes.com/2018/01/13/style/bitcoin-millionaires.html) ，但这也帮助创造了新一代的 [黑客](https://gizmodo.com/hackers-steal-72-million-in-bitcoin-from-honk-kong-exc-1784757592) 和 [骗子](https://lifehacker.com/why-kodaks-bitcoin-scheme-is-a-scam-you-should-avoid-1821957658) 决心利用这项技术。
 
-Watch
+
 
 2018 年需要警惕的一个骗局是，这是一个网站或公共 Wi-Fi 网络劫持你的电脑，在后台挖掘加密货币。一台运行采矿软件的电脑做不了多少事情，但互联网上的整个设备网络可以快速增加。
 

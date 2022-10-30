@@ -6,7 +6,7 @@
 
 有很多人会告诉你 [那些脑力训练游戏不会让你变得更聪明](https://lifehacker.com/brain-games-wont-make-you-smarter-study-says-5521187)[这在很大程度上是真的](https://gizmodo.com/lumosity-brain-games-are-bullshit-1649901132) 。但是最近的一项研究表明，你可以通过正确的集中训练来增强你的脑力。
 
-Watch
+
 
 约翰·霍普金斯大学[和](http://releases.jhu.edu/2017/10/17/johns-hopkins-finds-training-exercise-that-boosts-brain-power/) [发表在*认知增强期刊*](https://link.springer.com/journal/41465) 上的这项研究表明，人们可以做一种有益的运动，它针对大脑中负责短期记忆的特定部分，即前额叶皮层。根据研究人员的说法，定期进行锻炼可以改善这种类型的记忆，这反过来可以帮助你在一些基本任务中表现出色。他们认为，更强的短期记忆有利于一些简单的事情，如记住电话号码和方向，以及在学校和工作中表现良好所需的更重要的解决问题的技能。
 

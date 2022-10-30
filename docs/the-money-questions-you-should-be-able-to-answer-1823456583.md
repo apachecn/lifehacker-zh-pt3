@@ -4,7 +4,7 @@
 
 美国人真的是 [强调](https://www.thebalance.com/survey-says-even-the-rich-are-stressed-about-money-1289584) 出来讲钱。这是可以理解的: [储蓄低](https://www.valuepenguin.com/banking/average-savings-account-balance) ，开销高，我们背负着 [越来越多的债务](https://www.usatoday.com/story/money/personalfinance/2017/04/28/average-student-loan-debt-every-state/100893668/) 有时我们似乎永远也赚不到足够的钱来退休或去度假，这是我们梦寐以求的。
 
-Watch
+
 
 缓解你资金紧张的一个方法是了解你财务状况的基本情况。这似乎是显而易见的，但是问问你自己——你最后一次检查你的 401(k)费用是什么时候？你知道你的信用卡利率吗？
 

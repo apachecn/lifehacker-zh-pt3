@@ -4,7 +4,7 @@
 
 如果你没有准备好处理个人数据的意外丢失，谷歌会帮你搞定。It [终于发布了它的备份&同步服务](https://www.blog.google/products/photos/introducing-backup-and-sync-google-photos-and-google-drive/) ，它可以让你将文件从电脑上的任何文件夹或连接的驱动器上传并同步到 Google Drive，而无需四处移动。它不会取代像 Crashplan 这样的全面备份服务，但如果你没有真正的备份计划，它肯定是值得考虑的。
 
-Watch
+
 
 谷歌的 Backup & Sync 本质上是 Google Drive 的升级版。除了处理您的 Google Drive 文件并让您将它们同步到本地设备，您现在还可以在 Mac 或 PC 上的其他位置选择文件夹，无论是在您的主硬盘还是外部硬盘上。
 

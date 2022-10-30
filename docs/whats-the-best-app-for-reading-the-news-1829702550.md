@@ -4,7 +4,7 @@
 
 我们在 Lifehacker 上查看了许多应用程序，最近我们写了相当大的关于 [Android](https://lifehacker.com/the-essential-android-apps-for-2018-1829424567) 和 [iOS](https://lifehacker.com/the-2018-lifehacker-pack-for-ios-the-essential-ios-app-1828788598) 的必备程序的综述。尽管如此，仍然有很多，这可能会使你很难找到最好的应用程序来做你想做的事情。
 
-Watch
+
 
 在本周的 [Tech 911](https://lifehacker.com/c/tech-911) 专栏中，我们将回答生活黑客读者**约翰**提出的一个应用主题问题:
 

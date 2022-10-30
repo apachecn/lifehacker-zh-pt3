@@ -4,7 +4,7 @@
 
 在 [黑客正午](https://hackernoon.com/dive-into-the-details-of-ios-11-is-apple-still-detail-oriented-fe70af065a7d) 结束时，设计师兼 iOS 11 beta 测试员刘威煌详细列举了他在苹果最新手机操作系统中注意到的无数设计错误。
 
-Watch
+
 
 这些都是小细节——字体粗细不一致、 [潦草、](https://www.thoughtco.com/leading-in-typography-1078100) 前导、边距差异。他们是那种普通用户不会注意到的嘘声，但是那会让设计极客抓狂。
 

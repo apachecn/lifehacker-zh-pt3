@@ -4,7 +4,7 @@
 
 Android P 有一个全新的应用切换器，可以将传统的垂直视图改变为更直观的水平布局。虽然大多数 Android 用户必须等到 Android P 出现在他们的设备上才能获得新的外观，但三星已经通过其 Good Lock 应用程序为 Galaxy S7，S8，S9 和 Note 8 用户提供了新的外观。
 
-Watch
+
 
 要获得新的应用切换器，首先 [确保你的设备运行 Android 8.0 奥利奥](https://www.samsung.com/uk/support/mobile-devices/how-do-i-check-for-operating-system-updates-on-my-samsung-galaxy-device/) 。然后，你需要从 Galaxy 应用商店下载 Good Lock 应用程序(不要与 Google Play 商店的同名应用程序混淆)。
 

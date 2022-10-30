@@ -4,7 +4,7 @@
 
 正如 Fast Company 在他们的 [在家工作指南](https://www.fastcompany.com/40467397/the-ultimate-work-from-home-checklist-for-people-who-are-always-in-the-office) 中指出的那样，在你在家工作的前一天，记得转移任何重要的文件。如果您使用的是不同的电脑，请使用 Dropbox、电子邮件或 USB 驱动器同步所有内容。即使你用的是同一台电脑，或者你主要依赖云服务，记得也要准备好任何双因素登录，以及任何不能在你的公司 VPN 上工作的东西。把任何实物文件带回家。
 
-Watch
+
 
 FC 还建议在前一天晚上准备好你的工作空间:清理掉分散注意力的“家庭物品”,尽可能复制你的工作环境。当你坐在家里时，很难进入你平常的工作日。你不会想把早上的时间浪费在调整上。
 

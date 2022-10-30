@@ -4,7 +4,7 @@
 
 肯塔基州参议员兰德·保罗为您带来了政府短暂关闭后，国会在周五早上设法通过了一项预算协议——这是三周内的第二次关闭。特朗普总统 [签署法案](https://www.wsj.com/articles/house-passes-two-year-budget-deal-1518172770?mod=e2tw) 后不久。
 
-Watch
+
 
 据《纽约时报》报道，为期两年的协议将国内和军事支出上限提高了 3000 亿美元， [协议将提高联邦债务上限](https://www.nytimes.com/2018/02/08/us/politics/congress-budget-deal-vote.html?hp&action=click&pgtype=Homepage&clickSource=story-heading&module=span-ab-top-region&region=top-news&WT.nav=top-news) 至 2019 年 3 月。它让联邦政府获得了六周的资金，所以我们可以一起回来，在不到两个月的时间里再做一次。
 

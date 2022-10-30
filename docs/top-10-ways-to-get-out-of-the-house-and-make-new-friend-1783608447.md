@@ -4,7 +4,7 @@
 
 你可能会预测这个列表中的一项，但本周我们将关注应用程序、游戏和其他工具，它们可以改变你的日常生活，让你走出家门，并帮助你探索你的社区——甚至更远。
 
-Watch
+
 
 ### 10.Meetup
 
@@ -32,11 +32,7 @@ Watch
 
 当然，这个建议并不适合所有人，但是如果你真的想认识志同道合的人，或者只是认识普通人，那么地方政治是一个很好的方式。你会遇到很多人，可能和你一样对当地问题充满热情，而且不像国家政治，你能够在当地对你的社区产生更大的影响。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Ways to Get out of the House and Make New Friends](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392) [###### 怎样才能让当地政府重视我？](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392) 
 
-亲爱的 Lifehacker，我一直在努力让我的市议会关注我的…
-
-[Read more](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392)</aside>
 
 最重要的是，如果政治对你来说是私人的(老实说，对我们大多数人来说，至少在某种程度上是)，你遇到的人可能是一生的朋友。此外，这是一个很好的方式来了解政治是如何运作的，以及你如何才能做出更好的改变——而不是 [只是坐着抱怨](https://lifehacker.com/how-to-avoid-sounding-like-an-idiot-when-discussing-pol-5990295) 。
 

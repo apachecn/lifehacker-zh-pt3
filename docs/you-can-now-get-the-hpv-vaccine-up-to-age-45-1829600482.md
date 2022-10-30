@@ -4,7 +4,7 @@
 
 人类乳头瘤病毒疫苗可以预防多种形式的宫颈癌，长期以来一直适用于从 [岁到](https://lifehacker.com/why-you-have-to-be-26-or-younger-to-get-the-hpv-vaccine-1820647427) 岁的青少年。最近，FDA [批准了针对 45 岁以下男女的疫苗](https://www.fda.gov/NewsEvents/Newsroom/PressAnnouncements/ucm622715.htm) 。
 
-Watch
+
 
 获得批准的疫苗版本是 Gardasil 9，它可以预防九种人类乳头瘤病毒。人乳头瘤病毒病毒 有数百种类型，但这九种被认为是“高危”类型，因为它们会增加患宫颈癌和其他人乳头瘤病毒相关癌症的风险，包括阴道癌、外阴癌和肛门癌。该疫苗还可以预防一些生殖器疣。
 

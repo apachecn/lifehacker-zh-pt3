@@ -4,7 +4,7 @@
 
 学生对书包有各种特殊需求，老师也是。Lifehacker reader 和数字媒体制作教师 mattewrstover 分享了他为教学和数字媒体创作准备的包。
 
-Watch
+
 
 包里是一个 [SwissGear 1908 背包](http://www.amazon.com/SwissGear-ScanSmart-Computer-Backpack-Laptops/dp/B002OHDIWY/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-high-school-tech-teachers-bag-1734704135&asc_source=&ie=UTF8&keywords=SwissGear 1908 Backpack&qid=1444062424&sr=8-1&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

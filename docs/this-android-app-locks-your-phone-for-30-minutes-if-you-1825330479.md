@@ -4,7 +4,7 @@
 
 Android:智能手机和应用程序被设计成令人上瘾的，对于许多人(包括我自己)来说，很难抗拒 Twitter 通知或 Instagram 上新照片的吸引力。有很多服务可以帮助你 [花更少的时间盯着你的手机](https://lifehacker.com/offtime-blocks-phone-distractions-allows-vips-through-1643737825) ，但是一个免费的 [Android](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465) 应用程序采取了一种特别残忍的方法，这种方法可能对最绝望的智能手机上瘾者也有效。
 
-Watch
+
 
 (由 [XDA 发现——开发者](https://www.xda-developers.com/curb-android-smartphone-addiction-lock-me-out/) )提供了一些不同的功能，旨在抑制你的手机使用。当我打开应用程序时，我首先看到的是两排红色的大按钮，可以锁定我的手机 15 分钟到 3 小时。选择 15 分钟锁定后，我被引导到锁定屏幕。我可以接听电话，阅读通知，使用相机，但仅此而已。(这款应用的付费版可以让你将特定应用列入白名单，或者完全锁定手机。)
 

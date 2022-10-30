@@ -4,7 +4,7 @@
 
 我们已经过了新年几天了。决议进行得怎么样了？不太好，是吧？听着，有些决心就是不好。你的可能就是其中之一。
 
-Watch
+
 
 如果你依靠一个神奇的决心让你去健身房或帮助你减肥， [你是个傻瓜](https://lifehacker.com/enough-with-the-resolutions-already-1821652360) ，你应该给自己一个 [坚实、现实的计划](https://vitals.lifehacker.com/make-a-year-long-plan-instead-of-a-resolution-1821467758) 来代替。但是你没有。所以现在让我们试着解决你正在纠结的问题，这样你就不必完全放弃这个想法。
 

@@ -4,7 +4,7 @@
 
 在这一点上，亚马逊几乎 [主宰了](http://blog.the-ebook-reader.com/2017/07/12/kindle-paperwhite-still-the-best-selling-ereader/)[电子书市场](https://lifehacker.com/ereader-showdown-amazon-kindles-compared-1773881849) ，但这并没有阻止该公司定期推出新功能和设计。去年，我们得到了 [高端 Kindle Oasis](https://lifehacker.com/amazons-new-kindle-oasis-is-289-worth-of-luxury-ereade-1770703452) ，现在亚马逊正在双倍下注有吸引力的(如果命名不当) [新款 Kindle Oasis](https://gizmodo.com/amazons-sick-high-end-kindle-got-a-serious-overhaul-1819330183#_ga=2.58576682.1886108002.1507054993-1042414884.1504272398) 。
 
-Watch
+
 
 新型号更便宜，屏幕更大，还有一系列新功能，包括防水和有声书支持。但是从去年的绿洲升级值得吗？而其他公司还能在电子书阅读器市场与亚马逊竞争吗？让我们找出答案。
 

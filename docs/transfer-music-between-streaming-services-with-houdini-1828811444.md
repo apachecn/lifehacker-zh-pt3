@@ -4,7 +4,7 @@
 
 有时候你想抓取某人的 Spotify 播放列表放入你的 Apple Music library，或者导出到 YouTube。有多少流媒体服务，就有多少移动音乐的服务。同时使用多种方法可以获得最佳效果。所有这些应用程序只是有一点不同。有些仅支持桌面，有些仅支持移动，有些支持不同的第二层流媒体服务。但是，他们都使用稍微不同的方法来匹配歌曲。因为 Spotify *和其他*有任何著名流行歌曲的五十种不同版本和混音，你可能会有很多错误的匹配。
 
-Watch
+
 
 通过几个服务运行同一个播放列表，并查看哪一个匹配最多的歌曲，这很有用，而且比手动搜索更快。所以即使我在半年前推荐了 [SongShift 和 STAMP](https://lifehacker.com/move-your-streaming-music-between-spotify-apple-and-g-1823612996) ，现在我也在推荐 [Tune 我的音乐](https://www.tunemymusic.com/) 和 [Houdini](http://houdini.io/) ，它们做同样的事情，有时会更好。
 

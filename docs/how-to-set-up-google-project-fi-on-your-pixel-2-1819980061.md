@@ -4,7 +4,7 @@
 
 如果你买的是 Pixel 2(或者是 Pixel 2 XL 中的 [等待问题解决](https://lifehacker.com/dont-buy-the-pixel-2-xl-until-google-sorts-out-its-disp-1819772290) )，你可能会在充电完成后马上将其连接到当前的无线运营商。如果你是 [从你的运营商](https://lifehacker.com/so-are-you-going-to-buy-or-lease-your-next-phone-1800676294) 购买手机，这是非常简单的，但是如果你对转换提供商感到好奇，你的新手机里已经有一个了。你可以直接从智能手机上激活 Google Project Fi。
 
-Watch
+
 
 完成手机设置后，您就可以开始使用 Project Fi 了。当需要选择运营商时，您可以选择免 SIM 卡设置，然后选择 Project Fi 将服务连接到您的帐户并获取号码。或者，您可以从谷歌 Play 商店下载 Project Fi 应用程序，并在那里开始设置您的帐户。
 

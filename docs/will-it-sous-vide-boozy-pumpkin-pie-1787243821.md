@@ -4,7 +4,7 @@
 
 大家好，欢迎来到一个非常秋天的版本。每周专栏，我用我的沉浸式循环器做你想要我做的任何东西。 [本周](http://skillet.lifehacker.com/will-it-sous-vide-lets-pick-another-topic-1787021344) ，你们都得到了非常时令的当选南瓜派。
 
-Watch
+
 
 或者，我应该说“ [种南瓜饼](http://skillet.lifehacker.com/surprise-canned-pumpkin-isnt-actually-pumpkin-but-its-1787154824) ”？——因为 tag007 的老婆这么说的。(平心而论，tag007 的妻子似乎是个聪明的女人。)
 

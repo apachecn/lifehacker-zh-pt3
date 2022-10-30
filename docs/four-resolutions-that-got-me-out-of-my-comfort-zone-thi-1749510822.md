@@ -4,7 +4,7 @@
 
 你的舒适区有什么不可爱的？甚至这个短语本身听起来也不错。我想象一个舒适的角落，在那里我可以独自和满足，远离整个疯狂，不舒服的世界。不幸的是，你也错过了在那个角落的很多很酷的经历，这就是为什么今年，我发誓要强迫自己离开它。
 
-Watch
+
 
 在舒适区之外，你会体验到不同的生活，是的，这听起来完全像一个俗气的 Instagram 账户上的一些激励性迷因，但远不止如此。
 
@@ -66,11 +66,7 @@ PayScale 的一项 [调查询问人们为什么不要求加薪。以下是他们
 
 所以今年，当我的母校邀请我 [回来，给一屋子成功的、有经验的女性做一个关于](http://www.uh.edu/class/ws/Programs/table-talk/) 的演讲时，我真的真的很想说不。但是被邀请是一件很好的事情，我当然接受了，并且去了那个会议。太可怕了。在比赛开始前的几天里，我很害怕，在实际比赛中，我开始感受到 [冒名顶替综合症](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849) 的影响。我觉得自己像个十足的白痴和骗子，我害怕他们会叫我出去。一名妇女是电视主播。另一个是一家大公司的首席执行官。我仍然觉得我没有理由呆在那里，但是他们对我是如何建立自己的事业非常友好和好奇。实际上，我告诉他们我觉得自己是个冒名顶替者，我惊讶地发现他们中的许多人也是如此。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Four Resolutions that Got Me Out of My Comfort Zone This Year](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849) [###### 克服冒名顶替综合症:当你觉得自己是个骗子时该怎么办](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849) 
 
-每个人在职业生涯的某个时刻都会感觉到:我是个骗子，每个人都将…
-
-[Read more](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849)</aside>
 
 事实证明，这是鼓舞人心的，激励人心的，我遇到了想和我一起工作的人，我也和新认识的人一起度过了一段愉快的时光。
 

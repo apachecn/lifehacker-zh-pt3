@@ -4,7 +4,7 @@
 
 我很擅长想买东西。例如，我想买一套新的音响系统。这将意味着从我的墙上拆下五个扬声器，修补漏洞，并购买一个 700 美元的条形音箱。我的妻子指出目前的系统运行良好，并问我为什么要更换它。我不得不承认为什么:我必须用第二个遥控器来控制音响系统，我讨厌这样。我妻子指出，解决这个问题不值得 700 美元和一个周末项目。所以我买了一个 20 美元的通用遥控器[。这是达到我真正的*目标的一个更好的方法，那就是感觉能控制我的小玩意。*](https://www.amazon.com/Logitech-Universal-Entertainment-Certified-Refurbished/dp/B00Y34TAA0/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/find-your-real-goals-by-asking-why-1826932706&asc_source=&tag=kinjalifehackerlink-20) 
 
-Watch
+
 
 [在最近的一次谈话中，我们的第一个现场活动，Livehacker，](https://lifehacker.com/how-men-can-learn-to-have-healthier-conflict-with-divo-1826417450#_ga=2.198592231.972888801.1529329488-3846207152.1521480874) 离婚律师詹姆斯·塞克斯顿说，他的客户经常带着不合理或不可能的目标来找他。他们想要严格的监护权协议，或者非常具体的财产分割。Sexton 仔细检查了这些目标，并询问每个目标满足什么需求。这些是*真正的*目标。他们通常很情绪化——觉得自己融入了孩子的生活，或者没有被利用。塞克斯顿向他的客户展示了实现这些目标的其他更好的选择。
 

@@ -4,7 +4,7 @@
 
 TED 演讲很棒，但是有一点它们看起来都太相似了，或者说很难应付过去。如果你仍然喜欢不时地享受一个聪明的、引人入胜的演讲，但你已经受够了 TED，这里有一些提升你大脑的替代方法。
 
-Watch
+
 
 ### 10.[99U](http://99u.com/videos)T3】
 
@@ -26,11 +26,7 @@ Watch
 
 在 Ignite 上，演示者有 20 张幻灯片和 5 分钟时间，幻灯片每 15 秒自动播放一次，不管演示者是否愿意。我们的目标是在短短几分钟内将一个想法浓缩成一个有趣、快速、同样令人难忘的小块，结果是一些真正令人印象深刻、有趣和有启发性的演讲，除非在这种时间压力下，否则你不会在其他地方看到这些演讲。例如，我们分享的其中一个著名的演讲是关于如何买车而不被拧 。另一首是粉丝最喜欢的:“ [滚蛋回家。](https://lifehacker.com/go-the-f-k-home-5897637)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Smart Alternatives to TED Talks](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/buy-a-car-without-getting-screwed-298810) [###### 买车不吃亏](https://lifehacker.com/buy-a-car-without-getting-screwed-298810) 
 
-汽车人罗布·格鲁尔就如何寻找、融资和谈判给出了一些很棒的实用建议…
-
-[Read more](https://lifehacker.com/buy-a-car-without-getting-screwed-298810)</aside>
 
 最近的一个， [难民也有搞笑的故事](http://www.ignitetalks.io/videos/refugees-have-funny-stories-too) ，《寓教于乐》，嵌入上面。还有一些必看的演讲是“ [【职业摔角的艺术】](http://www.ignitetalks.io/videos/the-art-of-pro-wrestling) ，”它打破了我们所知道的摔角的真实面目，还有“ [老奶奶是个黑客](http://www.ignitetalks.io/videos/granny-was-a-hacker) ，”它向现代计算技术历史上一个经常被忽视但超级重要的系列故事致敬。来点轻松的，看看" ["马特到底是怎么让那些人跟他跳舞的？"](https://www.youtube.com/watch?v=ue1GZ4IUFiU) 查看 [他们的网站](http://www.ignitetalks.io/) 了解更多，或者 [他们的 YouTube 频道](https://www.youtube.com/user/iGNiTe) 。
 
@@ -88,11 +84,7 @@ PopTech 是一个由专家、企业家和所谓的“思想领袖”组成的全
 
 大思考视频总是具有启发性和娱乐性。像 Neil deGrasse Tyson 和 Bill Nye 这样的人谈论科学和智力话题，Mary Aiken 和 Glenn Cohen 讨论侧重于技术的社会和心理话题，这些话题通常很广泛，但总是信息丰富。我们也强调了一些重要的思考视频，如 [为什么冥想应该是你大脑的“定期维护”，](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) 和 [精神韧性的概念](http://lifehacker.com/cultivate-mental-toughness-with-the-navy-seals-40-perc-1745307249) 以及如何提高你的精神韧性。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Smart Alternatives to TED Talks](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) [###### 为什么冥想应该是你大脑的“定期维护”](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) 
 
-从技术上来说，睡眠已经是我们大脑的定期维护，但如果有任何…
-
-[Read more](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329)</aside>
 
 Big Think 视频的美妙之处在于，它们总是很棒，由特定领域的领导者或研究过各自主题的专家直接呈现——它们是对着镜头呈现的，通常不是对着观众。上面这段视频来自 Charles Duhigg，他的作品 [我们在](http://lifehacker.com/im-charles-duhigg-and-this-is-how-i-work-1511638172) 之前已经在 Lifehacker 上重点介绍过，视频向你展示了如何通过建立心智模型 来提高你的注意力 [。](https://lifehacker.com/the-power-of-mental-models-how-flight-32-avoided-disas-1765022753)
 

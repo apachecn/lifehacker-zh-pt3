@@ -4,13 +4,9 @@
 
 在 Lifehacker 中，纯文本一直是最受欢迎的，但多年来，大多数人已经远离它，转而青睐专门的待办应用、笔记应用、写作应用或其他任何应用。我仍然使用纯文本来处理几乎所有的事情，但是从来没有想过*为什么*我会这样做。我想得越多，就越意识到除了时髦的功能，纯文本仍然是可移植性和简单性的王。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled I Still Use Plain Text for Everything, and I Love It](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/ten-clever-uses-for-plain-text-files-that-can-increase-1662774267) [###### 纯文本文件的十个聪明用法可以提高你的工作效率](https://lifehacker.com/ten-clever-uses-for-plain-text-files-that-can-increase-1662774267) 
 
-说到跟踪你所有的文本和待办事项，有很多应用程序可以…
 
-[Read more](https://lifehacker.com/ten-clever-uses-for-plain-text-files-that-can-increase-1662774267)</aside>
 
 [我们在](http://lifehacker.com/why-you-should-set-up-your-to-do-list-in-a-plain-text-f-5859642#_ga=1.100885257.968941705.1436971740) 之前已经讲过了 [值的纯文本待办事项。简而言之很简单:任何计算机都可以阅读简单明了的文本。txt 文件是完全可移植的，没有铃声，没有哨声，没有专有软件，也没有花哨的格式选项。这是计算机可以创建的最简单的文件之一，任何计算机——以及各种应用程序——都可以读取它。多年来，成吨的生产力软件试图取代它，然而，从](https://lifehacker.com/ten-clever-uses-for-plain-text-files-that-can-increase-1662774267) [刻薄的待办事项应用](http://lifehacker.com/carrot-turns-your-to-do-list-into-a-slightly-sadistic-g-5978354) 到 [大额预算笔记应用](http://lifehacker.com/not-just-another-notes-app-why-you-should-use-google-k-509256637) ，对我来说没有什么比普通文本更好的了。
 

@@ -4,7 +4,7 @@
 
 在英特尔工作的 13 年里，Sandra Lopez 监督了公司的品牌重新定位，在公司建立了新的组织，并在英特尔的体育集团中运用了她的时尚背景。她被美国国家多元化委员会提名为技术领域 最具影响力的 50 位女性之一，还是 Latina Style 的 [年度十大 L atina 高管之一](http://latinastyle.com/latina-style-announces-the-top-10-latina-executives-of-the-year-for-2015/) ，她还在 [硅谷男孩俱乐部](https://www.youtube.com/watch?v=S1qZLfadfKM) 接受了 NBC 新闻的采访。我们和她谈论了她的背景对她的科技职业生涯产生的令人惊讶的影响，以及如何负责任地管理团队。
 
-Watch
+
 
 * * *
 

@@ -4,7 +4,7 @@
 
 今天，联邦贸易通信委员会主席 Ajit Pai 概述了他放松 FCC 对互联网服务提供商监管的新计划。不出所料，他的梦想计划有效地扼杀了许多网络中立 的 [想法。](https://lifehacker.com/why-the-fccs-new-net-neutrality-rules-are-good-for-the-1683769527) 
 
-Watch
+
 
 [在今天](https://www.c-span.org/video/?427558-1/fcc-chair-ajit-pai-expected-unveil-net-neutrality-proposals) 的一次演讲中，白概述了他的计划，其全文我们明天就能看到。该计划攻击了 2015 年的一项裁决，该裁决根据《通信法》第二章第五条的规定，将互联网提供商视为传统公用事业公司，如电话公司。这意味着互联网服务提供商受到更加严格的、实用的监管。虽然第二章的要求对服务价格没有影响，但它们确实要求互联网提供商遵守一些规则，包括:不屏蔽网站，不收费“快速”通道，不限制速度。这在很大程度上有利于消费者。
 

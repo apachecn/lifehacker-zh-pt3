@@ -4,7 +4,7 @@
 
 上个月，BMJ 发表了一份病例报告 ，讲述了一名 34 岁的男子因 [雷霆头痛](https://www.mayoclinic.org/diseases-conditions/thunderclap-headaches/symptoms-causes/syc-20378361) 住进纽约库珀斯顿的急诊室，这是一种特别痛苦的头痛，可能是脑出血的迹象。他的症状包括干呕和剧烈的头颈疼痛。这名男子将自己的痛苦追溯到几天前的一场吃辣椒比赛，他吃下了一个卡罗莱纳死神，这是吉尼斯世界纪录保持者，拥有世界上最辣的辣椒。
 
-Watch
+
 
 幸运的是，像这样的伤很少见。宾夕法尼亚大学专门研究烹饪及其在社会中的作用的心理学教授保罗·罗津博士说:“风险极小。”罗津从 20 世纪 80 年代初就开始研究辣椒的独特魅力。
 
@@ -14,11 +14,7 @@ NYU 医学院的耳鼻喉专家和临床副教授，医学博士理查德·纳�
 
 诺亚·查姆伯格(Noah Chaimberg)是一名厨师，也是布鲁克林辣酱零售商和配方师的创始人[为那些吃了辛辣食物后感到刺痛的人推荐乳制品，如鲜奶油和冰淇淋](https://lifehacker.com/the-foods-that-cool-your-mouth-after-eating-something-s-1698035076) 。他说，辣椒素是脂溶性的，会被这些食物中的脂肪吸收。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What&#39;s the Worst a Hot Pepper Can Do To You?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-foods-that-cool-your-mouth-after-eating-something-s-1698035076) [###### 吃了辛辣的食物后会让你的嘴巴变凉](https://lifehacker.com/the-foods-that-cool-your-mouth-after-eating-something-s-1698035076) 
 
-所以你错判了咖喱，现在你的嘴着火了——怎么办？你可能知道牛奶
-
-[Read more](https://lifehacker.com/the-foods-that-cool-your-mouth-after-eating-something-s-1698035076)</aside>
 
 ### 最坏的情况
 

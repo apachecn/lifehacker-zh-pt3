@@ -14,11 +14,7 @@
 
 你阴茎上的皮肤也对它的弯曲程度有影响。随着年龄的增长，皮肤变得松弛，曲线会更加明显。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What Your Penis Will Look Like When You Get Older](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/this-video-explains-that-yes-your-penis-probably-is-co-1669659221) [###### 这个视频解释说，是的，你的阴茎可能是完全正常的](https://lifehacker.com/this-video-explains-that-yes-your-penis-probably-is-co-1669659221) 
 
-伙计们，如果你在生活中没有看到很多阴茎，你可能会时不时地看看你自己的…
-
-[Read more](https://lifehacker.com/this-video-explains-that-yes-your-penis-probably-is-co-1669659221)</aside>
 
 太好了！一切都很好。除了关于严重疾病的部分。如果是那样呢？因为有可能。
 

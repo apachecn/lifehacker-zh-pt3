@@ -4,7 +4,7 @@
 
 尽管比特币之类的加密货币以不断被黑 而闻名，但它仍然是一种热门商品。如果你的钱包里有一只 [聪或者两只](https://en.bitcoin.it/wiki/Satoshi_(unit)) ，你可能想了解它的最新价值，以确保如果(说实话，当它崩溃时)你不会失去你的衬衫。这就是 [比特币追踪器](https://www.producthunt.com/posts/what-if-bitcoin) 的用武之地。
 
-Watch
+
 
 比特币追踪器(Bitcoin Tracker)是开发者拉胡尔·德瓦斯卡(Rahul Devaskar)开发的免费 Chrome 扩展，让你每次打开新网页时都能查看比特币的价值。
 

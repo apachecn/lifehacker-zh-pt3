@@ -4,7 +4,7 @@
 
 今天，最好的云备份服务之一 CrashPlan， [宣布终止对消费者的](https://www.crashplan.com/en-us/consumer/nextsteps/) 支持。《回家的计划》将于 2018 年 10 月 23 日停播。虽然注册或续订 CrashPlan for Home subscription 的选项已经取消，但当前 CrashPlan for Home 用户将免费获得额外 60 天的备份服务。
 
-Watch
+
 
 随着最好的云备份服务之一终止对消费者的支持，你可能会有点担心万一灾难来袭时你将把电脑的重要文件存储在哪里。幸运的是，有相当多的替代选项以有竞争力的价格提供类似的功能(或者您可以以低廉的价格构建自己的功能)。
 

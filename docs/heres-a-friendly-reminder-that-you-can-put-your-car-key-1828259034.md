@@ -4,7 +4,7 @@
 
 现代 [汽车技术](https://jalopnik.com/tag/car-technology) 犹如良药。它给了你一个你可能需要也可能不需要的好处，换来的是一长串副作用和“做这个之前先问问某某人。”例子: [这些来自《今日美国》的推荐](https://www.usatoday.com/story/tech/columnist/komando/2018/08/10/forget-tin-foil-put-your-keys-fridge-keep-them-safe-car-thieves/939536002/) ，说把车钥匙存放在微波炉或冰箱里，以挫败 [黑客](https://jalopnik.com/tag/car-hacking) 。
 
-Watch
+
 
 《今日美国》的列表有一些很好的提醒，比如无钥匙汽车可以让黑客窃取钥匙的信号，并利用它来开锁和偷车。有各种各样的 [其他方式](https://jalopnik.com/car-hacking-team-once-again-hacks-a-jeep-cherokee-with-1784701375)[理由](https://jalopnik.com/hackers-stole-more-than-30-jeeps-and-dodges-in-houston-1784839376) 去黑一辆车，以及一旦被黑了 [控制它](https://jalopnik.com/the-fbi-wants-us-all-to-know-just-how-risky-car-hacking-1765903286) 的方法。 [有些](https://jalopnik.com/hackers-can-take-over-your-car-with-this-simple-26-dev-1519896807) 的方法是 [约 20](https://jalopnik.com/how-a-14-year-old-hacked-a-car-with-15-worth-of-radio-1686620075) 。《今日美国》的列表也有一些简单而符合逻辑的建议来避免黑客入侵——有趣的是，我们中的任何人甚至一开始就需要它们。
 

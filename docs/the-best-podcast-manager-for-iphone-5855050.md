@@ -4,7 +4,7 @@
 
 iOS 现在有一堆很棒的播客管理器，但在测试了所有这些管理器之后，我们最喜欢的是阴云，因为它包含了大量的杀手级功能，并且仍然是免费的。
 
-Watch
+
 
 ### [多云](https://itunes.apple.com/us/app/overcast-podcast-player/id888422857?mt=8)
 

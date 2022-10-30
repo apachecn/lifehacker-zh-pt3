@@ -4,7 +4,7 @@
 
 在阿姆斯特丹除了买大麻还有别的事可做！这是一个美丽的、可以骑自行车的城市，有运河，有著名的博物馆，如安妮·弗兰克故居、梵高博物馆和国立博物馆。(买一张 [博物馆卡](https://www.museumkaart.nl/) 。)
 
-Watch
+
 
 *<small></small>*<small>[*<small>Hack Your City</small>*](https://lifehacker.com/c/hack-your-city)*<small>每周一，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及对游客和当地人的任何其他建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。</small>*</small> 
 

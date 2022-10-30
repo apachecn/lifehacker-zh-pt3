@@ -4,7 +4,7 @@
 
 任天堂在开关的设计上投入了大量的思想，除了替代的 Pro 控制器，这感觉像是事后想起的。它可能是官方的，也是在电视上玩任天堂 Switch 游戏的完美方式，但它的价格昂贵，而且设计笨重，这与该交换机的最大特点:便携性背道而驰。所以我一直在寻找一种更符合开关的替代控制器。我已经找到了。如果你需要一个控制器，可以很容易地扔在包里，但不会像独立的 Joy-Con 那样感到可怕的局促，8Bitdo 的 NES30 Pro 达到了完美的平衡。
 
-Watch
+
 
 这款 [NES30 Pro](https://www.amazon.com/8bitdo-CONTROLLER-Nintendo-Android-Windows/dp/B071SM6TDN?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/the-nes30-pro-is-the-perfect-portable-controller-for-th-1796068741&asc_source=&tag=kinjagizmodolink-20) 其实已经上市有一段时间了。它使用蓝牙连接笔记本电脑、平板电脑、智能手机和其他可以玩游戏的设备，但没有自带的专用控制器。5 月，该公司更新了所有控制器[的固件，增加了对任天堂 Switch 的支持。](http://gizmodo.com/tag/8bitdo)
 

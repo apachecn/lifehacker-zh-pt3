@@ -4,7 +4,7 @@
 
 逃避必要的医疗护理通常是一个坏主意，只有那些懒惰、害怕或试图省钱的人才会这么做。但是太多的医疗保健有其自身的风险。避免某些测试或治疗并选择第二意见而不是更多的访问可能是明智的，一个好的提供商可以帮助你深思熟虑地做出决定。
 
-Watch
+
 
 我们并不是说你应该拒绝必要的照顾。当我们指出乘坐 [救护车可能非常昂贵](http://vitals.lifehacker.com/psa-ambulance-rides-aren-t-always-free-1742804149) 时，一些读者得出结论，在紧急情况下最好不要呼救。那当然不是真的:活着和 [处理医院账单](https://lifehacker.com/how-to-navigate-the-confusing-and-expensive-world-of-me-1765507579) 总比无债一身轻好。但是在很多非紧急情况下，你和你的医生有机会重新考虑你到底需要多少护理。
 
@@ -34,11 +34,7 @@ Watch
 
 治疗也值得仔细检查。以抗生素为例。曾经被认为是低风险的治疗，我们现在认识到副作用包括消灭我们的有益细菌，这可能导致酵母感染，有时甚至严重腹泻。过多使用抗生素还会助长耐药细菌，如 [超级淋病](http://jezebel.com/drug-resistant-super-gonorrhea-laughs-in-the-face-of-an-5984684) 和 [MRSA](http://lifehacker.com/should-i-be-worried-about-getting-sick-when-i-go-to-the-1717461052) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled More Medical Care Isn’t Always Better](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-know-when-you-actually-need-antibiotics-1677768347) [###### 如何知道你什么时候真正需要抗生素](https://lifehacker.com/how-to-know-when-you-actually-need-antibiotics-1677768347) 
 
-当你咳嗽或感冒时，从医生那里拿一包药是没有用的，如果…
-
-[Read more](https://lifehacker.com/how-to-know-when-you-actually-need-antibiotics-1677768347)</aside>
 
 毫不奇怪，许多明智选择指南都是关于避免使用抗生素的方法。但是也有其他值得质疑的治疗方法。记住，每种治疗都有成本，所以即使是无害的治疗也可能是浪费时间和金钱。
 

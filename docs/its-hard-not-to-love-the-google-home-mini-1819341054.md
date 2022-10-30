@@ -4,7 +4,7 @@
 
 几乎不公平的是，世界上大多数人都以亚马逊回声的形式迎接了我们语音控制的未来。当然，这个小玩意很好用，但是它太丑了。谷歌主页更好，但看起来还是有点傻。这就是为什么时尚简约的 [谷歌 Home Mini](https://store.google.com/us/product/google_home_mini) 感觉像是一个启示。
 
-Watch
+
 
 这个甜甜圈大小的装置 [几乎做了它丑陋的哥哥](https://gizmodo.com/the-google-home-mini-is-a-google-home-but-mini-1819137285) 所做的一切。它提供了近乎即时的谷歌助手访问，让你可以很容易地询问你今天的日历上有什么，或者上班路上的交通有多糟糕。你可以大喊谷歌搜索，比如“美国上一次错过世界杯是什么时候？”( [直到今年](https://deadspin.com/u-s-a-out-of-world-cup-on-phantom-goal-1819343176) ，那是 1986 年。)或许最有用的是，你可以用谷歌 Home Mini 控制家中的联网设备。你可以说，“嘿，谷歌，打开电视。”它会像魔法一样发生。
 

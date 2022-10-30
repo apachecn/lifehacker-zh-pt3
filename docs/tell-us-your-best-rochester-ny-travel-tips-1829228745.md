@@ -4,7 +4,7 @@
 
 腐败已经进入黑客你的城市专栏。纽约州的罗切斯特可能没有匹兹堡、T2、T4、T5、布拉格和明尼苏达州的罗切斯特同名，但它是我的家乡。所以，当读者克里斯·克莱门斯(纽约旅游博客 [探索北部](https://exploringupstate.com/) 的创始人)向我索要《黑掉你的城市》的罗切斯特版时，我就像喝醉了的红翼粉丝一样吃光了一个 [垃圾盘子](http://www.visitrochester.com/blog/post/rochester-garbage-plate/) 。Rochesterians，我想听听你们对参观和居住在布法罗的另一半的建议。
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

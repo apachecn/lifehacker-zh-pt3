@@ -4,7 +4,7 @@
 
 你是怎么挂卫生纸的？一个古老的问题是，从最靠近墙的那一侧开始，是否“正确”地将末端放在卷的上面或下面，这个问题和时间一样古老。这是一个让很多家庭四分五裂的有争议的话题，现在我们对这个问题有了一个明确的答案:挂卫生纸的正确方式是把一端从顶部挂过去。
 
-Watch
+
 
 [*公司*报道](https://www.inc.com/geoffrey-james/the-correct-way-to-hang-toilet-paper-according-to-.html?cid=readmoretext_aut) 最近在科罗拉多大学进行的一项研究表明，结束的“正确”方法是因为用那种方法你只会碰你自己正在使用的卫生纸。
 

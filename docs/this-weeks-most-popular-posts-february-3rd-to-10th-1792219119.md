@@ -4,7 +4,7 @@
 
 本周，我们学习了如何在政治进程中保持活跃，以及如何在电话被关闭的情况下联系国会议员，分享了一些我们失败的生活黑客尝试，讨论了如何在新的关系中处理情人节，等等。这里回顾一下。
 
-Watch
+
 
 ## [**如何免费或廉价获得订阅服务的额外津贴**](http://twocents.lifehacker.com/how-to-get-the-perks-of-subscription-services-for-free-1792104034)
 

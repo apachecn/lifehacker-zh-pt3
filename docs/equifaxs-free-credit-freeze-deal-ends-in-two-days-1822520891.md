@@ -4,7 +4,7 @@
 
 如果你想免费冻结你的 Equifax 信用报告，你最好快点做。
 
-Watch
+
 
 还记得去年那部史诗级的 Equifax hack 吗？黑客暴露了美国 1.45 亿成年人的个人数据，很有可能你就是其中之一。当时，专家建议那些受到影响的人冻结他们在所有三大报告机构的信用:Equifax、TransUnion 和 Experian，作为一种保护你的信用的方法，以防有人决定使用被盗的信息。作为对这次失误的一种道歉，Equifax 向 [提出让受影响的客户免费做这件事](https://lifehacker.com/equifax-is-waiving-their-credit-freeze-fees-for-30-days-1805663077) ，但只到 1 月 31 日。
 

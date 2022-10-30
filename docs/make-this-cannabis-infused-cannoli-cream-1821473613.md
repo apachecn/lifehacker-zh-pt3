@@ -4,7 +4,7 @@
 
 奶油甜卷是公认的美味甜点。他们是西西里人，也就是说 [最初是阿拉伯语](https://books.google.com/books?id=gN6ySQnUnfwC&pg=PA370&dq=9781556529542&hl=en&sa=X&ved=0ahUKEwjL1pLAnIjYAhXOYd8KHRPDBQcQ6AEIJTAA#v=onepage&q=Cannoli&f=false) ，然后被那个干旱天堂的矫情的人们所采用和完善。这种甜点航行穿过 [南街海港](https://southstreetseaportmuseum.org/millions-new-york-city-immigration-in-the-20th-century/) (爱丽丝岛时代之前)，停在小意大利的桑树街上，直到今天，这里仍有一些现存的意大利面包店。在西西里岛的巴勒莫，人们称之为 Cannolo，是一种油炸糕点，填满了甜奶酪，上面还有其他美味。
 
-Watch
+
 
 我出生的西西里岛，斯塔滕岛，是这些天半正宗的奶油甜卷的去处。到了圣诞节和复活节，每年有两次像我这样的 paisanas 被迫返回巢穴，这些面包店的队伍有时长达数小时。由于西西里人是有组织犯罪的先驱——包括朗姆酒走私和 [贩卖海洛因的比萨饼店](http://www.nytimes.com/1987/03/03/nyregion/17-found-guilty-in-pizza-trial-of-a-drug-ring.html)——所以在西西里美食中加入禁酒以来消费最多的非法物质 [:大麻是有道理的。](https://www.cbsnews.com/news/study-marijuana-is-most-popular-illegal-drug-worldwide/)
 

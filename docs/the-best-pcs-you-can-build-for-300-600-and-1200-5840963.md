@@ -4,13 +4,9 @@
 
 我们之前已经 [带你构建了自己的计算机](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 。在这篇文章中，我们将随着价格和组件的变化定期更新，我们将带您了解三种不同系统版本所需的硬件:经济型工作站、功能强大的通用 PC 和面向游戏玩家和专业人士的发烧友系统。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Best PCs You Can Build for $300, $600, and $1200](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) [###### 如何建造一台计算机:完全指南](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 
 
-从零开始构建一台计算机会为您提供满足您需求的完美机器，但它可能…
 
-[Read more](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747)</aside>
 
 虽然有些人认为台式机是一个死平台，但仍有很多人使用它们的次数与笔记本电脑或平板电脑一样多，或者除了笔记本电脑或平板电脑之外还使用它们，喜欢玩 PC 游戏，或者只是喜欢动手构建自己的系统。在我们继续之前，我们应该指出，这些 PC 版本旨在优化您的全面计算体验，其中有些重点放在 PC 游戏上。最划算的组件在很大程度上取决于你打算用这个系统做什么:如果你用同样的预算建造一个 HTPC，或者为你的家庭网络建造一个超高速文件服务器，你的部件将会不同。
 
@@ -123,11 +119,7 @@ Watch
 *   *******【总计:1266.44 美元(折扣、回扣和运费前 1264.46 美元)******* 
 *   ****[***从 PCPartPicker***](http://pcpartpicker.com/user/LifehackerPC/saved/GGsFf7) 购买此构建****
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">****[![Image for article titled The Best PCs You Can Build for $300, $600, and $1200](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/a-beginners-introduction-to-overclocking-your-intel-pr-5580998) [###### 英特尔处理器超频初学者入门](https://lifehacker.com/a-beginners-introduction-to-overclocking-your-intel-pr-5580998) 
 
-如果你想从你的新(或旧)电脑中挤出最后一点处理能力，…
-
-[Read more](https://lifehacker.com/a-beginners-introduction-to-overclocking-your-intel-pr-5580998)****</aside>
 
 ******如果你想要更多的选择…****** 
 

@@ -4,7 +4,7 @@
 
 下巴或上唇上有少许毛发的女性可能会觉得自己有问题——但这实际上很常见。莫娜·沙拉比 [在《卫报》](https://www.theguardian.com/fashion/2017/nov/30/female-facial-hair-if-so-many-women-have-it-why-are-we-so-deeply-ashamed) 写道，即使是决定你是否“多毛”的测量工具也有一些严重的问题。
 
-Watch
+
 
 [费里曼-盖尔威](http://www.hirsutism.com/hirsutism-biology/ferriman-gallwey-score.shtml) 分数显示你有多多毛。九个身体部位中的每一个都可以得到四分。把它们加起来，任何超过 8 分的都意味着你有多毛症，还有大约 7%的女性；超过 15 分，你有严重的多毛症。头发的数量与你的荷尔蒙有关。例如，多毛症和 [多囊卵巢综合征](http://www.pcosaa.org/pcos-symptoms/) 之间有很大的重叠。
 

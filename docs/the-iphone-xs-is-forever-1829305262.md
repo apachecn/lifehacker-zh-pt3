@@ -4,7 +4,7 @@
 
 我 [烦透了买 iphone](https://gizmodo.com/im-going-to-buy-the-iphone-x-and-i-hate-myself-for-it-1804418016)。在过去的十年里，我一直在买它们，爱它们，弄坏它们，丢掉它们，更换它们，当九月来临的时候，升级它们。去年， [我花了 1200 多美元](https://gizmodo.com/iphone-x-damage-report-two-months-later-1822644663) 买了一部 iPhone X，尽管我有更好的判断，但我非常认真地考虑花更多的钱买一部 iPhone XS。
 
-Watch
+
 
 但这并不是因为 iPhone XS 好得多。不是的。我想买 iPhone XS(售价 1000 美元起)，这样我就可以暂时不买 iPhone 了。这东西感觉是面向未来的，是的，我知道这听起来有多蠢。
 

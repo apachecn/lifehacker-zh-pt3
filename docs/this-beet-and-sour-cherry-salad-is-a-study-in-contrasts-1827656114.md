@@ -4,7 +4,7 @@
 
 把钱花在成熟的酸樱桃上是一个严肃的承诺。对我来说，樱桃派的承诺并没有超过在变成汤之前去核和/或冷冻几磅非常昂贵的水果的压力，这似乎是一夜之间发生的——但显然，腌甜菜沙拉的承诺确实如此。
 
-Watch
+
 
 这就是一本伟大食谱的力量；在这种情况下，来自波兰乡村别墅厨房的[](https://www.chroniclebooks.com/titles/in-a-polish-country-house-kitchen.html)*由安妮·阿普尔鲍姆和丹妮尔·克里滕登创作，我收到了它作为情人节礼物，并立即成为最喜欢的礼物。这可能是我拥有过的最好的烹饪书:食谱很棒，但更重要的是，根据它烹饪开发了我的 [季节性配料](https://lifehacker.com/this-app-will-tell-you-what-produce-is-in-season-near-y-1798366326) 本能，这是其他任何东西都没有的。我怀疑这是因为 [宾夕法尼亚州](https://en.wikipedia.org/wiki/Climate_of_Pennsylvania#/media/File:Pennsylvania_K%C3%B6ppen.svg) 和 [波兰](https://en.wikipedia.org/wiki/Geography_of_Poland#/media/File:Poland_K%C3%B6ppen.svg) 有着非常相似的气候和生长季节，所以传统的波兰食谱几乎可以保证使用我能接触到的最新鲜的食材。*
 

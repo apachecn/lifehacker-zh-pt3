@@ -4,7 +4,7 @@
 
 [黑掉你的通知徽章](https://lifehacker.com/hack-your-notification-badges-to-encourage-good-habits-1819139456#_ga=2.55465257.367633666.1525095724-3846207152.1521480874) 。 [转灰度](https://lifehacker.com/make-your-smartphone-less-distracting-by-switching-your-1789747192#_ga=2.55465257.367633666.1525095724-3846207152.1521480874) 。 [宣布你即将看手机的原因。如今有无数的方法可以帮助你减少花在手机上的时间。](https://lifehacker.com/announce-the-reason-you-are-about-to-look-at-your-phone-1823194762#_ga=2.55465257.367633666.1525095724-3846207152.1521480874)
 
-Watch
+
 
 找到一个据称会永远改变你的智能手机使用的快速破解方法是容易的部分。然而，“如果你只是从提示和技巧开始，你永远不会成功地改变你与手机的关系，”科学与健康记者兼作家凯瑟琳·普莱斯说，她是最近出版的书《如何与你的智能手机分手:30 天计划收回你的生活 的作者。
 

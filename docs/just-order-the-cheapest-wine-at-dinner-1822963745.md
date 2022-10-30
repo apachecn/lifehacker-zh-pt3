@@ -4,7 +4,7 @@
 
 这个情人节，你可能已经为你爱的人安排了一顿大餐。你已经为一切做好了预算:一些开胃菜、主菜和一份悄悄分开的甜点。当你到达餐厅时，灯光刚刚好， [的音乐是舒缓的](https://lifehacker.com/what-are-your-valentine-s-day-songs-1822958826) ，你对 [之夜可能引领](https://lifehacker.com/if-your-valentines-plans-include-sex-and-dinner-do-the-1822800140) 的地方感觉很好。然后服务员给你拿酒单。
 
-Watch
+
 
 如果你在最便宜的选项之间犹豫不决(换句话说，你和我一样，除了喜欢葡萄酒之外，不太了解葡萄酒)，就点最便宜的选项。餐馆会将 [标为第二便宜的](https://lifehacker.com/the-second-cheapest-wine-has-the-highest-markup-and-ot-1482993709) ，因为他们知道你不会想在你的约会对象面前显得*太*便宜，但是你也不想在酒水上超支，尤其是如果餐馆的价格比你通常去的要贵的话。
 

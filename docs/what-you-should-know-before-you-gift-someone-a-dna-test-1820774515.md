@@ -4,7 +4,7 @@
 
 公司甚至不能保证我们的密码和信用卡号码等简单数据的安全，那么我们应该把我们最私人的数据:我们的 DNA 信任他们吗？当你将一管唾液邮寄给一家个人基因组公司时，这正是你正在做的事情，结果表明数据并不像你想象的那样隐私。
 
-Watch
+
 
 23andme [多年前](https://www.scientificamerican.com/article/23andme-is-terrifying-but-not-for-the-reasons-the-fda-thinks/) 承认，其真正的目标不是通过出售 DNA 检测来赚钱，而是收集大量的个人数据。他们的 [隐私政策声明](https://www.23andme.com/about/privacy/) 他们将使用您的信息，无需任何进一步的同意，“只要我们合理地认为法律法规允许，包括用于营销和广告目的”，并且如果需要，他们将 [将其移交给执法部门](https://www.theroot.com/this-can-t-be-good-genealogy-companies-say-they-r-1820587830) 。
 

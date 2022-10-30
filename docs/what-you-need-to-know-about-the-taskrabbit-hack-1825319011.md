@@ -4,7 +4,7 @@
 
 现在 TaskRabbit 由于某种黑客问题而离线，你将无法使用该服务召唤某人来帮助你完成日常任务。但与房间里隐约可见的大象相比，这只是一件小事:你的账户信息可能已经被泄露了。
 
-Watch
+
 
 TaskRabbit [昨天下午](https://twitter.com/taskrabbit/status/986015274422812672) 在推特上表示，它将暂时关闭其服务，但该公司没有说明这可能会对其用户的账户安全产生什么影响。然而，它确实建议，如果每个人在其他网站或服务上使用相同的登录和密码组合，都应该更改他们的密码。这可不好。
 
@@ -20,11 +20,7 @@ TaskRabbit [昨天下午](https://twitter.com/taskrabbit/status/9860152744228126
 
 不过，现在将是一个很好的时间来检查和查看你的信用卡发行商是否提供任何类型的交易警报，你可能想在下周左右打开(如果这不会太烦人的话)。否则，做一个日历提醒，在这个月底(也许下个月也是)检查你的信用卡账单，只是为了确保没有任何奇怪的费用，你的信用卡发卡行出于任何原因没有自动标记。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What You Need to Know About the TaskRabbit Hack](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-do-if-your-social-security-number-has-been-stol-1684690096) [###### 如果你的社会安全号码在黑客攻击中被盗，该怎么办](https://lifehacker.com/what-to-do-if-your-social-security-number-has-been-stol-1684690096) 
 
-上周，健康保险公司 Anthem 丢失了超过 8000 万份病历，包括敏感的…
-
-[Read more](https://lifehacker.com/what-to-do-if-your-social-security-number-has-been-stol-1684690096)</aside>
 
 如果你是一名黑客，那么更多的信息——包括你的银行账号和银行代码 、你的家庭住址和出生日期——可能会因为这次黑客攻击而被泄露。同样的建议也适用于此:在 TaskRabbit 确认此次黑客攻击泄露了哪些财务数据(如果有的话)之前，只要在接下来的一两个月里密切关注你连接到该服务的任何账户。如果你看到任何差异，立即通知你的银行或信用卡公司。
 

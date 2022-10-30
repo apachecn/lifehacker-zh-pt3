@@ -4,7 +4,7 @@
 
 [触摸屏](https://lifehacker.com/why-would-i-want-a-touch-screen-pc-5978694) 已经成为我们许多人与数字世界互动的主要方式，但对于视觉障碍者来说，它们并不是很好的选择。智能手机的显示屏很小，需要精确的控制，它们的屏幕在不活动一会儿后就会关闭，如果你的视力不好，这使得它们很难使用。在这些情况下， [智能音箱](https://lifehacker.com/how-to-protect-your-privacy-on-your-smart-home-devices-1823181500) 可能是更有用的设备。
 
-Watch
+
 
 在为《大西洋》 撰写的一篇感人的新文章中，Ian Bogost 描述了教他失明的父亲使用亚马逊 Echo 的经历。像任何新技术一样，这需要一点学习曲线，但他的父亲很快就开始向 Alexa 询问体育比分和股票市场的最新情况。他还使用亚马逊的 [语音信息功能](https://www.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/smart-speakers-are-a-great-tool-for-the-visually-impair-1825294036&asc_source=&nodeId=202136270&tag=kinjalifehackerlink-20) 与他的儿子以及另一位在家有回音的朋友沟通。
 

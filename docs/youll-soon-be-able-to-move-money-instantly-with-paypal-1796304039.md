@@ -4,7 +4,7 @@
 
 当你想到点对点支付时，你可能会想到贝宝。但是，Square Cash 等其他服务有一个很大的优势，那就是即时兑现的能力。 [PayPal 刚刚宣布](https://www.paypal.com/stories/us/transfer-money-instantly-to-your-bank-account-with-paypal) 他们也计划提供这一功能。
 
-Watch
+
 
 在公告中，该公司的执行副总裁比尔·雷迪说:
 

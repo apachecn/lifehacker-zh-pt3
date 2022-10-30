@@ -4,7 +4,7 @@
 
 如果你是那种每个周六都躺着 Lululemon，手边放着一瓶 Smartwater 的人，你可能听说过 Orangetheory Fitness。这家总部位于佛罗里达州的特许经营店以其高科技健身空间的橙色照明而闻名，正在发展成为一种比 Soulcycle 更大的运动趋势。该公司已经积累了 700 个位置，自 [到 2015](https://www.inc.com/anna-hensel/2015-inc5000-the-10-fastest-growing-franchise-businesses.html) 年底增加了一倍多。它吸引人的部分原因是声称锻炼的目的是让参与者在洗完澡回家后继续燃烧卡路里。Orangetheory 的网站邀请用户“工作 1 小时。烧 36。”
 
-Watch
+
 
 [橙色理论训练员鞭笞参与者进入疯狂状态](http://www.businessinsider.com/what-is-orange-theory-fitness-2017-8/#screens-throughout-the-studio-display-your-heart-rate-8) 跨越几个锻炼站，包括跑步机、划船机和举重房。班上的每个人都戴着心率监测器，技术中心的电视屏幕显示他们的名字和整个班级的心率。参与者通过一个系统获得积分，该系统测量他们在每一小时的锻炼中以 84%至 100%的最大心率跳动多少分钟。
 

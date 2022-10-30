@@ -4,7 +4,7 @@
 
 我们总是在 Lifehacker 寻找最好的 DIY 技巧，今年当然不缺。当你想独自完成项目时，这里有一些最好的 DIY 技巧。
 
-Watch
+
 
 ## [你能以 300 美元、600 美元和 1200 美元打造的最好的个人电脑](http://lifehacker.com/the-best-pcs-you-can-build-for-300-600-and-1200-5840963)
 

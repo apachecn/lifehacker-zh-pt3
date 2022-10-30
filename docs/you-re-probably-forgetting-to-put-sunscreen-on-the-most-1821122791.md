@@ -4,7 +4,7 @@
 
 除非你确定你脸上的每一寸都涂上了防晒霜，否则坐下来。我们需要谈谈。
 
-Watch
+
 
 是的，差不多是()冬天了。不，我不是假设你在热带地区度假。此刻你可能没有被晒伤的风险，但是增加你患癌症风险的 UVA 射线是全年的事情。这就是为什么每天早上涂上一点防晒霜是明智的，是的，即使你是个花花公子，甚至是 [如果你有深色皮肤](http://www.skincancer.org/prevention/skin-cancer-and-skin-of-color) ，即使你打算 [整天呆在家里](http://www.skincancer.org/publications/sun-and-skin-news/winter-2010-27-4/uv-radiation) 。
 

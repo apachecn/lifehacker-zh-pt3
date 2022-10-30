@@ -4,7 +4,7 @@
 
 所以，你需要一些帮助。没关系，我们有时都需要帮手。问题是，我们很多人不知道如何去问——所以我们没有问。根据一位社会心理学家的说法，这里有一个最简单、最有效的请求帮助的方法。
 
-Watch
+
 
 [*援军:如何让人们帮助你*](https://hbr.org/product/reinforcements-how-to-get-people-to-help-you/10079-HBK-ENG)*[告诉 The Verge](https://www.theverge.com/2018/6/22/17475134/heidi-grant-reinforcements-help-social-psychology) 要牢记的最重要的一点是，求助总是没问题的。我们倾向于认为人们会拒绝我们的请求，或者瞧不起我们，所以我们没有像应该的那样经常寻求帮助。然而，根据研究，当我们寻求帮助时，人们更喜欢我们。但是，你如何着手让他们真正贯彻到底呢？*
 

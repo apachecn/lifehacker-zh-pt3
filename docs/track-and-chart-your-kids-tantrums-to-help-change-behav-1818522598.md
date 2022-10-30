@@ -4,7 +4,7 @@
 
 睡眠习惯。生育能力。每天步数。耗水量。所有这些都有追踪器。所以，当我读到凯瑟琳·皮尔曼博士给苦苦挣扎的父母的建议时，我可能并不感到惊讶，然而它却让我大吃一惊。当你试图改变孩子的行为，而你不确定你所做的是否奏效时，她建议收集一些数据并进行分析。
 
-Watch
+
 
 [*的作者是皮尔曼别理它！:如何有选择地寻找另一种方式可以减少行为问题并增加养育满意度*](https://www.amazon.com/Ignore-Selectively-Behavioral-Parenting-Satisfaction/dp/0143130331?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/track-and-chart-your-kids-tantrums-to-help-change-behav-1818522598&asc_source=&tag=kinjalifehackerlink-20) ，这教导了对孩子的不端行为给予零关注或奖励的策略。虽然她已经看到她的方法惊人地有效(这就是为什么她写了一本关于它的书)，但这个策略——或者你决定实施的任何新的育儿技术——不会成为一根魔杖，立即把你的孩子变成一个完美的天使般的宠儿，她会说:“妈妈，当你休息你可爱的头时，我可以安静地读一本书吗？”童年，从本质上来说，是不稳定的，情绪化的，复杂的，通常很难超越摆在你面前的痛苦崩溃。
 

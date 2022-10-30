@@ -4,7 +4,7 @@
 
 今年早些时候，北卡罗来纳州的大会 [部分废除了 HB2](https://www.nytimes.com/2017/03/30/us/north-carolina-senate-acts-to-repeal-restrictive-bathroom-law.html) ，即所谓的“浴室法案”，该法案限制北卡罗来纳州的城市制定当地的反歧视法律，并要求跨性别者使用与其出生证明上的性别对应的浴室。从那以后，许多其他地方、州和国家法律 [剥夺跨性别者](http://www.transequality.org/action-center#North%20Carolina) 的权利被通过(包括 21 个州)。
 
-Watch
+
 
 跟上这个问题的最新波折可能会令人筋疲力尽，特别是现在当 [医疗保健正在被辩论](http://vitals.lifehacker.com/your-update-on-the-health-care-vote-1797295942#_ga=2.133836494.1323070847.1501164211-1887250931.1497314809)[有一个旅行](http://lifehacker.com/whos-allowed-into-the-us-under-the-revised-travel-ban-1796517447) [禁止](http://lifehacker.com/whos-allowed-into-the-us-under-the-revised-travel-ban-1796517447) 进出法院系统，政府官员正因 [与俄罗斯特工](http://lifehacker.com/what-exactly-is-collusion-1797193118) 勾结而受到调查。以下是 LGBTQ 权利领域发生的事情:
 

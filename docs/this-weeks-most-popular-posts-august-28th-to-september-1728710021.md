@@ -4,7 +4,7 @@
 
 本周，我们了解了不涉及食物的慢炖锅的一些用途，学习了如何在你认为不灵活的费用上展示我们的谈判实力，评估了最好的通用遥控器，等等。这里回顾一下。
 
-Watch
+
 
 ## [五个最好的万能遥控器](http://lifehacker.com/five-best-universal-remote-controls-5901930)
 

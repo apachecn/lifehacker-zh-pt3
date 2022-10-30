@@ -8,7 +8,7 @@
 
 三星自己也在自己的网站 上推广 S9 公告 [。你可以使用你的电子邮件地址注册，以获得活动提醒，或者记得在 2 月 25 日下午 6 点](http://www.samsung.com/global/galaxy/events/unpacked/) [CET](https://www.timeanddate.com/time/zones/cet) (美国东部时间下午 12 点)出现在[Galaxy UNPACKED page](http://www.samsung.com/global/galaxy/events/unpacked/)。帮你自己一个忙，如果你走电子邮件路线，在公告后退订。
 
-Watch
+
 
 ### **三星的 YouTube 频道**
 

@@ -4,7 +4,7 @@
 
 你正在找工作，你需要准备好你的 [职业推荐信](https://www.themuse.com/advice/your-guide-to-getting-great-job-references) 。这意味着联系某个前老板，他可能是最佳人选。只有一个小问题。你们没有联系。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/5-rules-for-reaching-out-to-a-reference-you-havent-talked-to-in-forever) *。*
 

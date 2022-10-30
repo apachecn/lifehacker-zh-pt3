@@ -4,7 +4,7 @@
 
 我喜欢的东西现在流行，那是不好的。多亏了像[【Giphy】](https://giphy.com/)这样的 GIF 数据库，反应 GIF，曾经是一种谨慎和精心制作的艺术形式，现在是一个平淡无奇的大众市场，由少数得到批准的名人面孔主导。今天，Giphy 通过 [增加来自“官方艺术家或合作伙伴”的 gif 的浏览量，加速了媒体的平庸化](https://medium.com/@giphy/introducing-gif-view-counts-e3ec1899e7bd)
 
-Watch
+
 
 一个官方 GIF 的概念概括了公司互联网，公司互联网利用，然后挤压，野生和珍贵的独立互联网。这是一个 [品牌推文【BAE】](https://twitter.com/brandssayingbae)的世界，是一个 [GOP memes](http://mashable.com/2017/06/07/gop-meme-fail/) 的世界，是一个 [居高临下的企业品牌页面](https://www.facebook.com/corporatebollocks/) 的世界。
 

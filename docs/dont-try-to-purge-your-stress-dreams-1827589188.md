@@ -4,7 +4,7 @@
 
 我不希望我完成了大学学业。我提前一个学期退学了，这正是我希望毕业后从事的媒体工作。那么，为什么我多年来一直做着同样的梦，上学期我回到学校待了一个，离开了我的妻子，住进了的宿舍，而我上课已经迟到了？我怎样才能停止做那个梦？显然我不能。
 
-Watch
+
 
 科学记者和*我们为什么会做梦*的作者爱丽丝·罗伯告诉 Cut，试着不去做梦会让你 [更有可能梦到它](https://www.thecut.com/2018/07/why-you-keep-having-the-same-work-stress-dream-over-and-over.html) 。她指出，在一项研究中，被告知不要梦到某事的受试者 [会梦到这件事](https://www.sciencedirect.com/science/article/pii/S1053810010002497) 。
 

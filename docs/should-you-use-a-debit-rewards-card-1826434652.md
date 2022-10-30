@@ -4,7 +4,7 @@
 
 借记卡奖励卡不像以前那么普遍了，但对于那些对使用信用卡持谨慎态度的人来说，它们仍然是一种选择。
 
-Watch
+
 
 许多网上银行提供奖励支票账户，与传统银行相比更具竞争力。例如， [Discover Bank](https://www.discover.com/online-banking/checking/) 为每月购买 3000 美元的借记卡提供 1%的现金返还( [网上银行](https://www.bankofinternet.com/checking/rewards-checking) 也有奖励支票)。美国银行也提供 [奖励](https://www.bankofamerica.com/deposits/checking/debit-card/) 。
 

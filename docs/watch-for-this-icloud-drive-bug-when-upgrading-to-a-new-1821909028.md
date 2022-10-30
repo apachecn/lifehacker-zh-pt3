@@ -4,7 +4,7 @@
 
 如果你在假期后从一台 iMac 迁移到另一台(更亮的)iMac(,或者帮助某人设置他们的新 MacBook Pro 以替换他们的旧 MacBook Air，你可能会忍不住使用 iCloud Drive 来移动一些你需要快速访问的重要文件。不幸的是，如果您将文件从运行 Sierra 的 Mac 移动到运行 High Sierra 的 Mac，您的文稿、图像和其他文件可能会在此过程中丢失一些元数据。
 
-Watch
+
 
 作家霍华德·奥克利 [写了一个奇怪的错误](https://eclecticlight.co/2018/01/06/icloud-drive-can-strip-metadata-from-your-documents/) 当使用苹果的 iCloud Drive 传输文件时会发生，这是一种云存储服务，可以让你在 macOS 和 iOS 设备之间同步图像、文档和其他任何文件。如果您尝试将包含构成文件元数据的特定扩展属性列表的文件从 Sierra 拷贝到 iCloud 再拷贝到 High Sierra，则运行 High Sierra 的 Mac 上的新文件中将不再包含这些属性。
 

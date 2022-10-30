@@ -4,7 +4,7 @@
 
 多亏了 [音乐流媒体服务](https://lifehacker.com/so-which-music-streaming-service-should-i-use-1795921103) 的兴起，寻找新音乐变得前所未有的容易——那么为什么我一直在重复听同样的三张专辑呢？
 
-Watch
+
 
 部分问题在于 Apple Music 的推荐算法(也称为 For You 标签)不是很好。Spotify 的 Discover Weekly 播放列表要好得多，但也不完美；潘多拉和 Google Play 音乐等其他服务也是如此。
 

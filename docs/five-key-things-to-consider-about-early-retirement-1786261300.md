@@ -4,7 +4,7 @@
 
 走上提前退休的道路，无论你是处于职业生涯的中期，希望能少活几年，还是处于职业生涯的早期，希望能少活一二十年，就像在不平的地面上跑一场很长的长跑。你可以在脑海中看到令人惊叹的终点线，但首先还有很多地方要走，一些意想不到的事情可能会发生。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/five-key-things-to-think-about-if-youre-considering-a-path-to-early-retirement/) *上。*
 

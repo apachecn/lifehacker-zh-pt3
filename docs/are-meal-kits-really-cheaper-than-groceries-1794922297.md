@@ -4,7 +4,7 @@
 
 蓝色围裙 [声称](http://webcache.googleusercontent.com/search?q=cache:UpxiwFLLUfMJ:try.blueapron.com/bavgsfb/+&cd=1&hl=en&ct=clnk&gl=us&client=ubuntu) 这家杂货店比它的服务“贵 70%”。家庭厨师引用了一个 [电视新闻调查](https://www.homechef.com/skip-the-store?utm_source=facebook&utm_medium=cpc&utm_campaign=FB.PROS.1.F.35.44&voucher=FB30FREE) 发现在食品杂货上略有节余。但后来我看了看我的餐包，发现我每顿饭花了 20 美元，这还不够两个人吃。怎么回事？
 
-Watch
+
 
 虽然我喜欢蓝色围裙和 Hello Fresh，但我为自己和丈夫做的非套餐绝对不会花 20 美元。那么，这些公司怎么能声称它们更便宜呢？部分原因是，他们决定了我们要比较什么。他们送出一个盒子，里面装着三种完全不同的食物，为了进行公平的比较，实验性食品店顾客会为完全相同的菜单购买完全相同的食材。一般来说，这些食物没有任何共同的成分，而且它们通常包含一两种异国情调的成分。所以是的:如果你的食谱完全是蓝色围裙的食谱，你将很难坚持 20 美元/餐。
 

@@ -6,7 +6,7 @@
 
 飓风迈克尔 [将是毁灭性的](https://weather.com/storms/hurricane/news/2018-10-10-hurricane-michael-cat4-historic-landfall-gulf-coast-florida) 。我们已经写了 [如何在线跟踪迈克尔的路线](https://lifehacker.com/how-to-track-hurricane-michael-1829623590#_ga=2.44902055.206035869.1539173061-1095371513.1514847978)[如何帮助受其影响的人](https://lifehacker.com/how-to-help-people-affected-by-hurricane-michael-1829674520)[如何在飓风中保持安全](https://lifehacker.com/how-to-stay-safe-during-a-hurricane-1798391969) 。以下是如何通过网络摄像头观看飓风迈克尔从墨西哥湾袭击佛罗里达狭长地带的过程。预计迈克尔将穿过阿拉巴马州、乔治亚州和卡罗莱纳州，然后进入大西洋。
 
-Watch
+
 
 上图是位于飓风路径中间的佛罗里达州巴拿马城海滩的太阳实况转播。下面是更多的网络摄像头和直播流。请注意，YouTube 和脸书将徽章放在真实的直播流上；如果你可以用进度条滚动视频，那就不是直播。
 

@@ -4,7 +4,7 @@
 
 没有什么比把你的减肥激浪洒在你的控制器上，让它变得粘粘的更能破坏杀戮狂欢了。或者，也许你只是用得太多了，用坏了按钮和拇指棒。不管是哪种情况，许多游戏手柄都非常容易被用户修复。以下是如何打开你的 Xbox 或 PlayStation 控制器并修复其按钮的方法。
 
-Watch
+
 
 清洁控制器的外部很容易，但是如果你觉得控制器的按钮有点脏或粘，你可以把它敲开，用一点酒精擦干净。或者，如果您想完全更换按钮和操纵杆，您可以订购新部件，并在大多数控制器中进行更换。如果你想要一点定制，你甚至可以从类似[gamer modz](https://www.gamermodz.com)[Evil Controllers](http://www.evilcontrollers.com/)或 [Amazon](http://smile.amazon.com/gp/feature.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/clean-repair-or-customize-your-game-controllers-with-1728314773&asc_source=&docId=1001016991&ie=UTF8&sa-no-redirect=1&tag=kinjalifehackerlink-20) 的网站订购不同颜色的按钮和外壳。
 

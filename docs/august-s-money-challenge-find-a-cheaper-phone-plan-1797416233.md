@@ -4,7 +4,7 @@
 
 今年我们向你抛出了各种各样的金钱挑战，从 [讨价还价](http://twocents.lifehacker.com/may-s-money-challenge-let-s-haggle-1794740686) 到 [为退休储蓄](http://twocents.lifehacker.com/aprils-money-challenge-finally-open-a-401-k-1793914178) ，整整一年，你都在应对它们。这个月，我们想帮你节省一笔特殊的开支:你的手机账单。
 
-Watch
+
 
 在八月，我们要求你找到一个更便宜的手机计划，仍然提供同样水平的服务。虽然许多大型运营商，如 Sprint 和威瑞森，已经开始提供自己的折扣选择，但仍有大量的非合同、现收现付计划。事实上，许多折扣航空公司已经迫使大公司提供更好的价格，所以有很多选择。
 

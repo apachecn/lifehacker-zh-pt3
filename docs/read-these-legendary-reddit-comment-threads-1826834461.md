@@ -4,7 +4,7 @@
 
 [“Reddit，有什么传说中的评论帖是大家都应该看的？”](https://www.reddit.com/r/AskReddit/comments/8qx0ar/reddit_what_is_a_legendary_comment_thread_that/) 带着这个问题，redditor myawesomeself 为一个伟大的评论线程的佳能的发展打开了地板。有些发生在 Reddit 上，有些在博客上，有些在健美论坛上。这是这次盛会的最佳选择。
 
-Watch
+
 
 ## [隔天全身锻炼？](https://forum.bodybuilding.com/showthread.php?t=107926751)T3】
 

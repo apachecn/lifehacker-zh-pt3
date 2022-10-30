@@ -4,7 +4,7 @@
 
 iOS/Android:谷歌新闻如今几乎是一个家喻户晓的短语，该公司刚刚发布了对其 [Android](https://play.google.com/store/apps/details?id=com.google.android.apps.magazines&hl=en_US) 和 [iOS](https://itunes.apple.com/us/app/google-news/id459182288?mt=8) 应用的重大更新，增加了大量机器学习。据推测，这将有助于你在应用程序中获得更多相关和有趣的新闻。
 
-Watch
+
 
 不管怎样，只要能让谷歌停止向我提供关于金叶的消息，我都全力支持。以下是谷歌新闻新设计的一个快速浏览，以及你如何定制它，只提供你关心的新闻:
 

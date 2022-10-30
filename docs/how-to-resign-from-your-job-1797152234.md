@@ -4,7 +4,7 @@
 
 有时候你最终会处于一个你并不适合的位置，比如说，白宫的[新闻秘书。每个人都有辞职的时候。不管你是找到了一份新工作，还是感觉(也许是从新闻报道中)你马上就要被解雇了——当该离开的时候，有正确和错误的方式。](https://www.nytimes.com/2017/07/21/us/politics/sean-spicer-resigns-as-white-house-press-secretary.html?_r=0) 
 
-Watch
+
 
 ### 写一封漂亮的信
 

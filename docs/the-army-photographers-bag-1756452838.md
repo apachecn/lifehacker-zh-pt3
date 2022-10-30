@@ -4,7 +4,7 @@
 
 我们大多数人都可以不假思索地拿起相机出发去冒险。《每日电讯报》的读者蒂莫西·琼斯可没有那份闲心给目前驻扎在文莱的英军当摄影师。这是他为旅途带来的东西。
 
-Watch
+
 
 这个包是一个 [伯顿 F-Stop 包](http://www.amazon.com/gp/product/B013GGE4YM?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-army-photographers-bag-1756452838&asc_source=&keywords=F-Stop Guru camera bag&qid=1454360375&ref_=sr_1_1&sr=8-1&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

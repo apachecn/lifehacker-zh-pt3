@@ -4,7 +4,7 @@
 
 看，你可以爱或恨骚，但这个桌面很好看，而且来自频繁的 Jalop 评论者， [jester74](http://kinja.com/jester74) 。这是一个好看的 Linux 桌面，而且设置简单。
 
-Watch
+
 
 Jester74 不久前在我们的 [**桌面展示**](http://kinja.com/tag/desktop-showcase/) 中留下了这个，但我们现在才开始。看起来还是很棒。下面是在您的 Linux 系统上设置它所需的内容:
 

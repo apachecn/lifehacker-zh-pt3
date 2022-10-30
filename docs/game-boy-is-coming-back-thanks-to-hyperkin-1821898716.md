@@ -4,7 +4,7 @@
 
 随着[【NES】](https://gizmodo.com/the-nes-classic-edition-is-everything-you-want-it-to-be-1788571481)和 [SNES 经典版](https://gizmodo.com/snes-classic-is-the-best-way-to-experience-nintendos-go-1818811285#_ga=2.52312169.1758539802.1515419360-416245376.1515419359) 复古游戏机的销售速度仍然与它们上市的速度一样快，可以肯定任天堂将很快重振其其他一些受欢迎的游戏机。但在 [Game Boy 经典版](https://gizmodo.com/these-are-the-25-games-the-game-boy-classic-edition-sho-1818843497#_ga=2.221226328.1746114267.1515352283-1626665990.1512676959) 有机会成为一个传言之前，外设制造商 [Hyperkin](https://gizmodo.com/tag/hyperkin#_ga=2.56501227.1746114267.1515352283-1626665990.1512676959) 正在发布自己翻拍的经典便携掌机
 
-Watch
+
 
 虽然仍在开发中，但它暂时被称为 Ultra Game Boy，这个名字实际上是对 [Hyperkin 的硬件](https://gizmodo.com/gamers-love-nostalgia-so-someone-is-bringing-back-the-1796000163) 的完美描述，它在无数方面改进了任天堂最初的 Game Boy，而不影响我们许多人记得的经典游戏。
 

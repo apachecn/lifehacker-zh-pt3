@@ -4,7 +4,7 @@
 
 Marianna Tessel 说:“我非常相信确保你有一个网络。”她在 General Magic、Ariba、Docker 和 VMware 工作之前，首先在以色列军队中使用了她的计算机科学技能。我们和她聊了她的工作习惯，她在 Intuit 的职位，以及她如何在办公室保持幽默感。
 
-Watch
+
 
 * * *
 

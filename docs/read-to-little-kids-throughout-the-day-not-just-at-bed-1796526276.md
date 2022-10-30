@@ -4,7 +4,7 @@
 
 在我四岁的女儿睡觉前给她读故事是一种简单的快乐，我们肩并肩依偎在一起，对着一个留着小胡子的 [婴儿](https://www.amazon.com/Mustache-Baby-board-book-Bridget/dp/0544789849?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/read-to-little-kids-throughout-the-day-not-just-at-bed-1796526276&asc_source=&tag=kinjalifehackerlink-20) 或者一个可能掉进 [一锅汤](https://www.amazon.com/Duck-Soup-Max-Jackie-Urbanovic/dp/0061214418?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/read-to-little-kids-throughout-the-day-not-just-at-bed-1796526276&asc_source=&tag=kinjalifehackerlink-20) 的厨师咯咯笑。
 
-Watch
+
 
 这也是我每天为人父母的责任清单上的最后一个标记，是阻止我回去工作的最后一个障碍，无论是工作还是用我的妈妈酒完成《女仆的故事》的剩余部分。我总是渴望在旅途中举办这个书展。
 

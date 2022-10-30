@@ -4,7 +4,7 @@
 
 令各地的截图爱好者沮丧的是，Instagram 推出了一项新功能，当有人决定使用截图将他们的临时 Instagram 故事永久化时，它会提醒创作者。(类似的功能已经存在，可以提醒用户在 Snapchat 上拍摄的截图。)有几个变通办法，你可以试着避免提醒人们你正在拍摄他们的故事照片，以发送给朋友并加以取笑，尽管如果你想完全安全，但你可能应该停止屏幕截图( [或使用 Instagram](https://lifehacker.com/your-instagram-posts-may-offer-warning-signs-of-depress-1797821497) )，而不是想办法成为临时内容的记录者。为什么给任何人机会 [叫你爬虫](https://lifehacker.com/how-to-keep-your-social-media-creeping-private-1797903945) ？
 
-Watch
+
 
 [据 Techcrunch](https://techcrunch.com/2018/02/11/instagram-is-testing-screenshot-alerts-for-stories/?ncid=rss) 报道，Instagram 正在测试公开报道的截图提醒功能。用户对故事进行截屏时，会在应用程序中弹出一个警告窗口，提示用户下次截屏用户的故事时，会在故事的“浏览者”列表中的人名旁边显示一个圆形图标，提醒用户。
 

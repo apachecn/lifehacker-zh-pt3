@@ -4,7 +4,7 @@
 
 在他们的新书 [*厨房窍门:聪明的厨师如何把事情做好*](https://www.amazon.com/dp/1940352002?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/america-s-test-kitchen-s-kitchen-hacks-is-cooking-for-p-1748638152&asc_source=&linkCode=ogi&psc=1&smid=ATVPDKIKX0DER&tag=kinjalifehackerlink-20&th=1) 、金博尔(再见，甜蜜的王子)和公司旨在向你展示如何以最有效的方式准备、烹饪和清洁。简而言之:这是一本关于如何更好地使用厨房的实用指南。
 
-Watch
+
 
 *这是 Lifehacker 的* [*书评*](http://lifehacker.com/book-reviews) *系列的一部分。不是每个生活帮都能在一篇博客文章中概括，所以我们决定回顾一些我们最喜欢的改变生活的书籍，更深入地探讨生活中最重要的话题。*
 

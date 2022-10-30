@@ -4,7 +4,7 @@
 
 写日记可以是一种治疗实践，或者是让你的创造力源源不断的一种方式，尤其是当你把它变成一种日常习惯的时候。但是有时候你就是没有那么多话要说，这就是为什么这些 [日常提示](https://www.lifecapturedinc.com/journaling/) 那么有用。
 
-Watch
+
 
 365 个提示是由 [LIFE:CAPTURED](https://www.lifecapturedinc.com/) 创建的，它帮助人们“记录他们的故事，并创建永恒的、有形的纪念品，供后代珍藏。”他们提供关于照片组织、InDesign 和摄影的研讨会和课程。(我是通过这篇 [BuzzFeed 文章](https://www.buzzfeed.com/annaborges/self-care-tips-guide?utm_term=.elkngWQal#.sjbDrRLx5) 找到这个网站的。)
 

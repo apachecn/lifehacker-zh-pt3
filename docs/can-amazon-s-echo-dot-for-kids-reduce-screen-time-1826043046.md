@@ -4,7 +4,7 @@
 
 因为我的学龄前儿童的生物钟还没有得到周末我们睡懒觉的提示，我和丈夫通常让她看电视或玩 iPad，我们慢慢地从床上爬起来。虽然她的屏幕时间在工作日是有限的，但在周六和周日早上会出现高峰，我并不总是喜欢这种情况，因为这不知何故会给一天带来轻微的暴躁情绪。然而，这一次，当她在早上 7 点蹦蹦跳跳地走进我们的房间时，我牵着她的手，带她走到厨房餐桌旁等待我们的红色冰球大小的设备前。“我们今天要和 Alexa 出去玩，”我告诉她。
 
-Watch
+
 
 具体来说，我们正在测试亚马逊语音控制数字助理 Alexa 的新儿童版本。它驻留在本月推出的 [Echo Dot 儿童版](https://amzn.to/2KrU0g0) 。针对年轻人的耳朵进行了改造，这款 Alexa 是 [“一个适合孩子的 DJ、喜剧演员和讲故事者”](https://www.amazon.com/dp/B077JFK5YH/ref=as_li_ss_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/can-amazon-s-echo-dot-for-kids-reduce-screen-time-1826043046&asc_source=&ie=UTF8&linkCode=sl1&linkId=3dac3e666595712317c79967a0096093&tag=kinjalifehackerlink-20) ，它可以读故事、播放音乐、讲笑话、回答问题，并提醒小奥蒂斯是时候开始穿睡衣了。有人称之为 [数字保姆。“我更愿意把它看作一个快乐的、随时待命的游轮导演。](https://www.androidauthority.com/amazon-echo-dot-kids-edition-859025/)
 

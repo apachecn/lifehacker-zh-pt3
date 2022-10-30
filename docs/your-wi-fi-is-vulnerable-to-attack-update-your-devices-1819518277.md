@@ -4,7 +4,7 @@
 
 一个严重的 Wi-Fi 漏洞今天被披露，影响了几乎每一个使用 WPA 或 WPA2 安全加密的 Wi-Fi 网络和设备。Ars Technica 首先报道的 Wi-Fi 漏洞 [利用了 WPA2 无线安全标准中的一个特殊安全缺陷，允许攻击者拦截个人数据，并将恶意软件插入用户访问的网站。攻击者有可能获得对用户名、密码和信用卡数据等加密信息的访问权。幸运的是，公司已经修补了这个漏洞，以防止这种潜在的黑客攻击发生，但你需要在你这一端做一些工作，并更新你的设备。](https://arstechnica.com/information-technology/2017/10/severe-flaw-in-wpa2-protocol-leaves-wi-fi-traffic-open-to-eavesdropping/)
 
-Watch
+
 
 该漏洞，KRACK(密钥重新安装攻击的缩写)，欺骗无线接入点重复使用正在使用的加密密钥，允许攻击者解密和读取本应保持加密的数据。“安卓、Linux、苹果、Windows、OpenBSD、联发科、Linksys 和其他公司都受到了一些变种攻击的影响，” [发现漏洞的研究人员](https://www.krackattacks.com/) 说。
 

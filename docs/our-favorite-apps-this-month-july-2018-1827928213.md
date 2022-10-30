@@ -4,7 +4,7 @@
 
 每周在 Lifehacker， [我们都会重点介绍四个不同的应用和浏览器扩展](https://lifehacker.com/c/app-directory) ，它们可以为你的设备(或生活)做一些令人敬畏的事情:每个平台或主要浏览器一个。如果你休了一个 [无互联网假期](https://lifehacker.com/i-completely-disconnected-for-10-days-heres-what-happ-479410761) 或者去度假一周，你可能会错过一些精彩的东西。
 
-Watch
+
 
 今天早点回家，在烤架上放上 [一个汉堡](https://skillet.lifehacker.com/how-to-make-a-juicy-lucy-with-any-cheese-1827842827) ，打开 [一杯提神饮料](https://skillet.lifehacker.com/the-aperol-spritz-is-like-a-grown-up-orange-soda-1827748207) ，用我们这个月精选的一些令人难以置信的下载开始你的周末:
 

@@ -4,7 +4,7 @@
 
 如果你买了一台全新的电视，花了几个小时拼命把它放在你的家庭娱乐中心(或者贴在墙上)，然后开始看你最喜欢的节目来庆祝...你错过了关键的一步。您的电视机，不管是新的还是旧的，都带有一系列值得探索的设置，以获得最佳画质，或者至少是您满意的画面。
 
-Watch
+
 
 由于每台电视机都不一样，我们将在接下来的一年里尝试解释每台电视机设置菜单的细微差别，我们将介绍一些您应该注意的通用设置。在您的电视上，它们可能被命名为不同的名称；他们可能根本不存在。打开你最喜欢的饮料，在你的日历上划出一个小时，调整一下你的电视，只要你拥有它，它就看起来很棒。
 
@@ -16,11 +16,7 @@ Watch
 
 你可以出去买 [一个昂贵的设备](https://www.datacolor.com/photography-design/product-overview/spyder5-family/) 让你在家校准你的电视(和你的电脑显示器)，或者你也可以 [付钱让别人](https://www.cnet.com/how-to/what-is-hdtv-calibration/) 出来帮你校准。无论如何都要花几百块钱。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Change These Settings on Your New TV for a Better-Looking Picture](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/whats-the-difference-between-different-television-scree-5884840) [###### 不同的电视屏幕类型之间有什么区别(我为什么要在意)？](https://lifehacker.com/whats-the-difference-between-different-television-scree-5884840) 
 
-亲爱的生活黑客，我打算买一台新电视，但我不确定买什么样的。我…
-
-[Read more](https://lifehacker.com/whats-the-difference-between-different-television-scree-5884840)</aside>
 
 如果你只是花了一小笔钱买了你能买到的最好的电视，你的预算中可能没有更多的空间来进行任何形式的专业校准。这很好。这可能不是你真的需要做的事情，但你至少应该尽自己所能改善你的电视画面。
 

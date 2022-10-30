@@ -4,7 +4,7 @@
 
 去大多数餐馆，你会发现桌子上的一个容器里有一些不同的糖，装在五颜六色的袋子里。当然，它们都应该让你的食物或饮料更甜，但是黄色的和红色的有什么区别呢？它们中有哪一种真的比糖对你更好吗？
 
-Watch
+
 
 美国(FDA)已经认定 [八种人工甜味剂](http://www.fda.gov/Food/IngredientsPackagingLabeling/FoodAdditivesIngredients/ucm397725.htm#AceK) 可以安全食用，但是你不会在你当地的餐馆里找到所有的人工甜味剂——有些是在生产过程中加入食物的添加剂，而不是你自己购买或使用的。你大概通过品牌名称就能认出其中的一些: [三氯蔗糖](https://www.healthline.com/nutrition/sucralose-good-or-bad)(Splenda)[糖精](https://www.healthline.com/nutrition/saccharin-good-or-bad) (甜味和低度) [阿斯巴甜](https://www.healthline.com/health/aspartame-side-effects) (Equal)和 [甜叶菊](https://www.healthline.com/health/food-nutrition/stevia-side-effects) (Truvia)。每一种都有不同的甜度和用途。
 

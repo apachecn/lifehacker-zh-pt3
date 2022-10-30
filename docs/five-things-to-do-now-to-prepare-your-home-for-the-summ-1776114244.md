@@ -4,7 +4,7 @@
 
 我们还有几周就要远离闷热的气温、飓风警报和昆虫入侵了。今年预计将是 [一个在许多地区](https://www.washingtonpost.com/news/capital-weather-gang/wp/2016/05/06/yearning-for-the-summer-sizzle-these-outlooks-predict-it-will-be-a-scorcher-in-d-c/) 特别热的一年。在夏天全面到来之前，确保你和你的家已经准备好了。
 
-Watch
+
 
 ### 给你的空调做个检查
 

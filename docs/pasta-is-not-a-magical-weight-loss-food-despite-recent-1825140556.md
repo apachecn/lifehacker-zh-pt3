@@ -4,7 +4,7 @@
 
 如果有一项研究从好的方面展示了意大利面，这是很难忽视的。人人都爱意大利面，对吧？我知道。很可能你也是。 [巴里拉](https://www.barilla.com/en-us) ，意大利面的制造者，*肯定*会。
 
-Watch
+
 
 **头条** : [吃意大利面有助于减肥，分析发现](https://www.usatoday.com/story/news/health/2018/04/05/eating-pasta-can-help-you-lose-weight-analysis-finds/488728002/) (今日美国) [吃意大利面与减肥联系在一起的新研究](http://www.newsweek.com/pasta-weight-loss-869178) (新闻周刊)
 

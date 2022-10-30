@@ -4,7 +4,7 @@
 
 **Chrome，Firefox:** 当微软在[Windows 2018 年 4 月 10 日更新](https://lifehacker.com/here-are-the-features-you-should-care-about-in-microsof-1825642722) 中推出其新的“时间线”功能时，我有点沮丧地发现，这个功能——你可以用来查看你在任何给定的一天都做了什么——并不是很有帮助，除非你使用的是 Edge 浏览器。尽管回顾我在某一天使用的少数 Windows 应用程序很有趣，但了解我在那一天浏览了哪些网站也很棒，而这在以前对大多数运行 Chrome 或 Firefox 的 Windows 用户来说是不可能的。
 
-Watch
+
 
 然而，这一切都变了。抓取免费的“ [Windows 时间线支持](https://github.com/DominicMaas/TimelineExtension) ”扩展为 [Chrome](https://chrome.google.com/webstore/detail/windows-timeline-support/meokcjmjkobffcgldbjjklmaaediikdj) 或 [Firefox](https://addons.mozilla.org/en-GB/firefox/addon/windows-timeline-support/) ，你现在就可以在你的 Windows 时间线中看到你的浏览历史。(要访问时间线，请按键盘上的 Windows 键，或单击任务栏中的“任务视图”按钮。)
 

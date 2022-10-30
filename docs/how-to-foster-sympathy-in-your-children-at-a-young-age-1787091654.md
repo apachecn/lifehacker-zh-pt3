@@ -4,7 +4,7 @@
 
 父母和老师可能经常想知道如何教会孩子关心他人——尤其是当这个世界充满分歧、冲突和攻击时。
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/heres-how-to-raise-a-child-to-be-sympathetic-64417) *。*
 

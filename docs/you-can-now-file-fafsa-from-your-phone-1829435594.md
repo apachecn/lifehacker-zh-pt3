@@ -4,7 +4,7 @@
 
 今天，2019-2020 学年的联邦财政援助 或 FAFSA[免费申请开放，大学生现在第一次可以选择从手机提交申请。](https://studentaid.ed.gov/sa/fafsa) 
 
-Watch
+
 
 FAFSA 给你获得联邦拨款、贷款和工作学习的机会，所以及时填写很重要。今年这比以往任何时候都容易:你可以下载 myStudentAid 应用程序( [iOS](https://itunes.apple.com/us/app/mystudentaid/id1414539145) 和 [Android](https://play.google.com/store/apps/details?id=com.fsa.mystudentaid) )，用它来填写表格和查看你的所有贷款信息，这对那些家里可能没有联网计算机的低收入学生来说特别有用。对于学生、家长和准备者有不同的设置。
 

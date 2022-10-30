@@ -4,7 +4,7 @@
 
 这是一种刻板印象，但我们许多人都认为科学家有点刻板，没有其他人那么艺术。另一方面，艺术家通常被认为不如我们其他人理性。有时被描述为左脑对右脑——或者简单地说逻辑思维对艺术创造力——这两者经常被视为截然相反的两极。
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/exploding-the-myth-of-the-scientific-vs-artistic-mind-57843) *。*
 

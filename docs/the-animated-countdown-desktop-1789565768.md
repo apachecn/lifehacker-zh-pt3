@@ -4,7 +4,7 @@
 
 [ravenclawwit](http://kinja.com/ravenclawwit) 的桌面太漂亮了，不能忽略。中心的时钟是一个令人敬畏的赛博朋克和*继续说话，没有人爆炸*挑战的结合——但它只是时间。这是所有设置的方式。
 
-Watch
+
 
 如果你想要一个类似的外观，首先你需要 Rainmeter， [，我们在](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 之前已经强调过了，这是一个给 Windows 桌面带来一点个性化和定制的简单方法。
 

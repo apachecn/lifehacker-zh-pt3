@@ -4,7 +4,7 @@
 
 当你在 iPhone 上安装微软的 Word Flow 键盘时，你可能会认为它是一个应用程序或扩展。原来，这是一个“实验”， [一个现在已经“完成”的实验，](https://m.windowscentral.com/microsofts-word-flow-keyboard-ios-no-more) 你需要换一个新的键盘。
 
-Watch
+
 
 你最安全的赌注是 [SwiftKey](https://swiftkey.com/en) ，微软去年初收购了它，最近它赶上了默认键盘，具有 3D 触摸光标控制和 100 多种支持的语言。多语言打字者甚至可以在飞行中切换语言，SwiftKey 会检测到这种变化。
 

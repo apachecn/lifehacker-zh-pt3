@@ -4,7 +4,7 @@
 
 我们已经知道，对于各种用户来说，iOS 11.1 [让媒体播放口吃](https://lifehacker.com/why-you-still-shouldn-t-download-ios-11-on-an-older-iph-1820122749#_ga=2.237222336.1335679637.1509978748-1297080755.1497980211)[打破锁屏上的音频控制](https://community.spotify.com/t5/iOS-iPhone-iPad/Control-Center-on-iOS-11/m-p/2154041#M82521)[自动将单词“I”修正为无法识别的字符](https://lifehacker.com/how-to-stop-your-iphone-from-autocorrecting-i-to-a-1820163694) 。但还有更多！还坏了计算器 app。
 
-Watch
+
 
 对于许多用户来说，iOS 11.1 上的计算器应用程序太慢了，它不会注册你所有的按键。例如， [为 tech blog Select All points out](http://nymag.com/selectall/2017/11/calculator-app-doesnt-work-in-ios-11.html)，如果你键入 1+2+3=，你的答案将是 24，而不是 6。这是因为计算器注册+的速度不够快，所以它将您的输入读取为 1+23。为了避免在计算器中出现这种情况，你必须非常缓慢地输入*。*
 

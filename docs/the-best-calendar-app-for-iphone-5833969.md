@@ -4,7 +4,7 @@
 
 你在 iPhone 上有大量的日历选项，很多都是免费的，但说到最好的，我们推荐 fantastic 2，即使你要花 5 美元才能使用它。
 
-Watch
+
 
 ### [天马行空 2](https://itunes.apple.com/us/app/fantastical-2-calendars-reminders/id718043190?mt=8)T3】
 

@@ -4,7 +4,7 @@
 
 正如我们已经 [覆盖了](https://twocents.lifehacker.com/you-cant-time-a-market-correction-but-dont-freak-out-1828552350) 一样，当前牛市的寿命令人担忧。这一切总有一天会结束，一些经济学家 [预测到 2020 年底会出现衰退](https://nabe.com/NABE/Surveys/Outlook_Surveys/June_2018_Outlook_Survey_Summary_v2.aspx) 。假设这是真的，你有大约两年的时间让你的财务恢复正常。你应该优先考虑什么？
 
-Watch
+
 
 如果你有一个合理的长期财务计划，那就坚持下去——没有理由因为担心经济下滑而颠覆一切。如果你还相对年轻，那么绝对不要逃离股票。 [行情中重要的是](https://twocents.lifehacker.com/time-is-your-most-important-investing-asset-1828260510) ，而不是 [行情中的](https://twocents.lifehacker.com/you-cant-time-a-market-correction-but-dont-freak-out-1828552350) 。但是，如果经济衰退及其对你财务状况的影响给你带来了严重的困扰，你可以采取一个措施来帮助自己，并有可能减轻一些焦虑:开始存更多的现金。
 

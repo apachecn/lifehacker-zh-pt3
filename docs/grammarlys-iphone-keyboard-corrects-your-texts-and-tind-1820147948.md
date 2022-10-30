@@ -4,7 +4,7 @@
 
 在过去的几年里，我一直在使用语法。这项服务可以即时纠正你的拼写和语法，Chrome 的扩展非常有助于我发现电子邮件中微小的错别字和错放的逗号，甚至是我添加到 CMS 的 Lifehacker 上的帖子。现在 Grammarly 又延伸到了一个地方: [你的 iPhone](https://itunes.apple.com/nz/app/grammarly-keyboard/id1158877342?mt=8) 。
 
-Watch
+
 
 本周，这项服务发布了一款新的 iPhone 键盘，它能将语法检查软件应用到你用手机发送的文本、电子邮件等内容中。
 

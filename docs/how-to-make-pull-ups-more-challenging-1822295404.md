@@ -4,7 +4,7 @@
 
 这是给外面的野兽的。如果你已经能做 10 或 20 个引体向上，你可能会对我们的 [引体向上挑战](https://lifehacker.com/january-s-fitness-challenge-grab-onto-that-pull-up-bar-1821717656) 感到有点厌倦。之前我们谈到了 [如何让引体向上变得更容易](https://vitals.lifehacker.com/all-the-ways-to-make-pull-ups-easier-1821906936) ，但现在是时候做另一面了。这里有一些更高级的动作，一旦你掌握了基本动作，你可以试试。
 
-Watch
+
 
 *   **加权引体向上**。你可以在增加重复次数之前增加重量，所以试试吧。健身房通常在引体向上站附近有一个带链的带子。你可以在链条上挂一个重量板，这样每次锻炼时你都可以得到额外的锻炼。
 *   **单臂引体向上**。为了达到这些目的，你需要用你的第二只手来帮助，但是随着你变得越来越强壮，越来越少用它。比如做引体向上双手越靠越近，然后 [用一只手抓住另一只手的手腕](https://pccblog.dragondoor.com/my-journey-towards-the-one-arm-pull-up/) 。之后进展到 [这些一臂半变](https://www.vahvafitness.com/one-arm-chin-up-progressions/) 之一。

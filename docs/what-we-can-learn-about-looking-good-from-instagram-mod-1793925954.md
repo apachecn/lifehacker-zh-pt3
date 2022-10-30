@@ -6,7 +6,7 @@
 
 我们大多数人看起来不像 Instagram 模特(我们都有那些半出名的人，他们有源源不断的完美无瑕的 Instagram 姿势)，但这并不意味着我们在照片中不能像他们一样好。你只需要 [准备一些锦囊妙计](https://lifehacker.com/how-to-look-better-in-photos-based-on-your-body-type-1640221096) 当你的朋友拿出电话说:“我正在写这个！"
 
-Watch
+
 
 无论你是拍集体照还是单人照，都有一些指导原则要记住，这样你才能在照片中杀死它。
 

@@ -4,7 +4,7 @@
 
 iOS/Android:有时你有几个小时可以消磨，在网飞的队列中有一堆节目和电影——但你在飞机上，或者你的连接很差，不可能播放流媒体。你应该做什么——独自思考？不含 [PlayOn 云](https://www.playon.tv/cloud) ，付费流媒体录像机。其独特的视频录制方法允许无罪恶感的离线或云视频存储，但它需要你做一些规划，以确保你可以顺利地获得你下载的电影。
 
-Watch
+
 
 iOS 和 Android 应用程序(也有一个略有不同的版本，用于 Windows 的 PlayOn Desktop)能够录制来自网飞、Hulu、亚马逊视频、雅虎视图、ABC、NBC、CBS、福克斯、HBO NOW、HBO GO、PBS、CW 和 YouTube 的视频。你需要订阅才能登录每项服务，所以不要认为这是盗版内容的新方法。此外，像亚马逊和网飞 [这样的服务已经提供可下载的视频](https://lifehacker.com/netflix-gets-offline-playback-on-windows-1793959923) 供离线观看，尽管网飞将只允许下载精选的内容。PlayOn Cloud 让你下载所有内容。
 

@@ -4,7 +4,7 @@
 
 你多久会发现自己 [把事情拖到明天](https://lifehacker.com/how-to-motivate-yourself-to-actually-start-that-passion-1695145011) ？“明天”真的会来吗？在*解决拖延难题*中，你将了解是什么导致你拖延，它如何对你的生活产生负面影响，以及一些战胜拖延的实用方法。
 
-Watch
+
 
 *这是 Lifehacker 的* [*书评*](http://lifehacker.com/book-reviews) *系列的一部分。不是每个生活帮都能在一篇博客文章中概括，所以我们决定回顾一些我们最喜欢的改变生活的书籍，更深入地探讨生活中最重要的话题。*
 

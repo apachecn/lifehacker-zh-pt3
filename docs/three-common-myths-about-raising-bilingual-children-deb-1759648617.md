@@ -4,7 +4,7 @@
 
 到两岁时，孩子通常能说几百个单词。我的儿子亚历山大几乎能听懂两种语言的所有内容——希腊语和英语——但他只会说六个单词。像许多父母一样，我们质疑我们是否做错了什么。
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/debunking-common-myths-about-raising-bilingual-children-50592) *。*
 

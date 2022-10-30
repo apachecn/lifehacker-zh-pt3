@@ -4,7 +4,7 @@
 
 现在推特上最热门的话题之一似乎是要不要离开推特。滥用在“微博”平台上猖獗，每天我都看到有人抱怨其版主没有控制住骚扰和不良行为。作为一个多年来主要写视频游戏的人，我看到我的许多同龄人被误导的游戏玩家的暴民超越，几乎没有保护自己的手段。我也看到(或者至少读到)保守的用户相信 [他们的帖子被平台](https://www.washingtonpost.com/news/politics/wp/2018/07/26/trump-shadow-ban-tweet-a-f-a-q/?utm_term=.227629064d9e) 压制。
 
-Watch
+
 
 该公司的不作为在上周达到了顶点，它因发布仇恨言论和煽动暴力 而将散布错误信息的 Infowars 及其创始人亚历克斯·琼斯 [停职七天，这是由用户的强烈抗议引发的，他们要求该服务加入脸书、YouTube 和其他最近禁止 Infowars 进入其网络角落的数字媒体平台。Twitter 区分了完全禁止和什么都不做之间的区别，这导致了对该平台的更多绝望。没人开心。一些另类右翼和新纳粹类型的人已经通过迁移到 Gab，](https://gizmodo.com/twitter-suspends-alex-jones-for-7-days-leaves-infowars-1828351734) [这是一种迎合持有令人憎恶观点的用户的新服务，](https://www.theverge.com/2018/8/9/17671188/microsoft-gab-hate-speech-hosting-ban-deplatform) 我们不会在这里推荐它，原因很明显。
 

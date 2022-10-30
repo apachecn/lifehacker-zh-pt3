@@ -4,7 +4,7 @@
 
 据 Jezebel 报道，建筑评论博客 [McMansion Hell](http://mcmansionhell.tumblr.com/) ，该博客从房地产列表中拍摄图片，并添加诙谐而有教育意义的评论， [正在与房地产网站 Zillow](https://jezebel.com/is-zillows-claim-against-the-blog-mcmansion-hell-legit-1796481928#_ga=2.92329885.1213281168.1498493360-1297080755.1497980211) 的法律威胁作斗争，该网站要求博客作者 Kate Wagner 删除来自他们网站的所有图片。数字权利保护组织电子前沿基金会很快站出来为瓦格纳辩护。截至今天下午，Zillow 告诉 Gizmodo[他们已经放弃](https://gizmodo.com/mcmansion-hell-is-back-online-will-not-comply-with-zil-1796528085) ，但根据 EFF，瓦格纳将在未来停止使用 Zillow pictures。她一定要吗？
 
-Watch
+
 
 正如媒体法律资源中心的杰夫·赫尔墨斯(Jeff Hermes)告诉 Jezebel 的那样，Zillow 没有太多的理由——该公司对有问题的图像没有专有权，与其信件相反，瓦格纳的使用看起来很明显像是受法律保护的合理使用。
 

@@ -4,7 +4,7 @@
 
 12 月 22 日，美国总统唐纳德·特朗普(Donald Trump)给美国人民带来了一份巨大而美丽的圣诞礼物 ，他签署了一项税收计划，该计划将使大大小小的企业主受益，并在 2018 年给个体纳税人一点喘息的机会。
 
-Watch
+
 
 共和党没有兑现他们简化税法的承诺——你不可能很快就能在明信片上 [报税](https://www.nytimes.com/2017/12/16/us/politics/republican-tax-plan-simple-tax-returns.html?_r=0) ，而 [专家表示](https://twocents.lifehacker.com/what-freelancers-need-to-know-about-the-gop-tax-plan-1821019260) 商业税率的变化可能会导致更多人试图利用这个系统。但是他们确实把税收等级的数量从 7 个变成了...七、淘汰一些 [热门扣款](https://www.nytimes.com/2017/12/16/your-money/tax-plan-changes.html) 。
 

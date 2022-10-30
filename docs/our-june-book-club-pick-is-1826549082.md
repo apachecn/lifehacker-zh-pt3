@@ -4,7 +4,7 @@
 
 如果你决定加入我们的夏季书友会，六月的选择是玛丽·罗奇的 [*【斯布克:科学解决来世*](https://www.amazon.com/Spook-Science-Afterlife-Mary-Roach/dp/0393329127/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/our-june-book-club-pick-is-1826549082&asc_source=&tag=kinjalifehackerlink-20) 。
 
-Watch
+
 
 我的决定是基于你的评论和每个回复的数量和星级。这是一个艰难的选择，有很多好的建议，包括:
 

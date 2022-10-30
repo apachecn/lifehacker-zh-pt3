@@ -4,7 +4,7 @@
 
 这种情况应该很熟悉:你的 MacBook 充电器突然折断、损坏、磨损或停止工作。苹果想要 80 美元的 [来替换](https://www.apple.com/shop/product/MD592LL/A/apple-45w-magsafe-2-power-adapter-for-macbook-air?fnode=85&fs=fh%3D459d%252B2c0e%252B45d4) ，但是你在亚马逊上发现了一个山寨充电器，价格比 [低很多](https://www.amazon.com/Macbook-Charger-Connector-Adapter-Released/dp/B079LVXBSC/ref=sr_1_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/dont-replace-your-macbook-charger-with-a-cheap-knockoff-1825605569&asc_source=&ie=UTF8&keywords=macbook air charger&qid=1524851098&s=pc&sr=1-3&tag=kinjalifehackerlink-20) 。你是做什么的？
 
-Watch
+
 
 我们都遇到过这种情况，很容易选择更便宜的方案。这个建议在很多时候都是有道理的——比如，当你买 HDMI 线缆的时候。然而，仔细观察这些 MacBook 充电器内部的技术表明，如果你需要更换，支付苹果税可能是值得的。
 

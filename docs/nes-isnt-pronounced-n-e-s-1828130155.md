@@ -4,7 +4,7 @@
 
 人们怎么发音，单词就怎么发音，坚持不发音就是打一场失败的仗。这就是为什么[“giff”和“jiff”同样有效](https://lifehacker.com/lets-end-the-gif-jif-pronunciation-debate-right-now-1796419121#_ga=2.24661562.1421609258.1533563148-1297080755.1497980211) 。但对于那些关心的人来说，根据任天堂 3DS 新游戏，NES(任天堂经典娱乐系统)发音为“ness”
 
-Watch
+
 
 在 Twitter 上，游戏玩家凯尔·麦克莱恩(Kyle McLain)展示了日本版 3DS WarioWare Gold 的一个屏幕，其中将发音为“ne”和“su”的字符放在 NES 之上。因此，“nesu”是日本汉字中最接近“ness”的一个词欧洲玩家 [确认](https://www.eurogamer.net/articles/2018-08-03-nintendo-finally-confirms-how-you-pronounce-nes) 。
 

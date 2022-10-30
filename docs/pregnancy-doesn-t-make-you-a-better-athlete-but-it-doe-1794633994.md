@@ -4,7 +4,7 @@
 
 塞雷娜·威廉姆斯在赢得澳网冠军时可能已经怀孕，所以《新科学家》问 [她的怀孕是否可能对](https://www.newscientist.com/article/2128439-how-pregnancy-could-affect-an-elite-athlete-like-serena-williams/) 有所帮助——好像她之前的 [38 个主要头衔](https://en.wikipedia.org/wiki/Serena_Williams) 都是侥幸。但这是一个已经流传了一段时间的神话，所以让我们来谈谈怀孕对运动员身体的真正影响。
 
-Watch
+
 
 女人的身体 [在怀孕期间产生更多的血液](https://www.ncbi.nlm.nih.gov/pubmed/4075604) 。运动员在训练时也会发生类似的变化。有了更多的血液，你就能给你的肌肉提供更多的氧气。这是否意味着怀孕能提高成绩？
 

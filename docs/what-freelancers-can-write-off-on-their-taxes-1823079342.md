@@ -4,7 +4,7 @@
 
 如果你是一名自由职业者，减税是税收游戏的名称:如果你还没有成立公司，你可以扣除许多业务费用，以降低你的附表 C(或附表 C-EZ)中的应税收入。如果这是你第一次申报个体户税，花这笔钱预约一个 [专业](https://www.irs.gov/newsroom/tips-for-choosing-a-tax-return-preparer) 还是值得的。
 
-Watch
+
 
 预订午餐，放松一下，计划一下你下午的淋浴。真是 [*工作周*](https://lifehacker.com/c/work-from-home-week) *！无论你是在家工作一天还是整个职业生涯，Lifehacker 都会从我们的沙发和当地的咖啡店为你提供保持生产力、平衡和理智的建议。*
 

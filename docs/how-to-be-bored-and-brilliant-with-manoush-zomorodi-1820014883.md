@@ -4,7 +4,7 @@
 
 在这一集里，我们将与 WNYC 的 [节目主持人、](http://www.wnyc.org/shows/notetoself/) [*的作者*](https://www.amazon.com/Bored-Brilliant-Spacing-Productive-Creative/dp/1250124956/ref=tmm_hrd_swatch_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-be-bored-and-brilliant-with-manoush-zomorodi-1820014883&asc_source=&qid=&sr=&tag=kinjalifehackerlink-20) *[马努什·佐莫罗迪](http://www.manoushz.com/)* *对话:如何释放你最具生产力和创造力的自我* *。回到 2015 年，Manoush 想知道是否所有时间都被插在源源不断的娱乐和信息中实际上使我们的生活变得更糟。她注意到我们从不无聊——她想知道，缺乏无聊对我们有什么影响？*
 
-Watch
+
 
 Manoush 带领她的听众做了一个实验来帮助他们摆脱烦恼——并且取得了巨大的成功:参加实验后，听众们报告说感觉更有创造力和生产力，并且对他们的生活更加满意。
 

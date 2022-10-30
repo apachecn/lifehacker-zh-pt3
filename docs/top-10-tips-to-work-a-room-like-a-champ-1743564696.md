@@ -4,7 +4,7 @@
 
 无论你是去办公室参加无聊的假日聚会，还是去参加古怪邻居的家常便饭，聚会——应该很有趣——都会伴随着各种尴尬时刻和压力。这里有 10 种像冠军一样工作的方法。
 
-Watch
+
 
 ### 10.自信地进入
 
@@ -42,11 +42,7 @@ Watch
 
 如果有一种普遍令人恐惧的社交活动，那就是当你第一次和某人见面时的“闲聊”。一个人只能谈论这么久的天气。但是有了正确的态度，你可以 [把闲聊变成真正的对话](https://lifehacker.com/how-can-i-turn-small-talk-into-a-conversation-5913355) :分享小细节，问问题，直到有了头绪，然后在共同点上展开。提前准备几个话题( [福特技巧](http://lifehacker.com/use-the-ford-technique-to-make-small-talk-easier-5937348) 在这里很有帮助)，并具体回答。如果有人问你做什么有趣的事，告诉他你做过的事，而不是仅仅列出活动。最后，请记住，闲聊不必过于实质性——其核心是 [建立联系](http://lifehacker.com/small-talk-isnt-about-substance-its-about-making-conne-1717444262) 。你必须从某个地方开始！
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Tips to Work a Room Like a Champ](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-turn-small-talk-into-a-conversation-5913355) [###### 怎样才能把闲聊变成对话？](https://lifehacker.com/how-can-i-turn-small-talk-into-a-conversation-5913355) 
 
-亲爱的生活黑客，我讨厌闲聊。我从来不知道我应该深入交谈多深，而且…
-
-[Read more](https://lifehacker.com/how-can-i-turn-small-talk-into-a-conversation-5913355)</aside>
 
 ### 2.听
 

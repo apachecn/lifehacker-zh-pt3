@@ -4,7 +4,7 @@
 
 特朗普总统昨天宣布，他将在未来一周内提议对钢铁进口征收 25%的关税，对铝产品征收 10%的关税，以帮助国内制造商，这一计划似乎让在白宫工作的几乎所有人都感到惊讶。
 
-Watch
+
 
 他一这样做，道琼斯指数就下跌了 600 点，世界各地的国家 T2 说他们将对任何新的关税进行报复。所有这些导致川普宣称，实际上，“ [贸易战是好的](https://www.reuters.com/article/us-usa-trade/trade-wars-are-good-trump-says-defying-global-concern-over-tariffs-idUSKCN1GE1PM) ，”以及商务部长威尔伯·罗斯——一个 [亿万富翁](http://nymag.com/daily/intelligencer/2014/02/i-crashed-a-wall-street-secret-society.html)——出现在美国消费者新闻与商业频道，金宝汤罐和百威高杯男孩(谁知道亿万富翁喝高杯男孩？)为了让消费者放心，轻微涨价没什么大不了。按照 [美国消费者新闻与商业频道](https://www.cnbc.com/2018/03/02/wilbur-ross-tariffs-are-nbd-but-campbells-says-cans-will-cost-more.html) :
 

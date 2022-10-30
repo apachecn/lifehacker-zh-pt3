@@ -4,7 +4,7 @@
 
 信不信由你，学生贷款服务商 Navient[再次被](http://media.philly.com/documents/Pa.+v.+Navient.pdf) 起诉掠夺性贷款行为，宾夕法尼亚州司法部长乔希·夏皮罗称之为“不公平和欺骗性的”Navient 声称他们没有做错任何事情，但无论如何，这里有一些你应该知道的。
 
-Watch
+
 
 这是今年针对 Navient 提起的第四起诉讼。消费者金融保护局(CFPB) [在今年早些时候起诉他们](https://lifehacker.com/dont-take-money-advice-from-companies-that-profit-when-1794513890) 不正当的商业行为，对此纳维特 [回复](https://consumermediallc.files.wordpress.com/2017/04/gov-uscourts-pamd-110329-29-0.pdf) “服务者的角色是收取借款人所欠的款项...**不期望服务方会“从消费者的利益出发””**
 

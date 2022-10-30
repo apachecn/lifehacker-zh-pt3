@@ -4,17 +4,13 @@
 
 免费 Wi-Fi 是一笔意外之财，特别是如果你在图书馆或机场工作，或者如果你只想在手机或笔记本电脑上保存数据。尽管如此，当你出门在外时，你还是得关心安全问题 。以下是如何在任何设备上安全冲浪。
 
-Watch
+
 
 ### 10.养成良好的互联网卫生习惯
 
 除了软件和承诺保护你隐私的工具之外，也许我们能给你的第一个也是最大的建议是实践良好的互联网卫生。当您使用不安全的公共 Wi-Fi 时，避免处理(至少是在线)敏感数据。这可能是查看新闻或阅读你最喜欢的博客的好时机，但这可能不是做网上银行的最佳时机，如果你明白我的意思的话。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Ways to Stay Safe On Public Wi-Fi Networks](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/do-i-really-need-to-worry-about-security-when-i-m-using-5906233) [###### 当我使用公共 Wi-Fi 时，我真的需要担心安全问题吗？](https://lifehacker.com/do-i-really-need-to-worry-about-security-when-i-m-using-5906233) 
 
-亲爱的 Lifehacker，谈到安全，我并不傻，你们经常提到如何…
-
-[Read more](https://lifehacker.com/do-i-really-need-to-worry-about-security-when-i-m-using-5906233)</aside>
 
 当然，如果你有像我们下面提到的方法来保护自己，你可以在这方面稍微休息一下，但是记住， [你应该关心咖啡店网络上的安全](https://lifehacker.com/do-i-really-need-to-worry-about-security-when-i-m-using-5906233) 。不太可能有人偷窥，但是 [只需要一次就能导致身份盗窃](https://lifehacker.com/how-to-protect-yourself-from-online-fraud-and-identity-5858197) ，或者更糟。
 
@@ -36,11 +32,7 @@ Watch
 
 然后， [自动执行这些设置](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927) ，这样当你在家或在受信任的网络上时，你的机器是打开的，当你不在家时，它会自动切换到更安全的设置。以下是方法。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Ways to Stay Safe On Public Wi-Fi Networks](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927) [###### 如何在公共 Wi-Fi 网络上保持安全](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927) 
 
-公共 Wi-Fi 网络——如咖啡店或酒店中的网络——远没有你想象的那么安全。…
-
-[Read more](https://lifehacker.com/how-to-stay-safe-on-public-wi-fi-networks-5576927)</aside>
 
 ### 6.不使用时请关闭 Wi-Fi
 

@@ -4,7 +4,7 @@
 
 蔬菜皮、咖啡渣、玉米棒、烘干机棉绒——它们肯定都是废物，但这些垃圾中有宝藏。显而易见，你可以将它们制成堆肥，但让我们来谈谈一些更聪明的方法，在这些厨余进入垃圾箱之前再利用它们。
 
-Watch
+
 
 ### 10.把玉米棒变成美味的奶油或肉汤
 
@@ -50,11 +50,7 @@ Watch
 
 如果你的洗碗机没问题，非常感谢你，考虑把那些果皮放在你的冰箱里 [而不是](http://lifehacker.com/freshen-your-fridge-with-citrus-peels-and-salt-5221228) ，或者 [保护你的植物免受你的家庭猫科朋友](https://lifehacker.com/protect-your-houseplants-from-your-cats-with-citrus-pee-1684240739) 的伤害。最糟糕的情况是， [把它们收集起来，然后往里面抹些糖](http://lifehacker.com/rub-sugar-into-lemon-skins-for-perfect-lemonade-1490678474) 这是你尝过的最好的柠檬水/柠檬酱/柑橘酱。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Clever Ways to Repurpose Your Kitchen Scraps](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/protect-your-houseplants-from-your-cats-with-citrus-pee-1684240739) [###### 用柑橘皮保护你的室内植物免受猫的伤害](https://lifehacker.com/protect-your-houseplants-from-your-cats-with-citrus-pee-1684240739) 
 
-即使不是猫薄荷，很多猫也对植物情有独钟。保持室内植物的一种方法是…
-
-[Read more](https://lifehacker.com/protect-your-houseplants-from-your-cats-with-citrus-pee-1684240739)</aside>
 
 ### 3.用药草浸泡油或醋，或者烧烤它们以获得芳香的味道
 

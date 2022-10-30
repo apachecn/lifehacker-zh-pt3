@@ -4,7 +4,7 @@
 
 如果你不仅对如何让食物变得美味感兴趣，还对为什么某些技术和配料会这样产生效果感兴趣，那就去看看杰夫·波特的《为极客烹饪的 T4》。这本书可以帮助你开始在厨房里做实验，并且 [钻研食物科学](https://lifehacker.com/how-to-improve-your-home-cooking-with-the-power-of-scie-511405909) 成为一名更好的家庭厨师。
 
-Watch
+
 
 *这是 Lifehacker 的* [*书评*](http://lifehacker.com/book-reviews) *系列的一部分。不是每个生活帮都能在一篇博客文章中概括，所以我们决定回顾一些我们最喜欢的改变生活的书籍，更深入地探讨生活中最重要的话题。*
 

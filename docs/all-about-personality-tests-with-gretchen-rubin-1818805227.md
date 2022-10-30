@@ -4,7 +4,7 @@
 
 在这一集里，我们将谈论性格测试。你知道:那些测试会问你一些关于你的人生哲学、行为或道德的私人问题，然后告诉你你是什么样的人。他们到底透露了多少？我们想要得到它们的欲望又说明了我们什么呢？
 
-Watch
+
 
 我们将与升级版的好朋友——也是我们的第一位回头客——纽约时报最畅销作家# 1[格雷琴·鲁宾](https://gretchenrubin.com/) 。格雷琴是新书 [《四种倾向:揭示如何让你的生活变得更好(也让别人的生活变得更好)的不可或缺的性格特征》的作者。然后，我们将与 Lifehacker 的一些工作人员一起谈论我们自己在几个流行的性格测试中的结果:迈尔斯-布里格斯类型指标，它使用荣格理论来确定你的性格类型，以及黑暗三联测试，它旨在告诉你与其他人相比，你有多恶毒。制片人 Levi Sharpe 走上街头询问人们，性格测试告诉了(或没有告诉)他们关于自己的什么。](https://www.amazon.com/Four-Tendencies-Indispensable-Personality-Profiles-ebook/dp/B01MU23P0N/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/all-about-personality-tests-with-gretchen-rubin-1818805227&asc_source=&ie=UTF8&keywords=the four tendencies by gretchen rubin&qid=1506441321&sr=8-1&tag=kinjalifehackerlink-20) 
 

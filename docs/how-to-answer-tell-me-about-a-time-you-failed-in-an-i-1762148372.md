@@ -4,7 +4,7 @@
 
 虽然不是最常见的面试问题 中的 [，这个失败的问题——如果你知道的话——相当令人困惑。你该如何诚实地回答这个问题，同时又不会因为提起那次你在交易中作弊，让公司*损失了很多钱*而吓跑你未来的潜在雇主？](https://www.themuse.com/resources/how-to-answer-the-31-most-common-interview-questions-1)
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/4-steps-for-answering-tell-me-about-a-time-you-failed) *。*
 

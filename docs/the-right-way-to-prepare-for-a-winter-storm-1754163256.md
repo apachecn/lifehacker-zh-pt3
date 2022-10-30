@@ -4,7 +4,7 @@
 
 无论是本周末东海岸的暴风雪 还是任何冬季天气，现在你都应该做几件事，以确保当英寸堆积时你感到舒适。让我们来谈谈其中一些最好的，以及当空气变清时，你可以如何应对。
 
-Watch
+
 
 ### 储备牛奶和卫生纸以外的东西
 
@@ -25,21 +25,13 @@ Watch
 
 无论是在车库里还是在外面，即将被雪覆盖的时候， [你的车也需要一点爱](https://lifehacker.com/five-things-you-need-to-do-to-prep-your-car-for-winter-1672442225) 。检查你的轮胎，确保它们已经充气到合适的胎压(胎压应该列在轮胎侧面、司机侧门内侧或车主手册上)。)测试你的电池，或者去汽车配件商店——他们通常会免费为你测试电池。当道路畅通但天气仍然寒冷时，电量不足或即将耗尽的电池不会让你去工作。哦，别忘了加满油。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Right Way to Prepare for a Winter Storm](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-things-you-need-to-do-to-prep-your-car-for-winter-1672442225) [###### 为你的爱车准备过冬需要做的五件事](https://lifehacker.com/five-things-you-need-to-do-to-prep-your-car-for-winter-1672442225) 
 
-冬季通勤不舒服，但如果你不做好准备，也可能很危险。来自…
-
-[Read more](https://lifehacker.com/five-things-you-need-to-do-to-prep-your-car-for-winter-1672442225)</aside>
 
 当你在外面的时候，确保你的车的应急装备已经准备好了，替换掉任何旧的、坏的或者不能用的东西。如果你的工具包里没有急救用品或者聚脂薄膜应急毯(说真的， [这包十个是九块钱](http://www.amazon.com/Emergency-Mylar-Thermal-Blankets-Pack/dp/B000GCRWCG?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-right-way-to-prepare-for-a-winter-storm-1754163256&asc_source=&tag=kinjalifehackerlink-20) )，现在是添加它们的好时机。把铲子和/或刮冰器扔进汽车后座。*不是*后备箱——如果你的车被雪覆盖，你将无法像(可能)打开侧门拿出你需要的挖掘工具那样容易地打开后备箱。如果你需要把车开出一个刚刚挖出来的停车位，一些额外的地垫可以提供一点牵引力。
 
 如果你熟悉如何，寒冷的天气是检查你的制动液和制动器健康状况的好时机，油位(或 [只需更换你的油](http://lifehacker.com/how-to-change-your-cars-oil-1598482301) ，这并不难)，雨刷和雨刷液，燃油和空气过滤器，你知道的，工作情况。如果这超出了你的理解范围，现在可能不是深入了解的最佳时机，所以 [把你的车开到你信任的地方](http://lifehacker.com/five-ways-to-save-serious-money-on-car-repairs-1345055827) 并确保你的车况良好。哦，你出去的时候呢？ [不要开车像个混蛋](https://adequateman.deadspin.com/how-to-drive-in-the-snow-in-a-regular-ass-car-without-1681902425) 好吗？
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--deadspin" data-commerce-source="inset">[![Image for article titled The Right Way to Prepare for a Winter Storm](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://adequateman.deadspin.com/how-to-drive-in-the-snow-in-a-regular-ass-car-without-1681902425) [###### 如何在雪地里驾驶一辆普通的车而不惊慌失措](https://adequateman.deadspin.com/how-to-drive-in-the-snow-in-a-regular-ass-car-without-1681902425) 
 
-首先，一个故事。
-
-[Read more](https://adequateman.deadspin.com/how-to-drive-in-the-snow-in-a-regular-ass-car-without-1681902425)</aside>
 
 ### 检查你的房子是否有热量和空气泄漏
 

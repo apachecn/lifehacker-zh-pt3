@@ -4,7 +4,7 @@
 
 在你的日历上做好标记，准备好你的钱包——或者，如果你试图不花钱，你的网站屏蔽:亚马逊一年一度的网上交易盛会即将来临。最近有消息透露，这一切都发生在 7 月 16 日星期一。
 
-Watch
+
 
 泄漏实际上来自亚马逊自己的失误。 [据 TechRadar](https://www.techradar.com/news/amazon-prime-day-2018-date-leaked-36-hours-of-deals-start-midday-on-july-16th) 报道，他们不小心在亚马逊英国网站上发布了 2018 年 Prime Day 的广告横幅。TechRadar 在亚马逊撤下横幅之前对其进行了截屏。现在秘密已经泄露了。
 

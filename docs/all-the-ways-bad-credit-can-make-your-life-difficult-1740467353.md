@@ -4,7 +4,7 @@
 
 任何有不良信用的人都知道，这可能是一个巨大的痛苦。当然，这似乎不会对你的日常生活产生太大影响。但是，当需要买车或填写租赁申请时，糟糕的信用评分又会回来困扰你。这里有一些不良信用的缺点，以及你可以做些什么。
 
-Watch
+
 
 ### 你的有线电视、电话和互联网费用可能会更高
 
@@ -52,11 +52,7 @@ NAIC 说，这些公司检查的其实是你的“基于信用的保险评分”
 
 > 寻找最便宜的钱——最短时间内最低的年利率。范·阿尔斯特说，不要被长期低月供的承诺分散了注意力。如果你能支付的唯一方法是获得长期贷款，你可能买不起这辆车。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled All the Ways Bad Credit Can Make Your Life Difficult](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-best-credit-unions-1656438536) [###### 五大最佳信用合作社](https://lifehacker.com/five-best-credit-unions-1656438536) 
 
-如果你正在寻找一个更好的地方投资，信用合作社是一个好的选择。
-
-[Read more](https://lifehacker.com/five-best-credit-unions-1656438536)</aside>
 
 值得注意的是，你应该尽可能避免经销商融资，因为利率通常更高。
 

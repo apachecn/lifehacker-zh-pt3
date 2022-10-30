@@ -4,7 +4,7 @@
 
 你想让你的狗快乐，或者至少你想让它心满意足地咀嚼玩具，而不是消灭它——因为这样它就会转向鞋子。这里有一些给你的毁灭者的选择。
 
-Watch
+
 
 关于你可以让你的狗玩什么不是指定的“玩具”，有很多争论，但那是因为狗的口味和能力几乎和人类一样多种多样。来自 [u/omfgbecky](https://www.reddit.com/user/omfgbecky) 的一篇 [帖子](https://www.reddit.com/r/LifeProTips/comments/8yc2jd/lpt_if_your_dog_destroys_their_tennis_balls/) 在 LifeProTips 上引起了热烈的评论，他们建议用球拍球代替网球:
 

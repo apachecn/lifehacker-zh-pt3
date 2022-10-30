@@ -6,7 +6,7 @@
 
 魔术，或称*幻觉*，让我们发出“哦”、“啊啊啊”和“他们是怎么做到的？！“它们一部分是戏法，一部分是计划，还有大量的大脑混乱。你的大脑是个骗子。
 
-Watch
+
 
 在上述来自 [连线 YouTube 频道](https://www.youtube.com/channel/UCftwRNsjfRo08xYE31tkiyw) 的视频中，魔术师大卫·邝和本书的作者[](https://www.amazon.com/Spellbound-Principles-Illusion-Captivate-Audiences/dp/0062448463/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-your-brain-tricks-you-into-thinking-magic-is-real-1798707483&asc_source=&tag=kinjalifehackerlink-20)*听得如痴如醉，揭示了“7 大幻觉原理”这些原则将一个简单的手势变成了一个让人心醉神迷的魔术:*
 

@@ -4,7 +4,7 @@
 
 面试过程的每一个部分都会让人感觉脆弱。以下是我在面试中的一些想法，我敢打赌你也曾有过这样的想法:如果我第一次面试穿错了衣服，我会被无情地取笑。如果我在最后一次面试中说了一些愚蠢的话，那就完了——没有人会雇佣我。如果我的推荐信没有好评，我为这个阶段所做的所有努力都将付之东流。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/3-real-questions-hiring-managers-actually-ask-during-reference-checks) *。*
 

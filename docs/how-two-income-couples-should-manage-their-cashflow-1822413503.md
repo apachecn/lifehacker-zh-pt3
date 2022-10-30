@@ -4,7 +4,7 @@
 
 每周一，我们会通过向一些理财专家寻求建议来解决你的一个紧迫的个人理财问题。如果你有一般性的问题或金钱问题，或者只是想谈谈与 PeFi 相关的事情，请在评论中留下，或者发邮件给我，地址是 alicia.adamczyk@lifehacker.com。
 
-Watch
+
 
 本周的问题来自本杰明·布鲁尼格的电子邮件:
 
@@ -22,11 +22,7 @@ Ameriprise Financial 的财务建议战略副总裁 Marcy Keckler 说:“决定�
 
 查看这篇文章，了解更多相关信息:
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How Two-Income Couples Should Manage Their Cashflow](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-set-up-and-streamline-a-shared-budget-5918288) [###### 如何建立和简化共享预算](https://lifehacker.com/how-to-set-up-and-streamline-a-shared-budget-5918288) 
 
-亲爱的 Lifehacker，我和我的搭档想让我们的财务变得有条不紊，并创建一个共享预算，我们…
-
-[Read more](https://lifehacker.com/how-to-set-up-and-streamline-a-shared-budget-5918288)</aside>
 
 诚然，Mint(和大多数个性化的货币应用程序)对多个用户来说并不太好。这就是为什么 Park 建议关系中的每个人用他们喜欢的应用程序(如 Mint 或 Clarity Money)管理自己的财务，然后使用 Honeydue 这样的应用程序查看联合账户并设置账单提醒。在你决定如何分割账单后，尽可能多地自动化。
 

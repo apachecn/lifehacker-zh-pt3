@@ -6,7 +6,7 @@
 
 嘿朋友们， [burpee 挑战赛](https://lifehacker.com/this-june-were-going-to-do-burpees-and-like-it-1826461827) 进行的怎么样了？今天我有一些修改，如果 burpees 不同意你，或者如果你做得很好，但你想拉拢一个有疑虑的朋友，这些修改将是完美的。
 
-Watch
+
 
 我们已经讨论过你如何能 [跳过俯卧撑](https://vitals.lifehacker.com/how-to-do-the-perfect-burpee-1826642241) (这不是作弊，只是一个不同的练习)但这里还有一些修改。你会发现全国各地的人们都在健身房和客厅里做这些，但我喜欢 Jen Sinkler 将它们收集在一个视频中，并解释为什么它们有帮助以及如何做。
 

@@ -4,7 +4,7 @@
 
 Xbox Game Pass 将于今年春天在 Xbox One 上推出，它将让主机用户以每月 9.99 美元的价格访问 100 多种 Xbox One 和向后兼容的游戏。
 
-Watch
+
 
 Xbox Game Pass 不是像 PlayStation Now 那样的流媒体服务，而是类似 EA Access 的游戏下载订阅。每月支付 9.99 美元费用的用户将能够从游戏中选择，如*光环 5:守护者*、*发薪日 2* 、 *NBA 2K16* 和 *SoulCalibur II* (例子见 [微软官方公告](http://news.xbox.com/2017/02/28/introducing-xbox-game-pass/) )，直接下载到他们的系统中，并像数字购买一样玩它们。订阅者将能够以折扣价购买目录中的游戏(游戏八折，插件九折)，并将它们永久添加到他们的 Xbox 游戏库中。
 

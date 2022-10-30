@@ -4,7 +4,7 @@
 
 2016 年对于安卓粉丝来说是激动人心的一年。谷歌发布终于加入分屏模式的安卓牛轧糖，一对全新的 Pixel 手机上街，我们有没有提到 *Pokémon Go* 出来了？以下是我们今年最大的 Android 帖子和下载量。
 
-Watch
+
 
 ### [《口袋妖怪 Go 训练师高级战术手册》](http://lifehacker.com/the-pokemon-go-trainers-advanced-tactics-handbook-1784003725#_ga=1.63999215.1347662518.1465819317)
 

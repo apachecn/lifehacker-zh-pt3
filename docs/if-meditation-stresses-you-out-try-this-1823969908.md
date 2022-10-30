@@ -6,7 +6,7 @@
 
 > 对我来说，说*“我已经放弃了冥想，因为我的思想偏离了疯狂的切线”*就像说*“我已经放弃了锻炼，因为我的心率加快了，我开始呼吸困难。”*
 
-Watch
+
 
 当你开始冥想时，你可能会感觉“不好”,因为你无法在几秒钟内理清思绪。在最近 Reddit 的 [最佳栏目](https://www.reddit.com/r/bestof/comments/862o45/a_redditor_who_has_meditated_for_20_years/) 上的一篇 [帖子](https://np.reddit.com/r/leaves/comments/85u18y/some_notes_and_encouragement_on_meditation_from/) 中，隐没暗示了一种放松的方式。他们说，在你的第一周，不要试图清理你的大脑:只是坐下来听你自己的内心独白。
 

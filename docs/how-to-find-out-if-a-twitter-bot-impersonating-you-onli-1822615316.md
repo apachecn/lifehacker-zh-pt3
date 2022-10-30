@@ -4,7 +4,7 @@
 
 [推特机器人](https://lifehacker.com/how-to-spot-a-twitter-bot-1819981824) 几乎和推特本身一样历史悠久，其中不乏 [搞笑](https://twitter.com/oliviataters)[挑衅](https://twitter.com/soft_focuses) ，或者 [彻头彻尾有用的](https://twitter.com/congressedits) 。但是就像网上的其他东西一样，推特机器人的世界也有黑暗的一面，正如最近《纽约时报》的一篇报道所表明的。
 
-Watch
+
 
 这就是为什么你需要警惕 Twitter 机器人模仿者，如何找到他们，以及你可以做些什么。
 

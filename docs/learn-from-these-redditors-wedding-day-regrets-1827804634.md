@@ -4,7 +4,7 @@
 
 Redditors 在 Ask Reddit 主题“ [中分享了婚礼恐怖故事和来之不易的教训，你在婚礼当天后悔做的一件事是什么？](https://www.reddit.com/r/AskReddit/comments/905gx4/whats_the_one_thing_you_regret_doing_for_your/) “我有一个完美的婚礼，我唯一的遗憾是穿了一条非常紧身的西装裤。所以，给自己买一些有成长空间的宽松裤，用简单的方法学习这些婚礼课程。
 
-Watch
+
 
 #### 使用数字回复
 

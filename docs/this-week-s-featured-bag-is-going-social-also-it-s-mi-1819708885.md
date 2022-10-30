@@ -4,7 +4,7 @@
 
 如果你喜欢 Lifehacker 的 [特色包贴](https://lifehacker.com/here-s-what-a-photo-pro-brings-in-his-backpack-1819362864) ，你会在未来看到更多的变化。你会继续看到很棒的背包、包和公文包，里面装满了小玩意、相机、笔记本和其他有助于定义我们日常生活的文化纪念品。我们将不再仅仅从 Flickr 上下载照片(因为，老实说，我们知道这不会有好结果)，我们还会从社交媒体上分享你的特色包包照片。
 
-Watch
+
 
 只要使用#LHfeaturedBag 在 Instagram 或 Twitter 上发布您的特色包包照片，我们就会查看它。
 

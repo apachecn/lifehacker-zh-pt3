@@ -4,7 +4,7 @@
 
 好像担心的性传播疾病还不够多似的，*生殖支原体*现在正受到政府官员更严密的审查。一个英国性健康组织 [发布了新的指导方针](https://www.bashh.org/news/news/bashh-launches-new-nice-accredited-guidelines-to-help-prevent-mycoplasma-genitalium-becoming-the-next-superbug-but-funding-cuts-may-hinder-implementation/) 来阻止它成为下一个超级细菌，我们至少可以意识到它的存在。
 
-Watch
+
 
 这种细菌——简称 MG——在英国感染了大约 1%的人，2007 年的一项研究 在美国的年轻人中发现了类似的比率。这听起来可能很罕见，但它比你肯定听说过的淋病的发病率高。
 

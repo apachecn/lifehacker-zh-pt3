@@ -4,7 +4,7 @@
 
 从我记事起，目标就是我个人、职业和财务成功的核心部分。我记得甚至在小时候就设定了个人目标，比如个人暑期阅读挑战和储蓄目标，这种主动性一直延续到成年。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/how-to-create-and-succeed-at-personal-and-financial-goals-in-the-coming-year/) *上。*
 

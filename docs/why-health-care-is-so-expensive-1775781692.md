@@ -4,7 +4,7 @@
 
 当你生病的时候，你不应该在医疗和房租之间做决定。对于 25%的美国人来说，医疗费用已经不合理，而且每年都在恶化。昂贵的保险和意想不到的 [医疗费用](https://lifehacker.com/how-to-navigate-the-confusing-and-expensive-world-of-me-1765507579) 是潜在的破产门票，你几乎没有能力保护自己。
 
-Watch
+
 
 ### 不仅仅是你:医疗费用每年都在增加
 

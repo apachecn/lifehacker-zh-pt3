@@ -4,7 +4,7 @@
 
 很多时候，当一个 [通知](https://lifehacker.com/save-your-battery-and-sanity-by-modifying-your-android-1820980053) 在我的手机上弹出时，我可以在一瞬间决定我是否需要立即处理它。但我偶尔会打错电话，刷掉一个重要的提醒，让我翻遍 [Gmail](https://lifehacker.com/top-10-gmail-tips-for-power-users-1787627908) 或 [Twitter](https://lifehacker.com/280-character-tweets-are-now-available-for-everyone-1820231262) 来打出本该是快速回复的内容。
 
-Watch
+
 
 Android 已经内置了 [通知日志](https://www.howtogeek.com/242073/how-to-view-notifications-youve-dismissed-on-android/) ，但是访问起来有点太复杂，不方便日常使用。谢天谢地，有一个更简单的选择 [无通知](https://play.google.com/store/apps/details?id=com.nasahapps.unnotification) ，一个最近由 [Android Police](http://www.androidpolice.com/2018/01/19/hands-unnotification-brings-back-last-dismissed-notification/) 引起我注意的免费应用。
 

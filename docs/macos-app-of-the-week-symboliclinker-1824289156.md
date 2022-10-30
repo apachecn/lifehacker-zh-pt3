@@ -4,7 +4,7 @@
 
 正因为我们如此喜欢 Windows 上的符号链接——谢谢，[Steam Mover](https://lifehacker.com/windows-app-of-the-week-steam-mover-1824285685#_ga=2.155168696.1626577895.1522540410-396842925.1520800403)——我们将向你展示一个方便的 macOS 应用程序，它也可以让你在苹果的操作系统上设置符号链接。
 
-Watch
+
 
 这款应用名为[**symbol crenk**](https://github.com/nickzman/symboliclinker/releases)，这是一款名副其实的 macOS 开源工具。虽然它的安装有点棘手——在加载 DMG 文件时，你可能需要阅读附带的“installation instructions.rtfd”指南——但一旦你在 macOS 中将它设置为一项服务，它就非常容易使用。
 

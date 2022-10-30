@@ -6,7 +6,7 @@
 
 这是因为税收留置权将不再出现在 Equifax，Experian 和 Transunion 这三大信用机构的信用报告中。
 
-Watch
+
 
 根据美国消费者新闻与商业频道的说法，这是在消费者金融保护局 [去年建议](https://www.cnbc.com/2017/03/14/consumer-agency-leans-on-companies-to-improve-credit-reporting.html) 对该局进行改革以帮助消费者之后。“去年 7 月，信用报告公司从信用报告中删除了将近 100%的民事判决数据和大约 50%的税收留置权数据。现在他们把剩下的都去掉了。”上个月 完成的变更。
 

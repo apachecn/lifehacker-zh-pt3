@@ -4,7 +4,7 @@
 
 [周二](https://media.netflix.com/en/company-blog/interactive-storytelling-on-netflix-choose-what-happens-next) ，网飞发布了它的第一个互动故事。就像我们童年时代选择自己的冒险书籍一样，网飞的电视节目让观众选择故事的发展方向，这是有史以来最好的事情。
 
-Watch
+
 
 目前，只有一个互动故事:“书中的猫:被困在史诗故事中。”幸运的是，它很有娱乐性，写得很好，对成人和孩子都足够了。
 

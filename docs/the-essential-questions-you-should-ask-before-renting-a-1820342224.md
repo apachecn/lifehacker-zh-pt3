@@ -4,15 +4,11 @@
 
 我们都听说过标准的租房建议:测试所有的水龙头、窗户和电器。在几天内，在一天中的不同时间，多次访问这个社区，这样你就可以测量噪音水平。在大厅闲逛，问问现在的房客是否喜欢住在那里。
 
-Watch
+
 
 我不知道你怎么想，但我发现很多建议不切实际。在过去的十年里，我已经租了八套不同的公寓，包括一套我看都没看就租下的公寓，所有的租房过程都没有足够的时间让我在一段时间内回到这个社区，更不用说坐在大厅里采访房客了。在许多情况下，我不得不在五分钟的展示后决定是否要这套公寓——如果我当时不同意，他们会把它租给下一个同意的人。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Essential Questions You Should Ask Before Renting an Apartment](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/mondays-and-tuesdays-are-the-best-days-to-search-for-an-1678371529) [###### 本周早些时候搜索公寓，以获得最优惠的价格](https://lifehacker.com/mondays-and-tuesdays-are-the-best-days-to-search-for-an-1678371529) 
 
-找房子竞争激烈。根据你的策略，你可能会发现自己陷入…
-
-[Read more](https://lifehacker.com/mondays-and-tuesdays-are-the-best-days-to-search-for-an-1678371529)</aside>
 
 因此，我列出了在 5 分钟的展示中要问的问题，以获得我在更长时间的访问中要寻找的所有答案。在我最近寻找公寓的过程中，我使用了许多这样的问题，它们完全按照设计的那样工作:我让房东/物业经理分享关于租户、维护、漏洞等各种信息。
 

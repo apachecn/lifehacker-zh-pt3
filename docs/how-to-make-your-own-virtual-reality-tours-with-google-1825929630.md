@@ -4,7 +4,7 @@
 
 在将虚拟现实带给大众方面，谷歌做得比几乎任何其他公司都多，从制作廉价的纸板耳机 到让公众轻松创建和分享 [360 度照片](https://support.google.com/maps/answer/7012050?co=GENIE.Platform%3DAndroid&hl=en) 。现在，该公司为虚拟现实爱好者提供了另一种方式，即使用一款名为 [Tour Creator](https://www.blog.google/topics/education/tour-creator-schools-vr/) 的新工具。
 
-Watch
+
 
 这项服务可以让你快速创建和分享世界各地你最喜欢的地点的虚拟现实之旅，从谷歌街景和你自己的 360 度照片中提取。下面是你需要知道的开始。
 

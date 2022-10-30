@@ -4,7 +4,7 @@
 
 对于过去几年的[谷歌 Fi](https://lifehacker.com/how-to-set-up-google-project-fi-on-your-pixel-2-1819980061) 由于其 10 美元/GB 的现收现付定价方案，它一直是常规运营商的一个不错的廉价替代品。但是随着 2017 年 [无限数据回归](https://gizmodo.com/which-unlimited-data-plan-is-the-best-1792476535) ，Google Fi 看起来吸引力下降了很多。现在该公司终于开始反击了。
 
-Watch
+
 
 周三，谷歌宣布了 [账单保护](https://blog.google/products/project-fi/bill-protection/) ，这是一项结合了无限数据和 Fi 所能提供的最佳功能的新功能。以下是您需要了解的服务内容，以及它与竞争对手相比的优势。
 

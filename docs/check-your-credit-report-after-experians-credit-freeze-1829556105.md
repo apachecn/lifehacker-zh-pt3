@@ -4,7 +4,7 @@
 
 如果你在 2017 年 Equifax 臭名昭著的数据泄露事件后冻结了你在益百利的信用，请注意:根据 [NerdWallet](https://www.nerdwallet.com/blog/finance/security-flaw-at-experian-allows-easy-access-to-pin-to-unlock-credit-freeze/) 的一份报告，征信机构用于验证 pin 以解冻信用的系统存在重大安全缺陷，使人们容易受到骗子的攻击。
 
-Watch
+
 
 根据资深作家利兹·韦斯顿的报告，“Experian 的网站暴露了个人身份号码——解冻信用冻结所需的 PINs 在用户回答他们的安全问题后，给出了一个笼统的答案:以上都不是。”这意味着试图解冻自己(或其他人)信用的人甚至不需要猜测用户安全问题的答案。理论上，骗子可以利用这种变通办法解冻某人的信用，并以他们的名义开立账户。
 

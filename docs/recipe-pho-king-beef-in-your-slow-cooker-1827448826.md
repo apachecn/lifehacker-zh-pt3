@@ -4,7 +4,7 @@
 
 *欢迎来到* [***慢炖锅周***](https://thetakeout.com/tag/slow-cooker-week) *，其中*外卖*在盛夏使用它最喜欢的冷天厨房电器。*
 
-Watch
+
 
 在*的外卖*、和[我们不会把“垃圾”视为贬义词](https://thetakeout.com/gwen-s-garbage-chicken-deluxe-is-ugly-delicious-1825814466)、。对我们来说，这类似于低保家庭，将配料倒入一个锅里，打开电源，让热量发挥它的魔力。
 

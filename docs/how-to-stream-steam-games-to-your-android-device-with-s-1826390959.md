@@ -4,7 +4,7 @@
 
 我一直是 Valve Steam streaming 的粉丝，因为这意味着当你想在其他地方玩游戏时，你不必在家里或公寓里拖着你的台式电脑。虽然你的笔记本电脑可能无法在本机运行《巫师 3》,或者至少运行得不太好，但让你的游戏桌面完成所有繁重的工作，并将其输出传输到另一个设备，比如你在后院吊床上使用的三年前的笔记本电脑，会容易得多。
 
-Watch
+
 
 Valve 最近发布了适用于 Android 的 Steam Link(以及， [简称](https://gizmodo.com/apple-just-killed-the-ability-to-stream-games-from-stea-1826322634) ，适用于 iOS，直到苹果意识到它在那一周不小心关闭了 App Store 的“贪婪模式”)。我一直在玩它，Steam Link 是在 Android 智能手机或平板电脑上玩你最喜欢的 PC 游戏的一个很好的方式——在合理的范围内。虽然你肯定可以使用 Steam Link 将史诗级的*文明 VI* 比赛传输到你的智能手机上，但试图在你的 [Galaxy S9](https://lifehacker.com/how-to-get-started-with-your-brand-new-samsung-galaxy-s-1823806625) 上挖掘微型军队会让你发疯。
 

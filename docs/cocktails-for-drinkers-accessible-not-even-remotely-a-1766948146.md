@@ -4,7 +4,7 @@
 
 手工鸡尾酒运动已经变得有点激烈，尽管我不是在抱怨，但许多人都觉得它变得有点珍贵，因为有了浸剂、奇特的糖浆和本地草药酊剂。在为饮酒者准备的 [*鸡尾酒*](https://www.amazon.com/dp/1581573545?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/cocktails-for-drinkers-accessible-not-even-remotely-a-1766948146&asc_source=&linkCode=ogi&psc=1&smid=ATVPDKIKX0DER&tag=kinjalifehackerlink-20&th=1) 中，作者詹妮弗·麦卡特尼给了你需要的指导，让你“在你的厨房柜台上调制一杯好的、僵硬的鸡尾酒”，不需要搅混。
 
-Watch
+
 
 *<small>这是 Lifehacker 的</small>* [*<small>书评</small>*](http://lifehacker.com/book-reviews) *<small>系列的一部分。不是每个生活帮都能在一篇博客文章中概括，所以我们决定回顾一些我们最喜欢的改变生活的书籍，更深入地探讨生活中最重要的话题。</small>T15】*
 
@@ -55,11 +55,7 @@ Watch
 
 就口味而言，这些饮料从超甜到超干都有。我不太喜欢令人作呕的鸡尾酒，我发现用糖浆或蜂蜜(比如蜜蜂的膝盖，3 盎司杜松子酒+ 1 盎司柠檬汁+ 1 盎司蜂蜜)加糖的饮料有点多。然而，纯酒精饮料是强烈而真实的，而且份量也不适合肝脏虚弱的人。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Cocktails for Drinkers: Accessible, Not Even Remotely Artisanal Cocktails](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/when-to-shake-and-when-to-stir-a-cocktail-1586123018) [###### 什么时候摇鸡尾酒，什么时候搅拌鸡尾酒](https://lifehacker.com/when-to-shake-and-when-to-stir-a-cocktail-1586123018) 
 
-你可能认为鸡尾酒是摇还是搅并不重要，但是…
-
-[Read more](https://lifehacker.com/when-to-shake-and-when-to-stir-a-cocktail-1586123018)</aside>
 
 虽然这违背了这本书的精神，但我还是有一些异议。关于制作鸡尾酒，你可以学到的最重要的事情之一是 [什么时候摇，什么时候搅](https://lifehacker.com/when-to-shake-and-when-to-stir-a-cocktail-1586123018) 。与邦德电影教给你的相反，摇过的马提尼是一杯谎言。当你的饮料中含有糖浆、果汁或其他成分，其粘度和密度与你的酒精有很大差异时，应该保留摇晃。在这些情况下，需要额外的搅拌来帮助将成分完全结合成一种均匀的饮料。这在全酒精鸡尾酒中是不需要的，这样做会冲淡你的饮料。尽管麦卡特尼建议搅拌和过滤杜松子酒马提尼，但伏特加马提尼的说明建议使用鸡尾酒摇壶来制作“超冷饮料”相反，蜜蜂的膝盖(含有相当数量的蜂蜜)将从摇动中受益匪浅，而不是简单地“结合”并在冰上食用。
 

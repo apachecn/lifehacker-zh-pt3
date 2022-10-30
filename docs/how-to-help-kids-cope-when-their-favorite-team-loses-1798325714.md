@@ -4,7 +4,7 @@
 
 让 Deadspin 的 Drew Magary 告诉它:你孩子的 [最爱的](http://deadspin.com/tag/wyts#_ga=2.109492998.2036980742.1503338833-1066327814.1498537403) [NFL 球队烂](http://deadspin.com/tag/wyts#_ga=2.102153986.2036980742.1503338833-1066327814.1498537403) 。这意味着在即将到来的赛季中，他们几乎肯定会在某个时候拿 L。
 
-Watch
+
 
 从另一个长期受苦的维京人球迷那里听来，当谈到损失时，灾难是分等级的。尤其是毁灭性的失败，比如去年的猎鹰队在超级碗比赛中放弃了 25 分的领先优势(或者 98 年的维京人队在 NFC 中取得了一个关键进球)，对孩子来说尤其具有破坏性，因为他们还没有成熟到能够获得洞察力。
 
@@ -27,11 +27,7 @@ Watch
 
 见鬼，维京人是不败的，在我小时候的地盘上赢了几百次超级碗。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Help Kids Cope When Their Favorite Team Loses](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138) [###### 我怎样才能学到足够的体育知识来和别人交谈？](https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138) 
 
-亲爱的 Lifehacker，每个人都在办公室谈论体育。我不是特别感兴趣，但是…
-
-[Read more](https://lifehacker.com/how-can-i-learn-enough-about-sports-to-talk-to-others-1663374138)</aside>
 
 ### 指出诅咒的谬误
 

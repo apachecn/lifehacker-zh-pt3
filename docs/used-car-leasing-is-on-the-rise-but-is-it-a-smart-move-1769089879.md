@@ -4,7 +4,7 @@
 
 随着 2015 年新车销量创下纪录，行业分析师担心二手车市场会出现膨胀，更多汽车以旧换新和停租。为了帮助转移库存，丰田和 Ally Financial 等公司开始为轻度二手车提供租赁计划。
 
-Watch
+
 
 虽然租赁长期以来主要是新车的领域——事实上，这是它最大的好处之一——但越来越多的汽车制造商和金融家正在进入这个二手车租赁游戏。下面是 [*汽车新闻*](http://www.autonews.com/article/20160406/FINANCE_AND_INSURANCE/160409867/ally-captives-offer-leases-for-used-models) :
 
@@ -18,11 +18,7 @@ Watch
 
 当然，如果你是那种认为 [租赁是你所能做出的](https://jalopnik.com/here-are-four-reasons-why-leasing-a-car-is-a-horrible-1679935623) 中最愚蠢的金融举措的人，那么租赁二手车的想法听起来就更荒谬了。很多人把租赁简化为在一段时间内“租”一辆新车。然而，由于大部分的租赁付款是由影响新车最初几年的折旧构成的，所以租赁二手车可能会节省很多钱。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--jalopnik" data-commerce-source="inset">[![Image for article titled Used Car Leasing Is On The Rise, But Is It A Smart Move?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://jalopnik.com/here-are-four-reasons-why-leasing-a-car-is-a-horrible-1679935623) [###### 对于汽车爱好者来说，租赁是个糟糕的主意，这里有四个原因](https://jalopnik.com/here-are-four-reasons-why-leasing-a-car-is-a-horrible-1679935623) 
 
-汽车经销商经常从租赁中做大买卖。在它的表面上，你可以得到一个全新的，保修
-
-[Read more](https://jalopnik.com/here-are-four-reasons-why-leasing-a-car-is-a-horrible-1679935623)</aside>
 
 二手车已经遭受了最严重的贬值打击，因此在租赁期间的剩余价值差距将比新车小得多。当然，不利的一面是，在新车租赁中，转化为资金因素的利率通常要高得多，因此，二手车租赁利率可能会稍微提高支付额。
 

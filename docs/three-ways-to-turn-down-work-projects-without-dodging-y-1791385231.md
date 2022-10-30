@@ -4,7 +4,7 @@
 
 对新项目说好的好处是显而易见的。这是一个团队成员会说的话，这是一种证明你已经准备好承担新的令人兴奋的责任的方式。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/3-better-ways-to-turn-down-a-new-project-that-dont-involve-saying-no) *。*
 

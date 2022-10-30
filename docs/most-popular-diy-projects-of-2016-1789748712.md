@@ -4,7 +4,7 @@
 
 无论你是自己组装电脑还是修理房子，在 Lifehacker，自己动手的态度总是很普遍。以下是我们在 2016 年发布的最好的 DIY 指南、项目和想法。
 
-Watch
+
 
 ### [**【最新打造 Hackintosh 指南】**](http://lifehacker.com/the-always-up-to-date-guide-to-building-a-hackintosh-o-5841604)
 

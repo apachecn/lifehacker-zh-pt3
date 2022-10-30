@@ -4,7 +4,7 @@
 
 现代父母怎样才能把下一代从腐蚀性的性别和种族刻板印象中培养出来？当孩子们开始上小学的时候，性别和种族在很多方面塑造了他们的生活，这是父母可能想要阻止的。早在一年级， [女生比男生](http://science.sciencemag.org/content/355/6323/389) 更不太可能认为自己的性别成员“非常非常聪明”到三岁时，美国的白人儿童就含蓄地认可了这样一种刻板印象，即 [非裔美国人的面孔比白人面孔](http://journals.sagepub.com/doi/abs/10.1177/0956797612463081) 更愤怒。
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/combatting-stereotypes-how-to-talk-to-your-children-71929) *。*
 

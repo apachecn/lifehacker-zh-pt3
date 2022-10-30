@@ -4,7 +4,7 @@
 
 奖励爱好者，我们知道你爱你的大通蓝宝石信用卡。我们也知道你喜欢跳来跳去地使用有着极好福利的新卡，现在优步已经有了 [跃入信用卡世界](https://techcrunch.com/2017/10/25/uber-launches-a-credit-card/) ，你可能想知道它们是否值得你花时间(还有硬拉你信用报告的)。
 
-Watch
+
 
 在抵制和丑闻之间，it [对优步](https://gizmodo.com/my-uber-boycott-is-finally-paying-off-1796134295) 来说并不是最好的一年，所以闯入信用卡奖励游戏是一个大胆的举动。下面是他们如何用 11 月 2 日发布的新联名 Visa 卡吸引顾客:
 

@@ -4,7 +4,7 @@
 
 [*朱莉可儿*](https://twitter.com/joliekerr) *是一位清洁专家，建议专栏作家和《纽约时报》畅销书的作者，* [我的男朋友在我的手提包里吐了...而其他的事情你不能问玛莎](https://www.amazon.com/Boyfriend-Barfed-Handbag-Things-Martha/dp/0142196932?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-wash-your-kids-precious-stuffed-animals-1803133014&asc_source=&rawdata=[t|link[p|1799979068[a|0142196932[au|5749132966325710983[b|lifehacker&tag=kinjalifehackerlink-20) *。她的旗舰专栏“问一个干净的人”于 2011 年首次推出。*
 
-Watch
+
 
 如果你有一个孩子，他们可能有一个珍贵的填充动物玩具，一部分是玩具，一部分是朋友，一部分是餐巾。当一个孩子真的喜欢一个玩具时，他们会带着它去任何地方。很可爱，当然，但也很恶心。这意味着你将不得不在某个时候清洗这个毛绒玩具。以下是你需要知道的关于这项潜在危险任务的信息。
 

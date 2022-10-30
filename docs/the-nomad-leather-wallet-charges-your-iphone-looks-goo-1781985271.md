@@ -4,7 +4,7 @@
 
 我不喜欢组合小工具，更喜欢能做好一件事的工具，而不是一打事情做不好的工具。但是 iPhone 的 [Nomad 皮革钱包在两件事上做得非常好，既好看又实用。如果您正在寻找一种巧妙的方式来携带您的卡和现金，并在旅途中为您的手机充电，这款钱包是质量、风格和实用性的完美平衡。](http://www.hellonomad.com/products/leather-wallet) 
 
-Watch
+
 
 先前提到的 charge card[和 RoadTrip](http://lifehacker.com/the-nomad-roadtrip-is-a-usb-car-charger-and-a-battery-i-1746268120#_ga=1.121894088.27973805.1434581949) 的制造商 [又以一种更强大、完全集成的方式为您的手机充电。他们发给我们一个钱包让我们试用一段时间，我可以诚实地说，我已经找到了一个我非常喜欢的组合小工具。这款钱包有两种款式(超薄型和对折型)，由皮革制成，长期使用会受到严重冲击。用于制作钱包的缝线是预拉伸的、来自法国](http://lifehacker.com/the-chargecard-charges-your-phone-fits-in-your-wallet-507723852#_ga=1.121894088.27973805.1434581949)[Fil Au Chinois](http://www.filauchinois.com/?lang=en)的 beeswaxed 亚麻线，用于从马鞍到爱马仕等时尚品牌的所有东西。基本上，这个钱包不会很快散架，当它散架时，你会看到一个非常坚固的外观。
 

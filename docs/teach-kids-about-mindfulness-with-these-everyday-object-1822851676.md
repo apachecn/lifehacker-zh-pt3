@@ -4,7 +4,7 @@
 
 正念对儿童和成人一样强大——它可以帮助他们调节情绪，在生活变得紧张时更加冷静地应对。而是简单地告诉你的孩子“清除你的想法！”或者“活在当下！”可能只会让他们更加困惑(因此*更加*有压力)。
 
-Watch
+
 
 我们已经写了一个填充动物玩具形式的 [【呼吸伙伴】](https://lifehacker.com/use-breathing-buddies-to-teach-your-kid-self-control-1819400969) 如何让孩子们注意他们的呼吸。其他物品对他们的练习也有帮助——他们可以看到、感觉到甚至品尝到的东西。我喜欢苏珊·凯瑟·格林兰的这些正念活动，她是《T4》[*【正念的孩子】*](https://www.amazon.com/Mindful-Child-Manage-Happier-Compassionate/dp/1416583009?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/teach-kids-about-mindfulness-with-these-everyday-object-1822851676&asc_source=&tag=kinjalifehackerlink-20) 的作者，也是在线资源 [【内心的孩子】](https://www.susankaisergreenland.com/inner-kids-program/) 的创始人。它们需要你家里可能已经有的简单物品。
 

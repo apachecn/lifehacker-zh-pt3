@@ -4,7 +4,7 @@
 
 如果你不怕失败，你会在职业生涯中尝试什么？你最终会写那本短篇小说集吗？出去自己开店？说服你的经理你有资格管理一个更大的团队？
 
-Watch
+
 
 对于教师、艺术家和作家伊芙·尤因 来说，失败的可能性是整个过程的一部分。“小的失败和困惑，我认为，真的是可以产生的，”她在接受《创意独立》的采访时说，在采访中，她谈到了让你的想法引导你，划分创意时间，为名牌雇主做你并不真正想做的工作的诱惑，以及当你工作不顺心的时候，记住它可能更糟——你可能正在打包肉。她的建议是针对创意人员和作家的(尤因去年出版了 [*电动拱门*](https://www.amazon.com/Electric-Arches-Eve-L-Ewing/dp/1608468569?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/focus-on-the-idea-not-the-outcome-1822926265&asc_source=&tag=kinjalifehackerlink-20) *，*散文和诗歌的混合体)，但其中大部分可以适用于任何想要脱离他们工作的人。
 

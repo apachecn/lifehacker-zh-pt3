@@ -4,7 +4,7 @@
 
 你在职业生涯中走得越远，就越难发现——然后采取措施——你个人和职业上的缺点。这是为什么呢？你如何找出自己的弱点，然后解决它们？
 
-Watch
+
 
 *本帖原载于* [*帮侦察兵博客*](https://www.helpscout.net/blog/professional-shortcomings/) *。*
 

@@ -4,7 +4,7 @@
 
 艺电的试运行正式结束了；现在可以下载模拟人生手机版 [安卓](https://itunes.apple.com/br/app/the-sims-mobile/id1144258115?l=en&mt=8) 和 [iOS](https://itunes.apple.com/br/app/the-sims-mobile/id1144258115?l=en&mt=8) 。当你开始第一个小时，用漂亮的服装和家居饰品欺骗你的虚拟伴侣时，我恳求你:不要黑游戏。
 
-Watch
+
 
 更确切地说，不要去为 Android 搜索游戏的修改版 APK。(对不起，苹果粉丝；除非你有一个越狱设备，否则你无法在 iOS 上做太多的“黑客”操作，即使那样，这也是为你的 sim 卡采取的一个相当极端的步骤。)
 

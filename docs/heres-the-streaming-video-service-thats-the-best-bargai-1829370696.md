@@ -4,7 +4,7 @@
 
 感觉好像网飞、Hulu 和 Amazon Prime *希望*你搞不清楚他们在任何给定时间提供了多少图书。流媒体视频聚合器 [Reelgood](https://reelgood.com/) (你所有流媒体视频账户的搜索引擎和启动器)多年来一直在跟踪他们的图书馆，注意到像网飞的和 [增长](https://reelgood.com/blog/netflixs-2018-us-tv-series-catalog-grew-by-29/) 目录这样的事情。现在他们发布了一份 [分析，分析哪种流媒体服务给你带来最大的“性价比”](https://reelgood.com/blog/which-streaming-service-is-the-best-bang-for-your-buck/)——每订阅一美元最值得观看的节目和电影。
 
-Watch
+
 
 这不同于哪个服务总体上拥有最多的标题。亚马逊 Prime Video 有超过 10，000 部电影，但其中许多都是你永远不会想看的晦涩电影。Reelgood 只搜索了其用户中 2 万部最受欢迎的节目和电影，不包括任何在 IMDb 评价很差的节目和电影。从这些无废话的选择中，Reelgood 分析了哪些服务表现最好。
 

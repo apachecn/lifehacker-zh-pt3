@@ -4,7 +4,7 @@
 
 像 [地下城&龙或者探路者](http://lifehacker.com/tabletop-rpg-showdown-dungeons-dragons-5e-vs-pathfi-1785545326) 这样的桌面游戏在合适的音乐下可以令人难以置信地身临其境。这个播放列表中有你为聚会画一幅画所需要的所有音乐。
 
-Watch
+
 
 该播放列表由 Spotify 用户 [kingslayer133](https://open.spotify.com/user/kingslayer133) 管理，包含近 500 首环境音乐和器乐，完全符合幻想文艺复兴的主题。有些曲目是你可能会在客栈听到的吟游诗人演奏的那种，而另一些则是在山顶与史诗般的敌人战斗时设定的舞台。如果你正在建立一个桌面运动或者只是想在工作中放一些东西在背景中，你可以在这里找到很多很棒的曲目。
 

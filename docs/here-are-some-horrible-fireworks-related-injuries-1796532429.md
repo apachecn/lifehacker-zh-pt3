@@ -4,7 +4,7 @@
 
 又到了一年中的这个时候——我们美国人决定炸掉一些东西来庆祝我们国家的诞生。但碰巧的是，人类和爆炸并没有相处得很好——而且从来没有。
 
-Watch
+
 
 值得庆幸的是，当人类没有设法 [自杀](http://www.cbsnews.com/news/devon-staples-man-killed-shooting-firework-off-head-thought-it-was-a-dud-mom-says/) 炸东西的时候，有医生专业地在科学期刊上报告他们好奇的伤害。所以我们翻阅了《新英格兰医学杂志》,找到了一些特别好的例子来帮助你度过周末。
 

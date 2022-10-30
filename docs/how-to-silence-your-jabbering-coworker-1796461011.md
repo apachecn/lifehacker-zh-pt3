@@ -4,7 +4,7 @@
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 
-Watch
+
 
 本周，我们有一个家伙，他无法让他讨厌的同事在午休时停止和他谈论政治。
 
@@ -41,11 +41,7 @@ Watch
 
 不过，如果你愿意，我想你可以说得更好。类似于，“对不起，我不想再和你讨论这些事情了。如果你把这些事情藏在心里，我会很感激的。”或者“午休时我真的需要私人时间，所以如果你能让我做自己的事，我会非常感激。”它*会*不舒服，抱歉。但更糟糕的是？一次尴尬，不舒服的对质，还是一辈子听他胡扯？拯救你自己。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Silence Your Jabbering Coworker](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-deal-with-someone-who-constantly-rambles-1677630626) [###### 如何对付一个爱东拉西扯的人](https://lifehacker.com/how-to-deal-with-someone-who-constantly-rambles-1677630626) 
 
-一次好的谈话是关于来回的；双方都在倾听和回应。如果…
-
-[Read more](https://lifehacker.com/how-to-deal-with-someone-who-constantly-rambles-1677630626)</aside>
 
 * * *
 

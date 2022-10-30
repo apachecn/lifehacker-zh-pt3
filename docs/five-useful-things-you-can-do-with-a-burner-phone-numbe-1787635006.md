@@ -4,7 +4,7 @@
 
 当你想到“一次性”电话号码时，你可能会想到间谍和间谍。但是有很多理由普通人会想要一个一次性号码，和一些应用程序，让你创建你需要的。这里有一些方法，你可以专业地使用一次性号码，保护你的隐私，甚至杀死垃圾短信。
 
-Watch
+
 
 开始之前，你需要合适的应用程序。适用于 iOS 和 Android 的 [刻录机](http://www.burnerapp.com/) 是最受欢迎的，也是我们在本指南中参考最多的。如果 Burner 不适合你，可以考虑(iOS/Android)或者 [太](https://itunes.apple.com/app/id1029221833) (iOS)。它们都允许你创建一次性电话号码，想保留多久就保留多久(当然是收费的)，甚至可以选择电话号码所在的区号或地区，甚至是国际区号。
 
@@ -12,11 +12,7 @@ Watch
 
 一个专用的业务号总是让你看起来更专业。如果你刚刚开始自己的生意，没有座机 [列在你的名片](https://lifehacker.com/why-business-cards-still-matter-and-how-to-effectively-1651222760) 上，你正在帮助当地的政治活动，试图为你的乐队预订演出，或者你是一个自由职业者，想要一个只用于工作的号码，一个你可以打开并保持活跃的一次性号码，只要你想(或短)就很理想。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Five Useful Things You Can Do With a Burner Phone Number](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-business-cards-still-matter-and-how-to-effectively-1651222760) [###### 为什么名片仍然重要(以及如何有效地使用你的名片)](https://lifehacker.com/why-business-cards-still-matter-and-how-to-effectively-1651222760) 
 
-随着大部分业务以数字化方式进行，你可能会认为名片并不重要…
-
-[Read more](https://lifehacker.com/why-business-cards-still-matter-and-how-to-effectively-1651222760)</aside>
 
 如果您的个人号码来自其他州，则没有必要更改。你可以得到一个本地号码，当你打电话时，它不会用一个奇怪的区号来迷惑客户。如果你担心外部号码会影响你的机会，你甚至可以使用一次性热线来申请工作。
 

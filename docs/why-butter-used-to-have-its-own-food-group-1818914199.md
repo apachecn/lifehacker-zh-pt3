@@ -4,7 +4,7 @@
 
 现在的孩子都有 [MyPlate](https://www.fns.usda.gov/tn/myplate) 。在我成长的过程中，我们学习了 [食物金字塔](https://www.cnpp.usda.gov/sites/default/files/archived_projects/FGPPamphlet.pdf) 。我的父母将 grub 分为四类食物。但是回顾得更远一点，饮食建议就变得更奇怪了:在 20 世纪 50 年代早期，有七种食物，其中一种是黄油。
 
-Watch
+
 
 *欢迎来到* [***复古周***](https://lifehacker.com/tag/retro-week) ***，**在这里，我们将启动通量电容器，为您带来 20 世纪 50 年代的各种知识，从砂锅制作到防辐射防空洞建设，再到让孩子们放松和玩垃圾的乐趣。*
 

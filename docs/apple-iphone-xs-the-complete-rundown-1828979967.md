@@ -4,7 +4,7 @@
 
 在 iPhone X 发布一年后，苹果在 2018 年回归，在去年 1000 美元旗舰产品的基础上推出了多款新手机，彻底改造了其整个手机阵容:所以，向 [iPhone Xs](https://www.apple.com/iphone-xs/) 问好吧。但这还不是全部，因为今年，苹果的旗舰产品在新 iPhone Xs Max 中有了一个超大尺寸的兄弟姐妹。
 
-Watch
+
 
 和以前一样，较小的 iPhone Xs 配备了 5.8 英寸的屏幕，而新的 Xs Max 则配备了巨大的 6.5 英寸屏幕，甚至比你在 [三星 Galaxy Note 9](https://gizmodo.com/samsungs-galaxy-note-9-is-the-best-big-phone-1828348138) 上看到的屏幕还要大，两者都采用了有机发光二极管显示技术，在图片和视频中提供了额外的丰富色彩。但是对于那些害怕听起来像一个巨大设备的人来说，不用担心，因为由于更薄的边框，iPhone Xs Max 实际上与去年的 iPhone 8 Plus 大小相同。
 

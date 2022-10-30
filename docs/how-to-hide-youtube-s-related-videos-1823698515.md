@@ -4,7 +4,7 @@
 
 每次你看一个视频，YouTube 就会在侧边栏显示十几个，其中大多数比你正在看的更奇怪、更糟糕。它们令人讨厌，令人分心，它们可以 [将孩子带到不合适的视频](https://offspring.lifehacker.com/how-to-protect-your-kids-from-disturbing-fake-peppa-pi-1797768331#_ga=2.233948509.2145456661.1520867096-1297080755.1497980211) ，根据 [a *华尔街日报*测试](https://www.wsj.com/articles/how-youtube-drives-viewers-to-the-internets-darkest-corners-1518020478) ，你点击得越多，它们往往变得越极端。以下是隐藏它们的方法。
 
-Watch
+
 
 在 Chrome 上，安装 [免分心 YouTube](https://chrome.google.com/webstore/detail/df-youtube-distraction-fr/mjdepdfccjgcndkmemponafgioodelna/related?hl=en) 扩展。现在，从任何页面，你都可以轻松地关闭推荐视频的侧边栏，甚至不需要重新加载。
 

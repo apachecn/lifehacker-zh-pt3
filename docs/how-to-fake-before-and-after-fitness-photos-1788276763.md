@@ -4,7 +4,7 @@
 
 我们都看过那些人从河豚般的肚子变成令人羡慕的腹肌的变形照片。你可能会沉思，“我希望我也能得到那张‘事后’的照片。”哦，但是你可以。实际上，并没有接近那个伟大的形状。这是不诚实的，但营销人员这样做，热该死，你会看起来*精彩*。
 
-Watch
+
 
 *<small>这篇文章是我们的</small>* [*<small>恶周</small>*](https://lifehacker.com/welcome-to-lifehackers-seventh-annual-evil-week-1788085206) *<small>系列的一部分，在这里我们看到了做事的阴暗面。有时邪恶是正当的，而其他时候，知道邪恶意味着知道如何打败它。想要更多吗？查看我们的</small>* [*<small>恶周标签页</small>*](http://lifehacker.com/tag/evil-week#_ga=1.105669515.968941705.1436971740) *<small>。</small>*
 

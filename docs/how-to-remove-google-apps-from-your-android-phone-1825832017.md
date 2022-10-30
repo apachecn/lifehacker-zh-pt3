@@ -4,7 +4,7 @@
 
 Android:谷歌和 Android 通常是一揽子交易。即使三星或索尼制造了你的手机，你仍然会发现它装载了[Gmail](https://lifehacker.com/these-are-the-coolest-new-features-in-gmails-redesign-1825211681?rev=1523552250665)[Chrome](https://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393)[YouTube](https://lifehacker.com/avoid-unexpected-youtube-bing-watching-sessions-with-tu-1825275041)，以及构成 Google Play 服务的所有其他应用。但是完全“去谷歌化”你的安卓设备是可能的——尽管这句话输入起来很奇怪——尽管这并不容易。
 
-Watch
+
 
 开发者马丁·皮特(Martin Pitt)正着手这么做，将他的旧 Nexus 4 改造成一款无谷歌智能手机。他在最近的博客文章 中概述了整个过程，包括擦拭设备，安装新的基于 Android 的操作系统，以及寻找所有谷歌应用的第三方替代品。
 

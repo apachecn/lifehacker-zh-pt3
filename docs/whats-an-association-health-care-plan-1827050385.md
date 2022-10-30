@@ -4,7 +4,7 @@
 
 川普政府已经 [扩大了](https://www.dol.gov/sites/default/files/ebsa/temporary-postings/association-health-plans-final-rule.pdf) 获得协会医疗保健计划的机会，此举旨在降低医疗保险成本，但最终可能会对个人市场上的许多人产生相反的影响。
 
-Watch
+
 
 AHP 是由行业或专业协会发起的短期计划，通常由小型企业使用。新规则所做的是扩大了可以加入这些计划的人的范围，并使更多的人免于满足患者保护与平价医疗法案制定的综合保险的要求。
 

@@ -6,7 +6,7 @@
 
 地球人真的不能给你任何洞察 [我们的大按钮男孩的心态](https://gizmodo.com/donald-trump-retaliates-against-kim-jong-uns-nuclear-bu-1821724440) 在核问题上，但我们已经得到了你当谈到 [这个炸弹气旋的事情](https://earther.com/its-somehow-going-to-get-even-colder-in-the-eastern-us-1821708501#_ga=2.67320465.1853846637.1514829625-137048312.1512996823) 那是关于" [爆炸东海岸](https://www.washingtonpost.com/news/capital-weather-gang/wp/2018/01/02/monster-storm-to-blast-east-coast-before-polar-vortex-uncorks-tremendous-cold-late-this-week/?tid=sm_tw&utm_term=.b11d5580dfaf) 。”
 
-Watch
+
 
 由于来自墨西哥湾的潮湿空气与笼罩在美国东部的严寒相交，佛罗里达州北部正在降雪 [即将到来的风暴](https://jezebel.com/i-feel-explosively-intensified-by-this-dramatic-weather-1821719555) 将真正组织起来，并于今晚向大西洋中部进军，那里已经有罕见的暴风雪观察开始生效。今晚晚些时候或明天早些时候，降雪、风暴潮和强风将袭击东北部。
 

@@ -4,7 +4,7 @@
 
 我对*粉红猪小妹*很酷。Peppa 是一个迷人的不完美的猪孩子，而猪爸爸，尽管属于陈词滥调的糊涂父亲类型，却让我咯咯地笑。还有谁能抗拒乔治对恐龙先生的一根筋的执念？当我四岁的女儿要求看英国学前卡通片时，我没有太多抗议，对我来说，找到一系列剧集的最快方法是抓起 iPad，在 YouTube 上键入“粉红猪小妹”。
 
-Watch
+
 
 但是在线安全专家警告说，这不是一个很好的搜索方法。一项调查发现，YouTube 上数千个包含暴力和令人不安内容的视频是 [冒充合法的 Peppa 卡通](https://theoutline.com/post/1239/youtube-has-a-fake-peppa-pig-problem) 。据 [Engadget](https://www.engadget.com/2017/07/12/disturbing-fake-youtube-shows-fool-kids/) 报道，一项新的研究报告称，此类内容“与普通儿童节目没有区别”，并且越来越难以监管。
 

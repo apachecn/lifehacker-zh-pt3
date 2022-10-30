@@ -4,7 +4,7 @@
 
 众所周知， [我是羊皮纸](https://lifehacker.com/sunday-showdown-parchment-paper-vs-silicone-baking-ma-1797765791) 的忠实粉丝，但它的不太贵，但仍然不粘的朋友蜡纸呢？为什么会存在？你*需要*它吗？
 
-Watch
+
 
 *这是* [***成人厨房***](http://lifehacker.com/tag/the-grown-up-kitchen#_ga=2.262024973.1420464300.1505696546-949419976.1446553382) *的一部分，Skillet 系列旨在回答您最基本的烹饪问题，并填补您的家庭厨师教育中可能缺失的任何空白。*
 

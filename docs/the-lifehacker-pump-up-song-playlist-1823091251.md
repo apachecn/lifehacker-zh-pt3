@@ -4,7 +4,7 @@
 
 [我们请你分享你的振奋人心的歌曲](https://lifehacker.com/whats-your-pump-up-song-1822933480) ，这首歌让你准备好像野兽一样碾碎它，你做到了。
 
-Watch
+
 
 评论者[perfect law 00](http://lifehacker.com/1822941911)用“老虎之眼”进入状态:“在过去的 7 年里，我一直把它作为我的闹钟，它从来没有失败过。”
 

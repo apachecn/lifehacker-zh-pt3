@@ -4,7 +4,7 @@
 
 昨天，快餐连锁店 [Sonic 发布了一份声明](http://www.businesswire.com/news/home/20171004006270/en/SONIC-Drive-In-Notice-Payment-Card-Breach) 承认，在今年的一次恶意软件攻击后，客户的信用卡和借记卡信息可能被盗。我们现在知道该怎么做了，对吧？
 
-Watch
+
 
 安全专家和调查员 Brian Krebs 早在 4 月份就发现了潜在的黑客行为，当时他在一个被盗数据论坛 上发现了一批被盗的卡出售。克雷布斯报[报](https://krebsonsecurity.com/2017/09/breach-at-sonic-drive-in-may-have-impacted-millions-of-credit-debit-cards/)报:
 

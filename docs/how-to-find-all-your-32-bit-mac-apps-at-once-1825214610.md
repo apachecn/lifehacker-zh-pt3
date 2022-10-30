@@ -4,7 +4,7 @@
 
 在 [在](https://lifehacker.com/before-you-install-ios-11-make-sure-all-your-apps-will-1818553768#_ga=2.241194561.2136378967.1534789047-1757745059.1526574237) [iOS 11](https://lifehacker.com/ios-11-s-next-update-lets-you-control-your-iphone-s-bat-1822374134#_ga=2.241194561.2136378967.1534789047-1757745059.1526574237) 中从 iPhone 和 iPad 启动 32 位应用程序 之后，苹果正准备给你的 Mac 电脑同样的待遇。如果你担心你可能会无法访问一些你最喜欢的应用程序，下面介绍如何检查你电脑上运行的所有软件是否都是 64 位的。
 
-Watch
+
 
 最新版本的 macOS，[High Sierra 10 . 13 . 4](https://www.theverge.com/2018/4/12/17228374/apple-macos-32-bit-app-alert)，会让你自动知道哪些应用还在 32 位运行。下一次你启动它的时候，你会得到一个警告，说它“没有针对 macOS 进行优化”。这款应用在那之后仍然可以使用，但是未来的 Mac 更新 [可能会产生问题](https://arstechnica.com/gadgets/2018/04/apple-has-begun-notifying-macos-users-of-coming-32-bit-app-incompatibility/) 。
 

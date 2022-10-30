@@ -4,7 +4,7 @@
 
 这是最后一搏:你已经辞职，现在你和另一种生活之间的所有障碍就是这两周的通知。利用这段时间来处理细节，关注一些小细节，这样会让你更容易放下旧工作，专注于新工作。
 
-Watch
+
 
 ### 让这种转变对你的老板和同事来说尽可能容易
 
@@ -30,11 +30,7 @@ Watch
 
 搜索您想要复制或删除的图像、音乐、视频和个人文档。大多数 IT 部门会自己清理电脑，而不会检查你的个人文件，以便为下一个走进门的人准备好你的笔记本电脑。然而，如果你担心你可能会留下任何东西，至少用 CCleaner 这样的工具清理你的历史记录、浏览器书签和 cookies [。在您考虑自己擦除硬盘之前，请咨询您的 IT 部门归还笔记本电脑的最佳方式。](http://lifehacker.com/ccleaner-2-0-decrapifies-your-pc-384990)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Your Last Two Weeks: How to Leave Your Job Gracefully](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-should-i-do-to-my-work-laptop-before-i-leave-my-jo-5625313) [###### 离职前，我应该对我的工作笔记本电脑做些什么？](https://lifehacker.com/what-should-i-do-to-my-work-laptop-before-i-leave-my-jo-5625313) 
 
-亲爱的生活黑客，我很快就要离开我的工作了，我必须交出我的工作笔记本电脑。我如何能得到
-
-[Read more](https://lifehacker.com/what-should-i-do-to-my-work-laptop-before-i-leave-my-jo-5625313)</aside>
 
 大多数公司与他们的员工签订一份“”的雇佣合同，这意味着你作为工作的一部分所做的任何工作都属于你的雇主。如果你想把一些文件放入你的文件夹或者保存下来作为记录，比如你设计的一个标志或者你制作的一个演示文稿，问问你的老板你是否可以拿一些你作品的样本。他们可能会说不，但如果文件不包含机密信息或商业秘密，并且如果你要友好地离开， [他们很可能会让你这么做。](http://www.askamanager.org/2013/02/internship-wont-let-me-use-my-work-samples-in-a-portfolio.html) 
 

@@ -4,7 +4,7 @@
 
 在 iPhone 上发送办公室邮件时遇到问题？ [你下载了 iOS 11](https://lifehacker.com/here-s-why-you-should-wait-to-download-ios-11-1818525026) 吧。当然， [里面有一些 dope 升级](https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209) ，但它也是新操作系统的第一个版本，这意味着 bug。不出所料，iOS 11 中的一个软件问题导致 Exchange 电子邮件服务器无法发送和接收邮件，影响了 Outlook、Office 365 和 Exchange Server 2016 用户。好消息是，苹果最新的 iOS 更新 11.0.1 修复了这个问题，以及其他一些未指明的错误。
 
-Watch
+
 
 微软托管的电子邮件服务的用户收到的信息是“无法发送邮件”。该消息被服务器拒绝“在下载新 iOS 的第一个版本后。当然，这种感觉并不好。苹果已经在一个 [支持页面](https://support.apple.com/en-us/HT208136) 中解决了这个问题，告诉用户升级到 iOS 11.0.1。我们通常建议通过 iTunes 和有线连接进行软件更新，但是访问设置>通用>软件更新也可以让你从你的设备更新操作系统。
 

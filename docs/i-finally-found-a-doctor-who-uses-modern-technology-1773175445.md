@@ -4,13 +4,9 @@
 
 当大多数人 [找医生](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) 时，他们会试图找一个由他们的保险覆盖的人，靠近他们的家或工作单位，也许是别人推荐的。我也在寻找这些东西，但是我真正想要的——我发现很难找到——是一个使用 21 世纪工具的医生，比如电子邮件。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled I Finally Found a Doctor Who Uses Modern Technology](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) [###### 怎么才能找到好医生？](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) 
 
-亲爱的生活黑客，我刚刚改变了保险计划，我正在寻找一个新的医生。我有如此…
 
-[Read more](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213)</aside>
 
 那天，我丈夫的新主治医生通过电子邮件向他发送了首诊总结报告，并提出可以通过电子邮件进行讨论，这让我大吃一惊。医生使用电子邮件，实际上让他们的病人通过电子邮件向他们提问？当时，我的初级保健医师办公室甚至没有网站，更不用说发电子邮件或短信了。
 

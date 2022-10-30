@@ -4,7 +4,7 @@
 
 我喜欢生胡萝卜。又脆又甜，可以蘸鹰嘴豆泥或者牧场调料吃。生苹果也有类似的魅力，生红洋葱给沙拉带来快乐。我也是 [生蜂蜜](http://www.beemaid.com/honey-pasteurization) 沙砾状糖晶的粉丝。你知道这些东西有什么共同点吗？生吃它们非常健康。不像最近推测的趋势，生水。
 
-Watch
+
 
 如果你曾经露营过，你知道如果你没有自带水，你必须采取措施净化你从溪流和湖泊中舀出来的水。你可以 [通过过滤器](http://www.lifestraw.com/)[通过净化系统](https://www.rei.com/learn/expert-advice/water-treatment-backcountry.html) ，加入 [化学净水片](http://all-about-water-filters.com/ultimate-guide-to-water-purification-tablets/) ，或者 [煮沸一分钟](https://vitals.lifehacker.com/a-boil-water-advisory-means-boil-it-for-one-minute-1818659499) 。
 

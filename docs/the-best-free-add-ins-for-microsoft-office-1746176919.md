@@ -4,7 +4,7 @@
 
 你是否希望 Word 有一个百科全书，或者 Excel 可以生成一些伪数字？Office 加载项为 Word、Excel、PowerPoint 和其他 Microsoft Office 应用程序提供了这种附加功能。以下是一些您可以为 Office 2013 及更高版本安装的最方便的加载项，以充分利用您的 Office 套件。
 
-Watch
+
 
 我们之前强调了用于 Office 2013 和更早的 的 [Office 插件和应用，但从那以后微软已经将“Office 应用”重命名为“Office 插件”。现在，无论你使用的是 Office 2013 或 2016、Office Online 还是 iPad 上的 Office，都可以安装许多插件来增强 Microsoft Office。](https://lifehacker.com/seven-free-add-ins-and-apps-to-supercharge-microsoft-of-1188213368)
 

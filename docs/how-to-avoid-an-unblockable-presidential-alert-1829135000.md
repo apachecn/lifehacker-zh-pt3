@@ -4,7 +4,7 @@
 
 总统有权向美国几乎每一部手机发送不可屏蔽的短信， [这一系统的测试定于东部时间 2018 年 10 月 3 日下午 2 点 18 分](https://www.fema.gov/emergency-alert-test) 。但是即使从技术上来说你不能选择退出，还是有一些事情你可以尝试。
 
-Watch
+
 
 首先，让我们来谈谈这些到底有多不可阻挡:无线紧急警报系统是根据 2006 年的一项法律建立的，并于 2012 年开始全面运行。 [原法律](https://transition.fcc.gov/pshs/docs/emergency-information/cmas-warn-act.pdf) 规定无线运营商可以允许他们的客户屏蔽紧急警报*，除了*总统警报。
 

@@ -4,7 +4,7 @@
 
 我总是在午饭前起床，但我想成为一个真正的早起者。一只*在太阳之前起床*人。一个*每天午饭前完成 3 小时工作的*人。
 
-Watch
+
 
 *本帖原载于* [*贝儿贝丝库珀的博客*](http://blog.bellebethcooper.com/morning-person.html) *。*
 

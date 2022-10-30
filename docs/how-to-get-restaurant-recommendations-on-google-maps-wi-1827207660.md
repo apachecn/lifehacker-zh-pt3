@@ -4,7 +4,7 @@
 
 谷歌地图为你提供你要去的地方的方向，但现在它也可以指导你尝试城里所有最好的墨西哥玉米卷。
 
-Watch
+
 
 五月份在 I/O 发布的 [重新设计的探索标签](https://www.blog.google/products/maps/explore-around-town-google-maps/)[现已上线](https://www.blog.google/products/maps/now-available-new-ways-explore-google-maps/) ，为您提供吃、喝、做的个性化推荐。来自谷歌算法和人类策展人的列表可以帮助你找到该地区最好的汉堡、披萨、鸡尾酒等，如果你使用的是安卓手机，它甚至可以在你踏进家门之前猜测你有多喜欢一个新地方。
 

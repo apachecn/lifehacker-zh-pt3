@@ -4,7 +4,7 @@
 
 刚刚过去的五月，一个我非常尊敬的人大学毕业了。毕业没几天，他问了我一个很简单的问题:*如果你处在我的位置，重新从大学毕业，你会有什么不同的做法？*
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/nine-things-i-would-do-differently-for-my-finances-and-my-career-if-i-graduated-today/) *上。*
 
@@ -98,11 +98,7 @@ Watch
 
 你会发现这些关系——导师和可靠的同事——会在你的职业生涯中一次又一次地帮助你。他们会提供推荐信、正面的口碑、机会和无数的其他帮助，其中大部分你都不会直接看到。他们也往往是非常可靠的人，在关键时刻会支持你。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What I&#39;d Do Differently in My Career If I Graduated From College Today](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-the-most-of-a-mentor-and-get-ahead-in-your-1646087771) [###### 如何充分利用导师并在职业生涯中取得成功](https://lifehacker.com/how-to-make-the-most-of-a-mentor-and-get-ahead-in-your-1646087771) 
 
-有一个导师是获得经验和知识的好方法，而这并不容易从…
-
-[Read more](https://lifehacker.com/how-to-make-the-most-of-a-mentor-and-get-ahead-in-your-1646087771)</aside>
 
 ### 如果我没有与我的学习领域相关的工作，我会尽快找一份非职业的工作
 

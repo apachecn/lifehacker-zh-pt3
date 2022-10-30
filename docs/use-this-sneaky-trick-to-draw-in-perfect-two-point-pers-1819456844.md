@@ -4,7 +4,7 @@
 
 所有的绘画都是关于技巧和技能的——至少在你把艺术灵感加入其中之前是如此。当你仔细想想，技术和技巧真的只是技巧。
 
-Watch
+
 
 当我上八年级的时候，我们的艺术课以两点透视法绘制的巨幅绘画达到高潮，一排排的街区和建筑逐渐消失在地平线上成对的消失点。我们用长尺子来做这个——一个费力且令人惊讶的不完美的系统——但是无论你是一个正在画一个想象中的城市的中学生还是一个正在设计的专业建筑师， [Reddit 用户 awawawoooooo 分享了一张 gif](https://www.reddit.com/r/interestingasfuck/comments/75r4a3/great_technique_to_achieve_2_point_perspective/) 展示了一个绝妙的捷径:
 

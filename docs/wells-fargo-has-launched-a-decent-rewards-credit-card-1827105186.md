@@ -4,7 +4,7 @@
 
 看起来富国银行正试图通过推出新的奖励信用卡来赎罪(或至少获得一些新客户)。
 
-Watch
+
 
 使用 [Propel 美国运通卡](https://newsroom.wf.com/press-release/innovation-and-technology/wells-fargo-and-american-express-introduce-new-propel-card) 在旅行、交通、外出就餐和网飞、Spotify、Apple Music 和 Hulu 等流媒体服务上花费的每一美元可以获得三倍积分。最后一个类别比任何实质性的东西都更具噱头，但酒店、加油站、出租车、通行费、公共交通、餐馆和高级餐厅的三倍积分是不容忽视的。
 

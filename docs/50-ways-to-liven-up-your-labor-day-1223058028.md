@@ -4,7 +4,7 @@
 
 今天是美国和加拿大的劳动节，所以我们要好好放松一下。无论您是想利用休息时间提高工作效率、享用美食，还是只想放松放松，我们都能满足您的需求，让您的假期不会白白浪费。
 
-Watch
+
 
 ### 在后院开派对
 
@@ -26,19 +26,11 @@ Watch
 
 天气因地而异，你可能不会得到一个风和日丽的晴天。如果你必须在室内享受乐趣，你仍然有很多可用的项目。在所有我们喜欢的项目中， [造一台电脑](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 占据了首位。对于苹果爱好者来说，T5 让它成为 T7。如果你已经有了一个可信赖的桌面，考虑 [构建一个 NAS](http://lifehacker.com/turn-an-old-computer-into-a-networked-backup-streaming-5822590) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled 50 Fun Projects to Liven Up Your Labor Day](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) [###### 如何建造一台计算机:完全指南](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 
 
-从零开始构建一台计算机会为您提供满足您需求的完美机器，但它可能…
-
-[Read more](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747)</aside>
 
 当然，如果你想要更快更简单的东西，树莓派是科技 DIYer 的梦想。我们有数不清的项目， [有些简单到只需点击几下](https://lifehacker.com/seven-ready-made-raspberry-pi-projects-you-can-install-1691368805) 。查看我们的 [树莓派标签](http://lifehacker.com/tag/raspberry-pi) 了解更多创意。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled 50 Fun Projects to Liven Up Your Labor Day](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/seven-ready-made-raspberry-pi-projects-you-can-install-1691368805) [###### 七个现成的 Raspberry Pi 项目，点击几下就可以安装](https://lifehacker.com/seven-ready-made-raspberry-pi-projects-you-can-install-1691368805) 
 
-树莓派是 DIYers 的梦想，但如果你不想摆弄命令行和
-
-[Read more](https://lifehacker.com/seven-ready-made-raspberry-pi-projects-you-can-install-1691368805)</aside>
 
 如果你想玩一些游戏，你的 [桌面](http://lifehacker.com/how-to-turn-your-computer-into-a-retro-game-arcade-5835259) 或 [智能手机是一个伟大的复古街机](http://lifehacker.com/how-to-turn-your-android-or-iphone-into-a-portable-retr-5849961) (更不用说前面提到的 [树莓派](http://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192#_ga=1.140090163.127976026.1441054335) )。你甚至可以 [把它做成街机桌](https://lifehacker.com/how-to-create-the-ultimate-tech-infused-retro-arcade-co-521331796) 。如果你更喜欢模拟游戏， [看看桌面游戏混音套件](http://lifehacker.com/the-boardgame-remix-kit-combines-your-old-games-into-ne-5712114) 。它提供了大量的方法来让你放在家里的无聊的旧棋盘游戏变得有生气。只是 [确保你保持一切井井有条](http://lifehacker.com/use-a-nut-and-bolt-drawer-to-store-loose-board-game-pie-5986359) 。
 
@@ -46,11 +38,7 @@ Watch
 
 如果你想给你的电脑一个好的升级——除了日常维护 之外的[——你所需要的就是一两个很棒的下载。我们的](http://lifehacker.com/what-kind-of-maintenance-do-i-need-to-do-on-my-windows-5815256) [app 目录](https://lifehacker.com/the-lifehacker-app-directory-curates-the-best-apps-for-5803257) 和 [中有大量的 app life hacker Packs](http://lifehacker.com/tag/lifehacker-pack)，你可以在我们的 [壁纸周三存档](http://lifehacker.com/tag/wallpaper-wednesday) 中获得一些杀手壁纸。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled 50 Fun Projects to Liven Up Your Labor Day](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-lifehacker-app-directory-curates-the-best-apps-for-5803257) [###### Lifehacker 应用程序目录为您的所有设备精选了最佳应用程序](https://lifehacker.com/the-lifehacker-app-directory-curates-the-best-apps-for-5803257) 
 
-Lifehacker 的应用程序目录是一个不断维护和更新的最佳目录…
-
-[Read more](https://lifehacker.com/the-lifehacker-app-directory-curates-the-best-apps-for-5803257)</aside>
 
 如果你还没有升级到 Windows 10——或者你还没有熟悉环境——没有比现在 T3 更好的时机了。Mac 和 iPhone 用户在 OS X El Capitain 和 iOS 9 下降之前还有几天时间，但如果你等不及了，你可以 [现在试用 betas 版](http://lifehacker.com/os-x-el-capitan-and-ios-9-public-betas-are-now-availabl-1716801382) 。
 

@@ -4,7 +4,7 @@
 
 如果你是那种用吸墨纸吸干脸上汗水或油的人，你可能会想知道哪种是最好的。最贵的好吗？你应该买闻起来像花的床单吗？或者你应该干脆放弃吸油纸，而选择手帕或永远带着露珠的光泽？
 
-Watch
+
 
 像莎拉·杰西卡·帕克 [这样的名人用马桶盖来吸干](http://mashable.com/2017/06/24/toilet-seat-covers-blotting-papers-makeup-alley/?utm_campaign=Mash-Prod-RSS-Feedburner-All-Partial&utm_cid=Mash-Prod-RSS-Feedburner-All-Partial&utm_source=feedly&utm_medium=webfeeds#pwxDnxNu9Oq5) 而不是在丝芙兰花钱买高档报纸。它们是免费的替代品，但是它们如何比较呢？
 

@@ -4,7 +4,7 @@
 
 “我自己来做花！”是许多吝啬的新娘的战斗口号，但是试图在婚礼前两天安排一大束花束(并让它们看起来漂亮)并不是你想要着手的那种有趣的 DIY 项目。幸运的是，有一些便宜的花卉包装，你可以在好市多和山姆俱乐部找到它们。
 
-Watch
+
 
 是的，散装卫生纸、样品和标志性的 1.25 美元热狗交易的土地，在婚礼鲜花上有一些真正伟大的交易。( [感谢 Kitchn 指出这一点](https://www.thekitchn.com/costco-sams-club-wedding-flowers-deals-258643) )。)在好市多， [马蹄莲婚礼系列](https://www.costco.com/Calla-Lily-Wedding-Collection.product.11203466.html) 将为你提供一束新娘花束、一束小花束(用于抛掷)、两束伴娘花束、两朵胸花和四朵伴娘胸花，全部售价 199.99 美元。如果你想要更多的花——更多的颜色——你可以花 449.99 美元 购买 [20 件玫瑰和迷你卡拉婚礼系列，其中包括更多的胸花、胸花和伴娘花束，以及两个中心装饰品和给花童的玫瑰花瓣。](https://www.costco.com/20-Piece-Rose-and-Mini-Calla-Wedding-Collection.product.100223042.html)
 

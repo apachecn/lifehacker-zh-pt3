@@ -4,7 +4,7 @@
 
 政府暂时恢复了的运作，但如果国会的谈判进展不顺利，三周内可能会再次关闭。在关闭期间，政府雇员和职责根据其重要性进行划分。例如， [联邦法院不会关闭](https://assets.documentcloud.org/documents/4355355/1-17-18-Duff-Memo-Shutdown.pdf) ，但 [NASA 的 Instagram](https://www.instagram.com/nasa/) 会关闭。那么，健康和安全机构会怎么样呢？
 
-Watch
+
 
 ### 关机期间仍正常运行
 

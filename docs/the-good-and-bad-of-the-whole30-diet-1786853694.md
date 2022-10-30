@@ -4,7 +4,7 @@
 
 [Whole30](http://whole30.com/) 减肥法宣布大片食物禁止食用，并对剩下的少量食物制定了严格的规定。这意味着它会检查很多选项，比如 [、时尚饮食](http://vitals.lifehacker.com/why-fad-diets-dont-work-and-how-you-could-spot-them-1772831351) 或过于严厉而无效的。但这里也有好的一面，如果你知道自己在做什么，这可能会有所帮助。
 
-Watch
+
 
 健康饮食的主要原则是不吃乳制品、谷物、糖、酒和豆类(基本上是豆类)。)在畅销书和它们的非正式标签前身中，你都应该承诺进行整整 30 天的节食，绝对不作弊。
 
@@ -57,11 +57,7 @@ Whole30 的说明中令人钦佩的一点是，在开始之前，你要做好准
 
 看着体重秤上的数字就像坐情绪过山车:如果你瘦了半磅，你会自我感觉良好。涨了半磅，你可能会觉得自己很失败。如果你在减肥的同时锻炼并增加肌肉，体重秤上的数字可能 [隐藏了你体内正在发生的真实而奇妙的变化](https://lifehacker.com/f-k-the-scale-1683801679) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Good and Bad of the Whole30 Diet](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/f-k-the-scale-1683801679) [###### 去他妈的天平](https://lifehacker.com/f-k-the-scale-1683801679) 
 
-像其他胖乎乎的孩子一样，我被欺负了。我去了一所极客高中，在那里每个人都有他们的…
-
-[Read more](https://lifehacker.com/f-k-the-scale-1683801679)</aside>
 
 在你进行整个 30 饮食的整个时间里，你不应该踩在秤上。相反，这份食谱的作者写道，你应该关注自己的感受。毕竟，如果你觉得自己很棒，为什么要让体重秤上的数字戳破你的泡沫呢？
 

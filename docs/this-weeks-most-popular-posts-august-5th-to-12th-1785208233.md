@@ -4,7 +4,7 @@
 
 我们为 [高年级周](http://lifehacker.com/tag/senior-week) 做了一点傻事，但是 Lifehacker 在其最疯狂的时候仍然提供服务。我们参加了奥运会，准备回学校，比较了剃须俱乐部，从 Futurama 上了生活课，还提倡吃墨西哥卷饼。为什么不呢？多好的一周啊。
 
-Watch
+
 
 ## [**在聚会上喝两杯**](http://lifehacker.com/have-two-drinks-at-a-party-1784669979#_ga=1.128364172.1224299049.1454957731)
 

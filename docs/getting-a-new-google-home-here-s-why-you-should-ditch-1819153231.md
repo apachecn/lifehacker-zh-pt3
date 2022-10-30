@@ -4,7 +4,7 @@
 
 昨天，谷歌宣布了一系列新产品，从一对 [谷歌 Home 语音助手变体](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716) 到新的 [Pixel 2 和 Pixel 2 XL](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085) 智能手机。这些新的语音助手，如 49 美元的谷歌 Home Mini 和 399 美元的谷歌 Home Max，使整个家庭的音乐播放变得简单——所以你会想连接到音乐流媒体服务。 [Google Play](https://lifehacker.com/the-best-google-play-music-tips-and-tricks-you-may-not-1791559110) 希望成为所有谷歌设备的首选流媒体服务。由于增加了旨在吸引 Google Home、Chromecast 和 Android 用户的功能，这就是为什么它比 Spotify 等其他服务更值得你考虑的原因。
 
-Watch
+
 
 Spotify 相当的平台无关性，但是这项服务并没有从 iOS 和 Apple Music，或者 Android 和 Google Play Music 的结合中受益。当然，它可以在谷歌 Home 和亚马逊 Echo 等语音助手上工作，也可以在 Sonos 等公司的其他联网扬声器上工作。它在 Android 设备上的播放效果也比 Apple Music 之类的服务更好。但谷歌与自己的产品和服务的整合带来了更多的便利，与 Spotify 的优质服务一样，每月只需 9.99 美元。
 

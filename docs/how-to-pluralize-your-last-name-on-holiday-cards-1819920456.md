@@ -4,7 +4,7 @@
 
 快到万圣节了，这意味着你的节日贺卡已经迟到了。如果你要代表你自己、你的伴侣，也许还有你的孩子写你的年终信，开始考虑你的回信地址。
 
-Watch
+
 
 你是史密斯家的吗？琼斯一家？冈萨雷斯吗？不，你不是。查看 [Slate 的简单图表](http://www.slate.com/blogs/browbeat/2014/11/25/how_to_make_your_last_name_plural_on_holiday_cards_and_avoid_apostrophe.html)(via[Reddit](https://www.reddit.com/r/coolguides/comments/786v3u/how_to_make_your_last_name_plural_this_holiday/))学习如何拼写自己姓氏的复数版本。
 

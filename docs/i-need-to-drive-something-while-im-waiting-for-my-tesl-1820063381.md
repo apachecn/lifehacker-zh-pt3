@@ -4,7 +4,7 @@
 
 丹尼尔是成千上万为被大肆宣传且最近生产陷入困境的特斯拉 Model 3T3 支付定金的人之一。嗯，看起来在他有自己的车之前还需要一段时间，同时他需要一些很酷的东西。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

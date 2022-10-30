@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1827970711>
 
-Watch
+
 
 我会推荐你看《波尼塞特俱乐部》吗？这取决于你有多渴望呆在家里，因为网飞的事情看起来不太妙。最好的事情发生了，如果你天生怀疑网飞原著(谁不是呢)，是可怕的【T2 老无所依】，它将于周六上映。
 

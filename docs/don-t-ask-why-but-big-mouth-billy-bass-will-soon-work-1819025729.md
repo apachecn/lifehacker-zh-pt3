@@ -4,7 +4,7 @@
 
 在你像我一样兴奋之前，大嘴巴比利·巴斯不会取代我们熟知的 Alexa 之家的黑色圆柱体。但是现在，这个时髦的钓鱼小屋的典范终于与 Alexa 兼容了，因为人们确实需要它。
 
-Watch
+
 
 [商业内幕](http://www.businessinsider.com/amazons-alexa-billy-big-mouth-bass-2017-9?IR=T) 报道:
 

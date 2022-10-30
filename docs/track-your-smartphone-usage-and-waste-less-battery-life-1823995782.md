@@ -4,7 +4,7 @@
 
 我已经知道我对我的智能手机 上瘾了，如果你曾经心不在焉地把手伸进口袋，打开屏幕却没有意识到，你可能和我一样上瘾了。这些设备已经变得如此 [深入我们的生活](https://lifehacker.com/ten-tricks-for-checking-your-phone-less-1803137141) 以至于很难说出我们多久检查一次它们，但是一个新的 Android 应用程序可以让你挖掘数据，看看你每天到底浪费了多少时间(以及 [电池寿命](https://lifehacker.com/top-10-ways-to-improve-the-battery-life-on-your-phone-a-1725843518) )。
 
-Watch
+
 
 [手机使用监控](https://play.google.com/store/apps/details?id=com.ryosoftware.phoneusagemonitor) 有两个主要功能。第一个叫做应用程序使用统计，做了一个非常简单的工作，跟踪你检查手机应用程序的频率。它可以显示你每天在脸书和推特上浪费了多少时间——可能比你意识到的还要多。
 

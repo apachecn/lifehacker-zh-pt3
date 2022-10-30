@@ -4,7 +4,7 @@
 
 [MoviePass](https://lifehacker.com/the-moviepass-tips-you-need-to-know-1822731444) 在财务层面上从来没有真正意义上的，但一项独立审计(via [Variety](http://variety.com/2018/film/news/moviepass-mitch-lowe-1202756923/) )表明，该公司的状况可能比我们想象的还要糟糕。如果你正在使用这项服务——或者正在考虑注册——你应该在为时已晚之前充分利用这项好得令人难以置信的服务。
 
-Watch
+
 
 MoviePass 的母公司 Helios & Matheson 在 2017 年亏损 1.508 亿美元(一年前仅为 740 万美元)，尽管收入实际上略有增长。审计称这是一个“日益增长的担忧”，并质疑 MoviePass 是否能继续亏损。另一方面，该公司表示，它有足够的资金生存下去，并预计到 2019 年 实现盈利。
 

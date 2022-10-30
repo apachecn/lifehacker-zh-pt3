@@ -4,7 +4,7 @@
 
 Addyi 是一种新的增强女性性欲的药丸。根据制造商的研究，它可以让一些(但不是全部)每天服用的女性恢复健康的性欲。但是这种药很贵，而且有可怕的副作用。那么 Addyi 值得吗？
 
-Watch
+
 
 [Addy](https://www.addyi.com/)，(读作 [娃娃](http://www.americangirl.com/shop/dolls/addy) 之类的“Addy”)是 flibanserin 的商品名，由 [萌芽制药](http://www.sproutpharma.com/)[vale ant](http://www.valeant.com/)的一个部门生产。Addyi 在争议中于 8 月获得批准，并于 10 月上市。FDA 之前已经拒绝了它两次，因为它的益处很小，风险很大。
 

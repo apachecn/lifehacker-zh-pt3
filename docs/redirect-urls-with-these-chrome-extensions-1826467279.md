@@ -4,7 +4,7 @@
 
 如果你是 Chrome 超级用户，你最终会想要设置一个自动 URL 重定向。也许你想 [在一个极简主义的网站](https://lifehacker.com/automatically-open-youtube-links-in-an-uncluttered-view-1825389630) 上看你所有的 YouTube 视频；也许你喜欢——或者讨厌——去一个网站的移动版本。也许你只是每次输入某个网址都犯同样的错别字。有许多用于重定向 URL 的 Chrome 扩展，每一个都有它的长处。我们找到了两个最好的选择:简单的和强大的。
 
-Watch
+
 
 ## 新手
 

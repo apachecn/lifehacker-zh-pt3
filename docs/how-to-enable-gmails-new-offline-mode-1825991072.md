@@ -4,7 +4,7 @@
 
 几周前，谷歌 [宣布了对 Gmail](https://lifehacker.com/here-are-the-major-new-features-google-added-to-gmail-t-1825522973) 的大量更新和调整，包括离线时阅读和回复邮件的功能。许多变化是在《T4》直播时做出的，但是离线模式还没有完全准备好——直到上周。上周，在谷歌 I/O 公司的年度开发者大会上，谷歌正式向 Gmail 用户提供离线模式。
 
-Watch
+
 
 下面就来试一试:
 

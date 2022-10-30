@@ -4,7 +4,7 @@
 
 玩具反斗城，这个孩子们曾经拥有一切“从自行车、火车到电子游戏”的地方，正在关闭其五分之一的门店，即大约 180 家商店[。债务、销售额下降、在疲惫不堪的父母只需在亚马逊上点击一下就能买到芭比城堡的时代，未能建立强大的在线业务——这一切都在玩具零售商的灭亡中发挥了作用，该零售商于去年 9 月申请破产。](https://www.bloomberg.com/news/articles/2018-01-24/toys-r-us-to-shut-about-180-stores-in-bid-to-exit-bankruptcy?cmpid=socialflow-twitter-business&utm_content=business&utm_campaign=socialflow-organic&utm_source=twitter&utm_medium=social) 
 
-Watch
+
 
 周二，该公司提交了法庭文件，概述了在其重组期间关闭一批玩具反斗城和婴儿反斗城商店的计划。看看你当地的店铺有没有上榜，是由*今日美国*T5】发布的 [。根据](https://www.usatoday.com/story/money/business/2018/01/24/see-if-your-toys-r-us-store-closure-list/1060761001/) [慈父般的](https://www.fatherly.com/news/toys-r-us-is-closing-up-to-182-stores/) 报道，停业销售将从二月持续到四月，所以请留意一些大减价。
 

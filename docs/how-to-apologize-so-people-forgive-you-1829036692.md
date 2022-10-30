@@ -4,7 +4,7 @@
 
 最好的道歉来自真正的自我反省和理解。你做错了什么，你知道为什么它是错的，你想做一些更好的改变。这并不意味着听到的人会接受你和解的姿态。
 
-Watch
+
 
 生活中有些时候，你需要有人接受你的道歉，这样你们才能继续前进，但是他们不想。可能是他们认为你的道歉不真诚，或者他们不想原谅。在其中一些场景中，最好耐心一点，但是 Reddit 用户[u/CyberneticPanda](https://www.reddit.com/user/CyberneticPanda)开始了一个 [线程](https://www.reddit.com/r/LifeProTips/comments/9fb7hi/lpt_if_you_make_a_mistake_admit_to_the_mistake/) 关于他们如何试图马上进入正题:
 

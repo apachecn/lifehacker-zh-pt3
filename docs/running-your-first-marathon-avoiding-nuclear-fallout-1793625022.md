@@ -4,7 +4,7 @@
 
 本周，我们关注了美国参议院投票反对互联网隐私的实际意义，了解了鲜为人知的不新鲜大米的危险，为实际核战争的最坏情况做好了准备，等等。好的一面是，有新的网飞电影。一切都很好！
 
-Watch
+
 
 ## [**参议院刚刚投票通过让网络提供商出售你的网络历史**](http://lifehacker.com/senate-votes-to-let-internet-providers-sell-your-web-hi-1793574677)
 

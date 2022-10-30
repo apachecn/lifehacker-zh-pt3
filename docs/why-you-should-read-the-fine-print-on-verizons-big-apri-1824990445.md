@@ -4,7 +4,7 @@
 
 这是交易。关于即将到来的 [威瑞森晋升](http://www.anrdoezrs.net/links/8335291/type/dlg/sid/kinjadeals-breakout /https://www.verizonwireless.com/) 有很多媒体报道。从明天开始，威瑞森将提供一些有趣的交易，你可以利用这些交易以低廉的价格买到一部旗舰智能手机。然而，对于你的特殊情况，它们可能不是最好的交易。原因如下。
 
-Watch
+
 
 ### 威瑞森疯狂的 4 月 5 日交易
 

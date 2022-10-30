@@ -4,7 +4,7 @@
 
 10 月 4 日，谷歌的 [Pixel 2](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085) 活动进行了一个多小时，产品管理高级总监塞布丽娜·埃利斯(Sabrina Ellis)做了一件不同寻常的事情: [她捏了捏新智能手机](https://www.youtube.com/watch?v=5mdk5oz6l3w) 。然后，她没按任何按钮，说了句“自拍”，把手机举在空中，和挤满人的会议室拍了一张合影。
 
-Watch
+
 
 该公司昨天与一系列新设备 一起发布的 Pixel 2 并不是第一款被设计为挤压的设备。今年夏天，在谷歌收购这家台湾公司的移动部门之前，HTC 在其 U11 智能手机上尝试了同样的事情。但是具有“边缘感知”功能的 U11 被 [认为是无用的噱头](https://www.theverge.com/2017/6/9/15767832/htc-u11-review-smartphone) ，而 Pixel 2 稍微改名为“主动边缘”实际上可能非常有用。
 

@@ -4,7 +4,7 @@
 
 既然你知道什么是清醒梦，你也知道它的好处和风险，是时候给它一个坚实的尝试了。准备好，oneironauts——我们就要卸下训练轮了。欢迎来到 Lifehacker 第三周的 [**清醒梦工作坊**](http://lifehacker.com/tag/lucid-dream-workshop) 。
 
-Watch
+
 
 ### **如何准备和诱发清醒梦**
 

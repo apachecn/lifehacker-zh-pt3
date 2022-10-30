@@ -4,7 +4,7 @@
 
 去年，苹果将 [高级截图编辑工具](https://lifehacker.com/how-to-get-the-most-out-of-ios-11s-new-screenshot-edito-1818696949) 带到了搭载 [iOS 11](https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209) 的 iPhone 上，而本周，谷歌用一个类似的 Android 功能“标记”进行了回击。唯一的问题是，这款新工具仅限于今年晚些时候推出的 [Android P](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465) ，但可能不会用于大多数旧的 Android 设备。谢天谢地，已经有一种(非官方的)方法可以给你现在的智能手机添加标签了。
 
-Watch
+
 
 这个变通方法来自于 [XDA 论坛用户 Quinny899](https://forum.xda-developers.com/android/apps-games/app-google-markup-android-p-arm64-t3760345) ，他复制了谷歌的标记工具，并将其作为旧版本 Android 的应用程序发布。你现在只需要做一点点工作，就可以把软件下载到你的手机上。请记住，您正在您的设备上安装未安装的第三方软件，因此可能会有一点问题。你可能也应该先备份你的智能手机，以防出错。
 

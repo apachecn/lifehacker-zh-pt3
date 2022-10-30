@@ -4,7 +4,7 @@
 
 几个月来，三星一直在 [Galaxy S8 和 Galaxy S8 Plus](https://lifehacker.com/how-to-disable-the-bixby-button-on-your-galaxy-s8-or-no-1819043354) 上测试 [Android 8.0](https://lifehacker.com/heres-when-android-8-0-oreo-is-coming-to-your-current-p-1820786391) 的 [公司宣布](https://www.sammobile.com/news/galaxy-s8-android-8-0-oreo-beta-program-ends-january-15-2018/) 将于 1 月 15 日结束 beta 测试，但你可以通过现在安装泄露的版本提前一周获得正式版本。
 
-Watch
+
 
 上周末，最终版本出现在 Reddit 上 [，它似乎对大多数人来说工作得很好。下面是你需要知道的让它运行的事情，以及 Android 8.0 实际上会给你的 Galaxy S8 或 S8 Plus 带来什么。](https://www.reddit.com/r/GalaxyS8/comments/7o4cq7/official_oreo_ota_cra1_is_up_snapdragon_only/?sort=new&st=jc6ewbph&sh=ab380d03)
 

@@ -4,13 +4,9 @@
 
 “感受燃烧！”是一个经常重复的提示，让锻炼者比平时更努力、更持久地锻炼。很多人喜欢这种不舒服的感觉，但是根据不同的情况，这种“烧伤”并不总是一个好的或有效的锻炼的可靠指标。这是怎么回事，为什么“感觉燃烧”被高估了。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled &quot;Feel the Burn&quot; Is Bad Fitness Advice](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/three-common-fitness-traps-to-avoid-and-what-to-do-ins-1680448743) [###### 要避免的三个常见健身陷阱(以及应该怎么做)](https://lifehacker.com/three-common-fitness-traps-to-avoid-and-what-to-do-ins-1680448743) 
 
-本杰明·富兰克林曾经说过，生命中有三件事是不可避免的:死亡、纳税和太多…
 
-[Read more](https://lifehacker.com/three-common-fitness-traps-to-avoid-and-what-to-do-ins-1680448743)</aside>
 
 ## **不要怪乳酸**
 

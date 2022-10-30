@@ -4,7 +4,7 @@
 
 我认为这是为了吸引某种人群，Applebee's 在整个 12 月都以一美元的价格提供长岛冰茶——他们已经将其更名为“Dollar L.I.T .”。
 
-Watch
+
 
 [根据](https://www.prnewswire.com/news-releases/applebees-has-1-long-island-iced-tea-the-entire-month-of-december-300563881.html) 的新闻稿，这款“粉丝最爱的鸡尾酒”包含“一种美味的新混合伏特加、朗姆酒、杜松子酒、龙舌兰酒、三秒钟和甜的&酸味混合可乐。”作为一个花了相当多时间看她的室友在佛罗里达州苹果蜂的清水酒吧唱游艇摇滚卡拉 ok 的人，这次促销似乎与苹果蜂的经历非常一致。
 

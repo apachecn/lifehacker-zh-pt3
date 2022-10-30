@@ -4,7 +4,7 @@
 
 上次《西部世界》播出时，我们有了一位不同的总统。该剧第二季终于在本周日回归，因此*西部世界*播客工业综合体颤抖着回归。在第一季中，赫芬顿邮报统计了 28 个 [该死的*西部世界*播客](https://www.huffingtonpost.com/entry/a-whole-lot-of-westworld-podcasts_us_5804fe8be4b0162c043d3167) ，从那以后更多的播客开始出现。当这些节目变得敏感时，我们就完蛋了。这里是最好的。
 
-Watch
+
 
 (注意:尽管现在 Lifehacker 上有很多广告，但这不是一个赞助帖子！我们就像 [播客](https://lifehacker.com/the-lifehacker-staffs-favorite-podcasts-1818732510) 和 [*西部世界*](https://lifehacker.com/what-to-read-after-youre-done-with-any-book-movie-gam-1823364786) 。)
 

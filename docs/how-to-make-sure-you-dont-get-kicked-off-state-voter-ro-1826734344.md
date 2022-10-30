@@ -4,7 +4,7 @@
 
 今天，最高法院 [裁定支持俄亥俄州积极清除](https://www.nytimes.com/2018/06/11/us/politics/supreme-court-upholds-ohios-purge-of-voting-rolls.html?action=Click&contentCollection=BreakingNews&contentID=67125491&pgtype=Homepage) 选民名单。基本上，他们说一个州可以“取消”人们的投票资格，如果他们跳过几场选举，并且没有回应州选举官员的通知。以下是你如何确保这种事情不会发生在你身上。
 
-Watch
+
 
 澄清一下，实际上 [违反了美国联邦法律，因为“某人未能投票”而将某人从选民名单](https://www.law.cornell.edu/uscode/text/52/20507) 中删除，但从技术上讲这不是这里发生的事情。有 [多种原因可以将你从选民名单上删除](https://www.npr.org/2016/04/20/474990269/why-voters-are-removed-from-the-rolls-explained) ，但是最高法院已经决定 的是，如果他们在最近的选举中没有投票，选举官员可以向他们怀疑已经转移*的选民发送确认通知。因此，俄亥俄州和其他州不能仅仅因为人们没有投票就清除选民名单，但他们可以发送确认通知，然后清除没有回应的选民——这是俄亥俄州正在积极做的事情。*
 

@@ -4,7 +4,7 @@
 
 谷歌正处于推出 Pixel 3 和 Pixel 3 XL 的风口浪尖(我们推测)，更多的 Pixel 智能手机意味着更多的设备将遭受跌落、坠落、浸入液体以及 [谁知道还有什么](https://www.youtube.com/watch?v=aYQSWB2EyzY) 。
 
-Watch
+
 
 为了帮助维修，谷歌终于为 Pixel 设备创建了一个官方维修服务。被称为 [维修中心](https://store.google.com/repaircenter) 的谷歌服务涵盖了保修期内和保修期外的损坏，其网站甚至提供了针对较小问题的快速修复和故障排除解决方案的便捷列表。
 

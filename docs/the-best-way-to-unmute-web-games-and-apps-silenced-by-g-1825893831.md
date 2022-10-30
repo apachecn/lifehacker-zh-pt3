@@ -4,7 +4,7 @@
 
 谷歌对 Chrome 的最新更新对浏览器如何处理自动播放视频进行了重大改变，但它现在导致了各种网络应用和游戏的大量音频问题。
 
-Watch
+
 
 对于大多数人来说，谷歌的改变是很好的修复——视频仍然可以播放，但 Chrome 默认情况下会静音。随着 [Chrome 学习你的习惯](https://lifehacker.com/mute-most-autoplay-videos-with-the-latest-chrome-update-1825354497#_ga=2.6151792.2130151020.1525698930-3846207152.1521480874) ，当你访问你积极参与的网站时，它让视频自动播放声音，这个问题 [如果你讨厌被噪音惊到，你仍然可以手动解决](https://lifehacker.com/how-to-stop-google-chromes-new-update-from-autoplaying-1825741782#_ga=2.6151792.2130151020.1525698930-3846207152.1521480874) 。
 

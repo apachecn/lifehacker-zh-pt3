@@ -4,7 +4,7 @@
 
 忘记阿拉莫吧——圣安东尼奥还有什么好的？我们已经把你的城市改成了 [【休斯顿】](https://lifehacker.com/the-best-houston-tips-from-our-readers-1820803615) 和 [奥斯汀](https://lifehacker.com/the-best-austin-tips-from-our-readers-1822195747) ，但圣安东尼奥是美国第七大城市，每年接待超过 3000 万游客。如果这些访问者只是点击量最大，他们会错过什么呢？
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

@@ -4,7 +4,7 @@
 
 人们谈论工作与生活的平衡，好像实现它是幸福的关键。 [招数](https://www.themuse.com/advice/5-ways-to-reset-your-worklife-balance-when-youre-crazy-busy) 比比皆是。但是这种所谓的黄金券有两个大问题。首先，这句话表明工作不是你生活的一部分，它是独立的。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/embracing-this-concept-will-bring-you-way-more-longterm-happiness-than-worklife-balance) *。*
 

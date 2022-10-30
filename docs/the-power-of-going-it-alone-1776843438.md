@@ -4,7 +4,7 @@
 
 我喜欢一个人做事情——吃晚餐、 [、玩游戏](https://lifehacker.com/board-games-that-are-super-fun-to-play-solo-1770363470) 、看电影——但对一些人来说，这个想法似乎令人沮丧、悲伤，或者只适合没有人陪伴的人。那是胡说八道。独自做事会让你变得自给自足，给你时间进行诚实的反思，并迫使你学会喜欢自己一点——或者至少弄清楚为什么你不喜欢自己。
 
-Watch
+
 
 ### **你永远不会无缘无故错过精彩的经历**
 
@@ -34,11 +34,7 @@ Watch
 
 然而，平衡就是一切。自在地活在自己的皮囊里，独自一人，并不意味着你不能享受与他人相处的时光。这也不意味着将自己与世界隔绝。我可能喜欢独处的时间，但我仍然会看到我的朋友们玩游戏，聊天，看*权力的游戏。我每周三都会去跑步俱乐部，当我一个人出去的时候，我会和其他人进行友好的交谈。事实上，单干已经 [帮我培养了社交能力](https://lifehacker.com/how-can-i-turn-small-talk-into-a-conversation-5913355) 。遇到和你不一样的人很好，所以去领略一下你圈子之外的世界吧。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Power of Going It Alone](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-turn-small-talk-into-a-conversation-5913355) [###### 怎样才能把闲聊变成对话？](https://lifehacker.com/how-can-i-turn-small-talk-into-a-conversation-5913355) 
 
-亲爱的生活黑客，我讨厌闲聊。我从来不知道我应该深入交谈多深，而且…
-
-[Read more](https://lifehacker.com/how-can-i-turn-small-talk-into-a-conversation-5913355)</aside>
 
 也就是说，我也喜欢自己稍微隐居的时候。我们有时都需要脱离这个世界，但这都是精心设计的平衡行为。你不应该把所有的时间都花在与人相处上，但你也不应该把所有的时间都封闭起来。我们都需要社交，但不要让它成为拐杖。
 

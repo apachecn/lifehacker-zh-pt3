@@ -4,7 +4,7 @@
 
 本周早些时候， ，Evernote 宣布其订阅费用越来越贵，免费用户现在仅限于两台设备。对于现有用户的分数，这一点点限制和价格上涨是一个很大的痛苦。谢天谢地，你还有其他选择。
 
-Watch
+
 
 在你离开 Evernote 之前，你会想选择哪种管理笔记和剪报的新工具最适合你。你在这里有几个可靠的选择:对大多数人来说最明显的选择是 [微软的 OneNote](https://www.onenote.com/) ，它在大多数功能上与 Evernote 针锋相对。如果你是一个完全在苹果生态系统内的苹果忠实用户，那么 [苹果笔记](https://support.apple.com/kb/PH12081?locale=en_US) 是一个令人惊讶的强大选择。或者，如果你不使用 Evernote 的花哨功能，你可以使用 [类似于纯文本](http://lifehacker.com/i-still-use-plain-text-for-everything-and-i-love-it-1758380840) 的东西，或者如果你希望以可搜索的格式转储大量长格式笔记，你可以使用 [Google Drive](https://www.google.com/drive/) 。
 

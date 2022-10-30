@@ -4,7 +4,7 @@
 
 这个桌面来自我们的 [Flickr 桌面展示和展示照片池](https://www.flickr.com/groups/lifehacker-desktop-showandtell/) ，它是一个很好的例子，说明有时忙碌和动态的桌面很棒，而其他时候简单和图标化的桌面也很棒。如果你喜欢这个外观，这里是你需要设置它。
 
-Watch
+
 
 如果你不知道的话，那是窗户下面，这意味着雨量计是当时的工具。如果你对它不熟悉， [我们的](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 雨量计入门指南会帮你找到方向。
 

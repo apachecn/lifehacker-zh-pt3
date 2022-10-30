@@ -4,7 +4,7 @@
 
 Amazon Echo、Amazon Tap、Amazon Essentials——这些都是显而易见的亚马逊系列，你可以在与知名品牌进行比较时从中挑选。但是亚马逊有一些新的、不太为人所知的通用标签，你可能会在没有意识到的情况下购买。
 
-Watch
+
 
 2017 年，亚马逊元素做得相当好， [根据](http://www.cpcstrategy.com/blog/2017/07/amazons-private-label-brands/) CPC 策略，向有需求的公众出售更便宜的婴儿湿巾和电池等东西。但是 Quartz [发现](https://qz.com/1039381/amazon-owns-a-whole-collection-of-secret-brands/) 亚马逊在美国专利商标局拥有的 800 个商标中，有 19 个与有 Amazon.com 页面的产品有关，但不一定是亚马逊生产的:
 

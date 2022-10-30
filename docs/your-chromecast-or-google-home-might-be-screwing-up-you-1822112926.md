@@ -4,7 +4,7 @@
 
 据报道，谷歌主页和 Chromecast 设备正在扼杀人们的无线网络。这个问题， [首先由 Android Police](http://www.androidpolice.com/2018/01/14/google-home-max-appears-killing-wifi-networks/) 报告，最初似乎局限于 [Google Home Max](https://gizmodo.com/the-google-home-max-almost-made-my-house-go-boom-1821464329) 扬声器和廉价但通常很优秀的 TP-Link Archer C7 路由器的用户。然而，自从 Android Police 首次报告这个问题以来，它似乎已经蔓延到其他谷歌设备和 TP-Link 路由器。
 
-Watch
+
 
 TP-Link 很快就修复了最初的问题，如果你拥有 Archer C7 路由器，你应该用这个 [beta 固件](http://www.tp-link.com/us/faq-2050.html) 更新它。然后更多的投诉，与 Archer C7 路由器无关，甚至具体到 Google Home Max 音箱，开始在 [Google 产品论坛](https://productforums.google.com/forum/#!msg/googlehome/MmnsVnSxdQc/qBJF2KJ1AQAJ) 上弹出。
 

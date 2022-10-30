@@ -4,7 +4,7 @@
 
 生产力不仅仅是完成事情。从本质上来说，它是关于对你的时间的足智多谋。在最近一次对作者查尔斯·杜希格 的采访中，他告诉我们，“你可以整天忙忙碌碌，却什么重要的事情也做不了。生产力就是完成重要的事情。”在他的新书中， [*更聪明更快更好，*](https://www.amazon.com/Smarter-Faster-Better-Productive-Business-ebook/dp/B00Z3FRYB0?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/smarter-faster-better-how-to-apply-the-science-of-prod-1784777880&asc_source=&tag=kinjalifehackerlink-20) 杜希格探讨了生产力的这种更全面的含义以及如何实现它。
 
-Watch
+
 
 *<small>这是 Lifehacker 的</small>* [*<small>书评系列</small>*](http://lifehacker.com/tag/book-reviews#_ga=1.195940268.1268082208.1431441811) *<small>的一部分。不是每个生活帮都能在一篇博客文章中概括，所以我们决定回顾一些我们最喜欢的改变生活的书籍，更深入地探讨生活中最重要的话题。</small>T15】*
 

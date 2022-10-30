@@ -4,7 +4,7 @@
 
 如果你的妇科医生在过去拒绝了你的宫内节育器的请求，那么可能是时候再做一次尝试了——或者换一个医生。旧的规则说，从未生育过的妇女不应该得到宫内节育器。几年前，这种情况发生了变化，医生们慢慢明白了这一点。
 
-Watch
+
 
 一个 [宫内节育器](https://bedsider.org/methods/iud) ，或称宫内节育器，是一种几乎万无一失的避孕方法，对许多女性来说是一个极好的选择。连 [美国儿科学会](https://www.aap.org/) 都说它 [应该是想要避孕的青少年的一线选择](http://pediatrics.aappublications.org/content/pediatrics/early/2014/09/24/peds.2014-2299.full.pdf) 。
 

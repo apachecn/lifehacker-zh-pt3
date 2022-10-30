@@ -4,7 +4,7 @@
 
 我们 [询问了你来年的健身目标](https://vitals.lifehacker.com/what-are-your-fitness-goals-for-2018-1821469720) ，看起来 2018 年将会充满惊喜，因为你会尝试新事物，将你目前的习惯提升到新的水平。以下是一些激励我们其他人的目标。
 
-Watch
+
 
 ### 从简单开始
 

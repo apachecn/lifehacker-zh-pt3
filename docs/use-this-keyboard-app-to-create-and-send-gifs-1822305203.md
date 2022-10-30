@@ -4,7 +4,7 @@
 
 iOS/Android:你喜欢智能手机上的 [滑动友好键盘](https://lifehacker.com/ditch-apples-generic-keyboard-with-these-apps-1795587161) 吗？那么你可能听说过谷歌的 Gboard，这是一个第三方键盘，你既可以滑动来拼写，也可以搜索网页。有了最新的更新，你可以使用智能手机摄像头从键盘创建 gif，并将它们发送到任何欣赏动画图像的地方。
 
-Watch
+
 
 ### **如何录制和保存 gif**
 

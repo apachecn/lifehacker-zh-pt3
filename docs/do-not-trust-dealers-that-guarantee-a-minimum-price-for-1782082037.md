@@ -4,7 +4,7 @@
 
 你可能听过这样的广告:“无论条件如何，我们都会给你最低 500 美元的交易！”这通常只是一个骗局，让你为正在购买的汽车支付更多的钱，应该避免经销商以这种方式做广告。
 
-Watch
+
 
 根据 [*汽车新闻*](http://www.autonews.com/article/20160615/LEGALFILE/306159996/altima-deal-was-bad-bargain-but-nissan-dealer-disclosed-terms-court) 中的一个故事，康涅狄格州的一名女子痛苦地了解到，经销商会为你的交易提供一个价格，但却打乱了数字，最终让你做了一笔糟糕的交易。
 

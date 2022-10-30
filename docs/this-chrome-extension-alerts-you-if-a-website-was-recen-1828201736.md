@@ -4,7 +4,7 @@
 
 保持最新的安全信息是很困难的，除非你看到某个网站或服务泄露了你的用户名和密码的头条，否则你很可能不会去想网站黑客。
 
-Watch
+
 
 史蒂夫·托马斯(现已名誉扫地的 PwnedList 网站的联合创始人)创建了一项名为 HackNotice 的免费新服务，让你可以更方便地了解你在 Chrome 浏览器中浏览的网站最近是否遭到过黑客攻击。你所需要的只是一个本月早些时候发布的简单的 [Chrome 扩展](https://chrome.google.com/webstore/detail/hacknotice-extension/kbjanbmmokbpaibafdgehgkpncpdjbpf) 。
 

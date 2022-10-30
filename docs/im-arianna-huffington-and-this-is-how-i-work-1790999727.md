@@ -4,7 +4,7 @@
 
 阿里安娜·赫芬顿只是想休息一下，但她还没有躺下。去年，她离开了同名网站，创办了一家名为 [Thrive Global](https://www.thriveglobal.com/) 的新公司，旨在纠正许多行业已经成为标准的慢性压力和倦怠。
 
-Watch
+
 
 变化没有超出左场；赫芬顿之前在她的书[](https://www.amazon.com/Thrive-Redefining-Success-Creating-Well-Being/dp/0804140863?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-arianna-huffington-and-this-is-how-i-work-1790999727&asc_source=&tag=kinjalifehackerlink-20)*和 [*睡眠革命*](https://www.amazon.com/Sleep-Revolution-Transforming-Your-Night/dp/1101904003?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-arianna-huffington-and-this-is-how-i-work-1790999727&asc_source=&tag=kinjalifehackerlink-20) 中写过关于工作与生活平衡的主题。她说，她的新事业 [力求更深入地理解生产力和幸福之间的关系](https://journal.thriveglobal.com/arianna-huffington-welcome-to-thrive-global-bbdaea4aa455#.xaal82xzl) :*
 

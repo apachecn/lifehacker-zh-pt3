@@ -4,7 +4,7 @@
 
 [【scruffy xendale】](https://www.reddit.com/user/scruffycoxendale)的家庭办公室不仅仅是一张桌子和一台电脑，尽管它确实很好。快速环顾房间，展示了一些其他伟大的设备，包括一个可爱的唱片集，房子的媒体服务器，等等。
 
-Watch
+
 
 整个设置很好，如果你对他使用的机器的规格感兴趣，scruffycowendale 在 Imgur gallery 中有这样的话(链接如下:)
 

@@ -4,7 +4,7 @@
 
 美国人很难存钱:[44%的美国人](https://www. federalreserve.gov/publications/files/2016-report-economic-well-beingus-households-201705.pdf) 表示，他们拿不出 400 美元来支付 2016 年的紧急开支。根据非盈利政策机构 [阿斯彭研究所](https://www.aspeninstitute.org/) 的一份 [简报](https://assets.aspeninstitute.org/content/uploads/2017/06/FSP-Sidecar-Accounts-Brief.pdf) 显示，“三分之一的美国人在收入波动中挣扎”，60%的美国人在过去一年经历了一笔意想不到的巨额支出，其中一半在六个月后仍未从财务上恢复。
 
-Watch
+
 
 除了生活成本上升和工资缩水的有害组合之外，发生这种情况的部分原因是因为我们没有好的短期应急基金储蓄选择。我们用于买房、上大学和退休等目标的大部分可用投资都是长期工具，如[【401(k)](https://twocents.lifehacker.com/a-beginner-s-guide-to-starting-a-401-k-1592233003)[【529 账户](https://twocents.lifehacker.com/how-to-open-a-529-college-savings-plan-for-your-kid-1797609312) 等。退休是最受关注的:正如阿斯彭研究所(Aspen Institute)指出的那样，雇主为我们的退休计划缴款，金融机构为他们提供服务(提供建议和资产管理)，还有一个完整的行业来建议你如何最大限度地利用他们。
 

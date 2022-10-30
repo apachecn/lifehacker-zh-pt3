@@ -4,7 +4,7 @@
 
 多年来， [Solid Explorer](https://lifehacker.com/the-best-file-management-app-for-android-5825578#_ga=2.243765255.367633666.1525095724-3846207152.1521480874) 让你在任何安卓设备上整理所有文件变得很容易。现在，由于对 [安卓电视](https://lifehacker.com/google-unveils-android-tv-brings-android-to-the-big-sc-1595960641) 和 [Chrome 操作系统](https://lifehacker.com/android-apps-for-chrome-os-are-here-and-theyre-the-fut-1782279369) 的新支持，这款便捷的应用正在扩展到更多平台。
 
-Watch
+
 
 对于任何拥有 Android 电视流媒体设备的人来说，这都是一个大新闻。谷歌的机顶盒软件并没有提供一种简单的方法来观看标准应用程序之外的视频。使用 Solid Explorer，您可以轻松访问所有文件，该应用程序甚至可以与 Dropbox、Google Drive 和 OneDrive 等云存储服务同步。
 

@@ -4,7 +4,7 @@
 
 如果不是因为 [iMessage](https://lifehacker.com/how-to-prevent-imessages-from-accidentally-appearing-on-1794255706) ，几年前我就会 [抛弃我的 iPhone](https://lifehacker.com/how-to-ditch-apple-completely-1821082984) 换成 Android，但是因为我的家人(和我的大多数朋友)都使用 iOS 设备，我被锁在了苹果的世界里。否则，我会错过 iMessage 的群聊(我知道这很可悲，但这是事实)。
 
-Watch
+
 
 我以前见过非官方的应用程序弹出来，声称为 Android 提供 iMessage，但它们大多是假的( [甚至是危险的](https://www.geek.com/android/imessage-for-android-app-reminds-us-all-to-watch-what-we-install-1571876/) )。然而，现在看起来 [一家公司](https://wemessageapp.com/) 实际上已经想出如何将苹果的消息服务引入安卓系统。只有一个问题:你需要一台 Mac 电脑才能让它工作。
 

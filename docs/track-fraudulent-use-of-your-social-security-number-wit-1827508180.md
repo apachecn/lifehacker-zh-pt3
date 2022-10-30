@@ -4,7 +4,7 @@
 
 Capital One 的 [Credit Wise](https://creditwise.capitalone.com/home) 是一款免费的信用跟踪工具，现在如果有人使用你的社会安全号码申请新的信用额度或开立另一个金融账户，它会提醒你。
 
-Watch
+
 
 任何人都可以使用这项服务，这项服务可以在线使用，也可以作为一个独立的应用程序用于和 [安卓](https://play.google.com/store/apps/details?id=com.capitalone.credittracker&hl=en_US) ，无论你是否拥有 Capital One 的帐户。它还跟踪你的信用报告，从益百利和 Transunion，并会通知你，如果有变化，并会提醒你，如果你的电子邮件地址或 SSN 被发现在黑暗的网络。
 

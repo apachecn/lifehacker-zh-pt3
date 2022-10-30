@@ -4,7 +4,7 @@
 
 你的亚马逊 Echo 设备已经可以根据你添加的技能进行定制了。你可能没有意识到的是，如果你没有找到你正在寻找的技能，你实际上可以使用 Alexa 的技能蓝图制作自己的技能。
 
-Watch
+
 
 [https://life hacker . com/how-to-listen-to-delete-everything-your-Alexa-has-r-1826372696](https://lifehacker.com/how-to-listen-to-and-delete-everything-your-alexa-has-r-1826372696)
 

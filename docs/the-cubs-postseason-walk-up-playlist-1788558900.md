@@ -4,7 +4,7 @@
 
 如果你现在还不知道， [小熊队战胜了所有的困难赢得了世界职业棒球大赛](http://deadspin.com/holy-fucking-shit-chicago-cubs-actually-win-world-seri-1788518760) 。为了庆祝，这里有一个小熊队季后赛跑台音乐的播放列表。
 
-Watch
+
 
 这个播放列表由[【MLB】](https://open.spotify.com/user/mlbam)策划，以 [小熊队 2016 赛季](http://www.redeyechicago.com/sports/redeye-chicago-cubs-walk-up-songs-2016-postseason-update-20161006-story.html) 的实际走台歌曲为特色。播放列表包括从坎耶·韦斯特到盖斯·布洛克斯的曲目，因为棒球不分流派。现在，如果你不介意的话，我需要想办法回到赛季开始的时候，在小房间里放一些钱。
 

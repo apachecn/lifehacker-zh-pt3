@@ -4,7 +4,7 @@
 
 烹饪 [前给甜椒削皮让它们变得如此柔滑，几乎可以融化](https://skillet.lifehacker.com/peel-bell-peppers-for-silky-smooth-texture-without-roa-1784848103) ，但它确实会留下很多果皮。你可以用它们来 [调味自制的高汤](https://skillet.lifehacker.com/how-to-make-seafood-stock-out-of-scraps-1823958899) ，或者你可以非常聪明地做出一种尝起来像辣椒粉的鲜艳的红色盐。
 
-Watch
+
 
 *这是《与克莱尔一起吃垃圾》的一部分* [*，这是一个生活黑客系列，克莱尔·劳尔说服你将你的厨余转化为可食用的美味。*](http://lifehacker.com/tag/eating-trash-with-claire)
 

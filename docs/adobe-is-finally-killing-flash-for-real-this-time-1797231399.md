@@ -4,7 +4,7 @@
 
 它就在这里，躲在半路上 [公司最新的新闻稿](https://blogs.adobe.com/conversations/2017/07/adobe-flash-update.html) ，就像拥挤的城镇广场上的断头台:“Adobe 正计划寿终正寝的 Flash。”嘣。那是刀片掉落的声音，闪光，最后，谢天谢地，幸运地死去。因为 Adobe 刚刚把它干掉了。
 
-Watch
+
 
 实际上比这稍微复杂一点。Adobe 正与苹果、脸书、谷歌、微软和 Mozilla 合作，在未来三年内给 Flash 的棺材钉上最后一颗钉子。Adobe 声明继续说，“具体来说，我们将在 2020 年底停止更新和分发 Flash Player，并鼓励内容创作者将任何现有的 Flash 内容迁移到这些新的开放格式。”
 

@@ -8,7 +8,7 @@
 
 Jalopnik 的老读者可能会从之前的帖子中认出 YouTuber [AvE](http://thegarage.jalopnik.com/how-to-tell-which-tools-are-cool-and-which-will-burn-yo-1786586095) 。这个家伙是一个传奇——总是一边拆解和解释我们的教育工具，一边编造有趣的脏话。
 
-Watch
+
 
 如果你曾经想知道在给定的材料上钻一个特定尺寸的孔需要哪种钻头，为什么打孔工具有用，为什么不同的钻头有不同的形状，或者钻头工作时有多快多难，这个接头有你的答案。
 

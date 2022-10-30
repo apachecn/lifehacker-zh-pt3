@@ -4,7 +4,7 @@
 
 谈到汽车的总成本，售价只是其中的一部分。你需要考虑转售，以及你的车会损失多少价值。有些下降速度比其他人慢，根据 [*凯利蓝皮书*](https://www.kbb.com/new-cars/best-resale-value-awards/best-resale-top-10-cars/) *，*这些 2018 款卡车、SUV 和全轮驱动轿车将是你最大限度减少折旧的最佳选择。
 
-Watch
+
 
 这份名单的大部分不会令人惊讶，因为丰田的 4x4s 排在第三位。任何试图在二手市场购买 Tacoma、Tundra 或 4Runner 的人都会告诉你一些二手价格有多疯狂。
 

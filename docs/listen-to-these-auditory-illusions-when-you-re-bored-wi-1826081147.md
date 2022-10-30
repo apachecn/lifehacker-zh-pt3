@@ -4,7 +4,7 @@
 
 单词“laurel”的声音片段在一些人(错误的人)听起来像“yanny”在一个新的，听觉上对应于 [的服装](https://sploid.gizmodo.com/some-people-see-this-dress-as-white-gold-while-others-1688330144) 。已经听过了？太好了！这里有一些更令人难以置信的音频剪辑，你应该听听。
 
-Watch
+
 
 ### 麦古克效应
 

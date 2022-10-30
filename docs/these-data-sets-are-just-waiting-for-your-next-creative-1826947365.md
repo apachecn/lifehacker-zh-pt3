@@ -4,7 +4,7 @@
 
 人工智能不仅仅是为了 [可怕的算法](https://lifehacker.com/what-makes-an-artificial-intelligence-racist-and-sexist-1796990621) 准备接管我们的生活——它也可以是一件有趣的事情，正如我们在 [训练计算机生成生活黑客头条](https://lifehacker.com/we-trained-an-ai-to-generate-lifehacker-headlines-1826616918) 时所了解到的那样。但是你不能玩，直到你有一些好的数据集开始。
 
-Watch
+
 
 幸运的是， [Gengo AI 已经为你的下一个项目](https://gengo.ai/articles/the-50-best-free-datasets-for-machine-learning/) 收集了一些数据集，无论是一个愚蠢的 Twitter 机器人还是下一辆自动驾驶汽车。(实际上，看看 [这个数据库中的街道标志视频片段](http://www.vision.ee.ethz.ch/~timofter/traffic_signs/) 。)
 

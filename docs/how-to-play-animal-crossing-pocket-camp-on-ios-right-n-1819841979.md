@@ -4,7 +4,7 @@
 
 所以你想玩 [*动物穿越:口袋营地*](https://kotaku.com/im-playing-the-animal-crossing-phone-game-and-its-pret-1819832782) ，但是只在澳洲软装 有。这里有一个快速、简单且不太光明正大的方法，可以直接从你的 iPhone 或 iPad 在另一个国家创建 iTunes 账户。 
 
-Watch
+
 
 首先，进入手机或平板电脑的设置，注销你的普通 iTunes 账户。然后打开应用程序商店，找到一个免费的游戏或应用程序，点击“获取”按钮。系统会提示您使用现有的 Apple ID 或创建一个新的。当然，你会想要创造新的。
 

@@ -4,7 +4,7 @@
 
 如果你曾经买过车，你可能会讨价还价。我们习惯于在车辆和工资等问题上展示我们的谈判实力，但如果你愿意尝试，还有许多其他费用是完全可以谈判的。以下是其中的六项成本，以及你如何协商这些成本。
 
-Watch
+
 
 ### 信用卡费率和费用
 
@@ -104,11 +104,7 @@ Watch
 
 如果你没有任何工作经验，还是可以试着问一下。你只需要做好调查准备，在陈述你的理由时，把重点放在你的技能而不是经验上。也许你在实习、大学组织或兼职工作中获得了这些技能。在没有工作经验的情况下要求更高的薪水时，把重点放在这些技能以及你是如何磨练这些技能的。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Six Things You Probably Didn’t Know Were Negotiable](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-negotiate-your-salary-when-you-dont-have-any-wor-1680823703) [###### 当你没有任何工作经验时，如何谈判你的薪水](https://lifehacker.com/how-to-negotiate-your-salary-when-you-dont-have-any-wor-1680823703) 
 
-在你的职业生涯中，协商你的第一份薪水会有相当大的回报。但是…
-
-[Read more](https://lifehacker.com/how-to-negotiate-your-salary-when-you-dont-have-any-wor-1680823703)</aside>
 
 如果有什么教训的话，那就是问也无妨。你可能会惊讶于仅仅说出来就能得到什么。当然，并不是所有的事情都是可以商量的，你也不想为此烦恼，但是通过讨价还价，你可以节省很多开支。
 

@@ -4,7 +4,7 @@
 
 电子邮件。无法忍受。没有它你无法完成工作。我说的对吗？去年我们发送了 25 亿封电子邮件。坏消息是。尽管有大量的厌恶，这个数字预计只会增加。体积是一个问题，你花在体积上的时间也是一个问题。事实上，报道说你每小时检查 36 次。36 次。在一个小时内。
 
-Watch
+
 
 一旦你开始处理收件箱里的东西，大约需要 [16 分钟](http://thenextweb.com/entrepreneur/2014/02/03/use-email-everything-can-better-emailers/#gref) 才能将你的注意力重新集中到其他工作上。哦，如果你需要一份藏在你邮箱里的文件，你需要 [两分钟](http://thenextweb.com/entrepreneur/2014/02/03/use-email-everything-can-better-emailers/#gref) 才能找到。计算一下:这很快会给你的工作效率带来灾难。
 

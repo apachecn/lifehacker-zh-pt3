@@ -4,7 +4,7 @@
 
 又一个感恩节来了又走了，这意味着黑色星期五、网络星期一和接下来的礼品购物月到了。以下是你需要知道的关于如何充分利用今年的交易的一切。
 
-Watch
+
 
 ## [**【life hacker 黑色星期五生存指南】**](http://lifehacker.com/the-lifehacker-guide-to-surviving-black-friday-1789317816)
 

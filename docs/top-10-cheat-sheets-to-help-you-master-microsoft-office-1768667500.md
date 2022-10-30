@@ -4,7 +4,7 @@
 
 微软 Office 仍然是全球公司和个人最常用的办公套件。当您使用这些程序时，这些 Word、Excel、PowerPoint 和 OneNote 备忘单将有助于提高您的工作效率并节省时间。
 
-Watch
+
 
 *<small>这篇文章是</small>* [*<small>微软 Office 周</small>*](http://lifehacker.com/tag/microsoft-office-week) *<small>的一部分，在 Lifehacker 我们提供入门或掌握微软 Office 的技巧。想要更多吗？查看</small>* [*<small>办公周标签页</small>*](http://lifehacker.com/tag/microsoft-office-week) *<small>。</small>*
 

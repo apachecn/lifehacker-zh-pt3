@@ -4,7 +4,7 @@
 
 [“热门话题”都是扯淡](http://nymag.com/selectall/2018/02/trending-on-social-media-is-worthless.html) ，表示全选。社交媒体网站上的这些小模块充斥着陈词滥调和虚假信息。本周三，YouTube 的趋势页面 [包括一个阴谋论视频](https://www.cnbc.com/2018/02/22/youtube-trending-algorithm-needs-reform.html) ，它声称斯通曼道格拉斯高中争取枪支管制的学生实际上是付费演员。(旁白:他们不是。)
 
-Watch
+
 
 正如 Select All 指出的，这些模块没有列出最受欢迎的话题；相反，它们是由黑盒算法驱动的，黑盒算法考虑了讨论的增长率、来源以及天知道还有哪些其他数据。然而，他们仍然吐出不可靠的信息，他们仍然是垃圾标签的工厂。选择所有建议完全摆脱他们。以下是如何在您的订阅源中实现这一点:
 

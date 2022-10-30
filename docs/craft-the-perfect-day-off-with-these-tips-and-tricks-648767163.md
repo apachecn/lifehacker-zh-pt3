@@ -4,7 +4,7 @@
 
 休假一天是福也是祸。精心安排的一天(或两天)休假可以给你充电，帮助你重新开始工作。但是做错了，最后会无聊一天。考虑到这一点，这里有一些方法可以让你充分利用 7 月 4 日。
 
-Watch
+
 
 现在是 [夏季](http://www.youtube.com/watch?v=Kr0tTbTbmVA) ，这意味着这是一个绝佳的时间来完成你一直在做的那些业余项目，放松一下，让自己在炎热中保持凉爽，或者烧烤一些美味的食物。有了这些，这里有一些让平常的一天变得完美的最好方法。
 
@@ -20,11 +20,7 @@ Watch
 *   让自己冷静下来:以上都是让炎热的一天变得更可忍受的好方法，但让我们诚实地说:炎热最糟糕的部分是你因此而感到多么糟糕。谢天谢地，你不用整天开空调就能对抗高温。我们之前已经 [向你展示了如何在你睡觉的时候保持凉爽](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376) ，如果你学会了 [你身体的快速降温点](https://lifehacker.com/know-your-bodys-quick-cooling-spots-5571072) 你只需要一点水就可以降温。如果所有这些都失败了，我们向你展示了更多的方法来改变你的观念，不管天气多热都保持冷静。
 *   打开游泳池:如果所有方法都失败了，最好的降温方法就是找一个游泳池，跳进水里。即使你没有免费的 [，你也有可能被骗进私人泳池](https://lifehacker.com/how-to-sneak-into-a-private-pool-5922291) 。一旦你到了那里，确保你的安全措施是最新的，并且你 [知道溺水是什么样子](https://lifehacker.com/know-what-drowning-really-looks-like-to-help-save-lives-511869654) 这样你就可以在必要时拯救生命。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Craft the Perfect Summer Day Off with These Tips and Projects](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376) [###### 我怎样才能在睡觉的时候保持凉爽？](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376) 
 
-亲爱的 Lifehacker，我们没有空调，而且天气这么热，很容易出去…
-
-[Read more](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376)</aside>
 
 这样，你应该能够保持一个舒适的温度，战胜炎热，享受完美的一天，而不用担心额头上堆积的汗水。
 

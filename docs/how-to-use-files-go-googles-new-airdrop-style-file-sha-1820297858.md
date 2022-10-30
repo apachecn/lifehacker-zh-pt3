@@ -4,7 +4,7 @@
 
 苹果有 [【隔空投送】](https://lifehacker.com/set-airdrop-to-contacts-only-to-protect-your-privacy-1661694999) 用于 iPhones 和其他苹果设备之间快速简单的文件共享。现在，谷歌正在为 Android 带来一个类似的功能，一个名为 [的新应用程序。](https://play.google.com/store/apps/details?id=com.google.android.apps.nbu.files) 
 
-Watch
+
 
 该应用于周四推出测试版，也可以帮助清理智能手机上的空间。在开始之前，您需要了解以下关于 Files Go 的信息。
 

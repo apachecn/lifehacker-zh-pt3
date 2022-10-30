@@ -4,7 +4,7 @@
 
 几周前，我冒着 E3 的拥挤人群去见 Nvidia 团队，虽然我表面上是在 PC 上查看命运 2，但我真正想知道的是 [到底什么是 Max-Q 设计](http://gizmodo.com/what-you-need-to-know-about-max-q-nvidias-plan-to-mak-1795658324#_ga=2.128105358.349583501.1498479351-1400882675.1486143502) 。Nvidia 在 5 月份宣布了它的新设计理念，我花了几周时间无法摆脱这只是一个巨大的营销策略的感觉——承认 Nvidia 最强大的 GPU 往往最终成为 [巨大的计算怪物](http://gizmodo.com/nine-days-with-an-absurd-9-000-gaming-laptop-1794290421) 。
 
-Watch
+
 
 在 E3，Nvidia 的人试图消除我的这种想法。他们特别指出了新的 [华硕 ROG 西风](https://www.asus.com/us/Laptops/ROG-ZEPHYRUS-GX501VI) 作为一个例子，当合作受到 Max-Q 设计哲学的激励时会发生什么。在测试了 Zephyrus 一周之后，我又回到了 Max-Q 设计是一个移动笔记本电脑的噱头，还是向新的笔记本电脑现状的转变。事实证明，真相就在中间的某个地方；这是一台非凡的笔记本电脑，它设法做到了如此轻薄和强大，以至于有点令人困惑——但它也有一个非常严重的缺陷。
 

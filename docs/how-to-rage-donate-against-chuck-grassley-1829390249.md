@@ -4,7 +4,7 @@
 
 嗯，这很快:在格拉斯利在参议院司法委员会调查克里斯汀·布拉西·福特对被提名人布雷特·卡瓦诺的性侵犯指控的听证会上的表现不到一天后，一个 [Crowdpac 已经开始资助他未来的对手在 2022 年](https://www.crowdpac.com/campaigns/388598/fund-chuck-grassleys-future-opponent?ref_code=bitly) 。在大约 14 个小时内，它筹集了大约 63，000 美元。
 
-Watch
+
 
 该基金由[](https://twitter.com/AdyBarkan?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor)[crowd PAC 背后的活动家紫琳·巴尔坎](https://www.crowdpac.com/campaigns/387413/either-sen-collins-votes-no-on-kavanaugh-or-we-fund-her-future-opponent) 发起，资助缅因州参议员苏珊·科林斯 。与格拉斯利的 Crowdpac 不同，柯林斯的投票与她在卡瓦诺的投票特别相关:如果她投票赞成，已经筹集的 160 多万美元将用于资助她的对手在 2020 年竞选。
 

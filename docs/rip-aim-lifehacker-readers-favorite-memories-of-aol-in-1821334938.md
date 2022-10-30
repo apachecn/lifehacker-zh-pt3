@@ -4,7 +4,7 @@
 
 对于我们这些还记得互联网早期的人来说， [今天标志着一个时代的正式结束，](https://help.aol.com/articles/aim-discontinued) 如果我们诚实地面对自己，这个时代早就结束了:美国在线即时通讯的全盛时期。
 
-Watch
+
 
 聊天服务今天将永远关闭，尽管它的大多数热情的早期用户早已放弃了它，转而使用 Gchat、Skype、Slack、Facebook Messenger 以及我们现在可以使用的无数其他聊天选项。
 

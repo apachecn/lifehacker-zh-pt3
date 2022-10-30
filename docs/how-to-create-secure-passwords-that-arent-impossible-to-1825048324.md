@@ -4,7 +4,7 @@
 
 如何创建 [强密码](https://lifehacker.com/starwars-and-the-24-other-worst-passwords-of-2017-1821338872) ？简单:你敲击键盘几秒钟，直到你得到一大块 50 个字符的胡言乱语，然后你把它复制并粘贴到一个密码管理器中，这样你就不必真的记住它是什么了。
 
-Watch
+
 
 [创建强密码](https://lifehacker.com/your-password-manager-can-tell-you-if-your-passwords-su-1819077719#_ga=2.228735964.179789982.1522675393-2116083491.1521480580) 还有 [其他招数](https://lifehacker.com/1password-adds-password-checker-pwned-passwords-1823264040) ，但是你真正要记住的规则只有两条:做长 [难猜](https://lifehacker.com/how-i-d-hack-your-weak-passwords-5505400) (或者蛮力)。“mycatiscute”是 [一个错误的密码](https://haveibeenpwned.com/Passwords) 。“Sj12 # 8)23&$ k51 * as . x * 3 rfalwo @ 74d * 23”大概是个不错的密码。(请不要偷那个。)
 

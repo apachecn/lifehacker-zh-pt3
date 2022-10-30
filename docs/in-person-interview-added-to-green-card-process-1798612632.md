@@ -4,7 +4,7 @@
 
 获得绿卡已经是一个复杂的，有时甚至令人困惑的过程。美国公民和移民服务局(USCIS)现在为两种绿卡增加了面对面的面试。
 
-Watch
+
 
 这项额外的面谈要求将于 2017 年 10 月 1 日生效，根据美国公民及移民服务局 的规定， [将适用于以下绿卡类型:](https://www.uscis.gov/news/news-releases/uscis-to-expand-in-person-interview-requirements-for-certain-permanent-residency-applicants)
 

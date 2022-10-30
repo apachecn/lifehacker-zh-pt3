@@ -4,7 +4,7 @@
 
 [iPhone X](https://lifehacker.com/how-to-buy-an-iphone-x-this-week-1819812194) 与苹果通常的智能手机设计大相径庭，将标志性的 home 键换成了全屏显示屏和 [面部扫描前置摄像头](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) 。因此，苹果不得不改变许多用来控制设备的手势。
 
-Watch
+
 
 即使你在 2007 年推出第一代 iPhone 后就拥有了一部 iPhone，你可能也很难适应 iPhone X。为了方便过渡，我们提供了一些提示和技巧，可以让你很快像专业人士一样使用新手机。
 

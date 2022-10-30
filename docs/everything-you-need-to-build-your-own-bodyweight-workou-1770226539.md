@@ -4,13 +4,9 @@
 
 [一个有效的体重训练计划](http://thefyslife.com/article/travel-and-work-out-without-weights/) 可以让你塑形，甚至增加肌肉，但“有效”并不适合每个人。有些人可以做 10 个俯卧撑，有些人需要 20 个，有些人需要比其他人做更多组。甚至你锻炼的频率也是一个考虑因素。让我们让你跟上速度，为你精心打造完美的锻炼计划。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Everything You Need to Build Your Own Bodyweight Workout](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/are-bodyweight-exercises-effective-1684200011) [###### 体重练习有效吗？](https://lifehacker.com/are-bodyweight-exercises-effective-1684200011) 
 
-亲爱的生活黑客，我喜欢不用额外设备就能锻炼身体的想法，但是有些…
 
-[Read more](https://lifehacker.com/are-bodyweight-exercises-effective-1684200011)</aside>
 
 在这种情况下，有效并不意味着简单地蹲在空中直到母牛回家。相反，如果你的减肥计划遵循以下指导方针，它会被认为是非常有效的:
 

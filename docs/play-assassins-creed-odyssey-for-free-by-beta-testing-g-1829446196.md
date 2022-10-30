@@ -6,7 +6,7 @@
 
 谷歌进入游戏流媒体领域的传言已经流传了很长时间，但今天这些传言最终得到了证实，该公司宣布将与游戏出版商合作，为其新宣布的 [项目流媒体服务](https://blog.google/technology/developers/pushing-limits-streaming-technology/) 。Project Stream 将允许用户通过他们的 Chrome 浏览器玩成熟的主机和 PC 游戏，而不需要游戏 PC 或主机硬件，这一切都要归功于云。
 
-Watch
+
 
 第一项合作是与法国出版商育碧及其即将发行的《刺客信条奥德赛》合作。虽然谷歌表示完整的公开版 Project Stream 在一段时间内不会发布，但那些有兴趣帮助谷歌测试这项服务的人可以 [报名参加即将到来的封闭测试版](https://projectstream.google.com/aco/signup) 。选定的测试版用户将可以通过 Chrome 玩*刺客信条奥德赛*，前提是他们满足所有的技术要求。
 

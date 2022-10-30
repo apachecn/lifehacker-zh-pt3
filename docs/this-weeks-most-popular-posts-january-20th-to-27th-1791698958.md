@@ -4,7 +4,7 @@
 
 本周，我们与 Alexa 进行了交谈，了解了可以添加到亚马逊 Echo 中的最佳技能，查看了您可能不知道的 Google Play 音乐功能，选择退出搜索网站，等等。这里回顾一下。
 
-Watch
+
 
 ## [**2017 年 2 月来往网飞的所有最好的电影**](http://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-fe-1791619299#_ga=1.36693280.1646006925.1460757386)
 

@@ -4,7 +4,7 @@
 
 本周，我们探讨了如何在手机上保护您的隐私和个人数据，礼貌地处理令人讨厌的邻居狗，探讨了在家工作时避免成为隐士的方法，等等。这里回顾一下。
 
-Watch
+
 
 ## [**【隐私爱好者使用 iPhone 指南】**](http://lifehacker.com/the-privacy-enthusiasts-guide-to-using-an-iphone-1792386831)
 

@@ -4,7 +4,7 @@
 
 说到更新你的 Mac，从来没有一个好时机。除了烦人且持续不断的更新提醒(谢天谢地， [你可以关闭](https://lifehacker.com/how-to-get-rid-of-those-annoying-mac-update-notificatio-1822632152) )之外，它经常让人感觉像是一件苦差事，而不是几分钟的处理和重启。如果你厌倦了等待 App Store 及其缓慢的界面，这里有一些方法可以加快这个过程。
 
-Watch
+
 
 ### **使用终端更新**
 

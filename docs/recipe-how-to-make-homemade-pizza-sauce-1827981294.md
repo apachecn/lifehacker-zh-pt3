@@ -4,7 +4,7 @@
 
 *欢迎来到* [***披萨学校***](https://thetakeout.com/tag/pizza-school) *，披萨制作爱好者格温·伊纳特在这里向披萨制作专家学习制作披萨的秘诀。*T12】
 
-Watch
+
 
 大多数人都认为披萨最重要的部分是 [、面团](https://thetakeout.com/recipe-how-to-make-pizza-dough-1827812406) 。但紧随其后的是:酱。当然，你可以买瓶装或罐装的比萨酱，甚至在必要时用 Prego 代替。当我还是个孩子的时候，我的家人会买几罐 Ragu Pizza Quick(我记得有点恶心)和几罐比萨酱，我哥哥会把它们放在烤盘的白面包上，上面放上成吨的干牛至(我们是一个有 [奇怪小吃](https://thetakeout.com/what-foods-do-you-eat-when-no-one-s-looking-1798254510) 的家庭)。
 

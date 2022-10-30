@@ -4,7 +4,7 @@
 
 Boomerang 让你安排你的电子邮件。这一基本功能是 Boomerang 不断增加的应用程序、插件和功能的核心，填补了 Gmail 等流行电子邮件服务的许多空白。四年前 [我们采访了 Boomerang 的创始人之一，关于建造 Boomerang](https://lifehacker.com/behind-the-app-the-story-of-boomerang-1582614577) 。现在，我们已经和三位联合创始人谈论了他们是如何经营公司、开发技术和完成工作的。
 
-Watch
+
 
 * * *
 

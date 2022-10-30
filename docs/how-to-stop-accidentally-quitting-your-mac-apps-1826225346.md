@@ -4,7 +4,7 @@
 
 这种情况每天至少发生一次，总是在我正在处理重要事情的时候:我不小心刷到了 Command+Q 组合键，而不是 Command+W 来关闭浏览器标签，让我退出了 Chrome。叹气。
 
-Watch
+
 
 虽然只是重新启动一个浏览器并回到浏览 [/r/aww](https://www.reddit.com/r/aww/) 并没有那么烦人，但在其他应用程序中不小心点击 Command+Q 会让你有点悲伤，特别是如果你有一段时间没有保存你的工作。值得庆幸的是，有一种方法可以防止你这样做，同时仍然保留 Command+Q 的有用性。(只有放弃者 [会将键盘命令](https://www.theinternetpatrol.com/how-to-stop-command-q-from-closing-your-apps/) 重新映射到其他东西。)
 

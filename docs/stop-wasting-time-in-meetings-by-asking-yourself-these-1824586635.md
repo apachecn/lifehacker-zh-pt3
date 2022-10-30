@@ -4,7 +4,7 @@
 
 除非你非常幸运(或者只是非常年轻)，否则你很可能已经放弃了生命中宝贵的时间去参加会议，这些会议要么开得太久，要么根本就不需要召开。
 
-Watch
+
 
 不一定要这样。这些年来，我们已经花了 [大量的时间](https://lifehacker.com/how-to-not-suck-at-meetings-5976593)[来讨论如何磨练](https://lifehacker.com/how-to-have-a-meeting-that-isnt-a-complete-waste-of-tim-1570834406) 你的会议主持技巧，而且很多都归结于一套特定的基础知识。也就是说:总是设定一个议程，愿意引导人们回到正题，为每个话题留出一定的时间以避免事情拖得太长，等等。
 

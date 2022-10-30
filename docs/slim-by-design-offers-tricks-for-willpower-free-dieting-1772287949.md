@@ -4,7 +4,7 @@
 
 根据作者 [布莱恩·万辛克](http://dyson.cornell.edu/people/brian-wansink) 的说法，我们每天做出超过 [200 个与食物相关的决定](http://eab.sagepub.com/content/39/1/106.short)——大多数都没有真正思考过。 *Slim by Design* 将 Wansink 关于我们如何做出这些决定的惊人研究转化为可操作的技巧。
 
-Watch
+
 
 *<small>这是 Lifehacker 的</small>* [*<small>书评</small>*](http://lifehacker.com/book-reviews) *<small>系列的一部分。不是每个生活帮都能在一篇博客文章中概括，所以我们决定回顾一些我们最喜欢的改变生活的书籍，更深入地探讨生活中最重要的话题。</small>T15】*
 

@@ -4,7 +4,7 @@
 
 我学到的第一个邪恶技能是诡计。试图欺骗父母是我最早的记忆之一。我从婴儿床里逃出来，卸下了一根松动的横杆，爬出来后，又把横杆放回去——好像要欺骗我的父母，说我还在里面。
 
-Watch
+
 
 至少当时我幼小的心灵是这么想的。从那以后，我有了更多的练习和时间来完善这个和其他“邪恶”的技能，我实际上认为这是一件好事。如果运用得当，作为一个成年人，耍花招、玩弄体制和撒谎可能是有用的技能。
 
@@ -34,11 +34,7 @@ Watch
 
 Pentesters(或道德黑客)和程序员显然需要能够识别漏洞，但医生、律师、教师以及任何行业的几乎任何人也是如此。通过寻找异常值、矛盾和可能出错的地方，而不是仅仅依赖于事情应该如何工作，我们提高了把事情做好的机会，或者——是的——利用了一个经常损坏或不公平的系统。比如 [翻录自己拥有的 DVD 供个人使用](https://lifehacker.com/is-it-legal-to-rip-a-dvd-that-i-own-5978326) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Three Evil Skills I Learned in Childhood That Come in Handy as an Adult](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/is-it-legal-to-rip-a-dvd-that-i-own-5978326) [###### 翻录我自己的 DVD 合法吗？](https://lifehacker.com/is-it-legal-to-rip-a-dvd-that-i-own-5978326) 
 
-亲爱的 Lifehacker，我翻录所有的 DVD 和蓝光光盘真的合法吗？大多数的…
-
-[Read more](https://lifehacker.com/is-it-legal-to-rip-a-dvd-that-i-own-5978326)</aside>
 
 漏洞也不总是不道德的。许多人认为 [只是利用税收抵免](http://www.reviewjournal.com/business/money/these-7-tax-loopholes-could-save-you-thousands) 是在钻法律的空子，但它们并不违法，而且它们可以帮你省下一大笔钱，即使你不是亿万富翁或大公司。关键是要了解这个系统，当然，也要知道试图绕过它的风险。
 

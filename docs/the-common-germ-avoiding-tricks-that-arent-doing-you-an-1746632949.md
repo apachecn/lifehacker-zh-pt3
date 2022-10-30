@@ -4,7 +4,7 @@
 
 当有人咳嗽时，你屏住呼吸过吗？或者试着用脚冲马桶？如果你用正确的方法去做，这些技巧中的一些*可能会有帮助，但是它们通常是不必要的，并且大多是基于偏执狂。以下是日常生活中避免细菌的真相。*
 
-Watch
+
 
 ### 当有人咳嗽或打喷嚏时屏住呼吸
 
@@ -46,11 +46,7 @@ Watch
 
 另一方面，医用口罩有更多的优势。它们对那些免疫功能严重低下的人非常有益，可以阻止 Weiswasser 博士解释的导致呼吸道病毒(如感冒、支气管炎和流感)的飞沫。然而，对我们大多数人来说，避免直接接触病人足以保证我们的安全。当你被困在飞机上几个小时 时，你已经有足够的保护来抵御你与其他人一样呼吸相同空气而感染的细菌，甚至是 [。真正的危险是触摸他们的唾液或鼻涕，或被这些东西覆盖的物体，如托盘桌和扶手，然后触摸你的面部(如眼睛、鼻子、耳朵和嘴巴)。韦斯瓦瑟博士指出，如果你为了内心的平静而必须戴手套和口罩，你最好骑自行车穿过一次性物品。但即使这样，他解释说，这是非常极端的，没有必要，除非是一个非常精选的人群。然而，如果*生病的人是你的话，医用口罩会非常有用。在许多国家，生病时戴口罩是很常见的做法，这样可以防止传染给他人。*](https://io9.gizmodo.com/why-you-get-sick-on-planes-and-how-to-keep-it-from-ha-1661753286) 
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--gizmodo" data-commerce-source="inset">[![Image for article titled The Common Germ-Avoiding Tricks That Aren&#39;t Doing You Any Favors](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://io9.gizmodo.com/why-you-get-sick-on-planes-and-how-to-keep-it-from-ha-1661753286) [###### 你为什么会在飞机上生病——以及如何防止它发生](https://io9.gizmodo.com/why-you-get-sick-on-planes-and-how-to-keep-it-from-ha-1661753286) 
 
-如果你要飞往某地过感恩节，你可能会担心…
-
-[Read more](https://io9.gizmodo.com/why-you-get-sick-on-planes-and-how-to-keep-it-from-ha-1661753286)</aside>
 
 ### **细菌无法完全避免(没关系)**
 
@@ -60,11 +56,7 @@ Watch
 
 你的身体和细菌的战斗只是照常进行。事实上，限制你的身体接触细菌有可能弊大于利。当你的免疫系统遇到从未见过的入侵者时，你会生病，因为你的免疫系统太弱，无法立即根除它。“”卫生假说表明，通过暴露于细菌中来适当调整和增强你的免疫系统是可能的，因此这种情况发生的频率会更低，但维斯瓦瑟博士承认这一理论有点争议。尽管如此，如果你是一个完全健康的人，还是会有“太干净”这样的事情。加里贝解释说，虽然你可能不应该*故意*让自己暴露在细菌中，但正常的暴露对于建立一个健康的、功能正常的免疫系统是必要的。就像肌肉一样，如果不使用它，它就不会变得更强壮。这对于因过度使用抗菌产品而不断涌现的新细菌尤为重要。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Common Germ-Avoiding Tricks That Aren&#39;t Doing You Any Favors](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/whats-the-fuss-over-antibacterial-soaps-should-i-stop-1500232937) [###### 抗菌香皂有什么大惊小怪的？我应该停止使用一个吗？](https://lifehacker.com/whats-the-fuss-over-antibacterial-soaps-should-i-stop-1500232937) 
 
-亲爱的生活黑客，我听说抗菌肥皂对你不好，或者至少我应该停止…
-
-[Read more](https://lifehacker.com/whats-the-fuss-over-antibacterial-soaps-should-i-stop-1500232937)</aside>
 
 ### **你应该真正关注的策略**
 

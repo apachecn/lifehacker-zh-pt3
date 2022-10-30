@@ -4,7 +4,7 @@
 
 乔纳森几年前从纽约搬到了洛杉矶，花 1000 美元买了一辆 1998 年的凯美瑞。这是一个明智和负责任的举动，但旧丰田正在显示它的年龄，是时候做一些新的和有趣的事情了。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

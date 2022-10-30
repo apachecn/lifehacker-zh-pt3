@@ -4,7 +4,7 @@
 
 苹果上个月刚刚发布了 [iOS 11](https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209) ，但是对于 [表情符号粉丝](https://lifehacker.com/you-can-now-buy-a-novelty-emoji-friendly-domain-1797858058) 来说，真正重要的更新还在路上。iOS 11.1 将 [新增数百个新表情符号](https://beta.apple.com/sp/betaprogram/) ，下周公测即将到来。以下是您需要了解的关于更新以及如何尽快获得更新的信息。
 
-Watch
+
 
 ### 终于有一个饺子表情符号了
 

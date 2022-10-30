@@ -4,7 +4,7 @@
 
 每个音乐流媒体服务都有点烂， [我们已经知道这个](https://lifehacker.com/use-both-apple-music-and-spotify-to-make-one-good-app-1821968437#_ga=2.72673233.350626624.1536677154-1297080755.1497980211) 。Spotify 糟糕的一点是，它限制了你可以在每台设备上下载的歌曲数量。但是服务 [刚刚提高了它的下载限制](https://www.rollingstone.com/music/music-news/spotify-lifts-3333-song-download-limit-723235/) 从每台设备 3333 首歌曲，到每台设备 10000 首，最多 5 台设备。对于那些需要减少数据使用量或在手机信号不好的地方使用 Spotify 的人来说，这是个好消息。你终于可以听你每月支付 10 美元的音乐了！
 
-Watch
+
 
 那些仍然购买他们音乐的人现在在笑，我们不能责怪他们。(哪怕有一天苹果只是 [删除他们购买的媒体](https://twocents.lifehacker.com/you-dont-own-the-music-movies-or-ebooks-you-buy-on-ama-1829000327) 。)Spotify 和 Apple Music 不断提醒他们的用户，你不是所有者，只是租用者。如果你想完全控制你的音乐，你需要 [切换回购买(或窃取)你的音乐](https://lifehacker.com/ditch-streaming-services-and-start-buying-music-again-1822835715) 。
 

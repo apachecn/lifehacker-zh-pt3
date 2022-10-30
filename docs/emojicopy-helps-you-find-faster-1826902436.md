@@ -4,7 +4,7 @@
 
 Windows/Mac:前几天在我们的一个秘密 Lifehacker 聊天室里，我不经意地提到了 [Emojicopy](https://www.emojicopy.com/) 的存在，我惊讶地发现，没有其他人听说过这个网站。这让我开始思考:大多数人是如何找到表情符号并放入信息、博客帖子和其他重要文档中的？
 
-Watch
+
 
 当然，你可以通过 [Windows](https://blogs.windows.com/windowsexperience/2018/02/05/windows-10-tip-get-started-emoji-keyboard-shortcut/) 或 [Mac](https://support.apple.com/en-us/HT201586) 以*手动*的方式插入表情符号，但我一直将表情复制作为我浏览器的前置书签。在我的 Mac 上，我总是倾向于忘记使用 Control+Command+Space 快捷键来打开字符查看器。这样，Emojicopy 可以很容易地复制一串 e moji——就像你发送给朋友的那些“这是我在说我们将要做什么，但使用愚蠢的小图像来做”的东西之一——而字符查看器只允许你一次插入一个。咩。
 

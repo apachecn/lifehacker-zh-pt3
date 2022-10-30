@@ -4,7 +4,7 @@
 
 执法人员和基因系谱学家没有浪费任何时间 [公共 DNA 数据库导致金州黑仔上个月怀疑](https://vitals.lifehacker.com/the-golden-state-killers-dna-was-in-a-publicly-availabl-1825604590) 。一家取证公司宣布了一项服务来进行这种分析*全体，*并且 DNA 数据库 [GEDmatch](https://www.gedmatch.com/) 已经改变了它的隐私政策以允许执法部门使用它。记住，即使你不在这些数据库中， [你的表亲也可能是](https://lifehacker.com/you-probably-already-have-cousins-in-a-dna-database-1825892173) 。
 
-Watch
+
 
 取证公司 [Parabon NanoLabs](https://parabon-nanolabs.com/) 告诉 Buzzfeed，他们已经 [上传了大约 100 份犯罪现场样本](https://www.buzzfeed.com/peteraldhous/parabon-genetic-genealogy-cold-cases?utm_term=.guXeVGDjN#.mhxvL8VyD) 到 GEDmatch，以寻找罪犯和身份不明的犯罪受害者。他们的服务获取执法部门提供的样本，并以类似于 23andMe 和 Ancestry 所做的 的方式 [处理 DNA。结果是他们可以上传到 GEDmatch 的数据文件。](https://vitals.lifehacker.com/how-dna-testing-services-work-1825759291)
 

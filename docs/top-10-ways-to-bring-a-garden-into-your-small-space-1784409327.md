@@ -4,7 +4,7 @@
 
 如果你想为你的家增加一点绿色——无论是为了自然而绿色还是因为你喜欢种植食物而绿色——你不需要太多的空间。这里有一些给你的家或办公室增加一点植物生活的建议，不管它有多大。
 
-Watch
+
 
 ### 10.从小处着手
 
@@ -64,11 +64,7 @@ Watch
 
 在小空间里做任何事情的基本原则是尽可能利用你的垂直空间。它通常是未使用的，我们本能地只关注我们的扩展计划的占地面积。我们也强调了大量的垂直种植项目，包括 [这种壁挂式植物支架](https://lifehacker.com/grow-in-small-spaces-with-the-wall-hanging-plant-holder-375921) ，这种 [竹子垂直种植器](http://lifehacker.com/make-a-vertical-planter-with-bamboo-and-save-space-in-y-499992580) 可以放在任何地方， [这种垂直花园](http://lifehacker.com/build-a-true-vertical-garden-for-space-saving-greenery-5542774) (以及其他类似的项目)，甚至 [这些倒置的种植器](http://lifehacker.com/recycle-old-containers-into-upside-down-hanging-planter-5519919) 你可以挂在任何地方。你甚至可以把一个旧的——或者买得起的——鞋子收纳盒 [变成一个垂直花园](https://lifehacker.com/turn-a-shoe-organizer-into-a-vertical-herb-garden-5311492) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Ways to Bring a Garden into Your Small Space](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/grow-in-small-spaces-with-the-wall-hanging-plant-holder-375921) [###### 使用壁挂式植物支架在狭小的空间中生长](https://lifehacker.com/grow-in-small-spaces-with-the-wall-hanging-plant-holder-375921) 
 
-壁挂式植物支架让你在狭小的公寓里种植植物成为现实的努力，…
-
-[Read more](https://lifehacker.com/grow-in-small-spaces-with-the-wall-hanging-plant-holder-375921)</aside>
 
 总之，只要你愿意使用尽可能多的垂直空间，你就可以在不占用大量宝贵空间的情况下，拥有自己的植物并享用它们。
 

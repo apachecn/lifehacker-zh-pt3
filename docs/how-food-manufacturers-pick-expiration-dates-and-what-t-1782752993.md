@@ -4,7 +4,7 @@
 
 没有人愿意给家人提供变质的食物。相反，消费者不想扔掉不必要的食物——但我们当然想。美国农业部估计，在零售和消费层面，美国人每年扔掉相当于[1620 亿美元](http://www.ers.usda.gov/media/1282296/eib121.pdf) 的食物。大量的食物被丢弃，但仍然可以安全食用。
 
-Watch
+
 
 这些损失部分是由于消费者对食品包装上的“此日期前食用”和“此日期前最佳”的日期感到困惑。大多数美国消费者报告说，在购买或消费一件产品之前，他们会核对日期 ，尽管我们似乎对日期告诉我们的信息没有很好的理解。“出售日期”、“最佳使用日期”、“使用日期–他们 [”都表示不同的意思](http://www.fsis.usda.gov/wps/portal/fsis/topics/food-safety-education/get-answers/food-safety-fact-sheets/food-labeling/food-product-dating/food-product-dating/#4) 。与流行的印象相反，当前的食品日期系统并不是真的设计来帮助我们弄清楚什么时候冰箱里的东西已经从可食用到不可食用了。
 
@@ -48,11 +48,7 @@ Watch
 
 较小的公司可能会根据他们估计的竞争对手使用的保质期，在他们的产品上列出一个日期，或者他们可能会使用参考资料或向食品安全专家咨询在他们的产品上列出的日期。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How Food Manufacturers Pick Expiration Dates and What They Really Mean](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-do-these-expiration-dates-on-my-food-really-mean-5921708) [###### 我的食物上的这些保质期到底意味着什么？](https://lifehacker.com/what-do-these-expiration-dates-on-my-food-really-mean-5921708) 
 
-亲爱的 Lifehacker，我对我的食物上所有的保质期有点困惑。为什么有些食物…
-
-[Read more](https://lifehacker.com/what-do-these-expiration-dates-on-my-food-really-mean-5921708)</aside>
 
 ### **即使是最好的日期也只是指南**
 

@@ -4,7 +4,7 @@
 
 我们都习惯于略读阅读作业或网络文章中枯燥的部分。但是当澳大利亚皇家墨尔本理工大学的研究人员用一种奇怪的、难以阅读的字体打印信息时，他们发现 [的人更容易记住他们所阅读的](https://www.washingtonpost.com/business/2018/10/05/introducing-sans-forgetica-font-designed-boost-your-memory/?__twitter_impression=true&utm_term=.1bad1f3b4052) 。
 
-Watch
+
 
 他们的实验表明，有一个最佳点:如果字体太混乱，就很难阅读。所以他们决定做一些小的调整:字母行之间的间隙，以及轻微的向后倾斜(与更熟悉的*斜体*T2 字体的倾斜方向相反)。
 

@@ -4,7 +4,7 @@
 
 作为 Android 用户最大的好处是，如果你不喜欢你看到的东西，你可以下载一个应用程序来改变你的设备的外观和感觉。也许你不太喜欢三星为其功能丰富的 Galaxy 智能手机换肤的方式，或者你无法忍受 Android Pie 在你的 Pixel 手机上的新手势。试试 lawn chair Launcher Launcher 吧，这是 Pixel launcher 的一个可延展的 DIY 版本。
 
-Watch
+
 
 Lawnchair Launcher(是的，这是一个双关语)没有谷歌 Pixel launcher 的所有功能，但它允许你改变图标，选择主题，定制整体界面的外观和感觉。它也不需要 root，使用起来很轻松——不需要以前的经验。这里有一本入门书，教你如何开始用 Lawnchair 定制你的 Android 手机界面。
 

@@ -4,7 +4,7 @@
 
 本周，Instagram [开始推出一项功能](https://instagram-press.com/blog/2018/07/19/new-see-when-your-friends-are-online-to-dm/) ，通过绿色指示灯向你的朋友显示你当前正在使用该应用。
 
-Watch
+
 
 自一月份以来，它已经在 direct 消息中显示了类似“今日活跃”的消息，但这次做得更进一步。
 

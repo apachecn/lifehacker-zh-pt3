@@ -4,7 +4,7 @@
 
 很少有人会把一篇糟糕的 Yelp 评论变成一个工作项目，但作家 [亚历山德拉·弗兰森](http://www.alexandrafranzen.com/) 已经通过她的新书 [*做到了这一点【你会活下来的】*](https://www.amazon.com/Youre-Going-Survive-soul-crushing-experiences_and/dp/1633536793/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-deal-with-failure-rejection-or-public-humiliat-1820676074&asc_source=&ie=UTF8&keywords=you're going to survive&qid=1511360786&sr=8-1&tag=kinjalifehackerlink-20) 。
 
-Watch
+
 
 “几年前，我的合伙人布兰登是一名厨师，他想开一家自己的餐馆。我有点天真地说，“我会帮你的！”“这能有多难，”弗兰岑说。剧透提醒:真的很难。"
 

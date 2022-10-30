@@ -4,7 +4,7 @@
 
 Mac 用户，你好！让我们来讨论一下你的屏幕的哪一边最适合你的 dock。(PC 用户请忽略这一块，不要取笑我们。)
 
-Watch
+
 
 普遍的共识是，只有肮脏的临时工离开底部的码头，在那里它吃掉了太多宝贵的垂直房地产。在一个 [Reddit 的帖子里](https://www.reddit.com/r/apple/comments/dwqpc/how_many_of_you_badasses_put_your_dock_on_the_left/) 关于 dock 的安置，上面的评论者，下面的 [随便讨饶](https://www.reddit.com/r/apple/comments/dwqpc/how_many_of_you_badasses_put_your_dock_on_the_left/c13iehd/) 。Bottom dock 用户指出，有了自动隐藏，空间就不是问题了。当你可以用 Spotlight 启动应用程序时，谁还需要 dock 呢？
 

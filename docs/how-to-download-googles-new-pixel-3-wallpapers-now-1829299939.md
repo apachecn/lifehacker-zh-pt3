@@ -4,7 +4,7 @@
 
 谷歌下一款手机 Pixel 3 的壁纸已经公开。最新的一款 [系列](https://gizmodo.com/google-s-notchless-pixel-3-seemingly-revealed-in-yet-an-1828728013)[手机泄露](https://gizmodo.com/gigantic-leak-seemingly-blows-the-lid-off-googles-pixel-1828522906) 在谷歌 10 月 9 日的发布会之前， [MySmartPrice](https://www.mysmartprice.com/gear/google-pixel-3/) 已经获得了 Pixel 3 的全套“自适应”壁纸，当你倾斜手机时会移动，当你播放音乐时会移动。
 
-Watch
+
 
 更好的是，MySmartPrice 和泄密者 [伊山阿加瓦尔](https://twitter.com/IshanAgarwal24/status/1044486299556749312) 都已经通过 [Google Drive](https://drive.google.com/drive/folders/1dAQ7ppFk-d1lRxnSB-IGjHYIM6tz_C1o) 和 [Mega](https://mega.nz/#F!rgxy0QiA!F2aAc1TKg_1Wc15s4wnDcw) 提供壁纸下载。接下来的两周，你的手机可以 cosplay 成一部还没有向公众展示的手机...正式的。
 

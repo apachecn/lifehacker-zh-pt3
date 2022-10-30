@@ -4,7 +4,7 @@
 
 你的假期还剩六天，你已经看不到 Lifehacker 的文章了。你父母家唯一的游戏就是抱歉和大富翁。试试欧洲游戏，这是一种欧洲风格的桌面游戏，竞争不激烈，也不依赖运气。网站 [Happy Meeple](http://www.happymeeple.com/) 复制了棋盘和卡牌游戏 Finito、Hanamikoji、失落的城市、X 级、Glastonbury、Migrate、Keltis 和西伯利亚。
 
-Watch
+
 
 每个游戏都包括一个新玩家指南，在你花 50 美元购买实体版之前，这是一个测试欧洲游戏的好方法。Happy Meeple 在复制游戏的舒适外观和感觉方面做得不错。
 

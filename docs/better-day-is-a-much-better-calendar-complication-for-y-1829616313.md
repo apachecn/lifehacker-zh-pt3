@@ -4,7 +4,7 @@
 
 我不太喜欢更疯狂的 Apple Watch 面孔——那些试图用时间、数据点和其他你点击来访问这个或那个的图标来填充你手表的面孔。但尽管我是一个纯粹主义者，我还是安装了第三方复杂功能[Better Day](https://itunes.apple.com/us/app/better-day-a-complication/id1052023515?mt=8)(2 美元)，并换成了一个数据量稍大的界面，因为这个第三方复杂功能给你的 Apple Watch 带来了比苹果更好的日历体验。
 
-Watch
+
 
 以合理的价格，Better Day 为您提供了一个可定制的图标(或可点击的文本)，您可以设置该图标来显示当前月份、工作日和日期、月份和日期或三者。轻点它，你就会看到一个大日历，你可以使用你的数字表冠 [滚动浏览它的月份](https://www.joeycastillo.com/images/apps-betterday-scrolling.mp4) (或者通过向左或向右滑动手指来滚动浏览年份)。
 

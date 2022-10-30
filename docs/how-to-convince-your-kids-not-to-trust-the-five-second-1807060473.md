@@ -6,7 +6,7 @@
 
 当你大喊“五秒规则”时，没有神奇的力场阻挡细菌捡起你掉在地上的腊肠。对吧。你可以这样证明。
 
-Watch
+
 
 在这个视频中，Bethany Brookshire 向你展示了如何建立一个合法的科学实验来比较 5 秒钟的腊肠和 50 秒钟的腊肠。你制作一个培养箱，将琼脂倒入培养皿，用实际微生物学家使用的相同软件分析你的数据。( [完整的说明和购物清单都在这里](https://www.sciencenewsforstudents.org/blog/eureka-lab/five-second-rule-growing-germs-science) 。)
 

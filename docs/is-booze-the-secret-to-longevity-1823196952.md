@@ -4,7 +4,7 @@
 
 我们大多数人只能活到 70 多岁，所以如果你嫉妒 100 岁的人吹灭生日蜡烛，并提供一些关于如何长寿和快乐生活的明智建议，请举手。一项名为[90+研究](http://www.mind.uci.edu/research-studies/90plus-study/) 的研究旨在收集最长寿老人的数据，但结果并不像暗示的那样表明酒精是一种长寿补品。
 
-Watch
+
 
 **头条** : [研究:对于 90 岁以上的人来说，酒精比运动更能延年益寿](http://www.chicagotribune.com/lifestyles/health/ct-drinking-alcohol-living-past-90-20180220-story.html) (芝加哥论坛报)；饮酒是活过 90 岁的关键
 

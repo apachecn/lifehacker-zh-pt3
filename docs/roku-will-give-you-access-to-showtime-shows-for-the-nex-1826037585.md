@@ -4,7 +4,7 @@
 
 全国流媒体日快乐！谁知道流媒体内容需要自己的假期，而这是我们每个晚上都在做的事情？它有一个。
 
-Watch
+
 
 [A](https://www.fastcompany.com/40571822/roku-is-offering-free-streaming-of-showtime-epix-and-smithsonian-earth-this-week?partner=feedburner&utm_source=feedly&utm_medium=feed&utm_campaign=feedburner+fastcompany&utm_content=feedburner) [据](https://www.fastcompany.com/40571822/roku-is-offering-free-streaming-of-showtime-epix-and-smithsonian-earth-this-week?partner=feedburner&utm_source=feedly&utm_medium=feed&utm_campaign=feedburner+fastcompany&utm_content=feedburner) Fast Company 称，Roku 正在通过向客户提供观看 Showtime、EPIX 和史密森尼地球的优质频道节目第一季的机会来庆祝。你只需要在你的盒子上安装 Roku Channel 应用程序，从现在起到 5 月 20 日，你将可以 [访问](https://www.roku.com/showcase/national-streaming-day) 到*十亿**和*罗伊·多诺万*，这是我叔叔一直试图让我观看的节目。是时候了吗？*
 

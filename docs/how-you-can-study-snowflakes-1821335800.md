@@ -6,7 +6,7 @@
 
 你上次近距离观察雪花是什么时候？这个来自科学星期五 的视频让我跃跃欲试，想要抓起一个放大镜，去一次雪花之旅。想一起来吗？
 
-Watch
+
 
 为了获得最佳可见度，抓一些深色的东西来接住雪花，比如一张黑色的建筑纸[。确保表面是冷的，这样雪花不会一接触就融化。如果你喜欢，可以想象一下:玛莎·斯图尔特将她的雪花](http://lemonlimeadventures.com/simple-winter-science-how-to-catch-snowflakes/) [收集在预冷的黑色天鹅绒](https://www.marthastewart.com/273267/observing-snowflakes) 上。
 

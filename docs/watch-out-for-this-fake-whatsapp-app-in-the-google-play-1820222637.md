@@ -4,7 +4,7 @@
 
 廉价消息服务 WhatsApp 如此受欢迎，以至于超过 100 万人从 Google Play 下载了一个虚假更新。
 
-Watch
+
 
 名为 [E_x_Lnc](https://www.reddit.com/user/E_x_Lnc) 的 Reddit 用户首先注意到了标题为“更新 WhatsApp Messenger”[据](http://mashable.com/2017/11/06/fake-whatsapp-app-google-play-store-android/?utm_campaign=Mash-Prod-RSS-Feedburner-All-Partial&utm_cid=Mash-Prod-RSS-Feedburner-All-Partial#zXudhoNHBGqg) Mashable 提供下载的极其可疑的 app。平心而论，假货极具说服力。它甚至最初被列为由 WhatsApp Inc .出售。
 

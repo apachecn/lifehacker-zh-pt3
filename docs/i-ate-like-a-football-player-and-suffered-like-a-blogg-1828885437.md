@@ -4,7 +4,7 @@
 
 本周，Deadspin 和 Jezebel 交换节拍来庆祝美国最危险和最有争议的娱乐活动:足球和时尚，这两项运动的共同点远远超过你的想象。
 
-Watch
+
 
 身高 5 英尺 11 英寸，体重 183 磅的洛杉矶公羊队角卫特洛伊·希尔与他的队友和 NFL 的其他球员相比是一个小个子。身高 5 英尺 2 英寸，体重约 100 磅，与 Gizmodo Media Group 的大多数同事相比，我也是如此。出于这个原因，我用希尔的 [膳食计划](https://www.bonappetit.com/people/article/nfl-players-diet) 作为我像足球运动员一样吃饭的一天的粗略指南。
 

@@ -4,7 +4,7 @@
 
 本周，在《遥远的银河系》中，我们通过了解非特殊化版本(以及在哪里可以找到它们)赶上了原版《星球大战》三部曲。与此同时，在 terra firma 上一切如常:比较最好的 Android 手机，避免常见的预算错误，等等。这里回顾一下。
 
-Watch
+
 
 ## [观看乔治·卢卡斯搞砸之前的《星球大战》三部曲原版](http://lifehacker.com/watch-the-original-star-wars-trilogy-as-it-was-before-g-1747927284)
 

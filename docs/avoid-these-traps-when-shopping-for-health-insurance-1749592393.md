@@ -4,7 +4,7 @@
 
 健康保险是 [取巧店为](https://lifehacker.com/whats-the-difference-between-all-these-health-insuranc-1500452519) 。你花了一大笔钱仅仅是为了*试着*保持健康，如果你得了重病或受伤，你仍有可能面临成千上万的损失。明智的购物可以降低你的支出，给你更多的好的保健选择——如果你知道应该避免什么的话。
 
-Watch
+
 
 ### 做你去年做过的事
 
@@ -36,11 +36,7 @@ Watch
 
 为了让这种计划成为一个明智的选择，你应该在你的 [应急基金](http://lifehacker.com/tag/emergency-fund) 中有足够的钱来支付免赔额。有一种特殊类型的账户就是为了这个目的而设立的: [健康储蓄账户](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805) (HSA)。由于高免赔额计划的保费较低，你可以(希望)每月投入几百美元到 HSA。然后当你遭遇医疗账单时，你可以用那笔甜蜜的免税的钱来支付。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Avoid These Traps When Shopping for Health Insurance](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805) [###### 什么是健康储蓄账户，我应该使用它吗？](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805) 
 
-亲爱的生活黑客，人力资源部的人告诉我，我必须在结束前决定我的健康福利
-
-[Read more](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805)</aside>
 
 与发音相似的 [FSA](http://lifehacker.com/if-youre-not-using-your-fsa-youre-missing-out-on-a-gre-1748472831) 不同，你投入 HSA 的钱永远是你的。明年可以用，退休的时候可以 [免税提取](http://lifehacker.com/max-out-your-hsa-to-supplement-your-retirement-savings-1603113892) ，换工作的时候可以随身携带。(你甚至可以从中提取非医疗费用，但你这样做时要缴纳税款。)
 
@@ -52,11 +48,7 @@ Watch
 
 也查一下有哪些专家。发表在*JAMA Dermatology**上的一项研究发现，窄网目录中列出的许多皮肤科医生都是不可用的:要么死了，退休了，目录中的电话号码无法联系到，要么已经预约了几个月。《美国医学会杂志内科学*的另一项研究 [在其他专业也发现了类似的结果。因此，如果你认为自己在未来一年可能需要专科医生的护理，不要仅仅依赖计划目录中的清单:实际上打电话给一些人，确保他们能够接受你作为病人。](http://jama.jamanetwork.com/article.aspx?articleid=2466113)**
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">**[![Image for article titled Avoid These Traps When Shopping for Health Insurance](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) [###### 怎么才能找到好医生？](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) 
 
-亲爱的生活黑客，我刚刚改变了保险计划，我正在寻找一个新的医生。我有如此…
-
-[Read more](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213)**</aside>
 
 **即使你最喜欢的提供商在网络中，也有另一个潜在的问题。不仅仅是医生可以加入或退出网络，医疗机构也是如此。如果你的医生在镇上两家不同的医院做手术，有可能一个地方有保险，另一个没有。**
 

@@ -4,7 +4,7 @@
 
 周三是国际妇女节，历史上成功的妇女游行背后的组织者将试图利用这种能量进行总罢工，称为“ [【没有女人的一天】](https://www.womensmarch.com/womensday/) ”根据组织者的说法，目标是承认“各种背景的妇女为我们的社会经济体系增加的巨大价值——同时获得更低的工资，经历更大的不平等，容易受到歧视，性骚扰和工作不安全。”
 
-Watch
+
 
 尽管我们的第 45 任总统的 [内阁几乎全是白人男性](http://www.cnn.com/2016/12/13/politics/donald-trump-cabinet-diversity/) ，决心废人 [计划生育](https://www.nytimes.com/2017/03/06/us/politics/planned-parenthood.html?_r=0) ，急切愿意 [分开](http://www.cincinnati.com/story/news/2017/03/04/under-trump-cincinnati-immigrant-families-preparing-separation/98484384/)[摧毁](https://www.washingtonpost.com/news/morning-mix/wp/2017/03/07/dhs-is-considering-separating-mothers-and-children-who-cross-the-border-illegally/) 家庭，报道对资助暴力侵害妇女法案拨款不感兴趣，以及他自己的 [承认](https://www.washingtonpost.com/politics/trump-recorded-having-extremely-lewd-conversation-about-women-in-2005/2016/10/07/3b9ce776-8cb4-11e6-bf8a-3d26847eeed4_story.html) 有性侵史
 

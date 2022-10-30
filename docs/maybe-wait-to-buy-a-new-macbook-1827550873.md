@@ -4,7 +4,7 @@
 
 苹果公司今天发布了一些重大消息:它不再销售 2015 款 MacBook Pro，这意味着你不能从苹果公司购买 MacBook Pro——其键盘~~不烂~~不 [有问题](https://gizmodo.com/apple-might-have-finally-fixed-that-macbook-pro-keyboar-1827540134) 。
 
-Watch
+
 
 哦，苹果还更新了它的顶级 MacBook Pro，现在最贵的迭代将花费你 6700 美元——一台 15 英寸的 MacBook Pro，带触控条；4TB 固态存储；32GB 内存；以及六核 2.9GHz 英特尔酷睿 i9 CPU。
 

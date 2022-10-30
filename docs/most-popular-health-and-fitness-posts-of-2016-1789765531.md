@@ -4,7 +4,7 @@
 
 健康和健身是非常重要的话题。你似乎也这么认为。从学习如何制定自己的体重锻炼计划，到如何少睡一会儿，再到如何制作*假的*健身“前后”照片，这些都是我们 2016 年最受欢迎的健康和健身帖子。
 
-Watch
+
 
 ### [**打造自己体重锻炼所需的一切**](http://vitals.lifehacker.com/everything-you-need-to-build-your-own-bodyweight-workou-1770226539)
 

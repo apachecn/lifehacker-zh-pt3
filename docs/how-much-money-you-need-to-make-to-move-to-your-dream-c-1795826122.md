@@ -4,7 +4,7 @@
 
 尽管物价贵得离谱，但像纽约、洛杉矶和旧金山这样的城市人口也非常多，而且还在不断增长。当然，这些城市都很棒，可以提供很多东西——但是如果你想搬到 T2，你应该挣多少钱呢？
 
-Watch
+
 
 [http://life hacker . com/what-you-should-know-before-from-a-small-town-1690425578](http://lifehacker.com/what-you-should-know-before-moving-from-a-small-town-to-1690425578)
 

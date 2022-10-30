@@ -4,7 +4,7 @@
 
 万圣节就要到了——比如，你们中的一些人今晚可能会举办怪异的派对，而另一些人可能会把它们留到那天。如果你没有服装、怪异的装饰或者任何准备，这些建议会有帮助。
 
-Watch
+
 
 ### 10.挑选最完美的最后一分钟服装
 
@@ -50,11 +50,7 @@ Watch
 
 我们推荐了与受欢迎的糖果 搭配的最佳葡萄酒 [，还有另一份指南列出了与你的万圣节礼物](https://lifehacker.com/the-best-wine-to-pair-with-halloween-candy-1788126840) 搭配的最佳啤酒和烈酒。混搭，度过一个美好的夜晚。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Last Minute Tips for an Awesome Halloween](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-booze-to-pair-with-halloween-candy-1652511825) [###### 万圣节糖果的最佳搭配](https://lifehacker.com/the-best-booze-to-pair-with-halloween-candy-1652511825) 
 
-无论你是在万圣节用袋装糖果犒劳自己，还是坐在糖果旁边…
-
-[Read more](https://lifehacker.com/the-best-booze-to-pair-with-halloween-candy-1652511825)</aside>
 
 ### 3.在糖果、服装和装饰品上省钱
 

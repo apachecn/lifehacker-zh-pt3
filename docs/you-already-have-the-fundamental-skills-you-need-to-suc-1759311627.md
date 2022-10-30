@@ -4,7 +4,7 @@
 
 我们都在寻找捷径来帮助我们度过一天，让事情变得简单一点，但你仍然需要出现并完成工作。责任的基本原则不会改变。然而，持之以恒，并应用你已经知道的东西是如何在竞争中胜出的。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/you-already-have-all-the-skills-you-need-to-succeed/) *上。*
 

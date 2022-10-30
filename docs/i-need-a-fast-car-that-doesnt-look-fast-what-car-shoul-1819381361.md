@@ -4,7 +4,7 @@
 
 马克是一名律师，他正在寻找一种不被发现的快捷方式。他有一个相当健康的预算，需要一些实用的东西。他能买到的最好的卧铺是什么？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

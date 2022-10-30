@@ -4,7 +4,7 @@
 
 有时候，你只需要最简单、最小、最容易的方式来携带相机。在 [对面的](https://oppositelock.kinja.com/) 、 [图集](https://kinja.com/AtlasM) 分享他们的袋子就是为了这个。
 
-Watch
+
 
 包里的是一个 [曼菲特·斯蒂尔](https://www.bhphotovideo.com/c/product/762214-REG/Manfrotto_MB_SCP_7BC_Stile_Collection_Nano_VII.html) 。以下是里面的内容，但一定要查看 [AtlasM 的原帖](https://oppositelock.kinja.com/this-serious-ly-small-camera-kit-of-things-i-mostly-al-1793714547) 了解详细信息:
 

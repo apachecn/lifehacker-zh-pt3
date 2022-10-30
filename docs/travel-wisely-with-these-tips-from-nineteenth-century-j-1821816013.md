@@ -4,7 +4,7 @@
 
 在游览日本这个美丽的国家时，围绕着优图·罗根·保罗和他幼稚的滑稽动作 有很多争议。好吧，如果你没有意识到，当你去不熟悉的地方时，有一种你应该和不应该做的事情。日本人几百年前就知道这些规则了。
 
-Watch
+
 
 早在 1810 年，Yasumi Roan 为日本游客写了一本终极指南:*魉呼游记*。它充满了多年来从其他旅行者和过去的各种著作中收集的提示、技巧和建议。这本书大受欢迎，至今仍在出版，其中包括一个英文版本，名为[*，由威廉·斯科特·威尔森*](https://www.amazon.com/Afoot-Japan-Nineteenth-Century-Walking/dp/1535503297?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/travel-wisely-with-these-tips-from-nineteenth-century-j-1821816013&asc_source=&tag=kinjalifehackerlink-20)*翻译。罗恩知道交通规则，也知道当一个人在离家很远的地方做客时应该怎么做。*
 

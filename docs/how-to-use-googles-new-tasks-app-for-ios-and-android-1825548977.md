@@ -4,7 +4,7 @@
 
 Google Tasks 已经存在将近十年了。虽然数字待办事项清单对保持你的组织性很有帮助，但谷歌的尝试总是让人感觉事倍功半。没有官方的移动应用程序，你不得不求助于第三方应用程序来从智能手机或平板电脑上访问你的任务，或者你不得不在你最喜欢的浏览器上打开移动版的 Gmail 就好像。
 
-Watch
+
 
 最后，谷歌终于看到了曙光，发布了一款专门针对安卓系统[iOS 系统](https://go.redirectingat.com/?id=33330X911647&xs=1&isjs=1&url=https%3A%2F%2Fitunes.apple.com%2Fus%2Fapp%2Fgoogle-tasks%2Fid1353634006%3Fls%3D1%26mt%3D8&xguid=b92f57516f33553bf66e663146d9f18b&xuuid=4bf33f8312115bed2695baf51f833fd7&xsessid=86800f3dfe8bdcca937e49c64fbc6d1f&xcreo=0&xed=0&sref=https%3A%2F%2Flifehacker.com%2Fhere-are-the-major-new-features-google-added-to-gmail-t-1825522973&pref=https%3A%2F%2Fkinja.com%2Fthedavidmurphy&xtz=420) 的任务应用。而且， [正如我们昨天提到的](https://lifehacker.com/here-are-the-major-new-features-google-added-to-gmail-t-1825522973) ,“任务”现在在 Gmail 本身的右侧有自己的专用部分，这比以前版本的 Gmail 中看起来更像聊天框的难看的“任务”窗口实现得好得多——只有从 Gmail 界面的隐藏菜单中才能真正访问。
 

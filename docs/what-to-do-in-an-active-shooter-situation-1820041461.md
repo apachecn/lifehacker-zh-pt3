@@ -4,7 +4,7 @@
 
 昨天在纽约市， [一名男子驾驶一辆皮卡车冲入西侧高速公路](https://www.nytimes.com/2017/10/31/nyregion/police-shooting-lower-manhattan.html?hp&action=click&pgtype=Homepage&clickSource=story-heading&module=a-lede-package-region&region=top-news&WT.nav=top-news) 的自行车道，造成 8 人死亡，然后从他的卡车中跳出来，挥舞着一把弹丸枪和一把油漆枪。行人、骑自行车的人和过路人，其中许多是穿着万圣节服装的孩子，转身就跑，尖叫着“枪”、“枪手”和“快跑”。一个月前，拉斯维加斯的一场乡村音乐会发生大屠杀，造成 58 人死亡，近 600 人受伤。10 月 17 日，马里兰州一名男子枪杀了他的五名同事，造成三人死亡，然后开车到特拉华州枪杀了第六人。
 
-Watch
+
 
 在这一点上，似乎大多数美国人至少已经思考了一会儿，如果发生“主动射击”的情况，他们会怎么做。
 

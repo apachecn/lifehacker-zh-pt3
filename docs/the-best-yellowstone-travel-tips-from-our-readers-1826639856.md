@@ -4,7 +4,7 @@
 
 本周，我们把城市从《黑客你的城市》中带了出来，收集关于黄石国家公园的读者提示。你可以在原帖 下的五线谱标签中阅读所有最好的评论 [。我们收集了以下亮点。](https://lifehacker.com/tell-us-your-yellowstone-park-travel-tips-1826493968)
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

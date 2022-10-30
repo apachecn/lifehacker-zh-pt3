@@ -4,7 +4,7 @@
 
 你大学的第一年很贵。你需要衣服、课本、小玩意、化妆品、食物，甚至家具和住处。本质上，你父母为你的一生付出的一大堆垃圾。幸运的是，你可爱的学生折扣可以缓解这种转变。
 
-Watch
+
 
 ### 储备便宜的书籍和学习用品
 
@@ -50,11 +50,7 @@ Watch
 
 ****即使你不去商店，也有很多方法用便宜的 装饰你的新家。只需一点点手工，你就可以 [让廉价的家具经久耐用](http://lifehacker.com/how-can-i-make-my-cheap-furniture-last-longer-1545496780#_ga=1.103916096.1347662518.1465819317) ，甚至 [定制出适合你风格的](http://lifehacker.com/repair-or-customize-your-furniture-with-cheap-diy-dr-1692061492) 。****
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">****[![Image for article titled Use These Student Discounts to Save on Everything You Need for College](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-make-my-cheap-furniture-last-longer-1545496780) [###### 怎样才能让我的廉价家具更耐用？](https://lifehacker.com/how-can-i-make-my-cheap-furniture-last-longer-1545496780) 
 
-亲爱的 Lifehacker，我手头很紧，没有很多钱买家具。我有一些碎片
-
-[Read more](https://lifehacker.com/how-can-i-make-my-cheap-furniture-last-longer-1545496780)****</aside>
 
 ### ******用技术折扣升级你的小工具******
 

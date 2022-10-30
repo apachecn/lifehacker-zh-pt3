@@ -4,7 +4,7 @@
 
 是的，有一种东西叫做 [免费的午餐](https://lifehacker.com/these-100-restaurants-will-give-you-free-food-on-your-1772840294#_ga=2.217864531.47977805.1529932552-3846207152.1521480874) 。但是如果你破解你的任天堂 Switch 来免费玩盗版游戏，那就要付出的代价:你不能在线玩[](https://arstechnica.com/gaming/2018/06/inside-nintendos-perfect-method-for-detecting-online-switch-piracy/)。
 
-Watch
+
 
 值得注意的 [任天堂黑客 ScriesM 最近在 Reddit](https://www.reddit.com/r/SwitchHacks/comments/8rxg26/psa_strong_antipiracy_measures_implemented_by/) 上概述了任天堂已经实施的反盗版措施，以嗅出玩盗版游戏的游戏机，并将其从任天堂网络中永久禁止。
 

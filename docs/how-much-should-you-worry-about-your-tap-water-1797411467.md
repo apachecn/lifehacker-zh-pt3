@@ -4,7 +4,7 @@
 
 上周，环境工作组公布了一个更新的数据库，你可以输入你的邮政编码，得到一份关于自来水中污染物的报告。从某些方面来说，这是一个很好的工具——但是它也有一些严重的警告。
 
-Watch
+
 
 本质上，这是一堆重新包装的公共数据，目的是强调政府认为足够安全，但 EWG 无论如何都要呼吁的事情。请记住，EWG 是同一群人，他们希望你相信一种 [【肮脏的一打】含农药的蔬菜](http://vitals.lifehacker.com/why-you-shouldnt-buy-organic-based-on-the-dirty-dozen-1689190822) (他们都很好)，并希望你相信你 [需要他们的排名来选择一种安全的防晒霜](https://lifehacker.com/the-sunscreen-ratings-that-scare-people-every-year-are-1795824253) (你不需要)。
 

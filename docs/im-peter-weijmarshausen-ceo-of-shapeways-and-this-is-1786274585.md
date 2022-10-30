@@ -4,7 +4,7 @@
 
 你可能会认为 3D 打印机是 DIY 爱好者创造边缘有点粗糙的塑料物品的利基设备。 [Shapeways](http://shapeways.com) 不同。他们使用工业机器将高分辨率 3D 打印带给大众。
 
-Watch
+
 
 2007 年，彼得·魏玛豪森与罗伯特·舒文伯格和玛琳·沃格拉共同创立了 Shapeways，作为电子公司飞利浦 的一个分支。他们想为普通客户创建一种方法，通过提交 CAD 文件进行打印来快速创建原型。当然，当他们在 2008 年推出时，3D 打印的新兴市场要有限得多；自那以后，它已经成为业余爱好者和专业人士制造定制物体的常见解决方案，各种免费的 3D 建模应用也使这一过程民主化。但这不再仅仅是原型——Shapeways 拥有一个充满活力的市场，销售 [艺术](http://www.shapeways.com/marketplace/art/)[珠宝](http://www.shapeways.com/marketplace/jewelry/)[玩具](http://www.shapeways.com/marketplace/games/)[机械零件](http://www.shapeways.com/marketplace/tech/mechanical-parts/) 以及其他所有按需制造的产品。
 

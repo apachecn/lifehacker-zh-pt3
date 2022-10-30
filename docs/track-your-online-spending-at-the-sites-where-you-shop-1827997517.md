@@ -4,7 +4,7 @@
 
 冲动购物是一件事，我们时不时都会犯这种错误。有时候，如果你感觉有点沮丧，订购你一直想买，但从来没有时间去拿的小东西会感觉很好。或者你看到了你一直关注的东西的交易，然后想，“现在正是时候。”
 
-Watch
+
 
 你可以使用 的 [服务来追踪你的信用卡消费，你的银行账户的收入和支出，以及你的投资有多少正在暴跌并可能无法支持你的购物习惯。你甚至可以注册接收你的](https://twocents.lifehacker.com/the-money-apps-a-personal-finance-writer-swears-by-1823696312) [银行账户余额](https://twocents.lifehacker.com/get-your-bank-account-balance-texted-to-you-every-morni-1823396634) (或者你信用卡的消费提醒)的每日通知，以帮助你监控你从储蓄中掏走的钱。
 

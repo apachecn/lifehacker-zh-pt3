@@ -4,7 +4,7 @@
 
 本周，我们继续通过查看 VPN 来应对国会对互联网隐私的漠视，尝试了令人惊讶的简单禁食饮食，在不发疯的情况下准备了我们的末日用品，等等。这里回顾一下。
 
-Watch
+
 
 ## [**为什么大家都在谈论 VPN？**](http://lifehacker.com/why-is-everyone-talking-about-vpns-1793768312)
 

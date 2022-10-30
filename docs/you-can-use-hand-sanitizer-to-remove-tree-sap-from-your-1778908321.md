@@ -4,7 +4,7 @@
 
 除了粗略的机械结构、速度限制和有故障的氧气传感器，树液是你的汽车最大的噩梦。一旦它破坏了你原本干净的油漆工作，这些东西就不会脱落。好消息是，实际上有一种简单的方法可以清除植物排泄物。
 
-Watch
+
 
 市面上有成千上万的产品承诺去除汽车油漆中讨厌的树液。他们中有些人 [工作](http://www.amazon.com/Turtle-Wax-T-520A-Remover-Trigger/dp/B0009JKGII/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://jalopnik.com/you-can-use-hand-sanitizer-to-remove-tree-sap-from-your-1778908321&asc_source=&ie=UTF8&keywords=tree sap remover for car&qid=1464273517&sr=8-1&tag=kinjajalopniklink-20) ，有些人完全是垃圾。但是，当你可以从 7-11 便利店买些洗手液，然后收工的时候，为什么要浪费时间在这些东西上呢？
 

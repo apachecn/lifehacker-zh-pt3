@@ -4,7 +4,7 @@
 
 当你独自一人时，很容易忘记礼貌。从开会迟到到忘记像“请”和“谢谢”这样简单的事情，否则礼貌和行为良好的人在缺乏面对面接触的情况下可能会表现得像个十足的混蛋。孤立是罪魁祸首，但你不必成为牺牲品。
 
-Watch
+
 
 正如 [我们在](https://lifehacker.com/the-remote-worker-s-guide-to-office-etiquette-1707166009) 之前说过的那样:“与你的同事在物理上分离会让交流变得更加陌生。”老实说，“陌生人”这个词可能太客气了。毕竟，你不必在营销或管理 [品牌级社交媒体](http://www.businessinsider.com/11-celebrity-blunders-on-social-media-2015-4) 时犯下职业生涯崩溃的错误。
 

@@ -4,17 +4,13 @@
 
 今年你可以在你的健康储蓄账户(HSA)中存入高达 6900 美元，此前美国国税局(IRS)撤销了三月份做出的上限为 6850 美元的决定(T2)。
 
-Watch
+
 
 那就是家庭贡献水平。对于个人而言，2018 年的限额为 3450 美元，55 岁或以上的人的追赶贡献限额为 1000 美元。
 
 根据基普林格的 ，混乱发生了，因为在共和党通过减税和就业法案之前，国税局已经计算了 2018 年的贡献水平。但该法案将通胀调整额与不同版本的消费者价格指数挂钩，新版本“比过去使用的消费者价格指数版本增长速度更慢。”国税局重新计算并宣布 6850 美元是新的上限，但这给已经缴纳了最高金额的人带来了问题，导致该机构再次改变方针。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Your 2018 HSA Contribution Limit Just Changed (Again)](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805) [###### 什么是健康储蓄账户，我应该使用它吗？](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805) 
 
-亲爱的生活黑客，人力资源部的人告诉我，我必须在结束前决定我的健康福利
-
-[Read more](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805)</aside>
 
 因此，如果你在 3 月份的决定后从你的账户中取出 50 美元，Kiplinger 的报告显示，你可以在没有税收或罚款的情况下将它加回来。2019 年的缴费限额可能会在下个月公布。
 

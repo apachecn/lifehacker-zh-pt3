@@ -4,7 +4,7 @@
 
 担心你的防晒霜落在哪里 [环保工作组](https://en.wikipedia.org/wiki/Environmental_Working_Group) 的新 [防晒霜评级](https://www.ewg.org/sunscreen/) ？不要这样。这份清单没有严格的科学依据，任何可能存在的小风险仍然远远大于涂抹防晒霜的好处。
 
-Watch
+
 
 以 [美国皮肤病学会](https://www.aad.org/) 为例，想 [把真相说清楚](https://www.aad.org/public/spot-skin-cancer/learn-about-skin-cancer/prevent/is-sunsceen-safe) : *是的，防晒霜是安全的*。即使是带有 [羟苯甲酮](https://en.wikipedia.org/wiki/Oxybenzone) 的。即使是含有维生素 a 的，即使是含有 [纳米颗粒](https://en.wikipedia.org/wiki/Nanoparticle) 。皮肤科医生每年都会对 EWG 的防晒报告 进行挑剔，但 EWG 一直在重复同样的错误。
 

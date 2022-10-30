@@ -4,7 +4,7 @@
 
 MoviePass 的竞争对手 Sinemia 本周让注册其服务变得更有吸引力:它现在每月为每次订阅提供 25 美元的免费[【Restaurant.com】](http://resturant.com)礼券。
 
-Watch
+
 
 如果你不熟悉 Sinemia，它的工作方式和其他电影订阅服务如 MoviePass 差不多。只要按月付费，你就可以每月看一定数量的电影。这个想法是，订阅的费用比你传统上为门票支付的费用要少。
 

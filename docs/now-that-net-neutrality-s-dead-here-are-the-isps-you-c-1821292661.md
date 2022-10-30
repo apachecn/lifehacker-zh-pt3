@@ -4,7 +4,7 @@
 
 今天，在联邦通信委员会主席 Ajit Pai 和委员 Michael O'Rielly 和 Brendan Carr 的带领下，联邦通信委员会以 3 比 2 的投票废除了奥巴马时代将宽带互联网视为第二类公用事业的立法。简而言之，联邦通信委员会已经投票决定 [放弃监管互联网服务提供商](https://lifehacker.com/what-the-end-of-net-neutrality-means-for-you-1820647171) 的权力，让康卡斯特和威瑞森这样的公司有能力限制你的网速，收取更多的网站使用费，并限制对流媒体服务的访问，直到你拿出一些额外的钱。在这种情况发生之前，你可能该换个网络提供商了。如果你不知道从哪里开始， [地图框](https://blog.mapbox.com/what-are-your-internet-options-92398639e466) 可以帮助你找到你所在地区是否有其他供应商。
 
-Watch
+
 
 这家地图和位置数据服务公司创建了 [FCC 提供商](https://www.mapbox.com/labs/net-neutrality/) ，这是一个交互式地图，向您显示您所在地区的可用 ISP 数量，以及他们提供的互联网类型(DSL、电缆、光纤或其他)。只需输入您的地址，看看有多少提供商将为您提供互联网连接。
 

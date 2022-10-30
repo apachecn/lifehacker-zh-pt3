@@ -4,7 +4,7 @@
 
 几天前，一场真正的寒流席卷了我们的地区，气温降至华氏零下 20 度。考虑到这一天我们家的每个成员都有一些事情要做，这意味着我们都暴露在寒冷的环境中。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/11-frugal-ways-to-make-frigid-temperatures-more-tolerable/) *上。*
 

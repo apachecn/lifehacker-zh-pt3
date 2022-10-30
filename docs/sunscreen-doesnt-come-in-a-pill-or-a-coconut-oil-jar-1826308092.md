@@ -4,7 +4,7 @@
 
 防晒霜也有不好的一面:它可能会很油腻，不得不重新涂抹很烦人，而且人们会时不时地试图吓唬你，让你认为它很危险。( [这不。](https://vitals.lifehacker.com/the-sunscreen-ratings-that-scare-people-every-year-are-1795824253#_ga=2.258856266.1730978073.1526909177-3846207152.1521480874) )但是你知道好处是什么吗？其实是*防晒霜*。药丸和 DIY 椰子油食谱不是。
 
-Watch
+
 
 美国食品和药物管理局最近 [宣布，它正在打击那些将补充剂作为具有类似防晒霜特性的产品进行营销的公司](https://www.fda.gov/newsevents/newsroom/pressannouncements/ucm608499.htm) 。换句话说，这些东西声称是药片中的防晒霜，并有类似 [Sunsafe Rx](https://www.fda.gov/ICECI/EnforcementActions/WarningLetters/ucm608260.htm) 的名字。让我们非常非常清楚:防晒霜不是以药片的形式出现的，不管标签上怎么说，补充剂都不能预防晒伤或皮肤癌。
 

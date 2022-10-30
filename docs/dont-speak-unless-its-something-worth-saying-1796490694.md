@@ -4,7 +4,7 @@
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 
-Watch
+
 
 本周的词条来自罗马政治家 [小卡托](https://en.wikipedia.org/wiki/Cato_the_Younger) ，他因反对皇帝尤利乌斯·凯撒而闻名。这些引语并非来自卡托的个人著作，而是来自与卡托共度时光的著名传记作家 [普鲁塔克](https://en.wikipedia.org/wiki/Plutarch) 。
 

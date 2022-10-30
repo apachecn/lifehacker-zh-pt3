@@ -4,7 +4,7 @@
 
 尼古拉斯变聪明了，决定离开纽约。他想和女朋友进行一次越野公路旅行，看看风景，结交新朋友，找一个新的住处。但是他需要合适的车去旅行，他应该买什么呢？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

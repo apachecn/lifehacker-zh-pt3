@@ -4,7 +4,7 @@
 
 当谈到尝试新的应用程序时，我是一个很容易推销的人。我会从 App Store 下载几乎所有有人让我相信有用途的应用程序，并进行测试。然而，一旦试驾结束，我就不擅长花时间删除那些不太合适的应用。结果呢？我的手机里塞满了东西。
 
-Watch
+
 
 如果你有一部 iPhone，找到那些不用的应用并删除它们是很容易做到的。我过去经常这样做，由于 [在](https://www.macrumors.com/how-to/identify-and-remove-redundant-ios-apps/)[*MAC rumor*](https://www.macrumors.com/how-to/identify-and-remove-redundant-ios-apps/)*s*上的一个帖子，我想起了这个功能。
 

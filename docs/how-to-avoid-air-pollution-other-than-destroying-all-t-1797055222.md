@@ -4,7 +4,7 @@
 
 在一个城市里，这是一个呼吸困难的日子。在我写这篇帖子的时候，[d . c .](https://patch.com/district-columbia/washingtondc/dangerous-heat-air-quality-alert-issued-dc-northern-virginia)[NYC](http://www.accuweather.com/en/us/new-york-ny/10007/weather-warnings-1756209/349727)[Louisville](http://www.wdrb.com/story/35912883/air-quality-alert-declared-for-wednesday-in-louisville-and-part-of-southern-indiana)[Columbus](http://abc6onyourside.com/news/local/air-quality-alert-for-wednesday-july-19th)[Sacramento](https://airnow.gov/index.cfm?action=airnow.local_state&stateid=5&mapcenter=0&tabs=0)[Birmingham](http://www.al.com/news/birmingham/index.ssf/2017/07/code_orange_air_quality_alert_1.html)[Pittsburgh](http://www.wpxi.com/news/top-stories/code-orange-air-quality-alert-issued-for-western-pennsylvania/564839875)老实说我得到了在所有这些地区，儿童、老人和有呼吸问题的人应该限制户外时间。这只是一个持续问题中的一个数据点。仅在纽约市，空气污染每年就导致 2000 多人过早死亡。
 
-Watch
+
 
 日复一日，避免空气污染的最好方法是远离汽车交通。小汽车和卡车制造了美国城市空气污染的 24%，它们直接从地面排放出去。正如《T4 时报》最近报道的那样，具有讽刺意味的是，骑自行车的人在这种污染面前首当其冲，有时他们在上下班途中会吸入一半的“每日剂量”。汽车交通和沉重的呼吸是有害的结合。(对于典型的成年人来说，这项运动仍然超过了污染成本。)
 

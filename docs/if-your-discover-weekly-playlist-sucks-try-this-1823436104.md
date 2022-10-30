@@ -4,7 +4,7 @@
 
 你的《发现周刊》可能并不差——这个专题如此受欢迎，以至于它成了科技博客 和商业博客 上长篇大论的主题。Spotify 甚至利用 [用户在推特上发布他们有多爱这个功能](https://nutmegcreative.com/blog/spotify/) 来打造一个广告活动。每个星期，每个活跃的 Spotify 用户都会得到一个新的 30 首歌曲的列表，其中超过一半的人会找到新的最爱。但是根据你的 Spotify 习惯，你有可能每周收到一份垃圾发现。下面是正在发生的情况以及如何修复它。
 
-Watch
+
 
 Spotify 使用 [几种方法](https://hackernoon.com/spotifys-discover-weekly-how-machine-learning-finds-your-new-music-19a41ab76efe) 制作你的定制播放列表；它分析了音乐博客上对歌曲的描述，甚至比较了它们实际的数字音频内容。但是 Spotify 决定一首歌是否应该出现在你的每周发现播放列表中的主要方法是通过比较你和其他用户的收听习惯。所以，如果你听了很多 R.E.M .的音乐，Spotify 知道 R.E.M .的粉丝也喜欢恐龙二世，它会在你的探索周刊上放一些恐龙二世的音乐。
 

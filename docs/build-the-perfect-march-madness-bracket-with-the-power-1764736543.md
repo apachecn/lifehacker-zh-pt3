@@ -4,7 +4,7 @@
 
 NCAA 刚刚发布了 [官方三月疯狂锦标赛括号](http://www.ncaa.com/interactive-bracket/basketball-men/d1) ，唯一将你与完美括号分开的是一点数学驱动的逻辑。是时候赢得办公室赌局了。
 
-Watch
+
 
 我们采访了数据科学家和“支架学家” [沃尔特孙](https://www.linkedin.com/in/sunwalter) ，他在微软创建并领导了 [必应预测](http://www.bing.com/explore/predicts) 项目。他们的数据分析系统用于预测从游戏的最终比分到真人秀获胜者的一切，Bing 已经与 NCAA 合作，使用他们的统计模型(包括输赢记录，会议排名， [甚至社交数据](https://lifehacker.com/turn-the-crowds-march-madness-wisdom-in-on-itself-to-wi-5782468) )来建立官方数据。以下是孙和他的团队多年来学到的最重要的技巧，以及如何利用它们。
 
@@ -14,11 +14,7 @@ Watch
 
 一支 6 胜 4 负、没有重大伤病的球队通常比一支排名更高、战绩 7 胜 3 负、缺少明星大前锋的球队更好，不管他们在常规赛的大部分时间里表现如何。此外，还要考虑他们在每场比赛中赢了多少分或输了多少分。孙解释说，没有一个冠军在常规赛中遭受过 30 分或更多的井喷损失，所以要记住这一点。你可以在 [NCAA 男篮或女篮网站](http://www.ncaa.com/sports/basketball-men/d1) 或者 [CBS 体育网站](http://www.cbssports.com/collegebasketball/stats) 找到所有这些数据和更多信息。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Build the Perfect March Madness Bracket With the Power of Math](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/pick-the-perfect-march-madness-bracket-with-tips-from-a-1543055094) [###### 从数学家的建议中挑选完美的疯狂三月括号](https://lifehacker.com/pick-the-perfect-march-madness-bracket-with-tips-from-a-1543055094) 
 
-想赢得你的办公室资金池或者你的 NCAA 学院的 10 亿美元奖金吗…
-
-[Read more](https://lifehacker.com/pick-the-perfect-march-madness-bracket-with-tips-from-a-1543055094)</aside>
 
 ### **小心“烫手山芋”**
 

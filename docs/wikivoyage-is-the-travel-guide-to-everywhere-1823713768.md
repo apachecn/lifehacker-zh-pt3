@@ -4,7 +4,7 @@
 
 在每周的 [Hack Your City](https://lifehacker.com/c/hack-your-city) 节目中，当我向 Lifehacker 的读者们征求旅行建议时，我尽量加入一些当地的色彩。所以我查了一下 [维基百科](https://en.wikivoyage.org/) ，这个旅行维基比维基百科更像一个现实生活中的 [银河系漫游指南](https://en.wikipedia.org/wiki/The_Hitchhiker%27s_Guide_to_the_Galaxy) 。
 
-Watch
+
 
 当你在为旅行做研究时，Wikivoyage 是一个很好的起点。比起维基百科枯燥的百科文本，你会从维基百科的对话页面中更好地感受一个地方的氛围。Wikivoyage 贡献者可以插入意见；他们只需要做到“公平”
 

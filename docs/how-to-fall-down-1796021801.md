@@ -4,7 +4,7 @@
 
 你可能不认为绊倒和跌落几英尺会造成很大的伤害，但是你就大错特错了。
 
-Watch
+
 
 坠落伤害是伤害相关急诊室就诊的最常见原因， [每年发生近 800 万例](https://www.hcup-us.ahrq.gov/reports/statbriefs/sb156.pdf) 。这种类型的跌倒通常与老年人有关，但任何年龄的跌倒都可能是危险的——尤其是如果你撞到了头。不需要太多时间就会发生脑震荡，这会导致脑损伤、意识模糊、剧烈头痛、眩晕、视力下降、记忆力下降和注意力难以集中。你也可能因为拍打头部而死亡，即使这看起来是相当轻微的一击。你可能会患上 [硬膜下血肿](https://en.wikipedia.org/wiki/Subdural_hematoma) ，这是一种危及生命的情况，你的大脑基本上会出血，并增加你的颅内压。不做 CAT 扫描很难察觉， [和症状可能很微妙](http://www.brainline.org/content/2009/04/ask-the-expert-when-to-go-to-the-hospital.html) 。
 

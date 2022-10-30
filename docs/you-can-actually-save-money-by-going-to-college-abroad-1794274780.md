@@ -4,7 +4,7 @@
 
 我们都想在大学里有那种“通过旅行发现自我”的体验，但是去国外上学似乎是一个不可能的、昂贵的梦想。令人惊讶的是，由于美国 的学费上涨，在某些情况下反而更便宜。但先别急着上飞机。有许多变量需要考虑。
 
-Watch
+
 
 在他的网站 [冒险快乐](http://www.takerisksbehappy.com/) 上，作家亚历克斯·韦伯 [解释了他自己在国外上大学的经历](http://www.takerisksbehappy.com/save-money-and-see-the-world-the-hidden-benefits-of-foreign-universities/) :
 

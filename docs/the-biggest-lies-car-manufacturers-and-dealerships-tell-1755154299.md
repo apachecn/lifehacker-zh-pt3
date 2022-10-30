@@ -4,7 +4,7 @@
 
 经销商和汽车制造商已经不那么诚实了(如果我们慷慨的话),涉水通过错误信息只会使情况成倍恶化。不过，我们可以帮忙。以下是你在买车时会听到的一些最具误导性、不诚实或彻头彻尾的谎言，以及它们背后的真相。
 
-Watch
+
 
 ### 那种“限时交易”很可能以后会回来
 
@@ -50,11 +50,7 @@ Watch
 
 有很多因素需要考虑，所以不要认为这是一个包罗万象的列表，但这些是你需要注意的一些最大的底线。你的户外成本，你的长期总额，每月还款额将对你现在和贷款期限的预算产生最大的影响。如果经销商声称可以减少其中一个数字，请密切关注其他数字。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Biggest Lies Car Manufacturers and Dealerships Tell to Sell You a Car](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906) [###### 被误解的金钱数学:为什么利息比你想象的更重要](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906) 
 
-兴趣很可能是普通人必须使用的最复杂的数学工具…
-
-[Read more](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906)</aside>
 
 ### **JD Power、Motor Trend 和其他公司颁发的奖项并不像听起来那么重要**
 

@@ -4,7 +4,7 @@
 
 2016 年给我们带来了新的 iPhone 和新的 iOS 10 操作系统，但今年明显的赢家是 *Pokémon Go* 。今年真的有适合每个 iOS 用户的东西。以下是我们在 iOS 上最大的帖子和下载量。
 
-Watch
+
 
 ### [***神奇宝贝 Go* 训练师高级战术手册**](http://lifehacker.com/the-pokemon-go-trainers-advanced-tactics-handbook-1784003725)
 

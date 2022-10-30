@@ -4,7 +4,7 @@
 
 我以前说过，我再说一遍， [智能电视](https://lifehacker.com/the-best-smart-tvs-for-watching-netflix-according-to-n-1766384669) 最差。额外的软件通常很笨重，会妨碍你观看任何你真正想看的东西，而且更新不会像在独立的流媒体设备上那样快速或一致。大多数型号都有一些严重的隐私问题，因为公司经常用它们来跟踪你看的东西。现在，又多了一个避免智能电视的理由:你可能会被黑客攻击。
 
-Watch
+
 
 来自 [《消费者报告》](https://www.consumerreports.org/televisions/samsung-roku-smart-tvs-vulnerable-to-hacking-consumer-reports-finds/) 的一项研究发现，三星的智能电视容易受到黑客攻击。类似的漏洞也影响到使用 Roku 智能电视平台 的 [电视机。黑客显然可以霸占你的电视来换频道、提高音量，或者(最糟糕的是)随意播放 YouTube 视频。他们实际上无法监视你或窃取任何个人信息，但这仍然会令人不安。](https://gizmodo.com/tcls-new-roku-4k-tv-is-very-good-and-beautifully-cheap-1796514028)
 

@@ -4,7 +4,7 @@
 
 当我阅读类型小说时，我喜欢沉浸在故事的世界里。我会经常播放时代音乐或相关的配乐。为了希拉里·曼特尔的都铎文学戏剧《狼厅》，我花了一个多小时仔细研究伊丽莎白时代之前的民间音乐和合唱音乐。我终于找到了一个更简单、更少干扰的解决方案。
 
-Watch
+
 
 [环境混音器](http://www.ambient-mixer.com/) 拥有惊人的 57，000 个环境混音，组合了近 10，000 个循环样本。许多是基于特定的虚构设定，如 [夏尔](http://lotr-sounds.ambient-mixer.com/the-shire)[夜谷](http://science-fiction.ambient-mixer.com/night-vale)[死星上的夜班](http://star-wars.ambient-mixer.com/nightshift-on-death-star) ，以及所有四个霍格沃茨学院的公共休息室: [斯莱特林](http://harry-potter-sounds.ambient-mixer.com/slytherin-common-room)[赫奇帕奇](http://harry-potter-sounds.ambient-mixer.com/hufflepuff-commonroom)[拉文克劳](http://harry-potter-sounds.ambient-mixer.com/ravenclaw-common-room) 和(拉文克劳有空灵的音乐；赫奇帕奇有一只咕噜咕噜叫的猫。)
 

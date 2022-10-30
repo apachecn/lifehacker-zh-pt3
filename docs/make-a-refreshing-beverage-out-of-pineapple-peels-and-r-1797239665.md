@@ -4,7 +4,7 @@
 
 在我吃过的所有垃圾 中，菠萝皮可能是我最喜欢的。你不仅可以用它们来制作 [一杯冰镇茶或者一杯明显是热带风味的杜松子酒](http://skillet.lifehacker.com/make-pineapple-infused-gin-with-the-leftover-peels-like-1795233709) ，而且我注意到这种高贵的废料还可以用来制作另一种奇妙的饮料:*chicha de arroz con pia*
 
-Watch
+
 
 除了是一种极好的下脚料，这种饮料是奶油状的(不含任何乳制品)，热带的，而且足够甜。要做到这一点，你只需要:
 

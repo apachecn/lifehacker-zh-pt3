@@ -4,7 +4,7 @@
 
 你用来编辑图像的第一个应用程序[MS Paint 可能会在 Windows 10](https://www.theguardian.com/technology/2017/jul/24/microsoft-paint-kill-off-after-32-years-graphics-editing-program) 的未来更新中被取消，取而代之的是新的应用程序 Paint 3D。微软在 Windows 10 的下一次秋季更新中将 32 岁的应用程序列在 [【弃用功能】](https://support.microsoft.com/en-us/help/4034825/features-that-are-removed-or-deprecated-in-windows-10-fall-creators-up) 下，一个小 X 标志着一个时代的结束。
 
-Watch
+
 
 这款应用无疑是一个遗迹，在那个时代，普通电脑用户无法打开 Photoshop、Skitch、Pixelmator 或数以千计的网络应用。MS Paint 无法将图像组件保存为图层或矢量；它仅用于制作平面静态图像。它不能平滑线条或猜测你的最佳意图。它做你告诉它的事情，仅此而已，忠实地表现了用电脑鼠标徒手画的不稳定运动。这是在触摸和触控板出现之前的时代。
 

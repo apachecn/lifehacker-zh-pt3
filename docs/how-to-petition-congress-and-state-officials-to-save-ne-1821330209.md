@@ -4,7 +4,7 @@
 
 这次 [FCC 的投票](https://gizmodo.com/fcc-votes-to-kill-net-neutrality-capping-a-year-of-end-1821257779) 可能是最终的，但是 [网络中立](https://lifehacker.com/what-the-end-of-net-neutrality-means-for-you-1820647171) 还远没有。新的命令不会在几周内生效，互联网活动人士预计将很快提起诉讼阻止这一决定。基本上，还有时间拯救免费开放的网络，你可以帮忙做这件事。
 
-Watch
+
 
 在一系列推文 中，前政治记者、现约翰·霍普斯金大学研究生 Celeste Pewter 认为，在这一点上，拯救网络中立的最佳方式是让国会和州政府参与进来。这里是你应该联系的所有人，以及你联系时使用的预先写好的脚本。
 

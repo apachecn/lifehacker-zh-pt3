@@ -4,7 +4,7 @@
 
 如果你经常忘记设置日历提醒 在免费试用自动续费之前取消免费试用，考虑使用预付卡代替你的信用卡，正如这个 [Redditor 推荐的](https://old.reddit.com/r/lifehacks/comments/8njxrx/free_trial_that_needs_a_credit_card/) 。
 
-Watch
+
 
 这有两个原因:第一，如果你在它自动更新之前忘记取消，你不会损失任何钱，第二，这是保护你的隐私和安全的一个小方法，而在线购物。
 

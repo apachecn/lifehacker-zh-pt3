@@ -4,7 +4,7 @@
 
 入口即化的多汁汉堡是生活中最大的乐趣之一。如果你的馅饼经常变得又硬又干，这个聪明的方法可能会解决这个问题。
 
-Watch
+
 
 据主厨*评委 [格雷厄姆·艾略特](https://www.grahamelliot.com/) 称，超级多汁汉堡的秘诀就是一个普通的冰块。何 [向解释了一下为什么前阵子回](http://www.foxnews.com/food-drink/2015/06/05/ice-cube-for-better-burger-graham-elliots-bizarre-grilling-trick.html) :*
 

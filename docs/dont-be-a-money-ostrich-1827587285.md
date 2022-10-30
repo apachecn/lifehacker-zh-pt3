@@ -6,7 +6,7 @@
 
 哥本哈根商学院和哥伦比亚商学院的一份工作论文解释说，如果你像很多人一样，那很可能是在你期待对你所看到的感到满意的时候。如果你期待低余额，那么，你可能根本不想看到。
 
-Watch
+
 
 正如 [MarketWatch](https://www.marketwatch.com/story/when-it-comes-to-checking-financial-accounts-people-are-like-ostriches-2017-10-24) 所解释的，
 

@@ -4,7 +4,7 @@
 
 无论你是想专注于工作还是想哄自己入睡， [白噪声](https://lifehacker.com/ambient-noise-showdown-noisli-vs-white-noise-vs-rain-1783034698) 都是你可以使用的有用工具。现在 [智能声控音箱](https://lifehacker.com/dont-rely-on-your-smart-speaker-as-your-only-alarm-cloc-1822238074) 已经侵入我们的家庭，播放合适的一点 [环境音](https://lifehacker.com/whats-your-favorite-ambient-noise-app-1782695025) 比以往任何时候都要容易。
 
-Watch
+
 
 如果你有谷歌主页，亚马逊回声，或者你还在等待苹果的 HomePod，播放一些白噪音只是一个语音命令。以下是如何将您的智能家庭扬声器变成环境声音机器。
 

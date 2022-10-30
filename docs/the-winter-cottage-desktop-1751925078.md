@@ -4,7 +4,7 @@
 
 读者 [亚历克](http://kinja.com/stranaha) 使用了一点小魔法，让他的 mac 在坐下来工作时变得更友好，在起身离开时变得更有信息。他是这样安排一切的。
 
-Watch
+
 
 bersicht 是一个很有用的实用程序，我们在前面的 中已经强调过，它是一个轻量级的替代工具，可以替代 [等较重的工具，比如 GeekTool](http://lifehacker.com/build-an-attractive-informative-mac-desktop-with-geekt-5834676) 。它是这个设置的主干，但是如果你想自己复制它，这里有你需要的一切:
 

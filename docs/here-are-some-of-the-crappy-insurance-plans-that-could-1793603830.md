@@ -4,7 +4,7 @@
 
 [【基本福利】](https://www.healthcare.gov/coverage/what-marketplace-plans-cover/) 昨晚从医保法案中消失，该法案旨在让 [取代](https://lifehacker.com/tell-us-what-would-you-call-the-choice-that-house-repu-1793568664) 患者保护与平价医疗法案。如果该法案通过，健康保险计划将不再需要覆盖产妇护理。或者住院。或者急救护理。或者处方药。这意味着这些大约 2010 年可怕的健康计划可能会卷土重来！
 
-Watch
+
 
 雇主提供的保险计划往往相当不错，如果你足够幸运的话。但是如果你需要自己买保险，或者如果你为像麦当劳这样吝啬的雇主工作，你的计划可能覆盖的范围很小。
 

@@ -4,7 +4,7 @@
 
 获取足够的蛋白质是很重要的，不管你是想要健康的皮肤和指甲，还是想要减肥，还是想要变得强壮。但是“足够”可能是多吃几个鸡蛋和用蛋白奶昔冲下牛排的区别。以下是找出答案的方法。
 
-Watch
+
 
 ### **“官方指导方针”足以维持，但越多越好**
 
@@ -40,11 +40,7 @@ Watch
 
 **另一件要考虑的事情是，如果你正朝着一个更像运动员的体格努力，你会看到结合更高的蛋白质摄入量和举重项目的更好的结果。根据*体育科学杂志* 上的这篇 [综述，举重的努力给你的肌肉一个更强有力的信号，让你“坚持下来”，而不仅仅是吃大量的蛋白质。](http://www.tandfonline.com/doi/full/10.1080/02640414.2011.619204)**
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">**[![Image for article titled Your Complete Guide to Getting Enough Protein in Your Diet](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-free-foods-you-can-eat-to-stay-full-on-a-diet-1693374739) [###### 你可以通过吃“免费”食物来保持饱腹感](https://lifehacker.com/the-free-foods-you-can-eat-to-stay-full-on-a-diet-1693374739) 
 
-几乎所有的食物都含有卡路里，但有些食物的卡路里含量很低，所以它们不值得食用
-
-[Read more](https://lifehacker.com/the-free-foods-you-can-eat-to-stay-full-on-a-diet-1693374739)**</aside>
 
 ### **如果你想练出肌肉，你需要的比你想象的要少**
 

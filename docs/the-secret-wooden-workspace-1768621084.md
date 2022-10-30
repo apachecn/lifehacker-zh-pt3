@@ -4,7 +4,7 @@
 
 [史蒂文·威尔克](https://www.flickr.com/photos/stevenwilke/) 的地下室视频制作和编辑工作室是木质镶板，全部手工设计和建造，看起来棒极了。他把地下室的空间拉回到墙壁上来建造他梦想中的工作空间，最终的成品清晰可见。
 
-Watch
+
 
 如果你想知道嵌在墙上的老式自行车是怎么回事的话，史蒂文在专业工作时会去 High Wheel Productions。事实上， [他甚至有一个 Flickr 视频，展示了整个装修和设置](https://www.flickr.com/photos/stevenwilke/26088662071/in/pool-lifehacker-workspace-showandtell/) ，从他桌子的木材选择，托盘和回收木材在空间中的大量再利用，甚至他沿着墙壁放置 LED 灯条，然后用磨砂塑料覆盖它，使空间看起来发光，但可调节和可调光。
 

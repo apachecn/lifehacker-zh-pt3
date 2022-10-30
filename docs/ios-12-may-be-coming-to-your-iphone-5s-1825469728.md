@@ -4,7 +4,7 @@
 
 iOS:如果你仍然持有一部旧的 iPhone 5S，你很幸运:苹果可能会允许你在今年晚些时候推出这款五年前的智能手机时，将其升级到 iOS 12。
 
-Watch
+
 
 这个消息是由浏览器引擎 WebKit 中发现的一些 [代码引起的。Reddit](https://bugs.webkit.org/show_bug.cgi?id=181043#c4) 上分享的 [的脚本，似乎证实了苹果已经在](https://www.reddit.com/r/apple/comments/8dkwjs/looks_like_apple_will_release_ios_12_for_the/) [iPhone 5S](https://lifehacker.com/should-i-upgrade-to-the-iphone-5c-or-the-5s-1287508303) 上测试 iOS 12。该公司在让旧设备了解新的软件更新和重要的安全修复方面做得很好，但将 iOS 12 引入 iPhone 5S 将创下新纪录:在同一台设备上进行六次重大的 iOS 迭代。
 

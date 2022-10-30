@@ -4,7 +4,7 @@
 
 为了不再担心 Wi-Fi 问题，你愿意花多少钱？ [Eero 的](https://eero.com/?utm_source=Google&utm_medium=CPC&utm_term=eero&utm_campaign=G.SEM.US_BR.X_Brand&gclid=CjwKEAjw55K4BRC53L6x9pyDzl4SJAD_21V1lzvh1dhSrxB20i_vhnT-0O0ZQqaeR2h4ylp7qNAwQxoCSnvw_wcB) 打赌你会花 200 到 500 美元买一个永远不会坏、覆盖你整个房子、永远不需要重启的路由器。但是这种便利到底值多少钱呢？
 
-Watch
+
 
 对于非技术人员来说，路由器是出了名的问题。它们太复杂了，所以我们有一个 [五部分指南](http://lifehacker.com/know-your-network-the-complete-guide-5833254) 来指导你如何使用它们。埃罗想简化整个事情。设置 Eero 路由器只需要一个智能手机应用程序，不需要任何技术知识。一旦你设置了一个路由器，你可以将它与更多的路由器连接在一起，创建一个 [网状网络。通过这种方式，你可以轻松地用无线网络覆盖你的整个家，而无需使用扩展器或中继器。这也是为什么 Eero 有几种不同包装的原因，](https://en.wikipedia.org/wiki/Mesh_networking) [单个路由器售价 200 美元](http://www.amazon.com/eero-A010101-Home-WiFi-System/dp/B00Y01VRSO/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/a-500-router-and-the-price-of-convenience-1769530809&asc_source=&ie=UTF8&keywords=eero&qid=1459962713&s=pc&sr=1-2&tag=kinjalifehackerlink-20) ， [两个包装售价 350 美元](http://www.amazon.com/System-Individual-Packs-Amazon-Bundle/dp/B01D3P3HZ8/ref=sr_1_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/a-500-router-and-the-price-of-convenience-1769530809&asc_source=&ie=UTF8&keywords=eero&qid=1459962713&s=pc&sr=1-3&tag=kinjalifehackerlink-20) ，以及 [三个包装售价 500 美元](http://www.amazon.com/eero-Home-WiFi-System-Pack/dp/B00XEW3YD6/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/a-500-router-and-the-price-of-convenience-1769530809&asc_source=&ie=UTF8&keywords=eero&qid=1459962713&s=pc&sr=1-1&tag=kinjalifehackerlink-20) 。
 

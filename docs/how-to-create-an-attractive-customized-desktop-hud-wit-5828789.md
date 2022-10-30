@@ -4,7 +4,7 @@
 
 Rainmeter 是一个强大的工具，让您创建一个美丽的，信息丰富的平视显示器，跟踪您的系统状态，RSS 提要和其他大量的信息。以下是如何使用它来为你的 Windows 桌面制作一个令人敬畏的、类似钢铁侠的 HUD。
 
-Watch
+
 
 <small>***更新** :*</small> [<small>*雨量计 4.0*</small>](https://www.rainmeter.net/release-4-0)<small>*本周早些时候掉了，所以我们决定大修我们的初学者指南。你可以查看这篇文章来了解更多关于*</small>[<small>*4.0 中所有可爱的新功能，包括矢量图形、更简单的皮肤创建等等。*T29】</small>](http://lifehacker.com/rainmeter-4-0-is-now-available-packs-in-new-skin-creat-1790714436)
 

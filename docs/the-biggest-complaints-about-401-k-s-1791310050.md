@@ -4,15 +4,11 @@
 
 为退休储蓄很像去看牙医。我们都知道应该去做，但是很容易拖延，因为很痛苦，很无聊。尽管投资令人生畏，但 401(k)是一个很好的开始，也是一个很好的储蓄动力 。然而，401(k)计划远非完美。
 
-Watch
+
 
 首先，尽管人们普遍抱怨 401(k)计划，但如果你的雇主提供了一个，你应该 [报名参加](https://lifehacker.com/should-i-put-money-into-my-employers-401-k-or-invest-o-1665628446) 。许多雇主提供*匹配*，这意味着他们将 [匹配你在 401(k)计划中储蓄](http://lifehacker.com/double-your-investments-guaranteed-why-you-shouldnt-p-33062119#_ga=1.129848076.163606535.1484697077) 的一定百分比，在一定程度上。那是免费的钱，所以你想拿多少就拿多少。换句话说，你想存够钱来最大化匹配。它们可能不完美，但总比没有好，对许多人来说，这是另一种选择。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Biggest Complaints About 401(k)s](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/should-i-put-money-into-my-employers-401-k-or-invest-o-1665628446) [###### 我应该把钱投入雇主的 401(k)计划还是自己投资？](https://lifehacker.com/should-i-put-money-into-my-employers-401-k-or-invest-o-1665628446) 
 
-亲爱的 Lifehacker，我想为将来存一点东西，但是我已经听到很多…
-
-[Read more](https://lifehacker.com/should-i-put-money-into-my-employers-401-k-or-invest-o-1665628446)</aside>
 
 ### 费用太高了
 

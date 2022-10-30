@@ -4,7 +4,7 @@
 
 预计美联储将在 2018 年三次上调短期利率，这对储户来说是个好消息。
 
-Watch
+
 
 根据 [Bankrate](https://www.bankrate.com/finance/mortgages/interest-rates-forecast.aspx) 的说法，加息可能会导致更好的储蓄和存款利率，包括某些储蓄账户的收益率约为 2.3%，5 年期存款利率到年底将达到 3%。这不会让你变得富有，但这是对 2017 年的升级，当时 [高收益账户](https://www.nerdwallet.com/banking/best-savings-accounts) 的最高收益率为 1.4%。
 

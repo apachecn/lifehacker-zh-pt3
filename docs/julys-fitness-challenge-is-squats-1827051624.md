@@ -4,7 +4,7 @@
 
 准备好强健的双腿和挺拔的臀部吧，因为七月的 [健身挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 是深蹲！这是经典的下半身锻炼，原因如下: [深蹲可以锻炼 wais](https://vitals.lifehacker.com/why-squats-are-the-best-strength-building-exercise-for-1760732712#_ga=2.267849289.610684105.1529333242-1456718367.1520458611) t 以下的几乎每一块肌肉，而且各种健身水平都有很多种变化。
 
-Watch
+
 
 选择你这个月最喜欢的蹲姿，或者把它们混合起来。你可以在健身房的架子上做负重深蹲，或者在刷牙的时候做空气深蹲。也许是时候朝着你的第一把 [手枪蹲下](https://vitals.lifehacker.com/get-serious-about-strength-and-balance-with-one-legged-1750422621) 努力了。
 

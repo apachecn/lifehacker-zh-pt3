@@ -4,7 +4,7 @@
 
 **Android/iOS:** 谷歌正式推出了其 Gboard 虚拟键盘的 7.5 版本，随之而来的是一个全新的功能，让你可以根据你的面部创建个性化的贴纸，可以用于短信和任何支持贴纸的应用程序。
 
-Watch
+
 
 对于那些玩过 Bitmoji 或 [谷歌 Allo 的自拍贴纸](https://lifehacker.com/google-allos-selfie-stickers-are-cool-but-dont-get-too-1795168475) 的人来说，Gboard Minis 听起来可能是一个熟悉的功能，但 mini 与这些不同，它使用机器学习来基于你拍摄的自拍创建大量的情感贴纸。有些人可能也看到了苹果即将在 iOS 12 中推出的 Memoji 功能的相似之处，但 Gboard Minis 的不同之处在于，它们不仅是 2D 和 Memoji 是 3D 的，还可以在任何支持 Gboard 7.5(包括 iOS)的设备上制作，而 Memoji 只适用于 iPhone X 或更高版本的设备。
 

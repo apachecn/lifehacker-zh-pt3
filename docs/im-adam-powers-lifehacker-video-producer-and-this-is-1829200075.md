@@ -4,7 +4,7 @@
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是亚当·鲍尔斯，这就是我的工作方式。
 
-Watch
+
 
 * * *
 
@@ -25,7 +25,7 @@ Watch
 
 在一整天的拍摄后，我们把相机和设备装回到电梯和 Ubers 里，在傍晚的细雨中，穿过城镇前往我们在纽约基督教青年会游泳池的第二次拍摄。我们正在为我们的 [《成人学习》第三集](https://lifehacker.com/how-to-learn-to-swim-as-an-adult-1828577309)拍摄最后一节游泳课。即使在将近 12 个小时的拍摄后，在如此靠近水边的地方拿着相机仍然令人兴奋。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled I&#39;m Adam Powers, Lifehacker Video Producer, and This Is How I Work](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-learn-to-swim-as-an-adult-1828577309)</aside>
+
 
 #### 你生活中离不开哪些应用程序、小工具或工具？
 

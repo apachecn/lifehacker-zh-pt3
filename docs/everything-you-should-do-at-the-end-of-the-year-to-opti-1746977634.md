@@ -4,7 +4,7 @@
 
 这应该是一年中最美好的时光，所以税收可能是你最不想考虑的事情。在啜饮蛋奶酒和包装礼物之间，这不是最令人兴奋的事情，但如果你能在 12 月 31 日之前挤出一些税收举措，这将使 4 月的税收季不那么令人头疼。下面是一些年终行动，让你在 2015 年最大限度地利用税收，并保持有条理。
 
-Watch
+
 
 ### 优化你的扣除
 
@@ -38,11 +38,7 @@ Watch
 
 如果你担心审计，你可能也想现在就开始 [审查一个专业的报税人](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487) 。从一月到四月，税务专业人士忙得不可开交。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Everything You Should Do at the End of the Year to Optimize Your 2015 Taxes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487) [###### 我如何找到一个好的税务专业人士？](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487) 
 
-亲爱的生活黑客，在考虑了我是否应该准备自己的税之后，我决定
-
-[Read more](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487)</aside>
 
 ### 增加你的退休储蓄
 
@@ -60,11 +56,7 @@ Watch
 
 从政府那里拿回钱感觉很棒，但这也意味着你这一年多付了钱。这并不像很多人喜欢说的那样是什么大不了的事情，但是如果你宁愿一年到头都把钱放在口袋里(谁不想呢？)，很容易 [搞定你的退](https://lifehacker.com/how-do-i-avoid-owing-money-or-getting-a-huge-refund-on-5890480) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Everything You Should Do at the End of the Year to Optimize Your 2015 Taxes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-avoid-owing-money-or-getting-a-huge-refund-on-5890480) [###### 我如何避免欠钱或获得巨额退税？](https://lifehacker.com/how-do-i-avoid-owing-money-or-getting-a-huge-refund-on-5890480) 
 
-亲爱的生活黑客，每年，我做我的税，我结束欠的钱，我不明白为什么！我
-
-[Read more](https://lifehacker.com/how-do-i-avoid-owing-money-or-getting-a-huge-refund-on-5890480)</aside>
 
 你只需要更新你的 [W-4 表格](https://www.irs.gov/pub/irs-pdf/fw4.pdf) 并调整你申请的津贴数量。一般来说，如果你得到退款，这意味着你没有申请足够的津贴。TurboTax 有一个 [便捷的预扣计算器](https://turbotax.intuit.com/tax-tools/calculators/w4/) ，可以让你摆弄数字，看看你想要申请多少津贴。从那里开始，就像填写一份新表格并提交给你的雇主一样简单。
 

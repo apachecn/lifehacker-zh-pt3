@@ -4,7 +4,7 @@
 
 无论你对自己的工作有多满意，我们都愿意打赌你对自己的年度绩效评估毫无兴趣。你知道在日历年年底经常发生的通过仪式，你和你的经理坐下来，确定你对公司的贡献，你的未来目标是否一致，你是否超出了预期，以及是否有可能升职加薪。
 
-Watch
+
 
 *本帖原载于*[*learn vest*](https://www.learnvest.com/2016/12/5-insider-tips-for-scoring-big-at-your-performance-review/)*。*
 

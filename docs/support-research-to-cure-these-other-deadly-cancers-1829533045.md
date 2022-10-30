@@ -4,7 +4,7 @@
 
 乳腺癌是常见的，也可能是毁灭性的，但它比许多其他癌症得到了更多的媒体关注。当你掏出钱包去买一些粉红色的首饰时，这里有几个需要一点爱的理由。
 
-Watch
+
 
 以下数字来自 [美国国家癌症研究所的常见癌症列表](https://www.cancer.gov/types/common-cancers) ，加上一些来自美国临床肿瘤学会 的皮肤癌 [信息。我们按照它们每年导致多少人死亡的顺序对它们进行了排名，并推荐了一些专注于研究的相关慈善机构。如果你不能决定，还有美国癌症协会的。](https://www.cancer.net/cancer-types/skin-cancer-non-melanoma/statistics)
 

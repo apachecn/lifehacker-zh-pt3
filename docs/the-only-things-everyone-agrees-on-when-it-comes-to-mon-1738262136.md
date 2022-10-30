@@ -4,7 +4,7 @@
 
 个人理财就像 [营养](http://vitals.lifehacker.com/the-only-three-things-everybody-agrees-on-when-it-comes-1709039566) :这个领域的专家似乎在任何事情上都无法达成一致，无论是 [设立应急基金](https://lifehacker.com/money-advice-not-everyone-agrees-on-emergency-funds-1589580471) 还是 [提前还清你的房贷](http://twocents.lifehacker.com/money-advice-the-experts-don-t-agree-on-paying-off-you-1607494999) 。尽管有各种相反的观点，但是大多数人至少在五个基本原则上是一致的。
 
-Watch
+
 
 金钱管理可能看起来很复杂，因为我们听到了相互矛盾、不断变化的建议(把你收入的 10%存起来！不，省 15%！先还你的高息信用卡！不，支付最小余额！)，但是个人理财其实挺简单的。在阅读(或重读)了一些最受欢迎的关于个人理财的书籍和其他理财专家的经典建议后，我意识到他们实际上只争论细节——花多少钱或存多少钱，在哪里(用我的计划！不，用我的！)—但他们的建议一般可以归结为:用钱来实现财务独立，知道你的钱去了哪里，避免昂贵的债务，使用复利的力量。
 
@@ -60,11 +60,7 @@ Watch
 
 **(好的方式爆炸。)** 
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">**[![Image for article titled The Only Things Everyone Agrees On About Money](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906) [###### 被误解的金钱数学:为什么利息比你想象的更重要](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906) 
 
-兴趣很可能是普通人必须使用的最复杂的数学工具…
-
-[Read more](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906)**</aside>
 
 **以上都是关于金钱的非常基本、简单的原则，这就是为什么几乎每个人都同意这些原则。尽管理财建议通常都是一样的，但这并不意味着继续阅读个人理财书籍的价值会打折扣。给出一些建议的方式会比其他专家的建议更吸引你，一个计划或策略可能比其他的更适合你。记住，财务上的成功不仅仅是数学上的，还有心态上的。这也是大多数人都知道的关于钱的事情，但是可能不会经常想到。** 
 

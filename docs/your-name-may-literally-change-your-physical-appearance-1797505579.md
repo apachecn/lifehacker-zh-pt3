@@ -4,7 +4,7 @@
 
 我们知道，我们的名字可能会影响我们生活的每一个方面——我们住在哪里，我们参加的学校课程，我们取得的 [成绩](http://www.ncbi.nlm.nih.gov/pubmed/18031419) ，我们选择的 [工作](http://pss.sagepub.com/content/19/10/1059.extract) ，我们得到的 [工作被召回](https://mic.com/articles/91061/what-s-in-a-name-turns-out-your-entire-future#.ldDr5nOLD)[我们在这些工作中走了多远](http://www.businessinsider.com/how-your-name-affects-your-success-2015-8) 现在有证据表明，我们的名字也会影响我们的长相。
 
-Watch
+
 
 我说的是我们真实的面孔。在发表于《个性与社会心理学杂志》[](http://psycnet.apa.org/?&fa=main.doiLanding&doi=10.1037/pspa0000076)*的一项研究中，研究人员发现，人们能够以惊人的准确度将陌生人的名字与面孔匹配起来。巴黎萨克莱大学的安妮-劳雷·塞利耶在对话中写下了她的团队的发现:*
 

@@ -4,7 +4,7 @@
 
 MoviePass 今天宣布了他们几乎所有你能看的电影订阅的新低价。在有限的时间内， [你可以以每月 6.95 美元](https://www.businesswire.com/news/home/20180323005347/en/MoviePass%E2%84%A2-Lowers-Price-6.95-Month) 的价格注册 MoviePass，这个价格 [在](https://lifehacker.com/moviepass-drops-price-to-6-95-a-month-for-a-limited-ti-1820550734) 之前他们只提供过一次。如果你还没有屈服，现在可能是时候了。
 
-Watch
+
 
 每月只需 7 美元，就能每天在电影院看一部电影，这很棒，但也有一些警告。首先，MoviePass 试图吸引更多的顾客，所以 6.95 美元的价格只适用于新注册的 T3。此外，要获得新的定价，你必须注册一个年度订阅，并支付一次性处理费 6.55 美元。总的来说，这一年的费用不到 90 美元。相比之下，比方说，一个月只看一场电影，票价 15 美元，你要花 180 美元。不错吧，嗯？最后，这个订阅价格不包括电影流媒体服务 Fandor。 [MoviePass 曾向 Fandor 提供每月 7.95 美元的](https://lifehacker.com/moviepass-subscriptions-are-now-7-95-and-come-with-fan-1822898410#_ga=2.112812546.782414122.1521467848-819016074.1513967708) 打包服务，但现在情况不同了。不用说，目前 6.95 美元的交易可能不会持续太久，所以要趁热打铁。
 

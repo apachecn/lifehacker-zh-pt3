@@ -4,7 +4,7 @@
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周，我想和你们谈谈其他的白肉，从熏肉到多汁的排骨。
 
-Watch
+
 
 猪肉可能是用途最广的肉类。从一种动物身上，你可以得到早餐肉、排骨、烤肉和肉丸。就连头部也让 [成为令人愉悦的](https://skillet.lifehacker.com/will-it-sous-vide-the-head-of-a-pig-1797683697) (以及后来的 [成为令人毛骨悚然的装饰品](https://lifehacker.com/how-to-clean-animal-bones-so-that-you-may-proudly-displ-1798191351) )。我太爱猪肉了， [我 30 岁的时候烤了一整只猪](https://www.instagram.com/p/BIyTiaHBOoc/?taken-by=clairelizlower) 。我想从你那里听到的是你绝对最好的猪肉食谱、秘诀和窍门。像往常一样，我有一些问题要问你。
 

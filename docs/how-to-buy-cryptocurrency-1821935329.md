@@ -4,7 +4,7 @@
 
 所以你准备买一些 [加密货币](https://lifehacker.com/consider-these-digital-currency-exchange-alternatives-t-1821787464) 。也许你一直在研究 [区块链科技](https://gizmodo.com/whats-the-blockchain-and-why-does-bitcoin-depend-on-it-1698025216) ，你确信它真的是未来。或者，你可能看到一个朋友通过比特币变得富有，但你仍在为自己没有这么做而自责。
 
-Watch
+
 
 无论哪种方式，购买比特币或其他许多加密货币中的一种都可能很容易，甚至很有趣。只是不要抱着一夜暴富的期望去投资，只投资那些没有 也能活下去的 [。也就是说，下面是你需要知道的开始。](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=3&ved=0ahUKEwjW5KD0pZ7YAhVGMd8KHTePAW0QFgg1MAI&url=https%3A%2F%2Flifehacker.com%2Fonly-buy-bitcoin-if-youre-ready-to-lose-it-1820006087&usg=AOvVaw2q_13ds2Be1JzGvFiu_4ts)
 

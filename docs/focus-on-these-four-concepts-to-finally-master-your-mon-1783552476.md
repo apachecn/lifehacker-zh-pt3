@@ -4,7 +4,7 @@
 
 任何提高了理财技巧的人都会告诉你:这与规则无关。好吧，规则很重要，但它们远没有你的 [习惯和行为](https://lifehacker.com/the-six-ways-your-financial-behavior-is-manipulated-1722576526) 重要。在探索了自己与金钱的关系并写了五年之后，我明白了它可以归结为四个基本因素:控制、谨慎决策、平衡和足智多谋。
 
-Watch
+
 
 ### 控制感让你感觉强大
 

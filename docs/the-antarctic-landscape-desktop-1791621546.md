@@ -4,7 +4,7 @@
 
 读者赛法利过去曾向我们的 [桌面展示区](http://kinja.com/tag/desktop-showcase) 提交过桌面，但这是一个全新的外观，我们喜欢它。如果你也喜欢它——或者只是喜欢其中的南极风景——以下是如何让你的电脑也有同样的外观。
 
-Watch
+
 
 Saifali 正在使用 rainmet 来获得这种外观，我们刚刚更新了我们的指南 [使用 rainmet](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789)定制您的 Windows PC，如果您有兴趣亲自尝试的话。这是一本很好的入门书，可以帮助你了解这个应用的来龙去脉，并开始构建一个可以与我们分享的桌面！
 

@@ -4,7 +4,7 @@
 
 两名患有癌症的女性——其中一名已经去世——[最近在与爽身粉制造商](http://www.cnn.com/2017/10/23/health/johnson-and-johnson-talcum-powder-trial-verdict-overturned/index.html) 的诉讼中败诉，此前法官判定她们没有证明爽身粉导致了她们的癌症。那么这种东西到底会不会致癌呢？原来这是一个很难回答的问题。
 
-Watch
+
 
 ### 爽身粉里到底有什么？
 

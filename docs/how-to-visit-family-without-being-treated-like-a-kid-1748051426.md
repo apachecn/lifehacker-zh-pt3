@@ -6,7 +6,7 @@
 
 当你回家探亲时，大量的童年记忆会随着一些旧的家庭动态一起涌上心头。一些动态，像内部笑话或古老的传统，是令人欣慰和伟大的。但是其他的，比如取笑，纵容，或者人们不把你当回事——就不那么回事了。你现在可能是一个完全成熟的成年人，但父母和兄弟姐妹会让你觉得你又回到了八岁。
 
-Watch
+
 
 这些年来，你可能已经改变了很多，很有可能你已经努力成长为今天的你。回家见家人不应该意味着否认你已经成为了什么样的人，但是当你被和你一起长大的人包围时，你很难不回到你以前的模式和家庭角色。起初，被当作孩子看待似乎并不坏，但只要一件事就能提醒你，作为孩子，你也有很多不喜欢的事情。也许你是最小或中间的孩子，在成长过程中不断被其他兄弟姐妹 折磨。或者可能是父母从来没有费心去尝试和你达成一致或者认真对待你的某些事情。不管是什么，如果你想在家里被当作成年人对待，你可以做很多事情。
 
@@ -52,10 +52,6 @@ Watch
 
 当所有其他方法都失败时，你应该有一个逃脱计划，这样你就可以重新评估事情，并提醒自己你通常是如何行动的。马林解释说，在这种情况下，自我护理非常有帮助，所以尽量走出家门，锻炼身体，或者去看看朋友。如果你平时有时间阅读，那就在家里或者附近的咖啡店找时间。如果你喜欢看你最喜欢的节目来恢复，躲进房间，放上你朋友的 DVD(我个人的策略)。无论你平时做什么来照顾自己，让自己在成年生活中保持理智，不要因为你回到家人身边就忘记了。注意不要把自己完全拒之门外，但是至少要有一个计划来应对困难。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Visit Family Without Being Treated Like a Kid](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-have-happy-holiday-seasons-living-far-from-famil-1668601932) [###### 如何过一个远离家人的快乐假期](https://lifehacker.com/how-to-have-happy-holiday-seasons-living-far-from-famil-1668601932) 
 
-我们和家人一起庆祝节日，但是在我们搬走后，就更多了…
-
-[Read more](https://lifehacker.com/how-to-have-happy-holiday-seasons-living-far-from-famil-1668601932)</aside>
 
 [*<small>瓦妮莎·马林</small>*](http://vmtherapy.com/) *<small>是一名有执照的心理治疗师(婚姻和家庭治疗师#78931)，是一名作家，为</small>*[*<small>life hacker 的业余时间</small>*](http://afterhours.lifehacker.com/) *<small>子博客撰稿。我们感谢她花时间帮助我们完成这篇文章。</small>*

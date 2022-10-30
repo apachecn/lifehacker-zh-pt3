@@ -4,7 +4,7 @@
 
 玛丽·罗奇想让你不舒服，但是很感兴趣。她的书研究了管理人体的意想不到的、好奇的细节，以及我们如何应对自身局限性的科学。
 
-Watch
+
 
 有时候，这些限制因为极端的情况而被置于最前沿，就像在她的书 [为火星](https://www.amazon.com/Packing-Mars-Curious-Science-Life/dp/0393068471?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-mary-roach-and-this-is-how-i-work-1784666935&asc_source=&tag=kinjalifehackerlink-20) 打包中，罗奇探索了长期太空飞行实际上会是什么样的——从太空食物到太空厕所。她还在 [Bonk](https://www.amazon.com/Bonk-Curious-Coupling-Science-Sex/dp/0393064646?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-mary-roach-and-this-is-how-i-work-1784666935&asc_source=&ie=UTF8&qid=1207329660&ref_=pd_bbs_sr_1&s=books&sr=8-1&tag=kinjalifehackerlink-20) 中写了关于性的科学，在 [【僵硬】](https://www.amazon.com/Stiff-Curious-Lives-Human-Cadavers/dp/0393324826?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-mary-roach-and-this-is-how-i-work-1784666935&asc_source=&ie=UTF8&qid=1199255019&ref_=pd_bbs_2&s=books&sr=8-2&tag=kinjalifehackerlink-20) 中写了关于尸体的奇特来世，并在中探索了我们的内部运作。她的新书是 [Grunt:战争中人类好奇的科学](https://www.amazon.com/Grunt-Curious-Science-Humans-War/dp/0393245446?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-mary-roach-and-this-is-how-i-work-1784666935&asc_source=&tag=kinjalifehackerlink-20) ，罗奇在书中指导我们如何成为一名士兵。战争使人类的身体超出正常的生存预期，要求研究人员找到新的方法来应对战场上固有的无限挑战:炎热、疲惫、心理压力，以及我们如何处理善后工作。
 

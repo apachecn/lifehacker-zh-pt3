@@ -4,7 +4,7 @@
 
 你在工作中处于最佳状态，一切都感觉正常——然后突然，你发现你的职责清单发生了巨大的变化。我知道这很不和谐。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/what-to-do-when-your-job-changes-overnight) *。*
 

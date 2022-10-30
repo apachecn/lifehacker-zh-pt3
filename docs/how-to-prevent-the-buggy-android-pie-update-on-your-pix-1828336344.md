@@ -4,7 +4,7 @@
 
 如果你是 Pixel XL 用户，并且一直在拖延更新你的手机到 Android Pie，你可能想要完全推迟。
 
-Watch
+
 
 [根据众多用户报告](https://forum.xda-developers.com/pixel-xl/help/fast-charging-stop-android-p-update-t3807201) ，最近的 Android Pie 首次展示正在阻止 Pixel XLs 快速充电，即使当快速充电兼容电缆插入适当的电源时。
 

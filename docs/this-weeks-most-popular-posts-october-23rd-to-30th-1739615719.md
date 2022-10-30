@@ -4,7 +4,7 @@
 
 我们的年度邪恶周系列有点黑暗——我们上了一堂关于秘密公开放屁的课，学习了如何远程监控计算机和创建一个无法追踪的消息设备，但也看了一些更无害的技巧。这里回顾一下。
 
-Watch
+
 
 ## [Xbox One vs PlayStation 4:两年后](http://lifehacker.com/xbox-one-vs-playstation-4-two-years-later-1738166534)
 

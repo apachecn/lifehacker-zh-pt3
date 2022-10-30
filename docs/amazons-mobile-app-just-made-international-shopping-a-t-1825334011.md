@@ -4,7 +4,7 @@
 
 亚马逊 [周二](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/amazons-mobile-app-just-made-international-shopping-a-t-1825334011&asc_source=&node=17052338011&tag=kinjalifehackerlink-20) 更新了它的移动应用程序，让你在另一个国家购物时更加方便。
 
-Watch
+
 
 该应用的新版本允许你用五种不同的语言(英语、西班牙语、简体中文、巴西葡萄牙语和德语)浏览亚马逊，并查看 25 种当地货币的商品价格，因此无论你用哪种当地货币支付，你都会知道你在支付什么， [报道 *The Verge*](https://www.theverge.com/2018/4/17/17246564/amazon-international-mobile-languages-currency-shipping-import-fees-customs-app) 。
 

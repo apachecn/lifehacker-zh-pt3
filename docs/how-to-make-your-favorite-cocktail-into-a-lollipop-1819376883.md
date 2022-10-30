@@ -4,7 +4,7 @@
 
 随着万圣节的临近，会有很多关于自制士力架或 DIY 玉米糖的讨论。我通常不去碰那些东西，因为士力架已经很完美了。如果我要做自己的糖果，我希望它是独一无二的，特别的，为什么不呢？—嗜酒。
 
-Watch
+
 
 别搞错了，这不是不给糖就捣蛋碗的料。这是一种奇特的棒棒糖，由我的三个好朋友制成:杜松子酒、苦艾酒和金巴利酒。你听到我说的了:我们在谈论一个尼格罗尼棒棒糖。虽然我在尼格罗尼部门有丰富的经验，但我并不精通硬糖制作，所以我联系了糖果女王——和 [书作者](https://www.amazon.com/Candy-Magic-Ingredients-Modern-Recipes/dp/0399578390?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-make-your-favorite-cocktail-into-a-lollipop-1819376883&asc_source=&tag=kinjalifehackerlink-20)——伊斯兰大教堂·科尔，波特兰自己的 [奎恩糖果](http://www.quincandy.com/) 的所有者。
 

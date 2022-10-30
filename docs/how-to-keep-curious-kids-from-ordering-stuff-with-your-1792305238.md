@@ -4,7 +4,7 @@
 
 如果你认为只用你的声音就能 [买东西是很棒的](https://lifehacker.com/the-alexa-skills-that-are-actually-worth-using-1791616099) ，对金钱没有概念的孩子们会认为这是不可思议的。这里有一些方法可以让好奇的孩子不要把你的亚马逊 Echo 当成现实生活中的圣诞老人。
 
-Watch
+
 
 ### 设置购买确认码
 

@@ -4,13 +4,9 @@
 
 两个月前，我带着行李箱和笔记本电脑，准备开始流浪生活，因为我知道我也要告别正规的健身房了。但是健康对我来说很重要，所以我不得不使用最重要的“装备”:我自己的身体。我成功了，你也可以。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How I Went From Weight Lifting to Bodyweight Exercises and Still Gained Strength](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/are-bodyweight-exercises-effective-1684200011) [###### 体重练习有效吗？](https://lifehacker.com/are-bodyweight-exercises-effective-1684200011) 
 
-亲爱的生活黑客，我喜欢不用额外设备就能锻炼身体的想法，但是有些…
 
-[Read more](https://lifehacker.com/are-bodyweight-exercises-effective-1684200011)</aside>
 
 起初，我对取得进展持怀疑态度。我曾经认为体重训练是懦弱的——我想要拥有强壮身体的唯一方法就是去健身房举重。尽管如此，我还是奋力向前。为了科学(也为了我自己的方便)。
 

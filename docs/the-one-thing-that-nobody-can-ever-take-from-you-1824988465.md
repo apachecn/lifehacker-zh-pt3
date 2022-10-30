@@ -4,7 +4,7 @@
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 
-Watch
+
 
 本周的精选来自爱比克泰德的*演讲*。在 [第二册，第十章](http://classics.mit.edu/Epictetus/discourses.2.two.html) 中，他告诉我们，除了我们自己不可战胜的意志，我们没有更大的力量:
 

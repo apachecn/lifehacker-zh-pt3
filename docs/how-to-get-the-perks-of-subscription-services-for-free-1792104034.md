@@ -4,7 +4,7 @@
 
 一些订阅服务是值得的(你可以从我冰冷的手里撬开网飞)，但对于这个月的金钱挑战，我们挑战你通过抛弃你不使用或不需要的订阅 来 [省钱。为了帮助你，这里有一些方法可以免费获得一些流行的订阅服务，如健身房会员和有线电视。](https://lifehacker.com/february-s-money-challenge-ditch-your-old-unused-subs-1791828689)
 
-Watch
+
 
 ### 创建你自己的餐包
 

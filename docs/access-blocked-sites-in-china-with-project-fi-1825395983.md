@@ -4,7 +4,7 @@
 
 Android:[Project Fi](https://lifehacker.com/google-fis-new-bill-protection-is-perfect-if-you-only-1822166834)已经让你在世界各地 [使用手机变得既便宜又容易](https://thepointsguy.com/2018/01/project-fi-data-fee-cap/) 而不需要在每个国家更换新的 SIM 卡，但是如果你计划去 [中国](https://lifehacker.com/avoid-huawei-zte-and-other-chinese-smartphones-1823010820) 旅行，有一个很大的理由去看看谷歌的服务。
 
-Watch
+
 
 Android Authority 的一名作家最近把他的 Fi 友好型手机带到中国，发现这项服务让他不用任何额外的软件就能绕过中国所有的互联网审查。中国政府屏蔽了一系列不同的网站，包括脸书、所有谷歌服务(Gmail、YouTube、谷歌地图、谷歌驱动等)以及各种新闻网站。大多数人通过 [使用 VPN](https://www.comparitech.com/blog/vpn-privacy/whats-the-best-vpn-for-china-5-that-still-work-in-2016/) 来欺骗他们的位置来解决这个问题，但是 Project Fi 显然也一样有效。
 

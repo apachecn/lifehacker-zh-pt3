@@ -4,7 +4,7 @@
 
 我和我的男朋友保持异地恋已经接近三年了。整个大学期间，我们基本上是形影不离的，但当毕业临近时，我们都获得了惊人的机会——在世界的另一端。
 
-Watch
+
 
 *本帖原载于* [*【金融饮食】*](http://thefinancialdiet.com/how-much-it-actually-costs-to-be-in-a-long-distance-relationship/) *。*
 

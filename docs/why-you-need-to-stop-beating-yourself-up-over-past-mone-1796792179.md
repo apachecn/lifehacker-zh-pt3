@@ -4,13 +4,9 @@
 
 几年前，我犯了一个巨大的财务错误。作为一名自由职业者，我全年都没有缴税，结果在 4 月份欠了美国国税局数千美元。我不仅一文不名，还觉得自己像个傻瓜。但问题是，在这种错误上打击自己会让你更有可能重蹈覆辙。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Why You Need to Stop Beating Yourself Up Over Past Money Mistakes](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-overcome-the-guilt-of-financial-mistakes-1609098356) [###### 如何克服财务错误的负罪感](https://lifehacker.com/how-to-overcome-the-guilt-of-financial-mistakes-1609098356) 
 
-我们都犯过财务错误，仅仅是拒付一张支票就能让你感到难以置信的内疚…
 
-[Read more](https://lifehacker.com/how-to-overcome-the-guilt-of-financial-mistakes-1609098356)</aside>
 
 我不知道你怎么想，但我因为错误而痛打自己的部分原因是，我觉得如果我对自己足够严格 ，我肯定不会犯同样的错误两次。研究显示并非如此。用这种方式惩罚自己实际上会让你*更有可能再次搞砸。*
 

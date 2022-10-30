@@ -4,7 +4,7 @@
 
 你可以用 iPhone 上的 [Siri](https://lifehacker.com/tell-siri-this-for-a-witty-response-1797172897) 做的 [最有用的事情之一就是口述一条短信并发送给一个朋友，但这也暴露了关于](https://lifehacker.com/hey-siri-is-a-massive-growing-list-of-everything-you-c-1784706119) [苹果软件助手](https://www.google.com/search?q=siri+lifehacker&oq=siri+lifehacker&aqs=chrome..69i57j69i60l2j0l2.3366j0j4&sourceid=chrome&ie=UTF-8) 的一个最令人讨厌的缺陷:Siri 在发音生僻的名字方面确实很糟糕。谢天谢地，如果你厌倦了听 Siri 一遍又一遍念错相同的名字，有一个解决办法。
 
-Watch
+
 
 [AppleInsider](http://appleinsider.com/articles/17/10/22/how-to-teach-siri-to-correctly-pronounce-names-on-your-iphone) 有一段视频指导如何纠正 Siri 的发音。请查看下面的内容，或者如果您现在不能观看视频，请继续阅读分步说明。
 

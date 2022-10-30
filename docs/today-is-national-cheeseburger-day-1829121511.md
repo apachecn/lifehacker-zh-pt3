@@ -4,7 +4,7 @@
 
 今天是全国芝士汉堡日，虽然我不太相信这些人为的美食假日——如果你爱自己，每天都是芝士汉堡日——但我确实喜欢一两个。这里有几个地方你可以买到便宜的(或者免费的)汉堡——还有煎饼！)今天:
 
-Watch
+
 
 *   [IHOP](https://markets.businessinsider.com/news/stocks/celebrate-national-cheeseburger-day-at-ihop-restaurants-with-a-free-side-of-pancakes-1027539928) :购买任意一款终极牛排汉堡，可免费获得两张煎饼。(因为谁不想要南瓜香料煎饼配汉堡呢？)详见 [他们的脸书事件](https://www.facebook.com/events/481389735676961/) 。
 

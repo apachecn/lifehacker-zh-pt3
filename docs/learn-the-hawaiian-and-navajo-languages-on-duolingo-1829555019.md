@@ -4,7 +4,7 @@
 
 刚好赶上 [土著民族日](https://en.wikipedia.org/wiki/Indigenous_Peoples%27_Day) ， [Duolingo](https://www.duolingo.com/) 正在推出两门针对濒危土著语言的课程，这两门课程都是由母语人士创作的。从今天开始，你可以使用该应用程序学习夏威夷土著人和 Diné人(更广为人知的是纳瓦霍族)所说的语言。
 
-Watch
+
 
 这两种语言都是现今仍在使用的语言，但能说流利英语的人已经不多了。从 19 世纪晚期开始，纳瓦霍儿童被送到寄宿学校，在那里他们被迫只说英语。夏威夷语 [同样在夏威夷学校](http://www.ahapunanaleo.org/index.php?/about/a_timeline_of_revitalization/) 被宣布为非法。说这两种语言的人都试图在他们的社区内教授语言，Duolingo 伙伴关系就是在这些努力的基础上发展起来的。
 

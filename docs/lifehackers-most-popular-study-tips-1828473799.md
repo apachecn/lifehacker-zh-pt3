@@ -4,7 +4,7 @@
 
 嗨！你不是来这里逃避学习的，是吗？嗯，至少当你结束这个小假期后，你会学会如何更好地学习。这些是 Lifehacker 在过去五年里最受欢迎的学习建议。
 
-Watch
+
 
 这是 Lifehacker 的新生迎新周！本周，我们将讲述如何摆脱夏日阴霾，进入秋季活动的闪电战，无论你是第一次走向校园，让你自己的孩子准备好上学，还是寻找在生活*的课堂上更有效率的方法。所以 velcro，收起你的捕兽器吧，学生们。课程现在开始。*
 
@@ -24,11 +24,7 @@ Watch
 
 但是我们在 Lifehacker 上对视频游戏音乐赞不绝口。我们喜爱 pixel platformer Celeste 的配乐，我们欣赏 Spotify 的游戏配乐门户。我们的读者也喜欢游戏音乐，这在我们收集的 [读者最喜欢的工作和学习音乐](https://lifehacker.com/the-lifehacker-work-playlists-your-ideal-music-for-get-1733478594) 中有所体现。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Lifehacker&#39;s Most Popular Study Tips](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-music-to-work-or-study-to-could-be-video-game-1542298206) [###### 工作或学习的最佳音乐可能是电子游戏的原声音乐](https://lifehacker.com/the-best-music-to-work-or-study-to-could-be-video-game-1542298206) 
 
-许多不同的声音可以让你在工作或学习时更有效率(尤其是音乐……
-
-[Read more](https://lifehacker.com/the-best-music-to-work-or-study-to-could-be-video-game-1542298206)</aside>
 
 ## 4.抽认卡应用
 

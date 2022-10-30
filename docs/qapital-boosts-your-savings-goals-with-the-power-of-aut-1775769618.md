@@ -4,13 +4,9 @@
 
 你可能很熟悉“ [保持变化](https://lifehacker.com/top-10-ways-to-trick-yourself-into-saving-money-397006) ”的程序。您的购买金额四舍五入到最接近的美元，差额自动存入您的储蓄账户。储蓄 app [Qapital](https://www.qapital.com/) 就是基于这个想法，但它将自动化提升到了一个全新的水平。它可以让你把几乎任何事情都变成储蓄触发器，这样你就可以同时为一个目标而储蓄，并养成良好的理财习惯。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Qapital Boosts Your Savings Goals With the Power of Automation](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/top-10-ways-to-trick-yourself-into-saving-money-397006) [###### 欺骗自己省钱的 10 大方法](https://lifehacker.com/top-10-ways-to-trick-yourself-into-saving-money-397006) 
 
-良好的资金管理是一种自我调节和专注于长期目标的精神锻炼，
 
-[Read more](https://lifehacker.com/top-10-ways-to-trick-yourself-into-saving-money-397006)</aside>
 
 ### 卡塔尔投资局的运作方式
 

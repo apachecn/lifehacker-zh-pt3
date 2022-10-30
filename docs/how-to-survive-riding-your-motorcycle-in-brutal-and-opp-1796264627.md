@@ -4,7 +4,7 @@
 
 如果你可以选择，你可能不会选择在极热的天气里骑车。但是你并不总是有选择的余地，比如当你外出旅行，需要尽快回家的时候。假设脱去层层防护装备不是一个选项——就本次讨论的目的而言，它不是——当你所骑的路面正在融化时，你如何保持冷静？
 
-Watch
+
 
 ## 准备好
 
@@ -28,11 +28,7 @@ Watch
 
 我现在的自行车是一辆 [本田 VFR800](https://jalopnik.com/how-the-honda-vfr800-kept-me-on-motorcycles-1793309189) ，它有一个低矮、活泼的整流罩气泡，看起来很酷，但对挡风几乎没有任何作用，甚至带有蹩脚通风口的头盔在上面也比在机翼上工作得更好。夹克开衩是另一回事；VFR 的螳螂骑行姿势让我向前倾斜，足以让我的一些夹克的通风口迎风倾斜，或者部分关闭，而其他的似乎不受影响。在炎热的天气里，如果可以选择的话，我还是会选择更短的屏幕。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--jalopnik" data-commerce-source="inset">[![Image for article titled How To Survive Riding Your Motorcycle In Brutal And Oppressive Summer Heat](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://jalopnik.com/how-the-honda-vfr800-kept-me-on-motorcycles-1793309189) [###### 本田 VFR800 如何让我骑摩托车](https://jalopnik.com/how-the-honda-vfr800-kept-me-on-motorcycles-1793309189) 
 
-*这是我两年来每一次乘坐的脚本:开始是一点点疼痛，…*
-
-*[Read more](https://jalopnik.com/how-the-honda-vfr800-kept-me-on-motorcycles-1793309189)*</aside>
 
 *你当然不会为了寒冷的天气买一辆自行车，为了炎热的天气买另一辆，骑行装备是一个不可预测的变量，直到你路试它。但是不管你骑什么，穿什么，在炎热的天气里，你都可以做些事情来保持舒适和安全。保持水分是最重要的，也是最常被忽视的。*
 

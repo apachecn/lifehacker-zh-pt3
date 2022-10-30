@@ -4,7 +4,7 @@
 
 想知道那个修理东西的承包商带着什么吗？在 Cool Tools，住宅承包商 Paul Abueva 分享他的包。
 
-Watch
+
 
 该包是一个 [整理工具带组](https://www.amazon.com/exec/obidos/ASIN/B000V2GZWO?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-contractors-bag-1791777566&asc_source=&tag=kinjalifehackerlink-20) ，值得注意的是，它有左手和右手版本。这是里面的内容，但请务必前往 [酷工具](http://kk.org/cooltools/whats-in-my-bag-paul-abueva/) 获取每一项的更详细解释:
 

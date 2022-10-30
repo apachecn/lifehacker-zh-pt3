@@ -4,7 +4,7 @@
 
 假设你还在脸书——如果你本周 [删除了服务](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) 也完全没关系，真的是这样——该公司刚刚发布了其 Messenger 应用程序的新更新，让你和你的朋友在群组对话中拥有更多权力(无论是谁发起的)。它是这样工作的。
 
-Watch
+
 
 ### 向不速之客展示你的新管理能力
 

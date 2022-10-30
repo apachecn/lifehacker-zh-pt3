@@ -6,7 +6,7 @@
 
 “化学品”这个词让很多人感到恐惧，尤其是当它与他们放入体内的东西有关时。然而，你吃的所有东西都是由化学物质组成的，真的没什么好担心的。
 
-Watch
+
 
 这里有一张看起来很吓人的化学物质清单: [苯甲醛](https://en.wikipedia.org/wiki/Benzaldehyde)[芳樟醇](https://en.wikipedia.org/wiki/Linalool)[壬烷](https://en.wikipedia.org/wiki/Nonane)[戊醛](https://en.wikipedia.org/wiki/Pentanal)[硬脂酸](https://en.wikipedia.org/wiki/Stearic_acid)[对羟基苯甲酸甲酯](https://en.wikipedia.org/wiki/Methylparaben) 。正如 YouTube 科学频道的这段视频所指出的，那些“可怕的”化学物质存在于你吃的每一个不那么可怕的蓝莓中。你周围的一切都是由化学物质组成的，从你喝的水到你呼吸的空气。这意味着没有理由担心你食物中的“化学物质”，至少从广义上来说是这样。
 

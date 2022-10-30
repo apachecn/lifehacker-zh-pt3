@@ -4,7 +4,7 @@
 
 本周，我们看了一下谷歌的新 Pixel 手机，了解了如何立即获得它们的最佳功能，指导父母了解《我的世界》的基本知识，找出哪些 iMessage 应用程序实际上是有用的，研究了地方选举等等。这里回顾一下。
 
-Watch
+
 
 ## [**吃饭的时候没关系**](http://vitals.lifehacker.com/it-doesnt-matter-when-you-eat-1787711505)
 

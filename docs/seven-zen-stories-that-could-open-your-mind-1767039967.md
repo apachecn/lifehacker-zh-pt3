@@ -4,7 +4,7 @@
 
 几个世纪以来，禅宗大师们用故事和 [公案](https://en.wikipedia.org/wiki/K%C5%8Dan) ，或者 [悖论谜语](https://lifehacker.com/four-confusing-zen-quotes-and-what-you-can-learn-from-1676177538) ，来帮助学生认识自己的真实本性。这些故事经常令人困惑，看起来可能很荒谬，但是你自己去思考它们，你可能会变得更聪明，更有自知之明。以下是我们最喜欢的七个禅宗故事。
 
-Watch
+
 
 我们不会试图去解释这些故事，因为那样会忽略重点:故事本身就是经历。只有你能冥想它们来实现它们的内在洞察力。正如保罗·雷普斯和千崎如幻在 [*中写的那样，禅肉、禅骨*](http://www.amazon.com/Zen-Flesh-Bones-Collection-Writings/dp/0804831866?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/seven-zen-stories-that-could-open-your-mind-1767039967&asc_source=&tag=kinjalifehackerlink-20) ，下面的许多故事都是从这些故事中编出来的:
 

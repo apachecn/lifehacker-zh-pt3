@@ -4,7 +4,7 @@
 
 这款 linux 桌面是对我们最喜欢的发行版 之一、Arch Linux 的致敬——读者 [KunalGadgil](https://www.flickr.com/photos/145168665@N05/) 在我们的 [桌面展示和讲述池](https://www.flickr.com/groups/lifehacker-desktop-showandtell/) 中与我们分享了它。以下是你可以得到相似外观的方法。
 
-Watch
+
 
 因为这是一个 Linux 桌面(运行 [KDE Plasma 5](https://www.kde.org/announcements/plasma5.0/) ，其中一个 [你最喜欢的桌面环境](http://lifehacker.com/five-best-linux-desktop-environments-1648022755/) ，)你将需要一些组件来开始，但是没有支配性的工具或实用程序来定制一切。
 

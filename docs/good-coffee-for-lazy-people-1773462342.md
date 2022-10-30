@@ -4,7 +4,7 @@
 
 我喜欢咖啡。我每天都喝。我喜欢在家尝试新的酿造方法。说到我每天喝的咖啡，我也很懒。我不愿意经历大多数咖啡鉴赏家为“完美”的杯子建议的荒谬步骤。考虑到这一点，这里是我多年来得到的一些建议，尽可能方便地做出一杯好咖啡。
 
-Watch
+
 
 在我们开始之前，*当然，对于懒人来说，得到好咖啡的最好方法是去咖啡店买一杯*。说完这些，我们就来谈谈家庭酿酒。 [有成吨不同的酿造方法](https://lifehacker.com/the-basics-of-five-popular-coffee-brewing-methods-1764176224) 。如果你和一个铁杆咖啡迷交谈，他们会争论到底他们选择的方法是不是最好的品尝方法。咖啡鉴赏可能非常复杂，需要五堂课的指导才能真正理解。
 
@@ -24,11 +24,7 @@ Watch
 
 不管你用研磨机做什么，关键是:没有好咖啡豆，你就不会有好咖啡。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Good Coffee for Lazy People](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/where-can-i-buy-better-coffee-beans-1524434140) [###### 哪里可以买到比较好的咖啡豆？](https://lifehacker.com/where-can-i-buy-better-coffee-beans-1524434140) 
 
-亲爱的 Lifehacker，我已经准备好投入制作更好的咖啡了，我已经准备好了所有的装备…
-
-[Read more](https://lifehacker.com/where-can-i-buy-better-coffee-beans-1524434140)</aside>
 
 ### 最简单的酿造方法:好的自动制酒机或倒酒机
 

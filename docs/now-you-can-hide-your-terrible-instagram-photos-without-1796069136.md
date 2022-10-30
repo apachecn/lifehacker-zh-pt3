@@ -4,7 +4,7 @@
 
 由于 Instagram 的最新更新，你现在可以隐藏你不太讨人喜欢的自拍照，而不会真正忘记它们有多糟糕。
 
-Watch
+
 
 照片分享应用程序最近向所有用户推出了新的功能，根据 The Verge 的说法，这是继上个月测试之后的 [。](https://www.theverge.com/2017/6/13/15787880/instagram-archive-feature-launches-for-all-users)
 

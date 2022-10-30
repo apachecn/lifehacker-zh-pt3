@@ -6,7 +6,7 @@
 
 如果你不确定，可以 [查一下这里的](https://www.headcount.org/verify-voter-registration/?gclid=EAIaIQobChMIuM2c_cHb3QIVAkwNCh0UGA8GEAAYAyAAEgKu7_D_BwE) 。如果你没有，或者你需要重新登记，不要担心:你仍然有时间在每个州登记和/或计划，如果你需要提交中期选举的缺席选票。
 
-Watch
+
 
 也就是说，一些截止日期很快就要到了，这取决于你所在的州，所以你要尽快行动，确保你在选民名单上。(即使你认为你已经登记了，也要仔细检查——像纽约州 [和阿肯色州](https://www.economist.com/united-states/2018/08/09/many-states-are-purging-voters-from-the-rolls) 这样的州已经把选民从名册上清除了。)
 

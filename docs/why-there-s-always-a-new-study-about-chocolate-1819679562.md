@@ -4,7 +4,7 @@
 
 你对巧克力，也许是黑巧克力，是否有一个模糊的概念，认为它对你有好处？这对你的心脏健康还是有好处的。在某种程度上，你知道糖果实际上不是健康食品，但似乎总有标题说它是。
 
-Watch
+
 
 Vox 的一些 [精彩报道解释了这种印象的来源:由火星资助的数十年研究。(](https://www.vox.com/science-and-health/2017/10/18/15995478/chocolate-health-benefits-heart-disease) [雀巢](http://www.research.nestle.com/) 和 [美国巧克力制造商协会](http://www.nca-cma.org/american-cocoa-research-institute-acri/) 也尽了自己的一份力量。)
 

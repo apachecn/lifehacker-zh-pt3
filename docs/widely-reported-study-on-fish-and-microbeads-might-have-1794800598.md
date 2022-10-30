@@ -4,7 +4,7 @@
 
 去年发表在 *Science* 上的一篇 [标题](https://gizmodo.com/young-fish-get-hooked-on-plastic-microbeads-1780412133) [抓拍](http://www.independent.co.uk/news/science/fish-microplastic-microbeads-perch-pike-food-marine-pollution-a7063161.html)--[研究](http://science.sciencemag.org/cgi/doi/10.1126/science.aad8828) 警告塑料微珠对鱼类幼体的影响濒临被撤回。在一个涉及缺失数据、劣质研究方法和完全捏造的案例中，这是我们在相当长的一段时间里看到的最令人震惊的科学欺诈案例之一，也是一个有很多指责的案例。
 
-Watch
+
 
 经过九个月的调查，瑞典中央伦理审查委员会(CEPN)的一个专家小组 [得出结论](http://www.sciencemag.org/sites/default/files/CEPN%20statement%20%28English%29.pdf) 乌普萨拉大学的研究人员 Oona lnnstedt 和 Peter Eklö在调查 [微塑料颗粒对豆娘鱼](http://gizmodo.com/young-fish-get-hooked-on-plastic-microbeads-1780412133) 幼体的影响时犯了科学欺诈。研究人员做错的不仅仅是一两件事——CEPN 提出了一个完整的缺陷清单，包括未能向科学杂志提交所需的文件，缺少数据，有缺陷的研究方法，有问题的时间表，缺乏动物研究伦理批准，以及一系列其他问题。
 

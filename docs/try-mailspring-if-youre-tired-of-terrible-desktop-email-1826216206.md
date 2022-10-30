@@ -4,7 +4,7 @@
 
 除非你是微软 Outlook 的超级粉丝，否则你很可能不会在家里使用桌面电子邮件客户端。你可能使用基于网络的电子邮件服务，你的日常工作可能包括启动浏览器删除、移动或忽略你的邮件。像 Mail 这样的第三方应用(用于 Windows *或* Mac)被诅咒了。
 
-Watch
+
 
 事实上，这正是 Ars Technica 的员工 [最近在](https://arstechnica.com/information-technology/2018/05/inbox-zero-and-the-search-for-the-perfect-email-client/) 内部争论的问题:还有什么好的桌面电子邮件客户端吗？这个问题曾经有过屈指可数的很棒的答案:雷鸟、麻雀、邮箱，不一而足。以前还没有从数字地球上消失的体面的电子邮件应用程序不再更新了，这不是收件箱安全的最佳做法。
 

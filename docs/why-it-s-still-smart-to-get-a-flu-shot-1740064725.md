@@ -4,7 +4,7 @@
 
 每年都有一种新的流感疫苗，以匹配四处传播的特定流感病毒株。今年的注射只是一个不错的匹配，对正在传播的菌株有 30%的有效性。(不要相信流传的 10%的数字；是 [基于一个误解](https://whyy.org/articles/vaccine-years-flu-effective-portrayed-cdc-says/) 。)即便如此，注射流感疫苗仍然是*的一个好赌注。*
 
-Watch
+
 
 权衡利弊，流感疫苗仍然是最受欢迎的，因为它的副作用非常小。注射流感疫苗可能会让你手臂疼痛，但它们不会让你感冒(这是一个神话)，也不太可能有严重的副作用。流感疫苗也是免费的 [和保险](http://www.hhs.gov/answers/affordable-care-act/will-the-aca-cover-my-flu-shot/index.html) ，而且大多数计划你甚至不需要预约医生— [你可以在 Costco 或 Target run](http://lifehacker.com/the-cheapest-and-most-rewarding-places-to-get-a-flu-sho-1739272236) 中间注射疫苗，或者在你外出办其他差事时去药店。
 

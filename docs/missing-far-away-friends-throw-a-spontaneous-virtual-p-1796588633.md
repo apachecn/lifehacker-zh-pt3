@@ -4,7 +4,7 @@
 
 如果你可以在任何时候举办一个虚拟派对，让你来自世界各地的朋友都可以参加，那会怎么样？这就是 Houseparty 背后的想法，一款为自发对话而设计的 [iOS](https://itunes.apple.com/us/app/houseparty-group-video-chat/id1065781769) 和 [Android](https://play.google.com/store/apps/details?id=com.herzick.houseparty) (点击链接下载)视频聊天应用。
 
-Watch
+
 
 Houseparty 在青少年中有大量的追随者，但我直到大约 6 个月前才听说它。
 

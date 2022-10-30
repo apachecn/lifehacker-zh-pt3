@@ -4,7 +4,7 @@
 
 学生贷款债务已经成为一个问题有一段时间了，在美国 [现在是 1.4 万亿美元](http://www.marketwatch.com/story/every-second-americans-get-buried-under-another-3055-in-student-loan-debt-2015-06-10) 。更糟糕的是，最近发生的一些事情让借款人的处境变得更加严峻。这些变化不会影响到每一个学生债务人，但仍然值得关注。
 
-Watch
+
 
 ### 学生贷款豁免还悬而未决
 

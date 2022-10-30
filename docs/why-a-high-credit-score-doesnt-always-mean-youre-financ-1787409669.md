@@ -4,7 +4,7 @@
 
 很少有数字比强大的信用评分更能让你对自己的理财技巧感到自豪。这是有充分理由的:贷方使用信用评分来决定一切，从你的抵押贷款利率到你是否有资格获得最丰厚的信用卡奖励。
 
-Watch
+
 
 *本帖原载于*[*learn vest*](https://www.learnvest.com/2016/09/why-having-a-high-credit-score-doesnt-always-mean-youre-financially-healthy/)*。*
 

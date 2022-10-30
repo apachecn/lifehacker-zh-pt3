@@ -6,7 +6,7 @@
 
 今年是小型掌上电脑问世 10 周年，因此，我们预计苹果将推出一款全新的 iPhone:iPhone x。主题演讲在美国东部时间下午 1 点(太平洋时间上午 10 点)开始，你可以在这里收听。
 
-Watch
+
 
 [关于 iPhone X](http://gizmodo.com/apple-iphone-8-rumor-roundup-everything-we-think-we-kn-1797533947#_ga=2.266229391.1658849965.1505157837-854210125.1499778227) 的传闻，以及它可能的样子今年尤其可靠，因为 [iOS](http://gizmodo.com/apple-just-leaked-ios-11-and-looks-like-were-getting-an-1802936703) 和 [HomePod](http://gizmodo.com/looks-like-apple-leaked-details-of-the-new-iphone-in-th-1797393122#_ga=2.238493312.1658849965.1505157837-854210125.1499778227) 软件泄露包含许多线索。你可以期待一个无边框显示屏，没有主页按钮，面部识别和其他好东西。 [除了](http://gizmodo.com/apple-iphone-day-2017-cheat-sheet-what-to-expect-1800959123?rev=1505134368629#_ga=2.238493312.1658849965.1505157837-854210125.1499778227) 之外，人们还期待苹果宣布 iPhone 7 的更新，以及一款具有蜂窝功能的新 Apple Watch。
 

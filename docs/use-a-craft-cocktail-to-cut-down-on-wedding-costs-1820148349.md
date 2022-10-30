@@ -4,7 +4,7 @@
 
 当你计划婚礼时，你想要完美的一天，包括为你的客人提供庆祝饮料。然而，满座的酒吧会打破你的预算，仅仅提供葡萄酒和啤酒可能会让一些人失望。为了两全其美，为你的客人提供一杯手工鸡尾酒。
 
-Watch
+
 
 精酿鸡尾酒是提供给想要烈性酒的客人的招牌饮料。因为这是一杯酒，它减少了你婚礼的酒吧费用。Redditor [floppydo 分享了](https://www.reddit.com/r/AskWomen/comments/7ajuqk/what_made_the_worst_party_youve_been_to_so_bad/dpb9faw/) 如何在他们的婚礼上省钱:
 

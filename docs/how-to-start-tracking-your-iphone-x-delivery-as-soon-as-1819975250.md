@@ -4,7 +4,7 @@
 
 [iPhone X](https://lifehacker.com/how-to-buy-an-iphone-x-this-week-1819812194) 就要到了，如果你是 [实际上已经预订了本周发货的](https://lifehacker.com/manufacturers-are-struggling-to-make-apples-face-id-cam-1819851796#_ga=2.52728747.247215533.1509382731-472331419.1499788931) ，你的新智能手机可能已经在运输途中了。如果您仍然没有跟踪号码，但您的订单将于 11 月 3 日到达，现在有几种方法可以跟踪它。
 
-Watch
+
 
 无论你只是感到坐立不安，还是需要你的跟踪号码以便更改送货地址，或者担心苹果没有给你最新的运输状态信息，你并不孤单。在 Reddit 上，苹果粉丝一直在交易对 [失踪跟踪信息](https://www.reddit.com/r/apple/comments/78fq1t/preorder_shipping_megathread_iphone_x/dp3sfdh/?st=j9ejky1r&sh=f6e95b81) 和 [的担忧，建议找到它的方法](https://www.reddit.com/r/apple/comments/78fq1t/preorder_shipping_megathread_iphone_x/dp3p8uw/?st=j9ejnt9u&sh=cb4207a1) 。而在推特上，至少有一个 [少数](https://twitter.com/BinhDoingIt/status/925060568263856130) [人](https://twitter.com/doit123123/status/925035713799655424) 开始发飙。
 

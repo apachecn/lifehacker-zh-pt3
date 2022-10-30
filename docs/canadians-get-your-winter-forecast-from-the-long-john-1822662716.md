@@ -4,7 +4,7 @@
 
 加入了丰富天气预报的悠久传统(这一传统由 [应用](https://lifehacker.com/carrot-weather-adds-a-little-humor-to-your-weather-fore-1692378982)[微型网站](http://thefuckingweather.com/)[海地气象学家](https://www.youtube.com/watch?v=7QLSRMoKKS0)),[长约翰指数](http://www.longjohnindex.ca/) 以那些 [【邻里刻板印象】地图](https://www.google.com/search?q=neighborhood+stereotype+maps&tbm=isch&tbo=u&source=univ&sa=X&ved=0ahUKEwikkPHAyYfZAhVDUt8KHbgwAU8QsAQIJg&biw=1398&bih=960) 的风格给出每日加拿大天气预报。
 
-Watch
+
 
 每年冬天，漫画家科林·麦金太尔(Colin MacIntyre)都会按照 1 到 5 的等级给每个城市的严寒程度打分，并配以彩色评论。可以 [查看博客](http://www.longjohnindex.ca/) 或者 [在 Twitter 上关注](https://twitter.com/longjohnindex) 。
 

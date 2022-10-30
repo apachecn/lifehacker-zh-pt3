@@ -4,7 +4,7 @@
 
 [Pixel 2](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085) 配备了 [新功能](https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006) 你不会在普通的 Android 8.0 上找到，其中很大一部分是主屏幕。谷歌重新设计了日历小工具来显示即将到来的事件，因此它将搜索栏移到了屏幕底部的 dock 下方，这样你可以更快地访问它。
 
-Watch
+
 
 如果你一直在跟进，你已经有了 [新的日历小工具](https://lifehacker.com/how-to-get-the-pixel-2s-handy-new-calendar-widget-on-yo-1819372471) 在你当前的手机上运行。现在你也可以通过使用第三方应用程序启动器来获得重新定位的搜索栏。
 

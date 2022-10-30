@@ -4,7 +4,7 @@
 
 [Ciysco](http://kinja.com/ciysco) 向我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 提交了这个定制的桌面，我们很喜欢。不错的壁纸，角落里褪色的应用启动器，还有可视化工具。它看起来很锋利——以下是你如何让它成为你自己的。
 
-Watch
+
 
 首先，Ciysco 是用 Rainmeter 得到这个效果的，在 Windows 7 中。如果你不熟悉它，看看我们的雨量计 入门指南，看看它有什么功能。
 

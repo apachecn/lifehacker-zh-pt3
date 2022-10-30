@@ -4,7 +4,7 @@
 
 如果你是持有有效护照的美国公民，你可以比大多数其他国家的公民自由地去世界上更多的地方，这可能比你意识到的要多得多。你所需要的只是一些假期和一张机票。
 
-Watch
+
 
 截至目前，持有有效美国护照 [的人可以前往全球 177 个不同的国家和地区](https://en.wikipedia.org/wiki/Visa_requirements_for_United_States_citizens) 而无需在出发前申请旅行签证。这是大约 218 个可能的目的地中的一个，这意味着你不必填写太多的文件就可以看到世界上超过 80%的地方。此外，越来越多的地区和省份也向美国公民开放。例如， [海南](https://en.wikipedia.org/wiki/Hainan) ，中国的一个岛屿省份，通常被称为“中国的夏威夷”， [最近向美国公民开放](https://thepointsguy.com/news/americans-can-visit-hainan-without-visa/)——无需签证。
 

@@ -4,7 +4,7 @@
 
 当他们踏进经销商的大门时，购车者通常会专注于砍价。但是别忘了: [车贷也是可买的，](https://lifehacker.com/secure-financing-before-buying-a-car-for-smoother-negot-1604931961) 。
 
-Watch
+
 
 如果你打算为你的车 融资，而不是直接购买，很容易认为你必须接受经销商的融资。但是最近的一项研究表明，货比三家很重要。
 

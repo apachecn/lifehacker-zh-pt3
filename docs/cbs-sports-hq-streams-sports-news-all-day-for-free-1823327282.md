@@ -4,7 +4,7 @@
 
 希望你不用订阅有线电视就能整天看体育新闻和集锦？现在你可以了。今天， [哥伦比亚广播公司推出了体育总部](https://www.cbssports.com/general/news/cbs-launches-cbs-sports-hq-a-247-streaming-network-for-sports-news-highlights-and-analysis/) ，这是一个免费的、有广告支持的流媒体，提供所有你喜欢躺在沙发上就能睡着的体育节目。
 
-Watch
+
 
 要使用这项服务，你只需要一个互联网连接。你可以在你的笔记本电脑上，在你选择的互联网浏览器、iOS 或 Android 平板电脑、智能手机、Apple TV、Roku 或亚马逊 Fire TV 上观看该流。而且没错，免费就是*免费*。无需订阅，无需设备认证，无需电子邮件注册，也无需从父母那里“借用”登录凭证。它全天候运行，所以如果你能忍受汽车和保险的典型广告间隔，你就万事俱备了。
 

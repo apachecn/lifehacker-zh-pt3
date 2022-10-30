@@ -4,7 +4,7 @@
 
 你知道你应该检查你的免费年度信用报告。但是你可以——也应该——要求并查看征信机构收集的你的工资信息。
 
-Watch
+
 
 [Equifax Work force Solutions](https://www.bloomberg.com/research/stocks/private/snapshot.asp?privcapId=357985)是 Equifax 的子公司，通过一项名为 Work Number 的服务收集就业数据，包括薪资信息(该服务与其母公司一样，自身也有 [安全问题](https://krebsonsecurity.com/2017/10/equifax-breach-fallout-your-salary-history/) )。它将这些数据出售给债权人和像你的房东这样的人，以及潜在的雇主，以检查你的工资和工作历史。根据公平信用报告法案，你有权获得免费的年度报告。
 

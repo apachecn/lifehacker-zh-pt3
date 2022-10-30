@@ -4,7 +4,7 @@
 
 分享怀孕消息的传统准则是，你应该等到仪式性的第 12 或 13 周，即最焦虑的头三个月的终点 [，此时大多数妊娠损失被诊断为](http://americanpregnancy.org/pregnancy-complications/miscarriage/) 。这条规则真正的意思是:*不要太激动。但是如果你真的流产了呢？你独自面对你的悲剧，一个你没有造成的悲剧，一个许多人都经历过的悲剧。*
 
-Watch
+
 
 一项名为[# ihadamicarriage](https://www.instagram.com/ihadamiscarriage/?hl=en)的日益增长的运动正在为分享你怀孕的消息提供理由——如果你愿意的话。由洛杉矶心理学家杰西卡·祖克发起的社交媒体运动(最近增加了如上图所示的 [免费艺术印刷品](http://shop.drjessicazucker.com/?category=prints) )旨在通过鼓励女性在最初几周内建立支持系统来打破围绕怀孕和婴儿死亡的污名和耻辱，当时一切都很脆弱。
 

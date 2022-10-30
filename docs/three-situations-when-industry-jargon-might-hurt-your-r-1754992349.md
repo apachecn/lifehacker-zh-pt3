@@ -4,7 +4,7 @@
 
 即使你所在的领域没有任何术语，当你在一个行业工作足够长的时间后，你会倾向于发展出某种解释事物的方式。但是当涉及到你的简历时，使用深奥的语言有时只会阻碍你的吸引力而不是帮助。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/3-times-you-need-to-dumb-down-your-resume-to-get-your-foot-in-the-door) *。*
 

@@ -4,7 +4,7 @@
 
 不管出于什么原因，iPhone 有大量不同的语音记录应用程序，但很少有比苹果免费的语音备忘录应用程序做得更多的。我们喜欢 Just Press Record，因为它通过提供与苹果不同的体验和功能集，成功地让自己的要价物有所值。
 
-Watch
+
 
 ### [**只需按下**](https://itunes.apple.com/us/app/just-press-record/id1033342465?mt=8)
 

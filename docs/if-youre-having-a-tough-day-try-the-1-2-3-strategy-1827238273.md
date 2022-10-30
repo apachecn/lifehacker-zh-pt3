@@ -4,7 +4,7 @@
 
 我们都经历过——你的一天过得很糟糕，感觉永远不会结束。最糟糕的是，感觉你做什么都没办法让它变好。但这并不完全正确。这个策略不会解决你所有的问题，但它是一个创造性的方法，可以让你度过艰难的一天。
 
-Watch
+
 
 在推特上， [凯茜圣翁格](https://twitter.com/Caissie) ，艾美奖提名喜剧作家、 [*简琼斯的作者:最差。吸血鬼。永远不会。*](https://www.amazon.com/Jane-Jones-Worst-Vampire-Ever-ebook/dp/B004J4XA1E/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/if-youre-having-a-tough-day-try-the-1-2-3-strategy-1827238273&asc_source=&tag=kinjalifehackerlink-20) ，为我们这些挣扎着度过一天的人分享了一个有用的提示。
 

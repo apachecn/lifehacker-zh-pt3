@@ -4,7 +4,7 @@
 
 大学生花大量的时间和他们的朋友在一起。一项估计表明，普通大学生每周只花 15 个小时在课堂上，但每周花 86 个小时和他或她的朋友 。但是我们对友谊所扮演的角色以及它们如何影响学生的学业和社交有多少了解呢？
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/how-your-college-friendships-help-you-or-dont-68413) *。*
 

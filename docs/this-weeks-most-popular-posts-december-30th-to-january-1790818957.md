@@ -4,7 +4,7 @@
 
 新的一年来了，假期已经过去，我们已经找到了解决方案，如何利用速溶壶，旅行时赚钱的方法，等等。好吧，首先我们来看看治疗宿醉的方法，然后我们就马上进入正题。
 
-Watch
+
 
 ## [**用新速溶壶应该做的前七件事**](http://skillet.lifehacker.com/the-first-seven-things-your-should-make-with-a-new-inst-1790730616)
 

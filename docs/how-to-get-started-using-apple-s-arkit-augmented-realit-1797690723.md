@@ -4,7 +4,7 @@
 
 大多数人认为， [苹果的新智能手机“iPhone 8”，](http://gizmodo.com/apple-iphone-8-rumor-roundup-everything-we-think-we-kn-1797533947) 将于 2017 年 9 月发布。但是我可以自信地说，公司今年最具突破性的发布实际上发生在今年夏天早些时候，在加州圣何塞举行的 [苹果全球开发者大会(WWDC)](http://gizmodo.com/the-coolest-stuff-apple-announced-today-at-wwdc-2017-1795828823) 。
 
-Watch
+
 
 在那场 发布会上，苹果发布了“ [ARKit](https://developer.apple.com/arkit/) ”，这是一套新的免费软件工具，任何人都可以用它在 iPhone 和 iPad 上构建令人印象深刻的新应用和体验。“ARKit”中的“AR”指的是“增强现实”(augmented reality)，这是一种将交互式虚拟对象和效果置于你对现实世界的看法中的技术，将虚拟世界与物理现实融为一体。
 

@@ -4,13 +4,9 @@
 
 尽管我有限的厨房经验和破坏最基本的膳食的历史，我已经被指定为今年的感恩节主人。很有可能，我会把事情搞砸。如果你在同一条船上，我们应该做好准备。以下是如何预防和修复几个常见的感恩节故障。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Common Thanksgiving Dinner Fails and How to Fix Them](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-avoid-poisoning-everyone-at-thanksgiving-dinne-5861452) [###### 我如何避免在感恩节晚餐上毒害每个人？](https://lifehacker.com/how-do-i-avoid-poisoning-everyone-at-thanksgiving-dinne-5861452) 
 
-亲爱的 Lifehacker，今年我要在我家举办感恩节晚餐，我很紧张。我不…
 
-[Read more](https://lifehacker.com/how-do-i-avoid-poisoning-everyone-at-thanksgiving-dinne-5861452)</aside>
 
 ### 火鸡烤过头了，而且很干
 

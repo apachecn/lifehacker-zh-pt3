@@ -4,7 +4,7 @@
 
 彗星 21P/Giacobini Zinner(简称“21P”)正准备近距离掠过地球，如果你幸运的话，你甚至可以亲眼目睹它。
 
-Watch
+
 
 这颗彗星实际上每 6.6 年经过地球一次，但今年它比过去 72 年来更靠近地球，这可能是一次观看机会， [*CNET* 报道](https://www.cnet.com/how-to/how-to-see-the-bright-comet-21p-giacobini-zinner-making-a-close-pass-by-earth/#ftag=CAD5457c2c) 。
 

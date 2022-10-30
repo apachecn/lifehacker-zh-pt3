@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [Playlist a Day 每天给你发一个精选的 Spotify 播放列表](http://lifehacker.com/playlist-a-day-sends-you-a-curated-spotify-playlist-eve-1756664609)
 

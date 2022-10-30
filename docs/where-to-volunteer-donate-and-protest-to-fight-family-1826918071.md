@@ -4,7 +4,7 @@
 
 川普政府正在通过两项新政策[](https://splinternews.com/to-trump-and-his-strategists-separating-children-from-1826889591#_ga=2.139871099.972888801.1529329488-3846207152.1521480874)[【把孩子关在笼子里】](https://splinternews.com/border-patrol-says-yes-were-definitely-keeping-kids-in-1826915586#_ga=2.139871099.972888801.1529329488-3846207152.1521480874)把孩子和父母 分开。这似乎是一个你无法解决的大问题。但是你可以，用你的时间，金钱，技能，或者只是一个电话。
 
-Watch
+
 
 Slate 有一长串反对移民家庭分离的组织 ，这些组织都可以利用捐款或志愿者工作(尤其是来自律师或翻译)。如果 Slate 的名单越来越多，你可以在这个 ActBlue page 捐款给八个为移民权利而战的组织，包括 ACLU 和[Kids In needs Defense](https://supportkind.org/)，为儿童提供法律代表。
 

@@ -4,7 +4,7 @@
 
 当你试图把事情、做完，却找不到插头给电池充电时，没电可不是什么好事。如果你要在旅途中工作，这里有一些简单的技巧来延长你的笔记本电脑的电池寿命，无论是在紧要关头还是在你离开家之前。
 
-Watch
+
 
 ### 10.调整你内置的省电选项
 
@@ -22,11 +22,7 @@ Watch
 
 如果你的制造商没有专门的电池维护工具——或者你在上一次 [全新安装或 PC de-](http://lifehacker.com/the-complete-guide-to-avoiding-and-removing-windows-c-1630577558)中清除了它，一切都还没完。有许多免费的实用程序可以告诉你任何你想知道的关于笔记本电池的信息，不管它是谁制造的(包括你，MacBook 的拥有者)。)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Ways to Extend Your Laptop&#39;s Battery Life](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-should-i-do-when-my-laptop-battery-doesnt-last-as-5820813) [###### 笔记本电脑电池没有以前用的时间长了怎么办？](https://lifehacker.com/what-should-i-do-when-my-laptop-battery-doesnt-last-as-5820813) 
 
-亲爱的 Lifehacker，我的笔记本电池用不了多久了。我怎么知道发生了什么…
-
-[Read more](https://lifehacker.com/what-should-i-do-when-my-laptop-battery-doesnt-last-as-5820813)</aside>
 
 macOS 用户可以试用，Windows 用户可以试用 [BatteryCare](http://batterycare.net/en/download.php) ，这两个 [我们之前都在 times](http://lifehacker.com/batterycare-displays-detailed-battery-information-5334722) 提到过 [。您还可以查看用于 Windows 的](http://lifehacker.com/batterybar-adds-a-power-meter-to-the-taskbar-5145063) [BatteryBar](http://batterybarpro.com/) 、用于 macOS 的 [【超级监视器】](http://web.archive.org/web/20130814044014/http://superbarmonitor.de) [，或者用于 macOS](http://lifehacker.com/superbarmonitor-puts-system-monitoring-right-on-your-wi-5488717) 的[battery diag](https://itunes.apple.com/us/app/battery-diag/id836505650)[等等。最佳选项不仅会取代内置的电池统计数据，还会向您显示精确的信息，如电池在其寿命中有多少充电周期，它在充电周期中的精确点，并提供一些关于如何从中榨取更多电量的提示，以及一些有用的工具。](http://lifehacker.com/battery-diag-is-a-pretty-informative-battery-monitor-f-1567889220)
 

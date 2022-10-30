@@ -6,7 +6,7 @@
 
 你在背包探险中放什么，放在哪里将决定你的舒适程度和你能走多远。我们制作了一个小视频，向你展示如何正确使用它。
 
-Watch
+
 
 [*infinitely wild*](http://indefinitelywild.gizmodo.com/)*是一本关于户外探险旅行、带我们去那里的车辆和装备以及我们沿途遇到的人的新出版物。关注我们关于*[](https://www.facebook.com/indefinitelywild)**[*推特*](https://twitter.com/indefinitewild) *和*[*insta gram*](http://instagram.com/indefinitewild)。**
 

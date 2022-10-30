@@ -4,7 +4,7 @@
 
 新年决心 [很有可能失败](https://lifehacker.com/the-new-years-resolutions-most-likely-to-fail-and-what-1491671137) ，这可能会让每年的年末都令人沮丧，而不是值得庆祝。今年不要强调决心，尝试这些前瞻性的选择。
 
-Watch
+
 
 ### **设定一个意图而不是一个决心**
 

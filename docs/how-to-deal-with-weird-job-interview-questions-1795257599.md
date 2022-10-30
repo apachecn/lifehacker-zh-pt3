@@ -4,7 +4,7 @@
 
 求职面试已经够让人伤脑筋的了——然后你 [会被一个奇怪的问题](http://lifehacker.com/27-of-the-toughest-interview-questions-in-the-job-marke-1792694952) 击中，比如“如果你是一棵树，你会是哪种树？”
 
-Watch
+
 
 然而，如果你知道为什么会问这些类型的问题，你就更有可能在不慌张或留下坏印象的情况下了解面试官想知道的事情。我问管理 [的资深经理和顾问艾莉森·格林，为什么公司有时会问这类奇怪的问题。她把它分解了:](http://www.askamanager.org/)
 

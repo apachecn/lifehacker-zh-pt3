@@ -4,7 +4,7 @@
 
 如果你曾经对学习佛教感兴趣，现在是一个绝佳的机会。你可以免费在线参加哈佛大学关于佛教信仰、实践和经文的课程。
 
-Watch
+
 
 该课程在 [edX](https://www.edx.org/) 举办，由哈佛大学佛教文学高级讲师[Charles Hallisey](https://hds.harvard.edu/people/charles-hallisey)教授授课。这是一个完全互动的在线课程，有讨论板，深入的视频讲座，不需要以前有佛教知识就可以参加。你所要做的就是注册。
 

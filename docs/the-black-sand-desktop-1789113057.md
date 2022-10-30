@@ -4,7 +4,7 @@
 
 最近我们已经看到了很多水性、海滩 y 、海洋 y 壁纸，这让我们认为你们一定渴望更温暖的天气。这款来自T5 的 SebastianT7，是一款华丽、朴素的黑白桌面，只做了一点点定制。这是所有设置的方式。
 
-Watch
+
 
 Sebastian 运行的是 Windows，这意味着你需要 Rainmeter 来完成这项工作。如果你不熟悉， [看看我们的入门指南](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) ，它会帮你的。
 

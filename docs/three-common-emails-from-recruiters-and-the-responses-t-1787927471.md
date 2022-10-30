@@ -4,7 +4,7 @@
 
 寻找新职位是你做过的最有压力的事情之一。也许是搜索背后的高风险让人们很容易过度分析它的每一部分，尤其是当你如何回复招聘人员发送的电子邮件时。我知道在我成为招聘人员之前，我花了太长时间试图对我收到的每一封电子邮件写下完美的回复。我想，他们必须是完美的，因为有一份工作悬而未决。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/3-emails-recruiters-sendand-the-responses-they-actually-want) *。*
 

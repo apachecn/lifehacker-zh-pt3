@@ -6,7 +6,7 @@
 
 Lifehacker 总部最喜欢的 Reeder 3 最近将其 Mac 应用程序的价格从 10 美元降至免费，这是带着 RSS 阅读器出去兜风的最佳时机(如果你还没有这么做)。
 
-Watch
+
 
 新闻阅读器支持 Feedbin、Feedly、Feed Wrangler、FeedHQ、NewsBlur、老阅读器、Inoreader、极简阅读器 BazQux Reader、发烧、可读性和 Instapaper。
 

@@ -4,7 +4,7 @@
 
 用手机扫描文件并不是什么新鲜事。有了像 [Scanner Pro](https://readdle.com/products/scannerpro) 和 [Turbo Scan](http://turboscanapp.com/) 这样的应用程序，如果你有一部智能手机，你几乎没有理由再需要拿出平板扫描仪来数字化任何东西了。见鬼，在大多数情况下，即使只是抓拍一张没有应用程序的文档照片也可能完成工作。即使你已经找到了最喜欢的扫描应用程序，Adobe 的新应用程序，恰如其分地被命名为 Abobe Scan 的 [，也是你肯定想要尝试的一个。](https://acrobat.adobe.com/us/en/acrobat/mobile-app/scan-documents.html)
 
-Watch
+
 
 从表面上看，Scan 的工作原理和其他应用程序一样:将相机对准文档，然后抓拍一张照片。然而，Adobe 更进了一步，在扫描文档后，将光学字符识别(OCR)应用于文档，将文档上的打印文本转换为数字文本。这意味着以后可以搜索到它，就好像你在电脑上输入了它，而不仅仅是拍了一张照片。还可以使用 Adobe[Acrobat Reader DC](https://get.adobe.com/reader/)或 [Acrobat DC](https://acrobat.adobe.com/us/en/) 将文本从您的扫描文档复制或注释到另一个文档中。
 

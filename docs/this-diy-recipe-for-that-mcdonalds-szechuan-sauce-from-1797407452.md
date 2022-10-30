@@ -4,7 +4,7 @@
 
 *瑞克和莫蒂*回来了，感谢 [在 4 月](http://www.adultswim.com/videos/rick-and-morty/the-rickshank-rickdemption/) 播出的预告片，对“四川酱”的狂热也回来了，这是一种限量版的鸡块酱，发布来帮助宣传 1998 年迪士尼电影*花木兰*。
 
-Watch
+
 
 在这一集里，我们了解到疯狂科学家 [里克·桑切斯被对酱](https://www.youtube.com/watch?v=FXIWyYtq85E&feature=youtu.be&t=42s) 的深切需求所驱使——他称之为他的“独臂人”——不达目的誓不罢休(即使需要九季)。可悲的是，根据麦当劳的推特账户，剩下的最后三加仑已经被送人了。
 

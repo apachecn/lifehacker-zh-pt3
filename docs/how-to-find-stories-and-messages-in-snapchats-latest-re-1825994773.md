@@ -4,7 +4,7 @@
 
 今年早些时候， [Snapchat](https://lifehacker.com/its-time-to-stop-using-snapchat-unless-youre-a-teen-1821919274) 推出了一个大刀阔斧的重新设计，旨在让新来者更容易理解这个令人困惑的社交网络。但是 [新的布局失败了](https://lifehacker.com/how-to-revert-the-snapchat-app-back-to-the-pre-redesign-1822904222) ，现在 Snapchat 承认失败，进行了第二次重新设计，撤销了几乎所有的改变。
 
-Watch
+
 
 以下是关于使用重新设计的 Snapchat 你需要知道的事情。
 

@@ -4,7 +4,7 @@
 
 DIY 并不总是做事情最简单的方式，但它通常是最有启发性和教育意义的方式。本周，让我们来看看一些伟大的 DIY 技术项目，这些项目将教会你很多你可能每天都在使用的工具，并保护你的隐私，让你在这个过程中控制自己的数据。
 
-Watch
+
 
 ### 10.建立自己的 DIY 亚马逊回声
 
@@ -72,11 +72,7 @@ Feedly 很棒， [不要误解我们](http://lifehacker.com/most-popular-google-
 
 没有什么比 [打造自己的电脑](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 更能教会你计算机如何工作，还能教会你如何解决自己的计算机问题，并在遇到问题时自给自足。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 DIY Projects That Will Teach You A Ton About Tech](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) [###### 如何建造一台计算机:完全指南](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 
 
-从零开始构建一台计算机会为您提供满足您需求的完美机器，但它可能…
-
-[Read more](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747)</aside>
 
 您将通过构建自己的装备来了解所有关于 PC 内部的信息，如果您是游戏玩家、视频制作人、YouTuber 或音频发烧友，您可以定制您的计算机以满足您的特定需求。这比买现成的好得多，而且根据你的需要，甚至可能更划算。坚持使用 [我们的 PC 构建指南](http://lifehacker.com/the-best-pcs-you-can-build-for-300-600-and-1200-5840963) (我们现在正在更新它们*)，并记住 [这些首次使用的提示](https://lifehacker.com/6-essential-tips-for-first-time-pc-builders-1458484291) 以充分利用体验。*
 

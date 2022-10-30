@@ -4,7 +4,7 @@
 
 如果你是一个业余摄影爱好者，无论去哪里都很难随身携带相机。Lifehacker 的读者 Jordon Cooper 的新年决心就是这样，所以他设置了他的相机包，这样他就可以一直带着它。
 
-Watch
+
 
 包里是 [Lowepro 都市记者 250](https://www.amazon.com/Lowepro-LP36615-PWW-Urban-Reporter-Camera/dp/B00F5JMYLE/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-take-everywhere-camera-bag-1792312160&asc_source=&ie=UTF8&keywords=Lowepro Urban Reporter 250.&qid=1487017972&sr=8-1&tag=kinjalifehackerlink-20) 。以下是里面的内容，但要了解每一项的更多细节，请前往 [Flickr:](https://www.flickr.com/photos/jordoncooper/32387116980/in/pool-2301352@N21/)
 

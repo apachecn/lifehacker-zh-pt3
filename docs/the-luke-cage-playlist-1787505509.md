@@ -4,7 +4,7 @@
 
 网飞最新的漫威秀*卢克·凯奇*刚刚落幕，它的 [已经风靡](http://www.metacritic.com/tv/marvels-luke-cage) 。它获得好评的众多原因之一是它的杀手级配乐。非常温和的剧透如下。
 
-Watch
+
 
 音乐融入了卢克·凯奇的内心。每集标题都引用了东海岸嘻哈二人组中的一首歌曲。几集包括与剧集本身交织在一起的舞台表演，具有传奇天赋，如放克/灵魂歌手 [查尔斯·布拉德利](https://en.wikipedia.org/wiki/Charles_Bradley_(singer)) ，R & B 音乐家 [拉菲尔·萨迪克](https://en.wikipedia.org/wiki/Raphael_Saadiq) 。
 

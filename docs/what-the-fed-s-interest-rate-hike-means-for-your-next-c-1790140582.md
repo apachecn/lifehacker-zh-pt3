@@ -4,7 +4,7 @@
 
 十年来，美联储第二次提高利率。如果你有一个主要的购买像一个家，很可能你会支付更多的贷款。涨价将如何影响你的汽车贷款取决于制造商的反应。
 
-Watch
+
 
 [*《今日美国报》*](http://www.usatoday.com/story/money/personalfinance/2016/12/14/federal-reserve-interest-rates-mortgages-auto-loans-credit-cards/95399808/) 采访了多位金融分析师，探讨利率上调和下届政府的财政政策提案将如何影响借贷市场。截至目前，基本利率将上调 0.25 个百分点，预计未来几年还会进一步逐步上调。
 

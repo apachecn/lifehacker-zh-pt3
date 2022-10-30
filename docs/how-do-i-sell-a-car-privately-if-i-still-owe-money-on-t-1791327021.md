@@ -4,7 +4,7 @@
 
 你通常会通过私下出售而不是卖给经销商来获得更多，但如果你的贷款还有余额，交易就会变得复杂。只要做一点准备，并与买家进行清晰的沟通，你就能成功完成这些额外的步骤。
 
-Watch
+
 
 *欢迎回到*[*Ask Automatch*](http://jalopnik.com/tag/ask-automatch)*，在这里你可以问我你的烧钱买车问题。有一个场景或情况，你不知道该怎么做？发邮件到*[*Tom.McParland@jalopnik.com*](mailto:tom.mcparland@jalopnik.com)*，我会尽力帮你解决。*
 

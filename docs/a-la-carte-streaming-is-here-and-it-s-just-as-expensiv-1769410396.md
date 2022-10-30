@@ -4,7 +4,7 @@
 
 多年来，我们要求能够只为我们想要的有线电视频道付费。现在，在网飞、Hulu、亚马逊 Prime、HBO Now、Sling TV、 [、新人 Starz](https://lifehacker.com/starz-launches-streaming-service-with-original-shows-b-1769126984) 和一大堆其他网站之间，你可以抛弃有线电视，只为你喜欢的内容付费。尽管这不会给你省很多钱。
 
-Watch
+
 
 昨天，Starz 加入了大规模流媒体订阅的行列，允许你每月付费访问他们的内容库。我报名参加了。我还没有看完《黑帆》,我一直想开派对，所以我想为什么不呢。只要 9 美元。如果我没有为其他几个订阅付费的话，这也没什么大不了的。
 

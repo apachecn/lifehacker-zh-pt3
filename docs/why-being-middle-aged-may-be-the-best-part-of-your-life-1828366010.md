@@ -4,7 +4,7 @@
 
 如果你不得不猜测生命中最好的时代是什么，你可能会说年轻而没有责任或者年老而有退休金。事实证明，对很多人来说，他们生命中最美好的部分是中年的艰辛。
 
-Watch
+
 
 作家兼牧师 Lydia Sohn 决定采访她 90 多岁的会众，好奇他们对生活的看法是什么，因为他们已经看到了大部分。在她的媒体 [帖子](https://medium.com/s/story/what-its-like-to-be-90-something-368780082573) 中，Sohn 提到了一种叫做“生活的 U 型弯曲”的东西，这是自 2010 年以来一直流行的想法，当时这个概念通过*经济学家*的 [文章](https://medium.com/@the_economist/the-u-bend-of-life-f8d0abf8a4e5) 传播开来。
 

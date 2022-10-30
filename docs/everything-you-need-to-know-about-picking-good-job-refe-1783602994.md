@@ -4,7 +4,7 @@
 
 当一位潜在雇主要求你提供推荐信时，你知道你已经接近面试过程的最后阶段了(这对你很有利)。但是，如果你没有做好准备，你可能会在最后一刻手忙脚乱地寻找一份好的推荐信。你会问谁，最好的联系方式是什么？
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/your-ultimate-guide-to-picking-and-getting-the-best-possible-references) *。*
 

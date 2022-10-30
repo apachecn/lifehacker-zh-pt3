@@ -6,7 +6,7 @@
 
 孩子们还在蒸发。事实上，他们中的许多人都在这么做，以至于食品和药物管理局局长斯科特·戈特利布发布了声明，称青少年使用电子烟已经达到了“流行病的比例”在所有的育儿论坛上，惊恐的妈妈们和爸爸们报告说发现了 vape 笔，像 [永远流行的朱尔](https://lifehacker.com/what-parents-need-to-know-about-juuling-1823376027) ，在背包和内衣抽屉里和 [在 PS4 设备](https://yourteenmag.com/health/drugs-alcohol/found-teen-juuling) 里充电。他们不知道该做什么。
 
-Watch
+
 
 会不会是青少年不知道电子烟对他们有害？
 

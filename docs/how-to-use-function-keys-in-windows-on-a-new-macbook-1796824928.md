@@ -4,7 +4,7 @@
 
 在 MacBook 上运行 Windows 并不罕见，但由于取消了功能键，在新的 Touch Bar MacBook Pro 上运行 Windows 有自己的一系列挑战。幸运的是，浏览一下你的 MacBook 的设置可以在使用 Windows 10 时找回那些珍贵的按键，不管是虚拟的还是原生的。
 
-Watch
+
 
 Touch Bar MacBook Pro 抛弃了传统的功能键，支持亮度和音量等一系列系统调节，让 Windows 用户没有一些使用操作系统所需的重要键。除非您按住键盘上的“fn”键，否则启用即时浏览器刷新或截屏页面等便利功能的功能键将会丢失。
 

@@ -4,7 +4,7 @@
 
 当你经历了为一个蠕动的蹒跚学步的孩子修剪刘海这种令人汗津津、心跳停止的折磨时，你知道你已经获得了一枚父母勇气勋章。现在我的女儿四岁了，由于在浴室里的 iPad 上玩 *Beat Bugs* 游戏，她在整个过程中相对安静地坐着，但她有时喜欢毫无预警地旋转她的头看着镜子，让我有点心脏病发作。她难道*没有看到*我正拿着一个尖锐的物体，离她的眼球只有几毫米远吗？显然，她不知道。
 
-Watch
+
 
 这条来自 Asha Dornfest 的 [*父母秘籍:与孩子一起生活的 134 个天才捷径*](https://www.amazon.com/Parent-Hacks-Genius-Shortcuts-Life/dp/0761184317?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/trim-your-toddlers-bangs-with-nose-hair-scissors-1798431832&asc_source=&tag=kinjalifehackerlink-20) 的建议让我真正“啊哈！”瞬间:用鼻毛剪修剪小孩的刘海。
 

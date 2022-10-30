@@ -4,7 +4,7 @@
 
 无论用什么标准来衡量，马克·马龙今年都是丰收的一年。这位喜剧演员在他的 [播客](http://www.wtfpod.com/podcast/episodes/episode_613_-_president_barack_obama) 中与奥巴马总统进行了交谈，他在 IFC 上的 [电视节目完成了第三季，并被续订了另一季，他还有一个](http://www.ifc.com/shows/maron) [新的脱口秀特别节目](http://www.epixhd.com/movie/marc-maron-more-later/) 在几天后首播。感觉一定很好，对吧？
 
-Watch
+
 
 马克对此并不自满，这也许并不奇怪；他告诉我们他很感激，但是工作带来了更多的工作，没有时间坐下来放松。这是当之无愧的成功，在喜剧和广播领域的职业生涯跨越了几十年的艰苦努力。考虑到这一点，我们采访了 Marc，以了解他如何在不精疲力竭的情况下管理他的多个项目。
 

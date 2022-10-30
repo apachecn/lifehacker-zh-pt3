@@ -4,7 +4,7 @@
 
 在 [战场上，subreddit](https://www.reddit.com/r/battlestations/) ， [damienslash](https://www.reddit.com/user/damienslash) 向观众展示了他的新设置，包括一张漂亮的定制桌子，超宽显示器，以及其他一些我们可以真正了解的东西。
 
-Watch
+
 
 Damienslash 没有在一个帖子中解释这里发生的一切，但是如果你滚动线程，你可以很快将所有事情拼凑在一起。这张桌子本身是由英国的一家制造商 [定制的一个漂亮、沉重的木制物件，他与](http://uniquewildwoodfurniture.co.uk/category/waney-edge-furniture/) 合作建造了这张桌子。他使用了罗德 NT1A 麦克风和 PSA 1 麦克风支架，以及 KRK VXT4 扬声器。他将所有的音频设备都插入了电脑的 Edirol UA25 USB 接口。
 

@@ -4,7 +4,7 @@
 
 抱歉，您的 [全新安卓手机](https://lifehacker.com/preview/the-best-way-to-buy-the-galaxy-s9-is-straight-from-sams-1823326739?rev=1519667070079#_ga=2.216598550.1805348582.1520530393-275916814.1520530392) 已经过时。 [谷歌](https://lifehacker.com/the-google-apps-new-imessage-extension-is-pretty-great-1823553441) 本周早些时候发布了其最新版本的移动操作系统，Android P——是的，基本上是一个颠倒的 Beats 标志——带来了一些很酷的新功能和轻微的视觉变化。
 
-Watch
+
 
 这里是你需要知道的关于 Android P 的一切，包括如何立即在你当前的手机上获得它。
 

@@ -4,7 +4,7 @@
 
 当讨债人打电话来时，他们可能会想尽各种办法让你还债。有些是完全合法的，而其他人则陷入灰色地带或彻底的骚扰。以下是你需要知道的。
 
-Watch
+
 
 [公平收债法](https://www.ftc.gov/enforcement/rules/rulemaking-regulatory-reform-proceedings/fair-debt-collection-practices-act-text) (FDCPA)限制收债人在收取某些类型的债务时可以做的事情，包括汽车贷款、信用卡、医疗、抵押贷款和其他一些债务。一些州有附加法律。
 

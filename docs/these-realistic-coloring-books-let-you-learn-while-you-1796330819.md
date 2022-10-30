@@ -4,7 +4,7 @@
 
 着色可以是，也可以是一种不需要技巧的艺术表现。但这也是学习的好方法。当你用铅笔冥想的时候，看看这些书，学习解剖学、自然等等。
 
-Watch
+
 
 在你的科学课教学大纲中,“推荐但不要求”部分，解剖学涂色书一直是复活节彩蛋。经典的是 Kapit 和 Elson 的 [解剖涂色书](https://www.amazon.com/Anatomy-Coloring-Book-Wynn-Kapit/dp/0321832019/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-realistic-coloring-books-let-you-learn-while-you-1796330819&asc_source=&tag=kinjalifehackerlink-20) ，上面照片里的是我用旧了的，写了一半的副本。同一个出版社还有 [植物学](https://www.amazon.com/Botany-Coloring-Book-Paul-Young/dp/0064603024/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-realistic-coloring-books-let-you-learn-while-you-1796330819&asc_source=&tag=kinjalifehackerlink-20)[人脑](https://www.amazon.com/dp/0064603067?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-realistic-coloring-books-let-you-learn-while-you-1796330819&asc_source=&linkCode=ogi&psc=1&smid=ATVPDKIKX0DER&tag=kinjalifehackerlink-20&th=1)[动物学](https://www.amazon.com/Zoology-Coloring-Book-Lawrence-Elson/dp/0064603016/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-realistic-coloring-books-let-you-learn-while-you-1796330819&asc_source=&tag=kinjalifehackerlink-20)[微生物学](https://www.amazon.com/Microbiology-Coloring-Book-Edward-Alcamo/dp/0060419253/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-realistic-coloring-books-let-you-learn-while-you-1796330819&asc_source=&tag=kinjalifehackerlink-20) 等等书籍。着色是学习解剖学的一个很好的方法，因为你必须注意每块肌肉或骨骼或细胞的形状和位置；你不能只看一眼图表就继续前进。这些书还用颜色标出图表中每件事物的名称，这有助于你的记忆。
 

@@ -4,7 +4,7 @@
 
 我们以前写过，给新父母最好的礼物是服务，而不是东西 。但你的朋友和家人可能没有意识到这一点，所以在你的婴儿送礼会上，他们会递给你一顶饰有小鸭子的帽子，你的新包裹会戴着它在 Instagram 上拍一张可爱的照片，然后再也不会看到它。他们本意是好的，但可能需要——也可能会感激——一些指导。
 
-Watch
+
 
 把服务放在你的婴儿登记簿上越来越普遍了。当然，雇佣一个产后导乐的基金可能不会像 [婴儿护膝](https://www.amazon.com/Baby-Knee-Pads-Crawling-Pairs/dp/B017OCMX1K?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/put-services-on-your-baby-registry-1827846200&asc_source=&tag=kinjalifehackerlink-20) 那么多 *awwws* ，但是在接下来令人筋疲力尽的日日夜夜里，你肯定会更加感激它。作为父母，我们需要在寻求帮助时变得更自在，当我们这样做时，我们需要更具体。
 

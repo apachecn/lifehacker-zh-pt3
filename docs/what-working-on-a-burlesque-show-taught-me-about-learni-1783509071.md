@@ -4,7 +4,7 @@
 
 上周末，我帮忙做了一场银河护卫队主题的滑稽表演。我没有戏剧方面的背景，更没有滑稽戏方面的背景，只是勉强为我的工作职责做好准备。当你不知道自己在做什么的时候，我学到了如何在压力下工作。
 
-Watch
+
 
 我的女朋友邀请我参加当地滑稽表演团体举办的一场演出。我会管理麦克风，确保每个人在需要时都有麦克风包。我学的是电视制作，所以我对这方面有点熟悉，但一到那里，我就承担了其他一些我完全没有准备的工作。很多工作都是这样。你第一天去上班，期待着一件事，但你发现你还有五项其他的责任，你不确定你是否准备好了。幸运的是，如果你准备好随时学习，即使你不知道所有的细节，你也可以解决很多问题。
 
@@ -38,11 +38,7 @@ Watch
 
 但是当你需要帮助的时候不寻求帮助是非常不专业的。如果你不知道如何做某事，或者如果你没有得到你需要的资源，你只会让每个人都处于危险之中，无论你是在一个办公室工作人员团队中，还是像我一样在幕后工作。无论如何，*提出你需要的*。我很幸运能和一群友好的工作人员一起工作，他们知道自己在做什么。不是每个团队都是这样的，但如果你寻求帮助，只有一个机会，有人会对你评价很差。如果你不寻求帮助，而你搞砸了，他们会*知道*你做不了这份工作。获得你需要的资源比沉溺于因不适应环境而产生的恐惧要好。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What Working On a Burlesque Show Taught Me About Learning On the Job](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849) [###### 克服冒名顶替综合症:当你觉得自己是个骗子时该怎么办](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849) 
 
-每个人在职业生涯的某个时刻都会感觉到:我是个骗子，每个人都将…
-
-[Read more](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849)</aside>
 
 ### **结识每个人**
 

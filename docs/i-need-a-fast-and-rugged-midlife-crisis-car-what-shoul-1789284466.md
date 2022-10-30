@@ -4,7 +4,7 @@
 
 布鲁斯多年来一直开着一辆小型货车。它能完成任务，但这不是他喜欢开的车。他认为是时候拥有一辆“中年危机”跑车了，但也需要一辆能满足他户外爱好的车。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？，在这里我们给真实的人提供关于买车的真实建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

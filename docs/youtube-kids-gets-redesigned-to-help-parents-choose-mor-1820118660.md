@@ -4,7 +4,7 @@
 
 父母(可以理解)不想让他们的孩子看 [无脑废话](https://lifehacker.com/is-youtube-kids-purposely-training-kids-to-watch-youtub-1794607840) 或 [令人不安的卡通](https://offspring.lifehacker.com/how-to-protect-your-kids-from-disturbing-fake-peppa-pi-1797768331) 。重新设计的 YouTube Kids 给了他们更多的控制权。
 
-Watch
+
 
 首先，你现在可以用你自己的谷歌账户作为管理员为你的孩子创建多个档案。忘了教你的孩子分享吧，给他们每个人建立自己的账户。
 

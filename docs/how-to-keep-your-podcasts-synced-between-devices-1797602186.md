@@ -4,7 +4,7 @@
 
 *这个问题是* [*问 Lifehacker*](http://lifehacker.com/tag/ask-lifehacker) *建议专栏的一部分，Lifehacker 的工作人员用实用的技巧回答读者的燃眉之急。毕竟，一些最好的黑客来自最烦人的问题。*
 
-Watch
+
 
 ## 亲爱的生活黑客:
 

@@ -4,7 +4,7 @@
 
 人们很容易对锻炼的想法感到有动力。我们都来跑马拉松吧！然后做一个俯卧撑挑战！但不知何故，我们的很多计划从来没有离开过“想法”阶段。我们都是大忙人，对吧？很难找到时间。
 
-Watch
+
 
 ### “找时间”实际上意味着腾出时间
 
@@ -52,11 +52,7 @@ Watch
 
 但是如果你能让你的锻炼经历本身成为一种奖励，那是最好的。也许在健身的时候，你会遇到你最喜欢的健身伙伴 ，或者听你最喜欢的播客。也许你喜欢分享你汗流浃背的自拍照，并记录下你当天的成就。也许与其在你不喜欢的健身器材上埋头苦干，不如加入一个团队 [做一项你喜欢的运动](http://vitals.lifehacker.com/fun-sports-you-can-start-as-an-adult-1697785955) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Find Time to Exercise When Your Schedule Is Already Packed](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-fit-a-workout-into-my-daily-routine-5854874) [###### 我如何将锻炼融入我的日常生活？](https://lifehacker.com/how-can-i-fit-a-workout-into-my-daily-routine-5854874) 
 
-亲爱的 Lifehacker，我真的需要多运动。我考虑过尝试类似…
-
-[Read more](https://lifehacker.com/how-can-i-fit-a-workout-into-my-daily-routine-5854874)</aside>
 
 最终，因为你花时间锻炼，你只会坚持对你有价值的锻炼。要么是享受，要么是看重从中得到的结果，或者两者兼而有之。当一项锻炼在你的时间表中有了位置*和*成为继续回来的理由，那么你就有了一个值得骄傲的习惯。
 

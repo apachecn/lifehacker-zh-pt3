@@ -4,7 +4,7 @@
 
 这个 chill，cityside beach 桌面是由读者 [Yuki](https://www.flickr.com/photos/127192490@N06/) 提交给我们的桌面展示和讲述池的，尽管它不是精心制作的，但它看起来仍然很棒。以下是你也可以设置它的方法。
 
-Watch
+
 
 Yuki 正在 Windows 上使用 rainmet 来获得这种效果，所以如果你不熟悉它，你可以在这里 查看我们的 rainmet 入门指南。
 

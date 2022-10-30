@@ -4,7 +4,7 @@
 
 罗伯特有一辆开了 14 年的大众帕萨特，跑了很多英里，寿命也不多了。他的家人拒绝乘坐他的车，这辆车可能几年前就应该被送到垃圾场了，所以是时候换一辆安全但不蹩脚的车了。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

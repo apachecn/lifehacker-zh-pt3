@@ -4,7 +4,7 @@
 
 在你选择的最喜欢的社交媒体频道上重新分享那张滑稽或可怕的图片之前，花一点时间——事实上， [和它第一次出现的](https://gizmodo.com/9-more-viral-photos-that-are-totally-fake-1793128771) 一样真实吗？从 [政治场景](https://gizmodo.com/that-viral-photo-of-putin-is-totally-fake-1796767457) 到 [鲨鱼入侵](https://gizmodo.com/that-totally-fake-shark-photo-isnt-from-hurricane-harve-1798495171) ，由于易于使用的图像编辑工具和容易受骗的观众，网络上充斥着伪造的照片。以下是如何确保你不会被抓到。
 
-Watch
+
 
 ### **故障信号**
 

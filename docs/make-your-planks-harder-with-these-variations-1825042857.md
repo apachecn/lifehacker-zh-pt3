@@ -8,7 +8,7 @@ Plank 可能不容易，但是很简单。不过，如果你觉得无聊，还�
 
 在上面的视频中，教练 Jordan Syatt 分享了他最喜欢的动作，这些动作适合那些擅长常规木板并且想要更难锻炼的人。但是你也可以尝试这些，作为你常规平板训练的一个挑战。举例来说，你可以尝试每次 30 秒，它们会为你的核心增加一个短暂但高强度的锻炼。以下是这些动作:
 
-Watch
+
 
 *   [常规木板](https://www.syattfitness.com/coaches-and-coaching-tips-for-trainers/weighted-planks-final-word/)
 *   然后抬起一条腿离开地面

@@ -4,7 +4,7 @@
 
 iPhone 8 和 8 Plus 与去年的 iPhone 7 有很多共同点，但新的处理器、改进的摄像头、无线充电和 iPad Pros 的 True Tone 显示屏可能是再次升级的令人信服的理由。
 
-Watch
+
 
 ### **一个熟悉的设计**
 

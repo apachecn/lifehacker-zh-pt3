@@ -4,7 +4,7 @@
 
 对于数据极客来说，Wolfram Alpha 是一个伟大的 [搜索引擎](http://www.wolframalpha.com/examples/StepByStepSolutions.html) ，但是它也有很多对我们其他人有用的计算技巧。以下是一些最有用的。
 
-Watch
+
 
 ### 即时设置和玩棋盘游戏的时间信息
 

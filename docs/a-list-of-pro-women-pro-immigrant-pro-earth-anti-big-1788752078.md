@@ -4,7 +4,7 @@
 
 唐纳德·特朗普一直公开鼓吹性侵犯、伊斯兰恐惧症、仇外心理和暴力种族主义。周三清晨，美国 [投票](http://theslot.jezebel.com/donald-trump-has-been-elected-president-of-the-united-s-1788623620) 选举他为我们的总统。
 
-Watch
+
 
 这里有几个致力于为我们最弱势群体争取权利的组织，以及你可以志愿或捐赠的方式，以确保他们能够比以往更加努力地工作。
 

@@ -4,7 +4,7 @@
 
 在昨天的大日食之后，许多人都在问一个非常重要的问题:它什么时候会再次发生？*《华盛顿邮报》* [创造了一个工具](https://www.washingtonpost.com/graphics/national/eclipse/?hpid=hp_no-name_graphic-story-a%3Ahomepage%2Fstory&utm_term=.00f7720dc2f7) 来帮你找出答案。
 
-Watch
+
 
 无论你是被这惊人的景象迷住了，还是因为这次忘记买眼镜而需要重新来过，这个“一生一次”的活动实际上离它还很远。大约每两年，世界上的某个地方就会发生一次日全食，所以如果你已经染上了追逐日全食的毛病，那么在你的余生中，你可能会有很多机会去克服它。
 

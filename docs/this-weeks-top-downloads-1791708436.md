@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**谷歌语音获得群发短信、彩信，多年停滞后焕然一新**](http://lifehacker.com/google-voice-gets-group-texts-mms-and-a-new-look-afte-1791517753)
 

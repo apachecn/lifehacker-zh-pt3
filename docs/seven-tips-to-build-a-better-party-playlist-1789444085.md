@@ -4,7 +4,7 @@
 
 没有音乐就不是派对。无论你是要举办啤酒聚会、高档鸡尾酒会，还是寒冷的假日派对，你都需要一些音乐。这些建立播放列表的建议将确保你的聚会是一个有趣的，难忘的活动。
 
-Watch
+
 
 ### **不要计划使用随机播放，确保你的播放列表能够持续**
 
@@ -54,11 +54,7 @@ Watch
 
 提前思考，为类似的情况做好计划。你做的准备工作越多，聚会时你的压力就越小。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Seven Tips to Build a Better Party Playlist](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-streaming-music-services-you-arent-using-but-476372723) [###### 你没有使用(但应该使用)的最佳流媒体音乐服务](https://lifehacker.com/the-best-streaming-music-services-you-arent-using-but-476372723) 
 
-流媒体音乐应用和发现服务多如牛毛，但即使是最好的也有…
-
-[Read more](https://lifehacker.com/the-best-streaming-music-services-you-arent-using-but-476372723)</aside>
 
 *<small>angelica alzona 的插图。图片由</small>*[*<small>【Jared eberhardt】</small>*](https://www.flickr.com/photos/jaredeberhardt/4765501762/)<small>拍摄 [*<small>【萨赫勒南达】</small>*](https://www.flickr.com/photos/iluvphotography/27798512754/)*<small>，</small>*</small>
 

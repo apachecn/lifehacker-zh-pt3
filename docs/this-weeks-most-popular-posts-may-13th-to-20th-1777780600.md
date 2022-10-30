@@ -4,7 +4,7 @@
 
 本周我们学到了很多东西，从谷歌在 I/O 大会上的最新技术发展，到你可能不知道可以在 Spotify 上播放的所有很酷的东西。这很方便，因为机场安检线比以往任何时候都长，所以我需要一些有声读物。让我们来回顾一下本周的热门帖子。
 
-Watch
+
 
 ## [**你可能不知道可以在 Spotify 上播放的八件事**](http://lifehacker.com/eight-things-you-probably-didnt-know-you-could-stream-o-1776963565)
 

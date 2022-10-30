@@ -4,7 +4,7 @@
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 
-Watch
+
 
 我已经放弃了普通的炖牛肉，甚至红酒炖牛肉。更好的事情发生了，我恐怕不能再和那些笨蛋在一起了。就像一场樱花盛开的暴风雪，日式炖牛肉简单却深具魔力。
 

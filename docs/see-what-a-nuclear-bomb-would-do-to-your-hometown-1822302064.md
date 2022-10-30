@@ -4,7 +4,7 @@
 
 上周夏威夷 [可怕的假导弹警报](https://www.washingtonpost.com/news/post-nation/wp/2018/01/14/hawaii-missile-alert-how-one-employee-pushed-the-wrong-button-and-caused-a-wave-of-panic/?utm_term=.35fd074cd7cf) 让美国人问了一个我们最喜欢的问题，“如果它发生在这里会怎么样？”虽然从统计数据来看，你的家乡可能不是核目标，但历史学家亚历克斯·韦勒斯坦的 [核弹地图](http://nuclearsecrecy.com/nukemap/) 向你展示了它的样子。
 
-Watch
+
 
 核爆炸的效果取决于许多因素，比如炸弹的大小，它的目标是什么，以及风是什么样的。NUKEMAP 可以让你使用不同已知核武器的统计数据来试验各种核场景，绘制出哪些区域会被烧成灰烬，哪些区域会被辐射覆盖。你可以估计死亡人数，多少当地学校和医院将关闭，以及今天的天气将如何影响辐射。你可以使用 NUKEMAP 的姐妹站点 [MISSILEMAP](http://nuclearsecrecy.com/missilemap/) 从当前和历史导弹发射场中进行选择。
 

@@ -4,7 +4,7 @@
 
 我们都知道被闹钟叫醒是最糟糕的起床方式，尽管可以说是最有效的。
 
-Watch
+
 
 [iOS 和 Android 应用程序 bed itiations](https://highlymeditated.com/beditations/)有点改变了我们如何入睡和如何醒来的想法，不仅提供引导冥想让你在晚上入睡，还提供早上冥想让你醒来，取代传统的闹钟。
 

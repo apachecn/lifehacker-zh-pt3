@@ -6,7 +6,7 @@
 
 谷歌 [最近为 Android 设备推出了一个新的辅助功能](https://www.blog.google/outreach-initiatives/accessibility/use-your-voice-access-world-new-android-app/) ，即语音访问应用。语音访问超越了谷歌助手已经识别的语音命令，允许你控制 Android 手机(和大多数应用程序)基于触摸和手势的界面。
 
-Watch
+
 
 为了帮助您入门，我们为语音访问应用程序整理了一份快速指南，包括一些您应该知道的更有用的命令和功能的示例。
 

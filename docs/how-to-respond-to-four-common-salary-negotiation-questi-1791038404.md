@@ -4,7 +4,7 @@
 
 你想为即将到来的 [薪资谈判](https://www.themuse.com/advice/how-to-negotiate-salary-37-tips-you-need-to-know) 做好准备，所以你计划研究标准薪资范围，并练习询问你想要的东西。这些步骤当然有价值，但还不够。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/4-lines-thatll-catch-you-off-guard-during-salary-negotiations-and-how-to-prepare?ref=home-large-tile-0) *。*
 

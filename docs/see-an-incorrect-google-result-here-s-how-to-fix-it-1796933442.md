@@ -4,7 +4,7 @@
 
 任何曾经花时间在谷歌上搜索名人——或者他们自己——的人都会告诉你，潜入互联网的兔子洞，有时会在右边的框中出现一些奇怪的结果。那么，一个纸上谈兵的事实审查员该做些什么呢？如果你确实知道大卫·斯佩德不是达纳·卡维，或者你的生日绝对不是范·海伦的*妇孺优先*的同一天，你可以自己告诉谷歌。
 
-Watch
+
 
 在 Reddit 的 Google subreddit 中，用户 [thelance](https://www.reddit.com/r/google/comments/6lwnuf/googles_first_picture_for_dana_carvey_is_actually/djx6ju0/) 分享了一种快速报告错误结果的方法，该方法位于 Google 的右侧框中，突出显示了热门搜索的某些信息(称为 Google OneBox，因为它是包含大量信息的单个框)。
 

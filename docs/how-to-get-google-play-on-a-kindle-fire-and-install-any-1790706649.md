@@ -4,7 +4,7 @@
 
 [Kindle Fire 平板电脑](https://www.amazon.com/s/ref=nb_sb_noss_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-google-play-on-a-kindle-fire-and-install-any-1790706649&asc_source=&field-keywords=kindle fire&tag=kinjalifehackerlink-20&url=search-alias=aps) 是一些最好、最便宜的安卓平板电脑，但它们仅限于 [亚马逊的应用商店](https://www.amazon.com/mobile-apps/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-google-play-on-a-kindle-fire-and-install-any-1790706649&asc_source=&ie=UTF8&node=2350149011&tag=kinjalifehackerlink-20) ，与 [【谷歌 Play 商店】](https://play.google.com/store) 上的数千款应用相比，这是非常缺乏的。不过，稍加调整，你就可以在上面运行任何安卓应用。你甚至可以在一些设备上看到整个谷歌 Play 商店。
 
-Watch
+
 
 ### **你需要什么**
 

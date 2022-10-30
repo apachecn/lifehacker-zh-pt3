@@ -4,7 +4,7 @@
 
 本周我们将观看一些令人难以置信的击剑视频，探索地球上的生命之树，建立一些遗愿清单，并谈论音乐采样的历史。
 
-Watch
+
 
 *<small>欢迎来到 Lifehacker 的</small>* [*<small>周一大脑自助</small>*](http://lifehacker.com/tag/monday-brain-buffet) *<small>，这是一个系列节目，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，它们会教你一些新东西，启发你，并有希望让你的一周有一个良好的开端。</small>T15】*
 

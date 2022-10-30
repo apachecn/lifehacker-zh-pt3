@@ -4,7 +4,7 @@
 
 像飓风哈维这样的重大新闻事件会产生数以千计的照片，以及数以千计的虚假、过时或断章取义的照片的推文和脸书帖子。这一次最大的赢家是高速公路上鲨鱼的 Photoshop，它在每次重大飓风期间都会出现。
 
-Watch
+
 
 在你加入转发那张假照片的 68，000 多人之前，只需点击两下核实一下。在 Chrome 中，右键点击图片，然后点击“谷歌搜索图片”然后嘣，你看有没有一个来源或者 [十篇博文揭穿了它](https://www.google.com/search?tbs=sbi:AMhZZiuzh23m1FqcWeBxPkrgEaIVka2_1mxr2Qmh623YgoN7yhSEwh79C2cLYRVXsZrpZQQKTjgTF8JqnotWGj-CD-yVZqJwBb4Y3ZVHIXCYFQkQ1VQGs3zhUAQdFdUxsrHgd9J8UsiWtagsjHY-dn8xPkw0Nc5xG6_1L0l5GDxVc63evygkDm2Ekbo0QPRDQl688iapZGL2PpkkHy6dZuH4mLuNzOwpi-X8lMcfpJ020S9AV6wAGmjnxSDpg2P0B5fW0Xsy_1EquMX2hB_1obZUQijR7ryqW_1iRuEQOeAxfz2Vk95c-yKfKjSbO8jGhTEQM0P5ExD-y2Xzq0mNktnfw74UzMHgByAy25g) 。BuzzFeed 记者 Jane Lytvynenko 将其分解为几个小步骤:
 

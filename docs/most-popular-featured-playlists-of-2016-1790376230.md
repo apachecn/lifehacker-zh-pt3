@@ -4,7 +4,7 @@
 
 今年，我们开始了一个新的 Lifehacker 传统，每周都有一个播放列表。这是 2016 年非常需要的音乐之旅。这里回顾一下我们一年来分享的最有特色的播放列表。
 
-Watch
+
 
 ### [王子播放列表](http://lifehacker.com/the-prince-playlist-1772358078)
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-pick-the-right-wall-paint-and-buy-the-right-amou-1829396064>
 
-Watch
+
 
 油漆多个房间，甚至是你家的一面墙，感觉像是一个压倒性的工程:有挑选颜色，胶带装饰，打磨，涂底漆，哦，是的，做实际的油漆。
 

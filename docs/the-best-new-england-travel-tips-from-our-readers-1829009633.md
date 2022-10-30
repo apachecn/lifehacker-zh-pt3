@@ -4,7 +4,7 @@
 
 [秋天即将逝去](https://science.howstuffworks.com/nature/climate-weather/atmospheric/climate-change-four-seasons-redefine.htm) 。但是现在，九月仍然是东北部树叶开始变化的时候。为了纪念赏叶季节，本周 [我们收集了你去新英格兰](https://lifehacker.com/tell-us-your-small-town-new-england-hacks-1828894531) 旅行的小贴士。你可以在那个链接的 *Staff* 标签下阅读所有的最佳评论。我们摘录了下面最精彩的部分。
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

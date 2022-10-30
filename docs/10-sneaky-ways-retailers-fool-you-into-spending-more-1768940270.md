@@ -4,7 +4,7 @@
 
 每天，商店都在试图说服我们往购物车里放更多的东西，然后在结账时多付一些钱。从战略展示到所有这些美味的赠品，商店都试图愚弄顾客。因此，本着这个季节的精神，让我们来看看商店是如何说服我们打开钱包的——这可能会帮助我们少花一点钱。
 
-Watch
+
 
 *本帖原载于*[*deal news*](http://dealnews.com/features/Ways-Retailers-Fool-You-Into-Spending-More/)*。*
 

@@ -4,7 +4,7 @@
 
 谎言有三种类型:省略，即某人坚持事实；委员会，某人陈述不真实的事实；还有 *paltering* ，有人用真实的事实误导你。这并不总是容易察觉，但有一些迹象。
 
-Watch
+
 
 最近一项发表在*个性与社会心理学期刊* 上的 [研究表明，玩弄](https://www.apa.org/pubs/journals/releases/psp-pspi0000081.pdf) [手段的做法相当普遍](https://lifehacker.com/watch-out-for-paltering-techniques-to-spot-a-lie-hidd-1787480207) ，尤其是在企业高管中。不仅如此，做这件事的人似乎并不认为他们做错了什么——尽管事实上大多数人都觉得这是 [就像佣金的故意谎言](https://www.psychologytoday.com/blog/ulterior-motives/201703/what-happens-when-you-lie-telling-the-truth) 一样不道德、不可信。不过，不只是高管会这么做。如果你曾经试图从一个卑鄙的推销员那里买一辆二手车，与一个铁石心肠的老板进行过工资谈判，或者基本上观看过任何总统辩论，你肯定见过派特林的行动。
 

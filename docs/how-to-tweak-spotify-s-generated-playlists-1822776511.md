@@ -4,7 +4,7 @@
 
 Spotify 的算法生成的播放列表在尝试，但它们并不总是命中目标。如果你想稍微改变一下食谱，可以试试 Spotify 播放列表生成器 [Nelson](https://nelson.glitch.me/) ，它可以让你根据你喜欢的音乐类型(或音乐元素)定制播放列表上显示的内容。
 
-Watch
+
 
 由 Spotify 开发者倡导工程师[Arielle Vaniderstine](https://twitter.com/imariari)创建的 [Nelson](https://nelson.glitch.me/) ，为你想听更多的内容提供了更细致的选择。你首先挑选五种你感兴趣的风格，然后调整对应于特定音乐元素的滑块(你可以在 0.0 到 1.0 之间调整参数)。然后:观看自定义播放列表在您眼前生成。当然，您可以将新生成的播放列表保存到您的 Spotify 帐户中。
 

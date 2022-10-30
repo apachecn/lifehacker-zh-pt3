@@ -4,7 +4,7 @@
 
 詹姆斯·j·塞克斯顿是一名离婚律师，他的职业生涯一直在与婚姻正在破裂的夫妇打交道。这些年来，他学到了很多关于什么会破坏一段美好的婚姻(或者结束一段已经陷入困境的关系)，现在他正在用这些知识来帮助我们其他人。他的新书是 [*如果你在我的办公室，那就已经太晚了:离婚律师如何在一起*](https://www.amazon.com/dp/B075QJ7JLB/ref=dp-kindle-redirect?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-save-your-relationship-with-divorce-lawyer-jame-1825292713&asc_source=&btkr=1&tag=kinjalifehackerlink-20) 。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/e9efe78a-de24-4dfa-8b17-9be666a493d1/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/e9efe78a-de24-4dfa-8b17-9be666a493d1/embed)
 

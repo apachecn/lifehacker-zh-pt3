@@ -4,7 +4,7 @@
 
 Switch 上的堡垒之夜将通过耳机接口支持语音聊天，而不是通过一些愚蠢的手机应用程序，就像一个普通的游戏一样。它目前还没有在 Epic 今天推出的流行游戏 battle royale 的 Switch 版本中提供，但将在周四提供。
 
-Watch
+
 
 像堡垒之夜这样的竞技游戏极大地受益于玩家之间的交流。任天堂之前曾试图在 Switch 上实现语音聊天，尽管在经典的任天堂风格中，这是通过一个奇怪而笨拙的系统， [要求你使用一个适配器将自己连接到你的 Switch 和你的手机上，才能使用一个应用程序与其他玩家](https://kotaku.com/the-switchs-phone-enabled-voice-chat-is-as-ridiculous-a-1797058470) 聊天。
 

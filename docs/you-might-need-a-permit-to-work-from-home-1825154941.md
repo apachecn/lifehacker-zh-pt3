@@ -4,7 +4,7 @@
 
 去年秋天，我搬到了一个新的城市——今年春天，我得知我需要一个家庭居住许可证才能在我的公寓里做自由职业者。
 
-Watch
+
 
 居家规则因城市而异，大多数自由职业者可能都没有意识到它们的存在；自从我开始做自由作家以来，我已经搬了不止一次家，我知道我需要查看营业执照等等，但我从未想过要获得城市允许在家工作。我的意思是，不管我们是全职自由职业者还是兼职，这不正是我们大多数人最近在做的事情吗？
 
@@ -16,11 +16,7 @@ Watch
 
 请注意，即使你的公司地址与你的家庭地址不同，你也可能需要家庭居住许可证。如果你大部分时间在家工作，城市可能会认为这是一种居家工作。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled You Might Need a Permit to Work From Home](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-do-i-need-to-do-now-that-im-making-some-legit-mone-5895507) [###### 既然我做了一些合法的自由职业赚钱，我需要做什么？](https://lifehacker.com/what-do-i-need-to-do-now-that-im-making-some-legit-mone-5895507) 
 
-亲爱的 Lifehacker，我为朋友们做了几个小项目，现在看起来我可能…
-
-[Read more](https://lifehacker.com/what-do-i-need-to-do-now-that-im-making-some-legit-mone-5895507)</aside>
 
 ## 如何获得房东的许可
 

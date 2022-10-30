@@ -4,7 +4,7 @@
 
 本周，我们关注了当你贫穷时实际上花费更多的费用，学会如何更换汽车刹车片，试用手持 Linux 电脑，等等。下面回顾一下本周最受欢迎的帖子。
 
-Watch
+
 
 ## [**越穷越贵的东西**](http://twocents.lifehacker.com/the-stuff-that-costs-more-when-youre-poor-1783148870)
 

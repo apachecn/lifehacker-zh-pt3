@@ -4,7 +4,7 @@
 
 并不是你使用的每一个 Chrome 或 Firefox 扩展都必须百分之百致力于生产力或实用性。有时候，看着漂亮的东西真好。对于来自谷歌地球的地球视图( [Chrome](https://chrome.google.com/webstore/detail/earth-view-from-google-ea/bhloflhklmhfpedakmangadcdofhnnoh) ， [Firefox](https://addons.mozilla.org/en-US/firefox/addon/earth-view-from-google/) )，我并不在乎它是否会耗尽我的浏览器的内存或以任何方式影响它的性能。这让我开心，也会让你开心——这正是我们延长这一周的原因。
 
-Watch
+
 
 您可能仅仅通过它的名字就能猜出这个扩展是做什么的，但是它比您所想的要简单得多。这不是谷歌地球的一些花哨的搭配，让你在浏览器中缩放地球，或者每当你进行相关的谷歌搜索时飞越大峡谷。相反，该扩展从 Google Earth 中调出一个新的策划地点的图像，填充你打开的任何新浏览器标签的背景。就是这样。
 

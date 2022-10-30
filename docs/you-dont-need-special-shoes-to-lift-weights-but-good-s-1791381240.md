@@ -4,7 +4,7 @@
 
 在健身房圈子里，关于举重带、手套或鞋子等装备的争论可能会变得很难看。要么它们是拐杖，要么你不戴它们就是傻瓜。但是 [就像腰带](https://lifehacker.com/when-weightlifting-belts-are-necessary-and-when-theyre-1766557417) 一样，举重鞋在某些情况下可以有所帮助，但在其他情况下它们只是作秀。关键是弄清楚你的需求和目标。
 
-Watch
+
 
 跑步的话，得到一双 [合脚的跑鞋，跑步时感觉很舒服。](https://lifehacker.com/pick-running-shoes-based-on-comfort-to-prevent-foot-inj-1449138178) 对大多数人来说，同样的跑鞋也适合休闲举重。但是，如果你想举起重物，并且非常认真地想变得更强壮，你需要能帮助你在地板上保持稳固姿势的鞋子。例如，经典的 [匡威查克泰勒](http://www.converse.com/us/en_us/c/converse) [是经验丰富的举重运动员](http://www.converse.com/us/en_us/c/converse) 的热门选择。卡盘不完全是举重鞋，但它们*是*举重的理想选择。它们平坦且低至地面，具有良好的牵引力，并支撑你的脚。当你做某些练习时，如 [深蹲](http://vitals.lifehacker.com/why-squats-are-the-best-strength-building-exercise-for-1760732712) 、硬拉和头顶压，你需要“蹬脚后跟”，这些功能可以帮助你更有效地利用你的能量把杠铃举起来。
 

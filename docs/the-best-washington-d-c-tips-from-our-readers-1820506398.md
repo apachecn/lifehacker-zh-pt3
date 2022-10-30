@@ -4,7 +4,7 @@
 
 当我们向 Lifehacker 的读者询问 [他们对访问或居住在华盛顿](https://lifehacker.com/tell-us-your-best-washington-d-c-hacks-1820347103) 的建议时，我们得到了近 300 条评论，创下了 [Hack Your City](https://lifehacker.com/c/hack-your-city) 系列的新纪录。以下是去哪里喝酒、去哪里吃饭以及去哪里的最佳建议...做博物馆的动词。
 
-Watch
+
 
 或者在大量原始线程中打洞:
 

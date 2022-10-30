@@ -4,7 +4,7 @@
 
 BBC 周一宣布了一个很酷的新 [亚马逊 Alexa 技能](https://lifehacker.com/the-first-alexa-skills-to-enable-on-your-new-amazon-ech-1796841634) :互动讲故事。“”讲述了一个黑暗搞笑的科幻故事，一路上问你问题，把你置身于行动当中。
 
-Watch
+
 
 BBC 的新 Alexa 技能并不完全是一个选择你自己的冒险游戏。根据 [Engadget](https://www.engadget.com/2017/11/06/the-inspection-chamber-bbc/) ，只有一个分支决策，故事的其余部分是非常线性的。但是如果“ [【检查室】](http://www.bbc.co.uk/taster/projects/inspection-chamber) ”引起了你的兴趣，现在你可以用你的回声来看看其他一些互动音频游戏。这里有几个值得一试。
 

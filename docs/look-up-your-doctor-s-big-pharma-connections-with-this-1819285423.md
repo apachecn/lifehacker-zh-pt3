@@ -4,7 +4,7 @@
 
 制药公司和医疗设备公司出于各种原因向医生和教学医院提供资金。 [ProPublica 去年发现](https://www.propublica.org/article/updated-dollars-for-docs-heres-whats-new) 大多数医生都接受付款，而那些接受付款的医生更有可能开名牌药。报酬会影响你自己医生的判断吗？[Docs 数据库](https://projects.propublica.org/docdollars/) 的美元不能肯定地告诉你，但它至少能说出美元的金额。
 
-Watch
+
 
 该数据仅包括医生(不包括医师助理或执业护士)，也不包括与研究或医生拥有公司相关的支付。作为 ACA 的一部分,《医生支付阳光法案》要求制药公司和设备公司披露他们支付的对象和金额；ProPublica 的工具使用的是截至 2015 年的数据。
 

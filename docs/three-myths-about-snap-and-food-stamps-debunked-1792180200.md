@@ -4,7 +4,7 @@
 
 如果你相信某些迷因和谣言，这可能听起来像是参加 [补充营养援助计划](https://www.fns.usda.gov/snap/supplemental-nutrition-assistance-program-snap) (SNAP)，更好的名字是 [以前的名字](https://en.wikipedia.org/wiki/Supplemental_Nutrition_Assistance_Program) ，食品券计划的人，正在用纳税人的钱购买大量垃圾食品，享受额外的现金，而我们其余的人必须为我们的钱工作。不过，这不是真的。
 
-Watch
+
 
 接受快速福利的人并没有高高在上，当立法者提出假设他们是高高在上的政策时，以及当你试图对杂货店排队时你前面的家庭做出快速判断时，理解这一点很重要。让我们澄清事实。
 

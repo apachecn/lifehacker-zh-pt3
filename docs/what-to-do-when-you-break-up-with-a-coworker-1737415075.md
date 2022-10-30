@@ -4,7 +4,7 @@
 
 你拥有完美的——直到你没有。现在你们分手了。你把他或她的所有东西都从你的公寓里搬走了，还把你们可爱的情侣脸书的照片都取消了标签。但是当你在办公室见到你的前任时，事情就复杂了。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/5-ways-to-survive-an-office-breakup-with-your-dignity-intact) *。*
 
@@ -26,11 +26,7 @@ Watch
 
 没必要给办公室剧火上浇油。而且，你不希望你们的分手成为一个夸张的办公室传奇。(“有一次，营销部门的一对夫妇分手了，嗯，我们从来没有见过有这么多秘密提及作弊的演示。”)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What to Do When You Break Up With a Coworker](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-handle-a-toxic-work-environment-1627385030) [###### 如何处理有毒的工作环境](https://lifehacker.com/how-to-handle-a-toxic-work-environment-1627385030) 
 
-不喜欢自己的工作是一回事，但上班时感到身体不适是另一回事。…
-
-[Read more](https://lifehacker.com/how-to-handle-a-toxic-work-environment-1627385030)</aside>
 
 ### **3。限制你的互动**
 

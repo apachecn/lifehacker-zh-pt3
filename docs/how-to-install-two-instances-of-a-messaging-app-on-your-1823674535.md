@@ -4,7 +4,7 @@
 
 Twitter 和 Instagram 等应用程序允许你同时登录两个账户，但如果你想在同一台设备上使用两个不同的消息客户端，你通常会运气不佳。比如 Facebook Messenger、Skype 和 WhatsApp，你必须注销一个账户才能使用另一个账户。
 
-Watch
+
 
 这意味着，每当你需要使用那个工作 Skype 帐户打电话或让你的孩子登录 Facebook Messenger 以便他们可以与他们的朋友聊天时，你就会遇到一个烦人的障碍。
 

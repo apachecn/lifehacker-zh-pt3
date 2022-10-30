@@ -4,7 +4,7 @@
 
 任何科幻游戏或电影最精彩的部分之一是那些不祥的音调，暗示着一场 [对话](https://www.youtube.com/watch?v=5zWuFjlDBaE) 或 [发现](https://youtu.be/1KdEamxyaEU?t=1m54s) 即将向南——这是电影配乐的精髓部分，为体验增添了许多气氛( [和张力](https://www.youtube.com/watch?v=4ctK1aoWuqY) )。现在，由于一个开源的 iOS 应用程序，你可以制作自己的合成器声音，并自学音乐制作的基础知识。
 
-Watch
+
 
 AudioKit 的 [Synth One](https://audiokitpro.com/synth/) 应用程序完全免费下载和使用，考虑到这款虚拟合成器的功能如此全面，这已经足够引人注目了。启动它，你将有超过 300 个单独的预设可供尝试——使用应用程序的内置键盘加载和播放这些预设足够有趣。
 

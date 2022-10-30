@@ -4,7 +4,7 @@
 
 **Mac:** 如果你有一台带触控条的 MacBook，并且你不讨厌苹果用虚拟键取代你的物理键(也许是一种祝福，鉴于 [前者的质量](https://www.apple.com/support/keyboard-service-program-for-macbook-and-macbook-pro/) )，你可能已经尝试过一点点定制它 。也许你替换了控制条上的一两个虚拟按钮，或者选择放弃特定于应用程序的定制，转而使用永久功能键——就像过去一样。
 
-Watch
+
 
 虽然默认情况下，你只能在 macOS 中进行小范围的定制，但你可以用 Touch Bar 做更多的事情。(我本人是顺道拜访 [Nyan Cat](https://github.com/avatsaev/touchbar_nyancat) 的粉丝，但那可能会在几分钟后让你发疯。)
 

@@ -4,7 +4,7 @@
 
 无论出于何种原因，谷歌尚未给其 Android YouTube 应用程序提供期待已久的最终解锁黑暗模式的更新。iOS 用户可以黑暗模式。网络观众可以暗模式。但是安卓呢？它的 [光面](https://youtu.be/8wJa1L1ZCqU?t=1m59s) 或者什么都没有(至少，截至我们写这篇文章的时候)。
 
-Watch
+
 
 这也是我喜欢修改后的 YouTube 应用 YouTube Vanced 的一个原因，它可以作为 [的免费 APK 下载](https://vanced.azurewebsites.net/) 用于植入了*和*股票的 Android 设备。在你的 Android 智能手机上打开那个网页，找到适合你的设备的正确版本——包括一个可选的 MicroG 安装，如果你想能够使用你的实际 YouTube 帐户登录 YouTube advanced——并下载它。打开 APK，调整智能手机的设置，允许从非 Google Play 源安装(如果有提示)，你就可以开始了。YouTube Vanced 将出现在你的应用抽屉里，很可能就在 YouTube 官方应用的旁边。
 

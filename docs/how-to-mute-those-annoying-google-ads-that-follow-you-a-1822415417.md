@@ -4,7 +4,7 @@
 
 众所周知， [【谷歌】](https://lifehacker.com/google-s-datally-app-is-here-to-curb-which-apps-eat-yo-1820914004) 通过追踪我们的活动并利用广告锁定我们来赚钱，但从今天开始，这些广告可以变得不那么烦人了。 [公司宣布了其广告设置工具的一项新功能](https://blog.google/topics/safety-security/greater-control-new-features-your-ads-settings/) ，让你屏蔽掉在网上随处可见的特定产品。
 
-Watch
+
 
 我们都经历过这些，即使你当时没有意识到。你访问一个零售网站查看一些产品(比如一双鞋或一个新的视频游戏),在你意识到这一点之前，同样的产品会跟随你到网上的任何地方，诱惑你购买它。
 

@@ -4,17 +4,13 @@
 
 地球正在变暖。这是事实。随着地球变暖，我们预计会看到更大更强的飓风。也是事实。但是有些人否认这些事实，甚至到了指责自由媒体 报道飓风的程度。
 
-Watch
+
 
 ### 不要指望在这里“赢得”争论
 
 如果你发现自己在和这样的人讨论飓风和气候变化，首先，停下来想一想。问问自己:*我要不要让自己对这个人抓狂？*和*我要在这上面花多少时间？*小心行事。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Talk about Hurricanes With Climate Change Deniers](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-get-out-of-an-argument-with-an-irrational-pers-30797995) [###### 我如何摆脱与一个不理智的人的争论？](https://lifehacker.com/how-do-i-get-out-of-an-argument-with-an-irrational-pers-30797995) 
 
-亲爱的 Lifehacker，我该如何应对一个完全失去理智的人？每次我们不同意
-
-[Read more](https://lifehacker.com/how-do-i-get-out-of-an-argument-with-an-irrational-pers-30797995)</aside>
 
 一些在气候变化问题上固执己见的人不会突然改弦易辙。但是你可以帮助他们打好基础，让他们最终能够更清晰地看待事物。
 

@@ -4,7 +4,7 @@
 
 初为人父母会带来一长串你从未想过会引起恐慌的事情。 [蜂蜜](http://www.infantbotulism.org/general/faq.php) 。 [猫砂盒](https://pets.thenest.com/dangers-cat-feces-around-babies-11324.html) 。 [软卧](https://www.cdc.gov/media/releases/2018/p0109-sleep-related-deaths.html) 。 [用作间谍摄像头的婴儿监视器](https://offspring.lifehacker.com/how-to-find-a-hack-proof-baby-monitor-1797534985) 。清单上又多了一条:你自己的头发。
 
-Watch
+
 
 在 [一个令人不安的 Reddit 帖子](https://www.reddit.com/r/YouShouldKnow/comments/84ph6k/ysk_that_hairs_and_threads_can_wrap_around_toes/) 中，妈妈和爸爸们分享了他们关于一种叫做头发止血带的医学疾病的恐怖故事，这种疾病发生在头发或线紧紧地缠绕在脚趾或手指上，以至于将手指置于危险之中。有时当一缕头发卡在婴儿袜子或睡衣里时，就会发生这种情况。当小脚趾扭动时，周围的毛发会收紧。
 

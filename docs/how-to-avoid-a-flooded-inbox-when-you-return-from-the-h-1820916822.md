@@ -4,7 +4,7 @@
 
 你们中的一些人可能刚刚从感恩节周末的电子邮件雪崩中走出来。再过几周，我们将进入今年的最后一个假期虫洞，并不得不在 1 月 2 日穿过成堆的未读信件返回。这里有一些小技巧，可以让你重返工作岗位和收发电子邮件时稍微不那么痛苦。
 
-Watch
+
 
 《快公司》采访了作者亚历山德拉·塞缪尔，她写了一本关于这个主题的书( [*)和电子邮件管理系统 Sanebox 的副总裁德米特里·列昂诺夫。他们关于如何在度假时管理你的电子邮件而不是经常登录你的电脑的建议非常有用。因为你肯定很忙，很重要，但还没忙到你不应该花时间放松和孩子们一起喝蛋奶酒。*](http://www.amazon.com/Work-Smarter-Rule-Your-Email-ebook/dp/B00HXY5808/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-avoid-a-flooded-inbox-when-you-return-from-the-h-1820916822&asc_source=&tag=kinjalifehackerlink-20)
 

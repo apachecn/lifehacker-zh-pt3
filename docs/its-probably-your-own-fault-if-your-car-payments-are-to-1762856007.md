@@ -4,7 +4,7 @@
 
 汽车贷款的平均支付额几乎是每月 500 美元，贷款拖欠率(T0)和(T1)都处于历史最高水平(T2，T3，T4，T5)。许多行业分析师担心人们负担不起汽车贷款的长期财务后果。但是如果你在努力还款，不要责怪银行或经销商。
 
-Watch
+
 
 根据 Experian ， [的一份报告，美国人租赁更多，借贷更多，汽车贷款期限更长。](https://www.experian.com/assets/automotive/white-papers/experian-auto-2015-q1.pdf?WT.srch=Auto_Q12015FinanceTrends_PDF) 现在，如果消费者处理好他们的财务，所有这些指标都不一定是坏的。然而，鉴于贷款拖欠率正在上升，很明显，太多的买家承担了不适合他们预算的付款。
 

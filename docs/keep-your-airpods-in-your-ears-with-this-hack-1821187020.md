@@ -4,7 +4,7 @@
 
 苹果的一刀切 [AirPods](https://lifehacker.com/use-your-airpods-case-as-an-on-the-go-iphone-stand-1820478755) 的设计可能对大多数人都适用，但如果你有特别大的耳朵，你可能会努力保持你的 [无线耳塞](http://gear.lifehacker.com/ankers-soundbuds-are-your-favorite-cheap-bluetooth-earb-1770741170) 的安全。别担心，你并不孤单——一名苹果粉丝找到了解决这个问题的聪明方法。
 
-Watch
+
 
 在 [MacRumors 论坛](https://forums.macrumors.com/threads/airpods-poor-fit-fixed.2072773/) 上，AirPods 的所有者 NewZealandMatt 向我们展示了他的创作过程。在发现耳塞不断从左耳脱落后，他尝试了几种目前推荐的解决方案。在 AirPod 上加一个泡沫盖可以让它保持原位，但不是很舒服，加上一个光滑的硅胶盖只会让事情变得更糟。
 

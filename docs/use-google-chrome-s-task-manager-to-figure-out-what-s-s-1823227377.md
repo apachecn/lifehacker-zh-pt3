@@ -4,7 +4,7 @@
 
 冻结网页是 [不断令人沮丧的死标签](https://lifehacker.com/how-to-force-close-just-one-tab-in-chrome-1818473124) 的前身，可能会非常令人沮丧——当你无法准确识别导致速度变慢或随机死标签的原因时就更是如此。如果你想更多地了解哪些窗口或进程对你的内存和处理能力要求过高，科技网站 [Ghacks 建议你使用内置的任务管理器查看谷歌 Chrome 的内部。](https://www.ghacks.net/2018/02/21/use-chromes-task-manager-to-find-out-which-site-or-extension-slows-it-down/)
 
-Watch
+
 
 要查看 Google Chrome 中运行的进程，请选择选项图标，点击更多工具，然后选择任务管理器。在您的任务管理器窗口中，您将看到每个打开的标签以及每个启用的扩展，每个正在使用的内存量和 CPU 功率，以及它们正在发送或接收多少网络数据。你还会发现次要进程，比如 Chrome 使用了多少 GPU 来保持一切顺利运行。
 

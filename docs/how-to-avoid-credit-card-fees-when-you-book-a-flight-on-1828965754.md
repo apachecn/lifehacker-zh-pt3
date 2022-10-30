@@ -4,7 +4,7 @@
 
 在线旅行社(OTA)，如 Expedia 和 Orbitz，对比较航班价格很有用(尽管一些航空公司，如西南航空，不允许他们的 [航班在搜索结果中显示](https://twocents.lifehacker.com/cancel-a-flight-for-free-with-the-24-hour-rule-1828627155) )。然而，节俭的消费者应该意识到，如果你预订一家低价航空公司，你将被收取信用卡费用。根据 CreditCards.com的说法，这笔额外费用可能会改变哪个航班是*实际上*最便宜的。
 
-Watch
+
 
 例如，在 Expedia 上重现 CreditCards.com 文章中从洛杉矶到瓜达拉哈拉的航班，一张低成本航空公司 VivaAerobus 的机票将花费 239 美元(就我使用的样本日期而言)，这是一次“最超值”的航班，如果你用 Visa 或 MasterCard 支付(唯一的选择)，还需要 23.98 美元，一旦你进入支付页面就会发现这一点。
 

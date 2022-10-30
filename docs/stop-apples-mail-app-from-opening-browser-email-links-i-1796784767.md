@@ -4,7 +4,7 @@
 
 在 MacOS 中，在您使用的任何浏览器中点按电子邮件或“mailto”链接都会自动打开默认的电子邮件应用程序 Apple Mail。Stack Exchange 用户 Randy Marsh [建议快速更改设置](https://apple.stackexchange.com/questions/235598/how-can-i-disable-mail-app-when-i-click-on-an-email-address) 以阻止邮件意外启动。
 
-Watch
+
 
 要解决自动打开问题，请打开“邮件”应用程序，在菜单栏中选择“邮件”，然后前往“偏好设置”。您也可以使用“⌘+”快捷方式。在那里，你可以将默认的电子邮件应用程序更改为你喜欢的任何应用程序。
 

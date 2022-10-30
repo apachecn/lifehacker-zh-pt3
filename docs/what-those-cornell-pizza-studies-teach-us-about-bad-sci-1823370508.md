@@ -4,7 +4,7 @@
 
 草率的统计数据和不当的研究行为并不新鲜，但很少有人能清楚地了解可疑数据是如何变成点击标题的。我们现在有了关于康奈尔大学食品科学家布莱恩·万辛克的最新报道，值得花一分钟来看看他被指控使用 的 [欺诈研究技术到底错在哪里。](https://lifehacker.com/some-of-our-best-food-hacks-may-be-wrong-1794125552) 
 
-Watch
+
 
 我们去年提到万辛克的研究受到质疑，从康奈尔裁定草率但不欺诈的四项披萨自助餐研究开始。从那以后，他的更多作品被研究，并且看起来越来越模糊。本周末，Buzzfeed 的 Stephanie M. Lee(与 [无关，我们自己的斯蒂芬妮·李](https://kinja.com/superlee7) ) [发表了来自 Wansink 的研究团队](https://www.buzzfeed.com/stephaniemlee/brian-wansink-cornell-p-hacking?utm_term=.kpQqwamX1#.kfM72PYmn) 的电子邮件，为*而不是*如何做科学提供了一个很好的教训。
 

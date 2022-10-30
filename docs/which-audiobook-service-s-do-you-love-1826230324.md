@@ -4,7 +4,7 @@
 
 未成年告白时间。我从来没有听过有声读物。T1】音乐 T3】？当然了。 [播客](https://lifehacker.com/our-favorite-podcast-episodes-of-2017-1821426163) ？我开车的时候，当然。但是有声书？我有点像的速读者，我觉得听到有人叙述文本——[甚至本尼迪克特本人](https://www.youtube.com/watch?v=1AhriYqQEk0) 我都会感到厌烦。
 
-Watch
+
 
 然而，在这个问题上，我可能是少数派。有声读物显然越来越受欢迎，而且不仅仅是你听得更多(或者，也许是第一次)。就在今年 1 月，谷歌终于在 Google Play 商店中添加了有声读物，沃尔玛和乐天正在开发电子书和有声读物的联合品牌应用程序T5，甚至 Spotify 也在寻求 [将有声读物与你最喜欢的乐队挂钩，从而让它们进入你的视线](https://www.bloomberg.com/news/articles/2018-05-08/spotify-signs-deal-with-harry-potter-publisher-for-audiobooks) 。
 

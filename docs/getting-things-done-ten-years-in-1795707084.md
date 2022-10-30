@@ -4,7 +4,7 @@
 
 你不会再听到很多人谈论 [*做事*](http://gettingthingsdone.com/) 的生产力系统了。它不像 [子弹杂志](http://lifehacker.com/the-bullet-journal-minus-the-hype-is-actually-a-reall-1786382012) 那样丰富多彩或对 Insta 友好，尽管各种应用程序都声称“与 GTD 合作”，但它们都略显不足——因为在本质上，GTD 是模拟的。如果你让 Gmail 自动将你的电子邮件分类，或者如果你让一个应用程序扫描你的文档以提取待办事项或日历项目，这是一个效果不太好的系统，因为 GTD 的整个要点是你积极跟踪和收集你遇到的每一项任务、责任或关注(也称为“开环”)。你必须查看每封电子邮件，记下每个约会，因为如果你花时间担心某个应用程序是否忽略了自动安排某件事，那就是一个开放的循环，它会占用你的大脑空间，阻止你完成其他事情。
 
-Watch
+
 
 我花了十年时间来清理这些循环。处理我自己的邮件。安排我自己的日程表。写下我自己的任务。我使用应用程序(日历、健身、银行)来帮助我管理所有这些信息，但除了我自己，我不相信任何人会收集这些信息。
 
@@ -36,11 +36,7 @@ GTD 也很有用，因为它让你能够快速浏览你的任务和行动清单�
 
 *有一段时间，我试图将项目卸载到看板图中，虽然移动便笺很有趣，但我只是在重新创建我的主 GTD 列表中已经有的数据——我不需要两个列表。(有两个列表意味着你可能会更新一个而忘记更新另一个，如果你不得不花时间担心你的系统是否准确，那你就没时间做别的事情了。)*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled Getting Things Done, Ten Years In](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640) [###### 生产力 101:如何使用个人看板来可视化你的工作](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640) 
 
-最好的效率方法是让你的待办事项摆在你面前，并按优先顺序排列，这样你就永远不会…
-
-[Read more](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640)*</aside>
 
 *有一段时间，我没有保存电子表格，而是把所有东西都转移到了，因为它只给了我需要的功能*，没有给我其他的功能*。我想保留一个接下来行动的列表，我可以将它细分成不同的类别。我不想让这个应用程序代表我建议、劝告或组织。*
 
@@ -52,11 +48,7 @@ GTD 也很有用，因为它让你能够快速浏览你的任务和行动清单�
 
 *我已经练习 GTD 大约十年了。我仍然把每件事都写下来，即使这是我打算一起床走进家庭办公室就要做的任务。(我们都知道走过一个门道会导致我们忘记事情，对吗？)*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--jezebel" data-commerce-source="inset">*[![Image for article titled Getting Things Done, Ten Years In](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://jezebel.com/walking-through-doorways-makes-you-forget-important-thi-5861268) [###### 走过门口会让你忘记重要的事情](https://jezebel.com/walking-through-doorways-makes-you-forget-important-thi-5861268) 
 
-我们中的许多人，如果不是所有人，都有过这样的经历:走进一个房间，却忘了具体是什么
-
-[Read more](https://jezebel.com/walking-through-doorways-makes-you-forget-important-thi-5861268)*</aside>
 
 *我还保留了一个专门的收件箱，用来存放邮件、偶尔的纸质文件和一些必须放在某个地方的随意的东西，直到我想出如何处理它们。我在 2012 年左右停止使用一个备忘录文件夹；谷歌日历可以处理我的大部分提醒，但没有足够的纸张来维护一个 43 个文件夹的系统。*
 

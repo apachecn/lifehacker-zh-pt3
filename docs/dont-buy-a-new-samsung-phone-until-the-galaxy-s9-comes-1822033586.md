@@ -4,7 +4,7 @@
 
 如果你度过了假期，却没有购买新的智能手机 (或者得到一个作为礼物的智能手机)，你可能渴望升级。如果你是苹果粉丝，那就疯狂吧——无论如何，我们可能要到 2018 年底才会看到新的[iPhone](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402)——但如果你是安卓用户，你应该等待，至少等到下个月 Galaxy S9 上市。
 
-Watch
+
 
 三星 [本周](http://www.zdnet.com/article/samsung-to-unveil-galaxy-s9-at-mwc/) 证实，其下一款旗舰手机将于 2 月亮相。我们没有得到确切的日期，但该公司通常会在世界移动通信大会期间宣布这一消息，世界移动通信大会是一年一度的博览会，定于 2 月 26 日至 3 月 1 日举行。因此，你可以期待 Galaxy S9 在那时首次亮相。
 

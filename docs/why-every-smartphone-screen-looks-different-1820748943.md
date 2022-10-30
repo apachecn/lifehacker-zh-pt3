@@ -4,7 +4,7 @@
 
 推出的 [OnePlus 5T](https://gizmodo.com/the-oneplus-5t-is-very-a-damn-good-phone-for-a-reasonab-1820596179) 有五种颜色校准选项可供选择；Google 已经推至 [给](https://www.xda-developers.com/google-pixel-2-xl-warranty-color-mode/) [像素 2 XL](https://gizmodo.com/pixel-2-review-google-sticks-to-what-it-does-best-1819557944) 增加一个额外的颜色模式；而 [DisplayMate 称 iPhone X](http://www.displaymate.com/iPhoneX_ShootOut_1a.htm) 对色彩的管理比其他任何手机都好。那么，为什么智能手机显示屏上的颜色突然成了一个问题？无论你是在改装自己的手机还是打算买一部新手机，以下是你需要知道的。
 
-Watch
+
 
 我们谈论色彩管理比以往任何时候都多的部分原因是因为智能手机屏幕逐渐从(液晶显示器)转向 [【有机发光二极管】](https://en.wikipedia.org/wiki/OLED) (有机发光二极管)显示器:两者都已经存在了一段时间，但有机发光二极管正变得更加主导，苹果和 LG 今年都做出了转变。
 

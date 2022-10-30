@@ -4,7 +4,7 @@
 
 昨天， [众议院批准了一项措施](https://lifehacker.com/senate-votes-to-let-internet-providers-sell-your-web-hi-1793574677) ，否决了即将到来的联邦通信委员会的一项裁决，该裁决要求互联网提供商在出售你的浏览数据时必须征得你的同意。现在，每个人都在试图找到一种方法来解决这个问题，虚拟专用网络(VPN)是最流行的方法。但是他们到底是什么？
 
-Watch
+
 
 在我们开始之前，有必要了解一下这里的政治活动。早在 10 月份，FCC 就为一项新规则奠定了基础，该规则要求你选择加入收集你的浏览数据并将其出售给广告商的 ISP。收集和出售数据是互联网服务提供商一直在做的事情，也是他们想继续做的事情，但联邦通信委员会打算让他们做起来稍微困难一些。联邦通信委员会的新隐私规则本应在今年 12 月生效，但上周参议院投票取消了该规则。昨天，众议院也采取了同样的做法，没有理由期待总统会有任何不同。
 
@@ -24,11 +24,7 @@ Watch
 
 从历史上看，VPN 最受欢迎的是安全性。企业使用它们是因为这是远程员工外出时安全访问工作网络的一种简单方式。同样的安全也适用于我们其他人，尤其是当我们使用公共 Wi-Fi 时。很长一段时间以来，我在酒店旅行或在咖啡店工作时都使用 VPN。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Why Is Everyone Talking About VPNs?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/do-i-really-need-to-worry-about-security-when-i-m-using-5906233) [###### 当我使用公共 Wi-Fi 时，我真的需要担心安全问题吗？](https://lifehacker.com/do-i-really-need-to-worry-about-security-when-i-m-using-5906233) 
 
-亲爱的 Lifehacker，谈到安全，我并不傻，你们经常提到如何…
-
-[Read more](https://lifehacker.com/do-i-really-need-to-worry-about-security-when-i-m-using-5906233)</aside>
 
 VPN 也是避开地理限制内容或政府封锁的流行手段。一个提供商可以在世界上任何地方托管一个 VPN，无论 VPN 在哪里，你都会在那里出现在互联网上。所以，如果你在英国使用 VPN，你可以访问英国版本的互联网，包括所有你渴望观看的 BBC 内容。如果你在朝鲜，你可以避开那个国家的审查。VPN 不提供匿名功能，它们只是加密你的流量，使得第三方探听者很难看到你访问的网站。
 

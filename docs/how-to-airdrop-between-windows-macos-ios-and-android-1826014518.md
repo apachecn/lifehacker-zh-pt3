@@ -4,7 +4,7 @@
 
 说到文件管理，苹果迷们过得很轻松。早在 2011 年 7 月，苹果公司在 OS X 狮首次推出了隔空投送，在你连接的台式机和笔记本电脑系统(以及 iPhones 和 iPads)之间移动文件再简单不过了。
 
-Watch
+
 
 Windows 用户终于有了自己的类似隔空投送的功能:Near Share，它首次出现在该公司 2018 年 4 月为 Windows 10T3 更新的大 [中。但是如果你的家庭有不同的忠诚——同一屋檐下的 Windows、Android 和苹果产品——你就被困住了。Near Share 无法在 macOS、Android 或 iOS 上运行(目前而言)，隔空投送也无法在微软涉及的任何系统上运行。](https://lifehacker.com/here-are-the-features-you-should-care-about-in-microsof-1825642722)
 

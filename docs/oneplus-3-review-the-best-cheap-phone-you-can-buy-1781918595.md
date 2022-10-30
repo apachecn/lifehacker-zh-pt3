@@ -4,7 +4,7 @@
 
 2014 年，一加突然冒出来一个强有力的想法:如果一部手机既好看、功能强大，又不贵，会怎么样？OnePlus One 是一个麦克风下降，OnePlus 2 是一个成功的大二后续产品，但新的 3 消除了仇恨——[OnePlus 3](https://oneplus.net/3?utm_source=androidcentral&utm_medium=media-us&utm_campaign=op3-launch)是一款“旗舰黑仔”，售价 400 美元，有了 [不再有愚蠢的邀请系统](http://gizmodo.com/oneplus-is-finally-ditching-its-annoying-invite-system-1779820957) ，它不仅是有史以来最好的一加手机，也是最好的廉价手机之一。
 
-Watch
+
 
 这款手机的任何部分都没有其外部设计有更大的进化飞跃。尽管 400 美元以下的手机令人钦佩，但一加的设计水平从未与其更昂贵的竞争对手相匹敌。一加联合创始人 Carl Pei 告诉 Gizmodo，最初的一加使用了其著名的砂岩饰面，因为全金属太贵了。对于 3，一加 ups 的价格有点去完全终结者。
 

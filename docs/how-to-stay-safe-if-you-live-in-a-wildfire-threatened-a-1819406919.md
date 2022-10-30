@@ -4,7 +4,7 @@
 
 当你处在一片火海中时，你很难呼吸，更不用说思考了。作为一名经历过科罗拉多斯普林斯毁灭性的沃尔多峡谷和黑森林大火的老兵，我可以证明这一点。对于美国和加拿大的野火来说，这是艰难的一年——尽管许多人现在都在关注加州中部的 10 处活跃的野火，但亚利桑那州、内华达州、俄勒冈州和西弗吉尼亚州也有大火燃烧。
 
-Watch
+
 
 如果你目前正在处理你所在地区的野火，试图帮助你所爱的人，或者只是提前考虑，我们希望这个安全指南可以提供一些帮助。
 
@@ -16,11 +16,7 @@ Watch
 
 州和县的网站也可以提供最新的信息。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Stay Safe If You Live in a Wildfire-Threatened Area](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-can-i-do-to-help-after-a-disaster-5957747) [###### 灾难发生后，我能做些什么来提供帮助？](https://lifehacker.com/what-can-i-do-to-help-after-a-disaster-5957747) 
 
-亲爱的生活黑客，飓风桑迪对我很残酷。现在我的力量恢复了，我开始…
-
-[Read more](https://lifehacker.com/what-can-i-do-to-help-after-a-disaster-5957747)</aside>
 
 ### 确保您正在接收本地警报
 

@@ -6,7 +6,7 @@
 
 在“它是如何制造的”之前，有芝麻街的视频工厂之旅:用蓝草配音的 [花生酱工厂](https://www.youtube.com/watch?v=TKcrnTZ9IaE) ， [邮资工厂](https://www.youtube.com/watch?v=yDVH6xuZF5c) 印刷狗邮票，由易激动的孩子讲述的 [口香糖工厂](https://www.youtube.com/watch?v=6jvI0k1H0OI) ，70 年代的屁股 [奶酪工匠](https://www.youtube.com/watch?v=FP4aXT7iNxU) ，喧闹的 [汉堡面包工厂](https://www.youtube.com/watch?v=RXM5_v7rc-8) 。克雷奥拉的味道仍然让我想起《蜡笔工厂》中 clicky-clacky marimba 的配乐。每个视频都有助于你理解一件制成品背后的基本过程，但也有助于你欣赏处理这一过程的工人，以及他们的工作有多熟练。配乐和旁白给人留下了一种特殊的内心印象，这种印象是裸露镜头无法单独传达的。
 
-Watch
+
 
 上面这个萨克斯管工厂的视频(via [Digg](http://digg.com/video/saxophone-factory) )展示了萨克斯管是如何由黄铜薄片制成，并用槌棒、金属压力机和车床成型的。结果是手工创意和工厂精度的惊人结合。但这个视频的亮点是它愚蠢的配乐:一个孤独的爵士萨克斯为这个过程的每一步制作卡通音效。
 

@@ -4,7 +4,7 @@
 
 奇怪的是，我选择的放松音乐是令人难以置信的长 Youtube 视频。我喜欢在《星际迷航》的 [企业号](https://www.youtube.com/watch?v=DydIK14AvXI) 的低沉嗡嗡声中小睡片刻，或者听一个箱型风扇 的 12 小时 [录音。](https://www.youtube.com/watch?v=uOSyMXFdI_s)
 
-Watch
+
 
 这些天来，我更多地用手机而不是电脑来听音乐，我想念我奇怪的嗡嗡声。但是视频转换应用软件 Softorino YouTube Converter 2(syc 2)可以非常容易地将这些视频传输到我的电脑、手机或直接传输到 iTunes。
 

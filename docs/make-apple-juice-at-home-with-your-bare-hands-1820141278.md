@@ -4,7 +4,7 @@
 
 苹果派、苹果酱、苹果酥、苹果酱——不管你是在摘苹果还是只是在超市进货，这都是非常适合的季节。但是苹果*果汁*呢？尽管它无处不在，但它从未成为家庭厨房的主食。与可以用手或简单工具压榨的软柑橘类水果不同，苹果需要一台合适的冷榨榨汁机……难道不是吗？？？
 
-Watch
+
 
 [Food52](https://food52.com/blog/20841-easy-way-to-juice-apples) 有一个来自厨师斯图尔特·布里奥萨和妮可·克拉辛斯基的新食谱的窍门， [*州鸟规定*](https://www.amazon.com/State-Bird-Provisions-Stuart-Brioza/dp/1607748444?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/make-apple-juice-at-home-with-your-bare-hands-1820141278&asc_source=&tag=kinjalifehackerlink-20) ，用于手工制作苹果汁——在这个过程中感觉有点像绿巨人。
 

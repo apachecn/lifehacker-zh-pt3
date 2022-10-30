@@ -4,7 +4,7 @@
 
 如果你正在购买一副新的眼镜，当你在当地的眼镜店买到一副镜架时，你可能会大吃一惊。视力保险并不总是涵盖眼镜，这当然没有帮助——即使涵盖，也可能不涵盖全部费用。另一个选择是把你的购物带到网上，在那里你会找到更好的选择和更低的价格。
 
-Watch
+
 
 *本帖原载于*[*deal news*](http://dealnews.com/features/Things-to-Know-When-Buying-Glasses-Online/1890407.html)*。*
 

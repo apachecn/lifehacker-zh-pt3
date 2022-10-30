@@ -4,7 +4,7 @@
 
 我可能不应该对这个事实感到惊讶:我看到一篇文章说 [如果你在面包上发现一块霉菌](https://thetakeout.com/last-call-can-you-cut-out-the-mold-from-your-bread-and-1829207004) ，你必须扔掉整个面包，因为霉菌的“触角”很可能已经侵入了整个面包。带着惊慌，我把这个消息告诉了我的丈夫，他说他在五年级的时候就知道了(不，应该注意的是，这导致他更快地扔掉发霉的面包)。当我在五年级的时候，我正在学习耶稣在十字架的车站跌倒了多少次(三次)，而不是这种潜在的救命的防霉信息。
 
-Watch
+
 
 我已经学会用相当怀疑的眼光看待我的 [海绵](https://thetakeout.com/how-often-should-you-toss-your-kitchen-sponge-1826099826) ，我的 [抹布](https://thetakeout.com/new-germy-thing-to-be-terrified-of-in-your-kitchen-the-1826731809) ，不， [我的整个厨房](https://thetakeout.com/everything-in-your-kitchen-is-covered-in-shit-1823356675) 。但是潜伏在奶酪抽屉里的潜在霉菌呢？
 

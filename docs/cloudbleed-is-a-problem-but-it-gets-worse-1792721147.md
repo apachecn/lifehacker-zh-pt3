@@ -4,7 +4,7 @@
 
 像 Cloudbleed 这样的巨大安全灾难 [从来都不是好玩的。然而，随着关于新报告的漏洞的更多信息变得可用，我们可以理解错误对搞砸互联网有多危险。幸运的是，对于 Cloudbleed 来说，情况并没有想象中那么糟糕。但是也不好。](https://gizmodo.com/everything-you-need-to-know-about-cloudbleed-the-lates-1792710616)
 
-Watch
+
 
 如果你没听说过的话，Cloudbleed， [是一个主要的漏洞](https://gizmodo.com/everything-you-need-to-know-about-cloudbleed-the-lates-1792710616) ，它可能会影响由安全和性能服务 Cloudflare 提供服务的数百万个网站。Cloudflare 代码中的一个小错误导致不确定数量的数据(包括加密密钥、聊天日志、cookies 和密码)泄露到公开的网络上，并被谷歌等搜索引擎缓存。Cloudflare 的客户包括优步、OKCupid 和 Fitbit 等大型网站，这意味着大量用户发现自己处于不知道自己的个人数据有多少(如果有的话)被泄露的不幸境地。
 

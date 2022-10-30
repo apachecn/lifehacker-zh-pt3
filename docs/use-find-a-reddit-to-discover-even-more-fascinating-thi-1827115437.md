@@ -4,7 +4,7 @@
 
 Reddit 有时可能很疯狂，但它是一个很大的时间浪费者——这一点毋庸置疑。虽然在偶尔的停机时间浏览 [/r/videos](https://www.reddit.com/r/videos/comments/8qo7li/girl_immediately_recognizes_an_flist_celebrity/) 和 [/r/aww](https://www.reddit.com/r/aww/comments/8pm7ta/left_dog_with_interns_at_work_came_back_to_this/) 很有趣(这变成了延长的可爱- 动物休息时间)，但当我可以自娱自乐*和*感觉自己在学习一些东西时，我发现这个网站更加迷人。
 
-Watch
+
 
 为此，我认为找到能告诉你更多关于我们广阔世界的优质子编辑是至关重要的。像 [/r/helpmefind](https://www.reddit.com/r/HelpMeFind/) 或 [/r/tipofmytongue](https://www.reddit.com/r/tipofmytongue/) 这样的子主题非常适合让人们帮助你解决突然出现在你脑海中的随机话题，比如“英雄任务棋盘游戏中的坏人叫什么名字？”如果你喜欢风格胜过法术， [/r/findfashion](https://www.reddit.com/r/findfashion/) 就是你的入场券。一旦你到达梦想中的目的地，这[/r/where is](https://www.reddit.com/r/whereisthis/)可以帮你找到新的去处，而 [/r/lfg](https://www.reddit.com/r/lfg/) 可以帮你找到新的朋友(以及桌游爱好者)。经典的 [/r/askreddit](http://reddit.com/r/askreddit) 非常适合你的大问题——甚至是关于鸭子大小的马的愚蠢问题——而[/r/explain like imfive](https://www.reddit.com/r/explainlikeimfive)对于潜在复杂主题的简单易懂的答案是完美的。
 

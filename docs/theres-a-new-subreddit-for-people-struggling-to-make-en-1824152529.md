@@ -4,7 +4,7 @@
 
 报道个人理财的困难之一是，大多数专家推荐的技巧和诀窍只对特定人群有意义:那些有一些可支配收入并有可能向上流动的人。当然，你可以写如何处理挫折，以及应急基金应该有多大，但是标准的建议并不适用于所有人。
 
-Watch
+
 
 如何 [申请 SNAP 福利](https://www.reddit.com/r/povertyfinance/comments/87o5qr/this_sub_needs_a_state_by_state_guide_for_snap/) ，副业的必要性不仅仅是为了赚点外快，而是为了生存——这些话题往往会让人感到禁忌，尤其是如果被出版物或没有支持社区的网站所报道。从[r/personal finance](https://www.reddit.com/r/personalfinance/)博客发展而来的一个新的子网站 [r/povertyfinance](https://www.reddit.com/r/povertyfinance/) 填补了这个空间。
 

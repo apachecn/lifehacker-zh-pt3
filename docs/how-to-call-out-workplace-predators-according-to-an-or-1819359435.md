@@ -4,7 +4,7 @@
 
 每个组织都有他们的性骚扰者，他们的身份很少真正保密。有人知道，有人谈论，但是有能力做点什么的人——旁观者，高层——通常认为这不是他们的问题。这必须停止。
 
-Watch
+
 
 组织心理学家莲恩·戴维 [在 Quartz](https://qz.com/1099738/harvey-weinstein-is-proof-we-cant-afford-to-dismiss-rumors-of-sexual-harassment-at-work/) 写道，“越来越清楚的是，保持被动只会延续虐待的循环。”如果你听到谣言，但不确定是否属实，猜猜怎么着——*你*正处于做某事的位置。
 

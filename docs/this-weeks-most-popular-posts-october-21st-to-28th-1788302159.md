@@ -4,7 +4,7 @@
 
 我们在 Lifehacker 上的第七届年度 [邪恶周](http://lifehacker.com/welcome-to-lifehackers-seventh-annual-evil-week-1788085206) 就这样结束了，我们走在实用与有害之间，为你带来生活阴暗面的提示。巧合(或者不是？)这也是科技界繁忙的一周，微软和苹果都发布了新设备。这里回顾一下。
 
-Watch
+
 
 ## [**微软今天在 Windows 10 发布会上宣布的一切真正重要的事情**](http://lifehacker.com/everything-microsoft-announced-at-its-windows-10-event-1788240140#_ga=1.168732321.1224299049.1454957731)
 

@@ -4,7 +4,7 @@
 
 本周来自 FDA 的重大新闻！法律要求在标签上印有心脏健康信息的食品公司——你准备好了吗？—稍微改变他们的措辞。
 
-Watch
+
 
 **头条** : [FDA 撤销大豆健康声明](http://www.cnn.com/2017/10/30/health/fda-soy-heart-health-claim-bn/index.html) (CNN)
 

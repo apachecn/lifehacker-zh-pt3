@@ -4,7 +4,7 @@
 
 躺在床上看手机会破坏你的睡眠时间表。但是，如果你像我一样，无论如何都要这样做，那就学会在不感觉盯着太阳(或打扰你睡觉的伴侣)的情况下这样做，在每个提供“黑暗模式”的应用程序上启用它。
 
-Watch
+
 
 App 专用黑暗模式不同于 iOS 上的 [夜班](http://www.imore.com/night-shift) 和 Android 上的 [夜间模式](https://lifehacker.com/night-mode-enabler-brings-back-android-nougats-night-mo-1785732654) ，降低亮度和蓝光。深色模式反转背景和前景色，在黑色上显示白色文本。虽然 Android 也有一个 [深色主题](https://lifehacker.com/the-coolest-things-you-can-do-with-androids-hidden-syst-1773364942) ，但没有一个好看的方法可以一次将每个应用的界面变暗。iOS 和 Android 提供了反转模式，但这将整个界面变成了噩梦般的照片底片调色板。
 

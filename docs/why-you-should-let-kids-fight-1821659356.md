@@ -4,7 +4,7 @@
 
 孩子们有很多事情要争——最后一个恐龙块，谁更高，谁将成为 Juniper 的本周最佳朋友。在美国，父母往往会恼怒地回应这些童年的争吵，进入裁判模式，强迫孩子 [分享](https://lifehacker.com/what-to-say-to-little-kids-instead-of-share-1819753096) 或 [道歉](https://offspring.lifehacker.com/what-to-say-to-little-kids-instead-of-say-sorry-1819288365) 或在房间的对面休息一下。我们想要和平，我们现在就想要...*请问？*
 
-Watch
+
 
 但还有另一种方法:让孩子们一决雌雄。萨拉·扎斯克在《华尔街日报》的*文章《 [用德国方式养育孩子:让孩子与](https://www.wsj.com/articles/parenting-the-german-way-let-the-children-fight-1514474042?mod=e2fb) 战斗》中写道，当她住在柏林时，她发现那里的父母和老师不会干预每一场争论——相反，他们相信如果给孩子机会，他们可以自己解决大多数问题。她解释道:*
 

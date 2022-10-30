@@ -4,7 +4,7 @@
 
 如果你成长在 20 世纪 90 年代，你几乎已经获得了艾滋病研究的学位——或者至少感觉是这样。自那以后的几年带来了更好的测试和治疗，我们现在对病毒有了更多的了解，但这些信息并不是常识。我们不再关注艾滋病毒和艾滋病。
 
-Watch
+
 
 当然，它时不时会出现，就像查理·西恩最近 [宣布他是艾滋病毒阳性](http://jezebel.com/the-media-freakout-over-charlie-sheens-hiv-status-is-a-1743524287) 一样。你正在阅读的这篇文章是每年世界艾滋病日发布的众多文章之一(谷歌趋势图 中 [的红色尖峰)。](https://www.google.com/trends/explore#q=%2Fm%2F05dbslt%2C%20AIDS%2C%20%2Fm%2F0d19y2&cmpt=q&tz=Etc%2FGMT%2B5)
 

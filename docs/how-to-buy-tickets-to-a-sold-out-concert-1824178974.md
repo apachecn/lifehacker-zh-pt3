@@ -4,7 +4,7 @@
 
 想象一下，你正试图买到镇上最热门的票，而音乐会的票却卖完了。或者也许这是一个你只*喜欢的乐队，但不想花 79 美元外加服务费去看。如果没有 [的技巧手册](https://lifehacker.com/how-to-score-tickets-to-in-demand-events-1823775344) ，Ticketmaster 几乎是不可能被击败的，而且 StubHub 往往比转售市场还要贵。* 
 
-Watch
+
 
 但不要担心，因为通常有一些现实生活中的人——他们不是黄牛——希望从他们无法使用的门票中获得现金，因为他们生病了，他们的保姆取消了，或者他们最喜欢的球队当晚在斯坦利杯比赛。以下是在完全放弃这个节目之前，如何在广泛的转售选择网络中导航的方法:
 
@@ -20,11 +20,7 @@ Craigslist 从来都不是网络上最理想的部分，但在演出前几周，
 
 摆脱这些事情并不总是容易的——提前给他们打电话，要求在一个方便的地方见面是一个好的开始。我通常要求在场地外见面，但如果你不能做到这一点，选择一个中立的地点进行门票和现金的交接。数字门票总是更受欢迎，但也会带来一些自身的障碍。在这些情况下，总会有一场博弈——应该先送哪一个，票还是钱？你用*1-2-3 点击*计时吗？如果你觉得和一个真正的卖家打交道很舒服，这些担心就没那么严重了。Craigslist 对音乐会门票的吸引力，并不像它在其他类型交易上的声誉可能让你相信的那样大。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Buy Tickets to a &#39;Sold Out&#39; Concert](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-set-prices-for-your-stuff-when-selling-online-1690500578) [###### 在网上销售时，如何为你的商品定价](https://lifehacker.com/how-to-set-prices-for-your-stuff-when-selling-online-1690500578) 
 
-当你在易贝或 Craigslist 这样的网站上卖东西时，定价可能是一个…
-
-[Read more](https://lifehacker.com/how-to-set-prices-for-your-stuff-when-selling-online-1690500578)</aside>
 
 ### 推特是万福玛利亚
 

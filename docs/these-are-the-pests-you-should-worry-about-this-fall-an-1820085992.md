@@ -4,7 +4,7 @@
 
 像蟑螂、蚂蚁、老鼠和蚊子这样的害虫是令人讨厌的害虫，但通常只在一年中的特定月份出现。然而，由于今年的热浪和暴雨，许多通常在秋天和冬天消失的害虫仍然会在周围寻找家园——你的家。
 
-Watch
+
 
 最近， [国家害虫管理协会](https://npmapestworld.org/) (NPMA)发布了他们的 [昆虫晴雨表对即将到来的季节](https://pestworldmag.npmapestworld.org/2017/09/26/heavy-rain-heat-waves-drive-high-pest-pressure-in-fall-and-winter/) 的预测，对于那些从各种令人毛骨悚然的爬行动物那里得到紧张不安的人来说，这看起来并不好。昆虫学家和害虫专家预计这些生物会比平时承受更大的压力。这是一张来自 NPMA 的便捷地图:
 

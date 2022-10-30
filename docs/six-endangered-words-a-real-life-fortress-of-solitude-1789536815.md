@@ -4,7 +4,7 @@
 
 本周，我们来看看一些濒危的英语单词，现实生活中孤独的堡垒——如水晶洞，世界各地的孩子有多少家庭作业，等等。
 
-Watch
+
 
 *<small>欢迎来到 Lifehacker 的</small>* [*<small>周一大脑自助</small>*](http://lifehacker.com/tag/monday-brain-buffet) *<small>，这是一个系列节目，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，它们会教你一些新东西，启发你，并有希望让你的一周有一个良好的开端。</small>T15】*
 

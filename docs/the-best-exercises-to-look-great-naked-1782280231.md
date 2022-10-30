@@ -4,7 +4,7 @@
 
 强壮健康很好也很重要，但是我们很多人锻炼的原因是为了看起来更好。这些注重美感的锻炼不会让你一夜之间变热，但结合健康的饮食，它们会让你的锻炼物有所值，让你穿上衣服或者不穿衣服都很好看。
 
-Watch
+
 
 这些练习以典型的美国美容标准为基础，以身体部位的吸引力为目标。这意味着我们要强调的运动对男性和女性来说是不同的。对于男性，我们将拓宽上半身，发展腿部肌肉。对于女性来说，我们将集中精力收紧手臂，打造更结实、更紧致的臀部。然而，并不是每种体型都可以(或者需要)成为希腊神或女神的雕像。如果那不是你，你还是可以裸体看起来很棒。不管你是谁，这些练习仍然会帮助你变得健康强壮 。
 
@@ -64,11 +64,7 @@ Lee，Talens 和 PictureFit 都同意，一个健美的臀部是非常受欢迎�
 
 私人教练兼 youtuber 用户 Suzanne Digre 展示了正确的臀部推进技术，如果你以前从未做过任何臀部推进，这是一个很好的学习过程。如果你还没有准备好增加杠铃，PictureFit 建议在地面上做无重量臀部推时，一次只用一条腿。它给你一个进步的机会，而不用担心你的臀部会有多余的重量。李博士还建议，如果你想给你的臀部一些额外的加分，可以混合使用和 [跨步](https://www.youtube.com/watch?v=dQqApCGd5Ss) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Best Exercises to Look Great Naked](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/eight-s-exercises-to-boost-your-bedroom-strength-1689037807) [###### 增强你卧室力量的八个练习](https://lifehacker.com/eight-s-exercises-to-boost-your-bedroom-strength-1689037807) 
 
-不管我们愿不愿意承认，运动和性有着千丝万缕的联系。我们练习看…
-
-[Read more](https://lifehacker.com/eight-s-exercises-to-boost-your-bedroom-strength-1689037807)</aside>
 
 #### **绳索下拉**
 

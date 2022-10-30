@@ -4,7 +4,7 @@
 
 上周，当我们发起倒立挑战 时，我承认我不太喜欢倒立——但我希望改变这种情况。昨天我第一次靠墙做了一个倒立，感觉很强壮，很稳定。我会告诉你一些秘密。
 
-Watch
+
 
 首先，我听从了评论者 [tallnproud](https://vitals.lifehacker.com/1828034278) 的建议，开始观看 [这一系列关于学习做倒立](https://www.youtube.com/playlist?list=PLCKKWSxoHHKxZODBLEVPAsuFoqWOr19Dy) 的视频。在第一个视频中，我们学习了一些关于踢墙倒立的事情:
 

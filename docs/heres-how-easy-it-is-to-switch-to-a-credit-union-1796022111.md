@@ -4,7 +4,7 @@
 
 信用社 [与大银行](https://lifehacker.com/the-differences-between-banks-and-credit-unions-1748879210) 有一些不同之处，这可能使它们成为更有吸引力的选择。问题是，转换似乎是一个巨大的痛苦。我们已经 [告诉你如何做](http://twocents.lifehacker.com/how-to-painlessly-switch-banks-1537247659) ，但是事情是这样的:大多数信用合作社都有“开关工具包”，让转移你的钱变得非常简单。
 
-Watch
+
 
 我自己也一直在考虑转到信用社，但我讨厌处理重定向我的直接存款和更新我所有自动支付信息的麻烦。然而，我没有意识到，大多数信用合作社都创建了“转换工具包”来指导你完成这个过程。下面是支付和金融科技公司[CO-OP Financial Services](http://www.co-opfs.org/)的萨曼莎·帕克森(Samantha Paxson)向我们解释的情况:
 

@@ -4,7 +4,7 @@
 
 如果你服用避孕药，并且厌倦了仅仅为了获得处方配药的批准而去看医生，或者你想开始但找不到你信任的医生，有一个更好的方法。这些应用和网站是你的后盾。
 
-Watch
+
 
 口服避孕药足够安全，像美国家庭医生协会 和美国妇产科医生大会[这样的组织应该可以在柜台上买到](http://ocsotc.org/resources/#professionalorgs) 。事实上，你 [在加州、华盛顿州和俄勒冈州不需要医生的处方](http://kff.org/womens-health-policy/fact-sheet/oral-contraceptive-pills/) 就可以避孕，但那是 [不保证](https://ww2.kqed.org/stateofhealth/2016/05/19/law-allows-women-to-obtain-birth-control-without-prescription-but-few-pharmacies-offer-service/) 你能在你附近的药店找到。当然，找一个你信任的供应商并定期亲自去见他们仍然是一个好主意。但是 [常规检查和体检](http://vitals.lifehacker.com/the-medical-screenings-all-women-need-and-when-1779451699) 和你的避孕处方并不一定要有关联，这就是这些服务的用武之地。
 

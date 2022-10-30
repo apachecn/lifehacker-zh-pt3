@@ -4,7 +4,7 @@
 
 katil10 的桌面定制得很好，非常简洁，但也足够有活力，让我们想坐下来完成工作。以下是如何设置的，以及您需要什么来获得同样漂亮、个性化的外观。
 
-Watch
+
 
 首先，这是(即使你看不出来)，一个 windows 桌面，所以你需要 Rainmeter 来定制它。如果你对 [不熟悉，本指南可以带你了解](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 的基本知识。
 

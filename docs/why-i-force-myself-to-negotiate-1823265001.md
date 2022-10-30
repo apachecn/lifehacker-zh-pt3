@@ -4,7 +4,7 @@
 
 不可否认的是性别工资差距。 [就在那里](https://www.payscale.com/data-packages/gender-pay-gap) :男人的平均付出，女人的平均付出，还有空间。不管你是否相信差距的存在，它都是存在的。否认工资差距的人并不否认差距本身；他们否认它的重要性。他们说，妇女呆在家里带孩子，所以这些数字是有意义的。女人不谈判，所以*当然*有差距。
 
-Watch
+
 
 否认者眼中的解释，我们其他人眼中的问题。比如， [女人谈判少](https://www.washingtonpost.com/news/wonk/wp/2016/07/07/young-women-are-still-less-likely-to-negotiate-a-job-offer-but-why/) 可能是真的。同样真实的是，当我们*进行*谈判时，我们会面临一种社会惩罚。哈佛大学的一项研究发现，当女性提出更多要求时，她们会被认为比男性要求更多，而不那么讨人喜欢。
 

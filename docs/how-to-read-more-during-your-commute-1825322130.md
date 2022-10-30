@@ -4,7 +4,7 @@
 
 每个人都有自己的阅读更多书籍的小技巧(或者至少，假装 [你在阅读书籍](https://lifehacker.com/how-to-pretend-youve-read-a-book-1796228206) )，更普遍的是，我们要处理永无止境的播客剧集、旧纽约客杂志、Spotify 播放列表和其他各种内容。
 
-Watch
+
 
 这是我的:当我上下班的时候，我有一个自我强加的系统。如果我站着，我可以继续听音乐，或者播放播客。(或者凝视太空，拥抱 [带来的无聊，](https://lifehacker.com/how-to-be-bored-and-brilliant-with-manoush-zomorodi-1820014883) 却据实以告，这是罕见的。)
 

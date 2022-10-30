@@ -4,7 +4,7 @@
 
 大家好，欢迎回到丰富辛辣的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 
-Watch
+
 
 经过数周的角逐，辣椒最终以今日话题*(或话题 *du semaine* )胜出？)，特别是 Antifaz 建议的德州辣椒:*
 

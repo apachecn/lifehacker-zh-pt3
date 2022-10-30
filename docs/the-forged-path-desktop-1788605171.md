@@ -4,7 +4,7 @@
 
 [Dobbie03](http://kinja.com/dobbie03) 在使用 Gnome-Shell 很久之后，决定给 [sidboX](https://www.sidbox.org/) 一个尝试，这启发了他定制他的 Arch box，你可以在上面看到。如果你不知道这是怎么回事，没关系——最终的结果是一个华丽的，定制的 Linux 桌面，我们都可以欣赏。
 
-Watch
+
 
 Dobbie03 发现 sidboX 很棒。它功能丰富、轻量级，当然也是可定制的。如果您对 Openbox 感兴趣并且是 Linux 用户，您可能想尝试一下。以下是让这看起来像你自己所需要的:
 

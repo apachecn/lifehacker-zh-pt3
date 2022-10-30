@@ -4,7 +4,7 @@
 
 [苹果](https://lifehacker.com/when-you-should-skip-apple-upgrades-1821013599) 让你用旧苹果手表换商店积分变得更加容易。该公司之前开展了一项在线以旧换新计划，现在也将亲自接收你的旧智能手表。更好的是，苹果似乎为面对面的以旧换新支付了比在线以旧换新更多的费用。
 
-Watch
+
 
 Reddit 用户 [ajsayshello](https://www.reddit.com/r/apple/comments/879taz/you_can_finally_trade_in_apple_watches_in_apple/) 本周爆料(后经 [9to5Mac](https://9to5mac.com/2018/03/26/apple-watch-in-store-trade-in/) 证实)，透露苹果向他出价 100 美元购买第一代不锈钢 42mm Apple Watch。相比之下，苹果的折价网站列出的原始智能手表型号的价值为 75 美元或更低。仅仅离开你的房子就要额外支付 25 美元，尽管不能保证你会得到和 ajsayshello 一样的待遇。
 

@@ -4,7 +4,7 @@
 
 NCAA 疯狂三月锦标赛今晚开始。你已经得到了 [你的完美支架](https://lifehacker.com/build-the-perfect-march-madness-bracket-with-the-power-1764736543) ，你的零食，你已经准备好为你最喜欢的球队加油了。以下是如何在家或在旅途中，在大屏幕或小屏幕上观看今年 67 场比赛的方法。
 
-Watch
+
 
 ### **观看每场比赛的所有方式**
 

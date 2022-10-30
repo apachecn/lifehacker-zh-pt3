@@ -4,7 +4,7 @@
 
 想象你已经 [努力工作，为自己的晋升做好准备](https://www.themuse.com/advice/6-ways-to-prepare-for-your-someday-promotion-now) 。你接受了一份你完全胜任的工作，因为你相信公司，接受了没有人想要的项目，甚至指导新队友，直到他们成为自给自足的明星。但是，尽管你努力工作，你的道路上可能还有一个障碍:办公室政治。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/why-avoiding-office-politics-could-hurt-you-more-than-you-know) *。*
 

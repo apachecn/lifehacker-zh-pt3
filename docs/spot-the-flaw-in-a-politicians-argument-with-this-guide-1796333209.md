@@ -4,7 +4,7 @@
 
 人类是有偏见的。我们记得 [的事情比不记得的事情更能证实我们的信念](http://lifehacker.com/know-how-confirmation-bias-colors-your-decisions-5571612) 。每天，我们都要面对新的信息和论点，我们必须整理，尤其是来自政治家的。
 
-Watch
+
 
 我们的政治信仰也 [扭曲了我们的感知](http://lifehacker.com/your-political-beliefs-make-you-bad-at-math-1796222216#_ga=2.216044948.303451680.1497830696-1887250931.1497314809) ，但是为了反驳这一点，了解争论中常见的谬误是很有帮助的，这样你就可以做出更好、更理性的决定去相信什么。(当然，有些论点也可以只是建立在谎言的基础上。我们也有一个 [的指南来核实那些](http://lifehacker.com/how-to-spot-truth-in-the-sea-of-lies-rumors-and-myths-5950871#_ga=2.75965013.1960000003.1497878339-255842443.1487643310) 。)以下是许多政客在辩论中使用的常见逻辑谬误，以及如何识别它们的技巧。
 

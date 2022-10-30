@@ -4,7 +4,7 @@
 
 当你不同意一项公司政策时， [认为你同事的想法很糟糕](http://www.thedailymuse.com/career/3-ways-to-nicely-handle-a-bad-idea/) ，或者确信你的老板不会从她想要实施的计划中获得最佳结果，解决办法似乎很简单:表达你的反对意见——对吗？
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/pick-your-battles-3-questions-to-ask-before-disagreeing-at-work) *。*
 

@@ -4,7 +4,7 @@
 
 据代表飞行员的工会称，美国航空公司在线调度系统的故障导致 12 月数千航班无人驾驶，并有可能被取消。 [*路透社*](https://www.reuters.com/article/us-american-airline-workers/union-says-over-15000-american-air-flights-in-december-have-no-pilots-assigned-idUSKBN1DT2R8?il=0) 报道称，可能有超过 15000 个航班受到影响，这些航班都处于主要的假日旅游时段。
 
-Watch
+
 
 总部设在得克萨斯州的联盟飞行员协会(Allied Pilots Association)周二发布了一份 [声明](https://www.alliedpilots.org/News/ID/5646/Holiday-Scheduling-Failure) 称，该航空公司“在飞行员时间表投标系统方面存在故障”，导致数千个航班在“关键假期”期间没有飞行员。声明称，该公司于周五披露了这一错误。
 

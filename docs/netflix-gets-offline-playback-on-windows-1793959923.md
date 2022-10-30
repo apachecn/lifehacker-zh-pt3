@@ -4,7 +4,7 @@
 
 如果你是那种只想在飞行时放松一下，用笔记本电脑看电影的人，这是个好消息。Windows 10 的网飞应用程序现在支持离线播放，这意味着你可以下载节目和电影，并在没有 Wi-Fi 的时候保存它们。
 
-Watch
+
 
 网飞 [去年为其移动 iOS 和 Android 应用添加了离线播放功能](http://lifehacker.com/netflix-adds-offline-viewing-for-phones-and-tablets-1789512369) ，这非常有用，但意味着你只能在手机或平板电脑上观看。(事实上，我上次在飞机上就用上了它；我坚持看一些喜剧特别节目，因为在手机上看一部长篇电影听起来并不太吸引人。)但现在他们将同样的功能带到了 [网飞 Windows 10 应用](https://www.microsoft.com/en-us/store/p/netflix/9wzdncrfj3tj) ，正如 [MSPoweruser](https://mspoweruser.com/netflix-now-lets-download-videos-offline-viewing-windows-10/) 最先报道的那样。
 

@@ -4,7 +4,7 @@
 
 也许你必须在假期里挤出一些电子邮件。也许你是那些令人羡慕的数字游民 [中的一员，在你漫游的任何地方工作](https://lifehacker.com/what-you-should-know-if-you-want-to-work-remotely-and-t-1783928805) 。无论你的情况如何，如果你不得不同时工作和旅行，平衡两者可能是一个挑战。以下是方法。
 
-Watch
+
 
 ### 提前完成你的任务
 

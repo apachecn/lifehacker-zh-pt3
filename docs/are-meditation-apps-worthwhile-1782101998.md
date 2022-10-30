@@ -4,7 +4,7 @@
 
 冥想应用程序可以帮助你在一天中抽出时间来冥想，可以教你如何冥想或向你介绍新技术。它们的范围从简单的计时器到广泛的系列课程和订阅教程。让我们看几个，他们能为你做什么。
 
-Watch
+
 
 就像音乐、熏香和地板垫一样，冥想从来都不需要应用程序。 [你不需要*什么都不需要*就可以开始](https://lifehacker.com/a-guide-to-meditation-for-the-rest-of-us-5591576) ，我们已经给了你一大堆 [想法](http://lifehacker.com/tag/meditation) 简单的上船方法。你可以数几次呼吸来进行一次 [迷你冥想](http://lifehacker.com/ease-into-meditation-with-mini-meditation-1766365887) ，或者将 [短暂停顿](http://lifehacker.com/take-a-few-seconds-to-meditate-before-you-pick-up-the-p-1636773108) 引入到你的日常活动中。当你在 [正念](http://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174) 关于 [洗碗](http://lifehacker.com/household-chores-can-be-an-opportunity-to-practice-mind-1737670456) 或 [在你的邻居](http://lifehacker.com/clear-your-mind-and-get-some-exercise-with-walking-medi-1751683623) 周围散步的时候，你甚至在冥想。
 

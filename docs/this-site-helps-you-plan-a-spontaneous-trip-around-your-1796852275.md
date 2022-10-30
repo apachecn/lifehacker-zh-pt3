@@ -4,7 +4,7 @@
 
 如果你想利用一些假期，但你不确定你想去哪里，旅行预订网站[Wander](https://www.wanderapp.me/) 让你根据你的整体旅行预算进行搜索。
 
-Watch
+
 
 不要害怕被旅行癖折磨的灵魂。不管你存了 500 美元还是 5000 美元，总有一趟旅行等着你。使用来自 [Skyscanner](https://www.skyscanner.com/) 和[【Booking.com】](https://www.booking.com/)[Wander](https://www.wanderapp.me/)的数据，几乎可以计划出任何预算的旅行。你输入你的大本营机场，你的酒店总预算*和*航班合计，你的团队有多少人，你什么时候有空。然后砰！你被展示了所有你能去并且负担得起的地方。
 

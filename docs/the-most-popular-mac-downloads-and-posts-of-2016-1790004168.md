@@ -4,7 +4,7 @@
 
 今年，苹果为 Mac 用户提供了更新的操作系统和 macOS Sierra 的新命名方案，但我们的最佳 Mac 帖子涵盖了各种主题。以下是我们今年发布的一些最好的 Mac 帖子。
 
-Watch
+
 
 ### [**【最新打造 Hackintosh 指南】**](http://lifehacker.com/the-always-up-to-date-guide-to-building-a-hackintosh-o-5841604)
 

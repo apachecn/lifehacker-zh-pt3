@@ -4,7 +4,7 @@
 
 当然，你听说过网飞的疯狂收看节目，但是疯狂收听怎么样呢？
 
-Watch
+
 
 网飞有一类节目提供音频描述，画外音向你解释场景中的角色在做什么。有了它，你可以听节目，而不是看节目，本质上是将它们转换成类似于有声读物或播客的东西，当你出去散步或晚上躺在床上试图入睡时，你可以播放， [Reddit 用户 A_Alexandre 指出](https://www.reddit.com/r/lifehacks/comments/7fiu0y/turn_netflix_movies_into_audiobooks/) 。
 

@@ -4,7 +4,7 @@
 
 全能的 [图像过滤器](https://lifehacker.com/five-best-photo-filter-apps-5970648#_ga=2.169347561.972888801.1529329488-3846207152.1521480874) 向我们展示了最轻微的图像调整有多么强大。你可能不知道，但你的 iP hone 能够在整个显示期间做同样的颜色调整。
 
-Watch
+
 
 Reddit 用户 [自命不凡的家伙](https://www.reddit.com/r/apple/comments/8s6ldt/protip_you_can_make_the_colour_on_iphones_display/) 指出，让 iPhone 的颜色更“流行”很容易苹果为可能是 [色盲](https://support.apple.com/en-us/HT207025) 的用户提供了这一功能，但任何人都可以进入设置应用程序并访问这些选项。
 

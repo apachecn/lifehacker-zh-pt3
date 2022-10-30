@@ -4,7 +4,7 @@
 
 Microsoft Outlook 是大多数办公室中事实上的电子邮件和日历客户端，它还可以帮助管理您的任务和笔记。除了单击发送和接收，您还可以做许多事情来改进 Outlook 工作流程，例如共享日历、自动过滤电子邮件等等。
 
-Watch
+
 
 *<small>这篇文章是</small>* [*<small>微软 Office 周</small>*](http://lifehacker.com/tag/microsoft-office-week) *<small>的一部分，在 Lifehacker 我们提供入门或掌握微软 Office 的技巧。想要更多吗？一定要留意</small>* [*<small>办公周标签页</small>*](http://lifehacker.com/tag/microsoft-office-week) *<small>的整个一周。</small>*
 

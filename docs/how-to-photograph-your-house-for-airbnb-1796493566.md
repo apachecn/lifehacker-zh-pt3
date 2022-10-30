@@ -4,7 +4,7 @@
 
 所以你已经迈出了这一步，决定 [为疲惫的旅行者、](https://lifehacker.com/what-weve-learned-about-being-good-airbnb-hosts-after-n-1790588517) 游客和度假者提供一个舒适的住所。你可以在 Airbnb、VRBO、HomeAway 或其他几个度假租赁网站上列出你的房子，但你要确保房源看起来尽可能诱人，以吸引客户。这意味着拍摄专业、好看的照片。
 
-Watch
+
 
 “对手机说不，”佩吉·法伦说，她是职业摄影师。当然，你的手机可以 [拍出令人难以置信的照片](http://lifehacker.com/how-to-take-better-pictures-with-your-smartphones-camer-5662812) ，但它仍然无法取代专业相机，你可以以相对低廉的价格租用专业相机。Farren 碰巧也是 Airbnb 的超级房东，所以她知道一些让你的家对潜在的客人来说看起来漂亮的事情。
 

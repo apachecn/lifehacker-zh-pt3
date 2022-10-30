@@ -4,7 +4,7 @@
 
 到目前为止，我们已经在 [Hack Your City](https://lifehacker.com/c/hack-your-city) 上报道过的所有目的地中，上海可能会给西方游客带来最大的惊喜，正如许多读者在周一的 [评论帖](https://lifehacker.com/tell-us-your-shanghai-travel-tips-1826329336#replies) 中描述的那样。这座古城现在是一个科技和金融中心，也是一个受欢迎的旅游目的地，充满了意想不到的并列。
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

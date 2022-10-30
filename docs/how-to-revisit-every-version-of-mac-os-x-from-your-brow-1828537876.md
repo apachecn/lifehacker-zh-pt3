@@ -6,7 +6,7 @@
 
 苹果操作系统中的 Aqua GUI 自 2000 年 3 月进入 OS X 10.0 以来经历了显著的演变，你可能会惊讶于现在一切看起来有多么不同。得益于新推出的 [Aqua 截图库](https://512pixels.net/projects/aqua-screenshot-library/) ，你可以重温多年来 OS X(和 macOS)的每一个版本，查看苹果操作系统的逐步演变——一切都从你的浏览器开始。
 
-Watch
+
 
 海量图库是由 [512 像素](https://512pixels.net/) 制作的最新作品，这是一个试图记录苹果所有东西的在线图书馆(包括[Mac 的许多壁纸](https://512pixels.net/projects/default-mac-wallpapers-in-5k/) )。正如创作者 Stephen Hackett 所说，Aqua 截屏库提供了苹果操作系统历史的全面回顾，包括从笨重的 CRT 到紧凑的 LED 背光显示器的飞跃；苹果的 [这些年各种字体变化](https://developer.apple.com/fonts/)；苹果从基于光盘的操作系统转向(免费)数字下载。
 

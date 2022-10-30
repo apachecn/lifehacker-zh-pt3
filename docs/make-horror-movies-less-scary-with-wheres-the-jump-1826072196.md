@@ -4,7 +4,7 @@
 
 有些人喜欢害怕。一些比较理智的人不喜欢被吓到，想欣赏一部经典的恐怖片，而不用担心廉价的休克战术。对于那些人来说，有 [跳哪里去了？](https://wheresthejump.com/full-movie-list/) ，恐怖、惊悚、科幻电影中的跳跃惊吓数据库。
 
-Watch
+
 
 对于每部电影来说，跳跃点在哪里？列出每个跳跃惊吓的时间码、每个惊吓的描述(您可以隐藏它以避免剧透)，并高亮显示“主要惊吓”还有一般信息，如电影的 IMDb 和烂番茄评分，流派标签，以及网飞是否有它。您可以按以下任何因素对主列表进行排序；查看 [低跳惊悚片](https://wheresthejump.com/low-jump-scare-movies/) 列表，寻找不依靠跳跃惊吓的恐怖或招摇电影，如 [*一个女孩晚上独自走回家*](https://wheresthejump.com/jump-scares-in-a-girl-walks-home-alone-at-night-2014/) 或仍然恐怖的 [*沉默的羔羊*](https://wheresthejump.com/jump-scares-in-the-silence-of-the-lambs-1991/) 。
 

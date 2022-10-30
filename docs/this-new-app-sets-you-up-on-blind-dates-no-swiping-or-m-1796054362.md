@@ -4,7 +4,7 @@
 
 有没有想过不先发信息就和陌生人约会？我也是，但今天发布的一款新的约会应用程序 [First](https://itunes.apple.com/us/app/first-the-first-real-dating-app/id1222111537?ls=1&mt=8) 想让这一切发生。
 
-Watch
+
 
 与 Tinder 和 Bumble 不同，它不涉及刷卡。相反，人们首先连接到他们的脸书账户，从一个开放的订阅源中寻找发布的日期。
 

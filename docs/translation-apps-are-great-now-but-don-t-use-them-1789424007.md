@@ -4,7 +4,7 @@
 
 由于像神经网络学习 这样花哨的新升级 [，像谷歌翻译和微软翻译这样的翻译应用比以往任何时候都好。他们可以翻译你想要的任何东西。但是你不应该在旅行的时候依靠它们。事实上，我认为你应该尽可能少地使用它们——如果要用的话。](https://lifehacker.com/what-neural-networks-artificial-intelligence-and-mach-1789259060) 
 
-Watch
+
 
 Google Translate 和微软 Translator 都已经把 [进化成了比](http://lifehacker.com/translation-tool-showdown-google-translate-vs-microso-1787836106) 更称职的翻译工具。他们几乎可以即时翻译语音，离线阅读和翻译文本，甚至可以使用智能手机的摄像头实时翻译标志和菜单。使用这些应用中的任何一个，你都可以毫不费力地在异乡漫游。但是如果你的目标是从旅行中获得尽可能多的东西，使用它们对你自己和你的整体体验都是一个巨大的伤害。
 

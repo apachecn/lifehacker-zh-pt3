@@ -4,7 +4,7 @@
 
 如果你像我一样是一个令人难以忍受的千禧一代，你现在很有可能已经放弃了有线电视，转而支持网飞和 HBO 等在线流媒体服务。但是选择半打视频网站而不是有线电视真的省钱吗？没有。除此之外，还有第一次约会的恐怖故事、PS4 遥控游戏等等。
 
-Watch
+
 
 ## [帮助你掌握微软 Office 的 10 大秘籍](http://lifehacker.com/top-10-cheat-sheets-to-help-you-master-microsoft-office-1768667500)
 

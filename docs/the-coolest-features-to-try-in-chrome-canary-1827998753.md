@@ -4,7 +4,7 @@
 
 谷歌 Chrome 的标准版或“ [稳定版](https://www.chromestatus.com/features/schedule) ”提供了大量方便的定制和生活质量改善，但如果你想在其他人之前获得最新的实验功能，你会想看看 [Chrome 金丝雀](https://www.google.com/chrome/canary/) 。
 
-Watch
+
 
 谷歌将 Chrome Canary 描述为其浏览器的“出血边缘”版本，它包含了新的调整和工具，你可以在正式发布之前尝试一下——如果它们甚至可以成为浏览器的稳定版本。注意:过金丝雀般的生活可能会导致不稳定的性能，因为浏览器仍在积极开发中，但你可以同时在系统上保留金丝雀和稳定版本的 Chrome。
 

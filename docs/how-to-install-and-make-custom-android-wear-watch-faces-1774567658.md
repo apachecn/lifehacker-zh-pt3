@@ -4,7 +4,7 @@
 
 如果说我喜欢可穿戴设备的可能性，那就是换上新的表盘。虽然许多公司要么阻止用户定制手表表面，要么要求一些像样的编码技能，但 Android Wear 有一些变通办法——它们很棒。如果你想打造别人没有的属于你自己的定制表盘，请继续阅读。连 iOS 用户都可以！
 
-Watch
+
 
 我是一个 iPhone 用户，带着 Android Wear 手表。为什么？因为我认为 Apple Watch 是一种混乱的、毫无意义的技术。虽然谷歌的 Android Wear 平台在 iOS 上做得不太好，但我发现它的重点是让可穿戴体验*更好*，它实际上似乎可以更可靠地与我的手机配对。但不管你喜欢手腕上的什么平台，Android Wear 是唯一一个可以简单选择制作你自己的定制手表表面的平台。 [Gizmodo 详细介绍了几个安卓用户可以轻松使用的](http://gizmodo.com/design-your-own-android-wear-watch-faces-no-coding-req-1748087304) ，但在本帖中，我们将回顾一个甚至 iPhone 用户也可以使用的过程。
 

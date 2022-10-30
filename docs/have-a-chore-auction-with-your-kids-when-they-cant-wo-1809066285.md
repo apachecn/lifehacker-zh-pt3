@@ -6,7 +6,7 @@
 
 这是《T2】 [*【游戏理论家育儿指南】*](https://www.amazon.com/Game-Theorists-Guide-Parenting-Negotiators/dp/0374536902/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/have-a-chore-auction-with-your-kids-when-they-cant-wo-1809066285&asc_source=&tag=kinjalifehackerlink-20) 中提出的一种策略，保罗·雷伯恩和凯文·佐尔曼的这本书也给了我们在孩子之间分配东西的绝妙的 [【我切，你挑】策略](http://offspring.lifehacker.com/use-the-i-cut-you-pick-strategy-for-dividing-stuff-b-1797207063) 。对于任何不可分割的东西，让你的孩子用家务来“出价”，谁最想要，谁就得到。
 
-Watch
+
 
 事情可能会这样发展:
 

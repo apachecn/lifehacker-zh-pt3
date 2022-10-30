@@ -4,7 +4,7 @@
 
 好的鸡汤不仅仅是鸡肉味的水。虽然你应该 [目标是让你的股票变得有味道](https://skillet.lifehacker.com/how-to-make-stock-that-isnt-bland-nonsense-1820626531) ，但一只好股票也应该是丰富和令人垂涎的，有一个不会放弃的身体。朋友们，这就是为什么你应该用鸡爪来炒股。
 
-Watch
+
 
 鸡爪在肉类方面几乎没有什么，但它们在皮肤、骨骼和结缔组织方面远远超过了它，也被称为“给你的股票带来你渴望的身体的东西。”当然， [翅膀](https://skillet.lifehacker.com/instant-pot-buffalo-wings-are-fast-easy-and-very-good-1822565911) 还有 [有很多脂肪和胶原蛋白](https://skillet.lifehacker.com/chicken-wings-make-the-richest-broth-imaginable-1787814398) ，但是我宁愿 [闷那些酱](https://skillet.lifehacker.com/sous-vide-buffalo-wings-are-crispy-on-the-outside-and-t-1819914472) 。鸡爪也超级便宜；即使在我的高价杂货店，它们也要 3 美元一磅。
 

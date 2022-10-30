@@ -4,7 +4,7 @@
 
 浏览器 cookies 在某些情况下很有用；在别人看来不愉快。虽然它们可以让你在试图访问你最喜欢的网站时不必经历复杂的认证过程，但它们也可以存储你在特定网站上做过的事情的数据，这些数据可以用于在未来为你提供更“相关”的广告。
 
-Watch
+
 
 要解决这个问题，请选择扩展 Cookie 自动删除 [Chrome](https://chrome.google.com/webstore/detail/cookie-autodelete/fhcgjolkccmbidfldomjliifgaodjagh?hl=en) 或 [Firefox](https://addons.mozilla.org/en-US/firefox/addon/cookie-autodelete/) 。这是一个很有用的方法，可以查看任何网站放入你的浏览器背景的 cookies 数量。更重要的是，你可以将你关心的网站(比如你最喜欢的社交网络)的 cookie 列入白名单，并在你关闭网站标签(或关闭浏览器)时自动删除其他网站的所有 cookie。
 

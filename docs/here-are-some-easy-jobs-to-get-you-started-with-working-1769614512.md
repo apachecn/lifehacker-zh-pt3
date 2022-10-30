@@ -4,7 +4,7 @@
 
 如果你想学习修理汽车，你可能不想从改造发动机或更换变速器中的离合器开始，就像你不会开始小学数学学习 [拉普拉斯变换](https://en.wikipedia.org/wiki/Laplace_transform) 。最好从不那么吓人的东西开始。
 
-Watch
+
 
 几个月前，我写了一篇 [文章](http://thegarage.jalopnik.com/heres-how-you-can-learn-to-fix-cars-1728657805#_ga=1.15539638.1418570847.1453824634) 推荐用扳手变得更博学的无数方法。然后，过了一会儿，我 [建议](https://jalopnik.com/you-dont-need-lots-of-money-to-wrench-1733808958) 一些像样的、便宜的工具让你开始。但是这里缺少一点有用的建议:你从哪里开始？这里有五个相当简单的工作让你开始。
 

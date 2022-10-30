@@ -4,7 +4,7 @@
 
 本周，我们了解了政府关闭可能会对我们产生的影响，查看了为 iOS 9 更新的一些最好的应用程序，分享了一些经常被忽视的烹饪技巧，等等。这里回顾一下。
 
-Watch
+
 
 ## [你应该如何购买你的新 iPhone？这个工具会引导你](http://lifehacker.com/how-should-you-buy-your-new-iphone-this-tool-will-guid-1732314719)
 

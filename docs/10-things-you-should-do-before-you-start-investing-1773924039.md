@@ -4,7 +4,7 @@
 
 人们经常对通过投资获得丰厚回报的可能性感到兴奋，所以一旦他们手中有了一点现金，他们就准备投资。他们想让他们的钱为他们工作，这完全可以理解。但并不是每个人都准备好了。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/ten-things-you-need-to-do-before-you-start-investing/) *上。*
 

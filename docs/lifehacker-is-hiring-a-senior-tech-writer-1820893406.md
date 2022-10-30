@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/lifehacker-is-hiring-a-senior-tech-writer-1820893406>
 
-Watch
+
 
 你是否有大量的技术技巧、诀窍、观点和见解，但却没有人可以传授给你？你是一个机智、简洁、深刻的作家，能把复杂的过程提炼成引人入胜、易于理解的指令吗？你是否一直在尖叫着杀手级的 Chrome 扩展、免费的 VPN、秘密的 Roku 频道和省时的 IFTTT 食谱，但你听到的只是你自己的声音在黑暗中回响？我们谈谈吧。
 

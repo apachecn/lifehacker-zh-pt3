@@ -4,7 +4,7 @@
 
 评论已经出炉，大多数人认为，谷歌的新款 Pixel 手机 [非常棒](http://gizmodo.com/the-google-pixel-is-the-smartest-phone-ive-ever-held-1787382364#replies) 。它们也标志着 Nexus 系列的死亡。随着向像素的转移，谷歌正在将目光从 Nexus 设备的实验世界转向更大的世界，即无处不在的手机买家。
 
-Watch
+
 
 ### **Nexus 设备是谷歌的硬件试验场**
 

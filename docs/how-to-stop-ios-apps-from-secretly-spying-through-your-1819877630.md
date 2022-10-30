@@ -4,7 +4,7 @@
 
 毫无疑问，你已经让一些 iOS 应用程序 [访问个人数据](https://lifehacker.com/how-apps-use-your-photos-to-track-your-location-1819802266) ，比如你的照片库或联系人列表。但是如果你让他们使用你的相机，他们可能在幕后做了很多你不知道的事情，包括在你不知情的情况下给你拍照。幸运的是，你可以停止偷偷摸摸的数据收集，而不必再去拍照。
 
-Watch
+
 
 安全研究员费利克斯·克劳斯在调查苹果 iOS 11 隐私设置的博客文章 中讨论了潜在的隐私侵犯 [，并发现苹果对摄像头访问权限的处理允许应用程序在未经用户同意或知情的情况下收集更多用户数据。](https://krausefx.com/blog/ios-privacy-watchuser-access-both-iphone-cameras-any-time-your-app-is-running)
 

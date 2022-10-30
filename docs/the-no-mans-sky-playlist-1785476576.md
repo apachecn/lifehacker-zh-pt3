@@ -4,7 +4,7 @@
 
 *无人区*是一款无限探索游戏，也就是 [把粉丝从中间分割开](http://kotaku.com/the-no-mans-sky-hype-dilemma-1785416931) 。然而，几乎每个人都同意的是，它很美。配乐也是如此，这是本周播放列表的主题。
 
-Watch
+
 
 下面你会发现游戏的配乐，其中包含近两个小时的电子环境音乐。整张专辑有一种现代宏伟的感觉。视频游戏音乐已经 [对完成工作](http://lifehacker.com/the-best-music-to-work-or-study-to-could-be-video-game-1542298206) 大有裨益，因为它旨在提升你的情绪而不分散你的注意力。
 

@@ -4,7 +4,7 @@
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天我们带来了我长期以来最喜欢的两样东西——生姜和马丁尼酒——并将它们结合在一起，制成了我的新的最喜欢的东西。
 
-Watch
+
 
 我是一个踢腿、痴迷、有阶段的女人，现在 [我痴迷于腌姜](https://skillet.lifehacker.com/the-best-off-label-uses-for-sushi-ginger-1828227531) 。你也可以说我正在经历一个“马提尼时期”，但这将使我的“马提尼时期”至少是毕加索“蓝色时期”的两倍。我对马提尼酒的热爱始于肮脏的橄榄卤水样本，在我认定自己是那种喜欢喝干马提尼酒的“非常酷”的女人之前。从那以后，我适应了大约 3:1 的比例(杜松子酒和苦艾酒),甚至可以时不时地欣赏一下T5 和 T7。但是我仍然对肮脏的 bois 情有独钟，最近我一直在享受不是用橄榄 [甚至泡菜](https://skillet.lifehacker.com/3-ingredient-happy-hour-the-polarizing-pickletini-1797947090) 而是用姜汁制作的肮脏马提尼。
 

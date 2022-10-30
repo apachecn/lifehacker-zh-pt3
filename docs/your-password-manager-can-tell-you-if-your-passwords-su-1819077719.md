@@ -4,7 +4,7 @@
 
 如果你担心保护你的在线身份免受黑客攻击，一个 [密码管理器](https://lifehacker.com/the-five-best-password-managers-5529133) 像[1 密码](https://lifehacker.com/how-to-switch-from-lastpass-to-1password-1802689696) 是一个很好的开始，但是建立一个账户只是成功的一半。这些服务中的大多数都具有额外的安全特性，而您可能没有利用这些特性。
 
-Watch
+
 
 以下是你需要知道的，以充分利用你正在使用的密码管理器。
 

@@ -4,7 +4,7 @@
 
 又到了上学时间，正如大多数学生所知，这意味着是时候让你的包尽可能轻了。药学学生和天天读书人 Eric Shen 分享他的书包。
 
-Watch
+
 
 包里是一辆 [Gravis Metro](http://www.thebagcreature.com/gravis) 。这是里面的内容:
 

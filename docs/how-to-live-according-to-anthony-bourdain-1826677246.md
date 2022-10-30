@@ -4,7 +4,7 @@
 
 安东尼·鲍代恩，谁去世今天 61 岁，给了我们大胆的智慧关于 [如何做出更好的汉堡](https://lifehacker.com/anthony-bourdains-tips-for-making-a-better-burger-1789705445)[如何在机场找到好吃的](https://lifehacker.com/anthony-bourdains-favorite-airport-foods-1794893484)[为什么没事周一点鱼](https://lifehacker.com/anthony-bourdain-explains-why-its-okay-to-order-fish-on-1788716322) 。
 
-Watch
+
 
 但最重要的是，这个人教会了我们如何生活。
 

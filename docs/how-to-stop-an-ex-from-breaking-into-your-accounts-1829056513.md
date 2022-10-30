@@ -4,7 +4,7 @@
 
 在本周的 [技术支持专栏](https://lifehacker.com/c/tech-911) 中，我将讨论一个令人不安的问题:如何从不友好的前任手中夺回对你账户的控制权。我希望你以前的爱人不是一个彻头彻尾的精神病患者，或者，至少，不是一个有权进入你账户的精神病患者，但这是一个再熟悉不过的故事。你和某人住在一起，你分享你的希望和你的梦想，他们想办法进入你的账户。(或者，你共享登录凭证，这也是一个非常糟糕的主意。)
 
-Watch
+
 
 在我开始之前，先提一个小问题:尽管 Lifehacker 的读者 [给我发了很多问题](https://lifehacker.com/send-us-your-tech-questions-1828824699) 让我在以后的帖子中解决——谢谢你！—前几天在我最喜欢的 subreddit，/r/legaladevice 看到了 [这个帖子](https://www.reddit.com/r/legaladvice/comments/9exm7e/ms_my_ex_continues_to_hack_into_my_phone_various/) ，一直挥之不去。作者在信中写道:
 

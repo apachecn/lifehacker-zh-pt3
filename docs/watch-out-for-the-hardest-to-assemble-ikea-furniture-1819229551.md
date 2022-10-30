@@ -4,7 +4,7 @@
 
 有些人喜欢挑战，喜欢无言的指令和五十小包小螺丝带来的冥想般的宁静。但是有些人一看到六角钥匙就会尖叫。取决于你属于哪一类，这要么是一个挑战，要么是一个远离的警告。
 
-Watch
+
 
 公寓疗法梳理了对 [的回复，在宜家子网站](https://www.reddit.com/r/IKEA/comments/5ncrk9/what_is_the_most_difficult_ikea_furniture_to_put/?st=j8aaucue&sh=e49fbc8c) 上有一个帖子问道:“宜家最难组装的家具是什么？不，我不是指没有手册的那个……”前三个答案是:
 

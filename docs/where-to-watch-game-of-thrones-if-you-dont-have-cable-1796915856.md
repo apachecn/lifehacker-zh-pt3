@@ -4,7 +4,7 @@
 
 HBO 的*权力的游戏*第七季将于本周日首播，给你足够的时间来计算在 [你的死亡池](http://lifehacker.com/how-to-organize-a-game-of-thrones-death-pool-1796893792#_ga=2.242204170.903673921.1499692190-167189482.1495477587) 中哪里下注，以及如何在不需要你表哥的男朋友的妈妈的账户信息的情况下观看该剧。这很简单——只要你每月有 15 美元。
 
-Watch
+
 
 HBO 过去需要有线订阅，其好处是 HBO GO 的配套流媒体应用程序。现在，由于其独立的流媒体应用程序 [HBO NOW](https://order.hbonow.com/?r=hbonow&mboxSession=290e4298002f42148d4b0ffda5b59a92) ，用户能够在多种设备上获得优质流媒体服务，从 iPod touch 到 Chromecast:
 

@@ -4,7 +4,7 @@
 
 你知道你在皮肤上涂了什么吗？如果没有，你可以使用这个 [产品搜索引擎](https://incidecoder.com/) 来解码你的乳液、面霜和化妆品中有什么。
 
-Watch
+
 
 你可以在 INCIDecoder 上按名称搜索单独的成分和受欢迎的产品，它会列出所有的成分以及它们实际上是什么和它们有什么作用的描述。因为虽然我知道 Aqua 是什么，但我对 [PPG-26-Buteth-26](https://incidecoder.com/ingredients/ppg-26-buteth-26) 和 [乙基己基甘油](https://incidecoder.com/ingredients/ethylhexylglycerin) 不太熟悉。
 

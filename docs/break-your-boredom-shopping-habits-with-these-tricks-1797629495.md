@@ -4,7 +4,7 @@
 
 我有一个坏习惯。周六晚上，喝了几杯夏布利酒，无所事事了一晚上后，我会浏览一下我的亚马逊购物清单，寻找一些可以买的东西。这是一个代价高昂的习惯，我的家里堆满了廉价的书籍、 [昂贵的高达模型套件](http://kotaku.com/someone-wants-to-pay-9-000-for-a-gundam-model-1466547288) ，还有一些我还没来得及用的 E 型转接环镜头。另一位 redditor [xsp4rrow 也有类似的问题](https://www.reddit.com/r/personalfinance/comments/6qoakm/i_buy_things_online_when_im_bored_and_i_honestly/) ，当他们无聊时它会抬起头。
 
-Watch
+
 
 我不后悔这些购买，但我希望在我点击“购买”几天后，我没有内疚或焦虑的感觉，尤其是当我只是因为有点厌倦而购买时。如果你经常发现自己处于类似的境地，这里有一些方法可以消除——或者至少减少——你无聊购物的习惯:
 

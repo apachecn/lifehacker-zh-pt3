@@ -4,7 +4,7 @@
 
 Snapchat 最近发布了一个重新设计的版本，它并没有受到最忠实用户的欢迎。对于大多数应用程序来说，如果你选择升级，你就会一直使用新版本，直到开发者推出新的东西。
 
-Watch
+
 
 然而，在 Snapchat 重新设计的情况下， [*Mashable* 发现了](https://mashable.com/2018/02/10/snapchat-old-version-switch-utility/#SZtQj5dK.mq3) 如果你有一部 iPhone，有一点点变通办法…至少现在是这样。
 

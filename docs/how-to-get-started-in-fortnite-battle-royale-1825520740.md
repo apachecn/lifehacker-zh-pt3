@@ -4,7 +4,7 @@
 
 如果你没有玩过 [【堡垒之夜】](https://offspring.lifehacker.com/how-to-stop-your-kids-from-buying-stuff-in-fortnite-1825339110) ，你可能知道有人玩过。免费的 [皇室风格的战斗游戏](https://www.pcgamer.com/battle-royale-games-2018/) 在 2018 年几乎是不可避免的。 [小孩](https://kotaku.com/teens-and-teachers-say-fortnite-mobile-is-destroying-so-1823997450) 玩的停不下来。甚至连说唱歌手和 [NBA 球员](http://bleacherreport.com/articles/2765469-it-took-my-life-over-inside-nba-players-fortnite-addiction) 也加入了这场行动。
 
-Watch
+
 
 《皇家堡垒之战》背后的基本前提(与其他 99 个人竞争成为最后一名幸存者)可能看起来很简单，但实际上有很多东西。在你投入第一场比赛之前，有一些事情需要知道。
 

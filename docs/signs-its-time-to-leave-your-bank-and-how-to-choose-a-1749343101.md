@@ -4,7 +4,7 @@
 
 我不是一个忠诚的银行客户。在过去的 5 到 6 年里，我换了几次银行，原因是费用、糟糕的客户服务或者其他地方有更好的选择。我不后悔。如果你正在考虑离开你的银行，这里有一些迹象表明是时候咬紧牙关了。
 
-Watch
+
 
 ### 费用不断攀升
 
@@ -40,11 +40,7 @@ Watch
 
 你也要确保他们有可用的在线工具。大多数银行都支持实时聊天，并允许你记录与代表的 [对话。](https://lifehacker.com/a-step-by-step-guide-to-getting-better-customer-service-5805406)T3】
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Signs It&#39;s Time to Leave Your Bank (and How to Choose a New One)](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/a-step-by-step-guide-to-getting-better-customer-service-5805406) [###### 获得更好客户服务的逐步指南](https://lifehacker.com/a-step-by-step-guide-to-getting-better-customer-service-5805406) 
 
-尽管你尽了最大努力自己解决问题，但有时你还是不得不求助于…
-
-[Read more](https://lifehacker.com/a-step-by-step-guide-to-getting-better-customer-service-5805406)</aside>
 
 ### 他们的在线选择糟透了
 
@@ -91,11 +87,7 @@ Watch
 
 如果你有一个粗糙的银行历史或不良信用，信用社也是一个很好的选择，因为他们通常在申请过程中稍微宽松一些。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Signs It&#39;s Time to Leave Your Bank (and How to Choose a New One)](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-switch-from-my-bank-to-a-credit-union-5857091) [###### 我如何从银行转到信用社？](https://lifehacker.com/how-do-i-switch-from-my-bank-to-a-credit-union-5857091) 
 
-亲爱的生活黑客，我正在考虑从我的银行转到当地的信用社。我应该…
-
-[Read more](https://lifehacker.com/how-do-i-switch-from-my-bank-to-a-credit-union-5857091)</aside>
 
 ### 如果银行拒绝你该怎么办
 

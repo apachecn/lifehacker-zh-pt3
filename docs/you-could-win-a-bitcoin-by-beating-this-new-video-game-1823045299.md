@@ -4,7 +4,7 @@
 
 如果你希望能回到过去，花几块钱买一枚比特币，现在你的机会来了——算是吧。一款新的视频游戏(由 [主板](https://motherboard.vice.com/en_us/article/bj578v/montecrypto-steam-bitcoin-puzzle-game) 发现)为玩家提供了赢得一枚比特币(目前价值略高于 1 万美元)的机会。你所要做的就是在 Steam 上以 1.99 美元的价格购买游戏，成为第一个击败它的人。
 
-Watch
+
 
 [MonteCrypto:比特币之谜](http://store.steampowered.com/app/768750/MonteCrypto_The_Bitcoin_Enigma/) 于 2 月 20 日在 Steam 上发布。如果你在发售当天购买，还有 40%的折扣，价格降至 1.19 美元。
 

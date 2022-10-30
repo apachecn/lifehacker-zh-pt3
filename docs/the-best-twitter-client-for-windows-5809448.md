@@ -4,7 +4,7 @@
 
 多年来，Windows 的 Twitter 客户端领域已经被淘汰，但仍有少数开发者在努力开发一些杀手级应用。Aeries 是一个令人印象深刻的 Twitter 客户端，能够通过通用的 Windows 应用程序满足专业需求。
 
-Watch
+
 
 更新:几个月前，我们之前最喜欢的 Windows 版 Twitter 客户端 TweetDeck 停止使用。我们已使用新的 Windows 应用程序更新了下面的选择。然而，如果你是 TweetDeck 的忠实用户，请查看下面的竞争部分，了解该应用的更多信息。
 

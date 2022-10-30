@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**Chrome 平板书给了脸书我们一直想要的简单、无广告的布局**](http://lifehacker.com/flatbook-for-chrome-gives-facebook-the-simple-ad-free-1780469025)
 

@@ -4,7 +4,7 @@
 
 如果你最近浏览过新闻，你可能会看到或听到“勾结”一词，指的是特朗普总统的高级职员被指控与俄罗斯有见不得人的交易。但是什么是串通呢？这真的是犯罪吗？
 
-Watch
+
 
 今天，特朗普总统的高级顾问兼女婿贾里德·库什纳 [站在参议院调查人员面前，否认在 2016 年总统竞选前后与外国特工](https://www.washingtonpost.com/world/national-security/kushner-arrives-at-senate-for-closed-door-questioning-on-russia/2017/07/24/f5be2b26-7073-11e7-8f39-eeb7d3a2d304_story.html?hpid=hp_hp-top-table-main_kushner620am%3Ahomepage%2Fstory&utm_term=.49db3b8d5051) 有任何勾结。当然，他的声明指的是一则新闻，即一名声称拥有希拉里·克林顿(Hillary Clinton)和特朗普核心圈子的破坏性材料的俄罗斯国民实际上在 2016 年 6 月举行了一次会议。从那以后,“共谋”一词就成了一个政治术语，但它在很大程度上被用作一个笼统的说法，在美国法律中并不像你想象的那么重要。
 

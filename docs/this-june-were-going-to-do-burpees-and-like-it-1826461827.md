@@ -4,7 +4,7 @@
 
 当然，好吧，波比很难对付，我们讨厌他们。但是它们是一种惊人的全身锻炼，试一试也不会死。也许两个。(或者十个。你知道这是怎么回事。)到月底我们都要变得这么强了！
 
-Watch
+
 
 我受到了丹妮尔·齐克勒的启发，她 [连续一个月每天做三组十个嗝](https://www.menshealth.com/fitness/a19543814/30-burpees-for-15-days/?utm_source=t.co&utm_medium=Social&utm_term=1553805883&utm_campaign=Men%27s%20Health) 。她的结果是:
 

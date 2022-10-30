@@ -4,7 +4,7 @@
 
 不管是好是坏，我们在*外卖店*的确会看评论——大部分是为了更好，因为你们是一群好人。除了迷人的话语之外，有时你们中的一个会抛出一个我们决定直接回答的问题。因此，出于对我们的最高领袖 [总统佐德](https://thetakeout.com/1828575194) 的尊重，我们为这篇关于 [酒后粘冰棍](https://thetakeout.com/stick-a-popsicle-in-your-booze-prosecco-1828559442#_ga=2.226523101.1799697540.1534983607-308846628.1493669845) 的文章的评论部分首次提出的一个问题提供答案:
 
-Watch
+
 
 对于上下文:当我不写关于食物和酒(和 [电影](https://consequenceofsound.net/author/allison-shoemaker/) 和 [电视](https://www.avclub.com/c/whats-on-tonight) 和音乐剧 [*哈利波特*](https://thetakeout.com/a-muggle-eats-her-way-through-harry-potters-magical-uni-1828345444) 等)。)，我在芝加哥的一家高档酒、奶酪、葡萄酒和啤酒店兼职当店员。如果你想推荐奇特的山羊奶酪或当地肥皂，我也可以这样做，但威士忌是我在商店的利基，因为它很好吃。
 

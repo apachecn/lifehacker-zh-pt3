@@ -4,7 +4,7 @@
 
 有些人在体育、音乐和象棋等活动上比其他人强得多。就拿篮球大帝来说吧。在过去的这个赛季， [打破了他去年创下的记录](http://www.nytimes.com/interactive/2016/04/16/upshot/stephen-curry-golden-state-warriors-3-pointers.html?_r=0) 超过 40%，库里投中了惊人的 402 个三分球——比他最接近的挑战者多 126 个。
 
-Watch
+
 
 如何解释这种异常的表现？专家是天生就具有遗传优势吗？他们完全是通过训练“造”出来的吗？还是两者都有？
 

@@ -4,7 +4,7 @@
 
 取消的航班几乎总是意味着乘坐更晚的航班，这可能会导致错过您的转机，缩短您的假期，有时甚至会错过您最初乘坐航班参加的活动。
 
-Watch
+
 
 很多时候，航班被取消是因为天气等原因，这是航空公司无法控制的。在这种情况下，你很无助，必须接受航空公司提供的一切。在大多数情况下，这只是简单地为您重新预订另一个航班。
 
@@ -34,11 +34,7 @@ Watch
 
 就像其他人一样，他们只会在你过夜是航空公司的过错时提供酒店住宿。如果你有资格入住一家酒店，但他们的代金券用完了，他们也会给你一封批准信，这样你就可以预订自己的酒店，并在以后得到补偿。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What You&#39;re Entitled To If Your Flight Gets Canceled](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-should-i-do-when-my-flight-gets-cancelled-5967162) [###### 当我的航班被取消的时候我应该做什么？](https://lifehacker.com/what-should-i-do-when-my-flight-gets-cancelled-5967162) 
 
-亲爱的生活黑客，假期我会去很多地方旅行，但我有过一些非常糟糕的经历
-
-[Read more](https://lifehacker.com/what-should-i-do-when-my-flight-gets-cancelled-5967162)</aside>
 
 航班取消，不管是什么原因，都很糟糕。总的来说，如果你在旅途中遇到问题，我总是建议你通过电话联系航空公司，而不是在前台排队。电话代表可以做几乎所有前台代理可以做的事情，而且还有更多的电话代表。
 

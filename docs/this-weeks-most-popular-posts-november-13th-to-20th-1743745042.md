@@ -4,7 +4,7 @@
 
 本周我们比较了 NVIDIA 和 AMD 的显卡，讨论了黑色星期五的结束及其对你的钱包意味着什么，从任天堂传奇人物宫本茂那里了解了创造力，等等。下面回顾一下本周最受欢迎的帖子。
 
-Watch
+
 
 ## [你可能用错邮件的十大方式](http://lifehacker.com/top-10-ways-youre-probably-using-email-wrong-1742390381)
 

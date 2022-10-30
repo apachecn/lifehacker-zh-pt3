@@ -4,7 +4,7 @@
 
 亚马逊正在让控制你的 [Fire TV](https://lifehacker.com/how-to-install-kodi-on-your-fire-tv-edition-amazon-powe-1820843225) 变得更加容易，而不会因为使用物理遥控器而使自己过度劳累。在夏季 增加了通过 [回声](https://lifehacker.com/the-alexa-skills-that-are-actually-worth-using-1791616099) 扬声器 [控制电视的能力后，该公司](https://amazonfiretv.blog/how-to-control-your-amazon-fire-tv-with-your-echo-device-d85473215146) [周四](https://amazonfiretv.blog/now-alexa-on-fire-tv-can-control-hulu-playstation-vue-cbs-all-access-and-more-ba43253cd32) 宣布了一项更新，在更多流媒体应用上增加了更多基于语音的控制。
 
-Watch
+
 
 从现在开始，你可以控制 Bravo，CBS All Access，Hulu，NBC，Showtime 和 [索尼 PlayStation Vue](https://lifehacker.com/live-tv-streaming-showdown-sling-vs-playstation-vue-v-1791749070) 。除此之外，网飞、Prime Video 和 HBO NOW 等所有已经与 Alexa 语音控制配合使用的应用程序也是如此。
 

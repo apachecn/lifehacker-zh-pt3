@@ -8,7 +8,7 @@
 
 网络摄像头让世界感觉神奇，这也是它们在互联网上存活了 17 年的原因。网络摄像头已经从静态图像发展到视频，从微小、模糊的图片发展到原始的 4k 流。像 Twitch、Snapchat 和 Skype 这样的视频技术并没有扼杀安装在同一地点的摄像机 24/7 的吸引力。
 
-Watch
+
 
 网络摄像头不是典型工作流程的一部分；我们大多数人几个月或几年都没有看一眼。但时不时地，人们会在 Metafilter、Reddit 或其他论坛上分享他们最喜欢的网络摄像头，全世界都会聚在一起观看。以下是 AskReddit 上的一些来自 [的精彩镜头。](https://www.reddit.com/r/AskReddit/comments/95gf7o/what_are_some_of_the_most_interesting_247/)
 

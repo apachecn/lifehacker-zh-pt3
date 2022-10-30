@@ -4,7 +4,7 @@
 
 维基百科非常擅长展示冷酷无情的事实，但它读起来就像是电脑写的一样。很难找到一个主题的“氛围”。相反，尝试电视比喻。虽然这个专门的维基主要关注电影、电视节目和视频游戏等娱乐，但它也收集关于现实世界中的人、地方和现象的 [【有用笔记】](http://tvtropes.org/pmwiki/pmwiki.php/Main/UsefulNotes) 。
 
-Watch
+
 
 举个例子，这里有一行来自 [维基百科关于拜占庭帝国](https://en.wikipedia.org/wiki/Byzantine_Empire) 的页面:
 

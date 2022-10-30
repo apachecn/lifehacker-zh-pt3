@@ -4,7 +4,7 @@
 
 每个人都希望在飞行时身边有一套不同的工具，但读者卡尔·马尔多纳多分享了他在不同的建筑项目中飞行时所带的工具。正如你所料，这里有一个漂亮的铅笔盒。
 
-Watch
+
 
 包里是一个 [布里格斯&莱利的公文包](http://www.briggs-riley.com/shop/collections/atwork/atwork-medium-brief-kb200-4) ，文具盒是来自 [Sonnenlender](https://www.theghostlystore.com/products/lenz-pen-pencil-case) 。这是里面的内容:
 

@@ -4,7 +4,7 @@
 
 完美主义通常被视为一种美德——尤其是在工作场所——但研究表明，自我施加的压力表现完美只会导致最终的倦怠。完美不是你衡量成功的标准。
 
-Watch
+
 
 *本帖原载于* [*对话*](https://theconversation.com/perfectionism-and-burn-out-are-close-friends-best-avoid-them-44727) *。*
 

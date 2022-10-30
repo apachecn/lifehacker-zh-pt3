@@ -4,7 +4,7 @@
 
 初学走路的孩子被比作 [喝醉的成年人](https://www.buzzfeed.com/awesomer/reasons-kids-are-pretty-much-just-tiny-drunk-adults?utm_term=.hnZxBvkP9#.rmZXypO1q) 、龙卷风、 [定时炸弹](https://www.reddit.com/r/childfree/comments/57okwf/infants_and_toddlers_are_like_ticking_time_bombs/) 、政客、 [小狗](http://thestir.cafemom.com/being_a_mom/168980/28_ways_toddlers_are_like) 和小妖精。现在，在新书《蹒跚学步的儿童生存指南:完全保护免于饥饿的抱怨》中，作者迈克和希瑟·斯波尔提出了一个令人信服的理由，即这些小小的、磕磕绊绊的生物很像僵尸。“无论你去哪里，它们都跟在你后面，它们都主要通过呻吟来交流，在这两种情况下，一旦它们出现，你的生活就永远不一样了，”迈克说。
 
-Watch
+
 
 这本书模仿了马克斯·布鲁克斯的*《僵尸生存指南》，将于 8 月 1 日出版，书中充满了如何在这个令人疲惫、困惑和混乱的为人父母阶段生存下来的实用技巧。作为父母和记者(迈克是 BuzzFeed 的父母编辑)，斯波夫妇花了十多年时间“在自然栖息地研究蹒跚学步的孩子”，从如厕训练到父母自我保护，他们都有建议。*
 

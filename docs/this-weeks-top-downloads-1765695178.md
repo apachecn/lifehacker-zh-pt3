@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [LastPass 认证器简化了 LastPass 用户的双因素认证](http://lifehacker.com/lastpass-authenticator-simplifies-two-factor-authentica-1765243508)
 

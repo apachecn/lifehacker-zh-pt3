@@ -4,7 +4,7 @@
 
 谷歌正在与一家电子维修公司合作，以帮助受飓风哈维破坏影响的像素所有者，为谷歌品牌的智能手机提供免费维修。
 
-Watch
+
 
 谷歌 [与 uBreakiFix](https://www.ubreakifix.com/blog/free-houston-google-pixel-repairs) 合作，在休斯顿地区的七个地点提供免费维修。免费维修计划将持续到 9 月 30 日。谷歌的 Pixel 和 Pixel XL 智能手机是令人印象深刻的设备，但缺乏像三星 Galaxy S8 这样的最新设备所具有的防水功能。随着飓风哈维带来的洪水，很可能不止几部手机遭受水毁。
 

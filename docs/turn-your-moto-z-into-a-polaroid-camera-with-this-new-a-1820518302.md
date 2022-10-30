@@ -4,7 +4,7 @@
 
 智能手机让用一张照片 捕捉任何时刻 [变得轻而易举，但结果是，我们都被](https://lifehacker.com/how-to-take-better-pictures-with-your-smartphones-camer-5662812) [淹没在如此多的数码照片](https://lifehacker.com/top-10-ways-to-improve-your-messy-photo-collection-1707830539) 中，以至于每张照片都不那么特别。从他们标志性的即时相机发展而来， [宝丽来](https://lifehacker.com/build-your-own-polaroid-style-printing-camera-with-a-ra-1792186655#_ga=2.128140489.418524875.1510583504-1313785359.1499701416) 有了一个解决方案——但前提是你手头有合适的智能手机。
 
-Watch
+
 
 [宝丽来 Insta-Share 打印机](https://blog.motorola.com/2017/11/15/snap-print-and-share-anywhere-with-polaroid-insta-share-printer-moto-mod/) 是摩托罗拉旗舰系列 [Moto Z](https://gizmodo.com/moto-z-droid-review-too-much-gadget-not-enough-phone-1784026046) 的新配件，可与各种名为 Moto Mods 的可连接小工具配合使用。以下是你需要了解的新设备。
 

@@ -4,7 +4,7 @@
 
 厌倦逃跑了吗？我们希望你不是，但不管怎样，这是你的新挑战。我们将进行一项与跑步*而非*相关的小型力量训练。如果你还没有适应寒冷天气的，你甚至可以在室内锻炼。
 
-Watch
+
 
 <small>*本帖是*</small> [<small>*火鸡小跑大赛*</small>](http://vitals.lifehacker.com/introducing-the-turkey-trot-throwdown-let-s-run-togeth-1787445111) <small>*的一部分，一系列迷你挑战点燃(或重燃)你对跑步的热爱。等到感恩节到来的时候，你已经准备好赛跑了——或者，如果你喜欢的话，在坐下来享受你的盛宴之前绕着街区慢跑一圈。你应得的。*T15】</small>
 

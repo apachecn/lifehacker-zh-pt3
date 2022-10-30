@@ -4,7 +4,7 @@
 
 秘密的匿名信息不仅仅是给懦夫的。幸运的是，一点隐私并不难获得。通过一些努力和一部备用手机，你可以举报，保护你的隐私免受骚扰，在 Craigslist 上销售或在 Match 上寻找约会对象时保持匿名。以下是方法。
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](https://lifehacker.com/welcome-to-lifehackers-sixth-annual-evil-week-1738276927) *系列的一部分，在这里我们看到了做事的阴暗面。有时邪恶是正当的，而其他时候，知道邪恶意味着知道如何打败它。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evil-week) *。*
 

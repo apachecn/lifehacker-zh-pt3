@@ -4,7 +4,7 @@
 
 我不需要提醒你世界上正在发生的一切混乱。这不是关于什么是对或错，也不是关于枪支或边界，当然也不是关于政治或哪个政客在推特上发什么。是关于你的。
 
-Watch
+
 
 *本文原载于* [*缪斯*](https://www.themuse.com/advice/how-to-get-through-a-workday-when-the-worlds-falling-apart) *。*
 

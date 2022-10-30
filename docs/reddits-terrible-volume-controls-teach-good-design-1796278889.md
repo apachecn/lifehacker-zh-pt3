@@ -4,7 +4,7 @@
 
 在过去的三周里，[/r/programmer humor](https://www.reddit.com/r/ProgrammerHumor/)subred dit 已经几百次重新发明了屏幕音量控制器。从 [一个用户的侧边滑块](https://www.reddit.com/r/ProgrammerHumor/comments/6evbfd/who_can_make_the_best_volume_slider/) 开始，用户已经根据 [笔记本电脑屏幕角度](https://www.reddit.com/r/ProgrammerHumor/comments/6fowct/lid_controlled_volume_mac_edition/)[坐立不安微调器](https://www.reddit.com/r/ProgrammerHumor/comments/6idzka/volume_spinner/)[电池电量](https://www.reddit.com/r/ProgrammerHumor/comments/6go176/running_low_on_volume/?ref=search_posts)[经纬度](https://www.reddit.com/r/ProgrammerHumor/comments/6f7213/gps_volume_control/)[圆周率](https://www.reddit.com/r/ProgrammerHumor/comments/6f7dr9/volume_in_digits_of_pi/) 的数字创建了有趣的音量控件。你可以在这里浏览它们，但是我收集了一些亮点。为了最大限度地欣赏，想象每一个听起来如何。
 
-Watch
+
 
 PM_ME_YOUR_WATERMELO 的第一篇文章 完全违背了人们的期望，它应该出现在 UX 的教科书中:
 

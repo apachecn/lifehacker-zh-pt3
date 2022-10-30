@@ -4,7 +4,7 @@
 
 谷歌新的谷歌助手昨天出现在该公司 [硬件活动](http://lifehacker.com/everything-google-announced-at-its-made-by-google-eve-1787404179) 的每一个环节。谷歌不太清楚 Assistant 与 [Google Now](http://lifehacker.com/top-10-awesome-features-of-google-now-1577427243) ，或 [Now On Tap](http://lifehacker.com/google-now-on-tap-is-cool-but-its-not-that-useful-yet-1736479584) ，或 [谷歌的语音命令](http://lifehacker.com/everything-you-didnt-know-you-could-do-with-google-voi-512727229) 有何不同。为了理清思路，这里有一些 Assistant 最好的新功能，以及它如何融入你的谷歌生活。
 
-Watch
+
 
 目前，试用 Assistant 的唯一方式是作为谷歌 AlloT3 中的聊天机器人 [。谷歌还宣布了一些功能，这些功能要到像](https://lifehacker.com/a-screenshot-tour-of-allo-googles-new-smart-messaging-1786900047) [谷歌主页](https://madeby.google.com/home/) 或 [Pixel 手机](https://madeby.google.com/phone/) 这样的设备出现后才会推出。不是每种设备都有每种功能，但是有很多很有前途的东西。
 

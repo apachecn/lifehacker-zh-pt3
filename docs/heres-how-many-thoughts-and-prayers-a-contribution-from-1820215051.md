@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/heres-how-many-thoughts-and-prayers-a-contribution-from-1820215051>
 
-Watch
+
 
 在造成近 60 人死亡、600 人受伤的拉斯韦加斯大屠杀之后,*纽约时报*刊登了一篇报道，详细说明了 [国会议员在他们的职业生涯中从全国步枪协会](https://www.nytimes.com/interactive/2017/10/04/opinion/thoughts-prayers-nra-funding-senators.html) 拿走了多少钱，以及他们在枪击事件后立即发表的声明，表达了他们对受害者的思念和祈祷。现在，一个月后，又发生了一次可怕的枪击事件，这些政客基本上复制并粘贴了他们的哀悼。响应政治中心(Center for Responsive Politics)保存了一份从 1989 年到 2018 年枪支权利利益 的前 20 名资金接受者的名单。他们都是共和党人。下面，15 位政治家收集了多少钱来表达他们对枪支暴力的想法和祈祷。
 

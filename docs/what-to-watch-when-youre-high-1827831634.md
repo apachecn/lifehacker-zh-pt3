@@ -6,7 +6,7 @@
 
 上次 high 看*抢*。我已经看过两次了，但我还是很困惑。我应该看看 YouTube 上来自步行者电视台 [的视频，“当你被超级烤熟的时候，你可以在 YouTube 上观看的高度精选的狗屎。”](https://www.pedestrian.tv/entertainment/youtube-baked-weed-sommelier/) 的选择包括轻信的 70 年代纪录片*灵异现象的神奇世界*，旧时的凯比·卡洛威卡通*摇钱树米妮*，以及由*辛普森一家*剧集制作的 vaporwave 音乐视频。
 
-Watch
+
 
 其他选择是完整长度的电影——行人. tv 建议音乐与之搭配，就像定制的 [*【彩虹的黑暗面】*](https://en.wikipedia.org/wiki/Dark_Side_of_the_Rainbow) 体验。(请允许我补充一下，在*保罗布拉特:商场警察 2* [中的几个瞬间将](https://www.youtube.com/watch?v=y7wyfTsIm1k) 与*月球黑暗面*完美匹配。)
 

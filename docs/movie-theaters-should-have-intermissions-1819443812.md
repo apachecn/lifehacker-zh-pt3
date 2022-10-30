@@ -6,7 +6,7 @@
 
 电影院是一场噩梦。它们很贵，很吵——但最重要的是，我不能开始和停止电影。在家里，我很少看完一部电影而不停下来吃点零食和上个厕所。仅此一点就让房屋租赁比电影院、 [、电影票或无](https://lifehacker.com/moviepass-now-offers-unlimited-movies-in-theaters-for-1797865400) 要好。有一件事会改变我的想法:剧院的幕间休息。
 
-Watch
+
 
 90 年代末， [平均电影时长超过 120 分钟](http://www.randalolson.com/2014/01/25/movies-arent-actually-much-longer-than-they-used-to-be/) ，此后再未跌破。电影院试图卖给你一大杯可乐，然后让你一动不动地坐两个小时或更久。到最后，你腰酸背痛，眼睛疲劳，无法欣赏演职员表，也无法安静地反思刚刚看到的，因为大家都在冲厕所线。
 

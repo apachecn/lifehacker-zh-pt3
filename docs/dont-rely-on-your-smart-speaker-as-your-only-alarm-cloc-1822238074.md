@@ -4,7 +4,7 @@
 
 很容易把你的 [亚马逊 Echo](https://lifehacker.com/the-best-place-for-your-echo-dot-is-actually-on-the-cei-1820916306) 或者 [Google Home](https://lifehacker.com/the-best-google-assistant-skills-to-use-with-your-googl-1792134538) 变成一个 [闹钟](https://lifehacker.com/smart-alarm-clock-wakes-you-up-at-the-best-time-so-you-1791637047) 。你可能已经在床头柜上放了一个智能音箱，而且不动一根手指(甚至不睁开眼睛)就能关掉闹钟或多睡十分钟是一个巨大的优势。
 
-Watch
+
 
 尽管有这些额外的好处，但不值得依赖这些人工智能设备中的一个来完成像让你每天早上准时醒来这样重要的事情。出问题太容易了，这正是上周五发生的事情。不是对我，而是对一个朋友。
 

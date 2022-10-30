@@ -4,7 +4,7 @@
 
 我们就不拐弯抹角了，三星 Galaxy S9 的外观本质上是[S8](https://gizmodo.com/samsung-galaxy-s8-review-the-prettiest-phone-wins-1794526975)的翻版。然而，尽管如此，三星的平衡无缺口设计似乎比以前更加周到。它不像我在 MWC 看到的许多 [新款 iPhone X 山寨手机](https://gizmodo.com/after-just-6-months-the-phone-notch-is-already-deeply-1823469447#_ga=2.179464684.998350853.1520430766-71065371.1519311125) 那样让人感到匮乏。让 S9 更好的是，三星的旗舰产品配备了目前 Android 手机中最好的胆量。没办法，我有点恋爱了。
 
-Watch
+
 
 ### 勇气可嘉
 

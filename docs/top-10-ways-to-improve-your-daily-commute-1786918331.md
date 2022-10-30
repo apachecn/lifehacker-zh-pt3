@@ -4,7 +4,7 @@
 
 你每天的通勤，无论你是开车还是跳上公交车或火车等待，都不需要浪费时间。无论你是有效地利用它，还是仅仅为了一点点安慰，这里有一些利用休息时间的好方法。
 
-Watch
+
 
 ### 10.听有声读物或播客
 
@@ -16,11 +16,7 @@ Watch
 
 如果你在早上通勤的时候可以上网，这是打开流媒体电台，体验一些新音乐的好时机。当然，有时你只是想用你知道和喜欢的音乐开始你的一天，或者真正为一天设定情绪的东西，但其他时候探索一位新的艺术家也很好， [查看 Spotify 的发现播放列表](http://lifehacker.com/spotify-discover-guides-you-to-new-music-based-on-peopl-510250469) ，尝试一些新的东西，如 [之前提到的一天播放列表](http://lifehacker.com/playlist-a-day-sends-you-a-curated-spotify-playlist-eve-1756664609) ，甚至 [查看一个全新的音乐服务](https://lifehacker.com/the-best-streaming-music-services-you-arent-using-but-476372723) ，它充满了你在其他地方听不到的音乐。现在很容易抱怨没有好的或新的东西可听，但老实说，只需一点点努力就能找到一些好的东西。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Ways to Improve Your Daily Commute](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-streaming-music-services-you-arent-using-but-476372723) [###### 你没有使用(但应该使用)的最佳流媒体音乐服务](https://lifehacker.com/the-best-streaming-music-services-you-arent-using-but-476372723) 
 
-流媒体音乐应用和发现服务多如牛毛，但即使是最好的也有…
-
-[Read more](https://lifehacker.com/the-best-streaming-music-services-you-arent-using-but-476372723)</aside>
 
 ### 8.花时间照顾自己
 
@@ -66,11 +62,7 @@ Watch
 
 *当然，如果没有放弃、缩短或放弃通勤而选择远程工作(至少在某些时候)的选择，改善通勤的方法就不完整。)通勤会损害你的整体健康——但你可能不需要我们告诉你，你已经知道了。你可能不知道的是，在某些情况下， [放弃它实际上相当于 4 万美元的加薪](https://lifehacker.com/ditching-your-commute-is-the-happiness-equivalent-of-a-1679698849) 如果你的通勤让你感到紧张，还可以节省燃料、维护、运输成本和相关的健康成本。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled Top 10 Ways to Improve Your Daily Commute](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/ditching-your-commute-is-the-happiness-equivalent-of-a-1679698849) [###### 放弃通勤相当于加薪 4 万美元](https://lifehacker.com/ditching-your-commute-is-the-happiness-equivalent-of-a-1679698849) 
 
-我们都知道花几个小时通勤很糟糕——它不仅昂贵，还会耗费…
-
-[Read more](https://lifehacker.com/ditching-your-commute-is-the-happiness-equivalent-of-a-1679698849)*</aside>
 
 *也许考虑搬到离你工作的地方更近的地方 是值得的，或者至少搬到城里通勤稍微容易一点的地方。也许你可以 [说服你的老板让你一周远程工作](http://lifehacker.com/how-can-i-convince-my-boss-to-let-me-work-from-home-5989936) 几天。，或者也许你 [可以找个离公交近的地方代替](http://lifehacker.com/autno-cuts-down-your-commute-finds-you-an-apartment-cl-5992701) ，这样至少不用开车了。无论你做什么，在大多数情况下，减少通勤时间是改善通勤状况的最佳方式。*
 

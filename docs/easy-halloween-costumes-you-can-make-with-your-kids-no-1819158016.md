@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/easy-halloween-costumes-you-can-make-with-your-kids-no-1819158016>
 
-Watch
+
 
 万圣节是许多孩子热切期待的节日，除了糖果，很大一部分乐趣是把他们最重要的服装放在一起。如果你倾向于 DIY 路线，下面是你可以和你的孩子一起制作的时尚和经典服装的组合，不管他们的年龄。
 

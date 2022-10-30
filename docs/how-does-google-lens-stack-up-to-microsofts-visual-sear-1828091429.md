@@ -4,7 +4,7 @@
 
 感觉谷歌已经在“将你的相机对准它以了解更多”技术上占据了市场一段时间，首先是通过它的翻译应用程序，让你用智能手机的相机瞄准外语标志并即时接收翻译，现在是通过 [镜头](https://www.blog.google/products/google-lens/google-lens-real-time-answers-questions-about-world-around-you/) ，它扩展了这项技术，为你提供关于你已经拍摄(或即将拍摄)的照片中物体的大量信息。
 
-Watch
+
 
 但是谷歌的图像人工智能并不是唯一的游戏。微软在 6 月份推出了针对必应 的 [视觉搜索，引起了很大的轰动，你可以通过必应搜索应用程序(](https://blogs.bing.com/search/june-2018/Visual-search-from-Bing-now-lets-you-search-what-you-see) [iOS](https://itunes.apple.com/us/app/bing-search/id345323231?mt=8) 、 [Android](https://play.google.com/store/apps/details?id=com.microsoft.bing&hl=en_US) )以及 Android 上的 [微软启动器](https://play.google.com/store/apps/details?id=com.microsoft.launcher&hl=en_US) 和 [Edge](https://www.microsoft.com/en-us/windows/microsoft-edge-mobile) 访问。
 

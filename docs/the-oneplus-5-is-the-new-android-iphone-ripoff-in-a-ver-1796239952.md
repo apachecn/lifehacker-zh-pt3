@@ -4,7 +4,7 @@
 
 当我问一加的员工，他们对人们将苹果的新设备 [与 iPhone](http://www.androidpolice.com/2017/06/06/exclusive-this-is-the-oneplus-5/) 相提并论有何看法时，他们似乎有点恼火。当然，这两款手机都采用了双摄像头设计。是的，OnePlus 5 的曲线看起来很像苹果产品。呃，好吧，这手机也很不错。有什么大不了的？
 
-Watch
+
 
 在 Gizmodo，我们是一加的忠实粉丝。自从这家小型创业公司在 2014 年发布了令人印象深刻的优秀而廉价的一加 1以来，我们一直对该公司与苹果和三星的硬件竞争的能力印象深刻，而且只用了几百人的员工。这一路上也有坎坷，比如硬件短缺和 [一次令人尴尬的失策](http://gizmodo.com/a-google-engineer-is-publicly-shaming-crappy-usb-c-cabl-1742719818) 用 USB-C 线损坏了非一加设备。但是，我们有一个很好的理由将 OnePlus 3 称为“你能买到的最好的廉价手机”OnePlus 5 是该公司价格略高的后续产品，这款手机兑现了一加成为“旗舰杀手”的承诺(有趣的事实:没有一加 4，因为 [数字 4 在中国是不吉利的](https://en.wikipedia.org/wiki/Tetraphobia) 。)
 

@@ -4,7 +4,7 @@
 
 PlayStation 4 刚刚发布了固件更新(5.50)，带来了大量伟大的功能，如 [全面的父母控制](http://manuals.playstation.net/document/en/ps4/settings/family.html) 。以下是如何为某些类型的游戏和电影设置年龄限制，在 PlayStation Store 中设置消费限制，以及使用新的家庭管理功能来控制每天的游戏时间。
 
-Watch
+
 
 你需要有自己的 PlayStation 用户 ID，这样你才能成为“家庭管理员”或系统管理员。如果你还没有的话，你可以在这里 学习如何做。然后，你打开 PS4，前往:
 

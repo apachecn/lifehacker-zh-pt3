@@ -4,7 +4,7 @@
 
 对于许多家庭来说，家庭作业时间是一种挣扎。而在 [这个数字分神的时代，](https://offspring.lifehacker.com/how-to-help-kids-concentrate-in-the-era-of-digital-dist-1823528550) 的日子只会越来越不好过。这里有一些帮助你的孩子集中注意力的窍门。如果你把它们用在自己身上，你也不会有任何评价。
 
-Watch
+
 
 ### 为全家设立“工作时间”
 

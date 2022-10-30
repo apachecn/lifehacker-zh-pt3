@@ -4,7 +4,7 @@
 
 药店里充斥着不一定能治愈我们的东西——维生素 C、顺势疗法滴剂、益生菌——但我们耸耸肩，还是买了它们，因为，嘿，它们 [伤害不了](https://lifehacker.com/the-placebo-effect-is-no-reason-to-buy-junk-1774878033) 。但是现在我们有一些具体的证据表明，如果益生菌不完全适合你试图治疗的健康状况，益生菌*可能会造成伤害。* 
 
-Watch
+
 
 [新的研究](https://aem.asm.org/content/aem/early/2018/08/27/AEM.01408-18.full.pdf?ijkey=oR5/yBXItwBkw&keytype=ref&siteid=asmjournals) 是在老鼠身上进行的，但它对我们人类来说是一个警告。研究人员正在寻找一种治疗 [*隐孢子虫*](https://www.cdc.gov/parasites/crypto/index.html) 的方法，这种寄生虫通常会导致幼儿腹泻感染。没有任何有效的药物或疫苗来对抗这种情况，所以研究人员想知道益生菌是否有帮助。他们用 Crypto 感染老鼠，并给其中一些老鼠服用市售的益生菌。(他们没有命名益生菌。)但事实证明，服用益生菌的老鼠比没有服用益生菌的老鼠感染更严重。
 

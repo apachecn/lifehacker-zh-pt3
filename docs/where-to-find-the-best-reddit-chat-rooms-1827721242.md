@@ -4,7 +4,7 @@
 
 Reddit 聊天室 [在这里](https://www.reddit.com/r/community_chat/comments/8465bl/welcome_to_rcommunity_chat/) 。如果你还没有花足够的时间在你朝九晚五的工作日浏览 [/r/aww](http://reddit.com/r/aww) ，[/r/explain like imfive](https://www.reddit.com/r/explainlikeimfive)， [/r/bestof](https://www.reddit.com/r/bestof/) ，或[/r/subreddit drama](http://SubredditDrama)，你现在可以分享你对帖子( [)和生活](https://redditblog.com/2018/07/18/what-i-learned-from-chatting-with-7000-strangers-on-the-internet/) 的想法按 F5 键刷新静态评论页面已经是去年的事情了。
 
-Watch
+
 
 也就是说，你最喜欢的 subreddit 当然有可能没有聊天室。虽然这个功能现在在网站范围内是活跃的，但版主必须通过将他们的子编辑的名字放入 [这个巨大的评论线程](https://www.reddit.com/r/modnews/comments/8wlw1f/new_mod_tools_in_subreddit_chat_custom_rate/e1wh7je/) 来选择加入。即使这样，聊天室似乎仍然向每个人开放，因为我经常去的“聊天室请求线程”中肯定有一些子主题还没有聊天室。
 

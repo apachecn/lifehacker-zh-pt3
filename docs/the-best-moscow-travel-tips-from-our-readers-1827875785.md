@@ -4,7 +4,7 @@
 
 我们得到了 [一大串参观莫斯科](https://lifehacker.com/tell-us-your-best-moscow-travel-tips-1827760053) 的小贴士，其中只有三分之二是关于川普或拿破仑的笑话。转到该主题，查看 Staff 选项卡下的最佳提示，或者查看下面的亮点。
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

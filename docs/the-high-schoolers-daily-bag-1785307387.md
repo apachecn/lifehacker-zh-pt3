@@ -4,7 +4,7 @@
 
 现在是返校季，所以这意味着是时候整理好你的背包了。读者丹尼尔·格列柯分享了他的书包就是为了做到这一点。
 
-Watch
+
 
 袋子里是一架 [图勒途中](https://www.amazon.com/Thule-EnRoute-Triumph-Daypack-Black/dp/B00R8K950Q/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-high-schoolers-daily-bag-1785307387&asc_source=&ie=UTF8&keywords=- Thule EnRoute Daypack&qid=1471284901&sr=8-1&tag=kinjalifehackerlink-20) 。这是里面装的东西:
 

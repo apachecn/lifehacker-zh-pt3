@@ -4,7 +4,7 @@
 
 出于这样或那样的原因，在每个人的生活中都有一个你必须呼叫技术支持的时刻。也许你的电源无意中被切断了，你的电缆出了故障，或者你的航班被延误了。但是你应该把愤怒和亵渎的反驳保持在最低限度，尤其是当你在等待的时候。很有可能，他们仍然能听到你。
 
-Watch
+
 
 根据[redditor ice breaker card game](https://www.reddit.com/r/LifeProTips/comments/3dagk2/lpt_when_you_are_on_hold_on_a_recorded_line_you/)的说法，你被挂起并不一定会让电话另一端的扬声器静音。电话销售人员、技术支持人员和其他人很可能仍然能听到你的咆哮和胡言乱语。一些 Reddit 评论甚至讲述了 [保险索赔变坏](https://www.reddit.com/r/LifeProTips/comments/3dagk2/lpt_when_you_are_on_hold_on_a_recorded_line_you/ct3lcvz/) 的故事
 

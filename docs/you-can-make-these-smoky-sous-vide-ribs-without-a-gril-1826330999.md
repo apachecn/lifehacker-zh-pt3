@@ -4,7 +4,7 @@
 
 作为一个住在小公寓里的人，我没有机会做很多烧烤、吸烟或其他户外烹饪。这让我很难过，因为我确实喜欢熏肉和烤肉。(烤蔬菜也很棒，但我们现在不讨论这些。)幸运的是，我刚好有一个 sous vide 装置！—可以帮助你接近低烟和慢烟的口感和味道。
 
-Watch
+
 
 也许是因为阵亡将士纪念日即将到来，也许是因为我已经看了太多遍 [这个令人难忘的视频](https://www.facebook.com/oldrow/videos/2112132912133553/?hc_ref=ARQB6IBYobdo18l2g7w8As5AOYxUgzx1rgfvVZyqHhA-ICFQ9Gs0Ay0UBJ3f2SbX6JI) 了，但我最近发现自己有心情吃排骨。(开个玩笑，我总是有心情吃排骨。)当然，我不是第一个做腌排骨的人，我也绝不会自称是，因为我不是骗子。有很多食谱，它们都有一点点不同。然而，他们中的许多人推荐使用液体烟雾。 [食品实验室把他们的一点点](https://www.seriouseats.com/recipes/2015/09/sous-vide-pork-ribs-recipe-food-lab.html) 直接加到袋子里，然后 [切夫步骤把他们的与糖蜜](https://www.chefsteps.com/activities/smokerless-smoked-ribs-incredible-barbecue-no-smoker-required) 混合，然后像上釉一样涂上。这两个看起来都是可行的选择，所以我想尝试一下。我想尝试的另一件事是添加布拉格粉，或“粉盐”腌制盐应该有助于复制吸烟者数小时后产生的“烟圈”，但我也怀疑它会带来腌制的味道。(什么都瞒不过我！)然后就是*何时*进行涂抹的问题。在分割之前？之后？中间的某个地方？当然，我想测试至少两种温度。
 

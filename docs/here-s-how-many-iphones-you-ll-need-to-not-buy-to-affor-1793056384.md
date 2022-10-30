@@ -4,7 +4,7 @@
 
 昨天， [发布了他们对](https://www.washingtonpost.com/powerpost/new-details-emerge-on-gop-plans-to-repeal-and-replace-obamacare/2017/03/06/04751e3e-028f-11e7-ad5b-d22680e18d10_story.html?utm_term=.0fe517113399) [平价医疗法案](https://www.healthcare.gov/) 的替代 。今天，众议员 Jason Chaffetz [说](http://www.cbsnews.com/news/jason-chaffetz-says-people-have-to-choose-between-new-iphone-and-health-care/) 人们可以通过选择“投资他们自己的医疗保健”而不是购买最新的 iPhone 来支付该法案更昂贵的保险费。
 
-Watch
+
 
 如果该法案成为法律 ，许多人将会得到更少的补贴来帮助他们支付保险。另一方面，我们将被允许在一个 [健康储蓄账户](http://vitals.lifehacker.com/if-you-have-high-deductible-health-insurance-consider-1789614176) 中存更多的钱。那很好，但是它不能代替保险。 [以下是](http://www.cnn.com/2017/03/07/politics/jason-chaffetz-health-care-iphones/) 查菲兹如何看待我们拿出资金进行投资:
 

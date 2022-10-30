@@ -6,7 +6,7 @@
 
 最近有很多针对航空公司的鄙视，这是有原因的。美国联合航空公司字面上的 [将一名男子拖下飞机](http://gizmodo.com/hired-goon-drags-man-off-united-flight-after-he-refuses-1794168868#_ga=2.230699030.843403878.1494610185-27973805.1434581949) 因为他们“需要”他的座位给一名员工， [踢走了一些女孩，因为她们穿着绑腿](http://jezebel.com/united-airlines-refuses-to-allow-girls-in-leggings-to-b-1793655137) 。德尔塔 [将一家四口](http://ktla.com/2017/05/04/family-kicked-off-lax-bound-delta-flight-say-they-were-told-to-give-up-2-year-old-sons-seat/) 一脚踢开，因为他们的小儿子使用了原本分配给大儿子的座位。精神航空公司因劳资纠纷 取消了一吨航班 [，滞留了数吨乘客。然后](http://jalopnik.com/spirit-airlines-is-having-a-fucked-up-week-1795090022) [美联航最近又上了新闻](https://consumerist.com/2017/05/09/united-apologizes-after-agent-cancels-passengers-ticket-for-recording-her/) 他们取消了某人的机票，因为他用电话记录了与航空公司员工的互动。再加上， [还有那整只兔子的事情](http://jalopnik.com/united-airlines-reviewing-death-of-giant-rabbit-1794650525) 。不用说，人们都很愤怒，像联合航空这样的航空公司正在遭受巨大的打击。
 
-Watch
+
 
 不过，等一下。这些故事让人们心烦意乱，大声疾呼他们作为付费乘客的权利。但是你知道这些权利实际上是什么吗？在你抱怨太多 [和抵制](http://gizmodo.com/lets-boycott-united-airlines-1794174586) 之前，也许你应该知道买机票是怎么回事。飞行员的权利*确实*存在， [多亏了交通部](https://www.transportation.gov/airconsumer/fly-rights) ，但是它们都是非常基本的。可能跟你想象的差远了。我们来分析一下，好吗？
 

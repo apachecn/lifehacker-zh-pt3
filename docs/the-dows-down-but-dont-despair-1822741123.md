@@ -4,7 +4,7 @@
 
 [道氏下跌](https://www.reuters.com/article/us-usa-markets-instant/instant-view-u-s-stock-market-crumbles-dow-erases-2018-gains-idUSKBN1FP2NA?utm_campaign=trueAnthem:+Trending+Content&utm_content=5a78ca8304d301644feebdc4&utm_medium=trueAnthem&utm_source=twitter) 。差很多。周一，该指数收盘下跌 1100 点，创下有史以来最大的单日跌幅(当然，考虑到该指数处于有史以来的最高点，这是有道理的)。在周一的最低点，它下跌了近 1600 点，自一月底以来，它已经失去了大约 2200 点。
 
-Watch
+
 
 据《华尔街日报》[](https://www.wsj.com/articles/asia-pacific-stocks-fall-to-kick-off-the-week-1517790854)*报道，这是因为华尔街担心 [通货膨胀](http://time.com/money/5132906/stock-market-crashing-what-to-do/) 升温，利率将因工资上涨而上升。虽然交易者可能过了糟糕的一天，但你现在可以放松了。*
 

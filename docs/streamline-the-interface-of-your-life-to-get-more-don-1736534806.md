@@ -4,7 +4,7 @@
 
 每当你使用智能手机或网站时，你都在使用用户界面。它旨在帮助你做你想做的事情:检查你的信息，阅读文章，查找信息，完成任务。我们日常生活中的日常事务也像一个界面。我们只是不常去想。
 
-Watch
+
 
 *本帖原载于* [*禅习*](http://zenhabits.net/ui/) *。*
 
@@ -22,11 +22,7 @@ Watch
 
 抛开脸书和其他干扰，让重要的项目成为你打开电脑时唯一显示的东西。摆脱垃圾食品，当你饿的时候，公开你的健康选择。把电视放在壁橱里，用哑铃代替。为了和你爱的人在一起，当你回家的时候，把你想和他们一起做的事情放在前门——把你想和你的孩子一起读的书，或者你想和他们一起玩的溜冰鞋，放在门里面。或者你想和你的妻子一起喝茶聊天时用的茶杯。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Streamline the &quot;Interface&quot; of Your Life to Get More Done](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/behavior-multipliers-four-factors-that-can-lead-to-suc-1674960789) [###### 行为倍增器:可以导致成功的四个因素](https://lifehacker.com/behavior-multipliers-four-factors-that-can-lead-to-suc-1674960789) 
 
-我们不断追求实现更多和更快的工作是一个陷阱。我们对目标如此着迷…
-
-[Read more](https://lifehacker.com/behavior-multipliers-four-factors-that-can-lead-to-suc-1674960789)</aside>
 
 **漂亮的设计**。当一个应用程序或网站看起来很漂亮时，它不仅仅是为了光泽和魅力。这是为了创造一种情绪，一种体验，一种快乐或平静的感觉。一个好的应用程序或网站的每一个动作都应该给你一种享受的体验，而不是一种沉闷或沮丧的感觉。同样的道理也适用于你的生活:消除干扰和混乱，找到给你的生活带来平静和快乐的方法。
 

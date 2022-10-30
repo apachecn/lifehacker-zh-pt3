@@ -4,7 +4,7 @@
 
 申请贷款会让你感觉像是踏入了雷区。在当今的经济形势下，很容易理解为什么有人会发现自己陷入财务困境。一方面，你想帮助有需要的爱人。
 
-Watch
+
 
 *本文原载于*[*learn vest*](https://www.learnvest.com/2016/06/the-right-way-to-lend-money-to-friends-and-family/)*。*
 

@@ -4,7 +4,7 @@
 
 在美国又一次大规模枪击事件的余波中，你可能想知道你能为困扰美国的枪支暴力做些什么。你可以 [捐款帮助受害者家属](https://www.gofundme.com/stonemandouglasvictimsfund) ，支持像[Everytown for Gun Safety](https://everytown.org/throwthemout/)这样的组织，在投票给某人 或自己竞选公职时，将枪支安全立法作为你的首要议题。你也可以停止支持那些从流血事件中获利的公司。
 
-Watch
+
 
 对于那些在 401(k)或 IRA 中持有共同基金或交易所交易基金的人来说，从枪支制造商手中撤资并不容易。枪支股表现良好(在大规模枪击事件后表现更好，尽管这个 [可能与](https://www.bloomberg.com/news/articles/2018-02-15/gun-sales-are-down-so-why-did-gun-stocks-just-go-up) 不同)，并被纳入许多热门基金，包括 [先锋小盘指数基金和富达价值基金](https://goodbyegunstocks.com/#faq2) 。高盛和贝莱德也持有武器和弹药的股份(根据 [今日美国](https://www.usatoday.com/story/money/personalfinance/2017/10/03/investing-you-may-own-gun-stocks-and-not-know/727964001/) 报道，先锋和贝莱德是美国户外品牌和 Sturm Ruger 的最大所有者)。“大约 35%的美国股票基金包括对枪支和弹药制造商或零售商的投资，总计超过 170 亿美元，分布在 2000 多个基金中，” [CBS 新闻报道](https://www.cbsnews.com/news/are-gun-stocks-helping-fund-your-retirement/) 。
 

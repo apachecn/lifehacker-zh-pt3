@@ -4,7 +4,7 @@
 
 孩子们天生好奇——这是一件很棒的事情。但是他们也没有掌握社交暗示。这会让父母不舒服。丹尼尔·t·威灵汉姆是 15 岁的埃斯普里特的父亲，埃斯普里特患有一种罕见的染色体疾病，称为 18 三体。她不能走路或说话。从认知上来说，她相当于一个 9 个月大的孩子。这些年来，威灵汉姆已经看到同样的事情一次又一次地发生:一个妈妈或爸爸会发现他们的孩子盯着 Esprit，并立即看起来很尴尬。他们可能会试图分散孩子的注意力，或者把他们带走。也许他们会在听不到的地方告诫说，“盯着看不好。”
 
-Watch
+
 
 威灵汉姆给这些善意父母的建议是:不要再这样做了。这比你意识到的更伤人。虽然他注意到每个情况都是不同的，但他分享了你和你的孩子如何更好地与残疾儿童及其家庭互动。
 
@@ -16,11 +16,7 @@ Watch
 
 通常，孩子们会问威灵汉姆和他的妻子，“她不会说话吗？”或者“她不能走路吗？”或者有时，他们会问 Esprit 的胸部有什么(她在腹部戴着矫正器，他们喜欢叫她“龟壳”)或者她是否困了(她的眼睛有一个额外的褶皱)。威灵汉姆欢迎这种好奇心。“对我们来说，这些都是老掉牙的东西，一点也不会困扰我们，”他说。“这是我们教育孩子和公众了解残疾孩子的一种方式。Esprit 喜欢让孩子们接近她。”
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Do This When Your Kid Stares at People With Disabilities](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-say-to-little-kids-instead-of-say-sorry-1819288365) [###### 对小孩子说什么而不是“说对不起”](https://lifehacker.com/what-to-say-to-little-kids-instead-of-say-sorry-1819288365) 
 
-几年前，当我为我的女儿参观各种幼儿园时，我参观了一个我有…
-
-[Read more](https://lifehacker.com/what-to-say-to-little-kids-instead-of-say-sorry-1819288365)</aside>
 
 ### 邀请家人参加您的活动
 

@@ -4,7 +4,7 @@
 
 找工作是有压力的，尤其是当你考虑在各种工作网站之间切换时，你必须寻找合适的工作(更不用说所有的服务员 [简历调整](https://lifehacker.com/what-it-really-means-to-tailor-your-resume-1779491213) )。为了提供帮助，谷歌更新了其最近推出的 [谷歌求职服务](https://lifehacker.com/google-for-jobs-could-save-you-time-on-your-next-job-se-1796266140) ，允许求职者收集更多关于潜在工作的信息，并帮助他们缩小潜在职业机会的范围，而不必处理一个又一个标签的相同列表。
 
-Watch
+
 
 求职服务被集成到谷歌的搜索引擎中，所以你可以像搜索名人年龄一样无缝地寻找演出，或者根据你的症状(只是感冒)寻找晚期疾病。它还试图填补近 85%的招聘信息中的一个明显遗漏，根据谷歌的说法 [:实际工资。谷歌试图纠正这一错误，它根据职位和 Glassdoor、PayScale 和 LinkedIn 等网站报告的薪资范围，列出了声明的或估计的薪资。](https://blog.google/products/search/new-tools-make-your-job-search-simpler/)
 

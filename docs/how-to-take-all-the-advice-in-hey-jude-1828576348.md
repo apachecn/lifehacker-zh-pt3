@@ -6,7 +6,7 @@
 
 甲壳虫乐队的单曲《嘿，裘德》是该乐队持续时间最长的热门单曲， [周日迎来 50 岁生日，](https://www.smithsonianmag.com/smithsonian-institution/50-hey-jude-still-makes-everything-better-better-better-180970004/) 。保罗·麦卡特尼是为约翰的儿子朱利安·列侬写的，内容是关于处理约翰与小野洋子的婚外情以及与朱尔斯的母亲辛西娅的分居。但是保罗的建议足够宽泛，每个粉丝都能从中读出自己的意思。(作为约翰，约翰觉得这首歌实际上是为他而唱的。)以下是我们对它的解读，以及 Lifehacker 关于如何改进它的相关帖子。
 
-Watch
+
 
 ### 不要让它变坏
 

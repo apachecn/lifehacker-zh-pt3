@@ -4,7 +4,7 @@
 
 乔恩是一名 20 多岁的工程师，他想要一辆能充分利用加州峡谷的迷人汽车，但他不确定是应该挥霍一笔买一辆保时捷，还是买一辆更合理的安全型汽车。他应该买什么车？
 
-Watch
+
 
 *欢迎来到你应该买什么车？这是 Jalopnik 的一个新功能，我们为真实的人提供关于购买汽车的真实建议。你想让我们帮你找辆车吗？* [*在我们的表单上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit)
 

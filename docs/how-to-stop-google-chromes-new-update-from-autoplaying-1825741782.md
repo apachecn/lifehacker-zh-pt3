@@ -4,7 +4,7 @@
 
 所以你刚刚安装了谷歌 Chrome，或者你已经清空了你的缓存和历史记录，因为你想在你的电脑上节省一些空间或者修复一些涉及 cookies 的网站问题。你打开你最喜欢的网站，突然，一个声音从你的扬声器里响起。可怕的自动播放视频回来了。
 
-Watch
+
 
 我们 [之前报道过](https://lifehacker.com/mute-most-autoplay-videos-with-the-latest-chrome-update-1825354497)Chrome 66 应该默认静音所有自动播放的视频，直到你与一个网站接触。触发这种“接触”并不需要太多时间，正如 [谷歌写的](https://developers.google.com/web/updates/2017/09/autoplay-policy-changes) :
 

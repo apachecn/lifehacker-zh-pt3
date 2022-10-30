@@ -4,7 +4,7 @@
 
 如果你还没有申报你的 2017 年税收，在你遭遇 [未申报费用](https://www.irs.gov/newsroom/missed-the-tax-deadline-and-owe-tax-file-by-june-14-to-avoid-higher-late-filing-penalty) 之前，你还有一天的时间去申报。
 
-Watch
+
 
 这项费用不同于对你拖欠税款的罚款，后者是你每月未付税款的 0.5%，外加利息。未申报费是“通常每个月或一个月的一部分纳税申报表是晚了百分之五。”一旦你在到期日(4 月 18 日)后 60 天没有申报，最低费用是 210 美元或所欠税款的 100%，以较少者为准。
 

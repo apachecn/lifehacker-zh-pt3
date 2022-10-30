@@ -4,7 +4,7 @@
 
 [*《纽约时报》*](https://www.nytimes.com/2018/06/25/your-money/1040-income-tax-postcard.html) 拿到了一份新的明信片大小的标准 1040 表格草案，这是共和党人长期以来梦寐以求的，但这并不是像 [众议院议长保罗·瑞安](https://www.speaker.gov/general/file-your-taxes-form-size-postcard) 和 [财政部长史蒂夫·姆努钦](http://thehill.com/policy/finance/393323-mnuchin-tax-filing-postcard-to-be-released-next-week) 这样的人所承诺的税法简化。
 
-Watch
+
 
 这是因为，正如《T4 时报》所报道的那样，虽然新表格“从以前的表格中删除了超过一半的 78 行项目”，但“它将为一些纳税人节省一点时间，但可能会为数百万其他人增加更多的文书工作。”事实证明，为了获得像学生贷款利息或教学用品这样受欢迎的扣除，你需要填写六个附加表格中的一个，并将它们附在你的“明信片”上。有些人可能会认为这让事情变得复杂了。
 

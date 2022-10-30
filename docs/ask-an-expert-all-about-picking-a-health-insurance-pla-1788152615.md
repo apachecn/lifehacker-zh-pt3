@@ -4,7 +4,7 @@
 
 11 月快到了， [开放招生](https://www.policygenius.com/health-insurance/learn/obamacare-enrollment/) 也快到了。这意味着是时候评估你的医疗保健计划并考虑你的选择了，但了解不同保险单的细节可能会感到不知所措。
 
-Watch
+
 
 今年这里再次提供一些指导的是詹妮弗·菲茨杰拉德，的首席执行官。Jennifer 创建了 PolicyGenius，以便更容易地找到适合您的需求、医疗保健或其他需求的保险。无论您是否 [不知道 HMO 和 PPO](https://www.policygenius.com/health-insurance/learn/health-insurance-basics-and-guide/) 之间的区别，或者您已经在用放大镜看细则，PolicyGenius 团队都可以帮助解释您需要知道的内容。
 

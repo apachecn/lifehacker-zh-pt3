@@ -4,7 +4,7 @@
 
 当父母让他们的孩子看 YouTube 视频时，通常不是因为他们处于放松的精神状态，想给孩子提供一些丰富的可教的时刻。很多内容基本上是 [【蹒跚学步的裂缝】](http://www.scarymommy.com/youtube-surprise-toy-reviews-toddler-crack/) 一系列狂躁、无意识的剪辑 [，让小观众在爸爸妈妈需要休息的时候疯狂地](https://lifehacker.com/why-your-kids-brain-is-hooked-on-surprise-egg-and-slime-1797278479) (和幸福地安静)。
 
-Watch
+
 
 有报道称，暴力、性或令人不安的内容伪装成合法的儿童视频(见，或实际上是*不要* : [粉红猪小妹吃她的父亲](https://www.youtube.com/watch?v=f70ymlTt8ek) ， [喝漂白剂](https://www.youtube.com/watch?v=owm0ZgAVEWU) ，或 [挥舞着刀和枪](https://offspring.lifehacker.com/how-to-protect-your-kids-from-disturbing-fake-peppa-pi-1797768331) )。我们已经列出了一些 [方法来保护你的孩子](https://offspring.lifehacker.com/how-to-protect-your-kids-from-disturbing-fake-peppa-pi-1797768331#_ga=2.115996622.919070749.1509938319-21963309.1506530761) 不要登陆那种东西，YouTube Kids 刚刚 [添加了一些全新的家长控制](https://offspring.lifehacker.com/youtube-kids-gets-redesigned-to-help-parents-choose-mor-1820118660#_ga=2.183054446.919070749.1509938319-21963309.1506530761) ，但是在 [中，作者 James Bridle 认为我们可能都忽略了更重要的一点。那就是，孩子们正被有意地、系统地通过内容加以利用，我们没有人知道具体是如何利用的。](https://medium.com/@jamesbridle/something-is-wrong-on-the-internet-c39c471271d2)
 

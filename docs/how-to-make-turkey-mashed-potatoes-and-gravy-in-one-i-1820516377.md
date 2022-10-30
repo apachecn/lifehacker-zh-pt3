@@ -4,7 +4,7 @@
 
 [感恩节晚餐是一整场制作](https://skillet.lifehacker.com/your-complete-timeline-for-getting-thanksgiving-dinner-1820414610) 但是，如果你 [只为几个人服务](https://lifehacker.com/how-to-make-thanksgiving-dinner-for-a-very-small-crowd-1820310548) ，或者只是想品尝一些节日风味，比如说，在七月，你可以用你的速溶锅在一个小时内做出一顿优雅、美味的火鸡、土豆泥和肉汤。
 
-Watch
+
 
 一顿“丰盛的感恩节大餐”缺少了什么成分吗？是的，但是你可以随时补充一些填料或者你选择的砂锅。即使你多做了两道配菜，你也已经减少了烹饪器皿的数量，腾出了相当大的炉灶空间。
 

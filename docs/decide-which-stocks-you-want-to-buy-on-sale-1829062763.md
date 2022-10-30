@@ -4,7 +4,7 @@
 
 我们先从一个已知的事实开始:你无法把握市场时机。但这并不意味着你不能在市场不可避免地再次下跌之前做一些积极主动的规划。
 
-Watch
+
 
 我这么说是什么意思？除了拿走你的投资和退休计划 的 [股票，或许还有](https://twocents.lifehacker.com/what-to-do-before-the-next-market-crash-1823562387) [的](https://twocents.lifehacker.com/prioritize-building-up-your-cash-reserves-1828655744) 更多的现金，如果你真的*担心，考虑一下在“大甩卖”期间你想要买进哪些股票即股价下跌时。*
 

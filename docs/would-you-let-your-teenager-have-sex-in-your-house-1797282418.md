@@ -4,7 +4,7 @@
 
 啊，夏天——炎热、荷尔蒙和无聊导致糟糕的决定。本月， [四名青少年因涉嫌在马萨诸塞州科德角的海滩上发生性行为而被捕](http://www.dailymail.co.uk/news/article-4673562/Four-teens-sex-sea-dozens-cheered-beach.html) 。太阳出来了，岸边挤满了不期望看到那种景色的家庭。据新闻报道，围观者称公开展示的 [【恶心】](http://www.capecodtimes.com/news/20170705/police-arrest-teens-after-report-of-sex-at-dennis-beach) 。
 
-Watch
+
 
 但是当听到这个故事时，一些青少年的父母想知道，嗯，如果那些年轻的男女只是没有一个合理的地方来忙碌呢？
 

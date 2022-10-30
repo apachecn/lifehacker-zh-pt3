@@ -4,7 +4,7 @@
 
 马克·古根海姆是一位成功的节目主持人和电视制片人，但他更是一位作家。他的作品跨越多种媒介——从电视到电影，再到小说和漫画。他甚至为电子游戏写歌。
 
-Watch
+
 
 他目前是 [【箭】](http://www.cwtv.com/shows/arrow/)[【CW】](http://www.cwtv.com/)以及 [DC 的《明日传奇》](http://www.cwtv.com/shows/dcs-legends-of-tomorrow/) 的合作者。(做一名“节目主持人”类似于做一部电影的导演——他们拥有广泛的创意控制权，管理项目的方方面面。)但他的工作是广泛和多样的；他撰写了 2013 年的电影 [珀西·杰克森:怪兽之海](http://www.imdb.com/title/tt1854564/) ，为 [绿灯侠](http://www.imdb.com/title/tt1133985/) 撰写剧本，为 DC 漫画和漫威撰写剧本，目前正在撰写神盾局 漫画系列的 [特工。与此同时，他仍然经营着两个电视节目。他当然知道如何把事情做好。](http://marvel.com/comics/series/20607/agents_of_shield_2016_-_present)
 

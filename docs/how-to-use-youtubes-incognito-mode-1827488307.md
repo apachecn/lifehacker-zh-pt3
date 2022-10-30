@@ -4,7 +4,7 @@
 
 Android: 有时候你想在 YouTube 上看一段视频，但不想让它出现在你的历史中。对于那些需要卧底的时刻，YouTube 最近增加了一个隐姓埋名模式，可以更容易地不留痕迹地观看视频。
 
-Watch
+
 
 该功能目前仅适用于 Android，还不知道它是否或何时会应用于 iOS 版本。(如果你真的需要在不被 YouTube 监控的情况下观看视频，你有 [几个备选选项](https://lifehacker.com/how-to-go-incognito-in-youtube-right-now-1826042848) 。)
 

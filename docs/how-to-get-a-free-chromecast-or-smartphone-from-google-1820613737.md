@@ -4,7 +4,7 @@
 
 谷歌 [取消](https://lifehacker.com/googles-project-fi-cell-phone-service-is-now-available-1763329453) [项目 Fi](https://lifehacker.com/how-to-set-up-google-project-fi-on-your-pixel-2-1819980061) 的 推荐要求已经有一段时间了，向任何人开放其简单廉价的手机服务计划——假设你有合适的智能手机。但在接下来的几周里，该公司正在推动其客户再次传播这一信息，并提供一些科技产品作为回报。
 
-Watch
+
 
 你可以利用 [Project Fi 的假日推荐计划](https://www.blog.google/products/project-fi/fi-it-forward/) 赢取一部 [Chromecast](https://lifehacker.com/four-things-you-didnt-know-you-can-do-with-your-chromec-1676260180) 甚至一部新的智能手机。它是这样工作的。
 

@@ -4,7 +4,7 @@
 
 搬进没有洗碗机的公寓让我明白了尽可能少用餐具的重要性。我能用一个烹饪器皿做出的任何东西都是非常珍贵的，但是单锅烹饪比把所有东西都倒进砂锅里更重要。
 
-Watch
+
 
 幸运的是，库克的国家的 [*一锅奇迹*](https://www.amazon.com/dp/1940352843?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/five-surprising-meals-you-didnt-know-you-could-make-in-1790072203&asc_source=&linkCode=ogi&psc=1&smid=AFG68RIJNM3LY&tag=kinjalifehackerlink-20&th=1) (现在可以预购，12 月 27 日上市)是一个惊人的全餐集合，可以在一个煎锅、烤盘、砂锅、烤盘或荷兰烤箱中准备。除了食谱之外，这本书还提供了一些关于如何制作一锅饭菜的智慧之言，让各种食材的独特风味散发出来。
 

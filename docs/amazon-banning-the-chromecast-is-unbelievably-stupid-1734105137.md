@@ -4,7 +4,7 @@
 
 从本月底开始， [亚马逊将不再销售 Chromecast 或 Apple TV](http://gizmodo.com/amazon-just-banned-the-sale-of-google-chromecast-and-ap-1734050473) 。这是他们的权利。但这也是一长串愚蠢的反消费者行动中的又一个，现在已经从令人讨厌跨越到彻头彻尾的无聊。
 
-Watch
+
 
 ### **亚马逊与谷歌之战如何开始**
 

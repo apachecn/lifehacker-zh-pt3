@@ -4,7 +4,7 @@
 
 如果你目前正在参加政府援助项目，比如贫困家庭临时援助(TANF)，你现在可以以每月 6 美元的价格获得完整的亚马逊 Prime 会员资格。
 
-Watch
+
 
 亚马逊在新闻稿 中宣布了新举措 [，表达了他们希望每个人都能够访问 Prime shipping、价格和媒体流。下面是](http://phx.corporate-ir.net/phoenix.zhtml?c=176060&p=irol-newsArticle&ID=2279027) [已经直播的节目](https://www.amazon.com/l/16256994011?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-a-major-discount-on-amazon-prime-if-youre-on-govern-1795863470&asc_source=&tag=kinjalifehackerlink-20) 的工作原理:
 

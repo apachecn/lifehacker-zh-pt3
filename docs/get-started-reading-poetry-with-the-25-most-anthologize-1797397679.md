@@ -4,7 +4,7 @@
 
 进入诗歌领域可能是一次令人生畏的经历，但是富有表现力的写作的 [好处是众多的](http://lifehacker.com/the-psychological-benefits-of-writing-regularly-1783693547) 。如果你不熟悉这种体裁，你可能会花时间分析那些不被认为是必读的诗歌。但是如果你想轻松地接触到大师们，Lithub 的编辑艾米丽·坦普尔已经 [编辑了最受欢迎的诗歌](http://lithub.com/the-most-anthologized-poems-of-the-last-25-years/) ，基本上创造了英语诗歌的最大热门。
 
-Watch
+
 
 坦普尔收集了过去 25 年出版的 20 本诗集，从中寻找最受欢迎的作品。为了缩小名单，她查阅了收集英语诗歌的选集，只收录了出现三次或三次以上的诗歌。
 

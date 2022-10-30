@@ -4,7 +4,7 @@
 
 苹果的 [家庭应用](https://gizmodo.com/apple-joins-the-smarthome-wars-with-a-siri-powered-app-1781900675) 可以让你轻松地从 iPhone 上控制你所有的智能家居技术，但因为这是我们正在处理的苹果，它也有一些限制。最大的缺点是，Home 只能与一小部分 [HomeKit](https://lifehacker.com/apple-releases-tvos-10-with-smarter-siri-homekit-suppo-1786590814) 认可的智能灯、开关和其他小工具一起工作。
 
-Watch
+
 
 这通常意味着要支付额外的费用才能留在苹果的生态系统中，但有一种方法可以绕过 HomeKit 的限制。只需要一个叫做 Homebridge 的程序和一点编码。
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-learn-and-type-in-morse-code-on-your-iphone-1827556446>
 
-Watch
+
 
 多亏了一个新的 Gboard 键盘功能， [你现在可以在 iOS](https://experiments.withgoogle.com/collection/morse) 上通过莫尔斯电码进行交流——就像自 5 月以来一直在打点和飞奔的 Android 用户一样。不知道莫尔斯电码？谷歌表示，如果你试用该公司新的打字训练器，它可以在一个小时内训练你的语言。
 

@@ -4,7 +4,7 @@
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将通过椰子汁为我们的饮料添加水合作用和一点热带风情。
 
-Watch
+
 
 尽管在大多数情况下， [椰子汁并不比白开水](https://vitals.lifehacker.com/coconut-water-doesn-t-hydrate-you-better-than-water-dur-1792770031) 更能给你补水，但它仍然让我*觉得*我变得稍微健康了一些，有时候控制你的感情就是成功的一半。我也喜欢它与朗姆酒搭配时的味道，尤其是当涉及到其他水果和热带风味时。
 

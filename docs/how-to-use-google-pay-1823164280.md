@@ -4,7 +4,7 @@
 
 从 [Apple Pay](https://lifehacker.com/how-to-get-started-with-apples-new-apple-pay-cash-1821168610) 第一次推出到现在已经四年了， [Google 的回应](https://lifehacker.com/google-wallet-gets-new-simpler-app-likely-preparing-f-1729775114) 一直有点乱。现在，该公司终于将其所有不同的应用和服务简化为一个名为 Google Pay 的单一产品，该产品将于今天在美国和英国发布
 
-Watch
+
 
 下面是你需要知道的关于切换到新应用程序以及如何使用它的信息。
 

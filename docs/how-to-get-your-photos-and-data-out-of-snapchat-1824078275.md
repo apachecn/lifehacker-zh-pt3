@@ -4,7 +4,7 @@
 
 不完全是 [#deleteFacebook](http://www.businessinsider.com/facebook-free-services-deletefacebook-2018-3) ，但是也有一个 [的成长运动](https://lifehacker.com/its-time-to-stop-using-snapchat-unless-youre-a-teen-1821919274) 把 Snapchat 从智能手机上抹掉。该公司的 [反响不佳的重新设计](https://lifehacker.com/how-to-revert-the-snapchat-app-back-to-the-pre-redesign-1822904222) ，加上最近出现在 app 中的一个 [攻击性广告](https://www.cnn.com/2018/03/15/entertainment/rihanna-snapchat/index.html) ，已经推动更多人完全放弃 Snapchat 包括 [你最喜欢的名人](https://twitter.com/chrissyteigen/status/977582927398584320) 。
 
-Watch
+
 
 但在停用你的帐户之前，你需要首先从 Snapchat 中尽可能多地回收数据。社交网络并不能让导出你的照片、视频和联系人变得很容易，但这并不是不可能的。以下是你需要知道的。
 

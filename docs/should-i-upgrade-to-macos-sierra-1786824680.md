@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 [Sierra 今天推出了一些新功能](https://lifehacker.com/all-the-new-stuff-in-macos-sierra-1786817117) ，比如 Siri，看起来相当棒。当然，这似乎是一个足够小的升级，但这并不意味着事情不会变坏。你一直在用，你觉得呢？我应该升级，还是等待？
 
-Watch
+
 
 真诚地，
 内华达山脉升级

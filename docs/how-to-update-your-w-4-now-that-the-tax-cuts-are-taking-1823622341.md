@@ -4,7 +4,7 @@
 
 过去一个月左右，你可能已经注意到由于最近的减税，工资略有上升。正如我们之前写的，这意味着你要检查你的雇主是否从你的薪水中扣下了正确的金额。现在，这更容易做到，因为美国国税局发布了其 [预扣计算器](http://time.com/money/5186230/irs-tax-tool-2018-federal-withholding/) 的新版本。
 
-Watch
+
 
 根据 [税收政策中心](http://www.taxpolicycenter.org/publications/distributional-analysis-conference-agreement-tax-cuts-and-jobs-act/full) 的数据，与 2017 年相比，中等收入者今年将多拿 900 美元。虽然你的雇主应该相应地调整你的扣缴，但安全总比后悔好。因为要么你会欠别人钱，没人想要，要么你现在会有更多。
 

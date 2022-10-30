@@ -4,7 +4,7 @@
 
 所以，你是一个自由职业者，早上 [离开他们的房子](https://lifehacker.com/flee-your-house-in-the-morning-before-working-from-home-1823153574) ，向你的室友解释你 [需要完成工作](https://lifehacker.com/how-to-explain-to-the-people-you-live-with-that-youre-w-1823147921) 并学习什么时候 [实际上*停止*工作](https://lifehacker.com/structure-your-work-from-home-day-with-these-routines-1823158185) 。现在，是时候让你的自由职业者的财务井然有序了。
 
-Watch
+
 
 预订午餐，放松一下，计划一下你下午的淋浴。这是在家工作周！无论你是在家工作一天还是整个职业生涯，Lifehacker 都会从我们的沙发和当地的咖啡店为你提供保持生产力、平衡和理智的建议。
 

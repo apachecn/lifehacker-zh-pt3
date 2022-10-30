@@ -4,7 +4,7 @@
 
 Duolingo 终于在谷歌 Play 商店推出了 Tinycards，这款应用可以让你制作自己的数字抽认卡。
 
-Watch
+
 
 Tinycards 自 2016 年起才在 iOS 上可用(苹果将 Tinycards 评为 2016 年 10 大最佳应用之一)，但 [最近在今年 3 月](https://lifehacker.com/tiny-cards-duolingos-learning-flashcards-come-to-the-1792897658) 才在网络上可用。现在，Duolingo 的抽认卡学习方法几乎可以在任何设备上使用。该应用程序使用与 Duolingo 语言学习应用程序相同的游戏机制和自适应学习技术，通过智能算法、关卡解锁和通过定期学习保持充满的力量栏让你保持警觉。
 

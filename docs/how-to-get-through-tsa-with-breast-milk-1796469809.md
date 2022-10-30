@@ -4,7 +4,7 @@
 
 带着母乳通过机场安检是完全合法的，即使是没有婴儿跟随的 [，](https://www.tsa.gov/travel/special-procedures/traveling-children) 也是如此，但在现实生活中，当你只是一个站在 TSA 代理人面前的家长，要求他让你带着冰冷的人类食物包上飞机时，这些规则并不总是适用。
 
-Watch
+
 
 上周，一位科罗拉多州的母亲描述了她给 3 个月大的儿子 [喝的牛奶在被检测出爆炸物并引发警报后，如何被美国运输安全管理局扔出](http://www.abc2news.com/news/national/tsa-tosses-englewood-moms-breast-milk-at-dia-security-check-point) 。虽然这些类型的故事似乎已经变得不那么常见，但也许在奥巴马总统去年签署了以培训为重点的 [奶瓶和母乳喂养设备筛查(BABES)法案](http://www.usbreastfeeding.org/babes-act) 之后，打嗝和拦路抢劫时有发生。朋友们告诉我他们自己在检查站的故事——当他们装着液体黄金的容器被困惑的安全人员打开、摸索、嗅来嗅去时，他们感到害怕。一位母亲被要求尝一口这种东西，以证明它是无害的。另一个人惊恐地看着她的母乳从 x 光机里漏出来。(“又脏又臭，”她回忆道。)
 

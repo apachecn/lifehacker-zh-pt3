@@ -4,7 +4,7 @@
 
 大卫是一个长途通勤的旅行推销员，但他的公司将为他的新车买单。问题是他很高，需要一些舒适的东西，但不能超过 35，000 美元的价格上限。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link) *)*
 

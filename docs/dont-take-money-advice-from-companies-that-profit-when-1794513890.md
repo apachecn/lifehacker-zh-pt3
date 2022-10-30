@@ -4,7 +4,7 @@
 
 接受贷款服务商的金钱建议有点像接受烟草公司的健康建议。这个建议可能是有效的，但可能有更好的来源。也就是说，不从你的坏习惯中获利。
 
-Watch
+
 
 消费者金融保护局(CFPB) [最近起诉学生贷款服务公司 Navient](https://lifehacker.com/what-to-do-about-the-worsening-student-loan-debt-situat-1794054841) ，指控其有一些不正当的商业行为，如误用学生贷款付款和向征信机构误报信息。如果这还不够糟糕的话，据报道，他们 [还用有问题的建议](https://www.nytimes.com/2017/04/09/business/dealbook/accusations-navient.html) 误导借款人关于他们的救济选择。
 

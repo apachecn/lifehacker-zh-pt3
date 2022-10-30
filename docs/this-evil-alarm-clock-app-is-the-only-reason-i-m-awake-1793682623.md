@@ -4,7 +4,7 @@
 
 我相信我的梦想。说我在梦到了机场，或者找到了我没有复习的期末考试的房间。当闹钟响起时，我会暂停它:我正在执行一个非常重要的任务，不能被打扰。这就是为什么我需要这个邪恶的，可怕的闹钟应用程序。
 
-Watch
+
 
 叫 [我唤醒不了](http://kogcreations.com/) ，有 [安卓](https://play.google.com/store/apps/details?id=com.kog.alarmclock&hl=en) 或 [iOS](https://itunes.apple.com/us/app/i-cant-wake-up!-alarm-clock/id733590762?mt=8&ign-mpt=uo%3D4) 可用。取决于你如何设置，它可以是任何东西，从你现在的闹钟的稍微更有效的版本到把你从床上拖起来、向你身上泼一桶冷水、把你锁在卧室外面的数字等价物。
 

@@ -6,7 +6,7 @@
 
 [OS X El Capitan 在这里](https://itunes.apple.com/app/os-x-yosemite/id1018109117?mt=12) ，当你等待下载完成的时候，你也可以了解一下它的新特性。让我们来看看 OS X Yosemite 以来所有的新东西和一些变化。
 
-Watch
+
 
 ### 全屏模式、拆分视图和拆分视图调整
 

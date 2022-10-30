@@ -4,7 +4,7 @@
 
 Snapchat 的正在推出其 [有史以来最大的重新设计](https://gizmodo.com/here-is-snapchats-disruptive-new-redesign-1820833570) ，但周二该公司宣布了另一项重大更新，可能会改变人们使用其应用的方式。从今天开始，你可以在 Snapchat 之外分享某些故事(Snapchat 称之为其消失的视频和图片)。
 
-Watch
+
 
 没错，就算是 [删除 app](https://lifehacker.com/its-time-to-stop-using-snapchat-unless-youre-a-teen-1821919274) 也不能再让 Snapchat 远离了。以下是新功能的工作原理和您需要了解的内容。
 

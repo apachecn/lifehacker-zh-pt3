@@ -4,7 +4,7 @@
 
 在过去的几年里，合法的大麻已经成为价值 97 亿美元的产业，预计到 2021 年 将达到近[【250 亿美元】。大麻现在在 8 个州和哥伦比亚特区用于娱乐，在](https://arcviewgroup.com/research/free-executive-summary/) [和 29 个州和 DC](http://www.governing.com/gov-data/state-marijuana-laws-map-medical-recreational.html) 用于药用是合法的。 [大麻股票指数](https://www.newcannabisventures.com/cannabis-stock-index/) (是的，存在)在 2016 年上涨了 88.8%，在 2017 年上涨了 91.8%。
 
-Watch
+
 
 无论是为了支持事业，赚钱，还是两者兼而有之，我们中的许多人现在都想把钱投到我们的玛丽·简所在的地方。下面，如果你想在你的投资组合中增加一些绿色植物，你应该知道些什么。
 

@@ -4,7 +4,7 @@
 
 选择专业可能感觉就像选择了你的整个人生道路。或者它可能感觉像一个占位符，而你想出你的狗屎。我们问了一些我们认识的最成功的人，Lifehacker 的 [我是如何工作的](https://lifehacker.com/c/how-i-work) 栏目的往期嘉宾，他们的专业是什么。他们告诉我们他们的专业是如何影响他们的职业生涯的——或者是否根本不重要。
 
-Watch
+
 
 [*改版路径*](https://lifehacker.com/im-revision-path-host-maurice-cherry-and-this-is-how-i-1826916236) 设计师兼主持人莫里斯·切里:
 

@@ -4,7 +4,7 @@
 
 在有点过早地宣布支持 Airplay 2 之后，Sonos 终于更新了一些扬声器，以支持 Airplay 2。这意味着你的 iOS 设备现在可以为更多的智能扬声器带来音乐管理和多房间音频功能， [，包括最新的 Beam soundbar](https://gizmodo.com/sonos-beam-is-a-great-smart-soundbar-for-not-too-much-m-1827151416) 。有了 Sonos 扬声器上的 Airplay 2，现在你可以告诉 Siri 调低音量，而不是用你那些笨拙的手指来做。
 
-Watch
+
 
 Sonos One、Beam、Playbase 和第二代 Play:5 都将支持 Airplay 2，这意味着你可以将它们用作 iOS 设备的扬声器，即使是组合在一起。您还可以使用 Siri 控制音频，并将音频从 iOS 应用程序发送到 Sonos 扬声器。
 

@@ -4,7 +4,7 @@
 
 本周，谷歌发布了一款语音控制的智能设备 Google Home，以与出人意料地受欢迎的亚马逊 Echo 竞争。这两款设备都可以播放音乐，控制灯光，只用声音回答问题，但我们想看看谷歌的新设备如何对抗现有的竞争。
 
-Watch
+
 
 ### **竞争者**
 
@@ -59,11 +59,7 @@ Google Home 和 Amazon Echo 都能从房间的另一端听到你的语音指令�
 
 鉴于 Chromecast [广受欢迎](http://www.recode.net/2016/6/10/11904942/google-chromecast-apple-tv-sales) (可能比任何其他智能家居设备都受欢迎)，很难确定哪一个整体更好。一方面，Echo 现在比 Google Home 支持更多的 T4 设备。另一方面，你拥有 Chromecast 的几率比任何智能家居设备都高。在谷歌赶上来之前，你应该看看你家的具体需求。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Home Voice Assistant Showdown: Amazon Echo vs. Google Home](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/four-things-you-didnt-know-you-can-do-with-your-chromec-1676260180) [###### 你不知道你可以用 Chromecast 做的四件事](https://lifehacker.com/four-things-you-didnt-know-you-can-do-with-your-chromec-1676260180) 
 
-谷歌的 Chromecast 是在你的客厅播放任何内容的好方法，但是掌握它的…
-
-[Read more](https://lifehacker.com/four-things-you-didnt-know-you-can-do-with-your-chromec-1676260180)</aside>
 
 ### **两款设备都支持 IFTTT，这是您真正需要的第三方支持**
 

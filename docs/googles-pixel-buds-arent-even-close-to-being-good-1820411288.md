@@ -4,7 +4,7 @@
 
 总有一些关于 [像素芽](https://store.google.com/us/product/google_pixel_buds?hl=en-US) 的东西。在苹果发布 AirPods 整整一年后，谷歌发布了智能无线耳机。但是 Pixel Buds 不完全是无线的，也不完全是智能的。事实上，在使用该产品几天后，我准备说:像素芽很糟糕。
 
-Watch
+
 
 像素芽很烂，但不应该。
 

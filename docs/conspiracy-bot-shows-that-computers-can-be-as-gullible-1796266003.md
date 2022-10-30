@@ -4,7 +4,7 @@
 
 计算机现在相信阴谋论。 [*新调查*的 Francis Tseng 训练了一个机器人](https://thenewinquiry.com/you-probably-think-this-bot-is-about-you/) 来识别照片中的模式，并在相似的照片之间画出链接，形成那种在*国土*剧集的最后一幕或 Reddit 的首页看到的阴谋论图。这是一个提醒我们人类容易受骗的可爱把戏(嘿，也许那些照片*和*匹配！)，而且我们训练出来替我们思考的机器最终也会同样容易受骗。
 
-Watch
+
 
 人类 [格外擅长模式识别](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4141622/) 。这对于学习和处理不同的环境来说很棒，但它可能会给我们带来麻烦: [一些研究](https://www.psychologytoday.com/blog/naturally-selected/201412/why-our-brains-are-hardwired-conspiracy-theories) 将模式识别与阴谋论的信仰联系起来。( [有些不](https://arstechnica.com/science/2015/10/do-conspiracy-theorists-see-more-patterns-in-randomness-apparently-not/) ，但那是他们希望你认为的。)
 

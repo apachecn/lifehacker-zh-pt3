@@ -4,7 +4,7 @@
 
 Play Store 中有超过 200 万个应用程序，Android 是世界上最大的应用程序商店之一。很快它们甚至会成为你最喜欢的 Chromebooks 上的。在今年的年度 Lifehacker Pack 中，我们挑选了你可能需要的每一类应用程序的必备下载。
 
-Watch
+
 
 ***life hacker Pack**是我们最喜欢的平台上最重要的应用程序的年度快照。对于我们不断更新的所有最佳应用目录，请务必将我们的* [*安卓应用目录*](http://lifehacker.com/the-lifehacker-app-directory-android-5825401) *加入书签。*
 

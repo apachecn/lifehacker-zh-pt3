@@ -4,7 +4,7 @@
 
 如果有一个关于你的钱的老生常谈，那就是不要让你的情绪控制你:当市场下跌时，你不想卖掉[当你心情不好时，在你买不起的东西上挥霍](https://lifehacker.com/how-emotions-drive-bad-financial-decisions-and-how-to-1637678746) ，或者 [无条件地不断给你爱的人钱](https://twocents.lifehacker.com/how-to-handle-loaning-money-to-your-parents-1824092037) 。
 
-Watch
+
 
 但是，在适当的情况下，投入你的情感实际上对你的财务有好处。原因如下。
 

@@ -4,7 +4,7 @@
 
 如果你是租房住，你可能无法安装传统的有线安全系统——如果你住在一个小空间里，你可能不需要安装。相反，考虑用 Amazon Echo 设备作为操作的大脑，一点一点地构建自己的安全系统。亚马逊的 Alexa 与字面上的 [成千上万的设备](https://developer.amazon.com/alexa/smart-home/compatible?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-use-amazon-echo-as-your-home-security-system-1828331024&asc_source=&tag=kinjalifehackerlink-20) 集成，增加了便利性*和*安全性，所以你可以挑选你需要的摄像头、锁、灯和传感器，然后在你的 Echo 上启用相关技能。
 
-Watch
+
 
 如果你有比 Echo Plus 更低的产品，它比其他亚马逊产品内置更多的智能家居功能，请记住，Alexa 的一些技能可能需要 [将你的命令](https://fieldguide.gizmodo.com/how-to-build-a-smart-home-where-everything-might-actual-1795448925) 重定向到与你的安全设备对话的独立集线器或网桥。您将智能设备连接到集线器或网桥，然后将其连接到 Amazon Echo 设备，而不是直接将智能设备与 Echo 配对。
 

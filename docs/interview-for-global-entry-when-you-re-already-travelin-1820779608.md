@@ -4,7 +4,7 @@
 
 [全球入境](https://lifehacker.com/make-your-global-entry-appointment-come-months-faster-b-1796195231) 是旅行者的梦想，但取决于你所在城市的需求，申请可能需要一些时间。为了加快这个过程，如果你已经在旅行，试试 [到达注册](https://www.cbp.gov/travel/trusted-traveler-programs/global-entry/enrollment-arrival) 。
 
-Watch
+
 
 当你注册全球入学时，你在网上填写一份申请，并(有希望地)被初步接受。不过，从那里开始，你必须安排一次面对面的面试来完成申请过程，这通常意味着开车去最近的机场。通过在抵达时注册，您还可以选择在下一次经过参与机场时完成面试，甚至无需安排面试。
 

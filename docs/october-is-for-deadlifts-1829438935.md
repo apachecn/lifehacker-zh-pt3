@@ -4,7 +4,7 @@
 
 欢迎回来，朋友们！在我们的 [健身挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 中，我们已经进行了大量的体重练习，上个月我们开始了一些 [跑步或步行](https://vitals.lifehacker.com/preview/how-to-measure-your-progress-in-running-1829391989) 。这个月我们将去健身房做一些举重运动——但是不要担心，即使你没有健身房会员，我们也会为你提供选择。
 
-Watch
+
 
 这个月我们将攻克 [硬拉](https://vitals.lifehacker.com/why-deadlifts-are-worth-the-hype-and-how-to-do-them-sa-1756526319#_ga=2.118749449.1639559872.1538407826-1456718367.1520458611) 。你在地板上有一个很重的东西，你抓住它，然后站起来。一旦你开始练习硬拉，你会发现这种方式比其他方式能举起更多的重量。即使身材矮小的人也能举起三位数的重量。对于初学者到中级举重运动员来说，一个里程碑是硬举一个与你身体重量相同的杠铃。因此，我们对此寄予厚望。
 

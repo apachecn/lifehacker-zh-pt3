@@ -4,7 +4,7 @@
 
 根据 [《消费者报告》](https://www.consumerreports.org/digital-payments/mobile-p2p-payment-services-review/) 有史以来第一份移动支付系统排名，Apple Pay 是在支付认证以防止欺诈和数据隐私方面排名最高的点对点支付(P2P)系统。
 
-Watch
+
 
 CR 根据支付认证安全、数据安全、数据隐私、客户支持和广泛访问，对 Apple Pay、Square 的现金应用、Messenger 中的脸书 P2P 支付、Venmo 和 Zelle 的应用进行了排名。
 

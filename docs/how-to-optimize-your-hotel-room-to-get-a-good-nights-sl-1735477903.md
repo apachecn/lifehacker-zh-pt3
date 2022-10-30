@@ -4,7 +4,7 @@
 
 在旅馆睡个好觉可能会时好时坏。有时会有意想不到的噪音，或者空调坏了，你不得不在酒店房间里临时修理一下，才能睡个好觉，正如旅游作家大卫·法利在最近一次曼谷之行中发现的那样。
 
-Watch
+
 
 *本帖原载于* [*李伯的*](http://vanwinkles.com/hack-your-hotel-for-the-best-night-s-sleep) *。*
 
@@ -32,11 +32,7 @@ Watch
 
 就我个人而言，我讨厌带着眼罩睡觉，所以我只是拿了一条浴巾，折叠了三次，放在时钟前。另外，我拿起另一条浴巾，把它卷起来放在门后的地板上，确保光线不会偷偷进来。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Optimize Your Hotel Room to Get a Good Night&#39;s Sleep](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-get-better-sleep-in-uncomfortable-and-unavoidabl-1689861129) [###### 如何在不舒服和不可避免的情况下获得更好的睡眠](https://lifehacker.com/how-to-get-better-sleep-in-uncomfortable-and-unavoidabl-1689861129) 
 
-众所周知，我们大多数人睡眠不足。虽然它可能是我们自己的…
-
-[Read more](https://lifehacker.com/how-to-get-better-sleep-in-uncomfortable-and-unavoidabl-1689861129)</aside>
 
 八个小时后，我确实被烦人的闹钟吵醒了。我的酒店策略奏效了:我睡了一整夜，感觉神清气爽。我的房间比平时更暗更凉爽，这两者都有助于睡眠。
 

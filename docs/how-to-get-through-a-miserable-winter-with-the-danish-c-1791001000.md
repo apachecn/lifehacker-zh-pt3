@@ -4,7 +4,7 @@
 
 对一些人来说，冬天是一年中神奇的时刻。对于像我一样的其他人来说，这是一个阴沉、寒冷、黑暗的日子，你只需要耐心等待。但是有更好的方法度过冬天。一种心态，包括拥抱冬季月份的独特方面。输入丹麦的“hygge”概念
 
-Watch
+
 
 [Hygge](https://en.oxforddictionaries.com/definition/hygge) ，实际上是 [一个源于挪威语的单词](http://www.visitdenmark.com/hygge) ，发音为“呼-嘎”，大致翻译为“舒适”虽然舒适是拼图的主要部分，但海格实际上更多的是一种态度或心态。正如 [娜塔莉·范·杜森](https://www.ualberta.ca/arts/about/people-collection/natalie-van-deusen) 阿尔伯塔大学斯堪的纳维亚研究教授 [所说](http://www.cbc.ca/news/canada/edmonton/hygge-danish-secret-winter-1.3922602) :
 

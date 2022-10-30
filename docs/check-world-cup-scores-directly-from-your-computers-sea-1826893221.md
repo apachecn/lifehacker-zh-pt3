@@ -4,7 +4,7 @@
 
 世界杯正式开始了。如果你想在电脑上观看所有的动作，我们已经在 [详细介绍了如何在](https://lifehacker.com/how-to-watch-the-world-cup-even-without-a-tv-1826811241) 中实现。
 
-Watch
+
 
 对于那些你不能观看，但仍然想跟踪比分的时候，你电脑的搜索栏可以让它实现。Windows PCs 上的 Cortana 和 Mac OS 上的 Spotlight 都可以用来查看最新的分数。
 

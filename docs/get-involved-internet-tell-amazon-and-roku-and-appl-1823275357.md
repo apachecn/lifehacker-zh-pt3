@@ -4,7 +4,7 @@
 
 最终在美国实现合理枪支管制的斗争才刚刚开始，这是一场多管齐下的努力，将把本周 CNN 市政厅的 [扩展到今年 11 月及以后的投票箱。但有一件事很简单、容易，而且，如果你是《T4》影音俱乐部(The a . v . Club)的忠实读者，你可能已经在家里有了这件事:告诉 NRATV，NRA 的在线视频频道，相比之下，其反媒体、亲特朗普的言论让福克斯新闻频道看起来很温顺，让他滚蛋。](https://www.avclub.com/who-knew-how-inspiring-it-could-be-to-watch-teenagers-g-1823216677)
 
-Watch
+
 
 该频道甚至在上周佛罗里达州帕克兰的校园枪击事件之前就已经急转直下，只能被描述为右翼阴谋论，目前可在亚马逊的 FireTV、谷歌的 Chromecast、苹果电视和 Roku 上观看。(昨天在保守党政治行动会议上的一次演讲中，除了其他人之外，达娜·罗施(Dana Loesch)， [，他说](https://www.washingtonpost.com/blogs/erik-wemple/wp/2018/02/22/nra-spokeswoman-dana-loesch-many-in-legacy-media-love-mass-shootings/?utm_term=.c39edb3f4d48) ，“许多传统媒体喜欢大规模枪击事件”。)我们猜测，如果你和我们一样是流行文化的狂热消费者，你可能已经拥有一台(或更多)这样的设备。因此，也许是时候让他们知道，作为一名客户，你不支持在你的设备上托管 [种族主义狗哨](https://www.facebook.com/NRA/videos/1605896562755373/?autoplay_reason=all_page_organic_allowed&video_container_type=0&video_creator_product_type=2&app_id=119211728144504&live_video_guests=0) 。
 

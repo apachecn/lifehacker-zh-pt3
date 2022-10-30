@@ -4,7 +4,7 @@
 
 准备好，脐带钳。你的生活变得不那么不方便了。YouTube TV [现在可以在 Roku 设备](http://newsroom.roku.com/press-release/press-releases-usa/youtube-tv-now-available-roku-devices) 上运行，这意味着你可以通过机顶盒观看超过 40 个频道的现场娱乐节目。这让 YouTube 电视更有吸引力了吗？当然可以。这让 YouTube 电视价值每月 35 美元吗？啊啊啊啊。
 
-Watch
+
 
 YouTube 电视一直都有明显的优势。它是可以在手机、平板电脑或电视上观看的直播电视。当地新闻和体育。不需要有线电视盒。这是 YouTube 电视网站 上的销售宣传，对任何喜欢以老式方式看电视的人都有吸引力，没有所有老式的烦恼。见鬼，你甚至可以用 YouTube 电视观看超级碗。
 

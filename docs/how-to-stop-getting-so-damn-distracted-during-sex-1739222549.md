@@ -4,7 +4,7 @@
 
 在性生活中，你是否经常发现自己在想着去杂货店购物，或者被天花板上的蜘蛛网分散了注意力？令人沮丧的是，当我们亲密的时候，很难关闭我们的大脑，即使我们都知道当我们精神上在场的时候，性爱会好得多。这些技巧会有所帮助。
 
-Watch
+
 
 ### 在卧室外练习
 
@@ -12,11 +12,7 @@ Watch
 
 冥想在这里很有帮助。我强烈推荐 [顶空](http://headspace.com/) ，一款 [教你如何冥想](http://lifehacker.com/headspace-teaches-you-how-to-meditate-in-ten-minutes-a-1733754902) 的 app。Headspace 选取了一个对大多数人来说似乎很困惑的主题，并将其分解为简单、易于理解的概念。它会引导你进行有条理的冥想，所以你永远不会想知道你应该做什么。即使是每天 10 分钟的冥想，自然也会让你在性爱中更容易感受到当下。如果有一个开始冥想练习的好理由，这就是了。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Stop Getting So Damn Distracted During Sex](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174) [###### 什么是“正念”，为什么每个人都在谈论它？](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174) 
 
-亲爱的 Lifehacker，我不断看到“正念”这个词无处不在，它与从失去…
-
-[Read more](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174)</aside>
 
 ### 为成功做好准备
 

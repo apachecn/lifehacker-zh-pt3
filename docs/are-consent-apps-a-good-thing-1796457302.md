@@ -4,7 +4,7 @@
 
 在《牢不可破的 T2》第三季 [中，](http://www.avclub.com/tvclub/unbreakable-kimmy-schmidt-misses-mark-its-satire-c-256016) *，*童菲第一次去参加大学聚会，一个男孩在他们即将接吻前要求她签一份合同。同意已经在大学校园里被更广泛地讨论，但是在这个话题上仍然有很多困惑。
 
-Watch
+
 
 在大学里谈论同意是很重要的:根据《纽约时报》的报道，五分之一的大学女生 经历过性侵犯，大多数性侵犯都没有被报道。2014 年，奥巴马政府 [发布了一份名单](http://www.nytimes.com/2014/05/02/us/politics/us-lists-colleges-under-inquiry-over-sex-assault-cases.html)55 所高校因处理性侵投诉而接受调查。
 

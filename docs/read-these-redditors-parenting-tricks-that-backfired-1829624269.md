@@ -4,7 +4,7 @@
 
 操纵你的孩子的问题是他们会反过来操纵你。在一个向 Reddit 提问的帖子中，数千人分享了 [起反作用的](https://www.reddit.com/r/AskReddit/comments/9mebpv/parents_of_reddit_what_lessons_have_to_tried_to/) 父母教训的故事。他们都教自己的课程，主要是孩子们每次都会给你惊喜。
 
-Watch
+
 
 [berthejuw](https://www.reddit.com/r/AskReddit/comments/9mebpv/parents_of_reddit_what_lessons_have_to_tried_to/e7eew41/)教女儿“永远赞美侮辱你的人”有一天，一家人出去购物，一个女人对 Berthejew 的妈妈说了一些粗鲁的话。
 

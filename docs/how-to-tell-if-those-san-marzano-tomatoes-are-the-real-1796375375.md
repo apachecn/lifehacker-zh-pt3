@@ -4,7 +4,7 @@
 
 圣马尔扎诺番茄享有盛誉。据说它们比其他罐装李子番茄更甜，更多汁，酸性更低，这就是为什么这么多人选择它们做调味汁的原因。不幸的是，你在美国杂货店会发现的大多数“圣马尔扎诺”西红柿都是骗子。
 
-Watch
+
 
 [按口味](http://www.tastecooking.com/fake-rolex-canned-tomatoes/?platform=hootsuite) ，一个近乎疯狂的标着“圣马尔扎诺斯”的西红柿 95%都是假的(没错，甚至 [那一个](https://www.amazon.com/San-Marzano-Whole-Peeled-Tomatoes/dp/B000SEJ8F6/ref=cm_cr_arp_d_product_top?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-tell-if-those-san-marzano-tomatoes-are-the-real-1796375375&asc_source=&ie=UTF8&tag=kinjalifehackerlink-20) )。你看，这个名字不仅仅描述了所用的番茄种子的种类，还描述了它生长的地区，恰好在维苏威火山附近的火山土壤中。
 

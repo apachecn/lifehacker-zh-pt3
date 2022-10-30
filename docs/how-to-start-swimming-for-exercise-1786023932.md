@@ -4,7 +4,7 @@
 
 如果凯蒂·莱德基、西蒙·曼努埃尔或善良的老迈克尔·菲尔普斯激励你再看看你家附近的游泳池，那么最大的阻碍可能是这个问题:*当我在那里的时候，我实际上做了什么*？以下是如何把在游泳池度过的一天变成一次令人满意的锻炼。
 
-Watch
+
 
 这份指南是为那些已经知道如何游泳的人准备的，不管你是否认为自己擅长游泳。如果你需要比我们这里更多的坡道，检查一下你当地的成人初级课程游泳池。你也可以 [查一下你当地的大师队](http://www.usms.org/placswim/?utm_campaign=top_nav&utm_medium=local_programs) ，这听起来可能有点吓人，但它实际上只是一个面向所有技能水平的成年人的游泳俱乐部。
 
@@ -26,11 +26,7 @@ Watch
 
 泳池中的一些人可能会在整个锻炼过程中以缓慢稳定的速度游泳，但大多数认真的游泳者会将他们的锻炼安排为间歇训练，这意味着他们会努力工作几分钟，然后休息一下，然后再做一遍。间歇很有效，因为游泳池很短(与跑步者或骑自行车者行驶的英里数相比)，也因为间歇恰好对改善你的健康很有好处。它们也给枯燥的锻炼带来了更多的变化。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Start Swimming for Exercise](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-start-getting-in-shape-in-20-minutes-a-day-5888041) [###### 怎样才能在每天 20 分钟内开始塑身？](https://lifehacker.com/how-can-i-start-getting-in-shape-in-20-minutes-a-day-5888041) 
 
-亲爱的生活黑客，据《纽约时报》报道，间歇训练是生活黑客的捷径
-
-[Read more](https://lifehacker.com/how-can-i-start-getting-in-shape-in-20-minutes-a-day-5888041)</aside>
 
 为了找出一个好的游泳锻炼需要什么，我们采访了休闲游泳队的主教练科基·莱宾斯基。“好问题！她说:“从头开始锻炼并不容易。当她为她的小组设计健身程序时，它包括四个部分:
 

@@ -4,7 +4,7 @@
 
 当你和朋友外出过夜回家时，分享一个优步通常很有意义。然而，到目前为止，你必须口头告诉你的司机你要停几站，然后每次有人下车时输入一个新的地址。这是一个可行的过程，但是对你和车手来说都很令人沮丧。
 
-Watch
+
 
 [据 *Mashable*](http://mashable.com/2017/10/26/uber-multiple-stop-feature/?utm_campaign=Mash-Prod-RSS-Feedburner-All-Partial&utm_cid=Mash-Prod-RSS-Feedburner-All-Partial#X3h_SVfwAZqN) 报道，从今天开始，你可以在优步应用程序中为单程旅行添加多达三个不同的站点，这样你的司机就可以知道你和你的同伴想去哪里，而无需就路线进行漫长的谈判。
 

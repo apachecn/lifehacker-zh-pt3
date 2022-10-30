@@ -4,7 +4,7 @@
 
 无论你已经面试了超过一百万次，还是你已经和招聘经理 面对面 [了多少次，这个过程总是充满压力。你不仅要尽最大努力展现最好的自己，还要努力了解你的听众，尽可能多地收集关于这个角色、公司文化和公司本身的信息。没有压力。](https://www.themuse.com/advice/how-to-think-like-a-hiring-manager-and-land-the-job)
 
-Watch
+
 
 问任何一位经理做出招聘决定是什么感觉，她很可能会告诉你这对她来说也不是一件容易的事情。做出正确的选择可能很难——尤其是当她从一群合格的申请人中做出选择的时候。那么，你如何让天平向你有利的方向倾斜呢？除了准备好每一次面试，试着站在坐在你对面的人的角度想想。
 
@@ -38,11 +38,7 @@ Watch
 
 除了想知道你是否真的对这个机会感到兴奋，面试官还想评估你是否适合。会议期间，抓住机会询问团队、他们的工作风格和公司文化。这不仅会表明你真正专注于了解整个组织，而不仅仅是关注你申请的职位，还会表明你也很在乎成为这份工作的合适人选。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What a Hiring Manager Is Actually Thinking During Your Interview](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-the-people-reading-your-resume-wish-you-knew-1680315298) [###### 阅读你简历的人希望你知道什么](https://lifehacker.com/what-the-people-reading-your-resume-wish-you-knew-1680315298) 
 
-简历是非常私人的文件，你可能觉得你想传达一种感觉
-
-[Read more](https://lifehacker.com/what-the-people-reading-your-resume-wish-you-knew-1680315298)</aside>
 
 ### 4.这个人会让我好看吗？
 

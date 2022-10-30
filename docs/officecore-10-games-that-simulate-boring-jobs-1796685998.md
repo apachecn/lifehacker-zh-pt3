@@ -4,7 +4,7 @@
 
 [*就好像你在工作*](https://pippinbarr.github.io/itisasifyouweredoingwork/) ，这是顽皮的开发者 Pippin Barr 开发的一款新的浏览器游戏，模拟在 Windows 95 中闲逛，点击对话框，敲击键盘，打出报告和电子邮件。取决于你真正的工作，它是一个令人放松的桌面玩具，或者是对你现实生活的可怕模仿。这是一个很好的例子，说明了 officecore 中被忽视的(之前还没有命名的)游戏类型。
 
-Watch
+
 
 虽然许多游戏探索令人兴奋的职业，如 [飞行员](http://store.steampowered.com/app/314160/Microsoft_Flight_Simulator_X_Steam_Edition/) 、 [城市规划师](http://www.simcity.com/) 或 [杀手](https://hitman.com/en-us) ，但 officecore 专注于枯燥的案头工作。这份工作的细节通常很普通，虚构的结果被掩盖以提高潜在的关联性。虽然普通的游戏玩家永远不会屠杀恶魔或征服法国，但他们可能会花一些时间，也许是全部时间，在办公桌前工作，所以这是一个帮助他们重新诠释熟悉环境的机会。
 
@@ -90,11 +90,7 @@ Officecore 有三个子类别，按照范围的升序排列:桌面模拟、办�
 
 *法特兰非常清楚更黑暗的相似之处。“LARP 轻量级和喜剧性的表面被涂在一个相当残酷的核心之上，”他说，“就像它讽刺的行业一样。”*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled Officecore: 10 Games That Simulate Boring Jobs](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-navigate-office-politics-and-avoid-needless-dram-1643384107) [###### 如何驾驭办公室政治，避免不必要的闹剧](https://lifehacker.com/how-to-navigate-office-politics-and-avoid-needless-dram-1643384107) 
 
-我们都有过这样的经历——一封意外的电子邮件，突然间你的整个组织都充满了你的…
-
-[Read more](https://lifehacker.com/how-to-navigate-office-politics-and-avoid-needless-dram-1643384107)*</aside>
 
 ### ***企业模拟游戏***
 

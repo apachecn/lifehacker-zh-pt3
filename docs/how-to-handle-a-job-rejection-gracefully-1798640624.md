@@ -4,13 +4,9 @@
 
 所以你没有得到那份工作——真遗憾。这很痛苦，但这个过程还没有结束。在你开始下一个潜在的工作之前，做好这三件事。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Handle a Job Rejection Gracefully](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-use-rejection-to-set-yourself-up-for-a-second-sh-1678175201) [###### 如何利用拒绝为自己赢得第二次机会](https://lifehacker.com/how-to-use-rejection-to-set-yourself-up-for-a-second-sh-1678175201) 
 
-无论是工作面试还是约别人出去，拒绝都是一个残酷的现实…
 
-[Read more](https://lifehacker.com/how-to-use-rejection-to-set-yourself-up-for-a-second-sh-1678175201)</aside>
 
 ### 用感激来回应
 

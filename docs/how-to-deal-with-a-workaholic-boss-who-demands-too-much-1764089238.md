@@ -4,7 +4,7 @@
 
 所以，你的老板是个工作狂，希望你效仿她？不管这意味着工作多长时间，在办公桌前吃午饭(或者干脆不吃)，甚至牺牲你的周末，向这样的人汇报工作对你的职业生涯和家庭生活都是一种负担。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/what-to-do-when-your-boss-is-a-workaholic-and-expects-you-to-be-one-too) *。*
 

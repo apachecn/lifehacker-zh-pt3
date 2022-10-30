@@ -4,7 +4,7 @@
 
 今天是任天堂游戏设计师兼制作人 [宫本茂](https://en.wikipedia.org/wiki/Shigeru_Miyamoto) 的生日，为了庆祝，我们认为是时候看看他对创作过程的一些见解了。
 
-Watch
+
 
 宫本茂早在 1977 年就开始在任天堂工作，从那时起，他设计了现在的传奇游戏，如 [【大金刚】](https://en.wikipedia.org/wiki/Donkey_Kong)[【超级马里奥兄弟】](https://en.wikipedia.org/wiki/Super_Mario_Bros.)[【塞尔达传说】](https://en.wikipedia.org/wiki/The_Legend_of_Zelda)[以及无数其他](https://en.wikipedia.org/wiki/Shigeru_Miyamoto_gameography) 。如今，他不仅是一名设计师，也是公司的主要代言人之一，不断出现在游戏公告和视频中。尽管他已经在任天堂工作了近 40 年，但他仍然是几乎所有项目的主要制作人和监督者之一。那么，他是怎么做到的呢？让我们来看看。
 

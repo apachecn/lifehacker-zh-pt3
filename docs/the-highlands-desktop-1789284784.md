@@ -4,7 +4,7 @@
 
 这幅风景可能看起来像是冒着蒸汽或着火了，但它只是照片拍摄时一天中明亮、丰富的颜色——它构成了一幅美丽的壁纸。添加一点定制，Nicolas 就有了一个值得每天坐下来使用的很棒的桌面。这是所有设置的方式。
 
-Watch
+
 
 Nicolas 正在使用 bersicht， [一个 macOS 定制套件，我们在](https://lifehacker.com/ubersicht-customizes-your-os-x-desktop-with-widgets-and-1591137635) 之前已经强调过了。您将需要抓住它开始，但它几乎是所有您需要的。
 

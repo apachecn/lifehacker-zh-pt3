@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们是个人理财网站 [NerdWallet](https://www.nerdwallet.com/) 及其工具套件的忠实粉丝，如 [联邦税收计算器](https://twocents.lifehacker.com/nerdwallets-federal-tax-calculator-estimates-how-much-y-1792244613)[信用卡红娘](https://lifehacker.com/nerdwallet-picks-your-best-match-from-hundreds-of-credi-5549795) 和 [退休计算器](https://twocents.lifehacker.com/this-retirement-calculator-tells-you-how-much-to-save-m-1773172461) 。我们采访了陈永正，一位前金融分析师，他在 2009 年共同创立了 NerdWallet，现在管理着一个 450 人的团队。
 
-Watch
+
 
 * * *
 

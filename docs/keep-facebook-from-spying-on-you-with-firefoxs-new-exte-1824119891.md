@@ -4,7 +4,7 @@
 
 你无法阻止脸书追踪你在社交网络上做的一切(当然，除非你 [删除你的账号](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) ，但是有一种方法可以阻止它追踪你一旦离开公司的 [围墙花园](https://lifehacker.com/a-month-inside-apples-walled-garden-its-not-as-bad-a-1304272986) 去了哪里。你需要的只是 Mozilla 新的火狐浏览器扩展: [脸书容器](https://blog.mozilla.org/firefox/facebook-container-extension/) 。
 
-Watch
+
 
 脸书容器把脸书限制在它自己的沙盒浏览器标签上，所以它看不到你在互联网上做的所有其他事情。这意味着脸书不会知道你在亚马逊上买了什么，即使你由于在脸书上分享的链接而出现在亚马逊上。该扩展还阻止你用你的脸书证书登录其他网站，这是该公司从网络上收集数据的另一个重要方式。
 

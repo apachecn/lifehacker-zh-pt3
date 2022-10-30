@@ -4,7 +4,7 @@
 
 先说清楚:[*pokémon Go*](http://kotaku.com/tag/pokemon-go#_ga=1.124467018.1359681016.1464231051)意为行走。但在我住的地方，现在外面也有 100 多度。另外，走路呢？这是美国；那是给笨蛋的。但是对于那些想边开车边玩游戏的人来说，这被证明是极其危险的。我们见过开车的玩家 [撞树](http://jalopnik.com/guy-who-caught-tree-in-pokemon-go-actually-crashed-his-1783684604#_ga=1.179974308.1273901456.1445270859) ，至少有两个甚至撞过警车——一个在 [巴尔的摩](https://kotaku.com/pokemon-go-player-hits-cop-car-captured-on-camera-1783942861) 另一个在 [蒙特利尔](http://ici.radio-canada.ca/regions/quebec/2016/07/13/005-joueur-pokemon-go-collision-autopatrouille.shtml) 。
 
-Watch
+
 
 因此，如果你必须在一辆车里抓住他们，有一些事情可以做，以减少撞上警察，被指控交通过失杀人或只是不擅长游戏的风险。这里有一些规则要遵守。
 

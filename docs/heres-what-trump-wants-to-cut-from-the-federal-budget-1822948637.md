@@ -4,7 +4,7 @@
 
 特朗普总统 2019 财年的预算昨天公布，其中包括大幅削减国内项目——包括 [医疗保险、医疗补助](https://lifehacker.com/trump-is-coming-for-medicare-medicaid-and-the-aca-1822932045) 和社会保障——同时呼吁增加军事支出和其他“安全”措施。
 
-Watch
+
 
 但是“美国预算”，正如它的标题，远远超出了削减社会安全网——几乎每个部门和机构都受到影响。这是 SparkNotes 版本。
 

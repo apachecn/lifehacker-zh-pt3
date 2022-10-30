@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**跳过这一行，现在就把你的 Nexus 升级到安卓牛轧糖**](http://lifehacker.com/skip-the-line-and-upgrade-your-nexus-to-android-nougat-1785653449)
 

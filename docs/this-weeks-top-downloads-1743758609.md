@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [用《我的世界》或星球大战教程](http://lifehacker.com/teach-your-kids-how-to-code-with-minecraft-or-star-wars-1743019747) 教你的孩子如何编码
 

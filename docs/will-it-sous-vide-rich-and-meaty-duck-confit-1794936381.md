@@ -4,7 +4,7 @@
 
 大家好，欢迎来到丰富多采的 [*它会被分割吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 
-Watch
+
 
 最后，我们吃了一些鸭子。(我的意思是，我猜*我*可以吃一些鸭子。你可以看鸭子的照片。)来了好久了。虽然几周前，duck confit 在技术上赢得了我们的 [主题选择会议](http://skillet.lifehacker.com/will-it-sous-vide-lets-pick-another-topic-1794542440) ，但我无法及时为那周的帖子找到鸭腿，所以我买了一整只冷冻鸭，并在等待解冻时制作了鳄鱼 。我并不是真的很生气。
 

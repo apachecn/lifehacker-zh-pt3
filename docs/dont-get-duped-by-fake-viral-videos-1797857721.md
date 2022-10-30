@@ -4,7 +4,7 @@
 
 当你在网上看到一个视频，看起来有点疯狂，不像是真的，很有可能它就是真的。除了假新闻故事，虚假的病毒视频遍布脸书和 YouTube，其中许多是由知道自己在做什么的人制作的，这使得很难确定他们是否诚实。像 [这种一只秃鹰抢走一个](https://www.youtube.com/watch?v=CE0Q904gtMI) [小孩](https://www.youtube.com/watch?v=CE0Q904gtMI) 或者 [这种朋友意外导致他人死亡的视频](https://www.youtube.com/watch?v=f0qEKNmG2DE) 在你没有意识到他们是绝技的时候可能会令人震惊。
 
-Watch
+
 
 《The Verge》[最近采访了电影制作人兼视觉特效专家艾伦·梅利克佳尼安](https://www.theverge.com/2017/8/14/16111764/how-to-spot-a-fake-viral-video) ，他自己制作了一些看起来很真实的假视频，来获得一些如何辨别假新闻和真事的技巧。
 

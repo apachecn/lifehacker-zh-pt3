@@ -4,7 +4,7 @@
 
 在本周的 Brain Buffet 节目中，我们将了解波士顿打字机管弦乐团的行动，一个关于混音文化的新播客，来自*行星地球*庆祝其 10 周年的最佳场景，等等。
 
-Watch
+
 
 *<small>欢迎来到 Lifehacker 的</small>* [*<small>周一大脑自助</small>*](http://lifehacker.com/tag/monday-brain-buffet) *<small>，这是一个系列节目，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，它们会教你一些新东西，启发你，并有希望让你的一周有一个良好的开端。</small>T15】*
 

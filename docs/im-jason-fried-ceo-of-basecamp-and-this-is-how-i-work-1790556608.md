@@ -4,7 +4,7 @@
 
 [Basecamp](https://basecamp.com/) 是一款基于网络的项目管理工具，就像它之前的许多其他软件工具和创业公司一样，Basecamp 的创造者为自己打造了它。他们只是需要一种体面的方式来管理项目和协作。只是刚好其他人也想用。
 
-Watch
+
 
 现在被称为 Basecamp 的公司是 17 年前由杰森·弗里德、卡洛斯·塞古拉和欧内斯特·金创立的。最初名为 37signals，参与了各种类型的 web 设计和开发——包括像 Campfire 这样的产品以及后来的[Ruby on Rails](http://rubyonrails.org/)——他们最终将注意力转移到了他们的同名产品 Basecamp 上。
 

@@ -4,7 +4,7 @@
 
 我们大多数人不需要在包里放太复杂的东西，但我们确实需要为生活中的三件重要事情做好准备:游戏、拍照和吃饭。Lifehacker 的读者 Cole Ewert 已经为这三种情况(甚至更多)做好了准备。
 
-Watch
+
 
 包里是一架 [中型廷巴克信使](http://www.timbuk2.com/classic-messenger-bag/116.html?dwvar_116_size=8&dwvar_116_color=6061) 。这是里面的内容:
 

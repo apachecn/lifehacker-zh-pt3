@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/use-a-makeup-sponge-for-mess-free-period-sex-1797313388>
 
-Watch
+
 
 如今关于经期性行为的官方政党路线是，经期女性的伴侣应该对这种自然的人类现象保持冷静和冷静，拒绝与经期人类发生性行为的人是不成熟和无知的。
 

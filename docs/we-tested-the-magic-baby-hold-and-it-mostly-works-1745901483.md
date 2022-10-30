@@ -6,7 +6,7 @@
 
 一个标题 说 [“让你的宝宝在几秒钟内安静下来”。](http://www.huffingtonpost.com/entry/calm-any-crying-baby-robert-hamilton_565e6b72e4b072e9d1c40aa4) [写着“每次都别哭”，另一个写着](http://www.dailymail.co.uk/femail/article-3342362/Doctor-magic-touch-Paediatrician-reveals-secret-hold-baby-stop-crying-time.html) 。真的像罗伯特·汉密尔顿博士说的那么简单吗？我抓起最近的一个婴儿来进行“抱抱”测试。
 
-Watch
+
 
 为了让婴儿平静下来，你需要将他的双臂抱在胸前，用一只手按住。从那里，用你的另一只手在他的屁股下支撑着他，让他面朝下，然后“摇晃他的小屁股”当汉密尔顿博士这样做时，婴儿们立刻停止了哭泣。我和我六周大的女儿达芙妮在一个晚上尝试了大约 800 次(因为婴儿经常哭)。果然，她几乎每次都能平静下来。
 

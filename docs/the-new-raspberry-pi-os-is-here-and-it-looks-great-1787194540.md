@@ -4,7 +4,7 @@
 
 树莓派的主要操作系统 Raspbian 刚刚从 [树莓派基金会](https://www.raspberrypi.org/blog/introducing-pixel/) 获得了全新的外观。它被称为 PIXEL，是 Raspbian 的一个皮肤，使界面现代化，增加了一些新程序，使用起来更加舒适。你甚至可以在你的电脑或者苹果电脑上运行。让我们仔细看看你的 Pi 的新外观。
 
-Watch
+
 
 ### 新的闪屏取代了旧的神秘的引导信息
 

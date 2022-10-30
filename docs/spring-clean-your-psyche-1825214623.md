@@ -4,7 +4,7 @@
 
 当你清理你的 [空间](https://lifehacker.com/how-to-clean-up-for-the-house-cleaner-1825178756) 、你的 [财务](https://twocents.lifehacker.com/refresh-your-finances-this-spring-1825190110) 和你的 [数字生活](https://lifehacker.com/how-to-clean-your-overwhelmed-gmail-inbox-by-hand-1825114630) 的时候，不要忘记你的大脑也会变得杂乱。以下是如何理清事情的方法，这样你最终会更快乐，(精神上)更健康。
 
-Watch
+
 
 Lifehacker 非常重视春季大扫除。我们绝不会错过更新、重组和整理我们家庭生活的机会。我们也非常兴奋地按下科技使用的重置按钮，仔细查看我们的财务状况，并抛弃已经有点发霉的日常习惯。欢迎来到 [*春季大扫除周*](https://lifehacker.com/tag/spring-cleaning-week) *，在这里我们清理冬天的蜘蛛网，为未来的晴天做准备。让我们收拾一下，好吗？*
 
@@ -40,11 +40,7 @@ Lifehacker 非常重视春季大扫除。我们绝不会错过更新、重组和
 
 你不必做 [传统的冥想来清理你的头脑](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) ，但如果你还没有，值得一试。像 [冷静](https://www.calm.com/) 和 [顶空](https://www.headspace.com/) 这样的应用程序可以给你一个友好的练习介绍。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Spring Clean Your Psyche](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) [###### 为什么冥想应该是你大脑的“定期维护”](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) 
 
-从技术上来说，睡眠已经是我们大脑的定期维护，但如果有任何…
-
-[Read more](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329)</aside>
 
 但是你也可以在日常生活中。如果你喜欢应用程序的方法，试试[buddify](https://buddhify.com/)的短录音，引导你专心吃饭、走路或通勤。
 

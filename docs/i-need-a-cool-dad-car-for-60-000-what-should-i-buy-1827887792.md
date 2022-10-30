@@ -4,7 +4,7 @@
 
 萨姆有一辆 2005 年的 Mini Cooper S，这是一辆不错的小车，但对于一个正在成长的家庭来说不太实用。他想要运动、有趣、实用的东西，并且有一个相当健康的预算来完成这个任务。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link) *)*
 

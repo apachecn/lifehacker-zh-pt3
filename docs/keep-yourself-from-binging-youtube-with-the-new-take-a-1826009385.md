@@ -4,7 +4,7 @@
 
 YouTube 视频:你永远不可能只看一个[。这不是你的错。YouTube 通过不断提供量身定制的建议(和一个积极的自动播放系统)来保持你的参与度。](https://lifehacker.com/watch-youtube-videos-without-ads-for-free-with-this-and-1824262552)
 
-Watch
+
 
 现在，由于一个新的更新，YouTube 终于承认太多的好事可能是坏事。以下是如何使用该服务新的“提醒我休息一下”功能来抑制你对 YouTube 的沉迷。
 

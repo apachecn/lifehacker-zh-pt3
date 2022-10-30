@@ -4,7 +4,7 @@
 
 谷歌在周二 推出了新版 Chrome 浏览器 [，其外观和感觉都有很大变化。正如任何这种规模的变化一样，并不是所有人都满意。事实上，对于切换浏览器，或者至少恢复到 Chrome 的旧外观，有相当多的抱怨。](https://lifehacker.com/the-best-new-features-to-try-in-chromes-latest-update-1828809071) 
 
-Watch
+
 
 如果你对新的 Chrome 有问题(或者只是不喜欢它的外观)，这里有一些让你的浏览器回到正轨的方法。
 

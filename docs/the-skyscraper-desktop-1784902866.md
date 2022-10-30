@@ -4,7 +4,7 @@
 
 我们的朋友 joergermeister 在这台台式机上运行的是 Windows 10，但一如既往地按照他想要的方式定制了它的外观和工作方式，最终结果看起来很棒。如果你喜欢这个造型——或者只是其中的一部分——以下是你自己如何得到它的方法。
 
-Watch
+
 
 首先，由于这是一个 Windows 桌面，Rainmeter 是当天的订单， [本入门指南将帮助您](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 完成基本操作。这有点过时，但足以让您开始使用下面的皮肤和工具。
 

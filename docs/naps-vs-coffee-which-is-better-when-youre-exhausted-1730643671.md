@@ -4,7 +4,7 @@
 
 你感到筋疲力尽，但是你知道你需要再坚持一会儿。你会去拿杯子或枕头吗？以下是科学的说法。
 
-Watch
+
 
 ### **什么时候睡午觉**
 
@@ -26,11 +26,7 @@ Watch
 
 啊，传说中的 [“咖啡午睡”](http://lifehacker.com/reboot-your-brain-with-a-caffeine-nap-306029#_ga=1.107078914.1667622160.1441735094) 这个概念源于英国拉夫堡大学出来的 [倍数](http://www.ncbi.nlm.nih.gov/pubmed/8936399) [研究](http://www.ncbi.nlm.nih.gov/pubmed/9401427) 。你喝一杯咖啡，然后睡着，当你醒来时，咖啡因就会开始起作用。由 Mitsuo Hayashi 领导的 [研究发表在《临床神经生理学](http://www.sciencedirect.com/science/article/pii/S1388245703002554)*杂志上，研究发现咖啡午睡比使用明亮的灯光或洗脸更有效，可以使人在午睡后变得更加清醒。发表在《人类工程学》 杂志上的另一项研究也表明，咖啡午睡比常规午睡更能有效地保持夜间的警觉性和表现。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled Naps vs. Coffee: Which Is Better When You&#39;re Exhausted?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/reboot-your-brain-with-a-caffeine-nap-306029) [###### 小睡一会儿，让你的大脑重新活跃起来](https://lifehacker.com/reboot-your-brain-with-a-caffeine-nap-306029) 
 
-昨晚没睡够？喝完咖啡后，午间小睡片刻。来自…
-
-[Read more](https://lifehacker.com/reboot-your-brain-with-a-caffeine-nap-306029)*</aside>
 
 *如果可以的话，咖啡小睡或咖啡因小睡是你最好的选择。然而，问题是你需要在咖啡因起效前入睡。如果你能做到这一点，这种方法会给你小睡的好处，减去醒来时的昏昏沉沉。最坏的情况是，你至少从咖啡因中得到一些好处。总而言之，没有什么比 [睡个好觉](https://lifehacker.com/how-to-get-better-sleep-and-need-less-every-night-5971884) 更好的了，但是当你需要勉强度日的时候，你至少有一些工具。*
 

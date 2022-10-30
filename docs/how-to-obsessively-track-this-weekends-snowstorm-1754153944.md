@@ -4,7 +4,7 @@
 
 一场巨大的暴风雪正向美国东半部和北部地区袭来，如果你在附近，这里有最好的工具来看看你是否在它的路径上，以及你将会得到多少雪。即使你不是，或者你是一个困在沙发上的风暴追逐者，这些天气工具也会派上用场。
 
-Watch
+
 
 对于我们这些东海岸的人来说，降雪量的预测图是从“小雪”到“暴雪”的任何地方 [、](http://madusweather.com/2016/01/winter-storm-threat-january-22-24-initial-call/)、，更不用说随后的潜在洪水、。不仅仅是我们在东部；类似的降雪已经降临(或将降临)美国北部地区。虽然这可能是这一带本季度的第一场大雪，但肯定不会是最后一场。记住这一点，这里有一些工具，你可以在沙发上、办公室或智能手机上舒适地玩业余风暴追逐者。
 
@@ -22,11 +22,7 @@ Watch
 *   [**地下天气**](http://www.wunderground.com/) :如果你是一个气象迷，并且热爱比国家气象局提供的更多的数据，地下天气值得一看。该网站提供实时的地区和国家雷达，你所在位置的天气警报，当然，还有一直受欢迎的 [Wundermap](http://www.wunderground.com/wundermap/) ，一个实时的，数据量大的，绝对挤满了信息的天气地图。Wundermap 可以根据您想要的信息进行分层定制，包括实时雷达、当前条件和温度、地区降水、卫星数据、恶劣天气，是的，甚至降水开始时间，因此您可以准确知道风暴何时会袭击您。
 *   [**forecast . io**](http://forecast.io/):好吧，所以所有的天气 nerdery 都不适合你。在这种情况下，Forecast.io 为您的预测提供了一种更简单、更直接的方法，只提供对您最有用的信息:当前状况、接下来一小时的情况、您的五天预测，当然，还有您需要了解的任何严重或恶劣天气警报。如果你对细节感兴趣，只需向下滚动(页面自动检测你的位置)就可以看到你所在地区的详细预测图。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Obsessively Track This Weekend&#39;s Snowstorm](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-best-weather-web-sites-5897973) [###### 五个最佳天气网站](https://lifehacker.com/five-best-weather-web-sites-5897973) 
 
-无论你是在镇上闲逛还是计划一次长途旅行，你可能都需要
-
-[Read more](https://lifehacker.com/five-best-weather-web-sites-5897973)</aside>
 
 还有很多其他的天气网站和资源可以查看，但是这些是我们为桌边风暴追逐者和忧心忡忡的通勤者挑选的。他们不会让你失望，你有三个很好的选择:官方选项，数据-恶劣天气-书呆子选项，和简单，只是事实选项(按此顺序！)
 

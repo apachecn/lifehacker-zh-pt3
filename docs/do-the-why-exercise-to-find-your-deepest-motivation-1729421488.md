@@ -4,7 +4,7 @@
 
 我们都有目标，但问“为什么”很重要为什么要减掉那 10 斤？吃得更健康？还是为了升职？你可能会摸索一些固定的答案，但它们可能不是你真正的“为什么”深入挖掘，发现你的动机背后的真正来源，你真正的“为什么”以下是方法。
 
-Watch
+
 
 也许最初你对上述问题的“为什么”是“为了好看”、“为了吸引你想要的伴侣”或“为了买辆新车”更具体的“为什么”就不那么明显了，而 [创造了一个强有力的理由](http://lifehacker.com/the-four-motivation-types-and-how-they-affect-your-habi-1692300112) 去追求会给你带来目标感和成就感的东西。我们称之为内在动机，它将 [帮助你朝着目标](http://vitals.lifehacker.com/the-five-best-types-of-motivation-for-long-term-health-1718690788) 走得更远。
 

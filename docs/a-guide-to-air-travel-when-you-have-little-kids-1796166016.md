@@ -4,7 +4,7 @@
 
 我不是父母，但作为一个自己都很难吃饱穿暖的人，我非常尊重那些照顾其他人类 的 [人类。当我看到](http://jezebel.com/the-only-true-valuable-parenting-commodity-is-time-1755803466#_ga=2.8598005.1511798782.1497628373-553248333.1497628373) [的父母带着他们的孩子](http://lifehacker.com/the-best-airlines-for-traveling-with-children-1661634377) 旅行时，看起来很有趣。但是当你一个人的时候旅行已经够紧张的了——他们是如何带着小家伙度过难关的？
 
-Watch
+
 
 ### 关于带孩子旅行的神话
 

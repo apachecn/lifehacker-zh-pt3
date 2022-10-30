@@ -4,7 +4,7 @@
 
 就像一部乏味的连环杀手电影中，一群朋友在一个偏僻的小屋里，你的消费者保护一次一个地被悄悄扼杀，你跑来跑去试图 [扑灭其他火灾](https://twocents.lifehacker.com/how-to-not-get-scammed-when-donating-to-charity-1827017641) 。
 
-Watch
+
 
 好吧，一次做两个。昨天，一名联邦法官裁定创建消费者金融保护局的多德-弗兰克法案第十章“完全”违宪特朗普政府的劳工部 [未能对取消信托规则的法院裁决](https://www.barrons.com/articles/r-i-p-dol-fiduciary-rule-1529605320) 提出上诉，因此将其扼杀。
 

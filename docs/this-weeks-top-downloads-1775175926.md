@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**最适合你的树莓派项目的操作系统**](http://lifehacker.com/the-best-operating-systems-for-your-raspberry-pi-projec-1774669829#_ga=1.156059323.1224299049.1454957731)
 

@@ -4,7 +4,7 @@
 
 星期二早上，你手机的闹钟响了，你忍不住去看收件箱里的第一封邮件。你读了开头几个字，开始担心:你的老板疯了吗？你继续读，这是真的——她真的生气了。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/your-4step-plan-to-winning-over-an-angry-person) *。*
 

@@ -4,7 +4,7 @@
 
 每次我们在 Lifehacker 上写关于密码的文章时，都会有一些读者分享他们创建密码的秘密公式。据密码管理公司 [、达什莱恩](https://www.dashlane.com/) 的高级经理瑞安·麦钱特称，这些公式很容易被破解。
 
-Watch
+
 
 [Dashlane 最近分析了来自多年大规模数据泄露的 6100 万个密码](https://blog.dashlane.com/virginia-tech-passwords-study/)——许多安全研究人员、黑客甚至公众都可以获得这些密码。Dashlane 最大的缺点是人们不是很有创意。即使是用公式的也不行。
 

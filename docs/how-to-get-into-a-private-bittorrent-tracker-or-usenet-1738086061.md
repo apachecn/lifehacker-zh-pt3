@@ -4,7 +4,7 @@
 
 说到在 BitTorrent 和新闻组上共享文件，没有比私人追踪器和索引器更好的了。但是根据定义，他们是非常排外的，所以你不能在前门大摇大摆地走。以下是如何访问最好的私人文件共享社区。
 
-Watch
+
 
 *这篇文章是我们 Lifehacker 的* [*邪恶周*](http://lifehacker.com/welcome-to-lifehackers-sixth-annual-evil-week-1738276927#_ga=1.267541390.1055861349.1441835238) *系列的一部分，在这里我们看到了做事的阴暗面。有时邪恶是正当的，而其他时候，知道邪恶意味着知道如何打败它。想要更多吗？查看我们的* [*恶周标签页*](http://lifehacker.com/tag/evil-week) *。*
 
@@ -12,11 +12,7 @@ Watch
 
 私人 BitTorrent 追踪器和新闻组索引器的魅力不仅仅在于它们的排他性:还在于它们图书馆的组织、它们共享文件的质量以及它们社区的奉献精神。你会发现 FLAC 格式的音乐或接近蓝光质量的视频，用户都致力于这项事业。见鬼，即使你对这些文件不感兴趣，他们在网上也有一些最好的论坛，而且图书馆比维基百科组织得更好。(说真的:私人音乐追踪器是比实际唱片网站更好的唱片网站。没有其他地方可以让你如此容易地找到每一个曲目列表，重新发布，重新母带，或奖金版如此精心组织。)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Get Into a Private BitTorrent Tracker or Usenet Indexer](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/whats-a-private-bittorrent-tracker-and-why-should-i-us-5897095) [###### 什么是私有 BitTorrent 跟踪器，为什么我应该使用它？](https://lifehacker.com/whats-a-private-bittorrent-tracker-and-why-should-i-us-5897095) 
 
-亲爱的 Lifehacker，我听到有人抱怨“私人”BitTorrent 追踪器，说它们是如此…
-
-[Read more](https://lifehacker.com/whats-a-private-bittorrent-tracker-and-why-should-i-us-5897095)</aside>
 
 另一方面，私人网站会让你更加匿名。当然，对于那些想要监视你的人来说，它们可能是较小的目标，但是不要以为你是一个较小网站的一部分，你就可以肆无忌惮地下载。只有一种方法可以保持匿名，那就是 [使用高质量、注重隐私的 VPN](https://lifehacker.com/how-do-i-torrent-safely-now-that-demonoid-is-down-5936938) 。
 

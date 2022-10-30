@@ -4,7 +4,7 @@
 
 霍格沃茨分院帽是哈利波特神话的核心部分，已经成为西方文化中最著名的心理测试之一，比迈尔斯-布里格斯或者《你是否是凯莉》都重要。这是在 [BuzzFeed](https://www.buzzfeed.com/eleanorbate/accurate-af-sorting-quiz) ， [Pottermore](https://my.pottermore.com/user-profile/my-house?topnav) ，[the*Guardian*](https://www.theguardian.com/childrens-books-site/quiz/2015/feb/05/harry-potter-night-quiz-sorting-hat-which-house)，[many](http://sorting-hat.com/sorthatq.htm)[其他](http://www.theherald.com.au/story/4060916/what-house-is-yours-at-hogwarts-take-the-sorting-hat-quiz/?cs=2452)[sites](http://www.playbuzz.com/hannahblomgren10/what-hogwarts-house-would-you-be-sorted-into)进行的真实世界的性格测试。最近, [《时代》杂志开发了一个复杂的分院帽测验](http://time.com/4809884/harry-potter-house-sorting-hat-quiz/) ，它是基于像这样的心理测量。
 
-Watch
+
 
 在霍格沃茨，分院帽的成绩有着巨大的影响，决定着学生的社交和体育生活、学术轨迹和职业生涯。在这么小的年龄应用任何心理测试能准确地定位每个学生吗？或者是分院帽， [像科学上可疑的迈尔斯-布里格斯](https://www.washingtonpost.com/national/on-leadership/myers-briggs-does-it-pay-to-know-your-type/2012/12/14/eaed51ae-3fcc-11e2-bca3-aadc9b7e29c5_story.html) ，用还原论者的伪心理学给人分类？我问临床心理学家、哈利波特迷、YouTube 的 [心理节目](https://www.youtube.com/ThePsychShow) 的主持人阿里·马特图博士，分院帽是否被赋予了太多的权力。他的分析是:
 

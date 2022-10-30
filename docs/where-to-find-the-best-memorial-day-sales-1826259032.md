@@ -4,7 +4,7 @@
 
 寻找阵亡将士纪念日周末的交易？像往常一样，你会在这个长周末发现家用商品和电器的好价格，但你会想避开大多数科技产品。
 
-Watch
+
 
 朱莉·拉姆霍尔德是DealNews.com 的消费者分析师，她注意到旅行者可以看到多达 50%的旅游优惠。“阵亡将士纪念日周末是预订初夏或仲夏旅行的好时机，”她告诉 [Kiplinger](https://www.kiplinger.com/slideshow/spending/T062-S001-memorial-day-sales-2018-what-to-buy-what-to-skip/index.html) 。这将是你在夏末做好交易的最后机会。
 

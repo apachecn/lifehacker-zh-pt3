@@ -4,7 +4,7 @@
 
 *像*系列的 ***词根*** 聚焦于我们在各种话题上的共同点。到目前为止，我们已经解决了像 [约会](https://www.youtube.com/watch?v=clvcGbYMRtE)[投票](http://theroottv.theroot.com/video/Voting-Be-Like) 和 [节食](http://theroottv.theroot.com/video/Dieting-Be-Like) 这样的主题。最新一集聚焦于我们都非常熟悉的东西或人:网络巨魔。
 
-Watch
+
 
 从评论区(大喊到“灰色”——Kinja 内部笑话)到匿名的 Twitter 个人资料，我们都忍受了(并将继续忍受)键盘暴徒的公平份额。我每天都在网上工作，我该如何处理它们呢？我通常避免评论。但是，巨魔是无情的，他们会找到你的电子邮件地址，你的朋友或任何替代途径戳熊。
 

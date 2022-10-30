@@ -4,7 +4,7 @@
 
 做一名动物园管理员是一份相当特殊的工作。在日常携带中，阅读弗朗兹·加西亚分享他在工作中随身携带的迷你组织器。
 
-Watch
+
 
 这个包是一个[maxpeditotion 迷你口袋组织者](http://www.amazon.com/dp/B005CSYUQU/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-zookeepers-mini-organizer-1775555591&asc_source=&tag=kinjalifehackerlink-20) 。并非上图中的所有东西都能装进这个微型包里(手套、洗手液、毛巾、刀和手电筒都在其他口袋里)，但以下是他一天中所做的事情:
 

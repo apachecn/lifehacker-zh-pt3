@@ -4,7 +4,7 @@
 
 环境工作组发布了他们最新的“十大污染”名单 ，据称是含有杀虫剂的水果和蔬菜。( [这是一个误导性的列表](https://lifehacker.com/why-you-shouldnt-buy-organic-based-on-the-dirty-dozen-1689190822) ，我们之前已经解释过了。正如 EWG 所建议的，你可能会被诱惑去购买有机产品，但是猜猜看，有机产品并不是不含杀虫剂的。
 
-Watch
+
 
 有机农民可以使用杀虫剂，只要他们从的批准选项列表中选择。美国农业部有机项目 [并没有禁止*所有的*杀虫剂](https://www.ecfr.gov/cgi-bin/text-idx?c=ecfr&SID=9874504b6f1025eb0e6b67cadf9d3b40&rgn=div6&view=text&node=7:3.1.1.9.32.7&idno=7) ，只是“合成”的。(顺便说一下,“杀虫剂”一词包括杀虫剂和除草剂。)
 

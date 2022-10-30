@@ -4,7 +4,7 @@
 
 如果你预计苹果会等一周，直到它的新 iPad 开始发货，正式推出 iOS 11.3，那你就输了。iOS 11.3，所述 iPad 独享一天， [现可用于所有 iOS 设备的](https://www.apple.com/newsroom/2018/03/ios-11-3-is-available-today/) 。以下是如何找到其所有最引人注目的功能和更新:
 
-Watch
+
 
 ### 如何升级到 iOS 11.3
 

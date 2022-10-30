@@ -4,7 +4,7 @@
 
 手机截图太简单了，谁都会。拍摄屏幕视频有点困难。当你需要向某人展示你手机上发生的事情时，以下是如何录制你手机屏幕的方法。
 
-Watch
+
 
 当你想制作一个正在玩的游戏的视频，向某人展示如何在他们的手机上执行任务，或者记录你的手机正在做的一些奇怪的事情时，记录你的手机屏幕可以派上用场。从棒棒糖开始， [在 Android 上记录你的屏幕变得容易多了](http://www.androidpolice.com/2014/11/06/lollipop-feature-spotlight-apps-can-now-capture-screen-recordings-without-root/) 。要开始，你需要一个屏幕录制应用程序。
 

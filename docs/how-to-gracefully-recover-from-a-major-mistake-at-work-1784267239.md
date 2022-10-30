@@ -4,7 +4,7 @@
 
 几年前，我有一个同事——我们姑且称她为简——她被分配到我们 SVP 的办公室，参与一项备受瞩目的活动。这个项目(就此而言，还有工作人员)相当艰难，Jane 经常会在压力很大的一天结束时来找我们其他人，倾诉她对愤怒的电子邮件、不合理的要求和一般难以相处的人的不满。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-recover-from-a-huge-huge-mistake-at-work) *。*
 

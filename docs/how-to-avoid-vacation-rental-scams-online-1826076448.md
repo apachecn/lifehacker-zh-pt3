@@ -4,7 +4,7 @@
 
 度假屋租赁是一种有趣的、通常负担得起的、替代酒店的方式，但它们也较少受到监管，更容易被诈骗。骗子们想出了大量的计划，利用不存在的租金和预付现金保证金的漂亮照片，从健忘的度假者身上快速赚钱。这就是为什么你知道如何在网上识别欺诈性的列表是很重要的。
 
-Watch
+
 
 度假租赁诈骗不仅是可能的，它们也是罪犯的大生意。 [根据欺诈保护公司 Forter](https://l.forter.com/hubfs/Fraud%20Attack%20Index%20Nov%202017%20-%20Executive%20Summary.pdf?t=1517386856382&utm_campaign=MRC%20Fraud%20Attack%20Index%20Sept%202017&utm_source=hs_automation&utm_medium=email&utm_content=58506927&_hsenc=p2ANqtz-_7Fs6i5fJozQ1LspmJh_g8f5ufKVzQYOmhcr0-9mgQ5QfQOSMmcNlLj08YieA8sTPxfQwDxRPZuAQj2zNOGl8SHRQ96g&_hsmi=58506927) 的数据，2017 年旅游欺诈增加了 16%，并且还在继续上升。 [美国酒店和住宿协会的一项研究发现，每年有近 5500 万预订是在假冒的旅行社或酒店网站上完成的。幸运的是，通过少量的预订前研究，你可以避免出现在一个你已经付过钱的虚构的租赁物业。](https://www.ahla.com/press-release/new-research-reveals-online-hotel-booking-scams-are-rise-duping-consumers-translating)
 

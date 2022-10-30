@@ -4,7 +4,7 @@
 
 本周对于受柴油门排放惨败影响的近 50 万辆大众 2.0 升柴油汽车的车主来说是具有里程碑意义的一周，美国地区法官查尔斯·布雷耶(Charles Breyer)初步批准了大众与监管机构就排放作弊车辆达成的 [和解](https://jalopnik.com/volkswagen-must-offer-to-buy-back-any-diesel-four-cylin-1782730728) 。完成后，大众现在推出了一个网站，供 TDI 车主开始提交索赔。
 
-Watch
+
 
 在司法部上个月宣布大众史无前例的 147 亿美元的和解方案后，TDI 车主所能做的就是 [进行一些计算](http://jalopnik.com/heres-exactly-how-much-volkswagen-will-pay-you-for-your-1782745097#_ga=1.245847300.1418570847.1453824634) 来计算他们能从大众那里得到多少钱。
 

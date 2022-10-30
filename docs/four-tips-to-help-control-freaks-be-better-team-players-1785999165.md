@@ -4,7 +4,7 @@
 
 还记得你在学校的时候，你的老师会宣布分配一个新的 [团队项目](https://www.themuse.com/advice/how-to-make-sure-you-never-dread-a-team-project-again) 吗？如果你的教室和我的一样，你会记得听到黑板之间传来的集体呻吟的回声。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/the-control-freaks-guide-to-being-a-team-player-because-this-isnt-a-high-school-group-project) *。*
 

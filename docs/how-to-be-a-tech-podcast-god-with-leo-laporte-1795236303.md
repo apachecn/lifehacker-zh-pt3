@@ -4,7 +4,7 @@
 
 在本周的升级节目中，我们将与利奥·拉波特对话:作家、企业家、演说家，是的——科技播客之神。
 
-Watch
+
 
 狮子座主持 [*科技达人秀*](http://techguylabs.com/)*一档在 200 多家电台播出的全国性电台科技脱口秀节目。此外，他的[TWiT Netcast Network](https://twit.tv/)制作了一些世界上最受欢迎的播客，包括像*本周科技*、*现在安全！*、*新屏保*和 [2017 威比奖](http://www.webbyawards.com/winners/2017/)-获奖秀 [*三角测量*](http://www.webbyawards.com/winners/2017/podcasts-digital-audio/general-podcasts/technology/) *。**
 

@@ -4,7 +4,7 @@
 
 我们都在我们的智能手机 上保存着 [的私人信息，以照片、短信甚至访问我们财务信息的形式。苹果公司声称](https://lifehacker.com/why-you-should-care-more-about-your-smartphone-s-securi-1531990375) [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 由于[【Face ID】](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)使得所有数据更加安全，但是有一群人可能不适用:你的家人。
 
-Watch
+
 
 具体来说，Face ID 似乎很难区分兄弟姐妹。它也可能被你的孩子愚弄。 [据苹果](https://support.apple.com/en-us/HT208108) 那是因为 13 岁以下的孩子五官“可能还没有发育完全”
 

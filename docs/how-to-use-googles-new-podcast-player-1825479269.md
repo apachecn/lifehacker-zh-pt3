@@ -4,7 +4,7 @@
 
 谷歌从来没有真正的播客战略，让 Android 用户寻找第三方应用来管理他们的订阅和播放新的剧集。(苹果的独立播客应用也不是很好，但至少它 [存在](https://lifehacker.com/apples-official-podcast-app-streams-downloads-and-syn-5921442#_ga=2.120586056.1970518754.1524514905-1723114163.1524514905) 。)现在，看起来搜索巨头 [终于有了某种解决方案](https://blog.pacific-content.com/exclusive-inside-the-new-google-podcasts-strategy-that-could-double-audiences-worldwide-b556cdc26e43) 的表象，这将使你在谷歌和安卓设备上收听播客变得更加容易。
 
-Watch
+
 
 ### 通过谷歌搜索找到你的播客
 

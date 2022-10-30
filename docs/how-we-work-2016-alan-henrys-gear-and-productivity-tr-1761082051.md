@@ -4,7 +4,7 @@
 
 每周，我们都会分享我们最喜欢的专家和名人的快捷方式、工作空间和生产力提示。这个星期，我们谈论如何工作，今天，轮到我了。不知何故，我现在坐在大椅子上，所以这里是我如何保持这艘船的航向。
 
-Watch
+
 
 显然我对这个系列并不陌生。2015 年，我对 [的工作空间做了一些非常巧妙的改变](http://lifehacker.com/how-we-work-2015-alan-henrys-gear-and-productivity-tr-1686103861) (我还做了三显示器！)2014 年，我 [把自己打造成一个跨平台的挺家伙](http://lifehacker.com/how-we-work-2014-alan-henrys-gear-and-productivity-t-1519560726) 。2013 年，我被 [用爱诅咒服务注定关闭](http://lifehacker.com/how-we-work-alan-henrys-favorite-gear-and-productivity-5983834) 。在*甚至是*之前，我是 [新来的小子](http://lifehacker.com/what-we-use-alan-henry-s-favorite-gear-and-productivit-5884841) 。这是一条漫长的道路，但让我们专注于新的东西——除此之外，至少是有趣的东西。
 

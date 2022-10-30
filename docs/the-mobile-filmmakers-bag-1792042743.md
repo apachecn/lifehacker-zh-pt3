@@ -4,7 +4,7 @@
 
 有时候，你需要带着你的工作。如果你是一名电影制作人，这意味着你需要携带足够数量的设备，不多也不少。举个例子，读者 [亚历克斯·莫伦的](http://www.auralmotion.com) 包。
 
-Watch
+
 
 包里是一辆[maxpeditotion 猎鹰二号](https://www.amazon.com/Maxpedition-0513B-Falcon-II-Backpack-Black/dp/B0013AXY54/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-mobile-filmmakers-bag-1792042743&asc_source=&ie=UTF8&keywords=Maxpedition Falcon II&qid=1486397598&sr=8-1&tag=kinjalifehackerlink-20)T3。这是里面的内容:
 

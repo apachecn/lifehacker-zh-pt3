@@ -4,7 +4,7 @@
 
 随着本周假期的全面展开，我们了解了如何充分利用您的空闲时间，了解了如何将您的 Raspberry Pi 游戏模拟器提升到一个新的水平，让我们的汽车为冬季霜冻做好准备，等等。这里回顾一下。
 
-Watch
+
 
 ## [**充分利用假期休息时间的七个点子**](http://lifehacker.com/seven-ideas-to-make-the-most-of-your-time-off-during-th-1790333637)
 

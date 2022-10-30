@@ -4,7 +4,7 @@
 
 作为一个汽车购买者，你可以采取一切必要的步骤来确保你得到一个你满意的交易，但这并不总是意味着事情会顺利进行。
 
-Watch
+
 
 我们最近收到一位读者的来信，他愿意开很长一段距离，并支付全价购买一辆全新的 [大众高尔夫 R](http://buyersguide.jalopnik.com/volkswagen-golf-r-the-ultimate-buyers-guide-1730652595) 。另一方面，经销商并不真正有动力让客户满意。
 

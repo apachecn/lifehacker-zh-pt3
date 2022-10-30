@@ -9,7 +9,7 @@
 “这是一个以 20 世纪 50 年代伦敦时尚界为背景的亲密爱情故事， *Phantom Thread* 的制作如同其角色设计和穿着的高级时装一样优雅。但是不要被完美的刺绣所迷惑。保罗·托马斯·安迪生，这位受人尊敬的美国编剧兼导演大师，过于沉迷于不合群的心理，以至于无法制作一部过时的古装剧。与他神秘的人类谜题 [*【大师】*](https://film.avclub.com/the-master-1798174159) 和他几乎难以理解的托马斯·品钦侦探故事 [*【性本恶】*](https://film.avclub.com/p-t-anderson-goes-back-to-the-70s-and-noir-themes-wit-1798182170) 相比，这部新时期片看起来直截了当，甚至有所克制……但电影制作中矫揉造作的优雅掩盖了一种反常的、最终相当感人的关系研究。”
 **阅读其余我们复习** [**这里**](https://www.avclub.com/p-t-anderson-reunites-with-daniel-day-lewis-for-the-ex-1821100576) **。**
 
-Watch
+
 
 * * *
 

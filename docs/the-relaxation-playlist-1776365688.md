@@ -4,7 +4,7 @@
 
 当你需要放松时，你想要一些音乐来营造气氛。这个播放列表旨在缓解你的紧张情绪，让你的烦恼烟消云散。
 
-Watch
+
 
 来自 Spotify 用户 [Chillout Lounge](https://open.spotify.com/user/madonspurs) 的播放列表，精选了一些柔和的歌曲，作为平静的背景噪音非常棒。其中包括拉娜·德尔·雷、诺拉·琼斯和电台司令等艺术家。你还记得 [那些家伙吧](http://gizmodo.com/is-this-radioheads-new-song-1774402628) ？
 

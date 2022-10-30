@@ -4,7 +4,7 @@
 
 所有的音乐家都有不同的方法来达到他们的最佳状态，但是无论你如何练习，都不可避免地会包括一些跑步音阶的版本。当灵感来袭时，保持足够好的状态是非常乏味的。不幸的是，这已经转化为许多在键盘前受压的孩子们悲惨的下午。但是我们现在是成年人了。让我们练习聪明，而不是努力。
 
-Watch
+
 
 在 subreddit /r/ProLifeTips 上，用户 [u/banana__phone](https://www.reddit.com/user/banana__phone) 在 [帖子](https://www.reddit.com/r/LifeProTips/comments/8okrih/lpt_my_piano_teacher_told_me_its_always_better_to/) 中提到了他们从以前的钢琴老师那里得到的一个老提示:
 

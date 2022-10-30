@@ -4,7 +4,7 @@
 
 你这周中彩票了吗？好样的，伙计！这可能不会真的让你的生活变得更好，但是本周我们解释了如果你突然有了一大笔钱，你应该怎么做。这一点以及本周更多的热门帖子。
 
-Watch
+
 
 ## [如果你真的赢得了今晚的强力球头奖，该如何处理这笔钱](http://twocents.lifehacker.com/what-to-do-with-the-money-if-you-actually-win-tonights-1752573569)
 

@@ -4,7 +4,7 @@
 
 我不介意做恶梦。当你醒来时，梦就消失了。然而，最让我害怕的是，我的大脑醒了，但我的身体却不能动。那是睡眠麻痹，它会影响我们中 40%的人在[之间的任何地方。](https://www.researchgate.net/publication/225967388_The_Prevalence_of_Sleep_Paralysis_Among_Canadian_and_Japanese_College_Students)
 
-Watch
+
 
 ### 睡眠瘫痪只有在你注意到的时候才可怕
 

@@ -4,7 +4,7 @@
 
 朱利安正在市场上购买他的第一辆车，和其他美国疯子不同，他不想买一辆 700 美元的有 20 年历史的吉普车。他的目标是以低于 10，000 美元的价格买到最新、最安全、具有全天候功能的车。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

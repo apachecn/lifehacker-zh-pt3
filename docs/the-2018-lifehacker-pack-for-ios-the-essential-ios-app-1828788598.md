@@ -4,7 +4,7 @@
 
 试图找到完美的 iOS 应用程序可能很难，我们愿意打赌你的 iPhone 或 iPad 充满了一页又一页的应用程序。太多了，很难列出一个最喜欢的清单。我们理解。请允许我们用我们最新更新的 iOS 版 Lifehacker Pack 来帮助您。
 
-Watch
+
 
 ***life hacker Pack**是我们最喜欢的平台上最重要的应用程序的年度快照。对于我们不断更新的所有最佳应用程序目录，请务必将我们的* [*应用程序目录*](https://lifehacker.com/c/app-directory) *加入书签，我们在这里为 Windows、Mac、Android 和 iOS 概述了令人惊叹的应用程序——也包括浏览器扩展。*
 

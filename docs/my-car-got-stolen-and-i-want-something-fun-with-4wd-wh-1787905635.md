@@ -4,7 +4,7 @@
 
 蔡斯不得不面对所有车主的终极噩梦。他去找他的车，却发现车不见了。令人欣慰的是，他并不热衷于他的旧跨界车，无论如何，他想得到一些有趣的东西，仍然可以应付雪。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？，在这里我们给真实的人提供关于买车的真实建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

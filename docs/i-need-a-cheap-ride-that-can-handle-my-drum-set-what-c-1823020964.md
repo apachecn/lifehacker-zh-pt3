@@ -4,7 +4,7 @@
 
 Dan 是一名周末鼓手，他一直摇着一辆 2006 年的雪佛兰 Malibu Maxx(如果你需要，谷歌一下，我们可以等)，这辆车越来越旧，现在失去了一些节奏。是时候升级了。他想要一种既能处理他的装备，又不贵又不太大的东西。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

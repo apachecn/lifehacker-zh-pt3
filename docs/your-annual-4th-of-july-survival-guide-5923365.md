@@ -4,7 +4,7 @@
 
 美国生日快乐！(也祝其他人周一快乐！)在你开始 7 月 4 日的计划之前，无论是烧烤架、露营还是点燃爆炸的火药桶，让我们帮助你保持安全，战胜炎热和人群，享受更多乐趣。让我们开始吧。
 
-Watch
+
 
 今年 7 月 4 日是星期一，所以在回到工作之前，你只有 24 小时的时间来放松和/或充分利用你的假期。在这种时间紧迫的情况下，我们可以理解这看起来是多么的无望，但是不要害怕:Lifehacker 就在这里！这里有一些建议可以帮助你一头扎进去，然后完整无缺地度过假期。
 
@@ -27,11 +27,7 @@ Watch
 
 以下是一些其他的防暑方法:
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Your Annual 4th of July Survival Guide](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376) [###### 我怎样才能在睡觉的时候保持凉爽？](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376) 
 
-亲爱的 Lifehacker，我们没有空调，而且天气这么热，很容易出去…
-
-[Read more](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376)</aside>
 
 * * *
 
@@ -46,11 +42,7 @@ Watch
 
 如果你真的要出去，别忘了拍照！拍出好的烟花照片并不太难，即使你唯一的手机就是手机背面的那部。方法如下:
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Your Annual 4th of July Survival Guide](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/get-better-fireworks-photos-this-fourth-of-july-397649) [###### 在 7 月 4 日获得更好的烟火照片](https://lifehacker.com/get-better-fireworks-photos-this-fourth-of-july-397649) 
 
-当你在周五的焰火表演上抓拍照片时，你要么以巨大的…
-
-[Read more](https://lifehacker.com/get-better-fireworks-photos-this-fourth-of-july-397649)</aside>
 
 * * *
 

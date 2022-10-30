@@ -4,7 +4,7 @@
 
 几年前，我终于开了一个个人退休账户 [，或称 IRA](https://lifehacker.com/a-beginner-s-guide-to-opening-an-ira-1607498930) 。(投资的一小步，迈向成熟的一大步。)在建立了我自己的 [投资组合](https://twocents.lifehacker.com/how-to-build-an-easy-beginner-set-and-forget-investm-1686878594) 之后，我注意到了一些有趣的事情。每个季度，我都发现钱“付”进了我的账户。它们被称为红利，红利投资是一种越来越受欢迎的投资策略。
 
-Watch
+
 
 ### 股息投资如何运作
 

@@ -4,7 +4,7 @@
 
 Android:你多久会瞥一眼你的 [手机的锁屏](https://lifehacker.com/stop-turning-off-your-lock-screen-use-android-smart-lo-1778662354) ，快速浏览一列 [通知](https://lifehacker.com/hack-your-notification-badges-to-encourage-good-habits-1819139456) 然后毫不犹豫地把它们都打发掉？如果你像我一样，那几乎是每天早上。而如果你和我一样，经常会在几秒钟后找不到重要通知的时候后悔这么做。
 
-Watch
+
 
 这是第一世界需要解决的问题，现在它有了(至少在 Android 上)。 [通知历史日志](https://play.google.com/store/apps/details?id=com.ikvaesolutions.notificationhistorylog&referrer=utm_source%3Dgeekdashboard) 是一个新的 Android 应用程序，可以在一个简单的地方将所有通知保存在本地设备上。
 

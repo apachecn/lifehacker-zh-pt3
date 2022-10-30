@@ -4,7 +4,7 @@
 
 根据旅游预订网站 Hipmunk 的数据，如果你计划在这个假期旅行，最佳时间是 10 月中旬，即 [。](https://www.hipmunk.com/tailwind/hipmunks-top-holiday-travel-hacks/) 
 
-Watch
+
 
 具体来说，他们说购买圣诞机票的最佳周是 10 月 15 日那一周。那一周，你会看到平均价格为 357 美元，比高峰预订价格低 25%。对于感恩节来说，最好的购买时间是在 10 月 1 日前一周。
 

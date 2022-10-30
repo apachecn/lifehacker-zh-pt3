@@ -4,7 +4,7 @@
 
 达斯丁·韦尔奇是个游戏玩家。他是 [重生娱乐](http://www.respawn.com/) 的首席运营官， [泰坦陨落](http://www.titanfall.com/en_us/) 背后的独立游戏开发工作室。但他开始创造另一个你可能听说过的流行系列:【使命召唤】。
 
-Watch
+
 
 在重生之前，韦尔奇在游戏巨头 [动视](https://www.activision.com/) 工作了十多年，使《使命召唤》和 [吉他英雄](https://www.guitarhero.com/) 成为大片特许经营和各地游戏图书馆的常见书籍。Respawn 也取得了成功，他们的首款游戏《泰坦陨落》于 2014 年发布，广受好评。现在 [泰坦陨落 2](http://www.titanfall.com/en_us/) 将于 10 月 28 日到来，还有一款尚未透露的星球大战游戏正在开发中。
 

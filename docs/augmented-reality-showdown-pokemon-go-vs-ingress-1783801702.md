@@ -4,7 +4,7 @@
 
 四年前，一个名不见经传的名叫 [Niantic](https://www.nianticlabs.com/) 的开发者创造了 [*Ingress*](https://www.ingress.com/) 。这是一款基于位置的手机游戏，为他们的下一款大型游戏[*pokémon Go*](http://www.pokemon.com/us/pokemon-video-games/pokemon-go/)奠定了基础。两者都非常有趣，能让你走出家门，但味道却截然不同。以下是 Niantic 的两首热门歌曲的对比。
 
-Watch
+
 
 ### **比赛**
 

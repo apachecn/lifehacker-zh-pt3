@@ -4,7 +4,7 @@
 
 像新发布的[*pokémon Go*](http://pokemongo.nianticlabs.com/en/)T5】和老玩家[*Ingress*](https://www.ingress.com/)， [这样的增强现实游戏难道不是你典型的手机游戏](https://lifehacker.com/what-is-pokemon-go-and-why-is-everyone-talking-about-it-1783420761) 。他们啃你的电池 [和数据套餐](https://lifehacker.com/easy-ways-to-save-data-while-playing-pokemon-go-1783372269)——部分原因是他们不断通过 GPS 追踪你的位置。这些建议将帮助你减缓消耗，保持充电，并在你玩的时候保持舒适。 
 
-Watch
+
 
 ### **降低屏幕亮度，关掉音量，关闭后台应用**
 

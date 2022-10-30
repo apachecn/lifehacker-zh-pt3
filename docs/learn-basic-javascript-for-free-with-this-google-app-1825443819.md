@@ -4,7 +4,7 @@
 
 如果你想学习如何编码，有大量的资源可以帮助你学习。像 Codecademy、Udacity 和 Khan Academy 这样的网站可以帮助你稍微尝试一下，看看编码是否适合你。本周，来自谷歌的一个团队推出了另一个选项， [一款名为 Grasshopper](https://grasshopper.codes/) 的手机应用，可以帮助你在早晨通勤期间学习 Javascript。
 
-Watch
+
 
 该应用程序是通过 120 区开发的，这是谷歌的孵化器，为员工在“20%时间”内想要建立的项目提供服务，在这段时间里，他们可以做自己想做的事情， [*Engadget* 报道](https://www.engadget.com/2018/04/19/google-grasshopper-app-learn-code-javascript/) 。
 

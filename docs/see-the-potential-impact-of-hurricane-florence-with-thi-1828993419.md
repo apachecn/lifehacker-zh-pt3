@@ -4,7 +4,7 @@
 
 国家飓风中心预计，当佛罗伦萨飓风本周晚些时候登陆时，它将导致威胁生命的灾难性洪水 ，现在有一种工具可以让我们知道这种影响将是多么灾难性。
 
-Watch
+
 
 [这个来自 ESRI 的追踪器](https://esrimedia.maps.arcgis.com/apps/ImpactSummary/index.html?appid=7255d030407346e2add044fdbfc03e8a) 采用熟悉的预测模型，并使用它来计算误差锥内区域的一些关键人口统计数据。ESRI 的追踪器显示了佛罗伦萨规划路线中的总人口、总家庭和教育机构:
 

@@ -4,7 +4,7 @@
 
 为了获得更好的睡眠，我几乎尝试了所有能想到的方法。很长一段时间，什么都不管用:没有规律的就寝时间，草药补充剂，睡觉前关掉电脑，甚至周末不工作。
 
-Watch
+
 
 *本帖最初出现在* [*费伦斯坦丝*](https://medium.com/the-ferenstein-wire/why-stress-was-destroying-my-sleep-until-i-spent-a-weekend-without-clocks-92a906642263#.u3iradwri) *上。*
 

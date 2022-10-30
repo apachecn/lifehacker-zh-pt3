@@ -4,7 +4,7 @@
 
 在 [抵制](https://kotaku.com/nintendo-and-microsoft-are-rubbing-sonys-face-in-it-1827034233#_ga=2.93991709.1659857691.1537091587-215715416.1526250058) 这么久之后，索尼 [终于让步，允许在 PS4](https://blog.us.playstation.com/2018/09/26/extended-fortnite-cross-play-beta-launches-on-ps4-starting-today/) “选择第三方内容”上进行交叉游戏，这意味着 PlayStation 4 的所有者将很快可以在竞争对手的主机上玩同样的游戏。
 
-Watch
+
 
 在一篇博客文章中，索尼说:
 

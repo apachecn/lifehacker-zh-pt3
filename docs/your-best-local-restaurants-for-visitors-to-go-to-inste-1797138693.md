@@ -4,7 +4,7 @@
 
 我们问你 [在你的城市](https://lifehacker.com/what-local-spots-in-your-city-should-visitors-go-to-ins-1797041608) 人们应该去哪些当地景点而不是连锁餐厅，你*送来了*。我们已经为主要的大都市地区提供了建议，这样游客就不会再去糟糕的连锁店，而是把钱捐给你喜欢的地方。
 
-Watch
+
 
 这不仅仅是关于当地的大餐厅，而是关于人们应该去哪些餐厅作为主要连锁店的特定替代品，因此，我们试图将这个列表保留为那些提供类似于大包厢选择的菜肴的餐厅。感谢所有分享建议的评论者！你可以点击 查看完整讨论 [。这些类别是:](https://lifehacker.com/what-local-spots-in-your-city-should-visitors-go-to-ins-1797041608)
 

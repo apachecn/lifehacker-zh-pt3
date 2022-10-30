@@ -4,7 +4,7 @@
 
 鉴于询问事实是亚马逊 Echo 这样的智能音箱最常用的功能，Alexa 用户大概很熟悉“对不起，我不知道那个”这句话
 
-Watch
+
 
 Alexa 的知识库在不断增长，在未来的某个时候，她可能会找到以前没有的问题的答案。为此，亚马逊正在 [推出一项名为“答案更新”的新功能，](https://voicebot.ai/2018/08/06/amazon-alexa-testing-answer-updates-feature-that-will-notify-users-when-it-learns-a-new-answer/) 该功能允许 Alexa 在得知你提问时她不知道的问题的答案时通知你。
 

@@ -4,7 +4,7 @@
 
 如果你今天或昨天用过你的信用卡，你可能会注意到你不再需要花额外的 10 秒钟在你的收据上潦草的签名。
 
-Watch
+
 
 从本月开始，包括 Visa、 [American Express](http://about.americanexpress.com/news/pr/2017/amex-eliminates-signature-requirement-worldwide.aspx) 、 [Mastercard](https://newsroom.mastercard.com/2017/10/19/no-more-signing-on-the-dotted-line/) 和 [Discover](https://investorrelations.discover.com/newsroom/press-releases/press-release-details/2017/Discover-Will-No-Longer-Require-Signatures-at-Checkout/default.aspx) 在内的各大信用卡发行商都将不再要求买东西时签名。
 

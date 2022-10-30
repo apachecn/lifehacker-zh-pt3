@@ -4,7 +4,7 @@
 
 现在远程办公很容易。Skype、Slack 和 good ol' Gchat— [不好意思，Google Hangouts](http://jezebel.com/goodbye-gchat-hello-chaos-1796430899)—无论你是否在办公室，都可以轻松地与大厅或世界各地的同事交流。但是如果你担心开始一个远程办公项目，或者想和你的老板一起试运行，一定要从小处着手，并提供反馈，这将有助于你将来再次在家工作。
 
-Watch
+
 
 ### 从小处着手，因为你可能会讨厌它
 

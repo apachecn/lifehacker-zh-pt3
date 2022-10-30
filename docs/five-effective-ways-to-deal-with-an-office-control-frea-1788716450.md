@@ -4,7 +4,7 @@
 
 “我不会那样做。你为什么不试试这个？你在做什么?这是不对的。不要那样做。这样做。”听着耳熟吗？这些都是你可能从你办公室里臭名昭著的 [控制狂](https://www.themuse.com/advice/the-control-freaks-guide-to-delegating) 那里听说过的短语。而且，当你设法继续行驶而没有折断时，你正危险地接近你的极限。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/5-effective-ways-to-deal-with-the-office-control-freak) *。*
 

@@ -4,7 +4,7 @@
 
 如果你打算 [买一个埃隆·马斯克的高科技喷火器](https://gizmodo.com/elon-musk-has-already-made-5-million-selling-really-bi-1822519339) ，你知道的， [烤坚果之类的东西](https://twitter.com/elonmusk/status/957416875826262016) ，你可能会想知道在美国拥有这样一件危险的武器——呃，工具——是否合法。我给你一个提示:燃烧吧。
 
-Watch
+
 
 信不信由你， [没有联邦法律管理喷火器](https://en.wikipedia.org/wiki/Flamethrower) 或类似喷火器的装置(它们被认为是“延伸火炬”)的私人所有权。这一切都归结于各个州的法律，在很大程度上，每个人都惊讶地对你带来的压力相当冷淡。美国只有两个州限制使用这种设备:加利福尼亚州和马里兰州。它们在马里兰州被完全禁止，而 [只能在加州获得由州消防局局长](https://leginfo.legislature.ca.gov/faces/codes_displayText.xhtml?lawCode=HSC&division=11.&title=&part=3.&chapter=1.&article=) ( *让我看看你的证件，马斯克*)颁发的许可证。在加州，未能获得驾照是一种轻罪，可能会导致一年的监禁或 10，000 美元的罚款。这意味着你可以在其他 48 个州自由购买和拥有喷火器。
 

@@ -4,7 +4,7 @@
 
 通常， [我们都忙着向外看](http://lifehacker.com/tag/how-i-work) ，看看[【经常出名的】](http://lifehacker.com/im-alton-brown-and-this-is-how-i-work-1718241519#_ga=1.186299177.1055861349.1441835238) 人是如何工作的。但是每年一次，我们把镜头向内转。今天，轮到我了。
 
-Watch
+
 
 [我喜欢假装](http://lifehacker.com/how-we-work-2015-thorin-klosowskis-gear-and-productiv-1684785156) [这些年来没有什么变化](http://lifehacker.com/how-we-work-2014-thorin-klosowskis-gear-and-producti-1517507606#_ga=1.59588645.968941705.1436971740)[但是](http://lifehacker.com/what-we-use-thorin-s-favorite-gear-and-productivity-ti-5885286) 虽然很多事情保持不变，但也有很多事情是不同的(在我的情况下， [似乎主要是位置](http://lifehacker.com/what-ive-learned-from-moving-three-times-and-trashing-e-1710510176#_ga=1.71131288.968941705.1436971740) )。因此，虽然我的应用程序和其他东西基本上保持不变，但我对生活和工作的心态多年来确实发生了变化。
 

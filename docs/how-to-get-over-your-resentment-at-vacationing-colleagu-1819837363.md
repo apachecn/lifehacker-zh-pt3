@@ -4,7 +4,7 @@
 
 生活就是竞争，如果你的同事总是去度假，而你却坐在家里使用你和其他四个人分享的网飞账户，那么你特别容易觉得自己输了。
 
-Watch
+
 
 我们都有这样的同事，他们的 Instagram 账户激起了强烈的愤怒，当你愤怒地看着他们拍摄的杜布罗夫尼克的日落照片，心想:“你上个月不是刚去过冰岛吗？?"
 
@@ -64,11 +64,7 @@ Watch
 
 在社交媒体上，每个人的生活似乎都很神奇，或者当你坐在办公室的 Keurig 机器前讲述这次*巴西之旅如何比上一次更好时，充满了无忧无虑的惊奇。但是，无论某人的生活在网上看起来多么闪亮，请记住，唐纳德·特朗普仍然是总统，我们没有人能够负担得起退休，我们都离沉重的债务只有一次小小的医院访问，每个人都在内心偷偷尖叫。或者，更重要的是，每个人都有自己的奋斗和困难，其中大部分可能不会表露出来，以减轻你对*所做的好事*的感受。所以你的嫉妒几乎肯定是放错了地方。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Get Over Your Resentment at Vacationing Colleagues](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-navigate-office-politics-and-avoid-needless-dram-1643384107) [###### 如何驾驭办公室政治，避免不必要的闹剧](https://lifehacker.com/how-to-navigate-office-politics-and-avoid-needless-dram-1643384107) 
 
-我们都有过这样的经历——一封意外的电子邮件，突然间你的整个组织都充满了你的…
-
-[Read more](https://lifehacker.com/how-to-navigate-office-politics-and-avoid-needless-dram-1643384107)</aside>
 
 霍维斯告诉我们:“社交媒体是人们强调他们的生活有多么美好的地方，但它很少代表他们生活的全部。”“不安全感、羞耻感、失败和失落往往比那些快乐的时刻更常见(甚至更有意义)，但它们很少出现在你的饲料中。试着接受这样一个事实:你的正常水平不一定等于别人的最佳水平。”
 

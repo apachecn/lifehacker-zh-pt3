@@ -4,7 +4,7 @@
 
 Mozilla 声称其更新后的网络浏览器速度是上一个的两倍，并且比竞争对手——尤其是谷歌 Chrome 使用的内存少得多。它被称为 Firefox Quantum，它可能会给网络上最流行的浏览器一个机会。
 
-Watch
+
 
 ### 【Quantum 与 Chrome 相比如何
 

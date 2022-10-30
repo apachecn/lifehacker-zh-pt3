@@ -4,7 +4,7 @@
 
 iPhone 6s 和 6s Plus 的 [配备了一个很酷的新“3D touch”功能](https://lifehacker.com/all-the-new-stuff-you-can-do-with-3d-touch-on-the-iphon-1733030865) ，允许你在屏幕上稍微用力一点，就可以获得第二组菜单。应用程序需要更新才能使用这个特性，所以让我们来看看目前为止最好的实现。
 
-Watch
+
 
 大部分应用程序都更新了“快速操作”，允许你在主屏幕上用力按下图标，获得一个菜单，进入应用程序的特定部分。但也有一些有“peek and pop”功能，你可以预览笔记或电子邮件，而不用打开新的屏幕。
 

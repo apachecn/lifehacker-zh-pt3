@@ -5,7 +5,7 @@
 亲爱的 Lifehacker，
 我不是开发人员或其他什么人，但我真的对 [iOS 10 和 macOS Sierra](http://lifehacker.com/everything-apple-announced-at-wwdc-that-actually-matter-1781894130) 的新改进感到兴奋。为他们安装测试版安全吗？如果我做了，会有什么样的体验？
 
-Watch
+
 
 真诚地，
 流血的埃德加

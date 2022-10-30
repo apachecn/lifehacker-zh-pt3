@@ -4,7 +4,7 @@
 
 每当你在社交活动中遇到你想再次聊天的人，问题就出现了:怎么聊？
 
-Watch
+
 
 越来越多的人决定在脸书或 Instagram 上与我联系(为什么？？)，我选择严格限于我的实际朋友的平台。本周，LinkedIn 是我愿意与几乎陌生的人建立联系的平台之一(尽管我仍然需要见过你才能获得批准)， [让](https://blog.linkedin.com/2018/june/27/turn-your-offline-conversations-into-online-connections-with-linkedin) 更容易在你外出时使用二维码在它的平台上添加新朋友。
 

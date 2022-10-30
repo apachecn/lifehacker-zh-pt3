@@ -4,7 +4,7 @@
 
 iOS/Android:谷歌为其 Gmail 网络应用程序推出了一个巨大的新更新，其中最令人兴奋的功能之一是暂停重要邮件的功能。如果你像我一样是一个 [拖延者](https://lifehacker.com/build-this-flowchart-to-overcome-procrastination-1789952339#_ga=2.211361235.731015111.1524456678-258269408.1513265580) ，但是你更喜欢在智能手机上查看你的电子邮件，你还不算运气不好。iOS 和 Android 的 Gmail 应用程序最近也增加了贪睡功能。
 
-Watch
+
 
 如果你想稍后处理某件事，但又不想把它丢进你满满的收件箱，打盹邮件是一个很好的工具。在特定时间之前，邮件会从您的收件箱中消失。那可能是一天中你不太忙的时候，或者是周日晚上 [你为即将到来的一周](https://lifehacker.com/for-work-life-balance-work-sunday-nights-1824184227) 做准备的时候。
 

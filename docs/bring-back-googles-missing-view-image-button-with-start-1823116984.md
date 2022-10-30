@@ -4,7 +4,7 @@
 
 如果你经常使用谷歌的图片搜索，那么你可能会注意到 [公司最近从搜索结果中移除了“查看图片”按钮](https://www.lifehacker.com.au/2018/02/what-happened-to-google-image-search-and-why-you-can-no-longer-view-images-directly/) 。
 
-Watch
+
 
 这个按钮可以让你看到一张照片的全尺寸版本，而不必访问照片发布的页面。例如，你可能可以看到我在上面发布的笔记本电脑的大图，而不会看到它所附的这篇文章。
 

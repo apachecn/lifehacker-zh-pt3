@@ -4,7 +4,7 @@
 
 多亏了麻疹疫苗，麻疹不再是一种常见的儿童疾病，这种疫苗通常是通过一种叫做 MMR 的组合注射来实施的。在美国，我们很幸运，超过 90%的人已经注射了 ，并且这种疾病没有在正常的循环中传播。但是现在还不要放松——细菌会传播。
 
-Watch
+
 
 最近，世界卫生组织有一些关于欧洲麻疹的坏消息。那里的麻疹病例在 2016 年有所下降，但在 2017 年反弹。 [去年欧洲有两万多人染上此病](http://www.euro.who.int/en/media-centre/sections/press-releases/2018/europe-observes-a-4-fold-increase-in-measles-cases-in-2017-compared-to-previous-year) ，35 人死亡。
 

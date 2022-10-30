@@ -4,7 +4,7 @@
 
 昨天，苹果公司宣布了一款新的 iPhone，但是如果你打算在这个周末预订，你可能会发现它的价格为 650 美元——与许多旧款手机计划的 200 美元相差甚远。我有一些坏消息要告诉你:你的手机从来没有只值 200 美元。
 
-Watch
+
 
 最近我们谈了很多关于智能手机成本的问题。从 [买断](http://lifehacker.com/how-often-should-you-upgrade-your-iphone-an-experiment-1729328617) 到 [运营商令人困惑的购买计划](https://lifehacker.com/every-carriers-confusing-phone-buying-plans-explained-1726343203) ，购买一部手机的选择从来没有这么多，而且大部分都令人困惑。然而，它们都有一个共同的主线:所有的新计划都旨在让你明白你为手机支付了多少钱。不像以前，运营商试图将 650 美元的 iPhone 隐藏在 200 美元的补贴后面。
 

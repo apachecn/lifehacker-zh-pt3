@@ -4,7 +4,7 @@
 
 美国驻华外交官在他们的公寓 听到“奇怪的声音”后，出现头痛、恶心和听力丧失 [等症状。这与 2016 年在古巴发生的情况惊人地相似，当时 24 名外交官抱怨奇怪的声音和几乎相同的症状。声音真的会让这些人生病吗？也许吧。](https://www.nytimes.com/2018/06/06/world/asia/china-guangzhou-consulate-sonic-attack.html?emc=edit_na_20180606&amp;nl=breaking-news&amp;nlid=44985858ing-news&amp;ref=headline)
 
-Watch
+
 
 我们知道这样一个事实:高音量的 [声音会损害听力](https://lifehacker.com/why-you-need-less-noise-for-work-and-your-health-1792049040) ，以及扰乱睡眠、引起头痛、诱发压力，甚至会升高血压。但是声音不需要大到引起问题，甚至不需要听得见。这一切都归结于 [音频](https://en.wikipedia.org/wiki/Audio_frequency) ，或者说声波每秒钟出现的频率。人类可以听到 20Hz(赫兹)到 20000Hz 之间的声音。如果声音的频率高于或低于这个范围，我们就听不到。但无论我们是否听到，声音仍然会震动空气和人体，所以它仍然会以无数种方式影响我们。输入超声波和次声波。
 

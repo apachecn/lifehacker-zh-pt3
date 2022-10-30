@@ -4,7 +4,7 @@
 
 当我们不写关于或 [为什么不应该退出脸书](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) 的文章时，Lifehacker 的员工通常会翻阅他们的 [口袋清单](https://lifehacker.com/read-it-later-showdown-pocket-vs-instapaper-1756021479)[搜索 Reddit](https://lifehacker.com/if-meditation-stresses-you-out-try-this-1823969908) 或了解最新的畅销书。幸运的是，阅读是工作的一大部分。
 
-Watch
+
 
 有很多好的文章和报道，但是这些文章和书籍在本周给我们留下了深刻的印象。如果你感兴趣的话，可以收藏一些作为周末休闲阅读的书签，并让我们知道本周什么引起了你的注意。
 

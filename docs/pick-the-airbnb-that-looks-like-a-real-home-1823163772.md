@@ -4,7 +4,7 @@
 
 颠覆是混乱的。这就是问题所在——一家企业重新思考其行业的规则，迫使每个人都去争夺和重组，包括顾客。现在你的每一次购买都变成了在两种经济之间的选择。在亚马逊上购买你所有的书，你当地的书店可能会消失；无缝订购——什么！？— [你当地的餐馆可能会被归入](https://skillet.lifehacker.com/pick-up-the-damn-phone-to-order-your-food-1823004828) 。租一个 Airbnb，是的，你提高了人们的租金。但是，《大西洋月刊》的德里克·汤普森说，的[只有一点点](https://www.theatlantic.com/business/archive/2018/02/airbnb-hotels-disruption/553556/)的。
 
-Watch
+
 
 汤普森说，Airbnb 并没有真正伤害到酒店业，因为旅游业的发展足以弥补新的竞争。但 Airbnb 发现了另一个意想不到的竞争对手:任何租房的人。现在，每个居住空间都是潜在的 Airbnb 出租，任何拥有房产的人都可以选择通过 Airbnb(或 Homeaway 等竞争对手)出租，而不是租给长期居民。当你租了一个 Airbnb，尤其是一个全职 Airbnb，你会让你周围的人更难住在那里。
 

@@ -4,7 +4,7 @@
 
 阿片类药物处方如此普遍——直到最近，用量如此之大——以至于我们很多人的药箱里都有一两瓶没用完的药物。沃尔玛的药店 [现在将免费分发一包粉末](https://vitals.lifehacker.com/how-to-use-prescription-painkillers-without-getting-add-1766834234) ，里面有每一种阿片类药物处方，可以把那些药片变成垃圾，这样你就不会把它们留在那里“以防万一”
 
-Watch
+
 
 你把粉末和水加入到药瓶中，摇晃直到它变成凝胶，然后把它扔进垃圾桶。制造这种粉末的公司名为 [DisposeRx](http://disposerx.com/) ，该公司表示，这种方法可以将药丸变成无用的果冻，可以安全处理。然而，三藩市环境部 [去年得出结论](https://sfenvironment.org/sites/default/files/fliers/files/overviewmedicinedisposalproducts_21april2017.pdf) 没有对这种产品或其七个竞争对手进行足够的测试，以确定它对环境的安全性，或者它是否真的使药物无法回收和重组。
 

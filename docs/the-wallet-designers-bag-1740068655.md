@@ -4,7 +4,7 @@
 
 做一名产品设计师是一项艰苦的工作，需要各种工具。举个例子， [Bellroy](http://bellroy.com/) 联合创始人兼设计师与 Carry 分享了他的包。
 
-Watch
+
 
 袋子里是一个 [汤姆比恩突触 25](http://www.tombihn.com/PROD/TB0111.html) 。这是里面的内容:
 

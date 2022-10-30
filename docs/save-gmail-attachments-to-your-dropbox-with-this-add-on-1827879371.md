@@ -4,7 +4,7 @@
 
 所有浏览器:谷歌和 Dropbox 目前正在合作开发一款全新的“T2 邮件 Dropbox 插件”，这将使在 Gmail 中直接分享你的 Dropbox 内容变得更加容易。如果你走的是另一条路，直接把文件转储到你的 Dropbox 也容易得多，省去了你不得不打开你的下载文件夹并手动拖动文件的步骤。
 
-Watch
+
 
 Dropbox 的 [Chrome 扩展](https://chrome.google.com/webstore/detail/dropbox-for-gmail/dpdmhfocilnekecfjgimjdeckachfbec) 做了同样的事情——比这个插件现在做的更多，我稍后会描述——但安装这个插件意味着你可以从任何你想要的浏览器访问这些功能，以及现在的 [Android Gmail 应用](https://play.google.com/store/apps/details?id=com.google.android.gm&hl=en_US) 和未来某个时候的 [iOS Gmail 应用](https://itunes.apple.com/us/app/gmail-email-by-google/id422689480?mt=8)。
 

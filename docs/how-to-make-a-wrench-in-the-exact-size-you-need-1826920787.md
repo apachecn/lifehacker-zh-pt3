@@ -4,7 +4,7 @@
 
 你有没有遇到过不太适合你扳手的螺栓？你当然有。不管有多大的压力要去适应，硬件总是与期望背道而驰。当你不想再买一件特殊的设备来拆卸一个书架时，可以这么做。
 
-Watch
+
 
 Reddit 用户 u/ [uglyorgan8038](https://old.reddit.com/user/uglyorgan8038) 贴出了一个 [视频](https://old.reddit.com/r/lifehacks/comments/8r0hne/instant_spanner/) 他们在 [即时扳手](https://old.reddit.com/r/lifehacks/comments/8r0hne/instant_spanner/?ref=share&ref_source=embed) 中标注的一个“即时扳手”来自 [r/lifehacks](http://www.reddit.com/r/lifehacks) 。在夹子中，一个不太适合可用扳手的螺栓用手工制作的可调扳手松开。制造者在螺杆上使用两个六角螺母，然后移动它们的位置以精确配合螺栓的尺寸。
 

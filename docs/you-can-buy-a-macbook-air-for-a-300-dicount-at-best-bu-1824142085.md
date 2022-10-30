@@ -4,7 +4,7 @@
 
 [苹果](https://lifehacker.com/how-to-get-a-better-price-on-your-apple-watch-trade-ins-1824109008) 从未抽出时间在周二的活动上宣布一款 [新的、更便宜的 MacBook Air](https://www.techradar.com/news/apple-2018-announcements) ，但你仍有机会以折扣价获得该公司的一台 [笔记本电脑](https://lifehacker.com/check-your-macbook-battery-with-this-app-1821916984) 。就在今天，百思买正在削减一系列苹果科技产品的价格，包括当前 MacBook Air 系列的降价 300 美元。
 
-Watch
+
 
 这项临时协议将基准 MacBook Air 的价格降至 699.99 美元(低于通常的 999.99 美元)。同样的优惠也延伸到拥有更多存储空间和更快处理器的升级版 Air，尽管苹果的入门级版本对大多数人来说应该绰绰有余。(这是我使用的型号，我从未遇到过任何性能问题。)
 

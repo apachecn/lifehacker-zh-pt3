@@ -4,7 +4,7 @@
 
 距离发布还有一天的时间，但是评测单位已经在外面了，评论家们已经发现了谷歌新手机的一个隐藏的功能:这款设备有一个秘密的 [黑暗主题](https://lifehacker.com/enable-a-hidden-dark-theme-in-windows-10-apps-with-a-re-1784025828) ，解锁出奇的容易。
 
-Watch
+
 
 如果你想要一个更好看的用户界面，这里有一些方法。
 

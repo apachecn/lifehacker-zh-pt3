@@ -4,7 +4,7 @@
 
 有多少次你看到一份工作清单会让你说，“哇，这看起来很有趣，但我太有经验了？”这种情况过去经常发生在我身上——尤其是当我开始在销售组织中晋升时。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/3-questions-a-recruiter-will-ask-when-an-overqualified-person-applies) *。*
 

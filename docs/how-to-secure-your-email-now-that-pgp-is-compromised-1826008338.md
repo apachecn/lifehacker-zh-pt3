@@ -4,7 +4,7 @@
 
 如果你一直使用 PGP——Pretty Good Privacy 的缩写——来发送和接收加密电子邮件，那么可能是时候换一种不同的服务来维护你的通信隐私了。一个全新的漏洞，被戏称为 EFAIL， [可以明文泄露你的电子邮件](https://gizmodo.com/email-no-longer-a-secure-method-of-communication-after-1826002682#_ga=2.160849021.1392401934.1526304012-3846207152.1521480874) (在某些情况下甚至是更老的电子邮件)的内容。再见，秘密。
 
-Watch
+
 
 如果你只是使用你最喜欢的电子邮件服务给朋友发送常规消息， [阅读令人敬畏的时事通讯](https://lifehacker.com/the-lifehacker-staffs-favorite-email-newsletters-1821200598) ，或者让你生气的业务爆炸，这些问题根本不会影响你。你会知道你是否在使用 PGP，因为这个程序的整个前提是基于 [使用公钥和私钥](https://lifehacker.com/how-to-encrypt-your-email-and-keep-your-conversations-p-1133495744)——巨大的文本串——来加密和解密消息。理想情况下，秘密信息不仅仅是你想发送给你的另一半的有趣的猫图片。
 

@@ -4,7 +4,7 @@
 
 本周，我们终于对顶级平板电脑进行了测试，以了解 iPad Pro 与 Surface Pro 4 相比如何，了解了 iOS 9.3 的新功能，了解了发送浪漫短信的注意事项，等等。
 
-Watch
+
 
 ## [**Pro 平板对决:iPad Pro vs Surface Pro 4**](http://lifehacker.com/pro-tablet-showdown-ipad-pro-vs-surface-pro-4-1753293972)
 

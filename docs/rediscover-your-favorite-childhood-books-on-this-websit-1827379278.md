@@ -4,7 +4,7 @@
 
 那本书叫什么来着？你知道的。从我们小时候开始。这是一本 [儿童章节书](http://w1.loganberrybooks.com/stumpthebookseller/?p=5280) 关于一个家庭搬进旧校舍的故事？
 
-Watch
+
 
 还是想不起来？这就是 [难倒书商](http://w1.loganberrybooks.com/stumpthebookseller/) 的地方。俄亥俄州克里夫兰的 [罗甘莓图书](http://w1.loganberrybooks.com/) 提供这项服务，致力于帮助你记起你早已遗忘的老歌的书名。
 

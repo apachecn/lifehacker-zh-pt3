@@ -4,7 +4,7 @@
 
 夏天就要结束了，但在炎热被落叶淹没，让水变得又脏又浑浊之前，我们还有时间去游泳池。这个播放列表将为这一季的最后一场派对定下基调。
 
-Watch
+
 
 该播放列表由 [Filtr US](https://open.spotify.com/user/myplay.com) 策划，精选了 Alina Baraz、Syn Cole、Kygo 和 The Chainsmokers 等艺术家的电子舞曲，还点缀了 Coldplay 和 Rihanna 等一些大牌。在你不得不把派对带到室内之前，好好享受夏天的最后几个周末吧。
 

@@ -4,7 +4,7 @@
 
 在关于选择职业的书籍和文章中，你会看到不断争论的一个问题是“做你喜欢的事情”一个人应该“追随自己的激情”作为职业生涯的首要指路明灯吗？还是根据收入和资质选择职业更有意义？
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/the-myths-and-realities-of-doing-what-you-love/) *上。*
 

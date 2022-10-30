@@ -4,7 +4,7 @@
 
 你不需要等上四年才能对政府的运作方式有下一次发言权。总统得到了大量的报道，但政府中也有大量的日常决策，包括国家和地方决策，这些决策塑造了我们的法律和生活。以下是你如何在选举日再次到来之前让别人听到你的声音。
 
-Watch
+
 
 ### 打电话给你的国会议员
 
@@ -33,11 +33,7 @@ Watch
 
 大多数管理你日常生活的法律来自于 [你所在的州和地方政府](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392) ，所以那通常是你能产生最大影响的地方。如果你所有的新闻都来自全国性的来源，你可能会错过这个事实，所以花一分钟看看周围的社交媒体和新闻来源，让你了解你所在州和当地的最新政治动态。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Make Your Voice Heard in Politics Between Elections](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392) [###### 怎样才能让当地政府重视我？](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392) 
 
-亲爱的 Lifehacker，我一直在努力让我的市议会关注我的…
-
-[Read more](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392)</aside>
 
 为了理解这一切，你需要知道谁真正代表你。除了国家立法机构中的参议员和众议员之外，你可能还有:
 

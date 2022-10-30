@@ -8,7 +8,7 @@
 
 听听上面的内容，或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/m/Dw2murrqbhrceqayl7ctpdkepmu?t=Episode_10_How_to_Hack_Your_Brain_With_the_Bulletproof_Exec-The_Upgrade_by_Lifehacker)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/show/8-The-Upgrade-by-Lifehacker/)[Stitcher](http://www.stitcher.com/podcast/lifehacker-podcast)[NPR One](http://one.npr.org/i/522439906:522439908)。请订阅、评分、评论！
 
-Watch
+
 
 ### **本周的讨论**
 

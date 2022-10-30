@@ -4,7 +4,7 @@
 
 无论你是将一堆酸橙 预榨成果汁作为代基里酒，还是制作一大堆 [全柠檬柠檬水](https://lifehacker.com/three-delicious-ways-to-use-the-whole-lemon-1824153342) ，所有这些压榨都会对你的双手造成伤害。当然，有一种更简单的方法，它涉及到每个人最喜欢的烘焙用具。
 
-Watch
+
 
 没错，我们说的就是你的*立混音器*。为了有效地将一大堆柑橘榨汁，你需要做的就是将水果分成四份，然后把它放入搅拌器的碗中。用保鲜膜盖住碗，把搅拌器调到低速，让搅拌桨自动运转。(如果这个提示看起来很熟悉，那是因为 [之前在书评](https://skillet.lifehacker.com/america-s-test-kitchen-s-kitchen-hacks-is-cooking-for-p-1748638152) 中提到过这个提示，但出于总结的原因，我们真的想确保你看到了。)
 

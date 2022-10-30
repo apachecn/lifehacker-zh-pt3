@@ -4,7 +4,7 @@
 
 信息不足以赢得争论；他们是用花言巧语[解决的，说服的艺术。在*的《谢谢你争论*》中，作者杰伊·海因里希斯揭示了掌握修辞、识别逻辑谬误、通过说服获得你想要的东西以及防止争论演变成令人讨厌的打斗的秘密。](https://lifehacker.com/the-definitive-guide-to-winning-an-argument-1693076653) 
 
-Watch
+
 
 *<small>这是 Lifehacker 的</small>* [*<small>书评系列</small>*](http://lifehacker.com/tag/book-reviews) *<small>的一部分。不是每个生活帮都能在一篇博客文章中概括，所以我们决定回顾一些我们最喜欢的改变生活的书籍，更深入地探讨生活中最重要的话题。</small>T15】*
 

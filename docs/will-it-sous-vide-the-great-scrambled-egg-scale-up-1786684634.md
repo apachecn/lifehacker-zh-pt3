@@ -4,7 +4,7 @@
 
 嘿，大家好，欢迎回到另一部热辣热辣的 [*它会被分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏你告诉我用我的 [Anova 精密炊具](https://anovaculinary.com/) 煮什么。
 
-Watch
+
 
 本周的话题是我之前在 Lifehacker 上解决过的事情 [，但我们将深入一点，看看我们能把它推进多远。](https://lifehacker.com/all-the-ways-to-sous-vide-eggs-ranked-1754844453)
 

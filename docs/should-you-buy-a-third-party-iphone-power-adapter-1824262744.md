@@ -4,7 +4,7 @@
 
 在本周的 [Tech 911](https://lifehacker.com/c/tech-911#_ga=2.256828427.1626577895.1522540410-396842925.1520800403) 上，一位读者来信询问第三方 iPhone 适配器——具体来说，使用第三方适配器会不会让他的设备变成定时炸弹。
 
-Watch
+
 
 滴答作响？肯定不是。爆炸性？*大概*不会。你跑 [有风险](https://kotaku.com/switch-owners-say-third-party-docks-are-bricking-their-1824122777) 吗？是的。大多数人在乎吗？号码
 

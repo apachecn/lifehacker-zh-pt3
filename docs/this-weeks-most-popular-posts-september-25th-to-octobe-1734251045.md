@@ -4,7 +4,7 @@
 
 本周，苹果发布了他们对 OS X 的最新更新，谷歌推出了新的 Chromecast 和 Nexus 手机，我们解释了为什么狂热的品牌忠诚度是傻瓜才会有的。这里回顾一下。
 
-Watch
+
 
 ## [品牌忠诚度是给冤大头用的](http://lifehacker.com/brand-loyalty-is-for-suckers-1731199227)
 

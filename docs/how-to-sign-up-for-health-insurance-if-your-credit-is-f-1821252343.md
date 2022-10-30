@@ -4,7 +4,7 @@
 
 根据凯撒健康新闻[的一份报告，由于](https://khn.org/news/consumers-who-froze-their-credit-reports-could-hit-a-glitch-enrolling-in-insurance/) [Equifax 数据泄露](https://twocents.lifehacker.com/one-of-your-equifax-hack-protections-expires-soon-1821184336) ，在联邦健康交易所注册健康保险 e 的消费者今年可能会更加困难。
 
-Watch
+
 
 具体来说，如果你等到现在才注册健康保险，并在黑客入侵后冻结了你的信用卡，你可能会面临一些大麻烦。这是因为为了验证那些注册用户的身份，Healthcare.gov 邀请了另一家征信机构 Experian 向用户提问，这些问题可能只有他们自己能够回答。如果您的信用被冻结，Experian 将无法向您提问来证明您的身份。相反，你可能不得不上传或邮寄文件到健康和人类服务部。
 

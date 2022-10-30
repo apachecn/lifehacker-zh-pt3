@@ -4,7 +4,7 @@
 
 上周，我们 [在](https://lifehacker.com/preview/iphone-x-teardown-finds-more-battery-power-than-the-iph-1820118383?rev=1509728934117) [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 的引擎盖下看到了 ，露出了一对电池和一些其他惊喜。但是，如果你不想打开你闪亮的新智能手机，你仍然可以看到屏幕后面发生的事情，这要感谢 iFixit 拆解专家的新壁纸。
 
-Watch
+
 
 ### 如何获得透明的 iPhone X 壁纸
 

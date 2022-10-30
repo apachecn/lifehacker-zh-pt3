@@ -4,7 +4,7 @@
 
 在科学中，复制很重要。一个实验可能是侥幸，但如果你一次又一次地得到相同的结果，你就知道你离真相越来越近了。因此，当一个名为 [BabyGlimpse](https://www.humancode.com/babyglimpse/) 的 DNA 应用程序说它可以预测我的孩子长什么样时，我*准备好了*。我有三个孩子，所以我可以一式三份检查他们的结果。
 
-Watch
+
 
 BabyGlimpse 是去年与合作推出的数十亿 DNA 测试服务之一。你向 Helix 发送唾液样本，然后 Helix 对你的 DNA 进行排序并保存你的数据。从那里，你可以授权合作伙伴公司查看你的任何与该产品相关的数据子集。 [Insitome](https://www.helix.com/shop/insitome-neanderthal/) 会告诉你你和尼安德特人的亲缘关系有多近。 [Vinome](https://vinome.com/) 可以检查你是否有甜味偏好的标记，更好的推荐你可能喜欢的葡萄酒。BabyGlimpse 从你和你的伴侣身上查找一些 DNA 标记来猜测你们可能会生下什么样的孩子。
 

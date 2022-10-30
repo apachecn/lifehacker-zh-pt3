@@ -4,7 +4,7 @@
 
 虽然一些大学生在校园里不需要汽车，但伊玛妮去的学校相当偏僻，她需要一辆车来帮助她四处走动，并帮助她享受其他一些活动。她应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link) *)*
 

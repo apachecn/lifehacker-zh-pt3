@@ -4,7 +4,7 @@
 
 Redditor [mrrej89](https://www.reddit.com/user/mrrej89) 将这个漂亮的工作区发布到了 Battlestations subreddit 上。乍一看，这很简单，几乎有点无聊，但随后你会更仔细地看细节——从灯到键盘到显示器支架到书架，很简单，但都做得很好，建造得很好。
 
-Watch
+
 
 在 Imgur gallery(链接如下)中有大量的整个空间的照片，但线索(也链接如下)是他解释他桌子上大多数设备来自哪里的地方。他添加到桌子上的皮革垫与木头非常相配(他说他这样做是因为他不需要垫子)，他还摇着一副耳机，这是我个人最喜欢的耳机[AKG K553 Pros](http://www.amazon.com/AKG-K553-Pro-K-553/dp/B00X3MT7F6?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-deceptively-simple-workspace-1771707292&asc_source=&tag=kinjalifehackerlink-20)。这是另一张带有搁板的工作区照片:
 

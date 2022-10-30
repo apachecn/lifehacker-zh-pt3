@@ -4,7 +4,7 @@
 
 今年，安卓变得更加甜蜜。棉花糖建立在棒棒糖一年前已经很棒的基础上，加上我们有两个新的 Nexus 手机，和一堆改进的应用程序。以下是我们今年最好的 Android 帖子。
 
-Watch
+
 
 ## [最鲜为人知的合法流媒体电影电视服务](http://lifehacker.com/the-best-lesser-known-services-for-legally-streaming-mo-1686068241#_ga=1.21524667.1055861349.1441835238)
 

@@ -4,7 +4,7 @@
 
 iPhone X 即将上市，但一份新报告称苹果正在努力制造足够的复制品。据 [彭博](https://www.bloomberg.com/news/articles/2017-10-25/inside-apple-s-struggle-to-get-the-iphone-x-to-market-on-time?utm_content=tech&utm_campaign=socialflow-organic&utm_source=twitter&utm_medium=social&cmpid%3D=socialflow-twitter-tech) 报道，该公司甚至可能降低了其 [新款面部识别 Face ID 相机](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) 的精度要求，以帮助其供应商按时满足需求。
 
-Watch
+
 
 那么 iPhone Xs 会足够多吗？Face ID 会兑现苹果的宣传吗？以下是你需要知道的。
 

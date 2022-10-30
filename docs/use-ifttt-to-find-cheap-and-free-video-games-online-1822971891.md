@@ -4,7 +4,7 @@
 
 [如果是这样的话，那么](https://lifehacker.com/the-beginners-guide-to-ifttt-1819624556) 对任何事情都很有用，从 [管理你的储蓄](https://twocents.lifehacker.com/automate-your-savings-with-ifttt-1821967872) 到在 Spotify 上存档你最喜欢的 [歌曲，但是你知道你还可以用它来寻找免费的视频游戏吗？有几十个小程序(IFTTT 的名称是通过该服务使用的触发器和动作的任何组合)旨在帮助您跟踪游戏赠品。](https://lifehacker.com/ifttt-recipe-of-the-week-archive-your-musical-gems-1820345192)
 
-Watch
+
 
 在 [MakeUseOf](https://www.makeuseof.com/tag/free-game-deals-ifttt/) 发表了一篇关于使用 IFTTT 寻找在线免费游戏的报道后，我继续挖掘，发现了更多旨在帮助你追踪最新交易的小程序。这里有一个视频游戏和 IFTTT 精彩世界的快速指南。
 

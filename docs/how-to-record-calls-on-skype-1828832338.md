@@ -4,7 +4,7 @@
 
 Skype 本周宣布，它已经为其视频聊天服务增加了一项基于云的录制功能，现在你几乎可以在任何版本的 Skype 上访问该功能，Windows 10 版本除外。据[Skype 博客](https://blogs.skype.com/news/2018/09/04/introducing-skype-call-recording-now-you-can-capture-save-and-share-special-moments/) 称，它将“在未来几周内”获得通话录音功能。
 
-Watch
+
 
 要录制通话，只需按下 Skype 通话左下角的加号(+)选择“开始录音”通话中的每个人都会收到一个警告，提示您打开了录音功能，该功能将在通话过程中捕获音频以及任何视频(或共享屏幕)。当你完成录制时，要么挂断电话，要么回到同一个地方，选择“停止录制”选项。
 

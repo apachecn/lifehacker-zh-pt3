@@ -4,7 +4,7 @@
 
 任何意识到像 Equifax 或 [Kickstarter](https://lifehacker.com/15-million-hacked-kickstarter-and-bitly-passwords-are-n-1819216049) 这样的公司在处理敏感信息时记录不佳的人，可能都会好奇他们的密码有多强。通过随机生成的密码通常比你自己发明的密码更安全(看着你，“abc123”)。现在，您可以使用 1Password 检查您的密码是否是不断增加的泄露密码 [的一部分，该软件刚刚将破解的密码数据库](https://blog.agilebits.com/2018/02/22/finding-pwned-passwords-with-1password/) [Pwned 密码](https://haveibeenpwned.com/Passwords) 集成到其应用程序中。
 
-Watch
+
 
 特洛伊·亨特是“我被密码了吗” 的开发者，这是一个免费网站，允许用户输入他们的电子邮件地址，并将其与受损账户的数据库进行比较。还记得几年前 Kickstarter 和 bit . lyT5 被攻陷的时候吗？嗯，你可以使用我有没有被密码，看看你的帐户是否在名单中被攻破的帐户。使用 Pwned 密码，您可以检查您使用的其他密码的强度和受欢迎程度，并将其与超过 5 亿个公开可用密码的数据库进行比较，这些密码都与受攻击的帐户相关联。
 

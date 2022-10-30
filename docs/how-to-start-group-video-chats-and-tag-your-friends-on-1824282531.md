@@ -4,7 +4,7 @@
 
 [Snapchat](https://lifehacker.com/its-time-to-stop-using-snapchat-unless-youre-a-teen-1821919274) 本周推出两个 [新功能](https://www.snap.com/en-US/news/post/introducing-group-video-chat/) :群组视频聊天和在 [故事](https://lifehacker.com/how-to-share-snapchat-stories-outside-the-app-1822338322) 中标记好友的能力。一旦你的设备获得了应用程序更新，你需要知道如何使用它们。
 
-Watch
+
 
 与多位朋友建立视频通话就像在应用程序中创建群聊一样简单。你所要做的就是打开 Snapchat，向左滑动即可弹出聊天标签。然后，使用右上角的图标开始新的群聊，或者打开正在进行的对话。点击摄像头图标，聊天中的每个人(最多 16 人)都会收到加入您的视频通话的请求。
 

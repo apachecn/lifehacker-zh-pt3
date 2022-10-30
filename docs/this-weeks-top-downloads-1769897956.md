@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [Reddit 官方 App 让浏览 Reddit 不那么繁琐](http://lifehacker.com/reddits-official-app-for-android-and-iphone-makes-brows-1769638863)
 

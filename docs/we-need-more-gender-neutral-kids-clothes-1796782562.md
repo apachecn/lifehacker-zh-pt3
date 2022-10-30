@@ -4,7 +4,7 @@
 
 我三岁的儿子穿着他的 Paw Patrol T 恤已经有几个星期了，我才发现少了点什么。他看的剧集有六个常规角色，但只有五个在他的衬衫上。不见踪影: [斯凯](http://paw-patrol.wikia.com/wiki/Skye) ，令牌少女。
 
-Watch
+
 
 网上的一项快速调查显示这并非偶然: [男孩爪子巡逻衫](https://www.google.com/search?q=paw-patrol+t-shirt&oq=paw-patrol+t-shirt&aqs=chrome..69i57j0l5.3813j0j7&client=ubuntu&sourceid=chrome&ie=UTF-8#tbm=shop&q=paw-patrol+t-shirt+boys) 倾向于只显示雄性幼崽(有时还有它们的男性人类朋友)。但是 [每个单身女孩的衬衫上都有 Skye](https://www.google.com/search?q=paw-patrol+t-shirt&oq=paw-patrol+t-shirt&aqs=chrome..69i57j0l5.3813j0j7&client=ubuntu&sourceid=chrome&ie=UTF-8#tbm=shop&q=paw-patrol+t-shirt+girls)，并且排除了她的一些或者全部同事。如果你是男孩*或女孩*想要整个团队都穿在你的衬衫上，该怎么办？你，我的小孩，运气不好。
 

@@ -4,7 +4,7 @@
 
 WiFi 网络，尤其是免费的，总是在你真正需要的时候最难找。现在，谷歌已经让追踪一个人变得更容易了，这要归功于其数据保存应用程序 dataly 中的一个新功能 [。](https://www.blog.google/technology/next-billion-users/datally-four-new-ways-to-save/) 
 
-Watch
+
 
 Datally 是去年年底推出的，作为 Android 用户监控他们在设备上使用多少数据的一种方式。该应用主要面向发展中国家的用户，这些国家的数据非常宝贵，但对于没有无限套餐的人也很有用。
 

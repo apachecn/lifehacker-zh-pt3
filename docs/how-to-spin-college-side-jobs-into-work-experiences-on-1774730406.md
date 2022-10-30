@@ -4,7 +4,7 @@
 
 在我四年的大学教育中，我做过很多工作，包括上学期间和回到我长大的地方的暑假。我的角色从餐馆服务员到写作中心职员。当要拼凑我的第一份职业简历时，我最初对自己缺乏现实经验感到紧张。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-spin-typical-college-side-jobs-into-legitimate-work-experiences-on-your-resume) *。*
 

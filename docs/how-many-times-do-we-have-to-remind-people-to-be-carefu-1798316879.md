@@ -4,7 +4,7 @@
 
 拜托，拜托，*拜托*表现得有点理智，不要在寻找完美照片的过程中损坏博物馆的文物。例如，绝对不要把你的孩子放在一个有 800 年历史的棺材里，以免你撞倒它，打碎它。
 
-Watch
+
 
 你可能认为没人需要这么说——尤其是在有人在自拍时打碎了那尊有百年历史的西班牙雕像 之后——但是你错了。[*守护*报道:](https://www.theguardian.com/culture/2017/aug/22/museum-visitors-photo-stunt-damages-800-year-old-coffin-essex)
 

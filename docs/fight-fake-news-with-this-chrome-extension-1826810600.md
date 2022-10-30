@@ -4,7 +4,7 @@
 
 **Chrome:** 同一个开源软件公司，想 [把蹩脚的广告挡在你的浏览器之外](https://lifehacker.com/how-to-stop-sites-from-harvesting-cryptocurrency-from-y-1819712943#_ga=2.150738550.1759341111.1528682319-396842925.1520800403) 也想让“假新闻”丰富你的生活。或者，至少，Eyeo 想让你知道你最喜欢的新闻网站是否充满了 FUD 和偏见。如果那是你喜欢的茶，那就喝一大口；如果没有，你可以继续前进，知道你没有被令人发指的声明和彻底的伪造所蒙骗。
 
-Watch
+
 
 Eyeo 的全新 [可信新闻扩展](https://chrome.google.com/webstore/detail/trusted-news-for-google-c/koejmcafidkcjlncgkpjfbijkhkpchei) ，目前是 Chrome 的测试版，它根据四个不同来源的评论评估你访问的新闻网站:
 

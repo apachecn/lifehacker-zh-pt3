@@ -4,7 +4,7 @@
 
 如果你想做煎蛋卷，你必须打破几个鸡蛋，如果你想要一只干净的狗，你可能必须弄脏你浴室的一面墙。
 
-Watch
+
 
 一位 [Reddit 用户](https://www.reddit.com/r/interestingasfuck/comments/71ic4t/showering_your_dog_while_smearing_peanut_butter/) (他已经删除了自己的账户)分享了这张指导性的、鼓舞人心的 gif:
 

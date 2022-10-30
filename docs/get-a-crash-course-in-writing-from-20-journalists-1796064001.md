@@ -4,7 +4,7 @@
 
 我只记得我三年英语专业的一堂应用文写作课:只要有可能，把最好的句子放在句末。把下一个最好的放在开头，其余的放在中间。这种技巧适用于各种写作，我希望我在大学期间学习了更多类似的技巧，而不是假装阅读《卡拉马佐夫兄弟》。
 
-Watch
+
 
 写作是不用交大学学费最容易学会的技能之一。仅仅从 [开始，你就可以有一个相当稳固的开始，这是来自二十位杰出记者](http://www.metafilter.com/167584/There-has-to-be-tension-There-has-to-be-an-adversary) 的写作建议集合。Metafilter 用户 not_the_water 从文章、在线课程、播客、现场演讲和一个 [饮酒游戏](http://pitchpublishprosper.com/name-narrative-drinking-game-writers/) 中收集建议。一些亮点:
 

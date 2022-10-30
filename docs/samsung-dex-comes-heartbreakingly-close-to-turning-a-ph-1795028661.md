@@ -4,7 +4,7 @@
 
 三星 Dex 是一款小巧的新智能手机坞站，它小心翼翼地走向一个智能手机成为我们主要电脑的世界。它大约有一个冰球那么大，当连接上 [Galaxy S8](http://gizmodo.com/samsung-galaxy-s8-review-the-prettiest-phone-wins-1794526975) ，一个显示器，一个蓝牙键盘和鼠标时，Dex 将手机变成了一个功能惊人的桌面。这个想法是，你可以把你的手机放在家里、办公室等等的一个坞站里，而不是带着笔记本到处走。
 
-Watch
+
 
 对接智能手机并将其转变为全功能 PC 的概念是一个雄心勃勃的梦想，但在过去已经失败了很多次。 [Palm Foleo](http://gizmodo.com/palm-foleo-a-laptop-for-your-smartphone-264550) (从未发布) [摩托罗拉 Atrix](http://gizmodo.com/motorolas-atrix-android-phone-twin-cpu-cores-and-a-lap-5725505) (大规模翻牌)，以及 [微软 Continuum](https://www.microsoft.com/en-us/windows/continuum) (从未被广泛采用)只是实现神奇对接智能手机的几个可悲尝试。即使手机有足够的计算能力，实际体验也从未达到真正功能电脑的承诺。但考虑到 Galaxy S8 有多好，我有理由期待三星可能最终破解了这个难题。
 

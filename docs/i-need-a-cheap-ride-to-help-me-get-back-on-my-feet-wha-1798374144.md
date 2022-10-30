@@ -4,7 +4,7 @@
 
 乔经历了一段艰难的时期。去年，他丢了工作，随后又丢了公寓和汽车。但事情正在好转，他需要一辆负担得起且可靠的车，让他重回正轨。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

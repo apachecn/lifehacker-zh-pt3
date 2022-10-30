@@ -4,7 +4,7 @@
 
 优秀的设计公司苹果(Apple)将其 Apple TV 与一个漆黑的水平对称遥控器捆绑在一起。这意味着，如果你能在黑暗中找到遥控器，你很可能会抓错一端，抓住触摸板并点击错误的按钮。谢天谢地，你可以通过在你的遥控器上附加一个难看的彩色斑点来解决这个问题。
 
-Watch
+
 
 在遥控器的下半部分缠上一条胶带，或者贴上一张贴纸——你可以安全地触摸这个部分，而不会让你的 Apple TV 陷入疯狂。我用的是亮绿色的斜带 (我把它放在手边)，它在黑暗中几乎看不见，但并不显眼。黑暗中发光的材料([【贴纸](https://www.amazon.com/Captank-luminous-Sticker-Glowing-Ahesive/dp/B078NKC4KK?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/put-tape-on-your-apple-tv-remote-1825319793&asc_source=&tag=kinjalifehackerlink-20)9 美元)更引人注目，这在你寻找遥控器时很好，在你真正看电视时很糟糕。
 

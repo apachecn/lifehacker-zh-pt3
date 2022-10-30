@@ -4,7 +4,7 @@
 
 出于某种原因，我总是我们组里预订晚餐的人。我讨厌排队，所以每当我的一群朋友建议我们出去吃饭时，我通常会自愿预订，通常是通过 OpenTable，我在那里的大多数预订都可以获得 100 分。
 
-Watch
+
 
 当你达到 2000 点时，OpenTable 会给你 20 美元的外出就餐积分。如果你还没到那一步，或者即使你到了，这个假期 OpenTable[允许你把那些积分](http://blog.opentable.com/2017/donate-points-help-end-childhood-hunger-holiday-season-givingtuesday/) 捐给“没有孩子挨饿”运动，而不是自己用。
 

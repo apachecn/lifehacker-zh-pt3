@@ -4,7 +4,7 @@
 
 如果你使用亚马逊的 [愿望清单](https://lifehacker.com/best-wishlist-tool-amazon-com-universal-wishlist-5416477#_ga=2.42054181.1215127283.1520195704-258269408.1513265580) 书签来记录你想要购买的所有产品或者 [收到的礼物](https://lifehacker.com/best-wishlist-tool-amazon-com-universal-wishlist-5416477) ，你可能会注意到最近的一个变化。该公司正在逐步淘汰其旧的一键式工具，转而使用更先进(也更具侵入性)的亚马逊助手。
 
-Watch
+
 
 这个问题归结为亚马逊助手和 bookmarklet 工作方式的技术差异。旧的选择基本上只是一点 JavaScript 代码，抓取你正在看的任何产品，并将其发送到你的愿望清单。相比之下，新助手是一个更复杂的浏览器插件，可以跟踪你在网上做的一切。
 

@@ -4,7 +4,7 @@
 
 该死，我们很兴奋能回到波特兰。在本周的 Hack Your City 活动中，一百多位评论者给出了在 [游览或居住的建议。虽然快速的增长可能会扼杀这座城市的魅力，但就目前而言，波特兰仍然是一个古怪、有趣、随和的城市，在这里很难过得不好。](https://lifehacker.com/tell-us-your-portland-or-travel-tips-1827928079) 
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

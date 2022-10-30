@@ -4,7 +4,7 @@
 
 据估计，接近 30%的怀孕 [以流产](http://time.com/3849280/pregnancy-miscarriage/) 告终。然而，许多妈妈和爸爸仍然默默忍受。你如何支持失去婴儿的朋友或家人？十月是怀孕和婴儿损失意识月，在 [一个强大的 Reddit 线程](https://www.reddit.com/r/IAmA/comments/9n8cos/this_week_is_pregnancy_and_infant_loss_awareness/) 中，人们分享了你能真正做些什么来帮助他们。
 
-Watch
+
 
 ### **露面**
 

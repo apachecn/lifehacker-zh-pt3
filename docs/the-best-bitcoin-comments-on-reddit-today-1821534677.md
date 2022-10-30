@@ -4,7 +4,7 @@
 
 比特币的价格从 12 月 18 日的高点下跌了约 37%，你听说了吗？谁能预见到它。
 
-Watch
+
 
 在过去几周加密货币价格大幅上涨后，几乎每个专家都在警告会出现回调(比特币达到近 2 万美元，莱特币在今年年初的 [和 12 月 12 日的](https://www.cnbc.com/2017/12/12/litecoin-price-hits-record-high-up-nearly-5800-percent-this-year.html) 之间上涨了 5，800%)。
 

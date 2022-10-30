@@ -4,7 +4,7 @@
 
 一部被盗的智能手机可能会毁了任何人的一天，尽管我们智能手机的内置防盗软件似乎在起作用，根据旧金山地区检察官乔治·加森 [的说法，他引用了在智能手机防盗法案通过后，从 2013 年到 2016 年与手机相关的抢劫案](http://sfdistrictattorney.org/anniversary-landmark-legislation-coincides-continuing-decline-violent-smartphone-robberies) 下降了 50%的数据。
 
-Watch
+
 
 这项立法要求像谷歌和苹果这样的制造商安装防盗软件。其中大部分以激活锁和远程设备擦除软件的形式打包。它已经在你的手机里了，确定它是否真的开着非常简单。
 

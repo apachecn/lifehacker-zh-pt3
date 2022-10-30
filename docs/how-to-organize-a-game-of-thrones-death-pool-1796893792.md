@@ -4,7 +4,7 @@
 
 《权力的游戏》第七季首播就要到了。在这个星期天所有的光荣杀戮开始之前，为什么不使观看表演变得更有趣一点呢？
 
-Watch
+
 
 我们已经建议在过去运行一个*权力的游戏* [幻想草案](https://lifehacker.com/how-to-host-a-game-of-thrones-fantasy-league-draft-1772576573) ，但是[GQ 的 Scott Meslow 建议](http://www.gq.com/story/game-of-thrones-death-pool) 一些更简单的东西:死亡池。前提很简单:你和你的朋友预测这一季会有哪些角色死去。这很像一个办公室婴儿泳池，但有更多的 bloo 实际上，是的，它就像一个婴儿泳池...
 

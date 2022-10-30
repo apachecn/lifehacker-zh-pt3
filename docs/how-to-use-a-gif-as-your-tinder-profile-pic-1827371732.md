@@ -4,7 +4,7 @@
 
 如果你的普通 ol' Tinder 个人资料照片没有得到足够多的人向右滑动，现在你可以用 GIF 代替它。
 
-Watch
+
 
 约会应用 [推出了 Loops today](https://blog.gotinder.com/introducing-loops-now-on-tinder/) ，这是一个新功能，允许你创建两秒钟的视频循环，可以用作你在网站上的个人资料照片，代替传统照片。更好的是，你可以通过使用手机上现有的视频来创建一个。
 

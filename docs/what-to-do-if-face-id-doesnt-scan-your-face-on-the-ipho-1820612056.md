@@ -4,7 +4,7 @@
 
 这里有一个关于 [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 的非常具体的问题的修复。如果[【Face ID】](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)第一次不成功，你如何让它重新扫描，而不用亲自拿起手机或离开锁屏？
 
-Watch
+
 
 这听起来可能没什么大不了的，但《The Verge》指出，如果你在工作时把手机放在桌子上或支架上，这实际上可能是一个令人烦恼的问题。下面是处理这个问题的方法。
 

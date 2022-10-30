@@ -4,7 +4,7 @@
 
 如果你带着一大堆电子产品旅行，你知道把它们组织起来是很难的。在《酷工具》上，读者 Marcel Dufresne 详细介绍了他在长途旅行中与妻子共用的包。
 
-Watch
+
 
 这个包是一个 [道具手提袋](https://www.amazon.com/exec/obidos/ASIN/B01M1KE09F/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-shared-gadget-travel-bag-1792786924&asc_source=&tag=kinjalifehackerlink-20) 。这是里面的内容，但要了解每一项的更详细的解释，请前往 Cool Tools:
 

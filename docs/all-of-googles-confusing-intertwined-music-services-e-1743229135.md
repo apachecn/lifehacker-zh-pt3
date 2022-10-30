@@ -4,7 +4,7 @@
 
 上周，谷歌推出了 YouTube 音乐，引起了一些欢呼、一些抱怨和许多“他们不是已经有音乐服务了吗？”事实上，他们有好几个:首先是 Google Play Music 和 YouTube Red。但是不要被愚弄了——它们看起来是分开的，但实际上是互补的。
 
-Watch
+
 
 在新的 [YouTube 音乐](https://music.youtube.com/) 、最近推出的 [YouTube Red](https://www.youtube.com/red) 、Google Play 音乐和谷歌 Play 商店之间，没有人会责怪你对应该在哪里听音乐和应该在哪里花钱有点困惑。将其中一些服务的旧名称混在一起，如“YouTube Music Key”(现在是 YouTube Red)和“Google Play Music All Access”(现在只是 Google Play Music 和两个伟大的例子 [谷歌在命名事物](https://lifehacker.com/google-sucks-at-naming-stuff-1738016114) 方面有多么糟糕)，难怪人们会感到困惑。
 

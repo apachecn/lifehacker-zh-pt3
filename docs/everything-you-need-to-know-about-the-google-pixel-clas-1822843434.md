@@ -4,7 +4,7 @@
 
 如果你买了第一代 [谷歌像素](https://lifehacker.com/10-useful-hidden-features-on-google-s-pixel-phone-1789809296) 手机，你可能会得到一些钱。针对这家科技巨头的新的 [集体诉讼](https://lifehacker.com/how-do-i-know-if-im-part-of-a-class-action-lawsuit-5866351) 称，该公司知道该设备的麦克风有问题，并将其作为高端智能手机出售。
 
-Watch
+
 
 听到这个消息后，你可能在想怎么卷进官司。以下是你需要了解的情况，以及如果你从谷歌购买了 Pixel，你现在应该做什么。
 

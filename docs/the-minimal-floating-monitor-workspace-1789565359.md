@@ -4,7 +4,7 @@
 
 redditor[zbeegniev](https://www.reddit.com/user/zbeegniev)刚刚更新完他的工作空间，结果看起来相当清晰。它很干净，显示器很好地安装在墙上，哦，嘿——电脑实际上是*内置在桌子*里。这里还有一些照片。
 
-Watch
+
 
 将 [戴尔 U3415W](http://accessories.ap.dell.com/sna/productdetail.aspx?c=hk&l=en&s=bsd&cs=hkbsd1&sku=210-AEBV) 超宽安装在墙上已经是一个很好的开始，但除此之外，桌子是由回收的木材、制成的，完全是 DIY 工作。仅供参考， zbeegniev 也是 YouTube 上的[yethanktechchannel](https://www.youtube.com/channel/UCT7B-cFBqjYPl5OrPhJYnww)，他为桌子本身发布了这个构建视频:
 

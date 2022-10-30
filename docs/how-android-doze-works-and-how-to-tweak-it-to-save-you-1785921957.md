@@ -4,7 +4,7 @@
 
 你的智能手机做了太多的事情，以至于你觉得不可能充满电度过一天。不过，事情不一定非要这样。Android 的瞌睡功能是在 [棉花糖](http://lifehacker.com/all-the-new-features-of-android-m-1707454646) 中引入的，并在 [牛轧糖](http://lifehacker.com/all-the-new-features-coming-in-android-n-1763790001#_ga=1.29942783.1347662518.1465819317) 中得到完善，当你不使用手机时，它可以保持低电量。下面是它的工作原理，以及如何充分利用它。
 
-Watch
+
 
 ### **Android Doze 可以防止应用在你不使用时耗尽你的电池**
 

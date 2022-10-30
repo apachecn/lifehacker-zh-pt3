@@ -4,7 +4,7 @@
 
 东海岸目前正受到一个“ [炸弹气旋](https://earther.com/what-is-this-bomb-cyclone-thing-about-to-blast-the-east-1821736336) ”的袭击，这意味着北部有暴风雪，南部有雪。如果你不知何故错过了过去几天所有的世界末日天气预测和迷因，并且没有在 Trader Joe's 进货，你可能会考虑订购快递——外面真的很糟糕，你有很多皇冠要赶，你的新法兰绒床单真的很*舒适。你应该吗？*
 
-Watch
+
 
 我个人的哲学是:不。不要点任何东西。你有足够的时间去拿食物、卫生纸和任何你在里面一天需要的东西。外面正下着暴风雪，如果你住在纽约或其他大城市，给你送餐的人可能是步行或骑自行车。但是正如我们在 [Deadspin](https://adequateman.deadspin.com/is-it-ok-to-order-delivery-during-a-snowstorm-1754483886) 的朋友所指出的，送货员靠小费为生——他们没有最低工资。所以这让问题变得有点复杂。
 

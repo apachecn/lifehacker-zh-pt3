@@ -4,7 +4,7 @@
 
 谷歌巧妙地设计了 Chrome，以防止不可避免的网站崩溃导致整个浏览器瘫痪。但是，当你打开无数个标签时，这种稳定性是以巨大的内存使用为代价的。你可以使用一些工具来抑制 Chrome 的内存需求，但将标签维护变成游戏 可能是最好的解决方案。
 
-Watch
+
 
 使用像 [这样的标签管理器太多标签](https://chrome.google.com/webstore/detail/toomanytabs-for-chrome/amigcgbheognjmfkaieeeadojiibgbdp) 或 [标签管理器可以帮助对抗 Chrome 膨胀，但这就像简单地给某人一条鱼。相反，如果你教他们钓鱼——或者学会将他们的 Chrome 标签减到最少——你将有助于确保他们的笔记本电脑不会总是疲于应付。这就是](https://chrome.google.com/webstore/detail/tab-wrangler/egnjhciaieeiiohknchakcodbpgjnchh) [“呼吸者”的](https://breather.com/)[Tabagotchi](http://tabagotchi.com/)，这些虚拟宠物玩具的有趣克隆，承诺要做的事情。
 

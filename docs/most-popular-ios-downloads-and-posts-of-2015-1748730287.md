@@ -4,7 +4,7 @@
 
 iOS 凭借 iOS 9、新款 iPhones 和一款别致的新款 iPad Pro 迎来了丰收的一年。让我们用一些关于苹果移动操作系统的最大、最受欢迎的帖子来回顾这一年。
 
-Watch
+
 
 ## [如何把 Waze 变成终极导航 App](http://lifehacker.com/how-to-turn-waze-into-the-ultimate-navigation-app-1740833171)
 

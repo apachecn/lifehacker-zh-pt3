@@ -6,7 +6,7 @@
 
 已经过了很长时间，但是第一批 Steam Machines 终于来了 :紧凑型计算机，给你 PC 游戏的质量和客厅游戏机的便利。可惜大部分都很贵。以下是如何以更低的成本构建您自己的。
 
-Watch
+
 
 建造你自己的蒸汽机不仅仅是更便宜；它也更加可定制和可升级。任何个人电脑 从技术上来说都可以作为一台蒸汽机，但我们已经为客厅设计了自己的零件清单:在一个比 Xbox 或 PlayStation 稍大的紧凑外壳中进行高质量的个人电脑游戏。
 
@@ -40,11 +40,7 @@ Watch
 
 本指南假设你熟悉计算机构建的基础知识，但如果你不熟悉，你可以查看我们的完整的 PC 构建指南 了解更多。也就是说，compact case 为构建过程引入了一些有趣的怪癖，所以我们将在这里重新概述基本步骤。查看上面的视频，一步一步地查看整个构建过程，如果有疑问，请查看机箱和主板附带的说明手册，了解更多详细信息。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Build a Powerhouse Steam Machine for Hundreds of Dollars Less](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) [###### 如何建造一台计算机:完全指南](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 
 
-从零开始构建一台计算机会为您提供满足您需求的完美机器，但它可能…
-
-[Read more](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747)</aside>
 
 以下是基本步骤:
 

@@ -4,7 +4,7 @@
 
 WhatsApp Messenger([iOS](https://itunes.apple.com/us/app/whatsapp-messenger/id310633997?mt=8)、 [Android](https://www.whatsapp.com/android/) )是一个免费的消息平台，你可以用它给朋友发送消息、语音笔记、照片；给他们打电话进行快速视频通话；或者 [送秘笈](https://lifehacker.com/anonymous-chat-apps-like-signal-and-whatsapp-are-only-a-1826678815#_ga=2.160912511.315288407.1529932351-1723114163.1524514905) 。
 
-Watch
+
 
 如果你是 WhatsApp 的用户，你可能也熟悉它不那么私密的音频信息功能。如果你的朋友使用它，而你没有耳机，你的设备将通过扬声器播放你的音频信息，让你周围的人都能听到。
 

@@ -4,7 +4,7 @@
 
 [微软](https://lifehacker.com/microsoft-groove-is-going-away-so-switch-to-spotify-1819105715) 自 2015 年初首次发布 [HoloLens](https://gizmodo.com/project-hololens-hands-on-incredible-amazing-prototy-1680934585) 以来，一直在测试其混合现实概念。两年后(在三星的帮助下),该公司可能终于准备好以人们实际上可以承受的价格提供人们实际上想要的产品。
 
-Watch
+
 
 ### 迎接三星 HMD 奥德赛
 

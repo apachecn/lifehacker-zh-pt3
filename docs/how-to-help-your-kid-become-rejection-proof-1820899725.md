@@ -4,7 +4,7 @@
 
 像大多数五岁的孩子一样，贾江的儿子布莱恩经常听到“不”。但不像大多数孩子，他们可能会把这个词看作是邀请他们融化在地板上哭泣，布莱恩认为这是一个机会。或者至少这是他爸爸训练他去做的。
 
-Watch
+
 
 姜被称为“拒绝的家伙”五年前，他开始在 YouTube 上发布他的[【100 天拒绝】](https://www.rejectiontherapy.com/100-days-of-rejection-therapy/) 实验的视频，这是一次个人探索，以克服他对听到“不”这个词的深深恐惧。对于这位有抱负的企业家来说，拒绝带来的羞愧正成为一个持续的陷阱，所以他想让自己对它变得不敏感。为此，他每天都故意向陌生人提出奇怪的要求，以寻求拒绝——他在 Five Guys 要求“汉堡续杯”(没有)，在 PetSmart 要求修剪头发(也没有)，以及在一家汽车经销店的销售员那里上一堂销售课(抱歉，没有)。他也确实得到了很多支持——在 Krispy Kreme 向杰姬大声呼喊，杰姬 [大方地同意了他用甜甜圈](https://www.youtube.com/watch?v=7Ax2CsVbrX0) 制作奥林匹克标志的请求——但是实验真正给他的是无畏。现在，在听了他的 [热门 TEDx 讲述了](https://www.ted.com/talks/jia_jiang_what_i_learned_from_100_days_of_rejection) 的经历并阅读了他的书 [*拒绝证明:我如何通过 100 天的拒绝*](https://www.amazon.com/Rejection-Proof-Became-Invincible-Through/dp/080414138X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-help-your-kid-become-rejection-proof-1820899725&asc_source=&tag=kinjalifehackerlink-20) 战胜恐惧并变得不可战胜之后，人们通常会问他:父母可以做些什么来帮助他们的孩子更好地处理拒绝，这是生活中必不可少的一部分？
 

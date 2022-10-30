@@ -4,7 +4,7 @@
 
 沃伦·巴菲特为自己赢得了世界上最伟大的投资者的美誉，他还是指数基金 的超级粉丝。基金基本上是由一堆个人投资组成的大投资。如果你对 [懒惰、一劳永逸的投资感兴趣，那么](https://twocents.lifehacker.com/how-to-build-an-easy-beginner-set-and-forget-investm-1686878594) 你对它们很熟悉。但是，你如何确切地知道你的基金里有什么呢？
 
-Watch
+
 
 有几个原因可能会让你想剖析你的指数基金。也许你 [不想投资某些公司](https://twocents.lifehacker.com/how-to-divest-from-gun-stocks-1823069001) 。也许你想确保你的*绝对是*投资于他人。也许你只是好奇！无论你的理由是什么，看清楚你的基金由哪些具体的*投资或 T7]组成比你想象的要容易。*
 

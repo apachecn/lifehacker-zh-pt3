@@ -4,7 +4,7 @@
 
 越来越多的州正在制定法律，允许人们闯入滚烫的汽车去救一个孩子或宠物，而不必面对一定的法律责任。俄勒冈州 [在今年夏天制定了一个](http://www.nuggetnews.com/main.asp?SectionID=5&SubSectionID=5&ArticleID=26200) 。亚利桑那州的 [于 8 月 9 日](http://www.azcentral.com/story/news/politics/politicalinsider/2017/07/07/before-you-break-hot-car-window-kid-dog-inside-read-this-doug-ducey/460569001/) 生效。
 
-Watch
+
 
 但是在成为一个拯救他人的撒马利亚人之前，知道*什么时候*采取这个行动是很重要的。这可能很复杂。
 

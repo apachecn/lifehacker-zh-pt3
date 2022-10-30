@@ -4,7 +4,7 @@
 
 2004 年，Orbitz 校友史蒂夫·哈夫纳(Steve Hafner)共同创立了 [Kayak](https://www.kayak.com/) ，并固定了购买机票的加重流程。作为 Kayak 的首席执行官，他在 2012 年管理该公司进行 IPO，并在 2013 年被 Priceline Group 以 21 亿美元收购。我们问他是如何完成工作的。
 
-Watch
+
 
 * * *
 

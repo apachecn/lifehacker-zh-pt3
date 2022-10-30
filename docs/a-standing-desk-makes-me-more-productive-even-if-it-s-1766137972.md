@@ -4,7 +4,7 @@
 
 如今，每一次关于站立式办公桌 的讨论，都是在争论 [是否比整天坐着](http://qz.com/643073/a-respected-science-authority-says-theres-not-enough-evidence-to-say-standing-desks-are-good-for-your-health/) 更健康，或者 [那些健康益处是不是扯淡](http://www.npr.org/sections/health-shots/2016/03/17/470713717/stand-to-work-if-you-like-but-dont-brag-about-its-benefits) 。这些对我来说都不重要。然而，我的立式办公桌让我更有效率，更有创造力，总体来说更活跃。这就是我想要的。
 
-Watch
+
 
 ### **站立让我的工作更加紧迫**
 

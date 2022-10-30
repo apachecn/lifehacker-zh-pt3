@@ -4,7 +4,7 @@
 
 很少有菜肴——或时刻——不能通过添加脂肪、盐和热量来改善，这可能解释了 [nduja](http://www.academiabarilla.com/the-italian-food-academy/meats-charcuterie/nduja.aspx) 的流行，这是一种辛辣的、几乎完全红色的猪肉 salumi 出现在各地的菜单上。
 
-Watch
+
 
 虽然在一些意大利杂货店可以买到 nduja，但它并不普遍，在美国的大部分地区，自己制作可能更容易。现在，“自己制作”可以意味着两件事:你可以走完整的 [发酵-生猪肉路线](https://theroaminggastrognome.com/2015/11/12/nduja-taking-the-next-step-on-the-path-of-charcuterie/) ，或者你可以像我一样，骗你的方式去做肥美、咸、肥的食物。为了创造这种火热、油腻的近似物，我用卡拉布里亚干酪做招牌香肠汤，用帕尔马火腿做浓郁、坚果味的陈年品质，用卡拉布里亚红辣椒加热。要自己动手，你需要:
 

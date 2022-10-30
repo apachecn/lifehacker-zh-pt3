@@ -4,7 +4,7 @@
 
 在 [战斗站，subreddit](https://www.reddit.com/r/battlestations/) ， [repens](https://www.reddit.com/user/repens) 拿起一个闪亮的新超宽显示器，想用他的桌子做点儿不同的事情来容纳它。最终结果是这个好看的，最小的，不受干扰的设置。
 
-Watch
+
 
 在他的线程中向下滚动一点， [repens 详细描述了驱动整个系统的装备](https://www.reddit.com/r/battlestations/comments/400b32/something_a_little_bit_different_new_desk_for_my/cyqfooq) :
 

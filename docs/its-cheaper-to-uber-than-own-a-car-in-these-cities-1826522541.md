@@ -4,7 +4,7 @@
 
 本周，投资公司凯鹏华盈(Kleiner Perkins cau field Byers)[的玛丽·米克尔发布了她的 2018 年度互联网趋势报告](https://lifehacker.com/the-mary-meeker-report-tells-us-almost-everything-about-1826463535) 。里面有很多花边新闻，涵盖了从哪个城市可能成为下一个大型科技中心到人们如何在网上购物的方方面面。它还解决了另一个有趣的话题:在哪里使用拼车服务更好。
 
-Watch
+
 
 根据 Meeker 的报告，在美国五个最大的城市中的四个，乘坐优步比拥有一辆汽车更便宜， *Techcrunch* [在本周末](https://techcrunch.com/2018/05/30/heres-where-its-cheaper-to-take-an-uber-than-to-own-a-car/) 得到了强调。
 

@@ -4,7 +4,7 @@
 
 波多黎各的救灾工作正在进行中，来自名人和 [汽车制造商](https://www.bloomberg.com/news/articles/2017-09-28/tesla-is-sending-battery-packs-to-storm-ravaged-puerto-rico) 等的援助源源不断。然而，该岛面临的最大问题之一是缺乏卡车司机，无法从码头运送物资给需要的人。**更新:** NVOAD 和波多黎各组织[Casa puertorriquea](https://www.facebook.com/pg/puertoricanparadechicago/about/?ref=page_internal)都提供了联系方式。
 
-Watch
+
 
 对于那些有商业驾驶执照(CDL)和卡车运输经验并寻求帮助的人来说，活跃在灾难中的国家志愿组织是一个好的起点。他们是一个帮助救灾的组织协会。他们的成员包括喂养美国、喂养儿童、直接救济、希望车队、ICNA 救济和救世军，以及其他一些当地的州和地区成员( [，可以在这里查看](https://www.nvoad.org/voad-members/stateterritory-members/) )。
 

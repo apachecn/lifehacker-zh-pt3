@@ -4,7 +4,7 @@
 
 YouTube 刚刚向所有使用 Android Oreo 或更高版本设备的用户免费开放了画中画功能。该功能此前仅适用于 YouTube 高级用户。
 
-Watch
+
 
 要使用它，你只需要在你的设备上安装最新版本的 YouTube。
 

@@ -4,7 +4,7 @@
 
 亨特·S·汤普森并不完全是众所周知的圣人，人们也不倾向于向这位嗜药、有点疯狂的记者寻求人生建议。然而，通过他的边缘生活方式和与众不同的观点，他提供了许多适用于我们所有人的生活建议。
 
-Watch
+
 
 亨特·S·汤普森最出名的可能是他的几本书，[](http://www.amazon.com/Hells-Angels-Strange-Terrible-Saga/dp/0345410084/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/hunter-s-thompsons-best-life-tips-1730089346&asc_source=&ie=UTF8&keywords=hell's angels&qid=1441996832&sr=8-1&tag=kinjalifehackerlink-20)*和 [*拉斯韦加斯的恐惧和厌恶*](http://www.amazon.com/Fear-Loathing-Las-Vegas-American/dp/0679785892/ref=pd_bxgy_14_img_y?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/hunter-s-thompsons-best-life-tips-1730089346&asc_source=&tag=kinjalifehackerlink-20) ，以及他在《滚石》、《时尚先生》、《哈泼斯》等杂志上发表的报道。他还竞选过科罗拉多州的治安官，众所周知他吸食大量毒品并酗酒，最终在 2005 年自杀。也就是说，从表面上看，汤普森不像是我们任何人都应该接受生活建议的人。然而，尽管如此，他仍然有一个迷人的世界观，我们都可以从中吸取一些东西，即使不是直接效仿他。*
 

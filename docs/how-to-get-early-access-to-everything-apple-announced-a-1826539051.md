@@ -4,7 +4,7 @@
 
 一个新的苹果应用商店！黑暗模式！ [桌面堆栈](https://gizmodo.com/all-the-new-features-coming-in-macos-10-14-mojave-upda-1826531489#_ga=2.122514123.11446851.1528118734-3846207152.1521480874) ！ [群组 FaceTime](https://gizmodo.com/here-are-the-coolest-features-in-ios-12-updating-1826497656#_ga=2.122514123.11446851.1528118734-3846207152.1521480874) ！ [迪克特蕾西模式](https://gizmodo.com/watchos-5-0-will-turn-your-apple-watch-into-a-dick-trac-1826487963#_ga=2.122514123.11446851.1528118734-3846207152.1521480874) 给你的 Apple Watch！今天是 WWDC 日，苹果公司今天早上为其各种平台发布了大量新功能。(不，你没有获得更多的免费 iCloud 空间，是的，你的 Macbook Pro 键盘仍然很糟糕。)
 
-Watch
+
 
 当苹果今天发布的产品面向公众时，获得这些产品的最好方法是自愿帮助苹果测试版测试其操作系统。
 

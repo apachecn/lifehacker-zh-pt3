@@ -4,7 +4,7 @@
 
 我的一副 [Grado SR80e 耳机](http://lifehacker.com/headphone-showdown-grado-sr80e-vs-audio-technica-ath-m-1744161005) 是我最珍贵的财产之一。我喜欢躺在我的沙发上听专辑《今日》(我准备好了 [4:44](http://thegrapevine.theroot.com/jay-z-to-drop-new-album-4-44-on-june-30-1796218730) )。但多亏了苹果勇敢的决定，取消了耳机插孔，我不能在没有 Lightning 适配器的情况下将我的 SR80s 插入 iPhone 7，因为它，我还没有从我的 iPhone 6 升级。
 
-Watch
+
 
 但今年预计会有一款新的 iPhone 出现，虽然我确实认为是时候做出改变了，但我想在这个勇敢的新世界里继续使用我最喜欢的耳机。所以我买了一些蓝牙耳机适配器，我觉得你也应该买。它不仅能让我在新手机上使用耳机，还能让我连接到各种设备，而不用弄乱电缆。
 

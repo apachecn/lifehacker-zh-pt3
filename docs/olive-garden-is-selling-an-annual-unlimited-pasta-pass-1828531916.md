@@ -4,7 +4,7 @@
 
 橄榄园今年第五次带回它永不停息的面食通行证。现在，这项服务还附带了一个年度选项，让你一年 365 天都能吃到所有的意大利面、肉丸、沙拉和面包条，只需 300 美元， [*市场观察*报道](https://www.marketwatch.com/story/olive-garden-to-offer-full-year-never-ending-pasta-pass-promotion-for-300-2018-08-22) 。
 
-Watch
+
 
 没错——所有你的胃一天能吃的不到一美元的意大利面。
 

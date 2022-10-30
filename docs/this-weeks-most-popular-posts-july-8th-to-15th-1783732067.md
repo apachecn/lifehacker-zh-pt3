@@ -4,7 +4,7 @@
 
 本周，世界为《精灵宝可梦 Go》疯狂，我们就在那里与你一起找出如何节省电池寿命，保存数据，并在保持安全的同时抓住它们。但我们也“抓住”了其他话题，比如在工作中学习，不发疯地招待你的父母，等等。
 
-Watch
+
 
 ## [**什么是*神奇宝贝 Go* 为什么大家都在谈论它？**](http://lifehacker.com/what-is-pokemon-go-and-why-is-everyone-talking-about-it-1783420761)
 

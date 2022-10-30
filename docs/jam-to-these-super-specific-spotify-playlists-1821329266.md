@@ -6,7 +6,7 @@
 
 作家格蕾丝·斯佩尔曼把歌曲像乐高积木一样收集起来，放在一个精心分类的工具箱里。她有 20 多个 Spotify 播放列表，追踪一个特定的概念，如[2000 年代的对话开头](https://open.spotify.com/user/129623282/playlist/5kg63c18xAzbtPcicgWrQ1) ，以及她的代表作 [歌曲，用于短暂关注跨度](https://open.spotify.com/user/129623282/playlist/4Ezg9FAWAWSNONTbU1XcFb) ，其中包括 200 多首“完全在中间切换”的歌曲在她与大纲的视频访谈中，了解更多关于她的爱好。
 
-Watch
+
 
 [https://open.spotify.com/embed/user/129623282/playlist/4Ezg9FAWAWSNONTbU1XcFb](https://open.spotify.com/embed/user/129623282/playlist/4Ezg9FAWAWSNONTbU1XcFb)
 

@@ -4,7 +4,7 @@
 
 庆幸的是，你可以 [下载网飞电影和电视剧](http://lifehacker.com/netflix-adds-offline-viewing-for-phones-and-tablets-1789512369) 离线观看。不幸的是，默认情况下，它只下载到你的内置存储器，这可能导致一些缓慢，混乱的手机。如果你想用 SD 卡上的额外空间来看那些奇怪的东西，以下是方法。
 
-Watch
+
 
 ### **方法 1:手动将所有内容复制到您的 SD 卡上**
 

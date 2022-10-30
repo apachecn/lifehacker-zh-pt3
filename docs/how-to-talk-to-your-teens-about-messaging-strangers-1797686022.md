@@ -4,7 +4,7 @@
 
 如果在今天早上关于潜在儿童间谍迪士尼和维亚康姆应用 的 [故事之后，你没有动摇焚烧你的智能设备并鼓励你的家人全力以赴罗恩·斯旺森，对广受欢迎的 Kik Messenger 应用的严厉检查可能会说服你准备好喷灯。](http://lifehacker.com/stop-mickey-mouse-from-spying-on-your-kids-1797656454#_ga=2.222324377.340414407.1502113341-1066327814.1498537403) 
 
-Watch
+
 
 [*【福布斯】*和](https://www.forbes.com/sites/thomasbrewster/2017/08/03/kik-has-a-massive-child-abuse-problem/#4e332fca1a14) [*的联合调查点报告*](https://www.forbes.com/sites/thomasbrewster/2017/08/03/kik-has-a-massive-child-abuse-problem/#4e332fca1a14) 揭露了该应用对儿童掠夺者的轻松交流访问的一些令人担忧的具体情况。
 

@@ -4,13 +4,9 @@
 
 如果你有一部 iPhone，你已经拥有了制作专业视频所需的一切。无论你只是涉猎还是视频奇才，你都可以 [拍出好看的视频](https://lifehacker.com/how-can-i-shoot-better-video-on-my-smartphone-5933663) 让人不会相信你用了手机。以下是方法。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Everything You Need to Shoot Good-Looking Video With Your iPhone](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-shoot-better-video-on-my-smartphone-5933663) [###### 如何在智能手机上拍摄更好的视频？](https://lifehacker.com/how-can-i-shoot-better-video-on-my-smartphone-5933663) 
 
-亲爱的生活黑客，我绝不是一个有抱负的电影导演，但我从来没有对…
 
-[Read more](https://lifehacker.com/how-can-i-shoot-better-video-on-my-smartphone-5933663)</aside>
 
 你可能已经知道 iPhones(或任何智能手机)能够拍摄精彩的视频，但我想知道你是否真的知道有多棒。这里花点时间来看看《T2》的预告片，这是一部全长 87 分钟的电影，在 2015 年圣丹斯电影节上首映。
 

@@ -4,7 +4,7 @@
 
 说脏话可以很有趣，或者帮助我们发泄愤怒、痛苦或沮丧。但这并不总是合适的，如果你说脏话是一种坏习惯，那么停止并不太难。
 
-Watch
+
 
 ### **有一个负责任的伙伴**
 
@@ -36,11 +36,7 @@ Watch
 
 你的邪恶盒子可以把钱投向任何东西，只要你不喜欢它或者它以某种方式对你产生负面影响。甚至有一些应用软件 可以帮助你轻松建立自己的“反慈善系统”或者给你的朋友寄钱，让他们用这些钱来支付自己的恶作剧费用。加大赌注，给自己一些真正的激励。当然，如果你要惩罚自己，你也应该奖励自己。不要犹豫，庆祝一天不骂人，或者独自一人时庆祝一整周只骂人。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Stop Swearing so Damn Much](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/stick-to-your-goals-with-an-anti-charity-system-1635715975) [###### 用反慈善系统坚持你的目标](https://lifehacker.com/stick-to-your-goals-with-an-anti-charity-system-1635715975) 
 
-如果胡萝卜不管用，那就该是大棒的时候了。而不是奖励自己遇见…
-
-[Read more](https://lifehacker.com/stick-to-your-goals-with-an-anti-charity-system-1635715975)</aside>
 
 ### **掩盖事故**
 

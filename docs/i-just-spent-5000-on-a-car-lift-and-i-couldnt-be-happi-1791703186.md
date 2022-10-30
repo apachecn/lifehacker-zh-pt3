@@ -4,7 +4,7 @@
 
 作为一种爱好，摆弄汽车需要你接受这样一个事实:除非你是托尼·斯塔克，否则你不会拥有与你的抱负相符的设备。然而，花相当于一辆二手本田思域的钱买一套工具，可以让你离梦想中的大师级修补匠更近一步。
 
-Watch
+
 
 在我欣赏汽车的大部分时间里，我不得不在我父母家不太安全的前院做我的汽车项目，勇敢地面对被称为新泽西州严冬和严夏的中国骗局。
 
@@ -12,11 +12,7 @@ Watch
 
 安装和维修，从对 [的轻微修改到完全成熟的动力传动系统互换](http://thegarage.jalopnik.com/heres-how-i-installed-a-jdm-twin-turbo-engine-in-my-40-1690791231#_ga=1.240996288.2128168652.1483464859) ，都是按照任何有自尊的后院或前院机械师的方式进行的:腹部朝下躺在肮脏的混凝土上，液体顺着我的肘部往下滴，脑海中萦绕着这样一个想法:如果我负责救我于死地的港口货运千斤顶莫名其妙地失败了，我很可能是自作自受。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--jalopnik" data-commerce-source="inset">[![Image for article titled I Just Spent $5000 On A Car Lift And I Couldn&#39;t Be Happier](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://jalopnik.com/heres-how-i-installed-a-jdm-twin-turbo-engine-in-my-40-1690791231) [###### 我是如何在我价值 400 美元的雷克萨斯 SC300 上安装 JDM 双涡轮增压发动机的](https://jalopnik.com/heres-how-i-installed-a-jdm-twin-turbo-engine-in-my-40-1690791231) 
 
-让汽车变得更好有一个经过科学验证的公式:增加动力，直到有东西坏掉。
-
-[Read more](https://jalopnik.com/heres-how-i-installed-a-jdm-twin-turbo-engine-in-my-40-1690791231)</aside>
 
 一个带有某种汽车升降机的车库，将汽车提升到一个舒适的工作高度将是理想的，但即使有现金可用，我也无法做到这一点，因为空间是一个溢价。如果没有保险索赔，我父母老旧的单车位车库根本放不下一辆路虎揽胜。它肯定无法安装让我在上面工作更容易的东西。
 

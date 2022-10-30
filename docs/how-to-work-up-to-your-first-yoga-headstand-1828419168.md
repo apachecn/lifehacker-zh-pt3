@@ -4,7 +4,7 @@
 
 倒立很难，但是 [我在进步](https://vitals.lifehacker.com/how-to-approach-handstands-when-youre-still-kinda-scare-1828256190) 。既然我们这个月的重点是 [颠倒过来](https://lifehacker.com/let-s-get-upside-down-for-the-august-fitness-challenge-1828029407) ，不管你喜欢什么方式，我想我也应该尝试一些瑜伽倒立。我今天做了第一次倒立！
 
-Watch
+
 
 我用了阿德里安视频 中的技巧来指导初学者倒立。你从手肘撑地开始，把你的手做成一个小摇篮。你的头顶放在地板上，双手像圆顶小帽一样盖在脑后。
 

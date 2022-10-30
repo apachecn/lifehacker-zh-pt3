@@ -4,7 +4,7 @@
 
 你好，我最亲爱的，欢迎回到另一个节日的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 
-Watch
+
 
 [在我们上一次的话题选择环节](http://skillet.lifehacker.com/will-it-sous-vide-lets-pick-another-topic-1788607016) 中，我们选择了感恩节大餐，因为，让我们面对现实吧，大多数人对大餐的关心远远超过对火鸡的关心。没有哪一方胜出，所以我决定尝试我最喜欢的三种:玉米面包酱、土豆泥和蔓越莓酱。
 

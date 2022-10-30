@@ -4,7 +4,7 @@
 
 据说我对餐饮业有独特的见解。我是一名企业家，拥有加州大学戴维斯分校的有机化学博士学位，我与人共同创办了一家名为 [Senspoint](https://senspointdesign.com/) 的感官设计公司，帮助公司从所有五种感官的角度增强产品和体验的设计。
 
-Watch
+
 
 当我们在食物和饮料中听到“感官”这个词时，我们的大脑通常会直接想到盘子或杯子。虽然我的味觉训练有素，但我们公司也帮助客户关注盘子或玻璃之外的空间的所有感官方面——从空间的声音到气味、温度和触觉。令人惊讶的是，我们周围的潜意识和感官元素在我们用餐时的整体体验中扮演了多么重要的角色。我知道这一点是因为我天生失明，没有任何 [光感](http://www.visionaware.org/info/your-eye-condition/eye-health/low-vision/low-vision-terms-and-descriptions/1235#LightPerception_and_LightProjection) (感知光线存在与否的能力)。
 

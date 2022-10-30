@@ -4,7 +4,7 @@
 
 如果你的 [智能家居](https://lifehacker.com/how-to-build-a-smart-connected-home-with-stringify-1763921515) 小玩意不能用一个 [语音指令](https://lifehacker.com/preview/how-to-control-your-fire-tv-with-alexa-voice-commands-1820886580) 来控制，那它到底算不算智能？
 
-Watch
+
 
 亚马逊 Echo 和谷歌 Home 的崛起意味着每一款新的联网设备都需要与 Alexa 和谷歌助手等基于语音的人工智能助手配合工作，但这并不意味着你需要在升级上花费大量资金。有便宜的开发板可以让你的最新作品通过智能扬声器响应语音命令。如果你刚刚入门，两个值得一试的选项是 [粒子光子](https://www.particle.io/products/hardware/photon-wifi-dev-kit)(19 美元)和[c . h . I . p .](https://getchip.com/pages/chip)(9 美元)。
 

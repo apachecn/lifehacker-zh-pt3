@@ -4,7 +4,7 @@
 
 我们都很熟悉这样一个愚蠢的形象:当一个人似乎无法入睡时，他会去数绵羊。但是当你整晚辗转反侧的时候，失眠可不是闹着玩的。
 
-Watch
+
 
 *本帖原载于* [*Amerisleep 博客*](http://www.amerisleep.com/blog/natural-insomnia-remedies/) *。*
 

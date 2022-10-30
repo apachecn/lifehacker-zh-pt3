@@ -4,7 +4,7 @@
 
 本周我们的 [Hack Your City](https://lifehacker.com/c/hack-your-city) 读者 [在阿姆斯特丹](https://lifehacker.com/tell-us-your-amsterdam-tips-1823084488#_ga=2.29547769.791742682.1519138172-1297080755.1497980211) 上写了 73 条带提示的评论，比如去哪里吃喝，如何保持安全，如何出行，以及去城外哪里。这里有一个最好的例子。(然后去读完整的线程；许多评论者给出了完整的推荐列表。)
 
-Watch
+
 
 *<small></small>*<small>[*<small>Hack Your City</small>*](https://lifehacker.com/c/hack-your-city)*<small>每周一，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及对游客和当地人的任何其他建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。</small>T15】*</small>
 

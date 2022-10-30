@@ -4,7 +4,7 @@
 
 有时候，当我在办公桌前坐了几个小时，我会想坐着是如何杀死我们的，我应该如何真正休息一下，出去散步或锻炼。然后我起床，把午餐带到我的桌子上，继续工作。
 
-Watch
+
 
 有提醒你休息一下的 app，像 [超时](https://itunes.apple.com/us/app/time-out-free/id402592703?l=en&mt=12) ，但是它们一直让我很烦。不，我*不想让我的电脑在我正忙着的时候阻止我工作五分钟。但是 [懒汉](https://itunes.apple.com/app/sluggard-healthy-break/id1160131071?mt=12) 有点不一样。我喜欢懒汉。*
 

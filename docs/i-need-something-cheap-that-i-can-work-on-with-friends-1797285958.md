@@ -4,7 +4,7 @@
 
 Brandon 喜欢在项目车的引擎盖下与朋友一起度过他的业余时间。这个计划的问题是布兰登没有太多的经验，但他和他的朋友们在技巧上的不足将在决心上得到弥补。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

@@ -4,7 +4,7 @@
 
 26 岁的玛吉·麦库姆斯(Maggie McCombs)是肯塔基州列克星敦的一名内容营销人员和社交媒体顾问，她从小就认为自己的家庭在苦苦挣扎。
 
-Watch
+
 
 *本帖原载于*[*learn vest*](https://www.learnvest.com/2016/08/break-bad-money-habits-you-picked-up-from-your-parents/)*。*
 

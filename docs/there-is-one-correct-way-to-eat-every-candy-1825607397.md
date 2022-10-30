@@ -4,7 +4,7 @@
 
 我对糖果很认真。史蒂夫·阿尔蒙德的 [*糖果点心:穿越美国巧克力腹地之旅*](https://www.amazon.com/Candyfreak-Journey-through-Chocolate-Underbelly/dp/0156032937?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/there-is-one-correct-way-to-eat-every-candy-1825607397&asc_source=&tag=kinjatakeoutlink-20) 是我的福音，有一年夏天，我花了太多的可支配收入，试图让我家附近的老式糖果店继续营业。(他们关门了，但在此之前我已经沉迷于 [博伊尔冰沙](https://www.boyercandies.com/smoothiecups.aspx) 。)
 
-Watch
+
 
 这种对糖果的崇敬并不新颖或不寻常，但也许我的方法论是。我向你提交一个我在几十年的糖果消费中总结出来的统一理论:吮吸，而不是咀嚼，是从几乎任何糖果中获得最佳口味和质地的最佳方式。
 

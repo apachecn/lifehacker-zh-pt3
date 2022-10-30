@@ -4,7 +4,7 @@
 
 除了 [特朗普支持者的垃圾邮件](https://gizmodo.com/reddit-is-finally-fixing-its-trump-spam-problem-1792061056) 和 [令人毛骨悚然的虚假名人色情](https://gizmodo.com/reddit-bans-ai-powered-fake-porn-1822808136) ，Reddit 仍然是令人振奋的对话、有用的信息和怪异的视频的家园。关键是，而且一直是，订阅正确的子编辑。Lifehacker 团队在下面分享了我们的最爱。
 
-Watch
+
 
 <section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 

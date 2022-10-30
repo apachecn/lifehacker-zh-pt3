@@ -4,7 +4,7 @@
 
 自谷歌发布 [Android 8.0 奥利奥](https://lifehacker.com/how-to-install-android-oreo-on-your-phone-1798732967) 以来，已经过去了 [三个月](http://fieldguide.gizmodo.com/11-things-you-can-do-in-android-oreo-that-you-couldnt-b-1798337832) ，但除非你正在使用该公司的 [自有设备](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085#_ga=2.157501882.1225073181.1511792732-1313785359.1499701416) ，否则你仍有可能错过最新版本的 Android。
 
-Watch
+
 
 像三星、LG、HTC 和索尼这样的手机制造商经常需要几个月的时间才能将每个安卓系统更新到他们最新的高端智能手机上。如果你正在使用一部半新的手机，并想知道你的 Android 8.0 更新何时会到来，这里有你需要知道的东西——按手机制造商分类。
 

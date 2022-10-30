@@ -4,7 +4,7 @@
 
 做任何类型的职业改变都是艰难的。在某些情况下，这几乎是不可能的——不管你记住多少关于追随激情的励志名言。但是你仍然可以在不转行的情况下做出改变。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/5-awesome-alternatives-if-a-complete-career-change-is-out-of-the-question) *。*
 

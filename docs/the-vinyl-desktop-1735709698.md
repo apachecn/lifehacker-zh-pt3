@@ -4,7 +4,7 @@
 
 Ilango 的 Windows 10 桌面可能看起来不像 WIndows 10，但它确实反映了他对音乐的热爱。随着节奏移动的可视化工具和一些小部件让整个事情看起来很棒。他是这样设置的。
 
-Watch
+
 
 你不一定要有 Windows 10 才能做到这一点——只要任何一台 Windows 机器都可以。事实上，我们愿意打赌，你可以在 OS X 或 Linux 中使用 GeekTool、bersicht 或 Conky 完成同样的任务——但这个桌面是用 Rainmeter 制作的。以下是获得相同外观和感觉所需的内容:
 

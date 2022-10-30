@@ -4,7 +4,7 @@
 
 如果你担心你的枪支股票敞口，晨星公司有一份 [新报告](http://news.morningstar.com/articlenet/article.aspx?id=853199) 关于如何发现你的资金是否投资于这些公司以及你可以做的一些事情。(并阅读我们关于 [撤资](https://lifehacker.com/how-to-divest-from-gun-stocks-1823069001) 的通论。)
 
-Watch
+
 
 根据报告，你会想避免接触美国户外品牌(AOBC)、Sturm Ruger (RGR)和 Vista Outdoor (VSTO)，这三个品牌都是 AR-15 的“版本”。为了避免它们，就你的投资组合提出以下三个问题。
 

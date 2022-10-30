@@ -4,7 +4,7 @@
 
 在这一集里，我们将谈论失传的谈话艺术。加入我们的是播客和健谈者 [肯·普拉姆](http://asitecalledfred.com/category/a-bit-of-a-chat-with-ken-plume/) ，他对梅尔·布鲁克斯和约翰·克立斯等人进行了广泛的采访。我们讨论了肯是如何开始对与任何人交谈感到舒适的，他是如何处理鸡尾酒会上的尴尬的(提示:这涉及到一种蕨类植物)——然后我们发明了一个首字母缩写词，它将帮助你处理任何会话挑战。的排序。)
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/9bee815f-cefe-45f4-96c9-49b9ec86749c/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/9bee815f-cefe-45f4-96c9-49b9ec86749c/embed)
 

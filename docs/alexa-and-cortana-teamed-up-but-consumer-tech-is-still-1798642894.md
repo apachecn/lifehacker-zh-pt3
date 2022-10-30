@@ -4,7 +4,7 @@
 
 语音接口 Cortana 和 Alexa 将很快能够为一个比另一个做得更好的功能激活彼此， [亚马逊和微软今天宣布](https://www.nytimes.com/2017/08/30/technology/amazon-alexa-microsoft-cortana.html) 。这种合作我们在 [、五大](https://www.nytimes.com/2017/05/10/technology/techs-frightful-five-theyve-got-us.html) 之间看得不够多，也没有任何一家公司真正走出了“拼命拼凑合作伙伴关系，让我们看起来相关”的阶段，进入了“放弃所有不会将客户锁定在我们糟糕的生态系统中的合作”的阶段。
 
-Watch
+
 
 Cortana 和 Alexa 的竞争对手谷歌助手和 Siri 不会很快整合。正如 Gizmodo 指出的，谷歌和苹果有更多的用户被锁定在他们的生态系统中，所以他们的与竞争系统合作的动力要小得多。通过联合力量，微软和亚马逊承认他们已经输掉了移动领域的战争，(现在是 [占主导地位的用户界面](http://www.smartinsights.com/mobile-marketing/mobile-marketing-analytics/mobile-marketing-statistics/) )，并坚持自己的核心竞争力:微软负责商务沟通，亚马逊负责消费。
 

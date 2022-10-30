@@ -4,17 +4,13 @@
 
 说到家务，几乎不可能记得你开始做什么，谁应该做什么，还有什么要做。所以你最后得到了一个清理了一半的冰箱，一个可以咳出灰尘团的吸尘器(“鲍勃不是应该清空这个东西吗？!")，还有一种总觉得一切总是歪的感觉。
 
-Watch
+
 
 你需要一个视觉。你需要一个系统。你可能需要看板。
 
 吉姆·本森和托尼安妮·德玛利亚·巴里在《个人看板:测绘工作|导航生活》一书中解释道 *，*看板是一个管理你的待办事项的简单系统。要了解它是如何工作的，请阅读我们的 [使用个人看板](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640) 指南。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Use a Kanban to Delegate and Track Family Chores](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640) [###### 生产力 101:如何使用个人看板来可视化你的工作](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640) 
 
-最好的效率方法是让你的待办事项摆在你面前，并按优先顺序排列，这样你就永远不会…
-
-[Read more](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640)</aside>
 
 这个系统可以通过使用你可能放在抽屉里的便利贴来实现家务管理。(添加到看板的第一项任务是:清理这个糟糕的抽屉。)
 

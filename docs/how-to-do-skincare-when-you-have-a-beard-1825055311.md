@@ -4,7 +4,7 @@
 
 我们最近写了关于 [为什么护肤很重要，以及你在日常生活中需要什么](https://vitals.lifehacker.com/lifehackers-essential-science-based-guide-to-skin-care-1824029261) 。我们的消息来源强调，每个人，甚至男性，都应该每天使用防晒霜，通常也要使用保湿霜。但是一个评论者尖着嗓子问:嗯，如果我有胡子呢？
 
-Watch
+
 
 那个评论者是鸭嘴兽人， [下面是他的确切问题](https://kinja.com/platypus22222#_ga=2.250174982.1031111347.1522636791-1456718367.1520458611) :
 

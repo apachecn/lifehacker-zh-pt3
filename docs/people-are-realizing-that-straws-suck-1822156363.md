@@ -4,7 +4,7 @@
 
 吸管正变得有争议。长期以来，一次性吸管作为一种废物来源一直被忽视，也许是因为它们无视分类的方式，一次性吸管现在引起了环境社区的愤怒，政策制定者开始注意到这一点。
 
-Watch
+
 
 正如《洛杉矶时报》 [报道](http://www.latimes.com/politics/essential/la-pol-ca-essential-politics-updates-california-lawmaker-would-prohibit-1516142365-htmlstory.html) 所言，加州众议员、民主党人伊恩·卡尔德龙“周二表示，他计划在本周提出立法，禁止加州的静坐餐厅向顾客提供吸管，除非他们提出要求。”
 

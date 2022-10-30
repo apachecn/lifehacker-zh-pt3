@@ -4,7 +4,7 @@
 
 上周末，我去了亚特兰大最大的极客派对，和其他书呆子一起狂欢。周六，我休息了一会儿，开始抓狂，开始质疑自己作为一个人的价值，哭到筋疲力尽。然后回到派对。这就是我患有焦虑症时的生活。
 
-Watch
+
 
 根据美国国家精神卫生研究所的，焦虑症沿着 [一个完整的谱系](http://www.nimh.nih.gov/health/topics/anxiety-disorders/index.shtml) 。其中最常见的是 [广泛性焦虑症](http://www.nimh.nih.gov/health/topics/generalized-anxiety-disorder-gad/) ，这是最接近我处理的问题，但你也可能患有引起突然和反复恐慌发作的恐慌症，或者在与其他人打交道时往往会突然出现的社交焦虑症。
 

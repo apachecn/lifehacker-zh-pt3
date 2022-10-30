@@ -4,7 +4,7 @@
 
 Spotify 的热门播放列表中男性比女性多得多。根据 Baffler 上一篇全面的、充满统计数据的专题文章，不仅是算法播放列表再现了音乐行业的普遍不平等，还有策划播放列表的不平等。例如，Spotify 的[2017](https://open.spotify.com/genre/2017-top-playlists)最佳策划播放列表是 [RapCaviar](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DX0XUsuxWHRQd?si=3tnK9gC4R0OgGBKLAkUnOQ) ，这是一个拥有 900 万粉丝的旋转五十首曲目播放列表。在《困惑者》追踪的整整一个月里，它收录了一首由女性领唱的歌曲。*一个*。
 
-Watch
+
 
 这种不平衡可能会渗透到你的每周发现播放列表中，所以如果你只是跟随 Spotify 的指引去听什么，你可能会只听男歌手的歌。Spotify 对此的“修复”是一个 Smirnoff 品牌的应用程序，它会“均衡”你的播放列表；app 现在 [没了](http://smirnoffequalizer.com/) 。
 

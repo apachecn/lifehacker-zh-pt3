@@ -6,7 +6,7 @@
 
 今天是圆周率日，还有什么比回顾一下每个人最喜爱的 35 美元业余爱好者电脑树莓派更好的方式来庆祝每个人最喜爱的数学常数呢？自从树莓派发布以来，我已经写了大量的指南、博客和一本 [已经过时的书](https://www.amazon.com/Idiots-Guides-Raspberry-Thorin-Klosowski/dp/1615647783?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/what-i-ve-learned-from-tinkering-with-the-raspberry-pi-1793236686&asc_source=&tag=kinjalifehackerlink-20) 关于你可以用它做的各种项目。在那段时间里，我学到了很多。
 
-Watch
+
 
 ### 故障排除是你必须练习的生活技能
 

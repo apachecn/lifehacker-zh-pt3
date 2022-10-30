@@ -4,7 +4,7 @@
 
 微软凭借其最新设备 Surface Pro 4 和 Surface Book 引起了巨大轰动。这些昂贵的产品旨在与苹果在高端产品上的传统霸主地位直接竞争。但这些最新产品与苹果相比表现如何呢？
 
-Watch
+
 
 我们决定通过将新 Surfaces 与其最接近的竞争对手进行比较来找出答案。下面是我们对 MacBook Pro 和 Surface Book 以及 iPad Pro 和 Surface Pro 4 的面对面比较。
 

@@ -4,7 +4,7 @@
 
 据美国消费者新闻与商业频道 T3 报道， [为了留住那些注册信用卡享受一次性奖励并在不久后取消信用卡的消费者，发卡机构开始提供年度积分奖励。](https://www.cnbc.com/2018/07/30/credit-card-companies-offer-points-for-well-doing-nothing.html) 
 
-Watch
+
 
 例如， [西南快速奖励优先](https://creditcards.chase.com/a1/southwest/promonaep) 卡每年提供 7500 积分(如果你在第一年消费 15000 美元，它还会给你 25000 积分)，而旅行卡[Barclays Arrival Premier World Elite](https://cards.barclaycardus.com/cards/barclays-arrival-premier-world-elite-mastercard.html)卡每年给用户 15000 积分，如果他们在卡上消费 15000 美元。 [温德姆奖励签证签名](https://www.barclaycardus.com/apply/Landing.action?campaignId=2284&cellNumber=12&referrerid=Oct16SliderWHRNVP) 卡每年奖励用户 6000 奖励积分。
 

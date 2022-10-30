@@ -4,7 +4,7 @@
 
 设定一个目标并竭尽全力去实现它并没有错，但是当你试图爬上职业阶梯时，野心和急躁之间是有细微差别的。你如何判断你是要求太多还是太咄咄逼人？
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-know-if-youre-being-ambitiousor-just-plain-old-impatient?ref=home-small-tile-0) *。*
 

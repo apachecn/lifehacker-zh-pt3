@@ -4,7 +4,7 @@
 
 由于 2018 年 [被预测为汽车销售放缓的一年](https://jalopnik.com/car-sales-in-2017-weren-t-great-and-the-future-is-looki-1821753824#_ga=2.144027701.1090588317.1518438727-1994775140.1484332562) ，经销商正使出浑身解数让你进入展厅。总统的周末通常是购车的好时机，但是一些所谓的交易并不能真正提供你所期望的省钱。
 
-Watch
+
 
 我们在[*【CarsDirect.com】*](https://www.carsdirect.com/deals-articles/avoid-these-fake-deals-for-presidents-day-2018)的朋友计算了一些全国性广告交易的数字，期待着总统的周末购车热潮，结果发现有些交易并不像看上去那么好。
 

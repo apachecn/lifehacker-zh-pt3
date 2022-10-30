@@ -4,7 +4,7 @@
 
 在梦发生后记得你的梦，或者在做梦的时候意识到自己在梦里，这可能很有趣，但并不容易做到。
 
-Watch
+
 
 [*科学警报*](https://www.sciencealert.com/researchers-suggest-three-tips-for-lucid-dreams) 报道称，只有大约一半的人能够意识到自己正在做梦，只有四分之一的人声称自己经常做清醒梦。然而，如果你想记住你的梦，研究人员提出了一种可能对你有用的技术。他们的工作最近发表在 [*做梦*](http://psycnet.apa.org/doiLanding?doi=10.1037%2Fdrm0000059) 上。
 

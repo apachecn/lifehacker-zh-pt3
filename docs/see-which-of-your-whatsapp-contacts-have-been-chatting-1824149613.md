@@ -4,7 +4,7 @@
 
 [脸书一直在监视我们](https://lifehacker.com/facebook-isn-t-recording-your-conversations-but-it-may-1820193946) ，推而广之，它旗下的公司也是如此，比如 [Instagram](https://lifehacker.com/how-to-clean-up-your-instagram-explore-feed-1824030593) 和 [WhatsApp](https://lifehacker.com/watch-out-for-this-fake-whatsapp-app-in-the-google-play-1820222637) 。现在，一个应用程序正在扭转局面，让你使用他们悄悄收集的所有数据来监视你自己的 WhatsApp 朋友和联系人。
 
-Watch
+
 
 [Chatwatch](https://www.chatwatch.net/) 利用 WhatsApp 的公开在线/离线状态功能，让你的朋友知道你什么时候有空聊天。利用这些数据，该应用程序可以告诉你朋友查看 WhatsApp 的频率。它甚至可以估计他们每天睡觉和醒来的时间。
 

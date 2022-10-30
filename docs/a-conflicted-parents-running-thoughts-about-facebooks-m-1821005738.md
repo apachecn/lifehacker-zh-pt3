@@ -4,7 +4,7 @@
 
 本周一， [脸书推出了 Messenger Kids](https://offspring.lifehacker.com/how-to-sign-your-child-up-for-facebooks-new-messenger-k-1820971864) ，这是一款针对幼儿的 Messenger 版本。以下是我的跑步思路:
 
-Watch
+
 
 *   儿童脸书？天啊，不要！
 

@@ -4,7 +4,7 @@
 
 欢迎来到生活黑客！不管这是你第一次还是第一千次来这里，你可能会想浏览一下我们的档案。这里有一个有用的帖子、类别和技巧的索引，可以帮助你找到你想要的东西。
 
-Watch
+
 
 如果您想直接跳到索引的某一部分，请单击下面的链接之一:
 
@@ -29,11 +29,7 @@ Watch
 *   [**我们为什么要黑客:不服从的好处**](https://lifehacker.com/why-we-hack-the-benefits-of-disobedience-5672997) :“黑客”往往有负面的内涵，但也可以是正面的东西。黑客只是意味着找到一个聪明的方法来做得更好。有时这是好的，也是完全道德的，就像找到一种更快的方法来查看你的电子邮件收件箱。其他时候，它在道德上更可疑。但是有一个我们经常覆盖的灰色区域——无论是 [翻录 DVD](https://lifehacker.com/is-it-legal-to-rip-a-dvd-that-i-own-5978326)还是 [构建一个 Hackintosh](https://lifehacker.com/the-always-up-to-date-guide-to-building-a-hackintosh-o-5841604)——都有积极的好处，即使它们可能被用于邪恶的手段。这篇文章解释了这些行为背后的哲学。
 *   [**为生命黑客辩护**](https://lifehacker.com/in-defense-of-life-hacking-1041245898) :在过去的几年里，生命黑客变得比以前主流得多。有些人——偶尔也包括我们——走得太远，以至于我们浪费的时间比节省的时间还多。这篇文章强调了当你试图砍掉太多生活时会遇到的一些问题，以及如何找到快乐的中间点。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Lifehacker: The Index](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/is-it-legal-to-rip-a-dvd-that-i-own-5978326) [###### 翻录我自己的 DVD 合法吗？](https://lifehacker.com/is-it-legal-to-rip-a-dvd-that-i-own-5978326) 
 
-亲爱的 Lifehacker，我翻录所有的 DVD 和蓝光光盘真的合法吗？大多数的…
-
-[Read more](https://lifehacker.com/is-it-legal-to-rip-a-dvd-that-i-own-5978326)</aside>
 
 这也只是开始。你也可以通过前往找到各种介绍性的帖子。无论你是在寻找如何备份你的电脑，如何建立你的第一个预算，或者如何远程访问你的电脑的指南，你都可以在那里找到。
 
@@ -93,11 +89,7 @@ site:lifehacker.com Evernote
 *   [Lifehacker Pack](http://lifehacker.com/tag/lifehacker-pack) :我们每年对每个平台上必备应用的总结
 *   从提示框[:读者提交的提示的双周综述](http://lifehacker.com/tag/from-the-tips-box)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Lifehacker: The Index](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-lifehacker-app-directory-curates-the-best-apps-for-5803257) [###### Lifehacker 应用程序目录为您的所有设备精选了最佳应用程序](https://lifehacker.com/the-lifehacker-app-directory-curates-the-best-apps-for-5803257) 
 
-Lifehacker 的应用程序目录是一个不断维护和更新的最佳目录…
-
-[Read more](https://lifehacker.com/the-lifehacker-app-directory-curates-the-best-apps-for-5803257)</aside>
 
 你也可以看看我们每年的最佳帖子，看看每个类别中的一些顶级帖子，这是了解过去几年 Lifehacker 的一个好方法。
 

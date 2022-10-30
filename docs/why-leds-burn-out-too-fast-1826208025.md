@@ -4,7 +4,7 @@
 
 你知道吗，当连接到调光开关或旧电线时，普通的 LED 灯泡会很快烧坏，比白炽灯泡还快。我当然不知道，直到我客厅里所有昂贵的发光二极管都灭了！
 
-Watch
+
 
 如果你想让你的 LED 变暗，你需要可调光灯泡*和* LED 友好的调光开关。财经网站 Money 说 [甚至可调光的 led 可能在旧的调光开关](http://time.com/money/4281001/led-bulbs-need-know/) 中不起作用。照明网站 Lux 表示 [LED 就绪调光开关可能无法与常规 LED](http://luxreview.com/article/2015/07/dos-and-dont-s-for-led-dimming)一起工作。(如果将节能灯 [连接到调光开关，或者过于频繁地开关它们，它们也会很快烧毁](https://www.houselogic.com/remodel/painting-lighting/cfls-light-bulbs/) 。)
 

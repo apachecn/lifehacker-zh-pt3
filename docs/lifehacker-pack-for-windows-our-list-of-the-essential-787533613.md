@@ -4,7 +4,7 @@
 
 Windows 有很多优秀的程序，我们数都数不过来，但是有些程序对于每台电脑的安装都是必不可少的。在今年的年度 Lifehacker Pack for Windows 中，我们强调了提高工作效率、通信、媒体管理等的必备下载。
 
-Watch
+
 
 ***life hacker Pack**是我们最喜欢的平台上最重要的应用程序的年度快照。对于我们所有最好的应用程序的不断更新的目录，请务必将我们的* [*Windows 应用程序目录*](https://lifehacker.com/the-lifehacker-app-directory-windows-5825399) *加入书签。*
 

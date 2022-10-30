@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [Kodi 得到一个全新的默认皮肤，你现在就可以试用](http://lifehacker.com/kodi-gets-a-brand-new-default-skin-that-you-can-try-out-1763742769)
 

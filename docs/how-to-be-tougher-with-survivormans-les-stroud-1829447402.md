@@ -4,7 +4,7 @@
 
 本周我们和热播电视剧《幸存者》的创作者和主演 [莱斯·斯特劳德](http://www.lesstroud.ca/) 聊聊爱丽丝和专职作家尼克·道格拉斯与莱斯谈论了如何成为生存专家，以及他发现几乎不可能忍受的生存的一个方面。我们的老朋友，离婚律师 [詹姆斯·j·塞克斯顿](https://lifehacker.com/how-to-save-your-relationship-with-divorce-lawyer-jame-1825292713) 也加入了我们。詹姆斯告诉了我们发展厚脸皮的五个步骤——也就是情感上的。另外，一个新的部分！
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/714a181d-46c6-49e5-bb6e-9bd7f86cfe22/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/714a181d-46c6-49e5-bb6e-9bd7f86cfe22/embed)
 

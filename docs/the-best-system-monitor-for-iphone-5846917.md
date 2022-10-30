@@ -4,7 +4,7 @@
 
 乍一看，系统显示器在你的 iPhone 上可能不像在台式电脑上那么有用，但它们可以包含大量有用的数据。这包括详细的电池寿命故障、存储空间、数据速度等。对于普通用户来说，我们最喜欢的 iPhone 系统显示器是 Omnistat。
 
-Watch
+
 
 ### [Omnistat](https://itunes.apple.com/us/app/omnistat-system-status-activity/id898245825?mt=8)
 

@@ -6,7 +6,7 @@
 
 本周的午休锻炼非常适合腿不能动的人，或者就是不想动的人。没错，你不用离开椅子就可以锻炼上半身和核心肌群。
 
-Watch
+
 
 在视频中，金莎不停地向国家健康、身体活动和残疾中心大声呼喊。如果你想知道更多尽管残疾也能做的动作，看看他们的网上轮椅练习指南 和他们的 [YouTube 频道](https://www.youtube.com/user/NCPAD) ，里面有从 [自闭症儿童瑜伽](https://www.youtube.com/watch?v=wUNgrw91BlI) 到 [如何跳上、弹出和跳上你的轮椅](https://www.youtube.com/watch?v=KXs20VzEYKQ) 的所有内容。
 

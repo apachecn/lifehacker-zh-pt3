@@ -4,7 +4,7 @@
 
 这是一年中我们都要表达感谢的时候，除了其他事情，我们 Lifehacker 感谢所有改善我们生活的免费应用程序(以及开发它们的开发者！)以下是我们最喜欢的 50 个。
 
-Watch
+
 
 每年我们都会问你 [哪些免费应用是你最感谢的](https://lifehacker.com/what-free-apps-are-you-thankful-for-this-year-1789300978) ，每年你都会给 [一大堆建议](http://lifehacker.com/top-10-clever-uses-for-dropbox-5933884) 既有 [经典](http://lifehacker.com/search-engine-showdown-google-vs-bing-1739263052) 又有 [新](https://lifehacker.com/how-to-turn-waze-into-the-ultimate-navigation-app-1740833171) 。在这里，我们接受了您的投票(并添加了一些我们自己的投票),并使用这些投票作为(粗略)指南对我们的 50 款应用进行了排名。所以事不宜迟，这里有 50 个免费的应用程序供你下载。(一定要看看 2016 版的 [线程](https://lifehacker.com/what-free-apps-are-you-thankful-for-this-year-1789300978)——还有一大堆我们没有提到的应用呢！)
 
@@ -30,11 +30,7 @@ Watch
 类别:电子邮件
 另请参阅: [十大 Gmail 实验室和功能您应该启用](https://lifehacker.com/top-10-gmail-labs-and-features-you-should-enable-5721986) ， [如何使用这些提示、快捷方式和插件来掌握 Gmail](https://lifehacker.com/master-the-new-gmail-with-these-tips-shortcuts-and-ad-5861810)， [内置于 Gmail 中的十大巧妙技巧](http://lifehacker.com/top-10-clever-tricks-built-right-into-gmail-5903974) ， [使用这些用户风格和用户脚本](http://lifehacker.com/fix-gmails-newest-annoyances-with-these-userstyles-and-5857983?tag=gmail) ， [解决 Gmail 的最新问题您需要了解的一切](http://lifehacker.com/everything-you-need-to-know-about-gmails-new-super-co-511765933)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The 50 Free Apps We&#39;re Most Thankful For](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/top-10-gmail-labs-and-features-you-should-enable-5721986) [###### 您应该启用的十大 Gmail 实验室和功能](https://lifehacker.com/top-10-gmail-labs-and-features-you-should-enable-5721986) 
 
-如果 Gmail 不够强大，你可以在 Gmail 中找到各种各样的好东西和额外的功能
-
-[Read more](https://lifehacker.com/top-10-gmail-labs-and-features-you-should-enable-5721986)</aside>
 
 ### 5. [谷歌 Chrome](http://www.google.com/chrome/)
 

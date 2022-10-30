@@ -4,7 +4,7 @@
 
 你可以获得 Goodreads“想读”清单上所有书籍的销售提醒。每当其中一个在 Kindle、iBooks、Nook、Google Play 或 Kobo 上打折时，你都会收到一封电子邮件。(这只适用于电子书，不适用于纸质书。)
 
-Watch
+
 
 在 Goodreads 网络界面，进入你的 [账户设置](https://www.goodreads.com/user/edit) ，点击“交易”选择“我想阅读的书架上的交易”你也可以根据作者、流派或受欢迎程度来收集交易，但这会让你的收件箱变得杂乱。
 

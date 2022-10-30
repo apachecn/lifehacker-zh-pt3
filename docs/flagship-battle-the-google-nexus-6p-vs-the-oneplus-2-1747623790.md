@@ -4,7 +4,7 @@
 
 有大量的 Android 旗舰可供选择，但如果你想要一款脱离运营商的手机，让你控制你的体验，你有两个大的选择:谷歌的 Nexus 6P 和 OnePlus 2。撇开规格不谈，你应该买哪个？好吧，下面是他们长期使用后的对比。
 
-Watch
+
 
 ### 竞争者
 
@@ -45,11 +45,7 @@ Nexus 6P 和 OnePlus 2 都吸引同一类型的买家:厌倦了信任运营商�
 
 ****OnePlus 2 对电池的管理也很好，只是没有*和*好。可能是因为它还在运行棒棒糖，或者像有些人说的，氧气电池重。我没什么印象。然而，我确实喜欢 OxygenOS 权限编辑器，它可以让你从你已经安装的应用程序中删除一些更耗电的功能(当然，在T3 有破坏这些应用程序 T5】的风险)。)轻度使用时，我可能一天左右就要充电一次，但重度使用时，你肯定会想在晚上插上电源，甚至更早。如果你是一个手机游戏玩家，那么，你知道该怎么做。****
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">****[![Image for article titled Flagship Battle: The Google Nexus 6P vs. The OnePlus 2](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-does-this-android-app-need-so-many-permissions-5991099) [###### 为什么这个安卓应用需要这么多权限？](https://lifehacker.com/why-does-this-android-app-need-so-many-permissions-5991099) 
 
-亲爱的 Lifehacker，我上周看了你关于 Chrome 权限的文章，但我想了解一下…
-
-[Read more](https://lifehacker.com/why-does-this-android-app-need-so-many-permissions-5991099)****</aside>
 
 ### ****照相机****
 
@@ -66,11 +62,7 @@ Nexus 6P 和 OnePlus 2 都吸引同一类型的买家:厌倦了信任运营商�
 
 ****如果你的手发抖，你可能会喜欢 OnePlus 2 的光学图像稳定功能，或者你可能会喜欢它更高级的设置和拍摄模式(“清晰图像”和“美颜”模式是从一加回来的。)Nexus 6P 的摄像头也很好(尤其是在 4K 视频公司)，尽管你需要一个第三方应用程序来真正输入你的设置。普通的摄影师可能不会注意到这种差异，但高级用户将能够指出 6P 的弱光问题和照片应用程序缺乏功能。****
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">****[![Image for article titled Flagship Battle: The Google Nexus 6P vs. The OnePlus 2](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-camera-app-for-android-5821240) [###### 安卓最佳相机应用](https://lifehacker.com/the-best-camera-app-for-android-5821240) 
 
-无论你的安卓手机有一个令人惊叹的摄像头还是一个普通的摄像头，都有大量的应用程序
-
-[Read more](https://lifehacker.com/the-best-camera-app-for-android-5821240)****</aside>
 
 ### ****判决****
 

@@ -4,7 +4,7 @@
 
 当我还在大学的时候，和你的朋友“玩游戏”意味着在公共区域跟踪单一的 PlayStation 2 直到 Madden 玩家放弃它，和那个把他的 Xbox(和 [大屁股公爵](https://www.microsoft.com/en-us/p/hyperkin-duke-wired-controller/8xm0xhx3mk23) )拖到他的宿舍的家伙交朋友，或者加入通过以太网连接的四台 Xbox 一起参加每周一次的 Halo 死亡比赛的团队。
 
-Watch
+
 
 现在，如果你和你的新校园伙伴想一起玩游戏，你可以回到你的宿舍，把 [黑光灯](https://www.youtube.com/watch?v=XTZ0PbJShFM) 切换到派对模式，然后在网上找到他们。如果你想在玩游戏的时候和他们一起玩，可以进行语音或视频聊天。如果你想计划下一次公会突袭，不要写在他们宿舍的白板上；只需在 [不和谐](https://discordapp.com/) 中发帖(或者对他们的 Twitch 流发表评论)。
 

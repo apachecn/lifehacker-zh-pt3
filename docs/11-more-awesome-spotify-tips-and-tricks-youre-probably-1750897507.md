@@ -4,7 +4,7 @@
 
 即使你每天听 Spotify，也有很多你可能不知道的功能。无论你是想炫耀你正在听的歌曲，完全隐藏你的收听活动，还是想充分利用像 Discover Weekly 这样的新功能，这里有一些很棒的 Spotify 功能，就在你的眼皮底下。
 
-Watch
+
 
 ### **收听(并存档)Spotify 的 Discover Weekly 播放列表**
 

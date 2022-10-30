@@ -4,7 +4,7 @@
 
 到目前为止，你的常规锻炼就像出门前的呼吸或穿裤子一样成了你的第二天性，但现在*某事*——一次延长的家庭度假或一次受伤——已经把你的日常工作从你身上扯掉了。一天不锻炼已经让你坐立不安了。一周或更长时间不锻炼？哦，不，慌了！
 
-Watch
+
 
 嘿，一切都会好的。真的。
 
@@ -22,11 +22,7 @@ Watch
 
 *让*恢复健康的过程取决于你开始时的健康程度，你是否进行耐力或力量训练，以及*你有多不活跃或者计划有多不活跃。我的意思是，如果可能的话，你会尽你所能去散步、做瑜伽或骑自行车吗？还是你成了坐沙发的专家？***
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled How to Deal With the Anxiety of Not Being Able to Exercise](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-most-common-exercise-injuries-and-how-you-can-avoi-1659615551) [###### 最常见的运动损伤(以及如何避免)](https://lifehacker.com/the-most-common-exercise-injuries-and-how-you-can-avoi-1659615551) 
 
-受伤是痛苦的，使人虚弱的，并且有可能使你倒退几周或几个月…
-
-[Read more](https://lifehacker.com/the-most-common-exercise-injuries-and-how-you-can-avoi-1659615551)*</aside>
 
 *在某种程度上尽可能保持活跃，你的精神状况会好得多。这是你关注身体健康的其他方面，甚至尝试新事物的机会！另外，假设你(假设)失去了你所有的进步，然后你又继续锻炼。一开始你可能会感到沮丧，发现你可能无法做你以前轻松完成的事情，但这没关系——你最终会反弹回来，更快地回到正常的健康水平。*
 

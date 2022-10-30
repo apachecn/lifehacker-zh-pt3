@@ -4,7 +4,7 @@
 
 Mac:你手机上一些最受欢迎的应用程序很可能有一个网络友好版本。毕竟，脸书和推特都是从网络开始的。但是 Instagram 不同，不完全是网络友好的，这使得如果你更喜欢在桌面上编辑你的照片会很麻烦( [)大屏幕仍然很酷！](http://lifehacker.com/how-using-an-ultrawide-monitor-boosted-my-productivity-1782833923) )而不是你的电话。有一个针对 Windows 10 用户的 Instagram 应用程序，但 Mac 用户运气不好。
 
-Watch
+
 
 Cision 发现，虽然它并不完美，但一点技术诀窍就可以 [解锁桌面发布](http://www.cision.com/us/2017/06/awesome-instagram-posts-on-desktop/) ，这是一个期待已久的功能，嗯，仍然没有真正实现。
 

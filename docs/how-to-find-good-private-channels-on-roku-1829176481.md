@@ -4,7 +4,7 @@
 
 流媒体播放器 Roku 的一个好处是，它允许用户创建自己的私人频道，有点像人们可以在 Spotify 上制作播放列表。和 Spotify 一样，许多这类精心策划的频道都是糟糕的。
 
-Watch
+
 
 最主要的问题是许多频道被他们的创造者抛弃， [根据](https://www.dailydot.com/upstream/roku-private-channels/) 每日点击率，所以任何获得推荐的频道基本上随时可能消失。这也是为什么会有这么一堆东西可供搜索的原因。他们仍然想出了一个伟大的清单，尝试和真正的好东西。Roku 还 [提供了](https://blog.roku.com/best-roku-channels-customers?utm_source=organic_social&utm_medium=reddit) 来自用户的收藏夹，Makeuseof.com[提供了](https://www.makeuseof.com/tag/private-roku-channels-install-now/) 自己最近的收藏夹。这里有一些最好的检查。
 

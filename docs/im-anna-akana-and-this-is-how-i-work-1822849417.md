@@ -4,7 +4,7 @@
 
 YouTube 明星其实可以是真正的好人！就像视频制作人安娜·阿卡娜，他制作了关于[自杀意识](https://www.youtube.com/watch?v=zvkbHIrrrvU)[种族主义恋物癖](https://www.youtube.com/watch?v=zWFQ1uiD8LA)[除了泡泡浴和按摩](https://www.youtube.com/watch?v=zc7G6MJISaI) 之外的自我保健视频，拥有超过 200 万的用户。她还制作 [短片](https://www.youtube.com/playlist?list=PLyVaF6bvPQ-SeX9UdtnIIhFs42EDeCeMj) ，出现在*蚁人*、*企业*和*亚当毁灭一切*，并在她自己即将推出的 YouTube 红人秀*青春&后果*中担任明星。我们和她讨论了如何在喜剧、表演和 YouTube 视频之外建立自己的事业。
 
-Watch
+
 
 * * *
 

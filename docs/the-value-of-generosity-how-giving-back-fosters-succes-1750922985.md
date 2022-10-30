@@ -4,7 +4,7 @@
 
 有时候获得成功的最好方法是先帮助别人。我们能做的帮助别人的小事——帮朋友一个忙，或者在某人运气不好时帮他买单——往往会以积极的方式回归。你自己的慷慨会促进成功。
 
-Watch
+
 
 *本帖最初出现在 Ramit Sethi 的博客上，* [*我会教你变得富有*](http://www.iwillteachyoutoberich.com/blog/most-generous-thing-ive-heard-in-a-long-time/) *。*
 

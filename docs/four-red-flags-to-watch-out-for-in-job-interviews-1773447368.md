@@ -4,7 +4,7 @@
 
 这一天终于来了:你终于 [在你梦寐以求的公司](https://www.themuse.com/advice/how-to-keep-your-cool-when-you-interview-with-your-dream-company) 面试了，为了你梦寐以求的工作！这是一个完美的行业，这个角色与你的技能和背景几乎完全匹配。此外，它会让你继续你的 [五年计划](https://www.themuse.com/advice/5-reasons-why-you-should-take-your-5year-planand-throw-it-away) 。一切都好，对吧？也许不是。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/4-red-flags-you-cant-ignoreno-matter-how-badly-you-want-the-job) *。*
 

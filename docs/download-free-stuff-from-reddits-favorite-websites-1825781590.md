@@ -4,7 +4,7 @@
 
 "有哪些很酷的网站可以下载免费的东西？" [问 redditor 如何进阶](https://www.reddit.com/r/AskReddit/comments/8gy4nd/what_are_some_cool_websites_where_you_can/) 。他得到了超过 5000 个答案。我们已经对最好的资源进行了检查和分类，确定了每个资源。你可以利用这里列出的网站上的免费书籍、音乐、游戏、应用程序和其他赠品来娱乐和教育自己。(不要取消你的网飞，但也许可以停止向亚马逊支付古腾堡计划免费发放的书籍。)
 
-Watch
+
 
 除非特别注明(除了一些“废弃软件”网站)，这些都是合法的资源，但有些仅供个人使用。在商业或公开使用资源之前，一定要检查。
 
@@ -66,11 +66,7 @@ Watch
 *   [Freesound](http://www.freesound.org/) :免权限音效
 *   [BBC 音效](http://bbcsfx.acropolis.org.uk/) :个人和教育用途免费
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Download Free Stuff From Reddit&#39;s Favorite Websites](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-the-heck-do-i-use-github-5983680) [###### 我该怎么用 GitHub？](https://lifehacker.com/how-the-heck-do-i-use-github-5983680) 
 
-亲爱的 Lifehacker，我已经学会了编码，想开始使用 GitHub 管理我的项目。不管
-
-[Read more](https://lifehacker.com/how-the-heck-do-i-use-github-5983680)</aside>
 
 ## 音乐
 

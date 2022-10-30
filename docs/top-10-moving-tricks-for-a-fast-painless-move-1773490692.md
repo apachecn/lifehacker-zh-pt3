@@ -4,7 +4,7 @@
 
 搬家很有趣，但是打包很糟糕。当你忙着把你的东西塞进箱子里，以免它们在路上摔碎时，新家的光彩和乐观很快就会消失。以下是一些让这一切变得更容易的建议。
 
-Watch
+
 
 坦白说，我现在正在搬家，所以把这当成一剂“医生，治愈你自己”，但这些是迄今为止帮助我的一些诀窍——也是你下一次搬家需要记住的一些事情。
 
@@ -18,11 +18,7 @@ Watch
 
 不要试图把你所有珍贵的东西放在一个破旧的亚马逊盒子里，那些已经通过系统送到你手中的东西。 [你不必为盒子](https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924) 付费——在 [Craigslist](http://www.craigslist.net/) 和本地 [Freecycle](https://www.freecycle.org/) 论坛上，有很多人希望摆脱他们的盒子。你可以从你的办公室或当地商店如酒类商店和书店买到质量好的盒子，而不用花一分钱。U-Haul 甚至有一个客户联系论坛，人们可以在那里免费交换箱子。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Moving Tricks for a Fast, Painless Move](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924) [###### 在预算紧张的情况下行动:节省大量金钱的七种方法](https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924) 
 
-除非你是一个虔诚的极简主义者，否则搬家会让人望而生畏——尤其是当你手头很紧的时候…
-
-[Read more](https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924)</aside>
 
 然而，免费获得所有盒子的不利之处在于，你不知道它们会带来什么。各种各样的害虫都喜欢搭纸板箱的便车，并且很乐意把你的东西当成它们的新家，所以如果你愿意付钱，为了你的安心，这可能是值得的。你得到的*质量*的盒子比你得到的*免费*的盒子更重要。
 
@@ -38,11 +34,7 @@ Watch
 
 当你或你的搬运工把所有东西搬进来的时候，当你到达你漂亮的新家时，你最不想做的事情就是保持干净。他们会想知道你想把书架放在哪里，而你会忙着擦掉多年的旧灰尘，这些灰尘本可以在你离开老地方之前处理掉。干干净净，当感动的一天到来时，你未来的自己会感谢过去的自己。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Moving Tricks for a Fast, Painless Move](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-start-to-finish-guide-for-moving-to-a-new-place-5591389) [###### 搬到一个新地方的全程指南](https://lifehacker.com/the-start-to-finish-guide-for-moving-to-a-new-place-5591389) 
 
-搬家糟透了。这真的没有办法，但它可以更容易忍受，也可以更容易忍受
-
-[Read more](https://lifehacker.com/the-start-to-finish-guide-for-moving-to-a-new-place-5591389)</aside>
 
 此外，当你到达目的地时，你可能会很累，而你会更高兴地把干净的家具搬到一个新的、干净的地方。至少犒劳一下自己。
 
@@ -80,11 +72,7 @@ Watch
 
 就像你要去度假一样，把你认为最精致的或者你到达新家后会尽快用到的东西保存起来，把它们放在“第一夜”盒子 里。这是我们之前提到过的一个技巧，但它仍然非常重要，不能低估。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Moving Tricks for a Fast, Painless Move](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/pack-a-first-night-box-to-make-moving-easier-1608193773) [###### 打包一个“初夜”盒子，让搬家更容易](https://lifehacker.com/pack-a-first-night-box-to-make-moving-easier-1608193773) 
 
-搬家(或公寓)很累人。让您的生活在新的第一个晚上更轻松
-
-[Read more](https://lifehacker.com/pack-a-first-night-box-to-make-moving-easier-1608193773)</aside>
 
 无论是你不想放在手提箱或旅行包里的化妆品，还是重新组装家具或悬挂艺术品的工具包，或者像咖啡机这样的烹饪必需品，如果你想尽快把它们放在“初夜”盒子里。哦，记得在你的手提包里放一些卫生纸，或者放在同一个盒子里。
 

@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [脸书排毒用真实新闻代替你的提要](http://lifehacker.com/detox-for-facebook-replaces-your-feed-with-actual-news-1732205589)
 

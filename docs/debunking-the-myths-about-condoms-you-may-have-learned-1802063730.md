@@ -4,7 +4,7 @@
 
 朋友们，你们被骗了。我的意思是，可能在很多方面，但特别是如果你有任何种类的性负面健康课程。今天，我们将对你可能已经知道的关于避孕套的所有错误和误导的“事实”进行澄清。
 
-Watch
+
 
 1996 年至 2010 年间，我们的联邦政府 [投入了 15 亿美元](http://www.siecus.org/index.cfm?fuseaction=page.viewpage&pageid=1340&nodeid=1) 用于促进节欲的性教育。一些唯禁欲课程根本没有提到避孕，而另一些州法律允许 [只提到失败率](https://www.guttmacher.org/journals/psrh/2001/07/states-implementation-section-510-abstinence-education-program-fy-1999) 而没有任何益处的讨论。2004 年的一份国会委员会报告发现，80%的禁欲课程包含关于生殖健康的“虚假、误导或扭曲的信息”，包括避孕和避孕套。
 

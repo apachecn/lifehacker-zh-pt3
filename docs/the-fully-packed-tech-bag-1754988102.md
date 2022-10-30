@@ -4,7 +4,7 @@
 
 每隔一段时间，你只需要尽可能多的把科技装进你的包里。举个例子，读者本·德雷珀的包，里面有你可能需要的所有东西。
 
-Watch
+
 
 袋子里是一只 [毛虫布伦特。](http://www.amazon.com/CAT-Brent-Backpack/dp/B00JM8F0DI?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-fully-packed-tech-bag-1754988102&asc_source=&tag=kinjalifehackerlink-20) 下面是里面的东西:
 

@@ -4,7 +4,7 @@
 
 苹果最新的 MacBook Pro refresh 有相当多的批评者，这是有充分理由的——省略传统 USB 端口、与苹果自己的 Lightning-only 耳机不兼容以及移除磁性 MagSafe 连接器等变化让长期用户感到不满，尽管苹果高管菲尔·席勒坚持认为公布的变化是笔记本的未来。
 
-Watch
+
 
 不同的 MacBook 用户会对所有这些变化有不同的抱怨，但大多数人都同意的一个问题是笔记本电脑糟糕的 电池寿命，在使用 4 到 16 小时之间波动。幸运的是，根据 [笔记本检查](https://www.notebookcheck.net/Apple-MacBook-Pro-lasts-135-minutes-longer-on-battery-in-full-screen-mode.239966.0.html) 的说法，你可以通过一个非常简单的键盘快捷键挤出几分钟。
 

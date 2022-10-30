@@ -4,7 +4,7 @@
 
 欢迎回到 [**周中冥想**](https://lifehacker.com/c/mid-week-meditations) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 
-Watch
+
 
 本周的选曲来自塞内卡在他的《致海尔维亚 或*De consolation e ad Helviam Matrem*中，塞内卡在他最近被流放到科西嘉岛时安慰他的母亲海尔维亚。他在第 12 节 :
 中写到了富人和穷人的

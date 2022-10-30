@@ -4,7 +4,7 @@
 
 [软件更新](https://lifehacker.com/how-to-update-software-for-beginners-5802139) 通常是好事。他们可以为您正在使用的任何设备带来新的功能和重要的安全更新，而您只需付出很少的努力。然而，如果你有一台 [Mac 电脑](https://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836) ，你可能厌倦了每天在你的电脑上看到同样的“更新可用”通知弹出窗口。
 
-Watch
+
 
 不管我让我的电脑更新多频繁，第二天早上总会有另一个软件补丁等着我。幸运的是，有几种方法可以摆脱它们，这取决于你想变得有多负责任(或不负责任)。以下是你需要知道的。
 

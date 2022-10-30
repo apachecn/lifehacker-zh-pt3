@@ -4,7 +4,7 @@
 
 苹果可能已经正式停产了 [Airport Express](https://en.wikipedia.org/wiki/AirPort_Express) 网络扩展器，以及其 wifi 硬件 的 [，但它昨天发布了 Airport Express 的重大固件更新。只要您有第二代 Airport Express(2012 年 6 月发布)，更新就可以让您通过 AirPlay 2 直接流化到连接的扬声器。](https://gizmodo.com/say-goodbye-to-apples-airport-routers-for-real-this-ti-1825588759)
 
-Watch
+
 
 这意味着你可以将你的回放与你家中其他兼容 AirPlay 2 的扬声器同步，如你的苹果 HomePod，任何连接到你的苹果电视的东西，以及各种 Sonos 扬声器(仅举几例)。您还可以通过 Apple 的 Home 应用程序将 Airport Express 分配到一个房间，这样您就可以通过 Siri 控制正在播放的内容。
 

@@ -4,7 +4,7 @@
 
 为苹果产品制造好的配件意味着从设计的角度密切关注苹果在做什么，并让你的产品符合同样的模式。十二南 是一家保持时尚的知名公司，他们的创意总监分享了他的工具。
 
-Watch
+
 
 包里是一个 [Booq 宝儿挤背包](https://www.amazon.com/Booq-BSQ-GFT-Boa-squeeze-graphite/dp/B00BTJIJ40/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-apple-accessory-designers-bag-1782671929&asc_source=&ie=UTF8&keywords=booq boa&qid=1467042014&sr=8-1&tag=kinjalifehackerlink-20) 。正如你所料，他随身携带了一些配件，包括 SurfacePad 和 TimePorter，但这不是全部。这是里面的内容:
 

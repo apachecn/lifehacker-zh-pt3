@@ -4,7 +4,7 @@
 
 开始一天的探索意味着你需要准备一个包，里面装满你需要的所有东西。对于日常随身读物 Brandon Tran 来说，这意味着一台相机和一些小工具。
 
-Watch
+
 
 包里是一辆[lowpro 拍照两厢](http://www.amazon.com/dp/B008OQUXEK?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-day-trip-bag-1730543485&asc_source=&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

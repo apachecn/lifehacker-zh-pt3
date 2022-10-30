@@ -4,7 +4,7 @@
 
 大多数待办事项清单上最困难的任务是看不见的:获得做任何事情的动力。你的任务越重要，你就越害怕开始。根据 YouTube 频道 [How to ADHD](https://www.youtube.com/howtoadhd) 的制作人所说，对付这种情况的一个窍门是一种简单的类似冥想的技巧。
 
-Watch
+
 
 在 Reddit 帖子 中，Edward 和 Jessica McCabe 分享了处理 ADHD 症状的不同方法，包括 [容易从任务中分心](https://www.nimh.nih.gov/health/topics/attention-deficit-hyperactivity-disorder-adhd/index.shtml) 。这些方法从药物治疗和改变生活方式到简单的心理技巧，就像爱德华用来激励自己开始一项任务的方法。它是这样工作的:
 

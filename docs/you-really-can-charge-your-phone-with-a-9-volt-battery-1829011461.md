@@ -4,7 +4,7 @@
 
 停电时，9 伏电池可以给你的手机提供足够的电量来打电话或发短信。在 之前，你可能已经见过这种黑客 [，但它在](https://lifehacker.com/emergency-charge-a-smartphone-with-a-battery-a-key-an-1633139893) [这种变体](http://www.foxla.com/home/hurricane-hack-making-a-phone-charger-using-a-battery) 中工作得特别好，其中你使用笔中的弹簧来连接负极端子。
 
-Watch
+
 
 你需要一个车载充电器——就是那种你可以插在汽车上的点烟器上的充电器。只需从一支笔中取出一个弹簧，用胶带将它粘到充电器侧面的小金属块上，如上图所示。
 

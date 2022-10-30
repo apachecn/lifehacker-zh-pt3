@@ -4,7 +4,7 @@
 
 现代 [现代](https://jalopnik.com/tag/hyundai) 的大卖点是它们令人印象深刻的保修，尤其是 10 年 10 万英里的动力系统。但是上个月， [【美国联邦贸易委员会】](https://www.ftc.gov/news-events/press-releases/2018/04/ftc-staff-warns-companies-it-illegal-condition-warranty-coverage) 警告该公司，其保修可能是非法的，因为如果车主不使用现代自己的零件，保修似乎会失效。
 
-Watch
+
 
 联邦贸易委员会在一份的新闻稿中表示，它最近向六家主要公司发出警告，因为“担心这些公司的声明，即消费者必须使用特定的部件或服务提供商来保持其保修完好无损。"
 

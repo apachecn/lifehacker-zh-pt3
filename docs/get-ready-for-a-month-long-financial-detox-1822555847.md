@@ -6,7 +6,7 @@
 
 放弃一个月的多余支出本身不会改变你的生活，也不会让你变得富有。(有时 [在](https://twocents.lifehacker.com/its-okay-to-increase-your-discretionary-spending-someti-1822563439) 的东西上额外花费是非常值得的。)但是如果你有一个花钱习惯，让你 [感到内疚](https://lifehacker.com/how-to-overcome-the-guilt-of-financial-mistakes-1609098356) 或者想要改变，好处是这是一个可管理的时间量，仍然有足够长的时间潜在地导致长期的改变。你可以专注于接下来的四周，这反过来会让你意识到你可以更长时间地保持这个习惯。
 
-Watch
+
 
 “当你开始建立你那简单得可笑的习惯时，会发生一些事情，”大卫·卡达维说，他是一位写关于工作和创造力的播客 。“你开始感觉良好。当你对它感觉良好时，你就开始享受它。当你享受的时候，就很容易做到。”
 

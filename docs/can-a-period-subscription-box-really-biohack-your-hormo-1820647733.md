@@ -4,7 +4,7 @@
 
 现在有一整个部门的 [爆炸订阅盒市场](https://www.forbes.com/sites/richardkestenbaum/2017/08/10/subscription-businesses-are-exploding-with-growth/#198854a56678) 致力于每月的一个非常具体的时间:你的月经。许多公司提供的不仅仅是卫生用品和小吃:他们声称能够帮助调节使用者的荷尔蒙，让他们在精神和身体上都有一个更好的时期。
 
-Watch
+
 
 这些盒子的价格从每月 7 美元到每月 30 美元不等，名字有玫瑰战争女裤力量，Inevitabox 和愉悦循环。有些是针对有有机或健康生活方式的人(卫生棉条部落)，而其他人则完全接受情绪波动的刻板印象(Bitchy Box)。
 

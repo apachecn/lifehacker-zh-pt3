@@ -4,7 +4,7 @@
 
 费用比率。优惠利率。摊销。正如 [技术](https://lifehacker.com/the-lifehacker-tech-dictionary-5964240) 一样，金融世界充满了对许多人来说可能听起来陌生的首字母缩写词和术语。因此，我们为您创建了一个金融术语表，解释了重要但常常令人困惑的金钱概念。
 
-Watch
+
 
 这绝不是一个全面的列表。如果你需要查找一个特殊的金融术语(如 Investopedia 的每日术语， [偿债覆盖率或 DSCR](http://www.investopedia.com/terms/d/dscr.asp) )，请查阅这本令人印象深刻的 [在线金融词典](http://www.investopedia.com/terms/d/dscr.asp) 。但是把它当成一个资源，把它当成一本入门书——下面的术语是大多数人最常遇到的。当你管理你的钱、投资或者只是简单地谈论金融时，你需要知道这些。
 

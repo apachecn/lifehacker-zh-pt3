@@ -4,7 +4,7 @@
 
 iPhone 并不缺少视频编辑应用。事实上，有这么多，几乎不可能从中选择。但是当谈到功能和可用性在可能太小而不适合视频编辑的 iPhone 屏幕上的正确结合时，我们喜欢 Splice。
 
-Watch
+
 
 ### [拼接](https://itunes.apple.com/us/app/splice-video-editor-movie/id409838725?mt=8&ign-mpt=uo%3D4)
 

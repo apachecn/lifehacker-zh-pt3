@@ -4,7 +4,7 @@
 
 克里斯托弗有一辆 2011 款谢尔比野马，奇迹般地没有卷入任何汽车和咖啡事故。现在他有双胞胎和汽车座椅，野马不能很好地混合，所以他需要有四个门的快速的东西。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

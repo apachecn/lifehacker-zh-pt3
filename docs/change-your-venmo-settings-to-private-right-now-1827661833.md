@@ -4,7 +4,7 @@
 
 如果你使用 Venmo 并且没有改变你的默认隐私设置，你可能要重新考虑一下了——因为几乎任何人都很容易知道你在做什么，如果你没有改变，也可以跟踪你的交易。
 
-Watch
+
 
 设计师兼活动家 Hang Do Thi Duc 的一份名为[Public Default](https://publicbydefault.fyi/)的新报告展示了任何人查看该应用程序上的公开交易是多么容易。Duc 能够通过“简单地点击 [一个公共链接](https://venmo.com/api/v5/public?limit=1) 来下载 2017 年所有 207，984，218 次公共交易的数据，“因为你不需要权限来访问 [Venmo 的 API](http://danielgorelick.com/scraping-venmo/) ，根据 [Fast Company](https://www.fastcompany.com/90202934/make-your-venmo-transactions-private-seriously) 。
 

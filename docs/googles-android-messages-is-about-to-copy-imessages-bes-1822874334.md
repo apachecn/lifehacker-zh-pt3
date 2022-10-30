@@ -4,7 +4,7 @@
 
 我记得谷歌发布了更多的消息应用程序( [Allo](https://lifehacker.com/google-allos-selfie-stickers-are-cool-but-dont-get-too-1795168475) 、Android Messages、Messenger、 [Hangouts](https://lifehacker.com/google-spins-off-hangouts-and-hopes-the-rest-of-us-just-1793132901) 、 [Gchat](https://lifehacker.com/gmail-chat-adds-support-for-embedded-youtube-google-vi-5137120) ，不胜枚举)，但该公司从未能推出一项服务，能像 iMessage 在 iOS 和 Mac 设备上那样，在所有平台上轻松处理你的消息。现在，谷歌可能终于通过复制苹果最优秀的功能之一找到了答案:桌面短信。
 
-Watch
+
 
 Android 消息 的 [最新更新变化不大，但它包括一些有趣的代码，可能为未来的功能铺平道路。](https://play.google.com/store/apps/details?id=com.google.android.apps.messaging) [Android Police](http://www.androidpolice.com/2018/02/08/android-messages-v2-9-prepares-launch-allo-like-web-interface-google-enhanced-chat-features-payments-businesses-apk-teardown/) 挖掘更新，揭示谷歌正准备推出基于浏览器的桌面和笔记本电脑 Android Messages 版本。这将使通过你的电脑向手机发送短信成为可能，就像 iMessage 让你的短信发送给安卓系统的朋友一样——使用它的 Mac 应用程序。
 

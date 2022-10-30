@@ -4,7 +4,7 @@
 
 如果你正与医疗紧急情况、失业或其他金融危机作斗争，偿还学生贷款是不可能的。为了不落后，你可以选择通过 [学生贷款延期或延期](https://studentloanhero.com/featured/deferment-vs-forbearance-student-loans/) 来暂停支付。
 
-Watch
+
 
 *本帖原载于*[](http://blog.credit.com/2017/02/want-to-pause-your-student-loan-payments-heres-what-you-need-to-know-166633/)**。**
 

@@ -4,7 +4,7 @@
 
 你想让这个世界变得更好，但你也认为自己是网络垃圾，三天没出门？(或者有正当理由不能出门？)没事！你可以在沙发上，甚至是电脑椅上帮忙。
 
-Watch
+
 
 Ask MetaFilter 上的一个 [最近的帖子关注的是在家志愿服务选项。这里有一些亮点，和一些我们自己的想法。](https://ask.metafilter.com/319849/volunteering-between-keyboard-and-chair)
 

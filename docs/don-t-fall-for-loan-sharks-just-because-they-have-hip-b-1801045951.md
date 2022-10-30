@@ -4,7 +4,7 @@
 
 我们都知道贷方、高利贷者和信用卡在你负债时获利，因此，他们可能是危险的。但是许多这样的公司用聪明的营销隐藏了他们的危险。当心:任何其他品牌的消费者债务都同样危险。
 
-Watch
+
 
 [在概述完](https://theoutline.com/post/2160/affirm-subprime-loans-predatory-lending) 后，作家加比·德尔瓦莱论述了这样一家公司，肯定。Affirm 与 1000 多家零售商合作，允许客户贷款购买昂贵的商品:例如， [一条 400 美元的裤子](https://twitter.com/susie_c/status/875760620015988736/photo/1?ref_src=twsrc%5Etfw&ref_url=https%3A%2F%2Ftechcrunch.com%2F2017%2F07%2F20%2Faffirm-now-has-1000-retail-partners%2F) 。德尔瓦莱写道:
 

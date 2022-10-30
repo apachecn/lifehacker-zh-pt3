@@ -4,7 +4,7 @@
 
 去年 [Instagram 推出了收藏](https://lifehacker.com/instagram-adds-collections-to-help-organize-bookmarked-1794385586) ，这是一种将应用程序中的图片组织到不同的策划组中的方式。这个功能已经存在了大约一年，但是大多数人都没有意识到它的存在。
 
-Watch
+
 
 如果你经常使用 Instagram，这个功能对于保存你认为有趣的帖子非常有用，这样你就可以在以后找到它们，而不用无休止地滚动你的订阅源。
 

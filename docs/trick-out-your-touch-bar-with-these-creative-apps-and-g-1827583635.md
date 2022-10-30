@@ -4,7 +4,7 @@
 
 我不知道你怎么样，但我仍然对苹果的 Touch Bar 持观望态度。我得到的最大用处是当我试图按数字键时，无意中点击了浏览器中的虚拟“后退”按钮。那个，而且我主要是用 Touch Bar 来调节我 MacBook 的亮度和音量。(也许我需要 [配置更多有用的按键](https://lifehacker.com/customize-your-macs-touch-bar-with-bettertouchtool-1827125801) 。)
 
-Watch
+
 
 尽管如此，Touch Bar 看起来确实很漂亮，许多有创意的开发人员已经开始自己设计独特的...经验...这个小小的键盘屏幕。如果你和我一样，Touch Bar 看起来更有趣，而不是更有用，考虑用这些聪明的附加组件来活跃它:
 

@@ -4,7 +4,7 @@
 
 初学走路的孩子不需要牛奶，但它可能是他们身体所需的好东西的简单来源——脂肪、蛋白质、钙和维生素 d。当我的女儿一岁时，她对乳制品过敏(没有经过大量劝说，她不会咀嚼像绿叶蔬菜这样的食物)，所以我们研究了一些替代牛奶:杏仁、大豆、大米、大麻。每个都有好处，但也有坏处。杏仁牛奶只是“一罐被一把磨碎的杏仁弄浑浊的过滤水，”T2 总结道。大豆是出了名的 [用除草剂](https://www.washingtonpost.com/business/economy/this-miracle-weed-killer-was-supposed-to-save-farms-instead-its-devastating-them/2017/08/29/33a21a56-88e3-11e7-961d-2f373b3977ee_story.html?utm_term=.0804524d496a) 处理。大麻和米浆几乎没有任何脂肪，而脂肪是幼儿生长发育所必需的。
 
-Watch
+
 
 现在有一种新的替代牛奶越来越受关注:豌豆牛奶。(说吧，大声说出来，窃笑。你知道你想。)*《华盛顿邮报》的标题是 [“准备好喝豌豆奶吧。它尝起来不像豌豆，甚至不是绿色的。”](https://www.washingtonpost.com/news/food/wp/2017/09/21/get-ready-for-pea-milk-it-doesnt-taste-like-peas-and-its-not-even-green/?tid=sm_fb&utm_term=.43243b5453e0) 我们怎么能不好奇呢？据彭博报道，豌豆牛奶市场上最大的玩家是一家名为 Ripple Foods 的公司，该公司从谷歌和硅谷风险投资家那里获得了 4400 万美元。为了制作这种饮料，他们将黄豌豆与水、葵花籽油混合，并在甜味的版本中加入有机蔗糖。*
 

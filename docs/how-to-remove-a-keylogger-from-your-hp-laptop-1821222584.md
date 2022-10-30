@@ -4,7 +4,7 @@
 
 如果你使用的是惠普笔记本电脑，其他人就有可能看到你输入的所有内容。该公司最近 [证实](https://support.hp.com/us-en/document/c05827409) 在独立研究员 [Michael Myng](https://zwclose.github.io/HP-keylogger/) 揭露该安全漏洞后，在其数百台笔记本电脑上安装了一个 [键盘记录器](https://lifehacker.com/this-diy-wireless-keylogger-fits-anywhere-looks-like-a-1739266989) 。
 
-Watch
+
 
 ### 什么是键盘记录器？
 

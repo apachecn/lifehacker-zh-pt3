@@ -4,7 +4,7 @@
 
 这是开始运行 的 [最佳时间——或者回到运行状态，如果你已经休息了的话。天气变冷了，每个人都在适应他们返校的日常生活(这对学生和家长来说都是好消息)，我们刚刚花了一个月](https://lifehacker.com/late-summer-is-the-best-time-to-start-running-1785433859) [尝试倒立](https://vitals.lifehacker.com/let-s-get-upside-down-for-the-august-fitness-challenge-1828029407)——所以相比之下，一点普通的慢跑会感觉很棒。
 
-Watch
+
 
 这是一个全方位的挑战，所以我对每个读者都有一些想法，不管你是否已经知道如何跑步。如果您受伤或行动不便，无法行走或跑步，请随时加入我们，选择任何适合您的旅行方式。
 

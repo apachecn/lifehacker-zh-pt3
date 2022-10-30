@@ -4,7 +4,7 @@
 
 一张 GIF 就能说这么多。它可以是一种夸张的反应，一种对对话中所说内容的视觉类比，或者仅仅是网上交流的一个非推论。但通常只是一个搞笑的动画。
 
-Watch
+
 
 2013 年，Giphy 推出了一个专门针对 gif 的搜索引擎，让互联网上的每个人都过得更轻松。需要一张 [猫开着车](http://giphy.com/gifs/cat-driving-b3rbghhoMrhII) 的 GIF？还是滑板上的 [狗](http://giphy.com/gifs/beach-skateboarding-animal-dog-ET3fDXNxBHDAk) ？吉菲会掩护你的。
 

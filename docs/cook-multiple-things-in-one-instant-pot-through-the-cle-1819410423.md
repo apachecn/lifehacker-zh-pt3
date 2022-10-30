@@ -4,7 +4,7 @@
 
 速食锅可能是一个多功能锅，但它的大部分功能都集中在一次一种食物上，通常效果很好。这很好，但实际上你可以在你的速溶锅里同时烹饪两种不同的食物——比如说，一种主菜是肉，另一种是淀粉。你只需要一个三脚架。
 
-Watch
+
 
 不幸的是，你的速溶壶附带的三脚架不够高，但你可以在网上订购一个稍微高一点的。我点了 [这套](https://www.amazon.com/gp/product/B073ZCD9RZ/ref=oh_aui_detailpage_o00_s00?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/cook-multiple-things-in-one-instant-pot-through-the-cle-1819410423&asc_source=&ie=UTF8&psc=1&tag=kinjalifehackerlink-20) ，高一点的完美配合。一旦你有了一个三脚架，你需要挑选两种食物放在锅里。 [这张图表列出了许多常见的即食罐头食品](http://instantpot.com/wp-content/uploads/2017/08/Cooking-Time-Tables-1.pdf) 及其各自的烹饪时间，所以浏览一下，扮演烹饪红娘，记住这些是指导方针，多花几分钟不一定会破坏坚韧的须根类蔬菜或富含胶原蛋白的肉类。根据各自的烹饪时间，你可以尝试一些搭配:
 

@@ -4,7 +4,7 @@
 
 你已经设定了目标，希望现在已经跑了几圈。(如果不是，那就是 [再出发](http://vitals.lifehacker.com/everything-you-need-to-know-to-start-running-1787655831) 也不迟！)现在是时候仔细看看*你是如何*跑步的了。现在修正你的形式，将来你就能跑得更快更顺。我们从简单的事情开始:数一数你每分钟走了多少步。
 
-Watch
+
 
 <small>*本帖是*</small> [<small>*火鸡小跑大赛*</small>](http://vitals.lifehacker.com/introducing-the-turkey-trot-throwdown-let-s-run-togeth-1787445111) <small>*的一部分，一系列迷你挑战点燃(或重燃)你对跑步的热爱。等到感恩节到来的时候，你已经准备好赛跑了——或者，如果你喜欢的话，在坐下来享受你的盛宴之前绕着街区慢跑一圈。你应得的。*T15】</small>
 

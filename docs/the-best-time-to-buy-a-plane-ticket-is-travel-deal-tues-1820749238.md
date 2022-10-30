@@ -4,7 +4,7 @@
 
 如果你正在考虑为即将到来的旅行购买机票，本周二可能是购买的最佳时机。
 
-Watch
+
 
 旅游应用 Hopper 最近 [研究了机票](http://www.hopper.com/research/introducing-travel-deal-tuesday-best-day-to-shop-for-flights) 的历史成本，并确定购买机票的最佳日期可能是感恩节后的周二。据 Hopper 的研究人员称，航空公司在周二开始的航班上提供主要折扣，因为那时大多数旅客已经预订了假期机票，但还没有开始计划冬季度假。
 

@@ -4,7 +4,7 @@
 
 作为一个有着垃圾保险和一套我认为相当不错的剪刀的吝啬的年轻人，我曾经让看牙医的时间间隔过了十年。我刷牙。我用牙线。我觉得一切都或多或少很酷。
 
-Watch
+
 
 我仍然没有蛀牙，即使是在屈服于那个男人的压力(并获得了体面的保险)并成为一个尽职尽责的每年两次去牙医诊所的。
 
@@ -42,11 +42,7 @@ Watch
 
 通常情况下，当有什么事情困扰我们时，我们会寻求医疗护理。但是这种方法对智齿并不奏效。“无症状并不意味着没有疾病，”拉菲托说，“而仅仅是没有症状。”也就是说，你不能依赖疼痛因素来确定你的智齿是否正常。事实上，当他们打扰你的时候，事情可能已经变得很糟糕了。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Should You Get Your Wisdom Teeth Taken Out?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-make-doctor-and-dentist-appointments-more-bea-5974875) [###### 我怎样才能让医生和牙医的预约变得更容易忍受？](https://lifehacker.com/how-can-i-make-doctor-and-dentist-appointments-more-bea-5974875) 
 
-亲爱的 Lifehacker，我讨厌去看医生，尤其是当我需要打针或者验血的时候。
-
-[Read more](https://lifehacker.com/how-can-i-make-doctor-and-dentist-appointments-more-bea-5974875)</aside>
 
 多德森说，在选择保留第三磨牙的 20 岁以上的患者中，超过 60%的人将需要在未来 20 年内至少拔掉一颗。拉菲托说，考虑到牙齿“频繁且不可预测地”移动，如果你真的保留它们，你的牙医将需要密切关注它们。
 

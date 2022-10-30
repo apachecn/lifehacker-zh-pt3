@@ -4,7 +4,7 @@
 
 iOS:每次你把你的 [iPhone](https://lifehacker.com/the-privacy-enthusiasts-guide-to-using-an-iphone-1792386831) 插到电脑上，你都会在手机上看到同样的弹出窗口，询问你是否应该“信任”它。这似乎是一个无伤大雅的问题，但通过授予电脑信任，你实际上是在让它们访问你 iPhone 上的一切，包括照片、视频、联系人和“ [其他内容](https://support.apple.com/en-us/HT202778) ”
 
-Watch
+
 
 这对于你自己的个人电脑来说没问题，但是如果你连接到一个朋友的笔记本电脑上，这样他们就可以下载文件了呢？或者在图书馆的公共电脑上给你的 iPhone 充电，然后心不在焉地点击了弹出窗口上的“信任”?在这种情况下，您会想要“不信任”这些计算机，以便您的私人数据保持安全。不幸的是，苹果公司并不容易做到这一点，但有几种不同的方法可以让你在不做太多额外工作的情况下实现它( [via GadgetHacks](https://ios.gadgethacks.com/how-to/ios-security-101-untrust-computers-your-iphone-previously-connected-0184034/) )。
 

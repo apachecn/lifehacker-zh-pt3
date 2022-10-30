@@ -4,7 +4,7 @@
 
 当你可以乘坐飞机、火车或租车时，很容易对巴士旅行不屑一顾，但巴士旅行几乎总是有一个明显的优势:非常便宜。如果你近期要去英国旅行，看看他们的公交路线。花不到 90 美元(不包括机票和住宿)，你就可以游览这个国家的相当大的一部分。
 
-Watch
+
 
 Wanderu、 [这款帮助你寻找廉价巴士和火车票的应用程序](https://lifehacker.com/wanderu-now-finds-cheap-bus-or-train-tickets-in-europe-1791626980) 、 [找到了一个巴士旅行环路](https://www.wanderu.com/blog/travel-around-united-kingdom-for-cheap/) ，可以到达伦敦、伯明翰、利物浦、曼彻斯特和利兹——往返大约需要 60 英镑。因为这是一个循环，你可以从任何你喜欢的城市开始，然后开始探索。这是一张游览地图:
 

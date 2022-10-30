@@ -4,7 +4,7 @@
 
 如果周一早上你所能想到的是周末过得有多快，你可能要考虑在未来扩大你的视野。事实证明，过一个充实又不觉得太短的周末的关键是寻找“新鲜感”
 
-Watch
+
 
 根据斯坦福大学教授、《大脑:你的故事》[的作者大卫·伊格尔曼的说法，追求新的环境、新的活动和新的体验可以说是“延长时间”的最佳方式。这一切都归结于你的大脑所感知的新奇。当你花时间做一些不熟悉的事情时，你的大脑更专注于收集与该活动相关的数据，从而](https://www.amazon.com/Brain-Story-You-David-Eagleman/dp/1101870532?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-secret-to-making-your-weekends-feel-longer-1795585378&asc_source=&tag=kinjalifehackerlink-20) [创建对该经历的更彻底的记忆](https://lifehacker.com/make-your-vacation-feel-longer-with-some-basic-cognitiv-1785712800) 。当你回想那段记忆时，你会觉得你有了更多的时间。
 

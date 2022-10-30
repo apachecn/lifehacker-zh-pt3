@@ -4,7 +4,7 @@
 
 在 Slate 的育儿播客 [“爸爸妈妈在吵架”](http://www.slate.com/articles/podcasts/mom_and_dad_are_fighting/2017/05/slate_s_parenting_podcast_on_the_daddyofive_youtube_channel_and_spending.html) 上，主持人就一个棘手的问题展开了辩论:离婚后，如果孩子要求，你应该花时间和家人在一起吗？
 
-Watch
+
 
 一位名叫艾米的母亲打电话来分享她和孩子的父亲正在经历一场“友好的”离婚，但她 4 岁的孩子真的希望一家人能一起出去玩。对艾米来说，这样做是“不健康的”，她担心这会给孩子们传递错误的信息，让他们希望他们的父母有一天会复合。她想知道她应该做什么。
 

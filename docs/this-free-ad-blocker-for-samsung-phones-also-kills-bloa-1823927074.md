@@ -4,7 +4,7 @@
 
 有大量的 [伟大的广告拦截器](https://lifehacker.com/the-best-browser-extensions-that-protect-your-privacy-479408034) 可供选择，但大多数只是删除广告或者用 [一些不那么令人反感的](https://lifehacker.com/this-ad-blocker-replaces-ads-with-affirmations-1796024324) 代替。如果你正在寻找一个可以做得更多的广告拦截器(如果你有一部三星手机)，这里有一个新的应用程序值得一试。
 
-Watch
+
 
 由来自 XDA 论坛 的开发者 [NeedleGames 创建，三星(简称 SABS)的简单广告拦截器承诺移除所有那些讨厌的广告等等。该应用程序通过接入三星的超安全 KNOX 软件](https://forum.xda-developers.com/android/apps-games/app-sabs-simple-adblocker-samsung-t3751722) 来工作。这赋予了它禁用软件包的能力——也就是你的运营商大量使用的可怕的膨胀软件。SABS 还包括一个系统级的权限管理器，让你可以更好地控制应用程序在你的手机上可以看到什么和做什么。
 

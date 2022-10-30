@@ -4,7 +4,7 @@
 
 周三，宣布了一个 [巨大的新更新](https://blog.waze.com/2017/11/tis-season-to-ride-your-own-waze.html) ，为 Android 和 iOS 应用程序带来了三个最受欢迎的功能。从现在开始，你可以用你的声音控制 [Waze](https://lifehacker.com/turn-by-turn-navigation-showdown-google-maps-vs-waze-1761550298) ，获得摩托车特定的方向，并将拼车车道纳入你的通勤。
 
-Watch
+
 
 以下是如何设置 Waze 的所有新功能，以便您可以尽快开始使用它们。
 

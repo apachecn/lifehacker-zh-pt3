@@ -4,7 +4,7 @@
 
 仍然很难在商店里找到任天堂 Switch？或者也许你已经厌倦了等待任天堂承诺的充满复古游戏的在线商店？蒂姆·林德奎斯特(Tim Lindquist)亲自动手，从零开始创建了一个任天堂 Switch 克隆体 ，它可以模拟 50 多个经典系统的游戏。
 
-Watch
+
 
 林德奎斯特整个夏天都在设计、工程和建造他的 [任天堂 RP](https://timee1994.weebly.com/nintimdo-rp.html) (慢速拍手)游戏机，它与任天堂的 Switch 有很多共同的功能，包括一个宽大的 LCD 屏幕，两侧是(不可拆卸的)控制器。他 [在这里](https://timee1994.weebly.com/nintimdo-rp.html) 完整地记录了他的项目，但是你可以通过 Lindquist 制作的这个延时视频更好地了解制作自己的便携式游戏机需要什么。
 

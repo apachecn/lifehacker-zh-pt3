@@ -4,7 +4,7 @@
 
 这个周末，*《华盛顿邮报》* [刊登了一篇文章](https://www.washingtonpost.com/lifestyle/home/10-things-in-your-home-you-never-clean--but-should/2018/01/23/676e2c44-f0a3-11e7-b3bf-ab90a706e175_story.html?utm_term=.74560a39b36e) 列出了你家里十件你可能不会打扫，但应该打扫的东西。
 
-Watch
+
 
 这份清单包括了很多清洁狂可能已经在清洁的东西，比如吊扇、床垫和淋浴喷头，但也包括了一些我从未想过要亲自清洁的东西:洗衣机和烘干机的内部。
 

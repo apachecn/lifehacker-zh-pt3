@@ -4,7 +4,7 @@
 
 在你最喜欢的网站、应用程序或操作系统上使用“黑暗模式”感觉很棒。它非常适合黑暗的房间或飞机，当你需要节省一点电池，或者你只是厌倦了盯着屏幕看几个小时而眼睛酸痛。
 
-Watch
+
 
 很多网站都提供黑暗模式的浏览选项，包括 Twitter 和 YouTube。对于那些没有的人来说，我几周前写的类似 [黑暗阅读器](https://lifehacker.com/add-a-dark-mode-to-any-website-with-this-chrome-extensi-1826906984) 的浏览器扩展可以为你正在查看的任何东西创建一种黑暗模式。本周，我偶然发现了一个 Chrome 扩展，同样模糊不清，值得一看: [消除](https://chrome.google.com/webstore/detail/deluminate/iebboopaeangfpceklajfohhbpkkfiaa) 。
 

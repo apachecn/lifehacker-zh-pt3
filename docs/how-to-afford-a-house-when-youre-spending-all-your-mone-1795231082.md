@@ -4,7 +4,7 @@
 
 如果你是千禧一代，在攒钱买房方面有困难，澳大利亚百万富翁蒂姆·格纳给你一些简单的建议: [停止吃太多鳄梨吐司](http://time.com/money/4778942/avocados-millennials-home-buying/) 。那样的话，你永远也攒不到房子的钱。
 
-Watch
+
 
 “当我试图购买我的第一套房子时，我没有买 19 美元的碎鳄梨和每杯 4 美元的四杯咖啡，”他 [告诉 *60 分钟*](http://www.9news.com.au/national/2017/05/15/08/39/melbourne-property-tycoon-hammers-millennials-over-spending-habits#4JmBhJP4BR3bY5KX.99) 。“我们现在正处于这样一个阶段，年轻人的期望非常非常高。”
 

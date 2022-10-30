@@ -4,7 +4,7 @@
 
 索尼今天发布了 PlayStation 4 [固件更新](http://blog.us.playstation.com/2017/03/08/ps4-system-software-update-4-50-out-tomorrow/) 。除了对 PSVR 和 PS4 Pro 用户的一些调整外，还推出了期待已久的外部硬盘支持。下面是如何设置它。
 
-Watch
+
 
 为了使用外置硬盘，它需要是存储容量在 250GB 到 8TB 之间的 USB 3.0 硬盘。如果你最近购买了硬盘，这应该没问题，但如果你希望利用旧的东西，你会想在进一步检查之前仔细检查，因为 PS4 不会工作。 [我们的交易团队收集的这些硬盘选项中的任何一个](https://theinventory.com/the-best-external-drives-for-your-ps4-1792491232) 都可以使用。一旦你有了硬盘，你需要做一些事情让它在你的 PS4 上工作。
 

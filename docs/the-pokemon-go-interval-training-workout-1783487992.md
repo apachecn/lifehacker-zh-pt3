@@ -4,15 +4,11 @@
 
 如果你想成为最好的，前所未有的，你需要保持身材。*神奇宝贝 Go* 已经是 [让人们移动更多的](https://gizmodo.com/sore-legs-become-pandemic-as-pokemon-go-players-acciden-1783402931) ，但是你可能想把事情推进一个档次。这项训练可以让你在打球的时候保持健康，并且可以很容易地根据你所在的地区量身定做。
 
-Watch
+
 
 间歇训练，对于那些不熟悉这个概念的人来说，是一种锻炼，你在短时间内尽可能努力，休息，然后重复。比如你短时间冲刺，然后停下来喘口气，再冲刺。这种走走停停的活动非常适合 *Pokémon Go* 的走走停停游戏，并且知道你可以在锻炼的同时玩游戏会是一个巨大的动力。你将在神奇宝贝站收集物品(比如只有在你走路或跑步时才会孵化的蛋)，哈奇说，蛋随着你爬上大量的台阶，磨损对手的健身房，这样你就可以接管，找到野生神奇宝贝来抓，同时变得健康。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Pokémon Go Interval Training Workout](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-start-getting-in-shape-in-20-minutes-a-day-5888041) [###### 怎样才能在每天 20 分钟内开始塑身？](https://lifehacker.com/how-can-i-start-getting-in-shape-in-20-minutes-a-day-5888041) 
 
-亲爱的生活黑客，据《纽约时报》报道，间歇训练是生活黑客的捷径
-
-[Read more](https://lifehacker.com/how-can-i-start-getting-in-shape-in-20-minutes-a-day-5888041)</aside>
 
 ### **找到一个好的训练场地**
 

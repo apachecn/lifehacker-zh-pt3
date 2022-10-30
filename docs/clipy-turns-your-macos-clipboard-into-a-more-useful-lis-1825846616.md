@@ -4,7 +4,7 @@
 
 Mac:尽管我们很喜欢它，[Clippy](https://github.com/Clipy/Clipy)并不是 macOS 版本的 [Clippy，那是一个小小的动画 Windows 回形针](http://nymag.com/vindicated/2016/10/clippy-didnt-just-annoy-you-he-changed-the-world.html) ，它会问你过得怎么样，并给你有用的生活建议。这是一个必不可少的工具，如果有任何方法可以测量这种事情的话，它会让你的 macOS 剪贴板强大十倍。
 
-Watch
+
 
 实际上，有一点。安装 Clipy 时，该实用程序会保存各种复制命令的历史记录。你将不再局限于粘贴你最后复制的东西，无论是通过两个手指轻敲你的笔记本电脑的触控板，控制点击你的鼠标，或使用良好的老⌘+C—to 名字几个。
 

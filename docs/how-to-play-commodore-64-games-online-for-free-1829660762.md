@@ -4,7 +4,7 @@
 
 上个月， [互联网档案馆](https://archive.org/about/) 在其不断增长的历史软件库中增加了一个 [Commodore 64 模拟器](https://archive.org/details/softwarelibrary_c64) ，有效地将复古的计算机/游戏主机带入了公共领域。就像互联网档案馆的 [MS-DOS](https://archive.org/details/softwarelibrary_msdos) 和 [Apple II](https://archive.org/details/softwarelibrary_apple) 程序库一样，他们存档的每一个程序现在都可以在网站上找到，并可以在你的浏览器上播放。
 
-Watch
+
 
 迄今为止，该档案馆已经上传了超过 15000 个程序，其中包括近[9000 个游戏](https://archive.org/details/softwarelibrary_c64_games) 。《Commodore 64》目录中收藏了大量经典游戏，如 [*大金刚*](https://archive.org/details/Donkey_Kong_1983_Nintendo)[*吃豆人*](https://archive.org/details/d64_Ms._Pac-Man_1984_Atari) ，以及 [*太空入侵者*](https://archive.org/details/d64_Space_Invaders_1983_Keypunch_Software) 。如果你需要一个开始的地方，Archive.Org 已经策划了一个 [【展柜】](https://archive.org/details/softwarelibrary_c64_showcase) 突出了一些要领。
 

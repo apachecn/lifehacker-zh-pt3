@@ -4,7 +4,7 @@
 
 Wi-Fi SD 卡已经存在了相当长的一段时间，但它们实际上并没有那么好。在四处挖掘之后，我决定试用一下 [东芝的 32 GB FlashAir Wi-Fi 卡](http://www.toshiba-memory.com/cms/en/products/wireless-sd-cards/FlashAir/) ，令我惊讶的是，它的效果很好，只要你保持你的期望。
 
-Watch
+
 
 我一直对 Wi-Fi SD 卡犹豫不决，因为它们听起来像巫术。我在 2008 年左右尝试了一张原始的 Eyefi 卡，并讨厌整个体验。直到最近，当我决定给我的相机添加 Wi-Fi 将使照片传输到我的手机变得更容易时，我才回顾了过去。毕竟，这些东西现在必须更好地工作，对不对？[flash air](http://www.amazon.com/gp/product/B00UOYPZP2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-toshiba-flashair-makes-adding-wi-fi-to-your-camera-1754703258&asc_source=&tag=kinjalifehackerlink-20)是目前最便宜的品牌选择，32GB 的卡通常售价约 30 美元，相比之下 [Eyefi 的 90 美元](http://www.amazon.com/Eyefi-Class-90-day-Service-Mobi-32-FF/dp/B00JGJBCN0/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-toshiba-flashair-makes-adding-wi-fi-to-your-camera-1754703258&asc_source=&ie=UTF8&keywords=32gb eyefi&qid=1453484804&sr=8-2&tag=kinjalifehackerlink-20) 和 [Transcend 的 60 美元](http://www.amazon.com/Transcend-Wi-Fi-Class-Memory-TS32GWSDHC10/dp/B00A659ILQ/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-toshiba-flashair-makes-adding-wi-fi-to-your-camera-1754703258&asc_source=&ie=UTF8&keywords=transcend wi-fi&qid=1453486777&sr=8-2&tag=kinjalifehackerlink-20) 。因此，在测试了最新的 Eyefi 进行比较并决定额外的功能对我来说还不够后，我选择了 FlashAir。
 

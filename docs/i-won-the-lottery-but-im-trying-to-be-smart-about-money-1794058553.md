@@ -4,7 +4,7 @@
 
 尼克很自然地中了彩票，他正在考虑买什么样的车来挥霍金钱。但是尼克没有赢得数百万美元，所以他想要一些适中的，但仍然相当不错的东西。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

@@ -4,7 +4,7 @@
 
 三星已经为 Galaxy S8 发布了测试版的 [Android 8.0 奥利奥，但如果你使用的是](https://lifehacker.com/heres-when-android-8-0-oreo-is-coming-to-your-current-p-1820786391) [公司的最新智能手机](https://lifehacker.com/how-to-disable-the-bixby-button-on-your-galaxy-s8-or-no-1819043354) 你仍然停留在去年的 [Nougaty](https://lifehacker.com/the-coolest-features-of-android-n-google-didnt-announce-1764114846) 操作系统上——直到现在。Galaxy Note 8 的奥利奥测试版本周泄露，你现在只需做一点点工作就可以安装它。
 
-Watch
+
 
 [GadgetHacks](https://android.gadgethacks.com/how-to/install-android-oreo-your-samsung-galaxy-note-8-right-now-0181589/) 为你的 Galaxy Note 8 下载并安装泄露的 Android 测试版有详细的指南。在你开始之前，你需要确保你使用的是美国版本的手机，它采用的是骁龙处理器，而不是使用三星自己芯片的国际版本。你还需要一张 microSD 卡和一个文件管理软件，比如 [Solid Explorer](https://lifehacker.com/the-best-file-management-app-for-android-5825578) 。
 

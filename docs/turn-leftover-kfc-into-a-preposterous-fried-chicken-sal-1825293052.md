@@ -4,7 +4,7 @@
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 
-Watch
+
 
 如果要我和食谱扯上关系，这就是了。这是一天晚上我用冰箱里的东西玩混搭游戏时想出来的。我吃了一个派对上剩下的肯德基炸鸡，并用它做了一份鸡肉沙拉。这是垃圾，荒谬的，过分的，和该死的美味。
 

@@ -4,7 +4,7 @@
 
 本周的主题是寻找前进的道路。我们研究了为什么在 20 多岁时经历“四分之一人生危机”很常见，并试图解析英国退出欧盟对每个人的意义。但我们也考虑了更简单的东西，比如苹果现已停产的 Thunderbolt 显示器的替代品和 Evernote 替代品。
 
-Watch
+
 
 ## [**如何克服自己的四分之一人生危机**](http://lifehacker.com/how-to-overcome-your-quarter-life-crisis-1782670670)
 

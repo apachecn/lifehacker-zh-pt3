@@ -4,7 +4,7 @@
 
 NFL 常规赛将在几周后拉开帷幕，如果你不想搞砸兔子耳朵、有线电视订阅和地区停电，这意味着是时候考虑你的流媒体选项了。和往年一样，很乱。
 
-Watch
+
 
 今年，Twitter 正在与周四晚上的流媒体视频混合，DirecTV 的 [NFL 周日门票](http://www.directv.com/sports/nfl_schedules) 正在向更多人提供，而 [PlayStation Vue](https://www.playstation.com/en-us/network/vue/?emcid=ps-se-1232&utm_medium=Paid_Search&utm_campaign=Vue&utm_source=Google&utm_term=ps-se-1232&utm_content=Vue#1) 和 [Sling TV](https://www.sling.com/) 正在增加 [NFL Network](http://www.nfl.com/network) 。这就是说:尽管看起来你有了更多的选择，但是 NFL 的流媒体游戏似乎比前几年更复杂了。
 

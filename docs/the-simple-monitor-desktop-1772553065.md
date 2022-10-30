@@ -4,7 +4,7 @@
 
 Flickr 用户 [d.chasenelson](https://www.flickr.com/photos/77432423@N06/) 的桌面很简单，只有几个小部件，还有一个简单的渐变壁纸，一点也不会让人分心。当您在第一个屏幕中工作时，它是第二个屏幕的理想选择，或者只是作为一个快速的监控视图，您可以最小化其他要检查的内容。下面是如何设置它。
 
-Watch
+
 
 这是一个使用 Rainmeter 的 Windows 7 桌面(尽管我们无法想象你不能在 Windows 8 或 10 中获得相同的效果，如果你有 Windows 8 或 10 的话)。如果你是 Rainmeter 的新手，我们有一个 [很棒的入门指南](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) ，它会教你构建自己的定制桌面的所有细节。
 

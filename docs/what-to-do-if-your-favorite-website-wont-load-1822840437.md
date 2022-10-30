@@ -4,7 +4,7 @@
 
 大多数时候，我们认为互联网是理所当然的。所以当出现问题时(比如 [Twitter](https://lifehacker.com/how-to-delete-your-old-tweets-and-favs-before-your-enem-1821062277) 崩溃或者你的老板决定阻止 [Reddit](https://lifehacker.com/a-beginners-guide-to-reddit-1798643829) 工作)，这可能会是一个真正的冲击。
 
-Watch
+
 
 但是如果你最喜欢的网站加载不了或者你一直收到错误信息，没有理由绝望。相反，尝试这些技巧(通过 [gHacks](https://www.ghacks.net/2018/02/08/find-out-why-you-cant-access-a-website-or-service-on-the-internet/) )来找出问题所在并提出解决方案。
 

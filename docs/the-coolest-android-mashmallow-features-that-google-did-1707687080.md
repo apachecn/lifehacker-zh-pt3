@@ -4,7 +4,7 @@
 
 安卓棉花糖终于来了。在谷歌 I/O 上首次公布 [，该公司已经调侃过](http://lifehacker.com/all-the-important-stuff-google-announced-at-i-o-2015-1707454800#_ga=1.96417369.431406394.1415821409) [一堆炫酷功能](http://lifehacker.com/all-the-new-features-of-android-m-1707454646#_ga=1.155023997.431406394.1415821409) 。以下是谷歌没有公布的一些可爱功能。
 
-Watch
+
 
 目前，Android Marshmallow 仅适用于某些 Nexus 设备。如果你还没有收到更新，下面介绍如何 [跳过一行，手动更新](http://lifehacker.com/how-to-skip-the-line-and-manually-update-your-nexus-dev-1726640490) 。对于其他人来说，一定要看看 [我们的设备列表，预计在未来的某个时候会得到棉花糖](http://lifehacker.com/every-phone-thats-getting-updated-to-android-marshmallo-1734676576) 。
 

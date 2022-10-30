@@ -4,7 +4,7 @@
 
 有时候，你需要在旅途中工作。这样做的最佳方式是只携带你需要的东西，这正是 Carry reader 和 Hard Anywhere 的联合创始人 Benson Chou 所做的。
 
-Watch
+
 
 包里是一个 [菲尔森原装的公文包](http://www.amazon.com/dp/B00AL1YKTU/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-simplified-mobile-office-bag-1750943785&asc_source=&tag=kinjalifehackerlink-20) 。这是里面的内容:
 

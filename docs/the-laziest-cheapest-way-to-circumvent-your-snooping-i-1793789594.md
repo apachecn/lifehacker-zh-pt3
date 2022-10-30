@@ -4,7 +4,7 @@
 
 [国会决定](https://lifehacker.com/senate-votes-to-let-internet-providers-sell-your-web-hi-1793574677) 你的 ISP 应该被允许出售你的私人浏览数据，但是解决这个问题的方法是 [有点复杂，成本高，或者只是一个痛苦](https://lifehacker.com/why-is-everyone-talking-about-vpns-1793768312) 。一个懒于上网的人会做什么？使用 Opera。
 
-Watch
+
 
 [去年](https://lifehacker.com/operas-free-vpn-built-right-into-the-browser-rolls-ou-1786935648) ，Opera，这个大家似乎都忘了的小浏览器，推出了免费的 VPN。 [虽然它因泄露 IP 地址而立即遇到了安全问题](https://lifehacker.com/stop-opera-s-new-vpn-from-leaking-your-ip-address-1773359437) ， [它现在已经被修补好了](https://lifehacker.com/stop-opera-s-new-vpn-from-leaking-your-ip-address-1773359437) ，并且是最简单、最便宜、更合理的私人方式来访问 VPN，这会绕过你的 ISP。不过，它也有一系列的警告。
 

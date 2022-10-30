@@ -4,7 +4,7 @@
 
 **Windows:** 距离我们谈论 Windows 应用 [**Sizer**](http://www.brianapps.net/sizer4/) 已经很久很久了，最近对 [进行了重写，使](http://www.brianapps.net/sizer4/moredetails.html) 与 Windows 10 应用更加兼容。考虑到这个小工具的有用性，这几乎是令人尴尬的。只需按几个键盘按钮，你就可以将应用程序在屏幕上的大小重新配置为你想要的任何尺寸，从而比 Windows 10 的默认命令更好地控制应用程序的显示方式。
 
-Watch
+
 
 <small>*(也就是说，每个人都应该记住 Windows 的默认命令:Windows 键+左箭头键或右箭头键，用于最大化应用程序在左侧或右侧或你的屏幕上的窗口(超宽显示器的天赐之物)；窗口键+向上箭头最大化你的窗口，以填补你的整个屏幕；Windows 键+向下箭头，用于缩小窗口或完全最小化窗口；*</small> [<small>*等等*</small>](https://support.microsoft.com/en-us/help/12445/windows-keyboard-shortcuts) <small>*。)*</small>
 

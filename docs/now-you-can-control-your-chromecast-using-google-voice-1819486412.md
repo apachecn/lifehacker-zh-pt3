@@ -4,7 +4,7 @@
 
 现在你终于可以(终于！)使用谷歌的语音助手来控制你的 Chromecast。 [*安卓警察*](http://www.androidpolice.com/2017/10/13/praise-slow-google-now-possible-control-chromecast-music-tv-playback-phones-assistant-not-just-google-home/) 报道称，谷歌终于在本周推出了这一功能。
 
-Watch
+
 
 该功能适用于音乐和视频，您可以指定您希望在家中的哪个 Chromecast 上播放音乐或视频。例如，你可以说“在卧室的电视上播放视频”
 

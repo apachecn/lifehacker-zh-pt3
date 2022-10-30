@@ -4,7 +4,7 @@
 
 我们已经晚了几天去边缘艺术节了，但是还有时间！在本周的《黑客你的城市》节目中，我们想听听爱丁堡现在和全年有什么好的。(我们本打算在 [中发表整篇文章，拼出在迷因中非常流行的苏格兰方言](http://www.collegehumor.com/post/7043353/16-scottish-people-twitter-tweets-that-are-hilarious-if-you-can-understand-them) ，但后来我们决定我们不能继续这样做，所以不客气。)
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

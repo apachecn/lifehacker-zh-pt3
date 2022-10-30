@@ -4,7 +4,7 @@
 
 盯着明亮的屏幕 [尤其是在晚上](https://lifehacker.com/how-can-i-make-my-computer-and-phone-more-friendly-to-u-5899079)——可能会让你的屁股和/或眼睛感到疼痛。很难抗拒“再来一段视频”的诱惑当你晚上安顿下来的时候。谢天谢地，谷歌刚刚更新了 iOS 版的 [YouTube](https://itunes.apple.com/us/app/youtube-watch-listen-stream/id544007664?mt=8) 应用程序，加入了你会在它的网站上找到的同样的“黑暗模式”,这应该会让你晚上的猫咪视频狂欢变得更容易一些。
 
-Watch
+
 
 下面是如何设置它。( [安卓用户](https://play.google.com/store/apps/details?id=com.google.android.youtube&hl=en)—你的版本是“即将推出”)
 

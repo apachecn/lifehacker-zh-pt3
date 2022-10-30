@@ -4,7 +4,7 @@
 
 川普政府提议 [改变对被骗学生的](https://www.wsj.com/articles/trump-administration-proposes-tightening-rules-for-forgiving-student-loans-1532528682) 要求，免除他们的学生贷款债务，对那些声称自己被骗的人提出更严格的要求。
 
-Watch
+
 
 拟议中的规则——教育部将在下个月征求公众意见——改变了当前奥巴马时代的规定，即允许联邦学生贷款的借款人在教育的“成本和质量”上被误导的话，可以获得债务豁免。2015 年，奥巴马政府曾利用这一规定让科林斯大学生获得债务减免。
 

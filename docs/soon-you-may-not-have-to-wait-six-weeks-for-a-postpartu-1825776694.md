@@ -4,7 +4,7 @@
 
 在你的孩子出生之前，你会见到你的妇产科医生(或助产士)和他们的工作人员。每月一次的探访变成了两周一次和每周一次，但是一旦孩子出生，你只会得到一句“六周后见”这种情况可能即将改变。
 
-Watch
+
 
 美国妇产科学院(ACOG)的一个工作小组最近 [推荐](https://www.acog.org/Clinical-Guidance-and-Publications/Committee-Opinions/Committee-on-Obstetric-Practice/Optimizing-Postpartum-Care#policy) 说产后护理包括更多，嗯，*护理*。ACOG 的建议不是强制性的，但医生和保险公司通常会努力遵循。取决于让每个人都参与进来需要多长时间，你的下一次出生可能会有几次拜访，而不仅仅是你的小南瓜。
 

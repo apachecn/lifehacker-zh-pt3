@@ -4,7 +4,7 @@
 
 最近的日食是一次强有力的经历。无论你是跋涉数百英里去看日全食，还是在午休时出去和朋友分享日全食眼镜，你都经历了一个美妙的天文和社交时刻。你现在可能会感觉到与太阳和月亮在智力上或精神上有很强的联系。但是这种联系并没有到达你的子宫。
 
-Watch
+
 
 不过，你不会从铺天盖地的头条新闻中得知这一点。在*嘉人* : [女性已经注意到今天日食](http://www.marieclaire.com/health-fitness/features/a28913/solar-eclipse-menstrual-cycle/) 的一个奇怪副作用。在*青少年时尚* : [日食如何影响月经周期](http://www.teenvogue.com/story/solar-eclipse-period) 。*喧嚣的* take 有一个类似的标题——[日食可能如何影响你的月经，而你甚至没有意识到](https://www.bustle.com/p/how-the-solar-eclipse-may-affect-your-period-without-you-even-realizing-77984)——但这篇文章很快揭穿了这种联系。
 

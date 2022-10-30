@@ -4,7 +4,7 @@
 
 资金管理并不容易，但我们会尽最大努力帮你解决。以下是我们 2016 年最佳个人理财指南、入门指南和解释者。
 
-Watch
+
 
 ## [**越穷越贵的东西**](http://twocents.lifehacker.com/the-stuff-that-costs-more-when-youre-poor-1783148870#_ga=1.76833877.1988617176.1481069876)
 

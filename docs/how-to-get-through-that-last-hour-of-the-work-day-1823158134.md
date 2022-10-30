@@ -4,7 +4,7 @@
 
 对我来说，工作日有一个可预测的弧线:那些充满可能性和生产力的最初几个小时；午餐；眼神呆滞/昏迷；一两个小时的工作完成后的复兴；然后是最后一个小时，尽量不要点击 [奥运选手与猫冰壶](https://www.youtube.com/watch?v=evNi4_2qHPY) 。
 
-Watch
+
 
 我并不孤单:r/LifeProTips 上的一个请求询问如何度过最后一个令人疲惫的工作时间 的建议，并获得了一些非常有用的回复，从小吃(一个橙子，一些杏仁)到小睡片刻。但是为了得到权威的、有研究支持的答案，我求助于丹尼尔·平克，他是几本关于商业、生产力和行为的畅销书的作者，包括新的 [*当:完美时机的科学秘密*](https://www.amazon.com/When-Scientific-Secrets-Perfect-Timing/dp/0735210624/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-through-that-last-hour-of-the-work-day-1823158134&asc_source=&ie=UTF8&keywords=when the scientific secrets of perfect timing&qid=1519139668&sr=8-1&tag=kinjalifehackerlink-20) *。*他通过电子邮件提出了一些建议，告诉我们如何让工作日的最后一段变得更有效率。
 

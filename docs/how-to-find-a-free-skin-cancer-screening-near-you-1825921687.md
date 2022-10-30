@@ -4,7 +4,7 @@
 
 皮肤癌是美国最常见的癌症类型，但它 [可能很难找到皮肤科医生](https://vitals.lifehacker.com/how-to-get-an-appointment-with-a-dermatologist-when-the-1798397585) 来检查你的皮肤。然而，随着夏天的到来，美国皮肤病学会正在组织免费的皮肤癌筛查。
 
-Watch
+
 
 你可以在 [这里](https://www.aad.org/public/spot-skin-cancer/programs/screenings/find-a-screening) 找到一个离你最近的放映点，或者注册电子邮件提醒，这样下次你所在地区有空的时候你就会得到通知。放映全年都有，尤其是现在。(5 月是皮肤癌宣传月。)
 

@@ -4,7 +4,7 @@
 
 有相当多的[网络诈骗](http://thegarage.jalopnik.com/how-to-avoid-craigslists-rampant-sight-unseen-purchase-1707158966) 在那里，我已经谈论过其中的一些。但是我一直听说有人被“汇票”骗局骗了。
 
-Watch
+
 
 你在 Craigslist 上发布广告出售你的二手车。你列出一个合理的价格。一个人从很远的地方打电话给你，说他们一直在找这辆车。以至于他们甚至不需要看到它-他们会立即把钱寄给你，甚至支付汽车运输费。你需要做的就是坐下来兑现汇票。
 

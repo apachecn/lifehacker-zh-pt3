@@ -4,7 +4,7 @@
 
 如果 [做单个引体向上(或更多)](http://thefyslife.com/article/how-to-do-pull-ups/) 是你人生的目标之一，你很幸运。这里有一个你可以遵循的游戏计划，即使你所能做的只是像一袋肉一样晃来晃去。
 
-Watch
+
 
 虽然你的上半身需要强壮，但引体向上实际上需要用到你的全身。你需要始终保持紧张，包括你的腹肌和腿部，以避免摇摆和欺骗你的引体向上。詹妮弗·布雷克和珍·辛克勒 的这个 [引体向上项目分解了你现在*可以做的事情，在短短两周内开始看到改善。我们已经写了很多关于*](https://www.jensinkler.com/do-it-better-pull-ups/) *[帮助你训练引体向上](http://vitals.lifehacker.com/the-most-common-pull-up-mistakes-and-how-to-fix-them-1778122602#_ga=1.205424661.460803763.1483850531)* *的内容，但是这个程序相当容易掌握，并且包括了我们在 之前没有讨论过的 [练习。](https://lifehacker.com/work-your-way-to-a-pull-up-with-these-intermediary-exe-1685251314)*
 

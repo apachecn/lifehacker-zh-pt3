@@ -4,7 +4,7 @@
 
 根据个人理财网站 WalletHub 进行的一项调查 ，超过一半的信用卡持有者不知道他们的信用卡是否收取国外交易费。这可能是一个代价高昂的错误。
 
-Watch
+
 
 国外交易费用由您的发卡机构收取，例如，大通或 [富国银行](https://twocents.lifehacker.com/seriously-its-time-to-drop-wells-fargo-1825573626)——在美国境外的每一笔交易，或通过美国境外公司的国内交易(例如，如果您通过酒店网站而不是通过 Expedia 或 Kayak 等网站预订伦敦的酒店房间，您可能需要支付国外交易费用。)他们的 [通常是每次刷卡的百分之三左右](https://www.creditcards.com/credit-card-news/what-is-foreign-transaction-fee.php) 。
 

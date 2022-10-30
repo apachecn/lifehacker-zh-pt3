@@ -4,7 +4,7 @@
 
 如今，看电视、读报纸或在社交媒体上互动，几乎不可能不被无休止、令人沮丧的新闻轰炸。因此，这里有一个简单的方法，可能会让你对 2017 年如何度过感觉更好 [使用亚马逊 Dash 按钮向美国公民自由联盟](https://medium.com/@nathanpryor/the-aclu-dash-button-16719e446363#.iy5c45xcr) 捐款变得很容易。
 
-Watch
+
 
 [通常用于订购家用必需品，如洗涤剂、垃圾袋或通心粉和奶酪(这本身就有点令人沮丧)，亚马逊去年还开发了 Dash buttons 的黑客版本](http://gizmodo.com/amazon-finally-made-the-dash-button-weve-wanted-all-alo-1776546483#_ga=1.124961162.122581585.1444279257) 。程序员内森·普赖尔(Nathan Pryor)使用亚马逊网络服务物联网按钮——贴有定制标签——使其难以置信地容易捐赠给美国公民自由联盟，该联盟最近有工作要做。
 

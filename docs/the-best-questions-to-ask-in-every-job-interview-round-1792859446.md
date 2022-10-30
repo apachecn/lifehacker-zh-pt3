@@ -4,7 +4,7 @@
 
 诚然，在你真正开始工作之前，你永远无法完全确定自己会如何适应与一位 [新老板](https://www.themuse.com/advice/4-strategies-for-dealing-with-a-new-boss-whos-still-getting-the-hang-of-it) 、公司或团队一起工作，但在面试过程中问一些试探性和战略性的问题是收集有关潜在机会的有用信息的最简单方法之一。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/the-best-interview-questions-to-ask-in-every-round) *。*
 

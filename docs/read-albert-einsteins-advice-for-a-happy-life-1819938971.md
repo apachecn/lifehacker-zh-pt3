@@ -4,7 +4,7 @@
 
 1921 年，阿尔伯特·爱因斯坦获得了诺贝尔物理学奖。不久后，他去日本做了一次巡回演讲，在日本，他决定开始给人们一些建议，而不是现金， [*石英*报道](https://qz.com/1109535/read-albert-einsteins-handwritten-advice-on-living-a-happy-life/) 。
 
-Watch
+
 
 他提示说，虽然这可以说是一个确保你今后得到糟糕服务的举措，但爱因斯坦的一些建议似乎已经被接受，并且仍然保留在那些人或他们的家人手中。最近， [一张手写的便条](https://winners-auctions.com/en/content/professor-albert-einstein-regarding-fitting-way-life-imperial-hotel-tokyo-japan-1922) 浮出水面，它写于 1922 年的东京帝国酒店，提供了幸福生活的建议。
 

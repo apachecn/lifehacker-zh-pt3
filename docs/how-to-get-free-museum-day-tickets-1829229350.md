@@ -4,7 +4,7 @@
 
 每年都有一天，全美有近 1500 家博物馆免费向游客开放。但是你仍然需要票。
 
-Watch
+
 
 可获得的门票数量有限， [据](https://www.cnn.com/travel/article/museum-day-smithsonian/index.html) *CNN* 报道，但每张提供两个人的普通入场券，并可在史密森尼博物馆的 [网站](https://www.smithsonianmag.com/museumday/search/?q=) 上下载，直到 9 月 22 日周六下午 3 点。那是真正的博物馆日，所以你可能想尽快下载你的。每个电子邮件地址都有一张入场券，所以如果你想四人一组，是时候拿出你那些奇怪的别名电子邮件了。
 

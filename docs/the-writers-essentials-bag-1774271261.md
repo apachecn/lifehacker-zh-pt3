@@ -4,7 +4,7 @@
 
 简单是你在一个包里真正需要的，reader [Crystal C 的](http://crystalchen.kinja.com/) 就是一个很好的例子。里面装着她写作的必需品，既干净又轻便。
 
-Watch
+
 
 这个包是一个 [属性的](http://thepropertyof.com/) 背包。这是里面的内容:
 

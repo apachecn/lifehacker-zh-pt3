@@ -4,7 +4,7 @@
 
 随着我们越来越忙， [工作时间越来越长，](http://www.gallup.com/poll/175286/hour-workweek-actually-longer-seven-hours.aspx) ，代餐饮料变得越来越普遍。不要和蛋白奶昔混淆，典型的代餐饮料 [每份含有更少的蛋白质、更多的碳水化合物和更多的卡路里](http://vitals.lifehacker.com/are-meal-replacement-shakes-actually-useful-1764726363) 。一些代餐饮料被推向市场，以帮助人们减肥，而另一些则是为了帮助人们在准备膳食时节省时间和金钱。
 
-Watch
+
 
 代餐饮料是否对你有益一直是人们热议的话题，尤其是考虑到最近的和 [对营养](http://www.webmd.com/diet/features/meal-replacements-choose-those-bars-and-drinks-carefully#1) 的担忧。下面是不同代餐饮料的营养比较，以及人们对它们的评价。
 

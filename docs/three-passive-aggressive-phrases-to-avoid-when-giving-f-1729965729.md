@@ -4,7 +4,7 @@
 
 为了表示友好，你可能会淡化你的批评，比如说“也许只是我，但是……”虽然这些限定词来自一个好的地方，但收到它的人可能会认为你只是在消极攻击，而不是巧妙地隐藏你真正想说的话。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/3-times-you-think-youre-being-nicebut-you-actually-just-sound-passiveaggressive) *。*
 

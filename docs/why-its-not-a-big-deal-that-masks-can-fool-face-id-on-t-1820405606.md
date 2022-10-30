@@ -4,7 +4,7 @@
 
 当苹果首次宣布 iPhone X 的 [Face ID 时，它声称这一新功能比触控 ID 安全得多，甚至连最逼真的面具都骗不了。但事实可能并非如此。](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) 
 
-Watch
+
 
 越南网络安全公司 Bkav 在你抓狂之前，下面是这个消息对你的智能手机安全的实际意义。
 

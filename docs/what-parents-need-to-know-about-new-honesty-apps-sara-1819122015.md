@@ -4,7 +4,7 @@
 
 我们都很好奇 [别人怎么看我们](https://lifehacker.com/why-we-love-ourselves-but-care-more-about-other-peoples-1795894658) 。对于青少年来说，渴望被认可是非常强烈的。有人觉得我很酷吗？我今天穿的衣服是不是太多了？我在旁边有趣吗？两个新的“诚实”应用程序让他们匿名接收他们渴望的同行反馈。
 
-Watch
+
 
 继 Ask.fm、好奇猫、Yik Yak、Whisper 和 Secret 等其他匿名平台的流行之后， [萨拉哈](https://play.google.com/store/apps/details?id=com.sarahah.android&hl=en) 和 [TBH](https://itunes.apple.com/us/app/tbh/id1200014540?mt=8) 已经成为高中生中最新的痴迷对象。这种匿名应用程序可能是 [【臭名昭著的网络欺凌中心】](https://www.commonsensemedia.org/blog/apps-stirring-up-trouble-in-schools) 据常识媒体——burn book 报道，一款以*刻薄女孩*著名的学校八卦粉色书籍 [命名的应用程序，在学生报告收到暴力威胁后，促使加利福尼亚州俄勒冈州的学校关闭](http://www.huffingtonpost.com/diana-graber/burnbook-whos-to-blame-when-an-app-shuts-down-a-school_b_6948750.html) 。
 

@@ -4,7 +4,7 @@
 
 欢迎来到**周中冥想**，Lifehacker 每周一次的探索斯多葛派智慧，以及你如何用它来反思和改善你的生活。
 
-Watch
+
 
 在这篇就职文章中，我将分享我最喜欢的斯多葛派的一句话，罗马皇帝 [马可·奥勒留](https://en.wikipedia.org/wiki/Marcus_Aurelius) 。它来自他的个人作品集，后来被出版为[](https://en.wikipedia.org/wiki/Meditations)*:*
 

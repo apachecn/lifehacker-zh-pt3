@@ -4,7 +4,7 @@
 
 Android: 有很多人不需要花里胡哨的东西，只要一个易于理解、设计良好的应用程序就可以了。这是我对谷歌新的播客应用的印象——戏弄了一段时间，终于在昨天提供下载。
 
-Watch
+
 
 [谷歌播客](https://play.google.com/store/apps/details?id=com.google.android.apps.podcasts) 以一种快速而令人信服的方式涵盖了所有基础知识。它的功能远不及像 [Pocket Casts](https://lifehacker.com/how-to-use-pocket-casts-to-wrangle-your-horrible-podcas-1793102283) 这样的播客应用，但如果你不想处理大量的设置或刚刚开始播客的神奇世界，它是一个很好的选择。还有，是免费的；免费是不会错的。
 

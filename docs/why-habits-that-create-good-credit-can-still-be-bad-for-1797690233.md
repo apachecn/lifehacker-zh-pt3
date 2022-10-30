@@ -4,7 +4,7 @@
 
 你知道信用很重要，你甚至学会了一些提高分数的技巧。关于信用，每个人都应该学到的最后一课是，对你的信用评分有好处的东西并不总是对你的财务健康有好处。 [赊账有时会有悖于良好的理财习惯。](http://twocents.lifehacker.com/good-money-habits-that-can-hurt-your-credit-1785962981)
 
-Watch
+
 
 *喜欢与否，* [*信用事项*](http://twocents.lifehacker.com/all-the-ways-bad-credit-can-make-your-life-difficult-1740467353) *。也很复杂。在我们的“你需要知道的关于信用的一切”系列中，我们正在分解基础知识。*
 

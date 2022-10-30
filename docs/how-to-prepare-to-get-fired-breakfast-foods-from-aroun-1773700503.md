@@ -4,7 +4,7 @@
 
 在本周的 Brain Buffet 中，如果你即将在工作中被解雇，你应该做什么，为什么 2016 年似乎有这么多名人去世，谷歌新的硬件部门，等等。
 
-Watch
+
 
 <small>*欢迎来到 Lifehacker 的*</small> [<small>*【周一大脑自助】*</small>](http://lifehacker.com/tag/monday-brain-buffet) <small>*，这是一个新的系列，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，将教给你一些新的东西，激励你，并有希望以正确的方式开始你的一周。让我们开始吧。*T15】</small>
 

@@ -4,7 +4,7 @@
 
 双显示器设置是一种诱人的方式，让它看起来像你是额外的生产力。多台显示器刚刚 [尖叫电力用户](http://www.theonion.com/article/coworker-with-two-computer-screens-not-fucking-aro-29151) 。然而，实际上，这种设置与其说是一种帮助，不如说是一种阻碍。如果 [使用单一显示屏](https://hackernoon.com/why-i-stopped-using-multiple-monitors-bfd87efa2e5b) 能让你提高注意力，完成更多工作，会怎么样？
 
-Watch
+
 
 那是开发商 [科里屋](https://hackernoon.com/why-i-stopped-using-multiple-monitors-bfd87efa2e5b) 在他弄走第二个显示器后发现的。最初，House 尝试了 LG 的 34 英寸宽屏显示器，但发现它的宽度助长了重复摆弄窗口大小以在单个屏幕上安装多个应用程序的浪费时间的习惯。他选定了一款结合了虚拟桌面功能的 24 英寸 4K 显示器，这样就不需要不断地将注意力从屏幕的一边转移到另一边。
 

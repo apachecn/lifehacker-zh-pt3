@@ -4,7 +4,7 @@
 
 误用统计数据是 [撒谎](https://en.wikipedia.org/wiki/Lies,_damned_lies,_and_statistics) 最有力的方法之一。通常，我们会教你如何 [避免误解统计数据](http://lifehacker.com/four-common-statistical-misconceptions-you-should-avoid-906056582#_ga=1.54570603.1347662518.1465819317) ，但是知道数字是如何被操纵的可以帮助你发现它何时发生。为此，我们将向你展示如何让数据支持你的任何错误想法。
 
-Watch
+
 
 *<small>这篇文章是我们的</small>* [*<small>恶周</small>*](https://lifehacker.com/welcome-to-lifehackers-seventh-annual-evil-week-1788085206) *<small>系列的一部分，在这里我们看到了做事的阴暗面。有时邪恶是正当的，而其他时候，知道邪恶意味着知道如何打败它。想要更多吗？查看我们的</small>* [*<small>恶周标签页</small>*](http://lifehacker.com/tag/evil-week#_ga=1.105669515.968941705.1436971740) *<small>。</small>*
 

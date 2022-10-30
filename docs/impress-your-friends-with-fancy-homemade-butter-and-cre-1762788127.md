@@ -4,7 +4,7 @@
 
 一个人能做的最有吸引力的事情之一是做一些通常被认为是“商店购买”的东西即使鲜奶油是你在厨房里能做的最简单的东西之一，我仍然会遇到一些人对新鲜的鲜奶油感到惊讶。鲜奶油很棒，但如果你真的想让某人大吃一惊，那就做一些更花哨的东西，比如新鲜黄油、鲜奶油或复合黄油。
 
-Watch
+
 
 ### 新鲜的 Get(奶油)
 
@@ -12,11 +12,7 @@ Watch
 
 如果你从来没有吃过鲜奶油，这是一种令人愉快的增稠、略带酸味的乳制品，最好被描述为“更好、更黄油化的酸奶油”它有点贵，有时很难找到，但可以用两种很容易找到的原料制作:重奶油和酪乳。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Impress Your Friends With Fancy Homemade Butter and Crème Fraîche](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/sour-cream-crema-creme-fraiche-whats-the-difference-1689518420) [###### 酸奶油、克莉玛、鲜奶油:有什么区别？](https://lifehacker.com/sour-cream-crema-creme-fraiche-whats-the-difference-1689518420) 
 
-酸奶油、克莉玛和鲜奶油:这三种乳制品经常被用来添加清凉的…
-
-[Read more](https://lifehacker.com/sour-cream-crema-creme-fraiche-whats-the-difference-1689518420)</aside>
 
 确实是这样。只需在一品脱重奶油 中加入 [两汤匙培养酪乳，让它在室温下静置，直到它变得又好又稠(12-24 小时)。一旦它可以舀起并传播，舀起并传播到你的整个生活中。薄饼和鱼子酱是经典的配菜，但我通常会拿起一袋锅薯条开始铲。除了蘸酱，鲜奶油还是各种食谱中令人愉悦的配料，从甜食到美味佳肴。](http://www.seriouseats.com/recipes/2011/02/how-to-make-creme-fraiche-in-1-easy-step.html)
 

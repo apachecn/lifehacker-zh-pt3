@@ -4,7 +4,7 @@
 
 [Trello](https://trello.com/?utm_source=zapier&utm_medium=blogpost) 是一款灵活的协作工具，被超过 1700 万人以多种方式使用。市场营销人员、项目经理、软件开发人员、高中教师、人力资源经理、婚礼策划师、全职父母和旅行策划师等已经定制了可视化工具来满足他们的需求。但是特雷罗背后的百人团队是如何把工具用到自己身上的呢？
 
-Watch
+
 
 *本帖原载于* [*扎皮尔博客*](https://zapier.com/blog/how-trello-uses-trello/) *。免责声明:Carlin Sack 在 Zapier 的内容营销部门工作，Zapier 为 Trello(以及其他公司)开发和提供产品，并从 Trello 获得服务报酬。*
 

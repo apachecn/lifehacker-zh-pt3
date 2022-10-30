@@ -6,7 +6,7 @@
 
 视频编辑和 redditor Alex Mitchell 将他的工作空间的 [这个惊人的视频](https://www.youtube.com/watch?v=utsUYaqRJrk) 放在一起——它最小化，干净，有足够的空间来工作和展开，当然，保持工作(他的 Macbook Pro)在前面和中心，玩(他的 PS4)就在拐角处。我们喜欢它，这里还有一些照片。
 
-Watch
+
 
 上面的视频是对一切的叙述式预演，包括他的 [戴尔 U3415W 超宽显示器](http://www.amazon.com/Dell-UltraSharp-34-Inch-LED-Lit-Monitor/dp/B00PXYRMPE?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-minimalists-work-and-play-space-1776589986&asc_source=&tag=kinjalifehackerlink-20) ，Macbook Pro，Razer Mamba 鼠标用于工作和娱乐，PlayStation 4，一对[ATH 音频技术公司-M50x 耳机](http://www.amazon.com/Audio-Technica-ATH-M50x-Professional-Monitor-Headphones/dp/B00HVLUR86/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-minimalists-work-and-play-space-1776589986&asc_source=&tag=kinjalifehackerlink-20) ，所有这些都放在一个简单但好看的宜家黑客桌面上。桌子本身是宜家的 ALEX 抽屉式储物单元，放在带支腿的 [KARLBY 厨房台面](http://www.ikea.com/us/en/catalog/products/10301149/) 上。
 

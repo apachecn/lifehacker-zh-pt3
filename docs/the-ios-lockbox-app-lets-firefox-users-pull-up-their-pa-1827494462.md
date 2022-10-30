@@ -4,7 +4,7 @@
 
 ***3/26 更新:** Mozilla 的锁箱工具现已可用于*[*Android*](https://play.google.com/store/apps/details?id=mozilla.lockbox)*，此外还有*[*iOS*](https://itunes.apple.com/us/app/firefox-lockbox/id1314000270?ls=1&mt=8)*。*
 
-Watch
+
 
 有很多令人难以置信的密码管理器——我想到了 [1Password](https://lifehacker.com/1passwords-updated-password-manager-is-a-must-have-for-1826379117) 和[LastPass](https://lifehacker.com/you-can-now-use-lastpass-on-multiple-devices-for-free-1788458452)——但是 Mozilla 也有自己的密码管理愿望。该公司刚刚发布了两个新的移动应用程序，作为其 [测试试点](https://blog.mozilla.org/blog/2018/07/10/introducing-firefoxs-first-mobile-test-pilot-experiments-lockbox-and-notes/) 计划的一部分，其中一个是 Firefox Lockbox，这是一个非常方便的方法来获取你在 iPhone 和 iPad 上的密码。
 

@@ -6,7 +6,7 @@
 
 自发布以来，35 美元的 Raspberry Pi 迷你电脑被誉为完美的一体化复古游戏机。现在，这比以往任何时候都容易，而且不需要任何 Linux 知识。以下是如何在 10 分钟内制作自己的复古游戏机。
 
-Watch
+
 
 ***更新(2017 年 2 月 9 日)*** *:我们更新了本指南，以反映 RetroPie 最新版本(目前为 4.1)中的变化。这包括设置您的卡、系统和控制器的全新部分。谢天谢地，现在整个过程简单多了！如果您只是想将 RetroPie 的旧版本更新到最新版本，请启动 RetroPie 并进入 RetroPie 菜单>更新，或者按照本* [*指南*](https://github.com/retropie/retropie-setup/wiki/updating-retropie) *获取更多详细说明。*
 

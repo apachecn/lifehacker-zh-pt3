@@ -4,7 +4,7 @@
 
 说到电子邮件客户端，有很多选择。在过去的一周里，我一直在使用 Boxy。最初的 [于 2015 年底推出](http://lifehacker.com/boxy-brings-inbox-by-gmail-to-the-mac-desktop-1747090438) ，该公司上周在这个时候推出了第二版，它在原有产品的基础上增加了许多新功能，同时保留了人们对该公司最初产品的喜爱。
 
-Watch
+
 
 Boxy 只适用于 Gmail(或 Google Apps 账户)，所以如果你没有 Gmail 账户，那么你就可以使用这个程序了。
 

@@ -4,7 +4,7 @@
 
 [iOS 9 在这里](http://lifehacker.com/everything-you-need-to-know-about-ios-9-in-three-minute-1730652615#_ga=1.138582835.127976026.1441054335) ，和大多数 iOS 版本一样，有时最好的功能是那些被藏起来的功能。因此，虽然新的 Notes 应用程序、新闻应用程序和其他明显的改进都很棒，但让我们来看看一些鲜为人知的东西。
 
-Watch
+
 
 ### 轻松断开蓝牙设备
 

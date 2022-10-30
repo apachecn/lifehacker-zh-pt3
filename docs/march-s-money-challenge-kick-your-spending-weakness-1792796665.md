@@ -4,7 +4,7 @@
 
 我们正在帮助读者通过 [《生活黑客终极金钱挑战》](http://twocents.lifehacker.com/the-lifehacker-money-challenge-is-back-1790627747) 全年省钱。这个月，我们将带回去年的最爱之一: [踢你的消费弱点](http://twocents.lifehacker.com/march-s-money-challenge-curb-impulse-spending-1762052680) 。
 
-Watch
+
 
 我们都有花钱方面的问题，虽然我们不想阻止你花钱买你喜欢的东西，但我们确实想帮助你更明智地花钱。 这个词的意思是减少一时冲动买的东西 [然后事后后悔](https://lifehacker.com/how-to-program-your-mind-to-stop-buying-crap-you-don-t-1690268064) 。你的消费弱点可能是餐馆。也可能是小玩意。或者可能只是随机的日常交易。如果你不确定你的弱点是什么，花一点时间 [看看你的预算，分析你的支出](http://twocents.lifehacker.com/review-and-improve-your-budget-with-these-three-questio-1723508039) 。也许你的财务状况已经很好了，但是如果你和大多数人一样，你还有一些可以努力的地方。
 

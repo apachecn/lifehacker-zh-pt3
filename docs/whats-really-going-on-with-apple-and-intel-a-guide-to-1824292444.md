@@ -4,7 +4,7 @@
 
 周一彭博新闻 [投下一枚重磅炸弹](https://www.bloomberg.com/news/articles/2018-04-02/apple-is-said-to-plan-move-from-intel-to-own-mac-chips-from-2020?utm_campaign=socialflow-organic&utm_content=business&utm_source=twitter&utm_medium=social&cmpid=socialflow-twitter-business) 报道。到 2020 年，它声称苹果将停止在其电脑中使用英特尔 CPU。想象一下:世界第三大个人电脑制造商有一天可能会超越最大的电脑芯片制造商。
 
-Watch
+
 
 消息传出后， [英特尔的股票很快](http://fortune.com/2018/04/02/why-apple-dump-intel/) 下跌，虽然推特上的很多人兴奋不已，但其他人则更加警惕，甚至担忧。相对而言，苹果制造自己的 CPU 芯片是史无前例的，这一举动可能意味着许多事情。因此，让我们深入了解实际发生了什么，以及这一切可能意味着什么。
 

@@ -6,7 +6,7 @@
 
 当我第一次开始进行跑步训练时，我觉得自己很傻。霓虹短短裤还不够尴尬吗？但是跑步训练对普通跑步者和有经验的爱好者都非常有益。
 
-Watch
+
 
 *本帖最初出现在* [*实力跑*](http://strengthrunning.com/2015/09/running-drills-to-improve-speed-form-efficiency/) *上。*
 
@@ -33,11 +33,7 @@ Watch
 
 唯一需要谨慎进行形式训练的跑步者是那些从严重受伤中恢复的人。演习增加的冲击力(特别是如果你在沥青或混凝土上进行)可能会使你再次受伤。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Seven Running Drills to Improve Speed, Form, and Efficiency](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068) [###### 让你陷入伤病循环的五个跑步错误](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068) 
 
-你的身体不是一台机器，你不应该把它当成一台机器，即使你认为你可以“坚强…
-
-[Read more](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068)</aside>
 
 优先考虑适当的形式，永远不要完成任何导致疼痛的运动。几个星期后，你会感觉更快、更协调、足够强壮，有可能跑出新的个人最好成绩。
 

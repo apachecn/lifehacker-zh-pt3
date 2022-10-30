@@ -4,7 +4,7 @@
 
 这篇 2014 年的文章在一个煽动性标题的推动下再次流传开来。这是一篇相当直截了当的研究报告，但标题却因将责任归咎于女性而引发了愤怒的分享。
 
-Watch
+
 
 **头条:** [为什么那么多女人化那么浓的妆？](https://www.theatlantic.com/health/archive/2014/04/women-wear-too-much-makeup-because-they-mistakenly-think-men-want-them-to/361264/?utm_source=atlfb) (大西洋)
 

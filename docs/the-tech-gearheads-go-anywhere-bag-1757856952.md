@@ -4,7 +4,7 @@
 
 有时你需要在包里放一堆技术，对于读者 Chris Vega 来说，这就是收集他信息安全工作所需的一切。
 
-Watch
+
 
 这个包是一个 [粗糙的骑手斜挎包](https://www.sfbags.com/products/rough-rider-messenger-bag) 。这是里面的内容:
 

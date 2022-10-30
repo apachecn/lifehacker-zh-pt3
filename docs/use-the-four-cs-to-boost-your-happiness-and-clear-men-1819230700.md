@@ -4,7 +4,7 @@
 
 如果你曾经发现自己不得不刷新 Twitter，以获得最新的可怕新闻发展——或者陷入了一个恶性循环，无法讨价还价的下午糖果——我们很抱歉成为坏消息的传递者，但你的大脑已经被黑客攻击了。
 
-Watch
+
 
 在最近一集的 [Lifehacker 的播客《升级，](https://lifehacker.com/how-our-minds-are-being-hacked-and-what-we-can-do-abou-1818559000) 中，我们与 Robert Lustig 博士谈论了他的新书 [*【美国心灵黑客:企业接管我们身体和大脑背后的科学】。*](https://www.amazon.com/Hacking-American-Mind-Corporate-Takeover-ebook/dp/B01N802BNX/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-the-four-cs-to-boost-your-happiness-and-clear-men-1819230700&asc_source=&ie=UTF8&keywords=The+Hacking+of+the+American+Mind:&qid=1505852365&rawdata=[r|https://lifehacker.com/tag/the-show[t|link[p|1818559000[a|B01N802BNX[au|5876237249237073298[b|lifehacker&s=digital-text&sr=1-1&tag=kinjalifehackerlink-20)
 

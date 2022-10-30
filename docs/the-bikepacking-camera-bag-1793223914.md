@@ -6,7 +6,7 @@
 
 有没有想过在南美骑自行车旅行的人可能需要什么摄影装备？在 Radavist，摄影师 Ryan Wilson 展示了他最近几个月随身携带的装备。
 
-Watch
+
 
 威尔逊骑自行车穿越了南美洲，包括安第斯山脉的大部分地区。威尔逊带了很多装备，但他的摄影器材是这里的亮点。你可以在他的 Instagram 上查看他在 [旅程中拍摄的令人惊叹的照片，并在](https://www.instagram.com/rmdub/) [的 Radavist](http://theradavist.com/2017/02/gearing-up-for-life-on-the-bike-camera-and-tech-ryan-wilson/) 上了解更多关于每件物品的信息。
 

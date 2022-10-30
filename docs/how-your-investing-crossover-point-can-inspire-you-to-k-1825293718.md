@@ -4,7 +4,7 @@
 
 通过像 401(k)这样的投资工具为退休储蓄的一个复杂问题是，需要很长时间才能达到市场似乎确实为你服务的地步。
 
-Watch
+
 
 在你到达流行的个人理财书籍 [*中被认为是你的钱或你的生活*](https://www.amazon.com/exec/obidos/ASIN/0140286780/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-your-investing-crossover-point-can-inspire-you-to-k-1825293718&asc_source=&tag=kinjalifehackerlink-20) 的交叉点，或者你的投资收益开始超过你(和你的雇主，如果你有匹配的话)做出的贡献之前，你会贡献多年，甚至几十年。如果你认为你的投资没有回报，那就很难在你的职业生涯中坚持存钱。然而，一旦你做到了这一点，你会看到你所有的辛勤储蓄，毫不夸张地说，都有了回报。
 

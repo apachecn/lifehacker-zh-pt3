@@ -4,7 +4,7 @@
 
 不是每个包包都应该很花哨。事实上，我们大多数人只是想要简单的东西。恰当的例子，读者托尔斯滕·迪伦伯格的包。
 
-Watch
+
 
 包包是一个[Heimplanet Monolist day pack 22l](http://www.heimplanet.com/shop/monolith-daypack-22l/)。这是里面的内容:
 

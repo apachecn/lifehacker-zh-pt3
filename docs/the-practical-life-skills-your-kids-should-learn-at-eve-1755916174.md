@@ -4,7 +4,7 @@
 
 我们父母有责任传授我们的孩子成为成功成年人所需的基本技能，比如会游泳、自己洗衣服或做一顿健康的饭菜。真正的问题是你应该什么时候教他们？以下是孩子们在独立生活前应该学习的技能的年龄指南。
 
-Watch
+
 
 所有的孩子都以不同的速度成长，所以根据他们的兴趣、成熟程度和年龄来判断是很重要的。但是下面的年龄范围可以帮助你了解你的孩子什么时候准备好学习新技能。毕竟，你不想突然发现自己和一个不懂卫生的大学生在一起。这种情况时有发生，但如果你想让你的孩子在步入现实世界时变得更加独立和自信，就教他们这些技巧吧。
 
@@ -28,11 +28,7 @@ Watch
 
 你的孩子可能不会成为下一个 [【小 T2】](http://www.fox.com/masterchef-junior) 厨艺大师，但是掌握基本的烹饪技能将会对以后的生活有巨大的帮助。让他们参与厨房 [不管他们是什么年龄](http://lifehacker.com/include-your-kids-in-the-kitchen-no-matter-what-age-th-1589977575) 他们可能会吃得更健康，尝试更多新的食物(也不太可能挑食。)学龄前儿童可以测量配料，搅拌面糊，并帮助组装比萨饼。6 到 8 岁的孩子可以使用器具和工具，如微波炉、烤箱和开罐器，只要你教他们如何安全使用。(像那些来自 [《好奇的厨师》](http://curiouschef.com/) 的儿童友好型厨房工具也有帮助。)青春期前的孩子可以开始学习 [基本刀功](http://lifehacker.com/increase-kitchen-efficiency-by-learning-basic-knife-han-5480722) 并在你的监督下在炉子上或使用烤箱做饭，十几岁的孩子可以为家人做饭。查看以下链接中的图片，了解更多建议。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Practical Life Skills Kids Should Learn at Every Age](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-kitchen-skills-kids-can-learn-by-age-group-1691910699) [###### 按年龄组划分，孩子们可以学习的厨房技能](https://lifehacker.com/the-kitchen-skills-kids-can-learn-by-age-group-1691910699) 
 
-让孩子参与到厨房中来是培养健康饮食者的最好方法之一，甚至…
-
-[Read more](https://lifehacker.com/the-kitchen-skills-kids-can-learn-by-age-group-1691910699)</aside>
 
 ### 骑自行车，不带辅助轮:3 到 8 岁
 

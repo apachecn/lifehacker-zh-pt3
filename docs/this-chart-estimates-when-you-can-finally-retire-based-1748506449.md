@@ -6,7 +6,7 @@
 
 “热图”是由激进的个人理财评论员菲利普·弗雷创建的谷歌电子表格。基于保守的 4%回报率，它会告诉你是否可以在 40 岁(绿色单元格)、50 岁(黄色)、65 岁(红色)或 65 岁以上(灰色)退休。
 
-Watch
+
 
 据 [我的钱博客](http://www.mymoneyblog.com/financial-independence-heat-map.html) :
 

@@ -4,7 +4,7 @@
 
 一旦你开始关注一场比赛，它会改变你的训练。今天的问题是，我们应该梦想小还是梦想大？你应该尽快瞄准一个快速有趣的 5000 米，还是投身于一场充满勇气和荣耀的马拉松？
 
-Watch
+
 
 ### 竞争者
 
@@ -50,11 +50,7 @@ Watch
 
 受伤可能是难以预料的。你跑的英里数越多， [就越有可能受伤](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068)——但是一些抱怨是 [与速度的关系比距离](http://www.runnersworld.com/newswire/is-your-injury-caused-by-pace-or-distance) 更密切。从心理学上来说，如果你正在进行 5 公里的训练，那么处理伤病会更容易。你可能不得不退出你计划的比赛，但是一旦你痊愈了，你可以再跑一次。然而，如果你在马拉松训练中受伤，取消旅行计划和失去高额报名费是一个很大的失望——特别是如果你没有其他比赛可以报名的话。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Running Showdown: 5K Races vs. Marathons](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068) [###### 让你陷入伤病循环的五个跑步错误](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068) 
 
-你的身体不是一台机器，你不应该把它当成一台机器，即使你认为你可以“坚强…
-
-[Read more](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068)</aside>
 
 ### 体验
 

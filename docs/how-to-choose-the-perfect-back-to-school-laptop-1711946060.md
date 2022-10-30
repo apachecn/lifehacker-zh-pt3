@@ -4,7 +4,7 @@
 
 现在是买笔记本电脑的好时机。返校交易正在进行，新的模型正在上架。我们已经讨论了如何挑选最完美的笔记本电脑，但是如果你要去上大学，或者甚至回到学校，并且不确定你需要什么，你就有困难了。别担心，我们会帮你度过难关。
 
-Watch
+
 
 ### 向你的校园 IT 部门咨询想法
 
@@ -40,11 +40,7 @@ Watch
 
 即便如此，你也要确保阅读你考虑的笔记本电脑的评论。你不想为了一个你可能*想要的*闪亮的功能而牺牲一些你实际*需要的*。我们这里有 [几款超极本建议](https://lifehacker.com/five-best-ultrabooks-1615183263) ，我们在 [Gizmodo](http://gizmodo.com/) 的朋友有很棒的 [深度笔记本评测](http://gizmodo.com/tag/laptops) 。线切割也有 [评论和他们最喜欢的选择](http://thewirecutter.com/reviews/the-best-windows-ultrabook/) 。更好的是，如果可以的话，去苹果商店、微软商店、百思买、微中心和 Fry's 等电子商店，亲自动手操作它们(或同一制造商的类似笔记本电脑)。在你买一台笔记本电脑之前，没有什么可以替代实际玩一玩它。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Choose the Perfect Back-to-School Laptop](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-best-ultrabooks-1615183263) [###### 五款最佳超极本](https://lifehacker.com/five-best-ultrabooks-1615183263) 
 
-无论您是需要一台新的笔记本电脑用于工作、学习还是娱乐，现在都是研究您需要什么的好时机…
-
-[Read more](https://lifehacker.com/five-best-ultrabooks-1615183263)</aside>
 
 ### 利用教育折扣和套餐
 
@@ -54,21 +50,13 @@ Watch
 
 我们已经跑了 [几个地方](https://lifehacker.com/grab-student-discounts-on-these-awesome-products-this-s-5845503) 在那里 [你可以得到学生折扣](https://lifehacker.com/save-big-with-this-huge-list-of-60-student-discounts-ev-1667237925) ，包括 [软件深度折扣](https://lifehacker.com/save-big-with-this-huge-list-of-60-student-discounts-ev-1667237925) 。确保你尽可能地存钱。相信我们，你会需要钱买课本的。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Choose the Perfect Back-to-School Laptop](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/save-big-with-this-huge-list-of-60-student-discounts-ev-1667237925) [###### 到处都有 60 种学生折扣，节省很多钱](https://lifehacker.com/save-big-with-this-huge-list-of-60-student-discounts-ev-1667237925) 
 
-对许多人来说，经济上最困难的几年是在大学度过的。你可以减轻打击…
-
-[Read more](https://lifehacker.com/save-big-with-this-huge-list-of-60-student-discounts-ev-1667237925)</aside>
 
 ### 服务计划和保修:不要忘记细节
 
 最后，不要忘记保修或服务计划。你可能永远都不需要它，但是当你带着笔记本电脑去上大学的时候，你至少需要某种购买保护。我们过去提到过 [延长保修很少值得](https://lifehacker.com/are-extended-warranties-worth-it-5871487) ，但这种罕见的情况通常涉及笔记本电脑。考虑到现代笔记本电脑的维修和进入有多么困难，让其他人来处理屏幕更换和主板维修等棘手的事情是有意义的。此外，请记住，在标准保修结束之前，您通常可以随时购买延长保修，因此，如果您想省钱并等待一段时间再做决定，您不必在购买笔记本电脑的同时购买延长保修。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Choose the Perfect Back-to-School Laptop](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/are-extended-warranties-worth-it-5871487) [###### 延长保修值得吗？](https://lifehacker.com/are-extended-warranties-worth-it-5871487) 
 
-亲爱的生活黑客，最近好像每次我去买东西，售货员都会问我…
-
-[Read more](https://lifehacker.com/are-extended-warranties-worth-it-5871487)</aside>
 
 如果你讨厌延长保修期的想法，至少 [为你的购买使用好的信用卡](https://lifehacker.com/skip-the-extended-warranty-use-a-good-credit-card-inst-5697141) 。您将获得比标准保修更多的保护。如果你是动手型的，去 [iFixit](https://www.ifixit.com/) 看看你的笔记本电脑是否在列表中。你会知道打开和修复自己是多么困难。然后，留出你花在延长保修期上的钱作为“修理基金”，以防万一。最糟糕的情况是，确实发生了一些事情，你已经开始 [决定修理或更换](https://lifehacker.com/should-you-fix-that-broken-gadget-or-just-buy-a-new-one-1711409066) 你的笔记本电脑。
 

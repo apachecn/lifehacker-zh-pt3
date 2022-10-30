@@ -4,7 +4,7 @@
 
 是时候结束邪恶周了，还有什么比让两个最邪恶的行业互相对抗更好的方式呢？今天，我们颠倒一下我们通常的脚本，看看谁更糟糕:手机运营商还是有线电视公司。
 
-Watch
+
 
 *<small>这篇文章是我们的</small>* [*<small>恶周</small>*](http://lifehacker.com/welcome-to-lifehackers-seventh-annual-evil-week-1788085206#_ga=1.69649104.1148506352.1465518022) *<small>系列的一部分，在这里我们看到了做事的阴暗面。有时邪恶是正当的，而其他时候，知道邪恶意味着知道如何打败它。想要更多吗？查看我们的</small>* [*<small>恶周标签页</small>*](http://lifehacker.com/tag/evil-week#_ga=1.105669515.968941705.1436971740) *<small>。</small>*
 

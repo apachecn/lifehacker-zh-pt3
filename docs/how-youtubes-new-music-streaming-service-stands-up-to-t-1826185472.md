@@ -4,7 +4,7 @@
 
 谷歌又推出了另一项 音乐流媒体服务 [。](https://lifehacker.com/the-best-google-play-music-tips-and-tricks-you-may-not-1791559110#_ga=2.243807173.1730978073.1526909177-3846207152.1521480874) [这次](https://youtube.googleblog.com/2018/05/youtube-music-new-music-streaming.html) 该公司正在更名 [YouTube Red](https://lifehacker.com/google-introduces-youtube-red-a-subscription-for-ad-fr-1737842088#_ga=2.243807173.1730978073.1526909177-3846207152.1521480874) 并拆分为两个新选项，分别命名为 YouTube Music 和 YouTube Premium。
 
-Watch
+
 
 这里有你需要了解的关于 YouTube 新流媒体应用的一切，无论你是想知道选择哪个版本，试图与竞争对手进行比较，还是只想知道你的旧 Google Play 音乐帐户会发生什么。
 

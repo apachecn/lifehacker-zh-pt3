@@ -4,7 +4,7 @@
 
 当你想买卖一些股票时，没有必要浪费时间登录一个应用程序或打开你的桌面——现在，如果你有一个 [TD Ameritrade](https://www.amtd.com/newsroom/press-releases/press-release-details/2018/TD-Ameritrade-Launches-Market-Access-and-Investor-Education-Through-Twitter/default.aspx) 账户，你就可以从你的 Twitter DMs 上方便地做到这一点。
 
-Watch
+
 
 从今天开始(哦， [今天是推出](https://twitter.com/byHeatherLong/status/961707477996843008) 的好日子)，投资者可以在 Twitter 上直接发送消息 [@tdameritrade](https://twitter.com/TDAmeritrade) 或 [@thinkorswim](https://twitter.com/thinkorswim) ，获得市场更新、股票报价和研究，甚至可以查看余额和进行交易(据一位女发言人说，你可以在平台上登录你的 TD 账户)。不是客户的人也可以通过发送 DM 来获取更新和研究。
 

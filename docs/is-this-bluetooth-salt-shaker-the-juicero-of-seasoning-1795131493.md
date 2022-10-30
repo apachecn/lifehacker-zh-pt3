@@ -4,7 +4,7 @@
 
 怀着沉重的心情，我必须告诉你一个“智能盐罐”，叫做“[Smalt](http://www.mysmalt.com/)”奇怪的是，这个摇动器的摇动功能仍然没有插电——*你仍然要做所有的摇动；Smalt 只是为您“跟踪”它。(并亮起。还会放音乐。)本质上，它是调味的 [Juicero](https://lifehacker.com/how-to-obtain-juice-without-a-juicero-1794714370) 。* 
 
-Watch
+
 
 至于它如何“跟踪”——它知道我奇怪的高垃圾邮件摄入量吗？—副本相当模糊:
 

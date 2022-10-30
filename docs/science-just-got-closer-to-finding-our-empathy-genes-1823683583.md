@@ -4,7 +4,7 @@
 
 我们经常谈论移情，好像我们可以 [获得更多](https://lifehacker.com/why-empathy-is-your-most-important-skill-and-how-to-pr-1505011685) 如果我们足够努力的话——就像肌肉，或者在糖果粉碎游戏中获得更高的分数。但是今天发布的一项 [新研究](https://www.nature.com/articles/s41398-017-0082-6) 为个体共情差异至少部分由基因决定的观点提供了新的证据。
 
-Watch
+
 
 共情主要有两种类型:认知型，即识别和理解他人感受和想法的能力；情感型，即对这些观察做出适当反应的能力。它通常用一种 [同理心商数(或情商)测试](https://www.psychologytoday.com/tests/personality/emotional-intelligence-test) 来衡量，这种测试要求受试者通过使用一种评级量表来自我报告他们的同理心能力，比如“我根据与我互动的人来调整我的行为”和“我喜欢学习新东西”
 

@@ -4,7 +4,7 @@
 
 如果法官裁定目前起诉联邦政府的 20 个州在患者保护与平价医疗法案合宪性问题上胜诉，那些已经患有疾病的人可能会失去他们的个人健康保险。
 
-Watch
+
 
 特朗普政府向他们伸出了援助之手:这是因为司法部拒绝在法庭上捍卫该法律和预先存在的条件条款，这是一个“ [不寻常的](https://www.npr.org/2018/06/08/618263772/trump-administration-move-imperils-pre-existing-condition-protections) ”举动，可能会影响数百万人。
 

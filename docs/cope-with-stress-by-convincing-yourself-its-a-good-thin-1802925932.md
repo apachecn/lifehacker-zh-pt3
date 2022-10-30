@@ -4,7 +4,7 @@
 
 压力是我们都必须面对的事情之一。但是如果你能利用压力为自己谋利呢？
 
-Watch
+
 
 《巅峰表现:提升你的游戏水平，避免精疲力尽，用新的成功科学茁壮成长》一书的合著者布拉德·斯图伯格(Brad stu lberg)(这是一个拗口的说法)最近 [接受了《商业内幕》](http://www.businessinsider.com/brad-stulberg-peak-performance-how-to-use-stress-to-your-advantage-strategy-2017-9) 的采访，讲述了我们如何利用有压力的情况为自己创造优势。
 

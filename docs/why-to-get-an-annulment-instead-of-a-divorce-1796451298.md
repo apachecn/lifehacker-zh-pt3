@@ -4,7 +4,7 @@
 
 十年前，我强迫一个人走上红毯。我们已经在一起六年了，关系平静下来，我几乎已经决定，婚姻是唯一能让我们走出低迷的东西:我们会正式结婚，我们会有孩子，我们会有一套像样的洗碗布。他勉强同意了。
 
-Watch
+
 
 现在，你知道接下来会发生什么:在我们五月婚礼的几天内(感谢上帝，市政厅的一件简单的事情)，很明显我们犯了一个错误。到了 7 月份，他已经搬出去了，到了秋天，我们会见了一位家庭律师，讨论我们分居的选择。那时候纽约没有无过错离婚，所以她建议取消婚姻，这样我们就不用撒谎说一方有虐待行为或其他主要过错。法律文书工作相对简单快捷，到了情人节，我们的婚姻在法律上从未发生过。我总是把它想象成麦德琳·兰歌的 [起皱时间](https://www.amazon.com/dp/B004OA64H0/ref=dp-kindle-redirect?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-to-get-an-annulment-instead-of-a-divorce-1796451298&asc_source=&btkr=1&tag=kinjalifehackerlink-20) 穿越宇宙魔方:我们的婚姻发生了，但也没有。啦啦啦！重来一次！
 

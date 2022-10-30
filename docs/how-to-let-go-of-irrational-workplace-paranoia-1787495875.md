@@ -4,7 +4,7 @@
 
 在工作中所有让你担心的事情中，最糟糕的是你自己制造的问题。当消极的事情发生，而你发现自己在等待它们再次发生时，尤其如此。让我给你举几个例子。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-let-go-of-your-irrational-workplace-paranoia-once-and-for-all) *。*
 

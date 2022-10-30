@@ -4,7 +4,7 @@
 
 这个月，我们向你发出挑战，通过寻找一个更便宜的方案来节省你的手机费用 。怎么样了？
 
-Watch
+
 
 手机服务是人们通常支付太多的费用，所以这个月，我们要求你找到一个更便宜的手机计划 [，仍然提供相同水平的服务。](http://twocents.lifehacker.com/what-you-need-to-know-before-switching-to-a-cheaper-pho-1797921317#_ga=2.156732735.562853117.1503952136-784810144.1503952136) 有少数折扣运营商提供更便宜、按使用付费的价格，这些运营商也有 [迫使大玩家提供更好的价格](http://lifehacker.com/every-carriers-confusing-phone-buying-plans-explained-1726343203) 。如果您错过了本月的挑战，请查看这些指南，帮助您开始使用交换机:
 

@@ -4,7 +4,7 @@
 
 Android 的最新版本 Oreo 于 8 月发布，并带来了一系列新功能，使 Android 更加用户友好。它还捆绑了一些服务，让硬件制造商更容易更新自己设备的软件。不幸的是，今天购买一部全新的手机并不能保证你将获得最新的操作系统，并可能导致你在相当长的一段时间内仍停留在去年版本的 Android 上。
 
-Watch
+
 
 [据 The Verge](https://www.theverge.com/2017/11/17/16669378/oneplus-5t-razer-phone-android-oreo-missing-why) 报道，全新的 Android 智能手机仍然搭载旧版本的 Android。即使是即将推出的智能手机——甚至还没有上架的设备——也仍然运行去年版本的安卓系统。这使得购买像即将推出的 OnePlus 5T(运行 Android 7.0 牛轧糖)或新的 HTC U11 Plus(搭配最近的 Android 8.0 Oreo)这样的手机，如果你不确定你将坚持使用哪个操作系统，这种体验可能会受到限制。
 

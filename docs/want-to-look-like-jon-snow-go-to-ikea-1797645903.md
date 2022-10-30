@@ -4,7 +4,7 @@
 
 我敢打赌，你和我一样，看了一眼《权力的游戏》中守夜人的斗篷，心想“该死，如果它们不是跳蚤猖獗，沾满死人的血，我会毫不犹豫地穿上它。我上哪儿去弄一件那样的斗篷？”你可以像时装秀的服装设计师一样，用该死的宜家的 [SKOLD](http://www.ikea.com/ca/en/catalog/products/80271380/) 和 [LUDDE](http://www.ikea.com/aa/en/catalog/products/90166468/) 羊皮地毯来制作你自己的斗篷。
 
-Watch
+
 
 《权力的游戏》服装设计师 [米歇尔·克拉普顿](http://www.micheleclapton.com/) 在洛杉矶盖蒂博物馆关于中世纪服装 的演讲中解释了地毯斗篷的起源。
 

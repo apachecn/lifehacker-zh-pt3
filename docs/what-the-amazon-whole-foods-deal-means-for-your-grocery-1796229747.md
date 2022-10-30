@@ -4,7 +4,7 @@
 
 到目前为止，你已经听说了这个消息:亚马逊计划以 137 亿美元收购全食超市。 [的笑话已经结束](http://www.businessinsider.com/amazon-whole-foods-jeff-bezos-jokes-2017-6) ，尘埃落定，现在一个大问题仍然存在:这对你的杂货意味着什么？
 
-Watch
+
 
 现在说亚马逊官方打算对全食超市做什么还为时过早，但是 [谣言已经在](http://www.mlive.com/news/us-world/index.ssf/2017/06/amazon_whole_foods_cuts.html) 和专家 [中流传，并有一些预测](https://moneyish.com/hoard/why-amazons-acquisition-of-whole-foods-could-cut-23-from-your-grocery-bill/) 。首先，全食超市很可能会降低其出了名的高价格。信不信由你，由于来自沃尔玛和乔氏的竞争，全食超市 [已经在测试某些产品](https://moneyish.com/hoard/whole-foods-is-about-to-get-cheaper/) 的降价。即使你不在全食超市购物，这也可能是个好消息。分析师表示，其他杂货店可能会降低价格，提高忠诚度计划，以跟上收购的步伐。美国消费者新闻与商业频道 [上报](http://"This transaction is going to change the landscape of how you buy food," Mickey Chadha, Moody's vice president and senior credit officer who covers Whole Foods, told CNBC's "Squawk Box" on Monday morning. He expects Amazon to put pressure on grocery stores to lower prices.) :
 

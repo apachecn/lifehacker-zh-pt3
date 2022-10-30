@@ -4,7 +4,7 @@
 
 大多数 Galaxy 用户可能都知道，三星手机自带应用商店 Galaxy Apps，其中包括新字体和 Edge 设置等项目，以及其他应用和游戏。当你想定制你的手机时，它可以是一个很好的资源，如果你不小心打开了来自商店的通知，它会是一个很大的烦恼。
 
-Watch
+
 
 如果你注册了 Galaxy Apps 的通知，你可能会收到大量的信息。谢天谢地，关掉它们很容易。正如 [CNET](https://www.cnet.com/how-to/how-to-turn-off-samsungs-galaxy-notifications-on-the-galaxy-s9/) 本周末所说，首先打开你的应用抽屉，点击三星文件夹，然后选择 Galaxy Apps。
 

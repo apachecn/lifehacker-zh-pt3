@@ -4,7 +4,7 @@
 
 根据美国教育部 的一份 [报告，因为美国是一个绝对有轻重缓急之分的国家，公立学校的老师平均每年要花 479 美元为他们的学生购买学习用品。大约 7%的教师每年花费超过 1000 美元。](https://www.washingtonpost.com/local/education/teachers-shelling-out-nearly-500-a-year-on-school-supplies-report-finds/2018/05/14/af2affae-57b8-11e8-b656-a5f8c2a9295d_story.html?noredirect=on&utm_term=.30b2630d5b5c) 
 
-Watch
+
 
 这是 Lifehacker 的新生迎新周！本周，我们将讲述如何摆脱夏日阴霾，进入秋季活动的闪电战，无论你是第一次走向校园，让你自己的孩子准备好上学，还是寻找在生活*的课堂上更有效率的方法。所以 velcro，收起你的捕兽器吧，学生们。课程现在开始。*
 

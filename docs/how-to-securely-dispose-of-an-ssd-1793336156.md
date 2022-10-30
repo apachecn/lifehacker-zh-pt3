@@ -4,7 +4,7 @@
 
 固态硬盘(SSD) [的工作方式](http://lifehacker.com/how-to-securely-erase-a-solid-state-drive-on-mac-os-x-1580603733) 与硬盘稍有不同，而 [再多的钻孔、消磁或归零](https://lifehacker.com/how-to-erase-and-format-a-hard-drive-1525128357) 实际上也无法正确保护 SSD。如果你需要摆脱固态硬盘，你有几个选择， [加密](https://lifehacker.com/a-beginners-guide-to-encryption-what-it-is-and-how-to-1508196946) 或粉碎。以下是你需要知道的。
 
-Watch
+
 
 如果你对传统格式化或硬盘销毁不是安全擦除固态硬盘上数据的最佳方式的技术原因感到好奇， [Backblaze 有一个很好的指南](https://www.backblaze.com/blog/how-to-securely-recycle-or-dispose-of-your-ssd/) 详细说明了为什么旧的硬盘方法不起作用。简而言之，没有标准的方法可以安全地从固态硬盘中删除数据，这意味着固态硬盘没有普遍接受的安全格式选项。一些制造商开发了自己的软件来格式化他们自己的硬盘，但是很难独立验证其中的任何一个。
 
@@ -46,8 +46,3 @@ Windows 内置了名为 Bitlocker [的加密软件，非常容易设置](https:/
 
 您现在可以 [格式化驱动器](https://lifehacker.com/how-to-erase-and-format-a-hard-drive-1525128357) 。如果你想特别小心，格式化之后，再加密一次。这确保了第一加密密钥被完全覆盖。这样做不会对有人访问它的可能性产生很大的影响，但对安心来说更好一点。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Securely Dispose of an SSD](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-erase-and-format-a-hard-drive-1525128357) [###### 如何擦除和格式化硬盘](https://lifehacker.com/how-to-erase-and-format-a-hard-drive-1525128357) 
-
-格式化硬盘是一个令人讨厌的项目从头开始的最佳方式。你会想…
-
-[Read more](https://lifehacker.com/how-to-erase-and-format-a-hard-drive-1525128357)</aside>

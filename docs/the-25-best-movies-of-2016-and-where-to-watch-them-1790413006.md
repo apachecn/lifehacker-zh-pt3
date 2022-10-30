@@ -4,7 +4,7 @@
 
 对我们中的一些人来说，这是艰难的一年，但对电影来说，这是美妙的一年。这些令人难以置信的戏剧、音乐剧、纪录片和科幻惊悚片将帮助你忘记今年的挣扎，这样你就可以向前看。这些是 2016 年最好的电影。
 
-Watch
+
 
 我们搜罗了 [主要影评人评论](http://www.nytimes.com/2016/12/07/movies/the-best-movies-of-2016.html?smid=tw-nytimes&_r=0)[热门影评人最佳影片排行榜](http://www.indiewire.com/2016/12/best-movies-2016-david-ehrlich-memorable-moments-1201753085/)[【烂番茄】顶级电影排行榜](https://www.rottentomatoes.com/top/bestofrt/?year=2016)[元评论分数](http://www.metacritic.com/browse/movies/score/metascore/year/filtered) ，以及更多确定年度最高评价的电影。以下是精英中的精英，排名不分先后:
 

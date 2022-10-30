@@ -4,7 +4,7 @@
 
 本月早些时候，三星 [宣布召回其 Galaxy Note 7 智能手机](https://news.samsung.com/global/statement-on-galaxy-note7) ，现在召回是正式的。下面是如何处理你的( [潜在爆炸性](https://lifehacker.com/samsung-recalls-galaxy-note-7-devices-will-replace-all-1786098142) )装置。
 
-Watch
+
 
 此次召回已正式向 [消费者产品安全委员会](http://www.cpsc.gov/) (CPSC)备案，针对 2016 年 9 月 15 日之前销售的任何三星 Galaxy Note 7 手机。危险，用他们自己的话说:“Galaxy Note7 智能手机中的锂离子电池可能会过热并着火，对消费者构成严重的烧伤危险。”
 

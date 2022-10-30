@@ -4,7 +4,7 @@
 
 威廉·格斯特勒有建造高动态物体的天赋。他经常探索一些从远处看起来很危险的课题——比如大炮和弹射器——但是只要你懂科学，它们就是安全的。
 
-Watch
+
 
 他是畅销书 [*后院弹道学*](https://www.amazon.com/Backyard-Ballistics-Cannons-Cincinnati-Dynamite/dp/1613740646?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-william-gurstelle-author-of-backyard-ballistics-an-1787897401&asc_source=&tag=kinjalifehackerlink-20) 的作者，该书详细介绍了各种投掷弹丸的 DIY 项目，以及其他书籍，如 [*苦艾酒和火焰喷射器*](https://www.amazon.com/Absinthe-Flamethrowers-Projects-Ruminations-Dangerously/dp/1556528221?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-william-gurstelle-author-of-backyard-ballistics-an-1787897401&asc_source=&tag=kinjalifehackerlink-20) ，这是个人最喜欢的一本书，主张让你的手变得有点脏，生活变得危险(嗯，在某种程度上)。他还在 Make 和 Popular Science 等杂志上撰文，并作为科学传播者出现在探索和历史频道上。
 

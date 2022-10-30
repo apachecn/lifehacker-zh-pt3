@@ -4,7 +4,7 @@
 
 在线服务[Hoopla](http://www.hoopladigital.com)——也是一款适用于[iOS](https://itunes.apple.com/us/app/hoopla-digital/id580643740?mt=8&amp;uo=4)[Android](https://play.google.com/store/apps/details?id=com.hoopladigital.android)和 [亚马逊设备](https://www.amazon.com/Hoopla-Digital/dp/B00JMRGQHI/ref=sr_1_1?amp;keywords=hoopla digital&amp;qid=1413582359&amp;sr=8-1&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/hoopla-helps-you-enjoy-the-library-from-the-comfort-of-1826489986&asc_source=&ie=UTF8&tag=kinjalifehackerlink-20) 的应用——是一种无需离开家就能享受当地图书馆所有便利的好方法。
 
-Watch
+
 
 如果你们都“但是书很无聊”，不用担心。Hoopla 可以让你利用当地图书馆提供的几乎所有东西，包括电影和电视节目，漫画，音乐，甚至有声读物——如果你宁愿听本尼迪克特·康伯巴奇读夏洛克·福尔摩斯的故事，因为它是完美的。
 

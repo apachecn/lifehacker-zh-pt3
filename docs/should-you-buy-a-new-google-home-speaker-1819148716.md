@@ -4,7 +4,7 @@
 
 谷歌 周三宣布了一对新的 [智能家庭扬声器](https://lifehacker.com/the-best-google-assistant-skills-to-use-with-your-googl-1792134538#_ga=2.50400225.930070809.1506952584-672228682.1489692420) ，试图与亚马逊和苹果的设备竞争。这家搜索巨头现在提供售价 49 美元的小型 [谷歌 Home Mini](https://store.google.com/product/google_home_mini) 和售价 399 美元的强大 [谷歌 Home Max](https://store.google.com/product/google_home_max) 以及最初售价 129 美元的谷歌 Home。
 
-Watch
+
 
 选择新的智能扬声器变得更加复杂，但我们可以提供帮助。以下是谷歌的新产品与竞争对手的对比。
 

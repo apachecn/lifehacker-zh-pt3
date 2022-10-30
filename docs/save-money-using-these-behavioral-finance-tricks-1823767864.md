@@ -4,7 +4,7 @@
 
 我们都知道自动化储蓄和制定消费规则可以帮助我们省钱。但是来自杜克大学高级后见之明中心 [普通分币实验室](http://new.advanced-hindsight.com/commoncents-lab/) 的 [新报告](http://new.advanced-hindsight.com/wp-content/uploads/2018/03/Common-Cents-Lab-2017-Annual-Report.pdf) 为如何破解行为金融学以将更多的钱放进我们的口袋(或者更确切地说，银行账户)提供了新的见解。
 
-Watch
+
 
 这份报告有很多值得一读的内容，它详细介绍了该中心 2017 年的所有实验，重点关注老年人、低收入和小时工，但这里有一些关键的要点，你可以应用到自己的生活中。
 

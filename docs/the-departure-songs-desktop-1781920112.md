@@ -4,7 +4,7 @@
 
 我们已经看到了一些简单的桌面和一些繁忙的桌面，但这款来自 reader[Peregerine](http://kinja.com/pergerine)的桌面相当不错。它保持了中心的大部分空间，所以你有足够的空间来工作，但也在外围添加了一些有用和信息丰富的小部件和工具。
 
-Watch
+
 
 如果你想为你自己的 Windows 机器做这个，你首先需要的是一个 Rainmeter 的拷贝，以及一些充分利用它的技巧。我们这里有 [一本入门指南你可以用](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) 。
 

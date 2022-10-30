@@ -4,7 +4,7 @@
 
 捆绑销售的一大好处是任何人都可以使用它们。如果你有阴茎，你可以用捆绑式的。如果你没有阴茎，你可以用绑带。你可以用捆绑带来渗透任何性别的伴侣，颠覆刻板的性别角色，或者扮演这些角色。你可以用它来取乐，也可以用它来应对勃起或高潮的挑战。你可以使用绑带进行阴道性交、、口交、手淫或自慰。
 
-Watch
+
 
 如果你有兴趣尝试一下，这是你的初学者指南。
 
@@ -54,11 +54,7 @@ Watch
 
 如果你想用绑带来渗透，我能给你的最重要的建议是使用大量的润滑油。确保你的伴侣知道在他们需要你停下来涂更多润滑油的时候告诉你。记住:不要在提到润滑油的时候用 like。如果你的假阳具是硅树脂做的，你就不能用硅树脂润滑油。用水性的代替。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Beginner&#39;s Guide to Using a Strap-On](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-you-should-consider-condoms-even-with-your-sex-toys-1556889525) [###### 为什么你应该考虑避孕套，即使是你的性玩具](https://lifehacker.com/why-you-should-consider-condoms-even-with-your-sex-toys-1556889525) 
 
-所以你知道购买性玩具的安全和谨慎的方法，但是一旦你有了它们，照顾…
-
-[Read more](https://lifehacker.com/why-you-should-consider-condoms-even-with-your-sex-toys-1556889525)</aside>
 
 你以前可能从来没有在性交中使用过抽插动作。如果对你来说是这样的话，抽插一开始会感觉非常奇怪！你只是没有推力发展的肌肉。很多人滑稽地试图弄清楚如何刺，但我建议尽量保持你的动作更加微妙，直到你找到窍门。如果你有男性伴侣，请他上一堂抽插课。狗式是一个很好的初学者姿势——对新手来说这是最容易的，因为它不需要同样水平的臀部力量。或者你可以尝试传教士式，这样你可以更专注于和你的伴侣摩擦。
 

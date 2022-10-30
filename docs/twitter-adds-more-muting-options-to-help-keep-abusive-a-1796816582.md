@@ -4,7 +4,7 @@
 
 Twitter 本周增加了一些新的静音过滤器，希望让这个平台对用户来说更安全、更舒适。
 
-Watch
+
 
 回到今年 3 月， [Twitter 为静音功能](http://lifehacker.com/remains-of-the-day-twitter-will-now-let-you-mute-all-e-1792873494) 增加了新的功能，允许你因特定原因将账户静音，包括拥有默认 egg 个人资料照片的账户，没有确认电子邮件地址的账户，没有确认电话号码的账户，以及允许将特定单词静音。现在， [他们已经扩展了过滤器](https://support.twitter.com/articles/20169398#advanced-filters) 以便更容易隐藏通知:
 

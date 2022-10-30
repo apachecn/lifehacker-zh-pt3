@@ -54,11 +54,7 @@
 
 如果晚期资本主义的反乌托邦地狱景象让你除了道德上有问题的中国仿制品之外别无选择，我强烈推荐 [一套厨师标准套装](https://www.amazon.com/Cooks-Standard-NC-00232-Multi-Ply-Stainless-Steel/dp/B00421AYJK/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/stainless-steel-doesnt-get-enough-love-1818582513&asc_source=&ie=UTF8&keywords=cook's+standard&qid=1505844455&sr=8-1&tag=kinjalifehackerlink-20&th=1) 。我已经每天使用我的产品五年了，它显示出零磨损。它也不到 200 美元，但我没有升级的计划。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Stainless Steel Doesn&#39;t Get Enough Love](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/when-should-i-replace-old-cookware-5982821) [###### 我应该什么时候更换旧炊具？](https://lifehacker.com/when-should-i-replace-old-cookware-5982821) 
 
-亲爱的生活黑客，多年来我一直有同样的锅碗瓢盆。有些开始看起来有点…
-
-[Read more](https://lifehacker.com/when-should-i-replace-old-cookware-5982821)</aside>
 
 #### 预算非常紧张
 

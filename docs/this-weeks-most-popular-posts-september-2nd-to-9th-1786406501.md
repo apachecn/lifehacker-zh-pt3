@@ -4,7 +4,7 @@
 
 本周，我们为苹果电脑(Apple jacks)发布最新款 iPhone 而烦恼，对比了顶级 BitTorrent 客户端，考虑了私奔的好处，庆祝了《星际迷航》50 周年，并上了领导力课，等等。
 
-Watch
+
 
 ## [苹果公司今天在 iPhone 7 发布会上宣布的一切真正重要的事情](http://lifehacker.com/everything-apple-announced-today-at-their-iphone-7-even-1786332079#_ga=1.4695731.1646006925.1460757386)
 

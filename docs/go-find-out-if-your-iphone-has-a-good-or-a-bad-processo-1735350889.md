@@ -4,7 +4,7 @@
 
 事实证明，并不是所有的 [新款 iphone](http://reviews.gizmodo.com/iphone-6s-review-a-3d-touch-playground-but-not-much-e-1734182375#_ga=1.169478497.1187679946.1433271270)都是生而平等的。A9 处理器有两个不同的版本，虽然它们基本相同，但其中一个芯片似乎会延长电池寿命。
 
-Watch
+
 
 正如 [*Anantech* 在手机发布后不久](http://www.macrumors.com/2015/09/28/iphone-6s-a9-samsung-tsmc/) 指出的那样，有两种不同的 A9 芯片:一种是三星用 14 纳米工艺制造的，另一种(稍大)是 TSMC 制造的。苹果从两家制造商采购芯片，试图减少通常是 iPhone 发布标志的供应问题。
 

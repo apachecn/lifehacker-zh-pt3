@@ -4,7 +4,7 @@
 
 如果你和我一样，本周突然出现了三月疯狂！但是我们可以通过看篮球和做完美的支架来减轻我们的精神痛苦。我们还重温了一些摄影技巧，不用上课就拿到了大学学分，等等。这里回顾一下。
 
-Watch
+
 
 ## [用数学的力量搭建完美的三月疯狂支架](http://lifehacker.com/build-the-perfect-march-madness-bracket-with-the-power-1764736543)
 

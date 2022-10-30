@@ -4,7 +4,7 @@
 
 Chipotle 现在供应 queso 和， [如果 Twitter 是可信的](https://www.eater.com/2017/9/15/16314902/chipotle-queso-review-reactions) ，没有人留下深刻印象。我可能会相信他们的话，但我是一个“记者”，该死的，所以我闲逛到我附近的(最近安装的)Chipotle，点了一杯蘸酱。
 
-Watch
+
 
 正如所承诺的那样，它不太好。我不知道我会说这是比得大肠杆菌 更糟糕的 [，但我不是很喜欢它。它是薄的，奇怪的酸，舌头上有颗粒。我不会再点它了。(不是因为我不会再吃 Chipotle 当我宿醉的时候，我喜欢他们的劣质玉米卷，特别是有很多玉米沙拉和酸奶油。)](https://twitter.com/Nic_Fowler_/status/908099956896145408?ref_src=twsrc%5Etfw&ref_url=https%3A%2F%2Fwww.eater.com%2F2017%2F9%2F15%2F16314902%2Fchipotle-queso-review-reactions)
 

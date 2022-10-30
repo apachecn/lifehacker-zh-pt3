@@ -4,7 +4,7 @@
 
 本周，苹果公司发布了他们的又新又旧的小手机，我们看看这些橙色的“夜间模式”是否真的有助于我们睡觉，学会喜欢游泳锻炼，等等。让我们来回顾一下本周的热门帖子。
 
-Watch
+
 
 ## [苹果公司今天在 iPhone SE 发布会上宣布的一切真正重要的事情](http://lifehacker.com/everything-apple-announced-at-its-iphone-se-event-today-1766168003)
 

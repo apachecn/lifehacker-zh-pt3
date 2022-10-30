@@ -4,7 +4,7 @@
 
 随着 3D 打印的发展和成为一种更常见的工具，新公司如雨后春笋般涌现，以完善这一过程，并重塑设计师、工程师和爱好者的工作方式。 [Formlabs](http://formlabs.com/) 源自 Kickstarter 的巨大成功，创造了一款注重质量和一致性的创新型高分辨率打印机。
 
-Watch
+
 
 马克西姆·洛博夫斯基(Maxim Lobovsky)利用他在麻省理工学院媒体实验室(MIT Media Lab)的经验，与他的共同创始人大卫·克兰诺(David Cranor)和纳坦·林德(Natan Linder)一起，启动了一个迅速成为当时资金最多的 Kickstarter 项目之一的项目:形式 1[。Form 1 及其后续产品没有使用你可能会联想到 3D 打印机的典型塑料挤出方法；相反，它使用了一种称为立体平版印刷术的工艺，在这种工艺中，液态树脂通过激光硬化。](https://www.kickstarter.com/projects/formlabs/form-1-an-affordable-professional-3d-printer)
 

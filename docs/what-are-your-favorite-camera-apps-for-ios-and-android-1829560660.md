@@ -4,7 +4,7 @@
 
 iOS 和 Android 上的相机应用太多了。如果你和我的朋友们一样，你只需要坚持最基本的东西:你的智能手机自带的股票应用。对于愚蠢的自拍，你的宠物偷懒的照片和你的食物的 Instagrams 来说足够好了，对吗？
 
-Watch
+
 
 我们已经在我们的 Lifehacker 包中为 [iOS](https://lifehacker.com/the-2018-lifehacker-pack-for-ios-the-essential-ios-app-1828788598) 和 [Android](https://lifehacker.com/the-essential-android-apps-for-2018-1829424567) 涵盖了一些很棒的相机应用，但我不认为我们甚至触及了那里的表面。
 

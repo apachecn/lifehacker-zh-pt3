@@ -4,7 +4,7 @@
 
 你应该一直关注金融产品的费用和定价，但现在它比以往任何时候都更重要。最新提醒:财富前线(wealth front)以其低费用、被动投资选项而闻名，不久将开始向所有新用户收取 0.25%的咨询费，并将以 0.50%的费用自动将富有的投资者登记到一只新基金中。
 
-Watch
+
 
 从 4 月 1 日开始，Wealthfront 将开始取消对第一笔 1 万美元投资的免费咨询管理，并将每年向新投资者收取 0.25%的管理费，不管他们的账户大小。Wealthfront 的一位女发言人在一封电子邮件中写道:“任何目前享受免费管理的 10000 美元的现有客户都将继续终身受益。”网站不收取“开户费、 [取款或销户费](https://support.wealthfront.com/hc/en-us/articles/211007383-Does-Wealthfront-charge-fees-to-withdraw-funds-) 、 [交易/佣金费](https://support.wealthfront.com/hc/en-us/articles/211003703-What-kind-of-trading-commissions-will-I-incur-with-a-Wealthfront-account-) 、 [或转账费](https://support.wealthfront.com/hc/en-us/articles/210998943-Are-there-any-fees-associated-with-transferring-my-account-) ”
 

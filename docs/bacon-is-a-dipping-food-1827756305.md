@@ -4,7 +4,7 @@
 
 我以为我们都同意培根的所有用途了。我认为 Reddit 和 Epicurious 和史诗般的用餐时间教会了我们培根可以搭配任何东西。但是从我在餐馆用黄油蘸培根时的表情来看，我们没有。我们显然没有一致同意培根，像薯条或小胡萝卜，是蘸食。
 
-Watch
+
 
 我知道培根，不像薯条或胡萝卜，是一种单独食用的足够美味的食物。但众所周知，培根与水果[沙拉蔬菜](https://lifehacker.com/you-can-make-your-own-taco-shells-entirely-out-of-bacon-1793231611)[其他肉类](https://lifehacker.com/make-the-most-bacon-y-burger-with-the-bacon-weave-and-o-963402028) 搭配得很好。你可以用黄油和培根油制作培根黄油。培根黄油搭配！那么为什么不把一个放在另一个里呢？这真的比用巧克力蘸培根更恶心或更颓废吗？很好。尤其是搭配热培根和冷黄油。
 

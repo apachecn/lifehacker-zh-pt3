@@ -4,7 +4,7 @@
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 
-Watch
+
 
 ## [**Deseat.me 查找并帮助您删除您已经注册的随机账户**](http://lifehacker.com/deseat-me-finds-and-helps-you-delete-random-accounts-yo-1789840847)
 

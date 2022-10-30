@@ -4,7 +4,7 @@
 
 本周，谷歌展示了他们最新的硬件雄心，包括新手机、语音助手和智能 Wi-Fi 路由器。与此同时，回到农场，我们学会了如何与“消极”代表一起锻炼，追踪 21 世纪的最佳电影，等等。这里回顾一下。
 
-Watch
+
 
 ## [**谷歌在它的“谷歌制造”活动上宣布的一切实际上都很重要**](http://lifehacker.com/everything-google-announced-at-its-made-by-google-eve-1787404179)
 

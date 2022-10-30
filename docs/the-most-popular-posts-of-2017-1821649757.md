@@ -4,7 +4,7 @@
 
 在 Lifehacker，这是重要的一年。我们一起努力拯救蜜蜂，被黑，直视太阳，吃恶心的连锁餐馆食物，躲避核弹。这些是我们 2017 年最受欢迎的故事。
 
-Watch
+
 
 ### [**如果一枚核弹在你所在的地区爆炸，该躲到哪里**](https://lifehacker.com/where-to-hide-if-a-nuclear-bomb-goes-off-in-your-area-1793493053)
 

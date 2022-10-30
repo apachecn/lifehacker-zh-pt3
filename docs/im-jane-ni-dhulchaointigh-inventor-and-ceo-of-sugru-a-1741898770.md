@@ -4,7 +4,7 @@
 
 给孩子一块粘土，他们会忙上一个小时。当给你一个可延展的媒介来表达你的想法时，没有人需要指导，这就是为什么 [Sugru](https://sugru.com/) 只是工作——你不需要知道任何关于设计的东西来使用它。你只是跟着你的直觉走。
 
-Watch
+
 
 Sugru 是一种“可塑胶水”,你可以用它来修复事物或使事物变得更好。这是一种硅树脂基的介质，你可以把它做成像橡皮泥一样的形状，但是当你把它放置一天后，它会变硬成为有弹性的橡胶。你可以将 [用于多种用途](http://lifehacker.com/top-10-diy-miracles-you-can-accomplish-with-sugru-756259927) ，从 [固定磨损的线缆](http://lifehacker.com/use-sugru-to-fix-an-exposed-laptop-power-cord-5643706) 到 [保护你的小玩意](http://lifehacker.com/replace-laptop-bumpers-with-sugru-5972324)[抓住旧水龙头](http://lifehacker.com/clean-up-old-rusty-faucet-grips-with-sugru-5814937) 。
 

@@ -4,7 +4,7 @@
 
 我还没看过《啦啦岛》,但是我想看。问题是，口碑、热情洋溢的评论和无尽的奖项把它放在了一个如此高的基座上，我觉得实际的体验将无法达到它。这一次的宣传力度很大。但也许有一种方法可以清白地进去。也许有一种方法可以在炒作怪物攻击之前杀死它。
 
-Watch
+
 
 我的故事实际上是从去年二月上映的瑞安·雷诺兹电影《死侍》开始的。我一直是这个角色的粉丝，很高兴看到他的表演，但是当电影上映时，我没有时间去电影院。几个星期后，当我终于能和一个已经看过的朋友赶上日场时，已经太晚了。我知道每个人都喜欢它。我知道这是“有史以来最好的超级英雄电影，但不是超级英雄电影。”我知道这是有史以来票房最高的 R 级电影。电影《T2》很好，但当我离开电影院时，我满脑子都是“就这样了？这就是每个人都在尿裤子的原因吗？”炒作怪物从我这里偷走了一部电影，我不会让它再次发生。
 
@@ -24,11 +24,7 @@ Watch
 
 我还需要带着我将从中获得的现实图景走进*拉拉地*。所以，不要想“我将要去看一部被提名 200 多个奖项的 [，并且已经赢得其中 140 个](http://www.imdb.com/title/tt3783958/awards) ”的电影，我需要分解我实际得到了什么。例如，“世界上最好的玉米煎饼”实际上只是米饭、豆子、某种肉、玉米饼，也许还有一些沙拉。不管怎样都很好吃。墨西哥卷饼里有什么？一些朗朗上口的音乐，有趣的人物，舞蹈套路，还有一点奇观。听起来很有趣。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Fear and Loathing In La La Land](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-deal-with-high-expectations-1619268340) [###### 如何应对高期望值](https://lifehacker.com/how-to-deal-with-high-expectations-1619268340) 
 
-我们努力实现自己和他人的期望。有时候，他们可以…
-
-[Read more](https://lifehacker.com/how-to-deal-with-high-expectations-1619268340)</aside>
 
 ### **我将如何在观看前准备好自己的大脑**
 

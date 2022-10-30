@@ -4,7 +4,7 @@
 
 [“每个人都应该经历一次的坏事是什么？”](https://www.reddit.com/r/AskReddit/comments/6kety7/whats_a_bad_thing_everyone_should_experience_once/)Redditor tyga 23 问道。和/r/AskReddit 用户有一些很棒的答案。所有这些经历都有助于建立同理心，给你一个教训，或者帮助你欣赏生活中的美好事物。
 
-Watch
+
 
 *   没有什么比濒死体验更能让你欣赏生命本身，T3 说道。"你醒来时很兴奋。"
 *   开车时的侥幸脱险“提醒你为什么开车值得你一直全神贯注，”纵情狂欢的 说。 [We_Flatten_Stuff](https://www.reddit.com/r/AskReddit/comments/6kety7/whats_a_bad_thing_everyone_should_experience_once/djlmgiy/) 甚至推荐一场小车祸，以真正吓退你一些小心。

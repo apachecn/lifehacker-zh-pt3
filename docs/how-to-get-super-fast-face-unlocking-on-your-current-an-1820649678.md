@@ -4,7 +4,7 @@
 
 面部识别正式成为智能手机的下一件大事，这要感谢像 [【三星】](https://gizmodo.com/its-alarmingly-easy-to-hack-the-galaxy-s8s-iris-scanner-1795466164)[苹果](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) 以及最近的 [一加](https://lifehacker.com/how-the-oneplus-5t-stacks-up-to-its-smartphone-competit-1820514848) 这样的公司。事实上，谷歌多年来一直在 Android 上提供类似的功能，称为“可信面孔”，但它远没有目前的竞争对手那么快或方便。
 
-Watch
+
 
 幸运的是，如果你仍然持有一部旧的 Android 手机，你可以使用类似于新 OnePlus 5T 的面部解锁功能。你所需要的只是一点额外的软件。
 

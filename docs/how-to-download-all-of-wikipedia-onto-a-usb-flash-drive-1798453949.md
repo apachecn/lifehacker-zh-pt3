@@ -4,7 +4,7 @@
 
 维基百科可能并不总是最准确的信息来源，但它是我经常感谢的东西之一。通过完整下载，您可以确保该网站始终为您服务，即使您没有网络连接。
 
-Watch
+
 
 我们去年写了一篇关于用一个叫做 XOWA 的开源应用 [来做这件事的方法，但是这个过程实际上更加容易。](http://lifehacker.com/xowa-makes-it-easy-to-download-wikipedia-for-offline-re-1789792279) 
 

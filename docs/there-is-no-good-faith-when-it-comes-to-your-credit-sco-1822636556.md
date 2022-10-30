@@ -4,7 +4,7 @@
 
 正如我们最近几次写到的那样，你的信用评分需要 [年才能建立](https://twocents.lifehacker.com/how-to-actually-improve-your-finances-in-one-year-1821304966)[年才能搞糟](https://twocents.lifehacker.com/why-your-credit-score-may-not-be-as-good-as-you-think-i-1822591911) (至少在一小段时间内)。你有多个分数，不是所有的账户都报给所有的机构。一张账单就能影响你未来几年的抵押贷款利率。真是一团糟。
 
-Watch
+
 
 但当问及重建信用的方法时，我被一些回答震惊了。
 

@@ -4,17 +4,13 @@
 
 多年前，一个朋友告诉我她读过的一些自助书。这听起来像一堆废话，但我不忍心说。相反，我表现得很感兴趣，并告诉她这很棒。所以她不停地谈论它，催促我去读它，直到我承认它不适合我。“不过，你似乎对此很感兴趣，”她说。是的，那只是我是个彻头彻尾的骗子。
 
-Watch
+
 
 虚伪的人名声不好。我的意思是，不真实不是一个好的品质，不要误解我。但普遍的共识似乎是，虚伪的人是暗箭伤人的骗子。我们不是——至少不是我们所有人。我们有些人就是不喜欢伤害别人的感情。我们中的一些人只是想感觉被接受，所以我们超级好。或者也许你害怕冲突，所以你格外愿意不惜一切代价避免冲突。关键是，我们有时都会被视为不真实的，这通常不是出于某种愤世嫉俗的原因。
 
 然而，这种不真实可能会适得其反。更少人喜欢你。你 [成了受气包](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201) 。你被骗去读糟糕的自助书籍。然而，打破虚伪的习惯并不困难。只是需要一些练习。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Stop Being a Complete Phony](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201) [###### 如何不再是一个容易被说服的人](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201) 
 
-如果你觉得自己总是被占便宜，而且看起来好像要输了…
-
-[Read more](https://lifehacker.com/how-to-stop-being-a-pushover-1625771201)</aside>
 
 ### 当心适得其反的良好社交习惯
 

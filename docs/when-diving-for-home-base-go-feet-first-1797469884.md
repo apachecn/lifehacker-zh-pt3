@@ -4,7 +4,7 @@
 
 紧接着上周的研究 [关于足球](http://lifehacker.com/with-new-proof-that-football-damages-your-brain-resear-1797314988) 中创伤性脑损伤的可怕流行——以及足球场上 [的球员可能潜伏的类似危险](http://lifehacker.com/with-new-proof-that-football-damages-your-brain-resear-1797314988)——又有了关于另一种球场危险的新研究:棒球中头部先滑。然而，这里的危险并不在于玩家的大脑，而主要在于他们手部脆弱的骨骼和肌腱，正如《纽约时报》本周报道的那样。T11】
 
-Watch
+
 
 这项名为 [的研究于 5 月发表在《美国运动医学杂志](http://journals.sagepub.com/doi/full/10.1177/0363546517704835) (部分由美国职业棒球大联盟资助)上，对 2011 年至 2015 年所有大联盟和小联盟的幻灯片进行了编目，跟踪了受伤情况和随后错过的天数等因素。研究结果很明显:运动员头朝下滑行受伤的可能性大约是用脚滑行的两倍。
 

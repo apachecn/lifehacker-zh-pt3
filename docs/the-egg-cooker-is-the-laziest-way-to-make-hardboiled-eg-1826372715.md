@@ -4,7 +4,7 @@
 
 他们说，煮熟的鸡蛋是不能吃的。他们说，很简单。他们说的大部分是对的，但是他们没有解释我。我并不特别，也没有假装我不能成功煮鸡蛋是某种可爱的怪癖。我一塌糊涂，一点都不可爱，也从来没有人叫过我流氓。但是混乱并不是这里真正的问题。问题是我的注意力持续时间很短。
 
-Watch
+
 
 这就是为什么，当我为我的伴侣买了一个 16 美元的 [煮蛋器](https://www.amazon.com/dp/B0168CNYRE?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/the-egg-cooker-is-the-laziest-way-to-make-hardboiled-eg-1826372715&asc_source=&linkCode=ogi&psc=1&smid=ATVPDKIKX0DER&tag=kinjatakeoutlink-20&th=1) 作为圣诞礼物时，我应该意识到我是在偷偷为我买的。需要澄清的是，这不是一个类似于赞助的帖子。我用自己的钱买了这个东西(目前是 26.30 美元)，远远早于我在*外卖*的眼里闪闪发光，我怀疑它可能没有用。但是他爱吃鸡蛋，我也爱吃鸡蛋，我们吃很多鸡蛋，而且很便宜，所以我就买了。
 

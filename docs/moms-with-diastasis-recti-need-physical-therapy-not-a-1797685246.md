@@ -4,7 +4,7 @@
 
 产后腹部隆起是常见的——(DR)，腹肌分离的医学术语， [发生在 37%的一胎妊娠女性和 67%的多胎妊娠女性](http://pregnancyandbaby.com/moms/articles/945593/diastasis-recti-abdominal-separation-help-exercises-for-a-flat-tummy) 。尽管如此，这并没有减少女性在生理和心理上的痛苦。我不喜欢看起来怀孕了，当我的宝宝在我身体外面的时候，已经开始吃固体食物了。
 
-Watch
+
 
 最近 NPR 的一个故事为这种情况的快速解决欢呼。小报式的标题尖叫道:“ [每天锻炼 10 分钟](http://www.npr.org/sections/health-shots/2017/08/07/541204499/flattening-the-mummy-tummy-with-1-exercise-10-minutes-a-day) ，拉平‘木乃伊肚子’。”一位健身教练和医生提出了一种可以缩小可怕的“狗狗妈妈”的技术——它包括保持背部平坦，向脊柱方向吸进腹部肌肉，然后深呼吸，每次呼气时将腹部越推越远。女性声称她们在仅仅三周后就看到了“惊人”的效果。
 

@@ -4,7 +4,7 @@
 
 下一次你拍护照照片的时候，你可能会想笑一笑。经常被错误地认为是护照照片的禁忌，一项新的研究发现，照片中的微笑实际上有助于打击身份欺诈。
 
-Watch
+
 
 约克大学的研究人员发现，一些人很难识别照片中面部表情中性的人，但当这些人微笑时，他们会轻松得多， [*《独立报》*](https://www.independent.co.uk/life-style/passport-photos-smiling-identity-fraud-face-matching-easier-study-york-a8409681.html)报道。这意味着你在照片中微笑时更容易被认出来，有人假装对你微笑可能会更引人注目。
 

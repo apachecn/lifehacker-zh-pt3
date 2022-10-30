@@ -4,7 +4,7 @@
 
 正如我今天早上早些时候提到的，Mozilla 前几天推出了两个新的应用程序，作为其测试试点计划的一部分:一个用于在你的 Firefox 浏览器和你的 iOS 设备(不久将是 Android)之间同步密码，另一个应用程序(和扩展)用于在你的 Firefox 浏览器和 Android 设备之间同步笔记。
 
-Watch
+
 
 后者被火狐 简称为“ [”笔记，“是一种记录你想法的简单方法，而不必处理超级复杂的扩展——或者，取决于你的操作系统，一个专门做笔记的独立应用程序。由于 Firefox 浏览器是跨平台的，你可以在 Mac 和 Windows 系统上查看你写的笔记。安卓也是，如果你安装了火狐 app](https://testpilot.firefox.com/experiments/notes/) 单独的 [便签。](https://play.google.com/store/apps/details?id=org.mozilla.testpilot.notes)
 

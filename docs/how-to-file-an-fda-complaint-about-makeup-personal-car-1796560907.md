@@ -4,7 +4,7 @@
 
 有成千上万种产品可以涂抹在你的脸上和身上，它们在上市前都没有经过严格的安全测试。这就是为什么知道如果你认为一种产品刺激了你的皮肤，让你产生过敏反应，或者更糟，你可以向 FDA 投诉是很重要的。
 
-Watch
+
 
 下面是 [投诉说明](https://www.fda.gov/cosmetics/complianceenforcement/adverseeventreporting/default.htm) 。FDA 想知道产品是否有问题，比如异味或异物，或者你是否有过不良反应。化妆品部涵盖了从沐浴露到纹身的所有东西(包括临时的和常规的)。
 

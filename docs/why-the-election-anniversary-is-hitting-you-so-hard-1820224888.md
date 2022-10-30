@@ -4,7 +4,7 @@
 
 树叶在变，天气越来越凉，过早的圣诞装饰品在每个商店都出现了。如果你发现比平时更难享受你的季节性拿铁咖啡——或者，就此而言，起床——这可能是因为日历上的日期。不是季节性抑郁，而是另一个不太为人所知的现象:周年纪念反应。
 
-Watch
+
 
 大约从去年 11 月 8 日开始，顾问和心理学家 [报告了](https://www.psychologytoday.com/blog/workings-well-being/201611/post-election-stress-disorder-in-women)[与选举有关的焦虑和抑郁的实例](http://nymag.com/scienceofus/2016/12/8-therapists-on-post-election-anxiety.html) 。许多支持希拉里·克林顿(Hillary Clinton)并期待她获胜的人，以及那些根本就不是特朗普的人，在选举结果出来后，感到了一种近乎真正的丧亲之痛。希拉里和特朗普的支持者中也有相当多的人报告说，他们感到被朋友和家人排斥和欺负。现在，随着那个日子的重现，许多认为自己已经向前看的人感觉似曾相识。
 

@@ -4,7 +4,7 @@
 
 去年在 LL Bean 买过东西吗？不完全满意吗？现在把它退回去。这家拥有百年历史的户外型商品目录零售商改变了其著名的慷慨退货政策:以前，你可以随时退货，不需要收据；现在你必须保留你的收据，并在一年内取回你的物品 。
 
-Watch
+
 
 正如 [NPR 报道](https://www.npr.org/sections/thetwo-way/2018/02/09/584493046/l-l-bean-scraps-legendary-lifetime-return-policy) ， [公司将变化归咎于利用终身保修的顾客](https://www.facebook.com/llbean/posts/10155636619902415) 。该公司写道:
 

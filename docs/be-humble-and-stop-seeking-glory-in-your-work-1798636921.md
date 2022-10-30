@@ -4,7 +4,7 @@
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 
-Watch
+
 
 本周的选曲来自老卡托，或称 [马尔库斯·波尔基乌斯·加图](https://en.wikipedia.org/wiki/Cato_the_Elder) ，见于普鲁塔克的*平行生命。*老卡托不像他的孙子 [小卡托](https://en.wikipedia.org/wiki/Cato_the_Younger) 那样被认为是一个禁欲主义者，但他仍然被称为“智者卡托”，这是有道理的:
 

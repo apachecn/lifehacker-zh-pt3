@@ -4,7 +4,7 @@
 
 你最后一次在早上 6 点起床进行晨练的感觉棒极了:你听到鸟儿在啁啾；咖啡尝起来*尤其*令人惊叹；你有精力围着家人和同事跑圈。
 
-Watch
+
 
 如果你能多做一次就好了。
 
@@ -12,11 +12,7 @@ Watch
 
 首先:早晨是锻炼身体的最佳时间——这是你的 [大脑最清醒](http://thefyslife.com/article/fresh-or-fried-productivity/) 并准备好建立新习惯的时候。“这是一天中你的意志力最强的一段时间 [，在分心开始打击你之前，”Maneesh Sethi 说，他已经研究行为心理学和习惯发展超过 10 年，并创建了一个可穿戴设备](http://lifehacker.com/how-self-control-works-and-how-to-boost-your-willpower-5802572) [Pavlok](https://pavlok.com/) ，旨在帮助用户停止坏习惯。但是为了收获这些好处，你需要足够的 [珍贵的美容觉](http://lifehacker.com/how-to-get-better-sleep-and-need-less-every-night-5971884#_ga=2.267791623.84002738.1497881598-1559755781.1494965787) 。在之前的文章中，我们已经解决了如何获得更好的睡眠的问题，所以我们在这里就不再深究了。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Start Working Out in the Mornings](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-get-better-sleep-in-uncomfortable-and-unavoidabl-1689861129) [###### 如何在不舒服和不可避免的情况下获得更好的睡眠](https://lifehacker.com/how-to-get-better-sleep-in-uncomfortable-and-unavoidabl-1689861129) 
 
-众所周知，我们大多数人睡眠不足。虽然它可能是我们自己的…
-
-[Read more](https://lifehacker.com/how-to-get-better-sleep-in-uncomfortable-and-unavoidabl-1689861129)</aside>
 
 假设你的睡眠是准时的，实际上仍然很难决定放弃舒适的毯子去跑步。这可能是因为三个原因:你试图做得太多太快；你没有正确计划；你没有加入任何正面的强化。以下是解决这个问题的方法。
 

@@ -4,7 +4,7 @@
 
 我爱我的电脑。我用它来玩游戏，我的客厅里还有一台备用的家庭影院电脑，用来存放我想要的任何东西。我遇到的一个问题是找到一个在沙发上控制我的 HTPC 的好方法。Steam 控制器终于为我解决了这个问题——不仅仅是游戏。
 
-Watch
+
 
 [蒸汽控制器](http://www.amazon.com/Steam-Controller-SteamOS/dp/B016KBVBCS/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-steam-controller-is-the-pc-controller-ive-been-wait-1744646981&asc_source=&ie=UTF8&keywords=steam controller&qid=1448474966&sr=8-1&tag=kinjalifehackerlink-20)(50 美元)是 Valve 试图让 PC 游戏在客厅里更有家的感觉。它有两个关键特性，使它从其他控制器中脱颖而出。首先，它使用两个触摸板作为主要输入。虽然左侧有一个模拟控制杆，但该设备强调触摸而不是控制杆。第二，更重要的是，整个控制器是完全可定制的，无论是在游戏中还是在游戏外。
 

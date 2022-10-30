@@ -4,7 +4,7 @@
 
 为了纪念 Skype 的最新更新，视频聊天和消息应用程序将停止对各种平台的支持。
 
-Watch
+
 
 据 [Techcrunch](https://techcrunch.com/2017/06/08/skype-retires-older-apps-for-windows-and-more-as-it-pushes-new-features/) 报道，十几个 Skype 应用程序和平台(包括 SkypeKit 驱动的手机)将于 7 月 1 日失去 Skype 支持，这意味着你将无法在某些设备上使用该服务。真扫兴。
 

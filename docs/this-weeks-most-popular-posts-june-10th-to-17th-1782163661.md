@@ -4,7 +4,7 @@
 
 本周，苹果展示了其操作系统的最新更新，而 E3 则让我们一瞥新的游戏机和游戏。与此同时，在 terra firma 上，我们学习了调情的技巧，破产实际上意味着什么，并比较了流行的冥想应用。我知道*这个周末我会*把这些应用程序投入使用。
 
-Watch
+
 
 ## [**我应该等着买最新的 4K Xbox One 和 PlayStation 4 游戏机吗？**](http://lifehacker.com/should-i-wait-to-buy-the-newest-4k-xbox-one-and-playsta-1781949858)
 

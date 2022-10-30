@@ -4,7 +4,7 @@
 
 苹果 [曾经吹嘘](https://www.wired.com/2012/06/mac-viruses/) 它的 [Mac 电脑](https://lifehacker.com/how-to-clean-up-and-optimize-your-sluggish-mac-1794877821) 是一个没有病毒的乌托邦，但那是在黑客和犯罪分子决定将他们的努力集中在操作系统上之前。现在，你的 Mac 就像任何 Windows PC 一样容易受到病毒的攻击，一份 [新报告](https://krausefx.com/blog/mac-privacy-sandboxed-mac-apps-can-take-screenshots) 披露，黑客可以通过一个你可能认为会受到更好保护的入口进入你的计算机:Mac 应用商店。
 
-Watch
+
 
 根据软件开发者和隐私专家菲利克斯·克劳斯 、 [的说法，第三方应用](https://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836) 可以窥探你在 Mac 上做的一切，即使它们正在后台运行。下面是您需要了解的关于这个新漏洞的信息，以及您可以做些什么。
 

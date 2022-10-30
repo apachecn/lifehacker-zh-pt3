@@ -4,7 +4,7 @@
 
 谷歌在其 Chrome 浏览器中增加了一些安全功能，首批变化今天向 Windows 用户推出。此次更新改进了 Chrome 和谷歌的 [Chrome 清理工具](https://www.google.com/chrome/cleanup-tool/) ，该工具可以监控试图修改默认搜索引擎等用户设置的扩展，以及旨在在浏览器窗口插入额外广告的恶意软件。完美的时机，考虑到最近大量的 Chrome 扩展被发现收集用户数据，假冒更受欢迎的 Chrome 扩展，甚至未经用户同意挖掘加密货币。
 
-Watch
+
 
 有问题的扩展利用了 Chrome 的自动扩展审查过程，将恶意代码偷偷带入公司和用户的电脑。像弹出窗口拦截器 [SafeBrowse 挖掘加密货币](https://www.ghacks.net/2017/09/19/first-chrome-extension-with-javascript-crypto-miner-detected/) 这样的扩展利用了 Chrome 用户的处理能力，而游戏玩家使用的 [Steam 库存助手扩展](https://www.ghacks.net/2017/09/19/steam-inventory-helper-monitors-your-browsing-activity/) (与 Steam 无关)在一次更新后开始监控用户的浏览习惯。
 

@@ -4,7 +4,7 @@
 
 周一，最高法院裁定唐纳德·川普旅行禁令的 [部分内容可以接受](https://www.nytimes.com/2017/06/26/us/politics/supreme-court-trump-travel-ban-case.html) ，导致国务院制定了一套新的禁令指导方针，适用于来自伊朗、利比亚、索马里、苏丹、叙利亚和也门的国民，只有少数例外。要从这六个穆斯林占多数的国家前往美国，旅行者必须证明他们与“美国的个人或实体”有“真诚的关系”，这种关系是“在正常过程中形成的，而不是为了逃避”禁令。这些指导方针将从美国东部时间今天晚上 8 点开始实施。
 
-Watch
+
 
 《纽约时报》将 [制作成一个互动指南](https://www.nytimes.com/interactive/2017/06/29/us/politics/supreme-court-trump-travel-ban.html) ，告诉人们谁可以、谁不可以进入美国。
 

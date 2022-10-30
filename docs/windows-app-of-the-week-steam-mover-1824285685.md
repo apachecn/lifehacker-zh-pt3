@@ -4,7 +4,7 @@
 
 如果你已经在 Valve 的蒸汽服务上玩了很长时间，你可能听说过 [蒸汽推进器](http://www.traynier.com/software/steammover) 。这是一个很好的工具，可以将你的几千兆字节的 Steam 游戏转移到你系统上的不同硬盘上，以防你的主硬盘空间不足(或爆满)。
 
-Watch
+
 
 我们喜欢 Steam Mover 的原因是，它的用途不仅限于 Steam 游戏，上次我们谈到这款应用时， [还简单提到了它](https://lifehacker.com/how-to-move-a-pc-game-to-another-hard-drive-without-re-1714706774) 。哦，不。该应用程序可以在你的系统上为你想要的任何文件夹创建 [符号链接](http://lifehacker.com/how-to-use-symlinks-in-windows-5496652#_ga=1.44292192.515970378.1434646157)；你不仅仅局限于“steamapps”。
 

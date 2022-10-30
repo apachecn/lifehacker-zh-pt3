@@ -4,7 +4,7 @@
 
 如果你目前正在上学，Spotify 和 Hulu 刚刚宣布了一项非常棒的交易。这两家公司同时提供 Hulu 和 Spotify Premium，每月仅售 4.99 美元。 *The Verge* notes [这已经是 Spotify 的学生计划](https://www.theverge.com/2017/9/7/16263938/spotify-hulu-student-deal-announced) 的费用，所以他们基本上免费赠送 Hulu。
 
-Watch
+
 
 如果你对这笔交易感兴趣， [你可以在这里报名](https://www.spotify.com/us/student/) 。
 

@@ -4,7 +4,7 @@
 
 随着我们最喜爱的节目开始进入空白(*新女孩，丑闻，女孩*)，新的节目再次在这里哭着等待批准。今年的电视剧试播集——主要由 [白人男性](http://variety.com/2017/tv/news/new-2017-18-tv-shows-no-diversity-1202436493/) 领衔主演——包括军事剧、医疗剧、 *Will & Grace* 和一部我们不需要的路西法制作的*生活大爆炸* [衍生剧](http://jezebel.com/golden-age-of-television-my-ass-1795333872) 。
 
-Watch
+
 
 正如我们经常被提醒的那样，随着人们的注意力逐渐分散到电视、电影和社交媒体上，为新节目寻找情感空间比以往任何时候都更加困难。年轻人， [根据](http://www.adweek.com/digital/kurt-abrahamson-sharethis-guest-post-social-media-is-the-new-television/) *广告周*，“观看传统电视节目的人数逐年减少 13%，他们将更多的时间花在高端平台上。”然而，还是有太多的电视要看。*好莱坞报道*
 

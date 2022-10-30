@@ -4,7 +4,7 @@
 
 大约一个月前，我捡到了 [一套](http://www.amazon.com/11-Piece-Unlocking-Extractor-Transparent-Practice/dp/B014PET8W2/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/learning-to-pick-locks-taught-me-how-crappy-door-locks-1750091711&asc_source=&ie=UTF8&keywords=lockpick set&qid=1451316534&sr=8-2&tag=kinjalifehackerlink-20) 训练开锁器。我一直很好奇撬锁是怎么工作的，到底有多难。在学习的过程中，我不仅发现它是多么容易，而且发现在保护我的家时，如何超越锁。
 
-Watch
+
 
 在你抱太大希望之前，不，这不会是如何撬锁的指南。 [在我们的](http://lifehacker.com/learn-to-pick-locks-for-fun-5672326) [【邪恶周】](http://lifehacker.com/tag/evil-week) 系列中，我们已经这样做了，我们仍然认为了解安全措施是如何被破坏的很好，所以 [它不会发生在你身上](http://lifehacker.com/how-to-break-into-a-computer-and-prevent-it-from-happe-5854079) 。然而，理解锁的工作原理并不等同于保证它们的安全。防范撬锁工具并不等同于保护你的家。
 

@@ -4,7 +4,7 @@
 
 有昵称的生活更有趣。这就是为什么我们将我们的无线网络命名为“Julia Louis-Wifus”或“9 英寸顶端来 Apt”。3B。”但是说你需要命名一整套东西，像 [软件版本](https://www.android.com/history/) ，会议室，或者只是一个例子中的占位符。在这一点上，你不能只是一个接一个地编造随机的名字。你需要一个系统。
 
-Watch
+
 
 所以从维基网站的 [命名方案](https://namingschemes.com/Main_Page) 中挑选一个。以 [夏威夷群岛](https://namingschemes.com/Hawaii) 命名你的鸡尾酒。以 [邦德反派](https://namingschemes.com/James_Bond_Villains) 命名你的秘密工作项目。以哲学家的名字命名你网站的服务器。用职业摔跤手的名字给你的小猫取名。给你的 [起名叫](https://namingschemes.com/Duals) 。
 

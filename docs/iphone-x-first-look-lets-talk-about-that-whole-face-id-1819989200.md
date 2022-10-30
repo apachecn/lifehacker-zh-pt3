@@ -4,7 +4,7 @@
 
 iPhone X 的[【Face ID】](https://gizmodo.com/face-id-raises-some-scary-questions-here-are-some-answe-1804313075)摄像头模块受到了比苹果预期更多的压力。面部识别安全技术是蒂姆·库克和朋友们主题演讲期间吸引所有人眼球的惊人功能——后来它又被 [反复指为长期传言的 iPhone X 短缺和延迟背后的罪魁祸首](https://gizmodo.com/rumors-say-apples-iphone-x-launch-will-be-screwed-by-de-1819413452) 。那么这是怎么回事呢？
 
-Watch
+
 
 昨天下午，我从苹果公司拿了一部 iPhone X 评测机，我做的第一件事——我需要做的第一件事——就是测试被大肆宣传的 Face ID(一旦我真的用了这该死的东西几天，就会有更完整的评测)。更好的摄像头和华丽的显示屏肯定是至关重要的功能，但没有哪个组件比 Face ID 对 iPhone X 的长期成功更重要。这是苹果在生物识别安全方面的下一次重大尝试，如果该公司搞砸了，如果 Home 键上的廉价传感器比显示屏上的精致传感器阵列更好，那么苹果只不过是建造了一个真正漂亮的 [Galaxy S8](https://gizmodo.com/samsung-galaxy-s8-review-the-prettiest-phone-wins-1794526975) 。
 

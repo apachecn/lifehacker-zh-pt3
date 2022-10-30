@@ -4,7 +4,7 @@
 
 正如我们已经 [注意到的](https://lifehacker.com/this-tool-lets-you-examine-tons-of-amazon-product-revie-1821018875) [许多](https://lifehacker.com/when-should-i-trust-online-reviews-1604152436)时代，亚马逊充斥着虚假评论，需要工作(有时 [AI](https://lifehacker.com/this-tool-lets-you-examine-tons-of-amazon-product-revie-1821018875) )来筛选它们。BuzzFeed (这个名字是一个笑话，但却是一个非常悲伤和真实的笑话。)整篇文章同样令人沮丧，因为它基本上阐明了亚马逊评论是多么注定失败。 
 
-Watch
+
 
 让我们把实用的要点放在前面:
 
@@ -28,11 +28,7 @@ Watch
 
 经过验证的评论确实可以防范一种类型的攻击:因为垃圾邮件发送者必须实际购买产品，所以很难就非常昂贵的东西达成交易。这是一个规模的生意，绝对不是信任的生意，所以当垃圾邮件发送者只做出一个小承诺时效果最好:一个 5 美元的手机壳，一个从某人的 Kickstarter 项目中剽窃的 3 美元的小玩意。BuzzFeed 没有提到任何涉及笔记本电脑或蔻驰包等高端产品的案例。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Here&#39;s Why Amazon Can&#39;t Fix Review Spam](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/when-should-i-trust-online-reviews-1604152436) [###### 什么时候我应该相信在线评论？](https://lifehacker.com/when-should-i-trust-online-reviews-1604152436) 
 
-亲爱的 Lifehacker，我知道很多网评可能是假的，还有一些只是由…
-
-[Read more](https://lifehacker.com/when-should-i-trust-online-reviews-1604152436)</aside>
 
 ### **有疑问时，找外部评论**
 

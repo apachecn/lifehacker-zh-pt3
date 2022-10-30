@@ -4,7 +4,7 @@
 
 每位家长都提出了激励措施:“如果我换轮胎时你有耐心，之后我们就可以吃冰淇淋了。”或者，“如果你和你的表弟玩得很好，你可以在晚饭前使用 iPad。”老师们肯定会用行为奖励来换取时间——在我小时候，一块糖或一个小玩具来表示顺从绝对是一种安慰。
 
-Watch
+
 
 但是，琳达·弗拉纳根在为 [Mind/Shift](https://ww2.kqed.org/mindshift/2017/08/29/how-ending-behavior-rewards-helped-one-school-focus-on-student-motivation-and-character/) 撰稿时说，为行为提供激励并不一定是塑造性格和增加动力的最佳方式:“几十年来，大量社会科学 [研究](https://www.ncbi.nlm.nih.gov/pubmed/10589297) 得出结论，对某些类型的行为给予奖励不仅无益，而且有害。”
 

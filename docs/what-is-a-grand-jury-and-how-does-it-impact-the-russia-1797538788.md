@@ -4,7 +4,7 @@
 
 据 [【华尔街日报】](https://www.wsj.com/articles/special-counsel-mueller-impanels-washington-grand-jury-in-russia-probe-1501788287)报道，司法部特别法律顾问罗伯特·穆勒因俄罗斯干预 2016 年总统选举召集大陪审团。这个陪审团将让穆勒寻求传票——迫使人们在法庭上作证，并为调查提供文件。
 
-Watch
+
 
 大陪审团已经在华盛顿特区工作了几个星期，并就小唐纳德·川普去年与一名俄罗斯律师的会面发出了传票 ，报道 [路透社](https://www.reuters.com/article/us-usa-trump-russia-idUSKBN1AJ1SW) 。
 

@@ -6,7 +6,7 @@
 
 Nvidia 的新 [GeForce RTX 20 系列显卡](https://gizmodo.com/nvidias-beastly-new-20-series-rtx-gpus-claims-up-to-6x-1828464202) 最近成为极客镇的话题。虽然我们还没有真正看到它们在真实世界基准测试中的表现——至少，超过了 Nvidia 自己提供的性能——但你至少可以通过测试其功能来确定是否是时候升级自己的老化显卡了。
 
-Watch
+
 
 如果你是一个游戏玩家，你可能已经很清楚什么样的设置和游戏能给你带来愉快、流畅的体验，什么样的设置会让你的系统变慢。(如果没有，你可以通过 [Steam](https://kotaku.com/steams-new-fps-counter-makes-it-easier-to-obsess-over-f-1677380513) 或 [Nvidia 的 Geforce Experience](https://www.geforce.com/whats-new/articles/geforce-experience-2-1-released) 在你的游戏中轻松启用 FPS 计数器，如果它还没有内置 FPS 计数器的话。)
 

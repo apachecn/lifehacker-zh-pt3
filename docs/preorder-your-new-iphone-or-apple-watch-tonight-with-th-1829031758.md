@@ -4,7 +4,7 @@
 
 如果你打算预订一部新的 iPhone XS 或 Apple Watch Series 4，你今晚将会熬夜。所有三款设备——iPhone XS、iPhone XS Max 和 Apple Watch Series 4——将有资格在 12:01 PT 预订。那是加州时间——，因为在苹果的世界里，条条大路通库比蒂诺。
 
-Watch
+
 
 你也可以从“四大”运营商那里预订这款设备:威瑞森、美国电话电报公司、T-Mobile 和 Sprint。这种事情你不会想拖到早上去做(这是你想象中的一天开始的早晨)。至少，如果你想在发布日买一部新的 iPhone，就不需要...或者在发布日的几周内。
 

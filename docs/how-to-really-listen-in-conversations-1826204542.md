@@ -4,7 +4,7 @@
 
 听:这个可怜的人在说话。但是该轮到你注意别人的废话了。以下是如何成为你想与之交谈的那种倾听者。
 
-Watch
+
 
 卡什·尼克森是《武士聆听者》[](https://www.amazon.com/Samurai-Listener-Cash-Nickerson/dp/1682615251?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-really-listen-in-conversations-1826204542&asc_source=&tag=kinjalifehackerlink-20)*的作者，这是一种商业建议和倾听指南的混搭，很大程度上依赖于西方武士之道的思想。《快速公司》 [采访了](https://www.fastcompany.com/40566557/youre-a-bad-listener-heres-how-to-remember-what-people-say) 尼克森，寻求一些简单的建议，告诉他如何提高你的能力，不仅仅是听别人在说什么，而是真正地倾听。*
 

@@ -4,7 +4,7 @@
 
 弹跳屋——多么好的礼物。他们是孩子们生日聚会的真正明星(抱歉，是生日的孩子们)，带来欢乐、笑声和最终小睡的膨胀奇迹。它们也有点可怕，加州 的这只跳跃者本周被强风吹到了高速公路上。正在里面玩耍的 9 岁男孩奇迹般地爬了出来，只是有些擦伤和抓伤。
 
-Watch
+
 
 几乎每年，我们都会看到弹跳屋飘走的可怕视频——在 [一场足球比赛](http://www.cnn.com/2011/US/06/05/new.york.floating.houses/index.html) ，越过 [一片树林](https://poststar.com/news/local/two-boys-seriously-injured-when-bounce-house-is-blown-into/article_e0c4aac2-da9b-11e3-99fb-001a4bcf887a.html) ，进入 [电线](https://sploid.gizmodo.com/scary-video-shows-a-bounce-house-floating-away-straight-1782398865) 。原因是物理。正如《连线》[](https://www.wired.com/2016/06/bouncy-castles-take-flight/)*中所解释的:“充气城堡是有弹性的。一旦它们撞上任何形式的驼峰，它们就会向空中飞一点——一旦它们飞起来，强劲的阵风会把它们留在那里。或者，他们可以开始倾斜，让风从下面从各个方向推动。”*
 

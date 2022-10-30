@@ -4,7 +4,7 @@
 
 本周早些时候 Equifax 的 [【安全事件】](http://lifehacker.com/equifax-hackers-might-have-your-social-security-and-cre-1802159442) 影响了 1.43 亿美国人。这是一个巨大的数字，这意味着你或你认识的人受到影响的可能性相当高。Equifax 的网站甚至一度为伪造的社会安全号码提供了正面的结果。
 
-Watch
+
 
 如果你是受攻击影响的数百万人之一，那么你必须想出下一步该做什么。CNET 把 [一步步组合成一个相当不错的](https://www.cnet.com/how-to/a-guide-to-surviving-equifax-data-breach/) 给人看。以下是它的一些建议:
 

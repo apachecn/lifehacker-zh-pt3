@@ -4,7 +4,7 @@
 
 直播电视新闻一点也不轻松。它融合了快速思考的即兴创作和与复杂技术系统协同完成的新闻研究，所有这些都是为了传递新闻。在选举年，这一点也不容易。
 
-Watch
+
 
 [哈利杰克逊](https://twitter.com/HallieJackson) 是记者 [NBC 新闻](http://www.nbcnews.com/) ，每日出现在 [MSNBC](http://www.msnbc.com/) ， [今日](http://www.today.com/) ，以及 [晚间新闻与莱斯特·赫特](http://www.nbcnews.com/nightly-news) 。她在竞选活动中一直是坚定的贡献者，经常连续几周在路上工作，同时带着手提箱生活——无论如何都要传递这个故事。我们在休息时间采访了杰克逊，了解她是如何工作的。
 

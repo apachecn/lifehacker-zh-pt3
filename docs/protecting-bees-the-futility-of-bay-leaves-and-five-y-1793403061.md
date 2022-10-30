@@ -4,7 +4,7 @@
 
 本周，我们了解了为什么某些种类的野花对最需要它的蜜蜂没有帮助，调查了月桂叶是否真的增加了任何味道，回顾了五年来对树莓派的研究，等等。这里回顾一下。
 
-Watch
+
 
 ## [**不要种那些“对蜜蜂友好”的野花 Cheerios 正在送人**](http://lifehacker.com/don-t-plant-those-bee-friendly-wildflowers-cheerios-i-1793370883)
 

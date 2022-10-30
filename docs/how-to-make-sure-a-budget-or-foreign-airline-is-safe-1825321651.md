@@ -4,7 +4,7 @@
 
 廉价航空公司是廉价旅行的一个不错的选择，但它们也很不舒服，它们为每一件小事都要花你一分一毫，现在，人们开始质疑这些廉价航班的整体安全性。这四条建议将帮助你选择一家符合所有安全标准的廉价航空公司或外国航空公司。
 
-Watch
+
 
 看， [飞行真是太安全了](https://lifehacker.com/six-airplane-facts-to-cure-your-fear-of-flying-1788654431) 。你卷入事故的几率非常小，而你在事故中死亡的几率更小。但是 [当 *60 分钟*最近指出廉价航空公司 Allegiant 在两年多的时间里出现了 100 多起重大机械问题](https://www.cbsnews.com/news/allegiant-air-the-budget-airline-flying-under-the-radar/) (无一致命)时，它提出了一个问题:“这些廉价航空公司真的有多安全？”嗯，如果他们符合某些安全规定，他们基本上和其他航空公司一样安全。诀窍在于找出哪家航空公司的做法是正确的。旅游作家 Rosie Spinks 在 Quartz [有几条建议](https://quartzy.qz.com/1254303/allegiant-air-are-low-cost-airlines-safe-to-fly/) :
 

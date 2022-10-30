@@ -4,7 +4,7 @@
 
 PowerPoint 可以让您快速地将演示文稿放在一起，但是如果您只了解基础知识，您的幻灯片放映可能会枯燥乏味。是时候学习如何自定义模板、添加动画和幻灯片过渡、制作幻灯片注释等等。
 
-Watch
+
 
 *<small>这篇文章是</small>* [*<small>微软 Office 周</small>*](http://lifehacker.com/tag/microsoft-office-week) *<small>的一部分，在 Lifehacker 我们提供入门或掌握微软 Office 的技巧。想要更多吗？一定要留意</small>* [*<small>办公周标签页</small>*](http://lifehacker.com/tag/microsoft-office-week) *<small>的整个一周。</small>*
 

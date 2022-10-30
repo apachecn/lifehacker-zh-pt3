@@ -4,7 +4,7 @@
 
 现在是夏天，出于某种原因，这是唯一一个有自己“阅读”的季节。为海滩、公园或空调星巴克的储物桌上挑选一本书，这是 Metafilter 用户 Fizz 从主要出版物 中收集的 [20 个夏季阅读清单。](https://www.metafilter.com/174848/One-benefit-of-Summer-was-that-each-day-we-had-more-light-to-read-by) 
 
-Watch
+
 
 他们有来自《秃鹫》、《纽约客》、《名利场》和我们科幻姐妹网站 io9 的阅读清单。奇怪的是，他们没有 Lifehacker 的 2018 年夏季阅读清单 ，其中包括我们的读者对他们今年夏天在读什么书的评论。( [我们 2017 年的榜单](https://lifehacker.com/our-summer-book-recommendations-are-perfect-for-staying-1796380733#_ga=2.127799501.1578439480.1529932812-1095371513.1514847978) 也还是不错的。)
 

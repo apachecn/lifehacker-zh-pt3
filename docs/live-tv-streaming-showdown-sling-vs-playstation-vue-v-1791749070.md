@@ -4,7 +4,7 @@
 
 像 Sling、Playstation Vue 和 DirecTV 这样的服务现在可以让你通过互联网观看直播电视，而不必从你的有线电视公司 那里获得 [一个复杂的捆绑包。我们看了一下这三种服务，看看它们是如何相互叠加的。](http://lifehacker.com/the-worst-ways-cable-companies-confuse-you-into-paying-1773089329) 
 
-Watch
+
 
 ### **竞争者**
 

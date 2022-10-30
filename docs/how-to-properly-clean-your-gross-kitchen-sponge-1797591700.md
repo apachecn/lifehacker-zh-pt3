@@ -4,7 +4,7 @@
 
 你用厨房海绵擦拭水槽里最恶心的东西，所以它会积累一些非常恶心的细菌是有道理的。但是有可能清洁或消毒海绵吗？是的，事实证明——但这只是一个短期的解决办法。
 
-Watch
+
 
 **头条** : [研究称](https://www.nytimes.com/2017/08/04/science/sponges-bacteria-microwaving-cleaning.html?_r=0) 清洁脏海绵只会帮助最有害的细菌(《纽约时报》)
 

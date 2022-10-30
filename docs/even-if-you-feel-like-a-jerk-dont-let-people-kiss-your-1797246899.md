@@ -4,7 +4,7 @@
 
 在注意到他们刚出生的女儿昏昏欲睡，吃不下东西后，她的父母尼科尔和谢恩·西弗里特赶紧把她送到医院。在那里，不到两周之后， [婴儿玛丽安娜](http://people.com/human-interest/mom-newborn-died-meningitis-speaks-out/?utm_campaign=peoplemag&utm_source=facebook.com&utm_medium=social&xid=socialflow_facebook_peoplemag)死亡。她的葬礼在星期一举行。
 
-Watch
+
 
 医生告诉 Sifrits，Mariana 感染了 1 型单纯疱疹病毒(HSV-1)，这导致了脑膜炎的并发症。据信，她是从一个感染了唇疱疹病毒的人的吻中感染上这种疾病的，她可能知道也可能不知道。
 

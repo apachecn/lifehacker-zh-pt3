@@ -4,7 +4,7 @@
 
 你可能听过一句老话，“先支付自己。”这个想法是在你有机会花钱之前把钱存起来。像 Qapital 和 Digit 这样的应用程序使 [很容易做到](https://lifehacker.com/these-apps-are-the-perfect-money-saving-tools-for-lazy-1778298912) 。他们审查你的消费，并自动存入你的储蓄账户。你设置好了，忘了它，你的积蓄会随着时间而增长。我们来对比一下这两者。
 
-Watch
+
 
 ### 竞争者
 

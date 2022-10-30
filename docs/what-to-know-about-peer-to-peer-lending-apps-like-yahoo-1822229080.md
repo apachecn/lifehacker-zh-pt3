@@ -4,7 +4,7 @@
 
 雅虎金融正寻求将最古老的无息贷款形式之一货币化。
 
-Watch
+
 
 该公司上周五推出的 Tanda 应用程序可在安卓上使用，很快也将在 iOS 上使用，正如其名称所暗示的那样。它可以让你加入一群人，一前一后地为储蓄目标而努力:每个用户向一个罐子里支付商定的金额，选择他们何时收到钱。最早需要的人支付费用，等待时间最长的人获得 2%的奖金。根据 [Android Police](http://www.androidpolice.com/2018/01/20/yahoo-finance-launches-tanda-app-help-save-money-wisely-others/) 的说法，雅虎金融抽取第一笔支出的 8%和第二笔支出的 7%。
 

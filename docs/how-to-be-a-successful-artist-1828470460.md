@@ -4,7 +4,7 @@
 
 升级版从暑假回来了，带来了新的格式、新的细分市场和大量的新技术。参加我们这一集的有作者奥特萨·莫什费格，[*艾琳*](https://www.amazon.com/Eileen-Novel-Ottessa-Moshfegh/dp/0143128752/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-be-a-successful-artist-1828470460&asc_source=&ie=UTF8&keywords=ottessa moshfegh eileen&qid=1534784127&s=books&sr=1-1&tag=kinjalifehackerlink-20) 和新的 [*我的休息和放松之年*](https://www.amazon.com/Year-Rest-Relaxation-Ottessa-Moshfegh/dp/0525522115/ref=pd_sim_14_2?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-be-a-successful-artist-1828470460&asc_source=&pd_rd_i=0525522115&pd_rd_r=2T8K5P1QNKKVTVKC9NM4&pd_rd_w=DQkwD&pd_rd_wg=DYgYA&psc=1&refRID=2T8K5P1QNKKVTVKC9NM4&tag=kinjalifehackerlink-20) 的作者，以及作家兼演员安庆名惠子(最著名的是她在*吉尔莫女孩*中扮演的莱恩·金)，她最近创作了一本书 [*没有错误:不完美艺术家的完美工作手册*T24】](https://www.amazon.com/No-Mistakes-Perfect-Workbook-Imperfect/dp/0143131788?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-be-a-successful-artist-1828470460&asc_source=&tag=kinjalifehackerlink-20)
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/490330ed-562a-4311-89bd-3fbfca8ec57d/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/490330ed-562a-4311-89bd-3fbfca8ec57d/embed)
 

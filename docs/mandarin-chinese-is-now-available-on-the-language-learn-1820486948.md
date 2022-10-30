@@ -4,7 +4,7 @@
 
 iOS、Android 和网络上的免费语言学习应用 Duolingo 终于推出了针对英语使用者的中文课程。现在，你可以免费尝试英语母语者最难学的语言之一。
 
-Watch
+
 
 除了今年早些时候推出的日语、之外，中文是多林哥最受欢迎的语言课程，这使得此次推出相当重要。中文是地球上最常用的语言(大约有 12 亿人以中文为母语)，而 [是商业中最有用的学习语言之一](https://lifehacker.com/the-most-useful-language-for-english-speakers-to-learn-1793742182) ，所以人们一直渴望这次更新。
 

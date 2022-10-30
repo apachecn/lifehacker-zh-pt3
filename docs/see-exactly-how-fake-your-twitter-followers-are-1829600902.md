@@ -4,7 +4,7 @@
 
 我妻子和我的推特粉丝数量差不多——分别是 16k 和 14k 但她的推特数量一直超过我。事实上，根据 Twitter 营销服务 SparkToro 的 SparkScore 工具 的数据，她的一条推文平均获得三倍的转发量，*获得十倍的收藏量。* 
 
-Watch
+
 
 怎么会这样？她的推文 客观上能比我的好吗？如果我的自我拒绝接受这个怎么办？如果是我的追随者的错呢？SparkToro 还有另一个工具， [虚假关注者审计](https://sparktoro.com/tools/fake-followers-audit) ，来检查任何 Twitter 用户的受众中有多少是真实的。
 

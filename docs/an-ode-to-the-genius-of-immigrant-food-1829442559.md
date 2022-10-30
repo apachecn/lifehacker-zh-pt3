@@ -4,7 +4,7 @@
 
 **底特律**——与底特律“复兴”(即中产阶级化和种族隔离)的无休止的故事并行的是关于其 [新兴的](https://www.nytimes.com/2014/10/12/travel/in-detroit-revitalizing-taste-by-taste.html) [餐馆](https://www.washingtonpost.com/lifestyle/food/one-of-the-countrys-poorest-cities-is-suddenly-becoming-a-food-mecca/2016/01/04/82631234-ad80-11e5-b820-eea4d64be2a1_story.html?utm_term=.336f365d13a5) 场景的故事，这本身就是近年来重塑这座城市的惊人发展和企业资金流入的标志。
 
-Watch
+
 
 就像我最近在本网站的一次采访之旅中所做的那样，开车穿过市中心及其周围的街区，你会发现由詹姆斯·比尔德提名的厨师掌舵的餐馆和别致的酒吧，都充满了年轻的，(主要是)白人创意阶层成员，他们在过去十年里稳步涌入这座城市，利用其相对便宜的住房，并渴望融入这座城市从灰烬中崛起的故事。
 

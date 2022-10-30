@@ -4,7 +4,7 @@
 
 [感恩节快到了](https://skillet.lifehacker.com/how-to-make-thanksgiving-dinner-for-a-very-small-crowd-1820310548) ，这意味着 [黑色星期五](https://lifehacker.com/everything-you-need-to-know-about-black-friday-and-cybe-5962841) 也即将来临。如果你一直在等待一个更好的新笔记本电脑或游戏机，现在是浏览交易的时候了。
 
-Watch
+
 
 微软刚刚宣布了一系列折扣，从感恩节开始——也就是 11 月 23 日星期四——一直到 11 月 27 日网络星期一。以下是该公司提供的最佳黑色星期五交易。
 

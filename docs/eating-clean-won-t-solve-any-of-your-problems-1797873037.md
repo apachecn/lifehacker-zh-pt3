@@ -4,7 +4,7 @@
 
 没有人吹嘘吃垃圾食品。健康的饮食 [包括蔬菜，不吃太多的糖](http://vitals.lifehacker.com/the-only-three-things-everybody-agrees-on-when-it-comes-1709039566) ，如果你这样吃，你会对自己吃得“干净”感到满意但是你知道吗？吃得干净是个陷阱。
 
-Watch
+
 
 当然，吃一两顿“干净”的饭感觉很好。不要介意“干净”没有一致的定义当我第一次听到这个词时，我很喜欢它，因为我认为它意味着未经加工的食物(新鲜蔬菜，家常菜)，它并不局限于任何特定的理论，比如吃低碳水化合物或低脂肪食物。但是，曾经作为其吸引力的同样的模糊性已经被吸收了。现在任何东西都可以是干净的，如果它是由某人 [站在沙滩上看起来很华丽](http://goop.com/sneak-peek-gwyneth-paltrow-goop-clean-beauty-foreword/) 出售的。
 

@@ -4,7 +4,7 @@
 
 这辆折叠式健身车可以锻炼你的胳膊或腿。它足够坚固，适合严肃的训练，价格可与全尺寸设备媲美。当你完成后，虽然，它几乎不占用空间。Excy 就像一个有礼貌的房客:当你忙的时候，它不会打扰你，但当你忙的时候，它会随时为你提供乐趣。
 
-Watch
+
 
 我们之前已经在这里介绍过其他不寻常的健身自行车， [像 DeskCycle](http://lifehacker.com/the-deskcycle-is-a-space-saving-exercise-bike-that-fits-1481312726) 和全尺寸 [FitDesk](http://lifehacker.com/the-fitdesk-is-a-space-saving-apartment-friendly-exerc-5877802) 。这两者都是为了在你做其他事情的时候给你一个轻松的锻炼。但是 Excy 只是那些的远亲。当你看电影的时候，你可以在你的沙发前设置 Excy(是的，他们叫它“Excy”，而不是“the Excy”)，但我试图把它塞到我的桌子底下——不可能。它足够大，以至于你的膝盖会碰到桌面。另一方面，很容易将 Excy 放在办公桌旁，当你需要休息时，就可以进行一次短暂的锻炼。
 

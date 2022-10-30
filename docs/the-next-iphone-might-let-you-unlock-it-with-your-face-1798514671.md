@@ -4,7 +4,7 @@
 
 苹果即将推出的 iPhone 8 可能会让你通过面部识别解锁，安全专家告诉 Mashable [这是一个可怕的想法](http://mashable.com/2017/08/28/trouble-facial-recognition-technology-smartphones/) 。目前的面部识别技术，就像解锁三星 Galaxy S8 的那种， [可以被一张照片](http://www.businessinsider.com/samsung-galaxy-s8-facial-recognition-tricked-with-a-photo-2017-3) 骗过。三星假装这没什么大不了的，但这个噱头创造了一种虚假的安全感，许多消费者不会知道这种安全感就像“滑动解锁”一样安全。
 
-Watch
+
 
 情况变得更糟。如果苹果像传言的那样启用非接触式面部识别，这可能意味着该设备一直在监视，就像 Siri 一直在监听一样，这又创造了一个潜在的安全漏洞，可能会让 iPhone 成为黑客的绝佳间谍设备。
 

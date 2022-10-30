@@ -4,7 +4,7 @@
 
 宠物主人中的一个新兴趋势是给狗和猫喂生肉。这个想法是，我们应该让我们家的猫和狗的饮食更接近它们在自然界可能吃的东西。来自欧洲的新研究显示，在商业生肉产品中发现的细菌和寄生虫的程度令人惊讶——对宠物和它们的主人都构成潜在的健康风险。
 
-Watch
+
 
 去年*华盛顿邮报*的一篇 [文章](https://www.washingtonpost.com/news/animalia/wp/2017/08/15/grain-free-pet-foods-are-no-healthier-vets-say-focus-on-this-nutrition-issue-instead/?utm_term=.9aba8b2057a0) 显示，无谷物、全肉和生食饮食是宠物食品市场增长最快的领域之一。有点像旧石器时代的饮食，但是是给宠物吃的。问题是，没有证据表明基于生肉的饮食，或 RMBDs，比传统的干燥或罐装宠物食品更健康。正如发表在*兽医记录*上的新 [研究](http://veterinaryrecord.bmj.com/content/182/2/50) 现在显示的，这些饮食可能对动物和人类健康都构成威胁。
 

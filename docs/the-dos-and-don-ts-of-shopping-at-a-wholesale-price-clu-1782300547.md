@@ -4,7 +4,7 @@
 
 你可能认为因为我写了关于的智能购物，我就不会有价格俱乐部的问题然而，作为一名新会员，我花了几次时间才控制住自己的大宗购物。足够用来洗澡的橄榄油？一辈子的奶酪泡芙？拜托，你怎么能阻止自己呢？批量购买可以是一种 [划算的方式](http://traebodge.com/6-apps-that-can-save-you-money/) 来储备必需品，但是也有陷阱。
 
-Watch
+
 
 *本文原载于*[](http://blog.credit.com/2016/06/the-dos-and-donts-of-shopping-at-price-clubs-148117/)**。**
 

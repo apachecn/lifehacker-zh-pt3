@@ -4,7 +4,7 @@
 
 即使你对橄榄园情有独钟，也没有人会去连锁餐厅期待五星级的用餐体验。(在这一点上，你应该预料到像 [冷冻主菜](https://www.reddit.com/r/AskReddit/comments/73qsn8/redditors_who_work_at_chain_restaurants_what/dnsgbj4/) 和 [预制袋装汤](https://www.reddit.com/r/AskReddit/comments/73qsn8/redditors_who_work_at_chain_restaurants_what/dnsl3oy/) 这样的事情是意料之中的。)但这种一致性也令人欣慰，有了标准化的菜单，人们可能会合理地期待标准化的健康和食品安全程序。在某种程度上，这是真的——Reddit 上这条关于在大型连锁餐厅应该避免什么的(根据员工的说法)并没有你想象的那么可怕。
 
-Watch
+
 
 尽管如此，如果你对食源性疾病非常害怕，如果你想尽量减少离开澳拜客牛排店时携带超出你预期的食物的可能性，还是要警惕某些菜肴、时间和其他警告信号
 

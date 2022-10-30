@@ -4,7 +4,7 @@
 
 帕特里克·莫伯格浪费了你生命中的许多时间，或是在候诊室里你旁边的人的生命。他的工作室 Dots 创造了美丽而令人上瘾的手机游戏 [Dots](https://www.dots.co/dots/) (思考者的糖果粉碎)，及其续集 [两个 Dots](https://www.dots.co/twodots/) 和 [Dots & Co](https://www.dots.co/dotsandco/) ，这些游戏都在数百万部手机上运行。我们跟他聊了游戏开发流程，他最喜欢的游戏，还有他的童书。
 
-Watch
+
 
 * * *
 

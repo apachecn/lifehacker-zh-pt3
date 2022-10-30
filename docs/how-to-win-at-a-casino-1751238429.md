@@ -4,7 +4,7 @@
 
 恕我直言，俄克拉荷马州萨克维尔的好心人，除了在世界最大的赌场[周围漫无目的地、敬畏地闲逛，我目前不知道有什么正当的理由隆隆地走下他们的 I-35 匝道。也就是说，除非你*真的*喜欢龙卷风或色情商店，这两样东西在这个国家的那个地区除了平地以外还很普遍。像 WinStar 这样的赌场数不胜数，但它们的规模都只有 WinStar 的几分之一，尽管如此，它们都位于同样偏僻的地方，位于似乎从风景中突出来的建筑中，就像你可以在里面吸烟的巨型仙人掌一样。](http://www.winstarworldcasino.com/)
 
-Watch
+
 
 另一方面，你会发现相当多的赌场坐落在世界上最令人向往和最昂贵的房地产上；举例来说，加勒比海到处都是，如果你在那里乘坐足够豪华的船，你甚至可以在下山的路上赌博。显然，我们人类热爱我们的赌场，所以我们把它们困在地球上各种各样的环境中，我们可能会继续这样做 [直到](http://www.reviewjournal.com/business/casinos-gaming/macau-casinos-experience-14th-straight-monthly-revenue-decline)[该死的泡沫破裂](http://www.reviewjournal.com/business/casinos-gaming/baccarat-results-send-state-strip-gaming-revenue-downward) 。当你走进赌场时，你可以在世界上的任何地方，但每一扇门都会把你带到本质上完全相同的地方。这里有一些关于如何在那里发展的建议，如果不是盈利的话。
 

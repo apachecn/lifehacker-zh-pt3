@@ -6,7 +6,7 @@
 
 吉米·法伦在互联网上可能是一个两极分化的人物，但他可以 [带来收视率](http://tvbythenumbers.zap2it.com/weekly-ratings/late-night-ratings-sept-12-16-2016/) 。一些人认为他是假的，而另一些人则被他的魅力所吸引。这段视频讲述了如何在自己身上模仿这种魅力。
 
-Watch
+
 
 *<small>这篇文章是我们的</small>* [*<small>恶周</small>*](http://lifehacker.com/welcome-to-lifehackers-seventh-annual-evil-week-1788085206) *<small>系列的一部分，在这里我们看到了做事的阴暗面。有时邪恶是正当的，而其他时候，知道邪恶意味着知道如何打败它。想要更多吗？查看我们的</small>* [*<small>恶周标签页</small>*](http://lifehacker.com/tag/evil-week#_ga=1.105669515.968941705.1436971740) *<small>。</small>*
 

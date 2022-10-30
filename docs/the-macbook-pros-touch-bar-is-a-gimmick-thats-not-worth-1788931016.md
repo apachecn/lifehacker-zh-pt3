@@ -4,7 +4,7 @@
 
 用指纹登录电脑并不新鲜，但当 MacBook Pro 的 Touch Bar 出现时，它仍然让我有点头晕，比背光键盘更亮。我顺着触摸栏的方向，像变魔术一样，我进入了笔记本电脑。是瞬间的。指纹识别器是苹果带 Touch Bar 的全新 MacBook Pro 的最小改进之一，但它可能是我最喜欢的。在 MacBook Pro 最炫的噱头下，隐藏着一些令人难以置信的功能和自然使用。
 
-Watch
+
 
 我已经花了一周多一点的时间使用带有 Touch Bar 的新款 MacBook Pro 的 13 英寸基本款(1799 美元)和 15 英寸基本款(2399 美元)，并且已经换回没有 Touch Bar 的 MacBook *感觉很奇怪。(还有更便宜的 1499 美元的型号，没有触摸条。)当然，键盘顶部的发光条无疑是一个噱头，旨在与 Surface Book 的神奇反转铰链等大型工程技术竞争，更不用说 Razer Blade Stealth 等强大而廉价的苹果仿制品的诱惑了，但 Touch Bar 是 [也很酷](http://gizmodo.com/i-just-stroked-the-new-macbook-pros-touch-bar-1788303500#_ga=1.122301327.588133560.1464146817) 。它是否真的有用完全是另一个问题。这是一次有意义的升级还是旨在证明 MacBook Pro 非常昂贵的价格的华而不实的垃圾？*
 

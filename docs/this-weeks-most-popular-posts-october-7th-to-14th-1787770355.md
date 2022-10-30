@@ -4,7 +4,7 @@
 
 本周，我们学习了一次性手机的一些不那么邪恶的用途，用树莓 Pi 构建了我们自己的亚马逊 Echo，解决了最常见的硬拉错误，欺骗了一种让谷歌助手在任何 Android 牛轧糖手机上运行的方法，等等。这里回顾一下。
 
-Watch
+
 
 ## [**用一次性手机号码可以做的五件有用的事情**](http://lifehacker.com/five-useful-things-you-can-do-with-a-burner-phone-numbe-1787635006)
 

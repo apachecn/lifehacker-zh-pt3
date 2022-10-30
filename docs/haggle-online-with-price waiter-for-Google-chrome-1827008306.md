@@ -4,7 +4,7 @@
 
 Chrome:[price waiter 扩展](https://chrome.google.com/webstore/detail/pricewaiter/iabgknpjdaencfdokkmapnbjegjbojpg)——一个自己命名价格系统，乍听起来好得令人难以置信——目前只适用于 Chrome。(抱歉，火狐用户。)当你安装扩展时，你可能会注意到...绝对没有，至少一开始没有。
 
-Watch
+
 
 如果你幸运的话——我花了一段时间才在一个合格的网站上找到一个合格的产品——你会在你的浏览器顶部看到一个大的粉色条。如果是这样的话，掰掰你的指关节，因为是时候开始购物了(和削价)。
 

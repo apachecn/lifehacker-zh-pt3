@@ -4,7 +4,7 @@
 
 感到想要出城的冲动——但是不确定你想去哪里。《华盛顿邮报》的 [假期发现者](https://www.washingtonpost.com/graphics/2018/lifestyle/travel/vacation-finder/) 问了一系列问题(国内还是海外？温暖还是凉爽？)来帮助缩小你的假期优先级，然后提供了几个目的地供你考虑。你会得到一些旅游建议，但你也会得到一些你可能没有考虑过的度假地点。
 
-Watch
+
 
 当我接受测试时，我潜在的度假目的地包括纽约市、萨凡纳和宾夕法尼亚州的布里塞伍德——在阅读了《华盛顿邮报》关于在布里塞伍德 [、](https://www.washingtonpost.com/lifestyle/travel/i-vacationed-at-the-east-coasts-quintessential-rest-stop-its-more-inviting-than-it-looks/2017/08/10/a38ba58c-76d0-11e7-8f39-eeb7d3a2d304_story.html?utm_term=.a181525160da) 骑自行车的报道后，我开始有计划旅行的冲动。
 

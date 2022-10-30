@@ -4,7 +4,7 @@
 
 今天要长途跋涉吗？Pack Config 与我们分享了一份装载清单，其中包含了您长途跋涉所需的一切。
 
-Watch
+
 
 背包是一个 [普罗米修斯设计 Werx S.H.A.D.O .包](http://prometheusdesignwerx.com/collections/backpacks/products/shado-pack-28l?variant=24502711815) 。这是里面的内容:
 

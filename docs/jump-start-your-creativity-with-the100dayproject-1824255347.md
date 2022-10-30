@@ -4,7 +4,7 @@
 
 如果你每天做一个简单的创意动作，100 天后你会有什么？4 月 3 日开始[#百日计划](https://www.the100dayproject.org/) ，邀请你自己回答这个问题。往届学员做过 100 天的 [拼贴画](https://www.robenmarie.com/the-100-day-project-2017/)[绒球](https://betzwhite.com/2017/04/my-100-day-project-pompoms.html)[插画语录](http://ellafrancessanders.com/100-day-project/)[当众跳舞](https://www.youtube.com/watch?v=d2DLNLTTjvM) 。
 
-Watch
+
 
 你可以选择任何你喜欢的行动或目标，如果你错过了开始，但想加入进来，从中间开始也没关系。这是我们 Lifehacker 的一些人正在做的事情:
 

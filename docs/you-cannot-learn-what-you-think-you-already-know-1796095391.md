@@ -4,7 +4,7 @@
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 
-Watch
+
 
 本周的斯多葛派引语来自希腊哲学家 [爱比克泰德](https://en.wikipedia.org/wiki/Epictetus) ，他生来就是奴隶，他的一个学生把他的教义写了下来。这些作品最终会成为他的*演讲*和*演讲*。
 

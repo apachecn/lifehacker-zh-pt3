@@ -4,7 +4,7 @@
 
 一些周一早上的灵感，你的指导顾问可能从未建议过的职业选择，瑜伽的真正健康益处(不需要昂贵的裤子)，等等，都在本周的 Lifehacker Brain 自助餐中！
 
-Watch
+
 
 *<small>欢迎来到 Lifehacker 的</small>* [*<small>【周一大脑自助】</small>*](http://lifehacker.com/tag/monday-brain-buffet) *<small>，这是一个新的系列，我们在这里收集了有趣、翔实、发人深省的播客、采访、文章和其他媒体，将教给你一些新的东西，激励你，并有希望以正确的方式开始你的一周。</small>*
 

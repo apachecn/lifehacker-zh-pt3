@@ -4,7 +4,7 @@
 
 不久前，我们详细介绍了如何使用树莓派 制作自己的 [亚马逊 Echo 设备，但如果它出现任何问题，你就必须手动重启整个设备。这是一件痛苦的事情。现在，有一种更简单的方法来制作你自己的回声。](https://lifehacker.com/how-to-build-your-own-amazon-echo-with-a-raspberry-pi-1787726931) 
 
-Watch
+
 
 这个版本到底有什么不同？首先，最终结果基本相同:你可以通过说出唤醒词“Alexa”来激活你的 DIY Echo，该设备就像真正的 Echo 一样工作 [。](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219)
 

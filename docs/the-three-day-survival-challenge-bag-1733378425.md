@@ -4,7 +4,7 @@
 
 为周末的生存之旅打包一个背包与仅仅去露营有很大的不同。Reader Pack Config 展示了他们的背包，为为期三天的丛林作战课程做好了准备。
 
-Watch
+
 
 这个包是一个 [快速包](http://store.tripleaughtdesign.com/FAST-Pack-EDC) 。这是里面的内容:
 

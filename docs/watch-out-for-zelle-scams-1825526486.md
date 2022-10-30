@@ -4,7 +4,7 @@
 
 到目前为止，大多数用户都意识到了像 Venmo 和 PayPal 这样的支付系统的安全弱点:你应该只向你认识的人汇款，你不应该用它来购买产品或服务，你绝对不应该用它来让你不认识的人 支付 [，他们可以在交易完成前简单地取消交易。事实证明，](https://lifehacker.com/how-to-not-get-scammed-when-selling-things-online-1825190225) [Zelle](https://lifehacker.com/zelle-is-your-new-friend-paying-service-1796061030) ，一个最近被银行用来与 Venmo 竞争的支付系统，也有一些严重的漏洞。
 
-Watch
+
 
 根据《纽约时报》[](https://www.nytimes.com/2018/04/22/business/zelle-banks-fraud.html)*的报道，Zelle 与其竞争对手相比具有吸引力的一些关键因素——包括美国银行、花旗和摩根大通在内的一些最大的银行使用它，以及它汇款的速度——使它非常容易受到欺诈。*
 

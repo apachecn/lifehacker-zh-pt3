@@ -4,7 +4,7 @@
 
 迈克尔一直在海外拼命工作，现在他可以买一辆他梦想中的车，享受一些露天驾驶。他有一个相当健康的预算，但问题是这辆车必须能够舒适地容纳两个汽车座椅。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSeDqY7bGeYrM8RWcNlPnkVd6814SQy9xNLyLOtkgq_lz3cePA/viewform?usp=sf_link) *)*
 

@@ -4,7 +4,7 @@
 
 亚马逊视频每月 5 美元的动漫附加频道 Anime Strike 已经关闭。但是不要难过！欢呼吧！这只是意味着你现在可以用你的亚马逊 Prime 会员观看一堆很棒的动漫，不需要额外的订阅。
 
-Watch
+
 
 亚马逊决定在一周年纪念日前 [取消今天](https://www.forbes.com/sites/laurenorsini/2018/01/05/amazon-shuts-down-anime-strike/#282f16b31d2f) 这一不受欢迎的服务，原因是缺乏订户以及那些注册了亚马逊“频道”的人不断抱怨动漫迷不愿意注册，因为服务费用翻倍(亚马逊 Prime 每年 99 美元，Anime Strike 每年 60 美元)，而 [那些注册的人经常遇到问题](https://www.theoasg.com/articles/why-the-anime-strike-service-is-ending-with-tweets/7335) 节目缺少翻译，节目有太多翻译和无关信息，以及亚马逊普遍缺乏沟通。动漫罢工的订户通常不知道他们最喜欢的系列的新一集何时会最终出现。
 

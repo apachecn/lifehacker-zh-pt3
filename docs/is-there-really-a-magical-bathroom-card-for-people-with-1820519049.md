@@ -4,7 +4,7 @@
 
 我可能比大多数人更经常谷歌“便便”，所以当我看到推特上到处都是从[【CrohnsandColitis.com】](http://crohnsandcolitis.com)发出的“洗手间请求卡”的定向广告时，我只是有点惊讶。这是世界上每一个卫生间的免费通行证，还是大型制药公司的营销策略？结果是两者都有一点。
 
-Watch
+
 
 [克罗恩病](https://en.wikipedia.org/wiki/Crohn%27s_disease) 和 [溃疡性结肠炎](https://en.wikipedia.org/wiki/Ulcerative_colitis) 都是可以导致你迫切需要上厕所的情况，并且经常涉及到带血的腹泻。如果有一张神奇的浴室卡，那就太有用了。
 

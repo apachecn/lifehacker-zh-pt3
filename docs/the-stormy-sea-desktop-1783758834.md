@@ -4,7 +4,7 @@
 
 这个桌面足够简单，Flickr 用户 [jsmorley](https://www.flickr.com/photos/28246402@N06/) 解释说，他们想要的只是个性化一点的东西，而不是超出顶部的东西。最终结果是这个引人注目的桌面，任何人都可以轻松复制。以下是方法。
 
-Watch
+
 
 这是一个雨量计桌面，你知道这意味着什么。如果你对 [不熟悉，我们的导游可以给你基本的](http://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789) ，真的，这就是你所需要的。
 

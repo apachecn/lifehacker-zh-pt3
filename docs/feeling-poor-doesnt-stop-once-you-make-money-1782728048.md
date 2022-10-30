@@ -4,7 +4,7 @@
 
 从我在沃尔玛找到第一份推车工作的那一天起，我花了几年时间从一份薪水支票过到下一份。我徘徊在贫困线上下，希望能撑到下个月的房租。当时感觉很正常。直到我开始赚更多的钱后，我才意识到过着贫穷的生活给我留下的心理伤痕。
 
-Watch
+
 
 贫穷不仅仅是资产负债表上的一个数字。是一种心态。多年来，我觉得自己一文不值，因为我很穷，而且，因为我一文不值，我不认为我应该得到更多的报酬。所有的内疚、羞愧和恐惧让我(以及数百万仍在奋斗的人)无法追求更好的生活。这是一个永无止境的自我毁灭的循环。如果你仍然处于那样的情况，不要觉得你必须这样。这个系统经常被操纵来让你失败，但是这个系统最糟糕的机制之一就是让你相信你应该被困在里面。
 
@@ -30,11 +30,7 @@ Watch
 
 过去的贫穷意味着我比现在更贫穷。即使我能负担得起我牙齿所需的预防性护理，我也忽略了其他一些方面，要赶上它们总是要花更多的钱。一旦我开始得到一份体面的工资，我就优先考虑在健康问题变得更加昂贵之前赶上所有我一直在避免的健康问题。如果可以，有能力 就不要忽视自己的健康 [。然而，我非常清楚，有时这不是一个选项。](https://lifehacker.com/how-can-i-find-affordable-health-insurance-if-i-dont-ha-5854268)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Feeling Poor Doesn&#39;t Stop Once You Make Money](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-find-affordable-health-insurance-if-i-dont-ha-5854268) [###### 如果我没有雇主的保险，我如何找到负担得起的健康保险？](https://lifehacker.com/how-can-i-find-affordable-health-insurance-if-i-dont-ha-5854268) 
 
-亲爱的 Lifehacker，我的雇主不提供健康保险，所以我需要自己找一份。应该在哪里
-
-[Read more](https://lifehacker.com/how-can-i-find-affordable-health-insurance-if-i-dont-ha-5854268)</aside>
 
 ### 一旦你有了钱，你会害怕失去它
 
@@ -42,11 +38,7 @@ Watch
 
 你是对的。当然，钱多并不能让你更快乐，这是有限度的，但是拥有钱肯定比没有钱要好。一旦你有了钱，你就可以花钱买东西，让你的生活变得更好。你可以 [批量购买你的食物](http://lifehacker.com/the-ultimate-guide-to-buying-in-bulk-1447310078) 或者 [得到一辆不会一直抛锚的车](http://lifehacker.com/when-it-makes-sense-to-buy-quality-instead-of-saving-mo-1689373996) 。金钱肯定能让你更快乐。这就是为什么失去它的想法是可怕的。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Feeling Poor Doesn&#39;t Stop Once You Make Money](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-buy-happiness-the-purchases-most-likely-to-brin-1681780686) [###### 如何买到幸福:最有可能带给你快乐的东西](https://lifehacker.com/how-to-buy-happiness-the-purchases-most-likely-to-brin-1681780686) 
 
-虽然真正的幸福可能只能在心里找到，但有很多…
-
-[Read more](https://lifehacker.com/how-to-buy-happiness-the-purchases-most-likely-to-brin-1681780686)</aside>
 
 当你很穷的时候，“得到钱”听起来像是一个里程碑，标志着你进入了一个新的、永久的生活时代。实际上，这笔钱可能是以某种形式的工资形式出现的。一份你会不断提醒自己随时可能失去的薪水。
 
@@ -56,11 +48,7 @@ Watch
 
 这部分是因为 [冒名顶替综合症](http://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849#_ga=1.33679201.1347662518.1465819317) 抬起了它丑陋的头，但这也是一种更发自内心的恐惧，它来自于知道你将会失去什么。多年来，我负担不起去看医生或去酒吧或 [沉迷于角色扮演](http://lifehacker.com/what-cosplay-taught-me-about-confidence-1778398878) 之类的爱好。一些在金钱中长大的人可能害怕失去工作，在找到另一份工作之前无法获得这些东西，但对于像我这样的人来说，这不仅仅是一种恐惧。这是一段回忆。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Feeling Poor Doesn&#39;t Stop Once You Make Money](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849) [###### 克服冒名顶替综合症:当你觉得自己是个骗子时该怎么办](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849) 
 
-每个人在职业生涯的某个时刻都会感觉到:我是个骗子，每个人都将…
-
-[Read more](https://lifehacker.com/overcoming-impostor-syndrome-what-to-do-when-you-feel-1651827849)</aside>
 
 ### 你永远不会真正停止贫穷的感觉
 

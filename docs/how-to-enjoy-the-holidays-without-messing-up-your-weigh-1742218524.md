@@ -4,17 +4,13 @@
 
 假期并不是健康和健身即将到来的预兆。尤其是考虑到，对许多人来说，12 月的海报男孩是一个病态肥胖的老人，狼吞虎咽地吃着饼干和蛋糕。但是，尽管有大量的美食和诱惑，这并不意味着你的饮食会一塌糊涂。下面，我们将讨论一个框架，你可以用它来坚持你的计划。
 
-Watch
+
 
 ### 假期如何影响你的体重
 
 人们在假期平均增重 5 磅是一个经常被重复的“事实”。但事实并非如此。事实上，研究表明，这个数字更接近于一磅[。任何过剩都归结于碳水化合物和盐](http://www.ncbi.nlm.nih.gov/pubmed/10727591) [过剩的水分](https://lifehacker.com/f-k-the-scale-1683801679) ，而不是实际的脂肪组织，所以它会在一两天内消失。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Enjoy the Holidays Without Messing Up Your Weight Loss](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/f-k-the-scale-1683801679) [###### 去他妈的天平](https://lifehacker.com/f-k-the-scale-1683801679) 
 
-像其他胖乎乎的孩子一样，我被欺负了。我去了一所极客高中，在那里每个人都有他们的…
-
-[Read more](https://lifehacker.com/f-k-the-scale-1683801679)</aside>
 
 但是除了一个臃肿的数字之外(请原谅这个糟糕的双关语)，它有助于保持客观。事实是，一个普通的成年人每年大约会增加 0.5-1 公斤的 T2 和 T3。此外，由于身体质量的 [正常季节性波动](http://circ.ahajournals.org/cgi/content/meeting_abstract/122/21_MeetingAbstracts/A21291) ，在接下来的几个月里，你的体重可能会下降，而在假期里，你的体重也可能会攀升。这并不是说空气温度和湿度的变化是你塞进嘴里的东西的罪魁祸首(当然，还有你的腰带)。只是在假期里变胖一点是正常的，你不应该为此而惊慌失措并惩罚自己。
 

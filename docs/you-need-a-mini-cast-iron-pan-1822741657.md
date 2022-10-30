@@ -9,6 +9,6 @@
 *   烤奶酪盘配菜: [烤葡萄](https://skillet.lifehacker.com/how-to-turn-mushy-grapes-into-a-fancy-cheese-accompanim-1819155001) 和烤樱桃番茄对于一顿以乳制品为主的饭来说是极好的、可涂抹的佐料，一个迷你煎锅做出的量恰到好处。只需将你的产品与少量融化的黄油或油混合，撒上一些盐和胡椒，在 425 度的烤箱中烘烤半小时左右，直到表皮起泡，内部果酱浓缩。涂在一些硬皮面包上，和你最喜欢的花式奶酪一起享用。
 *   **烤坚果:**需要一把或几个烤坚果来做菜吗？把它们扔进你的小锅里，在你的炉子上干烤，直到香味四溢，或者涂上一点油，然后放进 350 度的烤箱里烤 10 分钟左右，不时搅拌一下，以确保它们不会烧焦。
 
-Watch
+
 
 如果你不确定在哪里可以买到这个迷你的奇迹锅，从检查你当地的商誉或其他节俭点开始，或者 [在网上花五美元](https://www.amazon.com/dp/B000LXA9YI/ref=asc_df_B000LXA9YI5360827/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-need-a-mini-cast-iron-pan-1822741657&asc_source=&creative=394997&creativeASIN=B000LXA9YI&hvadid=167126565975&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9032938&hvnetw=g&hvpone=&hvpos=1o3&hvptwo=&hvqmt=&hvrand=14534263003204353542&hvtargid=pla-138574623435&linkCode=df0&tag=kinjalifehackerlink-20) 买到一个，这是一个非常好的现金幸福比。

@@ -4,7 +4,7 @@
 
 [树莓派 3 于本周发布](https://lifehacker.com/the-raspberry-pi-3-adds-built-in-wi-fi-and-bluetooth-g-1761317416) 虽然它的主要卖点是内置 Wi-Fi 和蓝牙，但它仍然有点慢。那么，让我们来看看它比 Pi 2 和 a Model B+快多少。
 
-Watch
+
 
 为了简单起见，我们决定坚持进行一些非常简单的测试，内存测试，CPU 测试，然后是引导时间。这里比较的所有 Raspberry Pi 型号都以正常速度运行，并且没有超频。因为这是你启动时注意到的第一件事，所以让我们先来看看启动时间。
 

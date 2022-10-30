@@ -4,7 +4,7 @@
 
 最近几天，我们的国务卿 [称总统](https://www.avclub.com/reporter-says-rex-tillerson-called-trump-a-fucking-mor-1819235158) 为“该死的白痴”总统反驳说，他认为他的 [智商得分](https://www.washingtonpost.com/news/morning-mix/wp/2017/10/11/mensas-brainiacs-offer-to-host-trump-tillerson-iq-faceoff/?utm_term=.8d1c893778cc) 更高。但是两人都躲在错误的情报措施后面，而不是说出他们真正的感受。
 
-Watch
+
 
 首先，关于低能儿的一个不太有趣的事实:这个术语，连同*白痴*和*低能儿*，曾经是认知障碍者的专业术语。例如，在 20 世纪早期，任何智商低于 30 的人都会被贴上白痴的标签。如果你有唐氏综合症，你就是(我不是瞎编的) [蒙古白痴](https://en.wikipedia.org/wiki/Mongolian_idiocy) 。”心理学家亨利·戈达德创造了“弱智”一词，用来更具体地描述那些你可能认为属于阿甘智商范围的人。
 

@@ -4,7 +4,7 @@
 
 你觉得“可能”有多可能？Redditor zonination 要求投票子编辑 [/r/samplesize](http://reddit.com/r/samplesize) 的用户给一系列关于概率的常见短语分配百分比值， [用图表显示结果](https://www.reddit.com/r/dataisbeautiful/comments/3hi7ul/oc_what_someone_interprets_when_you_say_probably/) 。样本量很小(只有 46 名受访者)，但数据看起来仍然足够有用——而且它通常与启发它的调查结果相匹配， [对 23 名北约军官的研究](https://np.reddit.com/r/dataisbeautiful/comments/3gmj6h/probable_is_a_vague_word_but_this_image_helps_ive/ctzgwhm/) 。在他们最初调查的两年后，zonination 将数据重新绘制成一幅华丽的“[Joy plot](https://cran.r-project.org/web/packages/ggjoy/vignettes/introduction.html)”([*a la*Joy Division](https://blogs.scientificamerican.com/sa-visual/pop-culture-pulsar-origin-story-of-joy-division-s-unknown-pleasures-album-cover-video/))。
 
-Watch
+
 
 上面的图形是平滑的；你可以在项目的 GitHub 页面 的 [看到一个更加精确和不靠谱的图表，以及原始数据。有几个愚蠢的异常值(一个人标记为“可能不是 100%”)，但佐尼宁说这些异常值是来自同一个受访者](https://github.com/zonination/perceptions) 的(所以他们可能应该被省略)。
 

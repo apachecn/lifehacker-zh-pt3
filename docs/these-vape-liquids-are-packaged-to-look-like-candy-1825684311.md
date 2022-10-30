@@ -4,7 +4,7 @@
 
 有味道的电子液体已经吸引了青少年和年轻人去吸食 T2。但是一些电子液体甚至被包装成糖果的样子——这是一个特别大胆的选择，因为如果一个小孩喝了这种 [会导致中毒或死亡](https://www.healthychildren.org/English/safety-prevention/at-home/Pages/Liquid-Nicotine-Used-in-E-Cigarettes-Can-Kill-Children.aspx) 。
 
-Watch
+
 
 “很容易看出一个孩子如何将这些电子液体产品与他们认为他们以前消费过的东西混淆，比如果汁盒，”FDA 今天发布的一份声明说。暴露于或摄入电子液体可能会对幼儿造成严重伤害，包括心脏骤停、癫痫发作、昏迷和呼吸停止导致死亡
 

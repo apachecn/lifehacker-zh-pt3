@@ -4,7 +4,7 @@
 
 对我来说，找到合适的枕头有点像神话般的探索。我想要结实的、有支撑力的东西，但要有足够的付出。我也希望它能让我保持头脑冷静。很长一段时间，我以为我永远也找不到它了——后来我尝试了 HIBR 枕头，它改变了游戏规则。它并不完美...但是已经很接近了。
 
-Watch
+
 
 首先，一些细节。 [HIBR](https://hibr.com/pillows/) 和它的枕头的目标是提供一种新的记忆泡沫，这种泡沫与你今天得到的泡沫截然不同:这种泡沫可以支撑你的头部和颈部，但也解决了记忆泡沫的大问题:温度和透气性。
 
@@ -30,11 +30,7 @@ HIBR 枕头是 Kickstarter 的一个成功案例 (以前叫做 Fohm 枕头)，�
 
 **HIBR 也是我睡过的最凉爽的枕头之一。它可以变暖，但它绝对散热良好，我从未有过这样的时刻:我把它翻过来，为我的头寻找一个凉爽的地方 ，却发现另一边也是温暖的。虽然 HIBR 声称有“坚定”和“冷静”的一面，但我发现双方之间几乎没有区别，这是一件好事。两者都又结实又凉爽，即使是在我在上面睡了几个小时后的半夜。一旦你有了枕头套，你可能会分不清哪一面是哪一面，这没关系。**
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">**[![Image for article titled The HIBR Pillow Keeps You Cool, May Be the Last Pillow You Ever Buy](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376) [###### 我怎样才能在睡觉的时候保持凉爽？](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376) 
 
-亲爱的 Lifehacker，我们没有空调，而且天气这么热，很容易出去…
-
-[Read more](https://lifehacker.com/how-can-i-stay-cool-while-i-sleep-5824376)**</aside>
 
 **我提到我测试了侧枕，因为——至少在晚上开始的时候——我是个侧睡者。底部切割出的曲线非常适合我的肩膀，让我的枕头中心正好贴着我的头部中间，不会感觉太高或太低。事实上，我并不是家里唯一喜欢它的人——在我开始测试它后不久，HIBR 就搬到了床的另一边，也就是今天的位置。所以我在考虑另一个。**
 

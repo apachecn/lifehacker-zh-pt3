@@ -4,7 +4,7 @@
 
 联系你在国会的代表是在选举间隙让你的声音在政治中被听到的最好方法之一。但是因为他们要处理这么多的问题，要对这么多的法案进行投票，所以很难知道什么时候有重要的事情发生。 [可数](https://www.countable.us/) 给你一张路线图。
 
-Watch
+
 
 Countable 是 iOS[Android](https://play.google.com/store/apps/details?id=com.countable.countableapp&hl=en)的免费 app [，也可以在 web 上使用。您需要创建一个帐户(或使用脸书登录)，根据您的位置和兴趣对其进行个性化设置。](https://itunes.apple.com/us/app/countable-contact-congress/id893853823?mt=8)
 
@@ -47,11 +47,7 @@ Countable 总是对每张账单做一个简短的描述，然后问你是还是�
 
 Countable 非常适合在联邦层面跟踪法案和立法者，但它不包括在 [州或地方层面](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392) 发生的事情。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Use Countable to Keep Track of What Congress Is Working On](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392) [###### 怎样才能让当地政府重视我？](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392) 
 
-亲爱的 Lifehacker，我一直在努力让我的市议会关注我的…
-
-[Read more](https://lifehacker.com/how-can-i-get-my-local-government-to-pay-attention-to-m-5981392)</aside>
 
 为了关注你所在州的立法，你需要更深入地挖掘。[Votespotter](http://votespotter.com/)(web/iOS/Android)可以让你知道你的州代表是如何投票的，但那信息是事后的；它不会让你知道即将到来的账单。
 

@@ -4,7 +4,7 @@
 
 如果有人能开创一种以汉堡为中心的狂热，那就是厨师克里斯·克朗纳、的、[克朗纳汉堡](http://kronnerburger.com)、。他的痴迷是我们的回报，他将多年的实验和专业经验倾注到 [*一个相信*](https://www.amazon.com/Burger-Believe-Recipes-Fundamentals/dp/0399579265?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/burger-genius-chris-kronners-tips-for-making-your-best-1827873396&asc_source=&tag=kinjalifehackerlink-20) 的汉堡中——一个名副其实的专注于汉堡的食谱和技巧的作品。
 
-Watch
+
 
 欢迎来到汉堡周！烧烤季节正如火如荼地进行着，我们正为汉堡而疯狂。无论是挑选完美的肉饼，用融化的奶酪填充肉饼，还是制作不难吃的蔬菜，我们都有你制作最好的汉堡所需的技巧、食谱和建议。
 

@@ -4,7 +4,7 @@
 
 需要一台新电脑吗？*一笔勾销！*在高级法国餐厅吃午餐？*一笔勾销！*人们普遍认为，当谈到可扣除的费用时，你可以 [【一笔勾销】](https://www.youtube.com/watch?v=XEL65gywwHQ) ，这就像是免费获得一样。但这并不完全正确。那么，当你注销一些东西时，你实际上节省了多少呢？我们咨询了一些税务专家的意见。
 
-Watch
+
 
 “这是我最喜欢的经常被误解的税收概念之一，”国际金融理财师和《当代百万富翁[](https://www.amazon.com/Modern-Day-Millionaire-financial-lifestyle/dp/0997301139?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-much-you-actually-save-when-you-write-something-off-1821407733&asc_source=&tag=kinjalifehackerlink-20)*的作者马克·杜兰伯格说。“我认为，宋飞的老笑话对这种误解没有帮助，杰瑞不知道‘一笔勾销’是什么意思，这没什么，因为一些大公司知道，而且‘他们就是一笔勾销的人！’"*
 

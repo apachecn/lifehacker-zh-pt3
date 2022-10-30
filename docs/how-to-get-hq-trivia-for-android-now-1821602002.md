@@ -4,7 +4,7 @@
 
 经过数月的 iOS 独占， [HQ 琐事](https://lifehacker.com/tips-for-winning-money-in-the-hq-trivia-game-app-1820100846) 终于在 1 月 1 日来到 [Android](https://lifehacker.com/you-can-play-this-hq-trivia-knockoff-on-your-android-ph-1821256887) 。但是你不必等那么久就可以在你的 Android 设备上开始玩了。
 
-Watch
+
 
 作为 Android 发布的一部分，总部正在美国提供有限的测试版(这意味着只有少数幸运的人可以在这里尝试)，并在加拿大 提供 [公开测试版。如果你不能一天不玩 HQ 琐事，有一种方法可以欺骗你的手机以为你在加拿大，所以你现在可以下载测试版。](https://www.androidcentral.com/hq-trivia-limited-beta-us-open-beta-ca)
 

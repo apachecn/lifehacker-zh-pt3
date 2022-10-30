@@ -4,7 +4,7 @@
 
 “请帮我找到一个失去的‘最好的朋友’的替代者，”一个名叫 piper2010cameron 的人在网上发帖写道。“我到处都找遍了。”对失踪同伴的描述:一只小小的填充老虎，有橙色和黑色的条纹，一个小三角鼻子和一个毛茸茸的白色肚子。然后出现了这句令人心碎的台词:“我可怜的孩子一直在问为什么‘Itsy Bitsy’还没回家，这让我很难过。”
 
-Watch
+
 
 在互联网最亲切的角落之一住着 [帮助我找到子编辑](https://www.reddit.com/r/HelpMeFind/) 。在那里，redditors 寻求帮助找到一切，从俄罗斯巧克力棒的品牌到在餐巾纸上画漫画的 [艺术家的名字](https://www.reddit.com/r/HelpMeFind/comments/7k8ll1/help_me_find_who_drew_this_comic_please_i/) 到出售这种令人愉快的怪异 [刺猬保险杠贴纸](https://www.reddit.com/r/HelpMeFind/comments/7eanq6/hmf_this_hedgehog_bumper_stickermagnet/) 的地方。海报中很大一部分是父母，尤其是失去了心爱的毛绒玩具或“宝贝”的幼儿的父母。人们请求帮助寻找被遗忘在酒店房间的 [羊驼和](https://www.reddit.com/r/HelpMeFind/comments/83k7s3/help_me_replace_my_daughters_favorite_stuffed/) 圆点印花大手帕的复制品，被遗忘在空手道课上的 [猴子](https://www.reddit.com/r/HelpMeFind/comments/7hgavc/need_help_finding_replacement_stuffed_monkey/) ，以及属于等待移植的孩子的 [鸭子](https://www.reddit.com/r/HelpMeFind/comments/5uqlcp/please_help_me_find_this_stuffed_duck/) 。有时，父母从来没有注意到品牌或标签已经磨损。其他时候，他们在网上购买了一个复制品，却发现这个产品已经不再销售了。在最后的绝望中，他们求助于他们的 redditors 伙伴，他们在互联网上寻找匹配。
 

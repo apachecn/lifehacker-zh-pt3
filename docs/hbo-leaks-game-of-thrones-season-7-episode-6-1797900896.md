@@ -4,7 +4,7 @@
 
 HBO 的国际流媒体服务 HBO Nordic 和 HBO espaa[昨天意外发布了下周一集的*权力的游戏*](http://gizmodo.com/hbo-owns-itself-in-latest-game-of-thrones-leak-1797890701)，现在通过谷歌搜索“权力的游戏第七季第六集”就可以很容易地找到 ep，谷歌甚至会为你自动完成。
 
-Watch
+
 
 泄露的这一集也是热门种子网站海盗湾上第二次搜索到“权力的游戏”。正如哥特主义者 报道的,/ r/FreeFolk subredit 有几个链接指向泄露的剧集。
 

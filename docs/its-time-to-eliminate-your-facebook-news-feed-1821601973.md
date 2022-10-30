@@ -4,7 +4,7 @@
 
 2017 年，假新闻占据了我们的时间线，随之而来的绝望占据了我们的生活。在脸书，我们并不需要更多的东西来打扰我们——毕竟，十年来我们一直在 FOMO 咬牙切齿。随着今年接近尾声，我鼓励你们为即将到来的冲击做好准备。花两秒钟为脸书 安装 [News Feed Eradicator，这是一个 Chrome 扩展，正如它所说的那样，这样做，将保留你剩下的一丝理智。](https://chrome.google.com/webstore/detail/news-feed-eradicator-for/fjcldmjmjhkklehbacihaiopjklihlgg?hl=en) 
 
-Watch
+
 
 当你在安装了 News Feed Eradicator 后登录脸书，你会看到，嗯，什么都没有。
 

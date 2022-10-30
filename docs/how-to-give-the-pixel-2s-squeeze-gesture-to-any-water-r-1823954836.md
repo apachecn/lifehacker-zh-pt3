@@ -4,7 +4,7 @@
 
 [谷歌的 Pixel 2](https://lifehacker.com/how-to-switch-from-the-iphone-to-the-pixel-2-1820769729) 附带了一个相当酷的如果 [有点噱头的功能](https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006) :只需挤压设备就能启动 [谷歌助手](https://lifehacker.com/everything-your-google-home-can-do-is-now-listed-on-one-1821951991) 。现在，一个开发者正在把同样的功能带到你现在的安卓手机上。
 
-Watch
+
 
 [SideSqueeze](https://play.google.com/store/apps/details?id=com.pocketdevelopers.sidesqueeze) 是 Google Play 上的一款免费新应用，可以让你挤压你的设备来执行预设的动作。你可以握紧手机返回主屏幕，或者长按(保持一秒钟)来打开和关闭自动旋转。该应用程序加载了不同的配置，以及如何设置更复杂选项的说明。
 

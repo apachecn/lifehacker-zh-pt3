@@ -4,7 +4,7 @@
 
 本周早些时候，苹果公司宣布了新的 [iPhone 6S 和 6S Plus](http://gizmodo.com/iphone-6S-and-iphone-6-plus-start-at-200-and-300-ava-1729631405) ，今晚就是你下注的时候了。那你到底该怎么办？你应该得到 [加上](http://gizmodo.com/iphone-6S-plus-everything-you-need-to-know-about-apple-1729441889) ？一家运营商比另一家好吗？我们这里有你的购买指南。
 
-Watch
+
 
 ### 首先，一些后勤工作
 

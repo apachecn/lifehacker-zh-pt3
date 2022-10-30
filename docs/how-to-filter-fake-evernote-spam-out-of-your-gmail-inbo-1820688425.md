@@ -4,7 +4,7 @@
 
 [Evernote](https://lifehacker.com/how-to-jump-ship-from-evernote-and-take-your-data-with-1782841075) 有点 [恶意软件](https://lifehacker.com/ccleaner-s-32-bit-app-was-infected-here-s-how-to-fix-it-1818509210) 的问题。在过去的几年里( [始于 2014 年初](https://help.evernote.com/hc/en-us/articles/208314538-Spam-and-malware-email-claiming-to-be-from-Evernote-is-not-from-Evernote) ) [垃圾邮件发送者](https://lifehacker.com/unsubscribing-from-spam-only-makes-it-worse-1796170464) 一直在发送虚假邮件，声称来自笔记整理服务，但包含在你的计算机上安装恶意软件的链接。
 
-Watch
+
 
 以下是你需要知道的，以避免那些虚假的 Evernote 邮件，或者将它们从你的收件箱中彻底过滤掉。
 

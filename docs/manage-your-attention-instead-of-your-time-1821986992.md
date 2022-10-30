@@ -4,7 +4,7 @@
 
 “我太忙了！”“我时间不够！”"要是一天有更多的时间就好了。"奇怪的是，不知所措和忙碌的感觉很少与完成大量工作同时发生。也许问题不在于你没有足够的时间。而是你不够重视。
 
-Watch
+
 
 在 [石英](https://work.qz.com/1175932/learn-to-manage-your-attention-and-managing-time-will-take-care-of-itself/) 结束时，Srinivas Rao 写道*注意力*管理确实是完成事情的关键。如果你管理好你的注意力，你的时间管理将会更容易到位。
 

@@ -4,7 +4,7 @@
 
 长时间伏案工作，无论你是整天使用电脑还是其他工具来完成工作，都会对你的手腕、膝盖和其他关节造成严重伤害。这里有十种方法可以让他们保持健康，减少日常生活中的痛苦和不适。
 
-Watch
+
 
 ### 10.保持水分
 
@@ -54,11 +54,7 @@ Watch
 
 从清理一切开始， [为你理想的工作方式想出一个计划](http://lifehacker.com/plan-an-ergonomic-workstation-302642) 。然后从你的椅子开始，然后是你的键盘和鼠标，还有你的显示器，围绕你桌子上所有你拥有和使用的物品工作，然后 [放置它们，这样你就不会伸长脖子使用它们](https://lifehacker.com/how-to-ergonomically-optimize-your-workspace-30833302) ，笨拙地弯腰打字或阅读，你需要的东西就在手边。如果你需要对你的办公桌进行一些人体工程学的升级，我们也有一些建议。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Ways to Avoid Joint and Wrist Pain at the Office](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-ergonomically-optimize-your-workspace-30833302) [###### 如何从人体工程学角度优化你的工作空间](https://lifehacker.com/how-to-ergonomically-optimize-your-workspace-30833302) 
 
-如果你一天大部分时间都坐在办公桌前，你很可能知道这有多糟糕
-
-[Read more](https://lifehacker.com/how-to-ergonomically-optimize-your-workspace-30833302)</aside>
 
 ### 2.在办公室外保持健康
 

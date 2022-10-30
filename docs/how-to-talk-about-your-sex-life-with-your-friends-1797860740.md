@@ -37,11 +37,7 @@
 
 这是非常私人的事情，我们大多数人都不想让其他人知道。(如果你需要关于如何管理你伴侣的绩效问题的建议，以及其他问题，我稍后会解决。)
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Talk About Your Sex Life With Your Friends](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/eight-s-exercises-to-boost-your-bedroom-strength-1689037807) [###### 增强你卧室力量的八个练习](https://lifehacker.com/eight-s-exercises-to-boost-your-bedroom-strength-1689037807) 
 
-不管我们愿不愿意承认，运动和性有着千丝万缕的联系。我们练习看…
-
-[Read more](https://lifehacker.com/eight-s-exercises-to-boost-your-bedroom-strength-1689037807)</aside>
 
 ### 小心另一个人的性欲
 

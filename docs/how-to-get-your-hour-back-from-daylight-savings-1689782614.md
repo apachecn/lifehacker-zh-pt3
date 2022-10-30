@@ -4,7 +4,7 @@
 
 由于夏令时，我们都迟到了，春天的到来也会扰乱你的睡眠。今年，现在就做好准备，弥补失去的时间。
 
-Watch
+
 
 Business Insider 解释了为什么夏令时的效果在春天更差:
 
@@ -18,17 +18,9 @@ Business Insider 解释了为什么夏令时的效果在春天更差:
 
 如果你的卧室没有得到很多清晨的光线来帮助你醒来， [在你家阳光充足明亮的地方吃早餐，或者早上锻炼](http://www.workingmother.com/content/4-tips-adjusting-daylight-savings-time) 。你也可以通过 [一个舒服的冷水澡](https://lifehacker.com/jumpstart-your-day-with-extreme-temperatures-in-your-mo-1678871320)(br rrrr)更容易醒来。同样，如果可以的话，现在就开始，假装你已经提前一个小时 准备好迎接改变。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Get Your Hour Back from Daylight Saving Time](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/pretend-its-already-an-hour-ahead-to-plan-for-daylight-1689191348) [###### 假装已经提前一个小时计划夏令时](https://lifehacker.com/pretend-its-already-an-hour-ahead-to-plan-for-daylight-1689191348) 
 
-本周日，美国大多数州将会“向前跳”一个小时——并失去一些…
 
-[Read more](https://lifehacker.com/pretend-its-already-an-hour-ahead-to-plan-for-daylight-1689191348)</aside>
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Get Your Hour Back from Daylight Saving Time](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/jumpstart-your-day-with-extreme-temperatures-in-your-mo-1678871320) [###### 在早晨淋浴的极端温度下开始你的一天](https://lifehacker.com/jumpstart-your-day-with-extreme-temperatures-in-your-mo-1678871320) 
-
-早晨很难熬，但合适的淋浴会有所帮助。冷热交替
-
-[Read more](https://lifehacker.com/jumpstart-your-day-with-extreme-temperatures-in-your-mo-1678871320)</aside>
 
 尽管你尽了最大努力，你可能会发现自己在调整期感觉很累。如果你觉得有必要在周末小睡一会儿来弥补失去的睡眠，那么在周六下午小睡一会儿，以防周一昏昏沉沉 。最后，你不能仅仅因为感觉睡眠不足就停止工作，所以 [在这个过渡期找出最佳工作时间](http://lifehacker.com/the-best-time-to-work-when-youre-sleep-deprived-1623490492) 。
 

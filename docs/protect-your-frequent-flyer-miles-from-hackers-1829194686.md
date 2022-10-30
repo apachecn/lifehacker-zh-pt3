@@ -4,7 +4,7 @@
 
 根据比较各种科技产品的网站 [Comparitech](https://www.comparitech.com/blog/information-security/how-much-are-stolen-frequent-flyer-miles-worth-on-the-dark-web/) 的一份新报告，飞行常客里程是黑暗网络上的热门商品。
 
-Watch
+
 
 该公司梳理了黑暗网络上出售赃物和信息的六个市场，发现数十万个积分在“出售”，其中最常见的是达美航空公司和英国航空公司。报告比较技术:
 

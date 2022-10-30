@@ -4,7 +4,7 @@
 
 Windows 10 今年掀起了巨大的波澜，增加了大量新的改进，清理了许多旧功能，我们提到过它是免费的吗？以下是我们在该平台有史以来最大的几年里发布的最好的 Windows 帖子。
 
-Watch
+
 
 ## [现在如何跳过线升级到 Windows 10](http://lifehacker.com/how-to-skip-the-line-and-upgrade-to-windows-10-now-1720854489)
 

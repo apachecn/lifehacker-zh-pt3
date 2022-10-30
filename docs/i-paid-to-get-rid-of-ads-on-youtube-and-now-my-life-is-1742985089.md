@@ -4,7 +4,7 @@
 
 上个月， [谷歌推出了 YouTube Red](http://lifehacker.com/google-introduces-youtube-red-a-subscription-for-ad-fr-1737842088#_ga=1.131020362.431406394.1415821409) ，这是 YouTube 的一个付费层，可以删除广告，还有其他一些很酷的功能。从发布那天起我就一直在使用它，我原以为它会稍微减少一些烦恼，但实际上它改变了我看待和享受互联网的方式。
 
-Watch
+
 
 如果说对 YouTube Red 的反应不一 [会是慷慨的](http://gizmodo.com/youtube-really-wants-you-to-pay-for-youtube-1737829631) 。一方面，它本身就是一项非常棒的服务。YouTube 上没有广告，你可以离线下载任何视频，它包括 [一个播放音乐的订阅](http://lifehacker.com/google-music-all-access-should-it-be-your-new-streamin-506977460) 所以你也可以获得无限的音乐！ [蠢名字暂且不说](https://lifehacker.com/google-sucks-at-naming-stuff-1738016114) ，那还不错。
 

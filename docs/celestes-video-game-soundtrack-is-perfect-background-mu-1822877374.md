@@ -4,7 +4,7 @@
 
 有一种 [的流行理论](https://lifehacker.com/the-best-music-to-work-or-study-to-could-be-video-game-1542298206#_ga=2.191941290.1863304622.1517840759-830867226.1510769673) 认为，当你需要工作或学习时，视频游戏的配乐会成为很棒的 [背景音乐](https://lifehacker.com/deepfocus-mixes-ambient-background-noise-with-music-1791191454#_ga=2.191941290.1863304622.1517840759-830867226.1510769673) 。这个想法是，音乐旨在激励你而不分散你的注意力，但事实并非总是如此。许多视频游戏的配乐可能会过头，令人讨厌，或者只是很糟糕——然后还有 [Celeste](https://kotaku.com/celeste-the-kotaku-review-1822420606) 。
 
-Watch
+
 
 Celeste 是一款新的平台视频游戏(想象一下 2D·马里奥(Mario side-scroller ),但主演是一名红发女子，她在试图攀登加拿大的一座神秘山峰时与抑郁症作斗争)。这是一个美丽的游戏，有着令人惊叹的艺术和令人难以置信的配乐，与其余的体验完美匹配。
 

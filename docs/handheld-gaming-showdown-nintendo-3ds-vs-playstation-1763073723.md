@@ -4,7 +4,7 @@
 
 在过去的四五年里，任天堂 3DS 和索尼 PlayStation Vita 给玩家带来了令人惊叹的游戏，但它们都提供了非常不同的体验。两个系统都已经成熟并经历了很多变化，现在它们可能已经达到了最终形式，是时候比较两者了。
 
-Watch
+
 
 ### **竞争者**
 
@@ -68,11 +68,7 @@ Watch
 
 *Vita 使用[PlayStation Network](https://www.playstationnetwork.com/home/)来实现所有的在线功能，它被设计成 PS3 或 PS4 游戏机的扩展。一旦您创建或链接了您的[PlayStation Network ID](https://www.playstation.com/en-us/my/account/)，您就可以添加朋友并与他们交流，赚取游戏奖杯，加入玩家聚会，并在 [PlayStation 商店](https://store.playstation.com/#!/en-us) 中购物。如果你以每年 49.99 美元的价格订阅了[PlayStation Plus](https://www.playstation.com/en-us/explore/playstation-plus/?gclid=CjwKEAiAgeW2BRDDtKaTne77ghgSJACq2U4bo1Zo0BgyExq_FrRxb1IwtALsaI_XWWkmtVApPuX6PhoCL9Hw_wcB)，你就可以在游戏中加入多人游戏，并且每月可以从 PlayStation Store[下载两款免费游戏](https://lifehacker.com/the-best-perks-of-xbox-live-gold-and-playstation-plus-y-1676052998) 。如果你真的需要的话，Vita 还有一个网络浏览器。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled Handheld Gaming Showdown: Nintendo 3DS vs. PlayStation Vita](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-perks-of-xbox-live-gold-and-playstation-plus-y-1676052998) [###### 你可能不知道 Xbox Live Gold 和 PlayStation Plus 的最佳福利](https://lifehacker.com/the-best-perks-of-xbox-live-gold-and-playstation-plus-y-1676052998) 
 
-无论你有 Xbox One 还是 PlayStation 4，如果你想和朋友一起玩在线游戏，你会…
-
-[Read more](https://lifehacker.com/the-best-perks-of-xbox-live-gold-and-playstation-plus-y-1676052998)*</aside>
 
 *Vita 相当于 StreetPass，Near， [去年被索尼](http://www.polygon.com/2015/1/28/7927561/ps-vita-near-mapps-youtube-apps) 砍掉，但这款掌上电脑仍然有一些漂亮的连接功能。Vita 可用于通过像样的 Wi-Fi 连接或家庭网络在 PS3 或 PS4 主机上远程玩游戏。这是一个很好的功能，当你家里的其他人想用电视，或者你只是想在你的马桶上玩命运游戏。*
 

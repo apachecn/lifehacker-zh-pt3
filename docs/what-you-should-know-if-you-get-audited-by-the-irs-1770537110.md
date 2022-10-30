@@ -4,7 +4,7 @@
 
 很有可能，你不会被审计。除非你的收入*真的*、、[高，否则你被选中参加审计](https://lifehacker.com/your-chances-of-getting-audited-by-the-irs-this-year-1769133597)、的几率不到 1%。但是，如果真的发生了，你要做好准备。从组织你的信息到了解你的权利，这里有一个从国税局审计中幸存下来的指南。
 
-Watch
+
 
 ### 审计的三种基本类型
 
@@ -65,11 +65,7 @@ Watch
 
 如果你在处理一个复杂的现场审计，很有可能，你想找一个 [优秀的税务专业人士](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Survive Being Audited by the IRS](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487) [###### 我如何找到一个好的税务专业人士？](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487) 
 
-亲爱的生活黑客，在考虑了我是否应该准备自己的税之后，我决定
-
-[Read more](https://lifehacker.com/how-do-i-find-a-good-tax-professional-5881487)</aside>
 
 CBS 新闻 [解释你的选项](http://www.cbsnews.com/news/what-to-do-when-irs-auditors-want-to-talk/) :
 

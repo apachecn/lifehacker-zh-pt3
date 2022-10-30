@@ -4,7 +4,7 @@
 
 我喜欢问 Alexa 我的下一次会议是什么时候，或者我一天的日程安排是什么。到目前为止，只有一个问题:我的男朋友不能使用相同的功能，因为亚马逊要求你使用相同的日历和电子邮件帐户。如果你有一个简单的家庭日历，那很好，但是当你是一个有两个忙碌的人的家庭时，它就不起作用了。
 
-Watch
+
 
 现在亚马逊已经 [(终于)增加了对同一住户多人](https://www.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-set-up-multiple-voice-profiles-on-your-amazon-ec-1819474600&asc_source=&nodeId=201628040&tag=kinjalifehackerlink-20) 的支持。设置它只需要几分钟，它使 Alexa 对你家的每个人都更有用，而不仅仅是一个人。
 

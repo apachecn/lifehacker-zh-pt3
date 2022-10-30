@@ -4,7 +4,7 @@
 
 你知道如何处理你的钱:你有一个预算，一个储蓄计划，你正在还债。但是现在呢？这是很多有良好理财意识的人不再酗酒的时候。如果你的财务目标达到了一个平台期，保持正轨和动力是很重要的。以下是方法。
 
-Watch
+
 
 ### 为什么这是个问题
 
@@ -38,11 +38,7 @@ Watch
 
 在你的平台期，很自然会遇到一个迷你存在危机，也被称为 [“我为什么要这样做？”](https://lifehacker.com/the-biggest-pitfalls-of-long-term-goals-and-how-to-bea-1610874090)阶段。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What to Do When You’ve Hit a Plateau With Your Money Goals](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-biggest-pitfalls-of-long-term-goals-and-how-to-bea-1610874090) [###### 长期目标的最大陷阱(以及如何超越它们)](https://lifehacker.com/the-biggest-pitfalls-of-long-term-goals-and-how-to-bea-1610874090) 
 
-如果你下定决心，你可以实现大多数短期目标，比如在几年内减肥…
-
-[Read more](https://lifehacker.com/the-biggest-pitfalls-of-long-term-goals-and-how-to-bea-1610874090)</aside>
 
 财务安全的新鲜感又一次消失了，你变得焦躁不安，你开始怀疑管理你的钱到底有什么意义。要摆脱这种心态，关注你自己的动力而不是目标本身的结果。下面是性能分析师 Avidium 所说的:
 

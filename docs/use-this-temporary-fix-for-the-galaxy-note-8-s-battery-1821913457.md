@@ -4,7 +4,7 @@
 
 12 月下旬， [Galaxy Note 8](https://lifehacker.com/how-to-install-the-android-8-0-oreo-beta-on-your-galaxy-1821265769) 车主开始报告 [手机电池](https://lifehacker.com/top-10-ways-to-improve-the-battery-life-on-your-phone-a-1725843518) 出现离奇问题。如果电量下降得太低，它就无法充电，一旦电池耗尽，就根本无法使用设备。
 
-Watch
+
 
 几天后，三星 [证实了](http://bgr.com/2018/01/01/galaxy-note-8-battery-drain-issue/) 的漏洞，声称它只影响一小部分设备。尽管如此，自 2017 年 8 月推出以来，该公司已经售出数百万部 Note 8s，该问题似乎也困扰着一些 [Galaxy S8 和 S8 Plus 设备](https://www.xda-developers.com/samsung-galaxy-note-8-deep-discharge-protection/) 。因此，即使很小的比例也可能意味着成千上万的人处于危险之中。
 

@@ -4,7 +4,7 @@
 
 布兰登今年 31 岁，一直后悔没有学会如何驾驶手动变速器。他想买一个便宜、有趣、有三个踏板的搅拌器来学习我们很多人都非常珍惜的技能。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/a/jalopnik.com/forms/d/1GWJ6HKuZLPR1Hhz9C8HdiVtpgPXyI48TR87z_2UuE-Y/edit) *)*
 

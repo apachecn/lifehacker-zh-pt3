@@ -4,7 +4,7 @@
 
 求职？你可能已经听过很多次这样的建议，让你的简历适合这个职位。但是，你可能不知道如何将它付诸行动。量身定制简历实际上包括哪些内容？你需要做多少改变？你应该关注什么内容？
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/what-it-really-means-to-tailor-your-resume) *。*
 
@@ -16,11 +16,7 @@ Watch
 
 这总是第一步——毕竟，如果你真的不知道这份工作需要什么，你就不能为一个职位量身定做简历。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What It Really Means To &quot;Tailor Your Resume&quot;](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-the-people-reading-your-resume-wish-you-knew-1680315298) [###### 阅读你简历的人希望你知道什么](https://lifehacker.com/what-the-people-reading-your-resume-wish-you-knew-1680315298) 
 
-简历是非常私人的文件，你可能觉得你想传达一种感觉
-
-[Read more](https://lifehacker.com/what-the-people-reading-your-resume-wish-you-knew-1680315298)</aside>
 
 ### **2。让你的第一点直接相关**
 
@@ -28,11 +24,7 @@ Watch
 
 是的，即使它不是最近的。没有规定说你的第一部分必须是“工作经验”量身定制你的简历意味着找到最相关的内容，为其创建一个部分，并在其中填入能吸引招聘经理眼球的经验或资历。如果这意味着倪星的“工作经验”，创建一个“市场营销和社交媒体经验”部分，然后把其他一切都放在“额外经验”部分，那就这样吧。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What It Really Means To &quot;Tailor Your Resume&quot;](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-make-sure-my-resume-gets-past-resume-robots-a-5866630) [###### 我怎样才能确保我的简历通过简历机器人，到达一个人的手中？](https://lifehacker.com/how-can-i-make-sure-my-resume-gets-past-resume-robots-a-5866630) 
 
-亲爱的生活黑客，我听说很多公司用软件从“坏”中剔除“好”的…
-
-[Read more](https://lifehacker.com/how-can-i-make-sure-my-resume-gets-past-resume-robots-a-5866630)</aside>
 
 ### **3。甚至为不太相关的经历修改你的项目符号**
 

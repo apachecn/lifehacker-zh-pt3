@@ -4,7 +4,7 @@
 
 测试日快乐！苹果终于向非开发者群体发布了 iOS 12——假设你没有用诡计让你的非付费用户 [在几周前注册了测试版](https://lifehacker.com/how-to-get-apples-mac-iphone-watch-and-tv-betas-witho-1826578952#_ga=2.119799819.2007615953.1529957659-524386510.1512754476) 。
 
-Watch
+
 
 如果你准备测试苹果最新最棒的 iOS 版本，假设该公司已经解决了一些可能会扰乱你最喜欢的应用程序 的问题 [，那么拿到 iOS 12 就很容易了。再次提醒，虽然 iOS 12 相当稳定(至少以我过去几周的经验来看)，但它可能会让你整天对你喜欢或依赖的应用感到悲伤。YMMV，正如他们所说。](https://www.reddit.com/r/iOSBeta/comments/8otrzv/discussion_list_of_apps_that_dont_work_on_ios_12/)
 

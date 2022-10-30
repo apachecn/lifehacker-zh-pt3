@@ -4,7 +4,7 @@
 
 除非我绝对有必要(阅读: [我带着酒乘飞机](https://lifehacker.com/how-to-successfully-pack-beer-and-wine-in-your-suitcase-1820165411) )，我总是尽我所能在旅行时不必托运行李。除了与移交行李相关的费用，在我看来，整个经历中最糟糕的部分是在长途飞行后不得不等待你的行李箱绕过传送带。那次等待对我来说通常充满了后悔，后悔当初买了那瓶威士忌，把回家的旅程推迟了 20 分钟。
 
-Watch
+
 
 如果你和我一样讨厌等着拿包，*旅行+休闲* [最近提供了一些建议](http://www.travelandleisure.com/airlines-airports/tips-for-getting-luggage-first) 如何确保你的包是第一批下飞机的。关键是要确保你的包是最后装上的。这样，当他们上传飞机的时候，你的将是第一批起飞的。
 

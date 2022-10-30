@@ -8,7 +8,7 @@
 
 为了给你的镜头增添趣味，电影制作人和 YouTube[Kellan Reck](https://www.youtube.com/user/MrVaritech/featured)在上面的视频 中有五个小技巧 [，你应该考虑什么时候编辑你在罐子里的东西。请记住，所有这些技巧都需要专业的视频编辑软件，如 Adobe Premiere Pro，这是当前的行业标准。](https://www.youtube.com/watch?v=nRloQzX5SWE)
 
-Watch
+
 
 1.  **为稳定的三脚架拍摄添加运动**:您可以设置位置和比例的动画。例如，您可以从初始帧放大到最终帧的大约 105%,缩放时缩放比例会稍微提高一点。你不需要太多！Reck 建议你不要对较长的剪辑放大超过 5%,对较短的剪辑放大不要超过 2-3%。
 

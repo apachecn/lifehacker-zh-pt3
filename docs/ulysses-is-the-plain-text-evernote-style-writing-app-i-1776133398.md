@@ -4,7 +4,7 @@
 
 长期以来，我一直是从笔记到一般写作的所有内容 的纯文本粉丝，但直到最近，我才找到了我的圣杯:一个可以与多种设备同步并处理多种输出类型的应用程序。T5【尤里西斯】T6。这是我一直想要的 Evernote 的纯文本版本。
 
-Watch
+
 
 我想先提一下尤利西斯的几个问题:首先，它只适用于苹果设备(Mac/iOS)。第二，它很贵: [Mac 应用](https://itunes.apple.com/us/app/ulysses/id623795237?mt=12&ign-mpt=uo%3D4)44.99 美元(尽管你可以免费试用一个 [试用版](http://www.ulyssesapp.com/) )，而 [iPhone/iPad 应用](https://itunes.apple.com/us/app/ulysses-mobile/id950335311?mt=8&ign-mpt=uo%3D4)24.99 美元。iOS 和 Mac 应用程序具有相同的功能集，因此您可以在两者之间轻松切换。
 

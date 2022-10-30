@@ -4,7 +4,7 @@
 
 当你的工作不提供 401(k)时，你如何为退休储蓄？这就是我们本周讨论的内容。
 
-Watch
+
 
 每周一，我们会通过向一些理财专家寻求建议来解决你的一个紧迫的个人理财问题。**如果你有一个一般性的问题或金钱问题，或者只是想谈谈 PeFi 相关的事情，请在评论中留下，或者发电子邮件给我，地址是 alicia.adamczyk@lifehacker.com。**T3】
 
@@ -40,11 +40,7 @@ Watch
 
 如果你有一个高免赔额的健康计划，你也可以考虑投入更多。你将降低你的应税收入，并且你可以将该账户带入退休，以帮助抵消医疗费用(你将不得不增加开放登记的选择)。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Save for Retirement in Your 20s Without a 401(k)](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805) [###### 什么是健康储蓄账户，我应该使用它吗？](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805) 
 
-亲爱的生活黑客，人力资源部的人告诉我，我必须在结束前决定我的健康福利
-
-[Read more](https://lifehacker.com/what-is-a-health-savings-account-and-should-i-use-one-5860805)</aside>
 
 最后一个选择是把你存的一些钱存到 CD 里。这些产品很无聊，但它们的价格正在上涨，这让它们变得更有吸引力。它们比股票更安全，但需要留出一定数量的月数或年数。因此，举例来说，如果你选择了一张五年期的定期存单，但两年后你需要这笔钱，你就会受到一笔费用的影响。尽管如此，你还是能保证一定的回报，这对一些投资者来说很有吸引力。
 

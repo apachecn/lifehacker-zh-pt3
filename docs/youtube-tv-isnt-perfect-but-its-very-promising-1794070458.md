@@ -4,7 +4,7 @@
 
 尽管我尽了最大努力，但我就是无法剪断脐带。五年多来，我一直试图戒掉有线电视——我每月为此支付 140 美元——转而使用纯流媒体解决方案。我不能只靠 Hulu 和网飞生活。 [YouTube TV](http://tv.youtube.com) 是我的救星吗？
 
-Watch
+
 
 我知道我荒谬的有线电视套餐让我在我不看的频道上花了很多额外的钱，但迄今为止，Sling TV、DirecTV Now 和 PlayStation Vue 等公司的流媒体电视捆绑包都有重大缺陷。理论上，Sling TV 很棒——每月只需 20 美元就能访问当地频道、ESPN 和其他大型电视网——但在推出两年后，它在播放热门节目时仍然存在缓冲问题。DirecTV 现在有最好的频道选择，但我们对应用程序的早期测试显示了一种 [的错误体验](http://gizmodo.com/directv-now-is-a-just-another-failed-attempt-at-streami-1789614922#_ga=1.76160151.383524383.1473015208) ，使其如此有吸引力的介绍性定价现在已经消失了。 [PlayStation Vue](http://gizmodo.com/playstation-vue-review-online-tv-is-great-but-its-sti-1693819089) 相当不错，但我没有 PlayStation，PlayStation Vue 应用程序可能需要一些爱。
 

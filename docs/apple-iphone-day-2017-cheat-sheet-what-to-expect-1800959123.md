@@ -4,7 +4,7 @@
 
 苹果的 iPhone 发布会很快就要开始了，我们期待蒂姆·库克和他的公司发布的不仅仅是一些新手机。这里有一个快速入门。
 
-Watch
+
 
 该活动将于美国东部时间 9 月 12 日(星期二)下午 1 点/太平洋时间上午 10 点在全新的史蒂夫·乔布斯剧院拉开帷幕。 [你可以在苹果的网站上现场观看](https://www.apple.com/apple-events/september-2017/) ，和往常一样， [我们会在活动开始前一个小时左右疯狂地直播](http://gizmodo.com/our-apple-iphone-x-event-liveblog-is-right-here-1803757549) 。
 

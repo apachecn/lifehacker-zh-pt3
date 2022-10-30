@@ -8,7 +8,7 @@
 
 然而，这并不仅仅发生在 TBS 上。 [《洛杉机时报》](http://www.latimes.com/entertainment/envelope/cotown/la-et-ct-nielsen-advertising-study-20140510-story.html) 报道称，其他有线电视网，如电视之地，也这么做了，尤其是像*我爱露西*和*老友记*这样的老节目。正因为如此，更多的电视时间被商业广告占据:尼尔森电视评级公司 [发现，2014 年广播网络每小时播出 15.8 分钟的商业广告](https://www.wsj.com/articles/cable-tv-shows-are-sped-up-to-squeeze-in-more-ads-1424301320?mod=WSJ_hpp_MIDDLENexttoWhatsNewsThird) ，而 2009 年为 14.5 分钟。
 
-Watch
+
 
 这背后的一个驱动力是电视收视率的下降，这降低了单个广告时段的成本。为了弥补损失的收入，电视公司正在播放更多的广告。为了应对越来越多的商业广告，电视节目变得越来越短——与平均 30 分钟的*的[](http://www.imdb.com/title/tt0898266/)相比，《我爱露西》的*剧集变得更短。电视上的老节目经常被剪辑或稍微加速，以便为商业广告留出更多空间。有线电视网也缩短了电视节目的片头字幕，以增加广告时间。**
 

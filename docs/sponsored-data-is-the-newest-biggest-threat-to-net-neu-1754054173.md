@@ -4,7 +4,7 @@
 
 昨天，威瑞森公布了其 [新赞助的数据节目](http://lifehacker.com/remains-of-the-day-facebook-adds-tor-support-to-androi-1753872247) 。这些话很无聊，但它们只是运营商和互联网服务提供商破坏网络中立的核心原则的最新趋势。这是它的含义以及它对你的影响。
 
-Watch
+
 
 ### **什么是赞助数据？**
 

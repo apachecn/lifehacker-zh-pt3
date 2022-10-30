@@ -4,7 +4,7 @@
 
 自然界中有许多激烈的危险，但也许最可怕的是一个火热的、沉默的杀手。 [据美国疾控中心](https://www.youtube.com/watch?v=_zBZrPfqQYA) 统计，美国高温致死人数比 [飓风](https://lifehacker.com/how-to-stay-safe-during-a-hurricane-1798391969)[闪电](https://gizmodo.com/what-happens-when-you-get-struck-by-lightning-5936361)[龙卷风](https://lifehacker.com/how-to-stay-safe-during-a-tornado-1825832242)[地震](https://lifehacker.com/where-to-hide-during-an-earthquake-1819650001)[洪水](https://lifehacker.com/how-to-survive-a-flash-flood-1795101394) 加起来还多。当你要整天待在户外时，以下是如何在热浪中生存下来的方法。
 
-Watch
+
 
 *现在是* [*热周*](https://lifehacker.com/c/heat-week) *，我们火了！炎热和潮湿已经冲昏了我们的头脑，我们所能想到的就是进入一个游泳池，并在那里呆到九月。但因为我们有工作要做，该死的，这里有你一直渴望的夏季内容:从最好的冰冷鸡尾酒到如何在夏天的太阳下保持炎热，我们让你(出汗)回来了。*
 

@@ -4,7 +4,7 @@
 
 关于父母将孩子遗忘在车里的新闻故事在炎热的夏天最为集中，但在寒冷的冬天 [孩子也会死于停在车里的低温症](https://www.romper.com/p/how-many-children-die-in-cars-in-winter-compared-to-summer-its-a-year-round-concern-22985) 。所以我要说的是，我们需要全年思考这个可怕的话题。
 
-Watch
+
 
 父母正在采取各种预防措施来帮助他们永远不要犯这样的错误。一些 [在开车的时候把手机和钱包放在婴儿](https://www.reddit.com/r/Parenting/comments/7g56pb/parenting_lpt_if_youre_driving_with_an_infant_in/) 旁边。其他人的汽车座椅装有传感器，当发动机关闭且小孩仍系着安全带时， [会播放一首曲子](https://www.walmart.com/ip/Evenflo-Advanced-Embrace-DLX-Infant-Car-Seat-w-SensorSafe-Choose-Your-Pattern/45074205#read-more) 。
 

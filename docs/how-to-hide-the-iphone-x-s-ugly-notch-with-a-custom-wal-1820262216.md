@@ -4,7 +4,7 @@
 
 如果不是因为那个缺口， [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 的设计可能会很完美。苹果新的[【Face ID】](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)要工作，屏幕顶部的一点边框可能是必要的，但这并不意味着我们不讨厌它的外观。
 
-Watch
+
 
 如果你希望 iPhone X 顶部有一个普通的黑条，而不是一个尴尬的缺口，有一个简单的解决方案:只需定制一个旨在隐藏剩余边框的壁纸。这些壁纸的工作原理是在凹槽的两侧添加一个虚拟的黑色边框，这样你甚至不会注意到它。
 

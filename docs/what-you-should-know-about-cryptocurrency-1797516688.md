@@ -4,7 +4,7 @@
 
 加密货币正在经历一个时刻。你可能对比特币和以太坊 略知一二。也就是说，它们的价格似乎在暴涨( [或暴跌，取决于当天](https://www.cnbc.com/2017/05/23/bitcoin-plummets-200-in-4-hours-then-recovers-in-wild-trading.html) )。这个故事还有更多，正如投资界的一句老话所说:不要买你不知道的东西。所以让我们了解更多。
 
-Watch
+
 
 ### 什么是加密货币？
 

@@ -4,7 +4,7 @@
 
 AccuWeather 最近被发现正在收集其 iOS 应用用户的位置数据，无论他们是否选择分享这些数据。天气应用程序已经删除了违规软件，但如果你想阻止它收集更多数据，你需要更新该应用程序。
 
-Watch
+
 
 [安全研究员威尔·斯特拉法奇](https://medium.com/@chronic_9612/advisory-accuweather-ios-app-sends-location-information-to-data-monetization-firm-83327c6a4870) 发现该应用程序正在收集有关用户 Wi-Fi 网络和蓝牙状态的数据，即使用户选择不共享位置数据。AccuWeather 昨日发表声明，否认有意收集用户数据，并声称在营销活动中使用位置数据的 Reveal Mobile 公司的代码应对意外数据收集负责。
 

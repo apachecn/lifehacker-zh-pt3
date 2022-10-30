@@ -6,7 +6,7 @@
 
 你可能经常看到这样的场景:有人独自坐在寒冷的户外，举着一个牌子，上面潦草地写着求助。好吧，即使你不再携带现金，或者有时间跑到附近的商店，你仍然可以通过这个聪明的善举来帮助他们。
 
-Watch
+
 
 [Amazon Prime Now](https://primenow.amazon.com/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/use-amazon-prime-now-to-help-those-in-need-1821332895&asc_source=&tag=kinjalifehackerlink-20) 让某些地区的 Amazon Prime 订户在两小时内订购并收到商品。我曾经用该服务订购了一个键盘，45 分钟就拿到了。快速得到你需要的东西是非常不可思议的，但是 YouTuberT5】Rob BlissT7】想出了一个更加无私的方法来使用它。布利斯不再为自己买东西，而是开始为他在街上遇到的无家可归的人订购东西。它快速、简单，而且它实际上为人们提供了他们需要继续保持的东西。你可以在上面的视频中看到这一切是如何进行的。
 

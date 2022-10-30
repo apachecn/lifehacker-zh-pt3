@@ -4,7 +4,7 @@
 
 去年的 [Galaxy Note 8](https://gizmodo.com/samsung-galaxy-note-8-review-bigger-badder-but-i-sti-1799759566) 是一款完全实心的手机，但它并不令人兴奋。屏幕大小与 Galaxy S8+或T5 S9+相同，电池实际上更小，这让三星感觉很安全。
 
-Watch
+
 
 但在新的 Galaxy Note 9 上，三星似乎又回到了其旧的组件填充方式，尽管看起来与去年的手机基本相同，但 Note 9 的内部却增加了很多肌肉，这正是我在三星的高端大尺寸手机中寻找的东西。
 

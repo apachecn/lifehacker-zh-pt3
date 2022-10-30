@@ -4,7 +4,7 @@
 
 虽然 Steam 以折扣价大肆宣传，但你实际上不必花任何钱就能享受这项服务提供的一些最好的游戏。多年来，Steam 积累了许多免费游戏，我在这里告诉你应该看看哪些游戏。
 
-Watch
+
 
 这些建议中的一些是显而易见的，因为 Steam 的一些大型游戏是免费的——所以我为什么不推荐它们呢？但是，我也想告诉你一些你可能没有听说过的另类免费游戏，尤其是那些尝试新事物的游戏。考虑到这一点，这里是我们最好的免费 Steam 游戏，每个人都应该试试。
 
@@ -14,11 +14,7 @@ Watch
 
 如果你正在寻找一个真正让你沉迷的游戏，那么 *Dota 2* 可能是你最好的选择:我花了 [几十个](https://kotaku.com/my-first-63-hours-with-dota-2-1599236453) 的 [个小时](http://kotaku.com/93-hours-in-im-still-not-sure-if-dota-2-is-fun-1611226542) 试图掌握 Valve 的 MOBA，但仅仅是皮毛。虽然你的目标很简单——带领你的小兵和团队到敌人的基地，这样你就可以摧毁一个被称为古人的大型建筑——但 *Dota 2* 提供的深度和强度令人震惊。如果你能在压力下保持冷静，这对于有竞争倾向的人来说是一项伟大的运动。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--kotaku" data-commerce-source="inset">[![Image for article titled 11 Free Steam Games Worth Playing](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://kotaku.com/my-first-63-hours-with-dota-2-1599236453) [###### 我和 *Dota 2* 的前 63 个小时](https://kotaku.com/my-first-63-hours-with-dota-2-1599236453) 
 
-过去两周我一直在做一件事:努力学习 Dota 2。
-
-[Read more](https://kotaku.com/my-first-63-hours-with-dota-2-1599236453)</aside>
 
 ### [Doki Doki 文学俱乐部](http://store.steampowered.com/app/698780/Doki_Doki_Literature_Club/)
 

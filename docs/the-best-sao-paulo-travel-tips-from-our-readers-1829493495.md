@@ -4,7 +4,7 @@
 
 你最喜欢 Ary Barroso 歌曲《巴西》的哪个版本？我有 [十二](https://open.spotify.com/user/toomuchnick/playlist/7yqN9j8fVEPMX0ZaLFp1SH?si=AJa4bCCxROmS-_-QvZ6Q0g) 。让我们一起来听听这些，看看本周读者评论中的 [圣保罗最佳旅游贴士](https://lifehacker.com/tell-us-your-sao-paulo-travel-tips-1829394933) 。
 
-Watch
+
 
 每周一的[*Hack Your City*](https://lifehacker.com/c/hack-your-city)*，我们向读者征集你对一个城市的最佳建议:驾驶技巧、餐馆推荐、要做的事情，以及其他给游客和当地人的建议。然后在周四，我们会展示最好的评论。我们正在美国和全球范围内努力工作。*
 

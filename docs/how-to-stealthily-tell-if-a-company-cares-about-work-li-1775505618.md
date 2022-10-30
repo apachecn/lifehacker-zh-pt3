@@ -4,7 +4,7 @@
 
 当你关心自己的职业发展时，偶尔工作到很晚，周六去办公室，超出你的工作描述是正常的。然而，这并不能否定另一个事实:你应该为这样一家公司工作，这家公司重视你的个人生活，理解灵活性的的重要性，而且最重要的是，相信花时间和家人在一起很重要。
 
-Watch
+
 
 *本帖原载于* [*缪斯*](https://www.themuse.com/advice/how-to-stealthily-figure-out-if-a-company-really-does-believe-in-worklife-balance?utm_medium=email&utm_campaign=botw_20160508&utm_source=blueshift&utm_term=bsft_&utm_content=botw_sunday&bsft_eid=db6bf61a-ddee-48dc-8c89-b11842581ecd&bsft_uid=5c093be4-8b33-4d45-bec7-24997c3aae82) *。*
 
@@ -56,11 +56,7 @@ Watch
 
 有很多网站提供关于公司及其工作生活平衡政策(官方或非官方)的有用信息。Maybrooks 正在建立一个综合的数据库，包含各种公司的探亲假政策，这些政策是从在这些公司工作的女性那里收集来的。 [Glassdoor](https://www.glassdoor.com/index.htm) 汇集了许多公司的员工在各种类别(如工作平衡)上的得分，以及他们在特定职位上工作经历的回顾。为女性写的股份公司评论，由女性撰写。只有一点需要注意，当你浏览用户提交的评论时，没有办法知道它们有多准确或真实，所以要有所保留地阅读它们。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Stealthily Tell If a Company Cares About Work-Life Balance](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-master-work-life-integration-and-find-harmony-in-1676665786) [###### 如何掌握工作与生活的融合，并在你的时间表中找到和谐](https://lifehacker.com/how-to-master-work-life-integration-and-find-harmony-in-1676665786) 
 
-据报道，美国成年人平均每周工作 47 小时，所以发现…
-
-[Read more](https://lifehacker.com/how-to-master-work-life-integration-and-find-harmony-in-1676665786)</aside>
 
 ### **5。问间接问题**
 

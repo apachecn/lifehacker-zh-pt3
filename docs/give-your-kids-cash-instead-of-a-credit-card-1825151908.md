@@ -4,7 +4,7 @@
 
 有很多关于给孩子信用卡的建议。找一个利率低的。不要连署信用卡，因为你可能会毁掉自己的信用。 让他们非常清楚，是的，这是真金白银，是的，他们必须按时足额偿还。
 
-Watch
+
 
 新书《让你的孩子成为金钱天才》(即使你不是)[](https://www.amazon.com/Make-Your-Money-Genius-Youre-ebook/dp/B01HMXUZTI?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/give-your-kids-cash-instead-of-a-credit-card-1825151908&asc_source=&tag=kinjalifehackerlink-20)**的作者贝丝·科布林纳(Beth Kobliner)在这个话题上有一些不同的智慧。她给父母的建议是:不要这样做。不要给他们卡片。在接受 PBS 新闻小时 采访时，她指出，对孩子来说，最好坚持用现金:**
 

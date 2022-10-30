@@ -4,17 +4,13 @@
 
 如果有一种方法可以降低你价格高得离谱的学生贷款的成本呢？这就是再融资的承诺:理想情况下，你可以在贷款期限内节省数千美元的利息。但这不一定是故事的全部。以下是你在再融资前应该考虑的一切。
 
-Watch
+
 
 你可能听说过再融资这个术语。这是将你目前的贷款转换成新贷款的过程，有一套全新的条款、利率和细则。有抵押贷款再融资，汽车贷款再融资，是的，学生贷款再融资。一家私人贷款机构接管了你的学生贷款，你获得了一笔全新的贷款。
 
 NerdWallet 分析了一些数字 并计算出普通学生贷款借款人通过再融资可以节省大约 1145 美元。你自己的储蓄将取决于许多因素:你欠了多少，贷款期限，以及新旧利率之间的差异。如果你知道 [任何关于复利](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906) 的东西，你就知道利息加起来很快。新的利率可能会带来很大的不同。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The Complete Guide to Refinancing Your Student Loans](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906) [###### 被误解的金钱数学:为什么利息比你想象的更重要](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906) 
 
-兴趣很可能是普通人必须使用的最复杂的数学工具…
-
-[Read more](https://lifehacker.com/misunderstood-money-math-why-interest-matters-more-tha-1635258906)</aside>
 
 你可以为私人或联邦贷款再融资，但重要的是要知道当你这么做的时候你放弃了什么。
 

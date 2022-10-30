@@ -4,7 +4,7 @@
 
 两项新的研究发现，喝咖啡的人寿命更长。这些都是很好的研究，规模大，做得好——但这并不意味着咖啡是长生不老药。
 
-Watch
+
 
 **头条** : [研究称，多喝咖啡可以延长寿命](http://www.cnn.com/2017/07/10/health/coffee-leads-to-longer-life-studies-reaffirm/index.html) (CNN)
 

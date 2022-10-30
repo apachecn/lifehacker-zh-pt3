@@ -4,7 +4,7 @@
 
 丢了钱包就像丢了你的一部分。所有的东西都在里面——你的驾照、信用卡、会员证和你爱人的照片。这个聪明的技巧可以帮助你在下次外出时永远避免丢失钱包。
 
-Watch
+
 
 你知道金属探测器爱好者俱乐部是个东西吗？他们当然是！据 Reddit 用户称，他们中的许多人时不时会寻找新的搜索项目，包括 [帮助那些可能丢失了珠宝或其他金属物品的人](https://old.reddit.com/r/lifehacks/comments/8mwhb6/always_keep_some_metal_coins_in_your_wallet_when/) :
 

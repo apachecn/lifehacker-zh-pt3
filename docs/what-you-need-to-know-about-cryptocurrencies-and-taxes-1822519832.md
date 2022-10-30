@@ -4,7 +4,7 @@
 
 如果你在 2017 年拥有任何一种 [比特币](https://lifehacker.com/how-to-buy-bitcoin-with-a-credit-card-and-why-you-proba-1822457092) (或任何一种 [其他流行的加密货币](https://lifehacker.com/preview/beyond-bitcoin-your-guide-to-the-other-major-cryptocur-1821656104?rev=1514581574792#_ga=2.119160141.5515566.1517238763-258269408.1513265580) )，你可能会赚很多钱。现在，随着 [税收季即将来临](https://twocents.lifehacker.com/tell-us-how-you-do-your-taxes-1822412578#_ga=2.119160141.5515566.1517238763-258269408.1513265580) ，你可能会想知道所有这些数字货币会如何影响你的税收。
 
-Watch
+
 
 [The Verge](https://www.theverge.com/2018/1/29/16928768/cryptocurrency-bitcoin-how-to-file-taxes-2018-return-compliance-irs) 有一个关于如何处理比特币 2017 年税收的详细指南。下面是这篇文章中的一些要点，可以帮助你完成这个过程。
 

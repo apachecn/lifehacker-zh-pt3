@@ -4,7 +4,7 @@
 
 本月早些时候，谷歌为非像素 Android 设备提供了谷歌镜头，本周它终于开始将这一功能推广到 iOS 设备，如你的 iPhone 和 iPad。
 
-Watch
+
 
 Google Lens 是 Google Photos 内置的按需照片识别工具，可以提供关于您正在拍摄的照片的附加信息。
 

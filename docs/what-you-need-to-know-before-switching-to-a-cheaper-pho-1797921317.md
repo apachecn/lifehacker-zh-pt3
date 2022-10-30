@@ -4,7 +4,7 @@
 
 本月， [我们向你们](https://lifehacker.com/august-s-money-challenge-find-a-cheaper-phone-plan-1797416233) 发出挑战，要求你们削减许多人支付过多的费用:手机服务。不过，在你做出改变之前，除了成本，还有一些因素需要考虑。
 
-Watch
+
 
 尽管折扣电话运营商和计划可以免费提供相同的基本服务，但在某些情况下，还是有限制的，这些限制可能对你来说不值得。例如，许多打折的运营商，如 Ting 和 Republic Wireless，都使用 Sprint 和 T-Mobile 的网络。
 

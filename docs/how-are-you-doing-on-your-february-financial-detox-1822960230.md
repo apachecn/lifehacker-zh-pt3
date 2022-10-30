@@ -4,7 +4,7 @@
 
 月初，我们鼓励你尝试一个为期一个月的财务排毒，从你购买的看似很小的东西开始，累积起来。
 
-Watch
+
 
 事实证明，你们很多人都有想要改进的消费习惯。对于 [万帕龙【](https://twocents.lifehacker.com/1822666259)】T3 来说，它需要一个 Lyft 来工作； [lisagirllost](https://twocents.lifehacker.com/1822659439) 正在减少去美甲沙龙的次数和工作时的饮食(这是一个很受欢迎的做法)；当她和她的曲棍球队外出时，超级女孩 KP 试图减少超支。 [DarthSarah](https://twocents.lifehacker.com/1822660873) 则更进一步，以长达一年的排毒为目标，灵感来自《少之年[](https://caitflanders.com/the-year-of-less/)**》一书。**
 

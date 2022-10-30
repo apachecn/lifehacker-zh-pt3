@@ -4,7 +4,7 @@
 
 [谷歌助手](http://fieldguide.gizmodo.com/5-things-google-assistant-does-better-than-siri-1793089981) 热衷于在你的生活中扮演尽可能大的角色，为此谷歌不断向应用程序注入新功能，无论是你的手机、你的小智能扬声器、你的 [Pixelbook](https://gizmodo.com/the-google-pixelbook-made-me-alter-my-existence-1819663762) 还是你的[Nvidia Shield](https://gizmodo.com/nvidia-adds-google-assistant-to-shield-tv-making-it-a-1818862089)。这里有 7 个你可能还没有使用过的功能，我们已经在手机上专门测试过了，但是它们应该在某种程度上也能在其他设备上工作。
 
-Watch
+
 
 * * *
 

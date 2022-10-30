@@ -4,7 +4,7 @@
 
 要做的事情太多，时间不够。对于很多人来说，这是一个永恒的问题，但在假期里似乎尤为明显。假日活动、购物、旅游、探亲...事情往往会堆积在我们已经忙碌的生活之上。
 
-Watch
+
 
 *本帖原载于* [*禅习*](https://zenhabits.net/load/) *。*
 
@@ -20,11 +20,7 @@ Watch
 
 你不必花整整一分钟去拜访，只需要花五到十秒钟。只是观察你的感觉，观察你的环境，观察你的想法如何影响你。请注意，简单地说，在这短暂的时间里，你已经从我们大部分时间所处的梦中醒来。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Five Tips for When You Just Have Too Much To Do](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174) [###### 什么是“正念”，为什么每个人都在谈论它？](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174) 
 
-亲爱的 Lifehacker，我不断看到“正念”这个词无处不在，它与从失去…
-
-[Read more](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174)</aside>
 
 ### 2.意识到你现在不可能做好所有的事情
 

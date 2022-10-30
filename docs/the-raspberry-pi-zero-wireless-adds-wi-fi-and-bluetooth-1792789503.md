@@ -4,7 +4,7 @@
 
 这款 [树莓派 Zero](https://lifehacker.com/the-raspberry-pi-zero-is-a-5-computer-the-size-of-a-st-1744253282) 是一款 [神奇的微型版树莓派](http://lifehacker.com/top-10-raspberry-pi-zero-projects-that-make-use-of-its-1792403310) 它将电路板缩小到口香糖大小，但它的一个问题是缺乏无线功能。树莓派 Zero W 是一个新版本，内置蓝牙和 Wi-Fi，价格是原来 Zero 的两倍。
 
-Watch
+
 
 树莓 Pi Zero W 与标准 Pi Zero 的规格基本相同，但增加了与树莓 Pi 3 的 T3 相同的 802.11n 无线局域网和蓝牙。CPU 和 RAM 与标准 Pi Zero 相同，本质上与最早的树莓 Pi 1 机型相同。以下是树莓派 Zero W 的详细规格:
 

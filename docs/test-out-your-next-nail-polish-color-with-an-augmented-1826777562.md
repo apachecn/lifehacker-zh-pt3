@@ -4,7 +4,7 @@
 
 **iOS / Android:** 几周前我做了指甲，感觉棒极了，但我强烈推荐你在去沙龙之前尝试一下 Wanna Nails([【iOS】](https://itunes.apple.com/us/app/wanna-nails-mani-shopping/id1334108416?mt=8)、 [Android](https://play.google.com/store/apps/details?id=by.wanna.apps.wnails&ref=producthunt) )，这样你就不会在颜色选择上瞎摸了。如果你更喜欢自己动手做指甲保养，你可以避免购买你讨厌的颜色。让增强现实的力量帮助你用手指轻敲就能预览指甲上的不同颜色。
 
-Watch
+
 
 对我来说，颜色选择很简单:黑色。至于背景故事，我参加的音乐剧合奏团的女成员邀请我出去玩，做个足疗，她们都想在那周晚些时候我们盛大的开幕夜之前美甲。我喜欢八卦，[听忠言](https://adequateman.deadspin.com/hey-man-go-get-a-pedicure-1711742550) ，所以我决定尾随。
 

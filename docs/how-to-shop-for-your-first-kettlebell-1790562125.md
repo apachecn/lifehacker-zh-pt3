@@ -4,7 +4,7 @@
 
 如果你不想在健身房争夺壶铃，或者只想在家锻炼，一个精心挑选的壶铃是多功能的，紧凑的，非常划算的。你只需要筛选无数的尺寸、品牌、风格和重量。以下是如何分辨什么是重要的，什么是无用的。
 
-Watch
+
 
 我们已经讨论过 [为什么壶铃很棒](https://lifehacker.com/you-should-really-try-working-out-with-kettlebells-1790152387) ，以及你可以用它们做的所有事情。你甚至可以准备在你的家庭健身房里增加一个，或者 [一套宿舍负重](http://vitals.lifehacker.com/the-best-exercise-equipment-for-your-dorm-room-1784685112) 。当然，任何时候你买自己的设备，首要考虑的是你想花多少钱。
 

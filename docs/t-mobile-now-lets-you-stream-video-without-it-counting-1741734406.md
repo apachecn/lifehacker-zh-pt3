@@ -4,7 +4,7 @@
 
 T-Mobile 的整个“无载体”事件，即 CEO John Legere 登上舞台并放下他的手机竞争对手的一系列偶然事件，已经持续了几年。但在第十场比赛中，T-Mo 大获全胜。告别视频流，远离你的数据。
 
-Watch
+
 
 我们 [有一种感觉，这是即将到来的](http://gizmodo.com/t-mobiles-next-perk-could-mean-unlimited-netflix-1739625376) ，Legere 刚刚在洛杉矶的一次活动中证实了这一点，并将此举描述为“破坏了蜂窝数据的骗局”。它的工作原理很像音乐自由，这是 [T-Mobile 去年 6 月推出的](http://gizmodo.com/t-mobile-will-let-you-stream-music-for-free-1592976906) 。它与 24 种不同的服务合作，包括网飞、HBO、Hulu、Sling TV、Watch ESPN、Vevo 和其他各种服务。T-Mobile 称之为提供 DVD 质量(480p)或更好的服务狂欢。都是免费的。
 

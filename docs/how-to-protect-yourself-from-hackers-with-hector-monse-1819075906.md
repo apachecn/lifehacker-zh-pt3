@@ -4,7 +4,7 @@
 
 Equifax 黑客事件清楚地表明了一件事:我们所有人都容易受到这种攻击。但是你如何保证你的信息(和钱)安全呢？你应该采取什么措施来保护自己？为了找到答案，我们请来前黑帽黑客赫克托·蒙塞古尔(Hector Monsegur)，他现在是犀牛实验室 的评估服务总监——也是我们去年最喜欢的嘉宾之一 [。他告诉我们像 Equifax 这样的公司应该做些什么来保护我们的安全，他认为谁可能是幕后黑手，在攻击后我们应该注意什么，以及我们如何防止像这样的黑客造成太大的损失。](https://lifehacker.com/how-to-protect-yourself-online-with-former-black-hat-h-1795434261)
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/204ac01a-84e0-4a26-b13b-5e20346f3a93/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/204ac01a-84e0-4a26-b13b-5e20346f3a93/embed)
 

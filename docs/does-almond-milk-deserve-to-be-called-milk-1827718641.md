@@ -4,7 +4,7 @@
 
 乳制品行业已经为从杏仁牛奶盒上去掉“牛奶”这个词奋斗了多年。与此同时，脱脂牛奶制造商表示，他们可以随意称呼自己的产品，这是一个言论自由问题。现在，看起来食品和药物管理局正计划站在奶牛挤奶工一边。
 
-Watch
+
 
 两者都有点道理，但这似乎也是一场愚蠢的战斗。一方面，FDA 专员已经正确地指出 [杏仁不产生](https://arstechnica.com/tech-policy/2018/07/an-almond-doesnt-lactate-fda-to-crack-down-on-use-of-the-word-milk/) 。另一方面，没有人认为他们做到了。
 

@@ -4,7 +4,7 @@
 
 本周，我们解释了为什么买房和租房的争论在房屋所有权的问题上是愚蠢的，试图在喝酒后好好睡一觉，然后，当然，学会了用最懒的方式煮一杯像样的咖啡。让我们来回顾一下本周的热门帖子。
 
-Watch
+
 
 ## [为什么租与买的争论完全没有意义](http://twocents.lifehacker.com/why-the-rent-vs-buy-debate-is-completely-pointless-1773179027)
 

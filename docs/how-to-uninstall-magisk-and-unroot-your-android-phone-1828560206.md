@@ -4,7 +4,7 @@
 
 在你的 Android 智能手机上运行 [Magisk Manager](https://magiskmanager.com/) 的一个好处是 Magisk 可以隐藏特定应用程序的 root 访问权限，如果某个应用程序因为检测到你篡改了你的设备而无法启动，这很有帮助。然而，一些应用程序— [像口袋妖怪 GO](https://forum.xda-developers.com/apps/magisk/magisk-hide-pokemon-t3813961)—现在在运行时会专门检查 Magisk，这破坏了该软件的一个最佳功能。
 
-Watch
+
 
 由于 Magisk 没有太多的替代品，并且没有一个能够执行与 Magisk 相同的功能，所以捕捉动物的唯一真正选择是从您的设备中删除 Magisk(和 root 访问)。谢天谢地，你有一些方法可以选择:
 

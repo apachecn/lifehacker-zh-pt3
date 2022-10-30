@@ -4,7 +4,7 @@
 
 YouTube 是电视流媒体游戏的新手，但该公司已经在每月 35 美元的基本套餐中增加了七个新网络——AMC、BBC America、Sundance TV、Telemundo、Universo、We TV 和 IFC。因此，当你订阅 YouTube 电视时，你可以获得更多的钱——但在决定它是否适合你之前，你需要知道一些限制。
 
-Watch
+
 
 ## **并非每个人都可以使用**
 

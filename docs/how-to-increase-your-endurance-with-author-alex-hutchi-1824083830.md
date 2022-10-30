@@ -4,7 +4,7 @@
 
 本周我们的嘉宾是《局外人》杂志的专栏作家 [亚历克斯·哈钦森、](https://twitter.com/sweatscience?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) 作者 [*忍受:心灵、身体和人类表现的奇特弹性极限*](https://www.amazon.com/dp/B0716GZX33/ref=dp-kindle-redirect?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-increase-your-endurance-with-author-alex-hutchi-1824083830&asc_source=&btkr=1&tag=kinjalifehackerlink-20) 。我们讨论了耐力是一种技能，它与肌肉一样需要动力和信念，以及我们如何有潜力走得更远、更努力、取得更多成就。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/d3f271dd-c871-4ed9-a7f9-ab6115616da1/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/d3f271dd-c871-4ed9-a7f9-ab6115616da1/embed)
 

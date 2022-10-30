@@ -4,7 +4,7 @@
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 
-Watch
+
 
 本周精选来自罗马哲学家 [盖乌斯·穆索尼乌斯·鲁弗斯](https://en.wikipedia.org/wiki/Gaius_Musonius_Rufus)T3。 [在他的第九次演讲](https://sites.google.com/site/thestoiclife/the_teachers/musonius-rufus/lectures/09) 中，他谈到即使被驱逐出你的祖国也不能阻止你获取知识:
 

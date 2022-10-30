@@ -4,7 +4,7 @@
 
 [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 才上市几天，却已经被冠以“有史以来最易碎的 iPhone”来自 [SquareTrade](https://www.youtube.com/watch?v=T_OT1FQSWuU) 的一系列测试发现，iPhone X 的屏幕在从六英尺高处跌落后碎裂，也导致显示屏出现故障。
 
-Watch
+
 
 值得记住的是，SquareTrade 通过销售智能手机和其他设备的保修服务赚钱，因此该公司肯定会从说服人们 iPhone X 特别容易损坏中受益。尽管如此，考虑到苹果最新的 iPhone 具有迄今为止最大的屏幕和玻璃覆盖的背面，投资一个外壳来保护你的新手机可能不是一个坏主意。
 

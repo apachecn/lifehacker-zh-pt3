@@ -4,7 +4,7 @@
 
 唯一比 [去开会](https://lifehacker.com/how-to-have-a-meeting-that-isnt-a-complete-waste-of-tim-1570834406) 差的就是 [调度他们](https://lifehacker.com/assistant-to-takes-the-hassle-out-of-scheduling-one-on-1572790523#_ga=2.126808075.769681342.1518445498-392757988.1502389723) 。你必须询问每个人是否有空，找到一个合适的时间和地点，发出邀请，然后不断打扰，直到他们回复。据专注于用人工智能解决这一问题的 x.ai 公司称，安排一次会议实际上需要大约 17 分钟。
 
-Watch
+
 
 X.ai 花了四年时间开发( [和改进](https://www.google.com/search?safe=off&ei=53aDWuHJFvKl_QbL_r7gAw&q=x.ai+technobuffalo+thanksgiving&oq=x.ai+technobuffalo+thanksgiving&gs_l=psy-ab.3...6317.7619.0.7735.13.12.0.0.0.0.124.983.10j2.12.0....0...1c.1.64.psy-ab..1.9.795...33i160k1j33i21k1.0.uUdwKi0BWcE) )一个基于电子邮件的人工智能助手，可以为你安排会议。现在，他们正把同样的技术带到你所有与工作相关的对话已经在进行的地方: [松弛](https://lifehacker.com/how-to-navigate-office-etiquette-on-slack-1818966577) 。
 

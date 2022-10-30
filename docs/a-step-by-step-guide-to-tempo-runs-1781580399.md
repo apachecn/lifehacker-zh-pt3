@@ -4,7 +4,7 @@
 
 有一种锻炼是每个耐力跑者都应该做的。这种“面包和黄油”的锻炼是全能的速度跑。节奏跑对几乎每个跑步者都有好处——从英里跑者到马拉松运动员，节奏几乎无处不在。
 
-Watch
+
 
 在大学，当我们训练 8 公里距离时，我们在越野赛中跑节奏跑。我们还在室内和室外赛道的 [基础阶段](http://strengthrunning.com/2015/02/maffetone-method-and-base-training/) 进行了测试(尽管我关注的是 3 公里和 5 公里的距离)。
 
@@ -101,11 +101,7 @@ Watch
 
 *由于这种锻炼压力很大，所以最好在训练的中后期每 2-3 周进行一次。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled A Step-by-Step Guide to Tempo Runs](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068) [###### 让你陷入伤病循环的五个跑步错误](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068) 
 
-你的身体不是一台机器，你不应该把它当成一台机器，即使你认为你可以“坚强…
-
-[Read more](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068)*</aside>
 
 ### ***耐力在等待***
 

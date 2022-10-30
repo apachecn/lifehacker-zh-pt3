@@ -4,7 +4,7 @@
 
 现在有多少事情在争夺你的注意力？你的电话？邮件？懈怠？推特？似乎还在不断增长的烦人的待办事项清单？现代科技给了我们这么多令人惊奇的东西，但其中一个令人尴尬的副作用一直是，不管我们愿不愿意，它都有能力干扰我们。
 
-Watch
+
 
 *本帖原载于* [*剧组博客*](https://crew.co/blog/science-of-how-to-stay-focused/) *。*
 
@@ -96,11 +96,7 @@ Watch
 
 如果你想更进一步，试试这个 [练习](http://www.forbes.com/sites/drewhansen/2012/10/31/a-guide-to-mindfulness-at-work/) 来帮助提高工作中的正念。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Seven Methods to Help You Stay Focused](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174) [###### 什么是“正念”，为什么每个人都在谈论它？](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174) 
 
-亲爱的 Lifehacker，我不断看到“正念”这个词无处不在，它与从失去…
-
-[Read more](https://lifehacker.com/what-is-mindfulness-and-why-is-everyone-talking-abo-1502693174)</aside>
 
 #### 7 .**。嚼口香糖**
 

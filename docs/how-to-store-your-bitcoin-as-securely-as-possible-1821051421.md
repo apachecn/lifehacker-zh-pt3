@@ -4,7 +4,7 @@
 
 似乎每隔几个月我们就会听到基本相同的故事，有人买了一堆比特币，但一旦 [加密货币](https://twocents.lifehacker.com/what-you-should-know-about-cryptocurrency-1797516688) 变得非常值钱，他就无法使用这些比特币了。最新的一篇来自 [Engadget](https://www.engadget.com/2017/12/05/how-not-to-store-your-bitcoins/) ，讲述了一名记者在前往香港并获得极大幸运后成功打捞 20 万美元比特币的故事。
 
-Watch
+
 
 因此，如果你刚刚接触比特币，你可能会担心确保它的安全性，如果你已经持有比特币多年，你可能会想升级你的存储设置。以下是保证你的比特币安全的最好方法——或者至少是尽可能的安全。
 

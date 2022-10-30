@@ -4,7 +4,7 @@
 
 如果你想在大学里吃得健康，有很多因素会对你不利:紧张的预算，餐厅有限的选择，当然还有你的朋友和室友。我们已经帮助你 [在预算内吃](http://twocents.lifehacker.com/a-guide-to-planning-meals-when-you-re-on-a-tight-budget-1573204892)[导航大学食堂](https://lifehacker.com/how-to-eat-healthier-in-college-and-avoid-the-freshma-1723166375) 。现在我们会帮你在吃豆人室友身边吃好。
 
-Watch
+
 
 你的第一个想法可能是忽略它们，过自己的生活。嗯，你应该，但是你周围人的饮食习惯和选择会对你自己的 产生巨大的影响，或者至少在你面临很多很多诱惑的情况下。你不能控制(或赶走)你的室友，但是你*可以*控制你自己和你的生活空间。所以，跳过消极的攻击性的注释和“这对你真的不好”的评论，从改造你的环境开始吧。
 

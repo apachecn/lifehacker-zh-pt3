@@ -4,7 +4,7 @@
 
 那些从来没有在商店里花三分钟买过东西的人:走开。
 
-Watch
+
 
 各位神经病患者:嗨！《纽约客》为你准备了一篇幽默文章，名为 [“如何在不尴尬的情况下走向下一个假日市场摊位”，](https://www.newyorker.com/humor/daily-shouts/how-to-move-on-to-the-next-holiday-market-stall-without-being-awkward-about-it) ，举例如下:
 

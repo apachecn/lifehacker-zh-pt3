@@ -4,7 +4,7 @@
 
 这听起来很奇怪，但当你点击开始菜单上的那个电源按钮来关闭 Windows 10 时，你并没有关闭 Windows 10。当然，Windows 10 会经历关机的过程。你的电脑看起来好像关机了。有点像，但是没有。
 
-Watch
+
 
 这是一个较老的 Windows 10 怪癖，但值得不时强调一下，以防你忘记“关机”并不是真的“关机”。当你关闭电脑时，你实际上在做的是将它置于混合状态，即 Windows 10 的设置中默认启用的“”功能。正如 [Windows Central](https://www.windowscentral.com/how-disable-windows-10-fast-startup) 所描述的:
 

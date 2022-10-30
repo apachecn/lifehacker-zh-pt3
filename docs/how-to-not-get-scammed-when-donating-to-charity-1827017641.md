@@ -4,7 +4,7 @@
 
 由于川普政府的“零容忍”移民政策，估计有 2300 名儿童 与其父母分离。尽管特朗普总统周三签署了一项行政命令 [，扭转了他在分离家庭问题上的立场](https://www.nytimes.com/2018/06/20/us/politics/trump-immigration-children-executive-order.html) (零容忍政策仍然有效，这意味着人们仍然会被起诉)，但它 [不会让那些已经分离的人重新团聚](https://www.texastribune.org/2018/06/20/separated-families-immigration-trump-guarantee-reunification/) 。
 
-Watch
+
 
 在许多情况下，父母付不起保释金，或者在与子女团聚之前就被驱逐出境，儿童被关在类似监狱的环境中的画面和猖獗虐待和忽视的报道激怒并动员了全国人民。
 

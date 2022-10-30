@@ -4,7 +4,7 @@
 
 每个人都喜欢一个干净整洁的家，但是打扫很糟糕。大扫除是一件痛苦的事情，小规模的清扫是有意义的，但是谁有时间呢？当你不得不做大扫除 的时候，这里有一些简化大扫除的方法，让小清扫更容易定期进行。
 
-Watch
+
 
 ### 10.制定一个时间表(并坚持下去！)
 
@@ -34,11 +34,7 @@ Watch
 
 当你真的开始拿起装备，戴上手套，插上真空插头，把事情做完时，确保你在短时间内清洁——[每次只有几分钟](https://lifehacker.com/keep-your-home-clean-in-bursts-294770) 。那些“一个房间”指南只有 10 或 20 分钟是有原因的。如果你坚持太久，你会精疲力尽，疲惫不堪，大汗淋漓，浑身不舒服，最后干脆放弃。即使你成功了，你也不会想再做一次。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Ways to Finally Conquer Your Housecleaning](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/keep-your-home-clean-in-bursts-294770) [###### 保持你家的清洁](https://lifehacker.com/keep-your-home-clean-in-bursts-294770) 
 
-来自博客 Zen Habits 的 Leo Babauta 遵循两个简单的规则来保持他的家的整洁:1)整洁如
-
-[Read more](https://lifehacker.com/keep-your-home-clean-in-bursts-294770)</aside>
 
 保持事情简短并给自己足够的休息时间也能让你在没有压力的情况下完成事情，而且它还能训练你在短时间内完成很多事情 ，所以当你坐下来几分钟后再起来处理其他事情时，你会有成就感。
 

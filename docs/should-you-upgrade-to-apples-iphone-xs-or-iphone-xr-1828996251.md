@@ -4,7 +4,7 @@
 
 苹果的大部分观众已经点燃了他们的银行账户，期待着他们本周可以开始预订的所有整洁的新设备。事情就是这样，这也是为什么苹果能够负担得起在硅谷中心建造大型、200 美元的建筑。
 
-Watch
+
 
 无论价格或规格如何，许多人都会订购一款新的 iPhone:iPhone XR、iPhone XS 或 iPhone XS Max——苹果完全没有借鉴其他公司 T3[的命名惯例。](https://store.google.com/ca/product/google_home_max)
 

@@ -4,7 +4,7 @@
 
 上个月 [我们挑战你们讨价还价](http://twocents.lifehacker.com/how-d-you-do-during-june-s-money-challenge-1782817623) ，你们中的一些人节省了数百。我们印象深刻。这个月，我们有一位客人。 [钱包黑客](https://wallethacks.com/) 的吉姆王加入我们，我们挑战你使用他的 [“升级并保存”策略。](http://wallethacks.com/upgrade-and-save-strategy/)T11】
 
-Watch
+
 
 在[之前我们已经给大家讲过这个策略了，不过我们还是让王来解释一下它是怎么运作的:](http://twocents.lifehacker.com/cut-back-on-expenses-with-the-upgrade-and-save-strategy-1742037788#_ga=1.134605041.1268082208.1431441811)
 

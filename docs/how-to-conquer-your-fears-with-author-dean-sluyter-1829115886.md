@@ -4,7 +4,7 @@
 
 本周，我们将深入探讨你害怕的东西——具体的东西，如对蜘蛛和高度的恐惧，以及我们所有人对活着的更概念性的存在主义焦虑。首先，我们采访了 Dean Sluyter，他是新书《更少恐惧:超越恐惧、焦虑、愤怒和成瘾 的作者。然后，R [eddit 播客“无尽的线程”](http://www.wbur.org/endlessthread) 的主持人本·布洛克·约翰逊分享了 Reddit 上最恐怖的故事。但是首先，爱丽丝和梅丽莎要面对她们最害怕的两个问题——你要去听。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/d657abda-8d0c-4d09-8bac-8f5a8e50d5e4/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/d657abda-8d0c-4d09-8bac-8f5a8e50d5e4/embed)
 

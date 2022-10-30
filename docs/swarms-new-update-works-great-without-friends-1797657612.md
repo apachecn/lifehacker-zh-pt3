@@ -4,7 +4,7 @@
 
 Foursquare 的 [Swarm 5.0](https://www.swarmapp.com/) 昨天在 iOS 上发布，而 [即将在 Android](https://medium.com/foursquare-direct/say-hello-to-the-new-swarm-5-0-1f18bdda28da) 上发布，它有着更干净的外观和更好的场地分类。最重要的是，它淡化了社交签到 app 的大部分社交元素，强化了它的单人福利。这是个好消息，因为单独使用 Swarm 可能会更有用。
 
-Watch
+
 
 Foursquare(及其前身 Dodgeball)的早期承诺是通过选择性地分享位置来帮助人们与朋友见面。这将给人们一种社交雷达，让他们可以临时见面。与谷歌地图或苹果的 Find Friends 不同，Swarm 让用户控制每次签到，这让它不那么爱出风头，但也更少摩擦。
 

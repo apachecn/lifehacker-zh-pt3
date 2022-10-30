@@ -4,7 +4,7 @@
 
 本周，我们尝试了一个月每天做俯卧撑，比较了所有新的在线电视流媒体服务，了解了“完美胸罩”尺寸的神话，为超级碗做准备，等等。这里回顾一下。
 
-Watch
+
 
 ## [**我学了一个月每天做俯卧撑**](http://vitals.lifehacker.com/what-i-learned-doing-push-ups-every-day-for-a-month-1791921298)
 

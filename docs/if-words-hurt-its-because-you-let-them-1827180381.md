@@ -4,7 +4,7 @@
 
 欢迎回到 [**周中冥想**](https://lifehacker.com/c/mid-week-meditations) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 
-Watch
+
 
 本周的精选来自马库斯·奥勒留和他的*冥想*，这是他写给自己的私人笔记集，从未打算出版。 [在第四部](http://classics.mit.edu/Antoninus/meditations.4.four.html) 中，奥勒留为我们提供了一个例子，展示了我们对世界的感知能力以及其中那些常常可怕、直言不讳的人们:
 

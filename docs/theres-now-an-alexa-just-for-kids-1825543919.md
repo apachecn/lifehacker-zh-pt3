@@ -4,7 +4,7 @@
 
 孩子们现在可以要求 Alexa 在他们自己的设备上给他们讲一个敲门笑话。今天，亚马逊推出了其无处不在的智能音箱的儿童友好版本。[Echo Dot 儿童版](https://www.amazon.com/dp/B077JFK5YH/ref=ods_surl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/theres-now-an-alexa-just-for-kids-1825543919&asc_source=&tag=kinjalifehackerlink-20) ，售价 79.99 美元，可预购，5 月 9 日开始发货。
 
-Watch
+
 
 这款设备面向 5 至 12 岁的儿童，配有亚马逊的 FreeTime 家长控制、一个盒子和一年的 FreeTime Unlimited(包括各种东西，如儿童有声书籍、进入迪士尼电台等无广告音乐电台和以流行人物为特色的有趣闹钟)。Alexa 也学会了如何说“孩子”
 

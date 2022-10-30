@@ -4,7 +4,7 @@
 
 苹果和三星等智能手机制造商不希望你自己修理他们的设备(这就是 [保护计划](https://lifehacker.com/shop-amazon-for-applecare-first-before-buying-from-appl-5586783) 的目的)，显然谷歌也不例外。对新发布的 [Pixel XL 2](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085) 的拆解显示，它实际上比去年的 [Pixel XL](https://lifehacker.com/10-useful-hidden-features-on-google-s-pixel-phone-1789809296) 更难修复，这要归功于一个关键的区别:电池。
 
-Watch
+
 
 ### 用于 Pixel XL 2 的更难修复的电池
 

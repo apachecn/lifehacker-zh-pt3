@@ -4,7 +4,7 @@
 
 iOS:苹果的 iOS 最近加入了 Android，提供了一个 [“开车时请勿打扰”模式](https://lifehacker.com/ios-11-lets-you-automatically-mute-texts-and-notificati-1818587612#_ga=2.218092757.2130151020.1525698930-3846207152.1521480874) 。与普通的 iOS“请勿打扰”不同，这种模式还可以让你自动回复任何发短信的人。你可以随时激活它，而不仅仅是在开车的时候。 [科技投资人凯文·罗斯讲解步骤。](https://medium.com/@kevinrose/disconnect-and-take-a-break-from-your-iphone-by-using-this-little-known-feature-c8e6f41660da) 这里有个总结。(安卓指令， [此处](https://fieldguide.gizmodo.com/how-to-set-up-auto-respond-texts-when-youre-driving-1794911685#_ga=2.218092757.2130151020.1525698930-3846207152.1521480874) )。)
 
-Watch
+
 
 1.  转到*设置>请勿打扰*。
 2.  向下滚动*驾驶时请勿打扰*下，选择*手动激活>*。

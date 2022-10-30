@@ -4,7 +4,7 @@
 
 在 [公司的博客](https://blog.pinboard.in/2017/06/pinboard_acquires_delicious/) 上发布的一份新闻稿中，世界上最适合内向者的社交书签网站 Pinboard 宣布，它已经从 Delicious Media 收购了书签平台上不受欢迎的，Delicious Media 是 2016 年从 Science 收购 Delicious 的公司，2014 年从 AVOS 收购 Delicious 的公司，2011 年从雅虎收购 Delicious 的公司，2005 年收购 Delicious 的公司。这意味着你将不得不移动那些关于学习如何烤馅饼、拍摄婚礼或任何你认为你最终会点击的东西的书签。
 
-Watch
+
 
 Pinboard 的创始人马切伊·切戈夫斯基 还没有计划用 Delicious 做什么，除了让它成为一个只读网站。你仍然可以访问你之前添加的书签，但是从 6 月 15 日开始，添加新的书签是不可能的了。您可以将您的美味数据导出到 Pinboard 或另一个书签服务。Ceglowski 说，购买的部分动机是希望确保“它不会从网上消失。”
 

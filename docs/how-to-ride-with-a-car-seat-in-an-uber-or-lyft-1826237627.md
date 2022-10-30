@@ -4,7 +4,7 @@
 
 当你在一个没有汽车的新城市拖着一个孩子时，你可能会忍不住给他系上 Lyft 的优步——没有车座——“就这一次。”2018 h idden 摄像调查发现 [司机一直让乘客这么做。](https://www.wxyz.com/news/local-news/investigations/hidden-camera-investigation-shows-uber-lyft-drivers-willing-to-break-law) (“如果你没意见，我也没意见，”一名司机对一名卧底妈妈说。)但是当你获得优步奖时，物理定律不会改变。 [汽车安全座椅拯救生命](https://cars.usnews.com/cars-trucks/best-cars-blog/2016/08/why-kids-need-car-seats) (在大多数地方，这是法律要求的)，无论你是在你家附近巡航还是在一个陌生的城市旅行。
 
-Watch
+
 
 是的，你可以在优步和 Lyft 中使用汽车座椅(如果出于任何原因，你的司机不想让你安装一个，*呼叫另一个司机*)。两家乘车服务公司都在一些城市提供汽车座椅，但他们使用的模式可能并不适合每个孩子。上车前，你应该知道以下几点。
 

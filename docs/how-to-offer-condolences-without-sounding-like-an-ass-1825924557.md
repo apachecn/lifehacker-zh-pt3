@@ -4,7 +4,7 @@
 
 如果你不小心，你善意的哀悼会让你听起来像个十足的混蛋。向死者家属表达真诚同情的诀窍是，在表示支持的同时，知道应该避免什么。这是七大禁忌。
 
-Watch
+
 
 ### 不要比较
 
@@ -22,11 +22,7 @@ Watch
 
 脸书让向某人表示哀悼变得容易，但它并不适用于所有情况。首先，这种类型的评论通常被认为是自私的。与其说是安慰悲伤的人，不如说是被人看到安慰悲伤的人。如果你打算走社交媒体这条路，至少跟进一些更私人的事情，比如打电话或写信。此外，在你说任何事情之前，一定要确保死者已经公开发布了死亡的消息！否则，你可能会用你的信息打破新闻，或者迫使某人谈论他们不想分享的事情。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Offer Condolences Without Sounding Like an Ass](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-prepare-for-the-death-of-a-family-member-5988635) [###### 我如何为家庭成员的死亡做准备？](https://lifehacker.com/how-do-i-prepare-for-the-death-of-a-family-member-5988635) 
 
-亲爱的生活黑客，我见过我的朋友失去他们的亲人，在许多情况下，找到过程…
-
-[Read more](https://lifehacker.com/how-do-i-prepare-for-the-death-of-a-family-member-5988635)</aside>
 
 ### 不要只是发一条短信或电子邮件
 

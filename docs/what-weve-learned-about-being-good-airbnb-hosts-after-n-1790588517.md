@@ -4,7 +4,7 @@
 
 搬进超出我们预算的两居室一个月后，我和纽约的室友开始探索赚点外快的方法。我们曾以旅行者的身份使用 Airbnb，并想成为主人。
 
-Watch
+
 
 *本帖原载于*[*value penguin*](https://www.valuepenguin.com/2016/12/airbnb-hosting-what-we-did-right-wrong-first-nine-months)*。*
 

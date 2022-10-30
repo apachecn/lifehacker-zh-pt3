@@ -4,7 +4,7 @@
 
 [【Face ID】](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)， [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 中推出的新型人脸扫描安全摄像头，在大部分时间里工作得相当完美。但是有一个地方苹果的最新技术可能会给你带来麻烦:床上。
 
-Watch
+
 
 最近 Reddit 上的一条(由 [BGR](http://bgr.com/2017/11/10/iphone-x-features-tips-get-face-id-to-work-in-bed/) 发现)显示，许多人在躺在床上时解锁新智能手机时遇到了麻烦。一名 iPhone X 用户认为问题可能是枕头遮住了他们的脸，但事实证明解决方案甚至更简单。
 

@@ -4,7 +4,7 @@
 
 很难否认旅行的乐趣；这是一种非常普遍的受欢迎的经历。当然，这也很贵，而且也不容易抽出时间来。如果你渴望旅行，但在可预见的未来又不在计划之中，那么在此期间，这里有一些方法。
 
-Watch
+
 
 ### 想出一个计划，即使是一个长期的计划
 
@@ -58,11 +58,7 @@ Watch
 
 *也许你不会把你的城镇描述成文化中心。这很好——你不一定要住在伦敦才能获得附近的新奇事物。参观当地博物馆、公园，在镇上不同的地方吃晚餐。我们经常赞美旅行是一次漫长的异国之旅，但很有可能，在你自己的邻居 、城镇或城市里，你可以学到很多新东西，看到 [。或者，你可以计划一次](https://lifehacker.com/take-a-cheap-vacation-in-your-own-city-348407) [有趣的周末公路旅行](http://lifehacker.com/the-best-apps-and-tools-for-rocking-your-next-road-trip-5992643#_ga=1.90811098.1983968257.1459385312) 去附近的城镇或城市。*
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled What to Do When You Have a Travel Itch You Can’t Scratch](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/take-a-cheap-vacation-in-your-own-city-348407) [###### 在你自己的城市度过一个便宜的假期](https://lifehacker.com/take-a-cheap-vacation-in-your-own-city-348407) 
 
-一周又一周的项目、截止日期和新的挑战在工作中过去了，你已经准备好了…
-
-[Read more](https://lifehacker.com/take-a-cheap-vacation-in-your-own-city-348407)*</aside>
 
 #### *多说“是”*
 

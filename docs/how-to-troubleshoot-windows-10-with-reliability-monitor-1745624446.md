@@ -4,7 +4,7 @@
 
 解决 Windows 中的问题可能是一种痛苦，但内置的可靠性监视器通过在一个简单的视图中显示计算机的可靠性和问题历史来帮助您。
 
-Watch
+
 
 可靠性监视器是那些很少有人知道或费心的 [令人敬畏的 Windows 功能](http://lifehacker.com/7-awesome-features-youve-forgotten-about-in-windows-7-5932456?trending_test_two_e&utm_expid=66866090-68.hhyw_lmCRuCTCg0I2RHHtw.4&utm_referrer=https%3A%2F%2Fwww.google.com%2F) 之一。但是它非常有用。Windows 会自动跟踪应用程序和系统故障，尽管使用古老的事件查看器可以看到相同的信息，但可靠性监视器会以易于浏览的基于时间的视图显示这些故障。
 

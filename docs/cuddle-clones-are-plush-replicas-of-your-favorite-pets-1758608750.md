@@ -4,7 +4,7 @@
 
 每次我看到这个由克隆人搂抱制作的毛绒动物，我都会心花怒放。它和我死去的狗一模一样。除了令人毛骨悚然的因素之外，这个定制的填充动物一直在为我的家人疗伤，并帮助我们保持对我们最喜爱的宠物的记忆更加生动和真实。
 
-Watch
+
 
 去年早些时候，我们在 Gizmodo [的朋友提到了拥抱克隆](https://gizmodo.com/this-site-will-make-a-stuffed-animal-clone-of-your-pet-1683482767) ，当我读到它们时，我认为这些填充动物玩具是一个绝妙的主意。你上传你的宠物的照片，定制一些选项，并添加关于区别特征的备注。
 
@@ -12,11 +12,7 @@ Watch
 
 我再也没有想过拥抱克隆人，直到有一天早上，我发现我的女儿无法控制地哭泣，为她的狗，她的朋友哭泣。巴克利死时快 11 岁了，但他去世时她只有 4 岁左右。他去世已经好几年了，我女儿仍然很难过。她编造故事说他是一只幽灵狗，一直跟着她，在学校陪着她。更糟糕的是:她的过敏症专科医生告诉我们，她不应该再养狗了，因为她有哮喘，她的血液测试显示对狗严重过敏。虽然她当时的感受和试图应对的方式是完全自然的，但这放大了我和我丈夫自己的痛苦。他是我们的第一个大宝宝，一个温和的巨人(这是他的照片和上面标题图片中的拥抱克隆)。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Cuddle Clones Are Plush Replicas of Your Favorite Pets](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-talk-to-your-kids-about-death-1517421198) [###### 如何和你的孩子谈论死亡](https://lifehacker.com/how-to-talk-to-your-kids-about-death-1517421198) 
 
-和其他成年人谈论死亡已经够尴尬的了。当你不得不…
-
-[Read more](https://lifehacker.com/how-to-talk-to-your-kids-about-death-1517421198)</aside>
 
 所以我给她看了拥抱克隆网站，并和她做了一笔交易:如果她能攒够钱，我们会付一半的钱。我试图判断她对拥有这个毛绒动物克隆体的真正兴趣，而不是给她一个脆弱的安慰，来拂去她对真正宠物的悲伤。她马上突袭了她的存钱罐，我们就上网下单了。
 

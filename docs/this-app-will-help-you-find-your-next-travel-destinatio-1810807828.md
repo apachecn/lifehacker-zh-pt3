@@ -4,13 +4,9 @@
 
 Hopper 是 [一个观看航班交易](https://lifehacker.com/hopper-notifies-you-of-airfare-price-drops-on-your-ipho-1682407977) 的有用应用，但他们也希望能够预测你下一步可能想去哪里旅行。他们新的 Flex Watch 功能就像一个数字旅行社，为您的旅行提供个性化建议，为您省钱。
 
-Watch
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled This App Will Help You Find Your Next Travel Destination](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/hopper-notifies-you-of-airfare-price-drops-on-your-ipho-1682407977) [###### Hopper 会通知您 iPhone 上的机票价格下降](https://lifehacker.com/hopper-notifies-you-of-airfare-price-drops-on-your-ipho-1682407977) 
 
-iOS: Hopper 是一个很棒的网站，可以帮助你提前计划机票交易，但是新的 iOS 应用…
 
-[Read more](https://lifehacker.com/hopper-notifies-you-of-airfare-price-drops-on-your-ipho-1682407977)</aside>
 
 使用人工智能驱动的推荐算法，Flex Watch 能够在你没有固定目的地或特定日期的时候为你精心设计一个假期。它会根据您的偏好和您可能的旅行日期的灵活程度提醒您航班信息，平均为您节省约 40%的费用。Hopper 的发布公告 [给出了它如何工作的一个简单例子](http://www.hopper.com/corp/announcements/hopper-can-now-predict-where-youll-want-to-go-on-vacation) :
 

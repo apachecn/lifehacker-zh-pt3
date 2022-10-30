@@ -4,7 +4,7 @@
 
 众所周知，苹果对商店中允许的应用程序非常挑剔，这意味着许多优秀的应用程序被拒之门外。 [越狱一直是获得未批准应用](http://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943) 的常用方法，但越狱可能是一件麻烦事。如果你只是想获得一两个非苹果批准的应用程序——像 [Kodi](http://kodi.wiki/view/IOS) ，视频游戏模拟器，甚至是[f . lux](https://justgetflux.com/)——像 [Gamma Thingy](https://github.com/thomasfinch/GammaThingy) ，侧面加载是一种方式。这个过程是免费的，很简单，只需要几分钟。
 
-Watch
+
 
 ### 你需要什么
 

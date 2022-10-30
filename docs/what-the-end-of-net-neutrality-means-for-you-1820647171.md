@@ -4,7 +4,7 @@
 
 我们 [知道](https://lifehacker.com/the-fccs-new-plan-dismantles-net-neutrality-to-rely-on-1794675979) 即将到来，但周二，FCC 主席 Ajit Pai 宣布了他的计划，将网络中立化，将互联网控制权移交给康卡斯特、& T 和威瑞森(也是 Pai 的前雇主)等服务提供商。
 
-Watch
+
 
 名为“ [恢复互联网自由秩序](https://www.fcc.gov/document/chairman-pai-proposes-restore-internet-freedom) ”的新计划承诺结束政府对互联网的“微观管理”，以换取服务提供商增加透明度。然而，它也已经被 [广泛](https://qz.com/1027755/net-neutrality-google-and-amazon-are-fighting-to-save-internet-regulations-that-trump-says-are-killing-business/) [批评](https://www.fastcompany.com/40445949/ex-chair-tom-wheeler-dismantles-fccs-argument-to-abandon-net-neutrality) 取消了 FCC 在 2015 年通过的消费者保护。
 

@@ -4,7 +4,7 @@
 
 “到底什么是度假村费用？”我的朋友问道，开车离开我们古色古香的棕榈泉汽车旅馆。我们收到一份账单，上面有一长串令人困惑的税费清单。我们懒得去破译每一个项目，在不知道我们到底买了什么的情况下付了钱。你可能也去过那里，所以让我们来探索一下你的典型酒店账单都包括什么。
 
-Watch
+
 
 酒店靠收费赚了这么多钱( [去年创纪录的 27 亿美元](http://www.scps.nyu.edu/about/newsroom/news/2017/u_s_lodging_industry.html) )。也许他们正在 [借鉴航空业](https://lifehacker.com/the-pros-and-cons-of-cheap-air-travel-1794687104https://lifehacker.com/the-pros-and-cons-of-cheap-air-travel-1794687104) 的做法，但他们中的许多人现在甚至向客人收取最基本的便利设施费用，如房间选择、本地电话和延迟退房。
 

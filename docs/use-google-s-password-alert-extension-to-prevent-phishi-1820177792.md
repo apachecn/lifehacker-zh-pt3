@@ -4,7 +4,7 @@
 
 网络钓鱼攻击变得越来越难以识别，在这种攻击中，骗子伪装成合法公司，诱骗您交出用户名、密码或信用卡信息等敏感信息。甚至谷歌也容易受到更复杂的攻击，从电子邮件附件到共享的谷歌文档，这些攻击无处不在。
 
-Watch
+
 
 如果你是谷歌 Chrome 用户，你可以通过谷歌自己的一个简单扩展更安全地保护自己免受的网络钓鱼攻击。该公司为谷歌 Chrome 浏览器 开发的 [密码提醒扩展旨在防止网络钓鱼诈骗在你察觉之前危及你的账户。如果你有哪怕是最轻微的恐惧，有人可能会试图闯入你的帐户(](https://chrome.google.com/webstore/detail/password-alert/noondiphcddnnabmjcihcjfbhfklnnep) [你应该](https://lifehacker.com/search-for-your-email-address-to-see-if-your-password-h-1819780168) )，这个工具应该是你的武器库的一部分。
 

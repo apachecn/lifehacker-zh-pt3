@@ -4,7 +4,7 @@
 
 在 Lifehacker 这里，我们已经看到了大约 [每一种巧妙的 DIY 技巧，但我们也看到了许多令人讨厌的东西。我们最近偶然发现了一个非常受欢迎的视频，里面充满了组织黑客，我们有一些想法...](http://lifehacker.com/tag/clever-uses) 
 
-Watch
+
 
 被质疑的脸书视频来自 Blossom 的 [，在撰写本文时，已经被观看了 3.1 亿次。它有七种不同的方法来帮助你整理你的杂物。全文如下:](https://www.facebook.com/FirstMediaBlossom/videos/10155361643304586/)
 

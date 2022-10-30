@@ -4,7 +4,7 @@
 
 苹果 [最近推出了](https://lifehacker.com/everything-apple-announced-at-its-iphone-se-event-today-1766168003)[苹果更新计划](http://www.apple.com/recycling/) ，该计划以苹果礼品卡和 good Earth vibes 支付你回收旧 iPhones、iPads、MAC 和其他设备的费用。如果你把你用过的东西送去，这是你可以期待得到的回报。
 
-Watch
+
 
 用 Apple Renew 回收很简单。 [只要点这里的](http://www.apple.com/recycling/) ，并提供一些关于你想要回收的设备的型号、它的储存、它的状况以及其他一些东西的信息，然后网站就会给你一个返回值。为了简化事情，这里是你可以期望得到的，按设备组织。
 

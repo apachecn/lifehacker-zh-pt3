@@ -4,7 +4,7 @@
 
 上周随着 iOS 11.2 的推出，苹果 [正式推出 Apple Pay 现金](https://lifehacker.com/how-to-get-started-with-apples-new-apple-pay-cash-1821168610) 。
 
-Watch
+
 
 当您将手机更新到 11.2 时，该应用程序将自动安装到您的手机上，这意味着它不在 App Store 中。就像苹果的其他预装应用程序一样，它也不应该从你的手机中删除，但操作系统中的一个错误似乎允许人们这样做。
 

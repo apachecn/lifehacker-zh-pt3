@@ -4,7 +4,7 @@
 
 当你需要喝一杯时，诺亚·罗斯鲍姆是合适的倾诉对象。他是《Liquor.com》的创始编辑，写过关于酒类行业的书籍，并作为首席鸡尾酒记者在《每日野兽》 上开辟了一个新的 [食品和饮料专栏。](http://www.thedailybeast.com/drink-and-food.html)
 
-Watch
+
 
 他的第一本书 [《烈酒的生意](https://www.amazon.com/Business-Spirits-Noah-Rothbaum/dp/B006OHUOSG?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-noah-rothbaum-chief-cocktail-correspondent-at-the-d-1785041679&asc_source=&tag=kinjalifehackerlink-20) 》探讨了白酒行业是如何运作的，以及企业家和大公司是如何改变小酒厂的产品出现在你商店货架上的方式的。然后在 [的《美国威士忌的艺术》](https://www.amazon.com/Art-American-Whiskey-History-Nations/dp/1607747189?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-noah-rothbaum-chief-cocktail-correspondent-at-the-d-1785041679&asc_source=&tag=kinjalifehackerlink-20) 中，罗斯鲍姆观察了酒瓶本身——威士忌是如何包装和贴标签的，从伪造的 XXX 酒壶到禁酒令期间的“药用”烈酒，以及威士忌似乎与生俱来的怀旧美学。
 

@@ -4,7 +4,7 @@
 
 很难找到一辆“坏”的现代汽车，但在质量控制方面，一些制造商比其他制造商更好。[*iSeeCars.com*](https://www.iseecars.com/recall-rates-study)分析了 NHTSA 的一些数据，得出了召回数量最多和最少的汽车名单。
 
-Watch
+
 
 虽然制造商的召回对购买者来说是免费的(而且 [汽车召回比几年来](https://jalopnik.com/recall-levels-in-the-u-s-haven-t-been-this-low-in-year-1823624522) 都要低)，但从一天中抽出时间来检查汽车的问题仍然会令人沮丧，这些问题本应在汽车出厂前就被发现。
 

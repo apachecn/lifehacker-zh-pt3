@@ -4,7 +4,7 @@
 
 如果你厌倦了在登录苹果账户时必须输入的旧的“[【An1mari99@yahoo.com】](mailto:An1mari99@yahoo.com)”电子邮件地址，一些好消息:根据苹果更新的支持文档 ，你终于可以更改你的 Apple ID 用户名 [。](https://support.apple.com/en-us/HT202667)
 
-Watch
+
 
 以前，如果不创建一个全新的帐户，就无法转换 Apple ID 电子邮件地址。长期投资于苹果 iOS、iTunes 或 macOS 生态系统的用户很可能在相当长一段时间内一直使用同一个苹果 ID，很可能是第三方电子邮件地址。无论你是想停用那个令人尴尬的(或被泄露的)电子邮件地址，宣布电子邮件破产，还是用一个官方的苹果 ID[重新开始，配备收件箱](https://lifehacker.com/how-to-change-your-email-address-without-screwing-every-1481486947) ，以下是如何抛弃昔日的旧电子邮件地址并最终全力以赴。
 

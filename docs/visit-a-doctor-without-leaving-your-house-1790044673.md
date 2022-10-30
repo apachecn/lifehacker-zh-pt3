@@ -4,7 +4,7 @@
 
 生病最令人讨厌的事情之一是离开家去接受医疗护理，填写表格，坐在候诊室里，而你宁愿躺在床上努力康复。但是有了像 [Teladoc](https://www.teladoc.com/) 和 [AmWell](https://amwell.com) 这样的服务，一个 24 小时的医生只要打个视频电话就能帮到你。
 
-Watch
+
 
 你会看到像“*远程医疗*”和“*远程医疗*”这样的词随处可见，但确切的定义各不相同。*远程医疗*有时仅仅意味着视频通话，而*远程医疗*可以包含大量的医疗通信，就像医生将 x 光片发送给远方的专家进行翻译。今天，我们使用远程医疗意味着你可以用电话或视频电话代替去看医生，我们正在寻找一些最大、最受欢迎的服务，提供给大多数人。
 
@@ -44,11 +44,7 @@ Watch
 
 MeMD 在他们的网站上提供了比其他网站更多的信息，所以让我们以他们为例。他们直截了当地表示，他们 [不能成为你的主治医师](https://www.memd.me/how-it-works/faq/) :“很遗憾，不能，”这是他们在常见问题解答中对这个问题的回答。他们不会给你开维持药物，也不会增加你已经服用的药物的剂量。他们也不会给你写一份去专科医院的介绍信，或者开出轮椅之类的设备。像许多远程医疗公司一样，MeMD 的成立是为了取代像 MedExpress 这样的紧急护理诊所。如果你想和一个特定的医生保持持续的关系，你还是得去 [自己找一个](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) 。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Can You Visit a Doctor Without Leaving the House?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) [###### 怎么才能找到好医生？](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) 
 
-亲爱的生活黑客，我刚刚改变了保险计划，我正在寻找一个新的医生。我有如此…
-
-[Read more](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213)</aside>
 
 拥有这种关系还有一个重要的好处:如果提供者认识你，他们可能愿意给你简单的建议或根据一个电话调整你的药物。这很像远程医疗访问，除了它可能是免费的。因此，你还不能用远程医疗应用程序取代你的医生，但如果你没有正规医生，或者如果你需要在医生不在时处理一些简单的事情，这是一个不错的选择。
 

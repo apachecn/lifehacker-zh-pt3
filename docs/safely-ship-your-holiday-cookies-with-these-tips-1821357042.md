@@ -4,7 +4,7 @@
 
 离圣诞节只有一个多星期了，我的立式搅拌机正在进行锻炼，这迫使我记起我把保修卡放在哪里了。亚利桑那州、加利福尼亚州的亲戚和宾夕法尼亚州的朋友每年都会收到一盒糖果。但是运送 cookies 不是一件容易的事情——需要考虑一些事情。糖霜能让它安然无恙吗，或者我应该把饼干冰起来？我应该如何包装它们？我是不是应该把那些小包的 [硅胶](https://www.amazon.com/Dry-Packs-Cotton-Silica-Packet-Pack/dp/B0038N30OY?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/safely-ship-your-holiday-cookies-with-these-tips-1821357042&asc_source=&tag=kinjalifehackerlink-20) 都存起来？谢天谢地，答案是有的。
 
-Watch
+
 
 ### 不是所有的饼干都一样运送
 

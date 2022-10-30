@@ -4,7 +4,7 @@
 
 CyanogenMod 曾是 [最大、应用最广的定制安卓 ROM](https://lifehacker.com/most-popular-android-rom-cyanogenmod-5915793) 。现在，它已经停产，部分原因是 [Cyanogen Inc](https://cyngn.com/) 内部冲突。不过，不要担心:CyanogenMod 的一个新分支叫做 [Lineage OS](http://lineageos.org/) 正在继承它的衣钵，它将保留你喜欢的 CyanogenMod 的大部分内容。
 
-Watch
+
 
 ### **CyanogenMod 发生了什么，它将何去何从**
 
@@ -22,11 +22,7 @@ Watch
 
 即使你使用的不是 CyanogenMod 的 ROM，这个变化仍然可能影响你。一些替代 rom 如 [复制者](http://www.replicant.us/) 是稳定的 CyanogenMod 版本的分支。随着向天堂操作系统的过渡，你最喜欢的 rom 的新版本可能需要更长时间才能发布。现在是检查您最喜欢的 ROM 是否基于 CyanogenMod 的好时机，为了安全起见，请获取最新稳定版本的副本。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled CyanogenMod Is Dead, and Its Successor is Lineage OS](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281) [###### 如何将 ROM 闪存到您的 Android 手机中](https://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281) 
 
-安卓很棒，但是有时候，你用手机得到的版本——不管是普通的安卓…
-
-[Read more](https://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281)</aside>
 
 ### **天堂操作系统将取代 CyanogenMod，但目前我们只知道这些**
 

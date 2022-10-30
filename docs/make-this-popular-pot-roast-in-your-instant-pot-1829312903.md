@@ -4,9 +4,9 @@
 
 几年前，“密西西比烤肉”开始流行。作为密西西比州人和炖肉的狂热爱好者，我很好奇，因为我不知道我们作为一个州有官方的烤肉。我问我的母亲、父亲、做烤肉的祖母和几个阿姨，他们是否听说过这个食谱。他们没有。
 
-Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make This Popular Pot Roast in Your Instant Pot](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-turn-cheap-chicken-thighs-into-something-really-1826021826)</aside>
+
+
 
 然而，Pinterest darling 听起来确实像是在密西西比州构思出来的东西，特别是我长大的密西西比州，那里的南方食物不太像肖恩·布洛克/自家种植的，更多的是小黛比/从罐头里倒出来的。我看到的被非南方人崇拜的南方食物——通常是“高贵的”——很少是我从小到大吃的。当你想到 [密西西比州是最贫穷的州](https://www.nationaldebtrelief.com/poverty-rate-america/) 时，这是有道理的，人们很少想一想穷人吃什么，特别是如果它涉及一包或一罐。虽然新鲜的切片西红柿和玉米面包在我童年的晚餐中随处可见，但罐装汤、大蒜盐和热卷也是如此。(郑重声明:我不是在抱怨这些饭菜的任何一个方面。)
 

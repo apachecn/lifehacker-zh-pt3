@@ -4,7 +4,7 @@
 
 如果你使用的是 Windows 10 机器，如果你出于任何原因不打算安装最新的 Windows 更新，你可能需要考虑禁用 Cortana——至少在锁屏上。(一般来说，当你的电脑被锁定时，你真的需要一个智能助手来帮助你吗？)
 
-Watch
+
 
 迈克菲安全研究人员 [最近发现](https://securingtomorrow.mcafee.com/mcafee-labs/want-to-break-into-a-locked-windows-10-device-ask-cortana-cve-2018-8140/)Cortana 可以从 Windows 10 的锁屏中被召唤出来并用于执行恶意软件，[*The Verge*reports](https://www.theverge.com/2018/6/13/17457762/microsoft-windows-10-cortana-hack-exploit)。当然，有些人需要物理接触电脑才能进行黑客攻击，但这将允许这个人从 u 盘启动文件——之后就没有限制了。
 

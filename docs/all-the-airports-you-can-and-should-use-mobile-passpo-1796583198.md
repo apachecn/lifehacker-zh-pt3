@@ -4,7 +4,7 @@
 
 如果你经常出国旅行(甚至几年才一次)，那么 Global Entry 可能是你最好的朋友。然而，如果你不经常出国旅行，那么手机护照应用程序可能正是医生(或者在这种情况下是边境管制)所要求的。
 
-Watch
+
 
 该应用可用于 [iOS](https://itunes.apple.com/us/app/mobile-passport-officially-authorized-by-cbp/id907024887?mt=8) 和 [Android](https://play.google.com/store/apps/details?id=us.mobilepassport&hl=en) (点击链接下载)，当你进入美国时，它会加速你的文书工作，让你绕过这个国家最繁忙的一些机场的长队。与其说它是“移动护照”，不如说它是文书工作的替代品。你仍然需要带着你的护照。
 

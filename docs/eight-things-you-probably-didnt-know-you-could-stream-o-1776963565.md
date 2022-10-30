@@ -4,7 +4,7 @@
 
 Spotify 对音乐爱好者来说是必不可少的，但它的 [比](https://lifehacker.com/11-more-awesome-spotify-tips-and-tricks-youre-probably-1750897507) 能提供更多好的音乐。你可以免费播放有声读物、广播剧、语言课、著名演讲等等。
 
-Watch
+
 
 ### **有声读物**
 
@@ -75,10 +75,6 @@ T2】
 
 但是如果你想，比如说， [学习如何更有效地学习](https://open.spotify.com/album/60AevlMlAFkBKUS4AAfFkW) ，或者 [获得训练你的猫](https://open.spotify.com/album/27C2CSrjCPzQ3bxWQraBLC) 的技巧呢？Spotify 也有你的报道。你还可以找到管理压力和焦虑的有用建议，比如高尔夫比赛中的击球，你甚至可以听听戴尔·卡耐基的电台版《如何赢得朋友，影响他人，T21》。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Eight Things You Probably Didn&#39;t Know You Could Stream On Spotify](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) [###### 为什么冥想应该是你大脑的“定期维护”](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329) 
 
-从技术上来说，睡眠已经是我们大脑的定期维护，但如果有任何…
-
-[Read more](https://lifehacker.com/why-meditation-should-be-your-brains-scheduled-mainten-1633217329)</aside>
 
 <small>*照片由*</small> [<small>*丹尼尔 Kneckt*</small>](https://www.flickr.com/photos/daniel_knecht/4443465544/)<small>*。*T15】</small>

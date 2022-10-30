@@ -4,7 +4,7 @@
 
 人工智能正在渗透我们的日常生活，应用程序 [管理你的手机照片](https://lifehacker.com/this-app-can-choose-your-best-photos-for-you-1796369992)[管理你的电子邮件](https://lifehacker.com/this-app-uses-artificial-intelligence-to-manage-your-in-1796211455)[将文本从任何语言翻译成另一种语言](https://lifehacker.com/google-translate-will-now-use-neural-learning-to-make-e-1789036349) 。谷歌、脸书、苹果和微软都在大力研究如何将人工智能集成到他们的主要服务中。很快，你可能会在每次拿起手机时与人工智能(或其输出)互动。你应该相信它吗？不总是。
 
-Watch
+
 
 人工智能可以比人类更快更准确地分析数据，但它也可以继承我们的偏见。为了学习，它需要大量的数据，而找到这些数据最简单的方法就是从互联网上输入文本。但是网络上包含了一些极其偏颇的语言。斯坦福大学的一项研究 发现，一个经过互联网训练的人工智能将刻板的白人名字与“爱”等积极词汇联系起来，将黑人名字与“失败”和“癌症”等消极词汇联系起来
 

@@ -4,7 +4,7 @@
 
 低密度脂蛋白曾经是“坏胆固醇”，高密度脂蛋白是“好胆固醇”。这是 13 年前我在研究生院脂类课上学到的有趣的故事，但科学从那时起已经发生了变化。例如，高 HDL 不再是自动好的。让我们来看看你的胆固醇值到底意味着什么。
 
-Watch
+
 
 获取这些数据的最常见方法是血脂检测，它会给出一份总胆固醇、低密度脂蛋白、高密度脂蛋白和甘油三酯的报告。结果可能会让你的医生与你击掌，或者坐下来认真讨论“生活方式的改变”，甚至是降胆固醇药物。美国心脏协会 [建议](http://www.heart.org/HEARTORG/Conditions/Cholesterol/HowToGetYourCholesterolTested/How-To-Get-Your-Cholesterol-Tested_UCM_305595_Article.jsp#.WrYIRcgh35Y) 至少每五年检查一次血脂，如果你的数据显示有任何问题，可以更频繁。
 

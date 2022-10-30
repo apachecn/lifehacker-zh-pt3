@@ -4,7 +4,7 @@
 
 昨天有传言说，我们要到 2019 年第四季度才会看到第二代 ai rpods，我赶紧去苹果商店给自己买了一对。我很快发现，我是那些不会对 AirPods 如何神奇地粘在我耳朵上赞不绝口的人之一。我将无法在芝加哥冬天的风中 [循环](https://www.reddit.com/r/apple/comments/7s1c1l/airpods_while_biking/dt18nor) 或 [在滑雪板上做空翻而不掉下](https://www.reddit.com/r/apple/comments/7s1c1l/airpods_while_biking/dt18uo2) 。
 
-Watch
+
 
 如果 [苹果*耳朵*豆荚](https://lifehacker.com/use-sugru-to-improve-the-fit-on-apple-s-new-earpods-or-5947239)T5】不在你耳朵里呆着，AirPods 也不会。我去寻找一个的解决方案。Lifehacker 通过 MacRumors 建议 [使用防水胶带来制造与耳朵](https://forums.macrumors.com/threads/airpods-poor-fit-fixed.2072773/) 的摩擦，我不愿意尝试，因为在我拥有小 Sonicare 头的未经修改的效用上放弃还为时过早。因此，在 YouTube 上，这个视频证实了我已经怀疑的事情:**不要把 AirPods 挂在耳朵上；相反，将它们用力压入，然后将阀杆向前拧大约 30 度。**
 

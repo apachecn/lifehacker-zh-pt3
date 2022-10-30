@@ -4,7 +4,7 @@
 
 人们为了赚钱而做的各种各样的事情看起来彼此完全不同，就像彩虹中不同的颜色一样，但事实是他们之间有很多相似之处。
 
-Watch
+
 
 *本帖最初出现在* [*的简单美元*](http://www.thesimpledollar.com/six-simple-skills-everyone-can-learn-to-improve-their-earnings-potential-at-work/) *上。*
 

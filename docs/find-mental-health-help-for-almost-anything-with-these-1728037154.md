@@ -4,7 +4,7 @@
 
 如果你认为自己有心理健康问题，但不准备 [去找治疗师](http://lifehacker.com/how-do-i-select-a-therapist-or-counselor-5874359) (或者不确定你的 [保险是否涵盖一个](http://lifehacker.com/how-to-tell-if-your-health-insurance-covers-mental-heal-1625153418) )，一个开始寻求帮助的好地方是互助小组或热线。
 
-Watch
+
 
 Greatist 已经收集了一份心理健康资源的总清单，以填补无所事事和寻求专业帮助之间的空白。他们建议使用这些资源，而不是去看治疗师，但我们说:为什么不两者都用呢？许多这样的小组可以帮助你弄清楚你是否需要专业帮助，以及如何寻求帮助。
 

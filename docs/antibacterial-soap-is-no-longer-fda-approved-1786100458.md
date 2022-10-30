@@ -4,15 +4,11 @@
 
 一年之内，像 [三氯生](https://en.wikipedia.org/wiki/Triclosan) 这样含有抗菌成分的肥皂将从商店货架上消失。美国 [美国食品药品监督管理局](http://www.fda.gov) 今天宣布了一项规定，不再认为出售给消费者的肥皂中的这些成分是安全有效的。
 
-Watch
+
 
 我们早就建议你坚持使用普通的旧肥皂和水 ，因为普通肥皂能很好地洗掉细菌。抗菌成分也可能对你的健康和环境构成威胁。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Antibacterial Soap Is No Longer FDA-Approved](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/whats-the-fuss-over-antibacterial-soaps-should-i-stop-1500232937) [###### 抗菌香皂有什么大惊小怪的？我应该停止使用一个吗？](https://lifehacker.com/whats-the-fuss-over-antibacterial-soaps-should-i-stop-1500232937) 
 
-亲爱的生活黑客，我听说抗菌肥皂对你不好，或者至少我应该停止…
-
-[Read more](https://lifehacker.com/whats-the-fuss-over-antibacterial-soaps-should-i-stop-1500232937)</aside>
 
 几年前，FDA 允许销售这些肥皂，因为其中的化学物质相当安全，少量的肥皂不会伤害任何人。然而，三氯生的使用变得如此广泛，以至于在人乳和 [海豚血](http://www.scientificamerican.com/article/dolphin-development-antibacterial-soap-triclosan/) 中都发现了三氯生。大多数淡水溪流 [都被它污染了](http://sciencebulletin.org/archives/1498.html) 。三氯生杀死“好”和“坏”细菌，它可能会促使细菌对其他抗生素产生抗药性。
 

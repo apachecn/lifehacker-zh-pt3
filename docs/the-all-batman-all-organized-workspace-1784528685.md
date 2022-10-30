@@ -4,7 +4,7 @@
 
 在过去的几周里，我们一直在强调简单、干净的工作空间，这一个也不例外。当然，有空间展开和工作，但实际的计算机设置本身是很好的，最小化，并向我们最喜欢的专营权之一致敬。看看海报和这些额外的照片。
 
-Watch
+
 
 Redditor [crj3012](https://www.reddit.com/user/crj3012) 将此提交给了战斗站 subreddit，但我们真正挖掘的是这里的齿轮。他是一个机械键盘的收藏家(正如你将在稍后的照片中看到的)，这在我们的书中已经值得很多加分(他把所有的权利都给了 [机械键盘 subreddit](https://www.reddit.com/r/MechanicalKeyboards) ，他是 [机械市场 subreddit](https://www.reddit.com/r/mechmarket) 的卖家)，但那些装裱和悬挂的经典蝙蝠侠漫画书封面艺术真的达成了交易。这是工作区的另一张照片，突出了这些海报:
 

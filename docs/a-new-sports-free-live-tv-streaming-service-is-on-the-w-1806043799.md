@@ -4,7 +4,7 @@
 
 对于许多电视观众来说，体育频道是必不可少的，但对于那些对观看任何体育赛事不感兴趣的人来说，将体育频道纳入电视流媒体计划可能会推高价格。现在*华尔街日报* [报道说一些电视网正在谈判](https://www.wsj.com/articles/coming-soon-a-streaming-tv-bundle-for-people-who-dont-like-sports-1505170652) 为非体育观众推出流媒体服务，每月 20 美元或更少。
 
-Watch
+
 
 这项服务据称将在未来几周内试运行，并将包括 Viacom、AMC、Scripps Networks Interactive 和 Discovery Communications 旗下的有线频道。
 

@@ -4,7 +4,7 @@
 
 iPhone 不像 OS X 那样支持应用程序启动器，但这并不意味着应用程序开发者没有想出聪明的变通办法。举个例子，我们挑选的最佳启动器，Launch Center Pro 不仅可以启动应用程序，还可以在应用程序中执行特定的操作。
 
-Watch
+
 
 ### [发射中心 Pro](https://itunes.apple.com/app/launch-center-pro/id532016360)
 

@@ -4,7 +4,7 @@
 
 似乎我认识的每个小时候玩过蹦床的人*和*都有摔断腿或胳膊的故事，或者亲眼目睹了一些令人发指的伤害。蹦床在最近几年变得越来越受欢迎，而且它们也变得越来越安全，有了网和弹簧套——所以它们仍然是等待发生的骨折吗？
 
-Watch
+
 
 不幸的是，答案很可能是肯定的。问问治疗这些伤的人就知道了。美国儿科学会(AAP) [“强烈劝阻【s】”孩子们使用后院或家里的蹦床](http://pediatrics.aappublications.org/content/early/2012/09/19/peds.2012-2082) 因为有受伤的危险。美国整形外科医师学会(AAOS) [也对蹦床持悲观态度](https://www.aaos.org/uploadedFiles/PreProduction/About/Opinion_Statements/position/1135%20-%20Trampolines%20and%20Trampoline%20Safety.pdf) ，指出了受伤的统计数据，然后勉强提出了一些安全措施。其中之一是:让六岁以下的孩子完全远离蹦床。
 

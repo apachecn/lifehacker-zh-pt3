@@ -4,7 +4,7 @@
 
 不是每个人都需要背包或单肩包。一个典型的例子是，读者 Hamada 的包只有口袋大小，却装满了各种工具。
 
-Watch
+
 
 这个包是一个 [Crumpler Tuft 相机袋](https://www.bhphotovideo.com/c/product/765579-REG/Crumpler_TUF001_B00G60_Tuft_Camera_Pouch_Large.html) 。这是里面的内容:
 

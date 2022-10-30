@@ -4,7 +4,7 @@
 
 在过去的一年里， [谷歌](https://lifehacker.com/soon-you-wont-have-to-say-hey-google-to-launch-google-a-1822563826) 一直在推出其最受欢迎的应用程序的轻量级版本，这些应用程序是专门为低价智能手机设计的。在 [Android Go](https://android-developers.googleblog.com/2017/05/whats-new-in-android-o-developer.html) 的旗帜下，我们已经看到了 [YouTube Go](https://lifehacker.com/youtube-go-downloads-videos-for-offline-viewing-saves-1792212046) ，谷歌地图 Go，甚至一个名为 [Files Go](https://lifehacker.com/how-to-use-files-go-googles-new-airdrop-style-file-sha-1820297858) 的全新服务，旨在清理你设备上的存储空间。现在谷歌正在推出其最新的轻量级应用: [助手围棋](https://play.google.com/store/apps/details?id=com.google.android.apps.assistant) 。
 
-Watch
+
 
 Assistant Go 正是你所期待的，它是人工智能服务的简化版本，在智能手机上占用的存储空间更少。缺点是你失去了一堆受欢迎的功能，包括设置提醒、控制智能家居设备和动作的能力(类似于亚马逊 Alexa 技能的第三方扩展)。即使有这些限制，您仍然可以使用“助理 Go”来提问、获取路线以及使用语音命令控制电话上的其他功能。
 

@@ -4,7 +4,7 @@
 
 本周，我们学习了如何在压力让你晚上睡不着的时候获得睡眠，为 iPhones 选择了最佳广告拦截器，调整了我们早上的日常工作，查看了 Google Now on Tap，等等。这里回顾一下。
 
-Watch
+
 
 ## [当压力让你夜不能寐时，如何休息](http://lifehacker.com/how-to-get-some-rest-when-stress-is-keeping-you-up-at-n-1736464084)
 

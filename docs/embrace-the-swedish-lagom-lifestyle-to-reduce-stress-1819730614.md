@@ -4,7 +4,7 @@
 
 在这一点上，渴望从北欧文化中寻找美国问题的解决方案实际上是一个家庭手工业。Scando 设计原则之间(更轻，更少的东西)；可持续发展倡议(荷兰已经想出如何 [养活我们所有人](https://www.nationalgeographic.com/magazine/2017/09/holland-agriculture-sustainable-farming/))；教育(挪威语 [森林学校](https://www.mnn.com/lifestyle/responsible-living/blogs/why-finlands-forest-schools-are-great-kids) ，有人吗？);还有健康(芬兰投资 [公共桑拿](https://www.youtube.com/watch?v=lTQHXT10d4Y) )，有很多值得喜爱的地方。(如果你像我一样是一位身材更高、更丰满的女士，我恳请你去看看瑞典时装；舒适，多彩，比例上比美国品牌聪明一英里。)
 
-Watch
+
 
 然后是生活方式的概念。首先是 hygge，它卖了一万支蜂蜡蜡烛和毛绒绒的毯子，因为美国人变得舒适了，有了丹麦风格；然后是不太为人所知的 Friluftsliv——从挪威语直接翻译过来的意思是“自由的空气生活”,相当于户外欣赏的文化承诺。现在，我们有了 lagom。
 

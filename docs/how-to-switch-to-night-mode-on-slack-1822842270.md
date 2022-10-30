@@ -4,7 +4,7 @@
 
 macOS:当然，Slack 可能是每个人的职场沟通应用，但这并不意味着它不会出错( [我甚至不会在@here](https://lifehacker.com/how-to-navigate-office-etiquette-on-slack-1818966577) 上开始使用)。以它亮白色的界面为例。对于朝九晚五的长时间工作来说，这可能很好，但如果你上夜班，或者只是在睡觉前快速发送一些邮件，所有这些#FFFFF 会 [扰乱你的睡眠周期](https://lifehacker.com/everything-you-need-to-know-about-how-light-affects-you-1782365372) 。取而代之的是使用 macOS 应用程序 Sblack，它可以将你的 Slack 应用程序转换成适合夜猫子而不是早起者的应用程序。
 
-Watch
+
 
 Sblack 应用程序将你的整个 Slack 主题变成蝙蝠侠会认可的主题，将每个背景都变成黑色，包括你的聊天窗口。为了在天黑后放松一下，你需要确保你的 Mac 电脑至少运行 macOS 10.12。从那里，下载 sb black，把你自己的 Slack 应用程序拖到 sb black 中，看着你的主题从珍珠白变成恐惧无尽虚空的黑色。
 

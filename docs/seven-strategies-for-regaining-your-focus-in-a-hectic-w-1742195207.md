@@ -4,7 +4,7 @@
 
 我们谈论了很多关于时间管理的问题，但是尽管我们努力拨出时间来处理重要的项目，我们却忽略了一件关键的事情:能够专注于实际完成它们，而不是不断地转换任务。
 
-Watch
+
 
 *本帖原载于* [*快公司*](http://www.fastcompany.com/3052211/know-it-all/7-strategies-for-regaining-focus-in-a-hectic-workplace) *。*
 

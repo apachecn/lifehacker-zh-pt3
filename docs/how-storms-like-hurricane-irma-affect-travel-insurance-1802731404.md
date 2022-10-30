@@ -4,7 +4,7 @@
 
 超级飓风厄玛是 [除了造成延误和航线改变外，还导致数吨巡航和航班取消](http://www.latimes.com/travel/cruises/la-tr-cruises-hurricane-irma-cancellations-20170906-story.html) 。但是你的旅行保险应该涵盖所有这些，对吗？也许吧。也许不是。
 
-Watch
+
 
 ### 你的旅行保险可能包括什么
 

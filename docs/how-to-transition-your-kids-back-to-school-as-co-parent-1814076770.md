@@ -4,7 +4,7 @@
 
 当你离婚时，对你的孩子来说，新的学年意味着*与前任的大量*交流，简而言之，这可能很糟糕。但是正如 [一位经历过的母亲](http://www.scarymommy.com/how-co-parent-with-your-ex-lover/) 所写的，为人父母有一条基本准则，那就是:这很难，而且不是真的关于你。
 
-Watch
+
 
 *拿出那些捕兽器，削尖你的 2 号铅笔——这是* [*返校*](http://lifehacker.com/tag/back-to-school) *周！在教室之外，Lifehacker 将为您带来天才的技巧和想法，告诉您如何开始日常工作，重温旧技能或在今年秋天学习新东西。*
 

@@ -4,7 +4,7 @@
 
 内特只有 18 岁，已经过着 [#drivefreeordie](https://www.instagram.com/explore/tags/drivefreeordie/) 的生活，拥有一辆路虎和一辆年久失修的萨博。是时候减少这些汽车的损失，换些真正有用的东西了。他应该买什么车？
 
-Watch
+
 
 *(欢迎回到* [*应该买什么车*](http://jalopnik.com/tag/wcsyb) *？我们给真正的人买车的真正建议。你想让我们帮你找辆车吗？* [*在我们的表格上提交您的故事。*](https://docs.google.com/forms/d/e/1FAIpQLSdjPraXTjqkJ1ratHBdp3cRFJRuDdGjKFViWm821KMatgRVxg/viewform) *)*
 

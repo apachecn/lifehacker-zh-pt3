@@ -4,7 +4,7 @@
 
 光明节就要结束了，但是即使你今年没有得到任何的礼物，你仍然可以庆祝。只要你能接触到苹果、谷歌或亚马逊的 [人工智能助手](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716) ，你就能享受到一个节日传统的高科技版本: [dreidel](https://lifehacker.com/win-the-game-of-dreidel-by-starting-first-or-change-th-1672787219) 。
 
-Watch
+
 
 只要用各自的热词引起你的人工智能的注意，然后说“旋转 Dreidel。”在确认你的请求后，人工智能会假装旋转陀螺，然后从四个选项中随机选择一个。
 

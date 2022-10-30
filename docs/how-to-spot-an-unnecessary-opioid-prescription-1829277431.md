@@ -4,7 +4,7 @@
 
 有时候阿片类药物真的是你最好的止痛药，当然也有可能负责任地服用。但是 [发表在《内科医学年鉴》上的新研究](http://annals.org/aim/fullarticle/2702065/documented-pain-diagnoses-adults-prescribed-opioids-results-from-national-ambulatory) 显示，医生似乎开错了处方，这可能导致成瘾。
 
-Watch
+
 
 阿片类药物是许多类型短期疼痛的强效止痛药，但它们对慢性疼痛或腰痛并不总是有效。在最近一项关于 2006 年至 2015 年 期间医生就诊的 [研究中，这是与阿片类药物处方相关的两个最常见的诊断。该研究发现，尽管患者的病历中没有提到任何与疼痛相关的诊断，但他们经常获得阿片类药物处方。是处方不合适，还是供应商记录的数据不正确，我们无法确定。](http://annals.org/aim/fullarticle/2702065/documented-pain-diagnoses-adults-prescribed-opioids-results-from-national-ambulatory)
 

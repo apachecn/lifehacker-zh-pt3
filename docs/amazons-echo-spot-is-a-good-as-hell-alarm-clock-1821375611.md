@@ -4,7 +4,7 @@
 
 智能手机让独立闹钟变得毫无价值。当然，你可能知道一些闹钟抵制者(也许是父母或祖母)，但你可能只使用你的手机 [e](https://today.yougov.com/news/2011/05/05/brother-do-you-have-time/) ，它已经放在床头柜上，有足够好的闹钟。售价 130 美元 [的亚马逊 Echo Spot](https://www.amazon.com/Amazon-VN94DQ-Introducing-Echo-Spot/dp/B073SQYXTW/ref=sr_1_5?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/amazons-echo-spot-is-a-good-as-hell-alarm-clock-1821375611&asc_source=&ie=UTF8&keywords=echo show&qid=1513561834&sr=8-5&tag=kinjagizmodolink-20) ，这是一款新的微型 Alexa 设备，配有摄像头、显示屏和令人震惊的强大扬声器，非常好，以至于你不会介意关掉手机，让 Spot 开始每天早上叫醒你的工作。
 
-Watch
+
 
 当然，这个点不仅仅是一个闹钟。这是一个 Alexa 设备，所以它可以做任何一个 [回声](https://gizmodo.com/amazon-echo-has-come-a-long-way-baby-1819759134) 、 [圆点](https://gizmodo.com/amazon-echo-dot-vs-google-home-mini-the-cheap-speaker-1820122896#_ga=2.26626869.964887307.1513603287-1626665990.1512676959) 或 [显示](https://gizmodo.com/the-amazon-echo-show-is-the-best-dumb-smart-machine-in-1796380588) 可以做的事情。这意味着你期望从 Alexa 设备获得的天气、新闻和控制智能手机，加上你也期望从节目中获得的电影预告片或当地新闻片段。
 

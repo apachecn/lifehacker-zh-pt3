@@ -4,15 +4,11 @@
 
 拉伤肌肉很糟糕，而弄清楚这是不是真正需要注意的拉伤更糟糕。我们都经历过 [紧张、痉挛、酸痛和全身紧绷](https://lifehacker.com/the-most-common-exercise-injuries-and-how-you-can-avoi-1659615551) ，但这些似乎都会引起不同程度的类似疼痛，这并没有什么帮助。以下是如何判断是否真的是肌肉拉伤，以及你能做些什么的方法。
 
-Watch
+
 
 一般来说，剧烈疼痛是严重疾病的一个相当好的指标，但它也非常复杂。你可能会忙于担心你是否能或应该继续锻炼，无论是晚一点还是几天后。因此，重要的是确定你确实有肌肉拉伤，而不是其他类型的疼痛，像我们的好朋友[【DOMS】](https://lifehacker.com/why-your-muscles-get-sore-and-what-you-can-do-about-it-1680937155)【延迟性肌肉酸痛】。这是一个非常简单但常见的错误。幸运的是，有一些事情需要注意。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What to Do When You Pull a Muscle From Working Out](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-most-common-exercise-injuries-and-how-you-can-avoi-1659615551) [###### 最常见的运动损伤(以及如何避免)](https://lifehacker.com/the-most-common-exercise-injuries-and-how-you-can-avoi-1659615551) 
 
-受伤是痛苦的，使人虚弱的，并且有可能使你倒退几周或几个月…
-
-[Read more](https://lifehacker.com/the-most-common-exercise-injuries-and-how-you-can-avoi-1659615551)</aside>
 
 ## **真的是拉伤肌肉吗？**
 

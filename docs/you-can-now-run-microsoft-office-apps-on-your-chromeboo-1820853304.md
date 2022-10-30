@@ -4,7 +4,7 @@
 
 Chrome OS: Chromebook 用户正在寻找谷歌编辑工具的替代品，现在可以转向微软 Office，这款软件终于可以在 Chromebook 上使用了。office 应用套件——Word、Powerpoint、Excel 和 Outlook——已经可以在 macOS、iOS 和 Android 设备上使用，但 Chromebooks 直到现在还没有出现。然而，取决于你的设备，它可能会花费你几美元来购买大多数人认为必不可少的功能。
 
-Watch
+
 
 ### **你需要一台兼容的 Chromebook**
 

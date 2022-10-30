@@ -4,7 +4,7 @@
 
 新年是一个很好的机会来反思我们已经走了多远，我们希望下一步去哪里。问题是，我们中的大多数人会着手制定完全不切实际的计划，最终失败。以下是最常见的失败决心，以及如何去实现它们。
 
-Watch
+
 
 *本帖最初发表于 2013 年 12 月 30 日。*
 
@@ -20,11 +20,7 @@ Watch
 
 当然，你可以做上百个小改变来影响你的体重。关键是选择一两个容易管理的。一旦你掌握了窍门，你可以直接跳到最后一部分。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled The New Year&#39;s Resolutions Most Likely to Fail, and What to Do Instead](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-can-i-fit-a-workout-into-my-daily-routine-5854874) [###### 我如何将锻炼融入我的日常生活？](https://lifehacker.com/how-can-i-fit-a-workout-into-my-daily-routine-5854874) 
 
-亲爱的 Lifehacker，我真的需要多运动。我考虑过尝试类似…
-
-[Read more](https://lifehacker.com/how-can-i-fit-a-workout-into-my-daily-routine-5854874)</aside>
 
 ### “我要少花钱，多存钱”
 

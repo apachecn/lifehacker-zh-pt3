@@ -4,7 +4,7 @@
 
 电子邮件是每个人都依赖的技术工具，但或许也是 [讨厌](http://www.fastcodesign.com/3047273/how-email-became-the-most-reviled-communication-experience-ever) (它是 [互联网的蟑螂](http://www.theatlantic.com/technology/archive/2014/08/why-email-will-never-die/375973/) ！).不管喜欢还是讨厌，我们都应该提高我们的电子邮件技能，从管理我们的收件箱到发送更优雅的电子邮件。以下是我们在邮件中犯的十大错误。
 
-Watch
+
 
 ### 10.给错误的人或太多的人发邮件
 

@@ -4,7 +4,7 @@
 
 本周 [一篇 *TechCrunch* 文章](https://techcrunch.com/2018/09/27/yes-facebook-is-using-your-2fa-phone-number-to-target-you-with-ads/) 披露，脸书正在使用用户提供的电话号码作为双重认证的安全措施，以此向这些用户发送定向广告。
 
-Watch
+
 
 如果这不是你希望发生的事情(你也不应该发生)，你可以通过从网站上删除你的电话号码并使用认证应用程序设置双因素认证来解决这个问题。
 

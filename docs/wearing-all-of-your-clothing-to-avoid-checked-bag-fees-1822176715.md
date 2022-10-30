@@ -4,7 +4,7 @@
 
 一名试图从冰岛飞往英国的男子最近被拒绝登机 [，原因是他为了逃避托运行李的费用，一次穿了所有的衣服](https://www.washingtonpost.com/news/dr-gridlock/wp/2018/01/16/a-man-tried-to-board-a-flight-wearing-everything-he-packed-british-airways-gave-him-the-boot/?utm_term=.2d621cfd539a) 。这是一次可怕的旅行黑客尝试。 [他声称，登机口人员事先说会没事的](https://twitter.com/RYAN_HAWAII/status/951088947777671168) ，但即使他们让他登机，他也会很惨。请不要试图这样做，人们。
 
-Watch
+
 
 除了这是情景喜剧级别的荒谬之外，还有很多原因说明这并不理想。首先，你不被允许上飞机是有道理的。你认为工作人员会让你登机，当你看起来像是在走私几磅天知道是什么东西的时候？拜托，如果你试了就不会看起来更可疑了。最重要的是，在飞行过程中你会非常不舒服。穿五层衣服会变得很暖和。即使把你的鼓风机开到最大也不足以阻止你穿着自己的衣服被烤焦。最后，你会看起来很蠢。
 

@@ -4,7 +4,7 @@
 
 鸡尾酒糖浆很容易制作，有些人会说“简单”。将糖倒入水中，加热至溶解，冷却。如果你想要一种除了“甜”以外的味道，你可以在水中煮一些植物的一部分来赋予一些特别的东西。然而，在姜糖浆的情况下，这种方法会给你一种乏味的、不那么辣的糖浆，带有一种“煮熟”的味道。
 
-Watch
+
 
 我用热水浸泡过姜汁吗？是的，它确实很好，但它无法与萨沙·帕特拉斯科的 [*关于鸡尾酒*](https://www.amazon.com/Regarding-Cocktails-Sasha-Petraske/dp/0714872814?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-best-ginger-syrup-requires-no-heating-1828363912&asc_source=&tag=kinjalifehackerlink-20) 中的免煮糖浆相比。这种糖浆结合了新鲜的姜汁和超细糖，比煮过的东西更加明亮、辛辣和细致入微。
 

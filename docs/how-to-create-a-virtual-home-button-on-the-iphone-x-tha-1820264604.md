@@ -4,7 +4,7 @@
 
 使用 [iPhone X](https://lifehacker.com/what-do-you-like-or-hate-about-iphone-x-1820179520) 意味着 [重新学习几乎所有你知道的关于在 iOS 中导航的东西](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 。这是因为苹果移除了 [Home 键](https://lifehacker.com/use-this-hidden-feature-when-your-iphones-buttons-are-b-1819959579) ，用一系列新的滑动和手势取代了那种漂亮的触觉输入。
 
-Watch
+
 
 如果你的肌肉记忆让你伸手去拿一个已经不在那里的 Home 键，或者你只是错过了它，有一个解决方案。 [PhoneArena](https://www.phonearena.com/news/How-to-bring-back-the-home-button-on-your-iPhone-X_id99632) 想出了一个聪明的办法来恢复 iPhone X 上的 Home 键——算是吧。
 

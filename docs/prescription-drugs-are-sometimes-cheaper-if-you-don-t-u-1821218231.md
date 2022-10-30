@@ -4,7 +4,7 @@
 
 处方药的价格是如此不透明、不稳定和全面混乱，以至于有时你可以假装你甚至没有保险来获得更好的交易。一份 [ProPublica 报告](https://www.propublica.org/article/when-buying-prescription-drugs-some-pay-more-with-insurance-than-without-it) 称，这种情况可能高达 10%。
 
-Watch
+
 
 货比三家，试试或 [GoodRx](https://www.goodrx.com/) 。两者都允许你在网上搜索，不需要保险或任何特定的资格。Blink 在 40，000 家药店中的任何一家都提供单一价格。GoodRx 显示不同药房的价格，并提供可打印的优惠券，这可能是获得最低价格所必需的。你也可以试着在你的药房询问:如果我们不通过我的保险，这个处方会更便宜吗？
 

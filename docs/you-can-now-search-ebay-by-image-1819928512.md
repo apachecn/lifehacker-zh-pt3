@@ -4,7 +4,7 @@
 
 搜索易贝需要信心——相信卖家会用你用来描述你想要的东西的关键词来列出他们的商品。有时你对“绿松石”的构成有不同的看法有时你有一张你想要的图片，但不知道某个款式的名字。现在你只需要那张照片了。
 
-Watch
+
 
 [TechCrunch 报道](https://techcrunch.com/2017/10/26/ebay-launches-visual-search-tools-that-let-you-shop-using-photos-from-your-phone-or-web/) 易贝已经启动了图像搜索，允许你从你的相机中拍照或上传，并使用它搜索网站列表。另一个新功能,“在易贝找到它”,可以让你从网上或社交媒体上找到的任何图片开始搜索。
 

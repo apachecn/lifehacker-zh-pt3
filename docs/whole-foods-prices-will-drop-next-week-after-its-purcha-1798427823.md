@@ -4,7 +4,7 @@
 
 亚马逊对全食超市 [的收购本周获得了联邦贸易委员会](https://www.theverge.com/2017/8/23/16193542/ftc-amazon-whole-foods) 的批准——比任何人预期的如此大规模的交易都要更快更顺利——收购将于 8 月 29 日周一完成。就在那一天，全食超市的一些价格将会下降。
 
-Watch
+
 
 具体来说，亚马逊正在寻求降低有机食品的价格，包括香蕉、鳄梨、羽衣甘蓝和鲑鱼， [【市场观察】，](http://www.marketwatch.com/story/amazon-and-whole-foods-will-cut-prices-of-avocados-and-kale-to-mark-close-of-deal-2017-08-24) 在一份声明中指出，目标是“让每个人都更负担得起有机食品”
 

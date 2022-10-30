@@ -4,7 +4,7 @@
 
 不管我们愿不愿意承认，现在又到了开学季。这意味着家长和学生都在准备花一大笔钱为上课准备笔记本电脑、学习用品、衣服和配件。以下是如何在力所能及的地方存钱，并把现金放在钱包里。
 
-Watch
+
 
 ### 10.商店最好的返校销售和交易
 
@@ -12,11 +12,7 @@ Watch
 
 此外，像任何销售一样，留意零售商人为抬高价格以降低价格并宣称“大折扣！”在返校销售热潮期间。
 
-<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Top 10 Ways to Stretch Your Back to School Budget](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/which-back-to-school-stuff-should-i-buy-now-and-what-ca-5829388) [###### 我现在应该买哪些返校用品，我可以等什么？](https://lifehacker.com/which-back-to-school-stuff-should-i-buy-now-and-what-ca-5829388) 
 
-亲爱的生活黑客，新学年我需要很多东西。所有的返校广告…
-
-[Read more](https://lifehacker.com/which-back-to-school-stuff-should-i-buy-now-and-what-ca-5829388)</aside>
 
 ### 9.避开诱人的学生信贷或贷款
 

@@ -4,7 +4,7 @@
 
 儿童汽车座椅很复杂。他们的机制会被一个啦啦队 堵塞； [他们很难适应后座](https://vitals.lifehacker.com/these-tips-help-you-cram-three-child-seats-into-your-ca-1791527412)； [它们和冬天的外套](https://lifehacker.com/psa-kids-shouldnt-wear-winter-coats-in-their-car-seat-1789009412#_ga=2.197369583.137309736.1497881513-1276133427.1497275510) 不太搭。六到十年后，它们就会过期。
 
-Watch
+
 
 大多数儿童安全座椅上印着的失效日期可能会让你觉得这是一个诡计，让你无法在二手货上省钱。但是，虽然这些日期没有法律强制执行，他们有一个很好的理由。
 

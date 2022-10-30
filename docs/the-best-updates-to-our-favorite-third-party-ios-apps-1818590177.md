@@ -4,7 +4,7 @@
 
 [你可能还不想升级到 iOS 11](https://lifehacker.com/here-s-why-you-should-wait-to-download-ios-11-1818525026)，但是你应该更新这些顶级的 iOS 应用。
 
-Watch
+
 
 *   Siri 现在可以控制[**any . do**](https://itunes.apple.com/us/app/any-do-to-do-list-calendar-reminders-planner/id497328576?mt=8)T5[**Todoist**](https://en.todoist.com/)(我们 [最喜欢的两个待办应用](https://lifehacker.com/five-best-to-do-list-managers-5924093) )和[**Evernote**](https://itunes.apple.com/us/app/evernote-stay-organized/id281796108?mt=8))。
 *   [**Gboard**](https://itunes.apple.com/us/app/gboard-a-new-keyboard-from-google/id1091700242?mt=8) ，Google 的 iOS 键盘对于壁橱安卓粉丝来说，终于有了和安卓版 一样的单手打字模式。当然，在 iOS 11 中，苹果的默认键盘也是如此。
