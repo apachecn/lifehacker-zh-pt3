@@ -6,7 +6,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 泥塑面团
 
@@ -14,7 +14,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 一个气球
 
@@ -22,7 +22,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 棉绒滚筒
 
@@ -30,7 +30,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 抹布
 
@@ -38,7 +38,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 发胶
 
@@ -46,7 +46,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 椰子油
 

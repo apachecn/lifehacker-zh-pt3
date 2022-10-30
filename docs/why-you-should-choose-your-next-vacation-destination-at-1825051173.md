@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 扩展你对度假目的地的想法
 
@@ -20,7 +20,7 @@ Beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 查找新的工作播放列表
 
@@ -30,7 +30,7 @@ Beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 投资你自己的发展
 
@@ -40,7 +40,7 @@ Beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 探索罐装葡萄酒的广阔世界
 
@@ -50,7 +50,7 @@ Beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 把健身当成一场马拉松，而不是短跑
 
@@ -60,7 +60,7 @@ Beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 从你精心制作的护肤程序中退一步
 

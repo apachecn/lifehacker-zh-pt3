@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 不要在最后一刻醒来
 
@@ -20,7 +20,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 删除你在推特上发的所有愚蠢的东西
 
@@ -30,7 +30,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 给自己剪一个适合夏天的发型
 
@@ -40,7 +40,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 实际上用完了你所有的香蕉
 
@@ -50,7 +50,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 做一件让你紧张的事情
 
@@ -60,7 +60,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 享受你新发现的空闲时间
 
@@ -70,7 +70,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 在你早上的日常饮食中加入一些蔬菜
 

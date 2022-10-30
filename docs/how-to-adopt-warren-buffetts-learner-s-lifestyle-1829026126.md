@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-adopt-warren-buffetts-learner-s-lifestyle-1829026126>
 
-[Get Ready To...](https://worksmarter.kinja.com)) : title[![](../Images/6df5a12c55ead4b12ad20872c9620c3d.png)](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
+[Get Ready To...](https://worksmarter.kinja.com)) : title[](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
 
 对于 21 世纪的知识工作者来说，效率和生产率仍然是被视为“成功”的不可或缺的因素我们重视每天能写出 10 篇文章的作家，我们也向投资界人士寻求建议，告诉他们应该做哪 10 笔交易来最大化我们的投资组合。但是如果我们可以重新定义这个观点呢？如果我们强调学习、洞察力和质量，而不是优先考虑行动和生产，会怎么样？换句话说，如果我们都有点像沃伦·巴菲特会怎么样？
 

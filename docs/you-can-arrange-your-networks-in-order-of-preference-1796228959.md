@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/you-can-arrange-your-networks-in-order-of-preference-1796228959>
 
-[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+
 
 每当我带着笔记本电脑外出时，通常是在咖啡店或共同工作的地方，我都会注意到一些特殊的连接问题。我的 Mac 通常会连接到 ISP 提供的连接，而不是我手机上的热点或大楼里的 Wi-Fi，好像它更喜欢其中一个。
 

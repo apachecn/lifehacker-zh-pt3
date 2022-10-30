@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/why-you-should-regularly-check-your-internet-speeds-1827367534>
 
-[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+
 
 没有什么比告诉朋友或爱人“嘿，能给我一分钟吗？”更性感的了。我必须测试完我的下载速度，然后我们就可以去参加派对了。”但是如果你不每周检查你的网速，你可能不知道什么时候有问题。当你浏览网站、观看(1080p) YouTube 或与朋友聊天时，你可能不会注意到 150 Mbps 和 80 Mbps 下载速度之间的差异，但如果你正在下载一个巨大的堡垒之夜更新，为什么要在慢车道上行驶呢？
 

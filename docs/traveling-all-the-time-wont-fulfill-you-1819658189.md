@@ -8,7 +8,7 @@
 
 本周的精选来自罗马哲学家 [小塞内加](https://en.wikipedia.org/wiki/Seneca_the_Younger) 。他告诫旅行者不要总是屈服于他们的旅游癖:
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 无处不在的人无处不在。当一个人把所有的时间都花在国外旅行时，他最终会有很多熟人，但没有朋友。
 

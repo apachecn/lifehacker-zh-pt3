@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 在户外工作
 
@@ -20,7 +20,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 在新住处安顿下来
 
@@ -30,7 +30,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 在找到完美的电子阅读器之前，不要休息
 
@@ -40,7 +40,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 消除分摊费用的尴尬
 
@@ -50,7 +50,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 整理你的办公室储物装置
 
@@ -60,7 +60,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 为汽车突发事件做好准备
 

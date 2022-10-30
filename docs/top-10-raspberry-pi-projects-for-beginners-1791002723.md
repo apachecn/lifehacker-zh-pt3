@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/top-10-raspberry-pi-projects-for-beginners-1791002723>
 
-[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
+
 
 也许你在假期买了一个树莓派，或者你已经坐在一个超级多功能的手掌大小的计算机上有一段时间了。如果你一直想知道如何开始你的 ，或者你可以建立什么是值得的，这里有十个好主意。
 

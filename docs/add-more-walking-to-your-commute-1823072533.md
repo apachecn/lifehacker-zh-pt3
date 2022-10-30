@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 通勤时选择风景优美的路线
 
@@ -20,7 +20,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 停止对抗你对眼镜的需求
 
@@ -30,7 +30,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 没有纸盘就不是办公室了
 
@@ -40,7 +40,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 充分利用你的信用卡
 
@@ -50,7 +50,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 转向需要更少配件的技术
 
@@ -60,7 +60,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 扩展您的播客曲目
 
@@ -70,7 +70,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 当有疑问时，加上贝利的
 
@@ -80,7 +80,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 伪造日出的效果
 
@@ -90,7 +90,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 做一些对你的认知功能有益的事情
 
@@ -100,7 +100,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 驯服你那堆杂乱的鞋子
 

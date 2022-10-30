@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/top-10-raspberry-pi-zero-projects-that-make-use-of-its-1792403310>
 
-[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
+
 
 树莓派长期以来一直是 DIY 电子项目 的爱好者选择。树莓派 Zero、、T5(大约一根口香糖的大小) ，仅仅 5 美元就有它自己的特殊用途。以下是我们最喜欢的十个利用其规模的项目。
 

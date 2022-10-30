@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 妥善处理你的伤口
 
@@ -20,7 +20,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 只是在假期里洗衣服
 
@@ -30,7 +30,7 @@
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 提高你的切肉技术
 
@@ -40,7 +40,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 不要在锻炼中跳绳
 
@@ -50,7 +50,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 如果你打算花时间玩游戏，那就认真投入
 
@@ -60,7 +60,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 说服你爱的人少抽烟
 
@@ -70,7 +70,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 如果你有一个爱好，那就坚持每天练习
 

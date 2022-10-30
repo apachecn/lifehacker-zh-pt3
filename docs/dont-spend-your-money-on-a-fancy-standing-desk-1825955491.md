@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 制作一个 DIY 立式书桌
 
@@ -20,7 +20,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 给你的轮转增加一些新的阅读材料
 
@@ -30,7 +30,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 在有压力的时候，阻止自己失控
 
@@ -40,7 +40,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 更换你的肮脏的浴帘衬里已经
 
@@ -50,7 +50,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 整理你的文档
 
@@ -60,7 +60,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 在游泳池度过温暖的周末
 
@@ -70,7 +70,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 用更多的肥皂清洗你的肥皂
 
@@ -80,7 +80,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 为你的网友腾出时间
 
@@ -90,7 +90,7 @@ beth skwarecki，健康编辑
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 美白你的牙齿，没有价格过高的条纹
 

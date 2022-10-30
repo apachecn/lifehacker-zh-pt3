@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/what-i-ve-learned-from-tinkering-with-the-raspberry-pi-1793236686>
 
-[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
+
 
 今天是圆周率日，还有什么比回顾一下每个人最喜爱的 35 美元业余爱好者电脑树莓派更好的方式来庆祝每个人最喜爱的数学常数呢？自从树莓派发布以来，我已经写了大量的指南、博客和一本 [已经过时的书](https://www.amazon.com/Idiots-Guides-Raspberry-Thorin-Klosowski/dp/1615647783?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/what-i-ve-learned-from-tinkering-with-the-raspberry-pi-1793236686&asc_source=&tag=kinjalifehackerlink-20) 关于你可以用它做的各种项目。在那段时间里，我学到了很多。
 

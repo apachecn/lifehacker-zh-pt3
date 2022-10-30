@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/what-to-do-if-theres-a-data-breach-1826450129>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 我们都将不可避免地受到某种数据泄露的影响(你可能已经受到了影响)。当那一天到来时，你会想要准备好减轻后果。
 
