@@ -1,6 +1,6 @@
 # 如果你想快速蘸酸奶油，可以把这些餐具加入酸奶油中
 
-> 原文:[https://life hacker . com/add-these-pantry-items-to-sour-cream-if-you-into-quic-1828723776](https://lifehacker.com/add-these-pantry-items-to-sour-cream-if-youre-into-quic-1828723776)
+> 原文：<https://lifehacker.com/add-these-pantry-items-to-sour-cream-if-youre-into-quic-1828723776>
 
 如果你喜欢吃零食，蘸酱不仅仅是一种聚会食物——蘸酱是一种生活方式。把咸脆的东西蘸到奶油里是一种非常愉快的感官体验，我曾经吃过一顿薯条蘸酱的晚餐。洋葱蘸酱是我最喜欢的，但它需要一点时间来做好，所以我喜欢有一些其他的“食谱”来满足我对蘸酱的渴望。
 

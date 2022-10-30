@@ -1,6 +1,6 @@
 # 使用 iOS 应用程序“芦荟芽”创建并保持健康的习惯
 
-> 原文:[https://life hacker . com/create-and-maintain-health-habits-with-the-IOs-app-alo-1827168141](https://lifehacker.com/create-and-maintain-healthy-habits-with-the-ios-app-alo-1827168141)
+> 原文：<https://lifehacker.com/create-and-maintain-healthy-habits-with-the-ios-app-alo-1827168141>
 
 一整天，我总是知道我*应该*做一些事情来改善我的健康和整体性格:定期站立，喝大量的水，告诉我的朋友他们很好，我们应该出去玩，等等。虽然我偶尔会有这些想法，但它们永远不足以形成一种规律的生活方式。谢天谢地，免费的 iOS 应用程序 [芦荟芽](https://itunes.apple.com/us/app/aloe-bud/id1318382054?mt=8) 很乐意帮忙。
 

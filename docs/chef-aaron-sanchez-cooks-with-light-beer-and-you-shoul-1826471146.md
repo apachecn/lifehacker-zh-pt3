@@ -1,6 +1,6 @@
 # 厨师 aaron sánchez 用淡啤酒烹饪，你也应该这样做
 
-> 原文:[https://life hacker . com/chef-aaron-Sanchez-cooks-with-light-beer-and-you-shoull-1826471146](https://lifehacker.com/chef-aaron-sanchez-cooks-with-light-beer-and-you-shoul-1826471146)
+> 原文：<https://lifehacker.com/chef-aaron-sanchez-cooks-with-light-beer-and-you-shoul-1826471146>
 
 我们在 Skillet 是用啤酒、 [烹饪的超级粉丝，尤其是更便宜的](https://lifehacker.com/you-should-be-cooking-with-cheap-beer-1822914299) ，这就是为什么我*发现厨师 Aaron Sanchez(又名最冷的*剁碎的*法官)在他的夏季烹饪中大量使用淡啤酒而激动不已的原因。主厨桑切斯也“致力于让生活变得更简单”，并好心地分享了一些充分利用户外饮食的夏季小贴士。*
 

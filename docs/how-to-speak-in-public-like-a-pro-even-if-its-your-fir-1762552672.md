@@ -1,6 +1,6 @@
 # 如何像专家一样在公共场合说话，即使这是你的第一次
 
-> 原文:[https://life hacker . com/how-to-speak-in-public-like-a-pro-even-if-its-your-fir-1762552672](https://lifehacker.com/how-to-speak-in-public-like-a-pro-even-if-its-your-fir-1762552672)
+> 原文：<https://lifehacker.com/how-to-speak-in-public-like-a-pro-even-if-its-your-fir-1762552672>
 
 如果你一想到演讲就发抖，你并不孤单。很正常。光是想想就让我不寒而栗——我已经做了 18 年的演讲。以下是这些年来我学到的消除公众演讲恐惧的方法。
 

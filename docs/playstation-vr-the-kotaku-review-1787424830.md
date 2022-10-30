@@ -1,6 +1,6 @@
 # PlayStation VR:Kotaku 评论
 
-> 原文:[https://kotaku . com/PlayStation-VR-the-kotaku-review-1787424830](https://kotaku.com/playstation-vr-the-kotaku-review-1787424830)
+> 原文：<https://kotaku.com/playstation-vr-the-kotaku-review-1787424830>
 
 开门见山:PlayStation VR 应该更好。在其最佳状态下，索尼的新虚拟现实耳机设法变戏法般地创造出现代虚拟现实的惊人的身临其境的奇迹。同样令人沮丧的是，过时的硬件往往会阻碍 it 的发展，无法完全满足 it 的需求。
 

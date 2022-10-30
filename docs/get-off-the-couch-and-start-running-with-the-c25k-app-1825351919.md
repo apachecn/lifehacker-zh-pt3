@@ -1,6 +1,6 @@
 # 离开沙发，开始使用 C25K 应用程序跑步
 
-> 原文:[https://life hacker . com/get-off the-couch-and-start-running with-the-c25k-app-1825351919](https://lifehacker.com/get-off-the-couch-and-start-running-with-the-c25k-app-1825351919)
+> 原文：<https://lifehacker.com/get-off-the-couch-and-start-running-with-the-c25k-app-1825351919>
 
 iOS/Android:我真的很讨厌跑步。我一直讨厌跑步。每次我决定(再次)尝试跑步时，我都会想我有多愿意骑自行车、举重物或做其他任何事情(除了深蹲)。然而，当我去跑步时，我会使用免费的 C25K 应用程序来尝试并指导我跑得更远更好。
 

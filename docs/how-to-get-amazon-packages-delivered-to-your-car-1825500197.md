@@ -1,6 +1,6 @@
 # 如何将亚马逊包裹送到你的车上
 
-> 原文:[https://life hacker . com/how-to-get-Amazon-packages-delivered-to-your-car-1825500197](https://lifehacker.com/how-to-get-amazon-packages-delivered-to-your-car-1825500197)
+> 原文：<https://lifehacker.com/how-to-get-amazon-packages-delivered-to-your-car-1825500197>
 
 [亚马逊](https://lifehacker.com/how-to-stop-giving-amazon-your-money-1823468097?rev=1520460652473) 想上你的车。与该公司之前的 [送货上门服务](https://lifehacker.com/why-you-shouldn-t-get-the-amazon-key-right-now-1819924272) 不同，此举其实有些道理。如果你不喜欢让一个陌生人进入你的房子，但你也不希望你的包裹在门廊上被偷，那么亚马逊的新车内送货服务是一个不错的妥协。
 

@@ -1,6 +1,6 @@
 # DJI 新的 Mavic Air 非常小，可以放进夹克口袋里
 
-> 原文:[https://gizmodo . com/djis-new-mavic-air-fits-in-your-pocket-1822330684](https://gizmodo.com/djis-new-mavic-air-fits-in-your-pocket-1822330684)
+> 原文：<https://gizmodo.com/djis-new-mavic-air-fits-in-your-pocket-1822330684>
 
 DJI 刚刚展示了一款令人欣喜的新型微型无人机，名为。这很像去年宣布的 DJI 火花，但它的旋翼折叠起来，使这个小小的飞机更加小巧。如果你把 Mavic Air 放在智能手机旁边的桌子上，你会发现它们的尺寸差不多。不过，无人机要胖得多。
 

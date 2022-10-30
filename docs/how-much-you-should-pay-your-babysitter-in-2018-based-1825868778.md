@@ -1,6 +1,6 @@
 # 根据你住的地方，2018 年你应该付给你的保姆多少钱
 
-> 原文:[https://life hacker . com/2018-based-1825868778](https://lifehacker.com/how-much-you-should-pay-your-babysitter-in-2018-based-1825868778)
+> 原文：<https://lifehacker.com/how-much-you-should-pay-your-babysitter-in-2018-based-1825868778>
 
 *(编者注:本帖 2019 年更新版本，* [*点击此处*](https://offspring.lifehacker.com/preview/how-much-you-should-pay-your-babysitter-in-2019-based-1833643546?rev=1553794974294) *)。)*
 

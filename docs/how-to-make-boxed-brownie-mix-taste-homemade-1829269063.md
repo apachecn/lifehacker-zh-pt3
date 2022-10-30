@@ -1,6 +1,6 @@
 # 如何使盒装布朗尼混合味道自制
 
-> 原文:[https://life hacker . com/how-to-make-boxed-brownie-mix-taste-自制-1829269063](https://lifehacker.com/how-to-make-boxed-brownie-mix-taste-homemade-1829269063)
+> 原文：<https://lifehacker.com/how-to-make-boxed-brownie-mix-taste-homemade-1829269063>
 
 如果有一座山是我会死在上面的，那就是 [盒装混合布朗尼](https://lifehacker.com/an-ode-to-boxed-mix-brownies-1828685632) 通常是唯一值得我花时间的布朗尼——但这并不意味着我不喜欢用它们来制造幻想。如果你想让自己的车看起来更像美食，只需*换油*。
 

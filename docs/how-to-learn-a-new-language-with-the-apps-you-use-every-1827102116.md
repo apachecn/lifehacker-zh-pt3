@@ -1,6 +1,6 @@
 # 如何用你每天使用的应用程序学习一门新语言
 
-> 原文:[https://life hacker . com/how-to-learn-a-new-language-with the-apps-you-use-every-1827102116](https://lifehacker.com/how-to-learn-a-new-language-with-the-apps-you-use-every-1827102116)
+> 原文：<https://lifehacker.com/how-to-learn-a-new-language-with-the-apps-you-use-every-1827102116>
 
 无论你是想在下一次度假时与当地人聊天，还是想在以后的生活中远离痴呆症 ，掌握双语无疑是很方便的。I 如果你刚刚开始学习一门新语言，知道从哪里开始会是一个令人望而生畏的前景。当然，你可以通过在另一个国家生活一段来沉浸其中，同时或使用 [Duolingo 或罗塞塔石碑](https://lifehacker.com/language-learning-showdown-rosetta-stone-vs-duolingo-1790938306#_ga=2.254890445.47977805.1529932552-3846207152.1521480874) 之类的服务。Y 你还可以设置你最喜欢的设备、网站和服务，帮助你快速掌握新的语言。下面是方法。
 

@@ -1,6 +1,6 @@
 # 找出哪些认知偏见改变了你的观点
 
-> 原文:[https://life hacker . com/find-out-the-cognitive-bias-alter-your-perspective-1819279216](https://lifehacker.com/find-out-which-cognitive-biases-alter-your-perspective-1819279216)
+> 原文：<https://lifehacker.com/find-out-which-cognitive-biases-alter-your-perspective-1819279216>
 
 认知偏见会改变你看待一切的方式，而且通常是以坏的方式。幸运的是，意识到你的偏见可以帮助你克服它们。
 

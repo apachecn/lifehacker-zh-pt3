@@ -1,6 +1,6 @@
 # 人际互动是无休止的可怕新闻循环的解毒剂
 
-> 原文:[https://life hacker . com/human-interaction-is-the-defect-to-endless-worthy-1822231849](https://lifehacker.com/human-interaction-is-the-antidote-to-the-endless-awful-1822231849)
+> 原文：<https://lifehacker.com/human-interaction-is-the-antidote-to-the-endless-awful-1822231849>
 
 当我们上周五汇总员工的每周更新时，我们的编辑正在调整我们的寒冷天气配件，采用药物来对抗季节性疾病，并试图给我们的社交媒体饮食添加一些积极因素。
 

@@ -1,6 +1,6 @@
 # 为什么你应该和你的孩子一起看无声电影
 
-> 原文:[https://life hacker . com/why-you-should-watch-silent-movies-with-your-kid-1825826161](https://lifehacker.com/why-you-should-watch-silent-movies-with-your-kid-1825826161)
+> 原文：<https://lifehacker.com/why-you-should-watch-silent-movies-with-your-kid-1825826161>
 
 我不知道这说明了我作为父母的愿望，但我的孩子长大后一件令人兴奋的事情是，我们现在可以一起看更多的电视了。我们一直在寻找更多可以全家一起参加的节目——例如，到了《厨艺大师》的时间，我们三个人会立即停下手头的工作，坐到沙发上，依偎在毯子下，准备观看一群小小的家庭厨师用他们的烹饪作品让我们眼花缭乱。现在看电视感觉更像是真正的联系时间，而不是*请坐在这里，看这个动画废话，让我可以完成事情的时间。* 
 

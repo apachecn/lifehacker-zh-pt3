@@ -1,6 +1,6 @@
 # 教你的孩子如何下棋，让他们和你交换位置
 
-> 原文:[https://life hacker . com/teach-your-kids-how-to-play-chess-by-let-them-switc-1826923885](https://lifehacker.com/teach-your-kids-how-to-play-chess-by-letting-them-switc-1826923885)
+> 原文：<https://lifehacker.com/teach-your-kids-how-to-play-chess-by-letting-them-switc-1826923885>
 
 当我还是个孩子的时候，我爸爸通过让我分析棋子本身的形状来教我某些棋子是如何移动的。车，由横线和竖线组成的城堡，水平和垂直移动。有斜线的主教沿对角线移动。我从来不擅长这个游戏，但我清楚地记得坐在我们的餐桌旁，看着那个男人兴高采烈地解释这一切(他甚至用马克笔给主教添加了眼睛，并给它起了个绰号叫“乔伊·毕晓普”——多好的爸爸啊。现在，作为一名家长，我确信下棋是和你的孩子建立联系的一种很好的方式。
 

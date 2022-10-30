@@ -1,6 +1,6 @@
 # 在山姆俱乐部或好市多购买你的婚礼鲜花
 
-> 原文:[https://life hacker . com/buy-your-wedding-flowers-at-SAMs-club-or-Costco-1826000249](https://lifehacker.com/buy-your-wedding-flowers-at-sams-club-or-costco-1826000249)
+> 原文：<https://lifehacker.com/buy-your-wedding-flowers-at-sams-club-or-costco-1826000249>
 
 “我自己来做花！”是许多吝啬的新娘的战斗口号，但是试图在婚礼前两天安排一大束花束(并让它们看起来漂亮)并不是你想要着手的那种有趣的 DIY 项目。幸运的是，有一些便宜的花卉包装，你可以在好市多和山姆俱乐部找到它们。
 

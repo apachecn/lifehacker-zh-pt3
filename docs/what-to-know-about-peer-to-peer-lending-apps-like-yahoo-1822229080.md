@@ -1,6 +1,6 @@
 # 如何了解雅虎的“Tanda”等 P2P 贷款应用
 
-> 原文:[https://life hacker . com/what-to-know-about-peer-to-peer-lending-apps-like-Yahoo-1822229080](https://lifehacker.com/what-to-know-about-peer-to-peer-lending-apps-like-yahoo-1822229080)
+> 原文：<https://lifehacker.com/what-to-know-about-peer-to-peer-lending-apps-like-yahoo-1822229080>
 
 雅虎金融正寻求将最古老的无息贷款形式之一货币化。
 

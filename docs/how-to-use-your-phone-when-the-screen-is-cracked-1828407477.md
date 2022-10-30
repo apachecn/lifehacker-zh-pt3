@@ -1,6 +1,6 @@
 # 屏幕裂了怎么用手机
 
-> 原文:[https://life hacker . com/how-to-use-your-phone-when the screen-hacker-1828407477](https://lifehacker.com/how-to-use-your-phone-when-the-screen-is-cracked-1828407477)
+> 原文：<https://lifehacker.com/how-to-use-your-phone-when-the-screen-is-cracked-1828407477>
 
 你的手机掉了，屏幕碎了。呃。虽然你可能很聪明地将你的关键数据放在云上，对吗？—在你把智能手机拿去维修或换成新的之前，你可能还想从手机里取出一些东西。或者你现在买不起新手机。屏幕裂了怎么继续用手机？
 

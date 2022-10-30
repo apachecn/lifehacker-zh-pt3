@@ -1,6 +1,6 @@
 # 我是西蒙·吉尔兹，机器人发明家，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-simone-giertz-robot-inventor-and-this-is-how-I-wor-1775779079](https://lifehacker.com/im-simone-giertz-robot-inventor-and-this-is-how-i-wor-1775779079)
+> 原文：<https://lifehacker.com/im-simone-giertz-robot-inventor-and-this-is-how-i-wor-1775779079>
 
 如果你最近看过一个机器人优雅地做傻事的视频，很可能是西蒙·吉尔兹 T3[的作品。正如一些人所说，她已经迅速成为低劣机器人的女王。](http://simonegiertz.com/) 
 

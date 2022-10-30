@@ -1,6 +1,6 @@
 # 找出你的照片在网上被非法使用的地方
 
-> 原文:[https://life hacker . com/discover-where-your-photos-are-ill-1825282627](https://lifehacker.com/discover-where-your-photos-are-illegally-being-used-onl-1825282627)
+> 原文：<https://lifehacker.com/discover-where-your-photos-are-illegally-being-used-onl-1825282627>
 
 几年前，我在浏览一家大型杂志的主页时，看到一张我拍摄的照片出现在主页的中间。这张照片是我在一次新闻发布会上拍摄的马克·扎克伯格惊讶的独特照片。我拍照时坐在哪里，我很幸运在他做鬼脸的那一刻抓住了他，这是独一无二的一张照片。我知道这是我的，我也知道我没有允许杂志使用它。
 

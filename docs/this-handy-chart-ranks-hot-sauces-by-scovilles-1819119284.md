@@ -1,6 +1,6 @@
 # 这张方便的图表按斯科维尔对辣酱进行了排名
 
-> 原文:[https://life hacker . com/this-handy-chart-ranks-hot-sauce-by-scovilles-1819119284](https://lifehacker.com/this-handy-chart-ranks-hot-sauces-by-scovilles-1819119284)
+> 原文：<https://lifehacker.com/this-handy-chart-ranks-hot-sauces-by-scovilles-1819119284>
 
 所有的“辣酱”都有一定的热量，但是在品尝之前很难确切知道你会得到多少热量。下面这张来自 [Sriracha2Go](https://sriracha2go.com/blogs/the-spicier-life/how-hot-is-sriracha-scoville-scale) 的图表，按斯科维尔酱类进行了排名，可以给你一点点你正在进入的感觉。
 

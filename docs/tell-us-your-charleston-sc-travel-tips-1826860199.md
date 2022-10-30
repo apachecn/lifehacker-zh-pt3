@@ -1,6 +1,6 @@
 # 告诉我们您在南卡罗来纳州查尔斯顿的旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Charleston-sc-travel-tips-1826860199](https://lifehacker.com/tell-us-your-charleston-sc-travel-tips-1826860199)
+> 原文：<https://lifehacker.com/tell-us-your-charleston-sc-travel-tips-1826860199>
 
 我的家乡以前叫纽约查尔斯顿。后来一群人从康涅狄格州的老莱姆搬来，他们把它重新命名为利马，发音像豆子。因此，给南卡罗来纳州查尔斯顿的居民一个警告:永远不要让来自老莱姆的人进来。
 

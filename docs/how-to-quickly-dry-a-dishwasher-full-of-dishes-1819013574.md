@@ -1,6 +1,6 @@
 # 如何快速烘干装满碗碟的洗碗机
 
-> 原文:[https://life hacker . com/how-to-quick-dry-a-洗碗机-装满碗碟-1819013574](https://lifehacker.com/how-to-quickly-dry-a-dishwasher-full-of-dishes-1819013574)
+> 原文：<https://lifehacker.com/how-to-quickly-dry-a-dishwasher-full-of-dishes-1819013574>
 
 当你在等着一个锅洗完，这样你就可以做晚饭了，洗碗机的干燥循环似乎会持续很久。聪明人的做法是打开门，拿起你的盘子，用毛巾手动擦干，但是[*本周*](https://www.cnet.com/how-to/how-to-flash-dry-dishes-in-the-dishwasher/)*指出，打开洗碗机的门实际上可以比整个烘干周期更快地烘干你的盘子，为你节省一些时间和电力。* 
 

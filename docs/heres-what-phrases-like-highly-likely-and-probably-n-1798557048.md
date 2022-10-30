@@ -1,6 +1,6 @@
 # 下面是像“极有可能”和“可能不会”这样的短语对不同的人意味着什么
 
-> 原文:[https://life hacker . com/heres-what-phrases-like-high-likely-and-probably-n-1798557048](https://lifehacker.com/heres-what-phrases-like-highly-likely-and-probably-n-1798557048)
+> 原文：<https://lifehacker.com/heres-what-phrases-like-highly-likely-and-probably-n-1798557048>
 
 你觉得“可能”有多可能？Redditor zonination 要求投票子编辑 [/r/samplesize](http://reddit.com/r/samplesize) 的用户给一系列关于概率的常见短语分配百分比值， [用图表显示结果](https://www.reddit.com/r/dataisbeautiful/comments/3hi7ul/oc_what_someone_interprets_when_you_say_probably/) 。样本量很小(只有 46 名受访者)，但数据看起来仍然足够有用——而且它通常与启发它的调查结果相匹配， [对 23 名北约军官的研究](https://np.reddit.com/r/dataisbeautiful/comments/3gmj6h/probable_is_a_vague_word_but_this_image_helps_ive/ctzgwhm/) 。在他们最初调查的两年后，zonination 将数据重新绘制成一幅华丽的“[Joy plot](https://cran.r-project.org/web/packages/ggjoy/vignettes/introduction.html)”([*a la*Joy Division](https://blogs.scientificamerican.com/sa-visual/pop-culture-pulsar-origin-story-of-joy-division-s-unknown-pleasures-album-cover-video/))。
 

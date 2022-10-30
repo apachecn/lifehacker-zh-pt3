@@ -1,6 +1,6 @@
 # 给父母和孩子的最佳播客
 
-> 原文:[https://life hacker . com/podcast-for-parents-and-kids-1797320841](https://lifehacker.com/podcasts-for-parents-and-kids-1797320841)
+> 原文：<https://lifehacker.com/podcasts-for-parents-and-kids-1797320841>
 
 一个好的播客可以将平凡的活动，如清洁、跑腿和通勤，转化为学习新事物或娱乐的时间。这里有一些专注于育儿的播客，你可以和你的孩子一起听(不会感到无聊)，还有一些非常适合你的孩子自己听。
 

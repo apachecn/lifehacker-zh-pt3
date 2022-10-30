@@ -1,6 +1,6 @@
 # 列出一个“接朋友”的名单，这样你就不用支付日托的滞纳金了
 
-> 原文:[https://life hacker . com/put-together-a-pick-up-pal-list-to-save-you-from-day-1797453321](https://lifehacker.com/put-together-a-pick-up-pals-list-to-save-you-from-day-1797453321)
+> 原文：<https://lifehacker.com/put-together-a-pick-up-pals-list-to-save-you-from-day-1797453321>
 
 你知道这种感觉，被堵在路上或拥挤的公交车上，争分夺秒地赶在日托滞纳金开始之前去接你的孩子。下一次，不要紧张，把你的“接朋友”联系人名单放在你手边。你可以避免滞纳金，你的孩子也不会因为最后一个去托儿所而感到难过。
 

@@ -1,6 +1,6 @@
 # 如何讲故事，与艾伦·艾尔达&母亲的凯瑟琳·波内斯
 
-> 原文:[https://life hacker . com/how-to-tell-a-story-with-Alan-alda-the-蛾子-catheri-1797395059](https://lifehacker.com/how-to-tell-a-story-with-alan-alda-the-moths-catheri-1797395059)
+> 原文：<https://lifehacker.com/how-to-tell-a-story-with-alan-alda-the-moths-catheri-1797395059>
 
 本周，艾伦·艾尔达和蛾的凯瑟琳·波内斯加入我们谈论讲故事。什么是好故事？怎样才能成为一个好的讲故事的人？我们如何利用讲故事来更好地交流，向人们推销我们的想法，让人们喜欢我们？
 

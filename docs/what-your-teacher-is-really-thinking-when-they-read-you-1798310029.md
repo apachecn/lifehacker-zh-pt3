@@ -1,6 +1,6 @@
 # 当你的老师读你的论文时，他们真正在想什么
 
-> 原文:[https://life hacker . com/what-your ' s teacher ' s really-thinking when-these-read-you-1798310029](https://lifehacker.com/what-your-teacher-is-really-thinking-when-they-read-you-1798310029)
+> 原文：<https://lifehacker.com/what-your-teacher-is-really-thinking-when-they-read-you-1798310029>
 
 欢迎回到学校，孩子们！在短短的几周内——也许更快——你将不得不回到你最喜欢的深夜爱好:写论文。我在学生时代挣扎着写论文，但后来有一天我成了讲师，不得不*读*这种垃圾。天哪，伙计们。
 

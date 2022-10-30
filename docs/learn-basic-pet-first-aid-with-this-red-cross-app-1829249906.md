@@ -1,6 +1,6 @@
 # 通过这个红十字会应用程序学习基本的宠物急救
 
-> 原文:[https://life hacker . com/learn-basic-pet-急救与此红十字会-app-1829249906](https://lifehacker.com/learn-basic-pet-first-aid-with-this-red-cross-app-1829249906)
+> 原文：<https://lifehacker.com/learn-basic-pet-first-aid-with-this-red-cross-app-1829249906>
 
 当我第一次得到我的狗时，我花了很多时间给兽医办公室打电话。我没有养过狗，像任何新妈妈一样，我有无数个“这正常吗？”问题。我的毛球也喜欢街边食物，街边食物是指其他人丢弃在街上的食物。
 

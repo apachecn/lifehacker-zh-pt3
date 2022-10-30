@@ -1,6 +1,6 @@
 # 为什么不含酒精的啤酒是德国的运动饮料
 
-> 原文:[https://life hacker . com/why-non-alcohol-beer-is-Germany-s-sports-drink-1823266882](https://lifehacker.com/why-non-alcoholic-beer-is-germany-s-sports-drink-1823266882)
+> 原文：<https://lifehacker.com/why-non-alcoholic-beer-is-germany-s-sports-drink-1823266882>
 
 当我说:*不含酒精的啤酒到底有什么意义时，我想我代表了所有美国人(除了 [、迈克·彭斯](https://nypost.com/2018/02/22/mike-pences-vice-is-non-alcoholic-beer/) )*但原来是 [在欧洲流行的一种运动饮料](https://www.nytimes.com/2018/02/19/sports/olympics/germany-olympics-beer.html) 。公平地说，这并不比这里的许多运动员对巧克力牛奶发誓的方式更奇怪。
 

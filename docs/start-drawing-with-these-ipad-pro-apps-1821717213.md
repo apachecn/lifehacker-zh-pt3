@@ -1,6 +1,6 @@
 # 使用这些 iPad Pro 应用程序开始绘画
 
-> 原文:[https://life hacker . com/start-drawing-with these-ipad-pro-apps-1821717213](https://lifehacker.com/start-drawing-with-these-ipad-pro-apps-1821717213)
+> 原文：<https://lifehacker.com/start-drawing-with-these-ipad-pro-apps-1821717213>
 
 与传统的纸和笔相比，有抱负的艺术家可以欣赏在平板电脑上绘画的效用。首先，没有混乱。但是如果你有一台 iPad Pro，当搭配上合适的硬件和应用程序来迎合你的绘画技巧和风格时，你就有能力提高你的艺术能力。即使你不是艺术类型的人，学习画画的好处也不仅仅是艺术作品。
 

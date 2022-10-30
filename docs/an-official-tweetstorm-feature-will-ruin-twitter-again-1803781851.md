@@ -1,6 +1,6 @@
 # 一个官方的推特风暴功能将再次毁掉推特
 
-> 原文:[https://life hacker . com/an-official-tweet storm-feature-will-ruin-Twitter-again-1803781851](https://lifehacker.com/an-official-tweetstorm-feature-will-ruin-twitter-again-1803781851)
+> 原文：<https://lifehacker.com/an-official-tweetstorm-feature-will-ruin-twitter-again-1803781851>
 
 据报道，Twitter 正在测试其 Android 应用程序 的一项功能，该功能会自动将大块文本重新格式化为长时间的自我回复线程，或推特风暴。这会毁了 Twitter，它已经被新功能毁了很多次了。
 

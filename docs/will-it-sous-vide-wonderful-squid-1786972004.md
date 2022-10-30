@@ -1,6 +1,6 @@
 # 它会腐烂吗？奇妙的鱿鱼
 
-> 原文:[https://life hacker . com/will-it-sous-vide-wonderful-squid-1786972004](https://lifehacker.com/will-it-sous-vide-wonderful-squid-1786972004)
+> 原文：<https://lifehacker.com/will-it-sous-vide-wonderful-squid-1786972004>
 
 大家好，欢迎回到另一集《会不会破》？，每周专栏你告诉我用我的做什么[Anova](https://anovaculinary.com/)T5】。 [上周一](http://skillet.lifehacker.com/will-it-sous-vide-lets-pick-another-topic-1786736208) ，我们一组一起拉，选出了一份多肉海鲜。 
 

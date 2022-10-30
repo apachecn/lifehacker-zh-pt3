@@ -1,6 +1,6 @@
 # 它会腐烂吗？美味的咖啡
 
-> 原文:[https://life hacker . com/will-it-sous-vide-fancy-glorious-coffee-1791399700](https://lifehacker.com/will-it-sous-vide-fancy-glorious-coffee-1791399700)
+> 原文：<https://lifehacker.com/will-it-sous-vide-fancy-glorious-coffee-1791399700>
 
 你好【fam】欢迎来到特别含咖啡因的一集 [*它会吸吗？*](http://lifehacker.com/tag/will-it-sous-vide#_ga=1.149509310.949419976.1446553382) ，每周专栏，在这里我用我的沉浸循环器做任何你想让我做的事。
 

@@ -1,6 +1,6 @@
 # 不要用应用程序检查你的孩子是否在发色情短信
 
-> 原文:[https://life hacker . com/don-t-use-a-app-to-check-if-your-kids-is-sex ting-1820163279](https://lifehacker.com/dont-use-an-app-to-check-if-your-kids-are-sexting-1820163279)
+> 原文：<https://lifehacker.com/dont-use-an-app-to-check-if-your-kids-are-sexting-1820163279>
 
 当我十几岁的时候，智能手机和色情短信都不算什么。你不可能用相机拍下一些有品位的裸照，然后把它们放在你当地的药店里冲洗，这样你就可以在课间把它们传给你的另一半。
 

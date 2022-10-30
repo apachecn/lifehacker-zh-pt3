@@ -1,6 +1,6 @@
 # 咖啡真的能让人长寿吗？
 
-> 原文:[https://life hacker . com/does-coffee-really-make-you-live-longer-1796880363](https://lifehacker.com/does-coffee-really-make-you-live-longer-1796880363)
+> 原文：<https://lifehacker.com/does-coffee-really-make-you-live-longer-1796880363>
 
 两项新的研究发现，喝咖啡的人寿命更长。这些都是很好的研究，规模大，做得好——但这并不意味着咖啡是长生不老药。
 

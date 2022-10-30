@@ -1,6 +1,6 @@
 # 有一种更好的方法给你的节日酒涂上黄油
 
-> 原文:[https://life hacker . com/there-a-better-way to-butter-your 假日豪饮-1820992076](https://lifehacker.com/theres-a-better-way-to-butter-your-holiday-booze-1820992076)
+> 原文：<https://lifehacker.com/theres-a-better-way-to-butter-your-holiday-booze-1820992076>
 
 热黄油朗姆酒在理论上是如此之好，但在实践中，它总是令人失望。啧啧有声地从你的上嘴唇上抹去一层黄油有点过分，即使对我们这些像吃香蕉一样吃一条黄油的人来说也是如此。
 

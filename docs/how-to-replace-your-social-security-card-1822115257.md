@@ -1,6 +1,6 @@
 # 如何更换社保卡
 
-> 原文:[https://life hacker . com/how-to-replace-your-social-security-card-1822115257](https://lifehacker.com/how-to-replace-your-social-security-card-1822115257)
+> 原文：<https://lifehacker.com/how-to-replace-your-social-security-card-1822115257>
 
 你的社会保障卡不是魔法。损坏的话， [可以得到替换](https://www.ssa.gov/OP_Home/cfr20/422/422-0103.htm) ，一年最多三次，一生最多十次。(之后社保管理局会严格一点。)而在 25 个州，任何成年人只要有驾照就可以在线申请。
 

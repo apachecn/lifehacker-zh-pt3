@@ -1,6 +1,6 @@
 # 用这些提升情绪的日常短信增强你的自信
 
-> 原文:[https://life hacker . com/boost-your ' s confidence with things-daily-elevating-tex-1825094127](https://lifehacker.com/boost-your-confidence-with-these-daily-mood-lifting-tex-1825094127)
+> 原文：<https://lifehacker.com/boost-your-confidence-with-these-daily-mood-lifting-tex-1825094127>
 
 我们都有自己正在努力的东西。也许你想在工作中更加自信，或者更加积极。或者也许你暂时难以接受自己的身体形象，或者希望你能更好地欣赏你所拥有的一切和你周围的世界。
 

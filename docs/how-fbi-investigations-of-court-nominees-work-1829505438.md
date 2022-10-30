@@ -1,6 +1,6 @@
 # 联邦调查局对法庭提名人的调查是如何进行的
 
-> 原文:[https://life hacker . com/how-FBI-investigations-of-court-nomines-work-1829505438](https://lifehacker.com/how-fbi-investigations-of-court-nominees-work-1829505438)
+> 原文：<https://lifehacker.com/how-fbi-investigations-of-court-nominees-work-1829505438>
 
 美国联邦调查局本周就克里斯汀·布拉西·福特的性侵犯指控展开调查。为什么联邦调查局会介入，他们有权力找到什么？
 

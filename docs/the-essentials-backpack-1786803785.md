@@ -1,6 +1,6 @@
 # 必需品背包
 
-> 原文:[https://lifehacker.com/the-essentials-backpack-1786803785](https://lifehacker.com/the-essentials-backpack-1786803785)
+> 原文：<https://lifehacker.com/the-essentials-backpack-1786803785>
 
 你不想到处都带着一大堆东西，这就是为什么这个日常携带包是一个很好的提醒，少即是多。
 

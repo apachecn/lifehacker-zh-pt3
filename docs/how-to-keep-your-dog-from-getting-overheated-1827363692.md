@@ -1,6 +1,6 @@
 # 如何防止你的狗过热
 
-> 原文:[https://life hacker . com/how-to-keep your dog-from-get-overheated-1827363692](https://lifehacker.com/how-to-keep-your-dog-from-getting-overheated-1827363692)
+> 原文：<https://lifehacker.com/how-to-keep-your-dog-from-getting-overheated-1827363692>
 
 他们说只有疯狗和英国人才会在正午的阳光下外出，但当气温升得太高时，即使是疯狗(或悲伤，或高兴)也应该呆在室内。中暑和中暑会对你的狗狗造成严重的伤害，但是这个夏天你可以做一些事情来让你的狗狗保持凉爽和安全。
 

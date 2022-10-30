@@ -1,6 +1,6 @@
 # 你的二月俯卧撑挑战怎么样了？
 
-> 原文:[https://life hacker . com/hows-your-junior-push-up-challenge-going-1822994590](https://lifehacker.com/hows-your-february-push-up-challenge-going-1822994590)
+> 原文：<https://lifehacker.com/hows-your-february-push-up-challenge-going-1822994590>
 
 这个月已经过去一半了，是时候进行另一次检查了。你的俯卧撑怎么样？
 

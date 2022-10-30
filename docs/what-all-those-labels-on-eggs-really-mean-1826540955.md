@@ -1,6 +1,6 @@
 # 鸡蛋上那些标签的真正含义是什么
 
-> 原文:[https://life hacker . com/what-all-thes-labels-on-eggs-really-mean-1826540955](https://lifehacker.com/what-all-those-labels-on-eggs-really-mean-1826540955)
+> 原文：<https://lifehacker.com/what-all-those-labels-on-eggs-really-mean-1826540955>
 
 无笼比有机好吗？欧米伽-3 鸡蛋值额外的钱吗？让我们来分解一下你会在鸡蛋纸盒上看到的条款。
 

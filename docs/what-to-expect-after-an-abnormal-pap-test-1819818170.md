@@ -1,6 +1,6 @@
 # 巴氏试验异常后会发生什么
 
-> 原文:[https://life hacker . com/what-to-expect-after-a-anomaly-pap-test-1819818170](https://lifehacker.com/what-to-expect-after-an-abnormal-pap-test-1819818170)
+> 原文：<https://lifehacker.com/what-to-expect-after-an-abnormal-pap-test-1819818170>
 
 没有人喜欢任何医学测试回来的声音是“异常的”，而且，没有人喜欢[人乳头瘤病毒](https://www.webmd.com/children/vaccines/hpv-vaccine-what-you-need-know#1) (人乳头瘤病毒)的声音。当我在同一个句子中听到这两个词时，正如你所料，我完全慌了。
 

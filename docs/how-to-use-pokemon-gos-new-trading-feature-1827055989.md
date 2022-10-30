@@ -1,6 +1,6 @@
 # 如何使用口袋妖怪 go 的新交易功能
 
-> 原文:[https://life hacker . com/how-to-use-pokemon-gos-new-trading-feature-1827055989](https://lifehacker.com/how-to-use-pokemon-gos-new-trading-feature-1827055989)
+> 原文：<https://lifehacker.com/how-to-use-pokemon-gos-new-trading-feature-1827055989>
 
 尽管你可能已经退出了 Pokémon Go，但在美国各地的 城市，仍有成千上万的人“一网打尽” [，你可能很快就会看到你所居住的地方的玩家人数略有上升，因为开发商 Niantic(终于)](https://www.facebook.com/search/str/pokemon+go/keywords_groups) [将 Pokémon trading](https://pokemongolive.com/en/post/friendsandtrading/) 添加到游戏中，仅在发布两年后。
 

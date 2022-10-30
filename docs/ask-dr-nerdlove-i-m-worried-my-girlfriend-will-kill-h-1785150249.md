@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我担心如果我们分手，我的女朋友会自杀
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-m-concerned-my-friend-will-kill-h-1785150249](https://kotaku.com/ask-dr-nerdlove-i-m-worried-my-girlfriend-will-kill-h-1785150249)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-m-worried-my-girlfriend-will-kill-h-1785150249>
 
 你们好，所有发光的网络性感野兽。欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，知道一个人去很危险的交友栏目。
 

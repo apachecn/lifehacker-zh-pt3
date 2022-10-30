@@ -1,6 +1,6 @@
 # 使用 Apple Health 在手机上查看您的医疗记录
 
-> 原文:[https://life hacker . com/import-and-view-your-medical-records-on-apple-health-1827685373](https://lifehacker.com/import-and-view-your-medical-records-on-apple-health-1827685373)
+> 原文：<https://lifehacker.com/import-and-view-your-medical-records-on-apple-health-1827685373>
 
 **iOS:** 苹果和某些医疗机构正在努力让患者更频繁地查看他们的医疗记录——无缝地——苹果健康。
 

@@ -1,6 +1,6 @@
 # 谷类早餐对你有好处吗？
 
-> 原文:[https://gizmodo . com/is-早餐-麦片-任何对你有益的-1829104252](https://gizmodo.com/is-breakfast-cereal-any-good-for-you-1829104252)
+> 原文：<https://gizmodo.com/is-breakfast-cereal-any-good-for-you-1829104252>
 
 争论正确的研究，你可以让任何事情看起来致命。早餐麦片——至少是没有卡通吉祥物的那种——可能看起来无害，可能被宣传为健康食品，但是没有理由认为每一口天然风味的麦片不会让你加速走向死亡。在这个世界上，没有什么是无可怀疑的——甚至是无味的健康商店麦麸片。
 

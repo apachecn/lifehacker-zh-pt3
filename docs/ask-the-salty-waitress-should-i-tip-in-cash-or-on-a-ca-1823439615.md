@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我应该付现金还是刷卡？
 
-> 原文:[https://the take out . com/ask-the-salty-waste-I-should-tip-in-cash-on-a-ca-1823439615](https://thetakeout.com/ask-the-salty-waitress-should-i-tip-in-cash-or-on-a-ca-1823439615)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-should-i-tip-in-cash-or-on-a-ca-1823439615>
 
 * * *
 

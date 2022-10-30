@@ -1,6 +1,6 @@
 # 现在你可以在手机上使用谷歌语音助手来控制你的 Chromecast
 
-> 原文:[https://life hacker . com/now-you-can-control-your-chrome cast-using-Google-voice-1819486412](https://lifehacker.com/now-you-can-control-your-chromecast-using-google-voice-1819486412)
+> 原文：<https://lifehacker.com/now-you-can-control-your-chromecast-using-google-voice-1819486412>
 
 现在你终于可以(终于！)使用谷歌的语音助手来控制你的 Chromecast。 [*安卓警察*](http://www.androidpolice.com/2017/10/13/praise-slow-google-now-possible-control-chromecast-music-tv-playback-phones-assistant-not-just-google-home/) 报道称，谷歌终于在本周推出了这一功能。
 

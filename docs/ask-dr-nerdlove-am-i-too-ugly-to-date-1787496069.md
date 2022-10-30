@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我是不是太丑了，不能约会？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-am-I-too-ugly-to-date-1787496069](https://kotaku.com/ask-dr-nerdlove-am-i-too-ugly-to-date-1787496069)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-am-i-too-ugly-to-date-1787496069>
 
 你好你好深渊的电蓝天使，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，唯一的交友建议专栏大师 Dim Mat。
 

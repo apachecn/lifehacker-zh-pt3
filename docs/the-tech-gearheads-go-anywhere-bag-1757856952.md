@@ -1,6 +1,6 @@
 # 科技齿轮头的无处不在袋
 
-> 原文:[https://life hacker . com/the-tech-gear heads-go-anywhere-bag-1757856952](https://lifehacker.com/the-tech-gearheads-go-anywhere-bag-1757856952)
+> 原文：<https://lifehacker.com/the-tech-gearheads-go-anywhere-bag-1757856952>
 
 有时你需要在包里放一堆技术，对于读者 Chris Vega 来说，这就是收集他信息安全工作所需的一切。
 

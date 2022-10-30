@@ -1,6 +1,6 @@
 # 编码训练营如何工作
 
-> 原文:[https://life hacker . com/how-a-coding-boot-camp-works-1828026066](https://lifehacker.com/how-a-coding-boot-camp-works-1828026066)
+> 原文：<https://lifehacker.com/how-a-coding-boot-camp-works-1828026066>
 
 有多少种方法可以使用你的编码能力，就有多少种方法可以学习编码。你可以从大学课程、书籍、在线资源中学习，或者从面向所有年龄段的开发人员的几个成长中的训练营中学习。我们采访了两个这样的新兵训练营的创始人:为 7-14 岁的孩子开设的 [代码忍者](https://www.codeninjas.com/) 的戴维·格拉汉姆，以及为青少年和成年人开设的 [代码道场](https://www.codingdojo.com/) 的迈克尔·崔。他们解释了不同的方法，这两种方法都让学生能够构建自己的应用程序。
 

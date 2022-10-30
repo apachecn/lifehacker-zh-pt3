@@ -1,6 +1,6 @@
 # Windows Phone 已死——如何让 Android 成为下一个最好的东西
 
-> 原文:[https://gizmodo . com/the-windows-phone-is-dead-how-to-make-Android-the-next-1819309309](https://gizmodo.com/the-windows-phone-is-dead-how-to-make-android-the-next-1819309309)
+> 原文：<https://gizmodo.com/the-windows-phone-is-dead-how-to-make-android-the-next-1819309309>
 
 Windows Phone [已死](https://gizmodo.com/microsoft-confirms-windows-phone-isnt-getting-resurrect-1819278084#_ga=2.266555150.1287841135.1507495270-637574394.1506543594) ，但是微软并没有退出移动领域——事实上它正在加倍努力。随着大量 iOS 和 Android 应用程序的推出和快速改进，你可以在现有的手机上重现 Windows Phone 的许多感觉，只要你可以没有这些旋转的磁贴。以下是如何在移动领域全力以赴与微软合作的方法。
 

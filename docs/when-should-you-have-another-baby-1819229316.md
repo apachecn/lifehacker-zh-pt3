@@ -1,6 +1,6 @@
 # 你应该什么时候再生一个孩子？
 
-> 原文:[https://life hacker . com/when-should-you have-again-baby-1819229316](https://lifehacker.com/when-should-you-have-another-baby-1819229316)
+> 原文：<https://lifehacker.com/when-should-you-have-another-baby-1819229316>
 
 有时候，一个比“我们应该要一个孩子吗？”更难做出的决定是“我们应该再要一个孩子吗？”—如果答案是肯定的，那么问题就变成了“什么时候？”兄弟姐妹的年龄差距，也就是出生间隔，是一个巨大的分析主题——对于经济学家[社会学家](https://papers.ssrn.com/sol3/papers.cfm?abstract_id=2773587)[世界卫生组织](http://apps.who.int/iris/bitstream/10665/69855/1/WHO_RHR_07.1_eng.pdf) 以及最重要的父母来说，他们必须战略性地权衡各种因素，从经济状况到他们的职业生涯，从烦人的“时钟”到他们为孩子自己设想的关系类型。当然，决定权可能根本不在他们手中，因为你不能简单地在日历上选择一个日期，然后输入“新生儿”这很复杂，也很私人。
 

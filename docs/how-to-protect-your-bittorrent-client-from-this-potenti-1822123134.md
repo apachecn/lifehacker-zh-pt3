@@ -1,6 +1,6 @@
 # 如何保护您的 BitTorrent 客户端免受这种潜在的黑客攻击
 
-> 原文:[https://life hacker . com/how-to-protect-your-BitTorrent-client-from-this-potential-1822123134](https://lifehacker.com/how-to-protect-your-bittorrent-client-from-this-potenti-1822123134)
+> 原文：<https://lifehacker.com/how-to-protect-your-bittorrent-client-from-this-potenti-1822123134>
 
 还在用 [BitTorrent](https://lifehacker.com/torrenting-showdown-transmission-vs-qbitorrent-vs-tor-1786122054) 专门下载合法获取的内容比如操作系统镜像或者 [你想私下分享给好友的文件](https://lifehacker.com/how-to-create-a-super-private-bittorrent-community-for-5952148) ？如果是这样，你可能需要仔细检查你的安全设置，以保护自己免受谷歌 Project Zero 的研究人员所说的影响传输和其他流行的 BitTorrent 客户端的“低复杂性黑客”的攻击。该缺陷可能会使您的计算机容易受到恶意黑客的控制，但您可以通过遵循一些步骤来保护自己，直到官方修复到位。
 

@@ -1,6 +1,6 @@
 # 如何应对持续不断、噩梦般的地铁延误
 
-> 原文:[https://life hacker . com/how-to-deal-with-constant-恶梦般的地铁延误-1797027262](https://lifehacker.com/how-to-deal-with-constant-nightmarish-subway-delays-1797027262)
+> 原文：<https://lifehacker.com/how-to-deal-with-constant-nightmarish-subway-delays-1797027262>
 
 即使你不住在纽约，你现在肯定已经听过我们抱怨:在安德鲁·科莫州长的失职统治下，美国最大的公共交通系统急剧下降。T11】
 

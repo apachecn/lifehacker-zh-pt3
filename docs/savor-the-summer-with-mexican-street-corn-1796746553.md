@@ -1,6 +1,6 @@
 # 品尝墨西哥街头玉米的夏天
 
-> 原文:[https://life hacker . com/savor-the-summer-with-Mexican-street-corn-1796746553](https://lifehacker.com/savor-the-summer-with-mexican-street-corn-1796746553)
+> 原文：<https://lifehacker.com/savor-the-summer-with-mexican-street-corn-1796746553>
 
 欢迎回到周日营养！亲爱的读者，我不知道你怎么样，但我上周吃了大约五架 [美味蓝莓烤肉酱](https://skillet.lifehacker.com/turn-your-summer-blueberry-bounty-into-a-sweet-and-savo-1796561428) 排骨，现在还在恢复中。但是你不能整个夏天都在吃肉，所以本周我将注意力转向夏季最突出的蔬菜之一:无处不在、美味香甜的玉米穗。
 

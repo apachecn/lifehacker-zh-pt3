@@ -1,6 +1,6 @@
 # 通过向 1Password 添加“Pwned 密码”,查看您的密码是否已被泄露
 
-> 原文:[https://life hacker . com/1 password-adds-password-checker-pwned-passwords-1823264040](https://lifehacker.com/1password-adds-password-checker-pwned-passwords-1823264040)
+> 原文：<https://lifehacker.com/1password-adds-password-checker-pwned-passwords-1823264040>
 
 任何意识到像 Equifax 或 [Kickstarter](https://lifehacker.com/15-million-hacked-kickstarter-and-bitly-passwords-are-n-1819216049) 这样的公司在处理敏感信息时记录不佳的人，可能都会好奇他们的密码有多强。通过随机生成的密码通常比你自己发明的密码更安全(看着你，“abc123”)。现在，您可以使用 1Password 检查您的密码是否是不断增加的泄露密码 [的一部分，该软件刚刚将破解的密码数据库](https://blog.agilebits.com/2018/02/22/finding-pwned-passwords-with-1password/) [Pwned 密码](https://haveibeenpwned.com/Passwords) 集成到其应用程序中。
 

@@ -1,6 +1,6 @@
 # 如何将航空邮件变成 iPhone 的终极电子邮件应用
 
-> 原文:[https://life hacker . com/how-to-turn-airmail-into-ultimate-email-app-for-iph-1791353381](https://lifehacker.com/how-to-turn-airmail-into-the-ultimate-email-app-for-iph-1791353381)
+> 原文：<https://lifehacker.com/how-to-turn-airmail-into-the-ultimate-email-app-for-iph-1791353381>
 
 你的手机可能是你使用电子邮件最多的设备，而 Airmail 是最好的阅读、回复和整理电子邮件的 iPhone 应用程序之一。航空邮件完全是通过定制 进行 [管理，尽管开箱即用很好，但稍加调整就会变得更好。](https://lifehacker.com/airmail-for-iphone-is-an-email-app-built-for-people-who-1756416103) 
 

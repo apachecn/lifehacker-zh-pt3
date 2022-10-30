@@ -1,6 +1,6 @@
 # 伊利诺伊州或德克萨斯州无法使用谷歌艺术自拍功能的一个很好的原因是
 
-> 原文:[https://gizmodo . com/the-very-good-reason-why-you-can-get-that-Google-art-s-1822158818](https://gizmodo.com/the-very-good-reason-why-you-cant-get-that-google-art-s-1822158818)
+> 原文：<https://gizmodo.com/the-very-good-reason-why-you-cant-get-that-google-art-s-1822158818>
 
 伊利诺斯州和 [得克萨斯州](https://twitter.com/GodivaMorte/status/953114218894589952) 的一些居民对感到愤怒，他们无法轻易确定哪件艺术品与他们有 42%的相似度，却允许谷歌捕捉他们的生物特征灵魂。
 

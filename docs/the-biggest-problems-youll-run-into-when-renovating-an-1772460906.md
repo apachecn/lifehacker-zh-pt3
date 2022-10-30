@@ -1,6 +1,6 @@
 # 翻新老房子时你会遇到的最大问题
 
-> 原文:[https://life hacker . com/the-maximum-problems-you-run-into-when-renewing-an-1772460906](https://lifehacker.com/the-biggest-problems-youll-run-into-when-renovating-an-1772460906)
+> 原文：<https://lifehacker.com/the-biggest-problems-youll-run-into-when-renovating-an-1772460906>
 
 老式住宅有自己的特色，通常拥有建筑窗户和实心石膏墙等特色，这在许多新建筑中是找不到的。然而，到了翻新的时候，老房子会带来昂贵的挑战，而且也不那么迷人。以下是你应该准备的最大和最常见的装修问题。
 

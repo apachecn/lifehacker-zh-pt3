@@ -1,6 +1,6 @@
 # 如何推销记者
 
-> 原文:[https://lifehacker.com/how-to-pitch-a-journalist-1823747505](https://lifehacker.com/how-to-pitch-a-journalist-1823747505)
+> 原文：<https://lifehacker.com/how-to-pitch-a-journalist-1823747505>
 
 记者和假扮成记者的博客作者通过电子邮件获得了很多宣传。我每天收到大约 20 封邮件，所以我很喜欢存档。但是，如果你试图推销你做过的东西，而你不是专业的公关人员，你实际上是有优势的。上个月，游戏开发者安德鲁·米勒(Andrew Miller)向我咨询如何宣传他的作品。这是我告诉他的。
 

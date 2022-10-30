@@ -1,6 +1,6 @@
 # 我是一名律师，我需要一辆 25，000 美元的时尚高档车！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-a-lawyer-who-need-a-sleek-and-classy-ride-for-25-0-1791899282](https://jalopnik.com/im-a-lawyer-who-needs-a-sleek-and-classy-ride-for-25-0-1791899282)
+> 原文：<https://jalopnik.com/im-a-lawyer-who-needs-a-sleek-and-classy-ride-for-25-0-1791899282>
 
 托尼是费城的一名律师，他在 2003 年的协议中苦干了 140，000 英里，这样他就可以检查他的学生贷款。现在是时候升级了。他需要一辆好的“律师”车，但不要太贵或太奢侈。他应该买什么车？
 

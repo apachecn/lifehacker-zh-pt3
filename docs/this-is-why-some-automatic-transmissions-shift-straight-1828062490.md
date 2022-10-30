@@ -1,6 +1,6 @@
 # 这就是为什么有些自动变速器是直的，而有些是曲折的
 
-> 原文:[https://jalopnik . com/this-is-why-some-automatic-transmissions-shift-straight-1828062490](https://jalopnik.com/this-is-why-some-automatic-transmissions-shift-straight-1828062490)
+> 原文：<https://jalopnik.com/this-is-why-some-automatic-transmissions-shift-straight-1828062490>
 
 如果你曾经带着鄙视或真诚的感激看着安装在地板上的自动变速器换挡杆，你可能会注意到它们往往分为两大类:一类是通过 PRNDL 系列的简单线性路径，另一类是通过齿轮使用复杂的迷宫般的路径。为什么在这些设计上有两种截然不同的思想流派？有机械上的区别吗？一个比另一个好吗？这是怎么回事？
 

@@ -1,6 +1,6 @@
 # 成人使用避孕套指南
 
-> 原文:[https://life hacker . com/the-成人-避孕套使用指南-1796670822](https://lifehacker.com/the-adults-guide-to-using-condoms-1796670822)
+> 原文：<https://lifehacker.com/the-adults-guide-to-using-condoms-1796670822>
 
 人们很容易抱怨避孕套，抱怨它们是多么的不方便，或者它们是多么的迟钝，但是事实是它们比大多数人想象的更令人愉悦。这是你找到适合你的避孕套的指南。
 

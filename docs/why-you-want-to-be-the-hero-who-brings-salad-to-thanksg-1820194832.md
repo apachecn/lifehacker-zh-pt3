@@ -1,6 +1,6 @@
 # 为什么你想成为把沙拉带到感恩节的英雄
 
-> 原文:[https://life hacker . com/why-you-want-to-be the hero-thanksgs-1820194832](https://lifehacker.com/why-you-want-to-be-the-hero-who-brings-salad-to-thanksg-1820194832)
+> 原文：<https://lifehacker.com/why-you-want-to-be-the-hero-who-brings-salad-to-thanksg-1820194832>
 
 感恩节不是一个关心卡路里、你的阶段性目标或总体健康的日子，但这一天应该包括沙拉。虽然如果我们正式将这个节日的名称改为“砂锅日”，我会很高兴，但请相信我，在这一天，一份好的沙拉不仅是想要的，而且是需要的。
 

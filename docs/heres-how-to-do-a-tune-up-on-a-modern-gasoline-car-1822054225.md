@@ -1,6 +1,6 @@
 # 以下是如何对现代汽油车进行调试的方法
 
-> 原文:[https://jalopnik . com/heres-how-to-do-a-tune-up-on-a-modern-汽油汽车-1822054225](https://jalopnik.com/heres-how-to-do-a-tune-up-on-a-modern-gasoline-car-1822054225)
+> 原文：<https://jalopnik.com/heres-how-to-do-a-tune-up-on-a-modern-gasoline-car-1822054225>
 
 你有没有遇到过一个二手现代汽车的广告，其中提到这辆车刚刚接受了一次调整？对于今天的汽车来说，“调整”到底意味着什么？很有可能，广告中的汽车销售商不知道他们在说什么。他们可能只是用流行语轰炸广告，以吸引不知情的买家的注意。然而，我在这里告诉你，有*是*这样一个现代汽车调整的事情。
 

@@ -1,6 +1,6 @@
 # 为什么你的信用评分可能没有你想象的那么好
 
-> 原文:[https://life hacker . com/why-your-credit-score-may-be not as good as you-think-I-1822591911](https://lifehacker.com/why-your-credit-score-may-not-be-as-good-as-you-think-i-1822591911)
+> 原文：<https://lifehacker.com/why-your-credit-score-may-not-be-as-good-as-you-think-i-1822591911>
 
 如果你在市场上寻找汽车或房屋贷款，你有机会运行一个免费的信用报告，看看你的分数有多好(或多差)。也许你自我感觉良好，但突然之间你被彻底否定了。
 

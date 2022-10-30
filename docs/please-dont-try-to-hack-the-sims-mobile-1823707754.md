@@ -1,6 +1,6 @@
 # 请不要试图黑模拟人生手机
 
-> 原文:[https://life hacker . com/please-don-t-try-to-hack-the-sims-mobile-1823707754](https://lifehacker.com/please-dont-try-to-hack-the-sims-mobile-1823707754)
+> 原文：<https://lifehacker.com/please-dont-try-to-hack-the-sims-mobile-1823707754>
 
 艺电的试运行正式结束了；现在可以下载模拟人生手机版 [安卓](https://itunes.apple.com/br/app/the-sims-mobile/id1144258115?l=en&mt=8) 和 [iOS](https://itunes.apple.com/br/app/the-sims-mobile/id1144258115?l=en&mt=8) 。当你开始第一个小时，用漂亮的服装和家居饰品欺骗你的虚拟伴侣时，我恳求你:不要黑游戏。
 

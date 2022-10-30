@@ -1,6 +1,6 @@
 # 为什么我的 USB 不能在我的电脑上显示？
 
-> 原文:[https://life hacker . com/why-wont-my-USB-show-up-on-my-PC-1823887066](https://lifehacker.com/why-wont-my-usb-show-up-on-my-pc-1823887066)
+> 原文：<https://lifehacker.com/why-wont-my-usb-show-up-on-my-pc-1823887066>
 
 欢迎来到每周第一期的 Tech 911，这是我们全新的技术建议专栏，旨在帮助您解决您的台式机、笔记本电脑或其他喜爱的设备所遇到的问题。
 

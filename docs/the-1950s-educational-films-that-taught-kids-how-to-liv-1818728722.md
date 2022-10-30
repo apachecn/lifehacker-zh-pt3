@@ -1,6 +1,6 @@
 # 20 世纪 50 年代教孩子们如何生活的教育电影
 
-> 原文:[https://life hacker . com/the-1950-educational-films-the-teached-kids-how-to-liv-1818728722](https://lifehacker.com/the-1950s-educational-films-that-taught-kids-how-to-liv-1818728722)
+> 原文：<https://lifehacker.com/the-1950s-educational-films-that-taught-kids-how-to-liv-1818728722>
 
 20 世纪 50 年代教育电影的做作风格使它们在今天的 中极具讽刺意味。但真正的问题是，它们甚至在达到顶峰前几十年就被抢先嘲笑了。
 

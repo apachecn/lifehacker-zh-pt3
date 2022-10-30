@@ -1,6 +1,6 @@
 # 油炸面包比烤面包好
 
-> 原文:[https://life hacker . com/fried-bread-is-better-toast-1827629232](https://lifehacker.com/fried-bread-is-better-than-toast-1827629232)
+> 原文：<https://lifehacker.com/fried-bread-is-better-than-toast-1827629232>
 
 大多数面包是好的，但不是所有的面包都是好的早餐面包。尽管吐司是标准的——饼干和英式松饼都是典型的——*油炸*面包可能是早餐最好的面包，尤其是宿醉的早餐，无论从味道还是方便程度来说。
 

@@ -1,6 +1,6 @@
 # 以下是如何用 20 美元或更少的旅行费用度周末假
 
-> 原文:[https://life hacker . com/heres-how-to-take a weekend-away-for-20 或更少 1826602655](https://lifehacker.com/heres-how-to-take-a-weekend-getaway-for-20-or-less-in-1826602655)
+> 原文：<https://lifehacker.com/heres-how-to-take-a-weekend-getaway-for-20-or-less-in-1826602655>
 
 即使你没有太多的假期，一次愉快的一日游或周末度假也足以帮助你放松和减压。如果你想在你的迷你假期中节省一些钱，考虑乘火车或公共汽车。你不必开车，而且你会惊奇地发现花很少的钱就能走多远。
 

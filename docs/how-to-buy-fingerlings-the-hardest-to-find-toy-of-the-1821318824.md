@@ -1,6 +1,6 @@
 # 如何选购一年中最难找的玩具——鱼苗
 
-> 原文:[https://life hacker . com/how-to-buy-fingerlings-the-hard-to-found-the-the-the-the-the-of-the-the-this-the-toy 1821318824](https://lifehacker.com/how-to-buy-fingerlings-the-hardest-to-find-toy-of-the-1821318824)
+> 原文：<https://lifehacker.com/how-to-buy-fingerlings-the-hardest-to-find-toy-of-the-1821318824>
 
 鱼种是今年的孵出物。或者，如果你不知道这两个词是什么意思，今年的“逗我笑”是 Elmo。今年的泰迪·鲁斯平。今年的豆豆娃。简言之，它们是 2017 年最热门的玩具。
 

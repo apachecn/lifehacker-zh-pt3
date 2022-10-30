@@ -1,6 +1,6 @@
 # 没有车的时候如何学习开车
 
-> 原文:[https://life hacker . com/how-to-learn-to-drive-when you-own-a car-1795773101](https://lifehacker.com/how-to-learn-to-drive-when-you-dont-own-a-car-1795773101)
+> 原文：<https://lifehacker.com/how-to-learn-to-drive-when-you-dont-own-a-car-1795773101>
 
 现在几乎三分之一的美国人在十几岁的时候没有驾照 ，在过去的十年里，所有年龄组的驾照拥有率都在下降。我们越来越多的人是在成年后学习驾驶的——这是我们一生中不容易借到爸爸妈妈的车或上高中课的时候。我们很多人根本不想*拥有*汽车；我们只是想在周末或偶尔购物时租一辆。我们陷入了一个第 22 条军规:我们如何练习足够多来参加让我们练习的考试？这听起来有点吓人，但是完全可行——甚至还有优势。
 

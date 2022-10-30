@@ -1,6 +1,6 @@
 # 尴尬地方的痣该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-about-a mole-in-a-personary-place-1821806008](https://lifehacker.com/what-to-do-about-a-mole-in-an-embarrassing-place-1821806008)
+> 原文：<https://lifehacker.com/what-to-do-about-a-mole-in-an-embarrassing-place-1821806008>
 
 欢迎回到热点问题。今天的写信人只是想照顾他们的皮肤健康，但他们的一颗痣在一个非常隐私的位置。
 

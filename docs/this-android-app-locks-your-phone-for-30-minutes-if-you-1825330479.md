@@ -1,6 +1,6 @@
 # 如果你用得太多，这款安卓应用会锁定你的手机 30 分钟
 
-> 原文:[https://life hacker . com/this-Android-app-lock-your-phone-if-you-1825330479](https://lifehacker.com/this-android-app-locks-your-phone-for-30-minutes-if-you-1825330479)
+> 原文：<https://lifehacker.com/this-android-app-locks-your-phone-for-30-minutes-if-you-1825330479>
 
 Android:智能手机和应用程序被设计成令人上瘾的，对于许多人(包括我自己)来说，很难抗拒 Twitter 通知或 Instagram 上新照片的吸引力。有很多服务可以帮助你 [花更少的时间盯着你的手机](https://lifehacker.com/offtime-blocks-phone-distractions-allows-vips-through-1643737825) ，但是一个免费的 [Android](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465) 应用程序采取了一种特别残忍的方法，这种方法可能对最绝望的智能手机上瘾者也有效。
 

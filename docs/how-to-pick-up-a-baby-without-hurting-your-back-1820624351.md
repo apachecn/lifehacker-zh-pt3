@@ -1,6 +1,6 @@
 # 如何抱起婴儿不伤背
 
-> 原文:[https://life hacker . com/how-to-pick-a baby without-injury-1820624351](https://lifehacker.com/how-to-pick-up-a-baby-without-hurting-your-back-1820624351)
+> 原文：<https://lifehacker.com/how-to-pick-up-a-baby-without-hurting-your-back-1820624351>
 
 *这是* [*产后疼痛诊所*](https://lifehacker.com/tag/postpartum-pain-clinic) *的第六部分也是最后一部分，这是一个多部分组成的系列，讲述如何应对照顾新生儿和婴儿带来的疼痛。*
 

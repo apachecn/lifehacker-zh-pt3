@@ -1,6 +1,6 @@
 # 我第一次做 NaNoWriMo 学到的是
 
-> 原文:[https://life hacker . com/what-I-learned-doing-nanowrimo-for-the-first-time-1820890100](https://lifehacker.com/what-i-learned-doing-nanowrimo-for-the-first-time-1820890100)
+> 原文：<https://lifehacker.com/what-i-learned-doing-nanowrimo-for-the-first-time-1820890100>
 
 过去的一个月，我参加了全国小说写作月(也称为“NaNoWriMo”)。这很有趣，令人筋疲力尽，充满压力，有时还很痛苦。但这也是我在时间管理和创造力方面学到的最重要的一课。
 

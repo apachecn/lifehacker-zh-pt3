@@ -1,6 +1,6 @@
 # 当我插入 USB 设备时，为什么我的计算机会重新启动？
 
-> 原文:[https://life hacker . com/why-do-my-computer-restart-when-I-plug-in-a-USB-devic-1824064127](https://lifehacker.com/why-does-my-computer-restart-when-i-plug-in-a-usb-devic-1824064127)
+> 原文：<https://lifehacker.com/why-does-my-computer-restart-when-i-plug-in-a-usb-devic-1824064127>
 
 是时候再来一剂高科技 911 了。本周，一位读者对 [USB 设备](https://lifehacker.com/rip-usb-these-are-ports-and-connectors-to-care-about-i-1796823560) 又有了新的问题。具体来说，当他们将东西插入 USB 端口时，他们的系统有时会重新启动。从一到“不好”的范围来看，我们更接近右边而不是左边，但是他们可以尝试一些技巧来缓解一下。
 

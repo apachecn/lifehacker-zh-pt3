@@ -1,6 +1,6 @@
 # 集装箱商店首席执行官基普·廷德尔组织得五颜六色的办公室
 
-> 原文:[https://life hacker . com/the-colorly-organized-office-of-container-store-CEO-1740401866](https://lifehacker.com/the-colorfully-organized-office-of-container-store-ceo-1740401866)
+> 原文：<https://lifehacker.com/the-colorfully-organized-office-of-container-store-ceo-1740401866>
 
 集装箱商店的创始人兼首席执行官基普·廷德尔(Kip Tindell)的工作区毫无疑问地展示了许多组织产品，从货架系统到彩色墙壁软木板，再到配套的文件和杂志盒。
 

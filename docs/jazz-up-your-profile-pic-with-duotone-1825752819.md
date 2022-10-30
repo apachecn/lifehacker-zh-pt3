@@ -1,6 +1,6 @@
 # 用双色调为您的个人资料照片增添活力
 
-> 原文:[https://life hacker . com/jazz-up-your-profile-pic-with-duo tone-1825752819](https://lifehacker.com/jazz-up-your-profile-pic-with-duotone-1825752819)
+> 原文：<https://lifehacker.com/jazz-up-your-profile-pic-with-duotone-1825752819>
 
 如果你想调整你的推特头像或脸书照片，但避免所有常用的 Instagram 过滤器，尝试将你的照片扔进 [双色调效果生成器](https://duotones.co/) 。使用这个简单的照片编辑器，你可以将你的照片转换成你选择的两种颜色，或者像 Spotify、Fire Engine 或格兰芬多这样的预设颜色。
 

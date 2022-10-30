@@ -1,6 +1,6 @@
 # 这个聪明的笔记本电脑电源插头展示了一个微小的创新可以有多么伟大
 
-> 原文:[https://gizmodo . com/every-single-power-plug-should-a-built-in-electric-1829031421](https://gizmodo.com/every-single-power-plug-should-have-a-built-in-electric-1829031421)
+> 原文：<https://gizmodo.com/every-single-power-plug-should-have-a-built-in-electric-1829031421>
 
 如果你看不到自己在做什么，北美和世界其他地方插头上使用的一对细小的插脚几乎不可能插入电源插座。 [Ten One Design 的新款 Stella plug 在设计上做了改进，用了一些我们以前从未见过的东西](https://tenonedesign.com/stella.php) :一个内置的手电筒，可以自动打开附近的插座照亮道路。
 

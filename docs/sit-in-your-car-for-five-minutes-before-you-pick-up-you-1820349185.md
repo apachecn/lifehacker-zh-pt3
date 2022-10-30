@@ -1,6 +1,6 @@
 # 去接孩子之前，在车里坐五分钟
 
-> 原文:[https://life hacker . com/在接你之前在你的车里坐五分钟 1820349185](https://lifehacker.com/sit-in-your-car-for-five-minutes-before-you-pick-up-you-1820349185)
+> 原文：<https://lifehacker.com/sit-in-your-car-for-five-minutes-before-you-pick-up-you-1820349185>
 
 在刚为人父母的时候，我丈夫有一次下班回家后问我，“如果我在到家之前把车停在拐角处，打个盹，你会生气吗？”我对他的任何问题的第一反应是“如果……你会生气吗？”永远是肯定的，但想了想后，我告诉他，“不，如果这能让你在进门时精神焕发、活在当下并投入其中，那么*就去做*。”
 

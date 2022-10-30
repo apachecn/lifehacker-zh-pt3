@@ -1,6 +1,6 @@
 # 有什么馅料配料配得上它们的盐吗？
 
-> 原文:[https://life hacker . com/are-any-stuff-mixes-worth-that-they-they-they-that-worth-they-they-these-salt-1820155781](https://lifehacker.com/are-any-stuffing-mixes-worth-their-salt-1820155781)
+> 原文：<https://lifehacker.com/are-any-stuffing-mixes-worth-their-salt-1820155781>
 
 现在你知道离感恩节还有两个多星期了。你们很多人已经做好了准备；你点了火鸡，练习做馅饼，花了几个月时间在绿豆市场上搜寻价格波动。然而，我们中的许多人——我们准备花大价钱买一个再也见不到阳光的中心装饰品——将使用盒装馅料。但是他们中的任何一个好吃到可以放在你的火鸡旁边吗？我们决定尝一尝，然后告诉你。
 

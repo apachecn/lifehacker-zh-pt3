@@ -1,6 +1,6 @@
 # 如何接受《嘿，裘德》中的所有建议
 
-> 原文:[https://life hacker . com/how-to-take-the-all-the-advice-in-hey-Jude-1828576348](https://lifehacker.com/how-to-take-all-the-advice-in-hey-jude-1828576348)
+> 原文：<https://lifehacker.com/how-to-take-all-the-advice-in-hey-jude-1828576348>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-A_MjCqQoLLA&start=55](https://lifehacker.com/embed/inset/iframe?id=youtube-video-A_MjCqQoLLA&start=55) 
 

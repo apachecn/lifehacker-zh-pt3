@@ -1,6 +1,6 @@
 # Refinery29 的资金日记并不是他们承诺的“革命”
 
-> 原文:[https://Jezebel . com/refinery 29s-money-diaries-arent-the-revolution-they-pro-1827697912](https://jezebel.com/refinery29s-money-diaries-arent-the-revolution-they-pro-1827697912)
+> 原文：<https://jezebel.com/refinery29s-money-diaries-arent-the-revolution-they-pro-1827697912>
 
 周二，Refinery29 在其广受欢迎的金钱日记系列中发表了一篇文章，详细描述了纽约市一名 21 岁的实习生兼大学生 一周的生活，她的生活方式是，并得到了家人的慷慨援助。
 

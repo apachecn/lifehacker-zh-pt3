@@ -1,6 +1,6 @@
 # 不要把空间加热器插到电源板上
 
-> 原文:[https://life hacker . com/don-plug-a-space-heater-to-a-power-strip-1821150953](https://lifehacker.com/dont-plug-a-space-heater-into-a-power-strip-1821150953)
+> 原文：<https://lifehacker.com/dont-plug-a-space-heater-into-a-power-strip-1821150953>
 
 一年中的这个时候，你必须做一些工作来保持你的家温暖舒适。圣诞灯、装饰品、沙发上的额外毛毯。当然，还有一个空间加热器。但是有了这些装饰，插头就变得非常珍贵。*没问题*，你想，*我有一个插线板*。让我说:*诺诺诺诺诺诺。*
 

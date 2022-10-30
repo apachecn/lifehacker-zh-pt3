@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我应该给外卖小费吗？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-I-should-tip-on-take out-orders-1822422611](https://thetakeout.com/ask-the-salty-waitress-should-i-tip-on-takeout-orders-1822422611)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-should-i-tip-on-takeout-orders-1822422611>
 
 * * *
 

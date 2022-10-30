@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:朗姆酒曼哈顿
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-rum-Manhattan-1823463062](https://lifehacker.com/3-ingredient-happy-hour-the-rum-manhattan-1823463062)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-rum-manhattan-1823463062>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们用朗姆酒代替标准的黑麦威士忌，在标志性的曼哈顿酒的基础上混合了一种变化。
 

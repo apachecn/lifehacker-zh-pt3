@@ -1,6 +1,6 @@
 # 邮购基因测试可能会出现很多假阳性
 
-> 原文:[https://life hacker . com/mail-order-genetic-tests-may-turn-up-a-lot-of-false-pos-1824126192](https://lifehacker.com/mail-order-genetic-tests-may-turn-up-a-lot-of-false-pos-1824126192)
+> 原文：<https://lifehacker.com/mail-order-genetic-tests-may-turn-up-a-lot-of-false-pos-1824126192>
 
 如果你在开玩笑的时候做了一个基因测试，它告诉你你有一个变种，使你有患癌症的风险，你应该直接去找专业人士做一个更昂贵的测试来确认。但是在最近的一项研究中，那个最初的、只是为了好玩的测试有 40%的时间被证明是错误的。
 

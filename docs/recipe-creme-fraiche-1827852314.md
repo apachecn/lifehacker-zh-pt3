@@ -1,6 +1,6 @@
 # 自己做鲜奶油值得吗？绝对的。
 
-> 原文:[https://thetakeout.com/recipe-creme-fraiche-1827852314](https://thetakeout.com/recipe-creme-fraiche-1827852314)
+> 原文：<https://thetakeout.com/recipe-creme-fraiche-1827852314>
 
 小时候，我有一种奇怪的最爱:酸奶油。我把大量我心爱的物质涂在烤土豆、墨西哥玉米卷和辣椒上，这让我的家人既害怕又恼火。让其他孩子吵着要夹馅面包:我最喜欢的零食是酸奶油、草莓和红糖。当我大学毕业后住在英国时，我发现奶油的光彩会升到我送的牛奶瓶的顶部，还有涂有凝结奶油的烤饼。单身汉的冰箱通常都装满了调味品，而我自己的冰箱，作为一个 20 多岁的单身女人，却堆满了健怡可乐和乳制品:酸奶、对半酸奶和我最爱的酸奶油。(本周我得知 [全脂乳制品可能不会杀死我](https://thetakeout.com/study-full-fat-dairy-isnt-going-to-kill-you-1827628995) ，这是个极好的消息。)
 

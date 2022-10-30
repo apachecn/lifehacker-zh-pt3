@@ -1,6 +1,6 @@
 # 优步现在会让你知道你是否是一个有问题的骑手
 
-> 原文:[https://life hacker . com/Uber-will-now-let-you-know-if-you-a-problem-rider-1818853605](https://lifehacker.com/uber-will-now-let-you-know-if-youre-a-problematic-rider-1818853605)
+> 原文：<https://lifehacker.com/uber-will-now-let-you-know-if-youre-a-problematic-rider-1818853605>
 
 当你给你的优步司机少于 5 颗星时，应用程序总是会问你哪里出错了。匿名反馈一直被发送给司机，让他们知道他们在哪里搞砸了，以及为什么他们可能难以保持完美的五星评级。现在司机可以对乘客做同样的事情。从今天开始，优步允许司机提供他们决定给乘客少于 5 颗星的原因。
 

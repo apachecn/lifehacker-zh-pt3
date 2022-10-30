@@ -1,6 +1,6 @@
 # 我已经很健康了，还需要定期体检吗？
 
-> 原文:[https://life hacker . com/do-I-need-regular-checkups-when-im-always-health-1751460649](https://lifehacker.com/do-i-need-regular-checkups-when-im-already-healthy-1751460649)
+> 原文：<https://lifehacker.com/do-i-need-regular-checkups-when-im-already-healthy-1751460649>
 
 年度健康检查是拥有医疗保健的美国人的一项传统，但是否有必要还存在争议。几年前，我让我的医生给我做检查，他笑了，指出我看起来很好。那么，这个年度传统真的是必须的吗？归结起来就是三个简单的问题。
 

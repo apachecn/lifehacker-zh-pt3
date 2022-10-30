@@ -1,6 +1,6 @@
 # 运行应用程序损害了我的进步，而不是帮助它
 
-> 原文:[https://life hacker . com/running-apps-have-hurt-my-progress-not-help-it-1729318194](https://lifehacker.com/running-apps-have-hurt-my-progress-not-helped-it-1729318194)
+> 原文：<https://lifehacker.com/running-apps-have-hurt-my-progress-not-helped-it-1729318194>
 
 在 15 年的跑步生涯中，我用笨重的在线日志、带 GPS 功能的手表和智能手机应用程序来记录自己的进步。起初，我对所有的数据都很着迷，但现在我又回到了起点:用一块手表和一张纸。
 

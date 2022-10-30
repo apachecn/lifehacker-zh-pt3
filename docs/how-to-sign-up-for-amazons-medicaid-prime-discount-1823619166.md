@@ -1,6 +1,6 @@
 # 如何注册亚马逊的医疗补助优惠
 
-> 原文:[https://life hacker . com/how-to-sign-up-for-amazons-Medicaid-prime-discount-1823619166](https://lifehacker.com/how-to-sign-up-for-amazons-medicaid-prime-discount-1823619166)
+> 原文：<https://lifehacker.com/how-to-sign-up-for-amazons-medicaid-prime-discount-1823619166>
 
 你可以说亚马逊现在为医疗补助接受者提供优惠折扣，但事实很清楚:低收入个人和家庭现在可以在亚马逊两天送货服务的每月会员资格上节省 7 美元——以及随之而来的所有其他好处 。
 

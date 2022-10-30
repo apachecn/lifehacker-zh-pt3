@@ -1,6 +1,6 @@
 # 简单的 Ubuntu 桌面
 
-> 原文:[https://lifehacker.com/the-simply-ubuntu-desktop-1773383476](https://lifehacker.com/the-simply-ubuntu-desktop-1773383476)
+> 原文：<https://lifehacker.com/the-simply-ubuntu-desktop-1773383476>
 
 在 Flickr 上， [fosco_](https://www.flickr.com/photos/fosco_/) 提交了这个简单的 Ubuntu 桌面，为了更简洁的体验，只做了一些调整。就像我们说过的，有时候少即是多，这个桌面很好地利用了一些小部件来制作一个更好的 UI。
 

@@ -1,6 +1,6 @@
 # 你在七大航空公司可以得到的小津贴
 
-> 原文:[https://life hacker . com/the-small-perks-you-can-get-on-seven-major-airlines-1819081931](https://lifehacker.com/the-small-perks-you-can-get-on-seven-major-airlines-1819081931)
+> 原文：<https://lifehacker.com/the-small-perks-you-can-get-on-seven-major-airlines-1819081931>
 
 如今的飞行还有许多不足之处。一些航空公司试图通过一些小福利来弥补这种不愉快的基本体验。这些便利设施当然不如更大的伸腿空间那样令人向往，但你不妨在下一次飞行中好好利用它们。
 

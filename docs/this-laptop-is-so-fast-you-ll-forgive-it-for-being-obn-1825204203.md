@@ -1,6 +1,6 @@
 # 这款笔记本电脑速度如此之快，你会原谅它令人讨厌的大而吵
 
-> 原文:[https://gizmodo . com/this-laptop-is-so-fast-you-ll-forest-it-for-be-obn-1825204203](https://gizmodo.com/this-laptop-is-so-fast-you-ll-forgive-it-for-being-obn-1825204203)
+> 原文：<https://gizmodo.com/this-laptop-is-so-fast-you-ll-forgive-it-for-being-obn-1825204203>
 
 微星的 GT75 只是名义上的笔记本电脑。厚度为 2.2 英寸，重量超过 10 磅，即使是一想到要拖着它到处走，我的背都会痛。哦，我有没有提到，这是在你考虑到这个 17 英寸的游戏巨头需要不是一个，而是两个独立的电源块，这加起来又增加了 4.5 磅的因素之前？
 

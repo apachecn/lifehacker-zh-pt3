@@ -1,6 +1,6 @@
 # 你可以用这个宜家碗生火
 
-> 原文:[https://life hacker . com/you-can-use-this-IKEA-bowl-to-start-a-fire-1797027002](https://lifehacker.com/you-can-use-this-ikea-bowl-to-start-a-fire-1797027002)
+> 原文：<https://lifehacker.com/you-can-use-this-ikea-bowl-to-start-a-fire-1797027002>
 
 意外的火灾在很大程度上被认为是一件坏事，这就是为什么当宜家的这个非常闪亮的 [BLANDA BLANK](http://www.ikea.com/us/en/catalog/products/50057254/) 上菜碗导致一些葡萄——以及后来的一些报纸——化为乌有时，一些人非常惊慌。
 

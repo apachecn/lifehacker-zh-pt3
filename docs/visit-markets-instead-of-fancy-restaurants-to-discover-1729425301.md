@@ -1,6 +1,6 @@
 # 旅行时，去市场而不是高级餐厅去发现当地美食
 
-> 原文:[https://life hacker . com/visit-markets-而不是-fancy-restaurants-to-discover-1729425301](https://lifehacker.com/visit-markets-instead-of-fancy-restaurants-to-discover-1729425301)
+> 原文：<https://lifehacker.com/visit-markets-instead-of-fancy-restaurants-to-discover-1729425301>
 
 看 [当地人如何生活和吃](http://lifehacker.com/how-to-actually-act-like-a-local-when-traveling-5983618#_ga=1.118278793.1002445524.1433370566) 大概是你旅行的主要原因之一。根据安东尼·鲍代恩的说法，探索地方美食并了解当地人真正吃什么的一个方法是去当地的露天市场或杂货店。
 

@@ -1,6 +1,6 @@
 # 谁将在共和党全国代表大会上发言以及如何观看直播
 
-> 原文:[https://life hacker . com/whos-speech-at-the-Republican-national-conventi on-and-1783875610](https://lifehacker.com/whos-speaking-at-the-republican-national-convention-and-1783875610)
+> 原文：<https://lifehacker.com/whos-speaking-at-the-republican-national-convention-and-1783875610>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-izmlveQPUe4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-izmlveQPUe4&start=0) 
 

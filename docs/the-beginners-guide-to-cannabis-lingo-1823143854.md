@@ -1,6 +1,6 @@
 # 大麻行话初学者指南
 
-> 原文:[https://life hacker . com/the-初学者指南-大麻-行话-1823143854](https://lifehacker.com/the-beginners-guide-to-cannabis-lingo-1823143854)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-cannabis-lingo-1823143854>
 
 即使你与大麻的唯一联系是通过电影，你也可能知道大麻是什么。但是第一次走进医疗或娱乐诊所也意味着遇到一种全新的语言。
 

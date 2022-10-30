@@ -1,6 +1,6 @@
 # 停止修剪你的草坪
 
-> 原文:[https://lifehacker.com/stop-mowing-your-lawn-1795653861](https://lifehacker.com/stop-mowing-your-lawn-1795653861)
+> 原文：<https://lifehacker.com/stop-mowing-your-lawn-1795653861>
 
 我是在割草长大的，那是一片巨大而肮脏的草坪。我家住在一英亩的山顶土地上，我们一直在割毛茸茸的草，太尖了，我们不能光着脚走。一边是玉米地。另一边是我们的邻居豪兰先生，草坪护理部的内德·弗兰德斯。他在自己的草坪上种下优质的高尔夫球场级别的草，每周修剪和喷洒草坪，甚至像淡季的赞博尼司机一样将草坪平整。
 

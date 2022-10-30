@@ -1,6 +1,6 @@
 # 它会腐烂吗？你偷了热袋
 
-> 原文:[https://life hacker . com/will-it-sous-vide-you-picked-hot-pockets-1786400775](https://lifehacker.com/will-it-sous-vide-you-picked-hot-pockets-1786400775)
+> 原文：<https://lifehacker.com/will-it-sous-vide-you-picked-hot-pockets-1786400775>
 
 问候和致敬，欢迎回到另一个令人兴奋的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏你告诉我用我的方差分析做什么。
 

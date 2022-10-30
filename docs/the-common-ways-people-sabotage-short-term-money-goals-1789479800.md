@@ -1,6 +1,6 @@
 # 人们破坏短期金钱目标的常见方式
 
-> 原文:[https://life hacker . com/the-common-ways-people-desruption-short-term-money-goals-1789479800](https://lifehacker.com/the-common-ways-people-sabotage-short-term-money-goals-1789479800)
+> 原文：<https://lifehacker.com/the-common-ways-people-sabotage-short-term-money-goals-1789479800>
 
 你可能认为短期财务计划——比如为度假存钱，或者把一个月的额外工资存进应急基金——并不难做到。毕竟，你只需要在有限的时间内勒紧裤腰带。此外，结果来得更快，这激励你坚持到底。
 

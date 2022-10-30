@@ -1,6 +1,6 @@
 # 生活方式膨胀并不总是坏事
 
-> 原文:[https://life hacker . com/life style-inflation-is-not-always-a-a-bad-thing-1744550498](https://lifehacker.com/lifestyle-inflation-isn-t-always-a-bad-thing-1744550498)
+> 原文：<https://lifehacker.com/lifestyle-inflation-isn-t-always-a-bad-thing-1744550498>
 
 个人理财不是像穷大学生一样过一辈子。支出和生活方式的膨胀受到了指责，但当涉及到你的财务时，它们不一定是你的敌人。更重要的是你如何对待支出。你想在享受生活和为生活存钱之间找到平衡。
 

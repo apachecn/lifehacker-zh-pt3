@@ -1,6 +1,6 @@
 # 如何像专业人士一样玩呼啦圈
 
-> 原文:[https://life hacker . com/how-to-hula-hoop-like-a-pro-1818902073](https://lifehacker.com/how-to-hula-hoop-like-a-pro-1818902073)
+> 原文：<https://lifehacker.com/how-to-hula-hoop-like-a-pro-1818902073>
 
 让开，爸爸！如果你认为贪得无厌的饮水鸟或弹簧狗是玩具的终极，我有一个惊喜给你！你可能在照片上见过呼啦圈，或者从那些去澳大利亚旅行的幸运小伙子那里见过，在澳大利亚，像弗林一样，呼啦圈在的里。热狗，如果你有足够的钱，你甚至可以自己拥有一个。毕竟，在 50 年代，这里的 [Wham-O](https://en.wikipedia.org/wiki/Wham-O) 创始人理查德·科内尔和亚瑟“土豆”梅林每天生产 50，000 个篮球，没有什么比和一帮人一起打篮球更受欢迎的消遣了。如果你不熟悉掌握技能的诀窍，让运动员知道谁真正有动作，我们会帮你搞定。
 

@@ -1,6 +1,6 @@
 # 戒掉坏习惯，用好习惯取代它
 
-> 原文:[https://life hacker . com/kick-a bad-hacker-by-kick-a-a-bad-habit-by-replace-it-with-a-good-one-1821847085](https://lifehacker.com/kick-a-bad-habit-by-replacing-it-with-a-good-one-1821847085)
+> 原文：<https://lifehacker.com/kick-a-bad-habit-by-replacing-it-with-a-good-one-1821847085>
 
 如果你想戒掉一个坏习惯，试着在失败时奖励自己，而不是惩罚自己。习惯经常根植于我们的潜意识中，以至于我们甚至没有意识到我们正在做这些事情，这使得阻止一个对我们有害的习惯变得特别困难。
 

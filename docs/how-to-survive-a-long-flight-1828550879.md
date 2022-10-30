@@ -1,6 +1,6 @@
 # 如何在长途飞行中生存
 
-> 原文:[https://life hacker . com/how-to-survive-a-long-flight-1828550879](https://lifehacker.com/how-to-survive-a-long-flight-1828550879)
+> 原文：<https://lifehacker.com/how-to-survive-a-long-flight-1828550879>
 
 我向你寻求在长途飞行 和随之而来的时差中幸存下来的最佳建议。我们包括下载一些播客(或电视节目/电影)，带一本书，记得时不时起来走动。你也会想要保持水分，带一些零食，记得提前给你所有的电子设备充电。你自己也要去旅行吗？考虑一下这些建议:
 

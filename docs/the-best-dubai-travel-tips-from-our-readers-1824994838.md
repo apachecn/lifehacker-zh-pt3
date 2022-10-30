@@ -1,6 +1,6 @@
 # 来自我们读者的最佳迪拜旅游贴士
 
-> 原文:[https://life hacker . com/the-best-Dubai-travel-tips-from-our-readers-1824994838](https://lifehacker.com/the-best-dubai-travel-tips-from-our-readers-1824994838)
+> 原文：<https://lifehacker.com/the-best-dubai-travel-tips-from-our-readers-1824994838>
 
 关于 [的评论我们呼吁迪拜的小贴士](https://lifehacker.com/tell-us-your-dubai-tips-1824209724) 不要回避这个城市不太吸引人的地方。但如果你近期有旅行计划，它们肯定是有用的信息。以下是一些亮点。
 

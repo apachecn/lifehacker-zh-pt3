@@ -1,6 +1,6 @@
 # 普通父母在家上学指南
 
-> 原文:[https://deadspin . com/a-normal-parents-guide-to-home schooling-1782287817](https://deadspin.com/a-normal-parents-guide-to-homeschooling-1782287817)
+> 原文：<https://deadspin.com/a-normal-parents-guide-to-homeschooling-1782287817>
 
 “今天不上学？”
 

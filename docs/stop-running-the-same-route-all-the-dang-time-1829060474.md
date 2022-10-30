@@ -1,6 +1,6 @@
 # 不要总是跑同样的路线
 
-> 原文:[https://life hacker . com/stop-running-the-same-route-all-the-dang-time-1829060474](https://lifehacker.com/stop-running-the-same-route-all-the-dang-time-1829060474)
+> 原文：<https://lifehacker.com/stop-running-the-same-route-all-the-dang-time-1829060474>
 
 出奇的容易陷入墨守成规。当你 [开始一个跑步或走路的习惯](https://vitals.lifehacker.com/this-september-lets-run-or-walk-1828699683#_ga=2.154142717.418006613.1536587025-1456718367.1520458611) 时，选择相同的路径两三次，突然，那条路径成为你锻炼中毫无疑问的一部分。或者你可能改变你的位置，但你总是以“哦，我的上帝，我要死了”的速度跑三英里。好吧，别说了。
 

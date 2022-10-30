@@ -1,6 +1,6 @@
 # 任天堂宣布 SNES 经典，其中包括 21 个恒星游戏[更新]
 
-> 原文:[https://kotaku . com/Nintendo-announces-snes-classic-1796418700](https://kotaku.com/nintendo-announces-snes-classic-1796418700)
+> 原文：<https://kotaku.com/nintendo-announces-snes-classic-1796418700>
 
 忘记 NES 经典——这是我们一直在等待的复古系统。任天堂今天宣布了超级任天堂经典游戏，这款游戏将于 9 月 29 日发售，售价 80 美元，将提供 21 款游戏，包括之前未发布的《星际争霸 2》。
 

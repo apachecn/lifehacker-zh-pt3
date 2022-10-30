@@ -1,6 +1,6 @@
 # 你现在可以在亚马逊上使用两步认证——下面是方法
 
-> 原文:[https://gizmodo . com/you-can-now-use-two-step-authentic ation-on-Amazon-and-h-1743224068](https://gizmodo.com/you-can-now-use-two-step-authentication-on-amazon-and-h-1743224068)
+> 原文：<https://gizmodo.com/you-can-now-use-two-step-authentication-on-amazon-and-h-1743224068>
 
 两步认证是最简单的方法之一让你的在线账户更加安全。最后，亚马逊决定提供使用该系统的选项——下面是你如何启用它。
 

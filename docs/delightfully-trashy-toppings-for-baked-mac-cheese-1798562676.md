@@ -1,6 +1,6 @@
 # 令人愉快的垃圾浇头烤奶酪通心粉
 
-> 原文:[https://life hacker . com/delightly-trash-toppings-for-baked-MAC-cheese-1798562676](https://lifehacker.com/delightfully-trashy-toppings-for-baked-mac-cheese-1798562676)
+> 原文：<https://lifehacker.com/delightfully-trashy-toppings-for-baked-mac-cheese-1798562676>
 
 烹饪规定主义在关于通心粉和奶酪的对话中没有位置。从最美味的贝沙梅尔苹果机到一罐天鹅绒和贝壳，我坚信制作或食用涂有奶酪酱的意大利面没有错。不过，如果有压力的话，我会一直选择烤箱烘焙的 mac。松脆的边缘和起司酱的吸引力是不可否认的——一旦你从面包屑配料的监狱中解放出来，可能性是无穷的。让我们放纵一下，朋友们。
 

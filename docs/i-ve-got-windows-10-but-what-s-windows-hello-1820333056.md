@@ -1,6 +1,6 @@
 # 如何使用 Windows Hello 的面部识别来保护您的电脑
 
-> 原文:[https://life hacker . com/I-ve-got-windows-10-but-what-s-windows-hello-1820333056](https://lifehacker.com/i-ve-got-windows-10-but-what-s-windows-hello-1820333056)
+> 原文：<https://lifehacker.com/i-ve-got-windows-10-but-what-s-windows-hello-1820333056>
 
 希望你利用了微软的免费升级服务，该服务允许消费者将运行 Windows 7 或 8 的电脑升级到 Windows 10(如果你没有， [)还不算太晚！](https://lifehacker.com/get-your-free-windows-10-upgrade-before-the-end-of-the-1820215794) )。如果你有，你应该利用 Windows 10 中最方便和最令人愉快的功能之一:只需看着你的电脑，使用 Windows Hello 就可以登录。这很容易设置，但根据您目前拥有的电脑和附件，可能会花费您一些钱。
 

@@ -1,6 +1,6 @@
 # 如何有效地游说你的国会议员
 
-> 原文:[https://Jezebel . com/how-to-effective-lobby-your-congress person-1788958124](https://jezebel.com/how-to-effectively-lobby-your-congressperson-1788958124)
+> 原文：<https://jezebel.com/how-to-effectively-lobby-your-congressperson-1788958124>
 
 选举已经过去快一个星期了，也许你已经准备好扔掉旧衣服，开始工作了。将悲伤的愤怒、讨价还价和抑郁阶段结合起来，可以导致强有力的行动，现在是时候将这种能量引导到具体的行动主义中，这将成为你和未来四年内出现的任何立法和政策之间的障碍。
 

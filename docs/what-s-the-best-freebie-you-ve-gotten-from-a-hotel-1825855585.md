@@ -1,6 +1,6 @@
 # 你从酒店得到的最好的赠品是什么？
 
-> 原文:[https://life hacker . com/what-s-the-best-freebie-you-get-from-a-hotel-1825855585](https://lifehacker.com/what-s-the-best-freebie-you-ve-gotten-from-a-hotel-1825855585)
+> 原文：<https://lifehacker.com/what-s-the-best-freebie-you-ve-gotten-from-a-hotel-1825855585>
 
 小瓶的洗发水、香皂和乳液正慢慢从酒店房间里消失。而不是以通常的方式，你把它们都舀进你的包里，放在你的药柜里。连锁酒店正把浴室里的瓶子换成壁挂式饮水机。据《华尔街日报》报道，万豪、、T4 和洲际酒店集团计划今年将旗下 1900 家酒店转换为新系统。
 

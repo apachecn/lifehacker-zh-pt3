@@ -1,6 +1,6 @@
 # 男人:用“我会”回应“我会”
 
-> 原文:[https://life hacker . com/men-response-to-metoo-with-iwill-1819508528](https://lifehacker.com/men-respond-to-metoo-with-iwill-1819508528)
+> 原文：<https://lifehacker.com/men-respond-to-metoo-with-iwill-1819508528>
 
 今天早上醒来，我的社交媒体上几乎每个女人都在发#MeToo， [回复艾莉莎·米兰诺](http://fortune.com/2017/10/16/me-too-facebook-alyssa-milano/) 推文:
 

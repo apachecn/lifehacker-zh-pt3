@@ -1,6 +1,6 @@
 # 湿手不是洗手
 
-> 原文:[https://life hacker . com/wetting-your-hands-is not-washing-your-hands-1823991829](https://lifehacker.com/wetting-your-hands-is-not-washing-your-hands-1823991829)
+> 原文：<https://lifehacker.com/wetting-your-hands-is-not-washing-your-hands-1823991829>
 
 这种事情我见得太多了:某个家伙上完厕所，走到洗手池前，往手指上滴了点水，抖掉手指，然后走出洗手间。呸。那几乎没用，你这个没耐心的恶心怪物。
 

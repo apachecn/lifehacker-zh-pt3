@@ -1,6 +1,6 @@
 # 如何将非生产性的担忧转化为生产性的担忧
 
-> 原文:[https://life hacker . com/how-to-turn-productive-words-to-productive-one-1821405263](https://lifehacker.com/how-to-turn-unproductive-worries-into-productive-ones-1821405263)
+> 原文：<https://lifehacker.com/how-to-turn-unproductive-worries-into-productive-ones-1821405263>
 
 你现在可能会担心很多事情:你的工作、你的健康、你的人际关系、你爱的人、你在 Twitter 上读到的最后一条消息、我们当前的政治形势、核战争的威胁...你明白了。
 

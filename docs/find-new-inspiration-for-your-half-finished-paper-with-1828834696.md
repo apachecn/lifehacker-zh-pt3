@@ -1,6 +1,6 @@
 # 用这个工具为你的半成品论文寻找新的灵感
 
-> 原文:[https://life hacker . com/find-new-inspiration-for-your ' s half-finished-paper-with-1828834696](https://lifehacker.com/find-new-inspiration-for-your-half-finished-paper-with-1828834696)
+> 原文：<https://lifehacker.com/find-new-inspiration-for-your-half-finished-paper-with-1828834696>
 
 当你写了一半的东西时，你有没有过卡住的感觉？可能是校报，或者短篇小说，或者...一篇关于生活窍门的文章。一款名为 [JSTOR Analyzer](https://www.jstor.org/analyze/) 的工具可以阅读你的草稿，并建议你阅读新的内容，这是一种天才的拖延方式。
 

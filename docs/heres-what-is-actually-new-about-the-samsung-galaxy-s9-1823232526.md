@@ -1,6 +1,6 @@
 # 以下是三星 Galaxy S9 的最新消息
 
-> 原文:[https://gizmodo . com/heres-what-is-actually-new-about-the-Samsung-galaxy-S9-1823232526](https://gizmodo.com/heres-what-is-actually-new-about-the-samsung-galaxy-s9-1823232526)
+> 原文：<https://gizmodo.com/heres-what-is-actually-new-about-the-samsung-galaxy-s9-1823232526>
 
 去年的世界移动通信大会(Mobile World Congress)上，当推迟发布的手机留下了一个 S8 大小的漏洞时，春季智能手机季节的开始感觉有点一般。三星不会再犯同样的错误，所以这就是新的 Galaxy S9 和 S9+。
 

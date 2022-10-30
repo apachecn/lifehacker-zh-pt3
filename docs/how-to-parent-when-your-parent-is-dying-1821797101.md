@@ -1,6 +1,6 @@
 # 当你的父母快死的时候，如何为人父母
 
-> 原文:[https://life hacker . com/how-to-parent-when-your-parent-away-1821797101](https://lifehacker.com/how-to-parent-when-your-parent-is-dying-1821797101)
+> 原文：<https://lifehacker.com/how-to-parent-when-your-parent-is-dying-1821797101>
 
 在成年的游戏中，一群羊伴随着你走过一个个里程碑。当你年轻的时候，你认识的每个人都在大学毕业，找到第一份工作，结婚，生子。当你接近中年时，这些里程碑变得不那么值得庆祝了。你认识的每个人都在松腰带，掉头发， [掉 T](https://www.webmd.com/men/features/low-testosterone-explained-how-do-you-know-when-levels-are-too-low) 。然后是最令人迷惑的失去:他们的父母。
 

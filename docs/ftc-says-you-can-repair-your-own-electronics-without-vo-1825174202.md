@@ -1,6 +1,6 @@
 # 你可以修理自己的电子产品，而不会使保修失效
 
-> 原文:[https://life hacker . com/FTC-says-you-can-repair-your-own-electronics-without-VO-1825174202](https://lifehacker.com/ftc-says-you-can-repair-your-own-electronics-without-vo-1825174202)
+> 原文：<https://lifehacker.com/ftc-says-you-can-repair-your-own-electronics-without-vo-1825174202>
 
 美国联邦贸易委员会已经向销售汽车、手机和游戏机的六家主要公司发出警告信，通知他们当消费者试图修理自己的物品或使用非公司制造的零件时，保修无效是非法的。使用第三方维修服务也是如此。没错，你可以毫不畏惧地撕掉那个愚蠢的“移除后保修无效”标签。
 

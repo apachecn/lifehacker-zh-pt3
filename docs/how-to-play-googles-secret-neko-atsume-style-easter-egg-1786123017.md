@@ -1,6 +1,6 @@
 # 如何在安卓牛轧糖中玩谷歌的秘密 Neko Atsume 风格的复活节彩蛋
 
-> 原文:[https://life hacker . com/how-to-play-Google-secret-neko-at sume-style-Easter-egg-1786123017](https://lifehacker.com/how-to-play-googles-secret-neko-atsume-style-easter-egg-1786123017)
+> 原文：<https://lifehacker.com/how-to-play-googles-secret-neko-atsume-style-easter-egg-1786123017>
 
 如果你喜欢收集虚拟猫*和*你有 Android 牛轧糖，你很幸运:谷歌在最新版本的 Android 中加入了一个名为 *Android 猫*的收集猫的复活节彩蛋，虽然它远不如 *Neko Atsume* 有趣，但你确实可以通过发放糖果来收集猫。
 

@@ -1,6 +1,6 @@
 # 如何成为终极烧烤大师
 
-> 原文:[https://life hacker . com/how-to-be-the ultimate-grill-master-392818](https://lifehacker.com/how-to-become-the-ultimate-grill-master-392818)
+> 原文：<https://lifehacker.com/how-to-become-the-ultimate-grill-master-392818>
 
 阵亡将士纪念日标志着烧烤季节的开始，没有比这更好的周末来支持你的烧烤大师游戏了。幸运的是，磨练你的户外烹饪技能比看起来要简单得多，只要有合适的工具，一点点准备和一些技巧。
 

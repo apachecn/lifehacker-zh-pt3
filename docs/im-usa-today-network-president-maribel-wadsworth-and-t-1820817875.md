@@ -1,6 +1,6 @@
 # 我是《今日美国》网络总裁玛丽贝尔·沃兹沃斯，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-USA-today-network-president-maribel-wadsworth-and-t-1820817875](https://lifehacker.com/im-usa-today-network-president-maribel-wadsworth-and-t-1820817875)
+> 原文：<https://lifehacker.com/im-usa-today-network-president-maribel-wadsworth-and-t-1820817875>
 
 22 年前，玛丽贝尔·佩雷斯·沃兹沃斯在甘尼特拥有的罗克福德注册之星开始工作，报道伊利诺伊州的农业。现在，作为甘尼特的《今日美国》网络的总裁和《今日美国》的联合发行人，她监管着一长串地方和国家报纸。一路走来，她一直担任 Gannett 的首席战略官，以及观众开发和参与副总裁。我们和她聊了聊她的日常安排，她的待办习惯，以及她如何衡量成功。
 

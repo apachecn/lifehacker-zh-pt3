@@ -1,6 +1,6 @@
 # 让我们从喂菲尔的人那里做松脆的开面油炸玉米饼
 
-> 原文:[https://the take out . com/let-make-the crisp-open-face-quesadilla-from-somebod-1823877669](https://thetakeout.com/lets-make-the-crispy-open-faced-quesadilla-from-somebod-1823877669)
+> 原文：<https://thetakeout.com/lets-make-the-crispy-open-faced-quesadilla-from-somebod-1823877669>
 
 我是 [唱片上的粉丝](https://thetakeout.com/somebody-feed-phil-is-the-sweetest-most-joyful-food-sh-1823275276) [*有人喂菲尔*](https://thetakeout.com/somebody-feed-phil-is-the-sweetest-most-joyful-food-sh-1823275276) *，*来自*人人都爱雷蒙德*创作人转型职业旅行迷菲尔·罗森塔尔的网飞旅行美食系列。这是一个甜蜜、快乐、非愤世嫉俗的安东尼·鲍代恩或安德鲁·齐默恩风格的节目，但一个 12 岁的主持人在一个 58 岁的人的身体里——他遇到的每一次经历和菜肴都是新的和令人兴奋的。
 

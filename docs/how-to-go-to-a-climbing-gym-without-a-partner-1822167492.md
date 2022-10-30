@@ -1,6 +1,6 @@
 # 没有伙伴怎么去攀岩馆
 
-> 原文:[https://life hacker . com/how-to-go-a-a-climbing-gym-1822167492](https://lifehacker.com/how-to-go-to-a-climbing-gym-without-a-partner-1822167492)
+> 原文：<https://lifehacker.com/how-to-go-to-a-climbing-gym-without-a-partner-1822167492>
 
 想象你自己站在一面攀岩墙上:你直着头，小心地抓住每个抓手和立足点，一根绳子将你臀部周围的安全带连接到上面的滑轮。唯一的问题是:你不知道谁会在地上抓着绳子的另一端。所以，就像许多潜在的登山者一样，你呆在家里。一个人。
 

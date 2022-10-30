@@ -1,6 +1,6 @@
 # 太随和的问题是
 
-> 原文:[https://life hacker . com/the-problem with-that-be-agreed-1791893359](https://lifehacker.com/the-problem-with-being-too-agreeable-1791893359)
+> 原文：<https://lifehacker.com/the-problem-with-being-too-agreeable-1791893359>
 
 半个小时过去了，我坐在车里，等待我习惯性迟到的朋友到来，这样我就可以帮她搬家了。怨恨和愤怒开始积聚。但是当她发短信说，“非常抱歉，马上就到，”我回答说，“别担心！慢慢来:)”我受够了。我真的厌倦了这种美好的生活。
 

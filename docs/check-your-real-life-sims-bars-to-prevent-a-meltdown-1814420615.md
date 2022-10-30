@@ -1,6 +1,6 @@
 # 检查你现实生活中的“模拟人生吧”以防止崩溃
 
-> 原文:[https://life hacker . com/check-your-real-life-sims-bars-to-prevent-a-meltdown-1814420615](https://lifehacker.com/check-your-real-life-sims-bars-to-prevent-a-meltdown-1814420615)
+> 原文：<https://lifehacker.com/check-your-real-life-sims-bars-to-prevent-a-meltdown-1814420615>
 
 马克西的游戏《模拟人生》给我们上了关于人类行为的重要一课:大多数时候，我们只是试图满足一系列基本需求。在《模拟人生》的世界里，这些需求是饥饿、舒适、卫生、膀胱、能量、娱乐、社交和空间，每一项都由一个慢慢耗尽的条形表示。它们对生活如此真实，以至于你应该在离家或开始长途旅行前检查一下自己的。
 

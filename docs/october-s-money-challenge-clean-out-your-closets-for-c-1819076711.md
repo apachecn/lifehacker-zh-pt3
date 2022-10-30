@@ -1,6 +1,6 @@
 # 10 月的金钱挑战:清理你的衣橱，寻找现金
 
-> 原文:[https://life hacker . com/October-s-money-challenge-clean-out-of-your-closets-for-c-1819076711](https://lifehacker.com/october-s-money-challenge-clean-out-your-closets-for-c-1819076711)
+> 原文：<https://lifehacker.com/october-s-money-challenge-clean-out-your-closets-for-c-1819076711>
 
 年底很快就要到了，随着 12 月的临近，我们希望专注于为假期存钱。所以这个月，我们的挑战很简单:清理你的衣橱，同时赚些外快。
 

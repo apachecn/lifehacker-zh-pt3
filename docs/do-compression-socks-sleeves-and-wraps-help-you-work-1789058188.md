@@ -1,6 +1,6 @@
 # 压缩袜、袖子和外套有助于你更好地锻炼吗？
 
-> 原文:[https://life hacker . com/do-compression-socks-sleeps-and-wrapps-help-you-work-1789058188](https://lifehacker.com/do-compression-socks-sleeves-and-wraps-help-you-work-1789058188)
+> 原文：<https://lifehacker.com/do-compression-socks-sleeves-and-wraps-help-you-work-1789058188>
 
 篮球运动员、跑步者、举重运动员和每天去健身房的人总是在寻找额外的优势，他们认为压缩设备可能正是他们想要的。通过将自己挤进这些有弹性的衣服，你应该会增加血流量，这在理论上意味着更多的氧气进入工作肌肉，更好的锻炼。
 

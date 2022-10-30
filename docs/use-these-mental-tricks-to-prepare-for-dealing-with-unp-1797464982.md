@@ -1,6 +1,6 @@
 # 使用这些心理技巧来准备与不愉快的人打交道
 
-> 原文:[https://life hacker . com/use-these-mental-tricks-to-prepare-for-dealing-UNP-1797464982](https://lifehacker.com/use-these-mental-tricks-to-prepare-for-dealing-with-unp-1797464982)
+> 原文：<https://lifehacker.com/use-these-mental-tricks-to-prepare-for-dealing-with-unp-1797464982>
 
 正念热已经被用于各种各样的好处——改善睡眠，提高生产力，减少无意识的零食，等等。我们现在可能能够为这个列表增加另一个优势:加州大学伯克利分校、斯坦福大学和加州大学戴维斯分校的研究人员发现，正念练习可以增加同情心，这反过来可以帮助我们所有人处理日常生活中遇到的令人讨厌的(或彻头彻尾的)难相处的人。
 

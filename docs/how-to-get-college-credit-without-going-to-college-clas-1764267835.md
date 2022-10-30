@@ -1,6 +1,6 @@
 # 不上大学课如何拿到大学学分
 
-> 原文:[https://life hacker . com/how-to-get-college-credit-without-to-court-class-1764267835](https://lifehacker.com/how-to-get-college-credit-without-going-to-college-clas-1764267835)
+> 原文：<https://lifehacker.com/how-to-get-college-credit-without-going-to-college-clas-1764267835>
 
 跳过耗时的讲座和昂贵的学费:你可以利用你已经拥有的经验和知识获得大学学分，甚至是一个完整的认证学位。与通常的途径相比， [基于能力的教育](http://www.ed.gov/oii-news/competency-based-learning-or-personalized-learning) (CBE)通常是获得文凭的更快、更便宜的途径，由高校设计，考虑到工作繁忙的成年人。
 

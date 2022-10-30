@@ -1,6 +1,6 @@
 # 本周末和圣诞节在影院上映的 5 部电影
 
-> 原文:[https://www . av club . com/5-本周末圣诞节影院看电影-1821512352](https://www.avclub.com/5-movies-to-see-in-theaters-this-weekend-and-christmas-1821512352)
+> 原文：<https://www.avclub.com/5-movies-to-see-in-theaters-this-weekend-and-christmas-1821512352>
 
 ### [*幻影线程*](https://www.avclub.com/p-t-anderson-reunites-with-daniel-day-lewis-for-the-ex-1821100576)T5】
 

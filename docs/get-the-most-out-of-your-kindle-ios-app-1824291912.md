@@ -1,6 +1,6 @@
 # 充分利用您的 Kindle iOS 应用
 
-> 原文:[https://life hacker . com/get-the-most-out-of-your-kindle-IOs-app-1824291912](https://lifehacker.com/get-the-most-out-of-your-kindle-ios-app-1824291912)
+> 原文：<https://lifehacker.com/get-the-most-out-of-your-kindle-ios-app-1824291912>
 
 当然，Kindle 应用程序可以让你阅读在亚马逊上购买的电子书，但它还有其他你可能不知道的有用功能。比如创建抽认卡来帮助你学习，导入免费的经典书籍来阅读，保存文章以便以后离线阅读。
 

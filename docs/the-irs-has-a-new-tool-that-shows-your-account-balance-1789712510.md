@@ -1,6 +1,6 @@
 # 这个工具在国税局来找你之前告诉你你欠他们多少
 
-> 原文:[https://life hacker . com/the-IRS-has-a-new-tool-show-your ' s account-balance-1789712510](https://lifehacker.com/the-irs-has-a-new-tool-that-shows-your-account-balance-1789712510)
+> 原文：<https://lifehacker.com/the-irs-has-a-new-tool-that-shows-your-account-balance-1789712510>
 
 如果你欠国税局的钱，他们肯定不希望你忘记这件事。这就是为什么该机构非常友好地提供了一个在线工具来帮助你跟踪你的未偿余额并掌握支付情况，省去你依靠一捆旧邮件来跟踪细节的麻烦。
 

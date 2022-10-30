@@ -1,6 +1,6 @@
 # 不花钱不沉迷美食的你是怎么对待自己的？
 
-> 原文:[https://life hacker . com/how-do-you-treat you-without-spending money-or-ind-1820950366](https://lifehacker.com/how-do-you-treat-yourself-without-spending-money-or-ind-1820950366)
+> 原文：<https://lifehacker.com/how-do-you-treat-yourself-without-spending-money-or-ind-1820950366>
 
 12 月总是一年中的艰难时刻，2017 年没有任何好处。再加上短暂的白天和节日的压力，我们可能都迫切需要为自己做点什么。这是给情绪银行添加一些积极因素的黄金时间，因为这个世界正在侵蚀你的商店。
 

@@ -1,6 +1,6 @@
 # 餐馆如何为盲人提供无缝就餐
 
-> 原文:[https://the take out . com/how-restaurants-can-make-dining-seamless-for-blind-peop-1823739501](https://thetakeout.com/how-restaurants-can-make-dining-seamless-for-blind-peop-1823739501)
+> 原文：<https://thetakeout.com/how-restaurants-can-make-dining-seamless-for-blind-peop-1823739501>
 
 据说我对餐饮业有独特的见解。我是一名企业家，拥有加州大学戴维斯分校的有机化学博士学位，我与人共同创办了一家名为 [Senspoint](https://senspointdesign.com/) 的感官设计公司，帮助公司从所有五种感官的角度增强产品和体验的设计。
 

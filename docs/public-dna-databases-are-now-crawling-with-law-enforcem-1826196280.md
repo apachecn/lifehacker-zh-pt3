@@ -1,6 +1,6 @@
 # 公共 DNA 数据库现在充斥着执法部门，我们最好习惯这一点
 
-> 原文:[https://life hacker . com/public-DNA-databases-is-now-crawling-with-law-enforcem-1826196280](https://lifehacker.com/public-dna-databases-are-now-crawling-with-law-enforcem-1826196280)
+> 原文：<https://lifehacker.com/public-dna-databases-are-now-crawling-with-law-enforcem-1826196280>
 
 执法人员和基因系谱学家没有浪费任何时间 [公共 DNA 数据库导致金州黑仔上个月怀疑](https://vitals.lifehacker.com/the-golden-state-killers-dna-was-in-a-publicly-availabl-1825604590) 。一家取证公司宣布了一项服务来进行这种分析*全体，*并且 DNA 数据库 [GEDmatch](https://www.gedmatch.com/) 已经改变了它的隐私政策以允许执法部门使用它。记住，即使你不在这些数据库中， [你的表亲也可能是](https://lifehacker.com/you-probably-already-have-cousins-in-a-dna-database-1825892173) 。
 

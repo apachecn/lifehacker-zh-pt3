@@ -1,6 +1,6 @@
 # 记者 K.J .戴尔·安东妮亚的《如何做一个更快乐的父母》
 
-> 原文:[https://life hacker . com/how-to-be-happer-a-hacker-k-j-dellan-1829279778](https://lifehacker.com/how-to-be-a-happier-parent-with-journalist-k-j-dellan-1829279778)
+> 原文：<https://lifehacker.com/how-to-be-a-happier-parent-with-journalist-k-j-dellan-1829279778>
 
 在这一集里，[KJ Dell ' Antonia](https://kjdellantonia.com/)——[的记者和作者——如何成为一个更快乐的父母:养育一个家庭，拥有自己的生活，并热爱(几乎)每一分钟](https://www.amazon.com/How-Happier-Parent-Raising-Family/dp/0735210470?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-be-a-happier-parent-with-journalist-k-j-dellan-1829279778&asc_source=&tag=kinjalifehackerlink-20)——与《后代》编辑 Michelle Woo 一起讨论如何让你的家庭生活压力更小，甚至——我们敢说吗？—好玩。但是首先，爱丽丝给了编剧兼即将为人父母的尼克·道格拉斯一个重要的(注意:并不重要)育儿小测验。最后，我们有一个非儿童歌曲的播放列表，你的孩子会像你一样喜欢——因为没有什么比父母不必整天听 Wiggles 更幸福的了。
 

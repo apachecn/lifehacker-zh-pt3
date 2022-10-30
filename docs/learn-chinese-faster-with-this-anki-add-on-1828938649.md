@@ -1,6 +1,6 @@
 # 使用这个 Anki 插件可以更快地学习中文
 
-> 原文:[https://life hacker . com/learn-Chinese-faster-with the-anki-add-on-1828938649](https://lifehacker.com/learn-chinese-faster-with-this-anki-add-on-1828938649)
+> 原文：<https://lifehacker.com/learn-chinese-faster-with-this-anki-add-on-1828938649>
 
 在阅读我所涉猎的少数几种外语之一时，我最大的挫折之一是要花多长时间来查找所有我不认识的单词(诚然，这些单词很多)。这是破坏性的，我很可能在看完一篇文章、一章或一页之前就放弃了。
 

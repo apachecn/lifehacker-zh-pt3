@@ -1,6 +1,6 @@
 # 我的家人拒绝乘坐我的旧出租车！应该买什么车？
 
-> 原文:[https://jalopnik . com/my-family-deny-ride-in-my-old-beater-what-car-sh-1827015258](https://jalopnik.com/my-family-refuses-to-ride-in-my-old-beater-what-car-sh-1827015258)
+> 原文：<https://jalopnik.com/my-family-refuses-to-ride-in-my-old-beater-what-car-sh-1827015258>
 
 罗伯特有一辆开了 14 年的大众帕萨特，跑了很多英里，寿命也不多了。他的家人拒绝乘坐他的车，这辆车可能几年前就应该被送到垃圾场了，所以是时候换一辆安全但不蹩脚的车了。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 我是玛丽卡·乔普拉，作家兼企业家，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-mallika-Chopra-author-and-entrepreneur-and-this-is-1828455137](https://lifehacker.com/im-mallika-chopra-author-and-entrepreneur-and-this-is-1828455137)
+> 原文：<https://lifehacker.com/im-mallika-chopra-author-and-entrepreneur-and-this-is-1828455137>
 
 小时候，玛丽卡·乔普拉的父亲狄巴克·乔布拉会让她探索四个问题:*我是谁？我想要什么？我该如何服务？我感激什么？*现在作为一名企业家、公共演说家和新儿童冥想指南 [*的作者【只管呼吸*](https://www.amazon.com/Just-Breathe-Meditation-Mindfulness-Movement/dp/0762491582?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-mallika-chopra-author-and-entrepreneur-and-this-is-1828455137&asc_source=&tag=kinjalifehackerlink-20) *，* Mallika 用那些问题帮助别人了解他们的意图，改善他们的生活。她已经向世界上成千上万的人教授冥想，包括她的两个女儿，塔拉和莉拉。以下是她为人父母的方式。
 

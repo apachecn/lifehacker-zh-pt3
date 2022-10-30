@@ -1,6 +1,6 @@
 # 这是给你的女士薯片的女士蘸酱
 
-> 原文:[https://life hacker . com/heres-a-lady-dip-for-your ' s lady-chips-1822769865](https://lifehacker.com/heres-a-lady-dip-for-your-lady-chips-1822769865)
+> 原文：<https://lifehacker.com/heres-a-lady-dip-for-your-lady-chips-1822769865>
 
 做女人的时候到了！我们不仅终于有了一位女性桑德斯上校，而且多力多滋已经宣布他们将生产一种更安静、更整洁、对女性更友好的芯片。
 

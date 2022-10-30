@@ -1,6 +1,6 @@
 # 增加重量还是增加重复次数:我应该先关注哪一个？
 
-> 原文:[https://life hacker . com/more-weight-or-more-reps-I-should-on-first-1752080884](https://lifehacker.com/more-weight-or-more-reps-which-should-i-focus-on-first-1752080884)
+> 原文：<https://lifehacker.com/more-weight-or-more-reps-which-should-i-focus-on-first-1752080884>
 
 不管你举重的动机是什么，你的目标和我或者你旁边自拍的那个人是一样的:进步。你的第一反应可能是增加重量和举起更重的东西，但是增加重复次数是另一个选择。让我们梳理出每个选项的最佳时间。
 

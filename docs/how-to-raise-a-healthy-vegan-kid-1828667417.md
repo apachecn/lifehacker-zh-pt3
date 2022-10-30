@@ -1,6 +1,6 @@
 # 如何养育一个健康的素食儿童
 
-> 原文:[https://life hacker . com/how-to-raise-a healthy-vegan-kid-1828667417](https://lifehacker.com/how-to-raise-a-healthy-vegan-kid-1828667417)
+> 原文：<https://lifehacker.com/how-to-raise-a-healthy-vegan-kid-1828667417>
 
 当谈到养育一个健康的纯素食孩子时，挑战往往与其说是营养方面的，不如说是社会方面的。 [让你的孩子吃素](https://lifehacker.com/how-to-eat-less-meat-1794753566) ，不管你是否要求，你都会听到每个人对此的意见和建议。甚至在你自己的家庭单位里，你也需要考虑如何跟你的孩子谈论他们为什么吃素，无论是为了他们的健康、环境、动物，还是以上所有因素，以及如何正确对待他们的营养。
 

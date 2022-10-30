@@ -1,6 +1,6 @@
 # 比起自制的食物，你更喜欢哪种商店买的食物？
 
-> 原文:[https://life hacker . com/which-store-buyed-foods-do-you-prefere-than-自制-1828004307](https://lifehacker.com/which-store-bought-foods-do-you-prefer-over-homemade-1828004307)
+> 原文：<https://lifehacker.com/which-store-bought-foods-do-you-prefer-over-homemade-1828004307>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。大多数食物自制时味道更好，但有几样我更喜欢购买，无论是因为我的能力不足、懒惰，还是因为一个人根本无法像菲多利罐头公司的科学家那样制作油炸玉米饼。
 

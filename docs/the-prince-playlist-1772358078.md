@@ -1,6 +1,6 @@
 # 王子播放列表
 
-> 原文:[https://lifehacker.com/the-prince-playlist-1772358078](https://lifehacker.com/the-prince-playlist-1772358078)
+> 原文：<https://lifehacker.com/the-prince-playlist-1772358078>
 
 今天，我们失去了 [传奇艺人兼艺人](http://theconcourse.deadspin.com/prince-is-dead-long-live-prince-1772300716?utm_source=feedburner&utm_medium=feed&utm_campaign=Feed%3A+deadspin%2Fexcerpts+%28Deadspin+Excerpts%29&utm_content=Google+Feedfetcher)王子。不同于我们通常的每周精选播放列表，我们收集了王子的现场表演，以记住他是一个多么了不起的人和艺术家。
 

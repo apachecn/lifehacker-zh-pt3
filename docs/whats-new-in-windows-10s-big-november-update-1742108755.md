@@ -1,6 +1,6 @@
 # Windows 10 的 11 月大更新有什么新内容
 
-> 原文:[https://life hacker . com/whats-new-in-windows-10s-big-November-update-1742108755](https://lifehacker.com/whats-new-in-windows-10s-big-november-update-1742108755)
+> 原文：<https://lifehacker.com/whats-new-in-windows-10s-big-november-update-1742108755>
 
 Windows 10 今天获得了第一次重大更新，提供了许多你想要的功能——比如彩色标题栏、开始菜单的修复，以及(终于！)激活 Windows 10 许可证的更好方法。
 

@@ -1,6 +1,6 @@
 # 如何选择你可以信任的银行或信用合作社
 
-> 原文:[https://life hacker . com/how-to-pick-a-bank-or-credit-union-you-can-trust-1786649640](https://lifehacker.com/how-to-pick-a-bank-or-credit-union-you-can-trust-1786649640)
+> 原文：<https://lifehacker.com/how-to-pick-a-bank-or-credit-union-you-can-trust-1786649640>
 
 你可能遇到过这样的人，他说他们不信任银行，并把他们的钱藏在床垫下。你注销它们，继续使用你的借记卡和支票账户。然后，像富国银行这样的事情 [发生了](http://lifehacker.com/what-you-should-know-if-you-think-wells-fargo-ripped-yo-1786461333?rev=1473464299757) ，突然间，投资你的钱似乎不是一个坏主意。
 

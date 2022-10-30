@@ -1,6 +1,6 @@
 # 如何洗最好的澡
 
-> 原文:[https://life hacker . com/how-to-take the best-bath-possible-1795702871](https://lifehacker.com/how-to-take-the-best-bath-possible-1795702871)
+> 原文：<https://lifehacker.com/how-to-take-the-best-bath-possible-1795702871>
 
 洗澡不是为了变得干净，这才是淋浴的目的。洗澡是为了平静你不安的心灵，缓解你身体和情感上的疼痛。作为一个 [高度敏感的人](http://lifehacker.com/find-out-if-youre-a-highly-sensitive-person-with-this-1497152169) ，我发现洗澡是必要的，而且我已经很擅长了。
 

@@ -1,6 +1,6 @@
 # 这些是 Reddit 最喜欢的生活窍门
 
-> 原文:[https://life hacker . com/read-reddits-favorite-life-hacks-1828001093](https://lifehacker.com/read-reddits-favorite-life-hacks-1828001093)
+> 原文：<https://lifehacker.com/read-reddits-favorite-life-hacks-1828001093>
 
 Redditors 们 [在 AskReddit 帖子中分享他们最喜欢的“生活专业建议”](https://www.reddit.com/r/AskReddit/comments/936cps/what_life_pro_tip_have_you_learned_from_reddit/) ，我们收集了以下最佳内容。(有些是 Lifehacker 的读者所熟悉的。)串在一起，它们感觉就像一部世俗的现代*兵法*:为打好仗而制定的简明扼要的战术和战略。学习入睡、开始艰难任务和计算百分比的技巧。
 

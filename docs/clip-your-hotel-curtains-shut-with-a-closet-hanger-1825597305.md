@@ -1,6 +1,6 @@
 # 用衣柜衣架夹住你的酒店窗帘
 
-> 原文:[https://life hacker . com/clip-your-hotel-currents-shut-with-a close-hanger-1825597305](https://lifehacker.com/clip-your-hotel-curtains-shut-with-a-closet-hanger-1825597305)
+> 原文：<https://lifehacker.com/clip-your-hotel-curtains-shut-with-a-closet-hanger-1825597305>
 
 如果你住在繁华市中心的酒店，光污染可能是一个严重的问题。即使是窗帘上最细小的裂缝也能照亮你的房间，远远超出舒适的睡眠水平。所以:去你的衣柜。
 

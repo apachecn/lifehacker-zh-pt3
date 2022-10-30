@@ -1,6 +1,6 @@
 # 根据孩子们的说法，如何在万圣节获得额外的糖果[更新]
 
-> 原文:[https://life hacker . com/how-to-score-extra-candy-on-Halloween-by-kid-1739474072](https://lifehacker.com/how-to-score-extra-candy-on-halloween-according-to-kid-1739474072)
+> 原文：<https://lifehacker.com/how-to-score-extra-candy-on-halloween-according-to-kid-1739474072>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-kXcTtv2gMQE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-kXcTtv2gMQE&start=0) 
 

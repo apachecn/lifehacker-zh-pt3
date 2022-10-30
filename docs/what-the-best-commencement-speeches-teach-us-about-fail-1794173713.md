@@ -1,6 +1,6 @@
 # 关于失败，最好的毕业典礼演讲教会了我们什么
 
-> 原文:[https://life hacker . com/what-the-best-concernment-speechs-teach-us-about-fail-1794173713](https://lifehacker.com/what-the-best-commencement-speeches-teach-us-about-fail-1794173713)
+> 原文：<https://lifehacker.com/what-the-best-commencement-speeches-teach-us-about-fail-1794173713>
 
 如果有一个最好的大学毕业典礼演讲的共同点，那就是失败。事实证明，与人生的其他阶段相比，大学是容易的，为了让你做好准备，从丹泽尔·华盛顿到 JK 罗琳，每个人都在毕业生面前花时间帮助我们记住这一点。
 

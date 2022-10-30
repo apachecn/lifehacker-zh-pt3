@@ -1,6 +1,6 @@
 # 请教专家:关于在国外生活和工作的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-living-working-overseas-1793007876](https://lifehacker.com/ask-an-expert-all-about-living-and-working-abroad-1793007876)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-living-and-working-abroad-1793007876>
 
 在互联网上工作的一大乐事是，你不会被束缚，可以随心所欲地旅行，这取决于你的工作领域。但是在跳过池塘之前，你需要考虑很多因素。
 

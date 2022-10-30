@@ -1,6 +1,6 @@
 # Waze 仍然提供最快的驾驶路线
 
-> 原文:[https://life hacker . com/waze-still-provide-the-fast-driving-directions-1823286419](https://lifehacker.com/waze-still-provides-the-fastest-driving-directions-1823286419)
+> 原文：<https://lifehacker.com/waze-still-provides-the-fastest-driving-directions-1823286419>
 
 如果你想快速到达目的地，那么你最好使用谷歌地图或 Waze，而不是苹果地图——如果你真的想要“最快”的选项，就使用 Waze。
 

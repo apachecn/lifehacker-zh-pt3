@@ -1,6 +1,6 @@
 # 在飞机上什么时候使用呼叫按钮比较合适？
 
-> 原文:[https://life hacker . com/when-it-just-to-use-the-call-button-on-a-air-1827806123](https://lifehacker.com/when-is-it-appropriate-to-use-the-call-button-on-an-air-1827806123)
+> 原文：<https://lifehacker.com/when-is-it-appropriate-to-use-the-call-button-on-an-air-1827806123>
 
 你几乎肯定不喜欢坐飞机:费用、不舒服、b 座那个烦人的人。只要记住，空乘人员的经历可能比你更糟糕，他们不能抱怨，因为这是他们的工作。所有这些都是说，总的来说，考虑你的空乘人员的体验是很重要的。而且似乎呼叫按钮是在运输过程中引起不良行为的一个特别常见的原因。
 

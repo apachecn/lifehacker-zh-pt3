@@ -1,6 +1,6 @@
 # 值得一玩的 11 款免费 Steam 游戏
 
-> 原文:[https://kotaku . com/11-free-steam-games-value-playing-1695111846](https://kotaku.com/11-free-steam-games-worth-playing-1695111846)
+> 原文：<https://kotaku.com/11-free-steam-games-worth-playing-1695111846>
 
 虽然 Steam 以折扣价大肆宣传，但你实际上不必花任何钱就能享受这项服务提供的一些最好的游戏。多年来，Steam 积累了许多免费游戏，我在这里告诉你应该看看哪些游戏。
 

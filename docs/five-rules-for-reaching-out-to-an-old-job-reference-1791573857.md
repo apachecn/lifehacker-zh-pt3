@@ -1,6 +1,6 @@
 # 联系旧工作推荐人的五条规则
 
-> 原文:[https://life hacker . com/five-rules-for-reaching-a-old-job-reference-1791573857](https://lifehacker.com/five-rules-for-reaching-out-to-an-old-job-reference-1791573857)
+> 原文：<https://lifehacker.com/five-rules-for-reaching-out-to-an-old-job-reference-1791573857>
 
 你正在找工作，你需要准备好你的 [职业推荐信](https://www.themuse.com/advice/your-guide-to-getting-great-job-references) 。这意味着联系某个前老板，他可能是最佳人选。只有一个小问题。你们没有联系。
 

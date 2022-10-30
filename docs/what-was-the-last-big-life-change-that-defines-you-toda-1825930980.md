@@ -1,6 +1,6 @@
 # 定义你今天的最后一次重大生活变化是什么？
 
-> 原文:[https://life hacker . com/what-the-last-a-big-life-change-the-defining-you-toda-1825930980](https://lifehacker.com/what-was-the-last-big-life-change-that-defines-you-toda-1825930980)
+> 原文：<https://lifehacker.com/what-was-the-last-big-life-change-that-defines-you-toda-1825930980>
 
 “现在”不是平滑滚动的时间窗口，总是以同样的速度滑向过去。我们时不时会改变一些重大的事情——离开一份工作，搬到一个新家，与伴侣分手——这定义了一个新的过去和一个新的现在。我们并不总是预见到这种变化的影响，或者是否会有任何影响。只有回想起来，我们才意识到我们做了一个伟大或可怕的选择。
 

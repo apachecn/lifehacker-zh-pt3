@@ -1,6 +1,6 @@
 # 你旅行的时候怎么吃？
 
-> 原文:[https://life hacker . com/how-do-you-eat-when-you-travel-1823211659](https://lifehacker.com/how-do-you-eat-when-you-travel-1823211659)
+> 原文：<https://lifehacker.com/how-do-you-eat-when-you-travel-1823211659>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周我想谈谈旅行，以及食物在你旅行计划中的作用。
 

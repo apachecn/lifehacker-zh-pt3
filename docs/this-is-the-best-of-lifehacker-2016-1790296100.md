@@ -1,6 +1,6 @@
 # 这是 Lifehacker 2016 的精华
 
-> 原文:[https://life hacker . com/this-is-the-best-of-life hacker-2016-1790296100](https://lifehacker.com/this-is-the-best-of-lifehacker-2016-1790296100)
+> 原文：<https://lifehacker.com/this-is-the-best-of-lifehacker-2016-1790296100>
 
 每年年底，我们都会回顾一下我们最受欢迎的帖子，以供回忆(并帮助你抓住任何你可能错过的东西)。下面最后看一下我们 2016 年的最佳帖子。
 

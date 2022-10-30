@@ -1,6 +1,6 @@
 # 系绳:一种你从未听说过的加密货币是如何压垮比特币价格的
 
-> 原文:[https://life hacker . com/tether-how-a-cryptocurrency-you-ve-never-heard-of-coul-1822752339](https://lifehacker.com/tether-how-a-cryptocurrency-you-ve-never-heard-of-coul-1822752339)
+> 原文：<https://lifehacker.com/tether-how-a-cryptocurrency-you-ve-never-heard-of-coul-1822752339>
 
 [比特币](https://lifehacker.com/how-to-get-your-money-out-of-bitcoin-1821536561) 正在崩盘，但你可能已经知道了。然而，如果你没有在过去几周拼命刷新 [CoinMarketCap](https://lifehacker.com/how-one-person-caused-the-price-of-cryptocurrencies-to-1822396438) (或其他跟踪 [加密货币](https://lifehacker.com/preview/beyond-bitcoin-your-guide-to-the-other-major-cryptocur-1821656104?rev=1514581574792) 价值的网站)，你可能会错过一次令人震惊的下跌，那次下跌抹去了 2017 年积累的大部分价值。
 

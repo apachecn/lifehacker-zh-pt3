@@ -1,6 +1,6 @@
 # 你是在健身后去淋浴，还是等到回家后再去？
 
-> 原文:[https://www . the root . com/do-you-shower-in-the-gym-out-or-do-you-w-1819887026](https://www.theroot.com/do-you-shower-at-the-gym-after-working-out-or-do-you-w-1819887026)
+> 原文：<https://www.theroot.com/do-you-shower-at-the-gym-after-working-out-or-do-you-w-1819887026>
 
 周三晚上，我在[【Brillobox】](http://www.brilloboxpgh.com/)阅读了一段非常非常早(非常非常露骨)的摘录，作为他们每月 [桥牌系列](https://www.facebook.com/pghbridgeseries/) 的一部分。我想在阅读(从晚上 8:15 开始)之前锻炼一下，出点汗，所以我 6 点去洛杉矶健身中心打了一个小时左右的篮球。我经常去的 LA Fitness 和 Brillobox 都在匹兹堡的东区。我住在北边，这意味着我没有时间在阅读前离开体育馆开车回家洗澡。这意味着我必须在洛杉矶健身中心洗澡——这是我第一次在公共更衣室洗澡。
 

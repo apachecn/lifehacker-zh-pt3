@@ -1,6 +1,6 @@
 # 五六十岁的你对金钱有什么了解
 
-> 原文:[https://life hacker . com/what-to-know-about the money in your-50 and-60-1828367050](https://lifehacker.com/what-to-know-about-money-in-your-50s-and-60s-1828367050)
+> 原文：<https://lifehacker.com/what-to-know-about-money-in-your-50s-and-60s-1828367050>
 
 所以，你已经有了一栋 [还算不错的储蓄金](https://twocents.lifehacker.com/what-to-know-about-money-before-youre-20-1828189748) 大楼，你的 [债务已经还清](https://twocents.lifehacker.com/what-to-know-about-money-in-your-20s-and-early-30s-1828308837#_ga=2.84601306.2105579250.1534164266-594046802.1524762060) ，你的 [房产或多或少还算有序](https://twocents.lifehacker.com/what-to-know-about-money-in-your-late-30s-and-40s-1828355989) 。你快到退休的最后阶段了。
 

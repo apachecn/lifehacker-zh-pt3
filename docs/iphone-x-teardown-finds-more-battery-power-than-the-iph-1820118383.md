@@ -1,6 +1,6 @@
 # iPhone X 拆机发现电池电量比 iPhone 8 Plus 多
 
-> 原文:[https://life hacker . com/iphone-x-tear down-finds-more-battery-power than-the-iph-1820118383](https://lifehacker.com/iphone-x-teardown-finds-more-battery-power-than-the-iph-1820118383)
+> 原文：<https://lifehacker.com/iphone-x-teardown-finds-more-battery-power-than-the-iph-1820118383>
 
 [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 终于来了，这意味着第一部 iPhone X [拆机](https://lifehacker.com/google-made-the-pixel-xl-2-even-harder-to-repair-than-l-1819680350) 的时候到了。像往常一样， [iFixit](https://www.ifixit.com/Teardown/iPhone+X+Teardown/98975?utm_medium=email&utm_campaign=110217_PR_iPhoneX&utm_content=110217_PR_iPhoneX+CID_2535a22fe06f18ee6b6140f756a1d0ef&utm_source=CampaignMonitor&utm_term=iPhone%20X) 正在做着荣誉，撬开苹果的新智能手机，看看里面有什么，修理起来会有多难。
 

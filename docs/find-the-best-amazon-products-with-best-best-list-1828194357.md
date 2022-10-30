@@ -1,6 +1,6 @@
 # 找到最好的亚马逊产品和最好的清单
 
-> 原文:[https://life hacker . com/find-the-best-Amazon-products-with-best-best-list-1828194357](https://lifehacker.com/find-the-best-amazon-products-with-best-best-list-1828194357)
+> 原文：<https://lifehacker.com/find-the-best-amazon-products-with-best-best-list-1828194357>
 
 亚马逊很复杂。搜索一款好的洗手液，你会花半个小时进行比较购物，分析星级和单位重量的成本，搜索第三方供应商，避免主要的餐具室陷阱，挑选由心怀怨恨的白痴写的评论。一个全行业的点评网站— [【断线钳】](https://thewirecutter.com/) ， [战略家](http://nymag.com/strategist/) ，Gizmodo Media Group 自己的[盘点](https://theinventory.com/#_ga=2.215724887.1579538556.1533566482-1723114163.1524514905)—弹出来告诉你每个品类中最好的一款产品。现在 [Best Best List](https://bestbestlist.com/) 弹出来汇总这些评论，还有亚马逊的评论。
 

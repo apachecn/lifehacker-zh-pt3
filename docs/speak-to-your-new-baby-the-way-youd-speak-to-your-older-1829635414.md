@@ -1,6 +1,6 @@
 # 像对你的大孩子说话一样对你的新宝宝说话
 
-> 原文:[https://life hacker . com/speak-to-you-new-baby-the-way-youd-speak-to-your-older-1829635414](https://lifehacker.com/speak-to-your-new-baby-the-way-youd-speak-to-your-older-1829635414)
+> 原文：<https://lifehacker.com/speak-to-your-new-baby-the-way-youd-speak-to-your-older-1829635414>
 
 当我准备迎接新宝宝的生活时，我听到了很多关于如何帮助我五岁的女儿玛吉转变成大姐姐角色的建议，她对 并不完全感兴趣。“给她读一些哥哥姐姐的书，”人们说。(搞定。)“让她帮帮忙。”(肯定的。)“给她买个‘宝宝送的’礼物。””(好吧，不过我很确定她明白胎儿在子宫里还没有时间赚钱。)
 

@@ -1,6 +1,6 @@
 # 研究生们，如果众议院税收计划通过，税收将会大幅增加
 
-> 原文:[https://life hacker . com/grad-students-expect-a-major-tax-hike-if-house-tax-PLA-1820774170](https://lifehacker.com/grad-students-expect-a-major-tax-hike-if-house-tax-pla-1820774170)
+> 原文：<https://lifehacker.com/grad-students-expect-a-major-tax-hike-if-house-tax-pla-1820774170>
 
 到今年年底，我们应该知道大规模的税收改革计划 [正在国会](https://lifehacker.com/what-you-need-to-know-about-the-latest-changes-to-the-s-1820472970) 折腾，我们的立场是什么。尽管如此，有一个群体可能会面临大幅增税:研究生。
 

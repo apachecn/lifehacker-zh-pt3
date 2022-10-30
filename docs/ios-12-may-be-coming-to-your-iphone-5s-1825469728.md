@@ -1,6 +1,6 @@
 # iOS 12 可能会降临到你的 iPhone 5s 上
 
-> 原文:[https://life hacker . com/IOs-12-may-be-to-your-iphone-5s-1825469728](https://lifehacker.com/ios-12-may-be-coming-to-your-iphone-5s-1825469728)
+> 原文：<https://lifehacker.com/ios-12-may-be-coming-to-your-iphone-5s-1825469728>
 
 iOS:如果你仍然持有一部旧的 iPhone 5S，你很幸运:苹果可能会允许你在今年晚些时候推出这款五年前的智能手机时，将其升级到 iOS 12。
 

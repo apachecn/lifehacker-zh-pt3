@@ -1,6 +1,6 @@
 # 学费分期付款计划可以帮助你避免学生贷款
 
-> 原文:[https://life hacker . com/tufty-installation-plans-can-help-you-avoid-student-lo-1826221543](https://lifehacker.com/tuition-installment-plans-can-help-you-avoid-student-lo-1826221543)
+> 原文：<https://lifehacker.com/tuition-installment-plans-can-help-you-avoid-student-lo-1826221543>
 
 如果你的大学学费马上就要到期了，而你又不想陷入 [学生债务](https://lifehacker.com/tag/student-loan-debt) 的困境，那就向你学校的财务办公室咨询付款方案。
 

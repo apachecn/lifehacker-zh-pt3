@@ -1,6 +1,6 @@
 # 像艾哈迈德一样建造这些令人敬畏的电子项目
 
-> 原文:[https://life hacker . com/be-like-Ahmed-by-building-one-of-these-awesome-electron-1731541221](https://lifehacker.com/be-like-ahmed-by-building-one-of-these-awesome-electron-1731541221)
+> 原文：<https://lifehacker.com/be-like-ahmed-by-building-one-of-these-awesome-electron-1731541221>
 
 你一定听说过艾哈迈德·穆罕默德，一名高中生因为把自己做的钟带到学校与老师和同学分享而被捕。不要因此而气馁。建造东西。
 

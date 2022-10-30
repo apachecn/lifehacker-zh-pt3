@@ -1,6 +1,6 @@
 # 如何在 Android 上使用 YouTube 的画中画功能
 
-> 原文:[https://life hacker . com/how-to-use-YouTube es-picture-in-picture-feature-on-andro-1827214381](https://lifehacker.com/how-to-use-youtubes-picture-in-picture-feature-on-andro-1827214381)
+> 原文：<https://lifehacker.com/how-to-use-youtubes-picture-in-picture-feature-on-andro-1827214381>
 
 YouTube 刚刚向所有使用 Android Oreo 或更高版本设备的用户免费开放了画中画功能。该功能此前仅适用于 YouTube 高级用户。
 

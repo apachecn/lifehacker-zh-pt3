@@ -1,6 +1,6 @@
 # 这是一道不是西班牙凉菜汤的冷汤
 
-> 原文:[https://life hacker . com/heres-a-cold-soup-that-not-gazpacho-1827236524](https://lifehacker.com/heres-a-cold-soup-that-isnt-gazpacho-1827236524)
+> 原文：<https://lifehacker.com/heres-a-cold-soup-that-isnt-gazpacho-1827236524>
 
 又到了一年中那个神奇的时刻，伙计们:学校放假了，冰激凌车回来了，气温又一次攀升到了被准确描述为“”和“令人窒息”的水平活着是多么美好的时光。
 

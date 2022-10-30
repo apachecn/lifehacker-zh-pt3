@@ -1,6 +1,6 @@
 # 赠送高级应用和网络服务
 
-> 原文:[https://life hacker . com/give-the-gift-of-premium-apps-and-web-services-1788463516](https://lifehacker.com/give-the-gift-of-premium-apps-and-web-services-1788463516)
+> 原文：<https://lifehacker.com/give-the-gift-of-premium-apps-and-web-services-1788463516>
 
 闪亮的亚马逊 Prime 订阅或 Spotify 礼品卡可能不是你愿望清单上最有趣的项目，但它们和你每天使用的其他网络服务仍然可以成为伟大、有用的礼物，在季节结束后很长一段时间内继续赠送。以下是一些我们最喜欢的值得赠送的高级应用和网络服务。
 

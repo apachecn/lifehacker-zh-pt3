@@ -1,6 +1,6 @@
 # 大多数被动收入并不像你想象的那样“被动”
 
-> 原文:[https://life hacker . com/passive-income-methods-that-as-passive-as-you-1730927010](https://lifehacker.com/passive-income-methods-that-aren-t-as-passive-as-you-1730927010)
+> 原文：<https://lifehacker.com/passive-income-methods-that-aren-t-as-passive-as-you-1730927010>
 
 睡觉挣钱有什么不可爱的？这就是 [被动收入](https://en.wikipedia.org/wiki/Passive_income) 背后的想法，这是你不用做太多额外工作来维持就能定期赚取的收入。你先投入一定的时间或金钱，然后当你坐下来放松时，让金钱滚滚而来。理论上听起来很牛逼，但实际上往往不是这样。
 

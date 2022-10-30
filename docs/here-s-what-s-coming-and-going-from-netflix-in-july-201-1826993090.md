@@ -1,6 +1,6 @@
 # 以下是 2018 年 7 月网飞的动向
 
-> 原文:[https://life hacker . com/here-s-what-s-coming-and-going-from-July-201-1826993090](https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-july-201-1826993090)
+> 原文：<https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-july-201-1826993090>
 
 在第十季中，*坐在车里喝咖啡的喜剧演员*搬到了网飞，在 7 月 6 日推出了 12 集新节目。虽然整个赛季看起来相当不错，但我认为大家都同意凯特·迈克金农和大卫·查普尔是这一次的大赢家。其他似乎有希望的含咖啡因的乘客包括杰瑞·刘易斯、亚历克·鲍德温、约翰·木兰尼和崔西·摩根。看看下面的预告片，然后看看流媒体服务 7 月份阵容中的其他节目，电影，特别节目和奇怪的网飞原创节目。
 

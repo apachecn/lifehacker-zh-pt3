@@ -1,6 +1,6 @@
 # 为什么硬拉值得大肆宣传，以及如何安全地进行
 
-> 原文:[https://life hacker . com/why-deadlifes-worth-the-hype-how-to-do-them-sa-1756526319](https://lifehacker.com/why-deadlifts-are-worth-the-hype-and-how-to-do-them-sa-1756526319)
+> 原文：<https://lifehacker.com/why-deadlifts-are-worth-the-hype-and-how-to-do-them-sa-1756526319>
 
 硬拉:你要么爱他们，要么害怕他们。在不经意间，它们看起来像是甩出你后背的好方法(如果你有糟糕的形式 ，你也可以 [)，但它们实际上是健身房内外最好和最实用的动作之一。以下是你需要知道的关于这项不那么致命的运动。](https://lifehacker.com/all-about-lifting-form-what-to-worry-about-and-what-n-1692058974)
 

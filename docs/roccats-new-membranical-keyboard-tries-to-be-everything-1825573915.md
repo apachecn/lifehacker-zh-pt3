@@ -1,6 +1,6 @@
 # Roccat 的新“薄膜”键盘试图成为每个人的一切
 
-> 原文:[https://gizmodo . com/roc cats-new-membranic-keyboard-trys-to-be-everything-1825573915](https://gizmodo.com/roccats-new-membranical-keyboard-tries-to-be-everything-1825573915)
+> 原文：<https://gizmodo.com/roccats-new-membranical-keyboard-tries-to-be-everything-1825573915>
 
 近年来，不起眼的键盘越来越受欢迎；看似无限多样的模型已经把输入附件变成了新蛋账户用户的手表。随着公司试图迎合每一种偏好和价位，也许我们最终会不可避免地拥有像 Roccat 的新 [部落 AIMO](https://www.roccat.org/en-US/Products/Gaming-Keyboards/Horde-AIMO/) 这样的东西。这是一个 100 美元的键盘，具有各种多媒体功能和不常见的“薄膜”设计，试图回答一系列看似矛盾的问题。有没有可能创造一种安静的打字体验，而不牺牲令人讨厌的发出噼啪声的键盘的感觉？我们能否将一些急需的功能整合到一个相对便宜的软件包中？我们能不能让它看起来不属于大学宿舍*和*给它 RGB 背光？也许吧！
 

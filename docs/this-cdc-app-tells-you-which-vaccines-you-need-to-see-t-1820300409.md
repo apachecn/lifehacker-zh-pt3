@@ -1,6 +1,6 @@
 # 这个疾控中心的应用程序告诉你你需要哪些疫苗来看世界
 
-> 原文:[https://life hacker . com/this-CDC-app-tell-you-which-vaccines-you-need-see-t-1820300409](https://lifehacker.com/this-cdc-app-tells-you-which-vaccines-you-need-to-see-t-1820300409)
+> 原文：<https://lifehacker.com/this-cdc-app-tells-you-which-vaccines-you-need-to-see-t-1820300409>
 
 iOS/Google:世界上不同的国家有独特的食物、风格和文化，但他们也有自己的疾病。这就是为什么在你出国旅行前四到六周接种疫苗是很重要的。如果你准备乘飞机环游世界，疾病控制中心的 TravWell 应用程序可以帮助你准备好免疫系统。
 

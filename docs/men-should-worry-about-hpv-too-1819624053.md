@@ -1,6 +1,6 @@
 # 男人也应该担心人乳头瘤病毒
 
-> 原文:[https://life hacker . com/men-should-worry-HPV-too-1819624053](https://lifehacker.com/men-should-worry-about-hpv-too-1819624053)
+> 原文：<https://lifehacker.com/men-should-worry-about-hpv-too-1819624053>
 
 定期接受巴氏涂片检查的是女性，而更有可能接种最新人类乳头瘤病毒(人乳头瘤病毒)疫苗的是女孩——但是一项新的研究证实，该病毒也将男性置于危险之中。男性口腔或咽喉感染高危型人乳头瘤病毒病毒的可能性是女性的六倍，这种病毒会导致口咽癌。
 

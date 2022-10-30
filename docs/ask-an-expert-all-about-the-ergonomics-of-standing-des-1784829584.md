@@ -1,6 +1,6 @@
 # 请教专家:关于立式办公桌的人体工程学
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-the-ergonomics-of-standing-des-1784829584](https://lifehacker.com/ask-an-expert-all-about-the-ergonomics-of-standing-des-1784829584)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-the-ergonomics-of-standing-des-1784829584>
 
 立式办公桌实际上已经成为生活黑客的陈词滥调，一些人对它们的好处信誓旦旦，而另一些人则对生产力平台漠不关心。但是站立式办公桌真的有人体工程学的好处吗？
 

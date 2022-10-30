@@ -1,6 +1,6 @@
 # 为什么避免办公室政治并不总是对你的职业生涯有好处
 
-> 原文:[https://life hacker . com/why-avoiding-office-politics-not-always-the-best-for-y-1788946874](https://lifehacker.com/why-avoiding-office-politics-isnt-always-the-best-for-y-1788946874)
+> 原文：<https://lifehacker.com/why-avoiding-office-politics-isnt-always-the-best-for-y-1788946874>
 
 想象你已经 [努力工作，为自己的晋升做好准备](https://www.themuse.com/advice/6-ways-to-prepare-for-your-someday-promotion-now) 。你接受了一份你完全胜任的工作，因为你相信公司，接受了没有人想要的项目，甚至指导新队友，直到他们成为自给自足的明星。但是，尽管你努力工作，你的道路上可能还有一个障碍:办公室政治。
 

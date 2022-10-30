@@ -1,6 +1,6 @@
 # 如何释放 iPhone 上的空间
 
-> 原文:[https://life hacker . com/how-to-free-up-space-on-your-iphone-1827454635](https://lifehacker.com/how-to-free-up-space-on-your-iphone-1827454635)
+> 原文：<https://lifehacker.com/how-to-free-up-space-on-your-iphone-1827454635>
 
 所以你的 iPhone 空间快用完了。也许您无法将购买的新电影下载到您的设备上，因为没有空间。也许你的 iPhone 弹出了可怕的“存储空间快满了”的警告。然而，你被告知空间不足是无关紧要的:你的 iPhone 快满了，你可能应该在不太重要的时候尽快查看，而不是在你真的需要做一些事情而不能做的时候。
 

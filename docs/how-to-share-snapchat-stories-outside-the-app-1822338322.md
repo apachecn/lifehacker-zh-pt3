@@ -1,6 +1,6 @@
 # 如何在应用之外分享 Snapchat 故事
 
-> 原文:[https://life hacker . com/how-to-share-snapchat-stories-outside-the-app-1822338322](https://lifehacker.com/how-to-share-snapchat-stories-outside-the-app-1822338322)
+> 原文：<https://lifehacker.com/how-to-share-snapchat-stories-outside-the-app-1822338322>
 
 Snapchat 的正在推出其 [有史以来最大的重新设计](https://gizmodo.com/here-is-snapchats-disruptive-new-redesign-1820833570) ，但周二该公司宣布了另一项重大更新，可能会改变人们使用其应用的方式。从今天开始，你可以在 Snapchat 之外分享某些故事(Snapchat 称之为其消失的视频和图片)。
 

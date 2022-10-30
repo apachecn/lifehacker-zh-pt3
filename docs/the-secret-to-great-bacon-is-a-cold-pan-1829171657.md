@@ -1,6 +1,6 @@
 # 伟大的熏肉的秘密是一个冷锅
 
-> 原文:[https://life hacker . com/the-secret-to-great-bacon-is-a-cold-pan-1829171657](https://lifehacker.com/the-secret-to-great-bacon-is-a-cold-pan-1829171657)
+> 原文：<https://lifehacker.com/the-secret-to-great-bacon-is-a-cold-pan-1829171657>
 
 脆培根和它的副产品，培根油，都非常好，当烹饪肥猪肉条时，你要确保你最大限度地发挥两者的潜力。最好的方法是在一个冷锅中开始烹饪培根。
 

@@ -1,6 +1,6 @@
 # 来自我们读者的最佳阿姆斯特丹小贴士
 
-> 原文:[https://life hacker . com/the-best-Amsterdam-tips-from-our-readers-1823209186](https://lifehacker.com/the-best-amsterdam-tips-from-our-readers-1823209186)
+> 原文：<https://lifehacker.com/the-best-amsterdam-tips-from-our-readers-1823209186>
 
 本周我们的 [Hack Your City](https://lifehacker.com/c/hack-your-city) 读者 [在阿姆斯特丹](https://lifehacker.com/tell-us-your-amsterdam-tips-1823084488#_ga=2.29547769.791742682.1519138172-1297080755.1497980211) 上写了 73 条带提示的评论，比如去哪里吃喝，如何保持安全，如何出行，以及去城外哪里。这里有一个最好的例子。(然后去读完整的线程；许多评论者给出了完整的推荐列表。)
 

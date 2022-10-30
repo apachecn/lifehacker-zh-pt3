@@ -1,6 +1,6 @@
 # 根据我们的读者，芝加哥最好的黑客
 
-> 原文:[https://life hacker . com/the-best-hacks-for-Chicago-根据我们的读者-1819377480](https://lifehacker.com/the-best-hacks-for-chicago-according-to-our-readers-1819377480)
+> 原文：<https://lifehacker.com/the-best-hacks-for-chicago-according-to-our-readers-1819377480>
 
 你知道电影《芝加哥》、辛纳特拉歌曲《芝加哥》和芝加哥乐队吗？都是基于一个真实的城市！当我们 [向那个城市的居民询问他们最好的芝加哥出租车](https://lifehacker.com/tell-us-your-chicago-hacks-1819232210) 时，他们给了我们数百个。这里有一些最好的。
 

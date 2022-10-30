@@ -1,6 +1,6 @@
 # 有线电视公司让你支付更多费用的最糟糕的方法
 
-> 原文:[https://life hacker . com/the-worst-ways-cable-companies-fuzzle-you-into-paying-1773089329](https://lifehacker.com/the-worst-ways-cable-companies-confuse-you-into-paying-1773089329)
+> 原文：<https://lifehacker.com/the-worst-ways-cable-companies-confuse-you-into-paying-1773089329>
 
 由于令人困惑的捆绑、隐藏的收费、误导的承诺和模糊的条款，每个人都同意有线电视和互联网提供商绝对是最糟糕的。我试着比较我所在地区的互联网服务，结果却是一堆乱七八糟的粗略术语和追加销售。不应该是这样的。
 

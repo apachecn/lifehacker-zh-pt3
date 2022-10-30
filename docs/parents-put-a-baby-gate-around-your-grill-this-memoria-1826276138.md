@@ -1,6 +1,6 @@
 # 父母们，在这个阵亡将士纪念日周末，在你们的烤架上放一个婴儿门
 
-> 原文:[https://life hacker . com/parents-put-a-baby-gate-around-your-grill-this-memoria-1826276138](https://lifehacker.com/parents-put-a-baby-gate-around-your-grill-this-memoria-1826276138)
+> 原文：<https://lifehacker.com/parents-put-a-baby-gate-around-your-grill-this-memoria-1826276138>
 
 对于没有父母的人来说，烤架是一种用来烹饪美味的汉堡、香肠和其他烧烤主食的工具，可以边喝啤酒边享用，不会质疑你的生活选择。
 

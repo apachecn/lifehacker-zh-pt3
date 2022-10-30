@@ -1,6 +1,6 @@
 # 使用 WiFi 分析仪查看您的 Wifi 情况到底有多糟糕
 
-> 原文:[https://life hacker . com/see-how-bad-your-wifi-situation-really-is-with-wifi-ana-1826534324](https://lifehacker.com/see-how-bad-your-wifi-situation-really-is-with-wifi-ana-1826534324)
+> 原文：<https://lifehacker.com/see-how-bad-your-wifi-situation-really-is-with-wifi-ana-1826534324>
 
 [Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
 

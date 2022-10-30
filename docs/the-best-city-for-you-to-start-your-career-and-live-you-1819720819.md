@@ -1,6 +1,6 @@
 # 最适合你开始职业生涯和生活的城市
 
-> 原文:[https://life hacker . com/the-best-city for-you-start-you-career and-living-you-1819720819](https://lifehacker.com/the-best-city-for-you-to-start-your-career-and-live-you-1819720819)
+> 原文：<https://lifehacker.com/the-best-city-for-you-to-start-your-career-and-live-you-1819720819>
 
 老实说，这个国家有太多的城市。如果你不追随工作、家庭或坏消息，你该如何选择居住地？别着急，网络会告诉你的。
 

@@ -1,6 +1,6 @@
 # 问有咸味的女服务员:在自带酒水的地方，我应该额外给小费吗？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-I-should-I-tip-extra-at-a-byo b-pl-1826143731](https://thetakeout.com/ask-the-salty-waitress-should-i-tip-extra-at-a-byob-pl-1826143731)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-should-i-tip-extra-at-a-byob-pl-1826143731>
 
 * * *
 

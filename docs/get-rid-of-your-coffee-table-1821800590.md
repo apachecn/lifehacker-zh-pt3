@@ -1,6 +1,6 @@
 # 扔掉你的咖啡桌
 
-> 原文:[https://life hacker . com/get-摆脱你的咖啡桌-1821800590](https://lifehacker.com/get-rid-of-your-coffee-table-1821800590)
+> 原文：<https://lifehacker.com/get-rid-of-your-coffee-table-1821800590>
 
 曾几何时，我的咖啡桌是我最珍视的家具。在“shelfies”之前，它是我客厅的焦点，是我 20 多岁时的抱负的展示。在放在工业铜管制成的腿上的矩形玻璃片的顶部，放着几本光滑的书——[*设计*家里的海绵*](https://www.amazon.com/Design-Sponge-Home-Grace-Bonney/dp/1579654312?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-rid-of-your-coffee-table-1821800590&asc_source=&tag=kinjalifehackerlink-20) 来展示我的现代审美和 [*可食用的塞尔比*](https://www.amazon.com/Edible-Selby-Todd/dp/0810998041?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-rid-of-your-coffee-table-1821800590&asc_source=&tag=kinjalifehackerlink-20) 因为我喜欢去世界各地进行美食冒险的*想法*——还有各种各样的《纽约客》杂志，我告诉自己我会坐下来在所有阅读材料的旁边是一支从未点燃过的漂亮蜡烛，还有一些会随着季节变化的装饰性小饰品。(每年 12 月都会出现一群闪闪发光的驯鹿，让我老公呻吟不已。)“哦，漂亮的桌子，”新客人走进房间时会说，我会笑着说。
 

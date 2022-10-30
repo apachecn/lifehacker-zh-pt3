@@ -1,6 +1,6 @@
 # 找到一条健身路径，像 1992 年一样锻炼
 
-> 原文:[https://life hacker . com/find-a-fitness-trail-and-exercise-like-its-1992-1825718545](https://lifehacker.com/find-a-fitness-trail-and-exercise-like-its-1992-1825718545)
+> 原文：<https://lifehacker.com/find-a-fitness-trail-and-exercise-like-its-1992-1825718545>
 
 天气真好，我们要去冒险了！对于 5 月份的 [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) ，你的任务是找到你附近的一条健身路径(有时称为 par course)——它们通常藏在显眼的地方。
 

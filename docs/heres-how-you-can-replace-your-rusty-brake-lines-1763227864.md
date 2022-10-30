@@ -1,6 +1,6 @@
 # 以下是更换生锈刹车线的方法
 
-> 原文:[https://jalopnik . com/heres-how-you-how-you-can-replace-your-rusted-brake-lines-1763227864](https://jalopnik.com/heres-how-you-can-replace-your-rusty-brake-lines-1763227864)
+> 原文：<https://jalopnik.com/heres-how-you-can-replace-your-rusty-brake-lines-1763227864>
 
 你住在密歇根这样的地方吗？在那里，马路盐对待你的车就像一群食人鱼对待一只受伤的小鸭子一样。如果是这样，你的刹车线可能生锈了，所以你应该更换它们以避免死亡、绝望和混乱。这其实是一份便宜又轻松的工作；这是你怎么做的。
 

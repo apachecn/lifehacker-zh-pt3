@@ -1,6 +1,6 @@
 # Microsoft Office 的最佳免费加载项
 
-> 原文:[https://life hacker . com/the-best-free-add-ins-for-Microsoft-office-1746176919](https://lifehacker.com/the-best-free-add-ins-for-microsoft-office-1746176919)
+> 原文：<https://lifehacker.com/the-best-free-add-ins-for-microsoft-office-1746176919>
 
 你是否希望 Word 有一个百科全书，或者 Excel 可以生成一些伪数字？Office 加载项为 Word、Excel、PowerPoint 和其他 Microsoft Office 应用程序提供了这种附加功能。以下是一些您可以为 Office 2013 及更高版本安装的最方便的加载项，以充分利用您的 Office 套件。
 

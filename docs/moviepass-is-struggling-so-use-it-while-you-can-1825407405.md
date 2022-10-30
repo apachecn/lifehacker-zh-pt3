@@ -1,6 +1,6 @@
 # MoviePass 举步维艰，所以能用就用吧
 
-> 原文:[https://life hacker . com/movie pass-is-difficult-so-use-it-while-you-can-1825407405](https://lifehacker.com/moviepass-is-struggling-so-use-it-while-you-can-1825407405)
+> 原文：<https://lifehacker.com/moviepass-is-struggling-so-use-it-while-you-can-1825407405>
 
 [MoviePass](https://lifehacker.com/the-moviepass-tips-you-need-to-know-1822731444) 在财务层面上从来没有真正意义上的，但一项独立审计(via [Variety](http://variety.com/2018/film/news/moviepass-mitch-lowe-1202756923/) )表明，该公司的状况可能比我们想象的还要糟糕。如果你正在使用这项服务——或者正在考虑注册——你应该在为时已晚之前充分利用这项好得令人难以置信的服务。
 

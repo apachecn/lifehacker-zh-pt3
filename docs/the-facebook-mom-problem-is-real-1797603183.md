@@ -1,6 +1,6 @@
 # 脸书妈妈问题是真实的
 
-> 原文:[https://life hacker . com/the-Facebook-mom-problem-is-real-1797603183](https://lifehacker.com/the-facebook-mom-problem-is-real-1797603183)
+> 原文：<https://lifehacker.com/the-facebook-mom-problem-is-real-1797603183>
 
 我妈妈爱我。但她也“喜欢”我——非常喜欢。显然，当她在脸书这样做时，我成为下一个病毒式轰动的机会就受到了伤害。
 

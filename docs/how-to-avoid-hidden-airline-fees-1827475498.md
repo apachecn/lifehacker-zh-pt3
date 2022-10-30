@@ -1,6 +1,6 @@
 # 如何避免隐藏的航空费用
 
-> 原文:[https://life hacker . com/how-to-avoid-hidden-airline-fees-1827475498](https://lifehacker.com/how-to-avoid-hidden-airline-fees-1827475498)
+> 原文：<https://lifehacker.com/how-to-avoid-hidden-airline-fees-1827475498>
 
 如果你使用在线服务来比较商店航班价格，买家要小心了:许多交易实际上都充满了隐藏的费用。
 

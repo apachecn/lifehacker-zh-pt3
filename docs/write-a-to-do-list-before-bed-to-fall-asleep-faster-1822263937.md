@@ -1,6 +1,6 @@
 # 睡前写一份待办事项清单，以便更快入睡
 
-> 原文:[https://life hacker . com/write-a-to-do-list-before-to-sleep-faster-1822263937](https://lifehacker.com/write-a-to-do-list-before-bed-to-fall-asleep-faster-1822263937)
+> 原文：<https://lifehacker.com/write-a-to-do-list-before-bed-to-fall-asleep-faster-1822263937>
 
 如果你晚上难以入睡，你去小睡镇的门票可能是一张待办事项清单。
 

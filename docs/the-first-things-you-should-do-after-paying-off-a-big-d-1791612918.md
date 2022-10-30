@@ -1,6 +1,6 @@
 # 还清一大笔债务后你应该做的第一件事
 
-> 原文:[https://life hacker . com/the-first-things-you-should-been-pay-a-big-d-1791612918](https://lifehacker.com/the-first-things-you-should-do-after-paying-off-a-big-d-1791612918)
+> 原文：<https://lifehacker.com/the-first-things-you-should-do-after-paying-off-a-big-d-1791612918>
 
 在我 20 多岁的时候，我还清了我的学生债务，这感觉很神奇。有生以来第一次，我有了 [*可自由支配的收入*](http://www.investopedia.com/terms/d/discretionaryincome.asp) :购买必需品后剩下的钱。除了买了一堆我不需要的垃圾，我不知道该拿那些钱做什么。如果这听起来很熟悉，无论你刚刚还清汽车贷款、学生贷款或信用卡，以下是一些可以采取的步骤。
 

@@ -1,6 +1,6 @@
 # 一毕业就开一个信用卡账户
 
-> 原文:[https://life hacker . com/毕业即开信用卡账户-1827361861](https://lifehacker.com/open-a-credit-card-account-as-soon-as-you-graduate-from-1827361861)
+> 原文：<https://lifehacker.com/open-a-credit-card-account-as-soon-as-you-graduate-from-1827361861>
 
 当你进入职场时，建立信用是最艰难但最必要的财务任务之一，而信用卡——如果使用得当——可以成为帮助你获得较低汽车或房屋贷款利率的绝佳工具。
 

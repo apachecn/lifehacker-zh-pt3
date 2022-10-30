@@ -1,6 +1,6 @@
 # 现在你可以下载 10，000 首 Spotify 歌曲
 
-> 原文:[https://life hacker . com/now-you-can-download-10-000-Spotify-songs-1829027390](https://lifehacker.com/now-you-can-download-10-000-spotify-songs-1829027390)
+> 原文：<https://lifehacker.com/now-you-can-download-10-000-spotify-songs-1829027390>
 
 每个音乐流媒体服务都有点烂， [我们已经知道这个](https://lifehacker.com/use-both-apple-music-and-spotify-to-make-one-good-app-1821968437#_ga=2.72673233.350626624.1536677154-1297080755.1497980211) 。Spotify 糟糕的一点是，它限制了你可以在每台设备上下载的歌曲数量。但是服务 [刚刚提高了它的下载限制](https://www.rollingstone.com/music/music-news/spotify-lifts-3333-song-download-limit-723235/) 从每台设备 3333 首歌曲，到每台设备 10000 首，最多 5 台设备。对于那些需要减少数据使用量或在手机信号不好的地方使用 Spotify 的人来说，这是个好消息。你终于可以听你每月支付 10 美元的音乐了！
 

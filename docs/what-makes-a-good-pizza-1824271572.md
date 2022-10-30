@@ -1,6 +1,6 @@
 # 什么能做出美味的披萨？
 
-> 原文:[https://lifehacker.com/what-makes-a-good-pizza-1824271572](https://lifehacker.com/what-makes-a-good-pizza-1824271572)
+> 原文：<https://lifehacker.com/what-makes-a-good-pizza-1824271572>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周，我想谈谈世界上最具争议的一道菜:比萨饼。
 

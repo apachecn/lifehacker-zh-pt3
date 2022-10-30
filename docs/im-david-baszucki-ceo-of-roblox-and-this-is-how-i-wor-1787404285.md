@@ -1,6 +1,6 @@
 # 我是 David Baszucki，Roblox 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-David-baszucki-of-roblox-and-this-is-how-I-wor-1787404285](https://lifehacker.com/im-david-baszucki-ceo-of-roblox-and-this-is-how-i-wor-1787404285)
+> 原文：<https://lifehacker.com/im-david-baszucki-ceo-of-roblox-and-this-is-how-i-wor-1787404285>
 
 [ROBLOX](https://www.roblox.com/) 部分是虚拟世界，部分是开发平台，部分是大型多人在线游戏。大卫·巴祖基和他的共同创始人埃里克·卡塞尔在十年前创建了它，它逐渐流行起来，特别是在儿童和青少年中。
 

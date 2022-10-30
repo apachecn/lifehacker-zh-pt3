@@ -1,6 +1,6 @@
 # 谷歌 Pixel 2 和 Pixel 2 XL 更新中的所有新内容
 
-> 原文:[https://life hacker . com/everything-new-in-Google-pixel-2-and-pixel-2-XL-update-1820216946](https://lifehacker.com/everything-new-in-googles-pixel-2-and-pixel-2-xl-update-1820216946)
+> 原文：<https://lifehacker.com/everything-new-in-googles-pixel-2-and-pixel-2-xl-update-1820216946>
 
 而 [Pixel 2 和 Pixel 2 XL](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085) 可能是一些围绕 的 [最好的安卓手机，但它们还是带着少数](https://gizmodo.com/pixel-2-review-google-sticks-to-what-it-does-best-1819557944)[bug 和问题](https://lifehacker.com/dont-buy-the-pixel-2-xl-until-google-sorts-out-its-disp-1819772290) 推出。现在，谷歌正竭尽全力通过其 11 月的软件更新来解决这些问题。
 

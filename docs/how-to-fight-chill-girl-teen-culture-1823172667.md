@@ -1,6 +1,6 @@
 # 如何对抗“冷女孩”青少年文化
 
-> 原文:[https://life hacker . com/how-to-fight-chill-girl-teen-culture-1823172667](https://lifehacker.com/how-to-fight-chill-girl-teen-culture-1823172667)
+> 原文：<https://lifehacker.com/how-to-fight-chill-girl-teen-culture-1823172667>
 
 高中生和大学生正遭受着前所未有的焦虑，如今任何抚养青少年的人都知道他们正在应对巨大的压力。这对女孩来说是双重的，雷切尔·西蒙斯在她的新书 [*中称之为“角色超载”:如何帮助女孩超越不可能的成功标准，过上健康、快乐、充实的生活*](https://www.amazon.com/Enough-She-Impossible-Standards-Fulfilling/dp/0062438395?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-fight-chill-girl-teen-culture-1823172667&asc_source=&tag=kinjalifehackerlink-20) *。*女孩必须聪明、漂亮、有运动天赋*和*...他们必须看起来好像扮演所有这些角色一点也不费力。
 

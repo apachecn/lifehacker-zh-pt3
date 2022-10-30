@@ -1,6 +1,6 @@
 # 如何找到您拥有的任何设备的规格
 
-> 原文:[https://gizmodo . com/how-to-find-the-specs-for-any-device-you-own-1818653102](https://gizmodo.com/how-to-find-the-specs-for-any-device-you-own-1818653102)
+> 原文：<https://gizmodo.com/how-to-find-the-specs-for-any-device-you-own-1818653102>
 
 你可能对放在你面前的笔记本电脑、智能手机和其他设备有所了解，尤其是如果你是在痛苦地选择了几个星期之后才买的。即使是那些你自己精心挑选和购买的设备，随着时间的推移，也很容易忘记安装了多少 RAM 或处理器的品牌和型号。对于别人给你的设备，你可能根本不知道里面有什么。
 

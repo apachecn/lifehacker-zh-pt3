@@ -1,6 +1,6 @@
 # 问咸的女服务员:我做的菜就是不好吃怎么办？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-if-my-food-jus-1822524327](https://thetakeout.com/ask-the-salty-waitress-what-should-i-do-if-my-food-jus-1822524327)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-what-should-i-do-if-my-food-jus-1822524327>
 
 * * *
 

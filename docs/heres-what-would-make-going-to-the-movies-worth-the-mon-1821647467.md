@@ -1,6 +1,6 @@
 # 以下是让去看电影物有所值的因素
 
-> 原文:[https://life hacker . com/heres-what-would-make-to-the-mom-1821647467](https://lifehacker.com/heres-what-would-make-going-to-the-movies-worth-the-mon-1821647467)
+> 原文：<https://lifehacker.com/heres-what-would-make-going-to-the-movies-worth-the-mon-1821647467>
 
 我们听到人们不像过去那样经常去看电影已经有一段时间了。对一些人来说，原因是显而易见的:它在一些城市几乎贵得令人望而却步，当你唯一的选择是最新的 [超级英雄电影](https://lifehacker.com/1821608250) 或稍旧的 [超级英雄电影](https://lifehacker.com/1821608293) 时，对很多观众来说没有太大的吸引力。
 

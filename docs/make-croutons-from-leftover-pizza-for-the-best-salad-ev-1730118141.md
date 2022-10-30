@@ -1,6 +1,6 @@
 # 用吃剩的披萨做面包丁，做有史以来最好的沙拉
 
-> 原文:[https://life hacker . com/make-croutons-from-left-pizza-for-the-best-salad-ev-1730118141](https://lifehacker.com/make-croutons-from-leftover-pizza-for-the-best-salad-ev-1730118141)
+> 原文：<https://lifehacker.com/make-croutons-from-leftover-pizza-for-the-best-salad-ev-1730118141>
 
 毫无疑问，吃剩下的披萨最好的方式是当早餐，冷的(冲我来)，但如果你想混合它，我建议用这些来自 29 号炼油厂的美味披萨面包丁来做。
 

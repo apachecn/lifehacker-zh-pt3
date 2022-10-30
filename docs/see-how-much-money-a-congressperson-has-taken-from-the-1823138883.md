@@ -1,6 +1,6 @@
 # 你们的国会议员从全国步枪协会拿了多少钱？
 
-> 原文:[https://life hacker . com/see-how-much-money-a-congress person-take-from-the-1823138883](https://lifehacker.com/see-how-much-money-a-congressperson-has-taken-from-the-1823138883)
+> 原文：<https://lifehacker.com/see-how-much-money-a-congressperson-has-taken-from-the-1823138883>
 
 我们正处于这样一个时刻，你读到的几乎所有东西都可能需要一两个事实检验，尤其是涉及到政客的时候。
 

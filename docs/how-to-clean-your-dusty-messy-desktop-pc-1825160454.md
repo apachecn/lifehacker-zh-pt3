@@ -1,6 +1,6 @@
 # 如何清理你满是灰尘、脏乱的台式电脑
 
-> 原文:[https://life hacker . com/how-to-clean-your-dusty-disty-desktop-PC-1825160454](https://lifehacker.com/how-to-clean-your-dusty-messy-desktop-pc-1825160454)
+> 原文：<https://lifehacker.com/how-to-clean-your-dusty-messy-desktop-pc-1825160454>
 
 [Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
 

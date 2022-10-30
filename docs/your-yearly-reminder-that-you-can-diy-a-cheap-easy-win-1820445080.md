@@ -1,6 +1,6 @@
 # 你每年提醒你可以自己动手做一个便宜、简单的窗户除冰器
 
-> 原文:[https://life hacker . com/your-yearly-reminder-that-you-can-DIY-a-price-easy-win-1820445080](https://lifehacker.com/your-yearly-reminder-that-you-can-diy-a-cheap-easy-win-1820445080)
+> 原文：<https://lifehacker.com/your-yearly-reminder-that-you-can-diy-a-cheap-easy-win-1820445080>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-TrcDxVM_gbU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-TrcDxVM_gbU&start=0) 
 

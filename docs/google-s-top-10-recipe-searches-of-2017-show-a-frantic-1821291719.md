@@ -1,6 +1,6 @@
 # 谷歌 2017 年搜索次数最多的食谱显示了一个疯狂寻找舒适食物的国家
 
-> 原文:[https://the take out . com/Google-s-top-10-recipe-searches-of-2017-show-a-fantastic-1821291719](https://thetakeout.com/google-s-top-10-recipe-searches-of-2017-show-a-frantic-1821291719)
+> 原文：<https://thetakeout.com/google-s-top-10-recipe-searches-of-2017-show-a-frantic-1821291719>
 
 谷歌本周发布了 2017 年搜索次数最多的前十名，坦率地说，总的名单有点令人失望，因为人们需要更多关于飓风伊尔玛、马特·劳厄尔和坐立不安的旋转者的信息。然而，当我们深入到在美国搜索次数最多的食谱时，结果会更加令人惊讶。
 

@@ -1,6 +1,6 @@
 # 笨拙的呆子卡拉 ok 指南
 
-> 原文:[https://life hacker . com/the-jumbly-dork-s-guide-to-karaoke-1788677260](https://lifehacker.com/the-awkward-dork-s-guide-to-karaoke-1788677260)
+> 原文：<https://lifehacker.com/the-awkward-dork-s-guide-to-karaoke-1788677260>
 
 如果你从未唱过卡拉 ok，这可能看起来像一场噩梦。你站在一群随机的人面前，一个人唱着歌，祈祷带着歌词的显示器不要熄灭。但是你的很多恐惧都是没有根据的，你可以做很多事情来让自己放松到聚光灯下。
 

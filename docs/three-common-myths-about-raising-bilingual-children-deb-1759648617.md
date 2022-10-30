@@ -1,6 +1,6 @@
 # 抚养双语儿童的三个常见误区
 
-> 原文:[https://life hacker . com/three-common-myths-about-raising-双语-children-deb-1759648617](https://lifehacker.com/three-common-myths-about-raising-bilingual-children-deb-1759648617)
+> 原文：<https://lifehacker.com/three-common-myths-about-raising-bilingual-children-deb-1759648617>
 
 到两岁时，孩子通常能说几百个单词。我的儿子亚历山大几乎能听懂两种语言的所有内容——希腊语和英语——但他只会说六个单词。像许多父母一样，我们质疑我们是否做错了什么。
 

@@ -1,6 +1,6 @@
 # 椰子油是你获得更好的糖饼干的秘密武器
 
-> 原文:[https://life hacker . com/coconut-oil-is-your secret-weapon-for-better-sugar-cook-1820777205](https://lifehacker.com/coconut-oil-is-your-secret-weapon-for-better-sugar-cook-1820777205)
+> 原文：<https://lifehacker.com/coconut-oil-is-your-secret-weapon-for-better-sugar-cook-1820777205>
 
 在某些方面，糖曲奇是最简单的曲奇，但也是最难完美执行的曲奇之一。关键是要达到美丽和美味的完美平衡。根据烘烤食品的守护神斯特拉·帕克斯的说法，椰子油可以让你达到目的。
 

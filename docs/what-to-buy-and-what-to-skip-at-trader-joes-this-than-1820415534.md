@@ -1,6 +1,6 @@
 # 这个感恩节在乔氏百货买什么(和跳过什么)
 
-> 原文:[https://life hacker . com/what-to-buy and-what-skip-at-trader-joes-than-1820415534](https://lifehacker.com/what-to-buy-and-what-to-skip-at-trader-joes-this-than-1820415534)
+> 原文：<https://lifehacker.com/what-to-buy-and-what-to-skip-at-trader-joes-this-than-1820415534>
 
 我是 [众所周知的](https://skillet.lifehacker.com/how-to-make-dinner-for-two-by-spending-less-than-10-at-1797444208) ，一个被称为乔氏的小杂货店的忠实粉丝。我喜欢他们价格合理、库存充足的奶酪部。我喜欢他们方便的预煮扁豆和罐装火鸡辣椒。我喜欢 [这个该死的魔法摇壶](https://skillet.lifehacker.com/this-everything-bagel-seasoning-is-quite-literally-my-1793624935#_ga=2.66529838.1240862638.1510584657-392757988.1502389723) 。因此，我非常兴奋地查看他们的感恩节产品，希望我能找到一些宝石，使一个更容易和更美味的假期。
 

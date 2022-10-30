@@ -1,6 +1,6 @@
 # 当你的孩子耗尽你所有的精力时，如何充电
 
-> 原文:[https://life hacker . com/how-to-charge-when-your-kids-zap-all-your-energy-1797112955](https://lifehacker.com/how-to-recharge-when-your-kids-zap-all-your-energy-1797112955)
+> 原文：<https://lifehacker.com/how-to-recharge-when-your-kids-zap-all-your-energy-1797112955>
 
 作为父母，给自己留出时间比大多数人想象的要难。即使你有一个表现良好的孩子，他们也总有一些事情想告诉你，给你看，或者让你和他们一起玩。以下是如何为自己争取一些时间的方法。
 

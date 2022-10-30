@@ -1,6 +1,6 @@
 # 什么时候取消婚姻而不是离婚
 
-> 原文:[https://life hacker . com/why-to-get-a-disability-not-a-diffuse-1796451298](https://lifehacker.com/why-to-get-an-annulment-instead-of-a-divorce-1796451298)
+> 原文：<https://lifehacker.com/why-to-get-an-annulment-instead-of-a-divorce-1796451298>
 
 十年前，我强迫一个人走上红毯。我们已经在一起六年了，关系平静下来，我几乎已经决定，婚姻是唯一能让我们走出低迷的东西:我们会正式结婚，我们会有孩子，我们会有一套像样的洗碗布。他勉强同意了。
 

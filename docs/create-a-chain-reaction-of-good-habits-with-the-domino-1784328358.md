@@ -1,6 +1,6 @@
 # 用多米诺骨牌效应创造好习惯的连锁反应
 
-> 原文:[https://life hacker . com/create-a-chain-reaction-of-good-habits-with-the-domino-1784328358](https://lifehacker.com/create-a-chain-reaction-of-good-habits-with-the-domino-1784328358)
+> 原文：<https://lifehacker.com/create-a-chain-reaction-of-good-habits-with-the-domino-1784328358>
 
 人类的行为通常是相互关联的。考虑一个叫珍妮弗·李·杜克斯的女人的例子。在她成年后的 25 年里，从她去上大学开始，一直到她 40 多岁，除了她母亲或客人来访时，杜克斯从不整理床铺。
 

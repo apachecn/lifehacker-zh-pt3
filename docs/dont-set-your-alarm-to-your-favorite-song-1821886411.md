@@ -1,6 +1,6 @@
 # 不要把闹钟设在你最喜欢的歌曲上
 
-> 原文:[https://life hacker . com/don-t-set-your-alarm-to-your favorite-song-1821886411](https://lifehacker.com/dont-set-your-alarm-to-your-favorite-song-1821886411)
+> 原文：<https://lifehacker.com/dont-set-your-alarm-to-your-favorite-song-1821886411>
 
 当你用手机当闹钟时，你可能*认为*你想在你最喜欢的歌曲中醒来。你没有。头几天你会喜欢，但之后效果就会逆转。不会是“我醒来听到我最喜欢的歌”，而是“有时 iTunes 会播放我的闹钟。”每次播放你最喜欢的老歌，你都会感到焦虑不安。
 

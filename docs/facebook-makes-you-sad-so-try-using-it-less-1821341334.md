@@ -1,6 +1,6 @@
 # 脸书让你难过，所以尽量少用
 
-> 原文:[https://life hacker . com/Facebook-makes-you-sad-so-try-use-less-1821341334](https://lifehacker.com/facebook-makes-you-sad-so-try-using-it-less-1821341334)
+> 原文：<https://lifehacker.com/facebook-makes-you-sad-so-try-using-it-less-1821341334>
 
 欢迎来到狗屁抵抗学校的特别版。今天的课是受脸书 [的一个帖子的启发，他承认脸书对你的心理健康有害](https://newsroom.fb.com/news/2017/12/hard-questions-is-spending-time-on-social-media-bad-for-us/) 。总之，他们希望你多使用脸书。等等，什么？
 

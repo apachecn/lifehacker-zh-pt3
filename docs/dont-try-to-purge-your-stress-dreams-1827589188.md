@@ -1,6 +1,6 @@
 # 不要试图清除你的压力梦
 
-> 原文:[https://life hacker . com/don-t-try-purge-your-stress-dreams-1827589188](https://lifehacker.com/dont-try-to-purge-your-stress-dreams-1827589188)
+> 原文：<https://lifehacker.com/dont-try-to-purge-your-stress-dreams-1827589188>
 
 我不希望我完成了大学学业。我提前一个学期退学了，这正是我希望毕业后从事的媒体工作。那么，为什么我多年来一直做着同样的梦，上学期我回到学校待了一个，离开了我的妻子，住进了的宿舍，而我上课已经迟到了？我怎样才能停止做那个梦？显然我不能。
 

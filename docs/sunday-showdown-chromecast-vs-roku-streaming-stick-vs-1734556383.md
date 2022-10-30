@@ -1,6 +1,6 @@
 # 流媒体棒对决:Chromecast vs. Roku vs. Fire TV
 
-> 原文:[https://life hacker . com/Sunday-摊牌-chrome cast-vs-Roku-streaming-stick-vs-1734556383](https://lifehacker.com/sunday-showdown-chromecast-vs-roku-streaming-stick-vs-1734556383)
+> 原文：<https://lifehacker.com/sunday-showdown-chromecast-vs-roku-streaming-stick-vs-1734556383>
 
 在谷歌两年前推出第一款 Chromecast 后，HDMI 加密狗迅速成为将互联网传输到电视的最佳廉价方式之一。现在，竞争比以往任何时候都激烈。我们比较了 Roku stick、Fire TV stick 和最新版本的 Chromecast，以找出哪一款属于您的客厅。
 

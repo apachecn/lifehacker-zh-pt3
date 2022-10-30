@@ -1,6 +1,6 @@
 # 如何使用 Microsoft Translator 的增强脱机语言
 
-> 原文:[https://life hacker . com/how-to-use-Microsoft-translators-enhanced-offline-顾岚-1825393990](https://lifehacker.com/how-to-use-microsoft-translators-enhanced-offline-langu-1825393990)
+> 原文：<https://lifehacker.com/how-to-use-microsoft-translators-enhanced-offline-langu-1825393990>
 
 微软刚刚更新了其针对 [、iOS](https://itunes.apple.com/app/microsoft-translator/id1018949559) 、 [Android](https://play.google.com/store/apps/details?id=com.microsoft.translator) 和 [亚马逊 Fire devices](https://www.amazon.com/Microsoft-Corporation-Translator/dp/B01FYI9U6C?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-use-microsoft-translators-enhanced-offline-langu-1825393990&asc_source=&tag=kinjalifehackerlink-20) 的翻译应用程序，以支持新的优化语言包，据称这些语言包在帮助你在下次度假时知道如何说“洗手间在哪里”方面提高了 23%。当你下载它们时，它们还会占用你手机一半的空间——这是一个明智的举动，因为如果你在旅途中迷路了，你不会想被困在没有问路能力的地方。
 

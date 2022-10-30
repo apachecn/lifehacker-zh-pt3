@@ -1,6 +1,6 @@
 # 为你的完美木板找到最佳位置
 
-> 原文:[https://life hacker . com/find-the-best-position for your-perfect-plank-1825216306](https://lifehacker.com/find-the-best-position-for-your-perfect-plank-1825216306)
+> 原文：<https://lifehacker.com/find-the-best-position-for-your-perfect-plank-1825216306>
 
 现在，我们的木板挑战 已经进行了将近两周，你可能已经发现有些种类的木板感觉比其他的更硬。你身体位置的微小变化会带来很大的不同。
 

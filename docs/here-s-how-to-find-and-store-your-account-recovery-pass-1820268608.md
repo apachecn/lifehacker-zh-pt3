@@ -1,6 +1,6 @@
 # 如何查找和存储您的帐户恢复密码
 
-> 原文:[https://life hacker . com/here-s-how-to-find-and-store-your-account-recovery-pass-1820268608](https://lifehacker.com/here-s-how-to-find-and-store-your-account-recovery-pass-1820268608)
+> 原文：<https://lifehacker.com/here-s-how-to-find-and-store-your-account-recovery-pass-1820268608>
 
 丢失(或摔坏)你的手机一点都不好玩。是的，被易碎的玻璃 覆盖的 [会带来一些麻烦，但最终会让你更加悲伤的问题是:你的手机是你在线身份的关键。如果您在您的设备上使用双因素身份验证，您可能会依赖身份验证应用程序或短信提供随机生成的访问代码，用于在您登录不同设备或进行购买时验证您的身份。为了增加安全性，您应该保留帐户恢复代码的物理副本，这是一组双因素身份验证代码，可以在您无法访问手机上生成的时间敏感代码时使用。把它当成一份新文件，放在你的出生证明和社会安全号码旁边，不管你的设备状态如何，它都能让你控制你的账户。](https://lifehacker.com/the-best-iphone-x-cases-to-protect-apples-most-breakab-1820185119)
 

@@ -1,6 +1,6 @@
 # 当你的孩子盯着残疾人看时这样做
 
-> 原文:[https://life hacker . com/do-this-when-your-kid-stares-in-disability-1829503235](https://lifehacker.com/do-this-when-your-kid-stares-at-people-with-disabilitie-1829503235)
+> 原文：<https://lifehacker.com/do-this-when-your-kid-stares-at-people-with-disabilitie-1829503235>
 
 孩子们天生好奇——这是一件很棒的事情。但是他们也没有掌握社交暗示。这会让父母不舒服。丹尼尔·t·威灵汉姆是 15 岁的埃斯普里特的父亲，埃斯普里特患有一种罕见的染色体疾病，称为 18 三体。她不能走路或说话。从认知上来说，她相当于一个 9 个月大的孩子。这些年来，威灵汉姆已经看到同样的事情一次又一次地发生:一个妈妈或爸爸会发现他们的孩子盯着 Esprit，并立即看起来很尴尬。他们可能会试图分散孩子的注意力，或者把他们带走。也许他们会在听不到的地方告诫说，“盯着看不好。”
 

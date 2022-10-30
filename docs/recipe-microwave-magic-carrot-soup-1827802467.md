@@ -1,6 +1,6 @@
 # 神奇的胡萝卜汤是一种精致的美食——来自微波炉
 
-> 原文:[https://the take out . com/recipe-微波-魔术-胡萝卜-汤-1827802467](https://thetakeout.com/recipe-microwave-magic-carrot-soup-1827802467)
+> 原文：<https://thetakeout.com/recipe-microwave-magic-carrot-soup-1827802467>
 
 胡萝卜是大自然的长腿根狸。只要看看那些“怪异农产品”网站上那些 [肆意胡萝卜](http://southlandsnursery.com/tomspeaks/wp-content/uploads/2010/08/Sexy-Carrots-151.jpg) 的耸人听闻的照片就知道了(别假装没见过！).我欢迎更多的胡萝卜进入我的生活，但是我被两个阵营的人包围着。“我讨厌熟胡萝卜”一派和“我讨厌生胡萝卜”一派。两人都坚定不移地坚持自己的信念——他们已经被淡而无味的胡萝卜泥或木质的苦胡萝卜条所拒绝。胡萝卜能做什么？洗个蒸汽浴，裹着牛奶、糖和盐旋转，涂上柔滑的橄榄油，开始诱惑。
 

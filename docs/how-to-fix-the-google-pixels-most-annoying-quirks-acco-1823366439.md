@@ -1,6 +1,6 @@
 # 据 Reddit 报道，如何解决谷歌像素最令人讨厌的怪癖
 
-> 原文:[https://life hacker . com/how-to-fix-the-Google-pixels-most-nought-quirks-acco-1823366439](https://lifehacker.com/how-to-fix-the-google-pixels-most-annoying-quirks-acco-1823366439)
+> 原文：<https://lifehacker.com/how-to-fix-the-google-pixels-most-annoying-quirks-acco-1823366439>
 
 如果你在寻找一部安卓智能手机，你可能会比谷歌像素(Google Pixel)差很多。该公司的手机承诺尖端的硬件和所有最新软件的即时更新——但这并不意味着它们是完美的。
 

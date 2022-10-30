@@ -1,6 +1,6 @@
 # 来自我们读者的最佳新加坡旅游贴士
 
-> 原文:[https://life hacker . com/the-best-Singapore-travel-tips-from-our-readers-1829179524](https://lifehacker.com/the-best-singapore-travel-tips-from-our-readers-1829179524)
+> 原文：<https://lifehacker.com/the-best-singapore-travel-tips-from-our-readers-1829179524>
 
 像汤姆·威兹一样， [我们本周驶往新加波](https://www.youtube.com/watch?v=QywH5lialsU) 。 [我们询问了你对这个热带岛国的最佳旅行建议](https://lifehacker.com/tell-us-your-singapore-travel-tips-1829070489) ，你给了我们几十条。以下是一些亮点，原评论帖里还有更多很棒的推荐。看看他们！
 

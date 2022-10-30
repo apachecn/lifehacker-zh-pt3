@@ -1,6 +1,6 @@
 # 火鸡快步跑，第 7 周:用渐进跑预演你的比赛
 
-> 原文:[https://life hacker . com/turkey-trot-throw down-week-6-排练你的比赛-1789055141](https://lifehacker.com/turkey-trot-throwdown-week-6-rehearse-your-race-with-1789055141)
+> 原文：<https://lifehacker.com/turkey-trot-throwdown-week-6-rehearse-your-race-with-1789055141>
 
 你能相信离你的火鸡大餐只有一周了吗？不要惊慌——我们有一个很好的方法让你在比赛日测试你的勇气，这是一个简单可行的训练的一部分。
 

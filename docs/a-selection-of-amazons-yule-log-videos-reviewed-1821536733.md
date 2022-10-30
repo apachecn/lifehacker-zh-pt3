@@ -1,6 +1,6 @@
 # 亚马逊圣诞日志视频精选，评论
 
-> 原文:[https://life hacker . com/a-selection-of-amazons-yule-log-videos-reviewed-1821536733](https://lifehacker.com/a-selection-of-amazons-yule-log-videos-reviewed-1821536733)
+> 原文：<https://lifehacker.com/a-selection-of-amazons-yule-log-videos-reviewed-1821536733>
 
 我喜欢圣诞原木，但我不喜欢壁炉。
 

@@ -1,6 +1,6 @@
 # 一个舀出来的百吉饼有多少卡路里？
 
-> 原文:[https://life hacker . com/how-number-calories-in-a-scoed-out-bagel-1825474435](https://lifehacker.com/how-many-calories-are-in-a-scooped-out-bagel-1825474435)
+> 原文：<https://lifehacker.com/how-many-calories-are-in-a-scooped-out-bagel-1825474435>
 
 听着，我们不赞成把百吉饼里面的东西挖出来，但是你应该知道真相:把百吉饼里面有嚼劲的东西挖出来会减少百吉饼三分之一以上的热量。
 

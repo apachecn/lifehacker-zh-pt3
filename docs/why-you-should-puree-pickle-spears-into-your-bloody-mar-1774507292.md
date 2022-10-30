@@ -1,6 +1,6 @@
 # 为什么你要把泡菜矛放进你的血腥玛丽里
 
-> 原文:[https://life hacker . com/why-you-should-puree-pickle-spears-into-your-bloody-mar-1774507292](https://lifehacker.com/why-you-should-puree-pickle-spears-into-your-bloody-mar-1774507292)
+> 原文：<https://lifehacker.com/why-you-should-puree-pickle-spears-into-your-bloody-mar-1774507292>
 
 长期以来，我一直热衷于在美味的鸡尾酒中加入咸菜盐水，尤其是血腥玛丽，但来自 [Food 52](http://food52.com/) 的肯齐·威尔伯建议更进一步，直接在混合物中加入几根鱼叉。
 

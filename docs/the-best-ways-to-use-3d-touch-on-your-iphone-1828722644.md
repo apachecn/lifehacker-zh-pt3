@@ -1,6 +1,6 @@
 # 在 iPhone 上使用 3D Touch 的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-use-3d-touch-on-your-iphone-1828722644](https://lifehacker.com/the-best-ways-to-use-3d-touch-on-your-iphone-1828722644)
+> 原文：<https://lifehacker.com/the-best-ways-to-use-3d-touch-on-your-iphone-1828722644>
 
 苹果早在 2015 年就在 iPhone 上推出了 3D Touch。这项技术背后的概念很简单:你更用力地按压屏幕，就可以在 iOS 的各个领域获得额外的功能。*魔法！*
 

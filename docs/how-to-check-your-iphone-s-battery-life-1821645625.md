@@ -1,6 +1,6 @@
 # 如何检查你的 iPhone 的电池寿命
 
-> 原文:[https://life hacker . com/how-to-check-your-iphone-s-battery-life-1821645625](https://lifehacker.com/how-to-check-your-iphone-s-battery-life-1821645625)
+> 原文：<https://lifehacker.com/how-to-check-your-iphone-s-battery-life-1821645625>
 
 既然苹果公司承认用降级的电池会降低 iPhones 的速度，你可能会有兴趣弄清楚你的电池是否正在失去充电能力(以及你是否应该更换它)。有几种方法可以做到这一点，要么使用应用程序，要么等待几周，苹果公司表示，它将为客户提供更多关于他们电池的信息。在这期间还好奇吗？下面是要做的事情。
 

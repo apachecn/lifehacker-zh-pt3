@@ -1,6 +1,6 @@
 # 协同工作入门指南
 
-> 原文:[https://life hacker . com/the-初学者-合作指南-1826105099](https://lifehacker.com/the-beginners-guide-to-coworking-1826105099)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-coworking-1826105099>
 
 我喜欢共同工作空间的概念。尽管我已经在家工作了很多年，但有时我发现自己错过了一些东西，比如人际交往、美味的小吃、植物以及独特或超级有创意的空间，这些东西让我更容易度过朝九晚五的日子。
 

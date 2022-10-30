@@ -1,6 +1,6 @@
 # 世界上最两极分化的酱料——马麦酱的 6 种美味用法
 
-> 原文:[https://life hacker . com/6-savory-uses-for-marmite-the-world-most-polarization-s-1796035703](https://lifehacker.com/6-savory-uses-for-marmite-the-worlds-most-polarizing-s-1796035703)
+> 原文：<https://lifehacker.com/6-savory-uses-for-marmite-the-worlds-most-polarizing-s-1796035703>
 
 马麦酱有点两极分化。(他们的口号是“爱它。讨厌。”)由啤酒酵母制成，这种咸味酱有一种鲜味，几乎像浓缩酱油一样的味道，大量食用会让人无法抗拒。不过，只要加一点点，你就会多次提升你所吃的任何东西的美味度。看，即使你真的讨厌它，至少它让你有所感觉。
 

@@ -1,6 +1,6 @@
 # 政治会议是如何运作的？
 
-> 原文:[https://life hacker . com/how-do-political-conventions-work-1783853559](https://lifehacker.com/how-do-political-conventions-work-1783853559)
+> 原文：<https://lifehacker.com/how-do-political-conventions-work-1783853559>
 
 本周，共和党人举行他们的全国代表大会，接下来是下周的 [民主党全国代表大会](https://demconvention.com/) 。经过几个月的辩论和哗众取宠，两党的总统候选人将被确定下来。不过，这只是有趣的开始。这是在这些会议上发生的事情。
 

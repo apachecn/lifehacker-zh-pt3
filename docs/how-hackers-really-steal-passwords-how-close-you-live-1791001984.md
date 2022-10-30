@@ -1,6 +1,6 @@
 # 黑客如何真正窃取密码，你离核弹有多近，以及零废物挑战
 
-> 原文:[https://life hacker . com/how-hackers-really-steak-password-how-close-you-live-1791001984](https://lifehacker.com/how-hackers-really-steal-passwords-how-close-you-live-1791001984)
+> 原文：<https://lifehacker.com/how-hackers-really-steal-passwords-how-close-you-live-1791001984>
 
 本周，我们将了解如何在 30 天内实现零浪费，了解犯罪分子是如何窃取密码的，看看世界上哪些地方有核武器，并谈论有最佳福利的工作。
 

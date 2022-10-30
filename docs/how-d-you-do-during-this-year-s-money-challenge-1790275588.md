@@ -1,6 +1,6 @@
 # 你在今年的金钱挑战赛中表现如何？
 
-> 原文:[https://life hacker . com/how-d-you-do-in-this-year-s-money-challenge-1790275588](https://lifehacker.com/how-d-you-do-during-this-year-s-money-challenge-1790275588)
+> 原文：<https://lifehacker.com/how-d-you-do-during-this-year-s-money-challenge-1790275588>
 
 首次 [Lifehacker 终极金钱挑战赛](https://lifehacker.com/lifehacker-readers-lets-take-a-money-challenge-togethe-1747419781) 到此结束。如果您在旅程中的任何时候加入了我们，我们希望收到您的来信。如果你没有，但你对 2017 年有一些想法，我们也想听听你的意见！
 

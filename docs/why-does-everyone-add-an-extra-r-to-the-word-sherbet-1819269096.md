@@ -1,6 +1,6 @@
 # 为什么大家都在“冰冻果子露”这个词后面多加一个“R”？
 
-> 原文:[https://life hacker . com/why-every one-add-a-extra-r-to-the-word-sherbet-1819269096](https://lifehacker.com/why-does-everyone-add-an-extra-r-to-the-word-sherbet-1819269096)
+> 原文：<https://lifehacker.com/why-does-everyone-add-an-extra-r-to-the-word-sherbet-1819269096>
 
 尽管我们对此颇有微词，但大多数以英语为母语的人已经接受了这一事实，即有时这种语言没有太多的意义，满足于自己去记忆一系列精心制作的技巧和谚语来帮助我们理清头绪。但似乎有一个问题已经困扰冰淇淋店的游客足够长的时间了，以至于有人不得不研究它:为什么人们在发“冰冻果子露”这个词的时候会多加一个不存在的“r”？
 

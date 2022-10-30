@@ -1,6 +1,6 @@
 # iPhone 的最佳应用程序启动器
 
-> 原文:[https://life hacker . com/the-best-app-launcher-for-iphone-5836229](https://lifehacker.com/the-best-app-launcher-for-iphone-5836229)
+> 原文：<https://lifehacker.com/the-best-app-launcher-for-iphone-5836229>
 
 iPhone 不像 OS X 那样支持应用程序启动器，但这并不意味着应用程序开发者没有想出聪明的变通办法。举个例子，我们挑选的最佳启动器，Launch Center Pro 不仅可以启动应用程序，还可以在应用程序中执行特定的操作。
 

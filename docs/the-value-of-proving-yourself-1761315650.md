@@ -1,6 +1,6 @@
 # 证明自己的价值
 
-> 原文:[https://life hacker . com/the-value-of-proof-yourself-1761315650](https://lifehacker.com/the-value-of-proving-yourself-1761315650)
+> 原文：<https://lifehacker.com/the-value-of-proving-yourself-1761315650>
 
 你还记得你的第一份工作吗？因为你没有任何实际工作经验，所以你基本上是凭信念被雇用的。你在阶梯的底部，需要证明为什么你值得这份工作。无论你在职业生涯的哪个阶段都是如此:你仍然需要证明自己的价值。
 

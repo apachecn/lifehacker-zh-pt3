@@ -1,6 +1,6 @@
 # 对于我们这些不招待客人的人来说，旅行必备的感恩节菜肴
 
-> 原文:[https://life hacker . com/travel-proof-thanksgiving-disks-for the 那些我们中的谁-ar-1820431127](https://lifehacker.com/travel-proof-thanksgiving-dishes-for-those-of-us-who-ar-1820431127)
+> 原文：<https://lifehacker.com/travel-proof-thanksgiving-dishes-for-those-of-us-who-ar-1820431127>
 
 不管你是喜欢做饭还是只想做个好客人，带一道菜去感恩节晚餐通常都是很酷的事情。(显然要先和主人核实一下，无论你做什么，都不要带需要在他们家做饭的东西！)但并不是每一道菜都适合汽车、火车或飞机旅行。
 

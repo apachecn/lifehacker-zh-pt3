@@ -1,6 +1,6 @@
 # 如果你预购了新的 iPhone XS，避免升级到 iOS 12.1 测试版
 
-> 原文:[https://life hacker . com/avoid-updating-to-the-IOs-12-1-beta-if-you-pre-ordered-1829168671](https://lifehacker.com/avoid-updating-to-the-ios-12-1-beta-if-you-pre-ordered-1829168671)
+> 原文：<https://lifehacker.com/avoid-updating-to-the-ios-12-1-beta-if-you-pre-ordered-1829168671>
 
 如果你预先订购了 iPhone XS 或 XS Max，并一直在测试版中试驾 iOS 12，你会希望避免将你的设备更新到 iOS 12.1。为什么不活在边缘？因为没有适用于 iPhone XS 或 XS Max 的 iOS 12.1 测试版。
 

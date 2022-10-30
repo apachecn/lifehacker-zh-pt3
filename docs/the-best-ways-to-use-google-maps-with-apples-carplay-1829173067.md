@@ -1,6 +1,6 @@
 # 在苹果的 CarPlay 上使用谷歌地图的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-use-Google-maps-with-apple-carplay-1829173067](https://lifehacker.com/the-best-ways-to-use-google-maps-with-apples-carplay-1829173067)
+> 原文：<https://lifehacker.com/the-best-ways-to-use-google-maps-with-apples-carplay-1829173067>
 
 根据你的技术、金融或政治兴趣，这个世界现在可能感觉一团糟，但有一件事我认为我们都会普遍感到兴奋。谷歌地图终于来到了 CarPlay。
 

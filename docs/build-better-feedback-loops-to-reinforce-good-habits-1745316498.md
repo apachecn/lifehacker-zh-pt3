@@ -1,6 +1,6 @@
 # 建立更好的反馈循环来强化好习惯
 
-> 原文:[https://life hacker . com/build-better-feedback-loops-to-reinforcement-good-habits-1745316498](https://lifehacker.com/build-better-feedback-loops-to-reinforce-good-habits-1745316498)
+> 原文：<https://lifehacker.com/build-better-feedback-loops-to-reinforce-good-habits-1745316498>
 
 行为反馈循环在我们日常生活的背景中不为人知，并影响我们坚持的习惯——好的和坏的。不要让反馈环以看不见的方式塑造我们的生活，你可以设计它们来培养更好的习惯。
 

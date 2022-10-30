@@ -1,6 +1,6 @@
 # 为什么每个人都对罗斯个人退休帐户着迷
 
-> 原文:[https://life hacker . com/why-everybody-with-the-Roth-IRA-1732437777](https://lifehacker.com/why-everyone-is-obsessed-with-the-roth-ira-1732437777)
+> 原文：<https://lifehacker.com/why-everyone-is-obsessed-with-the-roth-ira-1732437777>
 
 没有为生活而工作该有多好？开始考虑为退休储蓄永远不会太早(或者太晚)。事实上，你开始得越早，你就能越早退休(或者当你最终退休时，你会越富有)。罗斯个人退休帐户是投资中最好的交易之一，如果你有资格，你绝对应该有一个。
 

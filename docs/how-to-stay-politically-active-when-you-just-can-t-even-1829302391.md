@@ -1,6 +1,6 @@
 # 当一切都势不可挡时，如何在政治上保持活跃
 
-> 原文:[https://life hacker . com/how-to-stay-political-active-when-just-can-t-even-1829302391](https://lifehacker.com/how-to-stay-politically-active-when-you-just-can-t-even-1829302391)
+> 原文：<https://lifehacker.com/how-to-stay-politically-active-when-you-just-can-t-even-1829302391>
 
 新闻循环足以让你失去希望。每天都带来一些新的恐怖，或者正在发生的恐怖的更新，或者即将到来的恐怖的传言。就像被系绳球反复打脸一样。过去几年的事件促使我们中的一些人在政治上更加活跃，这显然导致了更多的政治意识...这会导致沮丧。(见上面的系绳球。)积极投身于长期事业的人必须学会如何调整自己的节奏，保持高昂的情绪。
 

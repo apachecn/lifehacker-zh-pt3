@@ -1,6 +1,6 @@
 # 选择退出透支保护的理由
 
-> 原文:[https://life hacker . com/the-case-for-opting-out-of-透支保护-1819988970](https://lifehacker.com/the-case-for-opting-out-of-overdraft-protection-1819988970)
+> 原文：<https://lifehacker.com/the-case-for-opting-out-of-overdraft-protection-1819988970>
 
 透支保护政策因银行而异。有些可能是值得的，但其他政策可能仍然会让你付出代价。根据 [一项 NerdWallet 调查](https://www.nerdwallet.com/blog/banking/overdraft-fees-nerdwallet-survey/) ，66%的人没有意识到你可以选择退出透支保护。
 

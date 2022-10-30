@@ -1,6 +1,6 @@
 # 旷工如何提高你的工作效率
 
-> 原文:[https://life hacker . com/how-playing-hook-from work-boost-your-productivity-1810092852](https://lifehacker.com/how-playing-hooky-from-work-can-boost-your-productivity-1810092852)
+> 原文：<https://lifehacker.com/how-playing-hooky-from-work-can-boost-your-productivity-1810092852>
 
 感觉有压力？累吗？逃避工作似乎是错误的，但根据一位神经科学家的说法，从长远来看，这最终会让你更有效率。
 

@@ -1,6 +1,6 @@
 # 这是新预算中包含的所有与汽车相关的税收减免
 
-> 原文:[https://jalopnik . com/heres-every-car-related-tax-break-congress-included-in-1823766777](https://jalopnik.com/heres-every-car-related-tax-break-congress-included-in-1823766777)
+> 原文：<https://jalopnik.com/heres-every-car-related-tax-break-congress-included-in-1823766777>
 
 上个月，唐纳德·特朗普总统签署了国会通过的预算，结束了短暂的政府关闭。作为 652 页预算法案的一部分，国会延长了几项与汽车相关的临时税收减免，这在周三公布的一项大规模调查中得到强调[**公共诚信中心*。你可能会关心这些。*](https://apps.publicintegrity.org/tax-breaks-the-favored-few/) 
 

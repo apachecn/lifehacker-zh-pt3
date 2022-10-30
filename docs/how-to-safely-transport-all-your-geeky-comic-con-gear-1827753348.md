@@ -1,6 +1,6 @@
 # 如何安全地运输你所有的讨厌的动漫展装备
 
-> 原文:[https://life hacker . com/how-to-safely-transport-all-your-geeky-comic-con-gear-1827753348](https://lifehacker.com/how-to-safely-transport-all-your-geeky-comic-con-gear-1827753348)
+> 原文：<https://lifehacker.com/how-to-safely-transport-all-your-geeky-comic-con-gear-1827753348>
 
 圣地亚哥动漫展就要来了。如果你要飞去参加这个会议，或者计划去参加另一个极客大会，你可能已经知道你应该和不应该在你的行李里装什么 。(当你把手臂举在空中，就像你不在乎身体扫描仪一样，用热雷管、Gom Jabbar 或立法者复制品来惊讶运输安全局，这不是你的最佳利益。)
 

@@ -1,6 +1,6 @@
 # 有一种新的方法可以强制重启 iPhone 8——以下是具体的操作方法
 
-> 原文:[https://life hacker . com/theres-a-new-way-to-force-restart-on-the-iphone-8-heres-1819404928](https://lifehacker.com/theres-a-new-way-to-force-restart-on-the-iphone-8-heres-1819404928)
+> 原文：<https://lifehacker.com/theres-a-new-way-to-force-restart-on-the-iphone-8-heres-1819404928>
 
 苹果正在迅速远离我们都知道和喜爱的经典 iPhone Home 键。去年的 [iPhone 7](https://lifehacker.com/why-apples-iphone-7-headphones-dont-work-on-the-latest-1797826496) 用触摸板和触觉反馈取代了物理按钮，即将推出的 iPhone X 完全取消了这一功能，取而代之的是一款未来主义的 [面部扫描相机](http://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) 。
 

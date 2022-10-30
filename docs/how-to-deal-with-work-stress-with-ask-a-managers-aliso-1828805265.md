@@ -1,6 +1,6 @@
 # 如何应对工作压力——向经理请教艾莉森·格林
 
-> 原文:[https://life hacker . com/how-to-deal-with-ask-a-manager-aliso-1828805265](https://lifehacker.com/how-to-deal-with-work-stress-with-ask-a-managers-aliso-1828805265)
+> 原文：<https://lifehacker.com/how-to-deal-with-work-stress-with-ask-a-managers-aliso-1828805265>
 
 无论你面对的是一个糟糕的老板还是心怀不满的员工(或者是一个优秀的老板和热情的员工),你都会对雇主/员工的动态有自己的看法。
 

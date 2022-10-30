@@ -1,6 +1,6 @@
 # 支持治疗这些(其他)致命癌症的研究
 
-> 原文:[https://life hacker . com/support-research-to-cure-these-other-deadly-cancers-1829533045](https://lifehacker.com/support-research-to-cure-these-other-deadly-cancers-1829533045)
+> 原文：<https://lifehacker.com/support-research-to-cure-these-other-deadly-cancers-1829533045>
 
 乳腺癌是常见的，也可能是毁灭性的，但它比许多其他癌症得到了更多的媒体关注。当你掏出钱包去买一些粉红色的首饰时，这里有几个需要一点爱的理由。
 

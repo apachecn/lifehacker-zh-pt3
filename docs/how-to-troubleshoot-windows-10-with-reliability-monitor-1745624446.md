@@ -1,6 +1,6 @@
 # 如何使用可靠性监视器排除 Windows 10 故障
 
-> 原文:[https://life hacker . com/how-to-trouble shooting-windows-10-with-reliability-monitor-1745624446](https://lifehacker.com/how-to-troubleshoot-windows-10-with-reliability-monitor-1745624446)
+> 原文：<https://lifehacker.com/how-to-troubleshoot-windows-10-with-reliability-monitor-1745624446>
 
 解决 Windows 中的问题可能是一种痛苦，但内置的可靠性监视器通过在一个简单的视图中显示计算机的可靠性和问题历史来帮助您。
 

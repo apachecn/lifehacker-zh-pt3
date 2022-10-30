@@ -1,6 +1,6 @@
 # 用“非零日”朝着你的目标不断前进
 
-> 原文:[https://life hacker . com/make-continuous-progress to your-goals-with-non-ze-1820005604](https://lifehacker.com/make-continuous-progress-toward-your-goals-with-non-ze-1820005604)
+> 原文：<https://lifehacker.com/make-continuous-progress-toward-your-goals-with-non-ze-1820005604>
 
 保持足够的动力去实现我们的目标是很困难的。生活中的琐事可能会阻碍我们实现崇高的梦想——这就是非零方法的用武之地。这个想法很简单:每天只做一件事，帮助你朝着你想要实现的目标前进。即使只是做一个仰卧起坐或者喝一杯水，至少你已经取得了一些进步。
 

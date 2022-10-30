@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我的女朋友想尝试和另一个女人做爱
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-want-to-try-a-1791670308](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-wants-to-try-sex-with-a-1791670308)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-wants-to-try-sex-with-a-1791670308>
 
 你们好，所有快乐的色情獾，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是一个约会专栏，帮助你研磨你的社交校准仪。
 

@@ -1,6 +1,6 @@
 # 你的 Google Home 能做的一切现在都列在一个非常有用的网站上
 
-> 原文:[https://life hacker . com/everything-your-Google-home-can-do-now-listed-on-one-1821951991](https://lifehacker.com/everything-your-google-home-can-do-is-now-listed-on-one-1821951991)
+> 原文：<https://lifehacker.com/everything-your-google-home-can-do-is-now-listed-on-one-1821951991>
 
 如果你在假期买了一个谷歌主页，你可能会想，除了查看天气和播放音乐，它还有什么用途。 [谷歌的智能音箱](https://lifehacker.com/the-first-google-home-with-a-screen-already-offers-more-1821910986) 可能没有亚马逊的 Alexa 那么多 [第三方技能，但你仍然可以做很多事情。](https://www.cnet.com/news/google-home-is-smarter-than-the-amazon-echo-does-it-matter/) 
 

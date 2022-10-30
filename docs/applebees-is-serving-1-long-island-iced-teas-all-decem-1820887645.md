@@ -1,6 +1,6 @@
 # 整个 12 月，苹果蜂餐厅供应 1 美元的长岛冰茶
 
-> 原文:[https://life hacker . com/apple bees-is-serving-1-long-island-ice-teas-all-decem-1820887645](https://lifehacker.com/applebees-is-serving-1-long-island-iced-teas-all-decem-1820887645)
+> 原文：<https://lifehacker.com/applebees-is-serving-1-long-island-iced-teas-all-decem-1820887645>
 
 我认为这是为了吸引某种人群，Applebee's 在整个 12 月都以一美元的价格提供长岛冰茶——他们已经将其更名为“Dollar L.I.T .”。
 

@@ -1,6 +1,6 @@
 # 素食“拉面猪肉”的秘诀
 
-> 原文:[https://life hacker . com/the-secret-to-素食拉猪肉-1795723398](https://lifehacker.com/the-secret-to-vegetarian-pulled-pork-1795723398)
+> 原文：<https://lifehacker.com/the-secret-to-vegetarian-pulled-pork-1795723398>
 
 每个不吃肉的人都知道在烧烤季节选择是多么有限。但是今年，你不会被一个干博卡汉堡或烤肉串剩下的蔬菜困住。不，今年你要吃素食“猪肉”——你会喜欢的。你只需要一种关键的原料:菠萝蜜。
 

@@ -1,6 +1,6 @@
 # 自己制作粗糙的酥皮点心绝对值得
 
-> 原文:[https://life hacker . com/making-your-own-rough-puff-pastry-is-absolute-value-I-1818630020](https://lifehacker.com/making-your-own-rough-puff-pastry-is-absolutely-worth-i-1818630020)
+> 原文：<https://lifehacker.com/making-your-own-rough-puff-pastry-is-absolutely-worth-i-1818630020>
 
 虽然我喜欢烘焙，但我不认为自己是一个“严肃的烘焙师”当然，我自己做馅饼皮，也能烤出相当不错的面包，但是有一样东西我想弄乱，那就是酥皮点心。
 

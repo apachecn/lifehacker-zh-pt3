@@ -1,6 +1,6 @@
 # 通过“行李检查”停止过度包装旅行
 
-> 原文:[https://life hacker . com/stop-over packing-for-trips-a-laugh-audit-1795863848](https://lifehacker.com/stop-overpacking-for-trips-with-a-luggage-audit-1795863848)
+> 原文：<https://lifehacker.com/stop-overpacking-for-trips-with-a-luggage-audit-1795863848>
 
 我们大多数人在去 旅行的时候都倾向于过度包装。你还不如扔掉那些多余的衬衫、充电器和相机配件，因为你永远不知道你可能需要什么，对吗？当然，你带来的东西有一半都没用完。如果这听起来很熟悉，下次旅行时考虑一下“行李检查”。
 

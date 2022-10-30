@@ -1,6 +1,6 @@
 # 你现在就可以在主流流媒体服务上观看经典恐怖电影
 
-> 原文:[https://life hacker . com/classic-terror-movies-you-can-watch-on-major-streaming-1819688990](https://lifehacker.com/classic-horror-movies-you-can-watch-on-major-streaming-1819688990)
+> 原文：<https://lifehacker.com/classic-horror-movies-you-can-watch-on-major-streaming-1819688990>
 
 像网飞、Hulu 和亚马逊 Prime Video 这样的流媒体服务有大量很棒的恐怖电影供你观看，但有时你只想看经典。这些都是现在学校最喜欢的。
 

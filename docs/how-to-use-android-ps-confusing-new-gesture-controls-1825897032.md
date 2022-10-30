@@ -1,6 +1,6 @@
 # 如何使用 Android P 令人困惑的新手势控制
 
-> 原文:[https://life hacker . com/how-to-use-Android-PS-迷惑-新-手势-控制-1825897032](https://lifehacker.com/how-to-use-android-ps-confusing-new-gesture-controls-1825897032)
+> 原文：<https://lifehacker.com/how-to-use-android-ps-confusing-new-gesture-controls-1825897032>
 
 [Android P](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465) 充满了 [令人兴奋的新功能](https://lifehacker.com/how-to-get-the-android-p-public-beta-on-your-phone-righ-1825875562) ，但它也为你如何导航智能手机带来了巨大的变化。谷歌正在用一个药丸形状的图标和一大串滑动来取代我们熟悉和喜爱的虚拟导航按钮。
 

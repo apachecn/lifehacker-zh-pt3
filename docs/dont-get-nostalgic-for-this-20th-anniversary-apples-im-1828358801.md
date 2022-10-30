@@ -1,6 +1,6 @@
 # 不要怀念这个 20 周年纪念日:苹果的 iMac G3 是一台糟糕的电脑
 
-> 原文:[https://gizmodo . com/don-get-怀旧-for-this-20 周年-apple-im-1828358801](https://gizmodo.com/dont-get-nostalgic-for-this-20th-anniversary-apples-im-1828358801)
+> 原文：<https://gizmodo.com/dont-get-nostalgic-for-this-20th-anniversary-apples-im-1828358801>
 
 今天是 iMac G3 的 20 周年纪念日，这是由 Jony Ive 设计的第一代 iMac，也是史蒂夫·乔布斯在 1997 年重新加入苹果公司后发布的第一批电脑之一。它于 1998 年 8 月 15 日发射升空。
 

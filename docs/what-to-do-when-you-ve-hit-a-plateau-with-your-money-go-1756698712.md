@@ -1,6 +1,6 @@
 # 当你的金钱目标达到顶峰时该怎么办
 
-> 原文:[https://life hacker . com/1756698712](https://lifehacker.com/what-to-do-when-you-ve-hit-a-plateau-with-your-money-go-1756698712)
+> 原文：<https://lifehacker.com/what-to-do-when-you-ve-hit-a-plateau-with-your-money-go-1756698712>
 
 你知道如何处理你的钱:你有一个预算，一个储蓄计划，你正在还债。但是现在呢？这是很多有良好理财意识的人不再酗酒的时候。如果你的财务目标达到了一个平台期，保持正轨和动力是很重要的。以下是方法。
 

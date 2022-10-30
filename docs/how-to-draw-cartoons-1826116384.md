@@ -1,6 +1,6 @@
 # 如何画漫画
 
-> 原文:[https://lifehacker.com/how-to-draw-cartoons-1826116384](https://lifehacker.com/how-to-draw-cartoons-1826116384)
+> 原文：<https://lifehacker.com/how-to-draw-cartoons-1826116384>
 
 *纽约客*漫画家T3】杰森亚当卡赞斯坦 T5】教你如何 [画出你所见的](https://lifehacker.com/how-to-draw-like-a-new-yorker-cartoonist-1826078109#_ga=2.140020083.1143974146.1526303794-1297080755.1497980211) 。然后他教你 [怎么画脸](https://lifehacker.com/how-to-draw-faces-1826104011) 。在上面的新视频中，他展示了他是如何将所有这些原则转化为漫画的。
 

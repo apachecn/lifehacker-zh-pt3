@@ -1,6 +1,6 @@
 # 你最喜欢的 AIM 回忆是什么？
 
-> 原文:[https://life hacker . com/what-are-you-favorite-aim-memories-1819281101](https://lifehacker.com/what-are-your-favorite-aim-memories-1819281101)
+> 原文：<https://lifehacker.com/what-are-your-favorite-aim-memories-1819281101>
 
 随着上周美国在线即时通讯软件将于今年晚些时候永久关闭的消息 ，某个年龄段的网民发现自己变得有点多愁善感。毕竟，AIM 是*的*首映(而且只有？)是 90 年代末至 90 年代中期的首选信息平台，是青少年追踪迷恋对象、发布~*~戏剧性~ * ~状态、尝试签名字体和颜色的完美场所(浅蓝色背景的热粉色漫画字体，*thankyouverymochy*)、在简陋的聊天室与年长的变态玩游戏(A/S/L？)，实时解剖当天的 LiveJournal 剧情等等。
 

@@ -1,6 +1,6 @@
 # 今晚如何追踪圣诞老人
 
-> 原文:[https://life hacker . com/how-to-track-Santa-tonight-1821562261](https://lifehacker.com/how-to-track-santa-tonight-1821562261)
+> 原文：<https://lifehacker.com/how-to-track-santa-tonight-1821562261>
 
 这是平安夜，这意味着每个人最喜欢的穿着红色西装的胖家伙正在行动，准备给所有在这一年表现最好的孩子分发礼物。
 

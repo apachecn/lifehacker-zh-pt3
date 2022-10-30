@@ -1,6 +1,6 @@
 # 如何在任何运行 Android Marshmallow 或更高版本的手机上安装谷歌助手
 
-> 原文:[https://life hacker . com/how-to-get-Google-assistant-on-any-phone-running-androi-1787706402](https://lifehacker.com/how-to-get-google-assistant-on-any-phone-running-androi-1787706402)
+> 原文：<https://lifehacker.com/how-to-get-google-assistant-on-any-phone-running-androi-1787706402>
 
 谷歌助手 [新的智能、对话式虚拟助手](https://lifehacker.com/all-the-things-you-can-do-with-google-assistant-that-yo-1787444497) ，遗憾的是只对 [他们的新 Pixel 手机](http://lifehacker.com/everything-google-announced-at-its-made-by-google-eve-1787404179) 正式可用。然而，只要稍加调整，你就可以在任何运行 Android Marshmallow 或更高版本的手机上获得它，以及 Assistant 的所有强大的搜索和聊天功能。以下是方法。
 

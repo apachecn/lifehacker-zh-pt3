@@ -1,6 +1,6 @@
 # 训练摊牌:Sworkit vs. Nike Training Club
 
-> 原文:[https://life hacker . com/workout-摊牌-sworkit-vs-Nike-training-club-1793407194](https://lifehacker.com/workout-showdown-sworkit-vs-nike-training-club-1793407194)
+> 原文：<https://lifehacker.com/workout-showdown-sworkit-vs-nike-training-club-1793407194>
 
 也许你不能去健身房。也许你不想让 T1 去健身房。也许健身房太贵了。好消息是你可以打开手机进行即时锻炼。然而，哪个应用程序能提供最好的锻炼呢？今天，我们来了解一下。
 

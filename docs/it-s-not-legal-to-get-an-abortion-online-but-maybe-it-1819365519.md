@@ -1,6 +1,6 @@
 # 网上堕胎不合法，但也许应该合法
 
-> 原文:[https://life hacker . com/it-s-not-legal-to-get-an-about-online-but-maybe-it-1819365519](https://lifehacker.com/it-s-not-legal-to-get-an-abortion-online-but-maybe-it-1819365519)
+> 原文：<https://lifehacker.com/it-s-not-legal-to-get-an-abortion-online-but-maybe-it-1819365519>
 
 几乎一半的早期流产都是通过简单的服用几粒药丸来完成的。在家服用这些药丸是安全的，并发症发生率很低。那么，为什么你不能通过在线医生服务获得它们，就像我们可以通过避孕药和其他药物一样？
 

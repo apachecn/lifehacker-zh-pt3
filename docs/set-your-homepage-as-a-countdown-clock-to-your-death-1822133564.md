@@ -1,6 +1,6 @@
 # 把你的主页设置成死亡倒计时钟
 
-> 原文:[https://life hacker . com/set-your-home page-as-a-count-down-clock-to-your-death-1822133564](https://lifehacker.com/set-your-homepage-as-a-countdown-clock-to-your-death-1822133564)
+> 原文：<https://lifehacker.com/set-your-homepage-as-a-countdown-clock-to-your-death-1822133564>
 
 我们这一生只有这么多时间，而你的时间已经不多了，朋友。这可能看起来很可怕，但不一定如此——它可以激励人。有时候你只是需要一个提醒，提醒你要让它有价值。这个工具将你的谷歌 Chrome 主页和你打开的任何新的空白标签设置为一个慢慢走向死亡的时钟。
 

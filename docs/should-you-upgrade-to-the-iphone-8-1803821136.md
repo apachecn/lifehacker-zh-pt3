@@ -1,6 +1,6 @@
 # 该不该升级到 iPhone 8？
 
-> 原文:[https://life hacker . com/should-you-upgrade-to-the-iphone-8-1803821136](https://lifehacker.com/should-you-upgrade-to-the-iphone-8-1803821136)
+> 原文：<https://lifehacker.com/should-you-upgrade-to-the-iphone-8-1803821136>
 
 现在是 9 月，这只能意味着一件事:苹果刚刚宣布了一些新的 iPhones。今年，该公司推出了本月晚些时候发布的 [iPhone 8 和 8 Plus](https://www.apple.com/iphone-8/) ，以及将于 10 月下旬发布的经过大修的 [iPhone X](https://www.apple.com/iphone-x/) 。
 

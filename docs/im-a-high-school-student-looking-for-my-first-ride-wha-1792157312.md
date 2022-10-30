@@ -1,6 +1,6 @@
 # 我是一名高中生，正在寻找我的第一次乘坐！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-a-high-school-student-looking-my first-ride-wha-1792157312](https://jalopnik.com/im-a-high-school-student-looking-for-my-first-ride-wha-1792157312)
+> 原文：<https://jalopnik.com/im-a-high-school-student-looking-for-my-first-ride-wha-1792157312>
 
 谁说青少年不喜欢汽车？乔伊马上就要 16 岁了，他迫不及待地想要得到他的第一辆车。他有高达一万美元的可观预算，想要一些有趣的东西，但也需要安全。他应该买什么车？
 

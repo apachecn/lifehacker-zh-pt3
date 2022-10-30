@@ -1,6 +1,6 @@
 # 使用“查找我的朋友”让你们的关系不那么粘人
 
-> 原文:[https://life hacker . com/use-find-my-friends-to-make-your-relationship-less-yes-1819721728](https://lifehacker.com/use-find-my-friends-to-make-your-relationship-less-yes-1819721728)
+> 原文：<https://lifehacker.com/use-find-my-friends-to-make-your-relationship-less-yes-1819721728>
 
 起初，它听起来像一面巨大的红旗:*哦，我和我丈夫在* [*找到我的朋友*](https://support.apple.com/en-us/HT201493) ，疯女人在酒吧里兴高采烈地对她的朋友说。我一直都在用它。让我们看看他现在在哪里！好吧，剧透一下，那个疯女人就是我，这是我这辈子做的最不粘人的事情之一。
 

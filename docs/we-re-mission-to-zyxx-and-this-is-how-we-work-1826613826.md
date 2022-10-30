@@ -1,6 +1,6 @@
 # 我们是 Zyxx 的使命，这就是我们的工作方式
 
-> 原文:[https://life hacker . com/we-re-mission-to-zyxx-and-this-how-we-work-1826613826](https://lifehacker.com/we-re-mission-to-zyxx-and-this-is-how-we-work-1826613826)
+> 原文：<https://lifehacker.com/we-re-mission-to-zyxx-and-this-is-how-we-work-1826613826>
 
 [*任务到 Zyxx*](https://missiontozyxx.space/) 可能是*最好的*播客。这部科幻喜剧——融合了*星际迷航*、*星球大战*和*银河系漫游指南——*依靠原创笑话而不是参考文献，绝对是当前虚构播客浪潮中的佼佼者，部分原因是其独特的过程。演员们即兴创作每一集，只是用一个松散的前提来指导他们。然后，一个三人小组编辑和声音设计节目，将它减少一半以上，并添加音效、语音效果、音乐、过渡和氛围。最终结果和任何即兴表演一样新鲜，但和任何脚本一样巧妙。在《我是如何工作的》的详细部分中，该剧的七位演员和工作人员详细分析了他们每集的创作和技术流程。喜剧演员、演员、作家、编辑和音响专业人士在这里可以学到很多东西。
 

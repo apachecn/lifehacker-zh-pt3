@@ -1,6 +1,6 @@
 # 来自我们读者的最好的洛杉矶黑客
 
-> 原文:[https://life hacker . com/the-best-l-a-hacks-from-our-readers-1819663204](https://lifehacker.com/the-best-l-a-hacks-from-our-readers-1819663204)
+> 原文：<https://lifehacker.com/the-best-l-a-hacks-from-our-readers-1819663204>
 
 本周，我们询问了你在洛杉矶——西部的奥尔巴尼——旅游或居住的建议。你做到了。(感谢建议“不要去洛杉矶”的评论者，你的用处不可低估。)以下是你对整个大洛杉矶地区的最佳建议。
 

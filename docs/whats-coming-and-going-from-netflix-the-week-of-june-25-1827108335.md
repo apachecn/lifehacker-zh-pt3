@@ -1,6 +1,6 @@
 # 2018 年 6 月 25 日这一周，网飞有哪些动向
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-June-25-1827108335](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-25-1827108335)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-june-25-1827108335>
 
 2017 年票房最高的电影《星球大战:最后的绝地武士》将于 6 月 26 日星期二在网飞上映，所以邀请一些朋友过来，准备好热烈讨论莱恩·约翰逊是天才还是怪物。如果你到周末还没有冷静下来，你会从两个不可抗拒的夏季系列中得到一些帮助，这两个系列将于周五回归第二季:*和*都成功了！*6 月 29 日降。本周剩下的时间已经足够了——只剩下一个问题:既然《西部世界》这一季已经结束，你周日会看什么——或者是《史酷比 2:怪物被释放》？*T12】
 

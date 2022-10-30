@@ -1,6 +1,6 @@
 # 2017 年最好的建议
 
-> 原文:[https://lifehacker.com/the-best-advice-of-2017-1821603234](https://lifehacker.com/the-best-advice-of-2017-1821603234)
+> 原文：<https://lifehacker.com/the-best-advice-of-2017-1821603234>
 
 每个人有时都需要一点指导，今年我们花了很多时间来提供指导。无论你是在旅行、存钱、寻找人生目标，还是在考虑是否应该发送那张迪克照片，以下是我们 2017 年的最佳建议。
 

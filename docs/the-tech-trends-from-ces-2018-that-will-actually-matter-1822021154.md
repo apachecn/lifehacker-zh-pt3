@@ -1,6 +1,6 @@
 # 2018 年国际消费电子展的技术趋势将会非常重要
 
-> 原文:[https://life hacker . com/the-tech-trends-from-ces-2018-that-will-the-actually-matter-1822021154](https://lifehacker.com/the-tech-trends-from-ces-2018-that-will-actually-matter-1822021154)
+> 原文：<https://lifehacker.com/the-tech-trends-from-ces-2018-that-will-actually-matter-1822021154>
 
 每年的消费电子展都会展出制造商设计的小玩意，既能展示他们的技术成就，又能让消费者一瞥即将上架的商品。人们是否决定购买这些产品是另一回事。当然，这种可卷曲的电视可能会很酷，在圣诞节期间可供人们选购，但这是一种在 2018 年真正重要的技术。
 

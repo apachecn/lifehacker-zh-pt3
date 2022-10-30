@@ -1,6 +1,6 @@
 # 从 Mac 的菜单栏中查看 Spotify 或 iTunes 中正在播放的内容
 
-> 原文:[https://life hacker . com/see-whats-playing-in-Spotify-or-itunes-from-your-Macs-m-1828151050](https://lifehacker.com/see-whats-playing-in-spotify-or-itunes-from-your-macs-m-1828151050)
+> 原文：<https://lifehacker.com/see-whats-playing-in-spotify-or-itunes-from-your-macs-m-1828151050>
 
 **Mac:** 当你在浏览网页、完成工作或与朋友聊天时听着背景音乐，一首你非常喜欢的歌曲可能会出现在你的播放列表中。这种情况在一天中发生得越多，你的工作就会感觉越分散和脱节——如果你不停地跳回 iTunes 或 Spotify 查看正在播放的节目，你就永远无法专注于学习、赚钱或 MMO 突袭。
 

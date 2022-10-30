@@ -1,6 +1,6 @@
 # Lifehacker 员工非常正确的笔谈
 
-> 原文:[https://life hacker . com/the-life hacker-staff-very-correct-pen-opinions-1826497301](https://lifehacker.com/the-lifehacker-staffs-very-correct-pen-opinions-1826497301)
+> 原文：<https://lifehacker.com/the-lifehacker-staffs-very-correct-pen-opinions-1826497301>
 
 在丑闻曝光后，环境保护局局长斯科特·普鲁伊特用纳税人的钱购买了价值 1560 美元的钢笔 ，这让我们思考:什么是最好的钢笔？(他也买了个性化期刊，但那是以后的话题。)
 

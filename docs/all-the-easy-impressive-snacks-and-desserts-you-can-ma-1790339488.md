@@ -1,6 +1,6 @@
 # 你可以用冷冻松饼制作所有简单、令人印象深刻的小吃和甜点
 
-> 原文:[https://life hacker . com/all-the-easy-impressive-snakes-and-desserts-you-can-ma-1790339488](https://lifehacker.com/all-the-easy-impressive-snacks-and-desserts-you-can-ma-1790339488)
+> 原文：<https://lifehacker.com/all-the-easy-impressive-snacks-and-desserts-you-can-ma-1790339488>
 
 鉴于假日季节的节日性质，烹饪可以转向精心制作，所以它有助于一些快速简单的菜肴，无需太多努力就能给人留下深刻印象。因此，我建议每个人都在冰箱里放一些酥皮点心，并随意用来制作开胃菜、点心和甜点。
 

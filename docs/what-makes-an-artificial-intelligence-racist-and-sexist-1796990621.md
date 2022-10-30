@@ -1,6 +1,6 @@
 # 是什么让人工智能成为种族主义者和性别歧视者
 
-> 原文:[https://life hacker . com/what-makes-an-artificial-intelligence-racistic-and-sex ist-1796990621](https://lifehacker.com/what-makes-an-artificial-intelligence-racist-and-sexist-1796990621)
+> 原文：<https://lifehacker.com/what-makes-an-artificial-intelligence-racist-and-sexist-1796990621>
 
 人工智能正在渗透我们的日常生活，应用程序 [管理你的手机照片](https://lifehacker.com/this-app-can-choose-your-best-photos-for-you-1796369992)[管理你的电子邮件](https://lifehacker.com/this-app-uses-artificial-intelligence-to-manage-your-in-1796211455)[将文本从任何语言翻译成另一种语言](https://lifehacker.com/google-translate-will-now-use-neural-learning-to-make-e-1789036349) 。谷歌、脸书、苹果和微软都在大力研究如何将人工智能集成到他们的主要服务中。很快，你可能会在每次拿起手机时与人工智能(或其输出)互动。你应该相信它吗？不总是。
 

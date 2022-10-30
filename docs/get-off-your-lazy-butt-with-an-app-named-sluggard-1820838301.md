@@ -1,6 +1,6 @@
 # 使用名为“懒汉”的应用程序，让你的懒屁股动起来
 
-> 原文:[https://life hacker . com/get-off-your-lazy-butt-a-app-named-slaglard-1820838301](https://lifehacker.com/get-off-your-lazy-butt-with-an-app-named-sluggard-1820838301)
+> 原文：<https://lifehacker.com/get-off-your-lazy-butt-with-an-app-named-sluggard-1820838301>
 
 有时候，当我在办公桌前坐了几个小时，我会想坐着是如何杀死我们的，我应该如何真正休息一下，出去散步或锻炼。然后我起床，把午餐带到我的桌子上，继续工作。
 

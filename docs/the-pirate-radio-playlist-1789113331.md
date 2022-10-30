@@ -1,6 +1,6 @@
 # 盗版电台播放列表
 
-> 原文:[https://lifehacker.com/the-pirate-radio-playlist-1789113331](https://lifehacker.com/the-pirate-radio-playlist-1789113331)
+> 原文：<https://lifehacker.com/the-pirate-radio-playlist-1789113331>
 
 音乐和盗版有着错综复杂的关系。只要我们一直在录制歌曲，那些法律之外的人就一直在向任何愿意听的人传播信号。这个播放列表颂扬了处于法律灰色地带的最早的音乐形式之一:海盗电台。
 

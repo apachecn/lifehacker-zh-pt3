@@ -1,6 +1,6 @@
 # 如何越狱你的 Kindle
 
-> 原文:[https://life hacker . com/how-to-jailbreak-your-kindle-1783864074](https://lifehacker.com/how-to-jailbreak-your-kindle-1783864074)
+> 原文：<https://lifehacker.com/how-to-jailbreak-your-kindle-1783864074>
 
 上周我们了解到你可以破解 Kindle 的所有当前型号。更好的是，虽然这个过程有点耗时，但也很容易做到。最终的结果是 Kindle 用起来更舒服一点。下面是怎么做的。
 

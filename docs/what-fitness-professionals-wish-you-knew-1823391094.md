@@ -1,6 +1,6 @@
 # 健身专家希望你知道什么
 
-> 原文:[https://life hacker . com/what-fitness-professionals-wish-you-know-1823391094](https://lifehacker.com/what-fitness-professionals-wish-you-knew-1823391094)
+> 原文：<https://lifehacker.com/what-fitness-professionals-wish-you-knew-1823391094>
 
 为了最大限度地利用你的个人训练课程和健身课程，做一个知道事情如何运作的好客户是有帮助的。另外，对你的老师好一点，让事情变得简单一点总是好的。我们 [问了几个健身专业人士，他们希望他们的客户知道什么](https://lifehacker.com/fitness-professionals-what-do-you-wish-people-knew-abo-1822170874) 进去了，这是他们说的。
 

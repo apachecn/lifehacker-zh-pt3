@@ -1,6 +1,6 @@
 # 退休时可以增加社保支票吗？
 
-> 原文:[https://life hacker . com/can-you-increase-your-social-security-checks-in-retirem-1828583390](https://lifehacker.com/can-you-increase-your-social-security-checks-in-retirem-1828583390)
+> 原文：<https://lifehacker.com/can-you-increase-your-social-security-checks-in-retirem-1828583390>
 
 如果你有几年的收入很低，一旦你已经开始领取社会保障金，有没有可能增加你的社会保障金？这就是我们本周讨论的内容。
 

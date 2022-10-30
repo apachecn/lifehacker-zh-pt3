@@ -1,6 +1,6 @@
 # 如何训练自己的神经网络
 
-> 原文:[https://life hacker . com/we-trained-an-ai-generate-life hacker-headlines-1826616918](https://lifehacker.com/we-trained-an-ai-to-generate-lifehacker-headlines-1826616918)
+> 原文：<https://lifehacker.com/we-trained-an-ai-to-generate-lifehacker-headlines-1826616918>
 
 如今，人工智能(AI)似乎已经准备好运行世界的大部分地区:它是检测皮肤癌的，在脸书寻找仇恨言论的，甚至是西班牙警方报告中可能存在的。但是人工智能并不都是由大公司和政府经营的；你可以下载一些算法，自己玩，往往会有爆笑的结果。
 

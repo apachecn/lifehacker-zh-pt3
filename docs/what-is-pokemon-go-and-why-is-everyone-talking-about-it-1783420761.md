@@ -1,6 +1,6 @@
 # Pokémon Go 是什么，为什么大家都在谈论它？
 
-> 原文:[https://life hacker . com/pokemon-go 是什么，为什么每个人都在谈论它 1783420761](https://lifehacker.com/what-is-pokemon-go-and-why-is-everyone-talking-about-it-1783420761)
+> 原文：<https://lifehacker.com/what-is-pokemon-go-and-why-is-everyone-talking-about-it-1783420761>
 
 首先，我的朋友在超市买了一个小火龙。然后洪水开始了:方向盘上的硬币。酒吧的 Rhyhorn。煎锅上的鲤鱼王。它们都是要抓的神奇宝贝，是一款名为 [*神奇宝贝 Go*](http://www.pokemon.com/us/pokemon-video-games/pokemon-go/)T5】的新游戏的一部分。你可能听说过它——但是什么是*它，为什么每个人都对它着迷？* 
 

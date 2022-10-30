@@ -1,6 +1,6 @@
 # DoorDash 在一些不在全食路径上的城市免费分发“半月食饼干”
 
-> 原文:[https://life hacker . com/door dash-is-giving-away-free-half-moon-eclipse-cookies-1798160286](https://lifehacker.com/doordash-is-giving-away-free-half-moon-eclipse-cookies-1798160286)
+> 原文：<https://lifehacker.com/doordash-is-giving-away-free-half-moon-eclipse-cookies-1798160286>
 
 感受日全食 FOMO，当你向外看，仍然看到愚蠢的阳光？没关系——吃点免费的美味饼干吧。
 

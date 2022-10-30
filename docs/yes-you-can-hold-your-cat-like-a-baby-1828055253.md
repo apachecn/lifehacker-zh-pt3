@@ -1,6 +1,6 @@
 # 是的，你可以像抱婴儿一样抱着你的猫
 
-> 原文:[https://life hacker . com/yes-you-can-hold-your-cat-like-a-baby-1828055253](https://lifehacker.com/yes-you-can-hold-your-cat-like-a-baby-1828055253)
+> 原文：<https://lifehacker.com/yes-you-can-hold-your-cat-like-a-baby-1828055253>
 
 猫的魅力在于它们性情多变，当你伸手去抓它们时，它们可能会咬人，也可能会发出咕噜声。可能会有这样一个时刻，当你和你的猫建立了足够亲密的关系，它至少会在它要攻击的时候发出信号；既然如此，为什么不像婴儿一样随身携带呢？
 

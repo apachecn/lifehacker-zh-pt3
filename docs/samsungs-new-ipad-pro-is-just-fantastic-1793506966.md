@@ -1,6 +1,6 @@
 # 三星的新 iPad Pro 简直棒极了
 
-> 原文:[https://gizmodo . com/samsungs-new-ipad-pro-is-just-fantastic-1793506966](https://gizmodo.com/samsungs-new-ipad-pro-is-just-fantastic-1793506966)
+> 原文：<https://gizmodo.com/samsungs-new-ipad-pro-is-just-fantastic-1793506966>
 
 在苹果第一款 9.7 英寸 iPad Pro 发布一年后，三星的新版本感觉很大胆。虽然它有着同样光滑的线条，一样轻，并且一侧有磁性连接，便于键盘盖的连接，但三星 2017 年的 iPad Pro 被莫名其妙地称为 Galaxy Tab S3，与以前的 iPad 不同，这款 iPad 运行安卓系统。
 

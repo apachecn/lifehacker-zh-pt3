@@ -1,6 +1,6 @@
 # 如何购买纽约市的“免费出狱卡”
 
-> 原文:[https://life hacker . com/how-to-buy-new-York-cities-get-out-of-jail-free-card-1822312921](https://lifehacker.com/how-to-buy-new-york-citys-get-out-of-jail-free-card-1822312921)
+> 原文：<https://lifehacker.com/how-to-buy-new-york-citys-get-out-of-jail-free-card-1822312921>
 
 纽约市警察很生气，他们最大的工会，巡警慈善协会，阻止他们每年向朋友和家人分发 30 张 PBA 卡(通常被称为“出狱自由”卡)。相反，他们一年只能发放 20 份。 退休警察拿 10。
 

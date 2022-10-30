@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我应该为了暗恋对象离开我的未婚妻吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-should-I-leave-my-of-my-cru-1765736926](https://kotaku.com/ask-dr-nerdlove-should-i-leave-my-fiancee-for-my-cru-1765736926)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-should-i-leave-my-fiancee-for-my-cru-1765736926>
 
 你好，互联网！欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一的约会建议专栏，代表了我们银河系最后的、最好的和平希望。
 

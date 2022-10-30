@@ -1,6 +1,6 @@
 # 把夏天的水果浸泡在酒里，因为生命短暂
 
-> 原文:[https://life hacker . com/soak-your-summer-fruits-in-behaviour-因为生命短暂-1796463636](https://lifehacker.com/soak-your-summer-fruits-in-booze-because-life-is-short-1796463636)
+> 原文：<https://lifehacker.com/soak-your-summer-fruits-in-booze-because-life-is-short-1796463636>
 
 毫无疑问，馅饼是任何夏季水果中最高贵的形式，但有时我想要一种水果甜点，不需要我的烤箱(或厨房)加热。在这样的时刻，我(再一次)转向饮酒，做一些愚蠢的-简单但仍然复杂的-品尝葡萄酒浸泡的水果。
 

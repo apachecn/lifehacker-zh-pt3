@@ -1,6 +1,6 @@
 # 使用 iOS 9 新功能更新的最佳应用程序
 
-> 原文:[https://life hacker . com/the-best-apps-updated-with-new-IOs-9-features-1731658054](https://lifehacker.com/the-best-apps-updated-with-new-ios-9-features-1731658054)
+> 原文：<https://lifehacker.com/the-best-apps-updated-with-new-ios-9-features-1731658054>
 
 iOS 9 没有带来大量新功能，但有了多任务、聚光灯搜索和快速回复，应用程序需要更新才能使用。这里列出了一些已经更新的更好的应用程序。
 

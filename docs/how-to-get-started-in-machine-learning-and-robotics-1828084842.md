@@ -1,6 +1,6 @@
 # 机器学习和机器人学如何入门
 
-> 原文:[https://life hacker . com/how-to-get-started-in-machine-learning-and-robotics-1828084842](https://lifehacker.com/how-to-get-started-in-machine-learning-and-robotics-1828084842)
+> 原文：<https://lifehacker.com/how-to-get-started-in-machine-learning-and-robotics-1828084842>
 
 “人们很容易被吓倒，”机器人工程师哈马亚尔·乔杜里 说，他共同创造了智能手臂，这是一种使用摄像头来分析和操纵物体的机器人手假肢。“你对一个项目有这样的想法，然后想，我对此一无所知。”以下是乔杜里和他的合作伙伴 [萨明·汗](https://www.linkedin.com/in/samin-khan/) 如何在 20 岁时，利用代码库、大学作业和赞助的黑客马拉松找到并执行一个有意义的项目，萨明·汗编写了智能手臂的机器学习算法。
 

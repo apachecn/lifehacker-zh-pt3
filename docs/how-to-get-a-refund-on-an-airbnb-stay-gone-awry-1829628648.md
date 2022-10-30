@@ -1,6 +1,6 @@
 # 如何在 Airbnb 住宿出错时获得退款
 
-> 原文:[https://life hacker . com/how-to-get-a-Airbnb-stay-go-awry-1829628648](https://lifehacker.com/how-to-get-a-refund-on-an-airbnb-stay-gone-awry-1829628648)
+> 原文：<https://lifehacker.com/how-to-get-a-refund-on-an-airbnb-stay-gone-awry-1829628648>
 
 如果你对共享经济想得太多，事情就会变得很奇怪。我们完全愿意坐上陌生人的车(优步)或住在陌生人的家里(Airbnb)——这两种情况我们都可以通过智能手机应用来安排。这些服务提供某些信任标记，如验证和用户评论，但这并不能保证积极的，甚至是安全的体验，正如洛杉矶 Airbnb 的两名客人今年夏天发现的那样。
 

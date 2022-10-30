@@ -1,6 +1,6 @@
 # 不要听你父母的
 
-> 原文:[https://life hacker . com/don-to-listen-to-your-parents-1827318457](https://lifehacker.com/dont-listen-to-your-parents-1827318457)
+> 原文：<https://lifehacker.com/dont-listen-to-your-parents-1827318457>
 
 千禧一代的同胞们，这是一个公益广告:当谈到职业和金钱建议时，父母有无数的意见，大多数是基于他们已经做了什么或希望他们的朋友知道你在做什么。我是来说别听他们的。
 

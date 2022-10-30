@@ -1,6 +1,6 @@
 # 为你一生中最好的山核桃派制作你自己的金色糖浆
 
-> 原文:[https://life hacker . com/make-you-own-you-1820979231](https://lifehacker.com/make-your-own-golden-syrup-for-the-best-pecan-pie-of-yo-1820979231)
+> 原文：<https://lifehacker.com/make-your-own-golden-syrup-for-the-best-pecan-pie-of-yo-1820979231>
 
 玉米糖浆真恶心。我想少量的话是可以的——比如说，给自制的焦糖一点嚼劲——但是它太单一了，不能作为单独的甜味剂。因此，我尽可能避免它。
 

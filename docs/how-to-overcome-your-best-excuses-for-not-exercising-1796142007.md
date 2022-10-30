@@ -1,6 +1,6 @@
 # 如何克服你不锻炼的最佳借口
 
-> 原文:[https://life hacker . com/how-to-克服不锻炼的最佳借口-1796142007](https://lifehacker.com/how-to-overcome-your-best-excuses-for-not-exercising-1796142007)
+> 原文：<https://lifehacker.com/how-to-overcome-your-best-excuses-for-not-exercising-1796142007>
 
 当你不想锻炼时，你可以想出各种各样的借口。我们明白了:运动是最糟糕的。有很多事情你可以去做。你没时间了。等等，等等。但是 [定期锻炼](http://lifehacker.com/top-10-reasons-to-exercise-regularly-besides-losing-we-1473616982#_ga=2.207665552.303451680.1497830696-1887250931.1497314809) [有太多的好处](http://lifehacker.com/top-10-reasons-to-exercise-regularly-besides-losing-we-1473616982#_ga=2.58139683.84002738.1497881598-1559755781.1494965787) 让我们袖手旁观，而你却假装这些都是不锻炼的好理由。
 

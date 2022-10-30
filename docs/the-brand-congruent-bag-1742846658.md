@@ -1,6 +1,6 @@
 # 品牌全等包
 
-> 原文:[https://lifehacker.com/the-brand-congruent-bag-1742846658](https://lifehacker.com/the-brand-congruent-bag-1742846658)
+> 原文：<https://lifehacker.com/the-brand-congruent-bag-1742846658>
 
 这并不经常发生，但有时，最好的配件是由同一家公司生产的，作为你选择的包。举个例子，在日常携带中，Josh 分享了他装满 Topo 配件的包。
 

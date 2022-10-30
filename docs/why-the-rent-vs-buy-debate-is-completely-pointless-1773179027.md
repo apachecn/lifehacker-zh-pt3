@@ -1,6 +1,6 @@
 # 为什么租与买的争论完全没有意义
 
-> 原文:[https://life hacker . com/why-the-rent-vs-buy-辩-是完全没有意义的-1773179027](https://lifehacker.com/why-the-rent-vs-buy-debate-is-completely-pointless-1773179027)
+> 原文：<https://lifehacker.com/why-the-rent-vs-buy-debate-is-completely-pointless-1773179027>
 
 攒了很久，最近买了套房子，让一些朋友措手不及。“我以为你反对拥有住房，”他们说，因为我认为租房被低估了。即使作为房主，我仍然认为租房被低估了。但这并不意味着购买是一个错误的决定。租与买的争论总体上是愚蠢的，并且忽略了两种选择之间存在的巨大灰色地带。
 

@@ -1,6 +1,6 @@
 # 如何庆祝五月五日节而不成为一个无知的混蛋
 
-> 原文:[https://life hacker . com/how-to-庆祝会-cinco-de-mayo-not be-an-ignoran-1794924312](https://lifehacker.com/how-to-celebrate-cinco-de-mayo-without-being-an-ignoran-1794924312)
+> 原文：<https://lifehacker.com/how-to-celebrate-cinco-de-mayo-without-being-an-ignoran-1794924312>
 
 今天是五月五日，很多人喝龙舌兰酒，吃墨西哥食物来纪念...
 

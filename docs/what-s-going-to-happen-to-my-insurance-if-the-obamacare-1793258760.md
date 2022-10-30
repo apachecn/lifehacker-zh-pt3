@@ -1,6 +1,6 @@
 # 如果奥巴马医改方案成为法律，我的保险会发生什么？
 
-> 原文:[https://life hacker . com/what-s-going-to-happen-to-my-insurance-if-the-Obama care-1793258760](https://lifehacker.com/what-s-going-to-happen-to-my-insurance-if-the-obamacare-1793258760)
+> 原文：<https://lifehacker.com/what-s-going-to-happen-to-my-insurance-if-the-obamacare-1793258760>
 
 我们终于有了一些数字，关于共和党提议的患者保护与平价医疗法案的替代者将对医疗保险覆盖范围和费用做些什么。来自国会预算办公室的估计说，我们中的 2400 万人将失去保险，而我们中的其他人可能会看到我们的免赔额上升。
 

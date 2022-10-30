@@ -1,6 +1,6 @@
 # 如何免费在线玩 Commodore 64 游戏
 
-> 原文:[https://life hacker . com/how-to-play-commodore-64-games-online-for-free-1829660762](https://lifehacker.com/how-to-play-commodore-64-games-online-for-free-1829660762)
+> 原文：<https://lifehacker.com/how-to-play-commodore-64-games-online-for-free-1829660762>
 
 上个月， [互联网档案馆](https://archive.org/about/) 在其不断增长的历史软件库中增加了一个 [Commodore 64 模拟器](https://archive.org/details/softwarelibrary_c64) ，有效地将复古的计算机/游戏主机带入了公共领域。就像互联网档案馆的 [MS-DOS](https://archive.org/details/softwarelibrary_msdos) 和 [Apple II](https://archive.org/details/softwarelibrary_apple) 程序库一样，他们存档的每一个程序现在都可以在网站上找到，并可以在你的浏览器上播放。
 

@@ -1,6 +1,6 @@
 # 如何(最终)使用 AirPlay 2 将音乐流式传输到 Sonos 扬声器
 
-> 原文:[https://life hacker . com/how-to-finally-stream-music-to-your-sonos-speaker-usi-1827625972](https://lifehacker.com/how-to-finally-stream-music-to-your-sonos-speaker-usi-1827625972)
+> 原文：<https://lifehacker.com/how-to-finally-stream-music-to-your-sonos-speaker-usi-1827625972>
 
 一些 Sonos 扬声器终于获得了对苹果最新无线流媒体技术 AirPlay 2 的支持。无论你是想播放你最喜欢的网飞电影还是在家里摇滚，这个更新都可以让你将扬声器连接到你的 iOS 设备。下面是如何开始:
 

@@ -1,6 +1,6 @@
 # 我是马尔洛·桑德·麦克,“如何成为一个女孩”播客的创建者，这就是我如何为人父母
 
-> 原文:[https://life hacker . com/im-marlo-Mack-the-how-to-be-a-girl-podcast-1826683062](https://lifehacker.com/im-marlo-mack-creator-of-the-how-to-be-a-girl-podcast-1826683062)
+> 原文：<https://lifehacker.com/im-marlo-mack-creator-of-the-how-to-be-a-girl-podcast-1826683062>
 
 马尔洛·桑德·麦克制作了《如何成为一个女孩》，这是一个关于她变性女儿“m”生活的播客。通过各种故事，从其他妈妈在学校发现一个女孩有阴茎 到她如何告诉她的孩子她可能永远不会成为她的亲生母亲 ，马尔洛·桑德(化名)让听众一窥她们的世界。以下是她为人父母的方式。
 

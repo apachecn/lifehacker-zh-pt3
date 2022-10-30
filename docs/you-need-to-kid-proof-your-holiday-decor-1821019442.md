@@ -1,6 +1,6 @@
 # 你需要防止你的节日装饰被人取笑
 
-> 原文:[https://life hacker . com/you-need-to-kid-proof-your-holiday-decor-1821019442](https://lifehacker.com/you-need-to-kid-proof-your-holiday-decor-1821019442)
+> 原文：<https://lifehacker.com/you-need-to-kid-proof-your-holiday-decor-1821019442>
 
 根据美国消费者产品安全委员会每年报告的 15000 起节日装饰伤害，一年中最美好的时光也是一年中最危险的时光。当父母在圣诞前夜把他们的好朋友小精灵带出来时，需要格外小心——对于小孩子来说，所有东西看起来都可以蹦蹦跳跳，可以吃，可以玩。上周，一位名叫妮可·麦金托什·利奥 [的母亲在脸书上分享了她蹒跚学步的儿子如何穿上一只圣诞袜，加重的袜架掉在了他的眼睛上。(“我们的故事有一个快乐的结局，”利奥写道。"我们的儿子有一只完美的义眼。")](http://www.scarymommy.com/toddler-loses-eye-weighted-stocking-holder/)
 

@@ -1,6 +1,6 @@
 # 如何准时下班
 
-> 原文:[https://life hacker . com/how-to-actually-leave-work-on-time-1823703432](https://lifehacker.com/how-to-actually-leave-work-on-time-1823703432)
+> 原文：<https://lifehacker.com/how-to-actually-leave-work-on-time-1823703432>
 
 有很多事情要做。总是有的。你坐在办公桌前，每天都过了下班时间，以确保完成所有的工作，但最终你还是为此而痛苦。准时下班是没问题的，这些建议可以帮助你养成习惯。
 

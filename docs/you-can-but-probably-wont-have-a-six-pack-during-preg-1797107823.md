@@ -1,6 +1,6 @@
 # 你可以(但可能不会)在怀孕期间拥有六块腹肌
 
-> 原文:[https://life hacker . com/you-can-but-possible-wot-have-a-six-pack-in-preg-1797107823](https://lifehacker.com/you-can-but-probably-wont-have-a-six-pack-during-preg-1797107823)
+> 原文：<https://lifehacker.com/you-can-but-probably-wont-have-a-six-pack-during-preg-1797107823>
 
 怀孕的肚子有很多种形状和大小，而且都很漂亮。但当网上的人看到健身模特莎拉·斯丁(Sarah Stage)的“小肚子”时，他们大叫:“巫术！”
 

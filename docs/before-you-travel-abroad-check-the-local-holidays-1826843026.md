@@ -1,6 +1,6 @@
 # 在你出国旅行之前，查一下当地的假期
 
-> 原文:[https://life hacker . com/before-you-travel-check-the-local-holidays-1826843026](https://lifehacker.com/before-you-travel-abroad-check-the-local-holidays-1826843026)
+> 原文：<https://lifehacker.com/before-you-travel-abroad-check-the-local-holidays-1826843026>
 
 在我们的 [Hack Your City](https://lifehacker.com/c/hack-your-city) 系列中，读者给出了 35 个城市的旅行建议，外加迪士尼世界和黄石公园。但是一些提示不断出现在一个又一个城市，应该成为你旅行习惯的一部分。不是所有的建议都适用于每个城市，但是下次你去 T4 的新地方时，你应该浏览一下这个清单。
 

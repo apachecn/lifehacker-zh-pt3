@@ -1,6 +1,6 @@
 # 成为一名奥运选手并不需要 10，000 小时
 
-> 原文:[https://life hacker . com/it-not-take-10000-hours to-be a-olympian-1796514880](https://lifehacker.com/it-doesn-t-take-10-000-hours-to-become-an-olympian-1796514880)
+> 原文：<https://lifehacker.com/it-doesn-t-take-10-000-hours-to-become-an-olympian-1796514880>
 
 根据一些研究推断，成为世界级音乐家需要 [10 年](http://lifehacker.com/what-mozart-and-kobe-bryant-can-teach-us-about-delibera-1442488267) 或 [10，000 小时的练习](http://lifehacker.com/three-studies-that-changed-the-way-we-think-about-produ-5965021) ，好像他们可以解释每一个熟练职业的成功( [他们不能](http://lifehacker.com/study-shows-that-10-000-hours-of-practice-isnt-the-magi-1601141560) )。那么，要成为一名奥林匹克运动员，到底需要什么呢？一个 [新分析](https://link.springer.com/article/10.1007%2Fs40279-017-0740-0) 给了我们一些线索。
 

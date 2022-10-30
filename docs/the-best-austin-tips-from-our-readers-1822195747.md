@@ -1,6 +1,6 @@
 # 来自我们读者的最佳奥斯汀小贴士
 
-> 原文:[https://life hacker . com/the-best-Austin-tips-from-our-readers-1822195747](https://lifehacker.com/the-best-austin-tips-from-our-readers-1822195747)
+> 原文：<https://lifehacker.com/the-best-austin-tips-from-our-readers-1822195747>
 
 我们询问了你在奥斯汀的建议 ，我们收到了 182 条建议，推荐了德州-墨西哥、当地景点、好的和不好的社区，以及轻轨可以自行运转的方式。这里有一些出现的主题。
 

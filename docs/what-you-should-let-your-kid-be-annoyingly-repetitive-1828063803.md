@@ -1,6 +1,6 @@
 # 为什么你应该让你的孩子烦人的重复
 
-> 原文:[https://life hacker . com/what-you-should-let-your-kid-be-annoying-repetitive-1828063803](https://lifehacker.com/what-you-should-let-your-kid-be-annoyingly-repetitive-1828063803)
+> 原文：<https://lifehacker.com/what-you-should-let-your-kid-be-annoyingly-repetitive-1828063803>
 
 女儿还没学会说话，就学会了手语，她掌握的第一个手势就是“更多”。更多意味着更多——比如，“在我以 5-4-3-2-1 尖叫之前，给我更多的牛奶”...”——但对她来说，这也意味着“再次”再唱一遍那首歌。再次按下玩具收银机按钮。再用你的腋窝发出那种滑稽的声音，再，再*再*。
 

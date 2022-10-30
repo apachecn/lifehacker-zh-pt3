@@ -1,6 +1,6 @@
 # 为什么我的脸会随着年龄的增长而改变形状？
 
-> 原文:[https://gizmodo . com/why-I-face-changing-shape-as-I-get-older-1823845074](https://gizmodo.com/why-is-my-face-changing-shape-as-i-get-older-1823845074)
+> 原文：<https://gizmodo.com/why-is-my-face-changing-shape-as-i-get-older-1823845074>
 
 20 年的健康增长，接着是 40 到 80 年缓慢的身体和精神崩溃——对我们大多数人来说，这就是生活，尽管有各种受蒙蔽的怪人和技术亿万富翁的努力。时间不吝惜任何东西，似乎特别针对我们的脸，对皮肤层面的变形(皱纹、隆起的赘生物)和大规模的凹陷和下垂给予同样的关注，随着时间的推移，这些凹陷和下垂会改变我们脸的实际形状。
 

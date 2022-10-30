@@ -1,6 +1,6 @@
 # 你应该每十年更换一次烟雾探测器
 
-> 原文:[https://life hacker . com/you-should-replace-your-smoke-detector-every-10 年-1796091944](https://lifehacker.com/you-should-replace-your-smoke-detector-every-10-years-1796091944)
+> 原文：<https://lifehacker.com/you-should-replace-your-smoke-detector-every-10-years-1796091944>
 
 你知道当烟雾探测器的电池用完时，你需要更换电池，但是你可能没有意识到，随着传感器磨损，你也应该每 10 年更换一次烟雾探测器本身。是的，就连你看中的 [巢穴探测器](https://nest.com/support/article/When-do-I-need-to-replace-my-Nest-Protect) 也属于这个准则。
 

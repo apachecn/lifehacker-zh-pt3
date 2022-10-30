@@ -1,6 +1,6 @@
 # 美国运通的升级金卡与其他餐饮奖励卡相比如何
 
-> 原文:[https://life hacker . com/how-amexs-upgraded-gold-card-comparates-to-other-dining-r-1829532138](https://lifehacker.com/how-amexs-upgraded-gold-card-compares-to-other-dining-r-1829532138)
+> 原文：<https://lifehacker.com/how-amexs-upgraded-gold-card-compares-to-other-dining-r-1829532138>
 
 如果你想买一张新的餐饮奖励卡，美国运通最新的高级奖励金卡是市场上最慷慨的卡之一，只要你花足够的钱来支付 250 美元的费用。
 

@@ -1,6 +1,6 @@
 # 三个春天的蒜真的增加了味道
 
-> 原文:[https://life hacker . com/three-spring-alliums-that-really-ramp-up-the-flavor-1771090813](https://lifehacker.com/three-spring-alliums-that-really-ramp-up-the-flavor-1771090813)
+> 原文：<https://lifehacker.com/three-spring-alliums-that-really-ramp-up-the-flavor-1771090813>
 
 春天来了，它带来了各种美味的蒜。从超级受欢迎的斜坡到甜而害羞的青蒜，这些洋葱附近的植物部分给它们接触的所有东西带来了新鲜、美味的味道。
 

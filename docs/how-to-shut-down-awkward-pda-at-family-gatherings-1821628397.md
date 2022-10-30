@@ -1,6 +1,6 @@
 # 如何在家庭聚会上让尴尬的 PDA 闭嘴
 
-> 原文:[https://life hacker . com/how-to-shut-down-笨拙的 PDA-在家庭聚会上-1821628397](https://lifehacker.com/how-to-shut-down-awkward-pda-at-family-gatherings-1821628397)
+> 原文：<https://lifehacker.com/how-to-shut-down-awkward-pda-at-family-gatherings-1821628397>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

@@ -1,6 +1,6 @@
 # 直接进入 MailChimp，屏蔽营销邮件
 
-> 原文:[https://life hacker . com/block-marketing-emails-by-going-straight-to-mailchimp-1822636037](https://lifehacker.com/block-marketing-emails-by-going-straight-to-mailchimp-1822636037)
+> 原文：<https://lifehacker.com/block-marketing-emails-by-going-straight-to-mailchimp-1822636037>
 
 是的，你可以取消订阅单个邮件列表，但是如果我告诉你，你可以取消订阅每一封发送给你的营销邮件呢？
 

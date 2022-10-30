@@ -1,6 +1,6 @@
 # WTF 是假的吗？
 
-> 原文:[https://lifehacker.com/wtf-is-a-finsta-1822639725](https://lifehacker.com/wtf-is-a-finsta-1822639725)
+> 原文：<https://lifehacker.com/wtf-is-a-finsta-1822639725>
 
 欢迎来到 WTF，艾米丽？的专栏中，Lifehacker 的员工向青少年解释了青少年到底在网上做什么。每隔一周，新大学毕业生艾米丽·利普斯坦将在晚上 11 点的新闻中深入探究青少年正在做的事情，打破道德恐慌的局面。
 

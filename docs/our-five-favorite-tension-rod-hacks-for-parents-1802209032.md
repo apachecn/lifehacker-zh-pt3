@@ -1,6 +1,6 @@
 # 我们给父母的五个最喜欢的拉杆黑客
 
-> 原文:[https://life hacker . com/our-five-favorite-tension-rod-hacks-for-parents-1802209032](https://lifehacker.com/our-five-favorite-tension-rod-hacks-for-parents-1802209032)
+> 原文：<https://lifehacker.com/our-five-favorite-tension-rod-hacks-for-parents-1802209032>
 
 除了受人喜爱的泳池面条 之外，拉杆是一种非常通用的物品，每次你发现它的新的非品牌用途时，它都会让你觉得自己是一个真正的 MacGyver。父母可以利用它来使他们的生活更轻松、更有条理、更有趣。这里有五种方法可以做到这一点。
 

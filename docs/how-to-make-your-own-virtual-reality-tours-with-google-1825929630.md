@@ -1,6 +1,6 @@
 # 如何用谷歌街景制作自己的虚拟现实之旅
 
-> 原文:[https://life hacker . com/how-to-make-your-own-your-own-virtual-reality-tours-with-Google-1825929630](https://lifehacker.com/how-to-make-your-own-virtual-reality-tours-with-google-1825929630)
+> 原文：<https://lifehacker.com/how-to-make-your-own-virtual-reality-tours-with-google-1825929630>
 
 在将虚拟现实带给大众方面，谷歌做得比几乎任何其他公司都多，从制作廉价的纸板耳机 到让公众轻松创建和分享 [360 度照片](https://support.google.com/maps/answer/7012050?co=GENIE.Platform%3DAndroid&hl=en) 。现在，该公司为虚拟现实爱好者提供了另一种方式，即使用一款名为 [Tour Creator](https://www.blog.google/topics/education/tour-creator-schools-vr/) 的新工具。
 

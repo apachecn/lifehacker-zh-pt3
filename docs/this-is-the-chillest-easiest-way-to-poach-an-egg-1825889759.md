@@ -1,6 +1,6 @@
 # 这是最酷、最简单的煮蛋方法
 
-> 原文:[https://life hacker . com/this-is-the-chill-easy-to-watch a-egg-1825889759](https://lifehacker.com/this-is-the-chillest-easiest-way-to-poach-an-egg-1825889759)
+> 原文：<https://lifehacker.com/this-is-the-chillest-easiest-way-to-poach-an-egg-1825889759>
 
 在我成年后的某个时候，我变成了一个早上 6:30 醒来的人。我没有选择这条路——我宁愿一直睡觉，谢谢——但我正试图充分利用我的身体突然拒绝睡懒觉的状况。
 

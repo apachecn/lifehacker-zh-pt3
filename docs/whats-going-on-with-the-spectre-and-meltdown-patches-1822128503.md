@@ -1,6 +1,6 @@
 # 幽灵和熔毁补丁是怎么回事？
 
-> 原文:[https://life hacker . com/what-going-with the-spectre-and-meltdown-patches-1822128503](https://lifehacker.com/whats-going-on-with-the-spectre-and-meltdown-patches-1822128503)
+> 原文：<https://lifehacker.com/whats-going-on-with-the-spectre-and-meltdown-patches-1822128503>
 
 本月早些时候，计算机安全部门在互联网上投下了一枚重磅炸弹。追溯到 1995 年的一对名为 [Spectre 和 Meltdown](https://lifehacker.com/how-to-protect-yourself-from-meltdown-and-spectre-the-1821781392) 的漏洞使各种电脑、智能手机和互联网浏览器面临风险。
 

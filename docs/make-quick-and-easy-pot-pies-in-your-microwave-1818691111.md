@@ -1,6 +1,6 @@
 # 用微波炉快速简单地制作馅饼
 
-> 原文:[https://life hacker . com/make-quick-and-easy-pot-pies-in-your-microwave-1818691111](https://lifehacker.com/make-quick-and-easy-pot-pies-in-your-microwave-1818691111)
+> 原文：<https://lifehacker.com/make-quick-and-easy-pot-pies-in-your-microwave-1818691111>
 
 欢迎回到周日营养，这个专栏强调如何用尽可能少的工作做出美味的食物。九月已经过了一大半，天气已经完全变得太热了。这是一年中我开始计划烤肉、肉饼和假日购物的时候，该死的。马萨诸塞州不应该有 90 度。
 

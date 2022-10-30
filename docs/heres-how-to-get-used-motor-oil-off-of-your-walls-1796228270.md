@@ -1,6 +1,6 @@
 # 以下是如何清除墙上用过的机油
 
-> 原文:[https://jalopnik . com/heres-how-to-get-use-motor-oil-off-your-walls-1796228270](https://jalopnik.com/heres-how-to-get-used-motor-oil-off-of-your-walls-1796228270)
+> 原文：<https://jalopnik.com/heres-how-to-get-used-motor-oil-off-of-your-walls-1796228270>
 
 如果你像我一样是一个狂热的扳钳者，并且你已经住在一个满是油污的房子里很多年了，那就不要再被污染了。我有一个可能改变你生活的解决方案。
 

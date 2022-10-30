@@ -1,6 +1,6 @@
 # 食品制造商如何选择保质期以及它们的真正含义
 
-> 原文:[https://life hacker . com/how-food-manufacturers-pick-expiration-dates-and-what-t-1782752993](https://lifehacker.com/how-food-manufacturers-pick-expiration-dates-and-what-t-1782752993)
+> 原文：<https://lifehacker.com/how-food-manufacturers-pick-expiration-dates-and-what-t-1782752993>
 
 没有人愿意给家人提供变质的食物。相反，消费者不想扔掉不必要的食物——但我们当然想。美国农业部估计，在零售和消费层面，美国人每年扔掉相当于[1620 亿美元](http://www.ers.usda.gov/media/1282296/eib121.pdf) 的食物。大量的食物被丢弃，但仍然可以安全食用。
 

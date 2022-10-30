@@ -1,6 +1,6 @@
 # 整理孩子大量物品的 8 个技巧
 
-> 原文:[https://life hacker . com/8-tips-for-decluttering-your-kids-massive-amount-of-stu-1796713214](https://lifehacker.com/8-tips-for-decluttering-your-kids-massive-amount-of-stu-1796713214)
+> 原文：<https://lifehacker.com/8-tips-for-decluttering-your-kids-massive-amount-of-stu-1796713214>
 
 有孩子通常意味着必须为他们买很多东西，这意味着积累大量的杂物。限制新物品不仅能帮助你避免混乱，还能帮助你的孩子建立更好的习惯，更加珍惜他们的财产。虽然这看起来是一项艰巨的任务，但是通过一些小技巧，整理你孩子的东西是可能的。
 

@@ -1,6 +1,6 @@
 # 这是在电梯里的正确行为方式
 
-> 原文:[https://life hacker . com/this-is-the-correct-way-to-being-in-a-elevator-1823730929](https://lifehacker.com/this-is-the-correct-way-to-behave-in-an-elevator-1823730929)
+> 原文：<https://lifehacker.com/this-is-the-correct-way-to-behave-in-an-elevator-1823730929>
 
 乘坐电梯可能是一次令人担忧的经历，伴随着所有关于按按钮、扶着门和闲聊的模糊礼仪，所有这些都混合着一种健康的幽闭恐惧症。
 

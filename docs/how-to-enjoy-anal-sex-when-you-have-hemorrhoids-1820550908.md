@@ -1,6 +1,6 @@
 # 得了痔疮如何享受肛交
 
-> 原文:[https://life hacker . com/how-to-enjoy-anal-sex-when you hacken-1820550908](https://lifehacker.com/how-to-enjoy-anal-sex-when-you-have-hemorrhoids-1820550908)
+> 原文：<https://lifehacker.com/how-to-enjoy-anal-sex-when-you-have-hemorrhoids-1820550908>
 
 欢迎回到 [燃眉之急](https://lifehacker.com/c/burning-questions) s，在这个专栏里，我们会问一些你希望专家回答，但又不敢问的健康问题。今天的话题是一个很私人很私密的屁股问题。
 

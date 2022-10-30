@@ -1,6 +1,6 @@
 # 为什么你应该关心退休危机，即使你才 20 多岁
 
-> 原文:[https://life hacker . com/why-you-should-care-the retirement-crisis-even-I-1736381655](https://lifehacker.com/why-you-should-care-about-the-retirement-crisis-even-i-1736381655)
+> 原文：<https://lifehacker.com/why-you-should-care-about-the-retirement-crisis-even-i-1736381655>
 
 没有人愿意工作到他们死去的那一天。我们大多数人都希望有足够的积蓄来度过生命中的最后几年，去旅行，放松，和我们爱的人在一起——而不是工作和努力支付账单。然而，可悲的是，很多人都处在这种情况下。
 

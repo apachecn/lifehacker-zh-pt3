@@ -1,6 +1,6 @@
 # 已经让孩子们感到无聊了
 
-> 原文:[https://lifehacker.com/let-kids-be-bored-already-1796648947](https://lifehacker.com/let-kids-be-bored-already-1796648947)
+> 原文：<https://lifehacker.com/let-kids-be-bored-already-1796648947>
 
 每个父母都不喜欢从他们的孩子那里听到可怕的“我很无聊”。一种自然的本能可能是填满他们的时间表，但是无聊有很多好处。《幸福轨迹*[*的作者艾玛·塞普帕拉写了关于*](http://amzn.to/2t2LWgh) *[父母给孩子的坏建议](https://qz.com/1021749/a-leading-happiness-researcher-says-were-giving-our-kids-bad-advice-about-how-to-succeed-in-life/)* *，比如“保持忙碌”她建议鼓励你的孩子什么也不做，尽情享受。**
 

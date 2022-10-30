@@ -1,6 +1,6 @@
 # 如何假装你读过一本书
 
-> 原文:[https://life hacker . com/how-to-假装你读过一本书-1796228206](https://lifehacker.com/how-to-pretend-youve-read-a-book-1796228206)
+> 原文：<https://lifehacker.com/how-to-pretend-youve-read-a-book-1796228206>
 
 我们现在可能正处于巅峰时期，但我们已经在巅峰时期阅读了至少一个世纪，如果你喜欢阅读，你不可能读完所有你想读的书，更不用说浪费时间去读那些你不喜欢的书了。如果你的读书会挑了个没用的，或者你爸爸坚持要你读 300 页来证实他的政治观点，或者 [你得做个诺贝尔演讲](http://www.slate.com/articles/arts/culturebox/2017/06/did_bob_dylan_take_from_sparknotes_for_his_nobel_lecture.html) 你会怎么做？你假装读过这本书。
 

@@ -1,6 +1,6 @@
 # 在煮什么？你怎样吃早餐？
 
-> 原文:[https://life hacker . com/whats-cooking-how-you-breakfast-1794805854](https://lifehacker.com/whats-cooking-how-do-you-breakfast-1794805854)
+> 原文：<https://lifehacker.com/whats-cooking-how-do-you-breakfast-1794805854>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，每周一次的公开帖，在这里你可以分享你对所有可食用的东西的绝妙想法、建议、食谱和意见。今天我想谈谈早餐，包括你吃了什么，吃了多少，以及你认为这顿饭实际上有多重要。
 

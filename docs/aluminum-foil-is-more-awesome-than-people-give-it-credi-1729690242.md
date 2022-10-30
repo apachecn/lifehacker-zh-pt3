@@ -1,6 +1,6 @@
 # 铝箔比人们想象的更棒
 
-> 原文:[https://life hacker . com/铝箔比人们给它的东西更棒 credi-1729690242](https://lifehacker.com/aluminum-foil-is-more-awesome-than-people-give-it-credi-1729690242)
+> 原文：<https://lifehacker.com/aluminum-foil-is-more-awesome-than-people-give-it-credi-1729690242>
 
 铝箔是一个非常简单的东西，但是它会引发很多问题，比如“我使用哪一面真的重要吗？、“它实际上是在保护我的思想不受它们的影响吗？”它还可以无限定制，使其成为一款用途广泛的厨房用品。
 

@@ -1,6 +1,6 @@
 # 如何进行足够的锻炼来帮助避免产后抑郁症
 
-> 原文:[https://life hacker . com/how-to-get-just-success-to-help-staff-postp-1797827555](https://lifehacker.com/how-to-get-just-enough-exercise-to-help-stave-off-postp-1797827555)
+> 原文：<https://lifehacker.com/how-to-get-just-enough-exercise-to-help-stave-off-postp-1797827555>
 
 如果你怀孕了或者有了新生儿，你可能会得到很多建议！什么样的婴儿紧身衣最适合襁褓，“昏昏欲睡却又清醒”是什么样子，为什么“睡眠退化”可能是一个为了迷惑你而发明的术语。这里还有一条建议，可能会也可能不会让你感觉更好: [怀孕期间和产后几个月的锻炼有助于抵御产后抑郁症](http://www.reuters.com/article/us-health-fitness-postpartum-depression-idUSKBN1971UM) 。它甚至减少了那些抑郁程度不足以满足 PPD 诊断标准的女性的抑郁。
 

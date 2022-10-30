@@ -1,6 +1,6 @@
 # 这个网站告诉你在热门城市度假最便宜的日子
 
-> 原文:[https://life hacker . com/this-site-show-you-the-chief-days-to-vacation-in-po-1819038004](https://lifehacker.com/this-site-shows-you-the-cheapest-days-to-vacation-in-po-1819038004)
+> 原文：<https://lifehacker.com/this-site-shows-you-the-cheapest-days-to-vacation-in-po-1819038004>
 
 在过去的两年里，我的两个密友去意大利度过了三次一至两周的假期。乍一看，他们的多次欧洲度假让他们看起来像是突然获得了大量现金。事实证明，关键在于他们旅行的时间:在淡季。
 

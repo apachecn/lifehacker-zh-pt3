@@ -1,6 +1,6 @@
 # Hoont 室内驱虫器将害虫赶出你的家(并把它们挡在外面)
 
-> 原文:[https://life hacker . com/the-hoont-indoor-pest-repeller-drives-pest-out-of-your-1736781281](https://lifehacker.com/the-hoont-indoor-pest-repeller-drives-pests-out-of-your-1736781281)
+> 原文：<https://lifehacker.com/the-hoont-indoor-pest-repeller-drives-pests-out-of-your-1736781281>
 
 不管你住在乡村、城市还是郊区，你都有可能在你的生活空间里与各种各样的害虫战斗。我已经尝试了书中的每一种害虫控制技巧，到目前为止，最容易和最简单的工具就是这个电磁和超声波插件。
 

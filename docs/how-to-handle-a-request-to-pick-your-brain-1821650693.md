@@ -1,6 +1,6 @@
 # 如何处理“向你请教”的请求
 
-> 原文:[https://life hacker . com/how-to-hand-a-request-to-pick-your brain-1821650693](https://lifehacker.com/how-to-handle-a-request-to-pick-your-brain-1821650693)
+> 原文：<https://lifehacker.com/how-to-handle-a-request-to-pick-your-brain-1821650693>
 
 我们已经讨论了如何询问，或者不询问免费的专业建议:不要说“我能向你请教吗？” 和 [做出具体的、现实的要求](https://lifehacker.com/how-to-ask-for-advice-over-email-1796107956) 。但是当你坐在小小的咖啡桌的另一边时，不妨听听 Quartz 关于如何开动脑筋的建议。
 

@@ -1,6 +1,6 @@
 # 我如何用死人的告密者来让自己负责
 
-> 原文:[https://life hacker . com/how-I-keep-I-self-accountable-using-dead-man-s-snick-1785949377](https://lifehacker.com/how-i-keep-myself-accountable-using-dead-man-s-snitch-1785949377)
+> 原文：<https://lifehacker.com/how-i-keep-myself-accountable-using-dead-man-s-snitch-1785949377>
 
 说到要完成的事情，我是一个列清单的人，以至于我的清单上都有清单。但是如果我忘记了一项任务，谁来让我负责或者提醒我呢？我从我们的开发者那里获得了一些灵感，用 Todoist，Zapier 和 Dead Man 's Snitch 设置了一个警报。
 

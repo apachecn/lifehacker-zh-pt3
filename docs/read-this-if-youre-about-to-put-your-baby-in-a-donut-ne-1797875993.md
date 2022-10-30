@@ -1,6 +1,6 @@
 # 如果你要把你的宝宝放在一个甜甜圈颈浮里，请阅读这篇文章
 
-> 原文:[https://life hacker . com/read-this-if-you-to-put-you-the-baby in-a-donut-ne-1797875993](https://lifehacker.com/read-this-if-youre-about-to-put-your-baby-in-a-donut-ne-1797875993)
+> 原文：<https://lifehacker.com/read-this-if-youre-about-to-put-your-baby-in-a-donut-ne-1797875993>
 
 颈浮是婴儿世界的充气天鹅。在 Instagram 上，你可以发现 [的婴儿在他们](https://www.instagram.com/explore/tags/neckfloat/) (没有拉克鲁瓦的罐头)里睡觉。有点令人毛骨悚然，但大部分是可爱的。
 

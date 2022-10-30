@@ -1,6 +1,6 @@
 # 随着这些应召响应的军事节奏跑得更快
 
-> 原文:[https://life hacker . com/run-strong-to-these-call-and-response-military-cadenc-1829505903](https://lifehacker.com/run-stronger-to-these-call-and-response-military-cadenc-1829505903)
+> 原文：<https://lifehacker.com/run-stronger-to-these-call-and-response-military-cadenc-1829505903>
 
 晨跑可能会很艰难，但是通过团队合作、友情和对死亡的欢快歌唱来度过它是有帮助的。幸运的是，所有你喜欢的流媒体服务上都有军事跑步节奏。
 

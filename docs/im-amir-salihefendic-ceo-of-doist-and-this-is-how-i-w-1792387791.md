@@ -1,6 +1,6 @@
 # 我是 Amir Salihefendic，Doist 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Amir-salihefendic-CEO-of-doist-and-this-is-how-I-w-1792387791](https://lifehacker.com/im-amir-salihefendic-ceo-of-doist-and-this-is-how-i-w-1792387791)
+> 原文：<https://lifehacker.com/im-amir-salihefendic-ceo-of-doist-and-this-is-how-i-w-1792387791>
 
 Todoist 是待办事项列表管理器的老对手，近十年来帮助人们将工作分成可管理的任务。它已经发展成为一个跨平台的工具，可以用于协作和项目管理，但它的诞生仅仅是因为 Amir Salihefendic 需要一种方法来跟踪他的工作。
 

@@ -1,6 +1,6 @@
 # 毅力和毅力在你的健康、工作和生活中的重要性
 
-> 原文:[https://life hacker . com/the-importance-of-grit and-persistence-in-your health-1774513441](https://lifehacker.com/the-importance-of-grit-and-perseverance-in-your-health-1774513441)
+> 原文：<https://lifehacker.com/the-importance-of-grit-and-perseverance-in-your-health-1774513441>
 
 你有没有想过是什么让一个人成为优秀的运动员？还是好领导？还是一个好家长？为什么有的人完成了目标，有的人却失败了？有什么区别？心理韧性。
 

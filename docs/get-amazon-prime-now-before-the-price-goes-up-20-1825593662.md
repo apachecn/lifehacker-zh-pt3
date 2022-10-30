@@ -1,6 +1,6 @@
 # 在价格上涨 20 美元之前，立即购买亚马逊 Prime
 
-> 原文:[https://life hacker . com/get-Amazon-prime-now-before-the-price-up-20-1825593662](https://lifehacker.com/get-amazon-prime-now-before-the-price-goes-up-20-1825593662)
+> 原文：<https://lifehacker.com/get-amazon-prime-now-before-the-price-goes-up-20-1825593662>
 
 如果你是这个国家还没有亚马逊 Prime 的七个人之一，你可能要快点行动了——每年服务的费用增加了 20 美元，达到每年 119 美元。
 

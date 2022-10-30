@@ -1,6 +1,6 @@
 # 如何在自己的网站上分享朋友的 Instagram 故事
 
-> 原文:[https://life hacker . com/how-to-share-a-friends-insta gram-story-in-your-own-1826682742](https://lifehacker.com/how-to-share-a-friends-instagram-story-in-your-own-1826682742)
+> 原文：<https://lifehacker.com/how-to-share-a-friends-instagram-story-in-your-own-1826682742>
 
 当你在某人的 Instagram 故事中被标记时，你总是会在 Instagram 中收到通知，让你知道。本周，这款应用为你增加了另一种与提及互动的方式:你可以 [在自己的故事](https://instagram-press.com/blog/2018/06/07/introducing-mention-sharing/) 中重新分享。
 

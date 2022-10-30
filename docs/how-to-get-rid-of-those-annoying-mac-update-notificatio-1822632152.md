@@ -1,6 +1,6 @@
 # 如何摆脱那些烦人的 Mac 更新通知
 
-> 原文:[https://life hacker . com/how-to-摆脱那些烦人的 MAC-update-notificatio-1822632152](https://lifehacker.com/how-to-get-rid-of-those-annoying-mac-update-notificatio-1822632152)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-those-annoying-mac-update-notificatio-1822632152>
 
 [软件更新](https://lifehacker.com/how-to-update-software-for-beginners-5802139) 通常是好事。他们可以为您正在使用的任何设备带来新的功能和重要的安全更新，而您只需付出很少的努力。然而，如果你有一台 [Mac 电脑](https://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836) ，你可能厌倦了每天在你的电脑上看到同样的“更新可用”通知弹出窗口。
 

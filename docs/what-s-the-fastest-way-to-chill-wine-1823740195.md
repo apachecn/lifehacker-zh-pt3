@@ -1,6 +1,6 @@
 # 冷冻葡萄酒的最快方法是什么？
 
-> 原文:[https://the take out . com/what-s-the-fast-way-chill-wine-1823740195](https://thetakeout.com/what-s-the-fastest-way-to-chill-wine-1823740195)
+> 原文：<https://thetakeout.com/what-s-the-fastest-way-to-chill-wine-1823740195>
 
 我有蚊蚋般的耐心，也是白酒迷。就像当我想喝未发酵的夏敦埃酒时，我现在就要。令人沮丧的是，夏敦埃酒通常在室温下仍然放在酒架上。还有别人过来带没冰镇的酒怎么办？在这期间你到底要喝什么？红色？疯狂。此外，由于我经常注意力不集中，我也是那种把香槟放在冰箱里，然后就忘了的人，结果往往是灾难性的。
 

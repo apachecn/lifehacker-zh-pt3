@@ -1,6 +1,6 @@
 # 以下是特朗普想要从联邦预算中削减的部分
 
-> 原文:[https://life hacker . com/heres-what-trump-want-to-cut-from-the-federal-budget-1822948637](https://lifehacker.com/heres-what-trump-wants-to-cut-from-the-federal-budget-1822948637)
+> 原文：<https://lifehacker.com/heres-what-trump-wants-to-cut-from-the-federal-budget-1822948637>
 
 特朗普总统 2019 财年的预算昨天公布，其中包括大幅削减国内项目——包括 [医疗保险、医疗补助](https://lifehacker.com/trump-is-coming-for-medicare-medicaid-and-the-aca-1822932045) 和社会保障——同时呼吁增加军事支出和其他“安全”措施。
 

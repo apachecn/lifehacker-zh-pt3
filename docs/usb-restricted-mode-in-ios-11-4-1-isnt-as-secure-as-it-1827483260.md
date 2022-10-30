@@ -1,6 +1,6 @@
 # iOS 11.4.1 中的 USB 限制模式并不像看起来那么安全
 
-> 原文:[https://life hacker . com/USB-restricted-mode-in-IOs-11-4-1-isn-as-secure-as-it-1827483260](https://lifehacker.com/usb-restricted-mode-in-ios-11-4-1-isnt-as-secure-as-it-1827483260)
+> 原文：<https://lifehacker.com/usb-restricted-mode-in-ios-11-4-1-isnt-as-secure-as-it-1827483260>
 
 “啊哈！”你心里想。“苹果终于让警察看不到我被没收的 iPhone 上有什么了。”
 

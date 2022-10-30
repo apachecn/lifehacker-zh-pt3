@@ -1,6 +1,6 @@
 # 慰问悲伤的孩子，因为他们也需要他们
 
-> 原文:[https://life hacker . com/give-songments-to-breaking-kids-因为他们需要 1797407851](https://lifehacker.com/give-condolences-to-grieving-kids-because-they-need-the-1797407851)
+> 原文：<https://lifehacker.com/give-condolences-to-grieving-kids-because-they-need-the-1797407851>
 
 让我们面对现实吧。我们在 [帮助悲伤的朋友](https://lifehacker.com/when-a-friend-is-grieving-offer-specific-ways-you-can-1796831786) 时并不总是令人敬畏，但当涉及到支持失去至亲至爱的孩子时，我们往往会更加紧张和笨拙。他们很小，看起来很脆弱，很难知道他们理解了多少(剧透:比我们意识到的要多得多)。因此，家长们发现，许多成年人避免向孩子说“对不起”或以任何方式承认他们的痛苦损失。在**《华盛顿邮报》*中，詹妮弗·班南写了她 6 岁的儿子赛普拉斯 [因癌症](https://www.washingtonpost.com/news/parenting/wp/2017/07/25/grieving-children-need-your-im-sorry-too/) 失去父亲时发生的事情。*
 

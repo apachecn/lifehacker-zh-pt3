@@ -1,6 +1,6 @@
 # PSA:现在就注册健康保险
 
-> 原文:[https://life hacker . com/PSA-sign-up-for-health-insurance-now-1821047491](https://lifehacker.com/psa-sign-up-for-health-insurance-now-1821047491)
+> 原文：<https://lifehacker.com/psa-sign-up-for-health-insurance-now-1821047491>
 
 healthcare.gov 的开放注册期将于 12 月 15 日结束，本届政府希望你能忘记这一切。是的，患者保护与平价医疗法案仍然完全有效，所以趁它还存在的时候好好利用吧。如果你一直在拖延，以下是你需要知道的:
 

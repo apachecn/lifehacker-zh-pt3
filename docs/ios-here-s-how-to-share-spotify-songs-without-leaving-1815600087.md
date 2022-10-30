@@ -1,6 +1,6 @@
 # 以下是不离开 iMessage 分享 Spotify 歌曲的方法
 
-> 原文:[https://life hacker . com/IOs-here-s-how-to-share-Spotify-songs-without-leave-1815600087](https://lifehacker.com/ios-here-s-how-to-share-spotify-songs-without-leaving-1815600087)
+> 原文：<https://lifehacker.com/ios-here-s-how-to-share-spotify-songs-without-leaving-1815600087>
 
 iOS: Spotify 的最新更新 [增加了 iMessage 支持](https://techcrunch.com/2017/09/14/spotify-launches-an-imessage-app-for-texting-songs-to-friends/) ，在文字对话中更容易与好友分享曲目。最重要的是，发送者和接收者都可以在不打开应用程序的情况下播放共享的曲目——至少在你想听整首歌之前是这样。
 

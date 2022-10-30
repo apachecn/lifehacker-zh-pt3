@@ -1,6 +1,6 @@
 # 如何与伴侣分担家务杂事的“精神负担”
 
-> 原文:[https://life hacker . com/how-to-share the-mental-load of the-part-1795657878](https://lifehacker.com/how-to-share-the-mental-load-of-chores-with-your-part-1795657878)
+> 原文：<https://lifehacker.com/how-to-share-the-mental-load-of-chores-with-your-part-1795657878>
 
 我和妻子尽量平均分配家务:她做饭，我洗碗。她买杂货，我洗衣服。我最容易做的家务是摆桌子。大约需要一分钟，她每次都要提醒我。
 

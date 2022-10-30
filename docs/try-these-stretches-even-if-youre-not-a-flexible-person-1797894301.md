@@ -1,6 +1,6 @@
 # 即使你不是一个灵活的人，也可以尝试这些伸展运动
 
-> 原文:[https://life hacker . com/try-these-stretches-even-if-you-not-a-flexible-person-1797894301](https://lifehacker.com/try-these-stretches-even-if-youre-not-a-flexible-person-1797894301)
+> 原文：<https://lifehacker.com/try-these-stretches-even-if-youre-not-a-flexible-person-1797894301>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video--VS6jgTTYAQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video--VS6jgTTYAQ&start=0) 
 

@@ -1,6 +1,6 @@
 # 日本第一夫人是你避免尴尬对话的新榜样
 
-> 原文:[https://life hacker . com/the-Japanese-first-lady-is-your-new-role-model for-avoi-1797093334](https://lifehacker.com/the-japanese-first-lady-is-your-new-role-model-for-avoi-1797093334)
+> 原文：<https://lifehacker.com/the-japanese-first-lady-is-your-new-role-model-for-avoi-1797093334>
 
 在你人生的某个时刻，你会有一次尴尬的谈话。聚会、社交活动、 [与总统的晚餐](http://theslot.jezebel.com/the-most-batshit-excerpts-from-that-trump-nyt-interview-1797086287) 你假装不会说英语的地方，它们都是雷区，潜在地散落着 [尴尬的停顿](http://lifehacker.com/how-to-avoid-the-most-common-awkward-conversation-mista-1257095824) ，令人遗憾的笑话，以及简单的 [侵入性的闲聊](http://lifehacker.com/the-small-talk-questions-you-should-never-ask-1795578480) 。你不必忍受糟糕谈话的打击。一些行之有效的方法已经存在，不管是打扰朋友还是下载应用程序:
 

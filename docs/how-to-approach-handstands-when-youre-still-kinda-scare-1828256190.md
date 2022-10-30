@@ -1,6 +1,6 @@
 # 当你还有点害怕倒立的时候，如何对待倒立
 
-> 原文:[https://life hacker . com/how-to-approach-handstands-when-you-still-kinda-scare-1828256190](https://lifehacker.com/how-to-approach-handstands-when-youre-still-kinda-scare-1828256190)
+> 原文：<https://lifehacker.com/how-to-approach-handstands-when-youre-still-kinda-scare-1828256190>
 
 上周，当我们发起倒立挑战 时，我承认我不太喜欢倒立——但我希望改变这种情况。昨天我第一次靠墙做了一个倒立，感觉很强壮，很稳定。我会告诉你一些秘密。
 

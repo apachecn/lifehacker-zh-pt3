@@ -1,6 +1,6 @@
 # Signal 和 Whatsapp 的私密性取决于你与之交谈的人
 
-> 原文:[https://life hacker . com/anonymous-chat-apps-like-signal-and-whatsapp-are-only-a-1826678815](https://lifehacker.com/anonymous-chat-apps-like-signal-and-whatsapp-are-only-a-1826678815)
+> 原文：<https://lifehacker.com/anonymous-chat-apps-like-signal-and-whatsapp-are-only-a-1826678815>
 
 在我现在所在的这部剧里，有一个场景是，巴黎圣母院不太讨人喜欢的副主教克劳德·弗罗洛告诉他的养子卡西莫多，“需要两个人才能交流。”但不仅仅是驼背忘记了这个教训——我很惊讶，但不是那么惊讶，在日常生活中忽视这个事实是多么容易。
 

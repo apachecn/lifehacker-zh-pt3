@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 29 日至 8 月 5 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-29-to-8-5-1784869784](https://lifehacker.com/this-weeks-most-popular-posts-july-29th-to-august-5th-1784869784)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-29th-to-august-5th-1784869784>
 
 本周，微软对 Windows 10 进行了重大更新，我们探索了所有很酷的新功能。我们还尝试用益智“智能”药物提升自己，比较两位总统候选人的网络安全平台，与作家玛丽·罗奇交谈，等等。这里回顾一下。
 

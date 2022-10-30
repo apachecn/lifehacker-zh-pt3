@@ -1,6 +1,6 @@
 # 如果你要去日本旅游，Konbinis 是你的新宠
 
-> 原文:[https://life hacker . com/if-you-re-visiting-Japan-konbinis-are-you-new-favor-1823583665](https://lifehacker.com/if-you-re-visiting-japan-konbinis-are-your-new-favor-1823583665)
+> 原文：<https://lifehacker.com/if-you-re-visiting-japan-konbinis-are-your-new-favor-1823583665>
 
 旅行者，让我给你一个在日本旅游最有用的建议:“konbini”就是生活。当你探索东京灯火通明的走廊时，或者被京都寺庙和神社的宁静所吞没时，这是一个一站式商店，几乎可以买到像你这样的大眼睛游客可能需要的任何东西。
 

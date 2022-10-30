@@ -1,6 +1,6 @@
 # 应对孩子晕车的每一件事
 
-> 原文:[https://life hacker . com/every-single-things-your-kids-car-1796604723](https://lifehacker.com/every-single-thing-you-need-to-deal-with-your-kids-car-1796604723)
+> 原文：<https://lifehacker.com/every-single-thing-you-need-to-deal-with-your-kids-car-1796604723>
 
 我来自西弗吉尼亚州，在那里，从任何地方到任何地方，你都需要在蜿蜒的山路上开车，这条路让几代孩子都在后座上呕吐。在最近一次回家看我父母的路上，我们下了高速公路，孩子们都很好。当我们驶过安蒂特姆战场时，我的孩子们开始变绿，我的丈夫在座位上转过身来，在乘客座位后面的孩子面前拿着一个包。我们刚刚穿过州界，两个孩子就开始了一场奢侈的呕吐比赛，覆盖了他们，他们的汽车座椅，以及汽车的很大一部分。
 

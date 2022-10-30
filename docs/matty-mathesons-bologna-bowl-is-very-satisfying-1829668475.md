@@ -1,6 +1,6 @@
 # 马蒂·马西森的博洛尼亚碗非常令人满意
 
-> 原文:[https://life hacker . com/Matty-matthesons-bologna-bowl-is-very-satisfaction-1829668475](https://lifehacker.com/matty-mathesons-bologna-bowl-is-very-satisfying-1829668475)
+> 原文：<https://lifehacker.com/matty-mathesons-bologna-bowl-is-very-satisfying-1829668475>
 
 我的审美——无论是关于食物还是总体而言——可以用“好色的浣熊”来形容虽然我以弄乱品尝菜单而闻名，但我对美国奶酪和博洛尼亚等加工美食的热爱是真诚的，并将继续支持具有类似倾向的厨师和美食人士。
 

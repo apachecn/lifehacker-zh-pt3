@@ -1,6 +1,6 @@
 # 为什么快乐的人会有外遇？
 
-> 原文:[https://life hacker . com/why-do-happy-people-have-affairs-1819318209](https://lifehacker.com/why-do-happy-people-have-affairs-1819318209)
+> 原文：<https://lifehacker.com/why-do-happy-people-have-affairs-1819318209>
 
 在我们关于不忠的四集系列 的第一集 [中，关系和性专家](https://lifehacker.com/why-infidelity-is-about-way-more-than-just-sex-1819222047) [埃丝特·佩雷尔](https://www.estherperel.com/) 审视了我们如何定义不忠，以及这些年来我们对出轨的定义是如何演变的。(佩雷尔也是新书《国家大事:反思不忠 *》的作者)。)*
 

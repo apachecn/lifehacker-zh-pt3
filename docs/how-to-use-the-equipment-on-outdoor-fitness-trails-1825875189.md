@@ -1,6 +1,6 @@
 # 如何在户外健身路径上使用设备
 
-> 原文:[https://life hacker . com/how-to-use-the-equipment-on-outdoor-fitness-trails-1825875189](https://lifehacker.com/how-to-use-the-equipment-on-outdoor-fitness-trails-1825875189)
+> 原文：<https://lifehacker.com/how-to-use-the-equipment-on-outdoor-fitness-trails-1825875189>
 
 如果你冒险出去 [寻找健身路径](https://vitals.lifehacker.com/find-a-fitness-trail-and-exercise-like-its-1992-1825718545#_ga=2.65913134.1648692593.1525751889-1283764083.1512801414) 参加 [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) ，你可能会注意到一些神秘的未标记设备。你打算怎么处理这个靠近地面的酒吧？这个倾斜的长椅？以下是你的答案。
 

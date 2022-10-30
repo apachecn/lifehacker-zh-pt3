@@ -1,6 +1,6 @@
 # 实时跟踪每个国家获得了多少枚奥运奖牌
 
-> 原文:[https://life hacker . com/how-to-track-how-number-Olympic-damentals-each-country-has-w-1822904594](https://lifehacker.com/how-to-track-how-many-olympic-medals-each-country-has-w-1822904594)
+> 原文：<https://lifehacker.com/how-to-track-how-many-olympic-medals-each-country-has-w-1822904594>
 
 昨天，2018 年冬奥会的第一枚奖牌在韩国平昌颁发。
 

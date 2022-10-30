@@ -1,6 +1,6 @@
 # 在雨中穿人字拖
 
-> 原文:[https://life hacker . com/wear-flip-flops-in-the-rain-1788090026](https://lifehacker.com/wear-flip-flops-in-the-rain-1788090026)
+> 原文：<https://lifehacker.com/wear-flip-flops-in-the-rain-1788090026>
 
 现在是北美的秋天，这意味着你住的地方可能要下雨了，或者刚刚下完雨，或者你正在外面雨中读这篇博客，而你的手机已经湿透了。没有人喜欢全身湿透！那是给鱼的。避免潮湿是人类发明雨衣、雨伞和鳄鱼的原因。然而，今天我真的要对你说:在雨中穿人字拖。
 

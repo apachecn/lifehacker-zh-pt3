@@ -1,6 +1,6 @@
 # 当你大材小用时，招聘经理会问什么
 
-> 原文:[https://life hacker . com/what-recruiting-managers-ask-when-you-conditioned-for-a-1788159485](https://lifehacker.com/what-hiring-managers-ask-when-youre-overqualified-for-a-1788159485)
+> 原文：<https://lifehacker.com/what-hiring-managers-ask-when-youre-overqualified-for-a-1788159485>
 
 有多少次你看到一份工作清单会让你说，“哇，这看起来很有趣，但我太有经验了？”这种情况过去经常发生在我身上——尤其是当我开始在销售组织中晋升时。
 

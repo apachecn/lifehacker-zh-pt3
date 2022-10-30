@@ -1,6 +1,6 @@
 # 告诉自己“不”不是你的工作
 
-> 原文:[https://life hacker . com/it-s-not-your ' s-job-to-tell-your-your-your-noi-1786956355](https://lifehacker.com/it-s-not-your-job-to-tell-yourself-no-1786956355)
+> 原文：<https://lifehacker.com/it-s-not-your-job-to-tell-yourself-no-1786956355>
 
 你有没有告诉过自己没有？我确实有。我说的是像“为什么要申请呢？我怀疑学校会不会接受我，”或者“这个商业想法不会成功的。我太老了/太年轻了/太没有经验了。”
 

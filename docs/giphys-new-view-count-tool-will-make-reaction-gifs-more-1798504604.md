@@ -1,6 +1,6 @@
 # Giphy 的新视图计数工具将使反应 gif 更加平淡无奇
 
-> 原文:[https://life hacker . com/giphys-new-view-count-tool-will-make-reaction-gifs-more-1798504604](https://lifehacker.com/giphys-new-view-count-tool-will-make-reaction-gifs-more-1798504604)
+> 原文：<https://lifehacker.com/giphys-new-view-count-tool-will-make-reaction-gifs-more-1798504604>
 
 我喜欢的东西现在流行，那是不好的。多亏了像[【Giphy】](https://giphy.com/)这样的 GIF 数据库，反应 GIF，曾经是一种谨慎和精心制作的艺术形式，现在是一个平淡无奇的大众市场，由少数得到批准的名人面孔主导。今天，Giphy 通过 [增加来自“官方艺术家或合作伙伴”的 gif 的浏览量，加速了媒体的平庸化](https://medium.com/@giphy/introducing-gif-view-counts-e3ec1899e7bd)
 

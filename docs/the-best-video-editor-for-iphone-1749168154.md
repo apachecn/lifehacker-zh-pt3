@@ -1,6 +1,6 @@
 # iPhone 的最佳视频编辑器
 
-> 原文:[https://life hacker . com/the-best-video-editor-for-iphone-1749168154](https://lifehacker.com/the-best-video-editor-for-iphone-1749168154)
+> 原文：<https://lifehacker.com/the-best-video-editor-for-iphone-1749168154>
 
 iPhone 并不缺少视频编辑应用。事实上，有这么多，几乎不可能从中选择。但是当谈到功能和可用性在可能太小而不适合视频编辑的 iPhone 屏幕上的正确结合时，我们喜欢 Splice。
 

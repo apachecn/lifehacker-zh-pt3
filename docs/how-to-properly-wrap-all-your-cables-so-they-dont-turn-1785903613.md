@@ -1,6 +1,6 @@
 # 如何正确地包好你所有的电缆，使它们不会乱成一团
 
-> 原文:[https://gizmodo . com/how-to-right-wrap-all-your-cables-so then-don-turn-1785903613](https://gizmodo.com/how-to-properly-wrap-all-your-cables-so-they-dont-turn-1785903613)
+> 原文：<https://gizmodo.com/how-to-properly-wrap-all-your-cables-so-they-dont-turn-1785903613>
 
 你知道吗，有一种特殊的方法可以将你的线缆 包裹起来，这种方法不仅可以让线缆保持整洁，还可以让它们在你准备使用时完美展开，不会缠结在一起。这是视频、电影和音乐行业储存线缆的实际方式，也有助于延长所有线缆的寿命。
 

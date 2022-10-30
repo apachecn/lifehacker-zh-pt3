@@ -1,6 +1,6 @@
 # 如何延迟获取 Windows 10 2018 年 4 月更新
 
-> 原文:[https://life hacker . com/how-to-delay-get-the-windows-2018-04-10-spring-1825643185](https://lifehacker.com/how-to-delay-getting-the-windows-10-april-2018-spring-1825643185)
+> 原文：<https://lifehacker.com/how-to-delay-getting-the-windows-10-april-2018-spring-1825643185>
 
 微软将于明天正式向电脑推出 Windows 10 2018 年 4 月更新，之前称为 Spring Creators 更新。虽然这可能意味着你会第一时间得到它，但该公司通常会缓慢推出这些更新，这意味着你可能还需要等待一段时间。如果你现在就渴望得到它，这里有一个如何实现的纲要 。如果你不想马上更新，那么你也可以推迟更新到你的电脑上。
 

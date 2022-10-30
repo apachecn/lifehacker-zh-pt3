@@ -1,6 +1,6 @@
 # 积极思维的局限性
 
-> 原文:[https://life hacker . com/the-limits-of-positive-thinking-1780773724](https://lifehacker.com/the-limitations-of-positive-thinking-1780773724)
+> 原文：<https://lifehacker.com/the-limitations-of-positive-thinking-1780773724>
 
 积极思考和努力追求幸福是自我提升的共同目标。似乎它们在公司文化中也变得越来越普遍，因为员工幸福、客户幸福和对生产力的关注出现在更多的公司文化文件和使命陈述中。
 

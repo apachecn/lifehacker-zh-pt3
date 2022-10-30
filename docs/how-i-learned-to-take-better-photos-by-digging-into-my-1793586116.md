@@ -1,6 +1,6 @@
 # 我通过钻研相机的曝光设置学会了拍出更好的照片
 
-> 原文:[https://life hacker . com/how-I-learn-to-take-better-photos-by-digging-my-1793586116](https://lifehacker.com/how-i-learned-to-take-better-photos-by-digging-into-my-1793586116)
+> 原文：<https://lifehacker.com/how-i-learned-to-take-better-photos-by-digging-into-my-1793586116>
 
 我把手机推到丈夫面前，给他看我拍的纽约地平线 T3 的T1】照片。“挺好的吧？”我问，太自豪了，因为，坦白地说，这并不好。“嗯，”他说。“想象一下，如果你知道自己在做什么，那该有多好。”我翻了个白眼，但还是接受了他的提议，教我如何曝光。 
 

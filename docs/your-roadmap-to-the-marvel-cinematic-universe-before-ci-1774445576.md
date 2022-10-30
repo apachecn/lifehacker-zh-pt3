@@ -1,6 +1,6 @@
 # 内战前你去漫威电影宇宙的路线图
 
-> 原文:[https://life hacker . com/your-roadmap-to-the marvel-cinematic-universe-before-ci-1774445576](https://lifehacker.com/your-roadmap-to-the-marvel-cinematic-universe-before-ci-1774445576)
+> 原文：<https://lifehacker.com/your-roadmap-to-the-marvel-cinematic-universe-before-ci-1774445576>
 
 本周五， [*美国队长:内战*](http://www.imdb.com/title/tt3498820/) 在美国各大影院上映。这是漫威电影宇宙近一百亿美元的第十三部电影。这也是钢铁侠和美国队长之间跨越近十年的故事的高潮。以下是如何在摊牌开始前赶上。
 

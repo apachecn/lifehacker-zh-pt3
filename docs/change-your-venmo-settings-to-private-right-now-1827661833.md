@@ -1,6 +1,6 @@
 # 立即将您的 Venmo 设置更改为私人
 
-> 原文:[https://life hacker . com/change-your-venmo-settings-to-private-right-now-1827661833](https://lifehacker.com/change-your-venmo-settings-to-private-right-now-1827661833)
+> 原文：<https://lifehacker.com/change-your-venmo-settings-to-private-right-now-1827661833>
 
 如果你使用 Venmo 并且没有改变你的默认隐私设置，你可能要重新考虑一下了——因为几乎任何人都很容易知道你在做什么，如果你没有改变，也可以跟踪你的交易。
 

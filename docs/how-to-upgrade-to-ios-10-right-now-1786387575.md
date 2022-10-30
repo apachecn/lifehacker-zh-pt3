@@ -1,6 +1,6 @@
 # 如何马上升级到 iOS 10
 
-> 原文:[https://life hacker . com/how-to-upgrade-to-IOs-10-right-now-1786387575](https://lifehacker.com/how-to-upgrade-to-ios-10-right-now-1786387575)
+> 原文：<https://lifehacker.com/how-to-upgrade-to-ios-10-right-now-1786387575>
 
 [iOS 10 下周二就要到了](http://lifehacker.com/everything-apple-announced-today-at-their-iphone-7-even-1786332079) ，不过如果你有少年的耐心，不用担心，马上升级到 iOS 10 还是有可能的。
 

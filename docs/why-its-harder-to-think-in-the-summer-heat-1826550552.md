@@ -1,6 +1,6 @@
 # 为什么在炎热的夏天更难思考
 
-> 原文:[https://life hacker . com/why-its-why-this-hard-this-this-this-this-this-think-the-summer-heat-1826550552](https://lifehacker.com/why-its-harder-to-think-in-the-summer-heat-1826550552)
+> 原文：<https://lifehacker.com/why-its-harder-to-think-in-the-summer-heat-1826550552>
 
 听着，夏天很难完成工作。窗户的另一边阳光明媚，你总是有一两个朋友在 Instagram 上发布海滩照片，除非空调正对着你吹，否则你能想到的就是你的下一杯冰镇饮料来自哪里。
 

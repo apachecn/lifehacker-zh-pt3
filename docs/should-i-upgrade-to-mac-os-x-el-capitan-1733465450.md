@@ -1,6 +1,6 @@
 # 我应该升级到 Mac OS X El Capitan 吗？
 
-> 原文:[https://life hacker . com/should-I-upgrade-to-MAC-OS-x-El-capitan-1733465450](https://lifehacker.com/should-i-upgrade-to-mac-os-x-el-capitan-1733465450)
+> 原文：<https://lifehacker.com/should-i-upgrade-to-mac-os-x-el-capitan-1733465450>
 
 亲爱的生活黑客，
 [OS X El Capitan](https://www.apple.com/osx/elcapitan-preview/) 今天出了。看起来不错，但还是升级，任何升级都有可能变坏。你们一直在用它。你怎么想呢?是准备好黄金时间了，还是我应该等待下一个补丁来修复人们不可避免会发现的 bug？

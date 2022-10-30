@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下播放金球奖
 
-> 原文:[https://life hacker . com/how-to-stream-the golden-globes-without-cable-1821858307](https://lifehacker.com/how-to-stream-the-golden-globes-without-cable-1821858307)
+> 原文：<https://lifehacker.com/how-to-stream-the-golden-globes-without-cable-1821858307>
 
 金球奖就在今晚。该节目由 Seth Myers 主持，从晚上 8 点开始在 NBC 直播，可能会持续到 T2 时间晚上 11 点，这取决于每个人的演讲时间。
 

@@ -1,6 +1,6 @@
 # 如何在这个夏天少浪费塑料
 
-> 原文:[https://life hacker . com/how-to-waste-less-plastic-this-summer-1826260480](https://lifehacker.com/how-to-waste-less-plastic-this-summer-1826260480)
+> 原文：<https://lifehacker.com/how-to-waste-less-plastic-this-summer-1826260480>
 
 在经历了人类历史上悲惨的一年后，你应该用欢乐和庆祝来迎接夏天。但不幸的是，夏天通常伴随着垃圾、塑料垃圾和其他一次性垃圾的爆炸，这些垃圾在剩下的时间里只会让地球窒息，我们已经有一位总统在为我们解决这个问题。
 

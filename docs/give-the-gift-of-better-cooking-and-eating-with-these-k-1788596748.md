@@ -1,6 +1,6 @@
 # 用这些厨房工具打造更好的烹饪和饮食
 
-> 原文:[https://life hacker . com/give-the-give-gift-of-better-cooking-and-eating-with the-things-k-1788596748](https://lifehacker.com/give-the-gift-of-better-cooking-and-eating-with-these-k-1788596748)
+> 原文：<https://lifehacker.com/give-the-gift-of-better-cooking-and-eating-with-these-k-1788596748>
 
 假期很快就要到了，这意味着你需要去购物。如果你清单上的人对烹饪、饮水和饮食很认真，我们有完美的工具和玩具让他们的厨房变得更快乐、更美味。
 

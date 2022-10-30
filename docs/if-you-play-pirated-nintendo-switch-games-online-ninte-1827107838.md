@@ -1,6 +1,6 @@
 # 如果你在网上玩盗版任天堂 Switch 游戏，任天堂会封杀你
 
-> 原文:[https://life hacker . com/if-you-play-盗版-任天堂-switch-games-online-ninte-1827107838](https://lifehacker.com/if-you-play-pirated-nintendo-switch-games-online-ninte-1827107838)
+> 原文：<https://lifehacker.com/if-you-play-pirated-nintendo-switch-games-online-ninte-1827107838>
 
 是的，有一种东西叫做 [免费的午餐](https://lifehacker.com/these-100-restaurants-will-give-you-free-food-on-your-1772840294#_ga=2.217864531.47977805.1529932552-3846207152.1521480874) 。但是如果你破解你的任天堂 Switch 来免费玩盗版游戏，那就要付出的代价:你不能在线玩[](https://arstechnica.com/gaming/2018/06/inside-nintendos-perfect-method-for-detecting-online-switch-piracy/)。
 

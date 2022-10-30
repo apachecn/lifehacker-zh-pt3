@@ -1,6 +1,6 @@
 # 您应该在域名到期前续订
 
-> 原文:[https://life hacker . com/you-should-renew-your-domains-before-they-expire-1796101947](https://lifehacker.com/you-should-renew-your-domains-before-they-expire-1796101947)
+> 原文：<https://lifehacker.com/you-should-renew-your-domains-before-they-expire-1796101947>
 
 由于我认为是某人公司卡的问题，三星忘记更新一个潜在危险的域名，让它被 Anubis Labs 首席技术办公室和 nice guy joo Gou veia 购买。 [据主板](https://motherboard.vice.com/en_us/article/samsung-left-millions-vulnerable-to-hackers-because-it-forgot-to-renew-a-domain) 报道，与三星的 S Suggest 应用“ssuggest.com”相关联的域名似乎被放弃了，给了 Gouveia(或任何黑客)购买它的机会。
 

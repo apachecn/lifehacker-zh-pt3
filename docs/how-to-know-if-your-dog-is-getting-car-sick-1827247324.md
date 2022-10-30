@@ -1,6 +1,6 @@
 # 如何知道你的狗是否晕车
 
-> 原文:[https://life hacker . com/how-to-know-if-your dog-get-car-sick-1827247324](https://lifehacker.com/how-to-know-if-your-dog-is-getting-car-sick-1827247324)
+> 原文：<https://lifehacker.com/how-to-know-if-your-dog-is-getting-car-sick-1827247324>
 
 我的朋友萨拉讲述了一个和她的狗达科塔一起公路旅行的故事，在 14 个小时的车程中，她的哈士奇混血儿晕车，吐了一车。然后，被呕吐物弄得很尴尬，也设法尿了整个车的后部。她的车再也不一样了。
 

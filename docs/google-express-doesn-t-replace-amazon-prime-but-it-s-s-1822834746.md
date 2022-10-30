@@ -1,6 +1,6 @@
 # Google Express 没有取代 Amazon Prime，但它仍然非常有用
 
-> 原文:[https://life hacker . com/Google-express-not-t-replace-Amazon-prime-but-it-s-s-1822834746](https://lifehacker.com/google-express-doesn-t-replace-amazon-prime-but-it-s-s-1822834746)
+> 原文：<https://lifehacker.com/google-express-doesn-t-replace-amazon-prime-but-it-s-s-1822834746>
 
 在亚马逊和谷歌的军备竞赛中，居家者是明显的赢家。(仓库工人……没那么多。)但是谷歌的最新招数 Google Express 完全避开了仓库，直接把你当地商店的订单送到你家。它的运作方式与 Prime 略有不同，即使是在亚马逊最近向杂货领域扩张的情况下。
 

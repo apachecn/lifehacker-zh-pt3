@@ -1,6 +1,6 @@
 # 用推车把你的旧东西送到捐赠中心
 
-> 原文:[https://life hacker . com/use-dolly-to-send-your-old-stuff-a-捐赠中心-1821132016](https://lifehacker.com/use-dolly-to-send-your-old-stuff-to-a-donation-center-1821132016)
+> 原文：<https://lifehacker.com/use-dolly-to-send-your-old-stuff-to-a-donation-center-1821132016>
 
 想要一个快速的方法把你的旧家具或成堆的衣服卖给慈善机构吗？有需要去救世军的床垫？搬家服务 [Dolly](http://dolly.com) 已经准备好出现，装载你的东西，并把它带到你所在城市的一个主要捐赠中心——甚至不需要你一起乘车。
 

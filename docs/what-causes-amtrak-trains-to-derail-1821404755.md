@@ -1,6 +1,6 @@
 # 是什么导致美国国家铁路客运公司火车出轨
 
-> 原文:[https://jalopnik . com/what-causes-Amtrak-trains-to-出轨-1821404755](https://jalopnik.com/what-causes-amtrak-trains-to-derail-1821404755)
+> 原文：<https://jalopnik.com/what-causes-amtrak-trains-to-derail-1821404755>
 
 周一在华盛顿州 5 号州际公路上的场景令人震惊:火车车厢在高速公路上晃来晃去，下面的车辆被碾成碎片，给了 [一个纪念挂绳](https://twitter.com/AlexRozierK5/status/942800188124512257/photo/1) 的幸存者尖叫着离开，而 [不得不踢开窗户逃离](https://jalopnik.com/amtrak-train-derailment-onto-highway-in-tacoma-reported-1821387267) 。一列火车沿着美国国家铁路客运公司的瀑布路线行驶，在莱克伍德和奥林匹亚之间的某个地方，在开始行驶几个小时后，突然终止，这似乎是美国国家铁路客运公司多年来最严重的事故之一。截至下午，伤亡人数为 6 人死亡，超过 75 人住院治疗。
 

@@ -1,6 +1,6 @@
 # 泡菜可以在冰箱里保存多久？
 
-> 原文:[https://the take out . com/我能在冰箱里保存泡菜多久-1823617738](https://thetakeout.com/how-long-can-i-keep-kimchi-in-the-fridge-1823617738)
+> 原文：<https://thetakeout.com/how-long-can-i-keep-kimchi-in-the-fridge-1823617738>
 
 韩国主食泡菜是一种令人惊叹的发酵菜肴，我们最近在许多非韩国应用中看到，如在墨西哥玉米卷或薯条上。但就像酸奶、酪乳或泡菜一样，对于一些似乎依赖于老化的东西，我们不禁想知道:泡菜被震碎后能保存多久？永远？会变坏吗？如果是，你怎么知道？无奈之下，我们问了好几个厨师，都和泡菜有些关系。
 

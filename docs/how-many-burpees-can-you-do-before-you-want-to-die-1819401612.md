@@ -1,6 +1,6 @@
 # 你想死之前能打多少个嗝？
 
-> 原文:[https://life hacker . com/how-much-burpees-can-do-before-you-want-to-die-1819401612](https://lifehacker.com/how-many-burpees-can-you-do-before-you-want-to-die-1819401612)
+> 原文：<https://lifehacker.com/how-many-burpees-can-you-do-before-you-want-to-die-1819401612>
 
 今天是世界 burpee 日，尽管我们很确定这只是一个营销噱头，但我们很好奇:你和可怕的 Burpee 是什么关系？你能做几个？如果这个数字不是零，你想让 T1 做多少？
 

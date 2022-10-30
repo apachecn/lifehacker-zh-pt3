@@ -1,6 +1,6 @@
 # 知道你的星座到底有什么用
 
-> 原文:[https://life hacker . com/what-known-your-astrology-sign-is-actually-used-1826638294](https://lifehacker.com/what-knowing-your-astrological-sign-is-actually-useful-1826638294)
+> 原文：<https://lifehacker.com/what-knowing-your-astrological-sign-is-actually-useful-1826638294>
 
 我不相信占星术，但我知道我的星座。(我是传统系统中的人马座，蛇夫座的 [拘泥于天文学家的](https://io9.gizmodo.com/why-did-your-zodiac-sign-change-we-asked-the-astronome-5733004#_ga=2.157289594.11446851.1528118734-3846207152.1521480874) 。)你也可以从了解自己的经历中受益！只是 [不是奥兹博士认为的](https://gizmodo.com/dr-ozs-latest-health-advice-check-your-horoscope-1826618960#_ga=2.157289594.11446851.1528118734-3846207152.1521480874) 。
 

@@ -1,6 +1,6 @@
 # 最好的便携插线板是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-portable-电源板-1731188649](https://lifehacker.com/whats-the-best-portable-power-strip-1731188649)
+> 原文：<https://lifehacker.com/whats-the-best-portable-power-strip-1731188649>
 
 无论您是在机场、图书馆还是在办公室会议室工作，您都可以使用一些额外的端口来插入您的设备。一个好的便携式电源板会给你(和一个朋友)它们，也许还会给你的手机或平板电脑提供一些 USB 接口。本周，我们想知道哪些是最好的。
 

@@ -1,6 +1,6 @@
 # 我们测试了 iPhone 快速充电，你应该升级你的充电器
 
-> 原文:[https://gizmodo . com/we-tested-iphone-fast-charging-and-you-should-definitel-1820483924](https://gizmodo.com/we-tested-iphone-fast-charging-and-you-should-definitel-1820483924)
+> 原文：<https://gizmodo.com/we-tested-iphone-fast-charging-and-you-should-definitel-1820483924>
 
 你的 iPhone 充电速度比你想象的要快很多。当苹果宣布新的 iPhone 8 和 iPhone X 时，该公司掩盖了一个事实，即其所有三款新手机都能够快速充电——类似于安卓手机多年来一直在做的事情。即使是现在，如果你进入苹果最新手机的 [规格页面](https://www.apple.com/iphone-x/specs/) ，你得到的只是一行字，上面写着快速充电可以在 30 分钟内增加 50%的电量，但如果不拿出放大镜阅读细则的第 9 项，你就不知道实际上应该如何实现这一点。
 

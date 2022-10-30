@@ -1,6 +1,6 @@
 # DipClip 是我们所有番茄酱问题的答案
 
-> 原文:[https://the take out . com/the-dip clip-is-the-answer-to-all-our-番茄酱覆盖-pr-1820880064](https://thetakeout.com/the-dipclip-is-the-answer-to-all-our-ketchup-covered-pr-1820880064)
+> 原文：<https://thetakeout.com/the-dipclip-is-the-answer-to-all-our-ketchup-covered-pr-1820880064>
 
 我吃快餐的次数比我愿意承认的要多。我经常开车——去密歇根拜访我妻子的家人，周末去密尔沃基吃奶酪，或者去看望现在住在芝加哥西南部郊区的家人。
 

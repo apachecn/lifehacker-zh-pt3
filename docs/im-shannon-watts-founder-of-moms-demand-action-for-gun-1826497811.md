@@ -1,6 +1,6 @@
 # 我是香农·沃茨，美国枪支意识母亲要求行动组织的创始人，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-Shannon-watts-founder-of-moms-demand-action-for-gun-1826497811](https://lifehacker.com/im-shannon-watts-founder-of-moms-demand-action-for-gun-1826497811)
+> 原文：<https://lifehacker.com/im-shannon-watts-founder-of-moms-demand-action-for-gun-1826497811>
 
 香农·沃茨是美国妈妈要求枪支意识行动组织的创始人，这是一个致力于减少枪支暴力的草根运动。该组织由遍布美国 50 个州的普通美国人组成，被称为“ [全国步枪协会最可怕的噩梦](https://www.motherjones.com/politics/2014/09/moms-demand-action-guns-madd-shannon-watts-nra/) ”瓦茨和她的活动家同伴们现在正在结束“穿橙色周末”活动，这是一项全国性的活动，旨在表明还有更多工作要做。这位五个孩子的母亲是如何做到的。
 

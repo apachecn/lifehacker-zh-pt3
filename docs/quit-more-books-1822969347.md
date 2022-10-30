@@ -1,6 +1,6 @@
 # 停止阅读你并不真正喜欢的书
 
-> 原文:[https://lifehacker.com/quit-more-books-1822969347](https://lifehacker.com/quit-more-books-1822969347)
+> 原文：<https://lifehacker.com/quit-more-books-1822969347>
 
 有些人一旦不再喜欢一本书，就知道如何戒掉它。但是我们中的许多人都感到某种完成主义的压力，要坚持读完我们开始读的每一本书，即使是为了娱乐而阅读。我们纠结于我们实际上不喜欢的东西，所以我们不太可能拿起书，而更可能拿起电话。我们开始减少阅读。
 

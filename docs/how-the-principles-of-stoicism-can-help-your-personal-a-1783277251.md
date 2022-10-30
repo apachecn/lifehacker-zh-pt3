@@ -1,6 +1,6 @@
 # 斯多葛派的原则如何帮助你的个人生活和财务生活
 
-> 原文:[https://life hacker . com/how-the-principles-of-stoic ism-can-help-your-personal-a-1783277251](https://lifehacker.com/how-the-principles-of-stoicism-can-help-your-personal-a-1783277251)
+> 原文：<https://lifehacker.com/how-the-principles-of-stoicism-can-help-your-personal-a-1783277251>
 
 也许比其他任何话题都重要，我从被称为斯多葛派的哲学思想中发现了难以置信的个人价值。我发现斯多葛主义对于驾驭现代世界，同时保持任何表面的自我控制是无价的。我认为斯多葛派的思想是我自己财务生活(以及个人生活)的重要组成部分。
 

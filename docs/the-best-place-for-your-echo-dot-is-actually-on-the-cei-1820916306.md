@@ -1,6 +1,6 @@
 # 你的回声点最好放在天花板上
 
-> 原文:[https://life hacker . com/the-best-place for-your-echo-dot-is-the-actually-on-the-CEI-1820916306](https://lifehacker.com/the-best-place-for-your-echo-dot-is-actually-on-the-cei-1820916306)
+> 原文：<https://lifehacker.com/the-best-place-for-your-echo-dot-is-actually-on-the-cei-1820916306>
 
 [Echo Dot](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219) 的小设计让它几乎可以放在任何地方，但大多数时候它可能会被放在架子或桌子上(我把我的放在电视机旁边，并连接到一套大型扬声器)。然而，正如一位富有创意的 [Kinja Deals](http://deals.kinja.com/get-an-echo-dot-for-just-5-10-when-you-bundle-it-with-1820879246) 评论者所言，迷你智能音箱的最佳位置实际上可能是在你的头顶上方。
 

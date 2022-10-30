@@ -1,6 +1,6 @@
 # 如何设置和了解您的新 PC、Mac、Android 或 iPhone
 
-> 原文:[https://life hacker . com/how-to-set-up-and-get-know-your-new-PC-MAC-Android-5870892](https://lifehacker.com/how-to-set-up-and-get-to-know-your-new-pc-mac-android-5870892)
+> 原文：<https://lifehacker.com/how-to-set-up-and-get-to-know-your-new-pc-mac-android-5870892>
 
 你打开了礼物，收到了所有你希望得到的东西。但是现在呢？我们为你准备了几本指南，帮助你熟悉你的全新产品。
 

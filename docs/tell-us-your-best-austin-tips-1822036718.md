@@ -1,6 +1,6 @@
 # 告诉我们您在奥斯汀的最佳建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Austin-tips-1822036718](https://lifehacker.com/tell-us-your-best-austin-tips-1822036718)
+> 原文：<https://lifehacker.com/tell-us-your-best-austin-tips-1822036718>
 
 奥斯汀是德克萨斯州中部自由海岸的一小片，是波特兰或旧金山的西南版本，有着梦幻般的音乐场景。自 1990 年以来，人口翻了一番，目前接近一百万；由于奥斯汀的许多节日和会议，旅游人口也在增长。
 

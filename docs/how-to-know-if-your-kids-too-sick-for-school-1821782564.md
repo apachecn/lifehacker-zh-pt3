@@ -1,6 +1,6 @@
 # 如何知道你的孩子是否病得不能上学
 
-> 原文:[https://life hacker . com/how-to-know-if-your kids-too-sick for-school-1821782564](https://lifehacker.com/how-to-know-if-your-kids-too-sick-for-school-1821782564)
+> 原文：<https://lifehacker.com/how-to-know-if-your-kids-too-sick-for-school-1821782564>
 
 在我女儿的学前教育迎新会上，主任在阅读手册的疾病部分时告诉家长们，“如果我们让每个流鼻涕的孩子都呆在家里，我们这里就没有孩子了。”孩子们经常生病，尤其是在冬天，并不是每次感冒都需要你请假照顾他们恢复健康。但是很难判断你的孩子是否病得太重而不能去上学，这通常取决于你的判断。
 

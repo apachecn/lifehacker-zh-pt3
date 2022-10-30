@@ -1,6 +1,6 @@
 # 如何春季清洗你的药箱
 
-> 原文:[https://life hacker . com/how-to-spring-clean-your-medicine-cabinet-1825159314](https://lifehacker.com/how-to-spring-clean-your-medicine-cabinet-1825159314)
+> 原文：<https://lifehacker.com/how-to-spring-clean-your-medicine-cabinet-1825159314>
 
 不要麻烦邀请我参加晚宴，因为我没有必要窥探你的浴室来告诉你:你的医药箱里有一堆乱七八糟的东西...或者任何你用来储存的东西。上百个创可贴，却没有一个在你需要的地方？过期药物？是的，我也去过那里。
 

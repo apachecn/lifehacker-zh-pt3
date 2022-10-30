@@ -1,6 +1,6 @@
 # YouTube 电视并不完美，但它非常有前途
 
-> 原文:[https://gizmodo . com/YouTube-TV-not-perfect-but-its-very-promised-1794070458](https://gizmodo.com/youtube-tv-isnt-perfect-but-its-very-promising-1794070458)
+> 原文：<https://gizmodo.com/youtube-tv-isnt-perfect-but-its-very-promising-1794070458>
 
 尽管我尽了最大努力，但我就是无法剪断脐带。五年多来，我一直试图戒掉有线电视——我每月为此支付 140 美元——转而使用纯流媒体解决方案。我不能只靠 Hulu 和网飞生活。 [YouTube TV](http://tv.youtube.com) 是我的救星吗？
 

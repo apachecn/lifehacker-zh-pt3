@@ -1,6 +1,6 @@
 # 如何为你的下一个假期制定一个饮食计划
 
-> 原文:[https://life hacker . com/how-to-make a meal-plan for your next vacation-1826929821](https://lifehacker.com/how-to-make-a-meal-plan-for-your-next-vacation-1826929821)
+> 原文：<https://lifehacker.com/how-to-make-a-meal-plan-for-your-next-vacation-1826929821>
 
 我一直是旅行前计划的粉丝，以至于每次旅行前我都会建立一个打包网格。包装表格包括每天旅行的装备组件(基于预测的天气和活动)，以及我不想落下的必需品清单:Advil、创可贴、我的 Fitbit 充电器等。
 

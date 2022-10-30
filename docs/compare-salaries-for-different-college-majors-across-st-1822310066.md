@@ -1,6 +1,6 @@
 # 使用这个在线工具比较不同大学专业的薪水
 
-> 原文:[https://life hacker . com/compare-salary-for-different-college-professions-cross-ST-1822310066](https://lifehacker.com/compare-salaries-for-different-college-majors-across-st-1822310066)
+> 原文：<https://lifehacker.com/compare-salaries-for-different-college-majors-across-st-1822310066>
 
 如果你在大学里学习人文学科，你可能不会期望毕业后能和你的工程学或计算机科学的朋友一样多。但由于我们的文化避免讨论金钱和薪水，你可能(在这种情况下是幸福地)意识不到你可以期待的收入的确切差异。
 

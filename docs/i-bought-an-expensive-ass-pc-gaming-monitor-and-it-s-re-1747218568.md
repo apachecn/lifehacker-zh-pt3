@@ -1,6 +1,6 @@
 # 我买了一个昂贵的电脑游戏显示器，它真的很好
 
-> 原文:[https://kotaku . com/I-buyed-a-friendly-ass-PC-gaming-monitor-and-it-s-re-1747218568](https://kotaku.com/i-bought-an-expensive-ass-pc-gaming-monitor-and-it-s-re-1747218568)
+> 原文：<https://kotaku.com/i-bought-an-expensive-ass-pc-gaming-monitor-and-it-s-re-1747218568>
 
 听着，有时候你花 709 美元买一个游戏显示器，最后你会对你的购买非常满意。我不是说每次都会这样，但这次确实发生了。
 

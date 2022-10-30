@@ -1,6 +1,6 @@
 # 如何解释为什么网络中立对你那些不明白的朋友很重要
 
-> 原文:[https://life hacker . com/how-to-explain-why-net-neutral-matters-to-your-frien-1820768000](https://lifehacker.com/how-to-explain-why-net-neutrality-matters-to-your-frien-1820768000)
+> 原文：<https://lifehacker.com/how-to-explain-why-net-neutrality-matters-to-your-frien-1820768000>
 
 [上周](https://lifehacker.com/what-the-end-of-net-neutrality-means-for-you-1820647171#_ga=2.167480382.1225073181.1511792732-1313785359.1499701416) ， [联邦通信委员会](https://lifehacker.com/the-fccs-new-plan-dismantles-net-neutrality-to-rely-on-1794675979#_ga=2.167480382.1225073181.1511792732-1313785359.1499701416) 宣布计划 [废除网络中立](https://gizmodo.com/heres-the-fccs-plan-to-kill-net-neutrality-1820683360#_ga=2.167480382.1225073181.1511792732-1313785359.1499701416) ，潜在地给予互联网提供商如康卡斯特、威瑞森和 AT & T 自由支配的权利来限制速度，屏蔽他们不喜欢的网站，并将互联网分成慢车道和快车道。
 

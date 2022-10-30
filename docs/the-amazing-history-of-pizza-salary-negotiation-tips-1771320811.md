@@ -1,6 +1,6 @@
 # 比萨饼的惊人历史，工资谈判技巧，以及所有关于信用卡中的芯片
 
-> 原文:[https://life hacker . com/the-amazing-history-of-pizza-salary-negotiation-tips-1771320811](https://lifehacker.com/the-amazing-history-of-pizza-salary-negotiation-tips-1771320811)
+> 原文：<https://lifehacker.com/the-amazing-history-of-pizza-salary-negotiation-tips-1771320811>
 
 披萨的惊人历史，RC 可乐的悲惨历史，协商薪水的最佳方式，制作更好的咖啡，以及本周版 Lifehacker Brain Buffet 的更多内容。
 

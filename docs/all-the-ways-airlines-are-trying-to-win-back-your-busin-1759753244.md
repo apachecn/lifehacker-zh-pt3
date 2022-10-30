@@ -1,6 +1,6 @@
 # 航空公司想方设法赢回你的生意
 
-> 原文:[https://life hacker . com/all-the-way-airlines-is-that-win-back-your-busin-1759753244](https://lifehacker.com/all-the-ways-airlines-are-trying-to-win-back-your-busin-1759753244)
+> 原文：<https://lifehacker.com/all-the-ways-airlines-are-trying-to-win-back-your-busin-1759753244>
 
 顾客很少对航空公司说一句好话，而这些航空公司正在注意这一点。他们试图用一些额外津贴赢回你的生意，让你的旅行更愉快。毕竟，大多数航空公司已经变得如此糟糕，客户愿意乘坐 [蹩脚的折扣航空公司](https://lifehacker.com/your-least-favorite-airline-spirit-airlines-1652507364) 的航班，因为它们并没有差多少。以下是各大公司如何让自己脱颖而出的计划。
 

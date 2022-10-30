@@ -1,6 +1,6 @@
 # 为什么时间感觉像在飞逝(以及如何让它慢下来)
 
-> 原文:[https://life hacker . com/why-time-feel-like-it-s-flying by-how-to-slow-it-1745852093](https://lifehacker.com/why-time-feels-like-it-s-flying-by-and-how-to-slow-it-1745852093)
+> 原文：<https://lifehacker.com/why-time-feels-like-it-s-flying-by-and-how-to-slow-it-1745852093>
 
 我们的父母就此警告过我们，但除非你亲身经历，否则很难理解:随着年龄的增长，时间似乎在飞逝。这让你措手不及，可能是因为这是一个如此强大而怪异的概念。你不能给时钟增加更多的时间，但通过了解这种现象是如何工作的，你至少可以试着让生活看起来过得慢一点。
 

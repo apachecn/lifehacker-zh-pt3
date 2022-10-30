@@ -1,6 +1,6 @@
 # 如何为你怀孕的身体找到不难看的衣服
 
-> 原文:[https://life hacker . com/how-to-find-non-gromby-clothing-for-your-tubering-body-1828652012](https://lifehacker.com/how-to-find-non-hideous-clothes-for-your-pregnant-body-1828652012)
+> 原文：<https://lifehacker.com/how-to-find-non-hideous-clothes-for-your-pregnant-body-1828652012>
 
 哦，怀孕的高潮和低谷。当你看着你的肚子膨胀(如此不可思议！)，你同时注意到衣柜里可穿戴物品的数量在减少(真令人沮丧！).但是你不必在接下来的九个月里穿着你伴侣最宽松的运动服。随着你的成长，这里有一些让你穿得舒适甚至时尚的最佳建议和技巧。
 

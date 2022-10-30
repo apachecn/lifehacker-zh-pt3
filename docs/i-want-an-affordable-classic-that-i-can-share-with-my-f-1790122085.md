@@ -1,6 +1,6 @@
 # 我想要一款可以和家人分享的实惠经典！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-want-an-affordable-classic-the-I-can-share-with-my-f-1790122085](https://jalopnik.com/i-want-an-affordable-classic-that-i-can-share-with-my-f-1790122085)
+> 原文：<https://jalopnik.com/i-want-an-affordable-classic-that-i-can-share-with-my-f-1790122085>
 
 波利想一头扎进古典汽车的车主行列，但这不仅仅是出于对速度的自私爱好。她想和她妈妈和奶奶共用这辆车。我想不出比坐在方向盘后或引擎盖下更好的方式来加强家庭纽带。
 

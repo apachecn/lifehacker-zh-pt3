@@ -1,6 +1,6 @@
 # charming 想让我在货车里拉屎
 
-> 原文:[https://life hacker . com/charmin-tryed-to-make-me-poop-in-a-van-1796335088](https://lifehacker.com/charmin-tried-to-make-me-poop-in-a-van-1796335088)
+> 原文：<https://lifehacker.com/charmin-tried-to-make-me-poop-in-a-van-1796335088>
 
 在曼哈顿联合广场附近工作的一个好处是，有无数品牌货车提供免费产品。快乐的年轻派对发起人分发玉米饼、糖果或卫生棉条。今天他们差点让我在货车里拉屎。
 

@@ -1,6 +1,6 @@
 # Twitter 的密码错误是如何发生的
 
-> 原文:[https://life hacker . com/how-twitters-password-scrupp-may-happen-happen-1825861476](https://lifehacker.com/how-twitters-password-screwup-might-have-happened-1825861476)
+> 原文：<https://lifehacker.com/how-twitters-password-screwup-might-have-happened-1825861476>
 
 上周，Twitter 透露其曾 [不小心以明文](https://lifehacker.com/change-your-twitter-password-now-1825756672#_ga=2.121511624.1512506225.1525700096-1297080755.1497980211) 的形式存储了一些用户密码，并因此建议所有用户更改其 Twitter 密码。很糟糕。但据企业云提供商 BoltonSmith 的创始人特里斯坦博尔顿(Tristan Bolton)称，老实说，情况并没有那么糟。我们和他谈了这件事可能是如何发生的，以及它可能会变得更糟。
 

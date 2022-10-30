@@ -1,6 +1,6 @@
 # 用可乐甜化你标准的邋遢乔食谱
 
-> 原文:[https://the take out . com/sweet-your-standard-slopy-Joe-recipe-with-cola-1818489532](https://thetakeout.com/sweeten-your-standard-sloppy-joe-recipe-with-cola-1818489532)
+> 原文：<https://thetakeout.com/sweeten-your-standard-sloppy-joe-recipe-with-cola-1818489532>
 
 *欢迎来到 **MmmPop** ，我们探索在食谱中使用汽水的意想不到的方法。*
 

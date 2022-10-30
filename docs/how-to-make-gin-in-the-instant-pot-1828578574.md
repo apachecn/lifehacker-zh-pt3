@@ -1,6 +1,6 @@
 # 如何在速溶壶中自制杜松子酒[更新安全警告]
 
-> 原文:[https://life hacker . com/how-to-make-gin-in-the-instant-pot-1828578574](https://lifehacker.com/how-to-make-gin-in-the-instant-pot-1828578574)
+> 原文：<https://lifehacker.com/how-to-make-gin-in-the-instant-pot-1828578574>
 
 **美国东部时间 2018 年 8 月 25 日下午 1 点 02 分更新:** *虽然我们能够在没有事故的情况下制作这份食谱，但事实证明，在你的速溶壶中烹饪高度酒精是不安全的，因为它会产生易燃蒸汽，可能被电器中的加热元件点燃。据 Hip Pressure cooking 的 Laura Pazzaglia 称，速溶壶不支持将该设备用于此目的，当她联系他们时，她就此事说:“关于在速溶壶中烹饪酒精，有许多因素可以产生酒精烟雾的点火源。这些不是速溶罐产品的一部分，并且不受速溶罐装置的控制。鉴于不可预见风险的可能性，我们不能正式认可这种使用。——王晓岷，即溶壶 CEO。”我们正在联系 Instant Pot 以获取更多信息，当我们了解到更多信息时，我们会更新您的信息。如果你已经买了配料来注入你自己的杜松子酒，* [*试着在室温下这样做，或者使用你的浸泡循环器*](https://lifehacker.com/tip-tester-the-best-way-to-infuse-your-own-gin-1760008341) *。*
 

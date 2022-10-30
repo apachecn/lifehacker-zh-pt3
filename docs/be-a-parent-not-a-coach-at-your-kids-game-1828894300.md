@@ -1,6 +1,6 @@
 # 在孩子的游戏中，做一个家长，而不是蔻驰
 
-> 原文:[https://life hacker . com/be-a-parent-not-a-coach-at-your-kids-game-1828894300](https://lifehacker.com/be-a-parent-not-a-coach-at-your-kids-game-1828894300)
+> 原文：<https://lifehacker.com/be-a-parent-not-a-coach-at-your-kids-game-1828894300>
 
 随着另一个学年的开始，孩子们正在进入新一季的青少年体育运动，这意味着是时候进行一年一度的提醒了:冷静点，家长们。
 

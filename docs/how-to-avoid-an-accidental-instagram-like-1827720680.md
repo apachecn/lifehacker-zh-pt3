@@ -1,6 +1,6 @@
 # 如何避免意外的 Instagram“赞”
 
-> 原文:[https://life hacker . com/how-to-avoid-a-accident-a-gram-like-1827720680](https://lifehacker.com/how-to-avoid-an-accidental-instagram-like-1827720680)
+> 原文：<https://lifehacker.com/how-to-avoid-an-accidental-instagram-like-1827720680>
 
 社交媒体跟踪可能令人毛骨悚然，也是浪费时间，但我们大多数人在某个时候都对此感到内疚。这就是为什么，在我们最新的“ [如何隐藏你在 Instagram](https://lifehacker.com/how-to-hide-your-accidental-instagram-like-1827683771) 上的意外“喜欢”帖子之后，我们对这个来自我们的 [r](https://kinja.com/kikidoyouloveme) 主持人的更有效的提示很感兴趣。
 

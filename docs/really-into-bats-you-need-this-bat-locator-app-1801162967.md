@@ -1,6 +1,6 @@
 # 真的喜欢蝙蝠吗？你需要这个蝙蝠定位器应用程序
 
-> 原文:[https://life hacker . com/really-into-bats-you-need-this-bat-locator-app-1801162967](https://lifehacker.com/really-into-bats-you-need-this-bat-locator-app-1801162967)
+> 原文：<https://lifehacker.com/really-into-bats-you-need-this-bat-locator-app-1801162967>
 
 不幸的是，蝙蝠研究不足。也许是因为它们不可爱，或者是因为它们是夜间活动的，我们不常见到它们，或者，正如“公民科学家”丹妮尔·古斯塔夫森在彭博一份关于新蝙蝠应用的报告中所说，因为它们在流行文化中没有良好的公共关系。
 

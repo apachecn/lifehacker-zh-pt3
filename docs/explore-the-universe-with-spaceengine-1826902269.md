@@ -1,6 +1,6 @@
 # 用太空引擎探索宇宙
 
-> 原文:[https://life hacker . com/explore-the-universe-with-space engine-1826902269](https://lifehacker.com/explore-the-universe-with-spaceengine-1826902269)
+> 原文：<https://lifehacker.com/explore-the-universe-with-spaceengine-1826902269>
 
 当我写这篇文章时，我正坐在拉斯维加斯，没有什么比跑进一群大声叫喊的兄弟中去寻找下一个甜蜜的酒吧来填饱他们的肚子更能让你想尽快离开地球的了。
 

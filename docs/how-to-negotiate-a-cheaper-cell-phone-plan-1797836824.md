@@ -1,6 +1,6 @@
 # 如何协商一个更便宜的手机计划
 
-> 原文:[https://life hacker . com/how-to-negotiate-a-bridge-phone-plan-1797836824](https://lifehacker.com/how-to-negotiate-a-cheaper-cell-phone-plan-1797836824)
+> 原文：<https://lifehacker.com/how-to-negotiate-a-cheaper-cell-phone-plan-1797836824>
 
 这个月，我们挑战你通过 [切换到更便宜的](https://lifehacker.com/august-s-money-challenge-find-a-cheaper-phone-plan-1797416233) 计划来节省你的手机账单。不过，这并不一定意味着你必须更换运营商。你也许可以用你现在的价格谈判出一个更好的价格。
 

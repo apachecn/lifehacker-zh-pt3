@@ -1,6 +1,6 @@
 # 当你有很多孩子的时候，如何做父母
 
-> 原文:[https://life hacker . com/how-to-parent-when you-have-many-kids-1806837476](https://lifehacker.com/how-to-parent-in-bulk-when-you-have-many-kids-1806837476)
+> 原文：<https://lifehacker.com/how-to-parent-in-bulk-when-you-have-many-kids-1806837476>
 
 我不知道你是怎么做到的，是很多孩子的父母经常听到的话，比如说，三个或更多的孩子。
 

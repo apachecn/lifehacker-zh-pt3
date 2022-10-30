@@ -1,6 +1,6 @@
 # RIP AIM: Lifehacker 读者对 AOL Instant Messenger 最喜爱的回忆
 
-> 原文:[https://life hacker . com/rip-aim-life hacker-readers-favorite-memories-of-AOL-in-1821334938](https://lifehacker.com/rip-aim-lifehacker-readers-favorite-memories-of-aol-in-1821334938)
+> 原文：<https://lifehacker.com/rip-aim-lifehacker-readers-favorite-memories-of-aol-in-1821334938>
 
 对于我们这些还记得互联网早期的人来说， [今天标志着一个时代的正式结束，](https://help.aol.com/articles/aim-discontinued) 如果我们诚实地面对自己，这个时代早就结束了:美国在线即时通讯的全盛时期。
 

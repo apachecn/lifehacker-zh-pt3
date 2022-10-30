@@ -1,6 +1,6 @@
 # 让自己被植物包围，记住大自然的存在
 
-> 原文:[https://life hacker . com/the-time-to-plan-next-years-Halloween-costume-is-now-1820123408](https://lifehacker.com/the-time-to-plan-next-years-halloween-costume-is-now-1820123408)
+> 原文：<https://lifehacker.com/the-time-to-plan-next-years-halloween-costume-is-now-1820123408>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑正在简化长途通信，增加锻炼，并跟踪我们的习惯和热量摄入。
 

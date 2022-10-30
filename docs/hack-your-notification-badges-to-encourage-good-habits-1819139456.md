@@ -1,6 +1,6 @@
 # 黑掉你的通知徽章来鼓励好习惯
 
-> 原文:[https://life hacker . com/hack-your-notification-badges-to-comfort-good-habits-1819139456](https://lifehacker.com/hack-your-notification-badges-to-encourage-good-habits-1819139456)
+> 原文：<https://lifehacker.com/hack-your-notification-badges-to-encourage-good-habits-1819139456>
 
 iOS/Android:选择如何使用手机上的空闲时间感觉像是在节食。你可能会发现自己每次都选择 Twitter 或脸书，为自己从未打开 Kindle 或 Instapaper 而生气。与这种习惯作斗争需要一个完整的武器库，所以这里还有一个武器:关掉你所有的“坏”通知徽章，打开一些好的。
 

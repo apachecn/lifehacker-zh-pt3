@@ -1,6 +1,6 @@
 # 如何从 Evernote 跳槽并随身携带数据
 
-> 原文:[https://life hacker . com/how-to-jump-ship-from-evernote-and-take-your-data-with-1782841075](https://lifehacker.com/how-to-jump-ship-from-evernote-and-take-your-data-with-1782841075)
+> 原文：<https://lifehacker.com/how-to-jump-ship-from-evernote-and-take-your-data-with-1782841075>
 
 本周早些时候， ，Evernote 宣布其订阅费用越来越贵，免费用户现在仅限于两台设备。对于现有用户的分数，这一点点限制和价格上涨是一个很大的痛苦。谢天谢地，你还有其他选择。
 

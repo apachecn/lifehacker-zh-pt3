@@ -1,6 +1,6 @@
 # 如何设置基本的智能家居音响系统
 
-> 原文:[https://life hacker . com/how-to-set-up-a-basic-smart-home-sound-system-1821500548](https://lifehacker.com/how-to-set-up-a-basic-smart-home-sound-system-1821500548)
+> 原文：<https://lifehacker.com/how-to-set-up-a-basic-smart-home-sound-system-1821500548>
 
 我们的 [Homehackers](https://lifehacker.com/tag/homehackers#_ga=2.108937921.238213999.1513610342-27973805.1434581949) 视频系列回来了，帮助你将典型的家庭变成一个超级酷的智能家居。在这一集里，我们将讲述智能家庭音响的基础知识，并讨论在家中任何房间听音乐的最佳入门级选择。
 

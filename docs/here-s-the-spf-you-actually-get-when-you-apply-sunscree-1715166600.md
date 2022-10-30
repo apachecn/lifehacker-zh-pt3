@@ -1,6 +1,6 @@
 # 这是当你少量涂抹防晒霜时实际得到的防晒系数[更新]
 
-> 原文:[https://life hacker . com/here-s-the-SPF-you-actually-get-when-you-apply-suns Cree-1715166600](https://lifehacker.com/here-s-the-spf-you-actually-get-when-you-apply-sunscree-1715166600)
+> 原文：<https://lifehacker.com/here-s-the-spf-you-actually-get-when-you-apply-sunscree-1715166600>
 
 一款标有“SPF 15”[的防晒霜应该能让你在晒伤前在阳光下呆上大约 15 倍的时间](http://dermatology.about.com/od/glossarys/g/spf.htm) 。很棒，对吧？不幸的是，我们大多数人都没有得到这种程度的保护，因为我们没有足够的应用。你可能得到的:仅仅是 3-5 的防晒指数。
 

@@ -1,6 +1,6 @@
 # 在你房子的每个房间里为你的孩子放一些书
 
-> 原文:[https://life hacker . com/keep-books-for-your-kid-in-every-room-of-your-house-1827358391](https://lifehacker.com/keep-books-for-your-kid-in-every-room-of-your-house-1827358391)
+> 原文：<https://lifehacker.com/keep-books-for-your-kid-in-every-room-of-your-house-1827358391>
 
 你知道，当你遇到一个专家的建议，而它是你出于方便或懒惰已经做了的事情，然后你感到沾沾自喜并想:*哦，是的，我一直都知道我在做什么？当我在莎拉·麦肯齐的精彩书籍 [*《朗读家庭:与你的孩子建立有意义且持久的联系》*](https://www.amazon.com/Read-Aloud-Family-Meaningful-Lasting-Connections/dp/0310350328?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/keep-books-for-your-kid-in-every-room-of-your-house-1827358391&asc_source=&tag=kinjalifehackerlink-20) *中看到一个提示时，情况就是这样。为了让大声朗读成为一种有意义的家庭仪式，麦肯齐建议你应该在家里的每个房间都放上书。** 
 

@@ -1,6 +1,6 @@
 # 如何在没有高级麦克风的情况下校准电脑扬声器
 
-> 原文:[https://life hacker . com/how-to-calibrate-your-computer-speakers-without-a-fancy-1827793651](https://lifehacker.com/how-to-calibrate-your-computer-speakers-without-a-fancy-1827793651)
+> 原文：<https://lifehacker.com/how-to-calibrate-your-computer-speakers-without-a-fancy-1827793651>
 
 大多数名副其实的音频接收器都配有一个微型麦克风，你可以用它来根据房间的具体设置自动校准扬声器。简单。
 

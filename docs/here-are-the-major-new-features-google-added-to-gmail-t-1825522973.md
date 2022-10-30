@@ -1,6 +1,6 @@
 # 以下是谷歌今天添加到 Gmail 的主要新功能(以及没有添加的功能)
 
-> 原文:[https://life hacker . com/here-are-the-major-new-features-Google-add-to-Gmail-t-1825522973](https://lifehacker.com/here-are-the-major-new-features-google-added-to-gmail-t-1825522973)
+> 原文：<https://lifehacker.com/here-are-the-major-new-features-google-added-to-gmail-t-1825522973>
 
 一段时间以来，人们猜测谷歌一直在为基于网络的 Gmail 版本进行一些更新，该公司今天凌晨发布了 ，正式从戏弄走向真相。
 

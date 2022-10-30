@@ -1,6 +1,6 @@
 # 已经实现了信用卡支付的自动化
 
-> 原文:[https://life hacker . com/automate-your-credit-card-payments-already-1828654501](https://lifehacker.com/automate-your-credit-card-payments-already-1828654501)
+> 原文：<https://lifehacker.com/automate-your-credit-card-payments-already-1828654501>
 
 冲动消费、紧急情况、买了太多我们并不需要的东西——所有这些都是我们通常会想到的解释人们为什么会延迟信用卡还款的原因。
 

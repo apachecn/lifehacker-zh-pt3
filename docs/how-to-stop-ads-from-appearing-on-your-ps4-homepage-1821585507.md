@@ -1,6 +1,6 @@
 # 如何阻止广告出现在你的 PS4 主页上
 
-> 原文:[https://kotaku . com/how-to-stop-ads-from-appearing-on-your-ps4-home page-1821585507](https://kotaku.com/how-to-stop-ads-from-appearing-on-your-ps4-homepage-1821585507)
+> 原文：<https://kotaku.com/how-to-stop-ads-from-appearing-on-your-ps4-homepage-1821585507>
 
 如果你是一名 PS4 玩家，你今天可能会打开你的主机，发现一个令人惊讶的关于*命运 2* 的主页广告，这是一款视频游戏，玩家在太空旅行，与像堕落者、阴谋集团和 Eververse 这样的对手战斗。
 

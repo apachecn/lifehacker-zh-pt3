@@ -1,6 +1,6 @@
 # 最好的标签制造商是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-label-maker-1729656704](https://lifehacker.com/whats-the-best-label-maker-1729656704)
+> 原文：<https://lifehacker.com/whats-the-best-label-maker-1729656704>
 
 我们已经有一段时间没有谈论家庭组织了。一个好的标签制造商意味着你永远不会把重要的文件放错地方，可以在厨房里组织容器，并且可以给任何东西贴标签，但是哪一个是最好的呢？
 

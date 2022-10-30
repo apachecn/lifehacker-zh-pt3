@@ -1,6 +1,6 @@
 # 如何获得和使用纳洛酮，这种药物可以逆转阿片类药物过量
 
-> 原文:[https://life hacker . com/how-to-obtain-and-use-the-drug-the-can-rever-1796260619](https://lifehacker.com/how-to-obtain-and-use-naloxone-the-drug-that-can-rever-1796260619)
+> 原文：<https://lifehacker.com/how-to-obtain-and-use-naloxone-the-drug-that-can-rever-1796260619>
 
 欢迎来到另一个你希望永远不会用到的帖子。今天我们将讨论如何使用纳洛酮(包括品牌名称 Narcan 和 Evzio)来帮助那些过量服用海洛因或处方止痛药等阿片类药物的人。
 

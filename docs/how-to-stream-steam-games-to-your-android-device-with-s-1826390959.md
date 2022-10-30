@@ -1,6 +1,6 @@
 # 如何通过 Steam Link 将 Steam 游戏传输到您的 Android 设备
 
-> 原文:[https://life hacker . com/how-to-stream-steam-games-to-your-Android-device-with-s-1826390959](https://lifehacker.com/how-to-stream-steam-games-to-your-android-device-with-s-1826390959)
+> 原文：<https://lifehacker.com/how-to-stream-steam-games-to-your-android-device-with-s-1826390959>
 
 我一直是 Valve Steam streaming 的粉丝，因为这意味着当你想在其他地方玩游戏时，你不必在家里或公寓里拖着你的台式电脑。虽然你的笔记本电脑可能无法在本机运行《巫师 3》,或者至少运行得不太好，但让你的游戏桌面完成所有繁重的工作，并将其输出传输到另一个设备，比如你在后院吊床上使用的三年前的笔记本电脑，会容易得多。
 

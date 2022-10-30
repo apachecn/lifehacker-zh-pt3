@@ -1,6 +1,6 @@
 # 如何巧妙地模仿玛丽莲·梦露的造型
 
-> 原文:[https://life hacker . com/how-to-finely-rip-off-Marilyn-monroes-look-1823768034](https://lifehacker.com/how-to-subtly-rip-off-marilyn-monroes-look-1823768034)
+> 原文：<https://lifehacker.com/how-to-subtly-rip-off-marilyn-monroes-look-1823768034>
 
 在美容领域——就像在时尚、食物和政治领域一样——没有什么原创的想法。化妆品只是各种各样的彩色粉末和蜡，以一种装饰的方式涂在你的脸上；除了创新配方，它永远都是这样。
 

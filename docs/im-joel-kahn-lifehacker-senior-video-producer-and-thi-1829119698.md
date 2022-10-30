@@ -1,6 +1,6 @@
 # 我是 Joel Kahn，Lifehacker 的资深视频制作人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Joel-Kahn-life hacker-senior-video-producer-and-thi-1829119698](https://lifehacker.com/im-joel-kahn-lifehacker-senior-video-producer-and-thi-1829119698)
+> 原文：<https://lifehacker.com/im-joel-kahn-lifehacker-senior-video-producer-and-thi-1829119698>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是乔尔·卡恩，这就是我的工作方式。
 

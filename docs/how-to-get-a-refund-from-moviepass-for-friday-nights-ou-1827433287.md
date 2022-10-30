@@ -1,6 +1,6 @@
 # 如何从 MoviePass 获得周五晚上停电的退款
 
-> 原文:[https://life hacker . com/how-to-get-a-return-from-movie pass-for-Friday-nights-ou-1827433287](https://lifehacker.com/how-to-get-a-refund-from-moviepass-for-friday-nights-ou-1827433287)
+> 原文：<https://lifehacker.com/how-to-get-a-refund-from-moviepass-for-friday-nights-ou-1827433287>
 
 试图在周五晚上看电影的 MoviePass 用户可能会有意想不到的惊喜:他们的应用程序无法工作。周五晚上的停电使许多用户无法签到观看电影，因此如果他们还想去看电影，他们必须用老方法花钱买票。
 

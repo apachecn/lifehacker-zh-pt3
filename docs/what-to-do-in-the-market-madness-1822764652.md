@@ -1,6 +1,6 @@
 # 股市疯狂期间该做什么
 
-> 原文:[https://life hacker . com/what-to-do-in-the-market-madness-1822764652](https://lifehacker.com/what-to-do-in-the-market-madness-1822764652)
+> 原文：<https://lifehacker.com/what-to-do-in-the-market-madness-1822764652>
 
 股市下跌，你认为这意味着现在是买入的好时机。或者你确信你应该卖掉。或者你什么也不做，继续你的一天。我们应该如何看待这一切？
 

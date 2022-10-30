@@ -1,6 +1,6 @@
 # 如果你要一心多用，至少要做对
 
-> 原文:[https://life hacker . com/if-you-re-to-multi-task-at-more-do-it-right-1734677693](https://lifehacker.com/if-you-re-going-to-multitask-at-least-do-it-right-1734677693)
+> 原文：<https://lifehacker.com/if-you-re-going-to-multitask-at-least-do-it-right-1734677693>
 
 “一心多用”已经成了一个不好的词。大多数研究称 我们的大脑并不真正能够同时专注于多件事情，但这并不意味着多任务处理是邪恶的。如果你想一心多用，以下是如何充分利用它的方法。
 

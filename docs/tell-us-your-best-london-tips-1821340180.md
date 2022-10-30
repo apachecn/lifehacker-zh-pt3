@@ -1,6 +1,6 @@
 # 告诉我们你最好的伦敦小贴士
 
-> 原文:[https://life hacker . com/tell-us-your-best-London-tips-1821340180](https://lifehacker.com/tell-us-your-best-london-tips-1821340180)
+> 原文：<https://lifehacker.com/tell-us-your-best-london-tips-1821340180>
 
 为伦敦干杯，这座城市以其著名的大桥命名！众所周知，所有的英国人都来自伦敦，城市里的每个人都很富有，都是女王的朋友，他们都在乘坐双层巴士和举行德比时根据大本钟对表。
 

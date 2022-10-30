@@ -1,6 +1,6 @@
 # 什么是宪法危机？
 
-> 原文:[https://life hacker . com/what-a-constitution-crisis-1826953430](https://lifehacker.com/what-is-a-constitutional-crisis-1826953430)
+> 原文：<https://lifehacker.com/what-is-a-constitutional-crisis-1826953430>
 
 在过去的两年里，“宪法危机”这个词已经出现在很多人的脑海里，但是它意味着什么呢？这会导致什么？以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 以下是 2018 年 5 月网飞的动向
 
-> 原文:[https://life hacker . com/here-s-what-s-coming-and-go-from-2018-5-1825498620](https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-may-2018-1825498620)
+> 原文：<https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-may-2018-1825498620>
 
 嘿，你这个月在网飞看了什么？他们放弃的那些新头衔 中的任何一个？你看了*冷山*吗？也许*真人快打*？现在*有*一个维恩图，只有两个圆。以下是五月份网飞新推出的电视节目、电影和单口相声专场。 
 

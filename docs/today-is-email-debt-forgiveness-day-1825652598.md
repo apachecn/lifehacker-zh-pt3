@@ -1,6 +1,6 @@
 # 今天是电子邮件债务免除日
 
-> 原文:[https://life hacker . com/today-is-email-debt-religion-day-1825652598](https://lifehacker.com/today-is-email-debt-forgiveness-day-1825652598)
+> 原文：<https://lifehacker.com/today-is-email-debt-forgiveness-day-1825652598>
 
 当你浏览下午的邮件时，看看收件箱的其他部分。也许你有一些旧邮件在里面。2017 年的邮件。2016 年的邮件！你回复的时间越长，你就越害怕，现在你把它们放在收件箱里是为了什么，让自己内疚吗？毁了你的早晨？今天是你解决这件事的日子。
 

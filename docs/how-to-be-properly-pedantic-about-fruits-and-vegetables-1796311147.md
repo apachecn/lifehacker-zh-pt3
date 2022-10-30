@@ -1,6 +1,6 @@
 # 如何恰当地对水果和蔬菜迂腐
 
-> 原文:[https://life hacker . com/how-to-be-proper-about-fruit-and-vegetable-1796311147](https://lifehacker.com/how-to-be-properly-pedantic-about-fruits-and-vegetables-1796311147)
+> 原文：<https://lifehacker.com/how-to-be-properly-pedantic-about-fruits-and-vegetables-1796311147>
 
 如果你因为知道西红柿是一种水果而认为自己很聪明，请系好安全带。你说得对，但是西红柿也是蔬菜。大米是一种水果。有些你*认为*是水果的东西——比如草莓——实际上并不像它们看起来的那样。
 

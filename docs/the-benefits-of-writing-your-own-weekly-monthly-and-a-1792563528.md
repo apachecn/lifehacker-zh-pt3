@@ -1,6 +1,6 @@
 # 写你自己的周、月、年回顾的好处
 
-> 原文:[https://life hacker . com/the-benefits-of-writing-your-own-weekly-and-a-1792563528](https://lifehacker.com/the-benefits-of-writing-your-own-weekly-monthly-and-a-1792563528)
+> 原文：<https://lifehacker.com/the-benefits-of-writing-your-own-weekly-monthly-and-a-1792563528>
 
 当我们反思自己的所作所为时，会有一些很特别的事情发生。实际上，有两件事。一个是我们对自己做过或学过的东西有了更好的理解。另一个是 [我们的自我效能提高了](http://jkglei.com/reflection/)——也就是我们对自己能力的信念。
 

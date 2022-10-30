@@ -1,6 +1,6 @@
 # 以下是苹果对你的了解(剧透:不多)
 
-> 原文:[https://life hacker . com/heres-what-apple-know-on-you-spoiler-not-more-1825779350](https://lifehacker.com/heres-what-apple-knows-about-you-spoiler-not-much-1825779350)
+> 原文：<https://lifehacker.com/heres-what-apple-knows-about-you-spoiler-not-much-1825779350>
 
 苹果 [喜欢说](https://www.cnbc.com/2018/04/10/apple-ceo-tim-cook-on-the-importance-of-consumer-privacy.html) 比其他科技巨头如[谷歌](https://lifehacker.com/google-knows-even-more-about-you-than-facebook-1825508058#_ga=2.28295292.1504035103.1525057615-258269408.1513265580)[亚马逊](https://lifehacker.com/what-to-use-instead-of-amazons-invasive-new-assistant-1823522711) 更关心你的隐私，但这种说法真的成立吗？事实证明，答案是一个相当响亮的是。
 

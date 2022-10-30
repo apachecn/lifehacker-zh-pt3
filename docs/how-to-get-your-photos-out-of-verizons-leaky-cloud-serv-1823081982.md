@@ -1,6 +1,6 @@
 # 如何将你的照片从威瑞森漏洞百出的云服务中取出
 
-> 原文:[https://life hacker . com/how-to-get-your-photos-out-of-Verizon-leaky-cloud-serv-1823081982](https://lifehacker.com/how-to-get-your-photos-out-of-verizons-leaky-cloud-serv-1823081982)
+> 原文：<https://lifehacker.com/how-to-get-your-photos-out-of-verizons-leaky-cloud-serv-1823081982>
 
 将你所有的照片 [储存在云端](https://lifehacker.com/which-cloud-storage-service-should-you-use-1822761662) 会很棒，直到它不再棒。有时候，你使用的存储服务可能会抬高价格，或者你的一些照片可能会莫名其妙地消失。更糟糕的是，你的私人照片可能会出现在陌生人的智能手机上。
 

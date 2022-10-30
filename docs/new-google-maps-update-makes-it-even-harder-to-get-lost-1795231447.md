@@ -1,6 +1,6 @@
 # 新的谷歌地图更新使迷路变得更加困难
 
-> 原文:[https://life hacker . com/new-Google-maps-update-make-it-even-hard-to-lost-1795231447](https://lifehacker.com/new-google-maps-update-makes-it-even-harder-to-get-lost-1795231447)
+> 原文：<https://lifehacker.com/new-google-maps-update-makes-it-even-harder-to-get-lost-1795231447>
 
 当你在不熟悉的领域旅行时，有时逐路段导航是不够的。谷歌地图 的新 [设计更新来帮你了。](http://www.androidpolice.com/2017/05/12/google-maps-gains-street-view-images-for-directions-and-a-bottom-bar-for-location-info-directions-and-more/)
 

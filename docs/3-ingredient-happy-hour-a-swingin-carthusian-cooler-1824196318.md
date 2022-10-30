@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:一个摇摆不定的卡特斯式冷却器
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-swing in-carthus Ian-cooler-1824196318](https://lifehacker.com/3-ingredient-happy-hour-a-swingin-carthusian-cooler-1824196318)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-swingin-carthusian-cooler-1824196318>
 
 朋友们，周五快乐，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天我们要制作一种草本但平衡的饮料，这是我在《花花公子》主持人的标志性 [*酒吧书籍*中找到的。](https://www.amazon.com/Playboys-Host-Book-Thomas-Mario/dp/0872233286?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/3-ingredient-happy-hour-a-swingin-carthusian-cooler-1824196318&asc_source=&tag=kinjalifehackerlink-20)
 

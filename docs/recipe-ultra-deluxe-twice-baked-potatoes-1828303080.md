@@ -1,6 +1,6 @@
 # 制作超豪华的双烤土豆，配得上最豪华的牛排馆
 
-> 原文:[https://the take out . com/recipe-ultra-deluxe-two-baked-potatos-1828303080](https://thetakeout.com/recipe-ultra-deluxe-twice-baked-potatoes-1828303080)
+> 原文：<https://thetakeout.com/recipe-ultra-deluxe-twice-baked-potatoes-1828303080>
 
 20 世纪 90 年代的婚宴上，两次烤土豆不是最精彩的吗？以前也是这么想的，小时候去过无数次家庭婚礼。我记得看着我晚餐时举起的钟，心想*咿咿咿咿咿呀呀，这太棒了。*古怪的管道，点缀着细香葱，两次烘烤的土豆是一个华丽的金色土堆——为这一场合而打扮的土豆。我的 [劳拉·阿什利的裙子](https://www.pinterest.com/janetraine2003/vintage-laura-ashley/) 和这个土豆穿的比起来就相形见绌了。
 

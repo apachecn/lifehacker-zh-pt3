@@ -1,6 +1,6 @@
 # 用铅笔将酱汁冻成可以食用的份量
 
-> 原文:[https://life hacker . com/use-a-pencil-to-freeze-sauce-to-usable-portions-1814081647](https://lifehacker.com/use-a-pencil-to-freeze-sauce-into-usable-portions-1814081647)
+> 原文：<https://lifehacker.com/use-a-pencil-to-freeze-sauce-into-usable-portions-1814081647>
 
 在冰箱里放满酱汁、汤和冰沙可以让你在繁忙的工作日晚上快速轻松地享用晚餐，但当你只需要几勺液体时，解冻一整袋食物可能会很痛苦。铅笔可以帮助你分配液体，这样你就可以抓住你需要的东西。
 

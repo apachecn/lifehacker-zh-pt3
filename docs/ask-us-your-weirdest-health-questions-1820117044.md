@@ -1,6 +1,6 @@
 # 问我们你最奇怪的健康问题
 
-> 原文:[https://life hacker . com/ask-us-your-weirdest-health-questions-1820117044](https://lifehacker.com/ask-us-your-weirdest-health-questions-1820117044)
+> 原文：<https://lifehacker.com/ask-us-your-weirdest-health-questions-1820117044>
 
 如果你不那么害羞，你会问医生什么？你对哪些健康问题感到好奇，但又不确定是否希望在搜索历史中出现？在我们的新专栏“燃眉之急”中，我们将回答你的古怪问题。带他们上来。
 

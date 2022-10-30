@@ -1,6 +1,6 @@
 # 为难以购物的人提供灵活、节俭的礼物
 
-> 原文:[https://life hacker . com/flexible-and-fruit-gift-ideas for the-diffi-1789561553](https://lifehacker.com/flexible-and-frugal-gift-ideas-for-people-who-are-diffi-1789561553)
+> 原文：<https://lifehacker.com/flexible-and-frugal-gift-ideas-for-people-who-are-diffi-1789561553>
 
 每年的这个时候，我都会收到一些人发来的信息和邮件，他们正在努力为生活中节俭的人挑选礼物。对于那些花钱非常谨慎并且似乎什么都不想要的人，他们会得到什么呢？
 

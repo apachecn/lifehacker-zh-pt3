@@ -1,6 +1,6 @@
 # 三要素快乐时光:苏格兰人罗布·罗伊
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-scotch y-rob-Roy-1797734190](https://lifehacker.com/3-ingredient-happy-hour-the-scotchy-rob-roy-1797734190)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-scotchy-rob-roy-1797734190>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天我们要制作一款精致的苏格兰威士忌:罗伯·罗伊。
 

@@ -1,6 +1,6 @@
 # AIM 开始扼杀那些让它变得优秀的应用程序
 
-> 原文:[https://gizmodo . com/aim-starts-killing-off-the-programs-the-actual-made-1792856385](https://gizmodo.com/aim-starts-killing-off-the-programs-that-actually-made-1792856385)
+> 原文：<https://gizmodo.com/aim-starts-killing-off-the-programs-that-actually-made-1792856385>
 
 似乎美国在线 [将很快切断第三方对其著名即时通讯服务](https://arstechnica.com/business/2017/02/aol-will-cut-off-third-party-app-access-to-aim/) 的访问，这对每个人的早期怀旧情绪都是一个致命的打击。这项服务今年已经 20 岁了，现在还不清楚它是否会迎来 21 岁生日。
 

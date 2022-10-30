@@ -1,6 +1,6 @@
 # 在最后一刻去哪里买日蚀眼镜
 
-> 原文:[https://life hacker . com/where-to-get-eclipse-glasses-at-last-minute-1798150150](https://lifehacker.com/where-to-get-eclipse-glasses-at-the-last-minute-1798150150)
+> 原文：<https://lifehacker.com/where-to-get-eclipse-glasses-at-the-last-minute-1798150150>
 
 现在买日蚀眼镜还不晚，但是不要指望在商店里找到。不过，我们已经在 Facebook Marketplace 和 Craigslist 等本地销售网站上看到了一些商品，所以如果你行动迅速，还是可以买到一双。
 

@@ -1,6 +1,6 @@
 # 用偷偷摸摸的笑话协商更高的薪水
 
-> 原文:[https://life hacker . com/negotiate-a-high-salary-with-sneaky-joke-1819783125](https://lifehacker.com/negotiate-a-higher-salary-with-a-sneaky-joke-1819783125)
+> 原文：<https://lifehacker.com/negotiate-a-higher-salary-with-a-sneaky-joke-1819783125>
 
 我们很多人都避免谈判，因为它看起来如此棘手，如此具有对抗性。不过，你不会想错过这笔钱的。一种简单、非对抗性的讨价还价的方式？开个可笑的玩笑。
 

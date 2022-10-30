@@ -1,6 +1,6 @@
 # 如何在这个季节观看英仙座流星雨
 
-> 原文:[https://life hacker . com/how-to-watch-the-perseids-流星雨-本季-1827450526](https://lifehacker.com/how-to-watch-the-perseids-meteor-showers-this-season-1827450526)
+> 原文：<https://lifehacker.com/how-to-watch-the-perseids-meteor-showers-this-season-1827450526>
 
 我们正在接近一年中流星雨的最佳时间，所以拿一条毯子，一些啤酒，和这个方便的指南来找到它们。
 

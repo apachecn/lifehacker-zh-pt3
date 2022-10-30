@@ -1,6 +1,6 @@
 # 你应该对你的 HomePod 做的第一件事就是关闭个人请求
 
-> 原文:[https://life hacker . com/the-first-this-you-should-do-your-homepod-is-turn-1822770847](https://lifehacker.com/the-first-thing-you-should-do-with-your-homepod-is-turn-1822770847)
+> 原文：<https://lifehacker.com/the-first-thing-you-should-do-with-your-homepod-is-turn-1822770847>
 
 苹果的 HomePod 终于在 2 月 9 日发布，但是评论已经蜂拥而至。总的来说，听起来苹果公司成功地制造了一个声音很棒的扬声器，同时省略了许多可能使其成为智能的功能 。然而，有一个 HomePod 提供的“智能”功能，你最好不要使用:个人请求。
 

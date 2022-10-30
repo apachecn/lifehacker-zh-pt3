@@ -1,6 +1,6 @@
 # 如何取消你无用的 iOS 应用程序订阅
 
-> 原文:[https://life hacker . com/how-to-cancel-your-useful-IOs-app-subscriptions-1796017796](https://lifehacker.com/how-to-cancel-your-useless-ios-app-subscriptions-1796017796)
+> 原文：<https://lifehacker.com/how-to-cancel-your-useless-ios-app-subscriptions-1796017796>
 
 如果你从来没有检查过你的应用程序订阅，我不怪你。这是一个深深埋藏在你的 iOS 设备中的功能。但是，你可能会发现一个每周收费 100 美元的应用程序，所以保持警惕是值得的。
 

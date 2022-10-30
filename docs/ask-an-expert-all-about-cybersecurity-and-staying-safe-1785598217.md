@@ -1,6 +1,6 @@
 # 请教专家:关于网络安全和保持安全
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-network security-and-stay-safe-1785598217](https://lifehacker.com/ask-an-expert-all-about-cybersecurity-and-staying-safe-1785598217)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-cybersecurity-and-staying-safe-1785598217>
 
 安全研究人员和“白黑”黑客努力清除软件和网络中可能用于恶意目的的潜在漏洞。他们如何在威胁面前保持领先，您能做些什么来保护自己？
 

@@ -1,6 +1,6 @@
 # 大声说出来能更好地记住事情
 
-> 原文:[https://life hacker . com/remember-things-better-by-say-them-out-loud-1821163040](https://lifehacker.com/remeber-things-better-by-saying-them-out-loud-1821163040)
+> 原文：<https://lifehacker.com/remeber-things-better-by-saying-them-out-loud-1821163040>
 
 记住某事的关键可能是大声说出来。
 

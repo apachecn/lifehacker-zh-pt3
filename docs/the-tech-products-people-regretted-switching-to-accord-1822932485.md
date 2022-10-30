@@ -1,6 +1,6 @@
 # 据 Reddit 报道，人们后悔转向的科技产品
 
-> 原文:[https://life hacker . com/the-tech-products-people-renewated-switching-to-accord-1822932485](https://lifehacker.com/the-tech-products-people-regretted-switching-to-accord-1822932485)
+> 原文：<https://lifehacker.com/the-tech-products-people-regretted-switching-to-accord-1822932485>
 
 说到技术，对于大多数人来说，在不同的产品和平台之间跳跃是生活中的事实。除非你是苹果 的铁杆粉丝，或者你对 [三星](https://lifehacker.com/dont-buy-a-new-samsung-phone-until-the-galaxy-s9-comes-1822033586) 着迷，否则你可能至少已经试过一次竞争产品了。
 

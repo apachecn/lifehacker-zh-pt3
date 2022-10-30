@@ -1,6 +1,6 @@
 # 要让你的孩子动起来，走出家门
 
-> 原文:[https://life hacker . com/to-get-your-kid-move-walk-out-the-door-1827500328](https://lifehacker.com/to-get-your-kid-moving-walk-out-the-door-1827500328)
+> 原文：<https://lifehacker.com/to-get-your-kid-moving-walk-out-the-door-1827500328>
 
 《人人都爱雷蒙德》中有一集，雷记得他从父亲那里学到了一种有效的育儿方法:人工智能。屁股在座位上。他会说，“我们要走了。9 点钟方向，AIS！”谁的屁股在指定时间不在座位上，谁就会被留下。踢球者？雷在他妻子黛布拉身上做了试验。寓意:不要在你妻子身上试验。(还有，是的，我以前看了很多*大家都爱雷蒙——*不要讨厌。)
 

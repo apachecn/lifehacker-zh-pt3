@@ -1,6 +1,6 @@
 # 不要吃你的椰子油，用它来代替这个东西
 
-> 原文:[https://life hacker . com/don-t-eat-your-coconut-oil-use-it-for-this-style-instea-1796207555](https://lifehacker.com/dont-eat-your-coconut-oil-use-it-for-this-stuff-instea-1796207555)
+> 原文：<https://lifehacker.com/dont-eat-your-coconut-oil-use-it-for-this-stuff-instea-1796207555>
 
 有传言说椰子油对你不好。曾经 [被认为是一种“脂肪燃烧脂肪”](https://www.lifehacker.com.au/2015/07/switch-to-coconut-oil-for-its-fat-burning-properties/) 可以很好地纳入你的饮食，现在的建议是“你可以把它放在你的身体上，但不要把它放在你的身体里。”
 

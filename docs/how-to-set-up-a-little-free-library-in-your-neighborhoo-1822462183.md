@@ -1,6 +1,6 @@
 # 如何在你家附近建立一个免费的小图书馆
 
-> 原文:[https://life hacker . com/how-to-set-a-little-free-library-in-your-neighborhoo-1822462183](https://lifehacker.com/how-to-set-up-a-little-free-library-in-your-neighborhoo-1822462183)
+> 原文：<https://lifehacker.com/how-to-set-up-a-little-free-library-in-your-neighborhoo-1822462183>
 
 你在你的邻居那里见过这些盒子。许多看起来像只有一间教室的校舍。其他的看起来像他们主人房子的迷你复制品。自 2010 年以来，图书爱好者已经在全球 80 多个国家建立了超过 6 万个 [小型免费图书馆](https://littlefreelibrary.org/) ，据 LFL 媒体和节目代表玛格丽特·奥尔德里奇(Margret Aldrich)称，这些图书馆旨在成为自由交流的场所，“激发对阅读的热爱，建立社区，激发创造力。”
 

@@ -1,6 +1,6 @@
 # 在百思买的苹果销售活动中以低价获得一部 iPhone X
 
-> 原文:[https://life hacker . com/get-an-iphone-x-for-cheap-at-best-buy-s-apple-sales-eve-1821120196](https://lifehacker.com/get-an-iphone-x-for-cheap-at-best-buy-s-apple-sales-eve-1821120196)
+> 原文：<https://lifehacker.com/get-an-iphone-x-for-cheap-at-best-buy-s-apple-sales-eve-1821120196>
 
 没有什么比使用永恒的借口“今天是假期！”给自己一个新奇的玩具。随着 1000 美元的 iPhone X 在这个送礼季风靡一时(如果你能买到的话)，你不妨在包装自己的礼物之前在它上面节省几美元。截止到 12 月 9 日星期六，百思买在苹果产品和配件上有相当可观的优惠 。以下是你如何将假期现金存入银行的方法，同时还能给自己一个全新的 iPhone、Mac 或你已经拥有的设备的附加设备。
 

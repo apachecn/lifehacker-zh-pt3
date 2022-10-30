@@ -1,6 +1,6 @@
 # 当你阅读生活窍门时，不要跳过评论
 
-> 原文:[https://life hacker . com/when-you-reading-about-life-hacks-don-skip-the-comm-1797069927](https://lifehacker.com/when-youre-reading-about-life-hacks-dont-skip-the-comm-1797069927)
+> 原文：<https://lifehacker.com/when-youre-reading-about-life-hacks-dont-skip-the-comm-1797069927>
 
 在互联网上交往的一个基本原则是不要看评论。但是，如果你像我们一样，花了一天的大部分时间在网上寻找吃三明治的最佳方法或 [哪种组织工具](http://offspring.lifehacker.com/use-a-kanban-to-delegate-and-track-family-chores-1797032196) 会帮助你完成家务，这种明智的策略可能会对你不利。
 

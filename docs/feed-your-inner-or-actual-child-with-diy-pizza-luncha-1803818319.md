@@ -1,6 +1,6 @@
 # 用 DIY 披萨便当喂养你内心(或实际)的孩子
 
-> 原文:[https://life hacker . com/feed-your-inner-or-actual-child with-DIY-pizza-luncha-1803818319](https://lifehacker.com/feed-your-inner-or-actual-child-with-diy-pizza-luncha-1803818319)
+> 原文：<https://lifehacker.com/feed-your-inner-or-actual-child-with-diy-pizza-luncha-1803818319>
 
 我是便当 的超级粉丝，无论是作为产品还是概念。免烹饪、组装和食用的食物盒对所有人来说都是方便、可定制和有趣的，包括真正的学生和那些内心只是孩子的人。
 

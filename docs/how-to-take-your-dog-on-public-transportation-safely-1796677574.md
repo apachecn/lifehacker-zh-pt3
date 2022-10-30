@@ -1,6 +1,6 @@
 # 如何安全带狗狗乘坐公共交通工具
 
-> 原文:[https://life hacker . com/how-to-take your-dog-on-public transportation-1796677574](https://lifehacker.com/how-to-take-your-dog-on-public-transportation-safely-1796677574)
+> 原文：<https://lifehacker.com/how-to-take-your-dog-on-public-transportation-safely-1796677574>
 
 不是每个养狗的人都有车——或者共享乘车服务——带着他们的小狗到处跑，所以他们转向公共汽车、火车和地铁。如果你发现自己在考虑乘坐公共交通工具带你的狗去某个地方，这里有一些安全的方法。
 

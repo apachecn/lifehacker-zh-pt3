@@ -1,6 +1,6 @@
 # 救命啊！对汽车的扭曲破坏了我的衣柜
 
-> 原文:[https://jalopnik . com/help-wrenching-on-cars-is-wrecking-my-衣柜-1822154423](https://jalopnik.com/help-wrenching-on-cars-is-wrecking-my-wardrobe-1822154423)
+> 原文：<https://jalopnik.com/help-wrenching-on-cars-is-wrecking-my-wardrobe-1822154423>
 
 如果你在修车时弄坏了一套衣服，你会怎么做？你 [让一个爱干净的人](https://jalopnik.com/tag/ask-a-clean-person) 把手伸进她的洗衣包里，告诉你她头脑中所有的去油渍产品。
 

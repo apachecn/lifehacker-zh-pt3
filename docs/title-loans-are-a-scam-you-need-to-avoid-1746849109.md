@@ -1,6 +1,6 @@
 # 所有权贷款是一个骗局，你需要避免
 
-> 原文:[https://jalopnik . com/title-loans-is-a-scam-you-need-to-avoid-1746849109](https://jalopnik.com/title-loans-are-a-scam-you-need-to-avoid-1746849109)
+> 原文：<https://jalopnik.com/title-loans-are-a-scam-you-need-to-avoid-1746849109>
 
 急需现金却找不到愿意借给你的人？有一辆有明确标题的车？也许你听说过，你可以用那个头衔借钱，获得“头衔贷款”不要。
 

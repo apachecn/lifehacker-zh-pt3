@@ -1,6 +1,6 @@
 # 通过预订连通房而不是套房，节省大量酒店费用
 
-> 原文:[https://life hacker . com/save-big-at-hotels-by-booking-connecting-rooms-instead-1826294783](https://lifehacker.com/save-big-at-hotels-by-booking-connecting-rooms-instead-1826294783)
+> 原文：<https://lifehacker.com/save-big-at-hotels-by-booking-connecting-rooms-instead-1826294783>
 
 一个多房间的酒店套房为你的聚会提供了一个公共区域，但也允许每个人都有自己房间的隐私。它们非常适合家庭聚会、婚礼和单身派对。问题是，这些类型的套房通常贵得惊人。以下是如何以更低的价格获得套房般的体验。
 

@@ -1,6 +1,6 @@
 # 确保你用苹果应用程序“暂停”来休息
 
-> 原文:[https://life hacker . com/make-sure-you-take-work-breaks with-the-MAC OS-app-time-1826020985](https://lifehacker.com/make-sure-you-take-work-breaks-with-the-macos-app-time-1826020985)
+> 原文：<https://lifehacker.com/make-sure-you-take-work-breaks-with-the-macos-app-time-1826020985>
 
 马科斯:我很忙。你很忙。我们都很忙。有时候，你不得不处理的大量垃圾几乎会让你感到不知所措，但控制你混乱的待办事项列表而不发疯的一个好方法是确保你也有足够的休息时间。
 

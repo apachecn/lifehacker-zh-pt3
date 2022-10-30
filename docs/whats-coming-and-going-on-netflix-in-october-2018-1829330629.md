@@ -1,6 +1,6 @@
 # 2018 年 10 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-on-网飞 2018-10-1829330629](https://lifehacker.com/whats-coming-and-going-on-netflix-in-october-2018-1829330629)
+> 原文：<https://lifehacker.com/whats-coming-and-going-on-netflix-in-october-2018-1829330629>
 
 网飞将在这个月的万圣节全力以赴，每周五都会有一系列新的原创恐怖电影和表演。也有新的不可怕的东西，像 Samin Nosrat 的烹饪节目*盐脂肪酸热*。以下是十月网飞的所有动态。
 

@@ -1,6 +1,6 @@
 # 使用这些视频编辑技巧，让您的照片看起来更像电影
 
-> 原文:[https://life hacker . com/make-your-shots-look-more-cinematic-with this-video-ed-1827368187](https://lifehacker.com/make-your-shots-look-more-cinematic-with-these-video-ed-1827368187)
+> 原文：<https://lifehacker.com/make-your-shots-look-more-cinematic-with-these-video-ed-1827368187>
 
 所以你为你的独立电影拍摄了一些镜头，但它看起来不太像你在大银幕上看到的东西。这些简单的视频编辑技巧将有助于让你的视频看起来更像专业人士拍摄的东西。
 

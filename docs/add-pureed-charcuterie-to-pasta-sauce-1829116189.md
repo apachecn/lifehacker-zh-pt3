@@ -1,6 +1,6 @@
 # 向意大利面酱中加入肉泥
 
-> 原文:[https://life hacker . com/add-pureed-charcuterie-to-pasta-sauce-1829116189](https://lifehacker.com/add-pureed-charcuterie-to-pasta-sauce-1829116189)
+> 原文：<https://lifehacker.com/add-pureed-charcuterie-to-pasta-sauce-1829116189>
 
 我很少用同样的方式做同样的菜两次。意大利面酱更是如此，因为它天生具有适应性。前几天晚上，我为自己和一个朋友做了一顿简单的意大利面晚餐，仅仅是因为我发现了一罐我不知道自己有的西红柿。当我品尝和调整的时候，我记得我吃了大约半杯本周早些时候做的辣酱。我把它扔进调味汁里，尝了尝后，欣喜若狂。
 

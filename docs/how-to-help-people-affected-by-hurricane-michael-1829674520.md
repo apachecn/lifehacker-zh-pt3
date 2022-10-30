@@ -1,6 +1,6 @@
 # 如何帮助受飓风迈克尔影响的人们
 
-> 原文:[https://life hacker . com/how-to-help-people-affected-by-hurricane-Michael-1829674520](https://lifehacker.com/how-to-help-people-affected-by-hurricane-michael-1829674520)
+> 原文：<https://lifehacker.com/how-to-help-people-affected-by-hurricane-michael-1829674520>
 
 周三下午，佛罗里达州的狭长地带遭受了飓风迈克尔的袭击。它以 4 级飓风开始，并在到达佐治亚州时被列为 3 级——这在该地区是前所未有的。预计周四和周五北卡罗莱纳州将会有强风和暴雨。
 

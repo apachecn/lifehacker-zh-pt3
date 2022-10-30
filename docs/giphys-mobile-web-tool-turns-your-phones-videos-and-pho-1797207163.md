@@ -1,6 +1,6 @@
 # Giphy 的移动网络工具可以将你手机上的视频和照片转换成 gif 格式
 
-> 原文:[https://life hacker . com/giphys-mobile-web-tool-turns-your-phos-videos-and-pho-1797207163](https://lifehacker.com/giphys-mobile-web-tool-turns-your-phones-videos-and-pho-1797207163)
+> 原文：<https://lifehacker.com/giphys-mobile-web-tool-turns-your-phones-videos-and-pho-1797207163>
 
 Giphy 是一个流行的 GIF 制作和分享平台，它今天发布了一个新的网络工具，可以让你直接从手机摄像头制作 GIF——不需要下载应用程序。
 

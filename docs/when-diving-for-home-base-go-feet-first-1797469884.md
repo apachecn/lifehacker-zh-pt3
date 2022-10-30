@@ -1,6 +1,6 @@
 # 滑向本垒板时，脚先滑
 
-> 原文:[https://life hacker . com/when-diving-for-home-base-go-foots-first-1797469884](https://lifehacker.com/when-diving-for-home-base-go-feet-first-1797469884)
+> 原文：<https://lifehacker.com/when-diving-for-home-base-go-feet-first-1797469884>
 
 紧接着上周的研究 [关于足球](http://lifehacker.com/with-new-proof-that-football-damages-your-brain-resear-1797314988) 中创伤性脑损伤的可怕流行——以及足球场上 [的球员可能潜伏的类似危险](http://lifehacker.com/with-new-proof-that-football-damages-your-brain-resear-1797314988)——又有了关于另一种球场危险的新研究:棒球中头部先滑。然而，这里的危险并不在于玩家的大脑，而主要在于他们手部脆弱的骨骼和肌腱，正如《纽约时报》本周报道的那样。T11】
 

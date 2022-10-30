@@ -1,6 +1,6 @@
 # 从零到连续 45 天:我如何养成每天锻炼的习惯
 
-> 原文:[https://life hacker . com/from-zero-to-45 days-in-a-row-how-build-a-habit-of-d-1769654337](https://lifehacker.com/from-zero-to-45-days-in-a-row-how-i-built-a-habit-of-d-1769654337)
+> 原文：<https://lifehacker.com/from-zero-to-45-days-in-a-row-how-i-built-a-habit-of-d-1769654337>
 
 今年，我把重点放在习惯上，帮助我建立新的技能和照顾我的健康。其中一个习惯就是每天早上做俯卧撑。我从完全不做俯卧撑，变成每天早上都做。当我写这篇文章时，我已经连续 45 天了。从零到一个多月不停歇，下面是我是怎么做到的。
 

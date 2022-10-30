@@ -1,6 +1,6 @@
 # 星巴克的秘密菜单有南瓜汁，或者类似的东西
 
-> 原文:[https://life hacker . com/the-Starbucks-secret-menu-has-pumpkin-juice-or-somethi-1819456465](https://lifehacker.com/the-starbucks-secret-menu-has-pumpkin-juice-or-somethi-1819456465)
+> 原文：<https://lifehacker.com/the-starbucks-secret-menu-has-pumpkin-juice-or-somethi-1819456465>
 
 如果南瓜香料拿铁不是基本的，不管出于什么原因，我们已经决定它们是基本的，但因为它们不是秘密，会怎么样？一种星巴克南瓜饮料怎么样？这种饮料非常不简单，甚至不在菜单上。
 

@@ -1,6 +1,6 @@
 # 将菜谱作为联系人存储在手机中，以便于访问
 
-> 原文:[https://life hacker . com/store-recipes-as-contacts-in-your-phone-for-easy-access-1797600314](https://lifehacker.com/store-recipes-as-contacts-in-your-phone-for-easy-access-1797600314)
+> 原文：<https://lifehacker.com/store-recipes-as-contacts-in-your-phone-for-easy-access-1797600314>
 
 也许你有一个精心组织的 Notes 应用程序，一张你最喜欢的食谱卡片的相框海报，或者一个像钢铁陷阱一样的头脑，可以将你的烹饪比例精确到茶匙。一定很好！
 

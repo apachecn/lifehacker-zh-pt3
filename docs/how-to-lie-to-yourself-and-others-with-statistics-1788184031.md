@@ -1,6 +1,6 @@
 # 如何用统计数据骗自己和别人
 
-> 原文:[https://life hacker . com/how-to-lie to yourself and others-with statistics-1788184031](https://lifehacker.com/how-to-lie-to-yourself-and-others-with-statistics-1788184031)
+> 原文：<https://lifehacker.com/how-to-lie-to-yourself-and-others-with-statistics-1788184031>
 
 误用统计数据是 [撒谎](https://en.wikipedia.org/wiki/Lies,_damned_lies,_and_statistics) 最有力的方法之一。通常，我们会教你如何 [避免误解统计数据](http://lifehacker.com/four-common-statistical-misconceptions-you-should-avoid-906056582#_ga=1.54570603.1347662518.1465819317) ，但是知道数字是如何被操纵的可以帮助你发现它何时发生。为此，我们将向你展示如何让数据支持你的任何错误想法。
 

@@ -1,6 +1,6 @@
 # 奶源不足？不要放弃母乳喂养
 
-> 原文:[https://life hacker . com/low-milk-supply-don-t-放弃-母乳喂养-just-yet-1730805989](https://lifehacker.com/low-milk-supply-don-t-give-up-breastfeeding-just-yet-1730805989)
+> 原文：<https://lifehacker.com/low-milk-supply-don-t-give-up-breastfeeding-just-yet-1730805989>
 
 如果你正在给婴儿哺乳，并且担心你没有足够的乳汁，有一些事情你需要知道:你的乳汁供应可能实际上没有问题——如果你有问题，有比朋友和家人可能提供的快速解决方案更好的解决方案。
 

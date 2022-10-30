@@ -1,6 +1,6 @@
 # 如何阅读巧克力标签以确保你买到最好的东西
 
-> 原文:[https://life hacker . com/how-to-read-chocolate-bar-labels-to-assure-you-get-1812498702](https://lifehacker.com/how-to-read-chocolate-bar-labels-to-make-sure-youre-get-1812498702)
+> 原文：<https://lifehacker.com/how-to-read-chocolate-bar-labels-to-make-sure-youre-get-1812498702>
 
 当你漫不经心地在巧克力货架上购物时，很容易认为货架上包装精美的东西都是高质量的，但事实并非总是如此。就像酒一样，花哨的包装并不总是意味着里面的东西是你想要的。然而，如果你不知道你在找什么，理解每个酒吧的产品描述会很复杂。
 

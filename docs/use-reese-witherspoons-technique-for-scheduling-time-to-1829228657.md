@@ -1,6 +1,6 @@
 # 使用瑞茜·威瑟斯彭的技巧来安排阅读时间
 
-> 原文:[https://life hacker . com/use-Reese-witherspoons-technique-for-scheduling-time-to-1829228657](https://lifehacker.com/use-reese-witherspoons-technique-for-scheduling-time-to-1829228657)
+> 原文：<https://lifehacker.com/use-reese-witherspoons-technique-for-scheduling-time-to-1829228657>
 
 对于那些以阅读为乐的人来说，找时间看书可能很难适应充满无尽任务的一天:工作、锻炼、孩子的活动和家务占据了我们的大部分时间；适应一本好书可能意味着牺牲另一本。
 

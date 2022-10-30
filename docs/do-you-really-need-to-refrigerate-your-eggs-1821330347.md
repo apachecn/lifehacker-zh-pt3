@@ -1,6 +1,6 @@
 # 你真的需要冷藏鸡蛋吗？
 
-> 原文:[https://the take out . com/do-you-really-need-冷藏你的鸡蛋-1821330347](https://thetakeout.com/do-you-really-need-to-refrigerate-your-eggs-1821330347)
+> 原文：<https://thetakeout.com/do-you-really-need-to-refrigerate-your-eggs-1821330347>
 
 如果你曾经出国旅行过，你可能会对其他国家对待鸡蛋的方式感到震惊:放在柜台上，在商店和市场上未经冷藏就出售。我们美国人将鸡蛋冷藏——并且被教导要害怕室温下的鸡蛋——那么为什么世界其他地方没有因鸡蛋中毒大规模爆发而死亡呢？
 

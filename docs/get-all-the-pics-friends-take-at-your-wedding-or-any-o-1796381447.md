@@ -1,6 +1,6 @@
 # 使用这个应用程序，立即获取朋友在你的婚礼上拍摄的所有照片
 
-> 原文:[https://life hacker . com/get-all-the-pics-friends-take-at-your wedding-or-any-o-1796381447](https://lifehacker.com/get-all-the-pics-friends-take-at-your-wedding-or-any-o-1796381447)
+> 原文：<https://lifehacker.com/get-all-the-pics-friends-take-at-your-wedding-or-any-o-1796381447>
 
 当然，活动摄影师很棒，但是你的婚礼和派对宾客用智能手机拍的那些照片呢？事后追踪这些伟大的图像可能会是一个巨大的痛苦，但不一定是这样。如果你让你的客人先下载这个应用程序，你将立即获得他们所有的照片，每个人都可以在他们的 iPhone 或 Android 设备上使用常规的相机应用程序拍照。
 

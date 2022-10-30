@@ -1,6 +1,6 @@
 # EasyEmail 扩展为 Gmail 带来了更好的自动回复
 
-> 原文:[https://life hacker . com/easy mail-extension-brings-better-automatic-replies-to-g-1823615193](https://lifehacker.com/easymail-extension-brings-better-automatic-replies-to-g-1823615193)
+> 原文：<https://lifehacker.com/easymail-extension-brings-better-automatic-replies-to-g-1823615193>
 
 开始一封电子邮件可能很难，但当你在本周第九次对一个问题发送相同的回复后变得疯狂时，感觉更糟。如果你想在回复不断增长的收件箱中的邮件时得到一些帮助， [EasyEmail](https://www.easyemail.ai/) 使用机器学习(以及你的电子邮件数据)来自动生成你懒得自己键入的潜在回复。(Chrome 扩展的功能是否值得轻度侵犯隐私，取决于你。)
 

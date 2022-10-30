@@ -1,6 +1,6 @@
 # Sonos 扬声器终于得到了我们期待已久的 Airplay 2 支持
 
-> 原文:[https://gizmodo . com/sonos-speakers-finally-get-the-airplay-2-support-weve-b-1827511266](https://gizmodo.com/sonos-speakers-finally-get-the-airplay-2-support-weve-b-1827511266)
+> 原文：<https://gizmodo.com/sonos-speakers-finally-get-the-airplay-2-support-weve-b-1827511266>
 
 在有点过早地宣布支持 Airplay 2 之后，Sonos 终于更新了一些扬声器，以支持 Airplay 2。这意味着你的 iOS 设备现在可以为更多的智能扬声器带来音乐管理和多房间音频功能， [，包括最新的 Beam soundbar](https://gizmodo.com/sonos-beam-is-a-great-smart-soundbar-for-not-too-much-m-1827151416) 。有了 Sonos 扬声器上的 Airplay 2，现在你可以告诉 Siri 调低音量，而不是用你那些笨拙的手指来做。
 

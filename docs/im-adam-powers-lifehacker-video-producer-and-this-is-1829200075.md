@@ -1,6 +1,6 @@
 # 我是 Adam Powers，Lifehacker 视频制作人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Adam-powers-life hacker-video-producer-and-this-is-1829200075](https://lifehacker.com/im-adam-powers-lifehacker-video-producer-and-this-is-1829200075)
+> 原文：<https://lifehacker.com/im-adam-powers-lifehacker-video-producer-and-this-is-1829200075>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是亚当·鲍尔斯，这就是我的工作方式。
 

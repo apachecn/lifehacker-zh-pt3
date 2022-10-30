@@ -1,6 +1,6 @@
 # 你应该对寨卡病毒有多担心？
 
-> 原文:[https://life hacker . com/your-non-warming-guide-to-the-zika-virus-1756627224](https://lifehacker.com/your-non-alarmist-guide-to-the-zika-virus-1756627224)
+> 原文：<https://lifehacker.com/your-non-alarmist-guide-to-the-zika-virus-1756627224>
 
 寨卡病毒被怀疑导致巴西婴儿大脑缺陷，今年夏天可能开始在美国南部出现。已经是 [对旅行者](https://lifehacker.com/stay-away-from-these-countries-if-you-re-pregnant-says-1753582450) 的关注， [世界卫生组织](http://www.who.int/) 认为此次疫情为 [全球紧急](http://www.who.int/mediacentre/news/statements/2016/1st-emergency-committee-zika/en/) 。不要惊慌，但一定要储备杀虫剂。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:4 月 1 日至 8 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-April-1-to-8-1769860049](https://lifehacker.com/this-weeks-most-popular-posts-april-1st-to-8th-1769860049)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-april-1st-to-8th-1769860049>
 
 如果你像我一样是一个令人难以忍受的千禧一代，你现在很有可能已经放弃了有线电视，转而支持网飞和 HBO 等在线流媒体服务。但是选择半打视频网站而不是有线电视真的省钱吗？没有。除此之外，还有第一次约会的恐怖故事、PS4 遥控游戏等等。
 

@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我在镇上最好的比萨饼店被错误地指控了
 
-> 原文:[https://the take out . com/I-was-was-innoced-in-my-towns-best-pizzeria-1828752075](https://thetakeout.com/i-was-wrongly-accused-at-my-towns-best-pizzeria-1828752075)
+> 原文：<https://thetakeout.com/i-was-wrongly-accused-at-my-towns-best-pizzeria-1828752075>
 
 > 最近我带我的孩子去了一家比萨饼店，那是我通常在星期五和同事一起去的地方。像许多餐馆一样，你在柜台下订单并付款，然后他们给你送来切片。于是，和往常一样，我点了菜，付了钱，拿了我们的肉片，吃了，然后离开了。在去取车的路上，有一个工人跑出来指责我吃饭和急奔。他说没人见过我付钱。
 > 

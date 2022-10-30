@@ -1,6 +1,6 @@
 # 使用妈咪-gram 通过 Alexa 给你的孩子发短信
 
-> 原文:[https://life hacker . com/text-your-tuckly-through-Alexa-using-mummy-gram-1827421212](https://lifehacker.com/text-your-toddler-through-alexa-using-mommy-gram-1827421212)
+> 原文：<https://lifehacker.com/text-your-toddler-through-alexa-using-mommy-gram-1827421212>
 
 你可能不想给你蹒跚学步的孩子一部手机，但是在会议间隙给你在家的孩子发一条信息或者得到那个非常重要的“麦片在哪里？!"通过短信而不是十几个电话传递信息可能会很好。
 

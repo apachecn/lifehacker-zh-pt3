@@ -1,6 +1,6 @@
 # 谷歌像素集体诉讼:你需要知道什么
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-the-Google-pixel-class-1822843434](https://lifehacker.com/everything-you-need-to-know-about-the-google-pixel-clas-1822843434)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-the-google-pixel-clas-1822843434>
 
 如果你买了第一代 [谷歌像素](https://lifehacker.com/10-useful-hidden-features-on-google-s-pixel-phone-1789809296) 手机，你可能会得到一些钱。针对这家科技巨头的新的 [集体诉讼](https://lifehacker.com/how-do-i-know-if-im-part-of-a-class-action-lawsuit-5866351) 称，该公司知道该设备的麦克风有问题，并将其作为高端智能手机出售。
 

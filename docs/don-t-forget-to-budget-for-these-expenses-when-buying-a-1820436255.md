@@ -1,6 +1,6 @@
 # 买车的时候别忘了预算这些费用
 
-> 原文:[https://life hacker . com/don ' t-forget-to-budget-the-budget-that-when-buying-a-1820436255](https://lifehacker.com/don-t-forget-to-budget-for-these-expenses-when-buying-a-1820436255)
+> 原文：<https://lifehacker.com/don-t-forget-to-budget-for-these-expenses-when-buying-a-1820436255>
 
 汽车很贵，它们巨大的价格标签超过了你在当地经销店橱窗里看到的标价。司机要支付一些日常费用，所以如果你想买车，别忘了为这些做预算。
 

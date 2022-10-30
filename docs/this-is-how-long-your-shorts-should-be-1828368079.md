@@ -1,6 +1,6 @@
 # 这是你短裤的长度
 
-> 原文:[https://life hacker . com/this-is-how-long-of-your-shorts-be-1828368079](https://lifehacker.com/this-is-how-long-your-shorts-should-be-1828368079)
+> 原文：<https://lifehacker.com/this-is-how-long-your-shorts-should-be-1828368079>
 
 自命不凡但却赚得盆满钵满的男士网站 *GQ* [已经为男士短裤](https://www.gq.com/story/the-formula-for-the-perfect-length-shorts) 找到了正确的长度。长度取决于两个因素:你的客观身高，以及你对自己大腿的感觉有多好。GQ 有一个简单的图表，可以将这两个尺寸转换成你理想的短裤长度。你必须点击才能看到它，因为我们太善良了，不会偷它。
 

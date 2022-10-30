@@ -1,6 +1,6 @@
 # 我们应该做哪个面条砂锅？
 
-> 原文:[https://life hacker . com/which-noodle-砂锅-should-we-make-1828301779](https://lifehacker.com/which-noodle-casserole-should-we-make-1828301779)
+> 原文：<https://lifehacker.com/which-noodle-casserole-should-we-make-1828301779>
 
 大家好，欢迎回到 [*将它砂锅*](https://lifehacker.com/tag/will-it-casserole) ，在这个栏目里我们看到哪些饭菜、菜肴、菜系可以重新想象，改造成砂锅。
 

@@ -1,6 +1,6 @@
 # 我是杰森·科特基，Kottke.org 的创造者，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-Jason-kottke-creator-of-kottke-org-and-this-is-how-1828132697](https://lifehacker.com/im-jason-kottke-creator-of-kottke-org-and-this-is-how-1828132697)
+> 原文：<https://lifehacker.com/im-jason-kottke-creator-of-kottke-org-and-this-is-how-1828132697>
 
 杰森·科特基知道如何找到让你停下来，看一看，想一想的东西。当你访问他的博客[【kottke.org】](http://kottke.org/)时，你会觉得自己进入了互联网上一个罕见的世外桃源——这是一个探索网络上尚未在你的脸书 feed 上分享 23 次的新奇事物的地方。(近期帖子有 [五金店的历史与未来](https://kottke.org/18/08/the-history-and-future-of-the-hardware-store) 、 [用分形镜头拍摄的东京照片](https://kottke.org/18/08/photos-of-tokyo-taken-with-a-fractal-lens-look-incredibly-futuristic) 、 [“橙”的词源杰森有两个孩子，奥利和米娜。这是他为人父母的方式。](https://kottke.org/18/08/the-etymology-of-orange-which-came-first-the-color-or-the-fruit) 
 

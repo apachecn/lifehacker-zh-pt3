@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我生病的岳母是一个有毒的噩梦
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-ailing-婆婆是有毒的 ni-1828888205](https://kotaku.com/ask-dr-nerdlove-my-ailing-mother-in-law-is-a-toxic-ni-1828888205)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-ailing-mother-in-law-is-a-toxic-ni-1828888205>
 
 你好所有你死不瞑目的爱情结节，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，一个超越《合金装备》的约会建议专栏。
 

@@ -1,6 +1,6 @@
 # NES 不发音为 N.E.S
 
-> 原文:[https://lifehacker.com/nes-isnt-pronounced-n-e-s-1828130155](https://lifehacker.com/nes-isnt-pronounced-n-e-s-1828130155)
+> 原文：<https://lifehacker.com/nes-isnt-pronounced-n-e-s-1828130155>
 
 人们怎么发音，单词就怎么发音，坚持不发音就是打一场失败的仗。这就是为什么[“giff”和“jiff”同样有效](https://lifehacker.com/lets-end-the-gif-jif-pronunciation-debate-right-now-1796419121#_ga=2.24661562.1421609258.1533563148-1297080755.1497980211) 。但对于那些关心的人来说，根据任天堂 3DS 新游戏，NES(任天堂经典娱乐系统)发音为“ness”
 

@@ -1,6 +1,6 @@
 # 如何在对足球一无所知的情况下通过超级碗比赛
 
-> 原文:[https://life hacker . com/how-to-fake your-way-without-kno-1757237457](https://lifehacker.com/how-to-fake-your-way-through-the-super-bowl-without-kno-1757237457)
+> 原文：<https://lifehacker.com/how-to-fake-your-way-through-the-super-bowl-without-kno-1757237457>
 
 超级碗是周日，因此开始了古老的传统，那些不关心足球或相关球队的人聚集在一起观看这场重大比赛。如果你想玩得开心，而不是仅仅喝得烂醉，吃五个小时的玉米片，这里有你需要知道的一切来伪装自己。
 

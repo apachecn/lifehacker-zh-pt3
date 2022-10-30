@@ -1,6 +1,6 @@
 # 知道中暑和中暑的区别
 
-> 原文:[https://life hacker . com/know-the-signs of-heat-exhaustion-and-heat-stroke-1827388999](https://lifehacker.com/know-the-signs-of-heat-exhaustion-and-heat-stroke-1827388999)
+> 原文：<https://lifehacker.com/know-the-signs-of-heat-exhaustion-and-heat-stroke-1827388999>
 
 随着破纪录的热浪炙烤太平洋西北部，重要的是不仅保持相对凉爽，而且积极避免经历中暑衰竭和更严重的中暑。了解这两者的迹象可以帮助保护你和你的朋友和家人 的安全。
 

@@ -1,6 +1,6 @@
 # 你现在能找到的最好的 Youtube 频道
 
-> 原文:[https://life hacker . com/the-best-YouTube-channels-you-can-work-out-to-right-now-1751069875](https://lifehacker.com/the-best-youtube-channels-you-can-work-out-to-right-now-1751069875)
+> 原文：<https://lifehacker.com/the-best-youtube-channels-you-can-work-out-to-right-now-1751069875>
 
 天气很冷。 [健身房里挤满了](http://vitals.lifehacker.com/how-to-work-out-when-the-gym-is-crowded-1750419523) 。还不如呆在家里看视频...*锻炼*视频。以下是一些我们最喜欢的在 YouTube 上健身的方法。
 

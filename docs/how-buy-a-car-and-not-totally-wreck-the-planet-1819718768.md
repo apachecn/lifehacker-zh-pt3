@@ -1,6 +1,6 @@
 # 如何购买一辆汽车，而不完全破坏地球
 
-> 原文:[https://gizmodo . com/how-buy-a-car-and-not-total-wreck-the-planet-1819718768](https://gizmodo.com/how-buy-a-car-and-not-totally-wreck-the-planet-1819718768)
+> 原文：<https://gizmodo.com/how-buy-a-car-and-not-totally-wreck-the-planet-1819718768>
 
 对绝大多数美国人来说，汽车是一种生活方式。大多数人住在郊区或城市，那里人口不够稠密，没有良好的公共交通。
 

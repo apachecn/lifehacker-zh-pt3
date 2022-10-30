@@ -1,6 +1,6 @@
 # 苹果手表现在好了
 
-> 原文:[https://gizmodo.com/the-apple-watch-is-good-now-1819048405](https://gizmodo.com/the-apple-watch-is-good-now-1819048405)
+> 原文：<https://gizmodo.com/the-apple-watch-is-good-now-1819048405>
 
 Apple Watch Series 3 对于智能手表来说贵得离谱——比最接近的竞争对手贵 100 美元。许多第三方应用程序仍然慢得足以把正常人逼到悬崖边。充电一次也只能维持一天。我应该讨厌这块手表和它所代表的一切，但戴了三个星期后，我如此着迷，以至于我实际上在鼓励其他人购买这块愚蠢的小方块。Apple Watch Series 3 是第一款真正值得购买的智能手表。
 

@@ -1,6 +1,6 @@
 # 阅读这些传奇的 Reddit 评论
 
-> 原文:[https://life hacker . com/read-these-legendary-Reddit-comment-threads-1826834461](https://lifehacker.com/read-these-legendary-reddit-comment-threads-1826834461)
+> 原文：<https://lifehacker.com/read-these-legendary-reddit-comment-threads-1826834461>
 
 [“Reddit，有什么传说中的评论帖是大家都应该看的？”](https://www.reddit.com/r/AskReddit/comments/8qx0ar/reddit_what_is_a_legendary_comment_thread_that/) 带着这个问题，redditor myawesomeself 为一个伟大的评论线程的佳能的发展打开了地板。有些发生在 Reddit 上，有些在博客上，有些在健美论坛上。这是这次盛会的最佳选择。
 

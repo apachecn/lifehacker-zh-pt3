@@ -1,6 +1,6 @@
 # 根据我们的读者，清醒的十月最好的饮料
 
-> 原文:[https://life hacker . com/the-best-drinks-for-sober-October-your-our-rea-1829451290](https://lifehacker.com/the-best-drinks-for-sober-october-according-to-our-rea-1829451290)
+> 原文：<https://lifehacker.com/the-best-drinks-for-sober-october-according-to-our-rea-1829451290>
 
 现在是清醒的十月，这意味着很多人，出于这样或那样的原因，会有一个月的时间不喝酒。虽然我喜欢成人饮料，但休息一下也是有价值的，我会在这里支持你的努力。
 

@@ -1,6 +1,6 @@
 # 对付专横同事的四种方法
 
-> 原文:[https://life hacker . com/four-way-to-deal-a-bossy-co-worker-1791839302](https://lifehacker.com/four-ways-to-deal-with-a-bossy-coworker-1791839302)
+> 原文：<https://lifehacker.com/four-ways-to-deal-with-a-bossy-coworker-1791839302>
 
 你有一个同事，用外交辞令来说，很难控制自己的 [领导倾向](https://www.themuse.com/advice/5-ways-to-keep-your-leadership-tendencies-in-check-when-youre-not-in-charge) 。换句话说，他对待你就像他是老板。他提供大量建设性的反馈(即使你没有要求)，在团队项目中划分角色(给自己最好的一个)，并取消任何其他人发言的机会。
 

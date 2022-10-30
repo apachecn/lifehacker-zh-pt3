@@ -1,6 +1,6 @@
 # 如何清洁你的速溶锅圈
 
-> 原文:[https://life hacker . com/how-to-clean-your-instant-pot-ring-1822165776](https://lifehacker.com/how-to-clean-your-instant-pot-ring-1822165776)
+> 原文：<https://lifehacker.com/how-to-clean-your-instant-pot-ring-1822165776>
 
 速食锅最大的好处之一就是你可以在里面煮各种各样的食物，有甜的也有咸的。速溶壶的一个不太好的地方是，橡胶密封圈容易吸附各种气味，既难闻又刺鼻。
 

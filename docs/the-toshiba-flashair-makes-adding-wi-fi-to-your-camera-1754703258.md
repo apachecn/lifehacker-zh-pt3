@@ -1,6 +1,6 @@
 # 东芝 FlashAir 让给你的相机添加 Wi-Fi 变得非常简单
 
-> 原文:[https://life hacker . com/the-Toshiba-flash air-makes-adding-wi-fi-to-your-camera-1754703258](https://lifehacker.com/the-toshiba-flashair-makes-adding-wi-fi-to-your-camera-1754703258)
+> 原文：<https://lifehacker.com/the-toshiba-flashair-makes-adding-wi-fi-to-your-camera-1754703258>
 
 Wi-Fi SD 卡已经存在了相当长的一段时间，但它们实际上并没有那么好。在四处挖掘之后，我决定试用一下 [东芝的 32 GB FlashAir Wi-Fi 卡](http://www.toshiba-memory.com/cms/en/products/wireless-sd-cards/FlashAir/) ，令我惊讶的是，它的效果很好，只要你保持你的期望。
 

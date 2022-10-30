@@ -1,6 +1,6 @@
 # 告诉我们你最好的爱丁堡旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Edinburgh-travel-tips-1828095330](https://lifehacker.com/tell-us-your-best-edinburgh-travel-tips-1828095330)
+> 原文：<https://lifehacker.com/tell-us-your-best-edinburgh-travel-tips-1828095330>
 
 我们已经晚了几天去边缘艺术节了，但是还有时间！在本周的《黑客你的城市》节目中，我们想听听爱丁堡现在和全年有什么好的。(我们本打算在 [中发表整篇文章，拼出在迷因中非常流行的苏格兰方言](http://www.collegehumor.com/post/7043353/16-scottish-people-twitter-tweets-that-are-hilarious-if-you-can-understand-them) ，但后来我们决定我们不能继续这样做，所以不客气。)
 

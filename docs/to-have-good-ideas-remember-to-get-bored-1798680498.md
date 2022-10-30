@@ -1,6 +1,6 @@
 # 要有好的想法，记得要无聊
 
-> 原文:[https://life hacker . com/to-have-good-ideas-remember-to-get-bored-1798680498](https://lifehacker.com/to-have-good-ideas-remember-to-get-bored-1798680498)
+> 原文：<https://lifehacker.com/to-have-good-ideas-remember-to-get-bored-1798680498>
 
 我粗暴地对待我的耳塞，所以每隔一两年它们就会坏掉。每次，当我在没有 Spotify 和 podcasts 音乐的世界中漫步时，我都会对自己说，“我真的应该更经常这样做。”然后我有想法了。
 

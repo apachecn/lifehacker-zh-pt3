@@ -1,6 +1,6 @@
 # 如何在淡季前享用这些令人兴奋的柑橘
 
-> 原文:[https://life hacker . com/how-to-enjoy-before-the-out-of-1761419926](https://lifehacker.com/how-to-enjoy-these-exciting-citrus-before-theyre-out-of-1761419926)
+> 原文：<https://lifehacker.com/how-to-enjoy-these-exciting-citrus-before-theyre-out-of-1761419926>
 
 柑橘类水果尝起来可能像阳光，但一年中较冷的月份是品尝快乐的季节。你肯定对橙子、柠檬、酸橙和柚子很熟悉，但血橙或佛手呢？还有很多更有趣的标本，这些是最好的一些。
 

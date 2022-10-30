@@ -1,6 +1,6 @@
 # 如何理解你混乱而昂贵的医疗账单
 
-> 原文:[https://life hacker . com/how-to-navigate-the-following-and-friendly-of-me-world 1765507579](https://lifehacker.com/how-to-navigate-the-confusing-and-expensive-world-of-me-1765507579)
+> 原文：<https://lifehacker.com/how-to-navigate-the-confusing-and-expensive-world-of-me-1765507579>
 
 在去过急诊室或任何严重的医疗程序后不久，账单就开始出现在邮件中。有些看起来像是重复的，许多难以辨认，有些实际上根本不是钞票。在有人来找你不知道你欠了多少钱之前，如何破译和识别所有这些令人困惑的文件。
 

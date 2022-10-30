@@ -1,6 +1,6 @@
 # 褪色的逃亡桌面
 
-> 原文:[https://lifehacker.com/the-faded-getaway-desktop-1782502108](https://lifehacker.com/the-faded-getaway-desktop-1782502108)
+> 原文：<https://lifehacker.com/the-faded-getaway-desktop-1782502108>
 
 [Ciysco](http://kinja.com/ciysco) 向我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 提交了这个定制的桌面，我们很喜欢。不错的壁纸，角落里褪色的应用启动器，还有可视化工具。它看起来很锋利——以下是你如何让它成为你自己的。
 

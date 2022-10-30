@@ -1,6 +1,6 @@
 # 如何在 Gmail 的 Android 应用程序中自定义滑动
 
-> 原文:[https://life hacker . com/how-to-customize-what-swipes-do-in-Gmail-Android-app-1826716597](https://lifehacker.com/how-to-customize-what-swipes-do-in-gmails-android-app-1826716597)
+> 原文：<https://lifehacker.com/how-to-customize-what-swipes-do-in-gmails-android-app-1826716597>
 
 本周，谷歌推出了几个安卓版的 Gmail，同时还推出了一项新功能，允许你自定义左右滑动收件箱中的邮件时会发生什么。
 

@@ -1,6 +1,6 @@
 # 去问 NerdLove 博士:我被困住了，不知道该怎么办
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-was-cat fished-and-I-don-know-what-1782168111](https://kotaku.com/ask-dr-nerdlove-i-was-catfished-and-i-don-t-know-what-1782168111)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-was-catfished-and-i-don-t-know-what-1782168111>
 
 你好，快乐的网络变态们！欢迎来到  
 

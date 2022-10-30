@@ -1,6 +1,6 @@
 # 如果你觉得自己在工作中受到了歧视，该怎么办
 
-> 原文:[https://life hacker . com/how-to-handle-discrimina tion-in-work-1741693932](https://lifehacker.com/how-to-handle-discrimination-at-work-1741693932)
+> 原文：<https://lifehacker.com/how-to-handle-discrimination-at-work-1741693932>
 
 工作场所的歧视，无论是种族、民族、性别、残疾、性取向、年龄还是宗教歧视，都不是闹着玩的，处理歧视也不像“找律师”那么简单。在你走法律途径之前，这里有一些你应该知道的事情。
 

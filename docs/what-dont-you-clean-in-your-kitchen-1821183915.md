@@ -1,6 +1,6 @@
 # 你厨房里有什么不清理的？
 
-> 原文:[https://life hacker . com/what-don-t-you-clean-in-your-kitchen-1821183915](https://lifehacker.com/what-dont-you-clean-in-your-kitchen-1821183915)
+> 原文：<https://lifehacker.com/what-dont-you-clean-in-your-kitchen-1821183915>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周我想谈谈清洁，或者说，那些你不(或很少)清洁的东西。
 

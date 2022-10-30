@@ -1,6 +1,6 @@
 # 这种杠铃锻炼将在 20 分钟或更短的时间内踢你的屁股
 
-> 原文:[https://life hacker . com/this-barbell-workout-will-kick-o-1795836736](https://lifehacker.com/this-barbell-workout-will-kick-your-ass-in-20-minutes-o-1795836736)
+> 原文：<https://lifehacker.com/this-barbell-workout-will-kick-your-ass-in-20-minutes-o-1795836736>
 
 有时候我就是不想在健身房锻炼一个小时。你知道吗？有时候锻炼不需要 [甚至不需要那么长的](http://thefyslife.com/article/upper-body-beach-workout-hawaii/) 。每当我想进出健身房，但仍能增强力量和耐力时，我的首选就是这种具有挑战性、让人喘不过气来的锻炼，称为杠铃综合练习。
 

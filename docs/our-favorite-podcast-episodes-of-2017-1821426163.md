@@ -1,6 +1,6 @@
 # 2017 年我们最喜欢的播客剧集
 
-> 原文:[https://life hacker . com/our-favorite-podcast-eptions-of-2017-1821426163](https://lifehacker.com/our-favorite-podcast-episodes-of-2017-1821426163)
+> 原文：<https://lifehacker.com/our-favorite-podcast-episodes-of-2017-1821426163>
 
 在 Lifehacker，播客是我们最喜欢的使用耳朵的方式。在过去的 中，我们已经 [与你分享了我们最喜欢的节目，但有时某些剧集确实会在我们的脑海中浮现。这些强有力的播客剧集让我们在 2017 年思考、欢笑、哭泣、反思，甚至不寒而栗。](https://lifehacker.com/the-lifehacker-staffs-favorite-podcasts-1818732510) 
 

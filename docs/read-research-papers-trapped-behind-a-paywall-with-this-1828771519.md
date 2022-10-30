@@ -1,6 +1,6 @@
 # 使用 Chrome 扩展阅读被困在付费墙后的研究论文
 
-> 原文:[https://life hacker . com/read-research-papers-trapped-behind-a-pay wall-with-this-1828771519](https://lifehacker.com/read-research-papers-trapped-behind-a-paywall-with-this-1828771519)
+> 原文：<https://lifehacker.com/read-research-papers-trapped-behind-a-paywall-with-this-1828771519>
 
 大约一半的时间，我去看我在新闻报道中读到的一项研究，实际的研究被困在付费墙后面。
 

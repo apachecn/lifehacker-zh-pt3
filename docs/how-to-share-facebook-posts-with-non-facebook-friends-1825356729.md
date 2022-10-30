@@ -1,6 +1,6 @@
 # 如何与非脸书朋友分享脸书帖子
 
-> 原文:[https://life hacker . com/how-to-share-Facebook-posts-with-non-Facebook-friends-1825356729](https://lifehacker.com/how-to-share-facebook-posts-with-non-facebook-friends-1825356729)
+> 原文：<https://lifehacker.com/how-to-share-facebook-posts-with-non-facebook-friends-1825356729>
 
 尽管脸书很普遍，但并不是每个人都使用社会服务。也许他们讨厌社交网络，或者他们对脸书持续的隐私感到失望，或者他们不了解技术。在本周的《科技 911》中，一位读者询问他们如何在脸书(多少)有围墙的花园之外分享内容。
 

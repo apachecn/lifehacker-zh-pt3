@@ -1,6 +1,6 @@
 # 这款免费的三星手机广告拦截器还可以杀死膨胀软件和管理应用权限
 
-> 原文:[https://life hacker . com/this-free-ad-blocker-for-Samsung-phones-also-kills-bloa-1823927074](https://lifehacker.com/this-free-ad-blocker-for-samsung-phones-also-kills-bloa-1823927074)
+> 原文：<https://lifehacker.com/this-free-ad-blocker-for-samsung-phones-also-kills-bloa-1823927074>
 
 有大量的 [伟大的广告拦截器](https://lifehacker.com/the-best-browser-extensions-that-protect-your-privacy-479408034) 可供选择，但大多数只是删除广告或者用 [一些不那么令人反感的](https://lifehacker.com/this-ad-blocker-replaces-ads-with-affirmations-1796024324) 代替。如果你正在寻找一个可以做得更多的广告拦截器(如果你有一部三星手机)，这里有一个新的应用程序值得一试。
 

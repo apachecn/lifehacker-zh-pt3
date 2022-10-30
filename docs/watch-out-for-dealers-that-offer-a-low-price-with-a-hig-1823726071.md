@@ -1,6 +1,6 @@
 # 小心那些低价高息的经销商
 
-> 原文:[https://jalopnik . com/小心出价高的经销商 1823726071](https://jalopnik.com/watch-out-for-dealers-that-offer-a-low-price-with-a-hig-1823726071)
+> 原文：<https://jalopnik.com/watch-out-for-dealers-that-offer-a-low-price-with-a-hig-1823726071>
 
 买车应该没那么复杂吧。你货比三家，得到报价，然后购买。尽管如此，我们都知道这并不简单，因为一些交易商会使用各种欺骗性和令人厌倦的策略，让他们的报价看起来是最好的，而实际上可能不是，包括将疯狂的低价与疯狂的高利率结合起来。
 

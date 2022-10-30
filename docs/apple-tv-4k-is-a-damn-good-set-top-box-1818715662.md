@@ -1,6 +1,6 @@
 # 苹果电视 4K 是一个非常好的机顶盒
 
-> 原文:[https://gizmodo . com/apple-TV-4k-is-a-damn-good-top-box-1818715662](https://gizmodo.com/apple-tv-4k-is-a-damn-good-set-top-box-1818715662)
+> 原文：<https://gizmodo.com/apple-tv-4k-is-a-damn-good-set-top-box-1818715662>
 
 自发布以来的几年里，Apple TV 经常落后于竞争对手，似乎被苹果遗忘，而青睐手机、电脑甚至手表。当你注意到 4K 派对已经很晚了，苹果电视在苹果销售清单上的“另类”地位就显而易见了。 [Roku 去年推出了 4K 盒子](https://gizmodo.com/roku-premiere-and-ultra-are-better-than-the-competitio-1787662906)Nvidia 两年前推出了基于安卓系统的盒子 。幸运的是(对苹果粉丝来说),苹果电视 4K 是如此的完美，以至于感觉等待是值得的。
 

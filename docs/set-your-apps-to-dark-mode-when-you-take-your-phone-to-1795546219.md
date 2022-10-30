@@ -1,6 +1,6 @@
 # 当你把手机拿到床上时，把你的应用程序设置成黑暗模式
 
-> 原文:[https://life hacker . com/set-your-apps-to-dark mode-when you-take-your-phone-to-1795546219](https://lifehacker.com/set-your-apps-to-dark-mode-when-you-take-your-phone-to-1795546219)
+> 原文：<https://lifehacker.com/set-your-apps-to-dark-mode-when-you-take-your-phone-to-1795546219>
 
 躺在床上看手机会破坏你的睡眠时间表。但是，如果你像我一样，无论如何都要这样做，那就学会在不感觉盯着太阳(或打扰你睡觉的伴侣)的情况下这样做，在每个提供“黑暗模式”的应用程序上启用它。
 

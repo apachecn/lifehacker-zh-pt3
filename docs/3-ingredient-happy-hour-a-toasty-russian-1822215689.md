@@ -1,6 +1,6 @@
 # 三要素快乐时光:一个热情的俄罗斯人
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-toast-Russian-1822215689](https://lifehacker.com/3-ingredient-happy-hour-a-toasty-russian-1822215689)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-toasty-russian-1822215689>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我采纳了一位非常聪明的评论者的建议，将 [烤奶油](https://skillet.lifehacker.com/toasted-cream-is-the-new-brown-butter-1822132328)——本周早些时候一个非常受欢迎的话题——融入到我们的欢乐时光中。
 

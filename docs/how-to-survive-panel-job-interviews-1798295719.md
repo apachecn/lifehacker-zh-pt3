@@ -1,6 +1,6 @@
 # 如何在小组面试中生存
 
-> 原文:[https://life hacker . com/how-to-survive-panel-job-visities-1798295719](https://lifehacker.com/how-to-survive-panel-job-interviews-1798295719)
+> 原文：<https://lifehacker.com/how-to-survive-panel-job-interviews-1798295719>
 
 一对一的工作面试已经够紧张的了，再加上三到五个人都坐在你的对面，向你提问，你就有了一些人最糟糕的噩梦。没有人认为这是一段美好的时光，但是只要做一点准备和练习，你就会成为一个自信、优秀的候选人，尽管面试形式令人生畏。
 

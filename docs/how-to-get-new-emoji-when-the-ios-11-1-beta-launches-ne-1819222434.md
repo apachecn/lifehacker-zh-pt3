@@ -1,6 +1,6 @@
 # 下周 iOS 11.1 测试版发布时如何获得新的表情符号
 
-> 原文:[https://life hacker . com/how-to-get-new-e moji-when-the-IOs-11-1-beta-launchs-ne-1819222434](https://lifehacker.com/how-to-get-new-emoji-when-the-ios-11-1-beta-launches-ne-1819222434)
+> 原文：<https://lifehacker.com/how-to-get-new-emoji-when-the-ios-11-1-beta-launches-ne-1819222434>
 
 苹果上个月刚刚发布了 [iOS 11](https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209) ，但是对于 [表情符号粉丝](https://lifehacker.com/you-can-now-buy-a-novelty-emoji-friendly-domain-1797858058) 来说，真正重要的更新还在路上。iOS 11.1 将 [新增数百个新表情符号](https://beta.apple.com/sp/betaprogram/) ，下周公测即将到来。以下是您需要了解的关于更新以及如何尽快获得更新的信息。
 

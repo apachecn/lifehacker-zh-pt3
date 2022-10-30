@@ -1,6 +1,6 @@
 # 如果你租的车损坏了该怎么办
 
-> 原文:[https://jalopnik . com/1788862827](https://jalopnik.com/what-to-do-if-your-leased-car-gets-damaged-1788862827)
+> 原文：<https://jalopnik.com/what-to-do-if-your-leased-car-gets-damaged-1788862827>
 
 让你的车受损，即使是轻微的，也是一件麻烦事。没有人喜欢开着一辆破旧的车到处跑。然而，当你租一辆车时，你可能没有真正的动机去修理一辆你不拥有的车。你是否应该取决于情况。
 

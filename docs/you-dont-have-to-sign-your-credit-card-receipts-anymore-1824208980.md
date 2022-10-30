@@ -1,6 +1,6 @@
 # 你不用再在信用卡收据上签名了
 
-> 原文:[https://life hacker . com/you-don-t-do-to-sign-your-card-receipts-more-1824208980](https://lifehacker.com/you-dont-have-to-sign-your-credit-card-receipts-anymore-1824208980)
+> 原文：<https://lifehacker.com/you-dont-have-to-sign-your-credit-card-receipts-anymore-1824208980>
 
 如果你今天或昨天用过你的信用卡，你可能会注意到你不再需要花额外的 10 秒钟在你的收据上潦草的签名。
 

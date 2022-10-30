@@ -1,6 +1,6 @@
 # 如何在颠簸的飞行中保持冷静
 
-> 原文:[https://life hacker . com/how-to-stay-during-a turbulent-flight-1797250177](https://lifehacker.com/how-to-stay-calm-during-a-turbulent-flight-1797250177)
+> 原文：<https://lifehacker.com/how-to-stay-calm-during-a-turbulent-flight-1797250177>
 
 乱流的范围可以从令人讨厌到完全令人恐惧，你不必是一个焦虑的飞行员也会被它激怒。飞行时很难避免颠簸，但你可以控制如何应对颠簸。
 

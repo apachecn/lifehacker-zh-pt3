@@ -1,6 +1,6 @@
 # 做一批甜椒奶酪，用在任何东西上
 
-> 原文:[https://life hacker . com/make-this-one-batch-of-pimento-cheese-and-use-it-in-eve-1780206751](https://lifehacker.com/make-this-one-batch-of-pimento-cheese-and-use-it-in-eve-1780206751)
+> 原文：<https://lifehacker.com/make-this-one-batch-of-pimento-cheese-and-use-it-in-eve-1780206751>
 
 我在密西西比州长大，吃过很多甜椒奶酪，主要放在饼干上或夹在白面包的三明治里。如果这是我食用这种奇妙酱料的唯一两种方式，我会很高兴，但是甜椒奶酪可以有更多的用途。下面你会发现“南方鱼子酱”的多种美味用途
 

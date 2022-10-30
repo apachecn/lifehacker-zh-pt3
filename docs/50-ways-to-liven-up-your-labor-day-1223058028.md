@@ -1,6 +1,6 @@
 # 50 个有趣的项目来活跃你的劳动节
 
-> 原文:[https://life hacker . com/50-ways-to-liven-up-your-labour-day-1223058028](https://lifehacker.com/50-ways-to-liven-up-your-labor-day-1223058028)
+> 原文：<https://lifehacker.com/50-ways-to-liven-up-your-labor-day-1223058028>
 
 今天是美国和加拿大的劳动节，所以我们要好好放松一下。无论您是想利用休息时间提高工作效率、享用美食，还是只想放松放松，我们都能满足您的需求，让您的假期不会白白浪费。
 

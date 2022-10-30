@@ -1,6 +1,6 @@
 # 你的另类面粉奇异世界指南
 
-> 原文:[https://life hacker . com/your-guide-to-the-strange-world-of-alternative-flour-1773718053](https://lifehacker.com/your-guide-to-the-strange-world-of-alternative-flour-1773718053)
+> 原文：<https://lifehacker.com/your-guide-to-the-strange-world-of-alternative-flour-1773718053>
 
 面粉不仅仅由小麦制成。不仅有“替代”谷物粉，有些是用坚果、豆类，甚至土豆制成的。它们可能看起来只适合不含麸质、注重健康的人群，但如果使用得当，无麦面粉可能会令人惊叹。我们收集了一些，以及一些使用它们的好方法。
 

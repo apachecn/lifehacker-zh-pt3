@@ -1,6 +1,6 @@
 # 这些是目前网飞最恐怖的电影
 
-> 原文:[https://life hacker . com/these-is-Netflix-most-movies-right-now-1825022326](https://lifehacker.com/these-are-netflixs-scariest-movies-right-now-1825022326)
+> 原文：<https://lifehacker.com/these-are-netflixs-scariest-movies-right-now-1825022326>
 
 我喜欢好看的恐怖电影，不仅仅是因为它们对你有好处 。如果你正在寻找一部关于网飞的惊悚片或恐怖片，这些是目前该网站上最恐怖的电影。你能搞定他们吗？
 

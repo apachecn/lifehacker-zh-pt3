@@ -1,6 +1,6 @@
 # 使用此 Twitter 设置隐藏纳粹
 
-> 原文:[https://life hacker . com/hide-Nazis-with-this-Twitter-setting-1819414520](https://lifehacker.com/hide-nazis-with-this-twitter-setting-1819414520)
+> 原文：<https://lifehacker.com/hide-nazis-with-this-twitter-setting-1819414520>
 
 Twitter，一个 [验证纳粹](https://gizmodo.com/nazi-loving-white-nationalist-allowed-to-tweet-again-1789985562) 的社交媒体网站，在德法被法律要求 [隐藏纳粹内容和符号](https://en.wikipedia.org/wiki/Strafgesetzbuch_section_86a) 。你可以利用这一点，而不必搬到德国。
 

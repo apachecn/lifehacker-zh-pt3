@@ -1,6 +1,6 @@
 # 本周如何直播谷歌 I/O
 
-> 原文:[https://life hacker . com/how-to-live stream-Google-I-o-this-week-1825814626](https://lifehacker.com/how-to-livestream-google-i-o-this-week-1825814626)
+> 原文：<https://lifehacker.com/how-to-livestream-google-i-o-this-week-1825814626>
 
 谷歌年度开发者大会 Google I/O 于周二在加州山景城正式开幕。周二美国东部时间下午 1 点 10 分，谷歌首席执行官桑德尔·皮帅发表主题演讲，庆祝活动正式开始。
 

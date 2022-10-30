@@ -1,6 +1,6 @@
 # 学习撬锁让我知道门锁有多糟糕
 
-> 原文:[https://life hacker . com/learning-to-pick-lock-teached-me-how-蹩脚门锁-1750091711](https://lifehacker.com/learning-to-pick-locks-taught-me-how-crappy-door-locks-1750091711)
+> 原文：<https://lifehacker.com/learning-to-pick-locks-taught-me-how-crappy-door-locks-1750091711>
 
 大约一个月前，我捡到了 [一套](http://www.amazon.com/11-Piece-Unlocking-Extractor-Transparent-Practice/dp/B014PET8W2/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/learning-to-pick-locks-taught-me-how-crappy-door-locks-1750091711&asc_source=&ie=UTF8&keywords=lockpick set&qid=1451316534&sr=8-2&tag=kinjalifehackerlink-20) 训练开锁器。我一直很好奇撬锁是怎么工作的，到底有多难。在学习的过程中，我不仅发现它是多么容易，而且发现在保护我的家时，如何超越锁。
 

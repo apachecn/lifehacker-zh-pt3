@@ -1,6 +1,6 @@
 # 通过开始你的意图来记住你的梦想
 
-> 原文:[https://life hacker . com/try-this-easy-trick-if-you-want-to-remember-you-dreams-1819952293](https://lifehacker.com/try-this-easy-trick-if-you-want-to-remember-your-dreams-1819952293)
+> 原文：<https://lifehacker.com/try-this-easy-trick-if-you-want-to-remember-your-dreams-1819952293>
 
 在梦发生后记得你的梦，或者在做梦的时候意识到自己在梦里，这可能很有趣，但并不容易做到。
 

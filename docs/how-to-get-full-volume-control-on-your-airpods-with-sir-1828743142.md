@@ -1,6 +1,6 @@
 # 如何通过 Siri 控制 AirPods 的音量
 
-> 原文:[https://life hacker . com/how-to-get-full-volume-control-on-your-ai rpods-with-sir-1828743142](https://lifehacker.com/how-to-get-full-volume-control-on-your-airpods-with-sir-1828743142)
+> 原文：<https://lifehacker.com/how-to-get-full-volume-control-on-your-airpods-with-sir-1828743142>
 
 按照设计，改变苹果 AirPods 的音量需要使用手机上的音量按钮，或者使用 Siri 来提高或降低音量。iPhone 以 6%的增量调整音量，而 Siri 以 12-13%的增量调整音量。显然，这减少了您需要请求卷更改的次数，但也消除了细粒度的控制。怎么拿回来？
 

@@ -1,6 +1,6 @@
 # 别把你的滤油器拧得那么紧
 
-> 原文:[https://jalopnik . com/stop-screw-your-oil-filter-on so-damn-tight-1825757554](https://jalopnik.com/stop-screwing-your-oil-filter-on-so-damn-tight-1825757554)
+> 原文：<https://jalopnik.com/stop-screwing-your-oil-filter-on-so-damn-tight-1825757554>
 
 是时候大声抱怨困扰我多年的事情了:过度拧紧的 [滤油器](https://jalopnik.com/heres-why-engine-oil-filters-are-so-fascinating-1819726269) 。他们快把我逼疯了，经常把 10 分钟的工作变成艰苦的、满是油污的狗屎表演。所以，请允许我推荐一个解决方案:停止如此用力地转动你的机油滤清器。
 

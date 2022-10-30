@@ -1,6 +1,6 @@
 # 如何下载 Android 8.1 以在旧手机上获得 Pixel 2 功能
 
-> 原文:[https://life hacker . com/how-to-download-Android-8-1-which-bring-pixel-2-featu-1819876442](https://lifehacker.com/how-to-download-android-8-1-which-brings-pixel-2-featu-1819876442)
+> 原文：<https://lifehacker.com/how-to-download-android-8-1-which-brings-pixel-2-featu-1819876442>
 
 Android:[Pixel 2](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085)配备了 [的特殊功能](https://lifehacker.com/how-to-get-the-pixel-2s-new-camera-app-on-your-old-goog-1819447692) 超出了你从普通 Android 获得的功能，现在谷歌将这些额外的功能带到了装有 Android 8.1 的旧设备上。最新的更新要到 12 月才会正式发布，但是你现在不用太费力就可以下载第一个预览版。
 

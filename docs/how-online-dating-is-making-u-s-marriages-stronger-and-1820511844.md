@@ -1,6 +1,6 @@
 # 网上约会是如何让美国的婚姻更加牢固和多样化的
 
-> 原文:[https://life hacker . com/how-online-dating-is-making-u-s-marriages-strong-and-1820511844](https://lifehacker.com/how-online-dating-is-making-u-s-marriages-stronger-and-1820511844)
+> 原文：<https://lifehacker.com/how-online-dating-is-making-u-s-marriages-stronger-and-1820511844>
 
 曾几何时，我们只会和那些在我们的社交圈里已经有某种联系的人结婚。但是自从网上约会的出现，事情发生了变化。现在，人们正在创造以前不存在的社会联系，跨种族婚姻正在增加，在网上相遇的已婚夫妇更有可能在一起。
 

@@ -1,6 +1,6 @@
 # 如何在弹道导弹袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-ballistic-missile-attack-1822058548](https://lifehacker.com/how-to-survive-a-ballistic-missile-attack-1822058548)
+> 原文：<https://lifehacker.com/how-to-survive-a-ballistic-missile-attack-1822058548>
 
 今天早上夏威夷居民都收到了一个非常不受欢迎的推送通知:“夏威夷受到弹道导弹威胁。立即寻求庇护。这不是演习。”
 

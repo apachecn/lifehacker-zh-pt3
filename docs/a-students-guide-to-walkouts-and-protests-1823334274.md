@@ -1,6 +1,6 @@
 # 学生罢课和抗议指南
 
-> 原文:[https://life hacker . com/a-students-guide-to-罢课和抗议-1823334274](https://lifehacker.com/a-students-guide-to-walkouts-and-protests-1823334274)
+> 原文：<https://lifehacker.com/a-students-guide-to-walkouts-and-protests-1823334274>
 
 佛罗里达州帕克兰的校园枪击事件在全国范围内引发了一波学生运动:青少年正在游行、组织，并在社交媒体上向他们的代表施压，要求有意义的枪支立法。在过去的两周里，学生们走出学校进行抗议，还有更多的抗议活动正在计划中:计划于 3 月 14 日 [举行的抗议活动鼓励学生在上午 10 点走出教室，持续 17 分钟](https://offspring.lifehacker.com/walk-out-of-school-to-demand-safer-gun-laws-1823053578#_ga=2.68444245.590162503.1519654208-640366746.1501881373) ，为帕克兰遇害的每一个人默哀一分钟，以及 4 月 20 日 [全国高中的罢工](https://twitter.com/schoolwalkoutUS) ，这是科伦拜恩大学 19 周年纪念日。你可以在这里 找到你身边的 [事件。](http://act.indivisible.org/event/national-school-walkout/search/)
 

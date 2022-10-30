@@ -1,6 +1,6 @@
 # 使用这个“网飞捐赠”每天向慈善机构进行小额捐赠
 
-> 原文:[https://life hacker . com/make-daily-micro-announcements-to-charity-using-this-netfli-1827081144](https://lifehacker.com/make-daily-micro-donations-to-charity-using-this-netfli-1827081144)
+> 原文：<https://lifehacker.com/make-daily-micro-donations-to-charity-using-this-netfli-1827081144>
 
 通常，人们进行慈善捐赠的最大障碍之一是他们没有这样做的预算。或者他们不确定他们的钱会在哪里产生最大的影响。当你的收入很高时，每个月捐赠一定数量的钱是很容易的。当你挣扎着度日时，一大笔定期捐款可能就不在考虑范围内了。Good Street 是一个允许用户每天捐款 0.25 美元(大约每月 7.5 美元)的网站，每天帮助一个新的慈善机构。
 

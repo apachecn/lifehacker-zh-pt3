@@ -1,6 +1,6 @@
 # 了解飞机引起的血凝块的迹象
 
-> 原文:[https://life hacker . com/know-the-signs of-a-a-plane-induced-blood-clot-1826918589](https://lifehacker.com/know-the-signs-of-an-airplane-induced-blood-clot-1826918589)
+> 原文：<https://lifehacker.com/know-the-signs-of-an-airplane-induced-blood-clot-1826918589>
 
 飞行后的血块甚至会让经验丰富的旅行者大吃一惊，正如旅游作家林赛·坎贝尔最近发现的 。她在飞行前伸展身体 [尽可能地四处走动](https://lifehacker.com/do-this-10-minute-workout-in-your-airplane-seat-1823915979)——但着陆后，她认为小腿疼痛可能是徒步旅行造成的。
 

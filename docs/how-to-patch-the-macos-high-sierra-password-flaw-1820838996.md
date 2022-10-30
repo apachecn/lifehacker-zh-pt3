@@ -1,6 +1,6 @@
 # 如何修补 macOS High Sierra 密码漏洞[更新]
 
-> 原文:[https://life hacker . com/how-to-patch-the-MAC OS-high-Sierra-password-flaw-1820838996](https://lifehacker.com/how-to-patch-the-macos-high-sierra-password-flaw-1820838996)
+> 原文：<https://lifehacker.com/how-to-patch-the-macos-high-sierra-password-flaw-1820838996>
 
 运行苹果最新版本操作系统 High Sierra 的 Mac 用户容易受到一个相当大的缺陷的影响，这个缺陷可能会允许任何实际接触到你的 Mac 的人不受约束地访问你机器上的任何东西。黑客似乎只影响 macOS High Sierra 10.13 和 10.13.1 版本。幸运的是，一个小小的设置调整可以加强你的安全性，并缓解这个问题，直到苹果公司妥善解决它。
 

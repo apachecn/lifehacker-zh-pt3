@@ -1,6 +1,6 @@
 # 屏蔽“网上”与 Freedom 应用程序的链接
 
-> 原文:[https://life hacker . com/block-around-the-web-links-with-the-freedom-app-1797269137](https://lifehacker.com/block-around-the-web-links-with-the-freedom-app-1797269137)
+> 原文：<https://lifehacker.com/block-around-the-web-links-with-the-freedom-app-1797269137>
 
 Freedom 还有第二个用途，它是一个简单的应用程序，可以让你屏蔽 Twitter 等分散注意力的网站几分钟、几小时或几天。正如该应用的博客所指出的， [Freedom 还可以作为一个点击诱饵拦截器](https://freedom.to/blog/eliminate-clickbait-online/) ，它可以隐藏新闻文章底部的恶心和误导性的“网络周围”链接(也称为 [chumbox](https://theawl.com/a-complete-taxonomy-of-internet-chum-de0b7a070a2d) )。
 

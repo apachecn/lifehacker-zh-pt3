@@ -1,6 +1,6 @@
 # 为经历创伤事件的朋友做一个签到提醒
 
-> 原文:[https://life hacker . com/make-a-check-in-reminder-for-friends-through-tra-1825860637](https://lifehacker.com/make-a-check-in-reminder-for-friends-who-go-through-tra-1825860637)
+> 原文：<https://lifehacker.com/make-a-check-in-reminder-for-friends-who-go-through-tra-1825860637>
 
 生活给我们带来了许多不愉快的经历——比如家人的死亡、令人不快的分手或痛苦的伤害——但好朋友总能帮助我们度过难关。这个技巧会提醒你，在最初的创伤性事件的震惊消失很久之后，还是要做一个好朋友。
 

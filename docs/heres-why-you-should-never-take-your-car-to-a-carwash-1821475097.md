@@ -1,6 +1,6 @@
 # 这就是为什么你不应该把你的车带到洗车场
 
-> 原文:[https://jalopnik . com/heres-why-you-should-never-take-your-car-wash-1821475097](https://jalopnik.com/heres-why-you-should-never-take-your-car-to-a-carwash-1821475097)
+> 原文：<https://jalopnik.com/heres-why-you-should-never-take-your-car-to-a-carwash-1821475097>
 
 随着冬天的来临，如果你不想让你的车变成灰尘，尽快去除车上的道路盐是很重要的。最好的办法就是把它全部洗掉，但是如果你去自动洗车处，上帝会帮助你的。我们采访了一位专家来找出原因。
 

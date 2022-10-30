@@ -1,6 +1,6 @@
 # 超越联合，超越管道:2018 年最新奇的兴奋方式
 
-> 原文:[https://www . av club . com/beyond-the-joint-past-the-pipe-the-fanciest-new-ways-1828977287](https://www.avclub.com/beyond-the-joint-past-the-pipe-the-fanciest-new-ways-1828977287)
+> 原文：<https://www.avclub.com/beyond-the-joint-past-the-pipe-the-fanciest-new-ways-1828977287>
 
 现在是凌晨 1 点，我现在比以往任何时候都兴奋。天花板上出现了一个幽灵。我的猫正关切地看着我——或者可能是我在想象这种关切，就像我在想象盘旋在我头上的东西一样。这都是我刚刚用来兴奋的新奇小玩意的错，尽管错可能在我，那个不知道自己在做什么的笨蛋。欢迎来到 2018 年的抽大麻世界。
 

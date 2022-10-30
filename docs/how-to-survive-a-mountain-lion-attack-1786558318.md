@@ -1,6 +1,6 @@
 # 如何在山狮袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-mountain-lion-attack-1786558318](https://lifehacker.com/how-to-survive-a-mountain-lion-attack-1786558318)
+> 原文：<https://lifehacker.com/how-to-survive-a-mountain-lion-attack-1786558318>
 
 山狮——也被称为 [美洲狮、美洲狮、美洲豹或佛罗里达美洲豹](https://en.wikipedia.org/wiki/Cougar)——有锋利的爪子，体重可超过 200 磅，奔跑速度可达 50 英里/小时。这些不是普通的邻居小猫。如果你在野外遇到一只，你应该这样做。
 

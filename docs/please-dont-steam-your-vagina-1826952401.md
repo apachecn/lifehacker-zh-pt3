@@ -1,6 +1,6 @@
 # 请不要蒸你的阴道
 
-> 原文:[https://life hacker . com/please-don-t-steam-your-vagina-1826952401](https://lifehacker.com/please-dont-steam-your-vagina-1826952401)
+> 原文：<https://lifehacker.com/please-dont-steam-your-vagina-1826952401>
 
 我们认为“V 型蒸汽”的问题已经被广泛理解，但最近克莉茜·泰根在 Instagram 上发布消息称，她正在尝试阴道蒸汽，尽管不确定它是否有效，或者她的阴道是否可能会溶解。
 

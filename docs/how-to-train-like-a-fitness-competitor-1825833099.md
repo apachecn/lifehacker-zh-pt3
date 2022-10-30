@@ -1,6 +1,6 @@
 # 如何像健身竞争者一样训练
 
-> 原文:[https://life hacker . com/how-to-training-like-a-fitness-competitor-1825833099](https://lifehacker.com/how-to-train-like-a-fitness-competitor-1825833099)
+> 原文：<https://lifehacker.com/how-to-train-like-a-fitness-competitor-1825833099>
 
 现在是 2018 年，但许多女性仍然害怕将举重作为她们日常锻炼的一部分。相反，我们必须永远循环心脏排水，以避免“膨胀”但是力量训练是任何健身养生法的重要组成部分，职业比基尼世界冠军克里斯蒂娜·席尔瓦想让你知道，看着她兴奋是非常困难的——但也非常棒。
 

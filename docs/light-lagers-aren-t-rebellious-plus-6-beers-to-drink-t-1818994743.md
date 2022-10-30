@@ -1,6 +1,6 @@
 # 淡啤酒不叛逆(加上这个月喝的 6 瓶啤酒)
 
-> 原文:[https://www . av club . com/light-lagers-are-t-ruless-plus-6-beers-to-drink-t-1818994743](https://www.avclub.com/light-lagers-aren-t-rebellious-plus-6-beers-to-drink-t-1818994743)
+> 原文：<https://www.avclub.com/light-lagers-aren-t-rebellious-plus-6-beers-to-drink-t-1818994743>
 
 [***挑选六款***](http://www.avclub.com/features/pick-six) *是 A.V. Club 的*每月推荐给我们正在挖掘的啤酒。**
 

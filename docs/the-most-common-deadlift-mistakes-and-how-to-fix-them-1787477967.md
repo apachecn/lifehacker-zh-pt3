@@ -1,6 +1,6 @@
 # 最常见的硬拉错误及其纠正方法
 
-> 原文:[https://life hacker . com/the-most-common-hard lift-errors-and-how-to-fix-them-1787477967](https://lifehacker.com/the-most-common-deadlift-mistakes-and-how-to-fix-them-1787477967)
+> 原文：<https://lifehacker.com/the-most-common-deadlift-mistakes-and-how-to-fix-them-1787477967>
 
 你可能想知道弯腰捡起重物有多复杂，但是如果做错了，你的背部会有力地告诉你，这非常复杂。硬拉是一种 [不可思议且实用的全身锻炼](https://lifehacker.com/why-deadlifts-are-worth-the-hype-and-how-to-do-them-sa-1756526319) ，但是很多事情，从你握重的方式到你如何“站立”，都有可能出错。
 

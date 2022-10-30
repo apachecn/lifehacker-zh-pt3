@@ -1,6 +1,6 @@
 # 如何记住你在社交活动中遇到的人
 
-> 原文:[https://life hacker . com/how-to-remember-you-meet-in-networking-events-1796449886](https://lifehacker.com/how-to-remember-people-you-meet-at-networking-events-1796449886)
+> 原文：<https://lifehacker.com/how-to-remember-people-you-meet-at-networking-events-1796449886>
 
 你参加社交活动是为了结识新朋友，但在喝了几杯酒回家后，你怎么会记得他们呢？记住名字本身就很困难。当你同时遇到很多人时，这个问题只会变得更糟。然而，你可以做一些事情来确保记住你遇到的每一个人，所有的闲聊和握手都不会浪费。
 

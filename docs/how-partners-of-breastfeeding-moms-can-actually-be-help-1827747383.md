@@ -1,6 +1,6 @@
 # 母乳喂养妈妈的伴侣实际上能有什么帮助
 
-> 原文:[https://life hacker . com/how-partners of-pulsing-moms-can-be-help-1827747383](https://lifehacker.com/how-partners-of-breastfeeding-moms-can-actually-be-help-1827747383)
+> 原文：<https://lifehacker.com/how-partners-of-breastfeeding-moms-can-actually-be-help-1827747383>
 
 作者 Catherynne Valente 在《新妈妈母乳喂养指南》中发现了一段话，这本书写于 2002 年，而不是 1952 年，请注意，它写道:“父亲们，如果你的妻子有麻烦或疼痛，介入并调整她的技巧，提醒她成功的母乳喂养是孩子发展和组建新家庭的优先事项！”她的反应？*号*
 

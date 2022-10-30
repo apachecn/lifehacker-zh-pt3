@@ -1,6 +1,6 @@
 # 汽车黑客是一回事，但你真的有危险吗？
 
-> 原文:[https://life hacker . com/car-hacking-is-a-thing-but-you-really-in-danger-1790182249](https://lifehacker.com/car-hacking-is-a-thing-but-are-you-really-in-danger-1790182249)
+> 原文：<https://lifehacker.com/car-hacking-is-a-thing-but-are-you-really-in-danger-1790182249>
 
 随着现代汽车变得更加互联，功能更加智能，黑客攻击是一个真正的危险。很少见，但已经在发生了。我们还没有进入“停止引擎”的世界，但是很容易闯入一辆无钥匙进入的汽车 并偷走里面的一切，而车主却不知道车已经解锁。
 

@@ -1,6 +1,6 @@
 # 优衣库的自动售货机将使世界变得更加方便和千篇一律
 
-> 原文:[https://life hacker . com/uniqlos-vending-machines-will-make-the-world-more-conve-1797648181](https://lifehacker.com/uniqlos-vending-machines-will-make-the-world-more-conve-1797648181)
+> 原文：<https://lifehacker.com/uniqlos-vending-machines-will-make-the-world-more-conve-1797648181>
 
 优衣库计划今年夏天在 10 个机场和购物中心 [安装自动售货机](https://www.wsj.com/articles/uniqlo-will-sell-clothes-from-vending-machines-1501675201) ，销售 15 美元的 t 恤和 70 美元的夹克。对于全球品牌来说，这是一种低成本扩张的明智方式，也是一种无需排队就能买到被遗忘的必需品的便捷方式。
 

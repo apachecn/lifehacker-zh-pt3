@@ -1,6 +1,6 @@
 # 如何在谷歌 Chrome 中自动静音恼人的自动播放视频
 
-> 原文:[https://life hacker . com/now-Google-chrome-can-automatically-silence-恼人-au-1821369846](https://lifehacker.com/now-google-chrome-can-automatically-silence-annoying-au-1821369846)
+> 原文：<https://lifehacker.com/now-google-chrome-can-automatically-silence-annoying-au-1821369846>
 
 在某个时候，我经常访问的许多网站的发布者认为开始使用自动播放视频是个好主意。虽然我认为他们的想法是，当视频开始播放时，我会不知何故地被他们迷人的主持人和宏伟的背景音乐所吸引，但结果往往是我被突然爆发的声音吓坏了，四处摸索，想出如何停止视频，然后诅咒网站创建者，发誓永远不再来他们的网站。直到第二天我重复这个过程。
 

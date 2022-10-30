@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:当我被催着吃完饭的时候，我能做什么？
 
-> 原文:[https://the take out . com/what-to-do-when-I-m-run-through-a-meal-1827109529](https://thetakeout.com/what-to-do-when-i-m-being-rushed-through-a-meal-1827109529)
+> 原文：<https://thetakeout.com/what-to-do-when-i-m-being-rushed-through-a-meal-1827109529>
 
 > 亲爱的咸味:不久前，我和我的配偶在一家高档餐厅预订了座位。那天是假日，所以他们有两个座位:一个早座位和一个晚座位。我们选择了后者。
 > 

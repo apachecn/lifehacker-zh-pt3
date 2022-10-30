@@ -1,6 +1,6 @@
 # 它会腐烂吗？一整只感恩节火鸡
 
-> 原文:[https://life hacker . com/will-it-sous-vide-a-whole-感恩节-火鸡-1789112054](https://lifehacker.com/will-it-sous-vide-a-whole-thanksgiving-turkey-1789112054)
+> 原文：<https://lifehacker.com/will-it-sous-vide-a-whole-thanksgiving-turkey-1789112054>
 
 你好，我友好的朋友们，欢迎来到非常特别的一期 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

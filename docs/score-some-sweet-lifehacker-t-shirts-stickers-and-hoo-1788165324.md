@@ -1,6 +1,6 @@
 # 在我们的新店中获得一些可爱的 Lifehacker T 恤、贴纸和连帽衫
 
-> 原文:[https://life hacker . com/score-some-sweet-life hacker-t 恤-贴纸-和-呼-1788165324](https://lifehacker.com/score-some-sweet-lifehacker-t-shirts-stickers-and-hoo-1788165324)
+> 原文：<https://lifehacker.com/score-some-sweet-lifehacker-t-shirts-stickers-and-hoo-1788165324>
 
 你问我们什么时候卖 Lifehacker 的 t 恤和贴纸，好吧，就是今天。也许在你的笔记本电脑上贴一张贴纸，或者一件 t 恤，向世界展示你不仅长得好看，而且博览群书。现在你的机会来了！[life hacker 商店](http://store.lifehacker.com/) 开始营业。
 

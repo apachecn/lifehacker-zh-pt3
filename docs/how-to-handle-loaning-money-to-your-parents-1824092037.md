@@ -1,6 +1,6 @@
 # 如何处理借钱给父母
 
-> 原文:[https://life hacker . com/how-to-hand-loan-money to-your-parents-1824092037](https://lifehacker.com/how-to-handle-loaning-money-to-your-parents-1824092037)
+> 原文：<https://lifehacker.com/how-to-handle-loaning-money-to-your-parents-1824092037>
 
 当谈到与家人的金钱对话时，孩子向父母寻求经济支持可能会很尴尬，但却是意料之中的。然而，翻翻剧本，这可能会是一场令人担忧的讨论。
 

@@ -1,6 +1,6 @@
 # 我是威廉·格斯特尔，《后院弹道学》的作者，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-William-gur stelle-author-of-后院-弹道-an-1787897401](https://lifehacker.com/im-william-gurstelle-author-of-backyard-ballistics-an-1787897401)
+> 原文：<https://lifehacker.com/im-william-gurstelle-author-of-backyard-ballistics-an-1787897401>
 
 威廉·格斯特勒有建造高动态物体的天赋。他经常探索一些从远处看起来很危险的课题——比如大炮和弹射器——但是只要你懂科学，它们就是安全的。
 

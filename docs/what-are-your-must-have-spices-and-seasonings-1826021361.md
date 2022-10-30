@@ -1,6 +1,6 @@
 # 你的必备调料和调味料有哪些？
 
-> 原文:[https://life hacker . com/您必须购买的调味品是什么-1826021361](https://lifehacker.com/what-are-your-must-have-spices-and-seasonings-1826021361)
+> 原文：<https://lifehacker.com/what-are-your-must-have-spices-and-seasonings-1826021361>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。今天我想谈谈为自己烹饪食物的一个非常重要的部分，你会真的想吃的:调料。
 

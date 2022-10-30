@@ -1,6 +1,6 @@
 # Hulu 直播电视是迄今为止最好的割线服务，但它需要一些工作
 
-> 原文:[https://gizmodo . com/Hulu-live-TV-is-best-cord cutter-service-but-it-1794920011](https://gizmodo.com/hulu-live-tv-is-the-best-cordcutter-service-yet-but-it-1794920011)
+> 原文：<https://gizmodo.com/hulu-live-tv-is-the-best-cordcutter-service-yet-but-it-1794920011>
 
 Hulu 备受期待的直播电视服务 [现已推出测试版](http://gizmodo.com/hulus-live-tv-service-is-now-available-in-beta-with-50-1794869996) ，从我的观看体验来看，这是迄今为止最强的服务，这要归功于它结合了直播电视、Hulu 原创以及数千种电影和电视节目的点播选择。
 

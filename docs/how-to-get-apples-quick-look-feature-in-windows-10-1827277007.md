@@ -1,6 +1,6 @@
 # 如何在 Windows 10 中获得苹果的“快速查看”功能
 
-> 原文:[https://life hacker . com/how-to-get-apple-quick-look-feature-in-windows-10-1827277007](https://lifehacker.com/how-to-get-apples-quick-look-feature-in-windows-10-1827277007)
+> 原文：<https://lifehacker.com/how-to-get-apples-quick-look-feature-in-windows-10-1827277007>
 
 即使你是世界上最大的微软粉丝，你也不得不承认苹果的“ [快速浏览](https://support.apple.com/kb/ph25575?locale=en_US) ”功能对 macOS 来说相当方便。如果你是一个纯粹主义者，以至于在过去十年左右的时间里，你甚至没有接触过 Mac，这里有一个简单的介绍:你点击一个文件。你按下空格键。项目的预览会弹出，如照片、PDF 的内容等。这是一个很好的快速浏览东西的方式，而不用浪费时间加载一个真正的应用程序。
 

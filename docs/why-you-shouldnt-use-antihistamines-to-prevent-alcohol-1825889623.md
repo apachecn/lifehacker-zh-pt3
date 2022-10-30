@@ -1,6 +1,6 @@
 # 为什么你不应该使用抗组胺药来防止酒精引起的脸红
 
-> 原文:[https://life hacker . com/why-you-should-use-抗组胺药-预防-酒精-1825889623](https://lifehacker.com/why-you-shouldnt-use-antihistamines-to-prevent-alcohol-1825889623)
+> 原文：<https://lifehacker.com/why-you-shouldnt-use-antihistamines-to-prevent-alcohol-1825889623>
 
 对一些人来说，啜饮鸡尾酒不仅仅会让你喝醉——它会让你的皮肤变红。有一个防止皮肤潮红的老方法，包括服用抗组胺药，但这不是一个好主意。原因如下。
 

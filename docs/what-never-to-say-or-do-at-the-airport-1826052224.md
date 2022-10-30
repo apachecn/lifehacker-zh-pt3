@@ -1,6 +1,6 @@
 # 在机场什么是绝对不能说或做的
 
-> 原文:[https://life hacker . com/what-never-to-say or-do-in-the-airport-1826052224](https://lifehacker.com/what-never-to-say-or-do-at-the-airport-1826052224)
+> 原文：<https://lifehacker.com/what-never-to-say-or-do-at-the-airport-1826052224>
 
 我们都喜欢抱怨航空旅行有多糟糕，但如果你不认真对待严格的安全程序，情况会变得非常非常糟糕。
 

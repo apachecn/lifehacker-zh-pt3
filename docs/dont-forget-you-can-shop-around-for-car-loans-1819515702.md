@@ -1,6 +1,6 @@
 # 别忘了，你可以货比三家申请汽车贷款
 
-> 原文:[https://life hacker . com/don ' t-forgot-you-fork-shopping-for-car-loans-1819515702](https://lifehacker.com/dont-forget-you-can-shop-around-for-car-loans-1819515702)
+> 原文：<https://lifehacker.com/dont-forget-you-can-shop-around-for-car-loans-1819515702>
 
 当他们踏进经销商的大门时，购车者通常会专注于砍价。但是别忘了: [车贷也是可买的，](https://lifehacker.com/secure-financing-before-buying-a-car-for-smoother-negot-1604931961) 。
 

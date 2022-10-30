@@ -1,6 +1,6 @@
 # 今日 Reddit 上最好的比特币评论
 
-> 原文:[https://life hacker . com/the-best-bit coin-comments-on-Reddit-today-1821534677](https://lifehacker.com/the-best-bitcoin-comments-on-reddit-today-1821534677)
+> 原文：<https://lifehacker.com/the-best-bitcoin-comments-on-reddit-today-1821534677>
 
 比特币的价格从 12 月 18 日的高点下跌了约 37%，你听说了吗？谁能预见到它。
 

@@ -1,6 +1,6 @@
 # 常见的感恩节晚餐失败和如何解决它们
 
-> 原文:[https://life hacker . com/common-thanksgiving-dinner-fails-and-how-to-fix-them-1789275895](https://lifehacker.com/common-thanksgiving-dinner-fails-and-how-to-fix-them-1789275895)
+> 原文：<https://lifehacker.com/common-thanksgiving-dinner-fails-and-how-to-fix-them-1789275895>
 
 尽管我有限的厨房经验和破坏最基本的膳食的历史，我已经被指定为今年的感恩节主人。很有可能，我会把事情搞砸。如果你在同一条船上，我们应该做好准备。以下是如何预防和修复几个常见的感恩节故障。
 

@@ -1,6 +1,6 @@
 # 糖可能不是你抑郁的原因
 
-> 原文:[https://life hacker . com/sugar-is-probably-not-the-reason-you-depressed-1797507244](https://lifehacker.com/sugar-is-probably-not-the-reason-youre-depressed-1797507244)
+> 原文：<https://lifehacker.com/sugar-is-probably-not-the-reason-youre-depressed-1797507244>
 
 最近的一项研究发现，甜食与男性抑郁症有关，但与女性无关。糖有特殊的力量能把男人赶走吗？大概不会。让我们开始吃吧。
 

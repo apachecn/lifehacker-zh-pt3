@@ -1,6 +1,6 @@
 # 通货膨胀是如何运作的，对你的钱包意味着什么
 
-> 原文:[https://life hacker . com/how-inflation-works-and-what-mean for your ' s wallet-1753924925](https://lifehacker.com/how-inflation-works-and-what-it-means-for-your-wallet-1753924925)
+> 原文：<https://lifehacker.com/how-inflation-works-and-what-it-means-for-your-wallet-1753924925>
 
 我们大多数人对通货膨胀意味着什么有一个大致的概念:东西变得更贵了。当然，通货膨胀比这要复杂一点。它在你的日常财务中扮演着相当重要的角色，从你的收入到你的牛奶成本，再到你的退休储蓄能赚多少。
 

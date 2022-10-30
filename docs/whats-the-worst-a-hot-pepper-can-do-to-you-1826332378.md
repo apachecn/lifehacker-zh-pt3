@@ -1,6 +1,6 @@
 # 一个辣椒能对你做的最坏的事情是什么？
 
-> 原文:[https://life hacker . com/what-a-worth-a-happer-can-do-you-1826332378](https://lifehacker.com/whats-the-worst-a-hot-pepper-can-do-to-you-1826332378)
+> 原文：<https://lifehacker.com/whats-the-worst-a-hot-pepper-can-do-to-you-1826332378>
 
 上个月，BMJ 发表了一份病例报告 ，讲述了一名 34 岁的男子因 [雷霆头痛](https://www.mayoclinic.org/diseases-conditions/thunderclap-headaches/symptoms-causes/syc-20378361) 住进纽约库珀斯顿的急诊室，这是一种特别痛苦的头痛，可能是脑出血的迹象。他的症状包括干呕和剧烈的头颈疼痛。这名男子将自己的痛苦追溯到几天前的一场吃辣椒比赛，他吃下了一个卡罗莱纳死神，这是吉尼斯世界纪录保持者，拥有世界上最辣的辣椒。
 

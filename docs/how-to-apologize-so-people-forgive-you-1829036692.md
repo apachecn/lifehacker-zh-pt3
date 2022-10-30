@@ -1,6 +1,6 @@
 # 如何道歉让人们原谅你
 
-> 原文:[https://life hacker . com/how-to-sorry-so-people-forgive-you-1829036692](https://lifehacker.com/how-to-apologize-so-people-forgive-you-1829036692)
+> 原文：<https://lifehacker.com/how-to-apologize-so-people-forgive-you-1829036692>
 
 最好的道歉来自真正的自我反省和理解。你做错了什么，你知道为什么它是错的，你想做一些更好的改变。这并不意味着听到的人会接受你和解的姿态。
 

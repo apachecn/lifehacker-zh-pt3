@@ -1,6 +1,6 @@
 # 如何拍出看起来不像自拍的自拍
 
-> 原文:[https://life hacker . com/how-to-take-self ie-that-look-like-self ie-1795097973](https://lifehacker.com/how-to-take-selfies-that-dont-look-like-selfies-1795097973)
+> 原文：<https://lifehacker.com/how-to-take-selfies-that-dont-look-like-selfies-1795097973>
 
 作为一个独自旅行的人， 捕捉我的冒险经历很有挑战性:我想把自己也拍进去，而且我不打算用一根滑稽的长自拍杆。我也很少觉得把相机或手机交给陌生人很舒服。但这并不意味着我会错过值得社交媒体关注的时刻。而是重新想象自己是如何自拍的。
 

@@ -1,6 +1,6 @@
 # 在你的房子里建一堵石墙
 
-> 原文:[https://life hacker . com/build-a-rock-wall-in-your-house-1824299175](https://lifehacker.com/build-a-rock-wall-in-your-house-1824299175)
+> 原文：<https://lifehacker.com/build-a-rock-wall-in-your-house-1824299175>
 
 许多父母整个冬天都在疯狂地查看天气预报栏，等待未来的某个时刻，他们的孩子终于可以出门了，而不是第 18 次看同一集《粉红猪小妹》,或者问你:“我们还有亮片吗？我把所有的都洒在地毯上了。”不是 Reddit 用户 aggregate_jeff。为了帮助战胜幽居病，这位父亲在他的房子里建造了一个室内游戏结构。
 

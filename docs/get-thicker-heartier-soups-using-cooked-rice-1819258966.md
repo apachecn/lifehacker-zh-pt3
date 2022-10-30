@@ -1,6 +1,6 @@
 # 用煮熟的米饭做更浓更稠的汤
 
-> 原文:[https://life hacker . com/get-thick-heartier-soups-using-cooked-rice-1819258966](https://lifehacker.com/get-thicker-heartier-soups-using-cooked-rice-1819258966)
+> 原文：<https://lifehacker.com/get-thicker-heartier-soups-using-cooked-rice-1819258966>
 
 欢迎回到周日营养！在过去的几周里，我可能对季节的变化有点兴奋，但现在我们又回到了 80 度的白天。感冒或秋季流感不知道热与冷的区别，所以他们出现并破坏你的周末苹果采摘之旅没有问题。谢天谢地，美味的鸡汤来了。
 

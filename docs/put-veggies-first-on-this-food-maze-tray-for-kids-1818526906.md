@@ -1,6 +1,6 @@
 # 把蔬菜放在这个儿童食物迷宫托盘的第一位
 
-> 原文:[https://life hacker . com/put-veggies-first-on-this-food-maze-tray-for-kids-1818526906](https://lifehacker.com/put-veggies-first-on-this-food-maze-tray-for-kids-1818526906)
+> 原文：<https://lifehacker.com/put-veggies-first-on-this-food-maze-tray-for-kids-1818526906>
 
 对一个挑食的孩子来说，进餐时间是很难熬的。因为你没能让他尝试新的食物，所以他在未来的婚宴上大嚼恐龙块和苹果酱，这是恳求、谈判和闪现的画面。这里有一个工具可能会结束这场斗争:一个食物迷宫托盘。
 

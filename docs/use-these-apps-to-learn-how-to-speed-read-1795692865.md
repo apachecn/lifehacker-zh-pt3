@@ -1,6 +1,6 @@
 # 使用这些应用程序来学习如何加快阅读速度
 
-> 原文:[https://life hacker . com/use-these-apps-to-learn-how-to-speed-read-1795692865](https://lifehacker.com/use-these-apps-to-learn-how-to-speed-read-1795692865)
+> 原文：<https://lifehacker.com/use-these-apps-to-learn-how-to-speed-read-1795692865>
 
 阅读是一种兴奋剂，所以如果你想做更多的阅读，你应该做得更好。普通人每分钟可以通过眼睛吸收惊人的 250 个单词，但如果你专心致志，速读软件可以让你的摄入量接近每分钟 1000 个单词。警告:各种研究表明，快速阅读方法可能不如慢速的传统阅读有效，而且可能会影响理解。
 

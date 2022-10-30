@@ -1,6 +1,6 @@
 # 如何制作牛肉酱之王贝阿尔奈斯
 
-> 原文:[https://the take out . com/recipe-how-to-make-bearnaise-sauce-steak-1828376218](https://thetakeout.com/recipe-how-to-make-bearnaise-sauce-steak-1828376218)
+> 原文：<https://thetakeout.com/recipe-how-to-make-bearnaise-sauce-steak-1828376218>
 
 Béarnaise 与鱼子酱、松露油和鲜奶油同属一类:一道丰富的配菜，让你已经很丰富的食物变得更加丰富。Béarnaise 相当于“要么做大，要么回家”这句话。是痛风最喜欢的调味品。
 

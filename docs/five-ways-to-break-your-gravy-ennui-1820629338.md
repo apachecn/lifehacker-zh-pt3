@@ -1,6 +1,6 @@
 # 打破肉汁厌倦的五种方法
 
-> 原文:[https://life hacker . com/five-ways-to-break-you-gravy-ennui-1820629338](https://lifehacker.com/five-ways-to-break-your-gravy-ennui-1820629338)
+> 原文：<https://lifehacker.com/five-ways-to-break-your-gravy-ennui-1820629338>
 
 肉汁是感恩节不容讨价还价的。绿豆砂锅可能不会出现在每一张餐桌上，这个国家被分为有红薯的和没有红薯的，但肉汁是抚慰富含 L-色氨酸的灵魂的非常真实和必要的灵丹妙药。
 

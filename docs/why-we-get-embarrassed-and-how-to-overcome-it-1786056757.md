@@ -1,6 +1,6 @@
 # 为什么我们会感到尴尬以及如何克服它
 
-> 原文:[https://life hacker . com/why-we-get-hanger-and-how-to-comprise-it-1786056757](https://lifehacker.com/why-we-get-embarrassed-and-how-to-overcome-it-1786056757)
+> 原文：<https://lifehacker.com/why-we-get-embarrassed-and-how-to-overcome-it-1786056757>
 
 2003 年，我在高中商法课上交了一个额外的学分项目。我完美地将本质上是《哈利·波特与魔法石》的故事与引人入胜的合同法元素交织在一起。它大约有 40 页长。你可以猜到接下来发生了什么。
 

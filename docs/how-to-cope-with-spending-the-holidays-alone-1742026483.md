@@ -1,6 +1,6 @@
 # 如何应对一个人过节
 
-> 原文:[https://life hacker . com/how-to-应付-独自度假-1742026483](https://lifehacker.com/how-to-cope-with-spending-the-holidays-alone-1742026483)
+> 原文：<https://lifehacker.com/how-to-cope-with-spending-the-holidays-alone-1742026483>
 
 如果你独自一人，假期似乎有一种特殊的方式让你感觉糟糕。也许你正在考虑最近的分手。也许你刚开始上大学，没钱坐飞机回家。不管是什么情况，如果你一个人过假期，这让你情绪低落，以下是应对方法。
 

@@ -1,6 +1,6 @@
 # 做这些派对蘸酱不仅仅是法式洋葱头
 
-> 原文:[https://life hacker . com/make-these-party-dips-the-go-beyond-French-onion-1821395062](https://lifehacker.com/make-these-party-dips-that-go-beyond-french-onion-1821395062)
+> 原文：<https://lifehacker.com/make-these-party-dips-that-go-beyond-french-onion-1821395062>
 
 无论舞会有多华丽，每一次宴会都应该有一两次蘸酱。蘸酱很容易做，吃起来很有趣，几乎每个人都很喜欢。法式洋葱蘸酱从来都不是一个糟糕的选择——你可以在这里 学着做一道美味的法式洋葱蘸酱——但是还有其他选择。下面你会发现三种甘美、奶油、风味浓郁的蘸酱和酱，可以制作、食用和食用。
 

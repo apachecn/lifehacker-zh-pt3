@@ -1,6 +1,6 @@
 # 给孩子不是玩具的礼物，因为他们已经有太多了
 
-> 原文:[https://life hacker . com/give-kids-gifts-than-than-is-than-that-that-is-that-that-that-that-be-that-that-that-that-that-then-they-believe-that-1819190895](https://lifehacker.com/give-kids-gifts-that-are-not-toys-because-they-already-1819190895)
+> 原文：<https://lifehacker.com/give-kids-gifts-that-are-not-toys-because-they-already-1819190895>
 
 当孩子们兴高采烈地撕开他们的生日或节日礼物时，父母们准备迎接后果:一个堆满玩具的房子，在他们进入捐赠堆后的 2.7 秒之前，没有人会对这些玩具表示兴趣。循环是真实的。
 

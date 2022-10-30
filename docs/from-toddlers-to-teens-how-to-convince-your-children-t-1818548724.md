@@ -1,6 +1,6 @@
 # 如何说服你的孩子洗澡
 
-> 原文:[https://life hacker . com/from-toddle-to-Tencent-how-to-说服你的孩子-t-1818548724](https://lifehacker.com/from-toddlers-to-teens-how-to-convince-your-children-t-1818548724)
+> 原文：<https://lifehacker.com/from-toddlers-to-teens-how-to-convince-your-children-t-1818548724>
 
 无论你是试图强迫一个精力充沛的蹒跚学步的孩子洗澡，还是强迫一个缺乏活力的青春期前的孩子进行他们(非常需要的)日常淋浴，你可能会面临一场让你的孩子干净的艰苦战斗。继续阅读下面的建议——来自真正的妈妈们——这些建议应该有助于激励每个人，从两岁到 12 岁左右的孩子，保持一尘不染。
 

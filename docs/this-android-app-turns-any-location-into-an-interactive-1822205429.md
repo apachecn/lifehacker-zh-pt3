@@ -1,6 +1,6 @@
 # 使用这款 Android 应用程序，可以将任何地点变成交互式谷歌地球风格的壁纸
 
-> 原文:[https://life hacker . com/this-Android-app-turns-any-location-into-an-interactive-1822205429](https://lifehacker.com/this-android-app-turns-any-location-into-an-interactive-1822205429)
+> 原文：<https://lifehacker.com/this-android-app-turns-any-location-into-an-interactive-1822205429>
 
 厌倦了你无聊的老 [智能手机壁纸](https://lifehacker.com/how-to-pick-the-perfect-smartphone-wallpaper-1477967380) ？这款新的 [Android](https://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535) 应用程序可以获取你当前的位置(或地球上的任何其他地点),并将其转化为你手机上的背景图像。Google Play 上[【1.99 美元】现已发售。](https://play.google.com/store/apps/details?id=com.JustZht.Skyline) 
 

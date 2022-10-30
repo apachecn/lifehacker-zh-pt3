@@ -1,6 +1,6 @@
 # 如何像奥普拉一样演讲
 
-> 原文:[https://life hacker . com/how-to-give-a-speech-like-Oprah-1821880275](https://lifehacker.com/how-to-give-a-speech-like-oprah-1821880275)
+> 原文：<https://lifehacker.com/how-to-give-a-speech-like-oprah-1821880275>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fN5HV79_8B8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fN5HV79_8B8&start=0) 
 

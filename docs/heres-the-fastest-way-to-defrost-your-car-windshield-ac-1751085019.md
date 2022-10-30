@@ -1,6 +1,6 @@
 # 根据科学，这是给你的汽车挡风玻璃除霜的最快方法
 
-> 原文:[https://gizmodo . com/heres-给你的汽车挡风玻璃除霜最快的方法-ac-1751085019](https://gizmodo.com/heres-the-fastest-way-to-defrost-your-car-windshield-ac-1751085019)
+> 原文：<https://gizmodo.com/heres-the-fastest-way-to-defrost-your-car-windshield-ac-1751085019>
 
 现在是冬天。如果你开一辆停在外面的车，你知道那意味着什么。你的车内冷得要命，挡风玻璃对雾蒙蒙的霜完全不透明。不酷。你如何摆脱它？按下除霜按钮对吗？这还不是全部。永远好奇的马克·罗伯 试验了如何给你的挡风玻璃除霜的每种组合，并想出了一个比其他方法快一倍的方法。这意味着你将在一半的时间内得到一个透明的挡风玻璃。
 

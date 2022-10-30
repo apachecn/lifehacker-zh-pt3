@@ -1,6 +1,6 @@
 # 创造一个明斯特:一个完美的野餐篮子需要的 5 种奶酪
 
-> 原文:[https://the take out . com/5-cheeses-you-need for a perfect-野餐篮子-1826921092](https://thetakeout.com/5-cheeses-you-need-for-a-perfect-picnic-basket-1826921092)
+> 原文：<https://thetakeout.com/5-cheeses-you-need-for-a-perfect-picnic-basket-1826921092>
 
 现在是一周的中间，你已经开始期待这个周末的野餐了。你不就是那个戴着软帽享受夏日的小家伙吗？但是，嘿，这是享受户外生活的好方法，对你很好。
 

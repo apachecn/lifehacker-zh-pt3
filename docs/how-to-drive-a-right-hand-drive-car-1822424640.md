@@ -1,6 +1,6 @@
 # 如何驾驶右舵驾驶汽车
 
-> 原文:[https://jalopnik . com/how-to-drive-a-right-hand-drive-car-1822424640](https://jalopnik.com/how-to-drive-a-right-hand-drive-car-1822424640)
+> 原文：<https://jalopnik.com/how-to-drive-a-right-hand-drive-car-1822424640>
 
 我从来没有这样计划过，但是尽管我是一个自豪的美国人，我已经定期驾驶右座车超过 10 年了。我从我可爱的开始，现在我还有一辆日本进口的 [日产 Pao](https://jalopnik.com/everything-thats-delightful-about-my-imported-1990-niss-1822341396#_ga=2.54374894.739510566.1516595796-939172841.1359888224) 。我已经在汽车的错误一侧驾驶了很长时间，我经常被问到这个问题，似乎我也可以分享一些我学到的东西。
 

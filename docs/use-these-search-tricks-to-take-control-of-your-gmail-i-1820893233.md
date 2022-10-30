@@ -1,6 +1,6 @@
 # 使用这些搜索技巧来控制您的 Gmail 收件箱
 
-> 原文:[https://life hacker . com/use-these-search-tricks-to-take-control-of-your-Gmail-I-1820893233](https://lifehacker.com/use-these-search-tricks-to-take-control-of-your-gmail-i-1820893233)
+> 原文：<https://lifehacker.com/use-these-search-tricks-to-take-control-of-your-gmail-i-1820893233>
 
 Gmail 是我生活中必不可少的东西之一，但这也让我的生活变得更加烦人。几年前，我放弃了 [收件箱零](https://lifehacker.com/how-i-went-from-1-000-emails-to-inbox-zero-and-stayed-5984417) (此时我对收件箱 1000 封感到满意)，每天我都会收到几十封无用的垃圾邮件，这让我更难找到任何不到一周的重要邮件。
 

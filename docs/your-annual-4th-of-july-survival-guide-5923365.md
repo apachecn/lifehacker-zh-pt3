@@ -1,6 +1,6 @@
 # 你每年 7 月 4 日的生存指南
 
-> 原文:[https://life hacker . com/your-annual-4-of-July-survival-guide-5923365](https://lifehacker.com/your-annual-4th-of-july-survival-guide-5923365)
+> 原文：<https://lifehacker.com/your-annual-4th-of-july-survival-guide-5923365>
 
 美国生日快乐！(也祝其他人周一快乐！)在你开始 7 月 4 日的计划之前，无论是烧烤架、露营还是点燃爆炸的火药桶，让我们帮助你保持安全，战胜炎热和人群，享受更多乐趣。让我们开始吧。
 

@@ -1,6 +1,6 @@
 # 当经销商想卖给你一辆损坏的新车时会发生什么？
 
-> 原文:[https://jalopnik . com/what-happens-when-the-dealer-want-sell-you-a-damage-1757503865](https://jalopnik.com/what-happens-when-the-dealer-wants-to-sell-you-a-damage-1757503865)
+> 原文：<https://jalopnik.com/what-happens-when-the-dealer-wants-to-sell-you-a-damage-1757503865>
 
 作为一个汽车购买者，你可以采取一切必要的步骤来确保你得到一个你满意的交易，但这并不总是意味着事情会顺利进行。
 

@@ -1,6 +1,6 @@
 # 你应该自己做油炸豆子
 
-> 原文:[https://life hacker . com/you-should-make-your-own-refried-beans-1825685698](https://lifehacker.com/you-should-make-your-own-refried-beans-1825685698)
+> 原文：<https://lifehacker.com/you-should-make-your-own-refried-beans-1825685698>
 
 我并不反对罐装食物，尤其是豆子，但是我更喜欢自己做油炸豆子。除了尝起来“更好”，你还可以通过调整调味料、芳香剂以及最重要的脂肪来调整它们，以适应你特定的口味。
 

@@ -1,6 +1,6 @@
 # 如何让你的孩子以正常人的音量说话
 
-> 原文:[https://life hacker . com/how-to-get-your-kid-at-a-normal-human-volume-1825736973](https://lifehacker.com/how-to-get-your-kid-to-speak-at-a-normal-human-volume-1825736973)
+> 原文：<https://lifehacker.com/how-to-get-your-kid-to-speak-at-a-normal-human-volume-1825736973>
 
 我五岁的女儿玛吉在我们家外面似乎有两个音量级别:“关”和法兰·德瑞雪在 [一个响亮的酒吧](https://lifehacker.com/bartenders-should-shush-people-1825479385) 。她花了一段时间才适应与人交谈，所以当她突然有重要的事情要说并开始用大写字母说话时，我就不去管她了。但是在她幼儿园最近的一次家长会上，园长开始介绍每个人互相认识。当她走到我身边时，她宣布说，“这是米歇尔，玛吉的妈妈。我知道你已经*都听到了玛吉的话。”哦。也许我们确实需要在音量控制方面下功夫。*
 

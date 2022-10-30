@@ -1,6 +1,6 @@
 # 用棕榈鸡尾酒调朗姆酒
 
-> 原文:[https://life hacker . com/get-your-rum-fix-with-a-palmetto-cocktail-1826307906](https://lifehacker.com/get-your-rum-fix-with-a-palmetto-cocktail-1826307906)
+> 原文：<https://lifehacker.com/get-your-rum-fix-with-a-palmetto-cocktail-1826307906>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。这周我们要做棕榈鸡尾酒，因为我终于要开空调了，炎热的天气需要朗姆酒。
 

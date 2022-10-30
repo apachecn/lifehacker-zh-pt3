@@ -1,6 +1,6 @@
 # 这张图表显示了在预防癌症中真正重要的东西
 
-> 原文:[https://life hacker . com/this-graphic-shows-what-really-matters-in-preventing-ca-1826609707](https://lifehacker.com/this-graphic-shows-what-really-matters-in-preventing-ca-1826609707)
+> 原文：<https://lifehacker.com/this-graphic-shows-what-really-matters-in-preventing-ca-1826609707>
 
 健康的生活方式有助于预防癌症。(然而，没有癌症是完全可以预防的；遗传和运气不好也是因素之一。)但是哪些生活方式因素真的很重要呢？世界癌症研究基金会有一个 [得心应手的图形](https://www.wcrf.org/dietandcancer/interactive-cancer-risk-matrix) 来指出它们。
 

@@ -1,6 +1,6 @@
 # 你现在可以在 45 岁之前接种 HPV 疫苗
 
-> 原文:[https://life hacker . com/you-can-now-get-the-HPV-vaccine-up-age-45-1829600482](https://lifehacker.com/you-can-now-get-the-hpv-vaccine-up-to-age-45-1829600482)
+> 原文：<https://lifehacker.com/you-can-now-get-the-hpv-vaccine-up-to-age-45-1829600482>
 
 人类乳头瘤病毒疫苗可以预防多种形式的宫颈癌，长期以来一直适用于从 [岁到](https://lifehacker.com/why-you-have-to-be-26-or-younger-to-get-the-hpv-vaccine-1820647427) 岁的青少年。最近，FDA [批准了针对 45 岁以下男女的疫苗](https://www.fda.gov/NewsEvents/Newsroom/PressAnnouncements/ucm622715.htm) 。
 

@@ -1,6 +1,6 @@
 # 使用谷歌地球 Chrome 扩展，一次一个标签探索世界
 
-> 原文:[https://life hacker . com/explore-the-world-one-tab-at-a-time-this-Google-ea-1829258762](https://lifehacker.com/explore-the-world-one-tab-at-a-time-with-this-google-ea-1829258762)
+> 原文：<https://lifehacker.com/explore-the-world-one-tab-at-a-time-with-this-google-ea-1829258762>
 
 谷歌地球是我喜欢玩但从来不玩的东西之一。本周，我遇到了一个 Chrome 扩展，它让这种探索变得更加容易。
 

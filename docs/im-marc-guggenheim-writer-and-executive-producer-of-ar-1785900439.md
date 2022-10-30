@@ -1,6 +1,6 @@
 # 我是《绿箭侠》的编剧兼执行制片人马克·古根海姆，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Marc-Guggenheim-writer-and-executive-producer-of-ar-1785900439](https://lifehacker.com/im-marc-guggenheim-writer-and-executive-producer-of-ar-1785900439)
+> 原文：<https://lifehacker.com/im-marc-guggenheim-writer-and-executive-producer-of-ar-1785900439>
 
 马克·古根海姆是一位成功的节目主持人和电视制片人，但他更是一位作家。他的作品跨越多种媒介——从电视到电影，再到小说和漫画。他甚至为电子游戏写歌。
 

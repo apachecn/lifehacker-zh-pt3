@@ -1,6 +1,6 @@
 # 这些腌羊排会让你忘记排骨
 
-> 原文:[https://life hacker . com/these-sous-vide-lamb-steak-will-make-you-forgot-about-1829550937](https://lifehacker.com/these-sous-vide-lamb-steaks-will-make-you-forget-about-1829550937)
+> 原文：<https://lifehacker.com/these-sous-vide-lamb-steaks-will-make-you-forget-about-1829550937>
 
 由于 80 年代某个袜子木偶的流行，羊排似乎是得到最多玩耍的小绵羊的切肉。然而，羊排绝对值得你花时间去品尝，而且如果是腌制的话，绝对不会出错。
 

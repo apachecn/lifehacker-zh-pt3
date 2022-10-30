@@ -1,6 +1,6 @@
 # 用这个必备的扩展删除你的旧脸书活动
 
-> 原文:[https://life hacker . com/social-book-post-manager-is-a-must-happen-you-1823952493](https://lifehacker.com/social-book-post-manager-is-a-must-have-for-pruning-you-1823952493)
+> 原文：<https://lifehacker.com/social-book-post-manager-is-a-must-have-for-pruning-you-1823952493>
 
 尽管每个人都在谈论 [删除他们的脸书账户](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) ，我们怀疑你的大多数朋友可能像往常一样开始他们的一天——在早上通勤时查看脸书。但是如果你真的想清理你的脸书生活，Chrome 扩展 [社交图书管理员](https://chrome.google.com/webstore/detail/social-book-post-manager/ljfidlkcmdmmibngdfikhffffdmphjae?hl=en-US) 是一个很好的工具。
 

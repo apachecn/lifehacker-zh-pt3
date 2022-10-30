@@ -1,6 +1,6 @@
 # 制作 omurice，不可抗拒的日本番茄酱炒饭蛋卷——等等，回来
 
-> 原文:[https://the take out . com/make-omurice-the-incredible-Japanese-番茄酱-油炸-r-1825520368](https://thetakeout.com/make-omurice-the-irresistible-japanese-ketchup-fried-r-1825520368)
+> 原文：<https://thetakeout.com/make-omurice-the-irresistible-japanese-ketchup-fried-r-1825520368>
 
 被称为“yoshoku”的受西方影响的日本料理用日本主食重新构思了受欢迎的西方食材。一种特别受欢迎的菜肴叫做 omurice，是“煎蛋卷”和“米饭”的缩写，就是一个很好的例子。omurice 是儿童菜单上的一道重要菜肴，也是日本家庭厨师和西式餐车中一道受欢迎的菜肴。秘密:番茄酱。
 

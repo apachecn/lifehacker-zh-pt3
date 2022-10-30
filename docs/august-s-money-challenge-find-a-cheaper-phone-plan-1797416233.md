@@ -1,6 +1,6 @@
 # 八月的金钱挑战:找到一个更便宜的电话计划
 
-> 原文:[https://life hacker . com/August-s-money-challenge-find-a-bearer-phone-plan-1797416233](https://lifehacker.com/august-s-money-challenge-find-a-cheaper-phone-plan-1797416233)
+> 原文：<https://lifehacker.com/august-s-money-challenge-find-a-cheaper-phone-plan-1797416233>
 
 今年我们向你抛出了各种各样的金钱挑战，从 [讨价还价](http://twocents.lifehacker.com/may-s-money-challenge-let-s-haggle-1794740686) 到 [为退休储蓄](http://twocents.lifehacker.com/aprils-money-challenge-finally-open-a-401-k-1793914178) ，整整一年，你都在应对它们。这个月，我们想帮你节省一笔特殊的开支:你的手机账单。
 

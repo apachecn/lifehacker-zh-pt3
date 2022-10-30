@@ -1,6 +1,6 @@
 # 旅行时你应该调整避孕药的服用时间吗？
 
-> 原文:[https://life hacker . com/should-you-adjust-you-避孕药-schedule-when-1827546326](https://lifehacker.com/should-you-adjust-your-birth-control-pill-schedule-when-1827546326)
+> 原文：<https://lifehacker.com/should-you-adjust-your-birth-control-pill-schedule-when-1827546326>
 
 如果你使用过 [避孕药](https://lifehacker.com/a-basic-guide-to-the-countless-birth-control-options-ou-1673259659) 一段时间，你可能会被告知每天在同一时间服用以确保有效性。在家里保持一致的药丸时间表就像在手机上设置闹钟一样简单——但是当你穿越几个时区时会发生什么呢？
 

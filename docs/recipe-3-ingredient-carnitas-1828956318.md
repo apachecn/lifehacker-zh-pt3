@@ -1,6 +1,6 @@
 # 三种成分的 carnitas 意味着玉米卷之夜从未如此简单
 
-> 原文:[https://the take out . com/recipe-3-ingredient-carni tas-1828956318](https://thetakeout.com/recipe-3-ingredient-carnitas-1828956318)
+> 原文：<https://thetakeout.com/recipe-3-ingredient-carnitas-1828956318>
 
 我在芝加哥的皮尔森街区品尝过美味，这里可以说是这个城市最好的墨西哥餐馆的所在地。最令人满意的一餐是围绕 carnitas:猪肉在翻滚的猪油锅里烹制，切丝，然后放在刚做好的玉米饼上。周末，当我最喜欢的 carniceria 的队伍排得很长时，厨师会给等待的顾客分发松脆的 chicharron，感谢我们的耐心。当你最终拿到你的盘子时，它装满了热脆猪肉，玉米饼，一点洋葱和芫荽叶，和酸橙楔。
 

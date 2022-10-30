@@ -1,6 +1,6 @@
 # 不要等着买 T-Mobile 4 美元的《死侍 2》门票
 
-> 原文:[https://life hacker . com/dont-wait-to-buy-t-mobiles-4-dead pool-2-tickets-1825500191](https://lifehacker.com/dont-wait-to-buy-t-mobiles-4-deadpool-2-tickets-1825500191)
+> 原文：<https://lifehacker.com/dont-wait-to-buy-t-mobiles-4-deadpool-2-tickets-1825500191>
 
 我们讨厌“T-Mobile Tuesdays”这个词，但该运营商的最新报价肯定值得一些眼球:4 美元门票，为该公司的大量移动用户提供夏季大片《死侍 2》。
 

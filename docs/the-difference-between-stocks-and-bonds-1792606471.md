@@ -1,6 +1,6 @@
 # 股票和债券的区别
 
-> 原文:[https://life hacker . com/the-difference of-stocks and-bonds-1792606471](https://lifehacker.com/the-difference-between-stocks-and-bonds-1792606471)
+> 原文：<https://lifehacker.com/the-difference-between-stocks-and-bonds-1792606471>
 
 投资 [并不像大多数人认为的](http://twocents.lifehacker.com/you-learn-a-lot-about-investing-as-you-go-so-don-t-be-1738399489#_ga=1.193392429.1268082208.1431441811) 那么难，但是有很多术语要学。当你考虑投资时，股票和债券是两个常见的术语。很多人不知道区别，我们就来分解一下。
 

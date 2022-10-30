@@ -1,6 +1,6 @@
 # 在我们七月的挑战中尝试这些简单的深蹲
 
-> 原文:[https://life hacker . com/try-these-simple-squats-in-our-July-challenge-1827391460](https://lifehacker.com/try-these-simple-squats-during-our-july-challenge-1827391460)
+> 原文：<https://lifehacker.com/try-these-simple-squats-during-our-july-challenge-1827391460>
 
 深蹲可以像你希望的那样简单或困难。如果你一天做 100 个，你可能需要放松来完成你的定额，而不会让自己太累。如果你完全是初学者，你可能会发现最简单的深蹲也是一个挑战。这里有几个可以试试:
 

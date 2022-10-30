@@ -1,6 +1,6 @@
 # 如何享受假期而不打乱你的减肥计划
 
-> 原文:[https://life hacker . com/how-to-happen-your-weigh-1742218524](https://lifehacker.com/how-to-enjoy-the-holidays-without-messing-up-your-weigh-1742218524)
+> 原文：<https://lifehacker.com/how-to-enjoy-the-holidays-without-messing-up-your-weigh-1742218524>
 
 假期并不是健康和健身即将到来的预兆。尤其是考虑到，对许多人来说，12 月的海报男孩是一个病态肥胖的老人，狼吞虎咽地吃着饼干和蛋糕。但是，尽管有大量的美食和诱惑，这并不意味着你的饮食会一塌糊涂。下面，我们将讨论一个框架，你可以用它来坚持你的计划。
 

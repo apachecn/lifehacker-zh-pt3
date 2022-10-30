@@ -1,6 +1,6 @@
 # 一个小小的改变会给你的一年带来很大的不同
 
-> 原文:[https://life hacker . com/a-small-change-can-make-a-big-difference-to-you-year-1821673020](https://lifehacker.com/a-small-change-can-make-a-big-difference-to-your-year-1821673020)
+> 原文：<https://lifehacker.com/a-small-change-can-make-a-big-difference-to-your-year-1821673020>
 
 新年可能是实施重大变革的一个有意义的时间。但是并不是所有的事情都需要彻底改革——小而简单的改变会产生惊人的强大效果。
 

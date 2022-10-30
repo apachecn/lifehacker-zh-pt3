@@ -1,6 +1,6 @@
 # 如果 Face ID 不工作，如何在你的 iPhone X 上获得退款
 
-> 原文:[https://life hacker . com/how-to-get-a-return-on-your-iphone-x-if-face-id-stunts-1821333336](https://lifehacker.com/how-to-get-a-refund-on-your-iphone-x-if-face-id-doesnt-1821333336)
+> 原文：<https://lifehacker.com/how-to-get-a-refund-on-your-iphone-x-if-face-id-doesnt-1821333336>
 
 [【Face ID】](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)[iPhone X](https://lifehacker.com/what-do-you-like-or-hate-about-iphone-x-1820179520)大部分时间都非常完美地工作，尽管它似乎确实有一些问题来区分 [家庭成员](https://lifehacker.com/don-t-use-face-id-on-the-iphone-x-if-you-re-worried-abo-1821014444) 。但是，如果苹果新的面部识别技术不能区分你和某个随机的人，比如同事，会怎么样呢？
 

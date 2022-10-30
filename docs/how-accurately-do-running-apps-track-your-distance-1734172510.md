@@ -1,6 +1,6 @@
 # 跑步应用追踪你的距离有多准确？
 
-> 原文:[https://life hacker . com/how-accurally-do-running-apps-track-your-distance-1734172510](https://lifehacker.com/how-accurately-do-running-apps-track-your-distance-1734172510)
+> 原文：<https://lifehacker.com/how-accurately-do-running-apps-track-your-distance-1734172510>
 
 大多数时候，我相信我的跑步应用。如果我开始跑 3 英里，回家时屏幕上只有 2.8 英里，我会绕着街区慢跑来完成这项工作。但即使是智能手机有时也可能是愚蠢的:就像 MapMyRun 在我朋友跑步的河对岸抓取数据点一样。
 

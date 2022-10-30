@@ -1,6 +1,6 @@
 # 建造你自己的球坑，细菌恐惧症患者
 
-> 原文:[https://life hacker . com/build-your-own-ball-pit-germa phobes-1796861405](https://lifehacker.com/build-your-own-ball-pit-germaphobes-1796861405)
+> 原文：<https://lifehacker.com/build-your-own-ball-pit-germaphobes-1796861405>
 
 对孩子们来说，公共球场是充满欢乐和奇迹的多彩水池。对父母来说，它们是令人恶心的细菌培养器，是鼻屎、潮湿的创可贴和发霉的 PB&J 碎屑死去的地方。
 

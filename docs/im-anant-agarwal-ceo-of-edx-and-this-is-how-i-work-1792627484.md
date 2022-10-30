@@ -1,6 +1,6 @@
 # 我是 Anant Agarwal，edX 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-anant-Agarwal-CEO-of-EDX-and-this-is-how-I-work-1792627484](https://lifehacker.com/im-anant-agarwal-ceo-of-edx-and-this-is-how-i-work-1792627484)
+> 原文：<https://lifehacker.com/im-anant-agarwal-ceo-of-edx-and-this-is-how-i-work-1792627484>
 
 互联网无可争议的优点之一是提供免费在线课程，让任何人都能自学。 [edX](https://www.edx.org/) 就是这样一个渠道，由哈佛大学和麻省理工学院创立，提供免费的开源课程，让世界各地的人们获得原本无法获得的教育。
 

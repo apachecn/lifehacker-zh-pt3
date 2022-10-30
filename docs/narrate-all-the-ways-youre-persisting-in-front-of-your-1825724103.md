@@ -1,6 +1,6 @@
 # 讲述你在孩子面前坚持的所有方式
 
-> 原文:[https://life hacker . com/叙说你一直坚持在你的前面 1825724103](https://lifehacker.com/narrate-all-the-ways-youre-persisting-in-front-of-your-1825724103)
+> 原文：<https://lifehacker.com/narrate-all-the-ways-youre-persisting-in-front-of-your-1825724103>
 
 我经常丢钥匙。我发短信说“迟到 10 分钟”的次数比我应该发的次数多。我每晚都不能从我的车里拿出所有的随机儿童垃圾袋，所以我不断地抓取新的袋子，并把它们装满更多的随机儿童垃圾。我吃了之后会觉得恶心的东西。我高估了我们消费的食品杂货的数量，并且经常扔掉食物。不止一次，我在公园里温顺地问父母朋友，“嘿，你带防晒霜了吗？”(很遗憾，我可以继续，但是这个小练习并没有让我感觉最好。)
 

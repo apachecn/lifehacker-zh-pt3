@@ -1,6 +1,6 @@
 # 暴食者受益于治疗，而不是节食
 
-> 原文:[https://life hacker . com/binge-eaters-benefit-from-therapy-not-diets-1800678019](https://lifehacker.com/binge-eaters-benefit-from-therapy-not-diets-1800678019)
+> 原文：<https://lifehacker.com/binge-eaters-benefit-from-therapy-not-diets-1800678019>
 
 克莱尔·祖尔基在《T2》[【大西洋】](https://www.theatlantic.com/health/archive/2017/08/how-therapy-can-cure-overeating/537537/) 中认为，也许失败的节食者需要治疗暴饮暴食，而不是限制食物。她描述了许多节食者陷入的循环:控制饮食计划——这么多盎司的奶酪，一副牌份的肉，可能没有奶酪——然后当节食者屈服于诱惑时，暴饮暴食随之而来:一整个披萨，在 Hardees 的三顿早餐，许多盒奶酪。沮丧和羞愧，他们开始更严格的饮食(通常在最后一次狂欢之前)，并再次开始循环。
 

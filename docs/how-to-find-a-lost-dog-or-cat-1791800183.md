@@ -1,6 +1,6 @@
 # 如何找到丢失的狗或猫
 
-> 原文:[https://life hacker . com/how-to-find a lost-dog-or-cat-1791800183](https://lifehacker.com/how-to-find-a-lost-dog-or-cat-1791800183)
+> 原文：<https://lifehacker.com/how-to-find-a-lost-dog-or-cat-1791800183>
 
 失去一只狗或一只猫就像失去了一个家庭成员，这很可怕。你会担心，你会为他们的健康担忧，你会翻遍每一块石头直到找到他们。如果你的猫或狗不见了，这份指南将帮助你尽快把你毛茸茸的朋友安全地带回家。
 

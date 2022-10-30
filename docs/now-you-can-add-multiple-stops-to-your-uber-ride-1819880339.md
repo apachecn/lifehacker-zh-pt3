@@ -1,6 +1,6 @@
 # 现在，您可以在优步之旅中增加多个站点
 
-> 原文:[https://life hacker . com/now-you-can-add-multi-stops-to-your ' s Uber-ride-1819880339](https://lifehacker.com/now-you-can-add-multiple-stops-to-your-uber-ride-1819880339)
+> 原文：<https://lifehacker.com/now-you-can-add-multiple-stops-to-your-uber-ride-1819880339>
 
 当你和朋友外出过夜回家时，分享一个优步通常很有意义。然而，到目前为止，你必须口头告诉你的司机你要停几站，然后每次有人下车时输入一个新的地址。这是一个可行的过程，但是对你和车手来说都很令人沮丧。
 

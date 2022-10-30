@@ -1,6 +1,6 @@
 # 作为自由职业者，我如何管理自己的收入
 
-> 原文:[https://life hacker . com/how-I-manage-my-income-as-a-freelancer-1784732927](https://lifehacker.com/how-i-manage-my-income-as-a-freelancer-1784732927)
+> 原文：<https://lifehacker.com/how-i-manage-my-income-as-a-freelancer-1784732927>
 
 有稳定、固定的收入来管理你的钱 已经够难了。作为自由职业者或个体户，当你的收入逐月变化时，保持你的财务有条不紊就更加痛苦了。根据我的经验，你需要一个系统。设置一次，它会永远保护你。这是我使用的系统。
 

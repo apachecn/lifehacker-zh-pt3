@@ -1,6 +1,6 @@
 # 帮助您掌握 Microsoft Office 的 10 大备忘单
 
-> 原文:[https://life hacker . com/top-10-cheat-sheets-to-help-you-master-Microsoft-office-1768667500](https://lifehacker.com/top-10-cheat-sheets-to-help-you-master-microsoft-office-1768667500)
+> 原文：<https://lifehacker.com/top-10-cheat-sheets-to-help-you-master-microsoft-office-1768667500>
 
 微软 Office 仍然是全球公司和个人最常用的办公套件。当您使用这些程序时，这些 Word、Excel、PowerPoint 和 OneNote 备忘单将有助于提高您的工作效率并节省时间。
 

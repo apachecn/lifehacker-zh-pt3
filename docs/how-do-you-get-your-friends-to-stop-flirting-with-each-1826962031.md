@@ -1,6 +1,6 @@
 # 你如何让你的朋友停止互相调情？
 
-> 原文:[https://life hacker . com/how-do-you-get-you-friends-to-stop-tweeting-each-1826962031](https://lifehacker.com/how-do-you-get-your-friends-to-stop-flirting-with-each-1826962031)
+> 原文：<https://lifehacker.com/how-do-you-get-your-friends-to-stop-flirting-with-each-1826962031>
 
 本周我们有一位女士，她以柏拉图式的方式与男性相处融洽，但最近介绍了一位轻浮的女性朋友。她能让他们停止互相调情吗？还是她需要克服它？
 

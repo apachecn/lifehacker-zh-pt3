@@ -1,6 +1,6 @@
 # 如何通过二维码添加新的 LinkedIn 连接
 
-> 原文:[https://life hacker . com/how-to-add-a-new-LinkedIn-connection-via-QR-code-1827261999](https://lifehacker.com/how-to-add-a-new-linkedin-connection-via-qr-code-1827261999)
+> 原文：<https://lifehacker.com/how-to-add-a-new-linkedin-connection-via-qr-code-1827261999>
 
 每当你在社交活动中遇到你想再次聊天的人，问题就出现了:怎么聊？
 

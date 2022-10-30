@@ -1,6 +1,6 @@
 # 《幼儿生存指南》作者谈如何让幼儿生存下来
 
-> 原文:[https://life hacker . com/how-to-survive-from-the-authors-of-the-the-the-culld-1797312043](https://lifehacker.com/how-to-survive-toddlers-from-the-authors-of-the-toddler-1797312043)
+> 原文：<https://lifehacker.com/how-to-survive-toddlers-from-the-authors-of-the-toddler-1797312043>
 
 初学走路的孩子被比作 [喝醉的成年人](https://www.buzzfeed.com/awesomer/reasons-kids-are-pretty-much-just-tiny-drunk-adults?utm_term=.hnZxBvkP9#.rmZXypO1q) 、龙卷风、 [定时炸弹](https://www.reddit.com/r/childfree/comments/57okwf/infants_and_toddlers_are_like_ticking_time_bombs/) 、政客、 [小狗](http://thestir.cafemom.com/being_a_mom/168980/28_ways_toddlers_are_like) 和小妖精。现在，在新书《蹒跚学步的儿童生存指南:完全保护免于饥饿的抱怨》中，作者迈克和希瑟·斯波尔提出了一个令人信服的理由，即这些小小的、磕磕绊绊的生物很像僵尸。“无论你去哪里，它们都跟在你后面，它们都主要通过呻吟来交流，在这两种情况下，一旦它们出现，你的生活就永远不一样了，”迈克说。
 

@@ -1,6 +1,6 @@
 # 不要指望邮购测试来诊断你的食物过敏
 
-> 原文:[https://life hacker . com/don-t-expect-mail-order-tests-to-diagnose-your-food-all-1822393818](https://lifehacker.com/don-t-expect-mail-order-tests-to-diagnose-your-food-all-1822393818)
+> 原文：<https://lifehacker.com/don-t-expect-mail-order-tests-to-diagnose-your-food-all-1822393818>
 
 “你吃什么就是什么。是什么让你慢了下来？”阅读 EverlyWell 食品敏感度测试的 [销售页面](http://food-sensitivity-plus.everlywell.com/)(199 美元及以上)。如果你对自己身体的任何模糊抱怨都能通过一个简单的测试检测出来，并在下一顿饭时得到解决，那就太好了。可惜事情不是这样的。
 

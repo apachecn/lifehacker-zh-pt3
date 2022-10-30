@@ -1,6 +1,6 @@
 # 用 Sinemia 的新“无限”计划取代您已取消的 MoviePass 订阅
 
-> 原文:[https://life hacker . com/replace-your-canceled-movie pass-subscription-with-sinem-1829116759](https://lifehacker.com/replace-your-canceled-moviepass-subscription-with-sinem-1829116759)
+> 原文：<https://lifehacker.com/replace-your-canceled-moviepass-subscription-with-sinem-1829116759>
 
 如果你一直在哀悼失去 MoviePass 的无限电影计划，现在你可以选择从其最大的竞争对手那里获得类似的交易。Sinemia 周一宣布，它将为 [提供一种新的“无限”机票选择](https://www.sinemia.com/new-plans/us/los-angeles) ，每月 29.99 美元。
 

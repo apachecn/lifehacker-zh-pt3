@@ -1,6 +1,6 @@
 # 从饮食中获取足够蛋白质的完整指南
 
-> 原文:[https://life hacker . com/how-much-much-protein-you-diet-1774435152](https://lifehacker.com/how-much-protein-you-really-need-in-your-diet-1774435152)
+> 原文：<https://lifehacker.com/how-much-protein-you-really-need-in-your-diet-1774435152>
 
 获取足够的蛋白质是很重要的，不管你是想要健康的皮肤和指甲，还是想要减肥，还是想要变得强壮。但是“足够”可能是多吃几个鸡蛋和用蛋白奶昔冲下牛排的区别。以下是找出答案的方法。
 

@@ -1,6 +1,6 @@
 # 和你的孩子一起看这些永恒的电视节目
 
-> 原文:[https://life hacker . com/watch-these-timeless-TV-shows-with-your-kids-1829337673](https://lifehacker.com/watch-these-timeless-tv-shows-with-your-kids-1829337673)
+> 原文：<https://lifehacker.com/watch-these-timeless-tv-shows-with-your-kids-1829337673>
 
 大多数老小孩的电视节目就像瘪了的香槟酒瓶。一旦流行文化的泡沫过去，它们就只是你倒进下水道的醋。但并不总是如此。一些节目超越了他们的时刻，偶然地或有意地，并设法成为永恒的。下面列出的 10 个节目是我为大龄儿童和青少年选择的电视节目，即使是最疲惫的现代儿童也会喜欢。
 

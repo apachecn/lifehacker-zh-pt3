@@ -1,6 +1,6 @@
 # 如何删除浏览器地址栏中烦人的自动填充条目
 
-> 原文:[https://life hacker . com/how-to-delete-angry-auto fill-entries-in-your-browser-1828635913](https://lifehacker.com/how-to-delete-annoying-autofill-entries-in-your-browser-1828635913)
+> 原文：<https://lifehacker.com/how-to-delete-annoying-autofill-entries-in-your-browser-1828635913>
 
 当你第一次尝试访问一个网站时，打错字是令人沮丧的。然后，因为你的浏览器讨厌你，每当你开始在地址栏中键入正确的地址时，它就会试图自动完成错误的网站，比如 *netflux* 或 *faceboik* 。
 

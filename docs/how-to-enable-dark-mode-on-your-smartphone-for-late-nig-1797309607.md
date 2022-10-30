@@ -1,6 +1,6 @@
 # 如何在智能手机上启用黑暗模式进行深夜浏览
 
-> 原文:[https://life hacker . com/how-to-enable-dark-mode-on-your-smart phone-late-nig-1797309607](https://lifehacker.com/how-to-enable-dark-mode-on-your-smartphone-for-late-nig-1797309607)
+> 原文：<https://lifehacker.com/how-to-enable-dark-mode-on-your-smartphone-for-late-nig-1797309607>
 
 晚上用智能手机看视频对你的眼睛来说非常刺眼，更不用说会让房间里其他可能正在睡觉的人感到非常烦躁。虽然许多视频播放器和应用程序现在都发布了“黑暗模式”功能，该功能可以反转界面的颜色，但这些功能往往隐藏在设置中，不会被宣传。
 

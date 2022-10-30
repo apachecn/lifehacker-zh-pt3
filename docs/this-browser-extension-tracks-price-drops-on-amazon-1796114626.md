@@ -1,6 +1,6 @@
 # 这个浏览器扩展跟踪亚马逊上的价格下降
 
-> 原文:[https://life hacker . com/this-browser-extension-tracks-price-drops-on-Amazon-1796114626](https://lifehacker.com/this-browser-extension-tracks-price-drops-on-amazon-1796114626)
+> 原文：<https://lifehacker.com/this-browser-extension-tracks-price-drops-on-amazon-1796114626>
 
 Chrome:我讨厌优惠券，但我喜欢省钱，这就是为什么我是 [Honey](https://www.joinhoney.com) 的粉丝，这是一个在结账时自动找到并应用优惠券代码 的 [浏览器扩展。更好的是，他们刚刚发布了一个更新，让你可以跟踪亚马逊上的价格下跌。](http://lifehacker.com/honey-automatically-searches-for-and-applies-coupon-cod-5978700#_ga=2.159968765.1367416964.1497481887-1040816495.1497481887)
 

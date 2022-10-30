@@ -1,6 +1,6 @@
 # Moonshot 桌面
 
-> 原文:[https://lifehacker.com/the-moonshot-desktop-1728219005](https://lifehacker.com/the-moonshot-desktop-1728219005)
+> 原文：<https://lifehacker.com/the-moonshot-desktop-1728219005>
 
 这款 Windows 10 桌面超级简单，但一切都刚刚好。部分原因是因为 [维克多](https://www.flickr.com/photos/vzhang/) 正在一台 60 英寸的电视上使用它，但它缺少小部件和开关并没有降低它的实用性和美观性。这里是你需要一个相似的外观。
 

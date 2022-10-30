@@ -1,6 +1,6 @@
 # 确保你的理财顾问是“受托人”
 
-> 原文:[https://life hacker . com/make-assure-your-money-advisor-is-a-fiduciary-1823997074](https://lifehacker.com/make-sure-your-money-advisor-is-a-fiduciary-1823997074)
+> 原文：<https://lifehacker.com/make-sure-your-money-advisor-is-a-fiduciary-1823997074>
 
 如果你在乎你的钱，你应该记住“受托人”这个词如果你雇人帮你理财，这很重要。随着信托规则在砧板上，这取决于你来确保你的财务顾问的行为符合你的最大利益。
 

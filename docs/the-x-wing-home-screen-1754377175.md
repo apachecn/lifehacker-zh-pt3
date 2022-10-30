@@ -1,6 +1,6 @@
 # X 翼主屏幕
 
-> 原文:[https://lifehacker.com/the-x-wing-home-screen-1754377175](https://lifehacker.com/the-x-wing-home-screen-1754377175)
+> 原文：<https://lifehacker.com/the-x-wing-home-screen-1754377175>
 
 不知道你们听说了没有，有一部新的星球大战电影？今天的主屏幕知道如何将注意力集中在重要的事情上，最小化的界面将非星球大战的东西挡在外面。
 

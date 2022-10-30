@@ -1,6 +1,6 @@
 # 如何让 Pixel 2 永远显示在你的旧谷歌手机上
 
-> 原文:[https://life hacker . com/how-to-get-the-pixel-2-s-always-on-display-on-your-olde-1820443344](https://lifehacker.com/how-to-get-the-pixel-2-s-always-on-display-on-your-olde-1820443344)
+> 原文：<https://lifehacker.com/how-to-get-the-pixel-2-s-always-on-display-on-your-olde-1820443344>
 
 [Pixel 2 的关键特性之一](https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006) 就是它的常亮显示屏。由于手机的[【OLED 面板】](https://lifehacker.com/how-to-unlock-google-s-hidden-dark-theme-on-the-pixel-2-1819654177) ，它可以让屏幕一直保持黑色但处于活动状态，这样你就可以在不耗尽电池的情况下快速访问信息(如时间、日期和通知)。
 

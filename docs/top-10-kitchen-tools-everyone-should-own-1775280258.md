@@ -1,6 +1,6 @@
 # 每个人都应该拥有的十大厨房工具
 
-> 原文:[https://life hacker . com/top-10-kitchen-tools-every one-should-own-1775280258](https://lifehacker.com/top-10-kitchen-tools-everyone-should-own-1775280258)
+> 原文：<https://lifehacker.com/top-10-kitchen-tools-everyone-should-own-1775280258>
 
 你需要装备你的厨房，因为，嗯，你不打算下半辈子都在外面吃饭或者叫外卖。好消息是，你不需要特殊的厨房用具，如食物处理器、立式搅拌机或搅拌器，就可以在家制作美味的食物。坏消息是你确实需要一些装备。这是一份让你开始的清单。
 

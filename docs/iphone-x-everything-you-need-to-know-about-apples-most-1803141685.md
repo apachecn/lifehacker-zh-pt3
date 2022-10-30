@@ -1,6 +1,6 @@
 # iPhone X:关于苹果多年来最有趣的手机，你需要知道的一切
 
-> 原文:[https://gizmodo . com/iphone-x-everything-you-need-know-on-apple-most-1803141685](https://gizmodo.com/iphone-x-everything-you-need-to-know-about-apples-most-1803141685)
+> 原文：<https://gizmodo.com/iphone-x-everything-you-need-to-know-about-apples-most-1803141685>
 
 这是正式的。苹果十周年纪念版 iPhone 终于来了，它被称为 iPhone X。这款手机的边框基本上被取消了，它的屏幕更大了。回归多年前的设计元素，新手机有一个玻璃背面，这是自 iPhone 4s 以来我们从未见过的。
 

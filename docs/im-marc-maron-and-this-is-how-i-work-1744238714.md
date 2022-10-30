@@ -1,6 +1,6 @@
 # 我是喜剧演员兼播客马克·马龙，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Marc-maron-and-this-is-how-I-work-1744238714](https://lifehacker.com/im-marc-maron-and-this-is-how-i-work-1744238714)
+> 原文：<https://lifehacker.com/im-marc-maron-and-this-is-how-i-work-1744238714>
 
 无论用什么标准来衡量，马克·马龙今年都是丰收的一年。这位喜剧演员在他的 [播客](http://www.wtfpod.com/podcast/episodes/episode_613_-_president_barack_obama) 中与奥巴马总统进行了交谈，他在 IFC 上的 [电视节目完成了第三季，并被续订了另一季，他还有一个](http://www.ifc.com/shows/maron) [新的脱口秀特别节目](http://www.epixhd.com/movie/marc-maron-more-later/) 在几天后首播。感觉一定很好，对吧？
 

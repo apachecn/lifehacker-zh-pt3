@@ -1,6 +1,6 @@
 # 用数学的力量营造完美的派对氛围
 
-> 原文:[https://life hacker . com/how-to-architect the-the-the-1821223602](https://lifehacker.com/how-to-architect-the-perfect-party-atmosphere-with-the-1821223602)
+> 原文：<https://lifehacker.com/how-to-architect-the-perfect-party-atmosphere-with-the-1821223602>
 
 举办一场完美的派对需要的不仅仅是美酒、动听的音乐和美味的小吃。它需要适量的人来营造你所追求的氛围。这种聚会邀请的公式化方法将帮助你举办最大的狂欢或最迷人的晚宴。
 

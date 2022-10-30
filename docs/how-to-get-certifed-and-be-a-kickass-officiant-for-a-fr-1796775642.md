@@ -1,6 +1,6 @@
 # 如何获得认证，并成为一个朋友的婚礼主持人[更新]
 
-> 原文:[https://life hacker . com/how-to-get-certified-and-be-a-kickass-officient-for-a-fr-1796775642](https://lifehacker.com/how-to-get-certifed-and-be-a-kickass-officiant-for-a-fr-1796775642)
+> 原文：<https://lifehacker.com/how-to-get-certifed-and-be-a-kickass-officiant-for-a-fr-1796775642>
 
 我们都知道成为你朋友婚礼的司仪有多容易，对吗？只需在你的手机浏览器上点击几下，你就被任命了！事实证明，这条路线可能不会导致合法婚姻，这可能会给你朋友的生活带来严重破坏。以下是如何成为一名正式的司仪，以及当你要和两个你在乎的人结婚时该说些什么。
 

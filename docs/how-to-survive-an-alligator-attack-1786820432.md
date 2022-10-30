@@ -1,6 +1,6 @@
 # 如何在鳄鱼袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-alligator-attack-1786820432](https://lifehacker.com/how-to-survive-an-alligator-attack-1786820432)
+> 原文：<https://lifehacker.com/how-to-survive-an-alligator-attack-1786820432>
 
 在美国发现的所有野生动物中，短吻鳄是最令人生畏的动物之一。它有鳞的皮肤，爬行动物的眼睛和锋利的牙齿使它看起来像一个真正的怪物。事实上，他们用一种叫做“死亡掷骰子”的动作杀人，也不能阻止恐惧。但是只要有一点知识，你就可以避免成为鳄鱼的诱饵。
 

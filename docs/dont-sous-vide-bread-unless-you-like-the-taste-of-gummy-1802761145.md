@@ -1,6 +1,6 @@
 # 除非你喜欢巨美耻辱的味道，否则不要把面包分开
 
-> 原文:[https://life hacker . com/don-sous-vide-bread-unless-you-like-the-taste of-gummy-1802761145](https://lifehacker.com/dont-sous-vide-bread-unless-you-like-the-taste-of-gummy-1802761145)
+> 原文：<https://lifehacker.com/dont-sous-vide-bread-unless-you-like-the-taste-of-gummy-1802761145>
 
 朋友们大家好，欢迎回到 [*它会苏威吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。本周，我们再次尝试真空烘烤，除了以外，这种方法在过去中效果不佳。
 

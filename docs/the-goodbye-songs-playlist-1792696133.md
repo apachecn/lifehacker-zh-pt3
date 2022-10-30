@@ -1,6 +1,6 @@
 # 再见歌曲播放列表
 
-> 原文:[https://life hacker . com/the-goodbye-songs-playlist-1792696133](https://lifehacker.com/the-goodbye-songs-playlist-1792696133)
+> 原文：<https://lifehacker.com/the-goodbye-songs-playlist-1792696133>
 
 告别从来都不容易。当你看着你的过去在喷气式飞机上飞走的时候，你的心里打开了一个小洞。无论你是很高兴看到它的离去，还是会怀念过去的日子，这个播放列表会帮你找到说再见的话。
 

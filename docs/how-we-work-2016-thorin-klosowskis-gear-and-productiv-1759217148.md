@@ -1,6 +1,6 @@
 # 我们如何工作，2016:索林·克洛索斯基的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2016-thorin-klosowskis-gear-and-productivi-1759217148](https://lifehacker.com/how-we-work-2016-thorin-klosowskis-gear-and-productiv-1759217148)
+> 原文：<https://lifehacker.com/how-we-work-2016-thorin-klosowskis-gear-and-productiv-1759217148>
 
 通常， [我们都忙着向外看](http://lifehacker.com/tag/how-i-work) ，看看[【经常出名的】](http://lifehacker.com/im-alton-brown-and-this-is-how-i-work-1718241519#_ga=1.186299177.1055861349.1441835238) 人是如何工作的。但是每年一次，我们把镜头向内转。今天，轮到我了。
 

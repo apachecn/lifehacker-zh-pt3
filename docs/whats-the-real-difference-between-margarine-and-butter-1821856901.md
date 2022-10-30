@@ -1,6 +1,6 @@
 # 人造黄油和黄油的真正区别是什么？
 
-> 原文:[https://the take out . com/what ' s real-difference-what-the-real-what-what-the-makeful-and-butter-1821856901](https://thetakeout.com/whats-the-real-difference-between-margarine-and-butter-1821856901)
+> 原文：<https://thetakeout.com/whats-the-real-difference-between-margarine-and-butter-1821856901>
 
 那么黄油和人造黄油有什么区别呢？
 

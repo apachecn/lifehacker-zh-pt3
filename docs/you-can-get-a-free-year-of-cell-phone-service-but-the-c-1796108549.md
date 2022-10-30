@@ -1,6 +1,6 @@
 # 你可以获得一年的免费手机服务——但是运营商的冲刺
 
-> 原文:[https://life hacker . com/you-can-get-an-the-c-1796108549](https://lifehacker.com/you-can-get-a-free-year-of-cell-phone-service-but-the-c-1796108549)
+> 原文：<https://lifehacker.com/you-can-get-a-free-year-of-cell-phone-service-but-the-c-1796108549>
 
 我对我的手机运营商的家庭计划漠不关心。很好，很有效，我付钱给他们，不管怎样。
 

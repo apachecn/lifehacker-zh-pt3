@@ -1,6 +1,6 @@
 # 这是你的野餐食物在高温下变坏的速度
 
-> 原文:[https://life hacker . com/here-s-how-fast-your ' s 野餐食物在高温下变坏-1827300252](https://lifehacker.com/here-s-how-fast-your-picnic-food-goes-bad-in-the-heat-1827300252)
+> 原文：<https://lifehacker.com/here-s-how-fast-your-picnic-food-goes-bad-in-the-heat-1827300252>
 
 当你在家做饭时，你知道你有两个小时——如果你真的想推的话，可以说是四个小时——来把你的食物从室温空气中取出并放进你的肚子里。再久一点，那盘鸡肉沙拉就是一场细菌大战。但是如果你在 90 度的天气里野餐，食物会变坏得更快——快得多。
 

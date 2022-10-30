@@ -1,6 +1,6 @@
 # 不用设置 Apple Pay，去掉 iPhone 上那个烦人的红点
 
-> 原文:[https://life hacker . com/get-ride-out-on-your-iphone-without-1824314069](https://lifehacker.com/get-rid-of-that-annoying-red-dot-on-your-iphone-without-1824314069)
+> 原文：<https://lifehacker.com/get-rid-of-that-annoying-red-dot-on-your-iphone-without-1824314069>
 
 iOS:布满我们 iPhone 主屏幕的 [红色通知徽章](https://lifehacker.com/hack-your-notification-badges-to-encourage-good-habits-1819139456) 大部分是有用的，但有时它们会非常烦人。例如，你可能厌倦了在你的 iPhone 设置应用上看到那个丑陋的红点，它永远提醒你是时候设置 [Apple Pay](https://lifehacker.com/how-to-get-started-with-apples-new-apple-pay-cash-1821168610) 了。值得庆幸的是，有一个简单的解决方案藏在显而易见的地方——如果你不想(或不能)将你的信用卡与 Apple Pay 关联起来。
 

@@ -1,6 +1,6 @@
 # 为什么我要和助产士而不是医生一起生孩子
 
-> 原文:[https://life hacker . com/why-I-happed my babies-with a-助产士-而不是医生-1743669422](https://lifehacker.com/why-i-had-my-babies-with-a-midwife-instead-of-a-doctor-1743669422)
+> 原文：<https://lifehacker.com/why-i-had-my-babies-with-a-midwife-instead-of-a-doctor-1743669422>
 
 “你在做超声波检查吗？”助产士问，在我第一次预约的时候。我认为这是一个误解:没有人告诉我是否会有一个。“嗯，这取决于你，”她说。她可以解释利弊，但决定权在我。欢迎来到助产护理模式。
 

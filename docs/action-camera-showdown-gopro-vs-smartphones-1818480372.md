@@ -1,6 +1,6 @@
 # 动作相机对决 gopro vs 智能手机
 
-> 原文:[https://life hacker . com/action-camera-摊牌-go pro-vs-smart phones-1818480372](https://lifehacker.com/action-camera-showdown-gopro-vs-smartphones-1818480372)
+> 原文：<https://lifehacker.com/action-camera-showdown-gopro-vs-smartphones-1818480372>
 
 去斜坡上玩很酷，但是分享一个第一人称视角的你感染了生病的空气会更酷。当每个人把相机绑在脸上时，他们都幻想自己是一个潜在的 X-Games 参赛者，但不是每个人都需要运动友好型动作相机提供的耐用性。对于我们大多数人来说，捕捉精彩的技巧片段或领略大自然壮丽的答案可能就在你的智能手机里。那么，哪一个最适合你呢？
 

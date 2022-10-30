@@ -1,6 +1,6 @@
 # 如何获得酒店免费住宿
 
-> 原文:[https://life hacker . com/how-to-score-a-free-night-in-a-hotel-when you-been-in-1819658073](https://lifehacker.com/how-to-score-a-free-night-in-a-hotel-when-youve-been-in-1819658073)
+> 原文：<https://lifehacker.com/how-to-score-a-free-night-in-a-hotel-when-youve-been-in-1819658073>
 
 酒店生活是甜蜜的，尤其是如果你在行李中留有空间放所有的迷你洗发水和毛巾。糟糕的是，离开你的公寓休息一晚是如此昂贵，你最好去贝德柏士比昂公司。也就是说，除非你能学会用一种完全合法的方式骗到一个免费的家。
 

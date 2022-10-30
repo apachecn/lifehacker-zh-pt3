@@ -1,6 +1,6 @@
 # 如何说服你的孩子不要相信五秒规则
 
-> 原文:[https://life hacker . com/how-to-confident-your-kids-not-to-trust the five-seconds-1807060473](https://lifehacker.com/how-to-convince-your-kids-not-to-trust-the-five-second-1807060473)
+> 原文：<https://lifehacker.com/how-to-convince-your-kids-not-to-trust-the-five-second-1807060473>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3FMZbIoPn2w&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3FMZbIoPn2w&start=0) 
 

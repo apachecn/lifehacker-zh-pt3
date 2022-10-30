@@ -1,6 +1,6 @@
 # 如何开始使用 Linux 操作系统
 
-> 原文:[https://life hacker . com/how-to-get-started-with-the-Linux-operating-system-1819644874](https://lifehacker.com/how-to-get-started-with-the-linux-operating-system-1819644874)
+> 原文：<https://lifehacker.com/how-to-get-started-with-the-linux-operating-system-1819644874>
 
 你使用什么操作系统？对一些人来说，这个问题可以用拉丁语或梵语提出。对其他人来说，这是一场关于 GUI 与命令行、现代 UI 与传统隐喻、Windows 10 的利与弊、LAMP 与 IIS 的激烈辩论……清单还在继续。然而，对大多数人来说，答案将是 Windows 或 Mac 上的变体。
 

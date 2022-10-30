@@ -1,6 +1,6 @@
 # 为什么我永远不会跑去捡垃圾
 
-> 原文:[https://gizmodo . com/why-I-will-never-run-and-pick-up-trash-1823455055](https://gizmodo.com/why-i-will-never-run-and-pick-up-trash-1823455055)
+> 原文：<https://gizmodo.com/why-i-will-never-run-and-pick-up-trash-1823455055>
 
 有一种新的趋势正在席卷全国——实际上是全世界——这就是所谓的 plogging。不，不是在平台上写博客(三年前那个“plogging”[来来去去](https://www.wired.com/2015/10/long-blogging-hello-yep-going-say-plogging/) )，而是边跑边捡垃圾。Plogging 来自瑞典语短语“plocka upp”，意思是捡起来，从 [*【华盛顿邮报】*](https://www.washingtonpost.com/news/inspired-life/wp/2018/02/23/plogging-is-the-swedish-fitness-craze-for-people-who-want-to-save-the-planet-its-making-its-way-to-the-u-s/?utm_term=.84acf569f95f) 到 [*【男性健康】*](https://www.menshealth.com/fitness/a18698660/i-tried-plogging-the-swedish-fitness-craze-that-involves-literal-garbage/) 等出版物都掀起了这股热潮。就我而言，永远不会。
 

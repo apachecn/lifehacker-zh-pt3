@@ -1,6 +1,6 @@
 # 搬家前更改地址可以获得很大的折扣
 
-> 原文:[https://life hacker . com/score-big-discounts-by-changing-you-before-you-1823250293](https://lifehacker.com/score-big-discounts-by-changing-your-address-before-you-1823250293)
+> 原文：<https://lifehacker.com/score-big-discounts-by-changing-your-address-before-you-1823250293>
 
 搬家很贵。除了弄清楚你要把你所有的东西都装进什么东西里，以及你是否会为你的朋友买搬家公司的东西或者披萨和啤酒，当谈到基本的家居用品时，搬到一个新的地方总是会比你预期的花费更多。
 

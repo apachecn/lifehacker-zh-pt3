@@ -1,6 +1,6 @@
 # 使用最新的动作启动器更新，让您的手机焕然一新
 
-> 原文:[https://life hacker . com/give-your-phone-an-Android-p-make-with-the-latest-a-1825715331](https://lifehacker.com/give-your-phone-an-android-p-makeover-with-the-latest-a-1825715331)
+> 原文：<https://lifehacker.com/give-your-phone-an-android-p-makeover-with-the-latest-a-1825715331>
 
 Android:[Android P](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465)今年晚些时候才会正式推出。虽然你可以通过查看 [谷歌最新的开发者预览版](https://developer.android.com/preview/) 来提前一点进入，但如果你担心测试软件有问题，还有另一种方法可以在你目前的智能手机上体验 Android P。
 

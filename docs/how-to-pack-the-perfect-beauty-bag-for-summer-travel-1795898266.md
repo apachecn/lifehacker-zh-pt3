@@ -1,6 +1,6 @@
 # 如何为夏季旅行打包完美的美容包
 
-> 原文:[https://life hacker . com/how-to-pack-the-perfect-beauty-bag-for-summer-travel-1795898266](https://lifehacker.com/how-to-pack-the-perfect-beauty-bag-for-summer-travel-1795898266)
+> 原文：<https://lifehacker.com/how-to-pack-the-perfect-beauty-bag-for-summer-travel-1795898266>
 
 旅行前我打包的最后一件东西是我的化妆包。我总是跑在后面，所以我不可避免地慌慌张张地把东西扔在包里，忘记了我需要的东西，至少带了三样我不需要的东西。夏天终于来了，我计划了几次旅行，但总是有公路旅行和周末旅行会在最后一刻出现，所以最好有一个备用包，随时准备好，或者至少有适合旅行的产品，这样我就知道在匆忙中带什么。
 

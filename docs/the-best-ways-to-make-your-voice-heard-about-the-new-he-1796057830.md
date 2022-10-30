@@ -1,6 +1,6 @@
 # 让人们听到你对新医保法案的声音的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-make-your-voice-head-on-the-new-he-1796057830](https://lifehacker.com/the-best-ways-to-make-your-voice-heard-about-the-new-he-1796057830)
+> 原文：<https://lifehacker.com/the-best-ways-to-make-your-voice-heard-about-the-new-he-1796057830>
 
 你可能没怎么听说过参议院版本的医疗保健法案，因为一个小型委员会一直在秘密地研究它。他们目前计划零公开听证会，并试图在向美国人民公开任何文本之前将其发送给国会预算办公室。如果你认为这样不行——不管你对医疗保健持什么立场——是时候拿起那些电话了。
 

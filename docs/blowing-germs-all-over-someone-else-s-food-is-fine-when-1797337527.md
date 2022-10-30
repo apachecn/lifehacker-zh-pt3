@@ -1,6 +1,6 @@
 # 当别人的食物是生日蛋糕时，把细菌吹得到处都是没问题
 
-> 原文:[https://life hacker . com/blowing-germs-all-over-someone-s-food-is-fine-when-1797337527](https://lifehacker.com/blowing-germs-all-over-someone-else-s-food-is-fine-when-1797337527)
+> 原文：<https://lifehacker.com/blowing-germs-all-over-someone-else-s-food-is-fine-when-1797337527>
 
 根据最近的研究， [在生日蛋糕上吹得到处都是，把细菌放在那个生日蛋糕上](http://www.ccsenet.org/journal/index.php/jfr/article/view/67217) 。仔细想想就很明显了。你会不会说，“朋友，请给我的三明治吹口气？”那会很恶心，不是吗？
 

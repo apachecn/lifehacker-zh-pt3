@@ -1,6 +1,6 @@
 # 七月书友会公开线程:如何快乐 10%
 
-> 原文:[https://life hacker . com/July-book-club-open-thread-how-to-be-10-happer-1828028377](https://lifehacker.com/july-book-club-open-thread-how-to-be-10-happier-1828028377)
+> 原文：<https://lifehacker.com/july-book-club-open-thread-how-to-be-10-happier-1828028377>
 
 “正念”的好处和获得它的方法早就被宣传了，但致力于这一实践的自助书籍、论坛和应用程序的数量在过去几年里绝对是爆炸式增长。随着科技继续侵入我们生活的各个方面，我们发现很难摆脱这一切，正念向我们承诺了一种逃避，一种通过意向性和接受我们到底是谁而变得更快乐的方式。
 

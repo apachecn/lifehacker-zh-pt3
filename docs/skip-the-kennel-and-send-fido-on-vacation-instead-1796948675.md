@@ -1,6 +1,6 @@
 # 跳过狗舍，送你的狗去度假
 
-> 原文:[https://life hacker . com/skip-the-kennel-and-send-fido-on-vacation-instead-1796948675](https://lifehacker.com/skip-the-kennel-and-send-fido-on-vacation-instead-1796948675)
+> 原文：<https://lifehacker.com/skip-the-kennel-and-send-fido-on-vacation-instead-1796948675>
 
 下次你为自己预定假期时，你也应该为你的狗狗预定一个。
 

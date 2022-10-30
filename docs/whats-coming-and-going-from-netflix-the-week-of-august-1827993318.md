@@ -1,6 +1,6 @@
 # 2018 年 8 月 13 日这一周，网飞发生了什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-August-1827993318](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1827993318)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1827993318>
 
 ***更新于 2018 . 8 . 14，4:41 ET:** 一位来自网飞的代表在文章发表后联系我们，称* Pinky Malinky *“将不再于 8/17 到达...目前，我还没有一个新的标题日期。”所以，这就是我们本周的建议。我猜你得看*全能的埃文。*我们的哀悼。*
 

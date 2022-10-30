@@ -1,6 +1,6 @@
 # 抛弃双显示器来提高你的注意力
 
-> 原文:[https://life hacker . com/ditch-the-dual-displays-to-improve-your-focus-1818510074](https://lifehacker.com/ditch-the-dual-displays-to-improve-your-focus-1818510074)
+> 原文：<https://lifehacker.com/ditch-the-dual-displays-to-improve-your-focus-1818510074>
 
 双显示器设置是一种诱人的方式，让它看起来像你是额外的生产力。多台显示器刚刚 [尖叫电力用户](http://www.theonion.com/article/coworker-with-two-computer-screens-not-fucking-aro-29151) 。然而，实际上，这种设置与其说是一种帮助，不如说是一种阻碍。如果 [使用单一显示屏](https://hackernoon.com/why-i-stopped-using-multiple-monitors-bfd87efa2e5b) 能让你提高注意力，完成更多工作，会怎么样？
 

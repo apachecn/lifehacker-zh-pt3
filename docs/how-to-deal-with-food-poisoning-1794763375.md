@@ -1,6 +1,6 @@
 # 如何处理食物中毒
 
-> 原文:[https://life hacker . com/how-to-deal-to-deal-food-poisoning-1794763375](https://lifehacker.com/how-to-deal-with-food-poisoning-1794763375)
+> 原文：<https://lifehacker.com/how-to-deal-with-food-poisoning-1794763375>
 
 食物中毒很糟糕，但是如果你真的中毒了，你应该知道如何判断它是哪种类型，你会怎样，以及处理它的最好方法，这样你会感觉好一些。
 

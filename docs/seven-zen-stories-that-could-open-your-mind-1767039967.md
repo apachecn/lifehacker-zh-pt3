@@ -1,6 +1,6 @@
 # 七个可以打开你思维的禅宗故事
 
-> 原文:[https://life hacker . com/seven-Zen-stories-that-can-open-your-mind-1767039967](https://lifehacker.com/seven-zen-stories-that-could-open-your-mind-1767039967)
+> 原文：<https://lifehacker.com/seven-zen-stories-that-could-open-your-mind-1767039967>
 
 几个世纪以来，禅宗大师们用故事和 [公案](https://en.wikipedia.org/wiki/K%C5%8Dan) ，或者 [悖论谜语](https://lifehacker.com/four-confusing-zen-quotes-and-what-you-can-learn-from-1676177538) ，来帮助学生认识自己的真实本性。这些故事经常令人困惑，看起来可能很荒谬，但是你自己去思考它们，你可能会变得更聪明，更有自知之明。以下是我们最喜欢的七个禅宗故事。
 

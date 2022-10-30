@@ -1,6 +1,6 @@
 # 用这个工具检查你在洛杉矶的房子在地震中倒塌的可能性
 
-> 原文:[https://life hacker . com/check-your-l-a-homes-likelihood-of-collapse-in-a-a-1818592673](https://lifehacker.com/check-your-l-a-homes-likelihood-of-collapsing-during-a-1818592673)
+> 原文：<https://lifehacker.com/check-your-l-a-homes-likelihood-of-collapsing-during-a-1818592673>
 
 最近在墨西哥发生的地震，包括刚刚摧毁墨西哥城的 7.1 级地震， [引起了南加州](http://www.latimes.com/local/lanow/la-me-earthquake-database-los-angeles-20170920-htmlstory.html) 的关注，这里多年来一直预计会发生“大地震”。如果你住在洛杉矶地区，你可能想知道你的房子有多安全。
 

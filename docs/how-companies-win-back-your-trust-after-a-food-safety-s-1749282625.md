@@ -1,6 +1,6 @@
 # 食品安全恐慌过后，公司如何赢回你的信任
 
-> 原文:[https://life hacker . com/how-companies-win-back-your-trust-after-a food-safety-s-1749282625](https://lifehacker.com/how-companies-win-back-your-trust-after-a-food-safety-s-1749282625)
+> 原文：<https://lifehacker.com/how-companies-win-back-your-trust-after-a-food-safety-s-1749282625>
 
 无论是 Chipotle 的大肠杆菌还是 Blue Bell 冰激凌中的 T2 李斯特菌，经销受污染食品的公司通常不会倒闭。他们清理、解决问题，然后继续前进。如果他们很好地处理了疫情，他们的食物应该是安全的，但我们理解你是否有点紧张。
 

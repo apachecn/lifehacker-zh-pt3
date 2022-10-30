@@ -1,6 +1,6 @@
 # 如何说服自己走更长的路
 
-> 原文:[https://life hacker . com/confident-yourself-to-go-on-longer-walks-by-picking-a-de-1797569393](https://lifehacker.com/convince-yourself-to-go-on-longer-walks-by-picking-a-de-1797569393)
+> 原文：<https://lifehacker.com/convince-yourself-to-go-on-longer-walks-by-picking-a-de-1797569393>
 
 我喜欢长距离的散步和跑步，但是我倾向于不做太多，原因只有一个:我觉得无聊。走 5 英里(或 10 英里)很无聊。我的 Pandora 播放列表和播客只能让我如此开心，在两英里后，我往往会分心于我需要或想在家做的事情，以至于我放弃了。在健身房，我通过在 iPad 上观看电视节目或电影来解决这个问题。在我喜欢的户外，我开始向目的地走去。
 

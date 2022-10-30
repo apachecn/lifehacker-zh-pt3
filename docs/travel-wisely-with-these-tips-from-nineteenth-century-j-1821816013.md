@@ -1,6 +1,6 @@
 # 根据这些来自 19 世纪日本的建议，明智地旅行
 
-> 原文:[https://life hacker . com/用这些来自 19 世纪的建议明智地旅行-j-1821816013](https://lifehacker.com/travel-wisely-with-these-tips-from-nineteenth-century-j-1821816013)
+> 原文：<https://lifehacker.com/travel-wisely-with-these-tips-from-nineteenth-century-j-1821816013>
 
 在游览日本这个美丽的国家时，围绕着优图·罗根·保罗和他幼稚的滑稽动作 有很多争议。好吧，如果你没有意识到，当你去不熟悉的地方时，有一种你应该和不应该做的事情。日本人几百年前就知道这些规则了。
 

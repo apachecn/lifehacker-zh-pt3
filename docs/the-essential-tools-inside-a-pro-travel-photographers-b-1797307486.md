@@ -1,6 +1,6 @@
 # 专业旅行摄影师包里的必备工具
 
-> 原文:[https://life hacker . com/the-essential-tools-inside-a-pro-travel-photos-b-1797307486](https://lifehacker.com/the-essential-tools-inside-a-pro-travel-photographers-b-1797307486)
+> 原文：<https://lifehacker.com/the-essential-tools-inside-a-pro-travel-photographers-b-1797307486>
 
 旅行摄影师的装备不仅仅是一个机身和几个镜头。以下是专业人士总是放在手边的要点。
 

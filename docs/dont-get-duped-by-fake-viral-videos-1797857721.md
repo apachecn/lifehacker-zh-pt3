@@ -1,6 +1,6 @@
 # 不要被虚假的病毒视频所欺骗
 
-> 原文:[https://life hacker . com/don-get-dupped-by-fake-viral-videos-1797857721](https://lifehacker.com/dont-get-duped-by-fake-viral-videos-1797857721)
+> 原文：<https://lifehacker.com/dont-get-duped-by-fake-viral-videos-1797857721>
 
 当你在网上看到一个视频，看起来有点疯狂，不像是真的，很有可能它就是真的。除了假新闻故事，虚假的病毒视频遍布脸书和 YouTube，其中许多是由知道自己在做什么的人制作的，这使得很难确定他们是否诚实。像 [这种一只秃鹰抢走一个](https://www.youtube.com/watch?v=CE0Q904gtMI) [小孩](https://www.youtube.com/watch?v=CE0Q904gtMI) 或者 [这种朋友意外导致他人死亡的视频](https://www.youtube.com/watch?v=f0qEKNmG2DE) 在你没有意识到他们是绝技的时候可能会令人震惊。
 

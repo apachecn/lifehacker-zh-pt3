@@ -1,6 +1,6 @@
 # 婴儿学步车还是不好
 
-> 原文:[https://life hacker . com/infant-walkers-are-still-bad-1829115769](https://lifehacker.com/infant-walkers-are-still-bad-1829115769)
+> 原文：<https://lifehacker.com/infant-walkers-are-still-bad-1829115769>
 
 婴儿学步车，那些给还不会走路的婴儿突然学会走路的轮子装置，是不好的。这已经被的[龙确立为](https://www.cpsc.gov/~/link/136cf994237446f5998d36f7b0c1f349.pdf)的。但是父母继续使用它们，所以儿科医生再次呼吁禁止使用。
 

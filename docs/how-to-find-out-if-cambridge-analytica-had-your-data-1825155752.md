@@ -1,6 +1,6 @@
 # 如何检查剑桥分析公司是否有你的脸书数据
 
-> 原文:[https://life hacker . com/how-to-find-out-if-Cambridge-analytic a-had-your-data-1825155752](https://lifehacker.com/how-to-find-out-if-cambridge-analytica-had-your-data-1825155752)
+> 原文：<https://lifehacker.com/how-to-find-out-if-cambridge-analytica-had-your-data-1825155752>
 
 脸书昨天推出了一个工具，你可以用它来发现你或你的朋友是否与特朗普的关联公司剑桥分析公司(Cambridge Analytica)分享了信息，该公司从脸书的一个应用程序中收集数据，以支持特朗普在 2016 年总统选举中的努力。
 

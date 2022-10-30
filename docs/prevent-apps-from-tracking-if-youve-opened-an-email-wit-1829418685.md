@@ -1,6 +1,6 @@
 # 如果你使用此 Gmail 扩展打开了电子邮件，则阻止应用程序跟踪
 
-> 原文:[https://life hacker . com/prevent-apps-from-tracking-if-you-open-a-e-mail-wit-1829418685](https://lifehacker.com/prevent-apps-from-tracking-if-youve-opened-an-email-wit-1829418685)
+> 原文：<https://lifehacker.com/prevent-apps-from-tracking-if-youve-opened-an-email-wit-1829418685>
 
 几年前，一个朋友告诉我关于 Streak 的事情，这是 Gmail 的一个扩展，可以让你跟踪你的电子邮件是否被打开过。对我来说，这是一个游戏规则的改变者，仅仅因为它让我对一条信息是否已经到达我想要的人那里或者已经卡在网络空间的某个垃圾邮件文件夹里有了一些概念。
 

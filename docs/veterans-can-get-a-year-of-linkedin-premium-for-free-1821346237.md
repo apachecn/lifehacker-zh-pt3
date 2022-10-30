@@ -1,6 +1,6 @@
 # 退伍军人可以免费获得一年的 LinkedIn Premium
 
-> 原文:[https://life hacker . com/veterans-can-get-a-year-of-LinkedIn-premium-free-1821346237](https://lifehacker.com/veterans-can-get-a-year-of-linkedin-premium-for-free-1821346237)
+> 原文：<https://lifehacker.com/veterans-can-get-a-year-of-linkedin-premium-for-free-1821346237>
 
 不管你是谁，背景如何，找工作都很难。如果你花时间远离在军队服役的传统劳动力，那么找工作可能会更加复杂。
 

@@ -1,6 +1,6 @@
 # 你需要在鸡蛋里加入薯片
 
-> 原文:[https://life hacker . com/you-need-to-add-薯片到你的鸡蛋-1826105841](https://lifehacker.com/you-need-to-add-potato-chips-to-your-eggs-1826105841)
+> 原文：<https://lifehacker.com/you-need-to-add-potato-chips-to-your-eggs-1826105841>
 
 薯片通常被认为是午餐时间的伴侣——是你三明治或面包的松脆一面——但它们作为早餐明星的时代已经到来。把它们想象成一种不费力的早餐土豆，这是最好的一种早餐土豆，尤其是在那些不可能煎炸东西的早晨。
 

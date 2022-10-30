@@ -1,6 +1,6 @@
 # DJI 马维克航空公司获胜
 
-> 原文:[https://gizmodo.com/the-dji-mavic-air-wins-1822840318](https://gizmodo.com/the-dji-mavic-air-wins-1822840318)
+> 原文：<https://gizmodo.com/the-dji-mavic-air-wins-1822840318>
 
 在过去的几年里，你可以要求一架无人机做两件事:好的或小的。但从不两者兼得。Mavic Air 改变了游戏。事实上，我甚至可以说，Mavic Air 赢得了这场比赛，事情将永远不会是一样的。
 

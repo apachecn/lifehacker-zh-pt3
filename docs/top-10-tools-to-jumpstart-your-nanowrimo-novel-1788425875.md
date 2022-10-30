@@ -1,6 +1,6 @@
 # 启动你的纳米小说的 10 大工具
 
-> 原文:[https://life hacker . com/top-10-tools-to-jump start-your-nanowrimo-novel-1788425875](https://lifehacker.com/top-10-tools-to-jumpstart-your-nanowrimo-novel-1788425875)
+> 原文：<https://lifehacker.com/top-10-tools-to-jumpstart-your-nanowrimo-novel-1788425875>
 
 11 月是全国小说写作月，或称，这意味着如果你还没有开始你的故事，现在是最佳时机。写作有 [一吨精神和情感上的好处](https://lifehacker.com/harness-the-mental-creative-and-emotional-benefits-of-5855019) ，所以让我们开始吧！这里有一些有用的工具。
 

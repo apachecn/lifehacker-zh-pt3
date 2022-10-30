@@ -1,6 +1,6 @@
 # 负担得起的耳塞和键盘，野孩子，和冰淇淋卡车司机的生活
 
-> 原文:[https://life hacker . com/affordable-earbuds-and-keyboard-feral-children-and-t-1784416996](https://lifehacker.com/affordable-earbuds-and-keyboards-feral-children-and-t-1784416996)
+> 原文：<https://lifehacker.com/affordable-earbuds-and-keyboards-feral-children-and-t-1784416996>
 
 一些负担得起的耳塞和游戏键盘，在野外发现的野孩子的真实故事，一个关于气候变化的新播客，以及为什么帕特里克·斯图尔特爵士真的真的很喜欢五金店(我们也喜欢)，都在本周的大脑自助餐中！
 

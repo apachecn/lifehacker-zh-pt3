@@ -1,6 +1,6 @@
 # 如何用披萨面团制作夹心椒盐卷饼
 
-> 原文:[https://life hacker . com/how-to-make-filled-pretzel-bites-with-pizza-dough-1823973846](https://lifehacker.com/how-to-make-stuffed-pretzel-bites-with-pizza-dough-1823973846)
+> 原文：<https://lifehacker.com/how-to-make-stuffed-pretzel-bites-with-pizza-dough-1823973846>
 
 我喜欢好吃的购物中心椒盐卷饼。柔软，有点嚼劲，有一堆盐和那种标志性的淡淡苦味——很少有小吃像它一样令人欣慰和怀旧。我也喜欢好吃的椒盐卷饼狗、椒盐卷饼或者塞满奶酪的椒盐卷饼。然而，我不喜欢做面团。
 

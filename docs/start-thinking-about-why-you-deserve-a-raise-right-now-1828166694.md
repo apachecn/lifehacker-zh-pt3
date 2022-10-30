@@ -1,6 +1,6 @@
 # 现在就开始思考为什么你应该得到加薪
 
-> 原文:[https://life hacker . com/start-thinking-why-you-worth-a-raise-now-1828166694](https://lifehacker.com/start-thinking-about-why-you-deserve-a-raise-right-now-1828166694)
+> 原文：<https://lifehacker.com/start-thinking-about-why-you-deserve-a-raise-right-now-1828166694>
 
 昨天是黑人女性同工同酬日——或者说是今年普通黑人女性与白人男性实现薪酬平等的象征性日子 Refinery29 发表了一篇很棒的文章，讲述了三名女性如何发现自己的薪酬过低 ，以及她们对此采取的措施。它充满了关于了解自己的价值和要求更多的坚实建议(一个重要的要点——你是老板*不能*禁止你和同事讨论你的工资，不管他们说什么)，但我尤其喜欢 Redfin 首席经济学家内拉·理查森的这个观点:
 

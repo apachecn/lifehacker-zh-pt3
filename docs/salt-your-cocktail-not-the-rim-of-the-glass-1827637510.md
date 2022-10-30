@@ -1,6 +1,6 @@
 # 给你的鸡尾酒加盐，而不是杯子边缘
 
-> 原文:[https://life hacker . com/salt-your-cocktail-not-the-rim of-the-glass-1827637510](https://lifehacker.com/salt-your-cocktail-not-the-rim-of-the-glass-1827637510)
+> 原文：<https://lifehacker.com/salt-your-cocktail-not-the-rim-of-the-glass-1827637510>
 
 盐能让一切变得更好，而 [包括饮料](https://lifehacker.com/you-should-salt-your-summer-beverages-1826136071) 。除了玛格丽塔酒，盐还能增加几乎所有鸡尾酒的味道，缓解任何苦味。虽然用氯化钠给你的杯子镶边是一种常见的做法，但这是一种粗暴的做法，这就是为什么你应该给*饮料*调味，而不是饮用器皿。
 

@@ -1,6 +1,6 @@
 # 如何以及何时使用 Mise En Place
 
-> 原文:[https://life hacker . com/how-and-when-to-use-mise-en-place-1819188676](https://lifehacker.com/how-and-when-to-use-mise-en-place-1819188676)
+> 原文：<https://lifehacker.com/how-and-when-to-use-mise-en-place-1819188676>
 
 Mise en place 是一个法语短语，大致意思是“各就各位”作为一种烹饪技术，它就像它听起来的那样:一种准备和组织配料的方法，以最大限度地提高食谱的效率。对于专业厨房的功能来说，它是如此重要，以至于对大多数厨师来说， *mise en place* 是一种生活方式——让它成为家庭厨师的原始“专业建议”。
 

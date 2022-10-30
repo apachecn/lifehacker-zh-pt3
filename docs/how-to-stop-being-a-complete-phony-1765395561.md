@@ -1,6 +1,6 @@
 # 如何停止成为一个彻头彻尾的骗子
 
-> 原文:[https://life hacker . com/how-to-stop-be-a complete-phony-1765395561](https://lifehacker.com/how-to-stop-being-a-complete-phony-1765395561)
+> 原文：<https://lifehacker.com/how-to-stop-being-a-complete-phony-1765395561>
 
 多年前，一个朋友告诉我她读过的一些自助书。这听起来像一堆废话，但我不忍心说。相反，我表现得很感兴趣，并告诉她这很棒。所以她不停地谈论它，催促我去读它，直到我承认它不适合我。“不过，你似乎对此很感兴趣，”她说。是的，那只是我是个彻头彻尾的骗子。
 

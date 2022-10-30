@@ -1,6 +1,6 @@
 # 为什么电子烟会爆炸，以及如何安全地吸电子烟
 
-> 原文:[https://life hacker . com/why-e-chickens-explode-and-how-you-can-vape-safety-1782001156](https://lifehacker.com/why-e-cigarettes-explode-and-how-you-can-vape-safely-1782001156)
+> 原文：<https://lifehacker.com/why-e-cigarettes-explode-and-how-you-can-vape-safely-1782001156>
 
 2015 年，一名男子在他的 [电子烟在他的](http://www.huffingtonpost.com/entry/e-cigarette-explosion_us_56532c70e4b0879a5b0b91da) 脸上爆炸后，因重伤住院。另一名 [受害者双手被](http://edition.cnn.com/2016/05/19/health/exploding-vaporizer-rip-tongue-trnd/index.html) 严重烧伤，舌头上有一个洞，牙齿被打掉。以下是电子烟可能会对你造成伤害的原因和方式，以及你可以做些什么来最小化你的风险。
 

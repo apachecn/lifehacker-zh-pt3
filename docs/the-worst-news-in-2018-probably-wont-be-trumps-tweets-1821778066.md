@@ -1,6 +1,6 @@
 # 2018 年最糟糕的消息可能不会是特朗普的推文
 
-> 原文:[https://life hacker . com/the-worst-news-in-2018-probably-unt-to-be-trumps-tweets-1821778066](https://lifehacker.com/the-worst-news-in-2018-probably-wont-be-trumps-tweets-1821778066)
+> 原文：<https://lifehacker.com/the-worst-news-in-2018-probably-wont-be-trumps-tweets-1821778066>
 
 新年，总统又发了一组奇怪的推文:这一次，他和金正恩在斗气中吹嘘他们的核按钮的相对大小，以至于感觉就像是照本宣科。然而，根据 Ian Bremmer 的说法，从全球范围来看，Twitter 边缘政策甚至没有打破我们应该担心的十大问题。
 

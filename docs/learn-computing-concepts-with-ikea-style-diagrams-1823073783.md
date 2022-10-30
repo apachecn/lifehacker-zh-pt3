@@ -1,6 +1,6 @@
 # 通过宜家风格的图表学习计算概念
 
-> 原文:[https://life hacker . com/learn-computing-concepts-with-IKEA-style-diagrams-1823073783](https://lifehacker.com/learn-computing-concepts-with-ikea-style-diagrams-1823073783)
+> 原文：<https://lifehacker.com/learn-computing-concepts-with-ikea-style-diagrams-1823073783>
 
 如果你想学习计算机算法，或者向其他人解释它们，三位计算机科学家按照宜家指南 的风格制作了一些 [有用的视觉辅助工具。](https://idea-instructions.com/)
 

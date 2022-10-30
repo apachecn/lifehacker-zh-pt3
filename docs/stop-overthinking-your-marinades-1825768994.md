@@ -1,6 +1,6 @@
 # 停止过度思考你的腌泡汁
 
-> 原文:[https://life hacker . com/stop-over thinking-your-marinades-1825768994](https://lifehacker.com/stop-overthinking-your-marinades-1825768994)
+> 原文：<https://lifehacker.com/stop-overthinking-your-marinades-1825768994>
 
 不管你当地的烧烤爱好者兄弟怎么说，腌泡汁调酒不是火箭科学。最起码，你所需要的是 [一点盐](https://lifehacker.com/the-best-marinades-for-tender-meats-ones-with-plenty-o-1585053178#_ga=2.146021491.619792243.1525433841-144977662.1506607947) ，可能还有一些脂肪，以及一点酸，用于基本的风味增强和嫩化作用。甜味、辣味和/或时髦的元素是可选的，但绝不是不受欢迎的。
 

@@ -1,6 +1,6 @@
 # 掌握这些爱尔兰必不可少的土豆菜肴
 
-> 原文:[https://the take out . com/master-these-essential-potato-disks-of-Ireland-1823819066](https://thetakeout.com/master-these-essential-potato-dishes-of-ireland-1823819066)
+> 原文：<https://thetakeout.com/master-these-essential-potato-dishes-of-ireland-1823819066>
 
 在我的一生中，堆积如山的煮土豆一直在我的餐盘里慢悠悠地滚动。我从未因他们的存在而激动，容忍他们，但从未真正享受他们。直到后来我开始研究我的爱尔兰血统的食物时，我才开始意识到它们的价值。我现在更加尊重他们，也更加用心地让他们做好准备。
 

@@ -1,6 +1,6 @@
 # 如何充分利用新宿舍的狭小空间
 
-> 原文:[https://life hacker . com/how-to-make-the-most-your-new-dorm-rooms-tiny-space-1785340355](https://lifehacker.com/how-to-make-the-most-of-your-new-dorm-rooms-tiny-space-1785340355)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-your-new-dorm-rooms-tiny-space-1785340355>
 
 欢迎来到你们的新住处，大学生们。希望你喜欢和一个(或多个)室友分享一个狭小的空间。在你搬进去之前，这里有一些小技巧可以让你的小地方走得更远，尤其是在一个共享的生活环境中。
 

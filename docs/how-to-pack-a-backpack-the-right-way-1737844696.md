@@ -1,6 +1,6 @@
 # 如何打包背包，正确的方法
 
-> 原文:[https://gizmodo . com/how-to-pack-a-backpack-the-right-way-1737844696](https://gizmodo.com/how-to-pack-a-backpack-the-right-way-1737844696)
+> 原文：<https://gizmodo.com/how-to-pack-a-backpack-the-right-way-1737844696>
 
  [https://gizmodo.com/embed/inset/iframe?id=youtube-video-B3Ep-uN5ybw&start=0](https://gizmodo.com/embed/inset/iframe?id=youtube-video-B3Ep-uN5ybw&start=0) 
 

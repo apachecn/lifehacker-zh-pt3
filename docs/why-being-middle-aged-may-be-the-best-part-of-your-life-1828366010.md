@@ -1,6 +1,6 @@
 # 为什么中年可能是你一生中最美好的时光
 
-> 原文:[https://life hacker . com/why-be the middle-year-be the best-part of your life-1828366010](https://lifehacker.com/why-being-middle-aged-may-be-the-best-part-of-your-life-1828366010)
+> 原文：<https://lifehacker.com/why-being-middle-aged-may-be-the-best-part-of-your-life-1828366010>
 
 如果你不得不猜测生命中最好的时代是什么，你可能会说年轻而没有责任或者年老而有退休金。事实证明，对很多人来说，他们生命中最美好的部分是中年的艰辛。
 

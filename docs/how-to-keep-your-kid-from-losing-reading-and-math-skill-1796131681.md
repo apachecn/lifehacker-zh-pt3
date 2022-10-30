@@ -1,6 +1,6 @@
 # 如何让你的孩子在整个夏天不丧失阅读和数学技能
 
-> 原文:[https://life hacker . com/how-to-keep-your-kid-lost-reading-and-math-skill-1796131681](https://lifehacker.com/how-to-keep-your-kid-from-losing-reading-and-math-skill-1796131681)
+> 原文：<https://lifehacker.com/how-to-keep-your-kid-from-losing-reading-and-math-skill-1796131681>
 
 学校放假了，但这并不意味着你的孩子应该停止学习。研究人员发现，整个夏天， [孩子可能会失去一到两个月的](http://www.ldonline.org/article/8057/) 阅读和数学技能。
 

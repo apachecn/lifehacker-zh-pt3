@@ -1,6 +1,6 @@
 # 不完美的礼物希望你放弃你“应该”是谁
 
-> 原文:[https://life hacker . com/the-gifts-of-deficiency-want-to-go-who-yo-1821781661](https://lifehacker.com/the-gifts-of-imperfection-wants-you-to-let-go-of-who-yo-1821781661)
+> 原文：<https://lifehacker.com/the-gifts-of-imperfection-wants-you-to-let-go-of-who-yo-1821781661>
 
 从书名来看，《不完美的礼物》听起来像是一本给完美主义者的书。的确如此，但还不止如此。名义上的礼物是勇气、同情和联系。如果你准备好深入挖掘在你的生活中拥有更多这些品质，请继续读下去。
 

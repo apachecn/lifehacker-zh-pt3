@@ -1,6 +1,6 @@
 # 男人:不要穿短裤上班
 
-> 原文:[https://life hacker . com/men-don-wear-short-to-work-1797426756](https://lifehacker.com/men-dont-wear-shorts-to-work-1797426756)
+> 原文：<https://lifehacker.com/men-dont-wear-shorts-to-work-1797426756>
 
 我对时尚有一些强烈的看法。尽管几乎每天都穿着同样的单色服装去工作，我还是一个服装优雅、定制西装的粉丝，是的，偶尔还会有一套吊带裤。
 

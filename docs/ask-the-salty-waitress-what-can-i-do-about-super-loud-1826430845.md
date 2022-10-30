@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我能对超级吵闹的孩子和他们健忘的父母做些什么？
 
-> 原文:[https://the take out . com/ask-the-salty-waste-I-do-about-super-loud-1826430845](https://thetakeout.com/ask-the-salty-waitress-what-can-i-do-about-super-loud-1826430845)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-what-can-i-do-about-super-loud-1826430845>
 
 > 亲爱的咸味:昨天我们决定去我们以前经常去的一家不错的寿司店吃饭。我们很快就坐，几秒钟后，我们就被另一张桌子上一群行为不端的孩子攻击了。这孩子没有哭，他只是在喊。这种情况经常发生，以至于在我们打开菜单之前，我借口“去洗手间”，从令人不快的桌子旁边走过，观察到他们正在吃沙拉。
 > 

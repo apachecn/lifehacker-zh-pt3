@@ -1,6 +1,6 @@
 # 伙计们，收拾残局，给你们的国会议员打电话吧
 
-> 原文:[https://life hacker . com/men-pick-up-the-slack-and-call-your-members-of-congres-1794033603](https://lifehacker.com/men-pick-up-the-slack-and-call-your-members-of-congres-1794033603)
+> 原文：<https://lifehacker.com/men-pick-up-the-slack-and-call-your-members-of-congres-1794033603>
 
 女人不只是做 [更多的照顾孩子](https://theconversation.com/dads-are-more-involved-in-parenting-yes-but-moms-still-put-in-more-work-72026) 和做 [更多的家务决定](http://www.pewsocialtrends.org/2008/09/25/women-call-the-shots-at-home-public-mixed-on-gender-roles-in-jobs/) 。根据最近的一些调查，她们也比男性进行更多的抗议、行动和政治参与。男人们，你们能稍微收拾一下吗？
 

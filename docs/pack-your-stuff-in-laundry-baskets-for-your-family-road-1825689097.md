@@ -1,6 +1,6 @@
 # 把你的东西放在洗衣篮里，为你的家庭旅行做准备
 
-> 原文:[https://life hacker . com/pack-your-stuff-in-launding-baskets-for-your-family-road-1825689097](https://lifehacker.com/pack-your-stuff-in-laundry-baskets-for-your-family-road-1825689097)
+> 原文：<https://lifehacker.com/pack-your-stuff-in-laundry-baskets-for-your-family-road-1825689097>
 
 家庭公路旅行的核心是自发冒险的永无止境的潜力。沿着你的车道，你可能会发现一个 [酷的冒险游乐场](https://offspring.lifehacker.com/take-your-kid-to-an-adventure-playground-1822980170) 或者一个有绳索秋千的湖泊或者一个 Instagram 上著名的景点 。当你停下来的时候，你需要合适的衣服和装备——一顶太阳帽、一双登山鞋、一条短裤、 [工装裤来保护自己免受小偷](https://lifehacker.com/wear-overalls-to-keep-yourself-safe-from-thieves-1825501946#_ga=2.191511145.2115846126.1525118722-1908840446.1519412573)——而且你会想要快速地把它们都拿走。你不会想翻箱倒柜地翻箱倒柜，里面塞满了按天标记的卷得整整齐齐的衣服。
 

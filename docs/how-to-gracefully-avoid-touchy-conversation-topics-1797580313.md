@@ -1,6 +1,6 @@
 # 如何优雅地避免敏感的话题
 
-> 原文:[https://life hacker . com/how-to-gracefully-avoid-touchy-conversation-topics-1797580313](https://lifehacker.com/how-to-gracefully-avoid-touchy-conversation-topics-1797580313)
+> 原文：<https://lifehacker.com/how-to-gracefully-avoid-touchy-conversation-topics-1797580313>
 
 下周末是我家人一年一度的团聚。它横跨整个国家，所以我不去，但我的父亲目前正在考虑这次旅行。当我们谈论这个星期的活动时，他谈到他想去看看每个人，但他也想避免一些不同的话题。像所有的家庭一样，我们有一些不愿谈论的事情，他担心自己会陷入一系列尴尬的谈话中，人们问他不想讨论的事情，他被迫回答，并有一大堆不舒服的谈话。我的建议是:制定一个计划。
 

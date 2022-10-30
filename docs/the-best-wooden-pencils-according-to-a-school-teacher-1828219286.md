@@ -1,6 +1,6 @@
 # 一位学校老师说，这是最好的木制铅笔
 
-> 原文:[https://life hacker . com/the-best-wood-pencils-by-a-school-teacher-1828219286](https://lifehacker.com/the-best-wooden-pencils-according-to-a-school-teacher-1828219286)
+> 原文：<https://lifehacker.com/the-best-wooden-pencils-according-to-a-school-teacher-1828219286>
 
 当给你的孩子买学习用品时——也许是在全国各地举行的免税周末yT4】——要知道并非所有的木制铅笔都是生来平等的。有些不断破裂。其他人有橡皮擦，无论他们碰到什么都会弄脏。最糟糕的基本上是痛苦的棍子，它们应该和那些可怕的玫瑰艺术蜡笔一起被深深地留在垃圾抽屉里。
 

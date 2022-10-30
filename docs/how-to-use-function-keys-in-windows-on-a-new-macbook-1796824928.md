@@ -1,6 +1,6 @@
 # 如何在新 MacBook 上使用 Windows 中的功能键
 
-> 原文:[https://life hacker . com/how-to-use-function-keys-in-windows-on-a-new-macbook-1796824928](https://lifehacker.com/how-to-use-function-keys-in-windows-on-a-new-macbook-1796824928)
+> 原文：<https://lifehacker.com/how-to-use-function-keys-in-windows-on-a-new-macbook-1796824928>
 
 在 MacBook 上运行 Windows 并不罕见，但由于取消了功能键，在新的 Touch Bar MacBook Pro 上运行 Windows 有自己的一系列挑战。幸运的是，浏览一下你的 MacBook 的设置可以在使用 Windows 10 时找回那些珍贵的按键，不管是虚拟的还是原生的。
 

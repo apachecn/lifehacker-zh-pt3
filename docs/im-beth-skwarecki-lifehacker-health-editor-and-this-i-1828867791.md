@@ -1,6 +1,6 @@
 # 我是 Beth Skwarecki，Lifehacker 健康编辑，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Beth-skwarecki-life hacker-health-editor-and-this-I-1828867791](https://lifehacker.com/im-beth-skwarecki-lifehacker-health-editor-and-this-i-1828867791)
+> 原文：<https://lifehacker.com/im-beth-skwarecki-lifehacker-health-editor-and-this-i-1828867791>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是贝丝·斯克沃茨基，这是我的工作方式。
 

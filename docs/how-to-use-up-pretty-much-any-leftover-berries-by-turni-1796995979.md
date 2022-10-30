@@ -1,6 +1,6 @@
 # 如何将几乎所有剩余的浆果变成沙拉
 
-> 原文:[https://life hacker . com/how-to-use-up-pretty-any-left-berries-by-turni-1796995979](https://lifehacker.com/how-to-use-up-pretty-much-any-leftover-berries-by-turni-1796995979)
+> 原文：<https://lifehacker.com/how-to-use-up-pretty-much-any-leftover-berries-by-turni-1796995979>
 
 浆果食谱倾向于甜点，但它们多汁、酸甜的性质可以照亮整个美味的世界。如果你发现你的 CSA 篮子里有一种特殊类型的浆果，而你又不想打开烤箱做馅饼或水果馅饼，考虑做一种新鲜的水果浆果沙拉。
 

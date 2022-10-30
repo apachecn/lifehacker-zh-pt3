@@ -1,6 +1,6 @@
 # 语言应用 Duolingo 终于添加了克林贡语
 
-> 原文:[https://life hacker . com/language-app-duo lingo-finally-added-Klingon-1823797121](https://lifehacker.com/language-app-duolingo-finally-added-klingon-1823797121)
+> 原文：<https://lifehacker.com/language-app-duolingo-finally-added-klingon-1823797121>
 
 是啊，是啊，你可以在语言学习工具 Duolingo 上学习各种*普通*语言，但是你能学习克林贡语吗？直到今天， *ghobe'* (没有)，但是 *DaH naDevvo' SoH* (现在可以了)。以下是方法。*购买 ngop！*
 

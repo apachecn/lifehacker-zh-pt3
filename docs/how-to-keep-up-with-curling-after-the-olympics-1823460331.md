@@ -1,6 +1,6 @@
 # 奥运会后如何跟上冰壶运动
 
-> 原文:[https://life hacker . com/how-to-keep-with-curling-after the Olympics-1823460331](https://lifehacker.com/how-to-keep-up-with-curling-after-the-olympics-1823460331)
+> 原文：<https://lifehacker.com/how-to-keep-up-with-curling-after-the-olympics-1823460331>
 
 所以，你对美国队在 2018 年冬季奥运会 上赢得冰壶金牌感到超级兴奋，现在你想要更多的冰壶。你猜怎么着？人们一年到头都在打扫卫生。在这里，你可以随时阅读冰壶新闻和观看比赛。
 

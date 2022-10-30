@@ -1,6 +1,6 @@
 # 如何在 iOS 的新标签页中立即打开任何 Safari 链接
 
-> 原文:[https://life hacker . com/how-to-instant-open-any-safari-link-in-a-new-tab-on-I-1825291933](https://lifehacker.com/how-to-instantly-open-any-safari-link-in-a-new-tab-on-i-1825291933)
+> 原文：<https://lifehacker.com/how-to-instantly-open-any-safari-link-in-a-new-tab-on-i-1825291933>
 
 iOS:在苹果的 Safari 应用程序中点击一个链接会实现以下两种情况之一:新页面在加载时暂时接管你的 iPhone，或者你浪费宝贵的时间长按链接，以便你可以在后台标签中加载它。事实证明，还有第三个选项在 iOS 里藏了 [快一年了](https://www.reddit.com/r/iOSBeta/comments/6y4exk/feature_twofinger_tapping_on_a_link_in_safari/) ，甚至更好。
 

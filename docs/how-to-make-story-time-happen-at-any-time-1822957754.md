@@ -1,6 +1,6 @@
 # 如何让故事时间随时发生
 
-> 原文:[https://life hacker . com/how-to-make-story-time-occurrence-at-any-time-1822957754](https://lifehacker.com/how-to-make-story-time-happen-at-any-time-1822957754)
+> 原文：<https://lifehacker.com/how-to-make-story-time-happen-at-any-time-1822957754>
 
 *丽贝卡·谢尔(Rebecca Sheir)是 WBUR 儿童评书播客* [*【圆圆*](http://www.wbur.org/circleround) *的主持人和制作人。这个节目讲述了世界各地的民间故事，适合现代家庭。她与孩子们分享了父母如何在日常生活中与孩子一起讲故事。*
 

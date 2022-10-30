@@ -1,6 +1,6 @@
 # 对 iPhone XS 的主要投诉正在增加
 
-> 原文:[https://gizmodo . com/major-complaints-about-the-iphone-xs-are-stacking-up-1829447724](https://gizmodo.com/major-complaints-about-the-iphone-xs-are-stacking-up-1829447724)
+> 原文：<https://gizmodo.com/major-complaints-about-the-iphone-xs-are-stacking-up-1829447724>
 
 如果没有一小群绝望的苹果粉丝在网上抱怨他们昂贵的新手机，这就不是 iPhone 的发布会。今年也不例外，论坛上充斥着关于 iPhone XS 和 iPhone XS Max 问题的报道。没有一个问题是特别灾难性的。至少现在还没有。
 

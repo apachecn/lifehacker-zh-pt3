@@ -1,6 +1,6 @@
 # 从 MacBook 控制外部显示器的设置
 
-> 原文:[https://life hacker . com/control-your-external-displays-settings-from-your-macbo-1827981352](https://lifehacker.com/control-your-external-displays-settings-from-your-macbo-1827981352)
+> 原文：<https://lifehacker.com/control-your-external-displays-settings-from-your-macbo-1827981352>
 
 Mac: 你的 Mac 的夜班和 True Tone 模式都很棒，但它们有时会很繁琐，并且它们可能无法与外部连接的显示器一起工作(或工作得很好)。另外，为了调整显示器的亮度和对比度到你喜欢的程度，你不得不点击按钮，在屏幕上摸索，这也很烦人。
 

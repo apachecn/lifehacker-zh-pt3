@@ -1,6 +1,6 @@
 # 在家工作如何避免成为隐士
 
-> 原文:[https://life hacker . com/how-to-避免成为一个在家工作的隐士-1792406033](https://lifehacker.com/how-to-avoid-becoming-a-hermit-when-you-work-from-home-1792406033)
+> 原文：<https://lifehacker.com/how-to-avoid-becoming-a-hermit-when-you-work-from-home-1792406033>
 
 我喜欢人，但我总是有点害羞，我珍惜自己独处的时间。当我开始在家工作时，我期待着那段时间:不再有会议、闲聊或尴尬的快乐时光。有一段时间很好，但后来我变得孤独了。更糟糕的是，我患上了轻度社交焦虑。甚至去一趟杂货店似乎都是一个障碍。我必须做点什么。
 

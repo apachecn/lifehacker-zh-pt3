@@ -1,6 +1,6 @@
 # 这个纸模板可以帮助你坚持你的跑步计划
 
-> 原文:[https://life hacker . com/this-paper-template-helps-you-stick-to-you-running-reg-1782351372](https://lifehacker.com/this-paper-template-helps-you-stick-to-your-running-reg-1782351372)
+> 原文：<https://lifehacker.com/this-paper-template-helps-you-stick-to-your-running-reg-1782351372>
 
 应用程序可以测量你跑了多远和多快，但它们不擅长衡量你的长期进步。我在养成习惯吗？我变快了吗？在一张纸上看到你的跑步记录，计划好的训练和简短的事后总结，有助于你看到自己的进步。这是我使用的模板。
 

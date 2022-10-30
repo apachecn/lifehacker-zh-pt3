@@ -1,6 +1,6 @@
 # macOS 本周应用:状态时钟
 
-> 原文:[https://life hacker . com/MAC OS-app-of-the-week-status-clock-1824107759](https://lifehacker.com/macos-app-of-the-week-status-clock-1824107759)
+> 原文：<https://lifehacker.com/macos-app-of-the-week-status-clock-1824107759>
 
 让我们难过的是，苹果已经基本放弃了 macOS 上的 App Store。只要看看你在智能手机或平板电脑上获得的体验与你在笔记本电脑上获得的体验相比——这是不分昼夜的。不过，没关系；我们非常乐意为令人惊叹的 macOS 应用程序提供推荐，即使苹果自己不想这么做。
 

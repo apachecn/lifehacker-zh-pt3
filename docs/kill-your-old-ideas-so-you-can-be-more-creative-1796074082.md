@@ -1,6 +1,6 @@
 # 摒弃旧的想法，这样你会更有创造力
 
-> 原文:[https://life hacker . com/kill-your-old-ideas-so-you-can-be-more-creative-1796074082](https://lifehacker.com/kill-your-old-ideas-so-you-can-be-more-creative-1796074082)
+> 原文：<https://lifehacker.com/kill-your-old-ideas-so-you-can-be-more-creative-1796074082>
 
 我花了十年时间“写”了一部关于硅谷的电视剧。我花了数百个小时谈论它，在一个巨大的 Evernote 文件中收集想法，头脑风暴配乐——但没有多少时间来写它。因为每次我认为我已经掌握了它，我就想到一个更好的版本。这些年来，我把我的不成文的试播集改编成了不成文的书、电影、网络系列和连环漫画。我立刻追逐每一个想法，直到这个项目在我的脑海中显得宏大而笨拙。我积累了大量的想法债务。
 

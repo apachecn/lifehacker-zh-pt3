@@ -1,6 +1,6 @@
 # 如何解决你的 iPhone XS 充电问题
 
-> 原文:[https://life hacker . com/how-to-fix-your-iphone-xs-charging-problems-1829451883](https://lifehacker.com/how-to-fix-your-iphone-xs-charging-problems-1829451883)
+> 原文：<https://lifehacker.com/how-to-fix-your-iphone-xs-charging-problems-1829451883>
 
 iPhone XS 和 XS Max 的困境仍在继续:除了 [蜂窝和 wifi 连接问题](https://lifehacker.com/how-to-fix-connectivity-issues-on-your-iphone-xs-1829340414) 之外，一些用户报告了他们设备的充电问题——主要是在他们的 iPhone 屏幕关闭时。
 

@@ -1,6 +1,6 @@
 # 这是你在高温下跑得有多慢
 
-> 原文:[https://life hacker . com/here-s-how-how-more-lower-you-run-in-the-heat-1782687837](https://lifehacker.com/here-s-how-much-slower-you-run-in-the-heat-1782687837)
+> 原文：<https://lifehacker.com/here-s-how-much-slower-you-run-in-the-heat-1782687837>
 
 同样的跑步锻炼在大热天感觉比在凉爽天更难，这不仅仅是你的想象。在高温下，我们确实会放慢速度——至少在我们适应了之前是如此——而且我们有可能计算出到底慢了多少。
 

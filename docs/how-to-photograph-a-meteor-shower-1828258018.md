@@ -1,6 +1,6 @@
 # 如何拍摄流星雨
 
-> 原文:[https://life hacker . com/how-to-photo-a-meteor-shower-1828258018](https://lifehacker.com/how-to-photograph-a-meteor-shower-1828258018)
+> 原文：<https://lifehacker.com/how-to-photograph-a-meteor-shower-1828258018>
 
 英仙座流星雨预计将在周日和周一晚上达到高峰，这意味着这将是一个黄金时间 [瞥见一颗坠落的恒星](https://www.youtube.com/watch?v=_VJlHWESyLI) (或 20)。预计每小时将有超过 75 颗流星飞过，这意味着你不仅可以用眼睛，还可以用相机捕捉到这一瞬间。
 

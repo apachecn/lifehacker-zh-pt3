@@ -1,6 +1,6 @@
 # 用狗牌增加你找到丢失钥匙的机会
 
-> 原文:[https://life hacker . com/boost-the-chances-you-ll-find-you-lost-keys-with-a dog-1818675658](https://lifehacker.com/boost-the-chances-you-ll-find-your-lost-keys-with-a-dog-1818675658)
+> 原文：<https://lifehacker.com/boost-the-chances-you-ll-find-your-lost-keys-with-a-dog-1818675658>
 
 丢钥匙是最糟糕的事情，所以如果钥匙放错了地方，尽你所能确保钥匙安全地回到你身边是有意义的。对一些人来说，这可能意味着要安装一个蓝牙定位追踪器，但我可不想在我的闪存盘旁边的钥匙链上再多一个笨重的塑料玩意儿。幸运的是，网络已经提出了一个相当低技术含量的方法来确保你的钥匙被安全归还。但是首先，你需要去一家宠物店。
 

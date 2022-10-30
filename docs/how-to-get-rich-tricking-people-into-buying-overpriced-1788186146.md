@@ -1,6 +1,6 @@
 # 如何致富欺骗人们购买高价减肥奶昔
 
-> 原文:[https://life hacker . com/how-to-get-rich-tricking-people-buying-over-priced-1788186146](https://lifehacker.com/how-to-get-rich-tricking-people-into-buying-overpriced-1788186146)
+> 原文：<https://lifehacker.com/how-to-get-rich-tricking-people-into-buying-overpriced-1788186146>
 
 你准备好赚很多钱，卖很多奶昔了吗？这不会是一条容易的路，但如今想在这个行业取得成功的人比比皆是。如果你没有收到健康挑战的邀请，或者没有在社交媒体上看到朋友们摆姿势握手...恭喜你。你有一大堆新顾客准备听你的推销。
 

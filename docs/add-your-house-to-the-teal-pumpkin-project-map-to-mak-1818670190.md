@@ -1,6 +1,6 @@
 # 将你的房子添加到“蓝绿色南瓜项目”地图中，让过敏儿童在万圣节更加安全
 
-> 原文:[https://life hacker . com/add-your-house-to-the-teal-pumpkin-project-map-to-mak-1818670190](https://lifehacker.com/add-your-house-to-the-teal-pumpkin-project-map-to-mak-1818670190)
+> 原文：<https://lifehacker.com/add-your-house-to-the-teal-pumpkin-project-map-to-mak-1818670190>
 
 万圣节意味着糖果，这对食物过敏儿童的父母来说意味着压力。不得不从你的小忍者神龟那里拿走这袋“不给糖就捣蛋”的战利品真让人难过，小忍者神龟和他的伙伴多那太罗、米开朗基罗和拉斐尔一起辛辛苦苦收集来的。
 

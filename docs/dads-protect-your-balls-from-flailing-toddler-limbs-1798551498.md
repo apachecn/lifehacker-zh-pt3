@@ -1,6 +1,6 @@
 # 爸爸们，保护你们的蛋蛋不要被蹒跚学步的孩子的四肢拍打
 
-> 原文:[https://life hacker . com/dads-protect-your-balls-from-flapping-幼儿四肢-1798551498](https://lifehacker.com/dads-protect-your-balls-from-flailing-toddler-limbs-1798551498)
+> 原文：<https://lifehacker.com/dads-protect-your-balls-from-flailing-toddler-limbs-1798551498>
 
 每个男人都可以证明，即使是最轻微的擦肩而过的打击也会给我们的危险部位带来令人虚弱的疼痛，但年幼孩子的父亲尤其容易受到伤害。那些全速挥舞的小四肢——颤抖。 *GQ* 对穿着胸甲的T5】保持进攻有建议。 他们的推荐？口袋里有一只防御性的手。
 

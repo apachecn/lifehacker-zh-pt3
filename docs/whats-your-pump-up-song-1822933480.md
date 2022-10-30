@@ -1,6 +1,6 @@
 # 你的加油歌是什么？
 
-> 原文:[https://lifehacker.com/whats-your-pump-up-song-1822933480](https://lifehacker.com/whats-your-pump-up-song-1822933480)
+> 原文：<https://lifehacker.com/whats-your-pump-up-song-1822933480>
 
 当你需要感觉自己像一只凶猛的动物，随时准备攻击你面前的任何东西——工作面试，10K，周六早上的好市多，你会放什么歌？劲歌可以 [改变你的情绪，甚至你的行为](https://insight.kellogg.northwestern.edu/article/podcast-how-music-can-change-our-mood) ，给你需要的额外能量，就像 [阿姆说唱](https://www.youtube.com/watch?v=ytQ5CYE1VZw) “找到内心的力量，把你的屎拉出来。”
 

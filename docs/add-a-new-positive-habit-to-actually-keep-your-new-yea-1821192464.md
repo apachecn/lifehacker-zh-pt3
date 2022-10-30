@@ -1,6 +1,6 @@
 # 增加一个新的积极的习惯，来真正实现你的新年决心
 
-> 原文:[https://life hacker . com/add-a-new-positive-habit-to-actually-keep-your-new-yea-1821192464](https://lifehacker.com/add-a-new-positive-habit-to-actually-keep-your-new-yea-1821192464)
+> 原文：<https://lifehacker.com/add-a-new-positive-habit-to-actually-keep-your-new-yea-1821192464>
 
 新年的开始当然是重新开始的最佳时机。有隐喻的力量，加上从 1 月 1 日开始计算成功的天数和月份的数字简易性。但不幸的是，与节日庆祝的过度和放纵相比，新年决心可能倾向于禁欲。
 

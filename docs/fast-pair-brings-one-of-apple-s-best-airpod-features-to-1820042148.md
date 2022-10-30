@@ -1,6 +1,6 @@
 # Fast Pair 为 Android 带来了苹果最好的 AirPod 功能之一
 
-> 原文:[https://life hacker . com/fast-pair-brings-one-of-apple-s-best-air pod-features-to-1820042148](https://lifehacker.com/fast-pair-brings-one-of-apple-s-best-airpod-features-to-1820042148)
+> 原文：<https://lifehacker.com/fast-pair-brings-one-of-apple-s-best-airpod-features-to-1820042148>
 
 昨天，谷歌 [宣布了对安卓与蓝牙设备配对方式的更新](https://android-developers.googleblog.com/2017/10/announcing-fast-pair-effortless.html) ，使得连接一些无线耳机不再那么令人头疼。它被称为 Fast Pair，虽然它目前只适用于少数设备，但该公司正在寻求说服制造商，并将他们的兼容蓝牙设备添加到 Fast Pair 生态系统中。
 

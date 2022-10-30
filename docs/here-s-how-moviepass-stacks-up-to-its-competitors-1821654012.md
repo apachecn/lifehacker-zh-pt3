@@ -1,6 +1,6 @@
 # 以下是 MoviePass 与竞争对手相比的表现
 
-> 原文:[https://life hacker . com/here-s-how-movie pass-stacks-up-to-its-competitors-1821654012](https://lifehacker.com/here-s-how-moviepass-stacks-up-to-its-competitors-1821654012)
+> 原文：<https://lifehacker.com/here-s-how-moviepass-stacks-up-to-its-competitors-1821654012>
 
 对于大多数电影观众来说，2018 年将是非常忙碌的一年，因为所有的超级英雄电影和夏季大片都保证在你狂饮苏打水的时候震破你的耳膜。你可能喜欢看电影，花将近 50 美元买两张票和一些爆米花并不是大多数人每月预算的一部分。像非常受欢迎的 [MoviePass](https://lifehacker.com/moviepass-now-offers-unlimited-movies-in-theaters-for-1797865400#_ga=2.46464039.14723568.1514465278-1371574852.1507643556) 这样的电影订阅服务可能会让你每天在参与的影院观看一部电影，但它不是唯一的电影游戏，它可能没有你想要的额外待遇。竞争可以满足你的甜食，或者照顾约会之夜，所以我们把每项服务进行了细分，看看哪项服务的性价比最高。
 

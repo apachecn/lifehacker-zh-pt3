@@ -1,6 +1,6 @@
 # 这是另一个友好的提醒，去洗你那该死的手
 
-> 原文:[https://life hacker . com/heres-another-friendly-reminder-to-wash-your-damn-hands-1827234659](https://lifehacker.com/heres-another-friendly-reminder-to-wash-your-damn-hands-1827234659)
+> 原文：<https://lifehacker.com/heres-another-friendly-reminder-to-wash-your-damn-hands-1827234659>
 
 如果你曾经在夏季烧烤后肠胃不适，那可能不是土豆沙拉——而是某人糟糕的 [食品安全措施](https://lifehacker.com/all-the-food-safety-questions-you-ll-have-on-thanksgivi-1744092050) 。具体来说，他们很可能没有洗手。
 

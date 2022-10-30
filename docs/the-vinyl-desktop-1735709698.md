@@ -1,6 +1,6 @@
 # 乙烯基桌面
 
-> 原文:[https://lifehacker.com/the-vinyl-desktop-1735709698](https://lifehacker.com/the-vinyl-desktop-1735709698)
+> 原文：<https://lifehacker.com/the-vinyl-desktop-1735709698>
 
 Ilango 的 Windows 10 桌面可能看起来不像 WIndows 10，但它确实反映了他对音乐的热爱。随着节奏移动的可视化工具和一些小部件让整个事情看起来很棒。他是这样设置的。
 

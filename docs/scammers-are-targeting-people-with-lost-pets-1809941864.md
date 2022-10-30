@@ -1,6 +1,6 @@
 # 骗子瞄准了丢失宠物的人
 
-> 原文:[https://life hacker . com/scammers-is-targeting-people-with-lost-pets-1809941864](https://lifehacker.com/scammers-are-targeting-people-with-lost-pets-1809941864)
+> 原文：<https://lifehacker.com/scammers-are-targeting-people-with-lost-pets-1809941864>
 
 失去宠物感觉很糟糕。你很伤心，害怕，绝望——你会做任何事情让你的毛茸茸的朋友回来。这让你成为骗子的完美目标。
 

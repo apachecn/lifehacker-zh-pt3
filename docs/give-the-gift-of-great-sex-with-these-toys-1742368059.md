@@ -1,6 +1,6 @@
 # 用这些玩具给予伟大的性爱礼物
 
-> 原文:[https://life hacker . com/give-the-give-give-the-gift-the-great-sex with-they-toys-1742368059](https://lifehacker.com/give-the-gift-of-great-sex-with-these-toys-1742368059)
+> 原文：<https://lifehacker.com/give-the-gift-of-great-sex-with-these-toys-1742368059>
 
 有什么比刺激你的性生活更好的方法来对抗假期的压力呢？亲戚们走了，孩子们也睡着了，是时候打开你实际上想送给和收到的礼物了。无论你是与你的另一半交换顽皮的细节，还是为了度过这个季节而犒劳自己，这些礼物都是你的最佳选择。
 

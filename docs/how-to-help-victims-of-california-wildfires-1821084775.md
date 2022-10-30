@@ -1,6 +1,6 @@
 # 如何帮助加州野火的受害者
 
-> 原文:[https://life hacker . com/how-to-help-victors-of-California-wild fires-1821084775](https://lifehacker.com/how-to-help-victims-of-california-wildfires-1821084775)
+> 原文：<https://lifehacker.com/how-to-help-victims-of-california-wildfires-1821084775>
 
 随着一系列野火肆虐该地区，数十万南加利福尼亚人正在撤离，至少 200 所房屋被毁。以下是如何帮助居民、急救人员和有需要的动物。
 

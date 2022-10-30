@@ -1,6 +1,6 @@
 # 动力激发桌面
 
-> 原文:[https://life hacker . com/the-momentum-inspired-desktop-1784139077](https://lifehacker.com/the-momentum-inspired-desktop-1784139077)
+> 原文：<https://lifehacker.com/the-momentum-inspired-desktop-1784139077>
 
 读者 [geeklibrarian](http://kinja.com/geekylibrarian) 的桌面灵感来自于气势， [我们最喜欢的 Chrome 扩展之一](http://lifehacker.com/momentum-adds-inspirational-quotes-and-to-dos-to-chrome-1465454691) ，看起来很美。宁静平和，但同时也能增长见识。以下是如何获得相同的外观。
 

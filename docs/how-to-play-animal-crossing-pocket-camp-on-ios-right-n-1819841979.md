@@ -1,6 +1,6 @@
 # 如何在 iOS 上玩动物穿越:口袋营地
 
-> 原文:[https://kotaku . com/how-to-play-animal-crossing-pocket-camp-on-IOs-right-n-1819841979](https://kotaku.com/how-to-play-animal-crossing-pocket-camp-on-ios-right-n-1819841979)
+> 原文：<https://kotaku.com/how-to-play-animal-crossing-pocket-camp-on-ios-right-n-1819841979>
 
 所以你想玩 [*动物穿越:口袋营地*](https://kotaku.com/im-playing-the-animal-crossing-phone-game-and-its-pret-1819832782) ，但是只在澳洲软装 有。这里有一个快速、简单且不太光明正大的方法，可以直接从你的 iPhone 或 iPad 在另一个国家创建 iTunes 账户。 
 

@@ -1,6 +1,6 @@
 # 微小而重要的谷歌技巧可以带来更好的搜索结果
 
-> 原文:[https://life hacker . com/the-tiny-essential-Google-tricks-for-way-better-search-1826791031](https://lifehacker.com/the-tiny-essential-google-tricks-for-way-better-search-1826791031)
+> 原文：<https://lifehacker.com/the-tiny-essential-google-tricks-for-way-better-search-1826791031>
 
 你在尽可能有效地使用谷歌吗？如果你只是在搜索栏中输入单词，而没有使用这些完全基本但完全必要的技巧来改善搜索结果，那你就错过了。我们喜欢在 Lifehacker 上把自己想象成谷歌忍者，但即便如此，我们也需要时不时地提醒自己这些至关重要的快捷方式。
 

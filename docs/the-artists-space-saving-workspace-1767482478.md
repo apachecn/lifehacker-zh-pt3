@@ -1,6 +1,6 @@
 # 艺术家节省空间的工作空间
 
-> 原文:[https://life hacker . com/the-artists-space-saving-workspace-1767482478](https://lifehacker.com/the-artists-space-saving-workspace-1767482478)
+> 原文：<https://lifehacker.com/the-artists-space-saving-workspace-1767482478>
 
 运动图形设计师兼电影摄影师泰勒·斯帕克斯(Tyler Sparks)发来了这张他在布鲁克林公寓里节省空间的照片，我们很喜欢。这是一个很好的工作空间，能很好地利用垂直空间，有足够的个性和生产力工具。
 

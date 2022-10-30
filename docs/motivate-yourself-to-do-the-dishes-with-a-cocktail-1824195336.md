@@ -1,6 +1,6 @@
 # 用鸡尾酒激励自己洗碗
 
-> 原文:[https://life hacker . com/激励自己用鸡尾酒洗碗-1824195336](https://lifehacker.com/motivate-yourself-to-do-the-dishes-with-a-cocktail-1824195336)
+> 原文：<https://lifehacker.com/motivate-yourself-to-do-the-dishes-with-a-cocktail-1824195336>
 
 我最讨厌洗碗，但由于我的工作和洗碗机的缺乏，我最终比一般人做得更多。为了克服我对戴上洗碗手套站在水槽前的极度鄙视，我用一杯鸡尾酒激励自己。
 

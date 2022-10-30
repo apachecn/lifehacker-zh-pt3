@@ -1,6 +1,6 @@
 # 三星 Galaxy S8 点评:最漂亮的手机胜出
 
-> 原文:[https://gizmodo . com/Samsung-galaxy-S8-review-the-beautiful-phone-wins-1794526975](https://gizmodo.com/samsung-galaxy-s8-review-the-prettiest-phone-wins-1794526975)
+> 原文：<https://gizmodo.com/samsung-galaxy-s8-review-the-prettiest-phone-wins-1794526975>
 
 随着 Note 7 电池爆炸的惨败，三星无意中做了一件现在越来越难的事情:它让智能手机在一瞬间变得有趣。事实上非常有趣。除了 Note 7 引人入胜的悲伤传奇——其令人尴尬的召回让该公司损失了数十亿美元，三星还为 Galaxy S8 设定了一个戏剧性的发布叙事。这不仅仅是另一部智能手机——这是一部决定成败的设备，它肩负着拯救一家陷入生存危机的公司的重任。一部在虚空中尖叫的智能手机——呀！
 

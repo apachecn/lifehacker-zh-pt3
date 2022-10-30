@@ -1,6 +1,6 @@
 # 如何度过下一次灾难性的疫情
 
-> 原文:[https://gizmodo . com/how-to-survive-the-next-disastery-疫情-1793487027](https://gizmodo.com/how-to-survive-the-next-catastrophic-pandemic-1793487027)
+> 原文：<https://gizmodo.com/how-to-survive-the-next-catastrophic-pandemic-1793487027>
 
 专家表示，这不是一个是否会发生的问题，而是何时全球范围内疫情将毁灭数百万人。我们对下一次大爆发毫无准备。但是，如果发生毁灭性的疫情病毒——无论是由现有病毒的突变株还是生物工程恐怖武器引发的——在爆发前和爆发期间，你都可以做一些实际的事情来增加你的生存几率。
 

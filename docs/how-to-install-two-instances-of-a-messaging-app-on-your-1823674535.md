@@ -1,6 +1,6 @@
 # 如何在 Galaxy S9 上安装两个消息应用程序实例
 
-> 原文:[https://life hacker . com/how-to-install-two-instances-of-a-messaging-app-on-your-1823674535](https://lifehacker.com/how-to-install-two-instances-of-a-messaging-app-on-your-1823674535)
+> 原文：<https://lifehacker.com/how-to-install-two-instances-of-a-messaging-app-on-your-1823674535>
 
 Twitter 和 Instagram 等应用程序允许你同时登录两个账户，但如果你想在同一台设备上使用两个不同的消息客户端，你通常会运气不佳。比如 Facebook Messenger、Skype 和 WhatsApp，你必须注销一个账户才能使用另一个账户。
 

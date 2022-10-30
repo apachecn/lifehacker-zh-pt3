@@ -1,6 +1,6 @@
 # 唯一阻止你进步的是你自己
 
-> 原文:[https://life hacker . com/the only-thing-keep-you-in-improving-you-1825894642](https://lifehacker.com/the-only-thing-keeping-you-from-improving-is-you-1825894642)
+> 原文：<https://lifehacker.com/the-only-thing-keeping-you-from-improving-is-you-1825894642>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 

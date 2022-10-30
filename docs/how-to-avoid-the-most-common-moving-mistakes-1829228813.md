@@ -1,6 +1,6 @@
 # 如何避免最常见的移动错误
 
-> 原文:[https://life hacker . com/how-to-避免最常见的移动错误-1829228813](https://lifehacker.com/how-to-avoid-the-most-common-moving-mistakes-1829228813)
+> 原文：<https://lifehacker.com/how-to-avoid-the-most-common-moving-mistakes-1829228813>
 
 去年我们搬家时，我们的大部分物品都完好无损地到达了新地方。唯一值得注意的是我的床架，这是几年前在宜家买的，我们自己无法拆开，搬运工声称可以原样移动。它不可能，在他们离开我们的住处后不久，我们发现在他们试图把它搬进我们的二楼无电梯公寓时，它已经被撕成了两半。
 

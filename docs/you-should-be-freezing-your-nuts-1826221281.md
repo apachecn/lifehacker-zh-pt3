@@ -1,6 +1,6 @@
 # 你应该冷冻你的坚果
 
-> 原文:[https://life hacker . com/you-should-be-freezing-your-nuts-1826221281](https://lifehacker.com/you-should-be-freezing-your-nuts-1826221281)
+> 原文：<https://lifehacker.com/you-should-be-freezing-your-nuts-1826221281>
 
 你以为你喜欢坚果，但你从来没有像喜欢冷冻坚果那样喜欢过坚果。
 

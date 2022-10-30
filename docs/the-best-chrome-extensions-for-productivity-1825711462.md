@@ -1,6 +1,6 @@
 # 提高生产力的最佳 Chrome 扩展
 
-> 原文:[https://life hacker . com/the-best-chrome-extensions-for-productivity-1825711462](https://lifehacker.com/the-best-chrome-extensions-for-productivity-1825711462)
+> 原文：<https://lifehacker.com/the-best-chrome-extensions-for-productivity-1825711462>
 
 毫不奇怪，作为一个致力于提高工作效率的网站的编辑，我痴迷于细化我的科技生活细节，以确保每一个元素都在帮助我完成工作。虽然我有我所信赖的软件([Deckset](https://lifehacker.com/deckset-creates-great-looking-presentations-from-any-ma-1563410885#_ga=2.152466619.367633666.1525095724-3846207152.1521480874)[Evernote](https://lifehacker.com/ive-been-using-evernote-all-wrong-heres-why-its-actual-5989980#_ga=2.152466619.367633666.1525095724-3846207152.1521480874))，但我更喜欢我最喜欢的浏览器扩展。它们很轻便，易于安装，而且通常是免费的，但是它们对我的工作效率有着深远的影响。这些是我最热爱和最经常推荐的 Chrome 扩展。
 

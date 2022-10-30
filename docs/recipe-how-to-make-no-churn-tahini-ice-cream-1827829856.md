@@ -1,6 +1,6 @@
 # 芝麻开门:如何制作免搅拌塔希尼冰淇淋
 
-> 原文:[https://the take out . com/recipe-how-to-make-no-churn-tahini-ice-cream-1827829856](https://thetakeout.com/recipe-how-to-make-no-churn-tahini-ice-cream-1827829856)
+> 原文：<https://thetakeout.com/recipe-how-to-make-no-churn-tahini-ice-cream-1827829856>
 
 夏天终于免费提供冷冻食物了。冬天关门的意大利冰淇淋店和冷冻蛋羹店敞开了大门；冰淇淋车带着吹笛者的叫声在街上行驶。自制冰淇淋是一种特殊的乐趣，尽管很难获得与商业版本相同质量的味道和质地，但它的慷慨精神更令人愉快。虽然最近的烹饪书，像[*你好，我的名字是冰淇淋*](https://www.amazon.com/Hello-My-Name-Ice-Cream/dp/0451495373?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/recipe-how-to-make-no-churn-tahini-ice-cream-1827829856&asc_source=&tag=kinjatakeoutlink-20) ，可以提供技巧和提示，让你的自制美食尽可能接近完美，但你仍然面临挑战。
 

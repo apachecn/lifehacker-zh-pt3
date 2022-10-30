@@ -1,6 +1,6 @@
 # 你什么时候会忽视你的孩子？
 
-> 原文:[https://life hacker . com/when-do-you-ignore-your-kid-1797834001](https://lifehacker.com/when-do-you-ignore-your-kid-1797834001)
+> 原文：<https://lifehacker.com/when-do-you-ignore-your-kid-1797834001>
 
 听到这个育儿建议对我来说就像一个顿悟:如果你的孩子连续一百次问你同样的问题，你不必回答一百次。只说“这是我最后的答案”，忽略其他 99 个。
 

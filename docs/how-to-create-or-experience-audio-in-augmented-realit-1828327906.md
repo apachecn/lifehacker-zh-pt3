@@ -1,6 +1,6 @@
 # 如何在增强现实中创建或体验音频
 
-> 原文:[https://life hacker . com/how-to-create-or-experience-audio-in-augmented-realit-1828327906](https://lifehacker.com/how-to-create-or-experience-audio-in-augmented-realit-1828327906)
+> 原文：<https://lifehacker.com/how-to-create-or-experience-audio-in-augmented-realit-1828327906>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-0MDGeFvaWW8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-0MDGeFvaWW8&start=0) 
 

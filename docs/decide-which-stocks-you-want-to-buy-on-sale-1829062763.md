@@ -1,6 +1,6 @@
 # 决定你想买哪些“打折”的股票
 
-> 原文:[https://life hacker . com/decision-你想买哪些股票出售-1829062763](https://lifehacker.com/decide-which-stocks-you-want-to-buy-on-sale-1829062763)
+> 原文：<https://lifehacker.com/decide-which-stocks-you-want-to-buy-on-sale-1829062763>
 
 我们先从一个已知的事实开始:你无法把握市场时机。但这并不意味着你不能在市场不可避免地再次下跌之前做一些积极主动的规划。
 

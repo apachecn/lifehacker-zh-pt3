@@ -1,6 +1,6 @@
 # 找出你一生中会发生多少次日全食
 
-> 原文:[https://life hacker . com/find-out-how-number-total-eclipse-occurrence-in-your-lif-1798311685](https://lifehacker.com/find-out-how-many-total-eclipses-will-occur-in-your-lif-1798311685)
+> 原文：<https://lifehacker.com/find-out-how-many-total-eclipses-will-occur-in-your-lif-1798311685>
 
 在昨天的大日食之后，许多人都在问一个非常重要的问题:它什么时候会再次发生？*《华盛顿邮报》* [创造了一个工具](https://www.washingtonpost.com/graphics/national/eclipse/?hpid=hp_no-name_graphic-story-a%3Ahomepage%2Fstory&utm_term=.00f7720dc2f7) 来帮你找出答案。
 

@@ -1,6 +1,6 @@
 # 如果你的孩子在学校遭遇种族主义欺凌，你该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-your ' s child-experience-racistic-bullyin-1788843727](https://lifehacker.com/what-to-do-if-your-child-is-experiencing-racist-bullyin-1788843727)
+> 原文：<https://lifehacker.com/what-to-do-if-your-child-is-experiencing-racist-bullyin-1788843727>
 
 欺凌事件一直呈上升趋势，但自周二以来， [学校中公然的种族主义欺凌](http://www.ctvnews.ca/world/americans-document-racist-encounters-on-day-1-of-donald-trump-s-america-1.3154508) 事件激增。无论你对选举有什么样的感觉，这都是一个需要解决的严重问题。如果你的孩子正在经历种族主义欺凌，而你不知道该怎么办，这里是你可以寻求帮助的地方。
 

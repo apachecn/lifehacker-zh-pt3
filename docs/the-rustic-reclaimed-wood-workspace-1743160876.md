@@ -1,6 +1,6 @@
 # 质朴的再生木材工作空间
 
-> 原文:[https://life hacker . com/the-trust-received-wood-workspace-1743160876](https://lifehacker.com/the-rustic-reclaimed-wood-workspace-1743160876)
+> 原文：<https://lifehacker.com/the-rustic-reclaimed-wood-workspace-1743160876>
 
 一张巨大的 L 形书桌，由看起来像是巨大的树枝支撑着。对于两个人来说，这是一个非常自然、质朴的工作空间。
 

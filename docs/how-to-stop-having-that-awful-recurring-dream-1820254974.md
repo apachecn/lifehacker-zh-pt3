@@ -1,6 +1,6 @@
 # 如何停止重复做那个可怕的梦
 
-> 原文:[https://life hacker . com/how-to-stop-happen-hacken-hacker-1820254974](https://lifehacker.com/how-to-stop-having-that-awful-recurring-dream-1820254974)
+> 原文：<https://lifehacker.com/how-to-stop-having-that-awful-recurring-dream-1820254974>
 
 在我反复做的噩梦中，我做了一件可怕的，真正令人发指的事情。那件可怕的事情是什么还不清楚，但是*可以确定的是我就要因此被抓了——所以我要跑。跑啊，跑啊，跑啊，总是差点被抓住。现在这已经有了标准的恐怖噩梦的情感内容，但是这个梦也加入了一些*的耻辱*，只是为了从我的潜意识中多出来一个 f-you。我总是摇摇晃晃地醒来，心烦意乱。美好时光。* 
 

@@ -1,6 +1,6 @@
 # 你完全可以自己做的 10 件看似危险的事情
 
-> 原文:[https://life hacker . com/top-10-看似危险的事情-你完全可以自己做-1741173623](https://lifehacker.com/top-10-seemingly-risky-things-you-can-totally-do-yourse-1741173623)
+> 原文：<https://lifehacker.com/top-10-seemingly-risky-things-you-can-totally-do-yourse-1741173623>
 
 生活中的一些事情——比如修理你自己的汽车或者自己动手装修房屋——可能看起来危险或者有风险，尤其是如果你以前从未做过或者你倾向于谨慎行事。它们也可能比看起来更可行。这里有十件让你望而生畏的事情，你或许可以自己解决。
 

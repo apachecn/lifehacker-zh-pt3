@@ -1,6 +1,6 @@
 # 2015 年最受欢迎的 iOS 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-IOs-downloads-and-post-of-2015-1748730287](https://lifehacker.com/most-popular-ios-downloads-and-posts-of-2015-1748730287)
+> 原文：<https://lifehacker.com/most-popular-ios-downloads-and-posts-of-2015-1748730287>
 
 iOS 凭借 iOS 9、新款 iPhones 和一款别致的新款 iPad Pro 迎来了丰收的一年。让我们用一些关于苹果移动操作系统的最大、最受欢迎的帖子来回顾这一年。
 

@@ -1,6 +1,6 @@
 # 热带桌面
 
-> 原文:[https://lifehacker.com/the-tropical-desktop-1768621465](https://lifehacker.com/the-tropical-desktop-1768621465)
+> 原文：<https://lifehacker.com/the-tropical-desktop-1768621465>
 
 读者 Amy 发来的这张桌面，给我们的屏幕带来了一点夏日时光，这是我们可以一直欣赏的。最重要的是，它非常精简，不需要太多的调整就能达到最佳效果。如果你想要同样的造型，下面是艾米的做法。
 

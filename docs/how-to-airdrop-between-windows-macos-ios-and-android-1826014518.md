@@ -1,6 +1,6 @@
 # 如何在 Windows、macOS、iOS 和 Android 设备之间进行“隔空投送”
 
-> 原文:[https://life hacker . com/how-to-airdrop-between-windows-MAC OS-IOs-and-Android-1826014518](https://lifehacker.com/how-to-airdrop-between-windows-macos-ios-and-android-1826014518)
+> 原文：<https://lifehacker.com/how-to-airdrop-between-windows-macos-ios-and-android-1826014518>
 
 说到文件管理，苹果迷们过得很轻松。早在 2011 年 7 月，苹果公司在 OS X 狮首次推出了隔空投送，在你连接的台式机和笔记本电脑系统(以及 iPhones 和 iPads)之间移动文件再简单不过了。
 

@@ -1,6 +1,6 @@
 # 吃冷冻过的食物安全吗？
 
-> 原文:[https://the take out . com/is-it-safe-to-eat-the-s-the-s-the-s-the-shed-frozen-burned-1822454907](https://thetakeout.com/is-it-safe-to-eat-food-that-s-been-freezer-burnt-1822454907)
+> 原文：<https://thetakeout.com/is-it-safe-to-eat-food-that-s-been-freezer-burnt-1822454907>
 
 现在，在你冰箱的后面，有一袋你两年前打开的豌豆，或者是上次打折时匆忙包好的鸡胸肉。霜模糊了，粘在一起，失去了味道，那些传递过来的包裹正在死亡，就像无数被遗忘的食物在冰箱里慢慢燃烧一样。
 

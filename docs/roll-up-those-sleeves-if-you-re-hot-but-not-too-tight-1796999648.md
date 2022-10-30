@@ -1,6 +1,6 @@
 # 如果你觉得热，就卷起袖子——但不要太紧
 
-> 原文:[https://life hacker . com/roll-up-these-sleeps-if-you-re-hot-but-not-too-tight-1796999648](https://lifehacker.com/roll-up-those-sleeves-if-you-re-hot-but-not-too-tight-1796999648)
+> 原文：<https://lifehacker.com/roll-up-those-sleeves-if-you-re-hot-but-not-too-tight-1796999648>
 
 虽然一个职业政治家可能会让他们辛勤工作的美国公民 cosplay 下来，但美国普通人可能不会熟练地卷起长袖衬衫，尤其是在外面很热的时候。你可能倾向于卷得更紧，但如果你想保持凉爽，那就没用了。
 

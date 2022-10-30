@@ -1,6 +1,6 @@
 # 我们计算了更高的油价
 
-> 原文:[https://jalopnik . com/we-did-the-math-on-high-gas-prices-1826118414](https://jalopnik.com/we-did-the-math-on-higher-gas-prices-1826118414)
+> 原文：<https://jalopnik.com/we-did-the-math-on-higher-gas-prices-1826118414>
 
 随着油价 [创下三年新高](https://jalopnik.com/oh-no-gas-is-getting-expensive-again-1826018252) 并预计将继续上涨，我们美国人每次为我们都在购买的华丽的新 SUV 和跨界车加油时都会受到打击。但是有一种相反的观点认为，今天的汽车以更高的燃油效率抵消了油价的上涨。但是，它们的效率是否足以让更贵的天然气“收支平衡”？我们做了一些数学计算来找出答案。
 

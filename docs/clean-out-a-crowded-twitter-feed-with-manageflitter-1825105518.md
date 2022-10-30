@@ -1,6 +1,6 @@
 # 用 ManageFlitter 清理拥挤的 Twitter Feed
 
-> 原文:[https://life hacker . com/clean-out-a-crowded-Twitter-feed-with-managef litter-1825105518](https://lifehacker.com/clean-out-a-crowded-twitter-feed-with-manageflitter-1825105518)
+> 原文：<https://lifehacker.com/clean-out-a-crowded-twitter-feed-with-manageflitter-1825105518>
 
 如果你在 Twitter 上呆的时间太长，或者在狂欢中一次关注太多人，你可能会以一个拥挤甚至有毒的 Twitter feed 而告终。在我在 Twitter 上度过的 12 年里，我最终关注了超过 3700 个账户的庞大人群。我不能仅仅通过手动取消关注我的订阅源中的人，所以我使用[manage fliter](https://manageflitter.com/)，这是一个对我的关注者进行排序和操作的强大工具。
 

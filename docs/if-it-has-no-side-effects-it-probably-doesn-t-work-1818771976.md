@@ -1,6 +1,6 @@
 # 如果它没有副作用，它很可能不起作用
 
-> 原文:[https://life hacker . com/if-it-has-no-side-effects-it-possible-t-work-1818771976](https://lifehacker.com/if-it-has-no-side-effects-it-probably-doesn-t-work-1818771976)
+> 原文：<https://lifehacker.com/if-it-has-no-side-effects-it-probably-doesn-t-work-1818771976>
 
 如果一种药物或补充剂或治疗方法真的有效，它既有好处也有风险。例如，这就是为什么 FDA 批准的药物会在说明书中列出它们的副作用。但是粗略的健康治疗很少有这样的事情。
 

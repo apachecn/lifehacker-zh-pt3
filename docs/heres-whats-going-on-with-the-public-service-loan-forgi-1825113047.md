@@ -1,6 +1,6 @@
 # 以下是公共服务贷款豁免项目的进展情况
 
-> 原文:[https://life hacker . com/heres-what-going-with-the-public-service-loan-forgi-1825113047](https://lifehacker.com/heres-whats-going-on-with-the-public-service-loan-forgi-1825113047)
+> 原文：<https://lifehacker.com/heres-whats-going-on-with-the-public-service-loan-forgi-1825113047>
 
 昨天，我们谈到了公共服务贷款豁免计划的基本资格以及联邦政府对学生贷款服务公司进行更多监督的必要性，但我收到了一些关于该计划总体状况的问题，如来自的以下问题
 

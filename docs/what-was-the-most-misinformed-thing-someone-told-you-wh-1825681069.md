@@ -1,6 +1,6 @@
 # 你学车的时候别人告诉你的最误传的事是什么？
 
-> 原文:[https://jalopnik . com/wh-wh-1825681069](https://jalopnik.com/what-was-the-most-misinformed-thing-someone-told-you-wh-1825681069)
+> 原文：<https://jalopnik.com/what-was-the-most-misinformed-thing-someone-told-you-wh-1825681069>
 
 尽管有大量成文的法律来规定我们应该如何驾驶，我们仍然有自己的小技巧和方法来保持道路上的安全。大多数人都这样。但是当他们向新司机传递坏的或错误的建议时，这就成问题了。
 

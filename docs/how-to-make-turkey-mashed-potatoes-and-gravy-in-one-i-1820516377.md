@@ -1,6 +1,6 @@
 # 如何在一个方便的锅里做火鸡、土豆泥和肉汁
 
-> 原文:[https://life hacker . com/how-to-make-the-how-to-sow-the-one-I-1820516377](https://lifehacker.com/how-to-make-turkey-mashed-potatoes-and-gravy-in-one-i-1820516377)
+> 原文：<https://lifehacker.com/how-to-make-turkey-mashed-potatoes-and-gravy-in-one-i-1820516377>
 
 [感恩节晚餐是一整场制作](https://skillet.lifehacker.com/your-complete-timeline-for-getting-thanksgiving-dinner-1820414610) 但是，如果你 [只为几个人服务](https://lifehacker.com/how-to-make-thanksgiving-dinner-for-a-very-small-crowd-1820310548) ，或者只是想品尝一些节日风味，比如说，在七月，你可以用你的速溶锅在一个小时内做出一顿优雅、美味的火鸡、土豆泥和肉汤。
 

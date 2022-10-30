@@ -1,6 +1,6 @@
 # 使用谷歌改进的求职工具查看薪资范围和通勤时间
 
-> 原文:[https://life hacker . com/see-salary-ranges-and-commute-times with-Google-s-impro-1820471042](https://lifehacker.com/see-salary-ranges-and-commute-times-with-google-s-impro-1820471042)
+> 原文：<https://lifehacker.com/see-salary-ranges-and-commute-times-with-google-s-impro-1820471042>
 
 找工作是有压力的，尤其是当你考虑在各种工作网站之间切换时，你必须寻找合适的工作(更不用说所有的服务员 [简历调整](https://lifehacker.com/what-it-really-means-to-tailor-your-resume-1779491213) )。为了提供帮助，谷歌更新了其最近推出的 [谷歌求职服务](https://lifehacker.com/google-for-jobs-could-save-you-time-on-your-next-job-se-1796266140) ，允许求职者收集更多关于潜在工作的信息，并帮助他们缩小潜在职业机会的范围，而不必处理一个又一个标签的相同列表。
 

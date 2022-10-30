@@ -1,6 +1,6 @@
 # 棕色鸡蛋比白色鸡蛋更健康更美味吗？
 
-> 原文:[https://the take out . com/are-brown-eggs-比 white-eggs-1823405932](https://thetakeout.com/are-brown-eggs-healthier-and-tastier-than-white-eggs-1823405932)
+> 原文：<https://thetakeout.com/are-brown-eggs-healthier-and-tastier-than-white-eggs-1823405932>
 
 如果糙米比白米饭对你更好，黑面包比白面包好，那么它就与褐鸡蛋比白鸡蛋好相关，对吗？
 

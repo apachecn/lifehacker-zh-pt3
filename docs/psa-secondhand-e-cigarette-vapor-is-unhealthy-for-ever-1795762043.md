@@ -1,6 +1,6 @@
 # PSA:二手电子烟蒸汽对每个人都不健康，尤其是孩子
 
-> 原文:[https://life hacker . com/PSA-二手电子烟蒸汽永远不健康 1795762043](https://lifehacker.com/psa-secondhand-e-cigarette-vapor-is-unhealthy-for-ever-1795762043)
+> 原文：<https://lifehacker.com/psa-secondhand-e-cigarette-vapor-is-unhealthy-for-ever-1795762043>
 
 当你使用电子烟或 vape 时，你呼出的蒸汽不会神奇地消失。二手蒸汽是一个非常重要的东西，它们对你周围的任何人呼吸都是不健康的，尤其是小孩子。
 

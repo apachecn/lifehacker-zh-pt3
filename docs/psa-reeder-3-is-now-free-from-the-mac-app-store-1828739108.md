@@ -1,6 +1,6 @@
 # 令人敬畏的 RSS 阅读器 Reeder 3 现在可以从苹果应用商店免费下载
 
-> 原文:[https://life hacker . com/PSA-re eder-3-is-now-free-from-the-MAC-app-store-1828739108](https://lifehacker.com/psa-reeder-3-is-now-free-from-the-mac-app-store-1828739108)
+> 原文：<https://lifehacker.com/psa-reeder-3-is-now-free-from-the-mac-app-store-1828739108>
 
 如果你想买一个新的 RSS 阅读器，我们可以帮你达成交易。
 

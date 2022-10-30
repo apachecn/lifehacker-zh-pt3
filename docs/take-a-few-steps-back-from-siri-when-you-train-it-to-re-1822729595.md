@@ -1,6 +1,6 @@
 # 当你训练 Siri 识别你的声音时，从 Siri 后退几步
 
-> 原文:[https://life hacker . com/take-a-steps-back-from-Siri-when-you-train-it-re-1822729595](https://lifehacker.com/take-a-few-steps-back-from-siri-when-you-train-it-to-re-1822729595)
+> 原文：<https://lifehacker.com/take-a-few-steps-back-from-siri-when-you-train-it-to-re-1822729595>
 
 对于任何一部新的iPhone，你想做的第一件事就是训练 [Siri](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 识别你的声音——如果苹果的人工智能助手 [给你带来麻烦，重新训练它也不失为一个好主意。在训练过程中，你的第一反应可能是把 iPhone 拿在手里(甚至举到嘴边)，但实际上，你最好先放下手机，后退几步。](https://lifehacker.com/reset-siris-training-data-to-force-it-to-relearn-your-v-1721343298) 
 

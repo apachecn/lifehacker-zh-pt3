@@ -1,6 +1,6 @@
 # 你不用开瓶器就能打开一瓶酒吗？
 
-> 原文:[https://life hacker . com/tip-tester-you-can-open-a bottle-of-a-cor-1756636043](https://lifehacker.com/tip-tester-can-you-open-a-bottle-of-wine-without-a-cor-1756636043)
+> 原文：<https://lifehacker.com/tip-tester-can-you-open-a-bottle-of-wine-without-a-cor-1756636043>
 
 当你有一瓶可爱的葡萄酒，但是你的开瓶器不见了，你会怎么做？当滴酒不沾不是一个选项时，有无数的非传统方式，人们声称你可以打开一瓶酒。我们对他们进行了测试。
 

@@ -1,6 +1,6 @@
 # 我试过 ALDI 60 美元的立式搅拌机，它相当不错
 
-> 原文:[https://life hacker . com/I-tryed-aldis-60-stand-mixer-and-its-pretty-good-1819492945](https://lifehacker.com/i-tried-aldis-60-stand-mixer-and-its-pretty-good-1819492945)
+> 原文：<https://lifehacker.com/i-tried-aldis-60-stand-mixer-and-its-pretty-good-1819492945>
 
 每个人最喜欢的经济实惠的杂货店又来了。从 10 月 18 日开始，你可以在任何一家 ALDI 商店花*六十美元购买一台 [六速安比诺经典立式搅拌机](https://www.aldi.co.uk/ambiano-classic-stand-mixer/p/095332172137100) 。*我收到了一个评论，我很高兴能试用它。它不仅测试起来有趣，性能也相当令人钦佩——我对它进行了测试。
 

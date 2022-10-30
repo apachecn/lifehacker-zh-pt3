@@ -1,6 +1,6 @@
 # 制作 elotes 砂锅:墨西哥街头玉米与中西部相遇
 
-> 原文:[https://the take out . com/recipe-elotes-sarkobe-Mexican-street-corn-1826677327](https://thetakeout.com/recipe-elotes-casserole-mexican-street-corn-1826677327)
+> 原文：<https://thetakeout.com/recipe-elotes-casserole-mexican-street-corn-1826677327>
 
 [Elotes 是庆祝甜玉米旺季的墨西哥街头小吃](https://thetakeout.com/make-elotes-mexican-corn-on-the-cob-and-summer-s-perfe-1798262829) 。新鲜蒸熟或烤熟的玉米整穗涂上大量蛋黄酱，卷在 cotija 奶酪中，撒上辛辣的辣椒粉，再配上一片青柠。这是甜脆玉米、奶油蛋黄酱、咸奶酪和西瓜酸的完美平衡——我不得不称之为完美的夏季菜肴。
 

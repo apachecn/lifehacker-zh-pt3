@@ -1,6 +1,6 @@
 # 同时使用 Apple Music 和 Spotify 制作一款优秀的应用
 
-> 原文:[https://life hacker . com/use-both-apple-music-and-Spotify-to-make-one-good-app-1821968437](https://lifehacker.com/use-both-apple-music-and-spotify-to-make-one-good-app-1821968437)
+> 原文：<https://lifehacker.com/use-both-apple-music-and-spotify-to-make-one-good-app-1821968437>
 
 所以我试着换成苹果音乐。
 

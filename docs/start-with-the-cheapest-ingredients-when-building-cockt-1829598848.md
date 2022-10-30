@@ -1,6 +1,6 @@
 # 制作鸡尾酒时，从最便宜的原料开始
 
-> 原文:[https://life hacker . com/start-with the cheese-ingredients-when-building-cockt-1829598848](https://lifehacker.com/start-with-the-cheapest-ingredients-when-building-cockt-1829598848)
+> 原文：<https://lifehacker.com/start-with-the-cheapest-ingredients-when-building-cockt-1829598848>
 
 和任何事情一样，学习调制美味的鸡尾酒需要一些练习，即使是专业人士也会偶尔出错。为了防止浪费昂贵的酒，调酒师兼全能乙醇专家吉姆·米汉 从最便宜的原料开始制作他的饮料。
 

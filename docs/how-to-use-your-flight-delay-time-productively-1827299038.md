@@ -1,6 +1,6 @@
 # 如何有效利用你的航班延误时间
 
-> 原文:[https://life hacker . com/how-to-use-your ' s flight-delay-time-productive-1827299038](https://lifehacker.com/how-to-use-your-flight-delay-time-productively-1827299038)
+> 原文：<https://lifehacker.com/how-to-use-your-flight-delay-time-productively-1827299038>
 
 每次航班准时起飞，都像是一个小小的奇迹。尽管航空公司有固定的时间表，还是有很多不利于准时到达目的地的因素。首先是天气:要么太热，要么太冷，要么太多风，要么太多雨，要么太多雾。然后还有机械问题要解决(最近我的一次航班因为副驾驶的安全带扣不上而延误了一个半小时)。有时，这甚至不是航空公司的错，而是一名不守规矩的乘客——就像我的一次航班上的一名男子，当他听说飞行员和副驾驶都是女性时——要求让他下飞机，因为他觉得不安全。
 

@@ -1,6 +1,6 @@
 # 为什么在户外你不能依靠你的手机
 
-> 原文:[https://life hacker . com/why-you-can-t-rely-on-your-phone-in-the-great-outdoors-1828472316](https://lifehacker.com/why-you-can-t-rely-on-your-phone-in-the-great-outdoors-1828472316)
+> 原文：<https://lifehacker.com/why-you-can-t-rely-on-your-phone-in-the-great-outdoors-1828472316>
 
 如果你足够大，你可能记得在你的车里带着地图，并告诉家人你要去的地方的电话号码。但是现在谁会这么做，当你一直带着手机的时候？好吧，如果你要去远足或露营，你可能需要恢复一些老派的习惯。
 

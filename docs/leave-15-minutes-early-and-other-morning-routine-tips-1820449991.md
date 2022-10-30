@@ -1,6 +1,6 @@
 # 提前 15 分钟离开，以及其他早晨常规的小贴士
 
-> 原文:[https://life hacker . com/leave-15-minutes-early-and-other-morning-routine-tips-1820449991](https://lifehacker.com/leave-15-minutes-early-and-other-morning-routine-tips-1820449991)
+> 原文：<https://lifehacker.com/leave-15-minutes-early-and-other-morning-routine-tips-1820449991>
 
 作为一个生产力博客的全职作家，我早上很糟糕。因此，当我们向 Lifehacker 的脸书粉丝询问让早晨更轻松的最佳方法时，我对答案感到兴奋。我们得到了一些很棒的提示！
 

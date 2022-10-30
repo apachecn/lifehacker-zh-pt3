@@ -1,6 +1,6 @@
 # Android Doze 如何工作，以及如何调整它以节省电池
 
-> 原文:[https://life hacker . com/how-Android-doze-works-and-how-to-tweak-it-to-save-you-1785921957](https://lifehacker.com/how-android-doze-works-and-how-to-tweak-it-to-save-you-1785921957)
+> 原文：<https://lifehacker.com/how-android-doze-works-and-how-to-tweak-it-to-save-you-1785921957>
 
 你的智能手机做了太多的事情，以至于你觉得不可能充满电度过一天。不过，事情不一定非要这样。Android 的瞌睡功能是在 [棉花糖](http://lifehacker.com/all-the-new-features-of-android-m-1707454646) 中引入的，并在 [牛轧糖](http://lifehacker.com/all-the-new-features-coming-in-android-n-1763790001#_ga=1.29942783.1347662518.1465819317) 中得到完善，当你不使用手机时，它可以保持低电量。下面是它的工作原理，以及如何充分利用它。
 

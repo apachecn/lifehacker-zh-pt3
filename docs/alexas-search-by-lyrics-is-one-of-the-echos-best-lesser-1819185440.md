@@ -1,6 +1,6 @@
 # Alexa 的歌词搜索是 Echo 最好的鲜为人知的功能之一
 
-> 原文:[https://life hacker . com/alexas-search-by-lyrics-is-one-of-the-echos-best-lesser-1819185440](https://lifehacker.com/alexas-search-by-lyrics-is-one-of-the-echos-best-lesser-1819185440)
+> 原文：<https://lifehacker.com/alexas-search-by-lyrics-is-one-of-the-echos-best-lesser-1819185440>
 
 如果你不知道，Alexa 可以帮你找到一首歌词有点像“什么什么”之类的歌。
 

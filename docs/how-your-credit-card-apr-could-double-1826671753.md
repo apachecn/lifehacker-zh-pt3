@@ -1,6 +1,6 @@
 # 你的信用卡年利率如何翻倍
 
-> 原文:[https://life hacker . com/how-your-credit-card-apr-could-double-1826671753](https://lifehacker.com/how-your-credit-card-apr-could-double-1826671753)
+> 原文：<https://lifehacker.com/how-your-credit-card-apr-could-double-1826671753>
 
 根据来自的最新数据，信用卡年利率高得离谱，平均为 16.75%。(顺便说一下，这是历史新高。)但如果支付失误，你可能会在几个月后面临几乎是这个天文数字两倍的*利率。* 
 

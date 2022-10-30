@@ -1,6 +1,6 @@
 # 为什么烤蔬菜是烹饪蔬菜的最佳方式
 
-> 原文:[https://life hacker . com/why-baking-vegetables-is-the-best-way to-cook-them-1797605912](https://lifehacker.com/why-roasting-vegetables-is-the-best-way-to-cook-them-1797605912)
+> 原文：<https://lifehacker.com/why-roasting-vegetables-is-the-best-way-to-cook-them-1797605912>
 
 烹饪蔬菜有很多“正确”的方法，但是——尽管我不是烹饪处方的狂热粉丝——我还是要说烘焙是最正确的。从嫩绿芦笋到丰盛的块根蔬菜，用这种方法做出来的每样东西味道都很棒，*和*做起来超级简单。
 

@@ -1,6 +1,6 @@
 # 制作 elotes，墨西哥玉米棒和夏季的完美菜肴
 
-> 原文:[https://the take out . com/make-elotes-Mexican-corn-on-the-cob-and-summer-s-perfe-1798262829](https://thetakeout.com/make-elotes-mexican-corn-on-the-cob-and-summer-s-perfe-1798262829)
+> 原文：<https://thetakeout.com/make-elotes-mexican-corn-on-the-cob-and-summer-s-perfe-1798262829>
 
 这不是最真实的场景，但我的墨西哥之旅是通过芝加哥白袜队的比赛开始的。两个想法卡住了:“这些贪婪的混蛋对一小托盘玉米要价 6 美元？!"更多的必然结果是:“男孩，甜玉米加蛋黄酱+黄油+奶酪+酸橙+辣椒非常好吃。”
 

@@ -1,6 +1,6 @@
 # 以下是全国步枪协会为政客们的想法和祈祷支付的费用
 
-> 原文:[https://life hacker . com/heres-how-much-thought-and-prayers-a-contribution-from-1820215051](https://lifehacker.com/heres-how-many-thoughts-and-prayers-a-contribution-from-1820215051)
+> 原文：<https://lifehacker.com/heres-how-many-thoughts-and-prayers-a-contribution-from-1820215051>
 
 Watch
 

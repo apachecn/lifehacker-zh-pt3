@@ -1,6 +1,6 @@
 # 用这些简单的方法去除强烈的厨房气味
 
-> 原文:[https://life hacker . com/get-out-of-strong-kitchen-smokes-1796760674](https://lifehacker.com/get-rid-of-strong-kitchen-smells-with-these-easy-tricks-1796760674)
+> 原文：<https://lifehacker.com/get-rid-of-strong-kitchen-smells-with-these-easy-tricks-1796760674>
 
 如果你住在一个小空间里，那么即使是最小的气味也会是一个大问题。我的公寓是这样布置的，每当我们决定早餐做熏肉时，整个公寓至少在一天的剩余时间里都有熏肉的味道，有时会持续到第二天。如果你喜欢培根的味道，那太好了。然而，进入第二天，我通常会想办法用一些更中性的东西来代替这种味道。
 

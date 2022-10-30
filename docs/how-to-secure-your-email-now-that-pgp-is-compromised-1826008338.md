@@ -1,6 +1,6 @@
 # 既然 PGP 遭到破坏，如何保护您的电子邮件
 
-> 原文:[https://life hacker . com/how-to-secure-your-email-now-the-PGP-is-compromised-1826008338](https://lifehacker.com/how-to-secure-your-email-now-that-pgp-is-compromised-1826008338)
+> 原文：<https://lifehacker.com/how-to-secure-your-email-now-that-pgp-is-compromised-1826008338>
 
 如果你一直使用 PGP——Pretty Good Privacy 的缩写——来发送和接收加密电子邮件，那么可能是时候换一种不同的服务来维护你的通信隐私了。一个全新的漏洞，被戏称为 EFAIL， [可以明文泄露你的电子邮件](https://gizmodo.com/email-no-longer-a-secure-method-of-communication-after-1826002682#_ga=2.160849021.1392401934.1526304012-3846207152.1521480874) (在某些情况下甚至是更老的电子邮件)的内容。再见，秘密。
 

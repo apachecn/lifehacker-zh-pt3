@@ -1,6 +1,6 @@
 # 使用此扩展将互联网清理干净
 
-> 原文:[https://life hacker . com/wipe-the-internet-clean-with this-extension-1821183309](https://lifehacker.com/wipe-the-internet-clean-with-this-extension-1821183309)
+> 原文：<https://lifehacker.com/wipe-the-internet-clean-with-this-extension-1821183309>
 
 如果你想要一个温和的提醒，不要在网上浪费时间——不要投资一个功能齐全的付费应用程序，如 [【自由】](https://lifehacker.com/freedom-blocks-distractions-in-sync-across-every-device-1747878326)——尝试一下 [互联网上什么都没有](http://www.nothingontheinternet.com/) ，这是 Chrome 和 Safari 的一个扩展，它关闭了网络的所有内容，留下了一片禅宗般的空白线框。
 

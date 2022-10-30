@@ -1,6 +1,6 @@
 # 如何扭转一份你想辞职的工作
 
-> 原文:[https://life hacker . com/how-to-turn-around-a-job-you-want-quit-1820040422](https://lifehacker.com/how-to-turn-around-a-job-you-want-to-quit-1820040422)
+> 原文：<https://lifehacker.com/how-to-turn-around-a-job-you-want-to-quit-1820040422>
 
 你不必讨厌你的工作来考虑辞职。对你所做的工作或与你共事的团队感觉不冷不热，足以让你考虑美化你的简历，并开始新的求职。在你完全投入精力去找一份新工作之前，也许有必要先确定一下手头的问题，看看是否有办法改善你目前的状况。
 

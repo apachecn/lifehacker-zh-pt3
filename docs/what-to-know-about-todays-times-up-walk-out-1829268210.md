@@ -1,6 +1,6 @@
 # 关于今天的“时间到了”走出去，你应该知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-about-todays-times-up-walk-out-1829268210](https://lifehacker.com/what-to-know-about-todays-times-up-walk-out-1829268210)
+> 原文：<https://lifehacker.com/what-to-know-about-todays-times-up-walk-out-1829268210>
 
 鉴于对最高法院提名人布雷特·卡瓦诺(Brett Kavanaugh)的性行为不端指控，反对性骚扰的时代运动呼吁人们穿黑色衣服，并在今天举行罢工。
 

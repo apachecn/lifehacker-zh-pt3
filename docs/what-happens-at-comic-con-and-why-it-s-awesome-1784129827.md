@@ -1,6 +1,6 @@
 # 动漫展上发生了什么，为什么它很棒
 
-> 原文:[https://life hacker . com/what-happens-at-comic-con-and-why-it-s-awesome-1784129827](https://lifehacker.com/what-happens-at-comic-con-and-why-it-s-awesome-1784129827)
+> 原文：<https://lifehacker.com/what-happens-at-comic-con-and-why-it-s-awesome-1784129827>
 
 [圣地亚哥动漫展](http://www.comic-con.org/) 这个周末正在如火如荼地进行。在大量的预告片、海报、活动人偶和展板中，值得后退一步来欣赏 SDCC 是什么，以及它为什么如此令人印象深刻以至于存在。
 

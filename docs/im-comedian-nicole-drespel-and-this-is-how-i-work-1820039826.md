@@ -1,6 +1,6 @@
 # 我是喜剧演员妮可·德雷斯佩尔，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-comedian-Nicole-drespel-and-this-is-how-I-work-1820039826](https://lifehacker.com/im-comedian-nicole-drespel-and-this-is-how-i-work-1820039826)
+> 原文：<https://lifehacker.com/im-comedian-nicole-drespel-and-this-is-how-i-work-1820039826>
 
 世界上可能有十件事配得上“保守得最好的秘密”的称号，喜剧演员妮可·德瑞斯佩尔就是其中之一。作为正直公民旅的传奇即兴表演教练和教师，Nicole 出现在 *Broad City* 和 *30 Rock* 中，并为 TruTV 的*Chris Gethard Show*和网飞的*湿热的美国夏天*撰稿。她目前主持播客 [【收件箱】](https://audioboom.com/channel/inbox) ，她和共同主持人马特·斯特鲁普在其中挖掘嘉宾的电子邮件和聊天记录。
 

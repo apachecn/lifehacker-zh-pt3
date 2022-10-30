@@ -1,6 +1,6 @@
 # 来自地狱的反馈回路
 
-> 原文:[https://life hacker . com/the-feedback-loop-from-hell-1786858875](https://lifehacker.com/the-feedback-loop-from-hell-1786858875)
+> 原文：<https://lifehacker.com/the-feedback-loop-from-hell-1786858875>
 
 你的大脑有一种阴险的怪癖，如果你放任它，它会让你完全疯掉。告诉我这听起来对你来说是否熟悉:你对面对生活中的某个人感到焦虑。这种焦虑让你变得无能为力，你开始怀疑自己为什么如此焦虑。现在你开始为焦虑而焦虑。哦不！加倍焦虑！现在你对你的焦虑感到焦虑，这导致了更多的焦虑。快点，威士忌在哪里？
 

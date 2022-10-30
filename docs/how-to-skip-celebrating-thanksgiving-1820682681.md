@@ -1,6 +1,6 @@
 # 如何跳过庆祝感恩节
 
-> 原文:[https://life hacker . com/how-to-skip-欢庆感恩节-1820682681](https://lifehacker.com/how-to-skip-celebrating-thanksgiving-1820682681)
+> 原文：<https://lifehacker.com/how-to-skip-celebrating-thanksgiving-1820682681>
 
 说到感恩节，我什么都做过:我一手准备了一顿饭，包括手工制作的托夫卡、南瓜松饼、六道蔬菜配菜，外加馅饼。我尝过中西部火鸡日大餐的味道，那里所有的东西都涂了厚厚的奶油和熏肉——然而！—还是没有味道。我在西班牙和外国人一起庆祝，在夏威夷的大岛上用芋头代替土豆泥。我和我的伴侣一起吃过墨西哥大餐，单身时在朋友聚会上喝醉了，几年前和我男朋友的家人吵了一架，我不得不离开餐桌。
 

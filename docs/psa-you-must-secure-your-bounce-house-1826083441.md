@@ -1,6 +1,6 @@
 # PSA:你必须保护好你的弹跳屋
 
-> 原文:[https://life hacker . com/PSA-you-must-secure-your-bounce-house-1826083441](https://lifehacker.com/psa-you-must-secure-your-bounce-house-1826083441)
+> 原文：<https://lifehacker.com/psa-you-must-secure-your-bounce-house-1826083441>
 
 弹跳屋——多么好的礼物。他们是孩子们生日聚会的真正明星(抱歉，是生日的孩子们)，带来欢乐、笑声和最终小睡的膨胀奇迹。它们也有点可怕，加州 的这只跳跃者本周被强风吹到了高速公路上。正在里面玩耍的 9 岁男孩奇迹般地爬了出来，只是有些擦伤和抓伤。
 

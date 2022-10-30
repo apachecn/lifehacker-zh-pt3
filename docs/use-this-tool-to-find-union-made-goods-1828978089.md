@@ -1,6 +1,6 @@
 # 使用此工具查找联盟制造的商品
 
-> 原文:[https://life hacker . com/use-this-tool-to-find-union-made-goods-1828978089](https://lifehacker.com/use-this-tool-to-find-union-made-goods-1828978089)
+> 原文：<https://lifehacker.com/use-this-tool-to-find-union-made-goods-1828978089>
 
 [工会好](https://splinternews.com/study-yep-unions-made-america-great-1825717403) 而且，根据最近的一项盖洛普民意测验， [的大多数人都想支持他们](https://splinternews.com/this-just-in-people-love-unions-1828714176) 。考虑到他们经历的动荡的一年，这种支持是非常值得感激的。除了不越过纠察线，一个支持工会的简单方法是购买工会工人生产或分发的商品。
 

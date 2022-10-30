@@ -1,6 +1,6 @@
 # 只用 5 种原料制作 Nobu 传说中的味噌黑鳕鱼
 
-> 原文:[https://thetakeout . com/make-nobu-s-legendary-miso-black-cod-using-only-5-ingre-1798262905](https://thetakeout.com/make-nobu-s-legendary-miso-black-cod-using-only-5-ingre-1798262905)
+> 原文：<https://thetakeout.com/make-nobu-s-legendary-miso-black-cod-using-only-5-ingre-1798262905>
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 

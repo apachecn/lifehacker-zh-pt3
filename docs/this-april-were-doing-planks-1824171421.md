@@ -1,6 +1,6 @@
 # 今年四月，我们在做木板
 
-> 原文:[https://life hacker . com/this-April-were-doing-plants-1824171421](https://lifehacker.com/this-april-were-doing-planks-1824171421)
+> 原文：<https://lifehacker.com/this-april-were-doing-planks-1824171421>
 
 亲爱的读者们，对不起。当我问 Lifehacker 的员工，我们的 [月度健身挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 缺少了什么时，响亮的答案是我们都需要花一个月的时间来开发我们的平板游戏。
 

@@ -1,6 +1,6 @@
 # 火鸡小跑，第 3 周:尝试这种迷你速度训练
 
-> 原文:[https://life hacker . com/turkey-trot-throwdown-week-3-try-this-mini-speed-work-1787929719](https://lifehacker.com/turkey-trot-throwdown-week-3-try-this-mini-speed-work-1787929719)
+> 原文：<https://lifehacker.com/turkey-trot-throwdown-week-3-try-this-mini-speed-work-1787929719>
 
 你感觉如何？如果你正在记录大量的英里数，这很好——但是如果你已经放松了一点或者刚刚加入我们，这也很好。本周的训练面向所有人。我们将进行一些小型单人比赛，它们会让你跑得更快。
 

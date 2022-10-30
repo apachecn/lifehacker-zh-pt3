@@ -1,6 +1,6 @@
 # 如何删除亚马逊 Echo 和 Google Home 正在存储的语音数据
 
-> 原文:[https://life hacker . com/how-to-delete-the-voice-data-that-Amazon-echo-and-googl-1820737802](https://lifehacker.com/how-to-delete-the-voice-data-that-amazon-echo-and-googl-1820737802)
+> 原文：<https://lifehacker.com/how-to-delete-the-voice-data-that-amazon-echo-and-googl-1820737802>
 
 对于我们这些没有亚马逊智能音箱的人来说，假期回家会带来一个新的家庭成员，总是被吼。 *Alexa！艾丽莎。跳过歌！但是对于任何一个日复一日使用亚马逊或谷歌智能家居设备的人来说，你最终会开始怀疑:它到底听了多少？它是在把我的每一句话都发送到大型科技公司总部吗？*
 

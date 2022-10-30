@@ -1,6 +1,6 @@
 # 如何在黑暗的地方拍出更好的照片
 
-> 原文:[https://life hacker . com/how-to-take-better-photos-in-dark-places-1798433608](https://lifehacker.com/how-to-take-better-photos-in-dark-places-1798433608)
+> 原文：<https://lifehacker.com/how-to-take-better-photos-in-dark-places-1798433608>
 
 黑暗是摄影的敌人，但是——作为一个恐怖片迷——我想学习如何在光线非常暗的鬼地方拍摄照片。我联系了一位专家，以下是我了解到的情况。
 

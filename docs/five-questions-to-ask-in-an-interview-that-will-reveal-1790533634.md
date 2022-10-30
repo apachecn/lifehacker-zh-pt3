@@ -1,6 +1,6 @@
 # 面试中要问的五个问题会透露出很多关于公司的信息
 
-> 原文:[https://life hacker . com/five-questions-to-ask-in-a-a-interview-that-will-reveal-1790533634](https://lifehacker.com/five-questions-to-ask-in-an-interview-that-will-reveal-1790533634)
+> 原文：<https://lifehacker.com/five-questions-to-ask-in-an-interview-that-will-reveal-1790533634>
 
 你已经听过无数次了:“记住，你在采访他们，正如他们在采访你一样。问自己一些(好的)问题，感受一下自己是否真的想在那里工作。”
 

@@ -1,6 +1,6 @@
 # 在你的写作中使用占位符来避免卡住
 
-> 原文:[https://life hacker . com/use-a-placeholder-in-your-writing-to-keep-from-get-1825716825](https://lifehacker.com/use-a-placeholder-in-your-writing-to-keep-from-getting-1825716825)
+> 原文：<https://lifehacker.com/use-a-placeholder-in-your-writing-to-keep-from-getting-1825716825>
 
 有时候写作最难的部分不是找到想法或知道如何开始，而是保持一种流动，这样你才能真正完成你开始的工作。这并不完全是作家的阻滞，因为你已经开始行动了，但如果你愿意，这是作家的*路*阻滞。《T2:下一代星际旅行》的编剧们使用的这个技巧可以帮助你继续前进。
 

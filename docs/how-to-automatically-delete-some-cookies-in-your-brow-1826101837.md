@@ -1,6 +1,6 @@
 # 如何在浏览器中自动删除(一些)Cookies
 
-> 原文:[https://life hacker . com/how-to-automatically-delete-some-cookies-in-your-brow-1826101837](https://lifehacker.com/how-to-automatically-delete-some-cookies-in-your-brow-1826101837)
+> 原文：<https://lifehacker.com/how-to-automatically-delete-some-cookies-in-your-brow-1826101837>
 
 浏览器 cookies 在某些情况下很有用；在别人看来不愉快。虽然它们可以让你在试图访问你最喜欢的网站时不必经历复杂的认证过程，但它们也可以存储你在特定网站上做过的事情的数据，这些数据可以用于在未来为你提供更“相关”的广告。
 

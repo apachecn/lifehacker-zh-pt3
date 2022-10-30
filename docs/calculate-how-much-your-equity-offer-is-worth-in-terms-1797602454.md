@@ -1,6 +1,6 @@
 # 计算一下你的股权报价在工资方面的价值
 
-> 原文:[https://life hacker . com/calculate-how-how-your ' s equity-offer-worth-in-terms-1797602454](https://lifehacker.com/calculate-how-much-your-equity-offer-is-worth-in-terms-1797602454)
+> 原文：<https://lifehacker.com/calculate-how-much-your-equity-offer-is-worth-in-terms-1797602454>
 
 假设你刚刚在一家初创公司获得了一份工作。薪水不高(毕竟这是一家初创公司)，但你也能得到一种叫做*股权*的东西。这是它的含义和价值。
 

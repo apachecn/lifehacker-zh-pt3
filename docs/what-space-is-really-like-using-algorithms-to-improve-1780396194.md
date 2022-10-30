@@ -1,6 +1,6 @@
 # 空间到底是什么样的，用算法改善你的生活，还有一些美丽的自然空间
 
-> 原文:[https://life hacker . com/what-space-is-true-like-using-algorithms-to-improve-1780396194](https://lifehacker.com/what-space-is-really-like-using-algorithms-to-improve-1780396194)
+> 原文：<https://lifehacker.com/what-space-is-really-like-using-algorithms-to-improve-1780396194>
 
 你可以使用算法来改善日常决策的方法，宇航员所说的太空实际上是什么样的，简单语言在交流中的重要性，等等——都在本周的 Lifehacker Brain Buffet 中！
 

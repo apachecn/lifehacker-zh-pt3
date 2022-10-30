@@ -1,6 +1,6 @@
 # 解释如何通过录制屏幕来更容易地修复计算机问题
 
-> 原文:[https://life hacker . com/explain-how-to-fix-computer-problems-easy-by-recordin-1826182282](https://lifehacker.com/explain-how-to-fix-computer-problems-easier-by-recordin-1826182282)
+> 原文：<https://lifehacker.com/explain-how-to-fix-computer-problems-easier-by-recordin-1826182282>
 
 我在家人和朋友中有点名气，因为我知道如何解决人们的电脑问题。当那个人在我面前时，解释如何在脸书上做那件事或改变电脑设置是相当简单的，但当我与全国各地的朋友或家人交谈时，事情就有点冒险了。
 

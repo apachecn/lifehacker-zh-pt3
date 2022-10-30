@@ -1,6 +1,6 @@
 # 用这些扩展增强你的 Chrome 安全性
 
-> 原文:[https://life hacker . com/beef-up-your-chrome-security-with these-extensions-1825360485](https://lifehacker.com/beef-up-your-chrome-security-with-these-extensions-1825360485)
+> 原文：<https://lifehacker.com/beef-up-your-chrome-security-with-these-extensions-1825360485>
 
 [谷歌 Chrome](http://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393#_ga=2.62623980.151127572.1523807864-396842925.1520800403) 自带内置安全措施，警告你危险的网站并清除 [网络钓鱼诈骗](https://lifehacker.com/modern-phishing-attempts-look-more-legit-but-the-metho-1794914817#_ga=2.62623980.151127572.1523807864-396842925.1520800403) ，但当你浏览时有更多(或更好)的安全措施也无妨。
 

@@ -1,6 +1,6 @@
 # 吃饭时点最便宜的酒就行了
 
-> 原文:[https://life hacker . com/just-order-the-cheese-wine-at-dinner-1822963745](https://lifehacker.com/just-order-the-cheapest-wine-at-dinner-1822963745)
+> 原文：<https://lifehacker.com/just-order-the-cheapest-wine-at-dinner-1822963745>
 
 这个情人节，你可能已经为你爱的人安排了一顿大餐。你已经为一切做好了预算:一些开胃菜、主菜和一份悄悄分开的甜点。当你到达餐厅时，灯光刚刚好， [的音乐是舒缓的](https://lifehacker.com/what-are-your-valentine-s-day-songs-1822958826) ，你对 [之夜可能引领](https://lifehacker.com/if-your-valentines-plans-include-sex-and-dinner-do-the-1822800140) 的地方感觉很好。然后服务员给你拿酒单。
 

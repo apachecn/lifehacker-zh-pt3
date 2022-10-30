@@ -1,6 +1,6 @@
 # 博客如何帮助你的财务状况成形
 
-> 原文:[https://life hacker . com/how-blogging-can-help-whip-your finance-to-shape-1789538621](https://lifehacker.com/how-blogging-can-help-whip-your-finances-into-shape-1789538621)
+> 原文：<https://lifehacker.com/how-blogging-can-help-whip-your-finances-into-shape-1789538621>
 
 我的理财习惯非常牢固，这与我以写理财为生有很大关系。我不是一个人。许多其他的作家，不管有没有报酬，都把博客作为一个平台，来改善他们的财务状况，记录他们的目标。一些最受欢迎的赚钱网站是从博客开始的。如果你的 [财务不堪重负](https://lifehacker.com/how-to-manage-your-money-for-those-who-never-learned-g-1703892260) ，博客可以帮你理清头绪。
 

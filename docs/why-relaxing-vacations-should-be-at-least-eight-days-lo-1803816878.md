@@ -1,6 +1,6 @@
 # 为什么放松的假期应该至少有八天
 
-> 原文:[https://life hacker . com/why-relaxing-vacations-should-be-the-至少八天-lo-1803816878](https://lifehacker.com/why-relaxing-vacations-should-be-at-least-eight-days-lo-1803816878)
+> 原文：<https://lifehacker.com/why-relaxing-vacations-should-be-at-least-eight-days-lo-1803816878>
 
 有时候一个短暂的假期总比什么都没有好，但是如果你可以的话，至少尝试八天。研究表明，你至少需要那么多时间来真正放松和恢复精神。
 

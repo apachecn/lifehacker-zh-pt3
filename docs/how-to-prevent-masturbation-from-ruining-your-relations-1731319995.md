@@ -1,6 +1,6 @@
 # 如何防止手淫毁了你们的关系
 
-> 原文:[https://life hacker . com/how-to-prevent-to-probate-from-breaking-your-relations-1731319995](https://lifehacker.com/how-to-prevent-masturbation-from-ruining-your-relations-1731319995)
+> 原文：<https://lifehacker.com/how-to-prevent-masturbation-from-ruining-your-relations-1731319995>
 
 人际关系中有自慰的空间吗？简单的回答是“是的！”这是你的身体，你可以随心所欲。但是就像生活中的其他事情一样，手淫有一些复杂性，会影响你们的关系。以下是如何与你的伴侣*和*你的手保持健康关系的方法。
 

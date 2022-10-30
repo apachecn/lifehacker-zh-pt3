@@ -1,6 +1,6 @@
 # 我从立式办公桌中学到的四件事
 
-> 原文:[https://life hacker . com/four-things-ive-learn-using-a-standing-desk-1782679850](https://lifehacker.com/four-things-ive-learned-using-a-standing-desk-1782679850)
+> 原文：<https://lifehacker.com/four-things-ive-learned-using-a-standing-desk-1782679850>
 
 我已经使用立式办公桌几个月了，我很喜欢它。它 [让我感觉更有效率](https://lifehacker.com/a-standing-desk-makes-me-more-productive-even-if-it-s-1766137972) ，让我保持活跃，而且几乎不花我一分钱。尽管如此，我还是有一些成长的烦恼。如果你正在考虑设置一个立式办公桌，这是我学到的，这样你就不必这么做了。
 

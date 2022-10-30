@@ -1,6 +1,6 @@
 # 对你的苹果手表来说,“美好的一天”是一个更好的日历功能
 
-> 原文:[https://life hacker . com/better-day-is-a-better-day-by-y-1829616313](https://lifehacker.com/better-day-is-a-much-better-calendar-complication-for-y-1829616313)
+> 原文：<https://lifehacker.com/better-day-is-a-much-better-calendar-complication-for-y-1829616313>
 
 我不太喜欢更疯狂的 Apple Watch 面孔——那些试图用时间、数据点和其他你点击来访问这个或那个的图标来填充你手表的面孔。但尽管我是一个纯粹主义者，我还是安装了第三方复杂功能[Better Day](https://itunes.apple.com/us/app/better-day-a-complication/id1052023515?mt=8)(2 美元)，并换成了一个数据量稍大的界面，因为这个第三方复杂功能给你的 Apple Watch 带来了比苹果更好的日历体验。
 

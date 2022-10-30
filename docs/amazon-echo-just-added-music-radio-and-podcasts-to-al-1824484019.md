@@ -1,6 +1,6 @@
 # 亚马逊 Echo 刚刚在 Alexa 的例行程序中添加了音乐、广播和播客
 
-> 原文:[https://life hacker . com/Amazon-echo-just-added-music-radio-and-podcast-to-al-1824484019](https://lifehacker.com/amazon-echo-just-added-music-radio-and-podcasts-to-al-1824484019)
+> 原文：<https://lifehacker.com/amazon-echo-just-added-music-radio-and-podcasts-to-al-1824484019>
 
 [Alexa 例程](https://www.amazon.com/b/ref=%20vas_gurus_article_routines/ref=s9_acss_bw_cg_gurusSep_2b1_w?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/amazon-echo-just-added-music-radio-and-podcasts-to-al-1824484019&asc_source=&node=17452482011&pf_rd_i=6563140011&pf_rd_m=ATVPDKIKX0DER&pf_rd_p=7222fc71-887c-42ed-86a7-4c7812434a06&pf_rd_r=WRGVCNJ7JD735A3TQ7B3&pf_rd_s=merchandised-search-7&pf_rd_t=101&tag=kinjalifehackerlink-20) 是在你的 [亚马逊 Echo](https://lifehacker.com/the-best-place-for-your-echo-dot-is-actually-on-the-cei-1820916306) 上用单一语音命令触发一堆不同动作的有用方式。现在，它们变得更好了，现在你可以添加特定的歌曲、播客和广播节目。
 

@@ -1,6 +1,6 @@
 # 不要用房屋净值贷款来支付你的车
 
-> 原文:[https://jalopnik . com/do-not-take-out-a-home-equity-loan-pay-for-your-car-1780755188](https://jalopnik.com/do-not-take-out-a-home-equity-loan-to-pay-for-your-car-1780755188)
+> 原文：<https://jalopnik.com/do-not-take-out-a-home-equity-loan-to-pay-for-your-car-1780755188>
 
 最近，我听到了可能是我听过的最糟糕的购车建议:我的岳父正在买车，他被告知，与其申请汽车贷款，不如申请房屋净值贷款。这就是为什么这是一个可怕的想法。
 

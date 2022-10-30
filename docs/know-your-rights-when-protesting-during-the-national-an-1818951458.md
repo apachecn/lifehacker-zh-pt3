@@ -1,6 +1,6 @@
 # 在国歌演奏期间抗议时，知道你的权利
 
-> 原文:[https://life hacker . com/know-your-rights-when-support-in-the-national-an-1818951458](https://lifehacker.com/know-your-rights-when-protesting-during-the-national-an-1818951458)
+> 原文：<https://lifehacker.com/know-your-rights-when-protesting-during-the-national-an-1818951458>
 
 在职业体育比赛 期间发生的 [跪地抗议，包括 NFL 和 MLB，最近几周一直是头条新闻。虽然美国公民有权和平抗议，但抗议活动](http://splinternews.com/while-nfl-players-take-a-knee-the-foreclosure-king-t-1818702098#_ga=2.16947775.749759340.1506955054-27973805.1434581949) [也对参与](http://www.theroot.com/black-chicago-cops-will-be-reprimanded-for-taking-the-k-1818777813) 的人产生了一些反弹。甚至全国各地的一些学生也参加了，并受到学校当局的处罚:
 

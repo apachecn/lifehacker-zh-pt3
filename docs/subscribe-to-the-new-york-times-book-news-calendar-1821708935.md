@@ -1,6 +1,6 @@
 # 订阅纽约时报图书新闻日历
 
-> 原文:[https://life hacker . com/subscribe-to-the-new-York-times-book-news-calendar-1821708935](https://lifehacker.com/subscribe-to-the-new-york-times-book-news-calendar-1821708935)
+> 原文：<https://lifehacker.com/subscribe-to-the-new-york-times-book-news-calendar-1821708935>
 
 《纽约时报》刚刚发布了一份日历，比它的 [天文事件日历](https://lifehacker.com/subscribe-to-a-calendar-of-astronomical-events-1800661400) 还要有用。谷歌或苹果提供的 [NYT 2018 图书活动日历](https://www.nytimes.com/interactive/2017/books/books-calendar.html) 包括査蒂·史密斯和戴夫·艾格斯等作家备受期待的图书发布，加上活动、文学纪念日，以及根据热门书籍 *Ready Player One* 和*你去哪了，伯纳黛特?】改编的电影发布。*。
 

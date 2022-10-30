@@ -1,6 +1,6 @@
 # 科技可能会鼓励你多付小费
 
-> 原文:[https://life hacker . com/technology-can-be-inspired-you-over-tip-1825608164](https://lifehacker.com/technology-could-be-encouraging-you-to-over-tip-1825608164)
+> 原文：<https://lifehacker.com/technology-could-be-encouraging-you-to-over-tip-1825608164>
 
 商家用 Square 这样的移动支付系统，你给多少小费？根据来自 [NerdWallet](https://www.nerdwallet.com/article/dont-let-technology-bully-tipping) 的这篇文章，如果你的咖啡师或餐馆老板输入他们自己的“建议”小费金额，你可能会做得过火——特别是如果是给一个你通常不会给小费的卖家。
 

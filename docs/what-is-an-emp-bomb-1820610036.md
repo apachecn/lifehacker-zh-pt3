@@ -1,6 +1,6 @@
 # 什么是电磁炸弹？
 
-> 原文:[https://lifehacker.com/what-is-an-emp-bomb-1820610036](https://lifehacker.com/what-is-an-emp-bomb-1820610036)
+> 原文：<https://lifehacker.com/what-is-an-emp-bomb-1820610036>
 
 在 10 月 12 日 的听证会上，专家警告美国众议院，可能来自朝鲜的电磁脉冲炸弹可能在一年内杀死 90%的美国人。但是什么是电磁炸弹呢？这种武器真的有那么大的破坏力吗？
 

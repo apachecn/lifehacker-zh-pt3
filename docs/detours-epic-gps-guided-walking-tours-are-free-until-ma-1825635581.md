@@ -1,6 +1,6 @@
 # 在 5 月 31 日之前,“绕道”史诗般的 GPS 导航徒步旅行是免费的
 
-> 原文:[https://life hacker . com/detours-epic-GPS-guided-walking-tours-is-free-until-ma-1825635581](https://lifehacker.com/detours-epic-gps-guided-walking-tours-are-free-until-ma-1825635581)
+> 原文：<https://lifehacker.com/detours-epic-gps-guided-walking-tours-are-free-until-ma-1825635581>
 
 当我旅行时，我最喜欢使用的应用程序之一是“绕道”。这款应用由安德鲁·梅森(Groupon 的创始人)开发，里面有很多不同大城市的徒步旅行，我的家乡旧金山就是其中之一。
 

@@ -1,6 +1,6 @@
 # 你所有神秘的酒店费用，解释
 
-> 原文:[https://life hacker . com/all-of-your-mystery-hotel-fees-explained-1822610340](https://lifehacker.com/all-of-your-mysterious-hotel-fees-explained-1822610340)
+> 原文：<https://lifehacker.com/all-of-your-mysterious-hotel-fees-explained-1822610340>
 
 “到底什么是度假村费用？”我的朋友问道，开车离开我们古色古香的棕榈泉汽车旅馆。我们收到一份账单，上面有一长串令人困惑的税费清单。我们懒得去破译每一个项目，在不知道我们到底买了什么的情况下付了钱。你可能也去过那里，所以让我们来探索一下你的典型酒店账单都包括什么。
 

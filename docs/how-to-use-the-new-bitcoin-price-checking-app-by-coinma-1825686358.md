@@ -1,6 +1,6 @@
 # 如何使用 CoinMarketCap 的新比特币价格检查应用程序
 
-> 原文:[https://life hacker . com/how-to-use-the-new-bit coin-price-checking-app-by-coin ma-1825686358](https://lifehacker.com/how-to-use-the-new-bitcoin-price-checking-app-by-coinma-1825686358)
+> 原文：<https://lifehacker.com/how-to-use-the-new-bitcoin-price-checking-app-by-coinma-1825686358>
 
 iOS:Cryptocurrency-tracker[coin market cap](https://lifehacker.com/how-one-person-caused-the-price-of-cryptocurrencies-to-1822396438#_ga=2.28729468.1504035103.1525057615-258269408.1513265580)是最受欢迎的网站之一——对 [区块链](https://www.google.com/search?ei=2JvoWquJEsTJ5gKNyYeoDA&q=blockchain+lifehacker&oq=blockchain+lifehacker&gs_l=psy-ab.3..0.24110.26181.0.26295.21.8.0.6.6.0.199.462.1j2.3.0....0...1c.1.64.psy-ab..12.9.484...0i67k1j0i131i67k1j0i20i264k1j0i131k1.0.QsLfi2WmJsY) 爱好者和有金融头脑的人来说都是如此。今天，该网站正在庆祝其五岁生日，推出了一款(早该推出的)iPhoneapp 应用程序，帮助你 [随时查看比特币](https://bitcoinvolatility.io/) 和其他加密货币的价格。
 

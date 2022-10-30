@@ -1,6 +1,6 @@
 # 双螺旋主屏幕
 
-> 原文:[https://life hacker . com/the-double-helix-home-screen-1753048382](https://lifehacker.com/the-double-helix-home-screen-1753048382)
+> 原文：<https://lifehacker.com/the-double-helix-home-screen-1753048382>
 
 你的手机上可能有很多应用程序。Google+用户 [奥古斯托·劳克斯](https://plus.google.com/103221139206777461660) 创造了这个优雅的双螺旋设计，将所有的快捷方式放在一个地方，而不是用快捷方式填满 15 个主屏幕。
 

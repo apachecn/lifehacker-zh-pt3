@@ -1,6 +1,6 @@
 # 帮帮忙，这个周末东西太多了
 
-> 原文:[https://kotaku . com/help-then-than-than-than-that-much-this-weekend-1819921220](https://kotaku.com/help-theres-too-much-stuff-this-weekend-1819921220)
+> 原文：<https://kotaku.com/help-theres-too-much-stuff-this-weekend-1819921220>
 
 终于到了周五，有三个大型视频游戏发布*和*《T2》新一季可能要检验一下。这里有一些建议可以帮助你决定如何度过周末。
 

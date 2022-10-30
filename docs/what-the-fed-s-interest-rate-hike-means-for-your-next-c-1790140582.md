@@ -1,6 +1,6 @@
 # 美联储加息对你下次购车意味着什么
 
-> 原文:[https://jalopnik . com/what-the-fed-s-加息意味着你的下一步-c-1790140582](https://jalopnik.com/what-the-fed-s-interest-rate-hike-means-for-your-next-c-1790140582)
+> 原文：<https://jalopnik.com/what-the-fed-s-interest-rate-hike-means-for-your-next-c-1790140582>
 
 十年来，美联储第二次提高利率。如果你有一个主要的购买像一个家，很可能你会支付更多的贷款。涨价将如何影响你的汽车贷款取决于制造商的反应。
 

@@ -1,6 +1,6 @@
 # 这些是你今天月食需要的应用程序
 
-> 原文:[https://life hacker . com/these-is-the-apps-you-need for the today-lunar-eclipse-1827921872](https://lifehacker.com/these-are-the-apps-youll-need-for-todays-lunar-eclipse-1827921872)
+> 原文：<https://lifehacker.com/these-are-the-apps-youll-need-for-todays-lunar-eclipse-1827921872>
 
 月蚀在蓝色的月亮上只会出现一次(当然是比喻的说法)。今晚晚些时候，我们的地球 [将阻挡](https://www.space.com/15689-lunar-eclipses.html) 太阳光照射月球表面。除了通常明亮的白色外观，我们的月亮也会在短时间内呈现红色。
 

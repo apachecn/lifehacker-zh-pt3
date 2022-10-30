@@ -1,6 +1,6 @@
 # 如何知道自己是否会传染
 
-> 原文:[https://life hacker . com/how-to-know-if-you-infective-1822345790](https://lifehacker.com/how-to-know-if-youre-contagious-1822345790)
+> 原文：<https://lifehacker.com/how-to-know-if-youre-contagious-1822345790>
 
 在电梯里打喷嚏。一小时前有人在扶手上擦掉的鼻涕。你的 [不在家的同事](https://lifehacker.com/either-your-sick-co-worker-goes-home-or-you-do-1822172740) ，就在你身边呼吸。感冒和流感病毒无处不在。如果你染上了什么病，你也在传播它们。
 

@@ -1,6 +1,6 @@
 # 我如何在 18 个月内写了两部长篇小说
 
-> 原文:[https://life hacker . com/how-I-written-two-full-length-thresholds-in-18 个月-1794785678](https://lifehacker.com/how-i-wrote-two-full-length-novels-in-18-months-1794785678)
+> 原文：<https://lifehacker.com/how-i-wrote-two-full-length-novels-in-18-months-1794785678>
 
 我的处女作小说， [*《普通人列传》:第 1 卷:1989–2000*](https://books.pronoun.com/the-biographies-of-ordinary-people/)，2017 年 5 月 23 日上映。该续集涵盖 2004 年至 2016 年，计划于 2018 年上半年上映。
 

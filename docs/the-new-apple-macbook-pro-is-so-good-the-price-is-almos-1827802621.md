@@ -1,6 +1,6 @@
 # 新款苹果 MacBook Pro 太棒了，价格几乎物有所值
 
-> 原文:[https://gizmodo . com/the-new-apple-macbook-pro-is-so-good-the-price-is-almos-1827802621](https://gizmodo.com/the-new-apple-macbook-pro-is-so-good-the-price-is-almos-1827802621)
+> 原文：<https://gizmodo.com/the-new-apple-macbook-pro-is-so-good-the-price-is-almos-1827802621>
 
 新更新的 MacBook Pro 不错。电池寿命异常，速度异常， [键盘工作](https://gizmodo.com/so-lets-talk-about-the-new-macbook-pro-keyboard-1827635122#_ga=2.76334101.1048720973.1532351999-1008592624.1532106184) ，感谢苹果拥抱外接显卡概念那些 [4 个 USB-C 和雷电 3 端口终于有点用了](https://gizmodo.com/i-actually-like-usb-c-dongles-1827548372#_ga=2.168616609.1048720973.1532351999-1008592624.1532106184) 。这是一台专为工作打造的苹果笔记本电脑，也该是时候了。
 

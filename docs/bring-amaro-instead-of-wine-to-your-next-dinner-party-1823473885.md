@@ -1,6 +1,6 @@
 # 下次参加晚宴时，带上 Amaro，而不是葡萄酒
 
-> 原文:[https://life hacker . com/bring-amaro-not-the-wine-to-your next-dinner-party-1823473885](https://lifehacker.com/bring-amaro-instead-of-wine-to-your-next-dinner-party-1823473885)
+> 原文：<https://lifehacker.com/bring-amaro-instead-of-wine-to-your-next-dinner-party-1823473885>
 
 如果有人花时间打开他们的家，喂你吃东西，礼貌的成年人应该做的是带一份礼物。任何人都可以买到一瓶标有漂亮标签的中等价位的葡萄酒，但有趣、体贴的客人会带来 amaro。
 

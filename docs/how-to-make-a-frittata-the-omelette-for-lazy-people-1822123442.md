@@ -1,6 +1,6 @@
 # 如何做煎蛋饼，懒人的煎蛋饼
 
-> 原文:[https://life hacker . com/how-to-make-a-frittata-the-煎蛋饼给懒人吃-1822123442](https://lifehacker.com/how-to-make-a-frittata-the-omelette-for-lazy-people-1822123442)
+> 原文：<https://lifehacker.com/how-to-make-a-frittata-the-omelette-for-lazy-people-1822123442>
 
 看，煎蛋卷是美妙的小鸡蛋菜肴——特别是当它们包含奶酪和其他馅料时——但不可否认，它们需要一点点呵护。如果你想要一个奶酪，蔬菜点缀的鸡蛋菜，更能原谅你忧郁的注意力持续时间，你需要开始做煎蛋饼。
 

@@ -1,6 +1,6 @@
 # Facebook Messenger 的更新让管理员可以控制对话
 
-> 原文:[https://life hacker . com/how-Facebook-messengers-update-lets-admins-control-conv-1823987521](https://lifehacker.com/how-facebook-messengers-update-lets-admins-control-conv-1823987521)
+> 原文：<https://lifehacker.com/how-facebook-messengers-update-lets-admins-control-conv-1823987521>
 
 假设你还在脸书——如果你本周 [删除了服务](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) 也完全没关系，真的是这样——该公司刚刚发布了其 Messenger 应用程序的新更新，让你和你的朋友在群组对话中拥有更多权力(无论是谁发起的)。它是这样工作的。
 

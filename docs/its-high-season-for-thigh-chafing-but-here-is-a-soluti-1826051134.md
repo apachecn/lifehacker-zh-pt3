@@ -1,6 +1,6 @@
 # 这是大腿发炎的高发季节，但这里有一个解决办法
 
-> 原文:[https://Jezebel . com/its-high-season-for-thigh-sharp-but-here-a-soluti-1826051134](https://jezebel.com/its-high-season-for-thigh-chafing-but-here-is-a-soluti-1826051134)
+> 原文：<https://jezebel.com/its-high-season-for-thigh-chafing-but-here-is-a-soluti-1826051134>
 
 冬天过去了，春天从来没有来过，取而代之的是夏天——或者类似的东西——已经到来。丑陋的时间已经过去，饥渴的时间已经到来，如果你是一个当你站着、走着、躺着或拿一杯水时大腿上部会触碰到的人，那么恭喜你:你在地狱里。欢迎来到夏季大腿季，宝贝。你着火了吗？
 

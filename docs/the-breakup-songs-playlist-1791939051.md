@@ -1,6 +1,6 @@
 # 分手歌曲播放列表
 
-> 原文:[https://life hacker . com/the-breakup-songs-playlist-1791939051](https://lifehacker.com/the-breakup-songs-playlist-1791939051)
+> 原文：<https://lifehacker.com/the-breakup-songs-playlist-1791939051>
 
 分手歌曲是愤怒、心痛、乐观和重生的情感融合。本周的播放列表通过融合歌曲来缓解疼痛，触动了所有人的神经。
 

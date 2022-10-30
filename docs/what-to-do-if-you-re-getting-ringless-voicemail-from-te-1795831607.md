@@ -1,6 +1,6 @@
 # 如果你从电话推销员那里收到了没有铃声的语音邮件，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you-re-get-ring less-voice mail-from-te-1795831607](https://lifehacker.com/what-to-do-if-you-re-getting-ringless-voicemail-from-te-1795831607)
+> 原文：<https://lifehacker.com/what-to-do-if-you-re-getting-ringless-voicemail-from-te-1795831607>
 
 由于倡导团体的反对，让无环语音邮件免受反机器人电话规则约束的请愿已经被撤回。这意味着，就目前而言，这些恼人的消息与普通电话营销电话一样，受《电话消费者保护法》的管辖。
 

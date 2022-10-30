@@ -1,6 +1,6 @@
 # 争取最佳常旅客计划
 
-> 原文:[https://life hacker . com/the-best-frequent-flyer-programs-to-fight-for-1819264321](https://lifehacker.com/the-best-frequent-flyer-programs-to-strive-for-1819264321)
+> 原文：<https://lifehacker.com/the-best-frequent-flyer-programs-to-strive-for-1819264321>
 
 我经常出差，但更多的时候，我不是订机票的人。这太好了，但这意味着到了年底，我几乎总是离几乎所有主要航空公司的地位相差几千英里。在去年第次发生这种情况后，我开始和帮我订票的人联系，指定我更喜欢乘坐的航空公司，这很有成效。今年，我获得了美国航空公司的精英会员资格，几周后，我还获得了达美航空公司的精英会员资格。
 

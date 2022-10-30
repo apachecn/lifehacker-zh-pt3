@@ -1,6 +1,6 @@
 # 如何充分利用 iOS 10 中新的照片应用程序
 
-> 原文:[https://life hacker . com/how-to-get-the-most-out-of-the-new-photos-app-in-IOs-10-1786594785](https://lifehacker.com/how-to-get-the-most-out-of-the-new-photos-app-in-ios-10-1786594785)
+> 原文：<https://lifehacker.com/how-to-get-the-most-out-of-the-new-photos-app-in-ios-10-1786594785>
 
 iOS 10 中一个相对不为人知的新功能是一个更智能的照片应用程序，它希望让整理照片变得不那么繁琐。一般来说，它在这方面是成功的，但是它的一些最好的特性并不明显，或者不容易使用。让我们来看看如何使用新功能。
 

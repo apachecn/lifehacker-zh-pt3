@@ -1,6 +1,6 @@
 # 如何在俄勒冈泵出自己的臭气体并活着讲述它
 
-> 原文:[https://life hacker . com/how-to-pump-your-own-smoked-gas-in-Oregon-and-live-to-t-1821743227](https://lifehacker.com/how-to-pump-your-own-smelly-gas-in-oregon-and-live-to-t-1821743227)
+> 原文：<https://lifehacker.com/how-to-pump-your-own-smelly-gas-in-oregon-and-live-to-t-1821743227>
 
 我的国家正处于危机之中。如果任何俄勒冈人都梦想着更好、更轻松的 2018 年，那么当他们听说新法律允许未经训练的大贫民在农村县自己加油时，这些梦想就破灭了。
 

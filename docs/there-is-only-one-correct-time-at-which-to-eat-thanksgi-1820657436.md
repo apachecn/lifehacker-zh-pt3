@@ -1,6 +1,6 @@
 # 只有一个吃感恩节晚餐的正确时间
 
-> 原文:[https://life hacker . com/thanksgi-1820657436](https://lifehacker.com/there-is-only-one-correct-time-at-which-to-eat-thanksgi-1820657436)
+> 原文：<https://lifehacker.com/there-is-only-one-correct-time-at-which-to-eat-thanksgi-1820657436>
 
 吃感恩节晚餐的时间是下午 4 点。
 

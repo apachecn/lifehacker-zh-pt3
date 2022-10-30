@@ -1,6 +1,6 @@
 # 它会腐烂吗？太多黑布丁了
 
-> 原文:[https://life hacker . com/will-it-sous-vide-way-too-much-black-pudding-1793134016](https://lifehacker.com/will-it-sous-vide-way-too-much-black-pudding-1793134016)
+> 原文：<https://lifehacker.com/will-it-sous-vide-way-too-much-black-pudding-1793134016>
 
 朋友们，你们好，欢迎来到相当乐观的一集 [*它会赢吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

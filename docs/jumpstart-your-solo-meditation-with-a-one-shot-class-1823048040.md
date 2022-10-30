@@ -1,6 +1,6 @@
 # 从一次性课程开始你的独自冥想
 
-> 原文:[https://life hacker . com/jump start-your-solo-mostation-with-one-shot-class-1823048040](https://lifehacker.com/jumpstart-your-solo-meditation-with-a-one-shot-class-1823048040)
+> 原文：<https://lifehacker.com/jumpstart-your-solo-meditation-with-a-one-shot-class-1823048040>
 
 我一生中大概冥想过四次:一次是在治疗中的沙发上，一次是在中央公园 的长椅上 [，一次是在床上试图入睡。我是那些多年来一直说“我真的应该尝试冥想”的人之一。也许我会，在我人生中的第四次冥想之后，在曼哈顿市中心的公交车上。我没有学到任何对有经验的冥想者来说是新的东西，但是如果你是那种“我应该尝试”的人，请继续读下去。](https://lifehacker.com/i-went-forest-bathing-in-central-park-and-it-didn-t-fee-1797481392) 
 

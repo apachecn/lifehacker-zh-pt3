@@ -1,6 +1,6 @@
 # 迪克为赢得棋盘游戏而移动
 
-> 原文:[https://life hacker . com/dick-moves-for-winning-board-games-1819785482](https://lifehacker.com/dick-moves-for-winning-board-games-1819785482)
+> 原文：<https://lifehacker.com/dick-moves-for-winning-board-games-1819785482>
 
 桌游是一个安全的地方，可以让你与家人和朋友发生冲突，因为一旦游戏结束，每个人都会重新友好相处。这也使他们成为在娱乐的幌子下发泄你所有小挫折和复仇幻想的完美场所。以下是如何用迪克招式摧毁你的对手，这些招式感觉起来像是作弊，但都是被规则书认可的。
 

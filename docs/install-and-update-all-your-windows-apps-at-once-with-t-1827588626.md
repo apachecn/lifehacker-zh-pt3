@@ -1,6 +1,6 @@
 # 使用 Chocolatey GUI 一次安装和更新所有 Windows 应用程序
 
-> 原文:[https://life hacker . com/install-and-update-all-your-windows-apps-at-once with-t-1827588626](https://lifehacker.com/install-and-update-all-your-windows-apps-at-once-with-t-1827588626)
+> 原文：<https://lifehacker.com/install-and-update-all-your-windows-apps-at-once-with-t-1827588626>
 
 **Windows:** “软件包管理器”这个词听起来有点不祥，但是如果你聪明的话，你已经用它给你的 Windows PC 配备了所有的基本功能: [尼尼特](https://ninite.com/) 。这个网站再简单不过了。你选择你想要的程序，它为所有的东西创建一个安装文件，双击它立刻安装你选择的所有东西。
 

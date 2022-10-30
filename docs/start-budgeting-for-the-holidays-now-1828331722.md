@@ -1,6 +1,6 @@
 # 现在就开始为假期做预算
 
-> 原文:[https://life hacker . com/start-budgeting-for-the-holidays-now-1828331722](https://lifehacker.com/start-budgeting-for-the-holidays-now-1828331722)
+> 原文：<https://lifehacker.com/start-budgeting-for-the-holidays-now-1828331722>
 
 当你与 104 度的地铁站台 战斗并祈祷这个夏天最终结束时，你可能不会有这种感觉，但假期就要来临了。这意味着开始为礼物、航班、宴会和所有其他圣诞装饰品做预算。
 

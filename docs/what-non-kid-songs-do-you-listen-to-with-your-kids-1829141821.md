@@ -1,6 +1,6 @@
 # 你和孩子一起听什么非儿童歌曲？
 
-> 原文:[https://life hacker . com/what-non-kid-songs-do-you-listen-to-your-kids-1829141821](https://lifehacker.com/what-non-kid-songs-do-you-listen-to-with-your-kids-1829141821)
+> 原文：<https://lifehacker.com/what-non-kid-songs-do-you-listen-to-with-your-kids-1829141821>
 
 我 5 岁的女儿目前最喜欢的歌曲包括威泽的“冲浪蜡美国”，绿洲的“奇妙墙”和马蒂斯亚胡的“一天”我丈夫和我很早就意识到，虽然儿童音乐已经超越了活泼的巴尼合唱团(T1)和 T2 合唱团(T3)，但其中一些确实很棒(T4 T5)，我们不需要为她的小耳朵改变太多播放列表。她会很乐意听扬声器里传来的东西。
 

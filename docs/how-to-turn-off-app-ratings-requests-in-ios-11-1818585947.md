@@ -1,6 +1,6 @@
 # 如何在 iOS 11 中关闭应用评分请求
 
-> 原文:[https://life hacker . com/how-to-off-app-ratings-requests-in-IOs-11-1818585947](https://lifehacker.com/how-to-turn-off-app-ratings-requests-in-ios-11-1818585947)
+> 原文：<https://lifehacker.com/how-to-turn-off-app-ratings-requests-in-ios-11-1818585947>
 
 iOS:当你玩你最喜欢的塔防游戏几个小时时，一个不必要的弹出窗口会分散你的注意力，并结束之前完美的挑战关卡。幸运的是，iOS 11 中的许多更新之一旨在抑制应用程序开发人员寻求积极反馈的弹出窗口和中断的数量。新选项让你摆脱可怕的应用评级请求(或者，我喜欢称之为乞丐的盒子)。
 

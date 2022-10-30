@@ -1,6 +1,6 @@
 # 到底什么是串通？
 
-> 原文:[https://lifehacker.com/what-exactly-is-collusion-1797193118](https://lifehacker.com/what-exactly-is-collusion-1797193118)
+> 原文：<https://lifehacker.com/what-exactly-is-collusion-1797193118>
 
 如果你最近浏览过新闻，你可能会看到或听到“勾结”一词，指的是特朗普总统的高级职员被指控与俄罗斯有见不得人的交易。但是什么是串通呢？这真的是犯罪吗？
 

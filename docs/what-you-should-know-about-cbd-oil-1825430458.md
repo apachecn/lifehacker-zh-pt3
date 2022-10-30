@@ -1,6 +1,6 @@
 # 关于 CBD 石油你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-on-CBD-oil-1825430458](https://lifehacker.com/what-you-should-know-about-cbd-oil-1825430458)
+> 原文：<https://lifehacker.com/what-you-should-know-about-cbd-oil-1825430458>
 
 大麻的非精神活性成分大麻二酚正被誉为流行的万灵药。但是科学对它在人体中的作用知之甚少，所以关于这种药物的工作原理——包括它是否有效——仍然是个谜。
 

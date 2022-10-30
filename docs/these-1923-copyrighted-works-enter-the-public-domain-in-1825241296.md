@@ -1,6 +1,6 @@
 # 这些 1923 年版权作品将于 2019 年进入公共领域
 
-> 原文:[https://life hacker . com/these-1923-copyright-works-enter-the-public-domain-in-1825241296](https://lifehacker.com/these-1923-copyrighted-works-enter-the-public-domain-in-1825241296)
+> 原文：<https://lifehacker.com/these-1923-copyrighted-works-enter-the-public-domain-in-1825241296>
 
 二十年来第一次， [正如《大西洋月刊》指出的](https://www.theatlantic.com/technology/archive/2018/04/copywritten-so-dont-copy-me/557420/) ，一整年的版权作品将于 2019 年 1 月 1 日进入美国的公共领域。根据桑尼·波诺版权法案的条款，1923 年首次出版的作品将进入公共领域，这意味着任何人都可以重新出版它们，或者将它们切碎并在其他项目中使用，而无需征得许可或向旧版权所有者支付费用。你可以录制新版本的音乐作品；你可以通过放映电影来获利；你甚至可以改造它们。亚马逊可以卖给你电子书并保留所有的钱， [项目古腾堡](https://www.gutenberg.org/) 可以免费给你电子书。《大西洋》有一个短名单；我们下面有一个更长的。
 

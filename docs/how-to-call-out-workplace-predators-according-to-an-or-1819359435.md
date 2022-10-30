@@ -1,6 +1,6 @@
 # 根据一位组织心理学家的说法，如何召唤职场掠夺者
 
-> 原文:[https://life hacker . com/how-to-call-out-of-an-or-1819359435](https://lifehacker.com/how-to-call-out-workplace-predators-according-to-an-or-1819359435)
+> 原文：<https://lifehacker.com/how-to-call-out-workplace-predators-according-to-an-or-1819359435>
 
 每个组织都有他们的性骚扰者，他们的身份很少真正保密。有人知道，有人谈论，但是有能力做点什么的人——旁观者，高层——通常认为这不是他们的问题。这必须停止。
 

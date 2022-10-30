@@ -1,6 +1,6 @@
 # 我是 Adam Steltzner，NASA 喷气推进实验室的工程师，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Adam-steltzner-engineer-at-nasas-jet-propulsion-lab-1765095030](https://lifehacker.com/im-adam-steltzner-engineer-at-nasas-jet-propulsion-lab-1765095030)
+> 原文：<https://lifehacker.com/im-adam-steltzner-engineer-at-nasas-jet-propulsion-lab-1765095030>
 
 亚当·斯泰尔茨纳正在寻找真相。这位工程师领导了 [火星好奇号火星车](http://mars.nasa.gov/msl/) 项目的进入、下降和着陆团队，任务是将一辆小型汽车大小的火星车安全送到火星表面，决定最终下降的最佳解决方案是一辆 [飞行火箭起重机](http://mars.nasa.gov/msl/mission/technology/insituexploration/edl/skycrane/) 。这看起来很疯狂，但这是一种正确的疯狂。
 

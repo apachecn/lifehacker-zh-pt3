@@ -1,6 +1,6 @@
 # 永远不要同意别人在买你的车时付款
 
-> 原文:[https://jalopnik . com/never-even-agree-to-let-someone-make-payments-when-1822329750](https://jalopnik.com/never-ever-agree-to-let-someone-make-payments-when-they-1822329750)
+> 原文：<https://jalopnik.com/never-ever-agree-to-let-someone-make-payments-when-they-1822329750>
 
 你们中的大多数人看到标题后马上会想，“当然不是，麦克帕兰！你需要多明显？”我也认为这是常识——直到我收到数量惊人的读者邮件，他们因为同意为买家提供资金而陷入困境。
 

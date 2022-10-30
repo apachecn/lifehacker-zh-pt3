@@ -1,6 +1,6 @@
 # 尤利西斯是我一直想要的纯文本、Evernote 风格的写作应用
 
-> 原文:[https://life hacker . com/Ulysses-is-the-plain-text-evernote-style-writing-app-I-1776133398](https://lifehacker.com/ulysses-is-the-plain-text-evernote-style-writing-app-i-1776133398)
+> 原文：<https://lifehacker.com/ulysses-is-the-plain-text-evernote-style-writing-app-i-1776133398>
 
 长期以来，我一直是从笔记到一般写作的所有内容 的纯文本粉丝，但直到最近，我才找到了我的圣杯:一个可以与多种设备同步并处理多种输出类型的应用程序。T5【尤里西斯】T6。这是我一直想要的 Evernote 的纯文本版本。
 

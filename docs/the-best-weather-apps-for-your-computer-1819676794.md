@@ -1,6 +1,6 @@
 # 最佳桌面天气应用
 
-> 原文:[https://life hacker . com/the-best-weather-apps-for-your-computer-1819676794](https://lifehacker.com/the-best-weather-apps-for-your-computer-1819676794)
+> 原文：<https://lifehacker.com/the-best-weather-apps-for-your-computer-1819676794>
 
 虽然天气预报是一门众所周知的不精确的科学，但由于语音助手、弹出通知和嗡嗡作响的智能手表，现在比以往任何时候都更容易监控当天的天气(并据此穿着)。当然，在手机上查看被删节的天气预报可能会很方便，但这也可能意味着你错过了有价值的信息，这些信息可以帮助你应对外面的高温、雨夹雪或普遍的闷热。这就是桌面天气应用的用武之地。
 

@@ -1,6 +1,6 @@
 # 为什么你需要两张家务图表
 
-> 原文:[https://life hacker . com/why-you-need-two-Jerry-charts-1797042114](https://lifehacker.com/why-you-need-two-chore-charts-1797042114)
+> 原文：<https://lifehacker.com/why-you-need-two-chore-charts-1797042114>
 
 在某种程度上，我们大多数人都尝试过使用家务图表或轮子，或者只是一个清单，来让我们的伴侣、室友和家人做他们那份让我们的家运转的工作。但是我们也知道看到盘子堆积如山，然后卷起袖子自己动手收拾的那种沮丧感。好吧，也许你坚持做所有家务的原因是因为你用了一张图表。实际上，你需要两个。
 

@@ -1,6 +1,6 @@
 # 如何防止你的愤怒失控
 
-> 原文:[https://gizmodo . com/how-to-prevent-your ' s angry-spilling-out-of-control-1741944173](https://gizmodo.com/how-to-prevent-your-anger-from-spiraling-out-of-control-1741944173)
+> 原文：<https://gizmodo.com/how-to-prevent-your-anger-from-spiraling-out-of-control-1741944173>
 
 愤怒会激发攻击性，但并不总是会导致爆发。如果管理得当，它实际上可以为生产服务。这里有一些实用的建议可以帮助你更好地控制你的愤怒。
 

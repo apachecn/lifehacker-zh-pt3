@@ -1,6 +1,6 @@
 # 如果你是一个努力达到高潮的男人，该怎么办
 
-> 原文:[https://life hacker . com/1796068634](https://lifehacker.com/what-to-do-if-youre-a-guy-who-struggles-to-orgasm-1796068634)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-a-guy-who-struggles-to-orgasm-1796068634>
 
 我敢打赌，看到这个标题的人十有八九会想，“一个高潮有困难的纨绔子弟？是啊，没错。”难以达到高潮通常被认为是女性的问题，但这是一种不公平和有害的刻板印象。现实是，男性高潮并不是一个保证。如果你努力达到高潮，这是你的游戏计划。
 

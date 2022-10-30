@@ -1,6 +1,6 @@
 # Sierra 10 台式机
 
-> 原文:[https://lifehacker.com/the-sierra-10-desktop-1790830981](https://lifehacker.com/the-sierra-10-desktop-1790830981)
+> 原文：<https://lifehacker.com/the-sierra-10-desktop-1790830981>
 
 读者 [亚历克](http://kinja.com/stranaha2) 提交了这个桌面，它给 macOS 带来了一点 Windows 10，但只是好的部分。Mission Control 有一个可爱的统一外观，底部有一个应用程序启动器，功能像一个任务栏。这是所有设置的方式。
 

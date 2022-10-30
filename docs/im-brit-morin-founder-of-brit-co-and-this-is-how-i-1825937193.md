@@ -1,6 +1,6 @@
 # 我是 Brit Morin，Brit + Co 的创始人，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-Brit-morin-founder-of-Brit-co-and-this-is-how-I-1825937193](https://lifehacker.com/im-brit-morin-founder-of-brit-co-and-this-is-how-i-1825937193)
+> 原文：<https://lifehacker.com/im-brit-morin-founder-of-brit-co-and-this-is-how-i-1825937193>
 
 布里特·莫兰是 Brit + Co 的创始人兼首席执行官，这是一个生活方式网站，提供从 [举办皇家婚礼派对](https://www.brit.co/how-to-host-a-royal-wedding-viewing-party/) 到 [清洁床垫](https://www.brit.co/how-to-clean-your-mattress-spring-cleaning/) 的各种技巧和想法。通过她每月超过 1.75 亿的品牌，她想让女性知道她们*可以*自己做所有的事情，她正在通过在线课程、纽约市一个名为 [#CreateGood](https://www.brit.co/tag/creategood/) 的弹出式活动和信息峰会(该公司最近主办了一场关于 [投资加密货币](https://www.brit.co/highlights-from-britcos-cryptocurrency-summit/) 的峰会)帮助她们学习如何做。她是两个男孩安塞尔和奥斯汀的母亲。以下是她为人父母的方式。
 

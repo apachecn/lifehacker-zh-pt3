@@ -1,6 +1,6 @@
 # 在将您的笔记本电脑装入托运包之前应该做什么
 
-> 原文:[https://life hacker . com/1796454806](https://lifehacker.com/what-to-do-before-packing-your-laptop-in-a-checked-bag-1796454806)
+> 原文：<https://lifehacker.com/what-to-do-before-packing-your-laptop-in-a-checked-bag-1796454806>
 
 如果你把你的笔记本电脑放在托运的包里，最好的建议可能是*不要这样做*。从丢失行李到丢失数据，有太多可能出错的地方。随着 [笔记本禁令的威胁日益逼近](https://jalopnik.com/the-u-s-will-expand-the-laptop-ban-to-71-more-internat-1796090221) ，虽然，你可能没有选择。无论在什么情况下，一旦你放下包上路，你都想保证你的笔记本电脑的安全。
 

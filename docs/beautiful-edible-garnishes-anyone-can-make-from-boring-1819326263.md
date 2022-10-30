@@ -1,6 +1,6 @@
 # 任何人都可以用乏味、丑陋的蔬菜制作美丽、可食用的装饰品
 
-> 原文:[https://life hacker . com/beautiful-可食-装饰-任何人都可以从无聊中制作-1819326263](https://lifehacker.com/beautiful-edible-garnishes-anyone-can-make-from-boring-1819326263)
+> 原文：<https://lifehacker.com/beautiful-edible-garnishes-anyone-can-make-from-boring-1819326263>
 
 由于某些食物竞赛节目，配菜变得有点笨拙。“我应该吃这个吗？一位意大利面大亨嘲笑一位布鲁克林的厨师，轻蔑从他英俊的嘴角流下。我明白他们的意思，但这让我有点难过，因为别致的小块蔬菜总是让我高兴。
 

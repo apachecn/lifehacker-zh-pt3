@@ -1,6 +1,6 @@
 # 如何打出令人惊讶的致命一拳
 
-> 原文:[https://life hacker . com/how-to-make-a-should-death-punch-1819883428](https://lifehacker.com/how-to-make-a-surprisingly-lethal-punch-1819883428)
+> 原文：<https://lifehacker.com/how-to-make-a-surprisingly-lethal-punch-1819883428>
 
 大多数派对的成功取决于提供的酒的质量和数量，虽然主人或女主人更容易提供一大碗潘趣酒，但提供人们会不断回来的潘趣酒就有点棘手了。一杯好的潘趣酒是如此的平衡，以至于人们可能甚至没有意识到有任何乙醇漂浮在那里，我们将向你展示如何制作一杯真正好的潘趣酒。(当然，你应该告诉人们你是否在给他们提供酒。)
 

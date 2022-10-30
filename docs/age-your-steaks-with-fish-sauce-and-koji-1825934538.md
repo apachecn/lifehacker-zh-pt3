@@ -1,6 +1,6 @@
 # 用鱼露和日本酒曲来调味你的牛排
 
-> 原文:[https://life hacker . com/age-your-steak-with-fish-sauce-and-koji-1825934538](https://lifehacker.com/age-your-steaks-with-fish-sauce-and-koji-1825934538)
+> 原文：<https://lifehacker.com/age-your-steaks-with-fish-sauce-and-koji-1825934538>
 
 有些事情，像爱情或者 [一个好吃的虾基](https://skillet.lifehacker.com/make-a-big-batch-of-this-shrimp-base-and-use-it-in-ever-1825889064) ，是不能催的，但是很多事情*是可以近似的*。虽然没有什么可以替代真正的干熟牛排，但有两种食材是美食爱好者发誓会让你非常接近的:日本酒曲和鱼露。
 

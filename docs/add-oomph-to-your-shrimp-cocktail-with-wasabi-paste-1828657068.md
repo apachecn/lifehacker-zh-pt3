@@ -1,6 +1,6 @@
 # 用芥末酱给你的虾鸡尾酒添加魅力
 
-> 原文:[https://life hacker . com/add-oomph-to-your ' s shrimp-cocktail with the wasabi-paste-1828657068](https://lifehacker.com/add-oomph-to-your-shrimp-cocktail-with-wasabi-paste-1828657068)
+> 原文：<https://lifehacker.com/add-oomph-to-your-shrimp-cocktail-with-wasabi-paste-1828657068>
 
 取决于你什么时候开始关心食物，你可能认为虾鸡尾酒已经过时，但它似乎正在经历一场(可能具有讽刺意味的)复兴。(尽管，在我看来，虾鸡尾酒从未消失；是我们迷失了方向。)很简单的一道菜，需要两样东西。首先，虾必须新鲜购买，小心烹饪，彻底冷冻。然后就是酱。
 

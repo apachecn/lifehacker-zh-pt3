@@ -1,6 +1,6 @@
 # iOS 用户:别忘了免费获取“暗箱 2”相机应用
 
-> 原文:[https://life hacker . com/IOs-users-don-t-forget-the-obscura-2-camera-app-1828333639](https://lifehacker.com/ios-users-dont-forget-to-grab-the-obscura-2-camera-app-1828333639)
+> 原文：<https://lifehacker.com/ios-users-dont-forget-to-grab-the-obscura-2-camera-app-1828333639>
 
 **iOS:** “苹果”和“免费”这两个词有点像油和水——只要问问在该公司工作的任何人，他们就知道了，硅谷的习俗是为所有人提供免费午餐和晚餐。然而，库克神父这个月感觉很慷慨，苹果免费提供优秀的 [暗箱 2](https://itunes.apple.com/us/app/obscura-2/id1290342794?mt=8) 相机应用。以下是你如何得到它(并节省 5 美元)。
 

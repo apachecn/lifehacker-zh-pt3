@@ -1,6 +1,6 @@
 # 问问 Nerdlove 博士:我还不够‘真正的男人’吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-am-I-not-not-ough-of-a-real-man-1790284853](https://kotaku.com/ask-dr-nerdlove-am-i-not-enough-of-a-real-man-1790284853)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-am-i-not-enough-of-a-real-man-1790284853>
 
 你好，所有你喜欢的东西。欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个可以帮助你争论你的巧克力豆和爱抚你的谷歌的约会专栏。
 

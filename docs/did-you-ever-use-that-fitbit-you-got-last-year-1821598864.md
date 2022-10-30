@@ -1,6 +1,6 @@
 # 你用过去年买的那个 Fitbit 吗？
 
-> 原文:[https://life hacker . com/do-you-even-use-that-fitbit-you-get-year-1821598864](https://lifehacker.com/did-you-ever-use-that-fitbit-you-got-last-year-1821598864)
+> 原文：<https://lifehacker.com/did-you-ever-use-that-fitbit-you-got-last-year-1821598864>
 
 我曾经有一个活动跟踪器。我戴了几个月，然后就厌倦了，现在也不知道在哪里了。(可能在我家的某个地方，跟踪我的梳妆台抽屉今天移动了零步。)但如果你真的使用 Fitbits 和它们的同类，它们会是很好的工具。那么，你有吗？
 

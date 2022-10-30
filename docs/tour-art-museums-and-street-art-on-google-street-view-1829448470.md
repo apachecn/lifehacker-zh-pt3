@@ -1,6 +1,6 @@
 # 在谷歌街景上游览艺术博物馆和街头艺术
 
-> 原文:[https://life hacker . com/tour-art-museums-and-street-art-on-Google-street-view-1829448470](https://lifehacker.com/tour-art-museums-and-street-art-on-google-street-view-1829448470)
+> 原文：<https://lifehacker.com/tour-art-museums-and-street-art-on-google-street-view-1829448470>
 
 谷歌多年来一直在谷歌地图的街景中添加建筑物的内部，谷歌艺术与文化(Google Arts & Culture)一直在收集你可以在街景中看到的各种艺术:博物馆、著名建筑、街头艺术和现实生活中已经关闭的艺术展览。以下是谷歌虚拟艺术收藏指南。
 

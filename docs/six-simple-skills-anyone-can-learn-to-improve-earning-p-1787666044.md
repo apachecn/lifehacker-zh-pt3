@@ -1,6 +1,6 @@
 # 任何人都可以学会的提高收入潜力的六个简单技巧
 
-> 原文:[https://life hacker . com/six-simple-skills-anywhere-learn-to-improve-earning-p-1787666044](https://lifehacker.com/six-simple-skills-anyone-can-learn-to-improve-earning-p-1787666044)
+> 原文：<https://lifehacker.com/six-simple-skills-anyone-can-learn-to-improve-earning-p-1787666044>
 
 人们为了赚钱而做的各种各样的事情看起来彼此完全不同，就像彩虹中不同的颜色一样，但事实是他们之间有很多相似之处。
 

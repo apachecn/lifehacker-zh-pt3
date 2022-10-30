@@ -1,6 +1,6 @@
 # 不，你不必观看每一集来享受声望电视
 
-> 原文:[https://life hacker . com/no-you-dont-to-watch-every-episode-enjoy-prest-1796844172](https://lifehacker.com/no-you-dont-have-to-watch-every-episode-to-enjoy-prest-1796844172)
+> 原文：<https://lifehacker.com/no-you-dont-have-to-watch-every-episode-to-enjoy-prest-1796844172>
 
 [知名电视节目](https://www.nytimes.com/2017/07/11/arts/television/skip-tv-shows-essay.html) 可以跳过几集——或者整季，T4《纽约时报》电视评论家詹姆斯·波尼沃兹克说，这是《生活黑客》在五月 大胆采取的立场。他引用了同为评论家的艾伦·塞平沃尔的话，他厌倦了困扰 Peak TV 的的“好现象”。即使是拿着钱看电视的评论家，也不想费力地看完好节目的糟糕片段。你为什么要？
 

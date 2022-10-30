@@ -1,6 +1,6 @@
 # 使用 Paste 2 保存您在 iOS 和 macOS 上复制的所有内容
 
-> 原文:[https://life hacker . com/save-everything-you-copy-on-IOs-and-MAC OS-with-paste-2-1827475594](https://lifehacker.com/save-everything-you-copy-on-ios-and-macos-with-paste-2-1827475594)
+> 原文：<https://lifehacker.com/save-everything-you-copy-on-ios-and-macos-with-paste-2-1827475594>
 
 **Mac:** 在更新 [Lifehacker 的 2018](https://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836)Mac 包时，一些读者注意到我这次没有包含任何剪贴板管理应用。这不是针对个人的；我认为还有其他更有趣的应用程序。
 

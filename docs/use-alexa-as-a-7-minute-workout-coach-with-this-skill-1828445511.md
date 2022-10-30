@@ -1,6 +1,6 @@
 # 使用 Alexa 作为一个' 7 分钟锻炼'蔻驰与此技能
 
-> 原文:[https://life hacker . com/use-Alexa-as-a-7-minute-workout-coach-with the-skill-1828445511](https://lifehacker.com/use-alexa-as-a-7-minute-workout-coach-with-this-skill-1828445511)
+> 原文：<https://lifehacker.com/use-alexa-as-a-7-minute-workout-coach-with-this-skill-1828445511>
 
 白天找时间健身有时会有点…复杂。如果你时间紧迫，但仍想锻炼一下，Alexa 可以通过 Alexa 的 7 分钟锻炼技能t .
 

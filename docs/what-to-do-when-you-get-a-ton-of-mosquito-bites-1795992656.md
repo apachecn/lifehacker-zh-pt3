@@ -1,6 +1,6 @@
 # 当你被蚊子咬了一顿时该怎么办
 
-> 原文:[https://life hacker . com/1795992656](https://lifehacker.com/what-to-do-when-you-get-a-ton-of-mosquito-bites-1795992656)
+> 原文：<https://lifehacker.com/what-to-do-when-you-get-a-ton-of-mosquito-bites-1795992656>
 
 我爸爸喜欢讲我五岁时我们全家去海滩度假的故事。我们住在北卡罗来纳州，起了个大早开车去海边，大约有四个小时的路程。随着故事的发展，我筋疲力尽的父亲看着我，心想:“哇，对于一个 5 岁的孩子来说，她的腿已经开始长毛了。”当他走近一看；然而，他意识到我的腿上实际上从上到下爬满了蚊子，而不是头发。
 

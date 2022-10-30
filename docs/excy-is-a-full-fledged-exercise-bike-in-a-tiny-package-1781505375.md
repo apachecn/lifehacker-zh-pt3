@@ -1,6 +1,6 @@
 # Excy 是一款功能齐全的小型健身车
 
-> 原文:[https://life hacker . com/excy-is-a-fully-edged-exercise-bike-in-a-tiny-package-1781505375](https://lifehacker.com/excy-is-a-full-fledged-exercise-bike-in-a-tiny-package-1781505375)
+> 原文：<https://lifehacker.com/excy-is-a-full-fledged-exercise-bike-in-a-tiny-package-1781505375>
 
 这辆折叠式健身车可以锻炼你的胳膊或腿。它足够坚固，适合严肃的训练，价格可与全尺寸设备媲美。当你完成后，虽然，它几乎不占用空间。Excy 就像一个有礼貌的房客:当你忙的时候，它不会打扰你，但当你忙的时候，它会随时为你提供乐趣。
 

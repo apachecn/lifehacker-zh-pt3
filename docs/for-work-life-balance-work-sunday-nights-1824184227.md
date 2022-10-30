@@ -1,6 +1,6 @@
 # 为了平衡工作和生活，周日晚上工作
 
-> 原文:[https://life hacker . com/for-work-life-balance-work-Sunday-nights-1824184227](https://lifehacker.com/for-work-life-balance-work-sunday-nights-1824184227)
+> 原文：<https://lifehacker.com/for-work-life-balance-work-sunday-nights-1824184227>
 
 当你周五晚上回家时，你整个周末都在为工作而紧张吗？你最后会工作以避免周一早上被淹没吗？这里有一个大胆的想法:养成每周日晚上工作的习惯。
 

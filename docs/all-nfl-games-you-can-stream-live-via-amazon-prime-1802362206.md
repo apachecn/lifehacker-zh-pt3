@@ -1,6 +1,6 @@
 # 你可以通过 Amazon Prime 直播的所有 NFL 比赛
 
-> 原文:[https://life hacker . com/all-NFL-games-you-can-stream-via-Amazon-prime-1802362206](https://lifehacker.com/all-nfl-games-you-can-stream-live-via-amazon-prime-1802362206)
+> 原文：<https://lifehacker.com/all-nfl-games-you-can-stream-live-via-amazon-prime-1802362206>
 
 NFL 本周正式开打。然而，如果你想通过亚马逊观看游戏直播，你需要再等一会儿。亚马逊击败了去年直播比赛的 Twitter，赢得了今年直播周四晚足球赛的权利。据报道，亚马逊支付了 5000 万美元购买了 10 款游戏的流媒体播放权。相比之下，Twitter 去年只花了 1000 万美元做同样的事情。
 

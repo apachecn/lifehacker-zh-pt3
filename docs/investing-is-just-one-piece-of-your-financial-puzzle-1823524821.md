@@ -1,6 +1,6 @@
 # 投资只是你财务难题的一部分
 
-> 原文:[https://life hacker . com/investing-is-just-one-piece-of-your ' s financial-puzzle-1823524821](https://lifehacker.com/investing-is-just-one-piece-of-your-financial-puzzle-1823524821)
+> 原文：<https://lifehacker.com/investing-is-just-one-piece-of-your-financial-puzzle-1823524821>
 
 投资是健康理财生活的重要组成部分。你希望你的钱增值，除了中彩票，投资是最好的方法。但正如《卑微的美元》的编辑乔纳森·克莱门茨在他的 [时事通讯](https://mailchi.mp/jonathanclements/humbledollars-march-newslettermaking-a-difference) 中提醒我们的那样，这几乎不是唯一重要的事情。
 

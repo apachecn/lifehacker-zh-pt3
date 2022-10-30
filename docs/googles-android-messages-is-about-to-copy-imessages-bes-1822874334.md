@@ -1,6 +1,6 @@
 # 谷歌的 Android Messages 即将复制 iMessage 的最佳功能
 
-> 原文:[https://life hacker . com/Google s-Android-messages-is-on-to-copy-imessages-bes-1822874334](https://lifehacker.com/googles-android-messages-is-about-to-copy-imessages-bes-1822874334)
+> 原文：<https://lifehacker.com/googles-android-messages-is-about-to-copy-imessages-bes-1822874334>
 
 我记得谷歌发布了更多的消息应用程序( [Allo](https://lifehacker.com/google-allos-selfie-stickers-are-cool-but-dont-get-too-1795168475) 、Android Messages、Messenger、 [Hangouts](https://lifehacker.com/google-spins-off-hangouts-and-hopes-the-rest-of-us-just-1793132901) 、 [Gchat](https://lifehacker.com/gmail-chat-adds-support-for-embedded-youtube-google-vi-5137120) ，不胜枚举)，但该公司从未能推出一项服务，能像 iMessage 在 iOS 和 Mac 设备上那样，在所有平台上轻松处理你的消息。现在，谷歌可能终于通过复制苹果最优秀的功能之一找到了答案:桌面短信。
 

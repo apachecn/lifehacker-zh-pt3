@@ -1,6 +1,6 @@
 # 如何自定义 Windows 为每个应用程序使用扬声器还是耳机
 
-> 原文:[https://life hacker . com/how-to-customize-if-windows-uses-speakers-or-headp-1826083404](https://lifehacker.com/how-to-customize-whether-windows-uses-speakers-or-headp-1826083404)
+> 原文：<https://lifehacker.com/how-to-customize-whether-windows-uses-speakers-or-headp-1826083404>
 
 对于你们中的许多人来说，一对扬声器或耳机可能就是你的台式机或笔记本电脑系统所需要的全部。对于其他人来说，摇滚、游戏和听电影是一场与 Windows 的持续战斗，争夺操作系统应该使用哪种连接的音频设备来消除噪音。
 

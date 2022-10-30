@@ -1,6 +1,6 @@
 # 如何在世界献血者日找到最近的献血活动
 
-> 原文:[https://life hacker . com/how-to-find the nearest-blood-drive-on-world-blood-dono-1826801294](https://lifehacker.com/how-to-find-the-nearest-blood-drive-on-world-blood-dono-1826801294)
+> 原文：<https://lifehacker.com/how-to-find-the-nearest-blood-drive-on-world-blood-dono-1826801294>
 
 每年的 6 月 14 日，世界各地的人们都会献血以纪念 [世界献血者日](http://www.who.int/campaigns/world-blood-donor-day/2018) ，这是一个提高对血液需求的认识并感谢所有自愿献血者的庆典。
 

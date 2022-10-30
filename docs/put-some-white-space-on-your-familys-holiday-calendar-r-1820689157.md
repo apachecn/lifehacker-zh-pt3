@@ -1,6 +1,6 @@
 # 现在就在你家人的假日日历上留点空白
 
-> 原文:[https://life hacker . com/put-some-white-space-on-your-familys-holiday-calendar-r-1820689157](https://lifehacker.com/put-some-white-space-on-your-familys-holiday-calendar-r-1820689157)
+> 原文：<https://lifehacker.com/put-some-white-space-on-your-familys-holiday-calendar-r-1820689157>
 
 假日请柬蜂拥而至。胡桃夹子来了。和邻居一起参加的那个无聊的聚会。难看的毛衣。你孩子的篮球队聚餐。与圣诞老人共进早餐。该死，你忘了米尔德里德阿姨的姜饼屋制作车间吗？
 

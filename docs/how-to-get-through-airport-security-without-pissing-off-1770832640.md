@@ -1,6 +1,6 @@
 # 如何通过机场安检而不惹恼其他排队的人
 
-> 原文:[https://life hacker . com/how-to-get-through-airport-security-without-godding-off-1770832640](https://lifehacker.com/how-to-get-through-airport-security-without-pissing-off-1770832640)
+> 原文：<https://lifehacker.com/how-to-get-through-airport-security-without-pissing-off-1770832640>
 
 旅行可能会失去人性，这就是为什么当你艰难地通过机场安检时，做最好的人是很重要的。即使你不能让被驱赶和审视的经历变得有趣，你也可以采取简单的措施来至少避免增加不愉快。
 

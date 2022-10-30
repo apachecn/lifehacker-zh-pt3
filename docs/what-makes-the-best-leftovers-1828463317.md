@@ -1,6 +1,6 @@
 # 什么是最好的剩菜？
 
-> 原文:[https://life hacker . com/what-makes-the-best-lefts-1828463317](https://lifehacker.com/what-makes-the-best-leftovers-1828463317)
+> 原文：<https://lifehacker.com/what-makes-the-best-leftovers-1828463317>
 
 在学校的时候，我并没有从单餐的角度去考虑餐厅的食物。我总是试着点一些我能在以后的饭菜中吃的菜，因为像大多数大学生一样，我有点穷。任何一道菜成为未来美食的能力都有很多因素。
 

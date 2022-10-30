@@ -1,6 +1,6 @@
 # 如何限制 YouTube 儿童只能播放人类认可的频道
 
-> 原文:[https://life hacker . com/how-to-limit-YouTube-kids-to-play-only-human-approved-c-1825568611](https://lifehacker.com/how-to-limit-youtube-kids-to-play-only-human-approved-c-1825568611)
+> 原文：<https://lifehacker.com/how-to-limit-youtube-kids-to-play-only-human-approved-c-1825568611>
 
 YouTube Kids 遇到了一些问题，不合适的，令人不安的，有时甚至是完全可怕的内容逃过了为保护年轻观众安全而创建的算法。粉红猪小妹喝漂白剂的视频。米奇在海滩上剪掉女孩的比基尼上衣。 [阴谋论](http://www.businessinsider.com/youtube-suggested-conspiracy-videos-to-children-using-its-kids-app-2018-3?r=UK&IR=T) 宣称登月是一场骗局。当然，有一些工具可以屏蔽某些频道并关闭搜索功能，但家长们通常对这款应用的“抢包”性质保持警惕 [。](https://www.commonsensemedia.org/app-reviews/youtube-kids/user-reviews/adult) 
 

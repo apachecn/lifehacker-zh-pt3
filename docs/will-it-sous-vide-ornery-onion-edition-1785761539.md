@@ -1,6 +1,6 @@
 # 它会腐烂吗？洋葱版
 
-> 原文:[https://life hacker . com/will-it-sous-vide-ornery-onion-edition-1785761539](https://lifehacker.com/will-it-sous-vide-ornery-onion-edition-1785761539)
+> 原文：<https://lifehacker.com/will-it-sous-vide-ornery-onion-edition-1785761539>
 
 大家好，欢迎收看*的第一集。每周一期的专栏，在这里我收藏你想要我收藏的任何东西。本周最受欢迎的建议是洋葱，特别是焦糖洋葱。* 
 

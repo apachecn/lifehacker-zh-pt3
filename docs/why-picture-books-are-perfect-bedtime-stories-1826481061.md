@@ -1,6 +1,6 @@
 # 为什么绘本是完美的睡前故事
 
-> 原文:[https://life hacker . com/why-绘本-完美-睡前故事-1826481061](https://lifehacker.com/why-picture-books-are-perfect-bedtime-stories-1826481061)
+> 原文：<https://lifehacker.com/why-picture-books-are-perfect-bedtime-stories-1826481061>
 
 是时候让小家伙睡觉了。你是做什么的？放上有声书，给他们读一个有趣味图片的睡前故事，或者打开一些动画片？一项新的研究表明，古老的带插图的睡前故事最有利于开发孩子的大脑。
 

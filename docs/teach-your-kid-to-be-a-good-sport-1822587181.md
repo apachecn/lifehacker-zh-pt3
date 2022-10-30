@@ -1,6 +1,6 @@
 # 教育你的孩子成为一名优秀的运动员
 
-> 原文:[https://life hacker . com/teach-your-kid-to-be-a-good-sport-1822587181](https://lifehacker.com/teach-your-kid-to-be-a-good-sport-1822587181)
+> 原文：<https://lifehacker.com/teach-your-kid-to-be-a-good-sport-1822587181>
 
 每个有孩子爱好竞技的人都知道这种类型:对裁判的每一个判罚提出异议的男孩，在场外破口大骂的家长，在自己的球队输了之后几乎不能和自己握手的女孩。参加体育运动和游戏对孩子的发展非常有价值:他们学习团队合作、策略、耐心，并得到锻炼。但是，当孩子们不能正确看待输赢时——当失败是毁灭性的，或者胜利是不恰当的幸灾乐祸的原因时，事情就会变得糟糕。
 

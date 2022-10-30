@@ -1,6 +1,6 @@
 # 关于 VPN 的最大误解
 
-> 原文:[https://life hacker . com/the-biggest-misconcepts-about-VPN-1794038237](https://lifehacker.com/the-biggest-misconceptions-about-vpns-1794038237)
+> 原文：<https://lifehacker.com/the-biggest-misconceptions-about-vpns-1794038237>
 
 你听说了吗？ [互联网服务提供商想要出售你的数据](https://lifehacker.com/senate-votes-to-let-internet-providers-sell-your-web-hi-1793574677) 和一个 [虚拟专用网络(VPN)是告诉他们滚蛋的最好方式](https://lifehacker.com/why-is-everyone-talking-about-vpns-1793768312) 。但是有一个问题。VPN 是出了名的可疑，比它们看起来更复杂，它们不受监管，如果你不正确设置它们，可能比它们的价值更有安全风险。
 

@@ -1,6 +1,6 @@
 # 在你的速溶锅里制作四种口味的芝士蛋糕样品
 
-> 原文:[https://life hacker . com/make-a-four-flavor-cheese cake-sampler-in-your-instant-p-1822396556](https://lifehacker.com/make-a-four-flavor-cheesecake-sampler-in-your-instant-p-1822396556)
+> 原文：<https://lifehacker.com/make-a-four-flavor-cheesecake-sampler-in-your-instant-p-1822396556>
 
 有充分的证据表明，压力烹饪的奶酪蛋糕是速溶锅有史以来最伟大的技巧，但这种食谱通常仅限于一种口味。在这里，通过巧妙使用小罐子，我们将为那些害怕风味承诺的人制作一个完美的芝士蛋糕*取样器*。
 

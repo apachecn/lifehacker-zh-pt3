@@ -1,6 +1,6 @@
 # Krispy Kreme 在万圣节发放免费甜甜圈
 
-> 原文:[https://life hacker . com/krispy-kreme-is-giving-out-of-free-doughnuts-on-Halloween-1819969903](https://lifehacker.com/krispy-kreme-is-giving-out-free-doughnuts-on-halloween-1819969903)
+> 原文：<https://lifehacker.com/krispy-kreme-is-giving-out-free-doughnuts-on-halloween-1819969903>
 
 上周我们告诉了你在万圣节 墨西哥卷饼店分发 3 美元的墨西哥卷饼。现在，你可以在墨西哥卷饼午餐后吃一份免费的甜甜圈甜点。(谁还需要糖果来吹你明天的热量预算！)
 

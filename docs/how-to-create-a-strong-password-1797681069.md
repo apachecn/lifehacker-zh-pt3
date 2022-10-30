@@ -1,6 +1,6 @@
 # 如何创建强密码
 
-> 原文:[https://life hacker . com/how-to-create-a-strong-password-1797681069](https://lifehacker.com/how-to-create-a-strong-password-1797681069)
+> 原文：<https://lifehacker.com/how-to-create-a-strong-password-1797681069>
 
 美国政府最近修改了其密码建议，放弃了选择一个最喜欢的短语并用符号代替几个字符的做法，比如 c4tlo^eR.这些短而难读的密码对人类来说看起来很复杂，但对计算机来说非常非常简单。
 

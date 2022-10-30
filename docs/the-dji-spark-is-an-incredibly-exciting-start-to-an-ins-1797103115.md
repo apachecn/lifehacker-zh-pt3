@@ -1,6 +1,6 @@
 # DJI 火花是一个令人难以置信的令人兴奋的疯狂未来的开始
 
-> 原文:[https://gizmodo . com/the-DJI-spark-is-a-exceible-excited-start-to-an-ins-1797103115](https://gizmodo.com/the-dji-spark-is-an-incredibly-exciting-start-to-an-ins-1797103115)
+> 原文：<https://gizmodo.com/the-dji-spark-is-an-incredibly-exciting-start-to-an-ins-1797103115>
 
 小型无人机并不新鲜。玩具大小的四轴飞行器已经上市多年，以相对合理的价格和不太专业的知识帮助孩子(和爸爸)开始飞行。然而，小型无人机几乎可以做大型无人机能做的任何事情？那是新的。这就是为什么 DJI 火花如此激动人心。
 

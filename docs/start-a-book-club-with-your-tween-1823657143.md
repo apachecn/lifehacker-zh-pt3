@@ -1,6 +1,6 @@
 # 和你的孩子成立一个读书俱乐部
 
-> 原文:[https://life hacker . com/start-a-book-club-with-your-tween-1823657143](https://lifehacker.com/start-a-book-club-with-your-tween-1823657143)
+> 原文：<https://lifehacker.com/start-a-book-club-with-your-tween-1823657143>
 
 我不想停下来。
 

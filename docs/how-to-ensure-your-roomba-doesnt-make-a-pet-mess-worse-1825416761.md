@@ -1,6 +1,6 @@
 # 如何确保你的 Roomba 不会让宠物变得更糟糕
 
-> 原文:[https://life hacker . com/how-to-assure-your-roomba-not-make-a-pet-mess-worse-1825416761](https://lifehacker.com/how-to-ensure-your-roomba-doesnt-make-a-pet-mess-worse-1825416761)
+> 原文：<https://lifehacker.com/how-to-ensure-your-roomba-doesnt-make-a-pet-mess-worse-1825416761>
 
 如果你有宠物，你知道它们会制造混乱。有些脏东西可以用你的 Roomba 吸尘器清理，有些脏东西如果被机器人吸尘器吃了，会造成绝对的灾难。你知道我在说什么。(我说的是便便。)
 

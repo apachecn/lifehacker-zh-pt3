@@ -1,6 +1,6 @@
 # 喝这种椰子水鸡尾酒的时候补充水分
 
-> 原文:[https://life hacker . com/hydrate-while-you-living-with the-cock ta-1827398711](https://lifehacker.com/hydrate-while-you-imbibe-with-this-coconut-water-cockta-1827398711)
+> 原文：<https://lifehacker.com/hydrate-while-you-imbibe-with-this-coconut-water-cockta-1827398711>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将通过椰子汁为我们的饮料添加水合作用和一点热带风情。
 

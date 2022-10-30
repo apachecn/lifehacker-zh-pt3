@@ -1,6 +1,6 @@
 # 烤奶油是新的棕色黄油
 
-> 原文:[https://life hacker . com/toast-cream-is-the-new-brown-butter-1822132328](https://lifehacker.com/toasted-cream-is-the-new-brown-butter-1822132328)
+> 原文：<https://lifehacker.com/toasted-cream-is-the-new-brown-butter-1822132328>
 
 非酶褐变给了我们很多礼物。一条面包上的面包皮，褐色洋葱的浓郁鲜味，褐色黄油的奇异坚果——所有这些东西都是它们自身更深刻、更美味的版本。你可能已经烘烤黄油有一段时间了，但是严肃食品店的好心人已经想出了如何给*奶油*同样的待遇，并带来美味的结果。
 

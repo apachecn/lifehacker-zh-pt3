@@ -1,6 +1,6 @@
 # 飞利浦 Hue 调光器套件是房东友好的，为任何家庭增加可调光灯
 
-> 原文:[https://life hacker . com/the-Philips-hue-dimmer-kit-is-房东友好-adds-d-1790369621](https://lifehacker.com/the-philips-hue-dimmer-kit-is-landlord-friendly-adds-d-1790369621)
+> 原文：<https://lifehacker.com/the-philips-hue-dimmer-kit-is-landlord-friendly-adds-d-1790369621>
 
 我想在我的公寓里安装可调光的灯，但是像大多数人一样，我的租约不允许我乱动电器。我以为我卡住了，直到我发现了飞利浦色调调光开关[。它很便宜，只需很少的设置就能让你瞬间变暗，并为未来更酷的智能家居设备敞开大门。](https://www.amazon.com/Philips-455386-Hue-Wireless-Dimming/dp/B016AEHU70/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-philips-hue-dimmer-kit-is-landlord-friendly-adds-d-1790369621&asc_source=&ie=UTF8&keywords=philips hue dimmer switch&qid=1482282491&sr=8-1&tag=kinjalifehackerlink-20)
 

@@ -1,6 +1,6 @@
 # 命运世界入门指南
 
-> 原文:[https://kotaku . com/a-初学者-命运世界指南-1800013915](https://kotaku.com/a-beginner-s-guide-to-the-world-of-destiny-1800013915)
+> 原文：<https://kotaku.com/a-beginner-s-guide-to-the-world-of-destiny-1800013915>
 
 所以你想玩*命运 2* 但是对第一局有点模糊？别担心，我抓住你了。
 

@@ -1,6 +1,6 @@
 # 克莉茜·泰根破解了 DIY 墨西哥胡椒薯条的密码
 
-> 原文:[https://life hacker . com/chrissy-teigen-has-crack-the-code-for-DIY-jalapeno-ch-1821918995](https://lifehacker.com/chrissy-teigen-has-cracked-the-code-for-diy-jalapeno-ch-1821918995)
+> 原文：<https://lifehacker.com/chrissy-teigen-has-cracked-the-code-for-diy-jalapeno-ch-1821918995>
 
 克莉茜·泰根擅长美食，尤其是令人垂涎三尺的美味佳肴。这就说得通了，她会破解——至少对我来说——最令人渴望的薯片口味之一:墨西哥胡椒。
 

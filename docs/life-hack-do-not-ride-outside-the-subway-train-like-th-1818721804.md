@@ -1,6 +1,6 @@
 # 生活帮:不要像这个家伙一样坐地铁
 
-> 原文:[https://jalopnik . com/life-hack-do-not-ride-out-of-subway-train-like-th-1818721804](https://jalopnik.com/life-hack-do-not-ride-outside-the-subway-train-like-th-1818721804)
+> 原文：<https://jalopnik.com/life-hack-do-not-ride-outside-the-subway-train-like-th-1818721804>
 
 如果你在纽约市乘坐地铁足够长的时间，你一定会看到乘客在中途在车厢之间移动。我，我做不到。太害怕了。但是这个呢？你在上面看到了什么？我是说，该死的。上周末，这段视频显示，一名男子显然以一种非常非传统的方式乘坐地铁——当列车快速穿过隧道时，他紧紧抓住车门。
 

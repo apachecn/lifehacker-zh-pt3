@@ -1,6 +1,6 @@
 # 大麻可能会让你的失眠更严重，而不是更好
 
-> 原文:[https://life hacker . com/大麻-可能使你的失眠更糟-而不是更好-1818522808](https://lifehacker.com/cannabis-may-make-your-insomnia-worse-not-better-1818522808)
+> 原文：<https://lifehacker.com/cannabis-may-make-your-insomnia-worse-not-better-1818522808>
 
 大麻帮助许多人入睡，但这种短期的好处并不总是转化为长期使用。一项新的研究支持这样一个观点:如果你每天服用大麻 ，你可能无法睡个好觉。
 

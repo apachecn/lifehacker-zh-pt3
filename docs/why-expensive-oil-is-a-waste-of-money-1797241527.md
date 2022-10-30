@@ -1,6 +1,6 @@
 # 为什么昂贵的石油是浪费金钱
 
-> 原文:[https://jalopnik . com/why-highly-oil-is-waste-of-money-1797241527](https://jalopnik.com/why-expensive-oil-is-a-waste-of-money-1797241527)
+> 原文：<https://jalopnik.com/why-expensive-oil-is-a-waste-of-money-1797241527>
 
 [黑石实验室](https://www.blackstone-labs.com/) 分析用过的机油成分，检查发动机随着时间推移的磨损情况。本月早些时候，该实验室利用其庞大的废油分析数据库来研究某些品牌的机油是否含有更多的金属磨损颗粒；结果可能会让你在花钱购买高性能赛车油之前三思而行。
 

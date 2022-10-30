@@ -1,6 +1,6 @@
 # 我们应该如何腌制我们的圣诞鹅？
 
-> 原文:[https://life hacker . com/how-should-we-sous-vide-our-Christmas-goose-1820932881](https://lifehacker.com/how-should-we-sous-vide-our-christmas-goose-1820932881)
+> 原文：<https://lifehacker.com/how-should-we-sous-vide-our-christmas-goose-1820932881>
 
 好消息，各位:我为我们订购了一只圣诞鹅。这意味着你不会帮我挑选我们为圣诞节准备的东西，但是你可以帮助决定我们如何准备。
 

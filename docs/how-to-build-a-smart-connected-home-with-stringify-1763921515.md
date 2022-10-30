@@ -1,6 +1,6 @@
 # 如何用 Stringify 打造智能互联家居
 
-> 原文:[https://life hacker . com/how-to-build-a-smart-connected-home-with-stringify-1763921515](https://lifehacker.com/how-to-build-a-smart-connected-home-with-stringify-1763921515)
+> 原文：<https://lifehacker.com/how-to-build-a-smart-connected-home-with-stringify-1763921515>
 
 投资智能互联设备(如 Wi-FI 变色灯泡、可上网的电源板和 Fitbits 等可穿戴设备)的问题是，你需要一打应用程序来满足所有需求。 [Stringify](https://www.stringify.com/the-app/) 是一个 iPhone 应用程序(Android 即将推出)，它将所有这些连接在一起。想象一下:用一个应用程序来管理它们，用一个应用程序来自动化它们。下面是如何设置它。
 

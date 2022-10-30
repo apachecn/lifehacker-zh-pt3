@@ -1,6 +1,6 @@
 # 2018 年 7 月 9 日这一周，网飞发生了什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-9-1827282213](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-9-1827282213)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-9-1827282213>
 
 如果你痴迷于 MSNBC 的《禁闭》系列，这是完成*州立监狱:第一集*(7 月 15 日离开)的一周，以便为*延长逗留:第一集*(7 月 9 日到达)腾出空间。
 

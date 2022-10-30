@@ -1,6 +1,6 @@
 # 小心那些在合同签订后说他们为你的交易“支付过高”的交易商
 
-> 原文:[https://jalopnik . com/当心那些说自己出价过高的经销商 tr-1826191909](https://jalopnik.com/watch-out-for-dealers-who-say-they-overpaid-for-your-tr-1826191909)
+> 原文：<https://jalopnik.com/watch-out-for-dealers-who-say-they-overpaid-for-your-tr-1826191909>
 
 你会希望在你签署销售合同后，你不会再被经销商打扰。不幸的是，一些经销商会声称他们为您的 [折价交易“多付了钱”,试图从您身上榨取更多的钱。](https://jalopnik.com/should-i-trade-in-my-car-or-sell-it-privately-1691566036) 这是铺位。
 

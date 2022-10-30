@@ -1,6 +1,6 @@
 # 如何开始厄休拉·K·勒·古恩的写作
 
-> 原文:[https://life hacker . com/how-to-get-started-with-ursula-k-le-guins-writing-1822374557](https://lifehacker.com/how-to-get-started-with-ursula-k-le-guins-writing-1822374557)
+> 原文：<https://lifehacker.com/how-to-get-started-with-ursula-k-le-guins-writing-1822374557>
 
 作家兼散文家厄休拉·K·勒·古恩昨天去世，享年 88 岁，此前他完成了大量的小说、散文、短篇小说和诗集。(当你访问她的网站时，主要头衔 的 [列表长达三页。)](http://www.ursulakleguin.com/MajorTitles.pdf) 
 

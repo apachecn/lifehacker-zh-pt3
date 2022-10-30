@@ -1,6 +1,6 @@
 # 把吃剩的肯德基变成荒谬的炸鸡沙拉
 
-> 原文:[https://the take out . com/turn-left-KFC-into-a-pseudo-fried-chicken-sal-1825293052](https://thetakeout.com/turn-leftover-kfc-into-a-preposterous-fried-chicken-sal-1825293052)
+> 原文：<https://thetakeout.com/turn-leftover-kfc-into-a-preposterous-fried-chicken-sal-1825293052>
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 

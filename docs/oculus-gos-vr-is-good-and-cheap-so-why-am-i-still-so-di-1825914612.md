@@ -1,6 +1,6 @@
 # Oculus Go 的 VR 又好又便宜，为什么我还是很失望？
 
-> 原文:[https://gizmodo . com/oculus-gos-VR-is-good-and-cheap-so-why-am-I-still-so-di-1825914612](https://gizmodo.com/oculus-gos-vr-is-good-and-cheap-so-why-am-i-still-so-di-1825914612)
+> 原文：<https://gizmodo.com/oculus-gos-vr-is-good-and-cheap-so-why-am-i-still-so-di-1825914612>
 
 我正站在起居室的中央，但我看到的是一艘船的甲板。我可以听到我真正的狗在我推靠在墙上的沙发上拉屎，这样我就可以转动我的头来探索我的虚拟环境。他被绑在脸上的 [Oculus Go](https://www.oculus.com/go/) 遮住了。我在客厅里向前迈了一步，叹了口气，甲板上什么也没发生。我曾希望该公司会利用其第一款便携式耳机从基于智能手机的虚拟现实竞争中脱颖而出——这种竞争提供了一种类似的体验，即根据你的高端智能手机设计廉价耳机。问题是，Oculus Go 并没有真正坚持着陆。
 

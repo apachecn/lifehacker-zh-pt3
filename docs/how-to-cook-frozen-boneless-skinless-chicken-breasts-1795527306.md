@@ -1,6 +1,6 @@
 # 如何烹饪冷冻、去骨、去皮的鸡胸肉而不解冻
 
-> 原文:[https://life hacker . com/how-to-cook-冷冻无骨无皮鸡胸肉-1795527306](https://lifehacker.com/how-to-cook-frozen-boneless-skinless-chicken-breasts-1795527306)
+> 原文：<https://lifehacker.com/how-to-cook-frozen-boneless-skinless-chicken-breasts-1795527306>
 
 冷冻的、去骨的、去皮的鸡胸肉可能不是市场上最性感的一块肉，但不可否认它们的便利性和可负担性。虽然它们本身缺乏活力，但你可以毫不费力地让它们活跃起来。老实说，我最大的鸡肉挑战从来不是让它们尝起来好吃，而是记得在我打算烹饪它们的前一天晚上把它们从冰箱里拿出来。
 

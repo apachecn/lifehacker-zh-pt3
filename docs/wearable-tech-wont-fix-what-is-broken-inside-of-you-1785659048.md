@@ -1,6 +1,6 @@
 # 可穿戴技术不会修复你内心的创伤
 
-> 原文:[https://deadspin . com/wearable-tech-wot-fix-what-inside-of-breaked-you-1785659048](https://deadspin.com/wearable-tech-wont-fix-what-is-broken-inside-of-you-1785659048)
+> 原文：<https://deadspin.com/wearable-tech-wont-fix-what-is-broken-inside-of-you-1785659048>
 
 从前，受 [Kinja Deals](http://deals.kinja.com/) 的好作品启发，我买了一个叫 Lumo Lift 的东西。这是一种可穿戴技术。据我所知，FitBit 既是一种独特的可穿戴技术，也是这类东西(fit bit)的通用商标。就我而言，当我穿着 Lumo Lift 时，我穿的是 fit bit。我加入了 fit bitters。
 

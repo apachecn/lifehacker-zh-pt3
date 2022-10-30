@@ -1,6 +1,6 @@
 # 通过与酒店酒保聊天，找到当地很棒的酒吧
 
-> 原文:[https://life hacker . com/find-great-local-bar-by-chatting-with-the-hotel-barten-1822175040](https://lifehacker.com/find-great-local-bars-by-chatting-with-the-hotel-barten-1822175040)
+> 原文：<https://lifehacker.com/find-great-local-bars-by-chatting-with-the-hotel-barten-1822175040>
 
 你正在访问一个新的城市，你想找到一个不错的酒吧，在那里你可以喝一杯像样的酒。你先去哪里？当然，关闭 Yelp 应用程序，点击酒店酒吧。原因如下。
 

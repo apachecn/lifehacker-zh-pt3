@@ -1,6 +1,6 @@
 # 你正处于俯卧撑挑战的最后阶段
 
-> 原文:[https://life hacker . com/you-in-the-home stretch of-the-push-up-challenge-1823203012](https://lifehacker.com/youre-in-the-homestretch-of-the-push-up-challenge-1823203012)
+> 原文：<https://lifehacker.com/youre-in-the-homestretch-of-the-push-up-challenge-1823203012>
 
 再过一周， [二月俯卧撑挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 就要结束了，我们可以互相交流一下这一个月的经历。因此，这里有一个进入最后冲刺阶段的检查线程:进展如何？你准备好了吗？
 

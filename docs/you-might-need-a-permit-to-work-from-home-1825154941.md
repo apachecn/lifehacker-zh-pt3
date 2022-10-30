@@ -1,6 +1,6 @@
 # 在家工作可能需要许可证
 
-> 原文:[https://life hacker . com/you-may-need-a-permit-from-home-1825154941](https://lifehacker.com/you-might-need-a-permit-to-work-from-home-1825154941)
+> 原文：<https://lifehacker.com/you-might-need-a-permit-to-work-from-home-1825154941>
 
 去年秋天，我搬到了一个新的城市——今年春天，我得知我需要一个家庭居住许可证才能在我的公寓里做自由职业者。
 

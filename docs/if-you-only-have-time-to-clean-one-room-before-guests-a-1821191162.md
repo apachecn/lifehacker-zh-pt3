@@ -1,6 +1,6 @@
 # 如果客人到来之前你只有时间打扫一个房间，那就把它变成浴室
 
-> 原文:[https://life hacker . com/if-you-only-time-to-clean-a-1821191162](https://lifehacker.com/if-you-only-have-time-to-clean-one-room-before-guests-a-1821191162)
+> 原文：<https://lifehacker.com/if-you-only-have-time-to-clean-one-room-before-guests-a-1821191162>
 
 如果你有客人来，而你只有时间打扫一个房间，那就把它变成浴室。
 

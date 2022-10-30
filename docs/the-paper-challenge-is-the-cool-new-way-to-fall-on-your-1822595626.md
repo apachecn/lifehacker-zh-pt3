@@ -1,6 +1,6 @@
 # 纸张挑战是一种很酷的新方式
 
-> 原文:[https://life hacker . com/the-paper-challenge-is-the-cool-new-way-to-fall-on-your-1822595626](https://lifehacker.com/the-paper-challenge-is-the-cool-new-way-to-fall-on-your-1822595626)
+> 原文：<https://lifehacker.com/the-paper-challenge-is-the-cool-new-way-to-fall-on-your-1822595626>
 
 你能从地板上捡起一张纸吗？用你的牙齿？单腿站立的时候？不要只是猜测——你必须*尝试一下*。
 

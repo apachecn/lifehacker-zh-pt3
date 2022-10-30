@@ -1,6 +1,6 @@
 # 如何面对你古怪的朋友
 
-> 原文:[https://life hacker . com/如何面对你的古怪朋友-1796642285](https://lifehacker.com/how-to-confront-your-flaky-friend-1796642285)
+> 原文：<https://lifehacker.com/how-to-confront-your-flaky-friend-1796642285>
 
 制定计划是困难的，尤其是当你和一个慢性高射炮兵一起制定计划的时候。有 [的方法可以委婉地取消计划](http://lifehacker.com/how-to-flake-out-on-someone-gracefully-5919163#_ga=2.176557728.480883058.1499263406-1887250931.1497314809) ，但是如果你一再约好的人没有出现呢？为了节省你的时间和挫败感， [梅尔杂志](https://melmagazine.com/this-is-how-you-confront-a-chronic-flaker-b88f493ef3e2) 给出了一些与古怪的人打交道的建议。
 

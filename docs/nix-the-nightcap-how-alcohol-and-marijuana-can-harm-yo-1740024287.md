@@ -1,6 +1,6 @@
 # Nix 睡前酒:酒精和大麻如何危害你的睡眠
 
-> 原文:[https://life hacker . com/nix-the-night cap-how-the-alcohol-and-大麻-can-harm-yo-1740024287](https://lifehacker.com/nix-the-nightcap-how-alcohol-and-marijuana-can-harm-yo-1740024287)
+> 原文：<https://lifehacker.com/nix-the-nightcap-how-alcohol-and-marijuana-can-harm-yo-1740024287>
 
 “睡帽”有各种形状和大小。有些人喜欢在睡觉前喝一杯，有些人则喜欢美美地吸上一大口。但是，尽管这些睡前饮料可能会帮助你更快入睡，但它们可能不会让你的身心得到真正需要的休息。
 

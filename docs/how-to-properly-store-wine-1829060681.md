@@ -1,6 +1,6 @@
 # 如何正确储存葡萄酒
 
-> 原文:[https://life hacker . com/how-to-rightly-store-wine-1829060681](https://lifehacker.com/how-to-properly-store-wine-1829060681)
+> 原文：<https://lifehacker.com/how-to-properly-store-wine-1829060681>
 
 每当我得到(或购买)一瓶好酒时，我会立即面临这样的问题:这是我现在打算喝的酒，还是我以后想喝的酒。
 

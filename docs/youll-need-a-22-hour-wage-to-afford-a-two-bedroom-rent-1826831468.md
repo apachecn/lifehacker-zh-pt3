@@ -1,6 +1,6 @@
 # 在美国，你需要 22 美元/小时的工资才能租得起两居室。
 
-> 原文:[https://life hacker . com/youll-need-a-22-hour-hour-hour-wage-before-two-bedroom-rent-1826831468](https://lifehacker.com/youll-need-a-22-hour-wage-to-afford-a-two-bedroom-rent-1826831468)
+> 原文：<https://lifehacker.com/youll-need-a-22-hour-wage-to-afford-a-two-bedroom-rent-1826831468>
 
 根据美国国家低收入住房联盟 周三发布的一项研究，在美国没有任何地方，一个挣 7.25 美元联邦最低工资的全职工人可以负担得起一周工作 40 小时的两居室出租公寓。事实上，工人们需要平均每小时挣 22.10 美元才能买得起一套普通的两居室(一居室要 17.90 美元)，而支出不能超过收入的 30%。
 

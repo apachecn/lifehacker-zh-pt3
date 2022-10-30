@@ -1,6 +1,6 @@
 # 消极代表帮助你做你认为不可能的练习
 
-> 原文:[https://life hacker . com/negative-reps-help-you-do-exercises-you-thought-are-im-1787395360](https://lifehacker.com/negative-reps-help-you-do-exercises-you-thought-were-im-1787395360)
+> 原文：<https://lifehacker.com/negative-reps-help-you-do-exercises-you-thought-were-im-1787395360>
 
 如果你不能做俯卧撑，关键可能是暂时忘记把自己推起来。相反，把你自己从俯卧撑的位置放下来——获得更多的好处。同样的技巧也适用于引体向上和其他具有挑战性的练习:这就是“消极”重复的力量
 

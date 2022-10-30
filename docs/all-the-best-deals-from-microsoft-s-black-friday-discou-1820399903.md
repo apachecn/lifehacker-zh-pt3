@@ -1,6 +1,6 @@
 # 微软黑色星期五折扣的所有最佳交易
 
-> 原文:[https://life hacker . com/all-the-best-deals-from-Microsoft-s-black-Friday-discou-1820399903](https://lifehacker.com/all-the-best-deals-from-microsoft-s-black-friday-discou-1820399903)
+> 原文：<https://lifehacker.com/all-the-best-deals-from-microsoft-s-black-friday-discou-1820399903>
 
 [感恩节快到了](https://skillet.lifehacker.com/how-to-make-thanksgiving-dinner-for-a-very-small-crowd-1820310548) ，这意味着 [黑色星期五](https://lifehacker.com/everything-you-need-to-know-about-black-friday-and-cybe-5962841) 也即将来临。如果你一直在等待一个更好的新笔记本电脑或游戏机，现在是浏览交易的时候了。
 

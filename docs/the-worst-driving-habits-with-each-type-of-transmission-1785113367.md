@@ -1,6 +1,6 @@
 # 每种变速器的最差驾驶习惯，解释如下
 
-> 原文:[https://jalopnik . com/the-worst-driving-habits-with-each-type-of-transmission-1785113367](https://jalopnik.com/the-worst-driving-habits-with-each-type-of-transmission-1785113367)
+> 原文：<https://jalopnik.com/the-worst-driving-habits-with-each-type-of-transmission-1785113367>
 
 这里有一个有趣的分类，说明坏习惯是如何损坏你的汽车的，以及它们是如何根据你驾驶的是手动、自动、CVT 还是双离合变速器而变化的。
 

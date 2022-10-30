@@ -1,6 +1,6 @@
 # 为什么孩子不应该过早专攻一项运动
 
-> 原文:[https://life hacker . com/why-kids-should-not-specialize-in-one-sport-too-early-1797954410](https://lifehacker.com/why-kids-shouldnt-specialize-in-one-sport-too-early-1797954410)
+> 原文：<https://lifehacker.com/why-kids-shouldnt-specialize-in-one-sport-too-early-1797954410>
 
 这种事经常发生在父母身上。他们给小埃弗雷特报名了儿童足球队，他很棒。非常好。所以他们把他放在足球夏令营，守门员诊所，每个周末拖着冷却器和草坪椅到全州各地参加他的足球比赛。他们开始幻想大学奖学金和职业合同，甚至幻想他会成为下一个克里斯蒂安·普利西奇。还好他们这么年轻就发现了他的完美运动，对吧？
 

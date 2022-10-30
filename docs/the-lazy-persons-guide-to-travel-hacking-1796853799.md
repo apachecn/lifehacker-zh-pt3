@@ -1,6 +1,6 @@
 # 懒人旅行黑客指南
 
-> 原文:[https://life hacker . com/the-lazy-persons-guide-to-travel-hacking-1796853799](https://lifehacker.com/the-lazy-persons-guide-to-travel-hacking-1796853799)
+> 原文：<https://lifehacker.com/the-lazy-persons-guide-to-travel-hacking-1796853799>
 
 有整个论坛致力于使用信用卡积分在免费旅行、或旅行黑客中获得数千美元的艺术。人们对*很感兴趣，*这让我认为旅行黑客是一种费力的爱好， [就像优惠券](http://twocents.lifehacker.com/how-couponing-and-deal-hunting-actually-make-you-spend-1763655156#_ga=2.60649709.1736478421.1499978006-2012097531.1499978006) ，只有在极端的情况下才会有回报。我错了。旅行黑客很容易。
 

@@ -1,6 +1,6 @@
 # 平面灰色主屏幕
 
-> 原文:[https://lifehacker.com/the-flat-gray-home-screen-1729909756](https://lifehacker.com/the-flat-gray-home-screen-1729909756)
+> 原文：<https://lifehacker.com/the-flat-gray-home-screen-1729909756>
 
 干净的主屏幕是快乐的主屏幕。这种设计让你的手机有条理的大而清晰的小工具，包含你需要的所有基本信息。
 

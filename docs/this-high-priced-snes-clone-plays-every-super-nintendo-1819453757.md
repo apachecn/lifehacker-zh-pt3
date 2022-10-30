@@ -1,6 +1,6 @@
 # 这款高价的 SNES 克隆版可以播放任天堂的每一款高清超级游戏
 
-> 原文:[https://gizmodo . com/this-high-priced-snes-clone-plays-every-super-Nintendo-1819453757](https://gizmodo.com/this-high-priced-snes-clone-plays-every-super-nintendo-1819453757)
+> 原文：<https://gizmodo.com/this-high-priced-snes-clone-plays-every-super-nintendo-1819453757>
 
 最近发布的 [超级任天堂经典版](https://gizmodo.com/snes-classic-is-the-best-way-to-experience-nintendos-go-1818811285) 是重播 21 款你最喜欢的 16 位 SNES 游戏的绝佳方式——但是 [任天堂排除的所有其他经典](https://gizmodo.com/without-chrono-trigger-the-snes-classic-is-just-a-fanc-1796434315) 呢？如果你家里还有一堆旧的超级任天堂手推车，模拟超级 Nt 应该可以让你在几年前升级到的高清电视上欣赏它们。
 

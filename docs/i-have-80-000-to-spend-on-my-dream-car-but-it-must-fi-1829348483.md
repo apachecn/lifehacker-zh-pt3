@@ -1,6 +1,6 @@
 # 我有 80，000 美元可以花在我的梦想汽车上，但它必须适合两个汽车座椅！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-have-80-000 to-spend-on-my dream-car-but-it-must-fi-1829348483](https://jalopnik.com/i-have-80-000-to-spend-on-my-dream-car-but-it-must-fi-1829348483)
+> 原文：<https://jalopnik.com/i-have-80-000-to-spend-on-my-dream-car-but-it-must-fi-1829348483>
 
 迈克尔一直在海外拼命工作，现在他可以买一辆他梦想中的车，享受一些露天驾驶。他有一个相当健康的预算，但问题是这辆车必须能够舒适地容纳两个汽车座椅。他应该买什么车？
 

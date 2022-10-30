@@ -1,6 +1,6 @@
 # 白人对抗白人霸权的 5 种方式
 
-> 原文:[https://www . the root . com/5-ways-white-people-can-fight-white-supreme-1819286547](https://www.theroot.com/5-ways-white-people-can-fight-white-supremacy-1819286547)
+> 原文：<https://www.theroot.com/5-ways-white-people-can-fight-white-supremacy-1819286547>
 
 与普遍的看法相反，并不是作家在*收到的每一封信都是以“你是种族主义者”或“不是所有的白人……”对于每一封讨论美国种族和种族主义的黑人作家收到的仇恨邮件，都有同样多的白人出于善意与我们联系。*
 

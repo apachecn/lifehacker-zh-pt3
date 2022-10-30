@@ -1,6 +1,6 @@
 # 现在如何在 YouTube 上“隐姓埋名”
 
-> 原文:[https://life hacker . com/how-to-go-incognity-in-YouTube-right-now-1826042848](https://lifehacker.com/how-to-go-incognito-in-youtube-right-now-1826042848)
+> 原文：<https://lifehacker.com/how-to-go-incognito-in-youtube-right-now-1826042848>
 
 谷歌知道很多关于你的，其中相当一部分信息来自 YouTube。默认情况下，视频网站会跟踪你观看和搜索的所有内容(包括那次我连续播放了两个小时 的同一个 [泰勒·斯威夫特的视频)，因此它可以推荐更好的视频——当然，还会给你更多相关的广告。](https://www.youtube.com/watch?v=U3do0LuuA9k)
 

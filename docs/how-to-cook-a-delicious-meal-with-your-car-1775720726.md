@@ -1,6 +1,6 @@
 # 如何用你的车做一顿美味的饭
 
-> 原文:[https://jalopnik . com/how-to-cook-a-delicious-meal-food-1775720726](https://jalopnik.com/how-to-cook-a-delicious-meal-with-your-car-1775720726)
+> 原文：<https://jalopnik.com/how-to-cook-a-delicious-meal-with-your-car-1775720726>
 
 你汽车的汽油引擎浪费了三分之二的燃料能量作为热量，那么为什么不利用这些能量来做一顿美味的饭菜呢？又好玩又轻松，你也能做到。
 

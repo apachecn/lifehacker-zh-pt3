@@ -1,6 +1,6 @@
 # 迈阿密桌面热线
 
-> 原文:[https://lifehacker.com/the-hotline-miami-desktop-1729437449](https://lifehacker.com/the-hotline-miami-desktop-1729437449)
+> 原文：<https://lifehacker.com/the-hotline-miami-desktop-1729437449>
 
 你可能记得几周前的[bionicfemme](http://kinja.com/bionicfemme)[earth bound desktop](http://lifehacker.com/the-earthbound-desktop-1721828694)——现在她带着这个令人敬畏的热线 Miami desktop 回来了，它完美地抓住了游戏的主题和感觉，我们忍不住要分享它。她是这样设计的。
 

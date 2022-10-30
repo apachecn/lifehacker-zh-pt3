@@ -1,6 +1,6 @@
 # 招聘经理在你面试时的真实想法
 
-> 原文:[https://life hacker . com/what-a-hiring-manager-is-actually-thinking-in-your-1781906396](https://lifehacker.com/what-a-hiring-manager-is-actually-thinking-during-your-1781906396)
+> 原文：<https://lifehacker.com/what-a-hiring-manager-is-actually-thinking-during-your-1781906396>
 
 无论你已经面试了超过一百万次，还是你已经和招聘经理 面对面 [了多少次，这个过程总是充满压力。你不仅要尽最大努力展现最好的自己，还要努力了解你的听众，尽可能多地收集关于这个角色、公司文化和公司本身的信息。没有压力。](https://www.themuse.com/advice/how-to-think-like-a-hiring-manager-and-land-the-job)
 

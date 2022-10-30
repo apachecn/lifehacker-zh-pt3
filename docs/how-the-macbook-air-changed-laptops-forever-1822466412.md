@@ -1,6 +1,6 @@
 # MacBook Air 如何永远改变了笔记本电脑
 
-> 原文:[https://gizmodo . com/how-the-macbook-air-changed-laptops-forever-1822466412](https://gizmodo.com/how-the-macbook-air-changed-laptops-forever-1822466412)
+> 原文：<https://gizmodo.com/how-the-macbook-air-changed-laptops-forever-1822466412>
 
 当苹果在 2008 年 1 月底推出 MacBook Air 时，它是一个定价过高的设计和技术奇迹。这款笔记本电脑是银色的机械加工铝，最厚的时候只有 0.76 英寸，重量不到 3 磅。在一场不切实际却很有效的台上演示中，史蒂夫·乔布斯揭开了这款价值 1800 美元的电脑的面纱，他将电脑从马尼拉 interoffice 信封中取出，以展示它到底有多纤薄。“MacBook Air 是什么？”他一边在台上踱步一边问道。“一句话，它是世界上最薄的笔记本。”
 

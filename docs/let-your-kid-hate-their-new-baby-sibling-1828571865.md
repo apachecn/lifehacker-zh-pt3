@@ -1,6 +1,6 @@
 # 让你的孩子讨厌他们的新生兄弟姐妹
 
-> 原文:[https://life hacker . com/let-your-kid-hate-they-new-baby-sibling-1828571865](https://lifehacker.com/let-your-kid-hate-their-new-baby-sibling-1828571865)
+> 原文：<https://lifehacker.com/let-your-kid-hate-their-new-baby-sibling-1828571865>
 
 所以，读者们，我怀孕了！晚期妊娠。好家伙。目前身体状态:低慢。我很激动，有点不知所措，感受着所有的感受。
 

@@ -1,6 +1,6 @@
 # 你应该把你的狗换成素食吗？
 
-> 原文:[https://life hacker . com/should-you-switch-you-dog-a-素食-1797663469](https://lifehacker.com/should-you-switch-your-dog-to-a-vegetarian-diet-1797663469)
+> 原文：<https://lifehacker.com/should-you-switch-your-dog-to-a-vegetarian-diet-1797663469>
 
 像人类一样，狗是杂食动物，所以从技术上来说，它们可以吃纯素或素食，有些甚至需要吃纯素或素食来解决健康问题。但是过渡到无肉饮食并不适合每只狗，所以你应该在把你的狗换成无肉饮食之前考虑以下因素。
 

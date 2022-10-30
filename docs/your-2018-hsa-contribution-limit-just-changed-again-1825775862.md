@@ -1,6 +1,6 @@
 # 您的 2018 年 HSA 捐款限额刚刚(再次)更改
 
-> 原文:[https://life hacker . com/your-2018-HSA-contribution-limit-just-changed-again-1825775862](https://lifehacker.com/your-2018-hsa-contribution-limit-just-changed-again-1825775862)
+> 原文：<https://lifehacker.com/your-2018-hsa-contribution-limit-just-changed-again-1825775862>
 
 今年你可以在你的健康储蓄账户(HSA)中存入高达 6900 美元，此前美国国税局(IRS)撤销了三月份做出的上限为 6850 美元的决定(T2)。
 

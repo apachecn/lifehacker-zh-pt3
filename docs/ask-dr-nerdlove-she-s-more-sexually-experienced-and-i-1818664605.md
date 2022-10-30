@@ -1,6 +1,6 @@
 # 去问 NerdLove 博士:她更有性经验，这让我很害怕
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-she-s-more-sex-experied-and-I-1818664605](https://kotaku.com/ask-dr-nerdlove-she-s-more-sexually-experienced-and-i-1818664605)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-she-s-more-sexually-experienced-and-i-1818664605>
 
 你好所有你飞奔的性黄鼠狼，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，这是唯一一个拥有超级 FX 芯片和爆炸处理的约会建议专栏。
 

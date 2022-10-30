@@ -1,6 +1,6 @@
 # 如何观看 2018 艾美奖颁奖典礼
 
-> 原文:[https://life hacker . com/how-to-watch-the-2018-Emmy-awards-1829095530](https://lifehacker.com/how-to-watch-the-2018-emmy-awards-1829095530)
+> 原文：<https://lifehacker.com/how-to-watch-the-2018-emmy-awards-1829095530>
 
 2018 年艾美奖颁奖典礼于周一晚上(9 月 17 日)播出。该活动将在洛杉矶市中心的微软剧院进行现场直播，并将从美国东部时间晚上 8 点【T4 时间】下午 5 点开始在美国东海岸同时直播。
 

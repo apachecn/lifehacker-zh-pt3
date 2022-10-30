@@ -1,6 +1,6 @@
 # 计算共和党的税收法案将如何影响你
 
-> 原文:[https://life hacker . com/calculate-how-the-GOP-tax-bill-will-impact-you-1820958414](https://lifehacker.com/calculate-how-the-gop-tax-bill-will-impact-you-1820958414)
+> 原文：<https://lifehacker.com/calculate-how-the-gop-tax-bill-will-impact-you-1820958414>
 
 周六凌晨，参议院通过了一项新的税收法案，这是美国 30 年来对个人和企业税法的最大一次改写，为银行、开发商、石油行业 以及其他企业利益提供了巨额减税。
 

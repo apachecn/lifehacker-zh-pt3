@@ -1,6 +1,6 @@
 # 把 Goop 的三天“排毒”变成一个现实的(美味的)膳食计划
 
-> 原文:[https://life hacker . com/turn-goop-s-third-day-detox-into-a-realistic-and-tas-1795926742](https://lifehacker.com/turn-goop-s-three-day-detox-into-a-realistic-and-tas-1795926742)
+> 原文：<https://lifehacker.com/turn-goop-s-three-day-detox-into-a-realistic-and-tas-1795926742>
 
 我尽量吃得健康。真的。但是如果我没有提前计划，冰箱里没有健康的食物，我可能会吃任何东西。我就不细说了，只想说有一次，我在赶去教营养课之前，晚餐吃了饼干。我不骄傲。
 

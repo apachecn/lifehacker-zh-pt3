@@ -1,6 +1,6 @@
 # 如何让谷歌浏览器中的标签静音
 
-> 原文:[https://life hacker . com/how-to-mute-tabs-in-Google-chrome-1798506886](https://lifehacker.com/how-to-mute-tabs-in-google-chrome-1798506886)
+> 原文：<https://lifehacker.com/how-to-mute-tabs-in-google-chrome-1798506886>
 
 你最喜欢的科技公司谷歌正在开发一项即将推出的功能，这项功能可能会永远禁止自动播放视频。很快你就能让最糟糕的罪犯永久静音，省去你一遍又一遍寻找静音按钮的头痛。
 

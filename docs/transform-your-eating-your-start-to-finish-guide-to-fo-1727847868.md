@@ -1,6 +1,6 @@
 # 改变你的饮食:全程跟踪你的食物指南
 
-> 原文:[https://life hacker . com/transform-your-eating-your-start-to-finish-guide-to-fo-1727847868](https://lifehacker.com/transform-your-eating-your-start-to-finish-guide-to-fo-1727847868)
+> 原文：<https://lifehacker.com/transform-your-eating-your-start-to-finish-guide-to-fo-1727847868>
 
 上周二的午餐，我吃了一份拌有咖喱碎牛肉的蔬菜炒菜和一份米饭(当然，上面都是 Sriracha)。我能回忆起一周前的这顿饭，因为我每天都记录我的食物。它不仅让我保持在目标的顶端，而且现在当事情从“在控制之下”变成“哦，sh*t”时，我有记录可以查看。
 

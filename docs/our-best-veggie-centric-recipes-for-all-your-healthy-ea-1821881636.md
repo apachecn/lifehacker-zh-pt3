@@ -1,6 +1,6 @@
 # 我们最好的以蔬菜为中心的食谱，满足你所有的健康饮食需求
 
-> 原文:[https://life hacker . com/our-best-veggie-centric-recipes-for-all-your-healthy-ea-1821881636](https://lifehacker.com/our-best-veggie-centric-recipes-for-all-your-healthy-ea-1821881636)
+> 原文：<https://lifehacker.com/our-best-veggie-centric-recipes-for-all-your-healthy-ea-1821881636>
 
 不管你是决心要吃得健康，还是只是有一个普遍的感觉，你的生活需要更多的花椰菜和更少的薯片，这些食谱将帮助你吃得更好。
 

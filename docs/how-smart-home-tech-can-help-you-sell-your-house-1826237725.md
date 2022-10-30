@@ -1,6 +1,6 @@
 # 智能家居技术如何帮助你卖掉房子
 
-> 原文:[https://life hacker . com/how-smart-home-tech-can-help-you-sell-you-house-1826237725](https://lifehacker.com/how-smart-home-tech-can-help-you-sell-your-house-1826237725)
+> 原文：<https://lifehacker.com/how-smart-home-tech-can-help-you-sell-your-house-1826237725>
 
 智能家居技术变得越来越普遍。以至于到了要卖掉你的房子的时候，这是值得考虑的，尤其是因为它可能非常昂贵。它给你的家增值了吗？还是仅仅是一种额外津贴？在你安装最新的设备之前，你应该知道以下几点。
 

@@ -1,6 +1,6 @@
 # Surface 笔记本电脑用户仍然可以免费将 Windows 10 S 升级到 Windows 10 Pro
 
-> 原文:[https://life hacker . com/surface-laptop-owners-can-still-upgrade-windows-10-s-to-1800987251](https://lifehacker.com/surface-laptop-owners-can-still-upgrade-windows-10-s-to-1800987251)
+> 原文：<https://lifehacker.com/surface-laptop-owners-can-still-upgrade-windows-10-s-to-1800987251>
 
 微软 6 月份发布的 Surface 笔记本电脑的用户有更多的时间从附带的 Windows 10 S 升级到全功能的 Windows 10 Pro 操作系统。
 

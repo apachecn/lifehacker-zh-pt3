@@ -1,6 +1,6 @@
 # 利用午休时间锻炼身体，从几个小时的久坐中放松下来
 
-> 原文:[https://life hacker . com/use-your-lunch-break-to-build-strength and-loose-up-fr-1795853041](https://lifehacker.com/use-your-lunch-break-to-build-strength-and-loosen-up-fr-1795853041)
+> 原文：<https://lifehacker.com/use-your-lunch-break-to-build-strength-and-loosen-up-fr-1795853041>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3KyMbNslNYY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3KyMbNslNYY&start=0) 
 

@@ -1,6 +1,6 @@
 # 教育部提出的关于债务免除要求的新规则对你意味着什么
 
-> 原文:[https://life hacker . com/what-the-department-of-eds-proposed-new-rules-on-debt-f-1827898764](https://lifehacker.com/what-the-department-of-eds-proposed-new-rules-on-debt-f-1827898764)
+> 原文：<https://lifehacker.com/what-the-department-of-eds-proposed-new-rules-on-debt-f-1827898764>
 
 川普政府提议 [改变对被骗学生的](https://www.wsj.com/articles/trump-administration-proposes-tightening-rules-for-forgiving-student-loans-1532528682) 要求，免除他们的学生贷款债务，对那些声称自己被骗的人提出更严格的要求。
 

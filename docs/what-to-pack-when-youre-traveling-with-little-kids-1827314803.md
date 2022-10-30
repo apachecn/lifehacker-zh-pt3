@@ -1,6 +1,6 @@
 # 当你带着小孩旅行时，该带些什么
 
-> 原文:[https://life hacker . com/what-to-pack-when-you-traveling with little-kids-1827314803](https://lifehacker.com/what-to-pack-when-youre-traveling-with-little-kids-1827314803)
+> 原文：<https://lifehacker.com/what-to-pack-when-youre-traveling-with-little-kids-1827314803>
 
 我刚和我丈夫的大家庭从欧洲旅行回来。这是我们第一次带着我们 5 岁的孩子出国旅行，尽管经历了几次因时间变化而导致的崩溃，我很高兴地告诉大家这是一次非常积极的经历。我还不能说我是带着孩子环游世界的专家，但我一直痴迷于从父母那里窃取一些技巧，尤其是那些掌握了包装艺术和科学的父母。在这次假期中，我很高兴我带来了一些东西，还有一些我希望我已经想到的东西。
 

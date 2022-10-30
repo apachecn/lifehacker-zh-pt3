@@ -1,6 +1,6 @@
 # 让蹒跚学步的孩子上厕所的时间不那么可怕的 7 个技巧
 
-> 原文:[https://life hacker . com/7-tricks-for-making-tail-time-a-cuddle-much-l-1795588791](https://lifehacker.com/7-tricks-for-making-bathroom-time-with-a-toddler-much-l-1795588791)
+> 原文：<https://lifehacker.com/7-tricks-for-making-bathroom-time-with-a-toddler-much-l-1795588791>
 
 在浴室里和一个蹒跚学步的孩子做任何事情，从令人不舒服的运动到让人恶心；在我的家里，我时而哄骗(“脱下你的衣服”，“不，呆在厕所里”，“请不要用洗澡恐龙扇我”)时而恼怒/厌恶，这往往会变成愤怒(“不，便便呆在厕所里的 T2”)；“阿 D *不是把那个扔给你弟弟的！*”)。
 

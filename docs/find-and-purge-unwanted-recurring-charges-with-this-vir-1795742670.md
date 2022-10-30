@@ -1,6 +1,6 @@
 # 使用此虚拟助手查找并清除不需要的重复费用
 
-> 原文:[https://life hacker . com/find-and-purge-unwanted-recurring-charges-with this-vir-1795742670](https://lifehacker.com/find-and-purge-unwanted-recurring-charges-with-this-vir-1795742670)
+> 原文：<https://lifehacker.com/find-and-purge-unwanted-recurring-charges-with-this-vir-1795742670>
 
 我们中的大多数人都为订阅了我们不再需要或使用的服务而感到内疚(或者可能根本不知道我们已经订阅了这些服务)。有时候，我们把它们留在身边，因为这是阻力最小的途径，或者因为“取消祖先网站”已经在我们的待办事项列表底部徘徊了几个月(有罪)。 [Trim](http://www.asktrim.com/) 解决了这个问题，并通过查找您所有的活动订阅并取消那些您不再需要的订阅来为您省钱。
 

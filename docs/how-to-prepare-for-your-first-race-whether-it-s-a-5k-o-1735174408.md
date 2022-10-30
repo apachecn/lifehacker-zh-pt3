@@ -1,6 +1,6 @@
 # 如何准备你的第一场比赛，不管是 5 公里还是马拉松
 
-> 原文:[https://life hacker . com/how-to-prepare-for your ' s first-race-if-s-a-5k-o-1735174408](https://lifehacker.com/how-to-prepare-for-your-first-race-whether-it-s-a-5k-o-1735174408)
+> 原文：<https://lifehacker.com/how-to-prepare-for-your-first-race-whether-it-s-a-5k-o-1735174408>
 
 跑步很难。坚持训练计划很难。但是当你宁愿看电视的时候，知道一个月后你有一场比赛是让你坚持下去的巨大动力。如果你以前从未参加过比赛，在你的日程表上安排一场比赛可能看起来很可怕:我会觉得不合适吗？我应该穿什么？
 

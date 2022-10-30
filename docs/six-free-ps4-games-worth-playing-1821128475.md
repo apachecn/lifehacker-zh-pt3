@@ -1,6 +1,6 @@
 # 六款值得一玩的免费 PS4 游戏
 
-> 原文:[https://kotaku . com/six-free-ps4-games-value-playing-1821128475](https://kotaku.com/six-free-ps4-games-worth-playing-1821128475)
+> 原文：<https://kotaku.com/six-free-ps4-games-worth-playing-1821128475>
 
 多亏了 PSN 商店里的一些免费游戏，你不用花一分钱就可以在 PS4 上玩得很开心。这些免费产品中的一些可以媲美你对一款成熟的 60 美元游戏的期望，如果不是超过它们的话。以下是我们挑选的最值得玩的 F2P PS4 游戏。
 

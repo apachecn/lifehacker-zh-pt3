@@ -1,6 +1,6 @@
 # 简化婚礼计划的最佳工具
 
-> 原文:[https://life hacker . com/the-best-tools-to-simplify-your ' s wedding-planning-1766761656](https://lifehacker.com/the-best-tools-to-simplify-your-wedding-planning-1766761656)
+> 原文：<https://lifehacker.com/the-best-tools-to-simplify-your-wedding-planning-1766761656>
 
 在选择场地、寻找宴会承办商和确保请柬发出之间，策划一场婚礼是令人疲惫的，即使你的婚礼相对低调。幸运的是，有很多工具、应用程序和网站可以让你更容易跟上进度，并帮助你在家或在旅途中做研究。
 

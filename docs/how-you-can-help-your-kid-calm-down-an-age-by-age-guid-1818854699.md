@@ -1,6 +1,6 @@
 # 如何帮助你的孩子冷静下来:年龄指南
 
-> 原文:[https://life hacker . com/how-you-can-help-your-kid-living-a-age-by-age-guid-1818854699](https://lifehacker.com/how-you-can-help-your-kid-calm-down-an-age-by-age-guid-1818854699)
+> 原文：<https://lifehacker.com/how-you-can-help-your-kid-calm-down-an-age-by-age-guid-1818854699>
 
 孩子们需要感受他们的感受，但是太多的时候，他们会被这些感受淹没。当他们明显感到不安时，父母往往会介入并提供安慰，也许是用语言或拥抱(或者好吧，有时是金鱼饼干和 YouTube 上的孩子)。但更重要的是教会他们如何让自己冷静下来。心理治疗师艾米·莫兰写了新书《精神强大的父母不做的 13 件事》，她说，能够处理压力、愤怒、挫折和焦虑需要一套特定的技能。这就是大脑训练的用武之地。
 

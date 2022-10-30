@@ -1,6 +1,6 @@
 # 为什么空着的最高法院席位如此重要？
 
-> 原文:[https://life hacker . com/why-the-empty-supreme-court-seat-that-deal-deal-1759198091](https://lifehacker.com/why-is-the-empty-supreme-court-seat-such-a-big-deal-1759198091)
+> 原文：<https://lifehacker.com/why-is-the-empty-supreme-court-seat-such-a-big-deal-1759198091>
 
 周末， [最高法院大法官安东宁·斯卡利亚](http://gawker.com/supreme-court-justice-antonin-scalia-reportedly-found-d-1758968327)去世。任命一个替代者通常会很无聊。这一次，是民主党总统最后任期的最后一年，在选举期间，共和党控制了参议院。法院在意识形态上也是完全分裂的。这是一场*巨大的*政治战役。这就是它的全部含义。
 

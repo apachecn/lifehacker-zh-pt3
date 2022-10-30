@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 16 日至 23 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-16-to-23-1790445605](https://lifehacker.com/this-weeks-most-popular-posts-december-16th-to-23rd-1790445605)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-16th-to-23rd-1790445605>
 
 随着本周假期的全面展开，我们了解了如何充分利用您的空闲时间，了解了如何将您的 Raspberry Pi 游戏模拟器提升到一个新的水平，让我们的汽车为冬季霜冻做好准备，等等。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 来自我们读者的最佳明尼阿波利斯-圣保罗旅行提示
 
-> 原文:[https://life hacker . com/the-best-Minneapolis-ST-Paul-travel-tips-from-our-read-1828691612](https://lifehacker.com/the-best-minneapolis-st-paul-travel-tips-from-our-read-1828691612)
+> 原文：<https://lifehacker.com/the-best-minneapolis-st-paul-travel-tips-from-our-read-1828691612>
 
 是时候吃个多汁的露西，避开美国购物中心了！你在 [原创评论帖](https://lifehacker.com/tell-us-your-minneapolis-st-paul-travel-tips-1828580801) 中给了我们你最好的双城旅行小贴士，以下是亮点。
 

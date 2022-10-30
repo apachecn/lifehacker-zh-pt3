@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的特色台式机
 
-> 原文:[https://life hacker . com/2016-1790295044](https://lifehacker.com/most-popular-featured-desktops-of-2016-1790295044)
+> 原文：<https://lifehacker.com/most-popular-featured-desktops-of-2016-1790295044>
 
 每周，我们都会展示读者提交的定制桌面，展示漂亮的壁纸、出色的定制和 UI 调整。有时它们很有趣，有时它们很实用，有时两者都有，但 2016 年对它们来说是很棒的一年。下面来看看你最喜欢的。
 

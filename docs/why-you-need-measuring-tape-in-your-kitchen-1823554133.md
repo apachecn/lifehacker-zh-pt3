@@ -1,6 +1,6 @@
 # 为什么你的厨房需要卷尺
 
-> 原文:[https://life hacker . com/why-you-need-measure-tape-in-your-kitchen-1823554133](https://lifehacker.com/why-you-need-measuring-tape-in-your-kitchen-1823554133)
+> 原文：<https://lifehacker.com/why-you-need-measuring-tape-in-your-kitchen-1823554133>
 
 不管是好是坏，烹饪总是会涉及到一定量的测量。通常这些测量值要么是质量，要么是体积，但有时尺寸会发挥作用，而我在估算尺寸方面很糟糕。
 

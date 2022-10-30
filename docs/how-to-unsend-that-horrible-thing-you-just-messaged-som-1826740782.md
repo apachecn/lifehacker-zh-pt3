@@ -1,6 +1,6 @@
 # 如何解除你刚刚在 Snapchat 上给某人发的可怕消息
 
-> 原文:[https://life hacker . com/how-to-un send-that-drugly-thing-you-messaged-som-1826740782](https://lifehacker.com/how-to-unsend-that-horrible-thing-you-just-messaged-som-1826740782)
+> 原文：<https://lifehacker.com/how-to-unsend-that-horrible-thing-you-just-messaged-som-1826740782>
 
 Snapchat 今天宣布了一项新功能，允许任何用户删除他们在个人或小组对话中发送的任何消息。换句话说，如果你在 Snapchat 上给你妈妈发了一条“身材不错”的信息，但实际上是想发给你最喜欢的朋友，你现在可以使用 Snapchat 的“清除聊天”功能来避免所有尴尬。
 

@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的客座博文
 
-> 原文:[https://life hacker . com/most-popular-guest-posts-of-2016-1790532738](https://lifehacker.com/most-popular-guest-posts-of-2016-1790532738)
+> 原文：<https://lifehacker.com/most-popular-guest-posts-of-2016-1790532738>
 
 为了给我们通常的产品添加一些视角，我们经常与作家和出版合作伙伴合作，以突出我们员工之外的声音。以下是客座作家写的一些最受欢迎的文章，涵盖了从个人理财到心理学等方方面面。
 

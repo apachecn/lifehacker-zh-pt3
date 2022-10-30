@@ -1,6 +1,6 @@
 # 不要让这些神话吓得你不敢注射流感疫苗
 
-> 原文:[https://life hacker . com/don-t-let-these-myths-scare-you-from-a-flu-shot-1787136173](https://lifehacker.com/don-t-let-these-myths-scare-you-away-from-a-flu-shot-1787136173)
+> 原文：<https://lifehacker.com/don-t-let-these-myths-scare-you-away-from-a-flu-shot-1787136173>
 
 流感疫苗有效，是降低你今年冬天生病几率的聪明方法。但是，如果你听信谣言，你可能不会得到这样的印象。流感疫苗的神话比比皆是，现在是时候让最大的谎言停止了。
 

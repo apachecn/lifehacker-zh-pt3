@@ -1,6 +1,6 @@
 # 这些都是大家忽略的驾驶规则
 
-> 原文:[https://jalopnik . com/这些是每个人都忽略的驾驶规则-1819966842](https://jalopnik.com/these-are-the-driving-rules-that-everyone-ignores-1819966842)
+> 原文：<https://jalopnik.com/these-are-the-driving-rules-that-everyone-ignores-1819966842>
 
 我喜欢开车。我的车是我快乐的地方。我喜欢带着它到处走。不过，我经常发现自己坐在方向盘后面，对着另一个司机拉的一些白痴垃圾大喊大叫。因为和别人一起开车会毁了驾驶。因为其他人是地狱。
 

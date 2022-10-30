@@ -1,6 +1,6 @@
 # 你的信用卡债务比你的抵押贷款债务更糟糕
 
-> 原文:[https://life hacker . com/your-credit-card-debt 比 your-mortgage-debt-1828853956](https://lifehacker.com/your-credit-card-debt-is-worse-than-your-mortgage-debt-1828853956)
+> 原文：<https://lifehacker.com/your-credit-card-debt-is-worse-than-your-mortgage-debt-1828853956>
 
 信用类型的组合对你的分数有好处——10%的信用分数是根据你已开立的信用额度类型确定的。
 

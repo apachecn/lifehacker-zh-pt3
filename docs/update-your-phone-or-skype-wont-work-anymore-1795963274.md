@@ -1,6 +1,6 @@
 # 更新您的手机或 Skype 将不再工作
 
-> 原文:[https://life hacker . com/update-your-phone-or-Skype-wont-work-more-1795963274](https://lifehacker.com/update-your-phone-or-skype-wont-work-anymore-1795963274)
+> 原文：<https://lifehacker.com/update-your-phone-or-skype-wont-work-anymore-1795963274>
 
 为了纪念 Skype 的最新更新，视频聊天和消息应用程序将停止对各种平台的支持。
 

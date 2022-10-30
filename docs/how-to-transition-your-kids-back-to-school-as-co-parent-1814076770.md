@@ -1,6 +1,6 @@
 # 如何让你的孩子作为父母重返校园
 
-> 原文:[https://life hacker . com/how-to-transition-your-kids-back-school-as-co-parent-1814076770](https://lifehacker.com/how-to-transition-your-kids-back-to-school-as-co-parent-1814076770)
+> 原文：<https://lifehacker.com/how-to-transition-your-kids-back-to-school-as-co-parent-1814076770>
 
 当你离婚时，对你的孩子来说，新的学年意味着*与前任的大量*交流，简而言之，这可能很糟糕。但是正如 [一位经历过的母亲](http://www.scarymommy.com/how-co-parent-with-your-ex-lover/) 所写的，为人父母有一条基本准则，那就是:这很难，而且不是真的关于你。
 

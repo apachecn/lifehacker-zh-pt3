@@ -1,6 +1,6 @@
 # 婚外情后如何挽回一段感情
 
-> 原文:[https://life hacker . com/how-to-salvage-after-affair-1819784269](https://lifehacker.com/how-to-salvage-a-relationship-after-an-affair-1819784269)
+> 原文：<https://lifehacker.com/how-to-salvage-a-relationship-after-an-affair-1819784269>
 
 在她的“事态”视频系列的第四部也是最后一部( [以她的同名书籍](https://www.amazon.com/dp/0062322583/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-salvage-a-relationship-after-an-affair-1819784269&asc_source=&tag=kinjalifehackerlink-20) 命名)，关系和性专家 [埃丝特·佩雷尔](https://www.estherperel.com/) 深入探讨了在婚外情结束后，当一对夫妇决定如何(以及是否)前进时会发生什么。
 

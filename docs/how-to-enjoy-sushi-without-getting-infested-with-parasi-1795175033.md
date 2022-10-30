@@ -1,6 +1,6 @@
 # 如何享受寿司而不被寄生虫感染
 
-> 原文:[https://life hacker . com/how-to-enjoy-sushi-without-get-getting-perasi-1795175033](https://lifehacker.com/how-to-enjoy-sushi-without-getting-infested-with-parasi-1795175033)
+> 原文：<https://lifehacker.com/how-to-enjoy-sushi-without-getting-infested-with-parasi-1795175033>
 
 人们被最近的一个故事吓坏了，一名男子吃了寿司，结果患上了胃寄生虫 。当你吃生的东西时，获得一个好朋友是一种真实的可能性，这也是相当不寻常和容易避免的。
 

@@ -1,6 +1,6 @@
 # 健身房摊牌:自由重量与机器
 
-> 原文:[https://life hacker . com/gym-down-free-weights-vs-machines-1789967530](https://lifehacker.com/gym-showdown-free-weights-vs-machines-1789967530)
+> 原文：<https://lifehacker.com/gym-showdown-free-weights-vs-machines-1789967530>
 
 如果你想变得更强壮，某种抗阻训练是一个不错的选择。所以，当你走进健身房时，你是应该开始把盘子装到杠铃上，还是应该直接走向你发现的第一台易于使用的机器？让我们比较一下这两种方法。
 

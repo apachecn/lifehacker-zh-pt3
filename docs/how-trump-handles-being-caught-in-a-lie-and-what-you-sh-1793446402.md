@@ -1,6 +1,6 @@
 # 特朗普如何处理谎言被拆穿，你应该怎么做
 
-> 原文:[https://life hacker . com/how-trump-handles-being-in-a-lie-and-what-you-sh-1793446402](https://lifehacker.com/how-trump-handles-being-caught-in-a-lie-and-what-you-sh-1793446402)
+> 原文：<https://lifehacker.com/how-trump-handles-being-caught-in-a-lie-and-what-you-sh-1793446402>
 
 特朗普当然不是第一个撒谎的政客，但他因为几个原因而出名。第一，他撒了很多谎。第二，当他被叫出来时，他处理不好。这里有几件事是你在 [被谎言](https://lifehacker.com/learn-to-spot-a-liar-with-these-verbal-signs-1780047717) 叫出来的时候不应该做的，除非你想让事情变得更糟。
 

@@ -1,6 +1,6 @@
 # 最好的 IFTTT 食谱，让你的假期过得充实
 
-> 原文:[https://life hacker . com/the-best-if TTT-recipes-to-make-the-most-your-vacatio-1778763165](https://lifehacker.com/the-best-ifttt-recipes-to-make-the-most-of-your-vacatio-1778763165)
+> 原文：<https://lifehacker.com/the-best-ifttt-recipes-to-make-the-most-of-your-vacatio-1778763165>
 
 当你休假时，你可以探索一个新的地方，远离日常琐事。当然，度假需要大量的准备工作，IFTTT 这个超级有用的工具可以帮助你。
 

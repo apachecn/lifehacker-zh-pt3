@@ -1,6 +1,6 @@
 # 高防晒指数的防晒霜真的更好
 
-> 原文:[https://life hacker . com/high-SPF-sun screens-really-be-better-1825667090](https://lifehacker.com/high-spf-sunscreens-really-are-better-1825667090)
+> 原文：<https://lifehacker.com/high-spf-sunscreens-really-are-better-1825667090>
 
 理论上，SPF 50 和 SPF 100 是非常相似的防晒霜:一种能阻挡 98%的 UVB 射线，另一种能阻挡 99%。问题是，没有人会按照瓶子上标明的防晒系数来涂抹防晒霜。所以实际上你从这两个瓶子中得到非常不同的保护。
 

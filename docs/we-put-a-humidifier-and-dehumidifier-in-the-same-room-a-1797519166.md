@@ -1,6 +1,6 @@
 # 我们把加湿器和除湿机放在同一个房间里，让它们打架
 
-> 原文:[https://life hacker . com/we-put-a-a-1797519166](https://lifehacker.com/we-put-a-humidifier-and-dehumidifier-in-the-same-room-a-1797519166)
+> 原文：<https://lifehacker.com/we-put-a-humidifier-and-dehumidifier-in-the-same-room-a-1797519166>
 
 喜剧演员史蒂夫·赖特曾经说过:“我的生日礼物是一台加湿器和一台除湿器。”。"我把他们放在同一个房间里，让他们决一雌雄。"
 

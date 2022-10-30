@@ -1,6 +1,6 @@
 # 看看我们最喜欢的读者提交的 iOS 12 快捷键
 
-> 原文:[https://life hacker . com/check-out-our-favorite-reader-submitted-IOs-12-shortcut-1829186848](https://lifehacker.com/check-out-our-favorite-reader-submitted-ios-12-shortcut-1829186848)
+> 原文：<https://lifehacker.com/check-out-our-favorite-reader-submitted-ios-12-shortcut-1829186848>
 
 就在两天前——刚刚结束 iOS 12 的正式发布和苹果快捷方式应用的盛大~~更名——我向 Lifehacker 的读者们询问了你最喜欢的快捷方式。我知道我们都没有太多的时间来玩捷径，但肯定你已经在这段时间里想出了一个或两个宝石。我昨天分享了我自己的一个，一个让 Siri 在谷歌地图 而不是苹果地图 [中生成方向的快速小技巧。](https://lifehacker.com/the-best-ways-to-use-google-maps-with-apples-carplay-1829173067)~~
 

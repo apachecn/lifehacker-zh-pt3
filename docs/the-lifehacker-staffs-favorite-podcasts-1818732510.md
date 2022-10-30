@@ -1,6 +1,6 @@
 # Lifehacker 员工最喜欢的播客
 
-> 原文:[https://life hacker . com/the-life hacker-staff-favorite-podcast-1818732510](https://lifehacker.com/the-lifehacker-staffs-favorite-podcasts-1818732510)
+> 原文：<https://lifehacker.com/the-lifehacker-staffs-favorite-podcasts-1818732510>
 
 每个人都喜欢伟大的播客，包括我们！想象一下，如果你愿意的话，当我们热情地按下播放键时，我们会给你一个耳塞，并说，“你得看看这个”。以下是 Lifehacker 员工最喜欢的播客。
 

@@ -1,6 +1,6 @@
 # 你真的需要删除你的旧推文
 
-> 原文:[https://life hacker . com/you-really-need-delete-your-old-tweets-1826324607](https://lifehacker.com/you-really-need-to-delete-your-old-tweets-1826324607)
+> 原文：<https://lifehacker.com/you-really-need-to-delete-your-old-tweets-1826324607>
 
 当我们最后一次汇总我们员工的每周升级时，我们的编辑们正在收拾我们的后院，用多莉·帕顿抚慰我们的灵魂，并升级我们的洗衣游戏。
 

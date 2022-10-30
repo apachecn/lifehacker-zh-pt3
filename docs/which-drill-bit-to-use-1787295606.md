@@ -1,6 +1,6 @@
 # 使用哪种钻头
 
-> 原文:[https://jalopnik.com/which-drill-bit-to-use-1787295606](https://jalopnik.com/which-drill-bit-to-use-1787295606)
+> 原文：<https://jalopnik.com/which-drill-bit-to-use-1787295606>
 
 你知道钻头实际上只有一个任务——钻孔。但是你在上钻孔*的方式决定了你实际需要的钻头类型。观看我最喜欢的加拿大机械师分解你曾经用过的和一些你可能从未见过的每种钻子的种类、内容和原因。*
 

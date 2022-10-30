@@ -1,6 +1,6 @@
 # 使用待办事项应用程序做笔记
 
-> 原文:[https://life hacker . com/use-a-to-do-app-to-take-notes-1826432142](https://lifehacker.com/use-a-to-do-app-to-take-notes-1826432142)
+> 原文：<https://lifehacker.com/use-a-to-do-app-to-take-notes-1826432142>
 
 外出时，我习惯把我所有的想法都放进一个袖珍笔记本里。然后我转而用手机给自己发邮件。然后我试了一下便签 app。现在我把它们放在一个叫 Wunderlist 的应用程序中。这不是我最喜欢的待办事项应用——微软甚至 [发布了另一款应用来取代它](https://lifehacker.com/microsofts-wunderlist-replacement-to-do-is-now-availab-1794458841#_ga=2.251436870.1390564882.1527600788-3846207152.1521480874)——因为我在实际的待办事项中使用我最喜欢的待办事项应用。不，这是我的边车，这是一种比使用文本应用程序更好的记下随机笔记的方式。
 

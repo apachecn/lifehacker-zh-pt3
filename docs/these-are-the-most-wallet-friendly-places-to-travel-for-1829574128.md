@@ -1,6 +1,6 @@
 # 假期旅行最省钱的地方
 
-> 原文:[https://life hacker . com/1829574128](https://lifehacker.com/these-are-the-most-wallet-friendly-places-to-travel-for-1829574128)
+> 原文：<https://lifehacker.com/these-are-the-most-wallet-friendly-places-to-travel-for-1829574128>
 
 假期可能是一段紧张的时间，尤其是如果你需要旅行的话。我一年一度的回家之旅总是一种微妙的平衡，即考虑什么时候我可以合理地离开旧金山，但仍然负担得起那张机票。从旧金山到北卡罗来纳州的价格从几百美元到几千美元不等，取决于你何时旅行。
 

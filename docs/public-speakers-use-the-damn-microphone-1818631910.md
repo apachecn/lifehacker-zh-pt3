@@ -1,6 +1,6 @@
 # 公共扬声器，用该死的麦克风
 
-> 原文:[https://life hacker . com/public-speakers-use-the-damn-microphone-1818631910](https://lifehacker.com/public-speakers-use-the-damn-microphone-1818631910)
+> 原文：<https://lifehacker.com/public-speakers-use-the-damn-microphone-1818631910>
 
 “没有这个大家能听到我吗？”登上舞台时说出最差的演说家。如果前排有三个人同意，麦克风就会关闭。然后任何重听的人(或远程聆听的人，或坐在房间后面的人)都听不到你。用那该死的麦克风，你这个混蛋。
 

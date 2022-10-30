@@ -1,6 +1,6 @@
 # 这种姜汁调味品尝起来就像来自日本餐馆的一样
 
-> 原文:[https://life hacker . com/this-ginger-dressing-tastes-exact-like-it-from-a-1827997044](https://lifehacker.com/this-ginger-dressing-tastes-exactly-like-it-came-from-a-1827997044)
+> 原文：<https://lifehacker.com/this-ginger-dressing-tastes-exactly-like-it-came-from-a-1827997044>
 
 我痴迷于在寿司店点配菜沙拉。不是因为我觉得有必要用绿叶蔬菜来保持身体运转，而是因为我喜欢那该死的姜汁酱。我以前在家里试过做这道菜，但从来没有做对过，直到我在做蘸酱的时候偶然发现了这个秘密。我的朋友们，这种令人上瘾的甜姜酱的神秘骗局的关键是腌制的姜，而不是新鲜的姜。
 

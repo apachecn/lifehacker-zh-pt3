@@ -1,6 +1,6 @@
 # 用这个按钮让烦人的加油泵电视广告静音
 
-> 原文:[https://life hacker . com/silence-angry-gas-pump-TV-ads-and-news-updates-with-1819451575](https://lifehacker.com/silence-annoying-gas-pump-tv-ads-and-news-updates-with-1819451575)
+> 原文：<https://lifehacker.com/silence-annoying-gas-pump-tv-ads-and-news-updates-with-1819451575>
 
 一些较新的加油站油泵内置了小电视，可以播放广告，甚至更糟的是，以最大音量播放新闻。以下是你如何关掉那种声音，平静地加油。
 

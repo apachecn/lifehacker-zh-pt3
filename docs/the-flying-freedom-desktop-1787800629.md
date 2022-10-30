@@ -1,6 +1,6 @@
 # 飞行自由桌面
 
-> 原文:[https://life hacker . com/the-flying-freedom-desktop-1787800629](https://lifehacker.com/the-flying-freedom-desktop-1787800629)
+> 原文：<https://lifehacker.com/the-flying-freedom-desktop-1787800629>
 
 读者[snovcrash](http://kinja.com/snovvcrash)在我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 分享了这个定制的桌面，它也让我们感觉像在飞。以下是如何在你的电脑上获得相同的外观。
 

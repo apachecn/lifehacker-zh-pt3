@@ -1,6 +1,6 @@
 # 你最喜欢的速食拉面升级有哪些？
 
-> 原文:[https://life hacker . com/what-are-you-favorite-instant-ramen-upgrades-1795729162](https://lifehacker.com/what-are-your-favorite-instant-ramen-upgrades-1795729162)
+> 原文：<https://lifehacker.com/what-are-your-favorite-instant-ramen-upgrades-1795729162>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，每周一次的公开讨论，在这里你可以分享你所有关于食物的想法、建议、食谱和观点。本周我想谈谈奇妙的可定制的，无限重复的速食拉面。
 

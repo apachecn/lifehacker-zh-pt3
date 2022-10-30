@@ -1,6 +1,6 @@
 # 千禧一代不擅长购买新车
 
-> 原文:[https://jalopnik . com/millennials-suck-at-buying-new-cars-report-1792934457](https://jalopnik.com/millennials-suck-at-buying-new-cars-report-1792934457)
+> 原文：<https://jalopnik.com/millennials-suck-at-buying-new-cars-report-1792934457>
 
 千禧一代！年轻人。一群愚蠢的人，在 Instagram 上讲述手工培根的故事。根据最近的一份报告，他们如此习惯于每月订阅费用，就像他们看待买车一样。理论上听起来不错，但不是最佳实践。
 

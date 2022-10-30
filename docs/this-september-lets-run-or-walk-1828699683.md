@@ -1,6 +1,6 @@
 # 这个九月，让我们奔跑吧！(或者走路！)
 
-> 原文:[https://life hacker . com/this-June-let s-run-or-walk-1828699683](https://lifehacker.com/this-september-lets-run-or-walk-1828699683)
+> 原文：<https://lifehacker.com/this-september-lets-run-or-walk-1828699683>
 
 这是开始运行 的 [最佳时间——或者回到运行状态，如果你已经休息了的话。天气变冷了，每个人都在适应他们返校的日常生活(这对学生和家长来说都是好消息)，我们刚刚花了一个月](https://lifehacker.com/late-summer-is-the-best-time-to-start-running-1785433859) [尝试倒立](https://vitals.lifehacker.com/let-s-get-upside-down-for-the-august-fitness-challenge-1828029407)——所以相比之下，一点普通的慢跑会感觉很棒。
 

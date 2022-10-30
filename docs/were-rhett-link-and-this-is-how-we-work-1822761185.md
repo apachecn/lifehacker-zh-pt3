@@ -1,6 +1,6 @@
 # 我们是瑞特&林克，这就是我们的工作方式
 
-> 原文:[https://life hacker . com/were-Rhett-link-and-the-this-we-how-work-1822761185](https://lifehacker.com/were-rhett-link-and-this-is-how-we-work-1822761185)
+> 原文：<https://lifehacker.com/were-rhett-link-and-this-is-how-we-work-1822761185>
 
 瑞德和林克，节目主持人和病毒视频的创作者如 [“不！查克·泰斯塔，"](https://www.youtube.com/watch?v=LJP1DphOWPs) 是 YouTube 上最著名的两个循规蹈矩的成年人。他们多年来一直在制作有趣的视频，现在他们运营着多个 YouTube 频道，每个频道都有数百万订户。我们问他们是如何工作的，他们是如何发展出如此令人眼花缭乱的职业生涯的。
 

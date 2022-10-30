@@ -1,6 +1,6 @@
 # 生存黑色星期五的生活黑客指南
 
-> 原文:[https://life hacker . com/the-life hacker-guide-to-surviving-black-Friday-1789317816](https://lifehacker.com/the-lifehacker-guide-to-surviving-black-friday-1789317816)
+> 原文：<https://lifehacker.com/the-lifehacker-guide-to-surviving-black-friday-1789317816>
 
 感恩节后的周五是一年中达成从电视到小工具等各种商品交易的最佳时间之一，但面对蜂拥而至的购物者是一个挑战。这些建议会让你保持警觉，准备好抓住你看中的交易。
 

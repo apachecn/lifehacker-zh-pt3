@@ -1,6 +1,6 @@
 # 如何像专业人士一样在全国邮寄啤酒
 
-> 原文:[https://life hacker . com/how-to-mail-beer-cross-the-country-like-a-pro-1795988143](https://lifehacker.com/how-to-mail-beer-across-the-country-like-a-pro-1795988143)
+> 原文：<https://lifehacker.com/how-to-mail-beer-across-the-country-like-a-pro-1795988143>
 
 我真的喜欢啤酒。不，我真的很喜欢啤酒。这意味着我不断寻找在我目前的家乡旧金山买不到的啤酒，并与朋友达成交易，从全国各地给我邮寄商品，以换取从西海岸给他们送几瓶当地的东西。
 

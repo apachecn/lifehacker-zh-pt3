@@ -1,6 +1,6 @@
 # 做“为什么”练习来找到你最深的动机
 
-> 原文:[https://life hacker . com/do-the-why-exercise-to-find your deep-motivation-1729421488](https://lifehacker.com/do-the-why-exercise-to-find-your-deepest-motivation-1729421488)
+> 原文：<https://lifehacker.com/do-the-why-exercise-to-find-your-deepest-motivation-1729421488>
 
 我们都有目标，但问“为什么”很重要为什么要减掉那 10 斤？吃得更健康？还是为了升职？你可能会摸索一些固定的答案，但它们可能不是你真正的“为什么”深入挖掘，发现你的动机背后的真正来源，你真正的“为什么”以下是方法。
 

@@ -1,6 +1,6 @@
 # 如何应对要求过高的工作狂老板
 
-> 原文:[https://life hacker . com/how-to-deal-a-工作狂-要求太多的老板-1764089238](https://lifehacker.com/how-to-deal-with-a-workaholic-boss-who-demands-too-much-1764089238)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-workaholic-boss-who-demands-too-much-1764089238>
 
 所以，你的老板是个工作狂，希望你效仿她？不管这意味着工作多长时间，在办公桌前吃午饭(或者干脆不吃)，甚至牺牲你的周末，向这样的人汇报工作对你的职业生涯和家庭生活都是一种负担。
 

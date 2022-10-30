@@ -1,6 +1,6 @@
 # 世界桌面的边缘
 
-> 原文:[https://life hacker . com/the-edge-of-the-world-desktop-1780470292](https://lifehacker.com/the-edge-of-the-world-desktop-1780470292)
+> 原文：<https://lifehacker.com/the-edge-of-the-world-desktop-1780470292>
 
 这款 OS X 桌面简洁优雅，将一些简单的小工具和华丽的壁纸完美结合。如果你喜欢你所看到的，以下是你如何设置它，自定义你自己的菜单栏，并给你的 Mac 相同的外观。
 

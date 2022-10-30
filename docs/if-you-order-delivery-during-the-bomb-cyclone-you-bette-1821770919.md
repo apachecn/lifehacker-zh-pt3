@@ -1,6 +1,6 @@
 # 如果你在炸弹飓风期间订餐，你最好多给点小费
 
-> 原文:[https://life hacker . com/if-you-order-delivery-due-cyclone-you-bette-1821770919](https://lifehacker.com/if-you-order-delivery-during-the-bomb-cyclone-you-bette-1821770919)
+> 原文：<https://lifehacker.com/if-you-order-delivery-during-the-bomb-cyclone-you-bette-1821770919>
 
 东海岸目前正受到一个“ [炸弹气旋](https://earther.com/what-is-this-bomb-cyclone-thing-about-to-blast-the-east-1821736336) ”的袭击，这意味着北部有暴风雪，南部有雪。如果你不知何故错过了过去几天所有的世界末日天气预测和迷因，并且没有在 Trader Joe's 进货，你可能会考虑订购快递——外面真的很糟糕，你有很多皇冠要赶，你的新法兰绒床单真的很*舒适。你应该吗？*
 

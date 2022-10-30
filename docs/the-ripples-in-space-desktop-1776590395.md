@@ -1,6 +1,6 @@
 # 太空桌面上的涟漪
 
-> 原文:[https://life hacker . com/the-ripples-in-space-desktop-1776590395](https://lifehacker.com/the-ripples-in-space-desktop-1776590395)
+> 原文：<https://lifehacker.com/the-ripples-in-space-desktop-1776590395>
 
 的桌面结合了一个小小的雨量计和一张漂亮的壁纸，创造出一个完美契合的外观。布满系统显示器的星空和一个很棒的正在播放的小工具，也是一个很好的坐下或第二屏幕显示器，有足够的空间来完成工作。
 

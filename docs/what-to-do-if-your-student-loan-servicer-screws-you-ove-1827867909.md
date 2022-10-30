@@ -1,6 +1,6 @@
 # 如果你的学生贷款服务商欺骗了你，你该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-student-loan-servicer-screw-you-ove-1827867909](https://lifehacker.com/what-to-do-if-your-student-loan-servicer-screws-you-ove-1827867909)
+> 原文：<https://lifehacker.com/what-to-do-if-your-student-loan-servicer-screws-you-ove-1827867909>
 
 学生贷款诈骗案 [呈上升趋势](https://twocents.lifehacker.com/have-you-been-the-victim-of-a-student-loan-scam-1827689198) ，但你需要担心的不仅仅是第三方会利用你。在许多情况下，你的服务商可能会在没有适当通知的情况下搞乱付款、拖延贷款申请或出售你的债务。
 

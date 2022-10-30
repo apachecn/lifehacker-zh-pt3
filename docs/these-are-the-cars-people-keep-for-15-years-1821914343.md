@@ -1,6 +1,6 @@
 # 这些是人们保留了 15 年的车
 
-> 原文:[https://jalopnik . com/these-is-the-cars-people-keep-15-1821914343](https://jalopnik.com/these-are-the-cars-people-keep-for-15-years-1821914343)
+> 原文：<https://jalopnik.com/these-are-the-cars-people-keep-for-15-years-1821914343>
 
 还清贷款后，可以自由地长时间驾驶汽车。但并不是每辆车都能跑完这段距离。如果你是那种会把车留很长时间的人，看看这个调查吧，它列出了车主倾向于保留 15 年的最受欢迎的车型。
 

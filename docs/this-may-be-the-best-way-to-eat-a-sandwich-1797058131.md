@@ -1,6 +1,6 @@
 # 这可能是吃三明治的最好方法
 
-> 原文:[https://life hacker . com/this-may-be-the-best-way-to-eat-a-sandwich-1797058131](https://lifehacker.com/this-may-be-the-best-way-to-eat-a-sandwich-1797058131)
+> 原文：<https://lifehacker.com/this-may-be-the-best-way-to-eat-a-sandwich-1797058131>
 
 人们往往对你如何*把*做成三明治 有很多看法，但迈阿密大学足球教练马克·里奇是我见过的第一个就如何*吃*一个画出非常具体图表的人。
 

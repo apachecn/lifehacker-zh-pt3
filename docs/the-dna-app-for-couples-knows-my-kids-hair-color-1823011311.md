@@ -1,6 +1,6 @@
 # “夫妇 DNA 应用程序”知道我孩子的头发颜色
 
-> 原文:[https://life hacker . com/the-DNA-app-for-couples-know-my-kids-hair-color-1823011311](https://lifehacker.com/the-dna-app-for-couples-knows-my-kids-hair-color-1823011311)
+> 原文：<https://lifehacker.com/the-dna-app-for-couples-knows-my-kids-hair-color-1823011311>
 
 在科学中，复制很重要。一个实验可能是侥幸，但如果你一次又一次地得到相同的结果，你就知道你离真相越来越近了。因此，当一个名为 [BabyGlimpse](https://www.humancode.com/babyglimpse/) 的 DNA 应用程序说它可以预测我的孩子长什么样时，我*准备好了*。我有三个孩子，所以我可以一式三份检查他们的结果。
 

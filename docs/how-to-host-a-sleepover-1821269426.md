@@ -1,6 +1,6 @@
 # 如何举办通宵派对
 
-> 原文:[https://lifehacker.com/how-to-host-a-sleepover-1821269426](https://lifehacker.com/how-to-host-a-sleepover-1821269426)
+> 原文：<https://lifehacker.com/how-to-host-a-sleepover-1821269426>
 
 当你还是个孩子的时候，没有比睡衣派对更好的派对了。熬夜、学习如何打嗝、吃糖吃到吐——有什么不喜欢的呢？
 

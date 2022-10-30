@@ -1,6 +1,6 @@
 # 不要再问别人你是否能“集思广益”
 
-> 原文:[https://life hacker . com/stop-questing-people-if-you-can-pick-they-brains-1818561632](https://lifehacker.com/stop-asking-people-if-you-can-pick-their-brains-1818561632)
+> 原文：<https://lifehacker.com/stop-asking-people-if-you-can-pick-their-brains-1818561632>
 
 现在和名人联系非常容易，不是吗？在社交媒体或公司简历上点击几下，你就可以向你所在领域的最新摇滚明星发送一条信息，这个人正在创造、破坏和重新发明从公共汽车到酒店的一切。你希望见到这位摇滚明星本人——也许真诚地收集对你自己的职业轨迹有用的信息，或者也许只是把你的脸放在他们面前，希望有一些有意义的职业联系——但有机地发生的可能性很小。所以你把自己定位成一个求知欲强的学习者，一个恳求者，并问“能一起喝杯咖啡吗，我可以向你请教一下？”
 

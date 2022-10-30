@@ -1,6 +1,6 @@
 # 在 Mac 上运行 Windows:VirtualBox vs VMware Fusion vs Parallels
 
-> 原文:[https://life hacker . com/run-windows-on-your-MAC-virtualbox-vs-VMware-fusion-vs-1750474360](https://lifehacker.com/run-windows-on-your-mac-virtualbox-vs-vmware-fusion-vs-1750474360)
+> 原文：<https://lifehacker.com/run-windows-on-your-mac-virtualbox-vs-vmware-fusion-vs-1750474360>
 
 如果你需要在 OS X 内部运行 Windows，你有三个选择:VirtualBox、VMware 和 Parallels。每一种都有自己的优点和缺点，以及一种比另一种更好的不同用例。让我们来分解一下每一个什么时候是最好的，为了什么。
 

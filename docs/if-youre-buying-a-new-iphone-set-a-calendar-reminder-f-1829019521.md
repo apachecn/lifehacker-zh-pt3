@@ -1,6 +1,6 @@
 # 如果你正在购买一部新的 iPhone，为苹果的退货期限设置一个日历提醒
 
-> 原文:[https://life hacker . com/if-you-buying-a-new-iphone-set-a-calendar-reminder-f-1829019521](https://lifehacker.com/if-youre-buying-a-new-iphone-set-a-calendar-reminder-f-1829019521)
+> 原文：<https://lifehacker.com/if-youre-buying-a-new-iphone-set-a-calendar-reminder-f-1829019521>
 
 如果你打算购买一部全新的 iPhone XS、iPhone XS Max 或 iPhone XRT3，在你预订成功后，有一件大事是你想做的(如果你能在合理的运输时间内买到的话)。在你的日历上为 iPhone 提货日预约一个...并在后的两个星期*设置一个日历约会。称之为“你真的安全吗？”好的。*
 

@@ -1,6 +1,6 @@
 # 以下是如何带着烟花尽可能安全地旅行
 
-> 原文:[https://jalopnik . com/heres-how-to-travel with the fireworks-as-possible-1827300559](https://jalopnik.com/heres-how-to-travel-with-fireworks-as-safely-as-possibl-1827300559)
+> 原文：<https://jalopnik.com/heres-how-to-travel-with-fireworks-as-safely-as-possibl-1827300559>
 
 当我们为今年周中的 7 月 4 日假期做准备时，即使是最诚实和合法的公民也会突然变成狡猾的纵火狂，他们在开车的距离内寻找最大和最可疑的合法爆炸物，我们应该回顾一下如何尽可能安全地运输烟花的一些最佳做法。
 

@@ -1,6 +1,6 @@
 # 在理财顾问身上寻找什么
 
-> 原文:[https://life hacker . com/what-to-look-in-a-a-financial-advisor-1821869335](https://lifehacker.com/what-to-look-for-in-a-financial-advisor-1821869335)
+> 原文：<https://lifehacker.com/what-to-look-for-in-a-financial-advisor-1821869335>
 
 并非所有的理财顾问都生而平等。
 

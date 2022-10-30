@@ -1,6 +1,6 @@
 # 食用带有金属光泽的熟食肉安全吗？
 
-> 原文:[https://the take out . com/is-it-safe-to-eat-deli-meats with the metallic-sheen-1820948143](https://thetakeout.com/is-it-safe-to-eat-deli-meats-with-that-metallic-sheen-1820948143)
+> 原文：<https://thetakeout.com/is-it-safe-to-eat-deli-meats-with-that-metallic-sheen-1820948143>
 
 你有没有翻过一片烤牛肉，抓住那一丝丝？一丝彩虹般的彩虹色，对于一个普通的冷切来说有点超凡脱俗？即使是新鲜的，一些肉片也会散发出金属光泽，让你犹豫不决。但是你看到的是普通的干涉光学现象，而不是腐臭腐败的标志。除非你的肉开始发臭，或者彩虹般的颜色伴随着一些生长中的模糊微生物，否则你的午餐肉是可以安全食用的。
 

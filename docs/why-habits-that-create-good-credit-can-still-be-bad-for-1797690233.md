@@ -1,6 +1,6 @@
 # 给你带来良好信用的习惯仍然会对你的财务不利
 
-> 原文:[https://life hacker . com/why-habits-that-create-good-credit-can-been-bad-for-1797690233](https://lifehacker.com/why-habits-that-create-good-credit-can-still-be-bad-for-1797690233)
+> 原文：<https://lifehacker.com/why-habits-that-create-good-credit-can-still-be-bad-for-1797690233>
 
 你知道信用很重要，你甚至学会了一些提高分数的技巧。关于信用，每个人都应该学到的最后一课是，对你的信用评分有好处的东西并不总是对你的财务健康有好处。 [赊账有时会有悖于良好的理财习惯。](http://twocents.lifehacker.com/good-money-habits-that-can-hurt-your-credit-1785962981)
 

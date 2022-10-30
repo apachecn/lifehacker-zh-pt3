@@ -1,6 +1,6 @@
 # 飓风过后需要注意的健康危害
 
-> 原文:[https://life hacker . com/health-hazards-to-watch-for-after-a-hurricane-1798482061](https://lifehacker.com/health-hazards-to-watch-out-for-after-a-hurricane-1798482061)
+> 原文：<https://lifehacker.com/health-hazards-to-watch-out-for-after-a-hurricane-1798482061>
 
 飓风哈维给德克萨斯地区带来了巨大的洪水和破坏。除了这些显而易见的大问题之外，还有其他健康因素，哈维之路上的人们一旦回到他们的家庭和企业，就需要注意这些因素。*福布斯* [写了一份极好的细目分类](https://www.forbes.com/sites/judystone/2017/08/26/hidden-health-hazards-after-hurricanes-what-to-expect-after-harvey/#6fdda09931a6) 哈维受害者需要留意的某人的事情。以下是其中的几个:
 

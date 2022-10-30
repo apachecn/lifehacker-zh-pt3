@@ -1,6 +1,6 @@
 # 炎热天气保持水分的小贴士
 
-> 原文:[https://life hacker . com/tips-to-stay-hydrated-on-hot-days-1798734700](https://lifehacker.com/tips-to-stay-hydrated-on-hot-days-1798734700)
+> 原文：<https://lifehacker.com/tips-to-stay-hydrated-on-hot-days-1798734700>
 
 无论你在美国的哪个地方，这个周末大概都已经热了， ***真的*** 热。
 

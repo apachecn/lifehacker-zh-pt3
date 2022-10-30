@@ -1,6 +1,6 @@
 # 亚马逊 Prime 会员可以提前观看 Jumanji
 
-> 原文:[https://life hacker . com/Amazon-prime-members-can-catch-an-early-screening-of-ju-1820945412](https://lifehacker.com/amazon-prime-members-can-catch-an-early-screening-of-ju-1820945412)
+> 原文：<https://lifehacker.com/amazon-prime-members-can-catch-an-early-screening-of-ju-1820945412>
 
 亚马逊 Prime 是不断送出的礼物。免费快速运输、流媒体视频、Kindle 借阅图书馆——这几乎就像杰夫·贝索斯试图让我们完全依赖他的公司！哈！好吧，这份清单上又多了一项额外福利:可以提前观看新电影《朱曼吉》。
 

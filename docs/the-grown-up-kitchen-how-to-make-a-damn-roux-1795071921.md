@@ -1,6 +1,6 @@
 # 成人厨房:如何做该死的面糊
 
-> 原文:[https://life hacker . com/the-grown-kitchen-how-to-make-a-damn-Roux-1795071921](https://lifehacker.com/the-grown-up-kitchen-how-to-make-a-damn-roux-1795071921)
+> 原文：<https://lifehacker.com/the-grown-up-kitchen-how-to-make-a-damn-roux-1795071921>
 
 一个面糊用任何其他的名字仍然是一个面糊，但也许其他的名字应该是“脂肪和面粉糊增稠剂”，因为这个花哨的法语名字似乎让人们反感。
 

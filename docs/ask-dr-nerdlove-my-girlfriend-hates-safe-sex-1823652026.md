@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我的女朋友讨厌安全性行为
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-hates-safe-sex-1823652026](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-hates-safe-sex-1823652026)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-hates-safe-sex-1823652026>
 
 你好，所有的干预顽童，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是一个约会建议专栏，为你的约会 DPS 提供支持。本周，我们将讨论关系冲突。当你和你的伴侣不能就如何避孕达成一致时，你会怎么做？有什么最好的方法来帮助一个正在应对严重焦虑发作并且似乎什么都不管用的人呢？
 

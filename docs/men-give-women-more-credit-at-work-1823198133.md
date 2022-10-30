@@ -1,6 +1,6 @@
 # 男人:在工作中给女人更多的信任
 
-> 原文:[https://life hacker . com/men-give-women-more-credit-in-work-1823198133](https://lifehacker.com/men-give-women-more-credit-at-work-1823198133)
+> 原文：<https://lifehacker.com/men-give-women-more-credit-at-work-1823198133>
 
 男人！Mule Design 联合创始人 Erika Hall 有 [七种方法让你抵消工作中的性别歧视](https://medium.com/@mulegirl/be-a-pal-my-dudes-a34c06df1b1d) 。有些会帮助你消除公开的性别歧视；一些称呼比较无意识的习惯如 [打断女性的话](https://www.advisory.com/daily-briefing/2017/07/07/men-interrupting-women) 。你不需要掌握权力来使用它们。霍尔的文章没有填充符，所以请全部阅读，但这里有我们最喜欢的提示:
 

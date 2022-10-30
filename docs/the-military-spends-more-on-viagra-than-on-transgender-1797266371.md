@@ -1,6 +1,6 @@
 # 军方花在伟哥上的钱比跨性别士兵的医疗费还多
 
-> 原文:[https://life hacker . com/the-military-spend-than-on-transgender-1797266371](https://lifehacker.com/the-military-spends-more-on-viagra-than-on-transgender-1797266371)
+> 原文：<https://lifehacker.com/the-military-spends-more-on-viagra-than-on-transgender-1797266371>
 
 今天早上， [我们的总统颁布了](https://twitter.com/realDonaldTrump/status/890197095151546369) 法令，称军方“不会接受或允许”跨性别者服役(事实核查:他们已经这样做了)，理由是“巨大的医疗费用和混乱”所以，等一下，这里的金额是多少？
 

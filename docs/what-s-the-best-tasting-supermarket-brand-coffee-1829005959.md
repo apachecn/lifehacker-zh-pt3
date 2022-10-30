@@ -1,6 +1,6 @@
 # 最好喝的超市品牌咖啡是什么？
 
-> 原文:[https://the take out . com/what-s-the-best-tasting-supermarket-brand-coffee-1829005959](https://thetakeout.com/what-s-the-best-tasting-supermarket-brand-coffee-1829005959)
+> 原文：<https://thetakeout.com/what-s-the-best-tasting-supermarket-brand-coffee-1829005959>
 
 尽管我在星巴克花了那么多钱(现在我又回到了咖啡因的行列 )，你可能会认为我会拿走其中的一部分，买一个合适的保温瓶，把周末在家喝的咖啡带到工作场所。但是，在我将要做出这样一个改变生活(也可能省钱)的决定之前，我怎么能确定我在家里，从超市买的咖啡是最好的呢？毕竟，多年来我的首选都是八点钟，但为什么福尔杰和麦斯威尔已经存在了这么久？在杂货店也很容易买到(甚至在药店，我在沃尔格林买了一大堆):星巴克、Dunkin' Donuts 和麦当劳麦咖啡。
 

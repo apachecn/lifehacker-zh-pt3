@@ -1,6 +1,6 @@
 # 旅行时如何打包健康食品
 
-> 原文:[https://life hacker . com/how-to-pack-healthy-food-when-you-travel-1787484164](https://lifehacker.com/how-to-pack-healthy-food-when-you-travel-1787484164)
+> 原文：<https://lifehacker.com/how-to-pack-healthy-food-when-you-travel-1787484164>
 
 无论你是在节食还是只想确保你有比快餐更好的选择当你走向伟大的未知时，随身携带健康食品总是一个选择。这比听起来容易，如果你知道一些窍门的话。
 

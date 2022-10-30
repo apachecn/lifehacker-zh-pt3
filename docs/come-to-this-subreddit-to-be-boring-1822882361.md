@@ -1,6 +1,6 @@
 # 来这种地方无聊
 
-> 原文:[https://life hacker . com/come-to-this-subred dit-to-be-boring-1822882361](https://lifehacker.com/come-to-this-subreddit-to-be-boring-1822882361)
+> 原文：<https://lifehacker.com/come-to-this-subreddit-to-be-boring-1822882361>
 
 尽管人们嘲笑互联网是一个让你表达最无聊想法的地方，但事实上，吸引注意力的竞争是如此激烈，如果你想得到任何回应，你必须超级有趣。即使是著名的 subred dit[/r/mildlyinteries](https://www.reddit.com/r/mildlyinteresting/)也充满了令人着迷的东西，就像 [惊慌失措的自动售货机](https://www.reddit.com/r/mildlyinteresting/comments/6h4p6z/vending_machine_at_work_made_an_error_and/)[出其不意的双胞胎](https://www.reddit.com/r/mildlyinteresting/comments/7lp60y/my_friend_met_a_stranger_at_a_wedding_that_looked/) 和[九指钢琴家](https://www.reddit.com/r/mildlyinteresting/comments/7oczjg/i_have_only_four_fingers_on_my_left_hand_and_have/) 。你那无聊的故事没人注意。除非你去[/r/benigne existence](https://www.reddit.com/r/BenignExistence/)。
 

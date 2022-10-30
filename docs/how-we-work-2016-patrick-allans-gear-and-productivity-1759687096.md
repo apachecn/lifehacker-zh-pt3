@@ -1,6 +1,6 @@
 # 我们如何工作，2016 年:帕特里克·艾伦的装备和生产力提示
 
-> 原文:[https://life hacker . com/how-we-work-2016-Patrick-allans-gear-and-productivity-1759687096](https://lifehacker.com/how-we-work-2016-patrick-allans-gear-and-productivity-1759687096)
+> 原文：<https://lifehacker.com/how-we-work-2016-patrick-allans-gear-and-productivity-1759687096>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。今天你要和我一起去幕后。我是帕特里克，这是我假装工作的方式。
 

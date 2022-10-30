@@ -1,6 +1,6 @@
 # 用这个技巧找到每一件破碎的装饰品
 
-> 原文:[https://life hacker . com/find-every-piece-a-piece-a-broken-corrupt-with this-trick-1821505346](https://lifehacker.com/find-every-piece-of-a-broken-ornament-with-this-trick-1821505346)
+> 原文：<https://lifehacker.com/find-every-piece-of-a-broken-ornament-with-this-trick-1821505346>
 
 花哨的圣诞树装饰品有破碎成十亿个小玻璃片的趋势，当它们掉落或被撞倒时，很容易割伤人。不要让那发生！当你的猫、孩子或笨拙的家庭成员愉快地忘记了一件装饰品时，试试这个把戏。
 

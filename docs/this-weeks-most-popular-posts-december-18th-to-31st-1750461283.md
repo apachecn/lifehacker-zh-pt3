@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 18 日至 31 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-18-to-31-1750461283](https://lifehacker.com/this-weeks-most-popular-posts-december-18th-to-31st-1750461283)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-18th-to-31st-1750461283>
 
 假期即将结束，某些编辑 即将离开，但在 2015 年的最后几周，裁员仍将继续。我们学习了撬锁和安全剧场，尝试在一天内读完一整本书，比较了最好的中级 Android 手机，等等。以下是过去两周的热门帖子。
 

@@ -1,6 +1,6 @@
 # 如何少吃肉，布莱恩·卡特曼
 
-> 原文:[https://lifehacker.com/how-to-eat-less-meat-1794753566](https://lifehacker.com/how-to-eat-less-meat-1794753566)
+> 原文：<https://lifehacker.com/how-to-eat-less-meat-1794753566>
 
 考虑到肉对我们自身健康和环境的影响，我们有大约一百万个理由应该少吃肉。但是我们大多数人都不想完全吃素，戒掉冷火鸡。没关系。这是布莱恩·卡特曼在他的新书《还原主义者的解决方案》[](https://www.amazon.com/Reducetarian-Solution-Surprisingly-Reducing-Transform/dp/0143129716?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-eat-less-meat-1794753566&asc_source=&tag=kinjalifehackerlink-20)*中传达的信息。*
 

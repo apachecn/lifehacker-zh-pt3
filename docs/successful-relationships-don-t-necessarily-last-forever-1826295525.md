@@ -1,6 +1,6 @@
 # 成功的关系不一定会永远持续下去
 
-> 原文:[https://life hacker . com/successful-relationships-don-t-needly-last-forever-1826295525](https://lifehacker.com/successful-relationships-don-t-necessarily-last-forever-1826295525)
+> 原文：<https://lifehacker.com/successful-relationships-don-t-necessarily-last-forever-1826295525>
 
 作为一个社会，我们倾向于将分手和离婚视为一种失败。但是一段感情的结束并不意味着它在某些方面不成功。有时候一次放纵对双方来说都是理想的，有时候漫长的婚姻结束是新开始的唯一机会，每段关系都会教会你一些你以前不知道的东西。
 

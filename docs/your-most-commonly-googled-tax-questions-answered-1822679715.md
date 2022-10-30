@@ -1,6 +1,6 @@
 # 你最常被谷歌搜索到的税务问题，答案
 
-> 原文:[https://life hacker . com/your-最常被谷歌搜索的税务问题-答案-1822679715](https://lifehacker.com/your-most-commonly-googled-tax-questions-answered-1822679715)
+> 原文：<https://lifehacker.com/your-most-commonly-googled-tax-questions-answered-1822679715>
 
 看看你的 1099，意识到你今年需要更多的时间来报税？在国会通过新税法后，你对自己是否属于新的阶层感到困惑吗？
 

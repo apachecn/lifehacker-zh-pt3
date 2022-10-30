@@ -1,6 +1,6 @@
 # 你第一次玩单板有什么要知道的
 
-> 原文:[https://life hacker . com/what-to-know-your ' s first-time-paddle boarding-1828234357](https://lifehacker.com/what-to-know-your-first-time-paddleboarding-1828234357)
+> 原文：<https://lifehacker.com/what-to-know-your-first-time-paddleboarding-1828234357>
 
 独木舟和皮划艇总是很有趣，但最近最时髦的出租船艇的地方是立式桨板，或称 SUP。划水很有趣，也能提供很好的核心锻炼。
 

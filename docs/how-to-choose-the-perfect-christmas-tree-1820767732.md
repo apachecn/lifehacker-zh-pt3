@@ -1,6 +1,6 @@
 # 如何选择完美的圣诞树
 
-> 原文:[https://life hacker . com/how-to-choose-the-perfect-tree-1820767732](https://lifehacker.com/how-to-choose-the-perfect-christmas-tree-1820767732)
+> 原文：<https://lifehacker.com/how-to-choose-the-perfect-christmas-tree-1820767732>
 
 在我们家，当我开始考虑买圣诞树时，我们还在吃感恩节剩菜。去年我们选错了，结果一棵树在两周内就死了，这是一个有点令人沮丧的转变；我对隐喻太敏感了，以至于我不会为在下垂、干燥的外壳下打开过量的消费品而感到高兴...枯树。这足以让一个人考虑弄一棵假树。
 

@@ -1,6 +1,6 @@
 # Audeze 希望改变你对游戏耳机和 3D 音频的看法
 
-> 原文:[https://gizmodo . com/au deze-wants-to-change-how-you-think-about-gaming-headp-1823762092](https://gizmodo.com/audeze-wants-to-change-how-you-think-about-gaming-headp-1823762092)
+> 原文：<https://gizmodo.com/audeze-wants-to-change-how-you-think-about-gaming-headp-1823762092>
 
 耳机中的 3D 音频像环绕立体声家庭影院一样包围着你，这是一件难以捉摸的事情。市场由游戏玩家的产品主导，他们播放为环绕声混合的内容，并希望听到对手身后灌木丛中的嘎吱声，因为这是一个生死攸关的问题(至少在游戏中)。他们也不想在凌晨 3 点吵醒邻居。
 

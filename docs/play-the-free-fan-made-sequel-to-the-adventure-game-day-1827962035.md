@@ -1,6 +1,6 @@
 # 玩冒险游戏“触手之日”的免费粉丝制作的续集
 
-> 原文:[https://life hacker . com/play-the-free-fan-made-sequel-to-the-adventure-game-day-1827962035](https://lifehacker.com/play-the-free-fan-made-sequel-to-the-adventure-game-day-1827962035)
+> 原文：<https://lifehacker.com/play-the-free-fan-made-sequel-to-the-adventure-game-day-1827962035>
 
 旧卢卡斯艺术公司的 ScummVM 游戏有一些令人愉快的东西:美丽的环境，狡猾的谜题，和令人难以置信的画外音(对于那些不仅仅是移动嘴巴上的文字说明的游戏来说)。
 

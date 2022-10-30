@@ -1,6 +1,6 @@
 # 极简主义者的工作和娱乐空间
 
-> 原文:[https://life hacker . com/the-minimalists-work-and-play-space-1776589986](https://lifehacker.com/the-minimalists-work-and-play-space-1776589986)
+> 原文：<https://lifehacker.com/the-minimalists-work-and-play-space-1776589986>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-utsUYaqRJrk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-utsUYaqRJrk&start=0) 
 

@@ -1,6 +1,6 @@
 # 微软为 Xbox One 推出每月 10 美元的游戏订阅服务[更新]
 
-> 原文:[https://kotaku . com/Microsoft-unveils-10-monthly-gaming-subscription-servi-1792818880](https://kotaku.com/microsoft-unveils-10-monthly-gaming-subscription-servi-1792818880)
+> 原文：<https://kotaku.com/microsoft-unveils-10-monthly-gaming-subscription-servi-1792818880>
 
 Xbox Game Pass 将于今年春天在 Xbox One 上推出，它将让主机用户以每月 9.99 美元的价格访问 100 多种 Xbox One 和向后兼容的游戏。
 

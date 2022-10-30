@@ -1,6 +1,6 @@
 # 如何屏蔽脸书过早发布的假日帖子
 
-> 原文:[https://life hacker . com/how-to-block-holiday-posts-on-Facebook-1820362383](https://lifehacker.com/how-to-block-holiday-posts-on-facebook-1820362383)
+> 原文：<https://lifehacker.com/how-to-block-holiday-posts-on-facebook-1820362383>
 
 我想今年第一次发生在我身上是在上周末，11 月初，在一家宜家。当我们绕过最后一个拐角到达收银台时，我和我的男朋友面对着数百棵等待购买的人造圣诞树。后来，我开始注意到降临节日历和装饰品几乎在我去的每个地方都出现，同时在我的社交订阅中提到了节日。
 

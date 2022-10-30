@@ -1,6 +1,6 @@
 # 约会软件是用来安排约会的
 
-> 原文:[https://life hacker . com/dating-apps-is-for-scheduling-dates-people-1824294863](https://lifehacker.com/dating-apps-are-for-scheduling-dates-people-1824294863)
+> 原文：<https://lifehacker.com/dating-apps-are-for-scheduling-dates-people-1824294863>
 
 有些人遇到问题，需要合格的专业人士给予微妙的建议。其他人只需要在网上随便找一个人踢他们的牙齿(当然，要诚实)。我是后者。欢迎回到 [彪悍的爱情](http://lifehacker.com/tag/tough-love#_ga=2.269169905.1295021153.1516057126-819016074.1513967708) 。
 

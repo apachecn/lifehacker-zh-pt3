@@ -1,6 +1,6 @@
 # 如何选购适合自己的医用大麻
 
-> 原文:[https://life hacker . com/how-to-choose-and-procure-the-right-of-kind of-medical-mar-1770545279](https://lifehacker.com/how-to-choose-and-procure-the-right-kind-of-medical-mar-1770545279)
+> 原文：<https://lifehacker.com/how-to-choose-and-procure-the-right-kind-of-medical-mar-1770545279>
 
 使用医用大麻最困难的是正确的剂量。你有多种给药方式，即便如此，你也必须弄清楚如何准确给药。让我们来看看你可以购买的不同类型的产品，以及哪些产品可以最大程度地缓解你的压力。
 

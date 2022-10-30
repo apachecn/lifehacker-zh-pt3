@@ -1,6 +1,6 @@
 # 外卖快餐酱的详尽指南
 
-> 原文:[https://the take out . com/the-a-v-club-s-exhaustive-guide-to-fast-food-sauce-1798288551](https://thetakeout.com/the-a-v-club-s-exhaustive-guide-to-fast-food-sauces-1798288551)
+> 原文：<https://thetakeout.com/the-a-v-club-s-exhaustive-guide-to-fast-food-sauces-1798288551>
 
 让我们花几分钟讨论一下酱这个至关重要的话题。我最大的问题是:我们是把酱当成一种载体，一种点缀，还是最终目的？酱是可有可无还是必不可少？和所有食物一样，这些都是取决于环境的主观和个人的问题。举个例子:如果你在吃薯条和奎索，大多数人都会同意薯条的作用是提供奶酪酱。Béarnaise 酱搭配里贝叶，突出了牛排的牛肉味。
 

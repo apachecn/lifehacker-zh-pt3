@@ -1,6 +1,6 @@
 # 使用“环形理论”来避免在危机中说错话
 
-> 原文:[https://life hacker . com/use-the-ring-theory-to-keep-from-say-the-mist-thi-1798540880](https://lifehacker.com/use-the-ring-theory-to-keep-from-saying-the-wrong-thi-1798540880)
+> 原文：<https://lifehacker.com/use-the-ring-theory-to-keep-from-saying-the-wrong-thi-1798540880>
 
 飓风哈维继续袭击德克萨斯州，摧毁房屋，摧毁生命。不管你是不是德州人，你可能都知道有人受到了影响，向你的朋友和熟人伸出援手的冲动是强烈的。你应该这么做！
 

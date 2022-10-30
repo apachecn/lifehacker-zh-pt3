@@ -1,6 +1,6 @@
 # 使用脸书和 Instagram 的新工具监控您的社交媒体时间
 
-> 原文:[https://life hacker . com/monitor-your-time-spend-on-social-media-with-new-tools-1828029375](https://lifehacker.com/monitor-your-time-spent-on-social-media-with-new-tools-1828029375)
+> 原文：<https://lifehacker.com/monitor-your-time-spent-on-social-media-with-new-tools-1828029375>
 
 我们大多数人都知道我们在手机上花了太多时间。这导致了一系列关于负面影响的研究，而且不断偷看你的通知和抓住每一个机会关注那些数字松鼠肯定会有影响。
 

@@ -1,6 +1,6 @@
 # 当你去户外探险时，在钱包里放几个硬币
 
-> 原文:[https://life hacker . com/在钱包里放几个硬币——当你去冒险的时候——1826967866](https://lifehacker.com/keep-a-few-coins-in-your-wallet-when-you-go-adventuring-1826967866)
+> 原文：<https://lifehacker.com/keep-a-few-coins-in-your-wallet-when-you-go-adventuring-1826967866>
 
 丢了钱包就像丢了你的一部分。所有的东西都在里面——你的驾照、信用卡、会员证和你爱人的照片。这个聪明的技巧可以帮助你在下次外出时永远避免丢失钱包。
 

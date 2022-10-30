@@ -1,6 +1,6 @@
 # 为什么你在寒冷的天气锻炼时会气喘
 
-> 原文:[https://life hacker . com/why-you-wheeze-when-you-exercise-in-the-cold-1753746217](https://lifehacker.com/why-you-wheeze-when-you-exercise-in-the-cold-1753746217)
+> 原文：<https://lifehacker.com/why-you-wheeze-when-you-exercise-in-the-cold-1753746217>
 
 锻炼计划的开始很糟糕:你终于鼓起勇气做一些高强度的间歇，或者第一次在寒冷中跑，十分钟后你几乎无法呼吸。这是为什么，以及你能做些什么。
 

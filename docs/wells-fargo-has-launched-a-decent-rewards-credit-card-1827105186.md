@@ -1,6 +1,6 @@
 # 富国银行发行了一种体面的奖励信用卡
 
-> 原文:[https://life hacker . com/wells-Fargo-has-launch-a-deadline-rewards-credit-card-1827105186](https://lifehacker.com/wells-fargo-has-launched-a-decent-rewards-credit-card-1827105186)
+> 原文：<https://lifehacker.com/wells-fargo-has-launched-a-decent-rewards-credit-card-1827105186>
 
 看起来富国银行正试图通过推出新的奖励信用卡来赎罪(或至少获得一些新客户)。
 

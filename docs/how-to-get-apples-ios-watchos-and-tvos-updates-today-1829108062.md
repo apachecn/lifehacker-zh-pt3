@@ -1,6 +1,6 @@
 # 如何安装苹果的 iOS 12、watchOS 5、tvOS 12 更新
 
-> 原文:[https://life hacker . com/how-to-get-apple-IOs-watch OS-and-tvos-updates-today-1829108062](https://lifehacker.com/how-to-get-apples-ios-watchos-and-tvos-updates-today-1829108062)
+> 原文：<https://lifehacker.com/how-to-get-apples-ios-watchos-and-tvos-updates-today-1829108062>
 
 苹果公司将于今天发布上周宣布的一系列软件更新，包括 iOS 12、watchOS 5 和 tvOS 12。
 

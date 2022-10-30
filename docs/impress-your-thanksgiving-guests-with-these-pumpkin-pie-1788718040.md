@@ -1,6 +1,6 @@
 # 用这些升级的南瓜派打动你的感恩节客人
 
-> 原文:[https://life hacker . com/impress-your-thanksgiving-guests with these-pumpkin-pie-1788718040](https://lifehacker.com/impress-your-thanksgiving-guests-with-these-pumpkin-pie-1788718040)
+> 原文：<https://lifehacker.com/impress-your-thanksgiving-guests-with-these-pumpkin-pie-1788718040>
 
 感恩节不是没有南瓜派的感恩节，但是标准可以显得有点，嗯，*标准*。要做一道你的朋友和家人真正感激的节日葫芦甜点，试试下面这些美味的变化。
 

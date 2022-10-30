@@ -1,6 +1,6 @@
 # 怀旧如何帮你省钱
 
-> 原文:[https://life hacker . com/how-怀旧能让你成为更好的储蓄者-1819514389](https://lifehacker.com/how-nostalgia-can-make-you-a-better-saver-1819514389)
+> 原文：<https://lifehacker.com/how-nostalgia-can-make-you-a-better-saver-1819514389>
 
 我们的情绪在我们的金钱习惯和行为中扮演着的重要角色。金融心理学家 Brad Klontz 博士最近的一项研究表明，我们的记忆也是如此。
 

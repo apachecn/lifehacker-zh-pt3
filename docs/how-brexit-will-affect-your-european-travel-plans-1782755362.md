@@ -1,6 +1,6 @@
 # 英国退出欧盟将如何影响你的欧洲旅行计划
 
-> 原文:[https://life hacker . com/how-英国退出欧盟将如何影响你的欧洲旅行计划-1782755362](https://lifehacker.com/how-brexit-will-affect-your-european-travel-plans-1782755362)
+> 原文：<https://lifehacker.com/how-brexit-will-affect-your-european-travel-plans-1782755362>
 
 随着英国决定离开欧盟的最初冲击逐渐消退，是时候评估细节并展望未来了。当然还有更重要的担忧，但是如果你计划一次海外暑假旅行，你可能会问，“英国退出欧盟的事情会如何影响我的假期？”我们已经有答案了。
 

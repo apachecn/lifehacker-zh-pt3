@@ -1,6 +1,6 @@
 # 当你的孩子不能大便时该怎么办
 
-> 原文:[https://life hacker . com/what-do-what-when-your-kid-cant-poop-1825309462](https://lifehacker.com/what-to-do-when-your-kid-cant-poop-1825309462)
+> 原文：<https://lifehacker.com/what-to-do-when-your-kid-cant-poop-1825309462>
 
 当孩子们把一次简单的上厕所之旅变成一场马拉松时，问题不应该仅仅是“他们在里面做什么？”但是“他们没有在做什么？”
 

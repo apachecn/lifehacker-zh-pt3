@@ -1,6 +1,6 @@
 # 创造一种以款待为基础的宠物食品“调料”,来引诱狗狗进食
 
-> 原文:[https://life hacker . com/use-treats-to-make-a-pet-food-sorting-to-trick-fido-I-1821697575](https://lifehacker.com/use-treats-to-make-a-pet-food-seasoning-to-trick-fido-i-1821697575)
+> 原文：<https://lifehacker.com/use-treats-to-make-a-pet-food-seasoning-to-trick-fido-i-1821697575>
 
 我被祝福了(还是被诅咒了？)和一只名叫塔克的异常聪明的小猎犬生活在一起。他有大量的食物过敏，所以他不得不吃这种不含小麦或鸡肉产品的特殊狗粮，几年前我们决定给他买鲑鱼口味的。大约六个月前，当商店暂时用完了他的手提包时，悲剧降临到了我们家。天真的我反而抢了一袋同品牌的白鱼食品。鱼就是鱼，对吧？不不不是的。
 

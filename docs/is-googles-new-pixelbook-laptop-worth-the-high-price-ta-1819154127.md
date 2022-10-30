@@ -1,6 +1,6 @@
 # 谷歌新推出的 Pixelbook 笔记本电脑值这个高价吗？
 
-> 原文:[https://life hacker . com/is-Google-new-pixel book-laptop-worth-the-high-price-ta-1819154127](https://lifehacker.com/is-googles-new-pixelbook-laptop-worth-the-high-price-ta-1819154127)
+> 原文：<https://lifehacker.com/is-googles-new-pixelbook-laptop-worth-the-high-price-ta-1819154127>
 
 大多数[Chrome book](https://lifehacker.com/this-interactive-chromebook-comparison-tool-helps-you-f-1783758254)便宜、简单、可靠，但谷歌多年来一直在发布运行其 Chrome 操作系统的高端笔记本电脑。该系列的最新产品是 [、1000 美元的 Pixelbook](https://gizmodo.com/google-wants-to-sell-you-a-1000-chromebook-1819126689#_ga=2.91830489.233542325.1507127109-472331419.1499788931) ，它看起来准备与其他笔记本电脑和平板电脑的混合体竞争，如 [微软的 Surface Pro 和 iPad Pro](https://lifehacker.com/pro-tablet-showdown-ipad-pro-vs-surface-pro-4-1753293972) 。
 

@@ -1,6 +1,6 @@
 # 什么时候你应该跳过苹果升级
 
-> 原文:[https://life hacker . com/when-you-should-skip-apple-upgrades-1821013599](https://lifehacker.com/when-you-should-skip-apple-upgrades-1821013599)
+> 原文：<https://lifehacker.com/when-you-should-skip-apple-upgrades-1821013599>
 
 无论你是否已经看到它的运行，或者收到苹果公司的一些侵扰性通知，你可能已经不止一次地被指示安装该公司的新 MAC OS High SierraT3。像改进的照片管理和苹果文件系统这样的功能绝对是诱人的，但是，正如该公司的许多升级一样，操作系统并没有完全优化到可以在你在奥巴马第一个总统任期结束时购买的 Mac 上运行。如果你想知道是否应该升级你的 Mac，这里有几个需要考虑的因素，以及一个让你的升级 Mac 更有吸引力的方法。
 

@@ -1,6 +1,6 @@
 # 告诉我们你对蒂姆·费里斯的问题
 
-> 原文:[https://life hacker . com/tell-us-your-questions-for-Tim-ferriss-1820450914](https://lifehacker.com/tell-us-your-questions-for-tim-ferriss-1820450914)
+> 原文：<https://lifehacker.com/tell-us-your-questions-for-tim-ferriss-1820450914>
 
 在本周的 [《升级版》](http://lifehacker.com/theshow#_ga=2.163099957.869606253.1510573001-402151780.1496325830) 节目中，我们将与作家、企业家、投资者和全明星多重身份演员蒂姆·费里斯坐在一起。
 

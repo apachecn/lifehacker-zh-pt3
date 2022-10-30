@@ -1,6 +1,6 @@
 # 只需一张城市长椅，就能完成一次巡回训练
 
-> 原文:[https://life hacker . com/blast-through-a-circuit-workout-with-just-a-city-bench-1797260775](https://lifehacker.com/blast-through-a-circuit-workout-with-just-a-city-bench-1797260775)
+> 原文：<https://lifehacker.com/blast-through-a-circuit-workout-with-just-a-city-bench-1797260775>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-iCVHWALWO4Y&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-iCVHWALWO4Y&start=0) 
 

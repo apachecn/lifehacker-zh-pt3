@@ -1,6 +1,6 @@
 # 对女性来说，谈判更棘手。无论如何你应该做它。
 
-> 原文:[https://life hacker . com/negotiating-is-trickier-for-women-you-should-do-it-any-1793978437](https://lifehacker.com/negotiating-is-trickier-for-women-you-should-do-it-any-1793978437)
+> 原文：<https://lifehacker.com/negotiating-is-trickier-for-women-you-should-do-it-any-1793978437>
 
 这是我第一次与新的潜在客户会面，他们抛出了一个数字。这是一个不错的数字，但我最近发誓要谈判更多。所以我抛出了一个更高的数字，然后在尴尬的沉默中屏住呼吸。我讨厌充满焦虑、令人紧张的谈判过程，但这就是为什么我已经学会接受它，尽管事实上。
 

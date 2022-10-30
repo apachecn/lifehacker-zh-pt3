@@ -1,6 +1,6 @@
 # 不要担心食物中的“化学物质”
 
-> 原文:[https://life hacker . com/停止担心食物中的化学物质-1728806246](https://lifehacker.com/stop-worrying-about-chemicals-in-your-food-1728806246)
+> 原文：<https://lifehacker.com/stop-worrying-about-chemicals-in-your-food-1728806246>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-bkhhCi7nMFI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-bkhhCi7nMFI&start=0) 
 

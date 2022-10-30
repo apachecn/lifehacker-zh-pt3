@@ -1,6 +1,6 @@
 # 用新的“休息一下”功能让自己远离 YouTube
 
-> 原文:[https://life hacker . com/keep-you-from-binging-YouTube-with-the-new-take-a-1826009385](https://lifehacker.com/keep-yourself-from-binging-youtube-with-the-new-take-a-1826009385)
+> 原文：<https://lifehacker.com/keep-yourself-from-binging-youtube-with-the-new-take-a-1826009385>
 
 YouTube 视频:你永远不可能只看一个[。这不是你的错。YouTube 通过不断提供量身定制的建议(和一个积极的自动播放系统)来保持你的参与度。](https://lifehacker.com/watch-youtube-videos-without-ads-for-free-with-this-and-1824262552)
 

@@ -1,6 +1,6 @@
 # 找到所有你当地的唱片店
 
-> 原文:[https://life hacker . com/find-all-your-local-record-stores-with-vinyl hub-1820544889](https://lifehacker.com/find-all-your-local-record-stores-with-vinylhub-1820544889)
+> 原文：<https://lifehacker.com/find-all-your-local-record-stores-with-vinylhub-1820544889>
 
 网站 [VinylHub](https://www.vinylhub.com/) 收录了世界各地的唱片商店，随着 [黑胶唱片销量持续上升](https://www.cnbc.com/2017/04/13/vinyl-is-vintage-and-the-future-as-new-generation-warms-to-an-old-music-form.html) ，这是一个越来越有用的工具。由音乐数据库 [Discogs](https://www.discogs.com/) 于 2014 年推出的 Vinyl 已经确定了超过 6500 家唱片店，以及时间、店面照片和特色流派等细节。用户可以“关注”商店，并标记他们已经访问过或希望访问的商店。
 

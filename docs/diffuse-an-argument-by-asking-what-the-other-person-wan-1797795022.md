@@ -1,6 +1,6 @@
 # 如何用几句话化解一场争论
 
-> 原文:[https://life hacker . com/diffuse-an-argument-by-questing-the-other-person-wan-1797795022](https://lifehacker.com/diffuse-an-argument-by-asking-what-the-other-person-wan-1797795022)
+> 原文：<https://lifehacker.com/diffuse-an-argument-by-asking-what-the-other-person-wan-1797795022>
 
 我真的不喜欢对抗，并且会尽我所能避免大多数争论。尽管如此，和其他人一样，我还是时不时会碰上几个。我读过大量不同的处理紧张局势的技巧，但本周我听到了一些很棒的建议:“问问他们想从争论中得到什么。”演讲者将此归因于奥普拉，虽然这可能是真的，但我找不到她说过这话的记录。不过，这是个好建议。
 

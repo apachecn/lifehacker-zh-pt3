@@ -1,6 +1,6 @@
 # 关于益生元和益生菌你需要知道什么
 
-> 原文:[https://life hacker . com/what-to-know-about-益生元和益生菌-1825401708](https://lifehacker.com/what-to-know-about-prebiotics-and-probiotics-1825401708)
+> 原文：<https://lifehacker.com/what-to-know-about-prebiotics-and-probiotics-1825401708>
 
 即使在我们最干净的时候，我们也被细菌覆盖，我们充满了细菌。没事的！这完全正常。这些微生物对我们的健康至关重要。你可能不需要弄乱它们，但如果你想尝试，你需要知道的术语是*益生元*和*益生菌*。
 

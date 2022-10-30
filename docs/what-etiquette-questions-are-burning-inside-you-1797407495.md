@@ -1,6 +1,6 @@
 # 有哪些礼仪问题在你内心燃烧？
 
-> 原文:[https://life hacker . com/what-礼节-问题-在你体内燃烧-1797407495](https://lifehacker.com/what-etiquette-questions-are-burning-inside-you-1797407495)
+> 原文：<https://lifehacker.com/what-etiquette-questions-are-burning-inside-you-1797407495>
 
 我们生活在混乱的时代；礼仪规则变得越来越复杂，我们谁都跟不上。然而，我们是来帮助你尝试的。
 

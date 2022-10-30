@@ -1,6 +1,6 @@
 # 这家意大利航空公司现在提供免费的罗马中途停留
 
-> 原文:[https://life hacker . com/this-Italian-airline-is-now-offer-stoppers-in-1823076442](https://lifehacker.com/this-italian-airline-is-now-offering-free-stopovers-in-1823076442)
+> 原文：<https://lifehacker.com/this-italian-airline-is-now-offering-free-stopovers-in-1823076442>
 
 计划去欧洲旅行吗？为什么不在永恒之城罗马短暂停留一下呢？意大利航空公司是意大利的旗舰航空公司，目前为乘客提供长达三晚的免费中途停留。
 

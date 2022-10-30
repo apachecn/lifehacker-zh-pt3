@@ -1,6 +1,6 @@
 # 为什么你应该看看新的火狐量子浏览器
 
-> 原文:[https://life hacker . com/why-you-should-check-out-the-new-Firefox-quantum-browse-1820430885](https://lifehacker.com/why-you-should-check-out-the-new-firefox-quantum-browse-1820430885)
+> 原文：<https://lifehacker.com/why-you-should-check-out-the-new-firefox-quantum-browse-1820430885>
 
 Mozilla 声称其更新后的网络浏览器速度是上一个的两倍，并且比竞争对手——尤其是谷歌 Chrome 使用的内存少得多。它被称为 Firefox Quantum，它可能会给网络上最流行的浏览器一个机会。
 

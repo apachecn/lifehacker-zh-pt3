@@ -1,6 +1,6 @@
 # 使用这个 Google Earth 扩展，每天都可以在浏览器中访问新的地方
 
-> 原文:[https://life hacker . com/visit-new-places-every-day-in-your-browser-with this-go-1825237430](https://lifehacker.com/visit-new-places-every-day-in-your-browser-with-this-go-1825237430)
+> 原文：<https://lifehacker.com/visit-new-places-every-day-in-your-browser-with-this-go-1825237430>
 
 并不是你使用的每一个 Chrome 或 Firefox 扩展都必须百分之百致力于生产力或实用性。有时候，看着漂亮的东西真好。对于来自谷歌地球的地球视图( [Chrome](https://chrome.google.com/webstore/detail/earth-view-from-google-ea/bhloflhklmhfpedakmangadcdofhnnoh) ， [Firefox](https://addons.mozilla.org/en-US/firefox/addon/earth-view-from-google/) )，我并不在乎它是否会耗尽我的浏览器的内存或以任何方式影响它的性能。这让我开心，也会让你开心——这正是我们延长这一周的原因。
 

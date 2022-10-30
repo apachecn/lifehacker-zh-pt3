@@ -1,6 +1,6 @@
 # 安全食用季节性海鲜的新规则
 
-> 原文:[https://life hacker . com/the-new-rules-for-safety-eating-seafood-1798154616](https://lifehacker.com/the-new-rules-for-safely-eating-seasonal-seafood-1798154616)
+> 原文：<https://lifehacker.com/the-new-rules-for-safely-eating-seasonal-seafood-1798154616>
 
 一个古老的经验法则警告说，在没有休息的月份应该避免吃贝类——五月、六月、七月和八月——正是我们许多人前往海边并渴望品尝海洋水果的季节。
 

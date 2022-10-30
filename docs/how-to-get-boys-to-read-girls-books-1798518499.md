@@ -1,6 +1,6 @@
 # 如何让男生读“女生书”
 
-> 原文:[https://life hacker . com/how-to-get-boys-read-girls-books-1798518499](https://lifehacker.com/how-to-get-boys-to-read-girls-books-1798518499)
+> 原文：<https://lifehacker.com/how-to-get-boys-to-read-girls-books-1798518499>
 
 当我想象有孩子的时候，我快乐的幻想包括蜷缩起来，给我的孩子读我童年最喜欢的书。我想象着*草原小屋*、*长袜子皮皮*和*小妇人*的夜晚。当我的两个儿子出生时，我担心他们对关于农业设备的书籍的喜爱意味着他们甚至不会考虑阅读，比如说*《绿山墙的安妮》*，因为那是一本“女孩的书”，他们可能只对男孩的故事感兴趣。
 

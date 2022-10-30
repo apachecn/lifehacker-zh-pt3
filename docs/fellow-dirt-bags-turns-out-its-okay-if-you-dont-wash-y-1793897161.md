@@ -1,6 +1,6 @@
 # 脏兮兮的伙伴们:事实证明，如果你不洗脚也没关系
 
-> 原文:[https://Jezebel . com/fellow-dirt-bags-turns-out-it-okay-if-you-don-wash-y-1793897161](https://jezebel.com/fellow-dirt-bags-turns-out-its-okay-if-you-dont-wash-y-1793897161)
+> 原文：<https://jezebel.com/fellow-dirt-bags-turns-out-its-okay-if-you-dont-wash-y-1793897161>
 
 去年九月，我写了一篇非常愚蠢的 [博文](http://jezebel.com/do-you-wash-your-legs-1787009111) ，它是基于 FXX 的*你是最糟糕的*的一个情节，其中吉米惊恐地得知他的同居女友格雷琴在洗澡时不洗脚。正如我当时承认的，我也不知道。对这个消息的反应是...比预期的更强。
 

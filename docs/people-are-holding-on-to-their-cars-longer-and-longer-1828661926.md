@@ -1,6 +1,6 @@
 # 人们持有汽车的时间更长了，而那些巨额贷款也无济于事
 
-> 原文:[https://jalopnik . com/people-is-hold-on-their-car-long-and-long-long-1828661926](https://jalopnik.com/people-are-holding-on-to-their-cars-longer-and-longer-1828661926)
+> 原文：<https://jalopnik.com/people-are-holding-on-to-their-cars-longer-and-longer-1828661926>
 
 根据美国运输部的一项新研究，过去十年来，美国街道上汽车的平均年龄有所增加，这表明人们要么购买更多的二手车，要么推迟更换他们已经拥有的汽车。也许是因为新车比旧车差，人们对此不感兴趣，但可能不是。
 

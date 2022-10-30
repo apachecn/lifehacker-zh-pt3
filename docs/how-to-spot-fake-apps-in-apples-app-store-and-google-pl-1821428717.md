@@ -1,6 +1,6 @@
 # 如何识别苹果应用商店和 Google Play 中的假冒应用
 
-> 原文:[https://life hacker . com/how-to-spot-fake-apps-in-apple-app-store-and-Google-pl-1821428717](https://lifehacker.com/how-to-spot-fake-apps-in-apples-app-store-and-google-pl-1821428717)
+> 原文：<https://lifehacker.com/how-to-spot-fake-apps-in-apples-app-store-and-google-pl-1821428717>
 
 当一件事好得不真实时，它通常是真实的。
 

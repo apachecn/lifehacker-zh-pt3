@@ -1,6 +1,6 @@
 # 我是如何欺骗自己去读更多的书
 
-> 原文:[https://life hacker . com/how-I-诱骗自己读更多的书-1792775150](https://lifehacker.com/how-i-tricked-myself-into-reading-more-books-1792775150)
+> 原文：<https://lifehacker.com/how-i-tricked-myself-into-reading-more-books-1792775150>
 
 我喜欢书。我不能离开一个没有至少一个的书店。但是我也倾向于买书，而不是真的去读。在这个过程中，阅读被其他娱乐形式所取代。为了回到正轨，我做了一些简单的改变，这些改变帮助了我的阅读习惯——不需要快速阅读 。
 

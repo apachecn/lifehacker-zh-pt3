@@ -1,6 +1,6 @@
 # Google Home、Amazon Echo 和 Siri 的超级碗提示和技巧
 
-> 原文:[https://life hacker . com/super-bowl-tips-and-tricks-for-Google-home-Amazon-echo-1822671270](https://lifehacker.com/super-bowl-tips-and-tricks-for-google-home-amazon-echo-1822671270)
+> 原文：<https://lifehacker.com/super-bowl-tips-and-tricks-for-google-home-amazon-echo-1822671270>
 
 超级碗快到了，无论你关心的是 [食物](https://skillet.lifehacker.com/preview/super-bowl-snacks-for-your-vegan-friends-1822634476?rev=1517515739027)[广告](https://lifehacker.com/how-to-watch-just-the-super-bowl-commercials-1757433459) ，还是真正的比赛，都有值得兴奋的事情。但是如果你对这些都不感兴趣，也许你会从与你选择的人工智能助手谈论足球中得到乐趣。
 

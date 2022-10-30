@@ -1,6 +1,6 @@
 # 旅行时如何选择背包和旅行箱
 
-> 原文:[https://life hacker . com/how-to-choose a-a-backpack and-a-troy-1795017699](https://lifehacker.com/how-to-choose-between-a-backpack-and-a-suitcase-for-tra-1795017699)
+> 原文：<https://lifehacker.com/how-to-choose-between-a-backpack-and-a-suitcase-for-tra-1795017699>
 
 不同类型的假期需要不同的装备，我们大多数人在前往机场时做出的最大选择之一是选择将所有东西都装进背包或手提箱。它们各有优缺点，更适合某些情况。
 

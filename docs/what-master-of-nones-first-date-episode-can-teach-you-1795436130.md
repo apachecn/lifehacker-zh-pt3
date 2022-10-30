@@ -1,6 +1,6 @@
 # 《谁也不是大师》的《第一次约会》一集中有哪些可以教你约会的内容
 
-> 原文:[https://life hacker . com/what-master-of-nones-first-date-插曲-can-teach-you-1795436130](https://lifehacker.com/what-master-of-nones-first-date-episode-can-teach-you-1795436130)
+> 原文：<https://lifehacker.com/what-master-of-nones-first-date-episode-can-teach-you-1795436130>
 
 网飞的第二季[](https://www.netflix.com/title/80049714)*是深思熟虑的，有趣的，而且经常很感人，但夹杂在争论中的一集比其他任何东西都更好地描绘了在线约会的尴尬世界。事实证明，在所有这些令人畏缩的幽默背后，隐藏着一些很好的教训。* 
 

@@ -1,6 +1,6 @@
 # 苦艾酒:一种美味的饮料，不仅仅是马提尼的附属品
 
-> 原文:[https://life hacker . com/vermouth-a-delicious-drink-than-a-a-a-martini-a-1776061220](https://lifehacker.com/vermouth-a-delicious-drink-thats-more-than-a-martini-a-1776061220)
+> 原文：<https://lifehacker.com/vermouth-a-delicious-drink-thats-more-than-a-martini-a-1776061220>
 
 如果你喝过苦艾酒，很可能是在马提尼或曼哈顿酒里，但你可能从来没有喝过纯的。幸运的是，苦艾酒在美国开始成为一种“东西”，整个酒吧都在致力于这种复杂、美味、强化的葡萄酒。继续阅读，了解什么是苦艾酒，如何选择，以及如何使用它。
 

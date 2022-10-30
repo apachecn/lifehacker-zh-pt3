@@ -1,6 +1,6 @@
 # 2015 年最受欢迎的采访
 
-> 原文:[https://life hacker . com/2015 年最受欢迎的采访-1746916343](https://lifehacker.com/most-popular-interviews-of-2015-1746916343)
+> 原文：<https://lifehacker.com/most-popular-interviews-of-2015-1746916343>
 
 面对现实吧:我们大多数人都不知道自己在做什么。我们在前进的过程中不断完善，更有经验的人提供的任何指导都是宝贵的。我们会接受任何我们能得到的帮助。这就是为什么，每周，我们都会问一些名人他们是如何工作的。
 

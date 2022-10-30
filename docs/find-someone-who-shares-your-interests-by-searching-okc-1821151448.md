@@ -1,6 +1,6 @@
 # 通过关键字搜索 OkCupid，找到与你志趣相投的人
 
-> 原文:[https://life hacker . com/find-someone-shares-your-interest-search-OKC-1821151448](https://lifehacker.com/find-someone-who-shares-your-interests-by-searching-okc-1821151448)
+> 原文：<https://lifehacker.com/find-someone-who-shares-your-interests-by-searching-okc-1821151448>
 
 约会应用 swipe 可能会让人上瘾和满足，但它也依赖于快速判断，而这并不一定是维持关系的因素——你知道，共同的兴趣和共同的世界观？
 

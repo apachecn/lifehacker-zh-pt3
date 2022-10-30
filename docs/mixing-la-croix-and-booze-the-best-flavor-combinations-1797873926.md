@@ -1,6 +1,6 @@
 # 混合拉克罗伊和酒:最佳风味组合
 
-> 原文:[https://life hacker . com/mixing-la-Croix-and-booze-the-best-flavor-combinations-1797873926](https://lifehacker.com/mixing-la-croix-and-booze-the-best-flavor-combinations-1797873926)
+> 原文：<https://lifehacker.com/mixing-la-croix-and-booze-the-best-flavor-combinations-1797873926>
 
 我们国家对苏打水的痴迷丝毫没有减弱的迹象，而处于这一趋势前沿的是拉克罗伊，这种无处不在的加味汽水，人们永远也喝不够。你可以独自享受拉克罗伊酒，但当你可以在里面倒一些酒时，你为什么要这样做呢？
 

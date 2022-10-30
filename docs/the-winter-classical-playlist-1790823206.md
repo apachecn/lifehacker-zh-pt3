@@ -1,6 +1,6 @@
 # 冬季古典音乐播放列表
 
-> 原文:[https://life hacker . com/the-winter-classic-playlist-1790823206](https://lifehacker.com/the-winter-classical-playlist-1790823206)
+> 原文：<https://lifehacker.com/the-winter-classical-playlist-1790823206>
 
 随着天气变冷，呆在室内看起来比平时更有吸引力。打开这个播放列表，在冬季主题的古典音乐中放松下来。
 

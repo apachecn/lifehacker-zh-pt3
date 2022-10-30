@@ -1,6 +1,6 @@
 # 如果你不确定是否认识某人，该如何问候他
 
-> 原文:[https://life hacker . com/how-to-great-someone-if-you-know-them-1796917511](https://lifehacker.com/how-to-greet-someone-if-youre-not-sure-if-you-know-them-1796917511)
+> 原文：<https://lifehacker.com/how-to-greet-someone-if-youre-not-sure-if-you-know-them-1796917511>
 
 我们中的一些人不擅长记住面孔，这可能会导致一个尴尬的时刻，当我们认为我们是第一次见到某人，而他们说我们以前见过。或者更糟的是，我们认为我们以前见过某人，并以那种方式问候他们，却发现他们根本不知道我们是谁。这里有一个一句话的小窍门来避免这些尴尬的时刻。
 

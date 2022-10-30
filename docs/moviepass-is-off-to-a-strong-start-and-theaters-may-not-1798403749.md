@@ -1,6 +1,6 @@
 # 电影通行证有一个强劲的开端，影院可能无法阻止它
 
-> 原文:[https://life hacker . com/movie pass-is-off-to-a-strong-start-and-theaters-may-not-1798403749](https://lifehacker.com/moviepass-is-off-to-a-strong-start-and-theaters-may-not-1798403749)
+> 原文：<https://lifehacker.com/moviepass-is-off-to-a-strong-start-and-theaters-may-not-1798403749>
 
 MoviePass 的 [每月 10 美元的新价格点](https://lifehacker.com/moviepass-now-offers-unlimited-movies-in-theaters-for-1797865400) 似乎太好了，不能错过。他们迅速扩大了用户群，尽管惹恼了美国最大的剧院运营商，但似乎没有人能对此做些什么。
 

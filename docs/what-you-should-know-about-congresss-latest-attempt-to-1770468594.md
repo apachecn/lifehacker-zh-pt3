@@ -1,6 +1,6 @@
 # 关于国会将加密技术定罪的最新尝试，你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-about-congress-latest-attempt-1770468594](https://lifehacker.com/what-you-should-know-about-congresss-latest-attempt-to-1770468594)
+> 原文：<https://lifehacker.com/what-you-should-know-about-congresss-latest-attempt-to-1770468594>
 
 国会的一项新法案草案将迫使科技公司在执法部门要求的任何时候破坏或破解自己的安全功能和加密。听起来很可怕？确实是。这是账单上写的，以及你能做的。
 

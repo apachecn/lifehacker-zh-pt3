@@ -1,6 +1,6 @@
 # 您可以在笔记本电脑和低端电脑上玩的 25 款精彩游戏
 
-> 原文:[https://kotaku . com/25-在笔记本电脑和低端电脑上玩游戏-1824288109](https://kotaku.com/25-great-games-you-can-play-on-laptops-and-low-end-pcs-1824288109)
+> 原文：<https://kotaku.com/25-great-games-you-can-play-on-laptops-and-low-end-pcs-1824288109>
 
 仅仅因为你不能接触到周围最花哨的装备并不意味着你必须玩低于标准的游戏。即使你在一台土豆电脑或低端电脑上，也有足够多的东西供你享受。以下是 Kotaku 推荐的几乎可以在任何平台上运行的高质量游戏。
 

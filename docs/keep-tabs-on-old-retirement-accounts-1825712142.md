@@ -1,6 +1,6 @@
 # 密切关注旧的退休账户
 
-> 原文:[https://life hacker . com/keep-tabs-on-old-retirement-accounts-1825712142](https://lifehacker.com/keep-tabs-on-old-retirement-accounts-1825712142)
+> 原文：<https://lifehacker.com/keep-tabs-on-old-retirement-accounts-1825712142>
 
 当你离开上一份工作时，你的退休金账户发生了什么变化？你翻过身了吗？因为你喜欢这个计划选项就不管了？彻底忘掉这件事？如果是后者，你并不孤单。根据美国政府问责局 的数据，2004 年至 2013 年间，超过 2500 万名员工在跳槽时留下了至少一个退休账户。根据 Kiplinger 的说法，这将转化为数千亿美元的养老金损失。
 

@@ -1,6 +1,6 @@
 # 2017 年最佳解释者
 
-> 原文:[https://lifehacker.com/best-explainers-of-2017-1821582034](https://lifehacker.com/best-explainers-of-2017-1821582034)
+> 原文：<https://lifehacker.com/best-explainers-of-2017-1821582034>
 
 不了解就无法改善生活。以下是我们 2017 年最好的解释者，帮助你理解新闻和你生活中发生的所有奇怪的小事。
 

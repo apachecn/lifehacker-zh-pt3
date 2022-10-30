@@ -1,6 +1,6 @@
 # 通过单独购买团体机票来省钱
 
-> 原文:[https://life hacker . com/save-money-by-purchasing-group-飞机票-个人-1821168323](https://lifehacker.com/save-money-by-purchasing-group-plane-tickets-individual-1821168323)
+> 原文：<https://lifehacker.com/save-money-by-purchasing-group-plane-tickets-individual-1821168323>
 
 每当我和一大群朋友计划一次大型旅行时，我通常会主动购买机票。信用卡积分是件严肃的事情，在我的旅程中加入几个朋友意味着他们可以利用我的航空公司身份，这取决于我们选择乘坐哪一家。这似乎一直是一个显而易见的问题，除了本周 [*惊悚片*指出](https://www.thrillist.com/travel/nation/airline-secrets-tips-and-tricks) 我可能多付了钱。
 

@@ -1,6 +1,6 @@
 # 为什么“AMC 存根 A-List”是 MoviePass 的可行替代方案
 
-> 原文:[https://life hacker . com/why-AMC-stubs-a-list-is-a-available-alternative-to-movie pa-1827136335](https://lifehacker.com/why-amc-stubs-a-list-is-a-viable-alternative-to-moviepa-1827136335)
+> 原文：<https://lifehacker.com/why-amc-stubs-a-list-is-a-viable-alternative-to-moviepa-1827136335>
 
 上周有消息称，AMC 影院将推出自己的电影- 观看订阅节目 ，与 MoviePass 和 Sinemia 竞争。如今， [Stubs A-List](https://www.amctheatres.com/amcstubs/alist) 服务已经上线运行，每周提供三场 AMC 电影放映(任何类型)，每月收费 20 美元。
 

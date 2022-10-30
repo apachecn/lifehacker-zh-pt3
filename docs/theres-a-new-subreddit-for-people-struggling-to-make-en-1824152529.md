@@ -1,6 +1,6 @@
 # 有一个新的分支机构为那些努力维持生计的人服务
 
-> 原文:[https://life hacker . com/theres-a-new-subred dit-for-people-fighting-to-make-en-1824152529](https://lifehacker.com/theres-a-new-subreddit-for-people-struggling-to-make-en-1824152529)
+> 原文：<https://lifehacker.com/theres-a-new-subreddit-for-people-struggling-to-make-en-1824152529>
 
 报道个人理财的困难之一是，大多数专家推荐的技巧和诀窍只对特定人群有意义:那些有一些可支配收入并有可能向上流动的人。当然，你可以写如何处理挫折，以及应急基金应该有多大，但是标准的建议并不适用于所有人。
 

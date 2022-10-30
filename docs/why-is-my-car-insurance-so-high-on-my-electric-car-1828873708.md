@@ -1,6 +1,6 @@
 # 为什么我的电动车上我的车险那么高？
 
-> 原文:[https://jalopnik . com/why-my-car-insurance-so-high-on-my-electric-car-1828873708](https://jalopnik.com/why-is-my-car-insurance-so-high-on-my-electric-car-1828873708)
+> 原文：<https://jalopnik.com/why-is-my-car-insurance-so-high-on-my-electric-car-1828873708>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。有时人们会陷入困境或者不知道该做什么，所以我决定挑几个问题，试着帮帮他们。
 

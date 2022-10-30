@@ -1,6 +1,6 @@
 # 如何购买暴雪嘉年华的门票
 
-> 原文:[https://life hacker . com/how-to-buy-tickets-of-blizzcon-1825863303](https://lifehacker.com/how-to-buy-tickets-for-blizzcon-1825863303)
+> 原文：<https://lifehacker.com/how-to-buy-tickets-for-blizzcon-1825863303>
 
 觉得幸运吗？暴雪的大型 [暴雪嘉年华](https://blizzcon.com/en-us/) 游戏大会的两批门票中的第一批将于本周发售(5 月 9 日星期三和 5 月 12 日星期六)。如果要亲自参加，看水平？？麦克·默尔海姆近在咫尺，你将面对一群渴望得到入场券的虫族玩家。这里有一些建议，你可以试着最大化你的胜算
 

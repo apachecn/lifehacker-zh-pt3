@@ -1,6 +1,6 @@
 # 如何带着孩子度过长途飞行
 
-> 原文:[https://life hacker . com/how-to-survive-a long-flight-with kids-1829328797](https://lifehacker.com/how-to-survive-a-long-flight-with-kids-1829328797)
+> 原文：<https://lifehacker.com/how-to-survive-a-long-flight-with-kids-1829328797>
 
 你如何带着三个孩子长途飞行而不失去理智(或你的储蓄账户)？这就是我们这周要看的。
 

@@ -1,6 +1,6 @@
 # 通过说服自己这是一件好事来应对压力
 
-> 原文:[https://life hacker . com/cope-to-stress-by-concerned-yourself-its-a-good-thin-1802925932](https://lifehacker.com/cope-with-stress-by-convincing-yourself-its-a-good-thin-1802925932)
+> 原文：<https://lifehacker.com/cope-with-stress-by-convincing-yourself-its-a-good-thin-1802925932>
 
 压力是我们都必须面对的事情之一。但是如果你能利用压力为自己谋利呢？
 

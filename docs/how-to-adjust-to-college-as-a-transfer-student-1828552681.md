@@ -1,6 +1,6 @@
 # 作为转学生如何适应大学
 
-> 原文:[https://life hacker . com/how-to-adjust-to-college-as-transfer-student-1828552681](https://lifehacker.com/how-to-adjust-to-college-as-a-transfer-student-1828552681)
+> 原文：<https://lifehacker.com/how-to-adjust-to-college-as-a-transfer-student-1828552681>
 
 根据 Inside Higher Ed 的说法，超过三分之一的学生在某个时候转学，希望找到更好的工作。虽然在学术上或经济上这对很多人来说是有意义的，但这也可能是一种非常孤独的经历。你在第一年(或学期)交了朋友，现在你需要重新开始。
 

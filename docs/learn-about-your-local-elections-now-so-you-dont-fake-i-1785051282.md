@@ -1,6 +1,6 @@
 # 现在就了解你的地方选举，这样你就不会在投票站作假了
 
-> 原文:[https://life hacker . com/learn-about-your-local-elections-now-so-you-don-fake-I-1785051282](https://lifehacker.com/learn-about-your-local-elections-now-so-you-dont-fake-i-1785051282)
+> 原文：<https://lifehacker.com/learn-about-your-local-elections-now-so-you-dont-fake-i-1785051282>
 
 总统竞选只是今年 11 月几十场投票中的一场。众议院和参议院都是公开的，从学校董事会到法官都有地方选举。你的投票很可能在这些层面产生影响，结果更有可能直接影响你的生活。不要等到选举日才解决所有问题。
 

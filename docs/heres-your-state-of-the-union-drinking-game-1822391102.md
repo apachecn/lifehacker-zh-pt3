@@ -1,6 +1,6 @@
 # 这是你的国情咨文饮酒游戏
 
-> 原文:[https://life hacker . com/heres-your-state-the-union-drinking-game-1822391102](https://lifehacker.com/heres-your-state-of-the-union-drinking-game-1822391102)
+> 原文：<https://lifehacker.com/heres-your-state-of-the-union-drinking-game-1822391102>
 
 国情咨文似乎是一个过去时代的不必要的遗物，当时美国公众和他们的代表之间还有一些距离，当时人们不知道，例如，总统付钱给一个与他有婚外情的色情明星，或者我们可以通过打开福克斯新闻频道来找出他的政策重点。当我们可以浏览总统的推特时，谁愿意听他唠叨一个小时呢？
 

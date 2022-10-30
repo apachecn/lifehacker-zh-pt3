@@ -1,6 +1,6 @@
 # 维修技师的角落工作区
 
-> 原文:[https://life hacker . com/the-repair-techs-corner-workspace-1769965224](https://lifehacker.com/the-repair-techs-corner-workspace-1769965224)
+> 原文：<https://lifehacker.com/the-repair-techs-corner-workspace-1769965224>
 
 [马克·乔丹](https://www.flickr.com/photos/68673721@N05/) 的工作区干净整洁，实际上看起来好像有人在里面完成工作——主要是因为马克是一名电脑技术人员，他使用左边的整个区域来维修和维护客户端系统。但这并不意味着他的主要设置不好看。
 

@@ -1,6 +1,6 @@
 # 所有你可能已经忘记的有用的 iPhone 风景功能
 
-> 原文:[https://life hacker . com/all-the-used-iphone-landscape-features-you-may-have-f-1760191665](https://lifehacker.com/all-the-useful-iphone-landscape-features-you-may-have-f-1760191665)
+> 原文：<https://lifehacker.com/all-the-useful-iphone-landscape-features-you-may-have-f-1760191665>
 
 当它发布的时候，苹果很重视这样一个事实:你可以把你的 iPhone 侧过来，从不同的角度看一个应用程序。如今，我们中的许多人都保持旋转锁定，除非我们在看视频，否则不会切换到横向模式。如果这听起来像你，你错过了一些有用的功能。
 

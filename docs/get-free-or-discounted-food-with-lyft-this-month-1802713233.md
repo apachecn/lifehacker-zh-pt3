@@ -1,6 +1,6 @@
 # 本月通过 Lyft 获得免费或打折食品
 
-> 原文:[https://life hacker . com/get-free-or-discounted-food with lyft-this-month-1802713233](https://lifehacker.com/get-free-or-discounted-food-with-lyft-this-month-1802713233)
+> 原文：<https://lifehacker.com/get-free-or-discounted-food-with-lyft-this-month-1802713233>
 
 9 月，Lyft 与 12 个主要城市的当地餐厅合作，为你提供免费或打折的食物，只要你展示你的 Lyft 应用程序。
 

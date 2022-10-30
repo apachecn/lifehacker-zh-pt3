@@ -1,6 +1,6 @@
 # 如何实现无纸化办公
 
-> 原文:[https://life hacker . com/how-to-steps-to-a-papered-office-1823328014](https://lifehacker.com/how-to-take-steps-toward-a-paperless-office-1823328014)
+> 原文：<https://lifehacker.com/how-to-take-steps-toward-a-paperless-office-1823328014>
 
 现在是 2018 年，你的家庭办公室里有大量的纸张，工作中有一个文件柜，你的孩子刚刚交给你一份新的实地考察表，出于某种原因，你必须传真给他们的老师。如果这听起来不像你承诺的无纸化未来，你是对的。幸运的是，您不需要太多就能处理好您已经拥有的(或即将创建的)所有 pdf。一台扫描仪、一部智能手机和一些云存储服务，就能让你把桌上的一堆文件变成一个无纸仙境。
 

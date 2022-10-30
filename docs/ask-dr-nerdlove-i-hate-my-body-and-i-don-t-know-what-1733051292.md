@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我讨厌我的身体，我不知道该怎么办
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-hate-my-body-and-I-don-know-what-1733051292](https://kotaku.com/ask-dr-nerdlove-i-hate-my-body-and-i-don-t-know-what-1733051292)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-hate-my-body-and-i-don-t-know-what-1733051292>
 
 你好，互联网！欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，世界上最快的约会建议专栏专栏。
 

@@ -1,6 +1,6 @@
 # 制作你自己版本的塔可钟万圣节糖果玉米粉饼
 
-> 原文:[https://life hacker . com/make-your-own-version-of-taco-bells-Halloween-candy-que-1820020244](https://lifehacker.com/make-your-own-version-of-taco-bells-halloween-candy-que-1820020244)
+> 原文：<https://lifehacker.com/make-your-own-version-of-taco-bells-halloween-candy-que-1820020244>
 
 无论你是选择分发糖果还是带着小人儿去“不给糖就捣蛋”,你无疑会发现自己在 11 月 1 日拥有一定数量的万圣节糖果。你可以漫不经心地把它铲进嘴里，每天分发一块，让它持续到圣诞节(我妈妈最喜欢的)，或者你可以从塔可钟的菜单中拿出一页，放在玉米粉圆饼里油炸。
 

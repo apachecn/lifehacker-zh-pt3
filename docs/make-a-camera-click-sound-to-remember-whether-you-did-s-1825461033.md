@@ -1,6 +1,6 @@
 # 让相机发出“咔嗒”声来记住你是否做了什么
 
-> 原文:[https://life hacker . com/make-a-camera-click-sound-to-remember-you-did-s-1825461033](https://lifehacker.com/make-a-camera-click-sound-to-remember-whether-you-did-s-1825461033)
+> 原文：<https://lifehacker.com/make-a-camera-click-sound-to-remember-whether-you-did-s-1825461033>
 
 这可能是有史以来最愚蠢的记忆技巧之一，但它很有效，所以嘿。背景故事:每次我用卷发棒的时候，大概一个月一次，我都会在离开家 10 分钟后有同样的焦虑。我拔掉插头了吗？！我的大脑会开始疯狂地试图回忆。*好吧，我想我做到了。不，我确定我做到了。我不得不这么做，对吗？是的，我做到了！...但是如果我没有呢？！*开始闪现第二天当地报纸的画面，上面有一张我被烧毁的房子和一脸愧疚的我的照片(尽管我的卷发看起来很棒，不可否认)。
 

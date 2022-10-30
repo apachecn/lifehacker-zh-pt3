@@ -1,6 +1,6 @@
 # 介绍后代
 
-> 原文:[https://lifehacker.com/introducing-offspring-1795705380](https://lifehacker.com/introducing-offspring-1795705380)
+> 原文：<https://lifehacker.com/introducing-offspring-1795705380>
 
 欢迎来到《后代》:这个网站是为父母、准父母、父母的朋友、或者只是喜欢阅读婴儿食品混合技术或时间表技巧(这里不做评判)的孩子般的灵魂而设的。后代是 Lifehacker 的智慧、节省时间、好主意和天才技巧的宝库，它将使您的孩子——无论他们是无助的孩子、小胡子青少年还是介于两者之间的孩子——的照顾和喂养不仅更容易，而且实际上是一种享受。
 

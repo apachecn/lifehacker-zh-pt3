@@ -1,6 +1,6 @@
 # 加入我们的 MoviePass 支持小组
 
-> 原文:[https://life hacker . com/join-our-movie pass-support-group-1828417452](https://lifehacker.com/join-our-moviepass-support-group-1828417452)
+> 原文：<https://lifehacker.com/join-our-moviepass-support-group-1828417452>
 
 MoviePass 是一项服务，可以让你在不同的限制下每月观看不同数量的电影，最近它转向了每月三部电影的计划。一起去看电影的 [MoviePass 俱乐部](https://www.nytimes.com/2018/08/14/movies/moviepass-fans.html) 会怎么样？在一个电影票有点烂的世界里，他们会怎么样？下面我们来讨论一下，在我们的评论线程支持群。
 

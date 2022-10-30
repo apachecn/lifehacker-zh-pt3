@@ -1,6 +1,6 @@
 # 最好的汉堡配料是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-burger-topping-1827846571](https://lifehacker.com/whats-the-best-burger-topping-1827846571)
+> 原文：<https://lifehacker.com/whats-the-best-burger-topping-1827846571>
 
 我最喜欢在网上写关于食物的东西是所有的呼喊。某些食物很受欢迎——披萨、鸡蛋和排骨都有非常狂热的粉丝(就鸡蛋而言，还有讨厌的人)，他们有很多观点——但汉堡似乎是美国烹饪中特别有争议的一部分。
 

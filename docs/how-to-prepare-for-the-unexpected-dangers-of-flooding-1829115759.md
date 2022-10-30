@@ -1,6 +1,6 @@
 # 如何为洪水的意外危险做准备
 
-> 原文:[https://life hacker . com/how-to-prepare-the-unexpected-dangers-of-flooding-1829115759](https://lifehacker.com/how-to-prepare-for-the-unexpected-dangers-of-flooding-1829115759)
+> 原文：<https://lifehacker.com/how-to-prepare-for-the-unexpected-dangers-of-flooding-1829115759>
 
 暴风雨会摧毁你的家，夷平你的邻居，但即使在暴风雨过后，洪水也会带来你可能没有意识到的独特危险。事实证明，即使是在水中行走也会致命。
 

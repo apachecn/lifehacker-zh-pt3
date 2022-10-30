@@ -1,6 +1,6 @@
 # 如何和大孩子谈论性
 
-> 原文:[https://life hacker . com/how-to-talk-to-old-kids-on-sex-1796800679](https://lifehacker.com/how-to-talk-to-older-kids-about-sex-1796800679)
+> 原文：<https://lifehacker.com/how-to-talk-to-older-kids-about-sex-1796800679>
 
 几周前，我分享了和小孩子谈论性的技巧。今天，我回来分享一些关于和大孩子交谈的建议。
 

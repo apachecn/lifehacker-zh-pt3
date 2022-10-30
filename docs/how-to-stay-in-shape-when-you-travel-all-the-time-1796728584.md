@@ -1,6 +1,6 @@
 # 如何在旅行时保持身材
 
-> 原文:[https://life hacker . com/how-to-stay-when-you-all-time-1796728584](https://lifehacker.com/how-to-stay-in-shape-when-you-travel-all-the-time-1796728584)
+> 原文：<https://lifehacker.com/how-to-stay-in-shape-when-you-travel-all-the-time-1796728584>
 
 如果锻炼是你日常生活的一个重要组成部分，频繁的旅行很可能会把它击得粉碎。你被推进一个陌生的地方，缺乏便利设施和资源，并且经常无法控制自己的时间表。但是你不必完全放弃健身。我的健身爱好者朋友，这里有一些有用的建议。
 

@@ -1,6 +1,6 @@
 # 用黑樱桃代替糖浆来增加代基里酒的甜味
 
-> 原文:[https://life hacker . com/sweet-your-daiquiri-with-maraschino-inst-of-糖浆-1829228844](https://lifehacker.com/sweeten-your-daiquiri-with-maraschino-instead-of-syrup-1829228844)
+> 原文：<https://lifehacker.com/sweeten-your-daiquiri-with-maraschino-instead-of-syrup-1829228844>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们用我最好的朋友，马拉希诺利口酒，调制了一款风味稍有不同的代基里酒。
 

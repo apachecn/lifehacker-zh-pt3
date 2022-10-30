@@ -1,6 +1,6 @@
 # 鱼鹰 Farpoint 55 是轻便旅行的完美背包
 
-> 原文:[https://life hacker . com/the-osprey-farpoint-55-is-the-perfect-backpack-for-ligh-1788426011](https://lifehacker.com/the-osprey-farpoint-55-is-the-perfect-backpack-for-ligh-1788426011)
+> 原文：<https://lifehacker.com/the-osprey-farpoint-55-is-the-perfect-backpack-for-ligh-1788426011>
 
 鱼鹰的 Farpoint 55 背包真的是二合一。你有一个大的隔间来存放衣服和鞋子，加上一个可移动的背包，一旦你在某个地方建立了基地，它就可以减轻你的负担。另外，整个东西足够小，可以算作一个单独的随身包。
 

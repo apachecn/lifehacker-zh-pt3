@@ -1,6 +1,6 @@
 # 使用 Instagram 的收藏功能来保存有趣的帖子
 
-> 原文:[https://life hacker . com/use-insta grams-collections-feature-to-save-interest-1823041075](https://lifehacker.com/use-instagrams-collections-feature-to-save-interesting-1823041075)
+> 原文：<https://lifehacker.com/use-instagrams-collections-feature-to-save-interesting-1823041075>
 
 去年 [Instagram 推出了收藏](https://lifehacker.com/instagram-adds-collections-to-help-organize-bookmarked-1794385586) ，这是一种将应用程序中的图片组织到不同的策划组中的方式。这个功能已经存在了大约一年，但是大多数人都没有意识到它的存在。
 

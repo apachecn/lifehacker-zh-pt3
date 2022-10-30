@@ -1,6 +1,6 @@
 # 对付办公室控制狂的五种有效方法
 
-> 原文:[https://life hacker . com/five-effective-ways-to-deal-a-an-office-control-frea-1788716450](https://lifehacker.com/five-effective-ways-to-deal-with-an-office-control-frea-1788716450)
+> 原文：<https://lifehacker.com/five-effective-ways-to-deal-with-an-office-control-frea-1788716450>
 
 “我不会那样做。你为什么不试试这个？你在做什么?这是不对的。不要那样做。这样做。”听着耳熟吗？这些都是你可能从你办公室里臭名昭著的 [控制狂](https://www.themuse.com/advice/the-control-freaks-guide-to-delegating) 那里听说过的短语。而且，当你设法继续行驶而没有折断时，你正危险地接近你的极限。
 

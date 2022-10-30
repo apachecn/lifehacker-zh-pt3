@@ -1,6 +1,6 @@
 # 如何制作完美的沙拉
 
-> 原文:[https://life hacker . com/how-to-build-your-perfect-salad-1814206454](https://lifehacker.com/how-to-build-your-perfect-salad-1814206454)
+> 原文：<https://lifehacker.com/how-to-build-your-perfect-salad-1814206454>
 
 无论是[非丽莎辛普森](https://imgur.com/wdQRin7)[弗农·德思礼](https://www.goodreads.com/quotes/tag/uncle-vernon) ，还是你那位科学地将沙拉消费与性别认同相提并论的种族主义大叔，我都想不出还有比沙拉更让人讨厌的食物了。这真是太糟糕了，因为精心制作的沙拉是生活中最大的乐趣之一。
 

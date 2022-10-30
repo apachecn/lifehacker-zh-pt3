@@ -1,6 +1,6 @@
 # 最好的意大利面酱有三种成分
 
-> 原文:[https://life hacker . com/the-best-pasta-sauce-has-three-ingredients-1820519444](https://lifehacker.com/the-best-pasta-sauce-has-three-ingredients-1820519444)
+> 原文：<https://lifehacker.com/the-best-pasta-sauce-has-three-ingredients-1820519444>
 
 我不擅长烹饪，也很懒，所以我有时会做一顿晚餐，比如，鳄梨片放在吐司上，上面放些奶酪。这让我觉得自己像个 20 岁的瘾君子。所以我喜欢味道仍然像成人食物的简单食谱。比如玛塞拉·哈赞的意大利面酱食谱。你需要三种原料，而你要扔掉一种。
 

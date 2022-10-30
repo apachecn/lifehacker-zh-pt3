@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:8 月 19 日至 26 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-August-19-to-26-1785795357](https://lifehacker.com/this-weeks-most-popular-posts-august-19th-to-26th-1785795357)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-august-19th-to-26th-1785795357>
 
 本周，谷歌向 Nexus 手机推出了安卓牛轧糖，新功能如其名般甜美。事实上，牛轧糖并没有那么甜——但是有一些很酷的特点。我们还讨论了不值得花时间的省钱习惯，如何观看 NFL 比赛，为什么 HDR 电视如此重要，等等。
 

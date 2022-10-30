@@ -1,6 +1,6 @@
 # “擦亮你的水槽”会让你的生活更美好
 
-> 原文:[https://life hacker . com/shining-your-sink-will-make your life-better-1826391845](https://lifehacker.com/shining-your-sink-will-make-your-life-better-1826391845)
+> 原文：<https://lifehacker.com/shining-your-sink-will-make-your-life-better-1826391845>
 
 厨房水槽通常被认为是用来清洁东西的，而不是需要清洁的东西，但组织大师马拉·西里——也被称为的苍蝇女士——发誓说一个闪闪发光的水槽是一个更快乐、更有条理的厨房的关键。
 

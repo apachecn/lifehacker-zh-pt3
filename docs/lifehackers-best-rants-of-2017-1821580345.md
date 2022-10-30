@@ -1,6 +1,6 @@
 # 2017 年最精彩的演讲
 
-> 原文:[https://life hacker . com/life hacker-best-rants-of-2017-1821580345](https://lifehacker.com/lifehackers-best-rants-of-2017-1821580345)
+> 原文：<https://lifehacker.com/lifehackers-best-rants-of-2017-1821580345>
 
 听着，有时候生活黑客很难。各种各样的人挡了我们的路:粗鲁的“朋友”，无良的公司，有时，我们必须承认，甚至是我们自己。所以请原谅我们，如果我们不时需要放松并告诉你们所有的事情，即使我们的观点有争议。以下是我们 2017 年的最佳言论。
 

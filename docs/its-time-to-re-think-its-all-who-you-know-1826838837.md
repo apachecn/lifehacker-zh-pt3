@@ -1,6 +1,6 @@
 # 是时候重新思考“这都是你认识的人”
 
-> 原文:[https://life hacker . com/its-time-to-re-think-the-all-who-you-know 1826838837](https://lifehacker.com/its-time-to-re-think-its-all-who-you-know-1826838837)
+> 原文：<https://lifehacker.com/its-time-to-re-think-its-all-who-you-know-1826838837>
 
 当你听到“都是你认识的人”这句话时，你会想到什么？能为你的事业打开一扇门的有影响力的人？能给你一根骨头的高层朋友？我想现在是我们换个角度看这个短语的时候了。
 

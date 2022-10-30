@@ -1,6 +1,6 @@
 # 现在检查你的应急物资
 
-> 原文:[https://life hacker . com/check-your-emergency-supplies-now-1805912935](https://lifehacker.com/check-your-emergency-supplies-now-1805912935)
+> 原文：<https://lifehacker.com/check-your-emergency-supplies-now-1805912935>
 
 嘿，预科生们！还记得我们谈论过的 [为非偏执狂](https://lifehacker.com/doomsday-prep-for-non-paranoid-people-1793870107) 做末日准备吗？在这个不确定的时期，我们应该如何拥有一个储备充足的应急包，或者像我这样，一个应急柜？如果你在六个月前获得了基本的水、食物和装备，现在是时候打开你的工具包，检查你的供应品是否仍然可用、可食用和可饮用。你不会想在灾难中意识到你的电池漏了一地。
 

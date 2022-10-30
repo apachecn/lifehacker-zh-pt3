@@ -1,6 +1,6 @@
 # 新款 MacBook Air 出来之前不要买苹果笔记本电脑
 
-> 原文:[https://life hacker . com/don-t-buy-a-apple-laptop-than-the-new-macbook-air-come-1823519381](https://lifehacker.com/dont-buy-an-apple-laptop-until-the-new-macbook-air-come-1823519381)
+> 原文：<https://lifehacker.com/dont-buy-an-apple-laptop-until-the-new-macbook-air-come-1823519381>
 
 在过去的几年里，苹果对 MacBook Air 并没有太多好感，但这种情况可能会在今年春天发生改变。广受欢迎的苹果分析师 Ming-Chi Kuo(via[MAC rumors](https://www.macrumors.com/2018/03/03/kgi-cheaper-macbook-air-2q-2018/))的一份新报告称，我们可能会在未来几个月内买到更便宜的 MacBook Air，在这之前，你可能应该暂缓购买任何新的苹果笔记本电脑。
 

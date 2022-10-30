@@ -1,6 +1,6 @@
 # 发短信给旧金山现代艺术博物馆，它会回复你适合你心情的艺术作品
 
-> 原文:[https://life hacker . com/text-SFS-MoMA-and-it-will-response-with-art-to-fit-your-1796761145](https://lifehacker.com/text-sfs-moma-and-it-will-respond-with-art-to-fit-your-1796761145)
+> 原文：<https://lifehacker.com/text-sfs-moma-and-it-will-respond-with-art-to-fit-your-1796761145>
 
 对大多数人来说，参观旧金山现代艺术博物馆并不是一次随意的旅行。我在旧金山住了 6 年，只去过一次。然而，现在你只要给博物馆发短信询问，就能看到博物馆的一些艺术品。今天下午我从它的收藏中看到的艺术品比我几年来看到的都多。
 

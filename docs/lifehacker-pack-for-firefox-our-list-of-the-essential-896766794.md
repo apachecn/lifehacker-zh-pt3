@@ -1,6 +1,6 @@
 # Firefox 的 Lifehacker Pack:我们的基本扩展列表
 
-> 原文:[https://life hacker . com/life hacker-pack-for-Firefox-our-list-of-the-essential-896766794](https://lifehacker.com/lifehacker-pack-for-firefox-our-list-of-the-essential-896766794)
+> 原文：<https://lifehacker.com/lifehacker-pack-for-firefox-our-list-of-the-essential-896766794>
 
 Firefox 仍然是一个强大的浏览器，随着 Chrome 变得比以往任何时候都更重，许多人都把他们的老朋友 Firefox 作为替代选择。另外，它仍然拥有最好的、经过严格审查的扩展库。这里有一些必要的 Firefox 扩展，你可以根据自己的意愿来改变网络。
 

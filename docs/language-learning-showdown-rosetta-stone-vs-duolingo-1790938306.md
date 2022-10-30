@@ -1,6 +1,6 @@
 # 语言学习摊牌:罗塞塔石碑 vs .多林哥
 
-> 原文:[https://life hacker . com/language-learning-摊牌-Rosetta-stone-vs-duo lingo-1790938306](https://lifehacker.com/language-learning-showdown-rosetta-stone-vs-duolingo-1790938306)
+> 原文：<https://lifehacker.com/language-learning-showdown-rosetta-stone-vs-duolingo-1790938306>
 
 现在有这么多的语言学习资源 可以利用，感觉有点力不从心。Rosetta Stone 和 Duolingo 是两个最受欢迎的选择，但它们都有自己的特权和怪癖。让我们来翻译一下它们的主要特点，这样你就可以为你的语言学习选择合适的工具。
 

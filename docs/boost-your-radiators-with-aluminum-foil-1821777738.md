@@ -1,6 +1,6 @@
 # 用铝箔增强你的散热器
 
-> 原文:[https://life hacker . com/boost-your-radiants-with-铝箔-1821777738](https://lifehacker.com/boost-your-radiators-with-aluminum-foil-1821777738)
+> 原文：<https://lifehacker.com/boost-your-radiators-with-aluminum-foil-1821777738>
 
 无论你是在 [炸弹气旋](https://earther.com/what-is-this-bomb-cyclone-thing-about-to-blast-the-east-1821736336) 的路径上，还是在真正寒冷的世界中的任何其他地方，你都可能希望你的散热器能多排出一点热量。但愿如此。
 

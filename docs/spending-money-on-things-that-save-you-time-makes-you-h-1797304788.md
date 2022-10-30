@@ -1,6 +1,6 @@
 # 花钱买能节省时间的东西会让你更快乐
 
-> 原文:[https://life hacker . com/把钱花在能节省你时间的东西上-h-1797304788](https://lifehacker.com/spending-money-on-things-that-save-you-time-makes-you-h-1797304788)
+> 原文：<https://lifehacker.com/spending-money-on-things-that-save-you-time-makes-you-h-1797304788>
 
 在漫长的一天工作后为自己做饭可能会很烦人，但它会为你节省很多钱。另一方面，去餐馆或叫外卖可以消除必须弄清楚要做什么(然后再做)的压力。那么会是哪一个呢？好吧，想想这个:据《纽约时报》报道，美国国家科学院学报上的一项研究发现，在省时服务上花钱会让你更快乐。 这是外卖！
 

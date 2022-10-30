@@ -1,6 +1,6 @@
 # 消除网络烦恼的 10 大浏览器扩展
 
-> 原文:[https://life hacker . com/top-10-browser-extensions-that-eliminate-web-annoyances-1787371353](https://lifehacker.com/top-10-browser-extensions-that-eliminate-web-annoyances-1787371353)
+> 原文：<https://lifehacker.com/top-10-browser-extensions-that-eliminate-web-annoyances-1787371353>
 
 网络上充斥着烦恼。当你访问一个你不得不关闭的页面时，弹出广告，甚至在背景标签中自动播放音频的网站，重新加载并带走你输入的所有文本的页面，它们都很糟糕。以下是一些浏览器插件，它们让网络成为每个人更好的去处。
 

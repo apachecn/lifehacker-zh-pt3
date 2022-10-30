@@ -1,6 +1,6 @@
 # 用这些日常物品教孩子关于正念
 
-> 原文:[https://life hacker . com/teach-kids-about-mindfulness-with these-daily-object-1822851676](https://lifehacker.com/teach-kids-about-mindfulness-with-these-everyday-object-1822851676)
+> 原文：<https://lifehacker.com/teach-kids-about-mindfulness-with-these-everyday-object-1822851676>
 
 正念对儿童和成人一样强大——它可以帮助他们调节情绪，在生活变得紧张时更加冷静地应对。而是简单地告诉你的孩子“清除你的想法！”或者“活在当下！”可能只会让他们更加困惑(因此*更加*有压力)。
 

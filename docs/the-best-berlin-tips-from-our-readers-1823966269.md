@@ -1,6 +1,6 @@
 # 来自我们读者的最佳柏林小贴士
 
-> 原文:[https://life hacker . com/the-best-Berlin-tips-from-our-readers-1823966269](https://lifehacker.com/the-best-berlin-tips-from-our-readers-1823966269)
+> 原文：<https://lifehacker.com/the-best-berlin-tips-from-our-readers-1823966269>
 
 古滕标签！你知道 JFK“果冻甜甜圈”事件是一个神话 吗？在本周的《黑客入侵你的城市， [节目中，我们询问了一些关于柏林的小贴士](https://lifehacker.com/tell-us-your-berlin-tips-1823845277) 。我们有很多，还有一些慷慨的读者贴出了大量的指南，里面有推荐的娱乐项目、天气预报和行程。以下是亮点。
 

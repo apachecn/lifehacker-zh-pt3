@@ -1,6 +1,6 @@
 # 如何在世界任何地方吃街边小吃而不生病
 
-> 原文:[https://life hacker . com/how-to-eat-street-food-anywhere-of-world-without-ge-1796426321](https://lifehacker.com/how-to-eat-street-food-anywhere-in-the-world-without-ge-1796426321)
+> 原文：<https://lifehacker.com/how-to-eat-street-food-anywhere-in-the-world-without-ge-1796426321>
 
 街头小吃是体验一个国家文化的最佳方式之一。虽然这些临时摊位可能看起来有风险，但街头食品通常与餐馆一样安全——如果不是更安全的话。问问任何有经验的冒险家。不过，还是有一些基本规则你应该知道，以避免任何问题。
 

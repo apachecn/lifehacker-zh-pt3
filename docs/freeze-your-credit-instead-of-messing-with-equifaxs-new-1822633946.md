@@ -1,6 +1,6 @@
 # 冻结你的信用，而不是搞乱 Equifax 的新应用程序
 
-> 原文:[https://life hacker . com/freeze-your-credit-of-inst-messing-with-equi faxs-new-1822633946](https://lifehacker.com/freeze-your-credit-instead-of-messing-with-equifaxs-new-1822633946)
+> 原文：<https://lifehacker.com/freeze-your-credit-instead-of-messing-with-equifaxs-new-1822633946>
 
 Equifax 有一个新的应用程序( [iOS](https://itunes.apple.com/us/app/lock-alert/id1325259833?ls=1&mt=8) ， [Android](https://play.google.com/store/apps/details?id=com.equifax.lockandalert) )，这意味着可以轻松锁定和解锁对你的信用文件的访问，这是该公司在去年的安全漏洞导致 1.45 亿人容易遭受金融欺诈和身份盗窃后采取的挽回面子的措施之一。但是你最好冻结你的信用，而不是搞乱公司的新产品。
 

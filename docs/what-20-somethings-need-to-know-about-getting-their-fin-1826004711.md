@@ -1,6 +1,6 @@
 # 你应该优先偿还债务还是未雨绸缪？
 
-> 原文:[https://life hacker . com/what-20 多岁的人需要知道如何得到他们的鳍-1826004711](https://lifehacker.com/what-20-somethings-need-to-know-about-getting-their-fin-1826004711)
+> 原文：<https://lifehacker.com/what-20-somethings-need-to-know-about-getting-their-fin-1826004711>
 
 一批新的大学毕业生意味着数百万年轻人第一次进入劳动力市场。但在建立应急基金、偿还学生贷款和首次投资之间，还有很多东西需要学习。那么你优先考虑什么呢？这就是我们本周要解决的问题。
 

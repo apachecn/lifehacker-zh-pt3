@@ -1,6 +1,6 @@
 # 健康保险对已有疾病的覆盖范围岌岌可危
 
-> 原文:[https://life hacker . com/health-insurance-coverage-for-pre-existing-medical-cond-1826764308](https://lifehacker.com/health-insurance-coverage-for-pre-existing-medical-cond-1826764308)
+> 原文：<https://lifehacker.com/health-insurance-coverage-for-pre-existing-medical-cond-1826764308>
 
 如果法官裁定目前起诉联邦政府的 20 个州在患者保护与平价医疗法案合宪性问题上胜诉，那些已经患有疾病的人可能会失去他们的个人健康保险。
 

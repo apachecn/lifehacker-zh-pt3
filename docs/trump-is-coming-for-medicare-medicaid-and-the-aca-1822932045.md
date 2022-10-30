@@ -1,6 +1,6 @@
 # 特朗普正在争取医疗保险、医疗补助和 ACA
 
-> 原文:[https://life hacker . com/trump-is-come-for-medicare-Medicaid-and-the-ACA-1822932045](https://lifehacker.com/trump-is-coming-for-medicare-medicaid-and-the-aca-1822932045)
+> 原文：<https://lifehacker.com/trump-is-coming-for-medicare-medicaid-and-the-aca-1822932045>
 
 川普总统今天发布了他的 2019 年预算愿景，正如你可能预料的那样，它提议大幅削减国内项目，同时增加军费开支，并在未来两个财年为隔离墙拨款180 亿美元，同时明年增加 9840 亿美元的联邦赤字。
 

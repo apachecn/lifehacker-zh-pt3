@@ -1,6 +1,6 @@
 # “回到我的 Mac”的最佳替代方案是什么？
 
-> 原文:[https://life hacker . com/what-the-best-back-to-my-MAC-alternatives-1828565951](https://lifehacker.com/what-are-the-best-back-to-my-mac-alternatives-1828565951)
+> 原文：<https://lifehacker.com/what-are-the-best-back-to-my-mac-alternatives-1828565951>
 
 向“回到麦克”挥手告别截至 macOS Mojave，苹果正式移除了直接内置于操作系统中的有用的文件和屏幕共享工具。虽然苹果公司对你现在可以用什么来代替“回到我的 Mac”的、、[有一些建议，但它们不太实用](https://support.apple.com/en-us/HT208922)、，尤其是因为一个“解决方案”要花掉你 80 美元、[、](https://itunes.apple.com/us/app/apple-remote-desktop/id409907375?mt=12)、。 *Pfft。*
 

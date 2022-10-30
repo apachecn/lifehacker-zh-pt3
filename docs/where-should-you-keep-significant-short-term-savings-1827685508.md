@@ -1,6 +1,6 @@
 # 你应该把大量的短期储蓄放在哪里？
 
-> 原文:[https://life hacker . com/where-you-should-keep-significant-short-savings-1827685508](https://lifehacker.com/where-should-you-keep-significant-short-term-savings-1827685508)
+> 原文：<https://lifehacker.com/where-should-you-keep-significant-short-term-savings-1827685508>
 
 如果你有一大笔存款，打算在几年后用作首付，你会把它放在哪里？这就是我们本周要考虑的。
 

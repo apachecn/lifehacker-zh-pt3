@@ -1,6 +1,6 @@
 # 节前省钱的十大方法
 
-> 原文:[https://life hacker . com/top-10-way-to-save-money-right-before-the-holiday-1789539137](https://lifehacker.com/top-10-ways-to-save-money-right-before-the-holidays-1789539137)
+> 原文：<https://lifehacker.com/top-10-ways-to-save-money-right-before-the-holidays-1789539137>
 
 你可能会认为为那些最后一分钟的礼物省下一两块钱已经太晚了，或者当你为别人买东西的时候，找到现金来犒劳自己也太晚了。好吧，这里有一些方法来找到一些额外的划痕，使圣诞节更加明亮。
 

@@ -1,6 +1,6 @@
 # 这种 Ti' Spritz 是夏季的美味乐趣
 
-> 原文:[https://life hacker . com/this-ti-spritz-is-delicious-summer-fun-1828419769](https://lifehacker.com/this-ti-spritz-is-delicious-summer-fun-1828419769)
+> 原文：<https://lifehacker.com/this-ti-spritz-is-delicious-summer-fun-1828419769>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天，我们要把一种已经很容易喝的饮料——ti ' punch——变成一种更容易喝的烈酒。
 

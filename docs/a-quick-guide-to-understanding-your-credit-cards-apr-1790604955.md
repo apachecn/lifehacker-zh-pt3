@@ -1,6 +1,6 @@
 # 了解你的信用卡年利率的快速指南
 
-> 原文:[https://life hacker . com/a-快速了解你的信用卡指南-apr-1790604955](https://lifehacker.com/a-quick-guide-to-understanding-your-credit-cards-apr-1790604955)
+> 原文：<https://lifehacker.com/a-quick-guide-to-understanding-your-credit-cards-apr-1790604955>
 
 在申请一张新的 [信用卡](https://www.credit.com/credit-cards/) 时，大部分人都会密切关注几件不同的事情。这可能是注册奖金或他们可以赚取的奖励。但有一件事应该一直在你的雷达上，那就是卡片上的有效年百分比率，或 APR。
 

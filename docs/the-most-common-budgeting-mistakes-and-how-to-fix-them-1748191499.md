@@ -1,6 +1,6 @@
 # 最常见的预算错误以及如何纠正它们
 
-> 原文:[https://life hacker . com/the-most-common-budgeting-errors-and-how-to-fix-them-1748191499](https://lifehacker.com/the-most-common-budgeting-mistakes-and-how-to-fix-them-1748191499)
+> 原文：<https://lifehacker.com/the-most-common-budgeting-mistakes-and-how-to-fix-them-1748191499>
 
 [建立一个基本预算](https://lifehacker.com/adult-budgeting-101-how-to-create-your-first-budget-in-1440446091) 并不太难，一个 [几个小技巧](http://lifehacker.com/top-10-tricks-for-building-the-perfect-budget-1485998627#_ga=1.160735293.1662698338.1411053142) 就能帮你做到真正扎实。但是即使是好的预算也会出错。有一些错误会让人们不知所措，但好消息是:这些错误很容易改正。
 

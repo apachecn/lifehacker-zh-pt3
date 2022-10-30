@@ -1,6 +1,6 @@
 # 如何把你最喜欢的鸡尾酒做成棒棒糖
 
-> 原文:[https://life hacker . com/how-to-make-your-favorite-cocktail-a lollipop-1819376883](https://lifehacker.com/how-to-make-your-favorite-cocktail-into-a-lollipop-1819376883)
+> 原文：<https://lifehacker.com/how-to-make-your-favorite-cocktail-into-a-lollipop-1819376883>
 
 随着万圣节的临近，会有很多关于自制士力架或 DIY 玉米糖的讨论。我通常不去碰那些东西，因为士力架已经很完美了。如果我要做自己的糖果，我希望它是独一无二的，特别的，为什么不呢？—嗜酒。
 

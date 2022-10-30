@@ -1,6 +1,6 @@
 # 它会腐烂吗？暴风雪版
 
-> 原文:[https://life hacker . com/will-it-sous-vide-暴风雪-edition-1791140052](https://lifehacker.com/will-it-sous-vide-snowstorm-edition-1791140052)
+> 原文：<https://lifehacker.com/will-it-sous-vide-snowstorm-edition-1791140052>
 
 你好，美丽的宝贝们，欢迎回到有点不寻常但非常激动人心的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide#_ga=1.149509310.949419976.1446553382) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

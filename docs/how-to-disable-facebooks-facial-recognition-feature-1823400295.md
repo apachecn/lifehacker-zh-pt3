@@ -1,6 +1,6 @@
 # 如何禁用脸书的面部识别功能
 
-> 原文:[https://life hacker . com/how-to-disable-face books-face-recognition-feature-1823400295](https://lifehacker.com/how-to-disable-facebooks-facial-recognition-feature-1823400295)
+> 原文：<https://lifehacker.com/how-to-disable-facebooks-facial-recognition-feature-1823400295>
 
 如果你在过去几天登录了脸书，你可能会看到这个社交网络关于扩展其面部识别功能的说明。
 

@@ -1,6 +1,6 @@
 # 看看核弹会给你的家乡带来什么
 
-> 原文:[https://life hacker . com/see-a-what-a-nuclear-bomb-would-to-your-home-1822302064](https://lifehacker.com/see-what-a-nuclear-bomb-would-do-to-your-hometown-1822302064)
+> 原文：<https://lifehacker.com/see-what-a-nuclear-bomb-would-do-to-your-hometown-1822302064>
 
 上周夏威夷 [可怕的假导弹警报](https://www.washingtonpost.com/news/post-nation/wp/2018/01/14/hawaii-missile-alert-how-one-employee-pushed-the-wrong-button-and-caused-a-wave-of-panic/?utm_term=.35fd074cd7cf) 让美国人问了一个我们最喜欢的问题，“如果它发生在这里会怎么样？”虽然从统计数据来看，你的家乡可能不是核目标，但历史学家亚历克斯·韦勒斯坦的 [核弹地图](http://nuclearsecrecy.com/nukemap/) 向你展示了它的样子。
 

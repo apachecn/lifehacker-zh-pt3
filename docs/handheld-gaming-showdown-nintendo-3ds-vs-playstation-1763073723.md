@@ -1,6 +1,6 @@
 # 手持游戏摊牌:任天堂 3DS vs. PlayStation Vita
 
-> 原文:[https://life hacker . com/hand held-gaming-摊牌-任天堂-3ds-vs-PlayStation-1763073723](https://lifehacker.com/handheld-gaming-showdown-nintendo-3ds-vs-playstation-1763073723)
+> 原文：<https://lifehacker.com/handheld-gaming-showdown-nintendo-3ds-vs-playstation-1763073723>
 
 在过去的四五年里，任天堂 3DS 和索尼 PlayStation Vita 给玩家带来了令人惊叹的游戏，但它们都提供了非常不同的体验。两个系统都已经成熟并经历了很多变化，现在它们可能已经达到了最终形式，是时候比较两者了。
 

@@ -1,6 +1,6 @@
 # 用这些可爱的小狗卡通避免狂犬病
 
-> 原文:[https://life hacker . com/avoid-rabies-with-these-萌狗卡通-1818975057](https://lifehacker.com/avoid-rabies-with-these-adorable-puppy-cartoons-1818975057)
+> 原文：<https://lifehacker.com/avoid-rabies-with-these-adorable-puppy-cartoons-1818975057>
 
 由于狂犬病疫苗在美国非常普遍，这些天我们很少听说狂犬病，但它每 15 分钟就要杀死这个星球上的一个人。99%的人类狂犬病病例是由狗咬伤引起的。世界卫生组织有一些关于避免被狗咬和被狗咬后该怎么做的建议。
 

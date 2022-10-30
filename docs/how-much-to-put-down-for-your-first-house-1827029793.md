@@ -1,6 +1,6 @@
 # 你买第一栋房子要付多少定金
 
-> 原文:[https://life hacker . com/1827029793](https://lifehacker.com/how-much-to-put-down-for-your-first-house-1827029793)
+> 原文：<https://lifehacker.com/how-much-to-put-down-for-your-first-house-1827029793>
 
 如果这意味着你要为首付存更多的钱，你能忍受和父母多住一段时间吗？这是我们本周要探讨的问题之一。
 

@@ -1,6 +1,6 @@
 # 如何避免被骗去购买一辆被飓风损坏的汽车
 
-> 原文:[https://jalopnik . com/how-to-避免被骗去买飓风-dama-1809939987](https://jalopnik.com/how-to-avoid-being-scammed-into-buying-a-hurricane-dama-1809939987)
+> 原文：<https://jalopnik.com/how-to-avoid-being-scammed-into-buying-a-hurricane-dama-1809939987>
 
 现在，飓风哈维和伊尔玛来了又走了，大多数受影响的人都可以专注于重建和恢复，这也可能意味着购买一辆新车来取代被毁的汽车。问题是:你怎么知道你想买的新车没有被飓风损坏？
 

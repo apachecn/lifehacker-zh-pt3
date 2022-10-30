@@ -1,6 +1,6 @@
 # 如何使用 iPhone 控制 Alexa
 
-> 原文:[https://life hacker . com/how-to-control-Alexa-using-your-iphone-1827202225](https://lifehacker.com/how-to-control-alexa-using-your-iphone-1827202225)
+> 原文：<https://lifehacker.com/how-to-control-alexa-using-your-iphone-1827202225>
 
 今年 1 月，亚马逊在其安卓应用中加入了语音控制，本周，它终于为 iPhone 用户做了同样的事情。
 

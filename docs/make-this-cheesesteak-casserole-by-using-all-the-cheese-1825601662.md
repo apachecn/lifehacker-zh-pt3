@@ -1,6 +1,6 @@
 # 用所有的奶酪做这道芝士牛排砂锅
 
-> 原文:[https://life hacker . com/make-this-cheese steak-basketboard-by-use-the-all-the-cheese-1825601662](https://lifehacker.com/make-this-cheesesteak-casserole-by-using-all-the-cheese-1825601662)
+> 原文：<https://lifehacker.com/make-this-cheesesteak-casserole-by-using-all-the-cheese-1825601662>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成砂锅造物的专栏。今天我们要做一道标志性的三明治:芝士牛排。
 

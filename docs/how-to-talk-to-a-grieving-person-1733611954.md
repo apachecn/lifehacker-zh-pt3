@@ -1,6 +1,6 @@
 # 如何与悲伤的人交谈
 
-> 原文:[https://deadspin . com/how-to-talk to-a-breaking-person-1733611954](https://deadspin.com/how-to-talk-to-a-grieving-person-1733611954)
+> 原文：<https://deadspin.com/how-to-talk-to-a-grieving-person-1733611954>
 
 在父亲去世后的几周和几个月里，“你好吗？”成了我最不喜欢的问题。它总是良性和善意的，但它也不可避免地提醒我，我觉得自己像狗屎。我宁愿详细描述我父亲是怎么死的，也不愿谈论我的感受。但是倾诉——或者，更重要的是，找到一个愿意倾听的人——是悲伤的人们迫切需要的。
 

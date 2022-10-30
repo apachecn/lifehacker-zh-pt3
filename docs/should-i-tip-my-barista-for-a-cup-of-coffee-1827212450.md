@@ -1,6 +1,6 @@
 # 问有咸味的女服务员:我应该给我的咖啡师一杯咖啡小费吗？
 
-> 原文:[https://the take out . com/should-I-tip-my-barista for-a cup-of-coffee-1827212450](https://thetakeout.com/should-i-tip-my-barista-for-a-cup-of-coffee-1827212450)
+> 原文：<https://thetakeout.com/should-i-tip-my-barista-for-a-cup-of-coffee-1827212450>
 
 > 亲爱的 Salty，在我的火车站和我的办公室之间有一家咖啡店，大多数早上我都在那里喝黑咖啡。我用我的借记卡支付，商店有一个屏幕，我可以在那里选择小费金额。我没有拿铁咖啡或任何食物，所以我还需要给 2 美元的咖啡小费吗？最低的小费金额是一美元，这是 50%的小费，但同时似乎很便宜。
 > 

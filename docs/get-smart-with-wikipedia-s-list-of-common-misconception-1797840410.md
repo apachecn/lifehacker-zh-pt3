@@ -1,6 +1,6 @@
 # 用维基百科的常见误解列表变聪明
 
-> 原文:[https://life hacker . com/get-smart-with-Wikipedia-s-list-of-common-missource-1797840410](https://lifehacker.com/get-smart-with-wikipedia-s-list-of-common-misconception-1797840410)
+> 原文：<https://lifehacker.com/get-smart-with-wikipedia-s-list-of-common-misconception-1797840410>
 
 取代你烦人的“你知道吗？”仿真陈述带有更令人讨厌的“实际上那是假的”更正。维基百科列出了大量关于历史、科学等的常见误解 。我一年检查一次来刷新我的得意。
 

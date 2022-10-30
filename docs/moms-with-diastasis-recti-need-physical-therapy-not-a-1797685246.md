@@ -1,6 +1,6 @@
 # 患有直肠炎的妈妈们需要物理治疗，而不是“木乃伊肚子”运动
 
-> 原文:[https://life hacker . com/moms-with-diastasis-recti-need-physical-therapy-not-a-1797685246](https://lifehacker.com/moms-with-diastasis-recti-need-physical-therapy-not-a-1797685246)
+> 原文：<https://lifehacker.com/moms-with-diastasis-recti-need-physical-therapy-not-a-1797685246>
 
 产后腹部隆起是常见的——(DR)，腹肌分离的医学术语， [发生在 37%的一胎妊娠女性和 67%的多胎妊娠女性](http://pregnancyandbaby.com/moms/articles/945593/diastasis-recti-abdominal-separation-help-exercises-for-a-flat-tummy) 。尽管如此，这并没有减少女性在生理和心理上的痛苦。我不喜欢看起来怀孕了，当我的宝宝在我身体外面的时候，已经开始吃固体食物了。
 

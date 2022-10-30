@@ -1,6 +1,6 @@
 # 加倍购买家庭用品以减轻压力
 
-> 原文:[https://life hacker . com/double-up-on-home-items-to-save-stress-1796467174](https://lifehacker.com/double-up-on-household-items-to-save-stress-1796467174)
+> 原文：<https://lifehacker.com/double-up-on-household-items-to-save-stress-1796467174>
 
 多年来，我早上的例行公事包括一两次回屋拿我忘记放进包里的东西。然后，我意识到一个显而易见的解决方案，一个可以让我从舒适的公寓走到另一端的可怕的方法:只需再买一本。虽然有些例子是显而易见的——纸巾盒、润唇膏——但可能还有一些额外的东西你可以加倍购买，以改善你的生活。以下是 Lifehacker 团队的最爱:
 

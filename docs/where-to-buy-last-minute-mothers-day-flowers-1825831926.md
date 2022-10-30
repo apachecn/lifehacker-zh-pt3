@@ -1,6 +1,6 @@
 # 去哪里买最后一分钟的母亲节鲜花
 
-> 原文:[https://life hacker . com/where-to-buy-last-minute-mother-day-flowers-1825831926](https://lifehacker.com/where-to-buy-last-minute-mothers-day-flowers-1825831926)
+> 原文：<https://lifehacker.com/where-to-buy-last-minute-mothers-day-flowers-1825831926>
 
 注意:母亲节是这个星期天，5 月 13 日。现在，从 Amazon Prime 给你的妈妈订购一些很棒的东西，甚至出去买一份完美的礼物，都还不算太晚。如果你时间紧迫(或者你在周六晚上看到这篇文章)，你也可以依靠几乎所有妈妈都喜欢的礼物:鲜花。
 

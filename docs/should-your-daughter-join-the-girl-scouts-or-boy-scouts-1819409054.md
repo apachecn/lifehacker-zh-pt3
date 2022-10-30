@@ -1,6 +1,6 @@
 # 你的女儿应该加入女童子军还是男童子军？
 
-> 原文:[https://life hacker . com/should-your-always-join the girl-scouts-or-boy-scouts-1819409054](https://lifehacker.com/should-your-daughter-join-the-girl-scouts-or-boy-scouts-1819409054)
+> 原文：<https://lifehacker.com/should-your-daughter-join-the-girl-scouts-or-boy-scouts-1819409054>
 
 童子军 [即将迎来少女](http://www.scoutingnewsroom.org/press-releases/bsa-expands-programs-welcome-girls-cub-scouts-highest-rank-eagle-scout/) 。这是一个分裂的举动——一些人认为这是所有多年来参加 [竞选但被](https://www.nytimes.com/2015/11/23/us/girls-in-california-are-latest-to-seek-to-become-boy-scouts.html?_r=0) 拒绝的女孩的长期斗争的胜利，而另一些人则认为这是对传统的拒绝，是支撑不断下降的成员的孤注一掷的尝试，或者是“左翼”的一些重大策略不管怎样，想加入童子军组织的女孩现在有了一个选择。
 

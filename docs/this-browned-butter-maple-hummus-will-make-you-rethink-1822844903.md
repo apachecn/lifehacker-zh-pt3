@@ -1,6 +1,6 @@
 # 这种棕色黄油枫叶鹰嘴豆泥会让你重新思考这种风格
 
-> 原文:[https://life hacker . com/this-browned-butter-maple-hummus-will-make-you-rethink-1822844903](https://lifehacker.com/this-browned-butter-maple-hummus-will-make-you-rethink-1822844903)
+> 原文：<https://lifehacker.com/this-browned-butter-maple-hummus-will-make-you-rethink-1822844903>
 
 在我只能称之为“信仰危机”的情况下，我将这种趋势称为“甜点鹰嘴豆泥”，并发现它非常令人愉快。当我的(甜蜜而善解人意的)编辑第一次(温和地)建议我探索甜点鹰嘴豆泥时，我要求打一个电话，这个概念让我如此震惊。
 

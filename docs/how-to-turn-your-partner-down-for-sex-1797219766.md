@@ -1,6 +1,6 @@
 # 如何拒绝伴侣的性要求
 
-> 原文:[https://life hacker . com/how-to-turn-your-partner-down-for-sex-1797219766](https://lifehacker.com/how-to-turn-your-partner-down-for-sex-1797219766)
+> 原文：<https://lifehacker.com/how-to-turn-your-partner-down-for-sex-1797219766>
 
 当你的伴侣主动提出时，有很多完全正常的理由不想做爱:你累了，你分心了，你有其他事情要做，你只是没有心情。不幸的是，我们大多数人都不善于拒绝自己的伴侣。
 

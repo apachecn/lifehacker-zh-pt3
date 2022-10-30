@@ -1,6 +1,6 @@
 # 旅行前给你的行李拍照
 
-> 原文:[https://life hacker . com/在旅行前给行李拍照-1828740216](https://lifehacker.com/take-photos-of-your-luggage-before-you-travel-1828740216)
+> 原文：<https://lifehacker.com/take-photos-of-your-luggage-before-you-travel-1828740216>
 
 当我们上周提到你们应该 [截屏你们的登机牌](https://lifehacker.com/always-screenshot-your-boarding-pass-1828656497) 和其他重要的旅行证件时，你们中的几个人也提供了拍摄真实世界事物的建议。考虑拍摄基本上所有的东西，包括:
 

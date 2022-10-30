@@ -1,6 +1,6 @@
 # 为你的仲夏鸡尾酒制作一杯闪亮的粉红色饮料
 
-> 原文:[https://life hacker . com/think-pink-with this-sparkling-cocktail-1827584603](https://lifehacker.com/think-pink-with-this-sparkling-cocktail-1827584603)
+> 原文：<https://lifehacker.com/think-pink-with-this-sparkling-cocktail-1827584603>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们制作了一款粉色饮料，灵感来自几乎令人痛苦的经典香槟鸡尾酒。
 

@@ -1,6 +1,6 @@
 # MacBook Pro 的 Touch Bar 是一个噱头，不值这个钱
 
-> 原文:[https://gizmodo . com/the-macbook-pros-touch-bar-is-a-Keith-that-worth-1788931016](https://gizmodo.com/the-macbook-pros-touch-bar-is-a-gimmick-thats-not-worth-1788931016)
+> 原文：<https://gizmodo.com/the-macbook-pros-touch-bar-is-a-gimmick-thats-not-worth-1788931016>
 
 用指纹登录电脑并不新鲜，但当 MacBook Pro 的 Touch Bar 出现时，它仍然让我有点头晕，比背光键盘更亮。我顺着触摸栏的方向，像变魔术一样，我进入了笔记本电脑。是瞬间的。指纹识别器是苹果带 Touch Bar 的全新 MacBook Pro 的最小改进之一，但它可能是我最喜欢的。在 MacBook Pro 最炫的噱头下，隐藏着一些令人难以置信的功能和自然使用。
 

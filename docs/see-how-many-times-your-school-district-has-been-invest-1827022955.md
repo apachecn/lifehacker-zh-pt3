@@ -1,6 +1,6 @@
 # 看看你所在的学区有多少次因侵犯公民权利而被调查
 
-> 原文:[https://life hacker . com/see-how-number-times-your ' s school-district-be-invest-1827022955](https://lifehacker.com/see-how-many-times-your-school-district-has-been-invest-1827022955)
+> 原文：<https://lifehacker.com/see-how-many-times-your-school-district-has-been-invest-1827022955>
 
 如果你认为你的学区或学院基于性别、种族或残疾歧视学生，你有权 [向美国教育部民权办公室](https://www2.ed.gov/about/offices/list/ocr/complaints-how.html) 投诉。性骚扰和攻击也是投诉的理由。该办公室应该进行全面调查，如有必要，建议采取纠正措施来纠正任何错误。
 

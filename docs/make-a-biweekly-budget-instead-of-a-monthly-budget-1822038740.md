@@ -1,6 +1,6 @@
 # 做一个两周的预算，而不是一个月的预算
 
-> 原文:[https://life hacker . com/make-a-biweekly-budget-而不是 a-monthly-budget-1822038740](https://lifehacker.com/make-a-biweekly-budget-instead-of-a-monthly-budget-1822038740)
+> 原文：<https://lifehacker.com/make-a-biweekly-budget-instead-of-a-monthly-budget-1822038740>
 
 努力坚持每月预算(或者甚至一开始就制定预算)？考虑创建一个双周预算。如果你每两周(或每月两次)领一次工资，你可能会更容易用这种方式管理你的钱，因为它考虑到了没有一周的支出是相同的:有些周你可能会格外节俭和负责任，而其他周你可能会有意想不到的支出或决定犒劳自己。
 

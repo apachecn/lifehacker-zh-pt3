@@ -1,6 +1,6 @@
 # 我需要一辆便宜的车逃离这个城市！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a price-ride-escape-the-city-what-car-should-1827201973](https://jalopnik.com/i-need-a-cheap-ride-to-escape-the-city-what-car-should-1827201973)
+> 原文：<https://jalopnik.com/i-need-a-cheap-ride-to-escape-the-city-what-car-should-1827201973>
 
 亚历克斯是整个 Gizmodo 媒体集团长期受苦的执行总编，这意味着他忍受着贾洛普尼克不断的精神虐待。俗话说，屎往上流，大家都知道我们满脑子都是屎。他得出了一个不可避免的结论，如果你真的想开车去某个地方，纽约就是垃圾，他正在寻找一些便宜的东西来逃离疯狂。他应该买什么车？
 

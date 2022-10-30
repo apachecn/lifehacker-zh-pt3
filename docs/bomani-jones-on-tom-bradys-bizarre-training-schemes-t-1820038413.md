@@ -1,6 +1,6 @@
 # 博马尼·琼斯谈到汤姆·布拉迪离奇的训练计划:“这只是散发着‘欺诈’的味道。”
 
-> 原文:[https://deadspin . com/bo mani-Jones-on-Tom-bradys-strange-training-schemes-t-1820038413](https://deadspin.com/bomani-jones-on-tom-bradys-bizarre-training-schemes-t-1820038413)
+> 原文：<https://deadspin.com/bomani-jones-on-tom-bradys-bizarre-training-schemes-t-1820038413>
 
 你会想读读这个 ESPN 特写关于看似不老的汤姆·布拉迪，以及他的新书关于他的训练方法，该书由顾问兼商业伙伴亚历克斯·格雷罗炮制，亚历克斯·[声称他能治愈癌症和脑震荡。](http://www.bostonmagazine.com/news/2015/10/09/tom-brady-alex-guerrero-neurosafe/) 但这一段给了你要旨:
 

@@ -1,6 +1,6 @@
 # 小龙包的正确吃法，世界上最壮观的汤圆
 
-> 原文:[https://the take out . com/how-to-eat-Xiaolong-Bao-soup-饺子-1827959964](https://thetakeout.com/how-to-eat-xiao-long-bao-soup-dumplings-1827959964)
+> 原文：<https://thetakeout.com/how-to-eat-xiao-long-bao-soup-dumplings-1827959964>
 
 小笼包是一种汤料十足的上海猪肉蒸饺，毫无疑问是人类最伟大的烹饪发明之一。如果做得好，它会让你的眼睛转到你的脑壳后面，让你的灵魂深处不由自主地发出噪音。
 

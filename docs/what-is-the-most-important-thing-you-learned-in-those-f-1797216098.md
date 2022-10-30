@@ -1,6 +1,6 @@
 # 在大学毕业后的最初几年里，你学到的最重要的东西是什么？
 
-> 原文:[https://life hacker . com/what-the-most-in-these-f-1797216098](https://lifehacker.com/what-is-the-most-important-thing-you-learned-in-those-f-1797216098)
+> 原文：<https://lifehacker.com/what-is-the-most-important-thing-you-learned-in-those-f-1797216098>
 
 大学毕业后的头几年是你生活中巨大变化的时期，无论是个人生活还是职业生活。回顾那些年，我们经常可以清楚地看到我们学到的对我们今天的成就最有帮助的东西。如果让你选一个，大学毕业后的头几年你学到的最重要的东西是什么？
 

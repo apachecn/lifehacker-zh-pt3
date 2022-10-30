@@ -1,6 +1,6 @@
 # Apple Pay Cash vs . Google Wallet vs . Venmo 哪个更好
 
-> 原文:[https://life hacker . com/whats-better-apple-pay-cash-vs-Google-wallet-vs-venm-1821218263](https://lifehacker.com/whats-better-apple-pay-cash-vs-google-wallet-vs-venm-1821218263)
+> 原文：<https://lifehacker.com/whats-better-apple-pay-cash-vs-google-wallet-vs-venm-1821218263>
 
 Apple Pay Cash 是该公司理论上的 Venmo-killer，你可以使用这项服务通过 iPhone 上的 iMessage 收发资金。听起来很棒，但是有这么多点对点的支付系统，你真的需要注册吗？
 

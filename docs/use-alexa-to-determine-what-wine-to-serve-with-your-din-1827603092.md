@@ -1,6 +1,6 @@
 # 使用 Alexa 来决定晚餐配什么酒
 
-> 原文:[https://life hacker . com/use-Alexa-to-determine-what-wine to-serve with-your-din-1827603092](https://lifehacker.com/use-alexa-to-determine-what-wine-to-serve-with-your-din-1827603092)
+> 原文：<https://lifehacker.com/use-alexa-to-determine-what-wine-to-serve-with-your-din-1827603092>
 
 如果你没有任何葡萄酒知识，弄清楚晚餐配什么酒有时会有点挑战。虽然我们大多数人对牛排配什么都有很好的想法，但当谈到披萨或苹果派等其他菜肴时，我们目前的知识可能有点不足。
 

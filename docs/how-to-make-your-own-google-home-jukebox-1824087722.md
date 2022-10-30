@@ -1,6 +1,6 @@
 # 如何制作自己的 Google Home 点唱机
 
-> 原文:[https://life hacker . com/how-to-make-your-own-Google-home-jukebox-1824087722](https://lifehacker.com/how-to-make-your-own-google-home-jukebox-1824087722)
+> 原文：<https://lifehacker.com/how-to-make-your-own-google-home-jukebox-1824087722>
 
 如果你想让你的 [智能家庭音响系统](https://lifehacker.com/how-to-set-up-a-basic-smart-home-sound-system-1821500548) 更上一层楼，这里有一个有趣的方法。通过一些额外的工作和一些 RFID 技术，你可以构建自己的卡片驱动的 [点唱机](https://lifehacker.com/how-to-build-a-raspberry-pi-jukebox-any-non-geek-can-us-1712107103) ，它一定会在你的下一次聚会上留下深刻印象。
 

@@ -1,6 +1,6 @@
 # MoviePass 限时降价至每月 6.95 美元
 
-> 原文:[https://life hacker . com/movie pass-drops-price-to-6-95 一个月限量-ti-1820550734](https://lifehacker.com/moviepass-drops-price-to-6-95-a-month-for-a-limited-ti-1820550734)
+> 原文：<https://lifehacker.com/moviepass-drops-price-to-6-95-a-month-for-a-limited-ti-1820550734>
 
 几个月前，当 movie pass[推出每月 10 美元的新服务](https://lifehacker.com/moviepass-now-offers-unlimited-movies-in-theaters-for-1797865400#_ga=2.162153465.418524875.1510583504-1313785359.1499701416) 时，它引起了轩然大波，用户可以在影院几乎无限制地观看电影。如果你认为这很疯狂，现在他们为那些愿意提前支付一年电影费用的人提供每月仅 6.95 美元的订阅层。
 

@@ -1,6 +1,6 @@
 # 不冷冻黄油安全吗？
 
-> 原文:[https://the take out . com/is-it-safe-to-leave-butter-unrefrigerated-1821925356](https://thetakeout.com/is-it-safe-to-leave-butter-unrefrigerated-1821925356)
+> 原文：<https://thetakeout.com/is-it-safe-to-leave-butter-unrefrigerated-1821925356>
 
 试图涂抹冷黄油是人生的一大悲剧。
 

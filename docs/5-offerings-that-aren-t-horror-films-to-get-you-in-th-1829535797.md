@@ -1,6 +1,6 @@
 # 让你感受十月精神的 5 种产品(不是恐怖片)
 
-> 原文:[https://www . av club . com/5-offerings-than-that-that-to-get-you-in-th-1829535797](https://www.avclub.com/5-offerings-that-aren-t-horror-films-to-get-you-in-th-1829535797)
+> 原文：<https://www.avclub.com/5-offerings-that-aren-t-horror-films-to-get-you-in-th-1829535797>
 
 ## 要看的电视剧集
 

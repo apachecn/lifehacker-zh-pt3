@@ -1,6 +1,6 @@
 # 见见我们新的个人理财作家
 
-> 原文:[https://life hacker . com/meet-our-new-personal-finance-writer-1820985007](https://lifehacker.com/meet-our-new-personal-finance-writer-1820985007)
+> 原文：<https://lifehacker.com/meet-our-new-personal-finance-writer-1820985007>
 
 大家好，我是 Alicia Adamczyk (ah-dam-check)，Lifehacker 的新个人理财作家。此前，我为《财富》杂志写文章，内容涵盖从医疗保健到税收到坐立不安的人，我还在《T2》杂志的《福布斯》杂志写了一段时间关于亿万富翁和他们的超级游艇的文章。
 

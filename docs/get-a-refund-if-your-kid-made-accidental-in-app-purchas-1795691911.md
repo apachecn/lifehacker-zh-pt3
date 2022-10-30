@@ -1,6 +1,6 @@
 # 如果你的孩子在亚马逊意外购买了应用内商品，可以获得退款
 
-> 原文:[https://life hacker . com/get-a-refund-if-your-kid-made-incident-in-app-purchase-1795691911](https://lifehacker.com/get-a-refund-if-your-kid-made-accidental-in-app-purchas-1795691911)
+> 原文：<https://lifehacker.com/get-a-refund-if-your-kid-made-accidental-in-app-purchas-1795691911>
 
 一些游戏应用程序允许您购买星星、甜甜圈、硬币或其他可以用来玩游戏的代币。代币是虚拟的，但购买是真实的。孩子们很容易在这些应用程序中买东西，而没有意识到他们在花钱——你的钱。亚马逊现在正在为一些未经授权的应用内购买退款。
 

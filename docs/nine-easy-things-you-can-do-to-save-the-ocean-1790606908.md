@@ -1,6 +1,6 @@
 # 拯救海洋你可以做的九件简单的事
 
-> 原文:[https://life hacker . com/nine-easy-things-you-can-do-save-the-ocean-1790606908](https://lifehacker.com/nine-easy-things-you-can-do-to-save-the-ocean-1790606908)
+> 原文：<https://lifehacker.com/nine-easy-things-you-can-do-to-save-the-ocean-1790606908>
 
 保持海洋清洁是我们的责任，但迄今为止，我们做得很糟糕。我们大多数人都不知道，我们每天做的普通事情正在损害海洋。最重要的是，这些事情很容易停止做，或者做得更好。
 

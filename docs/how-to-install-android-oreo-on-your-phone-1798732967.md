@@ -1,6 +1,6 @@
 # 如何在手机上安装安卓奥利奥
 
-> 原文:[https://life hacker . com/how-to-install-Android-Oreo-on-your-phone-1798732967](https://lifehacker.com/how-to-install-android-oreo-on-your-phone-1798732967)
+> 原文：<https://lifehacker.com/how-to-install-android-oreo-on-your-phone-1798732967>
 
 本周谷歌开始在设备上推出安卓奥利奥[。自 5 月份以来，它已经成为该公司一些最新 Pixel 和 Nexus 设备的公开测试版，但现在正在对其中一些型号进行运营商测试，因此正式版本可能会尽快推出。](https://www.android.com/versions/oreo-8-0/) 
 

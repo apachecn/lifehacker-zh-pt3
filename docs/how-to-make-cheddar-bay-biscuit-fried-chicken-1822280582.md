@@ -1,6 +1,6 @@
 # 如何制作切达海湾饼干炸鸡
 
-> 原文:[https://the take out . com/how-to-make-cheddar-bay-饼干-炸鸡-1822280582](https://thetakeout.com/how-to-make-cheddar-bay-biscuit-fried-chicken-1822280582)
+> 原文：<https://thetakeout.com/how-to-make-cheddar-bay-biscuit-fried-chicken-1822280582>
 
 *欢迎来到* [**感谢，评论者！**](https://thetakeout.com/c/thanks-commenters) *，我们挖掘、借用、窃取*外卖*的评论者提出的创意。*T12】
 

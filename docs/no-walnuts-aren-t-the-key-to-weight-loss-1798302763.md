@@ -1,6 +1,6 @@
 # 不，核桃不是减肥的关键
 
-> 原文:[https://life hacker . com/no-胡桃-不是减肥的关键-1798302763](https://lifehacker.com/no-walnuts-aren-t-the-key-to-weight-loss-1798302763)
+> 原文：<https://lifehacker.com/no-walnuts-aren-t-the-key-to-weight-loss-1798302763>
 
 核桃已经有了健康食品的形象，但是加州核桃委员会想知道更多。一项新的研究询问，核桃——已经与降低患和 [【二型糖尿病】](http://jn.nutrition.org/content/143/4/512.full.pdf+html) 心脏病的风险相关——是否可能通过改变我们大脑对食物的反应来带来一些健康益处。
 

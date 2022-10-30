@@ -1,6 +1,6 @@
 # 安卓系统最好的笔记应用
 
-> 原文:[https://life hacker . com/the-best-note-taking-app-for-Android-5816910](https://lifehacker.com/the-best-note-taking-app-for-android-5816910)
+> 原文：<https://lifehacker.com/the-best-note-taking-app-for-android-5816910>
 
 有大量的笔记应用程序，用非常不同的方法来组织你的想法。对于快速笔记和严肃组织之间的完美平衡，Google Keep 是我们的最爱。你可以很容易地写下一些东西，或者全力以赴地使用过滤、标签、颜色编码等等。
 

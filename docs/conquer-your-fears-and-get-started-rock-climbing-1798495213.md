@@ -1,6 +1,6 @@
 # 克服你的恐惧，开始攀岩
 
-> 原文:[https://life hacker . com/征服你的恐惧并开始攀岩-1798495213](https://lifehacker.com/conquer-your-fears-and-get-started-rock-climbing-1798495213)
+> 原文：<https://lifehacker.com/conquer-your-fears-and-get-started-rock-climbing-1798495213>
 
 对于那些在体育课上表现不佳或对自己上半身力量有限感到难为情的人来说，委婉地说，攀岩的前景可能会令人生畏。但是，一旦你知道如何准备(精神上和其他方面)，开始攀岩和投入任何其他类型的新锻炼程序没有太大区别。
 

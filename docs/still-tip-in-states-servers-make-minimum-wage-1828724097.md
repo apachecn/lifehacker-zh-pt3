@@ -1,6 +1,6 @@
 # 问刻薄的女服务员:在服务员拿最低工资的州，我应该给不同的小费吗？
 
-> 原文:[https://the take out . com/still-tip-in-States-servers-make-minimum-wage-1828724097](https://thetakeout.com/still-tip-in-states-servers-make-minimum-wage-1828724097)
+> 原文：<https://thetakeout.com/still-tip-in-states-servers-make-minimum-wage-1828724097>
 
 > 嘿咸，我住在俄勒冈州，那里的餐馆服务员，根据法律，支付最低工资。在俄勒冈州，最低工资是每小时 10.25 美元。俄勒冈州的顾客需要给小费吗？我完全明白，在有些州，付给服务员的工资低于最低工资是合法的(顺便说一句，我认为这太离谱了)。但是，在那些不需要给小费就能让服务员的工资达到最低工资的地方，给小费是怎么回事呢？我是说，一个 7-11 的店员也整天站着，但是她没有小费。她的工作比服务员的工作轻松吗？
 > 

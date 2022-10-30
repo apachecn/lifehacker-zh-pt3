@@ -1,6 +1,6 @@
 # 本周，孩子们可以在苹果商店参加免费的编码研讨会
 
-> 原文:[https://life hacker . com/kids-can-take-free-coding-workshop-at-apple-stores-thi-1820978661](https://lifehacker.com/kids-can-take-free-coding-workshops-at-apple-stores-thi-1820978661)
+> 原文：<https://lifehacker.com/kids-can-take-free-coding-workshops-at-apple-stores-thi-1820978661>
 
 这是计算机科学教育周，苹果在所有苹果商店提供数千次免费的编码课程。这里有各种各样的研讨会——在我当地的商店里，有抱负的程序员可以学习 Swift 编程语言的基础知识，设计迷宫并在障碍中导航星球大战机器人，并使用 Swift Playgrounds iPad 应用程序将机器人带入生活。
 

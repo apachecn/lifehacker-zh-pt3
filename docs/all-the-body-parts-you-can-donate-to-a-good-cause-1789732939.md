@@ -1,6 +1,6 @@
 # 所有你能捐给慈善事业的身体部分
 
-> 原文:[https://life hacker . com/all-the-body-parts-you-can-done-to-a good cause-1789732939](https://lifehacker.com/all-the-body-parts-you-can-donate-to-a-good-cause-1789732939)
+> 原文：<https://lifehacker.com/all-the-body-parts-you-can-donate-to-a-good-cause-1789732939>
 
 如果你感觉慷慨，你有更多的选择，而不是打开你的钱包或者建立一个 [可赠送的 DIY 项目](http://twocents.lifehacker.com/give-a-thoughtful-handmade-gift-with-these-diy-project-1788563748) 。你有很多本土的身体器官可以捐赠给有需要的人。从血液和头发到你的整个身体，这些都是你现在或者不再需要的时候可以用来做善事的东西。
 

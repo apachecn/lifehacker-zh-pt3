@@ -1,6 +1,6 @@
 # 如何报名 2020 年 ACA 健康保险
 
-> 原文:[https://life hacker . com/how-to-sign-up-for-ACA-health-insurance-for-2019-1829559334](https://lifehacker.com/how-to-sign-up-for-aca-health-insurance-for-2019-1829559334)
+> 原文：<https://lifehacker.com/how-to-sign-up-for-aca-health-insurance-for-2019-1829559334>
 
 如果你无法通过你的雇主、父母或配偶获得保险，是时候为来年选择一个计划了。个人健康保险市场的开放注册从 11 月 1 日开始，持续到 2019 年 12 月 15 日。
 

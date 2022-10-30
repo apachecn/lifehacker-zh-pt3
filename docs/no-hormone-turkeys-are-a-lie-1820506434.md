@@ -1,6 +1,6 @@
 # “无激素”火鸡是一个谎言
 
-> 原文:[https://life hacker . com/no-hormone-Turks-are-a-lie-1820506434](https://lifehacker.com/no-hormone-turkeys-are-a-lie-1820506434)
+> 原文：<https://lifehacker.com/no-hormone-turkeys-are-a-lie-1820506434>
 
 你想为你的家人或者你的朋友买最好的火鸡来犒劳 ，但是火鸡的价格有很大的差异，很难知道哪一只值得多花点钱。这里有两个标签你绝对不应该额外付费:“无激素”和“无笼”
 

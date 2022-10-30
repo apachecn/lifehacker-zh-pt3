@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:不和我的服务员闲聊是不是很粗鲁？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-it-rude-not-chit-chat-wit-1822636093](https://thetakeout.com/ask-the-salty-waitress-is-it-rude-to-not-chit-chat-wit-1822636093)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-is-it-rude-to-not-chit-chat-wit-1822636093>
 
 * * *
 

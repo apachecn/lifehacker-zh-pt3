@@ -1,6 +1,6 @@
 # 我们这些非即食锅迷经常用即食锅烹饪的 8 种食物[更新]
 
-> 原文:[https://the take out . com/instant-pot-recipes-we-use-regular-1828235185](https://thetakeout.com/instant-pot-recipes-we-use-regularly-1828235185)
+> 原文：<https://thetakeout.com/instant-pot-recipes-we-use-regularly-1828235185>
 
 我尽量不轻易使用“邪教”这个词，但我要说:速溶壶最热情的用户表现出对慢炖锅/高压锅组合的热爱，这种热爱近乎宗教狂热。在圣诞节收到我的食谱后，我加入了脸书的几个即时大麻小组，以为我会学到一些简单的食谱。相反，我收到了来自“即时大麻吸食者”的持续不断的帖子轰炸，他们承认对即时大麻上瘾。附件 A:
 

@@ -1,6 +1,6 @@
 # 问专家:所有关于还清你的学生贷款
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-还清你的学生贷款-1793222065](https://lifehacker.com/ask-an-expert-all-about-paying-off-your-student-loans-1793222065)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-paying-off-your-student-loans-1793222065>
 
 一想到我的学生贷款，我就感到一丝恐惧。尽管我已经自动设置了按时付款，但余额似乎从未减少，感觉就像是我退休后仍会支付的东西。我有什么选择？
 

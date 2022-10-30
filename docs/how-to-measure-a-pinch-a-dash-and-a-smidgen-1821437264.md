@@ -1,6 +1,6 @@
 # 如何衡量一点、一点和一点
 
-> 原文:[https://life hacker . com/how-to-measure-a-pinch-a-dash-a-smidgen-1821437264](https://lifehacker.com/how-to-measure-a-pinch-a-dash-and-a-smidgen-1821437264)
+> 原文：<https://lifehacker.com/how-to-measure-a-pinch-a-dash-and-a-smidgen-1821437264>
 
 测量都是关于精度的，但是术语“划”、“捏”和“一点点”总是有点模糊。然而，它们确实有一些精确的定义，这有助于知道你是否在扩大食谱。
 

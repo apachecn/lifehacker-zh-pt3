@@ -1,6 +1,6 @@
 # “食肉减肥法”到底有多糟糕？
 
-> 原文:[https://life hacker . com/just-how-bad-a-idea-the-carpirate-diet-1828260514](https://lifehacker.com/just-how-bad-an-idea-is-the-carnivore-diet-1828260514)
+> 原文：<https://lifehacker.com/just-how-bad-an-idea-is-the-carnivore-diet-1828260514>
 
 如果你早餐、午餐和晚餐只吃牛排，你会死吗？得坏血病？大便很糟糕。老实说，科学并不完全清楚这一点，但我们还是问了一些专家。(剧透:他们认为这是个坏主意。)
 

@@ -1,6 +1,6 @@
 # 所有父母都能从单亲父母身上学到什么
 
-> 原文:[https://life hacker . com/what-all-parents-can-learn-from-single-parents-1826302974](https://lifehacker.com/what-all-parents-can-learn-from-single-parents-1826302974)
+> 原文：<https://lifehacker.com/what-all-parents-can-learn-from-single-parents-1826302974>
 
 当我和我的伴侣分居时，我已经怀孕三个半月了，我突然不得不围绕一件我从未预料到的事情重新安排我的生活:单亲。在歌剧时刻，我在脑海中记录了作为唯一的看护人我可能不得不放弃的所有事情:我的高要求职业、我的锻炼习惯、我的朋友、阅读、出去吃饭、出去看电影、根本不出去。我害怕独自做父母。
 

@@ -1,6 +1,6 @@
 # 如何使用 1Blocker 在移动网站上隐藏所有让您烦恼的事情
 
-> 原文:[https://life hacker . com/how-to-use-1 blocker-to-hide everything-that-noise-you-1793720483](https://lifehacker.com/how-to-use-1blocker-to-hide-everything-that-annoys-you-1793720483)
+> 原文：<https://lifehacker.com/how-to-use-1blocker-to-hide-everything-that-annoys-you-1793720483>
 
 当你在 iPhone 上浏览网页时，突然出现一个弹出框，要求你订阅时事通讯。你:A)疯狂地搜索小“X”让它消失，B)翻个白眼，按下后退键离开，或者 C)希望你能摆脱那些烦人的弹出窗口，同时还能阅读你最喜欢的网站。[1 拦截器](https://itunes.apple.com/us/app/block-ads-trackers-more-with-1blocker/id1025729002?mt=8) ， [我们在 iOS 上最喜欢的广告拦截器](https://lifehacker.com/the-best-ad-blockers-for-ios-9-1731433501) ，刚刚推出了一个让选项 C 变得容易得多的功能。
 

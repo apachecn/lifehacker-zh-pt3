@@ -1,6 +1,6 @@
 # 你真正需要哪些维生素？
 
-> 原文:[https://life hacker . com/which-vitamins-do-you-really-need-1826433744](https://lifehacker.com/which-vitamins-do-you-really-need-1826433744)
+> 原文：<https://lifehacker.com/which-vitamins-do-you-really-need-1826433744>
 
 我们都需要维生素，但这并不意味着你需要服用维生素。本周，科学给了我们另一个巨大的“维生素片对我们大多数人来说是无用的”标志，这个标志已经建造了一段时间。(这是一个比喻，但我把它想象成类似好莱坞标志的东西，只是没有人看它，因为他们都忙着在下面的山谷里购买维生素。)
 

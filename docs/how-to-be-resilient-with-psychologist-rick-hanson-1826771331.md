@@ -1,6 +1,6 @@
 # 心理学家里克·汉森的《如何适应》
 
-> 原文:[https://life hacker . com/how-to-be-resilient-with-psychology-Rick-Hanson-1826771331](https://lifehacker.com/how-to-be-resilient-with-psychologist-rick-hanson-1826771331)
+> 原文：<https://lifehacker.com/how-to-be-resilient-with-psychologist-rick-hanson-1826771331>
 
 你知道有些人似乎有某种内在的力量，可以帮助他们在出问题的时候重新振作起来？那些人，即使世界有时感觉像一片烧焦的地狱景象，却似乎带着勇气，甚至感激继续前进？我们本周节目的嘉宾是佛教心理学家 [瑞克·汉森](http://www.rickhanson.net/resilient/) 。里克利用他 40 年的临床实践和教学经验来帮助我们培养适应能力——克服大脑的消极偏见，找到内心的平静。*终于来了！*
 

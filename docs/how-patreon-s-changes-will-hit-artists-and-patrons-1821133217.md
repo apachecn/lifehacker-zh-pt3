@@ -1,6 +1,6 @@
 # Patreon 的变化将如何影响艺术家和赞助人[更新]
 
-> 原文:[https://life hacker . com/how-pat reon-s-changes-will-hit-artists-and-customers-1821133217](https://lifehacker.com/how-patreon-s-changes-will-hit-artists-and-patrons-1821133217)
+> 原文：<https://lifehacker.com/how-patreon-s-changes-will-hit-artists-and-patrons-1821133217>
 
 艺术家资助平台 Patreon 正在对其处理赞助承诺的方式进行一些改变，这已经让创作者和他们的支持者付出了比他们希望的更多的代价。 [帕特里翁交易费](https://blog.patreon.com/updating-patreons-fee-structure/) 的变化将保证创作者获得赞助人对其创意作品承诺金额的 95%。不幸的是，这也意味着顾客将为他们的承诺支付更多的费用——结果，一些顾客减少或取消了他们的承诺。
 

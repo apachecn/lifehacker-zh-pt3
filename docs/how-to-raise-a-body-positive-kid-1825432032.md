@@ -1,6 +1,6 @@
 # 如何培养一个身体健康的孩子
 
-> 原文:[https://life hacker . com/how-to-raise-a body-positive-kid-1825432032](https://lifehacker.com/how-to-raise-a-body-positive-kid-1825432032)
+> 原文：<https://lifehacker.com/how-to-raise-a-body-positive-kid-1825432032>
 
 我们对自己身体的感觉——以及我们如何对待它们——受到许多不同因素的影响，但其中最大的一个因素是我们是如何被抚养长大的。作为一名长期的肥胖活动家，我听说过很多关于善意父母的故事，他们从减肥而不是营养的角度谈论食物选择，或者把锻炼作为道德义务而不是消磨时间的有趣方式。他们的孩子也因此养成了有害的态度和行为。
 

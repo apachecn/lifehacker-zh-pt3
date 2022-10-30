@@ -1,6 +1,6 @@
 # 对羊皮纸感到兴奋，这是你厨房里最有用的东西之一
 
-> 原文:[https://life hacker . com/get-excited-about-羊皮纸-最有用的纸之一](https://lifehacker.com/get-excited-about-parchment-paper-one-of-the-most-usef-1738145434)
+> 原文：<https://lifehacker.com/get-excited-about-parchment-paper-one-of-the-most-usef-1738145434>
 
 由于是米色的、无光泽的、二维的，羊皮纸似乎不是最令人兴奋的厨房工具。但是这些基于纤维素的纸张有如此多的用途，很难不对它们感到兴奋。我无法想象没有这种材料做法式马卡龙，但羊皮纸除了烘焙还有很多用途，这就是为什么我的厨房永远不会无纸化。
 

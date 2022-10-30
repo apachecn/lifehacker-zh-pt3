@@ -1,6 +1,6 @@
 # 如何从美国境外访问 HBO Now
 
-> 原文:[https://life hacker . com/how-to-access-HBO-now-from-outside-the-u-s-1828688356](https://lifehacker.com/how-to-access-hbo-now-from-outside-the-u-s-1828688356)
+> 原文：<https://lifehacker.com/how-to-access-hbo-now-from-outside-the-u-s-1828688356>
 
 HBO 有一些最棒的电视节目——权力的游戏、不安全的 T2、T4、锋利的物体、西部世界和 T7....名单很长。但是对于生活在欧洲的人来说，获得合法观看 HBO 节目的权利即使不是不可能，也是极其困难的。
 

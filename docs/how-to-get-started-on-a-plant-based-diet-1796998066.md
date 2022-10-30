@@ -1,6 +1,6 @@
 # 如何开始植物性饮食
 
-> 原文:[https://life hacker . com/how-to-start-on-a-plant-based-diet-1796998066](https://lifehacker.com/how-to-get-started-on-a-plant-based-diet-1796998066)
+> 原文：<https://lifehacker.com/how-to-get-started-on-a-plant-based-diet-1796998066>
 
 转向植物性饮食并不意味着你一定会超级健康。你可以每天吃脱脂冰淇淋和冷冻蔬菜披萨，但这并不意味着你更健康。有很多植物性垃圾食品，所以如果你想从植物性饮食中获益，你需要致力于健康饮食。
 

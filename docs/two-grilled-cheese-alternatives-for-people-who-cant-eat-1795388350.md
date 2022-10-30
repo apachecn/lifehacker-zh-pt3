@@ -1,6 +1,6 @@
 # 不能吃面包或奶酪的人可以选择两种烤奶酪
 
-> 原文:[https://life hacker . com/two-gricked-cheese-alternatives-for the people-can-t-eat-1795388350](https://lifehacker.com/two-grilled-cheese-alternatives-for-people-who-cant-eat-1795388350)
+> 原文：<https://lifehacker.com/two-grilled-cheese-alternatives-for-people-who-cant-eat-1795388350>
 
 如果你是一个既不吃面包也不吃奶酪的人，你可能会认为你体验融化的、有弹性的、烤奶酪的日子已经过去了——但不要这么肯定。我们有两种选择——一种给不能吃面包的人，一种给不能吃奶酪的人——每种都很好吃。
 

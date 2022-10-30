@@ -1,6 +1,6 @@
 # 哪里可以找到你需要的家装项目
 
-> 原文:[https://life hacker . com/where-to-get-exact-what-your-home-improv-1742086355](https://lifehacker.com/where-to-get-exactly-what-you-need-for-your-home-improv-1742086355)
+> 原文：<https://lifehacker.com/where-to-get-exactly-what-you-need-for-your-home-improv-1742086355>
 
 我们生活在一个家居装修的黄金时代，我们几乎拥有了建造和修缮房屋所需的一切，只需开车或敲几下键盘。尽管如此，你应该在大盒子商店购物吗？专卖店？在线？以下是如何在您需要时准确找到您需要的内容。
 

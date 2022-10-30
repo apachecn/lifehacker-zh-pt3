@@ -1,6 +1,6 @@
 # 像财务预算一样建立你的社交预算
 
-> 原文:[https://life hacker . com/build-your-social-budget-like-a-financial-budget-1823334633](https://lifehacker.com/build-your-social-budget-like-a-financial-budget-1823334633)
+> 原文：<https://lifehacker.com/build-your-social-budget-like-a-financial-budget-1823334633>
 
 你觉得你的社交生活失控了吗？也许你(或你的孩子)每天晚上都有活动，而你只想在家度过一个安静的夜晚。也许你觉得你花了太多时间和不亲近的人“深谈”和“集思广益”，而没有足够的时间和朋友在一起。也许你的姻亲希望你每个周日都和他们一起吃饭，而你...不要。
 

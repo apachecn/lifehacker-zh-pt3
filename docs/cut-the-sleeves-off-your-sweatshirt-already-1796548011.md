@@ -1,6 +1,6 @@
 # 已经把你运动衫的袖子剪掉了
 
-> 原文:[https://life hacker . com/cut-the-sleeve-off-your-sweet shirt-already-1796548011](https://lifehacker.com/cut-the-sleeves-off-your-sweatshirt-already-1796548011)
+> 原文：<https://lifehacker.com/cut-the-sleeves-off-your-sweatshirt-already-1796548011>
 
 我不敢相信在我意识到这一点之前我已经 35 岁了。我会在健身前后到处闲逛，穿着从来没有足够(很少)口袋的健身装备。在寒冷的天气，一件夹克或连帽衫很好地解决了这个问题。但是在夏天呢？可以穿*无袖帽衫*。
 

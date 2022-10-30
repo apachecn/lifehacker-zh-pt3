@@ -1,6 +1,6 @@
 # 如何煎药，以及如何处理它们
 
-> 原文:[https://life hacker . com/how-to-fry-herbers-and-what-do-with-them-1819186346](https://lifehacker.com/how-to-fry-herbs-and-what-to-do-with-them-1819186346)
+> 原文：<https://lifehacker.com/how-to-fry-herbs-and-what-to-do-with-them-1819186346>
 
 大多数家庭厨师都知道，在菜肴中加入少量新鲜香草是一种简单(而且相当便宜)的方式，可以将菜肴提升到新的美味高度，但他们中很少有人使用油炸新鲜香草的力量。
 

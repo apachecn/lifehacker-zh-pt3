@@ -1,6 +1,6 @@
 # 做一杯柠檬汽水
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-woodsy-cynar-lemonade-1821066947](https://lifehacker.com/3-ingredient-happy-hour-a-woodsy-cynar-lemonade-1821066947)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-woodsy-cynar-lemonade-1821066947>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。这个星期，在我最好的朋友西纳尔的帮助下，我们正在制作适合冬天的柠檬水。
 

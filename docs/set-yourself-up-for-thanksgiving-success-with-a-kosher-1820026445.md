@@ -1,6 +1,6 @@
 # 用一只犹太火鸡为感恩节的成功做好准备
 
-> 原文:[https://life hacker . com/set-up-yourself-for-thanksgiving-success-with-a-kosher-1820026445](https://lifehacker.com/set-yourself-up-for-thanksgiving-success-with-a-kosher-1820026445)
+> 原文：<https://lifehacker.com/set-yourself-up-for-thanksgiving-success-with-a-kosher-1820026445>
 
 感恩节是一个奇怪的节日，原因有很多，而整只火鸡可能是最奇怪的。成千上万的食谱敦促你以改善适口性的名义腌制、摩擦、炖煮、烟熏，甚至油炸这种仪式用的鸟，这证明了火鸡是一种需要大量哄骗的蛋白质。最简单的解决办法是:买一只犹太火鸡，继续你的生活。
 

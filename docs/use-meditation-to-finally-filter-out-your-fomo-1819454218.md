@@ -1,6 +1,6 @@
 # 用冥想来最终过滤掉你的 FOMO
 
-> 原文:[https://life hacker . com/use-mostation-to-finally-filter-out-your-fomo-1819454218](https://lifehacker.com/use-meditation-to-finally-filter-out-your-fomo-1819454218)
+> 原文：<https://lifehacker.com/use-meditation-to-finally-filter-out-your-fomo-1819454218>
 
 上周五，当我们汇总员工的每周升级时，我们的编辑正在解开烦人的耳机线，享受真实犯罪电视，烘烤酥皮点心，最后关闭我们多余的浏览器标签。
 

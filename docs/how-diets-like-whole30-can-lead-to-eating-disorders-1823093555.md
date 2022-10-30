@@ -1,6 +1,6 @@
 # 像 Whole30 这样的饮食会导致饮食失调
 
-> 原文:[https://life hacker . com/how-diets-like-whole 30-can-lead-to-eating-disorders-1823093555](https://lifehacker.com/how-diets-like-whole30-can-lead-to-eating-disorders-1823093555)
+> 原文：<https://lifehacker.com/how-diets-like-whole30-can-lead-to-eating-disorders-1823093555>
 
 我们很少讨论限制性饮食对精神的影响，比如(无“炎症”食物)[【keto】](https://vitals.lifehacker.com/what-you-should-know-before-trying-a-ketogenic-diet-1820361430)(低碳水化合物、高脂肪)或“旧石器时代”的食物。人们喜欢吹捧这些饮食的减肥和提升情绪的效果，但专家说，它们会把我们一些人推向饮食紊乱。
 

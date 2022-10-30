@@ -1,6 +1,6 @@
 # 当朋友悲伤时，提供你可以帮助的具体方法
 
-> 原文:[https://life hacker . com/when-a-friend-is-breaking-offer-specific-ways-you-can-1796831786](https://lifehacker.com/when-a-friend-is-grieving-offer-specific-ways-you-can-1796831786)
+> 原文：<https://lifehacker.com/when-a-friend-is-grieving-offer-specific-ways-you-can-1796831786>
 
 去年这个时候，我妈妈去世了。我负责计划她的葬礼和埋葬安排，处理她的东西，以及几乎所有其他人去世时你必须做的可怕的事情。哦，我住在旧金山，我妈妈住在北卡罗来纳州。差不多有数百人通过脸书和短信来帮助我，但只有两个人做到了。原因？只有两个人就他们能帮上什么忙提出了切实的建议。
 

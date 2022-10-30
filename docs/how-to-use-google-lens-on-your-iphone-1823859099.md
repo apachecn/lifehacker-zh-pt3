@@ -1,6 +1,6 @@
 # 如何在你的 iPhone 上使用谷歌镜头
 
-> 原文:[https://life hacker . com/how-to-use-Google-lens-on-your-iphone-1823859099](https://lifehacker.com/how-to-use-google-lens-on-your-iphone-1823859099)
+> 原文：<https://lifehacker.com/how-to-use-google-lens-on-your-iphone-1823859099>
 
 本月早些时候，谷歌为非像素 Android 设备提供了谷歌镜头，本周它终于开始将这一功能推广到 iOS 设备，如你的 iPhone 和 iPad。
 

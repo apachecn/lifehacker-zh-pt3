@@ -1,6 +1,6 @@
 # 所有暑期阅读清单中的暑期阅读清单
 
-> 原文:[https://life hacker . com/read-the-guide-to-summer-reading-guides-1827117778](https://lifehacker.com/read-the-guide-to-summer-reading-guides-1827117778)
+> 原文：<https://lifehacker.com/read-the-guide-to-summer-reading-guides-1827117778>
 
 现在是夏天，出于某种原因，这是唯一一个有自己“阅读”的季节。为海滩、公园或空调星巴克的储物桌上挑选一本书，这是 Metafilter 用户 Fizz 从主要出版物 中收集的 [20 个夏季阅读清单。](https://www.metafilter.com/174848/One-benefit-of-Summer-was-that-each-day-we-had-more-light-to-read-by) 
 

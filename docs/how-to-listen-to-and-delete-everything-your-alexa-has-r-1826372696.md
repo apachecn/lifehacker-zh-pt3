@@ -1,6 +1,6 @@
 # 如何收听和删除您的 Alexa 记录的所有内容
 
-> 原文:[https://life hacker . com/how-to-listen-to-delete-everything-your-Alexa-has-r-1826372696](https://lifehacker.com/how-to-listen-to-and-delete-everything-your-alexa-has-r-1826372696)
+> 原文：<https://lifehacker.com/how-to-listen-to-and-delete-everything-your-alexa-has-r-1826372696>
 
 上周，网上流传着一个故事，讲的是 Alexa 录下了一个女人的私人谈话，然后发给了她的一个朋友。虽然这肯定是一个独特的困境，但定期看看你自己的 Alexa 都拿起了什么是好的。
 

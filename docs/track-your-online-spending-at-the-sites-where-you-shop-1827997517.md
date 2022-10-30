@@ -1,6 +1,6 @@
 # 在你购物的网站上追踪你的网上消费
 
-> 原文:[https://life hacker . com/track-your-online-expense-at-sites-you-shop-1827997517](https://lifehacker.com/track-your-online-spending-at-the-sites-where-you-shop-1827997517)
+> 原文：<https://lifehacker.com/track-your-online-spending-at-the-sites-where-you-shop-1827997517>
 
 冲动购物是一件事，我们时不时都会犯这种错误。有时候，如果你感觉有点沮丧，订购你一直想买，但从来没有时间去拿的小东西会感觉很好。或者你看到了你一直关注的东西的交易，然后想，“现在正是时候。”
 

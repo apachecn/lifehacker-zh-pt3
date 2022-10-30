@@ -1,6 +1,6 @@
 # 如何不从游轮上掉下来
 
-> 原文:[https://life hacker . com/how-not-to-fall-off-a-cruise-ship-1829655094](https://lifehacker.com/how-not-to-fall-off-a-cruise-ship-1829655094)
+> 原文：<https://lifehacker.com/how-not-to-fall-off-a-cruise-ship-1829655094>
 
 首先，不要相信不可能发生。有可能。
 

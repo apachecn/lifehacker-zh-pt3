@@ -1,6 +1,6 @@
 # 游客可以去的最好的当地餐馆，而不是连锁店
 
-> 原文:[https://life hacker . com/your-best-local-restaurants-for-visitor-to-go-inste-1797138693](https://lifehacker.com/your-best-local-restaurants-for-visitors-to-go-to-inste-1797138693)
+> 原文：<https://lifehacker.com/your-best-local-restaurants-for-visitors-to-go-to-inste-1797138693>
 
 我们问你 [在你的城市](https://lifehacker.com/what-local-spots-in-your-city-should-visitors-go-to-ins-1797041608) 人们应该去哪些当地景点而不是连锁餐厅，你*送来了*。我们已经为主要的大都市地区提供了建议，这样游客就不会再去糟糕的连锁店，而是把钱捐给你喜欢的地方。
 

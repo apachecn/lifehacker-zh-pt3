@@ -1,6 +1,6 @@
 # 如何查找和删除您的谷歌地图历史记录
 
-> 原文:[https://life hacker . com/how-to-find-and-delete-your-Google-maps-history-1828312219](https://lifehacker.com/how-to-find-and-delete-your-google-maps-history-1828312219)
+> 原文：<https://lifehacker.com/how-to-find-and-delete-your-google-maps-history-1828312219>
 
 你可能认为你已经关闭了谷歌的位置跟踪历史，但根据美联社今天发布的一份新报告，你可能错了。
 

@@ -1,6 +1,6 @@
 # 这个小小的振动器让你的阴蒂在做爱时不用手去爱
 
-> 原文:[https://life hacker . com/this-tiny-vibrator-give-your-clit-hands-free-lovin-dur-1737761026](https://lifehacker.com/this-tiny-vibrator-gives-your-clit-hands-free-lovin-dur-1737761026)
+> 原文：<https://lifehacker.com/this-tiny-vibrator-gives-your-clit-hands-free-lovin-dur-1737761026>
 
 Eva 被宣传为第一款免提(直)耦合振动器。这个小小的奇迹位于女人的阴蒂上，当她和她的男人性交时，它会发出强大的阴蒂刺激。但是这有用吗？以下是我们在乘坐 Eva 兜了一圈后的想法。
 

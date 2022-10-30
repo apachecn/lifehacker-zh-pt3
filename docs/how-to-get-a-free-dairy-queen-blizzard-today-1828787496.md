@@ -1,6 +1,6 @@
 # 如何获得一个免费的乳制品女王暴雪今天
 
-> 原文:[https://life hacker . com/how-to-get-a-free-dairy-queen-blizzard-today-1828787496](https://lifehacker.com/how-to-get-a-free-dairy-queen-blizzard-today-1828787496)
+> 原文：<https://lifehacker.com/how-to-get-a-free-dairy-queen-blizzard-today-1828787496>
 
 夏天快结束了。为了庆祝今年的劳动节，Dairy Queen 向顾客提供免费的暴风雪，前提是他们下载餐厅的移动应用程序。
 

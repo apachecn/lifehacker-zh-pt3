@@ -1,6 +1,6 @@
 # 如何看到朋友的 HQ 回答，防止随机玩家找到你
 
-> 原文:[https://life hacker . com/how-to-see-your-friends-HQ-answers-and-prevent-random-p-1825951182](https://lifehacker.com/how-to-see-your-friends-hq-answers-and-prevent-random-p-1825951182)
+> 原文：<https://lifehacker.com/how-to-see-your-friends-hq-answers-and-prevent-random-p-1825951182>
 
 兴奋起来吧，伙计们。你可能在几个月前就停止玩这个流行的琐事应用程序了，因为你花了很长时间才赢了，而且你只得到 2.14 美元。今天，它给这个游戏增加了一个很大的社交组件——并且，向前发展，给每个周五的游戏增加了一个社交组件。假设你的朋友决定分享他们的猜测，你现在可以看到他们选择的完全虚假的答案。
 

@@ -1,6 +1,6 @@
 # 五个最佳 USB 3.0 闪存驱动器
 
-> 原文:[https://life hacker . com/five-best-USB-3-0-flash-drives-1733112413](https://lifehacker.com/five-best-usb-3-0-flash-drives-1733112413)
+> 原文：<https://lifehacker.com/five-best-usb-3-0-flash-drives-1733112413>
 
 随着云存储的便利，USB 闪存驱动器可能看起来像是旧闻，但最好的是便携，快速，几乎坚不可摧，并提供大量的空间-足够让他们值得拥有。本周我们将根据你们的提名选出五位最佳选手。
 

@@ -1,6 +1,6 @@
 # 我是 Ven·赖，雪佛兰的创意设计师，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-ven-lai-creative-designer-at-Chevrolet-and-this-is-1791633250](https://lifehacker.com/im-ven-lai-creative-designer-at-chevrolet-and-this-is-1791633250)
+> 原文：<https://lifehacker.com/im-ven-lai-creative-designer-at-chevrolet-and-this-is-1791633250>
 
 制造像汽车这样复杂的东西需要广泛的协作，需要不同背景的人参与。当然，有工程师设计实际的机械装置，但也有影响你如何体验汽车的美学和触觉元素，每一个都是由设计师精心选择的。
 

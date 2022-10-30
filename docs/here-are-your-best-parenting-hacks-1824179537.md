@@ -1,6 +1,6 @@
 # 以下是你最好的育儿技巧
 
-> 原文:[https://life hacker . com/here-are-your-best-parenting-hacks-1824179537](https://lifehacker.com/here-are-your-best-parenting-hacks-1824179537)
+> 原文：<https://lifehacker.com/here-are-your-best-parenting-hacks-1824179537>
 
 我们在 [后代脸书组](https://www.facebook.com/groups/2018785615043946/) 上举办了 [的比赛](https://offspring.lifehacker.com/join-the-new-offspring-facebook-group-1823590717) (是的，我们有一个脸书组——你加入了吗？)，要求会员给我们提供他们最好的育儿技巧。这些条目非常聪明，非常有思想，非常有用，所以我们决定分享一些我们最喜欢的。
 

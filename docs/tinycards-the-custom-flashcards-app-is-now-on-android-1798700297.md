@@ -1,6 +1,6 @@
 # 定制抽认卡应用 Tinycards 现已登陆安卓系统
 
-> 原文:[https://life hacker . com/tiny cards-the-custom-flash cards-app-is-now-on-Android-1798700297](https://lifehacker.com/tinycards-the-custom-flashcards-app-is-now-on-android-1798700297)
+> 原文：<https://lifehacker.com/tinycards-the-custom-flashcards-app-is-now-on-android-1798700297>
 
 Duolingo 终于在谷歌 Play 商店推出了 Tinycards，这款应用可以让你制作自己的数字抽认卡。
 

@@ -1,6 +1,6 @@
 # 语法错误让窥探者阅读你写的东西，打字错误等等(更新)
 
-> 原文:[https://gizmodo . com/grammarly-bug-let-snoops-read-everything-you-written-onli-1822740378](https://gizmodo.com/grammarly-bug-let-snoops-read-everything-you-wrote-onli-1822740378)
+> 原文：<https://gizmodo.com/grammarly-bug-let-snoops-read-everything-you-wrote-onli-1822740378>
 
 文案编辑应用程序在语法上包含了一个安全漏洞，这让其浏览器扩展的用户面临的尴尬不仅仅是拼写错误。
 

@@ -1,6 +1,6 @@
 # 密码公式骗不了黑客
 
-> 原文:[https://life hacker . com/password-formulas-don-t-fool-hackers-1826238163](https://lifehacker.com/password-formulas-don-t-fool-hackers-1826238163)
+> 原文：<https://lifehacker.com/password-formulas-don-t-fool-hackers-1826238163>
 
 每次我们在 Lifehacker 上写关于密码的文章时，都会有一些读者分享他们创建密码的秘密公式。据密码管理公司 [、达什莱恩](https://www.dashlane.com/) 的高级经理瑞安·麦钱特称，这些公式很容易被破解。
 

@@ -1,6 +1,6 @@
 # 你的大学推荐的学生贷款支付方式可能会让你进一步负债
 
-> 原文:[https://life hacker . com/your-colleges-recommended-student-loan-payment-option-c-1825825191](https://lifehacker.com/your-colleges-recommended-student-loan-payment-option-c-1825825191)
+> 原文：<https://lifehacker.com/your-colleges-recommended-student-loan-payment-option-c-1825825191>
 
 来自美国消费者新闻与商业频道的一份报告称，大学推出的学生贷款偿还方案可能会使借款人的欠款增加一倍甚至两倍。
 

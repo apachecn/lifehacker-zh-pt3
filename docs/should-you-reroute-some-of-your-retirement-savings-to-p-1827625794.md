@@ -1,6 +1,6 @@
 # 该不该用退休储蓄买房？
 
-> 原文:[https://life hacker . com/should-you-route-some-of-your retirement-savings-to-p-1827625794](https://lifehacker.com/should-you-reroute-some-of-your-retirement-savings-to-p-1827625794)
+> 原文：<https://lifehacker.com/should-you-reroute-some-of-your-retirement-savings-to-p-1827625794>
 
 如果你已经攒够了首付，你还需要多少钱来支付购房过程中出现的所有额外费用？在短期内减少你的退休供款值得吗？这就是我们这个星期在想的。
 

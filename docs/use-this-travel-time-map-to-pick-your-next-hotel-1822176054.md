@@ -1,6 +1,6 @@
 # 使用这张旅行时间图来选择您的下一个酒店
 
-> 原文:[https://life hacker . com/use-this-travel-time-map-to-pick-your-next-hotel-1822176054](https://lifehacker.com/use-this-travel-time-map-to-pick-your-next-hotel-1822176054)
+> 原文：<https://lifehacker.com/use-this-travel-time-map-to-pick-your-next-hotel-1822176054>
 
 当你去旅行时，你通常想住在中心的某个地方，方便到达几个当地目的地:一个会议中心、几家餐馆、一个有趣的社区。你不能只盯着地图看。旅行时间不仅仅取决于距离；他们依赖街道布局、高速公路和公共交通。你可以在谷歌地图上测试每个旅行时间，但有时你只想看到一个大地图，显示你在一个小时内可以去的所有地方。为此，试试 [旅行时间地图](https://app.traveltimeplatform.com/#) 。
 

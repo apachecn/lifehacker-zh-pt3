@@ -1,6 +1,6 @@
 # 如何把你的尴尬变成一种社会资产
 
-> 原文:[https://life hacker . com/why-your 的笨拙是秘密的社会资产与 ty-1796810414](https://lifehacker.com/why-your-awkwardness-is-secretly-a-social-asset-with-ty-1796810414)
+> 原文：<https://lifehacker.com/why-your-awkwardness-is-secretly-a-social-asset-with-ty-1796810414>
 
 本周，我们邀请到了关系专家、《尴尬的 T4:为什么我们在社交上尴尬以及为什么这很棒的科学》一书的作者 [Ty Tashiro](http://tytashiro.com/) ，来讨论为什么会导致社交焦虑或尴尬时刻的相同品质实际上对我们有利。
 

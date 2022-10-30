@@ -1,6 +1,6 @@
 # 超薄口袋摊牌:谷歌 Nexus 5X vs OnePlus X
 
-> 原文:[https://life hacker . com/slim-pocket-摊牌-the-Google-nexus-5x-vs-the-oneplu-1748600419](https://lifehacker.com/slim-pocket-showdown-the-google-nexus-5x-vs-the-oneplu-1748600419)
+> 原文：<https://lifehacker.com/slim-pocket-showdown-the-google-nexus-5x-vs-the-oneplu-1748600419>
 
 不是每个人都想要一部大到难以放进裤子口袋或单手使用的手机。幸运的是，越来越多的制造商听到了我们的呼声，两大竞争者已经脱颖而出:谷歌的 Nexus 5X 和一加 x。两者都很纤薄，功能强大，但价格不贵。以下是他们的对比。
 

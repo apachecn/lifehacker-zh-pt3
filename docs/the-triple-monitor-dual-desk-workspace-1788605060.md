@@ -1,6 +1,6 @@
 # 三显示器、双办公桌工作区
 
-> 原文:[https://life hacker . com/the-triple-monitor-dual-desk-workspace-1788605060](https://lifehacker.com/the-triple-monitor-dual-desk-workspace-1788605060)
+> 原文：<https://lifehacker.com/the-triple-monitor-dual-desk-workspace-1788605060>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mBeTm723xFs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mBeTm723xFs&start=0) 
 

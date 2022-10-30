@@ -1,6 +1,6 @@
 # 我知道购买重新设计的 MacBook Pro 是愚蠢的，但我还是买了
 
-> 原文:[https://gizmodo . com/I-know-buying-a-new-designed-macbook-pro-was-blind-1825779880](https://gizmodo.com/i-knew-buying-a-newly-redesigned-macbook-pro-was-stupid-1825779880)
+> 原文：<https://gizmodo.com/i-knew-buying-a-newly-redesigned-macbook-pro-was-stupid-1825779880>
 
 不要成为我。我迫切需要一台新的苹果笔记本电脑来取代我 2012 年的旧电脑，当 2016 年带 Touch Bar 的 Macbook Pro 可以购买时，我就订购了它。这是苹果公司的一次重大重新设计，其他产品的经验告诉我，购买第一代新笔记本电脑将是一段非常颠簸的旅程。我还是做了。
 

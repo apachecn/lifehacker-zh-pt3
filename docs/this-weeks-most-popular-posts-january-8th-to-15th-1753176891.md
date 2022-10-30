@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 8 日至 15 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-1 月 8 日至 15 日-1753176891](https://lifehacker.com/this-weeks-most-popular-posts-january-8th-to-15th-1753176891)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-8th-to-15th-1753176891>
 
 你这周中彩票了吗？好样的，伙计！这可能不会真的让你的生活变得更好，但是本周我们解释了如果你突然有了一大笔钱，你应该怎么做。这一点以及本周更多的热门帖子。
 

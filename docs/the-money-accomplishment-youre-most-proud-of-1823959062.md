@@ -1,6 +1,6 @@
 # 你最引以为豪的金钱成就
 
-> 原文:[https://life hacker . com/the-money-completion-you-most-floor-of-1823959062](https://lifehacker.com/the-money-accomplishment-youre-most-proud-of-1823959062)
+> 原文：<https://lifehacker.com/the-money-accomplishment-youre-most-proud-of-1823959062>
 
 如果我们能偶尔停下来，不去想我们的钱，而是思考我们已经完成的事情，这不是很好吗？
 

@@ -1,6 +1,6 @@
 # 如何识别不必要的阿片类药物处方
 
-> 原文:[https://life hacker . com/how-to-spot-a-needly-阿片类药物处方-1829277431](https://lifehacker.com/how-to-spot-an-unnecessary-opioid-prescription-1829277431)
+> 原文：<https://lifehacker.com/how-to-spot-an-unnecessary-opioid-prescription-1829277431>
 
 有时候阿片类药物真的是你最好的止痛药，当然也有可能负责任地服用。但是 [发表在《内科医学年鉴》上的新研究](http://annals.org/aim/fullarticle/2702065/documented-pain-diagnoses-adults-prescribed-opioids-results-from-national-ambulatory) 显示，医生似乎开错了处方，这可能导致成瘾。
 

@@ -1,6 +1,6 @@
 # 如果你丢了结婚戒指，该找谁
 
-> 原文:[https://life hacker . com/who-to-call-if you ' s lost-your-your-wedding-ring-1796498235](https://lifehacker.com/who-to-call-if-youve-lost-your-wedding-ring-1796498235)
+> 原文：<https://lifehacker.com/who-to-call-if-youve-lost-your-wedding-ring-1796498235>
 
 失去你最喜欢的珠宝真糟糕。丢失结婚戒指:那是一场噩梦。你总是可以租一个金属探测器，自己搜索这个区域，但是戒指发现者 ，一群寻找珠宝的爱好者，装备更好地帮助你找到你丢失的珠宝。
 

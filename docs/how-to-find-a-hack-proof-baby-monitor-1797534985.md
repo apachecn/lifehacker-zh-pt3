@@ -1,6 +1,6 @@
 # 如何找到一个防黑客婴儿监视器
 
-> 原文:[https://life hacker . com/how-to-find-a-hack-proof-baby-monitor-1797534985](https://lifehacker.com/how-to-find-a-hack-proof-baby-monitor-1797534985)
+> 原文：<https://lifehacker.com/how-to-find-a-hack-proof-baby-monitor-1797534985>
 
 我妻子和我就要有孩子了，这太好了！但正如大多数新父母很快了解到的那样，现代婴儿似乎需要很多附件——婴儿床、换尿布、汽车座椅、婴儿车，当然，还有婴儿监视器(以及其他许多东西)。
 

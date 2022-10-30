@@ -1,6 +1,6 @@
 # 当你开始一段新的恋情时，如何应对情人节
 
-> 原文:[https://life hacker . com/how-to-handle-valentine-day-when-re-in-a-new-rela-1792021337](https://lifehacker.com/how-to-handle-valentine-s-day-when-you-re-in-a-new-rela-1792021337)
+> 原文：<https://lifehacker.com/how-to-handle-valentine-s-day-when-you-re-in-a-new-rela-1792021337>
 
 当你已经 [刚开始和某人](https://lifehacker.com/the-dos-and-don-ts-of-texting-a-romantic-interest-1753671407) 约会时，情人节与其说是浪漫，不如说是尴尬。你不知道是否应该计划一个奢华的夜晚，给他们买一份礼物，或者干脆忽略这一天。以下是两位约会和恋爱专家的建议。
 

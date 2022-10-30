@@ -1,6 +1,6 @@
 # 为什么你应该做水果馅饼而不是馅饼
 
-> 原文:[https://life hacker . com/why-you-should-make-cobbler-to-pie-1827451695](https://lifehacker.com/why-you-should-make-cobbler-instead-of-pie-1827451695)
+> 原文：<https://lifehacker.com/why-you-should-make-cobbler-instead-of-pie-1827451695>
 
 烘焙与其说是养活自己，不如说是一种爱好，我倾向于简单的食谱，我可以心血来潮地把它们组合在一起。虽然我绝对不反对完美制作的糕点，但制作这样的糕点需要一定的耐心，这就是为什么我把我丰富的夏季水果烤成水果馅饼而不是馅饼。
 

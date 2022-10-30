@@ -1,6 +1,6 @@
 # 将您的技术问题发送给我们
 
-> 原文:[https://life hacker . com/send-us-your-tech-questions-1828824699](https://lifehacker.com/send-us-your-tech-questions-1828824699)
+> 原文：<https://lifehacker.com/send-us-your-tech-questions-1828824699>
 
 你们中的大多数人可能都知道[**Tech 911**](https://lifehacker.com/c/tech-911)—life hacker 的每周专栏回答了你最紧迫(或愚蠢)的技术难题。我们一起解决了以下紧迫的问题:
 

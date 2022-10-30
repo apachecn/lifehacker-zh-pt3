@@ -1,6 +1,6 @@
 # 检查缠绕在宝宝手指和脚趾上的毛发
 
-> 原文:[https://life hacker . com/check-for-stray-hairs-wrapped-our-babys-fingers-fingers-1823988927](https://lifehacker.com/check-for-stray-hairs-wrapped-around-your-babys-fingers-1823988927)
+> 原文：<https://lifehacker.com/check-for-stray-hairs-wrapped-around-your-babys-fingers-1823988927>
 
 初为人父母会带来一长串你从未想过会引起恐慌的事情。 [蜂蜜](http://www.infantbotulism.org/general/faq.php) 。 [猫砂盒](https://pets.thenest.com/dangers-cat-feces-around-babies-11324.html) 。 [软卧](https://www.cdc.gov/media/releases/2018/p0109-sleep-related-deaths.html) 。 [用作间谍摄像头的婴儿监视器](https://offspring.lifehacker.com/how-to-find-a-hack-proof-baby-monitor-1797534985) 。清单上又多了一条:你自己的头发。
 

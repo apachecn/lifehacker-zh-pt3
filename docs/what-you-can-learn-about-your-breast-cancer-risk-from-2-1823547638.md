@@ -1,6 +1,6 @@
 # 你能从 23andMe 网站上了解到哪些关于乳腺癌风险的信息
 
-> 原文:[https://life hacker . com/what-you-can-learn-on-your-breast cancer-risk-from-2-1823547638](https://lifehacker.com/what-you-can-learn-about-your-breast-cancer-risk-from-2-1823547638)
+> 原文：<https://lifehacker.com/what-you-can-learn-about-your-breast-cancer-risk-from-2-1823547638>
 
 FDA 批准了 23andMe 的一项基因测试，该测试可以告诉你是否在 BRCA1 和 BRCA2 基因中有三种特定突变，这些突变会增加你患乳腺癌的风险。但这只是 BRCA 基因中 1000 多种这样的突变中的三种，它们甚至不是最常见的。
 

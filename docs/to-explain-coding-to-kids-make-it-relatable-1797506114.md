@@ -1,6 +1,6 @@
 # 向孩子们解释编码，让它变得可理解
 
-> 原文:[https://life hacker . com/to-explain-coding-to-kids-make-it-relateable-1797506114](https://lifehacker.com/to-explain-coding-to-kids-make-it-relatable-1797506114)
+> 原文：<https://lifehacker.com/to-explain-coding-to-kids-make-it-relatable-1797506114>
 
 孩子们有一种快速获取信息的方式(有时比我们想象的要快)...)，但当解释更抽象的概念，如编码或计算机编程时，你可能需要的不仅仅是讲座或一些快速的 YouTube 解释器。这就是程序员托梅克·卡扎诺夫斯基 在向一群 6 岁的孩子解释这项技能时学到的东西，其中就有他自己的女儿。
 

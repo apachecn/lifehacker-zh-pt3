@@ -1,6 +1,6 @@
 # 谷歌现在可以从搜索结果中删除泄露的医疗记录
 
-> 原文:[https://life hacker . com/Google-can-now-remove-leaved-medical-records-from-searc-1796548222](https://lifehacker.com/google-can-now-remove-leaked-medical-records-from-searc-1796548222)
+> 原文：<https://lifehacker.com/google-can-now-remove-leaked-medical-records-from-searc-1796548222>
 
 如果你在网上对自己不满意，通常谷歌不会把它从搜索结果中删除。不过，如果你投诉，谷歌*会*删除包含你的银行账号和其他敏感信息的网页。最近，他们 [在](https://www.theguardian.com/technology/2017/jun/23/google-begins-removing-private-medical-records-from-search-results) [列表中添加了](https://support.google.com/websearch/answer/2744324?hl=en) 病历，他们将根据要求删除 。
 

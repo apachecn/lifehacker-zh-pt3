@@ -1,6 +1,6 @@
 # 通过这段视频培养你的 NPR 之声
 
-> 原文:[https://life hacker . com/develop-your-NPR-voice-with this-video-1796414904](https://lifehacker.com/develop-your-npr-voice-with-this-video-1796414904)
+> 原文：<https://lifehacker.com/develop-your-npr-voice-with-this-video-1796414904>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-cSTqKi7Wuq4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-cSTqKi7Wuq4&start=0) 
 

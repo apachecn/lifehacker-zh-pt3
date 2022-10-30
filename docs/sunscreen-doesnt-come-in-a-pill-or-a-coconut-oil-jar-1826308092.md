@@ -1,6 +1,6 @@
 # 防晒霜不是装在药片或椰子油罐里的
 
-> 原文:[https://life hacker . com/sun screen-dont-come-in-a-pill-or-a-coco-oil-jar-1826308092](https://lifehacker.com/sunscreen-doesnt-come-in-a-pill-or-a-coconut-oil-jar-1826308092)
+> 原文：<https://lifehacker.com/sunscreen-doesnt-come-in-a-pill-or-a-coconut-oil-jar-1826308092>
 
 防晒霜也有不好的一面:它可能会很油腻，不得不重新涂抹很烦人，而且人们会时不时地试图吓唬你，让你认为它很危险。( [这不。](https://vitals.lifehacker.com/the-sunscreen-ratings-that-scare-people-every-year-are-1795824253#_ga=2.258856266.1730978073.1526909177-3846207152.1521480874) )但是你知道好处是什么吗？其实是*防晒霜*。药丸和 DIY 椰子油食谱不是。
 

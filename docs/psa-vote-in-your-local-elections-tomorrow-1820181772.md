@@ -1,6 +1,6 @@
 # PSA:明天在你的地方选举中投票
 
-> 原文:[https://life hacker . com/PSA-vote-in-your-local-elections-tomorrow-1820181772](https://lifehacker.com/psa-vote-in-your-local-elections-tomorrow-1820181772)
+> 原文：<https://lifehacker.com/psa-vote-in-your-local-elections-tomorrow-1820181772>
 
 明天是选举日！不，不是总统选举，尽管那会令人兴奋。或者甚至是国会选举，这是所有投票中第二激动人心的时刻。也许你密切关注你所在地区的政治——市长竞选、学校董事会和...所有其他的。或者也许你没有，要么是因为疏忽，要么只是因为最近国内新闻淹没了所有其他问题。
 

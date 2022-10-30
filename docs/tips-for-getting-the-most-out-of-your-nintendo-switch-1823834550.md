@@ -1,6 +1,6 @@
 # 充分利用交换机的技巧
 
-> 原文:[https://kotaku . com/tips-for-get-the-out-of-your ' s Nintendo-switch-1823834550](https://kotaku.com/tips-for-getting-the-most-out-of-your-nintendo-switch-1823834550)
+> 原文：<https://kotaku.com/tips-for-getting-the-most-out-of-your-nintendo-switch-1823834550>
 
 任天堂 Switch 是一个有很多功能的硬件。这是一个控制台。这是掌上电脑。它有大量的游戏可以玩，选项可以调整，配件可以玩。这里有一些小技巧可以帮助你充分利用最新的任天堂娱乐系统。
 

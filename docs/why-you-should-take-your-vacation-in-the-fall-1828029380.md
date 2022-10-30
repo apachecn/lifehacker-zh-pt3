@@ -1,6 +1,6 @@
 # 为什么你应该在秋天休假
 
-> 原文:[https://life hacker . com/why-you-should-take you-fall-1828029380](https://lifehacker.com/why-you-should-take-your-vacation-in-the-fall-1828029380)
+> 原文：<https://lifehacker.com/why-you-should-take-your-vacation-in-the-fall-1828029380>
 
 如果你刚刚意识到现在是八月，而你还没有去过任何地方，不要绝望。秋天不仅仅是穿着可爱的夹克——它还关乎旅行优惠。
 

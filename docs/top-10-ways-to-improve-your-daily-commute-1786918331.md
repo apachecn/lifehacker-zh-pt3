@@ -1,6 +1,6 @@
 # 改善日常通勤的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-improve-your daily-commute-1786918331](https://lifehacker.com/top-10-ways-to-improve-your-daily-commute-1786918331)
+> 原文：<https://lifehacker.com/top-10-ways-to-improve-your-daily-commute-1786918331>
 
 你每天的通勤，无论你是开车还是跳上公交车或火车等待，都不需要浪费时间。无论你是有效地利用它，还是仅仅为了一点点安慰，这里有一些利用休息时间的好方法。
 

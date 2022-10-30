@@ -1,6 +1,6 @@
 # 最好的婴儿玩具可能是电视遥控器
 
-> 原文:[https://life hacker . com/the-best-baby-toy-may-be-a-TV-remote-1829231469](https://lifehacker.com/the-best-baby-toy-might-be-a-tv-remote-1829231469)
+> 原文：<https://lifehacker.com/the-best-baby-toy-might-be-a-tv-remote-1829231469>
 
 婴儿。你给他们买尿布，但是他们决定在换尿布的时候在你身上撒尿。你给他们做美食泥餐，但他们最满意的是啃他们的鼻屎。你给他们漂亮的玩具，但他们只想玩电视遥控器。
 

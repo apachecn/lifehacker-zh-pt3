@@ -1,6 +1,6 @@
 # 用这些 iOS 11 壁纸假装你有了一部新的 iPhone X
 
-> 原文:[https://life hacker . com/假装你有一部新的 iphone-x-with the-IOs-11-wal-1803137200](https://lifehacker.com/pretend-you-ve-got-a-new-iphone-x-with-these-ios-11-wal-1803137200)
+> 原文：<https://lifehacker.com/pretend-you-ve-got-a-new-iphone-x-with-these-ios-11-wal-1803137200>
 
 iOS 11 最终版本 的 [泄露为我们提供了许多关于苹果将在 9 月 12 日的新闻发布会上宣布什么的暗示。虽然旁观者应该会看到新的 iPhones 和更新的 Apple Watch，但那些对公告不感兴趣的人可以坐下来享受公司提供给他们的礼物:新壁纸。](http://gizmodo.com/apple-just-leaked-ios-11-and-looks-like-were-getting-an-1802936703) 
 

@@ -1,6 +1,6 @@
 # 我为有线电视付费，不在乎谁知道
 
-> 原文:[https://gizmodo . com/I-pay-for-cable-TV-and-don-care-who-know-it-1736090210](https://gizmodo.com/i-pay-for-cable-tv-and-dont-care-who-knows-it-1736090210)
+> 原文：<https://gizmodo.com/i-pay-for-cable-tv-and-dont-care-who-knows-it-1736090210>
 
 这个月我就 30 岁了，感觉我是我这个年纪少数几个看有线电视并且愿意付费的人。事实是，我讨厌在我的电脑上看节目——或者更糟，在我的手机上。在真正的电视上给我实时的新剧集。我知道我站在历史错误的一边，但我也知道我不是唯一一个。
 

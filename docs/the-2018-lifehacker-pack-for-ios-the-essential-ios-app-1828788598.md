@@ -1,6 +1,6 @@
 # 2018 年必备的 iOS 应用
 
-> 原文:[https://life hacker . com/the-2018-life hacker-pack-for-IOs-the-essential-IOs-app-1828788598](https://lifehacker.com/the-2018-lifehacker-pack-for-ios-the-essential-ios-app-1828788598)
+> 原文：<https://lifehacker.com/the-2018-lifehacker-pack-for-ios-the-essential-ios-app-1828788598>
 
 试图找到完美的 iOS 应用程序可能很难，我们愿意打赌你的 iPhone 或 iPad 充满了一页又一页的应用程序。太多了，很难列出一个最喜欢的清单。我们理解。请允许我们用我们最新更新的 iOS 版 Lifehacker Pack 来帮助您。
 

@@ -1,6 +1,6 @@
 # 我是如何成功地和 Craigslist 上的某个家伙交换汽车的
 
-> 原文:[https://jalopnik . com/how-I-successfully-trade-of-some-guy-from-Craig-1787772153](https://jalopnik.com/how-i-successfully-traded-cars-with-some-guy-from-craig-1787772153)
+> 原文：<https://jalopnik.com/how-i-successfully-traded-cars-with-some-guy-from-craig-1787772153>
 
 见过二手车广告里的“会交易”吗？我知道我有过，但我想知道:有人真的会和完全陌生的人交换汽车吗？事实证明确实如此。我照做了，开着我梦想中的车离开了。(可能还有破伤风。)下面是我如何用我的丰田皮卡换来一辆罕见的老款 1975 年国际 Scout。
 

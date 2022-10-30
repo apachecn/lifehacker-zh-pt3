@@ -1,6 +1,6 @@
 # 你不需要婴儿麦片来让你的孩子开始吃固体食物
 
-> 原文:[https://life hacker . com/you-don-dont-need-baby-麦片开始给你的孩子吃固体 1771781028](https://lifehacker.com/you-dont-need-baby-cereal-to-start-your-child-on-solid-1771781028)
+> 原文：<https://lifehacker.com/you-dont-need-baby-cereal-to-start-your-child-on-solid-1771781028>
 
 许多父母、祖父母和婴儿食品公司都认为婴儿应该从谷类食物开始。儿科医生曾经大力提倡，有些甚至鼓励两天大的孩子使用。今天，许多人仍然推荐它，但只是作为一种方便的铁质来源。事实上，这只是众多选择之一。
 

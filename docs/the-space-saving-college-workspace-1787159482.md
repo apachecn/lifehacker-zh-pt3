@@ -1,6 +1,6 @@
 # 节省空间的大学工作空间
 
-> 原文:[https://life hacker . com/the-space-saving-college-workspace-1787159482](https://lifehacker.com/the-space-saving-college-workspace-1787159482)
+> 原文：<https://lifehacker.com/the-space-saving-college-workspace-1787159482>
 
 大多数大学生只能靠宿舍里的书桌和家具勉强度日，但 redditor[themacu](https://www.reddit.com/user/themachu)想要一些更个性化的东西。他拿了一张宜家的桌子，自己涂上颜色，然后组装了这个看起来很锋利的长凳，上面放着一台 linux 个人电脑。
 

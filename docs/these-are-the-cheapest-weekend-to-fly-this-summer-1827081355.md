@@ -1,6 +1,6 @@
 # 这是今年夏天最便宜的周末航班
 
-> 原文:[https://life hacker . com/这些是今夏最便宜的周末飞行机票-1827081355](https://lifehacker.com/these-are-the-cheapest-weekend-to-fly-this-summer-1827081355)
+> 原文：<https://lifehacker.com/these-are-the-cheapest-weekend-to-fly-this-summer-1827081355>
 
 如果你还在为你的家庭暑假计划做最后的润色，我说的“最后润色”是指挑选一个日期，那么 Kayak 已经为你提供了一些建议。
 

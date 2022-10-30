@@ -1,6 +1,6 @@
 # 你想吃的感恩节无肉主食
 
-> 原文:[https://life hacker . com/meat less-thanksgiving-mains-youll-want-to-eat-1820604694](https://lifehacker.com/meatless-thanksgiving-mains-youll-want-to-eat-1820604694)
+> 原文：<https://lifehacker.com/meatless-thanksgiving-mains-youll-want-to-eat-1820604694>
 
 感恩节就是让人们聚在一起，但对于素食者和纯素食者来说，节日大餐可能会以肉类为中心，到了疏远的地步。没有人——即使是你最坏的表亲——应该在其他人想吃什么就吃什么的时候，去拨弄吃剩的原油、酸果沙司和*也许*一些填料。
 

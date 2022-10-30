@@ -1,6 +1,6 @@
 # 经销商不在乎你是否买不起你的车
 
-> 原文:[https://jalopnik . com/the-dealer-dont-care-if you ' t affordable-your-car-1824105579](https://jalopnik.com/the-dealer-doesnt-care-if-you-cant-afford-your-car-1824105579)
+> 原文：<https://jalopnik.com/the-dealer-doesnt-care-if-you-cant-afford-your-car-1824105579>
 
 我认识几个优秀的销售人员，他们宁愿丢掉一笔生意，也不愿让一个人坐进一辆会让买家财务紧张的汽车。但这种道德销售水平在业内是罕见的。有太多的商店会不惜一切代价让你签下那份合同，即使这意味着沉重的债务。
 

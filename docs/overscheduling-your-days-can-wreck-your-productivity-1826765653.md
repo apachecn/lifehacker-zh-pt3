@@ -1,6 +1,6 @@
 # 过度安排你的时间会破坏你的工作效率
 
-> 原文:[https://life hacker . com/over scheduling-your-days 会破坏你的生产力-1826765653](https://lifehacker.com/overscheduling-your-days-can-wreck-your-productivity-1826765653)
+> 原文：<https://lifehacker.com/overscheduling-your-days-can-wreck-your-productivity-1826765653>
 
 每周有一个计划是好的，但是每天有太多的约会可能弊大于利。最近的一项研究表明，我们一天中给自己设定的最后期限越多，我们能完成的深度工作就越少。
 

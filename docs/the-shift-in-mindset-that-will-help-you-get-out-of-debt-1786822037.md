@@ -1,6 +1,6 @@
 # 心态的转变将帮助你摆脱债务
 
-> 原文:[https://life hacker . com/the-shift-in-mind-that-help-you-get-out-of-debt-1786822037](https://lifehacker.com/the-shift-in-mindset-that-will-help-you-get-out-of-debt-1786822037)
+> 原文：<https://lifehacker.com/the-shift-in-mindset-that-will-help-you-get-out-of-debt-1786822037>
 
 摆脱债务并不容易，尽管有大量的 [实用建议来帮助](https://lifehacker.com/top-10-ways-to-conquer-your-debt-1737097563) ，但心理上的伤害是一个巨大的、经常被忽视的障碍。当你对债务感到完全无能为力时，只会让这个过程变得更加困难。虽然完成工作需要金钱，但是将你的心态转变为一种有能力的心态将会帮助你度过通往财务自由的漫漫长路。
 

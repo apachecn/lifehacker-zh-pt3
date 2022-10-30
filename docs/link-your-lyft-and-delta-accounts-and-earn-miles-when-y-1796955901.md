@@ -1,6 +1,6 @@
 # 通过链接您的 Lyft 和达美航空账户赢取里数
 
-> 原文:[https://life hacker . com/link-your-lyft-and-delta-accounts-and-earn-miles-when-y-1796955901](https://lifehacker.com/link-your-lyft-and-delta-accounts-and-earn-miles-when-y-1796955901)
+> 原文：<https://lifehacker.com/link-your-lyft-and-delta-accounts-and-earn-miles-when-y-1796955901>
 
 事实:我乘飞机比乘飞机多得多。然而，现在我两样都做，还能赚里程。今年 5 月，达美航空悄悄宣布了与 Lyft 的新合作伙伴关系，乘客在汽车共享服务上每消费 1 美元，就可以获得 1 英里里程。
 

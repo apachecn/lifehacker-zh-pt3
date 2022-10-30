@@ -1,6 +1,6 @@
 # 这里是如何的危险！这家伙的环球旅行可能会成功
 
-> 原文:[https://jalopnik . com/mapping-the-jeopardy-dudes-road-trip-around-the-world-1820444383](https://jalopnik.com/mapping-the-jeopardy-dudes-road-trip-around-the-world-1820444383)
+> 原文：<https://jalopnik.com/mapping-the-jeopardy-dudes-road-trip-around-the-world-1820444383>
 
 奥斯汀·罗杰斯，这位纽约酒保现在 [变得越来越有名](https://jalopnik.com/jeopardy-finalist-hatches-elaborate-plan-to-travel-the-1820420501) 这要归功于他在《危险边缘》节目中的出色表现！在本周的一次广播节目中，他概述了他打算如何处理他的奖金。其中包括一辆 1991 年的奔驰 W124 300TE 4MATIC 旅行车和一次环球旅行。他会走多远，要花多少钱？让我们算一下。
 

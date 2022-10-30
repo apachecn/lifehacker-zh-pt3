@@ -1,6 +1,6 @@
 # 这就是 FDA 大豆公告的意思
 
-> 原文:[https://life hacker . com/heres-the-hell-that-FDA-soy-announcement-means-1820042574](https://lifehacker.com/heres-what-the-hell-that-fda-soy-announcement-means-1820042574)
+> 原文：<https://lifehacker.com/heres-what-the-hell-that-fda-soy-announcement-means-1820042574>
 
 本周来自 FDA 的重大新闻！法律要求在标签上印有心脏健康信息的食品公司——你准备好了吗？—稍微改变他们的措辞。
 

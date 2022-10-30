@@ -1,6 +1,6 @@
 # 前方漫漫长路桌面
 
-> 原文:[https://life hacker . com/the-long-road-ahead-desktop-1785407039](https://lifehacker.com/the-long-road-ahead-desktop-1785407039)
+> 原文：<https://lifehacker.com/the-long-road-ahead-desktop-1785407039>
 
 读者 [Alec](http://kinja.com/stranaha) 向我们的 [桌面展示](https://kinja.com/tag/desktop-showcase) 提交了这个简单、极简的 Mac 桌面，它简单、低调，看起来很棒。以下是你也可以设置它的方法。
 

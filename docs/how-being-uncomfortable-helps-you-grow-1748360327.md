@@ -1,6 +1,6 @@
 # 不舒服的不同方式可以帮助你成长
 
-> 原文:[https://life hacker . com/how-be-unness-helps-you-grow-1748360327](https://lifehacker.com/how-being-uncomfortable-helps-you-grow-1748360327)
+> 原文：<https://lifehacker.com/how-being-uncomfortable-helps-you-grow-1748360327>
 
 我很可能是世界上最喜欢舒适的人。有什么比一个舒适的大沙发更好的呢？因此，对我来说，这是一个具有挑战性的、反复的教训，让我认识到感觉不舒服几乎是体验真正个人成长的唯一途径。
 

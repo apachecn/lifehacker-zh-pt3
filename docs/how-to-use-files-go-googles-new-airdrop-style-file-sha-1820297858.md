@@ -1,6 +1,6 @@
 # 如何使用谷歌新推出的隔空投送风格文件共享应用程序 Files Go
 
-> 原文:[https://life hacker . com/how-to-use-files-go-Google-new-airdrop-style-file-sha-1820297858](https://lifehacker.com/how-to-use-files-go-googles-new-airdrop-style-file-sha-1820297858)
+> 原文：<https://lifehacker.com/how-to-use-files-go-googles-new-airdrop-style-file-sha-1820297858>
 
 苹果有 [【隔空投送】](https://lifehacker.com/set-airdrop-to-contacts-only-to-protect-your-privacy-1661694999) 用于 iPhones 和其他苹果设备之间快速简单的文件共享。现在，谷歌正在为 Android 带来一个类似的功能，一个名为 [的新应用程序。](https://play.google.com/store/apps/details?id=com.google.android.apps.nbu.files) 
 

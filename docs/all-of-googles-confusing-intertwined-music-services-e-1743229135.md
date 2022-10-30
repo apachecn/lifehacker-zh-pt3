@@ -1,6 +1,6 @@
 # 谷歌所有令人困惑的、交织在一起的音乐服务解释说
 
-> 原文:[https://life hacker . com/all-of-Google-foaming-twined-music-services-e-1743229135](https://lifehacker.com/all-of-googles-confusing-intertwined-music-services-e-1743229135)
+> 原文：<https://lifehacker.com/all-of-googles-confusing-intertwined-music-services-e-1743229135>
 
 上周，谷歌推出了 YouTube 音乐，引起了一些欢呼、一些抱怨和许多“他们不是已经有音乐服务了吗？”事实上，他们有好几个:首先是 Google Play Music 和 YouTube Red。但是不要被愚弄了——它们看起来是分开的，但实际上是互补的。
 

@@ -1,6 +1,6 @@
 # 用陀螺仪应用程序创建一个华丽的数据手册，记录你一年中所做的一切
 
-> 原文:[https://life hacker . com/create-a-luminous-data-viz-book-of-everything-you-do-in-1827709427](https://lifehacker.com/create-a-gorgeous-data-viz-book-of-everything-you-do-in-1827709427)
+> 原文：<https://lifehacker.com/create-a-gorgeous-data-viz-book-of-everything-you-do-in-1827709427>
 
 **Android，iOS:** 你可能有的权利用怀疑的眼光看待那些承诺“跟踪你的整个生活”的应用或服务。一家公司如何处理这些数据？你真的需要一些东西来记录你去的每一个地方，拍的每一张照片，感受的每一种情绪吗？
 

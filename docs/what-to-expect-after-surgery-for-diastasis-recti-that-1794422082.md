@@ -1,6 +1,6 @@
 # 直肠分离手术后会发生什么
 
-> 原文:[https://life hacker . com/what-to-expect-after-operation-for-dis stasis-recti-that-1794422082](https://lifehacker.com/what-to-expect-after-surgery-for-diastasis-recti-that-1794422082)
+> 原文：<https://lifehacker.com/what-to-expect-after-surgery-for-diastasis-recti-that-1794422082>
 
 在生孩子的所有物理侮辱中——分娩、母乳喂养、让我感觉自己像一只被小网困住的巨大受伤海洋生物的网状内衣——产后胃犬是最糟糕的。对我们中的许多人来说，假以时日，或许再加一点锻炼，我们膨胀的腹部最终会缩小。但对其他人来说，这条狗依然坚定不移...一个艰难时期的不愉快的遗留物，有点像保罗·沃尔福威茨*。*这是一种叫做*直肌分离*的情况，或者说是一个人的腹部肌肉分离，至少对我来说，它让我看起来像是已经怀孕六个月的产妇。
 

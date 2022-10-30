@@ -1,6 +1,6 @@
 # 这是正式的休闲性爱旺季
 
-> 原文:[https://life hacker . com/its-official-peak-casual-sex-season-1795896840](https://lifehacker.com/its-officially-peak-casual-sex-season-1795896840)
+> 原文：<https://lifehacker.com/its-officially-peak-casual-sex-season-1795896840>
 
 看来“夏日艳遇”是真的。根据在线约会服务 OkCupid 的数据，现在是大多数人寻找一夜情的时候了。
 

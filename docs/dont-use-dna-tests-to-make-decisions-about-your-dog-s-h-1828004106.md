@@ -1,6 +1,6 @@
 # 不要用 DNA 测试来决定你的狗的健康
 
-> 原文:[https://life hacker . com/dont-use-DNA-tests-to-make-decision-about-your-dog-s-h-1828004106](https://lifehacker.com/dont-use-dna-tests-to-make-decisions-about-your-dog-s-h-1828004106)
+> 原文：<https://lifehacker.com/dont-use-dna-tests-to-make-decisions-about-your-dog-s-h-1828004106>
 
 你可以用棉签擦拭你的狗的脸颊内侧，找出它们是否有任何与某些犬类疾病相关的基因——但你最好不要这样做。这些服务有类似人类 DNA 检测的缺陷，包括 [假阳性](https://lifehacker.com/mail-order-genetic-tests-may-turn-up-a-lot-of-false-pos-1824126192) 和假阴性。
 

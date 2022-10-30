@@ -1,6 +1,6 @@
 # 为什么你不应该在感恩节去施舍处做志愿者
 
-> 原文:[https://life hacker . com/why-you-should-not-volunteer-at-a-soup-kitchen-this-thank-1820521504](https://lifehacker.com/why-you-shouldnt-volunteer-at-a-soup-kitchen-this-thank-1820521504)
+> 原文：<https://lifehacker.com/why-you-shouldnt-volunteer-at-a-soup-kitchen-this-thank-1820521504>
 
 在感恩节和接下来的日子里，施粥场将会非常忙碌。不仅仅是他们通常的客户，还有那些总是想在那些特殊的日子里提供帮助的志愿者。志愿服务很好，但是也许再看看你的时间表。
 

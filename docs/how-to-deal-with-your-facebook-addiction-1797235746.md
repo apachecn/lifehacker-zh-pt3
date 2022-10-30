@@ -1,6 +1,6 @@
 # 如何应对你的脸书瘾
 
-> 原文:[https://life hacker . com/how-to-deal-your-Facebook-addiction-1797235746](https://lifehacker.com/how-to-deal-with-your-facebook-addiction-1797235746)
+> 原文：<https://lifehacker.com/how-to-deal-with-your-facebook-addiction-1797235746>
 
 脸书影响了我的工作效率、我的精神健康以及我和我妻子的关系，我妻子对我频繁的检查并不太感兴趣。我需要帮助。
 

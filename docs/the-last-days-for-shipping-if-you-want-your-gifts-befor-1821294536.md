@@ -1,6 +1,6 @@
 # 如果你想在圣诞节前收到礼物，这是发货的最后几天
 
-> 原文:[https://life hacker . com/the-last-days for-shipping-if-want-your-gifts-before-1821294536](https://lifehacker.com/the-last-days-for-shipping-if-you-want-your-gifts-befor-1821294536)
+> 原文：<https://lifehacker.com/the-last-days-for-shipping-if-you-want-your-gifts-befor-1821294536>
 
 [免费送货日](https://twocents.lifehacker.com/free-shipping-day-is-this-friday-1821255458) 是明天，但是正如我们注意到的，一些零售商提供整个季节的免费送货。而我们中的一些人总会不可避免地在最后一刻买礼物(嗨)。以下是在 12 月 25 日之前订购或运送物品的最后几天(除非另有说明，运送不是免费的):
 

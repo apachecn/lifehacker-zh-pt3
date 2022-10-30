@@ -1,6 +1,6 @@
 # 有胡子怎么护肤
 
-> 原文:[https://life hacker . com/how-do-skin care-when you-have-a-beard-1825055311](https://lifehacker.com/how-to-do-skincare-when-you-have-a-beard-1825055311)
+> 原文：<https://lifehacker.com/how-to-do-skincare-when-you-have-a-beard-1825055311>
 
 我们最近写了关于 [为什么护肤很重要，以及你在日常生活中需要什么](https://vitals.lifehacker.com/lifehackers-essential-science-based-guide-to-skin-care-1824029261) 。我们的消息来源强调，每个人，甚至男性，都应该每天使用防晒霜，通常也要使用保湿霜。但是一个评论者尖着嗓子问:嗯，如果我有胡子呢？
 

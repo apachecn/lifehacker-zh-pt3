@@ -1,6 +1,6 @@
 # 在网上预订机票时如何避免信用卡费用
 
-> 原文:[https://life hacker . com/how-to-avoid-credit-fees-when-you-book-a-flight-on-1828965754](https://lifehacker.com/how-to-avoid-credit-card-fees-when-you-book-a-flight-on-1828965754)
+> 原文：<https://lifehacker.com/how-to-avoid-credit-card-fees-when-you-book-a-flight-on-1828965754>
 
 在线旅行社(OTA)，如 Expedia 和 Orbitz，对比较航班价格很有用(尽管一些航空公司，如西南航空，不允许他们的 [航班在搜索结果中显示](https://twocents.lifehacker.com/cancel-a-flight-for-free-with-the-24-hour-rule-1828627155) )。然而，节俭的消费者应该意识到，如果你预订一家低价航空公司，你将被收取信用卡费用。根据 CreditCards.com的说法，这笔额外费用可能会改变哪个航班是*实际上*最便宜的。
 

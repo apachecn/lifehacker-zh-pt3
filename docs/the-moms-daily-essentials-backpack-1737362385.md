@@ -1,6 +1,6 @@
 # 妈妈的日常必需品背包
 
-> 原文:[https://life hacker . com/the-moms-daily-essentials-backpack-1737362385](https://lifehacker.com/the-moms-daily-essentials-backpack-1737362385)
+> 原文：<https://lifehacker.com/the-moms-daily-essentials-backpack-1737362385>
 
 当你是一位母亲，带着孩子乘坐公共交通工具在城里四处奔波时，你需要把各种必需品放在一个小包里。Lifehacker 读者[evebeebee](http://kinja.com/evebeebee#_ga=1.63188775.968941705.1436971740)[分享了她做那件事的袋子](http://evebeebee.kinja.com/dc-mom-s-go-bag-adults-carrying-backpacks-is-a-thing-1736763516) 。
 

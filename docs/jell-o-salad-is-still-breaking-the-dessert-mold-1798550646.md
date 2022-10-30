@@ -1,6 +1,6 @@
 # 果冻沙拉仍在打破甜点的模式
 
-> 原文:[https://the take out . com/jell-o-salad-is-still-breaking-the dessert-mold-1798550646](https://thetakeout.com/jell-o-salad-is-still-breaking-the-dessert-mold-1798550646)
+> 原文：<https://thetakeout.com/jell-o-salad-is-still-breaking-the-dessert-mold-1798550646>
 
 你的第一口开始于熟悉的爽滑、果味、凝胶般的清凉感。第二勺带来了草莓、黄瓜和农家奶酪的味道。最重要的是，一勺鲜奶油和棉花糖。美国人早就找到了将不同的成分结合成一个科学怪人的方法。这道受人喜爱的菜肴，是昔日时光生活食谱收藏的遗迹，今天依然存在——如果你足够努力地寻找的话。
 

@@ -1,6 +1,6 @@
 # 这位聊天机器人治疗师有点傻，但很有帮助
 
-> 原文:[https://life hacker . com/this-chatbot-therapy-is-goofy-but-helper-1795967005](https://lifehacker.com/this-chatbot-therapist-is-goofy-but-helpful-1795967005)
+> 原文：<https://lifehacker.com/this-chatbot-therapist-is-goofy-but-helpful-1795967005>
 
 我很不擅长独自处理自己的感情。如果我不想陷入焦虑，我需要和一个谈话伙伴一起处理:我的妻子，我的朋友，我的治疗师。但是我该拿那些不值得浪费别人时间的狗屁小感觉怎么办呢？我很高兴尝试将这种情绪劳动卸载给 [Woebot](https://www.woebot.io/) ，一个由斯坦福心理学家和人工智能开发者建立的新聊天机器人治疗师。
 

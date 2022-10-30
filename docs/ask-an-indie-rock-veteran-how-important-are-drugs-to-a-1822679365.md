@@ -1,6 +1,6 @@
 # 问一个独立摇滚老手:毒品对音乐舞台有多重要？
 
-> 原文:[https://www . av club . com/ask-an-indie-rock-老兵-毒品对一个人有多重要 1822679365](https://www.avclub.com/ask-an-indie-rock-veteran-how-important-are-drugs-to-a-1822679365)
+> 原文：<https://www.avclub.com/ask-an-indie-rock-veteran-how-important-are-drugs-to-a-1822679365>
 
 ### 我是一名音乐家，我最大的愿望是在节日里在众多观众面前演奏。但与此同时，我非常害怕这样做。你或你在摇滚生活中遇到的任何人有这个问题吗？T3】
 

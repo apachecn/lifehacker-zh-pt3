@@ -1,6 +1,6 @@
 # 使用这个菜单栏应用程序跟踪你的待办事项列表
 
-> 原文:[https://life hacker . com/keep-track-of-your-to-do-list-with this-menu-bar-app-1826175382](https://lifehacker.com/keep-track-of-your-to-do-list-with-this-menu-bar-app-1826175382)
+> 原文：<https://lifehacker.com/keep-track-of-your-to-do-list-with-this-menu-bar-app-1826175382>
 
 我通常在开始每一天的工作时，都会列出当天需要完成的事情。我曾经在 Notes 应用程序中做过的事情，最终变成了只使用笔记本中的一页。随着新东西的出现，我会添加到列表中，最终以一个混乱的列表结束，一些东西被划掉，另一些写在空白处，不可避免地，有一样东西不小心漏掉了。
 

@@ -1,6 +1,6 @@
 # 谷歌十月份的活动有什么值得期待的
 
-> 原文:[https://life hacker . com/what-to-expect-from-Google-s-October-event-1829555514](https://lifehacker.com/what-to-expect-from-google-s-october-event-1829555514)
+> 原文：<https://lifehacker.com/what-to-expect-from-google-s-october-event-1829555514>
 
 10 月 9 日星期二，谷歌将在纽约市举行年度硬件活动。在这些活动中，我们听到了这家科技巨头正在准备的所有重大设备和服务新发布。
 

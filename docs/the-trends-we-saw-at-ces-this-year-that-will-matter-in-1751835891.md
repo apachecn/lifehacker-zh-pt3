@@ -1,6 +1,6 @@
 # 我们看到的消费电子展趋势将在 2016 年产生影响
 
-> 原文:[https://life hacker . com/the-trends-we-saw-at-ces-this-year-that-matter-in-1751835891](https://lifehacker.com/the-trends-we-saw-at-ces-this-year-that-will-matter-in-1751835891)
+> 原文：<https://lifehacker.com/the-trends-we-saw-at-ces-this-year-that-will-matter-in-1751835891>
 
 本周，消费电子展 在拉斯维加斯落下帷幕。每年，科技公司都会聚在一起展示他们所有最酷的东西。大部分并不像他们想象的那么酷。然而，一些趋势让我们对 2016 年的科技有所期待。
 

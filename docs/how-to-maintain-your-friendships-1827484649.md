@@ -1,6 +1,6 @@
 # 如何维持你的友谊
 
-> 原文:[https://life hacker . com/how-to-maintain-your-friendships-1827484649](https://lifehacker.com/how-to-maintain-your-friendships-1827484649)
+> 原文：<https://lifehacker.com/how-to-maintain-your-friendships-1827484649>
 
 在生活中的重大事件中，比如婚礼、里程碑式的生日或者一份新工作，很容易陪伴朋友和家人。这些都是大事件，对我们来说不需要太多的努力，让我们只需出现就能表达我们对朋友的感激。
 

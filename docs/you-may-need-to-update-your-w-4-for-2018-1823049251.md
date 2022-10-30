@@ -1,6 +1,6 @@
 # 你可能需要更新 2018 年的 W-4
 
-> 原文:[https://life hacker . com/you-may-need-to-update-your-w-4-for-2018-1823049251](https://lifehacker.com/you-may-need-to-update-your-w-4-for-2018-1823049251)
+> 原文：<https://lifehacker.com/you-may-need-to-update-your-w-4-for-2018-1823049251>
 
 专家建议工人们本月检查他们的薪水，因为新税收法案的变化预计将生效。
 

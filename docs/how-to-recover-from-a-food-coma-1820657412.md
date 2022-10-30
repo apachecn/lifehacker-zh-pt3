@@ -1,6 +1,6 @@
 # 如何从食物昏迷中恢复
 
-> 原文:[https://life hacker . com/how-to-recover-from-a-food-coma-1820657412](https://lifehacker.com/how-to-recover-from-a-food-coma-1820657412)
+> 原文：<https://lifehacker.com/how-to-recover-from-a-food-coma-1820657412>
 
 你已经做到了。你已经把自己吃到食物昏迷了。你的腹部感觉超出了承受能力，你几乎不能移动你的四肢。毫无疑问，理想的解决方案是屈服于色氨酸诱导的睡眠，直到一切都过去。但是既然美食灯火管制的乐趣并不总是一种选择——你的家人坚持要在假期玩一轮猜字谜游戏，或者你的朋友不想整晚带着你虚弱的身体到处走——那么 B 计划是什么？
 

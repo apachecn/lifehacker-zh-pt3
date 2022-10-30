@@ -1,6 +1,6 @@
 # 为什么你应该用微波炉加热你的笔记本
 
-> 原文:[https://life hacker . com/why-you-should-wave-your-notebook-1822028416](https://lifehacker.com/why-you-should-microwave-your-notebook-1822028416)
+> 原文：<https://lifehacker.com/why-you-should-microwave-your-notebook-1822028416>
 
 上周五，当我们总结员工的每周升级时， 我们的编辑放弃了早起的 FOMO，用新植物照亮冬天，整理我们的公寓，并改用立式办公桌。
 

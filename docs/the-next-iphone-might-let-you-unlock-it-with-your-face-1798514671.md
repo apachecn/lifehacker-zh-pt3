@@ -1,6 +1,6 @@
 # 下一代 iPhone 可能会让你用脸解锁，那就太傻了
 
-> 原文:[https://life hacker . com/the-next-iphone-may-let-you-unlock-with-you-face-1798514671](https://lifehacker.com/the-next-iphone-might-let-you-unlock-it-with-your-face-1798514671)
+> 原文：<https://lifehacker.com/the-next-iphone-might-let-you-unlock-it-with-your-face-1798514671>
 
 苹果即将推出的 iPhone 8 可能会让你通过面部识别解锁，安全专家告诉 Mashable [这是一个可怕的想法](http://mashable.com/2017/08/28/trouble-facial-recognition-technology-smartphones/) 。目前的面部识别技术，就像解锁三星 Galaxy S8 的那种， [可以被一张照片](http://www.businessinsider.com/samsung-galaxy-s8-facial-recognition-tricked-with-a-photo-2017-3) 骗过。三星假装这没什么大不了的，但这个噱头创造了一种虚假的安全感，许多消费者不会知道这种安全感就像“滑动解锁”一样安全。
 

@@ -1,6 +1,6 @@
 # 如何辨别你是普通的新妈妈焦虑还是产后焦虑
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-have-normal-new-mom-worries-o-1821959938](https://lifehacker.com/how-to-tell-whether-you-have-ordinary-new-mom-worries-o-1821959938)
+> 原文：<https://lifehacker.com/how-to-tell-whether-you-have-ordinary-new-mom-worries-o-1821959938>
 
 在我生下第二个孩子的第二天，儿科住院医生来了，主动给他打了一针疫苗。“会让他哭吗？”我问她，当她说*可能的时候，*我告诉她不可能，如果*在那个特定的时刻哭了，我会完全崩溃的。她看着完全安静的宝宝，而我，平静地坐在躺椅上，耸耸肩，告诉我下周去拿。我肯定我们看起来很好，但它是脆弱的。吓坏了大哭一场是我当时的事。* 
 

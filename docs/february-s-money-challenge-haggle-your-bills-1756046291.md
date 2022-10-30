@@ -1,6 +1,6 @@
 # 二月的金钱挑战:讨价还价
 
-> 原文:[https://life hacker . com/junior-s-money-challenge-haggle-your-bills-1756046291](https://lifehacker.com/february-s-money-challenge-haggle-your-bills-1756046291)
+> 原文：<https://lifehacker.com/february-s-money-challenge-haggle-your-bills-1756046291>
 
 你们中的许多人在上个月的 挑战中 [节省了几百美元——太棒了！然而，如果你在这个月的挑战中成功，你将节省一整年。二月挑战:](http://twocents.lifehacker.com/how-much-did-you-save-during-january-s-money-challenge-1755788866#_ga=1.205326608.1662698338.1411053142) [账单砍价日](https://lifehacker.com/have-a-bill-haggle-day-to-reduce-your-monthly-expense-1614156154) 。
 

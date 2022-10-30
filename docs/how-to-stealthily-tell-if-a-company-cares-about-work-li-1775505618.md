@@ -1,6 +1,6 @@
 # 如何暗中判断一家公司是否关心工作与生活的平衡
 
-> 原文:[https://life hacker . com/how-to-steely-tell-if-a-company-care-work-Li-1775505618](https://lifehacker.com/how-to-stealthily-tell-if-a-company-cares-about-work-li-1775505618)
+> 原文：<https://lifehacker.com/how-to-stealthily-tell-if-a-company-cares-about-work-li-1775505618>
 
 当你关心自己的职业发展时，偶尔工作到很晚，周六去办公室，超出你的工作描述是正常的。然而，这并不能否定另一个事实:你应该为这样一家公司工作，这家公司重视你的个人生活，理解灵活性的的重要性，而且最重要的是，相信花时间和家人在一起很重要。
 

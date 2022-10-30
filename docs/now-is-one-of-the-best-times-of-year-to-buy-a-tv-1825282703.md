@@ -1,6 +1,6 @@
 # 你现在就可以在电视上获得一笔大买卖
 
-> 原文:[https://life hacker . com/now-is-a-the-best-times of-a-year-buy-a-TV-1825282703](https://lifehacker.com/now-is-one-of-the-best-times-of-year-to-buy-a-tv-1825282703)
+> 原文：<https://lifehacker.com/now-is-one-of-the-best-times-of-year-to-buy-a-tv-1825282703>
 
 如果你想买一台新电视，现在是一年中最好的购买时机之一。
 

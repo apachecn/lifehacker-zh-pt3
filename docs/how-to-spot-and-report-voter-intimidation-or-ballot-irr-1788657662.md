@@ -1,6 +1,6 @@
 # 如何发现和报告选民恐吓或投票违规行为
 
-> 原文:[https://life hacker . com/how-to-spot-and-report-voter-恫吓或投票-irr-1788657662](https://lifehacker.com/how-to-spot-and-report-voter-intimidation-or-ballot-irr-1788657662)
+> 原文：<https://lifehacker.com/how-to-spot-and-report-voter-intimidation-or-ballot-irr-1788657662>
 
 自从我们第一次对什么样的人应该投票给 产生分歧以来，在投票站恐吓选民就一直是个问题。随着今年紧张局势的加剧，以下是如何发现选民恐吓和投票违规行为，以及如果看到这种情况该怎么做。
 

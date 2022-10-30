@@ -1,6 +1,6 @@
 # 如何成功地将工作委派给别人
 
-> 原文:[https://life hacker . com/how-to-successfully-delegate-work-to-someone-1829254908](https://lifehacker.com/how-to-successfully-delegate-work-to-someone-else-1829254908)
+> 原文：<https://lifehacker.com/how-to-successfully-delegate-work-to-someone-else-1829254908>
 
 当你忙于应付许多不同的与工作相关的任务时，委派任务可能是保持你头脑清醒和及时完成所有事情的关键因素。不是每个人都能做到，正确的帮助是无价的。也就是说，委派事情有正确和错误的方式。企业家 [最近做了一个综述](https://www.entrepreneur.com/article/320192) 关于如何正确委派事情的一些提示。以下是它的一些建议以及我自己的一些建议。
 

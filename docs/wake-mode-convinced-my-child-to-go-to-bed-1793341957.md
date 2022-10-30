@@ -1,6 +1,6 @@
 # 唤醒模式说服我的孩子去睡觉
 
-> 原文:[https://life hacker . com/wake-mode-confident-my-child-to-bed-1793341957](https://lifehacker.com/wake-mode-convinced-my-child-to-go-to-bed-1793341957)
+> 原文：<https://lifehacker.com/wake-mode-convinced-my-child-to-go-to-bed-1793341957>
 
 iOS/Android:如果昨晚没睡好，今天会很累。对吧。 [唤醒模式](http://wakemode.com/) 显示你的疲劳程度，作为你身体的电池电量。对你我来说，这是个可爱的花招。对我七岁的孩子来说，这是一个让*真的去睡觉*的令人信服的理由。
 

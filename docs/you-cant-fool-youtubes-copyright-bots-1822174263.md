@@ -1,6 +1,6 @@
 # 你骗不了 YouTube 的版权机器人
 
-> 原文:[https://life hacker . com/you-cant-fool-YouTube es-copyright-bots-1822174263](https://lifehacker.com/you-cant-fool-youtubes-copyright-bots-1822174263)
+> 原文：<https://lifehacker.com/you-cant-fool-youtubes-copyright-bots-1822174263>
 
 如果你去 YouTube 看了一集电视节目的非官方上传，甚至是你最喜欢的动漫中的一个场景，你可能见过上传者为了阻止 YouTube 删除他们的视频而做的奇怪事情。你的节目可能会加快一点，声音变小，视频水平翻转或被数字降雪覆盖。也许你经历过，认识到这种降级的质量是避免 YouTube 的版权机器人的必要牺牲。坏消息是，这可能完全没有必要。
 

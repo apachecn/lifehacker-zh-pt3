@@ -1,6 +1,6 @@
 # 使用这些应用程序为无家可归者提供即时帮助
 
-> 原文:[https://life hacker . com/use-these-apps-to-get-immediate-help for the homeless-1823001478](https://lifehacker.com/use-these-apps-to-get-immediate-help-for-the-homeless-1823001478)
+> 原文：<https://lifehacker.com/use-these-apps-to-get-immediate-help-for-the-homeless-1823001478>
 
 “无家可归者的应用程序”听起来可能有点奇怪。但是廉价的智能手机、外展计划以及青年无家可归意味着许多人有电话却没有家。(截至 2011 年，几乎三分之二的无家可归的年轻人 [拥有一部手机](https://www.ncbi.nlm.nih.gov/pubmed/22076445) 。)在几个城市，他们可以使用移动应用程序来寻找食物、住所和其他资源。
 

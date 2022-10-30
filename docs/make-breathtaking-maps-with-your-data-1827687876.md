@@ -1,6 +1,6 @@
 # 使用您的数据制作令人惊叹的地图
 
-> 原文:[https://life hacker . com/make-breathing-maps-with-your-data-1827687876](https://lifehacker.com/make-breathtaking-maps-with-your-data-1827687876)
+> 原文：<https://lifehacker.com/make-breathtaking-maps-with-your-data-1827687876>
 
 如果您收集大量地理数据用于研究，或者如果您喜欢浏览人口普查文件或其他充满统计数据的数据库，那么您已经有了一个新的工具，可以在 3D 动态地图中可视化这些数据。优步发布了 [Kepler.gl、](http://kepler.gl/#/demo) 一款开源绘图软件，具有上传分类数据的简单界面。
 

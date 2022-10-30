@@ -1,6 +1,6 @@
 # 这个游戏测试你辨别假新闻的能力
 
-> 原文:[https://life hacker . com/this-game-tests-you-capacity-to-spot-the-fake-news-1796955584](https://lifehacker.com/this-game-tests-your-ability-to-spot-fake-news-1796955584)
+> 原文：<https://lifehacker.com/this-game-tests-your-ability-to-spot-fake-news-1796955584>
 
 现在比以往任何时候都更重要的是，当你阅读#FakeNews 时，能够分辨出来。然而，确定某样东西是真是假并不总是容易的。你认为你了解你的东西吗？给 [人为的](http://factitious.augamestudio.com/#/) 一个尝试。
 

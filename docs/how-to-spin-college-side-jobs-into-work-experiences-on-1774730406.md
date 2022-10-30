@@ -1,6 +1,6 @@
 # 如何在简历中把大学兼职变成工作经历
 
-> 原文:[https://life hacker . com/how-to-spin-the-college-side-jobs-to-work-experiences-on-1774730406](https://lifehacker.com/how-to-spin-college-side-jobs-into-work-experiences-on-1774730406)
+> 原文：<https://lifehacker.com/how-to-spin-college-side-jobs-into-work-experiences-on-1774730406>
 
 在我四年的大学教育中，我做过很多工作，包括上学期间和回到我长大的地方的暑假。我的角色从餐馆服务员到写作中心职员。当要拼凑我的第一份职业简历时，我最初对自己缺乏现实经验感到紧张。
 

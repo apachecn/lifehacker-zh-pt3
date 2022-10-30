@@ -1,6 +1,6 @@
 # 我是马特·麦库埃，99U 的主编，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-matt-mccue-99u-edit-in-chief-and-this-is-how-I-w-1798712189](https://lifehacker.com/im-matt-mccue-99u-editor-in-chief-and-this-is-how-i-w-1798712189)
+> 原文：<https://lifehacker.com/im-matt-mccue-99u-editor-in-chief-and-this-is-how-i-w-1798712189>
 
 作为 Adobe 面向创意专业人士的出版物 [99U](http://99u.com/) 的主编，马特·麦库埃负责监管有关客户工作、讲故事和生产力等主题的故事，并涉及艺术、设计、广告、音乐、技术和媒体领域的创意人员。除了 99U，他的 [为*财富*、*快公司*、 *GQ* 、ESPN 等网点写](https://mattmccue.contently.com/) 。我们询问了他自己的创造性工作。
 

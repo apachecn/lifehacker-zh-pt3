@@ -1,6 +1,6 @@
 # 设定一个“拒绝目标”,它可能会带来成功
 
-> 原文:[https://life hacker . com/set-a-rejection-goal-and-it-may-lead-to-success-1826402553](https://lifehacker.com/set-a-rejection-goal-and-it-might-just-lead-to-success-1826402553)
+> 原文：<https://lifehacker.com/set-a-rejection-goal-and-it-might-just-lead-to-success-1826402553>
 
 演员有一句话:不去试镜，你不会得到 100%的角色。如果你是一个艺术家，或者作家，或者只是一个正在找工作的人，你可能会发现拒绝是如此痛苦，以至于你已经停止申请了。社交媒体和流媒体电视是如此令人宽慰——你为什么要把自己放在那里，去买你根本不会得到的东西呢？
 

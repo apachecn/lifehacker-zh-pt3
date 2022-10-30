@@ -1,6 +1,6 @@
 # 你如何研究雪花
 
-> 原文:[https://life hacker . com/how-you-can-study-sneagle-1821335800](https://lifehacker.com/how-you-can-study-snowflakes-1821335800)
+> 原文：<https://lifehacker.com/how-you-can-study-snowflakes-1821335800>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-G9P26Bfuem0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-G9P26Bfuem0&start=0) 
 

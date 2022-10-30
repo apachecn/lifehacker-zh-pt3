@@ -1,6 +1,6 @@
 # 关于非接触式支付限额需要了解什么
 
-> 原文:[https://life hacker . com/what-to-know-know-about-contacted-payment-limits-1823355784](https://lifehacker.com/what-to-know-about-contactless-payment-limits-1823355784)
+> 原文：<https://lifehacker.com/what-to-know-about-contactless-payment-limits-1823355784>
 
 如果你厌倦了等待 EMV 芯片卡支付处理，你会很高兴地知道非接触式信用卡和支付系统正在美国流行
 

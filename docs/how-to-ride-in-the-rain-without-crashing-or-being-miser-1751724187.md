@@ -1,6 +1,6 @@
 # 如何在雨中骑行而不撞车或不痛苦
 
-> 原文:[https://jalopnik . com/how-to-ride in the rain-white-or-be the 吝啬鬼-1751724187](https://jalopnik.com/how-to-ride-in-the-rain-without-crashing-or-being-miser-1751724187)
+> 原文：<https://jalopnik.com/how-to-ride-in-the-rain-without-crashing-or-being-miser-1751724187>
 
 当天气变坏时，许多骑手很乐意挂上头盔，但也有很多人一年到头都在骑，或者满足于在雨中骑行。如果你知道如何正确地做，会有更多的人这样做——这就是我们来的地方。
 

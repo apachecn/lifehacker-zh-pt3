@@ -1,6 +1,6 @@
 # 如何伪造“健身前后”照片
 
-> 原文:[https://life hacker . com/how-to-fake-before-and-after-fitness-photos-1788276763](https://lifehacker.com/how-to-fake-before-and-after-fitness-photos-1788276763)
+> 原文：<https://lifehacker.com/how-to-fake-before-and-after-fitness-photos-1788276763>
 
 我们都看过那些人从河豚般的肚子变成令人羡慕的腹肌的变形照片。你可能会沉思，“我希望我也能得到那张‘事后’的照片。”哦，但是你可以。实际上，并没有接近那个伟大的形状。这是不诚实的，但营销人员这样做，热该死，你会看起来*精彩*。
 

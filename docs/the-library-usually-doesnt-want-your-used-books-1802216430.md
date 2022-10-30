@@ -1,6 +1,6 @@
 # 图书馆(通常)不要你用过的书
 
-> 原文:[https://life hacker . com/the-library-not-want-your-used-books-1802216430](https://lifehacker.com/the-library-usually-doesnt-want-your-used-books-1802216430)
+> 原文：<https://lifehacker.com/the-library-usually-doesnt-want-your-used-books-1802216430>
 
 你以为图书馆会想要你的旧书！但是除了偶尔的旧书出售，图书馆通常只从特定的卖主那里买书。把你的旧书扔给他们，你实际上是在给志愿者创造工作，让事情变得更糟。
 

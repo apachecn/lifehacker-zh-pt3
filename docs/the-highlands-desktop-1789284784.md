@@ -1,6 +1,6 @@
 # 高地桌面
 
-> 原文:[https://lifehacker.com/the-highlands-desktop-1789284784](https://lifehacker.com/the-highlands-desktop-1789284784)
+> 原文：<https://lifehacker.com/the-highlands-desktop-1789284784>
 
 这幅风景可能看起来像是冒着蒸汽或着火了，但它只是照片拍摄时一天中明亮、丰富的颜色——它构成了一幅美丽的壁纸。添加一点定制，Nicolas 就有了一个值得每天坐下来使用的很棒的桌面。这是所有设置的方式。
 

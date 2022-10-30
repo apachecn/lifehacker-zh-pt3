@@ -1,6 +1,6 @@
 # 跳过延长保修，节省资金
 
-> 原文:[https://life hacker . com/skip-the-extended-warranty-and-save-the-money-institute-1786556184](https://lifehacker.com/skip-the-extended-warranty-and-save-the-money-instead-1786556184)
+> 原文：<https://lifehacker.com/skip-the-extended-warranty-and-save-the-money-instead-1786556184>
 
 如果你从一家信誉良好的公司购买产品，可以随意跳过零售商的“延长保修”——你可能已经在制造商的保修范围内，潜在的维修费用可能比你想象的要低。
 

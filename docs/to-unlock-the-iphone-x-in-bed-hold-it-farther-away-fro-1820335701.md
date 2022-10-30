@@ -1,6 +1,6 @@
 # 躺在床上如何解锁 iPhone X
 
-> 原文:[https://life hacker . com/to-unlock-the-iphone-x-in-bed-hold-it-far-away-fro-1820335701](https://lifehacker.com/to-unlock-the-iphone-x-in-bed-hold-it-farther-away-fro-1820335701)
+> 原文：<https://lifehacker.com/to-unlock-the-iphone-x-in-bed-hold-it-farther-away-fro-1820335701>
 
 [【Face ID】](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)， [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 中推出的新型人脸扫描安全摄像头，在大部分时间里工作得相当完美。但是有一个地方苹果的最新技术可能会给你带来麻烦:床上。
 

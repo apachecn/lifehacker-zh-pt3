@@ -1,6 +1,6 @@
 # 你关于气候变化的基本问题，已经回答了
 
-> 原文:[https://life hacker . com/your-basic-questions-about-climate-change-answered-1829607959](https://lifehacker.com/your-basic-questions-about-climate-change-answered-1829607959)
+> 原文：<https://lifehacker.com/your-basic-questions-about-climate-change-answered-1829607959>
 
 世界正在变暖。对此不再有任何疑问。随着一份 [的新报告详细说明我们](https://gizmodo.com/we-have-a-decade-to-prevent-a-total-climate-disaster-1829585748) 到底有多惨，是时候回顾一下我们所处的基本情况了。
 

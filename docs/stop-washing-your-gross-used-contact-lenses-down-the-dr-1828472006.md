@@ -1,6 +1,6 @@
 # 不要把你用过的隐形眼镜冲进下水道
 
-> 原文:[https://gizmodo . com/stop-washing-your-gross-used-隐形眼镜-down-the-dr-1828472006](https://gizmodo.com/stop-washing-your-gross-used-contact-lenses-down-the-dr-1828472006)
+> 原文：<https://gizmodo.com/stop-washing-your-gross-used-contact-lenses-down-the-dr-1828472006>
 
 我大部分时间都戴隐形眼镜——尤其是在夏天，我希望戴上一副超级太阳镜。每个月底，我的两个柔性镜片的寿命就结束了。他们进了浴室的垃圾桶。
 

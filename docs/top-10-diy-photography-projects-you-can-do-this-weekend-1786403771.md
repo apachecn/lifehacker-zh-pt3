@@ -1,6 +1,6 @@
 # 这个周末你可以做的十大 DIY 摄影项目
 
-> 原文:[https://life hacker . com/top-10-DIY-photography-projects-you-can-do-this-weekend-1786403771](https://lifehacker.com/top-10-diy-photography-projects-you-can-do-this-weekend-1786403771)
+> 原文：<https://lifehacker.com/top-10-diy-photography-projects-you-can-do-this-weekend-1786403771>
 
 无论你是喜欢用 DSLR、智能手机还是介于两者之间的东西拍照，现在都是拍摄完美照片的绝佳时机。如果你需要配件、一些照明、一个工作室或其他工具来帮助你，这里有一些伟大的项目，需要一点时间、精力和一些 DIY 精神。
 

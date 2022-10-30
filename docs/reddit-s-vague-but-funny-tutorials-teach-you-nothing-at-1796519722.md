@@ -1,6 +1,6 @@
 # Reddit 模糊但有趣的教程根本没教你什么
 
-> 原文:[https://life hacker . com/Reddit-s-vague-but-funny-tutorials-teach-you-not-at-1796519722](https://lifehacker.com/reddit-s-vague-but-funny-tutorials-teach-you-nothing-at-1796519722)
+> 原文：<https://lifehacker.com/reddit-s-vague-but-funny-tutorials-teach-you-nothing-at-1796519722>
 
 能教的，不能总教。当你已经学习一项技能很多年的时候，很难分解你的步骤并记住新学习者不知道的东西。这就是你如何结束编写上述指令的过程，Reddit 用户 kdesh 将其命名为 [“步骤 1。subred dit/r/restofthefuckingowl](https://www.reddit.com/r/restofthefuckingowl/comments/6k55ci/step_1_threaten_the_coconut_with_a_machete/)上的一个帖子里用砍刀威胁椰子。
 

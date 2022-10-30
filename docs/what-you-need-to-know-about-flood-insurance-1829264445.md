@@ -1,6 +1,6 @@
 # 你需要知道洪水保险
 
-> 原文:[https://life hacker . com/what-you-need-to-know-about-flood-insurance-1829264445](https://lifehacker.com/what-you-need-to-know-about-flood-insurance-1829264445)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-flood-insurance-1829264445>
 
 一周前横扫卡罗莱纳州的热带低气压佛罗伦萨可能已经损坏了数百万所房屋。由于洪水仍然很高，现在还很难评估损失；然而，据哥伦比亚广播公司新闻 T3 报道，一家经济研究公司发布初步估计，佛罗伦萨已经造成了大约 400 亿美元的损失。
 

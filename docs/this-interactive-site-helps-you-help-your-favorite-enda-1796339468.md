@@ -1,6 +1,6 @@
 # 这个互动网站帮助你帮助你最喜爱的濒危动物
 
-> 原文:[https://life hacker . com/this-interactive-site-helps-you-helps-you-favorite-enda-1796339468](https://lifehacker.com/this-interactive-site-helps-you-help-your-favorite-enda-1796339468)
+> 原文：<https://lifehacker.com/this-interactive-site-helps-you-help-your-favorite-enda-1796339468>
 
 是一个互动的环境保护网站，在这里你可以了解你最喜欢的动物，是什么杀死了它们，在这里你可以捐款帮助。
 

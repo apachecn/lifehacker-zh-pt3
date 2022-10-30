@@ -1,6 +1,6 @@
 # 购买健康保险时要避免这些陷阱
 
-> 原文:[https://life hacker . com/avoid-these-traps-when-shopping-for-health-insurance-1749592393](https://lifehacker.com/avoid-these-traps-when-shopping-for-health-insurance-1749592393)
+> 原文：<https://lifehacker.com/avoid-these-traps-when-shopping-for-health-insurance-1749592393>
 
 健康保险是 [取巧店为](https://lifehacker.com/whats-the-difference-between-all-these-health-insuranc-1500452519) 。你花了一大笔钱仅仅是为了*试着*保持健康，如果你得了重病或受伤，你仍有可能面临成千上万的损失。明智的购物可以降低你的支出，给你更多的好的保健选择——如果你知道应该避免什么的话。
 

@@ -1,6 +1,6 @@
 # Google Drive 的桌面应用现在是备份和同步，这是你需要知道的[更新]
 
-> 原文:[https://life hacker . com/Google-drive-is-dead-heres-what-you-need-to-know 1802109518](https://lifehacker.com/google-drive-is-dead-heres-what-you-need-to-know-1802109518)
+> 原文：<https://lifehacker.com/google-drive-is-dead-heres-what-you-need-to-know-1802109518>
 
 ***更正(2017 年 9 月 8 日，上午 10 点 15 分):**这篇文章的一个早期版本错误地声称谷歌正在完全摆脱 Google Drive，而不是用备份&同步来更新应用。该职位已相应地更新。*
 

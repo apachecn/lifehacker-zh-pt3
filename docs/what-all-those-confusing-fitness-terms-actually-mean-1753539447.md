@@ -1,6 +1,6 @@
 # 所有这些令人困惑的健身术语到底是什么意思
 
-> 原文:[https://life hacker . com/what-all-than-what-all-than-foaming-fitness-terms-actually-mean-1753539447](https://lifehacker.com/what-all-those-confusing-fitness-terms-actually-mean-1753539447)
+> 原文：<https://lifehacker.com/what-all-those-confusing-fitness-terms-actually-mean-1753539447>
 
 变得健康不容易。有很多东西需要学习:你的锻炼本身，你做的次数是否重要，还有所有你从未听说过的健身房和锻炼行话。不要再说了。我们理解，并且我们已经准备了这本入门书来帮助您。
 

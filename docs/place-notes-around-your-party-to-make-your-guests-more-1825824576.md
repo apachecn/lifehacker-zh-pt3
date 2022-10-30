@@ -1,6 +1,6 @@
 # 在你的派对周围贴上便条，让你的客人更加舒适
 
-> 原文:[https://life hacker . com/place-notes-around-your-party-to-make-your-guest-more-1825824576](https://lifehacker.com/place-notes-around-your-party-to-make-your-guests-more-1825824576)
+> 原文：<https://lifehacker.com/place-notes-around-your-party-to-make-your-guests-more-1825824576>
 
 在别人家做客总觉得有点不自信。我想尽可能地礼貌，这可能会导致一些焦虑。我能穿过那扇门吗？那些小吃是给每个人的吗？洗手间在哪里？这里有一个技巧可以帮助像我这样的客人担心。
 

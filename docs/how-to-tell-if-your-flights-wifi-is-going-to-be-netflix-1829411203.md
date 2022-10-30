@@ -1,6 +1,6 @@
 # 如何判断你的航班的无线网络是否适合网飞
 
-> 原文:[https://life hacker . com/how-to-tell-if-your-flights-wifi-is-to-be-网飞-1829411203](https://lifehacker.com/how-to-tell-if-your-flights-wifi-is-going-to-be-netflix-1829411203)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-flights-wifi-is-going-to-be-netflix-1829411203>
 
 作为一个月飞行 4-6 次的人，机上 WiFi 越来越成为我的痛点。
 

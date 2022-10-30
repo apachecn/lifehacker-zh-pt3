@@ -1,6 +1,6 @@
 # 提醒:经销商实际上不会在您购车时赠送“免费”礼品
 
-> 原文:[https://jalopnik . com/reminder-dealers-dont-actually-gifts-wit-1821251867](https://jalopnik.com/reminder-dealers-dont-actually-give-you-free-gifts-wit-1821251867)
+> 原文：<https://jalopnik.com/reminder-dealers-dont-actually-give-you-free-gifts-wit-1821251867>
 
 对于那些在这个假期外出购车的人来说，你可能会看到一些经销商 [为你的购车宣传一些“免费”赠品](https://jalopnik.com/watch-out-for-dealerships-that-give-things-away-for-fre-1746181580) 。这些事情可能包括一台电视，一些油的变化，甚至是一个免费的假期。我不想告诉你这个，但是这些东西没有一样是“免费的”
 

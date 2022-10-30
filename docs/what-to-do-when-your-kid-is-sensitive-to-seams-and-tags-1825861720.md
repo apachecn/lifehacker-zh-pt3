@@ -1,6 +1,6 @@
 # 当你的孩子对衣服上的接缝和标签敏感时该怎么办
 
-> 原文:[https://life hacker . com/1825861720](https://lifehacker.com/what-to-do-when-your-kid-is-sensitive-to-seams-and-tags-1825861720)
+> 原文：<https://lifehacker.com/what-to-do-when-your-kid-is-sensitive-to-seams-and-tags-1825861720>
 
 众所周知，小孩子很难穿衣服。任何一位父母，如果在他们应该到达公交车站的前六分钟，经历了与一个裸体孩子在壁橱里的对峙，都可以证实这一点。这可能是孩子非常挑剔或表现出反抗，但如果不仅仅是这样呢？如果这个问题严重影响了你的家庭，该怎么办？
 

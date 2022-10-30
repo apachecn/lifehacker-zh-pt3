@@ -1,6 +1,6 @@
 # 这么便宜的无线游戏耳机很难不让人喜欢
 
-> 原文:[https://gizmodo . com/a-wireless-gaming-headset-this-price-is-hard-not-to-lik-1826445388](https://gizmodo.com/a-wireless-gaming-headset-this-cheap-is-hard-not-to-lik-1826445388)
+> 原文：<https://gizmodo.com/a-wireless-gaming-headset-this-cheap-is-hard-not-to-lik-1826445388>
 
 不久前，我看了一些最受欢迎的 100 美元以下的游戏耳机，看看哪一款最好。虽然我的观点没有改变，但有一个功能甚至是我们排名第一的耳机都没有的:无线音频。通常，无线声音是为价格在 150 美元到 200 美元之间的更昂贵的设备保留的功能。但在海盗船的新 HS70 上，你只需花 90 美元就能获得可靠的无线音频。
 

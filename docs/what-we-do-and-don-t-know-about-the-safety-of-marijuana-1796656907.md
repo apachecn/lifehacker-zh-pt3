@@ -1,6 +1,6 @@
 # 关于大麻在怀孕期间的安全性，我们知道什么和不知道什么
 
-> 原文:[https://life hacker . com/what-we-do-and-don-know-the-safety of the-大麻-1796656907](https://lifehacker.com/what-we-do-and-don-t-know-about-the-safety-of-marijuana-1796656907)
+> 原文：<https://lifehacker.com/what-we-do-and-don-t-know-about-the-safety-of-marijuana-1796656907>
 
 大麻比许多其他药物(或者，取决于你问的是谁，酒精)更健康，它可以缓解怀孕期间容易出现的恶心等症状。但是我们积累的证据表明，如果你怀孕了，大麻可能不是一个好主意。特别是，THC 成分可能会影响婴儿的大脑，直到他们长大后你才会注意到这一点。
 

@@ -1,6 +1,6 @@
 # 你应该什么时候购买花式橄榄油？
 
-> 原文:[https://life hacker . com/when-you-should-buy-the-fancy-olive-oil-1821996080](https://lifehacker.com/when-should-you-buy-the-fancy-olive-oil-1821996080)
+> 原文：<https://lifehacker.com/when-should-you-buy-the-fancy-olive-oil-1821996080>
 
 当谈到令人困惑的标签和价位时，我发现橄榄油仅次于葡萄酒。一旦你掌握了整个贞操的事情，还有地区的问题要处理，很难知道你“应该”和哪个人一起做饭。
 

@@ -1,6 +1,6 @@
 # 从未听过威猛乐队的“去年圣诞节”，赢得这场游戏
 
-> 原文:[https://life hacker . com/win-this-game-by-never-hearing-whams-last-Christmas-1820983808](https://lifehacker.com/win-this-game-by-never-hearing-whams-last-christmas-1820983808)
+> 原文：<https://lifehacker.com/win-this-game-by-never-hearing-whams-last-christmas-1820983808>
 
 今天我花了一个小时玩了一个叫做 [威猛](https://www.whamageddon.com/) 的游戏。这是个悲剧，因为游戏持续了将近一个月。规则很简单:从 12 月 1 日到 12 月 24 日，避免听到圣诞歌的*《虎胆龙威》*，那不是真正的*圣诞歌，但仍然会在整个 12 月的每个 CVS 音响系统中播放: [威猛的《最后的圣诞节》](https://www.youtube.com/watch?v=E8gmARGvPlI) (如果你在玩，不要点那个链接。)*
 

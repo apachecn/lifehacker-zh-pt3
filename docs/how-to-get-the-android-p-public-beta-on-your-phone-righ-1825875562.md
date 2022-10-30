@@ -1,6 +1,6 @@
 # 如何立即在你的手机上安装 Android P 公开测试版
 
-> 原文:[https://life hacker . com/how-to-get-the-Android-p-public-beta-on-your-phone-righ-1825875562](https://lifehacker.com/how-to-get-the-android-p-public-beta-on-your-phone-righ-1825875562)
+> 原文：<https://lifehacker.com/how-to-get-the-android-p-public-beta-on-your-phone-righ-1825875562>
 
 Android:今年早些时候， [谷歌](https://lifehacker.com/how-to-use-googles-new-tasks-app-for-ios-and-android-1825548977) 为应用开发者(和喜欢冒险的粉丝)提供了一个 [的 Android P](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465) 的早期体验。现在，该公司正在向普通公众推出一款 [官方公测版](https://www.blog.google/products/android/android-p/) 。以下是你需要知道的。
 

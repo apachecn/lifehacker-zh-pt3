@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 17 日至 24 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 17 日至 24 日-1792716711](https://lifehacker.com/this-weeks-most-popular-posts-february-17th-to-24th-1792716711)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-17th-to-24th-1792716711>
 
 本周，我们看了一些新的应用程序和在线服务，它们试图让治疗变得更容易接受，回到投资基础，了解股票和债券的区别，在家里烤一些狗食，等等。这里回顾一下。
 

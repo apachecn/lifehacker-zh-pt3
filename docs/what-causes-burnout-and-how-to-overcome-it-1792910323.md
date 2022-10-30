@@ -1,6 +1,6 @@
 # 什么导致了职业倦怠，如何克服它
 
-> 原文:[https://life hacker . com/what-causes-burnout-and-how-to-comprise-it-1792910323](https://lifehacker.com/what-causes-burnout-and-how-to-overcome-it-1792910323)
+> 原文：<https://lifehacker.com/what-causes-burnout-and-how-to-overcome-it-1792910323>
 
 在漫长的一天工作后感到疲惫或者在一个月的冲刺后需要休假来完成一个新功能是很常见的。但可悲的是，一直感到疲劳也是很常见的。对工作缺乏热情。对你所做的事情感到愤世嫉俗和无所事事。
 

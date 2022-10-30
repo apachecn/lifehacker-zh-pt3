@@ -1,6 +1,6 @@
 # 最佳波特兰，或来自我们读者的旅行建议
 
-> 原文:[https://life hacker . com/the-best-portland-or-travel-tips-from-our-readers-1828033196](https://lifehacker.com/the-best-portland-or-travel-tips-from-our-readers-1828033196)
+> 原文：<https://lifehacker.com/the-best-portland-or-travel-tips-from-our-readers-1828033196>
 
 该死，我们很兴奋能回到波特兰。在本周的 Hack Your City 活动中，一百多位评论者给出了在 [游览或居住的建议。虽然快速的增长可能会扼杀这座城市的魅力，但就目前而言，波特兰仍然是一个古怪、有趣、随和的城市，在这里很难过得不好。](https://lifehacker.com/tell-us-your-portland-or-travel-tips-1827928079) 
 

@@ -1,6 +1,6 @@
 # 三星的新 Galaxy 手表如此接近实现现代可穿戴梦想
 
-> 原文:[https://gizmodo . com/samsungs-new-galaxy-watch-comes-so-close-to-delivery-1829163132](https://gizmodo.com/samsungs-new-galaxy-watch-comes-so-close-to-delivering-1829163132)
+> 原文：<https://gizmodo.com/samsungs-new-galaxy-watch-comes-so-close-to-delivering-1829163132>
 
 暂时放下对智能手表的遥远的科幻描述和疯狂的书呆子梦想，转而思考 2018 年什么对腕戴设备有意义。你会很快意识到现实和的期望之间有巨大的差距，因为虽然在手表上玩游戏或看视频的想法听起来很棒，但实际上在不到两英寸宽的屏幕上做这些事情简直是悲惨的。
 

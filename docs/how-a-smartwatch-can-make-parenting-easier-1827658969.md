@@ -1,6 +1,6 @@
 # 智能手表如何让育儿变得更容易
 
-> 原文:[https://life hacker . com/how-a-smart watch-can-make-parenting-easy-1827658969](https://lifehacker.com/how-a-smartwatch-can-make-parenting-easier-1827658969)
+> 原文：<https://lifehacker.com/how-a-smartwatch-can-make-parenting-easier-1827658969>
 
 我没有买智能手表，因为我认为它可能会让育儿更容易——我买它是因为它很可爱，闪闪发光，我喜欢新玩具。(早在卡西欧计算器手表流行之前，我就有一块了。哦，等等:它们从来都不流行。摆弄它很有趣——我可以改变表盘，查看天气，再也不用为了看日期而离开沙发。然而，最让我惊讶的是，这个小设备帮助我更好地融入孩子们的生活，减轻他们的压力。以下是如何利用它做好事的方法。(注:我有一块 Apple Watch，但这些功能在大多数智能手表上都有。)
 

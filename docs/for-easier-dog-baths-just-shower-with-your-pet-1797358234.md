@@ -1,6 +1,6 @@
 # 为了方便狗狗洗澡，只要和你的宠物一起洗澡就可以了
 
-> 原文:[https://life hacker . com/for-easy-dog-bathes-just-shower with-your-pet-1797358234](https://lifehacker.com/for-easier-dog-baths-just-shower-with-your-pet-1797358234)
+> 原文：<https://lifehacker.com/for-easier-dog-baths-just-shower-with-your-pet-1797358234>
 
 我最好的朋友兼生活伴侣塔克·波尔多三世最近刚满 14 岁。虽然对于一个狗年接近 100 岁的人来说，他的健康状况相对较好，但他在老年时出现了一些皮肤问题，需要我每隔几天给他洗一次澡。可以想象，塔克对这一发展并不满意。经过多次痛苦的尝试，让他自己在厨房的水槽和浴缸里洗澡，有一天我终于崩溃了，只是让他和我一起洗澡。我们都非常开心。
 

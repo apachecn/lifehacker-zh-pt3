@@ -1,6 +1,6 @@
 # 正确储存你保存的啤酒，这样它就不会变坏
 
-> 原文:[https://life hacker . com/proper-store-beer-you-saving-so-that-not-go-bad-1819258715](https://lifehacker.com/properly-store-beer-youre-saving-so-it-doesnt-go-bad-1819258715)
+> 原文：<https://lifehacker.com/properly-store-beer-youre-saving-so-it-doesnt-go-bad-1819258715>
 
 啤酒，就像大多数其他食品和饮料产品一样，有保质期，以及正确和不正确的储存方法。当你最终打开酒瓶时，你选择在哪里和如何储存你的啤酒会对它的味道产生巨大的影响。
 

@@ -1,6 +1,6 @@
 # 用精油让你的垃圾闻起来很漂亮
 
-> 原文:[https://life hacker . com/make-your-garbage-smooth-beautiful with 精油-1821192691](https://lifehacker.com/make-your-garbage-smell-pretty-with-essential-oils-1821192691)
+> 原文：<https://lifehacker.com/make-your-garbage-smell-pretty-with-essential-oils-1821192691>
 
 你的垃圾很难闻。如果你有一个密封的有盖的罐子，当你打开它的时候，你的垃圾只会散发出难闻的气味，释放出潮湿的腐臭的雾气到你的脸上。最好的解决办法是把你的食物垃圾分开，然后储存在冰箱里。但是除非你把食物垃圾制成堆肥，否则工作量太大了。相反——或者也——加入一些精油。
 

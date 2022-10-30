@@ -1,6 +1,6 @@
 # 做这个黄瓜杜松子酒
 
-> 原文:[https://life hacker . com/make-this-smashed-cumber-gin-tonic-1826148638](https://lifehacker.com/make-this-smashed-cucumber-gin-tonic-1826148638)
+> 原文：<https://lifehacker.com/make-this-smashed-cucumber-gin-tonic-1826148638>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将带来已经令人耳目一新的杜松子酒&补品，让它变得更加清新，如果你能想象这样的事情的话。
 

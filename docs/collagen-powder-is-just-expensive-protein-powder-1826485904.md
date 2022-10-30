@@ -1,6 +1,6 @@
 # 胶原蛋白粉就是贵的蛋白粉
 
-> 原文:[https://life hacker . com/collagen-powder-is-just-贵-protein-powder-1826485904](https://lifehacker.com/collagen-powder-is-just-expensive-protein-powder-1826485904)
+> 原文：<https://lifehacker.com/collagen-powder-is-just-expensive-protein-powder-1826485904>
 
 健康的皮肤含有大量富有弹性的胶原蛋白，所以很容易认为任何名称中带有“胶原蛋白”的产品都会对你的皮肤有好处。但是，即使你可以购买胶原蛋白粉 添加到饮料中，也几乎没有证据表明你的皮肤会直接受益。
 

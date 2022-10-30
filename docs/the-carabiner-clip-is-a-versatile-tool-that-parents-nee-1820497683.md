@@ -1,6 +1,6 @@
 # 登山扣夹是父母需要的多功能工具
 
-> 原文:[https://life hacker . com/the-carabine-clip-is-a-versatile-tool-than-parents-nee-1820497683](https://lifehacker.com/the-carabiner-clip-is-a-versatile-tool-that-parents-nee-1820497683)
+> 原文：<https://lifehacker.com/the-carabiner-clip-is-a-versatile-tool-that-parents-nee-1820497683>
 
 攀岩者一直以来都很喜欢这款深受喜爱的登山扣，这是一款多功能性无与伦比的工具。但你知不知道这也是婴儿登记的主要内容？大约 10 年前，一些营销天才将无处不在的金属夹重新命名为一个可怕的名字: [【妈咪钩](http://www.themommyhook.com) 。它是什么:呃，仍然只是一个大的登山扣夹。它能为父母做什么:实际上就这么多！如果你有这些东西中的一个——不管你是否选择用妈妈化的名字来称呼它——这里有一些方法来使用它，让你的生活变得稍微轻松一点:
 

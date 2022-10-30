@@ -1,6 +1,6 @@
 # 用秋天树叶预测地图计划一次周末旅行
 
-> 原文:[https://life hacker . com/plan-a-weekend-trip-with-the-fall-years-prediction-ma-1799958430](https://lifehacker.com/plan-a-weekend-trip-with-the-fall-foliage-prediction-ma-1799958430)
+> 原文：<https://lifehacker.com/plan-a-weekend-trip-with-the-fall-foliage-prediction-ma-1799958430>
 
 南瓜香料和厚围巾爱好者们，欢呼吧:秋天来了。如果你计划去旅行看树叶变化，你不再需要依靠抽奖的运气或 Instagram 上有地理标记的帖子来告诉你开车的最佳时间， [感谢一个预测工具](https://smokymountains.com/fall-foliage-map/) 告诉你树叶观光的黄金时间。
 

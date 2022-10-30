@@ -1,6 +1,6 @@
 # 用这个人物时间表来理解“瑞克和莫蒂”
 
-> 原文:[https://life hacker . com/make-sense-of-Rick-and-morty-with-this-character-time-1819148937](https://lifehacker.com/make-sense-of-rick-and-morty-with-this-character-time-1819148937)
+> 原文：<https://lifehacker.com/make-sense-of-rick-and-morty-with-this-character-time-1819148937>
 
 经过三季交替的时间线和深入的回调，成人游泳喜剧*里克和莫蒂*足够复杂，你可能需要参考 [这个人物时间线图](https://shmakov.github.io/Rick-and-Morty-Characters/) 。到目前为止，它跟踪了系列中每个重要的或命名的角色，标记了他们的出现和死亡。
 

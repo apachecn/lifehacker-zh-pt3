@@ -1,6 +1,6 @@
 # 搅打虹吸管的这些实际用途远远超出了搅打奶油
 
-> 原文:[https://life hacker . com/these-practical-uses-for-a-whipping-sink-go-way-beyon-1782127928](https://lifehacker.com/these-practical-uses-for-a-whipping-siphon-go-way-beyon-1782127928)
+> 原文：<https://lifehacker.com/these-practical-uses-for-a-whipping-siphon-go-way-beyon-1782127928>
 
 鞭打虹吸管似乎是高级餐厅厨师的最佳工具。我很感激你可以用它们做的一切，但我不会用 [烟熏三文鱼](http://www.isi.com/us/culinary/rezepte/rezept/raeucherlachs-espuma/?no_cache=1&cHash=934d637950fbb4b09c82fbdc2951e721) 来结束我的工作日晚餐。我对它如何帮助我*加快速度*很感兴趣，尤其是输液。这里有一些巧妙的方法，你可以把它用在家里。
 

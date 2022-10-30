@@ -1,6 +1,6 @@
 # 如何在 Instagram 上隐姓埋名
 
-> 原文:[https://life hacker . com/how-to-go-incognito-on-insta gram-1827789871](https://lifehacker.com/how-to-go-incognito-on-instagram-1827789871)
+> 原文：<https://lifehacker.com/how-to-go-incognito-on-instagram-1827789871>
 
 本周，Instagram [开始推出一项功能](https://instagram-press.com/blog/2018/07/19/new-see-when-your-friends-are-online-to-dm/) ，通过绿色指示灯向你的朋友显示你当前正在使用该应用。
 

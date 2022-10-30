@@ -1,6 +1,6 @@
 # 安全摊牌:智能锁与“哑”锁
 
-> 原文:[https://life hacker . com/security-downstall-smart-locks-vs-dumb-locks-1798473187](https://lifehacker.com/security-showdown-smart-locks-vs-dumb-locks-1798473187)
+> 原文：<https://lifehacker.com/security-showdown-smart-locks-vs-dumb-locks-1798473187>
 
 一把合适的锁是家庭安全的重要组成部分，可以阻止不必要的入侵者，从四条腿的害虫到潜在的窃贼。虽然我们肯定不能敲经典的死栓，但有些锁比其他锁有更多的技巧。新上市的智能锁有足够酷的功能来吸引每个人，从 [Airbnb 业主](http://gizmodo.com/smart-locks-used-by-airbnb-get-bricked-by-software-upda-1797839523) 到亲密的家庭。然而，与传统的锁相比，它可能会给你带来更多的麻烦，而你不愿意以牺牲便利为代价来处理这些麻烦。
 

@@ -1,6 +1,6 @@
 # 以下是为什么你应该在等待时将手机静音
 
-> 原文:[https://life hacker . com/heres-why-you-should-mute-when-on-hold-1797905581](https://lifehacker.com/heres-why-you-should-mute-your-phone-when-on-hold-1797905581)
+> 原文：<https://lifehacker.com/heres-why-you-should-mute-your-phone-when-on-hold-1797905581>
 
 出于这样或那样的原因，在每个人的生活中都有一个你必须呼叫技术支持的时刻。也许你的电源无意中被切断了，你的电缆出了故障，或者你的航班被延误了。但是你应该把愤怒和亵渎的反驳保持在最低限度，尤其是当你在等待的时候。很有可能，他们仍然能听到你。
 

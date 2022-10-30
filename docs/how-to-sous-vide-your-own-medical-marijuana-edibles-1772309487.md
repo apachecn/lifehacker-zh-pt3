@@ -1,6 +1,6 @@
 # 如何储存自己的医用大麻食品
 
-> 原文:[https://life hacker . com/how-to-sous-vide-your-own-medical-大麻-食品-1772309487](https://lifehacker.com/how-to-sous-vide-your-own-medical-marijuana-edibles-1772309487)
+> 原文：<https://lifehacker.com/how-to-sous-vide-your-own-medical-marijuana-edibles-1772309487>
 
 如果说沉浸式循环器有什么好处的话，那就是输液。水浴的精确温度使您能够更好地控制结果，并允许您基本上“修复它并忘记它”这有利于提取各种物质，但今天我们要提取一些四氢大麻酚。
 

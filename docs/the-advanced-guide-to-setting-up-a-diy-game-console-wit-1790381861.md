@@ -1,6 +1,6 @@
 # 用树莓派设置 DIY 游戏机的高级指南
 
-> 原文:[https://life hacker . com/the-advanced-guide-to-setting-a-DIY-game-console-wit-1790381861](https://lifehacker.com/the-advanced-guide-to-setting-up-a-diy-game-console-wit-1790381861)
+> 原文：<https://lifehacker.com/the-advanced-guide-to-setting-up-a-diy-game-console-wit-1790381861>
 
 众所周知，把一个 [树莓派变成一个复古游戏控制台](https://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192) 无疑是你可以用一个 Pi 做的最流行、最简单、最有趣的项目。这份最初的指南仅仅是个开始，如果你真的想从你的 DIY 小游戏中获得更多，你会想要深入了解一些高级技巧。
 

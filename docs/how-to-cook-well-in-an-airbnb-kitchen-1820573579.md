@@ -1,6 +1,6 @@
 # 如何在 Airbnb 厨房里做一手好菜
 
-> 原文:[https://life hacker . com/how-to-cook-well-in-an-Airbnb-kitchen-1820573579](https://lifehacker.com/how-to-cook-well-in-an-airbnb-kitchen-1820573579)
+> 原文：<https://lifehacker.com/how-to-cook-well-in-an-airbnb-kitchen-1820573579>
 
 住在 Airbnb 而不是酒店的一大好处是厨房。如果你喜欢烹饪，能够在离家的地方烹饪是了解一个城市文化或者节省一些钱的好方法。
 

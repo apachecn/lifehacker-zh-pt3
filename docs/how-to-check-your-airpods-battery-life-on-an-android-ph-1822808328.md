@@ -1,6 +1,6 @@
 # 如何在安卓手机上检查 AirPods 的电池寿命
 
-> 原文:[https://life hacker . com/how-to-check-your-ai rpods-battery-life-on-an-Android-ph-1822808328](https://lifehacker.com/how-to-check-your-airpods-battery-life-on-an-android-ph-1822808328)
+> 原文：<https://lifehacker.com/how-to-check-your-airpods-battery-life-on-an-android-ph-1822808328>
 
 AirPods 它们非常适合大多数耳朵，听起来非常好，并配有一个 [光滑的充电外壳](https://lifehacker.com/use-your-airpods-case-as-an-on-the-go-iphone-stand-1820478755)——另外，如果我们诚实的话，你可能不会错过 [Siri](https://lifehacker.com/take-a-few-steps-back-from-siri-when-you-train-it-to-re-1822729595) 。
 

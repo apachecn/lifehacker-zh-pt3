@@ -1,6 +1,6 @@
 # 通过将你最喜欢的博客列入广告拦截器的白名单来保存它
 
-> 原文:[https://life hacker . com/whitelist-your-favorite-blog-to-save-it-from-your-ad-bl-1822208770](https://lifehacker.com/whitelist-your-favorite-blog-to-save-it-from-your-ad-bl-1822208770)
+> 原文：<https://lifehacker.com/whitelist-your-favorite-blog-to-save-it-from-your-ad-bl-1822208770>
 
 本周，另一个备受宠爱的互联网宝贝关门了。《锥子》宣布 关闭店铺，表面上是因为受到当今“媒体”行业经济波动的影响。简而言之，他们没有赚到足够的钱，这可能要感谢广告拦截器。让这成为我们所有人的一个教训:如果你想让你喜欢的内容保持活力(或者尽你的一份力量，不主动破坏它)，就关掉你的广告拦截器，至少对于你喜欢阅读的博客。
 

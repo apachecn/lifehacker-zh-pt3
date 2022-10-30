@@ -1,6 +1,6 @@
 # 成功家庭游戏之夜的最佳棋盘游戏
 
-> 原文:[https://life hacker . com/the-best-board-games-for-a-successful-family-game-night-1819399430](https://lifehacker.com/the-best-board-games-for-a-successful-family-game-night-1819399430)
+> 原文：<https://lifehacker.com/the-best-board-games-for-a-successful-family-game-night-1819399430>
 
 在一个以屏幕为中心的世界里，桌游对一些人来说似乎已经过时了，尤其是对孩子们。但在我们家，我们发现放下平板电脑和手机，玩玩桌游(和一大碗爆米花)会让家庭之夜很成功。我们的游戏从 2 岁到 11 岁不等，复杂程度各不相同。小贴士:让大孩子和小孩子一起合作！
 

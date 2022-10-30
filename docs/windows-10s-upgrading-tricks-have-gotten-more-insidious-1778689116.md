@@ -1,6 +1,6 @@
 # Windows 10 的升级伎俩变得更加阴险
 
-> 原文:[https://kotaku . com/windows-10s-upgrading-tricks-have-get-more-invisible-1778689116](https://kotaku.com/windows-10s-upgrading-tricks-have-gotten-more-insidious-1778689116)
+> 原文：<https://kotaku.com/windows-10s-upgrading-tricks-have-gotten-more-insidious-1778689116>
 
 未来几年，微软希望 [Windows 10 在 10 亿台设备上运行。](http://techcrunch.com/2015/04/29/microsoft-expects-1-billion-windows-10-devices-in-2-3-years/) 确保这种情况发生的一种方式是通过欺骗用户以不正当的方式升级。但真正的问题是:Windows 10 是一个很好的操作系统，而微软的策略给了它一个坏名声。
 

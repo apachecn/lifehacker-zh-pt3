@@ -1,6 +1,6 @@
 # 问孩子们“你今天在什么事情上失败了？”
 
-> 原文:[https://life hacker . com/ask-kids-what-do-you-fail-at-today-1797612828](https://lifehacker.com/ask-kids-what-did-you-fail-at-today-1797612828)
+> 原文：<https://lifehacker.com/ask-kids-what-did-you-fail-at-today-1797612828>
 
 在精英大学，教员们已经注意到一个问题。许多学生虽然在理论上令人印象深刻，但似乎无法应对简单的斗争——被分配到他们不喜欢的宿舍，期中考试得分低于 A -,或者没有入选校队。缺乏弹性已经变得如此明显，以至于史密斯学院现在提供了一整门关于如何让 失败的课程。(一个令人不舒服的课堂项目:将你最大的失败投射到校园中心的大屏幕上。哎哟。)
 

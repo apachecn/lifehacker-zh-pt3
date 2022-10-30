@@ -1,6 +1,6 @@
 # 让青少年不给糖就捣蛋
 
-> 原文:[https://lifehacker.com/let-teens-trick-or-treat-1820004183](https://lifehacker.com/let-teens-trick-or-treat-1820004183)
+> 原文：<https://lifehacker.com/let-teens-trick-or-treat-1820004183>
 
 今年万圣节，加拿大一个小镇禁止 16 岁以上的人 玩不给糖就捣蛋的游戏，这是对之前 14 岁年龄限制的“放松”更新。那些违反规定的人可能会被处以 200 美元的罚款，尽管如何执行还不清楚。(“请出示身份证。”*上下打量小兵。好的，这是你的六个彩虹糖。负责任地享受。”)其他城市也采取了 [不给糖就捣蛋的年龄下限](http://www.nydailynews.com/life-style/cities-ban-teenage-trick-treaters-put-age-limits-allowed-halloween-article-1.191844) ，一般在 12 岁左右。*
 

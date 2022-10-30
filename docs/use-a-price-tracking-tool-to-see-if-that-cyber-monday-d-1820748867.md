@@ -1,6 +1,6 @@
 # 使用价格跟踪工具，看看网络星期一的交易是否值得购买
 
-> 原文:[https://life hacker . com/use-a-price-tracking-tool-to-see-if-that-cyber-Monday-d-1820748867](https://lifehacker.com/use-a-price-tracking-tool-to-see-if-that-cyber-monday-d-1820748867)
+> 原文：<https://lifehacker.com/use-a-price-tracking-tool-to-see-if-that-cyber-monday-d-1820748867>
 
 网络星期一可能是抢购节日礼物的好时机。这也可能是一个很好的时机，认为你得到了一笔交易，并意外地为一些东西支付了比你必须支付的更多的钱。
 

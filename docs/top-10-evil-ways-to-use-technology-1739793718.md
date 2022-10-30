@@ -1,6 +1,6 @@
 # 使用技术的十大邪恶方式
 
-> 原文:[https://life hacker . com/top-10-evil-ways-to-use-technology-1739793718](https://lifehacker.com/top-10-evil-ways-to-use-technology-1739793718)
+> 原文：<https://lifehacker.com/top-10-evil-ways-to-use-technology-1739793718>
 
 像其他强有力的工具一样，技术可以用来做好事，也可以用来做坏事。了解人们如何利用技术做坏事，这样你就可以保护自己——或者利用他们的技巧做好事。以下是你使用科技的 10 大“邪恶”方式。
 

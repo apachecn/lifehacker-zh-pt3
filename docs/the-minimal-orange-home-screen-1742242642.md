@@ -1,6 +1,6 @@
 # 最小的橙色主屏幕
 
-> 原文:[https://life hacker . com/the-minimal-orange-home-screen-1742242642](https://lifehacker.com/the-minimal-orange-home-screen-1742242642)
+> 原文：<https://lifehacker.com/the-minimal-orange-home-screen-1742242642>
 
 如果你不喜欢杂乱，有点想念万圣节，这个主屏幕设计应该会让你高兴起来，并有助于保持你的手机有序。使用简单的部件和几个图标，它是光滑和干净的。
 

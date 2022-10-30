@@ -1,6 +1,6 @@
 # 为什么众议院刚刚表决的“胎儿疼痛”法案是垃圾科学
 
-> 原文:[https://life hacker . com/why-the-fetal-pain-bill-the-house-ju-1819164037](https://lifehacker.com/why-the-fetal-pain-bill-the-house-just-voted-on-is-ju-1819164037)
+> 原文：<https://lifehacker.com/why-the-fetal-pain-bill-the-house-just-voted-on-is-ju-1819164037>
 
 众议院以 237 票对 189 票通过了一项名为“无痛胎儿保护法”的法案，该法案将禁止几乎所有怀孕 22 周以内的堕胎。但是尽管疼痛是不好的，婴儿是好的(就我个人而言，我*喜欢*婴儿)，这个法案仍然是一堆废话。从它的标题开始。
 

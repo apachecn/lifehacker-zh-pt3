@@ -1,6 +1,6 @@
 # 你应该花多少钱在房租上？
 
-> 原文:[https://deadspin . com/how-do-much-you-spend-on-rent-1762478784](https://deadspin.com/how-much-should-you-spend-on-rent-1762478784)
+> 原文：<https://deadspin.com/how-much-should-you-spend-on-rent-1762478784>
 
 [每月的第一天](https://www.youtube.com/watch?v=4j_cOsgRY7w) 总是打在你的银行账户上。你知道它就要来了，但这并没有减少它的伤害。对于大多数租房者来说，每月给房东的支票是你每个月最大的支出。但是你应该花多少血汗钱在房租上呢？
 

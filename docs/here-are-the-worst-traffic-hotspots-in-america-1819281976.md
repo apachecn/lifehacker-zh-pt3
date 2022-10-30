@@ -1,6 +1,6 @@
 # 以下是美国最糟糕的交通热点
 
-> 原文:[https://jalopnik . com/here-is-the-worst-traffic-hotspots-in-America-1819281976](https://jalopnik.com/here-are-the-worst-traffic-hotspots-in-america-1819281976)
+> 原文：<https://jalopnik.com/here-are-the-worst-traffic-hotspots-in-america-1819281976>
 
 沿海地区的交通非常糟糕，但你可能已经知道了！然而，这里也有非常糟糕的地方，比如从 133A 出口到弗吉尼亚州费尔法克斯郡公园路的 I-95，一项新的研究表明，这是美国最糟糕的交通热点。
 

@@ -1,6 +1,6 @@
 # 如何培养男孩女孩拒绝性别歧视的刻板印象
 
-> 原文:[https://life hacker . com/how-to-raise-boys-girls-reject-genistic-stereotype-1795852201](https://lifehacker.com/how-to-raise-boys-and-girls-to-reject-sexist-stereotype-1795852201)
+> 原文：<https://lifehacker.com/how-to-raise-boys-and-girls-to-reject-sexist-stereotype-1795852201>
 
 甚至在我有一个女儿之前，我就知道我要把她培养成面对性别歧视的刻板印象而笑，成为她想成为的任何人，并为保护世界安全尽自己的一份力量，让其他人也这样做。然后我们做了超声波检查，结果是我怀了个男孩。
 

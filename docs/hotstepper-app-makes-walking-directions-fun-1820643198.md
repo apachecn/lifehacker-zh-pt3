@@ -1,6 +1,6 @@
 # HotStepper 应用程序让步行路线变得有趣
 
-> 原文:[https://life hacker . com/hot stepper-app-makes-walking-directions-fun-1820643198](https://lifehacker.com/hotstepper-app-makes-walking-directions-fun-1820643198)
+> 原文：<https://lifehacker.com/hotstepper-app-makes-walking-directions-fun-1820643198>
 
 iOS:我仍然认为增强现实护目镜是未来的趋势。是的，谷歌眼镜令人毛骨悚然，令人不快，是的， [Snapchat 眼镜令人失望](https://gizmodo.com/it-sounds-like-snap-spectacles-turned-into-a-massive-bo-1819769426) ，但当我在早上通勤后低头盯着手机看时，我怀念起平视显示器取代手机最普通功能的承诺。尤其是导航，这是我把头埋在设备里完成的最可笑的任务。iOS 11 应用程序 [HotStepper](http://hotstepper.dance/) 提醒我增强现实导航可以有多有趣。
 

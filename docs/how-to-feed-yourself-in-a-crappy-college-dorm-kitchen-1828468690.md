@@ -1,6 +1,6 @@
 # 如何在蹩脚的大学宿舍厨房里养活自己
 
-> 原文:[https://life hacker . com/how-to-feed yourself-in-a 蹩脚的大学宿舍厨房-1828468690](https://lifehacker.com/how-to-feed-yourself-in-a-crappy-college-dorm-kitchen-1828468690)
+> 原文：<https://lifehacker.com/how-to-feed-yourself-in-a-crappy-college-dorm-kitchen-1828468690>
 
 如果我对大学生有一个愿望，那就是高等学府允许他们在宿舍里放一个速溶壶。但是很明显，年轻的成年人不能被信任使用发热设备，宿舍居民经常被困在共用冰箱和用微波炉做饭。这听起来很悲哀，但其实不必如此。
 

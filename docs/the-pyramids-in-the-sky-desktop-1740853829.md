@@ -1,6 +1,6 @@
 # 天空中的金字塔桌面
 
-> 原文:[https://life hacker . com/the-pyramids-in-the-sky-desktop-1740853829](https://lifehacker.com/the-pyramids-in-the-sky-desktop-1740853829)
+> 原文：<https://lifehacker.com/the-pyramids-in-the-sky-desktop-1740853829>
 
 [MistakeNot](http://kinja.com/mistakenottwo) 说他们从来没有玩过命运，但这个来自游戏的概念艺术仍然制作了一个漂亮的壁纸。结合当前正在播放的小部件、工作空间和位于中心的可视化工具，您就拥有了一个出色的软件包。
 

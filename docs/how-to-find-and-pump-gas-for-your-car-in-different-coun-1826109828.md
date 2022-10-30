@@ -1,6 +1,6 @@
 # 如何在世界不同的国家为你的汽车寻找和加油
 
-> 原文:[https://life hacker . com/how-to-find-and-pump gas for your car-in-different-coun-1826109828](https://lifehacker.com/how-to-find-and-pump-gas-for-your-car-in-different-coun-1826109828)
+> 原文：<https://lifehacker.com/how-to-find-and-pump-gas-for-your-car-in-different-coun-1826109828>
 
 当你在外国开车时，一切都有些不同，从法律和礼仪到加油的地点和方式。这本方便的指南告诉你在欧洲、亚洲、非洲、南美、中东和北美的 30 个不同国家获得天然气的内幕。
 

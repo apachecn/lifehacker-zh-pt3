@@ -1,6 +1,6 @@
 # 如何观看克里斯汀·布拉西·福特博士明天的参议院证词
 
-> 原文:[https://life hacker . com/how-to-watch-dr-Christine-blasey-fords-Senate-testimon-1829333654](https://lifehacker.com/how-to-watch-dr-christine-blasey-fords-senate-testimon-1829333654)
+> 原文：<https://lifehacker.com/how-to-watch-dr-christine-blasey-fords-senate-testimon-1829333654>
 
 在布雷特·卡瓦诺 能够接受美国最高法院的终身任命之前，他必须公开面对最近指控他性侵的三名女性中的一名。克里斯汀·布拉西·福特博士将于周四上午在参议院司法委员会出庭，如果你计划观看听证会，这里有一些需要知道的事情和如何收听。
 

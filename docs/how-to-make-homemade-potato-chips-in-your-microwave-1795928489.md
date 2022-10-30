@@ -1,6 +1,6 @@
 # 如何用微波炉自制薯片
 
-> 原文:[https://life hacker . com/how-to-make-family-chips-in-your-microwave-1795928489](https://lifehacker.com/how-to-make-homemade-potato-chips-in-your-microwave-1795928489)
+> 原文：<https://lifehacker.com/how-to-make-homemade-potato-chips-in-your-microwave-1795928489>
 
 你真的想要薯片，但是你只有土豆吗？我完全理解你。当然，你可以预热你的烤箱并开始烘烤(或者穿上裤子去商店买一袋)，但是如果我告诉你你可以用微波炉在几分钟内做出美味的自制薯片呢？梦想成真了。
 

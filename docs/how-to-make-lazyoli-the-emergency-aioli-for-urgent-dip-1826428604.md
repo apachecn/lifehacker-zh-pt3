@@ -1,6 +1,6 @@
 # 如何制作 Lazyoli，满足紧急蘸酱需求的应急蛋黄酱
 
-> 原文:[https://the take out . com/how-to-make-lazy oli-the-emergency-aioli-for-emergency-dip-1826428604](https://thetakeout.com/how-to-make-lazyoli-the-emergency-aioli-for-urgent-dip-1826428604)
+> 原文：<https://thetakeout.com/how-to-make-lazyoli-the-emergency-aioli-for-urgent-dip-1826428604>
 
 你真的不能放蛋黄酱吗？三明治、薯条(后来被提升为“油炸食品”)、汉堡、炸鸡、炸虾，任何真正的油炸食品。这是一种多用途但简单的调味品，本质上只是一种被踢过的蒜味蛋黄酱，它给自己起了一个更大的名字。
 

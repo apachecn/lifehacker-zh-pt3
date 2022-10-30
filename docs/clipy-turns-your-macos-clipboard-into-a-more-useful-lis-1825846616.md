@@ -1,6 +1,6 @@
 # 使用 Mac 版 Clipy 应用程序跟踪剪贴板上的所有内容
 
-> 原文:[https://life hacker . com/clipy-turns-your-MAC OS-clipboard-into-a-more-used-lis-1825846616](https://lifehacker.com/clipy-turns-your-macos-clipboard-into-a-more-useful-lis-1825846616)
+> 原文：<https://lifehacker.com/clipy-turns-your-macos-clipboard-into-a-more-useful-lis-1825846616>
 
 Mac:尽管我们很喜欢它，[Clippy](https://github.com/Clipy/Clipy)并不是 macOS 版本的 [Clippy，那是一个小小的动画 Windows 回形针](http://nymag.com/vindicated/2016/10/clippy-didnt-just-annoy-you-he-changed-the-world.html) ，它会问你过得怎么样，并给你有用的生活建议。这是一个必不可少的工具，如果有任何方法可以测量这种事情的话，它会让你的 macOS 剪贴板强大十倍。
 

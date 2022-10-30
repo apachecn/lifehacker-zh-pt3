@@ -1,6 +1,6 @@
 # 问咸味女服务员:让服务员把我的垃圾扔掉是不是很没礼貌？
 
-> 原文:[https://the take out . com/rude-to-ask-the-server-throw-away-my-trash-1827366093](https://thetakeout.com/rude-to-ask-the-server-throw-away-my-trash-1827366093)
+> 原文：<https://thetakeout.com/rude-to-ask-the-server-throw-away-my-trash-1827366093>
 
 > 亲爱的 Salty: 我有一个朋友——一个被称为“被抛弃的共和党人”的守旧派——他坚持把早上的垃圾邮件带到餐馆或餐厅吃午饭，然后要求我们的服务员在他看完垃圾后扔掉。
 > 

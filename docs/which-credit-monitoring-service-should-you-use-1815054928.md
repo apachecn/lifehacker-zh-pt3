@@ -1,6 +1,6 @@
 # 你应该使用哪种信用监测服务？
 
-> 原文:[https://life hacker . com/which-credit-monitoring-service-should-you-use-1815054928](https://lifehacker.com/which-credit-monitoring-service-should-you-use-1815054928)
+> 原文：<https://lifehacker.com/which-credit-monitoring-service-should-you-use-1815054928>
 
 在 Equifax 灾难、、T3 中没有太多的一线希望，但它提醒我们注意你的信用是多么重要。比以往任何时候，信用监测是必不可少的，以确保没有粗略的，与您的个人信息相关的欺诈活动。您可以永远免费监控自己的信用。
 

@@ -1,6 +1,6 @@
 # 更新简历的最有效方法
 
-> 原文:[https://life hacker . com/保持简历最新的最有效方法-1825897855](https://lifehacker.com/the-most-efficient-way-to-keep-your-resume-up-to-date-1825897855)
+> 原文：<https://lifehacker.com/the-most-efficient-way-to-keep-your-resume-up-to-date-1825897855>
 
 即使在最好的情况下，找工作也很难，当你没有准备好的时候，情况会变得更加糟糕。乐观地说，即使我们不喜欢一份工作，我们也会坚持一段时间，如果有我们想抓住的机会，我们会忘记准备好我们的简历和其他材料。
 

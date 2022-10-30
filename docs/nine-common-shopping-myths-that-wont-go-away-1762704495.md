@@ -1,6 +1,6 @@
 # 九个挥之不去的常见购物误区
 
-> 原文:[https://life hacker . com/nine-common-shopping-myths-the-wont-away-1762704495](https://lifehacker.com/nine-common-shopping-myths-that-wont-go-away-1762704495)
+> 原文：<https://lifehacker.com/nine-common-shopping-myths-that-wont-go-away-1762704495>
 
 网上购物真的能省下销售税吗？每个人真的会为了超级碗比赛去商店购买新的大屏幕电视吗？这些与购物相关的智慧无处不在——并且经常被广告商推着试图把你带进商店。但是这些老掉牙的栗子隐藏了什么真相吗？
 

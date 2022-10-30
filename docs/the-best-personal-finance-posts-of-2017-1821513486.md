@@ -1,6 +1,6 @@
 # 2017 年最佳个人理财岗位
 
-> 原文:[https://life hacker . com/the-best-personal-finance-posts-of-2017-1821513486](https://lifehacker.com/the-best-personal-finance-posts-of-2017-1821513486)
+> 原文：<https://lifehacker.com/the-best-personal-finance-posts-of-2017-1821513486>
 
 金钱是令人困惑的，在过去的 12 个月里，它并没有变得更容易理解。有一个 [新税单](https://twocents.lifehacker.com/the-basics-of-the-gop-tax-plan-explained-1821583174#)[医保困境](https://vitals.lifehacker.com/health-insurance-suddenly-just-got-cheaper-for-a-lot-of-1820047484) ，还有 [海量数据泄露](https://lifehacker.com/how-to-find-out-if-you-were-affected-by-the-equifax-hac-1806121695) 要应对。在预算和比特币之间，我们试图尽可能地帮助你更好地了解你的钱包。以下是我们 2017 年最赚钱的帖子。
 

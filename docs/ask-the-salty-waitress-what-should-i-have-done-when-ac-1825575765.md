@@ -1,6 +1,6 @@
 # 问咸女服务员:怀孕时不小心上了酒，应该怎么处理？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-when-AC-1825575765](https://thetakeout.com/ask-the-salty-waitress-what-should-i-have-done-when-ac-1825575765)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-what-should-i-have-done-when-ac-1825575765>
 
 * * *
 

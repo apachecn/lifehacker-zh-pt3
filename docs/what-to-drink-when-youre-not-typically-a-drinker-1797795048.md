@@ -1,6 +1,6 @@
 # 当你不是典型的饮酒者时，喝什么
 
-> 原文:[https://life hacker . com/what-to-drink-what-what-you-not-atmosphere-a-drinker-1797795048](https://lifehacker.com/what-to-drink-when-youre-not-typically-a-drinker-1797795048)
+> 原文：<https://lifehacker.com/what-to-drink-when-youre-not-typically-a-drinker-1797795048>
 
 当你半频繁地喝酒时，你通常会拿出一杯你喜欢的鸡尾酒、烈酒或啤酒，当你出去时就会被它吸引。当你不经常喝酒时，饮料菜单可能很难浏览，你所有朋友喜欢的可能与你喜欢的有点不同。例如，像双 IPA 和烟熏苏格兰威士忌这样的东西对经验丰富的饮酒者来说很好，但对不太频繁的饮酒者来说就很恶心。
 

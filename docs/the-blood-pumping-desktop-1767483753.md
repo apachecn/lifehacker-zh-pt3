@@ -1,6 +1,6 @@
 # 令人热血沸腾的桌面
 
-> 原文:[https://lifehacker.com/the-blood-pumping-desktop-1767483753](https://lifehacker.com/the-blood-pumping-desktop-1767483753)
+> 原文：<https://lifehacker.com/the-blood-pumping-desktop-1767483753>
 
 读者 [麦克塔库斯](http://kinja.com/PaladinJ) 将这个跳动的心脏桌面提交给了我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) ，并以动画的形式，情不自禁地展示给世人。以下是他是如何做到的，你也可以这样做。
 

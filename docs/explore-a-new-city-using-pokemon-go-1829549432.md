@@ -1,6 +1,6 @@
 # 使用 Pokémon Go 探索新城市
 
-> 原文:[https://life hacker . com/explore-a-new-city-using-pokemon-go-1829549432](https://lifehacker.com/explore-a-new-city-using-pokemon-go-1829549432)
+> 原文：<https://lifehacker.com/explore-a-new-city-using-pokemon-go-1829549432>
 
 当我在另一个城市，想看看有哪些街区可以逛逛时，我会打开 Foursquare 的。有些人使用 Yelp，有些人在谷歌地图上寻找棕色区域。我的朋友T5】亨利 T7】用*神奇宝贝 Go* 。 
 

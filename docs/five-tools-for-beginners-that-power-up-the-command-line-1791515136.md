@@ -1,6 +1,6 @@
 # 增强命令行功能的五个初学者工具
 
-> 原文:[https://life hacker . com/five-tools-for the-power-up-the-command-line-1791515136](https://lifehacker.com/five-tools-for-beginners-that-power-up-the-command-line-1791515136)
+> 原文：<https://lifehacker.com/five-tools-for-beginners-that-power-up-the-command-line-1791515136>
 
 无论您是经验丰富的老手还是命令行新手，您都不可能记住每个命令、手册页或工具提示。幸运的是，我们有一些工具可以让新手不那么害怕命令行，也可以帮助老用户记住在一些常见的情况下应该怎么做。
 

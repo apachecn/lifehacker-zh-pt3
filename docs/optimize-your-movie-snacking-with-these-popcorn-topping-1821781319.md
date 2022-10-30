@@ -1,6 +1,6 @@
 # 用这些爆米花配料优化你的电影零食
 
-> 原文:[https://life hacker . com/optimize-your-movie-snacking-with these-popcorn-topping-1821781319](https://lifehacker.com/optimize-your-movie-snacking-with-these-popcorn-topping-1821781319)
+> 原文：<https://lifehacker.com/optimize-your-movie-snacking-with-these-popcorn-topping-1821781319>
 
 颁奖季很快就要到了，这意味着你应该看很多电影——这样你就可以表达你聪明而好的电影观点——还要吃很多零食。一大碗松软可口的爆米花是显而易见的正确选择，但如果你发现自己对基本的黄油和盐的情况有点厌倦，我们有一些方法来拓展。
 

@@ -1,6 +1,6 @@
 # 如何克服对烹饪肉类的恐惧
 
-> 原文:[https://life hacker . com/how-to-get-over-your meat-cooking-concerns-1798642218](https://lifehacker.com/how-to-get-over-your-meat-cooking-concerns-1798642218)
+> 原文：<https://lifehacker.com/how-to-get-over-your-meat-cooking-concerns-1798642218>
 
 不是每个人都适合吃肉。如果你不是在肉食家庭长大，或者你以前是素食主义者，烹饪它可能会有点令人生畏。然而，烹饪并不难，但是当人们第一次开始烹饪动物时，会有一些共同的担忧。
 

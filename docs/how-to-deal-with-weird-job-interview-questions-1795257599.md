@@ -1,6 +1,6 @@
 # 如何应对怪异的求职面试问题
 
-> 原文:[https://life hacker . com/how-to-deal-with-verged-job-interview-questions-1795257599](https://lifehacker.com/how-to-deal-with-weird-job-interview-questions-1795257599)
+> 原文：<https://lifehacker.com/how-to-deal-with-weird-job-interview-questions-1795257599>
 
 求职面试已经够让人伤脑筋的了——然后你 [会被一个奇怪的问题](http://lifehacker.com/27-of-the-toughest-interview-questions-in-the-job-marke-1792694952) 击中，比如“如果你是一棵树，你会是哪种树？”
 

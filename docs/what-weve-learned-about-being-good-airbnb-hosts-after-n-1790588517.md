@@ -1,6 +1,6 @@
 # 九个月后，我们学到了如何成为优秀的 Airbnb 房东
 
-> 原文:[https://life hacker . com/what-we-ve-learn-on-being-Airbnb-hosts-after-n-1790588517](https://lifehacker.com/what-weve-learned-about-being-good-airbnb-hosts-after-n-1790588517)
+> 原文：<https://lifehacker.com/what-weve-learned-about-being-good-airbnb-hosts-after-n-1790588517>
 
 搬进超出我们预算的两居室一个月后，我和纽约的室友开始探索赚点外快的方法。我们曾以旅行者的身份使用 Airbnb，并想成为主人。
 

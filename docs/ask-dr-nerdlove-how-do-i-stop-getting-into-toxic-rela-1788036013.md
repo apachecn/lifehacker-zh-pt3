@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我如何停止陷入有毒的关系？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-stop-getting-into-toxic-rela-1788036013](https://kotaku.com/ask-dr-nerdlove-how-do-i-stop-getting-into-toxic-rela-1788036013)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-stop-getting-into-toxic-rela-1788036013>
 
 你好，所有美丽又可怕的信息素宝石。欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一的约会建议专栏，也是魔法师至尊。我是你的主人，陌生人博士。
 

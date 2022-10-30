@@ -1,6 +1,6 @@
 # 如何安排性生活并享受其中
 
-> 原文:[https://life hacker . com/how-to-schedule-sex-and-like-it-1797016256](https://lifehacker.com/how-to-schedule-sex-and-still-enjoy-it-1797016256)
+> 原文：<https://lifehacker.com/how-to-schedule-sex-and-still-enjoy-it-1797016256>
 
 “有计划的性爱”这个词让大多数夫妇感到恐惧。我们认为性应该是自发的，所以做出安排性生活的决定就像是承认你的性生活正式结束了。但是有计划的性爱实际上比你想象的要有趣得多。以下是方法。
 

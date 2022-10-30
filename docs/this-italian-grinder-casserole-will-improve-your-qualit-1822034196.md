@@ -1,6 +1,6 @@
 # 这个意大利砂锅将提高你的生活质量
 
-> 原文:[https://life hacker . com/this-Italian-grinder-sarkob-will-improve-your-quality-1822034196](https://lifehacker.com/this-italian-grinder-casserole-will-improve-your-qualit-1822034196)
+> 原文：<https://lifehacker.com/this-italian-grinder-casserole-will-improve-your-qualit-1822034196>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅造物的专栏。今天我们要带走我另一个最爱的三明治——意大利三明治/绞肉机/三明治等等——把它变成一道热腾腾的美味佳肴。
 

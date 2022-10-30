@@ -1,6 +1,6 @@
 # 乔氏小吃到底是从哪里来的？
 
-> 原文:[https://life hacker . com/where-do-trader-joes-snacks-even-come-from-1797833695](https://lifehacker.com/where-do-trader-joes-snacks-even-come-from-1797833695)
+> 原文：<https://lifehacker.com/where-do-trader-joes-snacks-even-come-from-1797833695>
 
 说到买零食，很少有商店能像乔氏的 [和](http://skillet.lifehacker.com/why-i-buy-all-of-my-plane-snacks-from-trader-joes-1793461509)一样满足我的需求。他们的小吃味道好，价格合理，而且(通常)包装方便，但我一直不确定它们的来源。
 

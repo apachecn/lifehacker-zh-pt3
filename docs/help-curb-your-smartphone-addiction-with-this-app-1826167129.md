@@ -1,6 +1,6 @@
 # 这个应用程序帮助你抑制你的智能手机瘾
 
-> 原文:[https://life hacker . com/help-curb-your-smart phone-addiction with this-app-1826167129](https://lifehacker.com/help-curb-your-smartphone-addiction-with-this-app-1826167129)
+> 原文：<https://lifehacker.com/help-curb-your-smartphone-addiction-with-this-app-1826167129>
 
 我们都可能比自己想象的更沉迷于手机。我知道每当一天中有休息的时候，不管是在火车上，在会议间隙，甚至是在餐馆等待食物的时候，我都会本能地把烟抽出来。很容易拿出手机，专注于脸书或 Instagram 上发生的事情。
 

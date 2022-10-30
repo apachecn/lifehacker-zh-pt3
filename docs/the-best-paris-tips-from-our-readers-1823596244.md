@@ -1,6 +1,6 @@
 # 来自我们读者的最佳巴黎小贴士
 
-> 原文:[https://life hacker . com/the-best-Paris-tips-from-our-readers-1823596244](https://lifehacker.com/the-best-paris-tips-from-our-readers-1823596244)
+> 原文：<https://lifehacker.com/the-best-paris-tips-from-our-readers-1823596244>
 
 你好！本周 [我们询问了你的巴黎小贴士](https://lifehacker.com/tell-us-your-paris-tips-1823472888) 。以下是 148 份回复中的一些亮点。如果你只知道一件事，那就是巴黎人喜欢打招呼。
 

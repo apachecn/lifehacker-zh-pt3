@@ -1,6 +1,6 @@
 # 很快你就可以用 Alexa 和你的电视对话了
 
-> 原文:[https://life hacker . com/you-ll-can-to-use-Alexa-talk-to-your-TV-eventua-1795937952](https://lifehacker.com/you-ll-be-able-to-use-alexa-to-talk-to-your-tv-eventua-1795937952)
+> 原文：<https://lifehacker.com/you-ll-be-able-to-use-alexa-to-talk-to-your-tv-eventua-1795937952>
 
 亚马逊试图用一种新的 Alexa 技能杀死你的控制器，这种技能旨在使看电视变得超级简单——但你仍然需要正确的设备。
 

@@ -1,6 +1,6 @@
 # 烹饪火鸡时，选择味道胜于外观
 
-> 原文:[https://life hacker . com/choose-taste-over-looks-when-cooking-your-turkey-1820444769](https://lifehacker.com/choose-taste-over-looks-when-cooking-your-turkey-1820444769)
+> 原文：<https://lifehacker.com/choose-taste-over-looks-when-cooking-your-turkey-1820444769>
 
 作为一个有时吃“为克”的人，我理解有一个积极上镜的感恩节传播的愿望。而且，虽然我完全赞成在馅饼皮上吹笛子，在甘薯砂锅上完美地放置棉花糖，但我必须敦促你拥抱一只丑陋的——或者至少是解构的——火鸡。
 

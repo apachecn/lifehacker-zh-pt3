@@ -1,6 +1,6 @@
 # 如何用 Alexa 语音命令控制你的 Fire TV
 
-> 原文:[https://life hacker . com/how-to-control-your-fire-TV-with-Alexa-voice-commands-1820886580](https://lifehacker.com/how-to-control-your-fire-tv-with-alexa-voice-commands-1820886580)
+> 原文：<https://lifehacker.com/how-to-control-your-fire-tv-with-alexa-voice-commands-1820886580>
 
 亚马逊正在让控制你的 [Fire TV](https://lifehacker.com/how-to-install-kodi-on-your-fire-tv-edition-amazon-powe-1820843225) 变得更加容易，而不会因为使用物理遥控器而使自己过度劳累。在夏季 增加了通过 [回声](https://lifehacker.com/the-alexa-skills-that-are-actually-worth-using-1791616099) 扬声器 [控制电视的能力后，该公司](https://amazonfiretv.blog/how-to-control-your-amazon-fire-tv-with-your-echo-device-d85473215146) [周四](https://amazonfiretv.blog/now-alexa-on-fire-tv-can-control-hulu-playstation-vue-cbs-all-access-and-more-ba43253cd32) 宣布了一项更新，在更多流媒体应用上增加了更多基于语音的控制。
 

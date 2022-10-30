@@ -1,6 +1,6 @@
 # 用冷冻小红莓冷却你的节日饮料
 
-> 原文:[https://life hacker . com/chill-your-festive-beverages-with-frozen-cranberries-1821303208](https://lifehacker.com/chill-your-festive-beverages-with-frozen-cranberries-1821303208)
+> 原文：<https://lifehacker.com/chill-your-festive-beverages-with-frozen-cranberries-1821303208>
 
 蔓越莓很漂亮，但是，除非你腌制它们，否则它们不是最好吃的配菜。与其让他们光凭外表溜之大吉，我还不如让他们承担起饮料冷藏员的双重职责。
 

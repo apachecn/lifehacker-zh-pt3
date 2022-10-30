@@ -1,6 +1,6 @@
 # 如何将网页从手机发送到电脑
 
-> 原文:[https://life hacker . com/how-to-send-web-pages-from-your-phone-to-your-PC-1797406299](https://lifehacker.com/how-to-send-web-pages-from-your-phone-to-your-pc-1797406299)
+> 原文：<https://lifehacker.com/how-to-send-web-pages-from-your-phone-to-your-pc-1797406299>
 
 从在手机上阅读文章到在笔记本上阅读并不难。你要做的就是记起你在哪里找到的，对吗？但是搜索你面前已经有的东西是多余的，特别是因为像谷歌、微软和苹果这样的公司都有办法把你手机上的东西瞬间带到你的桌面上。很有可能，通过一些设置调整，您现在就可以启用该功能。
 

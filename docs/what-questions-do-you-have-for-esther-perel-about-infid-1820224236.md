@@ -1,6 +1,6 @@
 # 关于不忠，你有什么问题要问埃丝特·佩雷尔？
 
-> 原文:[https://life hacker . com/what-questions-do-you-have-for-Esther-perel-about-infid-1820224236](https://lifehacker.com/what-questions-do-you-have-for-esther-perel-about-infid-1820224236)
+> 原文：<https://lifehacker.com/what-questions-do-you-have-for-esther-perel-about-infid-1820224236>
 
 《事态:反思不忠 的作者埃丝特·佩雷尔，我们视频系列的主持人，将成为我们播客的嘉宾。虽然我们有自己的一长串面试问题，但我们很想知道你可能想问她什么。
 

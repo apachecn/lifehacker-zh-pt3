@@ -1,6 +1,6 @@
 # 使用这个方便的工具强制归档网站抓取网页
 
-> 原文:[https://life hacker . com/force-archive-websites-to-pick-up-pages-with this-ha-1825715506](https://lifehacker.com/force-archive-websites-to-pick-up-webpages-with-this-ha-1825715506)
+> 原文：<https://lifehacker.com/force-archive-websites-to-pick-up-webpages-with-this-ha-1825715506>
 
 当你需要查看旧版本的网站时，像 [互联网存档:时光倒流机](http://archive.org/web/) 这样的网站存档服务非常有用——无论是为了怀旧的还是因为你正在寻找已经被覆盖或删除的特定信息(例如，像你为前雇主写的故事)。
 

@@ -1,6 +1,6 @@
 # 煮鸡蛋和剥鸡蛋的最好方法是什么？
 
-> 原文:[https://the take out . com/what-s-the-best-way to-hard-boil-and-peel a egg-1826821038](https://thetakeout.com/what-s-the-best-way-to-hard-boil-and-peel-an-egg-1826821038)
+> 原文：<https://thetakeout.com/what-s-the-best-way-to-hard-boil-and-peel-an-egg-1826821038>
 
 在人的一生中，偶尔会跌跌撞撞地走进一扇看不见的门，一旦走进这扇门，就再也没有回头路了。他们做出选择，表达自己的偏好，提到他们碰巧非常喜欢这本书或那种颜色，然后*砰*一声，门在他们身后砰地关上了。以前的艾莉森已经死了。全新的艾莉森万岁，她现在显然很喜欢茶杯。你可能会说这从未发生在你身上。作为回应，我会微笑、点头，然后转向你那满是州主题酒杯的架子，问他们对此有何看法。
 

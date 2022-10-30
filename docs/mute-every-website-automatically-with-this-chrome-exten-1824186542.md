@@ -1,6 +1,6 @@
 # 用这个 Chrome 扩展自动静音每个网站
 
-> 原文:[https://life hacker . com/mute-every-website-automatically-with this-chrome-exten-1824186542](https://lifehacker.com/mute-every-website-automatically-with-this-chrome-exten-1824186542)
+> 原文：<https://lifehacker.com/mute-every-website-automatically-with-this-chrome-exten-1824186542>
 
 让你在 Chrome 中让整个网站静音可能是谷歌有史以来对浏览器的最好升级，但它还可以更好。当然，屏蔽每个带有 [烦人弹出视频](https://lifehacker.com/now-google-chrome-can-automatically-silence-annoying-au-1821369846) 的网站是很棒的，但是如果你根本不需要处理任何音频呢？多亏了 AutoMute，你再也不会听到浏览器发出任何声音了。
 

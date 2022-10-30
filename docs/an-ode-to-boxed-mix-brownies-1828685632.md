@@ -1,6 +1,6 @@
 # 盒装混合布朗尼的颂歌
 
-> 原文:[https://life hacker . com/an-ode-to-boxed-mix-brownies-1828685632](https://lifehacker.com/an-ode-to-boxed-mix-brownies-1828685632)
+> 原文：<https://lifehacker.com/an-ode-to-boxed-mix-brownies-1828685632>
 
 正如有[‘过程’杀手和‘产品’杀手](https://people.howstuffworks.com/serial-killer1.htm) 一样，我喜欢认为有过程烘焙师和产品烘焙师。流程人员在执行他们最喜欢的爱好时感到舒适和快乐，而产品人员则是为了结果。和杰夫瑞·达莫一样，我也是一名产品人员，但我们的目标非常不同。达默想要一个昏迷的性奴；我只想吃些布朗尼。
 

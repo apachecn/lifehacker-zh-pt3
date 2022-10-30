@@ -1,6 +1,6 @@
 # 问咸味女服务员:我的学步孩子把桌子弄得乱七八糟，我该怎么办？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-my-tuddle-1824085688](https://thetakeout.com/ask-the-salty-waitress-what-should-i-do-when-my-toddle-1824085688)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-what-should-i-do-when-my-toddle-1824085688>
 
 * * *
 

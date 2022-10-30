@@ -1,6 +1,6 @@
 # 用这个网站举办你家人的假日安全研讨会
 
-> 原文:[https://life hacker . com/host-your-family-s-holiday-security-seminar-with-this-s-1821441839](https://lifehacker.com/host-your-family-s-holiday-security-seminar-with-this-s-1821441839)
+> 原文：<https://lifehacker.com/host-your-family-s-holiday-security-seminar-with-this-s-1821441839>
 
 将您的家人聚集在笔记本电脑屏幕周围:是时候给他们更好的在线安全性了。虽然你不能做一个演示来解释所有的事情，从为什么你的密码不应该是你的生日到为什么你不应该打开每一封电子邮件，但是你可以帮助你爱的人了解什么样的安全方法可以最好地保护他们。使用 [安全规划师](https://lifehacker.com/the-beginners-guide-to-vpns-1819912770) ，您可以轻松地向您的亲戚介绍为他们的日常活动量身定制的网络安全和数据保护基础知识，而不会受到(许多)问题或困惑表情的轰炸。关于双因素身份验证、哪些应用程序最安全以及如何最好地保护您的私人数据的解释者都是根据您的安全需求来回答的。
 

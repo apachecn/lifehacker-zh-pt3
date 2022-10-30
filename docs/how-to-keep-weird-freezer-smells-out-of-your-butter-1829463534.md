@@ -1,6 +1,6 @@
 # 如何防止黄油散发出奇怪的冷冻气味
 
-> 原文:[https://life hacker . com/how-to-keep-verged-freezer-smokes-out-of-your-butter-1829463534](https://lifehacker.com/how-to-keep-weird-freezer-smells-out-of-your-butter-1829463534)
+> 原文：<https://lifehacker.com/how-to-keep-weird-freezer-smells-out-of-your-butter-1829463534>
 
 作为一个随时准备三磅黄油的人，我经常在我的冰箱、冰柜和黄油碟之间循环使用这些东西。然而最近，我发现自己陷入了一个难以想象的困境:我的黄油用完了 *。我在冰箱后面翻找，在一个半空的冷冻饺子袋和一些鸡汤后面，我找到了最后一个盒子。*
 

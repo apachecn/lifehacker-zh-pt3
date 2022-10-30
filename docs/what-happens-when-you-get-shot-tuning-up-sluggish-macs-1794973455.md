@@ -1,6 +1,6 @@
 # 当你被击中时会发生什么，调整缓慢的苹果电脑，以及如何向狗介绍自己
 
-> 原文:[https://life hacker . com/what-happens-when-when-when-you-get-shot-tuning-up-lazy-Macs-1794973455](https://lifehacker.com/what-happens-when-you-get-shot-tuning-up-sluggish-macs-1794973455)
+> 原文：<https://lifehacker.com/what-happens-when-you-get-shot-tuning-up-sluggish-macs-1794973455>
 
 本周，我们研究了新的医疗保健法案的影响，但也完成了用反应迟钝的 MAC 电脑扮演医生的乏味任务。我们还探索了被枪击是什么样的可怕主题，比较了安全消息应用程序，等等。下面回顾一下本周最受欢迎的帖子。
 

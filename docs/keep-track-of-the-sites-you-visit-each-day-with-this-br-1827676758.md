@@ -1,6 +1,6 @@
 # 使用此 Windows 10 浏览器扩展跟踪您每天访问的网站
 
-> 原文:[https://life hacker . com/keep-track-of-the-this-br-1827676758](https://lifehacker.com/keep-track-of-the-sites-you-visit-each-day-with-this-br-1827676758)
+> 原文：<https://lifehacker.com/keep-track-of-the-sites-you-visit-each-day-with-this-br-1827676758>
 
 **Chrome，Firefox:** 当微软在[Windows 2018 年 4 月 10 日更新](https://lifehacker.com/here-are-the-features-you-should-care-about-in-microsof-1825642722) 中推出其新的“时间线”功能时，我有点沮丧地发现，这个功能——你可以用来查看你在任何给定的一天都做了什么——并不是很有帮助，除非你使用的是 Edge 浏览器。尽管回顾我在某一天使用的少数 Windows 应用程序很有趣，但了解我在那一天浏览了哪些网站也很棒，而这在以前对大多数运行 Chrome 或 Firefox 的 Windows 用户来说是不可能的。
 

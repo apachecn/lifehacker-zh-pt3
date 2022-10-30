@@ -1,6 +1,6 @@
 # 需要说出很多东西的名字？使用此网站
 
-> 原文:[https://life hacker . com/need-to-name-a-lot-of-something-use-this-site-1818762947](https://lifehacker.com/need-to-name-a-lot-of-something-use-this-site-1818762947)
+> 原文：<https://lifehacker.com/need-to-name-a-lot-of-something-use-this-site-1818762947>
 
 有昵称的生活更有趣。这就是为什么我们将我们的无线网络命名为“Julia Louis-Wifus”或“9 英寸顶端来 Apt”。3B。”但是说你需要命名一整套东西，像 [软件版本](https://www.android.com/history/) ，会议室，或者只是一个例子中的占位符。在这一点上，你不能只是一个接一个地编造随机的名字。你需要一个系统。
 

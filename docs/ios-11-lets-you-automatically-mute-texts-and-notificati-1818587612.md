@@ -1,6 +1,6 @@
 # iOS 11 可以让你在开车时自动静音短信和通知
 
-> 原文:[https://life hacker . com/IOs-11-lets-you-automatically-mute-texts-and-notificati-1818587612](https://lifehacker.com/ios-11-lets-you-automatically-mute-texts-and-notificati-1818587612)
+> 原文：<https://lifehacker.com/ios-11-lets-you-automatically-mute-texts-and-notificati-1818587612>
 
 你正试图按照谷歌地图的指示去一个你从未去过的地方，正当事情开始变得复杂时，你妈妈发来短信。几秒钟后，你和办公室的每个人都收到了一封群发邮件，新的信息通知开始飞来，还有更多来自你妈妈的短信，她想知道为什么你还没有回复她的第一条短信。你开始后悔曾经教你妈妈如何发短信。
 

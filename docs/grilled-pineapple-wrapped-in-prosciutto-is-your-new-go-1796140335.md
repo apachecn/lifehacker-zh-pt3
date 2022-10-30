@@ -1,6 +1,6 @@
 # 火腿包裹的烤菠萝是你的新开胃菜
 
-> 原文:[https://life hacker . com/cracked-菠萝裹火腿是你的新选择 1796140335](https://lifehacker.com/grilled-pineapple-wrapped-in-prosciutto-is-your-new-go-1796140335)
+> 原文：<https://lifehacker.com/grilled-pineapple-wrapped-in-prosciutto-is-your-new-go-1796140335>
 
 说到非肉类，菠萝绝对是我在这个世界上最喜欢烧烤的东西。在鸡尾酒 中，焦糖化的、几乎模糊的糖和烟熏味 [非常壮观，烧焦的水果可以作为最美味的汉堡或披萨的配料。(没错，披萨上的菠萝不错；左派的憎恨者。)](https://lifehacker.com/this-is-the-weekend-you-make-grilled-cocktails-1795986523) 
 

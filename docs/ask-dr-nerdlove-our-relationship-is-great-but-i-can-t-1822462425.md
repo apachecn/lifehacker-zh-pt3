@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我们的关系很好，但我无法停止担忧
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-our-relationship-is-great-but-I-can-t-1822462425](https://kotaku.com/ask-dr-nerdlove-our-relationship-is-great-but-i-can-t-1822462425)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-our-relationship-is-great-but-i-can-t-1822462425>
 
 大家好，欢迎来到 [问书呆子爱](http://kotaku.com/askdrnerdlove) ，唯一赢得对打的约会建议专栏。
 

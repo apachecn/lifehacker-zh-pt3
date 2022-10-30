@@ -1,6 +1,6 @@
 # Cipro 的安全警告变得更加可怕
 
-> 原文:[https://life hacker . com/ci pros-safety-warnings-just-get-scariver-1827537812](https://lifehacker.com/cipros-safety-warnings-just-got-scarier-1827537812)
+> 原文：<https://lifehacker.com/cipros-safety-warnings-just-got-scarier-1827537812>
 
 我开过一次环丙沙星。当我拿着那瓶药回家时，我花了一分钟阅读了药房塞在袋子里的传单——主要是为了成为一个勤奋的书呆子，而不是因为我期待任何令人震惊的消息。但是当我说到一个副作用是肌腱断裂的部分时。！！)，我把传单放下，打电话给我的医生，要求换一种药。
 

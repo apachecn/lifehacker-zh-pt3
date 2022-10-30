@@ -1,6 +1,6 @@
 # 小心:如果有人在 Twitter 上屏蔽了你，你就失去了与他们的 DM 历史
 
-> 原文:[https://life hacker . com/watch-out-if-someone-blocks-you-on-Twitter-you-lose-y-1820737088](https://lifehacker.com/watch-out-if-someone-blocks-you-on-twitter-you-lose-y-1820737088)
+> 原文：<https://lifehacker.com/watch-out-if-someone-blocks-you-on-twitter-you-lose-y-1820737088>
 
 Twitter block 是一个强大的工具。而静音是对你的时间线的微妙净化——你静音的人永远不知道，尽管你不得不怀疑，有多少人可能静音了你？？—屏蔽是 Twitter 的地毯式轰炸。
 

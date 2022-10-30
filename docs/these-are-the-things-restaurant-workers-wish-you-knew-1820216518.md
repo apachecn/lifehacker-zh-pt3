@@ -1,6 +1,6 @@
 # 这些是餐馆工作人员希望你知道的事情
 
-> 原文:[https://life hacker . com/these-the-this-the-the-this-the-restaurant-workers-wish-you-know-1820216518](https://lifehacker.com/these-are-the-things-restaurant-workers-wish-you-knew-1820216518)
+> 原文：<https://lifehacker.com/these-are-the-things-restaurant-workers-wish-you-knew-1820216518>
 
 最近，我们询问了在食品服务行业 [工作的人，如果他们对自己的工作有任何见解，他们希望餐馆的顾客知道](https://lifehacker.com/restaurant-workers-what-do-you-wish-patrons-knew-about-1820093935#_ga=2.176022240.338037623.1509985133-27973805.1434581949) ，我们得到了一些很好的答案。无论是关于小费、点餐，还是你应该和不应该如何对待服务员，这些都是成为一个好顾客的秘诀。
 

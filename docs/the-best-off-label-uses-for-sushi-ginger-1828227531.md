@@ -1,6 +1,6 @@
 # 寿司生姜的最佳标签外用途
 
-> 原文:[https://life hacker . com/the-best-off-label-uses-for-sushi-ginger-1828227531](https://lifehacker.com/the-best-off-label-uses-for-sushi-ginger-1828227531)
+> 原文：<https://lifehacker.com/the-best-off-label-uses-for-sushi-ginger-1828227531>
 
 我非常喜欢腌姜。我总是点额外的，不是和寿司一起吃，而是在我吃完寿司之后。辛辣的甜味片是一餐完美的胃沉淀结束，如果你打算吃甜点，它们是很好的味觉清洁剂。
 

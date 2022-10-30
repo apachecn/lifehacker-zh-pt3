@@ -1,6 +1,6 @@
 # 如何在一段时间后重新适应约会
 
-> 原文:[https://life hacker . com/how-to-get-comfort-with-when-that-be-it ' s-been 1821172024](https://lifehacker.com/how-to-get-comfortable-with-dating-again-when-its-been-1821172024)
+> 原文：<https://lifehacker.com/how-to-get-comfortable-with-dating-again-when-its-been-1821172024>
 
 经过三年或多或少偶然的独身生活，我发誓每周约会两次。我不是心理学家，但在这一点上，我是第一次约会的专家。(不是吹牛)但我通常会再次被邀请。
 

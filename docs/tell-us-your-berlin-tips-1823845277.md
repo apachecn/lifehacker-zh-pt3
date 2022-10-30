@@ -1,6 +1,6 @@
 # 告诉我们你的柏林小贴士
 
-> 原文:[https://lifehacker.com/tell-us-your-berlin-tips-1823845277](https://lifehacker.com/tell-us-your-berlin-tips-1823845277)
+> 原文：<https://lifehacker.com/tell-us-your-berlin-tips-1823845277>
 
 在冰岛接管 Instagram 人群之前，柏林是欧洲最酷的旅行目的地。未分裂的德国首都是一堂活的历史课，折衷的建筑代表了每个时代的理想。让我们听听你关于参观的建议。
 

@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的特色播放列表
 
-> 原文:[https://life hacker . com/most-popular-featured-playlists-of-of-2016-1790376230](https://lifehacker.com/most-popular-featured-playlists-of-2016-1790376230)
+> 原文：<https://lifehacker.com/most-popular-featured-playlists-of-2016-1790376230>
 
 今年，我们开始了一个新的 Lifehacker 传统，每周都有一个播放列表。这是 2016 年非常需要的音乐之旅。这里回顾一下我们一年来分享的最有特色的播放列表。
 

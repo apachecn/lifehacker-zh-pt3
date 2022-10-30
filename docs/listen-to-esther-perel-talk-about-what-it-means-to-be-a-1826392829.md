@@ -1,6 +1,6 @@
 # 听 Esther Perel 讨论男子气概，在 Lifehacker 总部现场对话
 
-> 原文:[https://life hacker . com/listen-to-Esther-perel-talk-about-what-it-be-a-1826392829](https://lifehacker.com/listen-to-esther-perel-talk-about-what-it-means-to-be-a-1826392829)
+> 原文：<https://lifehacker.com/listen-to-esther-perel-talk-about-what-it-means-to-be-a-1826392829>
 
 对于我们的第一个 [Livehacker](https://lifehacker.com/come-have-a-drink-and-talk-about-manliness-with-lifehac-1825927655#_ga=2.20428280.1390564882.1527600788-3846207152.1521480874) 活动，我们与治疗师、作家、播客主持人 [Esther Perel](https://www.ted.com/talks/esther_perel_rethinking_infidelity_a_talk_for_anyone_who_has_ever_loved) 、离婚律师 [James J. Sexton](https://lifehacker.com/how-to-save-your-relationship-with-divorce-lawyer-jame-1825292713#_ga=2.20428280.1390564882.1527600788-3846207152.1521480874) 和多才多艺的表演者 [Donald Shorter、Jr](https://www.donaldcshorterjr.com/#/activist/) 。我们向客人提出了这样一个问题:“一个男人应该是怎样的？”他们对这个话题的探索既有趣又有启发性。
 

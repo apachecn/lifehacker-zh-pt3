@@ -1,6 +1,6 @@
 # 夏威夷通心粉沙拉会有客人说 mahalo
 
-> 原文:[https://the take out . com/recipe-Hawaiian-macaroni-salad-1827530665](https://thetakeout.com/recipe-hawaiian-macaroni-salad-1827530665)
+> 原文：<https://thetakeout.com/recipe-hawaiian-macaroni-salad-1827530665>
 
 你知道我妻子和我是怎么庆祝我们最近的结婚纪念日的吗？我们点了 [夏威夷盘午餐](https://www.eater.com/2016/3/12/11180628/hawaiian-plate-lunch-explainer) [外卖](http://alohaeats.com/) 。这是我们经历过的最美味、最便宜、最令人满意的周年晚宴。
 

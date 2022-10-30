@@ -1,6 +1,6 @@
 # 如何在线观看迈克尔飓风的直播视频
 
-> 原文:[https://life hacker . com/how-to-watch-live-video-of-hurricane-Michael-online-1829650370](https://lifehacker.com/how-to-watch-live-video-of-hurricane-michael-online-1829650370)
+> 原文：<https://lifehacker.com/how-to-watch-live-video-of-hurricane-michael-online-1829650370>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-MC2XEEPTSCw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-MC2XEEPTSCw&start=0) 
 

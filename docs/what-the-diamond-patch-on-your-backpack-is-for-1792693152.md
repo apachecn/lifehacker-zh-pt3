@@ -1,6 +1,6 @@
 # 你背包上的钻石补丁是干什么用的
 
-> 原文:[https://life hacker . com/what-the-diamond-patch-on-your-backpack-is-for-1792693152](https://lifehacker.com/what-the-diamond-patch-on-your-backpack-is-for-1792693152)
+> 原文：<https://lifehacker.com/what-the-diamond-patch-on-your-backpack-is-for-1792693152>
 
 许多背包都有一些有用的额外功能，如隐藏口袋、可拆卸小袋和钥匙圈，但你可能没有意识到，一些背包前面的钻石补丁实际上可以派上用场。你可以用它来做什么。
 

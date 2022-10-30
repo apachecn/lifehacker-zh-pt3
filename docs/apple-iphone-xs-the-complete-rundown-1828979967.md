@@ -1,6 +1,6 @@
 # 苹果 iPhone Xs:完整的纲要
 
-> 原文:[https://gizmodo . com/apple-iphone-xs-the-complete-down-1828979967](https://gizmodo.com/apple-iphone-xs-the-complete-rundown-1828979967)
+> 原文：<https://gizmodo.com/apple-iphone-xs-the-complete-rundown-1828979967>
 
 在 iPhone X 发布一年后，苹果在 2018 年回归，在去年 1000 美元旗舰产品的基础上推出了多款新手机，彻底改造了其整个手机阵容:所以，向 [iPhone Xs](https://www.apple.com/iphone-xs/) 问好吧。但这还不是全部，因为今年，苹果的旗舰产品在新 iPhone Xs Max 中有了一个超大尺寸的兄弟姐妹。
 

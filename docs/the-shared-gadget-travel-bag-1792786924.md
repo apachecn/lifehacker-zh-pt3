@@ -1,6 +1,6 @@
 # 共享小工具旅行包
 
-> 原文:[https://life hacker . com/the-shared-gadget-travel-bag-1792786924](https://lifehacker.com/the-shared-gadget-travel-bag-1792786924)
+> 原文：<https://lifehacker.com/the-shared-gadget-travel-bag-1792786924>
 
 如果你带着一大堆电子产品旅行，你知道把它们组织起来是很难的。在《酷工具》上，读者 Marcel Dufresne 详细介绍了他在长途旅行中与妻子共用的包。
 

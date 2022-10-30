@@ -1,6 +1,6 @@
 # 使用徒步旅行包导航徒步旅行路线
 
-> 原文:[https://life hacker . com/navigate-hiking-trails-with-hike pack-1828226670](https://lifehacker.com/navigate-hiking-trails-with-hikepack-1828226670)
+> 原文：<https://lifehacker.com/navigate-hiking-trails-with-hikepack-1828226670>
 
 iOS:沿着道路导航很容易——只需启动谷歌地图或 Waze——但在林中小径上寻找道路往往需要拼凑 pdf、纸质地图和仅适用于一个公园或系统的应用程序。 [徒步旅行包](https://hikepack.earth/) 旨在改变这种情况。
 

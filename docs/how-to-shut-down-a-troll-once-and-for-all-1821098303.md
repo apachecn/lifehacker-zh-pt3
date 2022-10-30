@@ -1,6 +1,6 @@
 # 如何一劳永逸地消灭巨魔
 
-> 原文:[https://life hacker . com/how-to-shut-down-a-troll-once-all-1821098303](https://lifehacker.com/how-to-shut-down-a-troll-once-and-for-all-1821098303)
+> 原文：<https://lifehacker.com/how-to-shut-down-a-troll-once-and-for-all-1821098303>
 
 即使 Twitter 最终禁止了纳粹(lol yeah right)，但互联网上总会有无聊、愚蠢、讨厌和糟糕的人。有时他们会发现你放在网上的东西，并为此烦你。你是如何对付他们而不觉得自己很糟糕的？我们从 CollegeHumor 的社区经理 Eli Yudin 那里得到了一些建议，他的全部工作就是在互联网上与陌生人交谈。
 

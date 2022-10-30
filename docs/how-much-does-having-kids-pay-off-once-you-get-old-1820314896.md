@@ -1,6 +1,6 @@
 # 一旦你老了，生孩子会有多少回报？
 
-> 原文:[https://life hacker . com/how-do-much-dove-off-once you-get-old-1820314896](https://lifehacker.com/how-much-does-having-kids-pay-off-once-you-get-old-1820314896)
+> 原文：<https://lifehacker.com/how-much-does-having-kids-pay-off-once-you-get-old-1820314896>
 
 我知道你在想什么，我也同意，所以我们就直说了吧:“老了有人照顾你”是生孩子的可怕理由。*但是*既然你现在可能正忙着给一个一直叫你湿漉漉的肚子妈妈的人擦屁股，并且在想，“那么这整个育儿的事情什么时候才能再有回报呢，”让我们来看看一些数字，好吗？
 

@@ -1,6 +1,6 @@
 # 当你“没有时间”时，如何腾出时间写作
 
-> 原文:[https://life hacker . com/how-to-make-time-to-write-when you-have-time-1827141901](https://lifehacker.com/how-to-make-time-to-write-when-you-have-no-time-1827141901)
+> 原文：<https://lifehacker.com/how-to-make-time-to-write-when-you-have-no-time-1827141901>
 
 这个星期我们有一个人非常想逃离他没有灵魂的职业，成为一名作家，但是他太忙了，没有时间写作。他是否应该辞去工作，以便最终能找到时间落笔？或者他会意识到，如果他愿意深入挖掘，为他的激情腾出时间是可能的吗？
 

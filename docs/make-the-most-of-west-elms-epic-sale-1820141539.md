@@ -1,6 +1,6 @@
 # 如何充分利用西榆树的大甩卖
 
-> 原文:[https://life hacker . com/make-the-most-of-west-elms-epic-sale-1820141539](https://lifehacker.com/make-the-most-of-west-elms-epic-sale-1820141539)
+> 原文：<https://lifehacker.com/make-the-most-of-west-elms-epic-sale-1820141539>
 
 无论你是想重新装修你的家，还是仅仅升级宜家家具，现在都是你的机会——West Elm 几乎所有部门都在大减价。
 

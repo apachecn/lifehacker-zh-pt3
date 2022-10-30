@@ -1,6 +1,6 @@
 # 你绝对应该和你的孩子讨论的社交媒体警示故事
 
-> 原文:[https://life hacker . com/social-media-cautionary-tales-that-you-should-definit tel-1795855683](https://lifehacker.com/social-media-cautionary-tales-that-you-should-definitel-1795855683)
+> 原文：<https://lifehacker.com/social-media-cautionary-tales-that-you-should-definitel-1795855683>
 
 好消息是，10 个孩子已经进入了哈佛 2021 届的等待名单。周日， [哈佛深红](http://www.thecrimson.com/article/2017/6/5/2021-offers-rescinded-memes/) 报道称，该学院最近撤销了对今年秋季新生班级 10 名学生的录取，原因是他们发布了“淫秽迷因”显然，被录取的班级中的一些成员组成了一个脸书小组，他们在小组中张贴了嘲笑大屠杀、性侵犯和儿童死亡(针对特定种族群体的儿童死亡，好像普通的儿童死亡还不够糟糕)的图片和迷因，并因此被逮捕...去哈佛以外的地方上大学。
 

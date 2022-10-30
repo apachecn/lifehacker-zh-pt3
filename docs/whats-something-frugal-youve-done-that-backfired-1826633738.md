@@ -1,6 +1,6 @@
 # 你做过的哪些节俭的事适得其反？
 
-> 原文:[https://life hacker . com/whats-something-fruit-you-do-that-back fired-1826633738](https://lifehacker.com/whats-something-frugal-youve-done-that-backfired-1826633738)
+> 原文：<https://lifehacker.com/whats-something-frugal-youve-done-that-backfired-1826633738>
 
 大学二年级和三年级之间的那个夏天，我在兰辛的密歇根参议院实习。由于这个职位一开始没有报酬(我最终说服他们，我需要钱来生活)，整个夏天我都住在朋友们的备用卧室里，并在一家公关公司找到了第二份实习工作，以赚取零花钱。
 

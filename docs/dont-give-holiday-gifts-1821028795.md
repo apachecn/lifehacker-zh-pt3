@@ -1,6 +1,6 @@
 # 不要送节日礼物
 
-> 原文:[https://lifehacker.com/dont-give-holiday-gifts-1821028795](https://lifehacker.com/dont-give-holiday-gifts-1821028795)
+> 原文：<https://lifehacker.com/dont-give-holiday-gifts-1821028795>
 
 不是给你压力，但是离圣诞节还有 19 天。并不是对你做假设，但你可能仍然需要为你的妈妈，爸爸，兄弟姐妹，侄子和侄女，朋友，重要的其他人，办公室秘密圣诞老人，书友会白象交换，和那个总是给你一个雪球的阿姨买礼物。
 

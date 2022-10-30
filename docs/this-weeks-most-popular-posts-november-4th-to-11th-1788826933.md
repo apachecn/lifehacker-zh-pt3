@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 4 日至 11 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-11 月 4 日至 11 日-1788826933](https://lifehacker.com/this-weeks-most-popular-posts-november-4th-to-11th-1788826933)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-4th-to-11th-1788826933>
 
 这是充满不确定性的一周，但我们正在向前推进，并坚持我们最擅长的。我们解释了为什么所谓的“投资件”往往只是浪费金钱，试图用一些事实来缓解对飞行的恐惧，比较了亚马逊 Echo 和谷歌 Home，等等。这里回顾一下。
 

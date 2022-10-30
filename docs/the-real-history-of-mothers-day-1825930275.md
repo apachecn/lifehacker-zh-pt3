@@ -1,6 +1,6 @@
 # 母亲节的真实历史
 
-> 原文:[https://life hacker . com/the-real-history-of-mothers-day-1825930275](https://lifehacker.com/the-real-history-of-mothers-day-1825930275)
+> 原文：<https://lifehacker.com/the-real-history-of-mothers-day-1825930275>
 
 母亲节是鲜花、丰盛的午餐和感谢妈妈这么多年来一直忍受你的唠叨的时候。但曾几何时，这个节日是一件更加阴郁的事情——是女性悼念阵亡将士、追求和平的一种方式。
 

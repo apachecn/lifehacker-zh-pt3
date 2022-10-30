@@ -1,6 +1,6 @@
 # 通过将一个重要的项目与一个动作相关联来记住它
 
-> 原文:[https://life hacker . com/remember-an-a-AC-1797797834](https://lifehacker.com/remember-an-important-item-by-associating-it-with-an-ac-1797797834)
+> 原文：<https://lifehacker.com/remember-an-important-item-by-associating-it-with-an-ac-1797797834>
 
 当谈到我需要从我的公寓带到另一个地方的物理物品时，我几乎忘记了一切。我至少拥有十几把伞，证明了这个事实。我知道天要下雨了，我坐在门边准备出门的时候带走，然后我到了市中心才发现我把它忘了。
 

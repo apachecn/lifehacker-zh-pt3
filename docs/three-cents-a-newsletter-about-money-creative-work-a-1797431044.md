@@ -1,6 +1,6 @@
 # 提醒创意工作者的时事通讯:你并不孤单
 
-> 原文:[https://life hacker . com/three-cents-a-newsletter-about-money-creative-work-a-1797431044](https://lifehacker.com/three-cents-a-newsletter-about-money-creative-work-a-1797431044)
+> 原文：<https://lifehacker.com/three-cents-a-newsletter-about-money-creative-work-a-1797431044>
 
 每个在创意领域工作的人，或者想工作的人，都应该订阅每月简讯 [三分钱](https://tinyletter.com/3cents/) 。每一期，作家兼编辑曼朱拉·马丁都会写三篇短文，并列出一些关于创造性工作的精心策划的链接。这有助于了解行业规范和期望，也是自由职业者和在家工作的创意人员减少孤立感的好方法。
 

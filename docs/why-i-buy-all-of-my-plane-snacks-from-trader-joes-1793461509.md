@@ -1,6 +1,6 @@
 # 为什么我所有的飞机零食都是从乔氏商店买的
 
-> 原文:[https://life hacker . com/why-I-buy-all-of-my-plane-snacks-from-trader-joes-1793461509](https://lifehacker.com/why-i-buy-all-of-my-plane-snacks-from-trader-joes-1793461509)
+> 原文：<https://lifehacker.com/why-i-buy-all-of-my-plane-snacks-from-trader-joes-1793461509>
 
 当我在飞行时，我的零食有两个非常重要的作用。他们应该让我不饿，但更重要的是，他们需要娱乐和分散我对飞行的厌恶。
 

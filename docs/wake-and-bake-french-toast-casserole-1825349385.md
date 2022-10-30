@@ -1,6 +1,6 @@
 # 醒来后烤法式吐司砂锅
 
-> 原文:[https://the take out . com/wake-and-bake-French-toast-sarbang-1825349385](https://thetakeout.com/wake-and-bake-french-toast-casserole-1825349385)
+> 原文：<https://thetakeout.com/wake-and-bake-french-toast-casserole-1825349385>
 
 几年来——我甚至不记得我是从什么时候开始的，也不记得为什么——我一直在准备平安夜的宝拉·迪恩的 [法式吐司砂锅](https://www.foodnetwork.com/recipes/paula-deen/baked-french-toast-casserole-with-maple-syrup-recipe2-1914896) 的改良版，准备在圣诞节早上烘烤。你做一个类似焦糖的酱(我放在碗底；迪安把她放在最上面)，在上面放一些法国面包片，然后浇上一层肉桂和香草混合的蛋羹。神奇的事情发生在你让它浸泡一夜，然后在早上烘烤的时候。与第二天吃这道菜的惊喜相比，前一天晚上 10 分钟左右的准备时间要少得多。这是一个完美的早晨，当你已经因为前一天晚上扮演圣诞老人而昏昏沉沉的时候，充满了捡起包装纸和躲避噪音。含羞草可选。
 

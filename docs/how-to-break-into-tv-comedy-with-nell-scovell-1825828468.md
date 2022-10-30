@@ -1,6 +1,6 @@
 # 如何打入电视喜剧，辛普森一家和莱特曼作家内尔·斯科维尔
 
-> 原文:[https://life hacker . com/how-to-break-into-TV-comedy-with-nell-scovell-1825828468](https://lifehacker.com/how-to-break-into-tv-comedy-with-nell-scovell-1825828468)
+> 原文：<https://lifehacker.com/how-to-break-into-tv-comedy-with-nell-scovell-1825828468>
 
 内尔·斯科维尔(Nell Scovell)是一名喜剧作家，也是《T2》的作者，该书讲述了一些有趣的部分，以及一些关于溜进好莱坞男孩俱乐部 的真相。内尔为《辛普森一家》的*、*纽哈特的*、*大卫·莱特曼的《深夜秀》和许多其他节目写过剧本。我们采访了内尔，了解她作为一名女性如何在一个如此男性主导的领域表现出色。** 
 

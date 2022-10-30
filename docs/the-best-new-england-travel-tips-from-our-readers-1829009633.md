@@ -1,6 +1,6 @@
 # 来自我们读者的最佳新英格兰旅游贴士
 
-> 原文:[https://life hacker . com/the-best-new-England-travel-tips-from-our-readers-1829009633](https://lifehacker.com/the-best-new-england-travel-tips-from-our-readers-1829009633)
+> 原文：<https://lifehacker.com/the-best-new-england-travel-tips-from-our-readers-1829009633>
 
 [秋天即将逝去](https://science.howstuffworks.com/nature/climate-weather/atmospheric/climate-change-four-seasons-redefine.htm) 。但是现在，九月仍然是东北部树叶开始变化的时候。为了纪念赏叶季节，本周 [我们收集了你去新英格兰](https://lifehacker.com/tell-us-your-small-town-new-england-hacks-1828894531) 旅行的小贴士。你可以在那个链接的 *Staff* 标签下阅读所有的最佳评论。我们摘录了下面最精彩的部分。
 

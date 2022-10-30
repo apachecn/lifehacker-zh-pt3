@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我怎样才能在不像个混蛋的情况下勾引女人？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-hit-on-women-without-a-1820922915](https://kotaku.com/ask-dr-nerdlove-how-do-i-hit-on-women-without-being-a-1820922915)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-hit-on-women-without-being-a-1820922915>
 
 大家好，欢迎来到 [询问 T2 博士，这是唯一一个由弗朗西斯·培根爵士创办的约会建议专栏。](http://kotaku.com/askdrnerdlove)
 

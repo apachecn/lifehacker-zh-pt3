@@ -1,6 +1,6 @@
 # 攀岩如何帮助我克服对失败的恐惧
 
-> 原文:[https://life hacker . com/how-I-use-攀岩-练习-超越我的 fea-1793530857](https://lifehacker.com/how-i-use-rock-climbing-to-practice-getting-over-my-fea-1793530857)
+> 原文：<https://lifehacker.com/how-i-use-rock-climbing-to-practice-getting-over-my-fea-1793530857>
 
 攀岩是一种很好的增强体力的运动。不只是为了你的上半身，而是为了一切。我最近加入了洛杉矶的一家攀岩馆，每月支付 79 美元来做一些我讨厌的事情。然而我坚持下去，因为在 [中，除了训练我的身体](https://lifehacker.com/how-i-went-from-weight-lifting-to-bodyweight-exercises-1747454329) ，我真的在训练克服我对失败的恐惧。
 

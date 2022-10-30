@@ -1,6 +1,6 @@
 # 在你的护照照片中微笑，以防止身份欺诈
 
-> 原文:[https://life hacker . com/smile-in-your-passport-photo-prevent-identity-fraud-1827118867](https://lifehacker.com/smile-in-your-passport-photo-to-prevent-identity-fraud-1827118867)
+> 原文：<https://lifehacker.com/smile-in-your-passport-photo-to-prevent-identity-fraud-1827118867>
 
 下一次你拍护照照片的时候，你可能会想笑一笑。经常被错误地认为是护照照片的禁忌，一项新的研究发现，照片中的微笑实际上有助于打击身份欺诈。
 

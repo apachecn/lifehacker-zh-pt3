@@ -1,6 +1,6 @@
 # 你没有尽全力保护你的宠物在车里的安全
 
-> 原文:[https://jalopnik . com/you-parent-doing-not-success-to-keep your-pet-safe-in-car-1794369547](https://jalopnik.com/you-arent-doing-enough-to-keep-your-pet-safe-in-the-car-1794369547)
+> 原文：<https://jalopnik.com/you-arent-doing-enough-to-keep-your-pet-safe-in-the-car-1794369547>
 
 11 年前，我在一条黑暗的乡村公路上遭遇了一场正面碰撞。我来到一个死角，突然有一辆小货车在我的车道上向我驶来。我突然转向路肩，卡车也是。接下来的撞击触发了安全气囊，让我的本田思域缩短了三英尺。幸运的是，我的两只狗在家，等着看我从晚餐中给它们带来什么。
 

@@ -1,6 +1,6 @@
 # 口袋跑池是 iOS 上最好的台球游戏
 
-> 原文:[https://life hacker . com/pocket-run-pool-is-the-best-台球游戏-ios-1826593163](https://lifehacker.com/pocket-run-pool-is-the-best-billiards-game-on-ios-1826593163)
+> 原文：<https://lifehacker.com/pocket-run-pool-is-the-best-billiards-game-on-ios-1826593163>
 
 iOS:对于苹果爱好者来说，游戏开发者扎克·盖奇几乎是一个家喻户晓的名字。苹果不仅喜欢在 App Store 上展示这位独立开发者和他的游戏，而且他还赢得了苹果的金棕榈奖(Palme d'Or of apps)，这是一个令人垂涎的设计奖，以及许多其他行业对他有趣创作的认可。你可能知道 [几个名字](http://stfj.net/apps/index.html) :荒谬的捕鱼，圣人纸牌，魔法塔，和令人沮丧的真正糟糕的象棋。或者你可能已经看过他的最新作品: [袖珍泳池](https://itunes.apple.com/us/app/pocket-run-pool/id949982914?mt=8) 。
 

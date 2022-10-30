@@ -1,6 +1,6 @@
 # 今天就清理掉你的 Instapaper 阅读清单
 
-> 原文:[https://life hacker . com/clean-out-your-instapaper-reading-list-today-1821703712](https://lifehacker.com/clean-out-your-instapaper-reading-list-today-1821703712)
+> 原文：<https://lifehacker.com/clean-out-your-instapaper-reading-list-today-1821703712>
 
 我是一个 Instapaper 囤积者。我曾经在那个应用程序中积累了超过 500 篇文章、散文、故事和其他短文(加上几本小说)的未读列表。我永远也不会读我保存的所有东西。是时候清理我的 Instapaper 了。如果你的 Instapaper、口袋或 Evernote 上有一大堆阅读清单，也是时候清理一下了。
 

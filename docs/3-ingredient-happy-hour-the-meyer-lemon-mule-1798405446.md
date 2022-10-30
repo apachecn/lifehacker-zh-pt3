@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:梅尔柠檬骡子
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-Meyer-lemon-mule-1798405446](https://lifehacker.com/3-ingredient-happy-hour-the-meyer-lemon-mule-1798405446)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-meyer-lemon-mule-1798405446>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天，我们将为一部经典电影《莫斯科骡子》带来阳光明媚的一面。
 

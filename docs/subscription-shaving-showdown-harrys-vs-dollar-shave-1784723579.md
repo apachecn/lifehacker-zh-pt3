@@ -1,6 +1,6 @@
 # 订阅剃须摊牌:哈里的 vs .美元剃须俱乐部
 
-> 原文:[https://life hacker . com/subscription-shaving-摊牌-harrys-vs-dollar-shave-1784723579](https://lifehacker.com/subscription-shaving-showdown-harrys-vs-dollar-shave-1784723579)
+> 原文：<https://lifehacker.com/subscription-shaving-showdown-harrys-vs-dollar-shave-1784723579>
 
 如果你想在剃须刀上省钱，然后好好刮胡子，试试预约剃须服务。锋利的剃刀和剃须产品会在你需要的时候送货上门，而且比商店便宜。它可能很棒，但有这么多服务，很难选择。先说两个大牌。
 

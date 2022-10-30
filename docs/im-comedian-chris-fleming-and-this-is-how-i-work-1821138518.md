@@ -1,6 +1,6 @@
 # 我是喜剧演员克里斯·弗莱明，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-comedian-Chris-Fleming-and-this-is-how-I-work-1821138518](https://lifehacker.com/im-comedian-chris-fleming-and-this-is-how-i-work-1821138518)
+> 原文：<https://lifehacker.com/im-comedian-chris-fleming-and-this-is-how-i-work-1821138518>
 
 克里斯·弗莱明第一次出名是因为盖尔·沃特斯-沃特斯，弗莱明在 YouTube 上的节目 [中那个神经过敏的妈妈*盖尔*](https://www.youtube.com/watch?v=ZdPdiQNWDeY&list=PL6B0B7F79AE5B948B) 。从那时起，他开始制作音乐视频，如 [我害怕和男人说话](https://www.youtube.com/watch?v=ENxbcvUXfnM) 和独角戏，如 [喝咖啡的青少年](https://www.youtube.com/watch?v=RRiRrpd_VDQ) 等，目前他正在结束一场全国巡回演唱会。(他将于周四晚在脸书直播他的节目。)我们问他不断演变的喜剧生涯，他回答了我们，他很搞笑。
 

@@ -1,6 +1,6 @@
 # 现在从 iTunes 租借电影的时间是以前的两倍
 
-> 原文:[https://life hacker . com/now-rent-movies-from-itunes-for-two-time-long-1819027243](https://lifehacker.com/now-rent-movies-from-itunes-for-twice-as-long-1819027243)
+> 原文：<https://lifehacker.com/now-rent-movies-from-itunes-for-twice-as-long-1819027243>
 
 各就各位，准备好，观看 iTunes 电影租赁！与流媒体服务相比，iTunes 有更好的，或者至少是更新的选择，但是租赁的成本不仅仅是金钱上的，还有时间上的。iTunes 租借可以持续 30 天，但是一旦你点击“播放”，一个更紧的倒计时就开始了。
 

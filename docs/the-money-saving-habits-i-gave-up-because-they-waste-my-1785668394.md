@@ -1,6 +1,6 @@
 # 我放弃了省钱的习惯，因为它们浪费我的时间
 
-> 原文:[https://life hacker . com/the-money-saving-habits-I-giused-as-waste-my-1785668394](https://lifehacker.com/the-money-saving-habits-i-gave-up-because-they-waste-my-1785668394)
+> 原文：<https://lifehacker.com/the-money-saving-habits-i-gave-up-because-they-waste-my-1785668394>
 
 可以很有把握地假设没有人因为剪优惠券而变得富有。然而，这并不意味着省钱是浪费时间。一些省钱的习惯是值得的，从长远来看会为你省下一大笔钱 。其他的不值得。这里有一些我已经放弃的 [特定习惯](https://lifehacker.com/what-frugal-habits-aren-t-actually-worthwhile-1645860713) ，因为它们不值得我花费时间和精力(或者你的)。
 

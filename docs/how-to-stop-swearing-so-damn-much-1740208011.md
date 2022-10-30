@@ -1,6 +1,6 @@
 # 如何停止咒骂这么多该死的
 
-> 原文:[https://life hacker . com/how-to-stop-breaking-so-damn-much-1740208011](https://lifehacker.com/how-to-stop-swearing-so-damn-much-1740208011)
+> 原文：<https://lifehacker.com/how-to-stop-swearing-so-damn-much-1740208011>
 
 说脏话可以很有趣，或者帮助我们发泄愤怒、痛苦或沮丧。但这并不总是合适的，如果你说脏话是一种坏习惯，那么停止并不太难。
 

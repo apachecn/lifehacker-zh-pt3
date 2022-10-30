@@ -1,6 +1,6 @@
 # 睡眠退化不是一种挫折，而是一种迹象
 
-> 原文:[https://life hacker . com/a-sleep-regression-not-a-a-setup-its-a-sign-1820799094](https://lifehacker.com/a-sleep-regression-isnt-a-setback-its-a-sign-1820799094)
+> 原文：<https://lifehacker.com/a-sleep-regression-isnt-a-setback-its-a-sign-1820799094>
 
 如果你属于任何一个网上家长群，你做一个 [字云](https://lifehacker.com/tagxedo-generates-stunning-custom-word-clouds-5513364) ，在死中心会出现一个 72 点字体的字:睡眠。没有人能熬过为人父母的头几个月或头几年，而不知道如何让孩子入睡、保持睡眠状态，或者在早上稍晚一点时入睡。
 

@@ -1,6 +1,6 @@
 # 这里有一些神奇的工具，你可以从当地的汽车配件商店免费借用
 
-> 原文:[https://jalopnik . com/here-are-the-amazing-tools-you-can-born-from-1823748775](https://jalopnik.com/here-are-the-amazing-tools-you-can-borrow-for-free-from-1823748775)
+> 原文：<https://jalopnik.com/here-are-the-amazing-tools-you-can-borrow-for-free-from-1823748775>
 
 在美国，汽车零件商店免费出租专业工具，让大众也能使用扳手。这是一件美妙的事情，尤其是有这么多令人惊奇的工具可供选择。这里有一些你可以从当地汽车零部件零售商那里借来的硬件，而不用花一分钱。
 

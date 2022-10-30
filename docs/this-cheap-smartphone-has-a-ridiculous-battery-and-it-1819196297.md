@@ -1,6 +1,6 @@
 # 这个廉价的智能手机有一个可笑的电池，它让我想哭
 
-> 原文:[https://gizmodo . com/this-cheap-smart phone-has-a-military-battery-and-it-1819196297](https://gizmodo.com/this-cheap-smartphone-has-a-ridiculous-battery-and-it-1819196297)
+> 原文：<https://gizmodo.com/this-cheap-smartphone-has-a-ridiculous-battery-and-it-1819196297>
 
 当人们考虑购买一部新的智能手机时，电池寿命是人们最关心的问题，以至于如果一部手机的寿命几乎是最昂贵的旗舰手机的两倍，人们很容易忽略它的一些缺点。但在某种程度上，缺陷开始拖累拥有真正大电池的新鲜感，这正是 [华硕 ZenFone 4 Max](https://www.asus.com/us/Phone/ZenFone-4-Max-ZC554KL/) 的问题。这个东西有你能在智能手机中找到的最大的电池之一——而且它只有 200 美元！然而，预算的组成部分剥夺了所有的乐趣。
 

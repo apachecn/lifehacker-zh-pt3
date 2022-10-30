@@ -1,6 +1,6 @@
 # 如何为任何情况选择完美的字体
 
-> 原文:[https://life hacker . com/how-to-choose-the-perfect-font-for-any-situation-1797109338](https://lifehacker.com/how-to-choose-the-perfect-font-for-any-situation-1797109338)
+> 原文：<https://lifehacker.com/how-to-choose-the-perfect-font-for-any-situation-1797109338>
 
 有没有这样的一天，你只是坐在那里，伪造文件，似乎不能选择正确的字体来传达你所谓的腐败？很酷。我们都经历过。
 

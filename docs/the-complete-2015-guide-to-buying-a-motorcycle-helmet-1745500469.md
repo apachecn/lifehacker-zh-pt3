@@ -1,6 +1,6 @@
 # 2015 年摩托车头盔购买指南
 
-> 原文:[https://jalopnik . com/the-complete-2015-购买摩托车头盔指南-1745500469](https://jalopnik.com/the-complete-2015-guide-to-buying-a-motorcycle-helmet-1745500469)
+> 原文：<https://jalopnik.com/the-complete-2015-guide-to-buying-a-motorcycle-helmet-1745500469>
 
 购买摩托车头盔是一个非常棘手的过程。大多数头盔是不可能找到的，如果你想试试的话，再加上每样东西都不一样，头盔制造商提供的大多数描述都是难以辨认和不连贯的。对你来说幸运的是，我可以直接尝试很多方法——我在这里提供帮助。
 

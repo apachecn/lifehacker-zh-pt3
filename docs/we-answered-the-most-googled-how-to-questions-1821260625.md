@@ -1,6 +1,6 @@
 # 我们回答了谷歌搜索最多的“如何做”的问题
 
-> 原文:[https://life hacker . com/we-answered-the-most-Google-how-to-questions-1821260625](https://lifehacker.com/we-answered-the-most-googled-how-to-questions-1821260625)
+> 原文：<https://lifehacker.com/we-answered-the-most-googled-how-to-questions-1821260625>
 
 Google Trends 刚刚发布了其在搜索 2017 年 中的 [年，其中包括排名前 10 的“如何”搜索。事实证明，Lifehacker 回答了十分之九。而](https://trends.google.com/trends/yis/2017/GLOBAL/) [那第十个](https://trends.google.com/trends/explore?date=2017-01-01%202017-12-31&q=How%20to%20watch%20Mayweather%20vs%20McGregor) 真的已经无所谓了。
 

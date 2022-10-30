@@ -1,6 +1,6 @@
 # 开始跑步需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-know-to-start-running-1787655831](https://lifehacker.com/everything-you-need-to-know-to-start-running-1787655831)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-to-start-running-1787655831>
 
 无论你是想赶新年的潮流，还是仅仅想要跑步带来的好处，你可能会有一些问题，除了穿上鞋和外出，你到底如何“成为”一名跑步者。幸运的是，我们有答案。
 

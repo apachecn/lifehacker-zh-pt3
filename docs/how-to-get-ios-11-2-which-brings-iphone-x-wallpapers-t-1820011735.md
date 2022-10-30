@@ -1,6 +1,6 @@
 # 如何获得 iOS 11.2，该版本为旧款 iPhone 带来了 iPhone X 壁纸
 
-> 原文:[https://life hacker . com/how-to-get-IOs-11-2-which-bring-iphone-x-wallpapers-t-1820011735](https://lifehacker.com/how-to-get-ios-11-2-which-brings-iphone-x-wallpapers-t-1820011735)
+> 原文：<https://lifehacker.com/how-to-get-ios-11-2-which-brings-iphone-x-wallpapers-t-1820011735>
 
 [苹果](https://lifehacker.com/manufacturers-are-struggling-to-make-apples-face-id-cam-1819851796) 刚刚发布了 [iOS 11.1](https://lifehacker.com/how-to-get-new-emoji-when-the-ios-11-1-beta-launches-ne-1819222434) ，但是已经在测试下一个大的软件更新了(**下午 3:22**——更新以反映 iOS 11.1 的公开发布)。iOS 11.2 的第一个开发者预览版于本周发布，为该操作系统带来了一些微小但令人兴奋的改进。
 

@@ -1,6 +1,6 @@
 # 喝一杯 Cheerwine Kalimotxo 保持凉爽和微醺
 
-> 原文:[https://life hacker . com/stay-cool-and-tipsy with a-cheerwine-kalimotxo-1827036088](https://lifehacker.com/stay-cool-and-tipsy-with-a-cheerwine-kalimotxo-1827036088)
+> 原文：<https://lifehacker.com/stay-cool-and-tipsy-with-a-cheerwine-kalimotxo-1827036088>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。在夏季的几个月里，我希望在任何时候都是两件事:适当的通风和轻微的嗡嗡声，我希望在实现这些目标的时候付出很少的努力。
 

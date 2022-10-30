@@ -1,6 +1,6 @@
 # 以下是代替吃蛋糕来对抗焦虑的方法
 
-> 原文:[https://life hacker . com/heres-what-to-do-not-to-eating-sheet cake-to-combat-1797980877](https://lifehacker.com/heres-what-to-do-instead-of-eating-sheetcake-to-combat-1797980877)
+> 原文：<https://lifehacker.com/heres-what-to-do-instead-of-eating-sheetcake-to-combat-1797980877>
 
 幽默很难。悲剧之后的幽默就更难了:这就是为什么 Onio [n 花了两个星期 t](https://www.yahoo.com/news/blogs/cutline/remembering-onion-9-11-issue-everyone-thought-last-162024809.html) 才出版了他们 9/11 之后的第一期杂志。蒂娜·菲的“ [周末更新](https://www.youtube.com/watch?v=iVvpXZxXWZU) ”对弗吉尼亚州夏洛茨维尔大屠杀的回应——她在其中呼吁美国公众不要理会纳粹，留在家里吃蛋糕——是一个游戏，试图从我们共同的悲伤和震惊中创造幽默，但它没有击中目标。我们现在最不需要的就是人们呆在家里吃他们的感觉。是时候放下叉子开始工作了。
 

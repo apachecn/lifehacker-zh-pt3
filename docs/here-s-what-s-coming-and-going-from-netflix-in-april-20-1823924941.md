@@ -1,6 +1,6 @@
 # 以下是 2018 年 4 月网飞的动向
 
-> 原文:[https://life hacker . com/here-s-what-s-coming-and-go-from-April-20-1823924941](https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-april-20-1823924941)
+> 原文：<https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-april-20-1823924941>
 
 如果你是凉爽跑道的粉丝，四月是最残酷的一个月。4 月 1 日，这个关于救赎和温暖天气雪橇的鼓舞人心的故事离开了网飞。但是*贝多芬的圣诞冒险*在同一天到达网飞，正好赶上！但说真的，对网飞来说，这是一个好月份，尤其是对于原创剧集和纪录片来说。
 

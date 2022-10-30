@@ -1,6 +1,6 @@
 # 简单的回书包
 
-> 原文:[https://life hacker . com/the-simple-back-to-school-bag-1727728282](https://lifehacker.com/the-simple-back-to-school-bag-1727728282)
+> 原文：<https://lifehacker.com/the-simple-back-to-school-bag-1727728282>
 
 又到了上学时间，正如大多数学生所知，这意味着是时候让你的包尽可能轻了。药学学生和天天读书人 Eric Shen 分享他的书包。
 

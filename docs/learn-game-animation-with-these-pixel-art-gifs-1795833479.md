@@ -1,6 +1,6 @@
 # 用这些像素艺术 gif 学习游戏动画
 
-> 原文:[https://life hacker . com/learn-game-animation-with-these-pixel-art-gifs-1795833479](https://lifehacker.com/learn-game-animation-with-these-pixel-art-gifs-1795833479)
+> 原文：<https://lifehacker.com/learn-game-animation-with-these-pixel-art-gifs-1795833479>
 
 游戏制作人(同时也是游戏工作室 [MiniBoss](http://blog.studiominiboss.com/) 的联合创始人)佩德罗·梅德罗斯懂像素艺术，他想教你。自 9 月份以来，每周二他都会发布一张动画 GIF，展示动画的一个方面。
 

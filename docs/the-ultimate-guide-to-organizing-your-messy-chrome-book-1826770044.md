@@ -1,6 +1,6 @@
 # 整理乱七八糟的 Chrome 书签的终极指南
 
-> 原文:[https://life hacker . com/the-ultimate-guide-to-organizing-your-dirty-chrome-book-1826770044](https://lifehacker.com/the-ultimate-guide-to-organizing-your-messy-chrome-book-1826770044)
+> 原文：<https://lifehacker.com/the-ultimate-guide-to-organizing-your-messy-chrome-book-1826770044>
 
 悲哀的是 Chrome 用户有一个溢出的书签栏——或者更糟，他们用一个文件夹来存储他们在网上看到的任何有趣的东西。
 

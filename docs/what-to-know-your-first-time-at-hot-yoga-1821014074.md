@@ -1,6 +1,6 @@
 # 你第一次做高温瑜伽应该知道什么
 
-> 原文:[https://life hacker . com/what-to-know-your ' s first-time-hot-yoga-1821014074](https://lifehacker.com/what-to-know-your-first-time-at-hot-yoga-1821014074)
+> 原文：<https://lifehacker.com/what-to-know-your-first-time-at-hot-yoga-1821014074>
 
 也许你需要一些东西来温暖你，因为空气中有一丝寒意。也许你听说过热瑜伽是放松的。或者也许你想尝试一些有挑战性但在某些方面更容易的事情:你的肌肉在温暖的时候更有弹性。欢迎来到高温瑜伽。
 

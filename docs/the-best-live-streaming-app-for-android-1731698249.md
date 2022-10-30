@@ -1,6 +1,6 @@
 # 安卓最佳直播应用
 
-> 原文:[https://life hacker . com/the-best-live-streaming-app-for-Android-1731698249](https://lifehacker.com/the-best-live-streaming-app-for-android-1731698249)
+> 原文：<https://lifehacker.com/the-best-live-streaming-app-for-android-1731698249>
 
 与朋友或亲人分享精彩瞬间(或只是生活片段)从未如此简单，一类新的直播应用程序使他们可以实时加入您的行列。在这些应用程序中，我们认为 Periscope 是目前最好的，并且在不久的将来最有潜力。
 

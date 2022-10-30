@@ -1,6 +1,6 @@
 # 如何用一枚不公平的硬币来掷一枚公平的硬币
 
-> 原文:[https://life hacker . com/how-to-make-a-fair-coin-flip-an-fair-coin-1822413841](https://lifehacker.com/how-to-make-a-fair-coin-flip-with-an-unfair-coin-1822413841)
+> 原文：<https://lifehacker.com/how-to-make-a-fair-coin-flip-with-an-unfair-coin-1822413841>
 
 抛硬币，最终五五开的选择，其实有点偏。根据斯坦福大学的一项研究 ，即使是一枚公平的硬币也有大约 51%的几率落在它开始时的同一个面上。如果你旋转而不是翻转，即使一个稍微重一点的硬币也更有可能以重的一面着地。(一枚旋转的硬币 80%的时候都是反面朝上。)但是有一个很酷的数学技巧可以从不公平的硬币中获得公平的结果。
 

@@ -1,6 +1,6 @@
 # 城市安全跑步初学者指南
 
-> 原文:[https://life hacker . com/the-beginners-guide-to-safe-urban-running-1727699007](https://lifehacker.com/the-beginners-guide-to-safe-urban-running-1727699007)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-safe-urban-running-1727699007>
 
 在大都市的中心地带跑步与在安静的街区跑步或者在小道上跑会有很大的不同。风景本身就是一个障碍，每个角落都潜伏着潜在的危险。幸运的是，如果你知道如何驾驭它们，在城市中跑步是保持身材的好方法。
 

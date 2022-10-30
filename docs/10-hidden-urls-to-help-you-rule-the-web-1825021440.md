@@ -1,6 +1,6 @@
 # 帮助你统治网络的 10 个隐藏网址
 
-> 原文:[https://gizmodo . com/10-hidden-URLs-to-help-you-rule-the-web-1825021440](https://gizmodo.com/10-hidden-urls-to-help-you-rule-the-web-1825021440)
+> 原文：<https://gizmodo.com/10-hidden-urls-to-help-you-rule-the-web-1825021440>
 
 你可能习惯于为你最喜欢的网站添加书签以方便访问，但网络比你熟悉的顶级域名更深入——从你的社交网络到你的电子邮箱，拥有正确的 URL 可以让你直接进入你需要的页面、功能、设置或搜索。以下是 10 个最有用的方法。
 

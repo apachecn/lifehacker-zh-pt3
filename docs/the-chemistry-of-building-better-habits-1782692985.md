@@ -1,6 +1,6 @@
 # 培养更好习惯的“化学”
 
-> 原文:[https://life hacker . com/the-chemistry-of-building-better-habits-1782692985](https://lifehacker.com/the-chemistry-of-building-better-habits-1782692985)
+> 原文：<https://lifehacker.com/the-chemistry-of-building-better-habits-1782692985>
 
 化学中有一个概念叫做活化能。活化能是发生化学反应所需的最小能量。比方说，你拿着一根火柴，轻轻地触摸火柴盒侧面的引火条。什么也不会发生，因为引发化学反应和引发火灾所需的能量不存在。
 

@@ -1,6 +1,6 @@
 # 用这道全英式砂锅庆祝皇家婚礼
 
-> 原文:[https://life hacker . com/present-the-royal-wedding-with-this-full-English-cass-1826123222](https://lifehacker.com/celebrate-the-royal-wedding-with-this-full-english-cass-1826123222)
+> 原文：<https://lifehacker.com/celebrate-the-royal-wedding-with-this-full-english-cass-1826123222>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅菜。本周我们将采用一种非常英式的东西——“油炸”或“全英式”——并通过将其变成砂锅菜来加入美国特色。
 

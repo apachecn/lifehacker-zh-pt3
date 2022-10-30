@@ -1,6 +1,6 @@
 # 如果你把你的猫累坏了，它晚上就不会这么缠着你了
 
-> 原文:[https://life hacker . com/laser-pointers-is-still-the-best-cat-toy-1828418191](https://lifehacker.com/laser-pointers-are-still-the-best-cat-toy-1828418191)
+> 原文：<https://lifehacker.com/laser-pointers-are-still-the-best-cat-toy-1828418191>
 
 当我们最后一次召集 Lifehacker 员工的 [周升级](https://lifehacker.com/just-accept-apples-absolute-dominance-in-your-life-1828257088?rev=1534534607702) 时，我们的编辑正在探索新的播客，给苹果公司捐钱，并寻找与一只坏脾气的猫更好相处的方法。
 

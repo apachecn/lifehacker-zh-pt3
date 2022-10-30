@@ -1,6 +1,6 @@
 # 拥抱一瓶鸡尾酒的极简华丽
 
-> 原文:[https://the take out . com/embrace-the-minimalist-splendors of-the-one-bottle-cock-1822966561](https://thetakeout.com/embrace-the-minimalist-splendors-of-the-one-bottle-cock-1822966561)
+> 原文：<https://thetakeout.com/embrace-the-minimalist-splendors-of-the-one-bottle-cock-1822966561>
 
 即使你认为自己对鸡尾酒感兴趣，但你对家酒的选择有多深呢？我的酒吧推车里有几瓶我喜欢的好酒——杜松子酒、陈年朗姆酒、费尔内酒、几种威士忌、去法国旅行时喝的阿马尼亚克酒——还有伏特加、白朗姆酒和龙舌兰酒等标准酒。
 

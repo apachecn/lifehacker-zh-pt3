@@ -1,6 +1,6 @@
 # 如何处理烤髓骨
 
-> 原文:[https://life hacker . com/how-to-do-with-how-to-do-with-baked-髓骨-1823584628](https://lifehacker.com/what-to-do-with-roasted-marrow-bones-1823584628)
+> 原文：<https://lifehacker.com/what-to-do-with-roasted-marrow-bones-1823584628>
 
 吃骨髓是一种“发自内心的颓废”的体验。烤好后，骨头里甘美的肉黄油可以刮出来涂在吐司上，与米饭和蔬菜混合，或者放在更多的肉上吃，来一次疯狂的肉食体验。
 

@@ -1,6 +1,6 @@
 # 如何为大的职业变动做准备
 
-> 原文:[https://life hacker . com/how-to-prepare-for-a-big-career-change-1821024455](https://lifehacker.com/how-to-prepare-for-a-big-career-change-1821024455)
+> 原文：<https://lifehacker.com/how-to-prepare-for-a-big-career-change-1821024455>
 
 谁不会偶尔幻想通过放弃博客来彻底颠覆自己的生活，这样他们就可以开始一个全新的职业生涯，成为小狗 Instagram 的客户经理？无论你现在的职业和梦想职业是什么，都有可能把你的梦想变成现实，但前提是你愿意为此而努力。
 

@@ -1,6 +1,6 @@
 # 永远随身携带你的谷歌账户的两步验证码
 
-> 原文:[https://life hacker . com/dont-use-SMS-for-Googles-two-step-verification-in-case-1823144781](https://lifehacker.com/dont-use-sms-for-googles-two-step-verification-in-case-1823144781)
+> 原文：<https://lifehacker.com/dont-use-sms-for-googles-two-step-verification-in-case-1823144781>
 
 两步验证很棒。然而，如果你碰巧丢失了你的手机，并且你身上没有一些备份代码，那么在飞行中找到你的设备就有点复杂了。无论你使用短信还是认证应用程序进行验证，你都可以获得备份代码(你 [实际上应该使用认证应用程序](https://lifehacker.com/add-a-pin-to-your-smartphone-account-1822852279) )，如果你的手机最终失踪，随身携带它们可以帮助你摆脱困境。
 

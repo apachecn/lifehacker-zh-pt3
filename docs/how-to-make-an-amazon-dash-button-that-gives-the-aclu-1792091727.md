@@ -1,6 +1,6 @@
 # 如何制作一个亚马逊破折号按钮，让美国公民自由联盟在每次看到可怕的事情时支付 5 美元
 
-> 原文:[https://gizmodo . com/how-to-make-an-Amazon-dash-button-that-giving-the-aclu-1792091727](https://gizmodo.com/how-to-make-an-amazon-dash-button-that-gives-the-aclu-1792091727)
+> 原文：<https://gizmodo.com/how-to-make-an-amazon-dash-button-that-gives-the-aclu-1792091727>
 
 如今，看电视、读报纸或在社交媒体上互动，几乎不可能不被无休止、令人沮丧的新闻轰炸。因此，这里有一个简单的方法，可能会让你对 2017 年如何度过感觉更好 [使用亚马逊 Dash 按钮向美国公民自由联盟](https://medium.com/@nathanpryor/the-aclu-dash-button-16719e446363#.iy5c45xcr) 捐款变得很容易。
 

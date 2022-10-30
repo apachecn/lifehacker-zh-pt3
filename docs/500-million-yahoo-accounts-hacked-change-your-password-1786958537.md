@@ -1,6 +1,6 @@
 # 5 亿雅虎账户被黑，现在就改变你的密码
 
-> 原文: [https://lifehacker.com/5 亿-Yahoo-accounts-hacked-change-your-password-1786958537](https://lifehacker.com/500-million-yahoo-accounts-hacked-change-your-password-1786958537)
+> 原文：<https://lifehacker.com/500-million-yahoo-accounts-hacked-change-your-password-1786958537>
 
 雅虎已经证实，2014 年至少有 5 亿用户账户的信息被盗。虽然信息在今天早些时候被泄露，但情况比我们最初想象的还要糟糕。如果你有一个雅虎帐户，是时候改变你的密码了。
 

@@ -1,6 +1,6 @@
 # 你和你的搭档分享密码吗？
 
-> 原文:[https://life hacker . com/do-you-share-passwords-with-your-partner-1823969726](https://lifehacker.com/do-you-share-passwords-with-your-partner-1823969726)
+> 原文：<https://lifehacker.com/do-you-share-passwords-with-your-partner-1823969726>
 
 我妻子知道我手机的密码。我可能给了她一些时间，我想给她看一张照片。出于同样的原因，她知道我笔记本电脑的密码。一些夫妇不愿意分享这些，以保持他们的设备作为隐私的最后堡垒，在他们停止关闭浴室门多年后。虽然我妻子知道如果我晕倒了在哪里可以找到我的主密码，但我实际上并没有把它读给她听。
 

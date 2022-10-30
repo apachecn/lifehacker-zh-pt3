@@ -1,6 +1,6 @@
 # 2016 Windows 版 Lifehacker Pack:基本 Windows 应用程序
 
-> 原文:[https://life hacker . com/life hacker-pack-for-windows-our-list-of-essential-787533613](https://lifehacker.com/lifehacker-pack-for-windows-our-list-of-the-essential-787533613)
+> 原文：<https://lifehacker.com/lifehacker-pack-for-windows-our-list-of-the-essential-787533613>
 
 Windows 有很多优秀的程序，我们数都数不过来，但是有些程序对于每台电脑的安装都是必不可少的。在今年的年度 Lifehacker Pack for Windows 中，我们强调了提高工作效率、通信、媒体管理等的必备下载。
 

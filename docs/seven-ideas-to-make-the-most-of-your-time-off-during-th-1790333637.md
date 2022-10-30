@@ -1,6 +1,6 @@
 # 充分利用假期休息时间的七个方法
 
-> 原文:[https://life hacker . com/seven-ideas-to-make-the-most-your-time-off-th-1790333637](https://lifehacker.com/seven-ideas-to-make-the-most-of-your-time-off-during-th-1790333637)
+> 原文：<https://lifehacker.com/seven-ideas-to-make-the-most-of-your-time-off-during-th-1790333637>
 
 很容易把 [吸进](https://lifehacker.com/how-to-escape-the-cult-of-busy-5994072) 的“忙碌”陷阱，卡在不断追赶的状态中。如果你在假期有几天时间休息，这是一个按下重置按钮的好时机，去做你忽略的任务，开始新的一年。
 

@@ -1,6 +1,6 @@
 # 如何开始速度跑视频游戏
 
-> 原文:[https://kotaku . com/how-to-start-speed running-video-games-1796984207](https://kotaku.com/how-to-start-speedrunning-video-games-1796984207)
+> 原文：<https://kotaku.com/how-to-start-speedrunning-video-games-1796984207>
 
 随着时间的推移和游戏的突破性进展，一些电子游戏玩家可能会想知道如何才能在令人着迷的速度赛跑世界中开始他们的旅程。以下是对最初几个步骤的一些建议。
 

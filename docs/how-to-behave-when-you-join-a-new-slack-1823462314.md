@@ -1,6 +1,6 @@
 # 当你加入一个新的团队时如何表现
 
-> 原文:[https://life hacker . com/how-to-behave-when-you-join-a-new-slack-1823462314](https://lifehacker.com/how-to-behave-when-you-join-a-new-slack-1823462314)
+> 原文：<https://lifehacker.com/how-to-behave-when-you-join-a-new-slack-1823462314>
 
 当我在 Lifehacker 的母公司 Fusion Media Group 加入职场 [Slack](https://slack.com/) 时，我全身心地投入了工作。我发帖太多，把自己插入对话，在私信里让自己难堪。不要像我一样！但也不要做一个恐惧的壁花。以下是如何在不尴尬的情况下适应新的松弛状态。
 

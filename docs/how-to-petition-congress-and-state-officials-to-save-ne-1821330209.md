@@ -1,6 +1,6 @@
 # 如何向国会和州政府官员请愿以拯救网络中立
 
-> 原文:[https://life hacker . com/how-to-请愿-国会和州官员-拯救-ne-1821330209](https://lifehacker.com/how-to-petition-congress-and-state-officials-to-save-ne-1821330209)
+> 原文：<https://lifehacker.com/how-to-petition-congress-and-state-officials-to-save-ne-1821330209>
 
 这次 [FCC 的投票](https://gizmodo.com/fcc-votes-to-kill-net-neutrality-capping-a-year-of-end-1821257779) 可能是最终的，但是 [网络中立](https://lifehacker.com/what-the-end-of-net-neutrality-means-for-you-1820647171) 还远没有。新的命令不会在几周内生效，互联网活动人士预计将很快提起诉讼阻止这一决定。基本上，还有时间拯救免费开放的网络，你可以帮忙做这件事。
 

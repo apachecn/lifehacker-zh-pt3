@@ -1,6 +1,6 @@
 # 如何帮助孩子在数字分散注意力的时代集中注意力
 
-> 原文:[https://life hacker . com/how-to-help-kids-concentrate-in-era-of-digital-dist-1823528550](https://lifehacker.com/how-to-help-kids-concentrate-in-the-era-of-digital-dist-1823528550)
+> 原文：<https://lifehacker.com/how-to-help-kids-concentrate-in-the-era-of-digital-dist-1823528550>
 
 我小时候住在西弗吉尼亚州的一个小镇上，放学后或周末没有多少娱乐选择:我可以步行去朋友家。我可以在我们的 13 个模糊频道上看电视。或者我可以看书。于是我读啊，读啊，读啊——几个小时甚至一整天都没有间断。我别无选择，只能集中注意力。
 

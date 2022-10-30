@@ -1,6 +1,6 @@
 # 为什么我的 IP 地址来自不同的州？
 
-> 原文:[https://life hacker . com/why-my-IP-address-come-from-a-different-state-1829552450](https://lifehacker.com/why-does-my-ip-address-come-from-a-different-state-1829552450)
+> 原文：<https://lifehacker.com/why-does-my-ip-address-come-from-a-different-state-1829552450>
 
 人际关系网可能有点令人困惑，尤其是当你做了(或没做)的事情没有任何逻辑意义的时候。您安装了新的电缆调制解调器和无线路由器，但速度比使用旧设备时更慢。你用千兆位以太网连接你的房子，却无缘无故地看着你的连接在千兆位和快速以太网之间切换。
 

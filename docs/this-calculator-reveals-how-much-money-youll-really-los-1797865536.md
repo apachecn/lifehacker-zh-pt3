@@ -1,6 +1,6 @@
 # 这个计算器揭示了当你和你的孩子呆在家里时，你会真正损失多少钱
 
-> 原文:[https://life hacker . com/this-calculator-reveal-how-amount-money-you-really-los-1797865536](https://lifehacker.com/this-calculator-reveals-how-much-money-youll-really-los-1797865536)
+> 原文：<https://lifehacker.com/this-calculator-reveals-how-much-money-youll-really-los-1797865536>
 
 当坐下来计算儿童保育的成本时，通常会有这样一种情况，父母中的一方(通常是母亲)看着这些数字，感到难以置信和愤怒，想知道我为什么还要工作？
 

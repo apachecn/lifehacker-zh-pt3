@@ -1,6 +1,6 @@
 # 如何用 A-Z 屏幕记录器记录你的安卓系统的屏幕
 
-> 原文:[https://life hacker . com/how-to-reco-your-androids-screen-with-a-z-screen-reco-1772034994](https://lifehacker.com/how-to-record-your-androids-screen-with-a-z-screen-reco-1772034994)
+> 原文：<https://lifehacker.com/how-to-record-your-androids-screen-with-a-z-screen-reco-1772034994>
 
 手机截图太简单了，谁都会。拍摄屏幕视频有点困难。当你需要向某人展示你手机上发生的事情时，以下是如何录制你手机屏幕的方法。
 

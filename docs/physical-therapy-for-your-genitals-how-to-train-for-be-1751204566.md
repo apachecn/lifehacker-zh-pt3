@@ -1,6 +1,6 @@
 # 生殖器的物理治疗:如何训练以获得更好的性生活和健康
 
-> 原文:[https://life hacker . com/physical-therapy-for-your-phrase-to-how-to-train-be 1751204566](https://lifehacker.com/physical-therapy-for-your-genitals-how-to-train-for-be-1751204566)
+> 原文：<https://lifehacker.com/physical-therapy-for-your-genitals-how-to-train-for-be-1751204566>
 
 如果你 [经历性疼痛](https://lifehacker.com/no-sex-shouldnt-hurt-what-to-do-if-youre-experiencing-1714758604) ，月经疼痛，或膀胱或肠道失控，一种专门的物理疗法可能有助于治愈你的疾病。是的，你可以对你的生殖器进行理疗。结果可能会改变生活。
 

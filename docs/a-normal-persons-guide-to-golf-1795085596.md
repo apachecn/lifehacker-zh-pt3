@@ -1,6 +1,6 @@
 # 一个正常人的高尔夫指南
 
-> 原文:[https://deadspin . com/a-normal-persons-guide-to-golf-1795085596](https://deadspin.com/a-normal-persons-guide-to-golf-1795085596)
+> 原文：<https://deadspin.com/a-normal-persons-guide-to-golf-1795085596>
 
 休息十年后，我决定我需要重新开始打高尔夫球。我的女朋友认为我有中年危机。
 

@@ -1,6 +1,6 @@
 # 我们来谈谈为什么脚趾这么奇怪
 
-> 原文:[https://life hacker . com/let-s-talk-about-why-toes-so-gear-1820855663](https://lifehacker.com/let-s-talk-about-why-toes-are-so-weird-1820855663)
+> 原文：<https://lifehacker.com/let-s-talk-about-why-toes-are-so-weird-1820855663>
 
 是时候在这里谈论一些棘手的问题了，这应该会让那些读过[连载](https://lifehacker.com/how-to-enjoy-anal-sex-when-you-have-hemorrhoids-1820550908) 的人松一口气。一如既往，我在这里回答你问别人会觉得奇怪的问题。
 

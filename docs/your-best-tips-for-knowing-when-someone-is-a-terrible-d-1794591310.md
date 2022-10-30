@@ -1,6 +1,6 @@
 # 知道一个人什么时候是糟糕的司机的最好建议
 
-> 原文:[https://jalopnik . com/your-best-tips-for-known-when someone-a-dark-d-1794591310](https://jalopnik.com/your-best-tips-for-knowing-when-someone-is-a-terrible-d-1794591310)
+> 原文：<https://jalopnik.com/your-best-tips-for-knowing-when-someone-is-a-terrible-d-1794591310>
 
 粗心或糟糕的司机是不应该被轻视的。这是不负责任的，也是危险的，我们都应该努力变得更好。因为在所有汽车都实现自动驾驶之前，这就是我们所拥有的。
 

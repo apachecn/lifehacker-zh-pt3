@@ -1,6 +1,6 @@
 # 如何用不新鲜的面包制作油炸面包丁
 
-> 原文:[https://life hacker . com/how-to-make-croutons-with what-stale-bread-you-happ-1819789828](https://lifehacker.com/how-to-make-croutons-with-whatever-stale-bread-you-happ-1819789828)
+> 原文：<https://lifehacker.com/how-to-make-croutons-with-whatever-stale-bread-you-happ-1819789828>
 
 一份好的沙拉就是要达到味道和质地的完美平衡，没有什么比油炸面包丁更能增加口感了。你可以很容易买到预制的面包块，但是如果你想要一个真正的金色、酥脆、耐嚼的面包，你应该自己做。它们也非常容易制作。
 

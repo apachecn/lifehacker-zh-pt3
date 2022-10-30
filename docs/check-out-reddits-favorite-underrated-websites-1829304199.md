@@ -1,6 +1,6 @@
 # 查看 Reddit 最受欢迎的被低估的网站
 
-> 原文:[https://life hacker . com/check-out-reddits-favorite-undertised-websites-1829304199](https://lifehacker.com/check-out-reddits-favorite-underrated-websites-1829304199)
+> 原文：<https://lifehacker.com/check-out-reddits-favorite-underrated-websites-1829304199>
 
 [“什么是大家都应该知道但实际上很少有人知道的网站？”](https://www.reddit.com/r/AskReddit/comments/9icx7a/what_is_a_website_that_everyone_should_know_about/) 问 redditor /u/tj007s13。这是 Reddit 上常见的问题，但每次都有新的答案。以下是一些我们最喜欢的答案:
 

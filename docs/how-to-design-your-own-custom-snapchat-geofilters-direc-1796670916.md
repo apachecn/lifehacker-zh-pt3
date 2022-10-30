@@ -1,6 +1,6 @@
 # 如何直接从手机设计您自己的定制 Snapchat 地理过滤器
 
-> 原文:[https://life hacker . com/how-to-design-your-own-custom-snapchat-geo filters-direc-1796670916](https://lifehacker.com/how-to-design-your-own-custom-snapchat-geofilters-direc-1796670916)
+> 原文：<https://lifehacker.com/how-to-design-your-own-custom-snapchat-geofilters-direc-1796670916>
 
 尽管 Instagram 一直在抄袭 Snapchat 的功能，但这个内容短暂的古怪社交网络仍然是一个独特的地方。它最与众不同的功能之一是地理滤镜——你可以在你拍摄的照片上叠加框架。
 

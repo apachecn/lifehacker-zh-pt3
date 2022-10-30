@@ -1,6 +1,6 @@
 # 不要做你家人的技术支持，做他们的老师
 
-> 原文:[https://life hacker . com/inst-of-be-your-familys-tech-support-be-a-teachee-1821570954](https://lifehacker.com/instead-of-being-your-familys-tech-support-be-a-teache-1821570954)
+> 原文：<https://lifehacker.com/instead-of-being-your-familys-tech-support-be-a-teache-1821570954>
 
 每年我回家度假的时候，都会为各种各样的朋友和家人提供技术支持。今年，我已经解决了一些棘手的问题，比如“我的 Bitmoji 键盘去哪儿了？”“为什么人们在收银机上敲手机”和“为什么我的电脑会这样？”
 

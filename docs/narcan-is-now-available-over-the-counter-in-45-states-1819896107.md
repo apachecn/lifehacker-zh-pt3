@@ -1,6 +1,6 @@
 # Narcan 现已在 46 个州上市
 
-> 原文:[https://life hacker . com/narcan-is-now-over-the-counter-in-45-States-1819896107](https://lifehacker.com/narcan-is-now-available-over-the-counter-in-45-states-1819896107)
+> 原文：<https://lifehacker.com/narcan-is-now-available-over-the-counter-in-45-states-1819896107>
 
 沃尔格林公司本周宣布，他们现在正在 46 个州 的柜台销售纳洛酮，这种药物可以逆转阿片类药物过量。(如果有处方，在任何州都可以买到。)CVS 在 43 个州 柜台提供 [。](https://www.cvs.com/content/prescription-drug-abuse/save-a-life) 
 

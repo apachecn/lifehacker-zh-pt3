@@ -1,6 +1,6 @@
 # 时间是你最重要的投资资产
 
-> 原文:[https://life hacker . com/time-is-your-most-important-investing-asset-1828260510](https://lifehacker.com/time-is-your-most-important-investing-asset-1828260510)
+> 原文：<https://lifehacker.com/time-is-your-most-important-investing-asset-1828260510>
 
 如果你有钱投资，是什么阻碍你实现更高的收益？可能是时候了。
 

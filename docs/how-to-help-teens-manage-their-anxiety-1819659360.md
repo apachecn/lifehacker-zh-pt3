@@ -1,6 +1,6 @@
 # 如何帮助青少年管理他们的焦虑
 
-> 原文:[https://life hacker . com/how-to-help-tens-manage-they-anxiety-1819659360](https://lifehacker.com/how-to-help-teens-manage-their-anxiety-1819659360)
+> 原文：<https://lifehacker.com/how-to-help-teens-manage-their-anxiety-1819659360>
 
 据《纽约时报》报道，[](https://www.nytimes.com/2017/10/11/magazine/why-are-more-american-teenagers-than-ever-suffering-from-severe-anxiety.html)**:*青少年的焦虑正在上升，这是现在大学生要求咨询服务的最常见原因，许多调查表明，高中和大学的孩子感到负担过重，不堪重负。在过去的十年里，因企图自杀而入院的人数翻了一番，而*乘以*描述了为严重焦虑的青少年提供的住院设施。*
 

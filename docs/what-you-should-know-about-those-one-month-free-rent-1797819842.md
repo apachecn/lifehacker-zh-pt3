@@ -1,6 +1,6 @@
 # 你应该知道那些“一个月免租”交易
 
-> 原文:[https://life hacker . com/what-you-should-know-that-you-what-you-should-know-that-one-month-free-rent-1797819842](https://lifehacker.com/what-you-should-know-about-those-one-month-free-rent-1797819842)
+> 原文：<https://lifehacker.com/what-you-should-know-about-those-one-month-free-rent-1797819842>
 
 当你在找一个住的地方时，很难不被免费一个月的房租、礼品卡和其他租房优惠所吸引。但这些交易往往带有隐性价格。
 

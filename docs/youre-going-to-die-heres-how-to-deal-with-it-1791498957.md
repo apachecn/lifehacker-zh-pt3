@@ -1,6 +1,6 @@
 # 你会死的，下面是如何处理它
 
-> 原文:[https://life hacker . com/you-going-to-die-heres-how-to-deal-it-1791498957](https://lifehacker.com/youre-going-to-die-heres-how-to-deal-with-it-1791498957)
+> 原文：<https://lifehacker.com/youre-going-to-die-heres-how-to-deal-with-it-1791498957>
 
 除了出生，这个星球上的每一个人肯定会发生的另一件事就是死亡。没有例外，没有办法。除了你自己的死亡，你很有可能会被你所爱的人的死亡所影响，并且很有可能在你自己的葬礼到来之前计划一两个葬礼。
 

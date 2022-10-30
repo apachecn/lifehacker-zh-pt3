@@ -1,6 +1,6 @@
 # 腌布法罗鸡翅外脆里嫩
 
-> 原文:[https://life hacker . com/sous-vide-buffalo-wings-is-crisp-on-the-outside-and-t-1819914472](https://lifehacker.com/sous-vide-buffalo-wings-are-crispy-on-the-outside-and-t-1819914472)
+> 原文：<https://lifehacker.com/sous-vide-buffalo-wings-are-crispy-on-the-outside-and-t-1819914472>
 
 朋友们大家好，欢迎回到 [*它会苏威吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。今天，我们要分享一个标志性的、辛辣的、俏皮的小数字:著名的鸡翅。
 

@@ -1,6 +1,6 @@
 # 用剩余的零食制作这种零食组合
 
-> 原文:[https://life hacker . com/make-this-snack-mix-from the left-snacks-1827576573](https://lifehacker.com/make-this-snack-mix-from-leftover-snacks-1827576573)
+> 原文：<https://lifehacker.com/make-this-snack-mix-from-leftover-snacks-1827576573>
 
 如果你喜欢脆脆的和咸咸的，你可能会在某个时候发现自己有各种各样的，大部分是被消费的袋装或盒装的薯片、饼干和其他零食。与其一个个地吃，一把把一把地吃，你应该把它们混合在一起做一个零食组合。
 

@@ -1,6 +1,6 @@
 # 你可以和不可以进行投票自拍
 
-> 原文:[https://life hacker . com/where-you-can-and-cant-take-ballot-self ies-1788660715](https://lifehacker.com/where-you-can-and-cant-take-ballot-selfies-1788660715)
+> 原文：<https://lifehacker.com/where-you-can-and-cant-take-ballot-selfies-1788660715>
 
 你可能听说过有人在投票站自拍时惹上麻烦的故事，但用选票拍照真的违法吗？有可能，取决于你住在哪里。
 

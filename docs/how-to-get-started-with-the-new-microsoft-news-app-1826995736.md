@@ -1,6 +1,6 @@
 # 如何开始使用新的微软新闻应用程序
 
-> 原文:[https://life hacker . com/how-to-get-started-with-the-new-Microsoft-news-app-1826995736](https://lifehacker.com/how-to-get-started-with-the-new-microsoft-news-app-1826995736)
+> 原文：<https://lifehacker.com/how-to-get-started-with-the-new-microsoft-news-app-1826995736>
 
 **Android，iOS:** 前身为 MSN 的新闻应用[周三重新上线为微软新闻](https://www.theverge.com/2018/6/20/17482902/microsoft-news-android-ios-app-launch-features)T5。用于 [iOS](https://itunes.apple.com/us/app/microsoft-news/id945416273?mt=8) 和 [Android](https://play.google.com/store/apps/details?id=com.microsoft.amp.apps.bingnews&hl=en_US) 的免费应用程序使用人工智能和人类编辑将来自数千个来源的故事整理成基于主题的频道。它还有一个本地新闻标签，可以查看来自你当前所在城市或你关心的其他地方的新闻，还有一个黑暗模式，可以让你的眼睛更容易阅读新闻——即使现在对灵魂来说不那么容易。
 

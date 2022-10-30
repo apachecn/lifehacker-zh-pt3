@@ -1,6 +1,6 @@
 # 如何知道你是对自己的职业有雄心壮志，还是只是缺乏耐心
 
-> 原文:[https://life hacker . com/how-to-know-if-you-be-Hathaway-o-1756916212](https://lifehacker.com/how-to-know-if-youre-being-ambitious-with-your-career-o-1756916212)
+> 原文：<https://lifehacker.com/how-to-know-if-youre-being-ambitious-with-your-career-o-1756916212>
 
 设定一个目标并竭尽全力去实现它并没有错，但是当你试图爬上职业阶梯时，野心和急躁之间是有细微差别的。你如何判断你是要求太多还是太咄咄逼人？
 

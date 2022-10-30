@@ -1,6 +1,6 @@
 # 以下是你组装汉堡的方法，表情符号见鬼去吧
 
-> 原文:[https://life hacker . com/heres-how-you-your-hamburger-e moji-be-1819982367](https://lifehacker.com/heres-how-you-should-assemble-your-hamburger-emoji-be-1819982367)
+> 原文：<https://lifehacker.com/heres-how-you-should-assemble-your-hamburger-emoji-be-1819982367>
 
 人们非常重视他们以食物为主题的表情符号，这就是为什么作家托马斯·贝克达尔在推特上发布了以下内容后，互联网上一片哗然:
 

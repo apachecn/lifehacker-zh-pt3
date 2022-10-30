@@ -1,6 +1,6 @@
 # 通过在你的糕点上压花来提升你的烘焙水平
 
-> 原文:[https://life hacker . com/up-your-baking-game-by-embossing-your-pastures-1797231993](https://lifehacker.com/up-your-baking-game-by-embossing-your-pastries-1797231993)
+> 原文：<https://lifehacker.com/up-your-baking-game-by-embossing-your-pastries-1797231993>
 
 你有没有盯着一个肉馅卷饼，希望它告诉你它的面皮里有什么好吃的馅料？如果这种情况听起来很熟悉，我有一个好消息:你可以——正如 Twitter 用户@savelexi 向我们展示的那样— *在你的面团上压印识别信息，这样你就再也不用担心你是在伸手拿鸡肉还是牛肉了。*
 

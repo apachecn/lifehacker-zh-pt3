@@ -1,6 +1,6 @@
 # 这就是那些“不讨价还价”的经销商的问题
 
-> 原文:[https://jalopnik . com/heres-the-problem with the-these-than-no-chaggle-dealerships-1819136476](https://jalopnik.com/heres-the-problem-with-those-no-haggle-dealerships-1819136476)
+> 原文：<https://jalopnik.com/heres-the-problem-with-those-no-haggle-dealerships-1819136476>
 
 从经销商那里买车最令人沮丧的一点是价格的反复。一些经销商对此的反应是提前提供 [【无讨价还价】价格](https://jalopnik.com/will-the-lexus-no-haggle-dealer-experience-work-1722432051) 。虽然这看起来简化了流程，让(一些)买家感到满意，但实际上，这要复杂一点。
 

@@ -1,6 +1,6 @@
 # 不要把钱花在别致的立式办公桌上
 
-> 原文:[https://life hacker . com/don-t-把你的钱花在一个别致的立式办公桌上-1825955491](https://lifehacker.com/dont-spend-your-money-on-a-fancy-standing-desk-1825955491)
+> 原文：<https://lifehacker.com/dont-spend-your-money-on-a-fancy-standing-desk-1825955491>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑们正在搬进新公寓，在户外工作，尝试新的金融，并提高我们自己的应急准备能力。
 

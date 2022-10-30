@@ -1,6 +1,6 @@
 # 为了准确计算卡路里，不要跟踪你的活动
 
-> 原文:[https://life hacker . com/for-accurate-calorie-counts-don-t-track-your-activity-1769445569](https://lifehacker.com/for-accurate-calorie-counts-don-t-track-your-activitie-1769445569)
+> 原文：<https://lifehacker.com/for-accurate-calorie-counts-don-t-track-your-activitie-1769445569>
 
 饮食和锻炼都是减肥计划的重要组成部分，但卡路里计算应用程序只擅长跟踪等式的一半:饮食。记录你的活动会影响你对应该摄入多少卡路里的认识。
 

@@ -1,6 +1,6 @@
 # 自拍不会让你变成一个自恋狂
 
-> 原文:[https://life hacker . com/taking-self ies-not-make-you-a-selcist-1796558344](https://lifehacker.com/taking-selfies-doesnt-make-you-a-narcissist-1796558344)
+> 原文：<https://lifehacker.com/taking-selfies-doesnt-make-you-a-narcissist-1796558344>
 
 如果你曾经看过某人的自拍照，并认为“他们是如此虚荣”，你可能会做出不公平的假设。最近的一项研究表明，大多数自拍爱好者并不比正常人更喜欢自己。
 

@@ -1,6 +1,6 @@
 # 用“托比”来组织你过多的浏览器标签
 
-> 原文:[https://life hacker . com/organize-your-excess-browser-tabs-with-Toby-1826289522](https://lifehacker.com/organize-your-excessive-browser-tabs-with-toby-1826289522)
+> 原文：<https://lifehacker.com/organize-your-excessive-browser-tabs-with-toby-1826289522>
 
 我最近偶然发现了扩展 Toby([Chrome](https://chrome.google.com/webstore/detail/toby-for-chrome/hddnkoipeenegfoeaoibdmnaalmgkpip?hl=en)[Firefox](http://www.gettoby.com/firefox))，我很惊讶我有多喜欢它。以至于它已经取代了我每次打开新标签时一直使用的谷歌地球 扩展中漂亮的 [Chrome Delight](https://chrome.google.com/webstore/detail/chrome-delight/hehbgjdnbibkndghdlilefececadokpb?hl=en) 和 [地球视图。我现在是百分之百的托比，因为这是我见过的最好的方法之一，可以更好地控制浏览器中所有打开的标签。](https://chrome.google.com/webstore/detail/earth-view-from-google-ea/bhloflhklmhfpedakmangadcdofhnnoh?hl=en)
 

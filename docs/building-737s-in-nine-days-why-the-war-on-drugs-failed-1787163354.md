@@ -1,6 +1,6 @@
 # 在九天内建造 737，为什么反毒品战争失败，以及参观日本拱廊
 
-> 原文:[https://life hacker . com/building-737s-in-9-days-why-the war-on-drugs-failed-1787163354](https://lifehacker.com/building-737s-in-nine-days-why-the-war-on-drugs-failed-1787163354)
+> 原文：<https://lifehacker.com/building-737s-in-nine-days-why-the-war-on-drugs-failed-1787163354>
 
 本周，我们将了解波音公司如何在短短九天内建造一架 737 飞机，全国各地一些令人毛骨悚然的废弃度假村，蓬勃发展的日本街机产业，为什么禁毒战争是失败的，取而代之的是什么，等等。
 

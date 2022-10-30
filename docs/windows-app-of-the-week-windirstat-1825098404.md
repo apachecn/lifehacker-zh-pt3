@@ -1,6 +1,6 @@
 # 本周 Windows 应用程序:WinDirStat
 
-> 原文:[https://life hacker . com/windows-app-of-the-week-windirstat-1825098404](https://lifehacker.com/windows-app-of-the-week-windirstat-1825098404)
+> 原文：<https://lifehacker.com/windows-app-of-the-week-windirstat-1825098404>
 
 这几乎是一种逃避，因为现在所有的 Windows 用户*都应该*知道 WinDirStat。这款应用已经问世近 15 年了，它是你可以用来清理硬盘的最有用的工具之一。
 

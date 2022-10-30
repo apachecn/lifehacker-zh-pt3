@@ -1,6 +1,6 @@
 # 如何在超市购物更快、更容易、更便宜
 
-> 原文:[https://life hacker . com/how-to-shopping-fast-easy-and-price-at-the-super ma-1778230179](https://lifehacker.com/how-to-shop-quicker-easier-and-cheaper-at-the-superma-1778230179)
+> 原文：<https://lifehacker.com/how-to-shop-quicker-easier-and-cheaper-at-the-superma-1778230179>
 
 我们都有不同的购物方法。然而，我们大多数人购物的方式——慢慢地拖着手推车四处走，也许拿一份粗略的清单——为超市提供了许多好处，但给购物者带来的好处却很少。
 

@@ -1,6 +1,6 @@
 # 这张信息图解释了如果你的 Lyft 线路发生事故该怎么办
 
-> 原文:[https://life hacker . com/this-infograph-explains-what-to-do-if-your-lyft-line-1796934659](https://lifehacker.com/this-infographic-explains-what-to-do-if-your-lyft-line-1796934659)
+> 原文：<https://lifehacker.com/this-infographic-explains-what-to-do-if-your-lyft-line-1796934659>
 
 拼车服务让我们许多时间紧张的生活变得更加轻松，但伴随这些便利而来的是一系列其他问题:司机和 [乘客安全问题](https://www.theatlantic.com/technology/archive/2015/03/are-taxis-safer-than-uber/386207/)[公司丑闻](http://gizmodo.com/travis-kalanick-has-resigned-his-role-as-uber-ceo-1796287392) ，当然，还有潜在的交通事故。不管你的车是发生了轻微事故还是追尾事故，你都需要知道这些。
 

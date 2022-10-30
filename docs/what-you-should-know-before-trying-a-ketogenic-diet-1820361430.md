@@ -1,6 +1,6 @@
 # 在尝试生酮饮食之前你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-before-trying-a-ketogenic-diet-1820361430](https://lifehacker.com/what-you-should-know-before-trying-a-ketogenic-diet-1820361430)
+> 原文：<https://lifehacker.com/what-you-should-know-before-trying-a-ketogenic-diet-1820361430>
 
 最近有五个人告诉我，他们打算“尝试 keto”——最近一次是在滔滔不绝地谈论一个共同的朋友一直在做 keto，也就是流行的生酮饮食，并获得了令人惊叹的结果之后。你可能听说过 keto，但它到底是什么？这是不是好得不像真的？
 

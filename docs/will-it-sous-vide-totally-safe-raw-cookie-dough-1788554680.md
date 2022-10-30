@@ -1,6 +1,6 @@
 # 它会腐烂吗？完全安全的生饼干面团
 
-> 原文:[https://life hacker . com/will-it-sous-vide-total-safe-raw-cookie-dough-1788554680](https://lifehacker.com/will-it-sous-vide-totally-safe-raw-cookie-dough-1788554680)
+> 原文：<https://lifehacker.com/will-it-sous-vide-totally-safe-raw-cookie-dough-1788554680>
 
 你好，我的朋友们，欢迎回到另一个甜蜜的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

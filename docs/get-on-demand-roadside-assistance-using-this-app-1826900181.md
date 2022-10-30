@@ -1,6 +1,6 @@
 # 使用此应用程序获得按需道路救援
 
-> 原文:[https://life hacker . com/get-on-demand-road-assistance-using-this-app-1826900181](https://lifehacker.com/get-on-demand-roadside-assistance-using-this-app-1826900181)
+> 原文：<https://lifehacker.com/get-on-demand-roadside-assistance-using-this-app-1826900181>
 
 当我 17 岁的时候，我的父母决定我可以有自己的车。我母亲 10 年前买了这辆有问题的新车，但她并不擅长保养它。这意味着当她决定买一辆新车并把它交给我时，它需要一些相当严重的修理。我清楚地记得我和父母的争吵，他们试图向我解释，事实上，我每月为一辆新车支付车贷比我花数千美元去修车更实惠。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:我作为夏令营主任做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-summer-camp-director-1769216433](https://lifehacker.com/career-spotlight-what-i-do-as-a-summer-camp-director-1769216433)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-summer-camp-director-1769216433>
 
 在夏令营工作似乎是一种非常放松的职业。你可以花很多时间在户外帮助孩子们学习和娱乐，对吗？当然，管理整个营地的后勤工作是复杂的，任务越来越多，为了让孩子们年复一年地回来，招募工作也是如此。
 

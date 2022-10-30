@@ -1,6 +1,6 @@
 # 高加索人的感恩节指南，第 2 部分:菜单
 
-> 原文:[https://www . the root . com/the-Caucasians-guide-to-thanksgiving-part-2-the-menu-1820676919](https://www.theroot.com/the-caucasians-guide-to-thanksgiving-part-2-the-menu-1820676919)
+> 原文：<https://www.theroot.com/the-caucasians-guide-to-thanksgiving-part-2-the-menu-1820676919>
 
 欢迎回来，白人！(我敢打赌，你以前从来没听过有人这么说过。)在了解了黑色感恩节的宾客名单后，你可能会奇怪为什么黑色感恩节与威皮珀感恩节如此不同。
 

@@ -1,6 +1,6 @@
 # 用你的速溶锅制作姜黄胡萝卜汤
 
-> 原文:[https://life hacker . com/make-this-姜黄-胡萝卜-汤-in-your-instant-pot-1829226721](https://lifehacker.com/make-this-turmeric-carrot-soup-in-your-instant-pot-1829226721)
+> 原文：<https://lifehacker.com/make-this-turmeric-carrot-soup-in-your-instant-pot-1829226721>
 
 根据 Instagram memes 的说法，是时候做三件事了:南瓜香料、真正的南瓜和温热的馅料汤(甚至是南瓜汤！).我并不特别喜欢南瓜 (或其香料)作为一种风味，但汤是我可以——*将*—搞(严重)的东西。
 

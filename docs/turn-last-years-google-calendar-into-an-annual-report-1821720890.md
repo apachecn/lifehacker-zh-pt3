@@ -1,6 +1,6 @@
 # 把去年的谷歌日历变成年度报告
 
-> 原文:[https://life hacker . com/turn-last-years-Google-calendar-into-a-annual-report-1821720890](https://lifehacker.com/turn-last-years-google-calendar-into-an-annual-report-1821720890)
+> 原文：<https://lifehacker.com/turn-last-years-google-calendar-into-an-annual-report-1821720890>
 
 我是年度回顾图表的忠实粉丝，比如 Spotify 的 [2017 Wrapped](https://2017wrapped.com/) ，甚至是设计师 Nicholas Felton 的 [个人年度报告](http://feltron.com/FAR14.html) 。这里有另一个好方法:用 iPhone 日历应用程序 [Pod](https://pod.io/) 的制造商提供的 工具来分析你的日历。
 

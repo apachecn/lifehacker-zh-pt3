@@ -1,6 +1,6 @@
 # 来自我们读者的最佳印第安纳波利斯小贴士
 
-> 原文:[https://life hacker . com/the-best-Indianapolis-tips-from-our-readers-1821610495](https://lifehacker.com/the-best-indianapolis-tips-from-our-readers-1821610495)
+> 原文：<https://lifehacker.com/the-best-indianapolis-tips-from-our-readers-1821610495>
 
 对于 Hack Your City 上的每个地方，我们都会收到一些评论，说“给你一个建议:千万不要去那里。”这句妙语连珠之后总是会有上百条评论，让这个城市听起来像是地球上最好的地方。本周，我们的读者让我们对印第安纳州的印第安纳波利斯感到兴奋，留下了 148 条评论，为游客和当地人提供了很多建议 。一些亮点:
 

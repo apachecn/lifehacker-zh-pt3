@@ -1,6 +1,6 @@
 # 这个扩展让你在谷歌日历的重新设计中隐藏浪费的时间
 
-> 原文:[https://life hacker . com/this-extension-bring-back-working-hours-to-Google-cale-1827815781](https://lifehacker.com/this-extension-brings-back-working-hours-to-google-cale-1827815781)
+> 原文：<https://lifehacker.com/this-extension-brings-back-working-hours-to-google-cale-1827815781>
 
 谷歌更新版的 [日历](http://calendar.google.com)——你再也不能选择退出——看起来很可爱，比以前的版本更容易操作。然而，日历的新“材料设计”版本遗漏了一个主要功能，似乎是 [惹恼了一些用户](https://productforums.google.com/forum/#!topic/calendar/o56fJ_OCR9Q) (真的包括你的用户):封锁你睡觉时间的能力。
 

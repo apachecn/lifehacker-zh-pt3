@@ -1,6 +1,6 @@
 # 如何在没有“改变生活的魔法”的情况下保持整洁
 
-> 原文:[https://life hacker . com/how-to-tidy-without-life-change-magic-1820270553](https://lifehacker.com/how-to-be-tidy-without-life-changing-magic-1820270553)
+> 原文：<https://lifehacker.com/how-to-be-tidy-without-life-changing-magic-1820270553>
 
 我要告诉你一个关于收拾你的东西的秘密:当你马上做的时候，它不会变得更难。
 

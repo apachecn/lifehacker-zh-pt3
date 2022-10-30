@@ -1,6 +1,6 @@
 # 当你和你的伴侣一年没有性生活时该怎么办
 
-> 原文:[https://life hacker . com/1821231597](https://lifehacker.com/what-to-do-when-you-and-your-partner-havent-had-sex-in-1821231597)
+> 原文：<https://lifehacker.com/what-to-do-when-you-and-your-partner-havent-had-sex-in-1821231597>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

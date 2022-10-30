@@ -1,6 +1,6 @@
 # 在登机前购买 Gogo 机上互联网通行证
 
-> 原文:[https://life hacker . com/buy-gogo-inflight-internet-passes-before-your-flight-1826453476](https://lifehacker.com/buy-gogo-inflight-internet-passes-before-your-flight-1826453476)
+> 原文：<https://lifehacker.com/buy-gogo-inflight-internet-passes-before-your-flight-1826453476>
 
 飞机上的无线网络，天空的拨号上网，因为经常不稳定而相当昂贵。如果你的航空公司使用 Gogo 来支持他们的 wifi 服务，那就帮自己一个忙，在起飞前买一张互联网通行证。你会省下一大笔钱。
 

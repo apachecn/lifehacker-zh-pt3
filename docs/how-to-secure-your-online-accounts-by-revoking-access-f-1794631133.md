@@ -1,6 +1,6 @@
 # 如何通过撤销第三方应用程序的访问来保护您的在线帐户
 
-> 原文:[https://life hacker . com/how-to-secure-your-online-accounts-by-revoking-access-f-1794631133](https://lifehacker.com/how-to-secure-your-online-accounts-by-revoking-access-f-1794631133)
+> 原文：<https://lifehacker.com/how-to-secure-your-online-accounts-by-revoking-access-f-1794631133>
 
 每隔一段时间，像 [Unroll.me 这样的应用就会出现在聚光灯下，提醒我们](https://lifehacker.com/unroll-me-the-email-unsubscription-service-has-been-c-1794593445) 我们都倾向于未经深思熟虑就授权很多应用访问我们的电子邮件和社交媒体账户。有时候，就像 Unroll.me 一样，这些应用忙于出售我们的数据。现在是审核你已授予帐户访问权限的任何其他第三方应用程序的好时机。
 

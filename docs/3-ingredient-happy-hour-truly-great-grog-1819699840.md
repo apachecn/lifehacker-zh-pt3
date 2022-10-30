@@ -1,6 +1,6 @@
 # 三种成分的欢乐时光:真正伟大的酒
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-true-great-grog-1819699840](https://lifehacker.com/3-ingredient-happy-hour-truly-great-grog-1819699840)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-truly-great-grog-1819699840>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。这个星期有点艰难，它让我渴望一些非常简单的东西，还有什么比海盗喝的东西更简单的呢？
 

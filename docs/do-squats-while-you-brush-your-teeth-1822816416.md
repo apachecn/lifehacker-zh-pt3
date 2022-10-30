@@ -1,6 +1,6 @@
 # 刷牙的时候做蹲姿
 
-> 原文:[https://life hacker . com/do-squats-while-you-brush-刷牙-1822816416](https://lifehacker.com/do-squats-while-you-brush-your-teeth-1822816416)
+> 原文：<https://lifehacker.com/do-squats-while-you-brush-your-teeth-1822816416>
 
 每个人都告诉你，要建立一个新的好习惯，你应该从小做起。选择一种渐进的方式来适应你的新事物，然后慢慢地从那里开始。这是明智的建议，我从来没有采纳过。
 

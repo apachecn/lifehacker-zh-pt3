@@ -1,6 +1,6 @@
 # 职业聚焦:我作为公园和娱乐主管的工作
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-a-a-parks-and-recreation-d-1781080026](https://lifehacker.com/career-spotlight-what-i-do-as-a-parks-and-recreation-d-1781080026)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-parks-and-recreation-d-1781080026>
 
 管理整个城市的公园不仅仅是修剪草坪。公园和娱乐部门维护城市的公共空间，组织社区活动，等等，所有这些都需要广泛的知识和技能。当然，还有文书工作。
 

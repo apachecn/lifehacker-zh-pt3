@@ -1,6 +1,6 @@
 # 从每个州到欧洲的最便宜的往返机票
 
-> 原文:[https://life hacker . com/the-cheese-round-fares-from-every-stat-1826231988](https://lifehacker.com/the-cheapest-round-trip-fares-to-europe-from-every-stat-1826231988)
+> 原文：<https://lifehacker.com/the-cheapest-round-trip-fares-to-europe-from-every-stat-1826231988>
 
 计划终极欧洲假期？如果你想省钱，你应该考虑你从哪里出发，你的第一个目的地是哪里。一些州的机场只需几百美元就能让你飞过去，而另一些则需要 1000 美元或更多。
 

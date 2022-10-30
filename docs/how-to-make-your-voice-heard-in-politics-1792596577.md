@@ -1,6 +1,6 @@
 # 如何让你的声音在政治中被听到
 
-> 原文:[https://life hacker . com/how-to-make-your-voice-heated-in-politics-1792596577](https://lifehacker.com/how-to-make-your-voice-heard-in-politics-1792596577)
+> 原文：<https://lifehacker.com/how-to-make-your-voice-heard-in-politics-1792596577>
 
 在本周的升级节目中，我们将讨论普通人如何参与政治，即使不是选举年。委婉地说，最近选举的意外结果导致了政治激进主义的高涨，我们正在研究如何参与其中。
 

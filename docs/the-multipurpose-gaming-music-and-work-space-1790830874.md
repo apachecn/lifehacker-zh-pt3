@@ -1,6 +1,6 @@
 # 多功能游戏、音乐和工作空间
 
-> 原文:[https://life hacker . com/the-multipury-gaming-music-and-work-space-1790830874](https://lifehacker.com/the-multipurpose-gaming-music-and-work-space-1790830874)
+> 原文：<https://lifehacker.com/the-multipurpose-gaming-music-and-work-space-1790830874>
 
 [【scruffy xendale】](https://www.reddit.com/user/scruffycoxendale)的家庭办公室不仅仅是一张桌子和一台电脑，尽管它确实很好。快速环顾房间，展示了一些其他伟大的设备，包括一个可爱的唱片集，房子的媒体服务器，等等。
 

@@ -1,6 +1,6 @@
 # 怀疑脸书的假新闻？使用新的上下文按钮
 
-> 原文:[https://life hacker . com/suspect-of-fake-news-on-Facebook-use-the-new-contex-1819217472](https://lifehacker.com/suspicious-of-fake-news-on-facebook-use-the-new-contex-1819217472)
+> 原文：<https://lifehacker.com/suspicious-of-fake-news-on-facebook-use-the-new-contex-1819217472>
 
 脸书有一个 [假新闻问题](https://gizmodo.com/facebooks-fake-news-solution-isnt-going-to-solve-the-pr-1809062985) 。它最近的热门新闻失误导致匿名留言板 4chan 发布了关于拉斯维加斯枪击案的错误信息。为了打击假新闻的传播(以及对该公司日益增长的反弹)，这家社交网络正在测试一项新功能，让用户可以通过点击“更多信息”按钮，自己区分来自值得信赖的出版商的文章和比平时更可疑的文章。
 

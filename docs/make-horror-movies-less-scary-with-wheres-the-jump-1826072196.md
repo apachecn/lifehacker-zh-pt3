@@ -1,6 +1,6 @@
 # 用“跳跃在哪里”让恐怖电影不那么恐怖
 
-> 原文:[https://life hacker . com/make-terror-movies-less-terrible-with-where-the-jump-1826072196](https://lifehacker.com/make-horror-movies-less-scary-with-wheres-the-jump-1826072196)
+> 原文：<https://lifehacker.com/make-horror-movies-less-scary-with-wheres-the-jump-1826072196>
 
 有些人喜欢害怕。一些比较理智的人不喜欢被吓到，想欣赏一部经典的恐怖片，而不用担心廉价的休克战术。对于那些人来说，有 [跳哪里去了？](https://wheresthejump.com/full-movie-list/) ，恐怖、惊悚、科幻电影中的跳跃惊吓数据库。
 

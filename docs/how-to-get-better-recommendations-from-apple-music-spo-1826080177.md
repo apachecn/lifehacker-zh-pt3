@@ -1,6 +1,6 @@
 # 如何从 Apple Music、Spotify 等获得更好的推荐
 
-> 原文:[https://life hacker . com/how-to-get-better-recommendations-from-apple-music-spo-1826080177](https://lifehacker.com/how-to-get-better-recommendations-from-apple-music-spo-1826080177)
+> 原文：<https://lifehacker.com/how-to-get-better-recommendations-from-apple-music-spo-1826080177>
 
 多亏了 [音乐流媒体服务](https://lifehacker.com/so-which-music-streaming-service-should-i-use-1795921103) 的兴起，寻找新音乐变得前所未有的容易——那么为什么我一直在重复听同样的三张专辑呢？
 

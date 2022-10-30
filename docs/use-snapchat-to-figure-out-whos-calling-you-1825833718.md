@@ -1,6 +1,6 @@
 # 使用 Snapchat 找出谁在给你打电话或发短信
 
-> 原文:[https://life hacker . com/use-snapchat-to-figure-out-whos-calling-you-1825833718](https://lifehacker.com/use-snapchat-to-figure-out-whos-calling-you-1825833718)
+> 原文：<https://lifehacker.com/use-snapchat-to-figure-out-whos-calling-you-1825833718>
 
 很容易将未知号码识别为垃圾邮件 [它们可能是](https://lifehacker.com/ios-android-app-of-the-week-wideprotect-and-mr-number-1824314011) ，但是收到一条看似真实的人发来的短信——一个不在你手机联系人名单中的人——会让你的午休变成一集《夏洛克》。
 

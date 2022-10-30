@@ -1,6 +1,6 @@
 # 为大声说出“BRB”辩护
 
-> 原文:[https://life hacker . com/in-defense-of-say-br b-out-loud-1795851210](https://lifehacker.com/in-defense-of-saying-brb-out-loud-1795851210)
+> 原文：<https://lifehacker.com/in-defense-of-saying-brb-out-loud-1795851210>
 
 年轻时，我是一个处方师。我认为纠正别人的讲话是在帮他们的忙。我无意中听到人们说“你在哪里？”对着电话喃喃自语，“是‘你在哪里？’“我在技术上是正确的，我真诚地相信这是最正确的做法。当我终于有了自己的手机，我意识到“你在哪里？”听起来太咄咄逼人，还有“你在哪儿？“比语法更重要。
 

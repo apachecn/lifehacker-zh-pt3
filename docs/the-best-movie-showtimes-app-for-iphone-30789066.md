@@ -1,6 +1,6 @@
 # iPhone 的最佳电影放映时间应用程序
 
-> 原文:[https://life hacker . com/the-best-movie-show times-app-for-iphone-30789066](https://lifehacker.com/the-best-movie-showtimes-app-for-iphone-30789066)
+> 原文：<https://lifehacker.com/the-best-movie-showtimes-app-for-iphone-30789066>
 
 在一个有多个应用程序帮助你在大屏幕上观看电影的世界里，有一个应用程序脱颖而出。它是免费的，很容易使用，是在旅途中购买电影票的最佳方式。来到你身边的一部 iPhone:Fandango。
 

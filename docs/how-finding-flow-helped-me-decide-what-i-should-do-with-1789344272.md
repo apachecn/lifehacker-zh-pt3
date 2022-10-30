@@ -1,6 +1,6 @@
 # 寻找心流如何帮助我决定我的人生该做些什么
 
-> 原文:[https://life hacker . com/how-finding-flow-help-me-decision-1789344272](https://lifehacker.com/how-finding-flow-helped-me-decide-what-i-should-do-with-1789344272)
+> 原文：<https://lifehacker.com/how-finding-flow-helped-me-decide-what-i-should-do-with-1789344272>
 
 在我生命的大部分时间里，我只是随波逐流。我会在一件事情上热情地工作一段时间，然后我会在这件事情上筋疲力尽，然后转向其他事情。我觉得我很好地把握住了我今天需要做的事情，但就思考我生活的大图景而言，我只是没有任何想法。
 

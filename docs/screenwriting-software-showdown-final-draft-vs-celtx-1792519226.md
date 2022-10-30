@@ -1,6 +1,6 @@
 # 编剧软件摊牌:终稿 vs. Celtx
 
-> 原文:[https://life hacker . com/编剧-软件-摊牌-决赛-选秀-vs-celtx-1792519226](https://lifehacker.com/screenwriting-software-showdown-final-draft-vs-celtx-1792519226)
+> 原文：<https://lifehacker.com/screenwriting-software-showdown-final-draft-vs-celtx-1792519226>
 
 在这个世界上，人们从纸上开始讲述电影故事，有两个强大的平台提供了崭露头角的编剧所需的所有工具:Final Draft 和 Celtx。一个是娱乐行业标准。另一个是所有人都可以免费使用的。但是这个星期天，只有一个人能成为行业中的佼佼者。
 

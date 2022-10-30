@@ -1,6 +1,6 @@
 # 离婚律师詹姆斯·塞克斯顿:男人如何学会拥有更健康的冲突
 
-> 原文:[https://life hacker . com/how-men-can-learn-to-have-healthy-conflict-with-divo-1826417450](https://lifehacker.com/how-men-can-learn-to-have-healthier-conflict-with-divo-1826417450)
+> 原文：<https://lifehacker.com/how-men-can-learn-to-have-healthier-conflict-with-divo-1826417450>
 
 在我们的首届 [Livehacker](https://lifehacker.com/come-have-a-drink-and-talk-about-manliness-with-lifehac-1825927655#_ga=2.20428280.1390564882.1527600788-3846207152.1521480874) 活动中，三位专家发言人分享了他们对“一个男人应该怎样”这个问题的看法
 

@@ -1,6 +1,6 @@
 # 你在一个不错的鸡尾酒吧的 5 个标志
 
-> 原文:[https://life hacker . com/5-signs-you-in-a-good-cocktail-bar-1818599259](https://lifehacker.com/5-signs-youre-in-a-good-cocktail-bar-1818599259)
+> 原文：<https://lifehacker.com/5-signs-youre-in-a-good-cocktail-bar-1818599259>
 
 真正好的、专业制作的鸡尾酒会花很多钱，我对此没意见。然而，我不能接受的是花 15 美元买一杯用悲伤的干果点缀的过度摇晃的饮料。任何酒吧都可以宣称制作“手工”鸡尾酒，但是你怎么能确定你得到了你所支付的呢？
 

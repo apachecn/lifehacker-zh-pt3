@@ -1,6 +1,6 @@
 # 用这个程序全屏播放任何电脑游戏
 
-> 原文:[https://life hacker . com/use-this-windows-app-to-turn-any-PC-game-full screen-1819439393](https://lifehacker.com/use-this-windows-app-to-turn-any-pc-game-fullscreen-1819439393)
+> 原文：<https://lifehacker.com/use-this-windows-app-to-turn-any-pc-game-fullscreen-1819439393>
 
 Windows: Windows 10 使窗口管理变得非常简单，这要归功于它的快捷方式 WIN 键和箭头键——但某些应用程序就是不喜欢玩得好。无论是你童年时设置为以特定分辨率运行的旧游戏，还是没有配置为覆盖整个屏幕的新游戏，或者是如果你将屏幕用作显示器的电视节目， [Fullscreenizer](http://www.makeuseof.com/tag/use-trick-play-pc-game-fake-fullscreen-mode/) 都是你需要的，以确保你只专注于一件事:显示器上的最大窗口。
 

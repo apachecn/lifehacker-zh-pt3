@@ -1,6 +1,6 @@
 # 重温“拿铁因素”和日常事务的力量
 
-> 原文:[https://life hacker . com/revising-the-latte-factor-and-the-power of-daily-rout-1782103967](https://lifehacker.com/revisiting-the-latte-factor-and-the-power-of-daily-rout-1782103967)
+> 原文：<https://lifehacker.com/revisiting-the-latte-factor-and-the-power-of-daily-rout-1782103967>
 
 个人理财领域讨论最多的一个概念是“拿铁因素”，这个概念最早是由个人理财作家兼演说家大卫巴哈推广开来的。简而言之，这个想法是，你可以通过在生活中寻找小事情来实现大量的个人财务成功，他用了一个可能在咖啡店购买的日常拿铁咖啡的例子，因此得名“拿铁因素”
 

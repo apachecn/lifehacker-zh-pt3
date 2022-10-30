@@ -1,6 +1,6 @@
 # 不要带花去参加聚会
 
-> 原文:[https://life hacker . com/don-t-bring-flowers-to-a-party-1825288210](https://lifehacker.com/dont-bring-flowers-to-a-party-1825288210)
+> 原文：<https://lifehacker.com/dont-bring-flowers-to-a-party-1825288210>
 
 你的意图是好的。你很久以前就知道，有礼貌的客人绝不会空手赴宴，你一直坚持这一点。你总是在去参加宴会的路上拿着一束乔氏野花，到达时大方地塞到主人的怀里。你很有礼貌！你太在意细节了！
 

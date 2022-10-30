@@ -1,6 +1,6 @@
 # 如何做出一大堆精美的贻贝
 
-> 原文:[https://life hacker . com/how-to-make-a-whole-mess of-fancy-muscles-1823939510](https://lifehacker.com/how-to-make-a-whole-mess-of-fancy-mussels-1823939510)
+> 原文：<https://lifehacker.com/how-to-make-a-whole-mess-of-fancy-mussels-1823939510>
 
 贻贝是那些性感的，令人回味的菜肴之一，似乎最好由街角小酒馆的花里胡哨的厨师来做，但一大碗双壳贝是你能做的最适合工作日夜晚的饭菜之一。如果你曾经担心在家烹饪贝类，贻贝是一个很好的开始。
 

@@ -1,6 +1,6 @@
 # 如何愤怒-捐款反对查克·格拉斯利
 
-> 原文:[https://life hacker . com/how-to-rage-donate-against-chuck-Grassley-1829390249](https://lifehacker.com/how-to-rage-donate-against-chuck-grassley-1829390249)
+> 原文：<https://lifehacker.com/how-to-rage-donate-against-chuck-grassley-1829390249>
 
 嗯，这很快:在格拉斯利在参议院司法委员会调查克里斯汀·布拉西·福特对被提名人布雷特·卡瓦诺的性侵犯指控的听证会上的表现不到一天后，一个 [Crowdpac 已经开始资助他未来的对手在 2022 年](https://www.crowdpac.com/campaigns/388598/fund-chuck-grassleys-future-opponent?ref_code=bitly) 。在大约 14 个小时内，它筹集了大约 63，000 美元。
 

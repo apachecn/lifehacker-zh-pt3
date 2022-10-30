@@ -1,6 +1,6 @@
 # 当你的有趣故事不有趣时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-what-when-your-funny-story-not-funny-1826017669](https://lifehacker.com/what-to-do-when-your-funny-story-isn-t-funny-1826017669)
+> 原文：<https://lifehacker.com/what-to-do-when-your-funny-story-isn-t-funny-1826017669>
 
 我不擅长讲故事。有了足够的键盘时间，我可以把个人经历转变成一个还过得去的故事，但在现实生活中，我会崩溃。每当我试图分享一个“有趣的故事”时，即使我已经尝试遵循 Lifehacker 的讲故事技巧 ，当我的故事达到令人失望的高潮时，我也会看到我的观众的脸冻得龇牙咧嘴。因此，我滥用记者的权力，向一些喜剧演员寻求免费建议:如何修复一个不起作用的搞笑故事？
 

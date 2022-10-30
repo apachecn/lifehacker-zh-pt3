@@ -1,6 +1,6 @@
 # 如何避免在飞机上感染流感
 
-> 原文:[https://life hacker . com/how-to-避免在飞机上得流感-1822265077](https://lifehacker.com/how-to-avoid-getting-the-flu-on-an-airplane-1822265077)
+> 原文：<https://lifehacker.com/how-to-avoid-getting-the-flu-on-an-airplane-1822265077>
 
 我们正处于流感季节，每个人都知道没有比在飞机上更容易感染这种疾病的地方了，在你去度假的路上，你已经期待了几个月了。
 

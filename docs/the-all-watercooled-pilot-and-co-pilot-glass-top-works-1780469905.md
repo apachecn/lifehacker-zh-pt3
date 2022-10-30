@@ -1,6 +1,6 @@
 # 全水冷、飞行员和副驾驶玻璃顶工作区
 
-> 原文:[https://life hacker . com/the-all-water cooled-pilot-and-co-pilot-glass-top-works-1780469905](https://lifehacker.com/the-all-watercooled-pilot-and-co-pilot-glass-top-works-1780469905)
+> 原文：<https://lifehacker.com/the-all-watercooled-pilot-and-co-pilot-glass-top-works-1780469905>
 
 在 the battlestations subreddit 上， [Sarne](https://www.reddit.com/user/Sarne) 分享了这个美丽的设置，在一个定制的桌子上并排放置了计算机，桌面开放，有 led，所以你可以看到里面。整件事太美好了。
 

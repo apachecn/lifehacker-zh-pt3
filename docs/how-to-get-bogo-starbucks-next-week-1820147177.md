@@ -1,6 +1,6 @@
 # 如何在下周到达 BOGO 星巴克
 
-> 原文:[https://life hacker . com/how-to-get-bogo-Starbucks-next-week-1820147177](https://lifehacker.com/how-to-get-bogo-starbucks-next-week-1820147177)
+> 原文：<https://lifehacker.com/how-to-get-bogo-starbucks-next-week-1820147177>
 
 不管你喜不喜欢，现在是包括星巴克在内的许多不同零售商的正式“假日”时间。
 

@@ -1,6 +1,6 @@
 # 通过这个互动教程学习音乐理论的基础
 
-> 原文:[https://life hacker . com/learn-the-basics-of-music-theory-with this-interactive-1796329461](https://lifehacker.com/learn-the-basics-of-music-theory-with-this-interactive-1796329461)
+> 原文：<https://lifehacker.com/learn-the-basics-of-music-theory-with-this-interactive-1796329461>
 
 作为一个音乐迷，我想学习如何创作一首歌。然而，花时间学习音乐理论并不是我优先考虑的事情。音乐课很吓人，有点不方便，而且肯定很贵。
 

@@ -1,6 +1,6 @@
 # 使用 Velcro 带驯服你的电缆
 
-> 原文:[https://life hacker . com/use-velcro-straps-to-tame-your-cables-1823433571](https://lifehacker.com/use-velcro-straps-to-tame-your-cables-1823433571)
+> 原文：<https://lifehacker.com/use-velcro-straps-to-tame-your-cables-1823433571>
 
 当你是一个对 USB 电缆构造材料有偏好的极客，并且喜欢购买不止几个定向适配器时，整理你积累的一码又一码的布线可能会有点令人生畏。我没有学习足够的绳结去和当地游艇俱乐部的男孩们竞争，而是转向了你可能知道的 Velcro 的老式钩环扣件。只需一卷线缆友好型绑带、一把剪刀和一个放东西的地方，你就可以整理好你在键盘或电视周围编织的黑色线缆网。
 

@@ -1,6 +1,6 @@
 # 子弹杂志，除了炒作，实际上是一个非常好的规划者
 
-> 原文:[https://life hacker . com/the-bullet-journal-MINUS-the-hype-is-a-reall-1786382012](https://lifehacker.com/the-bullet-journal-minus-the-hype-is-actually-a-reall-1786382012)
+> 原文：<https://lifehacker.com/the-bullet-journal-minus-the-hype-is-actually-a-reall-1786382012>
 
 在你选择的社交媒体平台上查找#bulletjournal，你可以在一大堆整洁的笔记本页面上大饱眼福，这些页面旨在跟踪从日常待办事项到励志名言的一切。继续，翻白眼。但是子弹日记是一个惊人的生产力工具，如果你能学会让它们适应你的生活。不需要彩笔。
 

@@ -1,6 +1,6 @@
 # 你绝对应该和你的孩子一起看日本游戏节目
 
-> 原文:[https://life hacker . com/you-should-July-watch-Japanese-game-shows-with-yo-1821064235](https://lifehacker.com/you-should-definitely-watch-japanese-game-shows-with-yo-1821064235)
+> 原文：<https://lifehacker.com/you-should-definitely-watch-japanese-game-shows-with-yo-1821064235>
 
 我们家的电视节目通常是严格划分的:有给我孩子看的节目(80%)，有我和我丈夫看的节目(19.5%)，还有我们全家都喜欢的节目(基本上是摇滚学校的节目)。现在，我可以热情地为被忽视的第三个类别添加一些东西:日本游戏节目。
 

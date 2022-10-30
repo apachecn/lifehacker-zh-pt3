@@ -1,6 +1,6 @@
 # Lifehacker 特约撰稿人帕特里克·卢卡斯·奥斯汀现场问答[已完成]
 
-> 原文:[https://life hacker . com/live-q-a-with-life hacker-staff-writer-Patrick-Lucas-aus-1819716118](https://lifehacker.com/live-q-a-with-lifehacker-staff-writer-patrick-lucas-aus-1819716118)
+> 原文：<https://lifehacker.com/live-q-a-with-lifehacker-staff-writer-patrick-lucas-aus-1819716118>
 
 问候，人类同胞们！是我，帕特里克·卢卡斯·奥斯汀，Lifehacker 的特约撰稿人和常驻技术专家。我会在美国东部时间下午 3-4 点(西海岸是下午 12-1 点)出现在互联网上，回答你们这些天才可能提出的任何问题(科技相关的或其他的)。
 

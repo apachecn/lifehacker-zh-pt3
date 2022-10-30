@@ -1,6 +1,6 @@
 # 只有当你准备好失去比特币时，才买它
 
-> 原文:[https://life hacker . com/only-buy-bit coin-if-you-ready-to-lost it-1820006087](https://lifehacker.com/only-buy-bitcoin-if-youre-ready-to-lose-it-1820006087)
+> 原文：<https://lifehacker.com/only-buy-bitcoin-if-youre-ready-to-lose-it-1820006087>
 
 如果你想参与区块链的货币交易，首先读一下科技作家马克·弗劳恩菲尔德关于失去 3 万美元比特币 T3 的故事。问问你自己，如果你知道每次你猜错了，你的钱就会被锁起来几个小时，然后几天，然后几年，你是否能承受试图猜出一个七位数密码的压力。问问你自己，如果你的投资得到了十倍的回报，却葬身火海，你会怎么做。
 

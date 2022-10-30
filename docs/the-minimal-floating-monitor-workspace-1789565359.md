@@ -1,6 +1,6 @@
 # 最小浮动监视器工作空间
 
-> 原文:[https://life hacker . com/the-minimal-floating-monitor-workspace-1789565359](https://lifehacker.com/the-minimal-floating-monitor-workspace-1789565359)
+> 原文：<https://lifehacker.com/the-minimal-floating-monitor-workspace-1789565359>
 
 redditor[zbeegniev](https://www.reddit.com/user/zbeegniev)刚刚更新完他的工作空间，结果看起来相当清晰。它很干净，显示器很好地安装在墙上，哦，嘿——电脑实际上是*内置在桌子*里。这里还有一些照片。
 

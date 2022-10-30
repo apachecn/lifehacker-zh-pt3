@@ -1,6 +1,6 @@
 # 空荡荡的桌面
 
-> 原文:[https://lifehacker.com/the-empty-desktop-1743764184](https://lifehacker.com/the-empty-desktop-1743764184)
+> 原文：<https://lifehacker.com/the-empty-desktop-1743764184>
 
 抛开左下角的时间、电池电量、音乐，你可能以为这只是一张壁纸，其实不是——这是 [丹 C](http://kinja.com/dncrrnz) 的桌面，他喜欢空的。每次他坐下来，都是一个辉煌的新开始。他是这样做的。
 

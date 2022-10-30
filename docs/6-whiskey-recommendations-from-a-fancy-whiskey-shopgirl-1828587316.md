@@ -1,6 +1,6 @@
 # 来自高级威士忌店女店员的 6 份威士忌推荐
 
-> 原文:[https://the take out . com/6-whiskey-recommendations-from-a-fancy-whiskey-shop girl-1828587316](https://thetakeout.com/6-whiskey-recommendations-from-a-fancy-whiskey-shopgirl-1828587316)
+> 原文：<https://thetakeout.com/6-whiskey-recommendations-from-a-fancy-whiskey-shopgirl-1828587316>
 
 不管是好是坏，我们在*外卖店*的确会看评论——大部分是为了更好，因为你们是一群好人。除了迷人的话语之外，有时你们中的一个会抛出一个我们决定直接回答的问题。因此，出于对我们的最高领袖 [总统佐德](https://thetakeout.com/1828575194) 的尊重，我们为这篇关于 [酒后粘冰棍](https://thetakeout.com/stick-a-popsicle-in-your-booze-prosecco-1828559442#_ga=2.226523101.1799697540.1534983607-308846628.1493669845) 的文章的评论部分首次提出的一个问题提供答案:
 

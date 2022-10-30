@@ -1,6 +1,6 @@
 # Instagram 的病毒减肥茶只是泻药
 
-> 原文:[https://life hacker . com/insta gram-s-viral-weight-loss-teas-are-just-泻药-1773839010](https://lifehacker.com/instagram-s-viral-weight-loss-teas-are-just-laxatives-1773839010)
+> 原文：<https://lifehacker.com/instagram-s-viral-weight-loss-teas-are-just-laxatives-1773839010>
 
 Instagram 上的名人喜欢兜售减肥产品，其中一个最大的趋势是 teatox:草本“排毒”茶，据说可以帮助你自然减肥。当然，灵丹妙药是不存在的，这些茶中的许多只是泻药。
 

@@ -1,6 +1,6 @@
 # 现在如何下载谷歌新的 Pixel 3 壁纸
 
-> 原文:[https://life hacker . com/how-to-download-Google-new-pixel-3-wallpapers-now-1829299939](https://lifehacker.com/how-to-download-googles-new-pixel-3-wallpapers-now-1829299939)
+> 原文：<https://lifehacker.com/how-to-download-googles-new-pixel-3-wallpapers-now-1829299939>
 
 谷歌下一款手机 Pixel 3 的壁纸已经公开。最新的一款 [系列](https://gizmodo.com/google-s-notchless-pixel-3-seemingly-revealed-in-yet-an-1828728013)[手机泄露](https://gizmodo.com/gigantic-leak-seemingly-blows-the-lid-off-googles-pixel-1828522906) 在谷歌 10 月 9 日的发布会之前， [MySmartPrice](https://www.mysmartprice.com/gear/google-pixel-3/) 已经获得了 Pixel 3 的全套“自适应”壁纸，当你倾斜手机时会移动，当你播放音乐时会移动。
 

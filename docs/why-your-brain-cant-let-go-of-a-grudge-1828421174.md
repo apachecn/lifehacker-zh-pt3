@@ -1,6 +1,6 @@
 # 为什么你的大脑不能放下怨恨
 
-> 原文:[https://gizmodo . com/why-your-brain-cant-go-a-bucket-1828421174](https://gizmodo.com/why-your-brain-cant-let-go-of-a-grudge-1828421174)
+> 原文：<https://gizmodo.com/why-your-brain-cant-let-go-of-a-grudge-1828421174>
 
 我们人类是怨恨的大师——这一特征可以追溯到有记录的历史之初。争斗似乎是人类生活中不可磨灭的一面，但为什么会这样呢？我们采访了专家，了解我们为什么喜欢怀恨在心，以及放手的重要性。
 

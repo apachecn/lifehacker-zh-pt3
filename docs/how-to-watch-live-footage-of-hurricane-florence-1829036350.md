@@ -1,6 +1,6 @@
 # 如何观看佛罗伦萨飓风的实况录像
 
-> 原文:[https://life hacker . com/how-to-watch-live-fleet-of-hurricane-Florence-1829036350](https://lifehacker.com/how-to-watch-live-footage-of-hurricane-florence-1829036350)
+> 原文：<https://lifehacker.com/how-to-watch-live-footage-of-hurricane-florence-1829036350>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-WkFraQmxU2U&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-WkFraQmxU2U&start=0) 
 

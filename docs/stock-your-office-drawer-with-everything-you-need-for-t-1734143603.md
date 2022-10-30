@@ -1,6 +1,6 @@
 # 在你的办公室抽屉里放上你需要的所有东西，用来做更美味的工作午餐
 
-> 原文:[https://life hacker . com/stock-your-office-drawer-with everything-your-need for-t-1734143603](https://lifehacker.com/stock-your-office-drawer-with-everything-you-need-for-t-1734143603)
+> 原文：<https://lifehacker.com/stock-your-office-drawer-with-everything-you-need-for-t-1734143603>
 
 我大学毕业后的第一份“真正的”工作是在一家大型工程公司，最烦人的部分(对我来说)是打包午餐。我开始相信普通的棕色袋子午餐只是成年生活的一部分，但这是非常不正确的。只要在我的抽屉里藏着一些调味品和香料，我就可以把我的悲伤的午餐从“乏味得可怜”变成“嘿，这真的可以吃。”
 

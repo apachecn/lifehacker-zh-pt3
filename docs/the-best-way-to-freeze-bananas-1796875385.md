@@ -1,6 +1,6 @@
 # 冷冻香蕉的最好方法
 
-> 原文:[https://life hacker . com/the-best-way to-freeze-bananas-1796875385](https://lifehacker.com/the-best-way-to-freeze-bananas-1796875385)
+> 原文：<https://lifehacker.com/the-best-way-to-freeze-bananas-1796875385>
 
 没有什么比冰沙中的冷冻香蕉更梦幻的了，对于准备做香蕉面包或松饼的面包师来说，没有什么比手边有冷冻香蕉更容易的了。但是互联网上充斥着关于如何冷冻这些可爱水果的糟糕建议。
 

@@ -1,6 +1,6 @@
 # 如何删除 Windows 中的顽固文件夹
 
-> 原文:[https://life hacker . com/how-to-delete-a-harvest-folder-in-windows-1825398537](https://lifehacker.com/how-to-delete-a-stubborn-folder-in-windows-1825398537)
+> 原文：<https://lifehacker.com/how-to-delete-a-stubborn-folder-in-windows-1825398537>
 
 前几天，当我试图在 [将其内容复制到另一个驱动器](https://lifehacker.com/how-to-upgrade-your-computer-with-a-new-drive-1825299803) 之前清理我的一个硬盘驱动器时，我遇到了一个奇怪的问题:我无法删除一个文件夹。从技术上来说，我试图通过删除顶层文件夹来消除文件夹中的文件夹——我知道这有点拗口——但 Windows 不会删除它。根据操作系统，它找不到树中的最后一个文件夹；因为它不见了，所以不能删除任何东西。
 

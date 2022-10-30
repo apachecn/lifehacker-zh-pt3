@@ -1,6 +1,6 @@
 # 当你和你的伴侣有冲突的育儿方式时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-when-you-and-partner-hacker-pare-1820179803](https://lifehacker.com/what-to-do-when-you-and-your-partner-have-clashing-pare-1820179803)
+> 原文：<https://lifehacker.com/what-to-do-when-you-and-your-partner-have-clashing-pare-1820179803>
 
 恋爱很难。为人父母很难。将这两者结合起来，你会在路上遇到一些颠簸，这些颠簸足以与那些折断你的车轴和戳破你的轮胎的车辙雨林路径相媲美。没有两个人能在所有事情上都达成一致。甚至不知道，尤其是不知道，如何把一个孩子培养成一个有用的社会成员。
 

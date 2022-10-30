@@ -1,6 +1,6 @@
 # 根据你的实际消费情况，找到最优惠的信用卡
 
-> 原文:[https://life hacker . com/find-the-best-rewards-credit-based-on-your-actual-1819972315](https://lifehacker.com/find-the-best-rewards-credit-card-based-on-your-actual-1819972315)
+> 原文：<https://lifehacker.com/find-the-best-rewards-credit-card-based-on-your-actual-1819972315>
 
 让我们说，你已经准备好进入这整个 [信用卡翻腾的事情](https://lifehacker.com/beat-credit-card-companies-at-their-own-game-by-churni-1819822277) 。或者，也许你只是想用一张卡开始在日常购物中赢取奖励。不管怎样，你应该从哪张卡开始？又能赚多少？
 

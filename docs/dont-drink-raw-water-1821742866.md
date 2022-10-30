@@ -1,6 +1,6 @@
 # 不要喝“生水”
 
-> 原文:[https://lifehacker.com/dont-drink-raw-water-1821742866](https://lifehacker.com/dont-drink-raw-water-1821742866)
+> 原文：<https://lifehacker.com/dont-drink-raw-water-1821742866>
 
 我喜欢生胡萝卜。又脆又甜，可以蘸鹰嘴豆泥或者牧场调料吃。生苹果也有类似的魅力，生红洋葱给沙拉带来快乐。我也是 [生蜂蜜](http://www.beemaid.com/honey-pasteurization) 沙砾状糖晶的粉丝。你知道这些东西有什么共同点吗？生吃它们非常健康。不像最近推测的趋势，生水。
 

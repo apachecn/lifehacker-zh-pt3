@@ -1,6 +1,6 @@
 # 在你去度假之前，给炉子的表盘拍照
 
-> 原文:[https://life hacker . com/take-photos-of-stove-dials-before-you-leave-to-vacation-1797036410](https://lifehacker.com/take-photos-of-stove-dials-before-you-leave-for-vacatio-1797036410)
+> 原文：<https://lifehacker.com/take-photos-of-stove-dials-before-you-leave-for-vacatio-1797036410>
 
 如果你是那种在乘坐 Lyft 去机场的前十分钟担心自己不小心忘了关烤箱的人——即使那天你甚至没有使用烤箱——你可以通过智能手机的快速预防措施来平息你焦虑的大脑。
 

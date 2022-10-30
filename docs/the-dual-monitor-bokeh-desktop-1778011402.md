@@ -1,6 +1,6 @@
 # 双显示器散景桌面
 
-> 原文:[https://life hacker . com/the-dual-monitor-bokeh-desktop-1778011402](https://lifehacker.com/the-dual-monitor-bokeh-desktop-1778011402)
+> 原文：<https://lifehacker.com/the-dual-monitor-bokeh-desktop-1778011402>
 
 在我们的 [桌面陈列柜](http://kinja.com/tag/desktop-showcase) 中，我们几乎没有足够的双显示器桌面，所以当我们看到一个时——尤其是像这样好看的——我们必须突出它。最重要的是，它没有太多的东西，如果你有两个自己的显示器，就很容易安装。以下是方法。
 

@@ -1,6 +1,6 @@
 # Lifehacker 正在涉足硬件游戏
 
-> 原文:[https://life hacker . com/life hacker-is-get-into-the-hardware-game-1733606270](https://lifehacker.com/lifehacker-is-getting-into-the-hardware-game-1733606270)
+> 原文：<https://lifehacker.com/lifehacker-is-getting-into-the-hardware-game-1733606270>
 
 不久前，Lifehacker 回避了硬件审查。我们可以在这里或那里谈论一些我们喜欢的事情，但总的来说，我们避免了许多小工具的评论，因为担心这不是我们的专长。我们结束了。从现在开始，我们将推出几个新系列，将我们的“这是否改善了您的生活”评论风格推广到更多的小工具、外设、音频设备、PC 组件等。为此，我们引入了三件大事:
 

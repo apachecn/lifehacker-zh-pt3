@@ -1,6 +1,6 @@
 # Twitter 更改了他们的隐私政策，请更新您的设置
 
-> 原文:[https://life hacker . com/Twitter-changed-they-privacy-policy-so-update-your-se-1795331767](https://lifehacker.com/twitter-changed-their-privacy-policy-so-update-your-se-1795331767)
+> 原文：<https://lifehacker.com/twitter-changed-their-privacy-policy-so-update-your-se-1795331767>
 
 周三，推特 [推出了](https://blog.twitter.com/2017/building-new-data-controls-and-updating-our-privacy-policy) 最新隐私政策，这让用户担心他们的私人信息是如何被追踪、存储和使用的。在这项政策中，这个微博平台宣布计划终止它以前尊重的隐私偏好，将你的 cookies 保存更长时间，并改变 Twitter 分享你的私人数据的方式。
 

@@ -1,6 +1,6 @@
 # 现在是检查你已经连接到脸书的第三方应用的好时机
 
-> 原文:[https://life hacker . com/now-is-a-good-time-to-check-what-this-party-apps-you-h-1823863761](https://lifehacker.com/now-is-a-good-time-to-check-what-third-party-apps-you-h-1823863761)
+> 原文：<https://lifehacker.com/now-is-a-good-time-to-check-what-third-party-apps-you-h-1823863761>
 
 本周末 [*《纽约时报》*报道](https://www.nytimes.com/2018/03/17/us/politics/cambridge-analytica-trump-campaign.html) 称，5000 万脸书用户通过网站上的一个个性应用程序获得了与特朗普有关联的数据分析公司剑桥分析公司(Cambridge Analytica)的个人资料信息。
 

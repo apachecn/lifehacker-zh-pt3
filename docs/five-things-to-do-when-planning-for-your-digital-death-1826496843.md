@@ -1,6 +1,6 @@
 # 规划数字死亡时要做的五件事
 
-> 原文:[https://life hacker . com/five-things-to-do-when-planning-for-your-digital-death-1826496843](https://lifehacker.com/five-things-to-do-when-planning-for-your-digital-death-1826496843)
+> 原文：<https://lifehacker.com/five-things-to-do-when-planning-for-your-digital-death-1826496843>
 
 大多数成年人都应该有一份法定遗嘱，为你死后如何处置你的财产提供指示。遗嘱不仅仅是给老年人的，任何人都可能生病或卷入导致他们死亡的事故。虽然遗嘱主要关注的是实物，但我们中的许多人持有宝贵的数字资产，当你去世时，这些资产可能变得无法访问。那些会怎么样？
 

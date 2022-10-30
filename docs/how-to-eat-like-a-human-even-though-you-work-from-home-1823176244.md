@@ -1,6 +1,6 @@
 # 如何像人一样吃饭，即使你在家工作
 
-> 原文:[https://life hacker . com/how-to-eat-like-a-human-even-when-you-work-from-home-1823176244](https://lifehacker.com/how-to-eat-like-a-human-even-though-you-work-from-home-1823176244)
+> 原文：<https://lifehacker.com/how-to-eat-like-a-human-even-though-you-work-from-home-1823176244>
 
 从表面上看，在家工作似乎给了一个人无与伦比的控制饮食的能力。你不仅能控制你的时间表，还能和你的冰箱在一起。会出什么问题呢？
 

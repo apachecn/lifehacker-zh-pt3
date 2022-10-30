@@ -1,6 +1,6 @@
 # 这是你在 iPhone X 上实现快速充电所需要的
 
-> 原文:[https://life hacker . com/heres-what-you-want-off-the-the-1820341056](https://lifehacker.com/heres-what-youll-need-to-pull-off-fast-charging-on-the-1820341056)
+> 原文：<https://lifehacker.com/heres-what-youll-need-to-pull-off-fast-charging-on-the-1820341056>
 
 苹果的 [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) (以及 [iPhone 8 和 8 Plus](https://lifehacker.com/should-you-upgrade-to-the-iphone-8-1803821136) )的一大新功能是 [无线充电](https://lifehacker.com/the-iphone-has-wireless-charging-now-what-1807826997) ，但是如果你更关心速度而不是方便，还有一个额外的好处你应该知道。该公司最新的智能手机也都支持 [快速充电](https://lifehacker.com/charge-your-phone-in-half-the-time-quick-chargers-expl-1682276989) 。 [苹果声称](https://9to5mac.com/2017/09/13/iphone-8-iphone-x-fast-charge-usb-c-buy/) 你可以在 30 分钟内从 0 到 50%充电——只是不是用盒子里的充电器。
 

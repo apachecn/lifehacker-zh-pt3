@@ -1,6 +1,6 @@
 # 你的烤蔬菜需要一点鱼露
 
-> 原文:[https://life hacker . com/every-baked-vegetable-need-a little-fish-sauce-1821068034](https://lifehacker.com/every-roasted-vegetable-needs-a-little-fish-sauce-1821068034)
+> 原文：<https://lifehacker.com/every-roasted-vegetable-needs-a-little-fish-sauce-1821068034>
 
 最好的蔬菜是烤蔬菜，最好的烤蔬菜是用鱼酱做的。辛辣、咸甜的酱汁是各种泥土植物的完美伴侣，从含淀粉的土豆到十字花科的豆芽。
 

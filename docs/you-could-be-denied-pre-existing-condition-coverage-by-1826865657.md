@@ -1,6 +1,6 @@
 # 如果 ACA 被废除，你可能会被雇主健康计划拒绝承保原有的疾病
 
-> 原文:[https://life hacker . com/you-can-be-denied-pre-existing-condition-coverage-by-1826865657](https://lifehacker.com/you-could-be-denied-pre-existing-condition-coverage-by-1826865657)
+> 原文：<https://lifehacker.com/you-could-be-denied-pre-existing-condition-coverage-by-1826865657>
 
 本周早些时候，我写了一篇文章，讲述了如果法官裁定 20 个州起诉患者保护与平价医疗法案违宪，个体市场中已有疾病的人会如何失去他们的健康保险 。但我忽略了这个故事中重要的一点:不仅仅是个人市场中的人会失去保险。那些加入雇主计划的人也可以。
 

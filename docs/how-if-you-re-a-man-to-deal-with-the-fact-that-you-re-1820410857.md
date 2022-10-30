@@ -1,6 +1,6 @@
 # 如果你是个男人，如何面对你可能是垃圾的事实
 
-> 原文:[https://www . the root . com/how-if-you-re-a-man-to-deal-the-fact-you-re-1820410857](https://www.theroot.com/how-if-you-re-a-man-to-deal-with-the-fact-that-you-re-1820410857)
+> 原文：<https://www.theroot.com/how-if-you-re-a-man-to-deal-with-the-fact-that-you-re-1820410857>
 
 当我现在想起路易斯·C·K 时，我不断回想起的一件事不是《纽约时报》上周详细披露的怪异和虐待性习惯 *—* 反复出现的不当性行为证实了关于他的长期传言，并验证了 Gawker 等平台，这些平台在几年前首次报道了这一事件。这也不是他在《纽约时报》的报道停播后发表的声明，他在声明中承认，站出来的女性说的是实话，几乎涵盖了所有的基础，但并不完全解读为道歉(主要是因为他实际上并没有道歉)。
 

@@ -1,6 +1,6 @@
 # 当你孩子的作业太难时该怎么办
 
-> 原文:[https://life hacker . com/what-do what-what-what-what-your-kids-job is too-hard-1803767246](https://lifehacker.com/what-to-do-when-your-kids-homework-is-too-hard-1803767246)
+> 原文：<https://lifehacker.com/what-to-do-when-your-kids-homework-is-too-hard-1803767246>
 
 一旦你的孩子到了上学年龄，辅导家庭作业就是日常生活的一部分。在最初的几年里，这并不难，但是你知道有一天你的孩子会有一个让他们*和*你为难的任务。幸运的是，除了趁孩子不注意偷偷搜索答案，你还有其他选择。
 

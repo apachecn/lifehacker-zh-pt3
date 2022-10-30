@@ -1,6 +1,6 @@
 # 引起酒保注意的最好方法(不要做个混蛋)
 
-> 原文:[https://life hacker . com/the-best-ways-to-get-a-butterness-attention-without-be-1745272282](https://lifehacker.com/the-best-ways-to-get-a-bartenders-attention-without-be-1745272282)
+> 原文：<https://lifehacker.com/the-best-ways-to-get-a-bartenders-attention-without-be-1745272282>
 
 在你最喜欢的酒吧 [引起酒保的注意可能是一项令人生畏的任务](http://lifehacker.com/the-most-effective-way-to-get-a-bartenders-attention-i-1463785984) ，尤其是在下班后或繁忙的周末，当每个人都出去喝一三杯时。为了让事情变得简单一点，我们和几个调酒师坐在一起，他们多年来一直在调酒，以获得最好的小费。这是他们的建议。
 

@@ -1,6 +1,6 @@
 # 用感恩节剩菜做的最佳菜肴
 
-> 原文:[https://life hacker . com/the-best-disks-to-make with your ' s thanking-thanksgiving-1789285284](https://lifehacker.com/the-best-dishes-to-make-with-your-thanksgiving-leftover-1789285284)
+> 原文：<https://lifehacker.com/the-best-dishes-to-make-with-your-thanksgiving-leftover-1789285284>
 
 到了感恩节晚上，你已经吃饱了，这辈子都不想再看到火鸡或一碗土豆泥了。不过，你会 [又饿了](http://lifehacker.com/how-can-i-get-my-appetite-under-control-after-eating-tw-5724520#_ga=1.155689147.1268082208.1431441811) 。下面是感恩节后一天或一周 [用你冰箱里所有的剩菜](https://skillet.lifehacker.com/use-leftover-smoked-meat-to-flavor-beans-and-rice-dishe-1785709997) 做的菜。
 

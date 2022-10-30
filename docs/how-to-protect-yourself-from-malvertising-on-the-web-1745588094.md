@@ -1,6 +1,6 @@
 # 如何保护自己免受网络“恶意广告”的侵害
 
-> 原文:[https://life hacker . com/how-to-protect-yoursely-from-malverting-on-the-web-1745588094](https://lifehacker.com/how-to-protect-yourself-from-malvertising-on-the-web-1745588094)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-malvertising-on-the-web-1745588094>
 
 在与互联网安全威胁的无休止的战斗中，有一个新的敌人正在迅速传播:恶意广告，或者当你查看广告时下载到你电脑上的恶意软件，即使你使用了广告拦截器。以下是你应该注意的，为什么这是一个问题，以及如何保护自己。
 

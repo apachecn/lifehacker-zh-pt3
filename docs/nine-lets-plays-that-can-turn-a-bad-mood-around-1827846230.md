@@ -1,6 +1,6 @@
 # 九部能扭转坏心情的戏剧
 
-> 原文:[https://kotaku . com/nine-let-plays-that-can-turn-a-bad-mood-around-1827846230](https://kotaku.com/nine-lets-plays-that-can-turn-a-bad-mood-around-1827846230)
+> 原文：<https://kotaku.com/nine-lets-plays-that-can-turn-a-bad-mood-around-1827846230>
 
 有时候，当我过了糟糕的一天或者天气糟糕的时候，我会去 YouTube 上找一个让我们一起玩的节目来看。在我想哭的日子里，我特别喜欢收看让我开怀大笑的《咱们来玩吧》。我不再感到孤独，困扰我的负面想法也消失了。如果你有这种感觉，这里有一些我们最喜欢的游戏，保证至少能让你开心。
 

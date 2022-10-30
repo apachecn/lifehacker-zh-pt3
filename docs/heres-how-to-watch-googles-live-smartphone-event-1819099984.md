@@ -1,6 +1,6 @@
 # 以下是观看谷歌智能手机直播活动的方法
 
-> 原文:[https://life hacker . com/heres-how-to-watch-Google-live-smart phone-event-1819099984](https://lifehacker.com/heres-how-to-watch-googles-live-smartphone-event-1819099984)
+> 原文：<https://lifehacker.com/heres-how-to-watch-googles-live-smartphone-event-1819099984>
 
 谷歌将于太平洋时间 10 月 4 日上午 9 点宣布其 Pixel 智能手机 的续集，你可以在这里观看直播:
 

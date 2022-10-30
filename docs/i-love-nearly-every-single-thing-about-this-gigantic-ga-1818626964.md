@@ -1,6 +1,6 @@
 # 我喜欢这台巨大的游戏笔记本电脑的几乎每一个细节
 
-> 原文:[https://gizmodo . com/I-love-nearly-every-one-this-giant-ga-1818626964](https://gizmodo.com/i-love-nearly-every-single-thing-about-this-gigantic-ga-1818626964)
+> 原文：<https://gizmodo.com/i-love-nearly-every-single-thing-about-this-gigantic-ga-1818626964>
 
 当公司不断试图将类似 [弯曲显示屏](http://gizmodo.com/nine-days-with-an-absurd-9-000-gaming-laptop-1794290421) 或 [模块化附加组件](http://gizmodo.com/moto-z2-force-review-motorola-s-new-phone-makes-a-grea-1797444201) 的功能硬塞到不属于它们的设备中时，我经常发现自己在想，为什么他们如此努力地加入价值如此可疑的功能。但也许最好的例子是所有试图在游戏笔记本电脑上安装机械键盘的制造商。每一台配备机械键盘的笔记本电脑似乎都有一长串的妥协，包括巨大的机箱、过高的价格标签，或者 [笨拙的布局](http://gizmodo.com/review-this-laptop-with-a-mechanical-keyboard-is-delig-1686904181) 给系统留下了一个皱巴巴的触摸板。但后来 MSI GT75VR Titan Pro 出现了，并表明它确实是糟糕的执行，而不是一个坏主意，这使得配备机械键盘的笔记本电脑如此令人沮丧。GT75VR 上的那套就不一样了；这件事是合法的。
 

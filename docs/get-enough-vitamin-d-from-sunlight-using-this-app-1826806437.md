@@ -1,6 +1,6 @@
 # 使用这个应用程序从阳光中获取足够的维生素 D
 
-> 原文:[https://life hacker . com/get-full-vitamin-d-from-sun-use-this-app-1826806437](https://lifehacker.com/get-enough-vitamin-d-from-sunlight-using-this-app-1826806437)
+> 原文：<https://lifehacker.com/get-enough-vitamin-d-from-sunlight-using-this-app-1826806437>
 
 我们的皮肤可以将 7-脱氢胆固醇转化为维生素 D，只需要一点阳光的帮助。如果你没有得到太多的阳光，没什么大不了的，你也可以从食物中获取维生素 D。但是你可能想知道——多少阳光才够？
 

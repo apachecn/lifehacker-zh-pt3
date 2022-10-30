@@ -1,6 +1,6 @@
 # 把湿的配料抹在汉堡上之前先吸干
 
-> 原文:[https://life hacker . com/blot-wet-toppings-before-put-them-on-put-them-on-your-burger-1827800795](https://lifehacker.com/blot-wet-toppings-before-putting-them-on-your-burger-1827800795)
+> 原文：<https://lifehacker.com/blot-wet-toppings-before-putting-them-on-your-burger-1827800795>
 
 在制作你的完美汉堡时，配料很容易被冲掉，增加的水分会聚集在一起，对你的面包造成严重破坏。超越 [巧妙堆叠你的配料](https://skillet.lifehacker.com/heres-how-you-should-assemble-your-hamburger-emoji-be-1819982367) 为了让潮湿的配料远离面包，吸干你潮湿的配料会有真正的不同。
 

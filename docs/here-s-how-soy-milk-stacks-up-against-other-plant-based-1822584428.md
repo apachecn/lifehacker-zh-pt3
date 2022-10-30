@@ -1,6 +1,6 @@
 # 以下是豆奶与其他植物奶的对比
 
-> 原文:[https://life hacker . com/here-s-how-soy-milk-stacks-up-against-other-plant-based-1822584428](https://lifehacker.com/here-s-how-soy-milk-stacks-up-against-other-plant-based-1822584428)
+> 原文：<https://lifehacker.com/here-s-how-soy-milk-stacks-up-against-other-plant-based-1822584428>
 
 脱脂牛奶并不是挤牛奶的完美替代品。它们是由各种植物产品加水制成的，它们的营养成分一点也不像牛奶——也不像彼此。两位科学家最近宣称豆奶是最有营养的非乳制牛奶 。不过，你把哪一种放在咖啡里并不重要。
 

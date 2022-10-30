@@ -1,6 +1,6 @@
 # Ayelet Waldman & Paul Austin 的《如何聪明地使用微剂量》
 
-> 原文:[https://life hacker . com/all-about-microdosing-with-ayelet-wald man-and-Paul-aus-1798506409](https://lifehacker.com/all-about-microdosing-with-ayelet-waldman-and-paul-aus-1798506409)
+> 原文：<https://lifehacker.com/all-about-microdosing-with-ayelet-waldman-and-paul-aus-1798506409>
 
 本周我们将讨论微剂量:使用相对低剂量的迷幻药，如 LSD 和裸盖菇，来改善情绪、注意力和日常生活中的生产力。我们采访了作者 [Ayelet Waldman](http://www.ayeletwaldman.com/) 、 [一个真正美好的日子的作者:](https://www.amazon.com/Really-Good-Day-Microdosing-Difference/dp/0451494091/ref=asap_bc?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/all-about-microdosing-with-ayelet-waldman-and-paul-aus-1798506409&asc_source=&ie=UTF8&tag=kinjalifehackerlink-20) 微剂量给我的心情、我的婚姻和生活带来了巨大的变化；保罗·奥斯汀， [迷幻药的倡导者和创始人，第三次浪潮](https://thethirdwave.co/)；以及 [英格玛·戈尔曼](http://www.ingmargorman.com/) 博士，一位帮助寻求与迷幻体验有关的支持的心理治疗师。
 

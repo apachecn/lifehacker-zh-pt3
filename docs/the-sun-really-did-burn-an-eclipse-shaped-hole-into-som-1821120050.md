@@ -1,6 +1,6 @@
 # 太阳确实在某人的视网膜上烧了一个日蚀形状的洞
 
-> 原文:[https://life hacker . com/the-sun-really-did-burn-a-eclipse-shaped-hole-into-som-1821120050](https://lifehacker.com/the-sun-really-did-burn-an-eclipse-shaped-hole-into-som-1821120050)
+> 原文：<https://lifehacker.com/the-sun-really-did-burn-an-eclipse-shaped-hole-into-som-1821120050>
 
 还记得那些看日食时使用护具的警告吗？《美国医学会眼科学杂志》 的一项新研究显示，如果你不这样做，会发生什么。
 

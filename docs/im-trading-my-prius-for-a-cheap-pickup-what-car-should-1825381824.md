@@ -1,6 +1,6 @@
 # 我要用我的普锐斯换一辆便宜的皮卡！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-trading-my-Prius-for-a cheap-pick-what-car-should-1825381824](https://jalopnik.com/im-trading-my-prius-for-a-cheap-pickup-what-car-should-1825381824)
+> 原文：<https://jalopnik.com/im-trading-my-prius-for-a-cheap-pickup-what-car-should-1825381824>
 
 亚历克斯弄坏了他的普锐斯，但他正利用这个机会得到他一直想要的东西:一辆皮卡。唯一的困难是他的预算很紧，我们都知道找到一辆便宜的好卡车并不容易。他应该买什么车？
 

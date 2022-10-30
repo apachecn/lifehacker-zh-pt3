@@ -1,6 +1,6 @@
 # 如何私下播放 WhatsApp 语音消息
 
-> 原文:[https://life hacker . com/how-to-private-play-whatsapp-voice-messages-1827107470](https://lifehacker.com/how-to-privately-play-whatsapp-voice-messages-1827107470)
+> 原文：<https://lifehacker.com/how-to-privately-play-whatsapp-voice-messages-1827107470>
 
 WhatsApp Messenger([iOS](https://itunes.apple.com/us/app/whatsapp-messenger/id310633997?mt=8)、 [Android](https://www.whatsapp.com/android/) )是一个免费的消息平台，你可以用它给朋友发送消息、语音笔记、照片；给他们打电话进行快速视频通话；或者 [送秘笈](https://lifehacker.com/anonymous-chat-apps-like-signal-and-whatsapp-are-only-a-1826678815#_ga=2.160912511.315288407.1529932351-1723114163.1524514905) 。
 

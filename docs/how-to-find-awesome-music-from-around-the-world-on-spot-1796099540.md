@@ -1,6 +1,6 @@
 # 如何在 Spotify 上找到来自世界各地的精彩音乐
 
-> 原文:[https://life hacker . com/how-to-find-awesome-music-from-around-the-world-on-spot-1796099540](https://lifehacker.com/how-to-find-awesome-music-from-around-the-world-on-spot-1796099540)
+> 原文：<https://lifehacker.com/how-to-find-awesome-music-from-around-the-world-on-spot-1796099540>
 
 无论音乐来自何方，它都有让你感受，让你思考，让你起舞的力量。如果你使用 Spotify，拓宽你的音乐视野是很容易的。
 

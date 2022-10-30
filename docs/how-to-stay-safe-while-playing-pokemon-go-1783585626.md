@@ -1,6 +1,6 @@
 # 如何在玩 Pokémon Go 时保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-while-playing-pokemon-go-1783585626](https://lifehacker.com/how-to-stay-safe-while-playing-pokemon-go-1783585626)
+> 原文：<https://lifehacker.com/how-to-stay-safe-while-playing-pokemon-go-1783585626>
 
 Pokémon Go 是一种让你摆脱懒散的方式，在外面玩得开心。在你开始你的冒险之前，你应该学习一些基本的安全提示，打包一些必需品，并且不要忘记每天更换你的内衣。
 

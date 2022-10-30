@@ -1,6 +1,6 @@
 # 泳池边派对播放列表
 
-> 原文:[https://life hacker . com/the-pool side-party-playlist-1786686822](https://lifehacker.com/the-poolside-party-playlist-1786686822)
+> 原文：<https://lifehacker.com/the-poolside-party-playlist-1786686822>
 
 夏天就要结束了，但在炎热被落叶淹没，让水变得又脏又浑浊之前，我们还有时间去游泳池。这个播放列表将为这一季的最后一场派对定下基调。
 

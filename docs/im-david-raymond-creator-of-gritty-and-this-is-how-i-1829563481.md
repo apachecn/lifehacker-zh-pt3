@@ -1,6 +1,6 @@
 # 我是大卫·雷蒙德,《砂砾》的创作者，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-David-raymond-creator-of-gritty-and-this-is-how-I-1829563481](https://lifehacker.com/im-david-raymond-creator-of-gritty-and-this-is-how-i-1829563481)
+> 原文：<https://lifehacker.com/im-david-raymond-creator-of-gritty-and-this-is-how-i-1829563481>
 
 1978 年，费城费城人队实习生大卫·雷蒙 穿上费城人队的服装，向世界介绍了体育界最著名的吉祥物之一。在做了 15 年的吉祥物之后，雷蒙德开始着手制作自己的吉祥物。现在他创造了近年来最出名的吉祥物:费城飞人队吉祥物格里蒂。(这篇文章的工作标题是“格里蒂的爸爸。”)我们和 Raymond 谈论了从显形到粗糙的道路，如何清洗服装，以及为什么他每两年就要切换一次待办事项应用程序。
 

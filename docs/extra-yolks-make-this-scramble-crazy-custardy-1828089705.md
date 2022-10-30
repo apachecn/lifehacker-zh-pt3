@@ -1,6 +1,6 @@
 # 给你的炒鸡蛋多加点蛋黄
 
-> 原文:[https://life hacker . com/extra-yolks-make-this-scramble-crazy-custardy-1828089705](https://lifehacker.com/extra-yolks-make-this-scramble-crazy-custardy-1828089705)
+> 原文：<https://lifehacker.com/extra-yolks-make-this-scramble-crazy-custardy-1828089705>
 
 在我心目中，蛋清只是作为蛋黄的输送系统而存在。尽管它们是蛋白质的重要来源，但白面包几乎没有味道，这就是为什么我一直不理解那些在炒菜时添加更多白面包的人。(我不理解运动员，我就是这个意思。)蛋黄应该是任何鸡蛋菜肴中的明星，即使是炒鸡蛋。对于最粘稠、最美味的炒鸡蛋——只需*分钟*就能完成——你需要增加蛋黄含量。
 

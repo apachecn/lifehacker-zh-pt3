@@ -1,6 +1,6 @@
 # 父母的漫威电影基本指南
 
-> 原文:[https://life hacker . com/the-parents-essential-guide-to-marvel-movies-1827408270](https://lifehacker.com/the-parents-essential-guide-to-marvel-movies-1827408270)
+> 原文：<https://lifehacker.com/the-parents-essential-guide-to-marvel-movies-1827408270>
 
 我不知道你是否听说过这种地下趋势，但显然，关于漫威宇宙超级英雄的电影已经变得非常受欢迎。如此多的这些功能已经发布，以至于有工作/生活的父母经常不能保持漫威电影宇宙*中的 18 部电影(正如我写的那样)。
 

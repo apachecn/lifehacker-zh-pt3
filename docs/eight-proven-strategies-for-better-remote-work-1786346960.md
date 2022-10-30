@@ -1,6 +1,6 @@
 # 提高远程工作质量的八个成熟策略
 
-> 原文:[https://life hacker . com/eight-proven-strategies-for-better-remote-work-1786346960](https://lifehacker.com/eight-proven-strategies-for-better-remote-work-1786346960)
+> 原文：<https://lifehacker.com/eight-proven-strategies-for-better-remote-work-1786346960>
 
 在咖啡店和沙发上工作多年后，有一件事我可以肯定:远程工作很难。*难以置信的*艰难。理论上，这听起来全是彩虹和独角兽——你可以选择自己的时间，你不需要应付一个在你身后隐约出现的老板，你甚至可以穿着睡衣工作。
 

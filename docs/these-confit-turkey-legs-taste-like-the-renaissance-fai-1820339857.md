@@ -1,6 +1,6 @@
 # 这些烤火鸡腿尝起来像文艺复兴集会
 
-> 原文:[https://life hacker . com/these-confit-turkey-legs-taste-like-the-renaissance-fai-1820339857](https://lifehacker.com/these-confit-turkey-legs-taste-like-the-renaissance-fai-1820339857)
+> 原文：<https://lifehacker.com/these-confit-turkey-legs-taste-like-the-renaissance-fai-1820339857>
 
 朋友们大家好，欢迎回到 [*它会苏威吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。本周的这一集我们谈论火鸡(因为这是我们美食作家现在能谈论的)，特别是火鸡腿。
 

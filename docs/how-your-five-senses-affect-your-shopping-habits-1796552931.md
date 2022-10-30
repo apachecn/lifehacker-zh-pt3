@@ -1,6 +1,6 @@
 # 你的五官如何影响你的购物习惯
 
-> 原文:[https://life hacker . com/how-your ' s five-sense-affect-your ' s shopping-habits-1796552931](https://lifehacker.com/how-your-five-senses-affect-your-shopping-habits-1796552931)
+> 原文：<https://lifehacker.com/how-your-five-senses-affect-your-shopping-habits-1796552931>
 
 广告商不断使用心理伎俩 让我们购买他们的产品，但一项新的研究表明，他们可能会开始利用我们的感官向我们推销商品。
 

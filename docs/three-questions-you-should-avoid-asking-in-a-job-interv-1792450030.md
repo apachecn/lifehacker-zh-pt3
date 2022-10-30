@@ -1,6 +1,6 @@
 # 求职面试中你应该避免问的三个问题
 
-> 原文:[https://life hacker . com/three-questions-you-should-avoid-asked-a-job-interv-1792450030](https://lifehacker.com/three-questions-you-should-avoid-asking-in-a-job-interv-1792450030)
+> 原文：<https://lifehacker.com/three-questions-you-should-avoid-asking-in-a-job-interv-1792450030>
 
 当我是一名招聘人员时，我被问了很多聪明的问题，这些问题让我说，“哇，这个候选人在她的游戏中处于领先地位。”但是我也听到了很多让我想知道这个人接受了谁的面试建议——或者这个人是否曾经寻求过帮助。
 

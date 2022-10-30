@@ -1,6 +1,6 @@
 # 使用 Houdini 在流媒体服务之间传输音乐，并调整我的音乐
 
-> 原文:[https://life hacker . com/transfer-music-between-streaming-services-with-Houdini-1828811444](https://lifehacker.com/transfer-music-between-streaming-services-with-houdini-1828811444)
+> 原文：<https://lifehacker.com/transfer-music-between-streaming-services-with-houdini-1828811444>
 
 有时候你想抓取某人的 Spotify 播放列表放入你的 Apple Music library，或者导出到 YouTube。有多少流媒体服务，就有多少移动音乐的服务。同时使用多种方法可以获得最佳效果。所有这些应用程序只是有一点不同。有些仅支持桌面，有些仅支持移动，有些支持不同的第二层流媒体服务。但是，他们都使用稍微不同的方法来匹配歌曲。因为 Spotify *和其他*有任何著名流行歌曲的五十种不同版本和混音，你可能会有很多错误的匹配。
 

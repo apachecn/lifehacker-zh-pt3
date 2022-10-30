@@ -1,6 +1,6 @@
 # 向 Alexa 重新订购亚马逊商品可获得免费积分
 
-> 原文:[https://life hacker . com/re-order-Amazon-items-with-Alexa-to-score-free-credits-1820190770](https://lifehacker.com/re-order-amazon-items-with-alexa-to-score-free-credits-1820190770)
+> 原文：<https://lifehacker.com/re-order-amazon-items-with-alexa-to-score-free-credits-1820190770>
 
 如果你已经在使用 Alexa，并计划在亚马逊上花掉一大笔假期开销，你也可以在这个过程中获得一些额外的商店积分。
 

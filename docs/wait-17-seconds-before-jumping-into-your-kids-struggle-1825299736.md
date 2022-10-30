@@ -1,6 +1,6 @@
 # 等待 17 秒钟，然后投入到孩子的斗争中
 
-> 原文:[https://life hacker . com/wait-17-seconds-before-jump-into-your-kids-travel-1825299736](https://lifehacker.com/wait-17-seconds-before-jumping-into-your-kids-struggle-1825299736)
+> 原文：<https://lifehacker.com/wait-17-seconds-before-jumping-into-your-kids-struggle-1825299736>
 
 一整天，每一天，你的孩子面临的挣扎都是真实的。你可以打赌他们会让你知道那些所谓的挣扎。也许他们解决不了一个家庭作业问题。或者如何将正确的手臂放入夹克的正确袖孔中。或者也许他们的乐高宫殿的护城河看起来不像照片上的那样，因此这一切都是错的。
 

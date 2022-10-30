@@ -1,6 +1,6 @@
 # 你在新闻中听到的所有毁灭性武器的指南
 
-> 原文:[https://life hacker . com/your-guide-to-all-the-destructive-weapons-you-heard-abou-1794295473](https://lifehacker.com/your-guide-to-all-the-devastating-weapons-you-hear-abou-1794295473)
+> 原文：<https://lifehacker.com/your-guide-to-all-the-devastating-weapons-you-hear-abou-1794295473>
 
 查看新闻，你肯定会听到关于世界某个地方的冲突。但是有很多武器术语被抛来抛去却没有解释，甚至公众眼中的[对这些武器](https://www.nytimes.com/2017/04/11/us/politics/sean-spicer-hitler-gas-holocaust-center.html?pagewanted=all) 的用途一无所知。这里有你需要知道的关于摩押、战斧导弹、桶装炸弹、化学武器等等的一切。
 

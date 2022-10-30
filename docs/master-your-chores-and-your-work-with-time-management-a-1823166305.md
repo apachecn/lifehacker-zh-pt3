@@ -1,6 +1,6 @@
 # 使用时间管理应用程序掌控您的家务和工作
 
-> 原文:[https://life hacker . com/master-your-features-and-your-work with-time-management-a-1823166305](https://lifehacker.com/master-your-chores-and-your-work-with-time-management-a-1823166305)
+> 原文：<https://lifehacker.com/master-your-chores-and-your-work-with-time-management-a-1823166305>
 
 在家工作意味着你被你所有的东西包围着:从你水槽里的那堆脏盘子到那堆还没展开的衣服。也许你有一个紧迫的截止日期，并且迫切需要整理那堆书(你确实有很多堆！).好消息:在一些时间管理和家务管理应用程序的帮助下，你可以做到这两者，当你需要处理一天的事情时，它们可以作为生产力的助推器。
 

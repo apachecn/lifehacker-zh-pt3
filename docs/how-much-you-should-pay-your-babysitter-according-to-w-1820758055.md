@@ -1,6 +1,6 @@
 # 根据你的居住地，2017 年你应该付给你的保姆多少钱
 
-> 原文:[https://life hacker . com/how-much-much-you-should-pay-you-but-but-you-but-but-you-but-but-you-but-but-you-but-but-you-but-you-but-but-you-but-but-you-but-you-but-but-to-w-1820758055](https://lifehacker.com/how-much-you-should-pay-your-babysitter-according-to-w-1820758055)
+> 原文：<https://lifehacker.com/how-much-you-should-pay-your-babysitter-according-to-w-1820758055>
 
 保姆要花多少钱？嗯，如果我回想起我在高中的时候，有时看着街上蹒跚学步的孩子，那会是每小时五美元，一些吃剩的比萨饼和无限制的睡前电视。但时过境迁，那些已经离开市场一段时间的人可能会受到一些价格冲击。
 

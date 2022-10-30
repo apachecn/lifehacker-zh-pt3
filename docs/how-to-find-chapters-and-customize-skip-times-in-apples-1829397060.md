@@ -1,6 +1,6 @@
 # 如何在 Apple 更新的播客应用程序中查找章节和自定跳过时间
 
-> 原文:[https://life hacker . com/how-to-find-chapters-and-customize-skip-times-in-apple-1829397060](https://lifehacker.com/how-to-find-chapters-and-customize-skip-times-in-apples-1829397060)
+> 原文：<https://lifehacker.com/how-to-find-chapters-and-customize-skip-times-in-apples-1829397060>
 
 虽然大多数喜欢播客的苹果粉丝可能已经转向了像 [云](https://itunes.apple.com/us/app/overcast/id888422857?mt=8&uo=4) 或 [卡斯特罗](https://itunes.apple.com/us/app/castro-podcasts/id1080840241) 这样的应用程序，但你可能想回去花几分钟时间看看苹果在 iOS 12 中更新的播客应用程序。有一些新功能最终使这个应用程序成为一个可行的替代方案。以下是最新消息:
 

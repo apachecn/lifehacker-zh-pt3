@@ -1,6 +1,6 @@
 # 在滑稽剧中工作教会了我如何在工作中学习
 
-> 原文:[https://life hacker . com/what-working-on-a-burlesque-show-teached-me-about-learn I-1783509071](https://lifehacker.com/what-working-on-a-burlesque-show-taught-me-about-learni-1783509071)
+> 原文：<https://lifehacker.com/what-working-on-a-burlesque-show-taught-me-about-learni-1783509071>
 
 上周末，我帮忙做了一场银河护卫队主题的滑稽表演。我没有戏剧方面的背景，更没有滑稽戏方面的背景，只是勉强为我的工作职责做好准备。当你不知道自己在做什么的时候，我学到了如何在压力下工作。
 

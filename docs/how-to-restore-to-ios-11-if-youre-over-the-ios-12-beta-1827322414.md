@@ -1,6 +1,6 @@
 # 如果你已经过了 iOS 12 测试版，如何恢复到 iOS 11
 
-> 原文:[https://life hacker . com/how-to-restore-to-IOs-11-if-you-over-the-IOs-12-beta-1827322414](https://lifehacker.com/how-to-restore-to-ios-11-if-youre-over-the-ios-12-beta-1827322414)
+> 原文：<https://lifehacker.com/how-to-restore-to-ios-11-if-youre-over-the-ios-12-beta-1827322414>
 
 你可能不应该在你的主设备上运行 iOS 公测版。但是也许你还是冒了险——不惜一切代价参与那个甜蜜的行动——现在你后悔了。可能你每天用的某个 app 还不兼容 iOS 12，你想回去。
 

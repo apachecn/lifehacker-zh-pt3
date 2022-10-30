@@ -1,6 +1,6 @@
 # 不要在你的速溶壶里做什么
 
-> 原文:[https://life hacker . com/what-not-to-make-in-your-instant-pot-1825573415](https://lifehacker.com/what-not-to-make-in-your-instant-pot-1825573415)
+> 原文：<https://lifehacker.com/what-not-to-make-in-your-instant-pot-1825573415>
 
 我真的，真的很喜欢我的速溶壶，根据许多博客、食谱和 [脸书集团](https://skillet.lifehacker.com/these-facebook-groups-will-help-you-master-the-instant-1821718330) ，世界其他地方也是如此。但是，就像任何被大肆宣传的设备一样，事情变得有点失控。知道什么时候*不*使用速溶壶和知道什么时候*应该*使用它一样有价值。
 

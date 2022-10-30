@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:把主菜分开是不是很俗气？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-it-clay-to-split-entres-1823009671](https://thetakeout.com/ask-the-salty-waitress-is-it-tacky-to-split-entrees-1823009671)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-is-it-tacky-to-split-entrees-1823009671>
 
 * * *
 

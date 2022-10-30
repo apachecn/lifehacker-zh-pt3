@@ -1,6 +1,6 @@
 # 这是一个无辜的 OK 标志还是一个白色的权力象征？
 
-> 原文:[https://life hacker . com/is-this-an-innocent-ok-sign-or-a-white-power-symbol-1825575794](https://lifehacker.com/is-this-an-innocent-ok-sign-or-a-white-power-symbol-1825575794)
+> 原文：<https://lifehacker.com/is-this-an-innocent-ok-sign-or-a-white-power-symbol-1825575794>
 
 这个帖子是关于 [坎耶西的《马加周》](https://gizmodo.com/twitter-kanye-allegedly-losing-9-million-twitter-follo-1825551707) 的。抱歉。你可能已经听说了，Kanye 又回到了 Twitter 上，这次他发布了一系列奇怪且不断升级的推文，似乎支持古怪的保守派，甚至唐纳德·特朗普(Donald Trump)。 [每期](https://www.rollingstone.com/music/news/why-kanye-wests-pro-trump-tweets-are-a-real-threat-w519572) [推文](https://www.thedailybeast.com/chance-the-rappers-wildly-hypocritical-defense-of-kanye-wests-maga-turn) [激励](http://nymag.com/selectall/2018/04/why-kanye-west-endorsed-candace-owens.html) 讲解。昨天 Kanye 在推特上发了一张他自己戴着 MAGA 帽子的照片，旁边是一个做 OK 手势的男人。这令人不安，因为 OK 标志有点像 T21，是白人至上主义的象征。
 

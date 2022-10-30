@@ -1,6 +1,6 @@
 # 最好的安卓文件管理器之一现在可以在安卓电视和 Chrome 操作系统上运行
 
-> 原文:[https://life hacker . com/one-of-the-best-Android-file-managers-now-works-on-andr-1825654456](https://lifehacker.com/one-of-the-best-android-file-managers-now-works-on-andr-1825654456)
+> 原文：<https://lifehacker.com/one-of-the-best-android-file-managers-now-works-on-andr-1825654456>
 
 多年来， [Solid Explorer](https://lifehacker.com/the-best-file-management-app-for-android-5825578#_ga=2.243765255.367633666.1525095724-3846207152.1521480874) 让你在任何安卓设备上整理所有文件变得很容易。现在，由于对 [安卓电视](https://lifehacker.com/google-unveils-android-tv-brings-android-to-the-big-sc-1595960641) 和 [Chrome 操作系统](https://lifehacker.com/android-apps-for-chrome-os-are-here-and-theyre-the-fut-1782279369) 的新支持，这款便捷的应用正在扩展到更多平台。
 

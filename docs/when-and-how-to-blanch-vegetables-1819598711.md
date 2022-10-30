@@ -1,6 +1,6 @@
 # 何时以及如何焯蔬菜
 
-> 原文:[https://life hacker . com/when-and-how-to-blanch-vegetables-1819598711](https://lifehacker.com/when-and-how-to-blanch-vegetables-1819598711)
+> 原文：<https://lifehacker.com/when-and-how-to-blanch-vegetables-1819598711>
 
 有些蔬菜——比如四季豆和西兰花——可以是华丽的、色彩鲜艳的、非常嫩脆的，也可以是令人沮丧的、乏味的、潮湿的。幸运的是，确保这些蔬菜成为最好的自己只需要几分钟的时间——你只需要将它们焯一下。
 

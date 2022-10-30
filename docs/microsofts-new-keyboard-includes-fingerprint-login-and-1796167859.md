@@ -1,6 +1,6 @@
 # 微软的新键盘包括指纹登录——和糟糕的人体工程学
 
-> 原文:[https://life hacker . com/Microsoft-new-keyboard-includes-fingerprint-log in-and-1796167859](https://lifehacker.com/microsofts-new-keyboard-includes-fingerprint-login-and-1796167859)
+> 原文：<https://lifehacker.com/microsofts-new-keyboard-includes-fingerprint-login-and-1796167859>
 
 微软巧妙地将指纹识别器集成到其最新的键盘配件中，但删除了一些使其键盘系列易于使用的重要方面。它非常适合快速登录，看起来肯定很酷，但是在上面打字可能不是最舒服的体验。
 

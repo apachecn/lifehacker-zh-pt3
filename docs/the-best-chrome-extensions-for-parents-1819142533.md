@@ -1,6 +1,6 @@
 # 父母最好的 Chrome 扩展
 
-> 原文:[https://life hacker . com/the-best-chrome-extensions-for-parents-1819142533](https://lifehacker.com/the-best-chrome-extensions-for-parents-1819142533)
+> 原文：<https://lifehacker.com/the-best-chrome-extensions-for-parents-1819142533>
 
 为人父母就像是唱红脸唱白脸，没完没了，对于今天这一代养育孩子的人来说，这包括在数字前沿制定法律。
 

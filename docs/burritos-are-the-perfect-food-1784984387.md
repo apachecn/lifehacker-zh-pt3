@@ -1,6 +1,6 @@
 # 墨西哥卷饼是完美的食物
 
-> 原文:[https://life hacker . com/burritos-is-the-perfect-food-1784984387](https://lifehacker.com/burritos-are-the-perfect-food-1784984387)
+> 原文：<https://lifehacker.com/burritos-are-the-perfect-food-1784984387>
 
 世界上有许多特殊的、奇妙的和美味的食物。很少有像不起眼的墨西哥卷饼那样完美和多样的。
 

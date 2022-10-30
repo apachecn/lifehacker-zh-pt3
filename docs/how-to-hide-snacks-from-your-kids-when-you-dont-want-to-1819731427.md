@@ -1,6 +1,6 @@
 # 当你不想和孩子分享零食时，如何把它们藏起来
 
-> 原文:[https://life hacker . com/how-to-hide-from-your-kids-when-your-don ' t-want-to-1819731427](https://lifehacker.com/how-to-hide-snacks-from-your-kids-when-you-dont-want-to-1819731427)
+> 原文：<https://lifehacker.com/how-to-hide-snacks-from-your-kids-when-you-dont-want-to-1819731427>
 
 如果你有孩子，打开一袋饼干意味着打开一大堆问题:“那是什么？”“你从哪儿弄来的？”“能给我来点吗？”“我能全部拥有吗？”“那能成为我的晚餐吗？”
 

@@ -1,6 +1,6 @@
 # 记录你全年的工作成绩
 
-> 原文:[https://life hacker . com/keep-track-of-your-work-achieves-through-the-1823436243](https://lifehacker.com/keep-track-of-your-work-accomplishments-throughout-the-1823436243)
+> 原文：<https://lifehacker.com/keep-track-of-your-work-accomplishments-throughout-the-1823436243>
 
 当到了你的年度评估或者你想要求加薪的时候，你可能知道你需要用你出色工作的例子来支持你要求更多的钱或者更好的头衔。
 

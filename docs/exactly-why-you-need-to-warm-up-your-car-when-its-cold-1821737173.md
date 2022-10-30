@@ -1,6 +1,6 @@
 # 这就是为什么冷的时候你需要预热你的车
 
-> 原文:[https://jalopnik . com/exact-why-why-you-need-warm-why-you-car-when-it-cold-1821737173](https://jalopnik.com/exactly-why-you-need-to-warm-up-your-car-when-its-cold-1821737173)
+> 原文：<https://jalopnik.com/exactly-why-you-need-to-warm-up-your-car-when-its-cold-1821737173>
 
 就像穿着活仓鼠的行为一样，在寒冷的冬天是否要给你的车暖暖身子，几乎每个人都有自己的看法。之前我们已经解决了这个问题，我仍然对团队热情，但围绕这个重要问题仍然有很多争议。让我们再看一看。
 

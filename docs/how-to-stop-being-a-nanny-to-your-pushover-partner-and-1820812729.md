@@ -1,6 +1,6 @@
 # 如何停止给你的伙伴和他们懒惰的孩子当保姆
 
-> 原文:[https://life hacker . com/how-to-stop-be-an-your-pushover-partner-and-1820812729](https://lifehacker.com/how-to-stop-being-a-nanny-to-your-pushover-partner-and-1820812729)
+> 原文：<https://lifehacker.com/how-to-stop-being-a-nanny-to-your-pushover-partner-and-1820812729>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

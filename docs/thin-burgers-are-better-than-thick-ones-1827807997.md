@@ -1,6 +1,6 @@
 # 薄汉堡比厚汉堡好吃
 
-> 原文:[https://life hacker . com/thin-burgers-be-better-than-thin-thin-burgers-than-thick-one-1827807997](https://lifehacker.com/thin-burgers-are-better-than-thick-ones-1827807997)
+> 原文：<https://lifehacker.com/thin-burgers-are-better-than-thick-ones-1827807997>
 
 汉堡已经失控了。不仅是小酒馆和酒吧用从牛油果到五花肉的各种东西来装饰它们(这两者都分散注意力)，而且肉饼本身也太厚了。汉堡不是牛排；汉堡是一种*三明治*，而三明治是关于所有馅料*之间的*平衡*。*
 

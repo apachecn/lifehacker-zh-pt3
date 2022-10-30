@@ -1,6 +1,6 @@
 # 如何休假而不失去太多的健身
 
-> 原文:[https://life hacker . com/how-to-take-a vacation-not-lost-too-fitness-1827651941](https://lifehacker.com/how-to-take-a-vacation-without-losing-too-much-fitness-1827651941)
+> 原文：<https://lifehacker.com/how-to-take-a-vacation-without-losing-too-much-fitness-1827651941>
 
 夏天是塑身的好时候——你可以享受不冻的天气，更长的白天，根据你的工作，你可能会有更多的空闲时间。但是假期来了，你的健身目标暂时被搁置了。以下是如何将损害降到最低。
 

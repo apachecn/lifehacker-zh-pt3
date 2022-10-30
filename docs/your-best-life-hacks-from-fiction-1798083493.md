@@ -1,6 +1,6 @@
 # 你最好的生活来自小说
 
-> 原文:[https://life hacker . com/your-best-life-hacks-from-fiction-1798083493](https://lifehacker.com/your-best-life-hacks-from-fiction-1798083493)
+> 原文：<https://lifehacker.com/your-best-life-hacks-from-fiction-1798083493>
 
 我们 [问你](http://lifehacker.com/what-are-the-best-life-hacks-youve-learned-from-fiction-1797874041) 你从小说中学到的最好的生活窍门，你给了我们一套 [简直太棒了](http://lifehacker.com/go-ahead-and-use-literally-figuratively-1797636385) 的小窍门，从如何用吹风机给镜子去雾，到像“恐惧是精神杀手”这样宏大的生活建议
 

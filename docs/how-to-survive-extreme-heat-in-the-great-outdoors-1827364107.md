@@ -1,6 +1,6 @@
 # 如何在酷热的户外生存
 
-> 原文:[https://life hacker . com/how-to-survive-extreme-there-the-great-outdoors-1827364107](https://lifehacker.com/how-to-survive-extreme-heat-in-the-great-outdoors-1827364107)
+> 原文：<https://lifehacker.com/how-to-survive-extreme-heat-in-the-great-outdoors-1827364107>
 
 自然界中有许多激烈的危险，但也许最可怕的是一个火热的、沉默的杀手。 [据美国疾控中心](https://www.youtube.com/watch?v=_zBZrPfqQYA) 统计，美国高温致死人数比 [飓风](https://lifehacker.com/how-to-stay-safe-during-a-hurricane-1798391969)[闪电](https://gizmodo.com/what-happens-when-you-get-struck-by-lightning-5936361)[龙卷风](https://lifehacker.com/how-to-stay-safe-during-a-tornado-1825832242)[地震](https://lifehacker.com/where-to-hide-during-an-earthquake-1819650001)[洪水](https://lifehacker.com/how-to-survive-a-flash-flood-1795101394) 加起来还多。当你要整天待在户外时，以下是如何在热浪中生存下来的方法。
 

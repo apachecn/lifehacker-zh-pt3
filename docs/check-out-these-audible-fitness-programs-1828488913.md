@@ -1,6 +1,6 @@
 # 看看这些声音健身程序
 
-> 原文:[https://life hacker . com/check-out-these-audible-fitness-programs-1828488913](https://lifehacker.com/check-out-these-audible-fitness-programs-1828488913)
+> 原文：<https://lifehacker.com/check-out-these-audible-fitness-programs-1828488913>
 
 如果你已经使用 Audible 来阅读有声读物，现在你的帐户中有了一个新的特权: [访问来自 Aaptiv](https://www.audible.com/ep/aaptiv) 的三个健身项目，更多项目正在进行中。
 

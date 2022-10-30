@@ -1,6 +1,6 @@
 # 使用 Audiocheck 的基准文件测试您的耳机
 
-> 原文:[https://life hacker . com/test-your-headphones-with-audio check-s-benchmark-files-1800134399](https://lifehacker.com/test-your-headphones-with-audiocheck-s-benchmark-files-1800134399)
+> 原文：<https://lifehacker.com/test-your-headphones-with-audiocheck-s-benchmark-files-1800134399>
 
 无论你是在市场上购买新的易拉罐，还是只是好奇是什么让耳机发出声音，嗯，很好，知道听什么是挑选质量的一个非常重要的方法。你可以在不同的耳机上播放你最喜欢的歌曲并进行比较，但有些是专门为增强某些类型的音乐而调整的，使一些歌曲听起来低音很重，而其他歌曲则很模糊或平淡。多亏了一个致力于音频设备基准测试的网站，你可以使用你现在拥有的任何易拉罐来了解什么是好的耳机。
 

@@ -1,6 +1,6 @@
 # 如何开始游泳锻炼
 
-> 原文:[https://life hacker . com/how-to-start-swimming-for-exercise-1786023932](https://lifehacker.com/how-to-start-swimming-for-exercise-1786023932)
+> 原文：<https://lifehacker.com/how-to-start-swimming-for-exercise-1786023932>
 
 如果凯蒂·莱德基、西蒙·曼努埃尔或善良的老迈克尔·菲尔普斯激励你再看看你家附近的游泳池，那么最大的阻碍可能是这个问题:*当我在那里的时候，我实际上做了什么*？以下是如何把在游泳池度过的一天变成一次令人满意的锻炼。
 

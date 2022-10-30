@@ -1,6 +1,6 @@
 # 认识一下我们太阳系的新“妖精”
 
-> 原文:[https://life hacker . com/what-to-know-the-new-goblin-in-our-solar-system-1829533011](https://lifehacker.com/what-to-know-about-the-new-goblin-in-our-solar-system-1829533011)
+> 原文：<https://lifehacker.com/what-to-know-about-the-new-goblin-in-our-solar-system-1829533011>
 
 让开，冥王星:在我们的太阳系中有一颗新的矮行星，它的名字叫地精。
 

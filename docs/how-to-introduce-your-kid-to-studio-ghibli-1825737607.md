@@ -1,6 +1,6 @@
 # 如何向您的孩子介绍吉卜力工作室
 
-> 原文:[https://life hacker . com/how-to-introduction-your-kid-to-studio-ghibli-1825737607](https://lifehacker.com/how-to-introduce-your-kid-to-studio-ghibli-1825737607)
+> 原文：<https://lifehacker.com/how-to-introduce-your-kid-to-studio-ghibli-1825737607>
 
 多年来，吉卜力工作室的电影一直是我生活中的一块试金石。它们是艺术杰作，对细节的关注令人惊叹。这些电影打破了刻板印象——它们以深刻的女性主角、明显脆弱的男性主角和令人难忘的背景人物为特色。
 

@@ -1,6 +1,6 @@
 # 第一天:HIIT 初级课程指南
 
-> 原文:[https://life hacker . com/day-1-a-初学者指南-hiit-class-1797332116](https://lifehacker.com/day-1-a-beginners-guide-to-hiit-class-1797332116)
+> 原文：<https://lifehacker.com/day-1-a-beginners-guide-to-hiit-class-1797332116>
 
 HIIT——或者对外行人来说是高强度间歇训练——是目前最时尚的锻炼项目之一，但至少可以说，第一次开始可能会令人生畏。(“高强度”有办法让锻炼听起来有效，但不一定那么平易近人。)
 

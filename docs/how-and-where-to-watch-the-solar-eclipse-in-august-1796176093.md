@@ -1,6 +1,6 @@
 # 如何在哪里观看八月的日食
 
-> 原文:[https://life hacker . com/how-and-where-to-watch-the-solar-eclipse-in-August-1796176093](https://lifehacker.com/how-and-where-to-watch-the-solar-eclipse-in-august-1796176093)
+> 原文：<https://lifehacker.com/how-and-where-to-watch-the-solar-eclipse-in-august-1796176093>
 
 8 月 21 日星期一你有事吗？如果没有，也许你应该计划一个短暂的假期。那天将会有一次日全食，从科瓦利斯到南卡罗来纳州的哥伦比亚，整个美国大陆都会发生。我们大多数人至少会看到一些黑暗，但只有 70 英里宽的国家将经历一次月全食。
 

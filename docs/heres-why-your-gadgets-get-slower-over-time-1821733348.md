@@ -1,6 +1,6 @@
 # 这就是你的小工具随着时间变慢的原因
 
-> 原文:[https://gizmodo . com/heres-why-your-gadgets-get-slow-over-time-1821733348](https://gizmodo.com/heres-why-your-gadgets-get-slower-over-time-1821733348)
+> 原文：<https://gizmodo.com/heres-why-your-gadgets-get-slower-over-time-1821733348>
 
 众所周知， [随着设备的老化](https://gizmodo.com/how-to-tell-if-your-iphone-battery-is-screwed-and-what-1821554872) 它们会变慢——你三年前的笔记本电脑或手机不会像你第一次打开盒子时那样有弹性了。但是造成这种不可避免的不景气的因素是什么呢？你的宝贝设备只是简单地磨损了吗？
 

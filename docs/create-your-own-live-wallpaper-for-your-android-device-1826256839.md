@@ -1,6 +1,6 @@
 # 用“KLWP”为你的 Android 设备创建你自己的动态壁纸
 
-> 原文:[https://life hacker . com/create-your-own-live-wallpaper-for-your-Android-device-1826256839](https://lifehacker.com/create-your-own-live-wallpaper-for-your-android-device-1826256839)
+> 原文：<https://lifehacker.com/create-your-own-live-wallpaper-for-your-android-device-1826256839>
 
 安卓:没人喜欢无聊的主屏幕。虽然你可以在 Android 中获得一些默认选项来美化你的设备，但如果你建立自己的动态壁纸，你可以获得更多的创意。 [KLWP 动态壁纸制作商](https://play.google.com/store/apps/details?id=org.kustom.wallpaper&hl=en_US) 是一款完美的“天空是极限”应用，因为它的实用性与你愿意花多少时间制作你梦想中的动态壁纸直接相关。
 

@@ -1,6 +1,6 @@
 # 你过度组织了什么？
 
-> 原文:[https://lifehacker.com/what-do-you-over-organize-1822553335](https://lifehacker.com/what-do-you-over-organize-1822553335)
+> 原文：<https://lifehacker.com/what-do-you-over-organize-1822553335>
 
 我们小时候就开始分类东西:风火轮、铅笔、班上最可爱的男孩。我们把房间整理得井井有条，当父母把它们弄乱时，我们会生气。而我们随着成长也养成了新的排序习惯，有些有用(按时间顺序排列的税务文件)，有些尴尬(按字母顺序排列的瓶瓶罐罐的辣酱)。
 

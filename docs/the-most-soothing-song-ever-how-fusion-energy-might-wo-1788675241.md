@@ -1,6 +1,6 @@
 # 有史以来最舒缓的歌曲，融合能源如何工作，以及最好的视频卡
 
-> 原文:[https://life hacker . com/the-most-browsing-song-ever-how-fusion-energy-pow-wo-1788675241](https://lifehacker.com/the-most-soothing-song-ever-how-fusion-energy-might-wo-1788675241)
+> 原文：<https://lifehacker.com/the-most-soothing-song-ever-how-fusion-energy-might-wo-1788675241>
 
 本周我们来看看一些最糟糕的“哎呀！”历史时刻，运行一些伟大的图形处理器和外设，谈论融合能源可能如何工作，以及一些舒缓的曲调，希望压力较小的一周。
 

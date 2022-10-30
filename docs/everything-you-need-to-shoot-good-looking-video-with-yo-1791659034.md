@@ -1,6 +1,6 @@
 # 用 iPhone 拍摄好看视频所需的一切
 
-> 原文:[https://life hacker . com/everything-you-1791659034](https://lifehacker.com/everything-you-need-to-shoot-good-looking-video-with-yo-1791659034)
+> 原文：<https://lifehacker.com/everything-you-need-to-shoot-good-looking-video-with-yo-1791659034>
 
 如果你有一部 iPhone，你已经拥有了制作专业视频所需的一切。无论你只是涉猎还是视频奇才，你都可以 [拍出好看的视频](https://lifehacker.com/how-can-i-shoot-better-video-on-my-smartphone-5933663) 让人不会相信你用了手机。以下是方法。
 

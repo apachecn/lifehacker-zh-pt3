@@ -1,6 +1,6 @@
 # 如何在没有父母贷款的情况下支付大学学费
 
-> 原文:[https://life hacker . com/how-to-pay-for-college-without-take-out-parent-plus-l-1826003829](https://lifehacker.com/how-to-pay-for-college-without-taking-out-parent-plus-l-1826003829)
+> 原文：<https://lifehacker.com/how-to-pay-for-college-without-taking-out-parent-plus-l-1826003829>
 
 年长的美国人比以往任何时候都有更多的学生贷款债务，但在许多情况下，这并不是因为他们自己的高等教育费用。根据 [消费者金融保护局](https://files.consumerfinance.gov/f/documents/201701_cfpb_OA-Student-Loan-Snapshot.pdf) 的一份报告，2005 年至 2015 年间，60 岁及以上的美国学生贷款人数翻了两番，从 70 万增至 280 万，大多数贷款惠及子孙。
 

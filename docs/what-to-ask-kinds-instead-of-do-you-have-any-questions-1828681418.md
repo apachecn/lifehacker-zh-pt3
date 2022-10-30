@@ -1,6 +1,6 @@
 # 问孩子什么而不是“你有什么问题吗？”
 
-> 原文:[https://life hacker . com/what-to-quest-kinds-inst-do-you-any-questions-1828681418](https://lifehacker.com/what-to-ask-kinds-instead-of-do-you-have-any-questions-1828681418)
+> 原文：<https://lifehacker.com/what-to-ask-kinds-instead-of-do-you-have-any-questions-1828681418>
 
 当孩子 2 岁、3 岁和 4 岁时，他们的问题层出不穷——学龄前儿童平均每天问父母[100 个问题](https://www.newsweek.com/creativity-crisis-74665) 。(我女儿似乎在开车去学校的路上问了这么多——*汽车是如何保持在队列中的？谁让灯变色的？他们为什么不建一堵墙，这样自行车就不会被撞到了？为什么摩托车可以走在我们前面？这些天她非常了解街道交通的内部运作。)* 
 

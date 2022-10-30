@@ -1,6 +1,6 @@
 # 使用“Sizer”将您的 Windows 应用程序调整到您想要的任何尺寸
 
-> 原文:[https://life hacker . com/resize-your-windows-apps-to-any-dimensions-you-want-wit-1828124695](https://lifehacker.com/resize-your-windows-apps-to-any-dimensions-you-want-wit-1828124695)
+> 原文：<https://lifehacker.com/resize-your-windows-apps-to-any-dimensions-you-want-wit-1828124695>
 
 **Windows:** 距离我们谈论 Windows 应用 [**Sizer**](http://www.brianapps.net/sizer4/) 已经很久很久了，最近对 [进行了重写，使](http://www.brianapps.net/sizer4/moredetails.html) 与 Windows 10 应用更加兼容。考虑到这个小工具的有用性，这几乎是令人尴尬的。只需按几个键盘按钮，你就可以将应用程序在屏幕上的大小重新配置为你想要的任何尺寸，从而比 Windows 10 的默认命令更好地控制应用程序的显示方式。
 

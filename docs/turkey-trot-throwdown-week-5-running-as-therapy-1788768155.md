@@ -1,6 +1,6 @@
 # 土耳其小跑投掷，第 6 周:跑步作为治疗
 
-> 原文:[https://life hacker . com/turkey-trot-throw down-week-5-running-as-therapy-1788768155](https://lifehacker.com/turkey-trot-throwdown-week-5-running-as-therapy-1788768155)
+> 原文：<https://lifehacker.com/turkey-trot-throwdown-week-5-running-as-therapy-1788768155>
 
 在这一周的比赛中，我们将稍微偏离我们关注目标的话题，比如让[更快](http://vitals.lifehacker.com/turkey-trot-throwdown-week-3-try-this-mini-speed-work-1787929719)[调整我们的齿轮](http://vitals.lifehacker.com/turkey-trot-throwdown-week-5-take-off-your-underwear-1788489684) 。相反，我们要用这个技能来达到一个不同的额外目的:减压。
 

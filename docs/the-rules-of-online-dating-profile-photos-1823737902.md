@@ -1,6 +1,6 @@
 # 网上约会简介照片的规则
 
-> 原文:[https://life hacker . com/the-rules-of-online-dating-profile-photos-1823737902](https://lifehacker.com/the-rules-of-online-dating-profile-photos-1823737902)
+> 原文：<https://lifehacker.com/the-rules-of-online-dating-profile-photos-1823737902>
 
 有些人遇到问题，需要合格的专业人士给予微妙的建议。其他人只需要在网上随便找一个人踢他们的牙齿(当然，要诚实)。我是后者。欢迎回到 [彪悍的爱情](http://lifehacker.com/tag/tough-love#_ga=2.269169905.1295021153.1516057126-819016074.1513967708) 。
 

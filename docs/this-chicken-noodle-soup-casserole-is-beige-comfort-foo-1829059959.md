@@ -1,6 +1,6 @@
 # 这道砂锅鸡汤面是米色的最佳美食
 
-> 原文:[https://life hacker . com/this-chicken-noodle-soup-砂锅-is-beige-comfort-foo-1829059959](https://lifehacker.com/this-chicken-noodle-soup-casserole-is-beige-comfort-foo-1829059959)
+> 原文：<https://lifehacker.com/this-chicken-noodle-soup-casserole-is-beige-comfort-foo-1829059959>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅菜。今天，我们将令人欣慰的鸡肉面汤，并将其转化为一种更奶油，更易于舀取的版本，配以盐浇头。
 

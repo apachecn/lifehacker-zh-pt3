@@ -1,6 +1,6 @@
 # 如果你有 iPhone，现在就这么做——以防你被警察拦下
 
-> 原文:[https://www . the root . com/if-you-a-one-do-this-right-now-just-in-case-1829534489](https://www.theroot.com/if-you-have-an-iphone-do-this-right-now-just-in-case-1829534489)
+> 原文：<https://www.theroot.com/if-you-have-an-iphone-do-this-right-now-just-in-case-1829534489>
 
 iPhone 用户已经创建了一些快捷方式，允许苹果的旗舰产品自动录制视频，向紧急联系人发送位置短信，甚至阻止警察进入手机——以防 iPhone 用户与执法人员进行互动。
 

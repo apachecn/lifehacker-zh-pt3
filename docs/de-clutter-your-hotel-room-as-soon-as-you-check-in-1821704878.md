@@ -1,6 +1,6 @@
 # 一登记入住，就把你的酒店房间收拾干净
 
-> 原文:[https://life hacker . com/de-clutter-your-hotel-room as only-your-check-in-1821704878](https://lifehacker.com/de-clutter-your-hotel-room-as-soon-as-you-check-in-1821704878)
+> 原文：<https://lifehacker.com/de-clutter-your-hotel-room-as-soon-as-you-check-in-1821704878>
 
 一个酒店房间，不管设备多么好，都是一个疏远的梦想空间。你应该在这个由别人设计、布置和填充的地方做你所有最私密的事情。你需要把它变成你自己的。听听 [设计师兼国际旅行家卡里姆·拉希德](https://www.bloomberg.com/news/articles/2017-05-25/the-first-thing-to-do-when-you-enter-a-hotel-room-and-other-travel-tips) :
 

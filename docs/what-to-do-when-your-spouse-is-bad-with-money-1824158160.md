@@ -1,6 +1,6 @@
 # 当你的配偶不善于理财时该怎么办
 
-> 原文:[https://life hacker . com/当你的配偶缺钱时该怎么办-1824158160](https://lifehacker.com/what-to-do-when-your-spouse-is-bad-with-money-1824158160)
+> 原文：<https://lifehacker.com/what-to-do-when-your-spouse-is-bad-with-money-1824158160>
 
 感谢大家本周提出关于家庭和财务的问题。在发送的电子邮件和发布的评论中，与配偶谈论他们的金钱习惯、抑制冲动消费和预算是常见的线索。有很多要讨论的，我将在未来几周内讨论更多。
 

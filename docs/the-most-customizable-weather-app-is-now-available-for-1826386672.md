@@ -1,6 +1,6 @@
 # 最具可定制性的天气应用程序现在可以在 Android 上使用了
 
-> 原文:[https://life hacker . com/the-most-customized-weather-app-is-now-available-for-1826386672](https://lifehacker.com/the-most-customizable-weather-app-is-now-available-for-1826386672)
+> 原文：<https://lifehacker.com/the-most-customizable-weather-app-is-now-available-for-1826386672>
 
 在 iOS 和 Mac 上以多嘴著称的天气应用程序胡萝卜天气(Carrot Weather)现在在安卓(Android)上处于测试阶段。该应用以讽刺的方式报告天气，对来自*门户*的滥用人工智能表现平平。谢天谢地，你可以切换到“专业”模式，不受干扰地享受一个复杂的，可定制的天气应用程序。
 

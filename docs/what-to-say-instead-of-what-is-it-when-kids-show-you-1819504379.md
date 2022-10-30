@@ -1,6 +1,6 @@
 # 用什么来代替“这是什么？”当孩子们向你展示他们的作品时
 
-> 原文:[https://life hacker . com/what-to-say-not-what-it-when-kids-show-you-1819504379](https://lifehacker.com/what-to-say-instead-of-what-is-it-when-kids-show-you-1819504379)
+> 原文：<https://lifehacker.com/what-to-say-instead-of-what-is-it-when-kids-show-you-1819504379>
 
 当小孩子创作一件艺术品时——比如一幅素描、一幅油画或者一件管道清洁器雕塑——成年人通常会有两种不同的反应。那边那个不吝溢美之词，“太漂亮了！你真是个了不起的艺术家！让我们把这幅杰作挂在墙上吧！”或者是茫然的凝视和问题:“这是什么？”
 

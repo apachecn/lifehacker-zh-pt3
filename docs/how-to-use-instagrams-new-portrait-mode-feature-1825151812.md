@@ -1,6 +1,6 @@
 # 如何使用 Instagram 的新“肖像模式”功能
 
-> 原文:[https://life hacker . com/how-to-use-instagrams-new-portrait-mode-feature-1825151812](https://lifehacker.com/how-to-use-instagrams-new-portrait-mode-feature-1825151812)
+> 原文：<https://lifehacker.com/how-to-use-instagrams-new-portrait-mode-feature-1825151812>
 
 “ [人像模式](https://lifehacker.com/remains-of-the-day-apples-new-portrait-mode-for-iphone-1786963746) ”自苹果推出 iPhone 7 Plus 以来就已经存在，而 [散景式摄影](https://lifehacker.com/create-your-own-bokeh-for-beautiful-photo-effects-5142551) 在那之前很久就已经存在了。如今， [大多数高端智能手机](https://www.zdnet.com/article/smartphone-portrait-mode-shootout-eight-phones-starting-at-200-challenge-the-1000-apple-iphone-x/) 都带有某种背景模糊相机模式。如今，Instagram 也加入了这一行列。
 

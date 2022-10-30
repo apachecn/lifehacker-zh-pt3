@@ -1,6 +1,6 @@
 # 赌场赌博初学者指南
 
-> 原文:[https://life hacker . com/the-初学者赌场赌博指南-1797937725](https://lifehacker.com/the-beginners-guide-to-casino-gambling-1797937725)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-casino-gambling-1797937725>
 
 我 21 岁生日那天做的第一件事就是去玩几手 21 点，从那以后我就一直玩下去。我不是豪赌客，但我知道赌场的规矩。如果你不知道从哪里开始，让我来帮你。
 

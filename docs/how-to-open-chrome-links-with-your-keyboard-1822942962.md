@@ -1,6 +1,6 @@
 # 如何用键盘打开 Chrome 链接
 
-> 原文:[https://life hacker . com/how-to-open-chrome-links-with-your-keyboard-1822942962](https://lifehacker.com/how-to-open-chrome-links-with-your-keyboard-1822942962)
+> 原文：<https://lifehacker.com/how-to-open-chrome-links-with-your-keyboard-1822942962>
 
 我们在 2010 年和 2012 年 的 [中写过关于](https://lifehacker.com/make-chrome-less-distracting-with-vimium-and-these-set-5925220) [Vimium](https://chrome.google.com/webstore/detail/vimium/dbepggeogbaibhgnhhndojpepiihcmeb?hl=en) 的 Chrome 扩展，它增加了可定制的键盘快捷键。但我认为我们埋葬了 lede:如果你安装了 Vimium，你可以不用鼠标打开链接，也不用一遍又一遍地按 tab 键。如果你经常浏览网页，除了点击链接，你可能什么都用键盘。现在你可以一次忽略你的鼠标几分钟。
 

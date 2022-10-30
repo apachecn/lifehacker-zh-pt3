@@ -1,6 +1,6 @@
 # 你在国外吃过的最喜欢的快餐是什么？
 
-> 原文:[https://life hacker . com/whats-you-favorite-fast-food-item-you have-have-over-happed-1823080487](https://lifehacker.com/whats-your-favorite-fast-food-item-youve-had-abroad-1823080487)
+> 原文：<https://lifehacker.com/whats-your-favorite-fast-food-item-youve-had-abroad-1823080487>
 
 我通常会第一个告诉你，当你去另一个国家旅行时，你应该 [尽情享受*真正的*当地美食](https://lifehacker.com/how-to-eat-street-food-anywhere-in-the-world-without-ge-1796426321) 。这是一种文化最重要的方面之一。但是我也会第一个告诉你，你完全应该去看看其他国家的快餐连锁店。他们太棒了！如果有，你最喜欢的在美国买不到的东西是什么？
 

@@ -1,6 +1,6 @@
 # 30 本针对受训积极分子的青少年书籍
 
-> 原文:[https://life hacker . com/30-young-adult-books-for-activities-in-training-1793619402](https://lifehacker.com/30-young-adult-books-for-activists-in-training-1793619402)
+> 原文：<https://lifehacker.com/30-young-adult-books-for-activists-in-training-1793619402>
 
 孩子们越早意识到他们可以参与到事情中，并且有能力让事情变得更好。这些书都是给年轻人看的，在他们的故事中突出了激进主义和反抗。
 

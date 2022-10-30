@@ -1,6 +1,6 @@
 # 一个 App 真的能解决你的心理健康问题吗？
 
-> 原文:[https://life hacker . com/1792676567](https://lifehacker.com/can-you-really-solve-your-mental-health-problems-with-a-1792676567)
+> 原文：<https://lifehacker.com/can-you-really-solve-your-mental-health-problems-with-a-1792676567>
 
 如果你正在和焦虑或抑郁这样的问题做斗争，约见专业人士可能是你最不想做的事情。应用程序和在线服务承诺只需轻点几下鼠标就能获得帮助，在某些情况下，它们可能是你的正确选择。
 

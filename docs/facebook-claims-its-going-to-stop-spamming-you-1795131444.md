@@ -1,6 +1,6 @@
 # 脸书声称它将停止向你发送垃圾邮件
 
-> 原文:[https://life hacker . com/Facebook-claims-its-going-to-stop-spamming-you-1795131444](https://lifehacker.com/facebook-claims-its-going-to-stop-spamming-you-1795131444)
+> 原文：<https://lifehacker.com/facebook-claims-its-going-to-stop-spamming-you-1795131444>
 
 你的脸书新闻订阅又要改变了，这是因为这个社交媒体巨头想让你获得更多信息。
 

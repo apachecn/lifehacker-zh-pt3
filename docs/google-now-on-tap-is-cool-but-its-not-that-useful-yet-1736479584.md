@@ -1,6 +1,6 @@
 # Google Now On Tap 很酷，但还没那么有用
 
-> 原文:[https://life hacker . com/Google-now-on-tap-is cool-but-it ' s-that-used-that-yet-1736479584](https://lifehacker.com/google-now-on-tap-is-cool-but-its-not-that-useful-yet-1736479584)
+> 原文：<https://lifehacker.com/google-now-on-tap-is-cool-but-its-not-that-useful-yet-1736479584>
 
 谷歌新的 Now On Tap 功能无疑是安卓棉花糖最酷的新功能之一。现在它出来了，我们决定试一试，看看效果如何。结果是:谷歌还有很长的路要走。
 

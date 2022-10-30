@@ -1,6 +1,6 @@
 # 2018 年奥运会花样滑冰:你需要知道的一切
 
-> 原文:[https://life hacker . com/figure-skating-at-the-2018-Olympics-everything-you-nee-1822916540](https://lifehacker.com/figure-skating-at-the-2018-olympics-everything-you-nee-1822916540)
+> 原文：<https://lifehacker.com/figure-skating-at-the-2018-olympics-everything-you-nee-1822916540>
 
 奥运会在这里举行。你可能会说，在你有机会真正研究平昌到底发生了什么之前，他们就悄悄靠近了你。如果你*可能*会这么说，这本小抄可能对你学习花样滑冰有所帮助。
 

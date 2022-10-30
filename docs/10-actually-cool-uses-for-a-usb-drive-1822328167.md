@@ -1,6 +1,6 @@
 # USB 驱动器的 10 个真正酷的用途
 
-> 原文:[https://gizmodo . com/10-actually-cool-uses-for-a-USB-drive-1822328167](https://gizmodo.com/10-actually-cool-uses-for-a-usb-drive-1822328167)
+> 原文：<https://gizmodo.com/10-actually-cool-uses-for-a-usb-drive-1822328167>
 
 不起眼的 USB 驱动器——被下载和云同步取代，但在各种方面仍然有用。如果你有一个旧硬盘，这里有一些方法可以让你使用它，而不仅仅是与你的妈妈 分享旧照片。
 

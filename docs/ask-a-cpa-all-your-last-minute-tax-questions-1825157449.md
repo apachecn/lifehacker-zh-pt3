@@ -1,6 +1,6 @@
 # 询问注册会计师你所有最后一刻的税务问题
 
-> 原文:[https://life hacker . com/ask-a-CPA-all-your-last-minute-tax-questions-1825157449](https://lifehacker.com/ask-a-cpa-all-your-last-minute-tax-questions-1825157449)
+> 原文：<https://lifehacker.com/ask-a-cpa-all-your-last-minute-tax-questions-1825157449>
 
 下周二是纳税日，但如果你还没有申报 ，你还有时间问注册会计师兼 TaxSlayer 的高级税务顾问马克·科勒，直到今天下午 1 点你所有的问题。
 

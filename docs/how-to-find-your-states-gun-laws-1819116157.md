@@ -1,6 +1,6 @@
 # 如何找到你所在州的枪支法
 
-> 原文:[https://life hacker . com/how-to-find-your-States-gun-laws-1819116157](https://lifehacker.com/how-to-find-your-states-gun-laws-1819116157)
+> 原文：<https://lifehacker.com/how-to-find-your-states-gun-laws-1819116157>
 
 各州之间的枪支法律差异很大，当你只是在你所在州的密集立法信息中挖掘时，很难找到这些法律。如果你想知道在你住的地方应该如何使用枪支，你可以这么做。
 

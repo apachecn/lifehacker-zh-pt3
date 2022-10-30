@@ -1,6 +1,6 @@
 # 我是 Marcin Kleczynski，这是 Malwarebytes 背后的故事
 
-> 原文:[https://life hacker . com/im-marcin-kleczynski-and-this-is-the-story-behind-malw-1766148437](https://lifehacker.com/im-marcin-kleczynski-and-this-is-the-story-behind-malw-1766148437)
+> 原文：<https://lifehacker.com/im-marcin-kleczynski-and-this-is-the-story-behind-malw-1766148437>
 
 14 岁时，Marcin Kleczynski 遇到了一个问题:在从可疑的在线来源下载视频游戏后，他不小心让家里的电脑感染了恶意软件。我们当中谁没有面对过这种明显的书呆子式的青少年危机？
 

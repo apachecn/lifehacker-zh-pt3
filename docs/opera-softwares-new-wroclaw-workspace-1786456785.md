@@ -1,6 +1,6 @@
 # Opera Software 的新弗罗茨瓦夫工作区
 
-> 原文:[https://life hacker . com/opera-software-new-wroclaw-workspace-1786456785](https://lifehacker.com/opera-softwares-new-wroclaw-workspace-1786456785)
+> 原文：<https://lifehacker.com/opera-softwares-new-wroclaw-workspace-1786456785>
 
 当 Opera Software 想要在波兰弗罗茨瓦夫建立一个办公室时，他们想要一个漂亮的办公空间，同时重申他们对减少电子垃圾和环境友好的承诺。这是一个非常棒的结果，他们非常友好地给我们发了很多照片来分享。
 

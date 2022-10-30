@@ -1,6 +1,6 @@
 # 如果你有孩子，如何选择最完美的狗
 
-> 原文:[https://life hacker . com/how-to-choose the perfect-dog-if you-hacked-1818631578](https://lifehacker.com/how-to-choose-the-perfect-dog-if-you-have-kids-1818631578)
+> 原文：<https://lifehacker.com/how-to-choose-the-perfect-dog-if-you-have-kids-1818631578>
 
 多年来，我一直被认为是一个“爱猫的人”，但最近我的家人认为是时候给我们的家庭增加另一个物种了:一只狗。我们最终得到了一只软毛小麦梗小狗，我们不能更爱他了。他是一个精力充沛的球，他将是一个中等到大的体型(大约 30-40 磅)，他超级友好(他给每个人“小麦问候”)，很受孩子们的欢迎。他不脱毛。他可能不是每个人的完美狗(精力充沛，毛发整齐)，但他是我们最合适的狗。通过一些研究和尽职调查，你也可以找到你的完美伴侣。
 

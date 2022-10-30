@@ -1,6 +1,6 @@
 # 也许等着买新的 MacBook 吧
 
-> 原文:[https://life hacker . com/maybe-wait-to-buy-a-new-macbook-1827550873](https://lifehacker.com/maybe-wait-to-buy-a-new-macbook-1827550873)
+> 原文：<https://lifehacker.com/maybe-wait-to-buy-a-new-macbook-1827550873>
 
 苹果公司今天发布了一些重大消息:它不再销售 2015 款 MacBook Pro，这意味着你不能从苹果公司购买 MacBook Pro——其键盘~~不烂~~不 [有问题](https://gizmodo.com/apple-might-have-finally-fixed-that-macbook-pro-keyboar-1827540134) 。
 

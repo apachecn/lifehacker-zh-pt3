@@ -1,6 +1,6 @@
 # 用这些建议和项目打造完美的夏日假期
 
-> 原文:[https://life hacker . com/craft-the-perfect-day off with thes-tips-and-tricks-648767163](https://lifehacker.com/craft-the-perfect-day-off-with-these-tips-and-tricks-648767163)
+> 原文：<https://lifehacker.com/craft-the-perfect-day-off-with-these-tips-and-tricks-648767163>
 
 休假一天是福也是祸。精心安排的一天(或两天)休假可以给你充电，帮助你重新开始工作。但是做错了，最后会无聊一天。考虑到这一点，这里有一些方法可以让你充分利用 7 月 4 日。
 

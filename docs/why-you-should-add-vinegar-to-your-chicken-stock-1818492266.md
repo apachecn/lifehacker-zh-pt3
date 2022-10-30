@@ -1,6 +1,6 @@
 # 为什么你应该在鸡汤里加醋
 
-> 原文:[https://life hacker . com/why-you-should-add-醋到你的鸡汤-1818492266](https://lifehacker.com/why-you-should-add-vinegar-to-your-chicken-stock-1818492266)
+> 原文：<https://lifehacker.com/why-you-should-add-vinegar-to-your-chicken-stock-1818492266>
 
 秋天是在家做鸡汤的最佳时间——你最终会有一个闻起来像汤的房子和满满一锅美味的肉汤。无论你是用新鲜的原料还是储存的下脚料做鸡汤，有一种秘密的原料会让你的鸡汤格外丰富美味。
 

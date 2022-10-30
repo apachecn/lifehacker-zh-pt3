@@ -1,6 +1,6 @@
 # 早餐吃非早餐三明治的理由
 
-> 原文:[https://life hacker . com/the-case-for-eating-non-breakf-1828496043](https://lifehacker.com/the-case-for-eating-non-breakfast-sandwiches-for-breakf-1828496043)
+> 原文：<https://lifehacker.com/the-case-for-eating-non-breakfast-sandwiches-for-breakf-1828496043>
 
 我早上有两件事:生气和恶心。我一直都是这样，甚至在年轻的时候也是这样，这使得在早上 7 点开始物理化学变得更加困难。早餐煎一个鸡蛋根本不是一个选择，但我会在讲座期间非常饿，以至于我会把午餐(通常是火腿三明治)作为早餐。
 

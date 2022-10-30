@@ -1,6 +1,6 @@
 # 转换您的 iOS 照片和视频，以获得更好的兼容性
 
-> 原文:[https://life hacker . com/convert-your-IOs-photos-and-videos-for-better-compatibi-1822156384](https://lifehacker.com/convert-your-ios-photos-and-videos-for-better-compatibi-1822156384)
+> 原文：<https://lifehacker.com/convert-your-ios-photos-and-videos-for-better-compatibi-1822156384>
 
 iOS:如果你试图在 iPhone 以外的任何设备上管理照片和视频，你可能会遇到兼容性问题，无法打开、上传或编辑特定文件。这要归功于苹果新的节省空间的 HEIF 图像和 HEVC 视频文件格式，与旧的 JPEG 和 H.264 格式相比，这种格式节省了空间，尽管如果你根本无法打开文件，它们也没有什么好处。在更多的公司找到如何支持新标准之前，你可以坚持使用经过检验的真实图像和视频格式。
 

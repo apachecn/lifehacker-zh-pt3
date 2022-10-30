@@ -1,6 +1,6 @@
 # 告诉我们你的硅谷秘诀
 
-> 原文:[https://life hacker . com/tell-us-your-silicon-valley-tips-1824032870](https://lifehacker.com/tell-us-your-silicon-valley-tips-1824032870)
+> 原文：<https://lifehacker.com/tell-us-your-silicon-valley-tips-1824032870>
 
 是这个地方，不是这个节目。在本周的《黑客城市》节目中，我们将覆盖从圣克拉拉县到圣马特奥县的整个地区——任何你认为是硅谷的地方(除了旧金山， [，我们已经覆盖了](https://lifehacker.com/your-best-san-francisco-hacks-1818964278) )。
 

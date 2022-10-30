@@ -1,6 +1,6 @@
 # 克服微分手，Windows 10 创建者更新，云中的免费 VPN，以及 MOAB 的意义
 
-> 原文:[https://life hacker . com/getting-over-micro-breakups-the-windows-10-creators-up-1794354437](https://lifehacker.com/getting-over-micro-breakups-the-windows-10-creators-up-1794354437)
+> 原文：<https://lifehacker.com/getting-over-micro-breakups-the-windows-10-creators-up-1794354437>
 
 本周我们看了新的 Windows 10 Creators 更新中所有很酷的东西，使用云服务制作了我们自己的 VPN，解释了我们听到的所有可怕的武器，并学会了克服小分手。下面回顾一下本周最受欢迎的帖子。
 

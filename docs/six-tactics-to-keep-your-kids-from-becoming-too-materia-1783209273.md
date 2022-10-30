@@ -1,6 +1,6 @@
 # 防止你的孩子变得过于物质的六个策略
 
-> 原文:[https://life hacker . com/six-tactics-to-keep your-children-to-be-too-material-1783209273](https://lifehacker.com/six-tactics-to-keep-your-kids-from-becoming-too-materia-1783209273)
+> 原文：<https://lifehacker.com/six-tactics-to-keep-your-kids-from-becoming-too-materia-1783209273>
 
 所有的父母都希望他们的孩子在成长过程中明白，生活中最美好的东西都是免费的，幸福与积累无关。然而，让孩子们掌握这些概念比以往更加复杂。
 

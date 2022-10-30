@@ -1,6 +1,6 @@
 # Lord & Taylor & Saks 第五大道的 500 多万个卡号被盗
 
-> 原文:[https://life hacker . com/超过 500 万张卡号被盗自 lord-tay-1824245615](https://lifehacker.com/more-than-5-million-card-numbers-stolen-from-lord-tay-1824245615)
+> 原文：<https://lifehacker.com/more-than-5-million-card-numbers-stolen-from-lord-tay-1824245615>
 
 如果你最近在第五商店附近的萨克斯第五大道精品百货店(Saks Fifth Avenue)使用了你的信用卡或借记卡，你可能要开始密切关注你的报表(不管你在哪里购物，你都应该关注)。
 

@@ -1,6 +1,6 @@
 # 鲣鱼片是鲜味神的礼物
 
-> 原文:[https://life hacker . com/bonito-flakes-are-a-gift-from-the-umami-gods-1826607204](https://lifehacker.com/bonito-flakes-are-a-gift-from-the-umami-gods-1826607204)
+> 原文：<https://lifehacker.com/bonito-flakes-are-a-gift-from-the-umami-gods-1826607204>
 
 每当我提到鲣鱼片的时候，无论是在网上还是在这个叫做“真实生活”的东西里，一个善意的人会说“我以为那是给猫吃的。”虽然猫确实会觉得它们非常令人愉快，但这些羽毛般美味的烟熏薄片最受人类的喜爱，人类更有能力欣赏这种充满鲜味的美味。
 

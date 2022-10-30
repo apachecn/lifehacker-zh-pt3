@@ -1,6 +1,6 @@
 # 去国外上大学其实可以省钱
 
-> 原文:[https://life hacker . com/you-can-actually-save money by-to-college-out-1794274780](https://lifehacker.com/you-can-actually-save-money-by-going-to-college-abroad-1794274780)
+> 原文：<https://lifehacker.com/you-can-actually-save-money-by-going-to-college-abroad-1794274780>
 
 我们都想在大学里有那种“通过旅行发现自我”的体验，但是去国外上学似乎是一个不可能的、昂贵的梦想。令人惊讶的是，由于美国 的学费上涨，在某些情况下反而更便宜。但先别急着上飞机。有许多变量需要考虑。
 

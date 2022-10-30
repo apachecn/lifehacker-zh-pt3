@@ -1,6 +1,6 @@
 # Splenda、Sweet 和 Low、Equal 和 Stevia 之间的区别
 
-> 原文:[https://life hacker . com/the-difference-between-splenda-sweet-and-low-equal-a-1789220391](https://lifehacker.com/the-difference-between-splenda-sweet-and-low-equal-a-1789220391)
+> 原文：<https://lifehacker.com/the-difference-between-splenda-sweet-and-low-equal-a-1789220391>
 
 去大多数餐馆，你会发现桌子上的一个容器里有一些不同的糖，装在五颜六色的袋子里。当然，它们都应该让你的食物或饮料更甜，但是黄色的和红色的有什么区别呢？它们中有哪一种真的比糖对你更好吗？
 

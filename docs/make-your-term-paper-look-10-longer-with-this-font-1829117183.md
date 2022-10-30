@@ -1,6 +1,6 @@
 # 用这种字体让你的学期论文看起来长 10%
 
-> 原文:[https://life hacker . com/make-your-term-paper-look-10-longer-with-this-font-1829117183](https://lifehacker.com/make-your-term-paper-look-10-longer-with-this-font-1829117183)
+> 原文：<https://lifehacker.com/make-your-term-paper-look-10-longer-with-this-font-1829117183>
 
 听我一个职业作家说:学校和大学教会你不良的写作习惯。其中一个坏习惯是为了达到最小页数而增加你的作品。你通过让更少的文本看起来更多来“欺骗”你的页数，这是一种高尚的反叛行为。新字体 [倍新的罗马](https://timesnewerroman.com/) 是一个优秀的，难以检测的填充工具。
 

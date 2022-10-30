@@ -1,6 +1,6 @@
 # 最脏的动物是什么？
 
-> 原文:[https://gizmodo.com/whats-the-filthiest-animal-1823694543](https://gizmodo.com/whats-the-filthiest-animal-1823694543)
+> 原文：<https://gizmodo.com/whats-the-filthiest-animal-1823694543>
 
 自从 19 世纪以来，当疾病首次与污水污染的水联系在一起时，人类已经竭尽全力逃避自己的污物。与此同时，动物们继续沉迷于这种东西——吃它，有策略地扔掉它，扔来扔去只是为了打发时间，等等。泥、尿、呕吐物、血以及各种品牌和年份的腐烂尸体也是如此。大多数生物都没有我们的烦恼。
 

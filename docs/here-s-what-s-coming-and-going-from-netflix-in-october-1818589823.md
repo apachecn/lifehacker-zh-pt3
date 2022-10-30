@@ -1,6 +1,6 @@
 # 以下是 2017 年 10 月网飞发生的事情
 
-> 原文:[https://life hacker . com/here-s-what-s-coming-and-going-from-网飞-in-10-1818589823](https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-october-1818589823)
+> 原文：<https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-october-1818589823>
 
 今年最恐怖的一个月就要来了，这意味着网飞再次动摇了它的流媒体视频产品，增加了一些令人期待和完全恐怖的季节续集，同时将一些最受欢迎的电视喜剧节目踢到了路边。
 

@@ -1,6 +1,6 @@
 # 优先考虑你工作的 401(k)福利，而不是他们提供的学生贷款帮助
 
-> 原文:[https://life hacker . com/should-employees-help-pay-off-student-loans-of-1821784528](https://lifehacker.com/should-employers-help-pay-off-student-loans-instead-of-1821784528)
+> 原文：<https://lifehacker.com/should-employers-help-pay-off-student-loans-instead-of-1821784528>
 
 根据奥纬咨询(Oliver Wyman)的研究，美国人背负着约 1.48 万亿美元的学生贷款债务，约 70%获得学士学位的大学生通过贷款上大学。越来越受欢迎的员工福利可能有助于减轻这一负担，但它可能不像员工认为的那样划算。
 

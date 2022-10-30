@@ -1,6 +1,6 @@
 # 今天共和党的税收计划会带来什么
 
-> 原文:[https://life hacker . com/what-to-expect-from-the-Republican-tax-plan-today-1820076163](https://lifehacker.com/what-to-expect-from-the-republican-tax-plan-today-1820076163)
+> 原文：<https://lifehacker.com/what-to-expect-from-the-republican-tax-plan-today-1820076163>
 
 众议院共和党人今天将公布他们的税收计划，但是关于细节的报道已经开始流传。虽然没有什么是一成不变的，但他们想要做出的改变非常重要——根据《华尔街日报》的报道，这是“30 多年来美国税法的最大变革”。
 

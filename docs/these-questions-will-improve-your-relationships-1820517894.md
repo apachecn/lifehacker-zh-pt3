@@ -1,6 +1,6 @@
 # 这些问题会改善你的人际关系
 
-> 原文:[https://life hacker . com/these-questions-will-improve-your-relationships-1820517894](https://lifehacker.com/these-questions-will-improve-your-relationships-1820517894)
+> 原文：<https://lifehacker.com/these-questions-will-improve-your-relationships-1820517894>
 
 你和陌生人有过心灵相通的瞬间吗？我说的不是浪漫或性关系(虽然这些也很好)，而是更多的是你在街上经过时的一个快速微笑，或者在杂货店排队等候时分享的一个一次性笑话，或者其他一些简短的、共同的经历，让你觉得那个陌生人实际上很特别，在其他情况下，可以成为朋友？我喜欢那些为数不多的时刻，因为它们让我觉得潜在朋友的世界比我想象的要大。我一直想知道为什么那些时刻会发生——为什么它们发生在一个人身上而不是另一个人身上，或者发生在某个时间而不是另一个人身上。
 

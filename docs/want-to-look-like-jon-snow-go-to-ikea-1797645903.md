@@ -1,6 +1,6 @@
 # 如何用宜家地毯制作琼恩·雪诺斗篷
 
-> 原文:[https://life hacker . com/want-to-look-like-Jon-snow-go-IKEA-1797645903](https://lifehacker.com/want-to-look-like-jon-snow-go-to-ikea-1797645903)
+> 原文：<https://lifehacker.com/want-to-look-like-jon-snow-go-to-ikea-1797645903>
 
 我敢打赌，你和我一样，看了一眼《权力的游戏》中守夜人的斗篷，心想“该死，如果它们不是跳蚤猖獗，沾满死人的血，我会毫不犹豫地穿上它。我上哪儿去弄一件那样的斗篷？”你可以像时装秀的服装设计师一样，用该死的宜家的 [SKOLD](http://www.ikea.com/ca/en/catalog/products/80271380/) 和 [LUDDE](http://www.ikea.com/aa/en/catalog/products/90166468/) 羊皮地毯来制作你自己的斗篷。
 

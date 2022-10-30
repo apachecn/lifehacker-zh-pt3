@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:5 月 13 日至 20 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-may-13-to-20-1777780600](https://lifehacker.com/this-weeks-most-popular-posts-may-13th-to-20th-1777780600)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-may-13th-to-20th-1777780600>
 
 本周我们学到了很多东西，从谷歌在 I/O 大会上的最新技术发展，到你可能不知道可以在 Spotify 上播放的所有很酷的东西。这很方便，因为机场安检线比以往任何时候都长，所以我需要一些有声读物。让我们来回顾一下本周的热门帖子。
 

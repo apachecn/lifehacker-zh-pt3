@@ -1,6 +1,6 @@
 # 这种烤牛肉玉米煎饼砂锅是高雅的瘾君子的最爱
 
-> 原文:[https://life hacker . com/this-carne-asada-卷饼-砂锅-is-a-high-turn-stoner-1823079796](https://lifehacker.com/this-carne-asada-burrito-casserole-is-a-highbrow-stoner-1823079796)
+> 原文：<https://lifehacker.com/this-carne-asada-burrito-casserole-is-a-highbrow-stoner-1823079796>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅造物的专栏。这个星期我们终于做了由 [一位非常聪明的评论者](https://kinja.com/a-mcgee9-3) 建议的玉米煎饼，我们因此变得更好。
 

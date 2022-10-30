@@ -1,6 +1,6 @@
 # 这款升级版超级任天堂重新点燃了我对 16 位游戏的热爱
 
-> 原文:[https://gizmodo . com/this-upgraded-super-Nintendo-clone-rended-my-love-of-1822745707](https://gizmodo.com/this-upgraded-super-nintendo-clone-rekindled-my-love-of-1822745707)
+> 原文：<https://gizmodo.com/this-upgraded-super-nintendo-clone-rekindled-my-love-of-1822745707>
 
 几年前，我们回顾了一款名为“模拟 Nt”的升级版 NES 克隆产品 ，它有一个令人望而却步的 500 美元的铝制外壳。这是一个漂亮的硬件，但最终它只是提醒了我的同事 Adam Clark Estes 8 位 NES 游戏是多么简单和无聊。怀旧真的需要一个“你的结果可能会有所不同”的警告，因为我带着 [Super Nt](https://www.analogue.co/pages/super-nt/) 的记忆之旅，这是一款 190 美元的 SNES 克隆版，可以在现代高清电视上运行，反而提醒了我仍然多么喜欢 16 位游戏。
 

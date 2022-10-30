@@ -1,6 +1,6 @@
 # 大型活动前应对社交焦虑的技巧
 
-> 原文:[https://life hacker . com/tricks-for-coping-to-social-anxiety-before-a-big-even-1820185791](https://lifehacker.com/tricks-for-coping-with-social-anxiety-before-a-big-even-1820185791)
+> 原文：<https://lifehacker.com/tricks-for-coping-with-social-anxiety-before-a-big-even-1820185791>
 
 有很多人既渴望人际交往，又觉得这是一种充满社交陷阱的可怕经历。我们包含众多！如果你是那种即使真的想出门也很难出门的人，那就听听心理治疗师关于如何出门的建议吧。
 

@@ -1,6 +1,6 @@
 # 室内植物如何让你更整洁
 
-> 原文:[https://life hacker . com/how-house plants-can-make-you-more-tidy-1825226179](https://lifehacker.com/how-houseplants-can-make-you-more-tidy-1825226179)
+> 原文：<https://lifehacker.com/how-houseplants-can-make-you-more-tidy-1825226179>
 
 在家庭事务上，我并不总是最细心的人。你说你应该清洁吊扇、电灯开关和烤箱架是什么意思？谁会这么做？”所以你会认为室内植物是个糟糕的主意。
 

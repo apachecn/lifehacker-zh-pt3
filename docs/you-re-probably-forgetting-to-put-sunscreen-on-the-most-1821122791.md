@@ -1,6 +1,6 @@
 # 你可能忘了在脸上最容易患癌症的部位涂防晒霜
 
-> 原文:[https://life hacker . com/you-re-possible-forgot-to-put-the-most-1821122791](https://lifehacker.com/you-re-probably-forgetting-to-put-sunscreen-on-the-most-1821122791)
+> 原文：<https://lifehacker.com/you-re-probably-forgetting-to-put-sunscreen-on-the-most-1821122791>
 
 除非你确定你脸上的每一寸都涂上了防晒霜，否则坐下来。我们需要谈谈。
 

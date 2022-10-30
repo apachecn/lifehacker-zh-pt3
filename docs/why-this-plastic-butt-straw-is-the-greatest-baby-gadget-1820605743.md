@@ -1,6 +1,6 @@
 # 为什么这个塑料吸管是有史以来最棒的小玩意
 
-> 原文:[https://life hacker . com/why-this-plastic-butt-straw-is-the-great-baby-gadget-1820605743](https://lifehacker.com/why-this-plastic-butt-straw-is-the-greatest-baby-gadget-1820605743)
+> 原文：<https://lifehacker.com/why-this-plastic-butt-straw-is-the-greatest-baby-gadget-1820605743>
 
 在我儿子生命的前八个月，我追踪他小小的身体做的每一件小事。我指的是所有该死的事情。由于紧急剖腹产后早期母乳供应问题，一位哺乳顾问建议我记录他的喂养和尿布。它演变成了我痴迷地打开手机上的 Notes 应用程序，记下每一次哺乳和哺乳的细节，以及每一次小睡、小便、便便、微笑、咯咯笑、洗澡、看望祖父母、去杂货店购物等等。回过头来看，这可能是我处理产后焦虑的方式，但它让我敏锐地意识到我儿子的消化能力——以及缺乏消化能力。所以，当然，我还是知道我第一次帮儿子便便是 2016 年 2 月 8 日星期一的下午，当时他刚刚七周大。
 

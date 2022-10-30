@@ -1,6 +1,6 @@
 # 这是你第一次看到任天堂 Switch，任天堂的下一代游戏机
 
-> 原文:[https://kotaku . com/heres-your-first-look-at-the-NX-nintendos-upcoming-con-1788004927](https://kotaku.com/heres-your-first-look-at-the-nx-nintendos-upcoming-con-1788004927)
+> 原文：<https://kotaku.com/heres-your-first-look-at-the-nx-nintendos-upcoming-con-1788004927>
 
 女士们先生们，这个系统将取代 Wii U(可能还有 3DS)成为任天堂的主机。认识一下任天堂 Switch。它将于 2017 年 3 月推出。
 

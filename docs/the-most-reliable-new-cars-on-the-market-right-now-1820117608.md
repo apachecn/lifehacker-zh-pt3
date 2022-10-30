@@ -1,6 +1,6 @@
 # 目前市场上最可靠的新车
 
-> 原文:[https://life hacker . com/the-most-reliable-new-cars-on-market-now-1820117608](https://lifehacker.com/the-most-reliable-new-cars-on-the-market-right-now-1820117608)
+> 原文：<https://lifehacker.com/the-most-reliable-new-cars-on-the-market-right-now-1820117608>
 
 没有人想要一辆刚开出停车场就散架的车，但也没有人想要一辆需要终生不停维护的车。如果你在市场上购买一辆新车，并希望避免一辆柠檬车，这些车型看起来会持续很长时间。
 

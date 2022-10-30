@@ -1,6 +1,6 @@
 # 10 个简单的方法让你不假思索地吃得更健康
 
-> 原文:[https://life hacker . com/10-simple-ways-to-eat-healthy-without-thinking-1785610488](https://lifehacker.com/10-simple-ways-to-eat-healthier-without-thinking-1785610488)
+> 原文：<https://lifehacker.com/10-simple-ways-to-eat-healthier-without-thinking-1785610488>
 
 你的环境有不可思议的能力来塑造你的行为。如果你把你的环境设计成有利于健康习惯，那么你会发现自己甚至不用想就能改善你的饮食。
 

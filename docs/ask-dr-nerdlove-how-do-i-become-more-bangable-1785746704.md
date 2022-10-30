@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我如何变得更棒？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-be-more-bang able-1785746704](https://kotaku.com/ask-dr-nerdlove-how-do-i-become-more-bangable-1785746704)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-become-more-bangable-1785746704>
 
 你们好，所有的网上幽灵高潮水獭。欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，这个交友栏目可以教你如何超频你的爱情生活。
 

@@ -1,6 +1,6 @@
 # 如何备份您的 Gmail 和查看？MBOX 文件
 
-> 原文:[https://life hacker . com/how-to-back-up-your-Gmail-and-view-mbox-files-1827660389](https://lifehacker.com/how-to-back-up-your-gmail-and-view-mbox-files-1827660389)
+> 原文：<https://lifehacker.com/how-to-back-up-your-gmail-and-view-mbox-files-1827660389>
 
 你想备份你的 Gmail 账户有很多原因，比如:有一份你最重要的数据的备份是件好事；你即将被解雇，你想挽回你所做的一切；你会只是想要一点额外的保护，以防有人侵入你的账户并接管(或删除)。
 

@@ -1,6 +1,6 @@
 # 2015 年最受欢迎的 DIY 项目
 
-> 原文:[https://life hacker . com/most-popular-DIY-projects-of-of-2015-1746987752](https://lifehacker.com/most-popular-diy-projects-of-2015-1746987752)
+> 原文：<https://lifehacker.com/most-popular-diy-projects-of-2015-1746987752>
 
 我们总是在 Lifehacker 寻找最好的 DIY 技巧，今年当然不缺。当你想独自完成项目时，这里有一些最好的 DIY 技巧。
 

@@ -1,6 +1,6 @@
 # 如何在扔掉你的智能小工具之前把它们擦干净
 
-> 原文:[https://life hacker . com/how-to-wipe-your-smart-gadgets-before-you-摆脱 th-1829140525](https://lifehacker.com/how-to-wipe-your-smart-gadgets-before-you-get-rid-of-th-1829140525)
+> 原文：<https://lifehacker.com/how-to-wipe-your-smart-gadgets-before-you-get-rid-of-th-1829140525>
 
 你可能知道，在出售、捐赠或回收旧电脑和智能手机之前，你必须把它们擦干净。毕竟，你不希望任何人用你的二手小工具访问你的文档、登录凭证或任何个人信息。
 

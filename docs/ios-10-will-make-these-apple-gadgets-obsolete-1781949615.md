@@ -1,6 +1,6 @@
 # iOS 10 会让这些苹果小玩意过时
 
-> 原文:[https://gizmodo . com/IOs-10-will-make-these-apple-gadgets-obsolete-1781949615](https://gizmodo.com/ios-10-will-make-these-apple-gadgets-obsolete-1781949615)
+> 原文：<https://gizmodo.com/ios-10-will-make-these-apple-gadgets-obsolete-1781949615>
 
 iPhone 4s 于 2011 年作为 Siri 的硬件先锋推出，是苹果公司的一次重大软件飞跃。但是 iOS 10，其中 [甚至把](http://gizmodo.com/ios-10-everything-you-need-to-know-1781888060#_ga=1.58267817.289535885.1450363954) 集中到让 Siri 比以往更好上， [在 iPhone 4s 上就不行了](http://www.apple.com/ios/ios10-preview/) 。伤心！
 

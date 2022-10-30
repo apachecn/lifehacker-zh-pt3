@@ -1,6 +1,6 @@
 # 为什么“非线性”是新的“离线”
 
-> 原文:[https://life hacker . com/why-non line-is-the-new-offline-1795703705](https://lifehacker.com/why-nonline-is-the-new-offline-1795703705)
+> 原文：<https://lifehacker.com/why-nonline-is-the-new-offline-1795703705>
 
 当人们问我住在哪里时，我更可能会说“推特”，而不是我居住的城市。就像我真实的城市一样，有时我需要离开城镇，躲到别的地方——有真实的树和真实的鸟在鸣叫的地方。
 

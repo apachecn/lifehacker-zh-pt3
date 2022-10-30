@@ -1,6 +1,6 @@
 # 为什么你应该像离婚了一样为人父母
 
-> 原文:[https://life hacker . com/why-you-should-parent-like-you-离异-1825612619](https://lifehacker.com/why-you-should-parent-like-youre-divorced-1825612619)
+> 原文：<https://lifehacker.com/why-you-should-parent-like-youre-divorced-1825612619>
 
 詹姆斯·j·塞克斯顿(James J. Sexton)是一名离婚律师，也是《T2》(T0)*一书的作者。在这本指南中，他讲述了他从倾听 1000 多名离婚客户的意见中获得的处理关系的智慧。他给已婚父母的建议是非传统的，但它可能会帮助你保持婚姻和理智。*
 

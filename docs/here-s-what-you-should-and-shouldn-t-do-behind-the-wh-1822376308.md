@@ -1,6 +1,6 @@
 # 以下是你在特斯拉汽车上应该(和不应该)做的事情
 
-> 原文:[https://life hacker . com/here-s-wh-wh-1822376308](https://lifehacker.com/here-s-what-you-should-and-shouldn-t-do-behind-the-wh-1822376308)
+> 原文：<https://lifehacker.com/here-s-what-you-should-and-shouldn-t-do-behind-the-wh-1822376308>
 
 [一直想让](https://www.instagram.com/p/BSiqgqmAcCZ/?taken-by=patbits) 开一辆特斯拉。静音电机、瞬时扭矩和自动驾驶能力？帮我报名。幸运的是，在我的伙伴父母家度过的圣诞假期中，我能够驾驶他们的特斯拉 Model S 一周。简而言之，这种体验是不可思议的——主要是因为特斯拉和传统汽车之间的差异。当然，你可以坐在方向盘后面，调整好你的座位，然后上路，但是你会错过那些让无汽油驾驶体验成为真正愉快体验的小事情。通过对你的驾驶风格进行一些调整，并坚持一些最佳实践，你可以大大提高你的处女航，这显然是最受欢迎(和强大)的电动汽车。
 

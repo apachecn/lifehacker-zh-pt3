@@ -1,6 +1,6 @@
 # 把每一天都过得像父亲节一样
 
-> 原文:[https://life hacker . com/live-every-day-like-its-father-day-1826862488](https://lifehacker.com/live-every-day-like-its-fathers-day-1826862488)
+> 原文：<https://lifehacker.com/live-every-day-like-its-fathers-day-1826862488>
 
 或者母亲节。或者你的生日。
 

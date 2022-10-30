@@ -1,6 +1,6 @@
 # 什么是豌豆奶，它能成为幼儿良好的乳制品替代品吗？
 
-> 原文:[https://life hacker . com/what-is pea-milk-and-can-it-be-a-good-dairy-alternati-1818850749](https://lifehacker.com/what-is-pea-milk-and-could-it-be-a-good-dairy-alternati-1818850749)
+> 原文：<https://lifehacker.com/what-is-pea-milk-and-could-it-be-a-good-dairy-alternati-1818850749>
 
 初学走路的孩子不需要牛奶，但它可能是他们身体所需的好东西的简单来源——脂肪、蛋白质、钙和维生素 d。当我的女儿一岁时，她对乳制品过敏(没有经过大量劝说，她不会咀嚼像绿叶蔬菜这样的食物)，所以我们研究了一些替代牛奶:杏仁、大豆、大米、大麻。每个都有好处，但也有坏处。杏仁牛奶只是“一罐被一把磨碎的杏仁弄浑浊的过滤水，”T2 总结道。大豆是出了名的 [用除草剂](https://www.washingtonpost.com/business/economy/this-miracle-weed-killer-was-supposed-to-save-farms-instead-its-devastating-them/2017/08/29/33a21a56-88e3-11e7-961d-2f373b3977ee_story.html?utm_term=.0804524d496a) 处理。大麻和米浆几乎没有任何脂肪，而脂肪是幼儿生长发育所必需的。
 

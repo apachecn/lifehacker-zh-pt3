@@ -1,6 +1,6 @@
 # 如何制作自己的香肠(以及如何食用)
 
-> 原文:[https://life hacker . com/how-to-make-your-own-lab neh-and-how-to-eat-it-1796785416](https://lifehacker.com/how-to-make-your-own-labneh-and-how-to-eat-it-1796785416)
+> 原文：<https://lifehacker.com/how-to-make-your-own-labneh-and-how-to-eat-it-1796785416>
 
 我第一次吃 labneh 是在佛罗里达州坦帕的一家黎巴嫩餐馆，我立刻就被迷住了。它有酸奶的味道和奶油奶酪的丰富，它让我以鹰嘴豆泥永远无法做到的方式吃掉皮塔饼。然后，我花了很多年时间在高档杂货店购买，才意识到我可以自己制作。
 

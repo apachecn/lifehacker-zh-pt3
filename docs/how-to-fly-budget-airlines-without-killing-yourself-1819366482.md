@@ -1,6 +1,6 @@
 # 如何在不累死自己的情况下驾驶廉价航空公司
 
-> 原文:[https://life hacker . com/how-to-fly-budget-airlines-without-killing-yourself-1819366482](https://lifehacker.com/how-to-fly-budget-airlines-without-killing-yourself-1819366482)
+> 原文：<https://lifehacker.com/how-to-fly-budget-airlines-without-killing-yourself-1819366482>
 
 像 WOW Air 和 Spirit 这样的廉价航空公司可以帮你省下一大笔钱，但是它仍然会让你失去理智。这里有一些你应该知道的事情，以及一些让旅行变得更容易忍受的建议。
 

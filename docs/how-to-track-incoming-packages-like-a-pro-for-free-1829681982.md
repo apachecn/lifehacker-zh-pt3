@@ -1,6 +1,6 @@
 # 如何像专业人士一样跟踪收到的包裹(免费)
 
-> 原文:[https://life hacker . com/how-to-track-incoming-packages-like-a-pro-for-free-1829681982](https://lifehacker.com/how-to-track-incoming-packages-like-a-pro-for-free-1829681982)
+> 原文：<https://lifehacker.com/how-to-track-incoming-packages-like-a-pro-for-free-1829681982>
 
 追踪号码？老派。当然，它们有助于查看你的包裹在哪里，但还有很多更好的方法来查看什么东西会被运送到你的家或公寓，以及何时运送，而不必点击链接，复制并粘贴复杂的字母数字代码或类似的事情。
 

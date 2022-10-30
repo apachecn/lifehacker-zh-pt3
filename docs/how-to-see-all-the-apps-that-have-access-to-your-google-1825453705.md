@@ -1,6 +1,6 @@
 # 如何查看可以访问您的 Google 信息的所有应用程序
 
-> 原文:[https://life hacker . com/how-to-see-all-the-apps-has-access-your-Google-1825453705](https://lifehacker.com/how-to-see-all-the-apps-that-have-access-to-your-google-1825453705)
+> 原文：<https://lifehacker.com/how-to-see-all-the-apps-that-have-access-to-your-google-1825453705>
 
 在过去的几周里，人们非常关注你的脸书账户上的应用。虽然这肯定是一个好主意，但你不应该忽视另一家大公司:谷歌，你也可能会把你的大量个人信息交给它。
 

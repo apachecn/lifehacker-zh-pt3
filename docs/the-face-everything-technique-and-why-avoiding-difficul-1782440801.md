@@ -1,6 +1,6 @@
 # 面对一切的技巧和为什么逃避困难不起作用
 
-> 原文:[https://life hacker . com/the-face-everything-technique-and-why-avoiding-difficult-1782440801](https://lifehacker.com/the-face-everything-technique-and-why-avoiding-difficul-1782440801)
+> 原文：<https://lifehacker.com/the-face-everything-technique-and-why-avoiding-difficul-1782440801>
 
 我们所有人都很擅长逃避。我们的大脑与其说是“思考机器”，不如说是“回避机器”不可思议的是，我们通常甚至没有意识到我们在回避思考一些事情。
 

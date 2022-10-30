@@ -1,6 +1,6 @@
 # 游牧皮钱包为你的 iPhone 充电，看起来不错
 
-> 原文:[https://life hacker . com/the-nomad-leather-wallet-charges-your-iphone-looks-goo-1781985271](https://lifehacker.com/the-nomad-leather-wallet-charges-your-iphone-looks-goo-1781985271)
+> 原文：<https://lifehacker.com/the-nomad-leather-wallet-charges-your-iphone-looks-goo-1781985271>
 
 我不喜欢组合小工具，更喜欢能做好一件事的工具，而不是一打事情做不好的工具。但是 iPhone 的 [Nomad 皮革钱包在两件事上做得非常好，既好看又实用。如果您正在寻找一种巧妙的方式来携带您的卡和现金，并在旅途中为您的手机充电，这款钱包是质量、风格和实用性的完美平衡。](http://www.hellonomad.com/products/leather-wallet) 
 

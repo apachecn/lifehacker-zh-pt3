@@ -1,6 +1,6 @@
 # 在哪里可以看到奥巴马夫妇的肖像画家凯欣德·威利和艾米·谢拉尔德的更多作品
 
-> 原文:[https://life hacker . com/where-to-see-more-work-by-kehinde-Wiley-and-Amy-sherald-1823040885](https://lifehacker.com/where-to-see-more-work-by-kehinde-wiley-and-amy-sherald-1823040885)
+> 原文：<https://lifehacker.com/where-to-see-more-work-by-kehinde-wiley-and-amy-sherald-1823040885>
 
 本周早些时候公布的奥巴马官方肖像引发了许多强烈的情感，审美的和政治的——更不用说提醒人们审美和政治是如何交织在一起的了。但我最强烈的反应是:*哦，该死的，我需要在现实生活中看到这些画和这些艺术家的更多作品。*
 

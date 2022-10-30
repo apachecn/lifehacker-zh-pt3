@@ -1,6 +1,6 @@
 # 夏季星期五对老板和员工都有好处
 
-> 原文:[https://life hacker . com/summer-Fridays-is-good-for-boss-and-employees-1796979595](https://lifehacker.com/summer-fridays-are-good-for-bosses-and-employees-1796979595)
+> 原文：<https://lifehacker.com/summer-fridays-are-good-for-bosses-and-employees-1796979595>
 
 在一个美丽的夏日结束一周的工作有时感觉像是一件苦差事，这是有充分理由的。天气越来越热，你做不了多少事情，而你的周末计划也越来越近了。这听起来可能效率不高，但越来越受欢迎的提前解雇“夏季星期五”工作津贴不仅让你受益，也让你的雇主受益。你会有更多的时间留给自己，你的老板会从你那里得到更好的工作，每个人都会享受一个美好的下午。
 

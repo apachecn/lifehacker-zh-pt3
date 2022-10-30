@@ -1,6 +1,6 @@
 # 如何在轮椅上展现你的个人风格
 
-> 原文:[https://life hacker . com/how-to-rock your-personal-style-in-a-轮椅-1824145502](https://lifehacker.com/how-to-rock-your-personal-style-in-a-wheelchair-1824145502)
+> 原文：<https://lifehacker.com/how-to-rock-your-personal-style-in-a-wheelchair-1824145502>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3n5Ry6mGymw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3n5Ry6mGymw&start=0) 
 

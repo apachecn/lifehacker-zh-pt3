@@ -1,6 +1,6 @@
 # 如何在今年的公开招生中找到负担得起的健康保险
 
-> 原文:[https://life hacker . com/how-to-find-affordable-health-insurance-in this-yea-1788283427](https://lifehacker.com/how-to-find-affordable-health-insurance-during-this-yea-1788283427)
+> 原文：<https://lifehacker.com/how-to-find-affordable-health-insurance-during-this-yea-1788283427>
 
 健康保险:你被它搞砸了，没有它*真的*被搞砸了。今年我们将得到额外的奖励，因为保费将会创纪录地增长。想争取一个你能负担得起的保险吗？以下是你需要知道的。
 

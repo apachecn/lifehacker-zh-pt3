@@ -1,6 +1,6 @@
 # 如何更换汽车的刹车片
 
-> 原文:[https://life hacker . com/how-to-change-your-cars-brake-pads-1783117085](https://lifehacker.com/how-to-change-your-cars-brake-pads-1783117085)
+> 原文：<https://lifehacker.com/how-to-change-your-cars-brake-pads-1783117085>
 
 你的车是一台昂贵的大机器，在它的使用寿命中，你要花费大量的维护费用。如果你 [学会自己做其中的一些工作](http://lifehacker.com/the-car-repairs-you-can-seriously-do-yourself-despit-5868374) ，你可以省下一大笔钱。例如，更换刹车片是一项听起来比实际困难得多的工作，我们将从头到尾教你一遍。
 

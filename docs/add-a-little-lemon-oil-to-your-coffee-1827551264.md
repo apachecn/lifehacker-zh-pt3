@@ -1,6 +1,6 @@
 # 在你的咖啡里加一点柠檬油
 
-> 原文:[https://life hacker . com/add-a little-lemon-oil to-your-coffee-1827551264](https://lifehacker.com/add-a-little-lemon-oil-to-your-coffee-1827551264)
+> 原文：<https://lifehacker.com/add-a-little-lemon-oil-to-your-coffee-1827551264>
 
 夏天的时候，我甚至不能看热咖啡；都是冰咖啡，有时甚至不加奶油，因为随着温度的上升，乳制品变得越来越难消化。然而，如果你想在冰冷的早晨饮料中添加一点活力，同时保持清爽，你应该抓一条柠檬皮。
 

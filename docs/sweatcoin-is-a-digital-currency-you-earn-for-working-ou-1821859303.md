@@ -1,6 +1,6 @@
 # 运动币是一种数字货币，你可以通过锻炼赚取
 
-> 原文:[https://life hacker . com/sweat coin-is-a-digital-currency-you-earn-for-work-ou-1821859303](https://lifehacker.com/sweatcoin-is-a-digital-currency-you-earn-for-working-ou-1821859303)
+> 原文：<https://lifehacker.com/sweatcoin-is-a-digital-currency-you-earn-for-working-ou-1821859303>
 
 如果你的新年决心之一是走出家门，多活动一会儿，一款名为 Sweatcoin 的移动应用程序可能会帮助你激励自己每天从沙发上多起来几分钟。
 

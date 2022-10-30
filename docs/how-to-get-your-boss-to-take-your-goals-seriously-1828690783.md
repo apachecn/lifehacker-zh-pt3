@@ -1,6 +1,6 @@
 # 如何让你的老板认真对待你的目标
 
-> 原文:[https://life hacker . com/how-to-get-your-boss-take-your-going-goals-1828690783](https://lifehacker.com/how-to-get-your-boss-to-take-your-goals-seriously-1828690783)
+> 原文：<https://lifehacker.com/how-to-get-your-boss-to-take-your-goals-seriously-1828690783>
 
 你如何推动你的老板给你更多的责任和/或更多的钱，而不是仅仅保持现状？这就是我们今天讨论的。
 

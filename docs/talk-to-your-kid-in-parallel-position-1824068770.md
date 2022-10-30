@@ -1,6 +1,6 @@
 # 以“平行姿势”与孩子交谈
 
-> 原文:[https://life hacker . com/talk-to-your-kid-in-parallel-position-1824068770](https://lifehacker.com/talk-to-your-kid-in-parallel-position-1824068770)
+> 原文：<https://lifehacker.com/talk-to-your-kid-in-parallel-position-1824068770>
 
 有大量的书籍和文章介绍如何与孩子交谈。大多数人都给出了很好的建议:不要把一切都归结于你(“你觉得在行星上做演讲很可怕吗？我必须在来自日本的十二位大使面前做主题演讲。”)不要消极攻击(“哦，看，那个小女孩不需要去任何地方都带着兔子的东西。”)确实要有同理心。一定要指明方向。一定要表现出你是人类。
 

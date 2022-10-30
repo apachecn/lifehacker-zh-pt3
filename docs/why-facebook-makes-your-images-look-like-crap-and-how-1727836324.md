@@ -1,6 +1,6 @@
 # 为什么脸书让你的图像看起来像垃圾，以及如何解决它
 
-> 原文:[https://life hacker . com/why-Facebook-makes-your-images-look-like-crap-how-1727836324](https://lifehacker.com/why-facebook-makes-your-images-look-like-crap-and-how-1727836324)
+> 原文：<https://lifehacker.com/why-facebook-makes-your-images-look-like-crap-and-how-1727836324>
 
 如果你使用脸书，你可能已经上传了一张照片。虽然脸书非常适合分享，但它也使用了一些相当无情的压缩技术(至少与其他网站相比),让你的照片看起来像垃圾。以下是防止这种情况发生的方法。
 

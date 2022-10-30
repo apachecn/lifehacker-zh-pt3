@@ -1,6 +1,6 @@
 # 口袋纸笔记本摊牌:Moleskine vs .现场笔记
 
-> 原文:[https://life hacker . com/pocket-paper-notebook-摊牌-moleskine-vs-field-not-1768558693](https://lifehacker.com/pocket-paper-notebook-showdown-moleskine-vs-field-not-1768558693)
+> 原文：<https://lifehacker.com/pocket-paper-notebook-showdown-moleskine-vs-field-not-1768558693>
 
 说到袖珍笔记本，有两家公司独占鳌头:Moleskine 和 Field Notes。两者都非常受欢迎，而且都非常适合它们，但是在两者之间做出选择是很困难的。我们将帮助您做出选择。
 

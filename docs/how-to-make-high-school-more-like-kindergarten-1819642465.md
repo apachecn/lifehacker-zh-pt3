@@ -1,6 +1,6 @@
 # 如何让高中更像幼儿园
 
-> 原文:[https://life hacker . com/how-to-make-high-school-like-幼儿园-1819642465](https://lifehacker.com/how-to-make-high-school-more-like-kindergarten-1819642465)
+> 原文：<https://lifehacker.com/how-to-make-high-school-more-like-kindergarten-1819642465>
 
 教育领域最伟大的创新之一是以游戏为基础的早期儿童教育或幼儿园的概念，这是由福禄培尔·弗里贝尔在 19 世纪提出的。几个世纪以来，我们已经接受了一种在早期进行有趣探索的模式，这种模式在小学阶段逐渐转变为一种更加依赖书本的方法，在这种方法中，老师提供信息，学生证明他们已经理解了这些信息。这对一些孩子有用，但对另一些孩子来说，这很无聊。学校变成了需要忍受而不是享受的东西。
 

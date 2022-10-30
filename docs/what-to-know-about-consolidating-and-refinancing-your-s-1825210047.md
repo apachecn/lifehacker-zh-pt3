@@ -1,6 +1,6 @@
 # 如何巩固和再融资你的学生贷款
 
-> 原文:[https://life hacker . com/what-to-know-about-consolidation-and-refilling-your-s-1825210047](https://lifehacker.com/what-to-know-about-consolidating-and-refinancing-your-s-1825210047)
+> 原文：<https://lifehacker.com/what-to-know-about-consolidating-and-refinancing-your-s-1825210047>
 
 在贷款免除之后，再融资是本周大家提问中最受欢迎的话题。你想知道什么时候这是个好主意，会有什么复杂的情况，你可以信任哪些公司。
 

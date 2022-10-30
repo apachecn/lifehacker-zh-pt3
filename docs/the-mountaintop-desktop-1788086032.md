@@ -1,6 +1,6 @@
 # 山顶桌面
 
-> 原文:[https://lifehacker.com/the-mountaintop-desktop-1788086032](https://lifehacker.com/the-mountaintop-desktop-1788086032)
+> 原文：<https://lifehacker.com/the-mountaintop-desktop-1788086032>
 
 经常使用桌面的作者 JonRedcorn2 通常使用 Windows，但这次他有一台 Mac——这并没有阻止他按照自己喜欢的方式定制。这是他如何设置这个漂亮干净的桌面。
 

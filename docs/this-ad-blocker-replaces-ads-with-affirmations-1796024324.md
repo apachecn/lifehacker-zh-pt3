@@ -1,6 +1,6 @@
 # 这个广告拦截器用肯定语代替广告
 
-> 原文:[https://life hacker . com/this-ad-blocker-replaces-ads-with-affirmations-1796024324](https://lifehacker.com/this-ad-blocker-replaces-ads-with-affirmations-1796024324)
+> 原文：<https://lifehacker.com/this-ad-blocker-replaces-ads-with-affirmations-1796024324>
 
 广告追踪者知道你的一切，因此锁定你最有可能点击的广告。广告拦截软件要么删除要么阻止这些广告，留下空盒子或灰色横幅。但是，如果你讨厌负面空间，喜欢正面的咒语，专注地可能是你的广告拦截器的选择。
 

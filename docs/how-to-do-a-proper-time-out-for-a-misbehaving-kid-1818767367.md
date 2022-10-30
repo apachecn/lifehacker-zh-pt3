@@ -1,6 +1,6 @@
 # 如何对行为不端的孩子进行适当的暂停
 
-> 原文:[https://life hacker . com/how-to-do-a-proper-time-out for-a-mishable-kid-1818767367](https://lifehacker.com/how-to-do-a-proper-time-out-for-a-misbehaving-kid-1818767367)
+> 原文：<https://lifehacker.com/how-to-do-a-proper-time-out-for-a-misbehaving-kid-1818767367>
 
 作为一种惩戒策略，打屁股肯定是不行的:它不仅不起作用，而且与虐待儿童导致的负面结果一样，只是程度较轻。
 

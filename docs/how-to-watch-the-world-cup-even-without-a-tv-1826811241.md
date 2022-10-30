@@ -1,6 +1,6 @@
 # 如何看世界杯(即使没有电视)
 
-> 原文:[https://life hacker . com/how-to-watch-the-world cup-even-without-a-TV-1826811241](https://lifehacker.com/how-to-watch-the-world-cup-even-without-a-tv-1826811241)
+> 原文：<https://lifehacker.com/how-to-watch-the-world-cup-even-without-a-tv-1826811241>
 
 世界杯今天正式开幕，持续到 7 月 15 日。美国今年没有晋级，但其他 32 个国家晋级了，下个月将会是世界足球(或橄榄球，取决于你是谁)的一个大日子。
 

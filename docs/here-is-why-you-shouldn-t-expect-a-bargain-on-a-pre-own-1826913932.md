@@ -1,6 +1,6 @@
 # 这就是为什么你不应该指望二手车会便宜的原因
 
-> 原文:[https://jalopnik . com/here-is-why-you-should-not-expect-on-a-bargain-a-pre-own-1826913932](https://jalopnik.com/here-is-why-you-shouldn-t-expect-a-bargain-on-a-pre-own-1826913932)
+> 原文：<https://jalopnik.com/here-is-why-you-shouldn-t-expect-a-bargain-on-a-pre-own-1826913932>
 
 说到新车，轿车市场正在消亡。本田 [一直在努力销售其久经考验的雅阁](https://jalopnik.com/hondas-cutting-down-accord-production-because-were-all-1824144162) 和 [福特将很快几乎完全放弃轿车市场。既然没人买，你可能会认为买家可以买到便宜的二手车，但目前情况并非如此。](https://jalopnik.com/why-ford-killed-its-cars-1825546289#_ga=2.103373444.545962289.1529256118-172961908.1524759589) 
 

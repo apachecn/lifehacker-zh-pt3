@@ -1,6 +1,6 @@
 # 如果你住在受野火威胁的地区，如何保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-if-you-live-in-a-wild fire-threat-a-1819406919](https://lifehacker.com/how-to-stay-safe-if-you-live-in-a-wildfire-threatened-a-1819406919)
+> 原文：<https://lifehacker.com/how-to-stay-safe-if-you-live-in-a-wildfire-threatened-a-1819406919>
 
 当你处在一片火海中时，你很难呼吸，更不用说思考了。作为一名经历过科罗拉多斯普林斯毁灭性的沃尔多峡谷和黑森林大火的老兵，我可以证明这一点。对于美国和加拿大的野火来说，这是艰难的一年——尽管许多人现在都在关注加州中部的 10 处活跃的野火，但亚利桑那州、内华达州、俄勒冈州和西弗吉尼亚州也有大火燃烧。
 

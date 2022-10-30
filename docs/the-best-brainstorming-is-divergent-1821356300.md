@@ -1,6 +1,6 @@
 # 如何有效地头脑风暴
 
-> 原文:[https://life hacker . com/the-best-brainstorm-is-divergent-1821356300](https://lifehacker.com/the-best-brainstorming-is-divergent-1821356300)
+> 原文：<https://lifehacker.com/the-best-brainstorming-is-divergent-1821356300>
 
 你有问题。你召集了一群聪明、有创造力的人，然后说，*让我们头脑风暴一下*。你们一起思考一堆想法，不断琢磨，直到找到答案:解决方案。
 

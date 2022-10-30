@@ -1,6 +1,6 @@
 # 如何吹更好的泡泡
 
-> 原文:[https://life hacker . com/how-to-blow-better-bubbles-1829068605](https://lifehacker.com/how-to-blow-better-bubbles-1829068605)
+> 原文：<https://lifehacker.com/how-to-blow-better-bubbles-1829068605>
 
 你有没有遇到过一个街头艺人，他在公园或节日里开始吹一个壮观的泡泡，所有的孩子立刻跳起来尖叫，失去了理智？然后你试图在家里为你的孩子重现同样的场景...却功亏一篑。别担心——并非一切都是注定的。你只需要让科学站在你这边。这里有一些吹更好的泡泡的小技巧。
 

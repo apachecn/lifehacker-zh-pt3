@@ -1,6 +1,6 @@
 # 当你分享屏幕时，枪口自动禁用 OS X 通知
 
-> 原文:[https://life hacker . com/枪口-自动-禁用-OS-x-通知-当-y-1797206122](https://lifehacker.com/muzzle-automatically-disables-os-x-notifications-when-y-1797206122)
+> 原文：<https://lifehacker.com/muzzle-automatically-disables-os-x-notifications-when-y-1797206122>
 
 当你共享你的屏幕进行商业或学校演示时，你不希望弹出任何通知，如 sext，你的治疗师约会的日历通知，或关于你当前正在演示的问题客户的 Slack DM。你可以点击“请勿打扰”，但如果你忘记了呢？虽然 Windows 10 有一个内置选项可以在屏幕共享期间关闭通知，但 OS X 没有。免费应用 [枪口](https://muzzleapp.com/) 解决了这个问题。
 

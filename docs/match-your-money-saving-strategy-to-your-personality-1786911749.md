@@ -1,6 +1,6 @@
 # 让你的省钱策略与你的个性相匹配
 
-> 原文:[https://life hacker . com/match-your-money-saving-strategy-to-your-personal-1786911749](https://lifehacker.com/match-your-money-saving-strategy-to-your-personality-1786911749)
+> 原文：<https://lifehacker.com/match-your-money-saving-strategy-to-your-personality-1786911749>
 
 无论你是想为你孩子的大学学费、攒够一套房子的首付还是仅仅为了能够 [舒适地退休](https://www.learnvest.com/2016/03/7-terms-to-know-before-you-open-a-retirement-account/) ，实现长期的金钱目标似乎都是势不可挡的。
 

@@ -1,6 +1,6 @@
 # 欢呼吧，里克和莫蒂的粉丝们:四川酱将在麦当劳重新出现，但只有一天
 
-> 原文:[https://life hacker . com/飘柔-瑞克-莫蒂-粉丝-四川-酱酱-会回来-1819071038](https://lifehacker.com/rejoice-rick-morty-fans-szechuan-sauce-will-be-back-1819071038)
+> 原文：<https://lifehacker.com/rejoice-rick-morty-fans-szechuan-sauce-will-be-back-1819071038>
 
 如果你是 Rick Morty 的粉丝或者是已经停产的麦乐鸡酱的鉴赏家，我有好消息要告诉你。本周六，10 月 7 日，你终于可以得到木兰风味的蘸酱了。(显然，当供应持续的时候。)
 

@@ -1,6 +1,6 @@
 # 如何在公共场合对待一只毛茸茸的
 
-> 原文:[https://life hacker . com/how-to-treat-a-furry-in-public-1796498476](https://lifehacker.com/how-to-treat-a-furry-in-public-1796498476)
+> 原文：<https://lifehacker.com/how-to-treat-a-furry-in-public-1796498476>
 
 超过 7000 名皮草商将于本周末来到匹兹堡参加 Anthrocon，这是一年一度的大会，人们穿得像狼、龙以及狼龙组合。大会包括一次公众游行，去年有 2100 人参加。Anthrocon 众议员约翰·科尔给了倾斜一些 [与 furies](https://theincline.com/2017/06/27/6-etiquette-tips-for-meeting-furries-at-anthrocon-in-pittsburgh-this-weekend/)互动的礼仪提示。这个建议可以归结为两条经验法则:不要有侵犯性，记住毛皮服非常热。
 

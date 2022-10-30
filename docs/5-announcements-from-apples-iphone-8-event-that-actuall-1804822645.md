@@ -1,6 +1,6 @@
 # 苹果 iPhone 8 发布会上的 5 个重要声明
 
-> 原文:[https://life hacker . com/5-announcements-from-apple-iphone-8-event-that-actuall-1804822645](https://lifehacker.com/5-announcements-from-apples-iphone-8-event-that-actuall-1804822645)
+> 原文：<https://lifehacker.com/5-announcements-from-apples-iphone-8-event-that-actuall-1804822645>
 
 苹果公司刚刚进行了两个小时的宣传，将媒体和粉丝带到了其位于库比蒂诺的新总部，以展示其最新系列的小工具和软件。有很多信息需要筛选，其中大部分并不那么令人兴奋。
 

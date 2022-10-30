@@ -1,6 +1,6 @@
 # 用四个燃烧者理论找到工作与生活的平衡
 
-> 原文:[https://life hacker . com/finding-work-life-balance-with the four-burners-theory-1780920994](https://lifehacker.com/finding-work-life-balance-with-the-four-burners-theory-1780920994)
+> 原文：<https://lifehacker.com/finding-work-life-balance-with-the-four-burners-theory-1780920994>
 
 思考工作与生活平衡问题的一种方法是使用一个被称为“四个燃烧者理论”的概念。我最初是这样理解的:想象你的生活是一个有四个火炉的炉子。每个燃烧器象征着你生活的一个主要象限。
 

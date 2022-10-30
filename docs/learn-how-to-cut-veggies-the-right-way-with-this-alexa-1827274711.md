@@ -1,6 +1,6 @@
 # 学习如何用这种 Alexa 技能正确地切蔬菜
 
-> 原文:[https://life hacker . com/learn-how-to-cut-the-right-way with this-Alexa-1827274711](https://lifehacker.com/learn-how-to-cut-veggies-the-right-way-with-this-alexa-1827274711)
+> 原文：<https://lifehacker.com/learn-how-to-cut-veggies-the-right-way-with-this-alexa-1827274711>
 
 你真的知道怎么切西兰花吗？猕猴桃怎么样？
 

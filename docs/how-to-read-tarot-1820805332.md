@@ -1,6 +1,6 @@
 # 如何看塔罗牌
 
-> 原文:[https://lifehacker.com/how-to-read-tarot-1820805332](https://lifehacker.com/how-to-read-tarot-1820805332)
+> 原文：<https://lifehacker.com/how-to-read-tarot-1820805332>
 
 不管你是否相信超自然现象，给自己算命或者给别人算命都很有趣。在这段视频中，从 12 岁开始阅读塔罗牌的专业读者亚瑟·利普-博内维斯 告诉你如何练习阅读这副牌。
 

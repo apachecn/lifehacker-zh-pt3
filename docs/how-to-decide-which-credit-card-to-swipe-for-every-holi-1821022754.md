@@ -1,6 +1,6 @@
 # 如何决定每次节日购物时刷哪张信用卡
 
-> 原文:[https://life hacker . com/how-to-decision for-every-holi-1821022754](https://lifehacker.com/how-to-decide-which-credit-card-to-swipe-for-every-holi-1821022754)
+> 原文：<https://lifehacker.com/how-to-decide-which-credit-card-to-swipe-for-every-holi-1821022754>
 
 我们很多人在假期里花了很多钱:机票、礼物、新衣服、外出就餐、在家就餐、办公室聚餐、学校聚会等等。
 

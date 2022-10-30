@@ -1,6 +1,6 @@
 # “女性伟哥”值不值？
 
-> 原文:[https://life hacker . com/is-the-female-viagra-worth-it-1741587753](https://lifehacker.com/is-the-female-viagra-worth-it-1741587753)
+> 原文：<https://lifehacker.com/is-the-female-viagra-worth-it-1741587753>
 
 Addyi 是一种新的增强女性性欲的药丸。根据制造商的研究，它可以让一些(但不是全部)每天服用的女性恢复健康的性欲。但是这种药很贵，而且有可怕的副作用。那么 Addyi 值得吗？
 

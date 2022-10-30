@@ -1,6 +1,6 @@
 # 美国职业棒球大联盟的所有热狗，排名
 
-> 原文:[https://life hacker . com/every-热狗大联盟排名 1819249617](https://lifehacker.com/every-hot-dog-in-major-league-baseball-ranked-1819249617)
+> 原文：<https://lifehacker.com/every-hot-dog-in-major-league-baseball-ranked-1819249617>
 
 我不需要调查来告诉我三藩市的美国电话电报公司公园有美国职业棒球大联盟中最好的热狗。我很可能会坐在某个不太高级的体育场里吃着一只不合格的狗时发表这一声明，但我没有事实(除了我自己详细的个人研究)来支持这一说法。但现在我知道了。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名私人教练，我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-personal-trainer-1729315907](https://lifehacker.com/career-spotlight-what-i-do-as-a-personal-trainer-1729315907)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-personal-trainer-1729315907>
 
 我的大部分健身知识都是从电视真人秀上搜集来的，我认为私人教练的主要角色是大声吆喝人们去锻炼。当然没有什么是如此简单的；一个好的教练了解不同的锻炼和饮食会如何影响身体，以及他们的学员需要做什么来实现他们的健身目标。
 

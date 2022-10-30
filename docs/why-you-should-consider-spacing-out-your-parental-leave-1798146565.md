@@ -1,6 +1,6 @@
 # 为什么你应该考虑像马克·扎克伯格一样，把你的育儿假间隔开
 
-> 原文:[https://life hacker . com/why-you-should-consider-spacing-out-your-parental-leave-1798146565](https://lifehacker.com/why-you-should-consider-spacing-out-your-parental-leave-1798146565)
+> 原文：<https://lifehacker.com/why-you-should-consider-spacing-out-your-parental-leave-1798146565>
 
 马克·扎克伯格和他的妻子陈慧娴即将迎来另一个孩子，脸书首席执行官 [写了一篇帖子](https://www.facebook.com/photo.php?fbid=10103974023786271&set=a.612287952871.2204760.4&type=3&theater) 关于他计划如何从工作中抽出一些时间来陪伴他不断壮大的家庭。正如他对他的第一个女儿马克斯一样，扎克伯格将休两个月的陪产假，以与新的小女儿建立联系，但这一次，他写道，他将“利用脸书部分休假的选择”他决定在孩子出生后休息一个月，然后在 12 月再休息一个月。
 

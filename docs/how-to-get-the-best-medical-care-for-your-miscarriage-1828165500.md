@@ -1,6 +1,6 @@
 # 如何为你的流产获得最好的医疗护理
 
-> 原文:[https://life hacker . com/how-to-get-the-best-medical-care for your-流产-1828165500](https://lifehacker.com/how-to-get-the-best-medical-care-for-your-miscarriage-1828165500)
+> 原文：<https://lifehacker.com/how-to-get-the-best-medical-care-for-your-miscarriage-1828165500>
 
 流产是妊娠最常见的并发症，大约在 [20](https://www.ncbi.nlm.nih.gov/pubmed/29053188) 到 [结束，占所有妊娠的 30](https://www.ncbi.nlm.nih.gov/pubmed/3393170)，大多数在妊娠早期。我在事情发生之前就知道这些可能性，但我仍然措手不及——不仅是因为损失的情感代价，还因为我必须做出决定，如何完成流产的生理过程。
 

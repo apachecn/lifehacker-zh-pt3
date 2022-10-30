@@ -1,6 +1,6 @@
 # 请教专家:全靠 DIY 汽车保养
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-DIY-car-maintenance-1792788206](https://lifehacker.com/ask-an-expert-all-about-diy-car-maintenance-1792788206)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-diy-car-maintenance-1792788206>
 
 对许多人来说，拥有汽车只是生活中平凡的一部分，但对其他喜欢摆弄机器的人来说，这是一种生活方式。无论你是喜欢把修车作为一种爱好，还是只是想省下一趟去修车的时间，你都可以做很多事情来帮助你的车继续行驶。
 

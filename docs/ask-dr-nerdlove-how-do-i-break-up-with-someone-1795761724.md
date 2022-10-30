@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我怎么和一个人分手？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-break-up-with-someone-1795761724](https://kotaku.com/ask-dr-nerdlove-how-do-i-break-up-with-someone-1795761724)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-break-up-with-someone-1795761724>
 
 你好所有你荧光网的死亡孢子，欢迎来到 [向](http://kotaku.com/askdrnerdlove)讨教博士 NerdLove，唯一的约会建议专栏投票选出“最有可能在奇点生存的人”。
 

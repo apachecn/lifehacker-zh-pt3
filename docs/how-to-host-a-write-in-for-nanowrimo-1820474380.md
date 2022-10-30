@@ -1,6 +1,6 @@
 # 如何为 NaNoWriMo 主持一次书面报告
 
-> 原文:[https://life hacker . com/how-to-host-a-write-in-for-nanowrimo-1820474380](https://lifehacker.com/how-to-host-a-write-in-for-nanowrimo-1820474380)
+> 原文：<https://lifehacker.com/how-to-host-a-write-in-for-nanowrimo-1820474380>
 
 全国小说写作月就是要把你的头低下，尽可能地写出更多的单词，但是把它变成一种社交体验也是很有趣的。你需要的只是让你和你的涂鸦伙伴保持动力。下面是如何设置的:
 

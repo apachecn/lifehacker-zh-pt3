@@ -1,6 +1,6 @@
 # 为什么提前退休并不像听起来那么可怕
 
-> 原文:[https://life hacker . com/why-early-retirement-is-not-as-awesome-as-it-it-sound-1795743837](https://lifehacker.com/why-early-retirement-isn-t-as-awesome-as-it-sounds-1795743837)
+> 原文：<https://lifehacker.com/why-early-retirement-isn-t-as-awesome-as-it-sounds-1795743837>
 
 大多数人都很难想象退休，更不用说提前退休了。尽管如此，许多员工在 40 岁甚至更年轻的时候就已经设法辞掉工作，实现了经济独立。30 岁的高龄整天在沙滩上喝饮料听起来不可思议，但这也有不好的一面。
 

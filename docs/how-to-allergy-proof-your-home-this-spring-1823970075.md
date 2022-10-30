@@ -1,6 +1,6 @@
 # 今年春天如何让你的家防过敏
 
-> 原文:[https://life hacker . com/how-to-allergy-proof-your-home-this-spring-1823970075](https://lifehacker.com/how-to-allergy-proof-your-home-this-spring-1823970075)
+> 原文：<https://lifehacker.com/how-to-allergy-proof-your-home-this-spring-1823970075>
 
 春天正式来临了。除了鲜花、阳光和奶油蛋卷，对于我们这些过敏体质的人来说，这也是打喷嚏最多、流眼泪最多的季节。这主要是由于空气中的花粉激增，所以当花粉量高时， [过敏的人应该待在](https://www.aaaai.org/conditions-and-treatments/library/at-a-glance/outdoor-allergens) 内。这是明智的建议——如果你的家还不是主要过敏区的话。以下是如何确保你家的内部确实能让你放松一些。
 

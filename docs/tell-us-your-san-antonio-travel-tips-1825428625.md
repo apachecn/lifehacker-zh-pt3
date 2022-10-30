@@ -1,6 +1,6 @@
 # 告诉我们你的圣安东尼奥旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-San-Antonio-travel-tips-1825428625](https://lifehacker.com/tell-us-your-san-antonio-travel-tips-1825428625)
+> 原文：<https://lifehacker.com/tell-us-your-san-antonio-travel-tips-1825428625>
 
 忘记阿拉莫吧——圣安东尼奥还有什么好的？我们已经把你的城市改成了 [【休斯顿】](https://lifehacker.com/the-best-houston-tips-from-our-readers-1820803615) 和 [奥斯汀](https://lifehacker.com/the-best-austin-tips-from-our-readers-1822195747) ，但圣安东尼奥是美国第七大城市，每年接待超过 3000 万游客。如果这些访问者只是点击量最大，他们会错过什么呢？
 

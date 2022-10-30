@@ -1,6 +1,6 @@
 # 为什么这么多心理学研究都站不住脚
 
-> 原文:[https://life hacker . com/why-so-many-psychological-studies-fail-to-hold-up-1788512884](https://lifehacker.com/why-so-many-psychological-studies-fail-to-hold-up-1788512884)
+> 原文：<https://lifehacker.com/why-so-many-psychological-studies-fail-to-hold-up-1788512884>
 
 任何科学研究的一个重要方面是，无论如何，它的结果都会被质疑和再次测试。一些流行的心理学研究，比如微笑让你更快乐，或者意志力是一种有限的资源，都经不起推敲。它们不完全是伪造的，但也不是绝对的。事实是这样的。
 

@@ -1,6 +1,6 @@
 # 你可以吃鳄梨核，但这并不意味着你应该吃
 
-> 原文:[https://life hacker . com/you-can-eat-avocado-pits-but-that-mean-you-shou-1798348737](https://lifehacker.com/you-can-eat-avocado-pits-but-that-doesnt-mean-you-shou-1798348737)
+> 原文：<https://lifehacker.com/you-can-eat-avocado-pits-but-that-doesnt-mean-you-shou-1798348737>
 
 鳄梨就是不能不上新闻。它们不仅对人的 [手](http://skillet.lifehacker.com/how-to-pit-an-avocado-without-hurting-yourself-1794920665) 和 [钱包](http://twocents.lifehacker.com/how-to-afford-a-house-when-youre-spending-all-your-mone-1795231082) 有危险，而且现在看来，吃了它们滑腻的绿色果肉还不够。朋友们，新的趋势是吃种子。
 

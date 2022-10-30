@@ -1,6 +1,6 @@
 # 你应该用动物脂肪制作非肉类食物
 
-> 原文:[https://life hacker . com/non-meat-foods-you-should-with-animal-fat-1822531180](https://lifehacker.com/non-meat-foods-you-should-make-with-animal-fat-1822531180)
+> 原文：<https://lifehacker.com/non-meat-foods-you-should-make-with-animal-fat-1822531180>
 
 如果你在这些地方呆过一段时间，你就会知道我的生活基本上是由鸭肉 赞助的 [。无论我是](https://skillet.lifehacker.com/turn-even-the-driest-turkey-into-a-delicious-spread-1820483164) [腌制火鸡腿](https://skillet.lifehacker.com/these-confit-turkey-legs-taste-like-the-renaissance-fai-1820339857) 还是 [制作蛋黄酱](https://skillet.lifehacker.com/why-duck-fat-mayo-is-the-mayo-you-should-be-making-1821972304) ，我几乎都是为了餐桌上的美味而活。
 

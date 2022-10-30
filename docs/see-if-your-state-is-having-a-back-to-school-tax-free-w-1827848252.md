@@ -1,6 +1,6 @@
 # 看看你所在的州是否有返校免税周末
 
-> 原文:[https://life hacker . com/see-if-your-state-have-a-back-to-school-tax-free-w-1827848252](https://lifehacker.com/see-if-your-state-is-having-a-back-to-school-tax-free-w-1827848252)
+> 原文：<https://lifehacker.com/see-if-your-state-is-having-a-back-to-school-tax-free-w-1827848252>
 
 根据德勤的年度返校购物调查 显示，今年家长们将在学校必需品上每户花费约 510 美元。然而，你可以通过知道什么时候买东西来节省一些现金。你的最佳选择:要么在产品经常打折的季节后期，要么在全国各地即将到来的返校免税周末期间。在下面找出你所在的州是否参与。
 

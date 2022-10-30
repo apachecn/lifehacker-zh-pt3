@@ -1,6 +1,6 @@
 # 借记将你的信用卡和你的银行账户连接起来，这样你就可以负责任地获得奖励
 
-> 原文:[https://life hacker . com/debit ize-connects-your ' s credit-card-to-your ' s bank-account-1803144679](https://lifehacker.com/debitize-connects-your-credit-card-to-your-bank-account-1803144679)
+> 原文：<https://lifehacker.com/debitize-connects-your-credit-card-to-your-bank-account-1803144679>
 
 使用信用卡比借记卡有 [的好处](http://lifehacker.com/top-10-ways-to-squeeze-more-rewards-out-of-your-credit-1771374664) ，但是用信用卡做预算会很麻烦。一次挥霍或一次失算，你就可能以债务周转告终——这可不是明智之举。适用于网络/ioS 的借记功能让你 [在没有风险](http://twocents.lifehacker.com/money-advice-not-everyone-agrees-on-using-credit-card-1594620799) 的情况下获得奖励。
 

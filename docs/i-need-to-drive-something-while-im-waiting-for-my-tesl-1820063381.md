@@ -1,6 +1,6 @@
 # 我需要在等我的特斯拉 Model 3 的时候开点东西！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-to-drive-something-while-im-waiting-for-my-tesl-1820063381](https://jalopnik.com/i-need-to-drive-something-while-im-waiting-for-my-tesl-1820063381)
+> 原文：<https://jalopnik.com/i-need-to-drive-something-while-im-waiting-for-my-tesl-1820063381>
 
 丹尼尔是成千上万为被大肆宣传且最近生产陷入困境的特斯拉 Model 3T3 支付定金的人之一。嗯，看起来在他有自己的车之前还需要一段时间，同时他需要一些很酷的东西。他应该买什么车？
 

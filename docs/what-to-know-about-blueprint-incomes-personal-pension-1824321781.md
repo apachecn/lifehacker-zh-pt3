@@ -1,6 +1,6 @@
 # 了解蓝图收入的个人养老金
 
-> 原文:[https://life hacker . com/what-to-know-about-blue print-incomes-personal-pension-1824321781](https://lifehacker.com/what-to-know-about-blueprint-incomes-personal-pension-1824321781)
+> 原文：<https://lifehacker.com/what-to-know-about-blueprint-incomes-personal-pension-1824321781>
 
 美国从养老金体系向建立在 401(k)和个人退休账户基础上的自筹资金的退休体系的过渡导致了退休储蓄危机。自动缴费有所帮助，但平均每个家庭有 95776 美元的退休储蓄，这个数字被富裕家庭和婴儿潮一代积累的不成比例的更高金额扭曲了——中位数只有 5000 美元 。虽然我们可以依靠来自社会保障的部分退休收入，但用我们自己从 401(k)和其他复杂账户和支出计划中的储蓄来补充可能不足以让许多人过上舒适的退休生活。
 

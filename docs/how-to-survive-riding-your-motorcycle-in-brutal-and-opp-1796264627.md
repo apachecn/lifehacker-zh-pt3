@@ -1,6 +1,6 @@
 # 如何在酷暑中骑着摩托车生存
 
-> 原文:[https://jalopnik . com/how-to-survive-riding your-motor-in-happy-opp-1796264627](https://jalopnik.com/how-to-survive-riding-your-motorcycle-in-brutal-and-opp-1796264627)
+> 原文：<https://jalopnik.com/how-to-survive-riding-your-motorcycle-in-brutal-and-opp-1796264627>
 
 如果你可以选择，你可能不会选择在极热的天气里骑车。但是你并不总是有选择的余地，比如当你外出旅行，需要尽快回家的时候。假设脱去层层防护装备不是一个选项——就本次讨论的目的而言，它不是——当你所骑的路面正在融化时，你如何保持冷静？
 

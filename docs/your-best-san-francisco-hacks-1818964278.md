@@ -1,6 +1,6 @@
 # 你最好的旧金山黑客
 
-> 原文:[https://life hacker . com/your-best-San-Francisco-hacks-1818964278](https://lifehacker.com/your-best-san-francisco-hacks-1818964278)
+> 原文：<https://lifehacker.com/your-best-san-francisco-hacks-1818964278>
 
 你给了我们你对旧金山最好的建议和窍门——不仅仅是如何游览，还有如何在那里生活。对于一个人口不到 100 万的西海岸城市来说，旧金山是一个传奇的、多样化的和富有弹性的城市。以下是我们最喜欢的建议。
 

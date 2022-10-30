@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 6 日至 13 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-11 月 6 日至 13 日-1742337712](https://lifehacker.com/this-weeks-most-popular-posts-november-6th-to-13th-1742337712)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-6th-to-13th-1742337712>
 
 本周，我们学习了如何将 Waze 变成终极导航应用程序，构建了一个便宜但功能强大的 Steam 机器，了解了急救基础知识，等等。让我们来回顾一下本周的热门帖子。
 

@@ -1,6 +1,6 @@
 # 如何既有说服力又不让人觉得有威胁性
 
-> 原文:[https://life hacker . com/how-to-be successible-without-across-as-threateni-1797650453](https://lifehacker.com/how-to-be-persuasive-without-coming-across-as-threateni-1797650453)
+> 原文：<https://lifehacker.com/how-to-be-persuasive-without-coming-across-as-threateni-1797650453>
 
 当你真的想做成一件事的时候，你有时不得不去左右别人。毕竟,(朝正确的方向)轻轻一推不会伤害任何人。但是在劝说和威胁之间有一条细微的界限。
 

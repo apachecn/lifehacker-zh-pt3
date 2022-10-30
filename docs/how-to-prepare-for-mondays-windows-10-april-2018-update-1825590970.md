@@ -1,6 +1,6 @@
 # 如何准备周一的“Windows 10 2018 年 4 月更新”
 
-> 原文:[https://life hacker . com/how-to-prepare-for-Monday-windows-10-April-2018-update-1825590970](https://lifehacker.com/how-to-prepare-for-mondays-windows-10-april-2018-update-1825590970)
+> 原文：<https://lifehacker.com/how-to-prepare-for-mondays-windows-10-april-2018-update-1825590970>
 
 没错。《春天的创造者》更新不再；微软现在将其即将到来的 Windows 大更新称为“Windows 10 2018 年 4 月更新”，该公司通过在 4 月 30 日星期一——本月的最后一天——发布更新，勉强锁定了这个名称。
 

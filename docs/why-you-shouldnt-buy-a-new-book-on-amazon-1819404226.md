@@ -1,6 +1,6 @@
 # 为什么你不应该在亚马逊上买一本“新书”
 
-> 原文:[https://life hacker . com/why-you-should-not-buy-a-new-book-on-Amazon-1819404226](https://lifehacker.com/why-you-shouldnt-buy-a-new-book-on-amazon-1819404226)
+> 原文：<https://lifehacker.com/why-you-shouldnt-buy-a-new-book-on-amazon-1819404226>
 
 杰夫·贝索斯发明的亚马逊公司同时激怒了图书行业的所有人，它喜欢让图书尽可能便宜。为此，今年春天他们将第三方选项移至页面顶部，有时甚至将第三方卖家列为默认购买选项。你可能会看到一个比亚马逊实际新选项更便宜的“新”选项。如果你选择那一个，这里是谁错过了。
 

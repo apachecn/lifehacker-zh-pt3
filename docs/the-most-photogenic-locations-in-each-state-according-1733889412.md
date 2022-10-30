@@ -1,6 +1,6 @@
 # 根据 Instagram，每个州最上镜的地方
 
-> 原文:[https://life hacker . com/the-most-上镜-locations-in-each-state-依 1733889412](https://lifehacker.com/the-most-photogenic-locations-in-each-state-according-1733889412)
+> 原文：<https://lifehacker.com/the-most-photogenic-locations-in-each-state-according-1733889412>
 
 如果你喜欢在旅行时拍摄令人惊叹的照片，这些是美国人为了捕捉完美照片而聚集最多的地方。
 

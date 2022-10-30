@@ -1,6 +1,6 @@
 # 礼仪怪物:飞机上允许我有多粗鲁？
 
-> 原文:[https://Jezebel . com/礼仪-怪物-如何-粗鲁-我-被允许-在-安-艾-1756851800](https://jezebel.com/etiquette-monster-how-rude-am-i-allowed-to-be-on-an-ai-1756851800)
+> 原文：<https://jezebel.com/etiquette-monster-how-rude-am-i-allowed-to-be-on-an-ai-1756851800>
 
 在本期节目中，我们将打印出我们的登机牌，通过 TSA 线，登上波音飞机，将我们的礼仪带上天空！没错，我的旅行宝贝们，我们正在讨论航空礼仪这个可怕的话题。
 

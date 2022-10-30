@@ -1,6 +1,6 @@
 # 延迟几个月退休可以大幅提高你的生活水平
 
-> 原文:[https://life hacker . com/延迟退休几个月基本上可以-i-1825684101](https://lifehacker.com/delaying-retirement-by-a-few-months-can-substantially-i-1825684101)
+> 原文：<https://lifehacker.com/delaying-retirement-by-a-few-months-can-substantially-i-1825684101>
 
 谈到退休储蓄，我们都很熟悉复利的力量:你开始得越早，由于获得了利息，你每个月必须存的就越少。但是美国国家经济研究局最近的一项研究 发现，处于职业生涯末期的人也有希望。事实上，该报告得出结论，比你计划的多工作一年，比你多存一个百分点的工资 30 年，退休收入会有更大的增长。
 

@@ -1,6 +1,6 @@
 # 经销商可以向我收取更多现金吗？
 
-> 原文:[https://jalopnik . com/can-a-dealer-charge-me-more-for-paying-cash-1828742553](https://jalopnik.com/can-a-dealer-charge-me-more-for-paying-cash-1828742553)
+> 原文：<https://jalopnik.com/can-a-dealer-charge-me-more-for-paying-cash-1828742553>
 
 作为常驻购车专家和专业购车者，我收到了大量征求建议的电子邮件。有时人们会陷入困境或者不知道该做什么，所以我决定挑几个问题，试着帮帮他们。
 

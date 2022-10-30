@@ -1,6 +1,6 @@
 # 普通人另类投资指南
 
-> 原文:[https://life hacker . com/the-normal-persons-guide-to-alternative-investments-1784357250](https://lifehacker.com/the-normal-persons-guide-to-alternative-investments-1784357250)
+> 原文：<https://lifehacker.com/the-normal-persons-guide-to-alternative-investments-1784357250>
 
 开始投资相当容易。但是，一旦你深入了解，就会出现很多问题，使这个过程变得复杂。你可能遇到过短语*另类投资，*如果你是投资新手，你可能不知道它的意思。这里有一个普通个人投资者的快速分类。
 

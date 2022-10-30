@@ -1,6 +1,6 @@
 # 如何帮助患有多动症的女孩
 
-> 原文:[https://life hacker . com/how-to-help-girls with-ADHD-1829640394](https://lifehacker.com/how-to-help-girls-with-adhd-1829640394)
+> 原文：<https://lifehacker.com/how-to-help-girls-with-adhd-1829640394>
 
 我弟弟在小学时被诊断患有注意力缺陷/多动症(ADHD)。ADHD 是一种由大脑中注意力调节化学物质分泌不足引起的神经系统疾病，分为三种类型:注意力不集中、过度活跃/冲动和混合型。他极度活跃，当他在我们的餐厅和厨房之间攀爬承重梁时，简直是在爬墙。他的能量是不可否认的。
 

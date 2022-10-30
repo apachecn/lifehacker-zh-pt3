@@ -1,6 +1,6 @@
 # 现在您可以用 Skype 向朋友发送现金
 
-> 原文:[https://life hacker . com/now-you-can-send-friends-cash-using-Skype-1797572254](https://lifehacker.com/now-you-can-send-friends-cash-using-skype-1797572254)
+> 原文：<https://lifehacker.com/now-you-can-send-friends-cash-using-skype-1797572254>
 
 现在，当你为工作人员购买音乐会门票时，你的朋友绝对没有理由(除了没有现金)不立即还钱给你。给朋友寄钱有很多不同的选择。像 Venmo、Square Cash、Apple Pay 和脸书这样的服务可以在几秒钟内完成这项工作，现在另一个受欢迎的服务增加了这项功能:Skype。由于与 PayPal 建立了新的合作关系，Skype 用户现在可以通过其移动应用程序向使用该服务的朋友汇款。
 

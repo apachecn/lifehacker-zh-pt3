@@ -1,6 +1,6 @@
 # 看看这个家伙建造了一个任天堂 Switch 克隆体，可以玩成千上万的经典游戏
 
-> 原文:[https://gizmodo . com/watch-this-guy-build-a-Nintendo-switch-clone-that-plays-1819709518](https://gizmodo.com/watch-this-guy-build-a-nintendo-switch-clone-that-plays-1819709518)
+> 原文：<https://gizmodo.com/watch-this-guy-build-a-nintendo-switch-clone-that-plays-1819709518>
 
 仍然很难在商店里找到任天堂 Switch？或者也许你已经厌倦了等待任天堂承诺的充满复古游戏的在线商店？蒂姆·林德奎斯特(Tim Lindquist)亲自动手，从零开始创建了一个任天堂 Switch 克隆体 ，它可以模拟 50 多个经典系统的游戏。
 

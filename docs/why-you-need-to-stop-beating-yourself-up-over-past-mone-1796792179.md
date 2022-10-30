@@ -1,6 +1,6 @@
 # 为什么你需要停止为过去的金钱错误而自责
 
-> 原文:[https://life hacker . com/why-you-need-stop-beating you-over-past-mone-1796792179](https://lifehacker.com/why-you-need-to-stop-beating-yourself-up-over-past-mone-1796792179)
+> 原文：<https://lifehacker.com/why-you-need-to-stop-beating-yourself-up-over-past-mone-1796792179>
 
 几年前，我犯了一个巨大的财务错误。作为一名自由职业者，我全年都没有缴税，结果在 4 月份欠了美国国税局数千美元。我不仅一文不名，还觉得自己像个傻瓜。但问题是，在这种错误上打击自己会让你更有可能重蹈覆辙。
 

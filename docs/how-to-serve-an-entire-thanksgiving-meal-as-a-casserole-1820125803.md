@@ -1,6 +1,6 @@
 # 如何将感恩节大餐做成砂锅菜
 
-> 原文:[https://life hacker . com/how-to-serve-a-what-a-whole-the-感恩节大餐-砂锅-1820125803](https://lifehacker.com/how-to-serve-an-entire-thanksgiving-meal-as-a-casserole-1820125803)
+> 原文：<https://lifehacker.com/how-to-serve-an-entire-thanksgiving-meal-as-a-casserole-1820125803>
 
 你好，欢迎来到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的分层创作的专栏。本周我们将在一个盘子里提供一顿完整的感恩节大餐，这真是太棒了，我的朋友们。
 

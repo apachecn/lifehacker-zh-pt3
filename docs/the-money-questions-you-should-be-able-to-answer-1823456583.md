@@ -1,6 +1,6 @@
 # 你应该能回答的钱的问题
 
-> 原文:[https://life hacker . com/the-money-questions-you-should-able-to-answer-1823456583](https://lifehacker.com/the-money-questions-you-should-be-able-to-answer-1823456583)
+> 原文：<https://lifehacker.com/the-money-questions-you-should-be-able-to-answer-1823456583>
 
 美国人真的是 [强调](https://www.thebalance.com/survey-says-even-the-rich-are-stressed-about-money-1289584) 出来讲钱。这是可以理解的: [储蓄低](https://www.valuepenguin.com/banking/average-savings-account-balance) ，开销高，我们背负着 [越来越多的债务](https://www.usatoday.com/story/money/personalfinance/2017/04/28/average-student-loan-debt-every-state/100893668/) 有时我们似乎永远也赚不到足够的钱来退休或去度假，这是我们梦寐以求的。
 

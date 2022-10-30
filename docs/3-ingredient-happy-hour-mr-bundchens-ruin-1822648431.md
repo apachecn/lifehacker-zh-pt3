@@ -1,6 +1,6 @@
 # 三要素快乐时光:邦辰先生的毁灭
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-Mr-bund chens-ruin-1822648431](https://lifehacker.com/3-ingredient-happy-hour-mr-bundchens-ruin-1822648431)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-mr-bundchens-ruin-1822648431>
 
 祝大家超级碗周末快乐，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏提供超级简单又美味的酒水。本周我们制作鸡尾酒向美国最具争议的四分卫致敬:汤姆·邦辰先生。
 

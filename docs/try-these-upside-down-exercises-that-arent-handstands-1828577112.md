@@ -1,6 +1,6 @@
 # 尝试这些不是倒立的倒立练习
 
-> 原文:[https://life hacker . com/try-these-the-parent-handstands-1828577112](https://lifehacker.com/try-these-upside-down-exercises-that-arent-handstands-1828577112)
+> 原文：<https://lifehacker.com/try-these-upside-down-exercises-that-arent-handstands-1828577112>
 
 在我们的[](https://vitals.lifehacker.com/let-s-get-upside-down-for-the-august-fitness-challenge-1828029407)倒立挑战中，我们已经谈到了，也尝试了 [倒立瑜伽式](https://vitals.lifehacker.com/how-to-work-up-to-your-first-yoga-headstand-1828419168#_ga=2.191399850.1203445406.1534765835-1456718367.1520458611) 。今天的重点不是关于平衡，而是关于如何倒立来帮助你锻炼力量。
 

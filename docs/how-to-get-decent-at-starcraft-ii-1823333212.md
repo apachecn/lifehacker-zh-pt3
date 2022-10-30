@@ -1,6 +1,6 @@
 # 如何在星际争霸 2 中变得体面
 
-> 原文:[https://kotaku . com/how-to-get-正派-at-starcraft-ii-1823333212](https://kotaku.com/how-to-get-decent-at-starcraft-ii-1823333212)
+> 原文：<https://kotaku.com/how-to-get-decent-at-starcraft-ii-1823333212>
 
 你可能偶尔会想:*我如何在*星际争霸 2*中变得伟大？我无法回答这个问题。但我至少可以告诉你如何做到体面。*
 

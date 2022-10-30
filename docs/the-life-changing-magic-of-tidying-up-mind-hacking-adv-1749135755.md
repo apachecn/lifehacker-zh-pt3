@@ -1,6 +1,6 @@
 # 整理改变生活的魔力:让生活不再杂乱的头脑黑客建议
 
-> 原文:[https://life hacker . com/the-life-changing-magic-of-cleaning-up-mind-hacking-adv-1749135755](https://lifehacker.com/the-life-changing-magic-of-tidying-up-mind-hacking-adv-1749135755)
+> 原文：<https://lifehacker.com/the-life-changing-magic-of-tidying-up-mind-hacking-adv-1749135755>
 
 日本组织顾问玛丽·近藤(Marie Kondo)以她的袖珍书《整理改变生活的魔法》在全世界掀起了一股整理热潮。读完这本书，很容易明白为什么。这本书可以改变你看待自己财产的方式。
 

@@ -1,6 +1,6 @@
 # 如何了解冻结和解冻你的信用
 
-> 原文:[https://life hacker . com/what-to-know-about-freezing-your-credit-1829474191](https://lifehacker.com/what-to-know-about-freezing-and-unfreezing-your-credit-1829474191)
+> 原文：<https://lifehacker.com/what-to-know-about-freezing-and-unfreezing-your-credit-1829474191>
 
 既然三个主要的信用机构被要求向你提供 [免费信用冻结](https://twocents.lifehacker.com/credit-freezes-will-soon-be-free-1828993474) ，有几件事要记住。
 

@@ -1,6 +1,6 @@
 # 既然造币厂正在结结巴巴地付账，该怎么办呢
 
-> 原文:[https://life hacker . com/what-to-do-now-the-mint-is-shuttering-bill-pay-1825528902](https://lifehacker.com/what-to-do-now-that-mint-is-shuttering-bill-pay-1825528902)
+> 原文：<https://lifehacker.com/what-to-do-now-that-mint-is-shuttering-bill-pay-1825528902>
 
 薄荷，最受欢迎的预算应用 之一，将于 6 月 30 日结束其 [账单支付](https://lifehacker.com/how-i-used-mint-bills-to-finally-simplify-my-bill-payme-1717972364) 功能，该公司在其 [网站](https://help.mint.com/Bill-Pay/1060777521/Mint-bill-pay-is-no-longer-supported.htm) 上表示。
 

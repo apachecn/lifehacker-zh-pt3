@@ -1,6 +1,6 @@
 # 员工在社交媒体上有哪些权利？
 
-> 原文:[https://life hacker . com/what-an-employees-rights-on-social-media-1819315034](https://lifehacker.com/what-are-an-employees-rights-on-social-media-1819315034)
+> 原文：<https://lifehacker.com/what-are-an-employees-rights-on-social-media-1819315034>
 
 昨天 [ESPN 暂停主持人杰姆勒·希尔](http://money.cnn.com/2017/10/09/media/jemele-hill-espn-suspended/index.html) 的职务，因为该公司称其第二次违反 ESPN 的社交媒体准则。周日，希尔在推特上写道:
 

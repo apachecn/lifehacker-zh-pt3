@@ -1,6 +1,6 @@
 # 你再也不用坐着看完《纸牌屋》的介绍了
 
-> 原文:[https://life hacker . com/you-don-t-to-sit-through the house of-cards-intro-1793389266](https://lifehacker.com/you-don-t-have-to-sit-through-the-house-of-cards-intro-1793389266)
+> 原文：<https://lifehacker.com/you-don-t-have-to-sit-through-the-house-of-cards-intro-1793389266>
 
 如果你觉得长长的片头妨碍了你的狂欢之夜，网飞正试图帮你解决这个问题。现在你可以跳过该服务的一些更受欢迎的电视节目的介绍。
 

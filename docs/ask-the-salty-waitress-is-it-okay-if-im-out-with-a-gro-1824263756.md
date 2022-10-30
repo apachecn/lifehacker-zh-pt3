@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:如果我和一群人出去，但不想点任何东西，可以吗？
 
-> 原文:[https://the take out . com/ask-the-salty-waste-it-ok-if-im-out-with-a-gro-1824263756](https://thetakeout.com/ask-the-salty-waitress-is-it-okay-if-im-out-with-a-gro-1824263756)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-is-it-okay-if-im-out-with-a-gro-1824263756>
 
 * * *
 

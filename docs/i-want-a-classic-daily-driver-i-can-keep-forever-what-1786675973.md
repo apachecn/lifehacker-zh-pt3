@@ -1,6 +1,6 @@
 # 我想要一个经典的日常司机，我可以永远保持！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-want-a-classic-daily-driver-I-can-keep-forever-what-1786675973](https://jalopnik.com/i-want-a-classic-daily-driver-i-can-keep-forever-what-1786675973)
+> 原文：<https://jalopnik.com/i-want-a-classic-daily-driver-i-can-keep-forever-what-1786675973>
 
 乔明年就 40 岁了。他显然偏爱有趣、时尚，甚至可能是非传统的选择，这就是为什么他有一辆 2016 款凯迪拉克 ATS Coupe。但是他明年冬天就要把租约到期了，现在他正在寻找他的最后一辆车——有史以来。他应该买什么车？
 

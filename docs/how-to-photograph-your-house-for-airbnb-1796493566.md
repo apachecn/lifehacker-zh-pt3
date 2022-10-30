@@ -1,6 +1,6 @@
 # 如何为 Airbnb 拍摄你的房子
 
-> 原文:[https://life hacker . com/how-to-photo-your-house for-Airbnb-1796493566](https://lifehacker.com/how-to-photograph-your-house-for-airbnb-1796493566)
+> 原文：<https://lifehacker.com/how-to-photograph-your-house-for-airbnb-1796493566>
 
 所以你已经迈出了这一步，决定 [为疲惫的旅行者、](https://lifehacker.com/what-weve-learned-about-being-good-airbnb-hosts-after-n-1790588517) 游客和度假者提供一个舒适的住所。你可以在 Airbnb、VRBO、HomeAway 或其他几个度假租赁网站上列出你的房子，但你要确保房源看起来尽可能诱人，以吸引客户。这意味着拍摄专业、好看的照片。
 

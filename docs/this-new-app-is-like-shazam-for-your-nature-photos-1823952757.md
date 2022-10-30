@@ -1,6 +1,6 @@
 # 这个新的应用程序就像你的自然照片的 Shazam
 
-> 原文:[https://gizmodo . com/this-new-app-is-like-shazam-for-your-nature-photos-1823952757](https://gizmodo.com/this-new-app-is-like-shazam-for-your-nature-photos-1823952757)
+> 原文：<https://gizmodo.com/this-new-app-is-like-shazam-for-your-nature-photos-1823952757>
 
 2016 年 7 月，成千上万的人在一款非常受欢迎的野生动物应用程序的指引下漫步街头和公园。这款应用是 Pokemon Go，实际上，野生动物并不存在。然而，当口袋妖怪粉丝试图收集神奇的——如果最终是数字的——动物时，一些人不可避免地发现了真实的动物。 的脱节衍生出不少笑话，大多涉及 [负鼠](https://www.pinterest.co.uk/pin/341569952972625092/) ，生态学家和 [博物馆馆长](https://nhm.org/site/node/4707) ，感觉到一个学习的机会，提供了以口袋妖怪 Go 为主题的推广活动；安娜·特凯特是伯明翰的一名动物园管理员，我的同校同学， [因其口袋妖怪风格的动物标牌而在网上迅速走红。](http://alabamanewscenter.com/2016/08/05/naked-mole-rat-go-birmingham-zoo-offers-pokemon-discount-reasons-look-phone/)T15】
 

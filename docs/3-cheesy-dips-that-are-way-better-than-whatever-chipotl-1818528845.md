@@ -1,6 +1,6 @@
 # 3 种奶酪蘸酱，比 Chipotle 正在做的任何东西都好
 
-> 原文:[https://life hacker . com/3-cheesy-dips-that-be-whatever-chipotl-1818528845](https://lifehacker.com/3-cheesy-dips-that-are-way-better-than-whatever-chipotl-1818528845)
+> 原文：<https://lifehacker.com/3-cheesy-dips-that-are-way-better-than-whatever-chipotl-1818528845>
 
 Chipotle 现在供应 queso 和， [如果 Twitter 是可信的](https://www.eater.com/2017/9/15/16314902/chipotle-queso-review-reactions) ，没有人留下深刻印象。我可能会相信他们的话，但我是一个“记者”，该死的，所以我闲逛到我附近的(最近安装的)Chipotle，点了一杯蘸酱。
 

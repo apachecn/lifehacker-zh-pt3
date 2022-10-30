@@ -1,6 +1,6 @@
 # 黑色星期三酒会如何帮助你挺过前任、姻亲和政治
 
-> 原文:[https://the take out . com/the-take out-choose-your-own-adventure-guide-to-black-w-1820338168](https://thetakeout.com/the-takeouts-choose-your-own-adventure-guide-to-black-w-1820338168)
+> 原文：<https://thetakeout.com/the-takeouts-choose-your-own-adventure-guide-to-black-w-1820338168>
 
 嘿，欢迎来到你家乡的黑色星期三！你肯定还记得去年感恩节旅行中那些令人不舒服的重聚吧？很高兴你回来了。
 

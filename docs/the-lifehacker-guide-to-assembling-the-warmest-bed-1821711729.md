@@ -1,6 +1,6 @@
 # Lifehacker 组装最暖床指南
 
-> 原文:[https://life hacker . com/the-life hacker-guide-to-assembling-the-warm bed-1821711729](https://lifehacker.com/the-lifehacker-guide-to-assembling-the-warmest-bed-1821711729)
+> 原文：<https://lifehacker.com/the-lifehacker-guide-to-assembling-the-warmest-bed-1821711729>
 
 今年冬天外面很冷，而且只会越来越冷。由于天气太冷而无法放松时，很难睡个好觉，Lifehacker 团队收集了他们的最佳策略，以尽可能打造最温暖的床。
 

@@ -1,6 +1,6 @@
 # 当你不能做俯卧撑时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-you-just-cant-do 俯卧撑-1823313792](https://lifehacker.com/what-to-do-when-you-just-cant-do-push-ups-1823313792)
+> 原文：<https://lifehacker.com/what-to-do-when-you-just-cant-do-push-ups-1823313792>
 
 致力于 [像我们上个月做的这样的俯卧撑挑战](https://vitals.lifehacker.com/were-all-doing-push-ups-this-february-1822600541#_ga=2.12103543.29497556.1519655975-830867226.1510769673) 是一个擅长俯卧撑的好方法，但它可能并不总是发展你上身力量的最佳方式。
 

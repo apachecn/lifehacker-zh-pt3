@@ -1,6 +1,6 @@
 # 当你忘记制定日食观测计划时，如何观测日食
 
-> 原文:[https://life hacker . com/how-to-watch-the-eclipse-when-you-forgot-to-make-eclipse-1798155649](https://lifehacker.com/how-to-watch-the-eclipse-when-you-forgot-to-make-eclips-1798155649)
+> 原文：<https://lifehacker.com/how-to-watch-the-eclipse-when-you-forgot-to-make-eclips-1798155649>
 
 2017 年的大日食就在今天。如果你不知何故设法不打算观看大事件，但已经决定你想，挑选正确的地点可能有点复杂。虽然大多数户外活动你可以在办公室或后门廊舒适地观看，但对于日食，你可能想重新定位。
 

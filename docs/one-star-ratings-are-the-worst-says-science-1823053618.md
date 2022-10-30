@@ -1,6 +1,6 @@
 # 《科学》杂志称，一星评级是最差的
 
-> 原文:[https://life hacker . com/one-star-ratings-is-the-worst-say-science-1823053618](https://lifehacker.com/one-star-ratings-are-the-worst-says-science-1823053618)
+> 原文：<https://lifehacker.com/one-star-ratings-are-the-worst-says-science-1823053618>
 
 一星评论，除了是最没有帮助的一种评论，也是最长和拼写最差的。数据新闻博客 Priceonomics [分析了 10 万条在线产品评论](https://priceonomics.com/is-there-a-connection-between-bad-grammar-and/) 发现，40%的一星评论至少有一个拼写错误，而五星评论不到 30%。
 

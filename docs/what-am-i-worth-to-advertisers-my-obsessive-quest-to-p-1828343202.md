@@ -1,6 +1,6 @@
 # 对广告商来说，我值多少钱？我执着地追求给自己的注意力定价
 
-> 原文:[https://gizmodo . com/what-am-I-worth-to-advertisers-my-obstructive-quest-to-p-1828343202](https://gizmodo.com/what-am-i-worth-to-advertisers-my-obsessive-quest-to-p-1828343202)
+> 原文：<https://gizmodo.com/what-am-i-worth-to-advertisers-my-obsessive-quest-to-p-1828343202>
 
 319.这是 7 月的一个星期二，我收到的在线和离线的独立广告的数量。我知道是因为我数了每一个。
 

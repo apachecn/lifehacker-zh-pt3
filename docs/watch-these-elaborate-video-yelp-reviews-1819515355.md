@@ -1,6 +1,6 @@
 # 观看这些精心制作的视频 Yelp 评论
 
-> 原文:[https://life hacker . com/watch-things-composite-video-yelp-reviews-1819515355](https://lifehacker.com/watch-these-elaborate-video-yelp-reviews-1819515355)
+> 原文：<https://lifehacker.com/watch-these-elaborate-video-yelp-reviews-1819515355>
 
 一年多来，*忍者神龟*导演戴夫·格林和演员乔·科布登一直在 Yelp 上发布 [越来越精细的 12 秒视频评论](https://www.yelp.com/user_local_photos?start=0&userid=Mpo1cdF9KUx8UBBS2VoeOA) 。他们和一些朋友一起制作了 41 部关于洛杉矶餐馆的视频，经常使用特效、特技和定格，让人想起 Vine 的黄金时代。
 

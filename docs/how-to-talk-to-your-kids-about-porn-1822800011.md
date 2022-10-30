@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论色情
 
-> 原文:[https://life hacker . com/how-to-talk-to-your-kids-on-porn-1822800011](https://lifehacker.com/how-to-talk-to-your-kids-about-porn-1822800011)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kids-about-porn-1822800011>
 
 如果你认为你的孩子没有得到任何形式的性教育，那你就错了:他们得到了很多——来自色情。听起来不可怕吗？
 

@@ -1,6 +1,6 @@
 # 这些国际航空公司接受宠物
 
-> 原文:[https://life hacker . com/these-international-airlines-accept-pets-1827636252](https://lifehacker.com/these-international-airlines-accept-pets-1827636252)
+> 原文：<https://lifehacker.com/these-international-airlines-accept-pets-1827636252>
 
 几年前，我带着我的狗从加利福尼亚开车到北卡罗来纳州过圣诞节。我原本计划为我们为期一个月的访问飞行，但在 22 磅，我的狗最终有点太重了，不能合法地在我的座位下飞行，我也不愿意把他作为货物飞行。于是:#FatTucker 和我去了一次越野公路旅行。
 

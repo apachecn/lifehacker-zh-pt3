@@ -1,6 +1,6 @@
 # 20 岁前对金钱有什么了解
 
-> 原文:[https://life hacker . com/what-to-know-about the money-you-20-1828189748](https://lifehacker.com/what-to-know-about-money-before-youre-20-1828189748)
+> 原文：<https://lifehacker.com/what-to-know-about-money-before-youre-20-1828189748>
 
 大多数年轻人在学校里没有学到个人理财的原则，但是在你十几岁和二十出头的时候养成良好的习惯可以帮助你过上真正富足的生活。
 

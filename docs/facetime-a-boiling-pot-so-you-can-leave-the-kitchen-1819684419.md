@@ -1,6 +1,6 @@
 # FaceTime 一个沸腾的锅，这样你就可以离开厨房了
 
-> 原文:[https://life hacker . com/face time-a-boiling-pot-so-you-leave-the-kitchen-1819684419](https://lifehacker.com/facetime-a-boiling-pot-so-you-can-leave-the-kitchen-1819684419)
+> 原文：<https://lifehacker.com/facetime-a-boiling-pot-so-you-can-leave-the-kitchen-1819684419>
 
 人们说，心急吃不了热豆腐，但不清楚这个说法是否适用于视频通话。一个有事业心的年轻人用他的 iPhone 监控一壶他想烧开的水，这一举动我只能称之为“极其懒惰”。
 

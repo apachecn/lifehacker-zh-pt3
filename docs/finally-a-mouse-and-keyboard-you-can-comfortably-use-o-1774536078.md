@@ -1,6 +1,6 @@
 # 最后，你可以在沙发上舒适地使用鼠标和键盘
 
-> 原文:[https://gizmodo . com/finally-a-mouse-and-keyboard-o-1774536078](https://gizmodo.com/finally-a-mouse-and-keyboard-you-can-comfortably-use-o-1774536078)
+> 原文：<https://gizmodo.com/finally-a-mouse-and-keyboard-you-can-comfortably-use-o-1774536078>
 
 虽然许多电视都在不停地重复规格，以使它们对 PC 游戏具有吸引力，并且许多 PC 制造商缩小了他们的系统，以适应您的媒体中心，但在您的沙发上玩 PC 游戏的概念仍然存在一个主要问题。
 

@@ -1,6 +1,6 @@
 # 今晚去哪里买 PlayStation 的限量版游戏机
 
-> 原文:[https://life hacker . com/where-to-buy-playstations-limited-edition-console-tonig-1828562820](https://lifehacker.com/where-to-buy-playstations-limited-edition-console-tonig-1828562820)
+> 原文：<https://lifehacker.com/where-to-buy-playstations-limited-edition-console-tonig-1828562820>
 
 索尼正在庆祝其 5 亿台 PlayStation 系统的销售，新的限量版主机具有 2TB 的空间和半透明的蓝色外壳。只有 50，000 台将在全球销售，订单将于明天，8 月 24 日正式开始。
 

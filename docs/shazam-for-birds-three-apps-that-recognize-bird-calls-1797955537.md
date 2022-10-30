@@ -1,6 +1,6 @@
 # Shazam for Birds:三款识别鸟叫声的应用
 
-> 原文:[https://life hacker . com/shazam-for-birds-three-apps-that-recognized-birds-calls-1797955537](https://lifehacker.com/shazam-for-birds-three-apps-that-recognize-bird-calls-1797955537)
+> 原文：<https://lifehacker.com/shazam-for-birds-three-apps-that-recognize-bird-calls-1797955537>
 
 “Shazam for bird calls”是一个引人注目的推销词，也是一个困难的技术命题。对于一个算法来说，识别动物的声音(尽管它们有着野性的美丽)比识别一首流行歌曲的特定录音要困难得多。然而，令人印象深刻的是，在人类的一点帮助下，几个应用程序真的可以通过歌曲来识别一只鸟。
 

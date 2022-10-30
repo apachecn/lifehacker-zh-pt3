@@ -1,6 +1,6 @@
 # 如何使不新鲜的面包复活
 
-> 原文:[https://thetakeout.com/how-to-revive-stale-bread-1825226217](https://thetakeout.com/how-to-revive-stale-bread-1825226217)
+> 原文：<https://thetakeout.com/how-to-revive-stale-bread-1825226217>
 
 一条新鲜出炉的面包是人生的一大乐事。柔软的内部是开放和通风的，每一口都有一点阻力。外表全是硬壳，口感和味道形成鲜明对比。然而，这种平衡转瞬即逝。刚出炉时，它处于最佳状态，但随着每一分钟的流逝，面包向油炸面包丁、硬面面包和冰球又前进了一步。为什么大自然必须如此残酷？为什么所有的面包都变味了？
 

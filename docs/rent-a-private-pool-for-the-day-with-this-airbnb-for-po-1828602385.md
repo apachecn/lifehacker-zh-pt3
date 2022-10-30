@@ -1,6 +1,6 @@
 # 使用“Airbnb 游泳池”租一天私人游泳池
 
-> 原文:[https://life hacker . com/rent-a-private-pool-on-this-Airbnb-for-po-1828602385](https://lifehacker.com/rent-a-private-pool-for-the-day-with-this-airbnb-for-po-1828602385)
+> 原文：<https://lifehacker.com/rent-a-private-pool-for-the-day-with-this-airbnb-for-po-1828602385>
 
 我喜欢游泳，但我讨厌公共游泳池。我并不真的反对与人共用一个游泳池的概念，更反对它的执行，在那里你意外地在一群年轻人玩的一场激烈的游戏中结束，或者只是有点太靠近那个穿着泳裤的老绅士而不舒服。我想我只是不喜欢拥挤的公共泳池。我喜欢我的空间。
 

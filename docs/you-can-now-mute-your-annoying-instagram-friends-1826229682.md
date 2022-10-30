@@ -1,6 +1,6 @@
 # 你现在可以让你讨厌的 Instagram 好友静音了
 
-> 原文:[https://life hacker . com/you-can-now-mute-your-friends-insta gram-friends-1826229682](https://lifehacker.com/you-can-now-mute-your-annoying-instagram-friends-1826229682)
+> 原文：<https://lifehacker.com/you-can-now-mute-your-annoying-instagram-friends-1826229682>
 
 我们都有一个在社交媒体上让人难以忍受的朋友。如果你厌倦了看到你的 Instagram feed 充斥着恼人的 memes、幸灾乐祸的状态更新或无休止的自拍，解决方案似乎很明显:取消关注它们。
 

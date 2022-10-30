@@ -1,6 +1,6 @@
 # 倒置储存有机花生酱，避免油腻
 
-> 原文:[https://life hacker . com/store-organic-peanut-butter-over-to-avoid-an-oil-1824145958](https://lifehacker.com/store-organic-peanut-butter-upside-down-to-avoid-an-oil-1824145958)
+> 原文：<https://lifehacker.com/store-organic-peanut-butter-upside-down-to-avoid-an-oil-1824145958>
 
 有机花生酱是美味的东西，只要你不吃太多，它甚至可以成为健康饮食的一部分。但是当你储存一段时间后(或者在某些情况下，当你第一次购买它时)，油会从其余的黄油中分离出来，并上升到顶部，这需要大力搅拌才能传播精华。快速翻转可以解决这个问题。
 

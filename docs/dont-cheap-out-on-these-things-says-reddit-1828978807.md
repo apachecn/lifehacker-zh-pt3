@@ -1,6 +1,6 @@
 # Reddit 说，不要在这些东西上省钱
 
-> 原文:[https://life hacker . com/don-t-cheap-out-on-these-things-says-Reddit-1828978807](https://lifehacker.com/dont-cheap-out-on-these-things-says-reddit-1828978807)
+> 原文：<https://lifehacker.com/dont-cheap-out-on-these-things-says-reddit-1828978807>
 
 [“什么样的产品或服务是你绝对不能廉价购买的？”](https://old.reddit.com/r/AskReddit/comments/9en0j5/whats_a_product_or_service_you_should_never_cheap/) 问 redditor Kill_Dr_Phil。成千上万的 redditors 有答案。我们收集了一些经过深思熟虑的答案。
 

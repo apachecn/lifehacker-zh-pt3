@@ -1,6 +1,6 @@
 # 现在有更多的人申请 96 个月的汽车贷款
 
-> 原文:[https://jalopnik . com/there-more-people-take-out-96 个月汽车贷款-now-1825857334](https://jalopnik.com/theres-more-people-taking-out-96-month-auto-loans-now-1825857334)
+> 原文：<https://jalopnik.com/theres-more-people-taking-out-96-month-auto-loans-now-1825857334>
 
 上个月，我们简要强调了期限长达 84 个月的汽车贷款正变得越来越普遍，这要归功于一些主要因素。事实证明，我应该挖得更深: [正如《金融时报》所指出的那样](https://www.ft.com/content/9193f898-4d71-11e8-97e4-13afc22d86d4)*，我们见证了接受 96 个月贷款的新车购买者数量的上升。八年了，伙计们。*
 

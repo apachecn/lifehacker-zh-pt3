@@ -1,6 +1,6 @@
 # 镜子的边缘桌面
 
-> 原文:[https://lifehacker.com/the-mirrors-edge-desktop-1773391868](https://lifehacker.com/the-mirrors-edge-desktop-1773391868)
+> 原文：<https://lifehacker.com/the-mirrors-edge-desktop-1773391868>
 
 我对《镜的边缘:催化剂》感到非常兴奋，而这个由读者 [0BUX](http://kinja.com/sahajkoka) 提交给我们的 [桌面展示](http://kinja.com/tag/desktop-showcase) 的桌面肯定没有帮助。看起来很神奇。以下是如何让它成为你的。
 

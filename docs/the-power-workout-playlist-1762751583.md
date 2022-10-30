@@ -1,6 +1,6 @@
 # 力量训练播放列表
 
-> 原文:[https://life hacker . com/the-power-workout-playlist-1762751583](https://lifehacker.com/the-power-workout-playlist-1762751583)
+> 原文：<https://lifehacker.com/the-power-workout-playlist-1762751583>
 
 是时候开始你的锻炼了。当你准备好切换到 beast 模式时，Spotify 的力量训练播放列表可以帮助你振作起来。
 

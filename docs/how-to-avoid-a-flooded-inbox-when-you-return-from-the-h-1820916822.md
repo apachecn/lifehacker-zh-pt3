@@ -1,6 +1,6 @@
 # 度假归来，如何避免收件箱被淹没
 
-> 原文:[https://life hacker . com/how-to-avoid-a-flooded-inbox-when-you-return-from-the-h-1820916822](https://lifehacker.com/how-to-avoid-a-flooded-inbox-when-you-return-from-the-h-1820916822)
+> 原文：<https://lifehacker.com/how-to-avoid-a-flooded-inbox-when-you-return-from-the-h-1820916822>
 
 你们中的一些人可能刚刚从感恩节周末的电子邮件雪崩中走出来。再过几周，我们将进入今年的最后一个假期虫洞，并不得不在 1 月 2 日穿过成堆的未读信件返回。这里有一些小技巧，可以让你重返工作岗位和收发电子邮件时稍微不那么痛苦。
 

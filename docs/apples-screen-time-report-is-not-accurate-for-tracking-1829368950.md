@@ -1,6 +1,6 @@
 # 苹果的屏幕时间报告对于追踪你的习惯并不准确
 
-> 原文:[https://life hacker . com/apple-screen-time-report-is-not-accurate-for-tracking-1829368950](https://lifehacker.com/apples-screen-time-report-is-not-accurate-for-tracking-1829368950)
+> 原文：<https://lifehacker.com/apples-screen-time-report-is-not-accurate-for-tracking-1829368950>
 
 iOS 12已经过时，很多人突然意识到他们在智能手机上花了太多时间。*道。也是。很多。时间。*这一切都要归功于手机设置菜单中的屏幕时间功能——就在“请勿打扰”下方轻点它，你的 iPhone 或 iPad 会给你各种可怕的信息:你花了多少时间粘在上面，你做了什么，甚至你拿起了多少(甚至精确到小时)。
 

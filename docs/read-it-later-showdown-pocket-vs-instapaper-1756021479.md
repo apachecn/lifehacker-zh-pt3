@@ -1,6 +1,6 @@
 # 稍后阅读摊牌:口袋 vs. Instapaper
 
-> 原文:[https://life hacker . com/read-it-la ter-摊牌-pocket-vs-instapaper-1756021479](https://lifehacker.com/read-it-later-showdown-pocket-vs-instapaper-1756021479)
+> 原文：<https://lifehacker.com/read-it-later-showdown-pocket-vs-instapaper-1756021479>
 
 说到让你把今天的文章留到有空时阅读的“以后再看”服务，这些天你只有两个严肃的选择:和 [Instapaper](https://www.instapaper.com/) 。两者都很棒，但它们多年来有所不同，发挥了不同的优势。让我们面对面地比较一下。
 

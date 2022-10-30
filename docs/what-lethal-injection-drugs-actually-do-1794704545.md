@@ -1,6 +1,6 @@
 # 致命注射药物的实际作用
 
-> 原文:[https://life hacker . com/what-death-injection-drugs-actually-do-1794704545](https://lifehacker.com/what-lethal-injection-drugs-actually-do-1794704545)
+> 原文：<https://lifehacker.com/what-lethal-injection-drugs-actually-do-1794704545>
 
 用于致命注射的药物不是为了杀人而设计的，由于它们在医学上的应用，它们今天在市场上销售。制药公司不允许它们被用于执行死刑，但阿肯色州还是得到了一些。这是该州致命注射鸡尾酒中的三种药物的实际作用。
 

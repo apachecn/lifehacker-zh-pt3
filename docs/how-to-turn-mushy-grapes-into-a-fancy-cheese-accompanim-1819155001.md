@@ -1,6 +1,6 @@
 # 如何将糊状的葡萄变成美味的奶酪
 
-> 原文:[https://life hacker . com/how-to-turn-mashy-grapes-to-a-fancy-cheese-accompanim-1819155001](https://lifehacker.com/how-to-turn-mushy-grapes-into-a-fancy-cheese-accompanim-1819155001)
+> 原文：<https://lifehacker.com/how-to-turn-mushy-grapes-into-a-fancy-cheese-accompanim-1819155001>
 
 葡萄很好，但我喜欢新鲜结实的。当它们开始变软的时候，我就失去了兴趣，让它们在我的保鲜盒里枯萎，直到它们“坏到”可以扔掉。然而，这个可怕的循环已经被打破了，因为我发现了烤葡萄。
 

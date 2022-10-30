@@ -1,6 +1,6 @@
 # 在购买 Kindle 之前，考虑一下实体书的好处
 
-> 原文:[https://life hacker . com/before-buy-a-kindle-consider-the-physical-book-s-be-1819507883](https://lifehacker.com/before-buying-a-kindle-consider-the-physical-book-s-be-1819507883)
+> 原文：<https://lifehacker.com/before-buying-a-kindle-consider-the-physical-book-s-be-1819507883>
 
 亚马逊最新的 Kindle， [售价 249 美元的新款 Kindle Oasis](https://gizmodo.com/amazons-sick-high-end-kindle-got-a-serious-overhaul-1819330183) ，绝对吸引人。它有一个更大的屏幕，防水，和蓝牙支持听有声读物。但是如果你认为阅读是最基本的，你最好坚持传统的纸质书，而不是像素化的页面。一项又一项研究表明，由于各种原因，在屏幕上阅读不如在纸上阅读。在把辛苦赚来的钱花在新的 Kindle Oasis 或任何电子阅读器上之前，这是值得考虑的事情。
 

@@ -1,6 +1,6 @@
 # 如何将果皮和外皮变成美味的小吃
 
-> 原文:[https://life hacker . com/how-to-turn-peels-and-rinds-to-delicious-snacks-1795446319](https://lifehacker.com/how-to-turn-peels-and-rinds-into-delicious-snacks-1795446319)
+> 原文：<https://lifehacker.com/how-to-turn-peels-and-rinds-into-delicious-snacks-1795446319>
 
 我从来不喜欢各种食物的果皮、外皮或任何坚硬的外层部分。虽然我很少花时间这样做，但我更喜欢削苹果皮，如果我觉得有点幼稚，我还是会把三明治的外皮去掉。因此，我倾向于避开提倡直接大嚼果皮之类的食谱。
 

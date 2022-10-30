@@ -1,6 +1,6 @@
 # 如何在公共泳池里降温并保持安全
 
-> 原文:[https://life hacker . com/how-to-cool-off-and-stay-safe-in-public-pools-1780987525](https://lifehacker.com/how-to-cool-off-and-stay-safe-in-public-pools-1780987525)
+> 原文：<https://lifehacker.com/how-to-cool-off-and-stay-safe-in-public-pools-1780987525>
 
 在炎热的夏天，公共游泳池里清凉、波光粼粼的水当然很诱人。但是，如果没有得到适当的维护和处理，这些公共泳池会传播细菌，导致令人不快的疾病，破坏乐趣。为了在公共泳池里保持安全(和凉爽),你需要知道以下几点。
 

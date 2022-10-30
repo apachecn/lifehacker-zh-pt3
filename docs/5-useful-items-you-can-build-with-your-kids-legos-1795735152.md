@@ -1,6 +1,6 @@
 # 你可以用孩子的乐高积木搭建 5 件有用的物品
 
-> 原文:[https://life hacker . com/5-useful-items-you-can-build-with-your-kids-Legos-1795735152](https://lifehacker.com/5-useful-items-you-can-build-with-your-kids-legos-1795735152)
+> 原文：<https://lifehacker.com/5-useful-items-you-can-build-with-your-kids-legos-1795735152>
 
 因此，你已经被迫进入了另一个看起来没有胜算的育儿场景:现在是乐高时间，而你有抱负的弗兰克·劳埃德·赖特不想要你帮助建造一个有 16 个轴(加上翅膀)的两栖彩虹坦克。尽管如此，他还是坚持要你参与，因为他的天才必须被见证(聪明的人总是要求很高)。
 

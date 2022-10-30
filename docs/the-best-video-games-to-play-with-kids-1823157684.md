@@ -1,6 +1,6 @@
 # 和孩子一起玩的最好的电子游戏
 
-> 原文:[https://kotaku . com/the-best-video-games-to-play-with-kids-1823157684](https://kotaku.com/the-best-video-games-to-play-with-kids-1823157684)
+> 原文：<https://kotaku.com/the-best-video-games-to-play-with-kids-1823157684>
 
 如果你自己也喜欢游戏，和孩子玩电子游戏可能是为人父母的一大乐趣。这也可能是一个彻底的痛苦。
 

@@ -1,6 +1,6 @@
 # 这些过时的购车神话正在浪费你的钱
 
-> 原文:[https://jalopnik . com/outsided-car-buying-myths-the-costing-you money-1774425001](https://jalopnik.com/outdated-car-buying-myths-that-are-costing-you-money-1774425001)
+> 原文：<https://jalopnik.com/outdated-car-buying-myths-that-are-costing-you-money-1774425001>
 
 大约每周我都会看到一篇文章，声称提供“购车技巧”，或声称告诉“经销商不想让你知道的秘密”虽然有些建议很有帮助，但其他建议只是泛泛而谈，可能不会让你得到最好的交易。
 

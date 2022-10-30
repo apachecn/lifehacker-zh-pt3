@@ -1,6 +1,6 @@
 # 什么是非特级初榨橄榄油，我应该什么时候使用？
 
-> 原文:[https://the take out . com/when-should-I-use-non-特级初榨橄榄油-1828806109](https://thetakeout.com/when-should-i-use-non-extra-virgin-olive-oil-1828806109)
+> 原文：<https://thetakeout.com/when-should-i-use-non-extra-virgin-olive-oil-1828806109>
 
 我们大多数人都认为特级初榨橄榄油，或者有时是食谱中的 EVOO，是好东西。毕竟，烹饪书特别要求它，它的名字里甚至有“额外”这个词。但是它的非特级初榨橄榄油的兄弟姐妹可能只是被贴上“橄榄油”或“清淡口味的橄榄油”的标签呢？这些劣质油是给那些贪便宜的老百姓的吗？
 

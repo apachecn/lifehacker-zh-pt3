@@ -1,6 +1,6 @@
 # 问专家:所有关于改善你的姿势
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-improving-your-posture-1770260889](https://lifehacker.com/ask-an-expert-all-about-improving-your-posture-1770260889)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-improving-your-posture-1770260889>
 
 对于我们这些整天趴在键盘上、盯着手机伸长脖子的人来说，背部和颈部疼痛太常见了。坐在电脑前并不是什么累人的工作，但肯定会有这种感觉。那么如何才能改善姿势，避免酸痛呢？
 

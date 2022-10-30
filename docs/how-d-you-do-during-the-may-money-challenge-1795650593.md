@@ -1,6 +1,6 @@
 # 你在五月金钱挑战赛中表现如何？
 
-> 原文:[https://life hacker . com/how-d-you-do-in-may-money-challenge-1795650593](https://lifehacker.com/how-d-you-do-during-the-may-money-challenge-1795650593)
+> 原文：<https://lifehacker.com/how-d-you-do-during-the-may-money-challenge-1795650593>
 
 今天是这个月的最后一天，这意味着是挑战签到的时候了。五月份，我们要求你 [提高你的谈判技巧。](https://lifehacker.com/may-s-money-challenge-let-s-haggle-1794740686) 你们好，砍价的人？
 

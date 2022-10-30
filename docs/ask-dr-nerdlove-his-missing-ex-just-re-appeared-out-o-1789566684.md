@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我的人失踪的前男友突然出现了
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-his-missing-ex-just-re-appeared-out-o-1789566684](https://kotaku.com/ask-dr-nerdlove-his-missing-ex-just-re-appeared-out-o-1789566684)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-his-missing-ex-just-re-appeared-out-o-1789566684>
 
 你好，所有你飞奔的互联网性黄鼠狼。欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove#_ga=1.48094311.1374784816.1416946327) 博士，这是唯一一个部分是动物，部分是机器的约会专栏。
 

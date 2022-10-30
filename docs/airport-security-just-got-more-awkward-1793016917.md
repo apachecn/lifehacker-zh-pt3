@@ -1,6 +1,6 @@
 # 机场安检变得更加尴尬
 
-> 原文:[https://life hacker . com/airport-security-just-get-more-hangible-1793016917](https://lifehacker.com/airport-security-just-got-more-awkward-1793016917)
+> 原文：<https://lifehacker.com/airport-security-just-got-more-awkward-1793016917>
 
 如果机场安检措施 [还不够令人不舒服的话，](https://lifehacker.com/how-to-get-through-airport-security-without-pissing-off-1770832640) 美国运输安全管理局最近透露，他们正在让搜身程序变得更具侵入性。一位发言人告诉彭博，“我要说的是，过去会被搜身的人会注意到，(新的)搜身更复杂了。”
 

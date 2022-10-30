@@ -1,6 +1,6 @@
 # 朝鲜的导弹库究竟能到达世界的哪个角落
 
-> 原文:[https://life hacker . com/where-in-the-world-of-Koreas-armory-of-missiles-can-1820009566](https://lifehacker.com/where-in-the-world-north-koreas-arsenal-of-missiles-can-1820009566)
+> 原文：<https://lifehacker.com/where-in-the-world-north-koreas-arsenal-of-missiles-can-1820009566>
 
 由于他们咄咄逼人的威胁和导弹试验，朝鲜现在似乎总是出现在新闻中。后者是许多人担心世界末日的原因。但是他们能用他们拥有的导弹攻击哪里呢？
 

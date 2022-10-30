@@ -1,6 +1,6 @@
 # 你患癌症的风险部分取决于你住在哪里
 
-> 原文:[https://life hacker . com/your-cancer-risk-in-part-depends-on-where-you-live-1795022150](https://lifehacker.com/your-cancer-risk-depends-in-part-on-where-you-live-1795022150)
+> 原文：<https://lifehacker.com/your-cancer-risk-depends-in-part-on-where-you-live-1795022150>
 
 每 100，000 名美国人中，有 451 人会在某一年患上癌症。但这取决于你居住的地方:一些县的癌症发病率比其他县高。这些比率与 [这张环境质量地图](https://www.arcgis.com/home/webmap/viewer.html?webmap=90ab3f8d668c4a4e88144d586ea34141) 非常匹配，你现在应该检查一下——因为这可能是最后一张了。
 

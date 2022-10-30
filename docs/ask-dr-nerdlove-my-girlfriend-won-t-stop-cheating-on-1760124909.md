@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我的女朋友不会停止欺骗我和她的前任
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-女朋友-won-t-stop-出轨-1760124909](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-won-t-stop-cheating-on-1760124909)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-won-t-stop-cheating-on-1760124909>
 
 你好，互联网！欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，第一个以振荡推翻者的力量突破到第 8 维度的约会建议专栏。
 

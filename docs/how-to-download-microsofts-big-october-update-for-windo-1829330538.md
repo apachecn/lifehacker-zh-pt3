@@ -1,6 +1,6 @@
 # 如何立即下载微软 10 月份的 Windows 10 更新
 
-> 原文:[https://life hacker . com/how-to-download-Microsoft-big-December-update-for-windo-1829330538](https://lifehacker.com/how-to-download-microsofts-big-october-update-for-windo-1829330538)
+> 原文：<https://lifehacker.com/how-to-download-microsofts-big-october-update-for-windo-1829330538>
 
 微软计划在 10 月初发布 Windows 10 版本 1809，但多亏了一个小技巧，你现在就可以抓住更新，拿出来提前试驾。
 

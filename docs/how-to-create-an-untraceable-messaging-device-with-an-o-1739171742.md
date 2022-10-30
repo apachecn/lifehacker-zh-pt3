@@ -1,6 +1,6 @@
 # 如何用旧手机创建一个不可追踪的信息设备
 
-> 原文:[https://life hacker . com/how-to-create-a-un tractable-messaging-device-with-an-o-1739171742](https://lifehacker.com/how-to-create-an-untraceable-messaging-device-with-an-o-1739171742)
+> 原文：<https://lifehacker.com/how-to-create-an-untraceable-messaging-device-with-an-o-1739171742>
 
 秘密的匿名信息不仅仅是给懦夫的。幸运的是，一点隐私并不难获得。通过一些努力和一部备用手机，你可以举报，保护你的隐私免受骚扰，在 Craigslist 上销售或在 Match 上寻找约会对象时保持匿名。以下是方法。
 

@@ -1,6 +1,6 @@
 # 用不可食用的百里香茎制作鸡尾酒糖浆
 
-> 原文:[https://life hacker . com/make-a-cocktail-糖浆-out-of-in-disable-百里香-stems-1823413539](https://lifehacker.com/make-a-cocktail-syrup-out-of-inedible-thyme-stems-1823413539)
+> 原文：<https://lifehacker.com/make-a-cocktail-syrup-out-of-inedible-thyme-stems-1823413539>
 
 百里香再多也不为过，但我经常发现自己有很多剩余的百里香茎。这些木质的，不可食用的，但仍然芳香的小植物部分可能看起来无用，但你可以用它们来调味鸡尾酒糖浆，回收每一点百里香。
 

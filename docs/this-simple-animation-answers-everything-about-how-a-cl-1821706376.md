@@ -1,6 +1,6 @@
 # 这个简单的动画回答了离合器如何工作的所有问题
 
-> 原文:[https://jalopnik . com/this-simple-animation-answers-everything-about-how-a-cl-1821706376](https://jalopnik.com/this-simple-animation-answers-everything-about-how-a-cl-1821706376)
+> 原文：<https://jalopnik.com/this-simple-animation-answers-everything-about-how-a-cl-1821706376>
 
 我们中的许多人对汽车离合器的功能有一个基本的概念，但是当我们真正从汽车中看到一个离合器时，仍然会发现所有的齿和弹簧令人困惑。幸运的是，YouTube 上的 *Learn Engineering* 制作了这个简单的动画，这可能是迄今为止对你的离合器实际工作方式最清晰的描述。
 

@@ -1,6 +1,6 @@
 # 如何在 PS4 上安装外置硬盘
 
-> 原文:[https://life hacker . com/how-to-setup-an-external-hard-drive-on-your-ps4-1793125365](https://lifehacker.com/how-to-set-up-an-external-hard-drive-on-your-ps4-1793125365)
+> 原文：<https://lifehacker.com/how-to-set-up-an-external-hard-drive-on-your-ps4-1793125365>
 
 索尼今天发布了 PlayStation 4 [固件更新](http://blog.us.playstation.com/2017/03/08/ps4-system-software-update-4-50-out-tomorrow/) 。除了对 PSVR 和 PS4 Pro 用户的一些调整外，还推出了期待已久的外部硬盘支持。下面是如何设置它。
 

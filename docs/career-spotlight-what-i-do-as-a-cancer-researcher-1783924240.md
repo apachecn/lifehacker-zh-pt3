@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名癌症研究者，我做了什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-cancer-research-1783924240](https://lifehacker.com/career-spotlight-what-i-do-as-a-cancer-researcher-1783924240)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-cancer-researcher-1783924240>
 
 一些医学专业人士在实验室度过他们的职业生涯，通过他们的研究改善世界，而其他人则专注于成为对病人有爱心的医生。医学博士 Tina Cascone 博士两样都做。
 

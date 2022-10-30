@@ -1,6 +1,6 @@
 # 你可以通过加上 Absolute 把任何物体变成一种侮辱
 
-> 原文:[https://life hacker . com/you-can-turn-any-object to-a discussion-by-adding-absol-1825755510](https://lifehacker.com/you-can-turn-any-object-into-an-insult-by-adding-absol-1825755510)
+> 原文：<https://lifehacker.com/you-can-turn-any-object-into-an-insult-by-adding-absol-1825755510>
 
 “如果你把‘你绝对’放在前面，你几乎可以把任何物体变成一个很好的侮辱，”Tumblr 热门帖子 说，这已经成为一个关于特定语言现象的帖子。Tumblr 的绝对轿车发现*说出*也能把话变成侮辱，还有更多:
 

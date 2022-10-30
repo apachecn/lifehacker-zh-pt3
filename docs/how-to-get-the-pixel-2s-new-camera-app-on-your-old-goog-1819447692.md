@@ -1,6 +1,6 @@
 # 如何在你的旧谷歌手机上安装 Pixel 2 的新相机应用程序
 
-> 原文:[https://life hacker . com/how-to-get-the-pixel-2s-new-camera-app-on-your-old-goog-1819447692](https://lifehacker.com/how-to-get-the-pixel-2s-new-camera-app-on-your-old-goog-1819447692)
+> 原文：<https://lifehacker.com/how-to-get-the-pixel-2s-new-camera-app-on-your-old-goog-1819447692>
 
 [Pixel 2 最大的特点之一](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085) 是它的摄像头，在[dxo mark](https://www.dxomark.com/google-pixel-2-reviewed-sets-new-record-smartphone-camera-quality/)**上午 11:07**——dxo mark 评分系统的详细信息被更新)的摄像头质量测试人员打出了史无前例的 98 分。你将不得不支付更多的钱来获得新的硬件，但你现在可以在你目前的谷歌手机上尝试 Pixel 2 的一些花哨的新相机功能。
 

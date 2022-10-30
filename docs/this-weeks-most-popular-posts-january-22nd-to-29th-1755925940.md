@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 22 日至 29 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-January-22-to-29-1755925940](https://lifehacker.com/this-weeks-most-popular-posts-january-22nd-to-29th-1755925940)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-22nd-to-29th-1755925940>
 
 本周，我们思考了转瞬即逝的时间以及如何不浪费它，剖析了汽车制造商和经销商的最大谎言，比较了最好的机顶盒，等等。这里回顾一下。
 

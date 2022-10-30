@@ -1,6 +1,6 @@
 # 家庭语音助手对决:亚马逊 Echo vs. Google Home
 
-> 原文:[https://life hacker . com/home-voice-assistant-摊牌-Amazon-echo-vs-Google-h-1788622066](https://lifehacker.com/home-voice-assistant-showdown-amazon-echo-vs-google-h-1788622066)
+> 原文：<https://lifehacker.com/home-voice-assistant-showdown-amazon-echo-vs-google-h-1788622066>
 
 本周，谷歌发布了一款语音控制的智能设备 Google Home，以与出人意料地受欢迎的亚马逊 Echo 竞争。这两款设备都可以播放音乐，控制灯光，只用声音回答问题，但我们想看看谷歌的新设备如何对抗现有的竞争。
 

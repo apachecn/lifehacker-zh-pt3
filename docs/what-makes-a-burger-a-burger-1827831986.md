@@ -1,6 +1,6 @@
 # 是什么让汉堡成为汉堡？
 
-> 原文:[https://life hacker . com/what-makes-a-burger-a-burger-1827831986](https://lifehacker.com/what-makes-a-burger-a-burger-1827831986)
+> 原文：<https://lifehacker.com/what-makes-a-burger-a-burger-1827831986>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。现在是 [汉堡周](https://lifehacker.com/c/burger-week) ，意思是我想知道一个汉堡对你意味着什么。
 

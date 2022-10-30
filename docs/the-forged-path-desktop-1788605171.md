@@ -1,6 +1,6 @@
 # 伪造的路径桌面
 
-> 原文:[https://lifehacker.com/the-forged-path-desktop-1788605171](https://lifehacker.com/the-forged-path-desktop-1788605171)
+> 原文：<https://lifehacker.com/the-forged-path-desktop-1788605171>
 
 [Dobbie03](http://kinja.com/dobbie03) 在使用 Gnome-Shell 很久之后，决定给 [sidboX](https://www.sidbox.org/) 一个尝试，这启发了他定制他的 Arch box，你可以在上面看到。如果你不知道这是怎么回事，没关系——最终的结果是一个华丽的，定制的 Linux 桌面，我们都可以欣赏。
 

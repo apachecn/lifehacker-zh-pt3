@@ -1,6 +1,6 @@
 # 和朋友一起做家务，让父母不那么孤立
 
-> 原文:[https://life hacker . com/doe-doe-does-with-friends-make-parented-less-isolation-1798306826](https://lifehacker.com/do-chores-with-friends-to-make-parenting-less-isolating-1798306826)
+> 原文：<https://lifehacker.com/do-chores-with-friends-to-make-parenting-less-isolating-1798306826>
 
 上周五，我们和另外两个带着小孩的家庭在杂货店度过了一个晚上。我们有科学的套路。一起吃过晚饭后，我们会去市场，把所有的小孩塞进购物车，当爸爸们推着他们穿过过道时，妈妈们会去买些杂货。有时候，我们会关掉。它工作了。孩子们玩得很开心，一路上咯咯地笑着，唱着歌(这个地方总是几乎空无一人——我有没有提到今天是星期五晚上？)，我们就有了一周的食物。当我站在收银台时，我会困惑又敬畏地对自己说:这就是当你为人父母时友谊的样子。
 

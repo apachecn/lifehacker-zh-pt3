@@ -1,6 +1,6 @@
 # 拥抱“支付的痛苦”来省钱
 
-> 原文:[https://life hacker . com/save-money-by-arming-the-pain-1828933622](https://lifehacker.com/save-money-by-embracing-the-pain-of-paying-1828933622)
+> 原文：<https://lifehacker.com/save-money-by-embracing-the-pain-of-paying-1828933622>
 
 如果你想让你的支出井然有序，一个更有效的方法是拥抱“支付的痛苦”，正如乔·平斯克在 [*【大西洋】*](https://www.theatlantic.com/family/archive/2018/09/spending-personal-finance-pain-of-paying/569575/) 中所写的。举例来说，这意味着用现金而不是信用卡支付。因为信用卡允许我们现在购买，以后支付，我们倾向于对我们的购买和超支感觉更好；用现金支付是一种精神上更痛苦的购物方式，因为你当场就把钱花掉了。
 

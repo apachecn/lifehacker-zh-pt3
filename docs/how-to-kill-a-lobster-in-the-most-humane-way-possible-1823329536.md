@@ -1,6 +1,6 @@
 # 如何以最人道的方式杀死龙虾
 
-> 原文:[https://life hacker . com/how-to-kill-a-lobster-in-the-most-human-way-possible-1823329536](https://lifehacker.com/how-to-kill-a-lobster-in-the-most-humane-way-possible-1823329536)
+> 原文：<https://lifehacker.com/how-to-kill-a-lobster-in-the-most-humane-way-possible-1823329536>
 
 为了考虑龙虾及其福利，瑞士已经禁止了将它们煮熟的做法。 [据《今日美国》](https://www.usatoday.com/story/news/world/2018/02/16/new-swiss-law-pain-free-deaths-lobsters-flushing-goldfish-down-toilet-breaking-law-according-new-swi/341412002/) 报道，这项新法律源于一项研究，该研究表明龙虾确实会感到疼痛，这使得煮死变得尤为残忍。(这是公平的。)
 

@@ -1,6 +1,6 @@
 # 当你在找工作时，微调你的社交媒体账户
 
-> 原文:[https://life hacker . com/fine-tune-your-social-media-accounts-when-you-search I-1825456183](https://lifehacker.com/fine-tune-your-social-media-accounts-when-youre-searchi-1825456183)
+> 原文：<https://lifehacker.com/fine-tune-your-social-media-accounts-when-youre-searchi-1825456183>
 
 如果你正在找新工作，你想做的第一件事可能是美化你的 LinkedIn 页面。虽然这总是一个好主意，但来自求职网站“简单雇佣” 的一项新研究表明，还有一个地方你应该先收拾一下:Instagram。
 

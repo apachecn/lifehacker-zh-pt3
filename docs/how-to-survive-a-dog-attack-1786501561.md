@@ -1,6 +1,6 @@
 # 如何在被狗袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-dog-attack-1786501561](https://lifehacker.com/how-to-survive-a-dog-attack-1786501561)
+> 原文：<https://lifehacker.com/how-to-survive-a-dog-attack-1786501561>
 
 美国每年大约有 450 万起狗咬伤事件，根据疾病控制中心的数据。将近五分之一的被咬者会被感染(大约 90 万)，在 1999 年到 2007 年间，狗是 250 人死亡的原因。如果不算有毒的昆虫，人类最好的朋友是美国最致命的动物之一。
 

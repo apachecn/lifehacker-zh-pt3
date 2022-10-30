@@ -1,6 +1,6 @@
 # iOS 10:你需要知道的一切
 
-> 原文:[https://gizmodo . com/IOs-10-一切你需要知道的事 1781888060](https://gizmodo.com/ios-10-everything-you-need-to-know-1781888060)
+> 原文：<https://gizmodo.com/ios-10-everything-you-need-to-know-1781888060>
 
 苹果刚刚发布了 iOS 第十版，这是该公司所有移动硬件的核心和灵魂。为了庆祝操作系统的两位数里程碑，苹果正在进行大量的升级。让我们来看看。
 

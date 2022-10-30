@@ -1,6 +1,6 @@
 # 谷歌的 Pixel Buds 甚至还远远不够好
 
-> 原文:[https://gizmodo . com/Google s-pixel-buds-arent-even-close-to-be-good-1820411288](https://gizmodo.com/googles-pixel-buds-arent-even-close-to-being-good-1820411288)
+> 原文：<https://gizmodo.com/googles-pixel-buds-arent-even-close-to-being-good-1820411288>
 
 总有一些关于 [像素芽](https://store.google.com/us/product/google_pixel_buds?hl=en-US) 的东西。在苹果发布 AirPods 整整一年后，谷歌发布了智能无线耳机。但是 Pixel Buds 不完全是无线的，也不完全是智能的。事实上，在使用该产品几天后，我准备说:像素芽很糟糕。
 

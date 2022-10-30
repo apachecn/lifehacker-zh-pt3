@@ -1,6 +1,6 @@
 # 牙医建议何时刷牙、使用牙线和漱口
 
-> 原文:[https://life hacker . com/when-to-brush floss and-swish-by-dental-1823468630](https://lifehacker.com/when-to-brush-floss-and-swish-according-to-dentists-1823468630)
+> 原文：<https://lifehacker.com/when-to-brush-floss-and-swish-according-to-dentists-1823468630>
 
 今天的热门问题是一系列牙科难题，它们来自 Lifehacker 员工之间的讨论，结果表明我们每个人——以及我们的一些牙医——对牙齿卫生各个步骤的正确时间和顺序都有非常强烈的意见。我们越聊越糊涂。它始于这样一个启示:
 

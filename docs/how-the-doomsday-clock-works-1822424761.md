@@ -1,6 +1,6 @@
 # 末日时钟是如何工作的
 
-> 原文:[https://life hacker . com/how-the-doomsday-clock-works-1822424761](https://lifehacker.com/how-the-doomsday-clock-works-1822424761)
+> 原文：<https://lifehacker.com/how-the-doomsday-clock-works-1822424761>
 
 川普政府的另一个重大胜利是，今天原子科学家公报 [将世界末日时钟](https://thebulletin.org/2018-doomsday-clock-statement) 从午夜向前推了 2 分钟。公报上一次出现这种严峻局面是在 1953 年，当时美国和苏联试验了他们的第一颗氢弹。
 

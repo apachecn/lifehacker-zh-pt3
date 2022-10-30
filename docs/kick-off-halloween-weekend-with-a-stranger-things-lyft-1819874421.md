@@ -1,6 +1,6 @@
 # 今年万圣节，你可以乘坐 Lyft 去颠倒一下
 
-> 原文:[https://life hacker . com/kick-off-Halloween-weekend-with-a stranger-things-lyft-1819874421](https://lifehacker.com/kick-off-halloween-weekend-with-a-stranger-things-lyft-1819874421)
+> 原文：<https://lifehacker.com/kick-off-halloween-weekend-with-a-stranger-things-lyft-1819874421>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-1vycaHQgYOs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-1vycaHQgYOs&start=0) 
 

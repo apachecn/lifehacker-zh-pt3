@@ -1,6 +1,6 @@
 # 为什么你的债务收入比很重要，如何找到它
 
-> 原文:[https://life hacker . com/why-your ' s debt-to-income-ratio-matters-and-how-to-find-1822393275](https://lifehacker.com/why-your-debt-to-income-ratio-matters-and-how-to-find-1822393275)
+> 原文：<https://lifehacker.com/why-your-debt-to-income-ratio-matters-and-how-to-find-1822393275>
 
 你的信用评分很重要(尤其是如果它很低的话)，但当涉及到你的钱时，这不是你应该关心的唯一数字。举例来说，如果你正在偿还债务，你会想知道你的债务收入比。它不仅仅影响你获得贷款的能力；这也是对你的财务健康状况的一个很好的总体衡量。
 

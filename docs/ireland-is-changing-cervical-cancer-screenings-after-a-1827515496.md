@@ -1,6 +1,6 @@
 # 在因检测错误导致一系列死亡后，爱尔兰正在改变宫颈癌筛查
 
-> 原文:[https://Jezebel . com/Ireland-is-changing-宫颈癌筛查-after-a-1827515496](https://jezebel.com/ireland-is-changing-cervical-cancer-screenings-after-a-1827515496)
+> 原文：<https://jezebel.com/ireland-is-changing-cervical-cancer-screenings-after-a-1827515496>
 
 在 18 名妇女死于宫颈癌后，尽管爱尔兰国家宫颈癌筛查项目最初收到假阴性，该国现在正在改变他们检测宫颈癌和人乳头瘤病毒的方式。
 

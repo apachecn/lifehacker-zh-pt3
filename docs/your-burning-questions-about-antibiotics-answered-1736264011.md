@@ -1,6 +1,6 @@
 # 你关于抗生素的迫切问题，已经回答了
 
-> 原文:[https://life hacker . com/your-burning-questions-about-抗生素-answered-1736264011](https://lifehacker.com/your-burning-questions-about-antibiotics-answered-1736264011)
+> 原文：<https://lifehacker.com/your-burning-questions-about-antibiotics-answered-1736264011>
 
 “到目前为止，我在谷歌上搜索最多的是‘我能喝这些抗生素吗？’”，艾米·舒默在她本周末的 SNL 独白 中说以及‘这些抗生素会让我的节育措施变得毫无价值吗？’“撇开喜剧不谈，这些实际上是很好的问题——也是我们大多数人在被开出处方时可能会问的问题。以下是一些答案。
 

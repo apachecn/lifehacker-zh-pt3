@@ -1,6 +1,6 @@
 # 这是本周末观看猎户座流星雨的方法
 
-> 原文:[https://life hacker . com/heres-how-to-see-the-Orion id-meteor-shower-this-weekend-1819721328](https://lifehacker.com/heres-how-to-see-the-orionid-meteor-shower-this-weekend-1819721328)
+> 原文：<https://lifehacker.com/heres-how-to-see-the-orionid-meteor-shower-this-weekend-1819721328>
 
 猎户座流星雨本周在城里，它的到访将在周末达到高峰，正如旅行通常所做的那样。如果你希望一睹太阳系中最棒的灯光秀之一，美国宇航局喷气推进实验室的简·休斯顿·琼斯建议( [via Time](http://time.com/4990842/watch-peak-orionid-meteor-shower-this-weekend/) )，如果观星者今天——10 月 20 日——从他们的手机上抬起头，他们将会看到一场精彩的表演:
 

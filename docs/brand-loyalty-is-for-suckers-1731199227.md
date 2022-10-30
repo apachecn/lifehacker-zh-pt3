@@ -1,6 +1,6 @@
 # 品牌忠诚度是傻瓜才会有的
 
-> 原文:[https://life hacker . com/brand-loyalty-is-for-suckles-1731199227](https://lifehacker.com/brand-loyalty-is-for-suckers-1731199227)
+> 原文：<https://lifehacker.com/brand-loyalty-is-for-suckers-1731199227>
 
 每年，当一个新的科技产品发布时，世界分成两种人:排队购买新的闪亮的东西的人，和大声抱怨新的闪亮的东西如何糟糕的人。这两组人都是笨蛋。对一个品牌的忠诚——不管是爱还是恨——都是让你变傻的毒药。
 

@@ -1,6 +1,6 @@
 # 崩溃的海浪桌面
 
-> 原文:[https://life hacker . com/the-crashing-waves-desktop-1756059209](https://lifehacker.com/the-crashing-waves-desktop-1756059209)
+> 原文：<https://lifehacker.com/the-crashing-waves-desktop-1756059209>
 
 塞巴斯蒂安的桌面体现了从一点混乱中建立秩序，我们完全可以看到这一点。我们也很喜欢他的壁纸，以及桌面小工具的巧妙运用。他是这样设计的。
 

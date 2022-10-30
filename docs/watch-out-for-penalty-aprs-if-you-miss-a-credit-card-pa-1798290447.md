@@ -1,6 +1,6 @@
 # 如果你错过了一次信用卡付款，小心罚息
 
-> 原文:[https://life hacker . com/watch-out-for-penalty-aprs-if-you-miss-a-credit-card-pa-1798290447](https://lifehacker.com/watch-out-for-penalty-aprs-if-you-miss-a-credit-card-pa-1798290447)
+> 原文：<https://lifehacker.com/watch-out-for-penalty-aprs-if-you-miss-a-credit-card-pa-1798290447>
 
 似乎信用卡公司总是想出创造性的方法来欺骗他们的顾客。每个人都知道，如果你跳过信用卡付款，你必须支付滞纳金，但一些信用卡公司也会扔给你一个“罚款四月”。
 

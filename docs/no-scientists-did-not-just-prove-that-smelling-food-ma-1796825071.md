@@ -1,6 +1,6 @@
 # 不，科学家不仅仅证明闻食物会让你变胖
 
-> 原文:[https://life hacker . com/no-scientists-do-not-just-prove-the-smooth-food-ma-1796825071](https://lifehacker.com/no-scientists-did-not-just-prove-that-smelling-food-ma-1796825071)
+> 原文：<https://lifehacker.com/no-scientists-did-not-just-prove-that-smelling-food-ma-1796825071>
 
 如果仅仅闻到食物的味道就足以让你发胖，那么这个世界一定是一个特殊的地狱。肥胖研究的最新头条就是这么说的——但是如果“你”是一种非常特殊的老鼠，那么嗅觉可能只会让“你”变胖。
 

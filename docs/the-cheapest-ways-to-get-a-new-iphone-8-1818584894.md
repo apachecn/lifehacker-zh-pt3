@@ -1,6 +1,6 @@
 # 获得新 iPhone 8 最便宜的方法
 
-> 原文:[https://life hacker . com/the-cheese-ways-to-get-a-new-iphone-8-1818584894](https://lifehacker.com/the-cheapest-ways-to-get-a-new-iphone-8-1818584894)
+> 原文：<https://lifehacker.com/the-cheapest-ways-to-get-a-new-iphone-8-1818584894>
 
 如果你下定决心要在本周五新款 iPhone 8s 上市时买一部，你有几个选择。其中一些选项比其他选项便宜得多。
 

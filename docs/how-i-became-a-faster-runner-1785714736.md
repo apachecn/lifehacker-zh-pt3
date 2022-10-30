@@ -1,6 +1,6 @@
 # 我如何成为跑得更快的人
 
-> 原文:[https://life hacker . com/how-I-been-a-fast-runner-1785714736](https://lifehacker.com/how-i-became-a-faster-runner-1785714736)
+> 原文：<https://lifehacker.com/how-i-became-a-faster-runner-1785714736>
 
 只要我能跑，我就想跑得更快。这是一个有很多起伏的旅程，但确实有可能从一个跑得慢的人开始，然后变得慢很多。我不是奥运选手，但我足够快，偶尔能在当地比赛中赢得年龄组奖牌。这是我的故事。
 

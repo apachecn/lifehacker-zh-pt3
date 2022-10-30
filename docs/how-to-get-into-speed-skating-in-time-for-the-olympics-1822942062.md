@@ -1,6 +1,6 @@
 # 如何进入速滑
 
-> 原文:[https://life hacker . com/how-to-how-to-get-in-time-of-Olympics-1822942062](https://lifehacker.com/how-to-get-into-speed-skating-in-time-for-the-olympics-1822942062)
+> 原文：<https://lifehacker.com/how-to-get-into-speed-skating-in-time-for-the-olympics-1822942062>
 
 如果你喜欢在一条长长的冰上车道上飞驰，或者在试图超越领先的人时紧紧拥抱狭窄的弯道，也许你应该考虑穿上一双速度冰鞋。你不一定要有奥运会尺寸的大腿才能尝试，尽管那肯定会有帮助。我去了一家诊所了解情况。
 

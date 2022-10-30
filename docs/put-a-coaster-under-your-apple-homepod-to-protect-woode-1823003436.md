@@ -1,6 +1,6 @@
 # 在你的苹果 HomePod 下面放一个杯垫来保护木质表面
 
-> 原文:[https://life hacker . com/put-a-coaster-under-your-apple-homepod-to-protect-wood-1823003436](https://lifehacker.com/put-a-coaster-under-your-apple-homepod-to-protect-woode-1823003436)
+> 原文：<https://lifehacker.com/put-a-coaster-under-your-apple-homepod-to-protect-woode-1823003436>
 
 如果你刚刚拿起苹果公司华丽的新款 [HomePod 扬声器](https://lifehacker.com/the-first-thing-you-should-do-with-your-homepod-is-turn-1822770847) ，你可能会想把它自豪地展示在你拥有的最漂亮的家具上，但在此之前，有件事你应该知道。这款价值 350 美元的设备的硅底座会损坏木质表面，留下难看的污渍。
 

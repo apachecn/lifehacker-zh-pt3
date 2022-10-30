@@ -1,6 +1,6 @@
 # 如何侵入你的大脑，防弹执行官戴夫·阿斯普雷
 
-> 原文:[https://life hacker . com/how-to-hack-your brain with the 防弹 exec-1794187419](https://lifehacker.com/how-to-hack-your-brain-with-the-bulletproof-exec-1794187419)
+> 原文：<https://lifehacker.com/how-to-hack-your-brain-with-the-bulletproof-exec-1794187419>
 
 你会把自己黑到什么程度？你会在几十年内花费数千美元来最大化你的健康和表现吗？戴夫·阿斯普雷就是这么做的。他是防弹执行 的 [，你可能知道他是建议你在咖啡里放黄油的人。不过，除了黄油，还有很多其他的东西。](http://www.bulletproof.com/)
 

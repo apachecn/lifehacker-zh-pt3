@@ -1,6 +1,6 @@
 # 你的睡眠追踪器让你晚上睡不着吗？
 
-> 原文:[https://life hacker . com/is-your-sleep-tracker-keeping-you-night-1762011236](https://lifehacker.com/is-your-sleep-tracker-keeping-you-up-at-night-1762011236)
+> 原文：<https://lifehacker.com/is-your-sleep-tracker-keeping-you-up-at-night-1762011236>
 
 睡眠对健康的重要性不亚于饮食和锻炼，由于新技术的发展，跟踪睡眠现在已经成为监测整体健康状况的常规手段。但是用来做这件事的设备真的有用吗，或者我们只是找到了一种更复杂的计时方式？
 

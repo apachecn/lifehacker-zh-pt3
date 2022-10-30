@@ -1,6 +1,6 @@
 # 如何为延长工作假期做好财务准备
 
-> 原文:[https://life hacker . com/how-to-financial-prepare-a-extended work-leave-1829274733](https://lifehacker.com/how-to-financially-prepare-for-an-extended-work-leave-1829274733)
+> 原文：<https://lifehacker.com/how-to-financially-prepare-for-an-extended-work-leave-1829274733>
 
 你如何为你的配偶因残疾而离开工作岗位做准备？这就是我们本周讨论的内容。
 

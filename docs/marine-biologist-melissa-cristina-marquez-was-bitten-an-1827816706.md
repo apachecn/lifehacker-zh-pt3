@@ -1,6 +1,6 @@
 # 海洋生物学家梅丽莎·克里斯蒂娜·马克斯被鳄鱼咬伤并拖拽...活着讲述她的故事
 
-> 原文:[https://Jezebel . com/海洋生物学家-梅丽莎-克里斯蒂娜-马尔克斯-被咬-安-1827816706](https://jezebel.com/marine-biologist-melissa-cristina-marquez-was-bitten-an-1827816706)
+> 原文：<https://jezebel.com/marine-biologist-melissa-cristina-marquez-was-bitten-an-1827816706>
 
 今年早些时候，当一条鳄鱼咬住她的腿并开始拖拽她时，梅丽莎·克里斯蒂娜·马克斯完成了一项不可能的任务:她保持了非常冷静。
 

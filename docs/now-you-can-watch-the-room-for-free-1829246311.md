@@ -1,6 +1,6 @@
 # 现在你可以免费观看《房间》了
 
-> 原文:[https://life hacker . com/now-you-can-watch-the-room of-free-1829246311](https://lifehacker.com/now-you-can-watch-the-room-for-free-1829246311)
+> 原文：<https://lifehacker.com/now-you-can-watch-the-room-for-free-1829246311>
 
 感谢编剧、演员和电影制作人托米·韦素,*房间*的粉丝现在可以随时免费观看这部电影。Wiseau 最近将电影 [的全部内容上传到 YouTube](https://www.youtube.com/watch?v=-htzzL-JOUg) ，允许所有人免费观看电影的全部内容。
 

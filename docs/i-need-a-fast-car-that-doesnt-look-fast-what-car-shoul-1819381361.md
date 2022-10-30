@@ -1,6 +1,6 @@
 # 我需要一辆看起来不快的快车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a fast-car-that-look-fast-what-car-shoul-1819381361](https://jalopnik.com/i-need-a-fast-car-that-doesnt-look-fast-what-car-shoul-1819381361)
+> 原文：<https://jalopnik.com/i-need-a-fast-car-that-doesnt-look-fast-what-car-shoul-1819381361>
 
 马克是一名律师，他正在寻找一种不被发现的快捷方式。他有一个相当健康的预算，需要一些实用的东西。他能买到的最好的卧铺是什么？
 

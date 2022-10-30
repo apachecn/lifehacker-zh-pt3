@@ -1,6 +1,6 @@
 # 厨房工具学校:不起眼的 Y 形蔬菜削皮器
 
-> 原文:[https://life hacker . com/kitchen-tool-school-the-humble-y 形蔬菜皮-1785666402](https://lifehacker.com/kitchen-tool-school-the-humble-y-shaped-vegetable-peel-1785666402)
+> 原文：<https://lifehacker.com/kitchen-tool-school-the-humble-y-shaped-vegetable-peel-1785666402>
 
 我不知道还有比削土豆更没魅力的厨房工作。削土豆是一项枯燥、单调的工作，不起眼的 y 型削皮器(相对于更高级的旋转削皮器)可能看起来就像是一种乏味的工具。然而，事实并非如此，因为这个如此简单的蔬菜削皮器能做的远不止削土豆。
 

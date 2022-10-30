@@ -1,6 +1,6 @@
 # 如何在 iOS 12 测试版中结合 Siri 快捷键，实现快速、无声的命令
 
-> 原文:[https://life hacker . com/how-to-combine-Siri-shortcut s-in-IOs-12-beta-for-quick-1827235672](https://lifehacker.com/how-to-combine-siri-shortcuts-in-ios-12-beta-for-quick-1827235672)
+> 原文：<https://lifehacker.com/how-to-combine-siri-shortcuts-in-ios-12-beta-for-quick-1827235672>
 
 在 [WWDC 2018](https://lifehacker.com/alternatives-to-the-best-new-ios-12-features-that-you-c-1826611328#_ga=2.48795302.1861167971.1530191760-524386510.1512754476) 期间，苹果在 [iOS 12](https://www.apple.com/ios/ios-12-preview/) 中向我们展示了 Siri 的一个新招:分配快捷键的能力。你可以指定一个特定的短语(甚至是一个单词),而不是希望 Siri 正确理解你的意思。)到一组预定的动作。
 

@@ -1,6 +1,6 @@
 # 让你成为知情选民的 10 大选举工具
 
-> 原文:[https://life hacker . com/top-10-election-tools-to-turn-you-to-a-informed-vote-1787886914](https://lifehacker.com/top-10-election-tools-to-turn-you-into-an-informed-vote-1787886914)
+> 原文：<https://lifehacker.com/top-10-election-tools-to-turn-you-into-an-informed-vote-1787886914>
 
 无论你对选举或总统候选人有什么想法，最好的选民是受过教育的选民——重要的是要记住，利害攸关的不仅仅是白宫。这些工具将帮助你发现什么，并在投票站做出最佳决定。
 

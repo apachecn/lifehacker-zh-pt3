@@ -1,6 +1,6 @@
 # 用网飞的“生日点播”从芭比娃娃或口袋妖怪那里得到你孩子的生日祝福
 
-> 原文:[https://life hacker . com/kids-can-get-a-birthday-caring-from-the-favorite-ch-1809941323](https://lifehacker.com/kids-can-get-a-birthday-greeting-from-their-favorite-ch-1809941323)
+> 原文：<https://lifehacker.com/kids-can-get-a-birthday-greeting-from-their-favorite-ch-1809941323>
 
 如果你的孩子不能停止谈论*芭比、朱利安国王、我的小马、打败虫子*或*口袋妖怪*，一些在网飞受欢迎的儿童节目，在他们生日的时候打开流媒体平台，看着他们兴奋不已。网飞推出了“按需生日”，这是一系列 15 个两分钟的视频，以孩子们最喜欢的角色的生日问候为特色。(这些视频不是个性化的，但孩子们可能不会介意。)
 

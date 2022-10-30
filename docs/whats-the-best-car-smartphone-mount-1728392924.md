@@ -1,6 +1,6 @@
 # 最好的车载智能手机支架是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-car-smart phone-mount-1728392924](https://lifehacker.com/whats-the-best-car-smartphone-mount-1728392924)
+> 原文：<https://lifehacker.com/whats-the-best-car-smartphone-mount-1728392924>
 
 让你的手机保持充电状态，并且在你的车里，这是很棘手的。你希望能够使用导航或流媒体音乐，但你不希望它放在你旁边的杯架上。这意味着你需要一个坐骑。本周，我们想听听你的最爱。
 

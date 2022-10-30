@@ -1,6 +1,6 @@
 # 没有有线电视时如何录制电视直播
 
-> 原文:[https://life hacker . com/how-to-record-live-TV-when you don ' t-have-cable-1800621701](https://lifehacker.com/how-to-record-live-tv-when-you-dont-have-cable-1800621701)
+> 原文：<https://lifehacker.com/how-to-record-live-tv-when-you-dont-have-cable-1800621701>
 
 千禧一代中最新的热潮是老式的电视天线——至少根据上个月*[](https://www.wsj.com/articles/millennials-unearth-an-amazing-hack-to-get-free-tv-the-antenna-1501686958)*中的一篇文章来看是这样。与网飞、Hulu 和 HBO Now 等独立服务相结合，为您的军火库添加一个[【20](http://lifehacker.com/how-to-choose-the-best-over-the-air-antenna-for-free-hd-1569752514)无线天线，让切断线缆变得前所未有的简单。只有一个问题:抛弃有线电视盒也意味着失去 DVR 功能。幸运的是，有各种各样的设备和服务可以帮助你在没有有线电视盒的情况下录制直播电视。** 
 

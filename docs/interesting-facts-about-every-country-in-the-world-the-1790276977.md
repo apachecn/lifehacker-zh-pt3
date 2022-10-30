@@ -1,6 +1,6 @@
 # 关于世界上每个国家的有趣事实，人类的极限，以及寻找的一年
 
-> 原文:[https://life hacker . com/interest-facts-about-every-an-country-in-the-the-the-the-world 1790276977](https://lifehacker.com/interesting-facts-about-every-country-in-the-world-the-1790276977)
+> 原文：<https://lifehacker.com/interesting-facts-about-every-country-in-the-world-the-1790276977>
 
 在本周的全视频自助餐中，我们将回顾 2016 年的亮点和深度，从理论上探讨人类太空旅行的极限，即使是在最好的情况下，观看疯狂的化学实验，并探索世界上每个国家的一些有趣事实。
 

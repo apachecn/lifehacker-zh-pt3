@@ -1,6 +1,6 @@
 # 如何解冻你冻结的信用报告
 
-> 原文:[https://life hacker . com/how-to-解冻你的冻结信用报告-1829656046](https://lifehacker.com/how-to-thaw-your-frozen-credit-reports-1829656046)
+> 原文：<https://lifehacker.com/how-to-thaw-your-frozen-credit-reports-1829656046>
 
 现在你知道了，冻结你的信用报告是保护你免受金融诈骗的最好方法之一。但是当*你*真的需要访问你的报告时会发生什么呢？
 

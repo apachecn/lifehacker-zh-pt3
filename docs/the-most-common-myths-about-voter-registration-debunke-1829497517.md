@@ -1,6 +1,6 @@
 # 关于选民登记的最常见的神话被揭穿了
 
-> 原文:[https://life hacker . com/the-most-common-myths-about-voter-registration-debunke-1829497517](https://lifehacker.com/the-most-common-myths-about-voter-registration-debunke-1829497517)
+> 原文：<https://lifehacker.com/the-most-common-myths-about-voter-registration-debunke-1829497517>
 
 离中期选举只有几个星期了，如果有时间参与选举过程，那就是现在。但截至 2016 年 11 月， [只有 70%的 18 岁以上美国公民登记投票](https://www.census.gov/data/tables/time-series/demo/voting-and-registration/p20-580.html) ，这意味着超过 6500 万有资格登记的人没有这样做。
 

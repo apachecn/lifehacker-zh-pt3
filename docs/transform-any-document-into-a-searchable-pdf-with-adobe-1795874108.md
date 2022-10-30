@@ -1,6 +1,6 @@
 # 使用 Adobe 的扫描应用程序将任何文档转换为可搜索的 PDF
 
-> 原文:[https://life hacker . com/transform-any-document-into-a-searchable-pdf-with-adobe-1795874108](https://lifehacker.com/transform-any-document-into-a-searchable-pdf-with-adobe-1795874108)
+> 原文：<https://lifehacker.com/transform-any-document-into-a-searchable-pdf-with-adobe-1795874108>
 
 用手机扫描文件并不是什么新鲜事。有了像 [Scanner Pro](https://readdle.com/products/scannerpro) 和 [Turbo Scan](http://turboscanapp.com/) 这样的应用程序，如果你有一部智能手机，你几乎没有理由再需要拿出平板扫描仪来数字化任何东西了。见鬼，在大多数情况下，即使只是抓拍一张没有应用程序的文档照片也可能完成工作。即使你已经找到了最喜欢的扫描应用程序，Adobe 的新应用程序，恰如其分地被命名为 Abobe Scan 的 [，也是你肯定想要尝试的一个。](https://acrobat.adobe.com/us/en/acrobat/mobile-app/scan-documents.html)
 

@@ -1,6 +1,6 @@
 # 你不需要担心除臭剂中的铝
 
-> 原文:[https://life hacker . com/you-don-t-need-to-words-1825016935](https://lifehacker.com/you-don-t-need-to-worry-about-aluminum-in-your-deodoran-1825016935)
+> 原文：<https://lifehacker.com/you-don-t-need-to-worry-about-aluminum-in-your-deodoran-1825016935>
 
 无铝除臭剂有一个完整的市场。它们被称为或或不知何故 [对你来说更好的](https://www.ursamajorvt.com/collections/body/products/hoppin-fresh-deodorant?gclid=EAIaIQobChMIyIiP-8qj2gIVTlYNCh0Z1Ay4EAAYASAAEgJSnPD_BwE) 。但是等一下:为什么你要避免铝，它(不像那些天然除臭剂)实际上会阻止你出汗？挺好的。
 

@@ -1,6 +1,6 @@
 # 如何立即获得苹果的 Mac Mojave、iOS 12、watchOS 5 和 tvOS 测试版
 
-> 原文:[https://life hacker . com/how-to-get-apple-MAC-iphone-watch-and-TV-beta-with o-1826578952](https://lifehacker.com/how-to-get-apples-mac-iphone-watch-and-tv-betas-witho-1826578952)
+> 原文：<https://lifehacker.com/how-to-get-apples-mac-iphone-watch-and-tv-betas-witho-1826578952>
 
 如果你想玩 iOS 12 的“早期 AF”版本，或者在 macOS Mojave 的沙漠中跑来跑去，你通常必须向苹果支付 99 美元，以获得为其平台开发应用程序的特权——应用程序最终将被削减 30%(除非你提供订阅并保持用户超过一年，但现在我开始分钟)。这让你可以访问刚刚宣布的开发者测试版，这些测试版在苹果新操作系统的正式公开测试版之前发布(并倾向于更新)
 

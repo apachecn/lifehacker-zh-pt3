@@ -1,6 +1,6 @@
 # 如果不小心删除了手机中的照片，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you-incident-delete-photos-from-your-1825571018](https://lifehacker.com/what-to-do-if-you-accidentally-delete-photos-from-your-1825571018)
+> 原文：<https://lifehacker.com/what-to-do-if-you-accidentally-delete-photos-from-your-1825571018>
 
 它发生了。你心不在焉地浏览着照片，欣赏着美丽的风景，或者喝着夏日饮品 。你敲敲键盘，然后意识到你不小心删除了手机上的大量照片。你慌了。你是不是已经永远失去了珍贵的记忆？
 

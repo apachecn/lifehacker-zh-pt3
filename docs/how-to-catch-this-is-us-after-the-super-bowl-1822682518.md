@@ -1,6 +1,6 @@
 # 如何在超级碗后抓住“这是我们”
 
-> 原文:[https://life hacker . com/how-to-catch-this-is-us-after the super bowl-1822682518](https://lifehacker.com/how-to-catch-this-is-us-after-the-super-bowl-1822682518)
+> 原文：<https://lifehacker.com/how-to-catch-this-is-us-after-the-super-bowl-1822682518>
 
 本周日《这就是我们》的粉丝们将最终发现杰克·皮尔森的死因。恰好发生在超级碗周日的特别集将在真正的超级碗周日晚上播出。
 

@@ -1,6 +1,6 @@
 # 如何申请最难的旅游签证
 
-> 原文:[https://life hacker . com/how-to-applying-the-most-difficult-visa-1827371616](https://lifehacker.com/how-to-apply-for-the-most-difficult-tourist-visas-1827371616)
+> 原文：<https://lifehacker.com/how-to-apply-for-the-most-difficult-tourist-visas-1827371616>
 
 尽管美国护照对于游览世界大部分地区来说是一样有用，但它不会让你去任何地方都很容易。一些国家对入境者有严格的 T4 政策，如果没有正确的方法，获得这些国家的旅游签证几乎是不可能的。
 

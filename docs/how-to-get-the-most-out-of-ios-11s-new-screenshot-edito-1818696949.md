@@ -1,6 +1,6 @@
 # 如何充分利用 iOS 11 的新截图编辑器
 
-> 原文:[https://life hacker . com/how-to-get-the-most-out-of-IOs-11s-new-screen-edito-1818696949](https://lifehacker.com/how-to-get-the-most-out-of-ios-11s-new-screenshot-edito-1818696949)
+> 原文：<https://lifehacker.com/how-to-get-the-most-out-of-ios-11s-new-screenshot-edito-1818696949>
 
 在 iOS 11 中，苹果为 iPhone 和 iPad 推出了新的截图工具，允许你在捕捉到截图后快速编辑。
 

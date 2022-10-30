@@ -1,6 +1,6 @@
 # 不要在你的速溶锅里做煎饼
 
-> 原文:[https://life hacker . com/don-t-make-煎饼-in-your-instant-pot-1824084132](https://lifehacker.com/dont-make-pancakes-in-your-instant-pot-1824084132)
+> 原文：<https://lifehacker.com/dont-make-pancakes-in-your-instant-pot-1824084132>
 
 煎饼很容易做。然而，像大多数早餐食品一样，它们需要一定量的主动烹饪，通过倒、翻动和一般的警惕。我很懒，尤其是在早上，所以一个巨大的，蓬松的，一会儿就能回去睡觉的速溶锅巴饼吸引了我。
 

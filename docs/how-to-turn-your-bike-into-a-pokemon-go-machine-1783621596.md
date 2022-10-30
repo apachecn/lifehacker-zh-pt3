@@ -1,6 +1,6 @@
 # 如何把你的自行车变成神奇宝贝 Go 机器
 
-> 原文:[https://life hacker . com/how-to-turn-your-bike-to-a pokemon-go-machine-1783621596](https://lifehacker.com/how-to-turn-your-bike-into-a-pokemon-go-machine-1783621596)
+> 原文：<https://lifehacker.com/how-to-turn-your-bike-into-a-pokemon-go-machine-1783621596>
 
 Pokémon Go 非常适合徒步探险，但就像最初的 Game Boy 游戏一样，拥有一辆自行车会让一切变得更好。你走得更快，你可以带更多的东西，这是一个狗屎的乐趣。以下是我如何打造终极口袋自行车，以及你如何打造自己的口袋自行车。
 

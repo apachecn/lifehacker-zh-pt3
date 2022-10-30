@@ -1,6 +1,6 @@
 # 晚餐音乐播放列表
 
-> 原文:[https://lifehacker.com/the-dinner-music-playlist-1783302355](https://lifehacker.com/the-dinner-music-playlist-1783302355)
+> 原文：<https://lifehacker.com/the-dinner-music-playlist-1783302355>
 
 你已经摆好了桌子，点好了蜡烛，现在你可以开始享用你已经准备了几个小时的食物了。用这个舒缓的晚餐音乐播放列表来营造气氛。
 

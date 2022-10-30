@@ -1,6 +1,6 @@
 # 如何停止意外退出您的 Mac 应用程序
 
-> 原文:[https://life hacker . com/how-to-stop-incidentially-quiting-your-MAC-apps-1826225346](https://lifehacker.com/how-to-stop-accidentally-quitting-your-mac-apps-1826225346)
+> 原文：<https://lifehacker.com/how-to-stop-accidentally-quitting-your-mac-apps-1826225346>
 
 这种情况每天至少发生一次，总是在我正在处理重要事情的时候:我不小心刷到了 Command+Q 组合键，而不是 Command+W 来关闭浏览器标签，让我退出了 Chrome。叹气。
 

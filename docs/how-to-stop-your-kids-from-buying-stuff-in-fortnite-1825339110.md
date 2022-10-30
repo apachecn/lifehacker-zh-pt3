@@ -1,6 +1,6 @@
 # 如何阻止你的孩子在堡垒之夜买东西
 
-> 原文:[https://life hacker . com/how-to-stop your-kids-buying-things-1825339110](https://lifehacker.com/how-to-stop-your-kids-from-buying-stuff-in-fortnite-1825339110)
+> 原文：<https://lifehacker.com/how-to-stop-your-kids-from-buying-stuff-in-fortnite-1825339110>
 
 沮丧的父母讲述了他们如何失去自己的孩子——或者像作家托马斯·佩斯描述的“这些僵尸，曾经是我们的孩子”——到疯狂流行的视频游戏 [消耗了孩子们的时光，摧毁了一些学校](https://kotaku.com/teens-and-teachers-say-fortnite-mobile-is-destroying-so-1823997450#_ga=2.57634467.860840133.1523829443-1908840446.1519412573) 并催生了邻里支持团体。不那么夸张，但同样令人担忧的是来自父母的报告，他们正在失去实际的现金，因为他们的年轻玩家在他们不知情的情况下进行了游戏内购买。“我的小老弟刚刚用我妈妈的钱在堡垒之夜花了 100 美元，”一个人发微博说。又写道:“我妹妹 11 岁玩这个游戏就出了 750 美元。”。哎哟。
 

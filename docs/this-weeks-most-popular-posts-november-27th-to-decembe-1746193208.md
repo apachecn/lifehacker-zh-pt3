@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 27 日至 12 月 4 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-November-27-to-decembe-1746193208](https://lifehacker.com/this-weeks-most-popular-posts-november-27th-to-decembe-1746193208)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-27th-to-decembe-1746193208>
 
 本周，我们学习了如何在不成为混蛋的情况下引起酒保的注意，设置了终极一体化复古游戏模拟器，思考了随着年龄的增长时间的易逝性，等等。下面回顾一下本周最受欢迎的帖子。
 

@@ -1,6 +1,6 @@
 # 如何用正念改变你的大脑，丹尼尔·戈尔曼
 
-> 原文:[https://life hacker . com/how-to-change-your-brain with-mindfulness-Daniel-1819284184](https://lifehacker.com/how-to-change-your-brain-with-mindfulness-with-daniel-1819284184)
+> 原文：<https://lifehacker.com/how-to-change-your-brain-with-mindfulness-with-daniel-1819284184>
 
 正念是拥有一个瞬间。一个流行的时刻，具体来说:标签[# mindfullnessinamerica](https://twitter.com/search?q=%23mindfulnessinamerica&src=tyah)目前正在 Twitter 上流行，这要归功于这些词被输入时美国正念会议正在进行。但即使在朱厄尔和安德森·库珀 [联手](http://mindfulnessinamericasummit.com/) 之前，冥想(尤其是正念冥想)已经变得越来越受欢迎，这要归功于诸如 Headspace 和 studies 这样的应用程序，它们宣扬正念对身心的持久影响。但是这些 app 真的和认真的冥想训练一样有效吗？这些研究的发现在现实中有依据吗？
 

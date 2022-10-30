@@ -1,6 +1,6 @@
 # 最好的初学无人机
 
-> 原文:[https://gizmodo.com/the-very-best-beginner-drone-1826762657](https://gizmodo.com/the-very-best-beginner-drone-1826762657)
+> 原文：<https://gizmodo.com/the-very-best-beginner-drone-1826762657>
 
 夏天终于来了，这意味着终于到了更换你在圣诞节坠毁的那架无人机的时候了。这里有一些建议。不知道怎么飞就不要买贵的无人机。廉价的无人机已经变得非常好了，没有比把钱扔进树边更好的方法来磨练你的技能了。
 

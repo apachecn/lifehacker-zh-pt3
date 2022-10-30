@@ -1,6 +1,6 @@
 # 如果你搬回去和父母一起住，就签一份租约
 
-> 原文:[https://life hacker . com/SIG-a-lease-if-you-move-back-in-your-parents-1824172536](https://lifehacker.com/sign-a-lease-if-you-move-back-in-with-your-parents-1824172536)
+> 原文：<https://lifehacker.com/sign-a-lease-if-you-move-back-in-with-your-parents-1824172536>
 
 生活就是这样。前一分钟你还在向毕业迈进，准备好迎接这个世界。下一分钟，你就失业了，或者在你的领域里找不到工作，你也付不起房租了。如果你幸运的话，你的父母既愿意也能够让你搬回来重新组合，然后你再出去独自生活。
 

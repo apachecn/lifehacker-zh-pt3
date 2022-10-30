@@ -1,6 +1,6 @@
 # 如何用微波炉清洗美容搅拌机
 
-> 原文:[https://life hacker . com/how-to-clean-beauty-blenders-in-the-microwave-1824148580](https://lifehacker.com/how-to-clean-beauty-blenders-in-the-microwave-1824148580)
+> 原文：<https://lifehacker.com/how-to-clean-beauty-blenders-in-the-microwave-1824148580>
 
 当然，在脸上擦一个蛋形美容搅拌器感觉很棒，而且它可以如入无人之境地平滑化妆。但是任何一个精心制作过护肤程序的人都知道，在任何表面上卸妆都不容易，尤其是当它被牢牢地磨成长方形海绵的时候。
 

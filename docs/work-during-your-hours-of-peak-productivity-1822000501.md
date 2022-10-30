@@ -1,6 +1,6 @@
 # 在你工作效率最高的时候工作
 
-> 原文:[https://life hacker . com/work-in-your-hours-of-peak-productivity-1822000501](https://lifehacker.com/work-during-your-hours-of-peak-productivity-1822000501)
+> 原文：<https://lifehacker.com/work-during-your-hours-of-peak-productivity-1822000501>
 
 随着 2018 年的到来，你可能已经列出了你想要遵守的决心、你渴望实现的目标，以及你想要融入日常生活的习惯。当然，这些巨大的任务和项目需要一些时间，但是最好知道你什么时候最有可能完成它们，以避免在工作日结束时为一个巨大的任务而挣扎。原因？根据项目管理软件开发商 Redbooth 的说法，你的生产力并不是一周甚至一天都不变的。如果五点钟到来时感到精疲力竭听起来像是你日常生活的一部分，不要烦恼:这是人类的一部分。
 

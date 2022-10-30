@@ -1,6 +1,6 @@
 # 两周前，谷歌 4 个最重要的设备被泄露
 
-> 原文:[https://gizmodo . com/a-big-leak-just-discovered-Google-4-most-important-devic-1818558654](https://gizmodo.com/a-big-leak-just-revealed-googles-4-most-important-devic-1818558654)
+> 原文：<https://gizmodo.com/a-big-leak-just-revealed-googles-4-most-important-devic-1818558654>
 
  [https://gizmodo.com/embed/inset/iframe?id=twitter-910209327482380288&autosize=1](https://gizmodo.com/embed/inset/iframe?id=twitter-910209327482380288&autosize=1) 
 

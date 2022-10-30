@@ -1,6 +1,6 @@
 # 我脱水后碾碎了炸鸡皮。现在怎么办？
 
-> 原文:[https://the take out . com/I-脱水磨碎炸鸡皮-now-what-1823213907](https://thetakeout.com/i-dehydrated-and-ground-up-fried-chicken-skin-now-what-1823213907)
+> 原文：<https://thetakeout.com/i-dehydrated-and-ground-up-fried-chicken-skin-now-what-1823213907>
 
 我的孩子刚满 2 岁，我们决定为他的聚会点炸鸡。我几乎不需要做什么工作，它很便宜，而且很受欢迎。像往常一样，我高估了客人的胃口，结果我们吃了两桶肯德基剩菜。我的妹夫尼克和我当时正在讨论如何重新利用剩余的炸鸡，一个想法导致另一个想法，不久尼克建议应该有一个炸鸡薯片的味道。
 

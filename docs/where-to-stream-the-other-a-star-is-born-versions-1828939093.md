@@ -1,6 +1,6 @@
 # 在哪里播放《一个明星的诞生》的旧版本
 
-> 原文:[https://life hacker . com/where-to-stream-the-other-a-star-is-born-versions-1828939093](https://lifehacker.com/where-to-stream-the-other-a-star-is-born-versions-1828939093)
+> 原文：<https://lifehacker.com/where-to-stream-the-other-a-star-is-born-versions-1828939093>
 
 人们对 Lady Gaga 和布莱德利·库珀演绎的一个明星的诞生有很多期待，但是这位明星已经出生很多次了。如果你迫不及待地想看到最新版本的，下面就告诉你如何播放*一个明星的诞生*的 1937、1954 和 1976 年版本。
 

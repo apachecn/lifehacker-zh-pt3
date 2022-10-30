@@ -1,6 +1,6 @@
 # 如何不告诉任何人关于你的任何事情
 
-> 原文:[https://life hacker . com/how-to-never-tell-one-any-about-yourself-1819817465](https://lifehacker.com/how-to-never-tell-anyone-anything-about-yourself-1819817465)
+> 原文：<https://lifehacker.com/how-to-never-tell-anyone-anything-about-yourself-1819817465>
 
 即使你不是一个特别害羞或谨慎的人，也有很多原因让你发现自己有时会处于压抑的状态。你可能在工作、人际关系或生活中处于个人低谷或脆弱的境地。你可能只是讨厌谈论自己(嗨)，或者你可能有一些不那么喜怒无常的更实际的理由。例如，在某些情况下，喋喋不休并不总是职业上的谨慎(即使其他人鼓励这样做)，或者你可能只是因为不确定自己是否有资格谈论这个或那个话题而感到回避。
 

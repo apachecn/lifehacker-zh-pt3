@@ -1,6 +1,6 @@
 # 人们经常犯错误的六个基本个人理财事实
 
-> 原文:[https://life hacker . com/six-basic-personal-finance-facts-people-constantly-get-1753499820](https://lifehacker.com/six-basic-personal-finance-facts-people-constantly-get-1753499820)
+> 原文：<https://lifehacker.com/six-basic-personal-finance-facts-people-constantly-get-1753499820>
 
 很多时候，人们在谈到个人理财时吹嘘的“事实”并不完全是事实。有时它们只是权威的观点，或者是基于不正确的信息或假设。当许多金融原则违背直觉时，会有如此多的困惑，这有什么好奇怪的呢？
 

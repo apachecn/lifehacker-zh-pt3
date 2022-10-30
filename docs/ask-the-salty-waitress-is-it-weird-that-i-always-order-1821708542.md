@@ -1,6 +1,6 @@
 # 问咸的女服务员:我总是点同一个菜会不会很奇怪？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-I-always-order-1821708542](https://thetakeout.com/ask-the-salty-waitress-is-it-weird-that-i-always-order-1821708542)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-is-it-weird-that-i-always-order-1821708542>
 
 * * *
 

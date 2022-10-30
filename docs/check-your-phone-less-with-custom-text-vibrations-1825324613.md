@@ -1,6 +1,6 @@
 # 自定义短信振动，减少手机检查次数
 
-> 原文:[https://life hacker . com/check-your-phone-less-with-custom-text-vibrations-1825324613](https://lifehacker.com/check-your-phone-less-with-custom-text-vibrations-1825324613)
+> 原文：<https://lifehacker.com/check-your-phone-less-with-custom-text-vibrations-1825324613>
 
 我收到三种短信:
 

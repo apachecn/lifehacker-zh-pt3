@@ -1,6 +1,6 @@
 # 观鸟如何让我最终退出并真正走出去
 
-> 原文:[https://gizmodo . com/how-bird watching-get-me-finally-log-off-and-actually-1827107157](https://gizmodo.com/how-birdwatching-got-me-to-finally-log-off-and-actually-1827107157)
+> 原文：<https://gizmodo.com/how-birdwatching-got-me-to-finally-log-off-and-actually-1827107157>
 
 在纽约醒来就像一次狩猎旅行——你需要做的就是倾听，而不是在闹钟响的时候打开手机。我可能会从我的床上注意到五种不同的物种:吱吱叫的麻雀、松鸦、咕咕叫的哀鸽、红雀，甚至还有一只山雀。
 

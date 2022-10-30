@@ -1,6 +1,6 @@
 # 纳税季的 10 大技巧和工具
 
-> 原文:[https://life hacker . com/top-10-tips-and-tools-for-tax-season-1765702742](https://lifehacker.com/top-10-tips-and-tools-for-tax-season-1765702742)
+> 原文：<https://lifehacker.com/top-10-tips-and-tools-for-tax-season-1765702742>
 
 不管你喜不喜欢，现在是纳税的时候了。使用每个报税人都应该知道的 10 大技巧和工具，轻松地准备和报税。
 

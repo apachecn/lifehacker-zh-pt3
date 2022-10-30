@@ -1,6 +1,6 @@
 # 让你的夜晚成为无 Instagram 区
 
-> 原文:[https://life hacker . com/make-your-nights-a-insta gram-free-zone-1822444173](https://lifehacker.com/make-your-evenings-an-instagram-free-zone-1822444173)
+> 原文：<https://lifehacker.com/make-your-evenings-an-instagram-free-zone-1822444173>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑正在新闻周期中休息，制作自制的烤奶油，驯服我们的绳索丛林。
 

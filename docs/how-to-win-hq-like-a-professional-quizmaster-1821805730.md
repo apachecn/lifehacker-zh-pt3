@@ -1,6 +1,6 @@
 # 如何像一个专业的 Quizmaster 一样赢得 HQ
 
-> 原文:[https://life hacker . com/how-to-win-HQ-like-a-professional-quiz master-1821805730](https://lifehacker.com/how-to-win-hq-like-a-professional-quizmaster-1821805730)
+> 原文：<https://lifehacker.com/how-to-win-hq-like-a-professional-quizmaster-1821805730>
 
 看完专业琐事作家保罗·帕凯 的 [这篇分析，我对琐事游戏](http://nymag.com/selectall/2017/12/trivia-expert-paul-paquet-knows-the-secret-to-hq.html)[HQ](https://twitter.com/hqtrivia)([iOS](https://itunes.apple.com/us/app/hq-live-trivia-game-show/id1232278996?mt=8)和 [Android](https://play.google.com/store/apps/details?id=com.intermedia.hq) )多了很多敬意。在阅读了他的建议后，我也觉得更有把握获胜。
 

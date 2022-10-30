@@ -1,6 +1,6 @@
 # 使用 Pod 在 Gmail 中制作日历事件
 
-> 原文:[https://life hacker . com/make-calendar-events-inside-Gmail-with-pod-1822136302](https://lifehacker.com/make-calendar-events-inside-gmail-with-pod-1822136302)
+> 原文：<https://lifehacker.com/make-calendar-events-inside-gmail-with-pod-1822136302>
 
 Gmail 和谷歌日历的整合令人尴尬。Gmail 永远无法识别所有重要的活动信息，为了解决这个问题，你必须在一个新的标签页中打开谷歌日历，这违背了它的初衷。值得庆幸的是，有第三方修复，如 Gmail 的 [Pod，它可以识别事件信息，并将其加载到 Gmail 窗口内的完整日历事件中。](https://gsuite.google.com/u/1/marketplace/app/pod_for_gmail/93796446482?pageId=none)
 

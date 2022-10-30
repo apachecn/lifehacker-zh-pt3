@@ -1,6 +1,6 @@
 # 给毛骨悚然的孩子的毛骨悚然的儿童书
 
-> 原文:[https://life hacker . com/creek-children-books-for-creek-children-1819877824](https://lifehacker.com/creepy-childrens-books-for-creepy-children-1819877824)
+> 原文：<https://lifehacker.com/creepy-childrens-books-for-creepy-children-1819877824>
 
 这很有意思:在我的脸书家长小组里，我征求了一些关于儿童书籍的建议，这些书有点令人不安。我收到了近 300 份回复——来自一个通常会提供 9 到 10 个普通育儿问题答案的小组。(*问:她为什么不吃东西？也许她不饿。问:她为什么不睡觉？答:因为她是恶魔产卵*。)
 

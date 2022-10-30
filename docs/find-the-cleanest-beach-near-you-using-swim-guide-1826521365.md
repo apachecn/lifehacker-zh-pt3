@@ -1,6 +1,6 @@
 # 使用游泳指南找到你附近最干净的海滩
 
-> 原文:[https://life hacker . com/find-the-clean-beach-near-you-using-swim-guide-1826521365](https://lifehacker.com/find-the-cleanest-beach-near-you-using-swim-guide-1826521365)
+> 原文：<https://lifehacker.com/find-the-cleanest-beach-near-you-using-swim-guide-1826521365>
 
 夏天去海滩很有趣。去海滩并意识到你选择了一个被垃圾覆盖的海滩，那里的水的情况很糟糕。
 

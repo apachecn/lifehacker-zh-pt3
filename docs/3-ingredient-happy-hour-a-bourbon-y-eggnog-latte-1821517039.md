@@ -1,6 +1,6 @@
 # 三种配料的欢乐时光:一杯波旁蛋奶酒“拿铁”
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-bourbon-y-eggnog-latte-1821517039](https://lifehacker.com/3-ingredient-happy-hour-a-bourbon-y-eggnog-latte-1821517039)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-bourbon-y-eggnog-latte-1821517039>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们将制作一杯人造蛋奶酒拿铁，加入大量的波旁威士忌，供圣诞节早晨啜饮。
 

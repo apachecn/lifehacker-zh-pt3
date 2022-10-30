@@ -1,6 +1,6 @@
 # 如何清洁你孩子的浴缸
 
-> 原文:[https://life hacker . com/how-to-clean-your-tubble-1822761687](https://lifehacker.com/how-to-clean-your-toddlers-bathtub-1822761687)
+> 原文：<https://lifehacker.com/how-to-clean-your-toddlers-bathtub-1822761687>
 
 [*朱莉可儿*](https://twitter.com/joliekerr) *是一位清洁专家，建议专栏作家和《纽约时报》畅销书的作者，* [我的男朋友在我的手提包里吐了...而其他的事情你不能问玛莎](https://www.amazon.com/Boyfriend-Barfed-Handbag-Things-Martha/dp/0142196932?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-clean-your-toddlers-bathtub-1822761687&asc_source=&rawdata=[r|https://lifehacker.com/tag/ask-a-clean-person[t|link[p|1821387910[a|0142196932[au|5749132966325710983[b|lifehacker&tag=kinjalifehackerlink-20) *。她的旗舰专栏“问一个干净的人”于 2011 年首次推出。在《后代》杂志上，我们推出了一个新版本，聚焦于养育子女和它带来的所有混乱。*
 

@@ -1,6 +1,6 @@
 # 一辆二手保时捷的疯狂贷款期限表明，即使是富人也可能在数学方面表现不佳
 
-> 原文:[https://jalopnik . com/this-anazy-loan-term-on-a-used-Porsche-shows-the-even-1825278525](https://jalopnik.com/this-insane-loan-term-on-a-used-porsche-shows-that-even-1825278525)
+> 原文：<https://jalopnik.com/this-insane-loan-term-on-a-used-porsche-shows-that-even-1825278525>
 
 人们很容易摆出一副高高在上的姿态，瞧不起那些发现自己陷入财务困境的人，因为他们在买车前没有做好数学计算，或者因为他们太需要一辆车了，所以不得不接受一个粗暴的交易。但是，一辆六位数的保时捷 GT4 T2 T3 的贷款期限表明，金钱和经验并不等同于金融头脑。
 

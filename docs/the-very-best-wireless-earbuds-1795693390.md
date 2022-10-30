@@ -1,6 +1,6 @@
 # 适合活跃人士的最佳无线耳塞
 
-> 原文:[https://gizmodo . com/the-very-best-wireless-earbuds-1795693390](https://gizmodo.com/the-very-best-wireless-earbuds-1795693390)
+> 原文：<https://gizmodo.com/the-very-best-wireless-earbuds-1795693390>
 
 如果三年前你问我为健身房买什么无线耳塞，我会笑个不停。当时整个类别都非常糟糕，我怎么能推荐任何东西呢？好吧，让我告诉你的朋友:很多事情已经发生了最好的变化。
 

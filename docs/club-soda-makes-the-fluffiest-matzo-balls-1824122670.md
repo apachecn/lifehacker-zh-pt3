@@ -1,6 +1,6 @@
 # 苏打水能做出最松软的巧克力球
 
-> 原文:[https://life hacker . com/club-soda-makes-the-fluffiest-matzo-balls-1824122670](https://lifehacker.com/club-soda-makes-the-fluffiest-matzo-balls-1824122670)
+> 原文：<https://lifehacker.com/club-soda-makes-the-fluffiest-matzo-balls-1824122670>
 
 Matzo 球汤是世界各地逾越节家宴餐桌上的一道固定菜肴，每一份食谱都是围绕着对“下沉者”或“漂浮者”的偏好而制定的。稠密、耐嚼的“下沉物”是混合 matzo 粉和水的自然结果，这使得云状 matzo 球稍微更难拉下。
 

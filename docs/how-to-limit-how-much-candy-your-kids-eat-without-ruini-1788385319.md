@@ -1,6 +1,6 @@
 # 如何在不破坏万圣节的情况下限制孩子吃多少糖果
 
-> 原文:[https://life hacker . com/how-to-limit-how-much-much-your-kids-eat-without-ruini-1788385319](https://lifehacker.com/how-to-limit-how-much-candy-your-kids-eat-without-ruini-1788385319)
+> 原文：<https://lifehacker.com/how-to-limit-how-much-candy-your-kids-eat-without-ruini-1788385319>
 
 糖果是孩子们万圣节最好或第二好的部分，取决于他们对服装的喜爱程度。但是，当你的孩子带回家堆积如山的破坏肠胃、腐蚀牙齿的糖时，你会怎么做呢？以下是你的选择，既能减少堆积，又不会让假期失去所有乐趣。
 

@@ -1,6 +1,6 @@
 # 总统大选前如何提前登记投票
 
-> 原文:[https://life hacker . com/how-to-register-and-vote-before-the-president-1782421609](https://lifehacker.com/how-to-register-and-vote-early-before-the-presidential-1782421609)
+> 原文：<https://lifehacker.com/how-to-register-and-vote-early-before-the-presidential-1782421609>
 
 11 月 8 日，将是决定美国新总统的时候了。如果你还没有登记投票，现在是时候确保你准备好去投票了。这是你完成任务所需的所有信息。
 

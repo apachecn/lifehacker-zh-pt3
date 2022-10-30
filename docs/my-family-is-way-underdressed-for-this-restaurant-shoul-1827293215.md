@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我的家人在这家餐厅穿得太随便了——我们应该离开吗？
 
-> 原文:[https://the take out . com/my-family-is-way-under dressed-for this-restaurant-shoul-1827293215](https://thetakeout.com/my-family-is-way-underdressed-for-this-restaurant-shoul-1827293215)
+> 原文：<https://thetakeout.com/my-family-is-way-underdressed-for-this-restaurant-shoul-1827293215>
 
 > 亲爱的 Salty: 最近，我和妻子带着我们 2 岁的孩子在邻近的城市购物。快到下午三点的时候，雷雨开始了，我们还没有吃午饭。
 > 

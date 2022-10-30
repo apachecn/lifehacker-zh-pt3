@@ -1,6 +1,6 @@
 # 更多的证据表明身体质量指数并不是衡量健康的好方法
 
-> 原文:[https://life hacker . com/even-more-evidence-BMI-is-not-a-good-measure-of-health-1757878091](https://lifehacker.com/even-more-evidence-bmi-isn-t-a-good-measure-of-health-1757878091)
+> 原文：<https://lifehacker.com/even-more-evidence-bmi-isn-t-a-good-measure-of-health-1757878091>
 
 我们已经知道身体质量指数 [并不能很好地衡量一个人是否肥胖](http://lifehacker.com/this-illustration-shows-why-bmi-can-be-a-misleading-ind-1716511933) ，但现在一项研究证实，它也不能很好地衡量健康。
 

@@ -1,6 +1,6 @@
 # 一整只烟熏火鸡是慵懒感恩节的最佳选择
 
-> 原文:[https://life hacker . com/a-whole-smoked-turkey-is-the ultimate-lazy-thanksgiving-1820086464](https://lifehacker.com/a-whole-smoked-turkey-is-the-ultimate-lazy-thanksgiving-1820086464)
+> 原文：<https://lifehacker.com/a-whole-smoked-turkey-is-the-ultimate-lazy-thanksgiving-1820086464>
 
 感恩节厨师分为两大阵营:喜欢在火鸡身上表演各种形式的脂肪和钠基炼金术的火鸡纯粹主义者，以及讨厌火鸡的朋克，他们热衷于提供任何食物。介于两者之间的是喜欢火鸡的懒人，但不喜欢火鸡所需要的努力。有一种蛋白质会让他们都满意，那就是一整只预熏火鸡。
 

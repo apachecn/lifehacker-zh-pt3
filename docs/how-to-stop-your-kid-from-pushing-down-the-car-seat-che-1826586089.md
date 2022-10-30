@@ -1,6 +1,6 @@
 # 如何阻止你的孩子试图逃离汽车座椅[更新]
 
-> 原文:[https://life hacker . com/how-to-stop-your-kid-from-push-the-car-seat-che-1826586089](https://lifehacker.com/how-to-stop-your-kid-from-pushing-down-the-car-seat-che-1826586089)
+> 原文：<https://lifehacker.com/how-to-stop-your-kid-from-pushing-down-the-car-seat-che-1826586089>
 
 为了让汽车安全座椅在事故中正常工作，你的孩子必须，嗯，*在*中。肩带必须处于正确的位置并紧贴身体。
 

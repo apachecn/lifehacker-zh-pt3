@@ -1,6 +1,6 @@
 # 谷歌对 Chrome 浏览器进行了重大的广告屏蔽更新:以下是我们所知道的
 
-> 原文:[https://gizmodo . com/Google-s-big-ad-blocking-update-comes-to-chrome-tomoro-1822992036](https://gizmodo.com/google-s-big-ad-blocking-update-comes-to-chrome-tomorro-1822992036)
+> 原文：<https://gizmodo.com/google-s-big-ad-blocking-update-comes-to-chrome-tomorro-1822992036>
 
 它已经准备了将近一年，谷歌伟大的广告末日即将来临。周四，Chrome 浏览器将开始自动过滤掉不符合特定质量标准的广告。你的浏览体验将会有所改变。以下是你需要知道的。
 

@@ -1,6 +1,6 @@
 # 当你和同事分手时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-what-do what-when-you-dis-a-co-worker-1737415075](https://lifehacker.com/what-to-do-when-you-break-up-with-a-coworker-1737415075)
+> 原文：<https://lifehacker.com/what-to-do-when-you-break-up-with-a-coworker-1737415075>
 
 你拥有完美的——直到你没有。现在你们分手了。你把他或她的所有东西都从你的公寓里搬走了，还把你们可爱的情侣脸书的照片都取消了标签。但是当你在办公室见到你的前任时，事情就复杂了。
 

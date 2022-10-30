@@ -1,6 +1,6 @@
 # 你和你的车如何度过 2017 年的第一场冬季暴风雪
 
-> 原文:[https://jalopnik . com/how-you-and-you-car-can-survive-2017-s-first-big-winte-1792142075](https://jalopnik.com/how-you-and-you-car-can-survive-2017-s-first-big-winte-1792142075)
+> 原文：<https://jalopnik.com/how-you-and-you-car-can-survive-2017-s-first-big-winte-1792142075>
 
 如果你住在美国东北部，做好准备。冬天老人释放了 [冬季风暴尼科](https://weather.com/storms/winter/news/winter-storm-niko-forecast-northeast-megalopolis-february-2017) ，尼科刚刚用雪球填满了袜子，雪球的中心是岩石，即将给整个美国的右上角一个残酷、持久的打击。但这并不意味着你和你的车必须接受它！如果你听从我们一些明智的建议，你仍然可以开车。
 

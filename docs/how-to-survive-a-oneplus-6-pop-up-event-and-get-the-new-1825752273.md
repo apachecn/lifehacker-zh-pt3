@@ -1,6 +1,6 @@
 # 如何在 OnePlus 6 弹出事件中幸存并在其他人之前获得新手机
 
-> 原文:[https://life hacker . com/how-to-survive-a-oneplus-6-pop-up-event-and-get-the-new-1825752273](https://lifehacker.com/how-to-survive-a-oneplus-6-pop-up-event-and-get-the-new-1825752273)
+> 原文：<https://lifehacker.com/how-to-survive-a-oneplus-6-pop-up-event-and-get-the-new-1825752273>
 
 在过去的六年里，通过以极低的价格提供优质的安卓智能手机，建立了一个忠实的粉丝群。现在，OnePlus 6 距离发布只有几周时间了，这种兴奋再次产生——即使 OnePlus 6 可能是该公司迄今为止最昂贵的手机。
 

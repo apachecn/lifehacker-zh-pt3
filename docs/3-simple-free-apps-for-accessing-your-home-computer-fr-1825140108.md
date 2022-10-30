@@ -1,6 +1,6 @@
 # 3 个简单、免费的应用程序，可从任何地方访问您的家庭电脑
 
-> 原文:[https://gizmodo . com/3-simple-free-apps-for-access-your-home-computer-fr-1825140108](https://gizmodo.com/3-simple-free-apps-for-accessing-your-home-computer-fr-1825140108)
+> 原文：<https://gizmodo.com/3-simple-free-apps-for-accessing-your-home-computer-fr-1825140108>
 
 你在工作，或者在世界的另一端，或者两者兼而有之，你需要家里的电脑提供一些东西——在过去的几年里，你需要一个 IT 学位和一个昂贵的软件包来远程连接到你的家庭电脑，但现在有许多应用程序可以完成这项工作，简单而且免费。这里有三个我们最喜欢的，当你可能想使用它们。
 

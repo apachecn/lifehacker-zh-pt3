@@ -1,6 +1,6 @@
 # 问专家:所有关于管理你的信用评分
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-managing-your-credit-score-1758748896](https://lifehacker.com/ask-an-expert-all-about-managing-your-credit-score-1758748896)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-managing-your-credit-score-1758748896>
 
 信用评分可能是你财务健康中令人困惑的一部分。你的财务前景有多少真正反映在那个讨厌的数字中？怎么才能改善呢？在这里回答一些问题的是麦克·瑟奇，一位拥有的分析师。
 

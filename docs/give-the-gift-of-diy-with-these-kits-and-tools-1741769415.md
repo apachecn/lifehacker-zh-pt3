@@ -1,6 +1,6 @@
 # 用这些工具包和工具赠送 DIY 礼物
 
-> 原文:[https://life hacker . com/give-the-give-give-the-gift-of-DIY with these-kit-and-tools-1741769415](https://lifehacker.com/give-the-gift-of-diy-with-these-kits-and-tools-1741769415)
+> 原文：<https://lifehacker.com/give-the-gift-of-diy-with-these-kits-and-tools-1741769415>
 
 不是每个人都想要一些无聊的预先包装好的礼物。有些人喜欢自己做东西。对于那些 DIY 者来说，你能给的最好的礼物是更多制作更多东西的工具。这里有一些让你生活中的“自己动手者”保持快乐的建议。
 

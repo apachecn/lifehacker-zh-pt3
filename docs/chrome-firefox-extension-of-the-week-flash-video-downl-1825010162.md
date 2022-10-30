@@ -1,6 +1,6 @@
 # Chrome/Firefox 本周扩展:Flash 视频下载
 
-> 原文:[https://life hacker . com/chrome-Firefox-extension-of-the-week-flash-video-downl-1825010162](https://lifehacker.com/chrome-firefox-extension-of-the-week-flash-video-downl-1825010162)
+> 原文：<https://lifehacker.com/chrome-firefox-extension-of-the-week-flash-video-downl-1825010162>
 
 有时候，你只是不想等待视频流。或者一个视频如此引人注目，你想制作一个离线副本，这样你就可以随时把它拿出来(给你的朋友看)。
 

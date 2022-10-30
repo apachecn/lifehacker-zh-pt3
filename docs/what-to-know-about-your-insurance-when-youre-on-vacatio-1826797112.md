@@ -1,6 +1,6 @@
 # 当你在度假的时候，你应该知道什么关于你的保险
 
-> 原文:[https://life hacker . com/what-to-know-about-your-insurance-when-you-on-vacatio-1826797112](https://lifehacker.com/what-to-know-about-your-insurance-when-youre-on-vacatio-1826797112)
+> 原文：<https://lifehacker.com/what-to-know-about-your-insurance-when-youre-on-vacatio-1826797112>
 
 在夏季度假期间，潜在的医疗账单可能是你脑海中的最后一件事，但如果你或你的家庭成员在度假时发生了不好的事情，你会想知道你的保险将涵盖哪些内容。
 

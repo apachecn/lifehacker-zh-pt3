@@ -1,6 +1,6 @@
 # 现在就订购这些数字化的非实物礼物吧
 
-> 原文:[https://life hacker . com/order-these-digital-non-thing-gifts-right-now-1820834827](https://lifehacker.com/order-these-digital-non-thing-gifts-right-now-1820834827)
+> 原文：<https://lifehacker.com/order-these-digital-non-thing-gifts-right-now-1820834827>
 
 嘿，圣诞节在星期一！两天后就是家庭节日庆典了，而圣诞树下却没有任何东西给你的侄女、妈妈、兄弟，甚至你自己的伴侣。当然，你可以去购物中心，但是现在商店已经被挑光了...坦率地说，很多人在这个假期并不真的想要更多的东西。
 

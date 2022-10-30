@@ -1,6 +1,6 @@
 # 如果你想的话，星巴克是真实的
 
-> 原文:[https://life hacker . com/the-Starbucks-frappajappajooza-is-real-if-you-want-t-1797348648](https://lifehacker.com/the-starbucks-frappajappajooza-is-real-if-you-want-it-t-1797348648)
+> 原文：<https://lifehacker.com/the-starbucks-frappajappajooza-is-real-if-you-want-it-t-1797348648>
 
 没有一种秘密的星巴克饮料叫做。这只是推特用户 wellmanlaylah 把蓝色佳得乐放进杯子里。但是从另一个角度来说，这里的*是*一种 Frappajappajooza，它由你想要的任何东西制成，只要你选择现有的星巴克原料。
 

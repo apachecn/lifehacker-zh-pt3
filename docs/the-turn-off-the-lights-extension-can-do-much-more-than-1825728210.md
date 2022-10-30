@@ -1,6 +1,6 @@
 # “关灯”扩展功能不仅仅可以让你的浏览器变暗
 
-> 原文:[https://life hacker . com/the-turn-off-the-lights-extension-can-do-more-than-1825728210](https://lifehacker.com/the-turn-off-the-lights-extension-can-do-much-more-than-1825728210)
+> 原文：<https://lifehacker.com/the-turn-off-the-lights-extension-can-do-much-more-than-1825728210>
 
 Chrome/Firefox:如果你在过去八年中的任何时候使用过网络浏览器，你肯定听说过这个扩展关掉灯( [Chrome](https://chrome.google.com/webstore/detail/turn-off-the-lights/bfbmjmiodbnnpllbbbfblcplfjjepjdn?hl=en-US) 、 [Firefox](https://addons.mozilla.org/en-US/firefox/addon/turn-off-the-lights/) )。当你开始观看 YouTube 视频时，这是自动嵌入的最好方法，当然，为了更好的观看，也可以将浏览器的背景调暗(即使你已经在使用 YouTube 的黑暗模式)。
 

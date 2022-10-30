@@ -1,6 +1,6 @@
 # 整个 30 饮食的好与坏
 
-> 原文:[https://life hacker . com/the-the-good and-bad of-the-the-the-whole 30-diet-1786853694](https://lifehacker.com/the-good-and-bad-of-the-whole30-diet-1786853694)
+> 原文：<https://lifehacker.com/the-good-and-bad-of-the-whole30-diet-1786853694>
 
 [Whole30](http://whole30.com/) 减肥法宣布大片食物禁止食用，并对剩下的少量食物制定了严格的规定。这意味着它会检查很多选项，比如 [、时尚饮食](http://vitals.lifehacker.com/why-fad-diets-dont-work-and-how-you-could-spot-them-1772831351) 或过于严厉而无效的。但这里也有好的一面，如果你知道自己在做什么，这可能会有所帮助。
 

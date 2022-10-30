@@ -1,6 +1,6 @@
 # 来自我们读者的最佳新奥尔良贴士
 
-> 原文:[https://life hacker . com/the-best-new-Orleans-tips-from-our-readers-1823036348](https://lifehacker.com/the-best-new-orleans-tips-from-our-readers-1823036348)
+> 原文：<https://lifehacker.com/the-best-new-orleans-tips-from-our-readers-1823036348>
 
 我们征求了您的新奥尔良旅行建议 ，收到了 150 多条评论。这里有一些最好的例子，包括日常生活的小贴士，在镇上转转，以及旅游默认选项的替代方案。在原帖上多读几十个。
 

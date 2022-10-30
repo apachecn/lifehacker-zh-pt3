@@ -1,6 +1,6 @@
 # 生活黑客作家回应世界上最受欢迎的组织黑客
 
-> 原文:[https://life hacker . com/life hacker-writers-respond-to-the-world-most-popular-o-1796144840](https://lifehacker.com/lifehacker-writers-respond-to-the-worlds-most-popular-o-1796144840)
+> 原文：<https://lifehacker.com/lifehacker-writers-respond-to-the-worlds-most-popular-o-1796144840>
 
 在 Lifehacker 这里，我们已经看到了大约 [每一种巧妙的 DIY 技巧，但我们也看到了许多令人讨厌的东西。我们最近偶然发现了一个非常受欢迎的视频，里面充满了组织黑客，我们有一些想法...](http://lifehacker.com/tag/clever-uses) 
 

@@ -1,6 +1,6 @@
 # 你糟糕的驾驶座自拍可能会扼杀你的爱情生活
 
-> 原文:[https://jalopnik . com/your-bad-drivers-seat-self ie-may-be-killing-your-love-l-1822939553](https://jalopnik.com/your-bad-drivers-seat-selfie-may-be-killing-your-love-l-1822939553)
+> 原文：<https://jalopnik.com/your-bad-drivers-seat-selfie-may-be-killing-your-love-l-1822939553>
 
 情人节快乐！不管你的感情状况如何，你可能已经厌倦了听到这句话。这对情侣来说既浪费又烦人，如果你是单身，每一个褶边红心和善意的糖果盒都只是又一个肮脏的手指在已经溃烂的伤口上刨，那就是孤独。我们都经历过！
 

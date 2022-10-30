@@ -1,6 +1,6 @@
 # 不，食肉的海虫不会吃掉你的腿
 
-> 原文:[https://life hacker . com/no-mean-piece-sea-bugs-arent-to-吞吃你的 le-1797603693](https://lifehacker.com/no-flesh-eating-sea-bugs-arent-going-to-devour-your-le-1797603693)
+> 原文：<https://lifehacker.com/no-flesh-eating-sea-bugs-arent-going-to-devour-your-le-1797603693>
 
 一名澳大利亚少年最近被送进医院，因为一群神秘的生物似乎咬了他的腿并导致严重出血 。虽然这一事件产生了一些震惊和敬畏，但没有理由对此过于激动。
 

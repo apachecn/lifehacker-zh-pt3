@@ -1,6 +1,6 @@
 # Lifehacker 特约撰稿人帕特里克·艾伦的现场问答(更新:已完成)
 
-> 原文:[https://life hacker . com/live-q-a-with-life hacker-staff-writer-Patrick-Allan-1819002613](https://lifehacker.com/live-q-a-with-lifehacker-staff-writer-patrick-allan-1819002613)
+> 原文：<https://lifehacker.com/live-q-a-with-lifehacker-staff-writer-patrick-allan-1819002613>
 
 嘿大家好！来和我一起玩吧！在美国东部时间下午 3 点 30 分/太平洋时间下午 12 点 30 分之前，我会回答你所有精彩的问题。让我们狂欢吧。
 

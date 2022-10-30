@@ -1,6 +1,6 @@
 # 根据科学，上班的最佳方式
 
-> 原文:[https://gizmodo . com/the-best-ways-to-get-to-work-by-science-1733796033](https://gizmodo.com/the-best-ways-to-get-to-work-according-to-science-1733796033)
+> 原文：<https://gizmodo.com/the-best-ways-to-get-to-work-according-to-science-1733796033>
 
 通勤会影响你的心理健康、身体健康，甚至影响你对他人的看法。这些变化比你想象的更加深远。
 

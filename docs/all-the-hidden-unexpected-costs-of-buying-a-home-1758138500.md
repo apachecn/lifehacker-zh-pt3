@@ -1,6 +1,6 @@
 # 所有隐藏的，意想不到的购房成本
 
-> 原文:[https://life hacker . com/all-the-hidden-unexpected-cost-of-buying-a-home-1758138500](https://lifehacker.com/all-the-hidden-unexpected-costs-of-buying-a-home-1758138500)
+> 原文：<https://lifehacker.com/all-the-hidden-unexpected-costs-of-buying-a-home-1758138500>
 
 你的房子可能是你所拥有的最昂贵的东西，这种花费超过了收盘价。有房子的成本，但还有其他正在进行的前期费用，可以让你措手不及。尤其是如果你是第一次购买，它有助于了解你进入了什么。
 

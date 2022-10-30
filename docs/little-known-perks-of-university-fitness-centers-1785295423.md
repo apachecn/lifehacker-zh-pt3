@@ -1,6 +1,6 @@
 # 大学健身中心鲜为人知的额外津贴
 
-> 原文:[https://life hacker . com/little-known-perks-of-university-fitness-centers-1785295423](https://lifehacker.com/little-known-perks-of-university-fitness-centers-1785295423)
+> 原文：<https://lifehacker.com/little-known-perks-of-university-fitness-centers-1785295423>
 
 击退大一十五并不意味着你的选择仅限于跑步机和举重。大学健身中心充满了 [令人惊讶、有趣的设施](https://lifehacker.com/the-best-university-amenities-and-services-you-may-not-1631896259) 来帮助你保持体形，养成健康的习惯，甚至在大考前减压。最重要的是，对许多学生来说，这都是免费的。
 

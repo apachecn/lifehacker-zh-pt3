@@ -1,6 +1,6 @@
 # 科学研究如何让孩子们吃蔬菜
 
-> 原文:[https://life hacker . com/science-weigh-in-how-to-get-to-eat-they-kids-veget-1819150567](https://lifehacker.com/science-weighs-in-on-how-to-get-kids-to-eat-their-veget-1819150567)
+> 原文：<https://lifehacker.com/science-weighs-in-on-how-to-get-kids-to-eat-their-veget-1819150567>
 
 我最大的孩子只会吃一种蔬菜:胡萝卜。(以前是西兰花，他换了。)他的小弟弟只会吃玉米。因为蔬菜对孩子有益，如果我们知道一些让孩子吃蔬菜的简单方法，那就太好了。科学没有可靠的答案，但它确实给了我们一些线索。
 

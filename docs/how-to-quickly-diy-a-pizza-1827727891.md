@@ -1,6 +1,6 @@
 # 如何用厨房里的任何东西快速 DIY 披萨
 
-> 原文:[https://the take out . com/how-to-quick-DIY-a-pizza-1827727891](https://thetakeout.com/how-to-quickly-diy-a-pizza-1827727891)
+> 原文：<https://thetakeout.com/how-to-quickly-diy-a-pizza-1827727891>
 
 披萨最大的好处之一是，如果你的储藏室里有一些基本的东西，就很容易把它们扔在一起。不要误解我——我喜欢冷冻披萨(对 Home Run Inn 大喊！)，但是用橱柜里已经有的食材做新鲜的披萨味道要好得多。此外，它所花的时间与冷冻馅饼差不多，甚至更少。
 

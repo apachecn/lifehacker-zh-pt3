@@ -1,6 +1,6 @@
 # 果酱包装的口袋组织者
 
-> 原文:[https://life hacker . com/the-jam-packed-pocket-organizer-1789428091](https://lifehacker.com/the-jam-packed-pocket-organizer-1789428091)
+> 原文：<https://lifehacker.com/the-jam-packed-pocket-organizer-1789428091>
 
 包包不一定非要背在背上或扛在肩上。典型的例子是，日常携带的读者谢尔盖的袖珍包。
 

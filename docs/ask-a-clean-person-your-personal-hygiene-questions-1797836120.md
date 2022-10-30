@@ -1,6 +1,6 @@
 # 问一个爱干净的人你的个人卫生问题
 
-> 原文:[https://life hacker . com/ask-a-clean-person-your-personal-hygiene-questions-1797836120](https://lifehacker.com/ask-a-clean-person-your-personal-hygiene-questions-1797836120)
+> 原文：<https://lifehacker.com/ask-a-clean-person-your-personal-hygiene-questions-1797836120>
 
 在本周的 [升级版](http://lifehacker.com/tag/the-show) 节目中，我们将和专业清洁人士朱莉·科尔一起谈论个人卫生。朱莉是《时尚先生》、《死亡旋转》和《发夹》的清洁专家，她还是《T4》、《纽约时报》畅销书《我的男朋友吐在我手提包里》的作者。。。而其他的事情你不能问玛莎 。从下周开始，她将为 [后代](http://offspring.lifehacker.com) 写一篇关于如何做一个干净父母的专栏。
 

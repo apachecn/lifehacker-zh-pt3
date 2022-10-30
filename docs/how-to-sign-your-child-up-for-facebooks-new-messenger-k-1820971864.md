@@ -1,6 +1,6 @@
 # 如何让您的孩子注册脸书新推出的“信使儿童”
 
-> 原文:[https://life hacker . com/how-to-sign-your-child-up-for-face books-new-messenger-k-1820971864](https://lifehacker.com/how-to-sign-your-child-up-for-facebooks-new-messenger-k-1820971864)
+> 原文：<https://lifehacker.com/how-to-sign-your-child-up-for-facebooks-new-messenger-k-1820971864>
 
 今天，脸书发布了 [Messenger Kids](https://messengerkids.com/) ，这是一个新的 Messenger 儿童专用版本，面向 13 岁以下的儿童，他们还没有足够的年龄拥有自己的脸书帐户，但仍然希望在社交网络上与朋友和家人聊天。
 

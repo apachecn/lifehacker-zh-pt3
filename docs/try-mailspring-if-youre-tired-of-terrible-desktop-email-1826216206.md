@@ -1,6 +1,6 @@
 # 如果你厌倦了糟糕的桌面电子邮件应用，试试 Mailspring
 
-> 原文:[https://life hacker . com/try-mail spring-if-you-drafty-desktop-email-1826216206](https://lifehacker.com/try-mailspring-if-youre-tired-of-terrible-desktop-email-1826216206)
+> 原文：<https://lifehacker.com/try-mailspring-if-youre-tired-of-terrible-desktop-email-1826216206>
 
 除非你是微软 Outlook 的超级粉丝，否则你很可能不会在家里使用桌面电子邮件客户端。你可能使用基于网络的电子邮件服务，你的日常工作可能包括启动浏览器删除、移动或忽略你的邮件。像 Mail 这样的第三方应用(用于 Windows *或* Mac)被诅咒了。
 

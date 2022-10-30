@@ -1,6 +1,6 @@
 # 姜葱魔法酱是 100%的老板
 
-> 原文:[https://the take out . com/姜-葱-魔-酱-是-百分之百-boss-1823022501](https://thetakeout.com/ginger-scallion-magic-sauce-is-100-percent-boss-1823022501)
+> 原文：<https://thetakeout.com/ginger-scallion-magic-sauce-is-100-percent-boss-1823022501>
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues#_ga=2.243902213.1001105705.1512497220-308846628.1493669845) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 

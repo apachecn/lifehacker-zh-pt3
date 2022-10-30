@@ -1,6 +1,6 @@
 # 你现在可以用谷歌主页说西班牙语了
 
-> 原文:[https://life hacker . com/you-can-now-speak-Spanish-with your-Google-home-1827138437](https://lifehacker.com/you-can-now-speak-spanish-with-your-google-home-1827138437)
+> 原文：<https://lifehacker.com/you-can-now-speak-spanish-with-your-google-home-1827138437>
 
 谷歌为拥有谷歌家庭智能音箱的西班牙语用户提供了一些好消息:你现在可以用西班牙语与谷歌助理交谈。
 

@@ -1,6 +1,6 @@
 # iOS 11 中的控制中心如何入门
 
-> 原文:[https://life hacker . com/how-to-get-started-with-control-center-in-IOs-11-1818610224](https://lifehacker.com/how-to-get-started-with-control-center-in-ios-11-1818610224)
+> 原文：<https://lifehacker.com/how-to-get-started-with-control-center-in-ios-11-1818610224>
 
 对于 iOS 11，苹果已经彻底检修了控制中心。控制中心是当你从 iPhone 或 iPad 的显示屏底部向上滑动时弹出的托盘(在 iPhone X 上它将来自屏幕的右上方)。传统上，它提供了对手机 Wi-Fi 和蓝牙控制、飞行模式、手电筒和音乐控制等东西的快速访问。它本质上是一个不同手机控制快捷键的地方，随着 iOS 11 的推出，它变得更加智能。
 

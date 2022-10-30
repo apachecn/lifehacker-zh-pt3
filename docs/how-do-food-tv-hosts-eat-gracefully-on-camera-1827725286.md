@@ -1,6 +1,6 @@
 # 美食电视主持人如何在镜头前优雅地吃东西？
 
-> 原文:[https://the take out . com/how-do-food-TV-hosts-在镜头前优雅地吃东西-1827725286](https://thetakeout.com/how-do-food-tv-hosts-eat-gracefully-on-camera-1827725286)
+> 原文：<https://thetakeout.com/how-do-food-tv-hosts-eat-gracefully-on-camera-1827725286>
 
 几周前出去吃饭时，我的男朋友打断了我，告诉我我脸上有东西。“披萨？”我问，轻轻擦了擦我的嘴周围的餐巾。“口红？”我问。他皱眉:“呃，都是？你可能需要去洗手间。”在那里，盯着水槽上方的镜子，我看到我像小丑，如果他是在与 marinara 酱和一管珊瑚色的欧莱雅色彩丰富的战斗。
 

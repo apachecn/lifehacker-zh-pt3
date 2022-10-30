@@ -1,6 +1,6 @@
 # 对 Galaxy Note 8 的电池问题进行临时修复
 
-> 原文:[https://life hacker . com/use-this-temporary-fix-for-the-galaxy-note-8-s-battery-1821913457](https://lifehacker.com/use-this-temporary-fix-for-the-galaxy-note-8-s-battery-1821913457)
+> 原文：<https://lifehacker.com/use-this-temporary-fix-for-the-galaxy-note-8-s-battery-1821913457>
 
 12 月下旬， [Galaxy Note 8](https://lifehacker.com/how-to-install-the-android-8-0-oreo-beta-on-your-galaxy-1821265769) 车主开始报告 [手机电池](https://lifehacker.com/top-10-ways-to-improve-the-battery-life-on-your-phone-a-1725843518) 出现离奇问题。如果电量下降得太低，它就无法充电，一旦电池耗尽，就根本无法使用设备。
 

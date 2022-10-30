@@ -1,6 +1,6 @@
 # 如何战胜自己，佛教精神病学家马克·爱泼斯坦
 
-> 原文:[https://life hacker . com/how-to-get-over-yourself-with-author-psychology-1823517514](https://lifehacker.com/how-to-get-over-yourself-with-author-and-psychiatrist-1823517514)
+> 原文：<https://lifehacker.com/how-to-get-over-yourself-with-author-and-psychiatrist-1823517514>
 
 在这一集里，我们采访了作家兼精神病学家 [马克·爱泼斯坦](http://markepsteinmd.com/?page_id=2) ，他的书包括 [*没有思想者的思想*](https://www.amazon.com/Thoughts-Without-Thinker-Psychotherapy-Perspective/dp/0465050948?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-over-yourself-with-author-and-psychiatrist-1823517514&asc_source=&tag=kinjalifehackerlink-20) 和 [*分崩离析而不崩溃*](https://www.amazon.com/Going-Pieces-without-Falling-Apart/dp/0767902351/ref=pd_bxgy_14_2?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-over-yourself-with-author-and-psychiatrist-1823517514&asc_source=&dpID=51wo62ByKaL&dpSrc=detail&pd_rd_i=0767902351&pd_rd_r=KV44QDEACED25ZVXYF81&pd_rd_w=qpVgx&pd_rd_wg=MZ0IA&preST=_SY291_BO1,204,203,200_QL40_&psc=1&refRID=KV44QDEACED25ZVXYF81&tag=kinjalifehackerlink-20) 。他的最新著作《未给出的建议:超越自我指南》[](https://www.amazon.com/Advice-Not-Given-Getting-Yourself-ebook/dp/B073NPJBR1/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-over-yourself-with-author-and-psychiatrist-1823517514&asc_source=&ie=UTF8&keywords=advice not given a guide to getting over yourself&qid=1520267418&s=books&sr=1-1&tag=kinjalifehackerlink-20)*，将佛教的八正道作为精神和心理成长的路线图。根据马克的说法，佛教和心理疗法得出了相同的结论:当我们放任自我时，我们会痛苦，但当自我学会放下时，我们就自由了。* 
 

@@ -1,6 +1,6 @@
 # 如何帮助你的孩子变得“不会被拒绝”
 
-> 原文:[https://life hacker . com/how-to-help-your-kid-be-proof-1820899725](https://lifehacker.com/how-to-help-your-kid-become-rejection-proof-1820899725)
+> 原文：<https://lifehacker.com/how-to-help-your-kid-become-rejection-proof-1820899725>
 
 像大多数五岁的孩子一样，贾江的儿子布莱恩经常听到“不”。但不像大多数孩子，他们可能会把这个词看作是邀请他们融化在地板上哭泣，布莱恩认为这是一个机会。或者至少这是他爸爸训练他去做的。
 

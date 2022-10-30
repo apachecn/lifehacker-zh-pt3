@@ -1,6 +1,6 @@
 # 假日车流中狂欢的最佳播客
 
-> 原文:[https://life hacker . com/the-best-podcast-to-binge-in-holiday-traffic-1820384272](https://lifehacker.com/the-best-podcasts-to-binge-in-holiday-traffic-1820384272)
+> 原文：<https://lifehacker.com/the-best-podcasts-to-binge-in-holiday-traffic-1820384272>
 
 堵车糟透了，堵车更糟。如果你在这个假期开车，给你的手机加载一两个精彩的播客，让交通不那么糟糕。你甚至可能开始希望这个旅程不要太快结束，这样你就可以完成你正在看的这一集。
 

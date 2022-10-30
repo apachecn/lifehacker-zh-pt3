@@ -1,6 +1,6 @@
 # 如何给宝宝修剪指甲
 
-> 原文:[https://lifehacker.com/how-to-trim-a-babys-nails-1823925769](https://lifehacker.com/how-to-trim-a-babys-nails-1823925769)
+> 原文：<https://lifehacker.com/how-to-trim-a-babys-nails-1823925769>
 
 这看起来像是一个家长的成年礼:第一次修剪宝宝的指甲，但失败了。
 

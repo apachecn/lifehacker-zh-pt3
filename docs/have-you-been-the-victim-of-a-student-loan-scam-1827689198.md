@@ -1,6 +1,6 @@
 # 你是学生贷款骗局的受害者吗？
 
-> 原文:[https://life hacker . com/你是学生贷款骗局的受害者吗-1827689198](https://lifehacker.com/have-you-been-the-victim-of-a-student-loan-scam-1827689198)
+> 原文：<https://lifehacker.com/have-you-been-the-victim-of-a-student-loan-scam-1827689198>
 
 学生贷款诈骗 [呈上升趋势](https://www.cnbc.com/2018/07/16/student-loan-scams-are-on-the-rise.html) ，诈骗者采用的手段比以往任何时候都更加复杂和老练。
 

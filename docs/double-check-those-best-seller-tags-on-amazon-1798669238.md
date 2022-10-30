@@ -1,6 +1,6 @@
 # 仔细检查亚马逊上的“畅销书”标签
 
-> 原文:[https://life hacker . com/double-check-thes-best-seller-tags-on-Amazon-1798669238](https://lifehacker.com/double-check-those-best-seller-tags-on-amazon-1798669238)
+> 原文：<https://lifehacker.com/double-check-those-best-seller-tags-on-amazon-1798669238>
 
 在亚马逊上购物越来越成为一种信任的练习。虽然该公司已经采取措施来缓解 [赞助产品评论](http://lifehacker.com/amazon-ditches-its-controversial-incentivized-review-pr-1787388230) 和 [虚假评级](http://lifehacker.com/fakespot-analyzes-amazon-reviews-to-spot-fakes-1776485508) 的传播，但非法卖家仍在想方设法 [欺骗消费者](http://lifehacker.com/how-to-avoid-scams-while-shopping-on-amazon-1797976698) 。最新的招数？利用亚马逊的人气排名系统，夺取“畅销书”的标签——可以说，当你购买你可能不熟悉的东西时，这是一个非常重要的标志。
 

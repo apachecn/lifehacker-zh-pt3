@@ -1,6 +1,6 @@
 # 重塑雨天品牌
 
-> 原文:[https://lifehacker.com/rebrand-the-rainy-day-1823340279](https://lifehacker.com/rebrand-the-rainy-day-1823340279)
+> 原文：<https://lifehacker.com/rebrand-the-rainy-day-1823340279>
 
 虽然这是老生常谈，但孩子真的就像小海绵，对父母来说，这是最酷也是最可怕的事情。你应对各种情况的方式，包括你选择的词语，可以帮助塑造他们对生活的世界观。没有压力！
 

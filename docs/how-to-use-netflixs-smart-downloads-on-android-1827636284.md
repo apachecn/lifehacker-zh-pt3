@@ -1,6 +1,6 @@
 # 如何在安卓系统上使用网飞的“智能下载”
 
-> 原文:[https://life hacker . com/how-to-use-netflixs-smart-downloads-on-Android-1827636284](https://lifehacker.com/how-to-use-netflixs-smart-downloads-on-android-1827636284)
+> 原文：<https://lifehacker.com/how-to-use-netflixs-smart-downloads-on-android-1827636284>
 
 把《网飞》直接下载到你的设备上是很棒的——直到你耗尽空间，不得不手动删除《酷儿眼》的每一集，为新一季的《T2》让路。但有了网飞的最新功能， [智能下载](https://media.netflix.com/en/company-blog/downloading-on-netflix-just-got-smarter-1) ，网飞会将你最喜欢的节目的下一集排队，同时删除你已经看过的节目。
 

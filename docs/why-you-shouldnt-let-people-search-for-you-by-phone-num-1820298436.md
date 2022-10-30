@@ -1,6 +1,6 @@
 # 为什么你不应该让人们通过脸书的电话号码来搜索你
 
-> 原文:[https://life hacker . com/why-you-should-not-let-people-search-for-you-by-phone-num-1820298436](https://lifehacker.com/why-you-shouldnt-let-people-search-for-you-by-phone-num-1820298436)
+> 原文：<https://lifehacker.com/why-you-shouldnt-let-people-search-for-you-by-phone-num-1820298436>
 
 在旧金山租公寓是一场竞争噩梦，这就是为什么我很兴奋地发现，我一直在发短信安排看房的房东恰好是我另一个好朋友的朋友。她没有告诉我，我们也不是脸书的朋友:我发现是因为她在社交网络上储存了自己的电话号码。当我们开始协调公寓看房时间时，我的手机自动调出了她的个人资料照片，并链接到了她的账户。
 

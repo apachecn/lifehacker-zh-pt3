@@ -1,6 +1,6 @@
 # 用硬头做芦笋蛋奶酥
 
-> 原文:[https://life hacker . com/make-asparatus-souffles-out-of-the-tough-ends-1825565763](https://lifehacker.com/make-asparagus-souffles-out-of-the-tough-ends-1825565763)
+> 原文：<https://lifehacker.com/make-asparagus-souffles-out-of-the-tough-ends-1825565763>
 
 嫩而甜的芦笋茎是最有弹性的，但是它们坚硬的纤维末端必须被去除，才能在餐桌上占有一席之地。这些通常被扔掉(或堆肥)，但它们实际上可以用来做绿色的蛋奶酥。
 

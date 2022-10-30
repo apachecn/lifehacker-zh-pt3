@@ -1,6 +1,6 @@
 # 如果你是一名优秀的员工，和你的同事搞好关系
 
-> 原文:[https://life hacker . com/if-you-a-top-performer-get-on-your-collaborates-good-si-1796716739](https://lifehacker.com/if-youre-a-top-performer-get-on-your-coworkers-good-si-1796716739)
+> 原文：<https://lifehacker.com/if-youre-a-top-performer-get-on-your-coworkers-good-si-1796716739>
 
 如果你是一名超级明星员工，你很有可能成为众矢之的。最近的一项研究表明，同事们想拖垮他们表现最好的同事。
 

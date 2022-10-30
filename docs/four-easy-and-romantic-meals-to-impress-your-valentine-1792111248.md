@@ -1,6 +1,6 @@
 # 四顿简单而浪漫的晚餐给你的情人留下深刻印象
 
-> 原文:[https://life hacker . com/four-easy-and-romantic-following-your-valentine-1792111248](https://lifehacker.com/four-easy-and-romantic-meals-to-impress-your-valentine-1792111248)
+> 原文：<https://lifehacker.com/four-easy-and-romantic-meals-to-impress-your-valentine-1792111248>
 
 完美的浪漫大餐应该容易准备，容易清理，并且不会让你太饱而无法享受其他的活动。牛排晚餐从来都不是不受欢迎的，但它有点重，你不想烟熏房子或担心烤过头了肋眼肉。幸运的是，即使你不是顶级厨师，你也可以做一些让你的爱人惊叹的菜肴。
 

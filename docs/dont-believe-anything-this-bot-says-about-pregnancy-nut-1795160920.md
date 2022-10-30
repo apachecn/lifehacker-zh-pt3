@@ -1,6 +1,6 @@
 # 不要相信这个机器人说的任何关于怀孕营养的话
 
-> 原文:[https://life hacker . com/don ' t-believe-any-this-bot-say-about-inflation-nut-1795160920](https://lifehacker.com/dont-believe-anything-this-bot-says-about-pregnancy-nut-1795160920)
+> 原文：<https://lifehacker.com/dont-believe-anything-this-bot-says-about-pregnancy-nut-1795160920>
 
 昨晚看了推广的推文。“你在期待吗？关于食物的问题？[@ caneatthisbot](https://twitter.com/canieatthisbot)有来自 FDA 和梅奥诊所的提示。”但当我开始提问时，事情变得很奇怪。剧透:骗人的。
 

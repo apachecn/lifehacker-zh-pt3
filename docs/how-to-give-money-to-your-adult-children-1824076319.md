@@ -1,6 +1,6 @@
 # 如何给你成年的孩子钱
 
-> 原文:[https://life hacker . com/how-to-give money to-your-成年子女-1824076319](https://lifehacker.com/how-to-give-money-to-your-adult-children-1824076319)
+> 原文：<https://lifehacker.com/how-to-give-money-to-your-adult-children-1824076319>
 
 在美国，为成年子女提供经济支持是一种常态:来自的一项最新调查发现，几乎 75%的父母都这样做。这包括支付生活费用或帮助孩子偿还债务。
 

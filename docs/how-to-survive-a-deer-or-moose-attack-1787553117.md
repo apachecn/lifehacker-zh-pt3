@@ -1,6 +1,6 @@
 # 如何在鹿或驼鹿袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-deer-or-moose-attack-1787553117](https://lifehacker.com/how-to-survive-a-deer-or-moose-attack-1787553117)
+> 原文：<https://lifehacker.com/how-to-survive-a-deer-or-moose-attack-1787553117>
 
 看着它们你可能想不到，但是斑比和他的有蹄朋友们带来了巨大的冲击。根据情况和一年中的时间，鹿和驼鹿可能比锋利的食肉动物更致命。这里有一些你需要知道的事情，让那些压碎的蹄子和锋利的鹿角远离你。
 

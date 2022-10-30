@@ -1,6 +1,6 @@
 # 我是简·麦克戈尼格尔，游戏设计师和作家，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Jane-mcgonigal-game-designer-and-author-and-this-I-1727032851](https://lifehacker.com/im-jane-mcgonigal-game-designer-and-author-and-this-i-1727032851)
+> 原文：<https://lifehacker.com/im-jane-mcgonigal-game-designer-and-author-and-this-i-1727032851>
 
 简·麦克戈尼格尔 是一名游戏设计师——但她并没有参与下一部《马里奥》。相反，她给游戏带来了学术视角，并着眼于游戏如何改善我们的生活和解决实际问题。
 

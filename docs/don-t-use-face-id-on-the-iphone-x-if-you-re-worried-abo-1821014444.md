@@ -1,6 +1,6 @@
 # 如果你担心爱管闲事的家庭成员，就不要在 iPhone X 上使用 Face ID
 
-> 原文:[https://life hacker . com/don-t-use-face-id-on-the-iphone-x-if-you-re-worried-ABO-1821014444](https://lifehacker.com/don-t-use-face-id-on-the-iphone-x-if-you-re-worried-abo-1821014444)
+> 原文：<https://lifehacker.com/don-t-use-face-id-on-the-iphone-x-if-you-re-worried-abo-1821014444>
 
 我们都在我们的智能手机 上保存着 [的私人信息，以照片、短信甚至访问我们财务信息的形式。苹果公司声称](https://lifehacker.com/why-you-should-care-more-about-your-smartphone-s-securi-1531990375) [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 由于[【Face ID】](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)使得所有数据更加安全，但是有一群人可能不适用:你的家人。
 

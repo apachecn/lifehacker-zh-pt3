@@ -1,6 +1,6 @@
 # 何时以及如何与你的搭档写一份财务协议
 
-> 原文:[https://life hacker . com/when-and-how-to-write-up-a-financial-agreement-with-you-1823462329](https://lifehacker.com/when-and-how-to-write-up-a-financial-agreement-with-you-1823462329)
+> 原文：<https://lifehacker.com/when-and-how-to-write-up-a-financial-agreement-with-you-1823462329>
 
 每周一，我们会通过向一些理财专家寻求建议来解决你的一个紧迫的个人理财问题。如果你有一般性的问题或金钱问题，或者只是想谈谈与 PeFi 相关的事情，请在评论中留下，或者发邮件给我，地址是 alicia.adamczyk@lifehacker.com。
 

@@ -1,6 +1,6 @@
 # 我是 Alice Bradley，Lifehacker 的副主编，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Alice-bradley-life hacker-and-this-1829120813](https://lifehacker.com/im-alice-bradley-deputy-editor-of-lifehacker-and-this-1829120813)
+> 原文：<https://lifehacker.com/im-alice-bradley-deputy-editor-of-lifehacker-and-this-1829120813>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是爱丽丝·布拉德利，这是我的工作方式。
 

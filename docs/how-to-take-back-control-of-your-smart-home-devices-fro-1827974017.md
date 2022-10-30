@@ -1,6 +1,6 @@
 # 如何从他人手中夺回智能家居设备的控制权
 
-> 原文:[https://life hacker . com/how-to-take-back-control-of-your-smart-home-devices-fro-1827974017](https://lifehacker.com/how-to-take-back-control-of-your-smart-home-devices-fro-1827974017)
+> 原文：<https://lifehacker.com/how-to-take-back-control-of-your-smart-home-devices-fro-1827974017>
 
 想象一下:你的家里充满了不是你自己设置的“智能”设备，但你对如何使用它们有着相当好的理解——或者，至少，如何对[你使用的智能扬声器]大喊大叫来播放你最喜欢的音乐。
 

@@ -1,6 +1,6 @@
 # 我是 Jonah Becker，Fitbit 的设计副总裁，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Jonah-Becker-fitbit-VP-of-design-and-this-is-how-I-1818851043](https://lifehacker.com/im-jonah-becker-fitbit-vp-of-design-and-this-is-how-i-1818851043)
+> 原文：<https://lifehacker.com/im-jonah-becker-fitbit-vp-of-design-and-this-is-how-i-1818851043>
 
 在 Fitbit 的两年半时间里，Jonah Becker 帮助该公司摆脱了(双关语！)行业巨头苹果。作为设计副总裁，他负责监管 Fitbit 健康追踪可穿戴设备系列的 UX 和工业设计团队。在此之前，贝克尔花了 15 年时间运营设计工作室 One & Co .，该公司于 2013 年被 HTC 收购。我们问他是如何工作的。
 

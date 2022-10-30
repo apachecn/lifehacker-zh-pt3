@@ -1,6 +1,6 @@
 # 这里有一个教孩子牙齿卫生的好方法
 
-> 原文:[https://life hacker . com/heres-a-cool-way-to-teach-kids-about-dental-hygiene-1823808707](https://lifehacker.com/heres-a-cool-way-to-teach-kids-about-dental-hygiene-1823808707)
+> 原文：<https://lifehacker.com/heres-a-cool-way-to-teach-kids-about-dental-hygiene-1823808707>
 
 让孩子们迫不及待地刷牙是一项艰巨的任务——天哪，如果他们昨天刚刷过牙，为什么还要再刷一遍呢？我完全赞成一个好的建议，让孩子们更加关注他们的口腔卫生，而这个建议来自《你好，太棒了》的 Agnes Hsu。
 

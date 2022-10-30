@@ -1,6 +1,6 @@
 # 不懂手语怎么和聋人交流
 
-> 原文:[https://life hacker . com/how-to-communication-with-dead-people-when you don ' t-know 1819512491](https://lifehacker.com/how-to-communicate-with-deaf-people-when-you-dont-know-1819512491)
+> 原文：<https://lifehacker.com/how-to-communicate-with-deaf-people-when-you-dont-know-1819512491>
 
 当你不知道如何与聋人或重听人沟通时，你可能会让这个过程变得复杂——或者更糟，把他们完全拒之门外。如果你需要和一个聋人交流，下面是你应该做的。
 

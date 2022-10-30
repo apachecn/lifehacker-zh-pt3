@@ -1,6 +1,6 @@
 # 电脑眼镜摊牌:贡纳光学 vs. Uvex
 
-> 原文:[https://life hacker . com/computer-glasses-摊牌-Gunnar-optiks-vs-uvex-1786756760](https://lifehacker.com/computer-glasses-showdown-gunnar-optiks-vs-uvex-1786756760)
+> 原文：<https://lifehacker.com/computer-glasses-showdown-gunnar-optiks-vs-uvex-1786756760>
 
 Gunnar Optiks 和 Uvex 电脑眼镜都承诺减轻眼睛疲劳，防止与电脑相关的头痛，并且长时间佩戴舒适。但 Uvex 的基本框架，虽然在视觉上远不如 Gunnar 系列吸引人，但只是成本的一小部分。让我们看看在这场美女与野兽的战斗中谁是胜利者。
 

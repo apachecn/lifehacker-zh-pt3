@@ -1,6 +1,6 @@
 # 问专家:关于可持续食品和诚实标签
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-sustainable-food-and-honest-la-1791783689](https://lifehacker.com/ask-an-expert-all-about-sustainable-food-and-honest-la-1791783689)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-sustainable-food-and-honest-la-1791783689>
 
 当你在当地的杂货店购物时，所有的食物都声称来自可持续的、善待动物的农场，你能信任它吗？什么是“有机的”,这有关系吗？这里要帮助的是那些在背后的人们，他们基于他们主张的合法性来研究和推荐食物。
 

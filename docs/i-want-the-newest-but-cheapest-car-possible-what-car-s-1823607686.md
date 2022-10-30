@@ -1,6 +1,6 @@
 # 我想要最新最便宜的车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-want-the-new-but-priest-car-possible-what-car-s-1823607686](https://jalopnik.com/i-want-the-newest-but-cheapest-car-possible-what-car-s-1823607686)
+> 原文：<https://jalopnik.com/i-want-the-newest-but-cheapest-car-possible-what-car-s-1823607686>
 
 朱利安正在市场上购买他的第一辆车，和其他美国疯子不同，他不想买一辆 700 美元的有 20 年历史的吉普车。他的目标是以低于 10，000 美元的价格买到最新、最安全、具有全天候功能的车。他应该买什么车？
 

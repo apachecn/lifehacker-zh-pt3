@@ -1,6 +1,6 @@
 # 我是 Arden Hoffman，Dropbox 的人事主管，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Arden-Hoffman-head-of-people-at-Dropbox-and-this-I-1789276164](https://lifehacker.com/im-arden-hoffman-head-of-people-at-dropbox-and-this-i-1789276164)
+> 原文：<https://lifehacker.com/im-arden-hoffman-head-of-people-at-dropbox-and-this-i-1789276164>
 
 在硅谷，技术可能是第一位的，但创造一个能让人们尽最大努力工作的基础设施绝非易事。Arden Hoffman 一直在 Dropbox 创建这个框架，她领导着他们的人力资源团队，指导公司的内部运作和招聘新人才。
 

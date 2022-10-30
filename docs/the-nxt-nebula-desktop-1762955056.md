@@ -1,6 +1,6 @@
 # NXT 星云桌面
 
-> 原文:[https://lifehacker.com/the-nxt-nebula-desktop-1762955056](https://lifehacker.com/the-nxt-nebula-desktop-1762955056)
+> 原文：<https://lifehacker.com/the-nxt-nebula-desktop-1762955056>
 
 读者 [ravenclawwit](http://ravenclawwit.kinja.com/) 偶然发现了 Rainmeter 的 NXT 主题，并在这个漂亮、实用的桌面上发挥了巨大作用。左上角的那个圆圈？它实际上是一个码头，挤满了快捷方式。以下是它的工作原理和设置方法。
 

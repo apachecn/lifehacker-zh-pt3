@@ -1,6 +1,6 @@
 # life hacker 2018 纳税指南
 
-> 原文:[https://life hacker . com/life hacker-guide-to-do-do-your-taxes-2018-1823746819](https://lifehacker.com/lifehackers-guide-to-doing-your-taxes-2018-1823746819)
+> 原文：<https://lifehacker.com/lifehackers-guide-to-doing-your-taxes-2018-1823746819>
 
 你只有一个多月的时间来报税，当然，除非你申请延期，这意味着是时候拿起你的 W-2 和 1099T3，喝杯咖啡，开始工作(或者去你的报税员办公室)。
 

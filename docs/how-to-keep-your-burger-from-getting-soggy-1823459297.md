@@ -1,6 +1,6 @@
 # 如何让你的汉堡不变湿
 
-> 原文:[https://life hacker . com/how-to-keep-your-burger-from-getting-soggy-1823459297](https://lifehacker.com/how-to-keep-your-burger-from-getting-soggy-1823459297)
+> 原文：<https://lifehacker.com/how-to-keep-your-burger-from-getting-soggy-1823459297>
 
 我喜欢美味多汁的汉堡，但是伙计，它们很脏。当你拿起一个汉堡咬上一口的时候，半升的汉堡汁就会倒在你的盘子里，这是一个放置汉堡的可怕地方，除非你对湿面包情有独钟。下面是我个人的变通方法。
 

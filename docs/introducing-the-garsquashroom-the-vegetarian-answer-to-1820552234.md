@@ -1,6 +1,6 @@
 # 介绍 Garsquashroom，素食者对火鸭鸡的回应
 
-> 原文:[https://life hacker . com/introducing-the-garsquashroom-the-素食者-answer-to-1820552234](https://lifehacker.com/introducing-the-garsquashroom-the-vegetarian-answer-to-1820552234)
+> 原文：<https://lifehacker.com/introducing-the-garsquashroom-the-vegetarian-answer-to-1820552234>
 
 我不认为素食者觉得他们“错过了”吃火鸡的体验，但我确实认为他们错过了一些颓废的壮观场面。感恩节*应该*有一个大的展示，但是这个展示不一定是一个死去的动物。
 

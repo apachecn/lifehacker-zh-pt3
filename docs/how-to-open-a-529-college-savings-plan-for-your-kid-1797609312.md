@@ -1,6 +1,6 @@
 # 如何为你的孩子开设 529 大学储蓄计划
 
-> 原文:[https://life hacker . com/how-to-open-a-529-college-savings-plan-for-your-kid-1797609312](https://lifehacker.com/how-to-open-a-529-college-savings-plan-for-your-kid-1797609312)
+> 原文：<https://lifehacker.com/how-to-open-a-529-college-savings-plan-for-your-kid-1797609312>
 
 你可能已经猜到，大学是昂贵的，如果你想让你的孩子上大学或职业学校，越早开始攒钱越好。要做到这一点，你需要考虑将钱存入一项基于教育的投资，即 529 计划。
 

@@ -1,6 +1,6 @@
 # 烤绿豆砂锅是你新的秋季配菜
 
-> 原文:[https://life hacker . com/carsted-green-bean-sarkob-is-your ' s new-fall-side-dish-1819483711](https://lifehacker.com/grilled-green-bean-casserole-is-your-new-fall-side-dish-1819483711)
+> 原文：<https://lifehacker.com/grilled-green-bean-casserole-is-your-new-fall-side-dish-1819483711>
 
 欢迎回到周日营养！我们很快就要到了烧烤季节，但我仍然在烧烤，就好像现在是七月一样。我准备好了烤牛肉和所有的配料，但是在四个小时的大部分时间里，天气太热了，没法开动烤箱。
 

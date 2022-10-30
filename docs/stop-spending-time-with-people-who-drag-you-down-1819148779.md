@@ -1,6 +1,6 @@
 # 不要把时间花在拖累你的人身上
 
-> 原文:[https://life hacker . com/stop-spending-time-with-the-drag-down-1819148779](https://lifehacker.com/stop-spending-time-with-people-who-drag-you-down-1819148779)
+> 原文：<https://lifehacker.com/stop-spending-time-with-people-who-drag-you-down-1819148779>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 

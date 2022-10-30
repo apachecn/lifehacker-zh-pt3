@@ -1,6 +1,6 @@
 # 如果你的孩子吞下了纽扣电池，蜂蜜可能会有帮助
 
-> 原文:[https://life hacker . com/if-your-child-swalls-a-button-battery-honey-may-he-1826870337](https://lifehacker.com/if-your-child-swallows-a-button-battery-honey-might-he-1826870337)
+> 原文：<https://lifehacker.com/if-your-child-swallows-a-button-battery-honey-might-he-1826870337>
 
 硬币电池或“纽扣”电池很小，有光泽，在舌头上有刺痛感。如果你是一个蹒跚学步的孩子，那就把他们归入“属于我嘴里”的类别但是吞下的纽扣电池 [可以在几个小时内通过孩子的食道](https://www.healthychildren.org/English/safety-prevention/at-home/Pages/Button-Battery-Injuries-in-Children-A-Growing-Risk.aspx) 烧出一个洞，引起疼痛、严重伤害，有时并发症会导致死亡。
 

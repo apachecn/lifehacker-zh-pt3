@@ -1,6 +1,6 @@
 # 听这些超级特别的 Spotify 播放列表
 
-> 原文:[https://life hacker . com/jam-to-these-super-specific-Spotify-playlists-1821329266](https://lifehacker.com/jam-to-these-super-specific-spotify-playlists-1821329266)
+> 原文：<https://lifehacker.com/jam-to-these-super-specific-spotify-playlists-1821329266>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-tLcA5SKwpzI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-tLcA5SKwpzI&start=0) 
 

@@ -1,6 +1,6 @@
 # 根据科学，这是挂卫生纸的正确方法
 
-> 原文:[https://life hacker . com/this-is-the-right-way to-hang ----根据 t-1820735778](https://lifehacker.com/this-is-the-right-way-to-hang-toilet-paper-according-t-1820735778)
+> 原文：<https://lifehacker.com/this-is-the-right-way-to-hang-toilet-paper-according-t-1820735778>
 
 你是怎么挂卫生纸的？一个古老的问题是，从最靠近墙的那一侧开始，是否“正确”地将末端放在卷的上面或下面，这个问题和时间一样古老。这是一个让很多家庭四分五裂的有争议的话题，现在我们对这个问题有了一个明确的答案:挂卫生纸的正确方式是把一端从顶部挂过去。
 

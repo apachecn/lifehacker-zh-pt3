@@ -1,6 +1,6 @@
 # 你在选举日投票所需要的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-navigate-the-polls-on-election-d-1788702933](https://lifehacker.com/everything-you-need-to-navigate-the-polls-on-election-d-1788702933)
+> 原文：<https://lifehacker.com/everything-you-need-to-navigate-the-polls-on-election-d-1788702933>
 
 我们已经发布了相当多的有用材料，为今天的历史性选举做准备，但是如果你错过了，或者在等待投票时有一点时间学习，这里有一个快速的纲要，以及一些帮助你做出明智决定的提示。
 

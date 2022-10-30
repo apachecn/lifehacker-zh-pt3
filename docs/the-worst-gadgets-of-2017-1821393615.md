@@ -1,6 +1,6 @@
 # 2017 年最差的小玩意
 
-> 原文:[https://gizmodo.com/the-worst-gadgets-of-2017-1821393615](https://gizmodo.com/the-worst-gadgets-of-2017-1821393615)
+> 原文：<https://gizmodo.com/the-worst-gadgets-of-2017-1821393615>
 
 今年是糟糕的一年，这些小玩意让情况变得更糟。有些是巨大的失望。其他人只是从一开始就考虑不周。这些是最糟糕的。
 

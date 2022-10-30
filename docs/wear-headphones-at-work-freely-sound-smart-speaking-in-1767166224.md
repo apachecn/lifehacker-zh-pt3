@@ -1,6 +1,6 @@
 # 在工作中自由地戴耳机，在公共场合说话听起来很聪明，看世界上的热狗
 
-> 原文:[https://life hacker . com/wear-headphones-at-work-freely-sound-smart-speaking-in-1767166224](https://lifehacker.com/wear-headphones-at-work-freely-sound-smart-speaking-in-1767166224)
+> 原文：<https://lifehacker.com/wear-headphones-at-work-freely-sound-smart-speaking-in-1767166224>
 
 在办公室戴上耳机，不要皱眉头，听听南北战争中最北部的陆地行动，学习如何在公共场合说话时听起来聪明，更多内容请参见 Lifehacker 的周一大脑自助活动。
 

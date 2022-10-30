@@ -1,6 +1,6 @@
 # 如何在任何设备上签署文档
 
-> 原文:[https://life hacker . com/how-to-sign-documents-on-whatever-device-you-got-1820442262](https://lifehacker.com/how-to-sign-documents-on-whatever-device-you-ve-got-1820442262)
+> 原文：<https://lifehacker.com/how-to-sign-documents-on-whatever-device-you-ve-got-1820442262>
 
 通过电子邮件签署和发送 pdf 总是一件痛苦的事情，尤其是当你认为你需要打印、签署、扫描并及时通过电子邮件回复给某人的时候。但是你没有！使用一些应用程序和内置软件，您可以节省时间和金钱，并免去寻找和打印正确的办公室打印机的痛苦。
 

@@ -1,6 +1,6 @@
 # 现在你可以和 Alexa 谈论松弛
 
-> 原文:[https://life hacker . com/now-you-can-talk-to-Alexa-over-slack-1797164787](https://lifehacker.com/now-you-can-talk-to-alexa-over-slack-1797164787)
+> 原文：<https://lifehacker.com/now-you-can-talk-to-alexa-over-slack-1797164787>
 
 Alexa 旨在与你的声音一起工作，但有时对虚拟助理大喊大叫并不完全理想。现在你可以和 Alexa 交谈，并在空闲时使用她的大部分能力。
 

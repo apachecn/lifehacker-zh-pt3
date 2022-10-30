@@ -1,6 +1,6 @@
 # 将你的闹钟设置在你想醒来的“早间版”的准确时间
 
-> 原文:[https://life hacker . com/set-your-alarm-to-exact-minute-of-morning-edition-y-1828961987](https://lifehacker.com/set-your-alarm-to-the-exact-minute-of-morning-edition-y-1828961987)
+> 原文：<https://lifehacker.com/set-your-alarm-to-the-exact-minute-of-morning-edition-y-1828961987>
 
 NPR 的*早间版*最近 [修改了他们的时钟](https://www.npr.org/sections/ombudsman/2018/08/16/639209921/morning-edition-resets-its-clock-again) ，该节目每小时的新闻广播、更长的片段、宣传片、音乐床和资金信息的逐秒时间表。新时钟于 2018 年 8 月 13 日生效，代表着自 2014 年以来*晨间版*日程安排的首次变化。最值得注意的是，它每小时播放两次新闻，而不是老模式的三次。
 

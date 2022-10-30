@@ -1,6 +1,6 @@
 # 如何坐得更好
 
-> 原文:[https://lifehacker.com/how-to-sit-better-1829305564](https://lifehacker.com/how-to-sit-better-1829305564)
+> 原文：<https://lifehacker.com/how-to-sit-better-1829305564>
 
 没有什么比过去更好了——可能包括你现在坐的椅子。据吉恩·库奇(不是双关语)(他 [举办关于瑜伽、运动和伸展的讲座](http://www.balancecenter.com/staff.htm) 和研讨会)说，虽然它们过去是根据人体形状设计的，但现在大多数椅子——无论是在办公室还是在家里的客厅里——都太软太深。
 

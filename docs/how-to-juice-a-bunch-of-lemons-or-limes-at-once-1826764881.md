@@ -1,6 +1,6 @@
 # 如何一次给一堆柠檬或酸橙榨汁
 
-> 原文:[https://life hacker . com/how-to-juice-a-bunch-of-lemons-or-limes-once-1826764881](https://lifehacker.com/how-to-juice-a-bunch-of-lemons-or-limes-at-once-1826764881)
+> 原文：<https://lifehacker.com/how-to-juice-a-bunch-of-lemons-or-limes-at-once-1826764881>
 
 无论你是将一堆酸橙 预榨成果汁作为代基里酒，还是制作一大堆 [全柠檬柠檬水](https://lifehacker.com/three-delicious-ways-to-use-the-whole-lemon-1824153342) ，所有这些压榨都会对你的双手造成伤害。当然，有一种更简单的方法，它涉及到每个人最喜欢的烘焙用具。
 

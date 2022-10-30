@@ -1,6 +1,6 @@
 # 通过检查去年的旅行趋势来避免感恩节交通堵塞
 
-> 原文:[https://life hacker . com/avoid-thanksgiving-traffic-by-checking-last-years-trave-1820439988](https://lifehacker.com/avoid-thanksgiving-traffic-by-checking-last-years-trave-1820439988)
+> 原文：<https://lifehacker.com/avoid-thanksgiving-traffic-by-checking-last-years-trave-1820439988>
 
 理论上，感恩节应该是一年中最寒冷的日子之一；你所做的就是塞住你的脸，看着电视上的小人跑过一大片绿地。可悲的是，这只是我们幻想的感恩节的一部分，而忘记了一辆接一辆、充满家庭紧张气氛的汽车去奶奶家的现实。然而，今年在互联网的帮助下，我们可以努力避免交通堵塞。
 

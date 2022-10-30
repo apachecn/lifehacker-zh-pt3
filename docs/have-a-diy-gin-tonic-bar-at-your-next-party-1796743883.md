@@ -1,6 +1,6 @@
 # 在你的下一次聚会上有一个自己动手做的杜松子酒吧
 
-> 原文:[https://life hacker . com/have-a-DIY-gin-tonic-bar-in-your ' s next-party-1796743883](https://lifehacker.com/have-a-diy-gin-tonic-bar-at-your-next-party-1796743883)
+> 原文：<https://lifehacker.com/have-a-diy-gin-tonic-bar-at-your-next-party-1796743883>
 
 有什么比在聚会上提供杜松子酒和滋补品更好的呢？喝一整杯杜松子酒和滋补品，就是这样。几周前，我去旧金山参加了一个“吃牛肉者”的活动。那里有你传统的酒吧，酒保在调制奇特的鸡尾酒。还有一个 DIY 杜松子酒&滋补酒吧。你可以向酒保要一杯加了冰和杜松子酒的，然后用桌上的各种奎宁水和装饰品来打造你自己的杯子。这个想法太有趣了，每当我有朋友来的时候，我就开始这样做…而且非常成功。
 

@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下直播奥斯卡颁奖典礼
 
-> 原文:[https://life hacker . com/how-to-stream-the-Oscars-without-cable-1823410464](https://lifehacker.com/how-to-stream-the-oscars-without-cable-1823410464)
+> 原文：<https://lifehacker.com/how-to-stream-the-oscars-without-cable-1823410464>
 
 奥斯卡颁奖典礼今晚将在美国广播公司播出。活动将于美国东部时间下午 5 点以红地毯开始，随后是晚上 8 点的正式颁奖仪式。
 

@@ -1,6 +1,6 @@
 # FDA 希望香烟失去大部分尼古丁
 
-> 原文:[https://life hacker . com/the-FDA-wants-香烟-失去大部分尼古丁-1797398495](https://lifehacker.com/the-fda-wants-cigarettes-to-lose-most-of-their-nicotine-1797398495)
+> 原文：<https://lifehacker.com/the-fda-wants-cigarettes-to-lose-most-of-their-nicotine-1797398495>
 
 周五， [FDA 专员 Scott gott lieb](https://www.fda.gov/NewsEvents/Speeches/ucm569024.htm)宣布了一些新的香烟和蒸汽法规，该机构将在未来几个月或几年内实施。最大的挑战之一是:香烟的成瘾性成分必须消失。
 

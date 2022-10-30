@@ -1,6 +1,6 @@
 # 你 Insta Feed 里的那些 Rando 品牌是什么？
 
-> 原文:[https://life hacker . com/what-than-s-rando-brands-in-your-insta-feed-1821963039](https://lifehacker.com/what-are-those-rando-brands-in-your-insta-feed-1821963039)
+> 原文：<https://lifehacker.com/what-are-those-rando-brands-in-your-insta-feed-1821963039>
 
 下次你的 Instagram 出现广告时，检查一下品牌。很有可能，这实际上是第三方经销商利用 Insta 的算法、内容营销和老式套利让你购买便宜的东西。
 

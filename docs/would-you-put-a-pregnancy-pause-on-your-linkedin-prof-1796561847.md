@@ -1,6 +1,6 @@
 # 你会在你的 LinkedIn 个人资料上写“怀孕暂停”吗？
 
-> 原文:[https://life hacker . com/would-you-put-a-inflation-pause-on-your-LinkedIn-prof-1796561847](https://lifehacker.com/would-you-put-a-pregnancy-pause-on-your-linkedin-prof-1796561847)
+> 原文：<https://lifehacker.com/would-you-put-a-pregnancy-pause-on-your-linkedin-prof-1796561847>
 
 几年前，我辞去了报社的工作，全职在家陪着我年幼的女儿。十个月后，我准备好了——非常准备好了——重返职场。所以我打开我的简历，准备把它寄给那些可能想要雇用我的人。
 

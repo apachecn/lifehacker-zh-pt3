@@ -1,6 +1,6 @@
 # 游戏商店摊牌:蒸汽与 GOG 银河
 
-> 原文:[https://life hacker . com/gaming-store-摊牌-steam-vs-Gog-galaxy-1759063636](https://lifehacker.com/gaming-store-showdown-steam-vs-gog-galaxy-1759063636)
+> 原文：<https://lifehacker.com/gaming-store-showdown-steam-vs-gog-galaxy-1759063636>
 
 在过去的十年里，Steam 或多或少地占据了 PC 游戏市场，但我们终于有了一个像样的挑战者，那就是 GOG 银河。以下是两者的对比，更重要的是，这对 PC 游戏玩家整体来说意味着什么。
 

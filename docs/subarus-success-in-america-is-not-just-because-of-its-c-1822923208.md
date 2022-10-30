@@ -1,6 +1,6 @@
 # 斯巴鲁在美国的成功不仅仅是因为它的汽车
 
-> 原文:[https://jalopnik . com/subarus-success-in-America-is-not-just-because-of-its-c-1822923208](https://jalopnik.com/subarus-success-in-america-is-not-just-because-of-its-c-1822923208)
+> 原文：<https://jalopnik.com/subarus-success-in-america-is-not-just-because-of-its-c-1822923208>
 
 今年 [是斯巴鲁在美国](https://jalopnik.com/hot-damn-weve-had-subaru-for-50-years-1822900240) 的 50 周年纪念，这是一个任何公司都会引以为豪的故事。尽管与本田和丰田等国内品牌和进口巨头相比，这家汽车制造商规模较小，但通过注重质量和一些非常聪明的营销，它已凭借破纪录的销量闯入主流市场。但是斯巴鲁真正的秘密武器可能只是它的经销商。
 

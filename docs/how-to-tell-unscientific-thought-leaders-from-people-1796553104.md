@@ -1,6 +1,6 @@
 # 如何辨别不科学的“思想领袖”和你应该信任的人
 
-> 原文:[https://life hacker . com/how-to-tell-unscientific-thought-leaders-from-people-1796553104](https://lifehacker.com/how-to-tell-unscientific-thought-leaders-from-people-1796553104)
+> 原文：<https://lifehacker.com/how-to-tell-unscientific-thought-leaders-from-people-1796553104>
 
 Daniel Drezner 在他的新书[*The Ideas Industry*](https://smile.amazon.com/Ideas-Industry-Pessimists-Transforming-Marketplace/dp/0190264608/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-tell-unscientific-thought-leaders-from-people-1796553104&asc_source=&tag=kinjalifehackerlink-20)中说，公共知识分子的世界已经被一群劣等的“思想领袖”所取代。这些思想家倾向于用抓住公众想象力的不科学的基础来推动“伟大的想法”，而不是检查世界的本来面目。例如，在他的书《离群者》中，马尔科姆·格拉德威尔让世人相信，每一项技能都需要 10000 小时的练习才能掌握，但是一项科学研究表明没有证据证明这一点。格拉德威尔的神奇数字，就像许多“伟大的想法”，诱人而有趣，但对任何实际的社会决策来说都是一个糟糕的基础。
 

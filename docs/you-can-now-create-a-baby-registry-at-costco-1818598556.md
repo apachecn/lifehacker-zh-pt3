@@ -1,6 +1,6 @@
 # 你现在可以在好市多创建一个婴儿登记处
 
-> 原文:[https://life hacker . com/you-can-now-create-a-baby-registry-at-Costco-1818598556](https://lifehacker.com/you-can-now-create-a-baby-registry-at-costco-1818598556)
+> 原文：<https://lifehacker.com/you-can-now-create-a-baby-registry-at-costco-1818598556>
 
 当然，在刺绣的新生儿连指手套和缝成鲨鱼形状的小浴袍上 *oooh* 和 *ahhh* 很有趣。但是，如果你想用你的婴儿洗澡登记实用，忘记绒毛，坚持要点。
 

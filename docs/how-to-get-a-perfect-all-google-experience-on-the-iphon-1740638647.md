@@ -1,6 +1,6 @@
 # 如何在 iPhone 上获得完美的全谷歌体验
 
-> 原文:[https://life hacker . com/how-to-get-a-perfect-all-Google-experience-on-iphon-1740638647](https://lifehacker.com/how-to-get-a-perfect-all-google-experience-on-the-iphon-1740638647)
+> 原文：<https://lifehacker.com/how-to-get-a-perfect-all-google-experience-on-the-iphon-1740638647>
 
 苹果公司制造了一个伟大的操作系统和一个可靠的手机，但他们的一些应用程序还有一点需要改进——特别是 iCloud 的灾难。我已经用谷歌应用程序取代了我所有的常用工具，即使在 iOS 上，这也是一种非常无缝的体验。
 

@@ -1,6 +1,6 @@
 # 这里有一个友好的提醒，你可以把你的车钥匙放在你的冰箱里，以保护它免受黑客攻击
 
-> 原文:[https://jalopnik . com/heres-a-friendly-reminder-that-you-put-your-car-key-1828259034](https://jalopnik.com/heres-a-friendly-reminder-that-you-can-put-your-car-key-1828259034)
+> 原文：<https://jalopnik.com/heres-a-friendly-reminder-that-you-can-put-your-car-key-1828259034>
 
 现代 [汽车技术](https://jalopnik.com/tag/car-technology) 犹如良药。它给了你一个你可能需要也可能不需要的好处，换来的是一长串副作用和“做这个之前先问问某某人。”例子: [这些来自《今日美国》的推荐](https://www.usatoday.com/story/tech/columnist/komando/2018/08/10/forget-tin-foil-put-your-keys-fridge-keep-them-safe-car-thieves/939536002/) ，说把车钥匙存放在微波炉或冰箱里，以挫败 [黑客](https://jalopnik.com/tag/car-hacking) 。
 

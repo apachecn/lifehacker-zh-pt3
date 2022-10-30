@@ -1,6 +1,6 @@
 # 2018 年 10 月 1 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-October-1829387849](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1829387849)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1829387849>
 
 本周，网飞正在热映怀旧电影——我们有*燃烧的马鞍*、*帝国唱片*、*美国往事、皮威的大冒险*和*在布朗克斯区隆隆作响*所有将于周一登陆。他们还扔给我们一堆最近的剧集 ，没有人愿意看，但当你再也无法处理该死的新闻时，它们将有效地作为“最后手段”观看:*神秘河，向前支付，萨默斯比*，*绿色英里*和*湖边小屋*都像 1 号的雾一样冲刷着你。
 

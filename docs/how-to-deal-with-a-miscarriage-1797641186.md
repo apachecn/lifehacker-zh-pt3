@@ -1,6 +1,6 @@
 # 如何应对流产
 
-> 原文:[https://life hacker . com/how-to-deal-a-流产处理-1797641186](https://lifehacker.com/how-to-deal-with-a-miscarriage-1797641186)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-miscarriage-1797641186>
 
 “对不起，没有心跳了，”我的医生对我说。她听起来并不十分抱歉，离开房间如此之快——表面上是为了让我穿上内衣——以至于她听不到我放声大哭。
 

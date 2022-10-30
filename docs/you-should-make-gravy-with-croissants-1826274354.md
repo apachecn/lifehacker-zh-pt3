@@ -1,6 +1,6 @@
 # 你应该用羊角面包做肉汁
 
-> 原文:[https://the take out . com/you-should-make-gravy-with-cross anguants-1826274354](https://thetakeout.com/you-should-make-gravy-with-croissants-1826274354)
+> 原文：<https://thetakeout.com/you-should-make-gravy-with-croissants-1826274354>
 
 不久前，当外卖员格温·伊纳特 [与芝加哥厨师斯蒂芬妮·艾扎德](https://thetakeout.com/stephanie-izard-has-tips-for-becoming-a-top-chef-at-hom-1825533458) 坐在一起时，她采访中的一段话让我难以忘怀:
 

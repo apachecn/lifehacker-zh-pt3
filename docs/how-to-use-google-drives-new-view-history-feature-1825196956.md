@@ -1,6 +1,6 @@
 # 如何使用 Google Drive 的新“查看历史”功能
 
-> 原文:[https://life hacker . com/how-to-use-Google-drives-new-view-history-feature-1825196956](https://lifehacker.com/how-to-use-google-drives-new-view-history-feature-1825196956)
+> 原文：<https://lifehacker.com/how-to-use-google-drives-new-view-history-feature-1825196956>
 
 如果你使用 [谷歌文档](https://lifehacker.com/the-best-google-docs-features-youre-probably-not-using-1570728322) (或者 [工作表](https://lifehacker.com/how-to-create-an-anonymous-collaborative-google-sheet-1821990886) 或者幻灯片)，你可能会注意到最近的一个弹出窗口，让你知道“编辑现在可以看到你查看历史。”如果没有任何背景，这个信息会有点混乱——如果你是偏执狂，甚至会令人不安——但是没什么好担心的。下面是你需要知道的关于[Google Drive](https://gsuiteupdates.googleblog.com/2018/03/docs-activity-dashboard-launch.html)的最新功能。
 

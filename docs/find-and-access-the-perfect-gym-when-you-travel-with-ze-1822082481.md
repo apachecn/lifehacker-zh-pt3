@@ -1,6 +1,6 @@
 # 当您与 Zeamo 一起旅行时，找到并进入完美的健身房
 
-> 原文:[https://life hacker . com/find-and-access-the-perfect-gym-when-you-travel-with-ze-1822082481](https://lifehacker.com/find-and-access-the-perfect-gym-when-you-travel-with-ze-1822082481)
+> 原文：<https://lifehacker.com/find-and-access-the-perfect-gym-when-you-travel-with-ze-1822082481>
 
 当你在旅行时，你的健身计划很容易受到影响。酒店健身房往往有很多不尽人意的地方，即使你的家庭健身房有“遍布全国”的位置，这些位置不可避免地不会在你实际旅行的任何地方。
 

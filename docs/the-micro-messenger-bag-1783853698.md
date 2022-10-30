@@ -1,6 +1,6 @@
 # 微型斜挎包
 
-> 原文:[https://lifehacker.com/the-micro-messenger-bag-1783853698](https://lifehacker.com/the-micro-messenger-bag-1783853698)
+> 原文：<https://lifehacker.com/the-micro-messenger-bag-1783853698>
 
 当谈到存储容量时，传统的邮差包是独一无二的，很容易与几个活页夹一起装 30 包，但多年来出现了许多更小的迭代。举个例子，每天都带着读者艾玛·莫拉莱斯的充满科技感的微型包。
 

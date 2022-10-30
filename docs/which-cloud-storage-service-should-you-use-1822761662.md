@@ -1,6 +1,6 @@
 # 你应该使用哪种云存储服务？
 
-> 原文:[https://life hacker . com/which-cloud-storage-service-should-you-use-1822761662](https://lifehacker.com/which-cloud-storage-service-should-you-use-1822761662)
+> 原文：<https://lifehacker.com/which-cloud-storage-service-should-you-use-1822761662>
 
 有邮箱地址吗？用电脑？你口袋里是智能手机吗？那你需要给自己弄点云存储。拥有一个随时可访问的最重要的照片和文件存储库，可以减少与朋友共享文件的麻烦，让您安心。
 

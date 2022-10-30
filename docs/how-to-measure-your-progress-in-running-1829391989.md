@@ -1,6 +1,6 @@
 # 如何衡量你跑步的进步
 
-> 原文:[https://life hacker . com/how-to-measure-your-progress in-running-1829391989](https://lifehacker.com/how-to-measure-your-progress-in-running-1829391989)
+> 原文：<https://lifehacker.com/how-to-measure-your-progress-in-running-1829391989>
 
 这个月即将结束，但这并不意味着你必须停止跑步。在过去一个月的 [我们的健身挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 中，我问你 [是步行还是跑步](https://lifehacker.com/this-september-lets-run-or-walk-1828699683) ，如果你接受了我的一点点建议，你已经出去几次了，可能变得更强壮更快了——即使你还没有意识到。
 

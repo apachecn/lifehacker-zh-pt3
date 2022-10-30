@@ -1,6 +1,6 @@
 # 你的信用评分可能刚刚上升
 
-> 原文:[https://life hacker . com/your-credit-score-may-have-just-up-1825966893](https://lifehacker.com/your-credit-score-may-have-just-gone-up-1825966893)
+> 原文：<https://lifehacker.com/your-credit-score-may-have-just-gone-up-1825966893>
 
 有些人可能会看到自己的信用分跃升多达 30 分， [美国消费者新闻与商业频道报道](https://www.cnbc.com/2018/05/11/credit-scores-just-got-a-boost.html) 。
 

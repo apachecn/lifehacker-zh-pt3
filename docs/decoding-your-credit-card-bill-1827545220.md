@@ -1,6 +1,6 @@
 # 解码你的信用卡账单
 
-> 原文:[https://life hacker . com/decoding-your-credit-card-bill-1827545220](https://lifehacker.com/decoding-your-credit-card-bill-1827545220)
+> 原文：<https://lifehacker.com/decoding-your-credit-card-bill-1827545220>
 
 你知道你需要按时支付你的信用卡账单，并且你不应该以保持收支平衡为目标。但是你知道你信用卡账单上的所有东西实际上意味着什么吗？
 

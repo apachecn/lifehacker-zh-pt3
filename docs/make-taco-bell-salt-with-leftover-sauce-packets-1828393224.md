@@ -1,6 +1,6 @@
 # 用剩下的酱包做塔可钟盐
 
-> 原文:[https://life hacker . com/make-taco-bell-salt-with left-sauce-packets-1828393224](https://lifehacker.com/make-taco-bell-salt-with-leftover-sauce-packets-1828393224)
+> 原文：<https://lifehacker.com/make-taco-bell-salt-with-leftover-sauce-packets-1828393224>
 
 我有一点可耻的快餐习惯，这不仅让我保持脚踏实地和谦逊，而且让我的包抽屉里只存放最好的单一服务调味品。麦当劳对他们的糖醋酱很吝啬，但塔可钟对他们的辣酱非常慷慨，我有很多。
 

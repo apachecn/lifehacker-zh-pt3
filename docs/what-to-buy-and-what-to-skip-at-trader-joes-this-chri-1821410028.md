@@ -1,6 +1,6 @@
 # 这个圣诞节在乔氏百货买什么(和跳过什么)
 
-> 原文:[https://life hacker . com/what-to-buy-and-what-skip-at-trader-joes-this-chri-1821410028](https://lifehacker.com/what-to-buy-and-what-to-skip-at-trader-joes-this-chri-1821410028)
+> 原文：<https://lifehacker.com/what-to-buy-and-what-to-skip-at-trader-joes-this-chri-1821410028>
 
 Trader Joe's 喜欢一个主题，如果真正丰富的节日商品有任何迹象的话，他们非常喜欢圣诞节。坦白地说，选择饼干、糖果和其他可食用的蜉蝣是势不可挡的，所以我们自己承担了品尝所有这些东西的责任，并让你知道哪些东西值得你花钱去品尝。
 

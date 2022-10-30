@@ -1,6 +1,6 @@
 # 如何扑灭电池火灾
 
-> 原文:[https://life hacker . com/how-to-queen-a-battery-fire-1822040010](https://lifehacker.com/how-to-extinguish-a-battery-fire-1822040010)
+> 原文：<https://lifehacker.com/how-to-extinguish-a-battery-fire-1822040010>
 
 苹果店内的一部 iPhone 发生 [爆炸，导致一些人受轻伤后，你可能会想“哦，妈的，我该如何停止我的智能手机/笔记本/](https://gizmodo.com/seven-receive-medical-attention-after-iphone-explodes-i-1821959353) [机器狗](https://gizmodo.com/sony-please-let-me-play-with-this-good-boy-1821895548) 从 [烧我的房子到](https://gizmodo.com/samsungs-exploding-smartphone-suspected-in-south-caroli-1786405495) ？”与其拼命奔跑，或者用泉水浇灭你的设备，不如遵循以下步骤来正确扑灭与电池相关的火灾(以及为什么你应该将 Pellegrino 作为最后手段)。
 

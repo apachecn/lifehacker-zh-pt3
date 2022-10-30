@@ -1,6 +1,6 @@
 # 等待左转时，该停在哪里？
 
-> 原文:[https://life hacker . com/where-the exact-right-place-to-stop when-waiting-to-1795723648](https://lifehacker.com/where-is-the-exact-right-place-to-stop-when-waiting-to-1795723648)
+> 原文：<https://lifehacker.com/where-is-the-exact-right-place-to-stop-when-waiting-to-1795723648>
 
 在我的驾驶生涯中，有一个问题困扰了我大部分时间:当你在等着向迎面而来的车流左转时，你应该把车开到十字路口多远？
 

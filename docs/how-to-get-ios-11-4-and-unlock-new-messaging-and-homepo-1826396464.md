@@ -1,6 +1,6 @@
 # 如何获得 iOS 11.4 并解锁新的消息和 HomePod 功能
 
-> 原文:[https://life hacker . com/how-to-get-IOs-11-4-and-unlock-new-messaging-and-home po-1826396464](https://lifehacker.com/how-to-get-ios-11-4-and-unlock-new-messaging-and-homepo-1826396464)
+> 原文：<https://lifehacker.com/how-to-get-ios-11-4-and-unlock-new-messaging-and-homepo-1826396464>
 
 苹果终于发布了备受期待的 iOS 11.4 公开版，该版本为移动操作系统带来了一些重大改进，包括:通过 iCloud 在设备间同步的信息，大 HomePod 扬声器的立体声配对，AirPlay 2，以及 Siri 的一系列新日历功能。
 

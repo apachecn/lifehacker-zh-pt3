@@ -1,6 +1,6 @@
 # 在 DiWHY Subreddit 上庆祝糟糕的黑客行为
 
-> 原文:[https://life hacker . com/prairie-bad-hacks-on-the-diwhy-subred dit-1827557425](https://lifehacker.com/celebrate-bad-hacks-on-the-diwhy-subreddit-1827557425)
+> 原文：<https://lifehacker.com/celebrate-bad-hacks-on-the-diwhy-subreddit-1827557425>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-k0ERi0Bt8Gk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-k0ERi0Bt8Gk&start=0) 
 

@@ -1,6 +1,6 @@
 # maillist 是专为电子邮件爱好者设计的 instapaper
 
-> 原文:[https://life hacker . com/mailist-is-instapaper-for-email-瘾君子-1828051612](https://lifehacker.com/mailist-is-instapaper-for-email-addicts-1828051612)
+> 原文：<https://lifehacker.com/mailist-is-instapaper-for-email-addicts-1828051612>
 
 我们知道不应该让电子邮件主宰我们的生活 ，但我们还是这样做了。我们把电子邮件作为待办事项清单、想法保存器、给自己发电子邮件的地方。如果这对你有用，那么这里还有一个工具:Chrome 和 Firefox 的免费 [Mailist](https://mailist.app/) 扩展收集你的未读书签，并每周一次通过电子邮件发送给你。
 

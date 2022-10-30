@@ -1,6 +1,6 @@
 # 如何告诉别人你处于一段开放的关系中
 
-> 原文:[https://life hacker . com/how-to-tell-someone-you-in-a-open-relationship-1827520370](https://lifehacker.com/how-to-tell-someone-youre-in-an-open-relationship-1827520370)
+> 原文：<https://lifehacker.com/how-to-tell-someone-youre-in-an-open-relationship-1827520370>
 
 开放的关系，伦理上的非一夫一妻制，一夫多妻制，一夫一妻制:有太多的词语可以用来告诉某人，当事情发展到这一步时，你正在和别人约会。以下是如何以尊重他们的时间和精力的方式做到这一点。
 

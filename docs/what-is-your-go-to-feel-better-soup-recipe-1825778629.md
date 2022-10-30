@@ -1,6 +1,6 @@
 # 你感觉更好的汤的配方是什么？
 
-> 原文:[https://life hacker . com/what ' s-go-to-feel-better-soup-recipe-1825778629](https://lifehacker.com/what-is-your-go-to-feel-better-soup-recipe-1825778629)
+> 原文：<https://lifehacker.com/what-is-your-go-to-feel-better-soup-recipe-1825778629>
 
 有汤，然后有汤，似乎有治愈身体和灵魂的能力。你最信任的神奇恢复食谱是什么？
 

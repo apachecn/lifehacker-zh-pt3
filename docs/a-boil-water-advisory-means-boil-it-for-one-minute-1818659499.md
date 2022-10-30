@@ -1,6 +1,6 @@
 # “烧开水的建议”是指将水煮沸一分钟
 
-> 原文:[https://life hacker . com/a-boil-water-advisory-means-boil-it-one-minute-1818659499](https://lifehacker.com/a-boil-water-advisory-means-boil-it-for-one-minute-1818659499)
+> 原文：<https://lifehacker.com/a-boil-water-advisory-means-boil-it-for-one-minute-1818659499>
 
 疾病控制和预防中心在推特上进行的一项民意调查揭示了一个关于烧水建议的误解:人们认为你需要把水煮很长时间才能杀死细菌。其实你只需要煮一分钟就可以了。
 

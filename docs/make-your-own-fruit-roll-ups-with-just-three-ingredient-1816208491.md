@@ -1,6 +1,6 @@
 # 只用三种原料制作你自己的水果卷
 
-> 原文:[https://life hacker . com/make-your-own-fruit-roll-ups-with just-three-ingredient-1816208491](https://lifehacker.com/make-your-own-fruit-roll-ups-with-just-three-ingredient-1816208491)
+> 原文：<https://lifehacker.com/make-your-own-fruit-roll-ups-with-just-three-ingredient-1816208491>
 
 在午餐盒零食交易的大游戏中，很少有东西像一个鲜艳的粉红色或者——如果你非常幸运的话——扎染水果卷那样有影响力。虽然我仍然对这种塑料糖果情有独钟，但我会犹豫是否要把它算进我的一天五块的计算中。幸运的是，你可以通过自制水果零食来获得更多的水果。
 

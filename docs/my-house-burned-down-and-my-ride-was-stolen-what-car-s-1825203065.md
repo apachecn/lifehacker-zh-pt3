@@ -1,6 +1,6 @@
 # 我的房子被烧了，我的车被偷了，我应该买什么车？
 
-> 原文:[https://jalopnik . com/my-house-burned-down-and-my-ride-what-car-s-1825203065](https://jalopnik.com/my-house-burned-down-and-my-ride-was-stolen-what-car-s-1825203065)
+> 原文：<https://jalopnik.com/my-house-burned-down-and-my-ride-was-stolen-what-car-s-1825203065>
 
 戈多经历了三重厄运。他的家被盗，他的车被偷，然后他的房子被烧毁。他已经向前看了，现在正在寻找能再次带给他快乐的东西。
 

@@ -1,6 +1,6 @@
 # 在你的训练中加入力量训练，跑得更快
 
-> 原文:[https://life hacker . com/run-fast-by-adding-strength-training-to-your-regimen-1823769216](https://lifehacker.com/run-faster-by-adding-strength-training-to-your-regimen-1823769216)
+> 原文：<https://lifehacker.com/run-faster-by-adding-strength-training-to-your-regimen-1823769216>
 
 如果你想打破你的最佳比赛时间，花时间在健身房似乎会有所帮助。Alex Hutchinson 在 [外的*报道了最近的研究*](https://www.outsideonline.com/2287841/how-strength-training-makes-you-faster) 证实进行力量训练的跑步者速度更快。
 

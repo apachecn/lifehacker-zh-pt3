@@ -1,6 +1,6 @@
 # 怀孕时要避免的另一件事:水力压裂
 
-> 原文:[https://gizmodo . com/something-else-to-avoid-when-you-re-treaty-frac king-1821264078](https://gizmodo.com/something-else-to-avoid-when-you-re-pregnant-fracking-1821264078)
+> 原文：<https://gizmodo.com/something-else-to-avoid-when-you-re-pregnant-fracking-1821264078>
 
 一项新的研究发现，出生在离水力压裂较近的地方的婴儿比出生在较远地方的婴儿出生体重轻。研究人员认为这与污染有关。
 

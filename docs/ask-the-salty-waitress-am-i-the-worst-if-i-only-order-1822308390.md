@@ -1,6 +1,6 @@
 # 问咸的女服务员:如果只点水，我是不是最差？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-am-I-the-worst-if-I-only-order-1822308390](https://thetakeout.com/ask-the-salty-waitress-am-i-the-worst-if-i-only-order-1822308390)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-am-i-the-worst-if-i-only-order-1822308390>
 
 * * *
 

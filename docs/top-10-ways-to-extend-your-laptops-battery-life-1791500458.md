@@ -1,6 +1,6 @@
 # 延长笔记本电脑电池寿命的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-extend-your-laptops-battery-life-life-life-458](https://lifehacker.com/top-10-ways-to-extend-your-laptops-battery-life-1791500458)
+> 原文：<https://lifehacker.com/top-10-ways-to-extend-your-laptops-battery-life-1791500458>
 
 当你试图把事情、做完，却找不到插头给电池充电时，没电可不是什么好事。如果你要在旅途中工作，这里有一些简单的技巧来延长你的笔记本电脑的电池寿命，无论是在紧要关头还是在你离开家之前。
 

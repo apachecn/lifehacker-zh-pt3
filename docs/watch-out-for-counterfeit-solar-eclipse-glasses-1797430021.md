@@ -1,6 +1,6 @@
 # 警惕假冒日食眼镜
 
-> 原文:[https://life hacker . com/当心假冒日蚀眼镜-1797430021](https://lifehacker.com/watch-out-for-counterfeit-solar-eclipse-glasses-1797430021)
+> 原文：<https://lifehacker.com/watch-out-for-counterfeit-solar-eclipse-glasses-1797430021>
 
 如果你已经设法避免了越来越多的宣传，8 月 21 日，一场日食将经过美国。为了保护你凝视太阳时的视力，你需要防护眼镜。当然，尽管已经有一些粗略的零售商在那里兜售仿制的日食观测装备 ，这可能不会适当地保护你的视力。来自 [Quartz](https://qz.com/1040159/solar-eclipse-glasses-for-sale-on-amazon-may-not-meet-nasa-safety-recommendations/) 的一篇帖子警告人们警惕亚马逊上那些通常不生产天文仪器的公司出售的假冒日蚀眼镜。例如，一个卖家也出售坐立不安纺纱机。(他们当然有。)
 

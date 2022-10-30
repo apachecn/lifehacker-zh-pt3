@@ -1,6 +1,6 @@
 # 在你的冰箱里创建一个儿童午餐制作站
 
-> 原文:[https://life hacker . com/create-a-kids-午餐制作站-在你的冰箱里-1828559393](https://lifehacker.com/create-a-kids-lunch-making-station-in-your-fridge-1828559393)
+> 原文：<https://lifehacker.com/create-a-kids-lunch-making-station-in-your-fridge-1828559393>
 
 根据我对爸爸妈妈的非正式调查，上学日早上最糟糕的事情就是打包学校午餐。我不知道是什么让它成为最可怕的任务——也许是土拨鼠日的性质，或者感觉你是一个人的库存电子表格，或者小哈德森不可避免的抱怨，他想要烤牛肉而不是火鸡，现在他的一天是最糟糕的。
 

@@ -1,6 +1,6 @@
 # 杏仁奶配称‘牛奶’吗？
 
-> 原文:[https://life hacker . com/does-almond-milk-worth-to-be-called-milk-1827718641](https://lifehacker.com/does-almond-milk-deserve-to-be-called-milk-1827718641)
+> 原文：<https://lifehacker.com/does-almond-milk-deserve-to-be-called-milk-1827718641>
 
 乳制品行业已经为从杏仁牛奶盒上去掉“牛奶”这个词奋斗了多年。与此同时，脱脂牛奶制造商表示，他们可以随意称呼自己的产品，这是一个言论自由问题。现在，看起来食品和药物管理局正计划站在奶牛挤奶工一边。
 

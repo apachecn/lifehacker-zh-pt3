@@ -1,6 +1,6 @@
 # 你真正喜欢的“健康”替代品是什么？
 
-> 原文:[https://life hacker . com/what-healthy-substitutions-do-you-actually-enjoy-1823895023](https://lifehacker.com/what-healthy-substitutions-do-you-actually-enjoy-1823895023)
+> 原文：<https://lifehacker.com/what-healthy-substitutions-do-you-actually-enjoy-1823895023>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周，我想谈谈你为使你的饮食更健康所做的调整，以及那些不太奏效的替代和交换。
 

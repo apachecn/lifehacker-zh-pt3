@@ -1,6 +1,6 @@
 # 请教专家:关于训狗的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-training-dogs-1791516118](https://lifehacker.com/ask-an-expert-all-about-training-dogs-1791516118)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-training-dogs-1791516118>
 
 尽管狗给我们的生活带来了快乐和友谊，但它们也给我们的生活增添了令人沮丧的混乱和破坏。从搜寻厨房垃圾到撕咬沙发，狗总能找到创造性的方法让我们的生活变得更加艰难。坐下，费多，坐下！
 

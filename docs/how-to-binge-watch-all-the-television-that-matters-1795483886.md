@@ -1,6 +1,6 @@
 # 如何狂看所有重要的电视节目
 
-> 原文:[https://life hacker . com/how-to-binge-watch-all-the-television-the-matter-1795483886](https://lifehacker.com/how-to-binge-watch-all-the-television-that-matters-1795483886)
+> 原文：<https://lifehacker.com/how-to-binge-watch-all-the-television-that-matters-1795483886>
 
 从生理上来说，不可能看完每一部好电视剧的每一集。然而，我们实际上为没有跟上我们的节目而感到内疚。“你看到*更好的叫索尔*了吗？”你的朋友问；“哦，不，对不起，我落后了几集，”你说，好像你让每个人都失望了。
 

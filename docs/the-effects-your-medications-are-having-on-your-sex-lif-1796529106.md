@@ -1,6 +1,6 @@
 # 你的药物对你的性生活的影响以及如何应对
 
-> 原文:[https://life hacker . com/the-effects-your-drugs-is-having-on-your-sex-lif-1796529106](https://lifehacker.com/the-effects-your-medications-are-having-on-your-sex-lif-1796529106)
+> 原文：<https://lifehacker.com/the-effects-your-medications-are-having-on-your-sex-lif-1796529106>
 
 你是愿意在适当的时候勃起，还是愿意在工作演示过程中不再恐慌？高潮，或者明天早上起床的能力？
 

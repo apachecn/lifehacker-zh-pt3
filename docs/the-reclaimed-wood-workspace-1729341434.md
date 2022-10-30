@@ -1,6 +1,6 @@
 # 再生木材工作空间
 
-> 原文:[https://life hacker . com/the-recreated-wood-workspace-1729341434](https://lifehacker.com/the-reclaimed-wood-workspace-1729341434)
+> 原文：<https://lifehacker.com/the-reclaimed-wood-workspace-1729341434>
 
 今天的特色工作区的墙壁排列着回收的木材，Flickr 用户 getthef.ckup 收集这些木材，干燥并打磨，油漆，涂油，并再次打磨。这些墙本身就像艺术一样。
 

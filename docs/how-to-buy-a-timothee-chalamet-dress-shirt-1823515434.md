@@ -1,6 +1,6 @@
 # 如何购买蒂莫西·柴勒梅德礼服衬衫
 
-> 原文:[https://life hacker . com/how-to-buy-a-timothey-chala met-dress-shirt-1823515434](https://lifehacker.com/how-to-buy-a-timothee-chalamet-dress-shirt-1823515434)
+> 原文：<https://lifehacker.com/how-to-buy-a-timothee-chalamet-dress-shirt-1823515434>
 
 昨晚，编剧詹姆斯·伊沃里穿着一件画有蒂莫西·柴勒梅德头像的礼服衬衫。你也可以，如果你在他的 Instagram 上留言艺术家安德鲁马涅 [，说](https://www.instagram.com/andrew.mania/) [君子](https://www.esquire.com/style/mens-fashion/a19080736/james-ivory-timothee-chalamet-face-shirt/) 。
 

@@ -1,6 +1,6 @@
 # 快速判断你的啤酒杯是否脏的方法
 
-> 原文:[https://the take out . com/how-to-instant-tell-if-your ' s beer-glass-is-dirty-1822781703](https://thetakeout.com/how-to-instantly-tell-if-your-beer-glass-is-dirty-1822781703)
+> 原文：<https://thetakeout.com/how-to-instantly-tell-if-your-beer-glass-is-dirty-1822781703>
 
 我把盘子从洗碗机里拿出来，却发现盘子边缘还粘着一小块酱料。这种情况也发生在餐馆和酒吧，只是有时当员工很忙，灯光很暗时，服务员或酒保可能会错过。那么你，可怜的顾客，最终会得到一个脏杯子。
 

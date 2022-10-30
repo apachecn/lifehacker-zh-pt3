@@ -1,6 +1,6 @@
 # 你的盆栽不需要砾石
 
-> 原文:[https://life hacker . com/your-potting-plants-dont-need-gravel-1829268983](https://lifehacker.com/your-potted-plants-dont-need-gravel-1829268983)
+> 原文：<https://lifehacker.com/your-potted-plants-dont-need-gravel-1829268983>
 
 我们都听说过把砾石放在花盆底部的建议，有些人甚至已经这样做了。但是砾石并没有以任何有意义的方式改善排水，你可能没有它会更好。
 

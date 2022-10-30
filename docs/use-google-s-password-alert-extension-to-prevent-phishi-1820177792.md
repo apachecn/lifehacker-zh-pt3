@@ -1,6 +1,6 @@
 # 使用谷歌的密码提醒扩展来防止网络钓鱼
 
-> 原文:[https://life hacker . com/use-Google-s-password-alert-extension-to-prevent-phishi-1820177792](https://lifehacker.com/use-google-s-password-alert-extension-to-prevent-phishi-1820177792)
+> 原文：<https://lifehacker.com/use-google-s-password-alert-extension-to-prevent-phishi-1820177792>
 
 网络钓鱼攻击变得越来越难以识别，在这种攻击中，骗子伪装成合法公司，诱骗您交出用户名、密码或信用卡信息等敏感信息。甚至谷歌也容易受到更复杂的攻击，从电子邮件附件到共享的谷歌文档，这些攻击无处不在。
 

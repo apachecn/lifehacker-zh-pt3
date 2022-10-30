@@ -1,6 +1,6 @@
 # 以下是 2018 年 6 月网飞的动向
 
-> 原文:[https://life hacker . com/here-s-what-s-coming-and-go-from-June-201-1826223695](https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-june-201-1826223695)
+> 原文：<https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-june-201-1826223695>
 
 *发光*又回来了！ *Glow* 将于 6 月 29 日回归！该死的。是时候重新观看第一季了，在这一季中，爱丽森·布里、马克·马龙和贝蒂·吉尔平通过头锁的语言来表达他们的感情。当你完成这些后，这里是所有新的电视节目，电影和 6 月份来网飞的单口相声专场。
 

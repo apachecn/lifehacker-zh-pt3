@@ -1,6 +1,6 @@
 # 苹果在 WWDC 宣布的一切真正重要的事情
 
-> 原文:[https://life hacker . com/everything-apple-announced-at-wwdc-that-actually-matter-1781894130](https://lifehacker.com/everything-apple-announced-at-wwdc-that-actually-matter-1781894130)
+> 原文：<https://lifehacker.com/everything-apple-announced-at-wwdc-that-actually-matter-1781894130>
 
 苹果的 WWDC 今天以惯常的主题演讲拉开帷幕，但这一次却充斥着苹果下一代操作系统的细节:iOS 10，新的 tvOS，watchOS 的更新，以及现在更名为 macOS 的 OS X。
 

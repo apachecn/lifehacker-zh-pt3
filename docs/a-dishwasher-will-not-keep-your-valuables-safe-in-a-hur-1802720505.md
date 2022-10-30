@@ -1,6 +1,6 @@
 # 在飓风中，洗碗机无法保证你贵重物品的安全
 
-> 原文:[https://life hacker . com/a-洗碗机不会保管你的贵重物品-保险箱-in-a-hur-1802720505](https://lifehacker.com/a-dishwasher-will-not-keep-your-valuables-safe-in-a-hur-1802720505)
+> 原文：<https://lifehacker.com/a-dishwasher-will-not-keep-your-valuables-safe-in-a-hur-1802720505>
 
 有很多防范飓风的建议，包括把你的贵重物品放在洗碗机里，因为洗碗机是防水的。不要这样做。
 

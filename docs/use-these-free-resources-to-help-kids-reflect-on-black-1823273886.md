@@ -1,6 +1,6 @@
 # 使用这些免费资源来帮助孩子们思考黑豹
 
-> 原文:[https://life hacker . com/use-this-free-resources-to-help-kids-reflect-on-black-1823273886](https://lifehacker.com/use-these-free-resources-to-help-kids-reflect-on-black-1823273886)
+> 原文：<https://lifehacker.com/use-these-free-resources-to-help-kids-reflect-on-black-1823273886>
 
 *黑豹，*几乎全是黑人演员，鼓舞着观众——看到 [黑人孩子看电影](https://www.huffingtonpost.com/entry/these-photos-of-black-kids-watching-black-panther-highlight-need-for-this-film_us_5a8ee853e4b005bb0fef340e) 的照片是纯粹的快乐。在教室和餐桌上，这部电影开启了关于不公正、政治和变革的对话。
 

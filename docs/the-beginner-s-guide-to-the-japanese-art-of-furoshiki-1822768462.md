@@ -1,6 +1,6 @@
 # 日本芙蓉石艺术入门指南
 
-> 原文:[https://life hacker . com/the-beginner-s-guide-to-the-Japanese-art-of-furoshiki-1822768462](https://lifehacker.com/the-beginner-s-guide-to-the-japanese-art-of-furoshiki-1822768462)
+> 原文：<https://lifehacker.com/the-beginner-s-guide-to-the-japanese-art-of-furoshiki-1822768462>
 
 当你可以用一块漂亮的布携带任何东西时，谁还需要一个破旧的塑料袋呢？走进 Furoshiki 的艺术，这是一种传统的日本包装布料，一千多年来一直用于运输和包装物品。
 

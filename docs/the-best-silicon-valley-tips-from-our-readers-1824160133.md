@@ -1,6 +1,6 @@
 # 来自我们读者的最佳硅谷建议
 
-> 原文:[https://life hacker . com/the-best-silicon-valley-tips-from-our-readers-1824160133](https://lifehacker.com/the-best-silicon-valley-tips-from-our-readers-1824160133)
+> 原文：<https://lifehacker.com/the-best-silicon-valley-tips-from-our-readers-1824160133>
 
 从本周《Hack Your City》的评论来看，如果你在硅谷感到无聊，那你就做错了。 [我们询问了你的硅谷建议](https://lifehacker.com/tell-us-your-silicon-valley-tips-1824032870) ，我们得到了一些细致的指南，列出了下湾区所有城市的餐馆、公园、博物馆等。你可以在评论的“员工”部分阅读所有最好的建议，或者只查看下面的亮点。
 

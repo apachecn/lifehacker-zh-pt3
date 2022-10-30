@@ -1,6 +1,6 @@
 # 对记者不该说的话
 
-> 原文:[https://life hacker . com/what-not-to-say-a-journalist-1820480693](https://lifehacker.com/what-not-to-say-to-a-journalist-1820480693)
+> 原文：<https://lifehacker.com/what-not-to-say-to-a-journalist-1820480693>
 
 现在每个人都有一个博客和两个播客，你不必是一个罕见的专家来回答记者的问题，或者作为嘉宾出现在节目中。与媒体交谈可能令人兴奋，但也令人害怕。如果他们错误引用你的话怎么办？如果他们暗地里想杀你怎么办？如果你无聊到他们永远取消节目怎么办？
 

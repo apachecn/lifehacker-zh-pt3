@@ -1,6 +1,6 @@
 # 为一个不那么紧张的假期做些小馅饼而不是馅饼
 
-> 原文:[https://life hacker . com/make-galette-而不是-pie-for-a-less-pressure-holida-1821232454](https://lifehacker.com/make-galette-instead-of-pie-for-a-less-stressful-holida-1821232454)
+> 原文：<https://lifehacker.com/make-galette-instead-of-pie-for-a-less-stressful-holida-1821232454>
 
 馅饼是有些人很擅长的东西之一。我没那么幸运。对于像我这样的人来说，围绕甜点有很多压力，这些人应该接受 galette。
 

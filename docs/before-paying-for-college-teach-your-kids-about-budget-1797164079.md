@@ -1,6 +1,6 @@
 # 在支付大学学费之前，教你的孩子预算
 
-> 原文:[https://life hacker . com/before-pay-for-college-teach-your-kids-about-budget-1797164079](https://lifehacker.com/before-paying-for-college-teach-your-kids-about-budget-1797164079)
+> 原文：<https://lifehacker.com/before-paying-for-college-teach-your-kids-about-budget-1797164079>
 
 当我去上大学的时候(比我愿意承认的时间更久)，我父亲和我达成了一项协议，他将支付 90%的学费和食宿费，条件是我保持 3.0 的平均绩点，不与任何男生同居，每学期开学前我们都会坐下来，讨论我的职业目标和大学毕业后的财务计划。我 18 岁时最讨厌的最后一部分，但我认为这是让我走向成功的东西，我会推荐任何支付孩子学费的人(即使你没有)去做。
 

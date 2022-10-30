@@ -1,6 +1,6 @@
 # 选择看起来像真正的家的 Airbnb
 
-> 原文:[https://life hacker . com/pick-the-Airbnb-that-looking-a-like-a-real-home-1823163772](https://lifehacker.com/pick-the-airbnb-that-looks-like-a-real-home-1823163772)
+> 原文：<https://lifehacker.com/pick-the-airbnb-that-looks-like-a-real-home-1823163772>
 
 颠覆是混乱的。这就是问题所在——一家企业重新思考其行业的规则，迫使每个人都去争夺和重组，包括顾客。现在你的每一次购买都变成了在两种经济之间的选择。在亚马逊上购买你所有的书，你当地的书店可能会消失；无缝订购——什么！？— [你当地的餐馆可能会被归入](https://skillet.lifehacker.com/pick-up-the-damn-phone-to-order-your-food-1823004828) 。租一个 Airbnb，是的，你提高了人们的租金。但是，《大西洋月刊》的德里克·汤普森说，的[只有一点点](https://www.theatlantic.com/business/archive/2018/02/airbnb-hotels-disruption/553556/)的。
 

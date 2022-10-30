@@ -1,6 +1,6 @@
 # 现在有一款专为儿童设计的 Alexa
 
-> 原文:[https://life hacker . com/theres-now-an-Alexa-just-for-kids-1825543919](https://lifehacker.com/theres-now-an-alexa-just-for-kids-1825543919)
+> 原文：<https://lifehacker.com/theres-now-an-alexa-just-for-kids-1825543919>
 
 孩子们现在可以要求 Alexa 在他们自己的设备上给他们讲一个敲门笑话。今天，亚马逊推出了其无处不在的智能音箱的儿童友好版本。[Echo Dot 儿童版](https://www.amazon.com/dp/B077JFK5YH/ref=ods_surl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/theres-now-an-alexa-just-for-kids-1825543919&asc_source=&tag=kinjalifehackerlink-20) ，售价 79.99 美元，可预购，5 月 9 日开始发货。
 

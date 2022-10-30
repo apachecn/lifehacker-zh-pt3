@@ -1,6 +1,6 @@
 # 如何和你的孩子玩堡垒之夜
 
-> 原文:[https://life hacker . com/how-to-play-fort nine-with-your-kids-1828171809](https://lifehacker.com/how-to-play-fortnite-with-your-kids-1828171809)
+> 原文：<https://lifehacker.com/how-to-play-fortnite-with-your-kids-1828171809>
 
 堡垒之夜。你的孩子不会停止玩它，你受够了。你是做什么的？你可以加入众多家长支持团体中的一个，或者将 [制作成一部滑稽的音乐剧来发泄你的不满](https://www.youtube.com/watch?time_continue=185&v=wg9D4IKKdu8) ，或者试着将游戏控制台锁在车里并藏起钥匙(是的，这真的在发生)。
 

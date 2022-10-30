@@ -1,6 +1,6 @@
 # iPhone 的最佳视频播放器
 
-> 原文:[https://life hacker . com/the-best-video-player-for-iphone-5822944](https://lifehacker.com/the-best-video-player-for-iphone-5822944)
+> 原文：<https://lifehacker.com/the-best-video-player-for-iphone-5822944>
 
 很久以前，苹果让第三方开发者很难为 iPhone 做出一个好的媒体播放器。谢天谢地，多年来他们已经放松了限制，现在你可以用 PlayerXtreme 得到一个真正可靠的视频播放器。
 

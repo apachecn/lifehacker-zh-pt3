@@ -1,6 +1,6 @@
 # 如何掌握 Microsoft Office Outlook
 
-> 原文:[https://life hacker . com/how-to-master-Microsoft-office-outlook-1768228239](https://lifehacker.com/how-to-master-microsoft-office-outlook-1768228239)
+> 原文：<https://lifehacker.com/how-to-master-microsoft-office-outlook-1768228239>
 
 Microsoft Outlook 是大多数办公室中事实上的电子邮件和日历客户端，它还可以帮助管理您的任务和笔记。除了单击发送和接收，您还可以做许多事情来改进 Outlook 工作流程，例如共享日历、自动过滤电子邮件等等。
 

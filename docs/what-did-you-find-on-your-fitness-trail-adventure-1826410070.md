@@ -1,6 +1,6 @@
 # 你在健身路径探险中发现了什么？
 
-> 原文:[https://life hacker . com/what-do-you-found-on-your-fitness-trail-adventure-1826410070](https://lifehacker.com/what-did-you-find-on-your-fitness-trail-adventure-1826410070)
+> 原文：<https://lifehacker.com/what-did-you-find-on-your-fitness-trail-adventure-1826410070>
 
 自从我们开始挑战 [在你附近的公园寻找健身路径、高尔夫球场或户外锻炼设备](https://lifehacker.com/find-a-fitness-trail-and-exercise-like-its-1992-1825718545) 以来，已经一个月了。在我的公园里的那个是一个很好的全身锻炼，我每周都在跑。你发现了什么？
 

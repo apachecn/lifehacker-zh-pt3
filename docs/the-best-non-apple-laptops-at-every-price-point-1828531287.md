@@ -1,6 +1,6 @@
 # 各价位最好的非苹果笔记本电脑
 
-> 原文:[https://life hacker . com/the-best-non-apple-laptops-at-every-price-point-1828531287](https://lifehacker.com/the-best-non-apple-laptops-at-every-price-point-1828531287)
+> 原文：<https://lifehacker.com/the-best-non-apple-laptops-at-every-price-point-1828531287>
 
 如果说过去十年我从给朋友的科技购买建议中学到了什么的话，那就是不是每个人都愿意为苹果产品支付溢价——尤其是笔记本电脑。该公司纤薄的铝技术确实有能力，但 MacBook Air 的起价对普通人来说仍然太高。不是每个人都能花一千多美元买一套新的装备。
 

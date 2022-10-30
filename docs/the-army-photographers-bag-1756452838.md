@@ -1,6 +1,6 @@
 # 军队摄影师的包
 
-> 原文:[https://life hacker . com/the-army-photos-bag-1756452838](https://lifehacker.com/the-army-photographers-bag-1756452838)
+> 原文：<https://lifehacker.com/the-army-photographers-bag-1756452838>
 
 我们大多数人都可以不假思索地拿起相机出发去冒险。《每日电讯报》的读者蒂莫西·琼斯可没有那份闲心给目前驻扎在文莱的英军当摄影师。这是他为旅途带来的东西。
 

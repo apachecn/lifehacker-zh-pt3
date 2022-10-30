@@ -1,6 +1,6 @@
 # 谷歌正在休斯顿免费修理 Pixel 手机
 
-> 原文:[https://life hacker . com/Google-is-fixing-pixel-phones-in-Houston-for-free-1803133647](https://lifehacker.com/google-is-fixing-pixel-phones-in-houston-for-free-1803133647)
+> 原文：<https://lifehacker.com/google-is-fixing-pixel-phones-in-houston-for-free-1803133647>
 
 谷歌正在与一家电子维修公司合作，以帮助受飓风哈维破坏影响的像素所有者，为谷歌品牌的智能手机提供免费维修。
 

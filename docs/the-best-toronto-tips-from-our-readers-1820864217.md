@@ -1,6 +1,6 @@
 # 来自我们读者的最佳多伦多贴士
 
-> 原文:[https://life hacker . com/the-best-Toronto-tips-from-our-readers-1820864217](https://lifehacker.com/the-best-toronto-tips-from-our-readers-1820864217)
+> 原文：<https://lifehacker.com/the-best-toronto-tips-from-our-readers-1820864217>
 
 当 30 Rock 把多伦多称为“没有一切的纽约”时，确实如此...老实说，这很有趣。但多伦多也有资本！你只需要把上面的冰刮掉。 [我们向 Lifehacker 的读者询问了他们在多伦多的最佳建议](https://lifehacker.com/tell-us-your-best-toronto-tips-1820685277#_ga=2.178497828.1427767434.1512053753-1297080755.1497980211) ，他们给出了几十个很棒的答案。重点如下。
 

@@ -1,6 +1,6 @@
 # 如何清洁洗衣机和烘干机的内部
 
-> 原文:[https://life hacker . com/how-to-clean-the-inside-your ' s washer and-dryer-1822495869](https://lifehacker.com/how-to-clean-the-inside-of-your-washer-and-dryer-1822495869)
+> 原文：<https://lifehacker.com/how-to-clean-the-inside-of-your-washer-and-dryer-1822495869>
 
 这个周末，*《华盛顿邮报》* [刊登了一篇文章](https://www.washingtonpost.com/lifestyle/home/10-things-in-your-home-you-never-clean--but-should/2018/01/23/676e2c44-f0a3-11e7-b3bf-ab90a706e175_story.html?utm_term=.74560a39b36e) 列出了你家里十件你可能不会打扫，但应该打扫的东西。
 

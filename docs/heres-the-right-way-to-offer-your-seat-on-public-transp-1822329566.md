@@ -1,6 +1,6 @@
 # 这是在公共交通工具上让座的正确方法
 
-> 原文:[https://life hacker . com/heres-the-right-way-to-proving your-seat-on-public-transp-1822329566](https://lifehacker.com/heres-the-right-way-to-offer-your-seat-on-public-transp-1822329566)
+> 原文：<https://lifehacker.com/heres-the-right-way-to-offer-your-seat-on-public-transp-1822329566>
 
 在公共交通工具上给需要的人让座应该是一个简单、容易的举动。然而。几乎我们所有人都见过一个疲惫不堪、身怀六甲的女人站在满是舒适乘客的火车上，无人理睬；一个根本没有怀孕的女人被主动邀请坐下而感到羞辱；一位老人在与沉重的购物袋搏斗时被迫站着...残酷的侮辱不胜枚举。
 

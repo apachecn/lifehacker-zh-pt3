@@ -1,6 +1,6 @@
 # 如何追踪自制食物中的卡路里和宏量
 
-> 原文:[https://life hacker . com/how-to-track-卡路里和宏-自制餐-1809061636](https://lifehacker.com/how-to-track-calories-and-macros-in-homemade-meals-1809061636)
+> 原文：<https://lifehacker.com/how-to-track-calories-and-macros-in-homemade-meals-1809061636>
 
 如果你曾经尝试过食物跟踪，你可能知道跟踪一罐鸡肉面汤或一盒巧克力饼干中的卡路里和营养宏非常容易——信息就在包装上，并且经常预装在 Fitbit 和 MyFitnessPal 等应用程序中——但跟踪你在家里制作的汤和饼干中的卡路里和宏要困难得多。
 

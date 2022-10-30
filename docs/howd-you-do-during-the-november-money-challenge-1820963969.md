@@ -1,6 +1,6 @@
 # 你在 11 月的金钱挑战中表现如何？
 
-> 原文:[https://life hacker . com/howd-you-do-in-11 月金钱挑战-1820963969](https://lifehacker.com/howd-you-do-during-the-november-money-challenge-1820963969)
+> 原文：<https://lifehacker.com/howd-you-do-during-the-november-money-challenge-1820963969>
 
 是的，是时候迎接我们今年最后的挑战了！11 月，我们邀请你参加 [用储蓄奖励自己](https://twocents.lifehacker.com/november-s-money-challenge-reward-yourself-with-savin-1819991816#_ga=2.39456679.584581957.1512350991-1842703676.1512350991) ，这涉及到每次你朝着个人目标努力时都要储蓄。你成功了吗？
 

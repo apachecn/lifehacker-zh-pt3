@@ -1,6 +1,6 @@
 # 为什么你不应该在你的 Android 上安装堡垒之夜 APKs
 
-> 原文:[https://life hacker . com/why-you-should-install-fort nite-apks-on-your-Android-1828234742](https://lifehacker.com/why-you-shouldnt-install-fortnite-apks-on-your-android-1828234742)
+> 原文：<https://lifehacker.com/why-you-shouldnt-install-fortnite-apks-on-your-android-1828234742>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-SshgEhjiHyw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-SshgEhjiHyw&start=0) 
 

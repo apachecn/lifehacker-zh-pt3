@@ -1,6 +1,6 @@
 # 蒸汽组帮助球员预防腕管
 
-> 原文:[https://kotaku . com/steam-group-helps-players-prevent-carpal-tunnel-1793388430](https://kotaku.com/steam-group-helps-players-prevent-carpal-tunnel-1793388430)
+> 原文：<https://kotaku.com/steam-group-helps-players-prevent-carpal-tunnel-1793388430>
 
 电脑游戏可以带来各种积极的好处:改善空间推理、社区意识、最好的视频游戏(不要@我)等等。它们也能摧毁你该死的手腕。
 

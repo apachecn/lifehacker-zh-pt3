@@ -1,6 +1,6 @@
 # 如何用树莓派构建自己的亚马逊 Echo
 
-> 原文:[https://life hacker . com/how-to-build-your-own-Amazon-echo-a-raspberry-pi-1787726931](https://lifehacker.com/how-to-build-your-own-amazon-echo-with-a-raspberry-pi-1787726931)
+> 原文：<https://lifehacker.com/how-to-build-your-own-amazon-echo-with-a-raspberry-pi-1787726931>
 
 亚马逊的放在家里很有用。它可以播放播客，做提醒和笔记，告诉你通勤的长度，甚至控制你家里的其他电器。但价格从 50 美元到 150 美元不等，如果你不确定是否会使用它，这是一个昂贵的提议。不过好消息是，你可以用树莓派做一个全功能的。
 

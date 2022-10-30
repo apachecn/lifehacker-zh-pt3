@@ -1,6 +1,6 @@
 # 你在厨房使用什么非厨房工具？
 
-> 原文:[https://life hacker . com/what-non-kitchen-tool-do-you-use-in-the-kitchen-1824096007](https://lifehacker.com/what-non-kitchen-tool-do-you-use-in-the-kitchen-1824096007)
+> 原文：<https://lifehacker.com/what-non-kitchen-tool-do-you-use-in-the-kitchen-1824096007>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周我想谈谈那些技术上不属于厨房，但仍有烹饪用途的工具。
 

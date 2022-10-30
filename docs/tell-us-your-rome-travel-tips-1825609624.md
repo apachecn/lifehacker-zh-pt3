@@ -1,6 +1,6 @@
 # 告诉我们你的罗马旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Rome-travel-tips-1825609624](https://lifehacker.com/tell-us-your-rome-travel-tips-1825609624)
+> 原文：<https://lifehacker.com/tell-us-your-rome-travel-tips-1825609624>
 
 小贴士:事实上有很多路并不通向罗马。如果你要去罗马，请不要一开始就沿着伦巴第大街走，然后期望最终到达目的地。这是一个神话。
 

@@ -1,6 +1,6 @@
 # 把你的智能家居音箱变成白噪音机器
 
-> 原文:[https://life hacker . com/turn-your-smart-home-speaker-into-a-white-noise-machine-1822736867](https://lifehacker.com/turn-your-smart-home-speaker-into-a-white-noise-machine-1822736867)
+> 原文：<https://lifehacker.com/turn-your-smart-home-speaker-into-a-white-noise-machine-1822736867>
 
 无论你是想专注于工作还是想哄自己入睡， [白噪声](https://lifehacker.com/ambient-noise-showdown-noisli-vs-white-noise-vs-rain-1783034698) 都是你可以使用的有用工具。现在 [智能声控音箱](https://lifehacker.com/dont-rely-on-your-smart-speaker-as-your-only-alarm-cloc-1822238074) 已经侵入我们的家庭，播放合适的一点 [环境音](https://lifehacker.com/whats-your-favorite-ambient-noise-app-1782695025) 比以往任何时候都要容易。
 

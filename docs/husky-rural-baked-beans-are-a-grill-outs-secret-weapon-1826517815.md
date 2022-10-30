@@ -1,6 +1,6 @@
 # 哈士奇乡村烘豆是烧烤的秘密武器
 
-> 原文:[https://the take out . com/husky-rural-baked-beans-are-a-grill-out-secret-weapon-1826517815](https://thetakeout.com/husky-rural-baked-beans-are-a-grill-outs-secret-weapon-1826517815)
+> 原文：<https://thetakeout.com/husky-rural-baked-beans-are-a-grill-outs-secret-weapon-1826517815>
 
 我的祖母擅长我亲切地称之为哈士奇的乡村美食。一个来自南达科他州的威斯康辛州西北部的农场女孩，她擅长为许多人准备的菜肴——鸡肉派、种植园火腿和用 13 x 9 英寸蛋糕盘准备的苹果派。为了让满屋的亲戚开心(没有美食家)，她靠在一个简单的菜肴组合上(这是一种礼貌的说法，表示我们反复吃同样的食物)。
 

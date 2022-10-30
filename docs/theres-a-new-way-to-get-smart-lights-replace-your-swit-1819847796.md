@@ -1,6 +1,6 @@
 # 有一种不同的方式来获得智能灯:更换你的开关，而不是你的灯泡
 
-> 原文:[https://gizmodo . com/theres-a-new-way-to-get-smart-lights-replace-your-swit-1819847796](https://gizmodo.com/theres-a-new-way-to-get-smart-lights-replace-your-swit-1819847796)
+> 原文：<https://gizmodo.com/theres-a-new-way-to-get-smart-lights-replace-your-swit-1819847796>
 
 智能家居终于有了足够的改进，拥有一个能满足你每一个愿望和命令的家几乎触手可及。问题是，除非你是好莱坞电影明星或石油大亨的后代，否则重新装修房子的成本太高，不可能一次性完成，这意味着你需要一点一点地解决问题。在你能做出的所有智能改进中，智能照明可能是你能做出的最佳升级之一。
 

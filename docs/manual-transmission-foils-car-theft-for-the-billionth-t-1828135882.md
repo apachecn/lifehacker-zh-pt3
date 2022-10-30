@@ -1,6 +1,6 @@
 # 手动变速器第十亿次阻止汽车盗窃
 
-> 原文:[https://jalopnik . com/manual-transmission-foils-car-theft-for-the-billion-t-1828135882](https://jalopnik.com/manual-transmission-foils-car-theft-for-the-billionth-t-1828135882)
+> 原文：<https://jalopnik.com/manual-transmission-foils-car-theft-for-the-billionth-t-1828135882>
 
 纳什维尔警方上周三逮捕了两名青少年，此前该部门的一份新闻稿称，他们当天试图劫车两名女性。该声明称，这两名青少年最终两次都失败了，第二次是因为汽车有手动变速器。他们不得不步行逃跑。
 

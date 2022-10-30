@@ -1,6 +1,6 @@
 # 如何防止你的设备的 led 灯在晚上让你抓狂
 
-> 原文:[https://life hacker . com/how-to-keep-your-devices-LEDs-from-driving-you-crazy-a-1829528783](https://lifehacker.com/how-to-keep-your-devices-leds-from-driving-you-crazy-a-1829528783)
+> 原文：<https://lifehacker.com/how-to-keep-your-devices-leds-from-driving-you-crazy-a-1829528783>
 
 你不讨厌你拥有的每件科技产品都兼作夜灯吗？即使你努力避免在床上使用手机和笔记本电脑 ，你房间里的各种小玩意仍然会因为它们愚蠢的亮状态灯而妨碍你睡觉。
 

@@ -1,6 +1,6 @@
 # 不喜欢龙与地下城的人可以玩角色扮演游戏
 
-> 原文:[https://life hacker . com/role-playing-games-for-people-that-like-dungons-1824267470](https://lifehacker.com/role-playing-games-for-people-who-don-t-like-dungeons-1824267470)
+> 原文：<https://lifehacker.com/role-playing-games-for-people-who-don-t-like-dungeons-1824267470>
 
 如果你曾经试图进入桌面角色扮演游戏——就是那种你坐在角色表前，描述你的行为和掷骰子的游戏——那很可能是通过《龙与地下城》。如果你厌倦了中世纪的幻想，或者你不关心打怪物，或者你讨厌在不同的图表上查找统计数据，你可能会想“我想我不喜欢 RPG。”很遗憾，因为还有成千上万的其他 RPG。
 

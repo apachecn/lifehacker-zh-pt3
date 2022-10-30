@@ -1,6 +1,6 @@
 # 黑客感染了 CCleaner 的 32 位应用——以下是修复方法
 
-> 原文:[https://life hacker . com/ccleaner-s-32-bit-app-was-infected-here-s-how-to-fix-it-1818509210](https://lifehacker.com/ccleaner-s-32-bit-app-was-infected-here-s-how-to-fix-it-1818509210)
+> 原文：<https://lifehacker.com/ccleaner-s-32-bit-app-was-infected-here-s-how-to-fix-it-1818509210>
 
 今天早上，PC 维护工具 CCleaner 的开发商 Piriform 宣布，它被黑客攻破，估计有 200 万用户感染了恶意软件。Prifirom 说事件已经解决，但是鼓励用户更新软件 以防止进一步的危害。
 

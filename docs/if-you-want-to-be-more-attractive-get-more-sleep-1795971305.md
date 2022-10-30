@@ -1,6 +1,6 @@
 # 如果你想变得更有魅力，就要多睡觉
 
-> 原文:[https://life hacker . com/if-you-want-to-be-more-attracted-get-more-sleep-1795971305](https://lifehacker.com/if-you-want-to-be-more-attractive-get-more-sleep-1795971305)
+> 原文：<https://lifehacker.com/if-you-want-to-be-more-attractive-get-more-sleep-1795971305>
 
 昨晚我熬夜看《办公室》的老剧集。我现在后悔那个决定，不是因为我认为德怀特不应该用那些雪球打吉姆，而是因为根据皇家开放科学学会 5 月份的一份报告，我看起来疲惫的脸确实让其他人看起来我生病了。还好我讨厌和人说话。
 

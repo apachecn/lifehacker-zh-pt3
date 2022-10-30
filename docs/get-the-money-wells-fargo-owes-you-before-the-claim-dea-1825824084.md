@@ -1,6 +1,6 @@
 # 在索赔截止日期前拿到富国银行欠你的钱
 
-> 原文:[https://life hacker . com/get-the-money-wells-Fargo-owes-you-before-the-claim-DEA-1825824084](https://lifehacker.com/get-the-money-wells-fargo-owes-you-before-the-claim-dea-1825824084)
+> 原文：<https://lifehacker.com/get-the-money-wells-fargo-owes-you-before-the-claim-dea-1825824084>
 
 你可能还记得，银行业巨头富国银行在 2016 年卷入了一起欺诈丑闻，导致价值近 1.5 亿美元的集体诉讼和解。
 

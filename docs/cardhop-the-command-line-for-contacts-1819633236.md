@@ -1,6 +1,6 @@
 # carshop 给你一个联系人的命令行
 
-> 原文:[https://life hacker . com/card hop-the-command-line-for-contacts-1819633236](https://lifehacker.com/cardhop-the-command-line-for-contacts-1819633236)
+> 原文：<https://lifehacker.com/cardhop-the-command-line-for-contacts-1819633236>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-DIVWcce3P1M&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-DIVWcce3P1M&start=0) 
 

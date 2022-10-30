@@ -1,6 +1,6 @@
 # 经过一周的政治攻击，LGBTQ 权利会发生什么
 
-> 原文:[https://life hacker . com/what-pose-to-lgbtq-rights-after-a week-of-polit-1797311310](https://lifehacker.com/what-could-happen-to-lgbtq-rights-after-a-week-of-polit-1797311310)
+> 原文：<https://lifehacker.com/what-could-happen-to-lgbtq-rights-after-a-week-of-polit-1797311310>
 
 今年早些时候，北卡罗来纳州的大会 [部分废除了 HB2](https://www.nytimes.com/2017/03/30/us/north-carolina-senate-acts-to-repeal-restrictive-bathroom-law.html) ，即所谓的“浴室法案”，该法案限制北卡罗来纳州的城市制定当地的反歧视法律，并要求跨性别者使用与其出生证明上的性别对应的浴室。从那以后，许多其他地方、州和国家法律 [剥夺跨性别者](http://www.transequality.org/action-center#North%20Carolina) 的权利被通过(包括 21 个州)。
 

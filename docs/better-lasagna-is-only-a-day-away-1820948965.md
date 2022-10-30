@@ -1,6 +1,6 @@
 # 更好的千层面只有一天了
 
-> 原文:[https://life hacker . com/better-lasagna-is-only-a-day-away-1820948965](https://lifehacker.com/better-lasagna-is-only-a-day-away-1820948965)
+> 原文：<https://lifehacker.com/better-lasagna-is-only-a-day-away-1820948965>
 
 我不记得餐桌上没有千层面的圣诞晚餐。这在很大程度上是因为稀稀拉拉的酱料中漂浮着意大利面和奶酪，但这也是因为*总是*在那里(当然，搭配着烤过头的排骨)。那顿饭，许多家庭的最后一顿大餐，应该得到更好的。
 

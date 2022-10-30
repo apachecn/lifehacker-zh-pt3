@@ -1,6 +1,6 @@
 # 转基因标签不会让你的食物更安全
 
-> 原文:[https://life hacker . com/GMO-labels-wot-make-your-food-safer-1768917595](https://lifehacker.com/gmo-labels-wont-make-your-food-safer-1768917595)
+> 原文：<https://lifehacker.com/gmo-labels-wont-make-your-food-safer-1768917595>
 
 很快你就会在许多食品包装上的小字里看到“部分用基因工程生产”的字样。激进组织已经花费了数百万美元来争取那份小小的文本，食品公司也花费了数百万美元来反击。这些努力都和你的健康无关。
 

@@ -1,6 +1,6 @@
 # 旅行时如何将行李存放几个小时
 
-> 原文:[https://life hacker . com/how-to-stash 你的行李几个小时当-tr-1823620766](https://lifehacker.com/how-to-stash-your-luggage-for-a-couple-of-hours-when-tr-1823620766)
+> 原文：<https://lifehacker.com/how-to-stash-your-luggage-for-a-couple-of-hours-when-tr-1823620766>
 
 你刚刚抵达旅行目的地，但 Airbnb 几个小时后才可用。怎么办？你可以开始探索这座城市，但没有什么比拖着沉重的行李更能破坏这种令人兴奋的体验了。
 

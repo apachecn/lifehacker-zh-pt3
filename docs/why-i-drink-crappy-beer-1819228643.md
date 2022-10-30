@@ -1,6 +1,6 @@
 # 为什么我喝“蹩脚”啤酒
 
-> 原文:[https://lifehacker.com/why-i-drink-crappy-beer-1819228643](https://lifehacker.com/why-i-drink-crappy-beer-1819228643)
+> 原文：<https://lifehacker.com/why-i-drink-crappy-beer-1819228643>
 
 我喜欢各种各样的啤酒，但如果你打开我的冰箱，你会发现大多数冷激活罐的库尔斯轻。为什么？因为现在*正好* *晴*。没错，是我说的。
 

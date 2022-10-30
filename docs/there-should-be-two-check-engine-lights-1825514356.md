@@ -1,6 +1,6 @@
 # 应该有两个检查发动机灯
 
-> 原文:[https://jalopnik . com/there-should-be-two-check-engine-lights-1825514356](https://jalopnik.com/there-should-be-two-check-engine-lights-1825514356)
+> 原文：<https://jalopnik.com/there-should-be-two-check-engine-lights-1825514356>
 
 我刚刚得到我的 2002 年雷克萨斯 IS300 跑车 ，才开了几天。它从南卡罗莱纳州飞到了 800 英里以外，在纽约周围又飞了几十英里，都没有出现任何问题。然后，当我坐着等着接拉斐尔或洛夫去旅行时，检查引擎的灯亮了。“废话，”我记得我对自己喊道。
 

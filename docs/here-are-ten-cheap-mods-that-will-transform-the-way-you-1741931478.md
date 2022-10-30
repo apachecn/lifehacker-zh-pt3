@@ -1,6 +1,6 @@
 # 这里有 10 款便宜的改装汽车，它们将改变你的汽车驾驶方式
 
-> 原文:[https://jalopnik . com/here-are-ten-cheap-MODS-the-will-transform-the-way-you-1741931478](https://jalopnik.com/here-are-ten-cheap-mods-that-will-transform-the-way-you-1741931478)
+> 原文：<https://jalopnik.com/here-are-ten-cheap-mods-that-will-transform-the-way-you-1741931478>
 
 除非你在 SEMA 外面翻垃圾箱，或者你的叔叔是 Stacey David，否则你可能没有无限的资源来进行汽车改装。谢天谢地，你友好的邻居 Tavarish 在这里帮助你节俭的改装者使你的车真正值得作废的保修。
 

@@ -1,6 +1,6 @@
 # 如何试驾宝宝名字
 
-> 原文:[https://life hacker . com/how-to-test-drive-your-baby-name-1822382119](https://lifehacker.com/how-to-test-drive-your-baby-name-1822382119)
+> 原文：<https://lifehacker.com/how-to-test-drive-your-baby-name-1822382119>
 
 所以你为你的新宝宝想了一个完美的名字。太好了。现在是时候试驾了。这里有 12 个测试，确保你不会带着深深的遗憾结束。
 

@@ -1,6 +1,6 @@
 # 你可以通过击败这个新的视频游戏赢得一枚比特币
 
-> 原文:[https://life hacker . com/you-could-win-a-bit coin-beating-this-new-video-game-1823045299](https://lifehacker.com/you-could-win-a-bitcoin-by-beating-this-new-video-game-1823045299)
+> 原文：<https://lifehacker.com/you-could-win-a-bitcoin-by-beating-this-new-video-game-1823045299>
 
 如果你希望能回到过去，花几块钱买一枚比特币，现在你的机会来了——算是吧。一款新的视频游戏(由 [主板](https://motherboard.vice.com/en_us/article/bj578v/montecrypto-steam-bitcoin-puzzle-game) 发现)为玩家提供了赢得一枚比特币(目前价值略高于 1 万美元)的机会。你所要做的就是在 Steam 上以 1.99 美元的价格购买游戏，成为第一个击败它的人。
 

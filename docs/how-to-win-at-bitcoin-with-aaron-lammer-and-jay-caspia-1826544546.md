@@ -1,6 +1,6 @@
 # 如何赢得比特币，艾伦·拉默和杰伊·凯斯宾·康
 
-> 原文:[https://life hacker . com/how-to-win-at-bit coin-with-aaron-lammer-and-Jay-caspia-1826544546](https://lifehacker.com/how-to-win-at-bitcoin-with-aaron-lammer-and-jay-caspia-1826544546)
+> 原文：<https://lifehacker.com/how-to-win-at-bitcoin-with-aaron-lammer-and-jay-caspia-1826544546>
 
 本周我们的嘉宾是 [币谈](https://medium.com/s/cointalk) 的主持人，这是一个关于比特币、加密货币和区块链的播客。记者亚伦·拉默和杰伊·凯斯宾·康向我们讲述了他们的节目，他们自己的冒险交易密码，以及由 ico、骗子和投机者组成的怪异文化，亚伦称之为“硬币世界”
 

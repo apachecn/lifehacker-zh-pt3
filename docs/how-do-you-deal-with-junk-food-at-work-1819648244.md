@@ -1,6 +1,6 @@
 # 如何处理工作中的垃圾食品
 
-> 原文:[https://life hacker . com/how-do-you-deal-with-junk-food-in-work-1819648244](https://lifehacker.com/how-do-you-deal-with-junk-food-at-work-1819648244)
+> 原文：<https://lifehacker.com/how-do-you-deal-with-junk-food-at-work-1819648244>
 
 [我们问了](https://vitals.lifehacker.com/how-do-you-eat-healthy-when-your-work-surrounds-you-wit-1819557700) ，你送来了——你如何在垃圾食品附近工作而不大吃大喝？从带一顿合理的午餐到养成奇怪的习惯，以下是对你有效的策略。
 

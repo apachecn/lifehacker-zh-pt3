@@ -1,6 +1,6 @@
 # 如何在假期赚些外快
 
-> 原文:[https://life hacker . com/how-to-make-some-extra-cash over-the-holidays-1820247099](https://lifehacker.com/how-to-make-some-extra-cash-over-the-holidays-1820247099)
+> 原文：<https://lifehacker.com/how-to-make-some-extra-cash-over-the-holidays-1820247099>
 
 从 11 月到 1 月这段时间是如此喜庆，如此欢快——也如此昂贵。有给家人和朋友的礼物，参加晚宴和聚会的新衣服，为自己的聚会准备的酒和食物，机票或汽油，节日贺卡...这样的例子不胜枚举。至少在我家，1 月下旬的信贷账单总是带来令人惊恐的清算，并承诺明年会做得更好。
 

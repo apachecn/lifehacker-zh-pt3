@@ -1,6 +1,6 @@
 # 使用谷歌地图查找您所在地区的骄傲事件
 
-> 原文:[https://life hacker . com/find-pride-events-in-your-area-with-Google-maps-1796144194](https://lifehacker.com/find-pride-events-in-your-area-with-google-maps-1796144194)
+> 原文：<https://lifehacker.com/find-pride-events-in-your-area-with-google-maps-1796144194>
 
 骄傲月 [正在如火如荼地进行](http://www.gaypridecalendar.com/june) ，谷歌地图让你更容易发现当地的骄傲活动，或者在这些活动中导航。
 

@@ -1,6 +1,6 @@
 # 事实上，食盐规则
 
-> 原文:[https://lifehacker.com/actually-table-salt-rules-1825339548](https://lifehacker.com/actually-table-salt-rules-1825339548)
+> 原文：<https://lifehacker.com/actually-table-salt-rules-1825339548>
 
 多年来，我礼貌地拒绝在我的餐具室里存放普通的食盐。在相信真正的厨师使用犹太盐的激励下——我也渴望成为一名厨师——我尽职尽责地买了一盒又一盒莫顿，煞费苦心地反复检查食谱，以确保我添加的是“莫顿量”，而不是“钻石晶体量”
 

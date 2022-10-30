@@ -1,6 +1,6 @@
 # 我是弹出式杂志的编辑道格拉斯·麦克格雷，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-pop-up-magazine-editor-Douglas-mcgray-and-this-is-h-1825897396](https://lifehacker.com/im-pop-up-magazine-editor-douglas-mcgray-and-this-is-h-1825897396)
+> 原文：<https://lifehacker.com/im-pop-up-magazine-editor-douglas-mcgray-and-this-is-h-1825897396>
 
 道格拉斯·麦克格雷的第一本杂志看起来不像杂志。 [*弹出式杂志*](https://www.popupmagazine.com/) ，目前正在巡演，是一个现场综艺节目，使用不同的技巧在舞台上讲述一个故事。麦克格雷还经营着加州周日杂志(California Sunday Magazine)这是一份关于加州、美国西部、亚洲和拉丁美洲的周刊。我们和他聊了他是如何组织现场表演的，他对跨学科合作的哲学，以及他最喜欢的捷径——字面上的捷径。
 

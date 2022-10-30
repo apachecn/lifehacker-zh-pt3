@@ -1,6 +1,6 @@
 # Fromage Fort 是一种由奶酪盘碎屑制成的美味食品
 
-> 原文:[https://life hacker . com/fromage-fort-is-an-amazing-spread-made-from-cheese-plat-1821052207](https://lifehacker.com/fromage-fort-is-an-amazing-spread-made-from-cheese-plat-1821052207)
+> 原文：<https://lifehacker.com/fromage-fort-is-an-amazing-spread-made-from-cheese-plat-1821052207>
 
 没有“剩余奶酪”这种东西，但是，如果你像我一样是一个奶酪收藏家，你可能会发现自己有各种各样的奶酪宝贝的小块和小块。你可以继续制作越来越小的奶酪盘，或者你可以用 age fort 制作*，也被称为“势利 DIY Boursin”*
 

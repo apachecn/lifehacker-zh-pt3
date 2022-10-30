@@ -1,6 +1,6 @@
 # 关于 MoviePass 的新条款和条件，您需要了解什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-about-movie pass-new-terms-and-con-1822494406](https://lifehacker.com/what-you-need-to-know-about-moviepass-new-terms-and-con-1822494406)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-moviepass-new-terms-and-con-1822494406>
 
 如果你是 MoviePass 的订户，那么这个周末你可能会收到一封电子邮件，通知你该公司正在制定一些新的条款和条件。对于我们大多数人来说，这封电子邮件可能会直接进入旧的存档文件夹，但在条款和条件中有一些事情实际上也值得注意。
 

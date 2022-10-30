@@ -1,6 +1,6 @@
 # 2017 年 Lifehacker 员工最喜欢的电子邮件简讯
 
-> 原文:[https://life hacker . com/the-life hacker-staff-favorite-email-newsletters-1821200598](https://lifehacker.com/the-lifehacker-staffs-favorite-email-newsletters-1821200598)
+> 原文：<https://lifehacker.com/the-lifehacker-staffs-favorite-email-newsletters-1821200598>
 
 Twitter、脸书和新闻提醒都证明了这一点:一对多沟通的最佳形式是电子邮件简讯。Lifehacker 的员工会关注时事通讯，了解早间简报、对技术的独特见解或个人故事。这些是我们的最爱。
 

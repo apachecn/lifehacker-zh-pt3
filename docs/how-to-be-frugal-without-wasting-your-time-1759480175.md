@@ -1,6 +1,6 @@
 # 如何在不浪费时间的情况下节俭
 
-> 原文:[https://life hacker . com/how-to-be 节俭-不浪费你的时间-1759480175](https://lifehacker.com/how-to-be-frugal-without-wasting-your-time-1759480175)
+> 原文：<https://lifehacker.com/how-to-be-frugal-without-wasting-your-time-1759480175>
 
 很多人认为节俭是以你的时间为代价来省钱:你花一整天剪优惠券 [只是为了在你的杂货](http://twocents.lifehacker.com/money-advice-the-experts-don-t-agree-on-being-frugal-1601213528#_ga=1.60741421.1878010491.1455656704) 上省几块钱。那一点都不节俭。你的时间是宝贵的——比金钱更宝贵——真正的节俭是明智地使用你的时间和金钱。以下是方法。
 

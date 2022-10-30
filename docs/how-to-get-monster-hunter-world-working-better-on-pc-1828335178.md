@@ -1,6 +1,6 @@
 # 如何让怪物猎人:世界在 PC 上更好地工作
 
-> 原文:[https://kotaku . com/how-to-get-monster-hunter-world-working-better-on-PC-1828335178](https://kotaku.com/how-to-get-monster-hunter-world-working-better-on-pc-1828335178)
+> 原文：<https://kotaku.com/how-to-get-monster-hunter-world-working-better-on-pc-1828335178>
 
 *怪物猎人:世界*终于在上周在 PC 上问世。这是一款有趣的 [地狱游戏](https://kotaku.com/monster-hunter-world-the-kotaku-review-1822557729) ，但是 PC 版有一些令人沮丧的技术问题。幸运的是，在我们等待官方修正的时候，粉丝和修改者一直在进行非官方的修正。
 

@@ -1,6 +1,6 @@
 # 为什么你的土豆沙拉需要两种土豆
 
-> 原文:[https://life hacker . com/why-your ' s potato-salad-need-two-type-of-potato-1827361481](https://lifehacker.com/why-your-potato-salad-needs-two-types-of-potatoes-1827361481)
+> 原文：<https://lifehacker.com/why-your-potato-salad-needs-two-types-of-potatoes-1827361481>
 
 一份好的土豆沙拉应该是可辨别的、有齿的土豆块和奶油、淀粉调料的结合。与其添加蛋黄酱、酸奶油或 T1 芝麻酱 ，平衡质地的关键在于使用两种不同类型的土豆。
 

@@ -1,6 +1,6 @@
 # 一月份的引体向上挑战你做得怎么样？
 
-> 原文:[https://life hacker . com/how-do-you-do-with-January-s-pull-up-challenge-1822507342](https://lifehacker.com/how-did-you-do-with-january-s-pull-up-challenge-1822507342)
+> 原文：<https://lifehacker.com/how-did-you-do-with-january-s-pull-up-challenge-1822507342>
 
 今年一月，我们要求你 [每周做几次引体向上的中心训练](https://lifehacker.com/january-s-fitness-challenge-grab-onto-that-pull-up-bar-1821717656) ，要么自己做引体向上(如果可以的话)，要么做能让你更接近做引体向上的练习。怎么样了？
 

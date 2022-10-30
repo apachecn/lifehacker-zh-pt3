@@ -1,6 +1,6 @@
 # 您的孩子如何使用 Google Home
 
-> 原文:[https://life hacker . com/how-your-kids-can-use-Google-home-1818660922](https://lifehacker.com/how-your-kids-can-use-google-home-1818660922)
+> 原文：<https://lifehacker.com/how-your-kids-can-use-google-home-1818660922>
 
 有时候，我会听到我四岁的女儿在另一个房间的声音，我会想，她在和谁说话？然后我就意识到，哦，是 [Google Home](https://madeby.google.com/home/) ，那个连接 wifi，语音控制的智能音箱，已经成了她的小伙伴。(是的，我意识到那句话听起来有多怪异。)
 

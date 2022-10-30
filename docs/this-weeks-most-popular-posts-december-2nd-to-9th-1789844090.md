@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 2 日至 9 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-2-to-9-1789844090](https://lifehacker.com/this-weeks-most-popular-posts-december-2nd-to-9th-1789844090)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-2nd-to-9th-1789844090>
 
 本周，随着假日季节的到来，我们讨论了送给不想要任何东西的人的最佳礼物，处理了在一年中这个令人振奋的时间分手的问题，仔细研究了那些花哨的新网状 Wi-Fi 路由器，找出了更容易的膳食计划替代方案，等等。
 

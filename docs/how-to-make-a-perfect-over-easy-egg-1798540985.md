@@ -1,6 +1,6 @@
 # 如何做一个完美的鸡蛋
 
-> 原文:[https://life hacker . com/how-to-make-a-perfect-over-easy egg-1798540985](https://lifehacker.com/how-to-make-a-perfect-over-easy-egg-1798540985)
+> 原文：<https://lifehacker.com/how-to-make-a-perfect-over-easy-egg-1798540985>
 
 在所有简单的早餐中，我最喜欢一份煎得太嫩的鸡蛋面包。这些勤劳的鸡蛋同样可以放在米饭、汉堡甚至一块披萨上。达到蛋白完全煮熟但蛋黄仍然柔软的最佳状态并不困难——你只需要知道你在做什么。
 

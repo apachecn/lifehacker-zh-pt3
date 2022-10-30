@@ -1,6 +1,6 @@
 # 这是你的番茄酱所缺少的
 
-> 原文:[https://life hacker . com/heres-what-your ' s 番茄酱不见了-1824287735](https://lifehacker.com/heres-what-your-tomato-sauce-is-missing-1824287735)
+> 原文：<https://lifehacker.com/heres-what-your-tomato-sauce-is-missing-1824287735>
 
 基于番茄的意大利面酱要么非常简单，要么非常复杂。无论你是在做玛塞拉·哈赞的三种配料的酱 还是一份大肉酱面，都是为了创造完美的口味平衡。品尝，调整，再品尝是关键，因为有一个额外的小阵容，你可以扔在带来特别的东西。
 

@@ -1,6 +1,6 @@
 # 用 Libib 整理你的书籍、电影、音乐和视频游戏
 
-> 原文:[https://life hacker . com/organize-your-books-movies-music-and-video-games-wit-1829466968](https://lifehacker.com/organize-your-books-movies-music-and-video-games-wit-1829466968)
+> 原文：<https://lifehacker.com/organize-your-books-movies-music-and-video-games-wit-1829466968>
 
 我有相当多的媒体:主要是书籍，其次是视频游戏，然后是一些我随身携带的可收藏的唱片和 CD。我也有一些朋友，他们的房间堆满了东西:一摞摞的书和从地板到天花板的书柜，因为过度使用而几乎要爆炸了。我们所有人都可以从检查中受益，这是一项免费服务，你可以用它来扫描和分类你的书籍、电影、音乐和视频游戏。
 

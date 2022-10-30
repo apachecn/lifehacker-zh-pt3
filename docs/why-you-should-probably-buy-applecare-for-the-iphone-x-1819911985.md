@@ -1,6 +1,6 @@
 # 为什么您应该为 iPhone X 购买 AppleCare+
 
-> 原文:[https://life hacker . com/why-you-should-possible-buy-apple care-for-the-iphone-x-1819911985](https://lifehacker.com/why-you-should-probably-buy-applecare-for-the-iphone-x-1819911985)
+> 原文：<https://lifehacker.com/why-you-should-probably-buy-applecare-for-the-iphone-x-1819911985>
 
 [苹果透露](https://support.apple.com/iphone/repair/service/pricing) 周五修理没有 [AppleCare+](https://gizmodo.com/is-the-new-applecare-worth-it-1786381413#_ga=2.53039213.437918670.1508738374-1167719708.1504278915) 的 [iPhone X](https://lifehacker.com/how-to-buy-an-iphone-x-this-week-1819812194#_ga=2.53039213.437918670.1508738374-1167719708.1504278915) 要花多少钱，而且比以前贵了很多——可能是因为那个 [花哨的新有机发光二极管显示屏](https://gizmodo.com/iphones-compared-how-the-iphone-x-stacks-up-against-ip-1804251089) 。如果你以前跳过保护计划，这一次你可能要三思。
 

@@ -1,6 +1,6 @@
 # Goocards 主屏幕
 
-> 原文:[https://lifehacker.com/the-goocards-home-screen-1736809148](https://lifehacker.com/the-goocards-home-screen-1736809148)
+> 原文：<https://lifehacker.com/the-goocards-home-screen-1736809148>
 
 如果你是谷歌基于卡片的界面的粉丝，并希望你的整个主屏幕都能分享这种外观，那么今天的设计就是为你设计的。它甚至还有一个黑暗的主题！
 

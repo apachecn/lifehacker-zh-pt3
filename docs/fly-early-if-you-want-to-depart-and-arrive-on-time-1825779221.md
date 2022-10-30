@@ -1,6 +1,6 @@
 # 如果你想出发并准时到达，就乘早班飞机
 
-> 原文:[https://life hacker . com/fly-early-if-you-want-to-away-to-get-on-time-1825779221](https://lifehacker.com/fly-early-if-you-want-to-depart-and-arrive-on-time-1825779221)
+> 原文：<https://lifehacker.com/fly-early-if-you-want-to-depart-and-arrive-on-time-1825779221>
 
 航班延误经常发生，但在一天中的特定时间发生的可能性要小得多。如果你需要一趟几乎保证准点的航班，你最好泡上一壶咖啡——你需要一大早就离开。
 

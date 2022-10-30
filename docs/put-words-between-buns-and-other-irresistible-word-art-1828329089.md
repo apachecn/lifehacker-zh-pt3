@@ -1,6 +1,6 @@
 # 把单词放在面包之间，以及其他不可抗拒的艺术字生成器
 
-> 原文:[https://life hacker . com/put-words-between-bots-and-other-incorporated-word-art-1828329089](https://lifehacker.com/put-words-between-buns-and-other-irresistible-word-art-1828329089)
+> 原文：<https://lifehacker.com/put-words-between-buns-and-other-irresistible-word-art-1828329089>
 
 伙计，人们喜欢把几个词变成图形。作家兼游戏设计师 Ian Bogost 开发了一个新的文字艺术生成器，可以让你粗略地模拟汉堡王的广告。像这样:
 

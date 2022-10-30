@@ -1,6 +1,6 @@
 # 如何提高你的信用——或者从零开始
 
-> 原文:[https://life hacker . com/how-to-boost-your-credit-or-build-it-from nothing-1797485359](https://lifehacker.com/how-to-boost-your-credit-or-build-it-up-from-nothing-1797485359)
+> 原文：<https://lifehacker.com/how-to-boost-your-credit-or-build-it-up-from-nothing-1797485359>
 
 你的信用评分不会因为日历翻到 2021 年而改变——但与此同时，新的一年的开始*是*一个反思的好时机，也是计划一些改善你信用评分的财务举措的好时机。
 

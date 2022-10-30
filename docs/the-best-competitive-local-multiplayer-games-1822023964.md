@@ -1,6 +1,6 @@
 # 最佳竞技本地多人游戏
 
-> 原文:[https://kotaku . com/the-best-competitive-local-multiplayer-games-1822023964](https://kotaku.com/the-best-competitive-local-multiplayer-games-1822023964)
+> 原文：<https://kotaku.com/the-best-competitive-local-multiplayer-games-1822023964>
 
 几年来，我在伦敦和英国布莱顿的酒吧和酒馆里玩多人游戏夜。我们会和真正的 DJ 一起演奏好音乐，搭起一堆控制台，端上啤酒，根据晚上的情况，欢迎 50-200 人。这是多人竞技游戏的终极测试场。事实证明，有些游戏太复杂，人们无法在酒吧里玩；其他人在几个回合后就厌倦了。下面的游戏是在可访问性、细微差别和社交环境中最重要的乐趣之间取得最佳平衡的游戏。
 

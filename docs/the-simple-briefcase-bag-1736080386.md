@@ -1,6 +1,6 @@
 # 简单的公文包
 
-> 原文:[https://lifehacker.com/the-simple-briefcase-bag-1736080386](https://lifehacker.com/the-simple-briefcase-bag-1736080386)
+> 原文：<https://lifehacker.com/the-simple-briefcase-bag-1736080386>
 
 每个人在一天中需要不同的负载，但 Carry reader rogeragne 采取了一种简单的方法，只带一个小包和一些物品。
 

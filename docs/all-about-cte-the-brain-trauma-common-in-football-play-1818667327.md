@@ -1,6 +1,6 @@
 # 关于 CTE，足球运动员常见的脑损伤
 
-> 原文:[https://life hacker . com/all-about-cte-the-brain-trauma-common-in-football-play-1818667327](https://lifehacker.com/all-about-cte-the-brain-trauma-common-in-football-play-1818667327)
+> 原文：<https://lifehacker.com/all-about-cte-the-brain-trauma-common-in-football-play-1818667327>
 
 亚伦·赫尔南德斯，这位前爱国者今年早些时候因谋杀罪服无期徒刑时自杀身亡，是最新一位被公开诊断患有慢性创伤性脑病【CTE】的 [足球运动员。这种情况与抑郁、攻击性和冲动控制问题有关。](https://deadspin.com/aaron-hernandez-found-to-have-had-cte-1818632237) 
 

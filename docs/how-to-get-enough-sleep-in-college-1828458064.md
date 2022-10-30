@@ -1,6 +1,6 @@
 # 大学如何保证充足的睡眠
 
-> 原文:[https://life hacker . com/how-to-get-up-sleep-in-college-1828458064](https://lifehacker.com/how-to-get-enough-sleep-in-college-1828458064)
+> 原文：<https://lifehacker.com/how-to-get-enough-sleep-in-college-1828458064>
 
 我最常联想到大学早期的感觉是*疲惫*。我晚上写了所有的论文；每当讲座变得有点乏味时，我就拼命睡觉。然而，你不能因为睡眠不足而活很多年，所以我应该从一开始就知道这些。
 

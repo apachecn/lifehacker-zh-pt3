@@ -1,6 +1,6 @@
 # 确定你的同事是否是一个完全被“迷惑与困惑”法则所玷污的人
 
-> 原文:[https://life hacker . com/determine-if-your-college-is-a total-sleaze-wit-1820645568](https://lifehacker.com/determine-if-your-colleague-is-being-a-total-sleaze-wit-1820645568)
+> 原文：<https://lifehacker.com/determine-if-your-colleague-is-being-a-total-sleaze-wit-1820645568>
 
 点击率不断攀升:昨天，劳拉·麦克甘 [为 Vox](https://www.vox.com/policy-and-politics/2017/11/20/16678094/glenn-thrush-new-york-times) 撰稿，发表了一篇针对*纽约时报*记者格伦·思拉什的性行为不端指控的报道。据报道，50 岁的 Thrush 是一名知名的受人尊敬的记者，他对年轻的女同事示好，示好的范围包括“从不想要的摸索和亲吻到不知从哪里冒出来的湿吻，再到在酒精影响下发生的模糊的性接触。”接受采访的三名女性当时都是 20 多岁。
 

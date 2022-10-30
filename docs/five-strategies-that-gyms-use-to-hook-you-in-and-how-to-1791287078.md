@@ -1,6 +1,6 @@
 # 健身房用来吸引你的五种策略以及如何避免它们
 
-> 原文:[https://life hacker . com/five-strategies-that-gym-use-to-hook you-in-how-to-1791287078](https://lifehacker.com/five-strategies-that-gyms-use-to-hook-you-in-and-how-to-1791287078)
+> 原文：<https://lifehacker.com/five-strategies-that-gyms-use-to-hook-you-in-and-how-to-1791287078>
 
 年复一年，最常见的 [新年决心](http://dealnews.com/features/New-Years-Resolutions-That-Will-Save-You-Money/) 之一就是减肥。在一年中寒冷的几个月，去健身房是保持活跃的好方法，但在一月份加入健身房意味着你可能会遇到高压销售策略。这是健身房的旺季，健身公司急于在节后淘金热期间拿走你的钱。
 

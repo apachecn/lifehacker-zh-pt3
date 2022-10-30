@@ -1,6 +1,6 @@
 # 如何优雅地处理工作拒绝
 
-> 原文:[https://life hacker . com/how-to-hand-a-job-rejection-gracefully-1798640624](https://lifehacker.com/how-to-handle-a-job-rejection-gracefully-1798640624)
+> 原文：<https://lifehacker.com/how-to-handle-a-job-rejection-gracefully-1798640624>
 
 所以你没有得到那份工作——真遗憾。这很痛苦，但这个过程还没有结束。在你开始下一个潜在的工作之前，做好这三件事。
 

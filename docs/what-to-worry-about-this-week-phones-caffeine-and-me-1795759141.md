@@ -1,6 +1,6 @@
 # 本周要担心什么:电话、咖啡因和冥想
 
-> 原文:[https://life hacker . com/what-to-breaking-this-week-phones-caffeine-and-me-1795759141](https://lifehacker.com/what-to-worry-about-this-week-phones-caffeine-and-me-1795759141)
+> 原文：<https://lifehacker.com/what-to-worry-about-this-week-phones-caffeine-and-me-1795759141>
 
 似乎每天都有新的健康研究出来。以前对你不好的东西对你有好处，反之亦然。事实证明，这些新发现中的大部分都不是什么大事:有时它们只适用于老鼠，或者它们只是一个暂时现象，不会改变对该主题的整体科学理解。所以让我们来看看本周的一些故事，看看哪些是大新闻，哪些不是。
 

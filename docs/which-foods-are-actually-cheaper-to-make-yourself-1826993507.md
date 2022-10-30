@@ -1,6 +1,6 @@
 # 哪些食物自己做其实更便宜？
 
-> 原文:[https://life hacker . com/哪些食物自己做其实更便宜 1826993507](https://lifehacker.com/which-foods-are-actually-cheaper-to-make-yourself-1826993507)
+> 原文：<https://lifehacker.com/which-foods-are-actually-cheaper-to-make-yourself-1826993507>
 
 “自己做”是家庭烹饪文化的重要组成部分。一个人想要自己动手做每一样食物的原因可能各不相同，但通常与口味、健康或成本有关。成本方面，有些事情是显而易见的；在家做饭几乎总是比外卖便宜，但当你自己做主食时，事情就不那么简单了。
 

@@ -1,6 +1,6 @@
 # 谷歌在“谷歌制造”活动上宣布的一切真正重要的东西
 
-> 原文:[https://life hacker . com/everything-Google-announced-at-its-made-by-Google-eve-1787404179](https://lifehacker.com/everything-google-announced-at-its-made-by-google-eve-1787404179)
+> 原文：<https://lifehacker.com/everything-google-announced-at-its-made-by-google-eve-1787404179>
 
 谷歌希望你开始将它视为一家硬件公司。今天，它宣布了新的 Pixel 手机，一款名为 Google Home 的智能语音助手扬声器，一个 VR 平台等等。以下是该公司今天宣布的最酷的事情。
 

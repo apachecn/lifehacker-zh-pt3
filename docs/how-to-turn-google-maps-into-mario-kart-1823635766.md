@@ -1,6 +1,6 @@
 # 如何把谷歌地图变成马里奥赛车
 
-> 原文:[https://life hacker . com/how-to-turn-Google-maps-into-Mario-kart-1823635766](https://lifehacker.com/how-to-turn-google-maps-into-mario-kart-1823635766)
+> 原文：<https://lifehacker.com/how-to-turn-google-maps-into-mario-kart-1823635766>
 
 [回到 2014 年的](https://www.theverge.com/2016/7/11/12149712/pokemon-go-niantic-preview-trailers-video) ，谷歌与 [任天堂](https://lifehacker.com/we-just-got-a-lot-closer-to-hacking-the-nintendo-switch-1823166929) 联手，在地图间隐藏神奇宝贝，这令人惊讶地有趣——为 [*神奇宝贝 Go*](https://lifehacker.com/what-is-pokemon-go-and-why-is-everyone-talking-about-it-1783420761) 铺平了道路。现在，两家公司再次合作，将你的 [分路段驾驶路线](https://lifehacker.com/the-best-turn-by-turn-navigation-app-for-iphone-5870122) 转变为对马里奥赛车的小小敬意。
 

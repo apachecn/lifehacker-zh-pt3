@@ -1,6 +1,6 @@
 # 如何制作不含任何乳制品的奶油意大利面
 
-> 原文:[https://life hacker . com/how-to-make-creamy-pasta-diseases-no-any-daily-1823434878](https://lifehacker.com/how-to-make-creamy-pasta-dishes-without-any-dairy-1823434878)
+> 原文：<https://lifehacker.com/how-to-make-creamy-pasta-dishes-without-any-dairy-1823434878>
 
 一大碗热腾腾的意大利面，每一根都完美地涂上了奶油酱，也许是最完美的安慰食物。如果你对乳制品不那么感兴趣——或者它对你不那么感兴趣——这顿饭可能看起来很遗憾地超出了你的能力范围。幸运的是，有一个非常简单的方法，不用一滴奶油或一片黄油，就可以做出丰富美味的面条酱。
 

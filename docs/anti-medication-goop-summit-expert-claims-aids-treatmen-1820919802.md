@@ -1,6 +1,6 @@
 # 反药物峰会专家声称艾滋病治疗致死，转基因生物导致抑郁症
 
-> 原文:[https://Jezebel . com/anti-medicine-goop-summit-expert-claims-AIDS-treatmen-1820919802](https://jezebel.com/anti-medication-goop-summit-expert-claims-aids-treatmen-1820919802)
+> 原文：<https://jezebel.com/anti-medication-goop-summit-expert-claims-aids-treatmen-1820919802>
 
  [https://jezebel.com/embed/inset/iframe?id=youtube-video-6C7R-MhtcM0&start=0](https://jezebel.com/embed/inset/iframe?id=youtube-video-6C7R-MhtcM0&start=0) 
 

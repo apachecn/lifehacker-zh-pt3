@@ -1,6 +1,6 @@
 # 如果你喜欢复古游戏，SN30 Pro 是你唯一需要的游戏手柄
 
-> 原文:[https://gizmodo . com/if-you-love-retro-gaming-the-sn30-pro-is-the-only-game-1820748535](https://gizmodo.com/if-you-love-retro-gaming-the-sn30-pro-is-the-only-game-1820748535)
+> 原文：<https://gizmodo.com/if-you-love-retro-gaming-the-sn30-pro-is-the-only-game-1820748535>
 
 任天堂承诺， [Switch 即将推出的在线服务将包括一个经典游戏](https://kotaku.com/nintendo-details-switch-online-service-will-be-20-yea-1795743981) 库，这将有助于将便携式游戏机变成一台史诗般——但并不完美——的复古游戏机。Switch 缺少的一件东西是一个真正的四向 D-pad，但这可以通过 [8Bitdo 的新 SN30 Pro 游戏手柄](https://gizmodo.com/this-snes-style-nintendo-switch-controller-is-designed-1795858424#_ga=2.10591921.487118478.1511787444-1848090429.1511787444)—[经典和现代手柄](http://www.8bitdo.com/sn30pro-sf30pro/) 的巧妙混合来轻松弥补。
 

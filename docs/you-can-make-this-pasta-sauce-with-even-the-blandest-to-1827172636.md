@@ -1,6 +1,6 @@
 # 你甚至可以用最清淡的西红柿做这种意大利面酱
 
-> 原文:[https://life hacker . com/you-can-make-this-pasta-sauce-with even-blandest to 1827172636](https://lifehacker.com/you-can-make-this-pasta-sauce-with-even-the-blandest-to-1827172636)
+> 原文：<https://lifehacker.com/you-can-make-this-pasta-sauce-with-even-the-blandest-to-1827172636>
 
 尽你所能避免它，你会——在夏天的某个时候——发现自己要么吃了太多西红柿，要么吃了一些淡而无味的西红柿，要么吃了太多淡而无味的西红柿。我的朋友们，解决办法是做意大利面酱。
 

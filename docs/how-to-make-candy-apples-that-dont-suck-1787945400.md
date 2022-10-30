@@ -1,6 +1,6 @@
 # 如何做出不难吃的苹果糖
 
-> 原文:[https://life hacker . com/how-to-make-candy-apple-that-not-suck-1787945400](https://lifehacker.com/how-to-make-candy-apples-that-dont-suck-1787945400)
+> 原文：<https://lifehacker.com/how-to-make-candy-apples-that-dont-suck-1787945400>
 
 一个又脆又酸又甜的苹果，可爱地包裹着闪亮的糖果壳或浓郁的焦糖色，是典型的秋季美食，既容易制作，也很容易弄糟。为了确保你的苹果糖是最好的，你需要记住几个因素。
 

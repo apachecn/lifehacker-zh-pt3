@@ -1,6 +1,6 @@
 # 以下是了解地区折扣如何为你的下一辆车省钱
 
-> 原文:[https://jalopnik . com/here-s-how-understand-regional-discounts-can-save-yo-1820108298](https://jalopnik.com/here-s-how-understanding-regional-discounts-can-save-yo-1820108298)
+> 原文：<https://jalopnik.com/here-s-how-understanding-regional-discounts-can-save-yo-1820108298>
 
 您已经知道在您所在地区 以外的 [购车可以让您在谈判中获得更多筹码，但您可能不知道特定地区的经销商有时会获得额外的资金来转移库存。找到这些额外的折扣并不容易，但额外的工作会有回报。](https://jalopnik.com/how-far-should-i-travel-to-get-the-best-deal-on-a-car-p-1739400960#_ga=2.21383035.1502173109.1509557182-868633205.1485874860) 
 

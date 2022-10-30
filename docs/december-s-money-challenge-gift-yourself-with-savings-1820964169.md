@@ -1,6 +1,6 @@
 # 12 月的金钱挑战:给自己买礼物(带着存款)
 
-> 原文:[https://life hacker . com/December-s-money-challenge-gift-yourself-with savings-1820964169](https://lifehacker.com/december-s-money-challenge-gift-yourself-with-savings-1820964169)
+> 原文：<https://lifehacker.com/december-s-money-challenge-gift-yourself-with-savings-1820964169>
 
 整整一年，我们挑战你去 [存更多的](https://twocents.lifehacker.com/may-s-money-challenge-let-s-haggle-1794740686#_ga=2.112136132.1522724306.1512352226-225857320.1512352226) ，削减 [冲动消费](https://twocents.lifehacker.com/septembers-money-challenge-no-restaurant-spending-1798515491#_ga=2.112136132.1522724306.1512352226-225857320.1512352226) ，甚至 [通过清理你的衣橱来赚取一些额外的现金](https://lifehacker.com/the-best-places-to-sell-your-junk-depending-on-the-jun-1819338691#_ga=2.117310790.1522724306.1512352226-225857320.1512352226) 。在今年的最后一场 [终极金钱挑战赛](http://twocents.lifehacker.com/lifehacker-readers-lets-take-a-money-challenge-togethe-1747419781#_ga=2.117310790.1522724306.1512352226-225857320.1512352226) 中，我们希望你给自己一份礼物——用存款。换句话说，节省一部分假期开销。
 

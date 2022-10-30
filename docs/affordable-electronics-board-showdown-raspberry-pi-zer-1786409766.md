@@ -1,6 +1,6 @@
 # 平价电子板摊牌:树莓派 Zero vs. C.H.I.P。
 
-> 原文:[https://life hacker . com/affordable-electronics-board-摊牌-raspberry-pi-zer-1786409766](https://lifehacker.com/affordable-electronics-board-showdown-raspberry-pi-zer-1786409766)
+> 原文：<https://lifehacker.com/affordable-electronics-board-showdown-raspberry-pi-zer-1786409766>
 
 DIY 电子板越来越便宜了。自从非常受欢迎的便携式板载计算机 Raspberry Pi 推出以来，无数新的主板出现了。即便如此，也很少有比 5 美元 [的树莓派 Zero](https://www.raspberrypi.org/products/pi-zero/) 和 9 美元 [的 C.H.I.P.](https://getchip.com/pages/chip) 更便宜更小巧的了。让我们来看看它们是如何比较的。
 

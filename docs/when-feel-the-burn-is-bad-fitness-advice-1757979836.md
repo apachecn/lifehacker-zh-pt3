@@ -1,6 +1,6 @@
 # “感受燃烧”是不好的健身建议
 
-> 原文:[https://life hacker . com/when-feel-the-burn-is-bad-fitness-advice-1757979836](https://lifehacker.com/when-feel-the-burn-is-bad-fitness-advice-1757979836)
+> 原文：<https://lifehacker.com/when-feel-the-burn-is-bad-fitness-advice-1757979836>
 
 “感受燃烧！”是一个经常重复的提示，让锻炼者比平时更努力、更持久地锻炼。很多人喜欢这种不舒服的感觉，但是根据不同的情况，这种“烧伤”并不总是一个好的或有效的锻炼的可靠指标。这是怎么回事，为什么“感觉燃烧”被高估了。
 

@@ -1,6 +1,6 @@
 # 你和有孩子的朋友有什么恩怨？
 
-> 原文:[https://life hacker . com/what-edgess-do-you-have-you-friends-who-has-1819509110](https://lifehacker.com/what-grievances-do-you-have-with-your-friends-who-have-1819509110)
+> 原文：<https://lifehacker.com/what-grievances-do-you-have-with-your-friends-who-have-1819509110>
 
 当你没有孩子，但有朋友有孩子时，问题就出现了。作为父母，他们的生活发生了巨大的变化，而你的生活基本保持不变，这有时会导致你们的关系紧张。你想告诉他们什么样的真相而不会让他们心烦意乱或伤害他们的感情？
 

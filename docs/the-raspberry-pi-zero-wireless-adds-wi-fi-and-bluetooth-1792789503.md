@@ -1,6 +1,6 @@
 # Raspberry Pi Zero W 为 Zero 增加了 Wi-Fi 和蓝牙功能，售价 10 美元
 
-> 原文:[https://life hacker . com/the-raspberry-pi-zero-wireless-adds-wi-fi-and-bluetooth-1792789503](https://lifehacker.com/the-raspberry-pi-zero-wireless-adds-wi-fi-and-bluetooth-1792789503)
+> 原文：<https://lifehacker.com/the-raspberry-pi-zero-wireless-adds-wi-fi-and-bluetooth-1792789503>
 
 这款 [树莓派 Zero](https://lifehacker.com/the-raspberry-pi-zero-is-a-5-computer-the-size-of-a-st-1744253282) 是一款 [神奇的微型版树莓派](http://lifehacker.com/top-10-raspberry-pi-zero-projects-that-make-use-of-its-1792403310) 它将电路板缩小到口香糖大小，但它的一个问题是缺乏无线功能。树莓派 Zero W 是一个新版本，内置蓝牙和 Wi-Fi，价格是原来 Zero 的两倍。
 

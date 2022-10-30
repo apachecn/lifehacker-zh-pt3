@@ -1,6 +1,6 @@
 # 你可以在短短的几个小时内储存定制的利口酒
 
-> 原文:[https://life hacker . com/you-can-sous-vide-bespoke-liquic-mere-hours-1819224864](https://lifehacker.com/you-can-sous-vide-bespoke-liqueur-in-mere-hours-1819224864)
+> 原文：<https://lifehacker.com/you-can-sous-vide-bespoke-liqueur-in-mere-hours-1819224864>
 
 朋友们大家好，欢迎回到 [*它会苏威吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。今天，我们暂时停止咀嚼，利用 sous vide 的力量在创纪录的时间内制作定制利口酒。
 

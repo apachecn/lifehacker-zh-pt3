@@ -1,6 +1,6 @@
 # 如何在响尾蛇袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-响尾蛇-attack-1787353679](https://lifehacker.com/how-to-survive-a-rattlesnake-attack-1787353679)
+> 原文：<https://lifehacker.com/how-to-survive-a-rattlesnake-attack-1787353679>
 
 响尾蛇是致命的，但至少它们很有礼貌。在美国的100 多种蛇中，响尾蛇是唯一一种在它将毒牙刺入你体内之前会发出警告的蛇。尽管如此，每年还是有很多人被它们咬伤。如果你听到咔哒咔哒的声音，你应该怎么做，如果你被咬了，如何生存。
 

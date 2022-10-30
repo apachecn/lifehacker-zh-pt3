@@ -1,6 +1,6 @@
 # 如何获得 Windows 10 的最佳动态桌面壁纸
 
-> 原文:[https://life hacker . com/how-to-get-the-best-dynamic-desktop-wallpaper-for-windo-1829394727](https://lifehacker.com/how-to-get-the-best-dynamic-desktop-wallpaper-for-windo-1829394727)
+> 原文：<https://lifehacker.com/how-to-get-the-best-dynamic-desktop-wallpaper-for-windo-1829394727>
 
 虽然你可能会执着于你的桌面壁纸——可以是你的全家福、 [、你最喜欢的网络宠物](https://www.facebook.com/Boo/) ，或者 [其他令人惊奇的东西](https://lifehacker.com/top-10-places-to-get-stunning-desktop-wallpaper-1781991380)——没有理由你不能每天都有一点变化。所有这些苹果粉丝可能会得到 macOS Mojave 的动态壁纸，但你可以在 Windows 中做得更好，这要感谢一个有趣的小实用程序，名为 d 变色龙。
 

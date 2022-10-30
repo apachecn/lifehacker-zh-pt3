@@ -1,6 +1,6 @@
 # Fitbit 的 Charge 3 实际上似乎是一个可靠的智能手表替代品
 
-> 原文:[https://gizmodo . com/fitbits-charge-3-actually-like-a-solid-smart watch-1828409824](https://gizmodo.com/fitbits-charge-3-actually-seems-like-a-solid-smartwatch-1828409824)
+> 原文：<https://gizmodo.com/fitbits-charge-3-actually-seems-like-a-solid-smartwatch-1828409824>
 
 Fitbit Charge 3 似乎轻得令人震惊。这将是这个健身追踪器真正打动你的第一件事。你拿起它，它缺乏你习惯于像 Charge 2 或其前身这样的设备的所有重量。它也比我的 Apple Watch 轻，这令人印象深刻，因为 Fitbit 在这款设备中加入了大量功能，同时还对它进行了重新设计，使它比 Charge 系列的其他产品更具吸引力。
 

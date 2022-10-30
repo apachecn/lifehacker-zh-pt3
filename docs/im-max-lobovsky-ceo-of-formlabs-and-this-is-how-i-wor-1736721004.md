@@ -1,6 +1,6 @@
 # 我是 Max Lobovsky，Formlabs 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-max-lobovsky-of-form labs-and-this-is-how-I-wor-1736721004](https://lifehacker.com/im-max-lobovsky-ceo-of-formlabs-and-this-is-how-i-wor-1736721004)
+> 原文：<https://lifehacker.com/im-max-lobovsky-ceo-of-formlabs-and-this-is-how-i-wor-1736721004>
 
 随着 3D 打印的发展和成为一种更常见的工具，新公司如雨后春笋般涌现，以完善这一过程，并重塑设计师、工程师和爱好者的工作方式。 [Formlabs](http://formlabs.com/) 源自 Kickstarter 的巨大成功，创造了一款注重质量和一致性的创新型高分辨率打印机。
 

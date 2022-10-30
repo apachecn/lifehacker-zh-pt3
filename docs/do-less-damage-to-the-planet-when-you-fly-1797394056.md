@@ -1,6 +1,6 @@
 # 当你飞行时，减少对地球的破坏
 
-> 原文:[https://life hacker . com/do-less-damage-to-the-planet-when you-fly-1797394056](https://lifehacker.com/do-less-damage-to-the-planet-when-you-fly-1797394056)
+> 原文：<https://lifehacker.com/do-less-damage-to-the-planet-when-you-fly-1797394056>
 
 即使你经常不吃肉，乘坐公共交通工具，你为减少碳足迹所做的一切努力也很容易被沉迷于另一个对气候变化影响最大的个人因素——飞行——所抵消。大多数关于降低碳足迹的建议都提到飞行不好，到此为止。但是《T4 纽约时报》对如何挑选航空旅行有一些更具体的指导。
 

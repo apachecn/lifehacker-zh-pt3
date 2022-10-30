@@ -1,6 +1,6 @@
 # 如何做完美的木板
 
-> 原文:[https://life hacker . com/how-to-do-the-perfect-plank-1785714321](https://lifehacker.com/how-to-do-the-perfect-plank-1785714321)
+> 原文：<https://lifehacker.com/how-to-do-the-perfect-plank-1785714321>
 
 木板是一种简单的体重锻炼，它挑战你尽可能长时间保持身体像木板一样僵硬。能拿着它 60 秒或更长时间，有点像是一种荣誉。但是，如果你一直握着它不摇晃，你可能没有像你应该的那样锻炼你的核心。
 

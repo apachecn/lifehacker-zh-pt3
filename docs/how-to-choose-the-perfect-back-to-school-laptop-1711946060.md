@@ -1,6 +1,6 @@
 # 如何选择完美的返校笔记本电脑
 
-> 原文:[https://life hacker . com/how-to-choose-the-perfect-back-school-laptop-1711946060](https://lifehacker.com/how-to-choose-the-perfect-back-to-school-laptop-1711946060)
+> 原文：<https://lifehacker.com/how-to-choose-the-perfect-back-to-school-laptop-1711946060>
 
 现在是买笔记本电脑的好时机。返校交易正在进行，新的模型正在上架。我们已经讨论了如何挑选最完美的笔记本电脑，但是如果你要去上大学，或者甚至回到学校，并且不确定你需要什么，你就有困难了。别担心，我们会帮你度过难关。
 

@@ -1,6 +1,6 @@
 # 如何假装弹钢琴:第四课
 
-> 原文:[https://life hacker . com/how-to-fake-playing-piano-lesson-4-1819678107](https://lifehacker.com/how-to-fake-playing-piano-lesson-4-1819678107)
+> 原文：<https://lifehacker.com/how-to-fake-playing-piano-lesson-4-1819678107>
 
 前情提要 [如何假弹钢琴](https://lifehacker.com/tag/hack-the-piano) ，作曲家兼音乐家 Jason Oberholtzer 教你所有的积木: [用左手做什么](https://lifehacker.com/how-to-fake-playing-piano-lesson-1-1819456727)[用右手做什么](https://lifehacker.com/how-to-fake-playing-piano-lesson-2-1819556732)[和弦如何工作](https://lifehacker.com/how-to-fake-playing-piano-lesson-3-1819648926) 。今天他把这一切都联系在一起。在上面的视频中，杰森向你展示了如何在钢琴上弹奏，即使你根本不知道自己在做什么。
 

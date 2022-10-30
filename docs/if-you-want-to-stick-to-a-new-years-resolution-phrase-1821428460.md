@@ -1,6 +1,6 @@
 # 如果你想坚持新年决心，用不同的方式表达
 
-> 原文:[https://life hacker . com/if-you-want-to-stick-a-new-years-resolution-phrase-1821428460](https://lifehacker.com/if-you-want-to-stick-to-a-new-years-resolution-phrase-1821428460)
+> 原文：<https://lifehacker.com/if-you-want-to-stick-to-a-new-years-resolution-phrase-1821428460>
 
 2017 年，我人生中第一次真正坚持了一个决心。更重要的是，多年来，我都没能实现同样的决心——制定预算并坚持下去。现在，如果你认为一个成年人不能处理自己的财务是可耻的，你就对了！但更令人*羞愧的是，我已经连续 20 个月试图解开这个叫做“预算”的谜，但就是做不出来。不要告诉我你的 Excel 系统或 Mint.com，或者说“跟踪你的支出有多难！”不管出于什么原因，有大量的钱下落不明，数字也不一致，我会感到羞愧和愤怒。我总是在二月前放弃。*
 

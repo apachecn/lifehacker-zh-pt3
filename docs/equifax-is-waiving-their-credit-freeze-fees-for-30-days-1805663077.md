@@ -1,6 +1,6 @@
 # Equifax 免除他们 30 天的信用冻结费
 
-> 原文:[https://life hacker . com/equifax-is-放弃他们的信用冻结费-30 天-1805663077](https://lifehacker.com/equifax-is-waiving-their-credit-freeze-fees-for-30-days-1805663077)
+> 原文：<https://lifehacker.com/equifax-is-waiving-their-credit-freeze-fees-for-30-days-1805663077>
 
 又是一天，继造成多达 1.43 亿人的个人数据易受攻击的巨大漏洞之后，Equifax 试图遏制消费者愤怒的浪潮。现在该公司表示，他们将免除向 [收取的费用，冻结你的信用](https://www.freeze.equifax.com/)30 天 [*](http://lifehacker.com/1808935765) 。
 

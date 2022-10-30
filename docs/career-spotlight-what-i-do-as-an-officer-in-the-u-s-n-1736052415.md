@@ -1,6 +1,6 @@
 # 职业聚焦:我作为美国海军军官的工作
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-a-u-s-n-1736052415](https://lifehacker.com/career-spotlight-what-i-do-as-an-officer-in-the-u-s-n-1736052415)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-officer-in-the-u-s-n-1736052415>
 
 美国海军是世界上最大的，在全球拥有十艘航空母舰和数百艘船只。海军 326，000 名现役人员在陆地和海上完成的工作规模之大令人难以承受。
 

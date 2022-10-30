@@ -1,6 +1,6 @@
 # 如何在 Twitter 上取消关注所有人
 
-> 原文:[https://life hacker . com/how-to-un follow-every one-on-Twitter-1827656872](https://lifehacker.com/how-to-unfollow-everyone-on-twitter-1827656872)
+> 原文：<https://lifehacker.com/how-to-unfollow-everyone-on-twitter-1827656872>
 
 如果你仍然是一个活跃的 Twitter 用户，如果你多年来一直在收集粉丝，直到你的时间线变得一塌糊涂，你可能会幻想将其全部烧毁。“它”指的是整个罪恶的世界和你的推特。我们可以帮助解决第二个问题。这里有四种方法可以在 Twitter 上取消关注所有人，从零开始——或者现在和永远解放自己，在 Instagram 上快乐地生活。
 

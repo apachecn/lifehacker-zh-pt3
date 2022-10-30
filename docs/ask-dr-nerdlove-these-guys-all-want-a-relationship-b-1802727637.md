@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我只想做爱，但这些家伙都想谈恋爱
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-things-guys-all-want-a-relationship-b-1802727637](https://kotaku.com/ask-dr-nerdlove-these-guys-all-want-a-relationship-b-1802727637)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-these-guys-all-want-a-relationship-b-1802727637>
 
 大家好，欢迎来到 [询问书呆子爱博士](http://kotaku.com/askdrnerdlove) ，这是唯一一个比*诀窍二*更大的约会建议专栏。
 

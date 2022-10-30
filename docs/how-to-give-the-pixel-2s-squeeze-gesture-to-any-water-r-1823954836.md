@@ -1,6 +1,6 @@
 # 如何将 Pixel 2 的挤压手势赋予任何防水安卓手机
 
-> 原文:[https://life hacker . com/how-to-give-the-pixel-2s-squeeze-gesture-to-any-water-r-1823954836](https://lifehacker.com/how-to-give-the-pixel-2s-squeeze-gesture-to-any-water-r-1823954836)
+> 原文：<https://lifehacker.com/how-to-give-the-pixel-2s-squeeze-gesture-to-any-water-r-1823954836>
 
 [谷歌的 Pixel 2](https://lifehacker.com/how-to-switch-from-the-iphone-to-the-pixel-2-1820769729) 附带了一个相当酷的如果 [有点噱头的功能](https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006) :只需挤压设备就能启动 [谷歌助手](https://lifehacker.com/everything-your-google-home-can-do-is-now-listed-on-one-1821951991) 。现在，一个开发者正在把同样的功能带到你现在的安卓手机上。
 

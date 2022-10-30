@@ -1,6 +1,6 @@
 # 使用这些网络选项修复您的慢速互联网
 
-> 原文:[https://life hacker . com/fix-your-slow-internet with these-networking-options-1820392366](https://lifehacker.com/fix-your-slow-internet-with-these-networking-options-1820392366)
+> 原文：<https://lifehacker.com/fix-your-slow-internet-with-these-networking-options-1820392366>
 
 如果你厌倦了家中或砖砌公寓的无线网络连接不佳或网速慢，藏在角落的路由器可能无法有效覆盖你的家。在这种情况下，你可能不仅需要一个新的路由器，而是一种新型的路由器。为了让自己免去寻找(却找不到)理想路由器位置的头痛，考虑以下两个更简单的替代方案:电力线适配器，它使用家中的电线传输数据；网状路由器，这是一种小型无线路由器，它可以同时彼此共享数据，增加无线覆盖范围。
 

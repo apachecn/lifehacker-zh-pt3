@@ -1,6 +1,6 @@
 # 如何免费设置虚拟机
 
-> 原文:[https://life hacker . com/how-to-setup-a-virtual-machine-for-free-1828969527](https://lifehacker.com/how-to-set-up-a-virtual-machine-for-free-1828969527)
+> 原文：<https://lifehacker.com/how-to-set-up-a-virtual-machine-for-free-1828969527>
 
 运行虚拟机有很多原因。第一个，也是最令人信服的，是你想玩:也许你想尝试一些其他的操作系统(*咳咳 Linux 咳咳*)，但是你不想安装另一个硬盘，分割你现有的硬盘，或者以不同的方式设置你的系统。
 

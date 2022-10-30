@@ -1,6 +1,6 @@
 # 这是让孩子们收拾东西的方法
 
-> 原文:[https://life hacker . com/heres-the-bucket-hack-that-getting-kids-to-put-away-th-1829681075](https://lifehacker.com/heres-the-bucket-hack-thats-getting-kids-to-put-away-th-1829681075)
+> 原文：<https://lifehacker.com/heres-the-bucket-hack-thats-getting-kids-to-put-away-th-1829681075>
 
 你可能试过家务图表。也许你已经把整理的任务变成了游戏 。也许你已经提供了津贴或 [尝试严格的套路](https://lifehacker.com/get-your-kids-to-do-their-chores-by-establishing-a-whe-1722573465) 或连续 27 次大声唱(嘿，当你孩子的老师唱它时，它奇迹般地起作用，对吗？).
 

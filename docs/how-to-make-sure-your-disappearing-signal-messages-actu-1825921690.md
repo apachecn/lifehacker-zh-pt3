@@ -1,6 +1,6 @@
 # 如何确保你的消失信号真的消失了
 
-> 原文:[https://life hacker . com/how-to-make-assure-your-missing-signal-messages-actu-1825921690](https://lifehacker.com/how-to-make-sure-your-disappearing-signal-messages-actu-1825921690)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-disappearing-signal-messages-actu-1825921690>
 
 当谈到消息应用程序时，是最安全的选择之一，但事实证明，如果你在 Mac 上使用它，这项服务实际上有一个相当大的漏洞。
 

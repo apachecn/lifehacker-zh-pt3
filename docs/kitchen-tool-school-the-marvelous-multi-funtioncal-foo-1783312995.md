@@ -1,6 +1,6 @@
 # 厨房工具学校:神奇的多功能食品加工机
 
-> 原文:[https://life hacker . com/kitchen-tool-school-the marvely-multi-function cal-foo-1783312995](https://lifehacker.com/kitchen-tool-school-the-marvelous-multi-funtioncal-foo-1783312995)
+> 原文：<https://lifehacker.com/kitchen-tool-school-the-marvelous-multi-funtioncal-foo-1783312995>
 
 厨房电器实际上有两种类型:一种是真正的厨房英雄——让你的烹饪更容易、更快、更好——另一种是玩具。我爱我的玩具，但没有它们我也能过下去。我需要我的英雄，我的食物加工机是一个多功能的超级英雄。在这里，你可以找到购买、使用和清洁你的产品所需要知道的一切。
 

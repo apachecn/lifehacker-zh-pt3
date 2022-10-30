@@ -1,6 +1,6 @@
 # 如果你这个周末不能离开，听听国家公园的溪流声
 
-> 原文:[https://life hacker . com/stream-sounds-from-a-national-park-if-you-can-get-away-1828702554](https://lifehacker.com/stream-sounds-from-a-national-park-if-you-cant-get-away-1828702554)
+> 原文：<https://lifehacker.com/stream-sounds-from-a-national-park-if-you-cant-get-away-1828702554>
 
 如果这个劳动节你被困在家里，但希望你能去国家公园徒步旅行，国家公园服务会为你提供帮助。为了庆祝它的 102 岁生日，基金会已经开始播放国家公园的声音。
 

@@ -1,6 +1,6 @@
 # 这些瑜伽动作实际上会缓解背痛
 
-> 原文:[https://life hacker . com/these-yoga-moves-will-really-release-back-pain-1796335626](https://lifehacker.com/these-yoga-moves-will-actually-relieve-back-pain-1796335626)
+> 原文：<https://lifehacker.com/these-yoga-moves-will-actually-relieve-back-pain-1796335626>
 
 如果你背痛，瑜伽可能是你最不想做的事情。但是在 12 周温和的初级瑜伽课程后，在最近的一项研究中，人们的疼痛缓解程度与那些进行物理治疗的人一样。这两种锻炼方式都比什么都不做要好。
 

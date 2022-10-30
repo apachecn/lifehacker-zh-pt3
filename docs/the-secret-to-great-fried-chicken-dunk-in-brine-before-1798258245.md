@@ -1,6 +1,6 @@
 # 炸鸡的秘诀是:先泡盐水，再泡油
 
-> 原文:[https://the take out . com/the-secret to-great-fried-chicken-dunk-in-saline-before 1798258245](https://thetakeout.com/the-secret-to-great-fried-chicken-dunk-in-brine-before-1798258245)
+> 原文：<https://thetakeout.com/the-secret-to-great-fried-chicken-dunk-in-brine-before-1798258245>
 
 在所有令人头疼的家常菜中，炸鸡名列前茅。但是不像，比方说，为了一个巧克力蛋奶酥而在你的厨房里忙碌，炸鸡的劳动与美味的比例让你觉得值得。我们召集了全国各地一些我们最喜欢的炸鸡品种的制造商(以及外卖店和影音俱乐部的工作人员)来分享他们最喜欢的炸鸡技巧和窍门。
 

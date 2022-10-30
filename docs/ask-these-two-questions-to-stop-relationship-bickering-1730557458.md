@@ -1,6 +1,6 @@
 # 问这两个问题来阻止你们之间的争吵
 
-> 原文:[https://life hacker . com/ask-this-two-questions-to-stop-relationship-bidding-1730557458](https://lifehacker.com/ask-these-two-questions-to-stop-relationship-bickering-1730557458)
+> 原文：<https://lifehacker.com/ask-these-two-questions-to-stop-relationship-bickering-1730557458>
 
 在一起几年后，很容易和你的伴侣为一些琐事争吵。在日常生活的细节上互相吹毛求疵会让人感觉不自觉——你知道自己不可理喻，脾气暴躁，但这一刻很难让自己停下来。这里有一个简单的技巧来停止争吵。
 

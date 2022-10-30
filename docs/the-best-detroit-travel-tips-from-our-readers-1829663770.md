@@ -1,6 +1,6 @@
 # 来自我们读者的最佳底特律旅行建议
 
-> 原文:[https://life hacker . com/the-best-Detroit-travel-tips-from-our-readers-1829663770](https://lifehacker.com/the-best-detroit-travel-tips-from-our-readers-1829663770)
+> 原文：<https://lifehacker.com/the-best-detroit-travel-tips-from-our-readers-1829663770>
 
 “这已经不是 20 世纪 80 年代的底特律了，”T3 说。“你不会看到被抢劫，或者听到任何关于这座城市的负面消息。此外，你必须原谅正在进行的施工。我们正处于复苏之中！”让我们对底特律旅行提示 的 [请求做出最佳回应。](https://lifehacker.com/tell-us-your-detroit-travel-tips-1829555993) 
 

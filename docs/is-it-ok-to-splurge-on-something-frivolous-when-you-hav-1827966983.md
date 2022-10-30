@@ -1,6 +1,6 @@
 # 当你有债务要还的时候，在一些无聊的事情上挥霍可以吗？
 
-> 原文:[https://life hacker . com/is-it-ok-to-splude-something-you-hav-1827966983](https://lifehacker.com/is-it-ok-to-splurge-on-something-frivolous-when-you-hav-1827966983)
+> 原文：<https://lifehacker.com/is-it-ok-to-splurge-on-something-frivolous-when-you-hav-1827966983>
 
 你应该把所有可自由支配的钱都用来偿还债务，还是可以挥霍在你一直关注的东西上？这就是我们本周讨论的内容。
 

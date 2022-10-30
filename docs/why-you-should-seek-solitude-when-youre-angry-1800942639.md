@@ -1,6 +1,6 @@
 # 为什么你生气的时候应该寻求独处
 
-> 原文:[https://life hacker . com/why-you-should-seek-solitude-when-you-angry-1800942639](https://lifehacker.com/why-you-should-seek-solitude-when-youre-angry-1800942639)
+> 原文：<https://lifehacker.com/why-you-should-seek-solitude-when-youre-angry-1800942639>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 

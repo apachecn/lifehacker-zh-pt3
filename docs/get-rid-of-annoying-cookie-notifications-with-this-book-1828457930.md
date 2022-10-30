@@ -1,6 +1,6 @@
 # 用这个书签工具摆脱烦人的 Cookie 通知
 
-> 原文:[https://life hacker . com/get-摆脱烦人的 cookie-notifications-with this-book-1828457930](https://lifehacker.com/get-rid-of-annoying-cookie-notifications-with-this-book-1828457930)
+> 原文：<https://lifehacker.com/get-rid-of-annoying-cookie-notifications-with-this-book-1828457930>
 
 自从今年早些时候欧盟引入他们的 GDPR 隐私法 T2 T3 以来，网站被要求更加直接地公开他们从访问者那里收集的在线数据。
 

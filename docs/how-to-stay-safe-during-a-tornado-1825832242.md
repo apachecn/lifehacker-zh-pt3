@@ -1,6 +1,6 @@
 # 如何在龙卷风中保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-in-a tornado-1825832242](https://lifehacker.com/how-to-stay-safe-during-a-tornado-1825832242)
+> 原文：<https://lifehacker.com/how-to-stay-safe-during-a-tornado-1825832242>
 
 每年， [大约有 1200 场龙卷风袭击美国](https://www.ready.gov/tornadoes) ，摧毁它们所经之处的一切。它们几乎可以在任何地方、任何季节形成，并带来时速 300 英里的风和一英里多宽的漏斗。这是你需要知道的，以便在大自然最残酷的后代中生存下来。
 

@@ -1,6 +1,6 @@
 # 作为一名新爸爸，如果你在情感上挣扎，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-traffing-as-new-dad-1828886459](https://lifehacker.com/what-to-do-if-youre-struggling-emotionally-as-a-new-dad-1828886459)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-struggling-emotionally-as-a-new-dad-1828886459>
 
 在他的第三个女儿出生后，马特·维拉诺试图保持他的职业生涯，同时帮助他的妻子管理她的情感过渡，成为三个孩子的母亲，这时他突然发现自己“完全沉入水中”。对于这位住在加州索诺马县的 42 岁自由作家来说，呼吸都很困难。“一切都颠倒了，”他说。
 

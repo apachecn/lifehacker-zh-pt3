@@ -1,6 +1,6 @@
 # 用这个技巧在洗澡时分散你的狗的注意力
 
-> 原文:[https://life hacker . com/smear-peanut-butter-on-you-shower-wall-to-determine-you-1818665070](https://lifehacker.com/smear-peanut-butter-on-your-shower-wall-to-distract-you-1818665070)
+> 原文：<https://lifehacker.com/smear-peanut-butter-on-your-shower-wall-to-distract-you-1818665070>
 
 如果你想做煎蛋卷，你必须打破几个鸡蛋，如果你想要一只干净的狗，你可能必须弄脏你浴室的一面墙。
 

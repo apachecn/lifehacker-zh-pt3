@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展为任何网站添加“黑暗模式”
 
-> 原文:[https://life hacker . com/add-a-dark-mode-to-any-website-with this-chrome-extensi-1826906984](https://lifehacker.com/add-a-dark-mode-to-any-website-with-this-chrome-extensi-1826906984)
+> 原文：<https://lifehacker.com/add-a-dark-mode-to-any-website-with-this-chrome-extensi-1826906984>
 
 我是黑暗模式的超级粉丝。它们对你的眼睛和电脑电池来说更容易，我认为使用网站和应用程序会更愉快。不幸的是，并不是每个网站都提供黑暗模式(包括这个)。然而，本周我偶然发现了一个网络扩展，它可以让奇迹发生在你想让它发生的任何地方。
 

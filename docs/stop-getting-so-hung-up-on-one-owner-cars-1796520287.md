@@ -1,6 +1,6 @@
 # 不要那么执着于一个人的车
 
-> 原文:[https://jalopnik . com/stop-getting-so-hang-up-on-one-owner-cars-1796520287](https://jalopnik.com/stop-getting-so-hung-up-on-one-owner-cars-1796520287)
+> 原文：<https://jalopnik.com/stop-getting-so-hung-up-on-one-owner-cars-1796520287>
 
 今天，在看到这辆在 Ebay 上以近 16，000 美元出售的骨制吉普切诺基 后，我把我的幸运符吐在了我的笔记本电脑屏幕上。卖家以如此高的价格出售吉普车的理由很典型:这是一个人的车。我读这篇文章的想法是:我为什么要在乎？
 

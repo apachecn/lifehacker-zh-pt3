@@ -1,6 +1,6 @@
 # 喝醉了再做家务
 
-> 原文:[https://lifehacker.com/do-your-chores-drunk-1827685307](https://lifehacker.com/do-your-chores-drunk-1827685307)
+> 原文：<https://lifehacker.com/do-your-chores-drunk-1827685307>
 
 你的地板脏了。你的垃圾桶溢出来了。你需要换个灯泡，还要洗衣服。你总是很忙，一些无聊的家务事被忽略了。我有个主意:喝醉。
 

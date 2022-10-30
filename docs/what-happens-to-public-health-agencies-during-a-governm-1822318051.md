@@ -1,6 +1,6 @@
 # 政府关门期间，公共卫生机构会发生什么
 
-> 原文:[https://life hacker . com/what-happens-to-a-government-1822318051](https://lifehacker.com/what-happens-to-public-health-agencies-during-a-governm-1822318051)
+> 原文：<https://lifehacker.com/what-happens-to-public-health-agencies-during-a-governm-1822318051>
 
 政府暂时恢复了的运作，但如果国会的谈判进展不顺利，三周内可能会再次关闭。在关闭期间，政府雇员和职责根据其重要性进行划分。例如， [联邦法院不会关闭](https://assets.documentcloud.org/documents/4355355/1-17-18-Duff-Memo-Shutdown.pdf) ，但 [NASA 的 Instagram](https://www.instagram.com/nasa/) 会关闭。那么，健康和安全机构会怎么样呢？
 

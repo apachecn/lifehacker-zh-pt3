@@ -1,6 +1,6 @@
 # 在你买新东西之前，先买你自己的东西
 
-> 原文:[https://life hacker . com/before-you-buy-something-new-shop-your-own-stuff-1826572488](https://lifehacker.com/before-you-buy-something-new-shop-your-own-stuff-1826572488)
+> 原文：<https://lifehacker.com/before-you-buy-something-new-shop-your-own-stuff-1826572488>
 
 大多数时候，省钱更多的是知道买什么不买什么，然后是把钱存起来。如果你像我一样是一个冲动购物者，这可能是个问题。这就是为什么我建议你先去一家特定的商店购物:你自己的商店。
 

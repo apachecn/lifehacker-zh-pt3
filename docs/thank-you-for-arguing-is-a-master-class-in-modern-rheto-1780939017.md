@@ -1,6 +1,6 @@
 # 谢谢你的辩论是现代修辞学的大师课
 
-> 原文:[https://life hacker . com/thank-you-for-arbiting-is-a master-class in-modern-rheto-1780939017](https://lifehacker.com/thank-you-for-arguing-is-a-master-class-in-modern-rheto-1780939017)
+> 原文：<https://lifehacker.com/thank-you-for-arguing-is-a-master-class-in-modern-rheto-1780939017>
 
 信息不足以赢得争论；他们是用花言巧语[解决的，说服的艺术。在*的《谢谢你争论*》中，作者杰伊·海因里希斯揭示了掌握修辞、识别逻辑谬误、通过说服获得你想要的东西以及防止争论演变成令人讨厌的打斗的秘密。](https://lifehacker.com/the-definitive-guide-to-winning-an-argument-1693076653) 
 

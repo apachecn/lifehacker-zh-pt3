@@ -1,6 +1,6 @@
 # 没有神奇的方法可以解决你的水下汽车贷款
 
-> 原文:[https://jalopnik . com/there ' s-no-magic-solution to-your ' s under-water-car-loan-1797332115](https://jalopnik.com/there-is-no-magic-solution-to-your-underwater-car-loan-1797332115)
+> 原文：<https://jalopnik.com/there-is-no-magic-solution-to-your-underwater-car-loan-1797332115>
 
 不幸的是，有些人负债累累。我经常收到那些汽车贷款陷入困境的人发来的电子邮件，大多数人都希望找到一些违背数学定律的解决方案。真正的答案是:没有真正的答案。
 

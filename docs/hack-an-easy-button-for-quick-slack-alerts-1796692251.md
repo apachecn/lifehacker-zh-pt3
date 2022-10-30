@@ -1,6 +1,6 @@
 # 破解一个“简单”按钮，快速发出松弛警报
 
-> 原文:[https://life hacker . com/hack-an-easy-button-for-quick-slack-alerts-1796692251](https://lifehacker.com/hack-an-easy-button-for-quick-slack-alerts-1796692251)
+> 原文：<https://lifehacker.com/hack-an-easy-button-for-quick-slack-alerts-1796692251>
 
 戴着耳机工作通常意味着你不想被打扰，但有时也意味着你只是在工作时听点东西。如果你想在罐头打开的情况下还能保持在线，为什么不自己设计一个提醒按钮呢？
 

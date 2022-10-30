@@ -1,6 +1,6 @@
 # 2018 年 9 月 17 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-septemb-1828813165](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1828813165)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1828813165>
 
 本周我最兴奋的是卡里·约吉·福永(*《无国之兽，真正的侦探》)的一部名为 *Maniac* 的古怪限量系列。*艾玛·斯通和乔纳·希尔作为病人开始了一项“令人困惑的药物试验”看起来他们把自己幻想成许多古怪的情况，允许许多不同的服装、假发和假肢，这总是一个好时机。
 

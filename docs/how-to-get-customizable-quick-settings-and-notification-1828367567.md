@@ -1,6 +1,6 @@
 # 如何在不更新到 Android Pie 的情况下获得可定制的快速设置和通知
 
-> 原文:[https://life hacker . com/how-to-get-customized-quick-settings-and-notification-1828367567](https://lifehacker.com/how-to-get-customizable-quick-settings-and-notification-1828367567)
+> 原文：<https://lifehacker.com/how-to-get-customizable-quick-settings-and-notification-1828367567>
 
 如果你已经升级到 Android Pie，你可能会在你的设备上发现许多新功能，以及一些新的视觉变化。最酷的变化之一是能够改变快速设置和通知显示菜单的外观、颜色和布局。
 

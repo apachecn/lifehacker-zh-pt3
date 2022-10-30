@@ -1,6 +1,6 @@
 # 这个互动工具可以帮助你制作更好的道歉
 
-> 原文:[https://life hacker . com/this-interactive-tool-helps-you-craft-better-apologies-1820886516](https://lifehacker.com/this-interactive-tool-helps-you-craft-better-apologies-1820886516)
+> 原文：<https://lifehacker.com/this-interactive-tool-helps-you-craft-better-apologies-1820886516>
 
 任何人都可以说出一些半吊子的道歉来挽回面子，但真正的道歉需要认真的自省、真诚，并专注于帮助受害者疗伤。这并不容易做到，但这个简单的互动工具可以帮助你。“很高兴你在这里，”当你加载它时，第一个屏幕上写着。很好。
 

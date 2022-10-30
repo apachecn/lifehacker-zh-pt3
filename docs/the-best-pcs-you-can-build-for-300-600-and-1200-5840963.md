@@ -1,6 +1,6 @@
 # 你能以 300 美元、600 美元和 1200 美元买到的最好的电脑
 
-> 原文:[https://life hacker . com/the-best-PCs-you-can-build-for-300-600-1200-5840963](https://lifehacker.com/the-best-pcs-you-can-build-for-300-600-and-1200-5840963)
+> 原文：<https://lifehacker.com/the-best-pcs-you-can-build-for-300-600-and-1200-5840963>
 
 我们之前已经 [带你构建了自己的计算机](https://lifehacker.com/how-to-build-a-computer-the-complete-guide-5828747) 。在这篇文章中，我们将随着价格和组件的变化定期更新，我们将带您了解三种不同系统版本所需的硬件:经济型工作站、功能强大的通用 PC 和面向游戏玩家和专业人士的发烧友系统。
 

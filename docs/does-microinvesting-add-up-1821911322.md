@@ -1,6 +1,6 @@
 # 微投资加起来怎么样？
 
-> 原文:[https://life hacker . com/does-micro investing-add-up-1821911322](https://lifehacker.com/does-microinvesting-add-up-1821911322)
+> 原文：<https://lifehacker.com/does-microinvesting-add-up-1821911322>
 
 过去几年，像 [Acorns](https://www.acorns.com/) 、 [Clink](https://clink.com/) 和 [Stas](https://www.stashinvest.com/) h 这样的微投资平台被预言为金融科技领域的下一个大事件，因为它们允许用户以极低的费用将小额资金投资于 ETF。但取决于你用它做什么，你可能更适合传统形式的银行和投资。
 

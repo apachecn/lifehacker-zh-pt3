@@ -1,6 +1,6 @@
 # 让债务“减免”成为你的最后手段
 
-> 原文:[https://life hacker . com/make-debt-relief-your-last-resort-1829548816](https://lifehacker.com/make-debt-relief-your-last-resort-1829548816)
+> 原文：<https://lifehacker.com/make-debt-relief-your-last-resort-1829548816>
 
 你应该相信债务减免公司吗？这就是我们这周要看的。
 

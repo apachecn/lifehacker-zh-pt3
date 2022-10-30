@@ -1,6 +1,6 @@
 # 秋季音响播放列表
 
-> 原文:[https://life hacker . com/the-autumn-acoustics-playlist-1786968971](https://lifehacker.com/the-autumn-acoustics-playlist-1786968971)
+> 原文：<https://lifehacker.com/the-autumn-acoustics-playlist-1786968971>
 
 这是秋天的第一天。树叶即将变成棕色，你的草坪很快就会被南瓜香料拿铁和万圣节服装弄得乱七八糟。现在是这个声学秋季歌曲播放列表的最佳时间。
 

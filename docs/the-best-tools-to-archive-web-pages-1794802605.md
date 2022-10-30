@@ -1,6 +1,6 @@
 # 归档网页的最佳工具
 
-> 原文:[https://life hacker . com/the-best-tools-to-archive-web-pages-1794802605](https://lifehacker.com/the-best-tools-to-archive-web-pages-1794802605)
+> 原文：<https://lifehacker.com/the-best-tools-to-archive-web-pages-1794802605>
 
 最近似乎很多网页从互联网上消失了。如果你想自己承担存档的责任，有各种各样的工具可以做到这一点。
 

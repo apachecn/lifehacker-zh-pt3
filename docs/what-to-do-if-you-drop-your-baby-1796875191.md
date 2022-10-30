@@ -1,6 +1,6 @@
 # 如果你掉了一个婴儿该怎么办
 
-> 原文:[https://life hacker . com/1796875191](https://lifehacker.com/what-to-do-if-you-drop-your-baby-1796875191)
+> 原文：<https://lifehacker.com/what-to-do-if-you-drop-your-baby-1796875191>
 
 当我打电话向儿科医生特里西娅·吉恩·戈尔德咨询时，她说:“尽量不要流产。”。
 

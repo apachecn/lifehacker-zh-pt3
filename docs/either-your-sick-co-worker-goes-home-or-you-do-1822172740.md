@@ -1,6 +1,6 @@
 # 要么你生病的同事回家，要么你回家
 
-> 原文:[https://life hacker . com/要么你生病的同事回家，要么你做什么 1822172740](https://lifehacker.com/either-your-sick-co-worker-goes-home-or-you-do-1822172740)
+> 原文：<https://lifehacker.com/either-your-sick-co-worker-goes-home-or-you-do-1822172740>
 
 如果你的同事拒绝请病假，个人理财网站 Money 有一个好主意: [自己请一天假以避免生病](http://time.com/money/5105463/how-to-avoid-flu-workplace/) 。
 

@@ -1,6 +1,6 @@
 # 你能说出 720 便士、1080 便士和 4K 的区别吗？这张图表可以告诉你
 
-> 原文:[https://life hacker . com/can-you-tell-the-difference-720 p-1080 p-and-4k-1731323537](https://lifehacker.com/can-you-tell-the-difference-between-720p-1080p-and-4k-1731323537)
+> 原文：<https://lifehacker.com/can-you-tell-the-difference-between-720p-1080p-and-4k-1731323537>
 
 当我 [为我的](https://lifehacker.com/the-hassle-free-guide-to-ripping-your-blu-ray-collectio-5559007) [家庭影院电脑](http://lifehacker.com/how-i-built-the-media-center-of-my-dreams-for-under-50-5936546) 翻录蓝光光盘 时，我总是在争论是翻录 720p 还是 1080p。我真的能看出区别吗？
 

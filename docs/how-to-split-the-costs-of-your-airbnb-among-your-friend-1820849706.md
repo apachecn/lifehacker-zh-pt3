@@ -1,6 +1,6 @@
 # 如何在朋友之间分摊 Airbnb 的费用
 
-> 原文:[https://life hacker . com/how-to-split-the-costs of-your-Airbnb-your-friend-1820849706](https://lifehacker.com/how-to-split-the-costs-of-your-airbnb-among-your-friend-1820849706)
+> 原文：<https://lifehacker.com/how-to-split-the-costs-of-your-airbnb-among-your-friend-1820849706>
 
 如果是你先付订金的话，和朋友一起预订度假会很有压力，而且会很贵。然而，有了 Airbnb 的新分期付款服务 ，你可以和你的旅伴一起分摊账单。现在，你可以在一个地方处理所有的事情，而不是独自承担所有的账单，然后等着你的朋友们把他们的那份卖给你。
 

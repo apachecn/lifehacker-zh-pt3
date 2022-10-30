@@ -1,6 +1,6 @@
 # 集思广益的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-brainstorm-new-ideas-1751904888](https://lifehacker.com/top-10-ways-to-brainstorm-new-ideas-1751904888)
+> 原文：<https://lifehacker.com/top-10-ways-to-brainstorm-new-ideas-1751904888>
 
 想法让世界运转，但想出伟大的想法并不总是容易的。这里有十种方法可以促使你的大脑让这些想法流动起来。
 

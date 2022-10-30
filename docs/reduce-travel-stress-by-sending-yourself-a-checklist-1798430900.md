@@ -1,6 +1,6 @@
 # 给自己发一份清单来减轻旅行压力
 
-> 原文:[https://life hacker . com/reduce-travel-stress-by-sending-yourself-a check list-1798430900](https://lifehacker.com/reduce-travel-stress-by-sending-yourself-a-checklist-1798430900)
+> 原文：<https://lifehacker.com/reduce-travel-stress-by-sending-yourself-a-checklist-1798430900>
 
 旅行应该是有趣和令人兴奋的，但是那种你正在忘记一些事情的恼人感觉会给你的准备工作增加不必要的压力。如果你想从开始打包行李到拎着行李箱出门的这段时间里消除这种感觉，你需要这份清单。
 

@@ -1,6 +1,6 @@
 # 为什么比特币的价格如此不稳定
 
-> 原文:[https://life hacker . com/why-bit coin-s-price-is-so-volatile-1822143846](https://lifehacker.com/why-bitcoin-s-price-is-so-volatile-1822143846)
+> 原文：<https://lifehacker.com/why-bitcoin-s-price-is-so-volatile-1822143846>
 
 2017 年， [比特币](https://lifehacker.com/how-to-get-your-money-out-of-bitcoin-1821536561) 的价值从 1000 美元飙升至略低于 2 万美元，然后在年底降至 13000 美元左右。从那以后，它的价值日复一日时涨时跌，像以太和涟漪一样拖着 [更小的加密货币](https://lifehacker.com/what-to-know-about-the-major-cryptocurrencies-besides-b-1821656104#_ga=2.220555290.36843354.1515976685-258269408.1513265580) 。
 

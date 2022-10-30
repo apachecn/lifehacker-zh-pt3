@@ -1,6 +1,6 @@
 # 亚马逊的 Kindle 是王者——我为什么要买另一款电子阅读器？
 
-> 原文:[https://gizmodo . com/amazons-kindle-is-king-why-I-buy-this-other-e-rea-1795875332](https://gizmodo.com/amazons-kindle-is-king-why-would-i-buy-this-other-e-rea-1795875332)
+> 原文：<https://gizmodo.com/amazons-kindle-is-king-why-would-i-buy-this-other-e-rea-1795875332>
 
 我有一场斗争。在过去的几周里，我一直在断断续续地使用新的 [Kobo Aura H2O](https://us.kobobooks.com/products/kobo-aura-h2o-edition-2) ，在上面阅读和在我的价格过高的 [超级光滑的亚马逊 Kindle Oasis](http://gizmodo.com/the-amazon-oasis-is-the-best-e-reader-ever-made-1773295033#_ga=2.82679764.379417500.1499430530-1084941878.1475162213) 上阅读之间切换。两者并不完全可比:Oasis 售价 290 美元，Kobo 售价 180 美元。但两者之间的巨大差异与价格无关，甚至与硬件无关——这归结于我如何在 Kobo 上获得书籍。当我把光环插入我的笔记本电脑，再次加载另一本书，再次，我真的被迫问自己，再次，为什么我要忍受这个？
 

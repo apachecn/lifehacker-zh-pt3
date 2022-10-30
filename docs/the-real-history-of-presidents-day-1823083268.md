@@ -1,6 +1,6 @@
 # 总统日的真实历史
 
-> 原文:[https://life hacker . com/the-real-history-of-presidents-day-1823083268](https://lifehacker.com/the-real-history-of-presidents-day-1823083268)
+> 原文：<https://lifehacker.com/the-real-history-of-presidents-day-1823083268>
 
 今天是总统日，一个在每年二月的第三个星期一庆祝的节日。这是一个向我们伟大国家的所有总统致敬的日子，但它最初是为了庆祝一位特别的总统。给你个提示:他砍倒了他爸的樱桃树(不算真的)，他有木牙，他像老板一样跨过特拉华河。
 

@@ -1,6 +1,6 @@
 # 为什么你应该喝盒装葡萄酒
 
-> 原文:[https://life hacker . com/why-you-should-being-boxed-wine-1794001928](https://lifehacker.com/why-you-should-be-drinking-boxed-wine-1794001928)
+> 原文：<https://lifehacker.com/why-you-should-be-drinking-boxed-wine-1794001928>
 
 盒装葡萄酒名声不好。人们看不起它，因为它不是装在漂亮的瓶子里，并且认为里面的东西又脏又便宜。虽然对一些品牌来说这可能是真的，但许多盒装葡萄酒和你在一顿美味的晚餐中喝的一样好，甚至更好。此外，它易于运输，保鲜时间更长，成本更低，对环境更好。
 

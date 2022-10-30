@@ -1,6 +1,6 @@
 # 使用这些平台付钱给艺术家(或获得报酬)
 
-> 原文:[https://life hacker . com/pay-artists-or-get-payed-using-these-platforms-1823013540](https://lifehacker.com/pay-artists-or-get-paid-using-these-platforms-1823013540)
+> 原文：<https://lifehacker.com/pay-artists-or-get-paid-using-these-platforms-1823013540>
 
 无论你是独立艺术家的粉丝，还是想赚点小钱的创作者，现在都是时候去寻找更多可以帮助你支持你热爱的工作(或者因为做你热爱的工作而得到支持)的网站了。当然，你可以买一件乐队的衬衫，或者从你最喜欢的水彩画家那里买一件艺术品，但是如果你想尽自己的一份力量帮助你最喜欢的饥饿艺术家填满他们的金库，这样他们就可以继续创作更多他们喜欢的东西，你可以使用这些网站来提供更稳定和安全的收入流。毕竟，一点一滴都有帮助。
 

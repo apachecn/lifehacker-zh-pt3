@@ -1,6 +1,6 @@
 # 这是一辆汽车可能遭受的最严重的小损坏
 
-> 原文:[https://jalopnik . com/this-is-the-worst-small-damage-a-car-can-have-1826006784](https://jalopnik.com/this-is-the-worst-small-damage-a-car-can-have-1826006784)
+> 原文：<https://jalopnik.com/this-is-the-worst-small-damage-a-car-can-have-1826006784>
 
 并不是你的车在使用过程中发生的所有事情都是大事。随着时间的推移，东西会坏掉。零件磨损。小事失败。我们要么忽视并接受它们，要么修复它们并继续前进。但是，有一点小规模的汽车损坏可能会导致生活变得糟糕，尽管相对来说不太重要:一个破碎的塑料门把手带来的尖锐而痛苦的嘲弄。
 

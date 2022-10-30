@@ -1,6 +1,6 @@
 # 为什么你应该在烹饪鸡胸肉之前捣碎它们
 
-> 原文:[https://life hacker . com/why-you-should-pound-the-cooking-the-1797903121](https://lifehacker.com/why-you-should-pound-chicken-breasts-before-cooking-the-1797903121)
+> 原文：<https://lifehacker.com/why-you-should-pound-chicken-breasts-before-cooking-the-1797903121>
 
 鸡胸肉不是很令人兴奋，但它们是一种多用途的蛋白质，具有非常健康的形象，因此人们倾向于购买和烹饪大量的鸡胸肉。不幸的是，它们不平衡的泪珠形状使它们很难煮熟，最后可能会有一块肉，一端多汁但没有味道，另一端又干又焦。
 

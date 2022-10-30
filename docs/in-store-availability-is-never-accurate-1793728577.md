@@ -1,6 +1,6 @@
 # 为什么“店内可用性”很少准确
 
-> 原文:[https://life hacker . com/in-store-avail ability-is-never-accurate-1793728577](https://lifehacker.com/in-store-availability-is-never-accurate-1793728577)
+> 原文：<https://lifehacker.com/in-store-availability-is-never-accurate-1793728577>
 
 几周前，我为了找一幅任天堂 Switch 的画，把自己逼疯了。我查看了一家又一家商店——总共 12 家——使用你在零售商网站上找到的“可用店内”列表作为我的指南。每个人都会说他们有几个游戏机可供争夺，但当我到了那里，什么也没有。所以我开始怀疑你是否真的可以相信商店网站上的商品供应。事实证明，答案是响亮的“不”
 

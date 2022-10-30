@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的美食
 
-> 原文:[https://life hacker . com/most-popular-food-hacks-of-2016-1789703291](https://lifehacker.com/most-popular-food-hacks-of-2016-1789703291)
+> 原文：<https://lifehacker.com/most-popular-food-hacks-of-2016-1789703291>
 
 食物很重要。无论你是否认为自己是一个“美食家”，你必须吃，每个人都可以使用如何更好、更快、更健康地吃和烹饪的技巧。以下是 2016 年我们最受欢迎的一些美食。
 

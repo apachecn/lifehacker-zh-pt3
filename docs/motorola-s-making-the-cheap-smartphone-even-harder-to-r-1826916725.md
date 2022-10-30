@@ -1,6 +1,6 @@
 # 摩托罗拉让廉价智能手机变得更加难以抗拒
 
-> 原文:[https://gizmodo . com/Motorola-s-making-the-price-smart phone-that-hard to-r-1826916725](https://gizmodo.com/motorola-s-making-the-cheap-smartphone-even-harder-to-r-1826916725)
+> 原文：<https://gizmodo.com/motorola-s-making-the-cheap-smartphone-even-harder-to-r-1826916725>
 
 苹果和三星会让你相信高质量的智能手机应该花费 [几百美元](https://gizmodo.com/protect-your-1-000-phone-with-actual-rocks-1823086563) 你必须牺牲才能得到他们的精致设备。但近年来，时间的推移已经让这种观念过时了。2012 年，一台 200 美元的设备几乎无法使用。但是现在呢？夏普屏幕便宜，快处理器更便宜。 [物美价廉的智能手机已经](https://gizmodo.com/the-triumph-of-the-cheap-phone-1724918486#_ga=2.9519029.1255309007.1529863636-1409107817.1528475388)多年！因此，[【250 美元】摩托罗拉 G6](https://www.motorola.com/us/products/moto-g-gen-6) 是该公司 [系列设备中最新的](https://gizmodo.com/moto-g-2014-review-a-phone-this-cheap-shouldnt-be-th-1635033146)[作为不可避免的](https://gizmodo.com/moto-g-review-2015-a-great-phone-doesnt-have-to-cos-1722509063) 的先兆:对每个人来说，相当好可能就足够好了。当然，它缺少一些细节，看起来像一个普通的塑料平板，但这些缺点很容易被忽略，因为价格不到 300 美元。我说过它有耳机插孔吗？
 

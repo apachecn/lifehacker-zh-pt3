@@ -1,6 +1,6 @@
 # 如何减少玩电子游戏的次数
 
-> 原文:[https://life hacker . com/how-I-cut-back-on-playing-video-games-1796340031](https://lifehacker.com/how-i-cut-back-on-playing-video-games-1796340031)
+> 原文：<https://lifehacker.com/how-i-cut-back-on-playing-video-games-1796340031>
 
 随着年龄的增长，你在生活中承担了更多的责任，你的游戏时间可能需要调整。游戏不一定要结束，但如果游戏妨碍了现实生活，是时候暂停了。以下是对我有效的方法。
 

@@ -1,6 +1,6 @@
 # 猫王的花生酱香蕉培根三明治可能是最棒的名人食谱
 
-> 原文:[https://the take out . com/recipe-Elvis-花生酱-香蕉-培根-三明治-1828317677](https://thetakeout.com/recipe-elvis-peanut-butter-banana-bacon-sandwich-1828317677)
+> 原文：<https://thetakeout.com/recipe-elvis-peanut-butter-banana-bacon-sandwich-1828317677>
 
 *在* [***名人食谱***](https://thetakeout.com/tag/celebrity-recipes) ***，**中，我们从一位过去或现在深受喜爱的明星那里入手一份最喜欢的食谱。*
 

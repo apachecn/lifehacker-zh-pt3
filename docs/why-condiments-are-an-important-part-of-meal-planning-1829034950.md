@@ -1,6 +1,6 @@
 # 让你想吃东西的调味品
 
-> 原文:[https://life hacker . com/why-调味品是膳食规划中重要的一部分-1829034950](https://lifehacker.com/why-condiments-are-an-important-part-of-meal-planning-1829034950)
+> 原文：<https://lifehacker.com/why-condiments-are-an-important-part-of-meal-planning-1829034950>
 
 一个膳食计划的成功只能通过它被消耗的百分比来判断。这听起来可能是显而易见的，但是一个好的饮食计划的执行需要计划好你想吃的食物。选择正确的蛋白质、蔬菜和配菜很重要，但选择正确的调味品——我指的是酱汁、腌泡汁和腌制食品——更是如此。
 

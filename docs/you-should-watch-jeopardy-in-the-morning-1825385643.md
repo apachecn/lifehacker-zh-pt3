@@ -1,6 +1,6 @@
 # 你应该看看《危险边缘》上午
 
-> 原文:[https://life hacker . com/you-should-watch-jeopardy-in-the-morning-1825385643](https://lifehacker.com/you-should-watch-jeopardy-in-the-morning-1825385643)
+> 原文：<https://lifehacker.com/you-should-watch-jeopardy-in-the-morning-1825385643>
 
 早上的例行公事是高度个人化的(也许把*看得太重了，*就像一个作家 [最近发现的](https://lifehacker.com/why-you-shouldnt-stir-your-coffee-1825323842#_ga=2.216353238.1186395594.1523885983-542336946.1523479293) )。然而，我们都同意早间电视没有提供我们应得的智力刺激。
 

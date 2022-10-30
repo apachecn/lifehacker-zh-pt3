@@ -1,6 +1,6 @@
 # 交换机上的堡垒之夜有内置的语音聊天，不需要应用程序
 
-> 原文:[https://kotaku . com/fort nite-on-switch-has-built-in-voice-chat-no-app-requ-1826771335](https://kotaku.com/fortnite-on-switch-has-built-in-voice-chat-no-app-requ-1826771335)
+> 原文：<https://kotaku.com/fortnite-on-switch-has-built-in-voice-chat-no-app-requ-1826771335>
 
 Switch 上的堡垒之夜将通过耳机接口支持语音聊天，而不是通过一些愚蠢的手机应用程序，就像一个普通的游戏一样。它目前还没有在 Epic 今天推出的流行游戏 battle royale 的 Switch 版本中提供，但将在周四提供。
 

@@ -1,6 +1,6 @@
 # iPhone 的最佳习惯追踪应用
 
-> 原文:[https://life hacker . com/the-best-habit-tracking-app-for-iphone-1791778063](https://lifehacker.com/the-best-habit-tracking-app-for-iphone-1791778063)
+> 原文：<https://lifehacker.com/the-best-habit-tracking-app-for-iphone-1791778063>
 
 [追踪你的习惯是一个很好的方式](http://lifehacker.com/why-you-should-be-tracking-your-habits-and-how-to-do-i-1702100388#_ga=1.208754834.1677193570.1484338149) 来关注你在各种自我提升目标上的进展，你在 iPhone 上有很多这样的应用程序。然而，当谈到性能和易用性时，我们喜欢高效，因为它将简单性与您想要看到的统计数据结合在一起。
 

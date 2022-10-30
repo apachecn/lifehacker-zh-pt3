@@ -1,6 +1,6 @@
 # 你应该为你孩子的未来开一个 529 或信托基金吗？
 
-> 原文:[https://life hacker . com/should-you-open-a-529-or-a-trust-fund-for-your-kids-fut-1826193276](https://lifehacker.com/should-you-open-a-529-or-a-trust-fund-for-your-kids-fut-1826193276)
+> 原文：<https://lifehacker.com/should-you-open-a-529-or-a-trust-fund-for-your-kids-fut-1826193276>
 
 大学是被高估了，还是仍然物有所值？如果太贵，除了 529 账户还有什么更好的选择来帮助你的孩子走向成功呢？这就是我们这周要看的。
 

@@ -1,6 +1,6 @@
 # 定制木质超宽工作空间
 
-> 原文:[https://life hacker . com/the-custom-wood-ultra wide-workspace-1765847806](https://lifehacker.com/the-custom-wood-ultrawide-workspace-1765847806)
+> 原文：<https://lifehacker.com/the-custom-wood-ultrawide-workspace-1765847806>
 
 在 [战场上，subreddit](https://www.reddit.com/r/battlestations/) ， [damienslash](https://www.reddit.com/user/damienslash) 向观众展示了他的新设置，包括一张漂亮的定制桌子，超宽显示器，以及其他一些我们可以真正了解的东西。
 

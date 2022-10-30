@@ -1,6 +1,6 @@
 # 预测辣椒辣度的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-way-to-predict-a-peppers-spice-level-1826499563](https://lifehacker.com/the-easiest-way-to-predict-a-peppers-spice-level-1826499563)
+> 原文：<https://lifehacker.com/the-easiest-way-to-predict-a-peppers-spice-level-1826499563>
 
 有些辣椒你知道会很辣(habaneros)，有些辣椒你知道不会辣(bell)，但也有些辣椒可能是温和的、辣的，或者“请把我的舌头从嘴里拿出来，放在一杯冰牛奶里。”幸运的是，有一种简单的方法可以预测辛辣的结果，而且它一直就在我们的眼皮底下。
 

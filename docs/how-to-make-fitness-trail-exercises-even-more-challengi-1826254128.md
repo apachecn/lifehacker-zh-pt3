@@ -1,6 +1,6 @@
 # 如何让健身步道练习更具挑战性
 
-> 原文:[https://life hacker . com/how-to-make-fitness-trail-exercises-even-more-challengei-1826254128](https://lifehacker.com/how-to-make-fitness-trail-exercises-even-more-challengi-1826254128)
+> 原文：<https://lifehacker.com/how-to-make-fitness-trail-exercises-even-more-challengi-1826254128>
 
 你可以从我们的 [健身步道挑战赛](https://vitals.lifehacker.com/find-a-fitness-trail-and-exercise-like-its-1992-1825718545) 中获得任何级别的锻炼，无论你找到什么装备。我们已经讨论了一些方法，如果你需要的话，你可以修改练习使之更简单，但是现在让我们来谈谈如何获得更大的挑战。
 

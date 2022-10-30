@@ -1,6 +1,6 @@
 # 用餐巾纸吸干比萨饼实际上减少了大量的卡路里
 
-> 原文:[https://life hacker . com/blotting-pizza-with a-nappy-actually-cuts-significant-1733613044](https://lifehacker.com/blotting-pizza-with-a-napkin-actually-cuts-significant-1733613044)
+> 原文：<https://lifehacker.com/blotting-pizza-with-a-napkin-actually-cuts-significant-1733613044>
 
 有两种人:用餐巾纸擦掉比萨油的人，因为他们不含卡路里，还有嘲笑第一种人的人。这能有多大的不同呢？
 

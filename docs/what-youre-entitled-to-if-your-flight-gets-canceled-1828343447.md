@@ -1,6 +1,6 @@
 # 如果你的航班被取消，你有权得到什么
 
-> 原文:[https://life hacker . com/what-you-entitled-if you ' s flight-gets-1828343447](https://lifehacker.com/what-youre-entitled-to-if-your-flight-gets-canceled-1828343447)
+> 原文：<https://lifehacker.com/what-youre-entitled-to-if-your-flight-gets-canceled-1828343447>
 
 取消的航班几乎总是意味着乘坐更晚的航班，这可能会导致错过您的转机，缩短您的假期，有时甚至会错过您最初乘坐航班参加的活动。
 

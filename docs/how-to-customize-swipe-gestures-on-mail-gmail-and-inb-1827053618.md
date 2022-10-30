@@ -1,6 +1,6 @@
 # 如何在邮件、Gmail 和收件箱上自定义滑动手势
 
-> 原文:[https://life hacker . com/how-to-customize-swipe-gestures-on-mail-Gmail-and-inb-1827053618](https://lifehacker.com/how-to-customize-swipe-gestures-on-mail-gmail-and-inb-1827053618)
+> 原文：<https://lifehacker.com/how-to-customize-swipe-gestures-on-mail-gmail-and-inb-1827053618>
 
 老实说，我不确定*在你最喜欢的电子邮件应用程序上*不同的滑动会做什么，因为每个应用程序都有点不同。而且有可能你不喜欢你最喜欢的电子邮件应用处理刷卡的方式。也许你宁愿删除邮件也不愿存档；也许你只是喜欢从一个方向滑过另一个方向。
 

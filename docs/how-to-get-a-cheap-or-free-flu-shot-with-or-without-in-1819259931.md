@@ -1,6 +1,6 @@
 # 如何免费注射流感疫苗，有无保险
 
-> 原文:[https://life hacker . com/how-to-get-a cheap-or-free-flu-shot with-or-not-in-1819259931](https://lifehacker.com/how-to-get-a-cheap-or-free-flu-shot-with-or-without-in-1819259931)
+> 原文：<https://lifehacker.com/how-to-get-a-cheap-or-free-flu-shot-with-or-without-in-1819259931>
 
 流感季节即将来临，今年注射流感疫苗比以往任何时候都更重要。尽管 [任何时候都比不做](https://vitals.lifehacker.com/is-there-an-optimal-time-to-get-your-flu-shot-this-year-1844907774) 好，但理想情况下你会在 10 月底之前搞定一个。因此，我们为您提供了最便宜、最简单的疫苗接种方法——无论有无保险——外加一些额外奖励。
 

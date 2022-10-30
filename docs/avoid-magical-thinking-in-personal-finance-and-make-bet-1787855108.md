@@ -1,6 +1,6 @@
 # 避免个人理财中的魔幻思维，制定更好的计划
 
-> 原文:[https://life hacker . com/avoid-magic-thinking-in-personal-finance-make-bet-1787855108](https://lifehacker.com/avoid-magical-thinking-in-personal-finance-and-make-bet-1787855108)
+> 原文：<https://lifehacker.com/avoid-magical-thinking-in-personal-finance-and-make-bet-1787855108>
 
 像大多数人一样，我喜欢幻想在我以后的生活中有一个阶段，在这个阶段，我所有的财务担忧都被解决了，我几乎可以用我的时间做任何我想做的事情。我每天都在徒步旅行，做一些志愿者工作，写一本小说，和我的妻子一起旅行，看望我在大学或成年的孩子，组织社区活动，和朋友玩很多棋盘游戏，阅读...我退休后想做的事情。
 

@@ -1,6 +1,6 @@
 # 换下我的嘈杂的旧电脑机箱风扇产生了巨大的差异
 
-> 原文:[https://kotaku . com/swapping-out-my-noise-old-PC-case-fans-made-a-big-diff-1825397401](https://kotaku.com/swapping-out-my-noisy-old-pc-case-fans-made-a-huge-diff-1825397401)
+> 原文：<https://kotaku.com/swapping-out-my-noisy-old-pc-case-fans-made-a-huge-diff-1825397401>
 
 通常当我听到“升级你的电脑”的时候，我会想到买一个新的 CPU 或显卡。但是有很多更小、更便宜的东西你可以升级，但仍然有很大的不同。比如:粉丝。
 

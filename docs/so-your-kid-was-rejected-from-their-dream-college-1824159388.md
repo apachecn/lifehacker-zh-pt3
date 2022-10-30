@@ -1,6 +1,6 @@
 # 所以你的孩子被他们梦想中的大学拒绝了
 
-> 原文:[https://life hacker . com/so-your-kid-are-rejected-from the dream-college-1824159388](https://lifehacker.com/so-your-kid-was-rejected-from-their-dream-college-1824159388)
+> 原文：<https://lifehacker.com/so-your-kid-was-rejected-from-their-dream-college-1824159388>
 
 信件滚滚而来， [庆祝活动刷爆互联网](https://www.cnn.com/videos/us/2018/03/24/college-acceptance-family-celebration-smith-hln-sot.hln) 。对于高中毕业生来说，等待他们申请的大学的回音，是一年中最令人伤脑筋的时候。
 

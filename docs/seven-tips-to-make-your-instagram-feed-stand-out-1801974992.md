@@ -1,6 +1,6 @@
 # 让你的 Instagram Feed 脱颖而出的七个技巧
 
-> 原文:[https://life hacker . com/seven-tips-to-make-your-insta gram-feed-stand-out-1801974992](https://lifehacker.com/seven-tips-to-make-your-instagram-feed-stand-out-1801974992)
+> 原文：<https://lifehacker.com/seven-tips-to-make-your-instagram-feed-stand-out-1801974992>
 
 你有 Instagram 已经有一段时间了，你会定期上传照片，但似乎没人在意。没有喜欢，没有关注，没有评论。嘘。试试这些建议吧，你这个可悲的 instagrammer you。
 

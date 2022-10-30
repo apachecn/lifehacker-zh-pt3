@@ -1,6 +1,6 @@
 # 假冒食品，以及如何识别它们
 
-> 原文:[https://life hacker . com/fake-foods-and-how-to-spot-them-1775663899](https://lifehacker.com/counterfeit-foods-and-how-to-spot-them-1775663899)
+> 原文：<https://lifehacker.com/counterfeit-foods-and-how-to-spot-them-1775663899>
 
 那个帕尔马干酪其实是木头，那个蜂蜜有玉米糖浆，那个蛋糕是骗人的。不能保证你在商店买的食物就是它所说的那样，所以如果你不想把钱浪费在假冒伪劣产品上，就要留意这些常见的可疑物。
 

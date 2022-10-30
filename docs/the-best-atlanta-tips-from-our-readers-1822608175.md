@@ -1,6 +1,6 @@
 # 来自我们读者的最佳亚特兰大贴士
 
-> 原文:[https://life hacker . com/the-best-Atlanta-tips-from-our-readers-1822608175](https://lifehacker.com/the-best-atlanta-tips-from-our-readers-1822608175)
+> 原文：<https://lifehacker.com/the-best-atlanta-tips-from-our-readers-1822608175>
 
 本周一，亚特兰大的读者在我们的黑客城市请求 上发表了近 150 条评论，我们在最初的评论帖子中突出了最好的。这里有一个关于这座城市的有用而巧妙的集锦，当地人不叫它 Hotlanta。
 

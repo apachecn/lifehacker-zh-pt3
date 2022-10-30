@@ -1,6 +1,6 @@
 # 什么时候长叶莴苣可以安全食用？
 
-> 原文:[https://life hacker . com/when-will-romaine-莴苣可以安全食用吗-1825897865](https://lifehacker.com/when-will-romaine-lettuce-be-safe-to-eat-1825897865)
+> 原文：<https://lifehacker.com/when-will-romaine-lettuce-be-safe-to-eat-1825897865>
 
 疾控中心仍在寻找因感染与生菜有关的大肠杆菌而患病的人，这一周又增加了 12 人，使总数达到 149 人，1 人死亡。但很有可能，你杂货店里的生菜可能是安全的。
 

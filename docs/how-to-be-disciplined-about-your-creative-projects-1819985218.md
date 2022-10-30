@@ -1,6 +1,6 @@
 # 如何约束你的创意项目
 
-> 原文:[https://life hacker . com/how-to-discipline-about-your ' s creative-projects-1819985218](https://lifehacker.com/how-to-be-disciplined-about-your-creative-projects-1819985218)
+> 原文：<https://lifehacker.com/how-to-be-disciplined-about-your-creative-projects-1819985218>
 
 当我在一个创意写作 MFA 项目中时，每次一个访问作者来校园给我们演讲，一个学生不可避免地在问答中问，“那么，你的过程是什么？”
 

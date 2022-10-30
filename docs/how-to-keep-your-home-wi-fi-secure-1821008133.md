@@ -1,6 +1,6 @@
 # 如何让你的家庭无线网络免受黑客攻击
 
-> 原文:[https://gizmodo . com/how-to-keep-your-home-wi-fi-secure-1821008133](https://gizmodo.com/how-to-keep-your-home-wi-fi-secure-1821008133)
+> 原文：<https://gizmodo.com/how-to-keep-your-home-wi-fi-secure-1821008133>
 
 你可能不会太在意它，但你的路由器是你家中最重要的小工具之一——没有它，你的笔记本电脑、手机和所有其他联网设备就没有 wi-fi。
 

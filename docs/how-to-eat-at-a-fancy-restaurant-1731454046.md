@@ -1,6 +1,6 @@
 # 如何在高级餐厅用餐
 
-> 原文:[https://deadspin . com/how-to-eat-at-a-fancy-restaurant-1731454046](https://deadspin.com/how-to-eat-at-a-fancy-restaurant-1731454046)
+> 原文：<https://deadspin.com/how-to-eat-at-a-fancy-restaurant-1731454046>
 
 在你生命中的某个时刻，你将不得不在餐桌上的叉子比衣柜里的领带还多的餐厅吃饭。这是一个令人望而生畏的前景，但还是顺其自然吧。你会没事的。我们制作了这个视频作为你的向导。
 

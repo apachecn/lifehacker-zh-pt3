@@ -1,6 +1,6 @@
 # 评论一个令人讨厌的脸书帖子不会让它消失
 
-> 原文:[https://life hacker . com/commenting-on-an-angry-Facebook-post-wont-make-it-go-1823076985](https://lifehacker.com/commenting-on-an-annoying-facebook-post-wont-make-it-go-1823076985)
+> 原文：<https://lifehacker.com/commenting-on-an-annoying-facebook-post-wont-make-it-go-1823076985>
 
 脸书今年又一次彻底改革了它的新闻订阅，承诺专注于“ [时间的充分利用](https://www.facebook.com/zuck/posts/10104413015393571) ”以及来自家人和朋友的帖子，但是一篇新的 [BuzzFeed 文章](https://www.buzzfeed.com/katienotopoulos/how-i-cracked-facebooks-new-algorithm-and-tortured-my?utm_term=.mlYl7z6xn4#.qqZ1GnKYDX) 显示出这个社交网络一如既往地令人讨厌。唯一不同的是，脸书有了一种衡量帖子受欢迎程度的新方法:评论。
 

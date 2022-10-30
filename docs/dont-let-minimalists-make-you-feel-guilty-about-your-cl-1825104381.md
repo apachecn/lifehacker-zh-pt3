@@ -1,6 +1,6 @@
 # 不要让极简主义者让你对你的“杂乱”感到内疚
 
-> 原文:[https://life hacker . com/dont-let-minimalists-make-you-feel-on-your-cl-1825104381](https://lifehacker.com/dont-let-minimalists-make-you-feel-guilty-about-your-cl-1825104381)
+> 原文：<https://lifehacker.com/dont-let-minimalists-make-you-feel-guilty-about-your-cl-1825104381>
 
 自从玛丽·近藤(Marie Kondo)席卷了这个杂乱的世界，简单地拥有一些东西似乎就成了一种失礼。有数不清的指南告诉我们需要精简壁橱，把我们的藏书削减到只给我们带来“快乐”的程度，不管那意味着什么。我最近读了一篇文章，宣称最佳极简工作空间甚至不包括桌子、纸张或电脑——理想情况下，你只是坐在地上思考。当我环顾我的桌子，上面摆满了书、日记、笔和家人朋友的照片时，我不禁对我所有的财产感到一丝羞愧。我真的需要 10 包的夏普吗？我为即将到来的旅行买的两本新小说给我带来快乐了吗？
 

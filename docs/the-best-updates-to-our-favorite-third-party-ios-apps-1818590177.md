@@ -1,6 +1,6 @@
 # 我们最喜爱的第三方 iOS 应用程序的最佳更新
 
-> 原文:[https://life hacker . com/the-best-updates-to-our-favorite-third-party-IOs-apps-1818590177](https://lifehacker.com/the-best-updates-to-our-favorite-third-party-ios-apps-1818590177)
+> 原文：<https://lifehacker.com/the-best-updates-to-our-favorite-third-party-ios-apps-1818590177>
 
 [你可能还不想升级到 iOS 11](https://lifehacker.com/here-s-why-you-should-wait-to-download-ios-11-1818525026)，但是你应该更新这些顶级的 iOS 应用。
 

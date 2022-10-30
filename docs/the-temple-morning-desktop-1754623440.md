@@ -1,6 +1,6 @@
 # 寺庙晨光桌面
 
-> 原文:[https://life hacker . com/the-temple-morning-desktop-1754623440](https://lifehacker.com/the-temple-morning-desktop-1754623440)
+> 原文：<https://lifehacker.com/the-temple-morning-desktop-1754623440>
 
 这个桌面可能看起来不怎么样，但这正是它如此伟大的原因。它*实际上是*定制的，但只是以正确的方式，并且以最适合 [影夜](http://kinja.com/shadownight) 的方式，他们将它提交给了我们的桌面展示。它是这样工作的。
 

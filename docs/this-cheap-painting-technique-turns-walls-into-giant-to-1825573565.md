@@ -1,6 +1,6 @@
 # 这种廉价的绘画技术将墙壁变成了巨大的触摸传感器
 
-> 原文:[https://gizmodo . com/this-cheap-painting-technique-turns-walls-into-giant-to 1825573565](https://gizmodo.com/this-cheap-painting-technique-turns-walls-into-giant-to-1825573565)
+> 原文：<https://gizmodo.com/this-cheap-painting-technique-turns-walls-into-giant-to-1825573565>
 
 你房子的墙壁支撑着屋顶，给你的家人一些隐私，也许还能提供一个悬挂艺术品的地方。但是迪士尼 和卡耐基梅隆大学的研究人员想出了一个让墙壁做更多事情的方法。一种廉价的油漆处理将它们变成了巨大的传感器，创造了一种通过在智能家居中走动来与智能家居互动的新方式。
 

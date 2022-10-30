@@ -1,6 +1,6 @@
 # 脸书现在既送食物又送选举
 
-> 原文:[https://life hacker . com/Facebook-delives-both-food-and-elections-now-1819456100](https://lifehacker.com/facebook-delivers-both-food-and-elections-now-1819456100)
+> 原文：<https://lifehacker.com/facebook-delivers-both-food-and-elections-now-1819456100>
 
 提醒你朋友的生日，告诉你哪个亲戚是种族主义者，干涉全球地缘政治...真的没有什么是脸书不能做的。他们追求独占你注意力的下一步:送餐。
 

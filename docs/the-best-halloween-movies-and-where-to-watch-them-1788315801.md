@@ -1,6 +1,6 @@
 # 最好的万圣节电影以及去哪里看
 
-> 原文:[https://life hacker . com/the-best-Halloween-movies-and-where-to-watch-them-1788315801](https://lifehacker.com/the-best-halloween-movies-and-where-to-watch-them-1788315801)
+> 原文：<https://lifehacker.com/the-best-halloween-movies-and-where-to-watch-them-1788315801>
 
 如果你想在这个万圣节给你的家人施一个娱乐魔法，别再犹豫了。除了糖果和爆米花之类的一些东西，这些电影就是你所需要的。
 

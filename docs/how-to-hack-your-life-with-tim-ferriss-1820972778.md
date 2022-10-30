@@ -1,6 +1,6 @@
 # 蒂姆·费里斯的《如何改变你的生活》
 
-> 原文:[https://life hacker . com/how-to-hack-your-life with-Tim-ferriss-1820972778](https://lifehacker.com/how-to-hack-your-life-with-tim-ferriss-1820972778)
+> 原文：<https://lifehacker.com/how-to-hack-your-life-with-tim-ferriss-1820972778>
 
 在这一集里，我们采访了蒂姆·费里斯，他是作家、播客、投资者、企业家，并自称为“人类豚鼠”他是几本书的作者，包括纽约时报畅销书排行榜第一名[四小时身体](https://www.amazon.com/4-Hour-Body-Uncommon-Incredible-Superhuman-ebook/dp/B003EI2EH2/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-hack-your-life-with-tim-ferriss-1820972778&asc_source=&ie=UTF8&keywords=the four hour body&qid=1512397444&sr=8-1&tag=kinjalifehackerlink-20) 和他的最新作品 [导师部落](https://www.amazon.com/Tribe-Mentors-Short-Advice-World-ebook/dp/B071KJ7PTB/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-hack-your-life-with-tim-ferriss-1820972778&asc_source=&ie=UTF8&keywords=tribe of mentors&qid=1512397470&s=digital-text&sr=1-1&tag=kinjalifehackerlink-20) 。我们与 Tim 讨论了他最值得投资和最大的失败，他最有价值的 100 美元以下和 10，000 美元以上的购买，以及哪些信念和行为最大地改善了他的生活。
 

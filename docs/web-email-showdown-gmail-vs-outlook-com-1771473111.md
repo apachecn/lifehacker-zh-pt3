@@ -1,6 +1,6 @@
 # 网络邮件摊牌:Gmail vs . Outlook.com
 
-> 原文:[https://life hacker . com/we B- email-摊牌-Gmail-vs-outlook-com-1771473111](https://lifehacker.com/web-email-showdown-gmail-vs-outlook-com-1771473111)
+> 原文：<https://lifehacker.com/web-email-showdown-gmail-vs-outlook-com-1771473111>
 
 很难想象电子邮件前面没有一个 G。尽管 Gmail 被誉为互联网上最好的电子邮件服务之一，但微软的 Outlook.com 在过去几年将自己打造成为一个有竞争力的竞争对手。在今天的摊牌中，我们对这两个电子邮件巨头进行了测试。
 

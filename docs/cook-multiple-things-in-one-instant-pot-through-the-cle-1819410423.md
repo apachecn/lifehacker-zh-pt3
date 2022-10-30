@@ -1,6 +1,6 @@
 # 巧妙利用三脚架，在一口锅里烹饪多种食物
 
-> 原文:[https://life hacker . com/cook-multiple-things-in-one-instant-pot-through-the-cle-1819410423](https://lifehacker.com/cook-multiple-things-in-one-instant-pot-through-the-cle-1819410423)
+> 原文：<https://lifehacker.com/cook-multiple-things-in-one-instant-pot-through-the-cle-1819410423>
 
 速食锅可能是一个多功能锅，但它的大部分功能都集中在一次一种食物上，通常效果很好。这很好，但实际上你可以在你的速溶锅里同时烹饪两种不同的食物——比如说，一种主菜是肉，另一种是淀粉。你只需要一个三脚架。
 

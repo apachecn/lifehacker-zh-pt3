@@ -1,6 +1,6 @@
 # 下午 3 点喂你的孩子晚餐
 
-> 原文:[https://life hacker . com/feed-your-kid-dinner-at-3-p-m-1823555290](https://lifehacker.com/feed-your-kid-dinner-at-3-p-m-1823555290)
+> 原文：<https://lifehacker.com/feed-your-kid-dinner-at-3-p-m-1823555290>
 
 学龄儿童会有一段肠胃混乱的时期，这段时间是每个工作日的下午 3 点到 6 点。下午 3 点左右，当许多孩子走出学校时，他们会感到饥饿。当我女儿在车里扣好安全带时，她像只悲伤的鸽子一样看着我，乞求道，“*点心。*有零食吗？”(也很高兴见到你，孩子！)
 

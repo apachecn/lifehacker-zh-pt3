@@ -1,6 +1,6 @@
 # 为什么你不应该指定你的赈灾捐款
 
-> 原文:[https://life hacker . com/why-you-should-earch-your-disaster-relief-捐赠-1818664111](https://lifehacker.com/why-you-shouldn-t-earmark-your-disaster-relief-donation-1818664111)
+> 原文：<https://lifehacker.com/why-you-shouldn-t-earmark-your-disaster-relief-donation-1818664111>
 
 现在情况…不太好。飓风季节袭击了加勒比海，地震困扰着墨西哥，太平洋西北部着火了。可以理解的是，你想要帮助，通常最好的帮助方式是向救援组织捐款。似乎最好的办法是将你的资金专门用于你正在应对的特定紧急情况——毕竟，这就是你捐款的原因。但首先，考虑一下这个:
 

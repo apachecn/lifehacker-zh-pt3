@@ -1,6 +1,6 @@
 # 利用夏令时来改变一个习惯
 
-> 原文:[https://life hacker . com/use-daylight-saving-time-to-change-one-habit-1823697198](https://lifehacker.com/use-daylight-saving-time-to-change-one-habit-1823697198)
+> 原文：<https://lifehacker.com/use-daylight-saving-time-to-change-one-habit-1823697198>
 
 无论我们是向前跳跃还是向后倒退，一年两次的时间转换充其量是一种令人不安的体验——但改变时钟也给了我们一个现成的改变自己的机会。
 

@@ -1,6 +1,6 @@
 # 《如何征服 Reddit 》,本·布洛克·约翰逊主持
 
-> 原文:[https://life hacker . com/how-to-concurve-Reddit-with-endless-thread-host-Ben-bro-1823186043](https://lifehacker.com/how-to-conquer-reddit-with-endless-thread-host-ben-bro-1823186043)
+> 原文：<https://lifehacker.com/how-to-conquer-reddit-with-endless-thread-host-ben-bro-1823186043>
 
 在最新一集的升级中，我们谈论的是自称为“互联网首页”的大型在线社区，被称为[【Reddit】](http://www.reddit.com)。对一些人来说，Reddit 是第二个家，是一个与志同道合的朋友和敌人一起闲逛、发布链接、聊天和说垃圾话的地方。对于其他人来说，这是一个令人困惑的兔子窝，有着自己怪异的规则和礼仪，是一个充满狂热爱好者和巨魔的蜂巢，是一种压倒一切的好奇心，他们可能会不时地去参观，但谁有时间去学习导航本质上是一个复杂的留言板系统呢？
 

@@ -1,6 +1,6 @@
 # 2018 年 8 月 6 日这一周，网飞有什么动静
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-August-1827970711](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1827970711)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1827970711>
 
 Watch
 

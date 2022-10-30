@@ -1,6 +1,6 @@
 # 除了“陌生人的危险”,还能教孩子什么
 
-> 原文:[https://life hacker . com/what-to-teach-kids-instead-of-stranger-danger-1824126614](https://lifehacker.com/what-to-teach-kids-instead-of-stranger-danger-1824126614)
+> 原文：<https://lifehacker.com/what-to-teach-kids-instead-of-stranger-danger-1824126614>
 
 小时候，有一次我在购物中心的美食广场，一个哑剧演员正在为所有的孩子制作动物气球。他把一管乳胶吹爆，拧成一只小狗，递给我。我谢过他，跑去骄傲地给坐在附近桌子旁的爸爸妈妈看。
 

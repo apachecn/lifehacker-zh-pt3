@@ -1,6 +1,6 @@
 # 斯多葛派的育儿建议
 
-> 原文:[https://life hacker . com/parenting-advice-from-the-stoics-1798673788](https://lifehacker.com/parenting-advice-from-the-stoics-1798673788)
+> 原文：<https://lifehacker.com/parenting-advice-from-the-stoics-1798673788>
 
 伟大的斯多葛派历史哲学家可能不知道在这个时代抚养一个孩子会是什么样子，但他们仍然有一些伟大的智慧与现代父母分享。
 

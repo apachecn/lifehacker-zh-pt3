@@ -1,6 +1,6 @@
 # 为什么选举纪念日对你打击这么大
 
-> 原文:[https://life hacker . com/why-the-election-周年纪念日这么难打你-1820224888](https://lifehacker.com/why-the-election-anniversary-is-hitting-you-so-hard-1820224888)
+> 原文：<https://lifehacker.com/why-the-election-anniversary-is-hitting-you-so-hard-1820224888>
 
 树叶在变，天气越来越凉，过早的圣诞装饰品在每个商店都出现了。如果你发现比平时更难享受你的季节性拿铁咖啡——或者，就此而言，起床——这可能是因为日历上的日期。不是季节性抑郁，而是另一个不太为人所知的现象:周年纪念反应。
 

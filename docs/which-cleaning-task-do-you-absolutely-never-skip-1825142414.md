@@ -1,6 +1,6 @@
 # 哪项清洁任务是你绝对不会跳过的？
 
-> 原文:[https://life hacker . com/which-cleaning-task-do-you-absolute-never-skip-1825142414](https://lifehacker.com/which-cleaning-task-do-you-absolutely-never-skip-1825142414)
+> 原文：<https://lifehacker.com/which-cleaning-task-do-you-absolutely-never-skip-1825142414>
 
 当谈到保持我们的家整洁时，不同的人有非常不同的门槛，一个人的“小疏忽”可能是另一个人的“不可原谅的肮脏”就我个人而言，我可以对满是盘子的水槽视而不见，但是离开的时候我的床还没整理好，这让我有一种皮肤下有虫子的感觉，这种感觉会持续一整天。另一方面，我曾经有过一个室友，他在用完盘子的第一秒就小心翼翼地洗碗——这是我一直试图养成的习惯，但失败了。
 

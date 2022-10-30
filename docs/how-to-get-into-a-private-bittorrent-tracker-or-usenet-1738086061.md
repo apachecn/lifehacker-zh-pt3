@@ -1,6 +1,6 @@
 # 如何进入一个私人的 BitTorrent 跟踪器或新闻组索引器
 
-> 原文:[https://life hacker . com/how-to-get-to-a-private-BitTorrent-tracker-or-usenet-1738086061](https://lifehacker.com/how-to-get-into-a-private-bittorrent-tracker-or-usenet-1738086061)
+> 原文：<https://lifehacker.com/how-to-get-into-a-private-bittorrent-tracker-or-usenet-1738086061>
 
 说到在 BitTorrent 和新闻组上共享文件，没有比私人追踪器和索引器更好的了。但是根据定义，他们是非常排外的，所以你不能在前门大摇大摆地走。以下是如何访问最好的私人文件共享社区。
 

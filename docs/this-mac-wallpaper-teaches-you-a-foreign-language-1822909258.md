@@ -1,6 +1,6 @@
 # 从此 Mac 壁纸学习外语
 
-> 原文:[https://life hacker . com/this-MAC-wallpaper-teaches-you-a-foreign-language-1822909258](https://lifehacker.com/this-mac-wallpaper-teaches-you-a-foreign-language-1822909258)
+> 原文：<https://lifehacker.com/this-mac-wallpaper-teaches-you-a-foreign-language-1822909258>
 
 有许多在线服务可以帮助你通过日常练习尝试并掌握一门新语言。我目前正在 Duolingo 网站上努力学习法语，试图找回我在学校学了八年，显然已经忘记的法语。
 

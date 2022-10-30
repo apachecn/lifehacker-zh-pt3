@@ -1,6 +1,6 @@
 # 我是《生活黑客》的主编梅丽莎·柯尔施，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Melissa-Kirsch-life hacker-edit-in-chief-and-this-1829150849](https://lifehacker.com/im-melissa-kirsch-lifehacker-editor-in-chief-and-this-1829150849)
+> 原文：<https://lifehacker.com/im-melissa-kirsch-lifehacker-editor-in-chief-and-this-1829150849>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是梅丽莎·柯尔施，这是我的工作方式。
 

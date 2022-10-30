@@ -1,6 +1,6 @@
 # 如何让股票不平淡无奇
 
-> 原文:[https://life hacker . com/how-to-make-stock-that-not-bland-废话-1820626531](https://lifehacker.com/how-to-make-stock-that-isnt-bland-nonsense-1820626531)
+> 原文：<https://lifehacker.com/how-to-make-stock-that-isnt-bland-nonsense-1820626531>
 
 股票是这么多食谱的支柱。无论是用作米饭或豆类的烹饪液体，还是作为汤料或肉汁的基础，原料的质量都会影响最终菜肴的质量。虽然这并不难做，但你可以做一些调整，确保你的汤汁丰富可口，一点也不油腻。
 

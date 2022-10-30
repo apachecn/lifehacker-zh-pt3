@@ -1,6 +1,6 @@
 # 如何快速为你的产品去籽、切碎和去皮
 
-> 原文:[https://life hacker . com/how-to-fast-deseed-chop-and-peel-your-product-1762946555](https://lifehacker.com/how-to-quickly-deseed-chop-and-peel-your-produce-1762946555)
+> 原文：<https://lifehacker.com/how-to-quickly-deseed-chop-and-peel-your-produce-1762946555>
 
 当你只想做饭的时候，准备食物会占用你在厨房的很多时间，但是有很多快速的方法可以将水果和蔬菜去皮、切碎和去籽，这样你就可以做饭了。
 

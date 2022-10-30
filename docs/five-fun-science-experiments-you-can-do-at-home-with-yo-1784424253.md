@@ -1,6 +1,6 @@
 # 你可以在家和孩子一起做的五个有趣的科学实验
 
-> 原文:[https://life hacker . com/five-fun-science-experiments-you-can-do-in-home-with-yo-1784424253](https://lifehacker.com/five-fun-science-experiments-you-can-do-at-home-with-yo-1784424253)
+> 原文：<https://lifehacker.com/five-fun-science-experiments-you-can-do-at-home-with-yo-1784424253>
 
 你已经开始了你的暑假旅行，外面太热了，什么都不能做，孩子们也厌倦了图书馆。这是在家进行科学实验的最佳时机。即使你没有孩子，这五个实验也很有趣，但是如果你有，那就更有理由花一个下午去探索科学。
 

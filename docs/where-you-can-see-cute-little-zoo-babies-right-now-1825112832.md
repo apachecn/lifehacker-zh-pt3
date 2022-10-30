@@ -1,6 +1,6 @@
 # 你现在可以看到可爱的动物园小宝宝
 
-> 原文:[https://life hacker . com/where-you-can-see-cute-little-zoo-babies-right-now-1825112832](https://lifehacker.com/where-you-can-see-cute-little-zoo-babies-right-now-1825112832)
+> 原文：<https://lifehacker.com/where-you-can-see-cute-little-zoo-babies-right-now-1825112832>
 
 有什么比近距离观察不可思议的动物更好的呢？近距离观看不可思议的可爱小动物！这些快乐的小包裹，可以在全国和世界各地的动物园找到，让我像 K-Ci & JoJo 一样唱着，“宝贝宝贝，宝贝宝贝，宝贝宝贝，宝贝宝贝……”
 

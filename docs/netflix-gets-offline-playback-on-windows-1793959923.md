@@ -1,6 +1,6 @@
 # 现在你可以在 Windows 上离线观看网飞了
 
-> 原文:[https://life hacker . com/网飞-gets-offline-playback-on-windows-1793959923](https://lifehacker.com/netflix-gets-offline-playback-on-windows-1793959923)
+> 原文：<https://lifehacker.com/netflix-gets-offline-playback-on-windows-1793959923>
 
 如果你是那种只想在飞行时放松一下，用笔记本电脑看电影的人，这是个好消息。Windows 10 的网飞应用程序现在支持离线播放，这意味着你可以下载节目和电影，并在没有 Wi-Fi 的时候保存它们。
 

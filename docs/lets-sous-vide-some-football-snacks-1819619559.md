@@ -1,6 +1,6 @@
 # 让我们储存一些足球零食吧
 
-> 原文:[https://life hacker . com/let-sous-vide-some-football-snacks-1819619559](https://lifehacker.com/lets-sous-vide-some-football-snacks-1819619559)
+> 原文：<https://lifehacker.com/lets-sous-vide-some-football-snacks-1819619559>
 
 大家好，欢迎回到另一个为 [*挑选话题的环节。*](http://lifehacker.com/tag/will-it-sous-vide) ，列在那里我用我的沉浸循环器做任何你想让我做的事。
 

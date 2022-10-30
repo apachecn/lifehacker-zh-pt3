@@ -1,6 +1,6 @@
 # 你发明过哪些家庭仪式？
 
-> 原文:[https://life hacker . com/what-family-rituals-have-you-invented-1821540363](https://lifehacker.com/what-family-rituals-have-you-invented-1821540363)
+> 原文：<https://lifehacker.com/what-family-rituals-have-you-invented-1821540363>
 
 当我的女儿大约一岁半的时候，我发现自己在疯狂地寻找。
 

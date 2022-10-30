@@ -1,6 +1,6 @@
 # 当你意识到自己是个伪君子时该如何应对
 
-> 原文:[https://life hacker . com/how-to-cope-when-you-aware-you-a-pseudo-1829522417](https://lifehacker.com/how-to-cope-when-you-realize-youre-a-hypocrite-1829522417)
+> 原文：<https://lifehacker.com/how-to-cope-when-you-realize-youre-a-hypocrite-1829522417>
 
 天啊，对任何事情都保持正义的感觉真好。如此确信你的道德罗盘和信仰体系。难怪人们拒绝看到自己的虚伪。它破坏了高潮。
 

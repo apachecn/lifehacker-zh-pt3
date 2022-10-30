@@ -1,6 +1,6 @@
 # 它会腐烂吗？来自任何奶酪的融化的奶酪沙司
 
-> 原文:[https://life hacker . com/will-it-sous-vide-melty-cheese-sauce-from-any-cheese-1791944142](https://lifehacker.com/will-it-sous-vide-melty-cheese-sauce-from-any-cheese-1791944142)
+> 原文：<https://lifehacker.com/will-it-sous-vide-melty-cheese-sauce-from-any-cheese-1791944142>
 
 大家好，欢迎回到特别伤感的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide#_ga=1.149509310.949419976.1446553382) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

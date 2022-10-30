@@ -1,6 +1,6 @@
 # 为什么你不应该害怕黑寡妇蜘蛛
 
-> 原文:[https://life hacker . com/why-you-should-not-fear-the-black-widow-spider-1819280993](https://lifehacker.com/why-you-shouldnt-fear-the-black-widow-spider-1819280993)
+> 原文：<https://lifehacker.com/why-you-shouldnt-fear-the-black-widow-spider-1819280993>
 
 蜘蛛——尤其是像黑寡妇这样著名的有毒品种——是很多人最害怕的。但是除非你非常不幸，否则真的没有必要害怕他们。
 

@@ -1,6 +1,6 @@
 # 请教专家:都是关于年终财务变动的
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-year-end-financial-moves-1741465185](https://lifehacker.com/ask-an-expert-all-about-year-end-financial-moves-1741465185)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-year-end-financial-moves-1741465185>
 
 信不信由你，我们已经进入了 2015 年的最后冲刺阶段，是时候开始考虑你需要在年底前做出的任何财务决定了。无论你是想在税收上省钱，还是在计划假期将如何影响你的财务，是时候问一些问题了。
 

@@ -1,6 +1,6 @@
 # 煮饭摊牌:炉灶与电饭煲
 
-> 原文:[https://life hacker . com/rice-cooking-download-stove top-vs-a-饭锅-1791403726](https://lifehacker.com/rice-cooking-showdown-stovetop-vs-a-rice-cooker-1791403726)
+> 原文：<https://lifehacker.com/rice-cooking-showdown-stovetop-vs-a-rice-cooker-1791403726>
 
 从小到大，我们家的电饭煲就像冰箱或厨房的水槽一样，是我们的主食。我从来没有想到过*没有*有。作为一个成年人，我注意到朋友们在炉子上的锅里煮饭。这没什么错，但是让我们看看哪种方法能让你得到最简单且持续最好的大米。
 

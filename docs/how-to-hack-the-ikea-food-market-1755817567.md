@@ -1,6 +1,6 @@
 # 如何侵入宜家食品市场
 
-> 原文:[https://life hacker . com/how-to-hack-the-IKEA-food-market-1755817567](https://lifehacker.com/how-to-hack-the-ikea-food-market-1755817567)
+> 原文：<https://lifehacker.com/how-to-hack-the-ikea-food-market-1755817567>
 
 我一直喜欢宜家，不仅仅是因为我大学时代的单元或者我此刻坐的小桌子，我还喜欢他们的*食物*。没有肉丸的瑞典超市之旅是不完整的，但他们的市场同样值得一去。
 

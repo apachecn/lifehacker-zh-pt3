@@ -1,6 +1,6 @@
 # 我是迈克·罗伊，有人必须做的主持人，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Mike-Rowe-host-of-someobody ' s-gotta-do-it-this-I-1732396215](https://lifehacker.com/im-mike-rowe-host-of-somebodys-gotta-do-it-and-this-i-1732396215)
+> 原文：<https://lifehacker.com/im-mike-rowe-host-of-somebodys-gotta-do-it-and-this-i-1732396215>
 
 多年来，迈克·罗伊一直在全国各地旅行，会见那些辛勤工作，往往吃力不讨好的人，让世界向前发展。在不同的节目和不同的电视网络中，保持不变的是迈克真诚的好奇心和学习的意愿。
 

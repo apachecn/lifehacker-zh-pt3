@@ -1,6 +1,6 @@
 # 为你的“感恩节”大餐准备的最好的杂草菜
 
-> 原文:[https://life hacker . com/the-best-weed-spiked-disks-for-your danks giving-meal-1820553830](https://lifehacker.com/the-best-weed-spiked-dishes-for-your-danksgiving-meal-1820553830)
+> 原文：<https://lifehacker.com/the-best-weed-spiked-dishes-for-your-danksgiving-meal-1820553830>
 
 无论你是热情地用一只 doofy 折叠纸火鸡来庆祝固有的奇怪传统的感恩节，还是你拒绝这个想法但喜欢与家人一起盛宴，吃对每个人都有好处。人们喜欢富含色氨酸的主菜，但对一些人来说，配菜才是这场秀的主角。对于素食主义者、厌恶火鸡的人，或者喜欢在食物中添加一些活性物质的人来说尤其如此，无论是医疗性质的还是娱乐性质的。
 

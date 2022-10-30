@@ -1,6 +1,6 @@
 # 安卓手机解锁最好的方法是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way to-unlock-your-Android-phone-1828856042](https://lifehacker.com/whats-the-best-way-to-unlock-your-android-phone-1828856042)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-unlock-your-android-phone-1828856042>
 
 有许多不同的方法来解锁 Android 智能手机或平板电脑。事实上，你可能有一个最喜欢的手机，从你拥有它开始，你就一直在使用它。我们都是习惯的产物，但是你可能想考虑其他更安全、更方便或更快捷的解锁方法。
 

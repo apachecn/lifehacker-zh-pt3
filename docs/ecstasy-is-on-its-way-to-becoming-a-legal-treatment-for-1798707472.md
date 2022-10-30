@@ -1,6 +1,6 @@
 # 摇头丸正在成为治疗创伤后应激障碍的合法手段
 
-> 原文:[https://life hacker . com/ecstasy-is-on-way-to-be-a-legal-treatment-for-1798707472](https://lifehacker.com/ecstasy-is-on-its-way-to-becoming-a-legal-treatment-for-1798707472)
+> 原文：<https://lifehacker.com/ecstasy-is-on-its-way-to-becoming-a-legal-treatment-for-1798707472>
 
 MDMA，更广为人知的非法药物摇头丸，已经显示出治疗创伤后应激障碍患者的前景。现在，FDA 已经授予该药物“突破”地位， [三期试验最早可能于 2018 年春季](http://www.sciencemag.org/news/2017/08/all-clear-decisive-trial-ecstasy-ptsd-patients) 开始。
 

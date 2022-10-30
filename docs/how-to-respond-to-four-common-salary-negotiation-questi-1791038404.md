@@ -1,6 +1,6 @@
 # 如何回答四个常见的薪资谈判问题
 
-> 原文:[https://life hacker . com/how-to-respond-to-four-common-salary-negotiation-questi-1791038404](https://lifehacker.com/how-to-respond-to-four-common-salary-negotiation-questi-1791038404)
+> 原文：<https://lifehacker.com/how-to-respond-to-four-common-salary-negotiation-questi-1791038404>
 
 你想为即将到来的 [薪资谈判](https://www.themuse.com/advice/how-to-negotiate-salary-37-tips-you-need-to-know) 做好准备，所以你计划研究标准薪资范围，并练习询问你想要的东西。这些步骤当然有价值，但还不够。
 

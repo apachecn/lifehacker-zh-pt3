@@ -1,6 +1,6 @@
 # 发烧友的工作空间
 
-> 原文:[https://lifehacker.com/the-audiophiles-workspace-1783372252](https://lifehacker.com/the-audiophiles-workspace-1783372252)
+> 原文：<https://lifehacker.com/the-audiophiles-workspace-1783372252>
 
 我们已经看到许多工作区都有很棒的音频设备，但 redditor[【huy-](https://www.reddit.com/user/huy-)有一系列有趣的好的、可靠的消费设备，旨在给他最好的听觉体验，而不是疯狂或过度。这是他的工作空间。
 

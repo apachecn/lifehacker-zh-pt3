@@ -1,6 +1,6 @@
 # 关于信贷冻结你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-a credit-freeze-1803139061](https://lifehacker.com/everything-you-need-to-know-about-a-credit-freeze-1803139061)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-a-credit-freeze-1803139061>
 
 上周，Equifax 宣布了一个“”的网络安全事件，影响了 1 . 43 亿用户。在冻结、欺诈警报和信用监控之间，你可能会束手无策。
 

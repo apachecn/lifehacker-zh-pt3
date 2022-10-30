@@ -1,6 +1,6 @@
 # 你希望能给年轻时的自己什么理财建议？
 
-> 原文:[https://life hacker . com/whats-the-financial-advice-you-wish-you-could-give-you-1822795123](https://lifehacker.com/whats-the-financial-advice-you-wish-you-could-give-your-1822795123)
+> 原文：<https://lifehacker.com/whats-the-financial-advice-you-wish-you-could-give-your-1822795123>
 
 大学一毕业，在金钱方面，我会做很多不同的事情。我会在我的第一套公寓里呆更长时间，它离工作地点更远，但比我到达纽约后不久搬进的那个更小、更脏的地方每月便宜 400 美元。我会花时间更快地了解通勤福利，我会更快地更换我的银行账户(事实上，我会建议年轻的我在做出决定之前更深入地研究银行账户、费用和信用卡)。
 

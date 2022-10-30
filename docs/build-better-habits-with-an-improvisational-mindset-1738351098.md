@@ -1,6 +1,6 @@
 # 用即兴思维培养更好的习惯
 
-> 原文:[https://life hacker . com/build-better-habits-with-a-即兴思维-1738351098](https://lifehacker.com/build-better-habits-with-an-improvisational-mindset-1738351098)
+> 原文：<https://lifehacker.com/build-better-habits-with-an-improvisational-mindset-1738351098>
 
 打破你的日常惯例可能是一种强大的方式来释放伟大的新思想，无论是个人还是职业。爵士音乐家和即兴喜剧演员通常是打破常规，采用新方法的大师。
 

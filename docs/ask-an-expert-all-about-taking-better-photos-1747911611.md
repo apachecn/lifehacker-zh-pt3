@@ -1,6 +1,6 @@
 # 请教专家:拍出更好的照片
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-taking-better-photos-1747911611](https://lifehacker.com/ask-an-expert-all-about-taking-better-photos-1747911611)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-taking-better-photos-1747911611>
 
 摄影的伟大之处在于每个人都可以使用它:无论你只是简单地用手机拍照，还是购买了专业相机和镜头，每个人都可以改进他们的照片。
 

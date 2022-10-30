@@ -1,6 +1,6 @@
 # 如果你是女性，不要在工作中主动承担费力不讨好的任务
 
-> 原文:[https://life hacker . com/stop-volunteer-for-thanknoble-tasks-in-work-if-you-1827699732](https://lifehacker.com/stop-volunteering-for-thankless-tasks-at-work-if-youre-1827699732)
+> 原文：<https://lifehacker.com/stop-volunteering-for-thankless-tasks-at-work-if-youre-1827699732>
 
 Psst，读到这里的女性:你有没有怀疑过，你和其他女性同事最终会在办公室里做很多费力不讨好、令人讨厌的事情，因为没有人会这样做？你知道，你应该停下来。
 

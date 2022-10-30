@@ -1,6 +1,6 @@
 # 如何选择谁可以对你的 Instagram 帖子发表评论
 
-> 原文:[https://life hacker . com/how-to-choose-who-can-comment-on-your-insta gram-posts-1818815906](https://lifehacker.com/how-to-choose-who-can-comment-on-your-instagram-posts-1818815906)
+> 原文：<https://lifehacker.com/how-to-choose-who-can-comment-on-your-instagram-posts-1818815906>
 
 如果你有一个公开的 Instagram 账户，那么任何拥有 Instagram 账户的人都可以对你的照片发表评论。这有时很好，但众所周知，互联网可能是一个相当令人沮丧的地方，让任何人评论你的照片可能偶尔(或不那么偶尔)意味着你会从一群陌生人那里得到一堆辱骂或攻击性的评论。
 

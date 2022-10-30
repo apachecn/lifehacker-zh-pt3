@@ -1,6 +1,6 @@
 # 使用这款 Android 应用程序免费观看不带广告的 YouTube 视频
 
-> 原文:[https://life hacker . com/watch-YouTube-videos-with-this-and-1824262552](https://lifehacker.com/watch-youtube-videos-without-ads-for-free-with-this-and-1824262552)
+> 原文：<https://lifehacker.com/watch-youtube-videos-without-ads-for-free-with-this-and-1824262552>
 
 Android:如果你厌倦了通过恼人的 [YouTube 广告](https://lifehacker.com/disable-ads-on-youtube-by-enabling-a-youtube-experiment-1171802208) 来受苦，该公司的 YouTube 红色订阅是一个 [固体选项](https://lifehacker.com/i-paid-to-get-rid-of-ads-on-youtube-and-now-my-life-is-1742985089) 。可惜的是，它只在 [一小撮国家](https://support.google.com/youtube/answer/6307365?hl=en) 有售。如果你无法使用这项服务(或者你不想每月支付 10 美元)，你可以免费获得另一个无广告的 Android 版 YouTube 播放器。
 

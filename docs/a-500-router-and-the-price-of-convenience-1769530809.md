@@ -1,6 +1,6 @@
 # 500 美元的路由器和便利的价格
 
-> 原文:[https://life hacker . com/a-500-路由器和便利价格-1769530809](https://lifehacker.com/a-500-router-and-the-price-of-convenience-1769530809)
+> 原文：<https://lifehacker.com/a-500-router-and-the-price-of-convenience-1769530809>
 
 为了不再担心 Wi-Fi 问题，你愿意花多少钱？ [Eero 的](https://eero.com/?utm_source=Google&utm_medium=CPC&utm_term=eero&utm_campaign=G.SEM.US_BR.X_Brand&gclid=CjwKEAjw55K4BRC53L6x9pyDzl4SJAD_21V1lzvh1dhSrxB20i_vhnT-0O0ZQqaeR2h4ylp7qNAwQxoCSnvw_wcB) 打赌你会花 200 到 500 美元买一个永远不会坏、覆盖你整个房子、永远不需要重启的路由器。但是这种便利到底值多少钱呢？
 

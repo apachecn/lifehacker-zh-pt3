@@ -1,6 +1,6 @@
 # 一堂基本用餐术语的速成课
 
-> 原文:[https://life hacker . com/a-quick-lesson-in-essential-diner-lingo-1818975167](https://lifehacker.com/a-quick-lesson-in-essential-diner-lingo-1818975167)
+> 原文：<https://lifehacker.com/a-quick-lesson-in-essential-diner-lingo-1818975167>
 
 餐车曾经是最好的就餐场所。食物很好，很便宜，气氛也很轻松。乐趣的很大一部分是餐馆员工用来相互交流的丰富多彩的俚语。这些奇怪术语的意思是。
 

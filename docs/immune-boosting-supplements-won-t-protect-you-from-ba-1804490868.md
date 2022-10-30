@@ -1,6 +1,6 @@
 # “免疫增强”补充剂不会保护你免受返校病菌的侵害
 
-> 原文:[https://life hacker . com/免疫增强补充剂不会保护您免受 ba-1804490868](https://lifehacker.com/immune-boosting-supplements-won-t-protect-you-from-ba-1804490868)
+> 原文：<https://lifehacker.com/immune-boosting-supplements-won-t-protect-you-from-ba-1804490868>
 
 啊，摔倒了。这是我们带着闪亮的新书包送孩子去学校的季节，每年，他们都带着同样的东西回家:第一轮返校感冒。在我们家，一个两岁的孩子对他接触的每个人都垂涎三尺，一个六岁的孩子仍在完善她的个人卫生习惯，病原体就像拥抱一样传播开来，全家生病只是时间问题。
 

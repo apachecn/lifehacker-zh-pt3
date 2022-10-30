@@ -1,6 +1,6 @@
 # Gmail 重新设计的最酷的新功能
 
-> 原文:[https://life hacker . com/这些是 gmails 重新设计中最酷的新功能-1825211681](https://lifehacker.com/these-are-the-coolest-new-features-in-gmails-redesign-1825211681)
+> 原文：<https://lifehacker.com/these-are-the-coolest-new-features-in-gmails-redesign-1825211681>
 
 如果你使用 [Gmail](https://lifehacker.com/top-10-gmail-tips-for-power-users-1787627908) 和 [谷歌日历](https://lifehacker.com/add-google-calendar-events-straight-from-your-chrome-br-1790289009) ，通过电子邮件计划活动应该很容易，但在两个应用程序之间来回切换以检查你的可用性可能会很烦人。现在，看起来谷歌终于有了这个第一世界问题的解决方案，你会在即将到来的 Gmail 桌面视图的重大更新中找到它。
 

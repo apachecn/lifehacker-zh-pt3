@@ -1,6 +1,6 @@
 # 选择笔记本电脑冷却器时要注意什么
 
-> 原文:[https://life hacker . com/what-to-look-on-a-laptop-cooler-1796517604](https://lifehacker.com/what-to-look-for-when-choosing-a-laptop-cooler-1796517604)
+> 原文：<https://lifehacker.com/what-to-look-for-when-choosing-a-laptop-cooler-1796517604>
 
 笔记本电脑的设计趋势总是倾向于更薄，而不是更胖，这样通风空间就更小了。这使得在照片编辑或游戏等高强度工作期间，风扇发出呜呜声成为一种不必要但常见的现象，尤其是在炎热的夏季。
 

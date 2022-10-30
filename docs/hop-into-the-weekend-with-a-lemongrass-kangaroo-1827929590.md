@@ -1,6 +1,6 @@
 # 和一只柠檬草袋鼠共度周末
 
-> 原文:[https://life hacker . com/hop-into-the-weekend with-a-lemongrass-kangaroo-1827929590](https://lifehacker.com/hop-into-the-weekend-with-a-lemongrass-kangaroo-1827929590)
+> 原文：<https://lifehacker.com/hop-into-the-weekend-with-a-lemongrass-kangaroo-1827929590>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天我想向你介绍袋鼠，一些(错误的)人把它称为“伏特加马丁尼”
 

@@ -1,6 +1,6 @@
 # 5 分钟的倾倒会让你的比尔森啤酒味道更好
 
-> 原文:[https://the take out . com/the-patient-art-of-slow-pour-pils ner-1822321388](https://thetakeout.com/the-patient-art-of-the-slow-pour-pilsner-1822321388)
+> 原文：<https://thetakeout.com/the-patient-art-of-the-slow-pour-pilsner-1822321388>
 
 在丹佛一年一度的美国啤酒节 上，最长的队伍没完没了地排在科罗拉多会议中心周围。这是该国最大的啤酒节，去年吸引了 60，000 名与会者，4000 多种不同的啤酒在它的墙内流动。你可以找到几乎任何你喜欢的风格，包括该国一些最受推崇的啤酒。
 

@@ -1,6 +1,6 @@
 # 用剩余的面团制作南瓜香料馅饼薯条
 
-> 原文:[https://life hacker . com/make-pumpkin-spice-pie-fries-out-of-left-dough-1829603976](https://lifehacker.com/make-pumpkin-spice-pie-fries-out-of-leftover-dough-1829603976)
+> 原文：<https://lifehacker.com/make-pumpkin-spice-pie-fries-out-of-leftover-dough-1829603976>
 
 制作完美的馅饼面团太珍贵了，不能浪费，装饰后剩下的碎屑应该受到尊重。与其扔掉它们，或者让它们在冰箱里煎熬，期待一个永远不会到达的“未来项目”，你应该把它们烤成脆脆的馅饼薯条。
 

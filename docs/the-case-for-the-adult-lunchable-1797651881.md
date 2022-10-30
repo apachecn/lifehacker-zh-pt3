@@ -1,6 +1,6 @@
 # 成人午餐的情况
 
-> 原文:[https://life hacker . com/the-case-for-the-adult-lunchable-1797651881](https://lifehacker.com/the-case-for-the-adult-lunchable-1797651881)
+> 原文：<https://lifehacker.com/the-case-for-the-adult-lunchable-1797651881>
 
 上周，当所有的作家聚集在纽约参加一个盛大的会议时，我发现自己和 [【贝丝】](https://kinja.com/bethskw)[【帕特里克】](https://kinja.com/patrickallan) 在一个杂货铺里，寻找瓶装水和营养零食。我抓了一份午餐，然后一边往嘴里塞一堆太圆的火鸡片和加工过的奶酪，一边想“为什么我不经常吃这些呢？”
 

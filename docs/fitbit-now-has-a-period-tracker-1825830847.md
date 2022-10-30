@@ -1,6 +1,6 @@
 # Fitbit 现在有了一个周期跟踪器
 
-> 原文:[https://life hacker . com/fitbit-now-has-a-period-tracker-1825830847](https://lifehacker.com/fitbit-now-has-a-period-tracker-1825830847)
+> 原文：<https://lifehacker.com/fitbit-now-has-a-period-tracker-1825830847>
 
 Fitbit 刚刚推出了他们所说的最受欢迎的功能之一:周期跟踪。该应用程序和智能手表现在可以显示你在周期中的位置，更好地将周期数据与你的营养和睡眠相关联。
 

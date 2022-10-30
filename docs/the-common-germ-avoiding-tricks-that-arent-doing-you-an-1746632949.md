@@ -1,6 +1,6 @@
 # 对你没有任何好处的常见细菌避免技巧
 
-> 原文:[https://life hacker . com/the-common-germ-avoiding-tricks-the-parent-do-you-an-1746632949](https://lifehacker.com/the-common-germ-avoiding-tricks-that-arent-doing-you-an-1746632949)
+> 原文：<https://lifehacker.com/the-common-germ-avoiding-tricks-that-arent-doing-you-an-1746632949>
 
 当有人咳嗽时，你屏住呼吸过吗？或者试着用脚冲马桶？如果你用正确的方法去做，这些技巧中的一些*可能会有帮助，但是它们通常是不必要的，并且大多是基于偏执狂。以下是日常生活中避免细菌的真相。*
 

@@ -1,6 +1,6 @@
 # 用 Bookly 更好地记录你的阅读习惯
 
-> 原文:[https://life hacker . com/keep-better-track-of-your-reading-habits-with bookly-1825615870](https://lifehacker.com/keep-better-track-of-your-reading-habits-with-bookly-1825615870)
+> 原文：<https://lifehacker.com/keep-better-track-of-your-reading-habits-with-bookly-1825615870>
 
 iOS:我爱读书，真的。当我还是个孩子的时候，我是那种会去图书馆的孩子——不是开玩笑——一口气看完一大堆书(主要是 [选择你自己的冒险书名](https://itunes.apple.com/us/app/u-ventures-interactive-books-by-edward-packard/id594081141?mt=8) ，我喜欢)。我希望我现在有更多的时间阅读，但我相信在我的文学追求中加入一点极客元素可能会有所帮助。
 

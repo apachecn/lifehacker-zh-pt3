@@ -1,6 +1,6 @@
 # 如何找到真爱，莎伦·萨尔茨堡
 
-> 原文:[https://life hacker . com/how-to-find-real-love with-Sharon-salzberg-1795821133](https://lifehacker.com/how-to-find-real-love-with-sharon-salzberg-1795821133)
+> 原文：<https://lifehacker.com/how-to-find-real-love-with-sharon-salzberg-1795821133>
 
 本周，我们采访了作家兼冥想导师莎伦·萨尔茨伯格。
 

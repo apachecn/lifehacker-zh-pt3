@@ -1,6 +1,6 @@
 # 如何在 Chrome 中设置默认用户
 
-> 原文:[https://life hacker . com/how-to-set-a-default-user-in-chrome-1820978388](https://lifehacker.com/how-to-set-a-default-user-in-chrome-1820978388)
+> 原文：<https://lifehacker.com/how-to-set-a-default-user-in-chrome-1820978388>
 
 如果你在 Chrome 中使用多个账户，你就会知道将个人邮件和工作邮件分开是多么有用。不幸的是，如果你用一个比另一个多得多，每天从一个切换到下一个就很麻烦了。通过遵循一些指导方针和创建一些快捷方式，你可以确保每次都打开正确的谷歌 Chrome 个人资料，省去了在它们之间来回切换的烦恼。
 

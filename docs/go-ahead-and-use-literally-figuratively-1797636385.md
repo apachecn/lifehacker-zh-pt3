@@ -1,6 +1,6 @@
 # 继续用“字面上”来比喻
 
-> 原文:[https://life hacker . com/go-ahead-and-use-literal-imaginary-1797636385](https://lifehacker.com/go-ahead-and-use-literally-figuratively-1797636385)
+> 原文：<https://lifehacker.com/go-ahead-and-use-literally-figuratively-1797636385>
 
 不是诺姆·乔姆斯基， [的著名语言学家史蒂芬·平克并不认为用“字面上”做比喻有什么不好。](https://www.theatlantic.com/entertainment/archive/2014/12/steven-pinker-interview/384092/) “比喻用法并不意味着语言在退化，”他在 2014 年的一次采访中说，把它比作“棒极了”或“棒极了”的夸张用法
 

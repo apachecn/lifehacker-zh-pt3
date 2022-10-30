@@ -1,6 +1,6 @@
 # 你需要知道的保健术语
 
-> 原文:[https://life hacker . com/the-health-care-terms-you-need-to-know 1828084354](https://lifehacker.com/the-health-care-terms-you-need-to-know-1828084354)
+> 原文：<https://lifehacker.com/the-health-care-terms-you-need-to-know-1828084354>
 
 特朗普政府让雇主不提供健康保险福利的人更容易购买短期计划 ，这些计划比符合患者保护与平价医疗法案的计划便宜，但提供的福利要少得多，而且不必覆盖预先存在的状况。
 

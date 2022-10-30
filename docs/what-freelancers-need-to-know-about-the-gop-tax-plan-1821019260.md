@@ -1,6 +1,6 @@
 # 自由职业者需要了解共和党的税收计划
 
-> 原文:[https://life hacker . com/what-freelancers-need-to-know-the-GOP-tax-plan-1821019260](https://lifehacker.com/what-freelancers-need-to-know-about-the-gop-tax-plan-1821019260)
+> 原文：<https://lifehacker.com/what-freelancers-need-to-know-about-the-gop-tax-plan-1821019260>
 
 大大小小的企业主是目前正在国会山进行协调的众议院和参议院税收法案的明确赢家，这导致一些自由职业者和独立承包商质疑税收改革对他们意味着什么——以及他们是否应该考虑合并。什么是正确的行动？
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:4 月 15 日至 22 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-April-15-to-22-1772470651](https://lifehacker.com/this-weeks-most-popular-posts-april-15th-to-22nd-1772470651)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-april-15th-to-22nd-1772470651>
 
 绿色周 就这样结束了，我们讨论了你需要知道的关于医用大麻的一切。但是这一周并没有全部化为乌有；我们还了解了激光眼科手术、必要的露营装备、信用卡奖励等等。这里回顾一下。
 

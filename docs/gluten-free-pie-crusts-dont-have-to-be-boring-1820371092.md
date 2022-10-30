@@ -1,6 +1,6 @@
 # 无麸质馅饼皮不一定会很无聊
 
-> 原文:[https://life hacker . com/gluten-free-pie-crushes-don ' t-have-to-be-boring-1820371092](https://lifehacker.com/gluten-free-pie-crusts-dont-have-to-be-boring-1820371092)
+> 原文：<https://lifehacker.com/gluten-free-pie-crusts-dont-have-to-be-boring-1820371092>
 
 感恩节对厨师来说是一个挑战，尤其是最近(相对)食物过敏和不耐症的爆发。每个人都会对某样东西过敏或无法忍受，而且很难一直取悦所有的人。仅在我家，就有四个人有五种不同的“不能吃这个”的问题——其中之一就是麸质。但是即使是不吃麸质的人也应该吃派，所以我们来看看不含麸质的面包皮。
 

@@ -1,6 +1,6 @@
 # 不用离开椅子就能锻炼身体
 
-> 原文:[https://life hacker . com/get-a-workout-without-leaving your chair-1796823587](https://lifehacker.com/get-a-workout-without-leaving-your-chair-1796823587)
+> 原文：<https://lifehacker.com/get-a-workout-without-leaving-your-chair-1796823587>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-86QRDjbrbdk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-86QRDjbrbdk&start=0) 
 

@@ -1,6 +1,6 @@
 # Android 牛轧糖的所有新功能
 
-> 原文:[https://life hacker . com/all-the-new-features-coming-in-Android-n-1763790001](https://lifehacker.com/all-the-new-features-coming-in-android-n-1763790001)
+> 原文：<https://lifehacker.com/all-the-new-features-coming-in-android-n-1763790001>
 
 谷歌刚刚揭开了 Android 下一个版本“Android N”的开发者预览版。更好的是，现在已经有了。有很多新功能，包括一个我们期待已久的巨大功能:对手机和平板电脑的多窗口支持。以下是今天发布的亮点。
 

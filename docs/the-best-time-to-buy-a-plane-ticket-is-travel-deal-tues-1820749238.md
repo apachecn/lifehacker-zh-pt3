@@ -1,6 +1,6 @@
 # 购买机票的最佳时间是“周二旅游优惠”
 
-> 原文:[https://life hacker . com/the-best-time-to-buy-a-fly-deal-tues-1820749238](https://lifehacker.com/the-best-time-to-buy-a-plane-ticket-is-travel-deal-tues-1820749238)
+> 原文：<https://lifehacker.com/the-best-time-to-buy-a-plane-ticket-is-travel-deal-tues-1820749238>
 
 如果你正在考虑为即将到来的旅行购买机票，本周二可能是购买的最佳时机。
 

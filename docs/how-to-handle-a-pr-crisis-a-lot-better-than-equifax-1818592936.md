@@ -1,6 +1,6 @@
 # 如何比 Equifax 更好地处理公关危机
 
-> 原文:[https://life hacker . com/how-to-handle-a-pr-crisis-a-lot-better-a-equifax-1818592936](https://lifehacker.com/how-to-handle-a-pr-crisis-a-lot-better-than-equifax-1818592936)
+> 原文：<https://lifehacker.com/how-to-handle-a-pr-crisis-a-lot-better-than-equifax-1818592936>
 
 Equifax 数据泄露事件 影响了 1 . 43 亿个账户，可能会对消费者造成长达数年的影响，其范围和潜在损害都是历史性的。但值得注意的是，至少从公共关系的角度来看，该公司对事故的处理非常糟糕。
 

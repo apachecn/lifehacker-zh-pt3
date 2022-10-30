@@ -1,6 +1,6 @@
 # 屏幕时间的限制可能没有那么多意义
 
-> 原文:[https://life hacker . com/screen-time-restrictions-may-not-mean-all-that-more-1821813036](https://lifehacker.com/screen-time-restrictions-might-not-mean-all-that-much-1821813036)
+> 原文：<https://lifehacker.com/screen-time-restrictions-might-not-mean-all-that-much-1821813036>
 
 当你抚养一个孩子时，有很多数据你必须记住:他们的身高和体重。首先，他们喝了多少盎司的牛奶，然后他们吃了多少水果和蔬菜，他们进行了多少户外活动，当然，他们每天花多少分钟粘在一个设备上。2016 年，美国儿科学会发布了一份关于屏幕时间的政策声明，建议 2 至 5 岁孩子的父母将屏幕时间限制在每天一小时的“高质量”节目，如*《芝麻街》*，并为年龄较大的孩子设定“一致的限制”。他们还特别指出，屏幕时间不应该取代睡眠、玩耍或其他丰富的活动。
 

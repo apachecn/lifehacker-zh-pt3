@@ -1,6 +1,6 @@
 # 如何在面试中回答“告诉我你失败的一次经历”
 
-> 原文:[https://life hacker . com/how-to-answer-tell-me-about-a-time-you-failed-in-a-I-1762148372](https://lifehacker.com/how-to-answer-tell-me-about-a-time-you-failed-in-an-i-1762148372)
+> 原文：<https://lifehacker.com/how-to-answer-tell-me-about-a-time-you-failed-in-an-i-1762148372>
 
 虽然不是最常见的面试问题 中的 [，这个失败的问题——如果你知道的话——相当令人困惑。你该如何诚实地回答这个问题，同时又不会因为提起那次你在交易中作弊，让公司*损失了很多钱*而吓跑你未来的潜在雇主？](https://www.themuse.com/resources/how-to-answer-the-31-most-common-interview-questions-1)
 

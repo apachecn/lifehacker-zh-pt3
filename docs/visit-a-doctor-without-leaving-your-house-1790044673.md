@@ -1,6 +1,6 @@
 # 足不出户能看病吗？
 
-> 原文:[https://life hacker . com/visit-a doctor-not-see-out-of-your house-1790044673](https://lifehacker.com/visit-a-doctor-without-leaving-your-house-1790044673)
+> 原文：<https://lifehacker.com/visit-a-doctor-without-leaving-your-house-1790044673>
 
 生病最令人讨厌的事情之一是离开家去接受医疗护理，填写表格，坐在候诊室里，而你宁愿躺在床上努力康复。但是有了像 [Teladoc](https://www.teladoc.com/) 和 [AmWell](https://amwell.com) 这样的服务，一个 24 小时的医生只要打个视频电话就能帮到你。
 

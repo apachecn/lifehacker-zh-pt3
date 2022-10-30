@@ -1,6 +1,6 @@
 # 设计瘦身为无意志力节食提供窍门
 
-> 原文:[https://life hacker . com/slim-by-design-offers-tricks-for-wildership-free-dieting-1772287949](https://lifehacker.com/slim-by-design-offers-tricks-for-willpower-free-dieting-1772287949)
+> 原文：<https://lifehacker.com/slim-by-design-offers-tricks-for-willpower-free-dieting-1772287949>
 
 根据作者 [布莱恩·万辛克](http://dyson.cornell.edu/people/brian-wansink) 的说法，我们每天做出超过 [200 个与食物相关的决定](http://eab.sagepub.com/content/39/1/106.short)——大多数都没有真正思考过。 *Slim by Design* 将 Wansink 关于我们如何做出这些决定的惊人研究转化为可操作的技巧。
 

@@ -1,6 +1,6 @@
 # 如何屏蔽那些在网上跟随你的恼人的谷歌广告
 
-> 原文:[https://life hacker . com/how-to-mute-that-some-noise-Google-ads-the-follow-you-a-1822415417](https://lifehacker.com/how-to-mute-those-annoying-google-ads-that-follow-you-a-1822415417)
+> 原文：<https://lifehacker.com/how-to-mute-those-annoying-google-ads-that-follow-you-a-1822415417>
 
 众所周知， [【谷歌】](https://lifehacker.com/google-s-datally-app-is-here-to-curb-which-apps-eat-yo-1820914004) 通过追踪我们的活动并利用广告锁定我们来赚钱，但从今天开始，这些广告可以变得不那么烦人了。 [公司宣布了其广告设置工具的一项新功能](https://blog.google/topics/safety-security/greater-control-new-features-your-ads-settings/) ，让你屏蔽掉在网上随处可见的特定产品。
 

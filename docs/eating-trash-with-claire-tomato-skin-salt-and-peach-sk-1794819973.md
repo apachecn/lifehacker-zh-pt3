@@ -1,6 +1,6 @@
 # 和克莱尔一起吃垃圾:番茄皮盐和桃子皮糖
 
-> 原文:[https://life hacker . com/eating-trash-with-claire-tomato-skin-peach-sk-1794819973](https://lifehacker.com/eating-trash-with-claire-tomato-skin-salt-and-peach-sk-1794819973)
+> 原文：<https://lifehacker.com/eating-trash-with-claire-tomato-skin-salt-and-peach-sk-1794819973>
 
 我非常喜欢将看似无用的下脚料转化成令人惊讶的美味，这就是为什么我非常高兴地发现了这些食谱，分别是 [【番茄皮盐】](https://food52.com/recipes/37175-tomato-skin-salt) 和 [桃皮糖。](https://food52.com/blog/17848-the-sweetest-way-to-recycle-peach-peels)
 

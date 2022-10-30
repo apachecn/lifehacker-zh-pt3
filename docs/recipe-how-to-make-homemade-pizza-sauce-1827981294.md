@@ -1,6 +1,6 @@
 # 如何从零开始制作高级比萨酱
 
-> 原文:[https://the take out . com/recipe-how-to-make-home-pizza-sauce-1827981294](https://thetakeout.com/recipe-how-to-make-homemade-pizza-sauce-1827981294)
+> 原文：<https://thetakeout.com/recipe-how-to-make-homemade-pizza-sauce-1827981294>
 
 *欢迎来到* [***披萨学校***](https://thetakeout.com/tag/pizza-school) *，披萨制作爱好者格温·伊纳特在这里向披萨制作专家学习制作披萨的秘诀。*T12】
 

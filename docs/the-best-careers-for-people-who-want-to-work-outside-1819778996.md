@@ -1,6 +1,6 @@
 # 想在外面工作的人的最佳职业
 
-> 原文:[https://life hacker . com/the-best-careers for the-want-to-work-out-1819778996](https://lifehacker.com/the-best-careers-for-people-who-want-to-work-outside-1819778996)
+> 原文：<https://lifehacker.com/the-best-careers-for-people-who-want-to-work-outside-1819778996>
 
 室内工作并不适合每个人。有些人需要经常搬家来获得快乐，有些人需要与自然交流，还有一些人就是不喜欢小隔间、荧光灯或“某人有周一病例”的文化。
 

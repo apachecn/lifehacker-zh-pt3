@@ -1,6 +1,6 @@
 # 尽可能在室外工作
 
-> 原文:[https://life hacker . com/do-your-work-outside-anywhere-course-1825773614](https://lifehacker.com/do-your-work-outside-whenever-possible-1825773614)
+> 原文：<https://lifehacker.com/do-your-work-outside-whenever-possible-1825773614>
 
 当我们最后一次汇总我们员工的每周升级时，我们的编辑正在改善我们的云存储，将更多的钱投入我们的退休基金，并重新发现 Pokémon GO 的乐趣。
 

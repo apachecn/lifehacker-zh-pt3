@@ -1,6 +1,6 @@
 # 当感觉世界一片混乱时，如何度过工作日
 
-> 原文:[https://life hacker . com/how-to-get-through-the-work day-when-the-feel-the-t-1782554560](https://lifehacker.com/how-to-get-through-the-workday-when-it-feels-like-the-t-1782554560)
+> 原文：<https://lifehacker.com/how-to-get-through-the-workday-when-it-feels-like-the-t-1782554560>
 
 我不需要提醒你世界上正在发生的一切混乱。这不是关于什么是对或错，也不是关于枪支或边界，当然也不是关于政治或哪个政客在推特上发什么。是关于你的。
 

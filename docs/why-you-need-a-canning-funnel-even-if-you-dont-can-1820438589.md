@@ -1,6 +1,6 @@
 # 为什么你需要一个罐装漏斗，即使你不可以
 
-> 原文:[https://life hacker . com/why-you-need-a-canning-funnel-even-if-you-dont-can-1820438589](https://lifehacker.com/why-you-need-a-canning-funnel-even-if-you-dont-can-1820438589)
+> 原文：<https://lifehacker.com/why-you-need-a-canning-funnel-even-if-you-dont-can-1820438589>
 
 每个人都应该有一个广口装罐漏斗。我知道这是一个大胆的提议。你可能连这个都不会。当然，我不能。而且，我也不打算可以。首先，我没有足够的番茄来保存，而且我也担心我的爱好会导致肉毒中毒。(这是由于我自己不够警惕；坎宁太棒了！)
 

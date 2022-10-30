@@ -1,6 +1,6 @@
 # 今年我花钱买的最好的东西
 
-> 原文:[https://life hacker . com/the-best-things-I-speed-money-1821391840](https://lifehacker.com/the-best-things-i-spent-money-on-this-year-1821391840)
+> 原文：<https://lifehacker.com/the-best-things-i-spent-money-on-this-year-1821391840>
 
 2018 年，我计划 [建立我的应急基金](https://twocents.lifehacker.com/whats-your-2018-money-goal-1821064068#_ga=2.46279655.196131359.1513621538-1313785359.1499701416) 并为度假单独存钱——基本上，这与我今年所做的正好相反。我在 2017 年花了很多钱，其中一些值得每一分钱，其他的则不那么值得。
 

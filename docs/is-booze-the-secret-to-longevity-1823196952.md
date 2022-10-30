@@ -1,6 +1,6 @@
 # 饮酒是长寿的秘诀吗？
 
-> 原文:[https://life hacker . com/is-booze-the-secret-to-长寿-1823196952](https://lifehacker.com/is-booze-the-secret-to-longevity-1823196952)
+> 原文：<https://lifehacker.com/is-booze-the-secret-to-longevity-1823196952>
 
 我们大多数人只能活到 70 多岁，所以如果你嫉妒 100 岁的人吹灭生日蜡烛，并提供一些关于如何长寿和快乐生活的明智建议，请举手。一项名为[90+研究](http://www.mind.uci.edu/research-studies/90plus-study/) 的研究旨在收集最长寿老人的数据，但结果并不像暗示的那样表明酒精是一种长寿补品。
 

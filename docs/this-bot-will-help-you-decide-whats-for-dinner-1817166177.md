@@ -1,6 +1,6 @@
 # 这个机器人会帮你决定晚餐吃什么
 
-> 原文:[https://life hacker . com/this-bot 将帮助您决定晚餐吃什么-1817166177](https://lifehacker.com/this-bot-will-help-you-decide-whats-for-dinner-1817166177)
+> 原文：<https://lifehacker.com/this-bot-will-help-you-decide-whats-for-dinner-1817166177>
 
 如果你曾经尝试过为一群人做晚餐，你就会知道做出让每个人都兴奋的东西可能有点挑战。我家的晚餐通常是一个人拿出三样他们喜欢吃的东西，然后另一个人(或几个人，取决于晚上)从这些选项中选择他们更喜欢的。
 

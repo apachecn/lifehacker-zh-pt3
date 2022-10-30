@@ -1,6 +1,6 @@
 # Pinterest 上最受欢迎的奶昔有点恶心
 
-> 原文:[https://life hacker . com/the-most-popular-smoothie-on-Pinterest-is-kind-of-gross-1793464792](https://lifehacker.com/the-most-popular-smoothie-on-pinterest-is-kind-of-gross-1793464792)
+> 原文：<https://lifehacker.com/the-most-popular-smoothie-on-pinterest-is-kind-of-gross-1793464792>
 
 Pinterest 上最受欢迎的奶昔配方是浆果和猕猴桃的混合物，已经被点击了 30 多万次。所以肯定有好的一面，对吧？我试用了一下，看看这款奶昔 的味道是否像它看起来那么好。
 

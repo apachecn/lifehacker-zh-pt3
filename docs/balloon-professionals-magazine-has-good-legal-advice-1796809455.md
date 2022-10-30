@@ -1,6 +1,6 @@
 # “气球专业杂志”为上传过视频的人提供了很好的法律建议
 
-> 原文:[https://life hacker . com/balloon-professionals-magazine-has-good-legal-advice-1796809455](https://lifehacker.com/balloon-professionals-magazine-has-good-legal-advice-1796809455)
+> 原文：<https://lifehacker.com/balloon-professionals-magazine-has-good-legal-advice-1796809455>
 
 我们都经历过这种情况:你正在出售你的原创角色刺猬布朗尼克的定制聚酯薄膜气球，这时迪斯尼来敲你的门，叫停你的行为。你有什么权利？
 

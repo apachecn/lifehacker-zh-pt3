@@ -1,6 +1,6 @@
 # 了解袋泡茶的这些意想不到的用途
 
-> 原文:[https://life hacker . com/get-a-load-of-this-unexpected-uses-for-tea bags-1795874294](https://lifehacker.com/get-a-load-of-these-unexpected-uses-for-teabags-1795874294)
+> 原文：<https://lifehacker.com/get-a-load-of-these-unexpected-uses-for-teabags-1795874294>
 
 当然，当你想在早上喝杯茶的时候，那盒立顿可能会很棒，但是那些袋子实际上比喝东西更有用。从缓解疼痛到清洁家具，这里有一些你橱柜里茶包意想不到的用途。
 

@@ -1,6 +1,6 @@
 # 这个星期天你会给你生命中的妈妈喂什么？
 
-> 原文:[https://life hacker . com/what-you-feeding the-mom in-you-life-Sunday-1825838469](https://lifehacker.com/what-are-you-feeding-the-mom-in-your-life-this-sunday-1825838469)
+> 原文：<https://lifehacker.com/what-are-you-feeding-the-mom-in-your-life-this-sunday-1825838469>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。这个周末是母亲节，我想听听你在为你生活中的母性形象做些什么。
 

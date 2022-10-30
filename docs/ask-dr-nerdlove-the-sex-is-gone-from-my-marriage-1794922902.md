@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我的婚姻中没有了性
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-the-sex-from my-marriage-1794922902](https://kotaku.com/ask-dr-nerdlove-the-sex-is-gone-from-my-marriage-1794922902)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-the-sex-is-gone-from-my-marriage-1794922902>
 
 大家好，所有互联网上的变态们，欢迎来到 [询问 NerdLove 博士](http://kotaku.com/askdrnerdlove) ，这是新图尚卡唯一的约会专栏。
 

@@ -1,6 +1,6 @@
 # 蹒跚学步的科学家终于确定了耳道中豌豆的数量
 
-> 原文:[https://www . theonion . com/tuckle-scientists-finally-determine-number-of-peas-tha-1820347088](https://www.theonion.com/toddler-scientists-finally-determine-number-of-peas-tha-1820347088)
+> 原文：<https://www.theonion.com/toddler-scientists-finally-determine-number-of-peas-tha-1820347088>
 
 纽约——经过多年的猜测和无数次失败的实验，领先的幼儿科学家周五宣布，他们终于确定了耳道内豌豆的确切数量。“直到今天，人们普遍认为一个人的耳朵里只能塞进四粒豌豆，但我们的研究最终表明，这是一个保守的估计，”2 岁的奥德里·普劳德兹博士说。他补充说，几个蹒跚学步的测试对象证明了耳朵最多能塞进六粒豌豆，如果事先捣碎豌豆，这个数字会大大增加。“另一方面，我们的工作在另一个方面支持了传统观点，因为我们能够证实，一旦被取回，塞在耳道内的豌豆味道一样好，如果不是更好的话。”然而，Plodtz 博士警告说，这项研究只解决了一个特定的情况，并不一定适用于多少玉米粒适合一个鼻孔。
 

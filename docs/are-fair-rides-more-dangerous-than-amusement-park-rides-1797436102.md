@@ -1,6 +1,6 @@
 # 游乐场游乐设施比游乐园游乐设施更危险吗？
 
-> 原文:[https://life hacker . com/are-fair-rides-比游乐园-rides-1797436102](https://lifehacker.com/are-fair-rides-more-dangerous-than-amusement-park-rides-1797436102)
+> 原文：<https://lifehacker.com/are-fair-rides-more-dangerous-than-amusement-park-rides-1797436102>
 
 公平乘车或“移动乘车”，简单的从一个城镇到另一个城镇的旅行，有一点粗略的名声。但是它们真的比你在全年开放的游乐园里找到的游乐设施更危险吗？
 

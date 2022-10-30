@@ -1,6 +1,6 @@
 # 如何在你的 Galaxy Note 8 上安装 Android 8.0 奥利奥测试版
 
-> 原文:[https://life hacker . com/how-to-install-the-Android-8-0-Oreo-beta-on-your-galaxy-1821265769](https://lifehacker.com/how-to-install-the-android-8-0-oreo-beta-on-your-galaxy-1821265769)
+> 原文：<https://lifehacker.com/how-to-install-the-android-8-0-oreo-beta-on-your-galaxy-1821265769>
 
 三星已经为 Galaxy S8 发布了测试版的 [Android 8.0 奥利奥，但如果你使用的是](https://lifehacker.com/heres-when-android-8-0-oreo-is-coming-to-your-current-p-1820786391) [公司的最新智能手机](https://lifehacker.com/how-to-disable-the-bixby-button-on-your-galaxy-s8-or-no-1819043354) 你仍然停留在去年的 [Nougaty](https://lifehacker.com/the-coolest-features-of-android-n-google-didnt-announce-1764114846) 操作系统上——直到现在。Galaxy Note 8 的奥利奥测试版本周泄露，你现在只需做一点点工作就可以安装它。
 

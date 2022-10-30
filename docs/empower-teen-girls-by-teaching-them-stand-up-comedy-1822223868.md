@@ -1,6 +1,6 @@
 # 通过教少女单口喜剧来增强她们的能力
 
-> 原文:[https://life hacker . com/empower-teen-girls-by-teaching-them-stand-up-comedy-1822223868](https://lifehacker.com/empower-teen-girls-by-teaching-them-stand-up-comedy-1822223868)
+> 原文：<https://lifehacker.com/empower-teen-girls-by-teaching-them-stand-up-comedy-1822223868>
 
 “我不仅仅是个书呆子，”13 岁戴着眼镜的名叫西娅的女孩在舞台上对着麦克风说。“我也是个极客。”观众大笑。
 

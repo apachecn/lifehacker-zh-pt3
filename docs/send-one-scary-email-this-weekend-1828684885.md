@@ -1,6 +1,6 @@
 # 这个周末发送一封可怕的电子邮件
 
-> 原文:[https://life hacker . com/send-one-risky-email-this-weekend-1828684885](https://lifehacker.com/send-one-scary-email-this-weekend-1828684885)
+> 原文：<https://lifehacker.com/send-one-scary-email-this-weekend-1828684885>
 
 这个劳动节周末没有计划吗？这里有一件事你应该考虑去做， [诗人兼作家阿门娜·布朗](https://creativemornings.com/talks/amena-brown/1) 的礼貌:
 

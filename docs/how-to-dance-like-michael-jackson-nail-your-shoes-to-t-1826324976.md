@@ -1,6 +1,6 @@
 # 如何像迈克尔·杰克逊那样跳舞:把鞋子钉在地板上
 
-> 原文:[https://life hacker . com/how-to-dance-like-Michael-Jackson-nail-your-shoes-to-t-1826324976](https://lifehacker.com/how-to-dance-like-michael-jackson-nail-your-shoes-to-t-1826324976)
+> 原文：<https://lifehacker.com/how-to-dance-like-michael-jackson-nail-your-shoes-to-t-1826324976>
 
 现在是阵亡将士纪念日周末的前半天，所以我们在写关于流行文化现象的科学研究！在为*拍摄的 [音乐视频中，迈克尔·杰克逊和四名伴舞者用绳索和吊带将身体倾斜了整整 45 度，对于一个没有支撑的人来说，这是不可能的。但不知何故，杰克逊也在没有任何可见支持的情况下在舞台上现场表演了这一舞蹈动作。事实证明，除了发展令人印象深刻的核心力量，迈克尔杰克逊还把鞋子钉在地板上。](https://www.youtube.com/watch?v=h_D3VFfhvs4)* 
 

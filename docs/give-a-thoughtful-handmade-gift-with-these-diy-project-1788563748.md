@@ -1,6 +1,6 @@
 # 用这些 DIY 项目送一份贴心的手工礼物
 
-> 原文:[https://life hacker . com/give-a-thinked-manufactured-gift-with these-DIY-project-1788563748](https://lifehacker.com/give-a-thoughtful-handmade-gift-with-these-diy-project-1788563748)
+> 原文：<https://lifehacker.com/give-a-thoughtful-handmade-gift-with-these-diy-project-1788563748>
 
 也许你预算有限，或者你只是想在手工制作的礼物上多花点心思。不管怎样，如果你准备好迎接挑战，跳过拥挤的商场，试试这些贴心的、自己动手做的礼物。
 

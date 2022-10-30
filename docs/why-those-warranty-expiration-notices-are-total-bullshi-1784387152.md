@@ -1,6 +1,6 @@
 # 您在邮件中收到的保修到期通知的真相
 
-> 原文:[https://jalopnik . com/why-thes-warranty-expiration-notices-are-total-bullshi-1784387152](https://jalopnik.com/why-those-warranty-expiration-notices-are-total-bullshi-1784387152)
+> 原文：<https://jalopnik.com/why-those-warranty-expiration-notices-are-total-bullshi-1784387152>
 
 今天，我作为一个愤怒的消费者写信给你。实际上，我每天都给你写信，我是一个愤怒的消费者，因为我有康卡斯特。但今天，我对另一件事特别恼火:看起来像官方的保修到期通知。
 

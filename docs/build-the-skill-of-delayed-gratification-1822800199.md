@@ -1,6 +1,6 @@
 # 建立延迟满足的技巧
 
-> 原文:[https://life hacker . com/build-the-skill-of-delayed-comfort-1822800199](https://lifehacker.com/build-the-skill-of-delayed-gratification-1822800199)
+> 原文：<https://lifehacker.com/build-the-skill-of-delayed-gratification-1822800199>
 
 如果你正在参加我们的 [二月财务排毒](https://twocents.lifehacker.com/get-ready-for-a-month-long-financial-detox-1822555847#_ga=2.154796024.1155826245.1517939619-691019473.1512506211) ，那么你可能正在拥抱或学习拥抱延迟满足。
 

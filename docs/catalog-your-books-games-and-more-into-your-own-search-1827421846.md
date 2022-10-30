@@ -1,6 +1,6 @@
 # 使用 Libib 将您的书籍、游戏等编入您自己的可搜索“图书馆”
 
-> 原文:[https://life hacker . com/catalog-your-books-games-and-more-into-your-own-search-1827421846](https://lifehacker.com/catalog-your-books-games-and-more-into-your-own-search-1827421846)
+> 原文：<https://lifehacker.com/catalog-your-books-games-and-more-into-your-own-search-1827421846>
 
 尽管我一直声称我要搬到一个全数字图书馆，但我还是买了很多书。我已经开始接受这样一个事实:我喜欢拥有实物拷贝。除了喜欢在我读书的时候拿着一本书，它还让我更容易与朋友分享。
 

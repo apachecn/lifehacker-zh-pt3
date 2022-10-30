@@ -1,6 +1,6 @@
 # 构建 Hackintosh 的最新指南(macOS Sierra)
 
-> 原文:[https://life hacker . com/the-always-update-guide-to-building-a-hackintosh-o-5841604](https://lifehacker.com/the-always-up-to-date-guide-to-building-a-hackintosh-o-5841604)
+> 原文：<https://lifehacker.com/the-always-up-to-date-guide-to-building-a-hackintosh-o-5841604>
 
 构建一台 hackintosh——即在非苹果硬件上安装 macOS 过去需要极其有限的硬件选择和相当多的专业知识。现在您的选择范围很广，安装过程也相当简单。考虑到这一点，这里是我们构建 hackintosh 的最新指南，它将引导您购买兼容的部件，构建您的机器，并自行安装 macOS。
 

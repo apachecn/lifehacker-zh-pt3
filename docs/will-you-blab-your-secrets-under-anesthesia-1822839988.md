@@ -1,6 +1,6 @@
 # 你会在麻醉状态下泄露秘密吗？
 
-> 原文:[https://life hacker . com/will-you-blab-your-secrets-under-anagement-1822839988](https://lifehacker.com/will-you-blab-your-secrets-under-anesthesia-1822839988)
+> 原文：<https://lifehacker.com/will-you-blab-your-secrets-under-anesthesia-1822839988>
 
 今天的燃眉之急是关于一些深奥黑暗的秘密，我恐怕不能告诉你那些秘密到底是什么，因为我也不知道。我们的问题在 [匿名](https://bethskw.sarahah.com/) 进来，写信人问:
 

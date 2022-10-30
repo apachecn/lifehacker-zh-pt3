@@ -1,6 +1,6 @@
 # 琼·克劳馥知道如何制作有趣的派对蘸酱
 
-> 原文:[https://the take out . com/recipe-Joan-Crawford-party-dip-1828030339](https://thetakeout.com/recipe-joan-crawford-party-dip-1828030339)
+> 原文：<https://thetakeout.com/recipe-joan-crawford-party-dip-1828030339>
 
 *在* [***名人食谱***](https://thetakeout.com/tag/celebrity-recipes) ***，**中，我们从一位过去或现在深受喜爱的明星那里入手一份最喜欢的食谱。*
 

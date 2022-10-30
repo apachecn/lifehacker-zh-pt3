@@ -1,6 +1,6 @@
 # 亚马逊 Echo Show 是我家最好的哑智能机
 
-> 原文:[https://gizmodo . com/the-Amazon-echo-show-is-the-best-dumb-smart-machine-in-1796380588](https://gizmodo.com/the-amazon-echo-show-is-the-best-dumb-smart-machine-in-1796380588)
+> 原文：<https://gizmodo.com/the-amazon-echo-show-is-the-best-dumb-smart-machine-in-1796380588>
 
 亚马逊回声展在我卧室的第一个晚上，我不得不小心地把它面朝下放在我的床头柜上。显示屏在我即将到来的会议、最新消息和天气中循环播放，简直太亮了。这就像有一个超级信息的小太阳照在我的脸上。第二天晚上，就像它知道一样，回声秀的屏幕上又出现了一张幻灯片。“试着说，Alexa，请勿打扰。’”
 

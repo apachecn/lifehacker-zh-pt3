@@ -1,6 +1,6 @@
 # 如何在你的 Mac 上安装扫雷软件
 
-> 原文:[https://life hacker . com/how-to-get-mine sweeper-on-your-MAC-1825337704](https://lifehacker.com/how-to-get-minesweeper-on-your-mac-1825337704)
+> 原文：<https://lifehacker.com/how-to-get-minesweeper-on-your-mac-1825337704>
 
 如果你是苹果的铁杆粉丝，从你第一次触摸键盘开始，你可能从未体验过《扫雷》的刺激——这是曾经在微软的 Windows 操作系统 的 [上找到的两个经典游戏之一。如果这是真的，或者如果你只是怀念输掉游戏的快感，一局接一局，一局接一局的扫雷游戏，不要担心:是时候 Macsweep 了。](https://archive.org/details/BestOfWindowsEntertainmentPack64Bit)
 

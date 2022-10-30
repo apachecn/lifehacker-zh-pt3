@@ -1,6 +1,6 @@
 # 律师希望你知道什么
 
-> 原文:[https://life hacker . com/what-lawyers-wish-you-know-1823522241](https://lifehacker.com/what-lawyers-wish-you-knew-1823522241)
+> 原文：<https://lifehacker.com/what-lawyers-wish-you-knew-1823522241>
 
 就像医疗建议或总部琐事问题的答案一样，你需要小心从哪里获得法律建议。进入互联网二十多年了，人们仍然基于对法律 的错误理解 [做出可怕的决定。我们请几位律师分享了他们希望每个人都知道的关于美国法律、法律职业或如何获得律师的一件事。以下是他们的回答。](https://lifehacker.com/you-cant-fool-youtubes-copyright-bots-1822174263)
 

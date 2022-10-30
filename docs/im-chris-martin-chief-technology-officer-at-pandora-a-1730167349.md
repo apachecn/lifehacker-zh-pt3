@@ -1,6 +1,6 @@
 # 我是克里斯·马汀，潘多拉的首席技术官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Chris-Martin-chief-technology-officer-at-Pandora-a-1730167349](https://lifehacker.com/im-chris-martin-chief-technology-officer-at-pandora-a-1730167349)
+> 原文：<https://lifehacker.com/im-chris-martin-chief-technology-officer-at-pandora-a-1730167349>
 
 十多年来，潘多拉 一直通过定制的智能电台在线播放音乐。拥有超过 150 万首歌曲的 Pandora 为我们的生活提供了配乐——事实上，我现在就在使用它。
 

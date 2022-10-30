@@ -1,6 +1,6 @@
 # 这些是人们开得最多的车
 
-> 原文:[https://jalopnik . com/these-is-the-cars-people-drive-most-1827389444](https://jalopnik.com/these-are-the-cars-people-drive-the-most-1827389444)
+> 原文：<https://jalopnik.com/these-are-the-cars-people-drive-the-most-1827389444>
 
 普通人一年大约行驶 11，500 英里，但是某些车比其他车行驶的里程要多。iSeeCars.com 的 [*最近的一项研究揭示了驾驶者每年实际行驶里程的车辆。*](https://www.iseecars.com/most-driven-cars-study) 
 

@@ -1,6 +1,6 @@
 # 在假期前公开你的亚马逊愿望清单
 
-> 原文:[https://life hacker . com/make-your-Amazon-wish-list-public-in-time-for-the-holid-1820923221](https://lifehacker.com/make-your-amazon-wish-list-public-in-time-for-the-holid-1820923221)
+> 原文：<https://lifehacker.com/make-your-amazon-wish-list-public-in-time-for-the-holid-1820923221>
 
 上周五，当我们汇总员工的每周升级时，我们的编辑正在拥抱 IFTTT，尝试芭蕾，并最终将东西从我们的地板上清理到货架上。
 

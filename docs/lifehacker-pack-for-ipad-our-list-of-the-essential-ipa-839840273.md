@@ -1,6 +1,6 @@
 # iPad 版 Lifehacker Pack:我们的基本 iPad 应用列表
 
-> 原文:[https://life hacker . com/life hacker-pack-for-ipad-our-list-of-essential-IPA-839840273](https://lifehacker.com/lifehacker-pack-for-ipad-our-list-of-the-essential-ipa-839840273)
+> 原文：<https://lifehacker.com/lifehacker-pack-for-ipad-our-list-of-the-essential-ipa-839840273>
 
 这些应用程序需要一段时间才能形成自己的风格，但我们现在所处的位置是，iPad 的应用程序选择几乎和 iPhone 一样好。现在，找到有价值的应用程序比以往任何时候都难。让我们收集这些最好的 iPad 应用程序，为您节省一些时间。
 

@@ -1,6 +1,6 @@
 # 苹果产品有哪些让你恼火的地方？
 
-> 原文:[https://life hacker . com/what-noise-you-about-apple-products-1823128413](https://lifehacker.com/what-annoys-you-about-apple-products-1823128413)
+> 原文：<https://lifehacker.com/what-annoys-you-about-apple-products-1823128413>
 
 抱怨一件事很容易。“我的咖啡太苦了！办公室太温暖了！狗不让我 [给他一个碎骨的拥抱！](https://adequateman.deadspin.com/dogs-may-not-be-down-with-hugs-1774242513) “当然，有些抱怨是轻微的，但当涉及到与技术互动时，可能是一些小事把我们推到了边缘。举个例子，苹果。漂亮的产品。至少可以看看。
 

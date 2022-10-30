@@ -1,6 +1,6 @@
 # 据一位桌游博主称，这是最适合儿童的桌游
 
-> 原文:[https://life hacker . com/the-best-board-gam-1829601633](https://lifehacker.com/the-best-board-games-for-kids-according-to-a-board-gam-1829601633)
+> 原文：<https://lifehacker.com/the-best-board-games-for-kids-according-to-a-board-gam-1829601633>
 
 [*米普尔女士*](http://www.boardgamemeeplelady.com/) *是一名桌游博主、规则手册编辑和播客。她和我们分享了她最喜欢的儿童棋盘游戏——成年人也会喜欢玩的游戏。*
 

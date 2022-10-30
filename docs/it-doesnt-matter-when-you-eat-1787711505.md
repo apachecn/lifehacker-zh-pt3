@@ -1,6 +1,6 @@
 # 什么时候吃都没关系
 
-> 原文:[https://life hacker . com/it-not-matter-when-you-eat-1787711505](https://lifehacker.com/it-doesnt-matter-when-you-eat-1787711505)
+> 原文：<https://lifehacker.com/it-doesnt-matter-when-you-eat-1787711505>
 
 关于什么时候吃东西来减肥，有太多的神话和奇怪的具体规则，但它们本身毫无帮助。*吃上一顿丰盛的早餐，轻松一整天。* *每隔几小时吃一顿小餐。吃饭时的规则没有你想象的那么重要，即使它们有帮助，也不是因为你想象的原因。*
 

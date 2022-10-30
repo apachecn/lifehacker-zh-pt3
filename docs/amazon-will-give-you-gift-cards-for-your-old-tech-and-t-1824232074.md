@@ -1,6 +1,6 @@
 # 亚马逊会给你旧技术和课本的礼品卡
 
-> 原文:[https://life hacker . com/Amazon-will-give-you-gift-cards-for-old-tech-and-t-1824232074](https://lifehacker.com/amazon-will-give-you-gift-cards-for-your-old-tech-and-t-1824232074)
+> 原文：<https://lifehacker.com/amazon-will-give-you-gift-cards-for-your-old-tech-and-t-1824232074>
 
 从小到大，我爸给我灌输的口头禅就是:“如果还有用，你就别扔了。”这意味着，如果你得到了新的东西，你可能也应该保留旧的东西，“以防万一。”这只是以防万一，可能是因为你的新东西坏了，或者因为你的朋友碰巧需要它——但是如果它“仍然很好”，那么丢弃它是完全不可能的。
 

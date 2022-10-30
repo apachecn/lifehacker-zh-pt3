@@ -1,6 +1,6 @@
 # 哥伦比亚广播公司体育总部全天免费播放体育新闻
 
-> 原文:[https://life hacker . com/CBS-sports-HQ-streams-sports-news-全天免费-1823327282](https://lifehacker.com/cbs-sports-hq-streams-sports-news-all-day-for-free-1823327282)
+> 原文：<https://lifehacker.com/cbs-sports-hq-streams-sports-news-all-day-for-free-1823327282>
 
 希望你不用订阅有线电视就能整天看体育新闻和集锦？现在你可以了。今天， [哥伦比亚广播公司推出了体育总部](https://www.cbssports.com/general/news/cbs-launches-cbs-sports-hq-a-247-streaming-network-for-sports-news-highlights-and-analysis/) ，这是一个免费的、有广告支持的流媒体，提供所有你喜欢躺在沙发上就能睡着的体育节目。
 

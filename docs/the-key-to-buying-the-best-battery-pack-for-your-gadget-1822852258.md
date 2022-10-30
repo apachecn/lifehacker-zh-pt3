@@ -1,6 +1,6 @@
 # 为你的设备购买最好的电池组的关键
 
-> 原文:[https://gizmodo . com/the-key-to-buy-the-best-battery-pack-for-your-gadget-1822852258](https://gizmodo.com/the-key-to-buying-the-best-battery-pack-for-your-gadget-1822852258)
+> 原文：<https://gizmodo.com/the-key-to-buying-the-best-battery-pack-for-your-gadget-1822852258>
 
 如果你的生活离不开电源插座，那么在某种程度上，你需要购买一个外置电池组。只是不是所有的电池都一样。除了你可能在一个设备上看到的各种端口，如 USB Type-A、micro USB 或 USB Type-C，如果你想真正为你的笔记本电脑和手机充电，考虑你的设备需要的电源输出类型也很重要。
 

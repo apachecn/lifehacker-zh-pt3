@@ -1,6 +1,6 @@
 # 如何辨别 Tinder 简介是否是假的
 
-> 原文:[https://life hacker . com/how-to-tell-if-a-tinder-profile-is-fake-1772999305](https://lifehacker.com/how-to-tell-if-a-tinder-profile-is-fake-1772999305)
+> 原文：<https://lifehacker.com/how-to-tell-if-a-tinder-profile-is-fake-1772999305>
 
 当我将其与竞争对手 进行比较时，虚假的个人资料和聊天机器人是使用 Tinder 最令人沮丧的部分。他们无处不在，试图向你出售东西或窃取你的个人信息，诱骗你下载恶意软件，甚至乞求你汇款。如果你只是想平静地刷卡，以下是你应该留意的。
 

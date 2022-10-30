@@ -1,6 +1,6 @@
 # 如何在不砍树或砍人的情况下在你的车里玩精灵宝可梦 Go
 
-> 原文:[https://jalopnik . com/how-to-play-pokemon-go-in-your-car-with-cutting-down-1784153264](https://jalopnik.com/how-to-play-pokemon-go-in-your-car-without-mowing-down-1784153264)
+> 原文：<https://jalopnik.com/how-to-play-pokemon-go-in-your-car-without-mowing-down-1784153264>
 
 先说清楚:[*pokémon Go*](http://kotaku.com/tag/pokemon-go#_ga=1.124467018.1359681016.1464231051)意为行走。但在我住的地方，现在外面也有 100 多度。另外，走路呢？这是美国；那是给笨蛋的。但是对于那些想边开车边玩游戏的人来说，这被证明是极其危险的。我们见过开车的玩家 [撞树](http://jalopnik.com/guy-who-caught-tree-in-pokemon-go-actually-crashed-his-1783684604#_ga=1.179974308.1273901456.1445270859) ，至少有两个甚至撞过警车——一个在 [巴尔的摩](https://kotaku.com/pokemon-go-player-hits-cop-car-captured-on-camera-1783942861) 另一个在 [蒙特利尔](http://ici.radio-canada.ca/regions/quebec/2016/07/13/005-joueur-pokemon-go-collision-autopatrouille.shtml) 。
 

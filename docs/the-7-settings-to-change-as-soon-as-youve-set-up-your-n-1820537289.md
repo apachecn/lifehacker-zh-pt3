@@ -1,6 +1,6 @@
 # 设置好新手机后，需要立即更改的 6 项设置
 
-> 原文:[https://gizmodo . com/the-7-settings-to-change-as-youve-set-up-your-n-1820537289](https://gizmodo.com/the-7-settings-to-change-as-soon-as-youve-set-up-your-n-1820537289)
+> 原文：<https://gizmodo.com/the-7-settings-to-change-as-soon-as-youve-set-up-your-n-1820537289>
 
 恭喜你！你已经有了一部崭新的智能手机，你已经完成了初始设置和登录过程，你已经准备好开始认真使用它了。在你开始使用[snapchat](http://fieldguide.gizmodo.com/10-tricks-to-turn-you-into-a-snapchat-wizard-1765893891)和[whatsapp](http://fieldguide.gizmodo.com/10-tricks-to-make-yourself-a-whatsapp-master-1708392019)之前，先检查一下 Android 和 iOS 适用于你的一些默认设置——因为它们可能不是你想要的。
 

@@ -1,6 +1,6 @@
 # 使用这款 Chrome 扩展，找出您的密码是否在数据泄露中泄露
 
-> 原文:[https://life hacker . com/know-if-your-password-has-leaved-in-a-data-breach-1826373137](https://lifehacker.com/know-if-your-password-has-been-leaked-in-a-data-breach-1826373137)
+> 原文：<https://lifehacker.com/know-if-your-password-has-been-leaked-in-a-data-breach-1826373137>
 
 在这一点上，似乎每周都有新的数据泄露，用户的用户名、密码和其他个人信息暴露给黑客。跟踪他们可能是一项艰巨的任务。
 

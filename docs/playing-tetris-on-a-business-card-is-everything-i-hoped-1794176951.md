@@ -1,6 +1,6 @@
 # 在名片上玩俄罗斯方块是我希望的一切[更新]
 
-> 原文:[https://gizmodo . com/playing-Tetris-on-a-business-card-is everything-I-hope-1794176951](https://gizmodo.com/playing-tetris-on-a-business-card-is-everything-i-hoped-1794176951)
+> 原文：<https://gizmodo.com/playing-tetris-on-a-business-card-is-everything-i-hoped-1794176951>
 
 三年前，凯文·贝茨创造了一个 [*俄罗斯方块*——打名片](http://gizmodo.com/make-an-awesome-first-impression-with-a-tetris-playing-1535287877) ，向潜在雇主展示他的工程技能。但他的创作很快在互联网上传播开来，每个回忆起自己心爱的童年游戏男孩的人都吵着要自己的。在用同样小的 Arduboy 试水之后，贝茨终于推出了官方授权的 [*俄罗斯方块*微卡](http://www.tetrismicrocard.com/) 。如果你有 ~~$60~~ $54 在一个玩单一游戏的小机器上，你会想要在你的钱包里有这个。
 

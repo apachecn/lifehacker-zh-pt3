@@ -1,6 +1,6 @@
 # 在谷歌解决其显示问题之前，不要购买 Pixel 2 XL
 
-> 原文:[https://life hacker . com/don-buy-the-pixel-2-XL-until-Google-sorts-out-its-disp-1819772290](https://lifehacker.com/dont-buy-the-pixel-2-xl-until-google-sorts-out-its-disp-1819772290)
+> 原文：<https://lifehacker.com/dont-buy-the-pixel-2-xl-until-google-sorts-out-its-disp-1819772290>
 
 如果你正在考虑为你的下一次智能手机升级选择 [Pixel 2 XL](https://lifehacker.com/google-made-the-pixel-xl-2-even-harder-to-repair-than-l-1819680350) ，你可能需要三思，或者至少把你的决定推迟几天。该设备的早期版本可能有一个硬件缺陷，导致屏幕永久性损坏。
 

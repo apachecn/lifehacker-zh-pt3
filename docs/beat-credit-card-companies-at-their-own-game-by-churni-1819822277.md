@@ -1,6 +1,6 @@
 # 如何通过“信用冲浪”获得巨额奖励和红利
 
-> 原文:[https://life hacker . com/beat-credit-card-companies-at-your-own-game-by-chur ni-1819822277](https://lifehacker.com/beat-credit-card-companies-at-their-own-game-by-churni-1819822277)
+> 原文：<https://lifehacker.com/beat-credit-card-companies-at-their-own-game-by-churni-1819822277>
 
 信用卡公司希望你使用他们的积分卡。他们用点数诱惑你，你积累债务，他们从利息中赚到足够的钱，让整个投资变得值得。不过，只要玩对了，你就可以在他们自己的游戏中打败他们。
 

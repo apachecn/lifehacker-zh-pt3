@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 27 日至 2 月 3 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-1 月 27 日至 2 月 1791960406](https://lifehacker.com/this-weeks-most-popular-posts-january-27th-to-february-1791960406)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-27th-to-february-1791960406>
 
 本周，我们尝试了一个月每天做俯卧撑，比较了所有新的在线电视流媒体服务，了解了“完美胸罩”尺寸的神话，为超级碗做准备，等等。这里回顾一下。
 

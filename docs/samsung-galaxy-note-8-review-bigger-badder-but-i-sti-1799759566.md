@@ -1,6 +1,6 @@
 # 三星 Galaxy Note 8 评测:更大，更坏，但我还是想要更多
 
-> 原文:[https://gizmodo . com/Samsung-galaxy-note-8-review-bigger-badder-but-I-STI-1799759566](https://gizmodo.com/samsung-galaxy-note-8-review-bigger-badder-but-i-sti-1799759566)
+> 原文：<https://gizmodo.com/samsung-galaxy-note-8-review-bigger-badder-but-i-sti-1799759566>
 
 原谅我错过了把电池爆炸的笑话击垮的机会。让我们开门见山吧:三星曾经占据主导地位的旗舰平板手机在阔别两年后又回来了。新的 Galaxy Note 8 配备了令人惊叹的 18.5:9 超宽屏显示器，比以往任何时候都更大，更有吸引力，除了命运多舛的 Galaxy Note 7 之外，它还配备了比任何其他 Note 都更大的电源组。但自 2015 年以来，情况发生了很大变化——尤其是当你考虑到新款 Note 8 的起价为 930 美元时，它现在比以往任何时候都要贵。这意味着它需要回答两个问题:Galaxy Note 8 在 2017 年仍有意义吗？它可能值近 1000 美元吗？
 

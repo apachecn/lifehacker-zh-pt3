@@ -1,6 +1,6 @@
 # 那么风力涡轮机到底是如何工作的呢？
 
-> 原文:[https://gizmodo . com/so-how-do-wind-turbines-work-anyway-1826480534](https://gizmodo.com/so-how-do-wind-turbines-work-anyway-1826480534)
+> 原文：<https://gizmodo.com/so-how-do-wind-turbines-work-anyway-1826480534>
 
 我们大多数人都同意 [更清洁的能源是一件好事](https://earther.com/more-republicans-support-renewable-energy-than-fossil-f-1825968623) ，但是惊人数量的人仍然 [不希望风力涡轮机建在他们的后院](https://en.wikipedia.org/wiki/NIMBY) 。这是一种耻辱，因为驱动这些坏男孩的技术不仅是无碳无污染的——简直酷毙了。
 

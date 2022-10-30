@@ -1,6 +1,6 @@
 # 花椰菜啤酒奶酪砂锅是你的家常便饭需要的升级
 
-> 原文:[https://life hacker . com/the-椰菜-啤酒-奶酪-砂锅-is-the-upgrade-your-1826847779](https://lifehacker.com/the-broccoli-beer-cheese-casserole-is-the-upgrade-your-1826847779)
+> 原文：<https://lifehacker.com/the-broccoli-beer-cheese-casserole-is-the-upgrade-your-1826847779>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅菜。这一周，我们将一道已经为人所熟知和喜爱的热菜——椰菜奶酪砂锅——升级为椰菜啤酒奶酪砂锅，正如 D. Hooper 所建议的:
 

@@ -1,6 +1,6 @@
 # 如何(有意识地)与手机分手
 
-> 原文:[https://life hacker . com/how-to-mind-break-up-with your-phone-1825587301](https://lifehacker.com/how-to-mindfully-break-up-with-your-phone-1825587301)
+> 原文：<https://lifehacker.com/how-to-mindfully-break-up-with-your-phone-1825587301>
 
 [黑掉你的通知徽章](https://lifehacker.com/hack-your-notification-badges-to-encourage-good-habits-1819139456#_ga=2.55465257.367633666.1525095724-3846207152.1521480874) 。 [转灰度](https://lifehacker.com/make-your-smartphone-less-distracting-by-switching-your-1789747192#_ga=2.55465257.367633666.1525095724-3846207152.1521480874) 。 [宣布你即将看手机的原因。如今有无数的方法可以帮助你减少花在手机上的时间。](https://lifehacker.com/announce-the-reason-you-are-about-to-look-at-your-phone-1823194762#_ga=2.55465257.367633666.1525095724-3846207152.1521480874)
 

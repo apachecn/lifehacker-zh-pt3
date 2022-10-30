@@ -1,6 +1,6 @@
 # 为什么你还是不应该在老款 iPhone 上下载 iOS 11
 
-> 原文:[https://life hacker . com/why-you-still-should-t-download-IOs-11-on-an-older-iph-1820122749](https://lifehacker.com/why-you-still-shouldn-t-download-ios-11-on-an-older-iph-1820122749)
+> 原文：<https://lifehacker.com/why-you-still-shouldn-t-download-ios-11-on-an-older-iph-1820122749>
 
 当 [iOS 11](https://www.google.com/search?q=ios+11+lifehacker&oq=ios+11+lifehacker&aqs=chrome..69i57j69i60l3.5147j0j4&sourceid=chrome&ie=UTF-8) 第一次掉线的时候， [我们警告过你](https://lifehacker.com/here-s-why-you-should-wait-to-download-ios-11-1818525026) 等一下再更新你的 iPhone。两周后，如果你使用的是 iPhone 7 或更旧的手机，至少根据最近来自 [PhoneArena](https://www.phonearena.com/news/iOS-11-update-has-slowed-down-older-iPhones-Poll-Results_id99471) 的一项调查，这可能仍然值得推迟。
 

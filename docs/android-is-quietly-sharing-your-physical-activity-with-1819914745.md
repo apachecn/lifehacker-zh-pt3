@@ -1,6 +1,6 @@
 # 如何阻止 Android 与第三方应用程序共享您的身体活动
 
-> 原文:[https://life hacker . com/Android-is-quiet-sharing-your-physical-activity-with-1819914745](https://lifehacker.com/android-is-quietly-sharing-your-physical-activity-with-1819914745)
+> 原文：<https://lifehacker.com/android-is-quietly-sharing-your-physical-activity-with-1819914745>
 
 在很大程度上，Android 让变得更好，但它当然也不能避免困扰每个操作系统和智能手机的隐私问题。事实证明，谷歌在最近的更新中偷偷将一个有问题的功能植入了操作系统。一项名为“活动识别”的新 [权限](https://lifehacker.com/why-does-this-android-app-need-so-many-permissions-5991099) 可能会跟踪你的身体活动，并与第三方应用程序共享，而且没有简单的方法来阻止它。
 

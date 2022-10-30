@@ -1,6 +1,6 @@
 # 如何充分利用 GoPro
 
-> 原文:[https://life hacker . com/how-to-get-more-out-of-your-go pro-1786593998](https://lifehacker.com/how-to-get-more-out-of-your-gopro-1786593998)
+> 原文：<https://lifehacker.com/how-to-get-more-out-of-your-gopro-1786593998>
 
 GoPro 是你最喜欢的动作相机，很容易理解为什么。它功能多样，功能强大，坚固耐用。然而，你可能会很快克服骑自行车或水下浮潜的新奇感。不要浪费这 500 美元——有很多其他创造性的方法可以让你的 GoPro 发挥更大的作用。
 

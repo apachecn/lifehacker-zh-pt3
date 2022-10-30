@@ -1,6 +1,6 @@
 # 如何设置 YouTube 儿童的新家长控制
 
-> 原文:[https://life hacker . com/how-to-set-up-YouTube-kids-new-parental-controls-1829037223](https://lifehacker.com/how-to-set-up-youtube-kids-new-parental-controls-1829037223)
+> 原文：<https://lifehacker.com/how-to-set-up-youtube-kids-new-parental-controls-1829037223>
 
 有一段时间，我拒绝把我的手机交给我 5 岁的女儿，让她看 YouTube Kids——有很多次，我给她安排了一个我喜欢的节目，但 15 分钟后，发现她在看我讨厌的东西(通常是瑞安的玩具评论)。其他父母也有类似的抱怨，说孩子们很容易陷入令人讨厌、怪异和有时令人不安的内容的兔子洞里。
 

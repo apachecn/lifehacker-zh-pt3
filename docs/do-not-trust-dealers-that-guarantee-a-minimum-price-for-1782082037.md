@@ -1,6 +1,6 @@
 # 不要相信保证最低交易价格的交易商
 
-> 原文:[https://jalopnik . com/do-not-trust-dealers-that-guarantee-a-minimum-price for-1782082037](https://jalopnik.com/do-not-trust-dealers-that-guarantee-a-minimum-price-for-1782082037)
+> 原文：<https://jalopnik.com/do-not-trust-dealers-that-guarantee-a-minimum-price-for-1782082037>
 
 你可能听过这样的广告:“无论条件如何，我们都会给你最低 500 美元的交易！”这通常只是一个骗局，让你为正在购买的汽车支付更多的钱，应该避免经销商以这种方式做广告。
 

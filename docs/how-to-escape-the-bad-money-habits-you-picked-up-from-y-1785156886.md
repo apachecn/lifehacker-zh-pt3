@@ -1,6 +1,6 @@
 # 如何摆脱你从父母那里染上的不良理财习惯
 
-> 原文:[https://life hacker . com/how-to-escape-the bad-money-habits-you-picked-from-y-1785156886](https://lifehacker.com/how-to-escape-the-bad-money-habits-you-picked-up-from-y-1785156886)
+> 原文：<https://lifehacker.com/how-to-escape-the-bad-money-habits-you-picked-up-from-y-1785156886>
 
 26 岁的玛吉·麦库姆斯(Maggie McCombs)是肯塔基州列克星敦的一名内容营销人员和社交媒体顾问，她从小就认为自己的家庭在苦苦挣扎。
 

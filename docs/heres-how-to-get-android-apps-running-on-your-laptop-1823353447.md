@@ -1,6 +1,6 @@
 # 以下是如何让 Android 应用程序在你的笔记本电脑上运行
 
-> 原文:[https://gizmodo . com/heres-how-to-get-Android-apps-running-on-your-laptop-1823353447](https://gizmodo.com/heres-how-to-get-android-apps-running-on-your-laptop-1823353447)
+> 原文：<https://gizmodo.com/heres-how-to-get-android-apps-running-on-your-laptop-1823353447>
 
 在笔记本电脑上安装一些 Android 应用程序比以往任何时候都更有意义。除了让你访问没有桌面或网络对等物的应用程序(如)之外，它还非常适合在大屏幕上玩游戏——我们在 Pixelbook 上安装并运行了 [奥拓的冒险](https://play.google.com/store/apps/details?id=com.noodlecake.altosadventure) 没有任何问题，许多其他游戏也将受益于额外的屏幕空间。
 

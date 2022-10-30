@@ -1,6 +1,6 @@
 # 如何清理你的 Instagram 探索订阅
 
-> 原文:[https://life hacker . com/how-to-clean-up-your-insta gram-explore-feed-1824030593](https://lifehacker.com/how-to-clean-up-your-instagram-explore-feed-1824030593)
+> 原文：<https://lifehacker.com/how-to-clean-up-your-instagram-explore-feed-1824030593>
 
 算法饲料，我多么厌恶你。我讨厌推特，尽管它很小。我讨厌脸书的，因为我只想要一个简单的按时间顺序排列的新闻。我讨厌 Instagram 的，因为它的探索标签可以填满各种奇怪的东西，服务认为我应该喜欢。你没有太多的办法来控制这个不守规矩的探险者，但是你有几个选择。
 

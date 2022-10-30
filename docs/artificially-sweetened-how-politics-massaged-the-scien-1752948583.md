@@ -1,6 +1,6 @@
 # 人工增甜:政治如何操纵新饮食指南中的科学
 
-> 原文:[https://life hacker . com/artificial-sweeted-how-politics-messaged-the-science-1752948583](https://lifehacker.com/artificially-sweetened-how-politics-massaged-the-scien-1752948583)
+> 原文：<https://lifehacker.com/artificially-sweetened-how-politics-massaged-the-scien-1752948583>
 
 联邦政府刚刚发布了一套新的饮食指南，一如既往，它们既是科学也是政治。它们包括一些有争议的变化:例如，糖现在有限量，而胆固醇没有。这是你的指南，告诉你什么是新的，什么不是，以及专家们不同意的地方。
 

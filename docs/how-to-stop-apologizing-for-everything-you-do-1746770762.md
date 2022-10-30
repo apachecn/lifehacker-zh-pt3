@@ -1,6 +1,6 @@
 # 如何停止为你所做的一切道歉
 
-> 原文:[https://life hacker . com/how-to-stop-morning-for-everything-you-do-1746770762](https://lifehacker.com/how-to-stop-apologizing-for-everything-you-do-1746770762)
+> 原文：<https://lifehacker.com/how-to-stop-apologizing-for-everything-you-do-1746770762>
 
 对我们许多人来说，“对不起”这个词已经成为我们反应性地说出的东西，不管我们是否做错了什么。这种看似无害的习惯实际上会降低你的自尊，为别人的糟糕行为辩护，让你完全变成一个容易被说服的人。
 

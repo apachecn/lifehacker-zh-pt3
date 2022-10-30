@@ -1,6 +1,6 @@
 # 决心 2018 年去健身房
 
-> 原文:[https://life hacker . com/resolve-to-go-to-the-gym-in-2018-1821427301](https://lifehacker.com/resolve-to-go-to-the-gym-in-2018-1821427301)
+> 原文：<https://lifehacker.com/resolve-to-go-to-the-gym-in-2018-1821427301>
 
 准备在一月份去健身房吗？这是你的入门包，里面有你需要的所有信息，带着自信走进健身房，并养成一个将持续一整年的习惯。
 

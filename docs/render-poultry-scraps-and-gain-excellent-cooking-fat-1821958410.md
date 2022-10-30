@@ -1,6 +1,6 @@
 # 提炼家禽下脚料并获得优质烹饪脂肪
 
-> 原文:[https://life hacker . com/render-poultry-scraps-and-gain-excellent-cooking-fat-1821958410](https://lifehacker.com/render-poultry-scraps-and-gain-excellent-cooking-fat-1821958410)
+> 原文：<https://lifehacker.com/render-poultry-scraps-and-gain-excellent-cooking-fat-1821958410>
 
 我们都知道要保存鸟骨头来做原料，但是你在屠宰一块家禽后发现自己身上多余的皮和脂肪也同样有价值。你只需付出很少的努力，就能做出一些最美味的烹饪油脂。
 

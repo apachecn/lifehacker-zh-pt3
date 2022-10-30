@@ -1,6 +1,6 @@
 # 如何举办一个对环境不那么糟糕的节日派对
 
-> 原文:[https://life hacker . com/how-to-host a-holiday-party-than-less-worthy-for-en-1821133241](https://lifehacker.com/how-to-host-a-holiday-party-thats-less-awful-for-the-en-1821133241)
+> 原文：<https://lifehacker.com/how-to-host-a-holiday-party-thats-less-awful-for-the-en-1821133241>
 
 这是一年中最美好的时光，你每周至少要参加一次节日聚会。如果你非常幸运，你也有责任举办一次！也许在保护地球安全的同时让你的房子充满欢乐感觉太多了，但是一些小小的改变可以让你的节日更加环保。
 

@@ -1,6 +1,6 @@
 # 如果我能做出我一生中最棒的披萨面团，你也能
 
-> 原文:[https://the take out . com/recipe-how-to-make-pizza-dough-1827812406](https://thetakeout.com/recipe-how-to-make-pizza-dough-1827812406)
+> 原文：<https://thetakeout.com/recipe-how-to-make-pizza-dough-1827812406>
 
 *欢迎来到* [***披萨学校***](https://thetakeout.com/tag/pizza-school) *，披萨制作爱好者格温·伊纳特在这里向披萨制作专家学习制作披萨的秘诀。*
 

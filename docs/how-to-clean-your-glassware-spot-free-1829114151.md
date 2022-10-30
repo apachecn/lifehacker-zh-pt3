@@ -1,6 +1,6 @@
 # 了解餐厅认可的无污点玻璃器皿制作方法
 
-> 原文:[https://the take out . com/how-to-clean-your-glassware-spot-free-1829114151](https://thetakeout.com/how-to-clean-your-glassware-spot-free-1829114151)
+> 原文：<https://thetakeout.com/how-to-clean-your-glassware-spot-free-1829114151>
 
 在高中和大学的夏天，我在家乡附近的一家法国小酒馆当服务生，为大学课本、手机账单和可怕的红色挑染挣钱。(我现在畏缩了，但这是克里斯蒂娜·阿奎莱拉时代的。)这份工作让我看到了在餐馆工作的现实，从厨房戏剧到喝醉的老板，再到苛刻的顾客。但我在那里学到的最有用的小技能之一是如何完美地清洗玻璃器皿，使其没有条纹和污点。
 

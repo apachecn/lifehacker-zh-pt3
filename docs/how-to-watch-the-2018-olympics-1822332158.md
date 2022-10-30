@@ -1,6 +1,6 @@
 # 如何观看 2018 年奥运会
 
-> 原文:[https://life hacker . com/how-to-watch-the-2018-Olympics-1822332158](https://lifehacker.com/how-to-watch-the-2018-olympics-1822332158)
+> 原文：<https://lifehacker.com/how-to-watch-the-2018-olympics-1822332158>
 
 如果你有有线电视和全套 NBC 频道，这很容易。但是对于其他人来说，完全沉浸在冬季运动盛会中需要更多的计划和悟性。幸运的是，不太多。
 

@@ -1,6 +1,6 @@
 # “Brieing”是获得摇头丸快感的新方法
 
-> 原文:[https://life hacker . com/brie ing-is-the-new-bougie-way-to-get-high-on-MDMA-1826108635](https://lifehacker.com/brieing-is-the-new-bougie-way-to-get-high-on-mdma-1826108635)
+> 原文：<https://lifehacker.com/brieing-is-the-new-bougie-way-to-get-high-on-mdma-1826108635>
 
 一些中产阶级的妈妈们正把她们的小口杯葡萄酒换成掺有药物的奶酪盘。根据 [Metro](https://metro.co.uk/2018/05/16/brieing-is-the-new-cheese-and-mdma-drug-craze-middle-class-women-are-trying-7548127/) 的说法，“布里英”就是把 MDMA(又名“莫莉”)包在一块奶酪里，吃了它，和书友会的 Carol 一起 high af 的做法。
 

@@ -1,6 +1,6 @@
 # 如何推迟给孩子买智能手机(不让他们成为社会弃儿)
 
-> 原文:[https://life hacker . com/how-to-hold-off-without-1798641798](https://lifehacker.com/how-to-hold-off-on-giving-your-kid-a-smartphone-withou-1798641798)
+> 原文：<https://lifehacker.com/how-to-hold-off-on-giving-your-kid-a-smartphone-withou-1798641798>
 
 如果你生活在过去，比如说 10 年，你会受到大量文章的影响，这些文章声称智能手机正在摧毁一代人的 T2 T3。这种观点认为，今天的年轻人更加孤僻，注意力持续时间更短，而且...抱歉，你说什么？我只是要检查一些东西。总之，智能手机据称对孩子有害。
 

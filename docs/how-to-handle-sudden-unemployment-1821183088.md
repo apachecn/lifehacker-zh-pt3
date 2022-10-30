@@ -1,6 +1,6 @@
 # 如何处理突然失业
 
-> 原文:[https://life hacker . com/how-to-handle-突发性失业-1821183088](https://lifehacker.com/how-to-handle-sudden-unemployment-1821183088)
+> 原文：<https://lifehacker.com/how-to-handle-sudden-unemployment-1821183088>
 
 作为一个最近在 [相当(读:非常)公开的方式](https://www.nytimes.com/2017/11/02/nyregion/dnainfo-gothamist-shutting-down.html?_r=0) 失业的人，我不得不迅速适应失业的日常生活。
 

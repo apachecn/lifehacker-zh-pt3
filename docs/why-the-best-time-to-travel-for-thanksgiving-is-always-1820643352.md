@@ -1,6 +1,6 @@
 # 为什么感恩节旅行的最佳时间总是在感恩节的早晨
 
-> 原文:[https://jalopnik . com/why-the-best-time-to-travel for-thanksgiving-is-always-1820643352](https://jalopnik.com/why-the-best-time-to-travel-for-thanksgiving-is-always-1820643352)
+> 原文：<https://jalopnik.com/why-the-best-time-to-travel-for-thanksgiving-is-always-1820643352>
 
 当我还是个孩子的时候，在大多数感恩节，我和我的父母、哥哥会在感恩节的早晨很早就坐上我们的车，从我们在俄亥俄州肯特的家出发，开三个半小时的车去西弗吉尼亚州的克拉克斯堡看望家人。路上总是空无一人，这让我觉得我们在做错事。事实上，我们正在做一件非常正确的事情。
 

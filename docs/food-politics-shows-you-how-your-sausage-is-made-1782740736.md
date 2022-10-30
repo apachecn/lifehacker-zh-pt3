@@ -1,6 +1,6 @@
 # 食物政治向你展示你的香肠是如何制作的
 
-> 原文:[https://life hacker . com/food-politics-show-you-how-you-you-the-香肠是如何制作的 1782740736](https://lifehacker.com/food-politics-shows-you-how-your-sausage-is-made-1782740736)
+> 原文：<https://lifehacker.com/food-politics-shows-you-how-your-sausage-is-made-1782740736>
 
 阅读马里恩·内斯特莱的《食物政治》会让你觉得自己就像是巨人宇宙中的一粒微尘。公司在一章又一章中交替地与美国政府斗争和勾结，花费数十亿美元来影响你，消费者，选择放进嘴里的东西。
 

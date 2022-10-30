@@ -1,6 +1,6 @@
 # 播客主持人的建议让你成为更好的公众演说家
 
-> 原文:[https://life hacker . com/tips-from-podcast-hosts-to-make-you-a-better-public-SPE-1798141180](https://lifehacker.com/tips-from-podcast-hosts-to-make-you-a-better-public-spe-1798141180)
+> 原文：<https://lifehacker.com/tips-from-podcast-hosts-to-make-you-a-better-public-spe-1798141180>
 
 我喜欢向一小群人解释事情，也喜欢在网上写东西，但是在大群人面前演讲时，我就变得笨手笨脚的。公开演讲是我从未真正掌握的后天技能之一，但还有时间。本周 *Fast Company* [采访了几位播客](https://www.fastcompany.com/40452672/let-your-favorite-podcast-hosts-fix-your-public-speaking-problems?partner=rss&utm_source=feedburner&utm_medium=feed&utm_campaign=feedburner+fastcompany&utm_content=feedburner) ，他们已经掌握了这一技巧(并有 NPR 和 WNYC 这样的节目来证明这一点),并提出了一系列甚至像我这样的人也可以用来改进的技巧。以下是几个重要的要点:
 

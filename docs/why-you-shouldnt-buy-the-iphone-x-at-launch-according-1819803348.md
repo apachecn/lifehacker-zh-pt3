@@ -1,6 +1,6 @@
 # 苹果公司的一位创始人说，为什么你不应该在 iPhone X 发布时购买它
 
-> 原文:[https://life hacker . com/why-you-should-not-buy-the-iphone-x-at-launch-only-1819803348](https://lifehacker.com/why-you-shouldnt-buy-the-iphone-x-at-launch-according-1819803348)
+> 原文：<https://lifehacker.com/why-you-shouldnt-buy-the-iphone-x-at-launch-according-1819803348>
 
 [iPhone X](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) 即将上市，但苹果最大的支持者之一对这款新手机并不兴奋。 [史蒂夫·沃兹尼亚克](https://lifehacker.com/how-apple-co-founder-steve-wozniak-gets-things-done-5222989) ，这位自 1985 年离开公司以来一直在场外欢呼的苹果联合创始人，在接受采访时表示，他不会在第一天拿起 iPhone X。
 

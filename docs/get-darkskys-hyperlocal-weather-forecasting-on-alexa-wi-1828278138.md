@@ -1,6 +1,6 @@
 # 用这个技能在 Alexa 上获得 DarkSky 的超本地天气预报
 
-> 原文:[https://life hacker . com/get-dark skys-hyperlocal-weather-forecasting-on-Alexa-wi-1828278138](https://lifehacker.com/get-darkskys-hyperlocal-weather-forecasting-on-alexa-wi-1828278138)
+> 原文：<https://lifehacker.com/get-darkskys-hyperlocal-weather-forecasting-on-alexa-wi-1828278138>
 
 如果你回顾我的 Alexa 历史，我最常问的问题是天气如何。在旧金山，每天的室外温度通常在 50 到 75 度之间，在我带着我的小狗走下三段楼梯进行晨间散步之前，我通常想知道我们今天的温度到底是多少。
 

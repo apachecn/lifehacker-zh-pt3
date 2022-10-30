@@ -1,6 +1,6 @@
 # 把事情做好，十年了
 
-> 原文:[https://life hacker . com/getting-things-done-in-1795707084](https://lifehacker.com/getting-things-done-ten-years-in-1795707084)
+> 原文：<https://lifehacker.com/getting-things-done-ten-years-in-1795707084>
 
 你不会再听到很多人谈论 [*做事*](http://gettingthingsdone.com/) 的生产力系统了。它不像 [子弹杂志](http://lifehacker.com/the-bullet-journal-minus-the-hype-is-actually-a-reall-1786382012) 那样丰富多彩或对 Insta 友好，尽管各种应用程序都声称“与 GTD 合作”，但它们都略显不足——因为在本质上，GTD 是模拟的。如果你让 Gmail 自动将你的电子邮件分类，或者如果你让一个应用程序扫描你的文档以提取待办事项或日历项目，这是一个效果不太好的系统，因为 GTD 的整个要点是你积极跟踪和收集你遇到的每一项任务、责任或关注(也称为“开环”)。你必须查看每封电子邮件，记下每个约会，因为如果你花时间担心某个应用程序是否忽略了自动安排某件事，那就是一个开放的循环，它会占用你的大脑空间，阻止你完成其他事情。
 

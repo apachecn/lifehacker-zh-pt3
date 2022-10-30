@@ -1,6 +1,6 @@
 # 用这些应用克服自残的冲动
 
-> 原文:[https://life hacker . com/get-through-an-urge-to-self-damage-with these-apps-1822307711](https://lifehacker.com/get-through-an-urge-to-self-harm-with-these-apps-1822307711)
+> 原文：<https://lifehacker.com/get-through-an-urge-to-self-harm-with-these-apps-1822307711>
 
 iOS/Android:自残的冲动，平静的伤害 app 告诉我们，就像一波浪潮。刚开始的时候最强，但是如果你乘风破浪，很快就过去了。应用程序不能代替好的治疗师，但是在这些危机时刻挣扎的人说正确的应用程序真的能帮助 T2 T3。
 

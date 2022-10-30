@@ -1,6 +1,6 @@
 # 就这样，我们在做驴酱
 
-> 原文:[https://the take out . com/recipe-how-to-make-guy-fieri-donkey-sauce-1828211376](https://thetakeout.com/recipe-how-to-make-guy-fieri-donkey-sauce-1828211376)
+> 原文：<https://thetakeout.com/recipe-how-to-make-guy-fieri-donkey-sauce-1828211376>
 
 请看下图:
 

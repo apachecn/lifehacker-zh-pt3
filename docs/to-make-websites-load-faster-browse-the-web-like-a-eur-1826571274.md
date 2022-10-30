@@ -1,6 +1,6 @@
 # 要让网站加载更快，像欧洲人一样浏览网页
 
-> 原文:[https://life hacker . com/to-make-websites-load-fast-browse-the-web-like-a-EUR-1826571274](https://lifehacker.com/to-make-websites-load-faster-browse-the-web-like-a-eur-1826571274)
+> 原文：<https://lifehacker.com/to-make-websites-load-faster-browse-the-web-like-a-eur-1826571274>
 
 我们现在生活在一个 GDPR 世界。如果你不知道，GDPR 代表欧盟的“一般数据保护条例”隐私法，该法于 5 月 25 日生效，导致你过去一个月使用的每项服务都挤满了你的收件箱。
 

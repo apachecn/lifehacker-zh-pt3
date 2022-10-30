@@ -1,6 +1,6 @@
 # 你如何做出完美的 S'mores？
 
-> 原文:[https://life hacker . com/how-do-you-make-perfect-s mores-1827635164](https://lifehacker.com/how-do-you-make-perfect-smores-1827635164)
+> 原文：<https://lifehacker.com/how-do-you-make-perfect-smores-1827635164>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。今天我想谈谈一种美妙的夏日美食:s'more。
 

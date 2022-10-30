@@ -1,6 +1,6 @@
 # 在今年的烧烤之后马上为明年的烧烤做准备
 
-> 原文:[https://life hacker . com/prepare-for-next-years-barbecue-right-after-this-years-1827453527](https://lifehacker.com/prepare-for-next-years-barbecue-right-after-this-years-1827453527)
+> 原文：<https://lifehacker.com/prepare-for-next-years-barbecue-right-after-this-years-1827453527>
 
 也许没有什么比在一场大型户外派对后醒来，却看到你的房子和后院被彻底毁坏更让人筋疲力尽的了。当你清理昨晚的食物时，你最不想做的事就是计划下一次的野餐。但这可能是最好的时机。
 

@@ -1,6 +1,6 @@
 # 什么是网状网络，它能解决我的 Wi-Fi 问题吗？
 
-> 原文:[https://life hacker . com/what-is-mesh-networking-and-will-it-solve-my-wi-fi-prob-1789814700](https://lifehacker.com/what-is-mesh-networking-and-will-it-solve-my-wi-fi-prob-1789814700)
+> 原文：<https://lifehacker.com/what-is-mesh-networking-and-will-it-solve-my-wi-fi-prob-1789814700>
 
 你知道当你坐在沙发上的时候，你笔记本电脑上的无线网络会中断吗？或者当你在浴室的时候，你的手机拒绝连接？从谷歌到 Netgear，每个人都在推出昂贵的“网状网络”套件，承诺修复 Wi-Fi 盲区。但是只有一些人应该为一个支付 300-500 美元。
 

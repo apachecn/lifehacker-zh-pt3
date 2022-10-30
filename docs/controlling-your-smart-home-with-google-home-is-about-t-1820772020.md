@@ -1,6 +1,6 @@
 # 用 Google Home 控制你的智能家居将变得更加容易
 
-> 原文:[https://life hacker . com/controlling-your-smart-home-with-Google-home-is-about-t-1820772020](https://lifehacker.com/controlling-your-smart-home-with-google-home-is-about-t-1820772020)
+> 原文：<https://lifehacker.com/controlling-your-smart-home-with-google-home-is-about-t-1820772020>
 
 [亚马逊 Echo](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219) 在控制智能家居其他设备所需的技能和软件支持方面领先，但 [谷歌与之竞争的声控扬声器](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716) 正在迅速赶上。谷歌家庭支持网站[(被](https://support.google.com/googlehome/answer/7073578) [安卓警察](http://www.androidpolice.com/2017/11/23/google-home-can-now-directly-control-washers-dryers-vacuums-dishwashers-also-adds-scene-support/) 发现)最近的一次更新揭示了这个小工具是如何设置的，以便更容易地控制家里的其他联网设备和电器。
 

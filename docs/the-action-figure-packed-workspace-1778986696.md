@@ -1,6 +1,6 @@
 # 动作(图)打包工作区
 
-> 原文:[https://life hacker . com/the-action-figure-packed-workspace-1778986696](https://lifehacker.com/the-action-figure-packed-workspace-1778986696)
+> 原文：<https://lifehacker.com/the-action-figure-packed-workspace-1778986696>
 
 读者 Norma 刚刚决定翻新她的工作空间，而且只花了不到 800 美元。她在 Flickr 上有很多之前和之后的照片，但我们在这里将重点放在之后的照片上，因为它们看起来很棒。工作空间、大量游戏储物空间和大量动作玩偶。
 

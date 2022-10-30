@@ -1,6 +1,6 @@
 # 现在是买 4K 电视的时候了
 
-> 原文:[https://life hacker . com/nows-the-time-to-buy-a-4k-TV-1786571793](https://lifehacker.com/nows-the-time-to-buy-a-4k-tv-1786571793)
+> 原文：<https://lifehacker.com/nows-the-time-to-buy-a-4k-tv-1786571793>
 
 4K 电视有了长足的进步。它们以前很贵，没有什么可看的，你可以花更少的钱买 1080p。现在情况不同了:有很多东西可以看，新的 4K 面板有很多功能，而且现在每个人都买得起。如果你一直在等待，现在开始寻找是安全的。
 

@@ -1,6 +1,6 @@
 # 特斯拉 Model 3 可能会成为汽车在美国销售的转折点
 
-> 原文:[https://jalopnik . com/the-Tesla-model-3-can-the-tipping-point-on-how-car-1767954248](https://jalopnik.com/the-tesla-model-3-could-be-the-tipping-point-on-how-car-1767954248)
+> 原文：<https://jalopnik.com/the-tesla-model-3-could-be-the-tipping-point-on-how-car-1767954248>
 
 你最后一次看到有人 [提前三天排队](http://jalopnik.com/someone-is-already-in-line-for-the-tesla-model-3-1767947093) 订车是什么时候？这是你在 iPhone 发布会上看到的东西，而不是汽车。特斯拉汽车公司为购车注入了一剂硅谷的强心剂，而 [特斯拉 Model 3](http://jalopnik.com/tag/tesla-model-3) 可能是购车革命的开端。
 

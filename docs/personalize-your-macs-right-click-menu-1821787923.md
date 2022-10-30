@@ -1,6 +1,6 @@
 # 个性化您 Mac 的右键菜单
 
-> 原文:[https://life hacker . com/personalize-your-Macs-右键菜单-1821787923](https://lifehacker.com/personalize-your-macs-right-click-menu-1821787923)
+> 原文：<https://lifehacker.com/personalize-your-macs-right-click-menu-1821787923>
 
 MacOS:一旦苹果最终接受了右击，Mac 应用程序就会加载带有额外功能的右击菜单。MacOS 甚至默认包含几个。但大多数美国用户不需要“将文本转换成简体中文”。以下是如何摆脱它，以及任何其他右键菜单选项，所以你可以很容易地找到你想要的。
 

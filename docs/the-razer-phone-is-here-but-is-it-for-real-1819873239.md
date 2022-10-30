@@ -1,6 +1,6 @@
 # Razer 手机在这里，但它是真的吗？
 
-> 原文:[https://gizmodo . com/the-Razer-phone-is-here-but-is-it-for-real-1819873239](https://gizmodo.com/the-razer-phone-is-here-but-is-it-for-real-1819873239)
+> 原文：<https://gizmodo.com/the-razer-phone-is-here-but-is-it-for-real-1819873239>
 
 正如 Razer 的人所说，他们的计划一直是制造一部手机。Razer 没有人非常确定这款手机会是什么样子，或者确切地说它会是一款“游戏玩家”手机——Razer 的外设和笔记本电脑主要是为游戏玩家打造的——但这款手机是一个遥远的梦想。现在这是一个明显的现实，售价 699 美元的新游戏手机甚至可以成为厌倦了 iPhone X 和 Galaxy S8 等光滑玻璃背有机发光二极管手机的人的可靠替代品。
 

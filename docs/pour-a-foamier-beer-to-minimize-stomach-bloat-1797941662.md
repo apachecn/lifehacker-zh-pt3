@@ -1,6 +1,6 @@
 # 倒一杯泡沫多的啤酒来减少胃部膨胀
 
-> 原文:[https://life hacker . com/pour-a-foam ier-beer-to-minimize-body-float-1797941662](https://lifehacker.com/pour-a-foamier-beer-to-minimize-stomach-bloat-1797941662)
+> 原文：<https://lifehacker.com/pour-a-foamier-beer-to-minimize-stomach-bloat-1797941662>
 
 如果你小心翼翼地将瓶装啤酒慢慢倒入玻璃杯，这样你就不会喝醉，那你就做错了。
 

@@ -1,6 +1,6 @@
 # 不粘烘焙摊牌:羊皮纸 vs 硅胶烘焙垫
 
-> 原文:[https://life hacker . com/Sunday-摊牌-羊皮纸-纸-vs-硅胶-烘焙-ma-1797765791](https://lifehacker.com/sunday-showdown-parchment-paper-vs-silicone-baking-ma-1797765791)
+> 原文：<https://lifehacker.com/sunday-showdown-parchment-paper-vs-silicone-baking-ma-1797765791>
 
 无论你是在烤饼干，烤蔬菜，还是做最甜的糖果，都要避免粘锅。硅胶烘焙垫和羊皮纸都可以用来覆盖平底锅，提供不粘表面，并减少清洁时间，但你应该在厨房里存放哪一种呢？
 

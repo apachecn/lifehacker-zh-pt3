@@ -1,6 +1,6 @@
 # 分手后如何在社交媒体上取胜
 
-> 原文:[https://life hacker . com/how-to-win-at-social-media-after-a-breakup-1819810167](https://lifehacker.com/how-to-win-at-social-media-after-a-breakup-1819810167)
+> 原文：<https://lifehacker.com/how-to-win-at-social-media-after-a-breakup-1819810167>
 
 自从第一封“分手信”被信鸽送来，分手就变得很糟糕，但社交媒体让分手变得更糟糕。即使你屏蔽了，隐藏了，解除了好友关系，你仍然会被发布在共同好友账户上的前任照片攻击。与其成为这种虚拟敌意的受害者，你应该利用社交媒体的力量进行反击，并向所有人证明你做得很好，谢谢。
 

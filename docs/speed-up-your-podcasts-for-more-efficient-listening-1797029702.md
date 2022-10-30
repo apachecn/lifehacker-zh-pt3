@@ -1,6 +1,6 @@
 # 加快您的播客速度，提高收听效率
 
-> 原文:[https://life hacker . com/speed-up-your-podcast-for-more-efficient-listening-1797029702](https://lifehacker.com/speed-up-your-podcasts-for-more-efficient-listening-1797029702)
+> 原文：<https://lifehacker.com/speed-up-your-podcasts-for-more-efficient-listening-1797029702>
 
 有这么多好的播客(包括 Lifehacker 的 [、升级版](https://itunes.apple.com/us/podcast/lifehacker-audio-only-mp3/id508117781) )，但一天的时间就这么多。报道了一些“播客迷”，他们利用之类的应用加速播客的播放。比如，高达 5 倍的速度。当然，这可以节省时间，但也可能会让你的血压飙升，让听播客变得超级有压力。那么，在不损害健康或破坏播客的情况下，收听播客的最佳速度是多少呢？
 

@@ -1,6 +1,6 @@
 # 小睡和咖啡:当你筋疲力尽的时候哪个更好？
 
-> 原文:[https://life hacker . com/naps-vs-coffee-当你筋疲力尽时哪个更好-1730643671](https://lifehacker.com/naps-vs-coffee-which-is-better-when-youre-exhausted-1730643671)
+> 原文：<https://lifehacker.com/naps-vs-coffee-which-is-better-when-youre-exhausted-1730643671>
 
 你感到筋疲力尽，但是你知道你需要再坚持一会儿。你会去拿杯子或枕头吗？以下是科学的说法。
 

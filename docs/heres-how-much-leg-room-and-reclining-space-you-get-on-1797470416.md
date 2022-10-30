@@ -1,6 +1,6 @@
 # 这是你在主要航空公司能得到的腿部空间和倾斜空间
 
-> 原文:[https://life hacker . com/heres-how-how-do-mud-leg-room-and-Leigh-space-you-get-on-1797470416](https://lifehacker.com/heres-how-much-leg-room-and-reclining-space-you-get-on-1797470416)
+> 原文：<https://lifehacker.com/heres-how-much-leg-room-and-reclining-space-you-get-on-1797470416>
 
 不，你不只是在想象:在过去的 20 年里，平均座位尺寸已经缩小了。据倡导乘客权利的非营利组织 FlyersRights.org 称，经济舱座位的平均宽度为 17 英寸，而 21 世纪初为 18.5 英寸。一个座位和它前面的座位之间的平均距离，也被称为座位间距，也从 35 英寸减少到 31 英寸，一些航空公司甚至将腿部空间减少到 28 英寸。更糟糕的是，航空公司的 [上座率比之前的](http://web.mit.edu/airlinedata/www/2013%2012%20Month%20Documents/Traffic%20and%20Capacity/System%20Total/Total%20System%20Load%20Factor.htm) 更高。以下是各航空公司在节省空间方面的比较，数据来自 [SeatGuru](https://www.seatguru.com/charts/shorthaul_economy.php) 和 [USAToday](https://www.usatoday.com/story/travel/columnist/mcgee/2014/09/24/airplane-reclining-seat-pitch-width/16105491/) :
 

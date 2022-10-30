@@ -1,6 +1,6 @@
 # 谈论食物如何影响你的约会档案
 
-> 原文:[https://life hacker . com/how-talking-about-food-affects-your-dating-profile-1820658545](https://lifehacker.com/how-talking-about-food-affects-your-dating-profile-1820658545)
+> 原文：<https://lifehacker.com/how-talking-about-food-affects-your-dating-profile-1820658545>
 
 人们喜欢食物，如果你在约会资料中提到合适的食物，人们可能会更喜欢你。根据最大的约会网站之一的数据，这些是你应该提到的食物，也是你应该避免谈论的食物。
 

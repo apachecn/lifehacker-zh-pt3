@@ -1,6 +1,6 @@
 # 最适合讨厌智能手表的人的智能手表
 
-> 原文:[https://gizmodo . com/the-best-of-smart watches-for-people of-hate-smart watches-1778458602](https://gizmodo.com/the-best-smartwatches-for-people-who-hate-smartwatches-1778458602)
+> 原文：<https://gizmodo.com/the-best-smartwatches-for-people-who-hate-smartwatches-1778458602>
 
 尽管有这个名字，智能手表可能有点傻。当然，它们可以做很酷的事情，比如控制你的音乐，在你的手腕上放通知。但是电池寿命的问题和乏味的平台让你质疑这些所谓“智能”设备的真实智商。然而，有一条路人迹罕至:一个未被大型科技巨头探索的领域，在这里人们可以陶醉于正常工作的智能手表，而不会陷入技术泥潭。
 

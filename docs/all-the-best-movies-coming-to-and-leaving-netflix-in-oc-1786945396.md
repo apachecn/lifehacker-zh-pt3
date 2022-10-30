@@ -1,6 +1,6 @@
 # 2016 年 10 月进出网飞的所有最佳电影
 
-> 原文:[https://life hacker . com/all-the-best-movies-coming-and-leaving-网飞-in-oc-1786945396](https://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-oc-1786945396)
+> 原文：<https://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-oc-1786945396>
 
 在经历了几个黯淡的月份后，网飞本月推出了一系列相当可靠的新节目，包括大量原创节目，如*黑镜*、【T2 之秋】、等等。
 

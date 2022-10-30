@@ -1,6 +1,6 @@
 # 让孩子们入睡的畅销书有了续集
 
-> 原文:[https://life hacker . com/the-畅销书《让孩子们入睡的书》has-1820455131](https://lifehacker.com/the-bestselling-book-that-gets-kids-to-fall-asleep-has-1820455131)
+> 原文：<https://lifehacker.com/the-bestselling-book-that-gets-kids-to-fall-asleep-has-1820455131>
 
 知道让孩子入睡有多困难的父母可能会在睡眼惺忪的绝望中求助于[](http://www.amazon.com/Rabbit-Who-Wants-Fall-Asleep/dp/149617951X/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-bestselling-book-that-gets-kids-to-fall-asleep-has-1820455131&asc_source=&ie=UTF8&keywords=rabbit+who+wants&qid=1439914377&rawdata=[r|https://www.google.com/[ks|google[t|link[p|1724834235[a|149617951X[au|5722090666816357259[b|gizmodo&sr=8-1&tag=kinjalifehackerlink-20)**那本利用心理技巧让小听众快速入睡的畅销书。大约一年前，我在女儿睡觉前给她播放了《阅读》 这本书，五次中有三次非常有效。(这让我打了很多哈欠。)**
 

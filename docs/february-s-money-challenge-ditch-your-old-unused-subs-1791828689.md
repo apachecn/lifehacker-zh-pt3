@@ -1,6 +1,6 @@
 # 二月的金钱挑战:抛弃你的旧的，不用的订阅
 
-> 原文:[https://life hacker . com/junior-s-money-challenge-ditch-your-old-unused-subs-1791828689](https://lifehacker.com/february-s-money-challenge-ditch-your-old-unused-subs-1791828689)
+> 原文：<https://lifehacker.com/february-s-money-challenge-ditch-your-old-unused-subs-1791828689>
 
 读者们，你们搞定了 [一月金钱挑战赛](http://twocents.lifehacker.com/how-d-you-do-during-the-january-money-challenge-1791754292#_ga=1.221743640.1268082208.1431441811) 。花一分钟祝贺你自己，然后为二月做准备。这个月，让我们通过抛弃旧的、未使用的订阅和会员资格来省钱。
 

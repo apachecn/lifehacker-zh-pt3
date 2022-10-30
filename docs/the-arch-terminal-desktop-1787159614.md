@@ -1,6 +1,6 @@
 # 拱门终端桌面
 
-> 原文:[https://lifehacker.com/the-arch-terminal-desktop-1787159614](https://lifehacker.com/the-arch-terminal-desktop-1787159614)
+> 原文：<https://lifehacker.com/the-arch-terminal-desktop-1787159614>
 
 这款 linux 桌面是对我们最喜欢的发行版 之一、Arch Linux 的致敬——读者 [KunalGadgil](https://www.flickr.com/photos/145168665@N05/) 在我们的 [桌面展示和讲述池](https://www.flickr.com/groups/lifehacker-desktop-showandtell/) 中与我们分享了它。以下是你可以得到相似外观的方法。
 

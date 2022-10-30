@@ -1,6 +1,6 @@
 # 你的最后两周:如何优雅地离职
 
-> 原文:[https://life hacker . com/your-last-two-weeks-how-to-leave your-job-1776447833](https://lifehacker.com/your-last-two-weeks-how-to-leave-your-job-gracefully-1776447833)
+> 原文：<https://lifehacker.com/your-last-two-weeks-how-to-leave-your-job-gracefully-1776447833>
 
 这是最后一搏:你已经辞职，现在你和另一种生活之间的所有障碍就是这两周的通知。利用这段时间来处理细节，关注一些小细节，这样会让你更容易放下旧工作，专注于新工作。
 

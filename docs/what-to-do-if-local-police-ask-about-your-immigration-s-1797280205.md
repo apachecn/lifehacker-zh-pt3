@@ -1,6 +1,6 @@
 # 如果当地警察询问你的移民身份，你该怎么办
 
-> 原文:[https://splitter news . com/what-to-do-if-local-police-ask-on-your-immigration-s-1797280205](https://splinternews.com/what-to-do-if-local-police-ask-about-your-immigration-s-1797280205)
+> 原文：<https://splinternews.com/what-to-do-if-local-police-ask-about-your-immigration-s-1797280205>
 
  [https://splinternews.com/embed/inset/iframe?id=youtube-video-n3b0fe0KWe4&start=0](https://splinternews.com/embed/inset/iframe?id=youtube-video-n3b0fe0KWe4&start=0) 
 

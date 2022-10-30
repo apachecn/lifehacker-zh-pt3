@@ -1,6 +1,6 @@
 # 小心那些迎合不在乎钱的顾客的经销商
 
-> 原文:[https://jalopnik . com/watch-out-for-the-cate-to-customers-who-d-1819708326](https://jalopnik.com/watch-out-for-dealerships-that-cater-to-customers-who-d-1819708326)
+> 原文：<https://jalopnik.com/watch-out-for-dealerships-that-cater-to-customers-who-d-1819708326>
 
 走进一家汽车经销店，指着一些很酷的东西，说 [“我就要那辆”，而不在乎价格，这一定很棒。](https://jalopnik.com/what-its-like-to-purchase-a-new-car-when-youre-loaded-1793482866) 这是我们很多人都没有的奢侈品。我发现一些豪华车经销商可能有点太习惯这种满不在乎的态度了。他们与这么多挥金如土的人合作，他们可能对为我们其他人达成协议不感兴趣。
 

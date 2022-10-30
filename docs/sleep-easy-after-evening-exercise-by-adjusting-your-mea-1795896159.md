@@ -1,6 +1,6 @@
 # 晚上锻炼后，调整你的饮食安排，轻松入睡
 
-> 原文:[https://life hacker . com/sleep-easy-after-evening-exercise-by-adjusting-your-mea-1795896159](https://lifehacker.com/sleep-easy-after-evening-exercise-by-adjusting-your-mea-1795896159)
+> 原文：<https://lifehacker.com/sleep-easy-after-evening-exercise-by-adjusting-your-mea-1795896159>
 
 看，不是所有人都能适应早上 5 点的锻炼或者午休 [体重流量](http://vitals.lifehacker.com/use-your-lunch-break-to-build-strength-and-loosen-up-fr-1795853041) 。这使得我们很多人在晚上锻炼，但太晚的锻炼会让你精力过于充沛而无法入睡。专家说，打住——不是晚上锻炼让你保持清醒。是*吃*。
 

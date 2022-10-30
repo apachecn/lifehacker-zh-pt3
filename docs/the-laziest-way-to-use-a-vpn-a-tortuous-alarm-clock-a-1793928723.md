@@ -1,6 +1,6 @@
 # 最懒的使用 VPN 的方式，曲折的闹钟，以及更多本周热门下载
 
-> 原文:[https://life hacker . com/the-lazy-way-to-use-a-VPN-a-traditional-alarm-clock-a-1793928723](https://lifehacker.com/the-laziest-way-to-use-a-vpn-a-tortuous-alarm-clock-a-1793928723)
+> 原文：<https://lifehacker.com/the-laziest-way-to-use-a-vpn-a-tortuous-alarm-clock-a-1793928723>
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 

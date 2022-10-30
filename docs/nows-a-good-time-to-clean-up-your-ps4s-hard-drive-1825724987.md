@@ -1,6 +1,6 @@
 # 现在是清理你的 PS4 硬盘的好时机
 
-> 原文:[https://kotaku . com/nows-a-good-time-to-clean-up-your-ps4-hard-drive-1825724987](https://kotaku.com/nows-a-good-time-to-clean-up-your-ps4s-hard-drive-1825724987)
+> 原文：<https://kotaku.com/nows-a-good-time-to-clean-up-your-ps4s-hard-drive-1825724987>
 
 春天已经过去几周了，我们终于摆脱了寒冷潮湿的冬末。是时候清理你的衣柜，修剪你的草坪，或者至少通过重建系统的数据库让你的 PS4 运行得更快了。我做到了，这让我的主机运行得更快了。
 

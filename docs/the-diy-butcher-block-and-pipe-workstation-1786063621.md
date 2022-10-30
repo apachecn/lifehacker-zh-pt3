@@ -1,6 +1,6 @@
 # DIY 屠夫块和管道工作站
 
-> 原文:[https://life hacker . com/the-DIY-butcher-block-and-pipe-workstation-1786063621](https://lifehacker.com/the-diy-butcher-block-and-pipe-workstation-1786063621)
+> 原文：<https://lifehacker.com/the-diy-butcher-block-and-pipe-workstation-1786063621>
 
 redditor[ksmithbaylor](https://www.reddit.com/user/ksmithbaylor)建造了这个华丽的屠夫街区和钢管工作站，我们爱死它了。当然，它又宽敞又干净，但是向 DIY 精神脱帽致敬，为了让它工作，工作得很好，看起来很好。这里还有一些完成后的照片。
 

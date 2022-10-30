@@ -1,6 +1,6 @@
 # 使用智能家居设备帮助您在家工作
 
-> 原文:[https://life hacker . com/use-your-smart-home-devices-to-help-you-work-from-home-1823191406](https://lifehacker.com/use-your-smart-home-devices-to-help-you-work-from-home-1823191406)
+> 原文：<https://lifehacker.com/use-your-smart-home-devices-to-help-you-work-from-home-1823191406>
 
 你家里的那对智能灯，你桌子上的可定制 Flic 按钮，你选择的语音助手，以及你办公室的智能插座，所有这些加在一起，创造了一个你可以在工作日之前、之中和之后使用的智能家居。除了告诉 Alexa 打开你明亮的白光灯来提高你的工作效率，这里还有如何在开始之前使用你的互联网连接项目来准备你的工作空间，让同事知道你的状态，并跟踪需要你立即关注的项目，无论你在家里的什么地方。
 

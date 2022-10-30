@@ -1,6 +1,6 @@
 # 标准电子书是一个古腾堡项目，你将实际使用
 
-> 原文:[https://life hacker . com/standard-ebooks-is-a-Gutenberg-project-you-ll-actually-1796273390](https://lifehacker.com/standard-ebooks-is-a-gutenberg-project-you-ll-actually-1796273390)
+> 原文：<https://lifehacker.com/standard-ebooks-is-a-gutenberg-project-you-ll-actually-1796273390>
 
 当我为我破旧的 Kindle 或 iPad 买书时，我总是试图节省一些钱。我不是一个电子书迷，但我确实用它来翻阅我应该已经读过的经典书籍——那些在我早晚通勤时携带起来太笨重的书。幸运的是，像古登堡计划这样的地方有成千上万的免费书籍。只有一个问题:很多看起来很糟糕。
 

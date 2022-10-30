@@ -1,6 +1,6 @@
 # 如何使用亚马逊 Echo 或 Google Home 找到丢失的手机
 
-> 原文:[https://life hacker . com/how-to-find-your-lost phone-using-Amazon-echo-or-Google-1819104181](https://lifehacker.com/how-to-find-your-lost-phone-using-amazon-echo-or-google-1819104181)
+> 原文：<https://lifehacker.com/how-to-find-your-lost-phone-using-amazon-echo-or-google-1819104181>
 
 如果你有亚马逊的 Echo 或谷歌 Home 设备，你可能已经用它来播放音乐、获取新闻更新和询问天气信息，但由于与 If This Then than(If TTT)平台的集成，你可以做更多的事情——包括在你的手机丢失时找到它。
 

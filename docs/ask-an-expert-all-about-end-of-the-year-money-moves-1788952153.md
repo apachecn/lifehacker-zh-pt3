@@ -1,6 +1,6 @@
 # 请教专家:年底资金运行情况如何
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-end-of-the-year-money-moves-1788952153](https://lifehacker.com/ask-an-expert-all-about-end-of-the-year-money-moves-1788952153)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-end-of-the-year-money-moves-1788952153>
 
 随着年底的迅速临近，是时候考虑你需要做些什么来准备你的税收了，无论这意味着进行慈善捐赠还是进行商业采购，以便你可以注销它们。在这里提供一些建议的是我们来自华尔街的朋友。
 

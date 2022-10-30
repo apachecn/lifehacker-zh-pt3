@@ -1,6 +1,6 @@
 # 几乎和瑜伽服一样舒适的办公服装
 
-> 原文:[https://life hacker . com/office-clothes-that-as-yoga-c-1794956437](https://lifehacker.com/office-clothes-that-are-almost-as-comfortable-as-yoga-c-1794956437)
+> 原文：<https://lifehacker.com/office-clothes-that-are-almost-as-comfortable-as-yoga-c-1794956437>
 
 我喜欢工作，但我不喜欢工作服。如果我不能穿我的标准制服——救世军扔进垃圾箱的运动裤；一件破旧的老鹰队 t 恤；半只鞋——我无法集中精神。这是我在家工作的主要原因。
 

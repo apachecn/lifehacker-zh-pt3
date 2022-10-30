@@ -1,6 +1,6 @@
 # 即使找不到健身路径，如何参加健身路径挑战
 
-> 原文:[https://life hacker . com/how-to-join-the-fitness-trail-challenge-even-if-you-1826068804](https://lifehacker.com/how-to-join-in-the-fitness-trail-challenge-even-if-you-1826068804)
+> 原文：<https://lifehacker.com/how-to-join-in-the-fitness-trail-challenge-even-if-you-1826068804>
 
 我们让你们 [去寻找健身路径](https://vitals.lifehacker.com/find-a-fitness-trail-and-exercise-like-its-1992-1825718545) ，你们中的许多人 [在你们当地的公园里找到了它们](https://vitals.lifehacker.com/how-to-use-the-equipment-on-outdoor-fitness-trails-1825875189) 。但是如果你到处都找不到，我们仍然有一些你可以做的户外锻炼的想法。
 

@@ -1,6 +1,6 @@
 # 小空间、大屏幕工作空间
 
-> 原文:[https://life hacker . com/the-small-space-big-screen-workspace-1785406547](https://lifehacker.com/the-small-space-big-screen-workspace-1785406547)
+> 原文：<https://lifehacker.com/the-small-space-big-screen-workspace-1785406547>
 
 Jason 在 Flickr 上的 [工作区展示和展示池](http://lifehacker.com) 中与我们分享了这个物超所值的工作区，在一个紧凑但舒适的工作和游戏空间中，配有一张醒目的宜家桌子和一些设备。这里还有一些他的照片。
 

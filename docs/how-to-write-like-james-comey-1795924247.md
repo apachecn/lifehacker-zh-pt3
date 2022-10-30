@@ -1,6 +1,6 @@
 # 如何像詹姆斯·科米一样写作
 
-> 原文:[https://life hacker . com/how-to-write-like-James-comey-1795924247](https://lifehacker.com/how-to-write-like-james-comey-1795924247)
+> 原文：<https://lifehacker.com/how-to-write-like-james-comey-1795924247>
 
 前联邦调查局局长詹姆斯·科米的证词于昨天在他今天的听证会前以书面形式发布。这是对他与总统的几次谈话的实事求是的叙述，所以你不会指望这是一个有趣的阅读。但制作精良:细节恰到好处，场景设置恰到好处。需要讲故事吗？像詹姆斯·科米一样使用这些提示来告诉它。
 

@@ -1,6 +1,6 @@
 # 我是战地记者，Trint 创始人杰夫·考夫曼，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-war-communicator-and-trint-founder-Jeff-kof man-and-1822160936](https://lifehacker.com/im-war-correspondent-and-trint-founder-jeff-kofman-and-1822160936)
+> 原文：<https://lifehacker.com/im-war-correspondent-and-trint-founder-jeff-kofman-and-1822160936>
 
 艾美奖获奖记者杰夫·考夫曼为美国广播公司、哥伦比亚广播公司和加拿大广播公司报道了一些世界上最大的新闻故事，包括阿拉伯之春、利比亚革命、入侵伊拉克、被困的智利矿工和国际毒品贸易战争。现在，他经营着一家名为 [Trint](https://trint.com/) 的公司，这是一家基于人工智能的自动转录服务公司，可以将记者和许多其他工作人员从数小时的繁琐工作中解救出来。他告诉我们进入商业世界，学习它是如何运作的。
 

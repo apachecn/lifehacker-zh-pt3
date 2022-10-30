@@ -1,6 +1,6 @@
 # 你不需要更多的时间，你只需要花时间去做重要的事情
 
-> 原文:[https://life hacker . com/you-dont-need-more-time-you-just-need-use-it-better-1758290764](https://lifehacker.com/you-dont-need-more-time-you-just-need-to-use-it-better-1758290764)
+> 原文：<https://lifehacker.com/you-dont-need-more-time-you-just-need-to-use-it-better-1758290764>
 
 有一种普遍的误解，认为生活中的一切都归结于时间。每天我都发现自己陷入这些相同的陈述中:要是我有更多的时间就好了。我只需要几分钟。几个小时的工作。然而，我们似乎都工作了更长的时间，却没有完成更多的工作。
 

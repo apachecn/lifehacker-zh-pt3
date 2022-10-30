@@ -1,6 +1,6 @@
 # 10，000 小时规则是一个神话
 
-> 原文:[https://life hacker . com/the-10000-hours-rule-is-a-myth-1819512038](https://lifehacker.com/the-10-000-hours-rule-is-a-myth-1819512038)
+> 原文：<https://lifehacker.com/the-10-000-hours-rule-is-a-myth-1819512038>
 
 在我们的播客节目 [如何用正念改变你的大脑中，丹尼尔·戈尔曼、](https://lifehacker.com/how-to-change-your-brain-with-mindfulness-with-daniel-1819284184) 谈到了“聪明练习”的概念——在一位经验丰富的教练的帮助下练习正念，他可以提供反馈并提出改进的方法。在我们的谈话中。丹尼尔·戈尔曼提出如下:
 

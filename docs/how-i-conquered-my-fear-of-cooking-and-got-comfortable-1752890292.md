@@ -1,6 +1,6 @@
 # 我是如何克服对烹饪的恐惧并在厨房里感到舒适的
 
-> 原文:[https://life hacker . com/how-I-征服我对烹饪的恐惧并获得舒适-1752890292](https://lifehacker.com/how-i-conquered-my-fear-of-cooking-and-got-comfortable-1752890292)
+> 原文：<https://lifehacker.com/how-i-conquered-my-fear-of-cooking-and-got-comfortable-1752890292>
 
 我真的不知道怎么做饭。当然，上个月我做了炖肉、牛排和多种意大利面，但它们不算，对吗？他们很容易！许多人认为学习烹饪太难了，但事实并非如此。这就是我如何轻松烹饪的，完全是偶然的。
 

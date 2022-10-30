@@ -1,6 +1,6 @@
 # 洗完澡后修剪指甲，以免弄脏
 
-> 原文:[https://life hacker . com/clip-your-nails-after-you-shower-to-avoid-1820048565](https://lifehacker.com/clip-your-nails-after-you-shower-to-avoid-a-mess-1820048565)
+> 原文：<https://lifehacker.com/clip-your-nails-after-you-shower-to-avoid-a-mess-1820048565>
 
 修剪指甲，尤其是厚脚趾甲，通常会导致不必要的杂技表演。钉子碎片到处乱飞，再也看不见了。以下是你可以停止这种情况的方法。
 

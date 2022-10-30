@@ -1,6 +1,6 @@
 # 如何制作足够的鸡尾酒糖浆
 
-> 原文:[https://life hacker . com/how-to-make-just-up-cocktail-糖浆-1796553286](https://lifehacker.com/how-to-make-just-enough-cocktail-syrup-1796553286)
+> 原文：<https://lifehacker.com/how-to-make-just-enough-cocktail-syrup-1796553286>
 
 有一个库存充足的家庭酒吧是很好的，包括所有的配件和设备，但是如果你不想让一堆糖浆塞满你的冰箱，你可以用微波炉制作你需要的量。
 

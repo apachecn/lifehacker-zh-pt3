@@ -1,6 +1,6 @@
 # 只用两种配料在你的速溶锅里制作番茄酱
 
-> 原文:[https://life hacker . com/make-tomato-sauce-in-your-just-two-ing-1828971840](https://lifehacker.com/make-tomato-sauce-in-your-instant-pot-with-just-two-ing-1828971840)
+> 原文：<https://lifehacker.com/make-tomato-sauce-in-your-instant-pot-with-just-two-ing-1828971840>
 
 随着西红柿季节接近尾声，一个人(我)往往会发现自己买的是官方称为“公制一担”的西红柿。现在，我可以吃很多西红柿三明治，但是西红柿的成熟度只有鳄梨可以与之媲美，所以有一个“快速用完”的备用计划会有所帮助。
 

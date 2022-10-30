@@ -1,6 +1,6 @@
 # 为什么你不应该相信你朋友的健康建议
 
-> 原文:[https://life hacker . com/why-you-should-trust-your-friends-health-advice-1798713055](https://lifehacker.com/why-you-shouldnt-trust-your-friends-health-advice-1798713055)
+> 原文：<https://lifehacker.com/why-you-shouldnt-trust-your-friends-health-advice-1798713055>
 
 外面有很多糟糕的建议、糟糕的科学和糟糕的逻辑——我很抱歉地告诉你，其中一些可能来自你信任的人。削尖你的铅笔，坐下——[狗屁抵抗派](http://lifehacker.com/bullshit-resistance-school) 开会了。
 

@@ -1,6 +1,6 @@
 # 如何阻止网站从你那里获取加密货币
 
-> 原文:[https://life hacker . com/how-to-stop-sites-from-harvesting-cryptocurrency-from-y-1819712943](https://lifehacker.com/how-to-stop-sites-from-harvesting-cryptocurrency-from-y-1819712943)
+> 原文：<https://lifehacker.com/how-to-stop-sites-from-harvesting-cryptocurrency-from-y-1819712943>
 
 你的浏览器可能正在背着你做其他人的肮脏工作，利用你的台式机或笔记本电脑为恶意个人挖掘加密货币，以创建数字货币，这可能会被兑换成真正的现金。 [据《连线》](https://www.wired.com/story/cryptojacking-cryptocurrency-mining-browser/) 报道，黑客已经找到了一种方法，将基于 Javascript 的加密货币挖掘软件注入被入侵的网站，借用你的处理能力(并减慢你的计算机)，在未经网站或其访问者批准的情况下生成加密货币 Monero。幸运的是，有一些方法可以停止这种肮脏的策略，而不必永远远离互联网。
 

@@ -1,6 +1,6 @@
 # 当你到达得太早而无法入住酒店时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do when-you-to-court-to-check-in-your-1792644813](https://lifehacker.com/what-to-do-when-you-arrive-too-early-to-check-into-your-1792644813)
+> 原文：<https://lifehacker.com/what-to-do-when-you-arrive-too-early-to-check-into-your-1792644813>
 
 假设你正在计划一次有趣的纽约之旅，你在航班上发现了一个令人难以置信的优惠。唯一的问题？它早上 5 点到达，这对大多数酒店来说太早了。不过，没必要在门口打盹——你有选择。
 

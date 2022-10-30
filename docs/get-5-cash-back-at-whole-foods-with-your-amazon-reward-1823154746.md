@@ -1,6 +1,6 @@
 # 使用亚马逊 Prime Rewards 卡在全食超市获得 5%的现金返还
 
-> 原文:[https://life hacker . com/get-5-cash-back-at-whole-foods-with-your-Amazon-reward-1823154746](https://lifehacker.com/get-5-cash-back-at-whole-foods-with-your-amazon-reward-1823154746)
+> 原文：<https://lifehacker.com/get-5-cash-back-at-whole-foods-with-your-amazon-reward-1823154746>
 
 亚马逊最近对全食超市的收购对 Prime 会员来说越来越甜蜜，如果他们拥有亚马逊 Prime Rewards 信用卡，他们现在将在杂货店购物时获得[5%的现金返还](http://phx.corporate-ir.net/phoenix.zhtml?c=176060&p=irol-newsArticle&ID=2333196) 。
 

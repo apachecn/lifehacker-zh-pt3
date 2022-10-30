@@ -1,6 +1,6 @@
 # 一劳永逸地禁用那些烦人的浏览器通知
 
-> 原文:[https://life hacker . com/disable-than-smoking-browser-notifications-once-and-1822154599](https://lifehacker.com/disable-those-annoying-browser-notifications-once-and-1822154599)
+> 原文：<https://lifehacker.com/disable-those-annoying-browser-notifications-once-and-1822154599>
 
 你和我一样讨厌它:每当你访问一个新闻网站或博客时，就会出现一个小框，请求允许用通知框来烦你你不关心的东西。你可以完全停止网站打扰你，而不是放弃失败，学会忍受烦恼。以下是方法。
 

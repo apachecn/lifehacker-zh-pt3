@@ -1,6 +1,6 @@
 # 一旦你的孩子学会了阅读，不要停止给他们读书
 
-> 原文:[https://life hacker . com/don-stop-read-to-your-kids-once-learn-how-to-r-1820092017](https://lifehacker.com/dont-stop-reading-to-your-kids-once-they-learn-how-to-r-1820092017)
+> 原文：<https://lifehacker.com/dont-stop-reading-to-your-kids-once-they-learn-how-to-r-1820092017>
 
 给小孩子大声朗读书籍是有魔力的，尤其是当你配音的时候(你已经*让*配音了)，他们对着图片咯咯地笑，你谈论书中的人物，就好像他们是你最好的朋友一样。一旦孩子学会自己阅读，这种亲子仪式通常会结束，但不应该结束。给已经很熟练的读者读书有很大的好处，即使是 14 岁以下。以下是一些例子:
 

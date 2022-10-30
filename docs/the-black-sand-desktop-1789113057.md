@@ -1,6 +1,6 @@
 # 黑沙桌面
 
-> 原文:[https://lifehacker.com/the-black-sand-desktop-1789113057](https://lifehacker.com/the-black-sand-desktop-1789113057)
+> 原文：<https://lifehacker.com/the-black-sand-desktop-1789113057>
 
 最近我们已经看到了很多水性、海滩 y 、海洋 y 壁纸，这让我们认为你们一定渴望更温暖的天气。这款来自T5 的 SebastianT7，是一款华丽、朴素的黑白桌面，只做了一点点定制。这是所有设置的方式。
 

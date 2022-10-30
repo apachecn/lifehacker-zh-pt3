@@ -1,6 +1,6 @@
 # 如果你的 iPhone 一直没电，检查一下行为怪异的应用程序
 
-> 原文:[https://life hacker . com/if-your-iphone-keep-dying-check-for-verged-being-1827873220](https://lifehacker.com/if-your-iphone-keeps-dying-check-for-weirdly-behaving-1827873220)
+> 原文：<https://lifehacker.com/if-your-iphone-keeps-dying-check-for-weirdly-behaving-1827873220>
 
 作为 iPhone 用户，电池问题是最令人头疼的问题之一。无论是苹果所谓的计划淘汰，还是仅仅是你的 iPhone 电池的简单物理特性——[它不会永远持续](https://www.androidcentral.com/why-does-battery-life-get-worse-over-time)——总有一天你一次充电都撑不过去。但是考虑一下这个:它可能是一个应用程序的错误。
 

@@ -1,6 +1,6 @@
 # 你需要多少钱才能变得富有？
 
-> 原文:[https://life hacker . com/how-much-money-do-much-do-mud-need-to-be rich-1826038854](https://lifehacker.com/how-much-money-do-you-need-to-be-rich-1826038854)
+> 原文：<https://lifehacker.com/how-much-money-do-you-need-to-be-rich-1826038854>
 
 在查尔斯·施瓦布年度现代财富指数中，无压力的生活和与所爱的人共度时光被认为是许多人对财富的定义，这是一项对 1000 名年龄在 21 岁至 75 岁之间的人进行的在线调查。与此同时，只有 11%的受访者表示他们的定义是“拥有很多钱”
 

@@ -1,6 +1,6 @@
 # 当你的朋友比你赚钱多时，如何处理怨恨
 
-> 原文:[https://life hacker . com/how-to-deal-with-怨怼-when-your-friends-make-more-1795906982](https://lifehacker.com/how-to-deal-with-resentment-when-your-friends-make-more-1795906982)
+> 原文：<https://lifehacker.com/how-to-deal-with-resentment-when-your-friends-make-more-1795906982>
 
 你可能还记得《老友记》第一集，在这一集里，破产的朋友——瑞秋、乔伊和菲比——对他们富有的同行总是建议昂贵的外出旅行感到恼火。“好像我们能负担得起到处跑似的，”乔伊抱怨道。当然，生活不会像情景喜剧那样井井有条，所以在现实世界中，财务怨恨实际上可能是一个 [讨厌的问题](http://twocents.lifehacker.com/what-to-do-when-your-friends-make-way-more-money-than-y-1735106541#_ga=2.60794541.1228499180.1496876171-1412588600.1496876171) 。
 

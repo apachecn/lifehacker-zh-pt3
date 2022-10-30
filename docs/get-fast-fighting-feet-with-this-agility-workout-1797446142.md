@@ -1,6 +1,6 @@
 # 通过这项敏捷训练获得快速战斗的双脚
 
-> 原文:[https://life hacker . com/get-fast-fighting-foots with this-agility-workout-1797446142](https://lifehacker.com/get-fast-fighting-feet-with-this-agility-workout-1797446142)
+> 原文：<https://lifehacker.com/get-fast-fighting-feet-with-this-agility-workout-1797446142>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-pAei8Y4shAA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-pAei8Y4shAA&start=0) 
 

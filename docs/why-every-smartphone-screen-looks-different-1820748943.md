@@ -1,6 +1,6 @@
 # 为什么每个智能手机屏幕看起来都不一样
 
-> 原文:[https://gizmodo . com/why-every-smart phone-screen-looks-different-1820748943](https://gizmodo.com/why-every-smartphone-screen-looks-different-1820748943)
+> 原文：<https://gizmodo.com/why-every-smartphone-screen-looks-different-1820748943>
 
 推出的 [OnePlus 5T](https://gizmodo.com/the-oneplus-5t-is-very-a-damn-good-phone-for-a-reasonab-1820596179) 有五种颜色校准选项可供选择；Google 已经推至 [给](https://www.xda-developers.com/google-pixel-2-xl-warranty-color-mode/) [像素 2 XL](https://gizmodo.com/pixel-2-review-google-sticks-to-what-it-does-best-1819557944) 增加一个额外的颜色模式；而 [DisplayMate 称 iPhone X](http://www.displaymate.com/iPhoneX_ShootOut_1a.htm) 对色彩的管理比其他任何手机都好。那么，为什么智能手机显示屏上的颜色突然成了一个问题？无论你是在改装自己的手机还是打算买一部新手机，以下是你需要知道的。
 

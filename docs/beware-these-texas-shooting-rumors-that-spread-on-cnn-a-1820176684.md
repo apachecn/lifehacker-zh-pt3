@@ -1,6 +1,6 @@
 # 当心这些在 CNN 和谷歌上传播的德州枪击谣言
 
-> 原文:[https://life hacker . com/当心-这些-德克萨斯州枪击-在 cnn-a-1820176684 上传播的谣言](https://lifehacker.com/beware-these-texas-shooting-rumors-that-spread-on-cnn-a-1820176684)
+> 原文：<https://lifehacker.com/beware-these-texas-shooting-rumors-that-spread-on-cnn-a-1820176684>
 
 像往常一样，美国本周末又发生了大规模枪击事件，像往常一样，错误信息立即开始传播。核实事实的社交媒体恶作剧已经成为媒体标准拍摄后流程的重要组成部分。
 

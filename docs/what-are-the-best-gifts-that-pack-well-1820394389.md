@@ -1,6 +1,6 @@
 # 包装好的最好的礼物是什么？
 
-> 原文:[https://life hacker . com/what-is-the-best-gifts-pack-well-1820394389](https://lifehacker.com/what-are-the-best-gifts-that-pack-well-1820394389)
+> 原文：<https://lifehacker.com/what-are-the-best-gifts-that-pack-well-1820394389>
 
 送礼物让心爱的人喜笑颜开总是一种很棒的感觉，但在假期旅行时，打包不会破碎、不会给行李增加太多重量或太笨重的礼物可能会很难。你带着礼物成功旅行过吗？哪些效果好？
 

@@ -1,6 +1,6 @@
 # 不要通过培养皿来判断你的干手器
 
-> 原文:[https://life hacker . com/don ' t-judge-your ' s 吹风机-1822873757](https://lifehacker.com/dont-judge-your-hair-dryer-by-its-petri-dish-1822873757)
+> 原文：<https://lifehacker.com/dont-judge-your-hair-dryer-by-its-petri-dish-1822873757>
 
 这个可怕的，我是说恶心的，培养皿上布满了从戴森干手器里收集的微生物。这张照片让脸书的很多人感到恶心，但这并不意味着干手机应该被禁止。
 

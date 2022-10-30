@@ -1,6 +1,6 @@
 # 如何直播勇士和骑士的 NBA 总决赛
 
-> 原文:[https://life hacker . com/how-to-live stream 勇士与骑士-NBA-总决赛-1826509795](https://lifehacker.com/how-to-livestream-the-warriors-and-cavaliers-nba-finals-1826509795)
+> 原文：<https://lifehacker.com/how-to-livestream-the-warriors-and-cavaliers-nba-finals-1826509795>
 
 奥克兰的金州勇士队在周一晚上赢得了 NBA 总决赛的第一场比赛，对阵克利夫兰骑士队，但这仍然是任何人的冠军。
 

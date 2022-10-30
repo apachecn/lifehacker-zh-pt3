@@ -1,6 +1,6 @@
 # 如何确保你不会被踢出州选民名册
 
-> 原文:[https://life hacker . com/how-to-make-thank-you-don-get-kicked-off-state-voter-ro-1826734344](https://lifehacker.com/how-to-make-sure-you-dont-get-kicked-off-state-voter-ro-1826734344)
+> 原文：<https://lifehacker.com/how-to-make-sure-you-dont-get-kicked-off-state-voter-ro-1826734344>
 
 今天，最高法院 [裁定支持俄亥俄州积极清除](https://www.nytimes.com/2018/06/11/us/politics/supreme-court-upholds-ohios-purge-of-voting-rolls.html?action=Click&contentCollection=BreakingNews&contentID=67125491&pgtype=Homepage) 选民名单。基本上，他们说一个州可以“取消”人们的投票资格，如果他们跳过几场选举，并且没有回应州选举官员的通知。以下是你如何确保这种事情不会发生在你身上。
 

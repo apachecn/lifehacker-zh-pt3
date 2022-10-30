@@ -1,6 +1,6 @@
 # 考虑这些数字货币交易所替代比特币基地
 
-> 原文:[https://life hacker . com/consider-these-digital-currency-exchange-alternatives-t-1821787464](https://lifehacker.com/consider-these-digital-currency-exchange-alternatives-t-1821787464)
+> 原文：<https://lifehacker.com/consider-these-digital-currency-exchange-alternatives-t-1821787464>
 
 在过去的几个月里，比特币基地几乎成了比特币和其他主流加密货币 的代名词。每当热门的数字货币交易所 [增加一种新型硬币](http://markets.businessinsider.com/currencies/news/bitcoin-cash-price-soars-above-3000-after-coinbase-trading-offer-2017-12-1011660943) (几乎总是导致其价值立即飙升)或交易最疯狂时崩溃，都会成为头条新闻。
 

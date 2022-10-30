@@ -1,6 +1,6 @@
 # 这些一碗可可布朗尼是糟糕日子的完美解决方案
 
-> 原文:[https://life hacker . com/these-one-bowl-cocoa-brownie-is-the-perfect-fix-for-b-1819284560](https://lifehacker.com/these-one-bowl-cocoa-brownies-are-the-perfect-fix-for-b-1819284560)
+> 原文：<https://lifehacker.com/these-one-bowl-cocoa-brownies-are-the-perfect-fix-for-b-1819284560>
 
 一些人通过烘烤酸面团面包或精心制作的分层蛋糕来缓解压力；对他们有好处。当我悲伤和有压力的时候，我需要最短、最不容易出错的路径来得到我能找到的大量巧克力。对我来说，这条路总是通向可可布朗尼。
 

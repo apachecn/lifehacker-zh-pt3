@@ -1,6 +1,6 @@
 # 你如何在云中备份你的数据？
 
-> 原文:[https://life hacker . com/how-do-you-back-up-your-data-in-the-cloud-1828396275](https://lifehacker.com/how-do-you-back-up-your-data-in-the-cloud-1828396275)
+> 原文：<https://lifehacker.com/how-do-you-back-up-your-data-in-the-cloud-1828396275>
 
 前几天，在 Lifehacker 的员工会议上，文件备份和在线存储的话题被提了出来，常驻人员的尼克·道格拉斯插话说，他备份笔记本电脑的解决方案很简单:他从不在上面保存任何重要文件。一切——他指的是一切——都存在于云中。
 

@@ -1,6 +1,6 @@
 # 丹尼卡·罗姆说，如何赢得选举
 
-> 原文:[https://Jezebel . com/how-to-win-a-election-by-danica-Roem-1820521897](https://jezebel.com/how-to-win-an-election-according-to-danica-roem-1820521897)
+> 原文：<https://jezebel.com/how-to-win-an-election-according-to-danica-roem-1820521897>
 
 上周二，丹妮卡·罗姆当选弗吉尼亚州众议员——这是全国进步选举胜利浪潮 的一部分——点亮了互联网。罗姆是一名当地记者，T5，骄傲的重金属头 ，也是美国州议会中第一位公开的跨性别者，她以 54%的选票击败了她大声反对跨性别者的现任共和党人鲍勃·马歇尔。虽然她从一开始就公开了自己的身份和激情，但她的竞选活动 [与他的](https://www.washingtonpost.com/local/virginia-politics/campaign-flier-paid-for-by-virginia-gop-misgenders-democratic-candidate/2017/10/28/91e28e6c-bc1d-11e7-9e58-e6288544af98_story.html) 不同，植根于基本的生活质量问题，比如修复 28 号公路，这是弗吉尼亚州北部一条令人抓狂的堵塞大道。
 

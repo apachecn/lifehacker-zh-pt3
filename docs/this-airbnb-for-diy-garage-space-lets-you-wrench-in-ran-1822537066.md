@@ -1,6 +1,6 @@
 # 这个“Airbnb DIY 车库空间”可以让你随意进入别人的车库
 
-> 原文:[https://jalopnik . com/this-Airbnb-for-DIY-garage-space-let-you-wrench-in-ran-1822537066](https://jalopnik.com/this-airbnb-for-diy-garage-space-lets-you-wrench-in-ran-1822537066)
+> 原文：<https://jalopnik.com/this-airbnb-for-diy-garage-space-lets-you-wrench-in-ran-1822537066>
 
 31 岁的安德鲁·科雷茨(Andrew Koretz)刚刚给我发了一封电子邮件，介绍了他的新公司“车库时间(Garage Time)”，该公司显然允许任何人将闲置的车库空间出租给只需要一个地方休息的人。这听起来是个好主意。
 

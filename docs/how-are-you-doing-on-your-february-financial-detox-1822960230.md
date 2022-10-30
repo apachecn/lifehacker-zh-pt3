@@ -1,6 +1,6 @@
 # 你二月份的财务排毒进行得怎么样了？
 
-> 原文:[https://life hacker . com/how-you-doing-on-your-two-financial-detox-1822960230](https://lifehacker.com/how-are-you-doing-on-your-february-financial-detox-1822960230)
+> 原文：<https://lifehacker.com/how-are-you-doing-on-your-february-financial-detox-1822960230>
 
 月初，我们鼓励你尝试一个为期一个月的财务排毒，从你购买的看似很小的东西开始，累积起来。
 

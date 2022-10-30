@@ -1,6 +1,6 @@
 # 当你背着背包徒步旅行时，计算你燃烧了多少卡路里
 
-> 原文:[https://life hacker . com/calculate-when-a-1826669027](https://lifehacker.com/calculate-how-many-calories-you-burn-when-hiking-with-a-1826669027)
+> 原文：<https://lifehacker.com/calculate-how-many-calories-you-burn-when-hiking-with-a-1826669027>
 
 带着背包徒步旅行比不带背包徒步旅行要麻烦得多。感觉更难，但你也燃烧了更多的卡路里——当你计划旅行中的零食和正餐时，知道这一点很重要。
 

@@ -1,6 +1,6 @@
 # 你喜欢哪种有声读物服务？
 
-> 原文:[https://life hacker . com/which-audio book-service-s-do-you-love-1826230324](https://lifehacker.com/which-audiobook-service-s-do-you-love-1826230324)
+> 原文：<https://lifehacker.com/which-audiobook-service-s-do-you-love-1826230324>
 
 未成年告白时间。我从来没有听过有声读物。T1】音乐 T3】？当然了。 [播客](https://lifehacker.com/our-favorite-podcast-episodes-of-2017-1821426163) ？我开车的时候，当然。但是有声书？我有点像的速读者，我觉得听到有人叙述文本——[甚至本尼迪克特本人](https://www.youtube.com/watch?v=1AhriYqQEk0) 我都会感到厌烦。
 

@@ -1,6 +1,6 @@
 # 如何使用 Siri 语音命令关闭 Face ID
 
-> 原文:[https://life hacker . com/how-to-off-face-id-with-a-Siri-voice-command-1821538833](https://lifehacker.com/how-to-turn-off-face-id-with-a-siri-voice-command-1821538833)
+> 原文：<https://lifehacker.com/how-to-turn-off-face-id-with-a-siri-voice-command-1821538833>
 
 iPhone X 上的 Face ID 非常适合快速解锁你的设备，但有时你不想让它工作——比如如果一个朋友抢了你的手机，一个抢劫犯偷走了它，或者你不得不 [对付警察](https://www.theatlantic.com/technology/archive/2017/09/can-cops-force-you-to-unlock-your-phone-with-your-face/539694/) 。
 

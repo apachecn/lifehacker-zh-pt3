@@ -1,6 +1,6 @@
 # 如何禁用 Twitter 上的所有转发
 
-> 原文:[https://life hacker . com/how-to-disable-all-retweets-on-Twitter-1823550038](https://lifehacker.com/how-to-disable-all-retweets-on-twitter-1823550038)
+> 原文：<https://lifehacker.com/how-to-disable-all-retweets-on-twitter-1823550038>
 
 《大西洋月刊》刚刚为 [关闭你在 Twitter](https://www.theatlantic.com/magazine/archive/2018/04/the-case-against-retweets/554078/) 上关注的每个人的转发做了一个很好的案例，但他们没有告诉你如何做。所以我们做了一个工具来做这件事。
 

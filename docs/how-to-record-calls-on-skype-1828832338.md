@@ -1,6 +1,6 @@
 # 如何在 Skype 上录制通话
 
-> 原文:[https://life hacker . com/how-to-record-calls-on-Skype-1828832338](https://lifehacker.com/how-to-record-calls-on-skype-1828832338)
+> 原文：<https://lifehacker.com/how-to-record-calls-on-skype-1828832338>
 
 Skype 本周宣布，它已经为其视频聊天服务增加了一项基于云的录制功能，现在你几乎可以在任何版本的 Skype 上访问该功能，Windows 10 版本除外。据[Skype 博客](https://blogs.skype.com/news/2018/09/04/introducing-skype-call-recording-now-you-can-capture-save-and-share-special-moments/) 称，它将“在未来几周内”获得通话录音功能。
 

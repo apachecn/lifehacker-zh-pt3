@@ -1,6 +1,6 @@
 # 健身追踪器在计算卡路里方面很糟糕
 
-> 原文:[https://life hacker . com/fitness-trackers-is-terrible-at-counting-calories-1795540514](https://lifehacker.com/fitness-trackers-are-terrible-at-counting-calories-1795540514)
+> 原文：<https://lifehacker.com/fitness-trackers-are-terrible-at-counting-calories-1795540514>
 
 一种健身可穿戴设备有望通过提供身体对体育活动的反应数据来帮助你追求更健康的生活。他们擅长提供一些信息，但不擅长其他信息。特别是，斯坦福大学的一项新的小规模研究 表明，健身追踪器并不擅长测量消耗的卡路里。
 

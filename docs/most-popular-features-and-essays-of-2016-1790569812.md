@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的特写和散文
 
-> 原文:[https://life hacker . com/2016-1790569812](https://lifehacker.com/most-popular-features-and-essays-of-2016-1790569812)
+> 原文：<https://lifehacker.com/most-popular-features-and-essays-of-2016-1790569812>
 
 我们在这里做了很多和 [讲解者](http://lifehacker.com/most-popular-explainers-of-2016-1790099014) 的工作，但有时我们只是需要把心中的愤懑一吐为快，或者解释一些来之不易的个人经历。这些是我们 2016 年最好的论文、评论和特写。
 

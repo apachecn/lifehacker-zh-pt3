@@ -1,6 +1,6 @@
 # 如何用一些角铁和两把卷尺自己找正
 
-> 原文:[https://jalopnik . com/how-do-your-own-alignment-with-some-angle-iron-and-t-1820555295](https://jalopnik.com/how-to-do-your-own-alignment-with-some-angle-iron-and-t-1820555295)
+> 原文：<https://jalopnik.com/how-to-do-your-own-alignment-with-some-angle-iron-and-t-1820555295>
 
 像你们中的许多人一样，做我自己的汽车保养是我生活中的一大部分。它不仅提供了一些财务上的好处，还能减轻其他事情的压力。称之为汽车宣泄。不过，有些工作，我总是留给专业人士去做——直到最近，我决定尝试一下前端校准。我想，这能有多难？
 

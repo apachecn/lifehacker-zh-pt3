@@ -1,6 +1,6 @@
 # 长时间休息后回到健身房该做什么
 
-> 原文:[https://life hacker . com/1730933838](https://lifehacker.com/what-to-do-when-returning-to-the-gym-after-a-long-break-1730933838)
+> 原文：<https://lifehacker.com/what-to-do-when-returning-to-the-gym-after-a-long-break-1730933838>
 
 如果你已经远离你的日常锻炼很长时间了，想要恢复状态，你可能会想从你停下来的地方重新开始。但是你可能最终会伤害到自己或者 [变得如此疼痛](http://vitals.lifehacker.com/when-muscle-soreness-helps-muscle-growth-and-when-it-d-1720076931) 以至于你发誓再也不踏进健身房一步。以下是你如何聪明地对待你的胜利回归。
 

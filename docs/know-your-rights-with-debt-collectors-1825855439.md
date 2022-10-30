@@ -1,6 +1,6 @@
 # 向讨债人了解你的权利
 
-> 原文:[https://life hacker . com/know-your-rights with the debt-collectors-1825855439](https://lifehacker.com/know-your-rights-with-debt-collectors-1825855439)
+> 原文：<https://lifehacker.com/know-your-rights-with-debt-collectors-1825855439>
 
 当讨债人打电话来时，他们可能会想尽各种办法让你还债。有些是完全合法的，而其他人则陷入灰色地带或彻底的骚扰。以下是你需要知道的。
 

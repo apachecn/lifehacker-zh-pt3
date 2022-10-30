@@ -1,6 +1,6 @@
 # HPV 疫苗名不副实。给你的孩子买吧。
 
-> 原文:[https://life hacker . com/the-HPV-vaccine-not-worthy-it-get-it-1748529758](https://lifehacker.com/the-hpv-vaccine-doesn-t-deserve-its-reputation-get-it-1748529758)
+> 原文：<https://lifehacker.com/the-hpv-vaccine-doesn-t-deserve-its-reputation-get-it-1748529758>
 
 我们有针对导致宫颈癌的病毒的疫苗。它和任何其他疫苗一样安全，为你十几岁的儿子或女儿，或者你自己，如果你二十出头，接种它是显而易见的。不要相信那些对并不存在的“危险”的虚假揭露。
 

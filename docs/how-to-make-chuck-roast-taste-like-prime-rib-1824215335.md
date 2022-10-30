@@ -1,6 +1,6 @@
 # 如何让查克烤肉尝起来像上等肋排
 
-> 原文:[https://life hacker . com/how-to-make-chuck-bake-taste-like-prime-rib-1824215335](https://lifehacker.com/how-to-make-chuck-roast-taste-like-prime-rib-1824215335)
+> 原文：<https://lifehacker.com/how-to-make-chuck-roast-taste-like-prime-rib-1824215335>
 
 你好，我的朋友，欢迎回到 [*会是这样吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。本周，我们将使用我们精确控制的水浴来将一些平淡无奇的东西变得非常特别。
 

@@ -1,6 +1,6 @@
 # 这些蛋卷是你新的工作日早餐
 
-> 原文:[https://life hacker . com/these-sous-vide-egg-bites-is-your-new-weekday-break Fas-1824008696](https://lifehacker.com/these-sous-vide-egg-bites-are-your-new-weekday-breakfas-1824008696)
+> 原文：<https://lifehacker.com/these-sous-vide-egg-bites-are-your-new-weekday-breakfas-1824008696>
 
 你好，沉浸循环器的朋友们，欢迎回到 [*会不会是 Sous Vide？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。今天我们煮了一些奶油蛋卷，非常适合在一周内吃。
 

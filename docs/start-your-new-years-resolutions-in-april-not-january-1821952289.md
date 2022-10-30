@@ -1,6 +1,6 @@
 # 在四月开始你的新年计划，而不是一月
 
-> 原文:[https://life hacker . com/start-your-new-years-resolutions-in-April-not-January-1821952289](https://lifehacker.com/start-your-new-years-resolutions-in-april-not-january-1821952289)
+> 原文：<https://lifehacker.com/start-your-new-years-resolutions-in-april-not-january-1821952289>
 
 明确地说，我相信为了实现某些目标而给自己施加任意约束的力量。这就是为什么我会列出待办事项清单(并在清单顶部写下“列出待办事项清单”,以获得立竿见影的成就)，为什么即使在写一个常青树的故事时，我也会要求截止日期，为什么我认为自我提升不会凭空出现，除非有一点点应用程序或日历的推动，或者某种带着斧子的黑镜无人机，它真的会把你从床上赶走，开始晨跑。
 

@@ -1,6 +1,6 @@
 # 如何辨别你的健身课声音是否过大
 
-> 原文:[https://life hacker . com/how-to-tell-if-your ' s fitness-class is too-loud-1826606365](https://lifehacker.com/how-to-tell-if-your-fitness-class-is-too-loud-1826606365)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-fitness-class-is-too-loud-1826606365>
 
 当我走进我当地的自行车工作室时，音乐是在一个容易谈论的水平上。但是一旦老师开始剪辑，音量就会变大。声音充满了你的耳朵，所以你听不到你旁边的人沉重的呼吸。你会觉得自己置身于这首歌中，这有助于你真正感受到它的能量。完美的音量，对吧？
 

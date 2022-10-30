@@ -1,6 +1,6 @@
 # 看看你所在的州是否允许查看警方的人体摄像头录像
 
-> 原文:[https://life hacker . com/see-if-you-allowed-access-police-body-cam-video-in-1822673510](https://lifehacker.com/see-if-youre-allowed-to-access-police-body-cam-video-in-1822673510)
+> 原文：<https://lifehacker.com/see-if-youre-allowed-to-access-police-body-cam-video-in-1822673510>
 
 在全国范围内，警察部门让警察佩戴人体摄像机来记录他们的日常活动。这些程序旨在通过记录官员和公众与人的互动来帮助他们。在一些州，公众有可能获得这些视频。
 

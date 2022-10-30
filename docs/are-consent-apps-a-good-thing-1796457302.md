@@ -1,6 +1,6 @@
 # 同意应用是一件好事吗？[已更新]
 
-> 原文:[https://life hacker . com/are-consent-apps-a-good-thing-1796457302](https://lifehacker.com/are-consent-apps-a-good-thing-1796457302)
+> 原文：<https://lifehacker.com/are-consent-apps-a-good-thing-1796457302>
 
 在《牢不可破的 T2》第三季 [中，](http://www.avclub.com/tvclub/unbreakable-kimmy-schmidt-misses-mark-its-satire-c-256016) *，*童菲第一次去参加大学聚会，一个男孩在他们即将接吻前要求她签一份合同。同意已经在大学校园里被更广泛地讨论，但是在这个话题上仍然有很多困惑。
 

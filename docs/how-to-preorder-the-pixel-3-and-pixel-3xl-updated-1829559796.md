@@ -1,6 +1,6 @@
 # 如何预订 Pixel 3 和 Pixel 3XL[更新]
 
-> 原文:[https://life hacker . com/how-to-preorder-the-pixel-3-and-pixel-3xl-updated-1829559796](https://lifehacker.com/how-to-preorder-the-pixel-3-and-pixel-3xl-updated-1829559796)
+> 原文：<https://lifehacker.com/how-to-preorder-the-pixel-3-and-pixel-3xl-updated-1829559796>
 
 正如预测的那样，Pixel 3 和 Pixel 3 XL 在 10 月 9 日的谷歌制造活动后可以预订。这些手机现在可以在谷歌在线商店页面 的 [预订。Pixel 3 将至少运行 799 美元，或每月支付 33.29 美元，为期 24 个月，而 Pixel 3 XL 起价 899 美元，也可以 34.47 美元租赁 24 个月。预订将在几天后，即 10 月 17 日开始发货，10 月 18 日是正式发布日期。](https://store.google.com/us/product/pixel_3) 
 

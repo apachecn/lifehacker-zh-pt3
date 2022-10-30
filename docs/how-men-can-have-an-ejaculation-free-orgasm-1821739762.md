@@ -1,6 +1,6 @@
 # 男人如何获得无射精高潮
 
-> 原文:[https://life hacker . com/how-men-can-have-a-射精自由高潮-1821739762](https://lifehacker.com/how-men-can-have-an-ejaculation-free-orgasm-1821739762)
+> 原文：<https://lifehacker.com/how-men-can-have-an-ejaculation-free-orgasm-1821739762>
 
 男人长期以来一直哀叹女人可以有多重高潮，但男人不能。毕竟，男人不得不面对令人沮丧的不应期——在高潮后，无论他们如何试图哄他们行动，他们的阴茎仍然疲软。无论如何，他们的能量水平被耗尽了，他们经常只想睡觉。
 

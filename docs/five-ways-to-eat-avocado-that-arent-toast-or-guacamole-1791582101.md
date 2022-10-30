@@ -1,6 +1,6 @@
 # 吃鳄梨的五种方法不是烤面包或鳄梨酱
 
-> 原文:[https://life hacker . com/five-ways-to-eat-the-parent-toast-or-guacamole-1791582101](https://lifehacker.com/five-ways-to-eat-avocado-that-arent-toast-or-guacamole-1791582101)
+> 原文：<https://lifehacker.com/five-ways-to-eat-avocado-that-arent-toast-or-guacamole-1791582101>
 
 我不知道你怎么样，但是我正在经历鳄梨吐司疲劳症。这并没有错，但这种全国性的痴迷正在蒙蔽我们的大脑，并阻止我们实现其他美味的鳄梨应用。如果你需要帮助来摆脱你的 avo-toast 习惯，我们可以帮助你。这里有五种令人兴奋的新方法让更多的鳄梨进入你的生活和嘴里，其中没有一种涉及烤面包机或玉米片。
 

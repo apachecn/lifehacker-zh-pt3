@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:什么是“地狱耶”小费？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-what-composites-a-hell-yeah-1822738651](https://thetakeout.com/ask-the-salty-waitress-what-constitutes-a-hell-yeah-1822738651)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-what-constitutes-a-hell-yeah-1822738651>
 
 * * *
 

@@ -1,6 +1,6 @@
 # Lifehacker 餐饮编辑 Claire Lower 现场问答[已完成]
 
-> 原文:[https://life hacker . com/live-q-a-with-life hacker-food-beverage-editor-claire-1819445947](https://lifehacker.com/live-q-a-with-lifehacker-food-beverage-editor-claire-1819445947)
+> 原文：<https://lifehacker.com/live-q-a-with-lifehacker-food-beverage-editor-claire-1819445947>
 
 朋友们好！我是克莱尔，你友好的食品和饮料编辑，我将在美国东部时间下午 3-4 点(这里是美国西部的下午 12-1 点)出来，回答你聪明、有见地的问题。
 

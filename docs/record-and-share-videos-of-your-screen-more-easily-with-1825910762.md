@@ -1,6 +1,6 @@
 # 使用 Chrome 的“Loom”扩展功能，可以更轻松地录制和分享屏幕视频
 
-> 原文:[https://life hacker . com/record-and-share-videos-of-your-screen-more-with-1825910762](https://lifehacker.com/record-and-share-videos-of-your-screen-more-easily-with-1825910762)
+> 原文：<https://lifehacker.com/record-and-share-videos-of-your-screen-more-easily-with-1825910762>
 
 假设你正试图对一个家庭成员的电脑进行故障诊断，你想向一个朋友展示你的系统遇到的一些问题，或者你想快速记录你将要在游戏中做的一些疯狂的事情。有了 Chrome 扩展 [织机](https://www.useloom.com/) ，从你的浏览器中捕捉和分享你的屏幕的快速记录变得非常容易。
 

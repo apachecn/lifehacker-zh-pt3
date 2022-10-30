@@ -1,6 +1,6 @@
 # 更新您的 AccuWeather 应用程序以停止共享您的位置数据
 
-> 原文:[https://life hacker . com/update-your-accuweather-app-to-stop-sharing-your-locati-1798356067](https://lifehacker.com/update-your-accuweather-app-to-stop-sharing-your-locati-1798356067)
+> 原文：<https://lifehacker.com/update-your-accuweather-app-to-stop-sharing-your-locati-1798356067>
 
 AccuWeather 最近被发现正在收集其 iOS 应用用户的位置数据，无论他们是否选择分享这些数据。天气应用程序已经删除了违规软件，但如果你想阻止它收集更多数据，你需要更新该应用程序。
 

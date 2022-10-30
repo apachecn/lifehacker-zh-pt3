@@ -1,6 +1,6 @@
 # 为什么会失眠，你能做些什么来获得更好的睡眠
 
-> 原文:[https://life hacker . com/why-失眠症发生的原因以及你能做些什么来让病情好转-1746010695](https://lifehacker.com/why-insomnia-happens-and-what-you-can-do-to-get-better-1746010695)
+> 原文：<https://lifehacker.com/why-insomnia-happens-and-what-you-can-do-to-get-better-1746010695>
 
 我们都很熟悉这样一个愚蠢的形象:当一个人似乎无法入睡时，他会去数绵羊。但是当你整晚辗转反侧的时候，失眠可不是闹着玩的。
 

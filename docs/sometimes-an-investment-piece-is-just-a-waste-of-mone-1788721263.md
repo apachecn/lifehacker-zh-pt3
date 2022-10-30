@@ -1,6 +1,6 @@
 # 有时“投资品”只是浪费金钱
 
-> 原文:[https://life hacker . com/some-a-time-a-investment-piece-was-of-mone-1788721263](https://lifehacker.com/sometimes-an-investment-piece-is-just-a-waste-of-mone-1788721263)
+> 原文：<https://lifehacker.com/sometimes-an-investment-piece-is-just-a-waste-of-mone-1788721263>
 
 通常情况下， [花钱买质量](https://lifehacker.com/when-it-makes-sense-to-buy-quality-instead-of-saving-mo-1689373996) 是有道理的。如果你有一双便宜的靴子，但它们只能穿一年，随着时间的推移，你可能会比买一双更贵的能穿几年的靴子付出更多。这是一个极好的理论。然而，在实践中并不总是这样。
 

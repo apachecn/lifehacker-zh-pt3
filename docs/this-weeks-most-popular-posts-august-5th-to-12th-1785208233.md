@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:8 月 5 日至 12 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-August-5-to-12-1785208233](https://lifehacker.com/this-weeks-most-popular-posts-august-5th-to-12th-1785208233)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-august-5th-to-12th-1785208233>
 
 我们为 [高年级周](http://lifehacker.com/tag/senior-week) 做了一点傻事，但是 Lifehacker 在其最疯狂的时候仍然提供服务。我们参加了奥运会，准备回学校，比较了剃须俱乐部，从 Futurama 上了生活课，还提倡吃墨西哥卷饼。为什么不呢？多好的一周啊。
 

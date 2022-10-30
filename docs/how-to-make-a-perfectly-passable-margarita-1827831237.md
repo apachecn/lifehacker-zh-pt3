@@ -1,6 +1,6 @@
 # 如何制作一杯非常过得去的玛格丽塔
 
-> 原文:[https://the take out . com/how-to-make-a-perfect-passable-margarita-1827831237](https://thetakeout.com/how-to-make-a-perfectly-passable-margarita-1827831237)
+> 原文：<https://thetakeout.com/how-to-make-a-perfectly-passable-margarita-1827831237>
 
 你好。今天是全国龙舌兰酒日。这意味着你们中的许多人今晚将迎来快乐时光，届时你们将面对廉价的玛格丽特。我不是来劝你不要喝那些廉价的、可能令人不满意的玛格丽塔酒(尽管请负责任)。我来这里是为了劝阻你不要让对玛格斯不满意。
 

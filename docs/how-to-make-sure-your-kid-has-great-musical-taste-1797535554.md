@@ -1,6 +1,6 @@
 # 如何确保你的孩子有很好的音乐品味
 
-> 原文:[https://life hacker . com/how-to-assure-your-kid-has-great-musical-taste-1797535554](https://lifehacker.com/how-to-make-sure-your-kid-has-great-musical-taste-1797535554)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-kid-has-great-musical-taste-1797535554>
 
 我以前讨厌小孩。现在我有两个了，我可以承认这一点。在我 20 多岁的时候，我到处发誓我永远不会再生——相反，我会在世界上自由自在地旅行，从来不用换尿布，听巴尼的歌，或者从地板上捡起嚼了一半的奥利奥。
 

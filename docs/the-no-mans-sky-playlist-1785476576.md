@@ -1,6 +1,6 @@
 # 无人天空播放列表
 
-> 原文:[https://lifehacker.com/the-no-mans-sky-playlist-1785476576](https://lifehacker.com/the-no-mans-sky-playlist-1785476576)
+> 原文：<https://lifehacker.com/the-no-mans-sky-playlist-1785476576>
 
 *无人区*是一款无限探索游戏，也就是 [把粉丝从中间分割开](http://kotaku.com/the-no-mans-sky-hype-dilemma-1785416931) 。然而，几乎每个人都同意的是，它很美。配乐也是如此，这是本周播放列表的主题。
 

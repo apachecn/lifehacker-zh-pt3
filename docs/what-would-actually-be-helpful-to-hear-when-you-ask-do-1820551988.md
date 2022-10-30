@@ -1,6 +1,6 @@
 # 当你问“我看起来还好吗？”时，听到什么实际上是有帮助的
 
-> 原文:[https://life hacker . com/what-be-actually-be-helied-heard-when-you-ask-do-1820551988](https://lifehacker.com/what-would-actually-be-helpful-to-hear-when-you-ask-do-1820551988)
+> 原文：<https://lifehacker.com/what-would-actually-be-helpful-to-hear-when-you-ask-do-1820551988>
 
 哦，在一个盛大的夜晚到来之前，这个问题很尴尬。我们都问过或被问过“我看起来还好吗？”或者“我看起来怎么样？”在我们生命中的某个时刻。对许多人来说，这只是一个增强信心的简单呼吁。对其他人来说，这是一个实际问题。我们应该说什么？
 

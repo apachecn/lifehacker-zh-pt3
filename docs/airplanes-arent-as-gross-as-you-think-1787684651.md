@@ -1,6 +1,6 @@
 # 飞机没有你想象的那么恶心
 
-> 原文:[https://jalopnik . com/airplanes-arent-as-gross-as-you-think-1787684651](https://jalopnik.com/airplanes-arent-as-gross-as-you-think-1787684651)
+> 原文：<https://jalopnik.com/airplanes-arent-as-gross-as-you-think-1787684651>
 
 如果你曾经在旅行后生病过，你就会知道登上飞机并试图忽略所有的气味、气流和感觉有多难，因为你坐在一个挤满了其他看起来恶心的人的地铁里。好消息是飞机没有主动在机舱周围吹病菌。
 

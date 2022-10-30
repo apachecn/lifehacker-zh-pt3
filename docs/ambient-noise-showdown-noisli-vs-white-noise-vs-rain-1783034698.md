@@ -1,6 +1,6 @@
 # 环境噪声对决:Noisli vs .白噪声 vs. Rain Rain
 
-> 原文:[https://life hacker . com/ambient-noise-摊牌-nois Li-vs-white-noise-vs-rain-1783034698](https://lifehacker.com/ambient-noise-showdown-noisli-vs-white-noise-vs-rain-1783034698)
+> 原文：<https://lifehacker.com/ambient-noise-showdown-noisli-vs-white-noise-vs-rain-1783034698>
 
 环境噪音应用程序淹没了分心的事物，这样你就可以专注于你的工作，或者创造宁静祥和的环境，鼓励你入睡。但是你可以下载几十个，很难知道哪个是最好的。 [Noisli](http://www.noisli.com/) 、 [白噪音](http://www.tmsoft.com/white-noise/) 和 [Rain Rain](http://www.rainrainapp.com/) 都在这个游戏的顶端，所以是时候把它们提高到 11，看看哪一个创造了如此多的气氛，你几乎可以在其中呼吸。
 

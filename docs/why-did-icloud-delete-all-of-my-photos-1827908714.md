@@ -1,6 +1,6 @@
 # 为什么 iCloud 删除了我所有的照片？
 
-> 原文:[https://life hacker . com/why-did-I cloud-delete-all-of-my-photos-1827908714](https://lifehacker.com/why-did-icloud-delete-all-of-my-photos-1827908714)
+> 原文：<https://lifehacker.com/why-did-icloud-delete-all-of-my-photos-1827908714>
 
 我们将镜头转向本周的 [**理工 911**](https://lifehacker.com/c/tech-911) 。Lifehacker 执行编辑弗吉尼亚·史密斯(Virginia Smith)在我们的内部 Slack 频道上提出了一个问题，这个问题深入浅出:*“从我的 iPhone 上删除照片是安全的，对吗？”*
 

@@ -1,6 +1,6 @@
 # 不良信用会让你的生活变得困难
 
-> 原文:[https://life hacker . com/all-the-ways-bad-credit-can-make-your-life-difficult-1740467353](https://lifehacker.com/all-the-ways-bad-credit-can-make-your-life-difficult-1740467353)
+> 原文：<https://lifehacker.com/all-the-ways-bad-credit-can-make-your-life-difficult-1740467353>
 
 任何有不良信用的人都知道，这可能是一个巨大的痛苦。当然，这似乎不会对你的日常生活产生太大影响。但是，当需要买车或填写租赁申请时，糟糕的信用评分又会回来困扰你。这里有一些不良信用的缺点，以及你可以做些什么。
 

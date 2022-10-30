@@ -1,6 +1,6 @@
 # 我们如何工作，2016 年:斯蒂芬妮·李的装备和生产力提示
 
-> 原文:[https://life hacker . com/how-we-work-out-2016-Stephanie-lees-gear-and-product-1760014445](https://lifehacker.com/how-we-work-out-2016-stephanie-lees-gear-and-produc-1760014445)
+> 原文：<https://lifehacker.com/how-we-work-out-2016-stephanie-lees-gear-and-produc-1760014445>
 
 通常我们会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示，但本周我们将麦克风交给 Lifehacker 的工作人员。我是斯蒂芬妮，下面是我的工作方式(还有健身！).
 

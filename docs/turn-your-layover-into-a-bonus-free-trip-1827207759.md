@@ -1,6 +1,6 @@
 # 将您的中途停留变成免费奖励旅行
 
-> 原文:[https://life hacker . com/turn-your-lay-over-to-a bonus-free-trip-1827207759](https://lifehacker.com/turn-your-layover-into-a-bonus-free-trip-1827207759)
+> 原文：<https://lifehacker.com/turn-your-layover-into-a-bonus-free-trip-1827207759>
 
 Watch
 

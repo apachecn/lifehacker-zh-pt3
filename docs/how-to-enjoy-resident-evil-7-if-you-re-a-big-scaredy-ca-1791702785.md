@@ -1,6 +1,6 @@
 # 如果你是一只害怕的大猫，如何享受《生化危机 7》
 
-> 原文:[https://kotaku . com/how-to-enjoy-resident-evil-7-if-you-re-a-big-scared y-ca-1791702785](https://kotaku.com/how-to-enjoy-resident-evil-7-if-you-re-a-big-scaredy-ca-1791702785)
+> 原文：<https://kotaku.com/how-to-enjoy-resident-evil-7-if-you-re-a-big-scaredy-ca-1791702785>
 
 所以你一直在听 [好事](http://kotaku.com/resident-evil-7-the-kotaku-review-1791658385) 关于*生化危机 7* ，你想玩玩。只有一个问题:你是个大懦夫。放心吧！我掩护你。
 

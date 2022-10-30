@@ -1,6 +1,6 @@
 # 如何开始使用 Apple Pay Cash
 
-> 原文:[https://life hacker . com/how-to-get-started-with-apple-new-apple-pay-cash-1821168610](https://lifehacker.com/how-to-get-started-with-apples-new-apple-pay-cash-1821168610)
+> 原文：<https://lifehacker.com/how-to-get-started-with-apples-new-apple-pay-cash-1821168610>
 
 本周，苹果终于推出了 Apple Pay Cash，这是 iPhone 的 Venmo 竞争。有了它，你可以发送和接收朋友的现金，就像你在 iPhone 上使用 iMessage 使用 PayPal、Square 和 Venmo 等服务一样。它使用起来超级简单，但是如果你不确定你在做什么，可能会有点混乱。
 

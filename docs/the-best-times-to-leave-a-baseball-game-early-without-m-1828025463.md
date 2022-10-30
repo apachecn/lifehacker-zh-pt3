@@ -1,6 +1,6 @@
 # 尽早离开棒球比赛而不错过关键比赛的最佳时间
 
-> 原文:[https://life hacker . com/the-best-times-to-leave-a-baseball-game-early-without-m-1828025463](https://lifehacker.com/the-best-times-to-leave-a-baseball-game-early-without-m-1828025463)
+> 原文：<https://lifehacker.com/the-best-times-to-leave-a-baseball-game-early-without-m-1828025463>
 
 我完全承认，当我住在北卡罗莱纳州时，我观看的达勒姆公牛队的比赛有 90%真的只是到外面喝啤酒的借口。因此，我什么时候到达比赛现场或者什么时候离开对我来说都不重要，只要我有足够的时间在里面喝几杯啤酒，和朋友聊天，球场上发生一些温和的娱乐活动。
 

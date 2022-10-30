@@ -1,6 +1,6 @@
 # 你宿舍最好的运动器材
 
-> 原文:[https://life hacker . com/the-best-the-exercise-equipment-for-your-dorm-room-1784685112](https://lifehacker.com/the-best-exercise-equipment-for-your-dorm-room-1784685112)
+> 原文：<https://lifehacker.com/the-best-exercise-equipment-for-your-dorm-room-1784685112>
 
 如果你住在一个狭小的空间里，你可能会认为你在家的锻炼选择仅限于无器械、 [大多是体重锻炼](https://lifehacker.com/everything-you-need-to-build-your-own-bodyweight-workou-1770226539) 。然而，悬挂系统或几个哑铃可以打开大量新练习的大门，而不会占用大量空间或增加你的学生预算。
 

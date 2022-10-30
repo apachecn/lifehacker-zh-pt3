@@ -1,6 +1,6 @@
 # 使用 Android Doze 应用程序，从手机中挤出更多电池
 
-> 原文:[https://life hacker . com/how-to-squeeze-out-of-your-phone-with-andr-1791336715](https://lifehacker.com/how-to-squeeze-more-battery-out-of-your-phone-with-andr-1791336715)
+> 原文：<https://lifehacker.com/how-to-squeeze-more-battery-out-of-your-phone-with-andr-1791336715>
 
 Android Doze 是一个无名英雄， [当你不使用手机的时候节省你的电池](https://lifehacker.com/how-android-doze-works-and-how-to-tweak-it-to-save-you-1785921957) 。像[Greenify](https://play.google.com/store/apps/details?id=com.oasisfeng.greenify)[force doze](https://play.google.com/store/apps/details?id=com.suyashsrijan.forcedoze)和 [Naptime](https://play.google.com/store/apps/details?id=com.franco.doze&rdid=com.franco.doze) 这样的第三方应用程序可以从你的手机中榨出更多的能量，但如果你调整它们，它们可以做得更多。
 

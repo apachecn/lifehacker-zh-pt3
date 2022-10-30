@@ -1,6 +1,6 @@
 # 获得 ACA 开放注册的这些扩展的最后一分钟健康保险
 
-> 原文:[https://life hacker . com/get-last-minute-health-insurance-with these-extensions-1821581102](https://lifehacker.com/get-last-minute-health-insurance-with-these-extensions-1821581102)
+> 原文：<https://lifehacker.com/get-last-minute-health-insurance-with-these-extensions-1821581102>
 
 向 healthcare.gov 购买保险的最后期限已经过去，但数百万美国人现在有资格延期购买保险。一些州为一月设定了他们自己的最后期限，并且对受今年飓风影响的人们有特别的规定。
 

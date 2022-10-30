@@ -1,6 +1,6 @@
 # 在日本你应该随身携带的东西
 
-> 原文:[https://life hacker . com/what-you-should-always-carry-in-Japan-1822670049](https://lifehacker.com/what-you-should-always-carry-in-japan-1822670049)
+> 原文：<https://lifehacker.com/what-you-should-always-carry-in-japan-1822670049>
 
 日本是一个旅游的好地方，尤其是对第一次出国的游客来说。这种感觉与西方国家完全不同，但又完全熟悉。我最近从那里旅行回来，虽然这不是我的第一次访问，但我仍然学到了很多东西。主要是我搞清楚了什么样的物品最好一直带在身上。
 

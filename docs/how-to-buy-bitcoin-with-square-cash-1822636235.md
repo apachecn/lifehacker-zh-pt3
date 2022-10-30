@@ -1,6 +1,6 @@
 # 如何用广场现金购买比特币
 
-> 原文:[https://life hacker . com/how-to-buy-bit coin-with-square-cash-1822636235](https://lifehacker.com/how-to-buy-bitcoin-with-square-cash-1822636235)
+> 原文：<https://lifehacker.com/how-to-buy-bitcoin-with-square-cash-1822636235>
 
 [比特币](https://lifehacker.com/what-is-bitcoin-and-what-can-i-do-with-it-5991523) 的价格可能仍在 [下跌](https://www.coindesk.com/2-month-low-bitcoin-price-drops-9k/) ，但这并没有阻止一些大公司蜂拥而上的 [加密货币](https://lifehacker.com/preview/beyond-bitcoin-your-guide-to-the-other-major-cryptocur-1821656104?rev=1514581574792) 热潮。上个月是 [柯达](https://lifehacker.com/why-kodaks-bitcoin-scheme-is-a-scam-you-should-avoid-1821957658) ，现在 Square(Twitter 联合创始人杰克·多西创建的移动支付公司)也加入了比特币的行列。
 

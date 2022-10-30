@@ -1,6 +1,6 @@
 # 如何减少对孩子的分心
 
-> 原文:[https://life hacker . com/how-to-less-different-with your-kids-1826969180](https://lifehacker.com/how-to-be-less-distracted-with-your-kids-1826969180)
+> 原文：<https://lifehacker.com/how-to-be-less-distracted-with-your-kids-1826969180>
 
 你希望更多地出现在你的孩子面前，从一个意图和联系的地方与他们互动，而不是分心和膝跳反应。但是比你愿意承认的更多的时候，你很无聊或者心事重重，偷偷瞥一眼你的手机，回顾你需要完成的所有事情的清单，或者只是希望孩子快点完成这个没完没了的故事。
 

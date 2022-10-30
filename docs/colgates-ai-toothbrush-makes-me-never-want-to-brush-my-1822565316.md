@@ -1,6 +1,6 @@
 # 高露洁的 AI 牙刷让我再也不想刷牙了
 
-> 原文:[https://gizmodo . com/colgates-ai-brush-makes-me-never-want-to-brush-my-1822565316](https://gizmodo.com/colgates-ai-toothbrush-makes-me-never-want-to-brush-my-1822565316)
+> 原文：<https://gizmodo.com/colgates-ai-toothbrush-makes-me-never-want-to-brush-my-1822565316>
 
 今年早些时候，高露洁发布了一款联网牙刷，这是一款人工智能口腔清洁器，将在苹果商店 [以 100 美元一把](https://www.apple.com/shop/product/HLR52ZM/A/colgate-smart-electronic-toothbrush-e1?afid=p238%7CsZSCMg4Kq-dc_mtid_1870765e38482_pcrid_254692278412_&cid=aos-us-kwgo-pla-btb-3pp--slid--product-HLR52ZM/A) 的价格出售。它看起来像大多数电动牙刷:粗手柄，小头，当你打开它时会发出嗡嗡声。但是这款高露洁产品可以连接到你的手机上，教你如何更好地刷牙。至少，别人是这么告诉我的。
 

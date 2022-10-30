@@ -1,6 +1,6 @@
 # 如何少喝酒，与安妮格雷斯
 
-> 原文:[https://life hacker . com/how-to-drink-less-with-author-Annie-grace-1822510435](https://lifehacker.com/how-to-drink-less-with-author-annie-grace-1822510435)
+> 原文：<https://lifehacker.com/how-to-drink-less-with-author-annie-grace-1822510435>
 
 又是新的一年(还有新的你？也许吧？)我们都在努力净化自己的行为。在《升级版》第二季的第一集里，我们将仔细研究酒精——我们为什么喝酒，它对我们有什么影响，以及如果我们愿意，如何戒掉。作家安妮·格雷斯加入了我们，她是《这种赤裸裸的思想:控制酒精，寻找自由，发现幸福，&改变生活》一书的作者。
 

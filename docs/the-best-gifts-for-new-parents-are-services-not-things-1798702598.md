@@ -1,6 +1,6 @@
 # 给新父母最好的礼物是服务，而不是东西
 
-> 原文:[https://life hacker . com/the-best-gifts-for-new-parents-is-services-not-things-1798702598](https://lifehacker.com/the-best-gifts-for-new-parents-are-services-not-things-1798702598)
+> 原文：<https://lifehacker.com/the-best-gifts-for-new-parents-are-services-not-things-1798702598>
 
 我女儿出生的时候，一些朋友过来看望，给我们带了花。“你有花瓶可以放这些东西吗？”一个啁啾。当我坐在健身球上，睡眼惺忪地上下摇晃着我的新生儿时，我的大脑无法计算出这个要求。谢谢，它们很漂亮，但是真的吗？我看起来有能力照顾*另一个*生物吗？！
 

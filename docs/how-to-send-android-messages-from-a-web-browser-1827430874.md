@@ -1,6 +1,6 @@
 # 如何从网络浏览器发送 Android 消息
 
-> 原文:[https://life hacker . com/how-to-send-Android-messages-from-a-web-browser-1827430874](https://lifehacker.com/how-to-send-android-messages-from-a-web-browser-1827430874)
+> 原文：<https://lifehacker.com/how-to-send-android-messages-from-a-web-browser-1827430874>
 
 这个月，谷歌终于让安卓用户可以从他们的电脑上发送短信，这是 iPhone/iMessage 用户已经拥有了…很久的功能。
 

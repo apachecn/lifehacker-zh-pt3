@@ -1,6 +1,6 @@
 # 不要因为高利贷者有臀部品牌就爱上他们
 
-> 原文:[https://life hacker . com/don-t-fall-for-loan-sharks-just-因为他们有-hip-b-1801045951](https://lifehacker.com/don-t-fall-for-loan-sharks-just-because-they-have-hip-b-1801045951)
+> 原文：<https://lifehacker.com/don-t-fall-for-loan-sharks-just-because-they-have-hip-b-1801045951>
 
 我们都知道贷方、高利贷者和信用卡在你负债时获利，因此，他们可能是危险的。但是许多这样的公司用聪明的营销隐藏了他们的危险。当心:任何其他品牌的消费者债务都同样危险。
 

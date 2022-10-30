@@ -1,6 +1,6 @@
 # 来自意大利面条学校的教训
 
-> 原文:[https://the take out . com/lessons-from the school of-the-spaghetti-carbonara-1798259380](https://thetakeout.com/lessons-from-the-school-of-spaghetti-carbonara-1798259380)
+> 原文：<https://thetakeout.com/lessons-from-the-school-of-spaghetti-carbonara-1798259380>
 
 我的 carbonara 游戏很强。这是我掌握的唯一一道不需要精确测量就能做出的菜。如果用一个词来形容我的做法，那就是自大。我非常自信我的 carbonara 能得到完美的 10 分，以至于我在准备这道菜时的言谈举止有一种过于自信的味道。我用比平时更多的手腕动作将培根丁扔进煎锅；奶酪洒被一个戏剧性的电影打断了。综上所述，我有 99.98%的可能做错了。罗马人会看到我不真实的占有，把我的盘子举起来。
 

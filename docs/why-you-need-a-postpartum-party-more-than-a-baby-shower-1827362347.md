@@ -1,6 +1,6 @@
 # 为什么比起婴儿洗礼，你更需要一个“产后派对”
 
-> 原文:[https://life hacker . com/why-you-need-a-but-a-baby-shower-1827362347](https://lifehacker.com/why-you-need-a-postpartum-party-more-than-a-baby-shower-1827362347)
+> 原文：<https://lifehacker.com/why-you-need-a-postpartum-party-more-than-a-baby-shower-1827362347>
 
 我明白人们为什么要办婴儿送礼会。如果你怀孕了，你会容光焕发(这可能是因为荷尔蒙分泌过多，但你的客人不会知道有什么不同)。你的头发从来没有这么好看过。你对在你体内成长的那个人充满了希望和好奇——他会像我吗？她会喜欢《星球大战》吗？哦，也许这个孩子会成为那些罕见的整夜安睡的新生儿之一！—并希望你的朋友和你一起陶醉在生活的美丽神秘中。你可能会用到所有的新装备。
 

@@ -1,6 +1,6 @@
 # Grammarly 的 iPhone 键盘可以纠正你的文本和 Tinder 信息
 
-> 原文:[https://life hacker . com/grammarlys-iphone-keyboard-corrects-your-texts-and-tind-1820147948](https://lifehacker.com/grammarlys-iphone-keyboard-corrects-your-texts-and-tind-1820147948)
+> 原文：<https://lifehacker.com/grammarlys-iphone-keyboard-corrects-your-texts-and-tind-1820147948>
 
 在过去的几年里，我一直在使用语法。这项服务可以即时纠正你的拼写和语法，Chrome 的扩展非常有助于我发现电子邮件中微小的错别字和错放的逗号，甚至是我添加到 CMS 的 Lifehacker 上的帖子。现在 Grammarly 又延伸到了一个地方: [你的 iPhone](https://itunes.apple.com/nz/app/grammarly-keyboard/id1158877342?mt=8) 。
 

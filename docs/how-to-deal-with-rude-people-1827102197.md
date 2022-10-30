@@ -1,6 +1,6 @@
 # 如何对付粗鲁的人，《非常感谢你》作者丹尼·华莱士
 
-> 原文:[https://life hacker . com/how-to-deal-to-rude-people-1827102197](https://lifehacker.com/how-to-deal-with-rude-people-1827102197)
+> 原文：<https://lifehacker.com/how-to-deal-with-rude-people-1827102197>
 
 在本周的《升级》节目中，我们采访了:喜剧演员、电台主持人，以及《非常理解粗鲁文化——以及我们能做些什么 *》一书的作者。*
 

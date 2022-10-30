@@ -1,6 +1,6 @@
 # 今年夏天你可以通过 Oculus 场馆在 VR 中观看的所有现场活动
 
-> 原文:[https://life hacker . com/all-the-live-events-you-can-watch-in-this-summer-via-1826520887](https://lifehacker.com/all-the-live-events-you-can-watch-in-vr-this-summer-via-1826520887)
+> 原文：<https://lifehacker.com/all-the-live-events-you-can-watch-in-vr-this-summer-via-1826520887>
 
 如果你有一台 Oculus Go 或三星的 Gear VR，那么今年夏天你可以在舒适的沙发上观看许多音乐会、体育赛事、单口喜剧和更多的现场直播。本周，Oculus Venues 这款应用可以让你在“屋子里最好的座位”上通过虚拟现实体验现场活动。
 

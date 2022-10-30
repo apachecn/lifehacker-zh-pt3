@@ -1,6 +1,6 @@
 # 以下是 2018 年 2 月网飞的动向
 
-> 原文:[https://life hacker . com/heres-whats-coming-and-going-from-America-in-two-2-1822335093](https://lifehacker.com/heres-whats-coming-and-going-from-netflix-in-february-2-1822335093)
+> 原文：<https://lifehacker.com/heres-whats-coming-and-going-from-netflix-in-february-2-1822335093>
 
 已经放弃了那些讨厌的关于放弃暴饮暴食习惯的决心？如果是这样的话，是时候享受网飞流媒体节目、电影和纪录片库的最新成员了。我们保证这里会有你喜欢的东西，至少在你记起你要读更多书的承诺之前。
 

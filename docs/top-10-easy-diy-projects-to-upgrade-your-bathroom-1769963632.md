@@ -1,6 +1,6 @@
 # 升级浴室的十大简单 DIY 项目
 
-> 原文:[https://life hacker . com/top-10-easy-DIY-projects-to-upgrade-your-浴室-1769963632](https://lifehacker.com/top-10-easy-diy-projects-to-upgrade-your-bathroom-1769963632)
+> 原文：<https://lifehacker.com/top-10-easy-diy-projects-to-upgrade-your-bathroom-1769963632>
 
 浴室:它可能不是你家中最喜欢的房间，但肯定是一个重要的房间。利用你的 DIY 技能提升浴室的组织性和功能性，以低廉的价格更新浴室。这里有 10 个几乎任何人都可以做的建议项目。
 

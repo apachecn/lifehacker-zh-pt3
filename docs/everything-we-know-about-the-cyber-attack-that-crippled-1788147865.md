@@ -1,6 +1,6 @@
 # 我们所知道的关于瘫痪美国互联网的网络攻击的一切
 
-> 原文:[https://gizmodo . com/everything-we-known-that-know-the-cyber-attack-that-blinked-1788147865](https://gizmodo.com/everything-we-know-about-the-cyber-attack-that-crippled-1788147865)
+> 原文：<https://gizmodo.com/everything-we-know-about-the-cyber-attack-that-crippled-1788147865>
 
 周五对 Dyn 的域名服务器 的 DDoS 攻击是史无前例的。该攻击利用由“物联网”(IoT)设备(想想:智能电视、DVR 和联网摄像头)组成的僵尸网络来破坏互联网基础设施的主要部分。结果呢？在周五的大部分时间里，美国和欧洲部分地区的人们无法访问亚马逊、Twitter、CNN、PayPal、Spotify 等网站。这是我们目前所知的。
 

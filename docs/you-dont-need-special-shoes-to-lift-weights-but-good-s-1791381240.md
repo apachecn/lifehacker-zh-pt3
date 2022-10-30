@@ -1,6 +1,6 @@
 # 你不需要特别的鞋子来举重(但是好的鞋子会有帮助)
 
-> 原文:[https://life hacker . com/you-dont-need-special-shoes-to-lift weights-but-good-s-1791381240](https://lifehacker.com/you-dont-need-special-shoes-to-lift-weights-but-good-s-1791381240)
+> 原文：<https://lifehacker.com/you-dont-need-special-shoes-to-lift-weights-but-good-s-1791381240>
 
 在健身房圈子里，关于举重带、手套或鞋子等装备的争论可能会变得很难看。要么它们是拐杖，要么你不戴它们就是傻瓜。但是 [就像腰带](https://lifehacker.com/when-weightlifting-belts-are-necessary-and-when-theyre-1766557417) 一样，举重鞋在某些情况下可以有所帮助，但在其他情况下它们只是作秀。关键是弄清楚你的需求和目标。
 

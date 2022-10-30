@@ -1,6 +1,6 @@
 # 如何在 iOS 11 中(真的)关闭 Wi-Fi 和蓝牙
 
-> 原文:[https://life hacker . com/how-to-really-off-wi-fi-and-bluetooth-in-IOs-11-1818655697](https://lifehacker.com/how-to-really-turn-off-wi-fi-and-bluetooth-in-ios-11-1818655697)
+> 原文：<https://lifehacker.com/how-to-really-turn-off-wi-fi-and-bluetooth-in-ios-11-1818655697>
 
 iOS 11 在骗你。
 

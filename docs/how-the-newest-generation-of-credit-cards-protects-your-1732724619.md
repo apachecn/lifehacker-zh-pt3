@@ -1,6 +1,6 @@
 # 最新一代的信用卡如何保护您的信息不被窃取
 
-> 原文:[https://life hacker . com/how-the-new-generation-of-credit-cards-protected-your-1732724619](https://lifehacker.com/how-the-newest-generation-of-credit-cards-protects-your-1732724619)
+> 原文：<https://lifehacker.com/how-the-newest-generation-of-credit-cards-protects-your-1732724619>
 
 你的信用卡信息最近被盗过吗？你并不孤单。在过去的一年里，这种事在我身上发生过几次，而且非常讨厌。值得庆幸的是，信用卡公司终于正面解决了这个问题，这项技术刚刚全面进入美国。
 

@@ -1,6 +1,6 @@
 # 如何区分感冒和流感
 
-> 原文:[https://life hacker . com/how-to-tell-the-difference-a-cold-and-flu-1822480774](https://lifehacker.com/how-to-tell-the-difference-between-a-cold-and-the-flu-1822480774)
+> 原文：<https://lifehacker.com/how-to-tell-the-difference-between-a-cold-and-the-flu-1822480774>
 
 你发烧了，流鼻涕，下不了床。一定是流感，对吗？不一定。
 

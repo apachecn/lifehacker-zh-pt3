@@ -1,6 +1,6 @@
 # 用这个技巧帮助你的孩子记住你的电话号码
 
-> 原文:[https://life hacker . com/help-your-kid-memory-your-phone-number with this-tric-1828802784](https://lifehacker.com/help-your-kid-memorize-your-phone-number-with-this-tric-1828802784)
+> 原文：<https://lifehacker.com/help-your-kid-memorize-your-phone-number-with-this-tric-1828802784>
 
 小孩子知道父母的电话号码是很重要的，以防紧急情况。但是记住 10 个杂乱的数字并不是一件容易的事情。732-479-6 ...一...啊，让我重新开始吧！用小叮当帮帮他们。正如柏拉图 博客的 [Playdough 的 Jen Rice 所发现的那样，*米老鼠俱乐部*](https://www.playdoughtoplato.com/4-tricks-for-learning-phone-numbers/) 的 [主题曲效果很好。(或者如果你想保持它的老派风格，试试](https://www.youtube.com/watch?v=IMEwzzyBP7w)[1955 年原版米老鼠俱乐部主题曲](https://video.disney.com/watch/mickey-mouse-club-theme-song-lyric-video-4d485c8f0da9386a7bf02cf8) 。)只要把字母 M-I-C-K-E-Y-M-O-U-S-E 换成电话号码和它的主人就行了。所以这首歌会变成:
 

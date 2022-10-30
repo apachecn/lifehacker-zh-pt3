@@ -1,6 +1,6 @@
 # 与现实世界打交道，而不是与理想世界打交道
 
-> 原文:[https://life hacker . com/deal-with-the-real-world-not-the-ideal-world-1819847978](https://lifehacker.com/deal-with-the-real-world-not-the-ideal-world-1819847978)
+> 原文：<https://lifehacker.com/deal-with-the-real-world-not-the-ideal-world-1819847978>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。我代替帕特里克·艾伦，因为这是邪恶周，我从古代斯多葛派中休息一下，咨询文艺复兴时期的哲学家尼可罗·马基亚维利。
 

@@ -1,6 +1,6 @@
 # “CTE 把艾伦·赫尔南德斯逼得走投无路”的叙述太方便了，而且很危险
 
-> 原文:[https://deadspin . com/the-cte-drive-aaron-Hernandez-narrative-is-too-convent-1818821203](https://deadspin.com/the-cte-drove-aaron-hernandez-narrative-is-too-conven-1818821203)
+> 原文：<https://deadspin.com/the-cte-drove-aaron-hernandez-narrative-is-too-conven-1818821203>
 
 这些打击来得迅速，肆无忌惮，打击大脑并造成损害。不要在周日的 NFL 赛场上铲球。这次不会。这些记者歪曲了亚伦·埃尔南德斯对慢性创伤性脑病的诊断，把它变成了和他本人一样扭曲的论点。
 

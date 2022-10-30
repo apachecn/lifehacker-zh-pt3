@@ -1,6 +1,6 @@
 # 小熊队季后赛无预约播放列表
 
-> 原文:[https://life hacker . com/the-cubs-post-season-walk-up-playlist-1788558900](https://lifehacker.com/the-cubs-postseason-walk-up-playlist-1788558900)
+> 原文：<https://lifehacker.com/the-cubs-postseason-walk-up-playlist-1788558900>
 
 如果你现在还不知道， [小熊队战胜了所有的困难赢得了世界职业棒球大赛](http://deadspin.com/holy-fucking-shit-chicago-cubs-actually-win-world-seri-1788518760) 。为了庆祝，这里有一个小熊队季后赛跑台音乐的播放列表。
 

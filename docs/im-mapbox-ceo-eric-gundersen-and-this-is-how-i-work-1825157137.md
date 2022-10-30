@@ -1,6 +1,6 @@
 # 我是地图盒子首席执行官埃里克·贡德森，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-map box-CEO-Eric-gundersen-and-this-is-how-I-work-1825157137](https://lifehacker.com/im-mapbox-ceo-eric-gundersen-and-this-is-how-i-work-1825157137)
+> 原文：<https://lifehacker.com/im-mapbox-ceo-eric-gundersen-and-this-is-how-i-work-1825157137>
 
 你可能不认识这个名字，但你已经从 CNN、Snapchat、Instacart 和天气频道看到了该公司的服务。(你也可以用它来 [做一个漂亮的锁屏](https://lifehacker.com/make-a-map-for-your-phones-lock-screen-1823832028) 。)埃里克·贡德森在为无国界医生组织等国际发展机构开发开源地图工具后，创建了 Mapbox。我们和他谈了他的移动工作空间——他最近用 iPad 取代了他的笔记本电脑——以及把他的整个团队放在 GitHub 上。
 

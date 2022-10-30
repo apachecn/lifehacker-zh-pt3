@@ -1,6 +1,6 @@
 # 告诉我们你最好的东京小贴士
 
-> 原文:[https://life hacker . com/tell-us-your-best-Tokyo-tips-1821813368](https://lifehacker.com/tell-us-your-best-tokyo-tips-1821813368)
+> 原文：<https://lifehacker.com/tell-us-your-best-tokyo-tips-1821813368>
 
 我们进入 [黑你的城市](https://lifehacker.com/c/hack-your-city) 已经十六周了，所以也许是时候谈谈世界上最大的都市圈了。东京居住和雇佣了日本 30%的人口，是纽约人感到渺小的地方。就像任何一个同规模的城市一样，它有比你一生探索的更多的事情要做。但是它出奇的干净、安全，而且对游客友好。
 

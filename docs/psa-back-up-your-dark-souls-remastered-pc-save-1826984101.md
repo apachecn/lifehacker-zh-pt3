@@ -1,6 +1,6 @@
 # PSA:备份你的黑暗灵魂:重制电脑保存
 
-> 原文:[https://kotaku . com/PSA-back-up-your-dark-souls-remastered-PC-save-1826984101](https://kotaku.com/psa-back-up-your-dark-souls-remastered-pc-save-1826984101)
+> 原文：<https://kotaku.com/psa-back-up-your-dark-souls-remastered-pc-save-1826984101>
 
 你知道什么最糟糕吗？玩一堆 [*黑暗之魂:重制*](http://kotaku.com/dark-souls-remastered-the-kotaku-review-1826393252) 然后因为一个败坏的保存而失去你所有的进度。
 

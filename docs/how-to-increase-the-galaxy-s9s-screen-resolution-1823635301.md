@@ -1,6 +1,6 @@
 # 如何提高 Galaxy S9 的屏幕分辨率
 
-> 原文:[https://life hacker . com/how-to-increase-the-galaxy-s9s-screen-resolution-1823635301](https://lifehacker.com/how-to-increase-the-galaxy-s9s-screen-resolution-1823635301)
+> 原文：<https://lifehacker.com/how-to-increase-the-galaxy-s9s-screen-resolution-1823635301>
 
 Galaxy S9 和 S9+的最大屏幕分辨率为 2960×1440，但这两款手机的默认设置较低，为 2220×1080。让我们解决这个问题。
 

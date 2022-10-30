@@ -1,6 +1,6 @@
 # OpenTable vs Resy:预订最好的方式是什么？
 
-> 原文:[https://life hacker . com/opentable-vs-resy-whats-the-best-way-to-make-a-reserva-1829436298](https://lifehacker.com/opentable-vs-resy-whats-the-best-way-to-make-a-reserva-1829436298)
+> 原文：<https://lifehacker.com/opentable-vs-resy-whats-the-best-way-to-make-a-reserva-1829436298>
 
 如果你像我一样，你爱吃。事实上，你可能太爱吃了，以至于一天要吃好几次。这就是为什么我们以千禧一代为重点的经济赋予了我们太多的应用程序(“应用程序”的简称)，让你可以很容易地在一家餐馆找到并预订一张桌子。但是有太多不同的方法来选择在哪里获得你的应用程序(开胃菜的简称)，所以让我们来看看哪个软件能最好地将你与一家优雅的餐厅配对。
 

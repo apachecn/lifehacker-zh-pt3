@@ -1,6 +1,6 @@
 # Mailform 将打印并邮寄你的文件，只需 3 美元
 
-> 原文:[https://life hacker . com/mail form-will-print-and-mail-your-documents-for-three-b-1824268286](https://lifehacker.com/mailform-will-print-and-mail-your-documents-for-three-b-1824268286)
+> 原文：<https://lifehacker.com/mailform-will-print-and-mail-your-documents-for-three-b-1824268286>
 
 发送物理邮件是一个讨厌的小差事。但是有时候——当你搞砸了你的自动转账，或者你在处理一些拒绝在线处理事情的无名企业或专业人士——这是你和不良信用评分或其他重大灾难之间唯一的事情。有时候你必须打印出一份 PDF 文件，然后通过老式的实体邮件发送出去。你必须找到一个信封，一张邮票和一个邮箱。糟透了。所以你推迟了，这稍微毁了你的生活。
 

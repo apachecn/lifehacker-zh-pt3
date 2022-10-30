@@ -1,6 +1,6 @@
 # 当你在另一个国家被拦下时该怎么办
 
-> 原文:[https://life hacker . com/1824258543](https://lifehacker.com/what-to-do-when-you-get-pulled-over-in-another-country-1824258543)
+> 原文：<https://lifehacker.com/what-to-do-when-you-get-pulled-over-in-another-country-1824258543>
 
 在美国被拦下来已经很让人头疼了，但是当它发生在离家很远的某个地方时，可能会更可怕。法律不同，风俗不同，可能要当场罚款。在美国之外开车之前，你需要知道以下几点
 

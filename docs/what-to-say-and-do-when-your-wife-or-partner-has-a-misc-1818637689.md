@@ -1,6 +1,6 @@
 # 当你的妻子或伴侣流产时，该说什么，做什么
 
-> 原文:[https://life hacker . com/what-to-say-and-do-what-your ' s-wife-or-partner-has-a-misc-1818637689](https://lifehacker.com/what-to-say-and-do-when-your-wife-or-partner-has-a-misc-1818637689)
+> 原文：<https://lifehacker.com/what-to-say-and-do-when-your-wife-or-partner-has-a-misc-1818637689>
 
 得知妻子怀孕的兴奋，尤其是第一次，永远不会达到当你得知她会流产时让你心碎的绝望的程度。但这仅仅是开始。
 

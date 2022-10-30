@@ -1,6 +1,6 @@
 # 苹果 iPhone 电池更换计划即将结束
 
-> 原文:[https://life hacker . com/PSA-apple-iphone-电池-更换-计划-结束-不久-1828911807](https://lifehacker.com/psa-apples-iphone-battery-replacement-plan-ends-soon-1828911807)
+> 原文：<https://lifehacker.com/psa-apples-iphone-battery-replacement-plan-ends-soon-1828911807>
 
 如果你一直在拖延修理旧 iPhone 的电池，你只剩下几个月的时间来以 29 美元的价格更换电池。从 12 月 31 日开始，更换价格将增加一倍以上，达到 79 美元，即使您有资格根据较便宜的计划进行更换。
 

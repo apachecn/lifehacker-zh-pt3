@@ -1,6 +1,6 @@
 # 美国运输安全管理局正在测试一种可以提高安检速度的扫描仪
 
-> 原文:[https://life hacker . com/the-TSA-is-testing-a-scanner-that-may-speed-up-securi-1796226914](https://lifehacker.com/the-tsa-is-testing-a-scanner-that-might-speed-up-securi-1796226914)
+> 原文：<https://lifehacker.com/the-tsa-is-testing-a-scanner-that-might-speed-up-securi-1796226914>
 
 美国运输安全管理局终于更新了它几十年的安全系统。周四，它开始在凤凰城测试手提行李的计算机断层扫描(CT)扫描仪。
 

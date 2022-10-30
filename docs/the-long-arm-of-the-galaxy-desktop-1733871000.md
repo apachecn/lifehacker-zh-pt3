@@ -1,6 +1,6 @@
 # Galaxy 台式机的长臂
 
-> 原文:[https://life hacker . com/the-long-arm-of-the-the-galaxy-desktop-1733871000](https://lifehacker.com/the-long-arm-of-the-galaxy-desktop-1733871000)
+> 原文：<https://lifehacker.com/the-long-arm-of-the-galaxy-desktop-1733871000>
 
 就像我们之前说过的，有时候少定制就是多定制，这款来自 reader [Mackenzie](https://www.flickr.com/photos/136087398@N08/) 的漂亮桌面是另一个很好的例子，说明了仅仅几个皮肤——不要太多——就能产生很大的影响。她是这样设置的。
 

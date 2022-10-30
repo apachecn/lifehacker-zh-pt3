@@ -1,6 +1,6 @@
 # 你可以用瓶盖测量香草精
 
-> 原文:[https://life hacker . com/you-can-measure-vanilla-extract-use-the-bottle-cap-1810494437](https://lifehacker.com/you-can-measure-vanilla-extract-using-the-bottle-cap-1810494437)
+> 原文：<https://lifehacker.com/you-can-measure-vanilla-extract-using-the-bottle-cap-1810494437>
 
 虽然我的工作是搜索和发现各种各样的厨房小贴士和窍门，但我有时会发现最好的小贴士来自你的评论区。这是今天早些时候的情况，当评论员阿姨 Mumpsimus 指出，大多数提取物瓶盖可以兼作测量勺子。
 

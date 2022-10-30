@@ -1,6 +1,6 @@
 # 告诉你的 Roomba 停止分享你家的地图[更新]
 
-> 原文:[https://life hacker . com/tell-your-roomba-to-stop-sharing-a-map of your-home-1797238670](https://lifehacker.com/tell-your-roomba-to-stop-sharing-a-map-of-your-home-1797238670)
+> 原文：<https://lifehacker.com/tell-your-roomba-to-stop-sharing-a-map-of-your-home-1797238670>
 
 Roomba 900 系列提供了一份清洁地图报告，当它吸尘时绘制你的家， [改善它的运动](https://gizmodo.com/this-roomba-maps-your-house-so-it-wont-keep-ramming-int-1731183123#_ga=2.15426997.2063511756.1500912498-1297080755.1497980211) ，并告诉你它打扫得有多好。但是根据客服代表的说法，要得到那张地图，你必须与 Roomba 的创造者 iRobot 分享。这就给了 iRobot 许可来给出或者出售你的地图。这正是 iRobot 首席执行官科林·安格尔本周告诉路透社的计划
 

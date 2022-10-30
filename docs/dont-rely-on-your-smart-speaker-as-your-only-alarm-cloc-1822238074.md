@@ -1,6 +1,6 @@
 # 不要依赖你的智能音箱作为你唯一的闹钟
 
-> 原文:[https://life hacker . com/don ' t-rely-on-your-smart-speaker-as-your-only-alarm-cloc-1822238074](https://lifehacker.com/dont-rely-on-your-smart-speaker-as-your-only-alarm-cloc-1822238074)
+> 原文：<https://lifehacker.com/dont-rely-on-your-smart-speaker-as-your-only-alarm-cloc-1822238074>
 
 很容易把你的 [亚马逊 Echo](https://lifehacker.com/the-best-place-for-your-echo-dot-is-actually-on-the-cei-1820916306) 或者 [Google Home](https://lifehacker.com/the-best-google-assistant-skills-to-use-with-your-googl-1792134538) 变成一个 [闹钟](https://lifehacker.com/smart-alarm-clock-wakes-you-up-at-the-best-time-so-you-1791637047) 。你可能已经在床头柜上放了一个智能音箱，而且不动一根手指(甚至不睁开眼睛)就能关掉闹钟或多睡十分钟是一个巨大的优势。
 

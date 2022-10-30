@@ -1,6 +1,6 @@
 # Lifehacker 的 2017 年日全食指南
 
-> 原文:[https://life hacker . com/life hacker-guide-to-the-the-2017-total-eclipse-of-the-the-sun-1797979567](https://lifehacker.com/lifehackers-guide-to-the-2017-total-eclipse-of-the-sun-1797979567)
+> 原文：<https://lifehacker.com/lifehackers-guide-to-the-2017-total-eclipse-of-the-sun-1797979567>
 
 8 月 21 日星期一，当月亮完全遮住太阳时，你会在哪里？无论你是在全食的道路上，还是在工作中坐在办公桌前观看全食，无论你的生活中有光明，还是黑暗中只有爱，我们都会保护你。
 

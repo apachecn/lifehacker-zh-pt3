@@ -1,6 +1,6 @@
 # 耳机对决:Grado SR80e vs ATH 音频技术公司-M50x vs 索尼 MDR-V6
 
-> 原文:[https://life hacker . com/headphone-摊牌-grado-sr80e-vs-audio-technica-ath-m-1744161005](https://lifehacker.com/headphone-showdown-grado-sr80e-vs-audio-technica-ath-m-1744161005)
+> 原文：<https://lifehacker.com/headphone-showdown-grado-sr80e-vs-audio-technica-ath-m-1744161005>
 
 买耳机是一个 [居然个人决定](https://lifehacker.com/how-to-choose-the-perfect-pair-of-headphones-5800772) ，但还是有几款这么受欢迎，你得去试试。今天，我们来比较世界上最受欢迎的三种易拉罐。
 

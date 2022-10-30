@@ -1,6 +1,6 @@
 # 如何抱婴儿
 
-> 原文:[https://lifehacker.com/how-to-hold-a-baby-1819287074](https://lifehacker.com/how-to-hold-a-baby-1819287074)
+> 原文：<https://lifehacker.com/how-to-hold-a-baby-1819287074>
 
 这是产后疼痛诊所的第一部分，这是一个关于管理新生儿和婴儿护理带来的疼痛的多部分系列。
 

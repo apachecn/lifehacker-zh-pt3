@@ -1,6 +1,6 @@
 # 这些视频以一种适合年龄、不尴尬的方式教孩子们关于同意的知识
 
-> 原文:[https://life hacker . com/these-videos-teach-kids-about-consent-in-a-age-appropr-1819448970](https://lifehacker.com/these-videos-teach-kids-about-consent-in-an-age-appropr-1819448970)
+> 原文：<https://lifehacker.com/these-videos-teach-kids-about-consent-in-an-age-appropr-1819448970>
 
 同意并没有那么复杂。然而，根据国家性暴力资源中心的一项研究 显示，对于什么是“性侵犯”,仍然有很多困惑。典型的例子:T5【哈维·韦恩斯坦】T6。
 

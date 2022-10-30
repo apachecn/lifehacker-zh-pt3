@@ -1,6 +1,6 @@
 # 你真的需要睡个好觉才能锻炼好吗？
 
-> 原文:[https://life hacker . com/do-you-really-need-a-good-night-s-sleep-to-exercise-wel-1732812870](https://lifehacker.com/do-you-really-need-a-good-night-s-sleep-to-exercise-wel-1732812870)
+> 原文：<https://lifehacker.com/do-you-really-need-a-good-night-s-sleep-to-exercise-wel-1732812870>
 
 “睡个好觉”是大型比赛或活动前的经典建议。但是如果你熬夜挑选你最好的鞋带，然后早起准时到达起跑线，你会毁掉你取得好成绩的机会吗？
 

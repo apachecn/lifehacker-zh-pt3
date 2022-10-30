@@ -1,6 +1,6 @@
 # 如何免费观看奥斯汀城市极限音乐节
 
-> 原文:[https://life hacker . com/how-to-stream-Austin-city-limits-for-free-1819252847](https://lifehacker.com/how-to-stream-austin-city-limits-for-free-1819252847)
+> 原文：<https://lifehacker.com/how-to-stream-austin-city-limits-for-free-1819252847>
 
 奥斯汀城市极限是这个周末，由街头霸王乐队，牛奶机会，黑天使，约瑟夫等表演。阵容相当强大。
 

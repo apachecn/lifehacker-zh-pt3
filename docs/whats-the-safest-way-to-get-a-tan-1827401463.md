@@ -1,6 +1,6 @@
 # 晒黑最安全的方法是什么？
 
-> 原文:[https://life hacker . com/whats-the-safe-to-get-a-tan-1827401463](https://lifehacker.com/whats-the-safest-way-to-get-a-tan-1827401463)
+> 原文：<https://lifehacker.com/whats-the-safest-way-to-get-a-tan-1827401463>
 
 这些天我非常努力地使用我的防晒霜，以至于现在，在七月，我的皮肤仍然是今年冬天一样的浅米色。但是，如果你渴望阳光照耀下的肌肤，你可能想知道晒黑的最好方法是什么——以及任何方法是否真正安全。
 

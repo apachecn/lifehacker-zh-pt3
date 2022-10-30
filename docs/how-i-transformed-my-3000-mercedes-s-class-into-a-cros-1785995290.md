@@ -1,6 +1,6 @@
 # 我是如何把我 3000 美元的奔驰 S 级车改造成越野拖车的
 
-> 原文:[https://jalopnik . com/how-I-transformed-my-3000-Mercedes-s-class-into-a-cros-1785995290](https://jalopnik.com/how-i-transformed-my-3000-mercedes-s-class-into-a-cros-1785995290)
+> 原文：<https://jalopnik.com/how-i-transformed-my-3000-mercedes-s-class-into-a-cros-1785995290>
 
 对于那些还没有享受到这种快乐的人来说，搬家日是一个人生里程碑，考验你的耐心、钱包和理智。把你所有的东西装在卡车里，运过整个城镇已经够难的了，但是当你没有卡车，盯着长达 1000 英里的旅程时，你唯一的选择就是发挥创造力。
 

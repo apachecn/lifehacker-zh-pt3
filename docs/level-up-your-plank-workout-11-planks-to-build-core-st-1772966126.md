@@ -1,6 +1,6 @@
 # 提升你的木板训练:11 块木板增强核心力量
 
-> 原文:[https://life hacker . com/level-up-your-plank-workout-11-planks-to-build-core-ST-1772966126](https://lifehacker.com/level-up-your-plank-workout-11-planks-to-build-core-st-1772966126)
+> 原文：<https://lifehacker.com/level-up-your-plank-workout-11-planks-to-build-core-st-1772966126>
 
 当你还是个孩子的时候，你可能会在学校做仰卧起坐来锻炼腹部。但是仰卧起坐是最好的腹肌运动吗？这其实是一个简单的问题。不会吧！有比简单的仰卧起坐好得多的腹肌练习，仰卧起坐会加剧背部问题，并且只集中在腹部的一个小区域。
 

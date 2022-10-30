@@ -1,6 +1,6 @@
 # 开始作业'咨询时间'
 
-> 原文:[https://life hacker . com/start-作业-咨询-小时-1823000261](https://lifehacker.com/start-homework-consulting-hours-1823000261)
+> 原文：<https://lifehacker.com/start-homework-consulting-hours-1823000261>
 
 作业大战似乎是学龄儿童工作日晚上的一个标志，而父母总是被打败的一方。当我的女儿今年去幼儿园时，我害怕这场争吵。因为*将会有*场战斗...正确会有她不想做作业的时候，我们必须想办法让她做作业，一切都会很困难。我一直在振作精神。
 

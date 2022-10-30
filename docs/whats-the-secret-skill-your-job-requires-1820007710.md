@@ -1,6 +1,6 @@
 # 你的工作需要什么样的秘密技能？
 
-> 原文:[https://life hacker . com/what-the-secret-skill-your job-requires-1820007710](https://lifehacker.com/whats-the-secret-skill-your-job-requires-1820007710)
+> 原文：<https://lifehacker.com/whats-the-secret-skill-your-job-requires-1820007710>
 
 表演是一项艰苦的工作。不是因为在镜头前令人信服的情绪化，尽管这很有挑战性。表演很难，因为不断的拒绝，从试镜到试镜。很少有职业包含如此多的申请和投入，直到每一次接受或拒绝都像是对你作为一个人的评价。为了保持理智，演员必须提醒自己:试镜《T2》是工作。处理拒绝是一项基本的工作技能。
 

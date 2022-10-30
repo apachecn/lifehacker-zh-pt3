@@ -1,6 +1,6 @@
 # 使用 Shazam 之类的谷歌助手来识别歌曲
 
-> 原文:[https://life hacker . com/use-Google-assistant-like-shazam-to-identify-songs-1820359105](https://lifehacker.com/use-google-assistant-like-shazam-to-identify-songs-1820359105)
+> 原文：<https://lifehacker.com/use-google-assistant-like-shazam-to-identify-songs-1820359105>
 
 多年来，我们都在使用 Shazam 来查找我们当地酒吧正在播放的歌曲。现在你可以在谷歌上获得同样的体验。本周，谷歌在谷歌助手中增加了一项新的音乐查找功能(它已经在 Google Now 中出现了一段时间)。有了它，你可以说“嘿，谷歌，这是什么歌？”并获取您周围可能正在播放的任何内容的信息。
 

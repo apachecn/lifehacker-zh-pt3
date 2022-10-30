@@ -1,6 +1,6 @@
 # 建立一个树莓 Pi 快乐跟踪器来记录士气
 
-> 原文:[https://life hacker . com/build-a-raspberry-pi-happy-tracker-to-log-more-1797532859](https://lifehacker.com/build-a-raspberry-pi-happiness-tracker-to-log-morale-1797532859)
+> 原文：<https://lifehacker.com/build-a-raspberry-pi-happiness-tracker-to-log-morale-1797532859>
 
 [Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
 

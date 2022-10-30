@@ -1,6 +1,6 @@
 # 向自己承认，你可能有一个最喜欢的孩子
 
-> 原文:[https://life hacker . com/admit to you-you-possible-happed-a-favorite-chi-1796784943](https://lifehacker.com/admit-to-yourself-that-you-probably-have-a-favorite-chi-1796784943)
+> 原文：<https://lifehacker.com/admit-to-yourself-that-you-probably-have-a-favorite-chi-1796784943>
 
 虽然这个话题仍然是禁忌，但大多数父母都有一个最喜欢的孩子。华尔街日报指出了支持这种 的 [研究——在最近的一项研究中，75%的母亲承认她们感觉与成年子女更亲近，而另一份报告发现，70%的父亲和 74%的母亲根据这些感觉采取行动，并表现出优待。](https://www.wsj.com/articles/parents-do-have-a-favorite-child-1498840029#livefyre-toggle-SB10232408185146533862504583235772268009486) 
 

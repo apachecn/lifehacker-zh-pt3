@@ -1,6 +1,6 @@
 # 什么是大陪审团，它是如何运作的？
 
-> 原文:[https://life hacker . com/what-s-a-grand-jury-and-how-it-work-1819939958](https://lifehacker.com/what-s-a-grand-jury-and-how-does-it-work-1819939958)
+> 原文：<https://lifehacker.com/what-s-a-grand-jury-and-how-does-it-work-1819939958>
 
 周五，华盛顿的一个联邦大陪审团批准了罗伯特·穆勒领导的关于俄罗斯干预 2016 年总统选举的调查中的第一项指控， [*CNN* 报道](http://www.cnn.com/2017/10/27/politics/first-charges-mueller-investigation/index.html) 。
 

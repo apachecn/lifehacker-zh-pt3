@@ -1,6 +1,6 @@
 # 和你的孩子一起看这些真人秀
 
-> 原文:[https://life hacker . com/watch-these-reality-shows-with-your-kids-1824013992](https://lifehacker.com/watch-these-reality-shows-with-your-kids-1824013992)
+> 原文：<https://lifehacker.com/watch-these-reality-shows-with-your-kids-1824013992>
 
 媒体专家现在告诉家长们:如果你的孩子要看电视，你应该和他们一起看。美国儿科学会 [的指导方针](http://pediatrics.aappublications.org/content/138/5/e20162592) 强调“联合参与”
 

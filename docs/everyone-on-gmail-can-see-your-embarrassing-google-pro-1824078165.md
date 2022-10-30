@@ -1,6 +1,6 @@
 # Gmail 上的每个人都能看到你尴尬的 Google+个人资料
 
-> 原文:[https://life hacker . com/every one-on-Gmail-can-see-your-hanging-Google-pro-1824078165](https://lifehacker.com/everyone-on-gmail-can-see-your-embarrassing-google-pro-1824078165)
+> 原文：<https://lifehacker.com/everyone-on-gmail-can-see-your-embarrassing-google-pro-1824078165>
 
 只需一次意外点击，你通过 Gmail 帐户发送邮件的任何人都可以看到你以前的 Google+个人资料。
 

@@ -1,6 +1,6 @@
 # 尽管最近有研究表明，意大利面并不是一种神奇的减肥食品
 
-> 原文:[https://life hacker . com/pasta-is-not-a-magic-weight-loss-food-Justin-1825140556](https://lifehacker.com/pasta-is-not-a-magical-weight-loss-food-despite-recent-1825140556)
+> 原文：<https://lifehacker.com/pasta-is-not-a-magical-weight-loss-food-despite-recent-1825140556>
 
 如果有一项研究从好的方面展示了意大利面，这是很难忽视的。人人都爱意大利面，对吧？我知道。很可能你也是。 [巴里拉](https://www.barilla.com/en-us) ，意大利面的制造者，*肯定*会。
 

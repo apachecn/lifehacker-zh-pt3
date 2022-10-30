@@ -1,6 +1,6 @@
 # 你应该在你的厨房里一直放些盐
 
-> 原文:[https://life hacker . com/you-should-always-has-saltines-in-your-kitchen-1819780536](https://lifehacker.com/you-should-always-have-saltines-in-your-kitchen-1819780536)
+> 原文：<https://lifehacker.com/you-should-always-have-saltines-in-your-kitchen-1819780536>
 
 咸饼干不仅仅是饼干。事实上，我甚至可以称他们为偶像。看似不起眼的饼干可能缺乏风味爆棚的现代小吃的活力，但正是 saltine 的简单性质使其无限适应各种烹饪应用，从开胃菜到甜点。
 

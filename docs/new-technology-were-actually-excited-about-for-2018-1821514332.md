@@ -1,6 +1,6 @@
 # 2018 年我们真正感到兴奋的新技术
 
-> 原文:[https://gizmodo . com/new-technology-are-actually-excited-about-for-2018-1821514332](https://gizmodo.com/new-technology-were-actually-excited-about-for-2018-1821514332)
+> 原文：<https://gizmodo.com/new-technology-were-actually-excited-about-for-2018-1821514332>
 
 是的，2017 年最大的科技故事可能是关于社交媒体迫使我们重提旧的文化战争并质疑谁在指导我们的政治话语的方式。技术非但没有促进更好的交流、经济机会和休闲，反而似乎加剧了我们的差异，集中了财富，威胁了所有人的生计。但是也有一些好东西！
 

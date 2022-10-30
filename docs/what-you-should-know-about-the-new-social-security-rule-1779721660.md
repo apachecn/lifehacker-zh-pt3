@@ -1,6 +1,6 @@
 # 你应该知道的新社保规则
 
-> 原文:[https://life hacker . com/what-you-should-known-the-new-social-security-rule-1779721660](https://lifehacker.com/what-you-should-know-about-the-new-social-security-rule-1779721660)
+> 原文：<https://lifehacker.com/what-you-should-know-about-the-new-social-security-rule-1779721660>
 
 社会保障已经是一个热点问题，最近的变化让人们 [*真的*为之抓狂](http://boston.cbslocal.com/2016/03/02/is-social-security-doomed-5/) ，这让人们很难忘记愤怒，只是面对事实。以下是你应该知道的变化。
 

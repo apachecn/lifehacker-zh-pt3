@@ -1,6 +1,6 @@
 # 当你换手机运营商的时候会发生什么
 
-> 原文:[https://life hacker . com/what-to-expect-when-you-switch-cell-phone-carriers-1746259810](https://lifehacker.com/what-to-expect-when-you-switch-cell-phone-carriers-1746259810)
+> 原文：<https://lifehacker.com/what-to-expect-when-you-switch-cell-phone-carriers-1746259810>
 
 每个人都喜欢抱怨他们的手机运营商。可能他们客服很烂，费用太高，或者上不了 4G。但是我们很少真的费事去更换运营商，因为这看起来总是很痛苦。令人欣慰的是，转换的过程比以前简单多了(也便宜多了)。
 

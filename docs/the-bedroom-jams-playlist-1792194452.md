@@ -1,6 +1,6 @@
 # 卧室果酱播放列表
 
-> 原文:[https://lifehacker.com/the-bedroom-jams-playlist-1792194452](https://lifehacker.com/the-bedroom-jams-playlist-1792194452)
+> 原文：<https://lifehacker.com/the-bedroom-jams-playlist-1792194452>
 
 如果你想在这个即将到来的情人节赢得额外的时尚积分，合适的晚会配乐会有所帮助。你可以在别的地方找到一份和晚餐一起吃的播放列表。在这里，我们有一个接下来的。
 

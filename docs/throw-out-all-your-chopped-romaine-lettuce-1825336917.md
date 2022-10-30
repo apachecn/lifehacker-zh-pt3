@@ -1,6 +1,6 @@
 # 扔掉你所有的生菜[更新]
 
-> 原文:[https://life hacker . com/throw-out-all-your-chopped-romaine-莴苣-1825336917](https://lifehacker.com/throw-out-all-your-chopped-romaine-lettuce-1825336917)
+> 原文：<https://lifehacker.com/throw-out-all-your-chopped-romaine-lettuce-1825336917>
 
 疾病控制和预防中心正在敦促消费者、餐馆和零售商扔掉任何切碎的生菜 。这包括商店购买的切碎的生菜沙拉。来自 11 个不同州的至少 35 人感染了*大肠杆菌*，源头尚未确定。
 

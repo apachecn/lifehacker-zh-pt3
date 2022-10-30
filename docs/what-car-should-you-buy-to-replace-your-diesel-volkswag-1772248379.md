@@ -1,6 +1,6 @@
 # 你应该买什么车来替换你的柴油大众？
 
-> 原文:[https://jalopnik . com/what-car-should-you-buy-replace-your-diesel-volkswag-1772248379](https://jalopnik.com/what-car-should-you-buy-to-replace-your-diesel-volkswag-1772248379)
+> 原文：<https://jalopnik.com/what-car-should-you-buy-to-replace-your-diesel-volkswag-1772248379>
 
 随着大众汽车的柴油作弊丑闻在七个月后终于开始走向解决，该汽车制造商将回购约 50 万辆 TDI 柴油汽车，并对车主进行补偿。将会有很多有钱的人在另一次旅行中烧钱。如果你也是其中一员，如果你打算更换 TDI，这里有一些汽车可以考虑。
 

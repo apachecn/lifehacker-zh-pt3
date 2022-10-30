@@ -1,6 +1,6 @@
 # 你的旧乐高玩具可能有毒
 
-> 原文:[https://life hacker . com/your-old-Legos-may-be-toxic-1822608757](https://lifehacker.com/your-old-legos-might-be-toxic-1822608757)
+> 原文：<https://lifehacker.com/your-old-legos-might-be-toxic-1822608757>
 
 这是一个温暖人心的想法，拿出你小时候玩过的心爱的旧乐高积木，并把它传给你的孩子，这样他们就可以体验同样的魔力。但是找一套新的可能更安全。英国科学家 [测试了](http://pubs.acs.org/doi/abs/10.1021/acs.est.7b04685?journalCode=esthag) 200 件废旧塑料玩具中的 9 种有害元素，发现 [10%含有全部的微量元素](http://www.bbc.com/news/health-42832978) 。
 

@@ -1,6 +1,6 @@
 # 用一氧化二氮搅拌定制的利口酒
 
-> 原文:[https://life hacker . com/whip-up-a-bespoke-liquir-with a-nitride-oxide-1825862121](https://lifehacker.com/whip-up-a-bespoke-liqueur-with-nitrous-oxide-1825862121)
+> 原文：<https://lifehacker.com/whip-up-a-bespoke-liqueur-with-nitrous-oxide-1825862121>
 
 赠送自制的利口酒作为礼物是我最喜欢的聚会技巧。定制它们很有趣，制作成本也不高，而且——如果你有吸管的话——非常容易在最后一刻组装起来。
 

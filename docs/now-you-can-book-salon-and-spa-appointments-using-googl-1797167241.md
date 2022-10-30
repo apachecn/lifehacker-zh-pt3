@@ -1,6 +1,6 @@
 # 现在你可以使用谷歌地图预约沙龙和水疗
 
-> 原文:[https://life hacker . com/now-you-can-book-salon-and-spa-appointments-using-googl-1797167241](https://lifehacker.com/now-you-can-book-salon-and-spa-appointments-using-googl-1797167241)
+> 原文：<https://lifehacker.com/now-you-can-book-salon-and-spa-appointments-using-googl-1797167241>
 
 我经常出差，这意味着当我在发廊的时候，我倾向于跳过安排未来理发之类的事情，因为我不确定约会的时候我是否真的会在城里。这很有道理，但这也让我在为期两周的旅行的第一天照镜子时，意识到我迫切需要修剪一下。
 

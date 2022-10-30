@@ -1,6 +1,6 @@
 # 如果一个网站最近被黑客攻击，这个 Chrome 扩展会提醒你
 
-> 原文:[https://life hacker . com/this-chrome-extension-alerts-you-if-a-website-was-recen-1828201736](https://lifehacker.com/this-chrome-extension-alerts-you-if-a-website-was-recen-1828201736)
+> 原文：<https://lifehacker.com/this-chrome-extension-alerts-you-if-a-website-was-recen-1828201736>
 
 保持最新的安全信息是很困难的，除非你看到某个网站或服务泄露了你的用户名和密码的头条，否则你很可能不会去想网站黑客。
 

@@ -1,6 +1,6 @@
 # 当您转移余额时，您的信用评分会发生什么变化？
 
-> 原文:[https://life hacker . com/what-occurs-to-your ' s credit-score-when-happens-when-you-transfer-a-b-1795828033](https://lifehacker.com/what-happens-to-your-credit-score-when-you-transfer-a-b-1795828033)
+> 原文：<https://lifehacker.com/what-happens-to-your-credit-score-when-you-transfer-a-b-1795828033>
 
 如果你想更快地还清你的信用卡债务，你可以把你的余额转到一张低息(或者更好，零利息)信用卡上。这不是一个你想轻易做出的举动，但它可能是一个有用的黑客。令人惊讶的是，它实际上可能会提高你的信用评分。
 

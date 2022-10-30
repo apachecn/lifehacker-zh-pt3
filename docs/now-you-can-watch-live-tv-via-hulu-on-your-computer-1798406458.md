@@ -1,6 +1,6 @@
 # 现在你可以在电脑上通过 Hulu 看电视直播了
 
-> 原文:[https://life hacker . com/now-you-can-watch-live-TV-via-Hulu-on-your-computer-1798406458](https://lifehacker.com/now-you-can-watch-live-tv-via-hulu-on-your-computer-1798406458)
+> 原文：<https://lifehacker.com/now-you-can-watch-live-tv-via-hulu-on-your-computer-1798406458>
 
 大约 10 年前，我放弃了有线电视，目前使用 Hulu(现在还有网飞和 HBO)作为我了解电视最新消息的主要方式(可以说我仍然没有超级了解)。Hulu 新的直播电视选项一直对我很有吸引力，现在随着该公司将直播电视选项引入 MAC 和 PC 的消息，它变得更有吸引力了。
 

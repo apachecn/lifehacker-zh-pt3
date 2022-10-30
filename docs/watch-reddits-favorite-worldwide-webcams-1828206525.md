@@ -1,6 +1,6 @@
 # 观看 Reddit 最受欢迎的全球网络摄像头
 
-> 原文:[https://life hacker . com/watch-reddits-favorite-world wide-webcams-1828206525](https://lifehacker.com/watch-reddits-favorite-worldwide-webcams-1828206525)
+> 原文：<https://lifehacker.com/watch-reddits-favorite-worldwide-webcams-1828206525>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-LbOmoLAfV9o&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-LbOmoLAfV9o&start=0)
 

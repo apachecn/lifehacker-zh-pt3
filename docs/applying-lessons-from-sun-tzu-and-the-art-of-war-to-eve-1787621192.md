@@ -1,6 +1,6 @@
 # 将《孙子兵法》和《孙子兵法》应用到日常生活中
 
-> 原文:[https://life hacker . com/applying-lessons from-the-孙子兵法-eve-1787621192](https://lifehacker.com/applying-lessons-from-sun-tzu-and-the-art-of-war-to-eve-1787621192)
+> 原文：<https://lifehacker.com/applying-lessons-from-sun-tzu-and-the-art-of-war-to-eve-1787621192>
 
 孙子是中国古代传奇的军事家，著有《孙子兵法》。他是“软实力”的大师，也是“敏捷战争”之父。只要有可能，他宁愿不战而胜，或者至少先赢得最容易的战斗。
 

@@ -1,6 +1,6 @@
 # 为什么甜瓜是冷藏饮料的最佳冷冻水果
 
-> 原文:[https://life hacker . com/why-瓜是最好的冷冻水果-- 1827291658](https://lifehacker.com/why-melons-are-the-best-frozen-fruit-to-chill-your-drin-1827291658)
+> 原文：<https://lifehacker.com/why-melons-are-the-best-frozen-fruit-to-chill-your-drin-1827291658>
 
 在鸡尾酒中加入冷冻水果来保持凉爽是一种很常见的做法，但有些水果就是比其他水果更冷。对于水果方块，实际上可以让你的饮料在相当长的时间内保持凉爽，你应该选择甜瓜。
 

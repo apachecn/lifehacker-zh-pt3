@@ -1,6 +1,6 @@
 # 为情人节制作这种可食用的大麻按摩油
 
-> 原文:[https://life hacker . com/make-this-可食-大麻-按摩油-for-valen-1822782535](https://lifehacker.com/make-this-edible-cannabis-infused-massage-oil-for-valen-1822782535)
+> 原文：<https://lifehacker.com/make-this-edible-cannabis-infused-massage-oil-for-valen-1822782535>
 
 当局部使用时，大麻注入的油可以软化酸痛的肌肉并缓解疼痛，这意味着当被其他人使用时，他们会感觉非常好。虽然在没有摄入的情况下不会发生严重的中毒，但有些人会注意到轻微的嗡嗡声，特别是如果你在大面积的皮肤上使用大量的话。它们会给你一种温暖、放松、模糊的感觉，这种感觉和性爱——一种公认的情人节活动——很配。
 

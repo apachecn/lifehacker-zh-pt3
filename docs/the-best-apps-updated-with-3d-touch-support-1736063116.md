@@ -1,6 +1,6 @@
 # 支持 3D 触控的最佳 iOS 应用程序更新
 
-> 原文:[https://life hacker . com/the-best-apps-updated-with-3d-touch-support-1736063116](https://lifehacker.com/the-best-apps-updated-with-3d-touch-support-1736063116)
+> 原文：<https://lifehacker.com/the-best-apps-updated-with-3d-touch-support-1736063116>
 
 iPhone 6s 和 6s Plus 的 [配备了一个很酷的新“3D touch”功能](https://lifehacker.com/all-the-new-stuff-you-can-do-with-3d-touch-on-the-iphon-1733030865) ，允许你在屏幕上稍微用力一点，就可以获得第二组菜单。应用程序需要更新才能使用这个特性，所以让我们来看看目前为止最好的实现。
 

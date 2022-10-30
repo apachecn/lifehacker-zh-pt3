@@ -1,6 +1,6 @@
 # 你应该做(吃)更多的冰箱蛋糕
 
-> 原文:[https://life hacker . com/you-should-be-making-and-eating-more-ice box-cakes-1797032504](https://lifehacker.com/you-should-be-making-and-eating-more-icebox-cakes-1797032504)
+> 原文：<https://lifehacker.com/you-should-be-making-and-eating-more-icebox-cakes-1797032504>
 
 我一直喜欢丰盛的教堂晚餐。我不仅欣赏在这样的活动中提供的各种各样的选择，而且我总是对这些教堂的女士们如何用看似不起眼的原料制作美味的菜肴印象深刻。这些女人不会吹嘘一切是如何“自制”和“从零开始”，而是吹嘘她们的菜肴是如何简单、快速和便宜。
 

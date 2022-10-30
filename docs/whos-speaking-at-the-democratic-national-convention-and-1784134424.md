@@ -1,6 +1,6 @@
 # 谁将在民主党全国代表大会上发言以及如何观看直播
 
-> 原文:[https://life hacker . com/whos-speaking-at-the-democratic-national-conventi on-and-1784134424](https://lifehacker.com/whos-speaking-at-the-democratic-national-convention-and-1784134424)
+> 原文：<https://lifehacker.com/whos-speaking-at-the-democratic-national-convention-and-1784134424>
 
 上周四， [共和党人在俄亥俄州结束了他们的](https://lifehacker.com/whos-speaking-at-the-republican-national-convention-and-1783875610) 大会，现在是民主党人在费城登台的时候了。民主党全国代表大会将于 7 月 25 日至 28 日举行。下面是谁在发言，以及如何现场捕捉整个过程。
 

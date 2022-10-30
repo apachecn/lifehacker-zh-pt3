@@ -1,6 +1,6 @@
 # 2016 待办 App 对决:Wunderlist vs. Any.do
 
-> 原文:[https://life hacker . com/2016-to-do-app-摊牌-wunderlist-vs-any-do-1766931458](https://lifehacker.com/2016-to-do-app-showdown-wunderlist-vs-any-do-1766931458)
+> 原文：<https://lifehacker.com/2016-to-do-app-showdown-wunderlist-vs-any-do-1766931458>
 
 我们已经有一段时间没有收到一些我们最喜欢的待办事项应用程序的消息了。这意味着现在是重新审视这两款应用的最佳时机。两者都是最好的，跨平台的，自由的经理，但是让我们看看他们已经走了多远。
 

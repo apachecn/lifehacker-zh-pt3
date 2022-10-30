@@ -1,6 +1,6 @@
 # Windows 10 Creators 更新中所有最酷的新功能
 
-> 原文:[https://life hacker . com/all-the-cool-new-features-in-the-windows-10-creators-1794220142](https://lifehacker.com/all-the-coolest-new-features-in-the-windows-10-creators-1794220142)
+> 原文：<https://lifehacker.com/all-the-coolest-new-features-in-the-windows-10-creators-1794220142>
 
 微软正在尽最大努力为相对平淡的 Windows 升级体验吸引眼球。今天的发布——创作者更新——比通常的系统调整更有趣。对得起它欢快的名字吗？也许吧，如果你是 MS Paint 的粉丝。
 

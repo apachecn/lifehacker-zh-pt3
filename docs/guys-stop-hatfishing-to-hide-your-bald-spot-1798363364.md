@@ -1,6 +1,6 @@
 # 伙计们，不要再用“钓鱼帽”来掩饰你的秃头了
 
-> 原文:[https://life hacker . com/guys-stop-hat fishing-to-hide-your-bald-spot-1798363364](https://lifehacker.com/guys-stop-hatfishing-to-hide-your-bald-spot-1798363364)
+> 原文：<https://lifehacker.com/guys-stop-hatfishing-to-hide-your-bald-spot-1798363364>
 
 每个人都会做一些事情来让自己对自己的外表感觉更好，但是伙计们，用帽子来隐藏你的秃头是个坏主意。你骗不了任何人。
 

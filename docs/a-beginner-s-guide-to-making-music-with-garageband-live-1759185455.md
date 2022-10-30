@@ -1,6 +1,6 @@
 # 使用 GarageBand Live Loops 制作音乐的初学者指南
 
-> 原文:[https://life hacker . com/a-beginner-s-guide-to-making-music-with-garageband-live-1759185455](https://lifehacker.com/a-beginner-s-guide-to-making-music-with-garageband-live-1759185455)
+> 原文：<https://lifehacker.com/a-beginner-s-guide-to-making-music-with-garageband-live-1759185455>
 
 你曾梦想创作震耳欲聋的交响乐，但因为不想在设备和软件上花费数千美元而放弃了。GarageBand 的 Live Loops 让制作、录制和分享专业音质的即兴演奏变得容易，而无需花费大量金钱。以下是开始的方法。
 

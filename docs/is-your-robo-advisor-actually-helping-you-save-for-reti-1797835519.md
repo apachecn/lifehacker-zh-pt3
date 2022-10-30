@@ -1,6 +1,6 @@
 # 你的机器人顾问真的在帮你为退休存钱吗？
 
-> 原文:[https://life hacker . com/is-your-robo-advisor-actually-help-you-save-for-reti-1797835519](https://lifehacker.com/is-your-robo-advisor-actually-helping-you-save-for-reti-1797835519)
+> 原文：<https://lifehacker.com/is-your-robo-advisor-actually-helping-you-save-for-reti-1797835519>
 
 机器人顾问 [让投资*变得超级*简单](http://lifehacker.com/acorns-automatically-saves-and-invests-your-spare-chang-1627545527#_ga=2.2287664.1627059476.1502892637-1068070800.1502892637) 甚至更好，他们很有趣！然而，仅仅因为你投资和一个应用程序并不意味着你投资的方式是正确的。
 

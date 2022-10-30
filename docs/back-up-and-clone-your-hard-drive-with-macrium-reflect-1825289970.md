@@ -1,6 +1,6 @@
 # 使用 Macrium Reflect 备份和克隆您的硬盘
 
-> 原文:[https://life hacker . com/back-up-and-clone-your ' s hard-drive-with macrium-reflect-1825289970](https://lifehacker.com/back-up-and-clone-your-hard-drive-with-macrium-reflect-1825289970)
+> 原文：<https://lifehacker.com/back-up-and-clone-your-hard-drive-with-macrium-reflect-1825289970>
 
 我们的本周 Windows 应用可能不会经常使用——我们希望——但如果你正在升级系统，需要将所有东西从旧硬盘移动到新硬盘，它是一个很好的工具。
 

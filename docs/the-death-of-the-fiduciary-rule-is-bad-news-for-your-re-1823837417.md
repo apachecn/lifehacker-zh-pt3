@@ -1,6 +1,6 @@
 # 信托规则的死亡对你的退休来说是个坏消息
 
-> 原文:[https://life hacker . com/the-death-of-the-fiduciary-rule-for-your-re-1823837417](https://lifehacker.com/the-death-of-the-fiduciary-rule-is-bad-news-for-your-re-1823837417)
+> 原文：<https://lifehacker.com/the-death-of-the-fiduciary-rule-is-bad-news-for-your-re-1823837417>
 
 [信托规则离死亡](https://www.wsj.com/articles/fiduciary-rule-dealt-blow-by-circuit-court-ruling-1521164915) 更近了一步，这意味着你的退休计划者再次可以欺骗你了。
 

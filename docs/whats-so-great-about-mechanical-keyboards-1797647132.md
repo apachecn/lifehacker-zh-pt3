@@ -1,6 +1,6 @@
 # 机械键盘有什么了不起的
 
-> 原文:[https://kotaku . com/whats-so-great-about-mechanical-keyboards-1797647132](https://kotaku.com/whats-so-great-about-mechanical-keyboards-1797647132)
+> 原文：<https://kotaku.com/whats-so-great-about-mechanical-keyboards-1797647132>
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-YOT8iNbSgsA&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-YOT8iNbSgsA&start=0) 
 

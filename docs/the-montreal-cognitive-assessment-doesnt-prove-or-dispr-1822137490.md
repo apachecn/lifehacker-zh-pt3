@@ -1,6 +1,6 @@
 # 蒙特利尔认知评估并不能证明或反驳特朗普是否疯了
 
-> 原文:[https://life hacker . com/the-Montreal-cognitive-assessment-donts-prove-or-disp-1822137490](https://lifehacker.com/the-montreal-cognitive-assessment-doesnt-prove-or-dispr-1822137490)
+> 原文：<https://lifehacker.com/the-montreal-cognitive-assessment-doesnt-prove-or-dispr-1822137490>
 
 你是一个正在检查老年病人的医生吗？你想确定你会注意到你的病人是否患有轻度痴呆症吗？然后你可以问一些简单的问题，比如病人是否能认出一幅狮子的图画，是否能记住五个单词。然而，如果你想知道一位总统是否适合任职，你可能需要在这个问题上花费超过十分钟的时间。
 

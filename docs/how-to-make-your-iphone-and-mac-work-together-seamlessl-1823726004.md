@@ -1,6 +1,6 @@
 # 如何让你的 iPhone 和 Mac 无缝协同工作
 
-> 原文:[https://gizmodo . com/how-to-make-your-iphone-and-MAC-work-together-seamless l-1823726004](https://gizmodo.com/how-to-make-your-iphone-and-mac-work-together-seamlessl-1823726004)
+> 原文：<https://gizmodo.com/how-to-make-your-iphone-and-mac-work-together-seamlessl-1823726004>
 
 在考虑诸如或 [Windows](https://fieldguide.gizmodo.com/10-useful-windows-10-features-you-probably-never-use-bu-1820980875) 之类的干扰之前，苹果公司有一种明确的倾向，即让其设备彼此良好合作，多年来，iPhone 和 Mac 已经建立了很强的理解。你可能不知道它们有多少种不同的方式可以无缝协作——以下是你需要知道的。
 

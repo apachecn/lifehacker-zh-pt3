@@ -1,6 +1,6 @@
 # 保护苹果“有史以来最易碎的 iPhone”的最佳 iPhone X 保护套
 
-> 原文:[https://life hacker . com/the-best-iphone-x-cases-to-protect-apple-most-break ab-1820185119](https://lifehacker.com/the-best-iphone-x-cases-to-protect-apples-most-breakab-1820185119)
+> 原文：<https://lifehacker.com/the-best-iphone-x-cases-to-protect-apples-most-breakab-1820185119>
 
 [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 才上市几天，却已经被冠以“有史以来最易碎的 iPhone”来自 [SquareTrade](https://www.youtube.com/watch?v=T_OT1FQSWuU) 的一系列测试发现，iPhone X 的屏幕在从六英尺高处跌落后碎裂，也导致显示屏出现故障。
 

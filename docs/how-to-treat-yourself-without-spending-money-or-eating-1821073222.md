@@ -1,6 +1,6 @@
 # 如何不花钱不吃垃圾食品的对待自己
 
-> 原文:[https://life hacker . com/how-to-treat yourself-without-speed money-or-eating-1821073222](https://lifehacker.com/how-to-treat-yourself-without-spending-money-or-eating-1821073222)
+> 原文：<https://lifehacker.com/how-to-treat-yourself-without-spending-money-or-eating-1821073222>
 
 天越来越暗，既是因为现在是 12 月，也是因为现在是 2017 年。我们都需要一些积极的东西，善待自己，以补充这个世界似乎决心要消耗的储备。
 

@@ -1,6 +1,6 @@
 # 哪种不含酒精的啤酒比只喝水稍微好一点？
 
-> 原文:[https://the take out . com/which-non-alcohol-beer-is-marginally-better-just-1823528279](https://thetakeout.com/which-non-alcoholic-beer-is-marginally-better-than-just-1823528279)
+> 原文：<https://thetakeout.com/which-non-alcoholic-beer-is-marginally-better-than-just-1823528279>
 
 我没有预料到买不含酒精的啤酒会有多奇怪。周六早上 9:30，我开车来到我常去的超市，在收银机的传送带上装上了七瓶六瓶装的无酒精啤酒，外加一加仑牛奶(我们用完了)。收银员要我出示身份证，这是我没想到的。然后，值得称赞的是，当他问我想要纸还是塑料的时候，他很得体地收起了他的侧眼。
 

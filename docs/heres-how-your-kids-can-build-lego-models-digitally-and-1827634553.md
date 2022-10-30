@@ -1,6 +1,6 @@
 # 以下是你的孩子如何用数字技术构建乐高模型，然后购买他们自己的作品
 
-> 原文:[https://life hacker . com/heres-how-your-kids-can-build-Lego-models-digitally-and-1827634553](https://lifehacker.com/heres-how-your-kids-can-build-lego-models-digitally-and-1827634553)
+> 原文：<https://lifehacker.com/heres-how-your-kids-can-build-lego-models-digitally-and-1827634553>
 
 让你的孩子喜欢乐高的最好方法是给他们一盆乐高积木，并说，“来吧，尽情玩吧。”但最终，他们可能会想得更远，用比自己更多的砖块工作。这个免费的工具让他们用大约 *10，000 个不同的部件*建造虚拟乐高模型，然后如果他们想(是的，他们会想)购买砖块来组装他们在现实生活中的作品。
 

@@ -1,6 +1,6 @@
 # 这里是手动挡车卖的最好的地方
 
-> 原文:[https://jalopnik . com/heres-where-manual-transmission-cars-sell-best-1829641142](https://jalopnik.com/heres-where-manual-transmission-cars-sell-best-1829641142)
+> 原文：<https://jalopnik.com/heres-where-manual-transmission-cars-sell-best-1829641142>
 
 在 [CarMax](https://www.carmax.com/articles/stick-shift-index) 的人们收集了一些有趣的数据，这些数据是关于通过他们的二手经销商网络销售的手动变速器汽车的受欢迎程度。他们的发现无疑是发人深省的，因为他们全国销售额中只有 3.7%是手动转换的。有趣的是，CarMax 自己的数据也显示，在一些城市，手动变速器更受欢迎。也许是一小撮狂热分子。
 

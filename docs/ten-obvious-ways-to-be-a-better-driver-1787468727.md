@@ -1,6 +1,6 @@
 # 成为更好司机的十个明显方法
 
-> 原文:[https://jalopnik . com/ten-obvious-ways-to-be-a-better-driver-1787468727](https://jalopnik.com/ten-obvious-ways-to-be-a-better-driver-1787468727)
+> 原文：<https://jalopnik.com/ten-obvious-ways-to-be-a-better-driver-1787468727>
 
 你可能认为你是一个伟大的司机。研究表明，大多数人认为他们比其他人都是更好的司机。如果每个人都更好，比没有人真的更好。这里有 10 个技巧需要掌握，以确保你真的比一般人更优秀，你是特别的，特别的灵魂。
 

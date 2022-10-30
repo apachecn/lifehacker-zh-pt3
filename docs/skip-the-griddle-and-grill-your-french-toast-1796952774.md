@@ -1,6 +1,6 @@
 # 跳过煎锅，烤你的法式吐司
 
-> 原文:[https://life hacker . com/skip-the-griddle-and-grill-your-French-toast-1796952774](https://lifehacker.com/skip-the-griddle-and-grill-your-french-toast-1796952774)
+> 原文：<https://lifehacker.com/skip-the-griddle-and-grill-your-french-toast-1796952774>
 
 欢迎回到周日营养！上周我们 [保存了夏天的新鲜，品尝了美味的](https://skillet.lifehacker.com/savor-the-summer-with-mexican-street-corn-1796746553) 。今天，我们要用旧的，不新鲜的面包。
 

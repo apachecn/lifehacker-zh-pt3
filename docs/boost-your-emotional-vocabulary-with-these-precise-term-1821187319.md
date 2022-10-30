@@ -1,6 +1,6 @@
 # 用这些来自世界各地的精确词汇来充实你的情感词汇
 
-> 原文:[https://life hacker . com/boost-your-emotional-vocabulary-with this-precise-term-1821187319](https://lifehacker.com/boost-your-emotional-vocabulary-with-these-precise-term-1821187319)
+> 原文：<https://lifehacker.com/boost-your-emotional-vocabulary-with-these-precise-term-1821187319>
 
 除了悲伤、疯狂和高兴之外，还有更多词汇可以描述你的感受——事实上，有一整个世界的词汇可以以极其具体的方式描述你的情绪。
 

@@ -1,6 +1,6 @@
 # 如何在不被解雇的情况下与老板意见相左
 
-> 原文:[https://life hacker . com/how-to-disagree-with-your-boss-without-fire-1765538220](https://lifehacker.com/how-to-disagree-with-your-boss-without-getting-fired-1765538220)
+> 原文：<https://lifehacker.com/how-to-disagree-with-your-boss-without-getting-fired-1765538220>
 
 让我们面对现实吧——以一种建设性的、非居高临下的方式公开反对某人可能很难。但是，当那个人是 [你的老板](https://www.themuse.com/advice/the-2-things-you-need-to-do-before-you-openly-disagree-with-your-boss) 呢？事情突然变得更加棘手。
 

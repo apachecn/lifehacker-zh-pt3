@@ -1,6 +1,6 @@
 # 消防基础知识(财务独立和提前退休)
 
-> 原文:[https://life hacker . com/the-basics-of-fire-financial-independence-and-early-re-1820129768](https://lifehacker.com/the-basics-of-fire-financial-independence-and-early-re-1820129768)
+> 原文：<https://lifehacker.com/the-basics-of-fire-financial-independence-and-early-re-1820129768>
 
 火是有瞬间的，不难理解其中的诉求。财务独立？听起来很棒！提前退休？帮我报名。这是一个 [迅速获得动力](https://www.marketwatch.com/story/how-do-super-savers-know-when-they-can-quit-their-jobs-2019-10-09) 的运动。我们采访了四位消防爱好者，请他们分享这场运动的意义，以及如何实现财务独立/提前退休的难以实现的目标*。*
 

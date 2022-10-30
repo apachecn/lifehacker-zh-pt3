@@ -1,6 +1,6 @@
 # 干豆不用泡一夜
 
-> 原文:[https://life hacker . com/you-dont-to-soak-dry-beans-1818565255](https://lifehacker.com/you-dont-have-to-soak-dried-beans-overnight-1818565255)
+> 原文：<https://lifehacker.com/you-dont-have-to-soak-dried-beans-overnight-1818565255>
 
 干豆是一种真正多功能的厨房主食，每个人都应该在他们的餐具室。它们不仅可以无限期保存，而且实际上非常容易烹饪和定制，以创造出超级美味、廉价的饭菜。
 

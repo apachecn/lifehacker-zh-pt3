@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的 Windows 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-windows-downloads-and-post-of-2016-1789784687](https://lifehacker.com/most-popular-windows-downloads-and-posts-of-2016-1789784687)
+> 原文：<https://lifehacker.com/most-popular-windows-downloads-and-posts-of-2016-1789784687>
 
 今年，Windows 10 以名副其实的周年更新庆祝了它的第一年。免费升级也终于用完了。以下是我们 2016 年最大的 Windows 帖子。
 

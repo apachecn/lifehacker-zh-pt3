@@ -1,6 +1,6 @@
 # 分享你的待办事项清单如何帮助你完成更多工作
 
-> 原文:[https://life hacker . com/how-sharing-your-to-do-list-can-help-you-get-more-done-1791120934](https://lifehacker.com/how-sharing-your-to-do-list-can-help-you-get-more-done-1791120934)
+> 原文：<https://lifehacker.com/how-sharing-your-to-do-list-can-help-you-get-more-done-1791120934>
 
 随着越来越多的人远程工作，越来越多的数字任务管理器正在提供协作功能，如共享特定任务、评论任务以及在团队中创建共享的待办事项列表。
 

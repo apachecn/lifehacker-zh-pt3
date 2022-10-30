@@ -1,6 +1,6 @@
 # 用餐前和餐后的饮料来刺激你的食欲和稳定你的胃
 
-> 原文:[https://life hacker . com/prime-your ' s category and-setting your ' s bottom with-pre-a-1747464998](https://lifehacker.com/prime-your-appetite-and-settle-your-stomach-with-pre-a-1747464998)
+> 原文：<https://lifehacker.com/prime-your-appetite-and-settle-your-stomach-with-pre-a-1747464998>
 
 许多人担心吃饭时喝什么，但我坚信人们应该同样注意饭前饭后喝什么。完美的 [开胃菜和](https://en.wikipedia.org/wiki/Ap%C3%A9ritif_and_digestif) (分别表示“打开”和“消化”)将帮助您确保您的用餐体验在最高的音符中开始和结束。
 

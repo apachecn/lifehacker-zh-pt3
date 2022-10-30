@@ -1,6 +1,6 @@
 # 这就是为什么你不应该对加工肉类致癌感到恐慌
 
-> 原文:[https://gizmodo . com/heres-why-you-should-panic-over-processed-meats-causi-1738704617](https://gizmodo.com/heres-why-you-shouldnt-panic-over-processed-meats-causi-1738704617)
+> 原文：<https://gizmodo.com/heres-why-you-shouldnt-panic-over-processed-meats-causi-1738704617>
 
 一个国际科学家小组的惊人报告表明，像热狗和培根这样的加工肉类是癌症的明确原因，而红肉是一个可能的原因。以下是这对你的健康意味着什么，以及为什么你没有理由恐慌。
 

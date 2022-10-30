@@ -1,6 +1,6 @@
 # 如何取消孩子的日程安排
 
-> 原文:[https://life hacker . com/how-to-un-schedule-your-child-1829004458](https://lifehacker.com/how-to-unschedule-your-child-1829004458)
+> 原文：<https://lifehacker.com/how-to-unschedule-your-child-1829004458>
 
 事情发展到这一步:医生们现在被告知要开游戏处方。美国儿科学会在 [一份政策声明](http://pediatrics.aappublications.org/content/early/2018/08/16/peds.2018-2058) 中详述了事情的紧迫性。这个国家存在游戏赤字，我们都知道，不是吗？在关于育儿的文章中，似乎没有哪个品种比那个裹着泡泡的孩子被剖析得更多了，他穿梭于普通话、击剑、有机奶酪制作课程之间，直到就寝。我们喜欢回忆那些我们可以骑着自行车和邻居的孩子(我们的父母很少花时间去了解他们的名字)一起漫步几个小时的日子，并渴望我们的孩子有这样的经历。我们了解到，玩耍 [增强大脑结构](http://pediatrics.aappublications.org/content/early/2018/08/16/peds.2018-2058) ，帮助孩子 [练习移情](https://www.mother.ly/child/how-children-thrive-when-we-give-them-unscheduled-free-time)[让他们更有创造力和创新力](https://www.mirror.co.uk/news/uk-news/lack-unscheduled-play-time-kids-12935996) 。
 

@@ -1,6 +1,6 @@
 # 用这些非语言暗示让某人闭嘴
 
-> 原文:[https://life hacker . com/shut-someone-up-with-these-non-like-cues-1823994442](https://lifehacker.com/shut-someone-up-with-these-nonverbal-cues-1823994442)
+> 原文：<https://lifehacker.com/shut-someone-up-with-these-nonverbal-cues-1823994442>
 
 有些人喜欢听自己滔滔不绝地讲话，以至于你根本插不上嘴。嗯，部分问题在于你在等他们把海螺递给你——而他们不会这么做。不过，你不必直截了当地打断他们；你可以简单地使用你的肢体语言。
 

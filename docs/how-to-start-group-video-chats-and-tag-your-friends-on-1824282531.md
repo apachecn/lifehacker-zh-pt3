@@ -1,6 +1,6 @@
 # 如何开始群组视频聊天并在 Snapchat 上标记您的朋友
 
-> 原文:[https://life hacker . com/how-to-start-group-video-chats-and-tag-on-1824282531](https://lifehacker.com/how-to-start-group-video-chats-and-tag-your-friends-on-1824282531)
+> 原文：<https://lifehacker.com/how-to-start-group-video-chats-and-tag-your-friends-on-1824282531>
 
 [Snapchat](https://lifehacker.com/its-time-to-stop-using-snapchat-unless-youre-a-teen-1821919274) 本周推出两个 [新功能](https://www.snap.com/en-US/news/post/introducing-group-video-chat/) :群组视频聊天和在 [故事](https://lifehacker.com/how-to-share-snapchat-stories-outside-the-app-1822338322) 中标记好友的能力。一旦你的设备获得了应用程序更新，你需要知道如何使用它们。
 

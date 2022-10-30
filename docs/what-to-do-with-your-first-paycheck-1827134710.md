@@ -1,6 +1,6 @@
 # 如何处理你的第一份薪水
 
-> 原文:[https://life hacker . com/1827134710](https://lifehacker.com/what-to-do-with-your-first-paycheck-1827134710)
+> 原文：<https://lifehacker.com/what-to-do-with-your-first-paycheck-1827134710>
 
 第一份工作拿到第一份薪水令人兴奋。毕竟，这是你努力得来的，是你应得的。虽然你可能想做的第一件事是犒劳自己，但你可能想更聪明地对待自己的努力。
 

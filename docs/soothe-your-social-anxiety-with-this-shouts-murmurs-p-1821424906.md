@@ -1,6 +1,6 @@
 # 用这首《呼喊与低语》舒缓你的社交焦虑
 
-> 原文:[https://life hacker . com/安抚你的社交焦虑](https://lifehacker.com/soothe-your-social-anxiety-with-this-shouts-murmurs-p-1821424906)
+> 原文：<https://lifehacker.com/soothe-your-social-anxiety-with-this-shouts-murmurs-p-1821424906>
 
 那些从来没有在商店里花三分钟买过东西的人:走开。
 

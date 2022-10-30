@@ -1,6 +1,6 @@
 # 棱角分明的蓝色工作空间
 
-> 原文:[https://life hacker . com/the-angular-blue-workspace-1789112821](https://lifehacker.com/the-angular-blue-workspace-1789112821)
+> 原文：<https://lifehacker.com/the-angular-blue-workspace-1789112821>
 
 Redditor [Tech__](https://www.reddit.com/user/Tech__) 刚刚建立了一个新的工作区，它很华丽，蓝色，幕后通过谷歌光纤连接。我们很确定他们也在谷歌工作。我们再来看一些照片。
 

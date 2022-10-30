@@ -1,6 +1,6 @@
 # 婚礼上不该放的烦人的歌
 
-> 原文:[https://life hacker . com/the-noise-songs-you-should-play-in-your-wedding-1797546427](https://lifehacker.com/the-annoying-songs-you-shouldnt-play-at-your-wedding-1797546427)
+> 原文：<https://lifehacker.com/the-annoying-songs-you-shouldnt-play-at-your-wedding-1797546427>
 
 音乐在婚礼上是必不可少的，尤其是在婚宴上。但是有些歌曲实在是太老套了——或者太刺耳了——人们已经听腻了。这些是那些歌。
 

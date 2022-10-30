@@ -1,6 +1,6 @@
 # 如何制作尝起来像棕色黄油的调味汁
 
-> 原文:[https://life hacker . com/how-to-make-a-vinagirect-that-taste-like-browned-butt-1825537116](https://lifehacker.com/how-to-make-a-vinaigrette-that-tastes-like-browned-butt-1825537116)
+> 原文：<https://lifehacker.com/how-to-make-a-vinaigrette-that-tastes-like-browned-butt-1825537116>
 
 棕色黄油经常被用来让富人更富有，让颓废者更放纵，但它真正的力量在于给一大堆新鲜、充满活力的农产品带来一点深度。虽然我不会责怪你在沙拉上倒一堆融化的棕色黄油，但这种调味汁采取了一种更平衡的(或者有人会说“社会可接受的”)方法。
 

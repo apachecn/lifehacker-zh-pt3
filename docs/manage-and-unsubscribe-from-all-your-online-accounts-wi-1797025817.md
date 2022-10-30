@@ -1,6 +1,6 @@
 # 使用此应用程序管理和取消订阅您的所有在线帐户
 
-> 原文:[https://life hacker . com/manage-and-unsubscribe-from-all-your-online-accounts-wi-1797025817](https://lifehacker.com/manage-and-unsubscribe-from-all-your-online-accounts-wi-1797025817)
+> 原文：<https://lifehacker.com/manage-and-unsubscribe-from-all-your-online-accounts-wi-1797025817>
 
 注册一个在线账户是我们经常做的事情，以至于我们忘记了我们订阅的所有网站。你只会记得他们给你发了一封促销邮件。我知道我总是这样。
 

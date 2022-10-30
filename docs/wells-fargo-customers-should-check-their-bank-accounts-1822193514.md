@@ -1,6 +1,6 @@
 # 富国银行的客户应该检查他们的银行账户
 
-> 原文:[https://life hacker . com/wells-Fargo-customers-should-check-their-bank-accounts-1822193514](https://lifehacker.com/wells-fargo-customers-should-check-their-bank-accounts-1822193514)
+> 原文：<https://lifehacker.com/wells-fargo-customers-should-check-their-bank-accounts-1822193514>
 
 富国银行的在线账单支付系统周三晚上出现了“小故障”，导致一些支付被处理两次， [公司称](https://twitter.com/WellsFargo/status/953819605587415041) 。据报道，问题是 [在周四早上修复了](https://twitter.com/WellsFargo/status/953983244512489474) 。
 

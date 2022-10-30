@@ -1,6 +1,6 @@
 # 中国外卖里那个棕色的酱是什么？
 
-> 原文:[https://the take out . com/what-s-that-brown-sauce-in-China-take out-1798252300](https://thetakeout.com/what-s-that-brown-sauce-in-chinese-takeout-1798252300)
+> 原文：<https://thetakeout.com/what-s-that-brown-sauce-in-chinese-takeout-1798252300>
 
 为什么你尝试的家常菜和外卖的味道总是不一样？先说中餐馆做饭用的商用燃气灶，温度远高于家用燃烧器，大约是 [10 倍](http://gizmodo.com/using-the-wokmon-to-achieve-expert-level-chinese-food-a-1611989362) 的热量输出。很可能你也没有在你的菜肴中添加味精，这意味着你的中国菜不会有它特有的味道，尽管它 [不会让人头疼](http://luckypeach.com/on-msg-and-chinese-restaurant-syndrome/) 。
 

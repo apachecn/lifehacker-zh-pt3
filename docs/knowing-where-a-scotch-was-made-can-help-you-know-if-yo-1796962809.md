@@ -1,6 +1,6 @@
 # 了解苏格兰威士忌的产地可以帮助你知道你是否会喜欢它
 
-> 原文:[https://life hacker . com/known-where-a-scotch-is-made-can-help-you-know-if-yo-1796962809](https://lifehacker.com/knowing-where-a-scotch-was-made-can-help-you-know-if-yo-1796962809)
+> 原文：<https://lifehacker.com/knowing-where-a-scotch-was-made-can-help-you-know-if-yo-1796962809>
 
 多年来，我一直认为自己讨厌苏格兰威士忌。后来有一天，有人劝我一起品尝大量的单麦芽威士忌，我意识到我并不讨厌苏格兰威士忌，我只是不喜欢苏格兰某个特定地区的苏格兰威士忌(因此混合酒大量使用该地区的苏格兰威士忌)。
 

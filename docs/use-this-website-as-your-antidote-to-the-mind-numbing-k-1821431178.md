@@ -1,6 +1,6 @@
 # 使用这个网站作为你对互联网上令人麻木的儿童视频的解毒剂
 
-> 原文:[https://life hacker . com/use-this-website-as-your-dude-the-mind-numbing-k-1821431178](https://lifehacker.com/use-this-website-as-your-antidote-to-the-mind-numbing-k-1821431178)
+> 原文：<https://lifehacker.com/use-this-website-as-your-antidote-to-the-mind-numbing-k-1821431178>
 
 孩子们看的东西可能是令人麻木的无聊——我们*得到了*它，多拉的地图，你是一张地图。设计总监兼视频制作人 Rion Nakaya 在 2011 年看到针对她三岁孩子的视频内容时，也有同样的抱怨。她突然想到:谁说孩子们只需要看‘儿童节目’了？
 

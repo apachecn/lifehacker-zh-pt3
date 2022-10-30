@@ -1,6 +1,6 @@
 # 2017 年 7 月所有进出网飞的最佳电影
 
-> 原文:[https://life hacker . com/all-the-best-movies-coming-and-leaving-网飞-in-ju-1796305947](https://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-ju-1796305947)
+> 原文：<https://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-ju-1796305947>
 
 太阳出来了，枪出来了！虽然可能是时候给你的电视一个急需的暑假了，但更热的气温意味着你更有可能浪漫地升温，网飞在这里帮助你放松一些这个世界的夏季附加节目(以及一些不幸的节目离开)。
 

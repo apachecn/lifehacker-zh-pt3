@@ -1,6 +1,6 @@
 # 如何使用 Yubikey 保护您的 Google 帐户
 
-> 原文:[https://life hacker . com/how-to-secure-your-Google-account with-yubi key-1821333343](https://lifehacker.com/how-to-secure-your-google-account-with-yubikey-1821333343)
+> 原文：<https://lifehacker.com/how-to-secure-your-google-account-with-yubikey-1821333343>
 
 如果你还没有给你的谷歌账户添加第二层安全 的 [，你会比你意识到的更加脆弱。如果你使用短信来保护你的账户，你可能会认为你是安全的，但与](https://lifehacker.com/plug-the-security-holes-in-your-two-factor-authenticati-1798403323) [替代验证选项](https://lifehacker.com/which-form-of-two-factor-authentication-should-i-use-1784769336) 相比，即使这样也有其自身的安全问题。你可以使用更安全的认证应用程序，但这需要你在每次登录新设备或应用程序时输入多位数密码。不要只是为了发送一些聊天信息而经常复制和粘贴号码，而是考虑使用一个 [Yubikey](https://lifehacker.com/gifts-for-the-privacy-loving-person-in-your-life-1821227116) 。这是一个微型 USB 驱动器，作为多种服务和操作系统的双因素认证工具。现在，让我们先锁定你的谷歌账户。
 

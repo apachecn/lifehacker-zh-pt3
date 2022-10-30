@@ -1,6 +1,6 @@
 # 一个陌生人盗用了我的身份并给我报税
 
-> 原文:[https://life hacker . com/a-陌生人窃取了我的身份并申报了我的税-1765235305](https://lifehacker.com/a-stranger-stole-my-identity-and-filed-my-taxes-1765235305)
+> 原文：<https://lifehacker.com/a-stranger-stole-my-identity-and-filed-my-taxes-1765235305>
 
 几周前，我收到国税局的一封信，信中说我的税已经申报了两次，这很令人惊讶，因为我甚至不喜欢申报一次。我的身份被盗，我找到了最令人沮丧的方法。事情是这样发生的，我是如何恢复的。
 

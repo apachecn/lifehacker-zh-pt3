@@ -1,6 +1,6 @@
 # 有人做过这些超级短的锻炼吗？
 
-> 原文:[https://life hacker . com/do-anywhere-even-do-these-super-short-workouts-1794495712](https://lifehacker.com/does-anybody-even-do-these-super-short-workouts-1794495712)
+> 原文：<https://lifehacker.com/does-anybody-even-do-these-super-short-workouts-1794495712>
 
 纽约时报有一个新的超级快速锻炼程序，你可以在任何地方做，即使你今天不能去健身房。我试过了，但是...嘿，等等，难道只有我在做这些吗？
 

@@ -1,6 +1,6 @@
 # 用这个计算器算出什么时候种植你的花园
 
-> 原文:[https://life hacker . com/know-when-to-plant-your garden with this-calculator-1795259232](https://lifehacker.com/know-when-to-plant-your-garden-with-this-calculator-1795259232)
+> 原文：<https://lifehacker.com/know-when-to-plant-your-garden-with-this-calculator-1795259232>
 
 你怎么知道什么时候种植西红柿和其他温暖气候作物？对我们这些生活在温带气候的人来说，我们在母亲节前后播种。但是取决于你在哪里，你实际上可以在几周前开始——或者你可能仍然需要等待一段时间。以下是如何辨别。
 

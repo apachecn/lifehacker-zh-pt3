@@ -1,6 +1,6 @@
 # 如何让亚马逊停止显示你的浏览历史
 
-> 原文:[https://life hacker . com/how-to-get-Amazon-to-stop-tracking-your-shopping-habits-1819750091](https://lifehacker.com/how-to-get-amazon-to-stop-tracking-your-shopping-habits-1819750091)
+> 原文：<https://lifehacker.com/how-to-get-amazon-to-stop-tracking-your-shopping-habits-1819750091>
 
 无论你什么时候去亚马逊，网站都会给你展示一些你最后看过的商品。这个想法是，如果你再次看到那件衬衫、煎锅或史诗小说，你可能会决定咬紧牙关去买一件。理论上这是一个不错的想法，但是当你看到的最后一件物品恰好是你正在为心爱的人研究的礼物或者你不想向全世界公布的其他东西时，跟踪功能可能会有点问题。
 

@@ -1,6 +1,6 @@
 # 今秋旅游的最佳(也是最便宜)地点
 
-> 原文:[https://life hacker . com/the-best-and-cheap-places-to-travel-this-fall-1828874257](https://lifehacker.com/the-best-and-cheapest-places-to-travel-this-fall-1828874257)
+> 原文：<https://lifehacker.com/the-best-and-cheapest-places-to-travel-this-fall-1828874257>
 
 我们都知道在“淡季”旅行通常比在盛夏旅行便宜。“肩季”旅游旺季和淡季之间的这段时间可以两全其美。夏天(或者现在是秋天，视情况而定)天气不错，酒店和航班费用也在下降。
 

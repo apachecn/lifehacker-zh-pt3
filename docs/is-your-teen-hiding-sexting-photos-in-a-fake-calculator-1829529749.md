@@ -1,6 +1,6 @@
 # 你的孩子是否在一个假的计算器应用程序中隐藏了性短信照片？
 
-> 原文:[https://life hacker . com/is-your-teen-hiding-sexting-photos-in-a-fake-calculator-1829529749](https://lifehacker.com/is-your-teen-hiding-sexting-photos-in-a-fake-calculator-1829529749)
+> 原文：<https://lifehacker.com/is-your-teen-hiding-sexting-photos-in-a-fake-calculator-1829529749>
 
 青少年的爸爸妈妈们:你的孩子最近对加法和乘法有没有表现出额外的热情？很抱歉告诉你，他整晚都在笑的计算器应用程序可能并不像它看起来那样可靠。可能是个数码保险箱，藏着他不想让你看到的照片。这里有一些方法可以找到答案。
 

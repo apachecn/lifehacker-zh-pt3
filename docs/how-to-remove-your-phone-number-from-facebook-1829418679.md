@@ -1,6 +1,6 @@
 # 如何从脸书删除您的电话号码
 
-> 原文:[https://life hacker . com/how-to-remove-your-phone-number-from-Facebook-1829418679](https://lifehacker.com/how-to-remove-your-phone-number-from-facebook-1829418679)
+> 原文：<https://lifehacker.com/how-to-remove-your-phone-number-from-facebook-1829418679>
 
 本周 [一篇 *TechCrunch* 文章](https://techcrunch.com/2018/09/27/yes-facebook-is-using-your-2fa-phone-number-to-target-you-with-ads/) 披露，脸书正在使用用户提供的电话号码作为双重认证的安全措施，以此向这些用户发送定向广告。
 

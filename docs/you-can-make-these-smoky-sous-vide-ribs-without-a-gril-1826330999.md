@@ -1,6 +1,6 @@
 # 不用烤架或熏制器制作这些腌排骨
 
-> 原文:[https://life hacker . com/you-can-make-these-smoky-sous-vide-ribs-without-a-gril-1826330999](https://lifehacker.com/you-can-make-these-smoky-sous-vide-ribs-without-a-gril-1826330999)
+> 原文：<https://lifehacker.com/you-can-make-these-smoky-sous-vide-ribs-without-a-gril-1826330999>
 
 作为一个住在小公寓里的人，我没有机会做很多烧烤、吸烟或其他户外烹饪。这让我很难过，因为我确实喜欢熏肉和烤肉。(烤蔬菜也很棒，但我们现在不讨论这些。)幸运的是，我刚好有一个 sous vide 装置！—可以帮助你接近低烟和慢烟的口感和味道。
 

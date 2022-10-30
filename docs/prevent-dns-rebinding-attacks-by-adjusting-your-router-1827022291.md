@@ -1,6 +1,6 @@
 # 通过调整路由器来防止 DNS 重新绑定攻击
 
-> 原文:[https://life hacker . com/prevent-DNS-rebinding-attack-by-adjusting-your-router-1827022291](https://lifehacker.com/prevent-dns-rebinding-attacks-by-adjusting-your-router-1827022291)
+> 原文：<https://lifehacker.com/prevent-dns-rebinding-attacks-by-adjusting-your-router-1827022291>
 
 程序员 [艺术家](https://brannondorsey.com/) ) Brannon Dorsey 写了一篇关于前几天 [DNS 重新绑定](https://medium.com/@brannondorsey/attacking-private-networks-from-the-internet-with-dns-rebinding-ea7098a2d325) 的危险的有趣且相当技术性的文章。如果你对网络浏览器如何阻止一个网站(比如说一个诈骗网站)向另一个网站(你的银行)发送请求、清空你的账户或操纵你的凭证(没有网站的明确许可)有一丁点兴趣，这本书就值得一读。
 

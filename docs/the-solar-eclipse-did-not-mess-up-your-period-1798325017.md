@@ -1,6 +1,6 @@
 # 日食没有打乱你的月经
 
-> 原文:[https://life hacker . com/the-solar-eclipse-do-not-miss-up your period-1798325017](https://lifehacker.com/the-solar-eclipse-did-not-mess-up-your-period-1798325017)
+> 原文：<https://lifehacker.com/the-solar-eclipse-did-not-mess-up-your-period-1798325017>
 
 最近的日食是一次强有力的经历。无论你是跋涉数百英里去看日全食，还是在午休时出去和朋友分享日全食眼镜，你都经历了一个美妙的天文和社交时刻。你现在可能会感觉到与太阳和月亮在智力上或精神上有很强的联系。但是这种联系并没有到达你的子宫。
 

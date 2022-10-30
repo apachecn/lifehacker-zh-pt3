@@ -1,6 +1,6 @@
 # 在进行 OpenTable 预订时，如何请求特定的表
 
-> 原文:[https://life hacker . com/how-to-make-a-table-request-when-making-a-opentable-re-1828447699](https://lifehacker.com/how-to-make-a-table-request-when-making-an-opentable-re-1828447699)
+> 原文：<https://lifehacker.com/how-to-make-a-table-request-when-making-an-opentable-re-1828447699>
 
 如果你喜欢出去吃饭，尤其是在大城市，那么 OpenTable 可以很快成为你最好的朋友。该应用程序可以帮助你快速、轻松地在热门餐厅预订座位，而无需拿起手机(也不可避免地永远处于等待状态)。
 

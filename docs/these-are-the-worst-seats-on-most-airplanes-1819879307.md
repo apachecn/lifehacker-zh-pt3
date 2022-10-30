@@ -1,6 +1,6 @@
 # 这些是飞机上最差的座位
 
-> 原文:[https://life hacker . com/这些是飞机上最差的座位-1819879307](https://lifehacker.com/these-are-the-worst-seats-on-most-airplanes-1819879307)
+> 原文：<https://lifehacker.com/these-are-the-worst-seats-on-most-airplanes-1819879307>
 
 随着假期旅行季节的临近，美国航空公司越来越多地试图从乘客身上榨取每一分钱(以及飞机上的每一寸空间)，肯定有办法让飞行至少在某种程度上变得更容易忍受。如果你负担不起商务舱升级(因为真的，谁能负担得起)，并且对高速铁路系统不抱希望，你可以——也应该——充分利用留给你的一点控制权:你对座位的选择。
 

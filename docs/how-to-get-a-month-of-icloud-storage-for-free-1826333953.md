@@ -1,6 +1,6 @@
 # 如何免费获得一个月的 iCloud 存储空间
 
-> 原文:[https://life hacker . com/how-to-get-a-month-of-I cloud-storage-free-1826333953](https://lifehacker.com/how-to-get-a-month-of-icloud-storage-for-free-1826333953)
+> 原文：<https://lifehacker.com/how-to-get-a-month-of-icloud-storage-for-free-1826333953>
 
 尽管苹果永远不会提供超过 5GB 的免费存储空间，但该公司似乎向那些对其 2012 年时代的存储空间限制感到沮丧的用户扔了一点骨头:免费一个月。
 

@@ -1,6 +1,6 @@
 # 让你的新年决心变小
 
-> 原文:[https://life hacker . com/make-your-new-years-resolution-small-1821744548](https://lifehacker.com/make-your-new-years-resolution-smaller-1821744548)
+> 原文：<https://lifehacker.com/make-your-new-years-resolution-smaller-1821744548>
 
 新年决心通常围绕着一个远大的目标:我要每天健身，我要写一本书，我永远不吃垃圾食品。但是我们大多数人都无法实现自己的决心 。一个问题是我们把目标定得太高了。如果你想达到一个大目标，首先你必须设定一个小目标。
 

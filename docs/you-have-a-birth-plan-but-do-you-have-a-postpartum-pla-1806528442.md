@@ -1,6 +1,6 @@
 # 你有生育计划，但你有产后计划吗？
 
-> 原文:[https://life hacker . com/you-have-a-birth-plan-but-do-you-have-a-产后计划-pla-1806528442](https://lifehacker.com/you-have-a-birth-plan-but-do-you-have-a-postpartum-pla-1806528442)
+> 原文：<https://lifehacker.com/you-have-a-birth-plan-but-do-you-have-a-postpartum-pla-1806528442>
 
 可以理解的是，孕妇将她们的计划集中在即将到来的分娩上:无论是剖腹产还是阴道分娩，在家还是在医院，流畅的爵士乐还是完全尖叫的狗屎秀。你甚至可能已经制定了一个详细的“出生计划”，包括止痛药的说明、照明偏好，以及视频、照片和切断脐带的计划。
 

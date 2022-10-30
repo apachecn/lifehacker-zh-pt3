@@ -1,6 +1,6 @@
 # 如何在被困在地下的地铁里保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-on-a-subway-that-stuck-underground-1798349498](https://lifehacker.com/how-to-stay-safe-on-a-subway-thats-stuck-underground-1798349498)
+> 原文：<https://lifehacker.com/how-to-stay-safe-on-a-subway-thats-stuck-underground-1798349498>
 
 今年夏天纽约市持续的地铁危机已经演变成一种烈性鸡尾酒，在炎热、幽闭、地下的噩梦般的地铁里，混合着通勤者最恐惧的事情。延迟的 [在增加](http://gothamist.com/2017/07/09/report_majority_of_nyers_have_been.php) ，可追溯到 20 世纪 30 年代的破旧设备急需更换，而实际的 [PTSD 可能正在设定在](http://nypost.com/2017/06/11/your-awful-morning-commute-could-be-giving-you-ptsd/) 。你和其他恐慌的人一起被困在隧道里的可能性只会越来越大。(如果你需要确信事情很糟糕，我们会把你带到现在已经臭名昭著的六月视频中，视频显示绝望的地铁受害者从一辆卡住的过热的车里爬出来。)
 

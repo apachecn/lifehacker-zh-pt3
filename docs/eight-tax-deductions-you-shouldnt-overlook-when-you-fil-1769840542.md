@@ -1,6 +1,6 @@
 # 今年申报时你不应忽视的八项税收减免
 
-> 原文:[https://life hacker . com/eight-tax-deductions-you-should-overlap-when-you-fil-1769840542](https://lifehacker.com/eight-tax-deductions-you-shouldnt-overlook-when-you-fil-1769840542)
+> 原文：<https://lifehacker.com/eight-tax-deductions-you-shouldnt-overlook-when-you-fil-1769840542>
 
 充分利用你有资格享受的所有税收减免，因为税收是大多数人最大的支出 。不要求扣除只是把钱留在桌子上。在你申请之前，确保你不要忽视这些可以为你节省数百，如果不是数千美元的信贷和扣除。
 

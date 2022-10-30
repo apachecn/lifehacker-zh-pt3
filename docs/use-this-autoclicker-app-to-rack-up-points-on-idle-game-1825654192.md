@@ -1,6 +1,6 @@
 # 使用此 AutoClicker 应用程序在闲置游戏中累积点数
 
-> 原文:[https://life hacker . com/use-this-auto clicker-app-to-rack-up-points-on-idle-game-1825654192](https://lifehacker.com/use-this-autoclicker-app-to-rack-up-points-on-idle-game-1825654192)
+> 原文：<https://lifehacker.com/use-this-autoclicker-app-to-rack-up-points-on-idle-game-1825654192>
 
 Windows:无论你的毒药—[【被遗忘国度的闲散冠军】](https://store.steampowered.com/app/627690/Idle_Champions_of_the_Forgotten_Realms/) ，还是 [小猫游戏](http://bloodrizer.ru/games/kittens/http://bloodrizer.ru/games/kittens/)——几乎不需要你投入就能玩的游戏，都有一些怪异和有趣的地方。
 

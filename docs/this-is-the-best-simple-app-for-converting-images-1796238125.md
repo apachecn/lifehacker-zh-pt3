@@ -1,6 +1,6 @@
 # 这是最好的转换图像的简单应用程序
 
-> 原文:[https://life hacker . com/this-is-the-best-simple-app-for-converting-images-1796238125](https://lifehacker.com/this-is-the-best-simple-app-for-converting-images-1796238125)
+> 原文：<https://lifehacker.com/this-is-the-best-simple-app-for-converting-images-1796238125>
 
 如果你曾经需要上传一两张图片，或者处理一份扫描文件，你应该知道伴随转换而来的所有令人头疼的问题，以及对不同文件类型的网站有多挑剔。
 

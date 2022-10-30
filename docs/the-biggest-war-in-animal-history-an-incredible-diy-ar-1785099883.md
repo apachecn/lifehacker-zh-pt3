@@ -1,6 +1,6 @@
 # 动物历史上最大的战争，一个难以置信的 DIY 拱廊橱柜，以及数以千计的免费 NASA 图片
 
-> 原文:[https://life hacker . com/the-big-war-in-animal-DIY-ar-1785099883](https://lifehacker.com/the-biggest-war-in-animal-history-an-incredible-diy-ar-1785099883)
+> 原文：<https://lifehacker.com/the-biggest-war-in-animal-history-an-incredible-diy-ar-1785099883>
 
 动物历史上最伟大的——也是正在进行的——战争的谦逊故事，你的下一张桌面壁纸，NASA 的好意，一家希望你加入一英里高俱乐部的航空公司，以及本周 Lifehacker Brain Buffet 的更多内容。
 

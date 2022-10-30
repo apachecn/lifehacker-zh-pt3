@@ -1,6 +1,6 @@
 # 这个应用程序使用人工智能来管理你的收件箱
 
-> 原文:[https://life hacker . com/this-app-uses-artificial-intelligence-to-manage-your-in-1796211455](https://lifehacker.com/this-app-uses-artificial-intelligence-to-manage-your-in-1796211455)
+> 原文：<https://lifehacker.com/this-app-uses-artificial-intelligence-to-manage-your-in-1796211455>
 
 几年前的一天，我收到了 1000 封邮件。
 

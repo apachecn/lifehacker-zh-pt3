@@ -1,6 +1,6 @@
 # 在 Apple TV 遥控器上贴上胶带
 
-> 原文:[https://life hacker . com/put-tape-on-your-apple-TV-remote-1825319793](https://lifehacker.com/put-tape-on-your-apple-tv-remote-1825319793)
+> 原文：<https://lifehacker.com/put-tape-on-your-apple-tv-remote-1825319793>
 
 优秀的设计公司苹果(Apple)将其 Apple TV 与一个漆黑的水平对称遥控器捆绑在一起。这意味着，如果你能在黑暗中找到遥控器，你很可能会抓错一端，抓住触摸板并点击错误的按钮。谢天谢地，你可以通过在你的遥控器上附加一个难看的彩色斑点来解决这个问题。
 

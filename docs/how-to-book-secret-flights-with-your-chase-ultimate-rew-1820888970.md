@@ -1,6 +1,6 @@
 # 如何使用您的 Chase Ultimate Rewards 积分预订“秘密”航班
 
-> 原文:[https://life hacker . com/how-to-book-secret-flights-with-your-chase-ultimate-rew-1820888970](https://lifehacker.com/how-to-book-secret-flights-with-your-chase-ultimate-rew-1820888970)
+> 原文：<https://lifehacker.com/how-to-book-secret-flights-with-your-chase-ultimate-rew-1820888970>
 
 许多人喜欢大通蓝宝石首选和大通蓝宝石储备信用卡赚取旅行奖励，包括我自己。你可以用你积累的积分通过一大堆不同的航空公司购买机票，但其中一些不会出现在他们的网站上。在这种情况下，你应该这样做。
 

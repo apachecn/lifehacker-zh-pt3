@@ -1,6 +1,6 @@
 # 不要在英特尔的顶级处理器上浪费金钱
 
-> 原文:[https://gizmodo . com/don-waste-money-on-Intel-top-processor-1791426602](https://gizmodo.com/dont-waste-money-on-intels-top-processor-1791426602)
+> 原文：<https://gizmodo.com/dont-waste-money-on-intels-top-processor-1791426602>
 
 是时候更换你的电脑了。也许它是在上届共和党政府期间购买的，或者你用洒出来的饮料毁了它，或者也许你只是有些钱花不完，你想把它花在英特尔的 [新 Kaby Lake 微体系结构](https://gizmodo.com/intels-new-kaby-lake-processors-what-you-need-to-know-1785889498) 上。不管是什么原因，你已经准备好升级你的电脑，你将面临一个巨大的选择。你会花额外的钱购买速度更快的 i7 处理器，还是会省下几分钱买 i5 处理器？
 

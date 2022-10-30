@@ -1,6 +1,6 @@
 # 使用此智能应用程序将 Gmail 邮件标记为已读
 
-> 原文:[https://life hacker . com/auto notification-let-you-mark-Gmail-messages-as-read-f-1821139459](https://lifehacker.com/autonotification-lets-you-mark-gmail-messages-as-read-f-1821139459)
+> 原文：<https://lifehacker.com/autonotification-lets-you-mark-gmail-messages-as-read-f-1821139459>
 
 我们大多数人最终都会在一天中收到大量的电子邮件。事实证明，我通过手机上的通知栏看到了很多这样的邮件。我想知道收到了哪些邮件，但还不足以进入手机上的 Gmail 应用程序，因此在通知中浏览它们是一个快速简单的解决方案。当我在里面看到我想阅读或回复的内容时，我会启动应用程序。
 

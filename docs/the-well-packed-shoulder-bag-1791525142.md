@@ -1,6 +1,6 @@
 # 包装精美的单肩包
 
-> 原文:[https://life hacker . com/the-well-packed-双肩背包-1791525142](https://lifehacker.com/the-well-packed-shoulder-bag-1791525142)
+> 原文：<https://lifehacker.com/the-well-packed-shoulder-bag-1791525142>
 
 有时候，你只需要一个合适的包，能装下你每天需要随身携带的所有东西。一个恰当的例子是，天天背着读者西蒙·奥利弗的书包。
 

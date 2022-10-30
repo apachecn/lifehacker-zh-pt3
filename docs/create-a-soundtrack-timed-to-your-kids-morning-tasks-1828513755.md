@@ -1,6 +1,6 @@
 # 创建一个适合孩子早晨任务的配乐
 
-> 原文:[https://life hacker . com/create-a-soundtrack-timed-to-your-kids-morning-tasks-1828513755](https://lifehacker.com/create-a-soundtrack-timed-to-your-kids-morning-tasks-1828513755)
+> 原文：<https://lifehacker.com/create-a-soundtrack-timed-to-your-kids-morning-tasks-1828513755>
 
 我意识到，有些父母擅长早上起床。我不是他们中的一员，但我想成为他们中的一员，而且我必须成为他们中的一员，尤其是当我的孩子去幼儿园的时候，那里有学校的钟声和真正的迟到。
 

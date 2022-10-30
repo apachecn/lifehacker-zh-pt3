@@ -1,6 +1,6 @@
 # 你多久需要做一次子宫颈抹片检查？
 
-> 原文:[https://life hacker . com/how-frequency-do-frequency-you ' d-need a-pap-smear-1828549217](https://lifehacker.com/how-often-do-you-really-need-a-pap-smear-1828549217)
+> 原文：<https://lifehacker.com/how-often-do-you-really-need-a-pap-smear-1828549217>
 
 美国预防服务特别工作组(US Preventive Services Task Force**指南要求每年进行子宫颈抹片检查，这已经是很久以前的事了，但我不断听到一些人说，他们的妇科医生最近才告诉他们，他们可以跳过几年。我们大多数人只需要每三到五年进行一次宫颈癌筛查，巴氏涂片不再是唯一的选择。** 
 

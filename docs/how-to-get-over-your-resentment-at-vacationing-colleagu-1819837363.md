@@ -1,6 +1,6 @@
 # 如何克服对度假同事的怨恨
 
-> 原文:[https://life hacker . com/how-to-get-over-your 愤恨-度假-colleagu-1819837363](https://lifehacker.com/how-to-get-over-your-resentment-at-vacationing-colleagu-1819837363)
+> 原文：<https://lifehacker.com/how-to-get-over-your-resentment-at-vacationing-colleagu-1819837363>
 
 生活就是竞争，如果你的同事总是去度假，而你却坐在家里使用你和其他四个人分享的网飞账户，那么你特别容易觉得自己输了。
 

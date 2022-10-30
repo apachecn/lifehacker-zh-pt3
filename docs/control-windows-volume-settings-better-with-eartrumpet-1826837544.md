@@ -1,6 +1,6 @@
 # 使用 ear 小号更好地控制 Windows 的音量设置
 
-> 原文:[https://life hacker . com/control-windows-volume-settings-better-with-ear trumpet-1826837544](https://lifehacker.com/control-windows-volume-settings-better-with-eartrumpet-1826837544)
+> 原文：<https://lifehacker.com/control-windows-volume-settings-better-with-eartrumpet-1826837544>
 
 Windows: 说实话，Windows 10 的音量控制并没有那么特别。您可以设置您正在收听的默认扬声器的音量；你可以改变你的默认扬声器(例如，从你显示器蹩脚的内置扬声器到你超赞的耳机)；和...就是这样。
 

@@ -1,6 +1,6 @@
 # 为你的房客准备一台专用的“客人电脑”
 
-> 原文:[https://life hacker . com/keep-a-dedicated-a-guest-computer-for your-house guests-1795485881](https://lifehacker.com/keep-a-dedicated-guest-computer-for-your-houseguests-1795485881)
+> 原文：<https://lifehacker.com/keep-a-dedicated-guest-computer-for-your-houseguests-1795485881>
 
 升级我的笔记本电脑后，我花了几个月的时间为我没有卖掉旧的感到难过。它被搁置了几个月，直到有一天一个朋友过来做一个写作项目。他没有带电脑，所以我启动了备用的笔记本电脑，赶走了我的罪恶感。该备用计算机现在已成为专用的客户计算机。
 

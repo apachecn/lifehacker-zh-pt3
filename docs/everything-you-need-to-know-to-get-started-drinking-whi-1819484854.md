@@ -1,6 +1,6 @@
 # 开始喝苏格兰威士忌需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-know-to-get-start-drinking-whi-1819484854](https://lifehacker.com/everything-you-need-to-know-to-get-started-drinking-whi-1819484854)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-to-get-started-drinking-whi-1819484854>
 
 如果你以前从未真正探索过，喝威士忌会令人生畏。决定先尝试哪种 T2 威士忌是一个重大决定。一旦你决定了，你应该把它放在冰上吗？直接喝吗？用水试试？你怎么能品尝到人们一直说的所有这些疯狂的味道，当你啜饮它时你会记住的？
 

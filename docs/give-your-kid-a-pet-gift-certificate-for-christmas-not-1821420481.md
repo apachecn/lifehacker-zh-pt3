@@ -1,6 +1,6 @@
 # 给你的孩子一张宠物礼券作为圣诞礼物，而不是真正的宠物
 
-> 原文:[https://life hacker . com/give-your-kid-a-pet-gift-certificate-for-Christmas-not-1821420481](https://lifehacker.com/give-your-kid-a-pet-gift-certificate-for-christmas-not-1821420481)
+> 原文：<https://lifehacker.com/give-your-kid-a-pet-gift-certificate-for-christmas-not-1821420481>
 
 你决定给你的孩子买一只宠物作为圣诞礼物。你挑选了最完美的动物，你买了一个可爱的弓(你已经*得到了*这个弓)，你还设置了相机和三脚架来捕捉这个大发现。这将是有史以来最大的惊喜。
 

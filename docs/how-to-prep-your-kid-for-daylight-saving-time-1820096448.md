@@ -1,6 +1,6 @@
 # 如何让你的孩子为夏令时做准备
 
-> 原文:[https://life hacker . com/how-to-prep-your-kid-the-daylight-saving-time-1820096448](https://lifehacker.com/how-to-prep-your-kid-for-daylight-saving-time-1820096448)
+> 原文：<https://lifehacker.com/how-to-prep-your-kid-for-daylight-saving-time-1820096448>
 
 对许多人来说，本周末夏令时的结束意味着一个可爱的额外小时的瞌睡。但是对于那些按照时间表生活的孩子的父母来说，这意味着恐慌。因为如果你的宝贝通常在早上 5:45 醒来，他们现在会在该死的凌晨 4:45 醒来，让他们的情绪失控，而你在寻找更多的咖啡。
 

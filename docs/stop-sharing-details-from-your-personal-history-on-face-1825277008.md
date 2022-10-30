@@ -1,6 +1,6 @@
 # 停止分享你在脸书的个人历史细节
 
-> 原文:[https://life hacker . com/stop-sharing-details-from-your-personal-history-on-face-1825277008](https://lifehacker.com/stop-sharing-details-from-your-personal-history-on-face-1825277008)
+> 原文：<https://lifehacker.com/stop-sharing-details-from-your-personal-history-on-face-1825277008>
 
 如果说过去几周的 [、脸书丑闻](https://lifehacker.com/how-to-find-out-if-cambridge-analytica-had-your-data-1825155752) 揭示了什么，那就是社交网络已经知道了太多关于我们的事情。但如果你需要另一个理由停止向脸书提供你的个人信息，这里有一个很好的理由:它可能会让你的在线账户被黑。
 

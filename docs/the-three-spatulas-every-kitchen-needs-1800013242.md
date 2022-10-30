@@ -1,6 +1,6 @@
 # 每个厨房都需要的三把铲子
 
-> 原文:[https://life hacker . com/the-three-spatulas-every-kitchen-needs-1800013242](https://lifehacker.com/the-three-spatulas-every-kitchen-needs-1800013242)
+> 原文：<https://lifehacker.com/the-three-spatulas-every-kitchen-needs-1800013242>
 
 虽然我想在我的厨房用具瓦罐里放上现有的每一把星球大战主题的锅铲，但我没有足够的空间——或者说没有必要——放那么多的锅铲。真的，一般的家庭厨师只需要三把铲子:
 

@@ -1,6 +1,6 @@
 # 以下是父母需要知道的关于热性惊厥的知识
 
-> 原文:[https://life hacker . com/heres-whes-what-parents-need-to-know-on-thermal-senses-1820332182](https://lifehacker.com/heres-what-parents-need-to-know-about-febrile-seizures-1820332182)
+> 原文：<https://lifehacker.com/heres-what-parents-need-to-know-about-febrile-seizures-1820332182>
 
 今年早些时候，我带着 14 个月大的儿子以斯拉去了当地的急诊诊所，在那里我被确诊为耳部感染。根据他的发烧，这是有道理的，但当我们开车回家时，我觉得他似乎...迷失方向。我试图摆脱它——我还是一个新妈妈，可能反应过度了。
 

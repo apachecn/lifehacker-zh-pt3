@@ -1,6 +1,6 @@
 # 猪肉是什么味道的？
 
-> 原文:[https://gizmodo.com/what-do-porgs-taste-like-1821194647](https://gizmodo.com/what-do-porgs-taste-like-1821194647)
+> 原文：<https://gizmodo.com/what-do-porgs-taste-like-1821194647>
 
 越过伊渥克，这个星系里出现了一种新的生物。《星球大战:最后的绝地武士》标志着波格斯的首次亮相，这是一种外星鸟类，卢克·天行者在阿切托用原力之道训练雷伊时，它和他在一起。它们可能很可爱，但我们不禁会想:它们的味道如何？
 

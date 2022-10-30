@@ -1,6 +1,6 @@
 # 我们需要更多中性的童装
 
-> 原文:[https://life hacker . com/we-need-more-gender-neutral-kids-ways-1796782562](https://lifehacker.com/we-need-more-gender-neutral-kids-clothes-1796782562)
+> 原文：<https://lifehacker.com/we-need-more-gender-neutral-kids-clothes-1796782562>
 
 我三岁的儿子穿着他的 Paw Patrol T 恤已经有几个星期了，我才发现少了点什么。他看的剧集有六个常规角色，但只有五个在他的衬衫上。不见踪影: [斯凯](http://paw-patrol.wikia.com/wiki/Skye) ，令牌少女。
 

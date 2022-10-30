@@ -1,6 +1,6 @@
 # 请教专家:在工作中充分利用积极性
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-use-positive-in-the-wo-1727702360](https://lifehacker.com/ask-an-expert-all-about-utilizing-positivity-in-the-wo-1727702360)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-utilizing-positivity-in-the-wo-1727702360>
 
 当你开始你的日常工作时，你不可避免地会和那些消极的人打交道。你如何处理不愉快的工作环境？你如何利用积极心理学来加强你的事业？来帮忙的是米歇尔·吉兰(Michelle Gielan)， [广播幸福](http://www.amazon.com/Broadcasting-Happiness-Igniting-Sustaining-Positive/dp/1941631304?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/ask-an-expert-all-about-utilizing-positivity-in-the-wo-1727702360&asc_source=&tag=kinjalifehackerlink-20) 的作者。
 

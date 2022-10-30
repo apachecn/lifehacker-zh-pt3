@@ -1,6 +1,6 @@
 # 让你的同事兑现承诺的消极-积极措辞
 
-> 原文:[https://life hacker . com/passive-aggressive-phrases-to-get-your-co-workers-to-del-1819176196](https://lifehacker.com/passive-aggressive-phrases-to-get-your-coworkers-to-del-1819176196)
+> 原文：<https://lifehacker.com/passive-aggressive-phrases-to-get-your-coworkers-to-del-1819176196>
 
 我们都至少有过一个难相处的同事，不管是性格冲突还是长期错过最后期限。下次你发现自己被办公室里的那个人搞得沮丧时，我们可以建议一些老式的被动攻击吗？
 

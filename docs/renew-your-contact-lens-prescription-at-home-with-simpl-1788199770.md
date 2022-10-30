@@ -1,6 +1,6 @@
 # 用简单的隐形眼镜在家里更换隐形眼镜
 
-> 原文:[https://life hacker . com/renew-your-contact-lens-lens-your-lens-focus-in-home-with-simple-1788199770](https://lifehacker.com/renew-your-contact-lens-prescription-at-home-with-simpl-1788199770)
+> 原文：<https://lifehacker.com/renew-your-contact-lens-prescription-at-home-with-simpl-1788199770>
 
 我不再戴隐形眼镜的唯一原因是因为我懒得更新我的处方。商店有严格的规定，只有在你的处方有效的情况下才能卖给你，而且大多数只有两年的有效期。但是现在有在线工具可以让你在家更新隐形眼镜处方。
 

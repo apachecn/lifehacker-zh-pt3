@@ -1,6 +1,6 @@
 # 除了奶酪，你还应该带些什么食物
 
-> 原文:[https://life hacker . com/foods-you-should-brulee-Asia-creme-1825017720](https://lifehacker.com/foods-you-should-brulee-besides-creme-1825017720)
+> 原文：<https://lifehacker.com/foods-you-should-brulee-besides-creme-1825017720>
 
 让我们严肃一会儿:如果顶部没有那种噼啪作响的结晶糖皮，焦糖布丁就只是蛋奶沙司。这将是非常好的蛋羹，但糖是它的特别之处。然而，brée-ing 并不是一种专属于托儿所的行为。你可以带各种各样的食物，给每一餐都带来一丝颓废。
 

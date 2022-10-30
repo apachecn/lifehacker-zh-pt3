@@ -1,6 +1,6 @@
 # 角色扮演教会了我什么是自信
 
-> 原文:[https://life hacker . com/what-cosplay-teached-me-about-confidence-1778398878](https://lifehacker.com/what-cosplay-taught-me-about-confidence-1778398878)
+> 原文：<https://lifehacker.com/what-cosplay-taught-me-about-confidence-1778398878>
 
 2014 年 5 月，我第一次穿上服装去参加一个会议。那是一个简单的 [来自阿彻](https://www.youtube.com/watch?v=73lKEygraYw)的克里格医生。扮演我喜欢的角色似乎是度过周末的一种有趣方式。相反，它变成了对自信意味着什么的探索。
 

@@ -1,6 +1,6 @@
 # 每个人都害怕臭虫，但没人知道它们长什么样
 
-> 原文:[https://life hacker . com/everyones-fear-of-bed-bugs-but-nobody-that-body-known-they-1796331483](https://lifehacker.com/everyones-afraid-of-bed-bugs-but-nobody-knows-what-they-1796331483)
+> 原文：<https://lifehacker.com/everyones-afraid-of-bed-bugs-but-nobody-knows-what-they-1796331483>
 
 臭虫是最可怕的害虫之一。它们吸你的血，很容易从一个地方传播到另一个地方，而 [很难杀死](https://lifehacker.com/everything-you-need-to-know-about-bed-bugs-in-one-vide-1789490606) 。但是你知道他们实际上长什么样吗？事实证明，大多数人不知道。
 

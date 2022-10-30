@@ -1,6 +1,6 @@
 # 两针流感疫苗并不比一针好
 
-> 原文:[https://life hacker . com/two-flu-shots-not-bet-than-one-1822808522](https://lifehacker.com/two-flu-shots-aren-t-better-than-one-1822808522)
+> 原文：<https://lifehacker.com/two-flu-shots-aren-t-better-than-one-1822808522>
 
 你从流感疫苗 [中获得的保护会随着时间](https://vitals.lifehacker.com/when-to-get-your-flu-shot-1818488166) 而减弱，导致谣言说我们都应该在春天要求第二次流感疫苗。没那么快！目前的建议——注射一针流感疫苗，最好是在秋天——仍然是你最好的选择。
 

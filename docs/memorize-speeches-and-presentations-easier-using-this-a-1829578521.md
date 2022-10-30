@@ -1,6 +1,6 @@
 # 使用这个应用程序更容易记住演讲和演示文稿
 
-> 原文:[https://life hacker . com/memory-speechs-and-presentations-easy-use-this-a-1829578521](https://lifehacker.com/memorize-speeches-and-presentations-easier-using-this-a-1829578521)
+> 原文：<https://lifehacker.com/memorize-speeches-and-presentations-easier-using-this-a-1829578521>
 
 记忆东西，尤其是像演讲和演示这样的长东西，可能很难做到。像所有的事情一样，熟能生巧。然而，除非你身边有一个朋友来帮助你练习，否则你很容易在练习时出错，错过一些部分，或者一开始就没有把整个记忆过程做好。
 

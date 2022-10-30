@@ -1,6 +1,6 @@
 # Windows 的最佳防病毒应用
 
-> 原文:[https://life hacker . com/the-best-anti-virus-app-for-windows-5865356](https://lifehacker.com/the-best-antivirus-app-for-windows-5865356)
+> 原文：<https://lifehacker.com/the-best-antivirus-app-for-windows-5865356>
 
 Windows 的防病毒程序多得数不清，而且没有一个是完美的。目前，我们推荐 Avira，因为它在保护、易用性和成本之间取得了最佳平衡。
 

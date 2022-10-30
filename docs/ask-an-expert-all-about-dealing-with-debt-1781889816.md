@@ -1,6 +1,6 @@
 # 请教专家:如何处理债务
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-handing-debt-1781889816](https://lifehacker.com/ask-an-expert-all-about-dealing-with-debt-1781889816)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-dealing-with-debt-1781889816>
 
 不管是通过信用卡，学生贷款，还是你的房屋抵押贷款，很有可能你欠了某人的钱。你如何优先考虑你应该先还清哪些债务？如果你付不起最低还款额，你能做什么？这里提供一些建议的是我们在 [NerdWallet](http://nerdwallet.com) 的金融朋友。
 

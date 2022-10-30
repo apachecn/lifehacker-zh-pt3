@@ -1,6 +1,6 @@
 # 你的浴室里需要手巾
 
-> 原文:[https://life hacker . com/you-need-hand-毛巾在你的浴室里-1797974287](https://lifehacker.com/you-need-hand-towels-in-your-bathroom-1797974287)
+> 原文：<https://lifehacker.com/you-need-hand-towels-in-your-bathroom-1797974287>
 
 浴室里没有擦手巾的人:你认为你的客人用什么擦手？
 

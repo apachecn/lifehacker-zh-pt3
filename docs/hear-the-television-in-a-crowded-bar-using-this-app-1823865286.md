@@ -1,6 +1,6 @@
 # 使用此应用程序在拥挤的酒吧听电视
 
-> 原文:[https://life hacker . com/hear-the-television-in-a-crowd-bar-using-this-app-1823865286](https://lifehacker.com/hear-the-television-in-a-crowded-bar-using-this-app-1823865286)
+> 原文：<https://lifehacker.com/hear-the-television-in-a-crowded-bar-using-this-app-1823865286>
 
 现在是三月疯狂时间，这意味着我们很多人都挤在酒吧里看比赛，拥挤的酒吧里即使你能看到比赛，你听到比赛的机会也很渺茫。
 

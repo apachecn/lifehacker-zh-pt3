@@ -1,6 +1,6 @@
 # 用谷物和蔬菜为你的 Dosa 面糊增添活力
 
-> 原文:[https://life hacker . com/jazz-up-your-Dosa 面糊配谷物和蔬菜-1819705377](https://lifehacker.com/jazz-up-your-dosa-batter-with-grains-and-vegetables-1819705377)
+> 原文：<https://lifehacker.com/jazz-up-your-dosa-batter-with-grains-and-vegetables-1819705377>
 
 我们印度人喜爱我们的发酵食物，从松脆的清蒸[](https://en.wikipedia.org/wiki/Dhokla)*和蓬松的白色 [*伊德里斯*](https://en.wikipedia.org/wiki/Idli)*到油炸[*wadas*](https://en.wikipedia.org/wiki/Vada_(food))和味道鲜美的[*kadhi*](https://en.wikipedia.org/wiki/Kadhi)。在这个国家的南部，最受欢迎的主食之一是不起眼的 dosa。这种富含蛋白质的可丽饼是由*乌拉特达尔* ( [裂黑克](https://en.wikipedia.org/wiki/Vigna_mungo) )和大米的发酵面糊制成的。**
 

@@ -1,6 +1,6 @@
 # 说出你的菜名，让家庭用餐再次变得特别
 
-> 原文:[https://life hacker . com/name-your-disks-to-make-family-meal time-special-again-1796751816](https://lifehacker.com/name-your-dishes-to-make-family-mealtime-special-again-1796751816)
+> 原文：<https://lifehacker.com/name-your-dishes-to-make-family-mealtime-special-again-1796751816>
 
 家庭用餐技巧主要集中在效率上。批量烹制。立刻冻结 [一个月的](https://happymoneysaver.com/freezer-meals/) 菜肴。已经买了该死的 [即溶壶](https://www.amazon.com/dp/B00FLYWNYQ?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/name-your-dishes-to-make-family-mealtime-special-again-1796751816&asc_source=&tag=kinjalifehackerlink-20) 。
 

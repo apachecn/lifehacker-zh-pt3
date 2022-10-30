@@ -1,6 +1,6 @@
 # 帮助过度刺激的孩子冷静下来并集中注意力的 5 个工具
 
-> 原文:[https://life hacker . com/5-tools-that-help-over-stimulated-kids-cool-and-foc-1819641313](https://lifehacker.com/5-tools-that-help-overstimulated-kids-calm-down-and-foc-1819641313)
+> 原文：<https://lifehacker.com/5-tools-that-help-overstimulated-kids-calm-down-and-foc-1819641313>
 
 虽然不是每个人都对 2017 年的坐立不安旋转器爆炸感到兴奋，但它确实带来了更多关于患有多动症、自闭症和其他疾病的孩子，或者那些可能只是感到过度刺激和焦虑的孩子的触觉辅助的意识。职业治疗师的工具袋里有各种各样的物品，可以帮助孩子冷静下来，保持专注。这里有五种产品，家长们说它们对孩子的生活产生了很大的影响。
 

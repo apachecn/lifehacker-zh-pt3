@@ -1,6 +1,6 @@
 # 关注想法，而不是结果
 
-> 原文:[https://life hacker . com/focus-on-the-idea-not-the-outcome-1822926265](https://lifehacker.com/focus-on-the-idea-not-the-outcome-1822926265)
+> 原文：<https://lifehacker.com/focus-on-the-idea-not-the-outcome-1822926265>
 
 如果你不怕失败，你会在职业生涯中尝试什么？你最终会写那本短篇小说集吗？出去自己开店？说服你的经理你有资格管理一个更大的团队？
 

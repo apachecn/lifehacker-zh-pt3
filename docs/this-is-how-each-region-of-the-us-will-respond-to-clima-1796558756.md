@@ -1,6 +1,6 @@
 # 这就是美国每个地区应对气候变化的方式
 
-> 原文:[https://life hacker . com/this-is-how-each-of-the-us-region-will-response-clima-1796558756](https://lifehacker.com/this-is-how-each-region-of-the-us-will-respond-to-clima-1796558756)
+> 原文：<https://lifehacker.com/this-is-how-each-region-of-the-us-will-respond-to-clima-1796558756>
 
 气候变化是真实的，它对我们的影响远远超出了使地球变暖的。 [气候影响实验室](http://www.impactlab.org/map/) 的研究人员和经济学家绘制了一幅地图，展示了从现在到 2099 年气候变化将如何影响不同的国家，靠近海洋和南部的地区受影响最大，NPR 报道。
 

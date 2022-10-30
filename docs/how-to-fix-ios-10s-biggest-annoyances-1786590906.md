@@ -1,6 +1,6 @@
 # 如何解决 iOS 10 最大的烦恼
 
-> 原文:[https://life hacker . com/how-to-fix-IOs-10s-maximum-anxings-1786590906](https://lifehacker.com/how-to-fix-ios-10s-biggest-annoyances-1786590906)
+> 原文：<https://lifehacker.com/how-to-fix-ios-10s-biggest-annoyances-1786590906>
 
 每一个新操作系统的推出都会带来一些怪癖和烦恼。iOS 10 也不例外，但谢天谢地，大多数这些怪癖都很容易纠正。
 

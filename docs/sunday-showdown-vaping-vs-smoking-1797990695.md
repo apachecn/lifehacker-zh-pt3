@@ -1,6 +1,6 @@
 # 吸烟摊牌:Vape 笔与联合
 
-> 原文:[https://life hacker . com/Sunday-摊牌-vaping-vs-smoking-1797990695](https://lifehacker.com/sunday-showdown-vaping-vs-smoking-1797990695)
+> 原文：<https://lifehacker.com/sunday-showdown-vaping-vs-smoking-1797990695>
 
 电子烟发出的微弱光线已经成为不少关于“酷”这个概念的笑话的笑柄。虽然它们并不时髦，但它们背后的技术是时髦的，尤其是在搭配大麻的时候。但并不是每个人都想用看起来像蓝牙吸管的东西来吸大麻。有时候一根大麻也不错，尤其是在朋友之间。那么哪个最好呢？
 

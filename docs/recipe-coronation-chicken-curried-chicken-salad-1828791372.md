@@ -1,6 +1,6 @@
 # 加冕鸡是咖喱鸡肉沙拉中的皇冠上的宝石
 
-> 原文:[https://the take out . com/recipe-加冕-鸡肉-咖喱-鸡肉-沙拉-1828791372](https://thetakeout.com/recipe-coronation-chicken-curried-chicken-salad-1828791372)
+> 原文：<https://thetakeout.com/recipe-coronation-chicken-curried-chicken-salad-1828791372>
 
 加冕鸡是为了纪念女王伊丽莎白二世在 1953 年加冕而制作的，并在她的加冕午宴上提供。最初的食谱归功于蓝带烹饪学校的罗斯玛丽·休姆，结合了印度的香料灵感和战后伦敦很少的现成原料。像许多经久不衰的食谱一样，它已经被用一百万种不同的方法摆弄过了。今天，它在英国每个街角的三明治店里都随处可见，每个英国厨师都有一个版本。我整理了一大堆食谱，找到了我想要的核心:充满活力的咖喱味、略带鼻音的水果味、浓稠的奶油酱和嫩鸡肉。
 

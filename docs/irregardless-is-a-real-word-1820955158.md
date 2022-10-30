@@ -1,6 +1,6 @@
 # “不管”是一个真实的词
 
-> 原文:[https://life hacker . com/irregardless-is-a-real-word-1820955158](https://lifehacker.com/irregardless-is-a-real-word-1820955158)
+> 原文：<https://lifehacker.com/irregardless-is-a-real-word-1820955158>
 
 没有一个词像“不管”这样受到如此多的词汇鄙视——我只是打了一个寒噤。但与它经常被归入其中的自创术语不同，包括“大概”和“谢伯特”，从技术上讲,*是一个真实的词。韦氏词典词典是这么说的。* 
 

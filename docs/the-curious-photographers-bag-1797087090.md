@@ -1,6 +1,6 @@
 # 好奇的摄影师的包
 
-> 原文:[https://life hacker . com/the-curious-photos-bag-1797087090](https://lifehacker.com/the-curious-photographers-bag-1797087090)
+> 原文：<https://lifehacker.com/the-curious-photographers-bag-1797087090>
 
 最好的相机就是你随身携带的那台，为什么不带一堆呢？Addim Hawk 的 包中的装备足够灵活，可以捕捉美丽的镜头和动作场景，所有这些都在一个非常紧凑的设置中。
 

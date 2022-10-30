@@ -1,6 +1,6 @@
 # 征服债务的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-conquet-your-debt-1737097563](https://lifehacker.com/top-10-ways-to-conquer-your-debt-1737097563)
+> 原文：<https://lifehacker.com/top-10-ways-to-conquer-your-debt-1737097563>
 
 如今很少有人完全没有债务。你可能有学生贷款、抵押贷款、信用卡余额和/或其他债务。这 10 条建议可以帮助你削减或消除债务，这样你就可以积累财富，并最终专注于你的其他财务目标。
 

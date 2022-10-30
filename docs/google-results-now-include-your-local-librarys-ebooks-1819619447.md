@@ -1,6 +1,6 @@
 # 谷歌搜索结果现在包括了你当地图书馆的电子书
 
-> 原文:[https://life hacker . com/Google-results-now-include-your-local-libraries-ebooks-1819619447](https://lifehacker.com/google-results-now-include-your-local-librarys-ebooks-1819619447)
+> 原文：<https://lifehacker.com/google-results-now-include-your-local-librarys-ebooks-1819619447>
 
 谷歌只是让免费的法律电子书 [更容易找到](https://www.engadget.com/2017/09/19/local-library-e-books-show-up-google-searches/) 。搜索一本书，在右边的信息栏中，在购买选项下，谷歌列出了拥有该电子书的当地公共图书馆。(在手机上，点击“获取图书”标签。)如果你是图书馆会员，你可以马上在你的设备上借阅。感觉像魔术一样。在这里，用 [埃琳娜·费兰特的*我的才华横溢的朋友*](https://www.google.com/search?q=my+brilliant+friend) 试试吧。
 

@@ -1,6 +1,6 @@
 # 通过熨烫而不是洗涤来防止你的衣服穿破
 
-> 原文:[https://life hacker . com/keep-your-cloth-from-wear-by-ironing-inst-o-1798414586](https://lifehacker.com/keep-your-clothes-from-wearing-out-by-ironing-instead-o-1798414586)
+> 原文：<https://lifehacker.com/keep-your-clothes-from-wearing-out-by-ironing-instead-o-1798414586>
 
 如果有一个做嗅觉测试的好理由的话，那就是:每次穿完衣服后清洗和烘干是把衣服穿出去的最快方法之一。是的，有很多方法可以提高你的洗衣技能，但是你仍然把你最喜欢的衣服塞进洗衣机里搅动——是的，这就是所谓的——然后放进另一台机器里加热。
 

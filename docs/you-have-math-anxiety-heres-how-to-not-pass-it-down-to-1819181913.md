@@ -1,6 +1,6 @@
 # 有数学焦虑症？以下是如何不把它传给你的孩子
 
-> 原文:[https://life hacker . com/you-have-math-anxiety-heres-how-to-not pass-it-down-1819181913](https://lifehacker.com/you-have-math-anxiety-heres-how-to-not-pass-it-down-to-1819181913)
+> 原文：<https://lifehacker.com/you-have-math-anxiety-heres-how-to-not-pass-it-down-to-1819181913>
 
 “这里有人擅长几何吗？我很差劲，我的孩子需要帮助。救命啊！”
 

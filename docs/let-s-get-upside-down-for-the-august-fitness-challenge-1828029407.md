@@ -1,6 +1,6 @@
 # 让我们为八月的健身挑战来个倒立
 
-> 原文:[https://life hacker . com/let-s-get-over-down-for-the-August-fitness-challenge-1828029407](https://lifehacker.com/let-s-get-upside-down-for-the-august-fitness-challenge-1828029407)
+> 原文：<https://lifehacker.com/let-s-get-upside-down-for-the-august-fitness-challenge-1828029407>
 
 我不会倒立。或者倒立。我甚至有点害怕把我的腿放在墙上。你和我在一起吗？让我们走出舒适区。如果你已经会倒立了，那么，我也会给你一些额外的挑战。
 

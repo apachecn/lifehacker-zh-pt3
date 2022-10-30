@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我女朋友的朋友都讨厌我
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friends-all-hate-me-1822036185](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-s-friends-all-hate-me-1822036185)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-s-friends-all-hate-me-1822036185>
 
 你好所有你花期死亡的羚羊，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，唯一的约会建议专栏赢得令人垂涎的鸡肉晚餐。
 

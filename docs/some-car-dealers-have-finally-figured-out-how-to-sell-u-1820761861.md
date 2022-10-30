@@ -1,6 +1,6 @@
 # 一些汽车经销商终于明白了如何在网上销售二手车
 
-> 原文:[https://jalopnik . com/some-car-dealers-have-to-how-sell-u-1820761861](https://jalopnik.com/some-car-dealers-have-finally-figured-out-how-to-sell-u-1820761861)
+> 原文：<https://jalopnik.com/some-car-dealers-have-finally-figured-out-how-to-sell-u-1820761861>
 
 即使在网上可以买到陈年牛奶 ，你也不妨试着锁定一辆好的网络星期一汽车。虽然一些经销商已经努力使在线购买二手车变得容易，但太多的经销商仍然有不准确的 [列表或普遍不合作的](https://jalopnik.com/what-s-your-biggest-disappointment-with-shopping-for-ca-1819939035) 。
 

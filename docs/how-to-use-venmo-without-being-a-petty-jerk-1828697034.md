@@ -1,6 +1,6 @@
 # 如何使用 Venmo 而不成为一个小混蛋
 
-> 原文:[https://gizmodo . com/how-to-use-venmo-not be a-petty-jerk-1828697034](https://gizmodo.com/how-to-use-venmo-without-being-a-petty-jerk-1828697034)
+> 原文：<https://gizmodo.com/how-to-use-venmo-without-being-a-petty-jerk-1828697034>
 
 Venmo 是一款*应该*简单且具有事务性的应用。相反，这是棘手的，往往难以驾驭。一个自称为“数字钱包”的东西引发了如此多的戏剧性事件，这真是太疯狂了。
 

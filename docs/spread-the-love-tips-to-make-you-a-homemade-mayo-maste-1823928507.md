@@ -1,6 +1,6 @@
 # 传播爱:让你成为自制蛋黄酱大师的技巧和诀窍
 
-> 原文:[https://the take out . com/spread-the-love-tips-to-make-you-a-made-mayo-maste-1823928507](https://thetakeout.com/spread-the-love-tips-to-make-you-a-homemade-mayo-maste-1823928507)
+> 原文：<https://thetakeout.com/spread-the-love-tips-to-make-you-a-homemade-mayo-maste-1823928507>
 
 如果你被蛋黄酱呛到了，把这当成你的触发警告:前面有蛋黄酱。然而，那些喜欢蛋黄酱的人知道它的奶油能力，可以改变从三明治到薯条到烤奶酪的一切。随着野餐季节的临近，我们向厨师寻求他们最好的蛋黄酱制作技巧和创意。憎恨者，靠边站。
 

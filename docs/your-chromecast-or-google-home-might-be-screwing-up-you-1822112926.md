@@ -1,6 +1,6 @@
 # 你的 Chromecast 或 Google Home 可能会干扰你的无线网络[更新]
 
-> 原文:[https://gizmodo . com/your-chrome cast-or-Google-home-may-be-why-up-you-1822112926](https://gizmodo.com/your-chromecast-or-google-home-might-be-screwing-up-you-1822112926)
+> 原文：<https://gizmodo.com/your-chromecast-or-google-home-might-be-screwing-up-you-1822112926>
 
 据报道，谷歌主页和 Chromecast 设备正在扼杀人们的无线网络。这个问题， [首先由 Android Police](http://www.androidpolice.com/2018/01/14/google-home-max-appears-killing-wifi-networks/) 报告，最初似乎局限于 [Google Home Max](https://gizmodo.com/the-google-home-max-almost-made-my-house-go-boom-1821464329) 扬声器和廉价但通常很优秀的 TP-Link Archer C7 路由器的用户。然而，自从 Android Police 首次报告这个问题以来，它似乎已经蔓延到其他谷歌设备和 TP-Link 路由器。
 

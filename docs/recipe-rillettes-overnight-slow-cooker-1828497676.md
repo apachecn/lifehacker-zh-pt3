@@ -1,6 +1,6 @@
 # 最简单的方法就是用你的慢炖锅
 
-> 原文:[https://the take out . com/recipe-rillettes-隔夜慢炖锅-1828497676](https://thetakeout.com/recipe-rillettes-overnight-slow-cooker-1828497676)
+> 原文：<https://thetakeout.com/recipe-rillettes-overnight-slow-cooker-1828497676>
 
 一罐小瓶子是个好东西。作为法国的传统，它是一种调味的肉，在它自己的脂肪中慢慢烹制，然后切碎并与足够的脂肪混合制成糊状，可以涂在面包或饼干上。哦是的。类似于馅饼，但没有内脏，它可以成为你下一盘奶酪和熟食的主角。里勒特斯(发音为 ree-yett)和帕特一样，都是些油腔滑调的曲子，但缺少了肝脏，使它更具普遍吸引力。
 

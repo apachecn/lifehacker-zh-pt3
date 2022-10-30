@@ -1,6 +1,6 @@
 # 移动博主的迷你包
 
-> 原文:[https://life hacker . com/the-mobile-blogger-s-mini-bag-1803144440](https://lifehacker.com/the-mobile-blogger-s-mini-bag-1803144440)
+> 原文：<https://lifehacker.com/the-mobile-blogger-s-mini-bag-1803144440>
 
 如果你外出一日游，你并不总是想带着你的笔记本电脑，但你手机的小屏幕只能为你做这么多。毕竟平板电脑是存在的。它们是消费电子产品中的金发女郎:大到足以完成一些工作，小到可以随身携带。此外，它们几乎可以放入任何东西。
 

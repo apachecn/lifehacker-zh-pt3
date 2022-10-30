@@ -1,6 +1,6 @@
 # 大力水手的卡津火鸡比你今年感恩节烤的任何东西都好吃
 
-> 原文:[https://the take out . com/popeyes-cajun-turkey-is-tastier-than-what-you-re-r-1798254572](https://thetakeout.com/popeyes-cajun-turkey-is-tastier-than-whatever-you-re-r-1798254572)
+> 原文：<https://thetakeout.com/popeyes-cajun-turkey-is-tastier-than-whatever-you-re-r-1798254572>
 
 当一位同事说火鸡肉比鸡肉好吃时，我差点从椅子上摔下来。味道是主观的，但尽管如此，鸡肉的干净中性比你从火鸡身上得到的野味味道更美味(也更多样)。冒着异端邪说的风险，我认为感恩节晚餐是美国节日中最没有食欲的。在过去的几年里，我已经说服我的家人改为烤鸡(用柠檬、香草和黄油)，从那以后我们再也没有回头。
 

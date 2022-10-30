@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我朋友漂亮的妻子刚刚对我采取了行动
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-s-beautiful-wife-just-made-1756898064](https://kotaku.com/ask-dr-nerdlove-my-friend-s-beautiful-wife-just-made-1756898064)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-friend-s-beautiful-wife-just-made-1756898064>
 
 你好，互联网！欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是在雅文、霍斯*和*恩多的战斗中幸存下来的第一个约会建议专栏。
 

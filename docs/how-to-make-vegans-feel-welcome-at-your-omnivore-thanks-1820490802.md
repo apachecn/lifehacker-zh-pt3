@@ -1,6 +1,6 @@
 # 如何让素食者在你的杂食感恩节感到受欢迎
 
-> 原文:[https://life hacker . com/how-to-make-vegans-feel-welcome-at-your-omnivorite-thanks-1820490802](https://lifehacker.com/how-to-make-vegans-feel-welcome-at-your-omnivore-thanks-1820490802)
+> 原文：<https://lifehacker.com/how-to-make-vegans-feel-welcome-at-your-omnivore-thanks-1820490802>
 
 作为一个肉食主义者，我的饮食哲学是“尽一切可能让食物变得美味”，我曾经认为素食晚餐的客人是我必须解决的问题，为此，我道歉。素食美食家可以继续谈论大豆培根有多美味，但作为一个吃肉的厨师，我倾向于认为他们在用不同的标准衡量“美味”我自私地为不得不“简化”菜肴和牺牲口味来迁就而恼火。
 

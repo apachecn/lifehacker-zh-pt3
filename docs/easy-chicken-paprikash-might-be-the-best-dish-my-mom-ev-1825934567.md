@@ -1,6 +1,6 @@
 # 简单的鸡肉辣椒粉可能是我妈妈教过我的最好的菜
 
-> 原文:[https://the take out . com/easy-chicken-paprikah-may-be-the-best-dish my-mom-ev-1825934567](https://thetakeout.com/easy-chicken-paprikash-might-be-the-best-dish-my-mom-ev-1825934567)
+> 原文：<https://thetakeout.com/easy-chicken-paprikash-might-be-the-best-dish-my-mom-ev-1825934567>
 
 取决于你母亲的厨艺，你可能有也可能没有她那些经得起时间考验的珍贵食谱。我有很多这样的食谱——参见: [琳达的廉价酒桑格利亚汽酒](https://thetakeout.com/my-moms-cheapo-wine-sangria-is-better-than-all-your-fan-1823895390)——但是我最常和我妈妈联系在一起的是她超级令人舒服的，粘在你肋骨上的辣椒粉鸡肉。(除了像郊区白人习惯做的那样，我们把它抹去了哪怕是最模糊的一点匈牙利根，称它为“鸡肉辣椒粉”。)
 

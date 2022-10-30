@@ -1,6 +1,6 @@
 # 将你的待办事项列表变成待办事项日历
 
-> 原文:[https://life hacker . com/turn-your-to-do-list to-do-calendar-1796491886](https://lifehacker.com/turn-your-to-do-list-into-a-to-do-calendar-1796491886)
+> 原文：<https://lifehacker.com/turn-your-to-do-list-into-a-to-do-calendar-1796491886>
 
 你总是在闷热的夏天安装空调，还是在四月中旬赶着去报税？对于像这样绝对必要的任务，一个待办事项列表并不总是足够的。你需要在日历上划出时间，把这些任务当成真正的约会。我们列出了所有可以变成日历项目的最佳待办事项。
 

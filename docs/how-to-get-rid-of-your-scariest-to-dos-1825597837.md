@@ -1,6 +1,6 @@
 # 如何摆脱你最害怕的待办事项
 
-> 原文:[https://life hacker . com/how-to-摆脱你最害怕的事情-1825597837](https://lifehacker.com/how-to-get-rid-of-your-scariest-to-dos-1825597837)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-your-scariest-to-dos-1825597837>
 
 我有一个不好的习惯。我雄心勃勃地列出我想做的事情，然后让它们堆积在我的待办事项应用程序中，直到我害怕得退出应用程序，开始一个新的。(我和几个 Lifehacker 的评论者一样，不知道我是如何在一个生产力网站上找到工作的。)但是我已经找到了一个摆脱待办债务的方法。
 

@@ -1,6 +1,6 @@
 # 不要依赖应用程序来告诉你蘑菇是否可以食用
 
-> 原文:[https://life hacker . com/do-not-relay-an-app-to-tell-you-if-a-mushroom-is-edib-1797270830](https://lifehacker.com/do-not-rely-on-an-app-to-tell-you-if-a-mushroom-is-edib-1797270830)
+> 原文：<https://lifehacker.com/do-not-rely-on-an-app-to-tell-you-if-a-mushroom-is-edib-1797270830>
 
 蘑菇就像人:有的很棒可以请到家里吃饭，有的很毒想杀了你。不要依赖一个应用程序，或者一个可下载的情况说明书，或者说“是的，这些可能很好”的人。
 

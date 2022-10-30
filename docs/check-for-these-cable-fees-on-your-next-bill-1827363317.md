@@ -1,6 +1,6 @@
 # 在你的下一张账单上检查一下这些电报费
 
-> 原文:[https://life hacker . com/check-for-these-cable-fees-on-your-next-bill-1827363317](https://lifehacker.com/check-for-these-cable-fees-on-your-next-bill-1827363317)
+> 原文：<https://lifehacker.com/check-for-these-cable-fees-on-your-next-bill-1827363317>
 
 根据消费者报告，电视服务的平均年账单从 2000 年的700 美元上升到 2017 年的 1200 美元，而这一增长的很大一部分可以归因于所有 [惊人的费用](https://www.consumerreports.org/tv-service/cable-tv-sneaky-fees-what-the-fee/) 有线电视公司每月加在你的有线电视账单上。
 

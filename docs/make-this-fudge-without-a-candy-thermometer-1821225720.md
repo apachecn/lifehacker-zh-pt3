@@ -1,6 +1,6 @@
 # 不用糖果温度计做这个软糖
 
-> 原文:[https://life hacker . com/make-this-fudge-no-a candy-thermometer-1821225720](https://lifehacker.com/make-this-fudge-without-a-candy-thermometer-1821225720)
+> 原文：<https://lifehacker.com/make-this-fudge-without-a-candy-thermometer-1821225720>
 
 有做糖果的，也有吃糖果的，我坚定的站在后一个阵营。虽然我不介意一个宣泄情绪的糖果制作聚会，但我的主要目标——尤其是在假期——是大量生产糖果。这就是为什么这种软糖，只需要你不到五分钟的活跃时间，就能在每个圣诞节被制作出来。
 

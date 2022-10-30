@@ -1,6 +1,6 @@
 # 在教育孩子良好行为时，重新考虑奖励
 
-> 原文:[https://life hacker . com/rethink-rewards-when-teaching-kids-about-good-behavior-1819147397](https://lifehacker.com/rethink-rewards-when-teaching-kids-about-good-behavior-1819147397)
+> 原文：<https://lifehacker.com/rethink-rewards-when-teaching-kids-about-good-behavior-1819147397>
 
 每位家长都提出了激励措施:“如果我换轮胎时你有耐心，之后我们就可以吃冰淇淋了。”或者，“如果你和你的表弟玩得很好，你可以在晚饭前使用 iPad。”老师们肯定会用行为奖励来换取时间——在我小时候，一块糖或一个小玩具来表示顺从绝对是一种安慰。
 

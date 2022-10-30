@@ -1,6 +1,6 @@
 # 使用此应用程序在您的 Android 设备上获得 iPhone X 的 Notch
 
-> 原文:[https://life hacker . com/get-the-iphone-xs-notch-on-your-Android-device-using-th-1820587799](https://lifehacker.com/get-the-iphone-xs-notch-on-your-android-device-using-th-1820587799)
+> 原文：<https://lifehacker.com/get-the-iphone-xs-notch-on-your-android-device-using-th-1820587799>
 
 说到 iPhone X，有几个功能值得一试。然而，如果你是一个安卓用户，你可能不会体验到 FOMO 的一件事就是刻痕。
 

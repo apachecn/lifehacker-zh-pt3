@@ -1,6 +1,6 @@
 # 使用 Windows Insider 永久获取最新版本的 Windows
 
-> 原文:[https://life hacker . com/get-the-update-the-version-of-windows-forever-with-windows-1775733312](https://lifehacker.com/get-the-newest-version-of-windows-forever-with-windows-1775733312)
+> 原文：<https://lifehacker.com/get-the-newest-version-of-windows-forever-with-windows-1775733312>
 
 Windows 10 的周年更新将于今年夏天晚些时候推出，但你现在可以通过 Windows Insider 计划尝试所有新功能 [，如 Bash 和来自 Android 手机](http://lifehacker.com/all-the-important-things-microsoft-announced-today-at-b-1768009748) 的通知。
 

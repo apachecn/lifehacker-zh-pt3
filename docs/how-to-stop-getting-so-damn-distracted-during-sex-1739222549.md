@@ -1,6 +1,6 @@
 # 如何停止在做爱时如此分心
 
-> 原文:[https://life hacker . com/how-to-stop-get-so-damn-different-in-sex-1739222549](https://lifehacker.com/how-to-stop-getting-so-damn-distracted-during-sex-1739222549)
+> 原文：<https://lifehacker.com/how-to-stop-getting-so-damn-distracted-during-sex-1739222549>
 
 在性生活中，你是否经常发现自己在想着去杂货店购物，或者被天花板上的蜘蛛网分散了注意力？令人沮丧的是，当我们亲密的时候，很难关闭我们的大脑，即使我们都知道当我们精神上在场的时候，性爱会好得多。这些技巧会有所帮助。
 

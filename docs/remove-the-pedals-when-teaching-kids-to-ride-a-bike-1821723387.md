@@ -1,6 +1,6 @@
 # 教孩子骑自行车时，请移开踏板
 
-> 原文:[https://life hacker . com/remove-the-pedals-when-teaching-kids-ride-a-bike-1821723387](https://lifehacker.com/remove-the-pedals-when-teaching-kids-to-ride-a-bike-1821723387)
+> 原文：<https://lifehacker.com/remove-the-pedals-when-teaching-kids-to-ride-a-bike-1821723387>
 
 教孩子如何骑自行车的传统方法是，等到他们掌握了使用辅助轮巡航的艺术，然后突然剥夺这种安全感，而妈妈则抓起摄像机，用视频捕捉这一重要时刻。这对我们大多数人来说是有效的——我们的膝盖可能被磨破了皮，我们对父母的信任也动摇了，但我们学会了。
 

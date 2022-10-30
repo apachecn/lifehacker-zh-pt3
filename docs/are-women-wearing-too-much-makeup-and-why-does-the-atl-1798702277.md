@@ -1,6 +1,6 @@
 # 女人化妆太浓了吗？为什么大西洋会在意？
 
-> 原文:[https://life hacker . com/are-women-shifting-more-costing-and-why-the-atl-1798702277](https://lifehacker.com/are-women-wearing-too-much-makeup-and-why-does-the-atl-1798702277)
+> 原文：<https://lifehacker.com/are-women-wearing-too-much-makeup-and-why-does-the-atl-1798702277>
 
 这篇 2014 年的文章在一个煽动性标题的推动下再次流传开来。这是一篇相当直截了当的研究报告，但标题却因将责任归咎于女性而引发了愤怒的分享。
 

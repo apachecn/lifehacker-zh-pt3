@@ -1,6 +1,6 @@
 # 美味的方法重新利用所有剩余的火腿
 
-> 原文:[https://the take out . com/delicious-ways-to-purpose-the-all-the-remain-ham-1824213318](https://thetakeout.com/delicious-ways-to-repurpose-all-that-leftover-ham-1824213318)
+> 原文：<https://thetakeout.com/delicious-ways-to-repurpose-all-that-leftover-ham-1824213318>
 
 复活节后的星期一是一年中唯一一个可以证明抱怨“火腿太多”有理的日子。(其他 364 天，不存在这种事。)当你整个周末都在狼吞虎咽地吃着蜜汁烘焙的螺旋片后，冰箱里似乎还有一大堆。三明治是明显的剩余疗法，但让我们更有创意，好吗？
 

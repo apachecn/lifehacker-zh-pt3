@@ -1,6 +1,6 @@
 # UrAvgConsumer 的终极游戏空间
 
-> 原文:[https://life hacker . com/uravgconsumer-s-ultimate-gaming-space-1788300313](https://lifehacker.com/uravgconsumer-s-ultimate-gaming-space-1788300313)
+> 原文：<https://lifehacker.com/uravgconsumer-s-ultimate-gaming-space-1788300313>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3HTc9xJHbU0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3HTc9xJHbU0&start=0) 
 

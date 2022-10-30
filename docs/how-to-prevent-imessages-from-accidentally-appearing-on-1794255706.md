@@ -1,6 +1,6 @@
 # 如何防止 iMessages 意外出现在其他设备上
 
-> 原文:[https://life hacker . com/how-to-prevent-imessages-on-1794255706](https://lifehacker.com/how-to-prevent-imessages-from-accidentally-appearing-on-1794255706)
+> 原文：<https://lifehacker.com/how-to-prevent-imessages-from-accidentally-appearing-on-1794255706>
 
 如果您拥有多台 Apple 设备，您可能已经使用您的 Apple ID 登录了所有设备。你可能还注意到，当你接到 Facetime 电话时，你的电脑会响，或者当你收到 iMessage 信息时，你的 iPad 会发出哔哔声。对于我们大多数人来说，这是一个值得修复的小烦恼。对于其他人来说，这是一个潜在的隐私噩梦。
 

@@ -1,6 +1,6 @@
 # 罗斯个人退休帐户刚刚成为一个更好的退休储蓄交易
 
-> 原文:[https://life hacker . com/Roth-iras-just-been-be-a-better-deal-for-retiremen-1822134829](https://lifehacker.com/roth-iras-just-became-an-even-better-deal-for-retiremen-1822134829)
+> 原文：<https://lifehacker.com/roth-iras-just-became-an-even-better-deal-for-retiremen-1822134829>
 
 罗斯个人退休帐户通常被吹捧为年轻工人的好交易:你现在为进入的钱纳税，然后当你老了(理论上在更高的收入阶层)并取出资金时，你不必担心它。在传统的个人退休帐户中，你存入的钱是免税的，当你取出时，它被作为普通收入征税。但现在，罗斯对较富裕的工人来说可能更有吸引力。
 

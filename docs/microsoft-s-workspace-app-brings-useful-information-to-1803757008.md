@@ -1,6 +1,6 @@
 # 微软的 Workspace 应用为 Mac 用户带来了有用的信息
 
-> 原文:[https://life hacker . com/Microsoft-s-workspace-app-bring-used-information-to-1803757008](https://lifehacker.com/microsoft-s-workspace-app-brings-useful-information-to-1803757008)
+> 原文：<https://lifehacker.com/microsoft-s-workspace-app-brings-useful-information-to-1803757008>
 
 微软的实验项目部门为基于 Mac 的 Office 365 用户发布了一个工具栏实用程序，让你可以访问你的 OneDrive 文件，进行视频通话，并查看你的下一个约会。
 

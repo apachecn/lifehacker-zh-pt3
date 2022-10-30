@@ -1,6 +1,6 @@
 # 你能用速溶壶自制啤酒吗？
 
-> 原文:[https://the take out . com/can-you-home brew-beer-in-a-instant-pot-1823435493](https://thetakeout.com/could-you-homebrew-beer-in-an-instant-pot-1823435493)
+> 原文：<https://thetakeout.com/could-you-homebrew-beer-in-an-instant-pot-1823435493>
 
 最近披露的一个男人中的上帝新泽西男子用他的速溶壶发酵酒今天迅速得到了美国外卖作家的批准。我用我的速溶锅——组合高压锅/慢炖锅/电饭煲等。，对于那些不知道它的许多卖点的人来说——用于传统的任务，如煮汤或煮鸡蛋。但我开始想知道在它的压力墙内还能完成什么样的壮举。也就是说，你能用它酿造啤酒吗？在我之前，肯定有人问过这个问题。美国家酿协会论坛 上的一个 [帖子从理论上提出了速溶壶用于酿造的几种方式:消毒设备、罐装麦芽汁(酵母咀嚼产生啤酒的含糖污泥)；用罐子里的酸奶酿造酸啤酒。一些响应的家酿啤酒制造商肯定他们使用高压锅是为了消毒，但似乎没有人在容器中加热麦芽汁。](https://www.homebrewtalk.com/forum/threads/instant-pot-pressure-cooker-hb-uses.632471/)
 

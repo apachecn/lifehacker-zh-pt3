@@ -1,6 +1,6 @@
 # 为什么你不能搅拌你的咖啡
 
-> 原文:[https://life hacker . com/why-you-should-stir-your-coffee-1825323842](https://lifehacker.com/why-you-shouldnt-stir-your-coffee-1825323842)
+> 原文：<https://lifehacker.com/why-you-shouldnt-stir-your-coffee-1825323842>
 
 Watch
 

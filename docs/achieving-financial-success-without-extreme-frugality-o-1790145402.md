@@ -1,6 +1,6 @@
 # 无需极度节俭或巨额收入就能获得财务上的成功
 
-> 原文:[https://life hacker . com/achieving-financial-success-without-extreme-节俭-o-1790145402](https://lifehacker.com/achieving-financial-success-without-extreme-frugality-o-1790145402)
+> 原文：<https://lifehacker.com/achieving-financial-success-without-extreme-frugality-o-1790145402>
 
 在媒体上不难找到看似普通的人获得巨大经济成功的故事。你听说一个看似普通的男人或女人在看似普通的职业道路上工作，不知何故他们在银行里有了一百万美元。他们是怎么做到的？
 

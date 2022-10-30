@@ -1,6 +1,6 @@
 # iOS 11 终于(几乎)将应用程序组织好了
 
-> 原文:[https://life hacker . com/IOs-11-finally-gets-app-organizing-almost-right-1818819165](https://lifehacker.com/ios-11-finally-gets-app-organizing-almost-right-1818819165)
+> 原文：<https://lifehacker.com/ios-11-finally-gets-app-organizing-almost-right-1818819165>
 
 在 iOS 11 中，你可能会发现自己点击并触摸应用程序 [来找出隐藏在力敏感表面下的新功能](https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209) 。如果你是一个每当你的设备上有新的操作系统升级时都喜欢从头开始的人，你可能会花一些时间在主屏幕上安排你喜欢的应用程序。在早期版本的 iOS 上，组织应用程序是一个缓慢而耗时的过程。然而，iOS 11 带来了一个简单而受欢迎的变化，让重新排列你的应用程序变得更加容易。
 

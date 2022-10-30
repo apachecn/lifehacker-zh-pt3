@@ -1,6 +1,6 @@
 # 如何找到物有所值的昂贵葡萄酒
 
-> 原文:[https://life hacker . com/how-to-find-wine-that-worth-it 1829554238](https://lifehacker.com/how-to-find-expensive-wine-thats-worth-it-1829554238)
+> 原文：<https://lifehacker.com/how-to-find-expensive-wine-thats-worth-it-1829554238>
 
 如果你很了解一个叫“两块钱查克”的人，你可能会认为任何超过 10 美元的酒都是骗局。
 

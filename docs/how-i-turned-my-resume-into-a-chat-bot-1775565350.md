@@ -1,6 +1,6 @@
 # 我是如何把简历变成聊天机器人的
 
-> 原文:[https://life hacker . com/how-I-turned-my-resume-into-a-chat-bot-1775565350](https://lifehacker.com/how-i-turned-my-resume-into-a-chat-bot-1775565350)
+> 原文：<https://lifehacker.com/how-i-turned-my-resume-into-a-chat-bot-1775565350>
 
 很明显，机器人有一个时刻。甚至在脸书在他们的开发者大会上发布用于信使 的 [机器人之前，已经有大量的](https://developers.facebook.com/blog/post/2016/04/12/bots-for-messenger/) [投资](https://betaworks.com/botcamp/)[争议](http://fortune.com/2016/03/24/chat-bot-racism/)[批评](http://gizmodo.com/facebook-messenger-chatbots-are-more-frustrating-than-h-1770732045#_ga=1.189639083.1224299049.1454957731) 。所以我想学习如何制作自己的机器人——并让它发挥作用！
 

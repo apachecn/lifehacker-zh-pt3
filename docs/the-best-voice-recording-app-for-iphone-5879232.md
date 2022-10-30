@@ -1,6 +1,6 @@
 # iPhone 的最佳录音应用
 
-> 原文:[https://life hacker . com/the-best-voice-recording-app-for-iphone-5879232](https://lifehacker.com/the-best-voice-recording-app-for-iphone-5879232)
+> 原文：<https://lifehacker.com/the-best-voice-recording-app-for-iphone-5879232>
 
 不管出于什么原因，iPhone 有大量不同的语音记录应用程序，但很少有比苹果免费的语音备忘录应用程序做得更多的。我们喜欢 Just Press Record，因为它通过提供与苹果不同的体验和功能集，成功地让自己的要价物有所值。
 

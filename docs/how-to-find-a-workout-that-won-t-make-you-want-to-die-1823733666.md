@@ -1,6 +1,6 @@
 # 如何找到一种不会让你想死的锻炼方式
 
-> 原文:[https://life hacker . com/how-to-find the-won-t-make-you-want-to-die-1823733666](https://lifehacker.com/how-to-find-a-workout-that-won-t-make-you-want-to-die-1823733666)
+> 原文：<https://lifehacker.com/how-to-find-a-workout-that-won-t-make-you-want-to-die-1823733666>
 
 黑仔的训练有吹牛的权利:你能相信你挺过来了吗？但是，你可以不做任何被贴上“高强度”标签的运动，或者由一个虐待狂教练指导，也能出汗。锻炼时感觉不到折磨是可以的，只是像工作一样。
 

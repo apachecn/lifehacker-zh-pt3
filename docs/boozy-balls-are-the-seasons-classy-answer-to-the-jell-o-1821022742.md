@@ -1,6 +1,6 @@
 # 酒球是这个季节对果冻酒的经典回答
 
-> 原文:[https://life hacker . com/boozy-balls-is-the-seasons-classy-answer-to-the-jell-o-1821022742](https://lifehacker.com/boozy-balls-are-the-seasons-classy-answer-to-the-jell-o-1821022742)
+> 原文：<https://lifehacker.com/boozy-balls-are-the-seasons-classy-answer-to-the-jell-o-1821022742>
 
 假期让我们可以肆无忌惮地消费酒精和糖——如果你能简化这个过程，这是加分的。凝胶状的饮料可能是这两种物质的千禧年首选载体，但 [就像我之前的皮特·瑞迪](http://www.nbc.com/saturday-night-live/video/nprs-delicious-dish-schweddy-balls/3505994?snl=1) 一样，我更喜欢节日舞会。
 

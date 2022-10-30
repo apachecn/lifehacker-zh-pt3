@@ -1,6 +1,6 @@
 # Experian 的信用冻结故障后，检查您的信用报告
 
-> 原文:[https://life hacker . com/check-your-credit-report-after-experians-credit-freeze-1829556105](https://lifehacker.com/check-your-credit-report-after-experians-credit-freeze-1829556105)
+> 原文：<https://lifehacker.com/check-your-credit-report-after-experians-credit-freeze-1829556105>
 
 如果你在 2017 年 Equifax 臭名昭著的数据泄露事件后冻结了你在益百利的信用，请注意:根据 [NerdWallet](https://www.nerdwallet.com/blog/finance/security-flaw-at-experian-allows-easy-access-to-pin-to-unlock-credit-freeze/) 的一份报告，征信机构用于验证 pin 以解冻信用的系统存在重大安全缺陷，使人们容易受到骗子的攻击。
 

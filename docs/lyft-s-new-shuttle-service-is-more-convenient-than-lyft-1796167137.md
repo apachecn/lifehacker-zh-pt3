@@ -1,6 +1,6 @@
 # Lyft 的新班车服务比 Lyft 线更方便
 
-> 原文:[https://life hacker . com/lyft-s-new-shuttle-service-is-more-conventi on-than-lyft-1796167137](https://lifehacker.com/lyft-s-new-shuttle-service-is-more-convenient-than-lyft-1796167137)
+> 原文：<https://lifehacker.com/lyft-s-new-shuttle-service-is-more-convenient-than-lyft-1796167137>
 
 Lyft 最近推出了一项的“穿梭”服务，正在三藩市和芝加哥进行测试。因为我住在旧金山，所以我可以尝试一下这项服务，这样你就知道如果它来到你的城市会发生什么。它比 Lyft 线(共享乘车)方便得多，而且我乘坐的那辆比 Lyft 便宜 2-3 倍。
 

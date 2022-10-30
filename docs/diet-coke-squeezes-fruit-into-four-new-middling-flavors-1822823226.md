@@ -1,6 +1,6 @@
 # 健怡可乐将水果挤压成四种新的中等口味
 
-> 原文:[https://the take out . com/diet-coke-squeezes-fruit-into-four-new-middle-flavors-1822823226](https://thetakeout.com/diet-coke-squeezes-fruit-into-four-new-middling-flavors-1822823226)
+> 原文：<https://thetakeout.com/diet-coke-squeezes-fruit-into-four-new-middling-flavors-1822823226>
 
 就在上个月， [可口可乐宣布](https://thetakeout.com/fear-not-diet-cokeheads-new-flavors-won-t-mess-with-t-1821959425) 它将推出其健怡可乐系列的新配方，我认识的一半健怡可乐爱好者抓住他们的胸部喊道， [“这是一个大的，我要加入你的蜂蜜！](https://www.youtube.com/watch?v=stdi-1tIUhM) 幸好，他们心爱的健怡可乐没有被人摆弄；可口可乐在健怡可乐中添加了四种水果口味，并装在高筒罐中。(对于健怡可乐原味樱桃和酸橙口味的粉丝来说， [这些仍然有售——尽管只是在网上](https://www.dietcoke.com/faqs/) 。)
 

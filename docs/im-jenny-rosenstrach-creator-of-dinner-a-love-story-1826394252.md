@@ -1,6 +1,6 @@
 # 我是珍妮·罗森施特拉赫，《晚餐:一个爱情故事》的创作者，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-Jenny-rosenstrach-creator-of-dinner-a-love-story-1826394252](https://lifehacker.com/im-jenny-rosenstrach-creator-of-dinner-a-love-story-1826394252)
+> 原文：<https://lifehacker.com/im-jenny-rosenstrach-creator-of-dinner-a-love-story-1826394252>
 
 珍妮·罗森施特拉赫想帮助其他父母回答那个不断困扰的问题:晚饭吃什么？在过去的八年里，这位两个孩子的母亲一直在她的网站 [晚餐:一个爱情故事](http://www.dinneralovestory.com/) 上分享食谱和令人愉快的个人想法。(作为介绍，请查看她在 [晚餐准备策略](http://www.dinneralovestory.com/how-to-plan-family-dinner/) 、 [挑食解决方案](http://www.dinneralovestory.com/convincing-the-kids-to-eat-a-recap/) 和 [快餐](http://www.dinneralovestory.com/top-10-quick-dinners-2/)——*你好*沙拉披萨和烤芥末鸡丁！)她写过三本书: [*晚餐:一个爱情故事*](https://www.amazon.com/exec/obidos/ASIN/0062080903/dialost-20?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-jenny-rosenstrach-creator-of-dinner-a-love-story-1826394252&asc_source=&tag=kinjalifehackerlink-20)[*晚餐:剧本*](https://www.amazon.com/Dinner-Playbook-30-Day-Mastering-Family/dp/0345549805/ref=pd_bxgy_14_img_2?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-jenny-rosenstrach-creator-of-dinner-a-love-story-1826394252&asc_source=&pd_rd_i=0345549805&pd_rd_r=HS96P5TMY62Z23TY70EH&pd_rd_w=kGCLM&pd_rd_wg=v2xT8&psc=1&refRID=HS96P5TMY62Z23TY70EH&tag=kinjalifehackerlink-20)*[*如何庆祝一切*](https://mail.google.com/mail/u/1/#inbox/16374de55268cf7f) *。*她父母是这样的。* 
 

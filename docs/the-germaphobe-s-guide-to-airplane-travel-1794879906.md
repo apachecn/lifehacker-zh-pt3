@@ -1,6 +1,6 @@
 # 恐惧症患者的飞机旅行指南
 
-> 原文:[https://life hacker . com/the-germa phobe-s-guide-to-plant-travel-1794879906](https://lifehacker.com/the-germaphobe-s-guide-to-airplane-travel-1794879906)
+> 原文：<https://lifehacker.com/the-germaphobe-s-guide-to-airplane-travel-1794879906>
 
 如果你总是害怕变脏，生活会变得相当疲惫。当我飞行时，我试着记住这句口头禅，因为飞机是如此的肮脏[。](https://www.wsj.com/articles/the-trouble-with-keeping-commercial-flights-clean-1410993651) [维多利亚大学的研究表明](http://www.cieh.org/library/Knowledge/Public_health/JEHR/JEHRVol3Iss1-CommonColdAircraft.pdf) 我们在航空旅行中感冒的几率是“正常日常地面体验”的 100 倍以下是如何在飞机上保持相对卫生(和理智)的方法。
 

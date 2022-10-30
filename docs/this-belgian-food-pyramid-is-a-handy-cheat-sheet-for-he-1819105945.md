@@ -1,6 +1,6 @@
 # 这个比利时食物金字塔是健康饮食的一个方便的小抄
 
-> 原文:[https://life hacker . com/this-Belgian-food-pyramid-is-a-handy-cheat-sheet-for-he-1819105945](https://lifehacker.com/this-belgian-food-pyramid-is-a-handy-cheat-sheet-for-he-1819105945)
+> 原文：<https://lifehacker.com/this-belgian-food-pyramid-is-a-handy-cheat-sheet-for-he-1819105945>
 
 健康饮食的方式有很多，但大多数专家都认为糖果、薯条、啤酒和熏肉应该尽量少吃。比利时新的食物金字塔 将这些食物及时推出，而蔬菜和全谷物成为焦点。
 

@@ -1,6 +1,6 @@
 # 第一次买房的每一笔开销
 
-> 原文:[https://life hacker . com/every-expense-you-expect-with-first-time-home-pur-1827202900](https://lifehacker.com/every-expense-you-can-expect-with-a-first-time-home-pur-1827202900)
+> 原文：<https://lifehacker.com/every-expense-you-can-expect-with-a-first-time-home-pur-1827202900>
 
 当你在攒钱买第一套房子时，你可能要考虑抵押贷款成本和月供，还要加上保险，甚至可能还有房地产经纪人的费用。但是还有很多其他的成本你可能不知道。
 

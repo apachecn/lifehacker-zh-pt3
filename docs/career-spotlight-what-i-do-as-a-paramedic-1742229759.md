@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名护理人员做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-a-护理人员-1742229759](https://lifehacker.com/career-spotlight-what-i-do-as-a-paramedic-1742229759)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-paramedic-1742229759>
 
 人们太容易想当然地认为，只需一个电话，紧急救援人员就可以赶到你身边。护理人员、紧急医疗技术人员和其他重症护理专家已经做好准备，随时可以提供帮助，这很难做到。
 

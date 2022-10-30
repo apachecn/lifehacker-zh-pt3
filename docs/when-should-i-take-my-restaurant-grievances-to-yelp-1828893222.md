@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我应该什么时候把我在餐馆的不满告诉 Yelp？
 
-> 原文:[https://the take out . com/when-should-I-take-my-restaurants-yelp-1828893222](https://thetakeout.com/when-should-i-take-my-restaurant-grievances-to-yelp-1828893222)
+> 原文：<https://thetakeout.com/when-should-i-take-my-restaurant-grievances-to-yelp-1828893222>
 
 > 亲爱的 Salty，我通常不是那种在网上发表评论的人，但我不确定在这种情况下我还有其他选择。
 > 

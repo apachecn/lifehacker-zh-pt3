@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名执行保镖我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-a-executive-body-guard-1778714984](https://lifehacker.com/career-spotlight-what-i-do-as-an-executive-body-guard-1778714984)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-executive-body-guard-1778714984>
 
 对于那些可能成为犯罪分子或狂热粉丝目标的人来说，私人保安可不是闹着玩的。但需要安全保护的不只是名人；高级公司商务人士也可能面临威胁，富有的个人也是如此，不管他们的名声如何。
 

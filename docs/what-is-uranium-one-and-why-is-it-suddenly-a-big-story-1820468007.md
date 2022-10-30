@@ -1,6 +1,6 @@
 # 铀壹公司是什么，为什么突然成了大新闻？
 
-> 原文:[https://life hacker . com/what-is u-one and why-it ' s a think-a-big-story-1820468007](https://lifehacker.com/what-is-uranium-one-and-why-is-it-suddenly-a-big-story-1820468007)
+> 原文：<https://lifehacker.com/what-is-uranium-one-and-why-is-it-suddenly-a-big-story-1820468007>
 
 有时，某些单词和短语会出现在右翼单词云中——耶利米·赖特、出生证明、文斯·福斯特、肯尼亚、班加西。最新登上前台的是《铀一号》(Uranium One)，这是关于克林顿涉嫌渎职的最新报道，成为右翼和主流媒体的头条新闻。
 

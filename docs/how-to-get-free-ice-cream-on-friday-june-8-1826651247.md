@@ -1,6 +1,6 @@
 # 如何在 6 月 8 日星期五获得免费冰淇淋
 
-> 原文:[https://life hacker . com/how-to-get-free-ice-cream-on-Friday-June-8-1826651247](https://lifehacker.com/how-to-get-free-ice-cream-on-friday-june-8-1826651247)
+> 原文：<https://lifehacker.com/how-to-get-free-ice-cream-on-friday-june-8-1826651247>
 
 不要介意你可能不知道全国最好朋友日的存在——你仍然可以通过得到一些免费的冰淇淋来庆祝它。为了纪念这个“节日”，如果你碰巧住在纽约、芝加哥、费城或旧金山，Breyers 将在 6 月 8 日星期五中午为你和你最好的朋友提供免费的饼干和奶油 Breyers。
 

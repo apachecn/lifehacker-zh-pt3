@@ -1,6 +1,6 @@
 # 如何阻止你的 Sonos 收集(同样多的)个人数据
 
-> 原文:[https://life hacker . com/how-to-stop-your-sonos-from-collecting-as-much-person-1798403771](https://lifehacker.com/how-to-stop-your-sonos-from-collecting-as-much-person-1798403771)
+> 原文：<https://lifehacker.com/how-to-stop-your-sonos-from-collecting-as-much-person-1798403771>
 
 坏消息，Sonos 客户:为了给即将到来的语音助手支持打基础，该公司要求用户同意一项 [更新的隐私政策](http://www.sonos.com/en-us/legal/privacy#additional-data) ，其中包括强制性的数据收集规则和对未来设备功能的提及。如果你不同意上述政策更新，你的设备的基本功能可能会停止工作， [根据消费主义](https://consumerist.com/2017/08/23/sonos-holds-software-updates-hostage-if-you-dont-sign-new-privacy-agreement/) 。
 

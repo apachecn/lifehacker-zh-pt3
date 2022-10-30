@@ -1,6 +1,6 @@
 # 不是巧克力的情人节食物
 
-> 原文:[https://life hacker . com/food-valentines-that-parent-chocolate-1822808386](https://lifehacker.com/food-valentines-that-arent-chocolate-1822808386)
+> 原文：<https://lifehacker.com/food-valentines-that-arent-chocolate-1822808386>
 
 我喜欢惠特曼的样品瓶，但我是在 2 月 15 日沃尔格林打折时为自己买的。虽然我不是一个会在情人节拒绝一盒巧克力的人，但送他们巧克力会让人觉得有点不近人情，我们可以做得更好。
 

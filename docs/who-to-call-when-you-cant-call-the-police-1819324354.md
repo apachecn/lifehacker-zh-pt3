@@ -1,6 +1,6 @@
 # 当你不能报警时，该找谁
 
-> 原文:[https://life hacker . com/who-to-call-when-you-can-call-the-police-1819324354](https://lifehacker.com/who-to-call-when-you-cant-call-the-police-1819324354)
+> 原文：<https://lifehacker.com/who-to-call-when-you-cant-call-the-police-1819324354>
 
 本周末，民权活动人士、the Intercept 的作家肖恩·金(Shaun King)在他的脸书主页上发帖称，肯尼索州立大学(Kennesaw State University)的啦啦队员在国歌演奏期间跪下，随后在家中遭到当地执法部门的骚扰。
 

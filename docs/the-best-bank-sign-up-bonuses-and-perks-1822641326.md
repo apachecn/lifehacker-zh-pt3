@@ -1,6 +1,6 @@
 # 最好的银行签约奖金和津贴
 
-> 原文:[https://life hacker . com/the-best-bank-sign-up-bonus-and-perks-1822641326](https://lifehacker.com/the-best-bank-sign-up-bonuses-and-perks-1822641326)
+> 原文：<https://lifehacker.com/the-best-bank-sign-up-bonuses-and-perks-1822641326>
 
 假设 [你的银行烂了](https://lifehacker.com/wells-fargo-customers-should-check-their-bank-accounts-1822193514) ，待你很差，而 [你准备和他们分手。当你在寻找一个新的、更好的地方存钱时，记住这一点:一些银行会付钱给你。](https://twocents.lifehacker.com/signs-its-time-to-leave-your-bank-and-how-to-choose-a-1749343101)
 

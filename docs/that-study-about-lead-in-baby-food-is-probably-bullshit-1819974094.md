@@ -1,6 +1,6 @@
 # 那项关于婴儿食品中含铅量的研究是无稽之谈
 
-> 原文:[https://life hacker . com/the-study-about-lead-in-baby-food-possible-but-1819974094](https://lifehacker.com/that-study-about-lead-in-baby-food-is-probably-bullshit-1819974094)
+> 原文：<https://lifehacker.com/that-study-about-lead-in-baby-food-is-probably-bullshit-1819974094>
 
 一项新的研究表明，我们的孩子正在大量摄入婴儿食品和配方奶粉中的铅和其他污染物。但是这项研究有些可疑。首先，它来自一个主张标签“透明”的团体...但是隐藏了他们所有的数据。
 

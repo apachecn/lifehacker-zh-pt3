@@ -1,6 +1,6 @@
 # 如果你是个疯子，又是个建筑师，就建造这个小吃馆吧
 
-> 原文:[https://life hacker . com/build-this-snack-stadium-if-you-psycho-and-an-1822669974](https://lifehacker.com/build-this-snack-stadium-if-you-are-insane-and-also-an-1822669974)
+> 原文：<https://lifehacker.com/build-this-snack-stadium-if-you-are-insane-and-also-an-1822669974>
 
 你喜欢足球吗？你爱吃零食吗？你有 10 英寸的双斜面斜切锯吗？然后准备好一个 DIY 项目，让小孩子和超级碗派对的客人同样开心。因为我们都知道谁赢谁输并不重要，重要的是在你的双人床大小的胶合板小吃体育场的鳄梨草皮下有多少层蘸酱，还有微型泛光灯和功能性大屏幕。
 

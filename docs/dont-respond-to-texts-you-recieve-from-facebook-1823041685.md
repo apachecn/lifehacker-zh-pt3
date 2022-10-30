@@ -1,6 +1,6 @@
 # 不要回复你从脸书收到的短信
 
-> 原文:[https://life hacker . com/dont-response-to-texts-you-receive-from-Facebook-1823041685](https://lifehacker.com/dont-respond-to-texts-you-recieve-from-facebook-1823041685)
+> 原文：<https://lifehacker.com/dont-respond-to-texts-you-recieve-from-facebook-1823041685>
 
 如果你收到脸书的短信，你可能不想回复——即使你的回复是“别给我发短信了”
 

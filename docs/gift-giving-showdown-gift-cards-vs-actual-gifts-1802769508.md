@@ -1,6 +1,6 @@
 # 送礼摊牌:礼品卡与实际礼物
 
-> 原文:[https://life hacker . com/gift-giving-show-down-gift-cards-vs-actual-gifts-1802769508](https://lifehacker.com/gift-giving-showdown-gift-cards-vs-actual-gifts-1802769508)
+> 原文：<https://lifehacker.com/gift-giving-showdown-gift-cards-vs-actual-gifts-1802769508>
 
 如果你认为庆祝圣诞节的开始还为时过早，请三思。当然，现在还不是 10 月的第一周，但是 9 月基本上就是 11 月，11 月实际上就是圣诞节，所以你可能应该开始考虑你会给你的朋友和家人买什么了。如果你想给朋友、爱人或同事买份礼物，你可能会发现挑选“最完美的礼物”是一次充满犹豫不决的经历。
 

@@ -1,6 +1,6 @@
 # 如何记住别人的名字
 
-> 原文:[https://life hacker . com/use-mnemonic-devices-to-help-remember-new-peoples-names-1827955534](https://lifehacker.com/use-mnemonic-devices-to-help-remember-new-peoples-names-1827955534)
+> 原文：<https://lifehacker.com/use-mnemonic-devices-to-help-remember-new-peoples-names-1827955534>
 
 当你遇到人时，尤其是在某个地方同时遇到很多人，比如一次社交活动，一开始很难记住他们的名字。
 

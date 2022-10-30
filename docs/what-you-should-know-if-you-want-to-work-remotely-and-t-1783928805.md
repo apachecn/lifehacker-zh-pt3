@@ -1,6 +1,6 @@
 # 如果你想远程工作并环游世界，你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-if-you-want-to-work-and-t-1783928805](https://lifehacker.com/what-you-should-know-if-you-want-to-work-remotely-and-t-1783928805)
+> 原文：<https://lifehacker.com/what-you-should-know-if-you-want-to-work-remotely-and-t-1783928805>
 
 如果你足够幸运，可以在任何地方工作，你可以利用你的自由，在旅行的时候工作。我们自己的 [斯蒂芬妮·李](https://kinja.com/superlee7) 在过去的九个月里就像这些“数字流浪者”中的一员，带着几个手提箱和她的笔记本电脑。如果你也想成为其中一员，这里有一些实用的东西需要考虑。
 

@@ -1,6 +1,6 @@
 # 最好的瑜伽姿势适合初学者和不灵活的人
 
-> 原文:[https://life hacker . com/the-best-yoga-poses-for-初学者和不灵活的人-1798551522](https://lifehacker.com/the-best-yoga-poses-for-beginners-and-inflexible-people-1798551522)
+> 原文：<https://lifehacker.com/the-best-yoga-poses-for-beginners-and-inflexible-people-1798551522>
 
 做瑜伽不一定要灵活，尽管它对一些体式确实有帮助。但是即使你有世界上最紧的腿筋，你也可以做很多动作。我们喜欢《健康》 的这个列表，它突出了不需要太多灵活性就能开始的伟大的初学者姿势。这里有几个可以试试:
 

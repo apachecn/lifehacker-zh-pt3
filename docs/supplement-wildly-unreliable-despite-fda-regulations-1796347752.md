@@ -1,6 +1,6 @@
 # 尽管有食品和药物管理局的规定，补充剂非常不可靠
 
-> 原文:[https://gizmodo . com/supplement-wildly-unreliable-尽管-fda-regulations-1796347752](https://gizmodo.com/supplement-wildly-unreliable-despite-fda-regulations-1796347752)
+> 原文：<https://gizmodo.com/supplement-wildly-unreliable-despite-fda-regulations-1796347752>
 
 很多人对补品有自己的看法。但是当你去商店买的时候，你会期望有效成分的数量是一致的，对吗？显然，这似乎不会发生。
 

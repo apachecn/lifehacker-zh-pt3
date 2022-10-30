@@ -1,6 +1,6 @@
 # 让孩子们假装自己在 YouTube 上，帮助他们学习
 
-> 原文:[https://life hacker . com/help-kids-study-by-having-they-on-a-you-1822307929](https://lifehacker.com/help-kids-study-by-having-them-pretend-theyre-on-a-yout-1822307929)
+> 原文：<https://lifehacker.com/help-kids-study-by-having-them-pretend-theyre-on-a-yout-1822307929>
 
 如果一个孩子正在努力学习学校的材料，很难知道如何帮助。父母试图提供指导，说，“做抽认卡”，“听一些古典音乐”，或者“问谷歌。”然而，最大的影响可能是让他们改变角色。
 

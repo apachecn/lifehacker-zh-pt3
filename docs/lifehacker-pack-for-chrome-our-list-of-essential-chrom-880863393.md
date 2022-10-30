@@ -1,6 +1,6 @@
 # Chrome 的 Lifehacker 包:我们的基本扩展列表
 
-> 原文:[https://life hacker . com/life hacker-pack-for-chrome-our-list-of-essential-chrom-880863393](https://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393)
+> 原文：<https://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393>
 
 谷歌的 Chrome 浏览器充满了难以置信的扩展，增加了各种功能。虽然很难在商店中筛选出有用的东西，但让我们通过收集我们最喜欢的 Chrome 扩展来节省您的时间。
 

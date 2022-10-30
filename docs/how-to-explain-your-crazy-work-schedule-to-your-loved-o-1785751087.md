@@ -1,6 +1,6 @@
 # 如何向你爱的人解释你疯狂的工作日程
 
-> 原文:[https://life hacker . com/how-to-how-explain-your-loved-o-1785751087](https://lifehacker.com/how-to-explain-your-crazy-work-schedule-to-your-loved-o-1785751087)
+> 原文：<https://lifehacker.com/how-to-explain-your-crazy-work-schedule-to-your-loved-o-1785751087>
 
 对于成功人士来说，努力做到最好是工作职责的一部分。挑战你的极限是令人兴奋的，完成你的目标是令人振奋的。当你达到一个重要的里程碑、获得一个新客户或启动一个新项目时，看到你的职业抱负变成现实是令人激动的。
 

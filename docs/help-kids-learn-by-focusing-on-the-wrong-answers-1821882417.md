@@ -1,6 +1,6 @@
 # 通过关注错误的答案来帮助孩子学习
 
-> 原文:[https://life hacker . com/help-kids-learn-by-focusing-on-the-wrong-answers-1821882417](https://lifehacker.com/help-kids-learn-by-focusing-on-the-wrong-answers-1821882417)
+> 原文：<https://lifehacker.com/help-kids-learn-by-focusing-on-the-wrong-answers-1821882417>
 
 一堂典型的美国课堂可能是这样的
 

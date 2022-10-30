@@ -1,6 +1,6 @@
 # iOS 9 中你可以问 Siri 的所有新东西
 
-> 原文:[https://life hacker . com/all-the-new-stuff-you-ask-Siri-in-IOs-9-1732886608](https://lifehacker.com/all-the-new-stuff-you-can-ask-siri-in-ios-9-1732886608)
+> 原文：<https://lifehacker.com/all-the-new-stuff-you-can-ask-siri-in-ios-9-1732886608>
 
 苹果推出 iOS 9 时的一大话题是 Siri 将如何变得更好、更“主动”。我们最初真的不知道这意味着什么，但现在 iOS 已经存在一周了，我们对你可以要求它做什么有了更好的想法。让我们来看看。
 

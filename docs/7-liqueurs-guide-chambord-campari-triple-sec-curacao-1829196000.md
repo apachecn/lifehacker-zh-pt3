@@ -1,6 +1,6 @@
 # 你可以用的酒:7 种利口酒比一种鸡尾酒更好
 
-> 原文:[https://the take out . com/7-liquieurs-guide-chambord-campari-triple-sec-curacao-1829196000](https://thetakeout.com/7-liqueurs-guide-chambord-campari-triple-sec-curacao-1829196000)
+> 原文：<https://thetakeout.com/7-liqueurs-guide-chambord-campari-triple-sec-curacao-1829196000>
 
 就像烹饪一样，鸡尾酒也是如此:有时有一个食谱你非常想尝试，听起来很不错，你已经得到了你需要的大部分东西，但有一种成分——一种香料，一种不寻常的醋，等等——你没有，但绝对需要，并且可能永远不会再使用。大多数时候，你会说，“哦，管他呢，”然后就买了。它不能让你花那么多钱。
 

@@ -1,6 +1,6 @@
 # 我们应该做什么经典的砂锅菜？
 
-> 原文:[https://life hacker . com/what-classic-sarbang-should-we-make-over-1826199644](https://lifehacker.com/what-classic-casserole-should-we-make-over-1826199644)
+> 原文：<https://lifehacker.com/what-classic-casserole-should-we-make-over-1826199644>
 
 大家好，欢迎回到 [*将它砂锅*](https://lifehacker.com/tag/will-it-casserole) ，在这个栏目里我们看到哪些饭菜、菜肴、菜系可以重新想象，改造成砂锅。
 

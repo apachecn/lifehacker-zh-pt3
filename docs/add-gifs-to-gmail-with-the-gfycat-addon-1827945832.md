@@ -1,6 +1,6 @@
 # 使用 Gfycat 插件将 gif 添加到 Gmail
 
-> 原文:[https://life hacker . com/add-gifs-to-Gmail-with-gfy cat-addon-1827945832](https://lifehacker.com/add-gifs-to-gmail-with-the-gfycat-addon-1827945832)
+> 原文：<https://lifehacker.com/add-gifs-to-gmail-with-the-gfycat-addon-1827945832>
 
 有时候用 GIF 能更好地表达事情，但是在电子邮件中添加 GIF 有时候说起来容易做起来难。本周，Gyftcat 发布了一个 Gmail 插件，它消除了在你发给每个人的邮件中添加 gif 图片的麻烦，从你的老板到你最好的朋友都很容易做到。
 

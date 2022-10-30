@@ -1,6 +1,6 @@
 # 美国国家安全局泄密者因现代打印机技术而暴露
 
-> 原文:[https://life hacker . com/NSA-leaker-out-感谢现代打印机技术-1795854132](https://lifehacker.com/nsa-leaker-outed-thanks-to-modern-printer-technology-1795854132)
+> 原文：<https://lifehacker.com/nsa-leaker-outed-thanks-to-modern-printer-technology-1795854132>
 
 周六，将机密文件泄露给的美国国家安全局承包商 Reality Leigh Winner 被捕。美国国家安全局泄露的情报报告详细描述了俄罗斯据称针对选举官员和电子投票设备公司 VR Systems 的网络攻击。
 

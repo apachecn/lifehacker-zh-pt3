@@ -1,6 +1,6 @@
 # 这里有一些简单的工作可以让你开始修理汽车
 
-> 原文:[https://jalopnik . com/here-is-some-some-easy-jobs-get-you-started-with-work-1769614512](https://jalopnik.com/here-are-some-easy-jobs-to-get-you-started-with-working-1769614512)
+> 原文：<https://jalopnik.com/here-are-some-easy-jobs-to-get-you-started-with-working-1769614512>
 
 如果你想学习修理汽车，你可能不想从改造发动机或更换变速器中的离合器开始，就像你不会开始小学数学学习 [拉普拉斯变换](https://en.wikipedia.org/wiki/Laplace_transform) 。最好从不那么吓人的东西开始。
 

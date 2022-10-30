@@ -1,6 +1,6 @@
 # 如何在恋爱中第一次提出钱的问题
 
-> 原文:[https://life hacker . com/how-to-up the money for the first-time-in-a-relations-1798409991](https://lifehacker.com/how-to-bring-up-money-for-the-first-time-in-a-relations-1798409991)
+> 原文：<https://lifehacker.com/how-to-bring-up-money-for-the-first-time-in-a-relations-1798409991>
 
 所以你开始和一个新的人约会，了解他们的各种新情况:他们在哪里长大，他们的希望和梦想是什么，他们对最新一季《GoT》的感觉如何，等等。唯一一件你完全不知道的事情是 [他们的财务状况](https://lifehacker.com/the-money-conversations-to-have-when-your-relationship-1688122484)——问起来似乎很尴尬。
 

@@ -1,6 +1,6 @@
 # 重新利用厨余的 10 个聪明方法
 
-> 原文:[https://life hacker . com/top-10-clever-ways-to-purpose-your ' s kitchen-scrap-1785661793](https://lifehacker.com/top-10-clever-ways-to-repurpose-your-kitchen-scraps-1785661793)
+> 原文：<https://lifehacker.com/top-10-clever-ways-to-repurpose-your-kitchen-scraps-1785661793>
 
 蔬菜皮、咖啡渣、玉米棒、烘干机棉绒——它们肯定都是废物，但这些垃圾中有宝藏。显而易见，你可以将它们制成堆肥，但让我们来谈谈一些更聪明的方法，在这些厨余进入垃圾箱之前再利用它们。
 

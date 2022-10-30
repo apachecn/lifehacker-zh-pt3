@@ -1,6 +1,6 @@
 # 这个网络应用描绘了北美的土著历史
 
-> 原文:[https://life hacker . com/this-we b-app-maps-out-north-Americas-indigenous-history-1796488592](https://lifehacker.com/this-web-app-maps-out-north-americas-indigenous-history-1796488592)
+> 原文：<https://lifehacker.com/this-web-app-maps-out-north-americas-indigenous-history-1796488592>
 
 让任何人说出一个美国土著部落的名字，你可能会得到同样多的名字(或者是茫然的凝视)。但是可视化工具 [故土](http://native-land.ca/) 可以帮你识别数百个部落，甚至是你当前所在城镇的部落。这是一个丰富多彩、信息丰富的视觉化图像，也是通向你可能不知道的历史的大门。
 

@@ -1,6 +1,6 @@
 # 小心最难组装的宜家家具
 
-> 原文:[https://life hacker . com/当心最难组装的宜家家具-1819229551](https://lifehacker.com/watch-out-for-the-hardest-to-assemble-ikea-furniture-1819229551)
+> 原文：<https://lifehacker.com/watch-out-for-the-hardest-to-assemble-ikea-furniture-1819229551>
 
 有些人喜欢挑战，喜欢无言的指令和五十小包小螺丝带来的冥想般的宁静。但是有些人一看到六角钥匙就会尖叫。取决于你属于哪一类，这要么是一个挑战，要么是一个远离的警告。
 

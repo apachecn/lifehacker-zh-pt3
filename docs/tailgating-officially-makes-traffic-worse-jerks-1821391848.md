@@ -1,6 +1,6 @@
 # 尾随官方使交通更糟，混蛋
 
-> 原文:[https://life hacker . com/tailgating-official-make-traffic-words-jerks-1821391848](https://lifehacker.com/tailgating-officially-makes-traffic-worse-jerks-1821391848)
+> 原文：<https://lifehacker.com/tailgating-officially-makes-traffic-worse-jerks-1821391848>
 
 如果你曾经遇到过“幽灵般的交通堵塞”，或者没有明显原因的交通减速，很可能是一些货车尾随某人。麻省理工学院的研究人员发现，尾随不仅不能让你更快到达任何地方，它实际上造成了本不应该存在的交通堵塞。
 

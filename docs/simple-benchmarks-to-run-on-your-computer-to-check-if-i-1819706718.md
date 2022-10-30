@@ -1,6 +1,6 @@
 # 在您的计算机上运行简单的基准测试来检查它是否运行良好
 
-> 原文:[https://gizmodo . com/simple-benchmarks-to-run-on-your-computer-to-check-if-I-1819706718](https://gizmodo.com/simple-benchmarks-to-run-on-your-computer-to-check-if-i-1819706718)
+> 原文：<https://gizmodo.com/simple-benchmarks-to-run-on-your-computer-to-check-if-i-1819706718>
 
 乍一看，您桌上的电脑可能与去年的型号或您同事拥有的型号很相似，但外观可能具有欺骗性-如果您真的想对您的笔记本电脑进行评级，并在功耗和性能方面找到自己的位置，这就是基准测试的用武之地。
 

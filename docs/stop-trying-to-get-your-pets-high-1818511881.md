@@ -1,6 +1,6 @@
 # 不要试图让你的宠物兴奋
 
-> 原文:[https://life hacker . com/stop-try-to-get-your-pets-high-1818511881](https://lifehacker.com/stop-trying-to-get-your-pets-high-1818511881)
+> 原文：<https://lifehacker.com/stop-trying-to-get-your-pets-high-1818511881>
 
 你的毛茸茸的朋友可能看起来有点紧张，但你应该忍住让他们感觉超级冷的冲动，用宠物锅产品(或任何你自己的产品)。还有太多我们不知道的。
 

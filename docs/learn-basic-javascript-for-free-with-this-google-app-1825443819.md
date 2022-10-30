@@ -1,6 +1,6 @@
 # 使用谷歌的 Grasshopper 应用程序免费学习基本编码
 
-> 原文:[https://life hacker . com/learn-basic-JavaScript-for-free-with-this-Google-app-1825443819](https://lifehacker.com/learn-basic-javascript-for-free-with-this-google-app-1825443819)
+> 原文：<https://lifehacker.com/learn-basic-javascript-for-free-with-this-google-app-1825443819>
 
 如果你想学习如何编码，有大量的资源可以帮助你学习。像 Codecademy、Udacity 和 Khan Academy 这样的网站可以帮助你稍微尝试一下，看看编码是否适合你。本周，来自谷歌的一个团队推出了另一个选项， [一款名为 Grasshopper](https://grasshopper.codes/) 的手机应用，可以帮助你在早晨通勤期间学习 Javascript。
 

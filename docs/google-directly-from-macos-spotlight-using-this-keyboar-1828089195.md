@@ -1,6 +1,6 @@
 # 使用此快捷键直接从 MacOS Spotlight 中搜索
 
-> 原文:[https://life hacker . com/Google-direct-from-MAC OS-spot light-using-this-keyboar-1828089195](https://lifehacker.com/google-directly-from-macos-spotlight-using-this-keyboar-1828089195)
+> 原文：<https://lifehacker.com/google-directly-from-macos-spotlight-using-this-keyboar-1828089195>
 
 有时候你想 Google(或者 Bing？由你做主...)的东西，但打开另一个浏览器标签感觉有点太费力了。如果你使用 MacOS，试试这个方便的键盘命令，让 Spotlight 的搜索查询 [自动在你默认浏览器的搜索引擎中打开。](https://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836) 
 

@@ -1,6 +1,6 @@
 # iPhone 电子邮件摊牌:火花 vs .航空邮件
 
-> 原文:[https://life hacker . com/iphone-email-摊牌-spark-vs-airmail-1792225371](https://lifehacker.com/iphone-email-showdown-spark-vs-airmail-1792225371)
+> 原文：<https://lifehacker.com/iphone-email-showdown-spark-vs-airmail-1792225371>
 
 多年来，iPhone 电子邮件应用程序游戏发生了很大变化，唯一不变的是，似乎没有一个应用程序能一直保持领先地位。目前，两个最受欢迎的选择是航空邮件和火花。让我们来看看是什么让它们与众不同。
 

@@ -1,6 +1,6 @@
 # 我通过关注过程，而不是目标，硬拉了 275 磅
 
-> 原文:[https://life hacker . com/I-deadlifed-275-pounds-by-focusing-on-the-process-not-1794598262](https://lifehacker.com/i-deadlifted-275-pounds-by-focusing-on-the-process-not-1794598262)
+> 原文：<https://lifehacker.com/i-deadlifted-275-pounds-by-focusing-on-the-process-not-1794598262>
 
 2015 年 8 月，我大胆宣布我将成为一名“硬拉硬汉”。在我自己的世界里，这意味着能够硬拉 300 磅。当时我在 205 磅的体重中挣扎，所以 300 磅感觉像是一个梦想的目标，一个 4 岁的孩子可能会脱口而出的那种目标。然后，上周我终于第一次硬拉了 275 磅！
 

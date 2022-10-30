@@ -1,6 +1,6 @@
 # 飞行员权利的神话
 
-> 原文:[https://life hacker . com/the-myth-of-flyer-s-rights-1795169133](https://lifehacker.com/the-myth-of-flyer-s-rights-1795169133)
+> 原文：<https://lifehacker.com/the-myth-of-flyer-s-rights-1795169133>
 
 飞行员当心。
 

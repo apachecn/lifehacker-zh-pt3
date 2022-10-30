@@ -1,6 +1,6 @@
 # 让你的浏览器标签为你带来小狗小猫的快乐
 
-> 原文:[https://life hacker . com/let-your-browser-tabs-cheer-you-up-with-dogs-and-kit-1827187447](https://lifehacker.com/let-your-browser-tabs-cheer-you-up-with-puppies-and-kit-1827187447)
+> 原文：<https://lifehacker.com/let-your-browser-tabs-cheer-you-up-with-puppies-and-kit-1827187447>
 
 Chrome，Firefox: 对我们许多人来说，这是艰难的一周，很可能你现在有点压力过大。
 

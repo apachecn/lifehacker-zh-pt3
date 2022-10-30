@@ -1,6 +1,6 @@
 # 制定一个你会真正坚持的饮食计划
 
-> 原文:[https://life hacker . com/create-a-meal-plan-you-really-stick-to-1821880607](https://lifehacker.com/create-a-meal-plan-youll-actually-stick-to-1821880607)
+> 原文：<https://lifehacker.com/create-a-meal-plan-youll-actually-stick-to-1821880607>
 
 一月是让你的房子井然有序的月份，没有一个人的生活像烹饪一样得到如此大的改善。膳食计划通常被视为一切的关键，但如果不实施 ，那么 [计划将一事无成。](https://www.youtube.com/watch?v=CQBU5CAam9A) 
 

@@ -1,6 +1,6 @@
 # 如果你的收容所狗不适合你，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-your-shelter-dog-not-a-good-fit-1797788574](https://lifehacker.com/what-to-do-if-your-shelter-dog-isnt-a-good-fit-1797788574)
+> 原文：<https://lifehacker.com/what-to-do-if-your-shelter-dog-isnt-a-good-fit-1797788574>
 
 我们都知道“领养，不要购物”这句口头禅虽然许多收容所的狗都是令人惊叹的、可爱的、快乐的宠物，但你可能最终选择了一只不符合你要求的狗——而且你可能直到已经签署了收养文件才意识到这一点。我们都见证了 [莉娜·杜汉姆与她收养的狗](https://www.nytimes.com/2017/07/07/arts/lena-dunham-lamby-dog.html) 的不幸不匹配，小羊羊。如果你遇到了类似的情况，以下是你应该做的。
 

@@ -1,6 +1,6 @@
 # 最好的 Alexa 技能添加到您的亚马逊回声
 
-> 原文:[https://life hacker . com/the-Alexa-skills-that-is-actually-value-use-1791616099](https://lifehacker.com/the-alexa-skills-that-are-actually-worth-using-1791616099)
+> 原文：<https://lifehacker.com/the-alexa-skills-that-are-actually-worth-using-1791616099>
 
 你可以用亚马逊称为“Alexa 技能”的小应用程序给你的 [亚马逊 Echo](https://www.amazon.com/Amazon-Echo-Bluetooth-Speaker-with-Alexa-Black/dp/B00X4WHP5E/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-alexa-skills-that-are-actually-worth-using-1791616099&asc_source=&tag=kinjalifehackerlink-20) 添加大量功能大部分都是垃圾。我们从这些乱七八糟的东西中筛选出实际上有用的最好的。
 

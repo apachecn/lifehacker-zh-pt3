@@ -1,6 +1,6 @@
 # 索尼继续喝 Bose 的奶昔
 
-> 原文:[https://gizmodo . com/Sony-continues-to-drink-boses-milk shake-1828936849](https://gizmodo.com/sony-continues-to-drink-boses-milkshake-1828936849)
+> 原文：<https://gizmodo.com/sony-continues-to-drink-boses-milkshake-1828936849>
 
 如果你听听索尼 所说的 [，你可能会认为第三代索尼 1000X 无线耳机是关于更好的噪音消除。这不是一个错误的假设。该公司设法使其著名的降噪耳机——T4——消除了更多的噪音。但是引起我注意的是它们要舒服得多。这是一次时髦的升级，因为索尼的主要竞争对手 Bose 在其耳机的名称中加入了“舒适”一词。](https://www.youtube.com/watch?v=qD-Yud_d1M8)
 

@@ -1,6 +1,6 @@
 # 通常被盗的汽车价值低于其零件的总和
 
-> 原文:[https://jalopnik . com/普通被盗汽车的价值低于 1823163063](https://jalopnik.com/commonly-stolen-cars-are-worth-less-than-the-sum-of-the-1823163063)
+> 原文：<https://jalopnik.com/commonly-stolen-cars-are-worth-less-than-the-sum-of-the-1823163063>
 
 大多数汽车盗窃案并不涉及一系列秘密超级跑车和尼古拉斯凯奇驾驶野马跑车。新款丰田凯美瑞、尼桑 Altimas 和 GMC Sierras 显然是被偷的，因为仅仅几个容易拆卸的零件就几乎比整辆车还值钱。
 

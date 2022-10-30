@@ -1,6 +1,6 @@
 # 保持你的潘趣酒冰凉的最好方法
 
-> 原文:[https://life hacker . com/the-best-way-keep-your-punch-cold-1826422200](https://lifehacker.com/the-best-way-to-keep-your-punch-cold-1826422200)
+> 原文：<https://lifehacker.com/the-best-way-to-keep-your-punch-cold-1826422200>
 
 一堆潘趣酒尖叫着“派对”，但是一个玻璃碗——虽然非常漂亮——从热力学角度来说并不是最好的选择，尤其是如果你在户外服务的话。再加上以融化著称的冰，你的潘趣酒可以很快变得温暖而湿润。
 

@@ -1,6 +1,6 @@
 # 这是专业摄影师背包里的东西
 
-> 原文:[https://life hacker . com/here-s-what-a-photo-pro-bring-in-his-backpack-1819362864](https://lifehacker.com/here-s-what-a-photo-pro-brings-in-his-backpack-1819362864)
+> 原文：<https://lifehacker.com/here-s-what-a-photo-pro-brings-in-his-backpack-1819362864>
 
 你可能不会屈服于为你的老式相机购买最新的无反光镜机身或昂贵镜头的呼吁，但许多人经常购买他们不需要的产品 ，钱包被诅咒。我自己也患有 [小玩意癖](https://lifehacker.com/how-do-you-deal-with-gadget-lust-345520) ，这让我不得不购买对我很少遇到的情况有用的镜头(我最近购买的尼康微距镜头现在放在书桌抽屉里，没有用过)。
 

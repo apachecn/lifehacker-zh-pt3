@@ -1,6 +1,6 @@
 # 用这些技巧打破你无聊的购物习惯
 
-> 原文:[https://life hacker . com/用这些把戏打破你的无聊购物习惯-1797629495](https://lifehacker.com/break-your-boredom-shopping-habits-with-these-tricks-1797629495)
+> 原文：<https://lifehacker.com/break-your-boredom-shopping-habits-with-these-tricks-1797629495>
 
 我有一个坏习惯。周六晚上，喝了几杯夏布利酒，无所事事了一晚上后，我会浏览一下我的亚马逊购物清单，寻找一些可以买的东西。这是一个代价高昂的习惯，我的家里堆满了廉价的书籍、 [昂贵的高达模型套件](http://kotaku.com/someone-wants-to-pay-9-000-for-a-gundam-model-1466547288) ，还有一些我还没来得及用的 E 型转接环镜头。另一位 redditor [xsp4rrow 也有类似的问题](https://www.reddit.com/r/personalfinance/comments/6qoakm/i_buy_things_online_when_im_bored_and_i_honestly/) ，当他们无聊时它会抬起头。
 

@@ -1,6 +1,6 @@
 # 为什么你的应急储蓄应该看起来像一个“备用”账户
 
-> 原文:[https://life hacker . com/why-your ' s emergency-savings-like-a-1823936366](https://lifehacker.com/why-your-emergency-savings-should-look-like-a-sidecar-a-1823936366)
+> 原文：<https://lifehacker.com/why-your-emergency-savings-should-look-like-a-sidecar-a-1823936366>
 
 美国人很难存钱:[44%的美国人](https://www. federalreserve.gov/publications/files/2016-report-economic-well-beingus-households-201705.pdf) 表示，他们拿不出 400 美元来支付 2016 年的紧急开支。根据非盈利政策机构 [阿斯彭研究所](https://www.aspeninstitute.org/) 的一份 [简报](https://assets.aspeninstitute.org/content/uploads/2017/06/FSP-Sidecar-Accounts-Brief.pdf) 显示，“三分之一的美国人在收入波动中挣扎”，60%的美国人在过去一年经历了一笔意想不到的巨额支出，其中一半在六个月后仍未从财务上恢复。
 

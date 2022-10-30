@@ -1,6 +1,6 @@
 # 处理你不知道如何回答的面试问题的四种方法
 
-> 原文:[https://life hacker . com/four-ways-to-hand-interview-questions-you-not-know-h-1789230045](https://lifehacker.com/four-ways-to-handle-interview-questions-you-dont-know-h-1789230045)
+> 原文：<https://lifehacker.com/four-ways-to-handle-interview-questions-you-dont-know-h-1789230045>
 
 准备面试是一件严肃的事情。但是即使你练习，练习，再练习，你仍然可能 [得到一个你不知道如何回答的问题](https://www.themuse.com/advice/how-to-answer-the-31-most-common-interview-questions) 。无论是一个你从未听说过的技术问题，还是完全出乎意料的问题，这个问题都很难回答，你真的会打乱对话的节奏，让你有点震惊。
 

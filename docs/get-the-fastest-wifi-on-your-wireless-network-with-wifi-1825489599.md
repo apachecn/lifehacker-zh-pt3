@@ -1,6 +1,6 @@
 # 使用 Wifi Explorer for Mac 获得无线网络的最佳速度
 
-> 原文:[https://life hacker . com/get-the-fast-wifi-on-your-wireless-network-with-wifi-1825489599](https://lifehacker.com/get-the-fastest-wifi-on-your-wireless-network-with-wifi-1825489599)
+> 原文：<https://lifehacker.com/get-the-fastest-wifi-on-your-wireless-network-with-wifi-1825489599>
 
 [Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
 

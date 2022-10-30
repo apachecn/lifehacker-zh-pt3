@@ -1,6 +1,6 @@
 # 学生可以通过 Spotify 便宜地获得 Hulu 和 Showtime
 
-> 原文:[https://life hacker . com/students-can-get-Hulu-and-show time-buy-through-spotif-1828723360](https://lifehacker.com/students-can-get-hulu-and-showtime-cheap-through-spotif-1828723360)
+> 原文：<https://lifehacker.com/students-can-get-hulu-and-showtime-cheap-through-spotif-1828723360>
 
 Spotify 为学生们提供了一种非常划算的夏末安慰。
 

@@ -1,6 +1,6 @@
 # 为什么罗斯 401(k)总是(几乎)优于传统的 401(k)[更新]
 
-> 原文:[https://life hacker . com/why-a-Roth-401-k-is-almost-better-a-trad-1827477812](https://lifehacker.com/why-a-roth-401-k-is-almost-always-better-than-a-trad-1827477812)
+> 原文：<https://lifehacker.com/why-a-roth-401-k-is-almost-always-better-than-a-trad-1827477812>
 
 每个人都热衷于 [罗斯个人退休帐户](https://twocents.lifehacker.com/why-you-need-a-roth-ira-1823805955) ，但有一个缺点:有 [收入限制](https://investor.vanguard.com/ira/roth-ira-income-limits) 夫妇起薪 189，000 美元，个人起薪 120，000 美元，这意味着高收入者必须选择传统的个人退休帐户或后门罗斯。然而，事实证明，这些限制*并不适用于 Roth*401(k)s*——这意味着你可以获得雇主计划的所有福利，而不必担心你的收入上限。* 
 

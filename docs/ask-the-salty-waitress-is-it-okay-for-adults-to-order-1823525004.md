@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:成年人可以点儿童菜单上的菜吗？
 
-> 原文:[https://the take out . com/ask-the-salty-waste-it-okay for the-order-1823525004](https://thetakeout.com/ask-the-salty-waitress-is-it-okay-for-adults-to-order-1823525004)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-is-it-okay-for-adults-to-order-1823525004>
 
 * * *
 

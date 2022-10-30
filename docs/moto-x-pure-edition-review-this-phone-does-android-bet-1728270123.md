@@ -1,6 +1,6 @@
 # Moto X 纯版评测:这款手机做安卓比谷歌好
 
-> 原文:[https://gizmodo . com/moto-x-pure-edition-review-this-phone-does-Android-bet-1728270123](https://gizmodo.com/moto-x-pure-edition-review-this-phone-does-android-bet-1728270123)
+> 原文：<https://gizmodo.com/moto-x-pure-edition-review-this-phone-does-android-bet-1728270123>
 
 当谈到以谷歌的方式体验 Android 时，你的选择少得惊人。两个，真的。谷歌自己的 Nexus 智能手机——由一系列不同的硬件合作伙伴制造——和摩托罗拉。新的 Moto X 纯净版是新的未受污染的 Android 冠军。它可以比谷歌做得更好。
 

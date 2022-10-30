@@ -1,6 +1,6 @@
 # Razer 新的更便宜的 Razer Blade Pro 没有任何该死的意义
 
-> 原文:[https://gizmodo . com/Razer-new-bearer-blade-pro-dont-make-any-damn-1819707743](https://gizmodo.com/razers-new-cheaper-razer-blade-pro-doesnt-make-any-damn-1819707743)
+> 原文：<https://gizmodo.com/razers-new-cheaper-razer-blade-pro-doesnt-make-any-damn-1819707743>
 
 总会有人想要一台大而强大的笔记本电脑。我说的是像开发者这样的人，他们想要在贸易展上展示早期的游戏版本，或者是顽固的人，他们在离开家的时候不能在性能上妥协。但是把这些 17 英寸的庞然大物也变成轻薄的东西有什么好处吗？
 

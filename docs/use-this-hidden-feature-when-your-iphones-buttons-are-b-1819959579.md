@@ -1,6 +1,6 @@
 # iPhone 的 Home 键坏了怎么办
 
-> 原文:[https://life hacker . com/use-this-hidden-feature-when-your-iphone-buttons-is-b-1819959579](https://lifehacker.com/use-this-hidden-feature-when-your-iphones-buttons-are-b-1819959579)
+> 原文：<https://lifehacker.com/use-this-hidden-feature-when-your-iphones-buttons-are-b-1819959579>
 
 几年前，当我的 iPhone 上的 home 键坏了的时候，我最终启用了屏幕上的按钮。这不是使用手机的最佳方式，但当时我经常旅行，没有时间去苹果商店修理手机。
 

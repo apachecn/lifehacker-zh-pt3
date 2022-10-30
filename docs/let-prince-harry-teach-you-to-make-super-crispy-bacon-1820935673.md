@@ -1,6 +1,6 @@
 # 让哈里王子教你做超级香脆培根
 
-> 原文:[https://life hacker . com/let-prince-Harry-teach-you-to-make-super-crisp-bacon-1820935673](https://lifehacker.com/let-prince-harry-teach-you-to-make-super-crispy-bacon-1820935673)
+> 原文：<https://lifehacker.com/let-prince-harry-teach-you-to-make-super-crispy-bacon-1820935673>
 
 好像哈里王子这一周做得还不够，用好消息淹没我们的时间表，把梅根汗·马克尔从“谁？”对于现实生活中的黑公主(我知道她会成为公爵夫人，不要@我)，他也给我们带来了一个制作超脆培根的技巧。
 

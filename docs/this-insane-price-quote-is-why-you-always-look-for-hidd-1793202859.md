@@ -1,6 +1,6 @@
 # 这个疯狂的报价就是为什么你总是寻找隐藏的经销商费用
 
-> 原文:[https://jalopnik . com/this-anazy-price-quote-is-why-you-always-look-for-hidd-1793202859](https://jalopnik.com/this-insane-price-quote-is-why-you-always-look-for-hidd-1793202859)
+> 原文：<https://jalopnik.com/this-insane-price-quote-is-why-you-always-look-for-hidd-1793202859>
 
 当我帮助人们买车时，他们经常会问:“在这里我能指望*存*多少钱？ *"* 这是一个很好的问题，但这不是看你是否得到一笔好交易的方法。
 

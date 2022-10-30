@@ -1,6 +1,6 @@
 # 我是 Sha Sha Chu，Pinterest 的工程师，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-sha-sha-Chu-Pinterest-engineer-and-this-is-how-I-p-1826989990](https://lifehacker.com/im-sha-sha-chu-pinterest-engineer-and-this-is-how-i-p-1826989990)
+> 原文：<https://lifehacker.com/im-sha-sha-chu-pinterest-engineer-and-this-is-how-i-p-1826989990>
 
 Sha Sha Chu 是 Pinterest 的 Android 平台技术负责人，该网站让我们将所有喜欢的励志名言、即时烹饪食谱和客房浴室的潜在油漆颜色保存在一个整洁的地方。她当母亲的头几年并不容易，但她正设法应付过去。以下是她为人父母的方式。
 

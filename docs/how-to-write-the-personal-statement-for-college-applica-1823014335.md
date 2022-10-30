@@ -1,6 +1,6 @@
 # 如何写大学申请的个人陈述
 
-> 原文:[https://life hacker . com/how-to-write-the-personal-statement-for-college-applica-1823014335](https://lifehacker.com/how-to-write-the-personal-statement-for-college-applica-1823014335)
+> 原文：<https://lifehacker.com/how-to-write-the-personal-statement-for-college-applica-1823014335>
 
 如果你第一次看到你的高中生通过大学申请过程，你可能会发现这个过程的几个方面让他们像写个人陈述一样恐惧。
 

@@ -1,6 +1,6 @@
 # 你真正需要的运动量是多少？
 
-> 原文:[https://life hacker . com/how-much-exercise-do-I-really-need-1823708126](https://lifehacker.com/how-much-exercise-do-i-really-need-1823708126)
+> 原文：<https://lifehacker.com/how-much-exercise-do-i-really-need-1823708126>
 
 零锻炼是不够的。每天去散步可能是一件好事。如果你正在为马拉松进行训练，你将会每周站起来进行几个小时的艰苦训练。但是，对于一个仅仅试图在生活中挤出足够的健康运动 的人来说，基准是什么呢？我们来分解一下。
 

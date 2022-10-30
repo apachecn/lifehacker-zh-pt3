@@ -1,6 +1,6 @@
 # 如何在夜间尿布泄漏时快速更换婴儿床床单
 
-> 原文:[https://life hacker . com/how-to-fast-change-crib-sheets-when-there-there-a-night ti-1826157023](https://lifehacker.com/how-to-quickly-change-crib-sheets-when-theres-a-nightti-1826157023)
+> 原文：<https://lifehacker.com/how-to-quickly-change-crib-sheets-when-theres-a-nightti-1826157023>
 
 如果你的宝宝在半夜漏了尿布，传统的选择是 1)用干净的床单替换婴儿床床单，在这种罕见的情况下，你缺乏睡眠的大脑会记得留一个备用的，或者 2)洗衣服和哭泣。(你不能把任何旧毯子盖在空床垫上，然后说“早上见”——这可能会有窒息的危险。)
 

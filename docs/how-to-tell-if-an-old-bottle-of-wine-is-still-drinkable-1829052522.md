@@ -1,6 +1,6 @@
 # 如何辨别一瓶老酒是否还能喝
 
-> 原文:[https://life hacker . com/how-to-tell-if-a old-bottle-a wine-is thin-drink-1829052522](https://lifehacker.com/how-to-tell-if-an-old-bottle-of-wine-is-still-drinkable-1829052522)
+> 原文：<https://lifehacker.com/how-to-tell-if-an-old-bottle-of-wine-is-still-drinkable-1829052522>
 
 我大学时在法国学习，并带了相当数量的法国葡萄酒回家。其中一些酒很快就被朋友喝掉了，但有几瓶我一直保存着，多年来从一个公寓搬到另一个公寓，留着在一个“特殊”的场合喝。
 

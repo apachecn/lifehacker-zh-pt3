@@ -1,6 +1,6 @@
 # 科学刚刚更接近于发现我们的移情基因
 
-> 原文:[https://life hacker . com/science-just-get-closed-to-finding-our-empathy-genes-1823683583](https://lifehacker.com/science-just-got-closer-to-finding-our-empathy-genes-1823683583)
+> 原文：<https://lifehacker.com/science-just-got-closer-to-finding-our-empathy-genes-1823683583>
 
 我们经常谈论移情，好像我们可以 [获得更多](https://lifehacker.com/why-empathy-is-your-most-important-skill-and-how-to-pr-1505011685) 如果我们足够努力的话——就像肌肉，或者在糖果粉碎游戏中获得更高的分数。但是今天发布的一项 [新研究](https://www.nature.com/articles/s41398-017-0082-6) 为个体共情差异至少部分由基因决定的观点提供了新的证据。
 

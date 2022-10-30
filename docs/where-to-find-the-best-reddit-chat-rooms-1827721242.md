@@ -1,6 +1,6 @@
 # 哪里可以找到最好的 Reddit 聊天室
 
-> 原文:[https://life hacker . com/where-to-find-the-best-Reddit-chat-rooms-1827721242](https://lifehacker.com/where-to-find-the-best-reddit-chat-rooms-1827721242)
+> 原文：<https://lifehacker.com/where-to-find-the-best-reddit-chat-rooms-1827721242>
 
 Reddit 聊天室 [在这里](https://www.reddit.com/r/community_chat/comments/8465bl/welcome_to_rcommunity_chat/) 。如果你还没有花足够的时间在你朝九晚五的工作日浏览 [/r/aww](http://reddit.com/r/aww) ，[/r/explain like imfive](https://www.reddit.com/r/explainlikeimfive)， [/r/bestof](https://www.reddit.com/r/bestof/) ，或[/r/subreddit drama](http://SubredditDrama)，你现在可以分享你对帖子( [)和生活](https://redditblog.com/2018/07/18/what-i-learned-from-chatting-with-7000-strangers-on-the-internet/) 的想法按 F5 键刷新静态评论页面已经是去年的事情了。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名水管工我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-plumber-1760572480](https://lifehacker.com/career-spotlight-what-i-do-as-a-plumber-1760572480)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-plumber-1760572480>
 
 你可能会认为水管工是带着工具箱到处跑来修理漏水的人，但他们在建筑设计和基础设施中的作用不仅仅是直接影响你滴水的水龙头。
 

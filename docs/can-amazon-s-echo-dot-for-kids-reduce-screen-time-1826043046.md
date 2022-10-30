@@ -1,6 +1,6 @@
 # 亚马逊的儿童 Echo Dot 可以减少屏幕时间吗？
 
-> 原文:[https://life hacker . com/can-Amazon-s-echo-dot-for-kids-reduce-screen-time-1826043046](https://lifehacker.com/can-amazon-s-echo-dot-for-kids-reduce-screen-time-1826043046)
+> 原文：<https://lifehacker.com/can-amazon-s-echo-dot-for-kids-reduce-screen-time-1826043046>
 
 因为我的学龄前儿童的生物钟还没有得到周末我们睡懒觉的提示，我和丈夫通常让她看电视或玩 iPad，我们慢慢地从床上爬起来。虽然她的屏幕时间在工作日是有限的，但在周六和周日早上会出现高峰，我并不总是喜欢这种情况，因为这不知何故会给一天带来轻微的暴躁情绪。然而，这一次，当她在早上 7 点蹦蹦跳跳地走进我们的房间时，我牵着她的手，带她走到厨房餐桌旁等待我们的红色冰球大小的设备前。“我们今天要和 Alexa 出去玩，”我告诉她。
 

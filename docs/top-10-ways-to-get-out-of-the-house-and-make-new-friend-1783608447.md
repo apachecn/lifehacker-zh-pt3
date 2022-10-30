@@ -1,6 +1,6 @@
 # 走出家门结交新朋友的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-get-out of the house and-make-new-friend-1783608447](https://lifehacker.com/top-10-ways-to-get-out-of-the-house-and-make-new-friend-1783608447)
+> 原文：<https://lifehacker.com/top-10-ways-to-get-out-of-the-house-and-make-new-friend-1783608447>
 
 你可能会预测这个列表中的一项，但本周我们将关注应用程序、游戏和其他工具，它们可以改变你的日常生活，让你走出家门，并帮助你探索你的社区——甚至更远。
 

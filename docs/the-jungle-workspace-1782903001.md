@@ -1,6 +1,6 @@
 # 丛林工作区
 
-> 原文:[https://lifehacker.com/the-jungle-workspace-1782903001](https://lifehacker.com/the-jungle-workspace-1782903001)
+> 原文：<https://lifehacker.com/the-jungle-workspace-1782903001>
 
 redditor[silenc 3x](https://www.reddit.com/user/silenc3x)有一个相当独特的工作空间。它占据了这个美丽的阳光房的一个角落，它被植物和绿色植物覆盖，在晚上看起来特别美丽，但在白天也不逊色。他称之为他的“丛林作战站”，我们喜欢它。
 

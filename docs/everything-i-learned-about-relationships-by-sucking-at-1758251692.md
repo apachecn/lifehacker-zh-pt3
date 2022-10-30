@@ -1,6 +1,6 @@
 # 我从糟糕的约会中学到的关于人际关系的一切
 
-> 原文:[https://life hacker . com/everything-I-learn-on-sucking-at-1758251692](https://lifehacker.com/everything-i-learned-about-relationships-by-sucking-at-1758251692)
+> 原文：<https://lifehacker.com/everything-i-learned-about-relationships-by-sucking-at-1758251692>
 
 没人愿意认为自己不擅长约会。我们*尤其是*不愿意认为自己是失败关系中的坏一方。幸运的是，我犯了太多不能忽视的错误。以下是我从人际关系中学到的一些东西，大多是先把它们搞砸的。
 

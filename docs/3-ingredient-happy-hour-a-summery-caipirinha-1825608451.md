@@ -1,6 +1,6 @@
 # 快乐时光三要素:总结
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-summer-caipirinha-1825608451](https://lifehacker.com/3-ingredient-happy-hour-a-summery-caipirinha-1825608451)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-summery-caipirinha-1825608451>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们要制作一种饮料，对我来说，它充分体现了本专栏轻松愉快的精神:caipirinha。
 

@@ -1,6 +1,6 @@
 # 我是 Alicia Adamczyk，Lifehacker 的特约撰稿人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Alicia-adamczyk-life hacker-staff-writer-and-this-I-1829110602](https://lifehacker.com/im-alicia-adamczyk-lifehacker-staff-writer-and-this-i-1829110602)
+> 原文：<https://lifehacker.com/im-alicia-adamczyk-lifehacker-staff-writer-and-this-i-1829110602>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是艾丽西娅·亚当奇克，这就是我的工作方式。
 

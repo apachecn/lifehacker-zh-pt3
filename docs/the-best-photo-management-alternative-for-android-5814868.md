@@ -1,6 +1,6 @@
 # Android 的最佳照片管理选择
 
-> 原文:[https://life hacker . com/the-best-photo-management-alternative-for-Android-5814868](https://lifehacker.com/the-best-photo-management-alternative-for-android-5814868)
+> 原文：<https://lifehacker.com/the-best-photo-management-alternative-for-android-5814868>
 
 你的手机可能是你数码照片收藏的中心，所以你最好有一个最好的照片管理器。凭借其标签系统、易于浏览的界面和方便的隐私功能，Focus 是我们的首选。
 

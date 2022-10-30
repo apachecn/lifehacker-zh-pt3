@@ -1,6 +1,6 @@
 # 用这个 Chrome 扩展快速删除脸书多年的帖子
 
-> 原文:[https://life hacker . com/quick-delete-years-of-Facebook-posts-with the-chrome-1828148008](https://lifehacker.com/quickly-delete-years-of-facebook-posts-with-this-chrome-1828148008)
+> 原文：<https://lifehacker.com/quickly-delete-years-of-facebook-posts-with-this-chrome-1828148008>
 
 当你在大学的时候，上传你做一个史诗般的小桶倒立的视频很酷。既然你已经从法学院毕业，正在寻找一家公司来加入。
 

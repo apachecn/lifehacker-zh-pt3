@@ -1,6 +1,6 @@
 # 如何像奥林匹克运动员一样锻炼
 
-> 原文:[https://life hacker . com/how-to-work-out-like-a-Olympic-athlete-1785006572](https://lifehacker.com/how-to-work-out-like-an-olympic-athlete-1785006572)
+> 原文：<https://lifehacker.com/how-to-work-out-like-an-olympic-athlete-1785006572>
 
 奥林匹克运动员每天花数小时训练，锻炼肌肉，完善技能。奥林匹克训练不仅仅是一种爱好，也不仅仅是为了健康。即便如此，他们的训练可能比我们的更激烈，但我们仍然可以把他们的训练变成我们这些凡人能做的事情。
 

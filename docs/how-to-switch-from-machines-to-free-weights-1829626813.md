@@ -1,6 +1,6 @@
 # 如何从器械转向自由重量
 
-> 原文:[https://life hacker . com/how-to-switch-from-machines-to-free-weights-1829626813](https://lifehacker.com/how-to-switch-from-machines-to-free-weights-1829626813)
+> 原文：<https://lifehacker.com/how-to-switch-from-machines-to-free-weights-1829626813>
 
 免费举重和器械 [各有各的好处](https://lifehacker.com/gym-showdown-free-weights-vs-machines-1789967530) ，但是经常让我们远离举重房的是对未知的恐惧。这里有一个简单的指导，告诉你如何拿起重物，然后再放下，同时看起来你知道自己在做什么。
 

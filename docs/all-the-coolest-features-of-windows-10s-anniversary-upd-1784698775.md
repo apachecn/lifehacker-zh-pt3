@@ -1,6 +1,6 @@
 # Windows 10 周年更新的所有最酷的功能
 
-> 原文:[https://life hacker . com/all-the-cool-features-of-windows-10s-周年纪念-upd-1784698775](https://lifehacker.com/all-the-coolest-features-of-windows-10s-anniversary-upd-1784698775)
+> 原文：<https://lifehacker.com/all-the-coolest-features-of-windows-10s-anniversary-upd-1784698775>
 
 微软针对 Windows 10 的首次重大功能更新 [周年更新](https://blogs.windows.com/windowsexperience/2016/06/29/windows-10-anniversary-update-available-august-2/) 今天发布。它带来了更智能的 Cortana，更好的多种桌面工具，以及修复自 Windows 10 推出以来我们一直讨厌的烦恼的调整。
 

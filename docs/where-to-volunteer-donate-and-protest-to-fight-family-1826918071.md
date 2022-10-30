@@ -1,6 +1,6 @@
 # 去哪里做志愿者、捐款、抗议，以对抗边境的家庭分离
 
-> 原文:[https://life hacker . com/where-to-volunteer-done-and-抗议-to-fight-family-1826918071](https://lifehacker.com/where-to-volunteer-donate-and-protest-to-fight-family-1826918071)
+> 原文：<https://lifehacker.com/where-to-volunteer-donate-and-protest-to-fight-family-1826918071>
 
 川普政府正在通过两项新政策[](https://splinternews.com/to-trump-and-his-strategists-separating-children-from-1826889591#_ga=2.139871099.972888801.1529329488-3846207152.1521480874)[【把孩子关在笼子里】](https://splinternews.com/border-patrol-says-yes-were-definitely-keeping-kids-in-1826915586#_ga=2.139871099.972888801.1529329488-3846207152.1521480874)把孩子和父母 分开。这似乎是一个你无法解决的大问题。但是你可以，用你的时间，金钱，技能，或者只是一个电话。
 

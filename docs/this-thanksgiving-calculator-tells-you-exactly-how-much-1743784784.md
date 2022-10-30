@@ -1,6 +1,6 @@
 # 这个感恩节计算器会告诉你每个人需要多少食物
 
-> 原文:[https://life hacker . com/this-thanksgiving-calculator-tell-you-exact-how-amount-1743784784](https://lifehacker.com/this-thanksgiving-calculator-tells-you-exactly-how-much-1743784784)
+> 原文：<https://lifehacker.com/this-thanksgiving-calculator-tells-you-exactly-how-much-1743784784>
 
 如果你在本周四举办以火鸡为中心的大餐，你可能会对提供多少食物感到焦虑。这个计算器可以帮助解决这个问题。
 

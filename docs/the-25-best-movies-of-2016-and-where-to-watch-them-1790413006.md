@@ -1,6 +1,6 @@
 # 2016 年 25 部最佳电影，以及在哪里观看
 
-> 原文:[https://life hacker . com/the-25-2016-最佳电影-以及在哪里观看-1790413006](https://lifehacker.com/the-25-best-movies-of-2016-and-where-to-watch-them-1790413006)
+> 原文：<https://lifehacker.com/the-25-best-movies-of-2016-and-where-to-watch-them-1790413006>
 
 对我们中的一些人来说，这是艰难的一年，但对电影来说，这是美妙的一年。这些令人难以置信的戏剧、音乐剧、纪录片和科幻惊悚片将帮助你忘记今年的挣扎，这样你就可以向前看。这些是 2016 年最好的电影。
 

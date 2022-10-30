@@ -1,6 +1,6 @@
 # 什么是‘转手’业务，为什么在税单中受到青睐？
 
-> 原文:[https://life hacker . com/what-a-pass-through-business-and-why-it-favoid-I-1821422829](https://lifehacker.com/what-is-a-pass-through-business-and-why-is-it-favored-i-1821422829)
+> 原文：<https://lifehacker.com/what-is-a-pass-through-business-and-why-is-it-favored-i-1821422829>
 
 根据国际商业时报 的报道，共和党税收计划的最后一分钟增加的条款将通过房地产空壳公司给人们减税，14 名共和党参议员个人受益。
 

@@ -1,6 +1,6 @@
 # 我是 Justworks 创始人艾萨克·奥茨，这是我工作方式
 
-> 原文:[https://life hacker . com/im-just works-founder-is AAC-Oates-and-this-is-how-I-wor-1826430632](https://lifehacker.com/im-justworks-founder-isaac-oates-and-this-is-how-i-wor-1826430632)
+> 原文：<https://lifehacker.com/im-justworks-founder-isaac-oates-and-this-is-how-i-wor-1826430632>
 
 如果你曾经与过时的薪资系统作斗争，或者在官僚的人力资源部门苦苦挣扎，你可以看到 [Justworks](https://justworks.com/) 的吸引力，它为小企业和成长型公司提供现代化的薪资、福利、人力资源和法律合规服务。它本身仍然是一家成长中的公司，与 ADP 等传统巨头以及 Zenefits、WageWorks 和 Gusto 等初创公司竞争。我们与创始人艾萨克·奥茨谈论了经典的创业起源故事:将你自己企业的痛点转化为你下一个企业的产品。
 

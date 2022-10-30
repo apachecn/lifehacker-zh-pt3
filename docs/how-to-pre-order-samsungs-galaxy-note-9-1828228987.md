@@ -1,6 +1,6 @@
 # 如何预购三星的 Galaxy Note 9
 
-> 原文:[https://life hacker . com/how-to-pre-order-samsungs-galaxy-note-9-1828228987](https://lifehacker.com/how-to-pre-order-samsungs-galaxy-note-9-1828228987)
+> 原文：<https://lifehacker.com/how-to-pre-order-samsungs-galaxy-note-9-1828228987>
 
 三星周四正式发布了 Galaxy Note 9，这是其触控笔焊接智能手机系列的最新产品。今年的机型 128GB 版起价 999.99 美元，512GB 版起价 1249.99 美元。
 

@@ -1,6 +1,6 @@
 # 你可以用 99 美分的零食预防花生过敏
 
-> 原文:[https://life hacker . com/you-could-prevent-an-a-99 cent-snack-1825245182](https://lifehacker.com/you-could-prevent-peanut-allergies-with-a-99-cent-snack-1825245182)
+> 原文：<https://lifehacker.com/you-could-prevent-peanut-allergies-with-a-99-cent-snack-1825245182>
 
 少量的花生蛋白可以延缓花生过敏，根据 2015 年具有里程碑意义的试验发现，这种方法 [将易感儿童患花生过敏的风险降低了 80%](http://www.nejm.org/doi/full/10.1056/NEJMoa1414850)。你现在可以给你的宝宝买昂贵的花生粉了，但是你知道什么东西至少同样有效吗？一种叫做邦巴的 99 美分的小吃。
 

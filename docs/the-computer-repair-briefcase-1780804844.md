@@ -1,6 +1,6 @@
 # 电脑维修公文包
 
-> 原文:[https://life hacker . com/the-computer-repair-公文包-1780804844](https://lifehacker.com/the-computer-repair-briefcase-1780804844)
+> 原文：<https://lifehacker.com/the-computer-repair-briefcase-1780804844>
 
 你不需要像以前那样多的配件来维修电脑，但这并不意味着你不需要一些特定的工具。一个恰当的例子是，读者马克·乔丹的公文包，装满了他需要的一切。
 

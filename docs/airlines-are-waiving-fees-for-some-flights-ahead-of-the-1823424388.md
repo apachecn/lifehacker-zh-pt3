@@ -1,6 +1,6 @@
 # 在明天东北部的大风暴来临之前，航空公司将免除取消航班的费用
 
-> 原文:[https://life hacker . com/airlines-is-豁免部分航班提前收费 1823424388](https://lifehacker.com/airlines-are-waiving-fees-for-some-flights-ahead-of-the-1823424388)
+> 原文：<https://lifehacker.com/airlines-are-waiving-fees-for-some-flights-ahead-of-the-1823424388>
 
 由于东海岸预计本周会有东北风，一些航空公司对想提前重新预订航班的顾客免收费用。
 

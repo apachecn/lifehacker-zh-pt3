@@ -1,6 +1,6 @@
 # 我想念我疯狂但实用的庞蒂克阿兹特克！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-miss-my-crazy-but-practical-Pontiac-aztek-what-car-s-1826287168](https://jalopnik.com/i-miss-my-crazy-but-practical-pontiac-aztek-what-car-s-1826287168)
+> 原文：<https://jalopnik.com/i-miss-my-crazy-but-practical-pontiac-aztek-what-car-s-1826287168>
 
 安德烈拥有并喜爱有史以来最两极分化的汽车之一，庞蒂亚克阿兹特克。她把那辆车开到 350，000 英里，不得不卖掉它。现在，她正在寻找具有同样“魅力”的东西。她应该买什么车？
 

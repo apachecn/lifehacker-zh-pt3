@@ -1,6 +1,6 @@
 # 五月是卖房子的最佳月份
 
-> 原文:[https://life hacker . com/may-is-best-month to-sell-your-house-1825073635](https://lifehacker.com/may-is-the-best-month-to-sell-your-house-1825073635)
+> 原文：<https://lifehacker.com/may-is-the-best-month-to-sell-your-house-1825073635>
 
 如果你正在考虑出售你的房子，那么你可能会考虑等到下个月上市。
 

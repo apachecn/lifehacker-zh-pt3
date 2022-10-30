@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的个人理财职位
 
-> 原文:[https://life hacker . com/the-best-personal-finance-posts-of-2016-1789757876](https://lifehacker.com/the-best-personal-finance-posts-of-2016-1789757876)
+> 原文：<https://lifehacker.com/the-best-personal-finance-posts-of-2016-1789757876>
 
 资金管理并不容易，但我们会尽最大努力帮你解决。以下是我们 2016 年最佳个人理财指南、入门指南和解释者。
 

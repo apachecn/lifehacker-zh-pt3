@@ -1,6 +1,6 @@
 # 性创伤后如何开始愈合
 
-> 原文:[https://life hacker . com/how-to-start-healing-after-sex-trauma-1820455497](https://lifehacker.com/how-to-start-healing-after-sexual-trauma-1820455497)
+> 原文：<https://lifehacker.com/how-to-start-healing-after-sexual-trauma-1820455497>
 
 在过去的几周里，性骚扰和性虐待被媒体频繁报道，这似乎是一个谈论如何向前迈进并在遭受虐待后开始愈合的好时机。当然，这是一个很大的话题，所以我们从如何自己管理性创伤的影响开始。下周，我们将谈论与新伙伴一起在水中航行。每个人的康复过程看起来都不一样，但这里有一些步骤可能会对你有所帮助。
 

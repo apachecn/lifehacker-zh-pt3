@@ -1,6 +1,6 @@
 # 作为父母，如何平衡工作与生活
 
-> 原文:[https://life hacker . com/how-to-get-work-life-balance-as-parent-1826665063](https://lifehacker.com/how-to-get-work-life-balance-as-a-parent-1826665063)
+> 原文：<https://lifehacker.com/how-to-get-work-life-balance-as-a-parent-1826665063>
 
 你又错过了你孩子的足球比赛*，因为你一直在做那份大客户报告，那份你还没有完成的报告。哦，你不是答应明天带松饼去学校的烘焙义卖吗？10 点有个会议，11:30 有个儿科医生的预约，呃，你应该在某个时候买卫生纸。一切似乎都岌岌可危——你的工作，你的家庭生活，你的理智。你的冰箱有味道。* 
 

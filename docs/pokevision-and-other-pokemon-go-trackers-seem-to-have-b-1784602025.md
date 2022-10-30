@@ -1,6 +1,6 @@
 # Pokevision 和其他 Pokémon Go 追踪器因不明原因关闭
 
-> 原文:[https://kotaku . com/pokevision-and-other-pokemon-go-trackers-see-to-have-b-1784602025](https://kotaku.com/pokevision-and-other-pokemon-go-trackers-seem-to-have-b-1784602025)
+> 原文：<https://kotaku.com/pokevision-and-other-pokemon-go-trackers-seem-to-have-b-1784602025>
 
 上周，Niantic 的约翰·汉克 [警告 *Pokémon Go* 玩家，流行的追踪网站可能在未来不再有效。](http://kotaku.com/pokemon-gos-creators-are-wrong-about-cheating-in-the-ga-1784496384) 看来现在时刻已经到来。
 

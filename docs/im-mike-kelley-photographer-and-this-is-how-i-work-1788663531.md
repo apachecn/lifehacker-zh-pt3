@@ -1,6 +1,6 @@
 # 我是摄影师迈克·凯利，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Mike-Kelley-photographer-and-this-that ' s-how-I-work-1788663531](https://lifehacker.com/im-mike-kelley-photographer-and-this-is-how-i-work-1788663531)
+> 原文：<https://lifehacker.com/im-mike-kelley-photographer-and-this-is-how-i-work-1788663531>
 
 摄影，不仅仅是对现实的纯粹的文字描绘，常常需要艺术家的手来将真相与他们自己的视觉融合在一起。这就是迈克·凯利在他广受欢迎的“ [Airportraits](http://www.mpkelley.com/projects/) ”系列中所做的。
 

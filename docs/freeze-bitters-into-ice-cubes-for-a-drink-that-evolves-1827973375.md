@@ -1,6 +1,6 @@
 # 将苦味剂冷冻成冰块，成为一种不断变化的饮料
 
-> 原文:[https://life hacker . com/freeze-bitters-into-ice-cubes-for-a-drink-evolves-1827973375](https://lifehacker.com/freeze-bitters-into-ice-cubes-for-a-drink-that-evolves-1827973375)
+> 原文：<https://lifehacker.com/freeze-bitters-into-ice-cubes-for-a-drink-that-evolves-1827973375>
 
 苦味剂基本上是鸡尾酒世界的调味品，只需几滴或几滴就能使一杯酒变得圆润，或给它一点深度。将它们直接倒入杯中是很好的(很明显)，但是通过将一些注入了龙胆草的液体冷冻到一个大的立方体中，你会得到一种越喝越特别的饮料。
 

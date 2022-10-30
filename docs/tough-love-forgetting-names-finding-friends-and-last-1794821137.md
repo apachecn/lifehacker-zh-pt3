@@ -1,6 +1,6 @@
 # 艰难的爱:忘记名字，找到朋友，坠入爱河
 
-> 原文:[https://life hacker . com/tough-love-less-names-finding-friends-and-last-1794821137](https://lifehacker.com/tough-love-forgetting-names-finding-friends-and-last-1794821137)
+> 原文：<https://lifehacker.com/tough-love-forgetting-names-finding-friends-and-last-1794821137>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到艰难的爱。
 

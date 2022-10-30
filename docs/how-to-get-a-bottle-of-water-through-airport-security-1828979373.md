@@ -1,6 +1,6 @@
 # 如何让一瓶水通过机场安检
 
-> 原文:[https://life hacker . com/how-to-get-a bottle-water-through-airport-security-1828979373](https://lifehacker.com/how-to-get-a-bottle-of-water-through-airport-security-1828979373)
+> 原文：<https://lifehacker.com/how-to-get-a-bottle-of-water-through-airport-security-1828979373>
 
 乘飞机旅行的最大不便之一是不能携带液体通过安检。通过身体扫描仪后，你可能很渴，发现补充液体的唯一选择是一瓶 8 美元的“奇特”水，或者浴室外的一个非常低(和非常低压力)的饮水机。
 

@@ -1,6 +1,6 @@
 # 清洁者的节日礼物指南
 
-> 原文:[https://life hacker . com/the-clean-person-s-gift-guide-for the-holidays-1821189384](https://lifehacker.com/the-clean-person-s-gift-guide-for-the-holidays-1821189384)
+> 原文：<https://lifehacker.com/the-clean-person-s-gift-guide-for-the-holidays-1821189384>
 
 清洁产品可能不在大多数人的愿望清单上，但如果选择正确，它们可以成为令人惊讶的令人愉快的节日礼物。这就是为什么我编写了一份最佳清洁主题产品指南，这样你就可以在这个假期给你爱的人一份清洁的礼物。
 

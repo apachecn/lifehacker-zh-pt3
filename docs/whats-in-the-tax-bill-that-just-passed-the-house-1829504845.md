@@ -1,6 +1,6 @@
 # 众议院刚刚通过的税收法案里有什么？
 
-> 原文:[https://life hacker . com/what-in-the-tax-bill-the-just-passed-the-house-1829504845](https://lifehacker.com/whats-in-the-tax-bill-that-just-passed-the-house-1829504845)
+> 原文：<https://lifehacker.com/whats-in-the-tax-bill-that-just-passed-the-house-1829504845>
 
 众议院最近通过了一揽子立法，可能会改变人们为退休储蓄的方式。当然，如果参议院原样通过新的税收改革，专家说不太可能是 T2 T3。
 

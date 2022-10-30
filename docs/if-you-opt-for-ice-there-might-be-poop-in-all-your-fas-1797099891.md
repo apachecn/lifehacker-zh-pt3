@@ -1,6 +1,6 @@
 # 如果你在英国，选择冰，你所有的快餐饮料中可能会有便便
 
-> 原文:[https://life hacker . com/if-you-opt-for-ice-there-may-be-poop-in-all-your-Fas-1797099891](https://lifehacker.com/if-you-opt-for-ice-there-might-be-poop-in-all-your-fas-1797099891)
+> 原文：<https://lifehacker.com/if-you-opt-for-ice-there-might-be-poop-in-all-your-fas-1797099891>
 
 无糖汽水可能会也可能不会要你的命，而 [全味汽水可能会也可能不会要你的命，但不管怎样:如果你在速食冷饮店喝酒，很有可能你会把它和一堆粪便一起吞下去。但也许只有在英国才会这样！](https://www.rodalesorganiclife.com/wellbeing/9-disturbing-side-effects-of-soda%3Fslide%3D1)
 

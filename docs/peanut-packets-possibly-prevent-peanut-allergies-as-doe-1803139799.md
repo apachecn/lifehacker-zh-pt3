@@ -1,6 +1,6 @@
 # 花生包可能预防花生过敏——花生酱可能也是如此
 
-> 原文:[https://life hacker . com/peanut-packets-possible-prevent-peanut-allergies-as-doe-1803139799](https://lifehacker.com/peanut-packets-possibly-prevent-peanut-allergies-as-doe-1803139799)
+> 原文：<https://lifehacker.com/peanut-packets-possibly-prevent-peanut-allergies-as-doe-1803139799>
 
 给婴儿喂少量花生可能会降低他们患花生过敏症的几率。美国食品和药物管理局最近宣布，含花生的食品可以在其标签 上宣传这一说法，你很快就会在一种叫做 Hello Peanut 的奇怪产品上看到这一点。
 

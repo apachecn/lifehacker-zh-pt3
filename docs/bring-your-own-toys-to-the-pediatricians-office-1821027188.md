@@ -1,6 +1,6 @@
 # 把你自己的玩具带到儿科医生的办公室
 
-> 原文:[https://life hacker . com/bring-your-own-toys-to-the-pediatrics-office-1821027188](https://lifehacker.com/bring-your-own-toys-to-the-pediatricians-office-1821027188)
+> 原文：<https://lifehacker.com/bring-your-own-toys-to-the-pediatricians-office-1821027188>
 
 现在是冬天，是不停咳嗽的季节。每年 12 月，我的孩子都会有一些痰，几天后达到高峰，然后...大多数情况下更好，除了在晚上，当黑客马拉松再次出现的时候。最终我对此感到厌倦，去看儿科医生。
 

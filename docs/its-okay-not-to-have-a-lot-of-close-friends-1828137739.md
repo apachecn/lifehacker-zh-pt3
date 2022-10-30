@@ -1,6 +1,6 @@
 # 没有很多亲密的朋友也没关系
 
-> 原文:[https://life hacker . com/its-okay-not-to-have-loft-of-close-friends-1828137739](https://lifehacker.com/its-okay-not-to-have-a-lot-of-close-friends-1828137739)
+> 原文：<https://lifehacker.com/its-okay-not-to-have-a-lot-of-close-friends-1828137739>
 
 社交媒体能让人们觉得自己在这个世界上很孤独，但事实是，没有很多朋友是正常和健康的。
 

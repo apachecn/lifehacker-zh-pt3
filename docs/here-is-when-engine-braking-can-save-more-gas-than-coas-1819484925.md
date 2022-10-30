@@ -1,6 +1,6 @@
 # 此时，发动机制动比滑行更省油
 
-> 原文:[https://jalopnik . com/here-is-when-engine-braking-can-save-again-coas-1819484925](https://jalopnik.com/here-is-when-engine-braking-can-save-more-gas-than-coas-1819484925)
+> 原文：<https://jalopnik.com/here-is-when-engine-braking-can-save-more-gas-than-coas-1819484925>
 
 不仅仅是 [发动机制动](https://jalopnik.com/actually-engine-braking-is-fine-1818491096) 这种技术会让你在下山时更安全，它背后的科学实际上可以比空挡滑行节省更多的燃料。
 

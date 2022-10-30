@@ -1,6 +1,6 @@
 # 为什么你要把自己吓得屁滚尿流
 
-> 原文:[https://life hacker . com/why-you-should-the-crap-out-of-you-self-fun-1793213765](https://lifehacker.com/why-you-should-scare-the-crap-out-of-yourself-for-fun-1793213765)
+> 原文：<https://lifehacker.com/why-you-should-scare-the-crap-out-of-yourself-for-fun-1793213765>
 
 “我不喜欢恐怖的东西，”你告诉人们——好像这是某种过敏症。你不会去鬼屋，你不会梦想扮演新的生化危机，你的手指永远交叉希望你的电影观众朋友不会选择恐怖片。嗯，如果我告诉你吓唬自己实际上对你的思想、身体和灵魂都有好处呢？
 

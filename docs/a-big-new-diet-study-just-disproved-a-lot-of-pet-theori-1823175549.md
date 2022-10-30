@@ -1,6 +1,6 @@
 # 一项新的大型饮食研究推翻了许多宠物减肥理论
 
-> 原文:[https://life hacker . com/a-big-new-diet-study-just-dispersed-a-lot-of-pet-theori-1823175549](https://lifehacker.com/a-big-new-diet-study-just-disproved-a-lot-of-pet-theori-1823175549)
+> 原文：<https://lifehacker.com/a-big-new-diet-study-just-disproved-a-lot-of-pet-theori-1823175549>
 
 教 600 个人多吃蔬菜，少吃添加糖一年，结果他们会减肥。今天发表的 [DIETFITS](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5274550/) 研究中没有什么超级令人震惊的东西，但是关于在节食中什么*不重要*还有很多要学习的。
 

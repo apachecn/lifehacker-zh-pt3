@@ -1,6 +1,6 @@
 # 在易贝用比丝芙兰更低的价格买到超级花哨的 SK-II 片状面膜
 
-> 原文:[https://life hacker . com/get-super-fancy-sk-ii-sheet-masks-on-ebay-for-way-less-1822591184](https://lifehacker.com/get-super-fancy-sk-ii-sheet-masks-on-ebay-for-way-less-1822591184)
+> 原文：<https://lifehacker.com/get-super-fancy-sk-ii-sheet-masks-on-ebay-for-way-less-1822591184>
 
 我们不能完全确定片状面膜是每个人护肤梦想的答案——它是一种纸面膜？)浸泡在一些据称有益健康的液体中，当你让血清渗入时，你会将这些液体粘在脸上，然后在 Instagram 上发布一张自己的照片，看起来与 13 号星期五的杰森惊人地相似。有用吗？20 分钟的遮瑕能让你的皮肤保湿，让你看起来神采奕奕吗？
 

@@ -1,6 +1,6 @@
 # 瓷砖是最糟糕的科技产品
 
-> 原文:[https://gizmodo . com/tile-is-the worst-tech-stocking-stuffer-1821046107](https://gizmodo.com/tile-is-the-worst-tech-stocking-stuffer-1821046107)
+> 原文：<https://gizmodo.com/tile-is-the-worst-tech-stocking-stuffer-1821046107>
 
 我丢东西。很多很多东西——我的钥匙(在沙发上)，我的夹克(在出租车里)。有一次，在占领华尔街抗议期间，我把我的 MacBook 忘在了一家地铁餐厅里。我很幸运；第二天早上，当工作人员供应早餐时，我发现它一动不动地放在一把椅子下面。我承认:当要记录我的东西时，我需要一些帮助。但是最亲爱的朋友、家人和同事们，不管你们在想什么，不要给我买瓷砖。
 

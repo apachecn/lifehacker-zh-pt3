@@ -1,6 +1,6 @@
 # 在啦啦土地上的恐惧和厌恶
 
-> 原文:[https://life hacker . com/fear-and-illusion-in-la-la-land-1791775766](https://lifehacker.com/fear-and-loathing-in-la-la-land-1791775766)
+> 原文：<https://lifehacker.com/fear-and-loathing-in-la-la-land-1791775766>
 
 我还没看过《啦啦岛》,但是我想看。问题是，口碑、热情洋溢的评论和无尽的奖项把它放在了一个如此高的基座上，我觉得实际的体验将无法达到它。这一次的宣传力度很大。但也许有一种方法可以清白地进去。也许有一种方法可以在炒作怪物攻击之前杀死它。
 

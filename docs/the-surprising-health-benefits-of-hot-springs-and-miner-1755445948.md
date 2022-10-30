@@ -1,6 +1,6 @@
 # 温泉和矿泉浴对健康的惊人益处
 
-> 原文:[https://life hacker . com/the-surprise-health-benefits-of-温泉和矿工-1755445948](https://lifehacker.com/the-surprising-health-benefits-of-hot-springs-and-miner-1755445948)
+> 原文：<https://lifehacker.com/the-surprising-health-benefits-of-hot-springs-and-miner-1755445948>
 
 在日本，浸泡在天然温泉中是一种珍贵的消遣，有着数千年的传统，在我逗留期间，我参观了一些。这一经历让我的眼睛(和毛孔)看到了一个感觉良好的世界，其中许多(但不是全部)都有大量研究的支持。
 

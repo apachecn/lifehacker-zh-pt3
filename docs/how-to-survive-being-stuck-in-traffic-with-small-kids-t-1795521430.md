@@ -1,6 +1,6 @@
 # 如何在这个周末带着小孩堵车的情况下生存
 
-> 原文:[https://life hacker . com/how-to-survive-be-stuck-with-small-kids-t-1795521430](https://lifehacker.com/how-to-survive-being-stuck-in-traffic-with-small-kids-t-1795521430)
+> 原文：<https://lifehacker.com/how-to-survive-being-stuck-in-traffic-with-small-kids-t-1795521430>
 
 伙计们，这是一个漫长的假期周末！这意味着从西雅图到奥兰多的海滩旅行、山地度假、湖边烧烤和令人头疼的交通问题。现在，在我家，我们通常决定在周五早餐后收拾行李，但因为我们有两个小孩，而且相当混乱，我们不可避免地在最糟糕的长周末旅行时间结束:周五午餐后。
 

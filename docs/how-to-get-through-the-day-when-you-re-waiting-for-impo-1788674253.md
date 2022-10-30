@@ -1,6 +1,6 @@
 # 如何度过等待重要消息的一天
 
-> 原文:[https://life hacker . com/how-to-get-through-the-day-when-you-re-waiting-for-impo-1788674253](https://lifehacker.com/how-to-get-through-the-day-when-you-re-waiting-for-impo-1788674253)
+> 原文：<https://lifehacker.com/how-to-get-through-the-day-when-you-re-waiting-for-impo-1788674253>
 
 等待选举日的消息可能是非常痛苦的。类似的痛苦来自于等待体检结果，或者当你发送一封带有坏消息的电子邮件，担心收件人会有什么反应。这里有一些建议可以帮助你在等待过程中保持精神上的强大。
 

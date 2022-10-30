@@ -1,6 +1,6 @@
 # 我们如何工作，2016 年:梅勒妮·皮诺拉的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2016-Melanie-pinolas-gear-and-productivit-1760841617](https://lifehacker.com/how-we-work-2016-melanie-pinolas-gear-and-productivit-1760841617)
+> 原文：<https://lifehacker.com/how-we-work-2016-melanie-pinolas-gear-and-productivit-1760841617>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是梅勒妮·皮诺拉，这就是我的工作方式。
 

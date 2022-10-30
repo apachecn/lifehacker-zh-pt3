@@ -1,6 +1,6 @@
 # 如何在您的华为智能手机上使用黑名单中的 VLC 应用程序
 
-> 原文:[https://life hacker . com/how-to-use-the-black-list-VLC-app-on-your-Huawei-smart-1827898672](https://lifehacker.com/how-to-use-the-blacklisted-vlc-app-on-your-huawei-smart-1827898672)
+> 原文：<https://lifehacker.com/how-to-use-the-blacklisted-vlc-app-on-your-huawei-smart-1827898672>
 
 VideoLAN 和华为打起来了。以至于你再也不能在华为智能手机上从谷歌 Play 商店下载一直受欢迎、功能丰富的 VLC 媒体播放器应用程序——VideoLAN 的核选项。但是你仍然可以下载 VLC。APK 直接从 VideoLAN，你应该...稍加调整。
 

@@ -1,6 +1,6 @@
 # 软化黄油的最快方法
 
-> 原文:[https://the take out . com/the-fast-way-to-soften-butter-1826017584](https://thetakeout.com/the-fastest-way-to-soften-butter-1826017584)
+> 原文：<https://thetakeout.com/the-fastest-way-to-soften-butter-1826017584>
 
 由于最近对烘焙酸面团面包的兴趣，我正以惊人的速度吃黄油。但是，尽管我可能会记着 [留下一些未冷冻的黄油](https://thetakeout.com/is-it-safe-to-leave-butter-unrefrigerated-1821925356) ，每当我想在面包片点心上涂些黄油时，我通常会盯着坚硬的冷冻黄油。因为 [我也没有微波炉](https://thetakeout.com/no-nukes-how-i-live-just-fine-without-a-microwave-1822444003)——我知道，你现在以为我是劳拉·英格尔斯·怀德了吧？—用那种方式快速软化一些黄油是不可行的。
 

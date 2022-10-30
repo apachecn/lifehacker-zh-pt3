@@ -1,6 +1,6 @@
 # 了解这些导致产妇死亡的症状
 
-> 原文:[https://life hacker . com/know-these-conditions-of-the-leading-causes-of-motheral-d-1821991194](https://lifehacker.com/know-these-symptoms-of-the-leading-causes-of-maternal-d-1821991194)
+> 原文：<https://lifehacker.com/know-these-symptoms-of-the-leading-causes-of-maternal-d-1821991194>
 
 在她的[*封面故事*](https://www.vogue.com/article/serena-williams-vogue-cover-interview-february-2018)*中，瑟琳娜·威廉姆斯分享了她在生下女儿小亚历克西斯·奥林匹亚·奥哈尼安后差点丧命的经历*
 

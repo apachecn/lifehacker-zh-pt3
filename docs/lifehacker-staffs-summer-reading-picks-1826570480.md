@@ -1,6 +1,6 @@
 # Lifehacker 员工的暑期阅读精选
 
-> 原文:[https://life hacker . com/life hacker-staffs-summer-reading-picks-1826570480](https://lifehacker.com/lifehacker-staffs-summer-reading-picks-1826570480)
+> 原文：<https://lifehacker.com/lifehacker-staffs-summer-reading-picks-1826570480>
 
 夏天:手里拿着你最喜欢的饮料，在泳池边或沙滩上坐下来放松，读点书的时候。在真正的犯罪惊悚片、科幻冒险片和一些永恒的经典作品之间，有很多东西要看。
 

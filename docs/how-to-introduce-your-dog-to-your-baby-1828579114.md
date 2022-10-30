@@ -1,6 +1,6 @@
 # 如何给宝宝介绍你的狗狗
 
-> 原文:[https://life hacker . com/how-to-introduction-your-dog-your-baby-1828579114](https://lifehacker.com/how-to-introduce-your-dog-to-your-baby-1828579114)
+> 原文：<https://lifehacker.com/how-to-introduce-your-dog-to-your-baby-1828579114>
 
 对我们大多数人来说，在真正的孩子出生之前，狗就是我们的孩子。像任何大哥哥或大姐姐一样，他们需要在尽可能好的情况下被介绍给他们的人类同胞。
 

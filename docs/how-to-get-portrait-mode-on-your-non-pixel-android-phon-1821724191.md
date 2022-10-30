@@ -1,6 +1,6 @@
 # 如何在你的非像素安卓手机上获得人像模式
 
-> 原文:[https://life hacker . com/how-to-get-portrait-mode-on-your-non-pixel-Android-phon-1821724191](https://lifehacker.com/how-to-get-portrait-mode-on-your-non-pixel-android-phon-1821724191)
+> 原文：<https://lifehacker.com/how-to-get-portrait-mode-on-your-non-pixel-android-phon-1821724191>
 
 如果你一直渴望在你朋友的 Pixel 2(或 iPhone)上使用肖像模式，现在也有一种方法可以实现它——前提是你有一台运行奥利奥的 Android 设备。
 

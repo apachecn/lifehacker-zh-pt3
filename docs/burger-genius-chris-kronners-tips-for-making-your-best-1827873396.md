@@ -1,6 +1,6 @@
 # 汉堡天才克里斯·克朗纳关于制作最好的汉堡的建议
 
-> 原文:[https://life hacker . com/burger-genius-Chris-kroners-tips-for-making-your-best-1827873396](https://lifehacker.com/burger-genius-chris-kronners-tips-for-making-your-best-1827873396)
+> 原文：<https://lifehacker.com/burger-genius-chris-kronners-tips-for-making-your-best-1827873396>
 
 如果有人能开创一种以汉堡为中心的狂热，那就是厨师克里斯·克朗纳、的、[克朗纳汉堡](http://kronnerburger.com)、。他的痴迷是我们的回报，他将多年的实验和专业经验倾注到 [*一个相信*](https://www.amazon.com/Burger-Believe-Recipes-Fundamentals/dp/0399579265?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/burger-genius-chris-kronners-tips-for-making-your-best-1827873396&asc_source=&tag=kinjalifehackerlink-20) 的汉堡中——一个名副其实的专注于汉堡的食谱和技巧的作品。
 

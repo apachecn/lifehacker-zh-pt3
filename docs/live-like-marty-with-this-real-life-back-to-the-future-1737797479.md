@@ -1,6 +1,6 @@
 # 像马蒂一样生活，回到你可以实际使用的未来科技
 
-> 原文:[https://life hacker . com/live-like-Marty-with-this-real-life-back-to-the-future-1737797479](https://lifehacker.com/live-like-marty-with-this-real-life-back-to-the-future-1737797479)
+> 原文：<https://lifehacker.com/live-like-marty-with-this-real-life-back-to-the-future-1737797479>
 
 在《回到未来 2》中，马蒂于 2015 年 10 月 21 日抵达未来——恰好是今天。似乎我们创造了另一条时间线，因为我们没有得到《马蒂的未来》中所有精彩的东西——但我们确实得到了很多。这是我们在这个时间线中仍然拥有的未来科技。
 

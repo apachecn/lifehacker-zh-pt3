@@ -1,6 +1,6 @@
 # 它会腐烂吗？多汁的奶酪汉堡
 
-> 原文:[https://life hacker . com/will-it-sous-vide-juicy-cheese-filled-burgers-1792193332](https://lifehacker.com/will-it-sous-vide-juicy-cheese-filled-burgers-1792193332)
+> 原文：<https://lifehacker.com/will-it-sous-vide-juicy-cheese-filled-burgers-1792193332>
 
 大家好，帅哥美女们，欢迎回到俗气又有点油腻的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide#_ga=1.149509310.949419976.1446553382) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

@@ -1,6 +1,6 @@
 # 你是如何开始你的新年计划的？
 
-> 原文:[https://life hacker . com/how-you-get-a-head-start on you-new-year-s-RES-1821288642](https://lifehacker.com/how-are-you-getting-a-head-start-on-your-new-year-s-res-1821288642)
+> 原文：<https://lifehacker.com/how-are-you-getting-a-head-start-on-your-new-year-s-res-1821288642>
 
 你可能在假期中有一些停工时间，无论你是从工作中休息几天( [你应该](http://gawker.com/reminder-take-your-vacation-days-idiots-1624370255) )，还是在为考试而学习后享受寒假( [你没有](https://lifehacker.com/improve-your-test-scores-with-the-hard-start-jump-to-e-1790599531) )。随着 2018 年的到来，你可以通过提前准备你的决心计划来开始新的一年。当然，决心有各种形式和大小，所以真正的问题是:你如何在你的决心上领先一步？
 

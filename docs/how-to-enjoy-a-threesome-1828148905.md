@@ -1,6 +1,6 @@
 # 如何享受 3p
 
-> 原文:[https://lifehacker.com/how-to-enjoy-a-threesome-1828148905](https://lifehacker.com/how-to-enjoy-a-threesome-1828148905)
+> 原文：<https://lifehacker.com/how-to-enjoy-a-threesome-1828148905>
 
 前阵子，我写过如何 [组建一个三人行](https://lifehacker.com/how-to-set-up-a-threesome-1824147809) 。今天我要谈的是如何真正享受 3p 的具体细节。尽管三人行是最受欢迎的幻想之一，但实现起来却非常棘手。增加第三套界限、偏好、欲望和肢体，可以创造出比你脑海中的幻想复杂得多的现实。以下是如何让你们的三人行尽可能愉快。
 

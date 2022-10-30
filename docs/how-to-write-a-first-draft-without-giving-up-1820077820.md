@@ -1,6 +1,6 @@
 # 如何在不放弃的情况下写出初稿
 
-> 原文:[https://life hacker . com/how-to-write-a first-draft-without-give-1820077820](https://lifehacker.com/how-to-write-a-first-draft-without-giving-up-1820077820)
+> 原文：<https://lifehacker.com/how-to-write-a-first-draft-without-giving-up-1820077820>
 
 爱尔兰小说家、回忆录作家、诗人和剧作家朱利安·高夫(Julian Gough)在他的文章 [中给出了密集的建议，如何编辑自己糟糕的作品](https://stingingfly.org/2017/10/24/edit-lousy-writing/) 。他解释了初稿、二稿和三稿各自的“工作”,编辑了一个假想的场景作为具体的例子。
 

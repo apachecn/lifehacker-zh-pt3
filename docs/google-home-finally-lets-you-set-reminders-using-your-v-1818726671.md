@@ -1,6 +1,6 @@
 # Google Home 终于可以让你用语音设置提醒了
 
-> 原文:[https://life hacker . com/Google-home-finally-let-you-set-reminders-using-your-v-1818726671](https://lifehacker.com/google-home-finally-lets-you-set-reminders-using-your-v-1818726671)
+> 原文：<https://lifehacker.com/google-home-finally-lets-you-set-reminders-using-your-v-1818726671>
 
 你知道你让你的伴侣/朋友/家人提醒你以后要做的事情吗？是的，现在 Google Home 实际上可以做到这一点，而且不像你总是问的那个人，它不会忘记。本周，Google Home 推出了一项更新，最终将为数字助理启用语音激活提醒。
 

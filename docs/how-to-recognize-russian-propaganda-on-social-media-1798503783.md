@@ -1,6 +1,6 @@
 # 如何识别俄罗斯在社交媒体上的宣传
 
-> 原文:[https://life hacker . com/how-to-recognize-Russian-propagation-on-social-media-1798503783](https://lifehacker.com/how-to-recognize-russian-propaganda-on-social-media-1798503783)
+> 原文：<https://lifehacker.com/how-to-recognize-russian-propaganda-on-social-media-1798503783>
 
 如果你像我一样经常关注社交媒体，你可能会惊讶于你的美国同胞有多少...两周前，纳粹分子和白人至上主义者在夏洛茨维尔游行。弗吉尼亚州的冲突导致了 [希瑟·海尔](https://www.nytimes.com/2017/08/13/us/heather-heyer-charlottesville-victim.html) 被杀和 [迪安卓·哈里斯](https://www.nytimes.com/2017/08/26/us/charlottesville-arrests.html) 被打，在那之后的几天里，很多人出现在我的社交媒体供稿中，反驳说“Antifa”和黑人的命也是命活动人士与手持半自动武器参加“和平”集会的纳粹和白人至上主义者一样暴力。
 

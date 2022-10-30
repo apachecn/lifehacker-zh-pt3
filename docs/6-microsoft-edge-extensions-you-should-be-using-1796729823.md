@@ -1,6 +1,6 @@
 # 您应该使用的 6 个 Microsoft Edge 扩展
 
-> 原文:[https://life hacker . com/6-Microsoft-edge-extensions-you-should-be-using-1796729823](https://lifehacker.com/6-microsoft-edge-extensions-you-should-be-using-1796729823)
+> 原文：<https://lifehacker.com/6-microsoft-edge-extensions-you-should-be-using-1796729823>
 
 数量不多，但微软 Edge 确实有一个第三方扩展选择来为新的网络浏览器添加一些功能。
 

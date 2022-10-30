@@ -1,6 +1,6 @@
 # 使用这个方便的应用程序，在 macOS Mojave 的亮暗模式之间切换
 
-> 原文:[https://life hacker . com/switch-with-1827640349](https://lifehacker.com/switch-between-light-and-dark-mode-in-macos-mojave-with-1827640349)
+> 原文：<https://lifehacker.com/switch-between-light-and-dark-mode-in-macos-mojave-with-1827640349>
 
 Mac: 尽管你可能不应该在你的主要设备上安装一个操作系统的公开测试版——在这种情况下是你的笔记本电脑——但还是继续吧。 [给马科斯莫哈韦试试](https://lifehacker.com/how-to-get-apples-mac-iphone-watch-and-tv-betas-witho-1826578952) 。有很多有趣的功能可以用 来玩，包括操作系统新的黑暗模式(接近我的列表顶部)。
 

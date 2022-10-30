@@ -1,6 +1,6 @@
 # 忘了贾斯汀·汀布莱克的覆盆子吧，做一个草莓吧
 
-> 原文:[https://life hacker . com/forget-Justin-timberlakes-brasp berry-make-a-straw brasp-1821095393](https://lifehacker.com/forget-justin-timberlakes-braspberry-make-a-strawbrasp-1821095393)
+> 原文：<https://lifehacker.com/forget-justin-timberlakes-braspberry-make-a-strawbrasp-1821095393>
 
 贾斯汀·汀布莱克本周因他的水果“突破” 成为头条新闻，一颗蓝莓被塞进一颗他称之为“覆盆子”的覆盆子里
 

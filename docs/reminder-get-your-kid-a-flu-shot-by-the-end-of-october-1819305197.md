@@ -1,6 +1,6 @@
 # 提醒:在 10 月底之前给你的孩子注射流感疫苗
 
-> 原文:[https://life hacker . com/reminder-在 10 月底前给你的孩子注射流感疫苗-1819305197](https://lifehacker.com/reminder-get-your-kid-a-flu-shot-by-the-end-of-october-1819305197)
+> 原文：<https://lifehacker.com/reminder-get-your-kid-a-flu-shot-by-the-end-of-october-1819305197>
 
 如果让你的孩子注射流感疫苗是你一直在拖延的事情，不要等太久。美国儿科学会建议 6 个月及以上的儿童在 10 月底 前接种流感疫苗 [**。现在是去你的医生办公室或者在这张**](https://www.aap.org/en-us/about-the-aap/aap-press-room/Pages/AAP-Issues-Flu-Vaccine-Recommendations-for-2017-2018.aspx) **[非常方便的地图](https://vaccinefinder.org/)** **上找到你最近的免疫地点的时候了。** 
 

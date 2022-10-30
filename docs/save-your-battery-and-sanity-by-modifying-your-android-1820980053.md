@@ -1,6 +1,6 @@
 # 通过修改您的 Android 通知来节省您的电池和理智
 
-> 原文:[https://life hacker . com/save-your-battery-and-sanity-by-modified-your-Android-1820980053](https://lifehacker.com/save-your-battery-and-sanity-by-modifying-your-android-1820980053)
+> 原文：<https://lifehacker.com/save-your-battery-and-sanity-by-modifying-your-android-1820980053>
 
 安装一部新的安卓手机意味着你将在谷歌 Play 商店花上几分钟以上的时间下载应用程序。这也意味着，你将会面对来自所有这些新应用程序的通知形式的许多烦人的弹出窗口。如果你知道打开(和关闭)什么，就很容易处理大量的振动、叮当声和圆点。
 

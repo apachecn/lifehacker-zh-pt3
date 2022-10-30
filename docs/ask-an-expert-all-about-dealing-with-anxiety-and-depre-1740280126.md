@@ -1,6 +1,6 @@
 # 请教专家:如何应对焦虑和抑郁
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-processing-of-anxing-and-depre-1740280126](https://lifehacker.com/ask-an-expert-all-about-dealing-with-anxiety-and-depre-1740280126)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-dealing-with-anxiety-and-depre-1740280126>
 
 我们都有情绪低落的时候，很难知道几天糟糕的日子和需要更认真关注的事情有什么区别。你应该在什么时候寻求帮助，在哪里可以得到帮助？
 

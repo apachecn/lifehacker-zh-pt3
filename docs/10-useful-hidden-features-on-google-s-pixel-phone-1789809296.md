@@ -1,6 +1,6 @@
 # 谷歌 Pixel 手机的 10 个有用的隐藏功能
 
-> 原文:[https://life hacker . com/10-useful-hidden-features-on-Google-s-pixel-phone-1789809296](https://lifehacker.com/10-useful-hidden-features-on-google-s-pixel-phone-1789809296)
+> 原文：<https://lifehacker.com/10-useful-hidden-features-on-google-s-pixel-phone-1789809296>
 
 谷歌新推出的 Pixel 手机 具有一些令人印象深刻的功能。它的相机能拍出非凡而细致的照片。它配有谷歌助手，一个实际上很有用的虚拟助手工具。Pixel 还有一些不太明显的特性值得探索。
 

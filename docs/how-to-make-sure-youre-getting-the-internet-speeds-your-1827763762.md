@@ -1,6 +1,6 @@
 # 如何确保您获得了付费的网速
 
-> 原文:[https://life hacker . com/how-to-assure-you-get-the-internet-speeds-your-1827763762](https://lifehacker.com/how-to-make-sure-youre-getting-the-internet-speeds-your-1827763762)
+> 原文：<https://lifehacker.com/how-to-make-sure-youre-getting-the-internet-speeds-your-1827763762>
 
 你注册互联网服务可能已经有一段时间了，但你应该知道你的计划有多快。如果没有，给你的 ISP 打个电话。写下你的计划的最高下载和上传速度。然后，你可以使用这些速度测试网站来查看你的 wifi 的实际性能与你理论上支付的费用的对比。
 

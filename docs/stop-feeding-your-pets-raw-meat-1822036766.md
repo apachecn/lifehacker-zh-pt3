@@ -1,6 +1,6 @@
 # 停止喂你的宠物生肉
 
-> 原文:[https://gizmodo . com/stop-feeding-your-pets-raw-meat-1822036766](https://gizmodo.com/stop-feeding-your-pets-raw-meat-1822036766)
+> 原文：<https://gizmodo.com/stop-feeding-your-pets-raw-meat-1822036766>
 
 宠物主人中的一个新兴趋势是给狗和猫喂生肉。这个想法是，我们应该让我们家的猫和狗的饮食更接近它们在自然界可能吃的东西。来自欧洲的新研究显示，在商业生肉产品中发现的细菌和寄生虫的程度令人惊讶——对宠物和它们的主人都构成潜在的健康风险。
 

@@ -1,6 +1,6 @@
 # 如何用 VLC 3.0 投视频
 
-> 原文:[https://life hacker . com/how-to-cast-video-using-VLC-3-0-1822883313](https://lifehacker.com/how-to-cast-video-using-vlc-3-0-1822883313)
+> 原文：<https://lifehacker.com/how-to-cast-video-using-vlc-3-0-1822883313>
 
 媒体播放器的瑞士军刀 VLC 已经更新到 3.0 版本。 [最新版本](https://www.videolan.org/vlc/releases/3.0.0.html) 为播放器添加了一些急需的功能，其中包括一个可以使所有内容从你的电脑流向你的客厅电视变得更加容易的功能:Chromecast 支持(以及其他功能)。
 

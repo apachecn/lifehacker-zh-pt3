@@ -1,6 +1,6 @@
 # 资本借助自动化的力量提升您的储蓄目标
 
-> 原文:[https://life hacker . com/qapital-boosts-your-savings-goals-with-the-power of-aut-1775769618](https://lifehacker.com/qapital-boosts-your-savings-goals-with-the-power-of-aut-1775769618)
+> 原文：<https://lifehacker.com/qapital-boosts-your-savings-goals-with-the-power-of-aut-1775769618>
 
 你可能很熟悉“ [保持变化](https://lifehacker.com/top-10-ways-to-trick-yourself-into-saving-money-397006) ”的程序。您的购买金额四舍五入到最接近的美元，差额自动存入您的储蓄账户。储蓄 app [Qapital](https://www.qapital.com/) 就是基于这个想法，但它将自动化提升到了一个全新的水平。它可以让你把几乎任何事情都变成储蓄触发器，这样你就可以同时为一个目标而储蓄，并养成良好的理财习惯。
 

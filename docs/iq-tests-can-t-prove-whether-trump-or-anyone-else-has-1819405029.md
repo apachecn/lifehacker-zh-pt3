@@ -1,6 +1,6 @@
 # 智商测试不能证明特朗普(或其他任何人)的大脑是否非常好
 
-> 原文:[https://life hacker . com/IQ-tests-can-t-prove-when-trump-or-otherman-has-1819405029](https://lifehacker.com/iq-tests-can-t-prove-whether-trump-or-anyone-else-has-1819405029)
+> 原文：<https://lifehacker.com/iq-tests-can-t-prove-whether-trump-or-anyone-else-has-1819405029>
 
 最近几天，我们的国务卿 [称总统](https://www.avclub.com/reporter-says-rex-tillerson-called-trump-a-fucking-mor-1819235158) 为“该死的白痴”总统反驳说，他认为他的 [智商得分](https://www.washingtonpost.com/news/morning-mix/wp/2017/10/11/mensas-brainiacs-offer-to-host-trump-tillerson-iq-faceoff/?utm_term=.8d1c893778cc) 更高。但是两人都躲在错误的情报措施后面，而不是说出他们真正的感受。
 

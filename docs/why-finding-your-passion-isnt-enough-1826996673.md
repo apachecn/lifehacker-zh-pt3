@@ -1,6 +1,6 @@
 # 为什么“找到你的激情”还不够
 
-> 原文:[https://life hacker . com/why-finding-your passion-not-follow-1826996673](https://lifehacker.com/why-finding-your-passion-isnt-enough-1826996673)
+> 原文：<https://lifehacker.com/why-finding-your-passion-isnt-enough-1826996673>
 
 我们喜欢说，人们应该“找到他们的激情”来体验他们事业上的成功，因此，在他们的生活中。如果你真的喜欢某样东西，它会让你感觉简单而正确。正确这可能是接触新企业的最糟糕的方式。
 

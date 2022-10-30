@@ -1,6 +1,6 @@
 # 如何反击漫步者
 
-> 原文:[https://life hacker . com/how-to-deal-manspreaders-1797014735](https://lifehacker.com/how-to-deal-with-manspreaders-1797014735)
+> 原文：<https://lifehacker.com/how-to-deal-with-manspreaders-1797014735>
 
 [机械故障](http://fusion.kinja.com/how-the-mta-got-so-broke-1795903465) 缺乏资金，以及前后矛盾的日程安排正把 MTA 变成一场噩梦。更糟糕的是，万一你有幸得到一个座位，你可能会遇到更多的人，这些人(猜猜是哪种人)决定他们的自信需要比他们支付的更多的座位。如果你已经厌倦了，有一些方法可以解决这个问题:
 

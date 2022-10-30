@@ -1,6 +1,6 @@
 # 如何避免后悔一生
 
-> 原文:[https://life hacker . com/how-to-避免后悔一生-1826928609](https://lifehacker.com/how-to-avoid-a-life-of-regret-1826928609)
+> 原文：<https://lifehacker.com/how-to-avoid-a-life-of-regret-1826928609>
 
 当你的生命结束时，你最后悔的事情是什么？没有履行你的职责和义务？还是追随梦想的失败？康奈尔大学的新研究表明，我们最大的遗憾与我们生活中的责任无关。
 

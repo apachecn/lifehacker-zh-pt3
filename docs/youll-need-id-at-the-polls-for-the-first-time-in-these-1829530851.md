@@ -1,6 +1,6 @@
 # 在这五个州，你第一次投票时需要身份证
 
-> 原文:[https://life hacker . com/youll-need-id-at-the-first-time-in-this-1829530851](https://lifehacker.com/youll-need-id-at-the-polls-for-the-first-time-in-these-1829530851)
+> 原文：<https://lifehacker.com/youll-need-id-at-the-polls-for-the-first-time-in-these-1829530851>
 
 自 2016 年总统选举以来，各州立法机构已经实施了约 500 项与投票有关的立法， [ProPublica 报道](https://projects.propublica.org/graphics/voting-changes-2018) 。在一些州，理解这些变化可能是去投票和被拒绝投票的区别。
 

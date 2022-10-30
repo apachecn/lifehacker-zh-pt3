@@ -1,6 +1,6 @@
 # 如何从您的脸书订阅中删除怀孕和婴儿广告
 
-> 原文:[https://life hacker . com/how-to-remove-inflation-and-baby-ads-from your-Facebook-1824285483](https://lifehacker.com/how-to-remove-pregnancy-and-baby-ads-from-your-facebook-1824285483)
+> 原文：<https://lifehacker.com/how-to-remove-pregnancy-and-baby-ads-from-your-facebook-1824285483>
 
 也许你在网上注册购买了婴儿送礼会礼物。或者你搜索了“排卵计算器”或者你的一群朋友有了孩子，而你喜欢他们的帖子。不管是什么原因，你的脸书饲料现在充斥着怀孕和婴儿产品的广告，这是最糟糕的。
 

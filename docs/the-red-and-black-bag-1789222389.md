@@ -1,6 +1,6 @@
 # 红色和黑色的包
 
-> 原文:[https://lifehacker.com/the-red-and-black-bag-1789222389](https://lifehacker.com/the-red-and-black-bag-1789222389)
+> 原文：<https://lifehacker.com/the-red-and-black-bag-1789222389>
 
 有时候，你包里的颜色搭配很好。日常携带读者的埃德维索索的包管理一个不错的一致的红色和黑色的主题。
 

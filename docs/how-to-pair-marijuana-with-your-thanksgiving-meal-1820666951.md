@@ -1,6 +1,6 @@
 # 如何在感恩节大餐中搭配大麻
 
-> 原文:[https://life hacker . com/how-to-pair-大麻与你的感恩节大餐-1820666951](https://lifehacker.com/how-to-pair-marijuana-with-your-thanksgiving-meal-1820666951)
+> 原文：<https://lifehacker.com/how-to-pair-marijuana-with-your-thanksgiving-meal-1820666951>
 
 感恩节压力很大。无论你是在为你的船员准备一个盛大的朋友感恩节大餐，还是去参加一个家庭聚会，这都是一个容易让人不知所措的节日。虽然你的典型举动可能是用黑比诺淹没所有的压力，但随着娱乐性大麻供应的增加，大麻可能也会在今年的一些节日庆祝活动中出现。
 

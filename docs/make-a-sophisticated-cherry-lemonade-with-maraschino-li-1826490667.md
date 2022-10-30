@@ -1,6 +1,6 @@
 # 用黑樱桃利口酒制作精致的樱桃柠檬水
 
-> 原文:[https://life hacker . com/make-a-composite-cherry-lemonade-with-maraschino-Li-1826490667](https://lifehacker.com/make-a-sophisticated-cherry-lemonade-with-maraschino-li-1826490667)
+> 原文：<https://lifehacker.com/make-a-sophisticated-cherry-lemonade-with-maraschino-li-1826490667>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们将制作我最喜欢的夏日饮品之一的成人版:樱桃柠檬水。
 

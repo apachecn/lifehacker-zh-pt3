@@ -1,6 +1,6 @@
 # 为了让你的财务恢复正常，你做过的最好的事情是什么？
 
-> 原文:[https://life hacker . com/what-the-best-this-you-do-to-get-you-finance-I-1823155622](https://lifehacker.com/whats-the-best-thing-you-ve-done-to-get-your-finances-i-1823155622)
+> 原文：<https://lifehacker.com/whats-the-best-thing-you-ve-done-to-get-your-finances-i-1823155622>
 
 我们大多数人都可以更好地管理自己的钱。这并不意味着让任何人感到羞耻或内疚——这只是事实。每天都有如此多的诱惑，如此多不同的金融产品在召唤我们，而我们手头的钱却如此之少。有效管理我们所拥有的往往是一场艰苦的战斗。
 

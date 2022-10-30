@@ -1,6 +1,6 @@
 # 用谷歌图片更好地搜索 Flickr
 
-> 原文:[https://life hacker . com/search-Flickr-better-with-Google-images-1797978498](https://lifehacker.com/search-flickr-better-with-google-images-1797978498)
+> 原文：<https://lifehacker.com/search-flickr-better-with-google-images-1797978498>
 
 在像 Lifehacker 这样的营利性编辑机构，当我们需要一张图片来发布我们的帖子时，我们不能只进行谷歌图片搜索，就能得到第一个结果。我们必须使用经过适当许可的照片。有时我们使用自己的原创照片，有时使用付费的 Getty images，有时使用通过知识共享许可免费使用的数百万张[Flickr](https://www.flickr.com/creativecommons/)照片。
 

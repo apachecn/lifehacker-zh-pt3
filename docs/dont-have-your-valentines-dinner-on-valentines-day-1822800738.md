@@ -1,6 +1,6 @@
 # 不要在情人节吃你的情人节晚餐
 
-> 原文:[https://life hacker . com/don ' t-have-your-valentines-dinner-on-valentines-day-1822800738](https://lifehacker.com/dont-have-your-valentines-dinner-on-valentines-day-1822800738)
+> 原文：<https://lifehacker.com/dont-have-your-valentines-dinner-on-valentines-day-1822800738>
 
 如果你像我一样，你会在任何场合跳出来吃一顿豪华的晚餐。情人节是一个绝佳的机会；今天不是你的生日或周年纪念日，但是你可以很容易地证明和你的另一半一起吃一顿特别的饭是有道理的。
 

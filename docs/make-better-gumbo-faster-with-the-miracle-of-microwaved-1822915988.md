@@ -1,6 +1,6 @@
 # 用微波面糊的奇迹更快做出更好的秋葵汤
 
-> 原文:[https://the take out . com/make-better-gumbo-fast-with the miracle-of-microwaved-1822915988](https://thetakeout.com/make-better-gumbo-faster-with-the-miracle-of-microwaved-1822915988)
+> 原文：<https://thetakeout.com/make-better-gumbo-faster-with-the-miracle-of-microwaved-1822915988>
 
 我第一次尝试秋葵汤，我真的得到了那该死的汤。这并不是说这道菜做起来很复杂，但它需要的毅力比我想象的要多。任何路易斯安那人都会告诉你，最需要努力的步骤是制作面糊，包括将面粉搅拌到热油中，直到混合物变成深棕色。我没有意识到你必须不停地搅拌——不，听我说:*不停地搅拌*——至少半个小时。当我得到我想要的咖啡渣颜色时，我的右前臂被一根肌腱吊着。但是该死的，鸡肉和秋葵汤好吃吗？
 

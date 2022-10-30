@@ -1,6 +1,6 @@
 # 如何看到你的共同基金里到底有什么
 
-> 原文:[https://life hacker . com/how-to-see-what-inside-your-mutual-fund-1823329898](https://lifehacker.com/how-to-see-whats-actually-inside-your-mutual-fund-1823329898)
+> 原文：<https://lifehacker.com/how-to-see-whats-actually-inside-your-mutual-fund-1823329898>
 
 沃伦·巴菲特为自己赢得了世界上最伟大的投资者的美誉，他还是指数基金 的超级粉丝。基金基本上是由一堆个人投资组成的大投资。如果你对 [懒惰、一劳永逸的投资感兴趣，那么](https://twocents.lifehacker.com/how-to-build-an-easy-beginner-set-and-forget-investm-1686878594) 你对它们很熟悉。但是，你如何确切地知道你的基金里有什么呢？
 

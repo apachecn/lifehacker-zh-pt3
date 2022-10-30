@@ -1,6 +1,6 @@
 # 加入新的后代脸书集团
 
-> 原文:[https://life hacker . com/join-the-new-professional-Facebook-group-1823590717](https://lifehacker.com/join-the-new-offspring-facebook-group-1823590717)
+> 原文：<https://lifehacker.com/join-the-new-offspring-facebook-group-1823590717>
 
 作为一名家长，你可以使用一些备份——聪明的想法，节省时间的技巧，以及来自与你并肩作战的父母们的完全非判断性的支持。这就是为什么我们刚刚在脸书推出了 [后代:一个生活黑客育儿小组](https://www.facebook.com/groups/2018785615043946/) 。
 

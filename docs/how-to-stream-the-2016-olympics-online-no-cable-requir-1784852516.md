@@ -1,6 +1,6 @@
 # 如何在线直播 2016 年奥运会，不需要电缆
 
-> 原文:[https://life hacker . com/how-to-stream-the-2016-Olympics-online-no-cable-reqir-1784852516](https://lifehacker.com/how-to-stream-the-2016-olympics-online-no-cable-requir-1784852516)
+> 原文：<https://lifehacker.com/how-to-stream-the-2016-olympics-online-no-cable-requir-1784852516>
 
 2016 年夏季奥运会 在这里，世界上最伟大的运动员已经准备好向我们展示他们的实力。如果你想抓住所有的悬念，戏剧和胜利，但你没有有线电视，这里有你可以免费在流媒体上获得奖牌的方法。
 

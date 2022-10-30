@@ -1,6 +1,6 @@
 # 一切都是由什么组成的，关于罗马帝国鲜为人知的事实，以及世界各地的秋季节日
 
-> 原文:[https://life hacker . com/what-everything-is-maked-the-little-known-facts-about-th-1786270233](https://lifehacker.com/what-everything-is-made-of-little-known-facts-about-th-1786270233)
+> 原文：<https://lifehacker.com/what-everything-is-made-of-little-known-facts-about-th-1786270233>
 
 本周，我们来看看“事物”是由什么组成的——比如，一切事物:你、地球、你现在使用的电脑、一些值得期待的秋季节日、为什么一天有 24 小时，以及当新技术遇到旧法律时会发生什么。
 

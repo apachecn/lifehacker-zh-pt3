@@ -1,6 +1,6 @@
 # 除了“分享”之外，应该对小孩子说些什么
 
-> 原文:[https://life hacker . com/what-to-say-to-little-kids-inst-of-share-1819753096](https://lifehacker.com/what-to-say-to-little-kids-instead-of-share-1819753096)
+> 原文：<https://lifehacker.com/what-to-say-to-little-kids-instead-of-share-1819753096>
 
 当我的女儿蹒跚学步时，她会和她蹒跚学步的朋友一起玩耍，当孩子们一起用橡皮泥制作披萨时，父母会坐在沙发上，打开玫瑰红罐头，进行有意义的成人谈话。
 

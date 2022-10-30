@@ -1,6 +1,6 @@
 # 10 项有用的 Windows 10 功能，您可能从未使用过，但应该使用
 
-> 原文:[https://gizmodo . com/10-useful-windows-10-features-you-possible-never-use-bu-1820980875](https://gizmodo.com/10-useful-windows-10-features-you-probably-never-use-bu-1820980875)
+> 原文：<https://gizmodo.com/10-useful-windows-10-features-you-probably-never-use-bu-1820980875>
 
 Windows 已经以这样或那样的形式存在了整整 32 年，在这段时间里，它积累了许多功能——不仅仅是最新的功能，还有那些你可能已经忘记或者根本没有发现的长期存在的功能。这里有 10 个真正有用的技巧，Windows 10 能够做到，你可能不知道，但绝对应该知道。
 

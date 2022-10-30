@@ -1,6 +1,6 @@
 # 男士化妆入门指南
 
-> 原文:[https://life hacker . com/the-beauty-products-men-should-try-1825387495](https://lifehacker.com/the-beauty-products-men-should-try-1825387495)
+> 原文：<https://lifehacker.com/the-beauty-products-men-should-try-1825387495>
 
 谁说男人不能使用化妆品和其他针对女性的美容产品？在当地化妆品店的一些好心人(和我的女朋友)的帮助下，我找到了一些即使是最有男子气概的男人也能谨慎舒适地使用的东西。相信我，人们唯一会注意到的是你有多好看。
 

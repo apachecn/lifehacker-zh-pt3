@@ -1,6 +1,6 @@
 # 如何烤一整头大蒜
 
-> 原文:[https://life hacker . com/how-to-bake-a whole-head-of-garlic-1820407305](https://lifehacker.com/how-to-roast-a-whole-head-of-garlic-1820407305)
+> 原文：<https://lifehacker.com/how-to-roast-a-whole-head-of-garlic-1820407305>
 
 大蒜的各种形态都很棒，但像大多数植物一样，它在烘烤时绝对处于最佳状态。烘烤大蒜使它的辛辣变得柔和，缓和了它的攻击性，但它也加强了它的甜味，并通过可爱的小 [美拉德反应](https://en.wikipedia.org/wiki/Maillard_reaction) 创造出新的、更深的味道。这也很容易做到。
 

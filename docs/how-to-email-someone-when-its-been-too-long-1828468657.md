@@ -1,6 +1,6 @@
 # 如何给某人发电子邮件
 
-> 原文:[https://life hacker . com/how-to-email-someone-when-its-too-long-1828468657](https://lifehacker.com/how-to-email-someone-when-its-been-too-long-1828468657)
+> 原文：<https://lifehacker.com/how-to-email-someone-when-its-been-too-long-1828468657>
 
 你想回应某人已经有一段时间了。其实已经过了可接受的回答时间量了，你就顺其自然吧。走吧。最终过了这么长时间，你认为你再也无法和这个人联系了——除非你需要什么。
 

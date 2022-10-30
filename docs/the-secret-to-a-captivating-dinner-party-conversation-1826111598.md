@@ -1,6 +1,6 @@
 # 迷人的晚宴谈话的秘密
 
-> 原文:[https://life hacker . com/the-secret-to-a-charming-dinner-party-conversation-1826111598](https://lifehacker.com/the-secret-to-a-captivating-dinner-party-conversation-1826111598)
+> 原文：<https://lifehacker.com/the-secret-to-a-captivating-dinner-party-conversation-1826111598>
 
 晚餐聚会通常是不同的人聚在一个屋檐下喝提神饮料，吃美味的家常菜。正因为如此，谈话只能是对每个人的谋生之道的尴尬解释。你可以做得更好！以这种方式开始。
 

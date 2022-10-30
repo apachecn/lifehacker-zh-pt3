@@ -1,6 +1,6 @@
 # 如何不影响伴侣的母亲节
 
-> 原文:[https://life hacker . com/how-to-not-eff-up-your-partners-mother-day-1795053696](https://lifehacker.com/how-to-not-eff-up-your-partners-mothers-day-1795053696)
+> 原文：<https://lifehacker.com/how-to-not-eff-up-your-partners-mothers-day-1795053696>
 
 母亲节是星期天。有人需要把它放在日历上吗？如果你的生活中有一位母亲，而你还没有订购鲜花/预订晚餐/购买贺卡，现在是时候这样做了！如果你足够幸运，在你的生活中有不止一个妈妈(比如，你的妈妈，你孩子的妈妈，还有你的婆婆)，母亲节会变得很快。
 

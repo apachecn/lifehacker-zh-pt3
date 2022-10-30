@@ -1,6 +1,6 @@
 # 如何在新的一年创造并成功实现个人目标
 
-> 原文:[https://life hacker . com/how-to-create-and-success-at-personal-goals-in-the-comi-1790986202](https://lifehacker.com/how-to-create-and-succeed-at-personal-goals-in-the-comi-1790986202)
+> 原文：<https://lifehacker.com/how-to-create-and-succeed-at-personal-goals-in-the-comi-1790986202>
 
 从我记事起，目标就是我个人、职业和财务成功的核心部分。我记得甚至在小时候就设定了个人目标，比如个人暑期阅读挑战和储蓄目标，这种主动性一直延续到成年。
 

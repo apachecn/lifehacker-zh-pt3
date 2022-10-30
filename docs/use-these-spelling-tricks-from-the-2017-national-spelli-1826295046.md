@@ -1,6 +1,6 @@
 # 使用 2017 年全国拼字比赛冠军的这些拼写技巧
 
-> 原文:[https://life hacker . com/use-these-spelling-tricks-from-the-2017-national-spelli-1826295046](https://lifehacker.com/use-these-spelling-tricks-from-the-2017-national-spelli-1826295046)
+> 原文：<https://lifehacker.com/use-these-spelling-tricks-from-the-2017-national-spelli-1826295046>
 
 “关于拼写，重要的是要知道，这不仅仅是死记硬背，”2017 年斯克里普斯全国拼写大赛的冠军 Ananya Vinay 说，他将在下周举行今年的大赛。虽然 Vinay 使用抽认卡来学习特定的单词，但她说真正的诀窍是了解不同单词的来源。
 

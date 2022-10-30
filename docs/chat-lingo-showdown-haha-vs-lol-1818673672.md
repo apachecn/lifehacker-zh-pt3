@@ -1,6 +1,6 @@
 # 聊天行话对决:“哈哈”vs“lol”
 
-> 原文:[https://life hacker . com/chat-lingo-摊牌-哈哈-vs-lol-1818673672](https://lifehacker.com/chat-lingo-showdown-haha-vs-lol-1818673672)
+> 原文：<https://lifehacker.com/chat-lingo-showdown-haha-vs-lol-1818673672>
 
 即使你的对话伙伴听不到你笑或看不到你笑，表达你对一个笑话或有趣故事的欣赏也是很重要的。许多受欢迎的选项可以归结为两种类型:模拟笑的*哈哈哈*和隐喻笑的 *lol* 。
 

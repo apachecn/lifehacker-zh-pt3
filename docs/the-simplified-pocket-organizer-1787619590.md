@@ -1,6 +1,6 @@
 # 简化的袖珍组织器
 
-> 原文:[https://life hacker . com/the-simplified-pocket-organizer-1787619590](https://lifehacker.com/the-simplified-pocket-organizer-1787619590)
+> 原文：<https://lifehacker.com/the-simplified-pocket-organizer-1787619590>
 
 有时候你不想要一个全尺寸的包，你只是想要一个小而容易的东西。典型的例子是，读者丹妮·泰每天提一个只装一些日常必需品的包。
 

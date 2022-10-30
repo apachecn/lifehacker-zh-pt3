@@ -1,6 +1,6 @@
 # 导弹防御系统是如何工作的？
 
-> 原文:[https://life hacker . com/how-do-missile-defense-systems-work-1821057921](https://lifehacker.com/how-do-missile-defense-systems-work-1821057921)
+> 原文：<https://lifehacker.com/how-do-missile-defense-systems-work-1821057921>
 
 你可能知道美国有导弹防御系统，光是这个想法就让你觉得在美国(相对)安全舒适。但是你知道这些系统是如何工作的吗？或者它们能有多有效？他们不是你想的那种无法穿透的盾牌。
 

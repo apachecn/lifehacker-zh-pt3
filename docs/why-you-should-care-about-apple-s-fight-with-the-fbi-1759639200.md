@@ -1,6 +1,6 @@
 # 为什么你应该关心苹果与联邦调查局的斗争
 
-> 原文:[https://gizmodo . com/why-you-should-care-apple-s-fight-with-the-FBI-1759639200](https://gizmodo.com/why-you-should-care-about-apple-s-fight-with-the-fbi-1759639200)
+> 原文：<https://gizmodo.com/why-you-should-care-about-apple-s-fight-with-the-fbi-1759639200>
 
 联邦调查局希望苹果公司帮助调查一起恐怖袭击事件。苹果表示，提供这种帮助才是真正的危险。科技公司和政府之间关于加密的斗争已经达到了沸点。发生的事情会影响任何使用智能手机的人，包括你。
 

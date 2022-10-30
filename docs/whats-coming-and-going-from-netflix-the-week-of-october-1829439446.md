@@ -1,6 +1,6 @@
 # 2018 年 10 月 8 日这一周，网飞有哪些来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-October-1829439446](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1829439446)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-october-1829439446>
 
 我们是 Lifehacker 的 Schitt ' s Creek 大家庭，所以周四第四季的到来是一个非常好的消息。如果你因为这个标题太糟糕而抵制这个令人愉快的节目，我敦促你解决你可以理解的问题，一头扎进去。曾经富有的罗斯家族，被迫放弃他们的豪华豪宅，在这个不幸命名的小镇上住了一个两居室的汽车旅馆套房，这是一个正在进行的传奇，充满泡沫、愚蠢、舒适和加拿大特色。这部电影由克里斯多弗·盖斯特、尤金·利维、凯瑟琳·欧·哈拉和其他一系列你会立刻喜欢的喜剧天才主演。
 

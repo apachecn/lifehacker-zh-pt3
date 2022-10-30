@@ -1,6 +1,6 @@
 # 零售商骗你花更多钱的 10 种狡猾方法
 
-> 原文:[https://life hacker . com/10-sneaky-ways-retailers-fool-you-into-expension-more-1768940270](https://lifehacker.com/10-sneaky-ways-retailers-fool-you-into-spending-more-1768940270)
+> 原文：<https://lifehacker.com/10-sneaky-ways-retailers-fool-you-into-spending-more-1768940270>
 
 每天，商店都在试图说服我们往购物车里放更多的东西，然后在结账时多付一些钱。从战略展示到所有这些美味的赠品，商店都试图愚弄顾客。因此，本着这个季节的精神，让我们来看看商店是如何说服我们打开钱包的——这可能会帮助我们少花一点钱。
 

@@ -1,6 +1,6 @@
 # 我是女人，握我的手，该死的
 
-> 原文:[https://deadspin . com/I-m-a-woman-shake-my-hand-damn-it-1796885540](https://deadspin.com/i-m-a-woman-shake-my-hand-damn-it-1796885540)
+> 原文：<https://deadspin.com/i-m-a-woman-shake-my-hand-damn-it-1796885540>
 
 醉酒的办公室聚会开始减少，当我们中的醉汉偷偷溜出去寻找黑暗的角落和隐藏的酒精储备时，理性的人已经转向水。晚上很早就开始了，所以感觉比实际上晚了很多。以任何标准来看，这都是一个星期四，第二天早上我们都必须回到那里。
 

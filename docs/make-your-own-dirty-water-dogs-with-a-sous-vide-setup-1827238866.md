@@ -1,6 +1,6 @@
 # 用真空吸尘器制作你自己的“脏水狗”
 
-> 原文:[https://life hacker . com/make-your-own-dirty-water-dogs-with-a-sous-vide-setup-1827238866](https://lifehacker.com/make-your-own-dirty-water-dogs-with-a-sous-vide-setup-1827238866)
+> 原文：<https://lifehacker.com/make-your-own-dirty-water-dogs-with-a-sous-vide-setup-1827238866>
 
 热狗是最容易取悦大众的食物。它们已经煮好了，所以你不用担心会毒死任何人，即使是最挑剔的青年也很少能抗拒一条好狗。“脏水狗”——你可以从一辆放在盐水缸中的手推车上获得的狗——可能看起来像是只有在大城市的街道上才能得到的款待，但有了沉浸式循环器，你可以在家里非常接近真实的东西。
 

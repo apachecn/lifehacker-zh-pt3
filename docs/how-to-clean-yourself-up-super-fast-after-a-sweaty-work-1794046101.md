@@ -1,6 +1,6 @@
 # 如何在大汗淋漓的锻炼后快速清洁自己
 
-> 原文:[https://life hacker . com/how-to-clean-up-super fast-after-a 汗湿工作-1794046101](https://lifehacker.com/how-to-clean-yourself-up-super-fast-after-a-sweaty-work-1794046101)
+> 原文：<https://lifehacker.com/how-to-clean-yourself-up-super-fast-after-a-sweaty-work-1794046101>
 
 如果你时间紧迫，在工作前或午餐时间去健身房可能是你唯一的选择。这可能意味着你不能挤时间洗澡。以下是如何让你快速回到工作中，而不会感觉自己汗流浃背、臭烘烘。
 

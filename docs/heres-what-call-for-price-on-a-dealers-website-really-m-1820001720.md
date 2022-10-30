@@ -1,6 +1,6 @@
 # 以下是经销商网站上“喊价”的真正含义
 
-> 原文:[https://jalopnik . com/heres-what-call-for-price-on-a-dealers-website-really-m-1820001720](https://jalopnik.com/heres-what-call-for-price-on-a-dealers-website-really-m-1820001720)
+> 原文：<https://jalopnik.com/heres-what-call-for-price-on-a-dealers-website-really-m-1820001720>
 
 网上买车最令人沮丧的一个方面 通常可以归结为三个字:“喊价”这似乎很简单；打电话给经销商，他们会告诉你多少钱。但是这个命令的潜台词将会给你一个相当大的线索，告诉你是否甚至想麻烦拿起电话。
 

@@ -1,6 +1,6 @@
 # 如何解决 iOS 9 的最大问题
 
-> 原文:[https://life hacker . com/how-to-fix-IOs-9s-maximum-annoyances-1730830231](https://lifehacker.com/how-to-fix-ios-9s-biggest-annoyances-1730830231)
+> 原文：<https://lifehacker.com/how-to-fix-ios-9s-biggest-annoyances-1730830231>
 
 iOS 9 已经发布，和任何新的操作系统一样，它引入了各种新功能——其中一些并不适合所有人。如果有什么不喜欢的，大概可以关掉。下面是怎么做的。
 

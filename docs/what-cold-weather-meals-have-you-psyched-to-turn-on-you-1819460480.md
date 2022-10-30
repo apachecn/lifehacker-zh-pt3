@@ -1,6 +1,6 @@
 # 有哪些寒冷天气的饭菜让你想到要打开烤箱？
 
-> 原文:[https://life hacker . com/what-cold-weather-meals-have-you-psyched-to-turn-on-you-1819460480](https://lifehacker.com/what-cold-weather-meals-have-you-psyched-to-turn-on-you-1819460480)
+> 原文：<https://lifehacker.com/what-cold-weather-meals-have-you-psyched-to-turn-on-you-1819460480>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周我想谈谈你的烤箱，以及在这寒冷的几个月里，你打算用它做些什么温暖又受欢迎的东西。
 

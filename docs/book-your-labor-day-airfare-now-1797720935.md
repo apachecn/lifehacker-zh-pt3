@@ -1,6 +1,6 @@
 # 立即预订您的劳动节机票
 
-> 原文:[https://life hacker . com/book-your-labor-day-airfare-now-1797720935](https://lifehacker.com/book-your-labor-day-airfare-now-1797720935)
+> 原文：<https://lifehacker.com/book-your-labor-day-airfare-now-1797720935>
 
 如果你要在劳动节假期飞往任何地方，现在是时候预订了。价格只会上涨。
 

@@ -1,6 +1,6 @@
 # 采纳马友友关于渐进式学习的建议
 
-> 原文:[https://life hacker . com/take-yo-yo-MAS-advice-on-learning-incrementally-1828682697](https://lifehacker.com/take-yo-yo-mas-advice-on-learning-incrementally-1828682697)
+> 原文：<https://lifehacker.com/take-yo-yo-mas-advice-on-learning-incrementally-1828682697>
 
 大提琴家马友友在演奏巴赫《第一组曲前奏曲》 [和 NPR《小书桌音乐会系列》](https://www.npr.org/2018/08/16/639206471/yo-yo-ma-tiny-desk-concert) 时，提出了一些培养习惯和提高技巧的建议，这些建议远远超出了音乐的范畴。
 

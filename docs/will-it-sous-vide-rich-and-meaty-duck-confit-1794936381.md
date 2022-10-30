@@ -1,6 +1,6 @@
 # 它会腐烂吗？丰富多肉的鸭肉
 
-> 原文:[https://life hacker . com/will-it-sous-vide-rich-and-meat-duck-confit-1794936381](https://lifehacker.com/will-it-sous-vide-rich-and-meaty-duck-confit-1794936381)
+> 原文：<https://lifehacker.com/will-it-sous-vide-rich-and-meaty-duck-confit-1794936381>
 
 大家好，欢迎来到丰富多采的 [*它会被分割吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

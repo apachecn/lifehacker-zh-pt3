@@ -1,6 +1,6 @@
 # 十大值得投资的厨房工具
 
-> 原文:[https://life hacker . com/top-10-值得投资的厨房工具-1784722977](https://lifehacker.com/top-10-kitchen-tools-that-are-worth-their-investment-1784722977)
+> 原文：<https://lifehacker.com/top-10-kitchen-tools-that-are-worth-their-investment-1784722977>
 
 我们已经讨论过 [厨房工具*每个人*都应该有](http://lifehacker.com/top-10-kitchen-tools-everyone-should-own-1775280258) ，工具 [每个有预算的人都应该有](https://lifehacker.com/budget-kitchen-upgrades-for-every-kitchen-that-will-cha-5897045) ，但是如果你愿意在你的家庭烹饪中投入一点钱，这里有一些坚固的厨房工具，可能会比平时多花一点钱，但是会让你在味道、节省时间或者简单的生活质量方面得到回报。
 

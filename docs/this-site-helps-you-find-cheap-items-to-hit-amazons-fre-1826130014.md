@@ -1,6 +1,6 @@
 # 这个网站帮助你找到便宜的商品，达到亚马逊的免运费门槛
 
-> 原文:[https://life hacker . com/this-site-help-you-find-beat-amazons-fre-1826130014](https://lifehacker.com/this-site-helps-you-find-cheap-items-to-hit-amazons-fre-1826130014)
+> 原文：<https://lifehacker.com/this-site-helps-you-find-cheap-items-to-hit-amazons-fre-1826130014>
 
 在我最后一次去爱尔兰的前一天，我在最后一刻发现:我完全不知道我的旅行电源适配器在哪里。我们最近搬家了，我一点也不知道(奇怪的是，几个月后仍然不知道)我的旅行适配器在新地方的什么地方。据我所知，它们可能还在我旧公寓的“旅行抽屉”里。
 

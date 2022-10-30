@@ -1,6 +1,6 @@
 # 如何让豆子罐头味道惊艳
 
-> 原文:[https://life hacker . com/how-to-make-canned-beans-taste-amazing-1826919658](https://lifehacker.com/how-to-make-canned-beans-taste-amazing-1826919658)
+> 原文：<https://lifehacker.com/how-to-make-canned-beans-taste-amazing-1826919658>
 
 吃得便宜不像“自己做”那么简单。除了食品杂货的成本，做饭还需要花费时间，如果你做多份工作或长时间工作来养活自己或家人，你可能没有多余的时间。
 

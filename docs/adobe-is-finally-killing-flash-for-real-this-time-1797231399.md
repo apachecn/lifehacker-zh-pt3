@@ -1,6 +1,6 @@
 # Adobe 最终杀死了 Flash(这次是真的)
 
-> 原文:[https://gizmodo . com/adobe-is-finally-killing-flash-for-real-this-time-1797231399](https://gizmodo.com/adobe-is-finally-killing-flash-for-real-this-time-1797231399)
+> 原文：<https://gizmodo.com/adobe-is-finally-killing-flash-for-real-this-time-1797231399>
 
 它就在这里，躲在半路上 [公司最新的新闻稿](https://blogs.adobe.com/conversations/2017/07/adobe-flash-update.html) ，就像拥挤的城镇广场上的断头台:“Adobe 正计划寿终正寝的 Flash。”嘣。那是刀片掉落的声音，闪光，最后，谢天谢地，幸运地死去。因为 Adobe 刚刚把它干掉了。
 

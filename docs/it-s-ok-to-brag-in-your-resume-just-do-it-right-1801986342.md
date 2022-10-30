@@ -1,6 +1,6 @@
 # 简历上吹牛没问题，做对就行
 
-> 原文:[https://life hacker . com/it-s-ok-to-brag-in-your-resume-just-do-it-right-1801986342](https://lifehacker.com/it-s-ok-to-brag-in-your-resume-just-do-it-right-1801986342)
+> 原文：<https://lifehacker.com/it-s-ok-to-brag-in-your-resume-just-do-it-right-1801986342>
 
 你的简历通常是招聘人员对你的第一印象，所以确保你在简历中展现出职业生涯中好的一面至关重要。如果你没能给你的潜在雇主留下好印象，可能是你的简历缺少了一些关键信息，而这些信息会帮助你在众多失败者中脱颖而出。 [据 Fast Company](https://www.fastcompany.com/40459307/recruiters-explain-what-the-worst-resumes-have-in-common) 报道，大多数人在简历上犯的错误可以通过几处编辑、一点吹嘘，甚至一种新字体来轻松纠正。
 

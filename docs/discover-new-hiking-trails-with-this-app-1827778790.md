@@ -1,6 +1,6 @@
 # 使用此应用程序探索新的徒步旅行路线
 
-> 原文:[https://life hacker . com/discover-new-hicking-trails-with-this-app-1827778790](https://lifehacker.com/discover-new-hiking-trails-with-this-app-1827778790)
+> 原文：<https://lifehacker.com/discover-new-hiking-trails-with-this-app-1827778790>
 
 徒步旅行是这样一种活动，在这种活动中，有一张你要去的地方的地图以及一些在你之前旅行过的人所发生的事情的报告是值得的。当然，那里有受欢迎的、有标记的路径，但是当你在寻找一些更模糊的东西时，寻找有时会有点复杂，特别是当你在一个新的地方旅行时。
 

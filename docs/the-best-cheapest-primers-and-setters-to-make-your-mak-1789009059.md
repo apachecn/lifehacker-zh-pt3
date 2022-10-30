@@ -1,6 +1,6 @@
 # 最好，最便宜的底漆和定型剂，让你的妆容持续一整天
 
-> 原文:[https://life hacker . com/the-best-primers-and-setters-to-mak-1789009059](https://lifehacker.com/the-best-cheapest-primers-and-setters-to-make-your-mak-1789009059)
+> 原文：<https://lifehacker.com/the-best-cheapest-primers-and-setters-to-make-your-mak-1789009059>
 
 每个人都可以从打底和定妆中受益，以确保它可以持续一整天。你不需要*也不需要*，但是不管你用的是 7 美元的粉底还是 70 美元的粉底，那种产品都是一种投资，如果你不能确保它尽可能长久，那就没有任何意义。
 

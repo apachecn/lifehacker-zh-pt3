@@ -1,6 +1,6 @@
 # 能为你省钱的圣诞礼物
 
-> 原文:[https://life hacker . com/Christmas-gifts-that-will-save-you-money-1821295791](https://lifehacker.com/christmas-gifts-that-will-save-you-money-1821295791)
+> 原文：<https://lifehacker.com/christmas-gifts-that-will-save-you-money-1821295791>
 
 袜子是冷漠的送礼者(或不了解你的亲戚)送的糟糕节日礼物的典型例子，但如果你问我，这是一个不必要的名声。如果你在寒冷的气候下，你每天都要穿厚的，但你可能没有 10 双、15 双甚至 7 双衣服来支撑你的洗衣周期。如果你在办公室工作，你需要很多礼服袜，如果你是运动员，你可能需要特制的袜子(我最近买了带衬垫的跑步袜，它们改变了我的生活，或者至少改变了我的脚)，这个清单还在继续。所有的袜子都不便宜。
 

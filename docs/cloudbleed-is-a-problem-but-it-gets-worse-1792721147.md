@@ -1,6 +1,6 @@
 # 云出血是一个问题，但它变得更糟
 
-> 原文:[https://gizmodo . com/cloud bleed-is-a-problem-but-that-be-worse-1792721147](https://gizmodo.com/cloudbleed-is-a-problem-but-it-gets-worse-1792721147)
+> 原文：<https://gizmodo.com/cloudbleed-is-a-problem-but-it-gets-worse-1792721147>
 
 像 Cloudbleed 这样的巨大安全灾难 [从来都不是好玩的。然而，随着关于新报告的漏洞的更多信息变得可用，我们可以理解错误对搞砸互联网有多危险。幸运的是，对于 Cloudbleed 来说，情况并没有想象中那么糟糕。但是也不好。](https://gizmodo.com/everything-you-need-to-know-about-cloudbleed-the-lates-1792710616)
 

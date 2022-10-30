@@ -1,6 +1,6 @@
 # 请不要陷入 Craigslist 汇票骗局
 
-> 原文:[https://jalopnik . com/please-don-fall-for-the-craigslist-money-order-scam-1742641006](https://jalopnik.com/please-dont-fall-for-the-craigslist-money-order-scam-1742641006)
+> 原文：<https://jalopnik.com/please-dont-fall-for-the-craigslist-money-order-scam-1742641006>
 
 有相当多的[网络诈骗](http://thegarage.jalopnik.com/how-to-avoid-craigslists-rampant-sight-unseen-purchase-1707158966) 在那里，我已经谈论过其中的一些。但是我一直听说有人被“汇票”骗局骗了。
 

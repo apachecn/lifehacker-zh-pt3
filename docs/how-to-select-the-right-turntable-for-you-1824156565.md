@@ -1,6 +1,6 @@
 # 如何选择适合你的转盘
 
-> 原文:[https://life hacker . com/how-to-select-the-right-turntable-for-you 1824156565](https://lifehacker.com/how-to-select-the-right-turntable-for-you-1824156565)
+> 原文：<https://lifehacker.com/how-to-select-the-right-turntable-for-you-1824156565>
 
 黑胶唱片的销量在过去 12 年里呈指数级增长——2017 年 [创下历史新高](https://trackrecord.net/vinyl-sales-hit-a-record-high-in-2017-is-the-trend-hel-1821769488) (双关语)。 [根据尼尔森音乐](https://www.billboard.com/articles/columns/chart-beat/8085951/us-vinyl-album-sales-nielsen-music-record-high-2017?utm_source=twitter) 的数据，黑胶占所有实体专辑销量的 14%，高于 2016 年的 11%。黑胶回来了，宝贝！已经有一段时间了，如果你想加入游戏(或者更新你的转盘。我看到你，非新手)然后允许我们帮助。以下是如何找到最适合你的唱机。
 

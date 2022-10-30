@@ -1,6 +1,6 @@
 # 如何把瑜伽变成高级姿势的运动
 
-> 原文:[https://life hacker . com/how-to-turn-yoga-into-badass-exercise-with-advanced-pos-1732317425](https://lifehacker.com/how-to-turn-yoga-into-badass-exercise-with-advanced-pos-1732317425)
+> 原文：<https://lifehacker.com/how-to-turn-yoga-into-badass-exercise-with-advanced-pos-1732317425>
 
 瑜伽不仅仅是度过休息日的一种放松方式。 [这本身就是一个挑战](https://lifehacker.com/does-yoga-have-any-real-fitness-benefits-1713922947) :你可以锻炼出足够的力量来摆出令人印象深刻的姿势，比如乌鸦或者舞者。
 

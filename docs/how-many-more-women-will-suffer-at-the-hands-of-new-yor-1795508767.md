@@ -1,6 +1,6 @@
 # 纽约过时的堕胎法还会让多少女性遭受痛苦？
 
-> 原文:[https://Jezebel . com/how-much-more-women-that-much-than-much-of-hands-the-new-yor-1795508767](https://jezebel.com/how-many-more-women-will-suffer-at-the-hands-of-new-yor-1795508767)
+> 原文：<https://jezebel.com/how-many-more-women-will-suffer-at-the-hands-of-new-yor-1795508767>
 
 五月的两个星期后，在一个破纪录的 91 度的日子里，一些男人和女人聚集在曼哈顿下城一个计划生育中心的无窗会议室里；他们在那里了解一个鲜为人知的州堕胎法，该法迫使纽约的妇女生下婴儿，这些婴儿将在生命的最初时刻死去。主持这次会议的不是“计划生育”组织的代表，而是 36 岁的埃里卡·克里斯滕森和她 39 岁的丈夫加林·马沙尔，他们自称是“业余活动者”，不知道他们的名字或长相，但他们的故事已经被 240 多万人阅读了。
 

@@ -1,6 +1,6 @@
 # 国税局没给你打电话
 
-> 原文:[https://lifehacker.com/the-irs-isnt-calling-you-1822798693](https://lifehacker.com/the-irs-isnt-calling-you-1822798693)
+> 原文：<https://lifehacker.com/the-irs-isnt-calling-you-1822798693>
 
 纳税季意味着骗子在诈骗。有人可能会通过电话、电子邮件甚至社交媒体联系你，声称是国税局的人，威胁说如果你不付钱，就会让警长介入(Lifehacker 的员工就遇到过这种情况)。
 

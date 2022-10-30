@@ -1,6 +1,6 @@
 # 全蝙蝠侠，全组织工作空间
 
-> 原文:[https://life hacker . com/the-all-Batman-all-organized-workspace-1784528685](https://lifehacker.com/the-all-batman-all-organized-workspace-1784528685)
+> 原文：<https://lifehacker.com/the-all-batman-all-organized-workspace-1784528685>
 
 在过去的几周里，我们一直在强调简单、干净的工作空间，这一个也不例外。当然，有空间展开和工作，但实际的计算机设置本身是很好的，最小化，并向我们最喜欢的专营权之一致敬。看看海报和这些额外的照片。
 

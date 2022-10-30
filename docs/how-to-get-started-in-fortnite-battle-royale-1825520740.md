@@ -1,6 +1,6 @@
 # 如何开始玩“皇家堡垒之战”
 
-> 原文:[https://life hacker . com/how-to-get-started-in-fort nine-battle-royale-1825520740](https://lifehacker.com/how-to-get-started-in-fortnite-battle-royale-1825520740)
+> 原文：<https://lifehacker.com/how-to-get-started-in-fortnite-battle-royale-1825520740>
 
 如果你没有玩过 [【堡垒之夜】](https://offspring.lifehacker.com/how-to-stop-your-kids-from-buying-stuff-in-fortnite-1825339110) ，你可能知道有人玩过。免费的 [皇室风格的战斗游戏](https://www.pcgamer.com/battle-royale-games-2018/) 在 2018 年几乎是不可避免的。 [小孩](https://kotaku.com/teens-and-teachers-say-fortnite-mobile-is-destroying-so-1823997450) 玩的停不下来。甚至连说唱歌手和 [NBA 球员](http://bleacherreport.com/articles/2765469-it-took-my-life-over-inside-nba-players-fortnite-addiction) 也加入了这场行动。
 

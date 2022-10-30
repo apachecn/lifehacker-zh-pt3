@@ -1,6 +1,6 @@
 # 你应该保存你的税务文件多长时间？
 
-> 原文:[https://life hacker . com/how-you-should-keep-your-tax-documents-1825567267](https://lifehacker.com/how-long-should-you-keep-your-tax-documents-1825567267)
+> 原文：<https://lifehacker.com/how-long-should-you-keep-your-tax-documents-1825567267>
 
 希望你还没有放错或扔掉你最新的税务文件。即使你熬过了又一个纳税季，在接下来的几年里，你仍需要将这些文件存放在某个安全的地方。
 

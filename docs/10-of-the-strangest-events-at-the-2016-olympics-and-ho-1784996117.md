@@ -1,6 +1,6 @@
 # 2016 年奥运会上最奇怪的 10 个事件，以及如何观看它们
 
-> 原文:[https://life hacker . com/10-of-the-strangest-events-at-the-2016-Olympics-and-ho-1784996117](https://lifehacker.com/10-of-the-strangest-events-at-the-2016-olympics-and-ho-1784996117)
+> 原文：<https://lifehacker.com/10-of-the-strangest-events-at-the-2016-olympics-and-ho-1784996117>
 
 奥运会一直是世界上最受欢迎的体育赛事的发源地，但通常也有一些令人挠头的事情。也许你不知道某项运动是如何运作的，或者也许你不明白为什么它会出现在奥运会上。无论如何，以下是 2016 年夏季奥运会中一些更奇怪的事件，它们是如何运作的，以及何时尝试观看它们的。
 

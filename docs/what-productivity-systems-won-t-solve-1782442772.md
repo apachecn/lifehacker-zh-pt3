@@ -1,6 +1,6 @@
 # 生产力系统解决不了的问题
 
-> 原文:[https://life hacker . com/what-productivity-systems-won-t-solve-1782442772](https://lifehacker.com/what-productivity-systems-won-t-solve-1782442772)
+> 原文：<https://lifehacker.com/what-productivity-systems-won-t-solve-1782442772>
 
 如果你像我一样，你总是在 [寻找](http://unexecutive.com/perfect-system/) 完美的生产力系统。可惜不存在。问题不在于生产力系统——问题在于任何系统都无法解决的问题:拖延、对不确定性的恐惧和对不适的恐惧。
 

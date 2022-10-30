@@ -1,6 +1,6 @@
 # 目标正在关闭
 
-> 原文:[https://life hacker . com/end-of-a-era-aim-is-shuting-down-this-year-1819216746](https://lifehacker.com/end-of-an-era-aim-is-shutting-down-this-year-1819216746)
+> 原文：<https://lifehacker.com/end-of-an-era-aim-is-shutting-down-this-year-1819216746>
 
 互联网的公民们今天早上醒来时听到了一些令人震惊的消息:在线信息世界的先驱 AIM 在 20 年后关闭了 T2。这项服务将于 12 月 15 日正式关闭，目前还没有正式替换 T4、誓言和雅虎的计划。誓言是威瑞森所有的公司，包括美国在线和雅虎。
 

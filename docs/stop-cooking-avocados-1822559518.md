@@ -1,6 +1,6 @@
 # 停止烹饪鳄梨
 
-> 原文:[https://lifehacker.com/stop-cooking-avocados-1822559518](https://lifehacker.com/stop-cooking-avocados-1822559518)
+> 原文：<https://lifehacker.com/stop-cooking-avocados-1822559518>
 
 人们经常伤害他们所爱的人，从事食品工作的人也不例外。对于厨师、 [博主](https://www.twopeasandtheirpod.com/stovetop-avocado-mac-and-cheese/#_a5y_p=1297658) 和内容创作者反复对鳄梨进行各种基于热量的折磨，还有什么其他可能的解释？鳄梨只需要撒一点盐就非常美味，烹饪它们是该死的烹饪罪。
 

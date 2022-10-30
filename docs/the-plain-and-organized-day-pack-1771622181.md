@@ -1,6 +1,6 @@
 # 朴素有序的日用包
 
-> 原文:[https://life hacker . com/the-plain-and-organized-day-pack-1771622181](https://lifehacker.com/the-plain-and-organized-day-pack-1771622181)
+> 原文：<https://lifehacker.com/the-plain-and-organized-day-pack-1771622181>
 
 不是每个包包都应该很花哨。事实上，我们大多数人只是想要简单的东西。恰当的例子，读者托尔斯滕·迪伦伯格的包。
 

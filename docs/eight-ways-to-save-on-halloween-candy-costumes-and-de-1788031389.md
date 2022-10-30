@@ -1,6 +1,6 @@
 # 八种节省万圣节糖果、服装和装饰品的方法
 
-> 原文:[https://life hacker . com/八种万圣节省钱方法-糖果-服装-和-de-1788031389](https://lifehacker.com/eight-ways-to-save-on-halloween-candy-costumes-and-de-1788031389)
+> 原文：<https://lifehacker.com/eight-ways-to-save-on-halloween-candy-costumes-and-de-1788031389>
 
 万圣节省钱最简单的方法就是关灯躲在屋里，假装不在家，但是谁想成为万圣节守财奴呢？我们收集了一些建议来帮助你节省零食、服装和怪异的装饰。
 

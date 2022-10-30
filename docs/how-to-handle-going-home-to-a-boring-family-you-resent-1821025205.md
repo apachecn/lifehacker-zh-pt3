@@ -1,6 +1,6 @@
 # 如何处理回家到一个你讨厌的无聊家庭
 
-> 原文:[https://life hacker . com/how-to-handle-going-home-a-boring-family-you-present-1821025205](https://lifehacker.com/how-to-handle-going-home-to-a-boring-family-you-resent-1821025205)
+> 原文：<https://lifehacker.com/how-to-handle-going-home-to-a-boring-family-you-resent-1821025205>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

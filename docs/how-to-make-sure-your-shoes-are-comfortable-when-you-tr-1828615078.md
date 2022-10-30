@@ -1,6 +1,6 @@
 # 旅行时如何确保鞋子舒适
 
-> 原文:[https://life hacker . com/how-to-assure-you-when-you-tr-1828615078](https://lifehacker.com/how-to-make-sure-your-shoes-are-comfortable-when-you-tr-1828615078)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-shoes-are-comfortable-when-you-tr-1828615078>
 
 当我旅行时，我非常喜欢徒步旅行。徒步旅行是游览一个城市的好方法，如果你选择美食之旅，你可以品尝一些当地的美食，欣赏风景，并在这个过程中做一些运动。这是一个伟大的组合。除非你决定穿错鞋子。
 

@@ -1,6 +1,6 @@
 # 父母应该对他们超重的孩子负责吗？
 
-> 原文:[https://the take out . com/父母应该为他们的超重负责吗-1821913538](https://thetakeout.com/should-parents-be-held-accountable-for-their-overweight-1821913538)
+> 原文：<https://thetakeout.com/should-parents-be-held-accountable-for-their-overweight-1821913538>
 
 每一位现代父母都知道看似相当自然的过程中所涉及的斗争和不断的冲突:喂养他们的孩子。母乳喂养还是奶瓶？你应该什么时候开始吃固体食物？当孩子们再大一点的时候:除了强制喂食，你能拿一个拒绝蔬菜的挑剔的孩子怎么办？
 

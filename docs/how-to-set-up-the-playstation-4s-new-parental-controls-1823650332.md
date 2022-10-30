@@ -1,6 +1,6 @@
 # 如何设置 PlayStation 4 的新家长控制
 
-> 原文:[https://life hacker . com/how-to-set-the-PlayStation-4s-new-parental-controls-1823650332](https://lifehacker.com/how-to-set-up-the-playstation-4s-new-parental-controls-1823650332)
+> 原文：<https://lifehacker.com/how-to-set-up-the-playstation-4s-new-parental-controls-1823650332>
 
 PlayStation 4 刚刚发布了固件更新(5.50)，带来了大量伟大的功能，如 [全面的父母控制](http://manuals.playstation.net/document/en/ps4/settings/family.html) 。以下是如何为某些类型的游戏和电影设置年龄限制，在 PlayStation Store 中设置消费限制，以及使用新的家庭管理功能来控制每天的游戏时间。
 

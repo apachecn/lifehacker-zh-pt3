@@ -1,6 +1,6 @@
 # 不要扔掉你的旧 iPhone，把它用作永久媒体和 GPS
 
-> 原文:[https://jalopnik . com/don-dump-your-old-iphone-use-it-for-permanent-media-a-1740497727](https://jalopnik.com/dont-dump-your-old-iphone-use-it-for-permanent-media-a-1740497727)
+> 原文：<https://jalopnik.com/dont-dump-your-old-iphone-use-it-for-permanent-media-a-1740497727>
 
 如果你像我一样经常更新你的设备，你可能会有一小堆转售价值低的旧设备。不折腾不卖！如果你的车里还没有一个集成的多功能娱乐中心(或者如果你讨厌你已经有的)，你可能会发现你的旧智能手机是你新的专用媒体播放器和 GPS 系统的关键。
 

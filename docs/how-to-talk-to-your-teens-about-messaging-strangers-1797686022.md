@@ -1,6 +1,6 @@
 # 如何和你的孩子谈论给陌生人发信息
 
-> 原文:[https://life hacker . com/how-to-talk-to-your-tens-about-messaging-strangers-1797686022](https://lifehacker.com/how-to-talk-to-your-teens-about-messaging-strangers-1797686022)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-teens-about-messaging-strangers-1797686022>
 
 如果在今天早上关于潜在儿童间谍迪士尼和维亚康姆应用 的 [故事之后，你没有动摇焚烧你的智能设备并鼓励你的家人全力以赴罗恩·斯旺森，对广受欢迎的 Kik Messenger 应用的严厉检查可能会说服你准备好喷灯。](http://lifehacker.com/stop-mickey-mouse-from-spying-on-your-kids-1797656454#_ga=2.222324377.340414407.1502113341-1066327814.1498537403) 
 

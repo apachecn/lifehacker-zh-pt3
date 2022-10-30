@@ -1,6 +1,6 @@
 # 通过限制你的选择来避免育儿倦怠
 
-> 原文:[https://life hacker . com/avoid-parenting-burnout-by-limiting-your-options-1822819591](https://lifehacker.com/avoid-parenting-burnout-by-limiting-your-options-1822819591)
+> 原文：<https://lifehacker.com/avoid-parenting-burnout-by-limiting-your-options-1822819591>
 
 几年前，当我丈夫从商店给我们蹒跚学步的孩子带回来一瓶防晒霜时，我有轻微的恐慌症。
 

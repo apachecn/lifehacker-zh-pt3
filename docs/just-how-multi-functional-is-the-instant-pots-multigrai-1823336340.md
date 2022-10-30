@@ -1,6 +1,6 @@
 # 速食锅的杂粮功能到底有多多功能？
 
-> 原文:[https://life hacker . com/just-how-multi-functional-is-the-instant-pots-multigrai-1823336340](https://lifehacker.com/just-how-multi-functional-is-the-instant-pots-multigrai-1823336340)
+> 原文：<https://lifehacker.com/just-how-multi-functional-is-the-instant-pots-multigrai-1823336340>
 
 朋友和家人问我是否应该一直买一罐速溶的，我的回答通常是耸耸肩。如果你以前从来没有过，速溶锅将会改变你的生活——但其他高压锅也一样。
 

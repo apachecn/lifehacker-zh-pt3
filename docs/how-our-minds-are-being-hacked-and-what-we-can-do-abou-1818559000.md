@@ -1,6 +1,6 @@
 # 如何防止你的思想被黑客入侵，罗伯特·卢斯蒂格
 
-> 原文:[https://life hacker . com/how-our-minds-are-hacked-and-what-we-can-do-abou-1818559000](https://lifehacker.com/how-our-minds-are-being-hacked-and-what-we-can-do-abou-1818559000)
+> 原文：<https://lifehacker.com/how-our-minds-are-being-hacked-and-what-we-can-do-abou-1818559000>
 
 罗伯特·卢斯蒂格博士加入了我们的演播室，谈论他的新书， [*【美国心灵黑客:企业接管我们身体和大脑背后的科学。*](https://www.amazon.com/Hacking-American-Mind-Corporate-Takeover-ebook/dp/B01N802BNX/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-our-minds-are-being-hacked-and-what-we-can-do-abou-1818559000&asc_source=&ie=UTF8&keywords=The Hacking of the American Mind:&qid=1505852365&s=digital-text&sr=1-1&tag=kinjalifehackerlink-20) 卢斯蒂格博士是一名儿科内分泌学家，也是《肥胖机会:战胜糖、加工食品、肥胖和疾病 *一书的作者。他告诉我们公司利益如何让我们沉迷于快乐——以及我们的沉迷如何剥夺了我们的幸福。* 
 

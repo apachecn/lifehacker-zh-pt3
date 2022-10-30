@@ -1,6 +1,6 @@
 # 现在如何获得 Android 的 HQ 琐事
 
-> 原文:[https://life hacker . com/how-to-get-HQ-trivia-for-Android-now-1821602002](https://lifehacker.com/how-to-get-hq-trivia-for-android-now-1821602002)
+> 原文：<https://lifehacker.com/how-to-get-hq-trivia-for-android-now-1821602002>
 
 经过数月的 iOS 独占， [HQ 琐事](https://lifehacker.com/tips-for-winning-money-in-the-hq-trivia-game-app-1820100846) 终于在 1 月 1 日来到 [Android](https://lifehacker.com/you-can-play-this-hq-trivia-knockoff-on-your-android-ph-1821256887) 。但是你不必等那么久就可以在你的 Android 设备上开始玩了。
 

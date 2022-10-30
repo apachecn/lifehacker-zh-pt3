@@ -1,6 +1,6 @@
 # 一月是买机票的最佳时间
 
-> 原文:[https://life hacker . com/January-is-best-time-to-buy-a-time-to-buy-a-fly-ticket-1821681294](https://lifehacker.com/january-is-the-best-time-to-buy-a-plane-ticket-1821681294)
+> 原文：<https://lifehacker.com/january-is-the-best-time-to-buy-a-plane-ticket-1821681294>
 
 如果你计划在 2018 年旅行，1 月可能是预订航班甚至开始旅行的最佳时机之一。
 

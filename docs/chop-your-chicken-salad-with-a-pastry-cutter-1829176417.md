@@ -1,6 +1,6 @@
 # 用糕点模具切碎你的鸡肉沙拉
 
-> 原文:[https://life hacker . com/chop-your-chicken-salad-with a pastry-cutter-1829176417](https://lifehacker.com/chop-your-chicken-salad-with-a-pastry-cutter-1829176417)
+> 原文：<https://lifehacker.com/chop-your-chicken-salad-with-a-pastry-cutter-1829176417>
 
 [水煮](https://lifehacker.com/maximize-a-chickens-meal-potential-by-poaching-it-first-1822353539) 或者烤一整只鸡基本就是餐前准备 101。你可以从一只鸡中得到很多餐，至少其中一餐应该是某种形式的鸡肉沙拉。切鸡肉并不难，但是你可以用糕点刀具简化沙拉制作过程。
 

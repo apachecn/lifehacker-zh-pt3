@@ -1,6 +1,6 @@
 # DIY 水獭汽水忽略秋天的来临
 
-> 原文:[https://life hacker . com/ignore-the-onset-of-fall-with-DIY-otter-pops-1802758572](https://lifehacker.com/ignore-the-onset-of-fall-with-diy-otter-pops-1802758572)
+> 原文：<https://lifehacker.com/ignore-the-onset-of-fall-with-diy-otter-pops-1802758572>
 
 上次我们登记员工的每周升级时，我们的编辑正忙着消除噪音、准备饭菜，以及尝试更平静的通勤选择。
 

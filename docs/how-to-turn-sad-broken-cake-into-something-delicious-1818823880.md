@@ -1,6 +1,6 @@
 # 如何把悲伤的碎蛋糕变成美味的东西
 
-> 原文:[https://life hacker . com/how-to-turn-sad-breaked-cake-something-delicious-1818823880](https://lifehacker.com/how-to-turn-sad-broken-cake-into-something-delicious-1818823880)
+> 原文：<https://lifehacker.com/how-to-turn-sad-broken-cake-into-something-delicious-1818823880>
 
 做好一个蛋糕，却发现它碎了，这是在厨房里最令人沮丧的经历之一。但是丑蛋糕还是蛋糕，你没有理由不吃。
 

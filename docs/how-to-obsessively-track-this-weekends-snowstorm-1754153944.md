@@ -1,6 +1,6 @@
 # 如何痴迷地追踪这个周末的暴风雪
 
-> 原文:[https://life hacker . com/how-to-beforeign-track-this-weekends-暴风雪-1754153944](https://lifehacker.com/how-to-obsessively-track-this-weekends-snowstorm-1754153944)
+> 原文：<https://lifehacker.com/how-to-obsessively-track-this-weekends-snowstorm-1754153944>
 
 一场巨大的暴风雪正向美国东半部和北部地区袭来，如果你在附近，这里有最好的工具来看看你是否在它的路径上，以及你将会得到多少雪。即使你不是，或者你是一个困在沙发上的风暴追逐者，这些天气工具也会派上用场。
 

@@ -1,6 +1,6 @@
 # 查找您所在城市附近最快的无线网络
 
-> 原文:[https://life hacker . com/Verizon-wireless-is-the-nations-fast-mobile-network-1826805288](https://lifehacker.com/verizon-wireless-is-the-nations-fastest-mobile-network-1826805288)
+> 原文：<https://lifehacker.com/verizon-wireless-is-the-nations-fastest-mobile-network-1826805288>
 
 我不是最大的粉丝 [威瑞森对网络中立](https://arstechnica.com/tech-policy/2018/03/attverizon-lobbyists-to-aggressively-sue-states-that-enact-net-neutrality/) 的立场，无线运营商的成本，或不相关的事实，我仍然无法在硅谷获得 FIOS，但根据 PCMag，威瑞森无线拥有 [全国最快的无线服务](https://www.pcmag.com/Fastest-Mobile-Networks) 。在你居住的地方，运营商可能没有最快的服务，甚至没有任何像样的服务(湾区的一些人口密集的地区感觉像威瑞森覆盖的黑洞)，但它通常是最好的。
 

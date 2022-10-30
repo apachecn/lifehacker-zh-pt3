@@ -1,6 +1,6 @@
 # 汽车制造商和经销商卖给你汽车的最大谎言
 
-> 原文:[https://life hacker . com/the-largest-lies-car-manufacturers-and-dealerships-tell-1755154299](https://lifehacker.com/the-biggest-lies-car-manufacturers-and-dealerships-tell-1755154299)
+> 原文：<https://lifehacker.com/the-biggest-lies-car-manufacturers-and-dealerships-tell-1755154299>
 
 经销商和汽车制造商已经不那么诚实了(如果我们慷慨的话),涉水通过错误信息只会使情况成倍恶化。不过，我们可以帮忙。以下是你在买车时会听到的一些最具误导性、不诚实或彻头彻尾的谎言，以及它们背后的真相。
 

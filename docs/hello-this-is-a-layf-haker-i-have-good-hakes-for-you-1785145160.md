@@ -1,6 +1,6 @@
 # 你好，我是 Layf Haker，我有好消息给你
 
-> 原文:[https://life hacker . com/hello-this-is-a-layf-haker-I-hake-has-good-hakes-for-you 1785145160](https://lifehacker.com/hello-this-is-a-layf-haker-i-have-good-hakes-for-you-1785145160)
+> 原文：<https://lifehacker.com/hello-this-is-a-layf-haker-i-have-good-hakes-for-you-1785145160>
 
 你好。我是职业 [莱弗哈克](https://twitter.com/layfhaker) ！你有问题吗？很好！以下是如何用我们自己的方法来解决这些问题，让生活变得更美好！我们 hake layfes 多年来为您带来最好的提示和技巧！看一看:
 

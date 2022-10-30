@@ -1,6 +1,6 @@
 # 我们尝试了 Warby Parker 的新处方应用
 
-> 原文:[https://life hacker . com/we-tryed-warby-Parker-s-new-prescription-app-1795874261](https://lifehacker.com/we-tried-warby-parker-s-new-prescription-app-1795874261)
+> 原文：<https://lifehacker.com/we-tried-warby-parker-s-new-prescription-app-1795874261>
 
 使用像 Warby Parker 这样便宜的在线眼镜店的最大障碍之一是从你的眼科医生那里得到处方。沃比·帕克试图用 [这款应用](https://itunes.apple.com/us/app/prescription-check/id1209102842?mt=8) 改变这一切，它会带你完成一个简短的眼部检查，由沃比·帕克发送给医生进行处方检查。下面是实际使用的感觉。
 

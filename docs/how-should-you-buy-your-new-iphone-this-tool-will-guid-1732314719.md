@@ -1,6 +1,6 @@
 # 你应该如何购买你的新 iPhone？这个工具会引导你
 
-> 原文:[https://life hacker . com/how-should-you-buy-your-new-iphone-this-tool-will-guid-1732314719](https://lifehacker.com/how-should-you-buy-your-new-iphone-this-tool-will-guid-1732314719)
+> 原文：<https://lifehacker.com/how-should-you-buy-your-new-iphone-this-tool-will-guid-1732314719>
 
 运营商让购买新手机 [变得愚蠢困惑](https://lifehacker.com/every-carriers-confusing-phone-buying-plans-explained-1726343203) 。我们已经简化了。如果你正在寻找新的 iPhone 6s，这个互动工具将帮助你找到最好的购买方式。
 

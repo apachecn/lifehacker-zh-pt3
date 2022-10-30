@@ -1,6 +1,6 @@
 # 如何让你的节日礼物看起来很贵，即使它并不贵
 
-> 原文:[https://life hacker . com/how-to-make-your-holiday-gift-same-when-1820883792](https://lifehacker.com/how-to-make-your-holiday-gift-seem-expensive-even-when-1820883792)
+> 原文：<https://lifehacker.com/how-to-make-your-holiday-gift-seem-expensive-even-when-1820883792>
 
 想用你的节日礼物给某人留下深刻印象，但没有很多现金？试着买些重的东西。
 

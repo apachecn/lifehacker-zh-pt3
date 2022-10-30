@@ -1,6 +1,6 @@
 # 使用您的美国运通积分获得亚马逊折扣
 
-> 原文:[https://life hacker . com/use-your-American-express-rewards-points for-an-Amazon-1827363442](https://lifehacker.com/use-your-american-express-rewards-points-for-an-amazon-1827363442)
+> 原文：<https://lifehacker.com/use-your-american-express-rewards-points-for-an-amazon-1827363442>
 
 如果你是美国运通会员积分卡持卡人，你可以用你的积分省钱。资格各不相同，但根据 Slickd eals，用美国运通积分在亚马逊购物有可能享受八折优惠。以下是方法。
 

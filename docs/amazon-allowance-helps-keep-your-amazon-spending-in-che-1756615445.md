@@ -1,6 +1,6 @@
 # 亚马逊津贴有助于控制你的亚马逊消费
 
-> 原文:[https://life hacker . com/Amazon-allow ance-helps-keep-your-Amazon-expansion-in-che-1756615445](https://lifehacker.com/amazon-allowance-helps-keep-your-amazon-spending-in-che-1756615445)
+> 原文：<https://lifehacker.com/amazon-allowance-helps-keep-your-amazon-spending-in-che-1756615445>
 
 在亚马逊购物时，很容易超出预算。一件事可能会有所帮助:亚马逊津贴，该公司相对不为人知的礼品卡资助计划。
 

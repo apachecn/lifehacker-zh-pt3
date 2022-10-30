@@ -1,6 +1,6 @@
 # 为什么澄清黄油如此美味(以及如何自己制作)
 
-> 原文:[https://the take out . com/why-clarified-butter-is so-tasty-and-how-to-make-your-1821887554](https://thetakeout.com/why-clarified-butter-is-so-tasty-and-how-to-make-your-1821887554)
+> 原文：<https://thetakeout.com/why-clarified-butter-is-so-tasty-and-how-to-make-your-1821887554>
 
 酥油和澄清黄油是一种秘密成分。它们是黄油，但更好。它们是更丰富、更浓烈、更浓缩的黄油。它们就像黄油的平方。
 

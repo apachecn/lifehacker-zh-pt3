@@ -1,6 +1,6 @@
 # 你的公寓需要一个冷藏柜
 
-> 原文:[https://life hacker . com/your-apartment-needs-a-chest-1826933762](https://lifehacker.com/your-apartment-needs-a-chest-freezer-1826933762)
+> 原文：<https://lifehacker.com/your-apartment-needs-a-chest-freezer-1826933762>
 
 储备主食是扩大预算和减少浪费的好方法，所以一个好的冰箱对精打细算的家庭厨师来说是个福音。可悲的是，对其能源使用和占地面积的普遍误解阻碍了那些从卧式冰柜中受益最多的人——拥有破旧、几乎不起作用的电器的公寓居民——购买卧式冰柜。
 

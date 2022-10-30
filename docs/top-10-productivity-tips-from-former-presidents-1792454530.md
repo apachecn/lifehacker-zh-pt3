@@ -1,6 +1,6 @@
 # 前总统的 10 大生产力秘诀
 
-> 原文:[https://life hacker . com/top-10-productivity-tips-from-from-presidents-1792454530](https://lifehacker.com/top-10-productivity-tips-from-former-presidents-1792454530)
+> 原文：<https://lifehacker.com/top-10-productivity-tips-from-former-presidents-1792454530>
 
 本周一是总统日，这意味着这是回顾这个国家一些最伟大的人是如何完成任务的最佳时机。以下是我们最喜欢的美国前总统的 10 条建议。
 

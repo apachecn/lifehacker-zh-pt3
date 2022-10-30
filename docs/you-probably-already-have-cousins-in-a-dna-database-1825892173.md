@@ -1,6 +1,6 @@
 # 你可能在 DNA 数据库中已经有了表亲
 
-> 原文:[https://life hacker . com/you-possible-has-cousins-in-a-DNA-database-1825892173](https://lifehacker.com/you-probably-already-have-cousins-in-a-dna-database-1825892173)
+> 原文：<https://lifehacker.com/you-probably-already-have-cousins-in-a-dna-database-1825892173>
 
 一个 DNA 数据库 [通过他的远房表亲上传的数据引导警方找到了金州黑仔嫌疑人](https://lifehacker.com/the-golden-state-killers-dna-was-in-a-publicly-availabl-1825604590) 。现在，群体遗传学研究人员已经计算出*你的*亲属将他们的遗传信息提供给类似数据库的概率。
 

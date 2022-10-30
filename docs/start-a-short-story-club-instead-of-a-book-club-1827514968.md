@@ -1,6 +1,6 @@
 # 创办一个短篇小说俱乐部，而不是读书俱乐部
 
-> 原文:[https://life hacker . com/start-a-short-story-club-代替-a-book-club-1827514968](https://lifehacker.com/start-a-short-story-club-instead-of-a-book-club-1827514968)
+> 原文：<https://lifehacker.com/start-a-short-story-club-instead-of-a-book-club-1827514968>
 
 大学一年级，朋友创办了一个读书会。我们选了尤利西斯。我们见过一次，我还没读过《T2》和《尤利西斯》。书友辛苦了！他们太难了，以至于博客列出了当 [书友会中没有人读这本书](https://www.bustle.com/p/12-tips-for-hosting-a-successful-book-club-meeting-when-no-one-read-the-book-9607947) 时可以谈论的事情。(“大声朗读对这本书的评论，并谈论它们。”)如果你的读书会真的只是一个闲逛的借口，那也行！但是如果你真的想阅读和讨论一些文学作品，试试短篇小说俱乐部。
 

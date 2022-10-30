@@ -1,6 +1,6 @@
 # 请求帮助的最好方式
 
-> 原文:[https://life hacker . com/the-best-way-ask-for-a-faw-1827173655](https://lifehacker.com/the-best-way-to-ask-for-a-favor-1827173655)
+> 原文：<https://lifehacker.com/the-best-way-to-ask-for-a-favor-1827173655>
 
 所以，你需要一些帮助。没关系，我们有时都需要帮手。问题是，我们很多人不知道如何去问——所以我们没有问。根据一位社会心理学家的说法，这里有一个最简单、最有效的请求帮助的方法。
 

@@ -1,6 +1,6 @@
 # 当你厌倦了劳雷尔和燕妮的时候，听听这些听觉错觉
 
-> 原文:[https://life hacker . com/listen-to-these-auditional-missions-when-you-re-bored-wi-1826081147](https://lifehacker.com/listen-to-these-auditory-illusions-when-you-re-bored-wi-1826081147)
+> 原文：<https://lifehacker.com/listen-to-these-auditory-illusions-when-you-re-bored-wi-1826081147>
 
 单词“laurel”的声音片段在一些人(错误的人)听起来像“yanny”在一个新的，听觉上对应于 [的服装](https://sploid.gizmodo.com/some-people-see-this-dress-as-white-gold-while-others-1688330144) 。已经听过了？太好了！这里有一些更令人难以置信的音频剪辑，你应该听听。
 

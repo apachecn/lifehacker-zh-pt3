@@ -1,6 +1,6 @@
 # 如何对 Lifehacker 的员工不那么粗鲁
 
-> 原文:[https://life hacker . com/is-it-rude-not-to-response-a-Facebook-invite-and-oth-1797600523](https://lifehacker.com/is-it-rude-not-to-respond-to-a-facebook-invite-and-oth-1797600523)
+> 原文：<https://lifehacker.com/is-it-rude-not-to-respond-to-a-facebook-invite-and-oth-1797600523>
 
 上周，Lifehacker 的全体员工在纽约召开了会议。我们的作家从全国各地来到这里，组成一个团队，一起吃饭，无视我在团队建设练习中的努力(*没有人*想做信任瀑布)，分享他们对 Lifehacker 未来的想法和希望。当我们让每个人都在一个地方时，我们把他们带到演播室来回答 [你的礼仪问题](https://lifehacker.com/what-etiquette-questions-are-burning-inside-you-1797407495) 。
 

@@ -1,6 +1,6 @@
 # 了解从传送带上的玩具野马中牵引的危险
 
-> 原文:[https://jalopnik . com/learn-on-1787401437](https://jalopnik.com/learn-about-the-dangers-of-towing-from-a-toy-mustang-on-1787401437)
+> 原文：<https://jalopnik.com/learn-about-the-dangers-of-towing-from-a-toy-mustang-on-1787401437>
 
 如果你正在考虑做一些拖车，你也认为所有关于拖车重量分布的关注都是重量分布游说团体制造的一堆废话，那么我真的建议你看看这个小视频。因为玩具有趣的地方在现实中是可怕的。
 

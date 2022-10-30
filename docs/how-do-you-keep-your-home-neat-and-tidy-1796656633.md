@@ -1,6 +1,6 @@
 # 你是如何保持家里整洁的？
 
-> 原文:[https://life hacker . com/how-do-you-keep you-home-整洁-1796656633](https://lifehacker.com/how-do-you-keep-your-home-neat-and-tidy-1796656633)
+> 原文：<https://lifehacker.com/how-do-you-keep-your-home-neat-and-tidy-1796656633>
 
 “管理家务”是我祖母一直擅长的事情。不仅每一个盘子、器具和雪球都有一个非常明确的位置，不能移动，而且她有一个非常严格的除尘时间表，让前面提到的雪球保持最佳状态。
 

@@ -1,6 +1,6 @@
 # 沙滩派对播放列表
 
-> 原文:[https://lifehacker.com/the-beach-party-playlist-1784480048](https://lifehacker.com/the-beach-party-playlist-1784480048)
+> 原文：<https://lifehacker.com/the-beach-party-playlist-1784480048>
 
 今年夏天非常热，这意味着这是去海滩和聚会的最佳时间。当太阳试图融化你的脸时，这个播放列表将帮助你有心情享受乐趣。
 

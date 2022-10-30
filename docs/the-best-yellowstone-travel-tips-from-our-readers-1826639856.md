@@ -1,6 +1,6 @@
 # 来自我们读者的最佳黄石旅游提示
 
-> 原文:[https://life hacker . com/the-best-Yellowstone-travel-tips-from-our-readers-1826639856](https://lifehacker.com/the-best-yellowstone-travel-tips-from-our-readers-1826639856)
+> 原文：<https://lifehacker.com/the-best-yellowstone-travel-tips-from-our-readers-1826639856>
 
 本周，我们把城市从《黑客你的城市》中带了出来，收集关于黄石国家公园的读者提示。你可以在原帖 下的五线谱标签中阅读所有最好的评论 [。我们收集了以下亮点。](https://lifehacker.com/tell-us-your-yellowstone-park-travel-tips-1826493968)
 

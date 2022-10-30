@@ -1,6 +1,6 @@
 # 用洗衣篮给你的孩子一次过山车般的体验
 
-> 原文:[https://life hacker . com/give-your-lead-a-la-1827518185](https://lifehacker.com/give-your-toddler-a-roller-coaster-experience-with-a-la-1827518185)
+> 原文：<https://lifehacker.com/give-your-toddler-a-roller-coaster-experience-with-a-la-1827518185>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-MGQ5W1Ri9mc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-MGQ5W1Ri9mc&start=0) 
 

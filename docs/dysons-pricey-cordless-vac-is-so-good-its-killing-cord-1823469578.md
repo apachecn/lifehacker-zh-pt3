@@ -1,6 +1,6 @@
 # 戴森昂贵的无线真空吸尘器是如此之好，它完全杀死了电线
 
-> 原文:[https://gizmodo . com/dysons-pricey-cordless-vac-is-so-good-its-killing-cord-1823469578](https://gizmodo.com/dysons-pricey-cordless-vac-is-so-good-its-killing-cord-1823469578)
+> 原文：<https://gizmodo.com/dysons-pricey-cordless-vac-is-so-good-its-killing-cord-1823469578>
 
 戴森直立式球形真空吸尘器是一个标志性的工程和设计，使 vacs 成为一个值得你渴望的小工具，正在被淘汰。取而代之的是戴森最新的无绳吸尘器 Cyclone V10。该公司声称，V10 的升级电动马达在一次充电后可以吸得更好，持续时间更长。但是充电式真空吸尘器真的能取代有线吸尘器吗？对我来说是的。新的戴森 Cyclone V10 可能有一些问题，但这个小无绳真空是如此之好，最终可能证明戴森的溢价定价是正确的。
 

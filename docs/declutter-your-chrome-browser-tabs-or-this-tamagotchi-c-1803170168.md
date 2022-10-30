@@ -1,6 +1,6 @@
 # 清理你的 Chrome 浏览器标签，否则这个电子鸡克隆体会死掉
 
-> 原文:[https://gizmodo . com/declutter-your-chrome-browser-tabs-or-this-tamagotchi-c-1803170168](https://gizmodo.com/declutter-your-chrome-browser-tabs-or-this-tamagotchi-c-1803170168)
+> 原文：<https://gizmodo.com/declutter-your-chrome-browser-tabs-or-this-tamagotchi-c-1803170168>
 
 谷歌巧妙地设计了 Chrome，以防止不可避免的网站崩溃导致整个浏览器瘫痪。但是，当你打开无数个标签时，这种稳定性是以巨大的内存使用为代价的。你可以使用一些工具来抑制 Chrome 的内存需求，但将标签维护变成游戏 可能是最好的解决方案。
 

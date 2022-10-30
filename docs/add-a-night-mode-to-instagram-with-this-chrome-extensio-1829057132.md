@@ -1,6 +1,6 @@
 # 使用 Chrome 扩展为 Instagram 添加夜间模式
 
-> 原文:[https://life hacker . com/add-a-night-mode-to-insta gram-with this-chrome-extensio-1829057132](https://lifehacker.com/add-a-night-mode-to-instagram-with-this-chrome-extensio-1829057132)
+> 原文：<https://lifehacker.com/add-a-night-mode-to-instagram-with-this-chrome-extensio-1829057132>
 
 我是夜间模式的超级粉丝。在我看来，夜间/黑暗模式对你的眼睛和你的设备电池来说更容易，坦率地说，在许多情况下看起来更好。
 

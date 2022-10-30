@@ -1,6 +1,6 @@
 # 如何在当前手机上安装 Pixel 2 的新搜索栏
 
-> 原文:[https://life hacker . com/use-an-Android-launcher-to-get-the-pixel-2s-new-search-1819624872](https://lifehacker.com/use-an-android-launcher-to-get-the-pixel-2s-new-search-1819624872)
+> 原文：<https://lifehacker.com/use-an-android-launcher-to-get-the-pixel-2s-new-search-1819624872>
 
 [Pixel 2](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085) 配备了 [新功能](https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006) 你不会在普通的 Android 8.0 上找到，其中很大一部分是主屏幕。谷歌重新设计了日历小工具来显示即将到来的事件，因此它将搜索栏移到了屏幕底部的 dock 下方，这样你可以更快地访问它。
 

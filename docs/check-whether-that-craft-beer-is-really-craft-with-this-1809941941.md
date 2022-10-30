@@ -1,6 +1,6 @@
 # 检查“精酿啤酒”是否真的是用这个应用程序制作的
 
-> 原文:[https://life hacker . com/check-the-craft-beer-is true-craft-with this-1809941941](https://lifehacker.com/check-whether-that-craft-beer-is-really-craft-with-this-1809941941)
+> 原文：<https://lifehacker.com/check-whether-that-craft-beer-is-really-craft-with-this-1809941941>
 
 为了被归类为“精酿啤酒”，酿酒商协会要求啤酒厂将至的啤酒变成 [小型、独立、传统的](https://www.craftbeer.com/breweries/what-is-a-craft-brewery) 。这意味着，尽管安海斯-布希等公司旗下的一些啤酒厂可能自称为“手工艺”,但它们并非如此。如果你不密切关注，当你在杂货店时，很难区分“大”啤酒和小家伙。现在有了一个应用程序。
 

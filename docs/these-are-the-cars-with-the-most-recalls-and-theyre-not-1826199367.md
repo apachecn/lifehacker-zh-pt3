@@ -1,6 +1,6 @@
 # 这些是召回最多的汽车，它们不是你所想的那样
 
-> 原文:[https://jalopnik . com/这些是召回最多的车，它们不是 1826199367](https://jalopnik.com/these-are-the-cars-with-the-most-recalls-and-theyre-not-1826199367)
+> 原文：<https://jalopnik.com/these-are-the-cars-with-the-most-recalls-and-theyre-not-1826199367>
 
 很难找到一辆“坏”的现代汽车，但在质量控制方面，一些制造商比其他制造商更好。[*iSeeCars.com*](https://www.iseecars.com/recall-rates-study)分析了 NHTSA 的一些数据，得出了召回数量最多和最少的汽车名单。
 

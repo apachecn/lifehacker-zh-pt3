@@ -1,6 +1,6 @@
 # 你真的要把吃剩的披萨放进冰箱吗？
 
-> 原文:[https://life hacker . com/do-you-really-hacked-to-cryo-left-pizza-1822672959](https://lifehacker.com/do-you-really-have-to-refrigerate-leftover-pizza-1822672959)
+> 原文：<https://lifehacker.com/do-you-really-have-to-refrigerate-leftover-pizza-1822672959>
 
 在你做好食物后，你把它放在冰箱里以保证它的安全。正确那么，昨天放在厨房柜台盒子里的比萨饼是怎么回事呢？好消息:一位食品安全专家告诉我们，放了一天的奶酪比萨是“低风险的”
 

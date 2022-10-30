@@ -1,6 +1,6 @@
 # 如何清除你的亚马逊浏览历史
 
-> 原文:[https://life hacker . com/how-to-clear-your-Amazon-browsing-history-1818602949](https://lifehacker.com/how-to-clear-your-amazon-browsing-history-1818602949)
+> 原文：<https://lifehacker.com/how-to-clear-your-amazon-browsing-history-1818602949>
 
 亚马逊不仅跟踪你的购买，它还跟踪你看过但没有买的所有产品。以下是让它消失的方法。
 

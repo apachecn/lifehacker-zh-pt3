@@ -1,6 +1,6 @@
 # 白天打开“请勿打扰”可以提高工作效率
 
-> 原文:[https://life hacker . com/turn-on-do-disturn-in-the-day-to-be-more-product-1823105590](https://lifehacker.com/turn-on-do-not-disturb-during-the-day-to-be-more-produc-1823105590)
+> 原文：<https://lifehacker.com/turn-on-do-not-disturb-during-the-day-to-be-more-produc-1823105590>
 
 当我在做一个项目的时候，通常需要几分钟的时间让我“进入状态”，让我真正专注于我正在做的事情。当有人打断我的时候，我又需要几分钟才能真正开始工作。
 

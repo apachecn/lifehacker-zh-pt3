@@ -1,6 +1,6 @@
 # 如何从 Lastpass 切换到 1Password
 
-> 原文:[https://life hacker . com/how-to-switch-from-lastpass-to-1 password-1802689696](https://lifehacker.com/how-to-switch-from-lastpass-to-1password-1802689696)
+> 原文：<https://lifehacker.com/how-to-switch-from-lastpass-to-1password-1802689696>
 
 [密码管理服务](http://lifehacker.com/the-five-best-password-managers-5529133) 像 [LastPass](http://lifehacker.com/you-can-now-use-lastpass-on-multiple-devices-for-free-1788458452) 和 [1Password](https://lifehacker.com/the-beginners-guide-to-1password-1794464866) 都很棒，因为它们可以通过使用一个加密的主密码轻松保护你的所有在线账户……至少在理论上是这样。
 

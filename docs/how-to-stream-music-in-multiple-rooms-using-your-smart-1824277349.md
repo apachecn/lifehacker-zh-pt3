@@ -1,6 +1,6 @@
 # 如何使用智能扬声器在多个房间播放音乐
 
-> 原文:[https://gizmodo . com/how-to-stream-music-in-multi-rooms-using-your-smart-1824277349](https://gizmodo.com/how-to-stream-music-in-multiple-rooms-using-your-smart-1824277349)
+> 原文：<https://gizmodo.com/how-to-stream-music-in-multiple-rooms-using-your-smart-1824277349>
 
 随着时间的推移，我们的 [智能扬声器](https://fieldguide.gizmodo.com/how-to-make-your-own-smart-speaker-1796483661) 继续变得更加智能，亚马逊和谷歌最近为套件添加的功能之一是支持多房间音频——换句话说，可以在多个房间同时播放相同的音乐。以下是如何用一组亚马逊 Echos、谷歌 Homes 或 Sonos 智能音箱进行设置。
 

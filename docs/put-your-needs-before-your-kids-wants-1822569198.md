@@ -1,6 +1,6 @@
 # 把你的需求放在孩子的需求之前
 
-> 原文:[https://life hacker . com/put-your-need before-your-kids-wants-1822569198](https://lifehacker.com/put-your-needs-before-your-kids-wants-1822569198)
+> 原文：<https://lifehacker.com/put-your-needs-before-your-kids-wants-1822569198>
 
 今天的父母压力很大。他们失去了老朋友。 他们怀念自己的老爱好。他们对性 [太累了](http://www.parenting.com/blogs/show-and-tell/sex-and-marriage) 。他们 [感觉被判断](https://www.nytimes.com/2017/08/07/well/family/most-mothers-feel-judged-with-families-often-the-worst-critics.html?mtrref=www.google.com&gwh=8C1C790BDD905C0977B87B0291783B80&gwt=pay) 。几年前， [一项研究](https://www.cnn.com/2015/08/12/health/stressed-parents-second-child-irpt/index.html) 报告称，有了第一个孩子后，幸福感的下降幅度比经历失业、离婚或伴侣去世时更大。是的，*失业，* *离婚*或者*伴侣死亡*。这场斗争中有很多因素——经济、社交媒体、育儿村的解体——但最重要的一个因素是:我们非常关心满足孩子的愿望。
 

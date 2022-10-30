@@ -1,6 +1,6 @@
 # 如果你的信用卡有价格保护，如何要求退款
 
-> 原文:[https://life hacker . com/how-to-request-a-refund-if-your ' s credit-card-has-price-p-1820622824](https://lifehacker.com/how-to-request-a-refund-if-your-credit-card-has-price-p-1820622824)
+> 原文：<https://lifehacker.com/how-to-request-a-refund-if-your-credit-card-has-price-p-1820622824>
 
 比方说，上周你屈服了，买下了你一直觊觎的那台别致的浓缩咖啡机。你很开心，而且含有咖啡因，但是你看到 [这个周便宜了 50 美元](http://deals.kinja.com/the-impossibly-small-nespresso-mini-is-half-off-for-bla-1820619255#[ks%7Cnativestream&_ga=2.59269230.258803392.1511217924-1268082208.1431441811) *。真扫兴。好消息是，如果你用正确的卡付款，你可能会享受到降价的好处。*
 

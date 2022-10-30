@@ -1,6 +1,6 @@
 # 给你的孩子一个你最喜欢的歌曲的播放列表
 
-> 原文:[https://life hacker . com/give-your-kids-a-playlist-of-your-favorite-songs-1823174746](https://lifehacker.com/give-your-kids-a-playlist-of-your-favorite-songs-1823174746)
+> 原文：<https://lifehacker.com/give-your-kids-a-playlist-of-your-favorite-songs-1823174746>
 
 “住宅区有骗子，包厘街有流浪汉。四十二街有个大吉姆·沃克，他是个泳池杀手。”
 

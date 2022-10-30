@@ -1,6 +1,6 @@
 # 我们询问了五位安全专家智能锁是否安全
 
-> 原文:[https://life hacker . com/we-asked-five-security-experts-if-smart-locks-ever-1797910643](https://lifehacker.com/we-asked-five-security-experts-if-smart-locks-are-ever-1797910643)
+> 原文：<https://lifehacker.com/we-asked-five-security-experts-if-smart-locks-are-ever-1797910643>
 
 本月早些时候，一次自动固件更新 [为大约 500 名客户破解了 LockState 的互联网“智能锁”](http://gizmodo.com/smart-locks-used-by-airbnb-get-bricked-by-software-upda-1797839523#_ga=2.149964214.1263597711.1502718840-1297080755.1497980211) ，其中包括大约 200 名 Airbnb 主机，他们使用这些锁来远程管理租赁访问。顾客不得不更换他们的锁，或者把它们运回修理。(锁仍然可以用物理钥匙操作。)
 

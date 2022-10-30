@@ -1,6 +1,6 @@
 # 如何走出你一直深陷其中的育儿角色
 
-> 原文:[https://life hacker . com/how-to-get-out-of-parenting-roles-you-ve-ked-1820349112](https://lifehacker.com/how-to-get-out-of-the-parenting-roles-youve-been-stuck-1820349112)
+> 原文：<https://lifehacker.com/how-to-get-out-of-the-parenting-roles-youve-been-stuck-1820349112>
 
 作为两个孩子的母亲，雷切尔·拉布金·皮奇曼意识到，当她在家庭中承担起象征性的角色时——她是预约牙医、记得打包爵士鞋、并且如果有人问起知道雪地裤存放在哪里的人——她的丈夫将成为“有趣的父母”，与孩子们一起建造真正的堡垒。她在她的文章 [【分享育儿聚焦】](http://www.bostonglobe.com/magazine/2017/10/27/sharing-parenting-spotlight/giLo3kkeMl1yGlrsSSQ1sK/story.html?event=event25#comments) 中揭示了这种差异，解释了妈妈和爸爸如何容易陷入截然不同的(通常是性别化的)育儿角色，以及这对每个人来说是多么不公平。
 

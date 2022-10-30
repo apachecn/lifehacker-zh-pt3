@@ -1,6 +1,6 @@
 # 如何清理你的羊肚菌
 
-> 原文:[https://life hacker . com/how-to-clean-up-your-morels-1795697286](https://lifehacker.com/how-to-clean-up-your-morels-1795697286)
+> 原文：<https://lifehacker.com/how-to-clean-up-your-morels-1795697286>
 
 你可以留着你的芦笋、豌豆，以及任何你现在对绿色春天感到兴奋的东西，因为我在这里几乎只是为了羊肚菌:当天气开始变暖时出现的褶边、美味的小蘑菇。尽管我们已经接近这个季节的尾声，但我仍然在农贸市场和杂货店里发现它们，而且我会尽可能长时间地把它们放在我的面前。
 

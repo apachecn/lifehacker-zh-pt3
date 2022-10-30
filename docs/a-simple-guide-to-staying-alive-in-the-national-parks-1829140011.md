@@ -1,6 +1,6 @@
 # 在国家公园生存的简单指南
 
-> 原文:[https://deadspin . com/a-simple-guide-to-stay-alive-in-the-national-parks-1829140011](https://deadspin.com/a-simple-guide-to-staying-alive-in-the-national-parks-1829140011)
+> 原文：<https://deadspin.com/a-simple-guide-to-staying-alive-in-the-national-parks-1829140011>
 
 越来越多的美国人开始户外活动。自 2000 年以来，国家公园的游客数量持续稳步增长。从 2000 年到 2013 年，每年的游客数量在 2.6 亿到 2.8 亿之间波动。虽然这 13 年的跨度可以被认为是健康的增长，但自 2014 年以来，国家公园管理局(National Parks Service)在年度上座率方面的表现不亚于类固醇。根据 NPS 的数据，2014 年有 2.93 亿人参观了国家公园。这一数字在 2015 年升至 3.07 亿，在 2016 年升至 3.31 亿。这三年的游客人数都创下了历史最高纪录，2017 年几乎再次打破了这一纪录，只有不到 3.31 亿游客涌向了约塞米蒂的半穹顶和阿卡迪亚的蜂巢等标志性建筑。
 

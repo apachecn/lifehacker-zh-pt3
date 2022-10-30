@@ -1,6 +1,6 @@
 # 我刚打了 100 个嗝，不知何故还没死
 
-> 原文:[https://life hacker . com/I-just-did-100-burpees-and-am-however-not-dead-1827248116](https://lifehacker.com/i-just-did-100-burpees-and-am-somehow-not-dead-1827248116)
+> 原文：<https://lifehacker.com/i-just-did-100-burpees-and-am-somehow-not-dead-1827248116>
 
 今天，我们将为六月健身挑战赛画上圆满的句号。你每天都尿尿吗？(就一些天？嘿，聊胜于无。)我正在用我新获得的一些力量来做压轴戏——你也应该这样。
 

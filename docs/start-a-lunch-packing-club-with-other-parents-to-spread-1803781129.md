@@ -1,6 +1,6 @@
 # 和其他父母一起建立一个午餐打包俱乐部，分散劳动力
 
-> 原文:[https://life hacker . com/start-a-lunch-packing-club-with-other-parents-to-spread-1803781129](https://lifehacker.com/start-a-lunch-packing-club-with-other-parents-to-spread-1803781129)
+> 原文：<https://lifehacker.com/start-a-lunch-packing-club-with-other-parents-to-spread-1803781129>
 
 每天打包学校午餐可能会有点乏味，结果可能会有点单调。(对不起，我亲爱的孩子，他已经吃了五天剩下的意大利面和豌豆了。)分散劳动力，让事情变得对孩子的口味更有趣的一个方法是和其他父母一起创办一个午餐打包俱乐部。
 

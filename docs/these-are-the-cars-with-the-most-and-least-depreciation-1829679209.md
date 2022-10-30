@@ -1,6 +1,6 @@
 # 这是五年后贬值最多和最少的车
 
-> 原文:[https://jalopnik . com/这些是折旧最多和最少的车-1829679209](https://jalopnik.com/these-are-the-cars-with-the-most-and-least-depreciation-1829679209)
+> 原文：<https://jalopnik.com/these-are-the-cars-with-the-most-and-least-depreciation-1829679209>
 
 除非你买了一辆稀有的老式跑车作为“投资”，否则一旦你把它开出停车场，你的新车就会贬值。但是有些汽车比其他汽车更能保值。我们在 [*的朋友 iSeeCars*](https://www.iseecars.com/cars-low-high-depreciation-2018-study) 整理了一份五年后贬值最低和最高的汽车清单，你可能不会对结果感到震惊。
 

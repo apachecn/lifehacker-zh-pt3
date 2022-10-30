@@ -1,6 +1,6 @@
 # 现在你终于可以用你的贝宝账户支付 iOS 交易了
 
-> 原文:[https://life hacker . com/now-you-can-finally-pay-for-IOs-transactions-with-you-1796926531](https://lifehacker.com/now-you-can-finally-pay-for-ios-transactions-with-you-1796926531)
+> 原文：<https://lifehacker.com/now-you-can-finally-pay-for-ios-transactions-with-you-1796926531>
 
 多亏了苹果和贝宝 之间的 [合作，你终于可以好好利用你账户里所有的钱了。这两家公司宣布了一项合作，将允许 PayPal 作为 iOS 设备上的支付选项。如果你没有借记卡或信用卡，或者只是想用你的 PayPal 余额来支付媒体购买费用，现在你的机会来了。](http://www.cnbc.com/2017/07/12/you-can-now-buy-itunes-apps-music-and-more-with-paypal.html)
 

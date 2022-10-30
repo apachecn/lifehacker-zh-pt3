@@ -1,6 +1,6 @@
 # Futurama 的最佳生活经验和建议
 
-> 原文:[https://life hacker . com/futuramas-best-life-lessons-and-advice-1785091164](https://lifehacker.com/futuramas-best-life-lessons-and-advice-1785091164)
+> 原文：<https://lifehacker.com/futuramas-best-life-lessons-and-advice-1785091164>
 
 观点:《未来》明显优于《辛普森一家》。事实:你可以在这个节目的许多许多取消之间找到你需要的所有生活教训和建议。今天，我们将从 31 世纪最伟大的男人和女人那里了解生活。还有班德。
 

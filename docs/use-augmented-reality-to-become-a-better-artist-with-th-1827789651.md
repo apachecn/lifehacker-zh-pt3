@@ -1,6 +1,6 @@
 # 使用增强现实成为一个更好的艺术家
 
-> 原文:[https://life hacker . com/use-augmented-reality-to-be-a-better-artist-th-1827789651](https://lifehacker.com/use-augmented-reality-to-become-a-better-artist-with-th-1827789651)
+> 原文：<https://lifehacker.com/use-augmented-reality-to-become-a-better-artist-with-th-1827789651>
 
 画画是我一直希望自己已经掌握的技能之一，但却从未真正掌握。我在艺术方面一直是班上的佼佼者，直到我上了中学，但不幸的是，那是我的巅峰，从那以后就一直走下坡路。
 

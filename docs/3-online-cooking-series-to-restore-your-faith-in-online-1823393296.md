@@ -1,6 +1,6 @@
 # 3 在线烹饪系列恢复你对在线烹饪系列的信心
 
-> 原文:[https://the take out . com/3-online-cooking-series-to-restore-your-faith-in-online-1823393296](https://thetakeout.com/3-online-cooking-series-to-restore-your-faith-in-online-1823393296)
+> 原文：<https://thetakeout.com/3-online-cooking-series-to-restore-your-faith-in-online-1823393296>
 
 根据全国烹饪视频制作者联盟的法令，今天所有在线发布的视频必须符合以下标准:
 

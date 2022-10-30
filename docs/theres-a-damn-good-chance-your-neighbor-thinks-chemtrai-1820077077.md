@@ -1,6 +1,6 @@
 # 你的邻居很有可能认为化学痕迹是真的
 
-> 原文:[https://gizmodo . com/there-a-damn-good-chance-your-neighbor-thinks-chem trai-1820077077](https://gizmodo.com/theres-a-damn-good-chance-your-neighbor-thinks-chemtrai-1820077077)
+> 原文：<https://gizmodo.com/theres-a-damn-good-chance-your-neighbor-thinks-chemtrai-1820077077>
 
 化学轨迹是不真实的，但这并没有阻止越来越多的美国人认为它们是真实的。
 

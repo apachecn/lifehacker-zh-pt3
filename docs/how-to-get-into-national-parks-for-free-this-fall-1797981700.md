@@ -1,6 +1,6 @@
 # 今年秋天如何免费进入国家公园
 
-> 原文:[https://life hacker . com/how-to-get-to-to-how-to-to-get-to-the-fall-1797981700](https://lifehacker.com/how-to-get-into-national-parks-for-free-this-fall-1797981700)
+> 原文：<https://lifehacker.com/how-to-get-into-national-parks-for-free-this-fall-1797981700>
 
 今年有 [十天国家公园管理局提供免费入场](https://lifehacker.com/all-the-days-you-can-visit-national-parks-for-free-in-2-1791195663) ，其中最后四天是今年秋天。下一个免费日是本周五，8 月 25 日，因此，以下是如何充分利用您的免费秋季旅行。
 

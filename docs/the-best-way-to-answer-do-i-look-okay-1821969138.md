@@ -1,6 +1,6 @@
 # 回答“我看起来还好吗？”的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-to-answer-do-I-look-okay-1821969138](https://lifehacker.com/the-best-way-to-answer-do-i-look-okay-1821969138)
+> 原文：<https://lifehacker.com/the-best-way-to-answer-do-i-look-okay-1821969138>
 
 当你正准备在镇上度过一个重要的夜晚时，你的同伴转向你，问:“我看起来还好吗？”*大口*。你会说“是的！”不看吗？你告诉他们他们总是看起来非常非常好吗？还是给他们一些诚实的反馈？ [我们问你你会说什么](https://lifehacker.com/what-would-actually-be-helpful-to-hear-when-you-ask-do-1820551988#_ga=2.262720911.2003097520.1515359740-819016074.1513967708) ，这是你告诉我们的。
 

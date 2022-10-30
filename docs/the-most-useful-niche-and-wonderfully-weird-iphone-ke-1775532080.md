@@ -1,6 +1,6 @@
 # 最有用、最小众、最怪异的 iPhone 键盘
 
-> 原文:[https://life hacker . com/the-most-used-niche-and-wonderful-gear-iphone-ke-1775532080](https://lifehacker.com/the-most-useful-niche-and-wonderfully-weird-iphone-ke-1775532080)
+> 原文：<https://lifehacker.com/the-most-useful-niche-and-wonderfully-weird-iphone-ke-1775532080>
 
 iPhone 定制键盘最初推出时是一个受欢迎的惊喜，但随着时间的推移，似乎大多数人都放弃了它们 。但这并不意味着没有一些有用的键盘，事实证明它们越古怪越小众越好。
 

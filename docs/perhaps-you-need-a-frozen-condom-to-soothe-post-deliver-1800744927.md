@@ -1,6 +1,6 @@
 # 也许你需要一个冷冻避孕套来缓解产后阴道创伤
 
-> 原文:[https://life hacker . com/maybe-you-need-a 冷冻避孕套-安抚-产后-1800744927](https://lifehacker.com/perhaps-you-need-a-frozen-condom-to-soothe-post-deliver-1800744927)
+> 原文：<https://lifehacker.com/perhaps-you-need-a-frozen-condom-to-soothe-post-deliver-1800744927>
 
 分娩受伤可不好玩。首先，这些是我们在这里谈论的最温柔的部分，我们通常希望被善待和尊重的地方。但是，胖胖的小宝宝们知道什么是善良和尊重吗？不多。他们出来了，不择手段，感觉就像他们真的用了一个钩子和一个钩子在滑道上挣扎。
 

@@ -1,6 +1,6 @@
 # 在学校寻求心理健康治疗时如何保护自己的隐私
 
-> 原文:[https://life hacker . com/how-to-protect-your-privacy-when-seeking-mental-health-1828974378](https://lifehacker.com/how-to-protect-your-privacy-when-seeking-mental-health-1828974378)
+> 原文：<https://lifehacker.com/how-to-protect-your-privacy-when-seeking-mental-health-1828974378>
 
 学院和大学经常提供心理健康咨询作为免费服务，但学校辅导员并不总是被要求对你的信息保密。如果你想私下寻求帮助，以下是你的选择和应该知道的内容。
 

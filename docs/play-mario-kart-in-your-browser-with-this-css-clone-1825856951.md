@@ -1,6 +1,6 @@
 # 用这个 CSS 克隆在你的浏览器中玩马里奥赛车(更新)
 
-> 原文:[https://life hacker . com/play-Mario-kart-in-your-browser-with-this-CSS-clone-1825856951](https://lifehacker.com/play-mario-kart-in-your-browser-with-this-css-clone-1825856951)
+> 原文：<https://lifehacker.com/play-mario-kart-in-your-browser-with-this-css-clone-1825856951>
 
 闪电糟透了。谢天谢地，软件工程师斯蒂芬·库克的辛勤工作没有包括任何这些(骗子)伎俩。在他的简化版 [马里奥卡丁车](https://lifehacker.com/how-to-turn-google-maps-into-mario-kart-1823635766?rev=1520575494861#_ga=2.177534182.2130151020.1525698930-3846207152.1521480874) 中，你可以在你的浏览器 中直接玩 [，你只需要担心轻松驾驶，而不是物品管理。](https://codesandbox.io/s/zk15o120xl)
 

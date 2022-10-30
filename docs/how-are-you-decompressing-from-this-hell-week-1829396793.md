@@ -1,6 +1,6 @@
 # 你如何从这地狱般的一周中减压？
 
-> 原文:[https://life hacker . com/how-are-you-decompressing-from this-hell-week-1829396793](https://lifehacker.com/how-are-you-decompressing-from-this-hell-week-1829396793)
+> 原文：<https://lifehacker.com/how-are-you-decompressing-from-this-hell-week-1829396793>
 
 这真是不寻常的一周啊。对于性侵犯 的幸存者来说，尤其是，要知道你并不孤单，人们正在努力帮助你，你的声音很重要。如果您需要帮助，我们有 [少量资源](https://lifehacker.com/how-to-start-healing-after-sexual-trauma-1820455497) ，您也可以拨打 [RAINN 热线](https://www.rainn.org/)800.656。
 

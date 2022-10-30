@@ -1,6 +1,6 @@
 # 如果你在节食，就放弃“交通工具”
 
-> 原文:[https://life hacker . com/diet-the-vehicle-if-you-dieting-1825052145](https://lifehacker.com/ditch-the-vehicle-if-youre-dieting-1825052145)
+> 原文：<https://lifehacker.com/ditch-the-vehicle-if-youre-dieting-1825052145>
 
 当你试图减少卡路里的摄入时，有些食物太美味了，不能完全放弃。对我来说，这些东西是某种浇头或蘸料，通常需要额外的高热量食物才能将美味送到我的嘴里。如果你在节食，明智的做法是用更健康的食物代替分娩方式——或者像我一样完全放弃。
 

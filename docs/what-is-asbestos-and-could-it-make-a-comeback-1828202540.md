@@ -1,6 +1,6 @@
 # 什么是石棉，它会卷土重来吗？
 
-> 原文:[https://life hacker . com/什么是石棉，它能东山再起吗-1828202540](https://lifehacker.com/what-is-asbestos-and-could-it-make-a-comeback-1828202540)
+> 原文：<https://lifehacker.com/what-is-asbestos-and-could-it-make-a-comeback-1828202540>
 
 石棉，一种防火的纤维矿物 ，曾经被用于各种产品:建筑保温材料和瓷砖，任何可能受热的东西的衬里，甚至被用作圣诞节装饰的 [假雪](https://www.snopes.com/fact-check/was-fake-snow-made-from-asbestos-marketed-as-christmas-decor/) 。可惜是致癌物。
 

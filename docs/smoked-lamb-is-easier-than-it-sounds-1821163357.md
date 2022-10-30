@@ -1,6 +1,6 @@
 # 熏羊肉比听起来容易
 
-> 原文:[https://life hacker . com/smoked-lamb-is-easy than-it-it-sound-1821163357](https://lifehacker.com/smoked-lamb-is-easier-than-it-sounds-1821163357)
+> 原文：<https://lifehacker.com/smoked-lamb-is-easier-than-it-sounds-1821163357>
 
 当我们接近月底的时候，有很多传统的节日大餐要考虑。肋骨烧烤，甚至更多的火鸡，一个零星的火腿或惠灵顿。但我更喜欢羊肉——不仅仅是法式烤羊排，还有整条腿。随着五月以来反常的温暖天气，我认为现在是我们谈论吸烟的时候了。
 

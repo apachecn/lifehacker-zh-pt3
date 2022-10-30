@@ -1,6 +1,6 @@
 # 为什么你应该停止给你的孩子这么多玩具
 
-> 原文:[https://life hacker . com/why-you-should-stop-giving-your kids-so-many-1821051616](https://lifehacker.com/why-you-should-stop-giving-your-kids-so-many-toys-1821051616)
+> 原文：<https://lifehacker.com/why-you-should-stop-giving-your-kids-so-many-toys-1821051616>
 
 托莱多大学的研究人员在进行了一项新的研究，得到较少玩具的幼儿比那些有许多玩具的幼儿玩得更有创造性，也更投入。妈妈们和爸爸们，现在可能是时候从你们的亚马逊购物车中移除小鸡机器人、小胡子插件、表情符号宾果套装和蜘蛛侠无人机了。对不起
 

@@ -1,6 +1,6 @@
 # 危机短信热线顾问如何帮助孩子们重新获得安全感
 
-> 原文:[https://life hacker . com/how-crisis-text-line-consultants-is-helping-kids-feel-s-1821965133](https://lifehacker.com/how-crisis-text-line-counselors-are-helping-kids-feel-s-1821965133)
+> 原文：<https://lifehacker.com/how-crisis-text-line-counselors-are-helping-kids-feel-s-1821965133>
 
 饮食失调危机在周一激增。早上五点钟物质滥用最严重。如果有人发短信哭丧着脸的表情符号或“布洛芬”这个词，请注意——这些可能是自杀风险的预测因素。
 

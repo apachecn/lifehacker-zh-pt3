@@ -1,6 +1,6 @@
 # 不是每个人都适合提前退休
 
-> 原文:[https://life hacker . com/early-retirement-is not-for all-1792176454](https://lifehacker.com/early-retirement-is-not-for-everyone-1792176454)
+> 原文：<https://lifehacker.com/early-retirement-is-not-for-everyone-1792176454>
 
 我今天和我的一个老朋友吃了一顿丰盛的午餐。我们曾经一起工作，他比我大几十岁，所以今天他实际上开始考虑短期退休。他对我作为一个靠兼职和合同为生的自由职业者的生活很感兴趣，我也分享了我对此的一些想法，但当我们开始真正的谈话时，他似乎主要是在试图弄清楚他生活的下一阶段会是什么样子。
 

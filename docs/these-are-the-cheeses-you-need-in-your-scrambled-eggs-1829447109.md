@@ -1,6 +1,6 @@
 # 添加到炒鸡蛋中的最佳奶酪
 
-> 原文:[https://life hacker . com/这些是你炒蛋中需要的奶酪-1829447109](https://lifehacker.com/these-are-the-cheeses-you-need-in-your-scrambled-eggs-1829447109)
+> 原文：<https://lifehacker.com/these-are-the-cheeses-you-need-in-your-scrambled-eggs-1829447109>
 
 奶酪是升级一个平庸的炒股的好方法——见鬼，这是升级一个平庸的任何东西的好方法——但它也可以用来提升，而不是模糊。以下美味的奶油奶酪很像一个好的伴唱歌手；他们强调鸡蛋，但只在关键时刻吸引注意力。
 

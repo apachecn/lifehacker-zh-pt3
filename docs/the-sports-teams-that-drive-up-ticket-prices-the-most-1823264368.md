@@ -1,6 +1,6 @@
 # 票价上涨最多的运动队
 
-> 原文:[https://life hacker . com/the-sports-teams-the-drive-up-ticket-prices-the-most-1823264368](https://lifehacker.com/the-sports-teams-that-drive-up-ticket-prices-the-most-1823264368)
+> 原文：<https://lifehacker.com/the-sports-teams-that-drive-up-ticket-prices-the-most-1823264368>
 
 在体育场看职业联赛比在电视上看有趣得多，但这要花你很多钱，尤其是当你要去看的球队非常受欢迎的时候。这些 NBA、NFL、MLB 和 NHL 球队增加了门票需求，使得即使是便宜的座位也显得昂贵，所以你可能想在家观看这些比赛。
 

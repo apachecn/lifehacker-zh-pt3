@@ -1,6 +1,6 @@
 # 我是玛丽·罗奇，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Mary-roach-and-this-is-how-I-work-1784666935](https://lifehacker.com/im-mary-roach-and-this-is-how-i-work-1784666935)
+> 原文：<https://lifehacker.com/im-mary-roach-and-this-is-how-i-work-1784666935>
 
 玛丽·罗奇想让你不舒服，但是很感兴趣。她的书研究了管理人体的意想不到的、好奇的细节，以及我们如何应对自身局限性的科学。
 

@@ -1,6 +1,6 @@
 # 如何理解无数令人困惑的感冒药
 
-> 原文:[https://life hacker . com/how-to-make-sense-of-the-number-missible-cold-medi-1731341728](https://lifehacker.com/how-to-make-sense-of-the-countless-confusing-cold-medi-1731341728)
+> 原文：<https://lifehacker.com/how-to-make-sense-of-the-countless-confusing-cold-medi-1731341728>
 
 去商店有两种方法可以挑选出你喜欢的感冒药。一个是记住你去年用过的品牌名称；另一个是扫描小字，寻找 [活性成分](https://lifehacker.com/whats-the-difference-between-pain-relievers-should-i-512827959) 的正确组合。第二种方法听起来可能有点麻烦，但是更有效。
 

@@ -1,6 +1,6 @@
 # 你真的可以用 9 伏电池给你的手机充电
 
-> 原文:[https://life hacker . com/you-really-can-charge-your-phone-a-9 伏特电池-1829011461](https://lifehacker.com/you-really-can-charge-your-phone-with-a-9-volt-battery-1829011461)
+> 原文：<https://lifehacker.com/you-really-can-charge-your-phone-with-a-9-volt-battery-1829011461>
 
 停电时，9 伏电池可以给你的手机提供足够的电量来打电话或发短信。在 之前，你可能已经见过这种黑客 [，但它在](https://lifehacker.com/emergency-charge-a-smartphone-with-a-battery-a-key-an-1633139893) [这种变体](http://www.foxla.com/home/hurricane-hack-making-a-phone-charger-using-a-battery) 中工作得特别好，其中你使用笔中的弹簧来连接负极端子。
 

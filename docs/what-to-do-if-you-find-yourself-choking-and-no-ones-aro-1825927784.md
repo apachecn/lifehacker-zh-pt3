@@ -1,6 +1,6 @@
 # 如果你发现自己窒息了，而周围没有人，该怎么办
 
-> 原文:[https://the take out . com/what-do-if-you-found you-found you-choking-and-no-one-aro-1825927784](https://thetakeout.com/what-to-do-if-you-find-yourself-choking-and-no-ones-aro-1825927784)
+> 原文：<https://thetakeout.com/what-to-do-if-you-find-yourself-choking-and-no-ones-aro-1825927784>
 
 每次吃饭都是在赌自己吃东西的能力和生存能力。老实说，我们可能都把这个责任看得太轻了。美国国家安全委员会报告称， [窒息是美国意外伤害死亡的第四大原因](https://www.nsc.org/home-safety/safety-topics/choking-suffocation) ，而 [意外伤害](https://www.nsc.org/in-the-newsroom/accidental-injury-becomes-3-cause-of-death-for-the-first-time-in-us-history-2) 死亡是总体死亡的第三大原因。我们可以把一个人送上月球，但不能相信我们会慢慢咀嚼而不死去。
 

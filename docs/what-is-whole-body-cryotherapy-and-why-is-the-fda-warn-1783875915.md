@@ -1,6 +1,6 @@
 # 什么是全身冷冻疗法，为什么美国食品和药物管理局警告人们？
 
-> 原文:[https://life hacker . com/what-is-what-all-body-cryotherapy-and-why-is-FDA-warn-1783875915](https://lifehacker.com/what-is-whole-body-cryotherapy-and-why-is-the-fda-warn-1783875915)
+> 原文：<https://lifehacker.com/what-is-whole-body-cryotherapy-and-why-is-the-fda-warn-1783875915>
 
 简单来说， [冷冻疗法](https://en.wikipedia.org/wiki/Cryotherapy) 是将低温用于医疗目的的过程，通常用于治疗疼痛。近年来，它在水疗中心和体育中心变得很受欢迎，以缓解疼痛的肌肉，改善关节炎症状，“延缓衰老”，甚至帮助你减肥。你的屁话计量表现在可能要响了，这是理所当然的。这是底线。
 

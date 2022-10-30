@@ -1,6 +1,6 @@
 # 把最后一点腌沙拉变成鸡尾酒
 
-> 原文:[https://life hacker . com/turn-the last-bit-of-salad-into-a-cocktail-1829278964](https://lifehacker.com/turn-that-last-bit-of-marinated-salad-into-a-cocktail-1829278964)
+> 原文：<https://lifehacker.com/turn-that-last-bit-of-marinated-salad-into-a-cocktail-1829278964>
 
 美味的鸡尾酒正在流行，但你在杂志上看到的花式鸡尾酒似乎总是包含三种定制的注入和一种手工制作的装饰。如果这不是你的风格，检查一下你的冰箱——你可能已经有了你需要的复杂、美味的成人饮料。
 

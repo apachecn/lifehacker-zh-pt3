@@ -1,6 +1,6 @@
 # 独立日我们应该吃什么？
 
-> 原文:[https://life hacker . com/1827106346](https://lifehacker.com/what-should-we-casserole-for-independence-day-1827106346)
+> 原文：<https://lifehacker.com/what-should-we-casserole-for-independence-day-1827106346>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅菜。我们上一个砂锅创造是一个稍微调整的经典，结果非常好，但现在是时候进入下一个任务了。
 

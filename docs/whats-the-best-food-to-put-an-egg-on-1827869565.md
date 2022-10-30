@@ -1,6 +1,6 @@
 # 填空:放鸡蛋的最佳食物是...
 
-> 原文:[https://the take out . com/what-the-best-to-put a egg-on-1827869565](https://thetakeout.com/whats-the-best-food-to-put-an-egg-on-1827869565)
+> 原文：<https://thetakeout.com/whats-the-best-food-to-put-an-egg-on-1827869565>
 
 我明白了，如果我做了，我可以把任何剩菜变成完全可以接受的早餐，但只有一件事:在上面放一个鸡蛋。吃剩的面条？放一个鸡蛋在上面。吃剩的炒饭？放一个鸡蛋在上面。吃剩的披萨？在那上面也放一个煎蛋。看到了吗？但是我想知道我是不是错过了一种我没有考虑过的美味的蛋盖食品。由于我最近获得了一些时髦的鸡蛋烹饪技巧，我向烹饪专家寻求进一步的灵感。
 

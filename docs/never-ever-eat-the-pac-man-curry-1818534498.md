@@ -1,6 +1,6 @@
 # 永远不要吃吃豆人咖喱
 
-> 原文:[https://kotaku . com/never-ever-eat-the-PAC-man-curry-1818534498](https://kotaku.com/never-ever-eat-the-pac-man-curry-1818534498)
+> 原文：<https://kotaku.com/never-ever-eat-the-pac-man-curry-1818534498>
 
 昨天在万代纳木错的 [VR 区新宿](https://kotaku.com/i-played-mario-kart-vr-and-it-was-pretty-okay-1818534478) 试用*马里奥赛车 VR* 等等时，我参观了虚拟现实街机内的咖啡馆。我正要犯一个错误。
 

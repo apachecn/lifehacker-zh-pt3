@@ -1,6 +1,6 @@
 # 像对待浪漫分手一样对待朋友分手
 
-> 原文:[https://life hacker . com/navigate-a-friend-break-like-you-want-a-romantic-bre-1829713558](https://lifehacker.com/navigate-a-friend-breakup-like-you-would-a-romantic-bre-1829713558)
+> 原文：<https://lifehacker.com/navigate-a-friend-breakup-like-you-would-a-romantic-bre-1829713558>
 
 像浪漫的关系一样，友谊也会结束。我们倾向于把失去一个朋友仅仅看作是一个短暂的瞬间，但是这种分裂通常也同样令人痛苦。让我们开始给予分手友谊应有的尊重。
 

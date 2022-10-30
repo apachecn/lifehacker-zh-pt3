@@ -1,6 +1,6 @@
 # 为什么你应该鼓励你的孩子的非常具体的痴迷
 
-> 原文:[https://life hacker . com/why-you-should-come-your-kids-very-specific-obses-1821246469](https://lifehacker.com/why-you-should-encourage-your-kids-very-specific-obsess-1821246469)
+> 原文：<https://lifehacker.com/why-you-should-encourage-your-kids-very-specific-obsess-1821246469>
 
 我的朋友卡伦说，她的儿子克里斯托弗在大约 18 个月大的时候就开始热爱垃圾车了。每当他看到一个，他就会发疯。凯伦试图把他的注意力转移到玩具火车上，因为那是他们家里的东西，但是他不要。垃圾车。就这样。
 

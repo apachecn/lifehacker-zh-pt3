@@ -1,6 +1,6 @@
 # 如何在没有电视的情况下观看斯坦利杯决赛
 
-> 原文:[https://life hacker . com/how-to-watch-the-Stanley-cup-finals-even-without-a-TV-1826347369](https://lifehacker.com/how-to-watch-the-stanley-cup-finals-even-without-a-tv-1826347369)
+> 原文：<https://lifehacker.com/how-to-watch-the-stanley-cup-finals-even-without-a-tv-1826347369>
 
 今晚拉斯维加斯黄金骑士队将在斯坦利杯决赛的第一场比赛中迎战华盛顿首都队，胜利者将与斯坦利勋爵一起赢得下一年的比赛。
 

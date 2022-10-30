@@ -1,6 +1,6 @@
 # 用宿醉清洁疗法开始你的新一年
 
-> 原文:[https://life hacker . com/start-your-new-year with-the-宿醉-clean-cure-1821673214](https://lifehacker.com/start-your-new-year-with-the-hangover-cleaning-cure-1821673214)
+> 原文：<https://lifehacker.com/start-your-new-year-with-the-hangover-cleaning-cure-1821673214>
 
 你可以减轻你的痛苦，但是过了某一点，宿醉就无法治愈了。只有让他们过去。你可以躺在床上。你可以看电视。或者你可以深度清理你的整个公寓。
 

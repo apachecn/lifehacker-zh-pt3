@@ -1,6 +1,6 @@
 # 这就是你忍住喷嚏的后果
 
-> 原文:[https://life hacker . com/this-is-what-what-when-you-hold-in-you-snees-1796552053](https://lifehacker.com/this-is-what-happens-when-you-hold-in-your-sneezes-1796552053)
+> 原文：<https://lifehacker.com/this-is-what-happens-when-you-hold-in-your-sneezes-1796552053>
 
 喷嚏的威力很大——我们能以每小时 40 英里的速度喷嚏，距离可达 30 英尺。没有什么比想打喷嚏却打不出来更糟糕的了。有时候，你不得不 [止住一个喷嚏](http://lifehacker.com/stop-an-impending-sneeze-by-stretching-out-your-nose-1711759408) ，但这对我们没什么好处，不是吗？
 

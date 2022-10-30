@@ -1,6 +1,6 @@
 # 让维基百科成为你平和、学术的主页
 
-> 原文:[https://life hacker . com/make-Wikipedia-your-peace-scholastic-home-page-1825112445](https://lifehacker.com/make-wikipedia-your-peaceful-scholarly-home-page-1825112445)
+> 原文：<https://lifehacker.com/make-wikipedia-your-peaceful-scholarly-home-page-1825112445>
 
 如果你喜欢在启动浏览器时稍微分散一下注意力，如果你觉得 Twitter 和新闻网站太碍眼，但空白页面又太单调，那么试试 [维基百科](https://en.wikipedia.org/wiki/Main_Page) 。是的，没错，我们刚刚链接到维基百科，好像是我们发现的某个不知名的网站。因为如果你只是通过谷歌搜索结果到达那里，你可能永远不会注意到他们优雅、平静的主页。
 

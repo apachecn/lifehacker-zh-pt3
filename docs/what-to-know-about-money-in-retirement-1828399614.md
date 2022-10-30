@@ -1,6 +1,6 @@
 # 关于退休后的钱该知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-about money in retirement-1828399614](https://lifehacker.com/what-to-know-about-money-in-retirement-1828399614)
+> 原文：<https://lifehacker.com/what-to-know-about-money-in-retirement-1828399614>
 
 你终于来了。你省吃俭用，尽你所能投资，买房子，上大学，以及其他一切与生活相关的东西。一路上你也犯了一些错误，但一切都把你带到了这里。 现在，你可以享受远离工作的时光了。
 

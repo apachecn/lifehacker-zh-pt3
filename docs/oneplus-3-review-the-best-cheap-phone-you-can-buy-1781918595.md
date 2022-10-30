@@ -1,6 +1,6 @@
 # OnePlus 3 评论:你能买到的最好的廉价手机
 
-> 原文:[https://gizmodo . com/oneplus-3-review-the-best-cheap-phone-you-can-buy-1781918595](https://gizmodo.com/oneplus-3-review-the-best-cheap-phone-you-can-buy-1781918595)
+> 原文：<https://gizmodo.com/oneplus-3-review-the-best-cheap-phone-you-can-buy-1781918595>
 
 2014 年，一加突然冒出来一个强有力的想法:如果一部手机既好看、功能强大，又不贵，会怎么样？OnePlus One 是一个麦克风下降，OnePlus 2 是一个成功的大二后续产品，但新的 3 消除了仇恨——[OnePlus 3](https://oneplus.net/3?utm_source=androidcentral&utm_medium=media-us&utm_campaign=op3-launch)是一款“旗舰黑仔”，售价 400 美元，有了 [不再有愚蠢的邀请系统](http://gizmodo.com/oneplus-is-finally-ditching-its-annoying-invite-system-1779820957) ，它不仅是有史以来最好的一加手机，也是最好的廉价手机之一。
 

@@ -1,6 +1,6 @@
 # 给普通人的 13 个可怕的 Wolfram Alpha 技巧
 
-> 原文:[https://life hacker . com/13-awesome-wolfram-alpha-tricks-for-the-average-person-1758933254](https://lifehacker.com/13-awesome-wolfram-alpha-tricks-for-the-average-person-1758933254)
+> 原文：<https://lifehacker.com/13-awesome-wolfram-alpha-tricks-for-the-average-person-1758933254>
 
 对于数据极客来说，Wolfram Alpha 是一个伟大的 [搜索引擎](http://www.wolframalpha.com/examples/StepByStepSolutions.html) ，但是它也有很多对我们其他人有用的计算技巧。以下是一些最有用的。
 

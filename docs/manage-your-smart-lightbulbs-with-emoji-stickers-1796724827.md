@@ -1,6 +1,6 @@
 # 用表情贴纸管理你的智能灯泡
 
-> 原文:[https://life hacker . com/manage-your-smart-light bulbes-with-e moji-sticker-1796724827](https://lifehacker.com/manage-your-smart-lightbulbs-with-emoji-stickers-1796724827)
+> 原文：<https://lifehacker.com/manage-your-smart-lightbulbs-with-emoji-stickers-1796724827>
 
 我最近购买了一些智能灯泡，并计划扩大我的智能灯系列。不过，我确实注意到了安装过程中的一个小不便:如果不盯着应用程序看，很难分辨哪个是哪个灯泡。所以我用表情符号贴纸给我的灯泡添加了视觉辅助。当吊扇关闭时，看到“香蕉”灯熄灭要比试图找出哪个灯泡是“色调客厅灯泡 7”容易得多。
 

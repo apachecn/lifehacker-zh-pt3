@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我只想和我的前任结束
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-just-want-closure-with-my-ex-1829231902](https://kotaku.com/ask-dr-nerdlove-i-just-want-closure-with-my-ex-1829231902)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-just-want-closure-with-my-ex-1829231902>
 
 你好，所有你爱的人——传染病眼镜蛇，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一的约会建议专栏，给你找到你的 OTP 的 DLC。
 

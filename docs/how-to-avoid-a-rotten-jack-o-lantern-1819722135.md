@@ -1,6 +1,6 @@
 # 如何避免一个腐烂的鬼火
 
-> 原文:[https://life hacker . com/how-to-avoid-a-rotate-jack-o-lantern-1819722135](https://lifehacker.com/how-to-avoid-a-rotten-jack-o-lantern-1819722135)
+> 原文：<https://lifehacker.com/how-to-avoid-a-rotten-jack-o-lantern-1819722135>
 
 你的南瓜灯看起来很好，在你的前门旁边是明亮的橙色，这是季节的预兆，晚上是闪烁的茶灯光的家。是吗？它开始萎缩了吗？它可能有点臭吗？即使它看起来还不错，你怎么保证它能撑到万圣节呢？
 

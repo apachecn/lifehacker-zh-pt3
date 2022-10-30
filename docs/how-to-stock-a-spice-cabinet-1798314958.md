@@ -1,6 +1,6 @@
 # 如何储备香料柜
 
-> 原文:[https://life hacker . com/how-to-stock-a-spice-cabinet-1798314958](https://lifehacker.com/how-to-stock-a-spice-cabinet-1798314958)
+> 原文：<https://lifehacker.com/how-to-stock-a-spice-cabinet-1798314958>
 
 在香料柜里储存香料可能有点让人不知所措，原因很简单，那里有太多的香料。储存你能看到的每一种令人兴奋的调料可能很诱人，但是这些东西确实有保质期，你可能最终会有一柜子无味、昂贵的粉末需要更换。
 

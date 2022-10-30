@@ -1,6 +1,6 @@
 # 用“狗死了吗？”警告娱乐中不愉快的场景
 
-> 原文:[https://life hacker . com/be-warning-about-unless-scenes-in-entertainment-with-1828142232](https://lifehacker.com/be-warned-about-unpleasant-scenes-in-entertainment-with-1828142232)
+> 原文：<https://lifehacker.com/be-warned-about-unpleasant-scenes-in-entertainment-with-1828142232>
 
 你对 HBO 的新节目感到兴奋，但预告片看起来相当暴力。你可以忍受一些打斗，但你真的讨厌酷刑场景。或者你讨厌呕吐镜头。或者你需要避免频闪效应。或者你真正的狗刚刚死了，而你不想被电影提醒。在上查标题[狗死了吗？](https://www.doesthedogdie.com/) ，这个网站收集了超过 6000 部电影、电视、书籍和视频游戏中关于焦虑触发因素和不愉快元素的警告。
 

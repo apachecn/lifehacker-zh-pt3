@@ -1,6 +1,6 @@
 # 如何赢得弹球比赛
 
-> 原文:[https://lifehacker.com/how-to-win-at-pinball-1828489783](https://lifehacker.com/how-to-win-at-pinball-1828489783)
+> 原文：<https://lifehacker.com/how-to-win-at-pinball-1828489783>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-T1zzyGhA4-g&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-T1zzyGhA4-g&start=0) 
 

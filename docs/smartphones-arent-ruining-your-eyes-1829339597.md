@@ -1,6 +1,6 @@
 # 智能手机不会损害你的眼睛
 
-> 原文:[https://life hacker . com/smarts-不会毁了你的眼睛-1829339597](https://lifehacker.com/smartphones-arent-ruining-your-eyes-1829339597)
+> 原文：<https://lifehacker.com/smartphones-arent-ruining-your-eyes-1829339597>
 
 智能手机发出的蓝光可能会干扰你的睡眠，但没有证据表明它会让你失明，尽管 [的广告声称](https://twitter.com/reticare_usa) 的广告，偶尔还有标题暗示它会。
 

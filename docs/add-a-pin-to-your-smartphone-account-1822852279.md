@@ -1,6 +1,6 @@
 # 向您的 Smartphone 帐户添加 PIN
 
-> 原文:[https://life hacker . com/add-a-pin-to-your-smart phone-account-1822852279](https://lifehacker.com/add-a-pin-to-your-smartphone-account-1822852279)
+> 原文：<https://lifehacker.com/add-a-pin-to-your-smartphone-account-1822852279>
 
 如果你在手机上设置了密码，并在智能手机上设置了基于短信的双重认证，你可能会认为自己很安全，不会被黑客攻击。
 

@@ -1,6 +1,6 @@
 # 快速无痛移动的十大移动技巧
 
-> 原文:[https://life hacker . com/top-10-moving-tricks-for-a-fast-无痛搬家-1773490692](https://lifehacker.com/top-10-moving-tricks-for-a-fast-painless-move-1773490692)
+> 原文：<https://lifehacker.com/top-10-moving-tricks-for-a-fast-painless-move-1773490692>
 
 搬家很有趣，但是打包很糟糕。当你忙着把你的东西塞进箱子里，以免它们在路上摔碎时，新家的光彩和乐观很快就会消失。以下是一些让这一切变得更容易的建议。
 

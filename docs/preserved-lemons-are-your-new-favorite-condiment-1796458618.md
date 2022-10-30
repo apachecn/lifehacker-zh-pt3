@@ -1,6 +1,6 @@
 # 腌制的柠檬是你的新宠
 
-> 原文:[https://life hacker . com/preserved-lemons-is-your ' s new-favorite-调味品-1796458618](https://lifehacker.com/preserved-lemons-are-your-new-favorite-condiment-1796458618)
+> 原文：<https://lifehacker.com/preserved-lemons-are-your-new-favorite-condiment-1796458618>
 
 我喜欢把我的生活分成两个时代:我知道柠檬脯之前的时代和我知道柠檬脯之后的时代。不像新鲜的柠檬皮或果汁，这些时髦的小楔子增加了一点鲜味和酸味。
 

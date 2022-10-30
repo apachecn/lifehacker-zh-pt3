@@ -1,6 +1,6 @@
 # iPhone:不用等 iOS 11 就能得到单手键盘
 
-> 原文:[https://life hacker . com/iphone-get-a-one-hand-a-keyboard-without-I-1797333646](https://lifehacker.com/iphone-get-a-one-handed-keyboard-without-waiting-for-i-1797333646)
+> 原文：<https://lifehacker.com/iphone-get-a-one-handed-keyboard-without-waiting-for-i-1797333646>
 
 今年晚些时候，苹果将公开发布 iOS 11，其中包括一个默认键盘 的 [单手模式。这是一个很好的想法，这也是为什么这么多第三方键盘已经有了这个功能。而且你不用](http://www.idownloadblog.com/2017/07/18/how-to-use-one-handed-iphone-keyboard/) [越狱](http://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-1797058645) 或者做什么怪异的事情。
 

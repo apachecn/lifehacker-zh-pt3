@@ -1,6 +1,6 @@
 # 试用谷歌新产品后人们的评价
 
-> 原文:[https://life hacker . com/the-best-of-the-the-Google-event-from-every-other-1819189217](https://lifehacker.com/the-best-of-the-google-event-from-everyone-else-1819189217)
+> 原文：<https://lifehacker.com/the-best-of-the-google-event-from-everyone-else-1819189217>
 
 随着谷歌(Google)昨日发布了为数不多的新智能手机、语音助手和配件，在一头扎进并购买你最喜欢的搜索引擎公司发布的任何产品之前，收集一些意见是有意义的。当然，有些产品在舞台上可能看起来不错，但是当你拿到手的时候，它们是如何保持的呢？你愿意花 49 美元买一个小小的谷歌 Home 肯定有几个原因，但 399 美元的谷歌 Home Max 能成为你的语音助手吗？Pixel 2 XL 比它的小伙伴 Pixel 2 怎么样？你应该考虑用谷歌剪辑相机记录我平凡的生活吗？不出所料，很多人已经对这个问题有了想法。以下是本周发布的主要新产品和新功能的早期评论:
 

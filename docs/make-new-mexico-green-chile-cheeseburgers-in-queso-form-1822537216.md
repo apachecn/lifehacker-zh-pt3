@@ -1,6 +1,6 @@
 # 使新墨西哥绿色智利芝士汉堡在 queso 的形式
 
-> 原文:[https://the take out . com/make-new-Mexico-green-Chile-芝士汉堡-in-queso-form-1822537216](https://thetakeout.com/make-new-mexico-green-chile-cheeseburgers-in-queso-form-1822537216)
+> 原文：<https://thetakeout.com/make-new-mexico-green-chile-cheeseburgers-in-queso-form-1822537216>
 
 我有一个谷歌文档页面总是在浏览器上打开。上面有标着“比萨饼”、“汉堡”、“砂锅菜”、“馅饼”、“蘸酱”等等的标题。在每一部分下面，我列出了已有的菜肴，并想象这些风味在另一种形式下会是什么味道。如:韩式炸鸡披萨。卡尼浅田拉面。焦糖洋葱蘸烤奶酪三明治。
 

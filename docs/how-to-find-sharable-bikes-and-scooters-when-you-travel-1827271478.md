@@ -1,6 +1,6 @@
 # 旅行时如何找到共享自行车和滑板车
 
-> 原文:[https://life hacker . com/how-to-find-shared-bikes-and-scooters-when-you travel-1827271478](https://lifehacker.com/how-to-find-sharable-bikes-and-scooters-when-you-travel-1827271478)
+> 原文：<https://lifehacker.com/how-to-find-sharable-bikes-and-scooters-when-you-travel-1827271478>
 
 在过去的一年里，共享自行车在我旧金山的家已经成为一件大事。我认为，它始于你可以从福特按小时租用的自行车，但随后迅速扩展到无数其他选择，从跳跃自行车到小鸟和莱姆踏板车。
 

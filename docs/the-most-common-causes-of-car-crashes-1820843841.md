@@ -1,6 +1,6 @@
 # 车祸最常见的原因
 
-> 原文:[https://life hacker . com/the-most-common-causes-of-car-crashes-1820843841](https://lifehacker.com/the-most-common-causes-of-car-crashes-1820843841)
+> 原文：<https://lifehacker.com/the-most-common-causes-of-car-crashes-1820843841>
 
 这个假期，当你开车去奶奶家的时候，安全应该是你的第一要务。没有人希望他们的假期被像一辆报废的汽车或伤害家庭成员这样的事情破坏。这些是最容易发生在司机身上的事故类型，也是你可以轻松避免它们的方法。
 

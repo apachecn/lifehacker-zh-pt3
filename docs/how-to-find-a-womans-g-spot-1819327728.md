@@ -1,6 +1,6 @@
 # 如何找到女人的 g 点
 
-> 原文:[https://life hacker . com/how-to-find-a-womans-g 点-1819327728](https://lifehacker.com/how-to-find-a-womans-g-spot-1819327728)
+> 原文：<https://lifehacker.com/how-to-find-a-womans-g-spot-1819327728>
 
 像女性性行为的许多其他方面一样，g 点通常被认为是神秘、难以捉摸和复杂的，这是不公平的。现实中，没那么复杂。这是女性身体的一部分，对一些女性来说，可以创造很多快乐。故事结束。以下是如何找到她的 g 点，以及一旦找到该怎么做。
 

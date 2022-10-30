@@ -1,6 +1,6 @@
 # 在购买第一代智能手机之前，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-know-before-buy-the-first-generati-1819960261](https://lifehacker.com/what-you-need-to-know-before-buying-that-first-generati-1819960261)
+> 原文：<https://lifehacker.com/what-you-need-to-know-before-buying-that-first-generati-1819960261>
 
 对于第一代智能手机来说，2017 年将是非常非凡的一年。Android 创始人安迪·鲁宾 [首次展示了他新公司的基本手机](https://gizmodo.com/a-normal-persons-guide-to-the-essential-phone-the-most-1797961321) ，该手机使用嵌入式磁铁连接到 360 度摄像头和充电底座等设备。游戏配件公司 Razer 宣布了其以娱乐为中心的 [Razer 手机](https://gizmodo.com/the-razer-phone-is-here-but-is-it-for-real-1819873239) ，这是另一款第一代智能手机的精神继承者，云连接的 Nextbit Robin。你可能会对试用这些全新智能手机的想法感兴趣。但在你跳入未经测试的水域之前，你应该考虑购买本质上是独立智能手机的东西。配有模块化配件或高性能显示屏的手机绝对值得一看，但你应该做好应对潜在障碍的准备。
 

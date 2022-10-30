@@ -1,6 +1,6 @@
 # 安卓最佳习惯追踪应用
 
-> 原文:[https://life hacker . com/the-best-habit-tracking-app-for-Android-1791871741](https://lifehacker.com/the-best-habit-tracking-app-for-android-1791871741)
+> 原文：<https://lifehacker.com/the-best-habit-tracking-app-for-android-1791871741>
 
 如果你没有跟踪你的习惯，你就错过了一个强大的激励工具 。HabitHub 是一个非常棒的应用程序，它可以跟踪你的习惯，提醒你掌握它们，并提供一些显示你进展的图表。
 

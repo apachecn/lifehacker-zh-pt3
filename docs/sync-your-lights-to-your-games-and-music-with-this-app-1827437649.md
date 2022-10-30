@@ -1,6 +1,6 @@
 # 使用此应用将灯光与游戏和音乐同步
 
-> 原文:[https://life hacker . com/sync-your-lights-to-your-games-and-music-with this-app-1827437649](https://lifehacker.com/sync-your-lights-to-your-games-and-music-with-this-app-1827437649)
+> 原文：<https://lifehacker.com/sync-your-lights-to-your-games-and-music-with-this-app-1827437649>
 
 如果你已经购买了飞利浦的 Hue 生态系统，你可以使用大量的应用程序在你的房子(或极客书房)上演一场小小的灯光秀。我的房间充满了该公司昂贵的变色 LED 灯泡，我已经检查了一些应用程序，但一般不需要定期让我的房间看起来像一座爆发的火山。这类应用对聚会来说很有趣，但对日常使用来说并不实用。
 

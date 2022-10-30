@@ -1,6 +1,6 @@
 # 用微波炉做 5 件有用的事情，不要用微波炉加热口袋
 
-> 原文:[https://life hacker . com/5-用你的微波炉做些有用的事情-那个不重要的-nu-1795661761](https://lifehacker.com/5-useful-things-to-do-with-your-microwave-that-arent-nu-1795661761)
+> 原文：<https://lifehacker.com/5-useful-things-to-do-with-your-microwave-that-arent-nu-1795661761>
 
 微波炉在烹饪方面名声不佳。我们把它们与冷冻方便餐和阴冷的办公室午餐室联系在一起这太糟糕了，然而，因为 ol' science 烤箱可以节省你很多时间和精力。
 

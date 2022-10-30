@@ -1,6 +1,6 @@
 # 走出学校要求更安全的枪支法
 
-> 原文:[https://life hacker . com/walk-out-of-school-to-demand-safer-gun-laws-1823053578](https://lifehacker.com/walk-out-of-school-to-demand-safer-gun-laws-1823053578)
+> 原文：<https://lifehacker.com/walk-out-of-school-to-demand-safer-gun-laws-1823053578>
 
 2018 年 3 月 14 日，一个星期三，将会有 [一场全国学校罢课](https://www.facebook.com/events/1767175080245694/) 进行枪改。它由组织妇女游行的人们发起的“妇女游行青年赋权”组织领导。号召学生、家长、老师和盟友在上午 10 点跨越每个时区参加 17 分钟的罢课。
 

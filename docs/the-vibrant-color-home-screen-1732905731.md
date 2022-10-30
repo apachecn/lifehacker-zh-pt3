@@ -1,6 +1,6 @@
 # 鲜艳的彩色主屏幕
 
-> 原文:[https://life hacker . com/the-vibrant-color-home-screen-1732905731](https://lifehacker.com/the-vibrant-color-home-screen-1732905731)
+> 原文：<https://lifehacker.com/the-vibrant-color-home-screen-1732905731>
 
 对那个夏天的结束感到沮丧？远离忧郁——或者庆祝色彩的变化！—今天的主屏幕设计。充满活力的紫色和橙色配色方案，非常适合在夏天晒太阳，同时期待秋天的到来。
 

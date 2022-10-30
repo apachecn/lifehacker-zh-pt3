@@ -1,6 +1,6 @@
 # 炸弹形成风暴将如何影响航空旅行
 
-> 原文:[https://life hacker . com/how-the-bomb genesis-storm-is-to-affect-air-trave-1821744270](https://lifehacker.com/how-the-bombogenesis-storm-is-going-to-affect-air-trave-1821744270)
+> 原文：<https://lifehacker.com/how-the-bombogenesis-storm-is-going-to-affect-air-trave-1821744270>
 
 由于被称为“炸弹形成”的过程， ，一场巨大的超级寒冷风暴将于本周晚些时候猛烈袭击东部 [，它将对航空旅行产生巨大影响。如果你本周晚些时候要坐飞机，你可能要想一个备用计划，或者至少带一本好的长书。](https://earther.com/what-is-this-bomb-cyclone-thing-about-to-blast-the-east-1821736336) 
 

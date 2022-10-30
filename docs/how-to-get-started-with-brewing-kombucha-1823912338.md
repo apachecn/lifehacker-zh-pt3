@@ -1,6 +1,6 @@
 # 如何开始酿造红茶菌
 
-> 原文:[https://the take out . com/how-to-get-started-with-brewing-kompucha-1823912338](https://thetakeout.com/how-to-get-started-with-brewing-kombucha-1823912338)
+> 原文：<https://thetakeout.com/how-to-get-started-with-brewing-kombucha-1823912338>
 
 我从来不喝咖啡，但总是喜欢喝茶。几年前，我收到了一个月茶俱乐部作为礼物。捐款是如此慷慨，以至于我开始喝不完的茶。
 

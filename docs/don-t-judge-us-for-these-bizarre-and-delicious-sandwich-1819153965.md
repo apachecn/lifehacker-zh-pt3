@@ -1,6 +1,6 @@
 # 不要对我们这些奇异美味的三明治组合品头论足
 
-> 原文:[https://the take out . com/don-t-judge-us-for-thickness-delicious-sandwich-1819153965](https://thetakeout.com/don-t-judge-us-for-these-bizarre-and-delicious-sandwich-1819153965)
+> 原文：<https://thetakeout.com/don-t-judge-us-for-these-bizarre-and-delicious-sandwich-1819153965>
 
 * * *
 

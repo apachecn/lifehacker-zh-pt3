@@ -1,6 +1,6 @@
 # 如何让孩子的午睡变成“安静时间”
 
-> 原文:[https://life hacker . com/how-to-turn-your-kids-dropped-nap-to-quiet-time-1796636950](https://lifehacker.com/how-to-turn-your-kids-dropped-nap-into-quiet-time-1796636950)
+> 原文：<https://lifehacker.com/how-to-turn-your-kids-dropped-nap-into-quiet-time-1796636950>
 
 当你为人父母时，午睡是一天中第二最期待的时刻。这一个小时(或者两个，或者三个，如果你幸运的话)是你吃午饭，检查邮件，做一两件家务，甚至休息的时间。这就是“打盹”这个短语如此可怕的原因:它意味着从 7 点(或者 6 点，或者 5 点，如果你不走运的话)开始的一天，现在像张开的死亡之口一样，到了睡觉时间。没有喘息的机会:只有你和一个蹒跚学步的孩子，浑身沾满自制的粘液，为今天是不是星期二而争吵。
 

@@ -1,6 +1,6 @@
 # 来自我们读者的最佳匹兹堡旅行建议
 
-> 原文:[https://life hacker . com/the-best-Pittsburgh-travel-tips-from-our-readers-1828400796](https://lifehacker.com/the-best-pittsburgh-travel-tips-from-our-readers-1828400796)
+> 原文：<https://lifehacker.com/the-best-pittsburgh-travel-tips-from-our-readers-1828400796>
 
 天啊，我们的读者留下了 121 条关于在匹兹堡 游览和生活的 [建议。我们把最好的都标上了星号，这样你就可以不用填充符就能阅读了。看看下面一些非常简单的*亮点。是的，这 1500 个单词仍然只是匹兹堡的冰山一角。当我们晚一天侵入你的城市时，我们会带来货物。*](https://lifehacker.com/tell-us-your-pittsburgh-travel-tips-1828249220)
 

@@ -1,6 +1,6 @@
 # 在面试中描述你目前的工作时要避免的三个错误
 
-> 原文:[https://life hacker . com/描述你当前工作时要避免的三个错误-jo-1758122595](https://lifehacker.com/three-mistakes-to-avoid-when-describing-your-current-jo-1758122595)
+> 原文：<https://lifehacker.com/three-mistakes-to-avoid-when-describing-your-current-jo-1758122595>
 
 如果你和我一样，你的工作就没那么好解释了。这会让招聘经理回答 [面试问题](https://www.themuse.com/advice/how-to-answer-the-31-most-common-interview-questions) 变得过于复杂。以下是人们在告诉别人他们的职业时最常犯的一些错误，以及应该说些什么。
 

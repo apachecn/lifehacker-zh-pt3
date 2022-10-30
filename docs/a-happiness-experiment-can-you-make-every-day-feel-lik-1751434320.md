@@ -1,6 +1,6 @@
 # 一个快乐实验:你能让每一天都像周六一样吗？
 
-> 原文:[https://life hacker . com/a-happy-experiment-can-you-make-every-day-feel-lik-1751434320](https://lifehacker.com/a-happiness-experiment-can-you-make-every-day-feel-lik-1751434320)
+> 原文：<https://lifehacker.com/a-happiness-experiment-can-you-make-every-day-feel-lik-1751434320>
 
 我们在周六晚上 7:26 最开心——至少这是调查 发现的。然而，尽管晚上 7:26 的准确时间看起来很奇怪，但有多项研究表明，人们通常在周末更快乐。那么，我们怎样才能让这一周剩下的时间过得开心呢？
 

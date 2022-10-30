@@ -1,6 +1,6 @@
 # 在任何手机上获得 Galaxy S9 的试妆功能
 
-> 原文:[https://life hacker . com/get-the-galaxy-s9s-make-try-on-feature-on-any-phone-u-1823307779](https://lifehacker.com/get-the-galaxy-s9s-makeup-try-on-feature-on-any-phone-u-1823307779)
+> 原文：<https://lifehacker.com/get-the-galaxy-s9s-makeup-try-on-feature-on-any-phone-u-1823307779>
 
 在 Galaxy S9 中，三星增加了一项新功能，允许您使用手机虚拟试妆。
 

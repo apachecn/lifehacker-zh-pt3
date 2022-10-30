@@ -1,6 +1,6 @@
 # 为什么飓风莱恩对夏威夷构成重大威胁
 
-> 原文:[https://gizmodo . com/why-hurricane-lane-pose-a-major-threat-to-Hawaii-1828533269](https://gizmodo.com/why-hurricane-lane-poses-a-major-threat-to-hawaii-1828533269)
+> 原文：<https://gizmodo.com/why-hurricane-lane-poses-a-major-threat-to-hawaii-1828533269>
 
 飓风莱恩继续向夏威夷逼近，给夏威夷居民和游客带来了灾难性的威胁。这场风暴可能会给阿罗哈州带来 26 年来第一次飓风强度的大风，以及猛烈的海浪和暴雨。
 

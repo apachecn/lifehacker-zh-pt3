@@ -1,6 +1,6 @@
 # 为什么称伊丽莎白·沃伦为“风中奇缘”是种族歧视，解释道
 
-> 原文:[https://www . the root . com/why-calling-Elizabeth-Warren-Pocahontas-is-racistic-expl-1820802836](https://www.theroot.com/why-calling-elizabeth-warren-pocahontas-is-racist-expl-1820802836)
+> 原文：<https://www.theroot.com/why-calling-elizabeth-warren-pocahontas-is-racist-expl-1820802836>
 
 当“胖胖的”唐·科波弗在白宫举行的一次仪式上把伊丽莎白·沃伦称为“风中奇缘”时，大多数非种族主义的美国人的集体反应是，“哦，不，他没有！”
 

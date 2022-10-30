@@ -1,6 +1,6 @@
 # 香草黄油腌龙虾尾是你的情人节晚餐
 
-> 原文:[https://life hacker . com/vanilla-butter-sous-vide-lobster-tails-are-your-Valenti-1822876353](https://lifehacker.com/vanilla-butter-sous-vide-lobster-tails-are-your-valenti-1822876353)
+> 原文：<https://lifehacker.com/vanilla-butter-sous-vide-lobster-tails-are-your-valenti-1822876353>
 
 朋友们大家好，欢迎回到 [*它会苏威吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。今天我们要做一道性感的小菜，这道菜让人印象深刻，而且不需要你付出太多的努力:腌龙虾尾。
 

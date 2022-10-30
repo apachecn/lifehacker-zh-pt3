@@ -1,6 +1,6 @@
 # 不要再说有一天你会“开始冥想”,实际去做
 
-> 原文:[https://life hacker . com/stop-说-你会-开始-冥想-有一天-实际上-1824180649](https://lifehacker.com/stop-saying-youll-start-meditating-someday-and-actually-1824180649)
+> 原文：<https://lifehacker.com/stop-saying-youll-start-meditating-someday-and-actually-1824180649>
 
 当我们最后一次汇总我们员工的每周升级时，我们的编辑正在处理电子邮件、准备饭菜、春季大扫除和额外停工时间的安排。
 

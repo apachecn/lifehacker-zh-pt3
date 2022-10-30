@@ -1,6 +1,6 @@
 # 当你烦恼的时候，用这个五点指南找到耐心
 
-> 原文:[https://life hacker . com/use-this-five-point-guide-to-find-patience-when-you-a-1821563720](https://lifehacker.com/use-this-five-point-guide-to-find-patience-when-youre-a-1821563720)
+> 原文：<https://lifehacker.com/use-this-five-point-guide-to-find-patience-when-youre-a-1821563720>
 
 我很容易生气，而且一直如此。当我小的时候，我常常求我妈妈让我妹妹不要在车里唱歌。“但这是一种快乐的声音，”她会说。(她是对的。我是个混蛋。烦恼是小问题，不是严重的问题，如果我们能学会不再被它们困扰，我们所有人和我们周围的人都会更快乐。
 

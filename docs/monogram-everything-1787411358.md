@@ -1,6 +1,6 @@
 # Monogram 一切
 
-> 原文:[https://jezebel.com/monogram-everything-1787411358](https://jezebel.com/monogram-everything-1787411358)
+> 原文：<https://jezebel.com/monogram-everything-1787411358>
 
 在这个充满痛苦和恐惧的世界里，重要的是你从小事中获得快乐。那么，为什么不从把所有东西都绣上字母开始呢？
 

@@ -1,6 +1,6 @@
 # 奥基磁性车载支架是一个非常简单的手机支架，适用于任何汽车
 
-> 原文:[https://life hacker . com/the-au key-magnetic-car-mount-is-a-dead-simple-phone-mou-1750287542](https://lifehacker.com/the-aukey-magnetic-car-mount-is-a-dead-simple-phone-mou-1750287542)
+> 原文：<https://lifehacker.com/the-aukey-magnetic-car-mount-is-a-dead-simple-phone-mou-1750287542>
 
 你不会认为智能手机车载基座会引发强烈的意见，但我在这里告诉你，你错了。我一直在寻找一个汽车底座，既能装下我越来越大的手机，又不会显得太烦人。奥基磁性汽车支架完美地完成了这项任务。
 

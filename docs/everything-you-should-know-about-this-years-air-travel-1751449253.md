@@ -1,6 +1,6 @@
 # 关于今年的航空旅行，你应该知道的一切都变了
 
-> 原文:[https://life hacker . com/everything-you-should-known-about-this-years-air-travel-1751449253](https://lifehacker.com/everything-you-should-know-about-this-years-air-travel-1751449253)
+> 原文：<https://lifehacker.com/everything-you-should-know-about-this-years-air-travel-1751449253>
 
 从更严格的 TSA 规则到更苛刻的旅行奖励，你可以期待今年航空旅行的一些大变化。无论你是一个经常旅行的人还是一个度假者，你都希望在到达机场之前了解这些变化。
 

@@ -1,6 +1,6 @@
 # 用这个软件可以节省更多亚马逊黄金日的折扣
 
-> 原文:[https://life hacker . com/save-even-more-on-Amazon-prime-day-discounts-with this-1827632932](https://lifehacker.com/save-even-more-on-amazon-prime-day-discounts-with-this-1827632932)
+> 原文：<https://lifehacker.com/save-even-more-on-amazon-prime-day-discounts-with-this-1827632932>
 
 如果你是亚马逊的大买家，并且支付年费享受该公司的服务，那么祝你“黄金日”快乐！你今天会看到很多交易，因为世界上几乎每个网站都在用你的方式跟踪、组织和收集黄金日的商品。
 

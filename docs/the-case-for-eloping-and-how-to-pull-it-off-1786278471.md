@@ -1,6 +1,6 @@
 # 私奔的理由以及如何实现
 
-> 原文:[https://life hacker . com/the-case for-eloping-and-how-pull-off-1786278471](https://lifehacker.com/the-case-for-eloping-and-how-to-pull-it-off-1786278471)
+> 原文：<https://lifehacker.com/the-case-for-eloping-and-how-to-pull-it-off-1786278471>
 
 “所以。婚礼策划的怎么样了？”如果你要结婚了，准备每周至少回答一次这个问题。“好”或“很好”都不行。人要*答案*。你将如何运输蛋糕？你会收到什么样的花？你的 DJ 会放我最喜欢的歌吗？如果这些听起来令人不快，请允许我提供一个选择:私奔。
 

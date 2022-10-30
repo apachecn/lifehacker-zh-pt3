@@ -1,6 +1,6 @@
 # 如何用辣椒粉应用程序组织你的混乱食谱
 
-> 原文:[https://life hacker . com/how-to-organize-your ' s mess-of-a-the-paprika-a-1794081567](https://lifehacker.com/how-to-organize-your-mess-of-recipes-with-the-paprika-a-1794081567)
+> 原文：<https://lifehacker.com/how-to-organize-your-mess-of-recipes-with-the-paprika-a-1794081567>
 
 辣椒粉(4.99 美元)是我们在 [、安卓](http://lifehacker.com/the-best-recipe-manager-for-android-1757450319) 和 [iPhone](https://lifehacker.com/the-best-recipe-manager-for-iphone-1751574246) 上最喜欢的食谱管理器，但其庞大的功能集让它一开始有点势不可挡。让我们来看看几个让这些食谱井井有条而又不失条理的小技巧。
 

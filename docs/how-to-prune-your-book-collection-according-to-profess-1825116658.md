@@ -1,6 +1,6 @@
 # 根据专业图书人士的说法，如何修剪你的藏书
 
-> 原文:[https://life hacker . com/how-to-prune-your-book-collection-by-professor-1825116658](https://lifehacker.com/how-to-prune-your-book-collection-according-to-profess-1825116658)
+> 原文：<https://lifehacker.com/how-to-prune-your-book-collection-according-to-profess-1825116658>
 
 “这么多的书，这么少的时间”可能是一个让人瞠目结舌的口号，比“保持冷静，坚持下去”略逊一筹，但这也确实是事实。正如“这么多的书，这么小的空间。”当你有太多的书时，你如何决定扔掉哪些？我们询问了作家、出版商和书商(都是臭名昭著的囤积者)，他们是如何控制他们的家庭图书馆的。
 

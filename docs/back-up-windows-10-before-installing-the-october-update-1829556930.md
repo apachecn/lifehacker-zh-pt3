@@ -1,6 +1,6 @@
 # 在安装 10 月更新之前备份 Windows 10，否则可能会丢失文件
 
-> 原文:[https://life hacker . com/back-up-windows-10-before-installing-the-October-update-1829556930](https://lifehacker.com/back-up-windows-10-before-installing-the-october-update-1829556930)
+> 原文：<https://lifehacker.com/back-up-windows-10-before-installing-the-october-update-1829556930>
 
 我们都在绞尽脑汁想知道 Windows 10 十月更新是如何通过微软的质量保证团队的。据众多报道称，更新可能会删除 Windows 10 用户文件夹中的内容——你知道，你的文档、照片、音乐、视频等。
 

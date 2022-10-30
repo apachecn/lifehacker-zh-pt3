@@ -1,6 +1,6 @@
 # 如何找出脸书对你的所有了解
 
-> 原文:[https://life hacker . com/how-to-find-out-everything-Facebook-know-on-you-1824022899](https://lifehacker.com/how-to-find-out-everything-facebook-knows-about-you-1824022899)
+> 原文：<https://lifehacker.com/how-to-find-out-everything-facebook-knows-about-you-1824022899>
 
 如果你不能让自己 [完全删除你的脸书账户](https://lifehacker.com/facebook-isn-t-recording-your-conversations-but-it-may-1820193946#_ga=2.259548291.862621771.1521471770-396842925.1520800403) ，你可能会考虑 [在网站上分享更少的私人信息](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407#_ga=2.208242971.862621771.1521471770-396842925.1520800403) 。该公司实际上很容易发现它从你那里收集了多少数据，但结果可能有点可怕。
 

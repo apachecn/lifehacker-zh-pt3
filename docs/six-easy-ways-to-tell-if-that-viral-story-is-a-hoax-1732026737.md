@@ -1,6 +1,6 @@
 # 六种简单的方法来辨别这个病毒式的故事是否是一个骗局
 
-> 原文:[https://gizmodo . com/six-easy-ways-to-tell-if-the-viral-story-is-a-how-1732026737](https://gizmodo.com/six-easy-ways-to-tell-if-that-viral-story-is-a-hoax-1732026737)
+> 原文：<https://gizmodo.com/six-easy-ways-to-tell-if-that-viral-story-is-a-hoax-1732026737>
 
 保守邮报 的标题为 [“就这样开始了……在德国的难民中，ISIS 旗帜对抗警察”。“有了这张新泄露的照片，一切似乎都得到证实”。该图片据称显示一群叙利亚难民举着 ISIS 旗帜袭击德国警察。](http://conservativepost.com/and-so-it-beginsisis-flag-among-refugees-in-germany-fighting-the-police-pictures/)
 

@@ -1,6 +1,6 @@
 # 《最后的绝地武士》将《星球大战》带到了一个奇妙的新高度
 
-> 原文:[https://gizmodo . com/the-last-Jedi-takes-star-wars-movies-to-a-fantastic-new-1821200662](https://gizmodo.com/the-last-jedi-takes-star-wars-movies-to-a-fantastic-new-1821200662)
+> 原文：<https://gizmodo.com/the-last-jedi-takes-star-wars-movies-to-a-fantastic-new-1821200662>
 
 离开看《星球大战:最后的绝地武士》已经几天了，我仍然不能相信这是一部真实的电影。我不敢相信编剧兼导演莱恩·约翰逊的所作所为:他拿走了我们对《T2 星球大战》电影的所有先入为主的观念，并对它们进行了改进。这部电影有时真的令人震惊——很多次——但它也感觉完全真实地反映了《T4 星球大战》的宇宙。而这也是为什么*最后的绝地*如此出色，即使一路上有一些打嗝。
 

@@ -1,6 +1,6 @@
 # 当你自己陷入财务危机时，如何教你的孩子理财
 
-> 原文:[https://life hacker . com/how-to-teach-your-children-what-you-a-finan-1794533446](https://lifehacker.com/how-to-teach-your-kids-about-money-when-you-are-a-finan-1794533446)
+> 原文：<https://lifehacker.com/how-to-teach-your-kids-about-money-when-you-are-a-finan-1794533446>
 
 一般来说，我们希望我们的孩子成为比我们更好的人。我们坚持让他们吃蔬菜，然后在上床睡觉后开始嘎吱嘎吱船长。我们教他们用牙线剔牙，就像我们用舌头剔牙一样。1997 年，当我们从马里兰州黑格斯敦的一家汽车经销店出来时，一个满脸污渍的女人不让我们进入车流，我们建议“原谅和忘记”。
 

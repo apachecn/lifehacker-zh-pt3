@@ -1,6 +1,6 @@
 # NES30 Pro 是任天堂 Switch 的完美便携式控制器
 
-> 原文:[https://gizmodo . com/the-nes 30-pro-is-the-perfect-portable-controller-for-th-1796068741](https://gizmodo.com/the-nes30-pro-is-the-perfect-portable-controller-for-th-1796068741)
+> 原文：<https://gizmodo.com/the-nes30-pro-is-the-perfect-portable-controller-for-th-1796068741>
 
 任天堂在开关的设计上投入了大量的思想，除了替代的 Pro 控制器，这感觉像是事后想起的。它可能是官方的，也是在电视上玩任天堂 Switch 游戏的完美方式，但它的价格昂贵，而且设计笨重，这与该交换机的最大特点:便携性背道而驰。所以我一直在寻找一种更符合开关的替代控制器。我已经找到了。如果你需要一个控制器，可以很容易地扔在包里，但不会像独立的 Joy-Con 那样感到可怕的局促，8Bitdo 的 NES30 Pro 达到了完美的平衡。
 

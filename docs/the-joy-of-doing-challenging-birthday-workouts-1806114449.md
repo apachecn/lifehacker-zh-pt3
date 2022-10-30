@@ -1,6 +1,6 @@
 # 挑战生日锻炼的乐趣
 
-> 原文:[https://life hacker . com/the-joy-of-doing-challenge-birthday-workouts-1806114449](https://lifehacker.com/the-joy-of-doing-challenging-birthday-workouts-1806114449)
+> 原文：<https://lifehacker.com/the-joy-of-doing-challenging-birthday-workouts-1806114449>
 
 上周，我以最快的速度做了 31 个引体向上、31 个空中深蹲、31 个俯卧撑，以及每条腿 31 个反弓步(几天后还骑了 31 英里的自行车)。我手臂上的灼烧感让我严肃地质疑自己的人生决定，但我仍然热爱其中的每一分钟。
 

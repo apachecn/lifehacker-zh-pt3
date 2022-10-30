@@ -1,6 +1,6 @@
 # 用西红柿和蘑菇做一顿非常英式的早餐
 
-> 原文:[https://life hacker . com/make-a very-British-front-with tomato and-mushroou-1829499294](https://lifehacker.com/make-a-very-british-breakfast-with-tomatoes-and-mushroo-1829499294)
+> 原文：<https://lifehacker.com/make-a-very-british-breakfast-with-tomatoes-and-mushroo-1829499294>
 
 美国人非常擅长早餐和早午餐，但地道的英国人却无人可比。超越 [炸面包](https://skillet.lifehacker.com/fried-bread-is-better-than-toast-1827629232)——这比烤面包好得多——加入富含鲜味的蘑菇和甜的，顺便对你有益的西红柿，使它成为一顿不可忽视的饭。
 

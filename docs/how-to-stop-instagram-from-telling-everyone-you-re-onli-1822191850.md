@@ -1,6 +1,6 @@
 # 如何阻止 Instagram 告诉所有人你在线
 
-> 原文:[https://life hacker . com/how-to-stop-insta gram-from-telling-every one-you-re-onli-1822191850](https://lifehacker.com/how-to-stop-instagram-from-telling-everyone-you-re-onli-1822191850)
+> 原文：<https://lifehacker.com/how-to-stop-instagram-from-telling-everyone-you-re-onli-1822191850>
 
 Android/iOS:你最喜欢的社交网络 [假装你有一个完美的生活](https://lifehacker.com/your-instagram-posts-may-offer-warning-signs-of-depress-1797821497) 现在准备好让所有人知道你何时在线和潜伏。Instagram 在你的直接消息列表中添加了一个活动状态指示器，让你知道他们何时在线，并忽略你最近发送的有趣视频。如果你和我有同样的想法，你可能想知道如何禁用这个可怕的新功能。好消息， [潜伏者](https://gizmodo.com/the-case-for-lurking-on-twitter-1519486404) :你可以！
 

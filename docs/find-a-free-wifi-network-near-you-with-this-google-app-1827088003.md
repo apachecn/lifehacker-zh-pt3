@@ -1,6 +1,6 @@
 # 使用这个谷歌应用程序找到你附近的免费 WiFi 网络
 
-> 原文:[https://life hacker . com/find-a-free-wifi-network-near-you-with this-Google-app-1827088003](https://lifehacker.com/find-a-free-wifi-network-near-you-with-this-google-app-1827088003)
+> 原文：<https://lifehacker.com/find-a-free-wifi-network-near-you-with-this-google-app-1827088003>
 
 WiFi 网络，尤其是免费的，总是在你真正需要的时候最难找。现在，谷歌已经让追踪一个人变得更容易了，这要归功于其数据保存应用程序 dataly 中的一个新功能 [。](https://www.blog.google/technology/next-billion-users/datally-four-new-ways-to-save/) 
 

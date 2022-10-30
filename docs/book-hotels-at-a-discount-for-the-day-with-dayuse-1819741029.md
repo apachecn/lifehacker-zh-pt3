@@ -1,6 +1,6 @@
 # 以当天使用的折扣预订酒店
 
-> 原文:[https://life hacker . com/book-hotels-at-a-discount-of-day-day-use-1819741029](https://lifehacker.com/book-hotels-at-a-discount-for-the-day-with-dayuse-1819741029)
+> 原文：<https://lifehacker.com/book-hotels-at-a-discount-for-the-day-with-dayuse-1819741029>
 
 每当我去度假，我都喜欢乘坐晚上起飞的航班，这样我就可以享受在那里的每一分钟。这很好，除了大多数酒店要求你在 11 点前(或者幸运的话在下午 1 点前)退房，然后你必须收拾好行李，在没有家的情况下去镇上。有时候这没什么大不了的，有时候你想在最后一天去浮潜，或者去远足，在你跳上飞机和陌生人在一起之前，你真的需要洗个澡。然后，你要么需要新的计划，要么找个地方睡几个小时。回车，T3，T5。 
 

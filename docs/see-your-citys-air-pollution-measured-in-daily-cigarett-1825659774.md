@@ -1,6 +1,6 @@
 # 查看你所在城市的空气污染，以每日吸烟量衡量
 
-> 原文:[https://life hacker . com/see-your-cities-air-pollution-measured-in-daily-cigarett-1825659774](https://lifehacker.com/see-your-citys-air-pollution-measured-in-daily-cigarett-1825659774)
+> 原文：<https://lifehacker.com/see-your-citys-air-pollution-measured-in-daily-cigarett-1825659774>
 
 吸烟是毒害肺部的最广为人知的方式之一，但是传统的空气污染也起到了一定的作用。一个叫屎我抽烟的 app！(免费上 [iOS](https://itunes.apple.com/us/app/s-i-smoke/id1365605567?mt=8) 和 [Android](https://play.google.com/store/apps/details?id=com.shitismoke.app) )把你当地的污染用你能理解的术语说出来。
 

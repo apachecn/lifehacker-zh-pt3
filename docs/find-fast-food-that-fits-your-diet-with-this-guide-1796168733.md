@@ -1,6 +1,6 @@
 # 根据这个指南找到适合你饮食的快餐
 
-> 原文:[https://life hacker . com/find-fast-food-fit-your ' s diet with this-guide-1796168733](https://lifehacker.com/find-fast-food-that-fits-your-diet-with-this-guide-1796168733)
+> 原文：<https://lifehacker.com/find-fast-food-that-fits-your-diet-with-this-guide-1796168733>
 
 即使你计划吃得健康，也很容易在快餐店结束，因为这是周围唯一的东西，而且你很饿，该死。但是麦当劳有没有给素食者吃的东西呢？星巴克有什么低碳水化合物的东西吗？ [这张小抄](http://www.netquote.com/health-insurance/health-insurance-articles/fast-food-fits) 可以帮忙。
 

@@ -1,6 +1,6 @@
 # 指数基金如何让投资变得更容易、更不可怕
 
-> 原文:[https://life hacker . com/how-index-funds-make-investing-easy-less-risk-1751260409](https://lifehacker.com/how-index-funds-make-investing-easier-and-less-scary-1751260409)
+> 原文：<https://lifehacker.com/how-index-funds-make-investing-easier-and-less-scary-1751260409>
 
 一旦我终于还清了我的债务，并且大体上让我的财务生活井然有序，我就准备开始投资了。我读到的一切都告诉我去看看指数基金，所以我就去了。毫无疑问，对于新手和经验丰富的投资者来说，它们是非常棒的工具，具有一些优势。
 

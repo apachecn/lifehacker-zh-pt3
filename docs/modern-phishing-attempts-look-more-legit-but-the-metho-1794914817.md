@@ -1,6 +1,6 @@
 # 现代网络钓鱼企图看起来更加合法，但方法并没有太大变化
 
-> 原文:[https://life hacker . com/modern-phishing-attempts-look-more-legit-but-the-metho-1794914817](https://lifehacker.com/modern-phishing-attempts-look-more-legit-but-the-metho-1794914817)
+> 原文：<https://lifehacker.com/modern-phishing-attempts-look-more-legit-but-the-metho-1794914817>
 
 你收到一封新邮件，看起来像是来自朋友、公司、政府官员，甚至是家庭成员。那封邮件里只有一个链接。你点击它，因为，你当然会点击。您将进入一个登录页面，在这里输入您的凭证。然后，该网站被证明是假的，并收集您的密码。恭喜你，你被钓鱼了。
 

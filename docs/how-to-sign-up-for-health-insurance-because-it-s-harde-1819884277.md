@@ -1,6 +1,6 @@
 # 今年如何报名医保
 
-> 原文:[https://life hacker . com/how-to-sign-up-for-health-insurance-cause-s-harde-1819884277](https://lifehacker.com/how-to-sign-up-for-health-insurance-because-it-s-harde-1819884277)
+> 原文：<https://lifehacker.com/how-to-sign-up-for-health-insurance-because-it-s-harde-1819884277>
 
 信不信由你，患者保护与平价医疗法案仍然有效。从 11 月 1 日开始，大多数没有工作保险的人可以以每月 100 美元或更少的价格从市场上购买一个计划(所谓的“奥巴马医保计划”)。不过，今年注册变得更加棘手，所以我们整理了一份指南，列出了最重要的知识。
 

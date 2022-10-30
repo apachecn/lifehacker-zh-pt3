@@ -1,6 +1,6 @@
 # 第一次怎么说脏话
 
-> 原文:[https://life hacker . com/how-to-talk-dirty-for-first-1820201307](https://lifehacker.com/how-to-talk-dirty-for-the-first-time-1820201307)
+> 原文：<https://lifehacker.com/how-to-talk-dirty-for-the-first-time-1820201307>
 
 说脏话本身就很性感，而且对你的性生活也有好处。这有助于你更好地把握当下，更好地适应你正在经历的事情。它帮助你建立更多的性自信。这有助于你的伴侣了解你喜欢什么，并降低他们的表现焦虑。这也是一种玩幻想的低压力方式。下面给初学者讲讲脏话的方法。
 

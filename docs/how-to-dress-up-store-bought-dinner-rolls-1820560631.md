@@ -1,6 +1,6 @@
 # 如何打扮商店购买的晚餐卷
 
-> 原文:[https://life hacker . com/how-to-dress-up-store-buyed-dinner-rolls-1820560631](https://lifehacker.com/how-to-dress-up-store-bought-dinner-rolls-1820560631)
+> 原文：<https://lifehacker.com/how-to-dress-up-store-bought-dinner-rolls-1820560631>
 
 感恩节和其他节日是花几个小时在厨房里从零开始做一顿大餐的绝佳借口。但是，如果你想为自己留出一点时间——睡个懒觉，看看狗展，或者只是在一天中的几个幸福时刻不做饭——晚餐面包卷是最理想的选择。
 

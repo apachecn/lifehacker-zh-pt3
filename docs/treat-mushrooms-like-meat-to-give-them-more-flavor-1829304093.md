@@ -1,6 +1,6 @@
 # 像对待肉一样对待蘑菇，让它们更有味道
 
-> 原文:[https://life hacker . com/treat-mushrooms-like-meat-to-give-them-more-flavor-1829304093](https://lifehacker.com/treat-mushrooms-like-meat-to-give-them-more-flavor-1829304093)
+> 原文：<https://lifehacker.com/treat-mushrooms-like-meat-to-give-them-more-flavor-1829304093>
 
 蘑菇是肉质和味道最丰富的蔬菜——这就是为什么蘑菇非常适合腌泡汁的原因。而且，与肉类不同，这种海绵状的“蘑菇”能快速吸收 flfavor*，这对没有耐心的人来说总是个好消息。*
 

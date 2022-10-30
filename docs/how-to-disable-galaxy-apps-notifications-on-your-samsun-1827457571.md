@@ -1,6 +1,6 @@
 # 如何禁用三星手机上的“Galaxy Apps”通知
 
-> 原文:[https://life hacker . com/how-to-disable-galaxy-apps-notifications-on-your-samsun-1827457571](https://lifehacker.com/how-to-disable-galaxy-apps-notifications-on-your-samsun-1827457571)
+> 原文：<https://lifehacker.com/how-to-disable-galaxy-apps-notifications-on-your-samsun-1827457571>
 
 大多数 Galaxy 用户可能都知道，三星手机自带应用商店 Galaxy Apps，其中包括新字体和 Edge 设置等项目，以及其他应用和游戏。当你想定制你的手机时，它可以是一个很好的资源，如果你不小心打开了来自商店的通知，它会是一个很大的烦恼。
 

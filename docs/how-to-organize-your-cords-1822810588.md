@@ -1,6 +1,6 @@
 # 如何整理你的绳索
 
-> 原文:[https://kotaku.com/how-to-organize-your-cords-1822810588](https://kotaku.com/how-to-organize-your-cords-1822810588)
+> 原文：<https://kotaku.com/how-to-organize-your-cords-1822810588>
 
 我打赌你有几根绳子。你可能有太多电线，以至于它们会在你的电视柜后面或桌子下面突然冒出来。玩电子游戏的时间长短不限，你会学到各种各样不知道该怎么用的线。只需几美元，你就可以控制这种混乱，并对隐藏在你的电视或显示器后面的赛博朋克蔓延有所了解。
 

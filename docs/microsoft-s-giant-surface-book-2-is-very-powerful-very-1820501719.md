@@ -1,6 +1,6 @@
 # 微软的巨型 Surface Book 2 非常强大，速度非常快，非常装逼
 
-> 原文:[https://gizmodo . com/Microsoft-s-giant-surface-book-2-is-very-powerful-very-1820501719](https://gizmodo.com/microsoft-s-giant-surface-book-2-is-very-powerful-very-1820501719)
+> 原文：<https://gizmodo.com/microsoft-s-giant-surface-book-2-is-very-powerful-very-1820501719>
 
 上班时在微软新的 15 英寸 [Surface Book 2](https://www.microsoft.com/en-us/surface/devices/surface-book-2/tech-specs) 上打字，我无法摆脱这东西不适合我的感觉。不要误会我的意思，这是一款功能强大的笔记本电脑，它很漂亮，它的大屏幕提供的工作空间让我完全忘记了我没有坐在我常用的 34 英寸超宽显示屏的办公桌前。所以可以肯定的是，对我来说,*就是这样，一辆非常昂贵的跑车肯定会在城市交通中坐在一辆黄色出租车旁边几个小时。但是我需要这个东西吗？我应该花 3300 美元买它吗？当然不是。*
 

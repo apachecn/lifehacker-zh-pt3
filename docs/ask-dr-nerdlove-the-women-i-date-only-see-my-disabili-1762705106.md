@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我约会的女人只看到我的残疾
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-the-women-I-date-only-see-my-disabili-1762705106](https://kotaku.com/ask-dr-nerdlove-the-women-i-date-only-see-my-disabili-1762705106)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-the-women-i-date-only-see-my-disabili-1762705106>
 
 你好，互联网！欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个提供生活、宇宙和一切答案的约会建议专栏。
 

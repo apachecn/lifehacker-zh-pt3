@@ -1,6 +1,6 @@
 # 如何在 iOS 11 中激活“夜班”和苹果的秘密“反转颜色”模式
 
-> 原文:[https://life hacker . com/how-to-activate-night-shift-and-apple-secret-invert-1818590859](https://lifehacker.com/how-to-activate-night-shift-and-apples-secret-invert-1818590859)
+> 原文：<https://lifehacker.com/how-to-activate-night-shift-and-apples-secret-invert-1818590859>
 
 在 iOS 11 中，苹果改变了你在手机上激活夜间模式的方式。该公司最初在 iOS 9.3 中引入夜班，是为了让屏幕在晚上对眼睛更容易一些(并帮助你在这个过程中获得一些睡眠)。
 

@@ -1,6 +1,6 @@
 # 单身人士如何避免在假期破产
 
-> 原文:[https://life hacker . com/how-single-people-can-avoid-going-broken-over-the-holida-1821055327](https://lifehacker.com/how-single-people-can-avoid-going-broke-over-the-holida-1821055327)
+> 原文：<https://lifehacker.com/how-single-people-can-avoid-going-broke-over-the-holida-1821055327>
 
 假期对每个人来说都是一段昂贵的时光——假期旅行、礼物、食物、酒和节日服装甚至可以让最节俭的人倾家荡产。但是，为《T0》[*《华盛顿邮报》*](https://www.washingtonpost.com/news/soloish/wp/2017/12/04/december-is-an-expensive-time-to-be-single/?utm_term=.13b821e654cb) 撰稿的凯里·珀塞尔说，对于单身人士来说，12 月份在经济上尤其残酷。这在很大程度上是因为单身人士通常独自承担生活费用，而不是与伴侣分摊，这显然减少了他们在假期的可支配收入。但是，正如珀塞尔指出的那样，这也是因为单身者和有伴侣者的期望不同。
 

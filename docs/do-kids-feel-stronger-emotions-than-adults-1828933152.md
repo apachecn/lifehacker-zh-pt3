@@ -1,6 +1,6 @@
 # 孩子比成人有更强烈的情感吗？
 
-> 原文:[https://gizmodo . com/do-kids-feel-strong-emotions-1828933152](https://gizmodo.com/do-kids-feel-stronger-emotions-than-adults-1828933152)
+> 原文：<https://gizmodo.com/do-kids-feel-stronger-emotions-than-adults-1828933152>
 
 在孩子面前很容易自鸣得意。你可能无法做到这一切——事实上，你可能会在职业和心理上迅速崩溃——但至少你可以洒一些苹果汁，而不会伤心欲绝地哭上六个小时。相对而言，可怕的事情总是发生在你身上，而你并不为此感到害怕，或者如果你害怕，你会悄悄地这样做，而不是在健身房/办公室/商业街的大力水手店等地方。但是你真的感觉不到了吗，或者你只是变得更善于欺骗别人和/或自己了？
 

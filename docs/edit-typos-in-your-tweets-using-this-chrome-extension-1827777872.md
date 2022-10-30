@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展编辑你推文中的错别字
 
-> 原文:[https://life hacker . com/edit-typos-in-your-tweets-using-this-chrome-extension-1827777872](https://lifehacker.com/edit-typos-in-your-tweets-using-this-chrome-extension-1827777872)
+> 原文：<https://lifehacker.com/edit-typos-in-your-tweets-using-this-chrome-extension-1827777872>
 
 对于一个以写作为生的人来说，我的推特上有很多令人尴尬的错别字。我通常会在点击帖子后的第二分钟注意到它们，并立即面临决定“我是删除这条推文，假装它从未发生过，还是继续打错字？”
 

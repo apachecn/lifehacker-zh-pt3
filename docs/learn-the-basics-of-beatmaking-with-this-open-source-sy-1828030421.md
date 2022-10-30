@@ -1,6 +1,6 @@
 # 使用这个开源合成器应用程序学习节拍制作的基础知识
 
-> 原文:[https://life hacker . com/learn-the-basics-of-beat-making with this-open-source-sy-1828030421](https://lifehacker.com/learn-the-basics-of-beatmaking-with-this-open-source-sy-1828030421)
+> 原文：<https://lifehacker.com/learn-the-basics-of-beatmaking-with-this-open-source-sy-1828030421>
 
 任何科幻游戏或电影最精彩的部分之一是那些不祥的音调，暗示着一场 [对话](https://www.youtube.com/watch?v=5zWuFjlDBaE) 或 [发现](https://youtu.be/1KdEamxyaEU?t=1m54s) 即将向南——这是电影配乐的精髓部分，为体验增添了许多气氛( [和张力](https://www.youtube.com/watch?v=4ctK1aoWuqY) )。现在，由于一个开源的 iOS 应用程序，你可以制作自己的合成器声音，并自学音乐制作的基础知识。
 

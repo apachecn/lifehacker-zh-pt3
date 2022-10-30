@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的特色包
 
-> 原文:[https://life hacker . com/most-popular-featured-bags-of-2016-1790255662](https://lifehacker.com/most-popular-featured-bags-of-2016-1790255662)
+> 原文：<https://lifehacker.com/most-popular-featured-bags-of-2016-1790255662>
 
 每周我们都会偷看一下别人的包、公文包和背包。让我们来回顾一下今年最受欢迎的背包。
 

@@ -1,6 +1,6 @@
 # 用筷子和碗做一个双层锅
 
-> 原文:[https://life hacker . com/make-a double-boiler-using-a-chicken-a-bowl-1825718549](https://lifehacker.com/make-a-double-boiler-using-a-chopstick-and-a-bowl-1825718549)
+> 原文：<https://lifehacker.com/make-a-double-boiler-using-a-chopstick-and-a-bowl-1825718549>
 
 当你温和地加热食物，如巧克力、蛋羹或某些酱料时，双锅装置是至关重要的，但我没有足够的温和加热来买一个，你可能也没有。幸运的是，你可以用你已经有的东西做一个；你只需要一个锅，一个碗，一根筷子或木勺。
 

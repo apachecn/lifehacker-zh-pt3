@@ -1,6 +1,6 @@
 # 如果你有食品加工机，你可以做这个西瓜冰冻果子露
 
-> 原文:[https://life hacker . com/if-you-a-food-processor-you-can-make-this-water-1828624903](https://lifehacker.com/if-you-have-a-food-processor-you-can-make-this-waterme-1828624903)
+> 原文：<https://lifehacker.com/if-you-have-a-food-processor-you-can-make-this-waterme-1828624903>
 
 我唯一后悔买的厨房用具是冰淇淋机。它是那种有一个可冷冻的旋转容器的，据说可以把你的作品搅拌到完美，我花了 50 美元买了它。当然，从技术上来说，它“起作用了”，但有一次我把碗放在冰箱里整整一周*，当我摇晃它的时候，仍然能听到液体四处飞溅的声音。*
 

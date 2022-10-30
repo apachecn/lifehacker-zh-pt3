@@ -1,6 +1,6 @@
 # 如果你放弃你所热爱的一切，你也可以拥有一个自我清洁的家
 
-> 原文:[https://life hacker . com/you-too-could-a-self-cleaning-home-if-you-give-up-1797070156](https://lifehacker.com/you-too-could-have-a-self-cleaning-home-if-you-give-up-1797070156)
+> 原文：<https://lifehacker.com/you-too-could-have-a-self-cleaning-home-if-you-give-up-1797070156>
 
 《纽约时报》的一篇迟来的讣告向发明家弗朗西斯·加布致敬，她设计、建造并居住在“世界上唯一的自我清洁房屋”中的 T2 在一个满是“亲爱的，我让孩子们变小了”的奇妙装置的家里，加布看起来是一个讨人喜欢的、有独创性的怪人。她的大想法是:把普通家庭变成一个巨大的洗碗机。
 

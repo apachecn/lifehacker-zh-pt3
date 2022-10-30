@@ -1,6 +1,6 @@
 # 最常见的俯卧撑错误及其纠正方法
 
-> 原文:[https://life hacker . com/the-most-common-push-up-errors-and-how-to-fix-them-1785807244](https://lifehacker.com/the-most-common-push-up-mistakes-and-how-to-fix-them-1785807244)
+> 原文：<https://lifehacker.com/the-most-common-push-up-mistakes-and-how-to-fix-them-1785807244>
 
 俯卧撑看起来很容易。理论上每个人都知道如何去做，但是当被要求去做的时候，大多数人都会犯各种各样的小错误，这些小错误会导致问题和伤害。这些细微的错误很常见，一旦你意识到了就很容易改正。
 

@@ -1,6 +1,6 @@
 # 如何加速你的旧电脑
 
-> 原文:[https://life hacker . com/how-to-speed-your-old-PC-1821481732](https://lifehacker.com/how-to-speed-up-your-old-pc-1821481732)
+> 原文：<https://lifehacker.com/how-to-speed-up-your-old-pc-1821481732>
 
 圣诞节结束了，又该开始给自己买了。考虑给自己买一份礼物，这份礼物会在未来几年里一直送下去:升级的电脑部件。这些都是小升级，你可以自己安装(不需要维修店)，将节省你这么多的时间，当你写作，购物，或只是等待你的老化电脑启动，你会想为什么你花了这么长时间在你的电脑上旋转磁盘。
 

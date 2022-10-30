@@ -1,6 +1,6 @@
 # 如何在飓风中保持安全
 
-> 原文:[https://life hacker . com/how-to-stay-safe-in-a-hurricane-1798391969](https://lifehacker.com/how-to-stay-safe-during-a-hurricane-1798391969)
+> 原文：<https://lifehacker.com/how-to-stay-safe-during-a-hurricane-1798391969>
 
 飓风哈维正横扫墨西哥湾，并计划在德克萨斯州登陆。它甚至可能是近 12 年来第一次袭击美国那部分地区的 3 级飓风 。这里是你需要知道的在暴风雨中保持安全的事情。
 

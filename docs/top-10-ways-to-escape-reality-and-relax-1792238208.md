@@ -1,6 +1,6 @@
 # 逃避现实和放松的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-escape-reality-and-relax-1792238208](https://lifehacker.com/top-10-ways-to-escape-reality-and-relax-1792238208)
+> 原文：<https://lifehacker.com/top-10-ways-to-escape-reality-and-relax-1792238208>
 
 尽管一切都在继续，这个世界还是在继续旋转，如果可以的话，退后一步，远离工作压力、铺天盖地的新闻和责任压力，这对你的理智是至关重要的。以下是逃避现实的十大方法。
 

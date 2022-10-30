@@ -1,6 +1,6 @@
 # 情人节的真实历史
 
-> 原文:[https://life hacker . com/the-real-history-of-valentines-day-1822975633](https://lifehacker.com/the-real-history-of-valentines-day-1822975633)
+> 原文：<https://lifehacker.com/the-real-history-of-valentines-day-1822975633>
 
 当你想到情人节时，你可能会想到鲜花、巧克力和以吻封缄的纸条——而不是用死去的动物鞭打女人或殉难。但事实证明，这个甜美可爱的商业节日源于异教仪式和老式的基督教重塑。哦，还有卖贺卡给你。
 

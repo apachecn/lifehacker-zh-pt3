@@ -1,6 +1,6 @@
 # 如何报告失踪人员
 
-> 原文:[https://life hacker . com/how-to-report-a-missing-person-1827291793](https://lifehacker.com/how-to-report-a-missing-person-1827291793)
+> 原文：<https://lifehacker.com/how-to-report-a-missing-person-1827291793>
 
 如果你关心的人失踪了，你有责任帮助当局，向他们提交报告，提供重要的细节，并随着情况的发展向他们提供最新信息。这是你应该知道的信息，但希望永远不需要。
 

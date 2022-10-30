@@ -1,6 +1,6 @@
 # 如何让叉烧喜欢上中国的烧烤大师
 
-> 原文:[https://the take out . com/recipe-char-siu-Chinese-烤肉-猪肉-1829157660](https://thetakeout.com/recipe-char-siu-chinese-barbecue-pork-1829157660)
+> 原文：<https://thetakeout.com/recipe-char-siu-chinese-barbecue-pork-1829157660>
 
 上周末，我的广东亲家来镇上宠坏了我们蹒跚学步的孩子，并为我们做了美味的中国菜。话题转到了他们试图在家里忠实复制的最新餐厅菜肴:港式叉烧，这是烧烤店的主要小吃，俗称“叉烧肉”
 

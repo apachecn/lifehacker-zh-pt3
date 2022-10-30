@@ -1,6 +1,6 @@
 # 来自我们读者的最好的查尔斯顿旅游建议
 
-> 原文:[https://life hacker . com/the-best-Charleston-travel-tips-from-our-readers-1827000395](https://lifehacker.com/the-best-charleston-travel-tips-from-our-readers-1827000395)
+> 原文：<https://lifehacker.com/the-best-charleston-travel-tips-from-our-readers-1827000395>
 
 [本周在《骇客你的城市](https://lifehacker.com/tell-us-your-charleston-sc-travel-tips-1826860199) 上，读者让查尔斯顿听起来真实诱人。“你知道吗，当你遇到某人的奶奶时，你会立刻成为她的孙子？说[那是查尔斯顿 rn 3279](http://lifehacker.com/1826933593#_ga=2.108288258.1212570030.1529328278-1297080755.1497980211)T7。读者 [Magnolia34](http://lifehacker.com/1826923131) 说:“我是一个移居北方的人，我从未感到不受欢迎或格格不入。我们在 [原评论线程](https://lifehacker.com/tell-us-your-charleston-sc-travel-tips-1826860199#replies) 中收集了五线谱标签下的所有最佳提示；以下是一些亮点。 
 

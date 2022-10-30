@@ -1,6 +1,6 @@
 # 不同的清炒需求用什么油最好？
 
-> 原文:[https://the take out . com/what-s-the-best-oil for-different-saute-needs-1827186268](https://thetakeout.com/what-s-the-best-oil-for-different-saute-needs-1827186268)
+> 原文：<https://thetakeout.com/what-s-the-best-oil-for-different-saute-needs-1827186268>
 
 漫步走进任何一家高端美食店，甚至是一家普通的杂货店，你会立即被各种各样的食用油选择所淹没。就我个人而言，我看了足够多的瑞秋·雷剧集，所以我总是储备着 EVOO(特级初榨橄榄油)。我通常会在我做的炒菜或亚洲风味的菜肴中加入一些芝麻油——主要是因为我真的真的很喜欢这种味道。
 

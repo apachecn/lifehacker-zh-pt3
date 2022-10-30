@@ -1,6 +1,6 @@
 # 使用蛋糕烤盘来制作小份的片状烤盘食物
 
-> 原文:[https://life hacker . com/use-a-cake-pan-to-make-small-portions-of-sheet-pan-me-1819654391](https://lifehacker.com/use-a-cake-pan-to-make-smaller-portions-of-sheet-pan-me-1819654391)
+> 原文：<https://lifehacker.com/use-a-cake-pan-to-make-smaller-portions-of-sheet-pan-me-1819654391>
 
 “薄烤盘餐”——也就是所有食材都在薄烤盘上烹制的食物——目前风靡一时。但是如果你的家庭只有几个人(或者，哦，一个人)，你就不需要那么多食物。
 

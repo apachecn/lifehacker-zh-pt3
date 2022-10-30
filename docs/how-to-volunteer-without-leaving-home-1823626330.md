@@ -1,6 +1,6 @@
 # 如何足不出户做志愿者
 
-> 原文:[https://life hacker . com/how-to-volunteer-without-home-1823626330](https://lifehacker.com/how-to-volunteer-without-leaving-home-1823626330)
+> 原文：<https://lifehacker.com/how-to-volunteer-without-leaving-home-1823626330>
 
 你想让这个世界变得更好，但你也认为自己是网络垃圾，三天没出门？(或者有正当理由不能出门？)没事！你可以在沙发上，甚至是电脑椅上帮忙。
 

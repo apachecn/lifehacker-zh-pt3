@@ -1,6 +1,6 @@
 # 如何在世界各地获得最接近美国咖啡的东西
 
-> 原文:[https://life hacker . com/how-to-get-the-close-thing to-American-coffee-around-1823887679](https://lifehacker.com/how-to-get-the-closest-thing-to-american-coffee-around-1823887679)
+> 原文：<https://lifehacker.com/how-to-get-the-closest-thing-to-american-coffee-around-1823887679>
 
 国际旅行是体验一种新文化的美好方式。虽然我几乎完全支持让自己沉浸在当地的事物中，并超越你的界限，但我对咖啡是个例外。归咎于时差或在外国无咖啡因早晨的迷失方向，但当我在国外需要颠簸时，我只想吃些接近熟悉的东西。
 

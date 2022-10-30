@@ -1,6 +1,6 @@
 # 如何玩虚拟现实游戏不吐不快
 
-> 原文:[https://life hacker . com/how-to-play-virtual-reality-games-without-barting-1793242725](https://lifehacker.com/how-to-play-virtual-reality-games-without-barfing-1793242725)
+> 原文：<https://lifehacker.com/how-to-play-virtual-reality-games-without-barfing-1793242725>
 
 虚拟现实是游戏中的下一件大事，但戴耳机会让一些人晕车。甚至我在玩的时候也经历过一点晕车，尽管我过去从未与它斗争过(还没有呕吐过)。如果你担心呕吐，你可以做一些事情来让这种体验更愉快。
 

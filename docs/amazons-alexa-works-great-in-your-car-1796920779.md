@@ -1,6 +1,6 @@
 # 亚马逊的 Alexa 在你的车上非常好用
 
-> 原文:[https://life hacker . com/amazons-Alexa-works-great-in-your-car-1796920779](https://lifehacker.com/amazons-alexa-works-great-in-your-car-1796920779)
+> 原文：<https://lifehacker.com/amazons-alexa-works-great-in-your-car-1796920779>
 
 本周是亚马逊有史以来最大的购物日，该公司 Echo 的小型版本 Dot 成为当天最畅销的商品。虽然这种设备在家庭中最常用(我把我的放在我的客厅里，所以它可以听到我在公寓里的声音)，但一位*商业内幕*记者写道，他在一个稍微不同的地方设置了他的车:。事实上，过去六个月我一直在路上使用 Alexa，发现它真的很有用，可以说比在家里更有用。
 

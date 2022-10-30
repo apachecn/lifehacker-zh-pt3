@@ -1,6 +1,6 @@
 # 为什么发光二极管烧坏得太快
 
-> 原文:[https://life hacker . com/why-LEDs-burn-out-too-fast-1826208025](https://lifehacker.com/why-leds-burn-out-too-fast-1826208025)
+> 原文：<https://lifehacker.com/why-leds-burn-out-too-fast-1826208025>
 
 你知道吗，当连接到调光开关或旧电线时，普通的 LED 灯泡会很快烧坏，比白炽灯泡还快。我当然不知道，直到我客厅里所有昂贵的发光二极管都灭了！
 

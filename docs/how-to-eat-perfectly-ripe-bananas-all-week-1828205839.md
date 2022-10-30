@@ -1,6 +1,6 @@
 # 如何在一周内吃到完全成熟的香蕉
 
-> 原文:[https://life hacker . com/how-to-eat-fully-week-1828205839](https://lifehacker.com/how-to-eat-perfectly-ripe-bananas-all-week-1828205839)
+> 原文：<https://lifehacker.com/how-to-eat-perfectly-ripe-bananas-all-week-1828205839>
 
 每个人都有自己偏爱的香蕉成熟点。我喜欢我的完全黄色，没有褐色斑点的。有些人喜欢它们长雀斑，有些怪物喜欢它们多愁善感和棕色。不管你的偏好是什么，一次买一大堆似乎总会给你留下一些不太理想的保姆。
 

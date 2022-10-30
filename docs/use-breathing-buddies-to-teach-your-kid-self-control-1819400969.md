@@ -1,6 +1,6 @@
 # 用“呼吸伙伴”来教你的孩子自我控制
 
-> 原文:[https://life hacker . com/use-breathing-buddies-to-teach-your-kid-self-control-1819400969](https://lifehacker.com/use-breathing-buddies-to-teach-your-kid-self-control-1819400969)
+> 原文：<https://lifehacker.com/use-breathing-buddies-to-teach-your-kid-self-control-1819400969>
 
 在 Lifehacker 的最新一期播客中，心理学家兼科学记者丹尼尔·戈尔曼谈到了自我控制(他称之为“认知控制”)及其作为一项我们都应该尽早学习的技能的重要性:
 

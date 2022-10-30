@@ -1,6 +1,6 @@
 # 将 iPhone X 从包装盒中取出时的正确使用技巧
 
-> 原文:[https://life hacker . com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402)
+> 原文：<https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402>
 
 [iPhone X](https://lifehacker.com/how-to-buy-an-iphone-x-this-week-1819812194) 与苹果通常的智能手机设计大相径庭，将标志性的 home 键换成了全屏显示屏和 [面部扫描前置摄像头](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) 。因此，苹果不得不改变许多用来控制设备的手势。
 

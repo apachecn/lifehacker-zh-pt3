@@ -1,6 +1,6 @@
 # 如何操纵你的孩子做你想做的事
 
-> 原文:[https://life hacker . com/how-to-operating-kids-into-do-what-you-want-1455891399](https://lifehacker.com/how-to-manipulate-kids-into-doing-what-you-want-1455891399)
+> 原文：<https://lifehacker.com/how-to-manipulate-kids-into-doing-what-you-want-1455891399>
 
 在一个理想的世界里，父母会一直耐心地养育孩子，孩子会一直合作并做出明智的选择。这不是一个理想的世界，所以当日子太长，我们的耐心太薄时，我们父母需要一些偷偷摸摸的策略来保持我们的理智。
 

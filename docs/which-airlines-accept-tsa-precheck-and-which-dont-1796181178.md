@@ -1,6 +1,6 @@
 # 哪些航空公司接受美国运输安全管理局的预检(哪些不接受)
 
-> 原文:[https://life hacker . com/which-airlines-accept-TSA-pre check-and-which-dont-1796181178](https://lifehacker.com/which-airlines-accept-tsa-precheck-and-which-dont-1796181178)
+> 原文：<https://lifehacker.com/which-airlines-accept-tsa-precheck-and-which-dont-1796181178>
 
 如果你经常乘飞机旅行，你就会知道排队等候的麻烦。这就是为什么美国运输安全管理局预检是一个救生员。我们已经在 [报道了为全球入境和美国运输安全管理局预检支付额外费用是否值得](http://lifehacker.com/tsa-pre-open-to-all-breeze-through-airport-security-fo-1567274913) ，但同样值得注意的是，并非所有航空公司都接受这种做法。
 

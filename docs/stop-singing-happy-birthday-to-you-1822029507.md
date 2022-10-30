@@ -1,6 +1,6 @@
 # 别再唱“祝你生日快乐”了
 
-> 原文:[https://life hacker . com/stop-singing-happy-to-you-1822029507](https://lifehacker.com/stop-singing-happy-birthday-to-you-1822029507)
+> 原文：<https://lifehacker.com/stop-singing-happy-birthday-to-you-1822029507>
 
 过一个好生日有三种方法:
 

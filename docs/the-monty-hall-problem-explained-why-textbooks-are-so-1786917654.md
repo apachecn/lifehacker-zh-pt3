@@ -1,6 +1,6 @@
 # 蒙蒂霍尔问题解释了，为什么教科书这么贵，还有一个小猫直播流
 
-> 原文:[https://life hacker . com/the-monty-hall-problem-explained-why-textbooks-so-1786917654](https://lifehacker.com/the-monty-hall-problem-explained-why-textbooks-are-so-1786917654)
+> 原文：<https://lifehacker.com/the-monty-hall-problem-explained-why-textbooks-are-so-1786917654>
 
 本周我们计划在全国范围内进行一次弹球主题的公路旅行，看看过去一百年中最重要的建筑，并用一些可爱的小猫来结束这一切，现在正在直播。
 

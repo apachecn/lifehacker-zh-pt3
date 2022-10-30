@@ -1,6 +1,6 @@
 # 关于睫毛膏你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-睫毛膏-1794718063](https://lifehacker.com/everything-you-need-to-know-about-mascara-1794718063)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-mascara-1794718063>
 
 寻找合适的睫毛膏时，很难知道从哪里开始。只要快速逛一逛药店，你就会看到比你一整年都用不完的睫毛膏，所以你怎么可能知道哪种睫毛膏适合你呢？我是来帮忙的，但首先，让我们从基础开始。
 

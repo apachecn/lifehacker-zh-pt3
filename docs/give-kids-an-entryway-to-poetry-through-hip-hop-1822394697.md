@@ -1,6 +1,6 @@
 # 通过嘻哈音乐给孩子们一个接触诗歌的入口
 
-> 原文:[https://life hacker . com/give-kids-an-entry way-to-poem-through-hip-hop-1822394697](https://lifehacker.com/give-kids-an-entryway-to-poetry-through-hip-hop-1822394697)
+> 原文：<https://lifehacker.com/give-kids-an-entryway-to-poetry-through-hip-hop-1822394697>
 
 为什么现在的年轻人不喜欢莎士比亚？年轻的成年小说家杰森·雷诺兹与特雷弗·诺亚 分享了一些关于 [*每日秀的想法，明明白白地说，“年轻人对无聊过敏。”他并不是说莎士比亚很无聊——这家伙已经死了 400 多年了，然而他的戏剧仍然到处可见——但是教授莎士比亚的方式可能相当单调。他建议老师们使用孩子们已经熟悉的嘻哈音乐作为文学的入门途径。*](http://www.cc.com/video-clips/avk8pe/the-daily-show-with-trevor-noah-jason-reynolds---serving-young-readers-with--long-way-down-)
 

@@ -1,6 +1,6 @@
 # 我要把我的性感掀背车卖了，换一辆爸爸的车！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-selling-my-hot-hatchback-for-a-dad mobile-what-car-s-1793803865](https://jalopnik.com/im-selling-my-hot-hatchback-for-a-dadmobile-what-car-s-1793803865)
+> 原文：<https://jalopnik.com/im-selling-my-hot-hatchback-for-a-dadmobile-what-car-s-1793803865>
 
 贾斯汀要生双胞胎了！这很棒，但他的大众 GTI 不足以运送孩子和其他东西。他需要一辆能容纳他不断增长的家庭的车，希望还能有点乐趣。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 我想要一辆不会让我贬值的好车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-want-a-nice-car-that-won-kill-me with ability-1828050857](https://jalopnik.com/i-want-a-nice-car-that-wont-kill-me-with-depreciation-1828050857)
+> 原文：<https://jalopnik.com/i-want-a-nice-car-that-wont-kill-me-with-depreciation-1828050857>
 
 杰夫有一辆当代 [宝马 M3](https://jalopnik.com/tag/bmw-m3) ，作为新房主，这对他来说并不是超级实用。他想要在恶劣天气下更有能力的东西。他喜欢豪华汽车，但他不喜欢被折旧费用淹没。他应该买什么车？
 

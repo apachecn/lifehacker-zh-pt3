@@ -1,6 +1,6 @@
 # 它会腐烂吗？完整的小鸟
 
-> 原文:[https://life hacker . com/will-it-sous-vide-whole-tiny-birds-1791673837](https://lifehacker.com/will-it-sous-vide-whole-tiny-birds-1791673837)
+> 原文：<https://lifehacker.com/will-it-sous-vide-whole-tiny-birds-1791673837>
 
 大家好，欢迎回到 [*的又一期内容丰富的节目，它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide#_ga=1.149509310.949419976.1446553382) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

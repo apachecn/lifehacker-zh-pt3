@@ -1,6 +1,6 @@
 # 全白色的垂直工作空间
 
-> 原文:[https://life hacker . com/the-all-white-vertical-workspace-1762954486](https://lifehacker.com/the-all-white-vertical-workspace-1762954486)
+> 原文：<https://lifehacker.com/the-all-white-vertical-workspace-1762954486>
 
 我们已经看到了令人敬畏的单色工作空间，但如果那太麻烦，你仍然可以在像这样的空间中欣赏简单。读者看看下面更多的照片。
 

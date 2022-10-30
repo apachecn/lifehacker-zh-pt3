@@ -1,6 +1,6 @@
 # 如何将 DVD 翻录到电脑上
 
-> 原文:[https://life hacker . com/how-to-rip-a-DVD-to-your-computer-5809765](https://lifehacker.com/how-to-rip-a-dvd-to-your-computer-5809765)
+> 原文：<https://lifehacker.com/how-to-rip-a-dvd-to-your-computer-5809765>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-F_dw0NTVZiQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-F_dw0NTVZiQ&start=0) 
 

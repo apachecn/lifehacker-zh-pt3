@@ -1,6 +1,6 @@
 # 关于谷歌的 Pixel 2 和 Pixel 2 XL 上的防水应该知道什么
 
-> 原文:[https://life hacker . com/what-to-know-the-know-about-the-hydrophone-on-Google-s-pixel-1820644451](https://lifehacker.com/what-to-know-about-the-waterproofing-on-google-s-pixel-1820644451)
+> 原文：<https://lifehacker.com/what-to-know-about-the-waterproofing-on-google-s-pixel-1820644451>
 
 你的新智能手机可能缺少一个耳机插孔，但它可能有一个很酷的新功能来弥补它:防水。谷歌的 Pixel 2 和 Pixel 2 XL 智能手机是搜索引擎巨头的最新智能手机，它放弃了 3.5 毫米的插孔(提高了防水工作的效率)，转而支持防尘和防水。但是，防尘防水设备的分类方法不止一种。以下是如何在不使用一桶沙子和一根橡胶软管进行测试的情况下，确定你的新智能手机的耐用性。
 

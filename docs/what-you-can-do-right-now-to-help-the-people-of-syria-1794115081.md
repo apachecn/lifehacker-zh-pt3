@@ -1,6 +1,6 @@
 # 你现在能做什么来帮助叙利亚人民
 
-> 原文:[https://life hacker . com/what-you-can-do-now-to-help-the-people-of-Syria-1794115081](https://lifehacker.com/what-you-can-do-right-now-to-help-the-people-of-syria-1794115081)
+> 原文：<https://lifehacker.com/what-you-can-do-right-now-to-help-the-people-of-syria-1794115081>
 
 仅这一周，叙利亚就有[被炸](https://www.washingtonpost.com/world/national-security/trump-weighing-military-options-following-chemical-weapons-attack-in-syria/2017/04/06/0c59603a-1ae8-11e7-9887-1a5314b56a08_story.html) 的人。在经历了 [年的恐怖](http://www.bbc.com/news/world-middle-east-26116868) 后，苦难儿童的画面连 [都通过](http://www.thedailybeast.com/articles/2017/04/07/trump-just-discovered-the-slaughter-of-syria-s-beautiful-babies.html) 传到了我们总统的 [冷心](http://www.telegraph.co.uk/news/worldnews/donald-trump/12147515/After-tomorrow-Donald-Trump-could-be-unstoppable.html) 。如果你也有同样的感觉，这里有一些你可以帮忙的事情。
 

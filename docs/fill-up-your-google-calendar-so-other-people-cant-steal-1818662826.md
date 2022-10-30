@@ -1,6 +1,6 @@
 # 填满你的谷歌日历，这样别人就不能偷走你的时间了
 
-> 原文:[https://life hacker . com/fill-up-your-Google-calendar-so-other-people-cant-steal-1818662826](https://lifehacker.com/fill-up-your-google-calendar-so-other-people-cant-steal-1818662826)
+> 原文：<https://lifehacker.com/fill-up-your-google-calendar-so-other-people-cant-steal-1818662826>
 
 啊，一本空日历。所有的空闲时间和可能性，所有你要做的事情——直到你的同事*看到*空闲时间，用会议和义务填满它。在这种情况再次发生之前，你必须采取守势。
 

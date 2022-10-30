@@ -1,6 +1,6 @@
 # 当团队合作扼杀了个人创造力时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-team-stifts-individual-creativity-1787893800](https://lifehacker.com/what-to-do-when-teamwork-stifles-individual-creativity-1787893800)
+> 原文：<https://lifehacker.com/what-to-do-when-teamwork-stifles-individual-creativity-1787893800>
 
 如果你寻找关于创造性思维的建议，你会发现很多关于如何变得更有创造力的建议，但是很少有关于如何避免阻碍他人创造力的建议。这是为什么呢？
 

@@ -1,6 +1,6 @@
 # 什么时候让你的孩子放弃(什么时候不放弃)
 
-> 原文:[https://life hacker . com/when-to-let-your-kid-quit-and-when-not-to 1821104935](https://lifehacker.com/when-to-let-your-kid-quit-and-when-not-to-1821104935)
+> 原文：<https://lifehacker.com/when-to-let-your-kid-quit-and-when-not-to-1821104935>
 
 这个星期，只练了两次，我 11 岁的儿子就退出了篮球。赛季前，他真的很兴奋能打球(考虑到他三年来的记录是 0 胜 27 负，这是很了不起的)，所以我付了钱，要了他的球衣。
 

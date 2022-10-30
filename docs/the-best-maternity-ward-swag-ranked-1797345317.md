@@ -1,6 +1,6 @@
 # 最佳产科病房赠品，排名
 
-> 原文:[https://life hacker . com/the-best-产科病房-swag-ranked-1797345317](https://lifehacker.com/the-best-maternity-ward-swag-ranked-1797345317)
+> 原文：<https://lifehacker.com/the-best-maternity-ward-swag-ranked-1797345317>
 
 恭喜你，你刚刚有了一个宝宝！当你适应与一个无休止地吃、睡、哭、拉的小生命在一起的生活时，你需要一些增援。幸运的是，你的医院可能会为你提供保险。
 

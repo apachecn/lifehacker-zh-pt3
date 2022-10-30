@@ -1,6 +1,6 @@
 # 把你的夏日蓝莓变成香甜可口的烧烤酱
 
-> 原文:[https://life hacker . com/turn-your-summer-blueberry-bounty to-a-sweet-and-savo-1796561428](https://lifehacker.com/turn-your-summer-blueberry-bounty-into-a-sweet-and-savo-1796561428)
+> 原文：<https://lifehacker.com/turn-your-summer-blueberry-bounty-into-a-sweet-and-savo-1796561428>
 
 欢迎回到周日营养！上周，我们的时光倒流之旅的烹饪高潮带来了 [美味可口的](https://skillet.lifehacker.com/make-homemade-dunkaroos-and-relive-the-1990s-1796396955) ，以及几十个不高兴的牙医。让我们回到现在。美国最大的烧烤假期就在这里，你需要一个敲钟人。你可以坚持吃同样的汉堡和热狗，或者你可以尝试一些新的东西。借来的东西。蓝色的东西。7 月 5 日是我的家乡马萨诸塞州蓝莓季节的正式开始，但是从三月份开始我们就被国内和进口的蓝莓淹没了。我吃了很多松饼，无数的松饼和很多的馅饼，但是头韵已经够多了。事情是这样的:排骨很好，很容易，很难弄糟，*和*现在在很多地方都非常便宜。
 

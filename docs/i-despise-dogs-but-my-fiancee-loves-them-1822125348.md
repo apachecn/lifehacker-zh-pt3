@@ -1,6 +1,6 @@
 # 我讨厌狗，但我的未婚妻喜欢它们
 
-> 原文:[https://life hacker . com/I-鄙视狗-但我的未婚妻-爱他们-1822125348](https://lifehacker.com/i-despise-dogs-but-my-fiancee-loves-them-1822125348)
+> 原文：<https://lifehacker.com/i-despise-dogs-but-my-fiancee-loves-them-1822125348>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love#_ga=2.269169905.1295021153.1516057126-819016074.1513967708) 。
 

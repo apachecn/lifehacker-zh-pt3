@@ -1,6 +1,6 @@
 # 使用新的在线工具测量和抵消您的碳足迹
 
-> 原文:[https://life hacker . com/measure-and-offset-your ' s carbon-footprint-with-a-new-onl-1797648355](https://lifehacker.com/measure-and-offset-your-carbon-footprint-with-a-new-onl-1797648355)
+> 原文：<https://lifehacker.com/measure-and-offset-your-carbon-footprint-with-a-new-onl-1797648355>
 
 气候变化是可怕的，尤其是当 [关于我们星球可怕的未来](http://nymag.com/daily/intelligencer/2017/07/climate-change-earth-too-hot-for-humans.html) 的报道与 [关于我们联邦政府*不打算做什么*](https://www.theatlantic.com/science/archive/2017/08/trump-and-the-paris-agreement-what-just-happened/536040/)*的新闻同时出现的时候。美国的市长、州长，甚至企业都已经开始行动起来，但是作为个人，你可以做很多事情来减少和抵消你对环境的影响——只要你知道这是什么。* 
 

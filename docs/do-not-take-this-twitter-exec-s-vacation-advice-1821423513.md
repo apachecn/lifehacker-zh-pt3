@@ -1,6 +1,6 @@
 # 不要接受这位 Twitter 高管的度假建议
 
-> 原文:[https://life hacker . com/do-not-take-this-Twitter-exec-s-vacation-advice-1821423513](https://lifehacker.com/do-not-take-this-twitter-exec-s-vacation-advice-1821423513)
+> 原文：<https://lifehacker.com/do-not-take-this-twitter-exec-s-vacation-advice-1821423513>
 
 随着十二月渐渐接近尾声，也许你正期待着休假去你父母家放松一下，或者在新年前度个假。
 

@@ -1,6 +1,6 @@
 # 它会腐烂吗？一份烈酒巧克力樱桃圣代
 
-> 原文:[https://life hacker . com/will-it-sous-vide-a-boozy-chocolate-cherry-sundae-1795352092](https://lifehacker.com/will-it-sous-vide-a-boozy-chocolate-cherry-sundae-1795352092)
+> 原文：<https://lifehacker.com/will-it-sous-vide-a-boozy-chocolate-cherry-sundae-1795352092>
 
 欢迎来到本周的 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏，我通常用我的沉浸式循环器在那里制作你想要我做的任何东西。
 

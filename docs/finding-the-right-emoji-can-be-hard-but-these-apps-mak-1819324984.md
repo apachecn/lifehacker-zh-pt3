@@ -1,6 +1,6 @@
 # 找到合适的表情符号可能很难，但这些应用程序让这变得很容易
 
-> 原文:[https://life hacker . com/finding-the-right-e moji-can-be-hard-but-these-apps-mak-1819324984](https://lifehacker.com/finding-the-right-emoji-can-be-hard-but-these-apps-mak-1819324984)
+> 原文：<https://lifehacker.com/finding-the-right-emoji-can-be-hard-but-these-apps-mak-1819324984>
 
 苹果公司将通过其最新更新为 iOS 添加更多的 [表情符号](https://lifehacker.com/you-can-now-buy-a-novelty-emoji-friendly-domain-1797858058) 。这意味着有更多的选择(包括饺子和馅饼等新食物)，但也意味着你必须滚动更多的表情符号才能找到你真正想要的。
 

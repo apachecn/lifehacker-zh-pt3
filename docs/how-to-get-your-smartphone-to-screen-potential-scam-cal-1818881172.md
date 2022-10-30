@@ -1,6 +1,6 @@
 # 如何让您的智能手机为您筛选潜在的诈骗电话
 
-> 原文:[https://life hacker . com/how-to-get-your-smart phone-to-screen-potential-scam-cal-1818881172](https://lifehacker.com/how-to-get-your-smartphone-to-screen-potential-scam-cal-1818881172)
+> 原文：<https://lifehacker.com/how-to-get-your-smartphone-to-screen-potential-scam-cal-1818881172>
 
 你可能不得不处理许多来自电话推销员、自动电话员和 Equifax 诈骗者[的不受欢迎的电话。但也许你也见过你的手机，当面对一组可疑的数字时，用“可能诈骗”或“潜在诈骗”这样的短语来识别来电这种垃圾邮件保护是由您的无线提供商提供的，如果您有兼容的设备和计划，您可以利用数据驱动的服务，使自己免受干扰。](https://lifehacker.com/don-t-get-duped-by-phone-scammers-posing-as-equifax-1814337415)
 

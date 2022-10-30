@@ -1,6 +1,6 @@
 # 如何制作最简单的真空干酪
 
-> 原文:[https://life hacker . com/will-it-sous-vide-fresh-made-cheese-1797317672](https://lifehacker.com/will-it-sous-vide-fresh-homemade-cheese-1797317672)
+> 原文：<https://lifehacker.com/will-it-sous-vide-fresh-homemade-cheese-1797317672>
 
 新鲜的奶酪并不难做——当你做的时候，人们总是会留下深刻的印象——但它确实需要一点观察、搅拌和培育。所有种类的奶酪都可以简单地通过加热一些乳制品，加入一些酸来制造凝乳，然后过滤掉乳清(嘿？)，但是人们可能会对加热(和潜在的燃烧)乳制品有点不以为然。制作真空奶酪消除了这些顾虑，让它变成了一项几乎没有压力的活动。
 

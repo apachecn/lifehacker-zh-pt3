@@ -1,6 +1,6 @@
 # 游客应该去你所在城市的哪些地方而不是连锁餐厅？
 
-> 原文:[https://life hacker . com/what-local-spots-in-your-city-should-visitors-go-ins-1797041608](https://lifehacker.com/what-local-spots-in-your-city-should-visitors-go-to-ins-1797041608)
+> 原文：<https://lifehacker.com/what-local-spots-in-your-city-should-visitors-go-to-ins-1797041608>
 
 如果你生活在一个吸引源源不断游客的城市，你已经知道(并侧目)他们倾向于去的连锁餐厅，即使那里有非常美味的当地餐厅可供他们选择——例如，纽约的外地游客成群结队地去 [时代广场橄榄花园](https://www.reddit.com/r/AskReddit/comments/6nod61/redditors_who_have_eaten_at_the_times_square/) 吃意大利美食，而不是像 [帕尔马](https://www.parmnyc.com/) 这样同样适合家庭且美味的餐厅。那么，到你的城市的游客应该在当地的什么地方吃饭，而不是连锁餐厅呢？
 

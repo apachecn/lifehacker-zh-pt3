@@ -1,6 +1,6 @@
 # 成年后，你仍然可以流利地使用另一种语言
 
-> 原文:[https://life hacker . com/you-can-still-be-fluent in-a-an-a-1826143526](https://lifehacker.com/you-can-still-become-fluent-in-another-language-as-an-a-1826143526)
+> 原文：<https://lifehacker.com/you-can-still-become-fluent-in-another-language-as-an-a-1826143526>
 
 有一个古老的神话说，成年人不能流利地使用第二语言。最近，媒体指出一项新的研究似乎也提出了同样的建议，称流利的年龄界限在 18 岁左右。但事实并非如此。
 

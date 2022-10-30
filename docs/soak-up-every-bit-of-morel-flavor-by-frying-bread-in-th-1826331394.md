@@ -1,6 +1,6 @@
 # 用剩下的黄油煎面包，吸收每一点羊肚菌的味道
 
-> 原文:[https://life hacker . com/soak-up-every-bit-of-morel-flavor-by-油炸面包-th-1826331394](https://lifehacker.com/soak-up-every-bit-of-morel-flavor-by-frying-bread-in-th-1826331394)
+> 原文：<https://lifehacker.com/soak-up-every-bit-of-morel-flavor-by-frying-bread-in-th-1826331394>
 
 羊肚菌是两样东西:好吃又贵。如果你要拿出需要的面团(或者经历寻找它们的麻烦)，你要确保你能享受到它们浓郁的肉味。
 

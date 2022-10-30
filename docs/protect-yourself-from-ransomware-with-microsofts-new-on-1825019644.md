@@ -1,6 +1,6 @@
 # 使用微软新的 OneDrive 更新保护自己免受勒索软件的侵害
 
-> 原文:[https://life hacker . com/protect-you-from-ransomware-with-Microsoft-new-on-1825019644](https://lifehacker.com/protect-yourself-from-ransomware-with-microsofts-new-on-1825019644)
+> 原文：<https://lifehacker.com/protect-yourself-from-ransomware-with-microsofts-new-on-1825019644>
 
 网上有大量的、黑客和病毒需要警惕，但 [勒索软件](https://lifehacker.com/the-ransomware-attack-isnt-over-heres-how-to-protect-yo-1795219005) 是其中最糟糕的。在过去的几年里，黑客接管你的在线账户并劫持他们以换取现金的策略已经变得越来越普遍。
 

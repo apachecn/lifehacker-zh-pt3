@@ -1,6 +1,6 @@
 # 四份冷冻蛋白冰沙是完美的运动后冰棍
 
-> 原文:[https://life hacker . com/four-frozen-protein-smoothies-the-make-perfect-post-wo-1780807214](https://lifehacker.com/four-frozen-protein-smoothies-that-make-perfect-post-wo-1780807214)
+> 原文：<https://lifehacker.com/four-frozen-protein-smoothies-that-make-perfect-post-wo-1780807214>
 
 炎热、大汗淋漓的锻炼日即将来临。是时候把你的运动后零食从枯燥的蛋白质棒和一大口温水升级到这些提神的蛋白质冰棍了。公式很简单:混合，冷冻，享受。
 

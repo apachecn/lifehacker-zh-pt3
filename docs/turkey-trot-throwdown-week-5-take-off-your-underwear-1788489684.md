@@ -1,6 +1,6 @@
 # 土耳其小跑投掷，第 5 周:脱掉你的内衣
 
-> 原文:[https://life hacker . com/turkey-trot-throwdown-week-5-脱下你的内裤-1788489684](https://lifehacker.com/turkey-trot-throwdown-week-5-take-off-your-underwear-1788489684)
+> 原文：<https://lifehacker.com/turkey-trot-throwdown-week-5-take-off-your-underwear-1788489684>
 
 既然你已经习惯了你的日常跑步，是时候做点改变了。你已经 [设定了一个目标](http://vitals.lifehacker.com/introducing-the-turkey-trot-throwdown-let-s-run-togeth-1787445111#_ga=1.51271977.1292913635.1478010783) ，练习了你的 [跑步形式](http://vitals.lifehacker.com/turkey-trot-throwdown-week-2-count-your-cadence-1787715892#_ga=1.36576544.1292913635.1478010783) ，试验了 [速度](http://vitals.lifehacker.com/turkey-trot-throwdown-week-3-try-this-mini-speed-work-1787929719#_ga=1.36576544.1292913635.1478010783) 和 [力量](http://vitals.lifehacker.com/turkey-trot-throwdown-week-4-boost-your-strength-1788248631) 训练，现在你差不多是个专家了。有什么更好的时间来好好看看你的衣柜，并考虑增加或减少一些东西？
 

@@ -1,6 +1,6 @@
 # 罗杰斯先生说，如何与孩子交谈
 
-> 原文:[https://life hacker . com/how-to-talk to-kids-by-mister-Rogers-1826760813](https://lifehacker.com/how-to-talk-to-kids-according-to-mister-rogers-1826760813)
+> 原文：<https://lifehacker.com/how-to-talk-to-kids-according-to-mister-rogers-1826760813>
 
 今年是《罗杰斯先生的邻居》50 周年纪念，随着新纪录片 [*的上映，你不想做我的邻居吗？在刚刚过去的这个周末，我们听到了关于儿童电视偶像弗雷德·罗杰斯的一些事实，这些事实揭示了他对自己所做的每一件事有多用心。比如他会如何在节目中叙述自己喂他的鱼，因为一个失明的女孩在信中提到她担心鱼饿了(克莉茜·泰根的*](http://focusfeatures.com/wont-you-be-my-neighbor/) *[推文](https://twitter.com/chrissyteigen/status/965758687414554624?ref_src=twsrc%5Etfw&ref_url=http%3A%2F%2Fwww.upworthy.com%2Fthere-s-a-wonderful-reason-why-mister-rogers-always-said-aloud-he-s-feeding-his-fish)* *这个花絮让互联网集体攥住了它冰冷的心)。以及他如何回复每一位花时间给他写信的粉丝(他每天会收到 50 到 100 封信)。以及他如何确保整个《罗杰斯先生》目录尽可能地保持最新* ，即使这意味着重温旧集，穿上同样的衣服，重新拍摄新插页，因为他第一次弄错了一个代词。
 

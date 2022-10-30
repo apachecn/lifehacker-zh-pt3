@@ -1,6 +1,6 @@
 # 如何在 Chrome 中玩谷歌的文字冒险复活节彩蛋
 
-> 原文:[https://life hacker . com/how-to-play-Google-text-adventure-Easter-egg-in-chrome-1829225899](https://lifehacker.com/how-to-play-googles-text-adventure-easter-egg-in-chrome-1829225899)
+> 原文：<https://lifehacker.com/how-to-play-googles-text-adventure-easter-egg-in-chrome-1829225899>
 
 谁不爱一轮好的 [佐克](https://www.youtube.com/watch?v=PWQDccL0aXM) ？虽然你不太可能被谷歌 Grue 吃掉，但你*可以*在该公司的 Chrome 浏览器中进行文本冒险。这是一个聪明的小复活节彩蛋，实际上很有趣，如果你有时间消磨的话。更好的是，这个游戏不仅仅是谷歌产品的一些营销广告；这实际上有点棘手，你可能会发现自己向他人寻求帮助，然后向他们解释，就像我们将要向你解释的那样，如何首先找到游戏。
 

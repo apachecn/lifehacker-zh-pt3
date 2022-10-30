@@ -1,6 +1,6 @@
 # 如何在硬拉杠上上下盘子
 
-> 原文:[https://life hacker . com/how-to-get-plates-on-and-off-a-deadlift-bar-1829707584](https://lifehacker.com/how-to-get-plates-on-and-off-a-deadlift-bar-1829707584)
+> 原文：<https://lifehacker.com/how-to-get-plates-on-and-off-a-deadlift-bar-1829707584>
 
 希望每个人都喜欢硬拉挑战！即使你是举重 的老手，硬拉也可能很难设置，因为杠铃是在地面上，而不是在架子上，你很快就会处理重得难以控制的重物。
 

@@ -1,6 +1,6 @@
 # 如何打破你最糟糕的工作习惯
 
-> 原文:[https://life hacker . com/how-to-break your ' s worst work-habits-1784819826](https://lifehacker.com/how-to-break-your-worst-work-habits-1784819826)
+> 原文：<https://lifehacker.com/how-to-break-your-worst-work-habits-1784819826>
 
 我们所有人都承认，一个糟糕的工作习惯拖了我们的后腿。也许我们总是打断别人的话，或者我们开会经常迟到，或者我们对任何出错的事情都有借口。
 

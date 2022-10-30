@@ -1,6 +1,6 @@
 # 你可以用蛋黄酱做 3 件意想不到的事情，而不是把它放进你的咖啡里
 
-> 原文:[https://life hacker . com/3-unexpected-things-you-can-do-that-parent-put-1798356585](https://lifehacker.com/3-unexpected-things-you-can-do-with-mayo-that-arent-put-1798356585)
+> 原文：<https://lifehacker.com/3-unexpected-things-you-can-do-with-mayo-that-arent-put-1798356585>
 
 有些人只想看着世界——或者至少是推特——燃烧，体育作家吉姆·索尔兹伯里就是这样一个人，他最近在推特上说，他曾经把蛋黄酱放在他的咖啡里。
 

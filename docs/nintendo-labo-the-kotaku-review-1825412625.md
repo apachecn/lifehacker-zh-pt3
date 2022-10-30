@@ -1,6 +1,6 @@
 # 任天堂 Labo:Kotaku 评论
 
-> 原文:[https://kotaku . com/Nintendo-labo-the-kotaku-review-1825412625](https://kotaku.com/nintendo-labo-the-kotaku-review-1825412625)
+> 原文：<https://kotaku.com/nintendo-labo-the-kotaku-review-1825412625>
 
 你可能对 Labo 的第一个问题是:一盒纸板和一些迷你游戏有什么特别的？关于 Labo，首先要了解的是，盒子里的东西只是吸引力的一部分。
 

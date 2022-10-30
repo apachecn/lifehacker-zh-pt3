@@ -1,6 +1,6 @@
 # 如何修复让你的 iPhone 崩溃一整天的 iOS 漏洞
 
-> 原文:[https://life hacker . com/how-to-fix-the-IOs-bug-that-that-be-making-your-iphone-c-1820953494](https://lifehacker.com/how-to-fix-that-ios-bug-thats-been-making-your-iphone-c-1820953494)
+> 原文：<https://lifehacker.com/how-to-fix-that-ios-bug-thats-been-making-your-iphone-c-1820953494>
 
 如果你的 iPhone 或 iPad 周六一整天都死机，你并不孤单。
 

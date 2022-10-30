@@ -1,6 +1,6 @@
 # 如何在没有有线的情况下观看小狗碗
 
-> 原文:[https://life hacker . com/how-to-watch-the-puppy-bowl-with-cable-1822709438](https://lifehacker.com/how-to-watch-the-puppy-bowl-without-cable-1822709438)
+> 原文：<https://lifehacker.com/how-to-watch-the-puppy-bowl-without-cable-1822709438>
 
 你听说今天有一场大比赛吗？小狗和小猫将在两场史诗般的战斗中对决:小狗碗和小猫碗。
 

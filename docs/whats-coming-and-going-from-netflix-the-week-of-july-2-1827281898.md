@@ -1,6 +1,6 @@
 # 2018 年 7 月 2 日这一周，网飞有什么消息
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-2-1827281898](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-2-1827281898)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-2-1827281898>
 
 网飞没有为周中假期安排可吃的食物，所以如果你打算在 4 号成为一名空调隐士，你必须满足于你队列中的中坚分子。(我终于要进入 *Mindhunter* 了。 *)*
 

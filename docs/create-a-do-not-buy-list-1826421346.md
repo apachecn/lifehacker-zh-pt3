@@ -1,6 +1,6 @@
 # 创建一个“不要购买”列表
 
-> 原文:[https://lifehacker.com/create-a-do-not-buy-list-1826421346](https://lifehacker.com/create-a-do-not-buy-list-1826421346)
+> 原文：<https://lifehacker.com/create-a-do-not-buy-list-1826421346>
 
 我一直有一个“购买”清单，我会在一年中添加物品，根据需要进行修剪和更新。目前它相对较短，包括一个净水器，我公寓的艺术品，以及跑步时使用的无线耳机。
 

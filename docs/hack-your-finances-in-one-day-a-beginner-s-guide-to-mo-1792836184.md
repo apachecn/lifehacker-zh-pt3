@@ -1,6 +1,6 @@
 # 一天之内破解你的财务:资金管理初学者指南
 
-> 原文:[https://life hacker . com/hack-your-finances-in-one-day-a-beginner-s-guide-to-mo-1792836184](https://lifehacker.com/hack-your-finances-in-one-day-a-beginner-s-guide-to-mo-1792836184)
+> 原文：<https://lifehacker.com/hack-your-finances-in-one-day-a-beginner-s-guide-to-mo-1792836184>
 
 你知道，如果你想摆脱债务，去度假，或者有一天退休，控制你的钱是很重要的。问题是，很多人不知道从哪里开始，或者觉得没有时间。如果你只有一天时间，我们会帮你安排好的。
 

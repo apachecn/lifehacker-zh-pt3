@@ -1,6 +1,6 @@
 # 如何为你的环球冒险挑选最完美的旅游鞋
 
-> 原文:[https://life hacker . com/how-to-pick the perfect-travel-shoes for your-adventure-1794121154](https://lifehacker.com/how-to-pick-the-perfect-travel-shoes-for-your-adventure-1794121154)
+> 原文：<https://lifehacker.com/how-to-pick-the-perfect-travel-shoes-for-your-adventure-1794121154>
 
 史诗般的旅程需要可以应付任何事情的顶级鞋子。你需要一双舒适、保护性强、功能多样的鞋子，这样你在整个旅途中都不会去想它们。这是你出发前需要知道的。
 

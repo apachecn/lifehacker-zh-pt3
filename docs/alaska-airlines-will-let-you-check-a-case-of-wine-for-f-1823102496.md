@@ -1,6 +1,6 @@
 # 阿拉斯加航空公司会让你从这些机场免费托运一箱葡萄酒
 
-> 原文:[https://life hacker . com/Alaska-airlines-will-let-you-check-of-f-1823102496](https://lifehacker.com/alaska-airlines-will-let-you-check-a-case-of-wine-for-f-1823102496)
+> 原文：<https://lifehacker.com/alaska-airlines-will-let-you-check-a-case-of-wine-for-f-1823102496>
 
 如果你乘坐阿拉斯加航空公司的航班从西海岸出发，那么你可能可以免费携带一箱葡萄酒。
 

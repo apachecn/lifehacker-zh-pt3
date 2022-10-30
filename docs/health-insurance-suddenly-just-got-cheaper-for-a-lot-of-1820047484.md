@@ -1,6 +1,6 @@
 # 对很多人来说，健康保险突然变得更便宜了
 
-> 原文:[https://life hacker . com/health-insurance-just-get-prize-for-a-lot-of-1820047484](https://lifehacker.com/health-insurance-suddenly-just-got-cheaper-for-a-lot-of-1820047484)
+> 原文：<https://lifehacker.com/health-insurance-suddenly-just-got-cheaper-for-a-lot-of-1820047484>
 
 2017 年是买健康险的怪年。一些奇怪和糟糕的事情发生了，似乎我们应该期待保险计划变得更加昂贵。但是事实证明，很多人现在可以得到更便宜的保险，而且原因很奇怪。
 

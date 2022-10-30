@@ -1,6 +1,6 @@
 # 我是一名大学生，正在寻找一些古怪但可靠的东西！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-a-college-kid-looking-something-quirky-but-relia-1826100424](https://jalopnik.com/im-a-college-kid-looking-for-something-quirky-but-relia-1826100424)
+> 原文：<https://jalopnik.com/im-a-college-kid-looking-for-something-quirky-but-relia-1826100424>
 
 Megan 是俄勒冈州的一名全日制大学生，她需要一辆新车。所有理性的人都希望她买一辆本田或丰田，但她想要一些古怪的、与众不同的东西。她应该买什么车？
 

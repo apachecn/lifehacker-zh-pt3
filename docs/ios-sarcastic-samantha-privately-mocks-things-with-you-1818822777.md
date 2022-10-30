@@ -1,6 +1,6 @@
 # 讽刺萨曼莎应用程序将烤你的坏主意
 
-> 原文:[https://life hacker . com/IOs-insdicated-Samantha-private-mocks-things-with-you-1818822777](https://lifehacker.com/ios-sarcastic-samantha-privately-mocks-things-with-you-1818822777)
+> 原文：<https://lifehacker.com/ios-sarcastic-samantha-privately-mocks-things-with-you-1818822777>
 
 iOS:免费的 iOS 应用程序 [讽刺萨曼莎](https://itunes.apple.com/gb/app/sarcastic-samantha/id1276227679) 做一件事，而且做得很好:输入任何文本，萨曼莎都会用 Siri 风格的声音读给你听，并添加一句讽刺的评论，比如“我现在很震惊”
 

@@ -1,6 +1,6 @@
 # 我是阿里安娜·赫芬顿，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-arianna-huffington-and-this-is-how-I-work-1790999727](https://lifehacker.com/im-arianna-huffington-and-this-is-how-i-work-1790999727)
+> 原文：<https://lifehacker.com/im-arianna-huffington-and-this-is-how-i-work-1790999727>
 
 阿里安娜·赫芬顿只是想休息一下，但她还没有躺下。去年，她离开了同名网站，创办了一家名为 [Thrive Global](https://www.thriveglobal.com/) 的新公司，旨在纠正许多行业已经成为标准的慢性压力和倦怠。
 

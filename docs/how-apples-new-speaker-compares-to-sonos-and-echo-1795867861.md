@@ -1,6 +1,6 @@
 # 苹果的新扬声器与 Sonos 和 Echo 相比如何
 
-> 原文:[https://life hacker . com/how-apple-new-speaker-comparison-to-sonos-and-echo-1795867861](https://lifehacker.com/how-apples-new-speaker-compares-to-sonos-and-echo-1795867861)
+> 原文：<https://lifehacker.com/how-apples-new-speaker-compares-to-sonos-and-echo-1795867861>
 
 苹果公司的 HomePod 是该公司最新的新产品，将智能助理、智能家庭中心和多房间音频扬声器包装在一个价格昂贵的圆形包装中。
 

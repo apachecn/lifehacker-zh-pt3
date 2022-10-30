@@ -1,6 +1,6 @@
 # 如何掌握 iOS 10 中的新消息应用
 
-> 原文:[https://life hacker . com/how-to-master-the-new-messages-app-in-IOs-10-1786543589](https://lifehacker.com/how-to-master-the-new-messages-app-in-ios-10-1786543589)
+> 原文：<https://lifehacker.com/how-to-master-the-new-messages-app-in-ios-10-1786543589>
 
 iOS 10 最大的新变化是 Messages 应用程序，它突然增加了动画、贴纸等更多功能，变得更加有趣。以下是如何充分利用它的方法。
 

@@ -1,6 +1,6 @@
 # 亚马逊黄金日最致命的交易
 
-> 原文:[https://gizmodo . com/the-deadliest-looking-deals-of-Amazon-prime-day-1796806382](https://gizmodo.com/the-deadliest-looking-deals-of-amazon-prime-day-1796806382)
+> 原文：<https://gizmodo.com/the-deadliest-looking-deals-of-amazon-prime-day-1796806382>
 
 亚马逊希望你相信它一年一度的“黄金日”盛会就是关于交易的，但一个真正的键盘战士知道，每一天都以同一个目标开始和结束:全面战备。
 

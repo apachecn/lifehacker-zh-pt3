@@ -1,6 +1,6 @@
 # 你的安卓手机有内置的儿童保护功能
 
-> 原文:[https://life hacker . com/your-Android-phone-has-a-built-in-child-proof-feature-1794809851](https://lifehacker.com/your-android-phone-has-a-built-in-childproofing-feature-1794809851)
+> 原文：<https://lifehacker.com/your-android-phone-has-a-built-in-childproofing-feature-1794809851>
 
 曾经需要把你的手机递给一个孩子吗？即使你不想让他们安静下来，有时你也会试图让他们在餐馆里保持安静，或者在医生那里让他们平静下来。但是交出一部解锁的手机只是要求孩子删除你所有的主屏幕快捷方式(或者，更糟糕的是，工作邮件)。幸运的是，有一种方法可以解决这个问题。
 

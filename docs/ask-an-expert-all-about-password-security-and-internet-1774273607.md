@@ -1,6 +1,6 @@
 # 请教专家:关于密码安全和互联网安全
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-password-security-and-internet-1774273607](https://lifehacker.com/ask-an-expert-all-about-password-security-and-internet-1774273607)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-password-security-and-internet-1774273607>
 
 我们都知道我们的密码应该很长，很复杂，而且几乎不可能记住，但是我们中的许多人仍然为了方便而忽略这些规则。密码安全有多重要？利用弱密码的暴力攻击真的是一种威胁吗？
 

@@ -1,6 +1,6 @@
 # 现在就做你的感恩节馅饼面团吧
 
-> 原文:[https://life hacker . com/make-your-thanksgiving-pie-dough-now-1829525645](https://lifehacker.com/make-your-thanksgiving-pie-dough-now-1829525645)
+> 原文：<https://lifehacker.com/make-your-thanksgiving-pie-dough-now-1829525645>
 
 感恩节计划季正式开始了，当你准备一顿大餐时，每一点点提前准备都很重要。我现在还不会开始做火鸡，但是在你的冰箱里储存馅饼面团永远不会太早。
 

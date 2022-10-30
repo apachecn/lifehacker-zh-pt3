@@ -1,6 +1,6 @@
 # 如何找出你的亚马逊送货还有几站
 
-> 原文:[https://life hacker . com/how-to-find-out-how-number-stops-away-your-Amazon-deliver-1826291276](https://lifehacker.com/how-to-find-out-how-many-stops-away-your-amazon-deliver-1826291276)
+> 原文：<https://lifehacker.com/how-to-find-out-how-many-stops-away-your-amazon-deliver-1826291276>
 
 现在，你不用知道你的亚马逊包裹将在“晚上 8 点前”到达，而是能够实时跟踪它的位置，并准确知道送货司机在他们到达你家门口之前要经过多少站。这要归功于亚马逊一项名为地图追踪的新功能。
 

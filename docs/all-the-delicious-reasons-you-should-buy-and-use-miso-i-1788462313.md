@@ -1,6 +1,6 @@
 # 所有你应该在烹饪中购买和使用味噌的美味理由
 
-> 原文:[https://life hacker . com/all-the-delicious-reasons-you-should-buy-and-use-miso-I-1788462313](https://lifehacker.com/all-the-delicious-reasons-you-should-buy-and-use-miso-i-1788462313)
+> 原文：<https://lifehacker.com/all-the-delicious-reasons-you-should-buy-and-use-miso-i-1788462313>
 
 味噌是一种非常咸的酱，由发酵的大豆制成，将一吨美味的鲜味放入一茶匙中。它最常用于味噌汤，但这种时髦的调味料可以用于各种美味的应用，从薯条蘸酱和三明治涂抹酱，到焦糖和蛋糕糖霜。
 

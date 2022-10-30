@@ -1,6 +1,6 @@
 # 这个 USB-C iPhone 传闻太多了
 
-> 原文:[https://gizmodo . com/this-USB-c-iphone-rumor-is-much-1826768618](https://gizmodo.com/this-usb-c-iphone-rumor-is-too-much-1826768618)
+> 原文：<https://gizmodo.com/this-usb-c-iphone-rumor-is-too-much-1826768618>
 
 由DigiTimes[发布的一篇帖子引用了未透露姓名的“模拟 IC 供应商的消息来源”,他们说苹果可能会在 2019 年将 iPhone 和 iPad 转移到 USB-C。这一举动将意味着苹果专有的 Lightning 端口的逐渐消亡，该端口于 2012 年推出，自那以来一直是几乎所有 iProduct 的连接器。](https://mashable.com/2018/06/12/iphone-2019-usb-c-rumor/#hyjFPnRcvmqy)
 

@@ -1,6 +1,6 @@
 # 如何用 360 度相机拍出惊艳的照片
 
-> 原文:[https://life hacker . com/how-to-shoot-amazing-pictures-with a-a-a-a-360 度相机-1795928246](https://lifehacker.com/how-to-shoot-amazing-pictures-with-a-360-degree-camera-1795928246)
+> 原文：<https://lifehacker.com/how-to-shoot-amazing-pictures-with-a-360-degree-camera-1795928246>
 
 360 度摄像机是我真正尝试过之后才真正被吸引的东西之一。一个朋友带着他的新 [齿轮 360](http://www.samsung.com/us/mobile/virtual-reality/gear-360/gear-360-sm-r210nzwaxar/) 去参加一个晚宴，拍下了我们桌子上每个人欢呼的史诗般的照片，我立刻被吸引住了。一个星期后，我就带着自己的包到处跑了，从那以后，我每次度假和参加一点点有趣的活动都带着它。
 

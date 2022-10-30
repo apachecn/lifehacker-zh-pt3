@@ -1,6 +1,6 @@
 # 本影桌面
 
-> 原文:[https://lifehacker.com/the-umbral-desktop-1744516553](https://lifehacker.com/the-umbral-desktop-1744516553)
+> 原文：<https://lifehacker.com/the-umbral-desktop-1744516553>
 
 佐戈登 的 Windows 10 桌面超级干净简洁，但无论他没有打开任何东西，还是只打开了几个窗口，都有足够的有用信息。他是这样设置的。
 

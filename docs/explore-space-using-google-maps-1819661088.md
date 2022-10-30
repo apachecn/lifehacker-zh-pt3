@@ -1,6 +1,6 @@
 # 使用谷歌地图探索太空
 
-> 原文:[https://life hacker . com/explore-space-using-Google-maps-1819661088](https://lifehacker.com/explore-space-using-google-maps-1819661088)
+> 原文：<https://lifehacker.com/explore-space-using-google-maps-1819661088>
 
 谷歌 [昨天在谷歌地图上添加了超过 50 万张由航天器](https://www.blog.google/products/maps/space-out-planets-google-maps/) 拍摄的图片，其中许多是由 20 年前发射到太空的卡西尼号拍摄的。
 

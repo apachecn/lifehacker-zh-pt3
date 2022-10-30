@@ -1,6 +1,6 @@
 # 神奇蘑菇可能是最安全的娱乐药物
 
-> 原文:[https://life hacker . com/magic-mushrooms-may-be-the-safe-recreative-drug-o-1795518000](https://lifehacker.com/magic-mushrooms-might-be-the-safest-recreational-drug-o-1795518000)
+> 原文：<https://lifehacker.com/magic-mushrooms-might-be-the-safest-recreational-drug-o-1795518000>
 
 使用任何一种药物都有一些固有的风险，但不可否认的是，有些药物比其他药物更安全。根据今年的 [全球毒品调查](https://www.globaldrugsurvey.com/) ，大嚼神奇蘑菇是最安全的旅行方式之一。
 

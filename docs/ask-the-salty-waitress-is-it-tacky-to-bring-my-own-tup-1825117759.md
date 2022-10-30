@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:自带特百惠剩菜是不是很俗气？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-it-to-bring-own-tup-1825117759](https://thetakeout.com/ask-the-salty-waitress-is-it-tacky-to-bring-my-own-tup-1825117759)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-is-it-tacky-to-bring-my-own-tup-1825117759>
 
 * * *
 

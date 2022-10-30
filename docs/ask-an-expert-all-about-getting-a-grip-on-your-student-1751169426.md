@@ -1,6 +1,6 @@
 # 问专家:如何控制你的学生贷款
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-get-a-grip-on-your-student-1751169426](https://lifehacker.com/ask-an-expert-all-about-getting-a-grip-on-your-student-1751169426)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-getting-a-grip-on-your-student-1751169426>
 
 根据经验，我可以告诉你，忽视你的学生贷款实际上并不会让它们消失。那么，你能做些什么来开始偿还看似不可逾越的债务呢？来帮忙的是安德鲁·乔苏威，学生贷款英雄 的首席执行官。
 

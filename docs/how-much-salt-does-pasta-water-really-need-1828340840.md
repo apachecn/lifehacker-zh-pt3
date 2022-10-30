@@ -1,6 +1,6 @@
 # 面食水到底需要多少盐？
 
-> 原文:[https://life hacker . com/how-more-salt-do-pasta-water-really-need-1828340840](https://lifehacker.com/how-much-salt-does-pasta-water-really-need-1828340840)
+> 原文：<https://lifehacker.com/how-much-salt-does-pasta-water-really-need-1828340840>
 
 调味良好的水是 [每一道美味面食](https://lifehacker.com/how-to-cook-pasta-correctly-5805897) 的基础。如今，你很难找到一个不告诉你在烹饪用水中加盐的面食食谱，但除了模糊地提到大海，很少有人会费心告诉你多少盐才够。
 

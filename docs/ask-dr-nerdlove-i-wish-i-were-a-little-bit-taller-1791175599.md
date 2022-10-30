@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我希望我能再高一点
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-wish-I-are-a-little-bit-taller-1791175599](https://kotaku.com/ask-dr-nerdlove-i-wish-i-were-a-little-bit-taller-1791175599)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-wish-i-were-a-little-bit-taller-1791175599>
 
 你好，网上的性感小可爱。欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove#_ga=1.44439780.1374784816.1416946327) 博士，这个约会专栏帮助你的源氏找到他梦想中的仁慈。
 

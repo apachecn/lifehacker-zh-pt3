@@ -1,6 +1,6 @@
 # 如何在 Mac 和 Windows 之间做出选择
 
-> 原文:[https://life hacker . com/MAC 和 windows 哪个更好-1792800437](https://lifehacker.com/which-is-better-mac-or-windows-1792800437)
+> 原文：<https://lifehacker.com/which-is-better-mac-or-windows-1792800437>
 
 在本周的*升级*中，我们将回归基础，看看市场上两大操作系统 Windows 10 和 macOS 之间的长期竞争。他们的最新版本怎么样？是时候转换了吗？
 

@@ -1,6 +1,6 @@
 # 你宝宝的牙药可能有危险
 
-> 原文:[https://life hacker . com/your-babys-ne 牙-药-可能-危险-1826274714](https://lifehacker.com/your-babys-teething-medicine-could-be-dangerous-1826274714)
+> 原文：<https://lifehacker.com/your-babys-teething-medicine-could-be-dangerous-1826274714>
 
 如果你是父母，你就经历过。世界上所有“老麦当劳”的摇晃、轻拍和旋转都不会停止你宝宝的痛苦。经过几周的不眠之夜，你认为孩子可能需要驱魔，但后来发现她只是在长牙。
 

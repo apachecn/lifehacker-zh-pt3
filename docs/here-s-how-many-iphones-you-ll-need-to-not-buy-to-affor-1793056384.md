@@ -1,6 +1,6 @@
 # 以下是为了支付医疗保健费用，你需要不买多少部 iPhones
 
-> 原文:[https://life hacker . com/here-s-how-number-iphone-you-ll-need-to-not-buy-to-affor-1793056384](https://lifehacker.com/here-s-how-many-iphones-you-ll-need-to-not-buy-to-affor-1793056384)
+> 原文：<https://lifehacker.com/here-s-how-many-iphones-you-ll-need-to-not-buy-to-affor-1793056384>
 
 昨天， [发布了他们对](https://www.washingtonpost.com/powerpost/new-details-emerge-on-gop-plans-to-repeal-and-replace-obamacare/2017/03/06/04751e3e-028f-11e7-ad5b-d22680e18d10_story.html?utm_term=.0fe517113399) [平价医疗法案](https://www.healthcare.gov/) 的替代 。今天，众议员 Jason Chaffetz [说](http://www.cbsnews.com/news/jason-chaffetz-says-people-have-to-choose-between-new-iphone-and-health-care/) 人们可以通过选择“投资他们自己的医疗保健”而不是购买最新的 iPhone 来支付该法案更昂贵的保险费。
 

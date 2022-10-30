@@ -1,6 +1,6 @@
 # 离别歌曲桌面
 
-> 原文:[https://life hacker . com/the-department-songs-desktop-1781920112](https://lifehacker.com/the-departure-songs-desktop-1781920112)
+> 原文：<https://lifehacker.com/the-departure-songs-desktop-1781920112>
 
 我们已经看到了一些简单的桌面和一些繁忙的桌面，但这款来自 reader[Peregerine](http://kinja.com/pergerine)的桌面相当不错。它保持了中心的大部分空间，所以你有足够的空间来工作，但也在外围添加了一些有用和信息丰富的小部件和工具。
 

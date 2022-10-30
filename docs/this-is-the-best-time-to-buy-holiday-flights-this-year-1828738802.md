@@ -1,6 +1,6 @@
 # 这是今年购买假日航班的最佳时机
 
-> 原文:[https://life hacker . com/this-is-the-best-time-to-buying-holiday-flights-1828738802](https://lifehacker.com/this-is-the-best-time-to-buy-holiday-flights-this-year-1828738802)
+> 原文：<https://lifehacker.com/this-is-the-best-time-to-buy-holiday-flights-this-year-1828738802>
 
 根据旅游预订网站 Hipmunk 的数据，如果你计划在这个假期旅行，最佳时间是 10 月中旬，即 [。](https://www.hipmunk.com/tailwind/hipmunks-top-holiday-travel-hacks/) 
 

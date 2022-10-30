@@ -1,6 +1,6 @@
 # 基因真的对你的健身有多大影响？
 
-> 原文:[https://life hacker . com/how-do-much-do-do-do-much-your-fitness-1747333767](https://lifehacker.com/how-much-does-genetics-really-affect-your-fitness-1747333767)
+> 原文：<https://lifehacker.com/how-much-does-genetics-really-affect-your-fitness-1747333767>
 
 如果你在健身房没有看到效果，有很多事情你可以调整:你的饮食，你的锻炼计划，你做的锻炼类型，等等。但是遗传也是一个很大的因素。我们都有过这样的想法:也许我不适合在这方面取得成功。
 

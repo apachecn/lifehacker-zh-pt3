@@ -1,6 +1,6 @@
 # 新毕业生理财指南
 
-> 原文:[https://life hacker . com/the-new-grads-guide-to-financies-1826383909](https://lifehacker.com/the-new-grads-guide-to-finances-1826383909)
+> 原文：<https://lifehacker.com/the-new-grads-guide-to-finances-1826383909>
 
 毕业典礼结束了，你的朋友们去欧洲背包旅行了几个月，你清理了厨房橱柜顶上出于某种原因留下的最后一个空酒瓶。是时候离开你的象牙塔，加入现实世界了。
 

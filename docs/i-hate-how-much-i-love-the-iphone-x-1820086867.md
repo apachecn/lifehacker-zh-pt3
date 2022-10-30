@@ -1,6 +1,6 @@
 # 我讨厌我有多爱 iPhone X
 
-> 原文:[https://gizmodo . com/I-hate-how-多爱 iphone-x-1820086867](https://gizmodo.com/i-hate-how-much-i-love-the-iphone-x-1820086867)
+> 原文：<https://gizmodo.com/i-hate-how-much-i-love-the-iphone-x-1820086867>
 
 我是一个电子产品迷，五年前，一部新的智能手机让我对自己点头称是，“是的，我需要它胜过需要空气。”但围绕 iPhone X 的传言让我比往常更加兴奋。不仅仅是因为 iPhone 最终放弃了边框，采用了有机发光二极管显示屏——三星的 Galaxy S8 在 3 月份失去了边框——还因为 iPhone X 是该系列自天知道什么时候以来的第一次重大检修。我应该知道不要被宣传所迷惑，但在花了近一周的时间使用这款设备后，我实际上说服了自己，花 1000 美元买一部手机似乎是个好主意。如果你恨我这么说，没关系，我也恨我自己。
 

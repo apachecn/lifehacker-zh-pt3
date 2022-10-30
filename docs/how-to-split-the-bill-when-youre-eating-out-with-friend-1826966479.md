@@ -1,6 +1,6 @@
 # 当你和朋友出去吃饭时，如何分摊费用
 
-> 原文:[https://life hacker . com/how-to-split the bill-when you-eating-friend-1826966479](https://lifehacker.com/how-to-split-the-bill-when-youre-eating-out-with-friend-1826966479)
+> 原文：<https://lifehacker.com/how-to-split-the-bill-when-youre-eating-out-with-friend-1826966479>
 
 我们都经历过。当你预算紧张时，你同意集体聚餐，当你的朋友分开胃菜、点主菜和品尝新奇的鸡尾酒时，你点了汤和配菜沙拉。你无助地看着账单来了，你朋友的男朋友说出了那五个阴暗的词:“我们应该平分吗？”
 

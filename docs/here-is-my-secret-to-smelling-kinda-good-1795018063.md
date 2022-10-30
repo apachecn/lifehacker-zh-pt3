@@ -1,6 +1,6 @@
 # 这是我保持好闻的秘密
 
-> 原文:[https://Jezebel . com/here-is-my-secret-to-smoking-kind-good-1795018063](https://jezebel.com/here-is-my-secret-to-smelling-kinda-good-1795018063)
+> 原文：<https://jezebel.com/here-is-my-secret-to-smelling-kinda-good-1795018063>
 
 上周，我的同事兼朋友朱丽安·埃斯科佩多·谢泼德溜进我的备用 DMs 系统，问了一个从来没有人问过我的问题。“你喜欢好闻吗？”虽然我认为自己是一个相对干净的人——我每天洗澡，使用 Listerine，不穿脏衣服——但我不一定以好闻为目标来处理个人气味(我不含香料的沐浴露和洗涤剂，我不喷古龙水),而是希望闻起来没有任何味道。
 

@@ -1,6 +1,6 @@
 # 做你自己的裸鸡沙拉吧，因为塔可钟要把他们的拿走了
 
-> 原文:[https://life hacker . com/make-your-own-naked-chicken-cha lupa-cause-taco-bell-I-1792829171](https://lifehacker.com/make-your-own-naked-chicken-chalupa-because-taco-bell-i-1792829171)
+> 原文：<https://lifehacker.com/make-your-own-naked-chicken-chalupa-because-taco-bell-i-1792829171>
 
 如果你关注特技食品的世界，你很可能会看到塔可钟的裸鸡沙拉 ，这是一种类似墨西哥卷饼的创作，外壳由酥脆的鸡肉制成，而不是“通常的”沙拉包装。可悲的是， [塔可钟将在 3 月](http://www.eater.com/2017/2/23/14711802/naked-chicken-chalupa-taco-bell) 的某个时候从他们的菜单上移除这种包裹着蛋白质的美味，但不要难过；你可以自己做。
 

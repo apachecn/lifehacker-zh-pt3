@@ -1,6 +1,6 @@
 # 章鱼没有触须，科学家想让你知道的其他事实
 
-> 原文:[https://life hacker . com/octopus es-don-t-hacket-and-other-facts-scienti-1819988349](https://lifehacker.com/octopuses-don-t-have-tentacles-and-other-facts-scienti-1819988349)
+> 原文：<https://lifehacker.com/octopuses-don-t-have-tentacles-and-other-facts-scienti-1819988349>
 
 昆虫学学生道尔顿·路德维克 [在科学推特](https://twitter.com/EntoLudwick/status/923908675613413376) 上提问:如果你能让全世界都了解你的研究领域，那会是什么？#MyOneScienceTweet 这个标签诞生了，很光荣。
 

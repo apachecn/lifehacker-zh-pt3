@@ -1,6 +1,6 @@
 # 码头的终端桌面
 
-> 原文:[https://lifehacker.com/the-piers-end-desktop-1783372412](https://lifehacker.com/the-piers-end-desktop-1783372412)
+> 原文：<https://lifehacker.com/the-piers-end-desktop-1783372412>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-MmToIsbUld4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-MmToIsbUld4&start=0) 
 

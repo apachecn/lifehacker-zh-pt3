@@ -1,6 +1,6 @@
 # 如何在和聋子吃饭时不显得像个混蛋
 
-> 原文:[https://the take out . com/how-not-to-be-a-jerk when-eating-due-people-1822773075](https://thetakeout.com/how-not-to-be-a-jerk-when-dining-with-deaf-people-1822773075)
+> 原文：<https://thetakeout.com/how-not-to-be-a-jerk-when-dining-with-deaf-people-1822773075>
 
 我聋了 15 年了，大部分都习惯了。我不再花太多时间希望我能听到我听不到的事情。我*确实*花了很多时间希望其他人~~不要成为这样健忘的混蛋~~更彻底地思考与聋人互动的逻辑。例如，我和我认识的所有其他聋人在办理登机手续时都被提供了轮椅，被问及是否在广播中听到了某些片段，被邀请去看没有字幕的电影和没有翻译的活动。在餐馆里，我们都拿到了盲文菜单。
 

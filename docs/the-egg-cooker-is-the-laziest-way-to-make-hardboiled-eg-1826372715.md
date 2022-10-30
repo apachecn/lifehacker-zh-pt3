@@ -1,6 +1,6 @@
 # 煮蛋器是最懒的煮鸡蛋的方法(也可能是最好的)
 
-> 原文:[https://the take out . com/the-eg-1826372715](https://thetakeout.com/the-egg-cooker-is-the-laziest-way-to-make-hardboiled-eg-1826372715)
+> 原文：<https://thetakeout.com/the-egg-cooker-is-the-laziest-way-to-make-hardboiled-eg-1826372715>
 
 他们说，煮熟的鸡蛋是不能吃的。他们说，很简单。他们说的大部分是对的，但是他们没有解释我。我并不特别，也没有假装我不能成功煮鸡蛋是某种可爱的怪癖。我一塌糊涂，一点都不可爱，也从来没有人叫过我流氓。但是混乱并不是这里真正的问题。问题是我的注意力持续时间很短。
 

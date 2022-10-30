@@ -1,6 +1,6 @@
 # Trail Bend 桌面
 
-> 原文:[https://lifehacker.com/the-trail-bend-desktop-1787490015](https://lifehacker.com/the-trail-bend-desktop-1787490015)
+> 原文：<https://lifehacker.com/the-trail-bend-desktop-1787490015>
 
 读者 [斯潘塞](https://www.flickr.com/photos/144082128@N08/) 在他的 Mac 电脑上组装了这个定制的桌面，上面只有他想要显示的小部件和工具。壁纸是他自己的一张照片，但如果你想要类似的外观，其余的照片很容易在你自己身上找到。
 

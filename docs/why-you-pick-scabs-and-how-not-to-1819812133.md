@@ -1,6 +1,6 @@
 # 为什么要挑痂，怎么不挑
 
-> 原文:[https://life hacker . com/why-you-pick-scabs-and-how-not-to 1819812133](https://lifehacker.com/why-you-pick-scabs-and-how-not-to-1819812133)
+> 原文：<https://lifehacker.com/why-you-pick-scabs-and-how-not-to-1819812133>
 
 你知道你不应该选择一个结痂(对吗？？).然而，事实证明，*真正的*职业行动是从一开始就避免它们，所以当你坐在你的手上明智地避免挑选你最近的伤疤时，你已经搞砸了。
 

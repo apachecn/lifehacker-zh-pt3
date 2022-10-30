@@ -1,6 +1,6 @@
 # 如何带着小孩去公路旅行并生存下来
 
-> 原文:[https://life hacker . com/how-to-take a road-trip-with little-kids-and-survive-1826619470](https://lifehacker.com/how-to-take-a-road-trip-with-little-kids-and-survive-1826619470)
+> 原文：<https://lifehacker.com/how-to-take-a-road-trip-with-little-kids-and-survive-1826619470>
 
 当你和小孩长时间坐在一辆车里时，你会很快学会三件事:
 

@@ -1,6 +1,6 @@
 # 一天中发送电子邮件的最佳时间
 
-> 原文:[https://life hacker . com/the-best-time-of-day-to-send-email-1823889237](https://lifehacker.com/the-best-time-of-day-to-send-email-1823889237)
+> 原文：<https://lifehacker.com/the-best-time-of-day-to-send-email-1823889237>
 
 这个世界上最短暂的快乐是发送一封重要的电子邮件，因为它不可避免地被等待回复的焦虑所取代。如果你想很快收到回复，那就在早上发送。电子邮件调度公司的数据科学家布伦丹·格林利在给 Lifehacker 的一封电子邮件中进一步解释道:
 

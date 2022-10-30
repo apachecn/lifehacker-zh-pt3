@@ -1,6 +1,6 @@
 # 为什么你不应该在 Instagram 上找整形医生
 
-> 原文:[https://life hacker . com/why-you-should-not-shop-on-insta gram-1798705377](https://lifehacker.com/why-you-shouldnt-shop-for-plastic-surgeons-on-instagram-1798705377)
+> 原文：<https://lifehacker.com/why-you-shouldnt-shop-for-plastic-surgeons-on-instagram-1798705377>
 
 Instagram 不仅仅是为了检查你的前任或者放纵你对 [小](https://www.instagram.com/p/BNsK7y5BZxM/?taken-by=tinksthegriffon)[怪](https://www.instagram.com/p/BYYT0TYjtUf/?taken-by=owenthegriff) [狗](https://www.instagram.com/p/BW3ni5YD_-T/?taken-by=koutakotaro) 的爱。视觉驱动的社交媒体网络也是浏览服务的一种方式:理发师、纹身师，以及——这有点跳跃，但也很有意义——整形外科医生。
 

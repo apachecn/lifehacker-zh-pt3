@@ -1,6 +1,6 @@
 # 我是凯文·吉布斯，谷歌建议的创建者，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Kevin-Gibbs-creator-of-Google-suggest-and-this-is-1823376274](https://lifehacker.com/im-kevin-gibbs-creator-of-google-suggest-and-this-is-1823376274)
+> 原文：<https://lifehacker.com/im-kevin-gibbs-creator-of-google-suggest-and-this-is-1823376274>
 
 凯文·吉布斯创造了一些你可能每天都会用到的东西。在创办职场软件公司 [Quip](https://quip.com/) 并将其出售给 Salesforce 之前，吉布斯创建了 Google Suggest。我们和他讨论了如何利用公司自己的产品建立和运营一家公司，以及让他成为一名更好的公共演说家的见解。他的回答很有见地，也很谦逊——我们真的很自豪能为你带来这一期我是如何工作的。
 

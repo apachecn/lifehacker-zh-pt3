@@ -1,6 +1,6 @@
 # 谷歌 Pixel 是我拥有的最智能的手机
 
-> 原文:[https://gizmodo . com/the-Google-pixel-is-the-smart-phone-ive-eve-hold-1787382364](https://gizmodo.com/the-google-pixel-is-the-smartest-phone-ive-ever-held-1787382364)
+> 原文：<https://gizmodo.com/the-google-pixel-is-the-smartest-phone-ive-ever-held-1787382364>
 
 谷歌最新手机的硬件是内部开发的，使用的是萎靡不振的前旗舰产品 HTC 的部件，从外面看并不像是一场革命。这是一款 5 英寸的手机(或售价 100 美元的 5.5 英寸手机)，配有 821 骁龙处理器，1440 x 2560 的显示屏，最高 128GB 的存储空间，背面有指纹读取器。如果你将它与今年发布的几乎所有其他 Android 智能手机相混淆，那没关系。基本上都是一样的。
 

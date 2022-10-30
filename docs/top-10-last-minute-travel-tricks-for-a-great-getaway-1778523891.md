@@ -1,6 +1,6 @@
 # 十大最后时刻的旅行技巧，让你享受一次完美的旅行
 
-> 原文:[https://life hacker . com/top-10-last-minute-travel-tricks-for-a-great-away-1778523891](https://lifehacker.com/top-10-last-minute-travel-tricks-for-a-great-getaway-1778523891)
+> 原文：<https://lifehacker.com/top-10-last-minute-travel-tricks-for-a-great-getaway-1778523891>
 
 精心计划一次度假旅行，选择正确的地点，正确的时间，然后去旅行，这是有道理的。在漫长而又糟糕的一周之后，还有一些别的事情可以让你放松一下。下面是一些让后者尽可能奢华的小技巧。
 

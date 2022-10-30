@@ -1,6 +1,6 @@
 # 用一个平底锅做两周的早餐
 
-> 原文:[https://life hacker . com/make-week-worth-with-one-sheet-pan-1819690171](https://lifehacker.com/make-two-weeks-worth-of-breakfasts-with-one-sheet-pan-1819690171)
+> 原文：<https://lifehacker.com/make-two-weeks-worth-of-breakfasts-with-one-sheet-pan-1819690171>
 
 我喜欢快餐早餐。很少有东西像鸡蛋松饼或难吃的玉米煎饼一样给我带来快乐，尽管我知道它们并不完全“健康”因此，我没有车，所以我决定自己做简单快捷的早餐，我做了很多早餐。
 

@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的 Mac 下载和帖子
 
-> 原文:[https://life hacker . com/the-most-popular-MAC-downloads-and-post-of-2016-1790004168](https://lifehacker.com/the-most-popular-mac-downloads-and-posts-of-2016-1790004168)
+> 原文：<https://lifehacker.com/the-most-popular-mac-downloads-and-posts-of-2016-1790004168>
 
 今年，苹果为 Mac 用户提供了更新的操作系统和 macOS Sierra 的新命名方案，但我们的最佳 Mac 帖子涵盖了各种主题。以下是我们今年发布的一些最好的 Mac 帖子。
 

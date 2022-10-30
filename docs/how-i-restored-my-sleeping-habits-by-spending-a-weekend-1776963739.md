@@ -1,6 +1,6 @@
 # 我如何通过度过一个没有闹钟的周末来恢复我的睡眠习惯
 
-> 原文:[https://life hacker . com/how-I-restore-my-sleeping-habits-by-spending-a-weekend-1776963739](https://lifehacker.com/how-i-restored-my-sleeping-habits-by-spending-a-weekend-1776963739)
+> 原文：<https://lifehacker.com/how-i-restored-my-sleeping-habits-by-spending-a-weekend-1776963739>
 
 为了获得更好的睡眠，我几乎尝试了所有能想到的方法。很长一段时间，什么都不管用:没有规律的就寝时间，草药补充剂，睡觉前关掉电脑，甚至周末不工作。
 

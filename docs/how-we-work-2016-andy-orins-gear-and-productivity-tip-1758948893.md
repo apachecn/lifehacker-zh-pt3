@@ -1,6 +1,6 @@
 # 我们如何工作，2016 年:安迪·奥林的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2016-Andy-orins-gear-and-productivity-tip-1758948893](https://lifehacker.com/how-we-work-2016-andy-orins-gear-and-productivity-tip-1758948893)
+> 原文：<https://lifehacker.com/how-we-work-2016-andy-orins-gear-and-productivity-tip-1758948893>
 
 当你玩黑客游戏时，时间过得真快，不是吗？又到了一年中的特殊时刻，Lifehacker 的工作人员会告诉你我们的工作习惯和我们用来完成工作的最喜欢的工具。我是安迪，这是我的工作方式。
 

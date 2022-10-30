@@ -1,6 +1,6 @@
 # 长途步行对精神和身体都有好处
 
-> 原文:[https://life hacker . com/a-long-walk-is-good-for-the-mind-as-it-for-the-bo-1824148300](https://lifehacker.com/a-long-walk-is-as-good-for-the-mind-as-it-is-for-the-bo-1824148300)
+> 原文：<https://lifehacker.com/a-long-walk-is-as-good-for-the-mind-as-it-is-for-the-bo-1824148300>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 

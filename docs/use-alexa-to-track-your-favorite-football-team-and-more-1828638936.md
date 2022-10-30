@@ -1,6 +1,6 @@
 # 使用 Alexa 跟踪你最喜欢的足球队和更多
 
-> 原文:[https://life hacker . com/use-Alexa-to-track-your-favorite-football-team-and-more-1828638936](https://lifehacker.com/use-alexa-to-track-your-favorite-football-team-and-more-1828638936)
+> 原文：<https://lifehacker.com/use-alexa-to-track-your-favorite-football-team-and-more-1828638936>
 
 足球赛季正式来临了。如果你有一个亚马逊 Echo 设备，那么你可以使用 Alexa 来跟踪你最喜欢的球队，获得场上球员的最新统计数据，甚至跟踪你的梦幻足球队。
 

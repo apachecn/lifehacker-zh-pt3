@@ -1,6 +1,6 @@
 # 三种成分的欢乐时光:一杯烟熏和温暖的麦斯卡尔玛格丽塔酒
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-smoked-warming-mez cal-mar-1821791460](https://lifehacker.com/3-ingredient-happy-hour-a-smoky-and-warming-mezcal-mar-1821791460)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-smoky-and-warming-mezcal-mar-1821791460>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们正在制作一种饮料，非常适合那些因为冰雪和炸弹飓风而无法出门的时候。
 

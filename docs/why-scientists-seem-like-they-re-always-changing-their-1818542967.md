@@ -1,6 +1,6 @@
 # 为什么科学家似乎总是改变主意
 
-> 原文:[https://life hacker . com/why-scientists-seek-like-they-re-always-changing-they-1818542967](https://lifehacker.com/why-scientists-seem-like-they-re-always-changing-their-1818542967)
+> 原文：<https://lifehacker.com/why-scientists-seem-like-they-re-always-changing-their-1818542967>
 
 本周咖啡对我们是好是坏？黄油还是可以的，对吧？我们是处于“健怡可乐会要你的命”还是“健怡可乐很好”的循环中？很难保持跟踪。但是标题并不能说明全部情况。在幕后，科学家们*并没有*总是不同意和摇摆不定。
 

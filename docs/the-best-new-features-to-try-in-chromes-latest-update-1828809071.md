@@ -1,6 +1,6 @@
 # Chrome 最新更新中值得尝试的最佳新功能
 
-> 原文:[https://life hacker . com/the-best-new-features-to-try-in-chromes-latest-update-1828809071](https://lifehacker.com/the-best-new-features-to-try-in-chromes-latest-update-1828809071)
+> 原文：<https://lifehacker.com/the-best-new-features-to-try-in-chromes-latest-update-1828809071>
 
 为了纪念 Chrome 浏览器 10 周年，谷歌推出了浏览器的重大更新，让它看起来更柔软、更圆润，并增加了一些新功能。Chrome 69 版本中的大多数变化都是生活质量的小调整，其中一些非常细微，你可能甚至不会注意到它是 Chrome 新设计的一部分。尽管它们可能不会改变生活，但在新的 Chrome 体验中，还是有一些值得一试的东西
 

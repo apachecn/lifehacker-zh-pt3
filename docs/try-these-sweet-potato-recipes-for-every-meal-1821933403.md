@@ -1,6 +1,6 @@
 # 每餐都试试这些红薯食谱
 
-> 原文:[https://life hacker . com/try-things-红薯每餐食谱-1821933403](https://lifehacker.com/try-these-sweet-potato-recipes-for-every-meal-1821933403)
+> 原文：<https://lifehacker.com/try-these-sweet-potato-recipes-for-every-meal-1821933403>
 
 寒冷的气温会引发对甜味和咸味碳水化合物的渴望，而红薯可以同时满足这两种需求。这些婴儿不仅是各种馅料的完美基础，它们比苍白的同类提供了更多的味道(和营养)，可以在早上，中午和晚上享用。
 

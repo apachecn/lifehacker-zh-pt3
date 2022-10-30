@@ -1,6 +1,6 @@
 # 如何让你的 iPhone 屏幕看起来更饱和
 
-> 原文:[https://life hacker . com/how-to-tint-your-iphone-screen-to-look-more-saturated-1827056611](https://lifehacker.com/how-to-tint-your-iphone-screen-to-look-more-saturated-1827056611)
+> 原文：<https://lifehacker.com/how-to-tint-your-iphone-screen-to-look-more-saturated-1827056611>
 
 全能的 [图像过滤器](https://lifehacker.com/five-best-photo-filter-apps-5970648#_ga=2.169347561.972888801.1529329488-3846207152.1521480874) 向我们展示了最轻微的图像调整有多么强大。你可能不知道，但你的 iP hone 能够在整个显示期间做同样的颜色调整。
 

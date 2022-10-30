@@ -1,6 +1,6 @@
 # 应对愤怒同事的四步计划
 
-> 原文:[https://life hacker . com/a-应对愤怒同事的四步计划-1784665178](https://lifehacker.com/a-four-step-plan-for-dealing-with-an-angry-coworker-1784665178)
+> 原文：<https://lifehacker.com/a-four-step-plan-for-dealing-with-an-angry-coworker-1784665178>
 
 星期二早上，你手机的闹钟响了，你忍不住去看收件箱里的第一封邮件。你读了开头几个字，开始担心:你的老板疯了吗？你继续读，这是真的——她真的生气了。
 

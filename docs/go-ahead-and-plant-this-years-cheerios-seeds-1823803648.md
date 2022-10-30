@@ -1,6 +1,6 @@
 # 去播种今年的麦片种子吧
 
-> 原文:[https://life hacker . com/go-ahead-and-plant-this-years-Cheerios-seeds-1823803648](https://lifehacker.com/go-ahead-and-plant-this-years-cheerios-seeds-1823803648)
+> 原文：<https://lifehacker.com/go-ahead-and-plant-this-years-cheerios-seeds-1823803648>
 
 去年，啦啦队搞砸了。他们在一次被误导的尝试中赠送了“野花”种子，让人们对帮助蜜蜂感到兴奋。在这个国家的大部分地区，这些种子不适合作为野花开放，而且 [起初看起来它们包含了一种令人讨厌的入侵物种。今年呢？好多了。去种植它们吧。](https://lifehacker.com/were-those-cheerios-seeds-really-so-bad-an-investigati-1794454979) 
 

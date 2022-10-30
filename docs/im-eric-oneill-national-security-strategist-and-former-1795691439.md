@@ -1,6 +1,6 @@
 # 我是埃里克·奥尼尔，前反恐特工，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Eric-oneill-national-security-strategic-and-former-1795691439](https://lifehacker.com/im-eric-oneill-national-security-strategist-and-former-1795691439)
+> 原文：<https://lifehacker.com/im-eric-oneill-national-security-strategist-and-former-1795691439>
 
 埃里克·奥尼尔曾是联邦调查局的反恐特工，在抓捕间谍罗伯特·汉森(他在联邦调查局的老板，他被雇来监视他——更多信息，请查看他的 [维基百科页面](https://en.wikipedia.org/wiki/Eric_O%27Neill) )的过程中发挥了重要作用。他在抓捕汉森中的角色成为电影[](http://www.imdb.com/title/tt0401997/)**(*2007)的主题，由瑞安·菲利普饰演奥尼尔。*
 

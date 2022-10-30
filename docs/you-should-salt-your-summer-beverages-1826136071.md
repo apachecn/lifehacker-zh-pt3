@@ -1,6 +1,6 @@
 # 你应该在夏季饮料中加盐
 
-> 原文:[https://life hacker . com/you-should-salt-your-summer-beverages-1826136071](https://lifehacker.com/you-should-salt-your-summer-beverages-1826136071)
+> 原文：<https://lifehacker.com/you-should-salt-your-summer-beverages-1826136071>
 
 夏天最大的乐趣之一是在阳光下或者最近的阴凉处啜饮一杯冰镇的提神饮料。大量的夏季鸡尾酒和潘趣酒终于准备好了它们的季节性首次亮相，它们都需要一点盐。
 

@@ -1,6 +1,6 @@
 # 大约 10 分钟后，赶在第七季首播前看完《权力的游戏》
 
-> 原文:[https://life hacker . com/catch-up-on-game-of-thrones-before-the-season-7-premier-1796928047](https://lifehacker.com/catch-up-on-game-of-thrones-before-the-season-7-premier-1796928047)
+> 原文：<https://lifehacker.com/catch-up-on-game-of-thrones-before-the-season-7-premier-1796928047>
 
 每个人都对《权力的游戏》第七季的首播感到紧张——而你完全落后了。不要担心，你可以赶上并随时准备与你所有的朋友一起观看。
 

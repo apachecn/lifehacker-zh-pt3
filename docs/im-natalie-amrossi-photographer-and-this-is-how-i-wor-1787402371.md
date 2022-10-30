@@ -1,6 +1,6 @@
 # 我是娜塔莉·阿姆罗西，摄影师，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Natalie-am rossi-photoger-and-this-is-how-I-wor-1787402371](https://lifehacker.com/im-natalie-amrossi-photographer-and-this-is-how-i-wor-1787402371)
+> 原文：<https://lifehacker.com/im-natalie-amrossi-photographer-and-this-is-how-i-wor-1787402371>
 
 娜塔莉·阿姆罗西的未来悬而未决。她放弃了新兴的金融事业，转而追求自己对摄影的兴趣，现在大部分时间都在用屋顶和直升机拍摄城市的天际线。
 

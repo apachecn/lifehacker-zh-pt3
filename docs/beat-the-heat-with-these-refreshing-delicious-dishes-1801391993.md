@@ -1,6 +1,6 @@
 # 热浪来袭时吃的提神食物
 
-> 原文:[https://life hacker . com/beat-the-heat with the-thinking-delicate-1801391993](https://lifehacker.com/beat-the-heat-with-these-refreshing-delicious-dishes-1801391993)
+> 原文：<https://lifehacker.com/beat-the-heat-with-these-refreshing-delicious-dishes-1801391993>
 
 美国西部一直很热，一些州真的着火了( [在那里保持安全](http://lifehacker.com/nearly-1-5-million-acres-are-burning-across-the-west-w-1801971254) )。如果你想让炎热变得更容易忍受，试着做一个这样的菜，它会让你凉快下来，不需要做饭(一个热炉子=一个热房子，现在没人需要它)。
 

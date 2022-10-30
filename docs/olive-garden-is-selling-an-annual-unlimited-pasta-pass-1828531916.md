@@ -1,6 +1,6 @@
 # 橄榄花园明天将出售一张 300 美元的年度无限制意大利面通行证
 
-> 原文:[https://life hacker . com/olive-garden-is-selling-a-annual-unlimited-pasta-pass-1828531916](https://lifehacker.com/olive-garden-is-selling-an-annual-unlimited-pasta-pass-1828531916)
+> 原文：<https://lifehacker.com/olive-garden-is-selling-an-annual-unlimited-pasta-pass-1828531916>
 
 橄榄园今年第五次带回它永不停息的面食通行证。现在，这项服务还附带了一个年度选项，让你一年 365 天都能吃到所有的意大利面、肉丸、沙拉和面包条，只需 300 美元， [*市场观察*报道](https://www.marketwatch.com/story/olive-garden-to-offer-full-year-never-ending-pasta-pass-promotion-for-300-2018-08-22) 。
 

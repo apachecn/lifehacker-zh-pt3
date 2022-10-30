@@ -1,6 +1,6 @@
 # 如果冰出现在我家门口，我该怎么办？
 
-> 原文:[https://deadspin . com/what-should-I-do-if-ice-show-up-on-my-step-1793674561](https://deadspin.com/what-should-i-do-if-ice-shows-up-on-my-doorstep-1793674561)
+> 原文：<https://deadspin.com/what-should-i-do-if-ice-shows-up-on-my-doorstep-1793674561>
 
 *欢迎回来问律师，在这里我，一个律师，回应你的问题。有令人烦恼的法律问题吗？* [*把它发送过来*](mailto:adequateman@deadspin.com) *，或者在下面的评论里放下它。*
 

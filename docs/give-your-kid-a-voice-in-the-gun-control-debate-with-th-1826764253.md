@@ -1,6 +1,6 @@
 # 在这个选举网站上给你的孩子一个在枪支控制辩论中发言的机会
 
-> 原文:[https://life hacker . com/give-your-kid-a voice-in-the-th-1826764253](https://lifehacker.com/give-your-kid-a-voice-in-the-gun-control-debate-with-th-1826764253)
+> 原文：<https://lifehacker.com/give-your-kid-a-voice-in-the-gun-control-debate-with-th-1826764253>
 
 在学生领导的 [为我们的生命而游行](https://marchforourlives.com/) 运动中，越来越多的年轻活动家站出来要求改变枪支管制政策。他们中的许多人还太年轻，不能投票，但他们应该让自己的声音被听到。
 

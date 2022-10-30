@@ -1,6 +1,6 @@
 # 是时候退出 Twitter 了
 
-> 原文:[https://lifehacker.com/its-time-to-quit-twitter-1828307515](https://lifehacker.com/its-time-to-quit-twitter-1828307515)
+> 原文：<https://lifehacker.com/its-time-to-quit-twitter-1828307515>
 
 为了我们自己的精神健康和民主，我们被鼓励 [离开脸书](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407#_ga=2.167688574.1172634167.1534167125-3846207152.1521480874) ，考虑到这两个相同的目标，也是时候放弃推特了。
 

@@ -1,6 +1,6 @@
 # 如何在问答环节提问，由麦克斯威尼公司提供
 
-> 原文:[https://life hacker . com/how-to-question-at-a-q-a-culture-of-mcsweeneys-1821583537](https://lifehacker.com/how-to-ask-questions-at-a-q-a-courtesy-of-mcsweeneys-1821583537)
+> 原文：<https://lifehacker.com/how-to-ask-questions-at-a-q-a-courtesy-of-mcsweeneys-1821583537>
 
 非白色幽默博客 McSweeney's 有一个在公共场合提问的指南，由作家兼教师 Meriah Crawford 格式化作为期末考试。问题包括“我的问题应该有多长？”以及“这是一个解释说话者为什么错了的好机会吗？”答案包括“坐下来”和“最好先讲一个关于你自己的简短故事，这样所有的观众就能理解你和/或你的问题有多重要。”
 

@@ -1,6 +1,6 @@
 # 为什么有些人天生焦虑，丹尼尔·基廷
 
-> 原文:[https://life hacker . com/why-some-people-天生焦虑-1794428828](https://lifehacker.com/why-some-people-are-born-anxious-1794428828)
+> 原文：<https://lifehacker.com/why-some-people-are-born-anxious-1794428828>
 
 你有没有注意到有些人似乎天生就有压力？也许你觉得自己也遇到了一手焦虑的牌。根据心理学教授丹尼尔·基廷的说法，我们如何处理压力和焦虑可能在我们还在子宫里的时候就已经决定了。
 

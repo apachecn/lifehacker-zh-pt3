@@ -1,6 +1,6 @@
 # 你应该用洗碗机清洗锋利的刀具吗？
 
-> 原文:[https://the take out . com/should-you-ever-wash-you-ever-sharp-knifes-in-洗碗机-1826989297](https://thetakeout.com/should-you-ever-wash-sharp-knives-in-the-dishwasher-1826989297)
+> 原文：<https://thetakeout.com/should-you-ever-wash-sharp-knives-in-the-dishwasher-1826989297>
 
 我曾经有一个室友，他把所有的东西都放在洗碗机里，这导致了我的两个花式酒杯的破碎。我被弄糊涂了——谁会拿起一个轻如鸿毛、茎干精致的酒杯，然后想“是的，这应该在金属盒周围叮当作响一阵子”？
 

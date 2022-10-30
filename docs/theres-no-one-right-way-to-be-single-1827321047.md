@@ -1,6 +1,6 @@
 # 单身没有“正确的方式”
 
-> 原文:[https://life hacker . com/theres-no-one-right-way-to-single-1827321047](https://lifehacker.com/theres-no-one-right-way-to-be-single-1827321047)
+> 原文：<https://lifehacker.com/theres-no-one-right-way-to-be-single-1827321047>
 
 这个星期我们有一个家伙不停地从一段感情跳到另一段感情，但是他非常想看看单身生活是什么样子的。他会知道如何独自生活吗？或者他会意识到并不总是有做每件事的正确方法？
 

@@ -1,6 +1,6 @@
 # 如何使用优步新的接送工具来更快地找到你的司机
 
-> 原文:[https://life hacker . com/how-to-use-ubers-new-pick-tools-to-find-your-driver-f-1827637124](https://lifehacker.com/how-to-use-ubers-new-pickup-tools-to-find-your-driver-f-1827637124)
+> 原文：<https://lifehacker.com/how-to-use-ubers-new-pickup-tools-to-find-your-driver-f-1827637124>
 
 当你打电话叫一辆优步去你家接你时，找到你的司机并不难(通常是 T1)。当你打电话叫一辆优步从一个更拥挤的地方接你时，事情会变得更加复杂。
 

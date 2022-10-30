@@ -1,6 +1,6 @@
 # 联邦通信委员会的新计划废除了网络中立，转而依靠自由市场
 
-> 原文:[https://life hacker . com/the-fccs-new-plan-dismatters-net-neutral-to-relay-1794675979](https://lifehacker.com/the-fccs-new-plan-dismantles-net-neutrality-to-rely-on-1794675979)
+> 原文：<https://lifehacker.com/the-fccs-new-plan-dismantles-net-neutrality-to-rely-on-1794675979>
 
 今天，联邦贸易通信委员会主席 Ajit Pai 概述了他放松 FCC 对互联网服务提供商监管的新计划。不出所料，他的梦想计划有效地扼杀了许多网络中立 的 [想法。](https://lifehacker.com/why-the-fccs-new-net-neutrality-rules-are-good-for-the-1683769527) 
 

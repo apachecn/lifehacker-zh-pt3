@@ -1,6 +1,6 @@
 # 培根很棒，但蜜饯培根更好
 
-> 原文:[https://the take out . com/bacon-is great-but-candided-bacon-is better-1824188159](https://thetakeout.com/bacon-is-great-but-candied-bacon-is-better-1824188159)
+> 原文：<https://thetakeout.com/bacon-is-great-but-candied-bacon-is-better-1824188159>
 
 我是一个非常支持培根的人:我在 reg 上做 BLTs，永远不会把它踢出任何沙拉、三明治或意大利面。使用心爱的腌肉板作为甜点，我可能会有一个问题:蜜饯培根？这到底是怎么回事？这就像把培根和冰淇淋或巧克力放在一起:也许有些美好的东西不应该混合在一起？
 

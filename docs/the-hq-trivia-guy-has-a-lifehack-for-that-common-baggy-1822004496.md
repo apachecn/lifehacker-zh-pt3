@@ -1,6 +1,6 @@
 # 总部琐事男孩有一个解决常见的松松垮垮的避孕套问题的生活窍门
 
-> 原文:[https://gizmodo . com/the-HQ-trivia-guy-have-a-a-life hack-for the-common-baggy-1822004496](https://gizmodo.com/the-hq-trivia-guy-has-a-lifehack-for-that-common-baggy-1822004496)
+> 原文：<https://gizmodo.com/the-hq-trivia-guy-has-a-lifehack-for-that-common-baggy-1822004496>
 
 在几个月的时间里，斯科特·罗格夫斯基(Scott Rogowsky)从纽约喜剧界的边缘人物变成了家喻户晓的名字，成为基于应用程序的直播游戏节目《总部琐事》(HQ Trivia)的主持人。但是我们对这位被称为“测验爸爸”的令人讨厌的乐观发言人了解多少呢？
 

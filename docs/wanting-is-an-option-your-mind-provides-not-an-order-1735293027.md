@@ -1,6 +1,6 @@
 # “想要是你头脑提供的一个选项，而不是你必须遵循的一个命令”
 
-> 原文:[https://life hacker . com/wanting-is-a-option-your-mind-provide-not-a-order-1735293027](https://lifehacker.com/wanting-is-an-option-your-mind-provides-not-an-order-1735293027)
+> 原文：<https://lifehacker.com/wanting-is-an-option-your-mind-provides-not-an-order-1735293027>
 
 “想要”和“需要”之间有着本质的区别，这都归结于选择。尽管击退你的欲望看起来很困难，但提醒自己你才是发号施令的人是有帮助的。
 

@@ -1,6 +1,6 @@
 # 这家伙从零开始制造了一台华丽的相机
 
-> 原文:[https://gizmodo . com/this-guy-built-a-dialogue-camera-from scratch-1826199812](https://gizmodo.com/this-guy-built-a-gorgeous-camera-from-scratch-1826199812)
+> 原文：<https://gizmodo.com/this-guy-built-a-gorgeous-camera-from-scratch-1826199812>
 
 你有没有发现自己处于这样的境地:你需要某样东西，但却买不起？卢卡斯·兰德斯做了 ，当他需要一个大画幅相机上课时，他找到了一个激光切割机，并用木头做了一个看起来很滑稽的相机。现在，这位路易斯安那人刚刚从零开始完成了另一台相机的制作。这是一种美。
 

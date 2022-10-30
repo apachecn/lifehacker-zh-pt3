@@ -1,6 +1,6 @@
 # 不要费心去尝试陈酿你的酒
 
-> 原文:[https://life hacker . com/don-trough-try-to-age-your wine-1820920627](https://lifehacker.com/dont-bother-trying-to-age-your-wine-1820920627)
+> 原文：<https://lifehacker.com/dont-bother-trying-to-age-your-wine-1820920627>
 
 你等打开那瓶酒的时间越长越好，对吗？除非你真的买了一些陈年的好酒，否则不会。
 

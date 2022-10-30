@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的 DIY 项目
 
-> 原文:[https://life hacker . com/2016-1789748712](https://lifehacker.com/most-popular-diy-projects-of-2016-1789748712)
+> 原文：<https://lifehacker.com/most-popular-diy-projects-of-2016-1789748712>
 
 无论你是自己组装电脑还是修理房子，在 Lifehacker，自己动手的态度总是很普遍。以下是我们在 2016 年发布的最好的 DIY 指南、项目和想法。
 

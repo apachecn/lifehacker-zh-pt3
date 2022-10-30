@@ -1,6 +1,6 @@
 # 微软 Surface Go 几乎是完美的
 
-> 原文:[https://gizmodo . com/the-Microsoft-surface-go-is-practical-perfect-1828045097](https://gizmodo.com/the-microsoft-surface-go-is-practically-perfect-1828045097)
+> 原文：<https://gizmodo.com/the-microsoft-surface-go-is-practically-perfect-1828045097>
 
 听着，550 美元是一大笔钱...除非你说的是电脑。就制造电脑的人而言，你花那么少钱买的任何一台电脑都绝对是“经济型”电脑。他们并不令人印象深刻，或者特别快，或者漂亮。它们纯粹是功能性的——计算机的福特嘉年华。低于 550 美元的笔记本电脑系列的纯粹平庸就是为什么新的 550 美元的微软 Surface Go 如此特别。这是一个便宜的笔记本电脑，实际上很好。
 

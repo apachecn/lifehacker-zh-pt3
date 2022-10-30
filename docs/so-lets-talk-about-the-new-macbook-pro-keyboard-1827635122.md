@@ -1,6 +1,6 @@
 # 所以我们来谈谈新的 MacBook Pro 键盘
 
-> 原文:[https://gizmodo . com/so-let-talk-the-new-the-macbook-pro-keyboard-1827635122](https://gizmodo.com/so-lets-talk-about-the-new-macbook-pro-keyboard-1827635122)
+> 原文：<https://gizmodo.com/so-lets-talk-about-the-new-macbook-pro-keyboard-1827635122>
 
 上周，苹果公司发布了一款升级版 MacBook Pro ，它采用了三个月前刚刚发布的新处理器，并对键盘进行了调整。新键盘！让我们谈谈那个。
 

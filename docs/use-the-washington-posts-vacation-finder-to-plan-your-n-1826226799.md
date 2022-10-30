@@ -1,6 +1,6 @@
 # 使用华盛顿邮报的假期搜索器来计划你的下一次旅行
 
-> 原文:[https://life hacker . com/use-the-Washington-posts-vacation-finder-to-plan-your-n-1826226799](https://lifehacker.com/use-the-washington-posts-vacation-finder-to-plan-your-n-1826226799)
+> 原文：<https://lifehacker.com/use-the-washington-posts-vacation-finder-to-plan-your-n-1826226799>
 
 感到想要出城的冲动——但是不确定你想去哪里。《华盛顿邮报》的 [假期发现者](https://www.washingtonpost.com/graphics/2018/lifestyle/travel/vacation-finder/) 问了一系列问题(国内还是海外？温暖还是凉爽？)来帮助缩小你的假期优先级，然后提供了几个目的地供你考虑。你会得到一些旅游建议，但你也会得到一些你可能没有考虑过的度假地点。
 

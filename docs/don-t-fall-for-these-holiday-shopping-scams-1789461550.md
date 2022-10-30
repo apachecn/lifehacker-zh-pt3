@@ -1,6 +1,6 @@
 # 不要陷入这些假日购物骗局
 
-> 原文:[https://life hacker . com/don-t-fall-to-these-holiday-shopping-scams-1789461550](https://lifehacker.com/don-t-fall-for-these-holiday-shopping-scams-1789461550)
+> 原文：<https://lifehacker.com/don-t-fall-for-these-holiday-shopping-scams-1789461550>
 
 人们很容易陷入节日的疯狂之中。你要计划派对，要寄贺卡，还要买 [礼物买](https://lifehacker.com/the-best-days-to-shop-for-holiday-gifts-this-year-1789018087) ，这在短短几周内可能会很多。不要让压力影响你更好的判断。当心这些欺骗假日购物者的骗局。
 

@@ -1,6 +1,6 @@
 # 花最多(最少)时间学习的语言
 
-> 原文:[https://life hacker . com/the-languages-that-take-the-most-and-less-time to le-1820976853](https://lifehacker.com/the-languages-that-take-the-most-and-least-time-to-le-1820976853)
+> 原文：<https://lifehacker.com/the-languages-that-take-the-most-and-least-time-to-le-1820976853>
 
 所以，你想学说和写一种新的语言，是吗？不仅仅是“你好”和“谢谢”，而是真正把它学得足够好，以至于你可以在原籍国生活？希望你准备好了。如果你的母语是英语，那么精通这些语言需要的时间最多也最少。
 

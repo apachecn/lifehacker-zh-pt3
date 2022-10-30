@@ -1,6 +1,6 @@
 # 下周使用 Venmo 付款时，您的 Grubhub 订单将获得 10 美元的折扣
 
-> 原文:[https://life hacker . com/get-10-off-your-grubhub-order-next-week-when-you-pay-w-1829050886](https://lifehacker.com/get-10-off-your-grubhub-order-next-week-when-you-pay-w-1829050886)
+> 原文：<https://lifehacker.com/get-10-off-your-grubhub-order-next-week-when-you-pay-w-1829050886>
 
 在我家，我们经常从 Grubhub订餐。但直到本周，我还不知道使用 Venmo 会发生这种事。
 

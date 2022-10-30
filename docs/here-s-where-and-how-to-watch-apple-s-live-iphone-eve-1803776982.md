@@ -1,6 +1,6 @@
 # 这里是观看苹果现场 iPhone 活动的地点(和方式)
 
-> 原文:[https://life hacker . com/here-s-where-and-how-to-watch-apple-s-live-iphone-eve-1803776982](https://lifehacker.com/here-s-where-and-how-to-watch-apple-s-live-iphone-eve-1803776982)
+> 原文：<https://lifehacker.com/here-s-where-and-how-to-watch-apple-s-live-iphone-eve-1803776982>
 
 今天是 iPhone 日，所以准备好你的钱包吧！苹果公司将宣布三款新的 iPhone，其中一款，高端 iPhone X，据传价格高达一千美元[。还有](http://lifehacker.com/what-you-should-know-about-apple-s-upcoming-iphone-8-1798639198) [证据充分的传言](http://gizmodo.com/apple-iphone-day-2017-cheat-sheet-what-to-expect-1800959123) 一款新的配备 LTE 的苹果手表。当然，如果你不在全新的史蒂夫·乔布斯剧院(该公司新的未来派 [苹果公园](http://gizmodo.com/the-most-interesting-part-of-apples-new-5-billion-camp-1795253637) 总部的一部分)举行的活动上，你可以通过多种方式了解苹果新闻。
 

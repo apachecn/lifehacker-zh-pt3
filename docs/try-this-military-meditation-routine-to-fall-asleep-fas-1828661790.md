@@ -1,6 +1,6 @@
 # 试试这个军事冥想程序，快速入睡
 
-> 原文:[https://life hacker . com/try-this-military-冥想-常规-入睡-fas-1828661790](https://lifehacker.com/try-this-military-meditation-routine-to-fall-asleep-fas-1828661790)
+> 原文：<https://lifehacker.com/try-this-military-meditation-routine-to-fall-asleep-fas-1828661790>
 
 需要快速入睡？美国海军飞行前学校开发的一种中世纪放松技术，据说在几分钟内就能奏效。这可能不是魔术，但这似乎是放松身心的好方法。
 

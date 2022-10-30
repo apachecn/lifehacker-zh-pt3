@@ -1,6 +1,6 @@
 # 真正重要的睡眠技术
 
-> 原文:[https://life hacker . com/the-sleep-tech-the-actual-matters-1822558367](https://lifehacker.com/the-sleep-tech-that-actually-matters-1822558367)
+> 原文：<https://lifehacker.com/the-sleep-tech-that-actually-matters-1822558367>
 
 我们正处于一个可以说是不必要的健康设备的黄金时代，包括几个旨在优化我们睡眠的新市场，或者至少给我们提供了大量描述睡眠的数据。我们询问了几位睡眠专家，哪些有用，哪些没用。以下是他们喜欢的功能:
 

@@ -1,6 +1,6 @@
 # 今天下午加入 Beth Skwarecki 现场问答[已完成]
 
-> 原文:[https://life hacker . com/join-Beth-skwarecki-for-a-live-q-a-this-午-upda-1819189778](https://lifehacker.com/join-beth-skwarecki-for-a-live-q-a-this-afternoon-upda-1819189778)
+> 原文：<https://lifehacker.com/join-beth-skwarecki-for-a-live-q-a-this-afternoon-upda-1819189778>
 
 嗨，伙计们！我，你无畏的健康作家和编辑，在这里回答你的问题。从美国东部时间今天下午 3 点开始(如果你是加州时间，那就是中午)，我会加入评论，谈论健康、科学或任何你想谈论的话题。
 

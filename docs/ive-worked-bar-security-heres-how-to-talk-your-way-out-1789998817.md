@@ -1,6 +1,6 @@
 # 我做过酒吧保安，下面教你如何在酒吧打架中脱身
 
-> 原文:[https://life hacker . com/ive-work-bar-security-heres-how-to-talk-your-way-out-1789998817](https://lifehacker.com/ive-worked-bar-security-heres-how-to-talk-your-way-out-1789998817)
+> 原文：<https://lifehacker.com/ive-worked-bar-security-heres-how-to-talk-your-way-out-1789998817>
 
 孙子曾经说过“不战而屈人之兵”当饮料流动时，这个数字会翻倍。人们喝醉时会有点头脑发热，在某些情况下，还会动用身体。根据我作为一名保安的经验，这些圆滑的谈话技巧将帮助你平静一个紧张的局面，并逃脱的潜在打击。
 

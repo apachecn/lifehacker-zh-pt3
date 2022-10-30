@@ -1,6 +1,6 @@
 # 英特尔的 Optane 内存使廉价硬盘和昂贵的固态硬盘一样快
 
-> 原文:[https://gizmodo . com/Intel-optane-memory-could-make-cheap-computers-fast-ag-1794576969](https://gizmodo.com/intels-optane-memory-could-make-cheap-computers-fast-ag-1794576969)
+> 原文：<https://gizmodo.com/intels-optane-memory-could-make-cheap-computers-fast-ag-1794576969>
 
 不仅仅是垃圾处理器让真正便宜的电脑变慢。或者内存或显卡(或者缺少显卡)。你的廉价笔记本电脑以极慢的速度大声突突前进的主要原因是因为硬盘。廉价的笔记本电脑使用廉价的硬盘驱动器，比更好的电脑中的固态驱动器慢得多。但英特尔的新 Optane 内存改变了这一点。这个 70 美元的小芯片让廉价的硬盘和固态硬盘一样快。
 

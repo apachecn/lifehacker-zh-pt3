@@ -1,6 +1,6 @@
 # 如何假装弹钢琴:第二课
 
-> 原文:[https://life hacker . com/how-to-fake-playing-piano-lesson-2-1819556732](https://lifehacker.com/how-to-fake-playing-piano-lesson-2-1819556732)
+> 原文：<https://lifehacker.com/how-to-fake-playing-piano-lesson-2-1819556732>
 
 欢迎来到 [的第二课《如何假装弹钢琴](https://lifehacker.com/tag/hack-the-piano) ，这是一个钢琴课系列，它跳过了“十字面包”，教你如何敲击键盘，就好像你知道自己在做什么一样。昨天，作曲家 Jason Oberholtzer 教我如何用左手 弹奏八度和五度音。今天，他教大家如何弹奏 c 调。
 

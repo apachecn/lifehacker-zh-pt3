@@ -1,6 +1,6 @@
 # 仅仅因为一个经销商说他们将从工厂为你订购一辆汽车并不意味着他们可以
 
-> 原文:[https://jalopnik . com/just-因为一个经销商说他们将订购你一辆车-fr-1818780605](https://jalopnik.com/just-because-a-dealer-says-they-will-order-you-a-car-fr-1818780605)
+> 原文：<https://jalopnik.com/just-because-a-dealer-says-they-will-order-you-a-car-fr-1818780605>
 
 按照你想要的方式从工厂订购一辆汽车是很特别的。许多代理商会主动订购客户想要但代理商没有库存的任何产品。但有些订单比其他订单更容易，并不是每个经销商都能得到你想要的车。
 

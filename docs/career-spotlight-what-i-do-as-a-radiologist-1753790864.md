@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名放射科医生做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-放射科医生-1753790864](https://lifehacker.com/career-spotlight-what-i-do-as-a-radiologist-1753790864)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-radiologist-1753790864>
 
 当你停下来想一想，我们可以用非侵入性技术彻底检查人体内部，这是多么令人惊讶。x 射线、核磁共振成像和 CT 扫描是诊断患者的重要工具，需要专门的放射科医生来使用这些成像技术。
 

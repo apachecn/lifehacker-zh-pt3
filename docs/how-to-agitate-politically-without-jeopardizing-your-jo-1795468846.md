@@ -1,6 +1,6 @@
 # 如何在不危及工作的情况下煽动政治
 
-> 原文:[https://life hacker . com/how-to-agitated-political-without-sustain-your-jo-1795468846](https://lifehacker.com/how-to-agitate-politically-without-jeopardizing-your-jo-1795468846)
+> 原文：<https://lifehacker.com/how-to-agitate-politically-without-jeopardizing-your-jo-1795468846>
 
 当前的政治气候引发了前所未有的政治激进主义，无论是左翼还是右翼。这太好了！公民参与公民行动主义，公开参与制定政策，这对民主有好处。但这些活动人士中有许多是新活动人士，初来乍到，可能不知道什么样的公共政治活动会让他们在雇主那里惹上麻烦。以 Sally Avelenda 为例，她是新泽西州一个团体的成员，该团体向其代表 Rodney Frelinghuysen 施压，要求其对选民做出回应。
 

@@ -1,6 +1,6 @@
 # 微软的 Groove 正在消失，所以转而使用 Spotify
 
-> 原文:[https://life hacker . com/Microsoft-groove-is-going-away-so-switch-to-Spotify-1819105715](https://lifehacker.com/microsoft-groove-is-going-away-so-switch-to-spotify-1819105715)
+> 原文：<https://lifehacker.com/microsoft-groove-is-going-away-so-switch-to-spotify-1819105715>
 
 如果你是少数使用微软 Groove Music 应用程序和 Groove Music Pass 流媒体服务的人之一，那么坏消息是:该公司将在年底停止 Groove Music Pass 订阅以及使用 Groove Music 应用程序播放、购买或下载音乐的功能。相反，微软正在与 Spotify 合作，让用户将精选的 Groove 音乐内容转移到流媒体服务。
 

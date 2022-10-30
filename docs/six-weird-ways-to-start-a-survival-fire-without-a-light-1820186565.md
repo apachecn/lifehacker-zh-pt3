@@ -1,6 +1,6 @@
 # 六种不用打火机或火柴生火的奇怪方法
 
-> 原文:[https://life hacker . com/six-verged-ways-to-start-a-survive-fire-with a light-1820186565](https://lifehacker.com/six-weird-ways-to-start-a-survival-fire-without-a-light-1820186565)
+> 原文：<https://lifehacker.com/six-weird-ways-to-start-a-survival-fire-without-a-light-1820186565>
 
 你需要火的时间和你有东西容易引火的时间不一定重合。在这些情况下，当你的生存依赖于保暖时，你必须创造性地利用你能找到的东西。这六种方法使用一些不寻常的工具将干柴变成温暖的篝火。
 

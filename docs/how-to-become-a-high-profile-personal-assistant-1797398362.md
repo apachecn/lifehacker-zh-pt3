@@ -1,6 +1,6 @@
 # 如何成为一名高知名度的私人助理
 
-> 原文:[https://life hacker . com/how-to-be-a-high-profile-personal-assistant-1797398362](https://lifehacker.com/how-to-become-a-high-profile-personal-assistant-1797398362)
+> 原文：<https://lifehacker.com/how-to-become-a-high-profile-personal-assistant-1797398362>
 
 在 [《助理经济》、](https://www.dissentmagazine.org/article/the-assistant-economy) 中，《异议》杂志分析了“私人助理”的特权和特殊职业道路，他们为一个高调的专业人士服务，通常在创意领域，从事的工作通常没有直接的晋升机会(电影导演不能训练你去取代他们)，而是有很多间接的晋升机会。几个实用的小技巧:
 

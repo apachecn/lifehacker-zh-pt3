@@ -1,6 +1,6 @@
 # 九月的金钱挑战:没有餐馆消费
 
-> 原文:[https://life hacker . com/septembers-money-challenge-no-restaurant-expansion-1798515491](https://lifehacker.com/septembers-money-challenge-no-restaurant-spending-1798515491)
+> 原文：<https://lifehacker.com/septembers-money-challenge-no-restaurant-spending-1798515491>
 
 信不信由你，是时候开始为假期存钱了。礼物、旅行、聚会——这些开销会很快向你袭来，所以你想尽快做好准备(也就是现在)。为了帮助你省钱，这个月我们挑战你减少一个常见的挥霍:餐馆。
 

@@ -1,6 +1,6 @@
 # 如何获得免费的“博物馆日”门票
 
-> 原文:[https://life hacker . com/how-to-get-free-museum-day-tickets-1829229350](https://lifehacker.com/how-to-get-free-museum-day-tickets-1829229350)
+> 原文：<https://lifehacker.com/how-to-get-free-museum-day-tickets-1829229350>
 
 每年都有一天，全美有近 1500 家博物馆免费向游客开放。但是你仍然需要票。
 

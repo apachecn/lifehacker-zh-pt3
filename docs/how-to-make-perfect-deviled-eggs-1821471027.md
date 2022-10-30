@@ -1,6 +1,6 @@
 # 如何制作完美的芥末蛋
 
-> 原文:[https://life hacker . com/how-to-make-perfect-deviled-eggs-1821471027](https://lifehacker.com/how-to-make-perfect-deviled-eggs-1821471027)
+> 原文：<https://lifehacker.com/how-to-make-perfect-deviled-eggs-1821471027>
 
 花式炒鸡蛋已经成为一种趋势。似乎每个小酒馆和酒吧都提供了某种野餐经典的“升级版”，通常在上面放一点脆猪肉(甚至鱼子酱)。然而，你不需要在你的炒鸡蛋上放一片火腿脆片来保证它的美味；最好的是最简单的。
 

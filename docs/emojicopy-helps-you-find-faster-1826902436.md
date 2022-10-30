@@ -1,6 +1,6 @@
 # 发现💩使用 Emojicopy 更快
 
-> 原文:[https://life hacker . com/emojicopy-helps-you-find-fast-1826902436](https://lifehacker.com/emojicopy-helps-you-find-faster-1826902436)
+> 原文：<https://lifehacker.com/emojicopy-helps-you-find-faster-1826902436>
 
 Windows/Mac:前几天在我们的一个秘密 Lifehacker 聊天室里，我不经意地提到了 [Emojicopy](https://www.emojicopy.com/) 的存在，我惊讶地发现，没有其他人听说过这个网站。这让我开始思考:大多数人是如何找到表情符号并放入信息、博客帖子和其他重要文档中的？
 

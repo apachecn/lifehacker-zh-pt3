@@ -1,6 +1,6 @@
 # 如何根据标签判断一瓶酒
 
-> 原文:[https://the take out . com/how-to-just-a-bottle-of-a-bottle-the-label-1828030852](https://thetakeout.com/how-to-judge-a-bottle-of-wine-by-its-label-1828030852)
+> 原文：<https://thetakeout.com/how-to-judge-a-bottle-of-wine-by-its-label-1828030852>
 
 这种情况经常发生——你在去一个聚会的路上，在一家葡萄酒商店停下来，却被一排排没完没了的标签和品种搞得不知所措。难道你不想成为那个带着一瓶没人听说过的、价格低于 20 美元的好酒出现在派对上的人吗？相反，你很可能只是抓住一个熟悉的，毫无创意的选择(人们总是喜欢黑皮诺，对不对？).通常，我会从只剩下一两瓶的货架上抓起一瓶，推测其他人已经发现了一笔交易，所以我也应该这样做。
 

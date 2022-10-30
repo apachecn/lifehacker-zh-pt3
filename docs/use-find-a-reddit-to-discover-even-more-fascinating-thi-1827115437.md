@@ -1,6 +1,6 @@
 # 使用“找一个 Reddit”来发现更多有趣的事情来消磨时间
 
-> 原文:[https://life hacker . com/use-find-a-Reddit-to-discover-even-more-incoming-thi-1827115437](https://lifehacker.com/use-find-a-reddit-to-discover-even-more-fascinating-thi-1827115437)
+> 原文：<https://lifehacker.com/use-find-a-reddit-to-discover-even-more-fascinating-thi-1827115437>
 
 Reddit 有时可能很疯狂，但它是一个很大的时间浪费者——这一点毋庸置疑。虽然在偶尔的停机时间浏览 [/r/videos](https://www.reddit.com/r/videos/comments/8qo7li/girl_immediately_recognizes_an_flist_celebrity/) 和 [/r/aww](https://www.reddit.com/r/aww/comments/8pm7ta/left_dog_with_interns_at_work_came_back_to_this/) 很有趣(这变成了延长的可爱- 动物休息时间)，但当我可以自娱自乐*和*感觉自己在学习一些东西时，我发现这个网站更加迷人。
 

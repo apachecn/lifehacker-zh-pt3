@@ -1,6 +1,6 @@
 # 职业聚焦:我作为土地测量员的工作
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-land-surveyor-1747354734](https://lifehacker.com/career-spotlight-what-i-do-as-a-land-surveyor-1747354734)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-land-surveyor-1747354734>
 
 当涉及到土地所有权时，必须有人来划定界限。你不能决定把栅栏放在任何你想放的地方。土地测量员的工作是在大规模和小规模上定义合法的地产边界，无论是在城市环境还是偏远的荒野。
 

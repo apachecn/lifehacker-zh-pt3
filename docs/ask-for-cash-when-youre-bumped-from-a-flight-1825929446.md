@@ -1,6 +1,6 @@
 # 当你被赶下飞机时，要现金
 
-> 原文:[https://life hacker . com/ask-for-cash-when you-bumped-from a-flight-1825929446](https://lifehacker.com/ask-for-cash-when-youre-bumped-from-a-flight-1825929446)
+> 原文：<https://lifehacker.com/ask-for-cash-when-youre-bumped-from-a-flight-1825929446>
 
 航空公司不满足于目前与飞行相关的痛苦程度，正在超额预订比以往更多的航班，并将客户推到更晚的航班上，以努力确保你不仅可以期待挤在两个陌生人之间，其中一个不可避免地会在你身上睡着，而另一个——显然不熟悉 [肥皂或沐浴露](https://lifehacker.com/body-wash-is-a-scam-and-you-fell-for-it-1825919775#_ga=2.40715178.948313174.1525724811-594046802.1524762060)——在没有耳机的情况下以最大音量观看电影，但你会错过你本来要乘飞机参加的任何活动。
 

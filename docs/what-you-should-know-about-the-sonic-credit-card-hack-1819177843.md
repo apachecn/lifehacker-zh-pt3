@@ -1,6 +1,6 @@
 # 你应该知道的声波信用卡黑客
 
-> 原文:[https://life hacker . com/what-you-should-known-the-sonic-credit-card-hack-1819177843](https://lifehacker.com/what-you-should-know-about-the-sonic-credit-card-hack-1819177843)
+> 原文：<https://lifehacker.com/what-you-should-know-about-the-sonic-credit-card-hack-1819177843>
 
 昨天，快餐连锁店 [Sonic 发布了一份声明](http://www.businesswire.com/news/home/20171004006270/en/SONIC-Drive-In-Notice-Payment-Card-Breach) 承认，在今年的一次恶意软件攻击后，客户的信用卡和借记卡信息可能被盗。我们现在知道该怎么做了，对吧？
 

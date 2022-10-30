@@ -1,6 +1,6 @@
 # 如何像专家一样吃点心，第二部分
 
-> 原文:[https://the take out . com/how-to-eat-dim-sum-like-an-expert-part-2-1823559650](https://thetakeout.com/how-to-eat-dim-sum-like-an-expert-part-2-1823559650)
+> 原文：<https://thetakeout.com/how-to-eat-dim-sum-like-an-expert-part-2-1823559650>
 
 在这个正在进行的系列的第一部分 中，我们探索了点心最受欢迎的地方，以及我——作为一个在香港长大的点心迷——在区分好的和仅仅够用的方面寻找什么。这一次，我们深入探讨了另外六种主食，以及为了达到点心专家的熟练程度而需要注意的标志。
 

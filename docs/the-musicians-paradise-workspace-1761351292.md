@@ -1,6 +1,6 @@
 # 音乐家的天堂工作区
 
-> 原文:[https://life hacker . com/the-museums-paradise-workspace-1761351292](https://lifehacker.com/the-musicians-paradise-workspace-1761351292)
+> 原文：<https://lifehacker.com/the-musicians-paradise-workspace-1761351292>
 
 读者 [杰森·伯恩斯](https://www.flickr.com/photos/140318854@N06/) 是一名音乐家，在他的家庭工作室做很多工作。我们已经看到了许多工作室，但这个工作室充分利用了空间，包含了大量的设备，很明显杰森生活和呼吸着他的音乐。
 

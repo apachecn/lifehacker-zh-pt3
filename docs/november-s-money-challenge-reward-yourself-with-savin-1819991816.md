@@ -1,6 +1,6 @@
 # 11 月的金钱挑战:奖励自己(用储蓄)
 
-> 原文:[https://life hacker . com/November-s-money-challenge-reward-yourself with-savin-1819991816](https://lifehacker.com/november-s-money-challenge-reward-yourself-with-savin-1819991816)
+> 原文：<https://lifehacker.com/november-s-money-challenge-reward-yourself-with-savin-1819991816>
 
 现在是 11 月，这意味着是时候迎接另一个全新的金钱挑战了。这个月，我们希望你奖励自己——当然是用储蓄。
 

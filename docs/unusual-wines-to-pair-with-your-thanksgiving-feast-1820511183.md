@@ -1,6 +1,6 @@
 # 不同寻常的葡萄酒来搭配你的感恩节大餐
 
-> 原文:[https://life hacker . com/unregular-wines-to-pair-with-your ' s 感恩节大餐-1820511183](https://lifehacker.com/unusual-wines-to-pair-with-your-thanksgiving-feast-1820511183)
+> 原文：<https://lifehacker.com/unusual-wines-to-pair-with-your-thanksgiving-feast-1820511183>
 
 传统观点会告诉你，火鸡大餐的最佳搭配是由黑比诺或加梅葡萄制成的红酒和由霞多丽或长相思制成的白酒。偶尔，美国的仙粉黛，庆祝香槟，或白葡萄酒，如白诗宁，雷司令，或琼瑶浆也会受到邀请。这些都是常见的葡萄酒嫌疑人，原因很简单:它们非常适合搭配标准的感恩节主食。
 

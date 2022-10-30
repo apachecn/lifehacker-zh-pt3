@@ -1,6 +1,6 @@
 # 如何教你的孩子识别假新闻
 
-> 原文:[https://life hacker . com/how-to-teach-your-kids-to-spot-fake-news-1820985245](https://lifehacker.com/how-to-teach-your-kids-to-spot-fake-news-1820985245)
+> 原文：<https://lifehacker.com/how-to-teach-your-kids-to-spot-fake-news-1820985245>
 
 如何教孩子识别假新闻？第一:教大家识破假新闻。当我还是个孩子的时候，我的父母只能接触到几个新闻来源:我们当地的报纸，大城市的日报(对我们来说，华盛顿邮报和 T2 纽约时报)以及晚间新闻。今天的孩子有...整个互联网，每一个疯狂的理论和假登月都唾手可得。甚至“媒体”和“新闻”之间的区别也模糊到了许多成年人根本不知道是否有人可以信任的地步。
 

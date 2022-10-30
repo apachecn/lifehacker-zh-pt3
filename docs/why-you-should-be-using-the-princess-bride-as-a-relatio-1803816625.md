@@ -1,6 +1,6 @@
 # 如何使用公主新娘作为关系指南
 
-> 原文:[https://life hacker . com/why-you-should-use-the-princess-bride-as-a-relation-1803816625](https://lifehacker.com/why-you-should-be-using-the-princess-bride-as-a-relatio-1803816625)
+> 原文：<https://lifehacker.com/why-you-should-be-using-the-princess-bride-as-a-relatio-1803816625>
 
 30 年前，当《公主新娘》*被搬上大银幕时，伊森·尼特恩 才 9 岁。他当时看这部电影是因为家庭关系——尼特恩的父亲是演员克里斯多弗·盖斯特最好的朋友，又名鲁根伯爵，又名六指人。* 
 

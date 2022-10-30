@@ -1,6 +1,6 @@
 # iPhone 7 终于有了无线充电保护套
 
-> 原文:[https://life hacker . com/wireless-charging-just-get-easy-on-iphone-7-1795931873](https://lifehacker.com/wireless-charging-just-got-easier-on-iphone-7-1795931873)
+> 原文：<https://lifehacker.com/wireless-charging-just-got-easier-on-iphone-7-1795931873>
 
 手机电池组制造商摩尔菲 推出了我很长一段时间以来唯一想买的东西:无线充电盒。
 

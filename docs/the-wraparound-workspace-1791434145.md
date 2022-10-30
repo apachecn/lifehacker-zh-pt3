@@ -1,6 +1,6 @@
 # 环绕式工作空间
 
-> 原文:[https://lifehacker.com/the-wraparound-workspace-1791434145](https://lifehacker.com/the-wraparound-workspace-1791434145)
+> 原文：<https://lifehacker.com/the-wraparound-workspace-1791434145>
 
 当你有三个漂亮的曲面超宽显示器时，你会怎么做？将它们并排安装在一起，会有一种美妙的、像素丰富的超宽体验，就像 [elliotvs](https://www.reddit.com/user/elliotvs) 在他的工作区所做的那样。这里有一个近距离的观察。
 

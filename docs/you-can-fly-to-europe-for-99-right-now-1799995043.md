@@ -1,6 +1,6 @@
 # 你现在可以花 99 美元飞到欧洲
 
-> 原文:[https://life hacker . com/you-can-fly-to-Europe-for-99-right-now-1799995043](https://lifehacker.com/you-can-fly-to-europe-for-99-right-now-1799995043)
+> 原文：<https://lifehacker.com/you-can-fly-to-europe-for-99-right-now-1799995043>
 
 你可以通过冰岛廉价航空公司 WOW Air 以低至 99 美元的价格购买某些美国至欧洲的航班，该公司最近扩展到了四个中西部城市。
 

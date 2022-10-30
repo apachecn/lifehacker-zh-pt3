@@ -1,6 +1,6 @@
 # 2018 年少用手机
 
-> 原文:[https://life hacker . com/use-your-phone-less-in-2018-1821535200](https://lifehacker.com/use-your-phone-less-in-2018-1821535200)
+> 原文：<https://lifehacker.com/use-your-phone-less-in-2018-1821535200>
 
 你的脖子现在感觉如何？不太好？可能是因为你一直低头看手机，如果你继续这样下去，这一举动会让你 [比](https://lifehacker.com/this-is-what-looking-down-at-your-cell-phone-does-to-yo-1660637854) 更头疼。2018 年抛弃坏习惯， [把口袋电脑留在口袋里](https://lifehacker.com/you-dont-need-to-give-up-your-smartphone-you-just-need-5979449) 而不是每隔 30 秒就把它拿出来。为了你的理智，我们有一些方法来帮助你度过忽视邮件和短信的艰难时期。
 

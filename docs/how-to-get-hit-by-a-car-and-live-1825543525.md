@@ -1,6 +1,6 @@
 # 如何被车撞了还能活下来
 
-> 原文:[https://life hacker . com/how-to-get-hit-by-a-car-and-live-1825543525](https://lifehacker.com/how-to-get-hit-by-a-car-and-live-1825543525)
+> 原文：<https://lifehacker.com/how-to-get-hit-by-a-car-and-live-1825543525>
 
 你走进一条你以为空无一人的街道，然后你听到了它。一辆汽车向你倾斜过来，司机猛踩刹车，轮胎发出刺耳的声音。你只有不到一秒钟的时间做出反应并拯救你的生命。你应该这么做。
 

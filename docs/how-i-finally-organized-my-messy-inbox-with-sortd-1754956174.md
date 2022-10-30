@@ -1,6 +1,6 @@
 # 我最终是如何用 Sortd 整理杂乱的收件箱的
 
-> 原文:[https://life hacker . com/how-I-finally-organized-my-dirty-inbox-with-sortd-1754956174](https://lifehacker.com/how-i-finally-organized-my-messy-inbox-with-sortd-1754956174)
+> 原文：<https://lifehacker.com/how-i-finally-organized-my-messy-inbox-with-sortd-1754956174>
 
 我已经尝试了几十种清理收件箱的方法，到目前为止，Chrome 的 [Sortd](http://www.sortd.com/) 扩展最能帮助我以工作的方式使用和组织电子邮件。Sortd 将 Gmail 转换成一个拖放式的工作空间，其中包含多列可定制的列表。就像 [生活整理 web app](http://lifehacker.com/how-to-use-trello-to-organize-your-entire-life-1683821040)[Trello](http://trello.com)一样，但是对于电子邮件来说。
 

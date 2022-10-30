@@ -1,6 +1,6 @@
 # 这些是 2018 年《消费者报告》称将行驶超过 20 万英里的汽车
 
-> 原文:[https://jalopnik . com/these-is-the-2018-cars-consumer-reports-says-will-make-1823932567](https://jalopnik.com/these-are-the-2018-cars-consumer-reports-says-will-make-1823932567)
+> 原文：<https://jalopnik.com/these-are-the-2018-cars-consumer-reports-says-will-make-1823932567>
 
 虽然现在租赁比以往任何时候都更受欢迎，但许多人仍然想长期购买新车。如果你打算买一辆 2018 年款的新车，并希望与它建立长期而令人满意的关系， [*《消费者报告》*](https://www.consumerreports.org/car-reliability-owner-satisfaction/10-best-cars-to-get-to-200000-miles-and-beyond/) 有几辆车应该在你的购物清单上——尽管它们都不太令人惊讶。
 

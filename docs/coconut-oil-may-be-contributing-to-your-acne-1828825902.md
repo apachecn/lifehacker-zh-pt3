@@ -1,6 +1,6 @@
 # 椰子油可能有助于你的痤疮
 
-> 原文:[https://life hacker . com/coconut-oil-may-be-contributed-to-your ' s acne-1828825902](https://lifehacker.com/coconut-oil-may-be-contributing-to-your-acne-1828825902)
+> 原文：<https://lifehacker.com/coconut-oil-may-be-contributing-to-your-acne-1828825902>
 
 椰子油对你的头发很有好处，有些人还把它用在皮肤上。但似乎每次我看到有人称赞保湿产品，他们的下一个抱怨就是他们需要想办法摆脱顽固的粉刺。
 

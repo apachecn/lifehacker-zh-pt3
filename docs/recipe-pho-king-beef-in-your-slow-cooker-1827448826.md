@@ -1,6 +1,6 @@
 # 用你的慢炖锅做牛肉
 
-> 原文:[https://the take out . com/recipe-pho-king-beef-in-your-slow-cooker-1827448826](https://thetakeout.com/recipe-pho-king-beef-in-your-slow-cooker-1827448826)
+> 原文：<https://thetakeout.com/recipe-pho-king-beef-in-your-slow-cooker-1827448826>
 
 *欢迎来到* [***慢炖锅周***](https://thetakeout.com/tag/slow-cooker-week) *，其中*外卖*在盛夏使用它最喜欢的冷天厨房电器。*
 

@@ -1,6 +1,6 @@
 # 根据美国忍者战士杰西·格拉夫的说法，如何培养一个有韧性的孩子
 
-> 原文:[https://life hacker . com/how-to-raise-a-resilient-kid-by-American-nin-1826808946](https://lifehacker.com/how-to-raise-a-resilient-kid-according-to-american-nin-1826808946)
+> 原文：<https://lifehacker.com/how-to-raise-a-resilient-kid-according-to-american-nin-1826808946>
 
 如果有人对坠落略知一二，那就是杰西·格拉夫。但是对于这位美国忍者战士来说，重要的是重新站起来。通过一个名为 [特技替身演员、](https://www.nexcare.com/3M/en_US/nexcare/toughlove/) 的新视频系列，格拉夫教自称“直升机”的父母如何让孩子冒险，甚至——*喘气*——失败。我们问格拉夫，妈妈和爸爸们可以做些什么来培养孩子在生理和心理上都有弹性、自信和坚韧。
 

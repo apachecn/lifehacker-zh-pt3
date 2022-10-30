@@ -1,6 +1,6 @@
 # 3D Touch 的 10 大优势——以及我们希望它做到的事情
 
-> 原文:[https://gizmodo . com/the-10-best-things-to-do-with-3d-touch-and-the-things-1733554205](https://gizmodo.com/the-10-best-things-to-do-with-3d-touch-and-the-things-1733554205)
+> 原文：<https://gizmodo.com/the-10-best-things-to-do-with-3d-touch-and-the-things-1733554205>
 
 毫无疑问，新款 iPhone 6s 和 6s plus 最酷的功能之一是 3D Touch，这种微妙的触摸机制可以让你以极快的速度快速访问常见任务。以下是迄今为止我们最喜欢的 10 个快捷方式。
 

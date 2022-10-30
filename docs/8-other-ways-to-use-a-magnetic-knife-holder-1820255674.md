@@ -1,6 +1,6 @@
 # 磁性刀架的不同使用方法
 
-> 原文:[https://life hacker . com/8-other-way-to-use-a-magnetic-knife-holder-1820255674](https://lifehacker.com/8-other-ways-to-use-a-magnetic-knife-holder-1820255674)
+> 原文：<https://lifehacker.com/8-other-ways-to-use-a-magnetic-knife-holder-1820255674>
 
 磁性刀架是保持刀具准备就绪的好方法，当然，但它们也有助于保持其他家居用品井然有序，便于拿取。(也就是说，如果它们里面有大量的金属，比如钻头或回形针。)下面是在你的浴室、办公室、车间和厨房使用磁刀带的其他策略。
 

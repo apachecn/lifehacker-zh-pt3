@@ -1,6 +1,6 @@
 # 如何防止你的 Pixel XL 上出现错误的 Android Pie 更新
 
-> 原文:[https://life hacker . com/how-to-prevent-the-buggy-Android-pie-update-on-your-pix-1828336344](https://lifehacker.com/how-to-prevent-the-buggy-android-pie-update-on-your-pix-1828336344)
+> 原文：<https://lifehacker.com/how-to-prevent-the-buggy-android-pie-update-on-your-pix-1828336344>
 
 如果你是 Pixel XL 用户，并且一直在拖延更新你的手机到 Android Pie，你可能想要完全推迟。
 

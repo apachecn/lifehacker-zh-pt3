@@ -1,6 +1,6 @@
 # 如何在不损伤背部的情况下移动家具
 
-> 原文:[https://life hacker . com/how-to-move-furniture-without-destroying-your back-1822966383](https://lifehacker.com/how-to-move-furniture-without-destroying-your-back-1822966383)
+> 原文：<https://lifehacker.com/how-to-move-furniture-without-destroying-your-back-1822966383>
 
 没有什么比躺在沙发上，自豪地凝视着你刚刚搬进的新家更好的了。也就是说，除非你躺在沙发上的原因是因为搬家具时扭伤了背部。如果你不习惯拿重物(即使你习惯)，在把你的床或沙发放回原位时，你很容易受伤。你弯曲，抬起，扭曲，倾斜，然后断裂！一道闪电击中了你的脊椎，让你在接下来的一天里都无法动弹。或者接下来的六个月。
 

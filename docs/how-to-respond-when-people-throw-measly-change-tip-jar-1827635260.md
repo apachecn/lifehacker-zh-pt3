@@ -1,6 +1,6 @@
 # 问那个咸味十足的女服务员:当人们把少得可怜的零钱扔进我的小费罐时，我该如何回应？
 
-> 原文:[https://the take out . com/how-to-response-when-people-throw-measly-change-tip-jar-1827635260](https://thetakeout.com/how-to-respond-when-people-throw-measly-change-tip-jar-1827635260)
+> 原文：<https://thetakeout.com/how-to-respond-when-people-throw-measly-change-tip-jar-1827635260>
 
 > 亲爱的 Salty:我在一家社区烧烤店(热狗、汉堡店)工作，顾客会走到柜台前点餐。很多时候，顾客会付现金，我会把大约 6 美分的零钱还给他。大多数时候，顾客会把 6 美分扔进我们的小费罐里。承认这一点我觉得很奇怪。如果我说“谢谢”，这听起来很滑稽(“我会把这六美分花在今晚的高级牛排晚餐上！”).但是什么也不说也感觉很没礼貌。当顾客向我们的小费罐中投入无关紧要的金额时，我应该如何回应？
 > 

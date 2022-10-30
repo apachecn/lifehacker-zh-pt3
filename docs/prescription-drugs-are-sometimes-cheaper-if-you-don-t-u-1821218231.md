@@ -1,6 +1,6 @@
 # 如果你不使用你的保险，处方药有时会更便宜
 
-> 原文:[https://life hacker . com/处方药有时会更便宜](https://lifehacker.com/prescription-drugs-are-sometimes-cheaper-if-you-don-t-u-1821218231)
+> 原文：<https://lifehacker.com/prescription-drugs-are-sometimes-cheaper-if-you-don-t-u-1821218231>
 
 处方药的价格是如此不透明、不稳定和全面混乱，以至于有时你可以假装你甚至没有保险来获得更好的交易。一份 [ProPublica 报告](https://www.propublica.org/article/when-buying-prescription-drugs-some-pay-more-with-insurance-than-without-it) 称，这种情况可能高达 10%。
 

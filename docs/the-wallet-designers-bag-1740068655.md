@@ -1,6 +1,6 @@
 # 钱包设计师的包
 
-> 原文:[https://lifehacker.com/the-wallet-designers-bag-1740068655](https://lifehacker.com/the-wallet-designers-bag-1740068655)
+> 原文：<https://lifehacker.com/the-wallet-designers-bag-1740068655>
 
 做一名产品设计师是一项艰苦的工作，需要各种工具。举个例子， [Bellroy](http://bellroy.com/) 联合创始人兼设计师与 Carry 分享了他的包。
 

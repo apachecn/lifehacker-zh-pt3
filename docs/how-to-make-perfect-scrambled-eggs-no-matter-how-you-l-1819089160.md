@@ -1,6 +1,6 @@
 # 如何做出完美的炒鸡蛋，不管你有多喜欢
 
-> 原文:[https://life hacker . com/how-to-make-perfect-scrambled-eggs-o-matter-how-you-l-1819089160](https://lifehacker.com/how-to-make-perfect-scrambled-eggs-no-matter-how-you-l-1819089160)
+> 原文：<https://lifehacker.com/how-to-make-perfect-scrambled-eggs-no-matter-how-you-l-1819089160>
 
 炒鸡蛋是一种看起来超级简单的欺骗性食物，在某种程度上这是真的(拿一个鸡蛋，炒一炒)。但是实际上很难把它们做好，*。像橡胶一样的干凝乳不好，但是稀稀拉拉的也一样令人讨厌。不过不要担心，我们每次都会向你展示如何做出完美的炒鸡蛋，不管你喜欢什么样的。*
 

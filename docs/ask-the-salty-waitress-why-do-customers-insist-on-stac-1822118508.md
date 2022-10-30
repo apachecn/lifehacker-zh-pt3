@@ -1,6 +1,6 @@
 # 问咸味女服务员:为什么顾客坚持叠盘子？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-why-do-sustain-on-stac-1822118508](https://thetakeout.com/ask-the-salty-waitress-why-do-customers-insist-on-stac-1822118508)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-why-do-customers-insist-on-stac-1822118508>
 
 * * *
 

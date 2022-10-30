@@ -1,6 +1,6 @@
 # 在任何操作系统上安装 Android 的 ADB 和 Fastboot 工具的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-way-to-install-androids-ADB-and-fast boot-to-1586992378](https://lifehacker.com/the-easiest-way-to-install-androids-adb-and-fastboot-to-1586992378)
+> 原文：<https://lifehacker.com/the-easiest-way-to-install-androids-adb-and-fastboot-to-1586992378>
 
 如果你曾经尝试过 [root 你的安卓手机](https://lifehacker.com/everything-you-need-to-know-about-rooting-your-android-5789397) 或者 [flash a ROM](http://lifehacker.com/how-to-flash-a-rom-to-your-android-phone-30885281) ，你可能听说过 ADB 和/或 fastboot。这两个工具惊人地强大，但是安装起来有点过于复杂。下面是简单的方法。
 

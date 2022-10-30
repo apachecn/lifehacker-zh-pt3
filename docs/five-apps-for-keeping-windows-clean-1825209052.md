@@ -1,6 +1,6 @@
 # 保持 Windows 10 井然有序的最佳应用
 
-> 原文:[https://life hacker . com/five-apps-for-keeping-windows-clean-1825209052](https://lifehacker.com/five-apps-for-keeping-windows-clean-1825209052)
+> 原文：<https://lifehacker.com/five-apps-for-keeping-windows-clean-1825209052>
 
 没有人喜欢这样的操作系统，它充满了不必要的垃圾文件，20 个在你启动电脑时就会启动的烦人的应用程序，以及其他让你的系统变慢，让你的桌面感觉杂乱无章，或者在你试图工作(或游戏)时让你头疼的垃圾。谢天谢地，有很多免费的应用程序可以帮助你清理你的 Windows 电脑。
 

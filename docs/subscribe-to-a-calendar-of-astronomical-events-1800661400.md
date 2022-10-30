@@ -1,6 +1,6 @@
 # 订阅天文事件日历
 
-> 原文:[https://life hacker . com/subscribe-a-calendar-of-astronomical-events-1800661400](https://lifehacker.com/subscribe-to-a-calendar-of-astronomical-events-1800661400)
+> 原文：<https://lifehacker.com/subscribe-to-a-calendar-of-astronomical-events-1800661400>
 
 当你为美国的下一次日全食等待七年时，看看《纽约时报》 [天文事件日历](https://www.nytimes.com/interactive/2017/science/astronomy-space-calendar.html) 。订阅，永远不会错过另一场流星雨，火箭发射，或至日。
 

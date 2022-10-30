@@ -1,6 +1,6 @@
 # 不会让你讨厌锻炼的锻炼零食
 
-> 原文:[https://life hacker . com/workout-snacks-the-wont-won-to-won-make-you-hate-work-out-1822820376](https://lifehacker.com/workout-snacks-that-wont-make-you-hate-working-out-1822820376)
+> 原文：<https://lifehacker.com/workout-snacks-that-wont-make-you-hate-working-out-1822820376>
 
 事实证明，有意识地移动身体——运动员称之为“锻炼”——是成年后不感到疼痛的重要组成部分，事实证明，在摄入适量铁之前一小时吃一份陀螺砂锅是一个糟糕的计划。然而，我拒绝吃该死的蛋白质棒，所以我不得不在锻炼前的零食上有点创意。
 

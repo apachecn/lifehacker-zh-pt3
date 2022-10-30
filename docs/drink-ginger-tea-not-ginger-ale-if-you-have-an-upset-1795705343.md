@@ -1,6 +1,6 @@
 # 如果你胃不舒服，喝姜茶，不要喝姜汁汽水
 
-> 原文:[https://life hacker . com/drink-ginger-tea-not-ginger-ale-if-you-happen-1795705343](https://lifehacker.com/drink-ginger-tea-not-ginger-ale-if-you-have-an-upset-1795705343)
+> 原文：<https://lifehacker.com/drink-ginger-tea-not-ginger-ale-if-you-have-an-upset-1795705343>
 
 当你肚子不舒服的时候，你可能会认为喝姜汁汽水是最好的选择。但事实证明，苏打水对你的胃没什么好处，而且姜汁汽水里可能也没有真正的生姜。
 

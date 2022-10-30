@@ -1,6 +1,6 @@
 # 使用此服务从 100 多个不同的站点请求您的数据
 
-> 原文:[https://life hacker . com/request-your-data-over-100-different-sites-using-t-1826892866](https://lifehacker.com/request-your-data-from-over-100-different-sites-using-t-1826892866)
+> 原文：<https://lifehacker.com/request-your-data-from-over-100-different-sites-using-t-1826892866>
 
 几乎你在网上使用的每一项涉及用户名和密码的服务都在某种程度上收集你的信息。在某些情况下，这些信息可能只是你的电子邮件和一些识别数据点，如你的年龄或性别。在其他情况下，你会传递你喜欢和不喜欢的信息，你的朋友是谁，甚至你一天去了哪里。
 

@@ -1,6 +1,6 @@
 # 如何在空闲时切换到夜间模式
 
-> 原文:[https://life hacker . com/how-to-switch-to-night-mode-on-slack-1822842270](https://lifehacker.com/how-to-switch-to-night-mode-on-slack-1822842270)
+> 原文：<https://lifehacker.com/how-to-switch-to-night-mode-on-slack-1822842270>
 
 macOS:当然，Slack 可能是每个人的职场沟通应用，但这并不意味着它不会出错( [我甚至不会在@here](https://lifehacker.com/how-to-navigate-office-etiquette-on-slack-1818966577) 上开始使用)。以它亮白色的界面为例。对于朝九晚五的长时间工作来说，这可能很好，但如果你上夜班，或者只是在睡觉前快速发送一些邮件，所有这些#FFFFF 会 [扰乱你的睡眠周期](https://lifehacker.com/everything-you-need-to-know-about-how-light-affects-you-1782365372) 。取而代之的是使用 macOS 应用程序 Sblack，它可以将你的 Slack 应用程序转换成适合夜猫子而不是早起者的应用程序。
 

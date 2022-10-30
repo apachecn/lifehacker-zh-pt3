@@ -1,6 +1,6 @@
 # 洁净生产线主屏幕
 
-> 原文:[https://life hacker . com/the-clean-lines-home-screen-1745976197](https://lifehacker.com/the-clean-lines-home-screen-1745976197)
+> 原文：<https://lifehacker.com/the-clean-lines-home-screen-1745976197>
 
 有时候，美就是简单。我的彩屏用户 [sdk115](http://mycolorscreen.com/sdk115/) 的这个主屏幕可能没有太多内容，但它只向您显示您需要的内容。
 

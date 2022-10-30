@@ -1,6 +1,6 @@
 # 如何上传 PS4 保存数据到云端
 
-> 原文:[https://life hacker . com/how-to-upload-ps4-save-data-to-the-cloud-1828967753](https://lifehacker.com/how-to-upload-ps4-save-data-to-the-cloud-1828967753)
+> 原文：<https://lifehacker.com/how-to-upload-ps4-save-data-to-the-cloud-1828967753>
 
 如果您的 PlayStation 4 出现问题，需要修理或更换，您不需要丢失游戏保存数据。使用云备份，你可以事先上传你的所有信息，允许你快速下载它，并在你拿回系统后继续玩。
 

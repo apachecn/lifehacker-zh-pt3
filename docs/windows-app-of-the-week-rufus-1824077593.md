@@ -1,6 +1,6 @@
 # 本周 Windows 应用程序:Rufus
 
-> 原文:[https://life hacker . com/windows-app-of-the-week-rufus-1824077593](https://lifehacker.com/windows-app-of-the-week-rufus-1824077593)
+> 原文：<https://lifehacker.com/windows-app-of-the-week-rufus-1824077593>
 
 我们在 Lifehacker 上开始了一些新的每周专题:必备的，通常是免费的应用程序的简介。我们将在一周内按平台将它们分开，以防你是 Windows 或 macOS 的忠实用户，并发誓永远()不使用其他操作系统。
 

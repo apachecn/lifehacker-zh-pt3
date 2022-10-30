@@ -1,6 +1,6 @@
 # 告诉我们你的凤凰城，亚利桑那州的黑客
 
-> 原文:[https://life hacker . com/tell-us-your-phoenix-az-hacks-1819009521](https://lifehacker.com/tell-us-your-phoenix-az-hacks-1819009521)
+> 原文：<https://lifehacker.com/tell-us-your-phoenix-az-hacks-1819009521>
 
 凤凰城是亚利桑那州的首府和美国第五大城市，二战后，随着空调的出现，这座城市变得比农民和牧场主更加舒适。这个运河灌溉的城镇成为了一个真正的工业城市，是 IBM、PetSmart、U-Haul 和 Honeywell 的办公室所在地，拥有自由的建筑和房地产市场，经常超过需求。
 

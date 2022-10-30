@@ -1,6 +1,6 @@
 # 从你的信用卡中榨取更多奖励的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-squeeze-more-rewards-out-of-your-credit-1771374664](https://lifehacker.com/top-10-ways-to-squeeze-more-rewards-out-of-your-credit-1771374664)
+> 原文：<https://lifehacker.com/top-10-ways-to-squeeze-more-rewards-out-of-your-credit-1771374664>
 
 信用卡不仅仅是支付东西的便捷方式。如果运用得当，你可以获得用现金支付得不到的有价值的奖励和额外津贴。用这 10 大技巧最大化你的信用卡回报。
 

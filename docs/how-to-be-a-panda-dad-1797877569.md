@@ -1,6 +1,6 @@
 # 如何成为熊猫爸爸
 
-> 原文:[https://lifehacker.com/how-to-be-a-panda-dad-1797877569](https://lifehacker.com/how-to-be-a-panda-dad-1797877569)
+> 原文：<https://lifehacker.com/how-to-be-a-panda-dad-1797877569>
 
 你听说过虎妈，对吧？你知道，比妈妈更霸道。严格，要求高，有点(读:很多位)控制狂。但也是一个拥有你希望你的孩子吸收的优秀品质的人。勇气。开车。主动性。(嗨珍妮！你太棒了！)
 

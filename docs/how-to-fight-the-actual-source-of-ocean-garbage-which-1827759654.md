@@ -1,6 +1,6 @@
 # 如何对抗海洋垃圾的真正来源(不是稻草)
 
-> 原文:[https://life hacker . com/how-to-fight-the-actual-source-of-ocean-garbage-which-1827759654](https://lifehacker.com/how-to-fight-the-actual-source-of-ocean-garbage-which-1827759654)
+> 原文：<https://lifehacker.com/how-to-fight-the-actual-source-of-ocean-garbage-which-1827759654>
 
 我们能不能先别生塑料吸管的气了？有些人说*塑料吸管* [*又笨又没用*](https://earther.com/people-are-realizing-that-straws-suck-1822156363#_ga=2.78882000.536110202.1532099227-185079877.1532099227) 而另一些人指出*我是残疾人* [*我需要这些来喝*](https://earther.gizmodo.com/plastic-straw-bans-leave-out-people-with-disabilities-1827456627) 。如果海洋的命运根本不取决于塑料吸管会怎样？因为海洋中垃圾塑料的最大来源之一是捕鱼废料。
 

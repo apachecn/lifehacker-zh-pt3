@@ -1,6 +1,6 @@
 # 如何用你的亚马逊 Echo 或谷歌 Home 发送安卓短信
 
-> 原文:[https://life hacker . com/how-to-send-Android-text-messages-with-your-Amazon-echo-1822639048](https://lifehacker.com/how-to-send-android-text-messages-with-your-amazon-echo-1822639048)
+> 原文：<https://lifehacker.com/how-to-send-android-text-messages-with-your-amazon-echo-1822639048>
 
 用你的 [智能音箱](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716) 打电话已经是一种选择了(无论你更喜欢 [亚马逊的 Alexa AI](https://www.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-send-android-text-messages-with-your-amazon-echo-1822639048&asc_source=&nodeId=202136150&tag=kinjalifehackerlink-20) 还是 [Google Home 设备](https://support.google.com/googlehome/answer/7363847?co=GENIE.Platform%3DAndroid&hl=en) )，但发送 [短信](https://lifehacker.com/why-you-should-use-facebook-messenger-instead-of-sms-1796907913) 则完全是另一回事了。
 

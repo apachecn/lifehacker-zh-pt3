@@ -1,6 +1,6 @@
 # 过滤掉噪音
 
-> 原文:[https://lifehacker.com/filter-out-the-noise-1791820526](https://lifehacker.com/filter-out-the-noise-1791820526)
+> 原文：<https://lifehacker.com/filter-out-the-noise-1791820526>
 
 我们的生活似乎充满了忙碌、噪音、干扰和无意义的活动。如果我们能过滤掉所有的噪音，把注意力放在有意义的事情上，会怎么样？如果我们能找到静止而不是持续的分心会怎么样？
 

@@ -1,6 +1,6 @@
 # 为什么你的信用评分突然下降了 200 分
 
-> 原文:[https://life hacker . com/why-your-credit-score-突降 200 分-1822424590](https://lifehacker.com/why-your-credit-score-suddenly-dropped-by-200-points-1822424590)
+> 原文：<https://lifehacker.com/why-your-credit-score-suddenly-dropped-by-200-points-1822424590>
 
 当你收到一个财务应用程序的通知时，你正在做自己的事。上面写着“新的信用评分可用”，你打开应用程序，准备在中午分散注意力，却发现自从一个月前你最后一次检查以来，你的分数已经下降了 *200 分*。
 

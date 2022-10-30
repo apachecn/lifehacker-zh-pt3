@@ -1,6 +1,6 @@
 # 这些免费应用将帮助你避免晒伤
 
-> 原文:[https://life hacker . com/these-free-apps-will-help-you-since-1795975224](https://lifehacker.com/these-free-apps-will-help-you-avoid-sunburn-1795975224)
+> 原文：<https://lifehacker.com/these-free-apps-will-help-you-avoid-sunburn-1795975224>
 
 没有什么比在炎热的夏天去海滩或游泳池沐浴阳光更好的了——直到你回到家，意识到你已经被严重晒伤了。晒伤很糟糕，需要很长时间才能消除，而且当你周一看起来像只龙虾时，你会成为办公室的笑柄。
 

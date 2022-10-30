@@ -1,6 +1,6 @@
 # 如何应对成为现代公司的老员工
 
-> 原文:[https://life hacker . com/how-to-deal-to-be-a-older-employee-at-a-modern-co-1827392488](https://lifehacker.com/how-to-deal-with-being-an-older-employee-at-a-modern-co-1827392488)
+> 原文：<https://lifehacker.com/how-to-deal-with-being-an-older-employee-at-a-modern-co-1827392488>
 
 在公司，特别是那些专注于技术的公司，有很多关于多样性和包容性的讨论，但一个经常被忽视的边缘化群体是老年人。当然，根据你所在的行业和个人观点，什么是“老”会有很大的不同，但任何比大学毕业更接近退休的人对待工作的方式都是不同的。以下是你如何在一个似乎每年都在变年轻的职场中帮助自己。
 

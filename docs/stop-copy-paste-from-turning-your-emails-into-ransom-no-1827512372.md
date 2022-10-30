@@ -1,6 +1,6 @@
 # 不要把你的邮件复制粘贴成勒索信
 
-> 原文:[https://life hacker . com/stop-copy-paste-from-turning-your-emails-into-ransom-no-1827512372](https://lifehacker.com/stop-copy-paste-from-turning-your-emails-into-ransom-no-1827512372)
+> 原文：<https://lifehacker.com/stop-copy-paste-from-turning-your-emails-into-ransom-no-1827512372>
 
 你正在键入一封电子邮件，你从 Word 文档中粘贴了一些文本，突然你的电子邮件的一半与文档的字体相同。或者你把一个标题粘贴到谷歌文档中，它会以 48 磅的巨大文本显示出来。这种恼人的粘贴行为是大多数 Windows、MacOS 和 web 应用程序的默认设置。在发出的文件和电子邮件中，这会让你看起来很邋遢。以下是修复方法。
 

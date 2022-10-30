@@ -1,6 +1,6 @@
 # 在绩效评估中获得高分的五个技巧
 
-> 原文:[https://life hacker . com/five-tips-for-scoring-big-at-your-performance-review-1790410691](https://lifehacker.com/five-tips-for-scoring-big-at-your-performance-review-1790410691)
+> 原文：<https://lifehacker.com/five-tips-for-scoring-big-at-your-performance-review-1790410691>
 
 无论你对自己的工作有多满意，我们都愿意打赌你对自己的年度绩效评估毫无兴趣。你知道在日历年年底经常发生的通过仪式，你和你的经理坐下来，确定你对公司的贡献，你的未来目标是否一致，你是否超出了预期，以及是否有可能升职加薪。
 

@@ -1,6 +1,6 @@
 # 千万不要去时代广场和其他纽约市的小贴士
 
-> 原文:[https://life hacker . com/never-go-to-times-square-and-other-new-York-city-tips-1803757078](https://lifehacker.com/never-go-to-times-square-and-other-new-york-city-tips-1803757078)
+> 原文：<https://lifehacker.com/never-go-to-times-square-and-other-new-york-city-tips-1803757078>
 
 伊塔洛·卡尔维诺在他的小说《看不见的城市》中写道:“你并不喜欢一个城市的七七十个奇迹，而是它对你的一个问题的回答。”。欢迎来到 Hack Your City，Lifehacker 新推出的一系列针对城市的建议——有些来自我们，有些来自你。每个城市都有不同的工作方式，呈现自己的挑战，隐藏自己的秘密。对于游客和居民来说，每个地方都应该有自己的导游。
 

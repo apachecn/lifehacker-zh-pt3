@@ -1,6 +1,6 @@
 # 你可以用这些词来代替“非常”来加强你的写作
 
-> 原文:[https://life hacker . com/words-you-can-use-to-but-very-punch-up-your-wr-1819968755](https://lifehacker.com/words-you-can-use-instead-of-very-to-punch-up-your-wr-1819968755)
+> 原文：<https://lifehacker.com/words-you-can-use-instead-of-very-to-punch-up-your-wr-1819968755>
 
 学习如何写作就像学习如何演奏乐器:一旦你学会了基本规则——语法、拼写和标点——并且写出了技术上正确的句子，还有整个语法、措辞和风格的世界需要征服。这也是作家，比如音乐家，有自己的观点的地方:是写简单明了、不加修饰的散文更好，还是编织表达复杂、诗意情感的想象力更好？或者介于两者之间？对我来说，措辞很重要——我钦佩的作家在用词上很精确——我喜欢简洁明了、切中要害的句子。
 

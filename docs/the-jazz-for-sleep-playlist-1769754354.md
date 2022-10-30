@@ -1,6 +1,6 @@
 # 睡眠爵士乐播放列表
 
-> 原文:[https://life hacker . com/the-jazz-for-sleep-playlist-1769754354](https://lifehacker.com/the-jazz-for-sleep-playlist-1769754354)
+> 原文：<https://lifehacker.com/the-jazz-for-sleep-playlist-1769754354>
 
 尽管我很努力，但我不能在白噪音或雷雨声中睡着。我爱他们，但他们不适合我。另一方面，这个爵士乐播放列表可能会在我写完之前把我击垮。
 

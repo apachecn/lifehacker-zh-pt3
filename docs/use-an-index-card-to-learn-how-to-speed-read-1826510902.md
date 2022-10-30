@@ -1,6 +1,6 @@
 # 使用索引卡来学习如何快速阅读
 
-> 原文:[https://life hacker . com/use-an-index-card-to-learn-how-to-speed-read-1826510902](https://lifehacker.com/use-an-index-card-to-learn-how-to-speed-read-1826510902)
+> 原文：<https://lifehacker.com/use-an-index-card-to-learn-how-to-speed-read-1826510902>
 
 快速阅读是一项很难掌握的技能。有大量的书籍、讲座和文章致力于教人们学习技能的“正确”方法。本周， *Fast Company* [采访了一位写了一本关于主题的书的专家](https://www.fastcompany.com/40574769/how-to-train-yourself-to-become-a-speed-reader) ，以获得一些关于如何学习的快速而肮脏的提示。她的建议之一是:使用索引卡。
 

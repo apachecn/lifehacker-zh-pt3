@@ -1,6 +1,6 @@
 # 我是罗恩·阿内森，雪佛兰的执行总工程师，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Ron-arnes en-executive-chief-engineer-for-Chevrolet-1734966497](https://lifehacker.com/im-ron-arnesen-executive-chief-engineer-for-chevrolet-1734966497)
+> 原文：<https://lifehacker.com/im-ron-arnesen-executive-chief-engineer-for-chevrolet-1734966497>
 
 从头开始设计一辆汽车，从道路到车顶，是一项巨大的合作事业，需要有人来指导汽车的开发。在雪佛兰，罗恩·阿内森就是这样一位高管，他负责雪佛兰迈锐宝的设计和开发。
 

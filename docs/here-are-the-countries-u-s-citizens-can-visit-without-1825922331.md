@@ -1,6 +1,6 @@
 # 以下是美国公民可以免签证访问的国家
 
-> 原文:[https://life hacker . com/here-are-the-countries-u-s-citizens-can-visit-without-1825922331](https://lifehacker.com/here-are-the-countries-u-s-citizens-can-visit-without-1825922331)
+> 原文：<https://lifehacker.com/here-are-the-countries-u-s-citizens-can-visit-without-1825922331>
 
 如果你是持有有效护照的美国公民，你可以比大多数其他国家的公民自由地去世界上更多的地方，这可能比你意识到的要多得多。你所需要的只是一些假期和一张机票。
 

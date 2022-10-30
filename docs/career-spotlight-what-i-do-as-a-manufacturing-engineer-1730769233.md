@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名制造工程师，我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-a-a-manufacturing-engineer-1730769233](https://lifehacker.com/career-spotlight-what-i-do-as-a-manufacturing-engineer-1730769233)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-manufacturing-engineer-1730769233>
 
 当一个设备运行良好时，你可能很少考虑它是如何制造的，更不用说成千上万个设备是如何制造的了。有很多公众强调设计——但是弄清楚如何大规模复制某样东西本身就是一项工程壮举。
 

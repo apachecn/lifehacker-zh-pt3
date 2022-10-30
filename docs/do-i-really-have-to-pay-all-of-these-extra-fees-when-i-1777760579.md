@@ -1,6 +1,6 @@
 # 当我买车的时候，我真的需要支付所有这些额外的费用吗？
 
-> 原文:[https://jalopnik . com/do-I-really-have-to-pay-all-of-these-extra-fees-when-I-1777760579](https://jalopnik.com/do-i-really-have-to-pay-all-of-these-extra-fees-when-i-1777760579)
+> 原文：<https://jalopnik.com/do-i-really-have-to-pay-all-of-these-extra-fees-when-i-1777760579>
 
 仅仅因为你在下一辆车上谈了很多，并不意味着你能控制总成本。有些人去经销商那里，对附加在价格上的所有额外费用感到震惊，但有几种方法可以辨别哪些是合法的，哪些是伪造的。
 

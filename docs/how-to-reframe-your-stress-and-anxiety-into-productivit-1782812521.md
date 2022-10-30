@@ -1,6 +1,6 @@
 # 如何将你的压力和焦虑转化为生产力
 
-> 原文:[https://life hacker . com/how-to-reframe-your-stress and-anxiety-to-productivit-1782812521](https://lifehacker.com/how-to-reframe-your-stress-and-anxiety-into-productivit-1782812521)
+> 原文：<https://lifehacker.com/how-to-reframe-your-stress-and-anxiety-into-productivit-1782812521>
 
 开始的时候很慢。心跳加速。口干。一滴汗水从你的太阳穴慢慢滚到你的脸颊。然后*重击*。一拳打在肚子上。压力。人生难免。然而，我们中的许多人认为这是我们无法控制的事情。或者更糟，一些我们应该埋葬和忽略的东西。
 

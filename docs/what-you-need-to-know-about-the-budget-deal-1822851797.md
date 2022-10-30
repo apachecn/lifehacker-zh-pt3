@@ -1,6 +1,6 @@
 # 关于预算交易，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-the-budget-deal-1822851797](https://lifehacker.com/what-you-need-to-know-about-the-budget-deal-1822851797)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-budget-deal-1822851797>
 
 肯塔基州参议员兰德·保罗为您带来了政府短暂关闭后，国会在周五早上设法通过了一项预算协议——这是三周内的第二次关闭。特朗普总统 [签署法案](https://www.wsj.com/articles/house-passes-two-year-budget-deal-1518172770?mod=e2tw) 后不久。
 

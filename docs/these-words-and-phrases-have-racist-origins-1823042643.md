@@ -1,6 +1,6 @@
 # 这些单词和短语有种族主义的起源
 
-> 原文:[https://life hacker . com/these-words-and-phrases-have-racistic-origins-1823042643](https://lifehacker.com/these-words-and-phrases-have-racist-origins-1823042643)
+> 原文：<https://lifehacker.com/these-words-and-phrases-have-racist-origins-1823042643>
 
 英语在不断发展，新单词和短语像传染病一样在我们中间传播——我们听到一些东西，然后我们说这些东西。问题是我们并不总是费心去想我们是否应该。正因为如此，一些贬低和仇恨的表达方式的原意在时间中消失了。这里有一些广泛使用的例子。
 

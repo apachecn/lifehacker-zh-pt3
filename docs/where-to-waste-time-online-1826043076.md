@@ -1,6 +1,6 @@
 # 网上浪费时间的地方
 
-> 原文:[https://life hacker . com/where-to-waste-time-online-1826043076](https://lifehacker.com/where-to-waste-time-online-1826043076)
+> 原文：<https://lifehacker.com/where-to-waste-time-online-1826043076>
 
 你去哪里浪费时间上网？脸书和推特，通常默认的答案，令人精疲力尽。在它们之间滚动感觉像是工作。 [“我再也不知道如何在互联网上浪费时间了，”](http://nymag.com/selectall/2018/05/i-dont-know-how-to-waste-time-on-the-internet-anymore.html) 丹·诺索维兹在互联网文化博客 Select All 中说道。我们同意他的观点，人们太容易陷入无聊和消极的社交网络。但我们不同意互联网没有任何有趣、疯狂的地方。如果你已经忘记了如何在网上浪费时间，试试这些网站，快乐地消磨时光。
 

@@ -1,6 +1,6 @@
 # 游戏、饮食和摄影日常包
 
-> 原文:[https://life hacker . com/the-gaming-eating-and-photography-daily-bag-1745296512](https://lifehacker.com/the-gaming-eating-and-photography-daily-bag-1745296512)
+> 原文：<https://lifehacker.com/the-gaming-eating-and-photography-daily-bag-1745296512>
 
 我们大多数人不需要在包里放太复杂的东西，但我们确实需要为生活中的三件重要事情做好准备:游戏、拍照和吃饭。Lifehacker 的读者 Cole Ewert 已经为这三种情况(甚至更多)做好了准备。
 

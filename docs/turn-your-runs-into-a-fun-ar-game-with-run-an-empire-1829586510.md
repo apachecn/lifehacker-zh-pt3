@@ -1,6 +1,6 @@
 # 通过“经营一个帝国”，将您的跑步变成一个有趣的 AR 游戏
 
-> 原文:[https://life hacker . com/turn-your-runs-into-a-fun-ar-game-with-run-an-empire-1829586510](https://lifehacker.com/turn-your-runs-into-a-fun-ar-game-with-run-an-empire-1829586510)
+> 原文：<https://lifehacker.com/turn-your-runs-into-a-fun-ar-game-with-run-an-empire-1829586510>
 
 跑步一直是我需要某种动力的事情之一。为了我的健康，周六出去跑步？我不去了。周六出去跑步，这样我就可以在 FitBit 挑战赛中击败我所有的朋友？现在我们在谈话。
 

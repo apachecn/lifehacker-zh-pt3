@@ -1,6 +1,6 @@
 # 游泳课不能淹死你的孩子
 
-> 原文:[https://life hacker . com/swimming-lessons-can-t-powder-proof-your-tulled-1796262192](https://lifehacker.com/swimming-lessons-can-t-drown-proof-your-toddler-1796262192)
+> 原文：<https://lifehacker.com/swimming-lessons-can-t-drown-proof-your-toddler-1796262192>
 
 你不希望你的孩子淹死。我也不希望你的小孩淹死。游泳课很棒，可以帮助他们在水中更舒适，但请不要依赖它们让你在泳池里安心。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 30 日至 1 月 6 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-12 月 30 日至 1 月 1790818957](https://lifehacker.com/this-weeks-most-popular-posts-december-30th-to-january-1790818957)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-30th-to-january-1790818957>
 
 新的一年来了，假期已经过去，我们已经找到了解决方案，如何利用速溶壶，旅行时赚钱的方法，等等。好吧，首先我们来看看治疗宿醉的方法，然后我们就马上进入正题。
 

@@ -1,6 +1,6 @@
 # 用三种配料制作真正的炸弹蓝奶酪酱
 
-> 原文:[https://life hacker . com/make-true-bomb-blue-cheese-dressing-with-three-ingredi-1828526803](https://lifehacker.com/make-truly-bomb-blue-cheese-dressing-with-three-ingredi-1828526803)
+> 原文：<https://lifehacker.com/make-truly-bomb-blue-cheese-dressing-with-three-ingredi-1828526803>
 
 蓝纹奶酪酱比沙拉大。当然，它是楔形沙拉不可或缺的一部分，但它也是唯一重要的翼勺，它让一个悲伤的蔬菜拼盘变得可以忍受。商店买的很好，但是你可以只用三种原料自己制作真正的炸弹蓝奶酪酱。
 

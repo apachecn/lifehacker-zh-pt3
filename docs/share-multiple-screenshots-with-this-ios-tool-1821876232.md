@@ -1,6 +1,6 @@
 # 用这个 iOS 工具分享多个截图
 
-> 原文:[https://life hacker . com/share-multiple-screens-with-this-IOs-tool-1821876232](https://lifehacker.com/share-multiple-screenshots-with-this-ios-tool-1821876232)
+> 原文：<https://lifehacker.com/share-multiple-screenshots-with-this-ios-tool-1821876232>
 
 我的几个朋友之间经常会交换令人捧腹或尴尬的截图，尽管经常会同时收到多张图片，偶尔会出现顺序错误。无论你发送的是一条长长的短信链的截图，你与合作伙伴分享的电子邮件收据，还是你认为看起来很酷的整个网站，你都应该下载 [Tailor](http://www.trytailor.com/) ，这是一个实用的应用程序，它会自动将截图拼接成一张图片。
 

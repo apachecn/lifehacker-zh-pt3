@@ -1,6 +1,6 @@
 # 这些航空公司提供免费的机上信息服务
 
-> 原文:[https://life hacker . com/these-airlines-offer-free-in-flight-messaging-1829421448](https://lifehacker.com/these-airlines-offer-free-in-flight-messaging-1829421448)
+> 原文：<https://lifehacker.com/these-airlines-offer-free-in-flight-messaging-1829421448>
 
 在过去的几年里，航空公司之间的竞争给乘客带来了一些实实在在的好处。国内航班上的免费餐(或者至少是升级的小吃选择)开始卷土重来，现在许多航空公司也开始在航班上提供免费信息。
 

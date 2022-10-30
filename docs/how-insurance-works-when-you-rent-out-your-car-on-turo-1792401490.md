@@ -1,6 +1,6 @@
 # 当你在 Turo 上出租汽车时，保险是如何起作用的
 
-> 原文:[https://jalopnik . com/how-insurance-works-when-you-rent-out-your-car-on-turo-1792401490](https://jalopnik.com/how-insurance-works-when-you-rent-out-your-car-on-turo-1792401490)
+> 原文：<https://jalopnik.com/how-insurance-works-when-you-rent-out-your-car-on-turo-1792401490>
 
 随便浏览一下租车服务 [【图罗】](http://jalopnik.com/the-craziest-cars-you-can-rent-from-turo-right-now-1790279948#_ga=1.45658093.836898836.1483458923) 就能发现一些非常可爱和不寻常的东西。当你可以租一些当地爱好者的保时捷代替时，为什么要在机场租一辆日产 Sentra？人们很容易沉浸在周末驾驶稀有酷车的幻想中，但是现实保险是如何实现的呢？如果你的车要出租，或者你租了别人的车，会发生什么？为了找到答案，我采访了图罗。
 

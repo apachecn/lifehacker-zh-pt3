@@ -1,6 +1,6 @@
 # 永远记住什么时候用这个程序给你的植物浇水
 
-> 原文:[https://life hacker . com/always-remember-when-to-water-your-plants with this-app-1826351995](https://lifehacker.com/always-remember-when-to-water-your-plants-with-this-app-1826351995)
+> 原文：<https://lifehacker.com/always-remember-when-to-water-your-plants-with-this-app-1826351995>
 
 说到植物，我只擅长一件事:杀死它们。当我写这篇文章的时候，我的桌子上有一棵小树，我刚刚注意到它覆盖着一点灰尘，我想它已经有…一个月没有浇水了吧？也许更多。我每天都看着这个东西。日。
 

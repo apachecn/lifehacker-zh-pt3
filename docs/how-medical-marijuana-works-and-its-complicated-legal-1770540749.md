@@ -1,6 +1,6 @@
 # 医用大麻的工作原理及其复杂的法律地位
 
-> 原文:[https://life hacker . com/how-medical-大麻-works-and-its-complex-legal-1770540749](https://lifehacker.com/how-medical-marijuana-works-and-its-complicated-legal-1770540749)
+> 原文：<https://lifehacker.com/how-medical-marijuana-works-and-its-complicated-legal-1770540749>
 
 如果使用得当，大麻提供了一些有益的医疗益处，但由于其当前(和不寻常的)法律地位，很难获得和有效使用。然而，一旦你学会了基础，你就能克服这些障碍。让我们来看看医用大麻是如何工作的，以及围绕它的法律。
 

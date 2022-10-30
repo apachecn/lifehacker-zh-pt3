@@ -1,6 +1,6 @@
 # 使用你的速溶锅的粥设置奶油，(大部分)手动玉米粥
 
-> 原文:[https://life hacker . com/use-your-instant-pots-wheet-setting-for-creamy-mos-1821997844](https://lifehacker.com/use-your-instant-pots-porridge-setting-for-creamy-mos-1821997844)
+> 原文：<https://lifehacker.com/use-your-instant-pots-porridge-setting-for-creamy-mos-1821997844>
 
 某些菜肴注定不会立即成为美味，尤其是那些通过不断搅拌和缓慢控制液体减少来获得魔力的菜肴。虽然我担心没有现成的法式洋葱汤配方，但我想我终于破解了玉米粥的密码。
 

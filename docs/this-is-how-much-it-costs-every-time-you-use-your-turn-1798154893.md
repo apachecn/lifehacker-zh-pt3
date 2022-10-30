@@ -1,6 +1,6 @@
 # 这是你每次打转向灯的费用
 
-> 原文:[https://jalopnik . com/this-is-how-it-cost-what-time-you-use-you-turn-1798154893](https://jalopnik.com/this-is-how-much-it-costs-every-time-you-use-your-turn-1798154893)
+> 原文：<https://jalopnik.com/this-is-how-much-it-costs-every-time-you-use-your-turn-1798154893>
 
 让 Jalopnik 成为互联网上 [转弯指示器相关信息](http://jalopnik.com/meet-the-worst-and-most-interesting-turn-signals-ever-m-1792231590) 和评论的最佳来源，这一直是我的一个目标。这就是为什么我对这个作品印象如此深刻，以至于 [出现在这个视频](https://www.youtube.com/watch?v=EtDdbDsWvWQ) 中，并且有点惭愧我没有想到这一点。最后，有人做了数学计算来显示司机使用他们的转向灯到底要花多少钱。
 

@@ -1,6 +1,6 @@
 # 如何使用火狐的黑仔新截图工具
 
-> 原文:[https://life hacker . com/how-to-use-Firefox-s-killer-new-screen-tool-1821631687](https://lifehacker.com/how-to-use-firefox-s-killer-new-screenshot-tool-1821631687)
+> 原文：<https://lifehacker.com/how-to-use-firefox-s-killer-new-screenshot-tool-1821631687>
 
 如果你不经常截屏，记住该按哪个组合键可能会更令人困惑而不是更方便。如果你讨厌键盘快捷键，Mozilla 的新 Firefox Quantum 浏览器可以非常容易地捕捉到你屏幕上的内容，这要归功于它内置的 Firefox 截图服务。无论你在哪里使用新的浏览器，它都可以同步，并且足够智能，可以帮助你找出你实际上想要捕捉的内容。
 

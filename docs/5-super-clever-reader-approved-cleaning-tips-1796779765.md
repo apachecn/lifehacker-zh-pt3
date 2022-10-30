@@ -1,6 +1,6 @@
 # 读者认可的 5 个超级聪明的清洁技巧
 
-> 原文:[https://life hacker . com/5-super-clever-reader-approved-cleaning-tips-1796779765](https://lifehacker.com/5-super-clever-reader-approved-cleaning-tips-1796779765)
+> 原文：<https://lifehacker.com/5-super-clever-reader-approved-cleaning-tips-1796779765>
 
 上周 [我问你](https://lifehacker.com/how-do-you-keep-your-home-neat-and-tidy-1796656633) 你是如何让你的家保持宜居、不太凌乱的状态的，你回答了各种很棒的建议，其中大部分我打算自己实施。
 

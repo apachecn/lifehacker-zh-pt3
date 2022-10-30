@@ -1,6 +1,6 @@
 # 需要自拍小技巧？问问神经网络
 
-> 原文:[https://life hacker . com/need-self ie-tips-ask-a-neural-network-1795509183](https://lifehacker.com/need-selfie-tips-ask-a-neural-network-1795509183)
+> 原文：<https://lifehacker.com/need-selfie-tips-ask-a-neural-network-1795509183>
 
 在我年轻的时候，我上传了一些非常不讨人喜欢的自拍照。我是一个摄影新手，一个留着胡子的业余摄影爱好者。我很高兴地说，我自拍的结果(当然，下面分享纯粹是为了教育目的)通过经验得到了改善，但如果我有一个无情的机器人告诉我哪里出错了，事情会容易得多。幸运的是，机器学习的魔力现在就在我们身上，它在这里告诉我们如何拍出好的自拍。
 

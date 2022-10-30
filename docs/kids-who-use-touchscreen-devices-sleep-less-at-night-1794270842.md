@@ -1,6 +1,6 @@
 # 使用触摸屏设备的孩子晚上睡得更少
 
-> 原文:[https://gizmodo . com/kids-who-use-touch-touch-devices-sleep-less-in-night-1794270842](https://gizmodo.com/kids-who-use-touchscreen-devices-sleep-less-at-night-1794270842)
+> 原文：<https://gizmodo.com/kids-who-use-touchscreen-devices-sleep-less-at-night-1794270842>
 
 像智能手机和平板电脑这样的触摸屏设备现在是许多家庭的固定设备，因此毫不奇怪，不工作或不上学的儿童是他们最活跃的用户。在第一项同类研究中，研究人员了解到，在这些设备上花费更多时间的婴儿和幼儿晚上睡得更少。这是一个令人不安的发现，但是这些睡眠中断的原因仍然不清楚。
 

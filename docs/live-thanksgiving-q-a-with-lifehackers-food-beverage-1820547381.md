@@ -1,6 +1,6 @@
 # Lifehacker 的食品和饮料编辑 Claire Lower 的感恩节现场问答[已完成]
 
-> 原文:[https://life hacker . com/live-thanksgiving-q-a-with-life hacker-food-beverage-1820547381](https://lifehacker.com/live-thanksgiving-q-a-with-lifehackers-food-beverage-1820547381)
+> 原文：<https://lifehacker.com/live-thanksgiving-q-a-with-lifehackers-food-beverage-1820547381>
 
 大家好！是我，你友好的食物和饮料编辑，我会在东部时间下午 3 点到 4 点回答你所有的最后一分钟，以感恩节为中心的问题。
 

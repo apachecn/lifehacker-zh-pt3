@@ -1,6 +1,6 @@
 # 你需要一个下午的惯例
 
-> 原文:[https://life hacker . com/you-need-an-午-routine-1797797871](https://lifehacker.com/you-need-an-afternoon-routine-1797797871)
+> 原文：<https://lifehacker.com/you-need-an-afternoon-routine-1797797871>
 
 人们总是告诉你如何最大限度地利用早晨的，但是你的早晨惯例——不管是什么——都是*好的*。你真正需要的是下午的例行公事。
 

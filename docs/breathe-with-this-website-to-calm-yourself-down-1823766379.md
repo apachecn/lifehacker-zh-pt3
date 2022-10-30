@@ -1,6 +1,6 @@
 # 用这个网站呼吸，让自己平静下来
 
-> 原文:[https://life hacker . com/breathe-with-this-website-to-cooling yourself-down-1823766379](https://lifehacker.com/breathe-with-this-website-to-calm-yourself-down-1823766379)
+> 原文：<https://lifehacker.com/breathe-with-this-website-to-calm-yourself-down-1823766379>
 
 深呼吸...等等...呼出...现在在再次吸气前等待一秒钟。书签 [QuietKit 的盒子呼吸](http://quietkit.com/box-breathing/) 后续动画，帮助你在任何需要的时候做到这一点。
 

@@ -1,6 +1,6 @@
 # 我们到底要不要洗蘑菇？
 
-> 原文:[https://the take out . com/are-we-should-to-wash-蘑菇-or-not-1825155462](https://thetakeout.com/are-we-supposed-to-wash-mushrooms-or-not-1825155462)
+> 原文：<https://thetakeout.com/are-we-supposed-to-wash-mushrooms-or-not-1825155462>
 
 蘑菇是最像海绵的食物。如果你曾经把它们扔进炒菜里，你就会知道它们几乎会立刻吸收酱汁。它们对水的反应也是一样，因此传统智慧 告诫不要在烹饪前清洗蘑菇，以免它们被水浸泡。
 

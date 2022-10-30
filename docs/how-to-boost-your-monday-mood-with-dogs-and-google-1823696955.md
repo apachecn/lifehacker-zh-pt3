@@ -1,6 +1,6 @@
 # 如何用狗和谷歌提升你周一的心情
 
-> 原文:[https://life hacker . com/how-to-boost-your-Monday-mood-with dogs-and-Google-1823696955](https://lifehacker.com/how-to-boost-your-monday-mood-with-dogs-and-google-1823696955)
+> 原文：<https://lifehacker.com/how-to-boost-your-monday-mood-with-dogs-and-google-1823696955>
 
 今天是星期一，夏令时这个残酷的主人偷走了你 60 分钟的宝贵时间，这意味着你可能无法像往常一样快速完成 TPS 报告。既然 [你已经让你的雇主损失了数十亿美元](https://gizmodo.com/why-daylight-saving-time-is-pointless-5892438) ，为什么不休息一下，参与到 [谷歌的 Pup View 项目](https://www.blog.google/products/maps/pup-view-home-japans-adorable-akita-dogs/) 中来呢？如果你曾经想坐在秋田犬的背上看日本，现在你的机会来了(至少在你下午开会之前)。
 

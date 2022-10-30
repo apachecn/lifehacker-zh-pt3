@@ -1,6 +1,6 @@
 # 十大钱包友好的约会点子
 
-> 原文:[https://life hacker . com/top-10-wallet-friendly-date-ideas-1758826946](https://lifehacker.com/top-10-wallet-friendly-date-ideas-1758826946)
+> 原文：<https://lifehacker.com/top-10-wallet-friendly-date-ideas-1758826946>
 
 你可以和你的另一半度过一段美好浪漫的时光，而不用花很多钱。无论你是打算在情人节出游还是在一年中的其他日子享受美好时光，这里有至少 10 个便宜的约会点子，不会让你看起来很便宜。
 

@@ -1,6 +1,6 @@
 # 我们在黑色星期五疯狂购物的心理原因
 
-> 原文:[https://life hacker . com/the-psychological-reasons-we-shop-like-crazy-on-black-f-1789101905](https://lifehacker.com/the-psychological-reasons-we-shop-like-crazy-on-black-f-1789101905)
+> 原文：<https://lifehacker.com/the-psychological-reasons-we-shop-like-crazy-on-black-f-1789101905>
 
 即使你不打算破门而入，也无法逃脱黑色星期五的疯狂。自 10 月以来，商店一直在 [【泄露】交易](http://dealnews.com/features/Leaked-Black-Friday-Ads-Are-Fake-But-Still-Useful-For-Shoppers/1476586.html) ，用预览来戏弄购物者，甚至试图用特殊的在线交易和闪购来吸引购物骗子。尽管去年的数字有所下降，但在 2014 年感恩节周末，购物者仍然花费了大约 509 亿美元 。
 

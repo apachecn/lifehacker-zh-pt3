@@ -1,6 +1,6 @@
 # 以下是对优步新信用卡的期待
 
-> 原文:[https://life hacker . com/heres-what-to-expect-from-ubers-new-credit-card-1820189289](https://lifehacker.com/heres-what-to-expect-from-ubers-new-credit-card-1820189289)
+> 原文：<https://lifehacker.com/heres-what-to-expect-from-ubers-new-credit-card-1820189289>
 
 奖励爱好者，我们知道你爱你的大通蓝宝石信用卡。我们也知道你喜欢跳来跳去地使用有着极好福利的新卡，现在优步已经有了 [跃入信用卡世界](https://techcrunch.com/2017/10/25/uber-launches-a-credit-card/) ，你可能想知道它们是否值得你花时间(还有硬拉你信用报告的)。
 

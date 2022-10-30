@@ -1,6 +1,6 @@
 # 介绍 Lifehacker 的新播客“升级”,这是一个关于升级你的生活的播客
 
-> 原文:[https://life hacker . com/introducing-the-upgrade-a-new-podcast-from-life hacker-1791708236](https://lifehacker.com/introducing-the-upgrade-a-new-podcast-from-lifehacker-1791708236)
+> 原文：<https://lifehacker.com/introducing-the-upgrade-a-new-podcast-from-lifehacker-1791708236>
 
 Lifehacker 播客又回来了，它叫做*升级版*！这是一个全新的业态，但同样伟大的提示和窍门帮助你过上最好的生活。无论你是老 [*的狂热听众，还是询问 Lifehacker* 播客](http://lifehacker.com/tag/the-show) ，或者从来不知道我们甚至有播客，你都会想收听这个节目。
 

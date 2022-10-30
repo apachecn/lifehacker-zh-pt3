@@ -1,6 +1,6 @@
 # 垃圾邮件制造者如何劫持废弃的网址在互联网上传播搜索引擎优化垃圾
 
-> 原文:[https://gizmodo . com/how-spammers-劫持-抛弃-URL-传播-seo-garbag-1796821052](https://gizmodo.com/how-spammers-hijack-abandoned-urls-to-spread-seo-garbag-1796821052)
+> 原文：<https://gizmodo.com/how-spammers-hijack-abandoned-urls-to-spread-seo-garbag-1796821052>
 
 “晨兴邮报网站被黑了？”一个朋友问我。我曾经参与编辑的网站似乎已经死亡，并以僵尸版本的形式回归。大约五个月前，我在*TMP*——哥伦比亚大学国际与公共事务学院学生经营的新闻出版物——的继任者不小心让他们网站的域名注册失效了。一个神秘的新主人抢购了这个网站，克隆了它的内容，并把它变成了一堆垃圾。
 

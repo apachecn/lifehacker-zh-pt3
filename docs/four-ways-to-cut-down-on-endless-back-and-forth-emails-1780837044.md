@@ -1,6 +1,6 @@
 # 减少没完没了来回邮件的四种方法
 
-> 原文:[https://life hacker . com/four-way-to-cut-down-on-endless-back-from-e-mail-1780837044](https://lifehacker.com/four-ways-to-cut-down-on-endless-back-and-forth-emails-1780837044)
+> 原文：<https://lifehacker.com/four-ways-to-cut-down-on-endless-back-and-forth-emails-1780837044>
 
 电子邮件。无法忍受。没有它你无法完成工作。我说的对吗？去年我们发送了 25 亿封电子邮件。坏消息是。尽管有大量的厌恶，这个数字预计只会增加。体积是一个问题，你花在体积上的时间也是一个问题。事实上，报道说你每小时检查 36 次。36 次。在一个小时内。
 

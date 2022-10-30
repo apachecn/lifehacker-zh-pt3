@@ -1,6 +1,6 @@
 # 如何在监狱里做花生酱果冻三明治
 
-> 原文:[https://splitter news . com/how-to-make a-peanut-butter-and-jelly-sandwich-in-priso-1827359455](https://splinternews.com/how-to-make-a-peanut-butter-and-jelly-sandwich-in-priso-1827359455)
+> 原文：<https://splinternews.com/how-to-make-a-peanut-butter-and-jelly-sandwich-in-priso-1827359455>
 
  [https://splinternews.com/embed/inset/iframe?id=youtube-video-dLMa22gZcL8&start=0](https://splinternews.com/embed/inset/iframe?id=youtube-video-dLMa22gZcL8&start=0) 
 

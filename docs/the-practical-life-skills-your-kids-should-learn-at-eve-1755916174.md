@@ -1,6 +1,6 @@
 # 每个年龄段的孩子都应该学习的实用生活技能
 
-> 原文:[https://life hacker . com/the-practical-life-skills-your-kids-should-learn-eve-1755916174](https://lifehacker.com/the-practical-life-skills-your-kids-should-learn-at-eve-1755916174)
+> 原文：<https://lifehacker.com/the-practical-life-skills-your-kids-should-learn-at-eve-1755916174>
 
 我们父母有责任传授我们的孩子成为成功成年人所需的基本技能，比如会游泳、自己洗衣服或做一顿健康的饭菜。真正的问题是你应该什么时候教他们？以下是孩子们在独立生活前应该学习的技能的年龄指南。
 

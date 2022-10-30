@@ -1,6 +1,6 @@
 # Sinemia 提供了一种价格更低的电影票
 
-> 原文:[https://life hacker . com/sinemia-offers-a-movie pass-alternative-for-less-money-1825772171](https://lifehacker.com/sinemia-offers-a-moviepass-alternative-for-less-money-1825772171)
+> 原文：<https://lifehacker.com/sinemia-offers-a-moviepass-alternative-for-less-money-1825772171>
 
 Sinemia 是我们在 12 月份围捕的 MoviePass 竞争对手 之一， [正在进行销售](https://www.sinemia.com/new-plans/us/) ，价格超过了 MoviePass 的当前价格。现在，花 4.99 美元，你可以一个月看一部电影。(你必须先支付一年的费用，59.88 美元。)一个月两部电影 6.99 美元。这两个价格都低于目前 MoviePass 的最低价格，三部电影每月 7.99 美元。但真正的优势是 Sinemia 让你做一些 MoviePass 做不到的事情。
 

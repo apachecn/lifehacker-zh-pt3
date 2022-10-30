@@ -1,6 +1,6 @@
 # 使用超宽显示器如何提高我的工作效率(也能提高你的工作效率)
 
-> 原文:[https://life hacker . com/how-using-a-ultra wide-monitor-boosted-my-productivity-1782833923](https://lifehacker.com/how-using-an-ultrawide-monitor-boosted-my-productivity-1782833923)
+> 原文：<https://lifehacker.com/how-using-an-ultrawide-monitor-boosted-my-productivity-1782833923>
 
 几周前我搬家了，所以我不得不停下来重新布置我的工作空间。当我这样做时，我用一个新的 34 英寸超宽 LG 曲面显示器取代了我的双显示器设置。它有它的怪癖，但现在我不确定我是否还能回去。这就是为什么，为什么它对我如此有效。
 

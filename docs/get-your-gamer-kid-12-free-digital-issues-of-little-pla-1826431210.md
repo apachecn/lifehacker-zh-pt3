@@ -1,6 +1,6 @@
 # 给你的玩家孩子 12 期免费数字版的小玩家杂志
 
-> 原文:[https://life hacker . com/get-your-gamer-kid-12-free-digital-issues-of-little-PLA-1826431210](https://lifehacker.com/get-your-gamer-kid-12-free-digital-issues-of-little-pla-1826431210)
+> 原文：<https://lifehacker.com/get-your-gamer-kid-12-free-digital-issues-of-little-pla-1826431210>
 
 你的孩子喜欢电子游戏吗？他或她是否需要一些不会让人联想到学校的暑期读物？那么看看这个:现在，你可以得到 12 期免费的数字版 [*小玩家*](https://www.shoplittleplayer.com/) ，这是一本专为孩子们制作的电子游戏杂志。下载第一年(1-6 期) [这里](https://www.shoplittleplayer.com/collections/digital/products/summer-reading-special-free-year-one-digital-editions-issues-1-6) 和第二年(7-12 期) [这里](https://www.shoplittleplayer.com/collections/digital/products/copy-of-summer-reading-special-free-year-two-digital-editions-issues-7-12) 。
 

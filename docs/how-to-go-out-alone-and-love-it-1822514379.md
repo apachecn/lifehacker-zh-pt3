@@ -1,6 +1,6 @@
 # 如何一个人出门爱它
 
-> 原文:[https://life hacker . com/how-to-go-alone-and-love-it-1822514379](https://lifehacker.com/how-to-go-out-alone-and-love-it-1822514379)
+> 原文：<https://lifehacker.com/how-to-go-out-alone-and-love-it-1822514379>
 
 出于某种原因，独自外出仍然是一种耻辱。但这可能很快就会改变，现在推出 solo 有了奇怪的相关模型的 [背书和多产的推特用户克莉茜·泰根](https://moneyish.com/splurge/why-going-on-me-dates-like-chrissy-teigen-does-is-everything/) 。
 

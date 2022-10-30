@@ -1,6 +1,6 @@
 # 如何通过机场安检拿到秘密订婚戒指
 
-> 原文:[https://life hacker . com/how-to-get-a secret-engagement-ring-through-airport-sec-1822661281](https://lifehacker.com/how-to-get-a-secret-engagement-ring-through-airport-sec-1822661281)
+> 原文：<https://lifehacker.com/how-to-get-a-secret-engagement-ring-through-airport-sec-1822661281>
 
 现在是“求婚季”，只要这种事情存在。如果你计划在下一次旅行中给对方一个惊喜，你不会想在你们都通过机场安检的时候把订婚戒指暴露给对方。所以你需要小心包装。
 

@@ -1,6 +1,6 @@
 # 为什么道琼斯打破记录无助于你的底线
 
-> 原文:[https://life hacker . com/why-the-Dow-Jones-breaking-records-not-help-your-bo-1821878753](https://lifehacker.com/why-the-dow-jones-breaking-records-isnt-helping-your-bo-1821878753)
+> 原文：<https://lifehacker.com/why-the-dow-jones-breaking-records-isnt-helping-your-bo-1821878753>
 
 道琼斯工业平均指数上周有史以来首次收于 25000 点。提示香槟祝酒和总统推特。
 

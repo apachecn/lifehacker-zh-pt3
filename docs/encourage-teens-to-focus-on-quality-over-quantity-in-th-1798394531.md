@@ -1,6 +1,6 @@
 # 鼓励青少年在社交生活中注重质量而不是数量
 
-> 原文:[https://life hacker . com/鼓励青少年关注质量而非数量-th-1798394531](https://lifehacker.com/encourage-teens-to-focus-on-quality-over-quantity-in-th-1798394531)
+> 原文：<https://lifehacker.com/encourage-teens-to-focus-on-quality-over-quantity-in-th-1798394531>
 
 还记得高中感觉就像一场受欢迎程度的竞赛吗？
 

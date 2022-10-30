@@ -1,6 +1,6 @@
 # 将您最喜爱的网站变成桌面应用程序
 
-> 原文:[https://life hacker . com/turn-your-favorite-website-into-a-desktop-app-1827807804](https://lifehacker.com/turn-your-favorite-website-into-a-desktop-app-1827807804)
+> 原文：<https://lifehacker.com/turn-your-favorite-website-into-a-desktop-app-1827807804>
 
 **Windows，Mac:** 你可能有几个你一直在使用的网站——也许是你工作需要的一个特殊的 CMS，一个你用来为客户跟踪和计费时间的时间跟踪网站，或者一个网页游戏。如果你厌倦了每次需要访问浏览器时都打开它，你有一个选择:把它变成一个应用程序。
 

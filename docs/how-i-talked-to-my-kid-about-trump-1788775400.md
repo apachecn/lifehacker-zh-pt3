@@ -1,6 +1,6 @@
 # 我是如何和我的孩子谈论特朗普的
 
-> 原文:[https://life hacker . com/how-I-talked-to-my-kid-about-trump-1788775400](https://lifehacker.com/how-i-talked-to-my-kid-about-trump-1788775400)
+> 原文：<https://lifehacker.com/how-i-talked-to-my-kid-about-trump-1788775400>
 
 我一直等到我七岁的孩子吃完早餐才告诉他这个消息。“你还记得昨天的选举吗？”我问。“是吗？谁赢了？”他说。我不得不告诉他:唐纳德·特朗普。
 

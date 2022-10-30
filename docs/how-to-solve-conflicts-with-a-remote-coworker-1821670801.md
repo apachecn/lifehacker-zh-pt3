@@ -1,6 +1,6 @@
 # 如何解决与远程同事的冲突
 
-> 原文:[https://life hacker . com/how-to-solve-conflicts-with-a-remote-co-worker-1821670801](https://lifehacker.com/how-to-solve-conflicts-with-a-remote-coworker-1821670801)
+> 原文：<https://lifehacker.com/how-to-solve-conflicts-with-a-remote-coworker-1821670801>
 
 2018 年即将到来。如果你的新年决心(或梦想)之一是与远方的同事更好地相处，你并不孤单。每天在办公室和某人一起工作并保持良好的关系本身就很难，当你增加距离时，事情会变得有点棘手。
 

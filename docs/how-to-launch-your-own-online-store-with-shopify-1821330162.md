@@ -1,6 +1,6 @@
 # 如何用 Shopify 推出自己的在线商店
 
-> 原文:[https://life hacker . com/how-to-launch-your-own-online-store-with-shopify-1821330162](https://lifehacker.com/how-to-launch-your-own-online-store-with-shopify-1821330162)
+> 原文：<https://lifehacker.com/how-to-launch-your-own-online-store-with-shopify-1821330162>
 
 *在我们的新系列* [获得 It](https://lifehacker.com/c/getting-it) *中，我们将为您提供您需要知道的所有信息，帮助您开始并擅长各种在线和离线技术。在这里，我们将带你在最受欢迎的在线零售平台 Shopify 上建立自己的商店。*
 

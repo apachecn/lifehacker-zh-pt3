@@ -1,6 +1,6 @@
 # 白人和黑人朋友的 7 条规则
 
-> 原文:[https://www . the root . com/7-白人与黑人朋友交往的规则-1825023173](https://www.theroot.com/7-rules-for-white-people-with-black-friends-1825023173)
+> 原文：<https://www.theroot.com/7-rules-for-white-people-with-black-friends-1825023173>
 
 恭喜你！
 

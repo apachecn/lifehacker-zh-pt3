@@ -1,6 +1,6 @@
 # 如何让引体向上更有挑战性
 
-> 原文:[https://life hacker . com/how-to-make-pull-ups-more-challenge-1822295404](https://lifehacker.com/how-to-make-pull-ups-more-challenging-1822295404)
+> 原文：<https://lifehacker.com/how-to-make-pull-ups-more-challenging-1822295404>
 
 这是给外面的野兽的。如果你已经能做 10 或 20 个引体向上，你可能会对我们的 [引体向上挑战](https://lifehacker.com/january-s-fitness-challenge-grab-onto-that-pull-up-bar-1821717656) 感到有点厌倦。之前我们谈到了 [如何让引体向上变得更容易](https://vitals.lifehacker.com/all-the-ways-to-make-pull-ups-easier-1821906936) ，但现在是时候做另一面了。这里有一些更高级的动作，一旦你掌握了基本动作，你可以试试。
 

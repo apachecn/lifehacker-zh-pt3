@@ -1,6 +1,6 @@
 # 如何挑选最好的苏打水
 
-> 原文:[https://life hacker . com/how-to-pick-the-best-sparkling-water-1787685816](https://lifehacker.com/how-to-pick-the-best-sparkling-water-1787685816)
+> 原文：<https://lifehacker.com/how-to-pick-the-best-sparkling-water-1787685816>
 
 从苏打水到拉克罗伊，种类繁多的汽水让人应接不暇。人们很容易把它当成“只是水”，但是这些碳酸混合物在味道和口感上有很大的不同。汽水是唯一阻止我用健怡可乐防腐的东西，我对这个问题有自己的看法。
 

@@ -1,6 +1,6 @@
 # 给讨厌奋斗的父母的 7 个海滩秘诀
 
-> 原文:[https://life hacker . com/7-beach-hacks-for-parents-hate-to-fight-1796296252](https://lifehacker.com/7-beach-hacks-for-parents-who-hate-to-struggle-1796296252)
+> 原文：<https://lifehacker.com/7-beach-hacks-for-parents-who-hate-to-struggle-1796296252>
 
 在你有孩子之前，海滩很容易。除了一条毛巾和一瓶水，你什么也没带就慢慢走下来；也许你租了一把伞，把它插在沙子里，就像宙斯扔出一个霹雳一样轻松。防晒是一顶大帽子和一点铜色。但是一旦你生了孩子？汉尼拔翻越阿尔卑斯山时用的力气和装备都比把孩子们带到岸边要少。
 

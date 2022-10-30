@@ -1,6 +1,6 @@
 # 使用这些应用对您的显卡进行基准测试
 
-> 原文:[https://life hacker . com/benchmark-your-graphics-card-with these-apps-1828652903](https://lifehacker.com/benchmark-your-graphics-card-with-these-apps-1828652903)
+> 原文：<https://lifehacker.com/benchmark-your-graphics-card-with-these-apps-1828652903>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-B0olFgn8D3I&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-B0olFgn8D3I&start=0) 
 

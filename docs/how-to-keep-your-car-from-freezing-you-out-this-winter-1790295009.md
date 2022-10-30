@@ -1,6 +1,6 @@
 # 如何让你的车在这个冬天不冻着你
 
-> 原文:[https://life hacker . com/how-to-keep your-car-from-freeze-you-out-this-winter-1790295009](https://lifehacker.com/how-to-keep-your-car-from-freezing-you-out-this-winter-1790295009)
+> 原文：<https://lifehacker.com/how-to-keep-your-car-from-freezing-you-out-this-winter-1790295009>
 
 冰会给汽车带来各种各样的问题。开车很危险，它遮住了你的挡风玻璃，有时甚至让你无法进入车内。这些建议可以防止你的车门和锁被冻住，如果冻住了，可以帮助你进入车内。
 

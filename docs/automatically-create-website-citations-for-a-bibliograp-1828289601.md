@@ -1,6 +1,6 @@
 # 使用此 Chrome 扩展自动创建参考书目的网站引文
 
-> 原文:[https://life hacker . com/automatically-create-website-citations-for-a-bibliograp-1828289601](https://lifehacker.com/automatically-create-website-citations-for-a-bibliograp-1828289601)
+> 原文：<https://lifehacker.com/automatically-create-website-citations-for-a-bibliograp-1828289601>
 
 当我在大学时，我最不喜欢写研究论文的部分是弄清楚如何写参考书目。引用资料是乏味的，而且如果你不得不在一些不同的风格中工作的话，会变得混乱。本周，我偶然发现了一个 Chrome 扩展，我希望我在大学时就有，它能帮你处理繁重的工作，至少对网站来说是这样。
 

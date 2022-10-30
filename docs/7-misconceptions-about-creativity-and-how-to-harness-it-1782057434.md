@@ -1,6 +1,6 @@
 # 关于创造力的七个误解以及如何利用它
 
-> 原文:[https://life hacker . com/7-关于创造力和如何利用它的误解-1782057434](https://lifehacker.com/7-misconceptions-about-creativity-and-how-to-harness-it-1782057434)
+> 原文：<https://lifehacker.com/7-misconceptions-about-creativity-and-how-to-harness-it-1782057434>
 
 我们都经历过。缪斯灵感迸发的迷人而神秘的时刻。创意令人陶醉。太疯狂了。而且——听起来并不愚蠢——这是有利可图的。不幸的是，创造力也是变化无常的:你越是追逐它，它就越难被抓住。
 

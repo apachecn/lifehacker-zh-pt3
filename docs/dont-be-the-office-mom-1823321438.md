@@ -1,6 +1,6 @@
 # 不要做办公室妈妈
 
-> 原文:[https://lifehacker.com/dont-be-the-office-mom-1823321438](https://lifehacker.com/dont-be-the-office-mom-1823321438)
+> 原文：<https://lifehacker.com/dont-be-the-office-mom-1823321438>
 
 在为新的实习生班级复印员工手册的路上，你正在清理同事洒出来的咖啡，这时你碰到了你的老板。他想知道是否有新的壶正在酝酿？哦，你不会介意把约翰的生日卡发给办公室的其他人签名吧？在约翰下班前把它交给他？
 

@@ -1,6 +1,6 @@
 # 如何在交谈中真正倾听
 
-> 原文:[https://life hacker . com/how-to-really-listen-in-conversations-1826204542](https://lifehacker.com/how-to-really-listen-in-conversations-1826204542)
+> 原文：<https://lifehacker.com/how-to-really-listen-in-conversations-1826204542>
 
 听:这个可怜的人在说话。但是该轮到你注意别人的废话了。以下是如何成为你想与之交谈的那种倾听者。
 

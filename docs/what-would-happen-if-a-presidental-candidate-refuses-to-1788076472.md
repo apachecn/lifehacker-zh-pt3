@@ -1,6 +1,6 @@
 # 如果总统候选人拒绝承认失败，会发生什么？
 
-> 原文:[https://life hacker . com/what-board-if-a-a-president-candidate-to-1788076472](https://lifehacker.com/what-would-happen-if-a-presidental-candidate-refuses-to-1788076472)
+> 原文：<https://lifehacker.com/what-would-happen-if-a-presidental-candidate-refuses-to-1788076472>
 
 [在最后一场总统辩论](https://lifehacker.com/fact-check-the-final-presidential-debate-with-these-rou-1788016097) 中，唐纳德·川普暗示，如果他输了，他 [可能不会接受大选结果](https://www.youtube.com/watch?v=cP0G4vJ5OMw) 也不会向希拉里认输。但是，要完成一场选举，真的需要让步吗？
 

@@ -1,6 +1,6 @@
 # 用这个杂志学习构建 Node.js Web 应用程序
 
-> 原文:[https://life hacker . com/learn-to-build-node-js-we B- apps-with-this-zine-1823329167](https://lifehacker.com/learn-to-build-node-js-web-apps-with-this-zine-1823329167)
+> 原文：<https://lifehacker.com/learn-to-build-node-js-web-apps-with-this-zine-1823329167>
 
 如果你是构建网络应用的新手，看看第一期 [你得到了这个！](https://glitch.com/you-got-this) ，来自开发者社区的友好杂志 [Glitch](https://glitch.com/) 。本期讲授 web 服务器背后的基本概念，以及 Javascript 的 npm 包管理器。它还展示了三个社区领先的 web 开发人员的职业简介，以及来自 Google、Mozilla 和 Slack 等公司的十几个开发人员的建议简介。
 

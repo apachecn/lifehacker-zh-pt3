@@ -1,6 +1,6 @@
 # 也许不要把这些东西放在你的脸上
 
-> 原文:[https://life hacker . com/maybe-don-t-put-things-in-your-face-1796735729](https://lifehacker.com/maybe-don-t-put-these-things-in-your-face-1796735729)
+> 原文：<https://lifehacker.com/maybe-don-t-put-these-things-in-your-face-1796735729>
 
 是时候对最新的健康新闻再做一次现实核查了。本周，人们告诉我们吸可可粉，而不是吃我们自己的器官肉。他们的建议被证实了吗？让我们开始吃吧。
 

@@ -1,6 +1,6 @@
 # 对小孩子说什么而不是“说对不起”
 
-> 原文:[https://life hacker . com/what-to-say-to-little-kids-inst-say-sorry-1819288365](https://lifehacker.com/what-to-say-to-little-kids-instead-of-say-sorry-1819288365)
+> 原文：<https://lifehacker.com/what-to-say-to-little-kids-instead-of-say-sorry-1819288365>
 
 几年前，当我为女儿参观各种幼儿园时，我参观了一个有机会观察孩子们在操场上玩耍的地方。在滑梯上爬梯子时，一个小男孩不小心踩到了一个小女孩的手指，她开始哭了起来。接下来发生的事让我震惊。
 

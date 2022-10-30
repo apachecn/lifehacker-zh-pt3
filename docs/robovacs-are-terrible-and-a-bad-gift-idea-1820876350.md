@@ -1,6 +1,6 @@
 # 机器人太可怕了，是个糟糕的礼物
 
-> 原文:[https://gizmodo . com/robo vacs-are-terrible-and-a-bad-gift-idea-1820876350](https://gizmodo.com/robovacs-are-terrible-and-a-bad-gift-idea-1820876350)
+> 原文：<https://gizmodo.com/robovacs-are-terrible-and-a-bad-gift-idea-1820876350>
 
 听我说，没人需要任何机器人。无论是 Roomba、EcoVac 还是像我拥有的这种廉价的 Anker，它们都只不过是婴儿大小的金属和塑料便便，它们推着小堆的灰尘，当它们搞不清什么是“地毯”时就会尖叫。它们是低效、浪费的烦恼，导致懒惰和不良的清洁习惯。
 

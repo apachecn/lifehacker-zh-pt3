@@ -1,6 +1,6 @@
 # 收养一只没有通过训练的服务犬
 
-> 原文:[https://life hacker . com/adopt-a-service-dog-who-but-make-it-through-tra-1828675131](https://lifehacker.com/adopt-a-service-dog-who-didnt-quite-make-it-through-tra-1828675131)
+> 原文：<https://lifehacker.com/adopt-a-service-dog-who-didnt-quite-make-it-through-tra-1828675131>
 
 互联网上流传着一个关于一只狗的故事，这只狗没有通过政府或警察的训练计划，因为这意味着这只狗拒绝成为一只彻头彻尾的 T2 T3。这实际上并不是一个罕见的问题；很多狗不适合服务。他们仍然需要家。
 

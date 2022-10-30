@@ -1,6 +1,6 @@
 # 良好的理财习惯会损害你的信用
 
-> 原文:[https://life hacker . com/good-money-habits-that-can-bad-your-credit-1785962981](https://lifehacker.com/good-money-habits-that-can-hurt-your-credit-1785962981)
+> 原文：<https://lifehacker.com/good-money-habits-that-can-hurt-your-credit-1785962981>
 
 信贷以神秘的、有时是矛盾的方式运作。如果你有良好的理财习惯，并且用你的钱做正确的事情，你会认为你的信用评分会很好。然而，事情并不总是这样发展——有时明智的金融举措并不是最好的信贷举措。
 

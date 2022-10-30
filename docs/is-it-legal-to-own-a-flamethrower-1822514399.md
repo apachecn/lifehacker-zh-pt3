@@ -1,6 +1,6 @@
 # 拥有喷火器合法吗？
 
-> 原文:[https://life hacker . com/拥有喷火器合法吗-1822514399](https://lifehacker.com/is-it-legal-to-own-a-flamethrower-1822514399)
+> 原文：<https://lifehacker.com/is-it-legal-to-own-a-flamethrower-1822514399>
 
 如果你打算 [买一个埃隆·马斯克的高科技喷火器](https://gizmodo.com/elon-musk-has-already-made-5-million-selling-really-bi-1822519339) ，你知道的， [烤坚果之类的东西](https://twitter.com/elonmusk/status/957416875826262016) ，你可能会想知道在美国拥有这样一件危险的武器——呃，工具——是否合法。我给你一个提示:燃烧吧。
 

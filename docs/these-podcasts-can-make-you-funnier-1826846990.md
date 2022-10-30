@@ -1,6 +1,6 @@
 # 这些播客可以让你更有趣
 
-> 原文:[https://life hacker . com/these-podcast-can-make-you-funner-1826846990](https://lifehacker.com/these-podcasts-can-make-you-funnier-1826846990)
+> 原文：<https://lifehacker.com/these-podcasts-can-make-you-funnier-1826846990>
 
 并非所有的喜剧播客都是由斯科特·奥克曼 或 [帮助马克·马龙处理他失败的 *SNL* 海选](http://www.vulture.com/2015/11/marc-maron-and-lorne-michaels-the-entire-two-decade-saga.html) 的人来做的。他们中的一些人研究喜剧和它是如何运作的，足够有意识地让你可以向他们学习。这里有四个很棒的播客可以让你变得更有趣。
 

@@ -1,6 +1,6 @@
 # 为这个月的挑战节省现金的 5 种创造性方法
 
-> 原文:[https://life hacker . com/5-creative-ways-save-cash-for-this-months-challenge-1796857687](https://lifehacker.com/5-creative-ways-to-save-cash-for-this-months-challenge-1796857687)
+> 原文：<https://lifehacker.com/5-creative-ways-to-save-cash-for-this-months-challenge-1796857687>
 
 读者们，这个月 [我们向你们发出挑战，要你们节约自己的备用零钱](http://twocents.lifehacker.com/july-s-money-challenge-save-your-spare-change-1796626008#_ga=2.38698283.942234331.1499889547-1268082208.1431441811) ，信不信由你，七月已经快过半了。我们收集了一些有创意的想法，帮助你在下半年保持动力。
 

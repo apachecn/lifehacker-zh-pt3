@@ -1,6 +1,6 @@
 # 你不必用你的房间钥匙来操作酒店房间的灯
 
-> 原文:[https://life hacker . com/you-don-do-to-use-your-room-key-to-operate-hotel-roo-1823864196](https://lifehacker.com/you-dont-have-to-use-your-room-key-to-operate-hotel-roo-1823864196)
+> 原文：<https://lifehacker.com/you-dont-have-to-use-your-room-key-to-operate-hotel-roo-1823864196>
 
 我最近入住的酒店房间中，至少有一半要求你把房间钥匙插在门边的一个槽里，以便做开灯或使用电源插座之类的事情。这是一个我在旅行中至少会忘记一次的细节，最终我会花几分钟摸索着去确定为什么我似乎不知道如何打开床头灯。
 

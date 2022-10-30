@@ -1,6 +1,6 @@
 # Boléro 效果生产力播放列表
 
-> 原文:[https://life hacker . com/the-bolero-effect-productivity-playlist-1824213376](https://lifehacker.com/the-bolero-effect-productivity-playlist-1824213376)
+> 原文：<https://lifehacker.com/the-bolero-effect-productivity-playlist-1824213376>
 
 拉威尔的 *Boléro* ，著名的重复作品，将整个管弦乐队推向高潮，是古典形式最著名的例子，它基于同名的拉丁舞流派。TV Tropes，一个完全由兔子洞组成的网站， [列出了这种特殊歌曲结构](http://tvtropes.org/pmwiki/pmwiki.php/Main/BoleroEffect) 的 50 多个例子，我们在 Spotify 播放列表 中收集了尽可能多的例子。
 

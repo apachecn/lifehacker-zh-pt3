@@ -1,6 +1,6 @@
 # 如何找到毒性最小的清洁产品
 
-> 原文:[https://life hacker . com/find-safer-cleaning-products-with these-ratings-1825252002](https://lifehacker.com/find-safer-cleaning-products-with-these-ratings-1825252002)
+> 原文：<https://lifehacker.com/find-safer-cleaning-products-with-these-ratings-1825252002>
 
 清洁产品不需要在包装上披露它们的成分，所以很难知道你实际得到的是什么。如果你在寻找对你的健康和环境更好的清洁剂，试试这些表明产品已经过严格审查的标签。
 

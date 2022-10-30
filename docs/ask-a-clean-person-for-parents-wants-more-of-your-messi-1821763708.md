@@ -1,6 +1,6 @@
 # 问一个干净的人父母想要更多你最乱的问题
 
-> 原文:[https://life hacker . com/ask-a-clean-person for parents-want-more-of-your-Messi-1821763708](https://lifehacker.com/ask-a-clean-person-for-parents-wants-more-of-your-messi-1821763708)
+> 原文：<https://lifehacker.com/ask-a-clean-person-for-parents-wants-more-of-your-messi-1821763708>
 
 [请一个干净的人](https://lifehacker.com/tag/ask-a-clean-person) 对于父母来说，我们的清洁专栏专注于育儿及其带来的所有混乱，从 [去除粘手玩具留下的油渍](https://offspring.lifehacker.com/how-to-remove-oily-stains-left-by-sticky-hand-toys-1818724171) (菠萝汁！谁知道呢？)到 [去除你少年房间的屁味](https://offspring.lifehacker.com/how-to-deal-with-the-fart-smell-in-your-teenagers-room-1820610014) (不用，不用动)。
 

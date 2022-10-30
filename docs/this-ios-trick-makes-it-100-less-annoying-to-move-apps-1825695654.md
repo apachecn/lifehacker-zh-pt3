@@ -1,6 +1,6 @@
 # 这个 iOS 技巧让移动应用程序变得 100%不那么烦人
 
-> 原文:[https://life hacker . com/this-IOs-trick-makes-it-100-less-turned-to-move-apps-1825695654](https://lifehacker.com/this-ios-trick-makes-it-100-less-annoying-to-move-apps-1825695654)
+> 原文：<https://lifehacker.com/this-ios-trick-makes-it-100-less-annoying-to-move-apps-1825695654>
 
 停止印刷。我不 [整理我 iPhone 的应用](https://lifehacker.com/organize-your-home-screen-app-icons-by-color-1823427479) 的一个主要原因是因为长按一个应用 要花费 [太多时间，等待它摆动，将它移到一个文件夹，并为它的其他 60 个朋友重复这个过程。但是多亏了](https://www.youtube.com/watch?v=ykWffWpaakI) [Finer Tech](https://finertech.com/2018/04/19/how-to-move-multiple-apps-at-once-on-iphone-and-ipad/) 的天才们，有了一个更加简单的方法来调整你的应用程序。
 

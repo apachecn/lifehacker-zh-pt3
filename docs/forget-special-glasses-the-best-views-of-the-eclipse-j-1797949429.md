@@ -1,6 +1,6 @@
 # 忘记特殊的眼镜——为了获得日食的最佳视角，你只需要一个 DIY 针孔
 
-> 原文:[https://life hacker . com/forget-special-glasses-the-best-views-of-the-eclipse-j-1797949429](https://lifehacker.com/forget-special-glasses-the-best-views-of-the-eclipse-j-1797949429)
+> 原文：<https://lifehacker.com/forget-special-glasses-the-best-views-of-the-eclipse-j-1797949429>
 
 上一次重大日食 掠过我的家乡时，我还在上中学 [。一些老师给我们提供了眼镜，其他人帮助我们用麦片盒子制作了一个观察器，然后我们出去迎接这个重要的时刻。我想还可以。但是当我回到家，我妈妈告诉我*她是如何看到日食的。*](https://en.wikipedia.org/wiki/List_of_solar_eclipses_visible_from_the_United_States#/media/File:SE1994May10A.png) 
 

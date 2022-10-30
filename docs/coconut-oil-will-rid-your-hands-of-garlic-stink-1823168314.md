@@ -1,6 +1,6 @@
 # 椰子油可以去除你手上的蒜臭味
 
-> 原文:[https://life hacker . com/椰子油将去除你手上的蒜臭味-1823168314](https://lifehacker.com/coconut-oil-will-rid-your-hands-of-garlic-stink-1823168314)
+> 原文：<https://lifehacker.com/coconut-oil-will-rid-your-hands-of-garlic-stink-1823168314>
 
 技巧和诀窍会在你最意想不到的时候出现。就在上周，我正从辛苦了一天的砍食物和一集新的*酷儿眼*中解脱出来，当时食物专家/T 恤爱好者/新的 Ted Allen，Antoni Porowski 告诉他正在研究的任何直男(他们都混合在一起)，一点椰子油甚至可以去除最大蒜味的手的臭味。
 

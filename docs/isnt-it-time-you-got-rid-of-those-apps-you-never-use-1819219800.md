@@ -1,6 +1,6 @@
 # 你是不是该扔掉那些你从来不用的应用了？
 
-> 原文:[https://life hacker . com/not-it-time-you-get-ride-off-these-you-never-use-1819219800](https://lifehacker.com/isnt-it-time-you-got-rid-of-those-apps-you-never-use-1819219800)
+> 原文：<https://lifehacker.com/isnt-it-time-you-got-rid-of-those-apps-you-never-use-1819219800>
 
 上周五，当我们汇总员工的每周升级时，我们的编辑正在解开烦人的耳机线，享受真实犯罪电视，烘烤酥皮点心，最后关闭我们多余的浏览器标签。
 

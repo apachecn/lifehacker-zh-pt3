@@ -1,6 +1,6 @@
 # Snapmail 允许你发送自毁的 Gmail 邮件
 
-> 原文:[https://life hacker . com/snap mail-allows-you-send-self-destructing-Gmail-mess-1802795114](https://lifehacker.com/snapmail-allows-you-to-send-self-destructing-gmail-mess-1802795114)
+> 原文：<https://lifehacker.com/snapmail-allows-you-to-send-self-destructing-gmail-mess-1802795114>
 
 向他人发送安全且自毁的信息有很多选择。但是如果你真的只是想用 Gmail 给他们发一条信息呢？ [Snapmail](https://snapmail.co/) 是一个 Chrome 扩展，允许你像其他人一样发送消息给将在 60 秒内销毁的收件人。
 

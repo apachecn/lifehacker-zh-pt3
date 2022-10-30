@@ -1,6 +1,6 @@
 # 如何和小孩子谈论性
 
-> 原文:[https://life hacker . com/how-to-talk-to-young-kids-on-sex-1795765539](https://lifehacker.com/how-to-talk-to-young-kids-about-sex-1795765539)
+> 原文：<https://lifehacker.com/how-to-talk-to-young-kids-about-sex-1795765539>
 
 “如果你有任何关于……你知道，性方面的问题，嗯，你可以问我。”
 

@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我的女朋友撒谎说她是个摄像师
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-lied-about-be-a-cam-1823272015](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-lied-about-being-a-cam-1823272015)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-lied-about-being-a-cam-1823272015>
 
 你好所有你令人恐惧的罪恶劣根性，欢迎来到问博士书呆子爱，唯一的约会建议专栏访问 [每一个单身吧里的](https://kotaku.com/every-bar-in-the-witcher-3-reviewed-1823135241)*。本周，我们将讨论人际关系中的诚实。* 
 

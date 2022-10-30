@@ -1,6 +1,6 @@
 # 酿酒商透露他们全天饮用啤酒的秘诀
 
-> 原文:[https://the take out . com/brewers-spill-thes-tips-for-all-day-beer-drinking-1829244256](https://thetakeout.com/brewers-spill-their-tips-for-all-day-beer-drinking-1829244256)
+> 原文：<https://thetakeout.com/brewers-spill-their-tips-for-all-day-beer-drinking-1829244256>
 
 我在丹佛参加一年一度的美国啤酒节 ，这是美国最大的啤酒节。800 多家啤酒厂在这里酿造 4000 多种啤酒——而这还只是啤酒节本身的一部分。在为期三天的活动之外，还有数不清的 tap 接管、早午餐、欢乐时光、特别啤酒发布会等。这些加起来就是连续几天喝啤酒。
 

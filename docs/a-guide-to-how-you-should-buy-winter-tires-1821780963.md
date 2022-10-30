@@ -1,6 +1,6 @@
 # 如何购买冬季轮胎的指南
 
-> 原文:[https://jalopnik . com/a-guide-to-how-you-should-buy-winter-tires-1821780963](https://jalopnik.com/a-guide-to-how-you-should-buy-winter-tires-1821780963)
+> 原文：<https://jalopnik.com/a-guide-to-how-you-should-buy-winter-tires-1821780963>
 
 冬天正式来临，这意味着是时候购买冬季轮胎了。这似乎是一笔很大的开销——如果我车上的轮胎不是为四季制造的，为什么他们称之为四季轮胎？但是相信我们，它们是值得的。真的。不确定哪种最好？以下是你在购买一些之前需要知道的。
 

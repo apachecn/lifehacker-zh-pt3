@@ -1,6 +1,6 @@
 # 在费用上涨之前，现在就拿到你的护照
 
-> 原文:[https://life hacker . com/get-your-passport-now-before-fets-go-up-1822840687](https://lifehacker.com/get-your-passport-now-before-fees-go-up-1822840687)
+> 原文：<https://lifehacker.com/get-your-passport-now-before-fees-go-up-1822840687>
 
 如果你需要一本新护照，或者很久没有更新你的护照，现在正是时候。从四月份开始，费用将会增加。
 

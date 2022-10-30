@@ -1,6 +1,6 @@
 # 用一个“SUG”清单来排列你的待办事项
 
-> 原文:[https://life hacker . com/prioritize-your-to-dos with a-sug-list-1829163599](https://lifehacker.com/prioritize-your-to-dos-with-a-sug-list-1829163599)
+> 原文：<https://lifehacker.com/prioritize-your-to-dos-with-a-sug-list-1829163599>
 
 如果你正在寻找一种方法来提升你的标准待办事项清单的效率，大卫·努尔，努尔集团公司 的创始人，在 [*快公司*](https://www.fastcompany.com/3057716/use-this-formula-to-overhaul-your-totally-worthless-to-do-) *:* 中写了一个有用的替代方法，把它变成一个 SUG 清单。
 

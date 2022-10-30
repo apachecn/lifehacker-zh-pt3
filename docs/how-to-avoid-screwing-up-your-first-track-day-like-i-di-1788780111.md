@@ -1,6 +1,6 @@
 # 如何避免像我一样搞砸你的第一天比赛
 
-> 原文:[https://jalopnik . com/how-to-avoid-up-your ' s first-track-day-like-I-di-1788780111](https://jalopnik.com/how-to-avoid-screwing-up-your-first-track-day-like-i-di-1788780111)
+> 原文：<https://jalopnik.com/how-to-avoid-screwing-up-your-first-track-day-like-i-di-1788780111>
 
 直到我实际上做了一个田径日，我真的，真的想做一个田径日。我玩了足够多的 Forza 游戏，以至于想在现实生活中玩。在我的急切中，我完全忽略了一个人应该为真正的赛道日做准备的基本步骤。这就是我如何搞砸我的第一个，以及你如何避免做同样的事情。
 

@@ -1,6 +1,6 @@
 # 如何让地球上的下一次旅行变得轻松一点
 
-> 原文:[https://gizmodo . com/how-to-make the next-trip-a-bit easy-on-the-planet-1821325134](https://gizmodo.com/how-to-make-that-next-trip-a-bit-easier-on-the-planet-1821325134)
+> 原文：<https://gizmodo.com/how-to-make-that-next-trip-a-bit-easier-on-the-planet-1821325134>
 
 我们中的一些人很幸运，住在离家很远的火车上。其他人可能不得不赶飞机去看《家庭》或者离开他们。但是不管你旅行的原因是什么，事实是，在这个星球上旅行并不容易。这就是为什么我们收集了一些建议，让你的下一次旅行更加环保。
 

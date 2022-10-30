@@ -1,6 +1,6 @@
 # 现在 Alexa 会根据你的心情播放音乐
 
-> 原文:[https://life hacker . com/now-Alexa-will-play-music to-fit-your-mood-1797577970](https://lifehacker.com/now-alexa-will-play-music-to-fit-your-mood-1797577970)
+> 原文：<https://lifehacker.com/now-alexa-will-play-music-to-fit-your-mood-1797577970>
 
 现在你可以让 Alexa 为你营造气氛。
 

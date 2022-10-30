@@ -1,6 +1,6 @@
 # 把宠物的食物放在第二个碗里，让蚂蚁远离食物
 
-> 原文:[https://life hacker . com/keep-ants-out-of-your-pets-food-by-put-it-in-a-seco-1820737400](https://lifehacker.com/keep-ants-out-of-your-pets-food-by-putting-it-in-a-seco-1820737400)
+> 原文：<https://lifehacker.com/keep-ants-out-of-your-pets-food-by-putting-it-in-a-seco-1820737400>
 
 几周前，旧金山下了几天雨，这实际上是非常罕见的事情。所有的水导致一群蚂蚁决定搬到我的狗食盆旁边。
 

@@ -1,6 +1,6 @@
 # 不要把这些东西放在你的 Tinder 档案里
 
-> 原文:[https://life hacker . com/leave-things-out-of-your-tinder-profile-1827515383](https://lifehacker.com/leave-these-things-out-of-your-tinder-profile-1827515383)
+> 原文：<https://lifehacker.com/leave-these-things-out-of-your-tinder-profile-1827515383>
 
 你有没有想过为什么在 Tinder 或 Bumble 上找不到任何匹配？我们认为这些应用程序只是关于照片的，但是如果你运气不好，考虑一下你的简历。它可能需要更新。
 

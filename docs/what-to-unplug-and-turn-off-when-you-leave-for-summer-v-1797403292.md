@@ -1,6 +1,6 @@
 # 当你离开去过暑假的时候，拔掉电源，关掉什么
 
-> 原文:[https://life hacker . com/what-to-unplug-and-off-what-you-leave-when-you-to-summer-v-1797403292](https://lifehacker.com/what-to-unplug-and-turn-off-when-you-leave-for-summer-v-1797403292)
+> 原文：<https://lifehacker.com/what-to-unplug-and-turn-off-when-you-leave-for-summer-v-1797403292>
 
 当你意识到你还没有准备好你的家时，你已经准备好去过你应得的暑假了。这里列出了你出门前应该禁用(或调整)的所有能量吸血鬼。
 

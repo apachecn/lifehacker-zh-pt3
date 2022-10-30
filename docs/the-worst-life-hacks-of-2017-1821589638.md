@@ -1,6 +1,6 @@
 # 2017 年最糟糕的生活方式
 
-> 原文:[https://life hacker . com/the-worst-life-hacks-of-2017-1821589638](https://lifehacker.com/the-worst-life-hacks-of-2017-1821589638)
+> 原文：<https://lifehacker.com/the-worst-life-hacks-of-2017-1821589638>
 
 今年是最糟糕的一年。这一年，即使我们做了让事情变得更好的事情，也让事情变得更糟。以下是 2017 年造成最大损害的所谓生活黑客。
 

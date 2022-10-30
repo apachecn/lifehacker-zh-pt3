@@ -1,6 +1,6 @@
 # 捕捉(并杀死)老鼠的正确方法
 
-> 原文:[https://deadspin . com/the-correct-way-to-catch-and-kill-mice-1745765045](https://deadspin.com/the-correct-way-to-catch-and-kill-mice-1745765045)
+> 原文：<https://deadspin.com/the-correct-way-to-catch-and-kill-mice-1745765045>
 
 啊，见鬼，又到了冬天——一年中的这个时候，我们参加季节性的仪式，蹲下来，变胖，在偷来的炉子保温材料堆里生下我们失明的孩子。好吧，最后一件事可能只对老鼠有用。顺便说一句，他们现在也在你家。虽然我对上帝创造的任何生物都没有恶意，但老鼠是一个特殊的例外。这些小动物喜欢吃你的食物，在你的柜台上拉屎，啃你的电线。他们是不付房租的吃白食者，还厚颜无耻地在你卧室的墙壁里给你抓痒。他们很可爱，直到他们决定搬进来。
 

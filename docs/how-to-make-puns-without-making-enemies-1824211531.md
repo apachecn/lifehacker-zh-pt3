@@ -1,6 +1,6 @@
 # 如何在不树敌的情况下说双关语
 
-> 原文:[https://life hacker . com/how-to-make-puns-without-making-assemblies-1824211531](https://lifehacker.com/how-to-make-puns-without-making-enemies-1824211531)
+> 原文：<https://lifehacker.com/how-to-make-puns-without-making-enemies-1824211531>
 
 双关语长期以来一直是喜剧中丑陋的继子女，被几代人嘲笑为过于严厉的父亲和叔叔们选择的沉闷武器。但是，曾经被认为是最低级的幽默形式已经悄然崛起，近年来，双关语已经改头换面。由于竞争性双关语活动的兴起，包括布鲁克林七岁大的 [Punderdome](https://www.facebook.com/punderdome/) 活动，双关语已经开始类似于艺术，或者至少是彩色涂鸦。
 

@@ -1,6 +1,6 @@
 # 如何把 Waze 变成终极导航 App
 
-> 原文:[https://life hacker . com/how-to-turn-waze-into-ultimate-navigation-app-1740833171](https://lifehacker.com/how-to-turn-waze-into-the-ultimate-navigation-app-1740833171)
+> 原文：<https://lifehacker.com/how-to-turn-waze-into-the-ultimate-navigation-app-1740833171>
 
 Waze 一直是我们最喜欢的导航应用之一，即使 [谷歌早在 2013 年](http://www.businessinsider.com/how-google-bought-waze-the-inside-story-2015-8) 就收购了 Waze way，两者依然并存。谷歌地图很棒，但如果调整得当，Waze 也可以很棒——尤其是在交通繁忙的城市。
 

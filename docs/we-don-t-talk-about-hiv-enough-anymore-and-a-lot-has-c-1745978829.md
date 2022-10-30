@@ -1,6 +1,6 @@
 # 我们不再谈论艾滋病毒，很多事情都变了
 
-> 原文:[https://life hacker . com/we-don-t-talk-about-HIV-too-more-and-a-lot-has-c-1745978829](https://lifehacker.com/we-don-t-talk-about-hiv-enough-anymore-and-a-lot-has-c-1745978829)
+> 原文：<https://lifehacker.com/we-don-t-talk-about-hiv-enough-anymore-and-a-lot-has-c-1745978829>
 
 如果你成长在 20 世纪 90 年代，你几乎已经获得了艾滋病研究的学位——或者至少感觉是这样。自那以后的几年带来了更好的测试和治疗，我们现在对病毒有了更多的了解，但这些信息并不是常识。我们不再关注艾滋病毒和艾滋病。
 

@@ -1,6 +1,6 @@
 # “机密信息”是什么意思，如果泄露会发生什么
 
-> 原文:[https://life hacker . com/what-classified-information-means-and-what-occurs-I-1795303295](https://lifehacker.com/what-classified-information-means-and-what-happens-i-1795303295)
+> 原文：<https://lifehacker.com/what-classified-information-means-and-what-happens-i-1795303295>
 
 媒体对川普总统与俄罗斯外交官员 分享机密信息的报道如火如荼——但机密信息到底是什么？如果你公开了会怎么样？好消息:你已经被批准获取这个不算绝密的知识。
 

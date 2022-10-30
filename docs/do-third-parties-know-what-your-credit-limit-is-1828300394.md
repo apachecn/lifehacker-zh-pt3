@@ -1,6 +1,6 @@
 # 第三方知道你的信用额度是多少吗？
 
-> 原文:[https://life hacker . com/do-third-parties-know-what-your-credit-limit-is-1828300394](https://lifehacker.com/do-third-parties-know-what-your-credit-limit-is-1828300394)
+> 原文：<https://lifehacker.com/do-third-parties-know-what-your-credit-limit-is-1828300394>
 
 一家公司在接受订单之前可以要求你的信用额度吗？这就是我们本周讨论的内容。
 

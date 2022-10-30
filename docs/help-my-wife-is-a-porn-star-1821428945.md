@@ -1,6 +1,6 @@
 # 救命啊！我妻子是个色情明星
 
-> 原文:[https://life hacker . com/help-my-wife-is-a-porn-star-1821428945](https://lifehacker.com/help-my-wife-is-a-porn-star-1821428945)
+> 原文：<https://lifehacker.com/help-my-wife-is-a-porn-star-1821428945>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

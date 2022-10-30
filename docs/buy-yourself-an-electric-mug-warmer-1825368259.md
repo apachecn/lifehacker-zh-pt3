@@ -1,6 +1,6 @@
 # 给自己买一个电热保温杯
 
-> 原文:[https://life hacker . com/buy-yourself-an-electric-mug-warmer-1825368259](https://lifehacker.com/buy-yourself-an-electric-mug-warmer-1825368259)
+> 原文：<https://lifehacker.com/buy-yourself-an-electric-mug-warmer-1825368259>
 
 当你喝热饮料时，你希望饮料保持热的。你当然知道！你是一个有需求的人。可悲的是，不会——你斗不过 [热力学第二定律](https://en.wikipedia.org/wiki/Second_law_of_thermodynamics)；即使你先 [灌注你的杯子](https://lifehacker.com/keep-your-coffee-warm-by-priming-your-mug-with-hot-wate-1684617492) ，最终熵还是会有它的办法。最终，你会喝一大口你的咖啡或茶，得到一口不冷不热的失望。如果你早上 9 点的杯子尝起来像全新的一天，充满了希望，那么你 10 点 15 分的残渣提醒你还有 7 个小时才能开始喝酒。
 

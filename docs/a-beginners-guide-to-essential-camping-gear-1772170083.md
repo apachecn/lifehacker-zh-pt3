@@ -1,6 +1,6 @@
 # 基本露营装备初学者指南
 
-> 原文:[https://life hacker . com/a-初学者指南-必备-露营装备-1772170083](https://lifehacker.com/a-beginners-guide-to-essential-camping-gear-1772170083)
+> 原文：<https://lifehacker.com/a-beginners-guide-to-essential-camping-gear-1772170083>
 
 春天正如火如荼，这意味着你渴望已久的露营之旅就在眼前。当然，你也一直想买所需的装备。不要担心，无论你是一个完全的初学者还是一名兽医，我们都可以满足你。
 

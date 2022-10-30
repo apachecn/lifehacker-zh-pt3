@@ -1,6 +1,6 @@
 # 水不会变坏
 
-> 原文:[https://lifehacker.com/water-doesnt-go-bad-1826120883](https://lifehacker.com/water-doesnt-go-bad-1826120883)
+> 原文：<https://lifehacker.com/water-doesnt-go-bad-1826120883>
 
 好吧，看，这对我来说是个新闻，尽管我因为刚刚了解到这一点而被我的编辑们批评，但我打赌这对你们中的一些人来说也是个新闻:你可以把一杯水放在外面几个月，只要它被适当地清洗，它就不会让你生病。
 

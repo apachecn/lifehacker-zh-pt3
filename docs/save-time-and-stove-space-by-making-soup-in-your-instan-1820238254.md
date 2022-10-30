@@ -1,6 +1,6 @@
 # 在你的速溶锅里做汤可以节省时间和炉子空间
 
-> 原文:[https://life hacker . com/save-time-and-stove-space-by-making-soup-in-your-instance-1820238254](https://lifehacker.com/save-time-and-stove-space-by-making-soup-in-your-instan-1820238254)
+> 原文：<https://lifehacker.com/save-time-and-stove-space-by-making-soup-in-your-instan-1820238254>
 
 在寒冷的几个月里，一碗温暖的奶油南瓜汤是任何一餐受欢迎的开始，但在感恩节这种东西感觉完全是奢侈的。不过，感恩节的一道汤似乎总是有点太令人向往了，部分原因是我从来没有吃过这道菜，但主要是因为没有地方放汤。
 

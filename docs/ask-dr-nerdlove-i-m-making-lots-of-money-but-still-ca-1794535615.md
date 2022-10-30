@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我赚了很多钱，但还是找不到对象
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-m-making-loft-money-but-still-ca-1794535615](https://kotaku.com/ask-dr-nerdlove-i-m-making-lots-of-money-but-still-ca-1794535615)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-m-making-lots-of-money-but-still-ca-1794535615>
 
 大家好，各位互联网上的变态们，欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个旨在阻止第三次冲击的约会专栏。
 

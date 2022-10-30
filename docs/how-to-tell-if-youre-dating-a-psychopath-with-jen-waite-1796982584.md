@@ -1,6 +1,6 @@
 # 如何判断你是否在和精神病患者约会，珍·韦特&迈克尔·斯通
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-dating-a psychiatre-with-jen-waite-1796982584](https://lifehacker.com/how-to-tell-if-youre-dating-a-psychopath-with-jen-waite-1796982584)
+> 原文：<https://lifehacker.com/how-to-tell-if-youre-dating-a-psychopath-with-jen-waite-1796982584>
 
 你如何对待一个精神病患者？如果你意识到你娶了一个呢？在本周的升级节目中，我们邀请到了《美丽而可怕的 T2:婚姻与背叛回忆录》的作者珍·韦特和哥伦比亚大学精神病学教授、《邪恶的解剖》的作者迈克尔·斯通博士，来谈谈精神病患者、反社会者和自恋者:如何识别他们，如何避开他们，以及如何摆脱他们。
 

@@ -1,6 +1,6 @@
 # 如何在 YouTube、Gmail 和 Google Play 上通过 Google Pay 使用 PayPal
 
-> 原文:[https://life hacker . com/how-to-use-paypal-via-Google-pay-on-YouTube-Gmail-and-1826325622](https://lifehacker.com/how-to-use-paypal-via-google-pay-on-youtube-gmail-and-1826325622)
+> 原文：<https://lifehacker.com/how-to-use-paypal-via-google-pay-on-youtube-gmail-and-1826325622>
 
 您已经可以使用您的 PayPal 帐户通过 Google Pay 购物。现在，谷歌和贝宝正在 [扩展他们的合作关系](https://www.paypal.com/stories/us/deepening-our-partnership-with-google-pay) ，允许你使用你的贝宝账户支付谷歌生态系统中的东西，包括 Gmail、YouTube 和谷歌商店。更好的是，如果你把你的 PayPal 账户和 Google Pay 连接起来，你就不用每次想交易的时候都登录 PayPal 了。
 

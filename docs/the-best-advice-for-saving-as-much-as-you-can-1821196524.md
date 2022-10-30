@@ -1,6 +1,6 @@
 # 尽可能多存钱的最好建议
 
-> 原文:[https://life hacker . com/the-best-advice-for-saving as-much-can-1821196524](https://lifehacker.com/the-best-advice-for-saving-as-much-as-you-can-1821196524)
+> 原文：<https://lifehacker.com/the-best-advice-for-saving-as-much-as-you-can-1821196524>
 
 作为一名个人理财作家，有一个问题是我听到最多的。这不是如何玩股票市场，或成为亿万富翁，这只是如何使预算工作，同时仍然存足够的钱舒适地退休。
 

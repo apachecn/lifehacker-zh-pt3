@@ -1,6 +1,6 @@
 # 当你没有主意时，摆脱困境的三种方法
 
-> 原文:[https://life hacker . com/three-approach-to-get-unstuck-when-you-out-of-I-1773665910](https://lifehacker.com/three-approaches-to-getting-unstuck-when-youre-out-of-i-1773665910)
+> 原文：<https://lifehacker.com/three-approaches-to-getting-unstuck-when-youre-out-of-i-1773665910>
 
 第一步(总是最难的吧？)解决问题就是认识到你有一个问题。我们都很熟悉这种与挠头者纠缠不清的感觉。可能需要一段时间才能将我们盯着屏幕的时间与我们被困在某件事情上的事实联系起来，是时候尝试新的方法了。
 

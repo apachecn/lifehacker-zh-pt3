@@ -1,6 +1,6 @@
 # 今晚日落时看曼哈顿
 
-> 原文:[https://life hacker . com/see-Manhattan hange-tonight-at-sunset-1796859449](https://lifehacker.com/see-manhattanhenge-tonight-at-sunset-1796859449)
+> 原文：<https://lifehacker.com/see-manhattanhenge-tonight-at-sunset-1796859449>
 
 纽约，世界的中心，如此重要以至于它有自己的天文事件。今晚 8:20 是曼哈顿，当夕阳与曼哈顿街道网格对齐时，从任何城市街区看，它似乎整齐地位于道路中间的地平线上。(它在 14 街、34 街和 42 街等主要街道上看起来尤其壮观。)
 

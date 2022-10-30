@@ -1,6 +1,6 @@
 # 用这些信用卡免费进入机场候机室
 
-> 原文:[https://life hacker . com/these-credit-cards-give-you-free-airport-lounge-access-1820374723](https://lifehacker.com/these-credit-cards-give-you-free-airport-lounge-access-1820374723)
+> 原文：<https://lifehacker.com/these-credit-cards-give-you-free-airport-lounge-access-1820374723>
 
 免费畅饮！还有零食！这么多插座！毫不夸张地说 [大通蓝宝石储备](http://gear.lifehacker.com/for-frequent-travelers-the-chase-sapphire-reserve-is-a-1796407364) 毁了我。
 

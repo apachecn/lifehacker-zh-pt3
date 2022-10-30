@@ -1,6 +1,6 @@
 # 将你的密码从谷歌浏览器转移到一个专门的应用程序变得简单多了
 
-> 原文:[https://life hacker . com/moving-your-passwords-from-Google-chrome-to-a-dedicated-1823644449](https://lifehacker.com/moving-your-passwords-from-google-chrome-to-a-dedicated-1823644449)
+> 原文：<https://lifehacker.com/moving-your-passwords-from-google-chrome-to-a-dedicated-1823644449>
 
 如果你一直使用谷歌 Chrome 来存储你所有的登录信息和密码，那就太好了——比把你的密码写在便利贴上，贴在你的桌面显示器或笔记本电脑上要好得多。第三方 [密码管理器](https://lifehacker.com/the-five-best-password-managers-5529133) 甚至更好(在许多情况下是跨平台的)，新的 Chrome 设置现在可以轻松地将所有浏览器保存的密码转移到新的应用程序。
 

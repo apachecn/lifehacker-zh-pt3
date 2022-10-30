@@ -1,6 +1,6 @@
 # 送给已经拥有一切的人的最佳礼物
 
-> 原文:[https://life hacker . com/the-best-gift-ideas-for-people ' s that-hacken-1789706405](https://lifehacker.com/the-best-gift-ideas-for-people-who-already-have-everyth-1789706405)
+> 原文：<https://lifehacker.com/the-best-gift-ideas-for-people-who-already-have-everyth-1789706405>
 
 在我们的生活中，我们都有这样一个人，他会自己买所有想要的东西。他们没有要求任何东西，他们说他们不需要任何东西，但是你仍然想给他们一些东西来表达你的爱、尊重或感激。你可以这么做。
 

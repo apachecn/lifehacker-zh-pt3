@@ -1,6 +1,6 @@
 # 如何识别虚假的亚马逊五星评论
 
-> 原文:[https://life hacker . com/how-to-spot-a-fake-five-star-Amazon-review-1827907107](https://lifehacker.com/how-to-spot-a-fake-five-star-amazon-review-1827907107)
+> 原文：<https://lifehacker.com/how-to-spot-a-fake-five-star-amazon-review-1827907107>
 
 亚马逊超过一半的销售额来自第三方商品。但是那些物品上的评论都是 [不可信](https://lifehacker.com/heres-why-amazon-cant-fix-review-spam-1825955852) 。继 [BuzzFeed 新闻报道](https://www.buzzfeednews.com/article/nicolenguyen/amazon-fake-review-problem) 关于亚马逊虚假评论的怪异世界之后，播客回复 All [采访了一位虚假评论作者](https://www.gimletmedia.com/reply-all/124#episode-player) ，他揭露了“虚假评论的特征”
 

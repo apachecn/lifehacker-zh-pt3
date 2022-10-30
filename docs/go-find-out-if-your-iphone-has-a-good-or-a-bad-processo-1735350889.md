@@ -1,6 +1,6 @@
 # 去看看你的 iPhone 的处理器是好是坏
 
-> 原文:[https://gizmodo . com/go-find-out-if-your-iphone-has-a-good-or-a-bad-processo-1735350889](https://gizmodo.com/go-find-out-if-your-iphone-has-a-good-or-a-bad-processo-1735350889)
+> 原文：<https://gizmodo.com/go-find-out-if-your-iphone-has-a-good-or-a-bad-processo-1735350889>
 
 事实证明，并不是所有的 [新款 iphone](http://reviews.gizmodo.com/iphone-6s-review-a-3d-touch-playground-but-not-much-e-1734182375#_ga=1.169478497.1187679946.1433271270)都是生而平等的。A9 处理器有两个不同的版本，虽然它们基本相同，但其中一个芯片似乎会延长电池寿命。
 

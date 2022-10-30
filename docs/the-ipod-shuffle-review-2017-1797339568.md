@@ -1,6 +1,6 @@
 # iPod Shuffle 回顾(2017)
 
-> 原文:[https://gizmodo.com/the-ipod-shuffle-review-2017-1797339568](https://gizmodo.com/the-ipod-shuffle-review-2017-1797339568)
+> 原文：<https://gizmodo.com/the-ipod-shuffle-review-2017-1797339568>
 
 苹果公司正在淘汰 iPod Shuffle，这是一个我直到昨天才想起来的小玩意。现在，我突然对一根十年来从未考虑过的白色小棍子充满了感情。我会非常想念它的。该死的苹果，别再玩弄我的心。
 

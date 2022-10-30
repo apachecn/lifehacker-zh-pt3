@@ -1,6 +1,6 @@
 # 拉斯维加斯枪击案后如何献血
 
-> 原文:[https://life hacker . com/how-to-done-the-affinity-the-affinity-the-las-Vegas-s-1819080927](https://lifehacker.com/how-to-donate-blood-in-the-aftermath-of-the-las-vegas-s-1819080927)
+> 原文：<https://lifehacker.com/how-to-donate-blood-in-the-aftermath-of-the-las-vegas-s-1819080927>
 
 悲剧发生后，一个简单的帮助方法就是献血。即使你不在拉斯维加斯附近，血库和医院也会联网，在需要的地方获得供应。现在(或未来几周)献血将有助于为需要的人提供更多血液。
 

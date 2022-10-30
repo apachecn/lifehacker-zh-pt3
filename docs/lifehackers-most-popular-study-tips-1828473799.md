@@ -1,6 +1,6 @@
 # Lifehacker 最受欢迎的学习建议
 
-> 原文:[https://life hacker . com/life hacker-most-popular-study-tips-1828473799](https://lifehacker.com/lifehackers-most-popular-study-tips-1828473799)
+> 原文：<https://lifehacker.com/lifehackers-most-popular-study-tips-1828473799>
 
 嗨！你不是来这里逃避学习的，是吗？嗯，至少当你结束这个小假期后，你会学会如何更好地学习。这些是 Lifehacker 在过去五年里最受欢迎的学习建议。
 

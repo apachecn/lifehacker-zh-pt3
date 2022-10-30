@@ -1,6 +1,6 @@
 # 芹菜根是这道新鲜活力沙拉的关键
 
-> 原文:[https://life hacker . com/celery-root-is-the-key to the-this-fresh-vibrant-slaw-1821858606](https://lifehacker.com/celery-root-is-the-key-to-this-fresh-vibrant-slaw-1821858606)
+> 原文：<https://lifehacker.com/celery-root-is-the-key-to-this-fresh-vibrant-slaw-1821858606>
 
 对于一个充斥着社会策划的饮食紧缩的月份来说，一月份肯定不会有一系列色彩鲜艳、高度“T4”的新鲜农产品上市。一颗红色卷心菜或者一颗 [罗曼斯科](https://en.wikipedia.org/wiki/Romanesco_broccoli) 卷心菜里面有某种美，但是作为一个群体，冬季蔬菜看起来并不多。芹菜根——如果你够时髦的话，可以说是块根芹——绝对是所有蔬菜中最丑的，也是我一直以来最喜欢的根菜。肮脏粗糙的外表下隐藏着什么快乐？让我们来了解一下！
 

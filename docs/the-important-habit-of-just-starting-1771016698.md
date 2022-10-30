@@ -1,6 +1,6 @@
 # 刚开始的重要习惯
 
-> 原文:[https://life hacker . com/the-important-habit-of-just-starting-1771016698](https://lifehacker.com/the-important-habit-of-just-starting-1771016698)
+> 原文：<https://lifehacker.com/the-important-habit-of-just-starting-1771016698>
 
 每一天，我的待办事项清单都提醒着我所有还没开始的其他项目。我“没有时间”去做的激情项目。当我有时间的时候。那个熟悉的朋友——恐惧——来敲我的门。
 

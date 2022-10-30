@@ -1,6 +1,6 @@
 # 孩子们看电视时打开字幕
 
-> 原文:[https://life hacker . com/turn-on-the-subtitle-when-kids-watch-TV-1796558466](https://lifehacker.com/turn-on-the-subtitles-when-kids-watch-tv-1796558466)
+> 原文：<https://lifehacker.com/turn-on-the-subtitles-when-kids-watch-tv-1796558466>
 
 学校放暑假已经过去了一周左右，这意味着你可能已经完成了火山项目、串珠工具、沙艺和其他旨在防止孩子的大脑在接下来的两三个月里从 [变成无脑状态](http://www.ldonline.org/article/8057/) 的活动。
 

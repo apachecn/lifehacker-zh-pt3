@@ -1,6 +1,6 @@
 # 以下是嘉年华游戏是如何设计来欺骗你的
 
-> 原文:[https://life hacker . com/heres-how-carnival-games-designed-scam-you-1819850882](https://lifehacker.com/heres-how-carnival-games-are-designed-to-scam-you-1819850882)
+> 原文：<https://lifehacker.com/heres-how-carnival-games-are-designed-to-scam-you-1819850882>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-tk_ZlWJ3qJI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-tk_ZlWJ3qJI&start=0) 
 

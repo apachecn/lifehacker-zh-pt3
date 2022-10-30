@@ -1,6 +1,6 @@
 # 情人节后获得最佳折扣糖果的小贴士
 
-> 原文:[https://kotaku . com/tips-for-get-the-best-discount-candy-after-Valentin-1792379597](https://kotaku.com/tips-for-getting-the-best-discount-candy-after-valentin-1792379597)
+> 原文：<https://kotaku.com/tips-for-getting-the-best-discount-candy-after-valentin-1792379597>
 
 是的，是的，人是相爱的。太好了。既然情人节已经结束，是时候来一个一年中最大的甜蜜情侣节日了。这是一年中的第一个折扣糖果日，Snacktaku 将帮助您充分利用这一天。
 

@@ -1,6 +1,6 @@
 # 这种裸番茄沙拉可能会取代你的卡布里塞
 
-> 原文:[https://life hacker . com/this-naked-tomato-salad-may-replace-your-capres e-1798634063](https://lifehacker.com/this-naked-tomato-salad-may-replace-your-caprese-1798634063)
+> 原文：<https://lifehacker.com/this-naked-tomato-salad-may-replace-your-caprese-1798634063>
 
 我记得我第一次咬樱桃番茄的时候。我在一家时时乐餐厅。我当时七岁。一个男孩在场。当我漫不经心地把迷你马托放进嘴里时，我像往常一样说了很多。我的牙齿刺穿了皮肤，它以很大的力量爆炸了，种子和番茄凝胶喷了出来。我很尴尬，就不说话了。
 

@@ -1,6 +1,6 @@
 # 不要在 t 恤上浪费壁橱空间
 
-> 原文:[https://life hacker . com/stop-wasteing-closet-space-on-t-shirts-1826144433](https://lifehacker.com/stop-wasting-closet-space-on-t-shirts-1826144433)
+> 原文：<https://lifehacker.com/stop-wasting-closet-space-on-t-shirts-1826144433>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在 DIY 站立式办公桌，管理我们的压力，并寻找保持公寓清洁的新方法。
 

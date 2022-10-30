@@ -1,6 +1,6 @@
 # 五个智能手机电池的神话，解释
 
-> 原文:[https://life hacker . com/smart phone-battery-myths-explained-1735327089](https://lifehacker.com/smartphone-battery-myths-explained-1735327089)
+> 原文：<https://lifehacker.com/smartphone-battery-myths-explained-1735327089>
 
 短短几年间，我们智能手机的电池发生了很大变化。这意味着那些延长电池寿命的老建议不再像以前那样正确，但我们仍然像分享福音一样分享它们。在告诉某人禁用蓝牙或 Wi-Fi 之前，让我们来澄清一下这些古老的神话。
 

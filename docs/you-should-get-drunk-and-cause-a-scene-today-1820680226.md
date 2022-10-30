@@ -1,6 +1,6 @@
 # 你今天应该喝醉，然后大闹一场
 
-> 原文:[https://life hacker . com/you-should-today-1820680226](https://lifehacker.com/you-should-get-drunk-and-cause-a-scene-today-1820680226)
+> 原文：<https://lifehacker.com/you-should-get-drunk-and-cause-a-scene-today-1820680226>
 
 你现在是在逃避你的家人吗？不顾一切地想要逃离它们，以至于你在感恩节坐在浴室里看生产力博客？害怕不可避免的关于福克斯新闻频道的争吵，或者你缺少一个伴侣，或者哪个孩子霸占了大学基金？这是你的解决办法:喝醉，然后大吵大闹。
 

@@ -1,6 +1,6 @@
 # 为什么我不再重影了
 
-> 原文:[https://lifehacker.com/why-i-stopped-ghosting-1789214550](https://lifehacker.com/why-i-stopped-ghosting-1789214550)
+> 原文：<https://lifehacker.com/why-i-stopped-ghosting-1789214550>
 
 在约会的世界里，有一个隐现的存在困扰着我们所有人:鬼影。我看着朋友们被鬼缠住，被鬼缠住，我甚至多次被鬼缠住。但我决定停下来。不仅仅是因为我意识到我是多么不礼貌，还因为我看到消失在空气中实际上是对我自己的伤害。
 

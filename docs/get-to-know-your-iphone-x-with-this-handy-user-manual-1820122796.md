@@ -1,6 +1,6 @@
 # 使用这本方便的用户手册来了解您的 iPhone X
 
-> 原文:[https://life hacker . com/get-to-know-your-iphone-x-with the-handy-user-manual-1820122796](https://lifehacker.com/get-to-know-your-iphone-x-with-this-handy-user-manual-1820122796)
+> 原文：<https://lifehacker.com/get-to-know-your-iphone-x-with-this-handy-user-manual-1820122796>
 
 好吧，你刚刚花了 1000 美元买了一部新的 iPhone X。它很漂亮，充满了漂亮的先进技术，而且——你不知道如何使用它。这会有帮助的。
 

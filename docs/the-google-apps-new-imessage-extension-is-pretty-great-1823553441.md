@@ -1,6 +1,6 @@
 # 谷歌应用的新 iMessage 扩展非常棒
 
-> 原文:[https://life hacker . com/the-Google-apps-new-imessage-extension-is-pretty-great-1823553441](https://lifehacker.com/the-google-apps-new-imessage-extension-is-pretty-great-1823553441)
+> 原文：<https://lifehacker.com/the-google-apps-new-imessage-extension-is-pretty-great-1823553441>
 
 iOS:谷歌周一宣布 [对其](https://www.blog.google/products/search/getting-more-done-search-ios/) [iOS 应用](https://itunes.apple.com/us/app/google/id284815942?mt=8) 进行新的大更新 。如果你只是通过在浏览器的地址栏中键入搜索查询来与 iPhone 上的谷歌互动，那么安装一个独立的“谷歌”应用程序 的概念可能会感觉有点奇怪。别担心。
 

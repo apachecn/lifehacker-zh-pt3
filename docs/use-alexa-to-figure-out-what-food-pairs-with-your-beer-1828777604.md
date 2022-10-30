@@ -1,6 +1,6 @@
 # 使用 Alexa 找出什么食物与你的啤酒搭配
 
-> 原文:[https://life hacker . com/use-Alexa-to-figure-what-food-pairs-with your-beer-1828777604](https://lifehacker.com/use-alexa-to-figure-out-what-food-pairs-with-your-beer-1828777604)
+> 原文：<https://lifehacker.com/use-alexa-to-figure-out-what-food-pairs-with-your-beer-1828777604>
 
 当我们考虑将酒与食物搭配时，首先想到的通常是葡萄酒。虽然葡萄酒搭配不错，但你也可以将食物与啤酒搭配。
 

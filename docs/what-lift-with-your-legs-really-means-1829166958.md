@@ -1,6 +1,6 @@
 # “用腿抬起”到底是什么意思
 
-> 原文:[https://life hacker . com/what-lift-with-your-legs-really-means-1829166958](https://lifehacker.com/what-lift-with-your-legs-really-means-1829166958)
+> 原文：<https://lifehacker.com/what-lift-with-your-legs-really-means-1829166958>
 
 如果“用腿抬起”这句话对你来说没有任何意义，你并不孤单。试图遵循这个建议会感到尴尬、不自然和无效——即使它并没有错。这就是你错过的。
 

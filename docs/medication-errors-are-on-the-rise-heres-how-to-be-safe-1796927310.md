@@ -1,6 +1,6 @@
 # 用药错误正在增加——以下是如何做到安全
 
-> 原文:[https://life hacker . com/medication-errors-is-the-rise-heres-how-to-safe-1796927310](https://lifehacker.com/medication-errors-are-on-the-rise-heres-how-to-be-safe-1796927310)
+> 原文：<https://lifehacker.com/medication-errors-are-on-the-rise-heres-how-to-be-safe-1796927310>
 
 服用错误的药片，服用过多，混淆处方——一项新的研究表明，人们在药物治疗方面犯的错误比以往任何时候都多。
 

@@ -1,6 +1,6 @@
 # 如何赢得晚餐，梅丽莎·克拉克和戴夫·阿诺德
 
-> 原文:[https://life hacker . com/how-to-win-at-Melissa-Clark-and-Dave-arnol-1819772926](https://lifehacker.com/how-to-win-at-dinner-with-melissa-clark-and-dave-arnol-1819772926)
+> 原文：<https://lifehacker.com/how-to-win-at-dinner-with-melissa-clark-and-dave-arnol-1819772926>
 
 在这一集里，我们将谈论晚餐:你应该做什么，你应该如何做，以及为什么“晚餐”这个概念会让我们很多人忧心忡忡。我们与 Melissa Clark、 [交谈，纽约时报美食栏目的记者](https://www.nytimes.com/column/a-good-appetite) 和新食谱的作者 [*瞬间共进晚餐*。我们还采访了戴夫·阿诺德，他是位于布鲁克林的](https://www.amazon.com/Dinner-Instant-Recipes-Pressure-Multicooker-ebook/dp/B06XK41BQV/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-win-at-dinner-with-melissa-clark-and-dave-arnol-1819772926&asc_source=&ie=UTF8&keywords=dinner in an instant melissa clark&qid=1508775662&sr=8-1&tag=kinjalifehackerlink-20) [食品和饮料](http://www.mofad.org/) 博物馆的创始人兼总裁，也是《液态智慧[](https://www.amazon.com/Liquid-Intelligence-Science-Perfect-Cocktail/dp/0393089037/ref=tmm_hrd_swatch_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-win-at-dinner-with-melissa-clark-and-dave-arnol-1819772926&asc_source=&qid=1508768912&sr=8-1&tag=kinjalifehackerlink-20)*一书的作者。我们与克莱尔·洛维尔、、T21、life hacker 的美食编辑以及《 [将它收入](https://lifehacker.com/c/will-it-sous-vide) 专栏的幕后策划者共度美好时光。*
 

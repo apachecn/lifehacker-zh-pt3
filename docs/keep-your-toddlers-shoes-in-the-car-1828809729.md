@@ -1,6 +1,6 @@
 # 把你孩子的鞋子放在车里
 
-> 原文:[https://life hacker . com/keep-your-toddle-shoes-in-the-car-1828809729](https://lifehacker.com/keep-your-toddlers-shoes-in-the-car-1828809729)
+> 原文：<https://lifehacker.com/keep-your-toddlers-shoes-in-the-car-1828809729>
 
 学步鞋:可爱，但有问题。这双小鞋子实在是太...*微小的*。当我女儿还小的时候，我到处都能找到孤零零的微型运动鞋——沙发底下，玩具篮里，手提包底部。让他们站在孩子的脚上是一个完全不同的挑战。当我设法弄到一只安全的鞋子后，她会跑开，而我会留下另一只鞋子追着她跑，就像一个生气的白马王子。
 

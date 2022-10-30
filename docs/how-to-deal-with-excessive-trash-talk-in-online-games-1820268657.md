@@ -1,6 +1,6 @@
 # 如何应对网络游戏中过多的垃圾话
 
-> 原文:[https://life hacker . com/how-to-deal-three-trash-talk-in-online-games-1820268657](https://lifehacker.com/how-to-deal-with-excessive-trash-talk-in-online-games-1820268657)
+> 原文：<https://lifehacker.com/how-to-deal-with-excessive-trash-talk-in-online-games-1820268657>
 
 与朋友或随机玩家一起玩在线多人游戏是一种享受，但他们很快就会被那些对你或你的队友只有负面评价的玩家毁掉。这些建议将帮助你处理他们的垃圾话，这样你就可以专注于享受你宝贵的游戏时间。
 

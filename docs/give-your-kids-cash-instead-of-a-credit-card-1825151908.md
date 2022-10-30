@@ -1,6 +1,6 @@
 # 给你的孩子现金，而不是信用卡
 
-> 原文:[https://life hacker . com/give-your-kids-cash-not-a-credit-card-1825151908](https://lifehacker.com/give-your-kids-cash-instead-of-a-credit-card-1825151908)
+> 原文：<https://lifehacker.com/give-your-kids-cash-instead-of-a-credit-card-1825151908>
 
 有很多关于给孩子信用卡的建议。找一个利率低的。不要连署信用卡，因为你可能会毁掉自己的信用。 让他们非常清楚，是的，这是真金白银，是的，他们必须按时足额偿还。
 

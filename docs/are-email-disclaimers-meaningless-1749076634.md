@@ -1,6 +1,6 @@
 # 邮件免责声明是没有意义的吗？
 
-> 原文:[https://deadspin . com/are-email-免责声明-无意义-1749076634](https://deadspin.com/are-email-disclaimers-meaningless-1749076634)
+> 原文：<https://deadspin.com/are-email-disclaimers-meaningless-1749076634>
 
 *欢迎回来问律师，在这里我，一个律师，回应你的问题。有令人烦恼的法律问题吗？请发送过来，或者在下面的评论中留言。今天的查询:*
 

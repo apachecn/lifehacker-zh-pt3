@@ -1,6 +1,6 @@
 # 这个应用程序让不会说话的孩子准确地交流他们想要的东西
 
-> 原文:[https://life hacker . com/this-app-lets-non-silent-kids-communicate-exact-what-t-1802066483](https://lifehacker.com/this-app-lets-nonverbal-kids-communicate-exactly-what-t-1802066483)
+> 原文：<https://lifehacker.com/this-app-lets-nonverbal-kids-communicate-exactly-what-t-1802066483>
 
 罗伊登·詹姆斯以前也有过这样的想法。他相信其他和他情况一样的父母也有过。
 

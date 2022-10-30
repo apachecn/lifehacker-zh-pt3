@@ -1,6 +1,6 @@
 # 最适合您的 Raspberry Pi 项目的操作系统
 
-> 原文:[https://life hacker . com/the-best-operating-systems-for-your-raspberry-pi-projec-1774669829](https://lifehacker.com/the-best-operating-systems-for-your-raspberry-pi-projec-1774669829)
+> 原文：<https://lifehacker.com/the-best-operating-systems-for-your-raspberry-pi-projec-1774669829>
 
 如果你不熟悉树莓派，那款我们都喜欢的 35 美元的小电脑，你很可能已经下载了(或购买了一张包含)[【NOOBS】](https://www.raspberrypi.org/downloads/noobs/)的 SD 卡。NOOBS 使 Pi 入门变得容易，并包括一堆不同的操作系统可供选择。当然，您应该选择哪一个取决于您的项目。以下是如何做出正确选择的方法。
 

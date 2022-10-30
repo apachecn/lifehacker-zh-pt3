@@ -1,6 +1,6 @@
 # 该工具显示了您需要行驶多远才能到达最近的堕胎诊所
 
-> 原文:[https://life hacker . com/this-tool-shows-how-you-to-drive-to-reac-1802728838](https://lifehacker.com/this-tool-shows-how-far-you-would-have-to-drive-to-reac-1802728838)
+> 原文：<https://lifehacker.com/this-tool-shows-how-far-you-would-have-to-drive-to-reac-1802728838>
 
 你可以在镇上的任何医院或诊所获得其余的医疗保健，但各种法律和问题意味着堕胎护理更难获得。布丁有了一个新工具 ，它可以显示你要走多远，这取决于你怀孕的时间和你的居住地。
 

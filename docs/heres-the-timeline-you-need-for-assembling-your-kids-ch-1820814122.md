@@ -1,6 +1,6 @@
 # 用这个时间表来组装你孩子的圣诞玩具
 
-> 原文:[https://life hacker . com/heres-timeline-you-need-assembling-your-kids-ch-1820814122](https://lifehacker.com/heres-the-timeline-you-need-for-assembling-your-kids-ch-1820814122)
+> 原文：<https://lifehacker.com/heres-the-timeline-you-need-for-assembling-your-kids-ch-1820814122>
 
 你终于得到了一个玩具，这个玩具已经在你孩子的圣诞愿望清单上放了几个月了——现在你只需要把它包起来，塞到树下，享受父母的骄傲。(“干得好，我。做工精细。”)嗯，等等。这个玩具很难组装吗？因为看着你的孩子撕开礼物，却发现你必须穿过 57 条坚不可摧的塑料带，遵循 17 页的无字说明，插入 12 节你没有的电池(现在商店都关门了)，并等待 5 个小时安装一些软件，这种令人眩晕的兴奋感丝毫没有减弱。(“这里有一个...嗯...可爱的弓，亲爱的。这需要一段时间。”)
 

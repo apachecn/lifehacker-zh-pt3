@@ -1,6 +1,6 @@
 # 在你的垃圾桶里垫上报纸来吸收大量的水滴
 
-> 原文:[https://life hacker . com/line-your-trash can-with-newspapers-to-absort-gross-drip-1819112503](https://lifehacker.com/line-your-trashcan-with-newspapers-to-absorb-gross-drip-1819112503)
+> 原文：<https://lifehacker.com/line-your-trashcan-with-newspapers-to-absorb-gross-drip-1819112503>
 
 鉴于我不得不把厨房垃圾运下两段楼梯和走廊，垃圾袋不是我吝啬的东西。但似乎不管这些袋子有多“好”，我的箱底总会有一个又湿又臭的地方。
 

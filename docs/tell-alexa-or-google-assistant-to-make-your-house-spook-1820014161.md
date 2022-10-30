@@ -1,6 +1,6 @@
 # 告诉 Alexa 或谷歌助理在万圣节把你的房子弄得毛骨悚然
 
-> 原文:[https://life hacker . com/tell-Alexa-or-Google-assistant-to-make-your-house-spook-1820014161](https://lifehacker.com/tell-alexa-or-google-assistant-to-make-your-house-spook-1820014161)
+> 原文：<https://lifehacker.com/tell-alexa-or-google-assistant-to-make-your-house-spook-1820014161>
 
 也许你已经花了一个月的时间在壁炉上撒人造蜘蛛网，创建完美的万圣节播放列表，并倒数一年中最精彩的节日。或者也许你今天早上醒来，意识到今天是 10 月 31 日，然后想，“哦，也许我应该庆祝一下？”如果你有谷歌助手或 Alexa，你可以通过几个简单的命令立即在家里设置一个怪异的氛围。
 

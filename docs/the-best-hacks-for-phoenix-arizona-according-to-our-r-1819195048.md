@@ -1,6 +1,6 @@
 # 根据我们的读者，亚利桑那州凤凰城的最佳黑客
 
-> 原文:[https://life hacker . com/the-best-hacks-for-phoenix-Arizona-根据我们的 r-1819195048](https://lifehacker.com/the-best-hacks-for-phoenix-arizona-according-to-our-r-1819195048)
+> 原文：<https://lifehacker.com/the-best-hacks-for-phoenix-arizona-according-to-our-r-1819195048>
 
 顽强的 Lifehacker 读者可以在任何地方生存，从纽约市美丽的垃圾袋到旧金山珠光宝气的小山堆，甚至在沿海大都市之外。在本周的《黑客你的城市》节目中，你告诉了我们如何享受生活，甚至是如何在亚利桑那州的凤凰城讲述这个故事。以下是来自该评论帖子的最佳提示。
 

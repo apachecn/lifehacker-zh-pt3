@@ -1,6 +1,6 @@
 # 不要因为说“嗯”和“呃”而感到难过
 
-> 原文:[https://life hacker . com/its-perfective-fine-to-say-um-and-uh-1821947056](https://lifehacker.com/its-perfectly-fine-to-say-um-and-uh-1821947056)
+> 原文：<https://lifehacker.com/its-perfectly-fine-to-say-um-and-uh-1821947056>
 
 我们都接受了这样的传统观点，即像“嗯”、“呃”这样的填充词和特别可怕的“像”在对话中没有位置。他们让你听起来像哑巴！他们削弱了你的权威！但是，根据一位语言学家的说法，填充词有一个重要的功能，我们不应该这么快就试图将它们从对话中驱逐出去。
 

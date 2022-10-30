@@ -1,6 +1,6 @@
 # 咖啡豆保鲜的最好方法是什么？
 
-> 原文:[https://the take out . com/whats-the-best-way-keep-coffee-beans-fresh-1822391983](https://thetakeout.com/whats-the-best-way-to-keep-coffee-beans-fresh-1822391983)
+> 原文：<https://thetakeout.com/whats-the-best-way-to-keep-coffee-beans-fresh-1822391983>
 
 说到咖啡，我们听说过冰柜戏法，我们也看到过密封的罐装咖啡出售。但是专家说保存咖啡豆味道的最好方法是什么呢？
 

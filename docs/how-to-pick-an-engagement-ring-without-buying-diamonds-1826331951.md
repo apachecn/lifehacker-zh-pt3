@@ -1,6 +1,6 @@
 # 如何选择无钻订婚戒指
 
-> 原文:[https://life hacker . com/how-to-pick-a-订婚戒指-不买钻石-1826331951](https://lifehacker.com/how-to-pick-an-engagement-ring-without-buying-diamonds-1826331951)
+> 原文：<https://lifehacker.com/how-to-pick-an-engagement-ring-without-buying-diamonds-1826331951>
 
 不是每个人都完全迷恋订婚戒指上的钻石，不管戴戒指在文化上是多么根深蒂固。但事实是，并不是所有的宝石都适合你在余生中日复一日佩戴的戒指。以下是你如何挑选一枚历经顺境逆境而不会变成最坚硬的石头的戒指。
 

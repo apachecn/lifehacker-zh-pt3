@@ -1,6 +1,6 @@
 # 你真应该试着用壶铃健身
 
-> 原文:[https://life hacker . com/you-should-really-尝试用壶铃健身-1790152387](https://lifehacker.com/you-should-really-try-working-out-with-kettlebells-1790152387)
+> 原文：<https://lifehacker.com/you-should-really-try-working-out-with-kettlebells-1790152387>
 
 壶铃训练增强你的力量、力量、柔韧性和灵活性，同时比杠铃重量训练对你的身体更温和。不过，你不能拿起一个就走，而不冒受伤的风险。以下是使用它们的所有好处，以及为什么你应该在日常工作中使用它们。
 

@@ -1,6 +1,6 @@
 # 告诉我们你的阿姆斯特丹小贴士
 
-> 原文:[https://life hacker . com/tell-us-your-Amsterdam-tips-1823084488](https://lifehacker.com/tell-us-your-amsterdam-tips-1823084488)
+> 原文：<https://lifehacker.com/tell-us-your-amsterdam-tips-1823084488>
 
 在阿姆斯特丹除了买大麻还有别的事可做！这是一个美丽的、可以骑自行车的城市，有运河，有著名的博物馆，如安妮·弗兰克故居、梵高博物馆和国立博物馆。(买一张 [博物馆卡](https://www.museumkaart.nl/) 。)
 

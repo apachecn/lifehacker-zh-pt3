@@ -1,6 +1,6 @@
 # 我们是朱莉娅·科林·戴维森和布丽奇特·兰卡斯特，美国测试厨房的主持人，这就是我们的工作方式
 
-> 原文:[https://life hacker . com/we-are-Julia-Collin-Davison-and-Bridget-Lancaster-host-1791304075](https://lifehacker.com/we-are-julia-collin-davison-and-bridget-lancaster-host-1791304075)
+> 原文：<https://lifehacker.com/we-are-julia-collin-davison-and-bridget-lancaster-host-1791304075>
 
 十六年来, [美国的试验厨房](https://www.americastestkitchen.com/) 一直通过一种有条理的、科学的视角来研究烹饪，解释如何完美地执行一个食谱。在烹饪电视的拥挤景观中，他们因其严格的测试和可获得的食谱而脱颖而出。
 

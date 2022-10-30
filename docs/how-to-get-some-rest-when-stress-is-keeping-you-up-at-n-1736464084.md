@@ -1,6 +1,6 @@
 # 当压力让你夜不能寐时，如何休息
 
-> 原文:[https://life hacker . com/how-to-get-some-rest-when-stress-keep you-n-1736464084](https://lifehacker.com/how-to-get-some-rest-when-stress-is-keeping-you-up-at-n-1736464084)
+> 原文：<https://lifehacker.com/how-to-get-some-rest-when-stress-is-keeping-you-up-at-n-1736464084>
 
 现在是半夜，你知道你应该睡觉，但你不能。有什么事情让你睡不着觉:也许一个同事想把你扔到公共汽车底下，或者你的朋友说了一些粗鲁的话。不管是什么，你都忘不了，明天工作需要睡觉。糟透了。
 

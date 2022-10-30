@@ -1,6 +1,6 @@
 # 可怕的瑞克&莫蒂粉丝示范如何不成为粉丝
 
-> 原文:[https://life hacker . com/terrible-Rick-morty-fans-demo-how-not-to-a-1818972295](https://lifehacker.com/horrible-rick-morty-fans-demonstrate-how-not-to-be-a-1818972295)
+> 原文：<https://lifehacker.com/horrible-rick-morty-fans-demonstrate-how-not-to-be-a-1818972295>
 
 为什么大家都讨厌科幻漫画《T2》的粉丝？ 这个问题催生了 [两个](https://www.reddit.com/r/OutOfTheLoop/comments/6uiavw/why_does_everyone_seem_to_suddenly_hate_rick_and/) 海量 [线程](https://www.reddit.com/r/OutOfTheLoop/comments/72sard/why_does_everyone_hate_rick_and_morty_fans_all_of/) 在*瑞克&莫蒂*粉丝网站 Reddit 上。 [在 Twitter 上搜索“里克·莫蒂的粉丝”](https://twitter.com/search?q=rick%20morty%20fans&src=typd) 可以发现，的确有很多人讨厌他们，称他们令人讨厌，是精英主义者。
 

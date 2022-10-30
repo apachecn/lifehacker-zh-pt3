@@ -1,6 +1,6 @@
 # 这是商家为登上蓝色大出口标志支付的费用
 
-> 原文:[https://jalopnik . com/heres-how-amount-business-pay-to-get-the-big-blue-1795338950](https://jalopnik.com/heres-how-much-businesses-pay-to-get-on-those-big-blue-1795338950)
+> 原文：<https://jalopnik.com/heres-how-much-businesses-pay-to-get-on-those-big-blue-1795338950>
 
 沿着美国任何一条主要的州际公路行驶，你会在大多数出口附近看到装饰着商业标识的蓝色大标牌。这里是谁来决定哪些企业在招牌上，以及所有的费用。
 

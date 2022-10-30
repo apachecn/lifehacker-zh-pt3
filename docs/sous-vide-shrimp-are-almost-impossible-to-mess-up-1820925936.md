@@ -1,6 +1,6 @@
 # 腌虾几乎不可能搞砸
 
-> 原文:[https://life hacker . com/sous-vide-shrimp-is-just-impossible-up-1820925936](https://lifehacker.com/sous-vide-shrimp-are-almost-impossible-to-mess-up-1820925936)
+> 原文：<https://lifehacker.com/sous-vide-shrimp-are-almost-impossible-to-mess-up-1820925936>
 
 朋友们大家好，欢迎回到 [*它会苏威吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。本周，我们用各种方法烹饪一种美味的小甲壳动物——虾。
 

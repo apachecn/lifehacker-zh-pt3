@@ -1,6 +1,6 @@
 # iOS 的“锁箱”应用程序让火狐用户可以快速调出他们的密码
 
-> 原文:[https://life hacker . com/the-IOs-lock box-app-lets-Firefox-users-pull-up-their-pa-1827494462](https://lifehacker.com/the-ios-lockbox-app-lets-firefox-users-pull-up-their-pa-1827494462)
+> 原文：<https://lifehacker.com/the-ios-lockbox-app-lets-firefox-users-pull-up-their-pa-1827494462>
 
 ***3/26 更新:** Mozilla 的锁箱工具现已可用于*[*Android*](https://play.google.com/store/apps/details?id=mozilla.lockbox)*，此外还有*[*iOS*](https://itunes.apple.com/us/app/firefox-lockbox/id1314000270?ls=1&mt=8)*。*
 

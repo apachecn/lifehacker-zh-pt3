@@ -1,6 +1,6 @@
 # 没人能从你身上拿走的东西
 
-> 原文:[https://life hacker . com/the-one-thing-than-than-than-one-than-than-than-ever-can ' t-take-from-you-1824988465](https://lifehacker.com/the-one-thing-that-nobody-can-ever-take-from-you-1824988465)
+> 原文：<https://lifehacker.com/the-one-thing-that-nobody-can-ever-take-from-you-1824988465>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 

@@ -1,6 +1,6 @@
 # 电视收视率如何运作
 
-> 原文:[https://jalopnik.com/how-tv-ratings-work-1795820157](https://jalopnik.com/how-tv-ratings-work-1795820157)
+> 原文：<https://jalopnik.com/how-tv-ratings-work-1795820157>
 
 今年的印第安纳波利斯 500 有一个 [巨大的全球存在](http://blackflag.jalopnik.com/spain-s-indy-500-tv-audience-was-double-that-of-the-mon-1795666708#_ga=2.115628549.2053773394.1496956307-1308569750.1485109051)[是不可能紧张的](http://blackflag.jalopnik.com/funny-what-fernando-alonso-can-do-in-a-working-race-car-1795620135#_ga=2.138146099.2053773394.1496956307-1308569750.1485109051) 和有 [一个故事书赢家](http://blackflag.jalopnik.com/takuma-satos-honda-engine-survives-all-200-laps-to-win-1795621421) 。但是第二天的大新闻是，据印第安纳波利斯星报报道，这场比赛“获得了 31 年来(直播)最低的全国收视率”。问题是，收视率不是真实的故事。找出它们背后的数字是很难的，今年的 Indy 500 指数可以告诉你很多关于它们实际上是如何工作的。
 

@@ -1,6 +1,6 @@
 # 为什么霍格沃茨分院帽不是个好主意
 
-> 原文:[https://life hacker . com/why-the-Hogwarts-sorting-hat-a-bad-idea-1796676216](https://lifehacker.com/why-the-hogwarts-sorting-hat-is-a-bad-idea-1796676216)
+> 原文：<https://lifehacker.com/why-the-hogwarts-sorting-hat-is-a-bad-idea-1796676216>
 
 霍格沃茨分院帽是哈利波特神话的核心部分，已经成为西方文化中最著名的心理测试之一，比迈尔斯-布里格斯或者《你是否是凯莉》都重要。这是在 [BuzzFeed](https://www.buzzfeed.com/eleanorbate/accurate-af-sorting-quiz) ， [Pottermore](https://my.pottermore.com/user-profile/my-house?topnav) ，[the*Guardian*](https://www.theguardian.com/childrens-books-site/quiz/2015/feb/05/harry-potter-night-quiz-sorting-hat-which-house)，[many](http://sorting-hat.com/sorthatq.htm)[其他](http://www.theherald.com.au/story/4060916/what-house-is-yours-at-hogwarts-take-the-sorting-hat-quiz/?cs=2452)[sites](http://www.playbuzz.com/hannahblomgren10/what-hogwarts-house-would-you-be-sorted-into)进行的真实世界的性格测试。最近, [《时代》杂志开发了一个复杂的分院帽测验](http://time.com/4809884/harry-potter-house-sorting-hat-quiz/) ，它是基于像这样的心理测量。
 

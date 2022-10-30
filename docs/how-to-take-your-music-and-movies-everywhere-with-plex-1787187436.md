@@ -1,6 +1,6 @@
 # 如何通过 Plex 云将您的音乐和电影带到任何地方
 
-> 原文:[https://life hacker . com/how-to-take-your-music-and-movie-everywhere with-plex-1787187436](https://lifehacker.com/how-to-take-your-music-and-movies-everywhere-with-plex-1787187436)
+> 原文：<https://lifehacker.com/how-to-take-your-music-and-movies-everywhere-with-plex-1787187436>
 
 Plex 已经是一种将你的媒体从电脑传输到所有设备的绝佳方式。新推出的[Plex 云](http://lifehacker.com/plex-cloud-stores-all-your-media-files-on-amazon-drive-1787089731) 为你托管媒体，让一切变得更简单。你不必让自己的电脑一直开着并连接着，你只需把你的东西上传到亚马逊，然后就可以在你去的任何地方播放了。以下是如何设置这一切。
 

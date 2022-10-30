@@ -1,6 +1,6 @@
 # 你需要一张杂货店的购物“地图”
 
-> 原文:[https://life hacker . com/you-need-a-shopping-map-for-your-杂货店-1797899029](https://lifehacker.com/you-need-a-shopping-map-for-your-grocery-store-1797899029)
+> 原文：<https://lifehacker.com/you-need-a-shopping-map-for-your-grocery-store-1797899029>
 
 我真的不喜欢在杂货店里无效率地走来走去——就像当我在每个通道上走来走去，然后意识到我仍然需要 PB 和金枪鱼，又走了三个通道，然后又折回来买酸奶油，因为我总是在玉米卷之夜忘记这一点。但今年夏天，这种对低效率的厌恶达到了顶点，因为我将在一个地方度过这个夏天，那里的杂货店有足球场那么大，而不是我通常去的又小又拥挤的布鲁克林乔氏商店。我发现自己在价格斩波器上来回徘徊，就像一个在感恩而死(Grateful Dead)节目中喝醉的嬉皮士，被各种选择淹没，并计划着我的第一部关于消费文化和异化的电影。
 

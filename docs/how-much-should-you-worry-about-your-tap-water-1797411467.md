@@ -1,6 +1,6 @@
 # 你应该有多担心你的自来水？
 
-> 原文:[https://life hacker . com/你应该多担心你的自来水-1797411467](https://lifehacker.com/how-much-should-you-worry-about-your-tap-water-1797411467)
+> 原文：<https://lifehacker.com/how-much-should-you-worry-about-your-tap-water-1797411467>
 
 上周，环境工作组公布了一个更新的数据库，你可以输入你的邮政编码，得到一份关于自来水中污染物的报告。从某些方面来说，这是一个很好的工具——但是它也有一些严重的警告。
 

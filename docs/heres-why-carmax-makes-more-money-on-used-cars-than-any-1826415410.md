@@ -1,6 +1,6 @@
 # 这就是为什么 CarMax 在二手车上赚的钱比其他任何人都多
 
-> 原文:[https://jalopnik . com/heres-why-carmax 在二手车上赚的钱比任何人都多 1826415410](https://jalopnik.com/heres-why-carmax-makes-more-money-on-used-cars-than-any-1826415410)
+> 原文：<https://jalopnik.com/heres-why-carmax-makes-more-money-on-used-cars-than-any-1826415410>
 
 在二手车零售方面，CarMax 绝对是一个强者。与最接近的竞争对手相比，它销售的二手库存是他们的两倍多，他们这样做赚的钱也多得多。出现这种情况的主要原因很简单——大多数人支付的价格过高。
 

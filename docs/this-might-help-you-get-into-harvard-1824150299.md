@@ -1,6 +1,6 @@
 # 这可能会帮助你进入哈佛
 
-> 原文:[https://life hacker . com/this-may-help-you-get-into-Harvard-1824150299](https://lifehacker.com/this-might-help-you-get-into-harvard-1824150299)
+> 原文：<https://lifehacker.com/this-might-help-you-get-into-harvard-1824150299>
 
 现在是大学录取通知书的季节，所以如果你有一个高中的孩子，你会知道全国的学生都在焦急地等待，想知道他们是被梦想大学录取了，还是不得不退而求其次。如果你有一个高三学生(或者*是*一个高三学生)，你可能会提前考虑明年秋天的申请季节——以及所有与申请哪里相关的博弈理论。
 

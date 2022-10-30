@@ -1,6 +1,6 @@
 # 无需特殊软件即可升级您手机的指纹锁
 
-> 原文:[https://life hacker . com/upgrade-your-phones-fingerprint-lock-with-no-special-so-1827318733](https://lifehacker.com/upgrade-your-phones-fingerprint-lock-with-no-special-so-1827318733)
+> 原文：<https://lifehacker.com/upgrade-your-phones-fingerprint-lock-with-no-special-so-1827318733>
 
 普通人只用 10%的手指力量来打开手机。这并不意味着什么，但是你*应该*教你的手机不仅仅是一个指纹。尝试这三个升级来简化您手机的指纹识别。
 

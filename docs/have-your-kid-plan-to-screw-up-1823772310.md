@@ -1,6 +1,6 @@
 # 让你的孩子计划搞砸
 
-> 原文:[https://life hacker . com/have-your-kid-plan-to-screw-up-1823772310](https://lifehacker.com/have-your-kid-plan-to-screw-up-1823772310)
+> 原文：<https://lifehacker.com/have-your-kid-plan-to-screw-up-1823772310>
 
 当然，你可以告诉你的孩子定期洗澡，从不迟到，吃均衡的膳食，感谢客服人员，做一个纯粹的快乐的人。但是你可能听起来就像一个带着坏掉的麦克风宣布飞机安全程序的空姐。为了让孩子们真正思考他们的行为，做出更深思熟虑的选择，一位老师分享了这种心理技巧:让他们思考他们如何表现得*不好*。
 

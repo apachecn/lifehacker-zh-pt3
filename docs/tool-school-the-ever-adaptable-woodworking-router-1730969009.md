@@ -1,6 +1,6 @@
 # 工具学校:永远适应性强的木工路由器
 
-> 原文:[https://life hacker . com/tool-school-the-ever-adaptable-wood-router-1730969009](https://lifehacker.com/tool-school-the-ever-adaptable-woodworking-router-1730969009)
+> 原文：<https://lifehacker.com/tool-school-the-ever-adaptable-woodworking-router-1730969009>
 
 路由器被认为是最通用的木工电动工具，是任何工匠，新手到专业人士不可或缺的。以下是您需要了解的关于它们如何工作、做什么以及如何购买的信息。
 

@@ -1,6 +1,6 @@
 # 你在纽约的最佳建议
 
-> 原文:[https://life hacker . com/your-best-new-York-city-tips-1818638405](https://lifehacker.com/your-best-new-york-city-tips-1818638405)
+> 原文：<https://lifehacker.com/your-best-new-york-city-tips-1818638405>
 
 在 Lifehacker 最近的纽约市指南中，我们征求了你的最佳建议。我们收到了数百条带有建议和推荐的回复(以及时报广场的许多辩护)。我们挑选了游客和居民的最佳建议。
 

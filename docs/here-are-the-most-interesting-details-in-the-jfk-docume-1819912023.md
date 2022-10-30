@@ -1,6 +1,6 @@
 # 以下是 JFK 文件中最有趣的细节
 
-> 原文:[https://life hacker . com/here-is-the-JFK-docume-1819912023](https://lifehacker.com/here-are-the-most-interesting-details-in-the-jfk-docume-1819912023)
+> 原文：<https://lifehacker.com/here-are-the-most-interesting-details-in-the-jfk-docume-1819912023>
 
 周四，美国政府公布了 2891 份关于约翰·肯尼迪遇刺的文件，让我们面对现实吧:你可能不会去读这些文件。因此，根据已经拥有的人的说法，这里有一些有趣的部分。
 

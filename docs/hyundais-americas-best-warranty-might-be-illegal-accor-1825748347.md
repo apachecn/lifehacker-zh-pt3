@@ -1,6 +1,6 @@
 # 现代汽车的“美国最佳”保修可能会与联邦贸易委员会陷入困境(更新)
 
-> 原文:[https://jalopnik . com/hyundais-Americas-best-warranty-may-be-launch-accor-1825748347](https://jalopnik.com/hyundais-americas-best-warranty-might-be-illegal-accor-1825748347)
+> 原文：<https://jalopnik.com/hyundais-americas-best-warranty-might-be-illegal-accor-1825748347>
 
 现代 [现代](https://jalopnik.com/tag/hyundai) 的大卖点是它们令人印象深刻的保修，尤其是 10 年 10 万英里的动力系统。但是上个月， [【美国联邦贸易委员会】](https://www.ftc.gov/news-events/press-releases/2018/04/ftc-staff-warns-companies-it-illegal-condition-warranty-coverage) 警告该公司，其保修可能是非法的，因为如果车主不使用现代自己的零件，保修似乎会失效。
 

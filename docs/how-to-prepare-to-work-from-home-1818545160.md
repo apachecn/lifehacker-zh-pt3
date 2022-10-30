@@ -1,6 +1,6 @@
 # 如何准备在家工作
 
-> 原文:[https://life hacker . com/how-to-prepare-to-work-from-home-1818545160](https://lifehacker.com/how-to-prepare-to-work-from-home-1818545160)
+> 原文：<https://lifehacker.com/how-to-prepare-to-work-from-home-1818545160>
 
 正如 Fast Company 在他们的 [在家工作指南](https://www.fastcompany.com/40467397/the-ultimate-work-from-home-checklist-for-people-who-are-always-in-the-office) 中指出的那样，在你在家工作的前一天，记得转移任何重要的文件。如果您使用的是不同的电脑，请使用 Dropbox、电子邮件或 USB 驱动器同步所有内容。即使你用的是同一台电脑，或者你主要依赖云服务，记得也要准备好任何双因素登录，以及任何不能在你的公司 VPN 上工作的东西。把任何实物文件带回家。
 

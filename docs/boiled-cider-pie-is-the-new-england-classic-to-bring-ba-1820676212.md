@@ -1,6 +1,6 @@
 # 煮苹果派是新英格兰的经典，将在这个感恩节带回来
 
-> 原文:[https://life hacker . com/bowed-cider-pie-is-the-new-England-classic-to-bring-ba-1820676212](https://lifehacker.com/boiled-cider-pie-is-the-new-england-classic-to-bring-ba-1820676212)
+> 原文：<https://lifehacker.com/boiled-cider-pie-is-the-new-england-classic-to-bring-ba-1820676212>
 
 我承认感恩节的前一天是公布馅饼食谱的好时机，但是说真的，多一个馅饼又有什么关系呢？此外，这一个真的很特别——而且我打赌你手边已经有了配料。
 

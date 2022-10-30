@@ -1,6 +1,6 @@
 # 特朗普的一名顾问正在接受调查，洗钱到底是什么？
 
-> 原文:[https://life hacker . com/with-a-trump-advisor-now-under-investigation-what-exac-1797129837](https://lifehacker.com/with-a-trump-advisor-now-under-investigation-what-exac-1797129837)
+> 原文：<https://lifehacker.com/with-a-trump-advisor-now-under-investigation-what-exac-1797129837>
 
 前混帐顾问保罗·马纳福特(Paul Manafort)因涉嫌洗钱正在接受调查，《华尔街日报》 昨日晚间报道。*好可怕，就是好可怕*，你可能在想，*但是还有，什么是洗钱？*
 

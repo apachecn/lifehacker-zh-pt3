@@ -1,6 +1,6 @@
 # 如果你在家工作，你的公司应该支付多少费用
 
-> 原文:[https://life hacker . com/what-your-company-should-pay-if you-home-work-1823241321](https://lifehacker.com/what-your-company-should-pay-for-if-you-work-from-home-1823241321)
+> 原文：<https://lifehacker.com/what-your-company-should-pay-for-if-you-work-from-home-1823241321>
 
 如果你是一名远程工作者，你可能想知道你的公司是否应该支付你用来完成工作的用品、技术和其他费用，就像你在办公室工作一样。
 

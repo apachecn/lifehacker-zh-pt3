@@ -1,6 +1,6 @@
 # 商业中使用的 10 个体育隐喻，以及它们的真正来源
 
-> 原文:[https://life hacker . com/10-sports-beauties-used-in-business-and-where-they-re-1782325688](https://lifehacker.com/10-sports-metaphors-used-in-business-and-where-they-re-1782325688)
+> 原文：<https://lifehacker.com/10-sports-metaphors-used-in-business-and-where-they-re-1782325688>
 
 体育行话渗透到生活的许多方面，尤其是商业领域。你可能在办公室里听到过这些话，比如“倒计时”或者某个项目是“灌篮”以下是这些流行体育短语的词源，对于外行人来说，它们真正的意思是什么。
 

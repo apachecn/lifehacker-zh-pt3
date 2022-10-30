@@ -1,6 +1,6 @@
 # 三要素快乐时光:淘金热
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the gold-rush-1802732099](https://lifehacker.com/3-ingredient-happy-hour-the-gold-rush-1802732099)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-gold-rush-1802732099>
 
 周末快乐(当之无愧)，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们关注的是我所钟爱的波旁威士忌 [蜜蜂的膝盖](https://lifehacker.com/3-ingredient-happy-hour-the-bees-knees-1796370002) :淘金热。
 

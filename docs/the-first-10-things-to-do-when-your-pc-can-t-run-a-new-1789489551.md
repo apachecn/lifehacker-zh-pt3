@@ -1,6 +1,6 @@
 # 当你的电脑无法运行新游戏时要做的前 10 件事
 
-> 原文:[https://kotaku . com/the-first-10-things-to-do-when-your-PC-can-t-run-a-new-1789489551](https://kotaku.com/the-first-10-things-to-do-when-your-pc-can-t-run-a-new-1789489551)
+> 原文：<https://kotaku.com/the-first-10-things-to-do-when-your-pc-can-t-run-a-new-1789489551>
 
 你刚刚得到了一个新的电脑游戏！伙计，你很兴奋。你期待这一天已经很多年了。你把它装上，然后…哦，见鬼。
 

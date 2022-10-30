@@ -1,6 +1,6 @@
 # 如何廉价填充自己该死的泰迪熊
 
-> 原文:[https://life hacker . com/how-to-stuff-your-own-dummy-bear-for cheap-1827574803](https://lifehacker.com/how-to-stuff-your-own-damn-teddy-bear-for-cheap-1827574803)
+> 原文：<https://lifehacker.com/how-to-stuff-your-own-damn-teddy-bear-for-cheap-1827574803>
 
 昨天，Build-A-Bear 举办了一场“支付你的年龄”活动，向顾客承诺他们可以为商店里的任何毛绒动物支付他们的年龄。这意味着如果你的孩子是三岁，她可以花三美元得到一个毛茸茸的朋友。什么会出错，对吗？从这个著名的玩具连锁店里带一个属于自己的依偎伙伴回家，这是每个孩子的梦想。(作为一个五岁孩子的家长，我有时会想，当我赶时间的时候，我是否应该在购物中心找到一条替代路线，这样我的孩子就不会在商店门前停下来乞求，“*请请，*妈妈，我们能进去吗？”)
 

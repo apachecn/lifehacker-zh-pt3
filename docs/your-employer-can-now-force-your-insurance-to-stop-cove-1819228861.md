@@ -1,6 +1,6 @@
 # 你的雇主现在可以强迫你的保险停止覆盖节育
 
-> 原文:[https://life hacker . com/your-employee-can-now-force-your-insurance-to-stop-cove-1819228861](https://lifehacker.com/your-employer-can-now-force-your-insurance-to-stop-cove-1819228861)
+> 原文：<https://lifehacker.com/your-employer-can-now-force-your-insurance-to-stop-cove-1819228861>
 
 今天，特朗普政府 [发布了一项规则](https://s3.amazonaws.com/public-inspection.federalregister.gov/2017-21851.pdf) ，立即生效，取消了雇主提供的保险覆盖节育的要求。
 

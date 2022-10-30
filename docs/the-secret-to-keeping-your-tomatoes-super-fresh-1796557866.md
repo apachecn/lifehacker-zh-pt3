@@ -1,6 +1,6 @@
 # 保持西红柿超级新鲜的秘密
 
-> 原文:[https://life hacker . com/the-secret-to-keep-your-tomatos-super-fresh-1796557866](https://lifehacker.com/the-secret-to-keeping-your-tomatoes-super-fresh-1796557866)
+> 原文：<https://lifehacker.com/the-secret-to-keeping-your-tomatoes-super-fresh-1796557866>
 
 夏天我最喜欢的事情之一就是吃和我体重相当的西红柿三明治，但是我可能会有点过分热情，最后吃太多东西。幸运的是，Serious Eats 的 J. Kenji Lopez-Alt 有一些方法可以让我最喜欢的夏季产品保持超级新鲜。
 

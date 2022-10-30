@@ -1,6 +1,6 @@
 # 今年秋天上市的每一款大型电子游戏
 
-> 原文:[https://kotaku . com/every-big-video-game-out-this-fall-1786888787](https://kotaku.com/every-big-video-game-coming-out-this-fall-1786888787)
+> 原文：<https://kotaku.com/every-big-video-game-coming-out-this-fall-1786888787>
 
 秋天，唯一比树叶落下更快的是大型游戏的发布。随着赛季的进行，看看我们将获得的一大堆冠军。
 

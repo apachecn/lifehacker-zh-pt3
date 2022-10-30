@@ -1,6 +1,6 @@
 # 当你忘记你的 Mac 登录时，如何找到它
 
-> 原文:[https://life hacker . com/how-to-figure-out-your-MAC-log in-when-you wave-forgot-I-1828745072](https://lifehacker.com/how-to-figure-out-your-mac-login-when-youve-forgotten-i-1828745072)
+> 原文：<https://lifehacker.com/how-to-figure-out-your-mac-login-when-youve-forgotten-i-1828745072>
 
 虽然大多数人设置了他们的 MAC 电脑，所以他们只需要一个密码或手指按压来验证他们的机器，但你公司给你的电脑可能会更严格一些。例如，您可能需要实际输入您的帐户名和密码，而不是让您保存您的登录名或显示您的系统用户列表。
 

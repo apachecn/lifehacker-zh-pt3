@@ -1,6 +1,6 @@
 # 撕蘑菇以获得更好的嫩煎
 
-> 原文:[https://life hacker . com/tear-mon 菇-for-a-better-saute-1826197453](https://lifehacker.com/tear-mushrooms-for-a-better-saute-1826197453)
+> 原文：<https://lifehacker.com/tear-mushrooms-for-a-better-saute-1826197453>
 
 如果你想要一个完美的烤焦，蘑菇是一个巨大的痛苦。不管你是否冲洗它们，仅仅切片和切碎就能释放出足够的天然水分，即使是之前干透的蘑菇在出锅前也会变湿——这根本不行。
 

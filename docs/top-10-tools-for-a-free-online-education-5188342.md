@@ -1,6 +1,6 @@
 # 免费在线教育的 10 大工具
 
-> 原文:[https://life hacker . com/top-10-tools-for-a-free-online-education-5188342](https://lifehacker.com/top-10-tools-for-a-free-online-education-5188342)
+> 原文：<https://lifehacker.com/top-10-tools-for-a-free-online-education-5188342>
 
 对于终身学习者和自学成才的学者来说，互联网是无价的资源。使用这些顶级免费在线工具继续您的教育。
 

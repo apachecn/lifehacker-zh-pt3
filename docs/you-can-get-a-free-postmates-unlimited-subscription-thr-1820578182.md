@@ -1,6 +1,6 @@
 # 你可以通过 Apple Pay 获得免费的 Postmates 无限订阅
 
-> 原文:[https://life hacker . com/you-can-get-a-free-post mates-unlimited-subscription-thr-1820578182](https://lifehacker.com/you-can-get-a-free-postmates-unlimited-subscription-thr-1820578182)
+> 原文：<https://lifehacker.com/you-can-get-a-free-postmates-unlimited-subscription-thr-1820578182>
 
 【Postmates】是一种“什么都可以送”的服务，通常每次递送收费 5.99 美元(或从 post mates 合作伙伴处递送收费 3.99 美元)。对于经常使用 Postmates 的用户来说，每月 9.99 美元的费用可以让你无限制地使用 Postmates，超过 20 美元的订单没有送货费。
 

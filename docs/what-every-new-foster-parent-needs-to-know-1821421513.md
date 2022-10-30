@@ -1,6 +1,6 @@
 # 每个新的养父母需要知道的是
 
-> 原文:[https://life hacker . com/what-every-every-new-foster-parent-need-to-know 1821421513](https://lifehacker.com/what-every-new-foster-parent-needs-to-know-1821421513)
+> 原文：<https://lifehacker.com/what-every-new-foster-parent-needs-to-know-1821421513>
 
 成为任何类型的父母都需要计划、准备和过程中的大量灵活性。但是当那个孩子带着你几乎不知道的过去，你没有造成的创伤，零袜子或内衣来到你面前时，它会让你的世界颠倒过来。
 

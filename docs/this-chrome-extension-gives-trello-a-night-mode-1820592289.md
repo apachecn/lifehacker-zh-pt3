@@ -1,6 +1,6 @@
 # 这个 Chrome 扩展给了 Trello 一个夜间模式
 
-> 原文:[https://life hacker . com/this-chrome-extension-gives-trello-a-night-mode-1820592289](https://lifehacker.com/this-chrome-extension-gives-trello-a-night-mode-1820592289)
+> 原文：<https://lifehacker.com/this-chrome-extension-gives-trello-a-night-mode-1820592289>
 
 我喜欢尽可能使用夜间模式运行应用程序和网站。即使在白天，深色对你的眼睛也更容易，你甚至可以通过将亮白色屏幕换成柔和一点的屏幕来节省笔记本电脑或智能手机的电池电量。
 

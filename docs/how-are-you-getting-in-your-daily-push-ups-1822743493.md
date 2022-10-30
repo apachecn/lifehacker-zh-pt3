@@ -1,6 +1,6 @@
 # 你每天的俯卧撑做得怎么样了？
 
-> 原文:[https://life hacker . com/how-are-how-you-get-in-you-daily-push-ups-1822743493](https://lifehacker.com/how-are-you-getting-in-your-daily-push-ups-1822743493)
+> 原文：<https://lifehacker.com/how-are-you-getting-in-your-daily-push-ups-1822743493>
 
 既然今年二月 我们都在做俯卧撑，那就让我们花点时间聊聊事情进展如何，以及我们都是如何设法做好这些俯卧撑的。
 

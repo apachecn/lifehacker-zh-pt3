@@ -1,6 +1,6 @@
 # 环绕式窗口工作区
 
-> 原文:[https://life hacker . com/the-wrap around-window-workspace-1789284685](https://lifehacker.com/the-wraparound-window-workspace-1789284685)
+> 原文：<https://lifehacker.com/the-wraparound-window-workspace-1789284685>
 
 [【Re _ on】](https://www.reddit.com/user/re_on)有一个华丽的大窗户，可以看到美丽的景色...所以他在它的正前方建立了他的工作室。它很漂亮，简单，尽管没有窗帘，但也是一个不错的工作场所。让我们看看更多的照片。
 

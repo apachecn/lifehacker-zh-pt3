@@ -1,6 +1,6 @@
 # 崩溃的海浪桌面
 
-> 原文:[https://life hacker . com/the-crashing-waves-desktop-1785811113](https://lifehacker.com/the-crashing-waves-desktop-1785811113)
+> 原文：<https://lifehacker.com/the-crashing-waves-desktop-1785811113>
 
 katil10 的桌面定制得很好，非常简洁，但也足够有活力，让我们想坐下来完成工作。以下是如何设置的，以及您需要什么来获得同样漂亮、个性化的外观。
 

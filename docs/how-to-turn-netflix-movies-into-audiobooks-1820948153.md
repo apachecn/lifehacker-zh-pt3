@@ -1,6 +1,6 @@
 # 如何把网飞电影变成有声读物
 
-> 原文:[https://life hacker . com/how-to-turn-网飞-电影-有声读物-1820948153](https://lifehacker.com/how-to-turn-netflix-movies-into-audiobooks-1820948153)
+> 原文：<https://lifehacker.com/how-to-turn-netflix-movies-into-audiobooks-1820948153>
 
 当然，你听说过网飞的疯狂收看节目，但是疯狂收听怎么样呢？
 

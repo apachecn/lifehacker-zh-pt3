@@ -1,6 +1,6 @@
 # 五道你不知道可以用铸铁做的美味菜肴
 
-> 原文:[https://life hacker . com/five-delicious-disks-you-not-know-you-can-make-in-1769749325](https://lifehacker.com/five-delicious-dishes-you-didnt-know-you-could-make-in-1769749325)
+> 原文：<https://lifehacker.com/five-delicious-dishes-you-didnt-know-you-could-make-in-1769749325>
 
 铸铁煎锅是你厨房里最有用的锅之一 。它们是在牛排和排骨上获得美味烤焦的最佳选择，但它们可以用来制作奶酪蘸酱、整只烤鸡和你最狂野的梦想中的 ooey gooey 甜点。
 

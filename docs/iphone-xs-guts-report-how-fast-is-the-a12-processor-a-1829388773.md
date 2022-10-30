@@ -1,6 +1,6 @@
 # iPhone XS 胆量测试:A12 处理器有多快，电池寿命有多好？
 
-> 原文:[https://gizmodo . com/iphone-xs-guts-report-how-fast-a-1829388773](https://gizmodo.com/iphone-xs-guts-report-how-fast-is-the-a12-processor-a-1829388773)
+> 原文：<https://gizmodo.com/iphone-xs-guts-report-how-fast-is-the-a12-processor-a-1829388773>
 
 我们已经使用 iPhone XS 整整两周了。不出所料，这是一部伟大的手机——有史以来最好的 iPhone，尽管有 [零星的抱怨](https://gizmodo.com/major-complaints-about-the-iphone-xs-are-stacking-up-1829447724) 和突然出现的问题。现在，经过两周的测试，这里有一个手机的处理器和电池仔细看看。
 

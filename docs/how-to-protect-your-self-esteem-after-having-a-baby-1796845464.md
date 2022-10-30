@@ -1,6 +1,6 @@
 # 有了孩子后如何保护自己的自尊
 
-> 原文:[https://life hacker . com/how-to-protect-your-self-hacker-1796845464](https://lifehacker.com/how-to-protect-your-self-esteem-after-having-a-baby-1796845464)
+> 原文：<https://lifehacker.com/how-to-protect-your-self-esteem-after-having-a-baby-1796845464>
 
 来自荷兰的有趣消息:一个由荷兰研究人员组成的团队跟踪了近 85，000 名挪威妇女在怀孕期间及怀孕后的情况 ，发现孕妇和新妈妈的自尊会波动:在怀孕的第 30 周会下降，直到孩子六个月大时会上升，然后至少在接下来的两年半时间里会下降。好消息是，母亲的自尊最终确实恢复了:当研究人员跟踪这些妇女随后的怀孕时，他们发现这些妇女已经恢复到了以前的自尊水平。
 

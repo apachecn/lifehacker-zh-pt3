@@ -1,6 +1,6 @@
 # 达美、百思买和西尔斯顾客的个人信息可能被黑客窃取
 
-> 原文:[https://life hacker . com/delta-best-buy-and-sears-customers-may-had-perso-1825060420](https://lifehacker.com/delta-best-buy-and-sears-customers-may-have-had-perso-1825060420)
+> 原文：<https://lifehacker.com/delta-best-buy-and-sears-customers-may-have-had-perso-1825060420>
 
 由于[24]7.ai 的在线客户服务软件存在安全问题，成千上万的在线购物者的姓名、地址和信用信息可能被黑客窃取
 

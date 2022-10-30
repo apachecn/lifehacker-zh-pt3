@@ -1,6 +1,6 @@
 # 最好的比特币和以太坊解释者
 
-> 原文:[https://life hacker . com/the-best-bit coin-and-ether eum-explainers-1796654705](https://lifehacker.com/the-best-bitcoin-and-ethereum-explainers-1796654705)
+> 原文：<https://lifehacker.com/the-best-bitcoin-and-ethereum-explainers-1796654705>
 
 比特币，这种由白人 主导的分散式数字货币 [，在每一次丑闻、崩溃或黑客攻击后，似乎都处于消失的边缘。但是八年后，它不仅在增长，而且还在加速，从一月份到T5，总价值翻了三倍，超过 450 亿美元](http://www.coindesk.com/new-coindesk-report-reveals-who-really-uses-bitcoin/) 。而且它不是唯一的加密货币； [竞争对手有莱特币、Dogecoin、以太币](https://coinmarketcap.com/) (一种支持“智能合约”的货币)。
 

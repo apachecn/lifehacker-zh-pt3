@@ -1,6 +1,6 @@
 # 告诉我们你的曼谷旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Bangkok-travel-tips-1828427158](https://lifehacker.com/tell-us-your-bangkok-travel-tips-1828427158)
+> 原文：<https://lifehacker.com/tell-us-your-bangkok-travel-tips-1828427158>
 
 本周 [Hack Your City](https://lifehacker.com/c/hack-your-city) 来到曼谷，泰国的首都，广阔而闪亮。它在当地的名字是 Krung Thep，“天使之城”，是一个更长的名字的缩写，包括“世界上拥有九种珍贵宝石的大首都”太神奇了。曼谷肝和爱好者们，请告诉我们，在这座城市里，你们珍贵的宝石是什么？
 

@@ -1,6 +1,6 @@
 # 愤怒屋是我们这一代人的避难所
 
-> 原文:[https://life hacker . com/the-anger-room-is-our-generations-escape-room-1797717739](https://lifehacker.com/the-anger-room-is-our-generations-escape-room-1797717739)
+> 原文：<https://lifehacker.com/the-anger-room-is-our-generations-escape-room-1797717739>
 
 几个世纪前，从 2007 年到 2016 年，最吸引人的是 [逃生室](https://io9.gizmodo.com/could-you-solve-enough-puzzles-to-make-it-out-of-this-l-1622405374) ，这是一种真人版的 Myst 游戏，在这里你可以解开谜题，离开地牢、图书馆或蒸汽朋克实验室。但现在是 2017 年，不是玩脑力游戏的时候。是时候发泄愤怒了。愤怒屋时间到了。
 

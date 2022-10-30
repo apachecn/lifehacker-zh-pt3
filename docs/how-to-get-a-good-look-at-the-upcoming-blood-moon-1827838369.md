@@ -1,6 +1,6 @@
 # 如何看清楚即将到来的血月
 
-> 原文:[https://life hacker . com/how-to-get-a-good-look-on-the-coming-blood-moon-1827838369](https://lifehacker.com/how-to-get-a-good-look-at-the-upcoming-blood-moon-1827838369)
+> 原文：<https://lifehacker.com/how-to-get-a-good-look-at-the-upcoming-blood-moon-1827838369>
 
 日历上有一些有趣的天文事件在等着我们，只要做一点准备，你就可以在家里看到它们。
 

@@ -1,6 +1,6 @@
 # 你应该在你的厨房里常备五个鲜味炸弹
 
-> 原文:[https://life hacker . com/five-umami-bombs-you-should-only-has-stocked-in-your-1794269578](https://lifehacker.com/five-umami-bombs-you-should-always-have-stocked-in-your-1794269578)
+> 原文：<https://lifehacker.com/five-umami-bombs-you-should-always-have-stocked-in-your-1794269578>
 
 “鲜味”，也被称为“第五种味道”，是一种很难描述的味道。它是咸的，但不咸，虽然它通常伴随着盐。它被描述为“肉味的”、“蘑菇味的”和“肉汤味的”，但我更喜欢把它描述为“那种让你一口气吃掉一整袋多力多滋的味道。”
 

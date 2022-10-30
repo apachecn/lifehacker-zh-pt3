@@ -1,6 +1,6 @@
 # 冬季小屋桌面
 
-> 原文:[https://life hacker . com/the-winter-cottage-desktop-1751925078](https://lifehacker.com/the-winter-cottage-desktop-1751925078)
+> 原文：<https://lifehacker.com/the-winter-cottage-desktop-1751925078>
 
 读者 [亚历克](http://kinja.com/stranaha) 使用了一点小魔法，让他的 mac 在坐下来工作时变得更友好，在起身离开时变得更有信息。他是这样安排一切的。
 

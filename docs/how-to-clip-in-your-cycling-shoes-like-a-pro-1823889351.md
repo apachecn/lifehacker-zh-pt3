@@ -1,6 +1,6 @@
 # 如何像专业人士一样夹住你的自行车鞋
 
-> 原文:[https://life hacker . com/how-to-clip-in-your-cycling-shoes-like-a-pro-1823889351](https://lifehacker.com/how-to-clip-in-your-cycling-shoes-like-a-pro-1823889351)
+> 原文：<https://lifehacker.com/how-to-clip-in-your-cycling-shoes-like-a-pro-1823889351>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-RTdHBUDgI_4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-RTdHBUDgI_4&start=0) 
 

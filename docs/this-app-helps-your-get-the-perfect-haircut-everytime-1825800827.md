@@ -1,6 +1,6 @@
 # 使用这款应用程序，每次都能获得“完美发型”
 
-> 原文:[https://life hacker . com/this-app-helps-your-get-the-perfect-理发-everytime-1825800827](https://lifehacker.com/this-app-helps-your-get-the-perfect-haircut-everytime-1825800827)
+> 原文：<https://lifehacker.com/this-app-helps-your-get-the-perfect-haircut-everytime-1825800827>
 
 在过去的五年里，一个叫杰曼的女人(读作:天使)一直在给我理发。在我以前的发型师搬走后，我和她预约了一次会面，我们谈了至少 30 分钟，在她拿起一把剪刀之前，她打算如何剪我的头发。
 

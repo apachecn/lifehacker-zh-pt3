@@ -1,6 +1,6 @@
 # 用这些免费课程教你的孩子机器学习
 
-> 原文:[https://life hacker . com/teach-your-kid-machine-learning with this-free-lessons-1826836113](https://lifehacker.com/teach-your-kid-machine-learning-with-these-free-lessons-1826836113)
+> 原文：<https://lifehacker.com/teach-your-kid-machine-learning-with-these-free-lessons-1826836113>
 
 你可能每天都在使用机器学习系统，而自己却不知道。这项技术为我们提供了垃圾邮件过滤器、脸书新闻源、数字助理、搜索引擎、网飞精选、亚马逊推荐、欺诈检测系统、聊天机器人等等。而且只会越来越普遍。机器学习可能很快就会 [评估你患心脏病的风险](https://www.theverge.com/2018/2/19/17027902/google-verily-ai-algorithm-eye-scan-heart-disease-cardiovascular-risk)[驾驶你的汽车](https://www.technologyreview.com/s/603853/machine-learning-and-data-are-fueling-a-new-kind-of-car/)[自动检查你的杂货](https://mashable.com/2017/09/08/startup-using-artificial-intelligence-store-autonomous-shopping/#zoRalT89emqE) 。
 

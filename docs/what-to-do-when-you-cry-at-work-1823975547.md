@@ -1,6 +1,6 @@
 # 上班哭了怎么办
 
-> 原文:[https://life hacker . com/1823975547](https://lifehacker.com/what-to-do-when-you-cry-at-work-1823975547)
+> 原文：<https://lifehacker.com/what-to-do-when-you-cry-at-work-1823975547>
 
 作为一名新员工，有几条建议你会反复听到:带着良好的态度来上班，尽可能多地主动提出做额外的工作，永远不要在工作时哭。但事实是，你是人——你会哭的。与其不惜一切代价避免它，谴责自己没有控制好自己的情绪，不如为它发生的时候做好准备。
 

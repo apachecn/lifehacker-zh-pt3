@@ -1,6 +1,6 @@
 # DIY 梦想音频制作和录音棚
 
-> 原文:[https://life hacker . com/the-DIY-dream-audio-production-and-recording-studio-1741738934](https://lifehacker.com/the-diy-dream-audio-production-and-recording-studio-1741738934)
+> 原文：<https://lifehacker.com/the-diy-dream-audio-production-and-recording-studio-1741738934>
 
 这个干净、光线充足的工作室里没有什么新奇的东西——哦，除了那些设备和那张巨大的 DIY 书桌。
 

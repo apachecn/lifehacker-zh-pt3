@@ -1,6 +1,6 @@
 # 使用这些 Mac 快捷键来代替 Esc 键
 
-> 原文:[https://life hacker . com/use-these-MAC-shortcut s-instead-of-the-ESC-key-1828236210](https://lifehacker.com/use-these-mac-shortcuts-instead-of-the-esc-key-1828236210)
+> 原文：<https://lifehacker.com/use-these-mac-shortcuts-instead-of-the-esc-key-1828236210>
 
 这里有一条愚蠢的捷径，总有一天会派上用场。在一些应用程序中， **⌘-.**与退出键的作用相同。所以如果那个键坏了，或者你的 [愚蠢的触摸条](https://lifehacker.com/fix-your-touch-bar-with-this-app-1823463782) 藏着你愚蠢的虚拟退出键，或者你的手够不到你键盘的一角，或者你只是更喜欢人体工程学，那就去争取吧。
 

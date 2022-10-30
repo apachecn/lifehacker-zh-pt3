@@ -1,6 +1,6 @@
 # 什么时候用干的还是新鲜的意大利面
 
-> 原文:[https://life hacker . com/when-to-use-dry-vs-fresh-pasta-1796997403](https://lifehacker.com/when-to-use-dried-vs-fresh-pasta-1796997403)
+> 原文：<https://lifehacker.com/when-to-use-dried-vs-fresh-pasta-1796997403>
 
 如果你迷恋意大利面(我就是！)，那么你就知道鲜面条和干面条在质地和味道上有明显的区别。但是，虽然我一直认为新鲜的比干的好，但事实证明并非如此，有时为新鲜的意大利面买单是不值得的——这对我们这些精打细算的碳加载者来说是个好消息。
 

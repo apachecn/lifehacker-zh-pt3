@@ -1,6 +1,6 @@
 # 如何训练你的狗接受治疗服务
 
-> 原文:[https://life hacker . com/how-to-training-your-dog-for-therapy-service-1796019886](https://lifehacker.com/how-to-train-your-dog-for-therapy-service-1796019886)
+> 原文：<https://lifehacker.com/how-to-train-your-dog-for-therapy-service-1796019886>
 
 当你过了糟糕的一天或者生病躺在沙发上时，狗擅长让你感觉更好，只要稍加训练，它们可以帮助其他人感受到同样广泛的狗的爱。把你的狗训练成治疗犬意味着它们能够给困在医院的孩子带来快乐，为老年人提供陪伴，安慰残疾人。
 

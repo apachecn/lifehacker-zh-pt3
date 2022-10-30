@@ -1,6 +1,6 @@
 # 我是《修正之路》的主持人莫里斯·切瑞，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-revision-path-host-Maurice-cherry-and-this-is-how-I-1826916236](https://lifehacker.com/im-revision-path-host-maurice-cherry-and-this-is-how-i-1826916236)
+> 原文：<https://lifehacker.com/im-revision-path-host-maurice-cherry-and-this-is-how-i-1826916236>
 
 莫里斯·切利向前传球。这位设计师运行了几个在线突出黑人创作者的项目，包括设计师、开发者、博客作者和播客。他的设计播客 [修改路径](https://revisionpath.com/) ，最近发布了第 250 集，获得了 AIGA 和创意市场奖。他告诉我们他的工作流程，他从客人那里学到的经验，以及他最喜欢的设备，从专业话筒到 4 合 1 多功能笔。
 

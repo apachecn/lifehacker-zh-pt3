@@ -1,6 +1,6 @@
 # 如何观看谷歌周二的 Pixel 3 活动
 
-> 原文:[https://life hacker . com/how-to-watch-Google-pixel-3-event-Tuesday-1829584405](https://lifehacker.com/how-to-watch-googles-pixel-3-event-tuesday-1829584405)
+> 原文：<https://lifehacker.com/how-to-watch-googles-pixel-3-event-tuesday-1829584405>
 
 预计谷歌将于本周在纽约的一次活动中宣布其下一代手机 Pixel 3 和 Pixel 3 XL。
 

@@ -1,6 +1,6 @@
 # 今年你可以用学生折扣获得最好的应用和技术
 
-> 原文:[https://life hacker . com/the-best-apps-and-technology-you-can-get-with a student-1728571024](https://lifehacker.com/the-best-apps-and-technology-you-can-get-with-a-student-1728571024)
+> 原文：<https://lifehacker.com/the-best-apps-and-technology-you-can-get-with-a-student-1728571024>
 
 上大学感觉就像是一张无止境的花钱清单——学费、书籍、住房和上学所需的一切。但还是有些欣慰的！许多你喜欢的软件供应商和服务为学生提供慷慨的学术折扣。
 

@@ -1,6 +1,6 @@
 # 三种成分的欢乐时光:非常简单而美味的苏格兰威士忌
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-very-simple-and-good-scotc-1819891034](https://lifehacker.com/3-ingredient-happy-hour-the-very-simple-and-good-scotc-1819891034)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-very-simple-and-good-scotc-1819891034>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我想和你谈谈一种看似简单，但非常值得的鸡尾酒:苏格兰威士忌。
 

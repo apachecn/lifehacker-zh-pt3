@@ -1,6 +1,6 @@
 # 免费在线玩卡尔卡松、失落的城市和更多欧洲游戏
 
-> 原文:[https://life hacker . com/play-carcas sone-lost-cities-and-more-euro games-for-fr-1821601454](https://lifehacker.com/play-carcassone-lost-cities-and-more-eurogames-for-fr-1821601454)
+> 原文：<https://lifehacker.com/play-carcassone-lost-cities-and-more-eurogames-for-fr-1821601454>
 
 你的假期还剩六天，你已经看不到 Lifehacker 的文章了。你父母家唯一的游戏就是抱歉和大富翁。试试欧洲游戏，这是一种欧洲风格的桌面游戏，竞争不激烈，也不依赖运气。网站 [Happy Meeple](http://www.happymeeple.com/) 复制了棋盘和卡牌游戏 Finito、Hanamikoji、失落的城市、X 级、Glastonbury、Migrate、Keltis 和西伯利亚。
 

@@ -1,6 +1,6 @@
 # 除了喝咖啡之外，与咖啡有关的美味和甜蜜的事情
 
-> 原文:[https://life hacker . com/savory-and-sweet-things-to-do-with coffee-by-drink-1786288423](https://lifehacker.com/savory-and-sweet-things-to-do-with-coffee-besides-drink-1786288423)
+> 原文：<https://lifehacker.com/savory-and-sweet-things-to-do-with-coffee-besides-drink-1786288423>
 
 咖啡是一种非常重要的饮料。它不仅美味可口，还能提供急需的咖啡因来“让小女士活跃起来”除此之外，它什么也不能给我们，我们仍然非常感激这种神奇的咖啡豆，但是咖啡*确实能做得更多。这里有一些最好的，甜蜜的和美味的方法让你的食物中含有更多的咖啡。* 
 

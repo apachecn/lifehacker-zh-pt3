@@ -1,6 +1,6 @@
 # 我爸给我的宝贵理财建议
 
-> 原文:[https://life hacker . com/the-value-money-advice-my-dad-give-me-1821957050](https://lifehacker.com/the-valuable-money-advice-my-dad-gave-me-1821957050)
+> 原文：<https://lifehacker.com/the-valuable-money-advice-my-dad-gave-me-1821957050>
 
 当一个人在 18 年的时间里形成了另一个人的生活经历和个性时，我和我父亲几乎是完全不同的两个人:他是一名中西部律师，为密歇根足球而生；我是一名东海岸移民，无所不知，是一名自豪的密歇根大学毕业生，但喜欢追逐比实际比赛更多的东西。
 

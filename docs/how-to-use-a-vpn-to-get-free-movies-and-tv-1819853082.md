@@ -1,6 +1,6 @@
 # 如何使用 VPN 获取免费电影和电视
 
-> 原文:[https://life hacker . com/how-to-use-a-VPN-to-get-free-movies-and-TV-1819853082](https://lifehacker.com/how-to-use-a-vpn-to-get-free-movies-and-tv-1819853082)
+> 原文：<https://lifehacker.com/how-to-use-a-vpn-to-get-free-movies-and-tv-1819853082>
 
 虚拟专用网络(或 VPN)非常适合在您浏览网页时保护您的隐私和数据。它们为公共 Wi-Fi 网络(咖啡店、机场等)提供了更高的安全性， [防止互联网服务提供商收集个人数据](https://lifehacker.com/why-is-everyone-talking-about-vpns-1793768312) ，这些数据是他们想卖给广告商的。虚拟专用网*也*非常擅长让用户绕过 YouTube、Spotify 和网飞等公司设置的基于位置的内容限制。虽然它们并不是万无一失的，但以下是如何选择一个 VPN，并增加你享受一点《星际迷航:发现》的机会，而不用向 CBS 支付一毛钱。
 

@@ -1,6 +1,6 @@
 # 猫途鹰用户眼中的最佳旅游目的地
 
-> 原文:[https://life hacker . com/the-best-travel-destinations-by-tripadvisor-1825240108](https://lifehacker.com/the-best-travel-destinations-according-to-tripadvisor-1825240108)
+> 原文：<https://lifehacker.com/the-best-travel-destinations-according-to-tripadvisor-1825240108>
 
 当你计划一个史诗般的假期时，你想确保你正前往一个多方面都不可思议的地方。你想要迷人的文化和历史，令人瞠目结舌的美景，当然，还有难以置信的美食。你想要一个有数百万游客推荐的位置。
 

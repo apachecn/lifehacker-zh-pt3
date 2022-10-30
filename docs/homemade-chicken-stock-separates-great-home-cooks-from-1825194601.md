@@ -1,6 +1,6 @@
 # 自制鸡汤将优秀的家庭厨师与优秀的分开
 
-> 原文:[https://the take out . com/home-chicken-stock-separates-great-home-cooks-from-1825194601](https://thetakeout.com/homemade-chicken-stock-separates-great-home-cooks-from-1825194601)
+> 原文：<https://thetakeout.com/homemade-chicken-stock-separates-great-home-cooks-from-1825194601>
 
 我习惯于在厨房里找到任何捷径。但是最近，我发现最快的路线不一定是最好的。与自制的同类产品相比，我对 [皮尔斯伯里馅饼皮](https://thetakeout.com/c/pie-curious) 和 [分钟米饭](https://thetakeout.com/an-idiot-proof-method-for-making-perfect-rice-1825006978) 深有体会。但我最近的征服，连我都怀疑。
 

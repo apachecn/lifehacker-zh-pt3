@@ -1,6 +1,6 @@
 # 让 Alexa DJ 你的圣诞聚会
 
-> 原文:[https://life hacker . com/let-Alexa-DJ-your-Christmas-gathering-1821565548](https://lifehacker.com/let-alexa-dj-your-christmas-gathering-1821565548)
+> 原文：<https://lifehacker.com/let-alexa-dj-your-christmas-gathering-1821565548>
 
 我参加的每个圣诞派对和家庭聚会通常都会有至少一分钟的混乱，每个人都在决定谁来负责音乐。这就引出了一些问题，比如这个人的手机如何连接到我们所在的扬声器系统，或者他们是否可以登录 Spotify 来访问他们制作的与团队分享的史诗播放列表。我可以提供一个简单的建议:让 Alexa 来做。
 

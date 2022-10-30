@@ -1,6 +1,6 @@
 # 通过将您的游戏机连接到划船机，在玩游戏的同时获得锻炼
 
-> 原文:[https://life hacker . com/get-exercise-while-gaming-by-link-your-Wii-a-rowi-1825284155](https://lifehacker.com/get-exercise-while-gaming-by-linking-your-wii-to-a-rowi-1825284155)
+> 原文：<https://lifehacker.com/get-exercise-while-gaming-by-linking-your-wii-to-a-rowi-1825284155>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-h1E4PkHS364&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-h1E4PkHS364&start=0) 
 

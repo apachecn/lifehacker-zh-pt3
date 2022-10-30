@@ -1,6 +1,6 @@
 # 关于 Pokémon Go 的新好友系统你需要知道什么
 
-> 原文:[https://kotaku . com/what-you-need-to-know-on-pokemon-go-s-new-buddy-syst-1786619692](https://kotaku.com/what-you-need-to-know-about-pokemon-go-s-new-buddy-syst-1786619692)
+> 原文：<https://kotaku.com/what-you-need-to-know-about-pokemon-go-s-new-buddy-syst-1786619692>
 
 在过去的几天里，令人期待的新的 [伙伴系统](http://www.kotaku.com.au/2016/09/heres-how-the-pokemon-go-buddy-system-will-work/) 发布了。昨天，每个人都获得了 iOS 1.7 补丁和 Android 0.37 补丁。现在，当你四处走动并收集神奇宝贝时，你可以选择一个“伙伴”神奇宝贝，在你达到一定的距离基准后，它会获得其神奇宝贝类型的糖果。
 

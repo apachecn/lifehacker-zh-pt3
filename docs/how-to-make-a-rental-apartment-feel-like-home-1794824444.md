@@ -1,6 +1,6 @@
 # 如何让出租公寓有家的感觉
 
-> 原文:[https://life hacker . com/how-to-make-a-rental-apartment-feel-like-home-1794824444](https://lifehacker.com/how-to-make-a-rental-apartment-feel-like-home-1794824444)
+> 原文：<https://lifehacker.com/how-to-make-a-rental-apartment-feel-like-home-1794824444>
 
 我住过很多出租房，所以我不得不擅长对公寓进行临时定制，让它们感觉更像是我的。我知道我并不是唯一一个需要让租来的房子有家的感觉的人，所以如果你想在漫长的一天后把你的房子变成一个欢迎你的地方，下面是要做的事情。
 

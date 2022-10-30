@@ -1,6 +1,6 @@
 # 光疗祛痘是真事，但值得一试吗？
 
-> 原文:[https://life hacker . com/light-therapy-for-acne-is-a-real-thing-it-value-try-1792895758](https://lifehacker.com/light-therapy-for-acne-is-a-real-thing-is-it-worth-try-1792895758)
+> 原文：<https://lifehacker.com/light-therapy-for-acne-is-a-real-thing-is-it-worth-try-1792895758>
 
 用洋红色的光照射你的脸来驯服粉刺听起来更像是一个噱头，而不是科学。但事实证明，像露得清的光疗面膜 这样的产品实际上可能是有效的，尽管它们并不适合所有人。
 

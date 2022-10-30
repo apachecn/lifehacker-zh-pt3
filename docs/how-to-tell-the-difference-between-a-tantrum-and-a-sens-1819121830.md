@@ -1,6 +1,6 @@
 # 如何区分发脾气和感觉崩溃
 
-> 原文:[https://life hacker . com/how-to-tell-the-difference-a-tantrum-a-sens-1819121830](https://lifehacker.com/how-to-tell-the-difference-between-a-tantrum-and-a-sens-1819121830)
+> 原文：<https://lifehacker.com/how-to-tell-the-difference-between-a-tantrum-and-a-sens-1819121830>
 
 即使是脾气最温和的孩子也会偶尔在糖果通道或离开操场时失去他们的 s*%$时，大多数父母都会发一两次脾气。我们都发展了自己的应对策略:忽略、暂停或安抚。但是如果你孩子的反常行为*不是标准的发脾气呢？如果是感官崩溃呢？* 
 

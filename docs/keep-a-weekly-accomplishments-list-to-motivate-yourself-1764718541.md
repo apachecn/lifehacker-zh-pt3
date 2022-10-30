@@ -1,6 +1,6 @@
 # 保持每周的成就清单来激励自己
 
-> 原文:[https://life hacker . com/keep-a-weekly-achievements-list-to-promote-yourself-1764718541](https://lifehacker.com/keep-a-weekly-accomplishments-list-to-motivate-yourself-1764718541)
+> 原文：<https://lifehacker.com/keep-a-weekly-accomplishments-list-to-motivate-yourself-1764718541>
 
 我们中的许多人每天都有一个清单，上面列有我们想在某一天完成的事情。然而，当一周结束时，我们仍然感到毫无收获。为了克服这一点，试着保持一个每周完成清单来记录你做了什么。
 

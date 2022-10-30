@@ -1,6 +1,6 @@
 # 今天你可以获得 2GB 的免费 Google Drive 存储空间
 
-> 原文:[https://gizmodo . com/you-can-get-2gb of-free-Google-drive-storage-today-1758004392](https://gizmodo.com/you-can-get-2gb-of-free-google-drive-storage-today-1758004392)
+> 原文：<https://gizmodo.com/you-can-get-2gb-of-free-google-drive-storage-today-1758004392>
 
 想要更多空间来存放您的文档吗？你当然知道。今天，你可以在 Google Drive 上免费获得 2GB 的额外容量。以下是方法。
 

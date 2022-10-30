@@ -1,6 +1,6 @@
 # 给孩子特定的语言来谈论快乐
 
-> 原文:[https://life hacker . com/give-kids-specific-language-to-talk-on-pleasure-1822150699](https://lifehacker.com/give-kids-specific-language-to-talk-about-pleasure-1822150699)
+> 原文：<https://lifehacker.com/give-kids-specific-language-to-talk-about-pleasure-1822150699>
 
 我五岁的女儿喜欢有预谋的搔痒。她打起精神说，“走！”
 

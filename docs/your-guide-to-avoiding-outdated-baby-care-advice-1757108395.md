@@ -1,6 +1,6 @@
 # 避免过时婴儿护理建议的指南
 
-> 原文:[https://life hacker . com/your-guide-to-避免过时婴儿护理建议-1757108395](https://lifehacker.com/your-guide-to-avoiding-outdated-baby-care-advice-1757108395)
+> 原文：<https://lifehacker.com/your-guide-to-avoiding-outdated-baby-care-advice-1757108395>
 
 育儿建议会随着时间而改变，所以如果你是新父母，你可能会避开来自你父母的奇怪建议。或者，如果你是一个无所不知的育儿专家，一些自以为是的人可能会告诉你现在情况不同了。根据儿科医生和安全专家的说法，以下是发生变化的一切及其原因。
 

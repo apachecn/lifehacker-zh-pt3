@@ -1,6 +1,6 @@
 # 这里有一些将圣诞树固定在汽车上的实用技巧
 
-> 原文:[https://jalopnik . com/here-some-handy-tips for-securing-a-Christmas-tree-1820780092](https://jalopnik.com/here-are-some-handy-tips-for-securing-a-christmas-tree-1820780092)
+> 原文：<https://jalopnik.com/here-are-some-handy-tips-for-securing-a-christmas-tree-1820780092>
 
 既然感恩节已经过去，我们大多数人可以把注意力放在下一个大障碍上:圣诞节。既然所有的零售店都开始反复播放圣诞音乐，直到节日结束，我想我们可以开始考虑圣诞树和随之而来的树转移。
 

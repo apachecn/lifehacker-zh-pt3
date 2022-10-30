@@ -1,6 +1,6 @@
 # 蒸玉米最好最简单的方法
 
-> 原文:[https://life hacker . com/steam-corn-using-one-than-two-easy-very-differ-1826779004](https://lifehacker.com/steam-corn-using-either-of-these-two-easy-very-differe-1826779004)
+> 原文：<https://lifehacker.com/steam-corn-using-either-of-these-two-easy-very-differe-1826779004>
 
 我对夏玉米很着迷。你把奥普拉对面包的感觉乘以三，这就是我对玉米的感觉。那些脆甜的日照玉米粒是夏季农产品的所有优点，而且几乎不需要准备。
 

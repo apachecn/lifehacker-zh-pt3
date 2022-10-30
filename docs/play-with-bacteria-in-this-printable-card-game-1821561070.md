@@ -1,6 +1,6 @@
 # 在这个可打印的纸牌游戏中玩细菌
 
-> 原文:[https://life hacker . com/play-with-bacteria-in-this-printable-card-game-1821561070](https://lifehacker.com/play-with-bacteria-in-this-printable-card-game-1821561070)
+> 原文：<https://lifehacker.com/play-with-bacteria-in-this-printable-card-game-1821561070>
 
 如果你真的需要一份*最后一刻的礼物，试试这款你可以印在卡片上的书呆子纸牌游戏，今天就开始玩。 [肠道检查](https://www.microbe.net/gutcheck/) ，由微生物组研究人员 [大卫·科尔](https://phylogenomics.me/people/post-docs/david-coil/) 设计，让你的微生物与对手对抗:你可以感染，服用益生菌，并观察抗生素耐药基因在人群中传播。*
 

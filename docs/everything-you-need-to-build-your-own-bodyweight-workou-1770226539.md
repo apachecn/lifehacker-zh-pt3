@@ -1,6 +1,6 @@
 # 建立你自己的体重锻炼所需的一切
 
-> 原文:[https://life hacker . com/everything-you-need-build-your-own-body weight-work ou-1770226539](https://lifehacker.com/everything-you-need-to-build-your-own-bodyweight-workou-1770226539)
+> 原文：<https://lifehacker.com/everything-you-need-to-build-your-own-bodyweight-workou-1770226539>
 
 [一个有效的体重训练计划](http://thefyslife.com/article/travel-and-work-out-without-weights/) 可以让你塑形，甚至增加肌肉，但“有效”并不适合每个人。有些人可以做 10 个俯卧撑，有些人需要 20 个，有些人需要比其他人做更多组。甚至你锻炼的频率也是一个考虑因素。让我们让你跟上速度，为你精心打造完美的锻炼计划。
 

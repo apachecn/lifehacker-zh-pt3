@@ -1,6 +1,6 @@
 # 我们最感谢的 50 款免费应用
 
-> 原文:[https://life hacker . com/the-50-free-apps-are-most-thanked-for-5962588](https://lifehacker.com/the-50-free-apps-were-most-thankful-for-5962588)
+> 原文：<https://lifehacker.com/the-50-free-apps-were-most-thankful-for-5962588>
 
 这是一年中我们都要表达感谢的时候，除了其他事情，我们 Lifehacker 感谢所有改善我们生活的免费应用程序(以及开发它们的开发者！)以下是我们最喜欢的 50 个。
 

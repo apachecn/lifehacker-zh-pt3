@@ -1,6 +1,6 @@
 # 如何礼貌地告诉别人牙齿里有屎
 
-> 原文:[https://life hacker . com/how-to-quentially-tell-someone-there-crap-in-these-in-these-force-1794390965](https://lifehacker.com/how-to-politely-tell-someone-theres-crap-in-their-teeth-1794390965)
+> 原文：<https://lifehacker.com/how-to-politely-tell-someone-theres-crap-in-their-teeth-1794390965>
 
 想象一下，某人午餐的证据卡在她的门牙之间，斗争开始了:你要告诉这个人吗？你必须优雅地完成这件事，这样双方才能保持尊严，但这很棘手，尤其是在你几乎不了解她的情况下。到那时，你会不会因为等了这么久才开口说话而显得像个混蛋？
 

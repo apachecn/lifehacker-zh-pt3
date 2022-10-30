@@ -1,6 +1,6 @@
 # 如何确保一个预算或外国航空公司是安全的
 
-> 原文:[https://life hacker . com/how-to-assure-a-budget-or-foreign-airline-is-safe-1825321651](https://lifehacker.com/how-to-make-sure-a-budget-or-foreign-airline-is-safe-1825321651)
+> 原文：<https://lifehacker.com/how-to-make-sure-a-budget-or-foreign-airline-is-safe-1825321651>
 
 廉价航空公司是廉价旅行的一个不错的选择，但它们也很不舒服，它们为每一件小事都要花你一分一毫，现在，人们开始质疑这些廉价航班的整体安全性。这四条建议将帮助你选择一家符合所有安全标准的廉价航空公司或外国航空公司。
 

@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我该如何称呼我员工的低胸衬衫？
 
-> 原文:[https://the take out . com/how-do-I-address-my-employee-s-low-cut-shirts-1829444976](https://thetakeout.com/how-do-i-address-my-employee-s-low-cut-shirts-1829444976)
+> 原文：<https://thetakeout.com/how-do-i-address-my-employee-s-low-cut-shirts-1829444976>
 
 > 嗨，咸味女招待，我是德州一家休闲餐厅的助理经理。我和团队里的人相处的很好，但是我和一个服务器，一个女的，在一个不舒服的位置，我不确定该怎么进行(我是男的，只是澄清一下。)这位服务员遵循我们的着装规范——有纽扣的衬衫、黑色裤子、围裙——但她穿着非常紧身的衬衫，扣子开得很低，露出了她的乳沟。这让我很不舒服，我敢肯定顾客也会觉得这太暴露了。
 > 

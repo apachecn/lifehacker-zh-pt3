@@ -1,6 +1,6 @@
 # 如何在社交媒体上负责任地分享冰毒突袭的信息
 
-> 原文:[https://life hacker . com/how-to-responsible-share-information-on-ice-raid-on-1827203452](https://lifehacker.com/how-to-responsibly-share-information-about-ice-raids-on-1827203452)
+> 原文：<https://lifehacker.com/how-to-responsibly-share-information-about-ice-raids-on-1827203452>
 
 唐纳德·特朗普(Donald Trump)的政策正在边境分离父母和子女，但移民和海关执法部门也在美国各地的社区拆散家庭。你可能已经看到脸书和其他地方的帖子，警告人们在你附近的地方进行突袭。以下是如何知道你是否也应该分享它们。
 

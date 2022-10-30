@@ -1,6 +1,6 @@
 # 当你感觉你的健身进度停止时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-to-do what-you-feel-like-your fitness-progress-has-1728055487](https://lifehacker.com/what-to-do-when-you-feel-like-your-fitness-progress-has-1728055487)
+> 原文：<https://lifehacker.com/what-to-do-when-you-feel-like-your-fitness-progress-has-1728055487>
 
 健身高原就像青春期。没有人喜欢经历它，营销公司喜欢从你身上赚钱来帮助你摆脱它。高原真的很糟糕，虽然它们是让你变得更坏的必要因素，但它们并不总是容易被消除。你可以这么做。
 

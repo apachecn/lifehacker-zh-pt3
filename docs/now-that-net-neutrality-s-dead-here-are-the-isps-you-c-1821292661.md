@@ -1,6 +1,6 @@
 # 既然网络中立已经死了，下面是你可以选择的 ISP
 
-> 原文:[https://life hacker . com/now-that-net-neutral-s-dead-here-is-the-ISPs-you-c-1821292661](https://lifehacker.com/now-that-net-neutrality-s-dead-here-are-the-isps-you-c-1821292661)
+> 原文：<https://lifehacker.com/now-that-net-neutrality-s-dead-here-are-the-isps-you-c-1821292661>
 
 今天，在联邦通信委员会主席 Ajit Pai 和委员 Michael O'Rielly 和 Brendan Carr 的带领下，联邦通信委员会以 3 比 2 的投票废除了奥巴马时代将宽带互联网视为第二类公用事业的立法。简而言之，联邦通信委员会已经投票决定 [放弃监管互联网服务提供商](https://lifehacker.com/what-the-end-of-net-neutrality-means-for-you-1820647171) 的权力，让康卡斯特和威瑞森这样的公司有能力限制你的网速，收取更多的网站使用费，并限制对流媒体服务的访问，直到你拿出一些额外的钱。在这种情况发生之前，你可能该换个网络提供商了。如果你不知道从哪里开始， [地图框](https://blog.mapbox.com/what-are-your-internet-options-92398639e466) 可以帮助你找到你所在地区是否有其他供应商。
 

@@ -1,6 +1,6 @@
 # 在巧克力烘焙混合物中用咖啡代替水
 
-> 原文:[https://life hacker . com/use-coffee-not-the-water-in-chocolate-baking-mixes-1828744499](https://lifehacker.com/use-coffee-instead-of-water-in-chocolate-baking-mixes-1828744499)
+> 原文：<https://lifehacker.com/use-coffee-instead-of-water-in-chocolate-baking-mixes-1828744499>
 
 这是 [有据可查的](https://skillet.lifehacker.com/an-ode-to-boxed-mix-brownies-1828685632) 我并不高于使用盒装烘焙混合物，特别是那些巧克力品种。但是仅仅因为某样东西不需要任何烹饪创意，并不意味着你不能随意调整。
 

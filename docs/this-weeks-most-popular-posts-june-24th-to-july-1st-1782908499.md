@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:6 月 24 日至 7 月 1 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-6 月 24 日至 7 月 1 日-1782908499](https://lifehacker.com/this-weeks-most-popular-posts-june-24th-to-july-1st-1782908499)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-june-24th-to-july-1st-1782908499>
 
 本周的主题是寻找前进的道路。我们研究了为什么在 20 多岁时经历“四分之一人生危机”很常见，并试图解析英国退出欧盟对每个人的意义。但我们也考虑了更简单的东西，比如苹果现已停产的 Thunderbolt 显示器的替代品和 Evernote 替代品。
 

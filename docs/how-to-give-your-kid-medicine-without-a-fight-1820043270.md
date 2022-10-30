@@ -1,6 +1,6 @@
 # 如何在不吵架的情况下给孩子吃药
 
-> 原文:[https://life hacker . com/how-to-give-your-kid-medicine-without-fight-1820043270](https://lifehacker.com/how-to-give-your-kid-medicine-without-a-fight-1820043270)
+> 原文：<https://lifehacker.com/how-to-give-your-kid-medicine-without-a-fight-1820043270>
 
 给孩子吃药对所有相关方来说都是一种折磨。当我的女儿蹒跚学步时，这个过程往往会从贿赂升级到恳求，再到威胁到“啊，好吧，让我们把她摁住”，因为我和我丈夫会用注射器把一剂糖浆注射到她尖叫的嘴里。这场斗争是真实的，也是普遍的。值得庆幸的是，多年来，医生和父母已经想出了一些聪明的方法来减少药物的使用。这里有一些想法可以尝试。
 

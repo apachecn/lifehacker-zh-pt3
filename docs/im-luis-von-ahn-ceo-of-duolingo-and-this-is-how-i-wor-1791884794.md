@@ -1,6 +1,6 @@
 # 我是 Luis von Ahn，Duolingo 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Luis-von-Ahn-do olingo-and-this-is-how-I-wor-1791884794](https://lifehacker.com/im-luis-von-ahn-ceo-of-duolingo-and-this-is-how-i-wor-1791884794)
+> 原文：<https://lifehacker.com/im-luis-von-ahn-ceo-of-duolingo-and-this-is-how-i-wor-1791884794>
 
 Duolingo 是一个流行的语言学习平台，已经免费帮助成千上万的人发展他们的多语言技能。它的游戏化课程强调快速学习，所以你可以在等公交车的时候毫不费力地记住一些新单词。
 

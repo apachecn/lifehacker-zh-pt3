@@ -1,6 +1,6 @@
 # 如何理解媒体，吉尔·爱博松
 
-> 原文:[https://life hacker . com/how-to-make-sense-of-media-with-Jill-Abrams on-1823702693](https://lifehacker.com/how-to-make-sense-of-the-media-with-jill-abramson-1823702693)
+> 原文：<https://lifehacker.com/how-to-make-sense-of-the-media-with-jill-abramson-1823702693>
 
 本周，在《升级版》节目中，我们在《T2》的《T3》节目中，与《纽约时报》的第一位女性执行主编记者吉尔·爱博松以及《奇怪的正义:出售克拉伦斯·托马斯》的作者之一[](https://www.amazon.com/Strange-Justice-Selling-Clarence-Thomas/dp/0395633184?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-make-sense-of-the-media-with-jill-abramson-1823702693&asc_source=&tag=kinjalifehackerlink-20)*在 [与现场观众对话。吉尔目前是《卫报》的政治专栏作家，也是哈佛大学英语系的高级讲师。她的下一本书《新闻大战》将于 2019 年出版。](http://onairfest.com/)*
 

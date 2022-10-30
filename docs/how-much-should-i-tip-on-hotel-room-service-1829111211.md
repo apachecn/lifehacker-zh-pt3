@@ -1,6 +1,6 @@
 # 问刻薄的女服务员:我应该给酒店客房服务多少小费？
 
-> 原文:[https://the take out . com/how-much-I-dust-on-hotel-room-service-1829111211](https://thetakeout.com/how-much-should-i-tip-on-hotel-room-service-1829111211)
+> 原文：<https://thetakeout.com/how-much-should-i-tip-on-hotel-room-service-1829111211>
 
 > 亲爱的 Salty，我经常出差，最近我被指派给一个客户，他住在一个无名小镇，那里几乎没有非快餐店。最近两次去那里，我已经结束了酒店客房服务，因为它很容易和食物相当不错。
 > 

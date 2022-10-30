@@ -1,6 +1,6 @@
 # 从 Reddit 最喜欢的网站下载免费内容
 
-> 原文:[https://life hacker . com/download-free-stuff-from-reddits-favorite-websites-1825781590](https://lifehacker.com/download-free-stuff-from-reddits-favorite-websites-1825781590)
+> 原文：<https://lifehacker.com/download-free-stuff-from-reddits-favorite-websites-1825781590>
 
 "有哪些很酷的网站可以下载免费的东西？" [问 redditor 如何进阶](https://www.reddit.com/r/AskReddit/comments/8gy4nd/what_are_some_cool_websites_where_you_can/) 。他得到了超过 5000 个答案。我们已经对最好的资源进行了检查和分类，确定了每个资源。你可以利用这里列出的网站上的免费书籍、音乐、游戏、应用程序和其他赠品来娱乐和教育自己。(不要取消你的网飞，但也许可以停止向亚马逊支付古腾堡计划免费发放的书籍。)
 

@@ -1,6 +1,6 @@
 # 立即更新您的预扣税
 
-> 原文:[https://life hacker . com/update-your-tax-扣缴-now-1828249361](https://lifehacker.com/update-your-tax-withholdings-now-1828249361)
+> 原文：<https://lifehacker.com/update-your-tax-withholdings-now-1828249361>
 
 这里有一个简单的周末财务任务给你:更新你的扣缴税款。
 

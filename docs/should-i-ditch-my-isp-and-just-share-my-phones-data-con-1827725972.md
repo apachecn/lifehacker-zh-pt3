@@ -1,6 +1,6 @@
 # 我应该抛弃我的 ISP，只分享我手机的数据连接吗？
 
-> 原文:[https://life hacker . com/should-I-ditch-my-ISP-and-just-share-my-phones-data-con-1827725972](https://lifehacker.com/should-i-ditch-my-isp-and-just-share-my-phones-data-con-1827725972)
+> 原文：<https://lifehacker.com/should-i-ditch-my-isp-and-just-share-my-phones-data-con-1827725972>
 
 没有人喜欢为互联网服务支付大笔费用(尤其是如果你每个月为糟糕的速度花一大笔钱，比如断断续续的 DSL 连接)。虽然你可能会时不时地想到一个关于如何减少或消除月费的巧妙主意——包括向你的邻居“借用”他们的 wifi 密码或在你当地的咖啡店外面搭一个帐篷——但大多数人更可能叹口气，掏出钱来，而不是想出一个超级有创意的连接。
 

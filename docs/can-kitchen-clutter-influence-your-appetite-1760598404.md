@@ -1,6 +1,6 @@
 # 厨房杂乱会影响你的食欲吗？
 
-> 原文:[https://life hacker . com/can-kitchen-clutter-influence-your-食欲-1760598404](https://lifehacker.com/can-kitchen-clutter-influence-your-appetite-1760598404)
+> 原文：<https://lifehacker.com/can-kitchen-clutter-influence-your-appetite-1760598404>
 
 不仅仅是你的心态可以塑造你的饮食习惯。你的环境也是一个因素。就你的厨房而言，一堆脏盘子可能会以你意识不到的方式影响你。
 

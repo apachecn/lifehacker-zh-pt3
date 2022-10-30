@@ -1,6 +1,6 @@
 # 在你的新 Pixel 2 上使用谷歌助手来拍摄一张感恩节全家福照片
 
-> 原文:[https://life hacker . com/use-Google-assistant-on-your-new-pixel-2-to-take-a-hand-1820685974](https://lifehacker.com/use-google-assistant-on-your-new-pixel-2-to-take-a-hand-1820685974)
+> 原文：<https://lifehacker.com/use-google-assistant-on-your-new-pixel-2-to-take-a-hand-1820685974>
 
 随着家人来你家度假，你可能会被要求拍一两张集体照。如果你有谷歌 Pixel 2(或 2 XL)，你可以用它只用你的声音来拍照。你再也不用急着取景，或者把摄影师的角色分配给你古怪叔叔的新女友了。
 

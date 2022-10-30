@@ -1,6 +1,6 @@
 # 用装满冰的浴帽冷藏食物
 
-> 原文:[https://life hacker . com/keep-food-cold-with-a-ice-filled-shower-cap-1826232087](https://lifehacker.com/keep-food-cold-with-an-ice-filled-shower-cap-1826232087)
+> 原文：<https://lifehacker.com/keep-food-cold-with-an-ice-filled-shower-cap-1826232087>
 
 野餐季节即将来临，这意味着当太阳猛烈地照射下来时，我们将花费大量的时间和精力将食物保持在安全的食用温度。人们总是特别关注蛋黄酱沙拉，但不用担心，你可以用浴帽保持凉爽。
 

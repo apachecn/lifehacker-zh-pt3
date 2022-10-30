@@ -1,6 +1,6 @@
 # 广阔而美味的煎饼世界，以及如何正确制作它们
 
-> 原文:[https://life hacker . com/the-wide-delicious-world-of-pancakes-and-how-to-make-1786581389](https://lifehacker.com/the-wide-delicious-world-of-pancakes-and-how-to-make-1786581389)
+> 原文：<https://lifehacker.com/the-wide-delicious-world-of-pancakes-and-how-to-make-1786581389>
 
 就早晨的舒适度而言，没有什么比煎饼更好了。它实际上是一张食物毯子，上面写着“过来，我的孩子，让我用我温暖的碳水化合物身体包裹你。你现在安全了。”几乎每种文化似乎都有自己版本的早餐主食，我们总结了一些最美味的吃法，不管你叫它们“烙饼”、“薄煎饼”还是“薄饼”。
 

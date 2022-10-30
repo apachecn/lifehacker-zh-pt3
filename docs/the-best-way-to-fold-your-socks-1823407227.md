@@ -1,6 +1,6 @@
 # 叠袜子的最好方法
 
-> 原文:[https://life hacker . com/the-best-way-fold-your-socks-1823407227](https://lifehacker.com/the-best-way-to-fold-your-socks-1823407227)
+> 原文：<https://lifehacker.com/the-best-way-to-fold-your-socks-1823407227>
 
 乱七八糟的袜子抽屉意味着乱七八糟的生活。你值得拥有一个比翻箱倒柜寻找一双更好的开始。你可以用二十双相同的袜子来替换你所有的袜子，或者你可以学会正确地折叠你的袜子，这样它们就不会拉长或者不成对。在上面的视频中，我们展示了袜子折纸的理想形式。
 

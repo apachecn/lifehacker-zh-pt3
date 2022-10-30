@@ -1,6 +1,6 @@
 # 如何向和你一起生活的人解释你在工作
 
-> 原文:[https://life hacker . com/how-to-explain-the-people-you-that-you-w-1823147921](https://lifehacker.com/how-to-explain-to-the-people-you-live-with-that-youre-w-1823147921)
+> 原文：<https://lifehacker.com/how-to-explain-to-the-people-you-live-with-that-youre-w-1823147921>
 
 “你在家上班吗？太棒了！”他们都是这么对你说的。你点头并做鬼脸，因为你知道，虽然跳过通勤和避免办公室政治很好，但在家工作也有它自己的一系列挑战。也就是说，你知道让人们明白仅仅因为你穿着运动裤在家并不意味着你有空是多么困难。
 

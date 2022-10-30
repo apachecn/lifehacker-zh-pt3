@@ -1,6 +1,6 @@
 # 来自我们读者的最佳都柏林旅行建议
 
-> 原文:[https://life hacker . com/the-best-Dublin-travel-tips-from-our-readers-1825370246](https://lifehacker.com/the-best-dublin-travel-tips-from-our-readers-1825370246)
+> 原文：<https://lifehacker.com/the-best-dublin-travel-tips-from-our-readers-1825370246>
 
 我们的都柏林读者本周慷慨而友好地提供了他们的建议(如此友好，以至于作为纽约人，我们担心我们被骗了)。几个读者贴了长长的指南，有各种各样的建议； [头像原文请求贴](https://lifehacker.com/tell-us-your-dublin-travel-tips-1825247721) 全部阅读。我们收集了以下亮点。
 

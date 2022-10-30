@@ -1,6 +1,6 @@
 # 如何在所有人之前获得 iOS 11.3 和苹果新的 iPhone X animo Ji
 
-> 原文:[https://life hacker . com/how-to-get-IOs-11-3-and-apple-new-animo Ji-for-iphone-x-1822379806](https://lifehacker.com/how-to-get-ios-11-3-and-apples-new-animoji-for-iphone-x-1822379806)
+> 原文：<https://lifehacker.com/how-to-get-ios-11-3-and-apples-new-animoji-for-iphone-x-1822379806>
 
 苹果在周三提供了一个 [先看 iOS 11.3](https://www.apple.com/newsroom/2018/01/apple-previews-ios-11-3/) ，透露了改进消息的计划，添加了新的增强现实功能，让你从健康应用程序中查看健康记录， [控制你的 iPhone 电池寿命](https://lifehacker.com/ios-11-s-next-update-lets-you-control-your-iphone-s-bat-1822374134) 。但是如果你有一部 [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) ，那么今天最大的新闻就是今年春天即将到来的四大新鲜 [Animoji](https://lifehacker.com/make-your-animoji-videos-twice-as-long-with-this-unoffi-1820256820) 。
 

@@ -1,6 +1,6 @@
 # 以下是你需要知道的关于谈判汽车配件和附加产品的信息
 
-> 原文:[https://jalopnik . com/heres-what-you-negotiating-car-acces-1820176837](https://jalopnik.com/heres-what-you-need-to-know-about-negotiating-car-acces-1820176837)
+> 原文：<https://jalopnik.com/heres-what-you-need-to-know-about-negotiating-car-acces-1820176837>
 
 大多数新车出售时都有一些额外的东西，大多数时候这些都是功能性的东西，比如地垫和车顶行李架。你知道吗，有时你可以在这些东西上省下一些钱，这取决于它们是如何被加到汽车价格中的？
 

@@ -1,6 +1,6 @@
 # 总统日在一些 AMC 影院免费看《滚出去》
 
-> 原文:[https://life hacker . com/see-get-out-for-free-in-some-AMC-theaters-on-presidents-1823041759](https://lifehacker.com/see-get-out-for-free-in-some-amc-theaters-on-presidents-1823041759)
+> 原文：<https://lifehacker.com/see-get-out-for-free-in-some-amc-theaters-on-presidents-1823041759>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-sRfnevzM9kQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-sRfnevzM9kQ&start=0) 
 

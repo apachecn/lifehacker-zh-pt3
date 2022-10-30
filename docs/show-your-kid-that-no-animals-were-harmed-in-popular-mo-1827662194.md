@@ -1,6 +1,6 @@
 # 向你的孩子展示流行电影中“没有动物受到伤害”
 
-> 原文:[https://life hacker . com/show-your-kid-that-no-animals-come-1827662194](https://lifehacker.com/show-your-kid-that-no-animals-were-harmed-in-popular-mo-1827662194)
+> 原文：<https://lifehacker.com/show-your-kid-that-no-animals-were-harmed-in-popular-mo-1827662194>
 
 孩子们在完全了解什么是真实的，什么是虚构的之前就看电影。(一位 Lifehacker 作家曾经认为，当人们在电影中死去时，演员就在现实生活中死去了。)所以有时候你可能需要向他们解释恐怖的场景是如何只是假装的，大家都没事。当那些恐怖的场景涉及到动物时，你可以从美国人道协会得到帮助。
 

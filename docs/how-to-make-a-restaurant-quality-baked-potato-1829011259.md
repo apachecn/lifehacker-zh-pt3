@@ -1,6 +1,6 @@
 # 如何做出餐厅品质的烤土豆
 
-> 原文:[https://life hacker . com/how-to-make-a-restaurant-quality-baked-potato-1829011259](https://lifehacker.com/how-to-make-a-restaurant-quality-baked-potato-1829011259)
+> 原文：<https://lifehacker.com/how-to-make-a-restaurant-quality-baked-potato-1829011259>
 
 我的前夫不知道如何烹饪许多东西，但他总是愿意学习。我永远不会忘记 12 月一个华氏 76 度的晚上(我们住在佛罗里达)，他从另一个房间打电话来:“嘿，亲爱的，我有几个问题。”“什么？，”我问。“呃，首先，你怎么烤土豆？圣诞树应该有这么多蜘蛛吗？”
 

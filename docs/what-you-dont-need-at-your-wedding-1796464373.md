@@ -1,6 +1,6 @@
 # 你婚礼上不需要的东西
 
-> 原文:[https://life hacker . com/what-you-dont-need-in-your-wedding-1796464373](https://lifehacker.com/what-you-dont-need-at-your-wedding-1796464373)
+> 原文：<https://lifehacker.com/what-you-dont-need-at-your-wedding-1796464373>
 
 从法律上讲，一场婚礼你所需要的只是去一趟县政府办公室，以及当地政府要求的任何其他事情。 [(此处勾选。)](http://www.usmarriagelaws.com/) 其他都是可选的。当然，有些事情比其他事情更具选择性。
 

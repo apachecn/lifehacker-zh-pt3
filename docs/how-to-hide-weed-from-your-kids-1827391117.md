@@ -1,6 +1,6 @@
 # 如何让你的孩子看不到大麻
 
-> 原文:[https://life hacker . com/how-to-hide-weed-from-your-kids-1827391117](https://lifehacker.com/how-to-hide-weed-from-your-kids-1827391117)
+> 原文：<https://lifehacker.com/how-to-hide-weed-from-your-kids-1827391117>
 
 大麻在越来越多的地方变得合法，这意味着越来越多的人把大麻带回家。不管你喜欢低调的 vape 弹药筒、粘性的 nugs、美味的可食用的 [零食](https://lifehacker.com/the-beginners-guide-to-edibles-1821047006) ，还是各种各样的浓缩物，有一点是一样的:你必须让你的孩子远离那些东西。
 

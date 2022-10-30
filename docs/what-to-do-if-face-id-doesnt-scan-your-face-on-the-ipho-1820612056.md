@@ -1,6 +1,6 @@
 # 如果 Face ID 没有在 iPhone X 上扫描你的脸怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-face-id-stuns-scan-on-the-ipho-1820612056](https://lifehacker.com/what-to-do-if-face-id-doesnt-scan-your-face-on-the-ipho-1820612056)
+> 原文：<https://lifehacker.com/what-to-do-if-face-id-doesnt-scan-your-face-on-the-ipho-1820612056>
 
 这里有一个关于 [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 的非常具体的问题的修复。如果[【Face ID】](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)第一次不成功，你如何让它重新扫描，而不用亲自拿起手机或离开锁屏？
 

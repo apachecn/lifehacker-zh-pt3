@@ -1,6 +1,6 @@
 # 在冷冻面包上做三明治来防止潮湿
 
-> 原文:[https://life hacker . com/make-sandwich-on-from-stave-sogginess-1803757453](https://lifehacker.com/make-sandwiches-on-frozen-bread-to-stave-off-sogginess-1803757453)
+> 原文：<https://lifehacker.com/make-sandwiches-on-frozen-bread-to-stave-off-sogginess-1803757453>
 
 唯一比打开你的午餐盒发现一个湿漉漉的三明治更让人难过的事情是在一天结束时打开你孩子的午餐盒发现一个完全没动过的三明治。谢天谢地，你可以用冷冻面包做午餐盒三明治，防止它们变得潮湿、令人失望。
 

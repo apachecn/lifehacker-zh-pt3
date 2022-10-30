@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名 2D 动画师我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-2d-animator-1781912418](https://lifehacker.com/career-spotlight-what-i-do-as-a-2d-animator-1781912418)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-2d-animator-1781912418>
 
 2D 动画背后的创作过程令人想起充满烟雾的房间的怀旧图像，在那里，动画师们在他们倾斜的画板上劳作，在薄薄的书页之间翻动，同时将角色描绘得栩栩如生。那些日子可能已经一去不复返了，但是 2D 的动画师用新的方式用他们的艺术讲述故事
 

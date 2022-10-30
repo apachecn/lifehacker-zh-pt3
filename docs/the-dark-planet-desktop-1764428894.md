@@ -1,6 +1,6 @@
 # 黑暗星球桌面
 
-> 原文:[https://lifehacker.com/the-dark-planet-desktop-1764428894](https://lifehacker.com/the-dark-planet-desktop-1764428894)
+> 原文：<https://lifehacker.com/the-dark-planet-desktop-1764428894>
 
 读者 [tatersneggs](http://kinja.com/tatersneggs) 组装了这款基于雨量计的桌面，它足够华丽，但实际上没有使用很多小部件来获得整洁、个性化的外观。他是这样设置的。
 

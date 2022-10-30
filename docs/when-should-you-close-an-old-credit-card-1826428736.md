@@ -1,6 +1,6 @@
 # 如何以正确的方式关闭信用卡
 
-> 原文:[https://life hacker . com/when-should-you-close-a-old-card-1826428736](https://lifehacker.com/when-should-you-close-an-old-credit-card-1826428736)
+> 原文：<https://lifehacker.com/when-should-you-close-an-old-credit-card-1826428736>
 
 分手的时候到了...用你的信用卡。出于这样或那样的原因，你决定减少钱包里的东西，简化你的持卡生活。
 

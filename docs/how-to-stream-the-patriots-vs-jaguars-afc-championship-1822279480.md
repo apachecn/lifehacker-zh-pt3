@@ -1,6 +1,6 @@
 # 如何流爱国者队主场迎战美洲虎队亚冠比赛
 
-> 原文:[https://life hacker . com/how-to-stream-the-patriots-vs-jaguars-AFC-championship-1822279480](https://lifehacker.com/how-to-stream-the-patriots-vs-jaguars-afc-championship-1822279480)
+> 原文：<https://lifehacker.com/how-to-stream-the-patriots-vs-jaguars-afc-championship-1822279480>
 
 东部时间下午 3:05/太平洋时间 12:05，新英格兰爱国者队将在亚足联冠军赛中正式迎战杰克逊维尔美洲虎队。
 

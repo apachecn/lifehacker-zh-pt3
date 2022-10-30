@@ -1,6 +1,6 @@
 # 最后一分钟的感恩节指南，让你忘记一切
 
-> 原文:[https://life hacker . com/a-last-minute-thanksgiving-guide-to-everything-you-forg-1789258488](https://lifehacker.com/a-last-minute-thanksgiving-guide-to-everything-you-forg-1789258488)
+> 原文：<https://lifehacker.com/a-last-minute-thanksgiving-guide-to-everything-you-forg-1789258488>
 
 举办感恩节可能会很有趣，但总会有压力。压力导致健忘，健忘导致愤怒，愤怒导致酒后和婆婆打架。幸运的是，这里有快速的解决方法来解决困扰你的火鸡日缺口，这样你就可以避免创伤和戏剧。
 

@@ -1,6 +1,6 @@
 # 如何判断作为 Instagram 的影响者是否能赚钱
 
-> 原文:[https://life hacker . com/this-website-will-help-you-figure-if-you-can-make-m-1820327520](https://lifehacker.com/this-website-will-help-you-figure-out-if-you-can-make-m-1820327520)
+> 原文：<https://lifehacker.com/this-website-will-help-you-figure-out-if-you-can-make-m-1820327520>
 
 放弃你的日常工作，在你的 Instagram timeline 上为奇特的利尿茶制作赞助内容，这很有诱惑力。或者至少会是，如果你有足够多的追随者。等等。你知道吗？现在有一个网站可以告诉你离成为一个有影响力的人有多近。
 

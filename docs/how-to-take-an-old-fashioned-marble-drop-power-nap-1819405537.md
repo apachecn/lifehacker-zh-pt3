@@ -1,6 +1,6 @@
 # 如何睡一个老式的“弹珠式”强力午觉
 
-> 原文:[https://life hacker . com/how-to-take-a-old-timed-marble-drop-power-nap-1819405537](https://lifehacker.com/how-to-take-an-old-fashioned-marble-drop-power-nap-1819405537)
+> 原文：<https://lifehacker.com/how-to-take-an-old-fashioned-marble-drop-power-nap-1819405537>
 
 短暂的小睡 [是在一天当中提神醒脑的好方法](https://lifehacker.com/how-and-why-to-power-nap-297258) 。它们给你精神上的提升，而不会让你太虚弱。但是如果你不想在你短暂的小睡中使用闹钟，你可以用这个经典的午睡时间技巧来代替。
 

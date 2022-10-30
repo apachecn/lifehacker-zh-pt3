@@ -1,6 +1,6 @@
 # 传闻中的不太好的 T-Mobile 和 Sprint 合并是怎么回事
 
-> 原文:[https://gizmodo . com/what-s-going-with the-rumented-not-good-t-mobile-and-1818975719](https://gizmodo.com/what-s-going-on-with-the-rumored-not-good-t-mobile-and-1818975719)
+> 原文：<https://gizmodo.com/what-s-going-on-with-the-rumored-not-good-t-mobile-and-1818975719>
 
 几周以来，不断有报道证实 Sprint 和 T-Mobile 正在进行谈判，最早将于 10 月底将他们的业务合并成一个电信巨头。以前的合并尝试被监管者阻挠，但是分析家预测这一次情况会有所不同。以下是您需要了解的一切，以及这对您的无线服务意味着什么。
 

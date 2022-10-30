@@ -1,6 +1,6 @@
 # 不要指望廉价的条形音箱会带来奇迹
 
-> 原文:[https://gizmodo . com/don-expect-miracles-from-a-cheap-sound bar-1826873343](https://gizmodo.com/dont-expect-miracles-from-a-cheap-soundbar-1826873343)
+> 原文：<https://gizmodo.com/dont-expect-miracles-from-a-cheap-soundbar-1826873343>
 
 廉价的条形音箱很像廉价的耳机。他们中的许多人会做这项工作。他们中很少有人能做好这件事。三星新推出的电视伴侣完全属于第一类。它确实会让你电视上的音频更响更好。然而，它不会欺骗你的朋友认为你有一个增强的家庭影院系统。
 

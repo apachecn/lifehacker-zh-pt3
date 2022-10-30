@@ -1,6 +1,6 @@
 # 关于玖零，父母需要知道什么
 
-> 原文:[https://life hacker . com/what-parents-need-to-know-about-juuling-1823376027](https://lifehacker.com/what-parents-need-to-know-about-juuling-1823376027)
+> 原文：<https://lifehacker.com/what-parents-need-to-know-about-juuling-1823376027>
 
 现在各地高中家长通讯中最大的话题之一就是朱尔。这是一个流行的电子烟系统，看起来很像 USB 闪存驱动器——你可能在你十几岁的房间里见过一个，以为它包含一篇关于*了不起的盖茨比的文章。*根据 Twitter 和 Instagram 上标签为#doit4juul 的帖子，学生们随时随地都在“胡闹”——在学校的浴室里，在图书馆里，在课堂上的课桌下。他们侥幸逃脱，因为该设备是谨慎的，“云”可以隐藏在一个袖子里，蒸汽闻起来甜而有果味，不像香烟烟雾。在青少年中，电子烟 [比传统香烟](https://www.nytimes.com/2017/12/14/health/teen-drug-smoking.html) 更受欢迎，目前朱尔品牌是王者。
 

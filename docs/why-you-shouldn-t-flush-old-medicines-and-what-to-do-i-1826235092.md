@@ -1,6 +1,6 @@
 # 为什么你不应该冲旧药，而应该怎么做
 
-> 原文:[https://life hacker . com/why-you-should-t-flush-old-medicines-and-do-I-1826235092](https://lifehacker.com/why-you-shouldn-t-flush-old-medicines-and-what-to-do-i-1826235092)
+> 原文：<https://lifehacker.com/why-you-shouldn-t-flush-old-medicines-and-what-to-do-i-1826235092>
 
 是的，从技术上来说，你可以把你的旧药片冲掉，美国食品和药物管理局甚至建议在某些情况下把它作为最后的手段。(这是 [三种处理旧药物的好方法之一](https://lifehacker.com/three-ways-to-properly-dispose-of-unwanted-medication-1735532751) )。)但是有足够多的令人讨厌的东西进入污水中，如果可能的话，最好不要让药物进入污水中。
 

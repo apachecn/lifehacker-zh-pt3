@@ -1,6 +1,6 @@
 # 当你有一个抓不到的旅游痒时该怎么办
 
-> 原文:[https://life hacker . com/what-do-what-what-what-you-can-t-scratc-1768126886](https://lifehacker.com/what-to-do-when-you-have-a-travel-itch-you-can-t-scratc-1768126886)
+> 原文：<https://lifehacker.com/what-to-do-when-you-have-a-travel-itch-you-can-t-scratc-1768126886>
 
 很难否认旅行的乐趣；这是一种非常普遍的受欢迎的经历。当然，这也很贵，而且也不容易抽出时间来。如果你渴望旅行，但在可预见的未来又不在计划之中，那么在此期间，这里有一些方法。
 

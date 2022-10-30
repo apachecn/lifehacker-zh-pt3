@@ -1,6 +1,6 @@
 # 使用谷歌的新工具，你可以节省旅行的时间和金钱
 
-> 原文:[https://life hacker . com/Google-just-upgraded-its-travel-tools-to-help-you-save-1821295829](https://lifehacker.com/google-just-upgraded-its-travel-tools-to-help-you-save-1821295829)
+> 原文：<https://lifehacker.com/google-just-upgraded-its-travel-tools-to-help-you-save-1821295829>
 
 谷歌航班 i [是我寻找廉价旅行](https://lifehacker.com/the-best-tips-for-finding-cheap-airfare-with-google-fli-1756974585) 的首选，但它们并不总是擅长预测预订的最佳时间，这就是为什么我也依赖其他旅行规划工具，如 [Hopper](http://www.hopper.com/) 。然而，谷歌刚刚发布了一些对他们的旅行规划套件有用的升级，这使得找到便宜的旅行更加容易。
 

@@ -1,6 +1,6 @@
 # 令人困惑的、光线偏暗的工作空间
 
-> 原文:[https://life hacker . com/the-baffled-bias-lit-workspace-1728091079](https://lifehacker.com/the-baffled-bias-lit-workspace-1728091079)
+> 原文：<https://lifehacker.com/the-baffled-bias-lit-workspace-1728091079>
 
 YouTube[Mumbo Jumbo](https://www.youtube.com/user/ThatMumboJumbo)制作了一些非常棒的《我的世界》视频，并将他同样棒的工作空间发布到 Reddit 的 battlestations subreddit 上，供所有人观看。一些环境偏光照明，一些声学泡沫缓冲，以及一个放置得当的麦克风，他有一个很好的游戏，视频录制等设置。
 

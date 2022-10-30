@@ -1,6 +1,6 @@
 # 如何在不尴尬的情况下发微博
 
-> 原文:[https://life hacker . com/how-to-tweet storm-without-yourself-1796304750](https://lifehacker.com/how-to-tweetstorm-without-embarrassing-yourself-1796304750)
+> 原文：<https://lifehacker.com/how-to-tweetstorm-without-embarrassing-yourself-1796304750>
 
 2016 年，在扼杀博客之后，Twitter 考虑 [大规模扩展其字符限制](https://www.recode.net/2016/1/5/11588480/twitter-considering-10000-character-limit-for-tweets)——或者更准确地说，允许用户像附加图片或视频一样附加长文本块。这种情况从未发生过，Twitter 用户不断地把文章塞进被称为 tweetstorms 的自我回复帖子中。
 

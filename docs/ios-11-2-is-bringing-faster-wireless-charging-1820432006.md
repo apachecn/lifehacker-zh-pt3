@@ -1,6 +1,6 @@
 # iOS 11.2 带来了更快的无线充电
 
-> 原文:[https://life hacker . com/IOs-11-2-is-bring-faster-wireless-charging-1820432006](https://lifehacker.com/ios-11-2-is-bringing-faster-wireless-charging-1820432006)
+> 原文：<https://lifehacker.com/ios-11-2-is-bringing-faster-wireless-charging-1820432006>
 
 使用无线充电板为设备供电的 iPhone 8 和 iPhone X 用户将收到一个惊喜，这要归功于一次软件更新: [苹果即将推出的 iOS 11.2](https://www.macrumors.com/2017/11/14/ios-11-2-faster-wireless-charging-iphone-x/) 将为 Qi 兼容智能手机增加更快的无线充电支持。然而，更新你的手机不足以提高你的充电速度。您需要合适的无线充电板来利用快速充电功能。
 

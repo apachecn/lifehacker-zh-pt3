@@ -1,6 +1,6 @@
 # 让你的脸书饲料更有吸引力(如果不是减少刺激性)
 
-> 原文:[https://life hacker . com/make-your-Facebook-feed-more-attractive-if-not-less-IR-1798432368](https://lifehacker.com/make-your-facebook-feed-more-attractive-if-not-less-ir-1798432368)
+> 原文：<https://lifehacker.com/make-your-facebook-feed-more-attractive-if-not-less-ir-1798432368>
 
 上次我们登记员工的每周更新时，我们的编辑正享受着收音机的乐趣，投资购买户外探险的装备，尝试午餐订阅，并在各种食物上涂抹大蒜蜂蜜。
 

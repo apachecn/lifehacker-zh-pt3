@@ -1,6 +1,6 @@
 # HomePod 是苹果的终极产品——从坏的方面来说
 
-> 原文:[https://gizmodo . com/homepod-is-the ultimate-apple-product-in-a-bad-way-1822883347](https://gizmodo.com/homepod-is-the-ultimate-apple-product-in-a-bad-way-1822883347)
+> 原文：<https://gizmodo.com/homepod-is-the-ultimate-apple-product-in-a-bad-way-1822883347>
 
 有时，几年后苹果公司才能创造出像 HomePod 这样的全新产品。在 iPhone 重新设计和 MacBook 升级的过程中，人们很容易忘记，当苹果进入一个新领域时，该公司会昂首阔步。产品很漂亮。他们工作得很好。但它们通常也是专为配合苹果的其他产品和服务而设计的。350 美元的 HomePod 就是所有这些东西，它让我疯狂。
 

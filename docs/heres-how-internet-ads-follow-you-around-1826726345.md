@@ -1,6 +1,6 @@
 # 网络广告如何跟随你
 
-> 原文:[https://life hacker . com/heres-how-internet-ads-follow-you-around-1826726345](https://lifehacker.com/heres-how-internet-ads-follow-you-around-1826726345)
+> 原文：<https://lifehacker.com/heres-how-internet-ads-follow-you-around-1826726345>
 
 网络广告如此具有侵略性，我们不能责怪你认为 [脸书在听你说话](https://lifehacker.com/facebook-isn-t-recording-your-conversations-but-it-may-1820193946) 。可能不是，但它*帮助广告网络通过互联网和你的应用追踪你。科技公共政策专家 Chris Yiu 最近在推特上发布了 14 种广告跟随你的方式，甚至当你注销、隐姓埋名、使用不同的浏览器或在新设备上。* 
 

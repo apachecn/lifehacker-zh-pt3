@@ -1,6 +1,6 @@
 # 如何组装完美的派对啤酒冷却器
 
-> 原文:[https://the take out . com/how-to-assembly-the-perfect-party-beer-cooler-1822642916](https://thetakeout.com/how-to-assemble-the-perfect-party-beer-cooler-1822642916)
+> 原文：<https://thetakeout.com/how-to-assemble-the-perfect-party-beer-cooler-1822642916>
 
 在精酿啤酒流行之前的几十年里，购买超级碗派对一定更容易:拿几箱你选择的国产啤酒，给女士们送一瓶白葡萄酒，然后就结束了。现在，即使是最主流的杂货店也有几十种啤酒可供选择，有这么多奇怪的水果口味，以至于派对准备变成了近乎二次的事情。
 

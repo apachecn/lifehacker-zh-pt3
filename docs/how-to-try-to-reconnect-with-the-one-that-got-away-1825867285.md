@@ -1,6 +1,6 @@
 # 如何试着和离开的人重新联系
 
-> 原文:[https://life hacker . com/how-to-try-to-reconnect-with the-one ' s-the-away-1825867285](https://lifehacker.com/how-to-try-to-reconnect-with-the-one-that-got-away-1825867285)
+> 原文：<https://lifehacker.com/how-to-try-to-reconnect-with-the-one-that-got-away-1825867285>
 
 本周我们有一位男士遇到了他的梦中女孩，但是在爱情开花结果之前工作阻碍了他。有没有好的办法联系上逃走的那个，重燃魔力？
 

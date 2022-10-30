@@ -1,6 +1,6 @@
 # 如何应对你的末日焦虑
 
-> 原文:[https://life hacker . com/how-to-deal-to-deal-your ' s 末日焦虑-1797843348](https://lifehacker.com/how-to-deal-with-your-apocalyptic-anxiety-1797843348)
+> 原文：<https://lifehacker.com/how-to-deal-with-your-apocalyptic-anxiety-1797843348>
 
 随着激烈的全球政治气候和核战争的威胁似乎逼近我们的头顶，现在很难不感到压力。但你不必坐在那里痛苦地盯着你的新闻。
 

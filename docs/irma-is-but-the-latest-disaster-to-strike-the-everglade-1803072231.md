@@ -1,6 +1,6 @@
 # 为什么伊尔玛飓风过后，大沼泽地看起来不再一样了
 
-> 原文:[https://gizmodo . com/irma-is-but-the-latest-disaster-to-strike-the-everglade-1803072231](https://gizmodo.com/irma-is-but-the-latest-disaster-to-strike-the-everglade-1803072231)
+> 原文：<https://gizmodo.com/irma-is-but-the-latest-disaster-to-strike-the-everglade-1803072231>
 
 当飓风伊尔玛横扫佛罗里达州西海岸时，所有的目光都聚焦在风暴路径上的城市和人们的生活上。但是厄玛也袭击了佛罗里达湿地，熟悉这个脆弱生态系统的科学家们担心这场风暴会带来毁灭性的打击。
 

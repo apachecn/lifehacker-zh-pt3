@@ -1,6 +1,6 @@
 # 自己制作礼品卡，确保它们能被使用
 
-> 原文:[https://life hacker . com/make-sure-gift-cards-get-use-by-make-them-yourself-1820945598](https://lifehacker.com/make-sure-gift-cards-get-used-by-making-them-yourself-1820945598)
+> 原文：<https://lifehacker.com/make-sure-gift-cards-get-used-by-making-them-yourself-1820945598>
 
 恐怖故事时间:你给某人一张贴心的礼券，也许是为了在他们心仪的温泉浴场享受一次按摩，或者是为了参加他们一直想参加的绘画班。你拿出现金，把卡给他们。他们很激动！他们感谢你。然后，他们不使用它。
 

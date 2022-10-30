@@ -1,6 +1,6 @@
 # 当你已经不适合你的工作时该怎么办
 
-> 原文:[https://life hacker . com/1797370781](https://lifehacker.com/what-to-do-when-youve-outgrown-your-job-1797370781)
+> 原文：<https://lifehacker.com/what-to-do-when-youve-outgrown-your-job-1797370781>
 
 你可能认为如果你已经过了这个年龄，你仍然可以做好他们的工作，但是佛罗里达大西洋大学最近的一项研究表明，事实上，如果是时候继续前进了，而你还呆在原地，你可能会开始讨厌你的工作。
 

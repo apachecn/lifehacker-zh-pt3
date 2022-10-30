@@ -1,6 +1,6 @@
 # 明年你的保险费可能会很高，原因如下
 
-> 原文:[https://life hacker . com/your-insurance-premium-be-big-next-year-he-1797946384](https://lifehacker.com/your-insurance-premiums-could-be-huge-next-year-and-he-1797946384)
+> 原文：<https://lifehacker.com/your-insurance-premiums-could-be-huge-next-year-and-he-1797946384>
 
 本周，白宫宣布政府将确实向健康保险公司 支付本月所需的款项。我们躲过了一劫，因为如果你购买个人保险，这些 CSR 会直接影响你的保险价格。但这种威胁只是暂时停止，你的保费明年仍可能飙升。
 

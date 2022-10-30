@@ -1,6 +1,6 @@
 # 据我们的读者称，东京的最佳秘诀
 
-> 原文:[https://life hacker . com/the-best-Tokyo-tips-据我们的读者-1821962316](https://lifehacker.com/the-best-tokyo-tips-according-to-our-readers-1821962316)
+> 原文：<https://lifehacker.com/the-best-tokyo-tips-according-to-our-readers-1821962316>
 
 第一次在 [【黑你的城市】](https://lifehacker.com/c/hack-your-city) 上，我们走出了我们通常的英语范围。虽然本专栏的大多数版本归结为餐馆和酒吧推荐，但我们的东京版解决了一些美国游客需要知道的更基本的差异。如果你是第一次访问，请阅读所有 66 条关于 [的最佳评论。但对于那些只是好奇的人，我们整理了以下亮点。](https://lifehacker.com/tell-us-your-best-tokyo-tips-1821813368) 
 

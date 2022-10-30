@@ -1,6 +1,6 @@
 # 2018 年 7 月我们最喜爱的应用
 
-> 原文:[https://life hacker . com/our-favorite-apps-this-month-July-2018-1827928213](https://lifehacker.com/our-favorite-apps-this-month-july-2018-1827928213)
+> 原文：<https://lifehacker.com/our-favorite-apps-this-month-july-2018-1827928213>
 
 每周在 Lifehacker， [我们都会重点介绍四个不同的应用和浏览器扩展](https://lifehacker.com/c/app-directory) ，它们可以为你的设备(或生活)做一些令人敬畏的事情:每个平台或主要浏览器一个。如果你休了一个 [无互联网假期](https://lifehacker.com/i-completely-disconnected-for-10-days-heres-what-happ-479410761) 或者去度假一周，你可能会错过一些精彩的东西。
 

@@ -1,6 +1,6 @@
 # 制作这个简单的味噌腌料来满足你所有的肉类需求
 
-> 原文:[https://life hacker . com/make-this-simple-miso-marinade-for-all-your-meat-ne-1796723345](https://lifehacker.com/make-this-simple-miso-marinade-for-all-of-your-meaty-ne-1796723345)
+> 原文：<https://lifehacker.com/make-this-simple-miso-marinade-for-all-of-your-meaty-ne-1796723345>
 
 我用的味噌越多，我就越确信根本不需要其他调味剂。它不仅能让汤、蘸酱和甜点完全上瘾，还能做成美味的腌泡汁。
 

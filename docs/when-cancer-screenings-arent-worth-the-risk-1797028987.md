@@ -1,6 +1,6 @@
 # 当癌症筛查不值得冒险时
 
-> 原文:[https://life hacker . com/when-cancer-screenings-arent-worth-the-risk-1797028987](https://lifehacker.com/when-cancer-screenings-arent-worth-the-risk-1797028987)
+> 原文：<https://lifehacker.com/when-cancer-screenings-arent-worth-the-risk-1797028987>
 
 癌症最严重的是。也许多亏了 [十一月](https://us.movember.com/) 和 [粉色消费品](http://www.slate.com/blogs/xx_factor/2012/02/06/what_does_the_susan_g_komen_foundation_actually_do_.html) ，我们都非常清楚。太清楚了。《纽约时报》称，因为我们已经把它灌输到我们的头脑中，所以总是接受检查， [患者忽略了不必要的癌症筛查的风险。低风险患者经常得到假阳性，导致危险而浪费的](https://www.nytimes.com/2017/07/17/well/live/with-cancer-screening-better-safe-than-sorry.html) [放疗和](https://vitals.lifehacker.com/more-medical-care-isn-t-always-better-1777114505) 的误用。
 

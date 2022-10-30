@@ -1,6 +1,6 @@
 # 关于你的车的维修建议，最好的 YouTube 频道是什么？
 
-> 原文:[https://jalopnik . com/whats-the-best-YouTube-channel-for-repair-advice-on-you-1785996174](https://jalopnik.com/whats-the-best-youtube-channel-for-repair-advice-on-you-1785996174)
+> 原文：<https://jalopnik.com/whats-the-best-youtube-channel-for-repair-advice-on-you-1785996174>
 
 在论坛或宾利手册上读到如何修车是一回事。在视频上看别人做对完全是另一回事。谢天谢地，互联网的奇迹使得学习修车比以往任何时候都容易。
 

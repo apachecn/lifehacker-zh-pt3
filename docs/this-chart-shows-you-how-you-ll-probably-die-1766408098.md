@@ -1,6 +1,6 @@
 # 这张图表向你展示了你可能的死亡方式
 
-> 原文:[https://life hacker . com/this-chart-shows-you-how-you-ll-possible-die-1766408098](https://lifehacker.com/this-chart-shows-you-how-you-ll-probably-die-1766408098)
+> 原文：<https://lifehacker.com/this-chart-shows-you-how-you-ll-probably-die-1766408098>
 
 想知道你最有可能怎么死？跳过在线测验和病态的白日梦，用这张严峻的政府图表满足你的好奇心。
 

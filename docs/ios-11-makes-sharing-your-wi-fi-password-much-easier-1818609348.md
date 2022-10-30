@@ -1,6 +1,6 @@
 # iOS 11 让分享你的 Wi-Fi 密码变得容易多了
 
-> 原文:[https://life hacker . com/IOs-11-makes-sharing-your-wi-fi-password-more-easy-1818609348](https://lifehacker.com/ios-11-makes-sharing-your-wi-fi-password-much-easier-1818609348)
+> 原文：<https://lifehacker.com/ios-11-makes-sharing-your-wi-fi-password-much-easier-1818609348>
 
 iOS:在你的 Wi-Fi 网络上有一个精心设计的安全密码是一件很棒的事情。这是一件很棒的事情，直到那个周末，你有外地的客人来访，他们必须尝试十几次不同的 20 个字符的 Wi-Fi 密码，因为零看起来像 O，或者他们不能从你的鸡巴上看出哪些字母是大写的，哪些不是。
 

@@ -1,6 +1,6 @@
 # 为什么你仍然应该购买数字下载
 
-> 原文:[https://gizmodo . com/why-you-should-being-buying-digital-downloads-1822189053](https://gizmodo.com/why-you-should-still-be-buying-digital-downloads-1822189053)
+> 原文：<https://gizmodo.com/why-you-should-still-be-buying-digital-downloads-1822189053>
 
 音乐流媒体显然是未来，这意味着数字下载曾有过辉煌而短暂的存在——从 20 世纪 90 年代末的(大概)持续到 2010 年代末。但是在你从磁盘上删除所有精心收集的 MP3 并最后一次关闭 iTunes 商店之前，我们有一些很好的理由让你不要这么做。
 

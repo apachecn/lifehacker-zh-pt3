@@ -1,6 +1,6 @@
 # 买那该死的咖啡没问题
 
-> 原文:[https://life hacker . com/its-ok-to-buy-the-damn-coffee-1825722875](https://lifehacker.com/its-ok-to-buy-the-damn-coffee-1825722875)
+> 原文：<https://lifehacker.com/its-ok-to-buy-the-damn-coffee-1825722875>
 
 这个周末，我为我的新公寓买了一束 6 美元的牡丹花，算是小小的庆祝吧。考虑到搬家、增加的租金、费用以及搬家带来的其他一切，这几美元对于我刚刚花掉的钱来说只是九牛一毛。然而，与这些费用不同的是，这些花相当不实用。漂亮，是的，但是没有目的。所以当我手里拿着它们走回家时，我不禁感到一阵内疚。当然，它只有 6 美元，但是我刚刚花了所有其他的钱，它有必要吗？
 

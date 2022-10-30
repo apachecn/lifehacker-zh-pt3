@@ -1,6 +1,6 @@
 # 当你注册 23andMe Research 时，你真正认同的是什么
 
-> 原文:[https://life hacker . com/what-you-re-really-agreed-when-you-sign-up-for-23a-1828034397](https://lifehacker.com/what-you-re-really-agreeing-to-when-you-sign-up-for-23a-1828034397)
+> 原文：<https://lifehacker.com/what-you-re-really-agreeing-to-when-you-sign-up-for-23a-1828034397>
 
 23andMe[与制药巨头葛兰素史克](https://gizmodo.com/23andme-is-getting-lots-of-money-from-big-pharma-to-sha-1827891890) 达成协议，让该公司获得他们(你)的基因数据，以潜在开发新药。他们刚刚出卖了我们吗？不完全是。
 

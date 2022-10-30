@@ -1,6 +1,6 @@
 # 这些是商店里买的最好的蔬菜汉堡
 
-> 原文:[https://life hacker . com/thes-is-the-best-store-built-vegetable-burgers-1827898380](https://lifehacker.com/these-are-the-best-store-bought-veggie-burgers-1827898380)
+> 原文：<https://lifehacker.com/these-are-the-best-store-bought-veggie-burgers-1827898380>
 
 有两种类型的蔬菜汉堡:一种试图接近肉类，另一种则真正倾向于蔬菜。虽然你可以在家里 [做出后者](https://lifehacker.com/how-to-make-veggie-burgers-that-honor-the-vegetables-1827869835) 的极其美味的结果，但前者需要更多的工程，这个世界上不吃肉的人应该得到他们可以加热和服务的东西。
 

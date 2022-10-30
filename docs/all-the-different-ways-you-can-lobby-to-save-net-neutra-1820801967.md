@@ -1,6 +1,6 @@
 # 如何游说国会拯救网络中立
 
-> 原文:[https://life hacker . com/all-the-different-way-you-can-lobby-to-save-net-neutra-1820801967](https://lifehacker.com/all-the-different-ways-you-can-lobby-to-save-net-neutra-1820801967)
+> 原文：<https://lifehacker.com/all-the-different-ways-you-can-lobby-to-save-net-neutra-1820801967>
 
 去年年底，共和党控制的联邦通信委员会以 3 比 2 的投票结果，按照党派路线，投票废除网络中立的 T2 T3。这一决定引发了一场大规模的有组织的努力，以保护奥巴马时代旨在保护开放互联网的法律。五个月后，网络中立的支持者可能会有他们最好的机会。
 

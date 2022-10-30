@@ -1,6 +1,6 @@
 # 在节目开始前了解一下今年的 MTV 电影奖提名
 
-> 原文:[https://life hacker . com/catch-up-on-this-year-s-MTV-movie-award-nominees-before-1768993372](https://lifehacker.com/catch-up-on-this-year-s-mtv-movie-award-nominees-before-1768993372)
+> 原文：<https://lifehacker.com/catch-up-on-this-year-s-mtv-movie-award-nominees-before-1768993372>
 
 有最佳反派、最佳接吻和最佳打斗等奖项，MTV 电影奖有 [像奥斯卡的](https://lifehacker.com/how-to-catch-up-on-all-of-this-year-s-oscar-nominees-be-1760695053) 更年轻、更有趣的有纹身之类的表弟。在这里，你可以观看所有将在本周日颁奖典礼上放映的精彩电影。
 

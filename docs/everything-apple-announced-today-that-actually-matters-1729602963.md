@@ -1,6 +1,6 @@
 # 苹果今天宣布的所有真正重要的事情
 
-> 原文:[https://life hacker . com/everything-apple-announced-today-that-actually-matters-1729602963](https://lifehacker.com/everything-apple-announced-today-that-actually-matters-1729602963)
+> 原文：<https://lifehacker.com/everything-apple-announced-today-that-actually-matters-1729602963>
 
 苹果的秋季大事件在今天两个多小时后到来，里面挤满了大量的公告。如果你没有花一上午的时间看完整个节目，下面是他们宣布的真正重要的内容。
 

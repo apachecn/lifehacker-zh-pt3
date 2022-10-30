@@ -1,6 +1,6 @@
 # 如何获得首只免手续费的指数基金
 
-> 原文:[https://life hacker . com/how-to-get-the-first-fee-free-index-funds-1828052370](https://lifehacker.com/how-to-get-the-first-fee-free-index-funds-1828052370)
+> 原文：<https://lifehacker.com/how-to-get-the-first-fee-free-index-funds-1828052370>
 
 这是一场我们可以支持的底部竞赛:富达宣布将提供两只免费指数基金，击败先锋和嘉信成为第一家这样做的基金公司。
 

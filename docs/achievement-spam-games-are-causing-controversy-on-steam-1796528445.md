@@ -1,6 +1,6 @@
 # “成就垃圾邮件”游戏在 Steam 上引发争议
 
-> 原文:[https://kotaku . com/achievement-spam-games-is-caused-contention-steam-1796528445](https://kotaku.com/achievement-spam-games-are-causing-controversy-on-steam-1796528445)
+> 原文：<https://kotaku.com/achievement-spam-games-are-causing-controversy-on-steam-1796528445>
 
 成就可能是你做了一件事的任意指标，但它们仍然令人兴奋。在 Steam 上，你甚至可以展示你的成就，将你的个人资料变成你成就的闪亮纪念碑。一些开发者最近开始将数以千计的成就前置到低于标准的游戏中。现在，一次点击就能让你淹没在成就中，无论是好是坏。
 

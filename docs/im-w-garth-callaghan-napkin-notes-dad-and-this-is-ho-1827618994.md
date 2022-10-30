@@ -1,6 +1,6 @@
 # “我是 w·加斯·卡拉汉，”餐巾上写道，“这就是我为人父母的方式。”
 
-> 原文:[https://life hacker . com/im-w-garth-callaghan-nappin-notes-dad-and-this-is-ho-1827618994](https://lifehacker.com/im-w-garth-callaghan-napkin-notes-dad-and-this-is-ho-1827618994)
+> 原文：<https://lifehacker.com/im-w-garth-callaghan-napkin-notes-dad-and-this-is-ho-1827618994>
 
 自从他的女儿艾玛上小学以来，w .加思.卡拉汉就在餐巾纸上记下鼓舞人心的名言和父亲的智慧，然后把笔记放进她的午餐盒。这成了他们特别的东西，他们联系的方式。他想确保艾玛在毕业前的每一天都能读到她父亲写的便条——即使她已经不在了。
 

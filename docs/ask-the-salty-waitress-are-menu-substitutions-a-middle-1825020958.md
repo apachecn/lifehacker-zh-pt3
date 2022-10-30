@@ -1,6 +1,6 @@
 # 问咸的女服务员:菜单替换是对厨师的中指吗？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-are-menu-substitutions-a-middle-1825020958](https://thetakeout.com/ask-the-salty-waitress-are-menu-substitutions-a-middle-1825020958)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-are-menu-substitutions-a-middle-1825020958>
 
 * * *
 

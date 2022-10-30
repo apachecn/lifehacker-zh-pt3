@@ -1,6 +1,6 @@
 # 你的孩子什么时候应该停止看你裸体？
 
-> 原文:[https://life hacker . com/when-should-your-kids-stop-see-you-裸体-1801988226](https://lifehacker.com/when-should-your-kids-stop-seeing-you-naked-1801988226)
+> 原文：<https://lifehacker.com/when-should-your-kids-stop-seeing-you-naked-1801988226>
 
 当你是小孩子的父母时，问题不是*他们是否会看到你裸体，而是一天中会发生多少次。我四岁的女儿总是随心所欲地进出我的浴室。如果我在厕所，她可能会决定是时候站在她的凳子上，上演一个女孩的《T2》安妮《T3》。如果我在洗澡，她会求*求你了，求你了，求你了，妈妈，*你能再把你的屁股压在玻璃门上吗？然后她每次都会疯狂地傻笑。*
 

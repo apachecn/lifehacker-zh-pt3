@@ -1,6 +1,6 @@
 # 你是金钱鸵鸟吗？
 
-> 原文:[https://lifehacker.com/dont-be-a-money-ostrich-1827587285](https://lifehacker.com/dont-be-a-money-ostrich-1827587285)
+> 原文：<https://lifehacker.com/dont-be-a-money-ostrich-1827587285>
 
 你最后一次查看银行账户是什么时候？
 

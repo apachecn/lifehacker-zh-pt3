@@ -1,6 +1,6 @@
 # 直男肛交指南
 
-> 原文:[https://life hacker . com/the-straight-guys-guide-to-anal-play-1750183734](https://lifehacker.com/the-straight-guys-guide-to-anal-play-1750183734)
+> 原文：<https://lifehacker.com/the-straight-guys-guide-to-anal-play-1750183734>
 
 不，我们不是在讨论把你的小弟弟放进你女人的屁眼里。我们在谈论刺激你的屁眼。如果你和许多直男一样，你对这篇文章的兴趣会直线下降。许多直男对肛交的想法感到厌恶(公平地说，许多双性恋和同性恋也是如此)，结果错过了一个充满乐趣的世界。今天我们在这里说服你是时候停止忽视你的屁股了。
 

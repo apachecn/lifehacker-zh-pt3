@@ -1,6 +1,6 @@
 # 让你的孩子和你一起做春季大扫除
 
-> 原文:[https://life hacker . com/get-your-kids-to-spring-clean-with-you-1824256778](https://lifehacker.com/get-your-kids-to-spring-clean-with-you-1824256778)
+> 原文：<https://lifehacker.com/get-your-kids-to-spring-clean-with-you-1824256778>
 
 春天到了，我们中的许多人将承担春季大扫除的任务，比如清洗窗户或深度清洁厨房用具。许多春季清洁任务涉及重物搬运，需要比我们日常家务使用的更强的清洁溶液，这使得它们不太适合孩子帮忙。但是如果你想让你的孩子参与春季大扫除的话，有些任务是适合和他们一起做的。
 

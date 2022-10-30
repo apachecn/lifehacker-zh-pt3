@@ -1,6 +1,6 @@
 # 为你孩子放学后的崩溃做好计划
 
-> 原文:[https://life hacker . com/plan-for-your-kids-after-school-meltdown-1829466293](https://lifehacker.com/plan-for-your-kids-after-school-meltdown-1829466293)
+> 原文：<https://lifehacker.com/plan-for-your-kids-after-school-meltdown-1829466293>
 
 我的女儿最近开始上幼儿园，在开学的前几周，我是一个热切的母亲，等着在一天结束时去接她，听她讲述她的新冒险。我会跨过教室的门，张开双臂说:“嗨，女士！”然后等她跑过来拥抱我就像她在幼儿园时经常做的那样。
 

@@ -1,6 +1,6 @@
 # 如何让你的孩子在照片中真诚地微笑
 
-> 原文:[https://life hacker . com/how-to-get-your-kid-truly-smile in-photos-1825699812](https://lifehacker.com/how-to-get-your-kid-to-genuinely-smile-in-photos-1825699812)
+> 原文：<https://lifehacker.com/how-to-get-your-kid-to-genuinely-smile-in-photos-1825699812>
 
 当你让一个小孩按照命令微笑拍照时，你通常会得到类似受惊的土拨鼠、刚刚闻到屁味的人或小丑的东西。孩子尴尬的笑容没什么不好——对父母来说，这很有趣，对孩子来说，这将成为十年左右的优秀# ThrowbackThursday 帖子。但是捕捉那些真实的笑容也是很好的——你知道，那些几乎每时每刻都在他们脸上的笑容，除了当你拿出相机的时候。
 

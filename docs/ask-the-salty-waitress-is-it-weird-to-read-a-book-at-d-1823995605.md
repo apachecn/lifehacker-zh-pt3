@@ -1,6 +1,6 @@
 # 问咸味女服务员:吃饭的时候看书会不会很奇怪？
 
-> 原文:[https://the take out . com/ask-the-salty-waste-it-to-read-a-book-at-d-1823995605](https://thetakeout.com/ask-the-salty-waitress-is-it-weird-to-read-a-book-at-d-1823995605)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-is-it-weird-to-read-a-book-at-d-1823995605>
 
 * * *
 

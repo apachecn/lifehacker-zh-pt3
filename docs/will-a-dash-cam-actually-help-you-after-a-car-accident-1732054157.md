@@ -1,6 +1,6 @@
 # 车祸后仪表盘摄像头真的能帮到你吗？
 
-> 原文:[https://life hacker . com/will-a-dash-cam-actually-help-you-after-a-车祸-1732054157](https://lifehacker.com/will-a-dash-cam-actually-help-you-after-a-car-accident-1732054157)
+> 原文：<https://lifehacker.com/will-a-dash-cam-actually-help-you-after-a-car-accident-1732054157>
 
 如果一张照片胜过千言万语，那么你在路上看到的令人难以置信的蠢事的视频就是无价之宝。但是仪表板摄像头真的能在棘手的情况下帮到你吗？以下是如何决定你是否应该买一个，以及仪表板摄像头与保险公司和美国法律的关系。
 

@@ -1,6 +1,6 @@
 # 我是如何在椅子上失败的，你也可以
 
-> 原文:[https://life hacker . com/how-I-failed-at-chair-traverse-and-you-can-too-1785217283](https://lifehacker.com/how-i-failed-at-the-chair-traverse-and-you-can-too-1785217283)
+> 原文：<https://lifehacker.com/how-i-failed-at-the-chair-traverse-and-you-can-too-1785217283>
 
 有一种运动热潮席卷了 Instagram:那就是 [椅子穿越](https://www.instagram.com/explore/tags/chairtraverse/) 。只需要一分钟的时间，你唯一需要的设备就是一把简单的椅子。缺点是基本不可能，不过没关系。它又傻又有趣。我试过了，失败了，你也可以。
 

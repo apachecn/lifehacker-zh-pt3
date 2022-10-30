@@ -1,6 +1,6 @@
 # 如何不煮咖啡
 
-> 原文:[https://deadspin.com/how-not-to-make-coffee-1820399614](https://deadspin.com/how-not-to-make-coffee-1820399614)
+> 原文：<https://deadspin.com/how-not-to-make-coffee-1820399614>
 
 制作咖啡的方法是，你把干燥、烘烤过的，可能是磨碎的咖啡种子和一些水放在一起，通常是热的，放一段时间，这样水就变成了咖啡。就是这样。这不是一个复杂的过程。
 

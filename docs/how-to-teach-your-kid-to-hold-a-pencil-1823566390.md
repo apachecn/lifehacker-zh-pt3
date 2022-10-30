@@ -1,6 +1,6 @@
 # 如何教你的孩子握铅笔
 
-> 原文:[https://life hacker . com/how-to-teach-your-kid-to-hold a pencil-1823566390](https://lifehacker.com/how-to-teach-your-kid-to-hold-a-pencil-1823566390)
+> 原文：<https://lifehacker.com/how-to-teach-your-kid-to-hold-a-pencil-1823566390>
 
 我最近参加了一个幼儿园的迎新会，在会上——令我欣慰的是——校长说，父母只需要做两件事就能让孩子为上学做好准备
 

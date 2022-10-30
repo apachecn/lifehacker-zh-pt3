@@ -1,6 +1,6 @@
 # 快速减少你扔掉的塑料数量
 
-> 原文:[https://life hacker . com/quickly-reduce-the-amount of plastic-you-hand-away-1828805329](https://lifehacker.com/quickly-reduce-the-amount-of-plastic-you-throw-away-1828805329)
+> 原文：<https://lifehacker.com/quickly-reduce-the-amount-of-plastic-you-throw-away-1828805329>
 
 即使你用环保袋购物，你最终也会得到一堆塑料。你的面包在里面，你的卫生纸，你的有机胡萝卜和非转基因 freekeh 来自散装箱，不，它不能与你的瓶子和罐子一起回收。同样的道理也适用于所有包裹你网购商品的塑料。但是你仍然可以回收所有多余的塑料——只需要多一点点努力。
 

@@ -1,6 +1,6 @@
 # 如何庆祝圣诞节
 
-> 原文:[https://life hacker . com/how-to-庆功-chrismukkah-1820834950](https://lifehacker.com/how-to-celebrate-chrismukkah-1820834950)
+> 原文：<https://lifehacker.com/how-to-celebrate-chrismukkah-1820834950>
 
 根据皮尤研究中心的数据，2010 年以来结婚的人中，39%的人的配偶属于不同的宗教团体 。当你和来自不同宗教或文化背景的人搭档时，有时你需要融合你的节日传统或创造新的节日传统来满足你不同信仰间的需求——尤其是当这些传统涉及到孩子、混合家庭或大家庭时。如果你的家庭像我小时候一样既庆祝圣诞节又庆祝光明节，这里有一些关于如何最大限度地庆祝圣诞节(圣诞节+光明节)的建议。
 

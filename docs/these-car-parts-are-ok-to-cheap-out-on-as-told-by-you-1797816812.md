@@ -1,6 +1,6 @@
 # 这些是可以便宜买到的汽车零件
 
-> 原文:[https://jalopnik . com/these-car-parts-is-ok-to-cheap-out-on-you-tell-1797816812](https://jalopnik.com/these-car-parts-are-ok-to-cheap-out-on-as-told-by-you-1797816812)
+> 原文：<https://jalopnik.com/these-car-parts-are-ok-to-cheap-out-on-as-told-by-you-1797816812>
 
 生活中有些事情你不应该偷工减料。我想到了手术。纹身:另一个好答案。绝对适合卫生纸和寿司。但是你不需要为你的汽车支付高价。
 

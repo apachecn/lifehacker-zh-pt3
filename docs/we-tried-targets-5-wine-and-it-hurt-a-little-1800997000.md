@@ -1,6 +1,6 @@
 # 我们尝了塔吉特 5 美元的酒，有点疼
 
-> 原文:[https://life hacker . com/we-tryed-targets-5-wine-and-it-hard-a little-1800997000](https://lifehacker.com/we-tried-targets-5-wine-and-it-hurt-a-little-1800997000)
+> 原文：<https://lifehacker.com/we-tried-targets-5-wine-and-it-hurt-a-little-1800997000>
 
 喝酒很好，但喝便宜的更好，这就是为什么当我的编辑提醒我有 [加州根](https://corporate.target.com/article/2017/08/california-roots-wine) 的时候，我非常兴奋，这是一种只卖 5 美元一瓶的独家葡萄酒。
 

@@ -1,6 +1,6 @@
 # 如何玩疯狂的“超级马里奥 64”/“塞尔达传说:时间之笛”混搭
 
-> 原文:[https://life hacker . com/how-to-play-this-crazy-super-Mario-64-legend-of-zelda-1825504186](https://lifehacker.com/how-to-play-this-crazy-super-mario-64-legend-of-zelda-1825504186)
+> 原文：<https://lifehacker.com/how-to-play-this-crazy-super-mario-64-legend-of-zelda-1825504186>
 
 Kaze Emanuar 又来了。去年在网上创造了疯狂的超级马里奥 64 的同一个人——任天堂 [迅速用版权锤](https://kotaku.com/nintendo-files-copyright-strikes-against-super-mario-64-1818580029) 击中了它——带着一个全新的创作回来了。这一次，他把《塞尔达传说:时间之笛》的世界塞满了超级马里奥 64 的角色。在任天堂的律师抓住他们的超级明星跑过来阻止他之前，你可以免费玩 Emanuar 的超级混搭游戏。
 

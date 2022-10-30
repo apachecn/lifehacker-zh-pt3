@@ -1,6 +1,6 @@
 # 我们能躲避瘟疫、流感和死亡的幽灵吗？
 
-> 原文:[https://life hacker . com/can-we-hide-from-plate-flu-and-the-spectre-of-death-1796557862](https://lifehacker.com/can-we-hide-from-plague-flu-and-the-spectre-of-death-1796557862)
+> 原文：<https://lifehacker.com/can-we-hide-from-plague-flu-and-the-spectre-of-death-1796557862>
 
 欢迎回到*现实*，在这里我们可以看到本周的健康新闻是否真的值得担忧或庆祝。今天，我们面临着死亡和疾病，事实上，大部分消息都是好的！
 

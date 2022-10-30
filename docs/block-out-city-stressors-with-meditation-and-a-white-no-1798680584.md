@@ -1,6 +1,6 @@
 # 用冥想和一台白噪音机器来消除城市压力
 
-> 原文:[https://life hacker . com/block-out-city-stressors-with-冥想和一个白人-no-1798680584](https://lifehacker.com/block-out-city-stressors-with-meditation-and-a-white-no-1798680584)
+> 原文：<https://lifehacker.com/block-out-city-stressors-with-meditation-and-a-white-no-1798680584>
 
 上次我们登记员工的周升级时，我们的编辑正在尽情地做泡沫翻滚、煮鸡蛋、木炭掩蔽和脸书饲料重新设计。
 

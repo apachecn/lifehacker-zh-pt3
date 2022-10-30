@@ -1,6 +1,6 @@
 # 来自我们读者的最佳雷克雅未克和冰岛旅游贴士
 
-> 原文:[https://life hacker . com/the-best-Reykjavik-and-Iceland-travel-tips-from-our-rea-1826802987](https://lifehacker.com/the-best-reykjavik-and-iceland-travel-tips-from-our-rea-1826802987)
+> 原文：<https://lifehacker.com/the-best-reykjavik-and-iceland-travel-tips-from-our-rea-1826802987>
 
 根据为本周《黑客你的城市》提供旅游建议的慷慨读者的说法，雷克雅未克的关键在于冰岛的其他地方。“你不是要去雷克雅未克看雷克雅未克。你要去雷克雅未克看冰岛，”T3 说。“雷克雅未克真的可以在一两天内完工，”ImRightYoureNot 说。得到这些建议后，你会有一个糟糕的一天。 [去读五线谱标签](https://lifehacker.com/tell-us-your-reykjavik-travel-tips-1826683078) 下的最佳评论，或者看看下面的一些集锦。
 

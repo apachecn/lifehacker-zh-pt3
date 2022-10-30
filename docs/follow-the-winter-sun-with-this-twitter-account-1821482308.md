@@ -1,6 +1,6 @@
 # 用这个推特账号跟随冬日的阳光
 
-> 原文:[https://life hacker . com/follow-the-winter-sun-with-this-Twitter-account-1821482308](https://lifehacker.com/follow-the-winter-sun-with-this-twitter-account-1821482308)
+> 原文：<https://lifehacker.com/follow-the-winter-sun-with-this-twitter-account-1821482308>
 
 夏天来了。在过去的六年里，推特账号 [太阳来了](https://twitter.com/SunOfSeldo) 追踪了从冬至到春分这段时间里逐渐变亮的日光。所以今天，在北半球一年中最短的一天，账户又开始了。它将每天发一次推特，更新日出、日落和总日照时间。
 

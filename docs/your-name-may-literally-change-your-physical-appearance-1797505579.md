@@ -1,6 +1,6 @@
 # 你的名字可能会改变你的外貌
 
-> 原文:[https://life hacker . com/your-name-may-literal-change-your-physical-appearance-1797505579](https://lifehacker.com/your-name-may-literally-change-your-physical-appearance-1797505579)
+> 原文：<https://lifehacker.com/your-name-may-literally-change-your-physical-appearance-1797505579>
 
 我们知道，我们的名字可能会影响我们生活的每一个方面——我们住在哪里，我们参加的学校课程，我们取得的 [成绩](http://www.ncbi.nlm.nih.gov/pubmed/18031419) ，我们选择的 [工作](http://pss.sagepub.com/content/19/10/1059.extract) ，我们得到的 [工作被召回](https://mic.com/articles/91061/what-s-in-a-name-turns-out-your-entire-future#.ldDr5nOLD)[我们在这些工作中走了多远](http://www.businessinsider.com/how-your-name-affects-your-success-2015-8) 现在有证据表明，我们的名字也会影响我们的长相。
 

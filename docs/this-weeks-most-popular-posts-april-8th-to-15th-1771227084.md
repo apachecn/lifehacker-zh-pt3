@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:4 月 8 日至 15 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-4 月 8 日至 15 日-1771227084](https://lifehacker.com/this-weeks-most-popular-posts-april-8th-to-15th-1771227084)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-april-8th-to-15th-1771227084>
 
 本周的主题是改善生活的三大必需品:精神、身体和税收。我们学习了如何建立有效的体重锻炼，讨论了你不应该忽视的税收减免，解释了为什么当你有压力时自我保健是重要的，等等。这里回顾一下。
 

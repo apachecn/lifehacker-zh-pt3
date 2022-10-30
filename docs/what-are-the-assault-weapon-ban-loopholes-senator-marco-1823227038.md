@@ -1,6 +1,6 @@
 # 这些就是马尔科·卢比奥所说的攻击性武器禁令的漏洞
 
-> 原文:[https://life hacker . com/what-is-the-突击-武器-禁令-漏洞-参议员-马可-1823227038](https://lifehacker.com/what-are-the-assault-weapon-ban-loopholes-senator-marco-1823227038)
+> 原文：<https://lifehacker.com/what-are-the-assault-weapon-ban-loopholes-senator-marco-1823227038>
 
 昨晚， [美国有线电视新闻网](https://www.youtube.com/watch?v=ZaLh74eXTDo) 与那些受马尔乔里·斯通曼·道格拉斯高中枪击案影响的佛罗里达州官员举行了一次市政厅讨论会，出席会议的一名全国步枪协会代表是 [参议员马尔科·卢比奥](https://en.wikipedia.org/wiki/Marco_Rubio) ，他对最近提出并被否决的攻击性武器禁令有些话要说。他特别提到“塑料手柄”是使禁令变得多余的漏洞，但他到底在说什么？
 

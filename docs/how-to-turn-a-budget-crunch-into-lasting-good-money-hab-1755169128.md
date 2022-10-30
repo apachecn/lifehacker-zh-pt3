@@ -1,6 +1,6 @@
 # 如何将预算紧缩转变成持久的良好理财习惯
 
-> 原文:[https://life hacker . com/how-to-turn-a budget-crunch-to-last-good-money-hab-1755169128](https://lifehacker.com/how-to-turn-a-budget-crunch-into-lasting-good-money-hab-1755169128)
+> 原文：<https://lifehacker.com/how-to-turn-a-budget-crunch-into-lasting-good-money-hab-1755169128>
 
 当人们决定改善他们的财务习惯并开始存钱时，他们通常是被暂时的钱荒所驱使。也许你失业了，或者面临一些意想不到的账单，但是在危机过去后，你如何让你新获得的财务责任感持续下去呢？
 

@@ -1,6 +1,6 @@
 # 使用 Smooz 实际上可以单手浏览网页
 
-> 原文:[https://life hacker . com/use-smooz-to-actually-browse-the-web-one-hand-1823649448](https://lifehacker.com/use-smooz-to-actually-browse-the-web-one-handed-1823649448)
+> 原文：<https://lifehacker.com/use-smooz-to-actually-browse-the-web-one-handed-1823649448>
 
 我不太喜欢在手机上浏览网页，主要是因为我的浏览器糟糕的控制方案。一切都太分散了。键盘在垂直方向显示屏的底部，重要的控件藏在难以触及的角落，我不想冒险用单手操作新标签来摔手机。然而，使用 [iOS/Android 浏览器 Smooz](http://smoozapp.com/) ，你可以避免依赖一个不可访问的界面，而使用一个更适合所有滑动、点击和浏览的界面，这要归功于该应用对手势控制的强调。下面是它的工作原理，以及如何充分利用它:
 

@@ -1,6 +1,6 @@
 # 我的吉普车引擎昨晚着火了，所以是时候谈谈起动液的危险了
 
-> 原文:[https://jalopnik . com/my-jeeps-engine-catched-fire-last-night-so-its-time-to-t 1820214550](https://jalopnik.com/my-jeeps-engine-caught-fire-last-night-so-its-time-to-t-1820214550)
+> 原文：<https://jalopnik.com/my-jeeps-engine-caught-fire-last-night-so-its-time-to-t-1820214550>
 
 昨晚，一个朋友过来帮我拍了一些视频。他想让我摇摇我那辆 1986 年的 Grand Wagoneer，看看它能不能跑。我怀疑它会，但我还是试了一下。当我转动发动机时，他拿起一罐启动液。大错特错。
 

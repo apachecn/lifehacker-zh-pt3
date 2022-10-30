@@ -1,6 +1,6 @@
 # 7 个 Chromecast 应用和游戏，您没有使用，但应该使用
 
-> 原文:[https://gizmodo . com/7-chromecast-apps-and-games-you-parent-using-but-should-1825415745](https://gizmodo.com/7-chromecast-apps-and-games-you-arent-using-but-should-1825415745)
+> 原文：<https://gizmodo.com/7-chromecast-apps-and-games-you-arent-using-but-should-1825415745>
 
 chrome cast——这是一个在你的大屏幕上获取电影和节目，也许还有一点音乐的转换器，对吗？是的，但是你可以用 Chromecast 做更多的事情。所有类型的应用和游戏都可以从额外的屏幕空间中受益——不仅仅是 Plex 和网飞。
 

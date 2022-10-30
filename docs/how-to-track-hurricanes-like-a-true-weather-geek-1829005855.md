@@ -1,6 +1,6 @@
 # 如何像一个真正的气象极客一样追踪飓风
 
-> 原文:[https://gizmodo . com/how-to-track-hurricanes-like-a-true-weather-geek-1829005855](https://gizmodo.com/how-to-track-hurricanes-like-a-true-weather-geek-1829005855)
+> 原文：<https://gizmodo.com/how-to-track-hurricanes-like-a-true-weather-geek-1829005855>
 
 飓风季节如火如荼，大西洋上肆虐。如果你住在海边，你有责任关注外面有什么风暴，它们的方向，以及可能产生的影响。
 

@@ -1,6 +1,6 @@
 # 当你为你的新生儿开一个储蓄账户时，你应该知道什么
 
-> 原文:[https://life hacker . com/when-you-should-know-when-starting-a savings-account-fo-1790065462](https://lifehacker.com/what-you-should-know-when-starting-a-savings-account-fo-1790065462)
+> 原文：<https://lifehacker.com/what-you-should-know-when-starting-a-savings-account-fo-1790065462>
 
 你有婴儿床。婴儿监视器。婴儿车。安全性最高的汽车座椅。你为你家庭的新成员考虑得很周到。还是你有？宝宝的财务前途如何？
 

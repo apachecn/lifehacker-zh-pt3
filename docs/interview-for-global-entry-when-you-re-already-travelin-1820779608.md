@@ -1,6 +1,6 @@
 # 当你已经在旅行的时候，为全球进入面试
 
-> 原文:[https://life hacker . com/interview-for-global-entry-when-you-re-around-travelin-1820779608](https://lifehacker.com/interview-for-global-entry-when-you-re-already-travelin-1820779608)
+> 原文：<https://lifehacker.com/interview-for-global-entry-when-you-re-already-travelin-1820779608>
 
 [全球入境](https://lifehacker.com/make-your-global-entry-appointment-come-months-faster-b-1796195231) 是旅行者的梦想，但取决于你所在城市的需求，申请可能需要一些时间。为了加快这个过程，如果你已经在旅行，试试 [到达注册](https://www.cbp.gov/travel/trusted-traveler-programs/global-entry/enrollment-arrival) 。
 

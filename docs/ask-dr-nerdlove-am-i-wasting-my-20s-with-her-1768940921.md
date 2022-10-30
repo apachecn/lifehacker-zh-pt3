@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我和她在一起是在浪费我的 20 多岁吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-am-I-washing-my-20s-with her-1768940921](https://kotaku.com/ask-dr-nerdlove-am-i-wasting-my-20s-with-her-1768940921)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-am-i-wasting-my-20s-with-her-1768940921>
 
 你好，互联网！欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个也用反中产阶级的正义之拳保护地狱厨房的约会建议专栏。
 

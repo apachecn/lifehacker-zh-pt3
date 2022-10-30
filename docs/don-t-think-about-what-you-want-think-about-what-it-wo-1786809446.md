@@ -1,6 +1,6 @@
 # 不要想你想要什么，想想要得到它需要付出什么
 
-> 原文:[https://life hacker . com/don-t-think-what-you-want-think-what-it-wo-1786809446](https://lifehacker.com/don-t-think-about-what-you-want-think-about-what-it-wo-1786809446)
+> 原文：<https://lifehacker.com/don-t-think-about-what-you-want-think-about-what-it-wo-1786809446>
 
 最简单的个人理财建议之一就是不再想要更多的东西。这很简单，但却是真的——如果你有一个简单的方法，除了满足最基本需求的东西之外，基本上消除你获取任何新东西的欲望，个人理财就会变得非常容易。可悲的是，人类不是这样工作的。
 

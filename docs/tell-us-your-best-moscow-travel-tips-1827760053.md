@@ -1,6 +1,6 @@
 # 告诉我们你最好的莫斯科旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Moscow-travel-tips-1827760053](https://lifehacker.com/tell-us-your-best-moscow-travel-tips-1827760053)
+> 原文：<https://lifehacker.com/tell-us-your-best-moscow-travel-tips-1827760053>
 
 我们真的是自找的。我们一直推迟《黑客你的城市》的这一期，等待关于俄罗斯的消息逐渐平息，好像这一切都要过去了。现在我们咬紧牙关(在苏联，子弹会咬你)在莫斯科攻击你的城市。毕竟，这是一个拥有 1200 万人口、拥有数百年历史的昂贵而杂乱的城市。如果你是去出差、游玩或录制个人视频，似乎有很多东西要学。
 

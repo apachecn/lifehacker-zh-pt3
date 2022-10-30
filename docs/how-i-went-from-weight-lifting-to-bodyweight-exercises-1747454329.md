@@ -1,6 +1,6 @@
 # 我是如何从举重练习到举重练习，并且仍然获得力量的
 
-> 原文:[https://life hacker . com/how-I-go-from-weight-lifting-to-body weight-exercises-1747454329](https://lifehacker.com/how-i-went-from-weight-lifting-to-bodyweight-exercises-1747454329)
+> 原文：<https://lifehacker.com/how-i-went-from-weight-lifting-to-bodyweight-exercises-1747454329>
 
 两个月前，我带着行李箱和笔记本电脑，准备开始流浪生活，因为我知道我也要告别正规的健身房了。但是健康对我来说很重要，所以我不得不使用最重要的“装备”:我自己的身体。我成功了，你也可以。
 

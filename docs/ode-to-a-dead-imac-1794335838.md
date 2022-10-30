@@ -1,6 +1,6 @@
 # 向死去的 iMac 致敬
 
-> 原文:[https://lifehacker.com/ode-to-a-dead-imac-1794335838](https://lifehacker.com/ode-to-a-dead-imac-1794335838)
+> 原文：<https://lifehacker.com/ode-to-a-dead-imac-1794335838>
 
 几周前，我不得不让我八岁的 iMac 休息。经过多年的忠实服务，它终于死了，无法修复。我不喜欢购买新电脑，也不喜欢在电脑上花钱。对我来说，买一台新电脑就像买一台新烘干机一样令人兴奋。
 

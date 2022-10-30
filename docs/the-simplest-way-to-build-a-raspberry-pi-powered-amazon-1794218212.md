@@ -1,6 +1,6 @@
 # 构建基于 Raspberry Pi 的 Amazon Echo 的最简单方法
 
-> 原文:[https://life hacker . com/the-simple-way-to-build-a-raspberry-pi-powered-Amazon-1794218212](https://lifehacker.com/the-simplest-way-to-build-a-raspberry-pi-powered-amazon-1794218212)
+> 原文：<https://lifehacker.com/the-simplest-way-to-build-a-raspberry-pi-powered-amazon-1794218212>
 
 不久前，我们详细介绍了如何使用树莓派 制作自己的 [亚马逊 Echo 设备，但如果它出现任何问题，你就必须手动重启整个设备。这是一件痛苦的事情。现在，有一种更简单的方法来制作你自己的回声。](https://lifehacker.com/how-to-build-your-own-amazon-echo-with-a-raspberry-pi-1787726931) 
 

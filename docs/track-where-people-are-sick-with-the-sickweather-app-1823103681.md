@@ -1,6 +1,6 @@
 # 使用生病天气应用程序跟踪人们生病的地方
 
-> 原文:[https://life hacker . com/track-where-people ' s-sick-wheet-app-1823103681](https://lifehacker.com/track-where-people-are-sick-with-the-sickweather-app-1823103681)
+> 原文：<https://lifehacker.com/track-where-people-are-sick-with-the-sickweather-app-1823103681>
 
 每次你决定离开家的时候，你都冒着感染流感、感冒或其他随机病毒的风险——但是如果你在去之前就知道哪里的人生病了呢？
 

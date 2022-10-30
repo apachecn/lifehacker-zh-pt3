@@ -1,6 +1,6 @@
 # 如何给孩子剪头发
 
-> 原文:[https://lifehacker.com/how-to-cut-your-kids-hair-1822569666](https://lifehacker.com/how-to-cut-your-kids-hair-1822569666)
+> 原文：<https://lifehacker.com/how-to-cut-your-kids-hair-1822569666>
 
 我一直讨厌理发。在高中和大学，当我去“看一看”时，我的头发是最容易看起来正确的部分，当它看起来不正确时，最难隐藏。当我找到一个我喜欢的造型师时，我会忠于他，就像马克·戴维斯忠于他的花花公子 T2 一样。即使现在我是一个干瘪的老父亲，有着脆弱的灰色头发，在一个新理发师的抚摸下，我也很烦躁。
 

@@ -1,6 +1,6 @@
 # 以下是一些蹩脚的保险计划，它们可能很快会再次合法
 
-> 原文:[https://life hacker . com/here-s-some-of-some-the-some-of-the-lappy-insurance-plans-that-1793603830](https://lifehacker.com/here-are-some-of-the-crappy-insurance-plans-that-could-1793603830)
+> 原文：<https://lifehacker.com/here-are-some-of-the-crappy-insurance-plans-that-could-1793603830>
 
 [【基本福利】](https://www.healthcare.gov/coverage/what-marketplace-plans-cover/) 昨晚从医保法案中消失，该法案旨在让 [取代](https://lifehacker.com/tell-us-what-would-you-call-the-choice-that-house-repu-1793568664) 患者保护与平价医疗法案。如果该法案通过，健康保险计划将不再需要覆盖产妇护理。或者住院。或者急救护理。或者处方药。这意味着这些大约 2010 年可怕的健康计划可能会卷土重来！
 

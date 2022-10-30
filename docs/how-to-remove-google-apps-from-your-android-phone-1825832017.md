@@ -1,6 +1,6 @@
 # 如何从你的安卓手机中删除谷歌应用程序
 
-> 原文:[https://life hacker . com/how-to-remove-Google-apps-from-your-Android-phone-1825832017](https://lifehacker.com/how-to-remove-google-apps-from-your-android-phone-1825832017)
+> 原文：<https://lifehacker.com/how-to-remove-google-apps-from-your-android-phone-1825832017>
 
 Android:谷歌和 Android 通常是一揽子交易。即使三星或索尼制造了你的手机，你仍然会发现它装载了[Gmail](https://lifehacker.com/these-are-the-coolest-new-features-in-gmails-redesign-1825211681?rev=1523552250665)[Chrome](https://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393)[YouTube](https://lifehacker.com/avoid-unexpected-youtube-bing-watching-sessions-with-tu-1825275041)，以及构成 Google Play 服务的所有其他应用。但是完全“去谷歌化”你的安卓设备是可能的——尽管这句话输入起来很奇怪——尽管这并不容易。
 

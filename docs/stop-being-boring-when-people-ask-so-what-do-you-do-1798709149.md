@@ -1,6 +1,6 @@
 # 当人们问“那你是做什么的”时，不要再无聊了
 
-> 原文:[https://life hacker . com/stop-be-boring-when-people-ask-so-do-do-1798709149](https://lifehacker.com/stop-being-boring-when-people-ask-so-what-do-you-do-1798709149)
+> 原文：<https://lifehacker.com/stop-being-boring-when-people-ask-so-what-do-you-do-1798709149>
 
 闲聊永远不会不尴尬，因为要了解一个人，你必须问一些令人担忧的问题。有些问题 [不应该问](http://lifehacker.com/the-small-talk-questions-you-should-never-ask-1795578480) ，但是问“你是做什么工作的？”不过，回答这个问题可能会很麻烦。
 

@@ -1,6 +1,6 @@
 # 如何升级到更好的威士忌
 
-> 原文:[https://life hacker . com/how-to-graduate-to-better-whiskey-1821708611](https://lifehacker.com/how-to-graduate-to-better-whiskey-1821708611)
+> 原文：<https://lifehacker.com/how-to-graduate-to-better-whiskey-1821708611>
 
 当我遇见帕特里克·马伦 的时候，那是纽约十二月的一个寒冷的夜晚。我和女朋友刚刚放弃了在洛克菲勒中心挤过人群去看那棵大树的努力，我们迫切需要喝一杯。我们沿着第 49 街前进，以避开人群，绕过第 10 大道的拐角，就在那里，我们的救命恩人，一家威士忌酒吧。
 

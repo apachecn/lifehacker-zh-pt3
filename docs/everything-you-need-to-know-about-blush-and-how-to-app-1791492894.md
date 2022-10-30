@@ -1,6 +1,6 @@
 # 关于腮红你需要知道的一切，以及如何使用它
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-blush-and-how-to-app-1791492894](https://lifehacker.com/everything-you-need-to-know-about-blush-and-how-to-app-1791492894)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-blush-and-how-to-app-1791492894>
 
 腮红是我们在成长过程中在妈妈的梳妆台上看到的产品之一，也是我们崇拜的每一位迷人女性的手袋中看到的产品之一，但当我们把它拿在手里时，我们会“现在怎么办？”让我们来谈谈它是什么，它是用来做什么的，以及如何最好地使用它。
 

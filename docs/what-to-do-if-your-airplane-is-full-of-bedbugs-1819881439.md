@@ -1,6 +1,6 @@
 # 如果你的飞机有臭虫该怎么办
 
-> 原文:[https://life hacker . com/1819881439](https://lifehacker.com/what-to-do-if-your-airplane-is-full-of-bedbugs-1819881439)
+> 原文：<https://lifehacker.com/what-to-do-if-your-airplane-is-full-of-bedbugs-1819881439>
 
 臭虫不再仅仅是为了床。一个加拿大家庭在飞往伦敦 的九个小时的飞机上被臭虫咬得全身都是。更糟糕的是，母亲*在飞行开始时看到了一只臭虫，并知道它是什么*，但机组人员说他们无能为力。
 

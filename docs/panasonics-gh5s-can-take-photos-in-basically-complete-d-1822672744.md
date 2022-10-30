@@ -1,6 +1,6 @@
 # 松下的 GH5S 可以在基本完全黑暗的环境下拍照
 
-> 原文:[https://gizmodo . com/panasonics-gh5s-can-take-photos-in-basic-complete-d-1822672744](https://gizmodo.com/panasonics-gh5s-can-take-photos-in-basically-complete-d-1822672744)
+> 原文：<https://gizmodo.com/panasonics-gh5s-can-take-photos-in-basically-complete-d-1822672744>
 
 回到 [CES](https://gizmodo.com/tag/ces) ， [松下发布了](https://gizmodo.com/panasonic-cut-the-lumix-gh5s-resolution-in-half-to-get-1821865792) 一款相机，它主要是为了做一件高于一切的事情:获得尽可能好的弱光图片和视频。不幸的是，直到最近，我们才真正测试了松下对其新 GH5S 的声明。
 

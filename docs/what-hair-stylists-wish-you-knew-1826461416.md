@@ -1,6 +1,6 @@
 # 发型师希望你知道什么
 
-> 原文:[https://life hacker . com/what-hair-stylists-wish-you-know-1826461416](https://lifehacker.com/what-hair-stylists-wish-you-knew-1826461416)
+> 原文：<https://lifehacker.com/what-hair-stylists-wish-you-knew-1826461416>
 
 他们是拿着剪刀的士兵，死亡之神，以及令人惊叹的设计者。他们是你的发型师，他们有些事情非常想让你，顾客，了解他们的工作。
 

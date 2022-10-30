@@ -1,6 +1,6 @@
 # 为什么我的笔记本电脑会杀了我的 Wifi？
 
-> 原文:[https://life hacker . com/why-my-laptop-kill-my-wifi-1827375999](https://lifehacker.com/why-does-my-laptop-kill-my-wifi-1827375999)
+> 原文：<https://lifehacker.com/why-does-my-laptop-kill-my-wifi-1827375999>
 
 嗨！在本周的 Tech 911 专栏中，我试图解决你常见和模糊的技术问题，我们有一个“年度最佳”的有力竞争者，如果这个奖项存在的话。我发现最好的、最令人挠头的问题往往与家庭网络有关，而本周的问题真是太棒了。
 

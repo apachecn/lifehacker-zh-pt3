@@ -1,6 +1,6 @@
 # 如何在上下班途中多读书
 
-> 原文:[https://life hacker . com/how-to-read-more-in-your commutation-1825322130](https://lifehacker.com/how-to-read-more-during-your-commute-1825322130)
+> 原文：<https://lifehacker.com/how-to-read-more-during-your-commute-1825322130>
 
 每个人都有自己的阅读更多书籍的小技巧(或者至少，假装 [你在阅读书籍](https://lifehacker.com/how-to-pretend-youve-read-a-book-1796228206) )，更普遍的是，我们要处理永无止境的播客剧集、旧纽约客杂志、Spotify 播放列表和其他各种内容。
 

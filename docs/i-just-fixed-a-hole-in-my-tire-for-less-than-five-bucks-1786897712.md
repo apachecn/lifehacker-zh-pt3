@@ -1,6 +1,6 @@
 # 我刚花了不到 5 美元 5 分钟修好了我轮胎上的一个洞
 
-> 原文:[https://jalopnik . com/I-刚花了不到五块钱修好了我轮胎上的一个洞-1786897712](https://jalopnik.com/i-just-fixed-a-hole-in-my-tire-for-less-than-five-bucks-1786897712)
+> 原文：<https://jalopnik.com/i-just-fixed-a-hole-in-my-tire-for-less-than-five-bucks-1786897712>
 
 上周，我把我所有的汽车项目剩下的废旧金属零件拿到废品站去赚几块钱。不出所料，地上有金属，一个小碎片在我心爱的吉普车轮胎上切了一个洞(自我提醒:不要在金属废料场开车)。但是我用了不到 5 美元就修好了。以下是方法。
 

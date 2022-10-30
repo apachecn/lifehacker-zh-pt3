@@ -1,6 +1,6 @@
 # 如何与我打交道:给我所有朋友的用户手册
 
-> 原文:[https://life hacker . com/how-to-deal-me-a-user-manual-for-all-my-friends-1747296558](https://lifehacker.com/how-to-deal-with-me-a-user-manual-for-all-my-friends-1747296558)
+> 原文：<https://lifehacker.com/how-to-deal-with-me-a-user-manual-for-all-my-friends-1747296558>
 
 我有点吹毛求疵。当我饿的时候，我会变得烦躁不安；当我不锻炼的时候，我会感到沮丧；当我在一大群人当中的时候，我会感到焦虑。当我陷入某种怪异的情绪时，我的大多数老朋友知道如何处理我，但新朋友(和其他重要的人)不知道。所以，我为自己想出了一个用户手册来帮助他们(和我自己)。
 

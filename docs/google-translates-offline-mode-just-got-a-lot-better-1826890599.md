@@ -1,6 +1,6 @@
 # 谷歌翻译的离线模式刚刚好了很多
 
-> 原文:[https://life hacker . com/Google-translates-offline-mode-just-get-a-lot-better-1826890599](https://lifehacker.com/google-translates-offline-mode-just-got-a-lot-better-1826890599)
+> 原文：<https://lifehacker.com/google-translates-offline-mode-just-got-a-lot-better-1826890599>
 
 当我在其他国家旅行时，谷歌翻译是一个对我成功至关重要的应用程序。当你在旅行的某个地方不会说这种语言(或者说这种语言说得不好)时，能够快速查找一些东西，或者对着电话说几句话来创建一个翻译，你可以用它来和街上的那个人聊天，这可能是一个救命稻草。
 

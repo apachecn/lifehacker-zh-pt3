@@ -1,6 +1,6 @@
 # 用这些“把事情做完”的技巧帮助青少年减压
 
-> 原文:[https://life hacker . com/help-tens-de-stress-with things-done-HAC-1827462146](https://lifehacker.com/help-teens-de-stress-with-these-getting-things-done-hac-1827462146)
+> 原文：<https://lifehacker.com/help-teens-de-stress-with-these-getting-things-done-hac-1827462146>
 
 2018 年的少年——不知道怎么做到的。想象一下，你有一份和高中时一样的压力清单——学校、课外活动、家务、充满焦虑的社交生活——然后加上社交媒体的持续吸引力，提醒你所有你没有做的事情。(“你有没有看到 Gigi 今年夏天在非洲盖房子，还有 Jonah 在 Snapchat 实习？”根据美国国家心理健康研究院的数据，32%的青少年患有焦虑症，这并不奇怪。
 

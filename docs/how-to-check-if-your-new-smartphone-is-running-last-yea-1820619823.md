@@ -1,6 +1,6 @@
 # 如何检查你的新智能手机是否运行去年的安卓操作系统
 
-> 原文:[https://life hacker . com/how-to-check-if-your-new-smart phone-is-running-last-yea-1820619823](https://lifehacker.com/how-to-check-if-your-new-smartphone-is-running-last-yea-1820619823)
+> 原文：<https://lifehacker.com/how-to-check-if-your-new-smartphone-is-running-last-yea-1820619823>
 
 Android 的最新版本 Oreo 于 8 月发布，并带来了一系列新功能，使 Android 更加用户友好。它还捆绑了一些服务，让硬件制造商更容易更新自己设备的软件。不幸的是，今天购买一部全新的手机并不能保证你将获得最新的操作系统，并可能导致你在相当长的一段时间内仍停留在去年版本的 Android 上。
 

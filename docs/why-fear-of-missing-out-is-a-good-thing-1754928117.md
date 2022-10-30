@@ -1,6 +1,6 @@
 # 为什么害怕错过是一件好事
 
-> 原文:[https://life hacker . com/why-fear-of-missing-out-is-a-good-things-1754928117](https://lifehacker.com/why-fear-of-missing-out-is-a-good-thing-1754928117)
+> 原文：<https://lifehacker.com/why-fear-of-missing-out-is-a-good-thing-1754928117>
 
 当其他人在他们的生活中有积极的、令人兴奋的经历，而你却没有时，对错过(或 FOMO)的恐惧是一种嫉妒和不安全感的。它会让你感到沮丧，让你花钱，让你紧张——但它也是一个令人难以置信的激励工具。这就是为什么喝点 FOMO 是件好事。
 

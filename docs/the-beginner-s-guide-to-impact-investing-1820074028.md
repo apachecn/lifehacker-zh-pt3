@@ -1,6 +1,6 @@
 # 影响力投资初学者指南
 
-> 原文:[https://life hacker . com/the-beginner-s-guide-to-impact-investing-1820074028](https://lifehacker.com/the-beginner-s-guide-to-impact-investing-1820074028)
+> 原文：<https://lifehacker.com/the-beginner-s-guide-to-impact-investing-1820074028>
 
 影响力投资的已经起飞，这并不奇怪:虽然人们希望看到自己的钱在市场上增值，但他们不想把钱存在他们不喜欢的公司里。
 

@@ -1,6 +1,6 @@
 # 何时购买旅游保险
 
-> 原文:[https://life hacker . com/when-to-buy-travel-insurance-1828636337](https://lifehacker.com/when-to-buy-travel-insurance-1828636337)
+> 原文：<https://lifehacker.com/when-to-buy-travel-insurance-1828636337>
 
 当你计划度假时，安排短途旅行和选择每晚去哪家餐馆吃饭与其说是一件苦差事，不如说是旅途中令人兴奋的一部分。但是还有一个你必须考虑的问题，那就是不那么有趣、令人困惑并且可能很贵的:旅行保险。
 

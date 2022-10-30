@@ -1,6 +1,6 @@
 # 如何解读你的经济资助信
 
-> 原文:[https://life hacker . com/how-to-decode-your-financial-aid-letters-1825320591](https://lifehacker.com/how-to-decode-your-financial-aid-letters-1825320591)
+> 原文：<https://lifehacker.com/how-to-decode-your-financial-aid-letters-1825320591>
 
 恭喜你，毕业生！如果你收到了一封来自潜在本科生或研究生项目的经济资助信，这意味着你正确地填写了 FAFSA——[绝非易事](https://twocents.lifehacker.com/it-s-harder-than-ever-to-apply-for-student-aid-here-s-1793544567)——你正在实现你的梦想。但是在你在虚线上签名之前，这里有一些你需要知道的关于那些经济资助信的事情。
 

@@ -1,6 +1,6 @@
 # 来自我们读者的最佳纳什维尔提示
 
-> 原文:[https://life hacker . com/the-best-Nashville-tips-from-our-readers-1823410520](https://lifehacker.com/the-best-nashville-tips-from-our-readers-1823410520)
+> 原文：<https://lifehacker.com/the-best-nashville-tips-from-our-readers-1823410520>
 
 本周 ，我们收到了 90 条充满纳什维尔建议的评论。许多评论者同意:参观，但请不要在这里移动。看一场掠食者曲棍球比赛，走出拥挤的下百老汇区，参观纳什维尔的帕台农神庙 复制品。(说[说](http://lifehacker.com/1823404433)说这不叫南方的猛将。)我们也得到了更多的城市昵称。Booktart 听过“纳什维加斯；cstrahm 喜欢“Smashville”去阅读所有的 90 个技巧，或者看看下面的一些亮点。 
 

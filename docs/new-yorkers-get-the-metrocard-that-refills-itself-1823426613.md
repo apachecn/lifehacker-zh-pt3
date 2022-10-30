@@ -1,6 +1,6 @@
 # 纽约人:使用自动充值的地铁卡
 
-> 原文:[https://life hacker . com/new-Yorkers-get-the-metro card-that-fills-self-1823426613](https://lifehacker.com/new-yorkers-get-the-metrocard-that-refills-itself-1823426613)
+> 原文：<https://lifehacker.com/new-yorkers-get-the-metrocard-that-refills-itself-1823426613>
 
 购买纽约地铁卡的最糟糕时机是当你已经在地铁站里的时候。你担心赶不上火车，你前面和后面的人也有同样的担心，让你慢下来，让你紧张。但是你再也不用忍受这些了。取而代之的是 MTA 的自动充值易付通地铁卡。
 

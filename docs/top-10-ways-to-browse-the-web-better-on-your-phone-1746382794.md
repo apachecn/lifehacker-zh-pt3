@@ -1,6 +1,6 @@
 # 在手机上更好地浏览网页的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-browse-the-web-better-on-your-phone-1746382794](https://lifehacker.com/top-10-ways-to-browse-the-web-better-on-your-phone-1746382794)
+> 原文：<https://lifehacker.com/top-10-ways-to-browse-the-web-better-on-your-phone-1746382794>
 
 在网上查找东西是我们大多数人购买数据套餐的主要原因之一，但让我们面对现实吧:在小屏幕上用小键盘上网有时会很糟糕。这里有十种方法可以让体验至少好一点。
 

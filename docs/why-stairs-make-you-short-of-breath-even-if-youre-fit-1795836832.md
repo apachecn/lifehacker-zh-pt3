@@ -1,6 +1,6 @@
 # 为什么即使你很健康，爬楼梯也会让你呼吸困难
 
-> 原文:[https://life hacker . com/why-stairs-make-you-short-breath-even-if-you-fit-1795836832](https://lifehacker.com/why-stairs-make-you-short-of-breath-even-if-youre-fit-1795836832)
+> 原文：<https://lifehacker.com/why-stairs-make-you-short-of-breath-even-if-youre-fit-1795836832>
 
 你认为自己是个非常健康的人。你经常在健身房锻炼。你可以跑上几英里，在杂货店来回奔波。但是几段楼梯？天啊。这就是为什么楼梯是你的克星，即使你身材很好。
 

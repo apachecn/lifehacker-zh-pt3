@@ -1,6 +1,6 @@
 # 你把洋葱焦糖化错了
 
-> 原文:[https://life hacker . com/you-can-caramelize-onions-without-patients-1823404064](https://lifehacker.com/you-cannot-caramelize-onions-without-patience-1823404064)
+> 原文：<https://lifehacker.com/you-cannot-caramelize-onions-without-patience-1823404064>
 
 像许多千禧一代一样，我是即时满足的忠实粉丝，总是寻求破解、简化或加快烹饪美食的过程。然而，有一种美味的食物总是需要它的甜蜜和焦糖化时间:洋葱。
 

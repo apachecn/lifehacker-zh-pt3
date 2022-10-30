@@ -1,6 +1,6 @@
 # 最好的便宜或免费的地方得到一个伟大的锻炼
 
-> 原文:[https://life hacker . com/the-best-cheap-or-free-places-to-get-a great-workout-1762541705](https://lifehacker.com/the-best-cheap-or-free-places-to-get-a-great-workout-1762541705)
+> 原文：<https://lifehacker.com/the-best-cheap-or-free-places-to-get-a-great-workout-1762541705>
 
 如果支付标准健身房会员费用不符合你的预算，有很多低成本，甚至免费的选择，提供有效的健身方式。从公共或非盈利的健身中心到操场上的体重训练，你可以不用交会员费就能得到很好的锻炼。
 

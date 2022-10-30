@@ -1,6 +1,6 @@
 # 从 BBC 档案馆下载超过 16，000 种免费音效
 
-> 原文:[https://life hacker . com/download-over-16-000-free-sound-effects-from-this-BBC-a-1825472102](https://lifehacker.com/download-over-16-000-free-sound-effects-from-this-bbc-a-1825472102)
+> 原文：<https://lifehacker.com/download-over-16-000-free-sound-effects-from-this-bbc-a-1825472102>
 
 这里有一个坏消息:如果你是一个有抱负的声音设计师，或者你正在寻找一些随机噪音插入到你正在进行的一个大项目中，BBC 的新档案超过 16，000 种免费音效不会帮你太多。他们都受到 RemArc 许可的约束，禁止在商业工作中使用这些文件。
 

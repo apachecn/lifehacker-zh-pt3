@@ -1,6 +1,6 @@
 # 四种美味的亚洲面汤让你在这个冬天温暖如春
 
-> 原文:[https://life hacker . com/four-delicious-Asian-noodle-soups-to-warm you-up-this-w-1788816423](https://lifehacker.com/four-delicious-asian-noodle-soups-to-warm-you-up-this-w-1788816423)
+> 原文：<https://lifehacker.com/four-delicious-asian-noodle-soups-to-warm-you-up-this-w-1788816423>
 
 有一种独特的满足感，那就是一碗美味的汤，里面装满了面条，上面放着肉、蔬菜和香料。经典的鸡肉面汤总是令人满意，但今天让我们来看看几种美味的面汤，它们是完美的暖胃餐。
 

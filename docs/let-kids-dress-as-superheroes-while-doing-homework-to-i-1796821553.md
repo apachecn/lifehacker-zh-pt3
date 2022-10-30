@@ -1,6 +1,6 @@
 # 让孩子们在做作业时打扮成超级英雄，以增加毅力
 
-> 原文:[https://life hacker . com/let-kids-dress-as-super heroes-while-do-I-1796821553](https://lifehacker.com/let-kids-dress-as-superheroes-while-doing-homework-to-i-1796821553)
+> 原文：<https://lifehacker.com/let-kids-dress-as-superheroes-while-doing-homework-to-i-1796821553>
 
 如果你的孩子在做作业的时候睡着了，也许他应该穿上斗篷。
 

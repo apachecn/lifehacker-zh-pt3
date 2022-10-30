@@ -1,6 +1,6 @@
 # 如何做完美的 Burpee
 
-> 原文:[https://life hacker . com/how-to-do-the-perfect-burpee-1826642241](https://lifehacker.com/how-to-do-the-perfect-burpee-1826642241)
+> 原文：<https://lifehacker.com/how-to-do-the-perfect-burpee-1826642241>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-r9W0geWzYes&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-r9W0geWzYes&start=0) 
 

@@ -1,6 +1,6 @@
 # 你的核心是什么，如何加强它
 
-> 原文:[https://life hacker . com/what-your-core-really-and-how-to-strength-it-1793048138](https://lifehacker.com/what-your-core-really-is-and-how-to-strengthen-it-1793048138)
+> 原文：<https://lifehacker.com/what-your-core-really-is-and-how-to-strengthen-it-1793048138>
 
 仰卧起坐和木板不是一切。如果你想强化你的核心，你需要想得更大。你的核心包括躯干的所有肌肉，从肩膀到臀部。它的作用不仅仅是帮助你坐起来。
 

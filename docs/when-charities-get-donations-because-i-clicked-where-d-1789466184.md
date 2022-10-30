@@ -1,6 +1,6 @@
 # 当慈善机构因为我点击而获得捐款时，他们从哪里得到钱？
 
-> 原文:[https://life hacker . com/when-charities-get-contributions-cause-I-clicked-where-d-1789466184](https://lifehacker.com/when-charities-get-donations-because-i-clicked-where-d-1789466184)
+> 原文：<https://lifehacker.com/when-charities-get-donations-because-i-clicked-where-d-1789466184>
 
 [慈善万里行](http://www.charitymiles.org/) 夸口说，你只要兜里揣着手机去散步，就“为慈善事业挣钱”。其他应用如 [捐赠一张照片](http://www.donateaphoto.com/en_us) 和 [Tinbox](http://www.get-tinbox.com/) 把钱捐给慈善机构，给你一种不用打开钱包就能捐赠的感觉。那么钱到底从哪里来呢？
 

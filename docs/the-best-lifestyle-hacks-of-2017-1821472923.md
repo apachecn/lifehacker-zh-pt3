@@ -1,6 +1,6 @@
 # 2017 年最佳生活方式
 
-> 原文:[https://life hacker . com/the-best-life-style-hacks-of-2017-1821472923](https://lifehacker.com/the-best-lifestyle-hacks-of-2017-1821472923)
+> 原文：<https://lifehacker.com/the-best-lifestyle-hacks-of-2017-1821472923>
 
 旅行、约会和用化学方法改变一个人的精神状态是生活中更令人愉快的部分，这些生活的部分和生产力一样值得被黑客攻击。以下是 2017 年我们最喜欢的生活方式。请负责任地享受。
 

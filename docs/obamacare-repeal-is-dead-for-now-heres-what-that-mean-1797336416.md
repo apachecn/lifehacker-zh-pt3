@@ -1,6 +1,6 @@
 # 奥巴马医改法案已经被废除了(就目前而言)——这对于你的医疗保健意味着什么
 
-> 原文:[https://life hacker . com/Obama care-repeat-is-dead-for-now-heres-than-what-mean-1797336416](https://lifehacker.com/obamacare-repeal-is-dead-for-now-heres-what-that-mean-1797336416)
+> 原文：<https://lifehacker.com/obamacare-repeal-is-dead-for-now-heres-what-that-mean-1797336416>
 
 昨晚，在一场惊心动魄的戏剧中，三名共和党人投票反对他们党的第三项也是最后一项医疗保健法案，该法案正式死亡，这种戏剧娱乐了那些熬夜在 Twitter 上谈论参议院投票的人。那么现在会发生什么呢？
 

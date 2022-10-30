@@ -1,6 +1,6 @@
 # IHOP 周二会免费赠送煎饼
 
-> 原文:[https://life hacker . com/ihop-is-giving-away-free-pancakes-on-Tuesday-1823250922](https://lifehacker.com/ihop-is-giving-away-free-pancakes-on-tuesday-1823250922)
+> 原文：<https://lifehacker.com/ihop-is-giving-away-free-pancakes-on-tuesday-1823250922>
 
 星期二是全国煎饼日。虽然从表面上看也许不是一个值得纪念的节日，但今年 IHOP 提供了一些你可能想写进日历的东西: [免费煎饼](https://www.ihop.com/en/national-pancake-day) 。
 

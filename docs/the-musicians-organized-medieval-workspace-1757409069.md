@@ -1,6 +1,6 @@
 # 音乐家井然有序的中世纪工作空间
 
-> 原文:[https://life hacker . com/the-museums-organized-中世纪-workspace-1757409069](https://lifehacker.com/the-musicians-organized-medieval-workspace-1757409069)
+> 原文：<https://lifehacker.com/the-musicians-organized-medieval-workspace-1757409069>
 
 丹尼斯 热爱科技，喜欢做音乐，当然，也喜欢他放在桌子周围的中世纪道具，比如他箱子上的龙和显示器前的喇叭。他的工作空间简洁明了，井井有条，但并不夸张。
 

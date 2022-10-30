@@ -1,6 +1,6 @@
 # 简单的代基里酒是最好的代基里酒
 
-> 原文:[https://life hacker . com/a-simple-daiquiri-is-the-best-daiquiri-1823635326](https://lifehacker.com/a-simple-daiquiri-is-the-best-daiquiri-1823635326)
+> 原文：<https://lifehacker.com/a-simple-daiquiri-is-the-best-daiquiri-1823635326>
 
 我不知道它具体发生在什么时候，但在这个过程中，“代基里”这个词成了一个包罗万象的术语，指任何甜的、含朗姆酒的、带有某种水果风味的饮料。许多这种甜甜蜜蜜的创造物都是装在大高脚杯里冷冻供应的。有时会有糖浆的漩涡。我的朋友们，这些都不能与真正的代基里酒相提并论，代基里酒是一种令人惊讶的基本饮料，仅由朗姆酒、酸橙和简单的糖浆组成。
 

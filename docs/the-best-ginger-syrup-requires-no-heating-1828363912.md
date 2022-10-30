@@ -1,6 +1,6 @@
 # 最好的姜糖浆不需要加热
 
-> 原文:[https://life hacker . com/the-best-姜糖水-requires-no-heating-1828363912](https://lifehacker.com/the-best-ginger-syrup-requires-no-heating-1828363912)
+> 原文：<https://lifehacker.com/the-best-ginger-syrup-requires-no-heating-1828363912>
 
 鸡尾酒糖浆很容易制作，有些人会说“简单”。将糖倒入水中，加热至溶解，冷却。如果你想要一种除了“甜”以外的味道，你可以在水中煮一些植物的一部分来赋予一些特别的东西。然而，在姜糖浆的情况下，这种方法会给你一种乏味的、不那么辣的糖浆，带有一种“煮熟”的味道。
 

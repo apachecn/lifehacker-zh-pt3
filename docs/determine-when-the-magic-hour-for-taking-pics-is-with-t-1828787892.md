@@ -1,6 +1,6 @@
 # 使用此应用程序确定拍照的“神奇时刻”
 
-> 原文:[https://life hacker . com/determine-when-the-magic-hour-for-taking-pics-is-t-1828787892](https://lifehacker.com/determine-when-the-magic-hour-for-taking-pics-is-with-t-1828787892)
+> 原文：<https://lifehacker.com/determine-when-the-magic-hour-for-taking-pics-is-with-t-1828787892>
 
 说到在户外拍照，在“神奇的一小时”里抓拍那张照片绝对有值得一提的地方然而，弄清楚这是什么时候，尤其是当你在旅行的时候，有时会有点困难。
 

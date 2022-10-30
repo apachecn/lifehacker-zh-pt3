@@ -1,6 +1,6 @@
 # 如何辨别这些圣马尔扎诺西红柿是不是真货
 
-> 原文:[https://life hacker . com/how-to-tell-if-thes-San-marzano-tomatos-is-the-real-1796375375](https://lifehacker.com/how-to-tell-if-those-san-marzano-tomatoes-are-the-real-1796375375)
+> 原文：<https://lifehacker.com/how-to-tell-if-those-san-marzano-tomatoes-are-the-real-1796375375>
 
 圣马尔扎诺番茄享有盛誉。据说它们比其他罐装李子番茄更甜，更多汁，酸性更低，这就是为什么这么多人选择它们做调味汁的原因。不幸的是，你在美国杂货店会发现的大多数“圣马尔扎诺”西红柿都是骗子。
 

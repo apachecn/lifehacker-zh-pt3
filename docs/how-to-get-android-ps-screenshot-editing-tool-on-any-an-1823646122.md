@@ -1,6 +1,6 @@
 # 如何在任何安卓手机上获取安卓 P 的截图编辑工具
 
-> 原文:[https://life hacker . com/how-to-get-Android-PS-screen-editing-tool-on-any-an-1823646122](https://lifehacker.com/how-to-get-android-ps-screenshot-editing-tool-on-any-an-1823646122)
+> 原文：<https://lifehacker.com/how-to-get-android-ps-screenshot-editing-tool-on-any-an-1823646122>
 
 去年，苹果将 [高级截图编辑工具](https://lifehacker.com/how-to-get-the-most-out-of-ios-11s-new-screenshot-edito-1818696949) 带到了搭载 [iOS 11](https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209) 的 iPhone 上，而本周，谷歌用一个类似的 Android 功能“标记”进行了回击。唯一的问题是，这款新工具仅限于今年晚些时候推出的 [Android P](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465) ，但可能不会用于大多数旧的 Android 设备。谢天谢地，已经有一种(非官方的)方法可以给你现在的智能手机添加标签了。
 

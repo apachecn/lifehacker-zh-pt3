@@ -1,6 +1,6 @@
 # 如何塑造一个故事，根据著名作家
 
-> 原文:[https://life hacker . com/how-to-shape-a story-by-named-writers-1820410250](https://lifehacker.com/how-to-shape-a-story-according-to-famous-writers-1820410250)
+> 原文：<https://lifehacker.com/how-to-shape-a-story-according-to-famous-writers-1820410250>
 
 故事是有形状的。你讲的任何故事，如果你认识到它的形状，然后强化它的形状，效果会最好。这适用于任何长度的故事，无论你是在为 2017 年 全国小说写作月 [投入你的 5 万字，还是磨练你最喜欢的聚会轶事，甚至是营销某些东西，包括你自己。它甚至适用于海明威著名的六字故事，“待售:婴儿鞋，从未穿过。”](https://lifehacker.com/whats-your-plan-for-nanowrimo-1820023495) 
 

@@ -1,6 +1,6 @@
 # 关于大脑如何学习，你应该知道的六件事
 
-> 原文:[https://life hacker . com/six-things-you-should-know-how-your-brain-learning-1773183447](https://lifehacker.com/six-things-you-should-know-about-how-your-brain-learns-1773183447)
+> 原文：<https://lifehacker.com/six-things-you-should-know-about-how-your-brain-learns-1773183447>
 
 无论你是想 [学习一门新语言](https://blog.crew.co/the-science-of-learning-new-languages/) ，学习烹饪，学习一种乐器，还是只是想从你所读的书中获得更多，了解你的大脑是如何学习的都会有所帮助。虽然每个人学习的方式略有不同，但我们的大脑在接受新信息的方式上确实有相似之处，了解这种方式可以帮助我们选择学习新事物的最有效的策略。
 

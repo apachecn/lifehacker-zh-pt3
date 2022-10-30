@@ -1,6 +1,6 @@
 # 在家工作时提高效率的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-be-more-productive-whom-1753187579](https://lifehacker.com/top-10-ways-to-be-more-productive-when-working-from-hom-1753187579)
+> 原文：<https://lifehacker.com/top-10-ways-to-be-more-productive-when-working-from-hom-1753187579>
 
 与在办公室环境中工作相比，我们许多人在家时工作效率更高 。但是在家工作也不是没有挑战。根据这 10 条建议，在家工作时变得更有效率。
 

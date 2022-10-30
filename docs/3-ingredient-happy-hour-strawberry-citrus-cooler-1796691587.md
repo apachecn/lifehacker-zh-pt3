@@ -1,6 +1,6 @@
 # 三种成分的欢乐时光:草莓柑橘冷却器
 
-> 原文:[https://life hacker . com/3-配料-欢乐时光-草莓-柑橘-冷却器-1796691587](https://lifehacker.com/3-ingredient-happy-hour-strawberry-citrus-cooler-1796691587)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-strawberry-citrus-cooler-1796691587>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将夏季草莓与我最喜欢的柑橘利口酒搭配在一起: [皮埃尔·费朗干橙库拉索酒](http://pierreferrandcuracao.com/en/section/view/210) 。
 

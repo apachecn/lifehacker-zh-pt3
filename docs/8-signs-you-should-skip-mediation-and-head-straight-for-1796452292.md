@@ -1,6 +1,6 @@
 # 你应该跳过调解直接去找离婚律师的 8 个迹象
 
-> 原文:[https://life hacker . com/8-signs-you-should-skip-mediation-and-head-straight for-1796452292](https://lifehacker.com/8-signs-you-should-skip-mediation-and-head-straight-for-1796452292)
+> 原文：<https://lifehacker.com/8-signs-you-should-skip-mediation-and-head-straight-for-1796452292>
 
 一旦婚姻走到尽头，剩下的唯一问题就是“理清我们的法律和财务生活，以及(如果相关的话)理清监护权，会有多难？”对于一些夫妇来说，通过调解而不是诉讼离婚来分居有其吸引力:许多人不想让他们的前配偶扮演敌人的角色，与玫瑰战争- 类型的争吵相比，调解是一个更便宜、更合作、更少敌意的过程。
 

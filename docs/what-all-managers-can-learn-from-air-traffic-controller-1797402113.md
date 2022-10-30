@@ -1,6 +1,6 @@
 # 所有管理者能从空中交通管制员那里学到什么
 
-> 原文:[https://life hacker . com/what-all-managers-can-learn-from-air-traffic-controller-1797402113](https://lifehacker.com/what-all-managers-can-learn-from-air-traffic-controller-1797402113)
+> 原文：<https://lifehacker.com/what-all-managers-can-learn-from-air-traffic-controller-1797402113>
 
 对于任何工作来说，员工都会犯错误，这种错误通常不会比损失一些时间、金钱或客户的善意更昂贵。但是对于空中交通管制员来说，看似微小的错误可能是致命的灾难。
 

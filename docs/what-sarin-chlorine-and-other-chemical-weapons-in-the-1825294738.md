@@ -1,6 +1,6 @@
 # 沙林、氯气和其他化学武器在新闻中的实际作用
 
-> 原文:[https://life hacker . com/what-sarin-chloro-and-other-chemical-weapons-in-the-the-1825294738](https://lifehacker.com/what-sarin-chlorine-and-other-chemical-weapons-in-the-1825294738)
+> 原文：<https://lifehacker.com/what-sarin-chlorine-and-other-chemical-weapons-in-the-1825294738>
 
 上周，美国及其盟友法国和英国向叙利亚目标发射了 105 枚导弹——[——其中大部分是战斧](https://lifehacker.com/your-guide-to-all-the-devastating-weapons-you-hear-abou-1794295473)——试图阻止叙利亚内战中未来的化学袭击。但是被指控使用的化学武器是什么？他们到底对人做了什么？以下是你需要知道的。
 

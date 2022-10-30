@@ -1,6 +1,6 @@
 # 向 Siri 询问您忘记的密码
 
-> 原文:[https://life hacker . com/ask-Siri-for-your-forgot-passwords-1828755431](https://lifehacker.com/ask-siri-for-your-forgotten-passwords-1828755431)
+> 原文：<https://lifehacker.com/ask-siri-for-your-forgotten-passwords-1828755431>
 
 对于智能手机上的密码，最明智的做法是使用密码管理器，如 1Password。一个密码管理器不仅可以创建一个超级安全的密码，它可以记住它，并用它来登录你的帐户，使整个密码的事情既安全又简单。
 

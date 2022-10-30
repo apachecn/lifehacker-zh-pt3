@@ -1,6 +1,6 @@
 # 银行法案给学生贷款借款人更多的灵活性
 
-> 原文:[https://life hacker . com/banking-bill-gives-student-loan-borders-a little-more-1826303090](https://lifehacker.com/banking-bill-gives-student-loan-borrowers-a-little-more-1826303090)
+> 原文：<https://lifehacker.com/banking-bill-gives-student-loan-borrowers-a-little-more-1826303090>
 
 由唐纳德·川普 总统签署的银行业法案包括一些可能让私人学生贷款借款人安心的规定。
 

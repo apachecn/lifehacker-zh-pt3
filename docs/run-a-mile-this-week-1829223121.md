@@ -1,6 +1,6 @@
 # 本周跑一英里
 
-> 原文:[https://lifehacker.com/run-a-mile-this-week-1829223121](https://lifehacker.com/run-a-mile-this-week-1829223121)
+> 原文：<https://lifehacker.com/run-a-mile-this-week-1829223121>
 
 是时候跑(或走，或用你自己的力量移动)一整英里了。那就休息一下。如果你还有这种感觉，再做一次。没错，本周我们将在 [Lifehacker 健身挑战赛](https://lifehacker.com/this-september-lets-run-or-walk-1828699683) 中进行一英里重复跑。
 

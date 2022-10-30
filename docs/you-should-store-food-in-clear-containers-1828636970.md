@@ -1,6 +1,6 @@
 # 你应该把食物储存在透明的容器里
 
-> 原文:[https://life hacker . com/you-should-store-food-in-clear-containers-1828636970](https://lifehacker.com/you-should-store-food-in-clear-containers-1828636970)
+> 原文：<https://lifehacker.com/you-should-store-food-in-clear-containers-1828636970>
 
 我爱我的老式冰箱到烤箱 Pyrex 菜肴。它们放在桌子上、冰箱里和照片里看起来都很棒，但它们有一个小问题:我很少会吃那些装在彩色可叠放的玻璃长方形里的剩菜。
 

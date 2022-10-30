@@ -1,6 +1,6 @@
 # 华为的三摄像头 P20 Pro 对美国来说太酷了
 
-> 原文:[https://gizmodo . com/huaweis-triple-camera-P20-pro-is-too-cool-for-America-1825647834](https://gizmodo.com/huaweis-triple-camera-p20-pro-is-too-cool-for-america-1825647834)
+> 原文：<https://gizmodo.com/huaweis-triple-camera-p20-pro-is-too-cool-for-america-1825647834>
 
 尽管已经在美国销售手机多年，但 2018 年应该是华为在美国的大型亮相派对。在 CES 上，我坐在那里听了一场关于华为如何扩展到家庭 wifi 的演示，甚至还签约了神奇女侠本人 作为该公司的新品牌大使。
 

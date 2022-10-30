@@ -1,6 +1,6 @@
 # 您需要了解的有关 Trumpcare 下的原有状况的信息
 
-> 原文:[https://life hacker . com/what-you-need-know-on-pre-existing-conditions-und-1795584650](https://lifehacker.com/what-you-need-to-know-about-pre-existing-conditions-und-1795584650)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-pre-existing-conditions-und-1795584650>
 
 本周 证实，国会预算办公室的分析(CBO 得分) [显示，当前版本的特朗普医保对已有疾病的人来说相当糟糕。但是你知道你有没有先存的病症吗？](https://www.cbo.gov/publication/52752) [性侵算不算](http://www.cnn.com/2017/05/04/health/pre-existing-condition-rape-domestic-violence-insurance/) 一次？让我们来看看。
 

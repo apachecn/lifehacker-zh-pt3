@@ -1,6 +1,6 @@
 # 不，你可能不应该购买加密货币保险箱
 
-> 原文:[https://life hacker . com/no-you-possible-should-not-buy-a-cryptocurrency-birch box-1822190992](https://lifehacker.com/no-you-probably-shouldnt-buy-a-cryptocurrency-birchbox-1822190992)
+> 原文：<https://lifehacker.com/no-you-probably-shouldnt-buy-a-cryptocurrency-birchbox-1822190992>
 
 比特币昨天继续其波动性，从去年 12 月的高点下跌超过一半(今天有所反弹)。
 

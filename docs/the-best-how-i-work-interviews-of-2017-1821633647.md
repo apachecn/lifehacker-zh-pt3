@@ -1,6 +1,6 @@
 # 2017 年最佳“我如何工作”访谈
 
-> 原文:[https://life hacker . com/the-best-how-I-work-visitors-of-2017-1821633647](https://lifehacker.com/the-best-how-i-work-interviews-of-2017-1821633647)
+> 原文：<https://lifehacker.com/the-best-how-i-work-interviews-of-2017-1821633647>
 
 在今年的 [我如何工作](https://lifehacker.com/c/how-i-work) 节目中，我们了解了喜剧演员、作家、开发商和鬼屋设计师的工作习惯。以下是今年最好的采访，以及一些他们最伟大的名言。
 

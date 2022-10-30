@@ -1,6 +1,6 @@
 # 为什么你需要一个壁虱剪贴簿
 
-> 原文:[https://life hacker . com/why-you-need-a-tick-scrapbook-1825471018](https://lifehacker.com/why-you-need-a-tick-scrapbook-1825471018)
+> 原文：<https://lifehacker.com/why-you-need-a-tick-scrapbook-1825471018>
 
 部分由于气候变化，蜱在 [比以往](https://www.npr.org/sections/goatsandsoda/2017/04/21/523066394/-curiousgoat-will-climate-change-help-ticks-and-mosquitoes-spread-disease) 更多的地区探索领地(包括你的皮肤)。在我住的宾夕法尼亚地区，它们过去很少见，但最近每年夏天我都不得不从自己或家人身上摘一些。不要对每一个问题都大惊小怪，开始一个剪贴簿。
 

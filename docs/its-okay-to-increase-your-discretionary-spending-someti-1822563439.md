@@ -1,6 +1,6 @@
 # 有时候增加你的自由支配支出是可以的
 
-> 原文:[https://life hacker . com/its-okay-to-increase-your discretionary-spending-someti-1822563439](https://lifehacker.com/its-okay-to-increase-your-discretionary-spending-someti-1822563439)
+> 原文：<https://lifehacker.com/its-okay-to-increase-your-discretionary-spending-someti-1822563439>
 
 如果有一个人人都能认同的个人理财口头禅，那就是*减少你的可自由支配支出*。别喝拿铁了！打包那些午餐！等到电影在网飞上映！
 

@@ -1,6 +1,6 @@
 # 你不能当场治疗痤疮
 
-> 原文:[https://lifehacker.com/you-cant-spot-treat-acne-1829182099](https://lifehacker.com/you-cant-spot-treat-acne-1829182099)
+> 原文：<https://lifehacker.com/you-cant-spot-treat-acne-1829182099>
 
 非处方的现场治疗看起来简直不可思议，声称能在几个小时内消除青春痘。事实证明，事情并不是这样的——如果你满脸都是痘痘，选择性地治疗几个痘痘充其量是一个非常低效的策略。
 

@@ -1,6 +1,6 @@
 # 如何在优步或 Lyft 中使用汽车座椅
 
-> 原文:[https://life hacker . com/how-to-ride with a-car-seat-in-a-Uber-or-lyft-1826237627](https://lifehacker.com/how-to-ride-with-a-car-seat-in-an-uber-or-lyft-1826237627)
+> 原文：<https://lifehacker.com/how-to-ride-with-a-car-seat-in-an-uber-or-lyft-1826237627>
 
 当你在一个没有汽车的新城市拖着一个孩子时，你可能会忍不住给他系上 Lyft 的优步——没有车座——“就这一次。”2018 h idden 摄像调查发现 [司机一直让乘客这么做。](https://www.wxyz.com/news/local-news/investigations/hidden-camera-investigation-shows-uber-lyft-drivers-willing-to-break-law) (“如果你没意见，我也没意见，”一名司机对一名卧底妈妈说。)但是当你获得优步奖时，物理定律不会改变。 [汽车安全座椅拯救生命](https://cars.usnews.com/cars-trucks/best-cars-blog/2016/08/why-kids-need-car-seats) (在大多数地方，这是法律要求的)，无论你是在你家附近巡航还是在一个陌生的城市旅行。
 

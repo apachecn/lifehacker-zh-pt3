@@ -1,6 +1,6 @@
 # 通过使用数据科学选择您的角色来赢得马里奥赛车
 
-> 原文:[https://life hacker . com/win-Mario-kart-with-the-15-best-character-kart-tire-com-1826778879](https://lifehacker.com/win-mario-kart-with-the-15-best-character-kart-tire-com-1826778879)
+> 原文：<https://lifehacker.com/win-mario-kart-with-the-15-best-character-kart-tire-com-1826778879>
 
 一天晚上，在我的教会青年小组，我认为我玩了我一生中最好的马里奥赛车游戏。不知何故，控制器完美地诠释了我的动作，比平时更好——我根本没有撞车或走错路！最后，我意识到我实际上一直在看对手的屏幕，而我从来没有意识到我实际上没有控制它。与此同时，我的角色刚刚随机倾斜到赛道的一侧。
 

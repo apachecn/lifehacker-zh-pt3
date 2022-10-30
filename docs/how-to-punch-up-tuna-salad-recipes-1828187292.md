@@ -1,6 +1,6 @@
 # 金枪鱼沙拉的最佳做法是什么？
 
-> 原文:[https://the take out . com/how-to-punch-up-tuna-salad-recipes-1828187292](https://thetakeout.com/how-to-punch-up-tuna-salad-recipes-1828187292)
+> 原文：<https://thetakeout.com/how-to-punch-up-tuna-salad-recipes-1828187292>
 
 金枪鱼沙拉有其批评者，但我们不在这些人之列。饼干上的，金枪鱼三明治里的，皮塔饼里的，从碗里拿出来的——我们在船上。不过，我们注意到，似乎每个人对这种经典沙拉都有自己的看法。我们想知道是否有办法让我们的金枪鱼沙拉更上一层楼。因此，我们询问了我们的员工和一些厨师，以获得一些新的金枪鱼沙拉的灵感。
 

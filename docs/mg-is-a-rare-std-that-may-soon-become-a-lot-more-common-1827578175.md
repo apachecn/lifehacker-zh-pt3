@@ -1,6 +1,6 @@
 # MG 是一种罕见的性病，可能很快会变得更加常见
 
-> 原文:[https://life hacker . com/mg-is-a-rare-STD-that-may-would-be-a-a-more-a-loose-a-loose-a-loose-a-loose-a-loose-that-a-may-be-a-loose-a-loose-a-loose-a-loose-a-lobe-a-loop-more-common-1827578175](https://lifehacker.com/mg-is-a-rare-std-that-may-soon-become-a-lot-more-common-1827578175)
+> 原文：<https://lifehacker.com/mg-is-a-rare-std-that-may-soon-become-a-lot-more-common-1827578175>
 
 好像担心的性传播疾病还不够多似的，*生殖支原体*现在正受到政府官员更严密的审查。一个英国性健康组织 [发布了新的指导方针](https://www.bashh.org/news/news/bashh-launches-new-nice-accredited-guidelines-to-help-prevent-mycoplasma-genitalium-becoming-the-next-superbug-but-funding-cuts-may-hinder-implementation/) 来阻止它成为下一个超级细菌，我们至少可以意识到它的存在。
 

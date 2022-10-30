@@ -1,6 +1,6 @@
 # 这些是让你无法获得面试机会的求职信错误
 
-> 原文:[https://life hacker . com/these-is-the-cover-letter-misses-the-keep-you-from-1820646903](https://lifehacker.com/these-are-the-cover-letter-mistakes-that-keep-you-from-1820646903)
+> 原文：<https://lifehacker.com/these-are-the-cover-letter-mistakes-that-keep-you-from-1820646903>
 
 我们都有在网上申请工作的经历——你把简历和求职信提交到某个在线招聘门户网站的黑暗深渊，除了自动生成的“感谢申请！”电子邮件，你再也听不到雇主的任何声音。
 

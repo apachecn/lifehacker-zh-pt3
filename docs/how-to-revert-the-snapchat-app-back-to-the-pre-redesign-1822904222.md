@@ -1,6 +1,6 @@
 # 如何将 Snapchat 应用恢复到重新设计前的版本
 
-> 原文:[https://life hacker . com/how-to-revert-the-snapchat-app-back-to-the-pre-design-1822904222](https://lifehacker.com/how-to-revert-the-snapchat-app-back-to-the-pre-redesign-1822904222)
+> 原文：<https://lifehacker.com/how-to-revert-the-snapchat-app-back-to-the-pre-redesign-1822904222>
 
 Snapchat 最近发布了一个重新设计的版本，它并没有受到最忠实用户的欢迎。对于大多数应用程序来说，如果你选择升级，你就会一直使用新版本，直到开发者推出新的东西。
 

@@ -1,6 +1,6 @@
 # 给第一次参加格斗比赛的女性(和其他人)的九个建议
 
-> 原文:[https://kotaku . com/nine-tips-for-women-and-anywhere-attending-of-their-f-1797897871](https://kotaku.com/nine-tips-for-women-and-anyone-else-attending-their-f-1797897871)
+> 原文：<https://kotaku.com/nine-tips-for-women-and-anyone-else-attending-their-f-1797897871>
 
 你是一个想参加格斗游戏赛事，却不知道从何下手的女性吗？也许你担心自己知道的不够多或者不够好。(很可能不是真的。)或者可能你只是想提前知道这些事件是什么样的。你应该先尝试哪些？你应该带什么？当人们注意到有一个女孩在那里时，他们会变得很奇怪吗？
 

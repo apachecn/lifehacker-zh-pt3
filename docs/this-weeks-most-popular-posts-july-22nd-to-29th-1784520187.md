@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 22 日至 29 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-22-to-29-1784520187](https://lifehacker.com/this-weeks-most-popular-posts-july-22nd-to-29th-1784520187)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-22nd-to-29th-1784520187>
 
 本周，我们讨论了动漫展上发生的事情以及为什么它很棒，将神奇宝贝 Go 与我们的日常活动相匹配，了解了替代投资，比较了真空烹饪器，等等。随着七月即将结束，我们来回顾一下本周最受欢迎的帖子。
 

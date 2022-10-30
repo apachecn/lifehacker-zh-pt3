@@ -1,6 +1,6 @@
 # 告诉我们你最好的拉斯维加斯黑客
 
-> 原文:[https://life hacker . com/tell-us-your-best-las-Vegas-hacks-1819970937](https://lifehacker.com/tell-us-your-best-las-vegas-hacks-1819970937)
+> 原文：<https://lifehacker.com/tell-us-your-best-las-vegas-hacks-1819970937>
 
 本周在 [Hack Your City](https://lifehacker.com/tag/hack-your-city) 节目中，我们想知道你在拉斯维加斯旅游或居住的建议。这个系列给游客的小费总是比给本地人的多，拉斯维加斯就是一个缩影。但我们也着迷于数百万全职居住在这个城市内外的人们，我们大多数人去这里是为了出租，他们不仅仅把这里当成成人游乐场。虽然这个城市在许多方面仍然受到上个月音乐会上悲惨枪击事件的影响(你可以在这里找到向受害者及其家人捐款的方法)，但许多居民也渴望恢复正常生活，我们有兴趣突出这个城市所能提供的最好的东西。
 

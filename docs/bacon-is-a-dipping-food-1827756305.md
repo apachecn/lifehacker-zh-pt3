@@ -1,6 +1,6 @@
 # 咸肉是蘸食
 
-> 原文:[https://lifehacker.com/bacon-is-a-dipping-food-1827756305](https://lifehacker.com/bacon-is-a-dipping-food-1827756305)
+> 原文：<https://lifehacker.com/bacon-is-a-dipping-food-1827756305>
 
 我以为我们都同意培根的所有用途了。我认为 Reddit 和 Epicurious 和史诗般的用餐时间教会了我们培根可以搭配任何东西。但是从我在餐馆用黄油蘸培根时的表情来看，我们没有。我们显然没有一致同意培根，像薯条或小胡萝卜，是蘸食。
 

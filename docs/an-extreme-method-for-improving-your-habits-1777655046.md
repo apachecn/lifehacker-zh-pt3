@@ -1,6 +1,6 @@
 # 改善习惯的极端方法
 
-> 原文:[https://life hacker . com/an-extreme-method-for-improving-your-habits-1777655046](https://lifehacker.com/an-extreme-method-for-improving-your-habits-1777655046)
+> 原文：<https://lifehacker.com/an-extreme-method-for-improving-your-habits-1777655046>
 
 我在很多事情上都很糟糕:试图在一天内完成太多事情。定期锻炼。保持我的衣柜干净。我试图变得更好，但无论你多么想改变，都很难。尤其是你不擅长的事情。
 

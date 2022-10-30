@@ -1,6 +1,6 @@
 # 事实证明，益生菌可能会伤害你
 
-> 原文:[https://life hacker . com/probiotics-can-potentially-beat-you-it-turn-out-1828803797](https://lifehacker.com/probiotics-can-potentially-hurt-you-it-turns-out-1828803797)
+> 原文：<https://lifehacker.com/probiotics-can-potentially-hurt-you-it-turns-out-1828803797>
 
 药店里充斥着不一定能治愈我们的东西——维生素 C、顺势疗法滴剂、益生菌——但我们耸耸肩，还是买了它们，因为，嘿，它们 [伤害不了](https://lifehacker.com/the-placebo-effect-is-no-reason-to-buy-junk-1774878033) 。但是现在我们有一些具体的证据表明，如果益生菌不完全适合你试图治疗的健康状况，益生菌*可能会造成伤害。* 
 

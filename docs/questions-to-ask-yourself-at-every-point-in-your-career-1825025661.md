@@ -1,6 +1,6 @@
 # 在职业生涯的每一个阶段都要问自己的问题
 
-> 原文:[https://life hacker . com/questions-to-questions-questions-to-question-question-question-to-question-to-question-your-point in your-career-1825025661](https://lifehacker.com/questions-to-ask-yourself-at-every-point-in-your-career-1825025661)
+> 原文：<https://lifehacker.com/questions-to-ask-yourself-at-every-point-in-your-career-1825025661>
 
 当你开始你的日常工作时，当你完成你现在需要完成的任务时，很容易把关于你职业生涯的重要问题——你真正想做什么，你如何到达那里——放在次要位置。谁愿意在我们休息的几个小时里考虑工作呢？
 

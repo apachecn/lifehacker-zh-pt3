@@ -1,6 +1,6 @@
 # 如何让你十几岁的儿子尴尬
 
-> 原文:[https://life hacker . com/how-to-rightly-fashion-your-tening-boy-1800019113](https://lifehacker.com/how-to-properly-embarrass-your-teenage-boy-1800019113)
+> 原文：<https://lifehacker.com/how-to-properly-embarrass-your-teenage-boy-1800019113>
 
 哦，那个男孩。你给了他生命，现在每当你开车送他和他的伙伴们去棒球训练场时，他就会痛苦地扭动身体。怎么回事？
 

@@ -1,6 +1,6 @@
 # 以下是“压缩比”的实际含义及其重要性
 
-> 原文:[https://jalopnik . com/heres-what-compression-ratio-actually-means-and-why-it-1819723873](https://jalopnik.com/heres-what-compression-ratio-actually-means-and-why-it-1819723873)
+> 原文：<https://jalopnik.com/heres-what-compression-ratio-actually-means-and-why-it-1819723873>
 
 你以前听说过压缩比这个术语，但是你有没有想过它到底是什么意思？好了，是时候解释压缩比到底是什么了，以及为什么每个汽车制造商现在都痴迷于它，就像它是圣杯一样。
 

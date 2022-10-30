@@ -1,6 +1,6 @@
 # 你是心疼还是难受？
 
-> 原文:[https://life hacker . com/do-you-feel-bad-or-do-you-feel-bad-1821021988](https://lifehacker.com/do-you-feel-bad-or-do-you-feel-badly-1821021988)
+> 原文：<https://lifehacker.com/do-you-feel-bad-or-do-you-feel-badly-1821021988>
 
 如果你的朋友经历了一段困难时期，你会为他感到难过吗？还是为 T2 感到难过呢？
 

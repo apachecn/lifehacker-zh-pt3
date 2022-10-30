@@ -1,6 +1,6 @@
 # 廉价机票并不像你想的那么划算
 
-> 原文:[https://life hacker . com/cheap-airline-tickets-not-as-good-a-deal-you-thin-1791844839](https://lifehacker.com/cheap-airline-tickets-aren-t-as-good-a-deal-as-you-thin-1791844839)
+> 原文：<https://lifehacker.com/cheap-airline-tickets-aren-t-as-good-a-deal-as-you-thin-1791844839>
 
 比方说，你最喜欢的餐馆开始提供减价餐，但如果你想要餐巾纸、叉子或座位，你必须额外付费。我们大多数人可能会犹豫给他们我们的业务，但这种犹豫并没有转化为机票。我们一直在为蹩脚的、基本的 航班买单。这不是一件好事。
 

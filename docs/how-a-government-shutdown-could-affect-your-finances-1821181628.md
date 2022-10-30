@@ -1,6 +1,6 @@
 # 政府关门会如何影响你的财务状况
 
-> 原文:[https://life hacker . com/how-a-government-shut-could-affect-your-finance-1821181628](https://lifehacker.com/how-a-government-shutdown-could-affect-your-finances-1821181628)
+> 原文：<https://lifehacker.com/how-a-government-shutdown-could-affect-your-finances-1821181628>
 
 如果国会不能在接下来的两周内团结一致， 数百万美国人可能会直接从他们的钱包里感受到政府关闭的影响。
 

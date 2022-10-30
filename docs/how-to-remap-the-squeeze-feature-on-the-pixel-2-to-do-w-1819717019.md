@@ -1,6 +1,6 @@
 # 如何在 Pixel 2 上重新映射挤压功能来随心所欲
 
-> 原文:[https://life hacker . com/how-to-remap-the-squeeze-feature-on-the-pixel-2-to-do-w-1819717019](https://lifehacker.com/how-to-remap-the-squeeze-feature-on-the-pixel-2-to-do-w-1819717019)
+> 原文：<https://lifehacker.com/how-to-remap-the-squeeze-feature-on-the-pixel-2-to-do-w-1819717019>
 
 [Pixel 2](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085) 最有趣的功能之一是 [Active Edge](https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006) ，只需挤压智能手机就可以启动 [谷歌助手](https://lifehacker.com/how-to-change-google-assistant-to-a-male-voice-1819293856) 。不幸的是，谷歌做出了令人恼火的决定，将这一功能锁定在其人工智能助手上，但一位开发者已经找到了绕过该公司限制的方法。
 

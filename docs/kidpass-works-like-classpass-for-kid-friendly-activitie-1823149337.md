@@ -1,6 +1,6 @@
 # KidPass 就像 ClassPass 一样适合孩子参加的活动
 
-> 原文:[https://life hacker . com/kid pass-works-like-class pass-for-kid-friendly-activitie-1823149337](https://lifehacker.com/kidpass-works-like-classpass-for-kid-friendly-activitie-1823149337)
+> 原文：<https://lifehacker.com/kidpass-works-like-classpass-for-kid-friendly-activitie-1823149337>
 
 寻找孩子真正想做的适合孩子的活动有时会有点挑战性。更具挑战性的是找到你的孩子想做的符合你家庭日程的活动。
 

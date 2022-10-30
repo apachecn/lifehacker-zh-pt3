@@ -1,6 +1,6 @@
 # 使用您的真空系统重新加热母乳和配方奶粉
 
-> 原文:[https://life hacker . com/reheat-breast-milk-and-formula-using-your-sous-vide-set-1822361120](https://lifehacker.com/reheat-breast-milk-and-formula-using-your-sous-vide-set-1822361120)
+> 原文：<https://lifehacker.com/reheat-breast-milk-and-formula-using-your-sous-vide-set-1822361120>
 
 我没有孩子，但我有一个真空循环器()我的生命之光，我想其他拥有真空循环器的人有一天可能会生育。(也可能他们已经有了！)对于这些有孩子、精通真空烹饪的家庭厨师来说，我有一个好消息:你可以使用你的真空烹饪装置将母乳和婴儿配方奶加热到完美的 98.6 度，而不用担心过热。
 

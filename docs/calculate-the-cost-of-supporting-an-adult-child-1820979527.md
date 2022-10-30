@@ -1,6 +1,6 @@
 # 计算抚养一个成年孩子的费用
 
-> 原文:[https://life hacker . com/calculate-the-cost-of-support-a-大人-小孩-1820979527](https://lifehacker.com/calculate-the-cost-of-supporting-an-adult-child-1820979527)
+> 原文：<https://lifehacker.com/calculate-the-cost-of-supporting-an-adult-child-1820979527>
 
 由于后衰退时期的经济和滞后的就业市场，千禧一代继承了“回旋镖一代”的名声。我们都和父母一起搬回家，努力使收支平衡，因为我们太忙于买鳄梨吐司，对吗？这是一个宽泛而不公平的概括。尽管如此，回旋镖还是会发生 ，如果你是一个成年孩子的父母(或者有一天会是)，你可能会想知道这要花你多少钱。
 

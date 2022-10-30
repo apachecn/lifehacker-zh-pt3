@@ -1,6 +1,6 @@
 # 关于在大麻影响下开车应该知道什么
 
-> 原文:[https://life hacker . com/what-to-know-on-driving-affect-of-marij-1798644372](https://lifehacker.com/what-to-know-about-driving-under-the-influence-of-marij-1798644372)
+> 原文：<https://lifehacker.com/what-to-know-about-driving-under-the-influence-of-marij-1798644372>
 
 想象一下，有一段时间，人们不接受酒后驾驶会让你更容易发生事故，当时人们对酒后驾驶的构成没有达成共识，甚至不知道如何衡量你的损伤，也不知道反酒后驾驶法律是否有必要或应该如何运作。所有这一切都发生在酒精 上，现在又发生在大麻上。
 

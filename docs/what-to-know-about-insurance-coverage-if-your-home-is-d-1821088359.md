@@ -1,6 +1,6 @@
 # 如果你的家被野火摧毁，该如何了解保险范围
 
-> 原文:[https://life hacker . com/what-to-know-about-insurance-coverage-if-your-home-is-d-1821088359](https://lifehacker.com/what-to-know-about-insurance-coverage-if-your-home-is-d-1821088359)
+> 原文：<https://lifehacker.com/what-to-know-about-insurance-coverage-if-your-home-is-d-1821088359>
 
 由于该地区的一系列野火，南加州数十万人可能面临财产损失。如果你是其中之一，这里有一些开始重建的初步步骤。
 

@@ -1,6 +1,6 @@
 # 为什么你应该使用 Facebook Messenger 而不是 SMS
 
-> 原文:[https://life hacker . com/why-you-should-use-Facebook-messenger-inst-of-SMS-1796907913](https://lifehacker.com/why-you-should-use-facebook-messenger-instead-of-sms-1796907913)
+> 原文：<https://lifehacker.com/why-you-should-use-facebook-messenger-instead-of-sms-1796907913>
 
 群发短信很有趣，尤其是当你开始分享链接、gif 和其他有趣的媒体时。但是有不同操作系统的人入党总是有问题。
 

@@ -1,6 +1,6 @@
 # 治疗偏头痛的新药有一些缺点
 
-> 原文:[https://life hacker . com/the-new-drug-for-migrants-has-some-deficies-1826201295](https://lifehacker.com/the-new-drug-for-migraines-has-some-drawbacks-1826201295)
+> 原文：<https://lifehacker.com/the-new-drug-for-migraines-has-some-drawbacks-1826201295>
 
 美国食品和药物管理局刚刚批准了一种新的首个用于预防偏头痛的药物 。它装在一个自动注射装置里(你每月刺自己一次)，标价是 575 美元一个。在一篇关于美国药品价格的悲伤评论中，这是一个比投资者预期的 便宜的 [价格。与此同时，治疗偏头痛的人说，这并不比他们已经服用的其他药物贵多少。](https://www.statnews.com/2018/05/17/amgen-migraine-drug-cost-wall-st/)
 

@@ -1,6 +1,6 @@
 # MoviePass 的订阅费现在是 7.95 美元，并附带免费的 Fandor 订阅
 
-> 原文:[https://life hacker . com/movie pass-subscriptions-is-now-7-95-and-come-with-fan-1822898410](https://lifehacker.com/moviepass-subscriptions-are-now-7-95-and-come-with-fan-1822898410)
+> 原文：<https://lifehacker.com/moviepass-subscriptions-are-now-7-95-and-come-with-fan-1822898410>
 
 MoviePass 正试图以更低的新价格吸引更多的客户，免费访问流媒体服务 Fandor。如果你一直对参军持观望态度，现在是时候了。
 

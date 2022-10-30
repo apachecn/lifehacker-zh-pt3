@@ -1,6 +1,6 @@
 # 告诉我们你所有的技术问题
 
-> 原文:[https://life hacker . com/tell-us-all-your-tech-problems-1823772324](https://lifehacker.com/tell-us-all-your-tech-problems-1823772324)
+> 原文：<https://lifehacker.com/tell-us-all-your-tech-problems-1823772324>
 
 你好。十年前，我为 *Maximum PC、*工作，是时候全盘托出了。我是医生——我想再次成为你的医生。
 

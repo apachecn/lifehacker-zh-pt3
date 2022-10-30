@@ -1,6 +1,6 @@
 # 没有 Roku 如何观看 Roku 频道的免费内容
 
-> 原文:[https://life hacker . com/how-to-watch-the-Roku-channels-free-content-without-own-1828252849](https://lifehacker.com/how-to-watch-the-roku-channels-free-content-without-own-1828252849)
+> 原文：<https://lifehacker.com/how-to-watch-the-roku-channels-free-content-without-own-1828252849>
 
 惊喜！你不再需要 Roku 设备或电视来观看大量免费的广告支持的电影和节目。本周，Roku 将 Roku 频道的“”带到了网络上，你可以从你最喜欢的浏览器(或选择三星电视)上免费观看。
 

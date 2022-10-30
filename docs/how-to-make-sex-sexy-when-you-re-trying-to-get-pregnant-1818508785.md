@@ -1,6 +1,6 @@
 # 当你试图怀孕时，如何让性爱变得性感
 
-> 原文:[https://life hacker . com/how-to-make-sexual-sexy-when-you-re-try-to-treaty-1818508785](https://lifehacker.com/how-to-make-sex-sexy-when-you-re-trying-to-get-pregnant-1818508785)
+> 原文：<https://lifehacker.com/how-to-make-sex-sexy-when-you-re-trying-to-get-pregnant-1818508785>
 
 "哦，今晚我的精子和你的卵子相遇怎么样？"从来没有人问过。
 

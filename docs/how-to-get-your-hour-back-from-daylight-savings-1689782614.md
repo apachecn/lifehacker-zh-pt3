@@ -1,6 +1,6 @@
 # 如何将您的时间从夏令时调回来
 
-> 原文:[https://life hacker . com/how-to-get-your-hour-from daylight-savings-1689782614](https://lifehacker.com/how-to-get-your-hour-back-from-daylight-savings-1689782614)
+> 原文：<https://lifehacker.com/how-to-get-your-hour-back-from-daylight-savings-1689782614>
 
 由于夏令时，我们都迟到了，春天的到来也会扰乱你的睡眠。今年，现在就做好准备，弥补失去的时间。
 

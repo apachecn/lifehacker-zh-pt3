@@ -1,6 +1,6 @@
 # 筷子是被低估的厨房工具[更新]
 
-> 原文:[https://life hacker . com/筷子-被低估的厨房工具-1803141789](https://lifehacker.com/chopsticks-are-an-underrated-kitchen-tool-1803141789)
+> 原文：<https://lifehacker.com/chopsticks-are-an-underrated-kitchen-tool-1803141789>
 
 除非你是某种超级有条理的近藤类型，否则你的厨房很可能有一个“垃圾抽屉”，在番茄酱和鸭酱包中，有几双筷子。朋友们，是时候把它们捞出来了，因为筷子是一种非常有用的厨房工具，几乎可以用在做饭的每个阶段。
 

@@ -1,6 +1,6 @@
 # 如何在空难中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-plane-crash-1820981125](https://lifehacker.com/how-to-survive-a-plane-crash-1820981125)
+> 原文：<https://lifehacker.com/how-to-survive-a-plane-crash-1820981125>
 
 飞机旅行非常安全——你死于商业航班 [的几率约为 1100 万分之一](https://lifehacker.com/six-airplane-facts-to-cure-your-fear-of-flying-1788654431)——但事故仍会发生，旅行者有时会到达另一种最终目的地。然而，许多过去的死亡事故本来是可以避免的。这是你应该注意的安全信息，以防你摔倒。
 

@@ -1,6 +1,6 @@
 # 为什么风暴潮如此重要
 
-> 原文:[https://life hacker . com/why-storm-surges-that-a-that-deal-1829033220](https://lifehacker.com/why-storm-surges-are-such-a-big-deal-1829033220)
+> 原文：<https://lifehacker.com/why-storm-surges-are-such-a-big-deal-1829033220>
 
 飓风的类别只能告诉你它的风速，但它的大部分破坏来自洪水。随着飓风佛罗伦萨的到来，一些地区可能会有多达 30 英寸的降雨量和 10 英尺的风暴潮。
 

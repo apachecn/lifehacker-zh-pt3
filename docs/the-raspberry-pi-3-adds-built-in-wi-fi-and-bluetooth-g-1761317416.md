@@ -1,6 +1,6 @@
 # 树莓 Pi 3 增加了内置 Wi-Fi 和蓝牙，速度提高了 50%
 
-> 原文:[https://life hacker . com/the-raspberry-pi-3-adds-内置 wi-fi-and-bluetooth-g-1761317416](https://lifehacker.com/the-raspberry-pi-3-adds-built-in-wi-fi-and-bluetooth-g-1761317416)
+> 原文：<https://lifehacker.com/the-raspberry-pi-3-adds-built-in-wi-fi-and-bluetooth-g-1761317416>
 
 众所周知，我们是树莓派 的忠实粉丝，今天又有一款新品上市。Raspberry Pi 3 采用了新的更快的处理器，但更重要的是，它最终在板上配备了 Wi-Fi 和蓝牙。它仍然只是 35 美元。
 

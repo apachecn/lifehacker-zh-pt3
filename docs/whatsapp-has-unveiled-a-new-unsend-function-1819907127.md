@@ -1,6 +1,6 @@
 # 如何在 WhatsApp 上取消发送信息
 
-> 原文:[https://life hacker . com/whatsapp-has-published-a-new-un send-function-1819907127](https://lifehacker.com/whatsapp-has-unveiled-a-new-unsend-function-1819907127)
+> 原文：<https://lifehacker.com/whatsapp-has-unveiled-a-new-unsend-function-1819907127>
 
 手指移动速度超过大脑的 WhatsApp 用户会很高兴知道该公司推出了一项新功能，让你收回最后一条消息，并将其从对话中删除。目前该功能正在向某些用户推出， [根据下一个 Web](https://thenextweb.com/apps/2017/10/27/whatsapp-now-unsend-feature-lets-delete-drunk-texts/) 。
 

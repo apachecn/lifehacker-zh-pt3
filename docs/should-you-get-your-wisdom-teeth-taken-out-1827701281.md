@@ -1,6 +1,6 @@
 # 你应该拔掉你的智齿吗？
 
-> 原文:[https://life hacker . com/should-you-get-your-wisdom-too-1827701281](https://lifehacker.com/should-you-get-your-wisdom-teeth-taken-out-1827701281)
+> 原文：<https://lifehacker.com/should-you-get-your-wisdom-teeth-taken-out-1827701281>
 
 作为一个有着垃圾保险和一套我认为相当不错的剪刀的吝啬的年轻人，我曾经让看牙医的时间间隔过了十年。我刷牙。我用牙线。我觉得一切都或多或少很酷。
 

@@ -1,6 +1,6 @@
 # 如何让喋喋不休的同事安静下来
 
-> 原文:[https://life hacker . com/how-to-silence-your-jabbery-worker-1796461011](https://lifehacker.com/how-to-silence-your-jabbering-coworker-1796461011)
+> 原文：<https://lifehacker.com/how-to-silence-your-jabbering-coworker-1796461011>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

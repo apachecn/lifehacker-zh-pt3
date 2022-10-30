@@ -1,6 +1,6 @@
 # 介绍亲爱的简，Jezebel 的一般建议专栏
 
-> 原文:[https://Jezebel . com/introducing-dear-Jane-Jezebel-general-advice-column-1796315611](https://jezebel.com/introducing-dear-jane-jezebels-general-advice-column-1796315611)
+> 原文：<https://jezebel.com/introducing-dear-jane-jezebels-general-advice-column-1796315611>
 
 那么，你有什么问题？你没有吗？好吧，你爱人有什么问题？哦，糟糕，他们刚刚甩了你。真扫兴。呃，你妈妈呢？你妈妈有什么问题？她死了！？我很抱歉。你的老板有问题吗？你失业了。嗯。
 

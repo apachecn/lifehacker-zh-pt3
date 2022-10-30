@@ -1,6 +1,6 @@
 # 在星巴克省钱的终极指南
 
-> 原文:[https://life hacker . com/the-ultimate-guide-to-pay-less-at-Starbucks-1819769615](https://lifehacker.com/the-ultimate-guide-to-paying-less-at-starbucks-1819769615)
+> 原文：<https://lifehacker.com/the-ultimate-guide-to-paying-less-at-starbucks-1819769615>
 
 在星巴克省钱的最好方法是在家煮咖啡。第二个最好的方法是在更便宜的地方买。但是第三个最好的方法是黑掉你的星巴克订单，以更低的价格购买相同(或相似)的饮料。一些黑客是无辜的；其他人不太喜欢。以下是历年来星巴克最佳员工的汇编。
 

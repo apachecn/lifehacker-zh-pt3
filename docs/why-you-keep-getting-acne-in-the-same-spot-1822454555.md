@@ -1,6 +1,6 @@
 # 为什么你总是在同一个地方长痘痘
 
-> 原文:[https://life hacker . com/why-you-keep-get-in-the-spot-1822454555](https://lifehacker.com/why-you-keep-getting-acne-in-the-same-spot-1822454555)
+> 原文：<https://lifehacker.com/why-you-keep-getting-acne-in-the-same-spot-1822454555>
 
 青春痘不公平。我们没有要求它们，我们当然不应该让它们进入成年，当你终于让一个巨大的粉刺消失，但几天后它又回来了，这是特别侮辱人的。
 

@@ -1,6 +1,6 @@
 # 我们最感谢的 10 款免费应用
 
-> 原文:[https://life hacker . com/the-10-free-apps-we-re-most-than-for-1820686427](https://lifehacker.com/the-10-free-apps-we-re-most-thankful-for-1820686427)
+> 原文：<https://lifehacker.com/the-10-free-apps-we-re-most-thankful-for-1820686427>
 
 Lifehacker 的工作人员定期筛选大量的应用程序，但有几个程序多年来一直留在我们身边。有些应用程序很好用，而另一些已经成为我们日常生活中必不可少的。为了庆祝那些给我们带来最大快乐的应用，我们编制了一份清单，列出了我们最感谢的十个免费应用。从应对愤怒的龙到计算我们的正念时间，每个应用程序在我们心中(和我们的主屏幕上)都有一个特殊的位置。
 

@@ -1,6 +1,6 @@
 # 如何在一天内读完一整本书
 
-> 原文:[https://life hacker . com/how-to-read-a-all-a-whole-book-one-day-1749070044](https://lifehacker.com/how-to-read-an-entire-book-in-a-single-day-1749070044)
+> 原文：<https://lifehacker.com/how-to-read-an-entire-book-in-a-single-day-1749070044>
 
 你已经推迟读那本书几个星期了，你应该在明天之前读完它。无论你是为了上学而临时抱佛脚，还是为了避免在读书会上看起来像个懒汉，都不要失去希望。你可以读完那本书，而不会忘记一切，一无所获。
 

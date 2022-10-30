@@ -1,6 +1,6 @@
 # 如何在 Windows 10 上最大限度地延长电池寿命
 
-> 原文:[https://gizmodo . com/how-to-maximized-battery-life-on-windows-10-1727913196](https://gizmodo.com/how-to-maximize-battery-life-on-windows-10-1727913196)
+> 原文：<https://gizmodo.com/how-to-maximize-battery-life-on-windows-10-1727913196>
 
 无论你是在笔记本电脑上升级到了 [Windows 10](http://reviews.gizmodo.com/windows-10-the-gizmodo-review-1720872266) ，还是购买了一台全新的机器，你都希望在旅途中尽可能地节省电池电量。微软闪亮的新操作系统包括一个新的原生电池节省功能，还有一些其他技巧可以确保你的笔记本电脑持续到你找到电源插座。
 

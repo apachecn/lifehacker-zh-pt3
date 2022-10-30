@@ -1,6 +1,6 @@
 # 告诉我们你的布宜诺斯艾利斯小贴士
 
-> 原文:[https://life hacker . com/tell-us-your-Buenos-Aires-tips-1827049793](https://lifehacker.com/tell-us-your-buenos-aires-tips-1827049793)
+> 原文：<https://lifehacker.com/tell-us-your-buenos-aires-tips-1827049793>
 
 [布宜诺斯艾利斯有什么新鲜事？](https://www.youtube.com/watch?v=nQ_ic3KmmLY) 我对这座城市的一切了解都来自电影版的*艾薇塔*。所以在本周的《黑客你的城市》中，想象一个来自纽约的书呆子跳下火车，唱得像 90 年代的麦当娜，然后修理他。我需要你的建议来游览和居住在阿根廷的中心。
 

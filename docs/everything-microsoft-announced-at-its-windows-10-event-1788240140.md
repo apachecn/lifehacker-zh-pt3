@@ -1,6 +1,6 @@
 # 微软今天在 Windows 10 发布会上宣布的一切真正重要的事情
 
-> 原文:[https://life hacker . com/everything-Microsoft-announced-at-its-windows-10-event-1788240140](https://lifehacker.com/everything-microsoft-announced-at-its-windows-10-event-1788240140)
+> 原文：<https://lifehacker.com/everything-microsoft-announced-at-its-windows-10-event-1788240140>
 
 今天，微软宣布了新的 Surface Studio 一体机，升级的 Surface Book，以及今年春天即将到来的另一个 Windows 10 更新。这里是你需要知道的所有重要细节。
 

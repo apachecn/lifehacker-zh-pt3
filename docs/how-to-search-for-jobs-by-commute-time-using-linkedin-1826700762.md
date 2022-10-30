@@ -1,6 +1,6 @@
 # 使用 LinkedIn 按通勤时间搜索工作
 
-> 原文:[https://life hacker . com/how-to-search-for-working-time-using-LinkedIn-1826700762](https://lifehacker.com/how-to-search-for-jobs-by-commute-time-using-linkedin-1826700762)
+> 原文：<https://lifehacker.com/how-to-search-for-jobs-by-commute-time-using-linkedin-1826700762>
 
 当你在找新工作时，你通常可以通过城市和薪水等因素来缩小搜索范围，但你的标准求职忽略了一个非常重要的标准:通勤时间。虽然肯定有一些梦寐以求的工作值得你去选择和努力(或者花一个小时来回通勤)，但也有很多工作，一旦你意识到这种驱动有多残酷，你可能会立刻后悔接受。
 

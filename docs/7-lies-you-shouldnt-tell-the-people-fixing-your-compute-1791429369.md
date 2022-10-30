@@ -1,6 +1,6 @@
 # 你不应该告诉给你修电脑的人的 7 个谎言
 
-> 原文:[https://gizmodo . com/7-lies-you-should-to-tell-the-people-fixing-you-compute-1791429369](https://gizmodo.com/7-lies-you-shouldnt-tell-the-people-fixing-your-compute-1791429369)
+> 原文：<https://gizmodo.com/7-lies-you-shouldnt-tell-the-people-fixing-your-compute-1791429369>
 
 早在我在互联网上写博客之前，当我还是一个拥有 LJ 和梦想的十几岁的大学生时，我做的是技术支持。我看到了一些东西。我不是唯一一个。从事技术工作的人听过你能想到的每一个借口，见过你能想到的每一种恐惧。
 

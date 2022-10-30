@@ -1,6 +1,6 @@
 # 告诉我们你所有需要解决的夏季问题
 
-> 原文:[https://life hacker . com/tell-us-all-your-summer-problems-that-need-solution-1827207739](https://lifehacker.com/tell-us-all-your-summer-problems-that-need-solving-1827207739)
+> 原文：<https://lifehacker.com/tell-us-all-your-summer-problems-that-need-solving-1827207739>
 
 上周至日，热浪将于下周袭击美国大部分地区，夏天正式来临。随之而来的是一大堆令人发痒、出汗、甚至可能发臭的问题。
 

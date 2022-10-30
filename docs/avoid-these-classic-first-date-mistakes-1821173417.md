@@ -1,6 +1,6 @@
 # 避免这些经典的初次约会错误
 
-> 原文:[https://life hacker . com/avoid-these-classic-first-date-missons-1821173417](https://lifehacker.com/avoid-these-classic-first-date-mistakes-1821173417)
+> 原文：<https://lifehacker.com/avoid-these-classic-first-date-mistakes-1821173417>
 
 *跟随三年左右的* [*意外独身*](https://jezebel.com/when-can-i-say-ill-be-alone-forever-1790274012#_ga=2.146649776.523431542.1513605659-1153831064.1487619421) *，我许下* [*一个誓言*](https://2datesaweek.tumblr.com/post/161566388285/the-resolution) *每周去约会两次，每周。我不是心理学家，但在这一点上，我是第一次约会的专家。(不是吹牛)但我通常会再次被邀请。你可以在我的博客* [*上了解更多关于我的约会决心，一周两次约会*](https://2datesaweek.tumblr.com/post/161566388285/the-resolution) *。*
 

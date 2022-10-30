@@ -1,6 +1,6 @@
 # 让你的孩子计划家庭活动
 
-> 原文:[https://life hacker . com/let-your-kids-plan-family-activities-1823465852](https://lifehacker.com/let-your-kids-plan-family-activities-1823465852)
+> 原文：<https://lifehacker.com/let-your-kids-plan-family-activities-1823465852>
 
 当你的孩子不在学校时，事情会变得有些杂乱无章。为了防止屏幕时间给你带来的春夏假期，我认识的许多父母都在他们的日历上安排课程、夏令营和 [家庭外出日](https://offspring.lifehacker.com/its-time-to-admit-that-the-family-day-out-is-really-n-1798407048) 。但是假设你，妈妈或爸爸，独自负责计划活动并不能真正帮助任何人。这给你带来了压力，也把你的孩子推到了众所周知的后座。他们耸耸肩，认为别人应该对他们生活中的快乐和失望负责。
 

@@ -1,6 +1,6 @@
 # 停止误用自动更正
 
-> 原文:[https://lifehacker.com/stop-misusing-autocorrect-1828972260](https://lifehacker.com/stop-misusing-autocorrect-1828972260)
+> 原文：<https://lifehacker.com/stop-misusing-autocorrect-1828972260>
 
 发明手机自动更正功能的人说，使用手机自动更正功能有正确的方法和错误的方法。肯·柯辛达(Ken Kocienda)，前苹果 iPhone 软件首席工程师，新书《创意精选:乔布斯 黄金时代的苹果设计过程内幕》的作者，带领团队为 iOS 首次发布创造了第一个软件键盘。他说自动更正可能会变得过于激进。
 

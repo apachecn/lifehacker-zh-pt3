@@ -1,6 +1,6 @@
 # 我其实喜欢 USB-C 加密狗
 
-> 原文:[https://gizmodo . com/I-actually-like-USB-c-dongles-1827548372](https://gizmodo.com/i-actually-like-usb-c-dongles-1827548372)
+> 原文：<https://gizmodo.com/i-actually-like-usb-c-dongles-1827548372>
 
 今天，苹果终于从其商店下架了 2015 款 15 英寸 MacBook Pro。这标志着无加密狗的 MacBook Pro 的结束，现在只有超级过时的 MacBook Air，你无论如何都不应该购买，仍然有除 USB-C 之外的端口。除了耳机插孔，苹果只是向只有 USB-C 的笔记本电脑商店迈进了一步。
 

@@ -1,6 +1,6 @@
 # 为什么你应该每天早上写三页垃圾
 
-> 原文:[https://life hacker . com/why-you-should-write-three-page of-garbage-every morni-1820345218](https://lifehacker.com/why-you-should-write-three-pages-of-garbage-every-morni-1820345218)
+> 原文：<https://lifehacker.com/why-you-should-write-three-pages-of-garbage-every-morni-1820345218>
 
 几乎每天早上，我都会在笔记本上手写三页意识流。我坐下来，写了三页，然后停下来。我完全相信这是我为自己和我的精神健康做的最好的事情之一。
 

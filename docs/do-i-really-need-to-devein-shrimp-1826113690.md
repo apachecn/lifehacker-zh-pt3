@@ -1,6 +1,6 @@
 # 我真的需要剥虾吗？
 
-> 原文:[https://the take out . com/do-I-really-need-to-devein-shrimp-1826113690](https://thetakeout.com/do-i-really-need-to-devein-shrimp-1826113690)
+> 原文：<https://thetakeout.com/do-i-really-need-to-devein-shrimp-1826113690>
 
 我擅长许多厨房工作，但我不擅长养虾。它永远带着我；我的手湿了，沾满了虾泥；它只是一般不愉快。(我可能把它称为“我存在的祸根。”)有河虾，但是我店里的要贵一些。这让我想到:考虑到努力与产出的比率，我真的需要去虾皮吗？
 

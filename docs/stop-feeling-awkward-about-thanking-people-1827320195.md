@@ -1,6 +1,6 @@
 # 不要因为感谢别人而感到尴尬
 
-> 原文:[https://life hacker . com/stop-feeling-hangible-about-thanking-people-1827320195](https://lifehacker.com/stop-feeling-awkward-about-thanking-people-1827320195)
+> 原文：<https://lifehacker.com/stop-feeling-awkward-about-thanking-people-1827320195>
 
 认识到生活中什么是好的是(甚至，尤其是，当其他事情看起来很糟糕的时候)。但是如果你用感恩日记、祈祷或冥想的形式来表达，你会让这种感觉变得孤独。你生命中真正感激的人呢？你不能告诉他们你的感受吗？不，我们很多人可能会说。听起来*超级*别扭。
 

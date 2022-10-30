@@ -1,6 +1,6 @@
 # 我们六月书友会的选择是...
 
-> 原文:[https://life hacker . com/our-June-book-club-pick-is-1826549082](https://lifehacker.com/our-june-book-club-pick-is-1826549082)
+> 原文：<https://lifehacker.com/our-june-book-club-pick-is-1826549082>
 
 如果你决定加入我们的夏季书友会，六月的选择是玛丽·罗奇的 [*【斯布克:科学解决来世*](https://www.amazon.com/Spook-Science-Afterlife-Mary-Roach/dp/0393329127/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/our-june-book-club-pick-is-1826549082&asc_source=&tag=kinjalifehackerlink-20) 。
 

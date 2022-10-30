@@ -1,6 +1,6 @@
 # 如何与否认气候变化的人谈论飓风
 
-> 原文:[https://life hacker . com/how-to-talk-about-climate-change-denier-1800859659](https://lifehacker.com/how-to-talk-about-hurricanes-with-climate-change-denier-1800859659)
+> 原文：<https://lifehacker.com/how-to-talk-about-hurricanes-with-climate-change-denier-1800859659>
 
 地球正在变暖。这是事实。随着地球变暖，我们预计会看到更大更强的飓风。也是事实。但是有些人否认这些事实，甚至到了指责自由媒体 报道飓风的程度。
 

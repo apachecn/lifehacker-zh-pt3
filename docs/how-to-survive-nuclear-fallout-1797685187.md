@@ -1,6 +1,6 @@
 # 如何在核辐射中生存
 
-> 原文:[https://life hacker . com/how-to-survive-nuclear-fallout-1797685187](https://lifehacker.com/how-to-survive-nuclear-fallout-1797685187)
+> 原文：<https://lifehacker.com/how-to-survive-nuclear-fallout-1797685187>
 
 它发生了。明亮的白光在你眼前闪过，太阳的力量舔着你的皮肤，你感觉到一股灰尘和碎片的冲击波席卷了这个你称之为家的城市。目前，你是幸运的一员，但是你的奋斗还没有结束——甚至还没有结束。
 

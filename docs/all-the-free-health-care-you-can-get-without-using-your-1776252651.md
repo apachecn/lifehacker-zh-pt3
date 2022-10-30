@@ -1,6 +1,6 @@
 # 无需使用您的自付额即可获得的所有免费医疗保健
 
-> 原文:[https://life hacker . com/all-the-free-the-health-care-you-not-use-your-1776252651](https://lifehacker.com/all-the-free-health-care-you-can-get-without-using-your-1776252651)
+> 原文：<https://lifehacker.com/all-the-free-health-care-you-can-get-without-using-your-1776252651>
 
 如果你正在推迟体检或破伤风疫苗注射，因为你认为你必须为此付出一大笔钱，我们有好消息。即使你没有达到你的免赔额，你仍然不需要为最常见类型的预防保健支付一分钱。
 

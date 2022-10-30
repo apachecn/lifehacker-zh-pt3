@@ -1,6 +1,6 @@
 # 如果你从未在炖锅里做过烘肉卷，那你就错过了
 
-> 原文:[https://thetakeout.com/recipe-crock-pot-meatloaf-1827332002](https://thetakeout.com/recipe-crock-pot-meatloaf-1827332002)
+> 原文：<https://thetakeout.com/recipe-crock-pot-meatloaf-1827332002>
 
 *欢迎来到* [***慢炖锅周***](https://thetakeout.com/tag/slow-cooker-week) *，其中*外卖*在盛夏使用它最喜欢的冷天厨房电器。*
 

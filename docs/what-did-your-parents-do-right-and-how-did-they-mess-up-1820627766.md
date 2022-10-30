@@ -1,6 +1,6 @@
 # 你的父母做对了什么，又是怎么搞砸的？
 
-> 原文:[https://life hacker . com/what-do-do-your-parents-do-right-and-how-do-how-made-up-1820627766](https://lifehacker.com/what-did-your-parents-do-right-and-how-did-they-mess-up-1820627766)
+> 原文：<https://lifehacker.com/what-did-your-parents-do-right-and-how-did-they-mess-up-1820627766>
 
 在这一天，为你的第一个孩子的出生做准备通常包括分析一个充满婴儿车规格和评级的电子表格，向词源学专家咨询潮人婴儿的名字，并决定当小天使来到这个世界时播放什么曲子:露辛达·威廉姆斯的《我的劳动果实》或铁酒公司的《我们来时裸体》。但是，在所有准备工作中经常遗漏的可能是所有清单中最重要的一项:决定你想如何抚养这个孩子。
 

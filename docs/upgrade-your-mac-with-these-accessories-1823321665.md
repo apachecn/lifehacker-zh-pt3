@@ -1,6 +1,6 @@
 # 使用这些配件升级您的 Mac
 
-> 原文:[https://life hacker . com/upgrade-your-MAC-with these-accessories-1823321665](https://lifehacker.com/upgrade-your-mac-with-these-accessories-1823321665)
+> 原文：<https://lifehacker.com/upgrade-your-mac-with-these-accessories-1823321665>
 
 苹果制造了一些好看的电脑:它们由铝制成，有令人印象深刻的显示屏，并且总是以这样或那样的方式挑战极限(不管是好是坏)。这并不意味着他们很容易互动。你试过把东西插到 iMac 上吗？是啊。如果你想获得最佳的 Mac 体验，你需要这些配件给你额外的端口，甚至更多的空间，并让它更容易处理形式多于功能的美学，这是最近苹果电脑热潮的一部分。
 

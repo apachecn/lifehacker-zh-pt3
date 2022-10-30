@@ -1,6 +1,6 @@
 # 使用 Alexa 的直播疯狂三月游戏
 
-> 原文:[https://life hacker . com/livestream-March-madness-games-using-Alexa-1823671754](https://lifehacker.com/livestream-march-madness-games-using-alexa-1823671754)
+> 原文：<https://lifehacker.com/livestream-march-madness-games-using-alexa-1823671754>
 
 我在北卡罗莱纳州长大，在那里，我们对大学篮球都非常认真(T2)。当你住在离北卡罗来纳大学和杜克大学、威克森林附近的几英里范围内时，我们只能说你的三月疯狂括号不仅仅是你和朋友一起做的一件有趣的事情——你在和中画出了潜在的友谊终结线。
 

@@ -1,6 +1,6 @@
 # 人们开始意识到吸管很烂[更新]
 
-> 原文:[https://gizmodo . com/people-is-realizing-the-straw-suck-1822156363](https://gizmodo.com/people-are-realizing-that-straws-suck-1822156363)
+> 原文：<https://gizmodo.com/people-are-realizing-that-straws-suck-1822156363>
 
 吸管正变得有争议。长期以来，一次性吸管作为一种废物来源一直被忽视，也许是因为它们无视分类的方式，一次性吸管现在引起了环境社区的愤怒，政策制定者开始注意到这一点。
 

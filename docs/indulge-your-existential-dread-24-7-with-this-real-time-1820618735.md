@@ -1,6 +1,6 @@
 # 用这个实时全球变暖时钟放纵你的存在恐惧
 
-> 原文:[https://gizmodo . com/lize-your-existential-dread-24-7-with-this-real-time-1820618735](https://gizmodo.com/indulge-your-existential-dread-24-7-with-this-real-time-1820618735)
+> 原文：<https://gizmodo.com/indulge-your-existential-dread-24-7-with-this-real-time-1820618735>
 
 如果 2017 年有什么教训的话，那就是我们都将死去。但是，虽然没有人能预测炸弹什么时候会落下，或者亿万富翁什么时候会吸走你年轻的血液，牛津大学的黛比·唐纳斯*的确*建立了一个实时全球变暖指数，让你看着我们一点点接近地球热寂。
 

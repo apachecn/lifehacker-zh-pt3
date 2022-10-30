@@ -1,6 +1,6 @@
 # 没有你，每个人都不是永远的朋友
 
-> 原文:[https://life hacker . com/every one-is not-constant-be friends-without you 1818524491](https://lifehacker.com/everyone-is-not-constantly-being-friends-without-you-1818524491)
+> 原文：<https://lifehacker.com/everyone-is-not-constantly-being-friends-without-you-1818524491>
 
 并非每个人的朋友都比你多，尽管 UBC 大学的一项研究表明，很多人认为他们的朋友都比你有更多的朋友。每个人都不会去参加你没有被邀请的聚会，会遇到各种背景和生活各方面的人，他们聚集在一个丰富的社交圈里，可以与芝麻街的开场标题相媲美。
 

@@ -1,6 +1,6 @@
 # 90 年代罪恶快乐播放列表
 
-> 原文:[https://life hacker . com/the-90s-有罪-快乐-播放列表-1781614569](https://lifehacker.com/the-90s-guilty-pleasures-playlist-1781614569)
+> 原文：<https://lifehacker.com/the-90s-guilty-pleasures-playlist-1781614569>
 
 如果你在 90 年代的任何时候打开收音机，你可能会打开，因为潘多拉还没有被发明出来，你会知道这个罪恶的快乐播放列表中的一些歌曲。即使你想假装不知道。
 

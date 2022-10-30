@@ -1,6 +1,6 @@
 # 吃了太辣的食物后，最好的口腔降温方法是什么？
 
-> 原文:[https://the take out . com/what-s-the-best-way to cool your mouth-after-too-spiral-1825720960](https://thetakeout.com/what-s-the-best-way-to-cool-your-mouth-after-too-spicy-1825720960)
+> 原文：<https://thetakeout.com/what-s-the-best-way-to-cool-your-mouth-after-too-spicy-1825720960>
 
 我们都经历过:意想不到的胡椒，寿司上太多的芥末，一道比你想象的辣 100 倍的辣菜。结果:你满嘴都是火，看不到缓解的迹象。有什么最好的方法可以尽快消除暑热？
 

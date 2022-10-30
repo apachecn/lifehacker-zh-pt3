@@ -1,6 +1,6 @@
 # 拖延的心理根源以及如何停止拖延
 
-> 原文:[https://life hacker . com/the-psychological-origins-of-delayatory-and-how-to-1786630455](https://lifehacker.com/the-psychological-origins-of-procrastination-and-how-to-1786630455)
+> 原文：<https://lifehacker.com/the-psychological-origins-of-procrastination-and-how-to-1786630455>
 
 我们都有这样的经历:想要完成一个项目，但却把它推迟到以后。有时我们等待是因为我们对项目不够关心，但其他时候我们非常关心——但最终还是做了其他事情。拿我来说，当我有很多论文要批改时，我就不得不打扫我的房间，尽管我知道我需要批改它们。
 

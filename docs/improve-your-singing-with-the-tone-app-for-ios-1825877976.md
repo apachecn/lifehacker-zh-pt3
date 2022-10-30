@@ -1,6 +1,6 @@
 # 使用 iOS 版音调应用程序提高您的唱功
 
-> 原文:[https://life hacker . com/improve-your-singing-with-the-tone-app-for-IOs-1825877976](https://lifehacker.com/improve-your-singing-with-the-tone-app-for-ios-1825877976)
+> 原文：<https://lifehacker.com/improve-your-singing-with-the-tone-app-for-ios-1825877976>
 
 iOS:有些人一拿起麦克风就成了卡拉 ok 之神，让我们这些凡人去想他们是如何从星体层召唤出佛莱迪·摩克瑞的。其他人...需要一点练习。虽然没有一个应用程序能让你一夜之间成为下一个美国偶像，但 Tone ( [iOS](https://itunes.apple.com/us/app/tone-perfect-pitch-training/id1139019670?mt=8) ，免费)是一个练习基本音符识别和复杂音程的伟大应用程序。
 

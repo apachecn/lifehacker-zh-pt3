@@ -1,6 +1,6 @@
 # 购买 Galaxy S9 的最佳方式是直接从三星购买
 
-> 原文:[https://life hacker . com/the-best-way-to-buy-the-galaxy-S9-is-straight-from-SAMs-1823326739](https://lifehacker.com/the-best-way-to-buy-the-galaxy-s9-is-straight-from-sams-1823326739)
+> 原文：<https://lifehacker.com/the-best-way-to-buy-the-galaxy-s9-is-straight-from-sams-1823326739>
 
 三星新手机 [Galaxy S9](https://lifehacker.com/how-to-get-the-galaxy-s9s-translation-feature-on-any-ph-1823307084) 终于在 3 月 2 日正式开放预购。这意味着你只有五天的时间 [卖掉你的旧智能手机](https://lifehacker.com/buying-an-s9-heres-how-to-sell-your-old-galaxy-phone-1823307533) 并计划购买新型号。无论你是想节省一点钱，还是你只是讨厌 [臃肿的软件](https://lifehacker.com/debloater-blocks-disables-or-removes-bloatware-on-and-1734577471) ，事实证明你最好的选择是直接从三星购买 Galaxy S9。
 

@@ -1,6 +1,6 @@
 # 解锁 iPhone 最好的方法是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way to-unlock-your-iphone-1828864810](https://lifehacker.com/whats-the-best-way-to-unlock-your-iphone-1828864810)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-unlock-your-iphone-1828864810>
 
 我记得 2017 年 9 月，当苹果 [第一次宣布 Face ID](https://lifehacker.com/why-you-shouldnt-buy-the-iphone-x-at-launch-according-1819803348) 时的所有喧嚣。有无数的文章和思想批评苹果的新安全技术即将创造的可怕体验。当你把 iPhone 从裤子口袋、夹克或包里拿出来时，不仅仅是*按下 iPhone 的 Home 键(这是一项自然的任务)，你必须把你的设备拉到眼睛的高度，盯着它，然后像平常一样使用它。* 
 

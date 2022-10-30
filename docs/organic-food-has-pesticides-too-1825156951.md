@@ -1,6 +1,6 @@
 # 你的有机食品也用杀虫剂处理过
 
-> 原文:[https://life hacker . com/organic-food-has-passages-too-1825156951](https://lifehacker.com/organic-food-has-pesticides-too-1825156951)
+> 原文：<https://lifehacker.com/organic-food-has-pesticides-too-1825156951>
 
 环境工作组发布了他们最新的“十大污染”名单 ，据称是含有杀虫剂的水果和蔬菜。( [这是一个误导性的列表](https://lifehacker.com/why-you-shouldnt-buy-organic-based-on-the-dirty-dozen-1689190822) ，我们之前已经解释过了。正如 EWG 所建议的，你可能会被诱惑去购买有机产品，但是猜猜看，有机产品并不是不含杀虫剂的。
 

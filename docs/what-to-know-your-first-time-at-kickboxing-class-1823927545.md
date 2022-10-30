@@ -1,6 +1,6 @@
 # 你第一次上跆拳道课要知道什么
 
-> 原文:[https://life hacker . com/what-to-know-your ' s first-time-in kickboxing-class-1823927545](https://lifehacker.com/what-to-know-your-first-time-at-kickboxing-class-1823927545)
+> 原文：<https://lifehacker.com/what-to-know-your-first-time-at-kickboxing-class-1823927545>
 
 我今天做了一个 HIIT 跆拳道巡回赛，每个站要求三分钟的出拳、踢腿或受拳击启发的条件动作。让我告诉你:我从来不知道三分钟可以这么长。
 

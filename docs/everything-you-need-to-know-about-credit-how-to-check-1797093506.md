@@ -1,6 +1,6 @@
 # 如何检查你的信用报告和评分
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-credit-how-to-check-1797093506](https://lifehacker.com/everything-you-need-to-know-about-credit-how-to-check-1797093506)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-credit-how-to-check-1797093506>
 
 你的信用会影响一切，从你的账单到你的汽车贷款，再到你获得梦想公寓的能力，所以你应该知道你的信用是什么样的。如果你不确定如何得到一份你的分数或报告，我们会帮你的。
 

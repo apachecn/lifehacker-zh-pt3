@@ -1,6 +1,6 @@
 # 2018 年如何进入魔兽世界
 
-> 原文:[https://kotaku . com/how-to-get-in-2018-1823435900](https://kotaku.com/how-to-get-into-world-of-warcraft-in-2018-1823435900)
+> 原文：<https://kotaku.com/how-to-get-into-world-of-warcraft-in-2018-1823435900>
 
 距离暴雪推出世界上最受欢迎的大型多人在线角色扮演游戏已经过去了将近 14 年。在最终投入艾泽拉斯之前，你有足够的时间来处理好自己的事务。别担心，魔兽世界没有和你擦肩而过。你可能需要一点帮助来开始。我们抓住你了。
 

@@ -1,6 +1,6 @@
 # 如何在不搞乱身体的情况下玩电子游戏
 
-> 原文:[https://kotaku . com/how-to-play-video-games-without-messing-your-body-1824219174](https://kotaku.com/how-to-play-video-games-without-messing-up-your-body-1824219174)
+> 原文：<https://kotaku.com/how-to-play-video-games-without-messing-up-your-body-1824219174>
 
 很明显，连续几个小时坐在沙发上玩游戏对你没有好处，但有时你很难抗拒。以下是如何在不搞乱身体的情况下做到的。
 

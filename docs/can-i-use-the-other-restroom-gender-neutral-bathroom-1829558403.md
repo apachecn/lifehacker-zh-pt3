@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我可以用另一个洗手间吗？
 
-> 原文:[https://the take out . com/can-I-use-the-other-roof-gender-neutral-浴室-1829558403](https://thetakeout.com/can-i-use-the-other-restroom-gender-neutral-bathroom-1829558403)
+> 原文：<https://thetakeout.com/can-i-use-the-other-restroom-gender-neutral-bathroom-1829558403>
 
 > 亲爱的咸:快速提问。如果女洗手间在使用中，我能使用男洗手间吗？(我是淑女。)
 > 

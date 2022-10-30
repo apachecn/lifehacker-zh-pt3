@@ -1,6 +1,6 @@
 # 在哪里可以买到全国咖啡日的免费咖啡
 
-> 原文:[https://life hacker . com/where-to-get-free-coffee-for-national-coffee-day-1818992292](https://lifehacker.com/where-to-get-free-coffee-for-national-coffee-day-1818992292)
+> 原文：<https://lifehacker.com/where-to-get-free-coffee-for-national-coffee-day-1818992292>
 
 今天是少有的真正有好处的非官方假日之一:今天是全国咖啡日，这意味着几家连锁店提供免费饮料。下面是最大的几笔交易，via [【财富】](http://fortune.com/2017/09/29/national-coffee-day-free-coffee-deals/)[【读者文摘】](https://www.rd.com/food/fun/free-coffee-national-coffee-day/)[ABC 15](http://www.abc15.com/news/smart-shopper/friday-is-national-coffee-day-and-there-are-deals-and-freebies-all-over-)。
 

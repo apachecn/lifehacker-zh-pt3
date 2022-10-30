@@ -1,6 +1,6 @@
 # 尝试你最喜欢的节目最好的一集是哪一集？
 
-> 原文:[https://life hacker . com/whats-the-best-episode-for-trying your-favorite-show-1826334405](https://lifehacker.com/whats-the-best-episode-for-trying-your-favorite-show-1826334405)
+> 原文：<https://lifehacker.com/whats-the-best-episode-for-trying-your-favorite-show-1826334405>
 
 《发展受阻》第五季今天回归，这让我想起了我第一次看它的时候——不是在试播集，而是在第四集《关键抉择》(Key Decisions)，歌伯因为一次特技表演进了监狱，迈克尔爱上了玛尔塔，林赛和克林特·霍华德坐在一棵树上。尽管一头扎进一部相对连载的情景喜剧中感到困惑，但我能看出这部剧很特别，我很快就回过头来——这在网飞流媒体播放之前更难做到。我仍然推荐第四集，它是判断你是否喜欢这个系列的好方法——也许比试播集更好。
 

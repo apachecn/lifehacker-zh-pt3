@@ -1,6 +1,6 @@
 # 用发芽的大蒜做菜会让食物变得难吃吗？
 
-> 原文:[https://the take out . com/does-cooking-with-spreaded-大蒜-make-food-taste-bad-1824033198](https://thetakeout.com/does-cooking-with-sprouted-garlic-make-food-taste-bad-1824033198)
+> 原文：<https://thetakeout.com/does-cooking-with-sprouted-garlic-make-food-taste-bad-1824033198>
 
 有时候，我不想浪费食材的愿望与我想做出最好吃的食物的愿望相冲突。我会试着用完一块不新鲜面包，然后后悔没有买一块新鲜的面包来喝汤。但是那些长出绿色新芽的蒜瓣呢？使用它们会对我最后一道菜的味道有什么影响吗？
 

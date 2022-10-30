@@ -1,6 +1,6 @@
 # 如何成为英国皇室
 
-> 原文:[https://life hacker . com/how-to-be-British-royalty-1820782403](https://lifehacker.com/how-to-become-british-royalty-1820782403)
+> 原文：<https://lifehacker.com/how-to-become-british-royalty-1820782403>
 
 众所周知， [英国哈里王子与梅根汗·马克尔](http://www.bbc.com/news/uk-42137179) 订婚，来自美国电视网的*西装*，继承了温莎家族的婚外恋传统。马克尔不是英国贵族，也不是英国人，因为她出生在洛杉矶，父母都是美国人。但她抢购了最接近的未婚王位继承人，这对其他希望加入皇室的人来说是一个很大的挫折。这是你剩下的选择。
 

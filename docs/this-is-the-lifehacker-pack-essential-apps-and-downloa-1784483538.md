@@ -1,6 +1,6 @@
 # 这是 Lifehacker 包:适用于您所有设备的基本应用和下载
 
-> 原文:[https://life hacker . com/this-is-the-life hacker-pack-essential-apps-and-downloa-1784483538](https://lifehacker.com/this-is-the-lifehacker-pack-essential-apps-and-downloa-1784483538)
+> 原文：<https://lifehacker.com/this-is-the-lifehacker-pack-essential-apps-and-downloa-1784483538>
 
 在过去的两周里，我们像每年一样，给了你一个我们认为每个主要平台的每个用户都应该尝试的基本应用、扩展和下载的快照。错过一个？它们都在这里，在一个整洁的包裹里。
 

@@ -1,6 +1,6 @@
 # 如何快速识别并删除您不再使用的 iPhone 应用程序
 
-> 原文:[https://life hacker . com/how-to-fast-identify-and-delete-iphone-apps-you-dont-1827089520](https://lifehacker.com/how-to-quickly-identify-and-delete-iphone-apps-you-dont-1827089520)
+> 原文：<https://lifehacker.com/how-to-quickly-identify-and-delete-iphone-apps-you-dont-1827089520>
 
 当谈到尝试新的应用程序时，我是一个很容易推销的人。我会从 App Store 下载几乎所有有人让我相信有用途的应用程序，并进行测试。然而，一旦试驾结束，我就不擅长花时间删除那些不太合适的应用。结果呢？我的手机里塞满了东西。
 

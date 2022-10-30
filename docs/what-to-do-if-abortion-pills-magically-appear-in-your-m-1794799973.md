@@ -1,6 +1,6 @@
 # 如果堕胎药神奇地出现在你的邮箱里该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-that-family-pigs-magically-appear-in-your-m-1794799973](https://lifehacker.com/what-to-do-if-abortion-pills-magically-appear-in-your-m-1794799973)
+> 原文：<https://lifehacker.com/what-to-do-if-abortion-pills-magically-appear-in-your-m-1794799973>
 
 我们知道，你绝不会通过互联网非法订购药物，也不会让你的朋友从度假中带回来。但是为了以防万一，你*不知何故*最终服用了可以导致流产的药物，而你*恰好*意外怀孕，知道一些事情可能会很方便。
 

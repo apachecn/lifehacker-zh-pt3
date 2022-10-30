@@ -1,6 +1,6 @@
 # 当你还没有看到进步时，如何坚持健身计划
 
-> 原文:[https://life hacker . com/how-to-stick with a fitness-routine-when you have-see-1827626855](https://lifehacker.com/how-to-stick-with-a-fitness-routine-when-you-havent-see-1827626855)
+> 原文：<https://lifehacker.com/how-to-stick-with-a-fitness-routine-when-you-havent-see-1827626855>
 
 在健身计划开始前，我们都陷入了低谷。不是在一开始，当我们兴奋地要开始的时候——更像是几个星期后。可能需要六个星期才能注意到更多的肌肉或更好的耐力，但你如何度过这段时间而不失去希望？
 

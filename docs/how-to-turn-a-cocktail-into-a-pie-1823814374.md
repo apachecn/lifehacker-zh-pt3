@@ -1,6 +1,6 @@
 # 如何把鸡尾酒变成馅饼
 
-> 原文:[https://life hacker . com/how-to-turn-a-cocktail-to-a-pie-1823814374](https://lifehacker.com/how-to-turn-a-cocktail-into-a-pie-1823814374)
+> 原文：<https://lifehacker.com/how-to-turn-a-cocktail-into-a-pie-1823814374>
 
 甜点和鸡尾酒都在晚餐后出现，但将它们结合起来确实是一件棘手的事情。最好的烈酒甜点巧妙地区分了含糖食物和睡前饮料；最严重的和轻微的身体攻击没有区别。可悲的是，后者远比前者更常见——但事实并非如此。
 

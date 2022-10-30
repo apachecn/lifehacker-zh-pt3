@@ -1,6 +1,6 @@
 # 周末探险包
 
-> 原文:[https://lifehacker.com/the-weekend-adventure-bag-1772919685](https://lifehacker.com/the-weekend-adventure-bag-1772919685)
+> 原文：<https://lifehacker.com/the-weekend-adventure-bag-1772919685>
 
 周末外出探险是很棒的，但是你总会想要一些随身物品。以下是《每日邮报》读者皮特·K 带来的报道。
 

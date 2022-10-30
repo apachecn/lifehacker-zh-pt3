@@ -1,6 +1,6 @@
 # 如何在愚蠢的巨魔之前购买你的个人域名
 
-> 原文:[https://gizmodo . com/how-to-buy-your-personal-domain-name-before-some-dumb-t-1793338538](https://gizmodo.com/how-to-buy-your-personal-domain-name-before-some-dumb-t-1793338538)
+> 原文：<https://gizmodo.com/how-to-buy-your-personal-domain-name-before-some-dumb-t-1793338538>
 
 我们注意到了马丁·什克里里，这位匕首脸的制药公司兄弟不会让世界孤独，他正在为报道过他的记者购买域名。他甚至瞄准了 Gizmodo 作家。让我们确保这不会发生在你身上。
 

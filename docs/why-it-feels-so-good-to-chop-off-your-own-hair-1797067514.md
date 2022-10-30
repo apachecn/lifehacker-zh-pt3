@@ -1,6 +1,6 @@
 # 为什么剪掉自己的头发感觉这么好
 
-> 原文:[https://life hacker . com/why-it-feel-so-good to-chop-off-your-own-hair-1797067514](https://lifehacker.com/why-it-feels-so-good-to-chop-off-your-own-hair-1797067514)
+> 原文：<https://lifehacker.com/why-it-feels-so-good-to-chop-off-your-own-hair-1797067514>
 
 那是特别紧张的一周，一手拿着剪刀，一手拿着四英寸长的头发，我决定剪了。几下之后，我感到胜利了。当然，一周后我请了一位专家来修理。但在那一刻，我觉得好像一个重量被解除，这感觉很好，即使它只是几盎司。
 

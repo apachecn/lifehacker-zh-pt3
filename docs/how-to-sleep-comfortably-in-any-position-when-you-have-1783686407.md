@@ -1,6 +1,6 @@
 # 腰疼时如何以任何姿势舒适入睡
 
-> 原文:[https://life hacker . com/how-to-sleep-comfort-in-anywhere-you-have-1783686407](https://lifehacker.com/how-to-sleep-comfortably-in-any-position-when-you-have-1783686407)
+> 原文：<https://lifehacker.com/how-to-sleep-comfortably-in-any-position-when-you-have-1783686407>
 
 我们的脊椎暗地里恨我们。在美国，三分之一的人患有某种形式的背痛。由于伏案工作的生活和我们普遍不活跃的社会，这一数字预计将在未来几年内大幅增加。夜晚似乎会带来缓解，但当我们躺下时，不适感并没有减轻。
 

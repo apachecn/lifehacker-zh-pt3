@@ -1,6 +1,6 @@
 # 如何在公共场合放屁并全身而退
 
-> 原文:[https://life hacker . com/how-to-far-by-it-1738843195](https://lifehacker.com/how-to-fart-in-public-and-get-away-with-it-1738843195)
+> 原文：<https://lifehacker.com/how-to-fart-in-public-and-get-away-with-it-1738843195>
 
 胀气是完全自然的，但当它发生在公共场合时，你会尽一切努力避免尴尬的。不管他们是沉默的致命的还是大声的骄傲的，这里有一些最卑鄙的方式在别人周围传递气体并像放屁忍者一样溜走。
 

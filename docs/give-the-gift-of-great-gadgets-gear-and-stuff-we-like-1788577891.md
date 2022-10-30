@@ -1,6 +1,6 @@
 # 赠送我们喜欢的小玩意、装备和东西
 
-> 原文:[https://life hacker . com/give-the-give-gift-the-great-gadgets-gear-stuff-we-like-1788577891](https://lifehacker.com/give-the-gift-of-great-gadgets-gear-and-stuff-we-like-1788577891)
+> 原文：<https://lifehacker.com/give-the-gift-of-great-gadgets-gear-and-stuff-we-like-1788577891>
 
 我们喜欢很多小玩意，就像你在高中时一样，它们不符合那个男人试图把它们归入的整齐有序的类别。这就是为什么我们有这个特别的指南，来介绍我们一年中喜欢的所有令人敬畏的小玩意和其他东西。
 

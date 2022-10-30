@@ -1,6 +1,6 @@
 # 如何识别假视频
 
-> 原文:[https://lifehacker.com/how-to-spot-a-fake-video-1825359924](https://lifehacker.com/how-to-spot-a-fake-video-1825359924)
+> 原文：<https://lifehacker.com/how-to-spot-a-fake-video-1825359924>
 
 使用一种越来越复杂的方法来制作假视频，或“deepfakes”，视频编辑可以逼真地将某人的面部交换到视频中。(据我们的姐妹网站 Gizmodo 报道，这种技术在制作假冒名人色情片时尤其流行。)Deepfakes 很快就会让人很难分辨某个著名人物的视频是不是真的。为了证明这一点，BuzzFeed 和导演乔丹·皮尔 [创造了一个巴拉克·奥巴马的“深度假”](https://www.buzzfeed.com/davidmack/obama-fake-news-jordan-peele-psa-video-buzzfeed) ，他说了一些类似“川普总统是个彻头彻尾的笨蛋”的话
 

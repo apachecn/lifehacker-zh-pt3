@@ -1,6 +1,6 @@
 # 史上最尴尬的错误电话和短信
 
-> 原文:[https://life hacker . com/the-most-handly-错号-电话-短信-1794544163](https://lifehacker.com/the-most-awkward-wrong-number-calls-and-texts-ever-1794544163)
+> 原文：<https://lifehacker.com/the-most-awkward-wrong-number-calls-and-texts-ever-1794544163>
 
 我们要求你最奇怪，最尴尬的错误号码电话和短信，男孩，你做到了。这些“哇”的故事包括从毫无头绪的打电话者到不得体的发短信者，对厕所电话的戏谑回应，以及介于两者之间的一切。
 

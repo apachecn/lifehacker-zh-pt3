@@ -1,6 +1,6 @@
 # Twitter 140 个字符的限制如何让我成为更好的作家
 
-> 原文:[https://life hacker . com/how-Twitter-s-140-character-limit-make-me-a-better-writ-1734731855](https://lifehacker.com/how-twitter-s-140-character-limit-made-me-a-better-writ-1734731855)
+> 原文：<https://lifehacker.com/how-twitter-s-140-character-limit-made-me-a-better-writ-1734731855>
 
 Twitter 正计划延长其典型的 140 个字符的限制，很多人对这一变化表示欢迎。尽管 140 个字符的限制很烦人，但我发现它实际上帮助我实践了一些更好写作的原则。
 

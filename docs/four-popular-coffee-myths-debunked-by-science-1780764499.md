@@ -1,6 +1,6 @@
 # 四个流行的咖啡神话，被科学揭穿
 
-> 原文:[https://life hacker . com/four-popular-coffee-myths-debuted-by-science-1780764499](https://lifehacker.com/four-popular-coffee-myths-debunked-by-science-1780764499)
+> 原文：<https://lifehacker.com/four-popular-coffee-myths-debunked-by-science-1780764499>
 
 你在早上渴望它，你排着长队等待它，我一边喝着它，一边写下:咖啡无处不在。但这意味着关于它的错误信息也无处不在。咖啡不会抢你的水，不会让你清醒，也不会让你的孩子矮，那就让我们碾碎这些神话，沏一壶真理的热锅吧。
 

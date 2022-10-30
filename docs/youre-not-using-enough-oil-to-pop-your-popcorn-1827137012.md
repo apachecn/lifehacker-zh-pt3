@@ -1,6 +1,6 @@
 # 你没有用足够的油来爆你的爆米花
 
-> 原文:[https://life hacker . com/you-not-used-over-sufficient-pop-you-pop-popcorn-1827137012](https://lifehacker.com/youre-not-using-enough-oil-to-pop-your-popcorn-1827137012)
+> 原文：<https://lifehacker.com/youre-not-using-enough-oil-to-pop-your-popcorn-1827137012>
 
 好的爆米花味道很好，但是大多数爆米花很少符合它的香味。目标是松软、热脆的玉米粒，关键是使用比你认为需要的多得多的油。
 

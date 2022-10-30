@@ -1,6 +1,6 @@
 # 使用这个菜单栏应用程序监控 Mac 上的亚马逊价格
 
-> 原文:[https://life hacker . com/monitor-Amazon-prices-on-your-MAC-with this-menu-bar-AP-1827421655](https://lifehacker.com/monitor-amazon-prices-on-your-mac-with-this-menu-bar-ap-1827421655)
+> 原文：<https://lifehacker.com/monitor-amazon-prices-on-your-mac-with-this-menu-bar-ap-1827421655>
 
 如果你有兴趣在亚马逊上购买一些东西，但价格对你来说有点太贵了，PriceAlert 可以跟踪这些商品，并让你知道价格何时变得足够低，让你咬紧牙关购买。
 

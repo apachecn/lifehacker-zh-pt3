@@ -1,6 +1,6 @@
 # “凡事适度”是一个可怕的饮食原则
 
-> 原文:[https://life hacker . com/everything-in-moderation-is-a-dark-rule-to-eat-by-1742900941](https://lifehacker.com/everything-in-moderation-is-a-terrible-rule-to-eat-by-1742900941)
+> 原文：<https://lifehacker.com/everything-in-moderation-is-a-terrible-rule-to-eat-by-1742900941>
 
 当你最喜欢的饮食建议与垃圾食品小贩最喜欢的饮食建议相同时，也许你应该重新考虑。
 

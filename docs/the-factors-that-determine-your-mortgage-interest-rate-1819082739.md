@@ -1,6 +1,6 @@
 # 决定你抵押贷款利率的因素
 
-> 原文:[https://life hacker . com/the-factors-that-determining-your ' s mortgage-rate-1819082739](https://lifehacker.com/the-factors-that-determine-your-mortgage-interest-rate-1819082739)
+> 原文：<https://lifehacker.com/the-factors-that-determine-your-mortgage-interest-rate-1819082739>
 
 当你贷款买房时，你要在几年内支付一笔的惊人利息。当然，费率越高，您支付的费用就越多。那么是什么决定了这个比率呢？显然，你的信用历史可能起着最大的作用，但也有其他因素。
 

@@ -1,6 +1,6 @@
 # 新父母在选择医疗保健计划时应该考虑什么
 
-> 原文:[https://life hacker . com/what-new-parents-should-consider-what-choose-a-health-1788666411](https://lifehacker.com/what-new-parents-should-consider-when-choosing-a-health-1788666411)
+> 原文：<https://lifehacker.com/what-new-parents-should-consider-when-choosing-a-health-1788666411>
 
 欢迎一个新生儿加入你的家庭是你一生中激动人心的时刻。除了选择育儿室的颜色和购买所有必要的——可能是一些不那么必要但非常可爱的——婴儿用品，你无疑会开始思考未来的路，把你的小宝贝作为你日常生活的一部分。
 

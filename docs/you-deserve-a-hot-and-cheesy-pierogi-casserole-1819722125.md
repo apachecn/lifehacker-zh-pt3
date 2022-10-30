@@ -1,6 +1,6 @@
 # 你应该得到一份热腾腾的芝士披萨砂锅
 
-> 原文:[https://life hacker . com/you-worthy-a-hot-and-cheesy-pierogi-sarkob-1819722125](https://lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125)
+> 原文：<https://lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125>
 
 你好，欢迎来到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的分层创作的专栏。很兴奋能和大家分享这周的项目，好吃到差点疼。
 

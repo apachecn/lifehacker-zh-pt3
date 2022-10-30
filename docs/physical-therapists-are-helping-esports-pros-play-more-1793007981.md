@@ -1,6 +1,6 @@
 # 物理治疗师正在帮助电子竞技职业选手玩得更多，伤得更少
 
-> 原文:[https://kotaku . com/physical-therapists-is-helping-esports-pros-play-more-1793007981](https://kotaku.com/physical-therapists-are-helping-esports-pros-play-more-1793007981)
+> 原文：<https://kotaku.com/physical-therapists-are-helping-esports-pros-play-more-1793007981>
 
 噼啪作响的钥匙；捣碎按钮；以精确复杂的方式上下移动操纵杆。玩视频游戏的动作是机械的——频繁而重复——表明一台机器在工作，这当然不远了，尤其是世界上最优秀的玩家每天都要花 12 个小时玩游戏。现在，需要物理治疗师来防止机器发生故障。
 

@@ -1,6 +1,6 @@
 # 你的指南建立一个更好的血腥玛丽酒吧
 
-> 原文:[https://life hacker . com/your-guide-to-building-a-better-bloody-Mary-bar-1777731484](https://lifehacker.com/your-guide-to-building-a-better-bloody-mary-bar-1777731484)
+> 原文：<https://lifehacker.com/your-guide-to-building-a-better-bloody-mary-bar-1777731484>
 
 定制一杯适合你特殊口味的血腥玛丽有无限的吸引力，没有什么比血腥玛丽酒吧更让早午餐客人兴奋的了。这里是你需要的一切，以确保你的血腥酒吧是一个超然的美味体验，即使它是一个人的酒吧。
 

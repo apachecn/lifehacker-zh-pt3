@@ -1,6 +1,6 @@
 # 你能买到的最实惠的日本威士忌
 
-> 原文:[https://kotaku . com/the-best-buffered-Japanese-whisky-you-can-buy-1825347427](https://kotaku.com/the-best-affordable-japanese-whisky-you-can-buy-1825347427)
+> 原文：<https://kotaku.com/the-best-affordable-japanese-whisky-you-can-buy-1825347427>
 
 日本威士忌肯定会很贵。虽然较老的瓶装威士忌很容易就能卖到几千美元，或者几十万美元，但也有价格实惠、品质优良的日本威士忌。
 

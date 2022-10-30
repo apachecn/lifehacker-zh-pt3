@@ -1,6 +1,6 @@
 # 独立日播放列表
 
-> 原文:[https://life hacker . com/the-independence-day-playlist-1782908619](https://lifehacker.com/the-independence-day-playlist-1782908619)
+> 原文：<https://lifehacker.com/the-independence-day-playlist-1782908619>
 
 这个周末，这个地方的美国人将和全国各地的其他人一起庆祝我们国家历史上最大的年度焰火表演。来自 Spotify 用户 [杰森·劳森](https://open.spotify.com/user/lawson.jason29) 的这个播放列表，将帮助你几乎像比尔·普尔曼 一样有效地投入爱国情绪 [。](https://www.youtube.com/watch?v=QoLywiaM6PA)
 

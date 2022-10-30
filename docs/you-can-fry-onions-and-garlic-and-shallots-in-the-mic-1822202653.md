@@ -1,6 +1,6 @@
 # 你可以用微波炉炒洋葱和大蒜
 
-> 原文:[https://life hacker . com/you-can-fry-on-the-mic-1822202653](https://lifehacker.com/you-can-fry-onions-and-garlic-and-shallots-in-the-mic-1822202653)
+> 原文：<https://lifehacker.com/you-can-fry-onions-and-garlic-and-shallots-in-the-mic-1822202653>
 
 油炸葱头是完美的点睛之笔。无论是放在半生熟的牛排、奶油土豆汤，还是一碗黏糊糊的通心粉和奶酪(或者像沙拉之类的)，油炸洋葱、韭菜、大蒜等都会提供松脆的质地和咸味、鲜味丰富、略带辛辣的味道。简而言之，它们是可取的。他们也只是得到了一点方便，这要归功于《库克画报》 中的 [这种微波方法。](https://www.cooksillustrated.com/how_tos/10999-how-to-make-microwave-fried-shallots-garlic-and-leeks?extcode=NSCIA07FB&utm_source=facebook&utm_medium=photo&utm_content=microfried&utm_campaign=howtos) 
 

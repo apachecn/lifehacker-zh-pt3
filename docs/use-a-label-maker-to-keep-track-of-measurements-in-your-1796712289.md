@@ -1,6 +1,6 @@
 # 使用标签制作机来记录你家里的尺寸
 
-> 原文:[https://life hacker . com/use-a-label-maker-to-keep-track-of-measurements-in-your-1796712289](https://lifehacker.com/use-a-label-maker-to-keep-track-of-measurements-in-your-1796712289)
+> 原文：<https://lifehacker.com/use-a-label-maker-to-keep-track-of-measurements-in-your-1796712289>
 
 家居装修通常意味着移动东西，这包括测量以确保所有东西都合适。当你搬进一个新的空间时，你可能会在纸上记下你的窗户或墙壁的尺寸，但如果你以后想改变一些东西，你可能需要花时间再测量一次。幸运的是，很容易让你的数字作品流芳百世:只要用标签制作机把它设置好，然后忘掉它。
 

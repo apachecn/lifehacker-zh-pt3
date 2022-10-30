@@ -1,6 +1,6 @@
 # 托运一个包你不用付钱
 
-> 原文:[https://life hacker . com/you-don-t-to-pay-to-check-a-bag-1822172991](https://lifehacker.com/you-don-t-have-to-pay-to-check-a-bag-1822172991)
+> 原文：<https://lifehacker.com/you-don-t-have-to-pay-to-check-a-bag-1822172991>
 
 对一些人来说，这是一个可怕的通知，因为你在等待登上一架完整的飞机:*我们正在寻找志愿者来检查他们的行李*。对其他人来说，这是一种解脱。但对于真正精明的人来说，这已经是旧闻了。因为即使志愿者没有被要求，你也可以经常检查你的包。
 

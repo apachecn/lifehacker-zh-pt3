@@ -1,6 +1,6 @@
 # 如何在您的 Microsoft 帐户上设置两步身份验证
 
-> 原文:[https://life hacker . com/how-to-set-up-two-step-authentic ation-on-your-Microsoft-1828699665](https://lifehacker.com/how-to-set-up-two-step-authentication-on-your-microsoft-1828699665)
+> 原文：<https://lifehacker.com/how-to-set-up-two-step-authentication-on-your-microsoft-1828699665>
 
 如果我们已经说过一次，我们已经说过一百万次了:你应该在任何可能的地方使用双因素认证。这是一个很容易实施的安全措施，应该会让您更加放心。
 

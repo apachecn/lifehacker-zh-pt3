@@ -1,6 +1,6 @@
 # 财务进展如此艰难的五大原因
 
-> 原文:[https://life hacker . com/five-big-reasons-why-it-so-hard-make-financial-pro-1775599606](https://lifehacker.com/five-big-reasons-why-it-s-so-hard-to-make-financial-pro-1775599606)
+> 原文：<https://lifehacker.com/five-big-reasons-why-it-s-so-hard-to-make-financial-pro-1775599606>
 
 虽然我喜欢写作和谈论财务独立和财务进步的所有好处，但我会第一个承认这条道路是艰难的。虽然个人理财背后的[*想法*很容易](http://www.thesimpledollar.com/everything-you-ever-really-needed-to-know-about-personal-finance-on-the-back-of-five-business-cards/) ，但实际上要付诸实施却是难上加难。那么，我们如何克服挑战呢？
 

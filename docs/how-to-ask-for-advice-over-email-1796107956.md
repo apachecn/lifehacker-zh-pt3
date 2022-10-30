@@ -1,6 +1,6 @@
 # 如何通过电子邮件寻求建议
 
-> 原文:[https://life hacker . com/how-to-quest-advice-over-email-1796107956](https://lifehacker.com/how-to-ask-for-advice-over-email-1796107956)
+> 原文：<https://lifehacker.com/how-to-ask-for-advice-over-email-1796107956>
 
 "我能请你喝杯咖啡，听听你的想法吗？"是什么让全世界需要建议的人产生了这种错觉，认为一小时专业咨询的现行价格是一杯 3 美元的饮料？为什么我们在职业生涯的早期都尝试这样做(如果我们在商业发展领域工作，我们的中期和后期职业生涯)？
 

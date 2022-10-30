@@ -1,6 +1,6 @@
 # 如何在赌场赢
 
-> 原文:[https://deadspin.com/how-to-win-at-a-casino-1751238429](https://deadspin.com/how-to-win-at-a-casino-1751238429)
+> 原文：<https://deadspin.com/how-to-win-at-a-casino-1751238429>
 
 恕我直言，俄克拉荷马州萨克维尔的好心人，除了在世界最大的赌场[周围漫无目的地、敬畏地闲逛，我目前不知道有什么正当的理由隆隆地走下他们的 I-35 匝道。也就是说，除非你*真的*喜欢龙卷风或色情商店，这两样东西在这个国家的那个地区除了平地以外还很普遍。像 WinStar 这样的赌场数不胜数，但它们的规模都只有 WinStar 的几分之一，尽管如此，它们都位于同样偏僻的地方，位于似乎从风景中突出来的建筑中，就像你可以在里面吸烟的巨型仙人掌一样。](http://www.winstarworldcasino.com/)
 

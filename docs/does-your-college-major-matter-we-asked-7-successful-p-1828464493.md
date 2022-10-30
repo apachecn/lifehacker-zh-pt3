@@ -1,6 +1,6 @@
 # 你的大学专业重要吗？我们询问了七位成功人士
 
-> 原文:[https://life hacker . com/do-your-college-major-matter-we-asked-7-successful-p-1828464493](https://lifehacker.com/does-your-college-major-matter-we-asked-7-successful-p-1828464493)
+> 原文：<https://lifehacker.com/does-your-college-major-matter-we-asked-7-successful-p-1828464493>
 
 选择专业可能感觉就像选择了你的整个人生道路。或者它可能感觉像一个占位符，而你想出你的狗屎。我们问了一些我们认识的最成功的人，Lifehacker 的 [我是如何工作的](https://lifehacker.com/c/how-i-work) 栏目的往期嘉宾，他们的专业是什么。他们告诉我们他们的专业是如何影响他们的职业生涯的——或者是否根本不重要。
 

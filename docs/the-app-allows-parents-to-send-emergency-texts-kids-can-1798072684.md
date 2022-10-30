@@ -1,6 +1,6 @@
 # 该应用程序允许父母发送孩子们不能忽视的紧急短信
 
-> 原文:[https://life hacker . com/the-app-allows-parents-send-emergency-texts-kids-can-1798072684](https://lifehacker.com/the-app-allows-parents-to-send-emergency-texts-kids-can-1798072684)
+> 原文：<https://lifehacker.com/the-app-allows-parents-to-send-emergency-texts-kids-can-1798072684>
 
 当你给你的孩子一部智能手机时，通常的想法是他或她会更容易联系到。事实上，在很多情况下，这会让你的孩子更容易联系他们的朋友，忽略你。一款名为[reply sap](https://www.facebook.com/replyasap/photos/a.1438399912892923.1073741828.1424627800936801/1438399579559623/?type=3&theater)的新应用为你解决了这个问题，让你可以发送短信，而你的孩子除了回复别无选择。
 

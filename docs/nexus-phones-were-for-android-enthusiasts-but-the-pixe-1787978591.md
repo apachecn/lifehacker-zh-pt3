@@ -1,6 +1,6 @@
 # Nexus 手机是为 Android 爱好者设计的，但像素是为所有人设计的
 
-> 原文:[https://life hacker . com/nexus-phones-was-for-the-but-the-PIXE-1787978591](https://lifehacker.com/nexus-phones-were-for-android-enthusiasts-but-the-pixe-1787978591)
+> 原文：<https://lifehacker.com/nexus-phones-were-for-android-enthusiasts-but-the-pixe-1787978591>
 
 评论已经出炉，大多数人认为，谷歌的新款 Pixel 手机 [非常棒](http://gizmodo.com/the-google-pixel-is-the-smartest-phone-ive-ever-held-1787382364#replies) 。它们也标志着 Nexus 系列的死亡。随着向像素的转移，谷歌正在将目光从 Nexus 设备的实验世界转向更大的世界，即无处不在的手机买家。
 

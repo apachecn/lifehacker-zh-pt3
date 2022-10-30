@@ -1,6 +1,6 @@
 # 苹果将免费修理你坏掉的 MacBook 键盘
 
-> 原文:[https://life hacker . com/apple-will-fix-your-busted-macbook-keyboard-for-free-1827068998](https://lifehacker.com/apple-will-fix-your-busted-macbook-keyboard-for-free-1827068998)
+> 原文：<https://lifehacker.com/apple-will-fix-your-busted-macbook-keyboard-for-free-1827068998>
 
 大约 4 个月前，我的 MacBook 上的左 Shift 键随机停止工作。我在工作中使用电脑，没有电脑我真的负担不起，所以现在我锻炼了一些我以前不知道自己曾经有过的右小指肌肉，并训练自己使用键盘右侧的 Shift 键。
 

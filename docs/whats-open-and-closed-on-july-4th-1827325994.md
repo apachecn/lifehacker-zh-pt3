@@ -1,6 +1,6 @@
 # 7 月 4 日开放和关闭的是什么
 
-> 原文:[https://life hacker . com/whats-open-and-closed-on-July-4-1827325994](https://lifehacker.com/whats-open-and-closed-on-july-4th-1827325994)
+> 原文：<https://lifehacker.com/whats-open-and-closed-on-july-4th-1827325994>
 
 7 月 4 日是国定假日，这意味着取决于你在哪里和你今天想做什么，你可能会也可能不会倒霉。像大多数国家假日一样，一些企业将关闭一天来庆祝，但其他企业应该继续运营。
 

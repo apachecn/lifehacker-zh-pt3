@@ -1,6 +1,6 @@
 # 如何让粘人的另一半给你一些独处的时间
 
-> 原文:[https://life hacker . com/how-to-get-your-clinky-significant-other-to-give-you so 1826393149](https://lifehacker.com/how-to-get-your-clingy-significant-other-to-give-you-so-1826393149)
+> 原文：<https://lifehacker.com/how-to-get-your-clingy-significant-other-to-give-you-so-1826393149>
 
 本周，我们有一位新婚女性，她渴望拥有一些属于自己的时间。她有办法让老公放过她吗？她的丈夫最终会让她平静地继续比赛吗？
 

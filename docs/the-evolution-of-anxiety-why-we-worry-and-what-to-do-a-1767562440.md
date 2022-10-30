@@ -1,6 +1,6 @@
 # 焦虑的演变:我们为什么担忧以及如何应对
 
-> 原文:[https://life hacker . com/the-evolution-of-anxiety-why-we-wary-and-do-a-1767562440](https://lifehacker.com/the-evolution-of-anxiety-why-we-worry-and-what-to-do-a-1767562440)
+> 原文：<https://lifehacker.com/the-evolution-of-anxiety-why-we-worry-and-what-to-do-a-1767562440>
 
 让我们暂时假设你是一只长颈鹿。你生活在非洲大草原上。你的脖子有 7 英尺长(2.1 米)。时不时地，你会发现一群人开着车在游猎，给你拍照。
 

@@ -1,6 +1,6 @@
 # 如何在你的节日晚宴上应对种族歧视的亲戚
 
-> 原文:[https://life hacker . com/how-to-deal-with-racistic-relatives-in-your-holiday-dinne-1820682032](https://lifehacker.com/how-to-deal-with-racist-relatives-at-your-holiday-dinne-1820682032)
+> 原文：<https://lifehacker.com/how-to-deal-with-racist-relatives-at-your-holiday-dinne-1820682032>
 
 与家人团聚过节的好处是与自去年以来就没见过面的亲人相聚。听到你姐姐的新工作，看着孩子们和他们的堂兄弟一起玩耍，咬紧牙关忍受你种族主义亲戚的糟糕评论，这是很可爱的。好的，等等——这实际上并不十分有趣。事实上，这是相当令人苦恼和沮丧的。
 

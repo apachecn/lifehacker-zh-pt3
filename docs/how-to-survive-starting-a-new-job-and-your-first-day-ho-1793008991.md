@@ -1,6 +1,6 @@
 # 如何在新工作中生存，Lifehacker 的新主编
 
-> 原文:[https://life hacker . com/how-to-survive-starting-a-new-job-and-your ' s-day-ho-1793008991](https://lifehacker.com/how-to-survive-starting-a-new-job-and-your-first-day-ho-1793008991)
+> 原文：<https://lifehacker.com/how-to-survive-starting-a-new-job-and-your-first-day-ho-1793008991>
 
 在本周的 *The Upgrade* 节目中，我们将讨论开始一份全新工作的挑战，并分享一些关于你糟糕的第一天的恐怖故事。这就像开学的第一天——但你的职业生涯岌岌可危。
 

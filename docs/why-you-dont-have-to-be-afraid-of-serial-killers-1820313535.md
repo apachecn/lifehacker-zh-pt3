@@ -1,6 +1,6 @@
 # 为什么你不必害怕连环杀手
 
-> 原文:[https://life hacker . com/why-you-don ' t-hawk-to-fear-1820313535](https://lifehacker.com/why-you-dont-have-to-be-afraid-of-serial-killers-1820313535)
+> 原文：<https://lifehacker.com/why-you-dont-have-to-be-afraid-of-serial-killers-1820313535>
 
 在现代社会中，没有比连环杀手更可怕的恶魔了。他们是无情的杀手，他们无处不在，他们在追杀你，对吗？不完全是。连环杀手是真实存在的，也是非常危险的，但是你遇到他们的几率几乎为零。
 

@@ -1,6 +1,6 @@
 # 提醒:你的氧气面罩应该盖住你的嘴和鼻子
 
-> 原文:[https://life hacker . com/reminder-your-oxygen-mask-should-go-over-your-mouth-an-1825387751](https://lifehacker.com/reminder-your-oxygen-mask-should-go-over-your-mouth-an-1825387751)
+> 原文：<https://lifehacker.com/reminder-your-oxygen-mask-should-go-over-your-mouth-an-1825387751>
 
 如果你曾经坐过飞机，你一定听过氧气面罩的故事。如果你从手机上抬起头来，你甚至会看到一名空乘人员演示如何戴上它。然而，最近乘坐西南航空公司航班的人仍然弄错了:
 

@@ -1,6 +1,6 @@
 # 在第二季首播前，西部世界有一个速成班
 
-> 原文:[https://gizmodo . com/heres-a-crash-course-in-west world-before-the-season-two-1825310513](https://gizmodo.com/heres-a-crash-course-in-westworld-before-the-season-two-1825310513)
+> 原文：<https://gizmodo.com/heres-a-crash-course-in-westworld-before-the-season-two-1825310513>
 
 通常我们将这类指南命名为“你需要知道的关于 XYZ 展的一切”但是 HBO 的《西部世界》不容易总结或解释。它的吸引力很大一部分在于它是如此的神秘，随着故事的展开，不断地提供线索和梳理谜团。为了充分欣赏第二季，最好先看第一季——最好是看两遍——但是如果时间是一个问题(或者如果你只是需要一个第一季复习)，这里有一个速成班。
 

@@ -1,6 +1,6 @@
 # 如何辨别你是否喜欢或关注了脸书上的俄罗斯“假新闻”页面
 
-> 原文:[https://life hacker . com/how-to-tell-if-your-like-of-following-Russian-fake-new-1821552510](https://lifehacker.com/how-to-tell-if-your-liked-of-followed-russian-fake-new-1821552510)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-liked-of-followed-russian-fake-new-1821552510>
 
 至此，俄罗斯试图通过社交媒体帖子影响 2016 年美国总统选举的意图已经很明显了。然而，你可能不知道的是，你个人是否最终看到了这些帖子。
 

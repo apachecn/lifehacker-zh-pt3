@@ -1,6 +1,6 @@
 # 扔掉东西的挑战
 
-> 原文:[https://life hacker . com/the-challenge-of-get-off-stuff-1758569263](https://lifehacker.com/the-challenge-of-getting-rid-of-stuff-1758569263)
+> 原文：<https://lifehacker.com/the-challenge-of-getting-rid-of-stuff-1758569263>
 
 我有比我需要的更多的东西。在过去的几年里，我有意识地努力减少我的财产。然而，当面对扔掉一个旧的棋盘游戏时，我自然会情不自禁地想，也许有一天我会需要它。为什么扔掉东西这么难？
 

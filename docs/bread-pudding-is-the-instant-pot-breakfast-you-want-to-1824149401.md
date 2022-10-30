@@ -1,6 +1,6 @@
 # 面包布丁是你想做的即食早餐
 
-> 原文:[https://life hacker . com/bread-pudding-is-the-instant-pot-bread-you-want-1824149401](https://lifehacker.com/bread-pudding-is-the-instant-pot-breakfast-you-want-to-1824149401)
+> 原文：<https://lifehacker.com/bread-pudding-is-the-instant-pot-breakfast-you-want-to-1824149401>
 
 速溶壶的热潮没有显示出放缓的迹象，如果你有一个多功能炊具，你可能需要速溶壶所有的东西。正如我们本周早些时候发现的，有些东西(煎饼)本来就不该被压熟 。但是一个温暖，甜蜜，像甜甜圈一样的早餐面包布丁？那做得相当好。
 

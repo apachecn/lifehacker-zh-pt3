@@ -1,6 +1,6 @@
 # 为什么你应该使用 VLC 每夜构建
 
-> 原文:[https://life hacker . com/why-you-should-be-use-VLC-nightly-builds-1820882625](https://lifehacker.com/why-you-should-be-using-vlc-nightly-builds-1820882625)
+> 原文：<https://lifehacker.com/why-you-should-be-using-vlc-nightly-builds-1820882625>
 
 VLC 是身边最受欢迎的媒体玩家之一。它可以在大多数平台上工作，几乎可以处理任何类型的文件。这几乎是完美的，但是你可以通过使用 [实验性夜间版本](https://nightlies.videolan.org/) 而不是官方版本来从 VLC 获得更多。
 

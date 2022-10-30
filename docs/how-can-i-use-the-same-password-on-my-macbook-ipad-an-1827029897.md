@@ -1,6 +1,6 @@
 # 如何在我的 MacBook、iPad 和 iPhone 上使用相同的密码？
 
-> 原文:[https://life hacker . com/how-can-I-use-the-same-password-on-my-macbook-ipad-an-1827029897](https://lifehacker.com/how-can-i-use-the-same-password-on-my-macbook-ipad-an-1827029897)
+> 原文：<https://lifehacker.com/how-can-i-use-the-same-password-on-my-macbook-ipad-an-1827029897>
 
 有时候，最好的技术问题并不是超级具体的，为什么这个做那个东西，现在吸烟帮助类的问题。本周，一位读者发来了一个相当普遍的问题，适用于所有人，因为它涉及到我们最喜欢的话题:密码。
 

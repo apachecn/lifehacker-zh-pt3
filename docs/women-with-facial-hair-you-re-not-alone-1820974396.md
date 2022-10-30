@@ -1,6 +1,6 @@
 # 有胡须的女性，你并不孤单
 
-> 原文:[https://life hacker . com/women-with-face-hair-you-re-not-alone-1820974396](https://lifehacker.com/women-with-facial-hair-you-re-not-alone-1820974396)
+> 原文：<https://lifehacker.com/women-with-facial-hair-you-re-not-alone-1820974396>
 
 下巴或上唇上有少许毛发的女性可能会觉得自己有问题——但这实际上很常见。莫娜·沙拉比 [在《卫报》](https://www.theguardian.com/fashion/2017/nov/30/female-facial-hair-if-so-many-women-have-it-why-are-we-so-deeply-ashamed) 写道，即使是决定你是否“多毛”的测量工具也有一些严重的问题。
 

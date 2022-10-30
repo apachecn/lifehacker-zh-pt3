@@ -1,6 +1,6 @@
 # 为什么您在预订航班时应该考虑座位大小
 
-> 原文:[https://life hacker . com/why-you-should-consider-why-you-should-when-booking-a-flight-1825755905](https://lifehacker.com/why-you-should-consider-seat-size-when-booking-a-flight-1825755905)
+> 原文：<https://lifehacker.com/why-you-should-consider-seat-size-when-booking-a-flight-1825755905>
 
 本周，捷蓝航空推出了一款专为 A320 经济舱设计的新机型，据称该机型将“把人类带回空中旅行”，这在很大程度上得益于其更大、更舒适的座位。
 

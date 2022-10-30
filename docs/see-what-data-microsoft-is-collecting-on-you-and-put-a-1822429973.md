@@ -1,6 +1,6 @@
 # 看看微软在收集你的什么数据，然后阻止它(也许)
 
-> 原文:[https://life hacker . com/see-what-data-Microsoft-is-collecting-on-you-put-a-1822429973](https://lifehacker.com/see-what-data-microsoft-is-collecting-on-you-and-put-a-1822429973)
+> 原文：<https://lifehacker.com/see-what-data-microsoft-is-collecting-on-you-and-put-a-1822429973>
 
 注重隐私的用户会很高兴听到微软对 Windows 10 的最新添加，它增加了数据收集方面的透明度，并最终让用户看到哪些信息正被发送给微软进行分析。Windows 诊断数据查看器 让用户更方便地看到微软正在收集什么数据，但实际上并不能帮助用户从一开始就阻止该公司染指这些数据。要停止数据收集，你需要一个不同版本的 Windows 10，一个你在当地百思买买不到的版本。
 

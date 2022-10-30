@@ -1,6 +1,6 @@
 # 最大的输家必须大量运动来保持体重
 
-> 原文:[https://life hacker . com/bigger-losers-has-to-exercise-to-t-keep-the-weight-1820085608](https://lifehacker.com/biggest-losers-have-to-exercise-a-ton-to-keep-the-weigh-1820085608)
+> 原文：<https://lifehacker.com/biggest-losers-have-to-exercise-a-ton-to-keep-the-weigh-1820085608>
 
 对于减肥来说，饮食通常比锻炼更重要，但事实证明，成功保持体重的最大输家参赛者 [不得不锻炼大量](https://www.nytimes.com/2017/10/31/health/biggest-losers-weight-loss.html?hp&action=click&pgtype=Homepage&clickSource=story-heading&module=second-column-region&region=top-news&WT.nav=top-news&_r=1)*。但是如果你和我都不是最大输家的参赛者，这对我们有什么意义吗？* 
 

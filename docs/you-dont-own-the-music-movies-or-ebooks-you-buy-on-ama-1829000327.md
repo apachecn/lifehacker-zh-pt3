@@ -1,6 +1,6 @@
 # 你并不拥有在亚马逊或 iTunes 上“购买”的音乐、电影或电子书
 
-> 原文:[https://life hacker . com/you-don-own-the-music-movies-or-ebooks-you-buy-on-ama-1829000327](https://lifehacker.com/you-dont-own-the-music-movies-or-ebooks-you-buy-on-ama-1829000327)
+> 原文：<https://lifehacker.com/you-dont-own-the-music-movies-or-ebooks-you-buy-on-ama-1829000327>
 
 当你从亚马逊或苹果的 iTunes 商店购买音乐、电影或书籍时，你可能会有这样的印象:这些材料是你永远可以享用的；毕竟，这就是 CD 和纸质书的工作原理。为什么每隔几个月就要花 3.99 美元去租《电子邮件》呢？你可以花 9.99 美元“拥有”它，随时随地观看它。
 

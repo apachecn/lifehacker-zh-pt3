@@ -1,6 +1,6 @@
 # 究竟是什么让 1200 美元的显卡物有所值？
 
-> 原文:[https://gizmodo . com/what-on-earth-makes-a-1-200-NVIDIA-2080-ti-graphics-ca-1829126369](https://gizmodo.com/what-on-earth-makes-a-1-200-nvidia-2080-ti-graphics-ca-1829126369)
+> 原文：<https://gizmodo.com/what-on-earth-makes-a-1-200-nvidia-2080-ti-graphics-ca-1829126369>
 
 Nvidia 希望你花同样的钱购买其最新的顶级显卡 RTX 2080 Ti，就像你购买一台全新的电脑一样。你可以用同样 1200 美元的价格买到一台很棒的笔记本电脑或非常坚固的台式机。你可以买几个 PS4 或者 Xbox 的！你可以买一部 iPhone X 或者三星 Note 9。重点是，你可以花 1200 美元买很多不同的功能比显卡更强的小玩意——所以这到底值不值？
 

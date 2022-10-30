@@ -1,6 +1,6 @@
 # 如何举办一场精彩的“朋友聚会”
 
-> 原文:[https://life hacker . com/how-to-host a-kick-ass-friends giving-1820390933](https://lifehacker.com/how-to-host-a-kick-ass-friendsgiving-1820390933)
+> 原文：<https://lifehacker.com/how-to-host-a-kick-ass-friendsgiving-1820390933>
 
 所以，你不能回家过感恩节了。艰难的突破。与其在吃着用眼泪调味的微波炉晚餐时借酒浇愁，不如找些人一起过“朋友感恩节”不管怎样，这可能比和家人一起过真正的感恩节要好得多。
 

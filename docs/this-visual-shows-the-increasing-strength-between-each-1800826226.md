@@ -1,6 +1,6 @@
 # 这张图片显示了每一个飓风等级之间不断增强的强度
 
-> 原文:[https://life hacker . com/this-visual-shows-the-increasing-strength-between-each-1800826226](https://lifehacker.com/this-visual-shows-the-increasing-strength-between-each-1800826226)
+> 原文：<https://lifehacker.com/this-visual-shows-the-increasing-strength-between-each-1800826226>
 
 飓风哈维于 8 月 25 日袭击了得克萨斯州海岸，成为 4 级飓风[。](http://www.weather.gov/crp/hurricane_harvey) 
 

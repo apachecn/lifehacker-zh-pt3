@@ -1,6 +1,6 @@
 # 如何在夏天点燃最好的篝火
 
-> 原文:[https://life hacker . com/how-to-have-the-best-fire of the-summer-1797041818](https://lifehacker.com/how-to-have-the-best-bonfire-of-the-summer-1797041818)
+> 原文：<https://lifehacker.com/how-to-have-the-best-bonfire-of-the-summer-1797041818>
 
 篝火几乎是夏天和初秋的传统。你可能认为它们很容易在几分钟内扔在一起，但多做一点努力就会把一个普通的篝火聚会变成一个你和你的朋友会深情地记住的聚会。
 

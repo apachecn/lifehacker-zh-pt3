@@ -1,6 +1,6 @@
 # 谷歌的 Pixel 2 和它的前辈相比如何？
 
-> 原文:[https://life hacker . com/how-does-Google-s-pixel-2-stack-up-to-its-predecessor-1819148085](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085)
+> 原文：<https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085>
 
 今天，谷歌宣布推出 Pixel 2 和 Pixel 2 XLT3，这是其最初的 Pixel 智能手机的续集。除了 Pixel 2 XL 的屏幕更大之外，这两款手机似乎是一样的，它们都运行 Android 8.0。你可能会考虑从最初的 Pixel 升级到 Pixel 2，但在你为 10 月 19 日上市的最便宜的 64GB 机型支付 649 美元之前，先看看自 Pixel 去年 10 月首次亮相以来有什么变化。
 

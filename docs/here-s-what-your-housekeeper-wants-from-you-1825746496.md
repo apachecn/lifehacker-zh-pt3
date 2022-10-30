@@ -1,6 +1,6 @@
 # 这是你的管家对你的要求
 
-> 原文:[https://life hacker . com/here-s-what-your-house-want-from-you-1825746496](https://lifehacker.com/here-s-what-your-housekeeper-wants-from-you-1825746496)
+> 原文：<https://lifehacker.com/here-s-what-your-housekeeper-wants-from-you-1825746496>
 
 在我们的帖子 [如何在管家到来之前打扫卫生](https://lifehacker.com/how-to-clean-up-for-the-house-cleaner-1825178756) 之后，读者们想知道更多关于如何雇用清洁工以及如何处理任何敏感或尴尬的情况。我们采访了圣安东尼奥清洁公司 C & B 设施服务公司的老板 Beatriz Rojas，她回答了我们所有的问题。
 

@@ -1,6 +1,6 @@
 # 是时候让 Pokémon GO 卷土重来了
 
-> 原文:[https://life hacker . com/its-time-for-pokemon-go-make-up-1825599339](https://lifehacker.com/its-time-for-pokemon-go-to-make-a-comeback-1825599339)
+> 原文：<https://lifehacker.com/its-time-for-pokemon-go-to-make-a-comeback-1825599339>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在摆脱我们的脸书新闻订阅，涉足服装租赁，放弃不良书籍，彻底清理我们的财务生活。
 

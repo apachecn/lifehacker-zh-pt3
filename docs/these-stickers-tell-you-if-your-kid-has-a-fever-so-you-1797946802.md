@@ -1,6 +1,6 @@
 # 这些贴纸会告诉你你的孩子是否发烧，这样你就不用叫醒他们了
 
-> 原文:[https://life hacker . com/these-stickers-tell-you if-you ' s-kid-a-fever-so-you 1797946802](https://lifehacker.com/these-stickers-tell-you-if-your-kid-has-a-fever-so-you-1797946802)
+> 原文：<https://lifehacker.com/these-stickers-tell-you-if-your-kid-has-a-fever-so-you-1797946802>
 
 有好几次，当我四岁的女儿睡着时，我和丈夫在她上空盘旋，困惑地摸着她的额头。“她觉得热吗？我觉得她觉得热。”“不，她可能只是因为所有的毯子而感到温暖。”“不，摸摸她——她真的很温暖。要不要叫醒她，给她量量体温？”“不，就让她一个人呆着吧。”"好吧，我就站在这里看看。"(是的，她是第一个也是唯一的孩子。你怎么知道的？)
 

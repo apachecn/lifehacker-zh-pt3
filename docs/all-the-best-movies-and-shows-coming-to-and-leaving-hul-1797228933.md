@@ -1,6 +1,6 @@
 # 2017 年 8 月进出 Hulu 的所有最好的电影和节目
 
-> 原文:[https://life hacker . com/all-the-best-movies-and-shows-coming-to-and-leaving-hul-1797228933](https://lifehacker.com/all-the-best-movies-and-shows-coming-to-and-leaving-hul-1797228933)
+> 原文：<https://lifehacker.com/all-the-best-movies-and-shows-coming-to-and-leaving-hul-1797228933>
 
 当我们在等待本月晚些时候的日食时，我们会在 8 月份躲在空调里等得不耐烦，赶着看一批新的电影和电视节目，这些电影和电视节目将在 1 号开始播放。下面是 Hulu 在三伏天的新产品:
 

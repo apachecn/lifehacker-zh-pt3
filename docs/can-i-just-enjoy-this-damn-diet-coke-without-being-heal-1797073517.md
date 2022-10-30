@@ -1,6 +1,6 @@
 # 我能享受这该死的健怡可乐而不感到健康羞耻吗？
 
-> 原文:[https://life hacker . com/can-I-just-enjoy-this-damn-diet-coke-without-be-heal-1797073517](https://lifehacker.com/can-i-just-enjoy-this-damn-diet-coke-without-being-heal-1797073517)
+> 原文：<https://lifehacker.com/can-i-just-enjoy-this-damn-diet-coke-without-being-heal-1797073517>
 
 又是一天，又是一篇 [扫兴的文章](https://www.thecut.com/2017/07/artificial-sweeteners-can-cause-weight-gain.html) 在说我最真爱的垃圾:健怡可乐。根据*的削减*，我最喜欢的非酒精饮料(也是第一大能量来源)可能正在慢慢杀死我:
 

@@ -1,6 +1,6 @@
 # 大豆芥末黄油蘑菇——5 种配料，10 分钟，经典速食
 
-> 原文:[https://the take out . com/soy-wasabi-黄油-蘑菇-5-配料-10 分钟-1820650677](https://thetakeout.com/soy-wasabi-butter-mushrooms-5-ingredients-10-minutes-1820650677)
+> 原文：<https://thetakeout.com/soy-wasabi-butter-mushrooms-5-ingredients-10-minutes-1820650677>
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 

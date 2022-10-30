@@ -1,6 +1,6 @@
 # 烹饪芦笋的最佳方法已有 2000 年历史
 
-> 原文:[https://the take out . com/the-best-method for cooking-asparatus-is-2000-years-ol-1825477576](https://thetakeout.com/the-best-method-for-cooking-asparagus-is-2-000-years-ol-1825477576)
+> 原文：<https://thetakeout.com/the-best-method-for-cooking-asparagus-is-2-000-years-ol-1825477576>
 
 我曾经认为我不喜欢芦笋，但结果是——[，因为这些厌恶往往是](https://thetakeout.com/what-perfectly-normal-food-can-you-just-not-stand-1825278308)——一个质地问题。即使有一半的茎和茎尖变成了糊状，它们的茎仍然保持纤维状和韧性。几年前，我的想法发生了变化，当时我点的一些餐馆菜肴配有一份令人愉快的芦笋沙拉，芦笋尖嫩而不软。
 

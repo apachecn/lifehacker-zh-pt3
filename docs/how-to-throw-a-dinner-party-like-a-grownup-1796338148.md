@@ -1,6 +1,6 @@
 # 如何像成年人一样举办晚宴
 
-> 原文:[https://life hacker . com/how-to-throw-a-dinner-party-like-a-grown-1796338148](https://lifehacker.com/how-to-throw-a-dinner-party-like-a-grownup-1796338148)
+> 原文：<https://lifehacker.com/how-to-throw-a-dinner-party-like-a-grownup-1796338148>
 
 如果你曾经举办过晚宴(或早午餐聚会，或午宴),你就会知道这不仅仅是简单地烹饪一堆食物。人们需要用来吃饭的盘子，用来擦脸的布，以及用来放置臀部的家具。虽然没有什么比食物更重要，但细节才是派对的真正亮点。
 

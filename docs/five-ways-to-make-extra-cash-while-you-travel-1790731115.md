@@ -1,6 +1,6 @@
 # 旅行时赚外快的五种方法
 
-> 原文:[https://life hacker . com/five-way-to-make-extra-cash-while you-travel-1790731115](https://lifehacker.com/five-ways-to-make-extra-cash-while-you-travel-1790731115)
+> 原文：<https://lifehacker.com/five-ways-to-make-extra-cash-while-you-travel-1790731115>
 
 有些工作天生就需要出差，比如在国外教一门语言 [](http://lifehacker.com/how-to-book-a-1700-vacation-for-700-by-volunteering-5877393#_ga=1.155627323.1268082208.1431441811)或者从事销售。但是，如果你想以旅行为乐，并在此过程中赚取一些额外的现金，也有一些选择。你不会因为这些兼职而变得富有，但是他们可能会为你支付一顿丰盛的晚餐或者博物馆门票。
 

@@ -1,6 +1,6 @@
 # 为什么失败是一个有用的厨房工具
 
-> 原文:[https://life hacker . com/why-failure-is-a-useful-kitchen-tool-1797643711](https://lifehacker.com/why-failure-is-a-useful-kitchen-tool-1797643711)
+> 原文：<https://lifehacker.com/why-failure-is-a-useful-kitchen-tool-1797643711>
 
 这几天家庭厨师的压力似乎很大。光喂你的家人吃鸡胸肉是不够的——你应该喂他们自由放养的、有机的、多汁的鸡胸肉，这些鸡胸肉是用 腌制的 [烹饪的，配有](http://lifehacker.com/tag/will-it-sous-vide) [蔬菜，这些蔬菜是你从精选的厨余](http://lifehacker.com/save-surprising-kitchen-scraps-to-grow-infinite-food-537447587#_ga=2.246524100.1987194194.1502114657-1823898594.1500911226) 中挑选出来的。这种完美主义的氛围正渗透到美食写作和家常菜文化中，每个人都努力日复一日地做出一贯完美的饭菜。
 

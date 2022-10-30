@@ -1,6 +1,6 @@
 # 这是你能买到的最好的游戏控制器
 
-> 原文:[https://gizmodo . com/this-is-the-best-gaming-controller-you-can-buy-1820448842](https://gizmodo.com/this-is-the-best-gaming-controller-you-can-buy-1820448842)
+> 原文：<https://gizmodo.com/this-is-the-best-gaming-controller-you-can-buy-1820448842>
 
 我忍住了把控制器扔到房间另一边的冲动，再次尝试去击败第一个该死的关卡 *Cuphead* 。我一直在尝试使用迄今为止最好的 PC 游戏控制器之一， [微软 Xbox One Elite](https://gizmodo.com/the-xbox-elite-controller-looks-great-so-we-took-a-cra-1738027420) 。但这并没有发生。然后我切换到雷蛇的可笑命名 [金刚狼终极版。Razer 控制器上的按钮似乎有相同的响应时间，但它们也有很好的咬合，按起来更舒服。我终于打败了关卡。](https://www.razerzone.com/gaming-controllers/razer-wolverine-ultimate-for-xbox-one)
 

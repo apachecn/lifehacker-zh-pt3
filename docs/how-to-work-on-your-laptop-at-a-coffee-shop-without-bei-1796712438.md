@@ -1,6 +1,6 @@
 # 如何在咖啡店里用笔记本电脑工作而不成为一个混蛋
 
-> 原文:[https://life hacker . com/how-to-work-on-your-laptop-at-a-a-coffee-shop without-Bei-1796712438](https://lifehacker.com/how-to-work-on-your-laptop-at-a-coffee-shop-without-bei-1796712438)
+> 原文：<https://lifehacker.com/how-to-work-on-your-laptop-at-a-coffee-shop-without-bei-1796712438>
 
 从咖啡店的对面，我注意到一位先生拿着一台电脑走进来。提醒你，不是笔记本电脑。他用双手拿着一个完整的桌面，包括显示器和控制台。他肯定不是...我心想——但我错了。他把机器扑通一声放在桌子上，插上电源，点了他的咖啡，而我们其他人则惊恐地看着。
 

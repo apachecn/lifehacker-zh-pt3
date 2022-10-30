@@ -1,6 +1,6 @@
 # 如何保护自己免受支票诈骗
 
-> 原文:[https://life hacker . com/how-to-protect-yourself from-check-fraud-1825610733](https://lifehacker.com/how-to-protect-yourself-from-check-fraud-1825610733)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-check-fraud-1825610733>
 
 大约一周前，我遭到了支票诈骗。有人截获了我寄给房东的一张支票，修改了除我签名之外的每一行，拿走了我用来交税的 1 万美元。以下是我学到的东西。
 

@@ -1,6 +1,6 @@
 # 如何制作可启动的 macOS Sierra USB 安装驱动器
 
-> 原文:[https://life hacker . com/how-to-make-a-bootable-MAC OS-Sierra-USB-flash-drive-1786853248](https://lifehacker.com/how-to-make-a-bootable-macos-sierra-usb-flash-drive-1786853248)
+> 原文：<https://lifehacker.com/how-to-make-a-bootable-macos-sierra-usb-flash-drive-1786853248>
 
 如果你想全新安装 [macOS Sierra](http://lifehacker.com/all-the-new-stuff-in-macos-sierra-1786817117) ，或者你有多台 MAC 要安装它，那么一个可启动的闪存驱动器是你轻松安装的最佳选择。下面是制作一个的方法。
 

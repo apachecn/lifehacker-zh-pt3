@@ -1,6 +1,6 @@
 # DJI Mavic 2 是我们新宠的无人机
 
-> 原文:[https://gizmodo . com/the-DJI-mavic-2-is-our-new-favorite-drone-1828681251](https://gizmodo.com/the-dji-mavic-2-is-our-new-favorite-drone-1828681251)
+> 原文：<https://gizmodo.com/the-dji-mavic-2-is-our-new-favorite-drone-1828681251>
 
 DJI Mavic 背后的想法是，任何冒险家都可以用一架小型无人机进行专业级的航空摄影。这可能就是为什么该公司将原始模型称为 Mavic Pro，即使 [无人机有其缺点](https://gizmodo.com/the-dji-mavic-pro-is-so-close-to-terrific-1789011075#_ga=2.232864798.1813208191.1536084744-2135808592.1525885870) 。然而，对于 Mavic 2 系列，随着定义每个新型号的可互换相机系统的引入，这一主张变得更加有趣。这一点，加上一些细微但有意义的设计升级，使 DJI 的新旗舰无人机兑现了旧的承诺。
 

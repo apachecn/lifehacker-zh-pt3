@@ -1,6 +1,6 @@
 # Google Home 现在可以大声朗读烹饪指南了
 
-> 原文:[https://life hacker . com/Google-home-will-now-read-cooking-directions-out-loud-1794669057](https://lifehacker.com/google-home-will-now-read-cooking-directions-out-loud-1794669057)
+> 原文：<https://lifehacker.com/google-home-will-now-read-cooking-directions-out-loud-1794669057>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-GdVGynGWQ2Y&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-GdVGynGWQ2Y&start=0) 
 

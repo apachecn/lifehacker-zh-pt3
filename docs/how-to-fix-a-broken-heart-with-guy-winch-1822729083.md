@@ -1,6 +1,6 @@
 # 心理学家盖伊·温奇的《如何修复一颗破碎的心》
 
-> 原文:[https://life hacker . com/how-to-fix-a-broken-heart with guy-winch-1822729083](https://lifehacker.com/how-to-fix-a-broken-heart-with-guy-winch-1822729083)
+> 原文：<https://lifehacker.com/how-to-fix-a-broken-heart-with-guy-winch-1822729083>
 
 在本周的节目中，我们将谈论心碎。你怎么知道你的心什么时候碎了？你能做些什么呢？你如何帮助你生命中心碎的人？我们的专家嘉宾是盖伊·温奇，著名的 [TED 演讲者](https://www.ted.com/speakers/guy_winch) 以及即将出版的新书 [*如何修复一颗破碎的心*](https://www.amazon.com/How-Fix-Broken-Heart-Books/dp/1501120123?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-fix-a-broken-heart-with-guy-winch-1822729083&asc_source=&tag=kinjalifehackerlink-20) 的作者。
 

@@ -1,6 +1,6 @@
 # 如何在三周内策划一场婚礼
 
-> 原文:[https://life hacker . com/how-to-plan-a wedding-three-weeks-1823958175](https://lifehacker.com/how-to-plan-a-wedding-in-three-weeks-1823958175)
+> 原文：<https://lifehacker.com/how-to-plan-a-wedding-in-three-weeks-1823958175>
 
 如果你花了一生的时间梦想结婚，穿着象牙公主礼服搭配蕾丝大教堂婚纱，被 500 个你最亲密的朋友包围，这不是给你的博客。但是，如果你喜欢在你的婚礼当天和婚礼前的这段时间过得开心，请继续读下去。
 

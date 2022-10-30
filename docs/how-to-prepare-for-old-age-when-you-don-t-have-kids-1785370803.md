@@ -1,6 +1,6 @@
 # 当你没有孩子时，如何为老年做准备
 
-> 原文:[https://life hacker . com/how-to-prepare for the old-age when you don ' t-hacket-1785370803](https://lifehacker.com/how-to-prepare-for-old-age-when-you-don-t-have-kids-1785370803)
+> 原文：<https://lifehacker.com/how-to-prepare-for-old-age-when-you-don-t-have-kids-1785370803>
 
 一般来说，如果你有了孩子，在你的黄金岁月之后，有人会照顾你。然而，并不是每个人都有孩子，如果你没有，那就由你来为自己的养老做准备。现在就计划很重要。
 

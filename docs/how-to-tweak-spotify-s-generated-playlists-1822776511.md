@@ -1,6 +1,6 @@
 # 如何调整 Spotify 生成的播放列表
 
-> 原文:[https://life hacker . com/how-to-tweak-Spotify-s-generated-playlists-1822776511](https://lifehacker.com/how-to-tweak-spotify-s-generated-playlists-1822776511)
+> 原文：<https://lifehacker.com/how-to-tweak-spotify-s-generated-playlists-1822776511>
 
 Spotify 的算法生成的播放列表在尝试，但它们并不总是命中目标。如果你想稍微改变一下食谱，可以试试 Spotify 播放列表生成器 [Nelson](https://nelson.glitch.me/) ，它可以让你根据你喜欢的音乐类型(或音乐元素)定制播放列表上显示的内容。
 

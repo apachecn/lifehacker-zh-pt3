@@ -1,6 +1,6 @@
 # 当你的国会议员的电话被挂断时，如何联系他们
 
-> 原文:[https://life hacker . com/how-to-get-through-to-your-member-of-congress-thei-1792084662](https://lifehacker.com/how-to-get-through-to-your-member-of-congress-when-thei-1792084662)
+> 原文：<https://lifehacker.com/how-to-get-through-to-your-member-of-congress-when-thei-1792084662>
 
 现在很难联系到你们的代表。他们的办公室关门了，电话响个不停。作为一个关心的公民，你怎样才能让人们理解你的信息呢？为了找到答案，我们采访了一些员工。
 

@@ -1,6 +1,6 @@
 # 一旦你赚了钱，贫穷的感觉就不会停止
 
-> 原文:[https://life hacker . com/feeling-poor-donts-stop-once-you-make-money-1782728048](https://lifehacker.com/feeling-poor-doesnt-stop-once-you-make-money-1782728048)
+> 原文：<https://lifehacker.com/feeling-poor-doesnt-stop-once-you-make-money-1782728048>
 
 从我在沃尔玛找到第一份推车工作的那一天起，我花了几年时间从一份薪水支票过到下一份。我徘徊在贫困线上下，希望能撑到下个月的房租。当时感觉很正常。直到我开始赚更多的钱后，我才意识到过着贫穷的生活给我留下的心理伤痕。
 

@@ -1,6 +1,6 @@
 # 如何开始使用 Linux 的 Windows 子系统
 
-> 原文:[https://life hacker . com/how-to-get-started-with-the-windows-subsystem-for-Linux-1828952698](https://lifehacker.com/how-to-get-started-with-the-windows-subsystem-for-linux-1828952698)
+> 原文：<https://lifehacker.com/how-to-get-started-with-the-windows-subsystem-for-linux-1828952698>
 
 Linux 用户可能对 Wine 很熟悉——一种允许 Windows 软件在 Linux 上运行的软件。
 

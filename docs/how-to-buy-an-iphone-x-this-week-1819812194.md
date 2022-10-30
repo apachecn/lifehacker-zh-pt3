@@ -1,6 +1,6 @@
 # 如何在本周购买一部 iPhone X
 
-> 原文:[https://life hacker . com/how-to-buy-an-iphone-x-this-week-1819812194](https://lifehacker.com/how-to-buy-an-iphone-x-this-week-1819812194)
+> 原文：<https://lifehacker.com/how-to-buy-an-iphone-x-this-week-1819812194>
 
 苹果公司的千元智能手机 iPhone X 将于 11 月 3 日星期五发布。如果你在等待合适的时机购买，本周就是时候了。苹果刚刚透露了如何在第一轮销售中拿到手机(或者至少尝试一下)。根据你的首选购买方法，面部扫描、有凹槽的 iOS 设备可能是你的，而你不必去真正的苹果零售店。
 

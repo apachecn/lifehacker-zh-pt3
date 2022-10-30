@@ -1,6 +1,6 @@
 # 自由职业者应该了解哪些 SEP-IRA
 
-> 原文:[https://life hacker . com/what-to-know-about-sep-iras-for-freelancers-1823244717](https://lifehacker.com/what-to-know-about-sep-iras-for-freelancers-1823244717)
+> 原文：<https://lifehacker.com/what-to-know-about-sep-iras-for-freelancers-1823244717>
 
 当你是一名自由职业者时，你会有一大堆事情要担心:季度税、给客户开发票、赶走让你分心的室友，以及忙着交下个月的房租。虽然钱可能会很紧张( [)财务不稳定是自由职业生活的诅咒之一](https://twocents.lifehacker.com/what-you-need-to-thrive-in-the-gig-economy-1823228527) )但你仍然需要为退休留出一些钱——没有雇主会自动录取你。
 

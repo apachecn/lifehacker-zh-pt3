@@ -1,6 +1,6 @@
 # 空中瑜伽初学者指南
 
-> 原文:[https://life hacker . com/a-初学者-空中瑜伽指南-1814429418](https://lifehacker.com/a-beginners-guide-to-aerial-yoga-1814429418)
+> 原文：<https://lifehacker.com/a-beginners-guide-to-aerial-yoga-1814429418>
 
 不管你是否熟悉瑜伽，在空中做瑜伽的想法看起来...奇怪。但不用担心:“空中瑜伽”并不意味着你要在空中飞人上做下犬式。相反，你会被一个柔软的吊床支撑着，这让你的身体让重力做一些工作。
 

@@ -1,6 +1,6 @@
 # 让你的孩子写一封愤怒的信来平息他的怒气
 
-> 原文:[https://life hacker . com/have-your-kid-write-an-angry-letter-defuse-a-tantrum-1824266420](https://lifehacker.com/have-your-kid-write-an-angry-letter-to-defuse-a-tantrum-1824266420)
+> 原文：<https://lifehacker.com/have-your-kid-write-an-angry-letter-to-defuse-a-tantrum-1824266420>
 
 防止发脾气最有效的工具是什么？不，这不是让 YouTube 上的孩子们分散注意力，也不是让冰淇淋成为贿赂，也不是把自己锁在浴室里直到听到“*但我想用筷子喝汤！”*平息。相反，为了帮助你的孩子在崩溃中控制自己的情绪，你可能只需要一支笔和一些纸。
 

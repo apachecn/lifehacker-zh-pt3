@@ -1,6 +1,6 @@
 # 请不要把脚放在仪表板上
 
-> 原文:[https://jalopnik . com/please-do-not-ever-don ' t-rest-your-feet-on the dashboard-please-1797683124](https://jalopnik.com/please-do-not-ever-rest-your-feet-on-the-dashboard-plea-1797683124)
+> 原文：<https://jalopnik.com/please-do-not-ever-rest-your-feet-on-the-dashboard-plea-1797683124>
 
 佐治亚州的一名妇女给所有想在夏天结束前最后一次长途驾车旅行的自驾游者带来了一条重要信息:把你该死的脚从仪表板上拿开。
 

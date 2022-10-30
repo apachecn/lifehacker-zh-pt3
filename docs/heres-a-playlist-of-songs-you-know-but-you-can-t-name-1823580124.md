@@ -1,6 +1,6 @@
 # 这是你知道但叫不出名字的歌曲列表
 
-> 原文:[https://life hacker . com/heres-a-playlist-of-songs-you-know-but-you-can-t-name-1823580124](https://lifehacker.com/heres-a-playlist-of-songs-you-know-but-you-can-t-name-1823580124)
+> 原文：<https://lifehacker.com/heres-a-playlist-of-songs-you-know-but-you-can-t-name-1823580124>
 
 嘿，那首歌是什么歌？ [询问元过滤评论者命名的 52 首不同的曲子](https://ask.metafilter.com/319752/What-songs-does-everyone-recognize-but-not-know) ，大部分是古典和大乐队，你会立即认出它们，但可能难以命名。我们将它们组合成一个 Spotify 播放列表，还有来自 [这里](https://ask.metafilter.com/302983/You-may-not-know-them-by-name-but-youll-almost-certainly-know-them) 和 [这里](https://ask.metafilter.com/123779/What-Is-That-Song-They-Always-Use) 的歌曲。
 

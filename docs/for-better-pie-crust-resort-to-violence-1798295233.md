@@ -1,6 +1,6 @@
 # 为了更好的馅饼皮，诉诸暴力
 
-> 原文:[https://life hacker . com/for-better-pie-地壳-诉诸暴力-1798295233](https://lifehacker.com/for-better-pie-crust-resort-to-violence-1798295233)
+> 原文：<https://lifehacker.com/for-better-pie-crust-resort-to-violence-1798295233>
 
 不把耐心列为配料的馅饼皮食谱应该被认为是虚假广告。虽然我是一个非常没有耐心的人，但我坚持自己做馅饼皮，因为我对馅饼的热爱显然超过了我对等待的厌恶。多年来，我已经知道如何制作酥皮糕点，而不需要等待太久，关键是用擀面杖把冷冻面团打出来。
 

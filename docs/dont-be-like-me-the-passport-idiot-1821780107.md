@@ -1,6 +1,6 @@
 # 不要像我一样，护照白痴
 
-> 原文:[https://deadspin . com/don ' t-be-like-me-the-passport-idiot-1821780107](https://deadspin.com/dont-be-like-me-the-passport-idiot-1821780107)
+> 原文：<https://deadspin.com/dont-be-like-me-the-passport-idiot-1821780107>
 
 圣诞节晚上，我和妻子去了机场。我们准备飞往阿姆斯特丹，在接下来的八天里，我们将在荷兰和比利时的各个城市享受节日假期。可惜他们没让我这个笨蛋上飞机！
 

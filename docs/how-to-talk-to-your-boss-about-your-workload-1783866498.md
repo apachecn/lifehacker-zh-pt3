@@ -1,6 +1,6 @@
 # 如何和老板谈论你的工作量
 
-> 原文:[https://life hacker . com/how-to-talk to-your boss-your-workload-1783866498](https://lifehacker.com/how-to-talk-to-your-boss-about-your-workload-1783866498)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-boss-about-your-workload-1783866498>
 
 在一个理想的世界里，你会有大量的工作来填满你的一天。但是让我们现实一点:你出现并被安排了准确数量的任务的可能性很小。更有可能的是，你会(至少有时)感到不知所措、未被充分利用或彻底厌倦。
 

@@ -1,6 +1,6 @@
 # 十月的金钱挑战:为你的假日消费做准备
 
-> 原文:[https://life hacker . com/October-s-money-challenge-prepare-for-your-holiday-SPE-1787301021](https://lifehacker.com/october-s-money-challenge-prepare-for-your-holiday-spe-1787301021)
+> 原文：<https://lifehacker.com/october-s-money-challenge-prepare-for-your-holiday-spe-1787301021>
 
 今年，我们大部分的金钱挑战都集中在储蓄上，从你的 [手机](http://twocents.lifehacker.com/how-d-you-do-during-the-september-money-challenge-1787255300)到你的 [餐馆消费](https://lifehacker.com/januarys-money-challenge-no-restaurant-spending-1749975621) 到你的 [债务利息](http://twocents.lifehacker.com/may-s-money-challenge-save-money-on-interest-1773934342) 。这个月，我们抛出了一个不同的挑战:想出一个假日消费计划。
 

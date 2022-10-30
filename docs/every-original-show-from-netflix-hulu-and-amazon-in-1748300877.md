@@ -1,6 +1,6 @@
 # 来自网飞、Hulu 和亚马逊的每一个原创节目都有三张图片
 
-> 原文:[https://life hacker . com/every-original-show-from-网飞-Hulu-and-Amazon-in-1748300877](https://lifehacker.com/every-original-show-from-netflix-hulu-and-amazon-in-1748300877)
+> 原文：<https://lifehacker.com/every-original-show-from-netflix-hulu-and-amazon-in-1748300877>
 
 你不必为了放弃有线电视而牺牲好电视。事实上，一些 [最好的电视](http://io9.com/marvels-jessica-jones-is-the-character-focused-superher-1743517949) 和 [左右的电影](http://io9.com/the-trailer-for-crouching-tiger-hidden-dragon-sword-o-1746643310) 只在流媒体服务上提供。我们整理了一份庞大的名单，上面列有网飞、Hulu 和亚马逊 Prime 即时视频独家原创的节目和电影。
 

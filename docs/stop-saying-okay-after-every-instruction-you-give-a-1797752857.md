@@ -1,6 +1,6 @@
 # 别再说“好吗？”在你给孩子的每一次指导之后
 
-> 原文:[https://life hacker . com/stop-say-okay-after-every-instruction-you-give-a-1797752857](https://lifehacker.com/stop-saying-okay-after-every-instruction-you-give-a-1797752857)
+> 原文：<https://lifehacker.com/stop-saying-okay-after-every-instruction-you-give-a-1797752857>
 
 你有没有在操场上偷听过其他家长的话？他们有时听起来是不是有点，呃，软弱无力？“苏菲，我们不朝朋友扔沙子，好吗？”或者，“德克兰，现在该走了，好吗？”或者，“玛姬，别管那狗屎了，好吗？便便难吃，*还好吧*？”
 

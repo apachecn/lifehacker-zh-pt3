@@ -1,6 +1,6 @@
 # 我是布基球的发明者克雷格·祖克，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-bucky balls-inventor-Craig-zucker-and-this-is-how-I-1821747489](https://lifehacker.com/im-buckyballs-inventor-craig-zucker-and-this-is-how-i-1821747489)
+> 原文：<https://lifehacker.com/im-buckyballs-inventor-craig-zucker-and-this-is-how-i-1821747489>
 
 连续创业家克雷格·祖克(Craig Zucker)因创造了最著名的稀土磁铁玩具品牌而闻名，用户可以将其堆叠成几何形状，或像模块化金属应力球一样四处捣碎。
 

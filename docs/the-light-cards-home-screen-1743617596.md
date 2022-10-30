@@ -1,6 +1,6 @@
 # 光卡主页屏幕
 
-> 原文:[https://life hacker . com/the-light-cards-home-screen-1743617596](https://lifehacker.com/the-light-cards-home-screen-1743617596)
+> 原文：<https://lifehacker.com/the-light-cards-home-screen-1743617596>
 
 一个好的，有条理的主屏幕布局可以让你的手机感觉更好用。这个设计使用了一些动画来强调它柔和而简单的界面。
 

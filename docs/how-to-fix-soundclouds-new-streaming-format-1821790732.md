@@ -1,6 +1,6 @@
 # 如何修复 SoundCloud 的新流媒体格式
 
-> 原文:[https://life hacker . com/how-to-fix-sound clouds-new-streaming-format-1821790732](https://lifehacker.com/how-to-fix-soundclouds-new-streaming-format-1821790732)
+> 原文：<https://lifehacker.com/how-to-fix-soundclouds-new-streaming-format-1821790732>
 
 [SoundCloud 最近将其音乐流](http://pigeonsandplanes.com/news/2018/01/soundcloud-low-quality-64kbps) 从 128kbps MP3 切换到 64kbps Opus。许多用户在较高频率时会听到音质下降。因此，艺术家约瑟夫·林切斯基，又名 [Direct](https://soundcloud.com/directmusic) ，为 [Chrome](https://chrome.google.com/webstore/detail/soundcloud-quality-restor/llhggdgjolganlijhnocpbjfmdomanlc?hl=en) 和 [Firefox](https://addons.mozilla.org/en-US/firefox/addon/soundcloud-quality-restore/) 构建了一个扩展，以迫使该网站以其旧格式播放。(目前，Safari 仍然是 MP3 格式。)
 

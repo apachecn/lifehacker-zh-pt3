@@ -1,6 +1,6 @@
 # 有哪些日常的小习惯对你的财务生活产生了巨大的影响？
 
-> 原文:[https://life hacker . com/what-is-small-daily-habits-that-made-a-big-di-1825771549](https://lifehacker.com/what-are-small-everyday-habits-that-have-made-a-big-di-1825771549)
+> 原文：<https://lifehacker.com/what-are-small-everyday-habits-that-have-made-a-big-di-1825771549>
 
 可靠的资金管理需要的不仅仅是自己煮咖啡，但是我们每天做的很多小事都会对我们的整体财务健康产生重大影响。
 

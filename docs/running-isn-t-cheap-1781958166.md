@@ -1,6 +1,6 @@
 # 跑步并不便宜
 
-> 原文:[https://lifehacker.com/running-isn-t-cheap-1781958166](https://lifehacker.com/running-isn-t-cheap-1781958166)
+> 原文：<https://lifehacker.com/running-isn-t-cheap-1781958166>
 
 跑步很简单:只要系好鞋子就可以了，对吗？我们甚至告诉你，你不需要买昂贵的鞋子 。但是，即使你寻找价格最低的衣服、鞋子和比赛，也很难降低你的总体预算。这是为什么，以及你能做什么。
 

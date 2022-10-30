@@ -1,6 +1,6 @@
 # 短肋骨，凤尾鱼，橄榄在一个迷人的西西里牛肉食谱中融合在一起
 
-> 原文:[https://the take out . com/short-ribs-凤尾鱼-橄榄-西西里-牛肉-食谱-1826937568](https://thetakeout.com/short-ribs-anchovies-olives-sicilian-beef-recipe-1826937568)
+> 原文：<https://thetakeout.com/short-ribs-anchovies-olives-sicilian-beef-recipe-1826937568>
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 

@@ -1,6 +1,6 @@
 # 为什么每个人似乎都知道相同的城市传说
 
-> 原文:[https://life hacker . com/why-every one-same-urban-legends-1819695865](https://lifehacker.com/why-everyone-seems-to-know-the-same-urban-legends-1819695865)
+> 原文：<https://lifehacker.com/why-everyone-seems-to-know-the-same-urban-legends-1819695865>
 
 你知道你在你的镇上听到的那个令人毛骨悚然的城市传说吗？是的，有人可能正在这个国家的另一个地方讲述着同样的故事。这就是为什么无论在哪里，每个人似乎都知道同样的恐怖故事。
 

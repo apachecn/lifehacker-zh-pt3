@@ -1,6 +1,6 @@
 # 如果冥想让你紧张，试试这个
 
-> 原文:[https://life hacker . com/if-meaning-stresses-you-out-try-this-1823969908](https://lifehacker.com/if-meditation-stresses-you-out-try-this-1823969908)
+> 原文：<https://lifehacker.com/if-meditation-stresses-you-out-try-this-1823969908>
 
 我有一个坏习惯，试图冥想，分心，然后立即放弃，只是为了六个月后再试一次。所以这个来自 redditor Subduction 的观察真的打动了我:
 

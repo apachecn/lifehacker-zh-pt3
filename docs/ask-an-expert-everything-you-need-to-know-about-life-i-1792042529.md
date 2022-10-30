@@ -1,6 +1,6 @@
 # 问专家:关于人寿保险你需要知道的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-everything-you-need-know-on-life-I-1792042529](https://lifehacker.com/ask-an-expert-everything-you-need-to-know-about-life-i-1792042529)
+> 原文：<https://lifehacker.com/ask-an-expert-everything-you-need-to-know-about-life-i-1792042529>
 
 你可能会被诱惑放弃人寿保险，因为对于一个不太可能的情况来说，这感觉像是一个不必要的额外费用。没人真的会想到会死，对吧？但是你不应该掩饰你报道的可能性和细节。
 

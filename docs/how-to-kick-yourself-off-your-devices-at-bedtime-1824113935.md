@@ -1,6 +1,6 @@
 # 如何在睡觉前把自己从设备上踢下来
 
-> 原文:[https://life hacker . com/how-to-kick-off-your-devices-1824113935](https://lifehacker.com/how-to-kick-yourself-off-your-devices-at-bedtime-1824113935)
+> 原文：<https://lifehacker.com/how-to-kick-yourself-off-your-devices-at-bedtime-1824113935>
 
 我在这方面绝对是最差的。我知道我必须在合理的时间上床睡觉，但当熄灯时间到来时，我就在那里:在电脑上，在平板电脑上，或在智能手机上，通常会在 YouTube/脸书/Instagram/Twitter 上再跑一圈，以确保我没有错过任何东西。半小时后，我还在做。
 

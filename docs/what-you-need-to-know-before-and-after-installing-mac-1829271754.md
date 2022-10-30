@@ -1,6 +1,6 @@
 # 安装 macOS Mojave 之前(和之后)需要了解的内容
 
-> 原文:[https://life hacker . com/what-you-need-to-know-before-and-after-installing-MAC-1829271754](https://lifehacker.com/what-you-need-to-know-before-and-after-installing-mac-1829271754)
+> 原文：<https://lifehacker.com/what-you-need-to-know-before-and-after-installing-mac-1829271754>
 
 最新最棒的 macOS 版本来了。无论你已经狂吃了几个月的测试版，还是完全忘记了苹果桌面操作系统的 10.14 版本，你都可以从现在开始下载 macOS Mojave 的最终版本。嗯，也许吧。
 

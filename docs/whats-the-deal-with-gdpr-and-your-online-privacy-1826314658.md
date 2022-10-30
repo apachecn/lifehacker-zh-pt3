@@ -1,6 +1,6 @@
 # GDPR 和你的网络隐私是怎么回事？
 
-> 原文:[https://life hacker . com/what-the-deal-with-gdpr-and-your-online-privacy-1826314658](https://lifehacker.com/whats-the-deal-with-gdpr-and-your-online-privacy-1826314658)
+> 原文：<https://lifehacker.com/whats-the-deal-with-gdpr-and-your-online-privacy-1826314658>
 
 也许你听到有人顺便提到 GDPR，但是不好意思问那些字母到底代表什么。或者也许你的朋友在网上发布了一些关于 GDPR 对在线数据保护的意义的东西。至少，你可能已经收到了几十封来自不同公司的电子邮件，内容是他们如何更新隐私政策以符合新法律。
 

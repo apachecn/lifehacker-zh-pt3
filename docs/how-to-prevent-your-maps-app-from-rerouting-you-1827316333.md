@@ -1,6 +1,6 @@
 # 如何防止您的地图应用程序改变您的路线
 
-> 原文:[https://life hacker . com/how-to-prevent-your-maps-app-from-re routing-you-1827316333](https://lifehacker.com/how-to-prevent-your-maps-app-from-rerouting-you-1827316333)
+> 原文：<https://lifehacker.com/how-to-prevent-your-maps-app-from-rerouting-you-1827316333>
 
 我们都喜欢地图应用程序的便利，但我们中的许多人更喜欢应用程序坚持我们知道的黄金路线，而不是为了节省几分钟的交通时间而将我们从的所有地方改道 [。](https://productforums.google.com/forum/#!topic/maps/foc9QEyHR6w;context-place=topicsearchin/maps/rerouting%7Csort:date)
 

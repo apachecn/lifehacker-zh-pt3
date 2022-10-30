@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:老式枫树
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-maple-老式-1823051491](https://lifehacker.com/3-ingredient-happy-hour-a-maple-old-fashioned-1823051491)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-maple-old-fashioned-1823051491>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。这个星期因为各种原因有点忙乱，所以我觉得需要一些疯狂精简的东西，即使以我们的标准来看。我想倒，搅拌，啜饮，枫糖浆会帮我达到目的。
 

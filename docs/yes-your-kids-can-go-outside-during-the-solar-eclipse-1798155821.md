@@ -1,6 +1,6 @@
 # 是的，你的孩子可以在日食的时候出去
 
-> 原文:[https://life hacker . com/yes-your-kids-can-out-in-the solar-eclipse-1798155821](https://lifehacker.com/yes-your-kids-can-go-outside-during-the-solar-eclipse-1798155821)
+> 原文：<https://lifehacker.com/yes-your-kids-can-go-outside-during-the-solar-eclipse-1798155821>
 
 我的一位三年级老师朋友告诉我，她的学校今天陷入了恐慌。管理员发出了一封信，说所有的孩子在整个日食期间都必须待在室内，如果他们因为任何原因需要穿过校园(我们在加州，所以不是所有的东西都被走廊覆盖)，他们必须有一个拿着雨伞的成年人陪同。“伙计，这太严重了，”她说。
 

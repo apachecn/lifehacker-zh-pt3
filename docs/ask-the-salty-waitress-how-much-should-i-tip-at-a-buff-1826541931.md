@@ -1,6 +1,6 @@
 # 问有咸味的女服务员:吃自助餐应该给多少小费？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-I-dust-a-buff-1826541931](https://thetakeout.com/ask-the-salty-waitress-how-much-should-i-tip-at-a-buff-1826541931)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-how-much-should-i-tip-at-a-buff-1826541931>
 
 > 亲爱的 Salty:几年前，我和朋友们在一家自助餐厅吃饭，在用餐结束时，给我们送咖啡和苏打水的服务员很生气，因为我们没有留下餐费的小费(因为有九个人，这是相当大的一笔小费)。所以她跟着我们到了停车场，把小费扔给了我们！
 > 

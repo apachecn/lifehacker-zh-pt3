@@ -1,6 +1,6 @@
 # 我们工作日晚上的秘密武器:6 种成分的 panang 咖喱
 
-> 原文:[https://the take out . com/our-week night-secret-weapon-a-6-ingredient-panang-curr-1822315779](https://thetakeout.com/our-weeknight-secret-weapon-a-6-ingredient-panang-curr-1822315779)
+> 原文：<https://thetakeout.com/our-weeknight-secret-weapon-a-6-ingredient-panang-curr-1822315779>
 
 *在* [**仓促的美食**](https://thetakeout.com/tag/hasty-gourmet) *，*外卖*的作者提供可靠的食谱，只需很少的配料和最少的努力，就值得在晚宴上享用。*T12】
 

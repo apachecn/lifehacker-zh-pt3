@@ -1,6 +1,6 @@
 # 不用打开烤箱就能做好你的馅饼
 
-> 原文:[https://life hacker . com/get-your-cobbler-fix-with-on-your-oven-1827322877](https://lifehacker.com/get-your-cobbler-fix-without-turning-on-your-oven-1827322877)
+> 原文：<https://lifehacker.com/get-your-cobbler-fix-without-turning-on-your-oven-1827322877>
 
 裹着黄油面包皮的甜美夏日水果是这个季节许多伟大礼物中的一个，但是当外面热得像鸡巴一样时，打开烤箱显然与任何人想做的相反。
 

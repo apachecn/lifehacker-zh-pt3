@@ -1,6 +1,6 @@
 # 观看微软 Build 2016 主题演讲直播，就在这里
 
-> 原文:[https://life hacker . com/heres-how-to-watch-Microsoft-build-2016-keynote-live-o-1767961513](https://lifehacker.com/heres-how-to-watch-microsofts-build-2016-keynote-live-o-1767961513)
+> 原文：<https://lifehacker.com/heres-how-to-watch-microsofts-build-2016-keynote-live-o-1767961513>
 
 今天，微软将拉开其年度 Build 2016 大会的序幕。以下是你如何收听 keynote 并听到关于该公司产品的所有新闻。
 

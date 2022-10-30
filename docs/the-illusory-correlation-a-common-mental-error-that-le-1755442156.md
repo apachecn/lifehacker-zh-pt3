@@ -1,6 +1,6 @@
 # 虚幻的关联:导致错误思维的常见心理错误
 
-> 原文:[https://life hacker . com/the-isothic-correlation-a-common-mental-error-that-le-1755442156](https://lifehacker.com/the-illusory-correlation-a-common-mental-error-that-le-1755442156)
+> 原文：<https://lifehacker.com/the-illusory-correlation-a-common-mental-error-that-le-1755442156>
 
 我们都使用愚蠢的逻辑来帮助我们合理化一个混乱的世界。以满月为例。几个世纪以来，人们一直将与满月同时发生的令人费解的行为归咎于满月。但这是一种虚幻的关联——我们欺骗自己相信一些基于我们记忆中最突出的东西。
 

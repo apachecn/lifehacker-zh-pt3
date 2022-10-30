@@ -1,6 +1,6 @@
 # 你的大脑如何欺骗你认为魔法是真实的
 
-> 原文:[https://life hacker . com/how-your-brain-tricks-you-to-thinking-magic-is-real-1798707483](https://lifehacker.com/how-your-brain-tricks-you-into-thinking-magic-is-real-1798707483)
+> 原文：<https://lifehacker.com/how-your-brain-tricks-you-into-thinking-magic-is-real-1798707483>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video--_2mj1pwveo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video--_2mj1pwveo&start=0) 
 

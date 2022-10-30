@@ -1,6 +1,6 @@
 # 当你请求帮助的时候，不要这么害羞
 
-> 原文:[https://life hacker . com/don ' t-be so-damn-coy-when you-ask-a-faw-1824144187](https://lifehacker.com/dont-be-so-damn-coy-when-you-ask-a-favor-1824144187)
+> 原文：<https://lifehacker.com/dont-be-so-damn-coy-when-you-ask-a-favor-1824144187>
 
 在“ [如何给忙碌的人发电子邮件](http://humbledmba.com/how-to-email-busy-people) ”中，初创公司创始人杰森·弗里德曼给出了几条从忙碌而重要的人那里得到你想要的东西的好建议。正如 [设计师蒂娜·罗斯·艾森伯格](http://www.swiss-miss.com/2018/03/how-to-email-busy-people.html) 今天所引用的，最重要的提示是要明确而不是含糊其辞:
 

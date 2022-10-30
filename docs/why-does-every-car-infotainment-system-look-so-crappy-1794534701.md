@@ -1,6 +1,6 @@
 # 为什么每个车载信息娱乐系统看起来都那么蹩脚？
 
-> 原文:[https://life hacker . com/why-do-every-car-infotainment-system-look-so-lappy-1794534701](https://lifehacker.com/why-does-every-car-infotainment-system-look-so-crappy-1794534701)
+> 原文：<https://lifehacker.com/why-does-every-car-infotainment-system-look-so-crappy-1794534701>
 
 用户界面的设计很难，但是这些年来我们在这方面做得越来越好，甚至连恒温器都很容易使用。然而，汽车制造商似乎把他们的头埋在沙子里，他们的信息娱乐控制台的设计灵感来自旧的 Winamp 皮肤，而不是任何类型的现代界面。
 

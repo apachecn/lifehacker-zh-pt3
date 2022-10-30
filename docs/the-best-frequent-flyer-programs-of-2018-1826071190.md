@@ -1,6 +1,6 @@
 # 2018 年最佳常旅客计划
 
-> 原文:[https://life hacker . com/the-best-frequent-flyer-programs-of-of-2018-1826071190](https://lifehacker.com/the-best-frequent-flyer-programs-of-2018-1826071190)
+> 原文：<https://lifehacker.com/the-best-frequent-flyer-programs-of-2018-1826071190>
 
 根据一年一度的 [IdeaWorks 奖励座位可用性调查](http://www.ideaworkscompany.com/wp-content/uploads/2018/05/Press-Release-127-Reward-Seat-Report-2018.pdf) ，航空公司正在通过增加可用座位数量和减少前往特定地点所需的里程数来改善他们的常旅客计划。
 

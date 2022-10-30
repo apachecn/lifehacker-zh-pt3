@@ -1,6 +1,6 @@
 # 如何在不失去理智的情况下招待父母
 
-> 原文:[https://life hacker . com/how-to-host your-parents-with-lost your-mind-1783616120](https://lifehacker.com/how-to-host-your-parents-without-losing-your-mind-1783616120)
+> 原文：<https://lifehacker.com/how-to-host-your-parents-without-losing-your-mind-1783616120>
 
 对于我们中的一些人来说，当家人宣布他们要来镇上时，警报响起，恐慌随之而来，几杯威士忌被倒了。但是只要做一点准备，就不会那么紧张，或者复杂。
 

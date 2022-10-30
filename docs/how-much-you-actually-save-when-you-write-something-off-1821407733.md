@@ -1,6 +1,6 @@
 # 当你在税上注销一些东西时，你实际上节省了多少
 
-> 原文:[https://life hacker . com/how-much-you-save-when-you-write-something-off-1821407733](https://lifehacker.com/how-much-you-actually-save-when-you-write-something-off-1821407733)
+> 原文：<https://lifehacker.com/how-much-you-actually-save-when-you-write-something-off-1821407733>
 
 需要一台新电脑吗？*一笔勾销！*在高级法国餐厅吃午餐？*一笔勾销！*人们普遍认为，当谈到可扣除的费用时，你可以 [【一笔勾销】](https://www.youtube.com/watch?v=XEL65gywwHQ) ，这就像是免费获得一样。但这并不完全正确。那么，当你注销一些东西时，你实际上节省了多少呢？我们咨询了一些税务专家的意见。
 

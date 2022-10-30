@@ -1,6 +1,6 @@
 # 如何在连接 iPhone 后取消对电脑的信任
 
-> 原文:[https://life hacker . com/how-to-un-trust-computers-after-connected-your-iphone-1825181976](https://lifehacker.com/how-to-un-trust-computers-after-connecting-your-iphone-1825181976)
+> 原文：<https://lifehacker.com/how-to-un-trust-computers-after-connecting-your-iphone-1825181976>
 
 iOS:每次你把你的 [iPhone](https://lifehacker.com/the-privacy-enthusiasts-guide-to-using-an-iphone-1792386831) 插到电脑上，你都会在手机上看到同样的弹出窗口，询问你是否应该“信任”它。这似乎是一个无伤大雅的问题，但通过授予电脑信任，你实际上是在让它们访问你 iPhone 上的一切，包括照片、视频、联系人和“ [其他内容](https://support.apple.com/en-us/HT202778) ”
 

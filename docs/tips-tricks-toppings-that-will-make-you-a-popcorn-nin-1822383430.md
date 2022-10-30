@@ -1,6 +1,6 @@
 # 让你成为爆米花忍者的技巧、窍门和配料
 
-> 原文:[https://the take out . com/tips-tricks-toppings-that-will-make-a-popcorn-in-1822383430](https://thetakeout.com/tips-tricks-toppings-that-will-make-you-a-popcorn-nin-1822383430)
+> 原文：<https://thetakeout.com/tips-tricks-toppings-that-will-make-you-a-popcorn-nin-1822383430>
 
 没有什么能比得上自制爆米花充当一块空白画布的能力，让你——零食界的鲍勃·罗斯——在上面描绘出你对美味的想象。甜的、咸的、咸的、辣的——都可以。
 

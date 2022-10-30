@@ -1,6 +1,6 @@
 # 如何让便宜的炖肉变得很好吃
 
-> 原文:[https://life hacker . com/how-to-make-cheap-stew-meat-taste-great-1819928639](https://lifehacker.com/how-to-make-cheap-stew-meat-taste-great-1819928639)
+> 原文：<https://lifehacker.com/how-to-make-cheap-stew-meat-taste-great-1819928639>
 
 节俭、舒适的人们，高兴吧——酷热的天气来了。在寒冷的天气里，没有什么比一碗炖肉更好的了，也没有什么比用最便宜的肉片做的一大碗一大碗的饭菜更让小气鬼满意的了。炖肉很容易，但是为了得到最好的味道，炖肉需要额外的照顾。
 

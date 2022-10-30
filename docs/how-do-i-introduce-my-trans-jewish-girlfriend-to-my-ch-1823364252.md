@@ -1,6 +1,6 @@
 # 我如何把我的跨性别犹太女友介绍给我的基督教母亲？
 
-> 原文:[https://life hacker . com/how-do-I-introduction-my-trans-Jewish-friend-to-my-ch-1823364252](https://lifehacker.com/how-do-i-introduce-my-trans-jewish-girlfriend-to-my-ch-1823364252)
+> 原文：<https://lifehacker.com/how-do-i-introduce-my-trans-jewish-girlfriend-to-my-ch-1823364252>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love#_ga=2.269169905.1295021153.1516057126-819016074.1513967708) 。
 

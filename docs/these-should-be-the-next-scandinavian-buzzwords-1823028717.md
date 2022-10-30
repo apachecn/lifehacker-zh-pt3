@@ -1,6 +1,6 @@
 # 这些应该是下一个斯堪的纳维亚流行语
 
-> 原文:[https://life hacker . com/these-should-be-the-next-Scandinavian-buzzwords-1823028717](https://lifehacker.com/these-should-be-the-next-scandinavian-buzzwords-1823028717)
+> 原文：<https://lifehacker.com/these-should-be-the-next-scandinavian-buzzwords-1823028717>
 
 一旦你掌握了丹麦人对舒适的概念[](https://lifehacker.com/how-to-get-through-a-miserable-winter-with-the-danish-c-1791001000)*，还有更多北欧的想法可以探索。瑞典语 [*lagom*](https://lifehacker.com/embrace-the-swedish-lagom-lifestyle-to-reduce-stress-1819730614) 可以帮你平衡生活； [*尼克森*](https://lifehacker.com/learn-how-to-do-nothing-with-the-dutch-concept-of-nikse-1822310051) 是正念的荷兰语亲戚。但是这些国家有一些更能改变生活的想法，也许它们应该成为美国的潮流。* 
 

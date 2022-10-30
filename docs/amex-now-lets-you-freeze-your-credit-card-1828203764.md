@@ -1,6 +1,6 @@
 # 美国运通现在让你冻结你的信用卡
 
-> 原文:[https://life hacker . com/amex-now-let-you-freeze-you-credit-card-1828203764](https://lifehacker.com/amex-now-lets-you-freeze-your-credit-card-1828203764)
+> 原文：<https://lifehacker.com/amex-now-lets-you-freeze-your-credit-card-1828203764>
 
 而不是在你妹妹沙发的垫子里短暂丢失信用卡后就急着注销(只有我？)，美国运通是让你暂时冻结，根据 [消费者事务](https://www.consumeraffairs.com/news/american-express-beefs-up-fraud-protections-080818.html) 。
 

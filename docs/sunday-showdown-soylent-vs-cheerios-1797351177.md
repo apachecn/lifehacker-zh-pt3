@@ -1,6 +1,6 @@
 # 周日摊牌:Soylent vs. Cheerios
 
-> 原文:[https://life hacker . com/Sunday-摊牌-soylent-vs-Cheerios-1797351177](https://lifehacker.com/sunday-showdown-soylent-vs-cheerios-1797351177)
+> 原文：<https://lifehacker.com/sunday-showdown-soylent-vs-cheerios-1797351177>
 
 虽然有许多快速早餐——涂黄油的烤面包、格兰诺拉麦片、香蕉——但谷类占主导地位。但是一个新的竞争者已经爬上了这个行列:Soylent，一种面向忙碌的千禧一代的营养浆。两者都很方便，但都不是很自然。在拥挤的早晨，哪一个是更好的选择？
 

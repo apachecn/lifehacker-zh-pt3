@@ -1,6 +1,6 @@
 # 以下是如何确保您的汽车安全驾驶
 
-> 原文:[https://jalopnik . com/heres-how-you-can-been-that-how-that-you-can-be-that-that-that-you ' s-board ' s-safe-to-drive-1756869210](https://jalopnik.com/heres-how-you-can-make-sure-your-car-is-safe-to-drive-1756869210)
+> 原文：<https://jalopnik.com/heres-how-you-can-make-sure-your-car-is-safe-to-drive-1756869210>
 
 所以你刚买了一辆二手车。前车主可能会说它的工作状态非常好，但你怎么知道它真的可以安全驾驶呢？如果你不去找专业的机械师，你就得自己去找了。以下是如何确保你的车不是一辆几乎没有工具的死亡之车。
 

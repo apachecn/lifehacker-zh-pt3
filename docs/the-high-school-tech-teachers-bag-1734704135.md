@@ -1,6 +1,6 @@
 # 高中技术老师的包
 
-> 原文:[https://life hacker . com/the-high-school-tech-teachers-bag-1734704135](https://lifehacker.com/the-high-school-tech-teachers-bag-1734704135)
+> 原文：<https://lifehacker.com/the-high-school-tech-teachers-bag-1734704135>
 
 学生对书包有各种特殊需求，老师也是。Lifehacker reader 和数字媒体制作教师 mattewrstover 分享了他为教学和数字媒体创作准备的包。
 

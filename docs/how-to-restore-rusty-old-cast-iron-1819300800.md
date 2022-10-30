@@ -1,6 +1,6 @@
 # 如何修复生锈的旧铸铁
 
-> 原文:[https://life hacker . com/how-to-restore-rusty-old-cast-iron-1819300800](https://lifehacker.com/how-to-restore-rusty-old-cast-iron-1819300800)
+> 原文：<https://lifehacker.com/how-to-restore-rusty-old-cast-iron-1819300800>
 
 每个人都应该至少拥有一个铸铁锅。有了它，你可以 [烤全鸡、烤派(水果派或披萨派),或者烤一锅奶酪蘸酱](https://skillet.lifehacker.com/five-delicious-dishes-you-didnt-know-you-could-make-in-1769749325) 。然而，铸铁确实需要一点小心。
 

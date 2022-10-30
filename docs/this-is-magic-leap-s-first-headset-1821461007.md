@@ -1,6 +1,6 @@
 # 这是 Magic Leap 的第一款耳机
 
-> 原文:[https://gizmodo . com/this-is-magic-leap-s-first-headset-1821461007](https://gizmodo.com/this-is-magic-leap-s-first-headset-1821461007)
+> 原文：<https://gizmodo.com/this-is-magic-leap-s-first-headset-1821461007>
 
 几个月来，神秘的玩笑和猖獗的谣言表明 Magic Leap 计划在年底前进行某种大规模的揭露。今天，我们终于看到了酝酿多年的混合现实设备。不，Magic Leap 没有分享发布日期或价格，但这里是我们对该公司的 Magic Leap One 耳机的第一印象。
 

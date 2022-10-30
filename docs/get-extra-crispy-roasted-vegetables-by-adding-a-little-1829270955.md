@@ -1,6 +1,6 @@
 # 加入一点玉米淀粉，得到特别脆的烤蔬菜
 
-> 原文:[https://life hacker . com/get-extra-crisp-baked-vegetables-by-adding-a little-1829270955](https://lifehacker.com/get-extra-crispy-roasted-vegetables-by-adding-a-little-1829270955)
+> 原文：<https://lifehacker.com/get-extra-crispy-roasted-vegetables-by-adding-a-little-1829270955>
 
 我们喜欢这里的 [烤蔬菜](https://lifehacker.com/why-roasting-vegetables-is-the-best-way-to-cook-them-1797605912) ，我们总是对简单的方法感兴趣，让这种已经通用的技术更加吸引人。最近的一次烤箱薯条弯曲机让我想到:如果一点点玉米淀粉可以把悲伤、松软的烤土豆条变成松脆、基本上是油炸的美味，它能对其他蔬菜做同样的事情吗？
 

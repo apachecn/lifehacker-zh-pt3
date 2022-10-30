@@ -1,6 +1,6 @@
 # 包括唐纳德·特朗普在内的每个人都需要知道你的身体是如何获得“能量”的
 
-> 原文:[https://life hacker . com/what-everybody-include-Donald-trump-needs-to-know-a-1795225341](https://lifehacker.com/what-everybody-including-donald-trump-needs-to-know-a-1795225341)
+> 原文：<https://lifehacker.com/what-everybody-including-donald-trump-needs-to-know-a-1795225341>
 
 食物含有能量。运动需要能量。当我们精力充沛时，我们感觉很好。但是，呃，这三句话里我们说的是同一个东西吗？我们不是，我们的总统是许多不能把不同意思搞清楚的人之一。让我们澄清困惑。
 

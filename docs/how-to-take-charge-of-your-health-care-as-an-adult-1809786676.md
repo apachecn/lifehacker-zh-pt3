@@ -1,6 +1,6 @@
 # 作为一个成年人，如何负责你的医疗保健
 
-> 原文:[https://life hacker . com/how-to-take-charge-of-your health-care-as a-adult-1809786676](https://lifehacker.com/how-to-take-charge-of-your-health-care-as-an-adult-1809786676)
+> 原文：<https://lifehacker.com/how-to-take-charge-of-your-health-care-as-an-adult-1809786676>
 
 你第一次必须为自己预约医生会让你希望有一天——也许是不久前——妈妈或爸爸为你做这一切。如果你是这种情况下的家长，可能很难后退一步。这里有一个指南，帮助年轻人负责自己的健康保健。
 

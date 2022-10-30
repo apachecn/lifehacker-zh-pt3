@@ -1,6 +1,6 @@
 # 避免办公室关节和手腕疼痛的十大方法
 
-> 原文:[https://life hacker . com/top-10-避免办公室关节和手腕疼痛的方法-1790723902](https://lifehacker.com/top-10-ways-to-avoid-joint-and-wrist-pain-at-the-office-1790723902)
+> 原文：<https://lifehacker.com/top-10-ways-to-avoid-joint-and-wrist-pain-at-the-office-1790723902>
 
 长时间伏案工作，无论你是整天使用电脑还是其他工具来完成工作，都会对你的手腕、膝盖和其他关节造成严重伤害。这里有十种方法可以让他们保持健康，减少日常生活中的痛苦和不适。
 

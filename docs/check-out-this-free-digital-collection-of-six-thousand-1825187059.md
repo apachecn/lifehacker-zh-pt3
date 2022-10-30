@@ -1,6 +1,6 @@
 # 看看这 6000 本 19 世纪儿童书籍的免费数字收藏
 
-> 原文:[https://life hacker . com/check-out-this-free-digital-collection-of-6000-1825187059](https://lifehacker.com/check-out-this-free-digital-collection-of-six-thousand-1825187059)
+> 原文：<https://lifehacker.com/check-out-this-free-digital-collection-of-six-thousand-1825187059>
 
 佛罗里达大学鲍德温历史儿童文学图书馆有一个 [数字档案馆，收藏了 6000 本 19 世纪和 20 世纪初的儿童书籍](http://ufdc.ufl.edu/baldwin/all/thumbs) ，全部免费在线阅读。一位 redditor 发现了宝藏，并将其分享到 Reddit 的 [图书社区](https://www.reddit.com/r/books/comments/864axe/i_just_found_the_link_to_the_university_of/) 。历史和儿童文学的爱好者将会很高兴地点击标题页面，如*伊索寓言*、*鲁滨逊漂流记*和*格林童话*——并与他们的孩子分享。
 

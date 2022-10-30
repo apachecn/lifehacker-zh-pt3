@@ -1,6 +1,6 @@
 # 如何为硬拉训练做好心理准备
 
-> 原文:[https://life hacker . com/how-to-psych-up to-a-deadlife-workout-1829549989](https://lifehacker.com/how-to-psych-yourself-up-for-a-deadlift-workout-1829549989)
+> 原文：<https://lifehacker.com/how-to-psych-yourself-up-for-a-deadlift-workout-1829549989>
 
 我们这个月 [硬拉](https://vitals.lifehacker.com/october-is-for-deadlifts-1829438935) ，我很想听听大家到目前为止进展如何。(我已经做了一次锻炼，下周会尝试做两次。)但是如果你是新手，或者你觉得这一举动令人生畏，我们有一些关于如何准备的建议。
 

@@ -1,6 +1,6 @@
 # 我是 Claire Lower，Lifehacker 美食编辑，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-claire-lower-life hacker-food-editor-and-this-is-ho-1828870073](https://lifehacker.com/im-claire-lower-lifehacker-food-editor-and-this-is-ho-1828870073)
+> 原文：<https://lifehacker.com/im-claire-lower-lifehacker-food-editor-and-this-is-ho-1828870073>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是克莱尔·洛，这就是我的工作方式。
 

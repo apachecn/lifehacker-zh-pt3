@@ -1,6 +1,6 @@
 # 今年冬天的每一场大型比赛
 
-> 原文:[https://kotaku . com/every-big-game-out-this-winter-1790321728](https://kotaku.com/every-big-game-coming-out-this-winter-1790321728)
+> 原文：<https://kotaku.com/every-big-game-coming-out-this-winter-1790321728>
 
 冬天。为了保暖，我们切开汤汤的季节。我们在那里裹上毯子，一些可可和游戏。这里列出了在这些下雪的时候出现的众多游戏。
 

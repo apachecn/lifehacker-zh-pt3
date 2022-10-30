@@ -1,6 +1,6 @@
 # 选择一个你的猫会回答的猫名
 
-> 原文:[https://life hacker . com/pick-a-cat-name-your-cat-will-answer-to-1828343118](https://lifehacker.com/pick-a-cat-name-your-cat-will-answer-to-1828343118)
+> 原文：<https://lifehacker.com/pick-a-cat-name-your-cat-will-answer-to-1828343118>
 
 你的猫看起来是不是对你视而不见？他们不是被召唤时才来的吗？你的猫可能是个混蛋。或者他们可能只是认不出自己的名字。
 

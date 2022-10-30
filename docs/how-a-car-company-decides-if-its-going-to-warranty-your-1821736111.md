@@ -1,6 +1,6 @@
 # 汽车公司如何决定是否为你的改装车提供保修
 
-> 原文:[https://jalopnik . com/how-a-car-company-decision-if-to-warranty-your-1821736111](https://jalopnik.com/how-a-car-company-decides-if-its-going-to-warranty-your-1821736111)
+> 原文：<https://jalopnik.com/how-a-car-company-decides-if-its-going-to-warranty-your-1821736111>
 
 在改装新车的时候，恐惧和虚张声势是一样多的。许多车主担心他们的保修会失效，根本不改装他们的车。其他人进行修改，如果他们需要把车送去保修，他们可以撤销修改。但很少有人知道汽车公司在评估一辆有问题的改装车时会寻找什么。
 

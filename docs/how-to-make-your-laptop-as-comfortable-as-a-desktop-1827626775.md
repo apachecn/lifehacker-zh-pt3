@@ -1,6 +1,6 @@
 # 如何让你的笔记本电脑像台式机一样舒适
 
-> 原文:[https://life hacker . com/how-to-make-your-laptop-as-come-as-a-desktop-1827626775](https://lifehacker.com/how-to-make-your-laptop-as-comfortable-as-a-desktop-1827626775)
+> 原文：<https://lifehacker.com/how-to-make-your-laptop-as-comfortable-as-a-desktop-1827626775>
 
 笔记本电脑不舒服。但是如果你愿意看起来有点奇怪的话，你可以解决这个问题。关键是在*只差一点点*。今天华尔街日报 [科技专栏作家](https://www.wsj.com/news/author/8003) Christopher Mims 在推特上发布了一张他移动工作站的照片。当他在咖啡馆工作时，Mims 使用无线鼠标、可折叠键盘和笔记本电脑支架来制作符合人体工程学但高效的设置。
 

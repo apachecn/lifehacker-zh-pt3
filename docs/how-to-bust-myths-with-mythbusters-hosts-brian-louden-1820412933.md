@@ -1,6 +1,6 @@
 # 《流言终结者》的主持人布莱恩·劳登和乔恩·隆将带你一起揭开流言
 
-> 原文:[https://life hacker . com/how-to-bust-myth busters-hosts-Brian-louden-1820412933](https://lifehacker.com/how-to-bust-myths-with-mythbusters-hosts-brian-louden-1820412933)
+> 原文：<https://lifehacker.com/how-to-bust-myths-with-mythbusters-hosts-brian-louden-1820412933>
 
 在这一集里，我们谈论电影神话，DIY 灾难，以及如何用 [布莱恩·劳登](http://bsforgery.com/) 和 [乔恩·隆](http://jonjuhanlung.com/)[科学频道的*流言终结者*](https://www.sciencechannel.com/tv-shows/mythbusters-on-science/) 排除火箭动力剑的故障，于 11 月 15 日周三晚上 9 点首播。关于反驳(然后摧毁)城市传说的开创性科学节目回来了，它的新主持人准备好焊接，斩首，甚至链锯他们的方式来找出每个神话核心谣言背后的真相。
 

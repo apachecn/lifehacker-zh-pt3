@@ -1,6 +1,6 @@
 # 为什么你应该学习这个设计原则
 
-> 原文:[https://life hacker . com/why-you-should-learn-this-design-principle-1829280545](https://lifehacker.com/why-you-should-learn-this-design-principle-1829280545)
+> 原文：<https://lifehacker.com/why-you-should-learn-this-design-principle-1829280545>
 
 由于苹果和其他公司对华而不实的产品或演示的狂热，谈论将“设计原则”应用于其他学科变得时髦起来。但是根据 [设计师 Rie nrregaard](https://www.sypartners.com/leader/rie-norregaard/)的说法，我们都应该学习的关键设计课程是许多设计师仍在学习的课程:为“默认”用户以外的人设计。
 

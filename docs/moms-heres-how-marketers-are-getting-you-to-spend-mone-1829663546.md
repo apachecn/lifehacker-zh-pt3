@@ -1,6 +1,6 @@
 # 妈妈们，下面是营销人员让你们花钱的方法
 
-> 原文:[https://life hacker . com/moms-heres-how-markets-are-how-get-you-to-spend mone-1829663546](https://lifehacker.com/moms-heres-how-marketers-are-getting-you-to-spend-mone-1829663546)
+> 原文：<https://lifehacker.com/moms-heres-how-marketers-are-getting-you-to-spend-mone-1829663546>
 
 我几乎没有为我的第二个宝宝买过任何新东西，但我一直想买——我保存的一些产品截图就证明了这一点。在午夜，当我似乎不能让我怀孕九个月的身体舒适地躺在我的巨型香肠孕妇枕头里时，我会搬到沙发上，躺在那里，感觉对未来几个月的每一个担忧都爬进我的大脑。到那时，我会拿起手机阅读更多关于奇迹襁褓的评论。
 

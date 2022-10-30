@@ -1,6 +1,6 @@
 # 如何成为一个好爸爸，即使你从未有过
 
-> 原文:[https://life hacker . com/how-to-be-a-good dad-even-if you never-hacken-1828941527](https://lifehacker.com/how-to-be-a-good-dad-even-if-you-never-had-one-1828941527)
+> 原文：<https://lifehacker.com/how-to-be-a-good-dad-even-if-you-never-had-one-1828941527>
 
 尼克·菲尔豪是《父亲的 T1》[](https://www.paternalpodcast.com/)**的主持人和制作人，这是一个播客节目，通过与各种各样的父亲进行坦率的对话，考察了男子气概和父亲身份的定义。他还是三个儿子中最小的一个，也是两个年幼孩子的父亲，经常感到困惑和愤怒。**
 

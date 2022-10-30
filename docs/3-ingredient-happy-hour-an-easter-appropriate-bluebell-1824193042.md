@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:适合复活节的蓝铃花
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-an-Easter-appropriate-blue bell-1824193042](https://lifehacker.com/3-ingredient-happy-hour-an-easter-appropriate-bluebell-1824193042)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-an-easter-appropriate-bluebell-1824193042>
 
 朋友们，复活节周末快乐，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。这一周，我们将制作一款超级清爽、赏心悦目的饮料。
 

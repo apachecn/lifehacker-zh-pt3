@@ -1,6 +1,6 @@
 # 教授的经典包
 
-> 原文:[https://lifehacker.com/the-professors-classy-bag-1793966348](https://lifehacker.com/the-professors-classy-bag-1793966348)
+> 原文：<https://lifehacker.com/the-professors-classy-bag-1793966348>
 
 教授必须在专业、优雅和高效之间取得平衡。《每日邮报》的读者杰伊分享了他的书包就是为了做到这一点。
 

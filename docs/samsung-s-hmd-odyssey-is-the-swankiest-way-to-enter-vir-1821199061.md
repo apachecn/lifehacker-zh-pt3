@@ -1,6 +1,6 @@
 # 三星的 HMD 奥德赛是进入虚拟现实的最奢华的方式
 
-> 原文:[https://gizmodo . com/Samsung-s-HMD-odyssey-is-the-swankiest-way-to-enter-vir-1821199061](https://gizmodo.com/samsung-s-hmd-odyssey-is-the-swankiest-way-to-enter-vir-1821199061)
+> 原文：<https://gizmodo.com/samsung-s-hmd-odyssey-is-the-swankiest-way-to-enter-vir-1821199061>
 
 第一次把三星的 HMD 奥德赛捧在手中，脑子里只有一个念头:*这不是玩具。*没想到用别的 VR 头戴设备。宏碁的是 [笨重而酷炫的](https://gizmodo.com/the-new-star-wars-ar-game-is-clunky-cool-still-too-ex-1820092627#_ga=2.121587915.2126096023.1513601885-774642885.1491417459) ，PSVR 的是 [圆滑而简约的](https://gizmodo.com/skyrim-vr-is-everything-wrong-with-virtual-reality-righ-1820981227) 。但三星的 HMD 奥德赛是一个档次以上，一个完整的 1.4 磅重的改变现实的小工具挂在你的脸上，带 AKG 耳机，麦克风内置在它明显不吸引人的前置耳机中。它更类似于 HTC Vive 和 Oculus Rift 等重型、严肃的设备。三星设备有其突出的优点和缺点。我几乎立刻意识到，这是一个为深度、沉浸式游戏体验而构建的笨拙的东西。这不是一个玩具——这是一个带着台式电脑去星巴克玩英雄联盟的人的耳机。
 

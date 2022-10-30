@@ -1,6 +1,6 @@
 # 为什么你应该免费写作
 
-> 原文:[https://life hacker . com/why-you-should-write-for-free-1823900900](https://lifehacker.com/why-you-should-write-for-free-1823900900)
+> 原文：<https://lifehacker.com/why-you-should-write-for-free-1823900900>
 
 如果你想以写作为生，你应该免费写作。见鬼，如果你已经以写作为生，你应该免费写作。自由写作应该是你最好的作品之一。
 

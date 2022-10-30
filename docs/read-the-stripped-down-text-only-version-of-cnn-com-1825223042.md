@@ -1,6 +1,6 @@
 # 阅读 CNN.com 的精简版纯文本版本
 
-> 原文:[https://life hacker . com/read-the-stripped-down-text-only-version-of-CNN-com-1825223042](https://lifehacker.com/read-the-stripped-down-text-only-version-of-cnn-com-1825223042)
+> 原文：<https://lifehacker.com/read-the-stripped-down-text-only-version-of-cnn-com-1825223042>
 
 去年秋天，CNN [宣布](https://twitter.com/CNN/status/906821174805630976)[网站](http://lite.cnn.io/en) 的纯文本版本，链接到纯文本文章，因此互联网连接不稳定的人(就像当时在飓风“厄玛之路”中的人)。 [Lite.cnn.io](http://lite.cnn.io/en) 虽然丑，但是速度快，功能强。它不是唯一一个精简的新闻网站。
 

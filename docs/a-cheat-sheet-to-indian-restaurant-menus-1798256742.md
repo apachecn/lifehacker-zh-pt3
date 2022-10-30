@@ -1,6 +1,6 @@
 # 印度餐馆菜单的备忘单
 
-> 原文:[https://the take out . com/a-cheat-sheet-to-Indian-restaurant-menus-1798256742](https://thetakeout.com/a-cheat-sheet-to-indian-restaurant-menus-1798256742)
+> 原文：<https://thetakeout.com/a-cheat-sheet-to-indian-restaurant-menus-1798256742>
 
 让我们来纠正这个错误的用词:并不是印度餐馆的每一道炖菜都是咖喱 。可以理解它是如何成为“蘸着烙饼的肉馅辣酱”的简写，但这是对其多样性令人惊叹的菜肴的粗略概括。
 

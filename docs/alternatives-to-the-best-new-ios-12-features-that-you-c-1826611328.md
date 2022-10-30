@@ -1,6 +1,6 @@
 # 你现在可以使用的最好的 iOS 12 新功能的替代品
 
-> 原文:[https://life hacker . com/alternatives-to-the-best-new-IOs-12-features-that-you-c-1826611328](https://lifehacker.com/alternatives-to-the-best-new-ios-12-features-that-you-c-1826611328)
+> 原文：<https://lifehacker.com/alternatives-to-the-best-new-ios-12-features-that-you-c-1826611328>
 
 本月早些时候，苹果在 WWDC 2018 主题演讲中推出了一些杀手级的新功能。在 iOS 12 中(你现在可以对其进行 beta 测试)，用户将能够训练 Siri，阻止网站跟踪他们，并限制他们在应用上花费的时间。最糟糕的部分？这些新功能要到秋天才会正式推出。
 

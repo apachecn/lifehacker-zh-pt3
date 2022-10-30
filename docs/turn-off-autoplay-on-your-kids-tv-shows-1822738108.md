@@ -1,6 +1,6 @@
 # 关闭孩子电视节目的自动播放
 
-> 原文:[https://life hacker . com/turn-off-autoplay-on-your-kids-TV-shows-1822738108](https://lifehacker.com/turn-off-autoplay-on-your-kids-tv-shows-1822738108)
+> 原文：<https://lifehacker.com/turn-off-autoplay-on-your-kids-tv-shows-1822738108>
 
 倒计时每次都让我喘气。离我女儿正在看的下一集还有十秒钟。九秒钟。八个。七个。六个。
 

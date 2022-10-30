@@ -1,6 +1,6 @@
 # 用 Nuzzel 替换新闻通知
 
-> 原文:[https://life hacker . com/replace-news-notifications-with-nuzzel-1819081477](https://lifehacker.com/replace-news-notifications-with-nuzzel-1819081477)
+> 原文：<https://lifehacker.com/replace-news-notifications-with-nuzzel-1819081477>
 
 如果你在手机上收到突发新闻通知，你会经常发现你不同意 CNN、*《纽约时报》*或苹果关于什么是新闻的观点。相反，你可以转而使用新闻聚合应用 [Nuzzel](http://nuzzel.com/) ，当一定数量的你的 Twitter 好友链接到同一个网址时，它会通知你，无论来源如何。
 

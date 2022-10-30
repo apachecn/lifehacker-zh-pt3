@@ -1,6 +1,6 @@
 # 我们七月的读书俱乐部是...
 
-> 原文:[https://lifehacker.com/our-july-book-club-is-1827314109](https://lifehacker.com/our-july-book-club-is-1827314109)
+> 原文：<https://lifehacker.com/our-july-book-club-is-1827314109>
 
 如果你明天有一天假，为什么不开始阅读我们的七月书友精选，丹·哈里斯的[](https://www.amazon.com/10-Happier-Self-Help-Actually-Works/dp/0062265431/r?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/our-july-book-club-is-1827314109&asc_source=&rawdata=[r|https://lifehacker.com/june-book-club-open-thread-is-there-life-after-death-1827284492[t|link[p|1826549082[a|0062265431[au|5766279987600191508[b|lifehacker&tag=kinjalifehackerlink-20)*【快乐 10% 】(不过，先看看我们的 [六月书友会](https://lifehacker.com/june-book-club-open-thread-is-there-life-after-death-1827284492#_ga=2.262087561.504406854.1530619485-1428292183.1530619485) )。* 
 

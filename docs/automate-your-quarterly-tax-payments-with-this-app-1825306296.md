@@ -1,6 +1,6 @@
 # 使用此应用程序自动完成季度纳税
 
-> 原文:[https://life hacker . com/automate-your-quarterly-tax-payments with this-app-1825306296](https://lifehacker.com/automate-your-quarterly-tax-payments-with-this-app-1825306296)
+> 原文：<https://lifehacker.com/automate-your-quarterly-tax-payments-with-this-app-1825306296>
 
 对于许多第一次自由职业者(和一些经验丰富的老兵)，季度税是一场噩梦。要么你不知道你必须支付他们，你措手不及，要么你扣得太少。
 

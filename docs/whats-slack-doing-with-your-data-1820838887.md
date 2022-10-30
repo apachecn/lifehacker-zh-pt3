@@ -1,6 +1,6 @@
 # Slack 对你的数据做了什么？
 
-> 原文:[https://gizmodo . com/whats-slack-doing-with your-data-1820838887](https://gizmodo.com/whats-slack-doing-with-your-data-1820838887)
+> 原文：<https://gizmodo.com/whats-slack-doing-with-your-data-1820838887>
 
 超过 600 万人每天使用 Slack，平均每天在聊天应用上花费超过两个小时。对于许多员工来说，工作生活取决于闲暇时间，当然，我们中的许多人不仅仅是在工作中聊天。你可能有一个#CATS 和一个女性专用频道，你可能私下说了一些你不想和老板分享的话。但这不是你能决定的。
 

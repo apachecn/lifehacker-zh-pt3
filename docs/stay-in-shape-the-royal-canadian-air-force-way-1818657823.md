@@ -1,6 +1,6 @@
 # 加拿大皇家空军保持体形的方式
 
-> 原文:[https://life hacker . com/stay-in-shape-the-royal-Canada-air-force-way-1818657823](https://lifehacker.com/stay-in-shape-the-royal-canadian-air-force-way-1818657823)
+> 原文：<https://lifehacker.com/stay-in-shape-the-royal-canadian-air-force-way-1818657823>
 
 当你坐在办公桌前的时候，你会感到肌肉松弛吗？这正是这套练习旨在防止的问题。我们已经在——为加拿大皇家空军开发的 5BX 训练之前 [提到过。但是今天我们很高兴以视频(呃，电影胶片)的形式给你带来这些著名的练习。](https://lifehacker.com/get-in-shape-with-this-11-minute-fighter-pilots-workou-1695498315) 
 

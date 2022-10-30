@@ -1,6 +1,6 @@
 # 你可以在两分钟内做一个应急饼干
 
-> 原文:[https://life hacker . com/you-can-make-an-emergency-cookie-in-two-minutes-1798710120](https://lifehacker.com/you-can-make-an-emergency-cookie-in-two-minutes-1798710120)
+> 原文：<https://lifehacker.com/you-can-make-an-emergency-cookie-in-two-minutes-1798710120>
 
 你有没有过这样的时刻，当你只需要一个热巧克力饼干，但不想做几十个？我知道我有，这就是为什么我很高兴找到了来自美食家 的这个两分钟饼干食谱。
 

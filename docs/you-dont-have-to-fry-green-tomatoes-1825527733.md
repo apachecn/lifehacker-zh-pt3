@@ -1,6 +1,6 @@
 # 你不需要炒绿番茄
 
-> 原文:[https://life hacker . com/you-don-t-to-fry-green-tomatos-1825527733](https://lifehacker.com/you-dont-have-to-fry-green-tomatoes-1825527733)
+> 原文：<https://lifehacker.com/you-dont-have-to-fry-green-tomatoes-1825527733>
 
 随着气温攀升超过北极的水平，鸟儿每天花 16 个小时大声宣告“动手季节”的到来，我一年中短暂而辉煌的亮点——西红柿季节——似乎近在咫尺。当然，这还有很长的路要走，但是西红柿的绿色季节才刚刚开始。
 

@@ -1,6 +1,6 @@
 # 帮助控制狂成为更好的团队成员的四个建议
 
-> 原文:[https://life hacker . com/four-tips-to-help-control-freaks-be-better-team-players-1785999165](https://lifehacker.com/four-tips-to-help-control-freaks-be-better-team-players-1785999165)
+> 原文：<https://lifehacker.com/four-tips-to-help-control-freaks-be-better-team-players-1785999165>
 
 还记得你在学校的时候，你的老师会宣布分配一个新的 [团队项目](https://www.themuse.com/advice/how-to-make-sure-you-never-dread-a-team-project-again) 吗？如果你的教室和我的一样，你会记得听到黑板之间传来的集体呻吟的回声。
 

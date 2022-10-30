@@ -1,6 +1,6 @@
 # 问一个独立摇滚老手:偏头痛怎么玩？
 
-> 原文:[https://www . av club . com/ask-an-indie-rock-老手-how-do-you-play-with-a-migra-1825578218](https://www.avclub.com/ask-an-indie-rock-veteran-how-do-you-play-with-a-migra-1825578218)
+> 原文：<https://www.avclub.com/ask-an-indie-rock-veteran-how-do-you-play-with-a-migra-1825578218>
 
 ## ***小时候，我受不了以萨克斯为特色的摇滚。到 8 月份我就 36 岁了，如果我现在不觉得它们讨人喜欢，那我就该死了。你认为在摇滚歌曲中听到萨克斯就相当于小时候不得不吞下壁球吗？你最喜欢的萨克斯摇滚歌曲是什么？***
 ***—乔纳森***

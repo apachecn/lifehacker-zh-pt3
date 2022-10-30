@@ -1,6 +1,6 @@
 # 看完任何一本书、电影、游戏或电视节目后要读什么
 
-> 原文:[https://life hacker . com/what-to-read after-done-any-book-movie-gam-1823364786](https://lifehacker.com/what-to-read-after-youre-done-with-any-book-movie-gam-1823364786)
+> 原文：<https://lifehacker.com/what-to-read-after-youre-done-with-any-book-movie-gam-1823364786>
 
 《西部世界》播出几个月后我看了，觉得很孤独；没有人还想谈论它。一部好的娱乐作品——一部电视剧、一部电影、一本书、甚至一个播客或视频游戏——一半的乐趣在于谈论它、研究它、了解更多。任何好的艺术作品都得益于学习，坏的艺术作品都得益于和人一起嘲笑。
 

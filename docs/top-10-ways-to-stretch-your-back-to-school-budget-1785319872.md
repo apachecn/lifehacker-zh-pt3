@@ -1,6 +1,6 @@
 # 10 大方法来延长你的学校预算
 
-> 原文:[https://life hacker . com/top-10-ways-stretch your-back-school-budget-1785319872](https://lifehacker.com/top-10-ways-to-stretch-your-back-to-school-budget-1785319872)
+> 原文：<https://lifehacker.com/top-10-ways-to-stretch-your-back-to-school-budget-1785319872>
 
 不管我们愿不愿意承认，现在又到了开学季。这意味着家长和学生都在准备花一大笔钱为上课准备笔记本电脑、学习用品、衣服和配件。以下是如何在力所能及的地方存钱，并把现金放在钱包里。
 

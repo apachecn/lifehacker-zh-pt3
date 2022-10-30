@@ -1,6 +1,6 @@
 # 家庭影院软件摊牌:Kodi vs Plex
 
-> 原文:[https://life hacker . com/home-theater-software-摊牌-kodi-vs-plex-1746501974](https://lifehacker.com/home-theater-software-showdown-kodi-vs-plex-1746501974)
+> 原文：<https://lifehacker.com/home-theater-software-showdown-kodi-vs-plex-1746501974>
 
 谁需要网飞？有了像 Plex 和 Kodi 这样的家庭影院应用程序，你就可以把你喜欢的所有电视节目和电影放入你自己的可爱的图书馆，没有任何垃圾内容。但是应该用哪个软件呢？这是两个最大的解决方案的对比。
 

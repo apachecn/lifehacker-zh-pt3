@@ -1,6 +1,6 @@
 # 制作您自己的垃圾邮件过滤器
 
-> 原文:[https://life hacker . com/make-your-own-email-spam-filter-1829437006](https://lifehacker.com/make-your-own-email-spam-filter-1829437006)
+> 原文：<https://lifehacker.com/make-your-own-email-spam-filter-1829437006>
 
 如果 Gmail 的垃圾邮件和时事通讯过滤器漏过了太多，或者如果你使用的私人电子邮件服务的垃圾邮件过滤器不好，那么试试这个解决方案: [隔离所有电子邮件，直到发件人确认它们不是垃圾邮件](http://blog.nawaz.org/posts/2018/Sep/solving-my-email-problem/) 。这是你自制的垃圾邮件过滤器。
 

@@ -1,6 +1,6 @@
 # 赠送我们喜欢的令人敬畏的小玩意和东西
 
-> 原文:[https://life hacker . com/give-the-give-gift-of-awesome-gadgets-and-stuff-we-like-1742245692](https://lifehacker.com/give-the-gift-of-awesome-gadgets-and-stuff-we-like-1742245692)
+> 原文：<https://lifehacker.com/give-the-gift-of-awesome-gadgets-and-stuff-we-like-1742245692>
 
 并不是每一个很酷的礼物想法都适合一个整洁的小类别。事实上，一些最好的东西没有。这就是为什么我们有一个特别的指南，专门介绍一年中我们喜欢的令人敬畏的小玩意。这里有一些我们喜欢的最棒的东西。
 

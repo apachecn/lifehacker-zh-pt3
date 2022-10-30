@@ -1,6 +1,6 @@
 # 将旧显示器变成每日状态板
 
-> 原文:[https://life hacker . com/turn-an-old-monitor-into-a-daily-status-board-1795736107](https://lifehacker.com/turn-an-old-monitor-into-a-daily-status-board-1795736107)
+> 原文：<https://lifehacker.com/turn-an-old-monitor-into-a-daily-status-board-1795736107>
 
 当我睡眼惺忪地走进浴室时，我的镜子没有活过来告诉我一天的剩余时间，尽管我很希望它能这样做。一个永远在线的仪表板向我传达我的日历约会和天气，这既可以帮助我更好地了解我需要完成的事情，又可以让我避免在雨中穿过城市。幸运的是，只要稍加修改，你就可以把你周围的任何设备变成你自己的 DIY 状态板。
 

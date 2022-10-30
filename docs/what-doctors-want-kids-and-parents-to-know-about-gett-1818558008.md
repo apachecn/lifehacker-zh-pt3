@@ -1,6 +1,6 @@
 # 医生想让孩子(和父母)知道的关于纹身的知识
 
-> 原文:[https://life hacker . com/what-doctors-want-kids-and-parents-to-know-about-gett-1818558008](https://lifehacker.com/what-doctors-want-kids-and-parents-to-know-about-gett-1818558008)
+> 原文：<https://lifehacker.com/what-doctors-want-kids-and-parents-to-know-about-gett-1818558008>
 
 美国儿科学会首次发布了关于年轻人安全纹身、穿孔和划痕的指南。他们并没有说*不*可以纹身——无论如何，在大多数州，孩子们仍然需要问妈妈或爸爸。但是如果你正在考虑的话，他们有一些建议。
 

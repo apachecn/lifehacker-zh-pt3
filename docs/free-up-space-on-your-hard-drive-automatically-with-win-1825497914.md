@@ -1,6 +1,6 @@
 # 借助 Windows 10 的存储感知功能，自动释放硬盘空间
 
-> 原文:[https://life hacker . com/free-up-space-on-your-hard-drive-with-win-1825497914](https://lifehacker.com/free-up-space-on-your-hard-drive-automatically-with-win-1825497914)
+> 原文：<https://lifehacker.com/free-up-space-on-your-hard-drive-automatically-with-win-1825497914>
 
 Windows:有时，找到正确的 Windows 设置来自动化你的数字生活的某个部分就像在你沙发的角落和缝隙中挖掘零钱一样。在这种情况下，Windows 的“存储感知”，一种自动化硬盘清洁的便捷方式，可能已经盯着你的脸有一段时间了，你只是从来没有想到要激活它。你应该这么做。
 

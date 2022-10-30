@@ -1,6 +1,6 @@
 # 一月的健身挑战:抓住引体向上吧
 
-> 原文:[https://life hacker . com/January-s-fitness-challenge-grab-on-the-pull-up-bar-1821717656](https://lifehacker.com/january-s-fitness-challenge-grab-onto-that-pull-up-bar-1821717656)
+> 原文：<https://lifehacker.com/january-s-fitness-challenge-grab-onto-that-pull-up-bar-1821717656>
 
 引体向上很难，但只要我们一起努力，就能让它变得更有可能。欢迎参加 Lifehacker 健身挑战赛，我们每个月都会为所有级别的锻炼者设定一个新目标。
 

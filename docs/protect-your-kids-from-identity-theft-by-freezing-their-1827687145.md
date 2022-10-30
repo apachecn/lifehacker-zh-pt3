@@ -1,6 +1,6 @@
 # 通过冻结您的孩子的信用来保护他们免受身份盗用
 
-> 原文:[https://life hacker . com/protect-your-kids-by-freeze-they-1827687145](https://lifehacker.com/protect-your-kids-from-identity-theft-by-freezing-their-1827687145)
+> 原文：<https://lifehacker.com/protect-your-kids-from-identity-theft-by-freezing-their-1827687145>
 
 如果你已经采取措施保护自己免遭身份盗窃，那就太好了。但是，如果你是一位家长，你还没有结束——你的孩子很可能最终成为受害者。
 

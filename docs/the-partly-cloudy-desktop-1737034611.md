@@ -1,6 +1,6 @@
 # 部分模糊的桌面
 
-> 原文:[https://lifehacker.com/the-partly-cloudy-desktop-1737034611](https://lifehacker.com/the-partly-cloudy-desktop-1737034611)
+> 原文：<https://lifehacker.com/the-partly-cloudy-desktop-1737034611>
 
 普什卡 的桌面总是令人愉悦，这款也不例外。我们一直在强调几个更简单、小部件更少的桌面，这是一个完美的例子。一张带我们回到夏天的壁纸，只需要几个小部件，就可以开始工作了。
 

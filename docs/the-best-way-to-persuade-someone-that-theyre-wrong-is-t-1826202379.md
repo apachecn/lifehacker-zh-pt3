@@ -1,6 +1,6 @@
 # 说服某人他们错了的最好方法是向他们展示他们是如何正确的
 
-> 原文:[https://life hacker . com/the-best-way-to-说服某人他们错了-is-t-1826202379](https://lifehacker.com/the-best-way-to-persuade-someone-that-theyre-wrong-is-t-1826202379)
+> 原文：<https://lifehacker.com/the-best-way-to-persuade-someone-that-theyre-wrong-is-t-1826202379>
 
 当你和别人讨论一个话题时，避免直截了当地告诉别人他们错了，这对你最有利。它所做的只是让其他人产生防御心理，让他们进一步坚定自己的信念。相反，告诉他们所有他们是对的，然后引导他们自己认识到他们是错的。
 

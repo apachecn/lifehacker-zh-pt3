@@ -1,6 +1,6 @@
 # 求职面试中你不应该害怕问的四个八卦问题
 
-> 原文:[https://life hacker . com/four-nosy-questions-you-should-you-1770298295](https://lifehacker.com/four-nosy-questions-you-shouldnt-be-afraid-to-ask-in-yo-1770298295)
+> 原文：<https://lifehacker.com/four-nosy-questions-you-shouldnt-be-afraid-to-ask-in-yo-1770298295>
 
 如果你像我认为的那样为面试做了充分的准备，你可能会有一长串 [问题要问](https://www.themuse.com/advice/51-interview-questions-you-should-be-asking) 。但是你可能也会担心哪些是可以提出来的，哪些会让你丢掉工作。
 

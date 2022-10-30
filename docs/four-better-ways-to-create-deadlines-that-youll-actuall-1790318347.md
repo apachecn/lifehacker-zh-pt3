@@ -1,6 +1,6 @@
 # 四种更好的方法来创建你将真正遵守的最后期限
 
-> 原文:[https://life hacker . com/four-better-ways-to-create-deadline-that-you-actuall-1790318347](https://lifehacker.com/four-better-ways-to-create-deadlines-that-youll-actuall-1790318347)
+> 原文：<https://lifehacker.com/four-better-ways-to-create-deadlines-that-youll-actuall-1790318347>
 
 上次你有一个重大项目要处理，你给自己设定了一个最后期限——然后差一点就完成了。结果是:你匆忙完成(或者熬了个通宵)，然后发誓你再也不会重复那种经历。
 

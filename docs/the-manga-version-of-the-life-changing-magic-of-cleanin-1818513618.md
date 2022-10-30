@@ -1,6 +1,6 @@
 # 漫画版的改变生活的整理魔法正在让青少年真正地整理东西
 
-> 原文:[https://life hacker . com/the-manga-version-the-life-changing-magic-of-clean in-1818513618](https://lifehacker.com/the-manga-version-of-the-life-changing-magic-of-cleanin-1818513618)
+> 原文：<https://lifehacker.com/the-manga-version-of-the-life-changing-magic-of-cleanin-1818513618>
 
 玛丽·近藤(Marie Kondo)围绕她“改变生活”的整理方法建立了一个帝国，激励数百万人放弃将袜子卷成球的残忍行为，并开始感谢引发欢乐的无生命家居物品。她现在接触到了新的受众:漫画小说粉丝。
 

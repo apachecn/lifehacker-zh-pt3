@@ -1,6 +1,6 @@
 # 影响偏见如何影响你对幸福的期望
 
-> 原文:[https://life hacker . com/how-the-impact-bias-affects-your ' s expectations of-happin-1735457896](https://lifehacker.com/how-the-impact-bias-affects-your-expectations-of-happin-1735457896)
+> 原文：<https://lifehacker.com/how-the-impact-bias-affects-your-expectations-of-happin-1735457896>
 
 人类心理学的一个奇怪的怪癖是，我们在预测自己未来的情绪状态方面有多糟糕。我们认为好消息会让我们更加快乐，而灾难会无限期地把我们拖垮，但事实远非如此。
 

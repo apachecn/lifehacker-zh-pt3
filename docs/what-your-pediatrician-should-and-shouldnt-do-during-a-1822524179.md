@@ -1,6 +1,6 @@
 # 体检时，你的儿科医生应该做什么，不应该做什么
 
-> 原文:[https://life hacker . com/what-your-儿科医生-在-a-1822524179](https://lifehacker.com/what-your-pediatrician-should-and-shouldnt-do-during-a-1822524179)
+> 原文：<https://lifehacker.com/what-your-pediatrician-should-and-shouldnt-do-during-a-1822524179>
 
 作为父母，我们应该相信孩子的医生。但是我们也应该知道什么是标准程序，什么不是。
 

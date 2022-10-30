@@ -1,6 +1,6 @@
 # 大学生现在可以以很高的折扣购买亚马逊 Prime
 
-> 原文:[https://life hacker . com/college-kids-can-now-use-Amazon-prime-at-a-steep-discou-1819358592](https://lifehacker.com/college-kids-can-now-use-amazon-prime-at-a-steep-discou-1819358592)
+> 原文：<https://lifehacker.com/college-kids-can-now-use-amazon-prime-at-a-steep-discou-1819358592>
 
 你可能沉迷于有机化学教科书和你能找到的最便宜的拉面，但这并不意味着你不能享受及时送到你手中的卫生纸和巧克力棒的额外津贴。亚马逊过去已经为大学生提供打折的亚马逊音乐无限服务， [现在也对其主要服务](https://www.engadget.com/2017/10/10/amazon-intros-prime-monthly-option-for-students/) 打折。新计划还允许学生按月付费，减轻了在你(父母)的沙发垫中寻找足够零钱支付一年服务费的负担。
 

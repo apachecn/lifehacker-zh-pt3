@@ -1,6 +1,6 @@
 # UPS 正在提高假日运输的价格
 
-> 原文:[https://life hacker . com/ups-is-raising-prices-for-holiday-shipping-1796265676](https://lifehacker.com/ups-is-raising-prices-for-holiday-shipping-1796265676)
+> 原文：<https://lifehacker.com/ups-is-raising-prices-for-holiday-shipping-1796265676>
 
 与我们其他人不同，UPS 已经开始为假期提前做计划。周一， [UPS 宣布](http://www.rates.ups.com/pdfs/peak_surcharge_pdf_final.pdf) 将在黑色星期五和圣诞节前后提高运费。
 

@@ -1,6 +1,6 @@
 # 我是 Grubhub 首席技术官 Maria Belousova，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-grubhub-CTO-Maria-belousova-and-this-is-how-I-work-1819373669](https://lifehacker.com/im-grubhub-cto-maria-belousova-and-this-is-how-i-work-1819373669)
+> 原文：<https://lifehacker.com/im-grubhub-cto-maria-belousova-and-this-is-how-i-work-1819373669>
 
 自 2014 年加入 Grubhub 以来，Maria Belousova 一直担任技术 s VP 的工程副总裁，现在担任首席技术官，负责监督 Grubhub 的技术基础设施和产品愿景。此前，她曾在微软 [Bluefly](https://www.bluefly.com/) 担任技术领导职务，并创建了社交媒体平台 Davai。她告诉我们她在一个软件工程师的家庭中长大，以及她是如何在没有任务清单的情况下完成工作的。
 

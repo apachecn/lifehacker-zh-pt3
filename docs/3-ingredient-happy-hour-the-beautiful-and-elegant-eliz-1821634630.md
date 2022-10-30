@@ -1,6 +1,6 @@
 # 三要素快乐时光:美丽优雅的伊丽莎白·泰勒
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-beautiful-and-elegant-eliz-1821634630](https://lifehacker.com/3-ingredient-happy-hour-the-beautiful-and-elegant-eliz-1821634630)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-beautiful-and-elegant-eliz-1821634630>
 
 2017 年最后一个周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。除夕夜的一切都应该是美丽和闪亮的，所以本周我们啜饮危险美丽的伊丽莎白·泰勒，因其令人愉悦的紫色色调而以这位紫罗兰色眼睛的女明星命名。
 

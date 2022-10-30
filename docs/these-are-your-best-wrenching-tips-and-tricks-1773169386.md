@@ -1,6 +1,6 @@
 # 这些是你最好的扭转技巧和窍门
 
-> 原文:[https://jalopnik . com/这些是你最好的扳手腕技巧-1773169386](https://jalopnik.com/these-are-your-best-wrenching-tips-and-tricks-1773169386)
+> 原文：<https://jalopnik.com/these-are-your-best-wrenching-tips-and-tricks-1773169386>
 
 上周，我 [请你](http://thegarage.jalopnik.com/tell-us-wrenching-tips-and-tricks-youve-learned-over-th-1772475137#_ga=1.212162836.1418570847.1453824634) 告诉我一些你在多年的痛苦中所学到的最酷的技巧和诀窍。数百名读者贡献了大量“令人痛苦的黑客”，但这里有一些我最喜欢的。
 

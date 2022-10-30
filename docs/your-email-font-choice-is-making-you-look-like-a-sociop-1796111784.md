@@ -1,6 +1,6 @@
 # 你选择的邮件字体让你看起来像个反社会者
 
-> 原文:[https://Jezebel . com/your-email-font-choice-is-making-you-look-like-a-sociop-1796111784](https://jezebel.com/your-email-font-choice-is-making-you-look-like-a-sociop-1796111784)
+> 原文：<https://jezebel.com/your-email-font-choice-is-making-you-look-like-a-sociop-1796111784>
 
 你想要一些建议吗？可能不会，但我要说。你应该只使用你的邮件客户端的默认字体。
 

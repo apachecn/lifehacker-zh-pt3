@@ -1,6 +1,6 @@
 # 为什么我的台式计算机上无法获得预测文本？
 
-> 原文:[https://life hacker . com/why-cant-I-get-predictive-text-on-my-desktop-computer-1828242801](https://lifehacker.com/why-cant-i-get-predictive-text-on-my-desktop-computer-1828242801)
+> 原文：<https://lifehacker.com/why-cant-i-get-predictive-text-on-my-desktop-computer-1828242801>
 
 没有什么比预测文本更快地消除错别字了。想想你一天中有多频繁，不停地发短信，使用智能手机的内置功能来预测你试图在完成之前输入的重要单词。如果你很优秀，你可以不用写一封真正的信就写出一个像样的想法。
 

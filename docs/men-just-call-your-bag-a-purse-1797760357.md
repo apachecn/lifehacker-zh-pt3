@@ -1,6 +1,6 @@
 # 男士们，就把你们的包叫做钱包吧
 
-> 原文:[https://life hacker . com/men-just-call-your-bag-a-purple-1797760357](https://lifehacker.com/men-just-call-your-bag-a-purse-1797760357)
+> 原文：<https://lifehacker.com/men-just-call-your-bag-a-purse-1797760357>
 
 我们已经走过了很长一段路，那时男人害怕带包，这可能会被误认为是钱包，这是女人穿的，因此不好。
 

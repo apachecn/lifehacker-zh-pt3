@@ -1,6 +1,6 @@
 # 使用此应用程序自动将您的零钱投资于加密货币
 
-> 原文:[https://life hacker . com/automatically-invest-your-spare-change-in-cryptocurrenc-1819028364](https://lifehacker.com/automatically-invest-your-spare-change-in-cryptocurrenc-1819028364)
+> 原文：<https://lifehacker.com/automatically-invest-your-spare-change-in-cryptocurrenc-1819028364>
 
 如果你一直想拥有一些加密货币，一个新的应用程序可能是获得一些加密货币的好方法。这款名为 [Coinflash](https://coinflashapp.com/) 的应用程序将你一周内购物剩余的零钱取出，用这些现金通过比特币基地账户投资你选择的加密货币。
 

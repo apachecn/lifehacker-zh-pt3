@@ -1,6 +1,6 @@
 # 当你和你的另一半都在家工作时，如何保持理智
 
-> 原文:[https://life hacker . com/how-to-stay-sane-when-both-you-and-the-significant-oth-1735931004](https://lifehacker.com/how-to-stay-sane-when-both-you-and-your-significant-oth-1735931004)
+> 原文：<https://lifehacker.com/how-to-stay-sane-when-both-you-and-your-significant-oth-1735931004>
 
 如果你和你的伴侣都在家工作，你应该很清楚这会给你们的关系带来的独特挑战。从感觉自己总是压在对方身上，到你所有的宝贵时间都被打断，自由职业者的生活在人际关系上可能很艰难。以下是当你们都在家工作时保持激情的方法。
 

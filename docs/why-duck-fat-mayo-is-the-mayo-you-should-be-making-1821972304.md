@@ -1,6 +1,6 @@
 # 为什么鸭油蛋黄酱是你应该做的蛋黄酱
 
-> 原文:[https://life hacker . com/why-duck-fat-mayo-is-the-mayo-you-should-making-1821972304](https://lifehacker.com/why-duck-fat-mayo-is-the-mayo-you-should-be-making-1821972304)
+> 原文：<https://lifehacker.com/why-duck-fat-mayo-is-the-mayo-you-should-be-making-1821972304>
 
 我真的很喜欢蛋黄酱。作为一个吃了太多教堂晚餐的人，我认为这是三明治以外的调味品。制作自己的是一个真正的游戏改变者，但是*鸭油*蛋黄酱完全拒绝玩这个游戏。
 

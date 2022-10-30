@@ -1,6 +1,6 @@
 # 七月的健身挑战是:深蹲
 
-> 原文:[https://life hacker . com/julys-fitness-challenge-is-squats-1827051624](https://lifehacker.com/julys-fitness-challenge-is-squats-1827051624)
+> 原文：<https://lifehacker.com/julys-fitness-challenge-is-squats-1827051624>
 
 准备好强健的双腿和挺拔的臀部吧，因为七月的 [健身挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 是深蹲！这是经典的下半身锻炼，原因如下: [深蹲可以锻炼 wais](https://vitals.lifehacker.com/why-squats-are-the-best-strength-building-exercise-for-1760732712#_ga=2.267849289.610684105.1529333242-1456718367.1520458611) t 以下的几乎每一块肌肉，而且各种健身水平都有很多种变化。
 

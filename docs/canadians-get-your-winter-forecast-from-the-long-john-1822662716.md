@@ -1,6 +1,6 @@
 # 加拿大人，从高个约翰指数中获取冬季预报
 
-> 原文:[https://life hacker . com/Canadians-get-your-winter-forecast-from-the-long-John-1822662716](https://lifehacker.com/canadians-get-your-winter-forecast-from-the-long-john-1822662716)
+> 原文：<https://lifehacker.com/canadians-get-your-winter-forecast-from-the-long-john-1822662716>
 
 加入了丰富天气预报的悠久传统(这一传统由 [应用](https://lifehacker.com/carrot-weather-adds-a-little-humor-to-your-weather-fore-1692378982)[微型网站](http://thefuckingweather.com/)[海地气象学家](https://www.youtube.com/watch?v=7QLSRMoKKS0)),[长约翰指数](http://www.longjohnindex.ca/) 以那些 [【邻里刻板印象】地图](https://www.google.com/search?q=neighborhood+stereotype+maps&tbm=isch&tbo=u&source=univ&sa=X&ved=0ahUKEwikkPHAyYfZAhVDUt8KHbgwAU8QsAQIJg&biw=1398&bih=960) 的风格给出每日加拿大天气预报。
 

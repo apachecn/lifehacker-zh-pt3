@@ -1,6 +1,6 @@
 # 在给宝宝换尿布之前，试试这个连体衣技巧
 
-> 原文:[https://life hacker . com/try-this-onesie-trick-before-change-your-babys-diaper-1829506911](https://lifehacker.com/try-this-onesie-trick-before-changing-your-babys-diaper-1829506911)
+> 原文：<https://lifehacker.com/try-this-onesie-trick-before-changing-your-babys-diaper-1829506911>
 
 给一个能站立的婴儿换尿布是一项快速反应和希望的训练。有很多因素需要考虑，包括那些在危险区域摇摆的讨厌的连体衣，如果你知道我的意思。这里有一个小技巧可以让这个过程变得更简单:首先用裤裆搭扣把连体衣固定在孩子的肩膀上。
 

@@ -1,6 +1,6 @@
 # 美国最好的热狗，在它们永远消失之前你应该去的地方，以及国际空间站之旅
 
-> 原文:[https://life hacker . com/the-best-hot-dogs-in-America-places-you-should-see-bef-1788424989](https://lifehacker.com/the-best-hot-dogs-in-america-places-you-should-see-bef-1788424989)
+> 原文：<https://lifehacker.com/the-best-hot-dogs-in-america-places-you-should-see-bef-1788424989>
 
 本周我们将游览国际空间站，用地热能源制作面包，并品尝美国最好的热狗。我们还会填写你的遗愿清单，并进行一些思想实验。
 

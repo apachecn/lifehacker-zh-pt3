@@ -1,6 +1,6 @@
 # 如何找到自己真正喜欢的古典音乐
 
-> 原文:[https://life hacker . com/how-to-find-classic-music-you-actually-like-1829062436](https://lifehacker.com/how-to-find-classical-music-you-actually-like-1829062436)
+> 原文：<https://lifehacker.com/how-to-find-classical-music-you-actually-like-1829062436>
 
 古典音乐已经发展了几个世纪，所以有各种不同的声音。这意味着，如果你讨厌一种，你仍然可以爱其他几种。讨厌歌剧？你可能仍然喜欢管弦乐队。交响乐太过压倒性？尝试一些更短、更轻快的室内乐。在上面的视频中，我们根据风格、时代、乐器和作曲家，给你一些找到你喜欢的古典音乐类型的提示。我们专注于浪漫主义时期——如果你不喜欢这个，可以看看我们关注于 [巴洛克](https://lifehacker.com/how-to-start-listening-to-classical-music-1827887495) 和 [古典](https://lifehacker.com/how-to-really-appreciate-classical-music-1828130857) 时期的视频。
 

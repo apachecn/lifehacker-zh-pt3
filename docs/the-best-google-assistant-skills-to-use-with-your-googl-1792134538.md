@@ -1,6 +1,6 @@
 # 使用谷歌主页的最佳谷歌助手技能
 
-> 原文:[https://life hacker . com/the-best-Google-assistant-skills-to-use-with-your-googl-1792134538](https://lifehacker.com/the-best-google-assistant-skills-to-use-with-your-googl-1792134538)
+> 原文：<https://lifehacker.com/the-best-google-assistant-skills-to-use-with-your-googl-1792134538>
 
 谷歌可能正在追赶亚马逊的回声，但谷歌主页已经有了一系列第三方服务，可以为你的智能家居扬声器添加功能。有些是垃圾，但我们找到了最好的，你应该尝试一下。
 

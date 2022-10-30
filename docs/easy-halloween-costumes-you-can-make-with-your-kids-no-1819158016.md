@@ -1,6 +1,6 @@
 # 你可以和你的孩子一起制作简单的万圣节服装(不管他们多大)
 
-> 原文:[https://life hacker . com/easy-Halloween-costumes-you-can-make-with-your-kids-no-1819158016](https://lifehacker.com/easy-halloween-costumes-you-can-make-with-your-kids-no-1819158016)
+> 原文：<https://lifehacker.com/easy-halloween-costumes-you-can-make-with-your-kids-no-1819158016>
 
 Watch
 

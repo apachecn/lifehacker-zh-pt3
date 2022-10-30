@@ -1,6 +1,6 @@
 # 告诉我们你是如何报税的
 
-> 原文:[https://life hacker . com/tell-us-how-do-you-do-you-tax-1822412578](https://lifehacker.com/tell-us-how-you-do-your-taxes-1822412578)
+> 原文：<https://lifehacker.com/tell-us-how-you-do-your-taxes-1822412578>
 
 你听到了吗？这是员工收到邮寄的 W-2 表格时发出的叹息声，而会计师们正在掸掉计算器上的灰尘，为纳税季做准备。
 

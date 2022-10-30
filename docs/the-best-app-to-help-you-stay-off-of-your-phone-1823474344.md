@@ -1,6 +1,6 @@
 # 帮助你远离手机的最佳应用
 
-> 原文:[https://life hacker . com/the-best-app-to-help-you-stay-off-your-phone-1823474344](https://lifehacker.com/the-best-app-to-help-you-stay-off-of-your-phone-1823474344)
+> 原文：<https://lifehacker.com/the-best-app-to-help-you-stay-off-of-your-phone-1823474344>
 
 虽然我们努力为您提供不同的方法来破解您的技术，使其更加高效和令人愉快，但有时最有帮助的破解方法就是远离它——尤其是我们的智能手机。
 

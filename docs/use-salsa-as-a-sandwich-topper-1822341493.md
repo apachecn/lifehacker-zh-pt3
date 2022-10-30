@@ -1,6 +1,6 @@
 # 用沙拉作为三明治的配料
 
-> 原文:[https://life hacker . com/use-salsa-as-a-sandwich-topper-1822341493](https://lifehacker.com/use-salsa-as-a-sandwich-topper-1822341493)
+> 原文：<https://lifehacker.com/use-salsa-as-a-sandwich-topper-1822341493>
 
 一个好的三明治只需要肉、奶酪和面包，但加入一些番茄、洋葱或其他蔬菜可以通过增加新鲜的味道和质地使它变得真正伟大。你可以把沙拉堆在上面，而不是把每一种成分单独切片或切块，这样可以节省时间。
 

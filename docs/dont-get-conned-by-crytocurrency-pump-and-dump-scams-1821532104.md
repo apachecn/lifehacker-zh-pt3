@@ -1,6 +1,6 @@
 # 不要被加密的“抽水和倾倒”骗局所欺骗
 
-> 原文:[https://life hacker . com/don-get-conned-by-cryto currency-pump-dump-scams-1821532104](https://lifehacker.com/dont-get-conned-by-crytocurrency-pump-and-dump-scams-1821532104)
+> 原文：<https://lifehacker.com/dont-get-conned-by-crytocurrency-pump-and-dump-scams-1821532104>
 
 所以你 [找不到你四年前购买的比特币](https://www.wsj.com/articles/good-news-you-are-a-bitcoin-millionaire-bad-news-you-forgot-your-password-1513701480) 。正如金融行业监管机构 [周四警告投资者](http://www.finra.org/investors/alerts/don%E2%80%99t-fall-cryptocurrency-related-stock-scams) 的那样，不要过度投资于突然决定“进入区块链”的可疑公司。因为它们可能只是个骗局。
 

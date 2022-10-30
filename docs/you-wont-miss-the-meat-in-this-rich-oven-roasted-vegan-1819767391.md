@@ -1,6 +1,6 @@
 # 你一定不会错过这道浓郁的烤素食烤肉
 
-> 原文:[https://life hacker . com/you-won-miss the meat-in-this-rich-oven-baked-vegan-1819767391](https://lifehacker.com/you-wont-miss-the-meat-in-this-rich-oven-roasted-vegan-1819767391)
+> 原文：<https://lifehacker.com/you-wont-miss-the-meat-in-this-rich-oven-roasted-vegan-1819767391>
 
 Hearty ragú是典型的寒冷天气食物，通常是我在夜间温度最终降至 50 华氏度以下时做的第一件事。我吃肉，但我已经很多年没有做传统的、肉味重的肉酱面了。信不信由你，素食茄子和蘑菇炖肉彻底毁了我对这道菜的传统猪肉口味。
 

@@ -1,6 +1,6 @@
 # Steam 变得疯狂，提供访问其他人的帐户[更新]
 
-> 原文:[https://kotaku . com/steam-goes-nuts-offers-access-to-other-people-account-1749718979](https://kotaku.com/steam-goes-nuts-offers-access-to-other-peoples-account-1749718979)
+> 原文：<https://kotaku.com/steam-goes-nuts-offers-access-to-other-peoples-account-1749718979>
 
 Steam 今天下午面临了一场灾难，让世界各地的玩家可以访问其他人账户中的一些个人信息。还不清楚这是如何发生的，但这是一个奇迹。称之为蒸汽冬天失败。
 

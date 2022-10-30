@@ -1,6 +1,6 @@
 # 教女孩举手，即使她们不确定答案
 
-> 原文:[https://life hacker . com/teach-girls-to-raise-hands-even-when-they-she-s-1820177146](https://lifehacker.com/teach-girls-to-raise-their-hands-even-when-theyre-not-s-1820177146)
+> 原文：<https://lifehacker.com/teach-girls-to-raise-their-hands-even-when-theyre-not-s-1820177146>
 
 上周，华盛顿特区五年级学生爱莉丝·保罗·塔珀在*纽约时报*T5】上写了一篇专栏文章，所有年龄段的女性都纷纷点头表示支持。在四年级的一次旅行中，塔珀注意到“所有的男孩都站在前面举起手，而大多数女孩礼貌地呆在后面，很安静。”这让她心烦意乱。
 

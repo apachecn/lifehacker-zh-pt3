@@ -1,6 +1,6 @@
 # Lazy Jar 让你为跳过锻炼买单
 
-> 原文:[https://life hacker . com/lazy-jar-make-you-pay-little-for-skipping-workout-1820142922](https://lifehacker.com/lazy-jar-makes-you-pay-literally-for-skipping-workout-1820142922)
+> 原文：<https://lifehacker.com/lazy-jar-makes-you-pay-literally-for-skipping-workout-1820142922>
 
 我们可能都需要更多的锻炼，但是获得这样做的动力有时会有点…挑战性。
 

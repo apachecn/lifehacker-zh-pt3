@@ -1,6 +1,6 @@
 # 在你的冰镇饮料中加入柠檬水，增加夏天的咖啡因含量
 
-> 原文:[https://life hacker . com/add-lemon-to-your ' s cold-brew-for-a summer-caffeine-b-1782848694](https://lifehacker.com/add-lemonade-to-your-cold-brew-for-a-summery-caffeine-b-1782848694)
+> 原文：<https://lifehacker.com/add-lemonade-to-your-cold-brew-for-a-summery-caffeine-b-1782848694>
 
 柠檬水混合冰茶——被称为“阿诺德·帕尔默”(Arnold palm er)——可能是夏季茶点的终极选择，但城里有一种新的柠檬咖啡因混合物，你可以用冷煮咖啡制作它。
 

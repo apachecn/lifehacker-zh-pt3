@@ -1,6 +1,6 @@
 # 潮湿、温暖、美妙:我试过吸引蒂姆·库克的喷雾淋浴
 
-> 原文:[https://gizmodo . com/wet-warm-glorious-I-tryed-the-atomizing-shower-that-1820543405](https://gizmodo.com/wet-warm-glorious-i-tried-the-atomizing-shower-that-1820543405)
+> 原文：<https://gizmodo.com/wet-warm-glorious-i-tried-the-atomizing-shower-that-1820543405>
 
 不是普通的淋浴，想象一下每天早上站在暴风云中:浴帘在风中起伏；空气又热又湿，像浓雾笼罩着你，冲走了肥皂泡沫。这就是使用 Nebia 的感觉，这个淋浴系统赢得了科技界最大的名字，却没有一个“智能”功能。没有传感器，没有蓝牙，没有无线网络，但感觉真他妈的好极了。
 

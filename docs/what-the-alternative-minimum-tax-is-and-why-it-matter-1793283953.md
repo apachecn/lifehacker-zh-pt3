@@ -1,6 +1,6 @@
 # 什么是“替代最低税”,为什么它对我们其他人很重要
 
-> 原文:[https://life hacker . com/what-the-alternative-minimum-tax-is-what-why-it-matter-1793283953](https://lifehacker.com/what-the-alternative-minimum-tax-is-and-why-it-matter-1793283953)
+> 原文：<https://lifehacker.com/what-the-alternative-minimum-tax-is-and-why-it-matter-1793283953>
 
 昨晚披露的川普 2005 年纳税申报单 中的一个突出项目是所谓的“替代最低税”(AMT)。如果你对它不是很熟悉，下面是 AMT 多功能体适一体机的全部内容及其重要性。
 

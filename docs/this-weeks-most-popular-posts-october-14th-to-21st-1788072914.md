@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 14 日至 21 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 14 日至 21 日-1788072914](https://lifehacker.com/this-weeks-most-popular-posts-october-14th-to-21st-1788072914)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-14th-to-21st-1788072914>
 
 本周，我们看了一下谷歌的新 Pixel 手机，了解了如何立即获得它们的最佳功能，指导父母了解《我的世界》的基本知识，找出哪些 iMessage 应用程序实际上是有用的，研究了地方选举等等。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 如何截图 Instagram 故事而不被抓到
 
-> 原文:[https://life hacker . com/how-to-take-screen-of-insta gram-stories-without-ge-1822934626](https://lifehacker.com/how-to-take-screenshots-of-instagram-stories-without-ge-1822934626)
+> 原文：<https://lifehacker.com/how-to-take-screenshots-of-instagram-stories-without-ge-1822934626>
 
 令各地的截图爱好者沮丧的是，Instagram 推出了一项新功能，当有人决定使用截图将他们的临时 Instagram 故事永久化时，它会提醒创作者。(类似的功能已经存在，可以提醒用户在 Snapchat 上拍摄的截图。)有几个变通办法，你可以试着避免提醒人们你正在拍摄他们的故事照片，以发送给朋友并加以取笑，尽管如果你想完全安全，但你可能应该停止屏幕截图( [或使用 Instagram](https://lifehacker.com/your-instagram-posts-may-offer-warning-signs-of-depress-1797821497) )，而不是想办法成为临时内容的记录者。为什么给任何人机会 [叫你爬虫](https://lifehacker.com/how-to-keep-your-social-media-creeping-private-1797903945) ？
 

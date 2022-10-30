@@ -1,6 +1,6 @@
 # 现在就花掉你的玩具反斗城礼品卡
 
-> 原文:[https://life hacker . com/spend-your-toys-r-us-gift-cards-now-1823836209](https://lifehacker.com/spend-your-toys-r-us-gift-cards-now-1823836209)
+> 原文：<https://lifehacker.com/spend-your-toys-r-us-gift-cards-now-1823836209>
 
 我们不想打断你对玩具反斗城倒闭的哀悼和对杰佛瑞能否东山再起的深切担忧，但是有件事你必须做。
 

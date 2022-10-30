@@ -1,6 +1,6 @@
 # 不要费心尝试建立自己的扑克碗
 
-> 原文:[https://life hacker . com/don-trough-try-to-build-your-own-poke-bowl-1797942717](https://lifehacker.com/dont-bother-trying-to-build-your-own-poke-bowl-1797942717)
+> 原文：<https://lifehacker.com/dont-bother-trying-to-build-your-own-poke-bowl-1797942717>
 
 作为一个写如何做出美味食物的人，我非常喜欢自己动手做美味、时尚的菜肴。在很多情况下，自制版本的东西会更好吃，但这不是戳碗的情况。
 

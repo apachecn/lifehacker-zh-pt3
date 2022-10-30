@@ -1,6 +1,6 @@
 # 停止网飞的预告片，用《网飞》充实你的未完待续内容
 
-> 原文:[https://life hacker . com/stop-网飞-拖车-和-颠簸-你的未完待续-1827533105](https://lifehacker.com/stop-netflix-trailers-and-bump-up-your-to-be-continued-1827533105)
+> 原文：<https://lifehacker.com/stop-netflix-trailers-and-bump-up-your-to-be-continued-1827533105>
 
 在你的笔记本电脑或台式电脑上观看《网飞》最烦人的一点是该服务喜欢自动为你播放预告片。我不反对我可能关心的电影或电视节目的有趣预告片。每个人都因为电影中他们不感兴趣的预告片而受苦——这只是游戏的名字而已。
 

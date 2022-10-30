@@ -1,6 +1,6 @@
 # 60 秒的瓦哈卡美食介绍
 
-> 原文:[https://the take out . com/a-60-second-intro-to-oaxacan-food-1823652327](https://thetakeout.com/a-60-second-intro-to-oaxacan-food-1823652327)
+> 原文：<https://thetakeout.com/a-60-second-intro-to-oaxacan-food-1823652327>
 
 幸运的是，墨西哥地方美食开始摆脱其过于一般化的名声。一批新的雄心勃勃的年轻厨师正在呼吁人们关注墨西哥烹饪中的地域差异，而一些美国先锋餐厅的辛勤工作终于让食客们相信，墨西哥菜不是快餐墨西哥卷饼或冰镇玛格丽塔酒的同义词。
 

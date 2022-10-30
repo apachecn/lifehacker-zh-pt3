@@ -1,6 +1,6 @@
 # 你的政治信仰让你不擅长数学
 
-> 原文:[https://life hacker . com/your-political-believes-make-you-bad-at-math-1796222216](https://lifehacker.com/your-political-beliefs-make-you-bad-at-math-1796222216)
+> 原文：<https://lifehacker.com/your-political-beliefs-make-you-bad-at-math-1796222216>
 
 根据 2013 年耶鲁大学的一项研究，当事实似乎与你的政治观点相矛盾时，你的大脑会努力保护你的信念，以至于你的数学成绩会更差。令人惊讶的是，这种效应在通常擅长数学的人身上更强。
 

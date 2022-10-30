@@ -1,6 +1,6 @@
 # 谨慎对待美元牡蛎之夜
 
-> 原文:[https://life hacker . com/approach-dollar-oyster-nights-with-caution-1791534841](https://lifehacker.com/approach-dollar-oyster-nights-with-caution-1791534841)
+> 原文：<https://lifehacker.com/approach-dollar-oyster-nights-with-caution-1791534841>
 
 作为一个刚刚迷上牡蛎的人，我理解“一元牡蛎之夜”的诱惑然而，根据牡蛎专家罗文·雅各布森 T5】的说法，并不是所有的牡蛎之夜都是一样的。
 

@@ -1,6 +1,6 @@
 # 用这份逻辑谬误指南找出政客论点中的漏洞
 
-> 原文:[https://life hacker . com/spot-the-flake-in-a-a-politics-argument-with-this-guide-1796333209](https://lifehacker.com/spot-the-flaw-in-a-politicians-argument-with-this-guide-1796333209)
+> 原文：<https://lifehacker.com/spot-the-flaw-in-a-politicians-argument-with-this-guide-1796333209>
 
 人类是有偏见的。我们记得 [的事情比不记得的事情更能证实我们的信念](http://lifehacker.com/know-how-confirmation-bias-colors-your-decisions-5571612) 。每天，我们都要面对新的信息和论点，我们必须整理，尤其是来自政治家的。
 

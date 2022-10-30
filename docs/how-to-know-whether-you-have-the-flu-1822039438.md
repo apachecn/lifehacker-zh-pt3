@@ -1,6 +1,6 @@
 # 如何判断自己是否患了流感
 
-> 原文:[https://life hacker . com/how-to-know-you have-the-flu-1822039438](https://lifehacker.com/how-to-know-whether-you-have-the-flu-1822039438)
+> 原文：<https://lifehacker.com/how-to-know-whether-you-have-the-flu-1822039438>
 
 你咳嗽。你流鼻涕。你觉得你可能会发烧。这是一个糟糕的流感年——每年似乎都是糟糕的流感年——所以你害怕最坏的情况。但这真的是流感吗？
 

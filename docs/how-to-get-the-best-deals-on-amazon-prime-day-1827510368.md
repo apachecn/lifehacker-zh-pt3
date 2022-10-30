@@ -1,6 +1,6 @@
 # 如何在亚马逊优惠日获得最优惠的价格
 
-> 原文:[https://life hacker . com/how-to-get-the-best-deals-on-Amazon-prime-day-1827510368](https://lifehacker.com/how-to-get-the-best-deals-on-amazon-prime-day-1827510368)
+> 原文：<https://lifehacker.com/how-to-get-the-best-deals-on-amazon-prime-day-1827510368>
 
 亚马逊 Prime Day 是一整天(外加几个小时！)在网上或全食超市购买的商品的特别折扣。今年的“黄金日”将于 7 月 16 日举行，从美国东部时间下午 3 点开始，持续 36 个小时。要获得大多数(但不是全部)交易的资格，你必须是亚马逊 Prime 会员，所以我们建议你注册。
 

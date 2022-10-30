@@ -1,6 +1,6 @@
 # 如何计划一次观看极光的旅行
 
-> 原文:[https://life hacker . com/how-to-plan-travel-to-see-an-aurora-1819289262](https://lifehacker.com/how-to-plan-travel-to-see-an-aurora-1819289262)
+> 原文：<https://lifehacker.com/how-to-plan-travel-to-see-an-aurora-1819289262>
 
 在今天这个随时随地获取信息的环境中，你几乎不可能获得一种惊奇感，但我发现答案往往在自然界。无论是感受日全食时升起的奇怪的凉风，还是观看一千多只八哥在空中盘旋，或者品尝从你面前的树上摘下的新鲜芒果，我们对地球上的快乐的感官体验——即使我们确切知道它们是如何发生的以及为什么会发生——都可以让我们再次惊叹不已。
 

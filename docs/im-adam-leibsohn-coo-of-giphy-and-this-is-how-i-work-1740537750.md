@@ -1,6 +1,6 @@
 # 我是亚当·雷布森，来自 Giphy 的首席运营官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Adam-leib Sohn-COO-of-giphy-and-this-is-how-I-work-1740537750](https://lifehacker.com/im-adam-leibsohn-coo-of-giphy-and-this-is-how-i-work-1740537750)
+> 原文：<https://lifehacker.com/im-adam-leibsohn-coo-of-giphy-and-this-is-how-i-work-1740537750>
 
 一张 GIF 就能说这么多。它可以是一种夸张的反应，一种对对话中所说内容的视觉类比，或者仅仅是网上交流的一个非推论。但通常只是一个搞笑的动画。
 

@@ -1,6 +1,6 @@
 # 加速你求职的 10 大工具
 
-> 原文:[https://life hacker . com/top-10-tools-super charge-your-job-search-1781408467](https://lifehacker.com/top-10-tools-to-supercharge-your-job-search-1781408467)
+> 原文：<https://lifehacker.com/top-10-tools-to-supercharge-your-job-search-1781408467>
 
 找到一份工作——无论是你的第一份还是第十份——都不容易，即使你拥有所有合适的技能和经验。幸运的是，有一些工具，一旦你拥有并使用它们，可以增加你获得工作的机会，不仅仅是任何工作，而是你喜欢的工作。
 

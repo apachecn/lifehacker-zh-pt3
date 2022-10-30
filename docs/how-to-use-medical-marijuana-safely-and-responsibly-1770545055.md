@@ -1,6 +1,6 @@
 # 如何安全负责地使用医用大麻
 
-> 原文:[https://life hacker . com/how-to-use-medical-大麻-安全负责-1770545055](https://lifehacker.com/how-to-use-medical-marijuana-safely-and-responsibly-1770545055)
+> 原文：<https://lifehacker.com/how-to-use-medical-marijuana-safely-and-responsibly-1770545055>
 
 医用大麻是一种安全的替代治疗选择( [相比之下](http://www.huffingtonpost.com/2015/02/24/marijuana-safer-than-alcohol-tobacco_n_6738572.html) )，但它仍然是一种强大的药物，如果你不知道自己在做什么，它会给你带来问题。然而，只要有一点知识和实践，你就可以用它来缓解一些症状，并控制负面的副作用。
 

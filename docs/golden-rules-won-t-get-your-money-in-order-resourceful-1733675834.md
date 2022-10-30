@@ -1,6 +1,6 @@
 # 最好的赚钱技巧和数学无关。是足智多谋
 
-> 原文:[https://life hacker . com/golden-rules-won-t-get-your-money-in-order-resource-1733675834](https://lifehacker.com/golden-rules-won-t-get-your-money-in-order-resourceful-1733675834)
+> 原文：<https://lifehacker.com/golden-rules-won-t-get-your-money-in-order-resourceful-1733675834>
 
 如果你的财务状况很糟糕，你可能已经买了一两本关于如何理财的书。你可能已经读过，甚至尝试过将这些建议付诸实践。但是最重要的理财技巧并不是你能在书中找到的。财务规则是伟大的，但如果没有足智多谋，它们完全没有用。
 

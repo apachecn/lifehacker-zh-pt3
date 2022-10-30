@@ -1,6 +1,6 @@
 # “做自己喜欢的事”的神话和现实
 
-> 原文:[https://life hacker . com/the-myths-and-reality-of-doing-what-you-love-1785409741](https://lifehacker.com/the-myths-and-realities-of-doing-what-you-love-1785409741)
+> 原文：<https://lifehacker.com/the-myths-and-realities-of-doing-what-you-love-1785409741>
 
 在关于选择职业的书籍和文章中，你会看到不断争论的一个问题是“做你喜欢的事情”一个人应该“追随自己的激情”作为职业生涯的首要指路明灯吗？还是根据收入和资质选择职业更有意义？
 

@@ -1,6 +1,6 @@
 # 你的 iPhone 4s 应该更新到 iOS 9 吗？
 
-> 原文:[https://gizmodo . com/should-you-update-to-IOs-9-on-your-iphone-4s-1731478418](https://gizmodo.com/should-you-update-to-ios-9-on-your-iphone-4s-1731478418)
+> 原文：<https://gizmodo.com/should-you-update-to-ios-9-on-your-iphone-4s-1731478418>
 
 还留着一部 iPhone 4s？iOS 9 是一颗难以下咽的苦果。虽然如果你愿意的话，你可以从技术上下载新的操作系统，但是你会错过 iOS 9T5 的一些最好的功能和速度提升。本斯维尔。
 

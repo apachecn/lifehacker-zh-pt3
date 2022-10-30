@@ -1,6 +1,6 @@
 # 如何每时每刻都不去想性侵犯
 
-> 原文:[https://life hacker . com/how-to-not-think-on-sequence-single-minu-1822180317](https://lifehacker.com/how-to-not-think-about-sexual-assault-every-single-minu-1822180317)
+> 原文：<https://lifehacker.com/how-to-not-think-about-sexual-assault-every-single-minu-1822180317>
 
 我不能天天说性侵。
 

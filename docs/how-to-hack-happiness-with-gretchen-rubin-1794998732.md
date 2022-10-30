@@ -1,6 +1,6 @@
 # 如何破解幸福，格雷琴·鲁宾
 
-> 原文:[https://life hacker . com/how-to-hack-happy-with-gretchen-Rubin-1794998732](https://lifehacker.com/how-to-hack-happiness-with-gretchen-rubin-1794998732)
+> 原文：<https://lifehacker.com/how-to-hack-happiness-with-gretchen-rubin-1794998732>
 
 格雷琴·鲁宾 实际上发明了侵入你的幸福的概念。凭借她的博客和畅销书《幸福计划》(The Happiness Project)[](https://www.amazon.com/Happiness-Project-Revised-Aristotle-Generally/dp/0062414852/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-hack-happiness-with-gretchen-rubin-1794998732&asc_source=&ie=UTF8&keywords=the happiness project&qid=1494251968&s=books&sr=1-1&tag=kinjalifehackerlink-20)*，她多年来一直在尝试如何在这个疯狂的世界中找到并保持幸福。* 
 

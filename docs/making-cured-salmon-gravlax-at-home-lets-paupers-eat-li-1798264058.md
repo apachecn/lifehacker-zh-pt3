@@ -1,6 +1,6 @@
 # 在家做腌三文鱼让穷人吃得像国王一样
 
-> 原文:[https://the take out . com/making-cured-salmon-gravlax-at-home-let-pausers-eat-Li-1798264058](https://thetakeout.com/making-cured-salmon-gravlax-at-home-lets-paupers-eat-li-1798264058)
+> 原文：<https://thetakeout.com/making-cured-salmon-gravlax-at-home-lets-paupers-eat-li-1798264058>
 
 有一次，我去一家高档杂货店，从熟食柜台上订购了五片格拉司。我当时也是这种心情。在商店外面，我独自吃了腌三文鱼——不需要百吉饼或其他装备——把那些冰凉的黄油片放进嘴里。这是一种无与伦比的美味，让你的眼皮扑合，头不由自主地抖动。
 

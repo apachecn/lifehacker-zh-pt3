@@ -1,6 +1,6 @@
 # 告诉我们你的巴黎小贴士
 
-> 原文:[https://lifehacker.com/tell-us-your-paris-tips-1823472888](https://lifehacker.com/tell-us-your-paris-tips-1823472888)
+> 原文：<https://lifehacker.com/tell-us-your-paris-tips-1823472888>
 
 巴黎！世界上最美丽的城市和最受欢迎的旅游目的地！四季都爱， [即使下毛毛雨](https://www.youtube.com/watch?v=3ahbE6bcVf8) ！我向上帝发誓，如果你们中的任何人在评论中侮辱这座城市，我将禁止你们使用自己的电脑。
 

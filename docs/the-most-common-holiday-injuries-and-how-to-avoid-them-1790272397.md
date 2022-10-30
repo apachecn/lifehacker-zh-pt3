@@ -1,6 +1,6 @@
 # 最常见的假日伤害，以及如何避免
 
-> 原文:[https://life hacker . com/the-most-common-the-holiday-injuries-and-how-to-avoid-these-1790272397](https://lifehacker.com/the-most-common-holiday-injuries-and-how-to-avoid-them-1790272397)
+> 原文：<https://lifehacker.com/the-most-common-holiday-injuries-and-how-to-avoid-them-1790272397>
 
 这是一年中最危险的时候。孩子割破手指，爸爸从梯子上摔下来，你滑倒在地上。这是所有季节中最偶然季节。以下是一些让你安然度过假期的小贴士。
 

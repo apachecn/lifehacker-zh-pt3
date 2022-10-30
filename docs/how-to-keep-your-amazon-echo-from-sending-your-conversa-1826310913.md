@@ -1,6 +1,6 @@
 # 如何防止你的亚马逊 Echo 将你的对话发送给你的联系人
 
-> 原文:[https://life hacker . com/how-to-keep-your-Amazon-echo-from-sending-your-conversa-1826310913](https://lifehacker.com/how-to-keep-your-amazon-echo-from-sending-your-conversa-1826310913)
+> 原文：<https://lifehacker.com/how-to-keep-your-amazon-echo-from-sending-your-conversa-1826310913>
 
 昨天互联网上沸沸扬扬，有报道称俄勒冈州波特兰市一个家庭的亚马逊回声录下了一段“私人对话”，并发送给了一个“随机的陌生人”。这听起来比实际发生的要险恶得多，谢天谢地，你可以用一个小技巧来确保这种事情不会发生在你身上。
 

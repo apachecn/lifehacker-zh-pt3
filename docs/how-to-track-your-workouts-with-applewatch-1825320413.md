@@ -1,6 +1,6 @@
 # 如何使用 AppleWatch 跟踪您的锻炼
 
-> 原文:[https://life hacker . com/how-to-track-your-workouts with-apple watch-1825320413](https://lifehacker.com/how-to-track-your-workouts-with-applewatch-1825320413)
+> 原文：<https://lifehacker.com/how-to-track-your-workouts-with-applewatch-1825320413>
 
 无论你如何进行锻炼，你可能最终会想要记录下来，这样你就可以知道你燃烧了多少卡路里，你走了多远，你锻炼时的心率是多少。如果你有一只苹果手表，所有这些都很容易掌握。
 

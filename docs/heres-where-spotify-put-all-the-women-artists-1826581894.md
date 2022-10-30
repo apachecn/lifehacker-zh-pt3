@@ -1,6 +1,6 @@
 # 这是 Spotify 把所有女艺人放在这里的地方
 
-> 原文:[https://life hacker . com/heres-where-Spotify-put-all-the-women-artists-1826581894](https://lifehacker.com/heres-where-spotify-put-all-the-women-artists-1826581894)
+> 原文：<https://lifehacker.com/heres-where-spotify-put-all-the-women-artists-1826581894>
 
 Spotify 的热门播放列表中男性比女性多得多。根据 Baffler 上一篇全面的、充满统计数据的专题文章，不仅是算法播放列表再现了音乐行业的普遍不平等，还有策划播放列表的不平等。例如，Spotify 的[2017](https://open.spotify.com/genre/2017-top-playlists)最佳策划播放列表是 [RapCaviar](https://open.spotify.com/user/spotify/playlist/37i9dQZF1DX0XUsuxWHRQd?si=3tnK9gC4R0OgGBKLAkUnOQ) ，这是一个拥有 900 万粉丝的旋转五十首曲目播放列表。在《困惑者》追踪的整整一个月里，它收录了一首由女性领唱的歌曲。*一个*。
 

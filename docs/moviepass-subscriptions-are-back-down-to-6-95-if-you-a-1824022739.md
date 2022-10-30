@@ -1,6 +1,6 @@
 # 如果你行动迅速，电影票的订阅费会降到 6.95 美元
 
-> 原文:[https://life hacker . com/movie pass-subscriptions-is-back-down-to-6-95-if-you-a-1824022739](https://lifehacker.com/moviepass-subscriptions-are-back-down-to-6-95-if-you-a-1824022739)
+> 原文：<https://lifehacker.com/moviepass-subscriptions-are-back-down-to-6-95-if-you-a-1824022739>
 
 MoviePass 今天宣布了他们几乎所有你能看的电影订阅的新低价。在有限的时间内， [你可以以每月 6.95 美元](https://www.businesswire.com/news/home/20180323005347/en/MoviePass%E2%84%A2-Lowers-Price-6.95-Month) 的价格注册 MoviePass，这个价格 [在](https://lifehacker.com/moviepass-drops-price-to-6-95-a-month-for-a-limited-ti-1820550734) 之前他们只提供过一次。如果你还没有屈服，现在可能是时候了。
 

@@ -1,6 +1,6 @@
 # 快乐时光三要素:一个无混乱的假 Jito
 
-> 原文:[https://life hacker . com/three-ingredient-happy-hour-a-muzzle-free-faux-jito-1824028231](https://lifehacker.com/three-ingredient-happy-hour-a-muddle-free-faux-jito-1824028231)
+> 原文：<https://lifehacker.com/three-ingredient-happy-hour-a-muddle-free-faux-jito-1824028231>
 
 朋友们，周五快乐，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将对薄荷莫吉托酒进行彻底的简化。
 

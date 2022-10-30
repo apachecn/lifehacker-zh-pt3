@@ -1,6 +1,6 @@
 # 在不到一年的时间里，从零开始成为一名深度学习程序员
 
-> 原文:[https://life hacker . com/become-a-deep-learning-coder-from scratch-in-a-ye-1822763353](https://lifehacker.com/become-a-deep-learning-coder-from-scratch-in-under-a-ye-1822763353)
+> 原文：<https://lifehacker.com/become-a-deep-learning-coder-from-scratch-in-under-a-ye-1822763353>
 
 机器学习(又名人工智能)似乎很奇怪，也很复杂。它是图像和语音识别、推荐系统和各种任务背后的技术，计算机过去很不擅长，但现在却很擅长。它包括教计算机自我学习。根据数据科学家 Bargava 的说法，你可以在不到一年的时间里学会做这件事。你需要每周投入 10-20 个小时，但是在这个过程中你会学到很多东西。
 

@@ -1,6 +1,6 @@
 # 如果你买得起房子，你应该首付 20%以上吗？
 
-> 原文:[https://life hacker . com/should-you-put-more-on-a-house-if-you-can-1827231283](https://lifehacker.com/should-you-put-more-than-20-down-on-a-house-if-you-can-1827231283)
+> 原文：<https://lifehacker.com/should-you-put-more-than-20-down-on-a-house-if-you-can-1827231283>
 
 全国平均首付比例在百分之六到百分之十一之间，有些购房者的首付比例低至百分之三到百分之三点五，最低为百分之六到百分之七。但是对于一些人来说，有机会放下超过感知标准的 20%。他们应该这样做吗？
 

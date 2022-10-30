@@ -1,6 +1,6 @@
 # 网购时用最浅的颜色预览衣服
 
-> 原文:[https://life hacker . com/preview-ways-in-the-light-color-when-online-shopp-1797189344](https://lifehacker.com/preview-clothes-in-the-lightest-color-when-online-shopp-1797189344)
+> 原文：<https://lifehacker.com/preview-clothes-in-the-lightest-color-when-online-shopp-1797189344>
 
 你在网上订购了一些东西，但当它到达时看起来完全不同。首先，你没有注意到衣领的怪异形状，也没有注意到背面用小字 写着 [【星期一很糟糕】。](https://www.reddit.com/r/malefashionadvice/comments/5k4dm8/is_there_an_actual_reason_why_stores_like_forever/)
 

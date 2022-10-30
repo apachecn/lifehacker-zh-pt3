@@ -1,6 +1,6 @@
 # 什么是大陪审团，它对俄罗斯调查有何影响？
 
-> 原文:[https://life hacker . com/what-a-grand-jury-and-how-it-impact-the-Russia-1797538788](https://lifehacker.com/what-is-a-grand-jury-and-how-does-it-impact-the-russia-1797538788)
+> 原文：<https://lifehacker.com/what-is-a-grand-jury-and-how-does-it-impact-the-russia-1797538788>
 
 据 [【华尔街日报】](https://www.wsj.com/articles/special-counsel-mueller-impanels-washington-grand-jury-in-russia-probe-1501788287)报道，司法部特别法律顾问罗伯特·穆勒因俄罗斯干预 2016 年总统选举召集大陪审团。这个陪审团将让穆勒寻求传票——迫使人们在法庭上作证，并为调查提供文件。
 

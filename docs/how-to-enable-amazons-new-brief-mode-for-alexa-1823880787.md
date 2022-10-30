@@ -1,6 +1,6 @@
 # 如何为 Alexa 启用亚马逊的新“简要模式”
 
-> 原文:[https://life hacker . com/how-to-enable-amazons-new-brief-mode-for-Alexa-1823880787](https://lifehacker.com/how-to-enable-amazons-new-brief-mode-for-alexa-1823880787)
+> 原文：<https://lifehacker.com/how-to-enable-amazons-new-brief-mode-for-alexa-1823880787>
 
 亚马逊的数字助理很健谈，如果你厌倦了每次你让她代表你做一些事情时听到一个 HAL 9000 般的“OK”，我们不会责怪你。令人欣慰的是，Alexa 的看守人目前正在测试一种新的“简短模式”，允许你的回声设备以更柔和的蜂鸣声而不是更大的确认来回应。以下是如何设置它——如果您有权限的话。
 

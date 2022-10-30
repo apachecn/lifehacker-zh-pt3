@@ -1,6 +1,6 @@
 # 所有无关紧要的婴儿用品建议
 
-> 原文:[https://life hacker . com/all-the-baby-gear-advice-that-matter-1785116395](https://lifehacker.com/all-the-baby-gear-advice-that-doesn-t-matter-1785116395)
+> 原文：<https://lifehacker.com/all-the-baby-gear-advice-that-doesn-t-matter-1785116395>
 
 我也曾处在你的位置，初为人父母。购买完美的尿布包，删减婴儿用品清单，只列出真正的必需品。三个孩子之后，我在这里告诉你:你想多了。你的大多数购物决定并不重要。
 

@@ -1,6 +1,6 @@
 # 如何编织“邪恶的眼睛手套”，为我们的生活游行集会的猫
 
-> 原文:[https://life hacker . com/how-to-knit-evil-eye-gloves-the-pussy hat-of-March-1823525674](https://lifehacker.com/how-to-knit-evil-eye-gloves-the-pussyhat-of-the-march-1823525674)
+> 原文：<https://lifehacker.com/how-to-knit-evil-eye-gloves-the-pussyhat-of-the-march-1823525674>
 
 去年，一顶带有两只小猫耳朵的亮粉色针织帽成为了妇女华盛顿游行的非官方制服。尽管有些人 [发现配饰](https://www.usatoday.com/story/news/nation-now/2018/01/10/pink-pussyhats-why-some-activists-ditching-them/1023061001/) 有问题，但浩瀚的“娘娘腔”旨在传达一种集体的视觉声明，即女权主义、愤怒和反抗——正如《纽约客》杂志 的 [*所言，这种现象“最终可能会在政治象征主义的史册上赢得持久的一席之地。”*](https://www.newyorker.com/culture/culture-desk/the-d-i-y-revolutionaries-of-the-pussyhat-project)
 

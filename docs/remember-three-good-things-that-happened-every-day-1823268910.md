@@ -1,6 +1,6 @@
 # 记住每天发生的三件好事
 
-> 原文:[https://life hacker . com/remember-this-good-things-that-every-day-1823268910](https://lifehacker.com/remember-three-good-things-that-happened-every-day-1823268910)
+> 原文：<https://lifehacker.com/remember-three-good-things-that-happened-every-day-1823268910>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑在上班路上做了更多的事情，赌博我们的信用卡奖励，探索新的播客，投资假阳光。
 

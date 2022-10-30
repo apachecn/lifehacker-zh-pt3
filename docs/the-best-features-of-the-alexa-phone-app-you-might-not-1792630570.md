@@ -1,6 +1,6 @@
 # 你可能不知道的 Alexa 手机应用程序的最佳功能
 
-> 原文:[https://life hacker . com/the-best-features-of-the-the-Alexa-phone-app-you-may-not-1792630570](https://lifehacker.com/the-best-features-of-the-alexa-phone-app-you-might-not-1792630570)
+> 原文：<https://lifehacker.com/the-best-features-of-the-alexa-phone-app-you-might-not-1792630570>
 
 亚马逊 Echo 最大的吸引力在于，你不需要触摸手机就可以完成工作。所以，你可能没有注意到，你用来设置你的 Echo 的 Alexa 应用程序实际上是非常有用的。这里是它能做的一些最好的事情。
 

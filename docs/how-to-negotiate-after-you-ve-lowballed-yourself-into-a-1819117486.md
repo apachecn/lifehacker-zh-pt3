@@ -1,6 +1,6 @@
 # 当你把自己的薪水压得很低时，如何谈判
 
-> 原文:[https://life hacker . com/how-to-negotiation-after-you-ve-low balled-to-a-1819117486](https://lifehacker.com/how-to-negotiate-after-you-ve-lowballed-yourself-into-a-1819117486)
+> 原文：<https://lifehacker.com/how-to-negotiate-after-you-ve-lowballed-yourself-into-a-1819117486>
 
 事情已经完成了。你接受了一份新工作，你非常兴奋地发现厨房里有哪种口味的 Keurig，谁将成为你的新工作的 BFF(或友敌)。但是最初的“我做到了！”如果你的薪水少得可怜，那么高的感觉就会消失。
 

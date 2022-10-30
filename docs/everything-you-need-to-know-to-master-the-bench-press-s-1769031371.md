@@ -1,6 +1,6 @@
 # 安全掌握卧推所需的一切
 
-> 原文:[https://life hacker . com/everything-you-know-to-master-the-bench-press-s-1769031371](https://lifehacker.com/everything-you-need-to-know-to-master-the-bench-press-s-1769031371)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-to-master-the-bench-press-s-1769031371>
 
 对于许多举重运动员来说，卧推是发展上肢力量的“黄金标准”，但它的名声招致了许多自我驱动的关于如何以良好和安全的技术完成它的无知。这种欺骗性的简单正是许多新手(甚至是老手)遇到麻烦的地方，所以让我们来谈谈如何更好、更安全地坐冷板凳。
 

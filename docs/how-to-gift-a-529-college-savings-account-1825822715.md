@@ -1,6 +1,6 @@
 # 如何赠送 529 大学储蓄账户
 
-> 原文:[https://life hacker . com/how-to-gift-a-529-college-savings-account-1825822715](https://lifehacker.com/how-to-gift-a-529-college-savings-account-1825822715)
+> 原文：<https://lifehacker.com/how-to-gift-a-529-college-savings-account-1825822715>
 
 你没有自己的孩子，但你想帮助你朋友的孩子支付大学费用。以下是关于赠送 529 账号你需要知道的。
 

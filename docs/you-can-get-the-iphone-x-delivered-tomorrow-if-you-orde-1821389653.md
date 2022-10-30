@@ -1,6 +1,6 @@
 # 如果你现在从苹果订购，明天就可以收到 iPhone X
 
-> 原文:[https://life hacker . com/you-can-get-the-iphone-x-delivered-tomorrow-if-you-orde-1821389653](https://lifehacker.com/you-can-get-the-iphone-x-delivered-tomorrow-if-you-orde-1821389653)
+> 原文：<https://lifehacker.com/you-can-get-the-iphone-x-delivered-tomorrow-if-you-orde-1821389653>
 
 自从 11 月初 iPhone X 首次发布以来，拿到它并不总是一件容易的事情，但看起来苹果终于开始行动了。该公司目前提供 [免费次日送达](https://www.apple.com/shop/buy-iphone/iphone-x) ，只要你在当地时间下午 3 点前下单。
 

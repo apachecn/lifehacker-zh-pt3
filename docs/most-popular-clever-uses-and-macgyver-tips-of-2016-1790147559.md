@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的妙用和妙招
 
-> 原文:[https://life hacker . com/most-popular-clever-uses-and-macgyver-tips-of-2016-1790147559](https://lifehacker.com/most-popular-clever-uses-and-macgyver-tips-of-2016-1790147559)
+> 原文：<https://lifehacker.com/most-popular-clever-uses-and-macgyver-tips-of-2016-1790147559>
 
 对于生活中的问题，无论大小，我们总是在寻找巧妙的解决方法。今年，我们把泳池面条当作万能坐垫，去掉并保留了酒瓶塞，充分利用一次性手机，并用一个简单的测试来看看是否停电。
 

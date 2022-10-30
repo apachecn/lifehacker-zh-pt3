@@ -1,6 +1,6 @@
 # 推特上的影子封禁是什么？
 
-> 原文:[https://life hacker . com/did-Twitter-shadow-ban-you-1827972917](https://lifehacker.com/did-twitter-shadow-ban-you-1827972917)
+> 原文：<https://lifehacker.com/did-twitter-shadow-ban-you-1827972917>
 
 上周，总统影射了一篇由《副新闻》撰写的研究不足的文章，指责推特上的 [“禁止知名共和党人的影子”](https://www.nytimes.com/2018/07/26/us/politics/twitter-shadowbanning.html) 推特没屏蔽任何人。但他们确实隐瞒了一些共和党政客的账户，不是因为他们是共和党人，而是出于两个更尴尬的原因。
 

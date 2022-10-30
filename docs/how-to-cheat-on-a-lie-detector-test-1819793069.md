@@ -1,6 +1,6 @@
 # 如何在测谎仪测试中作弊
 
-> 原文:[https://life hacker . com/how-to-cheat-on-a-lie-detector-test-1819793069](https://lifehacker.com/how-to-cheat-on-a-lie-detector-test-1819793069)
+> 原文：<https://lifehacker.com/how-to-cheat-on-a-lie-detector-test-1819793069>
 
 测谎仪，更好的说法是测谎仪， [都是扯淡](https://www.smithsonianmag.com/smart-news/lie-detectors-dont-work-advertised-and-they-never-did-180961956/) 。他们不能判断你是否在撒谎，只能判断你的身体是否在做一些我们紧张时身体会做的事情:比如出汗。但是有一些技巧，根据传闻，可以让你弄乱结果。
 

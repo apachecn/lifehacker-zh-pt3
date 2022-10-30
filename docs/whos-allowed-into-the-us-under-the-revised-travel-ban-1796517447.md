@@ -1,6 +1,6 @@
 # 根据修订后的旅行禁令，谁被允许进入美国
 
-> 原文:[https://life hacker . com/whos-allowed-into the-us-under-the-revised-travel-ban-1796517447](https://lifehacker.com/whos-allowed-into-the-us-under-the-revised-travel-ban-1796517447)
+> 原文：<https://lifehacker.com/whos-allowed-into-the-us-under-the-revised-travel-ban-1796517447>
 
 周一，最高法院裁定唐纳德·川普旅行禁令的 [部分内容可以接受](https://www.nytimes.com/2017/06/26/us/politics/supreme-court-trump-travel-ban-case.html) ，导致国务院制定了一套新的禁令指导方针，适用于来自伊朗、利比亚、索马里、苏丹、叙利亚和也门的国民，只有少数例外。要从这六个穆斯林占多数的国家前往美国，旅行者必须证明他们与“美国的个人或实体”有“真诚的关系”，这种关系是“在正常过程中形成的，而不是为了逃避”禁令。这些指导方针将从美国东部时间今天晚上 8 点开始实施。
 

@@ -1,6 +1,6 @@
 # 什么是“凹凸股票”，为什么它如此危险？
 
-> 原文:[https://life hacker . com/what-a-bump-stock-and-why-it-so-dangerous-1819180018](https://lifehacker.com/what-is-a-bump-stock-and-why-is-it-so-dangerous-1819180018)
+> 原文：<https://lifehacker.com/what-is-a-bump-stock-and-why-is-it-so-dangerous-1819180018>
 
 最近 [恐怖袭击拉斯维加斯大道，造成 59 人死亡，数百人受伤](https://splinternews.com/more-than-50-dead-200-wounded-after-gunman-opens-fire-1819049867) 的枪手，使用被称为“撞击枪托”的枪支改装，使他的步枪更加致命。但是它们到底是什么呢？
 

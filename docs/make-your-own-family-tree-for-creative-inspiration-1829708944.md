@@ -1,6 +1,6 @@
 # 制作你自己的“家族”树来激发创作灵感
 
-> 原文:[https://life hacker . com/make-your-own-family-tree-for-creative-inspiration-1829708944](https://lifehacker.com/make-your-own-family-tree-for-creative-inspiration-1829708944)
+> 原文：<https://lifehacker.com/make-your-own-family-tree-for-creative-inspiration-1829708944>
 
 正如《像艺术家一样偷窃》一书的作者奥斯汀·克莱恩在他的博客中写道，对于艺术家或那些寻找灵感的人来说，你不能总是依赖你自己的家庭、朋友或教养来给你所需的工具。相反，你“必须建立自己的艺术谱系。”
 

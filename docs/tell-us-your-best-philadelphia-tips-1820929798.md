@@ -1,6 +1,6 @@
 # 告诉我们你在费城的最佳建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Philadelphia-tips-1820929798](https://lifehacker.com/tell-us-your-best-philadelphia-tips-1820929798)
+> 原文：<https://lifehacker.com/tell-us-your-best-philadelphia-tips-1820929798>
 
 欢迎回到 [Hack Your City](https://lifehacker.com/c/hack-your-city) ，这是我们每周一期的读者驱动专栏，讲述如何充分利用一座城市。本周我们将报道宾夕法尼亚州的费城。我们通常不得不在谷歌上搜索“[城市]刻板印象”来完善我们的介绍文本，但我们可以马上想到费城:*、芝士牛排、兄弟情、自由钟、奶油奶酪、本·富兰克林、新鲜王子出生并长大！* 
 

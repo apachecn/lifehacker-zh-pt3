@@ -1,6 +1,6 @@
 # 凯瑟琳·赫本的核仁巧克力饼和她以前一样难吃
 
-> 原文:[https://the take out . com/Katharine-Hepburn-s-brownies-as-as-badass-as-she-as-was-as-as-as-as-as-as-that was-1822914641](https://thetakeout.com/katharine-hepburn-s-brownies-are-as-badass-as-she-was-1822914641)
+> 原文：<https://thetakeout.com/katharine-hepburn-s-brownies-are-as-badass-as-she-was-1822914641>
 
 *在* [***名人食谱***](https://thetakeout.com/tag/celebrity-recipes) ***，**中，我们从一位过去或现在深受喜爱的明星那里入手一份最喜欢的食谱。*
 

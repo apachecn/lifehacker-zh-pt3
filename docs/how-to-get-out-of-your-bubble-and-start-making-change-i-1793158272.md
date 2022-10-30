@@ -1,6 +1,6 @@
 # 如何走出你的泡泡，开始在你的社区做出改变
 
-> 原文:[https://life hacker . com/how-to-get-out-of-your-bubble-and-start-making-change-I-1793158272](https://lifehacker.com/how-to-get-out-of-your-bubble-and-start-making-change-i-1793158272)
+> 原文：<https://lifehacker.com/how-to-get-out-of-your-bubble-and-start-making-change-i-1793158272>
 
 我在一个为有抱负的活动家举办的小型会议上度过了没有女人的第 [天](https://www.womensmarch.com/womensday/) 。它巧妙地解决了当你拒绝工作或花钱时，T4 实际上该做什么的问题。(其他选项:发推特提高知名度？溜进隐藏人物展览？)下面是我学到的。
 

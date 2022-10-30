@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:馅饼和苹果杰克罗斯
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-tart-and-apple-y-jack-rose-1819199939](https://lifehacker.com/3-ingredient-happy-hour-the-tart-and-apple-y-jack-rose-1819199939)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-tart-and-apple-y-jack-rose-1819199939>
 
 朋友们，周五快乐，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们要制作一款夏秋过渡饮料:果馅饼和苹果味杰克罗斯。
 

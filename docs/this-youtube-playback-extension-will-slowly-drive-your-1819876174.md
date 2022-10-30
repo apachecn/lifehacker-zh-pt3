@@ -1,6 +1,6 @@
 # 这个 YouTube 播放扩展会慢慢让你的敌人发疯
 
-> 原文:[https://life hacker . com/this-YouTube-playback-extension-will-slow-drive-your-1819876174](https://lifehacker.com/this-youtube-playback-extension-will-slowly-drive-your-1819876174)
+> 原文：<https://lifehacker.com/this-youtube-playback-extension-will-slowly-drive-your-1819876174>
 
 你可能很不幸，在你附近有一个令人讨厌的 [同事](https://lifehacker.com/passive-aggressive-phrases-to-get-your-coworkers-to-del-1819176196) 。你知道，就是那个说他早餐有多爱吃乳蛋饼的人。我们叫他查德吧。虽然你(很可能)不能把查德的耳机放进果冻里，来报复他把上周垒球失利归咎于你的膝盖，但你可以慢慢地让查德抓狂，伤害最深的地方是:在他宝贵的 YouTube 游手好闲时间里。
 

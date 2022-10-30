@@ -1,6 +1,6 @@
 # 声音会让你生病吗？
 
-> 原文:[https://lifehacker.com/can-sound-make-you-sick-1826641222](https://lifehacker.com/can-sound-make-you-sick-1826641222)
+> 原文：<https://lifehacker.com/can-sound-make-you-sick-1826641222>
 
 美国驻华外交官在他们的公寓 听到“奇怪的声音”后，出现头痛、恶心和听力丧失 [等症状。这与 2016 年在古巴发生的情况惊人地相似，当时 24 名外交官抱怨奇怪的声音和几乎相同的症状。声音真的会让这些人生病吗？也许吧。](https://www.nytimes.com/2018/06/06/world/asia/china-guangzhou-consulate-sonic-attack.html?emc=edit_na_20180606&amp;nl=breaking-news&amp;nlid=44985858ing-news&amp;ref=headline)
 

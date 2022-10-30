@@ -1,6 +1,6 @@
 # 亚马逊的 Echo Plus 接近于为我们提供我们应得的简单智能家居
 
-> 原文:[https://gizmodo . com/amazons-echo-plus-gets-close-to-giving-us-the-easy-smar-1820091030](https://gizmodo.com/amazons-echo-plus-gets-close-to-giving-us-the-easy-smar-1820091030)
+> 原文：<https://gizmodo.com/amazons-echo-plus-gets-close-to-giving-us-the-easy-smar-1820091030>
 
 不管你可能读过什么，亚马逊 Echo 从来都不是一款万能的智能家居设备。当然，它可以告诉你天气情况，也许还可以控制你的灯，但它缺乏引擎盖下的集线器功能，无法让所有连接的设备一起工作。 [新的亚马逊 Echo 加上](https://www.amazon.com/dp/B06XB29FPF/ref_=fs_ods_fs_aucc_sr?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/amazons-echo-plus-gets-close-to-giving-us-the-easy-smar-1820091030&asc_source=&tag=kinjagizmodolink-20&th=1) 正好提供了这一点。我不确定这是否值得，但这完全取决于你。
 

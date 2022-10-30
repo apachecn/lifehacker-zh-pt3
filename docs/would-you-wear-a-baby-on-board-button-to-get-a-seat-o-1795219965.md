@@ -1,6 +1,6 @@
 # 你会戴上“婴儿上车”按钮在地铁上找座位吗？
 
-> 原文:[https://life hacker . com/would-you-wear-a-baby-on-board-button-to-get-a-seat-o-1795219965](https://lifehacker.com/would-you-wear-a-baby-on-board-button-to-get-a-seat-o-1795219965)
+> 原文：<https://lifehacker.com/would-you-wear-a-baby-on-board-button-to-get-a-seat-o-1795219965>
 
 站着的怀孕地铁乘客出于礼貌提出了一个两难的问题:你是主动让座让她坐下，还是在她没有怀孕的情况下管好自己的事情，因为你认为她怀孕了而感到尴尬？
 

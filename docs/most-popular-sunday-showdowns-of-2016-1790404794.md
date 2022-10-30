@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的周日对决
 
-> 原文:[https://life hacker . com/most-popular-Sunday-showdowns-of-2016-1790404794](https://lifehacker.com/most-popular-sunday-showdowns-of-2016-1790404794)
+> 原文：<https://lifehacker.com/most-popular-sunday-showdowns-of-2016-1790404794>
 
 一整年，我们都在比赛中使用逐圈导航工具、笔记应用、文件同步软件和谷歌手机，看谁会胜出。我们的 [周日对决](http://lifehacker.com/tag/sunday-showdown) 充满了激烈的战斗，但这些是最受欢迎的。
 

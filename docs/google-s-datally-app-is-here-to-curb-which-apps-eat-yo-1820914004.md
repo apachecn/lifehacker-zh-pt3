@@ -1,6 +1,6 @@
 # 谷歌有一个新的应用程序来帮助你保存移动数据
 
-> 原文:[https://life hacker . com/Google-s-dataly-app-is-here-to-curb-the-apps-eat-yo-1820914004](https://lifehacker.com/google-s-datally-app-is-here-to-curb-which-apps-eat-yo-1820914004)
+> 原文：<https://lifehacker.com/google-s-datally-app-is-here-to-curb-which-apps-eat-yo-1820914004>
 
 Android:不管它们是在前台和中心，还是潜伏在幕后，几乎每个应用程序都在蚕食你的移动数据。你可以梳理你手机的统计数据，看看哪个应用程序正在使用你的大部分数据计划，或者你可以安装谷歌新的数据管理应用程序。它能够查看您的手机使用了多少数据来保持连接，并提醒您应用程序消耗的数据超过了您舒适的数量，让您只需轻轻一点就可以切断他们的访问。
 

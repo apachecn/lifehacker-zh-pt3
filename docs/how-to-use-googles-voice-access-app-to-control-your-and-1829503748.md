@@ -1,6 +1,6 @@
 # 如何使用谷歌的语音访问应用程序来免提控制您的 Android 设备
 
-> 原文:[https://life hacker . com/how-to-use-Google-voice-access-app-to-control-your-and-1829503748](https://lifehacker.com/how-to-use-googles-voice-access-app-to-control-your-and-1829503748)
+> 原文：<https://lifehacker.com/how-to-use-googles-voice-access-app-to-control-your-and-1829503748>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-apEz73_H2fU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-apEz73_H2fU&start=0) 
 

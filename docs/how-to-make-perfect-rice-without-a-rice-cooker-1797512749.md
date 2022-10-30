@@ -1,6 +1,6 @@
 # 如何不用电饭锅做出完美的米饭
 
-> 原文:[https://life hacker . com/how-to-make-perfect rice-without a meter-1797512749](https://lifehacker.com/how-to-make-perfect-rice-without-a-rice-cooker-1797512749)
+> 原文：<https://lifehacker.com/how-to-make-perfect-rice-without-a-rice-cooker-1797512749>
 
 专业厨师和家庭厨师都瞧不起一次性厨房用具，只有一个例外:不起眼的电饭锅。我自己没有，但我完全有吸引力。电饭煲成功了，而替代方法却失败了。
 

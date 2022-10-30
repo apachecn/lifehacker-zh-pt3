@@ -1,6 +1,6 @@
 # 穿上工装裤以防小偷
 
-> 原文:[https://life hacker . com/wear-workouts-to-keep-yourself-from-贼-1825501946](https://lifehacker.com/wear-overalls-to-keep-yourself-safe-from-thieves-1825501946)
+> 原文：<https://lifehacker.com/wear-overalls-to-keep-yourself-safe-from-thieves-1825501946>
 
 我刚从为期两周的欧洲度假回来，为此我变得更聪明了。我不仅在牛津大学呆了一段时间，学会了如何在茱莉亚·切尔德自己的家里把 [做成高耸的](https://www.instagram.com/p/Bhgvtt8hLDm/?taken-by=clairelizlower) 蛋奶酥，还学会了工作服是防止扒窃的关键。
 

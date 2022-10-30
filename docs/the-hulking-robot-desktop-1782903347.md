@@ -1,6 +1,6 @@
 # 笨重的机器人桌面
 
-> 原文:[https://lifehacker.com/the-hulking-robot-desktop-1782903347](https://lifehacker.com/the-hulking-robot-desktop-1782903347)
+> 原文：<https://lifehacker.com/the-hulking-robot-desktop-1782903347>
 
 贾科莫的 Windows 10 桌面没有太多的皮肤或移动部件，但结合壁纸，它非常引人注目。这里是他如何设置这一切，你也可以。
 

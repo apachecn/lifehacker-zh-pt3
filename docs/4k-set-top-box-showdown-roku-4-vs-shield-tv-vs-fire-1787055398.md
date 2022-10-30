@@ -1,6 +1,6 @@
 # 4K 机顶盒对决:Roku 4 vs. SHIELD TV vs. Fire TV
 
-> 原文:[https://life hacker . com/4k-机顶盒-摊牌-Roku-4-vs-shield-TV-vs-fire-1787055398](https://lifehacker.com/4k-set-top-box-showdown-roku-4-vs-shield-tv-vs-fire-1787055398)
+> 原文：<https://lifehacker.com/4k-set-top-box-showdown-roku-4-vs-shield-tv-vs-fire-1787055398>
 
 如果你最近买了一台 4K 电视(现在是开始观看一台 的好时机)，你将需要一种方法来将你的 4K 兼容节目显示在屏幕上。今天，我们将分解三个可以提供 4K(或 UHD)流媒体的最佳机顶盒。
 

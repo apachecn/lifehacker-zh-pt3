@@ -1,6 +1,6 @@
 # 什么是 CFPB，它能为消费者提供什么？
 
-> 原文:[https://life hacker . com/what-is-the-cfpb-and-what-it-offer-consumers-1792152764](https://lifehacker.com/what-is-the-cfpb-and-what-does-it-offer-consumers-1792152764)
+> 原文：<https://lifehacker.com/what-is-the-cfpb-and-what-does-it-offer-consumers-1792152764>
 
 新总统政府将很快剖析多德-弗兰克法案 ，这是奥巴马政府为应对 2008 年金融危机而制定的一系列法规。一些政治分析家期望他们解散 [消费者金融保护局](http://www.consumerfinance.gov/) (CFPB)。那么它到底是什么，对消费者有什么作用呢？
 

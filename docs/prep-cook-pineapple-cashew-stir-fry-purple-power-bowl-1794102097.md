@@ -1,6 +1,6 @@
 # 准备厨师:菠萝腰果炒菜，紫色动力碗，早餐玉米煎饼等等
 
-> 原文:[https://life hacker . com/prep-cook-菠萝-腰果-炒菜-紫动力-碗-1794102097](https://lifehacker.com/prep-cook-pineapple-cashew-stir-fry-purple-power-bowl-1794102097)
+> 原文：<https://lifehacker.com/prep-cook-pineapple-cashew-stir-fry-purple-power-bowl-1794102097>
 
 欢迎回到 [Prep Cook](http://lifehacker.com/prep-cook-chili-garlic-tofu-bowls-black-bean-soup-an-1793880875?rev=1491491048534) ，在这里我们计划并测试一周的食物，让你把时间和金钱花在最美味的食物上！本周的菜单包括菠萝腰果炒菜、迷你馅饼、肉桂卷等等。
 

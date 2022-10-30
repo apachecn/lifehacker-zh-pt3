@@ -1,6 +1,6 @@
 # 每周升级:我们的编辑开始写日记，在亚马逊黄金日疯狂
 
-> 原文:[https://life hacker . com/weekly-upgrades-our-editors-started-journaling-went-n-1797101640](https://lifehacker.com/weekly-upgrades-our-editors-started-journaling-went-n-1797101640)
+> 原文：<https://lifehacker.com/weekly-upgrades-our-editors-started-journaling-went-n-1797101640>
 
 每周在我们的播客中，，我们都会聊起过去一周我们在生活中做出的小改进，比如戒掉糖，跟踪我们(过度)使用智能手机，甚至是楼上邻居的隔音措施。
 

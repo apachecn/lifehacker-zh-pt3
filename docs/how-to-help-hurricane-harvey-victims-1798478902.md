@@ -1,6 +1,6 @@
 # 如何帮助哈维飓风的受害者
 
-> 原文:[https://life hacker . com/how-to-help-hurricane-Harvey-victims-1798478902](https://lifehacker.com/how-to-help-hurricane-harvey-victims-1798478902)
+> 原文：<https://lifehacker.com/how-to-help-hurricane-harvey-victims-1798478902>
 
 飓风哈维的暴雨和强风已经在德克萨斯州造成了巨大的破坏，预计在周末结束前该地区将会遭受更多的洪水和破坏。随着人们在撤离后返回家园和企业，他们可能会发现大量的损坏，这些损坏需要帮助修复。
 

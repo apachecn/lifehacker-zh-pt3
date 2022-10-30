@@ -1,6 +1,6 @@
 # 来自我们读者的最佳悉尼旅游贴士
 
-> 原文:[https://life hacker . com/the-best-Sydney-travel-tips-from-our-readers-1826078028](https://lifehacker.com/the-best-sydney-travel-tips-from-our-readers-1826078028)
+> 原文：<https://lifehacker.com/the-best-sydney-travel-tips-from-our-readers-1826078028>
 
 本周,《黑客你的城市》来到了澳大利亚的悉尼。我们 [向](https://lifehacker.com/tell-us-your-sydney-australia-travel-tips-1825964212) 讨教游览悉尼的秘诀，以及它与澳大利亚其他热门城市的不同之处。“墨尔本更像三藩市，而悉尼更像洛杉矶，”读者[outtaconcontext](http://lifehacker.com/1826007821#_ga=2.180937191.1143974146.1526303794-1297080755.1497980211)说。以下是我们得到的关于英国罪犯建造的城镇的一些最佳建议。
 

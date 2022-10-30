@@ -1,6 +1,6 @@
 # 如何做出更好的决策
 
-> 原文:[https://life hacker . com/how-to-make-better-decisions-1829224542](https://lifehacker.com/how-to-make-better-decisions-1829224542)
+> 原文：<https://lifehacker.com/how-to-make-better-decisions-1829224542>
 
 你是如何做出最艰难的决定的？写一份赞成/反对清单？跟着感觉走？有你自己的系统，这些年来你一直在完善它。
 

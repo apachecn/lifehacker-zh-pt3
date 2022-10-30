@@ -1,6 +1,6 @@
 # 为了增加快乐，把痛苦堆积起来
 
-> 原文:[https://life hacker . com/to-boost-happy-stack-the-pain-1778255297](https://lifehacker.com/to-boost-happiness-stack-the-pain-1778255297)
+> 原文：<https://lifehacker.com/to-boost-happiness-stack-the-pain-1778255297>
 
 在我成为企业家之前，我去了商学院。在攻读 MBA 期间，我学到了一课，这一课在我的生活中被反复证明是有用的。本质上，从长远来看，先做你最不喜欢的任务，然后把“痛苦”转移到前面会让你更快乐。
 

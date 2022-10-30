@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我暗恋一个名人
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-has-a-crush-on-a-Ming-a-名人-1826491140](https://kotaku.com/ask-dr-nerdlove-i-have-a-crush-on-a-celebrity-1826491140)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-have-a-crush-on-a-celebrity-1826491140>
 
 你好，所有你起伏的罪恶黄鼠狼，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，互联网上唯一的 16 位约会建议专栏。
 

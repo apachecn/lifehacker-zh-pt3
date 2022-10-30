@@ -1,6 +1,6 @@
 # 生活是变化的
 
-> 原文:[https://lifehacker.com/life-is-change-1826608858](https://lifehacker.com/life-is-change-1826608858)
+> 原文：<https://lifehacker.com/life-is-change-1826608858>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 

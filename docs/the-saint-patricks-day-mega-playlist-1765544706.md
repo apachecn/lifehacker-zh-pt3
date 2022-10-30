@@ -1,6 +1,6 @@
 # 圣帕特里克节大型播放列表
 
-> 原文:[https://life hacker . com/the-saint-patricks-day-mega-playlist-1765544706](https://lifehacker.com/the-saint-patricks-day-mega-playlist-1765544706)
+> 原文：<https://lifehacker.com/the-saint-patricks-day-mega-playlist-1765544706>
 
 今天是圣帕特里克节。这意味着是时候拿出你最环保的衣服，喝一杯，庆祝一下了。我们的 Patrick Allan 为你的庆祝活动准备了一个爱尔兰主题的播放列表。
 

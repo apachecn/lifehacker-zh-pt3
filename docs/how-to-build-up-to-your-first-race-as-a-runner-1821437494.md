@@ -1,6 +1,6 @@
 # 如何为你的第一场跑步比赛做准备
 
-> 原文:[https://life hacker . com/how-to-build-up to your ' s first race as-a-runner-1821437494](https://lifehacker.com/how-to-build-up-to-your-first-race-as-a-runner-1821437494)
+> 原文：<https://lifehacker.com/how-to-build-up-to-your-first-race-as-a-runner-1821437494>
 
 为你的第一场比赛——10K，甚至是马拉松——进行训练，不管你怎么看，都是一种成就。要成功做到这一点，需要毅力、进取心和一些我们收集的技巧，以确保你从每一步中获得最大收益。你甚至不必让家里的新成员阻止你记录里程数。以下是让你为第一场比赛做好准备的最佳跑步技巧和提示。
 

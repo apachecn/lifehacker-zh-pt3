@@ -1,6 +1,6 @@
 # 这是你的待办事项列表排列图
 
-> 原文:[https://life hacker . com/heres-your-to-do-list-alignment-chart-1822213111](https://lifehacker.com/heres-your-to-do-list-alignment-chart-1822213111)
+> 原文：<https://lifehacker.com/heres-your-to-do-list-alignment-chart-1822213111>
 
 你的待办事项管理系统透露了很多，也许是所有关于你的信息。我们根据主要系统的 [龙与地下城的排列](https://io9.gizmodo.com/the-best-dungeons-dragons-character-alignments-5965146#_ga=2.223371293.766295613.1516114000-1297080755.1497980211) 来组织它们，做出任何正常人都不会不同意的价值判断。
 

@@ -1,6 +1,6 @@
 # 当你害怕飞行时，如何和你的孩子一起飞行
 
-> 原文:[https://life hacker . com/how-to-how-to-the-your-kids-when-fear-of-fly in-1822781757](https://lifehacker.com/how-to-fly-with-your-kids-when-youre-terrified-of-flyin-1822781757)
+> 原文：<https://lifehacker.com/how-to-fly-with-your-kids-when-youre-terrified-of-flyin-1822781757>
 
 我害怕飞行。
 

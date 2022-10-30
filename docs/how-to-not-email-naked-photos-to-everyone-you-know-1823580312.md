@@ -1,6 +1,6 @@
 # 如何不把裸照电邮给所有你认识的人
 
-> 原文:[https://life hacker . com/how-to-not-email-the every one-you-know-1823580312](https://lifehacker.com/how-to-not-email-naked-photos-to-everyone-you-know-1823580312)
+> 原文：<https://lifehacker.com/how-to-not-email-naked-photos-to-everyone-you-know-1823580312>
 
 电子邮件很容易出错。有时候，这些错误是微不足道的:你在邮件的某个地方给专有名词多加了一个字母；你不小心 bo **ld** 了一个单词的一部分；你用分号代替逗号。所有可原谅的过错。
 

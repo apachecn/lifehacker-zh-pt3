@@ -1,6 +1,6 @@
 # 通过做一些“令人兴奋”的事情来增强你的记忆力
 
-> 原文:[https://life hacker . com/boost-your memory-by-making-something-exciting-1826712124](https://lifehacker.com/boost-your-memory-by-making-something-exciting-1826712124)
+> 原文：<https://lifehacker.com/boost-your-memory-by-making-something-exciting-1826712124>
 
 我能记得三年级时我朋友的复杂细节和我们的对话，但如果你让我去街上买一个披萨和 6 瓶啤酒，我很可能会一个都不带就回家，或者至少给你发短信，问我应该在商店买的另一样东西是什么。我离开前遇到的那个人呢？完全不知道他们的名字是什么。
 

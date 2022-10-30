@@ -1,6 +1,6 @@
 # 青少年蒸发的“真正成本”是什么？
 
-> 原文:[https://life hacker . com/1829202789](https://lifehacker.com/what-is-the-real-cost-of-vaping-for-teens-1829202789)
+> 原文：<https://lifehacker.com/what-is-the-real-cost-of-vaping-for-teens-1829202789>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-zYuyS1Oq8gY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-zYuyS1Oq8gY&start=0) 
 

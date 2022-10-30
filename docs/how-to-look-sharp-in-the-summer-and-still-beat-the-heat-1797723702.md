@@ -1,6 +1,6 @@
 # 如何在夏天看起来很帅，同时还能抵御炎热
 
-> 原文:[https://life hacker . com/how-to-look-sharp in-the-summer-that-beat-the-heat-1797723702](https://lifehacker.com/how-to-look-sharp-in-the-summer-and-still-beat-the-heat-1797723702)
+> 原文：<https://lifehacker.com/how-to-look-sharp-in-the-summer-and-still-beat-the-heat-1797723702>
 
 外面很热，你希望除了内衣什么都不穿，但你必须在人群中，看起来很专业。这些是你挑选夏季衣橱时应该知道的基本事项。
 

@@ -1,6 +1,6 @@
 # 使用“明线”规则来更好地管理你的意志力
 
-> 原文:[https://life hacker . com/use-bright-line-rules-to-better-manage-your 意志力-1776926438](https://lifehacker.com/use-bright-line-rules-to-better-manage-your-willpower-1776926438)
+> 原文：<https://lifehacker.com/use-bright-line-rules-to-better-manage-your-willpower-1776926438>
 
 1966 年春天，一个名叫埃内斯托·米兰达的人在凤凰城被捕。警方没有什么线索，但他们怀疑米兰达 10 天前绑架并强奸了一名 18 岁的女子。警察审问了米兰达两个小时，他们的努力得到了回报:米兰达承认了强奸指控，并在认罪书上签了字。只有一个问题。在审讯期间，Miranda 一直是单独一人，而且从未被告知他有权获得法律咨询。
 

@@ -1,6 +1,6 @@
 # 儿童汽车座椅有有效期
 
-> 原文:[https://life hacker . com/children-car-seats-have-expiration-dates-1796238663](https://lifehacker.com/childrens-car-seats-have-expiration-dates-1796238663)
+> 原文：<https://lifehacker.com/childrens-car-seats-have-expiration-dates-1796238663>
 
 儿童汽车座椅很复杂。他们的机制会被一个啦啦队 堵塞； [他们很难适应后座](https://vitals.lifehacker.com/these-tips-help-you-cram-three-child-seats-into-your-ca-1791527412)； [它们和冬天的外套](https://lifehacker.com/psa-kids-shouldnt-wear-winter-coats-in-their-car-seat-1789009412#_ga=2.197369583.137309736.1497881513-1276133427.1497275510) 不太搭。六到十年后，它们就会过期。
 

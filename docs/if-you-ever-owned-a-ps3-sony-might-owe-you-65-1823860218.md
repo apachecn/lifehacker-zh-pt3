@@ -1,6 +1,6 @@
 # 如果你曾经拥有一台 PS3，索尼可能欠你 65 美元
 
-> 原文:[https://life hacker . com/if-you-ever-own-a-PS3-Sony-may-own-you-65-1823860218](https://lifehacker.com/if-you-ever-owned-a-ps3-sony-might-owe-you-65-1823860218)
+> 原文：<https://lifehacker.com/if-you-ever-owned-a-ps3-sony-might-owe-you-65-1823860218>
 
 如果你购买了索尼 PlayStation 3 的第一个版本，那么你可能有权获得一些现金。
 

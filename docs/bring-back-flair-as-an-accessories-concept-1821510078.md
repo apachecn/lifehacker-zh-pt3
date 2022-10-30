@@ -1,6 +1,6 @@
 # 将“天赋”作为配饰概念带回来
 
-> 原文:[https://life hacker . com/bring-back-flair-as-an-accessories-concept-1821510078](https://lifehacker.com/bring-back-flair-as-an-accessories-concept-1821510078)
+> 原文：<https://lifehacker.com/bring-back-flair-as-an-accessories-concept-1821510078>
 
 上周五，当我们汇总员工的每周升级时，我们的编辑们不再追随讨厌的脸书朋友，增加我们的 401(k)缴款，拥抱打字手套，并为别致的浓缩咖啡机买单。
 

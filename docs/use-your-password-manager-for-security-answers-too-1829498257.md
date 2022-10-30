@@ -1,6 +1,6 @@
 # 使用您的密码管理器获得安全答案
 
-> 原文:[https://life hacker . com/use-your-password-manager-for-security-answers-too-1829498257](https://lifehacker.com/use-your-password-manager-for-security-answers-too-1829498257)
+> 原文：<https://lifehacker.com/use-your-password-manager-for-security-answers-too-1829498257>
 
 我已经有一段时间没有在新服务上创建账户时输入一些愚蠢的回答了。你知道我在说什么:忘记你的密码，输入你第一只宠物的名字(Mrglglrm 先生)，你最喜欢的运动队的名字(萨斯卡通塞壬)，或者你长大的街道(第三街)，你就可以重新进入你的账户。
 

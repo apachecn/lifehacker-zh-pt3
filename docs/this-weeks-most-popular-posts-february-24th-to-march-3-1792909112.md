@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 24 日至 3 月 3 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 24 日至 3 月 3 日-1792909112](https://lifehacker.com/this-weeks-most-popular-posts-february-24th-to-march-3-1792909112)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-24th-to-march-3-1792909112>
 
 本周，我们学习了如何在一天内彻底检查我们所有的财务状况，简化我们的阅读习惯以阅读更多的书，思考运动裤的优点，等等。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 我试过狄巴克·乔布拉 350 美元的“冥想眼镜”,它们让人无法忍受
 
-> 原文:[https://gizmodo . com/I-tryed-Deepak-chopras-350-冥想-眼镜-他们-1820984842](https://gizmodo.com/i-tried-deepak-chopras-350-meditation-glasses-and-they-1820984842)
+> 原文：<https://gizmodo.com/i-tried-deepak-chopras-350-meditation-glasses-and-they-1820984842>
 
 “回到你祖先的时代，保持安静，”冥想大师狄巴克·乔布拉说，我的眼皮闪着亮光。“回到海滩、绿草如茵的小山丘、凉爽的森林、甜点、绿洲、瀑布、T2、山顶、河岸或篝火旁，几千年前，当太阳升起、T4 日落、月亮升起、星星闪烁时，你的祖先曾在那里坐过。然后，不要动。”
 

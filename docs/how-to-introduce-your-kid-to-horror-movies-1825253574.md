@@ -1,6 +1,6 @@
 # 如何向你的孩子介绍恐怖电影(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-introducing-your-kid-to-terror-movies-1825253574](https://lifehacker.com/how-to-introduce-your-kid-to-horror-movies-1825253574)
+> 原文：<https://lifehacker.com/how-to-introduce-your-kid-to-horror-movies-1825253574>
 
 父母总是和他们的孩子分享恐惧。19 世纪的妈妈和爸爸给他们的小孩读恐怖血腥的书，像是*令人震惊的彼得*，这是一套可怕的图画和道德诗的集合，还有睡前故事，像是*汉瑟和葛丽特，*，故事开始于父母带领他们的孩子进入森林深处，让他们挨饿，结束于一个吃人的女巫被烧死。好好睡吧，亲爱的！
 

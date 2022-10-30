@@ -1,6 +1,6 @@
 # 每个运营商令人困惑的手机购买计划，解释说
 
-> 原文:[https://life hacker . com/every-carriers-foaming-phone-buying-plans-explained-1726343203](https://lifehacker.com/every-carriers-confusing-phone-buying-plans-explained-1726343203)
+> 原文：<https://lifehacker.com/every-carriers-confusing-phone-buying-plans-explained-1726343203>
 
 下次你去买新手机的时候，事情看起来会有很大的不同。受补贴的两年期合同几乎已经死亡，运营商已经用一堆令人困惑的新选项取而代之。以下是 2016 年买手机需要了解的内容。
 

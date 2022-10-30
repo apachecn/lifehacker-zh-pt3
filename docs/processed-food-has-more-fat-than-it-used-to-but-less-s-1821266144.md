@@ -1,6 +1,6 @@
 # 加工食品比以前含有更多的脂肪，但含糖量更低
 
-> 原文:[https://life hacker . com/processed-food-has-than-that-it-used-that-less-1821266144](https://lifehacker.com/processed-food-has-more-fat-than-it-used-to-but-less-s-1821266144)
+> 原文：<https://lifehacker.com/processed-food-has-more-fat-than-it-used-to-but-less-s-1821266144>
 
 十一月的政府报告 中有好消息也有坏消息，关于加工食品的营养成分是如何随着时间的推移而变化的。好消息是:新产品通常含有更少的糖、盐和更多的纤维。但脂肪含量的变化抵消了这一点:新的谷物、酸奶和零食往往脂肪含量更高。
 

@@ -1,6 +1,6 @@
 # 教孩子用“大圈圈把戏”系鞋带
 
-> 原文:[https://life hacker . com/teach-kids-to-tie-the-big-loops-trick-1828838854](https://lifehacker.com/teach-kids-to-tie-their-shoes-with-the-big-loops-trick-1828838854)
+> 原文：<https://lifehacker.com/teach-kids-to-tie-their-shoes-with-the-big-loops-trick-1828838854>
 
 在我要教我五岁孩子的事情清单上，我承认系鞋带是一个相当次要的事情。我是说，上帝创造 Velcro 是有原因的，对吧？但我认为这是一项重要的生活技能，它将开辟一个全新的鞋类选择领域。好的，好的，我马上去办。
 

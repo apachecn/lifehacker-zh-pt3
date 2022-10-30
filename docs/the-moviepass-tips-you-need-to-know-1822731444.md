@@ -1,6 +1,6 @@
 # 你需要知道的电影通行证提示
 
-> 原文:[https://life hacker . com/the-movie pass-tips-you-need-to-know-1822731444](https://lifehacker.com/the-moviepass-tips-you-need-to-know-1822731444)
+> 原文：<https://lifehacker.com/the-moviepass-tips-you-need-to-know-1822731444>
 
 MoviePass，大屏幕上几乎所有你能看到的电影自助餐，每月 9.95 美元，是一笔相当不错的交易。但是如果我告诉你这个交易会更好呢？我们正在谈论获得免费爆米花，保证全新发行的门票，并轻松避免最常见的问题。你需要的只是正确的技巧。
 

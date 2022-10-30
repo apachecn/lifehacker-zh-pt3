@@ -1,6 +1,6 @@
 # 你很快就可以预订 iOS 和 Mac 应用程序了
 
-> 原文:[https://life hacker . com/youll-soon-able-pre-order-IOs-and-MAC-apps-1821225084](https://lifehacker.com/youll-soon-be-able-to-pre-order-ios-and-mac-apps-1821225084)
+> 原文：<https://lifehacker.com/youll-soon-be-able-to-pre-order-ios-and-mac-apps-1821225084>
 
 一反其极简趋势的 [杀戮意愿列表](https://ios.gadgethacks.com/news/looking-for-your-app-store-wish-list-ios-11-we-have-some-bad-news-0180131/) 和 [杀戮桌面下载](https://lifehacker.com/what-to-do-now-that-you-can-t-sync-ios-apps-using-itune-1809941947#_ga=2.22900347.170030974.1513005915-1297080755.1497980211) ，iOS 应用商店*增加了*一个功能:开发者可以 [开放他们的应用进行预购](https://arstechnica.com/gadgets/2017/12/customers-now-preorder-apps-in-any-apple-app-store/) ，最多提前 90 天。(该功能在 Mac App Store 上也有提供。)
 

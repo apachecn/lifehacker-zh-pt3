@@ -1,6 +1,6 @@
 # 美国运输安全管理局想提醒您不要把装有子弹的枪带到机场
 
-> 原文:[https://jalopnik . com/TSA-would-like-to-remind-you-not-bring-you-loaded-g-1797509979](https://jalopnik.com/tsa-would-like-to-remind-you-not-to-bring-your-loaded-g-1797509979)
+> 原文：<https://jalopnik.com/tsa-would-like-to-remind-you-not-to-bring-your-loaded-g-1797509979>
 
 最近很多人试图将枪支带上飞机。*上膛*和*分膛*枪。
 

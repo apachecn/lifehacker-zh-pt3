@@ -1,6 +1,6 @@
 # 如何让你的 Google Home 双语化
 
-> 原文:[https://life hacker . com/how-to-make-your-Google-home-双语-1828792153](https://lifehacker.com/how-to-make-your-google-home-bilingual-1828792153)
+> 原文：<https://lifehacker.com/how-to-make-your-google-home-bilingual-1828792153>
 
 本周末，谷歌宣布计划在年底前为谷歌主页带来 22 种新语言的支持。这个数字增加了智能助手已经支持的语言。
 

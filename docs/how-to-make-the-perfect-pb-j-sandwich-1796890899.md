@@ -1,6 +1,6 @@
 # 如何制作完美的 PB&J 三明治
 
-> 原文:[https://life hacker . com/how-to-make-the-perfect-p B- j-sandwich-1796890899](https://lifehacker.com/how-to-make-the-perfect-pb-j-sandwich-1796890899)
+> 原文：<https://lifehacker.com/how-to-make-the-perfect-pb-j-sandwich-1796890899>
 
 美食作家 Priya Krishna [在成长过程中，十一年来每天学校午餐都吃花生酱和果冻三明治](http://www.tastecooking.com/11-years-peanut-butter-jelly-sandwiches/) ，在那段时间里，她(和她的母亲)根据自己的理想改进了食谱，这种理想使她至今仍在吃它们。克里希纳有五个完美 PB 的技巧& J:
 

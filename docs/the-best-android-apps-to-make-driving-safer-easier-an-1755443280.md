@@ -1,6 +1,6 @@
 # 让驾驶更安全、更轻松、更有趣的最佳安卓应用
 
-> 原文:[https://life hacker . com/the-best-Android-apps-to-make-driving-safer-easy-an-1755443280](https://lifehacker.com/the-best-android-apps-to-make-driving-safer-easier-an-1755443280)
+> 原文：<https://lifehacker.com/the-best-android-apps-to-make-driving-safer-easier-an-1755443280>
 
 你最不应该花大量时间打电话的地方是在汽车方向盘后面。幸运的是，许多应用程序旨在帮助你安全地查找信息和处理路上的干扰。
 

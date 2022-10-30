@@ -1,6 +1,6 @@
 # 这个机器人会告诉你什么时候会失业
 
-> 原文:[https://life hacker . com/this-robot-tell-you-when-you-you-lose you-job-1795668087](https://lifehacker.com/this-robot-tells-you-when-youll-lose-your-job-1795668087)
+> 原文：<https://lifehacker.com/this-robot-tells-you-when-youll-lose-your-job-1795668087>
 
 可以肯定的是，你正在从事一项笔记本电脑很难独自完成的工作，无论你是砍树(不好意思，是砍树)，还是为千禧一代写一个热门话题。我的意思是，在这些该死的机器人开始变得更聪明之前，它*使用*是安全的，现在做任何事情，从驾驶我们的汽车到T3]羞辱我们的书呆子 T5]。
 

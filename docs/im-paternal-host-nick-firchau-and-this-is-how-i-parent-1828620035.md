@@ -1,6 +1,6 @@
 # 我是“父亲式”主持人尼克·费豪，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-parent-host-nick-fir chau-and-this-is-how-I-parent-1828620035](https://lifehacker.com/im-paternal-host-nick-firchau-and-this-is-how-i-parent-1828620035)
+> 原文：<https://lifehacker.com/im-paternal-host-nick-firchau-and-this-is-how-i-parent-1828620035>
 
 有了孩子后，尼克·菲尔豪说他每天都在想自己到底在做什么。他需要一些指导，但发现育儿不是男人们经常讨论的话题。因此，这位资深体育记者决定推出他希望自己能听到的那种“爸爸播客”。在《父亲的中，菲尔豪与各种各样的父亲进行了坦率、深入的交谈，其中包括美国足球明星[西雅图的一位先锋 DJ](https://www.paternalpodcast.com/episodes/2018/5/23/john-richards-and-a-new-generation-of-dads) 和纽约尼克斯的一位理发师 。讨论的话题从在特朗普的美国抚养黑人孩子，到保护年轻男孩的复杂情感，再到没有父亲的父亲。在录制采访时，Firchau 说他一直在思考如何将这些教训和见解应用到自己的家庭中。这是他为人父母的方式。
 

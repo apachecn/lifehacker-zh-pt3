@@ -1,6 +1,6 @@
 # 关于健康保险，新毕业生需要知道什么
 
-> 原文:[https://life hacker . com/what-new-grads-need-to-know-on-health-insurance-1826289933](https://lifehacker.com/what-new-grads-need-to-know-about-health-insurance-1826289933)
+> 原文：<https://lifehacker.com/what-new-grads-need-to-know-about-health-insurance-1826289933>
 
 大学毕业被认为是年轻人一生中最激动人心的时刻之一。你终于靠自己了，准备好开始你的职业生涯，开始面对这个世界。
 

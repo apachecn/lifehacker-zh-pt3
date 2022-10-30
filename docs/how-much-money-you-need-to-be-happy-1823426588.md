@@ -1,6 +1,6 @@
 # 你需要多少钱才能快乐
 
-> 原文:[https://life hacker . com/how-much-money-you-need-to-happy-1823426588](https://lifehacker.com/how-much-money-you-need-to-be-happy-1823426588)
+> 原文：<https://lifehacker.com/how-much-money-you-need-to-be-happy-1823426588>
 
 你需要多少钱才能幸福？有些人认为生活中最好的东西是免费的；其他人最开心的时候是坐在配有司机的城市汽车后座上达成数百万美元的交易。
 

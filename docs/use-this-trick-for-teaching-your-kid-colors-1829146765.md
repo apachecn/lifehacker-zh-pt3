@@ -1,6 +1,6 @@
 # 用这个技巧来教你的孩子颜色
 
-> 原文:[https://life hacker . com/use-this-trick-for-teaching-your-kid-colors-1829146765](https://lifehacker.com/use-this-trick-for-teaching-your-kid-colors-1829146765)
+> 原文：<https://lifehacker.com/use-this-trick-for-teaching-your-kid-colors-1829146765>
 
 当我女儿很小的时候，我们会读幼儿经典*棕熊，棕熊，你看到了什么？在故事中，主角认出了一只红色的鸟、一只黄色的鸭子、一匹蓝色的马、一只绿色的青蛙、一只紫色的猫、一只白色的狗、一只黑色的绵羊和一条金鱼。* 
 

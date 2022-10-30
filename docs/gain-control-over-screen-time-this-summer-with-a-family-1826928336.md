@@ -1,6 +1,6 @@
 # 通过“家庭媒体计划”控制今年夏天的屏幕时间
 
-> 原文:[https://life hacker . com/gain-control-over-screen-time-this-summer-with a-family-1826928336](https://lifehacker.com/gain-control-over-screen-time-this-summer-with-a-family-1826928336)
+> 原文：<https://lifehacker.com/gain-control-over-screen-time-this-summer-with-a-family-1826928336>
 
 甚至就在几年前，给初为人父母者的信息非常明确:屏幕在很大程度上对孩子不好，所以远离它。美国儿科学会(AAP)建议孩子们至少在两岁前不要看电视，之后，他们建议保持非常有限的时间。
 

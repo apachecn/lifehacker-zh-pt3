@@ -1,6 +1,6 @@
 # 用一种配料改善任何一道菜
 
-> 原文:[https://life hacker . com/improve-any-dish-with-one-ingredient-1795937477](https://lifehacker.com/improve-any-dish-with-one-ingredient-1795937477)
+> 原文：<https://lifehacker.com/improve-any-dish-with-one-ingredient-1795937477>
 
 美食作家兼食客的自由编辑海伦·罗斯纳有整个烹饪界最简单的秘方提示
 

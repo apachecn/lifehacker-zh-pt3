@@ -1,6 +1,6 @@
 # 禅宗和制作面包的艺术
 
-> 原文:[https://life hacker . com/Zen-and-the-art-of-making-bread-1789065514](https://lifehacker.com/zen-and-the-art-of-making-bread-1789065514)
+> 原文：<https://lifehacker.com/zen-and-the-art-of-making-bread-1789065514>
 
 面包只不过是面粉、水和盐，然而制作真正的酸奶面包不仅考验了我的耐心，还让我经历了比我做过的任何其他 DIY 项目都更奇怪的互联网兔子洞。对我来说，面包已经成为烹饪的 Linux，复杂而精细，但最终是值得的。
 

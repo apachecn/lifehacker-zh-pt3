@@ -1,6 +1,6 @@
 # 你可以在任天堂 Switch 上使用旧的 Gamecube 控制器
 
-> 原文:[https://life hacker . com/if-you-hate-joy-cons-use-an-old-game cube-controller-on-1819836689](https://lifehacker.com/if-you-hate-joy-cons-use-an-old-gamecube-controller-on-1819836689)
+> 原文：<https://lifehacker.com/if-you-hate-joy-cons-use-an-old-gamecube-controller-on-1819836689>
 
 几乎每一个我交谈过的任天堂 Switch 车主都 [表白了他们对便携式游戏机](https://kotaku.com/the-switch-has-made-nintendo-cool-again-1797975407) 的喜爱。虽然其光滑的设计允许使用小型、可移动的 Joy-Con 控制器进行方便的本地多人游戏，但它们握起来并不舒服。幸运的是，任天堂的 [最新 4.00 软件更新](http://en-americas-support.nintendo.com/app/answers/detail/a_id/22525/p/897) 让你可以使用游戏机过去最受欢迎的控制器之一:Gamecube 控制器。
 

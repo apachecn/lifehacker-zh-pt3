@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 13 日至 20 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-11 月 13 日至 20 日 1743745042](https://lifehacker.com/this-weeks-most-popular-posts-november-13th-to-20th-1743745042)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-13th-to-20th-1743745042>
 
 本周我们比较了 NVIDIA 和 AMD 的显卡，讨论了黑色星期五的结束及其对你的钱包意味着什么，从任天堂传奇人物宫本茂那里了解了创造力，等等。下面回顾一下本周最受欢迎的帖子。
 

@@ -1,6 +1,6 @@
 # 我从狂写九部糟糕的小说中学到了什么
 
-> 原文:[https://life hacker . com/what-I-learn-from-binge-writing-nine-bad-novels-1819693609](https://lifehacker.com/what-i-learned-from-binge-writing-nine-bad-novels-1819693609)
+> 原文：<https://lifehacker.com/what-i-learned-from-binge-writing-nine-bad-novels-1819693609>
 
 今年，我将写我的第十部恐怖小说。我每年 11 月都会这样做；这是传统的一部分。我从来没有出版过这些小说，但是每次我写一部小说，我就像一个作家和一个人一样成长。让我告诉你为什么值得。
 

@@ -1,6 +1,6 @@
 # 将蜂蜜和其他粘性的瓶子储存在一个盒子里
 
-> 原文:[https://life hacker . com/store-honey-and-other-sticky-bottles-in-a-a-rame kin-1818549631](https://lifehacker.com/store-honey-and-other-sticky-bottles-in-a-ramekin-1818549631)
+> 原文：<https://lifehacker.com/store-honey-and-other-sticky-bottles-in-a-ramekin-1818549631>
 
 随着时间的推移，蜂蜜、糖浆和瓶装油往往会变得粘粘的，如果你把它们倒过来存放(就像我对蜂蜜一样)，它们会洒满你的橱柜，把你的架子弄得一团糟。幸运的是，厨房对此有一个非常优雅的解决方案:只需将瓶子和罐子存放在一个框架中。
 

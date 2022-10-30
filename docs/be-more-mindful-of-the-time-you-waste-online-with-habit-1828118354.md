@@ -1,6 +1,6 @@
 # 更加注意你在网上浪费的时间
 
-> 原文:[https://life hacker . com/be-more-mind-the-time-you-waste-online-with-habit-1828118354](https://lifehacker.com/be-more-mindful-of-the-time-you-waste-online-with-habit-1828118354)
+> 原文：<https://lifehacker.com/be-more-mindful-of-the-time-you-waste-online-with-habit-1828118354>
 
 你可能想在脸书和 YouTube 这样的网站上少花点时间，但实际上有时会有点挑战。HabitLab 是斯坦福大学的一个开源项目，试图让减少习惯形成网站变得更容易。
 

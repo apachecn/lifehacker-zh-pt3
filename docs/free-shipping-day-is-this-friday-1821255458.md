@@ -1,6 +1,6 @@
 # 免费送货日是这个星期五
 
-> 原文:[https://life hacker . com/free-shipping-day-is this-Friday-1821255458](https://lifehacker.com/free-shipping-day-is-this-friday-1821255458)
+> 原文：<https://lifehacker.com/free-shipping-day-is-this-friday-1821255458>
 
 数百家零售商在 12 月 15 日提供无最低购买量的免费送货服务，作为一年一度的全国送货日的一部分。
 

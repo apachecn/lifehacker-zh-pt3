@@ -1,6 +1,6 @@
 # 参与其中，互联网:告诉亚马逊(还有 Roku，苹果和谷歌)放弃 NRATV
 
-> 原文:[https://www . av club . com/get-contained-internet-tell-Amazon-and-Roku-and-appl-1823275357](https://www.avclub.com/get-involved-internet-tell-amazon-and-roku-and-appl-1823275357)
+> 原文：<https://www.avclub.com/get-involved-internet-tell-amazon-and-roku-and-appl-1823275357>
 
 最终在美国实现合理枪支管制的斗争才刚刚开始，这是一场多管齐下的努力，将把本周 CNN 市政厅的 [扩展到今年 11 月及以后的投票箱。但有一件事很简单、容易，而且，如果你是《T4》影音俱乐部(The a . v . Club)的忠实读者，你可能已经在家里有了这件事:告诉 NRATV，NRA 的在线视频频道，相比之下，其反媒体、亲特朗普的言论让福克斯新闻频道看起来很温顺，让他滚蛋。](https://www.avclub.com/who-knew-how-inspiring-it-could-be-to-watch-teenagers-g-1823216677)
 

@@ -1,6 +1,6 @@
 # 如何取消您的 MoviePass 订阅
 
-> 原文:[https://life hacker . com/how-to-cancel-your-movie pass-subscription-1828062833](https://lifehacker.com/how-to-cancel-your-moviepass-subscription-1828062833)
+> 原文：<https://lifehacker.com/how-to-cancel-your-moviepass-subscription-1828062833>
 
 过去几周的古怪行为让许多 MoviePass 用户考虑取消订阅。然而，他们中的一些人发现这个过程并不像他们想象的那样直观。
 

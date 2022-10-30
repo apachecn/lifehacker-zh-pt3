@@ -1,6 +1,6 @@
 # 这个应用程序可以快速找到邻居推荐的保姆
 
-> 原文:[https://life hacker . com/this-app-quick-finds-保姆-由你推荐-1819246592](https://lifehacker.com/this-app-quickly-finds-babysitters-recommended-by-your-1819246592)
+> 原文：<https://lifehacker.com/this-app-quickly-finds-babysitters-recommended-by-your-1819246592>
 
 当我上高中时，我做过相当长一段时间的保姆。这一切都是从一个家庭朋友邀请我在一个星期五晚上和她 6 岁的女儿出去玩开始的。非常顺利，她让我又做了几次，并把我推荐给她孩子的朋友。然后那些朋友把我推荐到他们的朋友圈，我手上突然有了一笔还算成功的生意。
 

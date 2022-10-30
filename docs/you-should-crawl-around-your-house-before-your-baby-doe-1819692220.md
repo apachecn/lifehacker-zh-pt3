@@ -1,6 +1,6 @@
 # 你应该在你的宝宝爬之前在你的房子里爬来爬去
 
-> 原文:[https://life hacker . com/you-should-crawl-above-your-baby-doe-1819692220](https://lifehacker.com/you-should-crawl-around-your-house-before-your-baby-doe-1819692220)
+> 原文：<https://lifehacker.com/you-should-crawl-around-your-house-before-your-baby-doe-1819692220>
 
 新父母经常被告知，他们应该让他们的房子有婴儿安全防护，但当他们开始考虑这个问题时，他们会站直，离地面五六英尺。最重要的一步是经常被忽略的一步:爬行测试。
 

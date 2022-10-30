@@ -1,6 +1,6 @@
 # 存储实际上很好的信用卡
 
-> 原文:[https://life hacker . com/store-credit-cards-the-actually-good-1826087960](https://lifehacker.com/store-credit-cards-that-are-actually-good-1826087960)
+> 原文：<https://lifehacker.com/store-credit-cards-that-are-actually-good-1826087960>
 
 宜家有了新的信用卡，但消费者在申请前应该三思。
 

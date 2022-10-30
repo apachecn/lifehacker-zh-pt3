@@ -1,6 +1,6 @@
 # 如何将你的 iPhone 降级回 iOS 11
 
-> 原文:[https://life hacker . com/how-to-degrade-your-iphone-back-to-IOs-11-1829299581](https://lifehacker.com/how-to-downgrade-your-iphone-back-to-ios-11-1829299581)
+> 原文：<https://lifehacker.com/how-to-downgrade-your-iphone-back-to-ios-11-1829299581>
 
 对于大多数 iPhone 用户来说， [更新到 iOS 12](https://lifehacker.com/the-best-new-features-to-try-in-ios-12-1829117648#_ga=2.252531593.1496191593.1537802717-396842925.1520800403) 应该是一帆风顺的:更快的速度和有趣的新功能。虽然我们在 Lifehacker 的设备上尚未遇到任何 iOS 12 问题，但我们已经看到了其他人的一些报告，特别是那些使用旧设备的人，他们觉得在更新到苹果最新版本的 iOS 后，他们的电池出现了问题。
 

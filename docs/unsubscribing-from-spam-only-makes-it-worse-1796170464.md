@@ -1,6 +1,6 @@
 # 退订垃圾邮件只会让情况变得更糟
 
-> 原文:[https://life hacker . com/退订垃圾邮件只会让事情变得更糟 1796170464](https://lifehacker.com/unsubscribing-from-spam-only-makes-it-worse-1796170464)
+> 原文：<https://lifehacker.com/unsubscribing-from-spam-only-makes-it-worse-1796170464>
 
 上次我查看垃圾邮件文件夹时，我注意到一些邮件包含退订链接。我想，那很好。也许垃圾邮件发送者意识到有些人永远不会回复，所以他们想精简他们的列表以提高效率。我点击了“取消订阅”那是个错误。
 

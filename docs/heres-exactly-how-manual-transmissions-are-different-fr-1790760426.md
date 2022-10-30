@@ -1,6 +1,6 @@
 # 这就是手动变速器与自动变速器的确切区别
 
-> 原文:[https://jalopnik . com/heres-exact-how-manual-transmissions-is-different-fr-1790760426](https://jalopnik.com/heres-exactly-how-manual-transmissions-are-different-fr-1790760426)
+> 原文：<https://jalopnik.com/heres-exactly-how-manual-transmissions-are-different-fr-1790760426>
 
 我们已经知道哪个应该更“有趣”，但手动和自动变速器的内部是什么样子的？如何把所有的部分组合在一起？
 

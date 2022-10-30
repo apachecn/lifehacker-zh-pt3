@@ -1,6 +1,6 @@
 # 如何在没有 iPhone XS 的情况下编辑照片的景深
 
-> 原文:[https://life hacker . com/how-to-edit-your-photos-depth-without-a-iphon-1829266560](https://lifehacker.com/how-to-edit-your-photos-depth-of-field-without-an-iphon-1829266560)
+> 原文：<https://lifehacker.com/how-to-edit-your-photos-depth-of-field-without-an-iphon-1829266560>
 
 **iOS:** 如果你所有的朋友都有一部新的 iPhone XS 或 iPhone XS 马克斯，它包含了苹果公司喜欢谈论的大幅改进的神经引擎，你可能会嫉妒你不能在你的旧 iPhone 上编辑你的照片的散景。
 

@@ -1,6 +1,6 @@
 # 如何在手机上制作播客
 
-> 原文:[https://life hacker . com/how-to-make-a-podcast-on-your-phone-1823271257](https://lifehacker.com/how-to-make-a-podcast-on-your-phone-1823271257)
+> 原文：<https://lifehacker.com/how-to-make-a-podcast-on-your-phone-1823271257>
 
 播客应该很简单。底层技术并不比博客复杂多少。但到目前为止，还没有博客或播客的 Tumblr，让任何有手机的人都可以录制播客。直到昨天发布了适用于 iOS 和 Android 的 [主播 3.0](https://anchor.fm/) 。
 

@@ -1,6 +1,6 @@
 # 动漫流媒体摊牌:Crunchyroll vs. Funimation
 
-> 原文:[https://life hacker . com/anime-streaming-摊牌-crunchy roll-vs-funimation-1793623701](https://lifehacker.com/anime-streaming-showdown-crunchyroll-vs-funimation-1793623701)
+> 原文：<https://lifehacker.com/anime-streaming-showdown-crunchyroll-vs-funimation-1793623701>
 
 无论你是动漫迷还是哈卡迷，你都需要知道两个流媒体服务:Crunchyroll 和 Funimation。一个给你带来日本正在播出的节目的字幕联播，而另一个提供有史以来最受欢迎的节目的配音版本。无论哪种方式，你都会有比你能看到的更多的动漫。让我们看看哪一个最适合你的观赏乐趣。
 

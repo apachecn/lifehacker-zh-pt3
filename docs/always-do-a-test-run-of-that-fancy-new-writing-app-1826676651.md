@@ -1,6 +1,6 @@
 # 总是试运行那个新奇的写作应用程序
 
-> 原文:[https://life hacker . com/always-do-a-test-run-of-that-fancy-new-writing-app-1826676651](https://lifehacker.com/always-do-a-test-run-of-that-fancy-new-writing-app-1826676651)
+> 原文：<https://lifehacker.com/always-do-a-test-run-of-that-fancy-new-writing-app-1826676651>
 
 你有一个新的写作应用程序，你很想试试，是吗？好吧，在你坐下来开始那个大的写作项目之前，考虑给那个应用一个可靠的测试，这样你可以先了解所有的细节。
 

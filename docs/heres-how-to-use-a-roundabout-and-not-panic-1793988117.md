@@ -1,6 +1,6 @@
 # 以下是如何使用环岛而不惊慌
 
-> 原文:[https://jalopnik . com/heres-how-to-use-a-round about-not-panic-1793988117](https://jalopnik.com/heres-how-to-use-a-roundabout-and-not-panic-1793988117)
+> 原文：<https://jalopnik.com/heres-how-to-use-a-roundabout-and-not-panic-1793988117>
 
 对于外行人来说，开车绕圈以改善交通流量可能看起来是一个奇怪的欧洲概念，所以密歇根警方鼓励驾车者参与进来，并了解如何解决这些问题。
 

@@ -1,6 +1,6 @@
 # 为什么你对梦中发生的事情耿耿于怀
 
-> 原文:[https://life hacker . com/why-you-hacken-about-things-than-happen-that-in-you-1798139034](https://lifehacker.com/why-you-hold-grudges-about-things-that-happened-in-your-1798139034)
+> 原文：<https://lifehacker.com/why-you-hold-grudges-about-things-that-happened-in-your-1798139034>
 
 如果你曾经从不愉快的梦中醒来，对你认识的人感到不安，你并不孤单。每个人都会遇到这种情况，对于为什么会发生这种情况，有一个非常简单的解释。
 

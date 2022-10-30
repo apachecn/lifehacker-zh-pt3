@@ -1,6 +1,6 @@
 # 20 世纪 70 年代的水手大力水手在这里给你职业建议
 
-> 原文:[https://life hacker . com/1970-era-Popeye-the-sailor-is-here-to-give you-career-1819721811](https://lifehacker.com/1970s-era-popeye-the-sailor-is-here-to-give-you-career-1819721811)
+> 原文：<https://lifehacker.com/1970s-era-popeye-the-sailor-is-here-to-give-you-career-1819721811>
 
 与演员和阿什顿·库彻不同，卡通人物无法决定他们在业余时间代言什么产品或意识形态。史努比对于是否出售大都会人寿没有发言权。忍者神龟肯定会嗑药——他们是以艺术家命名的吃披萨的刀剑收藏家——但无论如何他们必须警告孩子们远离毒品。而大力水手，这个咒骂、争吵的水手，不得不在 20 世纪 70 年代学习一个全新的词汇，在教育漫画书 的 [系列中教导孩子们他们的职业选择。](https://www.mycomicshop.com/search?TID=340711)
 

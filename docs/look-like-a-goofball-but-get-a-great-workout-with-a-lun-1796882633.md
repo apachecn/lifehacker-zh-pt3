@@ -1,6 +1,6 @@
 # 看起来像个傻瓜，但在午休时间散步可以得到很好的锻炼
 
-> 原文:[https://life hacker . com/look-like-a-goofball-but-get-a-great-workout with-a-LUN-1796882633](https://lifehacker.com/look-like-a-goofball-but-get-a-great-workout-with-a-lun-1796882633)
+> 原文：<https://lifehacker.com/look-like-a-goofball-but-get-a-great-workout-with-a-lun-1796882633>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-yhExj5PWcNE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-yhExj5PWcNE&start=0) 
 

@@ -1,6 +1,6 @@
 # 你的首选黄油应该是什么:咸的还是不咸的？
 
-> 原文:[https://the take out . com/what-should-to-butter-salted-or-unsalted-1827697847](https://thetakeout.com/what-should-be-your-go-to-butter-salted-or-unsalted-1827697847)
+> 原文：<https://thetakeout.com/what-should-be-your-go-to-butter-salted-or-unsalted-1827697847>
 
 我想，当玛莎·斯图尔特到达她入狱前的鼎盛时期时，我开始专门购买无盐黄油。我记得她在她的电视节目上说，我每个星期天早上都像看家庭教会一样看她的节目，她说这是她所有事情的秘密。由于玛莎的食谱大多以黄油为特色(也有奶油，像茱莉亚·切尔德)，我很快就选择了蓝色的 Land O'Lakes 套餐，而不是红色的。
 

@@ -1,6 +1,6 @@
 # 谷歌新智能消息应用 Allo 的截图之旅
 
-> 原文:[https://life hacker . com/a-screen-tour-of-allo-Google-new-smart-messaging-1786900047](https://lifehacker.com/a-screenshot-tour-of-allo-googles-new-smart-messaging-1786900047)
+> 原文：<https://lifehacker.com/a-screenshot-tour-of-allo-googles-new-smart-messaging-1786900047>
 
 谷歌刚刚推出了 Allo，这是一款新的智能消息应用 ，它带有贴纸、表情符号和一个可以回答你所有问题的强大助手。让我们来看看它最大的特点，看看是否值得将你所有的对话转移到它上面。
 

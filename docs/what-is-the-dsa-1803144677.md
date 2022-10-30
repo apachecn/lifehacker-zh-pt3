@@ -1,6 +1,6 @@
 # DSA 是什么？
 
-> 原文:[https://lifehacker.com/what-is-the-dsa-1803144677](https://lifehacker.com/what-is-the-dsa-1803144677)
+> 原文：<https://lifehacker.com/what-is-the-dsa-1803144677>
 
 也许你有一些特别直言不讳的朋友，他们一直在发帖谈论美国的民主社会主义者。也许你已经注意到越来越多的人在你的 Twitter feed 中的个人资料名称中有一个玫瑰表情符号，或者你可能注意到最近几周抗议者拿着 DSA 标牌反对白人至上主义者的集会。随着一个新的组织每周制造新闻(还有 [像“alt-left”](http://www.theroot.com/there-is-no-such-thing-as-alt-left-1801965700)这样的无意义行话四处传播)，区分好人坏人和有理智的人比以往任何时候都更重要。因此，对于这种努力:DSA 到底是什么？这里有一个短期课程。
 

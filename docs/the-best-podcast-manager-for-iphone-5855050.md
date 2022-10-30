@@ -1,6 +1,6 @@
 # iPhone 的最佳播客管理器
 
-> 原文:[https://life hacker . com/the-best-podcast-manager-for-iphone-5855050](https://lifehacker.com/the-best-podcast-manager-for-iphone-5855050)
+> 原文：<https://lifehacker.com/the-best-podcast-manager-for-iphone-5855050>
 
 iOS 现在有一堆很棒的播客管理器，但在测试了所有这些管理器之后，我们最喜欢的是阴云，因为它包含了大量的杀手级功能，并且仍然是免费的。
 

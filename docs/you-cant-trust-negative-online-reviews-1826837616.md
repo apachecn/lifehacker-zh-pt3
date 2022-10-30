@@ -1,6 +1,6 @@
 # 你不能相信网上的负面评论
 
-> 原文:[https://life hacker . com/you-cant-trust-negative-online-reviews-1826837616](https://lifehacker.com/you-cant-trust-negative-online-reviews-1826837616)
+> 原文：<https://lifehacker.com/you-cant-trust-negative-online-reviews-1826837616>
 
 最近，在研究我正在考虑预订的度假套餐时，我注意到，尽管所有关于目的地、导游和旅程安排的客户评论都很热情，但有几个人给出的评级很低，原因似乎不像是旅游公司的错:他们的航班被取消了，所以他们错过了一天；他们食物中毒了，所以不能享受旅行；或者他们没有购买旅游保险，因此当他们无法继续旅行时，他们无法获得退款。
 

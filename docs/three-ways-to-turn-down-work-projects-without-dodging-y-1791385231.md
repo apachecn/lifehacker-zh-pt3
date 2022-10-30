@@ -1,6 +1,6 @@
 # 拒绝工作项目而不逃避责任的三种方法
 
-> 原文:[https://life hacker . com/three-way-to-turn-down-work-projects-without-躲闪-y-1791385231](https://lifehacker.com/three-ways-to-turn-down-work-projects-without-dodging-y-1791385231)
+> 原文：<https://lifehacker.com/three-ways-to-turn-down-work-projects-without-dodging-y-1791385231>
 
 对新项目说好的好处是显而易见的。这是一个团队成员会说的话，这是一种证明你已经准备好承担新的令人兴奋的责任的方式。
 

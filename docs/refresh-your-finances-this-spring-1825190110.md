@@ -1,6 +1,6 @@
 # 今年春天更新你的财务状况
 
-> 原文:[https://life hacker . com/refresh-your-financies-this-spring-1825190110](https://lifehacker.com/refresh-your-finances-this-spring-1825190110)
+> 原文：<https://lifehacker.com/refresh-your-finances-this-spring-1825190110>
 
 既然寒冷、黑暗的冬天已经结束(某种程度上)，是时候打开百叶窗，在春光中审视一下你的财务状况了。也许你没有朝着你的目标前进，或者你想增加你的储蓄，或者确保你的学生贷款 [的支付在轨道上](https://twocents.lifehacker.com/how-to-know-if-you-qualify-for-public-student-loan-fori-1825027661#_ga=2.266631755.499926819.1523301553-71668593.1522781018) 。无论如何，这是你的定期提醒，要注意你的钱。
 

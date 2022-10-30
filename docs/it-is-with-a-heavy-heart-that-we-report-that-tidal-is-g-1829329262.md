@@ -1,6 +1,6 @@
 # 我们怀着沉重的心情宣布，潮汐现在是好的
 
-> 原文:[https://www . av club . com/it-is-with-a-heavy-heart-that-we-report-the-tidal-is-g-1829329262](https://www.avclub.com/it-is-with-a-heavy-heart-that-we-report-that-tidal-is-g-1829329262)
+> 原文：<https://www.avclub.com/it-is-with-a-heavy-heart-that-we-report-that-tidal-is-g-1829329262>
 
 你已经看过标题了。我知道你不想听到这些，也可能不在乎，但我发誓，这是可观的，量化优于任何其他流媒体服务。我这么说是因为多年来我一直是一个相当快乐的 Spotify 用户，今年早些时候，我最终转向了 Apple Music，因为我有一种错觉，认为它从我的 Apple TV 上播放会更好。我错了，苹果电视是世界上最糟糕的东西——挑剔、缓慢、组织性差，比以往任何时候都需要多五六个步骤。它应该从地球上消失。甚至不要考虑苹果音乐。
 

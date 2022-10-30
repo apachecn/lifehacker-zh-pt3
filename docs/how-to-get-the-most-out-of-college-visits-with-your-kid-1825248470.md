@@ -1,6 +1,6 @@
 # 如何最大限度地利用和孩子一起去大学的机会
 
-> 原文:[https://life hacker . com/how-to-get-the-most-out-of-college-visits-1825248470](https://lifehacker.com/how-to-get-the-most-out-of-college-visits-with-your-kid-1825248470)
+> 原文：<https://lifehacker.com/how-to-get-the-most-out-of-college-visits-with-your-kid-1825248470>
 
 有一个关于大学访问的渴望的想法，当你和你的孩子步入完美校园的那一刻，你就会知道:*这就是家*。现实中，不是这样的。参观几次后，学校最终会感觉相似多于不同，你可能会比刚开始时更困惑。
 

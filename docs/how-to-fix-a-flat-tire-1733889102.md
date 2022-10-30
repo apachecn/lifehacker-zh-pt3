@@ -1,6 +1,6 @@
 # 当你被困在荒郊野外时，如何修理漏气的轮胎
 
-> 原文:[https://gizmodo.com/how-to-fix-a-flat-tire-1733889102](https://gizmodo.com/how-to-fix-a-flat-tire-1733889102)
+> 原文：<https://gizmodo.com/how-to-fix-a-flat-tire-1733889102>
 
  [https://gizmodo.com/embed/inset/iframe?id=youtube-video-8UbOGqQSKac&start=0](https://gizmodo.com/embed/inset/iframe?id=youtube-video-8UbOGqQSKac&start=0) 
 

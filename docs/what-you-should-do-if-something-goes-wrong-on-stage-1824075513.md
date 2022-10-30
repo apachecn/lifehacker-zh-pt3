@@ -1,6 +1,6 @@
 # 如果舞台上出了问题，你该怎么办
 
-> 原文:[https://life hacker . com/what-you-should-do-if something-missing-on-stage-1824075513](https://lifehacker.com/what-you-should-do-if-something-goes-wrong-on-stage-1824075513)
+> 原文：<https://lifehacker.com/what-you-should-do-if-something-goes-wrong-on-stage-1824075513>
 
 在周六的“为我们的生命而游行”中，马乔里·斯通曼·道格拉斯高中学生萨曼莎·富恩特斯，枪击惨案的受伤幸存者， [登上舞台，向数千名抗议者](https://www.youtube.com/watch?v=dw6hbACrP38) 发表慷慨激昂的演讲。她的演讲进行到一半时，她蹲在讲台后面呕吐起来。
 

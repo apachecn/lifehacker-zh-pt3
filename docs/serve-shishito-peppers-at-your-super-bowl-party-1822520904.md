@@ -1,6 +1,6 @@
 # 在你的超级碗派对上供应辣椒
 
-> 原文:[https://life hacker . com/serve-Shishi to-peppers-at-your ' s super-bowl-party-1822520904](https://lifehacker.com/serve-shishito-peppers-at-your-super-bowl-party-1822520904)
+> 原文：<https://lifehacker.com/serve-shishito-peppers-at-your-super-bowl-party-1822520904>
 
 当向大量喝醉的人提供食物时，有一些你能快速轻松地取悦人群的高影响力食物是很重要的。水泡过的 shishito 辣椒就是那样，蘸着*做*。(就我个人而言，我认为你的大型游戏中至少有一半应该包含可购买的物品。)
 

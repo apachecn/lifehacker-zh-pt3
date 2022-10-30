@@ -1,6 +1,6 @@
 # 将应用程序文件夹添加到 iPhone 的应用程序 Dock
 
-> 原文:[https://life hacker . com/add-an-app-folder-to-your-iphone-apps-dock-1823429748](https://lifehacker.com/add-an-app-folder-to-your-iphones-apps-dock-1823429748)
+> 原文：<https://lifehacker.com/add-an-app-folder-to-your-iphones-apps-dock-1823429748>
 
 应用 Dock 是你的 iPhone 上最容易访问的部分。你可以从主屏幕的任何页面访问它，只需按下一个 home 键(或者向上滑动，如果你有一部 [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) )。然而，如果你和我一样，你在 Dock 上放了单个图标而不是一个文件夹，这是犯罪行为。
 

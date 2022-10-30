@@ -1,6 +1,6 @@
 # 以下是如何向大众提出柴油回购申请的具体方法
 
-> 原文:[https://jalopnik . com/here-is-exact-how-to-file-your-diesel-buy-back-claim-w-1784428223](https://jalopnik.com/here-is-exactly-how-to-file-your-diesel-buyback-claim-w-1784428223)
+> 原文：<https://jalopnik.com/here-is-exactly-how-to-file-your-diesel-buyback-claim-w-1784428223>
 
 本周对于受柴油门排放惨败影响的近 50 万辆大众 2.0 升柴油汽车的车主来说是具有里程碑意义的一周，美国地区法官查尔斯·布雷耶(Charles Breyer)初步批准了大众与监管机构就排放作弊车辆达成的 [和解](https://jalopnik.com/volkswagen-must-offer-to-buy-back-any-diesel-four-cylin-1782730728) 。完成后，大众现在推出了一个网站，供 TDI 车主开始提交索赔。
 

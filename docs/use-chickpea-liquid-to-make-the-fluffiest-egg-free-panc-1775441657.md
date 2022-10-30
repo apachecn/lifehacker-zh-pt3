@@ -1,6 +1,6 @@
 # 使用鹰嘴豆液体制作有史以来第一个无蛋煎饼
 
-> 原文:[https://life hacker . com/use-chickpea-liquid-to-make-fluffist-egg-free-panc-1775441657](https://lifehacker.com/use-chickpea-liquid-to-make-the-fluffiest-egg-free-panc-1775441657)
+> 原文：<https://lifehacker.com/use-chickpea-liquid-to-make-the-fluffiest-egg-free-panc-1775441657>
 
 不吃鸡蛋的人，你们的早餐祈祷被回应了。Serious Eats 开发了一种不含鸡蛋(实际上，完全素食)的厚而松软的薄煎饼配方，秘诀就在一罐鹰嘴豆中。
 

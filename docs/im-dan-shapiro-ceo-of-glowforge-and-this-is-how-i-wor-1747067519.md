@@ -1,6 +1,6 @@
 # 我是丹·夏皮罗，格洛福特的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Dan-Shapiro-of-glow forge-and-this-is-how-I-wor-1747067519](https://lifehacker.com/im-dan-shapiro-ceo-of-glowforge-and-this-is-how-i-wor-1747067519)
+> 原文：<https://lifehacker.com/im-dan-shapiro-ceo-of-glowforge-and-this-is-how-i-wor-1747067519>
 
 [Glowforge](https://glowforge.com/) 打印机很独特:它不是传统意义上的 3D 打印机，而是一台可以切割和蚀刻各种材料的激光切割机。这种激光切割机以前使用起来很复杂，拥有起来也很昂贵，但 Glowforge 开始制造新的东西，并将这项技术带到你的桌面上。
 

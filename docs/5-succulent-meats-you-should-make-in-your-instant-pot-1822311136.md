@@ -1,6 +1,6 @@
 # 用你的速溶锅来煮这些肉
 
-> 原文:[https://life hacker . com/5-多肉的肉-你应该做你的速溶锅-1822311136](https://lifehacker.com/5-succulent-meats-you-should-make-in-your-instant-pot-1822311136)
+> 原文：<https://lifehacker.com/5-succulent-meats-you-should-make-in-your-instant-pot-1822311136>
 
 速溶锅可能看起来像一个神奇的黑盒子，可以在很短的时间内制作任何东西，但它主要是一个非常安全和易于使用的高压锅。 [高压锅芝士蛋糕](https://skillet.lifehacker.com/make-cheesecake-for-two-in-record-time-with-your-instan-1821065475#_ga=2.156189691.1728532035.1516634764-392757988.1502389723) 很棒，因为我喜欢随心所欲地制作和食用乳制品甜点，但制作多汁多汁的肉类才是我的即食锅真正值得拥有的地方。
 

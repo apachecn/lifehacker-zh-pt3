@@ -1,6 +1,6 @@
 # Android 7.1 带来了夜灯、无缝更新、指纹手势和 Daydream VR
 
-> 原文:[https://life hacker . com/Android-7-1-brings-night-light-seamless-updates-finge-1787434859](https://lifehacker.com/android-7-1-brings-night-light-seamless-updates-finge-1787434859)
+> 原文：<https://lifehacker.com/android-7-1-brings-night-light-seamless-updates-finge-1787434859>
 
 如果你昨天看了“谷歌制造”的活动——或者 [读了我们的综述](http://lifehacker.com/everything-google-announced-at-its-made-by-google-eve-1787404179)——如果你错过了一个全新版本的 Android，你会被原谅。谷歌本身几乎没有注意到和。以下是我们对它的了解。
 

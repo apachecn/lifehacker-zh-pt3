@@ -1,6 +1,6 @@
 # 如何应对各个年龄段的校园欺凌
 
-> 原文:[https://life hacker . com/how-to-deal-the-school bullass-all-ages-1803140275](https://lifehacker.com/how-to-deal-with-school-bullies-of-all-ages-1803140275)
+> 原文：<https://lifehacker.com/how-to-deal-with-school-bullies-of-all-ages-1803140275>
 
 欺负者可以让我们任何年龄的生活变得困难——甚至当你是成年人的时候——但是你不必坐视不管，接受比你更大、更大声或更刻薄的人不应有的惩罚。这里有一些你可以采用的方法。
 

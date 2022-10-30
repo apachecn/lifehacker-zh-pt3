@@ -1,6 +1,6 @@
 # 用这些酒吧赌注骗人们请你喝酒
 
-> 原文:[https://life hacker . com/trick-people to-buy-you-drink-with these-bar-bets-1819176229](https://lifehacker.com/trick-people-into-buying-you-drinks-with-these-bar-bets-1819176229)
+> 原文：<https://lifehacker.com/trick-people-into-buying-you-drinks-with-these-bar-bets-1819176229>
 
 免费的饮料总是能让晚上的外出变得更好，但是你不需要讨好酒保来得到它们。相反，用这些简单的酒吧赌注来骗过你的朋友(或其他酒吧常客)，为自己赢得一两杯免费饮料。
 

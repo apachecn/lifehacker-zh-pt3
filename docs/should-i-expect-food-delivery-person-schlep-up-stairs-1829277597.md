@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我应该指望送餐员吃力地爬上我的楼梯吗？
 
-> 原文:[https://the take out . com/should-I-expect-food-delivery-person-schlep-up-stairs-1829277597](https://thetakeout.com/should-i-expect-food-delivery-person-schlep-up-stairs-1829277597)
+> 原文：<https://thetakeout.com/should-i-expect-food-delivery-person-schlep-up-stairs-1829277597>
 
 > 亲爱的 Salty:在农村生活了几年，那里不存在送餐服务，我终于回到了一个有点城市化的环境，可以享受食物直接送到我家门口。这是人生的转折点。然而……
 > 

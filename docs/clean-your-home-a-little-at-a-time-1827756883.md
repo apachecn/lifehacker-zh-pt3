@@ -1,6 +1,6 @@
 # 一次打扫一点你的家
 
-> 原文:[https://life hacker . com/clean-your-home-a-time-1827756883](https://lifehacker.com/clean-your-home-a-little-at-a-time-1827756883)
+> 原文：<https://lifehacker.com/clean-your-home-a-little-at-a-time-1827756883>
 
 当我们最后一次汇总员工的每周更新时，我们的编辑正在购买皮划艇，通过播客学习历史，重新发现社区广播的乐趣，并利用时差为我们服务。
 

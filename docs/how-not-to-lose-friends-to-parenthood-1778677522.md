@@ -1,6 +1,6 @@
 # 如何不因为为人父母而失去朋友
 
-> 原文:[https://deadspin . com/how-not-lost-friends-to-parenthood-1778677522](https://deadspin.com/how-not-to-lose-friends-to-parenthood-1778677522)
+> 原文：<https://deadspin.com/how-not-to-lose-friends-to-parenthood-1778677522>
 
 有一种观点认为平行宇宙同时存在，历史上每一个事件的每一个可能的结果都发生在其中。如果这是正确的，那么在时间和空间的某个地方， [德兹·布莱恩特抓住了](http://deadspin.com/dez-bryants-overturned-catch-ruined-our-fun-1678854513) ，小唐纳德·川普死于婴儿猝死综合症，9/11 不是监守自盗， [川普的气味仍然打得何塞·包蒂斯塔](http://screengrabber.deadspin.com/watch-rougned-odor-punch-jose-bautista-in-extreme-slow-1776800607) 屁滚尿流，但这次他们是两足剑齿虎。
 

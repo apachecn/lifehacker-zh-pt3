@@ -1,6 +1,6 @@
 # 如何与宗教保守派谈论 LGBT 权利
 
-> 原文:[https://life hacker . com/how-to-talk-with-religbt-rig-1796623461](https://lifehacker.com/how-to-talk-with-religious-conservatives-about-lgbt-rig-1796623461)
+> 原文：<https://lifehacker.com/how-to-talk-with-religious-conservatives-about-lgbt-rig-1796623461>
 
 在保守的宗教团体中讨论 LGBT 权利可能特别具有挑战性，无论是对刚出来的人还是对我们这些只希望每个人都快点跟上民权计划的人来说。人们可以感觉到，那些基于宗教理由拒绝同性恋者权利的人是在用教条作为遮羞布来掩盖他们的偏见，在许多情况下，这可能是真的。但是，仍然有大量在宗教传统中长大的人改变了他们对 LGBT 人群在更广泛的社区中的地位的看法——甚至是在他们教会社区的更狭窄的世界中。
 

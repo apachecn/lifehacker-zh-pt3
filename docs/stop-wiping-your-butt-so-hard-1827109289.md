@@ -1,6 +1,6 @@
 # 别这么用力擦屁股
 
-> 原文:[https://life hacker . com/stop-wiping-your-butt so-hard-1827109289](https://lifehacker.com/stop-wiping-your-butt-so-hard-1827109289)
+> 原文：<https://lifehacker.com/stop-wiping-your-butt-so-hard-1827109289>
 
 早上好，这是一个关于我屁眼的故事。年前就一直痒，想不出原因。我认为它很脏，所以当我去洗手间时，我总是确保擦得特别用力。最后，医生不得不告诉我停止注射 T1，让我的屁眼休息一下。是的，我不痒了。我告诉你这个屈辱的故事有一个很好的理由:根据精神牙线， [你们很多人也擦得太用力了，](http://mentalfloss.com/article/541835/best-way-to-wipe-your-butt-expert-tips) 。
 

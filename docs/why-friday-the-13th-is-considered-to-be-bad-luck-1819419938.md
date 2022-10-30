@@ -1,6 +1,6 @@
 # 为什么 13 号星期五被认为是坏运气
 
-> 原文:[https://life hacker . com/why-13 号星期五被认为是坏运气-1819419938](https://lifehacker.com/why-friday-the-13th-is-considered-to-be-bad-luck-1819419938)
+> 原文：<https://lifehacker.com/why-friday-the-13th-is-considered-to-be-bad-luck-1819419938>
 
 为什么 13 号星期五被认为如此不吉利？一部分是数学，一部分是历史，一部分是流行文化。
 

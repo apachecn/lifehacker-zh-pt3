@@ -1,6 +1,6 @@
 # 你的橄榄园意大利面通行证可以带你去意大利旅行
 
-> 原文:[https://life hacker . com/your-olive-garden-pasta-pass-can-come-with-a-trip-to-1806404880](https://lifehacker.com/your-olive-garden-pasta-pass-could-come-with-a-trip-to-1806404880)
+> 原文：<https://lifehacker.com/your-olive-garden-pasta-pass-could-come-with-a-trip-to-1806404880>
 
 从明天开始，橄榄园的爱好者将再次有机会购买永不结束的意大利面通票 ，100 美元可以送一张为期八周的意大利面、面包棒和沙拉。50 名幸运的人还有机会只需多付 100 美元就可以去意大利 T4。
 

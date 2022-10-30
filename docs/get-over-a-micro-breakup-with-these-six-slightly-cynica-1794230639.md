@@ -1,6 +1,6 @@
 # 用这六个有点愤世嫉俗的策略克服微分手
 
-> 原文:[https://life hacker . com/get-over-a-micro-breakup-with the-six-little-cynica-1794230639](https://lifehacker.com/get-over-a-micro-breakup-with-these-six-slightly-cynica-1794230639)
+> 原文：<https://lifehacker.com/get-over-a-micro-breakup-with-these-six-slightly-cynica-1794230639>
 
 当我从与我丈夫、两条狗和一只猫合住的公寓里搬出去时，真的很痛，但这种痛是我完全预料到的。伴随着十年关系的解除而产生的感情并没有什么令人惊讶的；我崩溃了，但如果我没有崩溃那才奇怪呢。整部电影的情节都致力于大的，适当的，资本 B 分手，但没有太多关注较小的，似乎不太重要的" [微分手](https://www.washingtonpost.com/news/soloish/wp/2017/04/06/the-surprising-weight-of-the-micro-breakup/?utm_term=.733d52e11b11) ， [一个由布里特尼·罗宾逊](https://www.washingtonpost.com/news/soloish/wp/2017/04/06/the-surprising-weight-of-the-micro-breakup/?utm_term=.733d52e11b11) 用来描述从未真正结束的事情的术语。
 

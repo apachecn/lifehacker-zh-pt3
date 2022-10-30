@@ -1,6 +1,6 @@
 # 压力清洗脏的运动装备，让它看起来像新的一样
 
-> 原文:[https://life hacker . com/pressure-wash-dirty-sports-gear-to-make-it-look-like-ne-1796591600](https://lifehacker.com/pressure-wash-dirty-sports-gear-to-make-it-look-like-ne-1796591600)
+> 原文：<https://lifehacker.com/pressure-wash-dirty-sports-gear-to-make-it-look-like-ne-1796591600>
 
 如果你或你的孩子从事户外运动，你就会知道制服很快就会被难以去除的灰尘和草渍覆盖。这一招可以让那些制服保持最佳状态。
 

@@ -1,6 +1,6 @@
 # 你最奇怪的饮食习惯，从可疑应用程序中保护在线账户，以及阴谋论的吸引力
 
-> 原文:[https://life hacker . com/your-best-verged-food-habits-securing-online-accounts-f-1794757637](https://lifehacker.com/your-best-weird-food-habits-securing-online-accounts-f-1794757637)
+> 原文：<https://lifehacker.com/your-best-weird-food-habits-securing-online-accounts-f-1794757637>
 
 本周，我们坦白了我们最喜欢的怪异食物混合物——想一想多力多滋花生酱三明治和黄油拉面——通过撤销可疑应用程序的访问来保护我们的在线账户，查看特朗普税收计划的后果，等等。下面回顾一下本周最受欢迎的帖子。
 

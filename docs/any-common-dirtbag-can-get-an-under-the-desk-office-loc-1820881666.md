@@ -1,6 +1,6 @@
 # 任何一个普通的垃圾都能得到一个办公桌下的办公室锁按钮
 
-> 原文:[https://life hacker . com/any-common-dirtbag-can-get-an-under-the-desk-office-loc-1820881666](https://lifehacker.com/any-common-dirtbag-can-get-an-under-the-desk-office-loc-1820881666)
+> 原文：<https://lifehacker.com/any-common-dirtbag-can-get-an-under-the-desk-office-loc-1820881666>
 
 马特·劳厄尔最近因多年来以可怕的方式性骚扰女性而被 NBC 的 *Today* 解雇，他的桌子下面有一个门锁按钮。*到底是谁安装的？*我们都 [思忖着](https://thegrapevine.theroot.com/who-the-hell-at-nbc-approved-matt-lauers-in-office-sex-1820854012) 。但答案可能是:没人。你可以在亚马逊上买一个。
 

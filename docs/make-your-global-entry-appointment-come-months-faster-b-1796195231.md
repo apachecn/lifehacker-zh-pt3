@@ -1,6 +1,6 @@
 # 走进，让您的全球入境预约提前几个月到来
 
-> 原文:[https://life hacker . com/make-your-global-entry-appointment-come-months-faster-b-1796195231](https://lifehacker.com/make-your-global-entry-appointment-come-months-faster-b-1796195231)
+> 原文：<https://lifehacker.com/make-your-global-entry-appointment-come-months-faster-b-1796195231>
 
 就国际旅行而言，今年对我来说是重要的一年，所以去年 12 月，我决定咬紧牙关，申请一个全球入境账户，全年都可以使用。然而，当我获得这项服务的批准时，我遇到了一个大麻烦:我能得到的最快的面谈预约是在八个月之后，比我计划的几次国际旅行还要早。
 

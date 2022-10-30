@@ -1,6 +1,6 @@
 # 与 Chrome 相比，三星的 Android 浏览器提供了一个很大的隐私保护
 
-> 原文:[https://life hacker . com/samsungs-Android-browser-offers-a-big-privacy-perk-over-1820017228](https://lifehacker.com/samsungs-android-browser-offers-a-big-privacy-perk-over-1820017228)
+> 原文：<https://lifehacker.com/samsungs-android-browser-offers-a-big-privacy-perk-over-1820017228>
 
 [三星](https://medium.com/samsung-internet-dev/samsung-internet-v6-2-now-stable-ab7f95ed8b4b) 正在将其 [智能手机浏览器](https://lifehacker.com/the-best-web-browser-for-android-5832026) 带到所有安卓手机上(假设你运行的是安卓 5.0 或更高版本)，它比谷歌自己的 [Chrome](https://lifehacker.com/lifehacker-pack-for-chrome-our-list-of-essential-chrom-880863393) 浏览器有一大优势。三星互联网应用程序具有内置广告跟踪拦截器的功能，可防止其他网站跟踪您在互联网上的活动。
 

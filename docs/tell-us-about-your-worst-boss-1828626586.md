@@ -1,6 +1,6 @@
 # 告诉我们你最糟糕的老板
 
-> 原文:[https://life hacker . com/tell-us-about-your worst-boss-1828626586](https://lifehacker.com/tell-us-about-your-worst-boss-1828626586)
+> 原文：<https://lifehacker.com/tell-us-about-your-worst-boss-1828626586>
 
 Lifehacker 的读者们请注意:我们想听听你们最糟糕的老板。你知道那个人:每次开会都夸夸其谈的吹牛大王；那个期望你在凌晨 3 点回复紧急短信的精神错乱的疯子；那个所谓的“天才”忍不住对每个人大喊大叫，因为她实在是太热情了。或者是那个不停舔手指，然后用湿手指把刘海贴在额头上，同时从不中断眼神交流的人。(哦，等等，那是*我的*故事。)
 

@@ -1,6 +1,6 @@
 # 如何在孩子年幼时培养他们的同情心
 
-> 原文:[https://life hacker . com/how-to-foster-同情你年幼的孩子-1787091654](https://lifehacker.com/how-to-foster-sympathy-in-your-children-at-a-young-age-1787091654)
+> 原文：<https://lifehacker.com/how-to-foster-sympathy-in-your-children-at-a-young-age-1787091654>
 
 父母和老师可能经常想知道如何教会孩子关心他人——尤其是当这个世界充满分歧、冲突和攻击时。
 

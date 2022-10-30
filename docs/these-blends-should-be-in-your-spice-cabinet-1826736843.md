@@ -1,6 +1,6 @@
 # 这些混合物应该在你的香料柜里
 
-> 原文:[https://life hacker . com/these-blends-should-in-your-spice-cabinet-1826736843](https://lifehacker.com/these-blends-should-be-in-your-spice-cabinet-1826736843)
+> 原文：<https://lifehacker.com/these-blends-should-be-in-your-spice-cabinet-1826736843>
 
 自己制作混合香料并不是特别困难，但是买一瓶混合香料比买五瓶五种不同的香料更方便，也更省钱。此外，如果你刚刚进入调味料和香料的世界，混合可以少一点恐吓。
 

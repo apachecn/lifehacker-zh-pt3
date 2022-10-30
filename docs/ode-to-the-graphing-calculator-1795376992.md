@@ -1,6 +1,6 @@
 # 图形计算器颂
 
-> 原文:[https://life hacker . com/ode-to-the-graphing-calculator-1795376992](https://lifehacker.com/ode-to-the-graphing-calculator-1795376992)
+> 原文：<https://lifehacker.com/ode-to-the-graphing-calculator-1795376992>
 
 昂贵得离谱的德州仪器图形计算器正在缓慢但肯定会被淘汰。时代变得越来越好，但我感到怀旧。我有一些美好的回忆。
 

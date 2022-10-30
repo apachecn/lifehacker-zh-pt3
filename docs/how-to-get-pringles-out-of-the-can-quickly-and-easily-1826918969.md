@@ -1,6 +1,6 @@
 # 如何快速简单地将品客薯片从罐头中取出
 
-> 原文:[https://life hacker . com/how-to-get-pringles-out-of-the-can-t-1826918969](https://lifehacker.com/how-to-get-pringles-out-of-the-can-quickly-and-easily-1826918969)
+> 原文：<https://lifehacker.com/how-to-get-pringles-out-of-the-can-quickly-and-easily-1826918969>
 
 品客薯片——那些由小麦、大米、玉米和薯片的浆状物制成的可堆叠的薯片———从罐头中取出可能会很麻烦。也许一开始不会，但是让我们面对现实吧:一旦你开始吃它们，不管你觉得有多恶心，你都会*一直吃到容器底部。这给你留下了两个选择:* 
 

@@ -1,6 +1,6 @@
 # 如何在 Pixel 或 Nexus 的相机应用中使用谷歌镜头
 
-> 原文:[https://life hacker . com/how-to-use-Google-lens-with-the-camera-app-in-your-PIXE-1827149326](https://lifehacker.com/how-to-use-google-lens-with-the-camera-app-in-your-pixe-1827149326)
+> 原文：<https://lifehacker.com/how-to-use-google-lens-with-the-camera-app-in-your-pixe-1827149326>
 
 从今天开始，谷歌 Pixel 和 Pixel 2 Android 智能手机以及一些精选 Nexus 和 Android One 设备的用户将能够直接在谷歌的相机应用程序中访问谷歌镜头。下面简单介绍一下如何做到这一点。
 

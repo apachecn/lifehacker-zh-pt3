@@ -1,6 +1,6 @@
 # 租房前你应该问的基本问题
 
-> 原文:[https://life hacker . com/the-essential-questions-you-should-ask-before-rent-a-1820342224](https://lifehacker.com/the-essential-questions-you-should-ask-before-renting-a-1820342224)
+> 原文：<https://lifehacker.com/the-essential-questions-you-should-ask-before-renting-a-1820342224>
 
 我们都听说过标准的租房建议:测试所有的水龙头、窗户和电器。在几天内，在一天中的不同时间，多次访问这个社区，这样你就可以测量噪音水平。在大厅闲逛，问问现在的房客是否喜欢住在那里。
 

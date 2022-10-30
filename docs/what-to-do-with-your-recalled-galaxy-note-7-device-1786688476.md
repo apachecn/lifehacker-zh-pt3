@@ -1,6 +1,6 @@
 # 如何退货您召回的三星 Galaxy Note 7
 
-> 原文:[https://life hacker . com/what-to-do-with-your-called-galaxy-note-7-device-1786688476](https://lifehacker.com/what-to-do-with-your-recalled-galaxy-note-7-device-1786688476)
+> 原文：<https://lifehacker.com/what-to-do-with-your-recalled-galaxy-note-7-device-1786688476>
 
 本月早些时候，三星 [宣布召回其 Galaxy Note 7 智能手机](https://news.samsung.com/global/statement-on-galaxy-note7) ，现在召回是正式的。下面是如何处理你的( [潜在爆炸性](https://lifehacker.com/samsung-recalls-galaxy-note-7-devices-will-replace-all-1786098142) )装置。
 

@@ -1,6 +1,6 @@
 # 如何获得热门活动的门票
 
-> 原文:[https://life hacker . com/how-to-score-tickets-to-demand-events-1823775344](https://lifehacker.com/how-to-score-tickets-to-in-demand-events-1823775344)
+> 原文：<https://lifehacker.com/how-to-score-tickets-to-in-demand-events-1823775344>
 
 这是一个我们都非常熟悉的问题——你很高兴参加一个活动，无论是季末比赛还是你最喜欢的艺术家终于来了——却发现当你试图在线购买门票时，门票在几秒钟内就卖光了。有没有想过那些人，那些真正设法抢到抢票的人，是怎么做到的？下面是方法:
 

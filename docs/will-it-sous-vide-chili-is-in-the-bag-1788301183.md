@@ -1,6 +1,6 @@
 # 它会腐烂吗？辣椒在袋子里
 
-> 原文:[https://life hacker . com/will-it-sous-vide-Chili-is-in-the-bag-1788301183](https://lifehacker.com/will-it-sous-vide-chili-is-in-the-bag-1788301183)
+> 原文：<https://lifehacker.com/will-it-sous-vide-chili-is-in-the-bag-1788301183>
 
 大家好，欢迎回到丰富辛辣的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

@@ -1,6 +1,6 @@
 # 导致错误理财决策的认知偏差
 
-> 原文:[https://life hacker . com/the-cognitive-bias-the-lead-to-bad money-decisions-1777406419](https://lifehacker.com/the-cognitive-biases-that-lead-to-bad-money-decisions-1777406419)
+> 原文：<https://lifehacker.com/the-cognitive-biases-that-lead-to-bad-money-decisions-1777406419>
 
 如果理财像处理一些数字和遵循一个支出计划一样简单，我们都会很擅长。金钱不是因为数学而变得困难，而是心理学让我们犯错。当涉及到财务决策时，我们的大脑经常与我们作对，但是如果你认识到这些认知偏差，你就可以克服它们。
 

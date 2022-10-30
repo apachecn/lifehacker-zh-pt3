@@ -1,6 +1,6 @@
 # 何时报名参加大学健康保险计划
 
-> 原文:[https://life hacker . com/when-to-sign-up-for-a-college-health-insurance-plan-1828065113](https://lifehacker.com/when-to-sign-up-for-a-college-health-insurance-plan-1828065113)
+> 原文：<https://lifehacker.com/when-to-sign-up-for-a-college-health-insurance-plan-1828065113>
 
 当学生们准备前往全国各地的大学校园时，他们必须做出一个与 FAFSA 或教科书无关的财务决定:如何处理他们的健康保险。
 

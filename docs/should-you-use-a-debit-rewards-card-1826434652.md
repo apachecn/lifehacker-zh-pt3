@@ -1,6 +1,6 @@
 # 你应该使用借记卡吗？
 
-> 原文:[https://life hacker . com/should-you-use-a debit-rewards-card-1826434652](https://lifehacker.com/should-you-use-a-debit-rewards-card-1826434652)
+> 原文：<https://lifehacker.com/should-you-use-a-debit-rewards-card-1826434652>
 
 借记卡奖励卡不像以前那么普遍了，但对于那些对使用信用卡持谨慎态度的人来说，它们仍然是一种选择。
 

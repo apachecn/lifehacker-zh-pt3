@@ -1,6 +1,6 @@
 # 这个草莓椒盐卷饼沙拉在法律上不算沙拉，但不管怎样，伙计
 
-> 原文:[https://the take out . com/recipe-草莓-椒盐卷饼-沙拉-1828080663](https://thetakeout.com/recipe-strawberry-pretzel-salad-1828080663)
+> 原文：<https://thetakeout.com/recipe-strawberry-pretzel-salad-1828080663>
 
 *欢迎来到*外卖的[***不健康沙拉周***](https://thetakeout.com/tag/unhealthy-salads-week) *，因为美国。*
 

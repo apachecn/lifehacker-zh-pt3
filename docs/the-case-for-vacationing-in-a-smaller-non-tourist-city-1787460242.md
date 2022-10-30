@@ -1,6 +1,6 @@
 # 在较小的非旅游城市度假的理由
 
-> 原文:[https://life hacker . com/the-case for-vacationing-a-small-the-less-non-tourism-city-1787460242](https://lifehacker.com/the-case-for-vacationing-in-a-smaller-non-tourist-city-1787460242)
+> 原文：<https://lifehacker.com/the-case-for-vacationing-in-a-smaller-non-tourist-city-1787460242>
 
 我最近 [去了趟克里夫兰](http://www.thewildwong.com/the-case-for-cleveland/) ，老实说，这座城市我从来没想过要作为旅游目的地，原因是:它不是。不过，我玩得很开心，这让我意识到，较小的非旅游城市实际上非常适合旅行。
 

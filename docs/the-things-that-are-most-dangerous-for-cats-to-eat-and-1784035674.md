@@ -1,6 +1,6 @@
 # 猫吃什么最危险，为什么
 
-> 原文:[https://life hacker . com/the-things-the-that-the-things-the-most-dangerous for-cats-to-eat-and-1784035674](https://lifehacker.com/the-things-that-are-most-dangerous-for-cats-to-eat-and-1784035674)
+> 原文：<https://lifehacker.com/the-things-that-are-most-dangerous-for-cats-to-eat-and-1784035674>
 
 猫可能不会像狗一样吃垃圾，但它们会分享人类的食物、室内植物和其他奇怪的东西。以下是为什么某些看似普通的东西对猫来说是危险的，以及你能做些什么。
 

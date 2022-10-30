@@ -1,6 +1,6 @@
 # 从美国律师协会获得免费的在线法律咨询
 
-> 原文:[https://life hacker . com/get-free-legal-advice-online-from-the-American-bar-asso-1796274303](https://lifehacker.com/get-free-legal-advice-online-from-the-american-bar-asso-1796274303)
+> 原文：<https://lifehacker.com/get-free-legal-advice-online-from-the-american-bar-asso-1796274303>
 
 如果你是低收入、低储蓄的家庭，你所在的州可能会提供免费的法律咨询。美国律师协会网站 [免费法律解答](https://www.freelegalanswers.org/) 一年最多会解答三个非刑事法律问题。除法律要求外，问题和答案都是保密的。
 

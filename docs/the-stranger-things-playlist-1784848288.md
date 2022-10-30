@@ -1,6 +1,6 @@
 # 陌生事物播放列表
 
-> 原文:[https://life hacker . com/the-stranger-things-playlist-1784848288](https://lifehacker.com/the-stranger-things-playlist-1784848288)
+> 原文：<https://lifehacker.com/the-stranger-things-playlist-1784848288>
 
 如果你还没有看过网飞的新剧*陌生人的事情*，认真去做吧。太牛逼了。如果你看过，你就会知道音乐完全成就了这部剧。不幸的是，synth-tastic 配乐并没有出来，但这个播放列表中的 80 年代音乐精选节目。
 

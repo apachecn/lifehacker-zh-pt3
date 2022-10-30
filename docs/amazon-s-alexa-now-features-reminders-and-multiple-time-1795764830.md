@@ -1,6 +1,6 @@
 # 亚马逊的 Alexa 现在有了提醒和多个计时器
 
-> 原文:[https://life hacker . com/Amazon-s-Alexa-now-features-reminders-and-multiple-time-1795764830](https://lifehacker.com/amazon-s-alexa-now-features-reminders-and-multiple-time-1795764830)
+> 原文：<https://lifehacker.com/amazon-s-alexa-now-features-reminders-and-multiple-time-1795764830>
 
 亚马逊增强了其语音控制助手 Alexa 的一些基本功能。你最喜欢的女士现在可以设置提醒和多个定时器，每个都有不同的名字。因为如果有什么比助手更好的话，那就是助手会提醒你事情何时完成以及需要多长时间——尤其是当你问的时候。
 

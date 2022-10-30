@@ -1,6 +1,6 @@
 # 虾吐司是值得在家做的油炸点心主食
 
-> 原文:[https://the take out . com/shrimp-toast-is-the-deep-油炸点心-主食-价值-mak-1821001380](https://thetakeout.com/shrimp-toast-is-the-deep-fried-dim-sum-staple-worth-mak-1821001380)
+> 原文：<https://thetakeout.com/shrimp-toast-is-the-deep-fried-dim-sum-staple-worth-mak-1821001380>
 
 虾吐司，看起来相当古板和西方化，实际上是非常中国化的东西。虾吐司起源于中国北方省份的一道开胃菜，它将虾泥涂在白面包上，然后整个油炸。
 

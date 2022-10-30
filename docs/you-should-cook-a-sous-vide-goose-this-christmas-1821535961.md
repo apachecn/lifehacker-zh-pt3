@@ -1,6 +1,6 @@
 # 今年圣诞节你应该储存一只鹅
 
-> 原文:[https://life hacker . com/you-should-cook-a-sous-vide-goose-this-Christmas-1821535961](https://lifehacker.com/you-should-cook-a-sous-vide-goose-this-christmas-1821535961)
+> 原文：<https://lifehacker.com/you-should-cook-a-sous-vide-goose-this-christmas-1821535961>
 
 朋友们大家好，欢迎回到 [*它会苏威吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。今天我们要做一只圣诞鹅，让我告诉你，这只鹅很棒。
 

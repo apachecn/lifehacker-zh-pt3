@@ -1,6 +1,6 @@
 # 如果有人以你的名义申请学生贷款，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-someone-take-out-student-loans in-your-n-1825882484](https://lifehacker.com/what-to-do-if-someone-takes-out-student-loans-in-your-n-1825882484)
+> 原文：<https://lifehacker.com/what-to-do-if-someone-takes-out-student-loans-in-your-n-1825882484>
 
 身份盗窃有多种形式，其中一种可能包括有人以你的名义申请学生贷款。那岂不是一个很好的惊喜！
 

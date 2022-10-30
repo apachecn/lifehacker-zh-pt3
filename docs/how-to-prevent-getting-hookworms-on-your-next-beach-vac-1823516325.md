@@ -1,6 +1,6 @@
 # 如何防止下次海滩度假时感染钩虫
 
-> 原文:[https://life hacker . com/how-to-prevent-get-hook worms-on-your next-beach-vac-1823516325](https://lifehacker.com/how-to-prevent-getting-hookworms-on-your-next-beach-vac-1823516325)
+> 原文：<https://lifehacker.com/how-to-prevent-getting-hookworms-on-your-next-beach-vac-1823516325>
 
 有什么比在美丽的异国海滩上把脚趾埋进温暖的沙子里更好的吗？如果海滩上满是钩虫，它们希望钻入你的脚，然后进入你的小肠，那就有可能了。如果你经常去温暖潮湿的地方旅行，以下是如何避免这些讨厌的小东西。
 

@@ -1,6 +1,6 @@
 # 提高速度、形态和效率的七项跑步训练
 
-> 原文:[https://life hacker . com/seven-running-drills-to-improve-speed-form-and-effici-1741504691](https://lifehacker.com/seven-running-drills-to-improve-speed-form-and-effici-1741504691)
+> 原文：<https://lifehacker.com/seven-running-drills-to-improve-speed-form-and-effici-1741504691>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-6H8WLfyavWk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-6H8WLfyavWk&start=0) 
 

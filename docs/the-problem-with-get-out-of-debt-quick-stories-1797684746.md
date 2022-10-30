@@ -1,6 +1,6 @@
 # “快速摆脱债务”故事的问题在于
 
-> 原文:[https://life hacker . com/the-problem-with-get-out-of-debt-quick-stories-1797684746](https://lifehacker.com/the-problem-with-get-out-of-debt-quick-stories-1797684746)
+> 原文：<https://lifehacker.com/the-problem-with-get-out-of-debt-quick-stories-1797684746>
 
 你见过他们。那些耸人听闻的网上人物简介，描述了那些在很短的时间内完成了我们大多数人只能梦想的巨大目标的人。*这个 30 岁的人如何辞掉工作成为百万富翁*或*这个千禧一代如何用 3 万美元的薪水在纽约买了房子*或*这对夫妇如何在一年内还清了价值 20 万美元的债务。*
 

@@ -1,6 +1,6 @@
 # HQ 琐事现在可以在 Android 上使用
 
-> 原文:[https://life hacker . com/HQ-trivia-is-now-available-for-Android-1821844099](https://lifehacker.com/hq-trivia-is-now-available-for-android-1821844099)
+> 原文：<https://lifehacker.com/hq-trivia-is-now-available-for-android-1821844099>
 
 如果你一直嫉妒你的 iPhone 朋友玩 HQ 琐事的能力，你很幸运:这款游戏本周正式登陆 Android 设备。
 

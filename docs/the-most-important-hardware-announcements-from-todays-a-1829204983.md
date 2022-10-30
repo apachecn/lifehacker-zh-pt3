@@ -1,6 +1,6 @@
 # 今天亚马逊活动中最重要的硬件发布
 
-> 原文:[https://life hacker . com/the-most-important-hardware-announcements-from-todays-a-1829204983](https://lifehacker.com/the-most-important-hardware-announcements-from-todays-a-1829204983)
+> 原文：<https://lifehacker.com/the-most-important-hardware-announcements-from-todays-a-1829204983>
 
 亚马逊希望你做的任何事情都集成 Alexa，今天宣布了新的大杂烩[有些很有趣；其中一些只是你已经拥有的相同智能家居设备的更新。(同样有趣的是，不要误会我的意思，但如果你对目前的设置感到满意，你可能不会购买新的 Echo Dot。)](https://gizmodo.com/amazon-is-going-to-drown-us-in-alexa-crap-1829202572)
 

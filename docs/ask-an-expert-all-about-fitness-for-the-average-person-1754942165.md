@@ -1,6 +1,6 @@
 # 问专家:普通人的健康问题
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-fitness for-the-average-person-1754942165](https://lifehacker.com/ask-an-expert-all-about-fitness-for-the-average-person-1754942165)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-fitness-for-the-average-person-1754942165>
 
 向史蒂夫·卡姆布问好，他自 2009 年以来一直在帮助普通人和普通人在 [书呆子健身](http://www.nerdfitness.com/) 过上更健康的生活。书呆子健身社区致力于指导我们这些不是真正运动大师的人“提升我们的生活水平”
 

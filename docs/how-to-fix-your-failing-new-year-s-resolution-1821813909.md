@@ -1,6 +1,6 @@
 # 如何解决你失败的新年决心
 
-> 原文:[https://life hacker . com/how-to-fix-to-fix-your-failed-new-year-s-resolution-1821813909](https://lifehacker.com/how-to-fix-your-failing-new-year-s-resolution-1821813909)
+> 原文：<https://lifehacker.com/how-to-fix-your-failing-new-year-s-resolution-1821813909>
 
 我们已经过了新年几天了。决议进行得怎么样了？不太好，是吧？听着，有些决心就是不好。你的可能就是其中之一。
 

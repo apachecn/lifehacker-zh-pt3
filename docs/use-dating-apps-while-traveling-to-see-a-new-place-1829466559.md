@@ -1,6 +1,6 @@
 # 旅行时使用约会应用程序去看看一个新地方
 
-> 原文:[https://life hacker . com/use-dating-apps-while-travel-to-see-a-new-place-1829466559](https://lifehacker.com/use-dating-apps-while-traveling-to-see-a-new-place-1829466559)
+> 原文：<https://lifehacker.com/use-dating-apps-while-traveling-to-see-a-new-place-1829466559>
 
 作为一名游客，你总是怀疑你得到的是一种非常定制和商业化的体验。有时候，那些炫目的、精心制作的东西可能很有趣，但是如果你想要更多，有一个很好的方法:和当地人约会。
 

@@ -1,6 +1,6 @@
 # 制作你自己的大蒜蜂蜜，把它洒在所有的东西上
 
-> 原文:[https://life hacker . com/make-your-own-like-honey-and-毛毛雨-1797954556](https://lifehacker.com/make-your-own-garlic-honey-and-drizzle-it-on-everything-1797954556)
+> 原文：<https://lifehacker.com/make-your-own-garlic-honey-and-drizzle-it-on-everything-1797954556>
 
 上次我们登记员工的每周升级时，我们的编辑正忙着整理待办事项列表，介绍 Twitter 机器人，并陶醉于高质量家居拖鞋的快乐。
 

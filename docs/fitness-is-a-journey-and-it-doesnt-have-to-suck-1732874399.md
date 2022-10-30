@@ -1,6 +1,6 @@
 # 健身是一个旅程，不一定非要很烂
 
-> 原文:[https://life hacker . com/fitness-is-a-journey and-that-has-to-suck-1732874399](https://lifehacker.com/fitness-is-a-journey-and-it-doesnt-have-to-suck-1732874399)
+> 原文：<https://lifehacker.com/fitness-is-a-journey-and-it-doesnt-have-to-suck-1732874399>
 
 随着每一个成功的减肥故事，人们很难避免过度关注某人的视觉变化或他们减掉的磅数。不幸的是，把你所有的精力都集中在最终目标上会让健康和健身的过程变得糟糕——这让你不太可能坚持下去并获得成功。
 

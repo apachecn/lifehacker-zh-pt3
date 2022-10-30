@@ -1,6 +1,6 @@
 # 告诉我们你的新英格兰小镇黑客
 
-> 原文:[https://life hacker . com/tell-us-your-small-town-new-England-hacks-1828894531](https://lifehacker.com/tell-us-your-small-town-new-england-hacks-1828894531)
+> 原文：<https://lifehacker.com/tell-us-your-small-town-new-england-hacks-1828894531>
 
 本周《黑客入侵你的城市》节目，我们将入侵这个国家。随着我们进入赏叶季节，让我们分享新英格兰乡间小路和小镇的最佳小贴士。(我们对新英格兰的定义非常宽泛。)哪些村庄s up-和- coming，哪些最适合雅皮士，哪些最适合更脚踏实地的旅行者，哪些已经太游客爆棚了？哪些高速公路和公路提供了最好的红色和金色景色？路边最吸引人的是什么？
 

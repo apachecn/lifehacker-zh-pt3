@@ -1,6 +1,6 @@
 # 如何控制咖啡因的摄入量并最大限度地提高警觉性
 
-> 原文:[https://life hacker . com/how-to-time your-caffeine-consumption-and-maximize-aler-1826619383](https://lifehacker.com/how-to-time-your-caffeine-consumption-and-maximize-aler-1826619383)
+> 原文：<https://lifehacker.com/how-to-time-your-caffeine-consumption-and-maximize-aler-1826619383>
 
 你有没有发现自己喝着咖啡熬夜学习，但是当考试的时候，你的大脑因为疲劳而变得模糊不清？来自美国陆军的研究人员开发了一种算法 ，它可以预测饮用咖啡因后的能量峰值和谷值，进而创建一种基于网络的工具，帮助你根据自己的睡眠时间表和喝咖啡的习惯来预测你预计会有多清醒。
 

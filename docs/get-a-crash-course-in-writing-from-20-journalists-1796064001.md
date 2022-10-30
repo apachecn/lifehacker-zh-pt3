@@ -1,6 +1,6 @@
 # 参加 20 名记者的写作速成班
 
-> 原文:[https://life hacker . com/get-a-crash-course-in-writing-from-20-journalists-1796064001](https://lifehacker.com/get-a-crash-course-in-writing-from-20-journalists-1796064001)
+> 原文：<https://lifehacker.com/get-a-crash-course-in-writing-from-20-journalists-1796064001>
 
 我只记得我三年英语专业的一堂应用文写作课:只要有可能，把最好的句子放在句末。把下一个最好的放在开头，其余的放在中间。这种技巧适用于各种写作，我希望我在大学期间学习了更多类似的技巧，而不是假装阅读《卡拉马佐夫兄弟》。
 

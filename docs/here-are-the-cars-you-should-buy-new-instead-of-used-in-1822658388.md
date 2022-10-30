@@ -1,6 +1,6 @@
 # 以下是你应该在 2018 年购买的新车，而不是二手车
 
-> 原文:[https://jalopnik . com/here-are-the-cars-you-should-buy-in-1822658388](https://jalopnik.com/here-are-the-cars-you-should-buy-new-instead-of-used-in-1822658388)
+> 原文：<https://jalopnik.com/here-are-the-cars-you-should-buy-new-instead-of-used-in-1822658388>
 
 我从来没有赞同“总是买二手车”的哲学，但一些人仍然相信，由于贬值，二手车是最聪明的金融购买。这项来自 iSeeCars.com 的 [*的研究显示，对于今年的一些汽车来说，二手版本并不能为你节省那么多。*](https://www.iseecars.com/used-car-finder#section=studies&study=cars_to_buy_new) 
 

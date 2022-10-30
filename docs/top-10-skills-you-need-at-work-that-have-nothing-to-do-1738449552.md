@@ -1,6 +1,6 @@
 # 你在工作中需要的 10 项与工作无关的技能
 
-> 原文:[https://life hacker . com/top-10-skills-you-need-to-the-happy-to-do-1738449552](https://lifehacker.com/top-10-skills-you-need-at-work-that-have-nothing-to-do-1738449552)
+> 原文：<https://lifehacker.com/top-10-skills-you-need-at-work-that-have-nothing-to-do-1738449552>
 
 招聘经理不仅要根据具体的工作要求，还要根据每个员工都应该具备的基本技能【软技能】，做出谁是最佳候选人的艰难决定。以下是每个人都需要的 10 项额外技能。
 

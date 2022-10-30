@@ -1,6 +1,6 @@
 # 你到底能买得起多少房子？
 
-> 原文:[https://life hacker . com/how-much-house-you-really-afforce-1827171127](https://lifehacker.com/how-much-house-can-you-really-afford-1827171127)
+> 原文：<https://lifehacker.com/how-much-house-can-you-really-afford-1827171127>
 
 很多买房关注的是你的抵押贷款，但有很多隐性成本你可能在第一次购物时没有考虑到。加上这些，你可能不得不缩小搜索范围，寻找更便宜的产品。
 

@@ -1,6 +1,6 @@
 # 大学生:现在就下载这些安全应用
 
-> 原文:[https://life hacker . com/safety-apps-college-students-should-download-now-1828492378](https://lifehacker.com/safety-apps-college-students-should-download-now-1828492378)
+> 原文：<https://lifehacker.com/safety-apps-college-students-should-download-now-1828492378>
 
 我们不是要告诉你无论去哪里都要带一个朋友，每天晚上回家都要给妈妈打电话，但是如果你是新来的，上夜班或者计划在高峰周外出参加派对，采取一些预防措施不会有什么坏处。
 

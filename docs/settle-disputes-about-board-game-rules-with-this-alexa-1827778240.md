@@ -1,6 +1,6 @@
 # 用这个 Alexa 技能解决关于棋盘游戏规则的争议
 
-> 原文:[https://life hacker . com/settle-disputes-about-board-game-rules-with this-Alexa-1827778240](https://lifehacker.com/settle-disputes-about-board-game-rules-with-this-alexa-1827778240)
+> 原文：<https://lifehacker.com/settle-disputes-about-board-game-rules-with-this-alexa-1827778240>
 
 我是一个非常好胜的人，尤其是在桌游方面。这意味着我将永远是第一个宣布某人“违反规则”并拿出规则手册证明这一点的人。
 

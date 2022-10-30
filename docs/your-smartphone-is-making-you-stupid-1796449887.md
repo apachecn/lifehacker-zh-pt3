@@ -1,6 +1,6 @@
 # 你的智能手机让你变笨了
 
-> 原文:[https://life hacker . com/your-smart phone-is-making-you-blind-1796449887](https://lifehacker.com/your-smartphone-is-making-you-stupid-1796449887)
+> 原文：<https://lifehacker.com/your-smartphone-is-making-you-stupid-1796449887>
 
 你把自己锁在大学图书馆二楼的自习室里，周围都是积满灰尘的大部头书和喜欢亲热的人，然后继续写你的毕业论文。不幸的是，你没有摆脱影响你学习的最大干扰:你的智能手机。关掉它可能会让你分心，但你最好把它扔出窗外。
 

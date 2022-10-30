@@ -1,6 +1,6 @@
 # 如何在您的旧 iPhone 上获得 iPhone X 的独家新铃声
 
-> 原文:[https://life hacker . com/how-to-get-the-iphone-xs-exclusive-new-rington-on-your-1820080432](https://lifehacker.com/how-to-get-the-iphone-xs-exclusive-new-ringtone-on-your-1820080432)
+> 原文：<https://lifehacker.com/how-to-get-the-iphone-xs-exclusive-new-ringtone-on-your-1820080432>
 
 苹果让其智能手机与众不同的众多方式之一是使用特殊的铃声，这可以追溯到第一代 iPhone 及其标志性的马林巴音乐 。而 [iPhone X](https://lifehacker.com/why-you-shouldnt-buy-the-iphone-x-at-launch-according-1819803348#_ga=2.232386655.1131600261.1509628339-1313785359.1499701416) 也没有什么不同。它有一个名为“反射”的专属默认铃声，这样一旦铃声响起，你周围的每个人都会知道你为这个昂贵的新玩意付出了代价。
 

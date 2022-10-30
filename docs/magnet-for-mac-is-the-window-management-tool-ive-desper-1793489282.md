@@ -1,6 +1,6 @@
 # Mac 的磁铁是我迫切需要的窗口管理工具
 
-> 原文:[https://life hacker . com/magnet-for-MAC-is-the-window-management-tool-ive-desper-1793489282](https://lifehacker.com/magnet-for-mac-is-the-window-management-tool-ive-desper-1793489282)
+> 原文：<https://lifehacker.com/magnet-for-mac-is-the-window-management-tool-ive-desper-1793489282>
 
 这些年来，我们已经在 Mac 上 [看到了几个不同的工具](http://lifehacker.com/hyperdock-brings-window-previews-other-dock-enhancemen-5649024)[Windows 风格的窗口管理](http://lifehacker.com/snap-any-window-to-half-the-screen-size-in-windows-7-5077728) ，但是没有一个适合我的工作流程。 [Magnet](http://magnet.crowdcafe.com/) 是一个已经存在了一段时间的应用程序，但最近的几次更新终于使它成为我需要的应用程序。
 

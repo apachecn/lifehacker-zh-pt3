@@ -1,6 +1,6 @@
 # 无论在哪里工作，你的包里都要装些什么
 
-> 原文:[https://gizmodo . com/1822231531](https://gizmodo.com/what-to-pack-in-your-bag-to-work-from-anywhere-1822231531)
+> 原文：<https://gizmodo.com/what-to-pack-in-your-bag-to-work-from-anywhere-1822231531>
 
 无论你是进行一次短途旅行还是在一辆货车 里住上几年，我们中的大多数人现在都在我们发现自己的任何地方工作，但是手头有合适的设备可以决定一次顺利的远程工作会议还是一次灾难性的会议。这是你出门在外时需要携带的钥匙包——当然除了笔记本电脑。
 

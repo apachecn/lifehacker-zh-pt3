@@ -1,6 +1,6 @@
 # 传播节日快乐，用圣诞老人行动做真正的好事
 
-> 原文:[https://life hacker . com/spread-holiday-cheer-and-do-serious-good-with-operation-1821163891](https://lifehacker.com/spread-holiday-cheer-and-do-serious-good-with-operation-1821163891)
+> 原文：<https://lifehacker.com/spread-holiday-cheer-and-do-serious-good-with-operation-1821163891>
 
 好吧，是的，把你的慈善工作寄托在假期 [可能是个问题](https://lifehacker.com/why-you-shouldnt-volunteer-at-a-soup-kitchen-this-thank-1820521504) 。但是，每年的这个时候都有很多人需要——既有让生活感觉良好的季节性礼物，也有冬季必需品——而 [圣诞老人](https://www.delivercheer.com/letters) 行动是一种切实可行的帮助方式。
 

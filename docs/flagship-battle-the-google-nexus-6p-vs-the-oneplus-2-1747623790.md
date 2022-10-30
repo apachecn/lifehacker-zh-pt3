@@ -1,6 +1,6 @@
 # 旗舰之战:谷歌 Nexus 6P 对 OnePlus 2
 
-> 原文:[https://life hacker . com/旗舰-对战谷歌-nexus-6p-vs-the-oneplus-2-1747623790](https://lifehacker.com/flagship-battle-the-google-nexus-6p-vs-the-oneplus-2-1747623790)
+> 原文：<https://lifehacker.com/flagship-battle-the-google-nexus-6p-vs-the-oneplus-2-1747623790>
 
 有大量的 Android 旗舰可供选择，但如果你想要一款脱离运营商的手机，让你控制你的体验，你有两个大的选择:谷歌的 Nexus 6P 和 OnePlus 2。撇开规格不谈，你应该买哪个？好吧，下面是他们长期使用后的对比。
 

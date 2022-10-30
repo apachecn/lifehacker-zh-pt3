@@ -1,6 +1,6 @@
 # 使用此应用将流式视频转换为音频文件
 
-> 原文:[https://life hacker . com/this-app-converts-streaming-videos-to-audio-files-1796684634](https://lifehacker.com/this-app-converts-streaming-videos-to-audio-files-1796684634)
+> 原文：<https://lifehacker.com/this-app-converts-streaming-videos-to-audio-files-1796684634>
 
 奇怪的是，我选择的放松音乐是令人难以置信的长 Youtube 视频。我喜欢在《星际迷航》的 [企业号](https://www.youtube.com/watch?v=DydIK14AvXI) 的低沉嗡嗡声中小睡片刻，或者听一个箱型风扇 的 12 小时 [录音。](https://www.youtube.com/watch?v=uOSyMXFdI_s)
 

@@ -1,6 +1,6 @@
 # 我在寻找终极野营旅行车！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-寻找终极露营游览车-1823421258](https://jalopnik.com/im-looking-for-the-ultimate-camping-excursion-vehicle-1823421258)
+> 原文：<https://jalopnik.com/im-looking-for-the-ultimate-camping-excursion-vehicle-1823421258>
 
 奥黛丽喜欢去露营。他试图让他的小雪佛兰掀背车工作，但他已经准备好对待自己更好，更大，准备冒险。他应该买什么车？
 

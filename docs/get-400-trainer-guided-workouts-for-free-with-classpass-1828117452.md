@@ -1,6 +1,6 @@
 # 使用 ClassPass Go 免费获得 400 项教练指导的训练
 
-> 原文:[https://life hacker . com/get-400-trainer-guided-workouts-for-free-with class pass-1828117452](https://lifehacker.com/get-400-trainer-guided-workouts-for-free-with-classpass-1828117452)
+> 原文：<https://lifehacker.com/get-400-trainer-guided-workouts-for-free-with-classpass-1828117452>
 
 我们都知道健身很重要，但是有时候去健身房说起来容易做起来难。本周，ClassPass 发布了一款新的应用程序，它可能会让那些日子里的锻炼变得更容易一些。
 

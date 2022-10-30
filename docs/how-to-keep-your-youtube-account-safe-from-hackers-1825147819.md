@@ -1,6 +1,6 @@
 # 如何保护你的 YouTube 帐户免受黑客攻击
 
-> 原文:[https://life hacker . com/how-to-keep-your-YouTube-account-safe-from the hacker-1825147819](https://lifehacker.com/how-to-keep-your-youtube-account-safe-from-hackers-1825147819)
+> 原文：<https://lifehacker.com/how-to-keep-your-youtube-account-safe-from-hackers-1825147819>
 
 如果你在 YouTube 上建立了一个不错的追随者，你可能会有风险。今天早些时候，黑客设法接管并篡改了网站上一些最受欢迎的视频。
 

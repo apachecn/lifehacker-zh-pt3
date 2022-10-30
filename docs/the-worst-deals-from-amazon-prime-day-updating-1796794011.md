@@ -1,6 +1,6 @@
 # 亚马逊 Prime Day 最差交易[更新]
 
-> 原文:[https://gizmodo . com/the-worst-deals-from-Amazon-prime-day-updating-1796794011](https://gizmodo.com/the-worst-deals-from-amazon-prime-day-updating-1796794011)
+> 原文：<https://gizmodo.com/the-worst-deals-from-amazon-prime-day-updating-1796794011>
 
 亚马逊将其每年的“黄金日”[年](http://gizmodo.com/the-shittiest-deals-of-amazon-prime-day-1717984690) 吹捧为一种新的节日，在这种节日里，交易几乎是无穷无尽的，任何人都不会利用它们。但每年我们都了解到，对亚马逊来说，这主要是一个卖掉卖不出去的东西的机会。我们会让你了解贝佐斯和他的公司希望这次能解决的所有最糟糕的问题。
 

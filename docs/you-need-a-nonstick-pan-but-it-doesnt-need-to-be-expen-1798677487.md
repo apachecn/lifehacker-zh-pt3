@@ -1,6 +1,6 @@
 # 你需要一个不粘锅，但不需要很贵
 
-> 原文:[https://life hacker . com/you-need-a-non-stick-pan-but-it-dont-need-to-be-expen-1798677487](https://lifehacker.com/you-need-a-nonstick-pan-but-it-doesnt-need-to-be-expen-1798677487)
+> 原文：<https://lifehacker.com/you-need-a-nonstick-pan-but-it-doesnt-need-to-be-expen-1798677487>
 
 一般来说，我不使用不粘锅，但也有一些情况——比如 [烹饪完美的两面煎鸡蛋](http://skillet.lifehacker.com/how-to-make-a-perfect-over-easy-egg-1798540985) 、煎蛋卷和薄煎饼——其他东西都不行。然而，我不建议在一个上面花很多钱。
 

@@ -1,6 +1,6 @@
 # 2017 年硅谷最愚蠢的“发明”
 
-> 原文:[https://gizmodo . com/silicon-valley-2017-1821307689](https://gizmodo.com/silicon-valleys-dumbest-inventions-of-2017-1821307689)
+> 原文：<https://gizmodo.com/silicon-valleys-dumbest-inventions-of-2017-1821307689>
 
 如果说 2016 年是“ [优步对 X](https://www.wired.com/2016/12/uber-x-fad-will-pass-uber-uber/) 的一年，“2017 年就是硅谷“发明”东西的一年。
 

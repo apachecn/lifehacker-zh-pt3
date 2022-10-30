@@ -1,6 +1,6 @@
 # 你必备的增强现实应用有哪些？
 
-> 原文:[https://life hacker . com/what ' s-you ' s-must-have-augmented-reality-apps-1826427683](https://lifehacker.com/what-are-your-must-have-augmented-reality-apps-1826427683)
+> 原文：<https://lifehacker.com/what-are-your-must-have-augmented-reality-apps-1826427683>
 
 哦，AR。生活在一个我们可以用智能手机将一只巨大的恐龙(或 [沉睡的卡比兽](https://www.youtube.com/watch?v=0Drc5Agpjg0) )丢进现实世界的时代真是太棒了。
 

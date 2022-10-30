@@ -1,6 +1,6 @@
 # 如何辨别你是否有气味，1 密码入门，以及 500 美元制冰机的优点
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-smoot-started-with-1 passwor-1794538540](https://lifehacker.com/how-to-tell-if-you-smell-getting-started-with-1passwor-1794538540)
+> 原文：<https://lifehacker.com/how-to-tell-if-you-smell-getting-started-with-1passwor-1794538540>
 
 怎么分辨自己臭不臭？本周我们学习了一些方法来评估你自己的体味，这样你就不会把这个地方搞得一团糟。我们还从 1Password 开始，深入研究那些臭名昭著的 Cheerios 种子包，等等。下面回顾一下本周最受欢迎的帖子。
 

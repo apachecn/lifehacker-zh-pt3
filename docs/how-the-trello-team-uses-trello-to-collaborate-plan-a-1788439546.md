@@ -1,6 +1,6 @@
 # Trello 团队如何使用 Trello 进行协作、计划和沟通
 
-> 原文:[https://life hacker . com/how-the-trello-team-uses-trello-to-collaborate-plan-a-1788439546](https://lifehacker.com/how-the-trello-team-uses-trello-to-collaborate-plan-a-1788439546)
+> 原文：<https://lifehacker.com/how-the-trello-team-uses-trello-to-collaborate-plan-a-1788439546>
 
 [Trello](https://trello.com/?utm_source=zapier&utm_medium=blogpost) 是一款灵活的协作工具，被超过 1700 万人以多种方式使用。市场营销人员、项目经理、软件开发人员、高中教师、人力资源经理、婚礼策划师、全职父母和旅行策划师等已经定制了可视化工具来满足他们的需求。但是特雷罗背后的百人团队是如何把工具用到自己身上的呢？
 

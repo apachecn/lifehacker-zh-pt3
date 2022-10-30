@@ -1,6 +1,6 @@
 # 以下是吃胎盘的真相
 
-> 原文:[https://gizmodo . com/heres-the-truth-about-eating-胎盘-1821385056](https://gizmodo.com/heres-the-truth-about-eating-placenta-1821385056)
+> 原文：<https://gizmodo.com/heres-the-truth-about-eating-placenta-1821385056>
 
 我不打算告诉你宝宝出生后胎盘怎么处理。如果医生让你吃，你想把它包起来，炒一下，或者甚至用墨做成胎盘图案，这是你自己的决定。但是你至少应该知道科学家们是否发现食用它对健康有益。
 

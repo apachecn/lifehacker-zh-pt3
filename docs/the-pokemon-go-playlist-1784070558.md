@@ -1,6 +1,6 @@
 # 神奇宝贝 Go 播放列表
 
-> 原文:[https://lifehacker.com/the-pokemon-go-playlist-1784070558](https://lifehacker.com/the-pokemon-go-playlist-1784070558)
+> 原文：<https://lifehacker.com/the-pokemon-go-playlist-1784070558>
 
 你终于可以走出家门去抓神奇宝贝了，但是你有没有一些甜美的音乐可以在路上听呢？嗯，*现在你做*。它们和游戏本身一样充满了对神奇宝贝的怀念。
 

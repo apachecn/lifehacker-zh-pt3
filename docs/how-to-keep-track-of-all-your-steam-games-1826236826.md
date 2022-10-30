@@ -1,6 +1,6 @@
 # 如何记录你所有的蒸汽游戏
 
-> 原文:[https://life hacker . com/how-to-keep-track-of-all-your-steam-games-1826236826](https://lifehacker.com/how-to-keep-track-of-all-your-steam-games-1826236826)
+> 原文：<https://lifehacker.com/how-to-keep-track-of-all-your-steam-games-1826236826>
 
 游戏太多是一个很大的问题。你一直在利用 Steam 销售、打包促销以及可能的一两项退税在数字发行平台上购买大量游戏，这很好。直到现在，你才意识到你疯狂购物的意想不到的影响。你不知道如何组织你的游戏——或者接下来玩什么。
 

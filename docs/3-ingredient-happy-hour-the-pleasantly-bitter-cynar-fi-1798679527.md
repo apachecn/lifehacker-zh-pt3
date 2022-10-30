@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:令人愉快的苦味西纳汽水
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-pleasant-bitter-cy NAR-fi-1798679527](https://lifehacker.com/3-ingredient-happy-hour-the-pleasantly-bitter-cynar-fi-1798679527)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-pleasantly-bitter-cynar-fi-1798679527>
 
 祝(长)周末愉快，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。正如孩子们所说，本周我坚定地回到了我的废话上，喝一种起泡的、苦涩的、以意大利利口酒为燃料的饮料:西纳汽水。
 

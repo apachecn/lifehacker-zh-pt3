@@ -1,6 +1,6 @@
 # 就在网飞提高价格的时候，Hulu 降价了
 
-> 原文:[https://life hacker . com/Hulu-drops-prices-just-as-网飞-raises-1819314197](https://lifehacker.com/hulu-drops-prices-just-as-netflix-raises-theirs-1819314197)
+> 原文：<https://lifehacker.com/hulu-drops-prices-just-as-netflix-raises-theirs-1819314197>
 
 Hulu 降低订阅价格，正好赶上秋季电视季，就在网飞自己的订阅价格上涨之后。最精彩的部分？Hulu 的新老用户都可以享受促销折扣。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 11 日至 18 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-11-to-18-1748721000](https://lifehacker.com/this-weeks-most-popular-posts-december-11th-to-18th-1748721000)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-11th-to-18th-1748721000>
 
 本周，在《遥远的银河系》中，我们通过了解非特殊化版本(以及在哪里可以找到它们)赶上了原版《星球大战》三部曲。与此同时，在 terra firma 上一切如常:比较最好的 Android 手机，避免常见的预算错误，等等。这里回顾一下。
 

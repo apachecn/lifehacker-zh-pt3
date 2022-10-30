@@ -1,6 +1,6 @@
 # 问专家:如何管理你的假期开销
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-managing-your holiday-spending-1746629506](https://lifehacker.com/ask-an-expert-all-about-managing-your-holiday-spending-1746629506)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-managing-your-holiday-spending-1746629506>
 
 这是一年中最美好的时光，也是最昂贵的时光。在旅行、年终聚会和为你爱的人买礼物之间，假期真的会让你的钱包付出代价。你是如何管理你的季节性支出的？
 

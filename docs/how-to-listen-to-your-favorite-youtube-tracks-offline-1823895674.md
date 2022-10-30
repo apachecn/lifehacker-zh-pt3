@@ -1,6 +1,6 @@
 # 如何离线收听你最喜欢的 YouTube 歌曲
 
-> 原文:[https://life hacker . com/how-to-listen-to-your favorite-YouTube-tracks-offline-1823895674](https://lifehacker.com/how-to-listen-to-your-favorite-youtube-tracks-offline-1823895674)
+> 原文：<https://lifehacker.com/how-to-listen-to-your-favorite-youtube-tracks-offline-1823895674>
 
 百老汇超级巨星林·曼努尔·米兰达和本·普拉特今天早上给戏剧爱好者们投下了一颗炸弹，他们将两首总是售罄的音乐剧中的歌曲重新混合成一首可爱的二重唱，你可以在许多不同的在线服务上免费购买或播放，如 [YouTube](https://www.youtube.com/watch?v=2aQykuIaJVI) 。
 

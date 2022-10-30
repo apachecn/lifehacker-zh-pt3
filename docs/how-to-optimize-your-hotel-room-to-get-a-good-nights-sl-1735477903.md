@@ -1,6 +1,6 @@
 # 如何优化您的酒店房间，让您睡个好觉
 
-> 原文:[https://life hacker . com/how-to-optimize-your-hotel-room-to-get-a good-nights-sl-1735477903](https://lifehacker.com/how-to-optimize-your-hotel-room-to-get-a-good-nights-sl-1735477903)
+> 原文：<https://lifehacker.com/how-to-optimize-your-hotel-room-to-get-a-good-nights-sl-1735477903>
 
 在旅馆睡个好觉可能会时好时坏。有时会有意想不到的噪音，或者空调坏了，你不得不在酒店房间里临时修理一下，才能睡个好觉，正如旅游作家大卫·法利在最近一次曼谷之行中发现的那样。
 

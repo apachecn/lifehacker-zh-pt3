@@ -1,6 +1,6 @@
 # 如何将鸡尾酒与你最喜欢的恐怖电影搭配
 
-> 原文:[https://life hacker . com/how-to-pair-cocktails-with-your-favorite-terror-movies-1819420103](https://lifehacker.com/how-to-pair-cocktails-with-your-favorite-horror-movies-1819420103)
+> 原文：<https://lifehacker.com/how-to-pair-cocktails-with-your-favorite-horror-movies-1819420103>
 
 万圣节是最好的节日；这是事实。孩子们可以打扮成奴才或冰冻人或其他什么，在外面呆到很晚，除非他们的邻居分发牙膏，这种行为不知何故不会受到法律的惩罚，否则他们会吃大量的糖果。成年人可以做到以上所有的*和*一边看恐怖片一边喝醉，这是我比较喜欢的观察神圣日的方式。
 

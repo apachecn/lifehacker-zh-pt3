@@ -1,6 +1,6 @@
 # 体贴的主人礼物不是酒或蜡烛
 
-> 原文:[https://life hacker . com/thoughten-host-gifts-the-parent-wine-or-candles-1820615613](https://lifehacker.com/thoughtful-host-gifts-that-arent-wine-or-candles-1820615613)
+> 原文：<https://lifehacker.com/thoughtful-host-gifts-that-arent-wine-or-candles-1820615613>
 
 如果你不主持感恩节，你很可能会参加感恩节，这意味着一些非常好的人打开了他们的家，邀请了许多人。这个人应该得到礼物。
 

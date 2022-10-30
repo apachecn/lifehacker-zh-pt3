@@ -1,6 +1,6 @@
 # 如何直接从研磨机中测量胡椒
 
-> 原文:[https://life hacker . com/how-to-measure-pepper-strand-from-the-grinder-1820994970](https://lifehacker.com/how-to-measure-pepper-straight-from-the-grinder-1820994970)
+> 原文：<https://lifehacker.com/how-to-measure-pepper-straight-from-the-grinder-1820994970>
 
 直到最近，我从未测量过新鲜研磨的胡椒。如果一个食谱需要半茶匙，我会简单地在盘子上研磨浆果，直到我认为我已经“足够了”，这仅仅是基于我的鼻子和我那天感觉有多刺鼻，因为没有优雅的方法来用研磨机上的茶匙来测量它。但是，如果你花时间做一些测量，只要一次，你就能在任何食谱中分配所需的量，不需要量勺。
 

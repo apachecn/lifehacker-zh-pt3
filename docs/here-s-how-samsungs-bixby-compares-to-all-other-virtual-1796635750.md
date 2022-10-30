@@ -1,6 +1,6 @@
 # 以下是三星的 Bixby 与所有其他虚拟助手的比较
 
-> 原文:[https://life hacker . com/here-s-how-samsungs-bix by-compare-to-all-other-virtual-1796635750](https://lifehacker.com/here-s-how-samsungs-bixby-compares-to-all-other-virtual-1796635750)
+> 原文：<https://lifehacker.com/here-s-how-samsungs-bixby-compares-to-all-other-virtual-1796635750>
 
 在一个每个智能手机似乎都有自己版本的 Siri 的世界里，三星终于准备好发布自己的全功能人工智能虚拟助手。
 

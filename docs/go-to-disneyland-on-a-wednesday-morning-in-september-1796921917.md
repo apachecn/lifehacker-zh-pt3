@@ -1,6 +1,6 @@
 # 九月的一个星期三早上去迪斯尼乐园
 
-> 原文:[https://life hacker . com/go-to-disneyland-on-a-星期三上午-1796921917](https://lifehacker.com/go-to-disneyland-on-a-wednesday-morning-in-september-1796921917)
+> 原文：<https://lifehacker.com/go-to-disneyland-on-a-wednesday-morning-in-september-1796921917>
 
 当你在 7 月的一个闷热的周六排队等候太空山两个半小时，吃着米老鼠形状的椒盐卷饼时，地球上最幸福的地方就不那么幸福了。下一次，通过分析线数据来避开主题公园的人群。
 

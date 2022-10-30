@@ -1,6 +1,6 @@
 # 在你 30 多岁和 40 多岁的时候，关于金钱应该知道些什么
 
-> 原文:[https://life hacker . com/30 多岁和 40 多岁的人知道多少钱-1828355989](https://lifehacker.com/what-to-know-about-money-in-your-late-30s-and-40s-1828355989)
+> 原文：<https://lifehacker.com/what-to-know-about-money-in-your-late-30s-and-40s-1828355989>
 
 你的 20 多岁已经过去了，现在你有了配偶、孩子，甚至可能有了一个值得炫耀的家。理想情况下，你已经 [为退休](https://twocents.lifehacker.com/how-much-should-you-have-saved-at-every-age-1821498621) 存了一点钱，你有一个为你工作的 [债务偿还计划](https://twocents.lifehacker.com/what-20-somethings-need-to-know-about-getting-their-fin-1826004711) ，这些年来你一直在增加你的储蓄以 [完成你的财务目标](https://twocents.lifehacker.com/whats-your-2018-money-goal-1821064068) 。你很舒服，或者至少正在达到这个目标，但是你仍然想确保你没有从你的财务生活中错过任何东西。还有很多要学的。
 

@@ -1,6 +1,6 @@
 # 五种易于制作的美味、可食用的礼物
 
-> 原文:[https://life hacker . com/five-tasty-可食-易做礼物-1789759456](https://lifehacker.com/five-tasty-edible-gifts-that-are-easy-to-make-1789759456)
+> 原文：<https://lifehacker.com/five-tasty-edible-gifts-that-are-easy-to-make-1789759456>
 
 一个好的美食礼物不需要是一个昂贵的美食礼品篮，但它应该是周到的，美味的，有点意想不到的。这些可吃可喝的礼物是经过深思熟虑的和可定制的，会让你的礼物在枯燥的水果蛋糕中脱颖而出。
 

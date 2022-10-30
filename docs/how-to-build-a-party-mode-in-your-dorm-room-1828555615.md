@@ -1,6 +1,6 @@
 # 如何在你的宿舍里营造一种“派对模式”
 
-> 原文:[https://life hacker . com/how-to-build-a-party-mode-in-your-dorf-room-1828555615](https://lifehacker.com/how-to-build-a-party-mode-in-your-dorm-room-1828555615)
+> 原文：<https://lifehacker.com/how-to-build-a-party-mode-in-your-dorm-room-1828555615>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Xc5kVtzqzig&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Xc5kVtzqzig&start=0) 
 

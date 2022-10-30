@@ -1,6 +1,6 @@
 # 这是你快乐需要的朋友数量
 
-> 原文:[https://life hacker . com/this-is-how-many-friends-you-need-to-happy-1823425885](https://lifehacker.com/this-is-how-many-friends-you-need-to-be-happy-1823425885)
+> 原文：<https://lifehacker.com/this-is-how-many-friends-you-need-to-be-happy-1823425885>
 
 朋友让你快乐、健康，当大雨倾盆时，他们会在你身边。但是你需要多少呢？事实证明,《老友记》已经搞清楚了所有的科学原理。
 

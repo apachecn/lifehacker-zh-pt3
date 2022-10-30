@@ -1,6 +1,6 @@
 # 口袋大小书写和素描袋
 
-> 原文:[https://life hacker . com/the-pocket-size-write-and-sketch-bag-1766162006](https://lifehacker.com/the-pocket-sized-write-and-sketch-bag-1766162006)
+> 原文：<https://lifehacker.com/the-pocket-sized-write-and-sketch-bag-1766162006>
 
 通常，你并不需要一直带着一个全尺寸的包。《每日随身携带》的读者泰勒·史密斯就是这样，他把所有需要的东西都装进了一个小小的笔记本封面。
 

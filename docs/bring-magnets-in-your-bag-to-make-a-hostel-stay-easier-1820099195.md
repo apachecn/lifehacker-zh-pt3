@@ -1,6 +1,6 @@
 # 在你的包里带上磁铁，让你在宿舍住得更轻松
 
-> 原文:[https://life hacker . com/bring-magnets-in-your-bag-make-a-hostel-stay-easy-1820099195](https://lifehacker.com/bring-magnets-in-your-bag-to-make-a-hostel-stay-easier-1820099195)
+> 原文：<https://lifehacker.com/bring-magnets-in-your-bag-to-make-a-hostel-stay-easier-1820099195>
 
 当你想增加旅行预算，并且不介意与陌生人(他们甚至可能成为你的朋友)合住时，旅馆是一个便宜的选择。不利的一面是，如果你想把衣服或毛巾挂起来晾干，你就要和宿舍里的其他人争夺相同的晾晒点。在你的包里放几块小磁铁，这个问题就解决了！
 

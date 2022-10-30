@@ -1,6 +1,6 @@
 # Trtl 枕头是需要颈部支撑的人的完美旅行枕头
 
-> 原文:[https://life hacker . com/the-trtl-pillow-is-a-perfect-travel-pillow-for-people-w-1787189844](https://lifehacker.com/the-trtl-pillow-is-a-perfect-travel-pillow-for-people-w-1787189844)
+> 原文：<https://lifehacker.com/the-trtl-pillow-is-a-perfect-travel-pillow-for-people-w-1787189844>
 
 为了让我能坐直着睡觉，我把脖子歪向一边，让它垂在那里。然后我想知道为什么我醒来时脖子会痛。这一切都过去了，感谢 Trtl 枕头，我从来不知道我需要的最好的旅行枕头。
 

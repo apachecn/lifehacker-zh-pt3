@@ -1,6 +1,6 @@
 # 便携式电源摊牌:电池组与电池盒
 
-> 原文:[https://life hacker . com/Sunday-toddle-battery-packs-vs-battery-cases-1796936283](https://lifehacker.com/sunday-showdown-battery-packs-vs-battery-cases-1796936283)
+> 原文：<https://lifehacker.com/sunday-showdown-battery-packs-vs-battery-cases-1796936283>
 
 无论你如何划分，在你的身上保持一些额外的电池能量可以创造奇迹，影响你如何在世界上移动。如果你想随身携带一些集中电力以备不时之需，你有两种选择:
 

@@ -1,6 +1,6 @@
 # 在孩子上学的最后一天，在门口贴上“终点线”
 
-> 原文:[https://life hacker . com/tape-a-finish-line-to-your-doodle-on-your-kids-last-da-1826468542](https://lifehacker.com/tape-a-finish-line-to-your-doorway-on-your-kids-last-da-1826468542)
+> 原文：<https://lifehacker.com/tape-a-finish-line-to-your-doorway-on-your-kids-last-da-1826468542>
 
 好了，家长们，又是一个学年结束了。在你的孩子回家的最后一天，这里有一件有趣的事情要做:在你的门口有一条“终点线”让他们跑过。这可以是彩带和气球的形式，一个“欢迎来到夏天”的横幅，或者是一群拿着水枪的家庭成员。
 

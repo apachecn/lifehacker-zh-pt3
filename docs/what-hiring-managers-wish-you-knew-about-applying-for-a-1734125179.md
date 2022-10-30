@@ -1,6 +1,6 @@
 # 招聘经理希望你了解哪些求职知识
 
-> 原文:[https://life hacker . com/what-hiring-managers-wish-you-know-on-a-applying-a-1734125179](https://lifehacker.com/what-hiring-managers-wish-you-knew-about-applying-for-a-1734125179)
+> 原文：<https://lifehacker.com/what-hiring-managers-wish-you-knew-about-applying-for-a-1734125179>
 
 招聘经理在决定面试哪些求职者、工作机会的细节以及雇佣谁的过程中起着关键的作用。因此，如果我们应该向任何人学习求职技巧，那就是他们。
 

@@ -1,6 +1,6 @@
 # 黄油咖啡减肥法防弹吗？
 
-> 原文:[https://the take out . com/is-the-butter-coffee-diet-防弹-1821890480](https://thetakeout.com/is-the-butter-coffee-diet-bulletproof-1821890480)
+> 原文：<https://thetakeout.com/is-the-butter-coffee-diet-bulletproof-1821890480>
 
 这个季节: [*美国新闻&世界报道*](https://health.usnews.com/best-diet/best-diets-overall) 刚刚公布了 40 种最佳节食方法，正好赶上那些新年节食者们寻找他们假日过度放纵的最快解药。这是一个每年都会出现的群体，就像时钟一样(参见:年度*人物*封面标题吹捧那些减掉了“一半身材”的人，以及*美国周刊*的“有效饮食！”)但有点令人惊讶的是，今年你可能听到最多的饮食趋势之一徘徊在美国海军 WR 清单的底部:禁食。
 

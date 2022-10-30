@@ -1,6 +1,6 @@
 # 如何让乔氏兰花存活——或者让它再次绽放
 
-> 原文:[https://life hacker . com/how-to-keep-a-trader-joes-orchid-alive-or-get-it-to-blo-1796796707](https://lifehacker.com/how-to-keep-a-trader-joes-orchid-alive-or-get-it-to-blo-1796796707)
+> 原文：<https://lifehacker.com/how-to-keep-a-trader-joes-orchid-alive-or-get-it-to-blo-1796796707>
 
 我在纽约生活时见过一些疯狂的事情:一个男人大白天在市中心的蓝色城市邮箱里撒尿，而行人假装没有注意到；一列地铁列车被迫调转方向，缓缓驶进前一站，而列车员和司机在乘客面前大声恐慌；三辆劳斯莱斯随意地停在街上，不怕被偷。但我见过的最疯狂的事情是花商以每朵 85 美元的价格出售简单的白色蛾兰花。
 

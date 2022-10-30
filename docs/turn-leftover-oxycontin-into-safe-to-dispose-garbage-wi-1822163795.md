@@ -1,6 +1,6 @@
 # 用这种免费的粉末把剩余的奥施康定变成可以安全处理的垃圾
 
-> 原文:[https://life hacker . com/turn-left-oxycontin-into-safe-to-dispose-garbage-wi-1822163795](https://lifehacker.com/turn-leftover-oxycontin-into-safe-to-dispose-garbage-wi-1822163795)
+> 原文：<https://lifehacker.com/turn-leftover-oxycontin-into-safe-to-dispose-garbage-wi-1822163795>
 
 阿片类药物处方如此普遍——直到最近，用量如此之大——以至于我们很多人的药箱里都有一两瓶没用完的药物。沃尔玛的药店 [现在将免费分发一包粉末](https://vitals.lifehacker.com/how-to-use-prescription-painkillers-without-getting-add-1766834234) ，里面有每一种阿片类药物处方，可以把那些药片变成垃圾，这样你就不会把它们留在那里“以防万一”
 

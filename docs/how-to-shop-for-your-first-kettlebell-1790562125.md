@@ -1,6 +1,6 @@
 # 如何选购你的第一个壶铃
 
-> 原文:[https://life hacker . com/how-to-shop for your ' s first kettle bell-1790562125](https://lifehacker.com/how-to-shop-for-your-first-kettlebell-1790562125)
+> 原文：<https://lifehacker.com/how-to-shop-for-your-first-kettlebell-1790562125>
 
 如果你不想在健身房争夺壶铃，或者只想在家锻炼，一个精心挑选的壶铃是多功能的，紧凑的，非常划算的。你只需要筛选无数的尺寸、品牌、风格和重量。以下是如何分辨什么是重要的，什么是无用的。
 

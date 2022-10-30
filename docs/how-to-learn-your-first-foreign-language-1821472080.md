@@ -1,6 +1,6 @@
 # 如何学习你的第一门外语
 
-> 原文:[https://life hacker . com/how-to-learn your ' s first-foreign-language-1821472080](https://lifehacker.com/how-to-learn-your-first-foreign-language-1821472080)
+> 原文：<https://lifehacker.com/how-to-learn-your-first-foreign-language-1821472080>
 
 你在高中学了两年西班牙语，并不意味着你还知道怎么问洗手间在哪里。事实上，如果你记不住这门语言的一个单词，这可能是开动你的大脑，在你的词汇中添加一些新的、外国的单词和短语的好时机。为了在 2018 年认真学习一门新语言，你需要做一些准备工作，特别是如果你从未试图学习如何说“你真的应该投资购买双层卫生纸。”我们已经做了调查，收集了最好的建议来帮助你开始新的语言学习。
 

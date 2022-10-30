@@ -1,6 +1,6 @@
 # 苹果和英特尔到底是怎么回事？投机指南
 
-> 原文:[https://gizmodo . com/what ' s really-go-on-apple-and-Intel-a-guide-to-1824292444](https://gizmodo.com/whats-really-going-on-with-apple-and-intel-a-guide-to-1824292444)
+> 原文：<https://gizmodo.com/whats-really-going-on-with-apple-and-intel-a-guide-to-1824292444>
 
 周一彭博新闻 [投下一枚重磅炸弹](https://www.bloomberg.com/news/articles/2018-04-02/apple-is-said-to-plan-move-from-intel-to-own-mac-chips-from-2020?utm_campaign=socialflow-organic&utm_content=business&utm_source=twitter&utm_medium=social&cmpid=socialflow-twitter-business) 报道。到 2020 年，它声称苹果将停止在其电脑中使用英特尔 CPU。想象一下:世界第三大个人电脑制造商有一天可能会超越最大的电脑芯片制造商。
 

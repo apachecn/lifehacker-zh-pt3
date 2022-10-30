@@ -1,6 +1,6 @@
 # 如何消除信用报告上的不良记录
 
-> 原文:[https://life hacker . com/how-to-get-off-bad-marks-on-your-credit-report-1824298301](https://lifehacker.com/how-to-get-rid-of-bad-marks-on-your-credit-report-1824298301)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-bad-marks-on-your-credit-report-1824298301>
 
 根据学生贷款再融资公司 LendEU2017 年的一份 [分析，信用报告中的错误非常普遍，是消费者金融保护局网站上的头号投诉。尽管你可能认为它们很讨厌，但这些错误会给你的财务生活带来严重后果。](https://lendedu.com/blog/credit-reporting-complaints) 
 

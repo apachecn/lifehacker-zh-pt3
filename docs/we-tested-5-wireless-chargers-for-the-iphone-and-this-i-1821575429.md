@@ -1,6 +1,6 @@
 # 我们测试了 5 款 iPhone 无线充电器，这款是最好的
 
-> 原文:[https://gizmodo . com/we-tested-5-wireless-chargers-for-the-iphone-and-this-I-1821575429](https://gizmodo.com/we-tested-5-wireless-chargers-for-the-iphone-and-this-i-1821575429)
+> 原文：<https://gizmodo.com/we-tested-5-wireless-chargers-for-the-iphone-and-this-i-1821575429>
 
 几周前，我 [测试了苹果几乎所有的有线充电解决方案，以找出哪一个是最好的](https://gizmodo.com/we-tested-iphone-fast-charging-and-you-should-definitel-1820483924) 。任务完成了，对吧？不完全是，因为今年的 iPhone 是苹果第一批内置无线充电的手机！然后，让事情更加混乱的是，苹果 iOS 11.2 的最新软件更新出现了，并改变了苹果 iPhone 的无线吸电量。因此，为了弄清楚到底发生了什么，我们测试了一系列价格从 12 美元到 90 美元的无线充电器，看看你花的钱真正得到了多少无线充电。别担心，在这个过程中，我们找到了一个比其他人都优秀的人。
 

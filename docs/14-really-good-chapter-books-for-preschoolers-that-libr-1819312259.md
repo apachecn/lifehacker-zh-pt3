@@ -1,6 +1,6 @@
 # 图书管理员一直推荐的 14 本非常好的学龄前儿童章节书
 
-> 原文:[https://life hacker . com/14-really-good-chapter-books-for-学龄前儿童-that-libr-1819312259](https://lifehacker.com/14-really-good-chapter-books-for-preschoolers-that-libr-1819312259)
+> 原文：<https://lifehacker.com/14-really-good-chapter-books-for-preschoolers-that-libr-1819312259>
 
 总有一天，这位长期受折磨的家长再也看不到*那辆蓝色小卡车*了。或者是*我的第一本农书*，它令人不安地暗示将会有更多的农书问世。甚至还有 Sal 的蓝莓，这是我学龄前儿童的最爱，但我现在已经读了很多遍，我想撕掉书页，边啜泣边塞进嘴里。
 

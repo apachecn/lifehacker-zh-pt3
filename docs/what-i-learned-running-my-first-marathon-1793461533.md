@@ -1,6 +1,6 @@
 # 我第一次跑马拉松学到了什么
 
-> 原文:[https://life hacker . com/what-I-learned-running-my-first-marathon-1793461533](https://lifehacker.com/what-i-learned-running-my-first-marathon-1793461533)
+> 原文：<https://lifehacker.com/what-i-learned-running-my-first-marathon-1793461533>
 
 上周日，我完成了洛杉矶马拉松。这是一场我和我自己的身体之间的 26.2 英里的艰苦战斗，我只能总结为我克服的最艰难的挑战。如果你想自己跑一次，这里有一些我学到的东西，可能会帮助你坚持到底。
 

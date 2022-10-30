@@ -1,6 +1,6 @@
 # 你可以测量你的身体脂肪，但没有一种方法是真正准确的
 
-> 原文:[https://life hacker . com/you-can-measure-your-body-fat-but-no-method-is-a-true-a-1728733802](https://lifehacker.com/you-can-measure-your-body-fat-but-no-method-is-truly-a-1728733802)
+> 原文：<https://lifehacker.com/you-can-measure-your-body-fat-but-no-method-is-truly-a-1728733802>
 
 如果你说你想减肥，你可能会用踩秤来衡量进展。但实际上，你想要减掉的是*脂肪*，而 [体重秤上的数字可能并不能反映出](http://vitals.lifehacker.com/f-k-the-scale-1683801679) 。有很多方法可以测量你的身体脂肪百分比，但它们都有不同程度的准确性。
 

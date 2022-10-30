@@ -1,6 +1,6 @@
 # 你最喜欢哪种沙拉？
 
-> 原文:[https://life hacker . com/whats-your favor-kind-of-salad-1796380999](https://lifehacker.com/whats-your-favorite-kind-of-salad-1796380999)
+> 原文：<https://lifehacker.com/whats-your-favorite-kind-of-salad-1796380999>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，每周一次的公开讨论，在这里你可以分享你所有关于食物的想法、建议、食谱和观点。本周我想谈谈有时被嘲笑但通常美味的一碗风味和质地互补的食物:沙拉。
 

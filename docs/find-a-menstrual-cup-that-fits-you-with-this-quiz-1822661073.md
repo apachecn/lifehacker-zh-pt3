@@ -1,6 +1,6 @@
 # 根据这个测试找到一个适合你的月经杯
 
-> 原文:[https://life hacker . com/find-a-measurement-cup-fit-you-this-quick-1822661073](https://lifehacker.com/find-a-menstrual-cup-that-fits-you-with-this-quiz-1822661073)
+> 原文：<https://lifehacker.com/find-a-menstrual-cup-that-fits-you-with-this-quiz-1822661073>
 
 当我第一次听说月经杯的时候，我以为只有两种尺寸:1 号和 2 号。(好几个品牌，包括我第一次尝试的 Diva Cup，都只提供两个，仅此而已。)但是有各种各样的形状和大小，其中一种可能非常适合你。
 

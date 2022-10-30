@@ -1,6 +1,6 @@
 # 洗碗时给手保湿
 
-> 原文:[https://life hacker . com/moisture-your-hands-while doing-1821750915](https://lifehacker.com/moisturize-your-hands-while-doing-dishes-1821750915)
+> 原文：<https://lifehacker.com/moisturize-your-hands-while-doing-dishes-1821750915>
 
 我的工作 50%是写作，25%是做饭，10%是吃饭，15%是洗笨碗。我讨厌洗碗，因为它很无聊，也因为它会让我的手看起来很悲伤。为了对抗悲伤的洗碗手，我发明了悲伤洗碗手美甲，你只需要一些便宜的洗碗手套和乳液就能享受它的神奇。
 

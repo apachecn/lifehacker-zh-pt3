@@ -1,6 +1,6 @@
 # 如何从任何使用 VNC 的电脑上控制你的树莓派
 
-> 原文:[https://life hacker . com/how-to-control-your-raspberry-pi-from-any-computer-usin-1788592777](https://lifehacker.com/how-to-control-your-raspberry-pi-from-any-computer-usin-1788592777)
+> 原文：<https://lifehacker.com/how-to-control-your-raspberry-pi-from-any-computer-usin-1788592777>
 
 [Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
 

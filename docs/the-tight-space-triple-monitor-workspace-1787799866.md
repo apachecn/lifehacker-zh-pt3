@@ -1,6 +1,6 @@
 # 紧凑的三显示器工作空间
 
-> 原文:[https://life hacker . com/the-tight-space-triple-monitor-workspace-1787799866](https://lifehacker.com/the-tight-space-triple-monitor-workspace-1787799866)
+> 原文：<https://lifehacker.com/the-tight-space-triple-monitor-workspace-1787799866>
 
 我们以前在小空间里展示过工作空间，但是 reader Edrei 的空间非常小，但是同时里面有很多很棒的设备。三个显示器，一个可调节的鼠标垫和书写表面，甚至一些偏置和键盘照明——不知何故都在那里。这里还有一些照片。
 

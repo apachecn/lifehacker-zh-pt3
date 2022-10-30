@@ -1,6 +1,6 @@
 # 这个适合拍照的背包带来了基本的东西
 
-> 原文:[https://life hacker . com/this-photo-friendly-backpack-brings-basics-1819136287](https://lifehacker.com/this-photo-friendly-backpack-brings-the-basics-1819136287)
+> 原文：<https://lifehacker.com/this-photo-friendly-backpack-brings-the-basics-1819136287>
 
 当你是一名街头摄影师时，你的舒适度取决于你随身携带的物品数量。不带包旅行意味着你肯定可以无牵无挂地四处走动——但是当你的电池到达红色区时，你的探索时间将会缩短。相反，你不想带太多东西，到午餐时间累得大汗淋漓。你可以像摄影师町田克志一样，把两者区别开来。町田经营着一个博客，在那里他记录了东京街头的日常生活。这是他背包里的东西:
 

@@ -1,6 +1,6 @@
 # 2018 年 8 月 20 日这一周，网飞发生了什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-August-1828186312](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1828186312)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1828186312>
 
 这是一个喜怒无常的青少年爱情故事，有着超自然的转折，主角盖·皮尔斯说出了这样的台词:“你是一个身处可怕新世界的年轻女人。我觉得你只是需要有人陪你走一走"？这会是今年夏天对奇怪事物的回答吗？让我们希望*无辜者*(8 月 24 日，星期五)的娱乐性甚至只有一半——如果是的话， 将赢得本周冠军。
 

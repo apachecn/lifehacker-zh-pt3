@@ -1,6 +1,6 @@
 # 如何不真正尝试就跑得更快
 
-> 原文:[https://life hacker . com/how-to-run-fast-without-really-trying-1795101207](https://lifehacker.com/how-to-run-faster-without-really-trying-1795101207)
+> 原文：<https://lifehacker.com/how-to-run-faster-without-really-trying-1795101207>
 
 这个周末，耐克举办了一场活动，他们宣布三名运动员将参加世界上最快的马拉松比赛。诚然，他们是了不起的运动员，但真正的新闻是耐克如何控制每一种可能的情况，给跑步者哪怕是最微小的速度提升。有些事情你可以自己做。
 

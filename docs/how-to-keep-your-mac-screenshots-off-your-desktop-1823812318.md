@@ -1,6 +1,6 @@
 # 如何让你的 Mac 屏幕截图远离你的桌面
 
-> 原文:[https://life hacker . com/how-to-keep-your-MAC-screens-off-your-desktop-1823812318](https://lifehacker.com/how-to-keep-your-mac-screenshots-off-your-desktop-1823812318)
+> 原文：<https://lifehacker.com/how-to-keep-your-mac-screenshots-off-your-desktop-1823812318>
 
 昨天我们告诉你如何 [清理你杂乱的 Mac 桌面](https://lifehacker.com/declutter-your-mac-desktop-1823798014) 。但是，如果你只是想让你的 Mac 停止将你的截图保存到你的桌面上，评论员 jgs 有一个解决方案。只需在 Mac 的终端应用程序中输入几个命令，你的电脑就会在不同的文件夹中创建这些图像。
 

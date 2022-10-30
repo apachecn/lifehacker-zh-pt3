@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:厨师们讨厌我的全熟汉堡要求吗？
 
-> 原文:[https://the take out . com/do-chefs-hate-my-good-done-burger-request-1827030289](https://thetakeout.com/do-chefs-hate-my-well-done-burger-request-1827030289)
+> 原文：<https://thetakeout.com/do-chefs-hate-my-well-done-burger-request-1827030289>
 
 > 嘿咸，我住在一个美食友好的城市，允许我爱汉堡的心(哲学上，而不是身体上)几乎每周都尝试一个新的汉堡店。我不是特别挑剔，喜欢尝试特色汉堡。如果有一件东西我不是特别喜欢，我通常会尝试一下，看看他们是否能改变我的想法。也就是说，我确实有一个一贯的要求，我想知道我会因此受到多少评价，或者这是否会被认为是粗鲁的。
 > 

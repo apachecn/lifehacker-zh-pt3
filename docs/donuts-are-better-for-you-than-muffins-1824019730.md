@@ -1,6 +1,6 @@
 # 油炸圈饼比松饼对你更好
 
-> 原文:[https://life hacker . com/donuts-are-better-to-you-than-muffins-1824019730](https://lifehacker.com/donuts-are-better-for-you-than-muffins-1824019730)
+> 原文：<https://lifehacker.com/donuts-are-better-for-you-than-muffins-1824019730>
 
 商店买的松饼很大，富含糖分和卡路里。这让它们成为了一道甜点，一道美食，一种享受——在这种情况下，你还不如吃点甜甜圈之类的美味。额外收获:无论如何，甜甜圈可能含糖量更低。
 

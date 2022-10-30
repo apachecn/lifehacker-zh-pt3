@@ -1,6 +1,6 @@
 # 让小孩子可怕地拼写东西
 
-> 原文:[https://life hacker . com/let-little-kids-spell-things-terribly-1818824468](https://lifehacker.com/let-little-kids-spell-things-terribly-1818824468)
+> 原文：<https://lifehacker.com/let-little-kids-spell-things-terribly-1818824468>
 
 小孩子会拼写最不可思议的事情，我是正确的吗？作为家长，你可能会有些担心，甚至可能会忍不住拿出红色的教师笔，但要知道，“发明拼写”是完全正常的，甚至可能是早期阅读成功的关键。
 

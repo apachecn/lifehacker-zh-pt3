@@ -1,6 +1,6 @@
 # 提高记忆力和记住任何事情的 10 大诀窍
 
-> 原文:[https://life hacker . com/top-10-tricks-boost-your memory-and-remember-any thin-1748770380](https://lifehacker.com/top-10-tricks-to-boost-your-memory-and-remember-anythin-1748770380)
+> 原文：<https://lifehacker.com/top-10-tricks-to-boost-your-memory-and-remember-anythin-1748770380>
 
 记住一些事情，比如名字、日期和其他细节是一种技能——一种你可以磨砺和磨练的技能。这里有十种提高记忆力的技巧，每个人都可以学习。
 

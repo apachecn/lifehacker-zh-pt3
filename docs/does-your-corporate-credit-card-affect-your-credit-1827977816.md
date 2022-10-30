@@ -1,6 +1,6 @@
 # 你的公司信用卡影响你的信用吗？
 
-> 原文:[https://life hacker . com/do-your-corporate-credit-affect-your-credit-1827977816](https://lifehacker.com/does-your-corporate-credit-card-affect-your-credit-1827977816)
+> 原文：<https://lifehacker.com/does-your-corporate-credit-card-affect-your-credit-1827977816>
 
 没有什么特别的原因，在过去的一周左右，一些 Lifehacker 的员工一直在想，他们公司信用卡的逾期付款是否会对他们的个人信用评分产生不利影响。
 

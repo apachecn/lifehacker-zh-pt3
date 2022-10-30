@@ -1,6 +1,6 @@
 # 用这款 Amaro-Heavy 产品庆祝尼格罗尼周
 
-> 原文:[https://life hacker . com/practice-negro ni-week-with-this-amaro-heavy-offing-1826676965](https://lifehacker.com/celebrate-negroni-week-with-this-amaro-heavy-offering-1826676965)
+> 原文：<https://lifehacker.com/celebrate-negroni-week-with-this-amaro-heavy-offering-1826676965>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。这是尼格罗尼周，这意味着每个鸡尾酒吧和博客(包括我自己)都在对经典的苦味饮料进行“旋转”。
 

@@ -1,6 +1,6 @@
 # 如何度过充满挑战的假期
 
-> 原文:[https://life hacker . com/how-to-get-through-a-challenge-holiday-season-1821564038](https://lifehacker.com/how-to-get-through-a-challenging-holiday-season-1821564038)
+> 原文：<https://lifehacker.com/how-to-get-through-a-challenging-holiday-season-1821564038>
 
 假期可能会很难熬。这个世界告诉你，“要快乐”，这让缺乏快乐变得格外困难。我们问你如何处理家庭冲突、悲伤、孤独和不合时宜的生活危机。这是你最好的建议:
 

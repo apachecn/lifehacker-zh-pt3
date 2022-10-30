@@ -1,6 +1,6 @@
 # 不要害怕问愚蠢的问题
 
-> 原文:[https://life hacker . com/don ' t-be-fear-to-questions-1826008775](https://lifehacker.com/dont-be-afraid-to-ask-dumb-questions-1826008775)
+> 原文：<https://lifehacker.com/dont-be-afraid-to-ask-dumb-questions-1826008775>
 
 无论是热门的新电影，大型体育赛事，还是每个人都在看的电视节目，在饮水机聊天或聚会交谈中被发现没有乐趣。如果你想成为这一切的一部分，放下你的骄傲，问一些愚蠢的问题。
 

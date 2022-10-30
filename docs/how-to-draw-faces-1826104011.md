@@ -1,6 +1,6 @@
 # 如何画脸
 
-> 原文:[https://lifehacker.com/how-to-draw-faces-1826104011](https://lifehacker.com/how-to-draw-faces-1826104011)
+> 原文：<https://lifehacker.com/how-to-draw-faces-1826104011>
 
 *纽约客*漫画家杰森·亚当·卡赞斯坦已经教过你如何做“手势绘画”，一种最基本的艺术技巧。在上面的新视频中，他专注于面部，展示了“画出你所看到的”的原则如何帮助你捕捉某人的识别特征。
 

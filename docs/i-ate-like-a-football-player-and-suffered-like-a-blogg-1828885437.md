@@ -1,6 +1,6 @@
 # 我吃得像个足球运动员，吃得像个博主
 
-> 原文:[https://deadspin . com/I-ate-like-a-football-player-and-beaned-like-a-blogg-1828885437](https://deadspin.com/i-ate-like-a-football-player-and-suffered-like-a-blogg-1828885437)
+> 原文：<https://deadspin.com/i-ate-like-a-football-player-and-suffered-like-a-blogg-1828885437>
 
 本周，Deadspin 和 Jezebel 交换节拍来庆祝美国最危险和最有争议的娱乐活动:足球和时尚，这两项运动的共同点远远超过你的想象。
 

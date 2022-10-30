@@ -1,6 +1,6 @@
 # 十大绝对紧急的节日礼物创意
 
-> 原文:[https://life hacker . com/top-10-absolute-last-minute-holiday-gift-ideas-1790278286](https://lifehacker.com/top-10-absolutely-last-minute-holiday-gift-ideas-1790278286)
+> 原文：<https://lifehacker.com/top-10-absolutely-last-minute-holiday-gift-ideas-1790278286>
 
 剩下的时间不多了——事实上是几个小时。也许你忘记了什么，或者你的清单上有一个惊喜礼物是你几天前不知道的。不管怎样，以下是如何在今年从你的帽子里变出一只兔子，送给他们一些好东西。
 

@@ -1,6 +1,6 @@
 # 吃剩的米饭会让你生病
 
-> 原文:[https://life hacker . com/剩饭能让你恶心 1793530699](https://lifehacker.com/leftover-rice-could-make-you-very-sick-1793530699)
+> 原文：<https://lifehacker.com/leftover-rice-could-make-you-very-sick-1793530699>
 
 在从“1”到“李斯特菌”的范围内，我预计一碗米饭给我带来的胃病数量在“2”左右，但显然，如果储存不当，这种看似无害的谷物会造成很多痛苦。
 

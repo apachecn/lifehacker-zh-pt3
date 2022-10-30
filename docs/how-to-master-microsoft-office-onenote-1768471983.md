@@ -1,6 +1,6 @@
 # 如何掌握 Microsoft Office OneNote
 
-> 原文:[https://life hacker . com/how-to-master-Microsoft-office-onenote-1768471983](https://lifehacker.com/how-to-master-microsoft-office-onenote-1768471983)
+> 原文：<https://lifehacker.com/how-to-master-microsoft-office-onenote-1768471983>
 
 多年来，微软 OneNote 一直是我们最喜欢的笔记应用之一，而且它一直在变得越来越好。这款应用程序可以完全免费地安装在你的 Mac 或 Windows 桌面上，并让你在直观的数字笔记本界面中以任何方式格式化笔记。以下是如何开始使用 OneNote 并让您的笔记更上一层楼。
 

@@ -1,6 +1,6 @@
 # 如何在大规模枪击事件后发现社交媒体上的谎言
 
-> 原文:[https://life hacker . com/how-to-spot-lies-on-social-media-after-a mass-shooting-1819064784](https://lifehacker.com/how-to-spot-lies-on-social-media-after-a-mass-shooting-1819064784)
+> 原文：<https://lifehacker.com/how-to-spot-lies-on-social-media-after-a-mass-shooting-1819064784>
 
 当新闻事件发生时，消息传得很快。即使在拉斯维加斯的全国范围内，还没有上床睡觉的人也很难入睡，因为他们看到死亡人数上升，看到关于发生了什么以及枪手可能是谁的信息不断流出。但是混在真相中的是半真半假的谎言、恶作剧和谎言。
 

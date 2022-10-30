@@ -1,6 +1,6 @@
 # 家装电视主持人的日常包
 
-> 原文:[https://life hacker . com/the-home-improvement-TV-hosts-daily-bag-1741497522](https://lifehacker.com/the-home-improvement-tv-hosts-daily-bag-1741497522)
+> 原文：<https://lifehacker.com/the-home-improvement-tv-hosts-daily-bag-1741497522>
 
 做一名电视主持人可能是一份有趣的工作，这也是为什么《每日电讯报》采访 HGTV 主持人安东尼·卡里诺 谈论他包里的东西。让我们看看里面有什么。
 

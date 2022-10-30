@@ -1,6 +1,6 @@
 # 如何让你的朋友和家人对桌面桌游感兴趣
 
-> 原文:[https://life hacker . com/how-to-get-your-friends and family-interest-table t-1761928255](https://lifehacker.com/how-to-get-your-friends-and-family-interested-in-tablet-1761928255)
+> 原文：<https://lifehacker.com/how-to-get-your-friends-and-family-interested-in-tablet-1761928255>
 
 对于门外汉来说，棋盘游戏的世界可能看起来过于复杂、无聊，或者只适合孩子。你可能更清楚，但如果让常客来游戏之夜对你来说是一件麻烦事，你需要的只是一些聪明的方法来让你的朋友和家人加入进来，并告诉他们这不是真的。
 

@@ -1,6 +1,6 @@
 # 不要被虚拟绑匪诈骗:一位母亲的恐怖经历如何帮助他人
 
-> 原文:[https://www . the root . com/don-t-get-scammed-by-virtual-绑匪-how-1-mom-s-ho-1819118622](https://www.theroot.com/don-t-get-scammed-by-virtual-kidnappers-how-1-mom-s-ho-1819118622)
+> 原文：<https://www.theroot.com/don-t-get-scammed-by-virtual-kidnappers-how-1-mom-s-ho-1819118622>
 
 当人们想到有人被绑架并索要赎金时，大多数人都会想到电影中的场景。一个孩子从街上被带走，然后打电话要钱。但是在这个社交媒体和网络诈骗的时代，绑架有了新的含义。
 

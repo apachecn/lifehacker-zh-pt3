@@ -1,6 +1,6 @@
 # 从苹果的“返校”宣传片中获得免费的 Beats 耳机，即使你不是学生
 
-> 原文:[https://life hacker . com/get-free-beats-headphones-from-apple-back-to-school-pr-1827574533](https://lifehacker.com/get-free-beats-headphones-from-apples-back-to-school-pr-1827574533)
+> 原文：<https://lifehacker.com/get-free-beats-headphones-from-apples-back-to-school-pr-1827574533>
 
 每年，苹果都会推出一个“重返校园”的宣传片，让“符合条件”的客户节省硬件费用，并在大额购买时获得免费的东西，比如一副 Beats 耳机。然而，事实是:每个人都可以从宣传片中受益，学生和非学生都一样。
 

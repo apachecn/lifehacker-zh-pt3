@@ -1,6 +1,6 @@
 # 如何让 Siri 和 Alexa 明白你在说什么
 
-> 原文:[https://life hacker . com/how-to-get-Siri-and-Alexa-understand-you-sayi-1827390413](https://lifehacker.com/how-to-get-siri-and-alexa-to-understand-what-youre-sayi-1827390413)
+> 原文：<https://lifehacker.com/how-to-get-siri-and-alexa-to-understand-what-youre-sayi-1827390413>
 
 如果对 Alexa(或你选择的数字助理)大声说话感觉不自然，你并不孤单。自从 Siri 还活着的时候，我就有了她，但我用一只手就能数清我和她说话的次数。在我的 iPhone 上打开一个应用程序，或者在谷歌上输入一个查询，就能得到我想要的东西，这似乎总是比浏览一系列口头提问，最终得到我想要的答案——或者没有答案——要容易得多。
 

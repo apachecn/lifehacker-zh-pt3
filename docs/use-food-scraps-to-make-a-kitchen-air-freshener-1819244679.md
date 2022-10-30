@@ -1,6 +1,6 @@
 # 用食物残渣制作厨房空气清新剂
 
-> 原文:[https://life hacker . com/use-food-scrapes-to-make-a-a-kitchen-air-classer-1819244679](https://lifehacker.com/use-food-scraps-to-make-a-kitchen-air-freshener-1819244679)
+> 原文：<https://lifehacker.com/use-food-scraps-to-make-a-kitchen-air-freshener-1819244679>
 
 无论你是节俭的，环保的，还是喜欢挑战效率的，都有很多理由节省你的食物残渣。嗯，主要是用来做股票。剩下的用来堆肥。但是你的一些残羹剩饭不仅仅是用来煮汤的——它们也可以成为聪明的空气清新剂的起点。
 

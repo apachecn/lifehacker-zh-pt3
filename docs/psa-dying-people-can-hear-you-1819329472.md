@@ -1,6 +1,6 @@
 # PSA:垂死的人能听到你
 
-> 原文:[https://life hacker . com/PSA-dying-people-can-head-you-1819329472](https://lifehacker.com/psa-dying-people-can-hear-you-1819329472)
+> 原文：<https://lifehacker.com/psa-dying-people-can-hear-you-1819329472>
 
 当你在你关心的人弥留之际去看望他们时，不要被你看到的所迷惑。躺在那里的人可能看起来完全没有意识，但他们可能听到房间里发生的一切。
 

@@ -1,6 +1,6 @@
 # 第二次玩电子游戏会更好
 
-> 原文:[https://kotaku . com/video-games-be-better-the-second-time-you-play-them-1786856653](https://kotaku.com/video-games-are-better-the-second-time-you-play-them-1786856653)
+> 原文：<https://kotaku.com/video-games-are-better-the-second-time-you-play-them-1786856653>
 
 每个人都记得他们第一次玩一个真正好的电子游戏。*半条命*的不断惊喜，或者*最终幻想六*的大戏，或者*孤岛惊魂 2* 的压力与宣泄。虽然这些游戏第一次很好，但第二次肯定会更好。或者第三个。或者第四个。
 

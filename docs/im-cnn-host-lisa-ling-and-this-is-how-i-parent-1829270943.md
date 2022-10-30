@@ -1,6 +1,6 @@
 # 我是 CNN 主持人凌志慧，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-CNN-host-Lisa-ling-and-this-how-I-parent-1829270943](https://lifehacker.com/im-cnn-host-lisa-ling-and-this-is-how-i-parent-1829270943)
+> 原文：<https://lifehacker.com/im-cnn-host-lisa-ling-and-this-is-how-i-parent-1829270943>
 
 *凌志慧是 CNN 调查节目 docuseries 的主持人* [*这是与凌志慧的人生*](http://www.cnn.com/shows/this-is-life-with-lisa-ling) *”在本周末首播的第五季中，她穿越美国，探索性别流动性、屏幕成瘾、监护权之争和复仇等话题。当她不在路上时，她和丈夫以及两个女儿杰特和雷在洛杉矶的家中。我和她谈了她的父母。*
 

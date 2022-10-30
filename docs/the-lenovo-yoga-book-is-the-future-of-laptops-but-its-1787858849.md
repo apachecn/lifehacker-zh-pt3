@@ -1,6 +1,6 @@
 # 联想 Yoga Book 是笔记本电脑的未来，但它缺少一个操作系统
 
-> 原文:[https://gizmodo . com/the-Lenovo-yoga-book-is-the-future-of-laptops-but-its 1787858849](https://gizmodo.com/the-lenovo-yoga-book-is-the-future-of-laptops-but-its-1787858849)
+> 原文：<https://gizmodo.com/the-lenovo-yoga-book-is-the-future-of-laptops-but-its-1787858849>
 
 联想的新 Yoga Book 吸引了当今其他平板电脑或笔记本电脑无法比拟的眼球。人们并不总是确定我在看什么漫画或者记什么笔记，但是他们知道这很有趣，很小，很酷。凭借其电容式触摸键盘，按下按钮即可变成绘图板，Yoga Book 绝对是笔记本电脑和平板电脑以及二者之间模糊空间的未来。但联想有史以来最薄的笔记本电脑也有一个主要问题，即它只有 Windows 和 Android 版本。这两款操作系统都没有为联想的未来做好准备。
 

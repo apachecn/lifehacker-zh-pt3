@@ -1,6 +1,6 @@
 # 停止抵制英语语言的变化
 
-> 原文:[https://life hacker . com/language-is-unlogic-and-resistance-is-purify-1820145969](https://lifehacker.com/language-is-illogical-and-resistance-is-futile-1820145969)
+> 原文：<https://lifehacker.com/language-is-illogical-and-resistance-is-futile-1820145969>
 
 语法规定主义者——他们相信规则应该被遵守；“描述主义者”相信正确的语法是有用的——喜欢诉诸逻辑。如果“他不在乎”，那么他可能*不在乎——你必须说“他不可能”！*它是我们抵御字面意思-象征意义-现在的上升趋势的岩石。好吧，也许是时候放松这种控制了，因为语言的进化力量根本不在乎。
 

@@ -1,6 +1,6 @@
 # 来自我们读者的最佳爱丁堡旅游贴士
 
-> 原文:[https://life hacker . com/the-best-Edinburgh-travel-tips-from-our-readers-1828220865](https://lifehacker.com/the-best-edinburgh-travel-tips-from-our-readers-1828220865)
+> 原文：<https://lifehacker.com/the-best-edinburgh-travel-tips-from-our-readers-1828220865>
 
 苏格兰爱丁堡的旅游小贴士变得很棒。以下是本周 [黑你的城市](https://lifehacker.com/c/hack-your-city) 的亮点。下面的大部分提示来自更长的评论，所以去阅读我们周一帖子 中的 Staff 标签下的完整评论 [。用你最好最差的苏格兰口音读出来。](https://lifehacker.com/tell-us-your-best-edinburgh-travel-tips-1828095330) 
 

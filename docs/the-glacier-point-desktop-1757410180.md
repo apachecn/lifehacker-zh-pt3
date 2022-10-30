@@ -1,6 +1,6 @@
 # 冰川点桌面
 
-> 原文:[https://lifehacker.com/the-glacier-point-desktop-1757410180](https://lifehacker.com/the-glacier-point-desktop-1757410180)
+> 原文：<https://lifehacker.com/the-glacier-point-desktop-1757410180>
 
 Stranha 没有留下很多关于他如何制作这个漂亮的桌面的信息，中心有半个圆顶，但我们可以弄清楚。如果你想让你的 Mac 看起来和摸起来都像这样，你需要做以下事情。
 

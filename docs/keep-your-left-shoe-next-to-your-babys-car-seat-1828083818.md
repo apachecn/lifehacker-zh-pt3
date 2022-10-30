@@ -1,6 +1,6 @@
 # 把你的左脚鞋子放在你宝宝的车座旁边
 
-> 原文:[https://life hacker . com/keep-your-left-shoe-next-to-your-babys-car-seat-1828083818](https://lifehacker.com/keep-your-left-shoe-next-to-your-babys-car-seat-1828083818)
+> 原文：<https://lifehacker.com/keep-your-left-shoe-next-to-your-babys-car-seat-1828083818>
 
 不小心把孩子留在炎热的汽车里是任何人都可能犯的悲惨错误 。归咎于我们有缺陷的大脑，以及其他。(如果你还没有读过吉恩·温加滕的《T4》[、2009 年](https://www.washingtonpost.com/lifestyle/magazine/fatal-distraction-forgetting-a-child-in-thebackseat-of-a-car-is-a-horrifying-mistake-is-it-a-crime/2014/06/16/8ae0fe3a-f580-11e3-a3a5-42be35962a52_story.html?utm_term=.3b8d5d6d0bd3) [*《华盛顿邮报》*](https://www.washingtonpost.com/lifestyle/magazine/fatal-distraction-forgetting-a-child-in-thebackseat-of-a-car-is-a-horrifying-mistake-is-it-a-crime/2014/06/16/8ae0fe3a-f580-11e3-a3a5-42be35962a52_story.html?utm_term=.3b8d5d6d0bd3) 关于热车死亡的报道，那就去读一读吧——它很精彩。)作为父母，我们越早意识到我们并非不受影响，我们就能越早找到方法来结束每年平均有 37 名儿童死于炎热的汽车中的毁灭性统计数字，而无需审判。
 

@@ -1,6 +1,6 @@
 # 网上没有秘密的待售汽车库存
 
-> 原文:[https://jalopnik . com/they-is-no-secret-inventory-of-cars-sale-online-1820503267](https://jalopnik.com/there-is-no-secret-inventory-of-cars-for-sale-online-1820503267)
+> 原文：<https://jalopnik.com/there-is-no-secret-inventory-of-cars-for-sale-online-1820503267>
 
 你花了几个小时在每一个汽车上市网站上寻找你梦想中的价格合适的汽车。太多时候，你找不到你想要的东西，即使你抱着一线希望，希望在互联网的某个秘密角落，那辆车正在出售。我是来告诉你，那个地方不存在。
 

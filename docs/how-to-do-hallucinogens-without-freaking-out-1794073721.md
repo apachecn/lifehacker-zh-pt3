@@ -1,6 +1,6 @@
 # 致幻剂不发作怎么办
 
-> 原文:[https://deadspin . com/how-to-do-致幻剂-没有吓坏-1794073721](https://deadspin.com/how-to-do-hallucinogens-without-freaking-out-1794073721)
+> 原文：<https://deadspin.com/how-to-do-hallucinogens-without-freaking-out-1794073721>
 
 我第一次吃蘑菇的时候，几乎所有的事情都做错了。我比其他人晚吃了两三个小时。天很黑。我们看了*全金属外壳*。
 

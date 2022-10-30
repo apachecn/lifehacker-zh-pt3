@@ -1,6 +1,6 @@
 # 微软 Windows 10 2018 年 4 月更新:新功能
 
-> 原文:[https://life hacker . com/here-is-the-features-you-should-care-in-microsof-1825642722](https://lifehacker.com/here-are-the-features-you-should-care-about-in-microsof-1825642722)
+> 原文：<https://lifehacker.com/here-are-the-features-you-should-care-about-in-microsof-1825642722>
 
 微软的重大 Windows 更新——不是“春季”更新，而是更无聊地命名为“Windows 2018 年 4 月 10 日”更新——今天为热切的 Windows 用户到来，他们 [手动触发台式机和笔记本电脑的更新](https://lifehacker.com/how-to-prepare-for-mondays-windows-10-april-2018-update-1825590970#_ga=2.111083142.245830240.1525051785-396842925.1520800403) 。**(更新:**截至太平洋时间上午 10 点，Windows 的巨大更新现已准备就绪！开始下载！)
 

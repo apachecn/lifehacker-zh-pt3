@@ -1,6 +1,6 @@
 # 确保您不会访问 Equifax 网络钓鱼网站
 
-> 原文:[https://life hacker . com/make-sure-you-to-a-equifax-phishing-site-1818623746](https://lifehacker.com/make-sure-youre-not-going-to-an-equifax-phishing-site-1818623746)
+> 原文：<https://lifehacker.com/make-sure-youre-not-going-to-an-equifax-phishing-site-1818623746>
 
 如果说 Equifax 数据泄露事件还不够糟糕的话，许多消费者已经在抱怨该公司处理善后事宜的草率方式。例如，有 Equifax 的网站专门针对此事:。
 

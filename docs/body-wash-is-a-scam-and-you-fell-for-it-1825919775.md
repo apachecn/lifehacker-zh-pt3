@@ -1,6 +1,6 @@
 # 沐浴露是个骗局，你上当了
 
-> 原文:[https://life hacker . com/body-wash-is-a-scam-and-you-fell-it-1825919775](https://lifehacker.com/body-wash-is-a-scam-and-you-fell-for-it-1825919775)
+> 原文：<https://lifehacker.com/body-wash-is-a-scam-and-you-fell-for-it-1825919775>
 
 千禧一代已经被 [指责扼杀了](https://www.marketwatch.com/story/here-are-all-of-the-things-millennials-have-been-accused-of-killing-2017-05-22) 日常生活的这么多方面。虽然我同意根除这些过时的东西(拿那个来说， [餐巾纸](http://www.businessinsider.com/millennials-hate-napkins-2016-3) 和 [网络电视](https://www.rottentomatoes.com/tv/9jkl/s01) ！)，这里有一个受害者需要从死囚区赦免。
 

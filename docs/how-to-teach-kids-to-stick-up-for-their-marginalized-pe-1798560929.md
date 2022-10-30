@@ -1,6 +1,6 @@
 # 如何教孩子维护他们被边缘化的同龄人
 
-> 原文:[https://life hacker . com/how-to-teach-kids-stick-up-for-their-edged-PE-1798560929](https://lifehacker.com/how-to-teach-kids-to-stick-up-for-their-marginalized-pe-1798560929)
+> 原文：<https://lifehacker.com/how-to-teach-kids-to-stick-up-for-their-marginalized-pe-1798560929>
 
 我遇到的父母都想培养出能与不公正斗争的孩子。他们带着孩子去集会。他们很早就开始 [谈论种族](https://lifehacker.com/how-to-talk-to-young-kids-about-race-1797811655) ，性别，性取向和体能。他们介绍探索 [争取平等](http://offspring.lifehacker.com/11-kids-books-that-will-help-them-understand-the-strugg-1797940769#_ga=2.36776738.304312588.1503953950-185554498.1503953950) 的书籍。孩子们确实明白这一点——他们非常关心公平和批判性思维的能力。
 

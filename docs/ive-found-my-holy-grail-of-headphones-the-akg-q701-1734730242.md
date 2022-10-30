@@ -1,6 +1,6 @@
 # 我已经找到了我的耳机圣杯:AKG Q701
 
-> 原文:[https://life hacker . com/ive-found-my-holy-grail-of-headphones-the-akg-q701-1734730242](https://lifehacker.com/ive-found-my-holy-grail-of-headphones-the-akg-q701-1734730242)
+> 原文：<https://lifehacker.com/ive-found-my-holy-grail-of-headphones-the-akg-q701-1734730242>
 
 寻找完美的耳机就像是一个永无止境的旅程。由于每个人都有不同的口味，别人不可能为你推荐完美的罐头。但不管怎样，我已经找到了我的，我永远不会放弃他们。
 

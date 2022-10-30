@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:9 月 30 日至 10 月 7 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-9 月 30 日至 10 月 1787530667](https://lifehacker.com/this-weeks-most-popular-posts-september-30th-to-octobe-1787530667)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-september-30th-to-octobe-1787530667>
 
 本周，谷歌展示了他们最新的硬件雄心，包括新手机、语音助手和智能 Wi-Fi 路由器。与此同时，回到农场，我们学会了如何与“消极”代表一起锻炼，追踪 21 世纪的最佳电影，等等。这里回顾一下。
 

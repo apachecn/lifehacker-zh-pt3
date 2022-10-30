@@ -1,6 +1,6 @@
 # 好市多推出杂货配送计划，与亚马逊竞争
 
-> 原文:[https://life hacker . com/Costco-launchs-杂货店-送货-计划-竞争-wit-1819284686](https://lifehacker.com/costco-launches-grocery-delivery-program-to-compete-wit-1819284686)
+> 原文：<https://lifehacker.com/costco-launches-grocery-delivery-program-to-compete-wit-1819284686>
 
 除了源源不断的样品供应，好市多的主要吸引力一直是你可以以非常合理的价格买到大量的食品和杂货。但是，尽管好市多过去并不需要在线业务 ，亚马逊最近对 Prime Pantry 和 Amazon Fresh 的扩张似乎已经促使该连锁店推出了两项新的送货服务。
 

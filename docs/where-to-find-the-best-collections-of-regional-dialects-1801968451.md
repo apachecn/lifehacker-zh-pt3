@@ -1,6 +1,6 @@
 # 在哪里可以找到最好的地方方言和地方口音集
 
-> 原文:[https://life hacker . com/where-to-find-the-best-collections-of-regional-dialects-1801968451](https://lifehacker.com/where-to-find-the-best-collections-of-regional-dialects-1801968451)
+> 原文：<https://lifehacker.com/where-to-find-the-best-collections-of-regional-dialects-1801968451>
 
 如果你试图为一个表演角色 学习一种口音，理解一个说英语的人，或者只是听到一些有趣的英国口音，互联网上有大量各种方言的英语录音。你可以用谷歌搜索任何口音，找到相关的 YouTube 视频，但你可能需要更多的质量控制，或者专门听一些不太在意镜头的演讲者。
 

@@ -1,6 +1,6 @@
 # 这个应用程序的工作原理类似于 Tinder，只是它是用来交柏拉图式的朋友的
 
-> 原文:[https://life hacker . com/this-app-works-like-tinder-except-its-for-making-Plato-1797321957](https://lifehacker.com/this-app-works-like-tinder-except-its-for-making-plato-1797321957)
+> 原文：<https://lifehacker.com/this-app-works-like-tinder-except-its-for-making-plato-1797321957>
 
 当你在高中和大学时，你几乎每天都会交几个朋友。然而，一旦你毕业了，培养新的友谊，甚至认识你可能想成为朋友的人，会变得有点困难。现在有了一个应用程序。这款名为 [Patook](https://patook.com/) 的应用程序设计得很像 Tinder，只不过你在市场上遇到的每个人都是柏拉图式的朋友——甚至不允许在平台上调情。它在过去的一年中一直处于测试阶段，并于本周向公众开放。
 

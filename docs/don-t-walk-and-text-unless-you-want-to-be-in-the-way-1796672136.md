@@ -1,6 +1,6 @@
 # 除非你想碍事，否则不要边走边发短信
 
-> 原文:[https://life hacker . com/don-t-walk-and-text-除非你想挡路-1796672136](https://lifehacker.com/don-t-walk-and-text-unless-you-want-to-be-in-the-way-1796672136)
+> 原文：<https://lifehacker.com/don-t-walk-and-text-unless-you-want-to-be-in-the-way-1796672136>
 
 走过拥挤的街道，你会情不自禁地注意到人们对面前手机的关注超过了人行道上快速靠近的狗屎。
 

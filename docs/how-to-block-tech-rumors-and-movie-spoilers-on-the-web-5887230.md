@@ -1,6 +1,6 @@
 # 如何屏蔽网络上的科技谣言和电影剧透
 
-> 原文:[https://life hacker . com/how-to-block-tech-rumors-and-movie-剧透-on-the-web-5887230](https://lifehacker.com/how-to-block-tech-rumors-and-movie-spoilers-on-the-web-5887230)
+> 原文：<https://lifehacker.com/how-to-block-tech-rumors-and-movie-spoilers-on-the-web-5887230>
 
 随着《星球大战:原力觉醒》的评论今天下降，电影将于周四晚上上映，很难避免剧透(或者根本避免这部电影)。以下是如何在全球和特定网站上设置自动屏蔽，这样你就可以避免读到任何新的剧透或谣言。
 

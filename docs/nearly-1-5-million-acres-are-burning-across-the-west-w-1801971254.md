@@ -1,6 +1,6 @@
 # 西部有将近 150 万英亩的土地正在燃烧:你现在需要知道什么
 
-> 原文:[https://life hacker . com/近 150 万英亩的土地正在燃烧](https://lifehacker.com/nearly-1-5-million-acres-are-burning-across-the-west-w-1801971254)
+> 原文：<https://lifehacker.com/nearly-1-5-million-acres-are-burning-across-the-west-w-1801971254>
 
 当南部各州与飓风哈维的余波和飓风伊尔玛的潜在破坏作斗争时，炎热干燥的西部继续与劳工节后的大规模野火作斗争，这不同于任何其他年份。火焰使家庭流离失所，摧毁了家园和财产，关闭了高速公路和道路，并威胁到标志性的自然区域和国家地标。以下是你需要知道的。
 

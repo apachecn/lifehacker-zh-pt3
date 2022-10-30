@@ -1,6 +1,6 @@
 # 如何制作终极 DIY 降临节日历
 
-> 原文:[https://life hacker . com/how-to-create-the-ultimate-advent-calendar-1789496062](https://lifehacker.com/how-to-create-the-ultimate-advent-calendar-1789496062)
+> 原文：<https://lifehacker.com/how-to-create-the-ultimate-advent-calendar-1789496062>
 
 如今有大量不同的降临节日历，充满了从 [威士忌](https://www.masterofmalt.com/whiskies/drinks-by-the-dram/the-whisky-advent-calendar/) 到 [指甲油](http://www.sephora.com/mini-mani-month-nail-polish-set-P411550?skuId=1842228&icid2=holiday%252525252520gifts:p411550) 到 [乐高积木](https://www.google.com/webhp?sourceid=chrome-instant&ion=1&espv=2&ie=UTF-8#q=lego+advent+calendar&tbm=shop) 的一切。他们很有趣，但缺乏个人风格。如果你想送给、一个，或者自己做一个，这里有一些优秀的 DIY 降临节日历建议来庆祝这个季节。
 

@@ -1,6 +1,6 @@
 # 不要被想法债务拖累
 
-> 原文:[https://life hacker . com/don-get-down-by-idea-debt-1828861275](https://lifehacker.com/dont-get-weighed-down-by-idea-debt-1828861275)
+> 原文：<https://lifehacker.com/dont-get-weighed-down-by-idea-debt-1828861275>
 
 你待办清单上最大的目标是什么？是去你梦想中的城市进行跨国搬家吗？创业？开始你自己的博客？
 

@@ -1,6 +1,6 @@
 # 适用于 Google Home、Pixel 和 Allo 的谷歌助手命令
 
-> 原文:[https://life hacker . com/the-Google-assistant-commands-the-work-on-Google-home-1791283570](https://lifehacker.com/the-google-assistant-commands-that-work-on-google-home-1791283570)
+> 原文：<https://lifehacker.com/the-google-assistant-commands-that-work-on-google-home-1791283570>
 
 谷歌助手是一个强大的工具，但它的工作方式与谷歌 Home 上的 Pixel 不同，而且两者都不同于你已经拥有的 Android 手机。我们制作了一张图表，帮助您了解每种设备的功能。
 

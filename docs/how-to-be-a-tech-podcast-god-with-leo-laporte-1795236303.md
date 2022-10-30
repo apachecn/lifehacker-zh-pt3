@@ -1,6 +1,6 @@
 # 如何成为播客之神，利奥·拉波特
 
-> 原文:[https://life hacker . com/how-to-a-tech-podcast-god-with-Leo-laporte-1795236303](https://lifehacker.com/how-to-be-a-tech-podcast-god-with-leo-laporte-1795236303)
+> 原文：<https://lifehacker.com/how-to-be-a-tech-podcast-god-with-leo-laporte-1795236303>
 
 在本周的升级节目中，我们将与利奥·拉波特对话:作家、企业家、演说家，是的——科技播客之神。
 

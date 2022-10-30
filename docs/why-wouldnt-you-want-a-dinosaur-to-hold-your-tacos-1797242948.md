@@ -1,6 +1,6 @@
 # 你为什么不想让恐龙拿着你的玉米卷呢？
 
-> 原文:[https://life hacker . com/why-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-won-to-hold-your-tacos-1797242948](https://lifehacker.com/why-wouldnt-you-want-a-dinosaur-to-hold-your-tacos-1797242948)
+> 原文：<https://lifehacker.com/why-wouldnt-you-want-a-dinosaur-to-hold-your-tacos-1797242948>
 
 这个世界可能是一个黯淡无情的地方，但也有亮点。这样一个点以 [这个厨房工具](https://www.amazon.com/dp/B01LZNTN8S?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-wouldnt-you-want-a-dinosaur-to-hold-your-tacos-1797242948&asc_source=&ref_=pfb_4jdcdk4c5cb32nffgf9af64id2j4&tag=kinjalifehackerlink-20) 的形式存在，没有人真正需要——但每个人*都值得拥有*——被称为 Tricerataco。
 

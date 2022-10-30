@@ -1,6 +1,6 @@
 # 即使你不是自由职业者或“有创造力”的人，你也可能需要一个公开的投资组合
 
-> 原文:[https://life hacker . com/almost-every one-need-a-public-portfolio-1819366275](https://lifehacker.com/almost-everyone-needs-a-public-portfolio-1819366275)
+> 原文：<https://lifehacker.com/almost-everyone-needs-a-public-portfolio-1819366275>
 
 即使你不是自由职业者或“有创造力的人”，你也可能从展示你的成就的页面中受益，而不仅仅是你的工作经历。如果你想发表演讲，被文章引用，兼职，创业，或者只是想得到一份工作，那么你需要一份公开投资组合。
 

@@ -1,6 +1,6 @@
 # 我让我女朋友在我和大麻之间做出选择
 
-> 原文:[https://life hacker . com/I-made-my-friend-choose-between-me-or-weed-1822562611](https://lifehacker.com/i-made-my-girlfriend-choose-between-me-or-weed-1822562611)
+> 原文：<https://lifehacker.com/i-made-my-girlfriend-choose-between-me-or-weed-1822562611>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love#_ga=2.269169905.1295021153.1516057126-819016074.1513967708) 。
 

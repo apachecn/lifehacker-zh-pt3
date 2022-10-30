@@ -1,6 +1,6 @@
 # 润肤霜不会让你的皮肤更油(或更少)
 
-> 原文:[https://life hacker . com/moister-wot-make-your-skin-more-or-less-oily-1824027304](https://lifehacker.com/moisturizer-wont-make-your-skin-more-or-less-oily-1824027304)
+> 原文：<https://lifehacker.com/moisturizer-wont-make-your-skin-more-or-less-oily-1824027304>
 
 我的皮肤非常油，我认为这是一个优点:当然，我 20 多岁的时候一直在和顽固的结节囊肿性痤疮作斗争，但也许所有这些额外的油意味着我会比我的干性皮肤同龄人衰老得更慢。不幸的是，当有人坚持说我的皮肤是油性的，因为我不够保湿时，我做的鬼脸可能会抵消任何抗衰老的效果。不好意思——“[反应性皮脂溢](https://www.beautyrx.com/blogs/learn/clearing-the-slate-reactive-seborrhea-part-i) ”完全是呜呜。
 

@@ -1,6 +1,6 @@
 # 羊皮纸和蜡纸有什么区别？
 
-> 原文:[https://life hacker . com/羊皮纸和蜡纸有什么区别-1818731711](https://lifehacker.com/whats-the-difference-between-parchment-and-wax-paper-1818731711)
+> 原文：<https://lifehacker.com/whats-the-difference-between-parchment-and-wax-paper-1818731711>
 
 众所周知， [我是羊皮纸](https://lifehacker.com/sunday-showdown-parchment-paper-vs-silicone-baking-ma-1797765791) 的忠实粉丝，但它的不太贵，但仍然不粘的朋友蜡纸呢？为什么会存在？你*需要*它吗？
 

@@ -1,6 +1,6 @@
 # 一位艺术家解释了“伟大的艺术家偷窃”的真正含义
 
-> 原文:[https://life hacker . com/an-artist-explains-what-great-artists-steal-true-me-1818808264](https://lifehacker.com/an-artist-explains-what-great-artists-steal-really-me-1818808264)
+> 原文：<https://lifehacker.com/an-artist-explains-what-great-artists-steal-really-me-1818808264>
 
 “一个好的作曲家不模仿；他偷取了【伊戈尔·斯特拉文斯基】 [按说是说](https://quoteinvestigator.com/2013/03/06/artists-steal/) 。据说福克纳曾将其描述为“不成熟的艺术家复制，伟大的艺术家偷窃。”史蒂夫·乔布斯用最简单的“好的艺术家复制，伟大的艺术家偷窃。”这句谚语经常启发艺术家、思想家和宿舍海报设计师。但实际上，这意味着什么呢？ 
 

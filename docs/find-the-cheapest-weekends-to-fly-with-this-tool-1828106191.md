@@ -1,6 +1,6 @@
 # 用这个工具找到最便宜的周末航班
 
-> 原文:[https://life hacker . com/find-the-chicken-the-beast-weekends-to-fly with this-tool-1828106191](https://lifehacker.com/find-the-cheapest-weekends-to-fly-with-this-tool-1828106191)
+> 原文：<https://lifehacker.com/find-the-cheapest-weekends-to-fly-with-this-tool-1828106191>
 
 我的很多旅行，尤其是我去全国各地看望家人的旅行，都是在相对随机选择的时间进行的。我没有理由一定要在某个周末待在家里，我只是挑了一个，看了看价格，然后订了机票。
 

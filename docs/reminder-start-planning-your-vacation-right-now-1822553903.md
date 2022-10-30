@@ -1,6 +1,6 @@
 # 提醒:现在就开始计划你的假期吧
 
-> 原文:[https://life hacker . com/reminder-start-planning-your-vacation-right-now-1822553903](https://lifehacker.com/reminder-start-planning-your-vacation-right-now-1822553903)
+> 原文：<https://lifehacker.com/reminder-start-planning-your-vacation-right-now-1822553903>
 
 今天是 [全国假日计划](https://nationaldaycalendar.com/2018/01/29/january-30-2018-national-plan-for-vacation-day-national-croissant-day/) ，所以拿出你的日历，开始翻阅那些旅游指南吧。你不会想让那些宝贵的假期白白浪费掉，只是因为你在组织一些应得的休息之前太忙了。
 

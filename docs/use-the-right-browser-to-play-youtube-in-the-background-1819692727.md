@@ -1,6 +1,6 @@
 # 如何在手机上后台播放 YouTube
 
-> 原文:[https://life hacker . com/use-the-right-browser-to-play-YouTube-in-the-background-1819692727](https://lifehacker.com/use-the-right-browser-to-play-youtube-in-the-background-1819692727)
+> 原文：<https://lifehacker.com/use-the-right-browser-to-play-youtube-in-the-background-1819692727>
 
 我依靠一首歌作为面试前的热身音乐:[2011 年电子游戏*【天际】*](https://www.youtube.com/watch?v=AVy7YPNP_zI) 的主题曲。我唯一找到这首歌正确版本的地方是在 YouTube 上 midi 和管弦乐编曲不适合它。但每当我处于这种高风险的时刻，我不可避免地会避开 YouTube，或者只是锁定我的手机，以及激动人心的*dovahkin 的圣歌！*硬生生切出。
 

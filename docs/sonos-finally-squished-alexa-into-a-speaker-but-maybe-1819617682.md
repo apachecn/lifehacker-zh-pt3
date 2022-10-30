@@ -1,6 +1,6 @@
 # Sonos 最终将 Alexa 压缩成一个扬声器，但也许只是买一个点
 
-> 原文:[https://gizmodo . com/sonos-最终-压扁-Alexa-变成一个扬声器-但是-也许-1819617682](https://gizmodo.com/sonos-finally-squished-alexa-into-a-speaker-but-maybe-1819617682)
+> 原文：<https://gizmodo.com/sonos-finally-squished-alexa-into-a-speaker-but-maybe-1819617682>
 
 Sonos 不会喜欢它，但你可以称它的新智能扬声器为“回声”。一个高端的，听起来很好，但有缺陷的亚马逊 Echo——那种刚刚得到促销的人可能会自己买，因为不像 50 美元的 Dot 或新的 100 美元的 Echo，这个扬声器会花掉你 200 美元。
 

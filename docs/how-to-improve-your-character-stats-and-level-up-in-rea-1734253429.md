@@ -1,6 +1,6 @@
 # 如何在现实生活中提高你的角色属性和等级
 
-> 原文:[https://life hacker . com/how-to-improve-your-character-stats-and-level-up-in-rea-1734253429](https://lifehacker.com/how-to-improve-your-character-stats-and-level-up-in-rea-1734253429)
+> 原文：<https://lifehacker.com/how-to-improve-your-character-stats-and-level-up-in-rea-1734253429>
 
 在《龙与地下城》中，每个角色都有一定的长处和短处，这取决于他们的能力分数:力量、敏捷、体质、智力、智慧和魅力。你现实生活中的自己也是由这些能力组成的，你可以像在游戏中一样提升它们。
 

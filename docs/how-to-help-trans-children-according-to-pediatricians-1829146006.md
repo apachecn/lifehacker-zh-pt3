@@ -1,6 +1,6 @@
 # 儿科医生如何帮助变性儿童
 
-> 原文:[https://life hacker . com/how-to-help-trans-children-by-pediatrics-1829146006](https://lifehacker.com/how-to-help-trans-children-according-to-pediatricians-1829146006)
+> 原文：<https://lifehacker.com/how-to-help-trans-children-according-to-pediatricians-1829146006>
 
 美国儿科学会最近 [发布了一项新的政策声明](http://pediatrics.aappublications.org/content/early/2018/09/13/peds.2018-2162) ，内容是关于如何支持那些被认定为跨性别者或处于他们称之为“性别多样化”的保护伞下的儿童和青少年
 

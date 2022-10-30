@@ -1,6 +1,6 @@
 # 停止使用“保修”这个词的经销商仍然会卖给你扯淡的额外服务
 
-> 原文:[https://jalopnik . com/dealers-who-stop-use-the-word-warranty-will-still-sel-1793782838](https://jalopnik.com/dealers-who-stop-using-the-word-warranty-will-still-sel-1793782838)
+> 原文：<https://jalopnik.com/dealers-who-stop-using-the-word-warranty-will-still-sel-1793782838>
 
 在很大程度上，购车者已经认识到延长保修期通常是浪费金钱。对于销售这些额外产品的经销商来说，这是一个坏消息，因此他们中的许多人正在改变他们的词汇。不过，不要被骗了:大多数金融产品很少值这个价。
 

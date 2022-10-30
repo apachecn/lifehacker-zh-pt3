@@ -1,6 +1,6 @@
 # Headspace 的付费版本变得更好了
 
-> 原文:[https://life hacker . com/headspace-payed-version-just-get-a-lot-nicer-1796145919](https://lifehacker.com/headspaces-paid-version-just-got-a-lot-nicer-1796145919)
+> 原文：<https://lifehacker.com/headspaces-paid-version-just-got-a-lot-nicer-1796145919>
 
 如果你曾经是 [冥想 app Headspace](https://www.headspace.com/) 的付费用户，你就会知道“背包”的暴政。一组是一系列的冥想，每一组都建立在下一组之上。但是，如果你正在处理焦虑包，并想检查创造性一，你会失去所有的进展。直到今天。
 

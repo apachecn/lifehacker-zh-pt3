@@ -1,6 +1,6 @@
 # 这可能就是你在高速公路上看到这么多鞋子的原因
 
-> 原文:[https://life hacker . com/this-is-possible-why-you-see-so-many-shoes-on-the-high w-1818805900](https://lifehacker.com/this-is-probably-why-you-see-so-many-shoes-on-the-highw-1818805900)
+> 原文：<https://lifehacker.com/this-is-probably-why-you-see-so-many-shoes-on-the-highw-1818805900>
 
 有没有在路上看到一双鞋子，想知道它们是怎么到那里的？不，这不是什么可怕事故的残留物。实际上有一些非常简单的解释。
 

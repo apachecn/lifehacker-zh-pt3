@@ -1,6 +1,6 @@
 # 如何将 iOS 11 降级回 iOS 10
 
-> 原文:[https://life hacker . com/how-to-downgrade-IOs-11-back-to-IOs-10-1796495008](https://lifehacker.com/how-to-downgrade-ios-11-back-to-ios-10-1796495008)
+> 原文：<https://lifehacker.com/how-to-downgrade-ios-11-back-to-ios-10-1796495008>
 
 恭喜你，你已经下载了 iOS 11 测试版！毫无疑问，你现在已经体验了苹果最新操作系统的乐趣，该系统包含了一些新功能，如二维码友好的相机应用程序、可定制的控制中心和文件管理器应用程序(不幸的是，名为文件)。
 

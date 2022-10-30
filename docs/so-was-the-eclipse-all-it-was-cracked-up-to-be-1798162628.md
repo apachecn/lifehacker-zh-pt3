@@ -1,6 +1,6 @@
 # 那么，日食真的如人们所说的那样吗？
 
-> 原文:[https://life hacker . com/so-was-the-eclipse-all-it-was-cracked-up-to-be-1798162628](https://lifehacker.com/so-was-the-eclipse-all-it-was-cracked-up-to-be-1798162628)
+> 原文：<https://lifehacker.com/so-was-the-eclipse-all-it-was-cracked-up-to-be-1798162628>
 
 如果你没有注意到，我们在 Lifehacker 度过了愉快的一天，沉浸在日蚀的疯狂中。但是现在这个神圣的事件已经过去了，是时候反思了，我们想知道:你过得怎么样？
 

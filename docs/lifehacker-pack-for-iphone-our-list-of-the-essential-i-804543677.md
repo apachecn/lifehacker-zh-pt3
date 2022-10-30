@@ -1,6 +1,6 @@
 # iPhone 版 Lifehacker Pack:我们的基本 iPhone 应用列表
 
-> 原文:[https://life hacker . com/life hacker-pack-for-iphone-our-list-of-essential-I-804543677](https://lifehacker.com/lifehacker-pack-for-iphone-our-list-of-the-essential-i-804543677)
+> 原文：<https://lifehacker.com/lifehacker-pack-for-iphone-our-list-of-the-essential-i-804543677>
 
 iPhone 在移动端有最大的应用选择，但这意味着它也是最令人沮丧的发现什么是值得的。因此，我们将重点介绍有助于您保持高效、互联、知情和娱乐的应用。
 

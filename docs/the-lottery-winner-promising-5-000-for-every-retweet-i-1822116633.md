@@ -1,6 +1,6 @@
 # “彩票中奖者”承诺每转发一条微博可获得 5000 美元，这是一个骗局
 
-> 原文:[https://gizmodo . com/the-lottery-winner-promising-5-000 for-every-retweet-I-1822116633](https://gizmodo.com/the-lottery-winner-promising-5-000-for-every-retweet-i-1822116633)
+> 原文：<https://gizmodo.com/the-lottery-winner-promising-5-000-for-every-retweet-i-1822116633>
 
 你见过这条 [病毒推文](https://twitter.com/misler_shane/status/952616554319044609) 吗？它看起来像是来自谢恩·米斯勒，一个 20 岁的佛罗里达州彩票中奖者，他承诺给每个转发该账户的人 5000 美元。但这百分之百是假的。
 

@@ -1,6 +1,6 @@
 # 如何克服你的街头摄影害羞
 
-> 原文:[https://life hacker . com/五大攻略征服你的街头摄影-1797988429](https://lifehacker.com/five-strategies-for-conquering-your-street-photography-1797988429)
+> 原文：<https://lifehacker.com/five-strategies-for-conquering-your-street-photography-1797988429>
 
 如果你出去练习街头摄影，有点紧张没什么不好。在偷拍的情况下给不知情的人拍照，或者接近某人拍一张更刻意的照片并不容易，但是如果你想改善，扮演壁花只会阻碍你的进步。这是一项你需要培养的技能，但是你可以通过遵循一些简单的规则来提高你的街头摄影效率。
 

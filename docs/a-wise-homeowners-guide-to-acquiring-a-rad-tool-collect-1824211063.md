@@ -1,6 +1,6 @@
 # 明智的房主指南获取 Rad 工具集
 
-> 原文:[https://deadspin . com/a-wise-owners-guide-to-acquiring-a-rad-tool-collect-1824211063](https://deadspin.com/a-wise-homeowners-guide-to-acquiring-a-rad-tool-collect-1824211063)
+> 原文：<https://deadspin.com/a-wise-homeowners-guide-to-acquiring-a-rad-tool-collect-1824211063>
 
 你好。是我，一个做出了“合理的财务决策”并买了房子的人。我可能不再在房租上“挥霍金钱”,但人们总是忘记告诉你关于拥有一栋房子的一件事:它为你提供了无限的可以挥霍金钱的东西。我是来帮助你们的，我的房主伙伴们，通过教你们关于工具的知识来减少这些事情。
 

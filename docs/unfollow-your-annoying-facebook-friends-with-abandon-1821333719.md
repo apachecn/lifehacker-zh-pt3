@@ -1,6 +1,6 @@
 # 放开你那些讨厌的脸书朋友
 
-> 原文:[https://life hacker . com/un follow-your-friendly-Facebook-friends-with-abuse-1821333719](https://lifehacker.com/unfollow-your-annoying-facebook-friends-with-abandon-1821333719)
+> 原文：<https://lifehacker.com/unfollow-your-annoying-facebook-friends-with-abandon-1821333719>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑们正在更新他们的护肤程序，首先投入到节日的气氛中，并重温久违的爱好。
 

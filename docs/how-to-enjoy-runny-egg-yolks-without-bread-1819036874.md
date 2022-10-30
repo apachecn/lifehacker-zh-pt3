@@ -1,6 +1,6 @@
 # 如何享受没有面包的稀蛋黄
 
-> 原文:[https://life hacker . com/how-to-enjoy-runny-yellows-without-bread-1819036874](https://lifehacker.com/how-to-enjoy-runny-egg-yolks-without-bread-1819036874)
+> 原文：<https://lifehacker.com/how-to-enjoy-runny-egg-yolks-without-bread-1819036874>
 
 无论是半熟的，半熟的，轻煎的，还是水煮的，软蛋黄鸡蛋都是世界上最简单、最美味的食物之一。但是有这么多种烹饪鸡蛋的方法，我们经常可以依靠一种方法来享用蛋黄:面包。
 

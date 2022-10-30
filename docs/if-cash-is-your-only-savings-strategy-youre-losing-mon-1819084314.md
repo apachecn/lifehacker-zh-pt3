@@ -1,6 +1,6 @@
 # 如果现金是你唯一的储蓄策略，你就在赔钱
 
-> 原文:[https://life hacker . com/if-cash-is-you-lose-mon-1819084314](https://lifehacker.com/if-cash-is-your-only-savings-strategy-youre-losing-mon-1819084314)
+> 原文：<https://lifehacker.com/if-cash-is-your-only-savings-strategy-youre-losing-mon-1819084314>
 
 投资并不像看起来那么难(或有风险)，但它需要大量的信息，而且需要一些时间来学习，这让许多人对它望而却步。然而，如果你一直在推迟，并且你有大量的现金储蓄，考虑一下通货膨胀 的 [问题。](https://twocents.lifehacker.com/consider-inflation-if-you-re-still-scared-of-investing-1672032060)
 

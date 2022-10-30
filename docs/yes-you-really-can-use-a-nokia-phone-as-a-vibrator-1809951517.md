@@ -1,6 +1,6 @@
 # 是的，你真的可以用诺基亚手机当振动器
 
-> 原文:[https://gizmodo . com/yes-you-really-can-use-a-Nokia-phone-as-a-振动器-1809951517](https://gizmodo.com/yes-you-really-can-use-a-nokia-phone-as-a-vibrator-1809951517)
+> 原文：<https://gizmodo.com/yes-you-really-can-use-a-nokia-phone-as-a-vibrator-1809951517>
 
 生活中有三样东西是我喜欢的:性玩具、技术和重新利用我家里的东西，这样我就可以在某一天实现我的目标，用我位于布鲁克林的毫无疑问迷人的工艺项目打破 Etsy 和/或 Pinterest。
 

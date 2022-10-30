@@ -1,6 +1,6 @@
 # “在家工作周”播放列表
 
-> 原文:[https://life hacker . com/the-work-from-home-week-playlist-1823087515](https://lifehacker.com/the-work-from-home-week-playlist-1823087515)
+> 原文：<https://lifehacker.com/the-work-from-home-week-playlist-1823087515>
 
 在你生活的地方工作的许多乐趣中，爆破你自己的音乐可能是最好的。(或者不穿裤子。)为了开始在家工作周，我们为你制作了一个播放列表，可以在家庭办公室播放，或者通过耳机播放来淹没星巴克的人群。
 

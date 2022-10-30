@@ -1,6 +1,6 @@
 # 制作蜜饯坚果最简单的方法是用慢炖锅
 
-> 原文:[https://life hacker . com/the-easy-way to-make-candid-nuts-is-with-your-slow-1820903221](https://lifehacker.com/the-easiest-way-to-make-candied-nuts-is-with-your-slow-1820903221)
+> 原文：<https://lifehacker.com/the-easiest-way-to-make-candied-nuts-is-with-your-slow-1820903221>
 
 蜜饯坚果是零食中的一种，放在冰淇淋碗里就像放在沙拉里一样。它们的多功能性使它们成为很好的礼物，在慢炖锅的帮助下，非常容易(不用手)制作。
 

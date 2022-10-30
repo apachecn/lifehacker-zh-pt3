@@ -1,6 +1,6 @@
 # 以下是如何启用 Google Home 的最新更新
 
-> 原文:[https://life hacker . com/here-s-how-to-enable-Google-home-s-latest-updates-1798390742](https://lifehacker.com/here-s-how-to-enable-google-home-s-latest-updates-1798390742)
+> 原文：<https://lifehacker.com/here-s-how-to-enable-google-home-s-latest-updates-1798390742>
 
 由于一项更新，Google Home 的所有者可能会更多地与他们的客厅通话，这项更新允许语音助理 [打电话给美国和加拿大的](https://www.blog.google/products/assistant/introducing-free-calls-with-your-assistant-on-google-home/) 。这是最近许多更新之一，为智能家居设备提供了更多功能和与其他服务的兼容性。
 

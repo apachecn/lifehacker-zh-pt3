@@ -1,6 +1,6 @@
 # 我们要提醒人们多少次要小心历史文物？
 
-> 原文:[https://Jezebel . com/我们要提醒多少次要小心的人-1798316879](https://jezebel.com/how-many-times-do-we-have-to-remind-people-to-be-carefu-1798316879)
+> 原文：<https://jezebel.com/how-many-times-do-we-have-to-remind-people-to-be-carefu-1798316879>
 
 拜托，拜托，*拜托*表现得有点理智，不要在寻找完美照片的过程中损坏博物馆的文物。例如，绝对不要把你的孩子放在一个有 800 年历史的棺材里，以免你撞倒它，打碎它。
 

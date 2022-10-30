@@ -1,6 +1,6 @@
 # 如何传递坏消息
 
-> 原文:[https://lifehacker.com/how-to-deliver-bad-news-1828118877](https://lifehacker.com/how-to-deliver-bad-news-1828118877)
+> 原文：<https://lifehacker.com/how-to-deliver-bad-news-1828118877>
 
 在某些时候，我们都必须成为向另一个人传递坏消息的人。无论是与重要的另一半分手，解雇同事还是其他什么，我们都必须这样做。 *Quartz* [最近发表了一篇文章](https://qz.com/work/1336129/how-to-deliver-bad-news/) ，作者是一位肿瘤学家，他每天都要传递坏消息，告诉我们这样做的最佳实践。虽然他的建议确实有点偏向于告诉某人他们患有癌症，但它几乎可以在任何需要传递另一个人可能不想听到的信息的情况下派上用场。
 

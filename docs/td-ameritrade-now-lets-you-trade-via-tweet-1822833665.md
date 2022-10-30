@@ -1,6 +1,6 @@
 # TD Ameritrade 现在允许你通过 Tweet 交易
 
-> 原文:[https://life hacker . com/TD-ameritrade-now-let-you-trade-via-tweet-1822833665](https://lifehacker.com/td-ameritrade-now-lets-you-trade-via-tweet-1822833665)
+> 原文：<https://lifehacker.com/td-ameritrade-now-lets-you-trade-via-tweet-1822833665>
 
 当你想买卖一些股票时，没有必要浪费时间登录一个应用程序或打开你的桌面——现在，如果你有一个 [TD Ameritrade](https://www.amtd.com/newsroom/press-releases/press-release-details/2018/TD-Ameritrade-Launches-Market-Access-and-Investor-Education-Through-Twitter/default.aspx) 账户，你就可以从你的 Twitter DMs 上方便地做到这一点。
 

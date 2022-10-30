@@ -1,6 +1,6 @@
 # 如何在不破坏你的旅行的情况下和你的朋友分享假期租金
 
-> 原文:[https://life hacker . com/how-to-split-a-vacation-rental-with-your-friends-without-1798295844](https://lifehacker.com/how-to-split-a-vacation-rental-with-your-friends-withou-1798295844)
+> 原文：<https://lifehacker.com/how-to-split-a-vacation-rental-with-your-friends-withou-1798295844>
 
 与朋友合租度假房是一个很好的方式，可以减少住宿费用，并在漫长的一天观光后有一个一起放松的空间。但是分摊假期租金并不总是一帆风顺——我们都有这样一个朋友，他占用浴室准备，把他们的东西吐得沙发上到处都是，或者试图逃避支付他们应得的份额。
 

@@ -1,6 +1,6 @@
 # 观看日食的城镇将会非常拥挤
 
-> 原文:[https://life hacker . com/eclipse-watching-towns-is-going-to-be-absolute-slamm-1797758296](https://lifehacker.com/eclipse-watching-towns-are-going-to-be-absolutely-slamm-1797758296)
+> 原文：<https://lifehacker.com/eclipse-watching-towns-are-going-to-be-absolutely-slamm-1797758296>
 
 日食很快就要来临，对于那些恰好处于最佳观测的狭窄的 70 英里范围内的城镇来说，这意味着要为大量涌入的人群和交通做好准备。
 

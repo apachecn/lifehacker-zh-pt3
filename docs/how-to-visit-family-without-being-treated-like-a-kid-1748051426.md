@@ -1,6 +1,6 @@
 # 如何拜访家人而不被当成小孩
 
-> 原文:[https://life hacker . com/how-to-visit-family-not-be-treated-like-kid-1748051426](https://lifehacker.com/how-to-visit-family-without-being-treated-like-a-kid-1748051426)
+> 原文：<https://lifehacker.com/how-to-visit-family-without-being-treated-like-a-kid-1748051426>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-FrcDXI4cZyA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-FrcDXI4cZyA&start=0) 
 

@@ -1,6 +1,6 @@
 # 如何在苹果淘汰你所有的 32 位 Mac 应用程序之前一次找到它们
 
-> 原文:[https://life hacker . com/how-to-find-all-your-32-bit-MAC-apps-at-once-1825214610](https://lifehacker.com/how-to-find-all-your-32-bit-mac-apps-at-once-1825214610)
+> 原文：<https://lifehacker.com/how-to-find-all-your-32-bit-mac-apps-at-once-1825214610>
 
 在 [在](https://lifehacker.com/before-you-install-ios-11-make-sure-all-your-apps-will-1818553768#_ga=2.241194561.2136378967.1534789047-1757745059.1526574237) [iOS 11](https://lifehacker.com/ios-11-s-next-update-lets-you-control-your-iphone-s-bat-1822374134#_ga=2.241194561.2136378967.1534789047-1757745059.1526574237) 中从 iPhone 和 iPad 启动 32 位应用程序 之后，苹果正准备给你的 Mac 电脑同样的待遇。如果你担心你可能会无法访问一些你最喜欢的应用程序，下面介绍如何检查你电脑上运行的所有软件是否都是 64 位的。
 

@@ -1,6 +1,6 @@
 # 用伏特加提提神
 
-> 原文:[https://life hacker . com/用伏特加提提神-1827054118](https://lifehacker.com/freshen-up-your-clothes-with-vodka-1827054118)
+> 原文：<https://lifehacker.com/freshen-up-your-clothes-with-vodka-1827054118>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在磨练我们的电影通行证技术，将沐浴时间鸡尾酒作为一种生活方式，并对我们的家庭装修项目进行最后的润色。
 

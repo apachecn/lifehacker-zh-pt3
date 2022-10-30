@@ -1,6 +1,6 @@
 # 月桂叶有什么作用吗？
 
-> 原文:[https://life hacker . com/do-bay-leaves-even-do-any-1793275685](https://lifehacker.com/do-bay-leaves-even-do-anything-1793275685)
+> 原文：<https://lifehacker.com/do-bay-leaves-even-do-anything-1793275685>
 
 月桂叶是厨房的干燥床单。我知道他们做一些事情，我只是不完全确定是什么，当我跑出去的时候，我并不真的想念他们。然而我一直买它们，因为这是烹饪*的人类做的*。他们买月桂叶放在东西里。
 

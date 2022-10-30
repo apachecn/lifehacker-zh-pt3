@@ -1,6 +1,6 @@
 # 米朵琪是为那些对社交媒体感到矛盾的人准备的 iPhone 应用
 
-> 原文:[https://life hacker . com/binky-is-the-iphone-app-for-people-of-conflict-a-1796311735](https://lifehacker.com/binky-is-the-iphone-app-for-people-who-are-conflicted-a-1796311735)
+> 原文：<https://lifehacker.com/binky-is-the-iphone-app-for-people-who-are-conflicted-a-1796311735>
 
 iPhone:唯一比使用社交媒体更好的就是不使用社交媒体。这就是为什么有的原因，这是两者的排序。
 

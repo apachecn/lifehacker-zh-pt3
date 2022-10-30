@@ -1,6 +1,6 @@
 # 如何携带尿布包
 
-> 原文:[https://lifehacker.com/how-to-carry-a-diaper-bag-1820191412](https://lifehacker.com/how-to-carry-a-diaper-bag-1820191412)
+> 原文：<https://lifehacker.com/how-to-carry-a-diaper-bag-1820191412>
 
 *这是* [*产后疼痛诊所*](https://lifehacker.com/tag/postpartum-pain-clinic) *的第四部分，这是一个关于管理新生儿和婴儿护理带来的疼痛的多部分系列。*
 

@@ -1,6 +1,6 @@
 # 确定你是否太高而无法使用此应用程序驾驶
 
-> 原文:[https://life hacker . com/this-app-help-you-determine-if you-too-high-to-drive-1821355520](https://lifehacker.com/this-app-helps-you-determine-if-youre-too-high-to-drive-1821355520)
+> 原文：<https://lifehacker.com/this-app-helps-you-determine-if-youre-too-high-to-drive-1821355520>
 
 现在有一大堆不同的选择来确定你是否醉得不能开车，但是关于你是否抽了太多的大麻？
 

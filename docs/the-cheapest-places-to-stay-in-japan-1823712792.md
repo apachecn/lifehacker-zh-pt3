@@ -1,6 +1,6 @@
 # 日本最便宜的住宿地点
 
-> 原文:[https://life hacker . com/the-cheese-places-to-stay-in-Japan-1823712792](https://lifehacker.com/the-cheapest-places-to-stay-in-japan-1823712792)
+> 原文：<https://lifehacker.com/the-cheapest-places-to-stay-in-japan-1823712792>
 
 我一直告诉人们，去日本旅行比他们想象的要便宜得多，尤其是如果你预订了合适的住宿。如果你知道去哪里找的话，我们说的是每晚 20 到 50 美元。这些显然不是五星级度假胜地，但它们值得你为之省钱。
 

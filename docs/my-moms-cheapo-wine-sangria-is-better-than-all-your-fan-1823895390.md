@@ -1,6 +1,6 @@
 # 我妈妈的廉价桑格利亚汽酒比你所有的花式版本都好
 
-> 原文:[https://the take out . com/my-moms-cheap o-wine-sangria-is-better-all-your-fan-1823895390](https://thetakeout.com/my-moms-cheapo-wine-sangria-is-better-than-all-your-fan-1823895390)
+> 原文：<https://thetakeout.com/my-moms-cheapo-wine-sangria-is-better-than-all-your-fan-1823895390>
 
 还有比桑格利亚汽酒更能代表郊区后院妈妈聚会的饮料吗？这是潘趣酒的一个子类，允许女主人预先组装一个女巫的大锅葡萄酒和水果，保证用最少的厨房努力让她的朋友们中度陶醉一下午。因此，它是天才。
 

@@ -1,6 +1,6 @@
 # 这就是你后保险杠后面的秘密橡胶挡板的用途
 
-> 原文:[https://jalopnik . com/heres-what-thes-what-that-thes-rubber-flaps-behind-your-re-1828016409](https://jalopnik.com/heres-what-those-rubber-flaps-are-hidden-behind-your-re-1828016409)
+> 原文：<https://jalopnik.com/heres-what-those-rubber-flaps-are-hidden-behind-your-re-1828016409>
 
 最近，我和我的朋友泰勒漫步走过一个垃圾场，他问道:“这些汽车后角上的挡板是什么？”意识到他可能不是唯一一个感到疑惑的人，我决定写这篇关于这些设备的帖子，这些设备充当着重要的减压阀。
 

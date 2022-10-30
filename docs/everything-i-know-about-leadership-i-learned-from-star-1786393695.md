@@ -1,6 +1,6 @@
 # 我从《星际迷航》中学到的关于领导力的一切
 
-> 原文:[https://life hacker . com/everything-I-know-on-leadership-I-learn-from-star-1786393695](https://lifehacker.com/everything-i-know-about-leadership-i-learned-from-star-1786393695)
+> 原文：<https://lifehacker.com/everything-i-know-about-leadership-i-learned-from-star-1786393695>
 
 今天是《星际迷航》50 周年纪念日[](https://gizmodo.com/happy-50th-anniversary-star-trek-1786384803)*，虽然我可以狂热地谈论这部剧对我的影响，但有一件事一直存在，即使是现在，每天都在发生，那就是我如何通过观看《星际舰队船长》来学习如何成为一名优秀的领导者。有时他们是例外。其他时候他们真的不是。我总能学到一些东西。*
 

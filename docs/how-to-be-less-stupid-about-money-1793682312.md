@@ -1,6 +1,6 @@
 # 如何在金钱上不那么愚蠢，费利克斯·萨蒙
 
-> 原文:[https://life hacker . com/how-to-less-dumb-on money-1793682312](https://lifehacker.com/how-to-be-less-stupid-about-money-1793682312)
+> 原文：<https://lifehacker.com/how-to-be-less-stupid-about-money-1793682312>
 
 有些人喜欢研究自己的财务状况，像一台微调过的机器一样优化自己的储蓄。就我自己而言，我更愿意把头埋在沙子里，希望我的银行账户会自己管理好。费利克斯·萨蒙，[Fusion](http://fusion.net/author/felix-salmon/)的高级编辑和 [Slate 的金钱播客](http://www.slate.com/articles/podcasts/slate_money.html) 的共同主持人，来帮助我们整理美元和美分。
 

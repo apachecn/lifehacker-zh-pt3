@@ -1,6 +1,6 @@
 # 如何为工作选择最好的钢笔
 
-> 原文:[https://life hacker . com/how-to-choose-the-best-the-pen for the-job-1815449920](https://lifehacker.com/how-to-choose-the-best-pen-for-the-job-1815449920)
+> 原文：<https://lifehacker.com/how-to-choose-the-best-pen-for-the-job-1815449920>
 
 有没有走进美术用品店，想知道这些不同种类的钢笔和铅笔是干什么用的？有没有“正确的”写字用的？左撇子用什么笔最好？观看我们的简单视频指南，了解圆珠笔、中性笔和圆珠笔的最佳用法。
 

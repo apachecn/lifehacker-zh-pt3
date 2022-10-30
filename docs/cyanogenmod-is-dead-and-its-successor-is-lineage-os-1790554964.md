@@ -1,6 +1,6 @@
 # CyanogenMod 死了，它的继任者是 Lineage OS
 
-> 原文:[https://life hacker . com/cyanogenmod-is-dead-and-its-successor-is-lineage-OS-1790554964](https://lifehacker.com/cyanogenmod-is-dead-and-its-successor-is-lineage-os-1790554964)
+> 原文：<https://lifehacker.com/cyanogenmod-is-dead-and-its-successor-is-lineage-os-1790554964>
 
 CyanogenMod 曾是 [最大、应用最广的定制安卓 ROM](https://lifehacker.com/most-popular-android-rom-cyanogenmod-5915793) 。现在，它已经停产，部分原因是 [Cyanogen Inc](https://cyngn.com/) 内部冲突。不过，不要担心:CyanogenMod 的一个新分支叫做 [Lineage OS](http://lineageos.org/) 正在继承它的衣钵，它将保留你喜欢的 CyanogenMod 的大部分内容。
 

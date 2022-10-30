@@ -1,6 +1,6 @@
 # 在与“跟踪令牌剥离器”扩展共享 URL 之前，请清理它们
 
-> 原文:[https://life hacker . com/clean-up-URLs-before-you-share-them-the-tracking-t-1826459457](https://lifehacker.com/clean-up-urls-before-you-share-them-with-the-tracking-t-1826459457)
+> 原文：<https://lifehacker.com/clean-up-urls-before-you-share-them-with-the-tracking-t-1826459457>
 
 有多少次你去和朋友分享一个有趣的故事(或漫画)——这是一个非常标准的过程——却发现你以为你在复制和粘贴的短网址实际上是一个巨大的、混乱的文本段落。你可以感谢所有的服务和网站，它们在网址上附加了大量的垃圾信息，这样它们就可以更好地了解你是如何访问这个网站的，你浏览了什么，你要去哪里。
 

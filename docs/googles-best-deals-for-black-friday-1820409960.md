@@ -1,6 +1,6 @@
 # 谷歌黑色星期五最划算的交易
 
-> 原文:[https://life hacker . com/Google-best-deals-for-black-Friday-1820409960](https://lifehacker.com/googles-best-deals-for-black-friday-1820409960)
+> 原文：<https://lifehacker.com/googles-best-deals-for-black-friday-1820409960>
 
 让你的房子成为智能家居从未如此便宜。谷歌周一宣布，将为黑色星期五提供语音控制智能扬声器和其他联网设备的大折扣。
 

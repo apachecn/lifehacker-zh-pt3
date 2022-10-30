@@ -1,6 +1,6 @@
 # 倾斜恢复工作区
 
-> 原文:[https://life hacker . com/the-leaving-recovery-workspace-1782183267](https://lifehacker.com/the-reclining-recovery-workspace-1782183267)
+> 原文：<https://lifehacker.com/the-reclining-recovery-workspace-1782183267>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-JSUXhuimTnY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-JSUXhuimTnY&start=0) 
 

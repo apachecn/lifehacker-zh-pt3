@@ -1,6 +1,6 @@
 # 如何加入你当地的冰壶队
 
-> 原文:[https://life hacker . com/how-to-join-your-local-curling-team-1823372515](https://lifehacker.com/how-to-join-your-local-curling-team-1823372515)
+> 原文：<https://lifehacker.com/how-to-join-your-local-curling-team-1823372515>
 
 人们对冰壶的兴趣总是在冬季奥运会期间达到顶峰，但这项运动当然在世界各地全年都有。
 

@@ -1,6 +1,6 @@
 # 圣诞节不庆祝的时候做什么
 
-> 原文:[https://life hacker . com/what-to-do-on-the-Christmas-when-you-not-庆生-5970307](https://lifehacker.com/what-to-do-on-christmas-when-you-dont-celebrate-it-5970307)
+> 原文：<https://lifehacker.com/what-to-do-on-christmas-when-you-dont-celebrate-it-5970307>
 
 圣诞节是一年中最美好的时光——除非你像我一样不庆祝它。然后你被困在一个几乎关闭的世界里，看起来无事可做。幸运的是，你有相当多的选择，不管你是一个人还是和朋友一起，让 12 月 25 日成为一个有趣的假期，不管你有什么庆祝活动。
 

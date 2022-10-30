@@ -1,6 +1,6 @@
 # 用这些 Chrome 扩展改善你的 Reddit 体验
 
-> 原文:[https://life hacker . com/improve-your-Reddit-experience-with-these-chrome-extens-1823450604](https://lifehacker.com/improve-your-reddit-experience-with-these-chrome-extens-1823450604)
+> 原文：<https://lifehacker.com/improve-your-reddit-experience-with-these-chrome-extens-1823450604>
 
 Reddit 上层出不穷的迷因、评论和自我暗示的笑话可能会让 [新来者](https://lifehacker.com/a-beginners-guide-to-reddit-1798643829#_ga=2.113777538.44141680.1519916965-258269408.1513265580) 望而生畏。即使你已经阅读这个网站很多年了，仍然有大量的 [新的子主题等待你去发现](https://lifehacker.com/whats-your-favorite-subreddit-1823323002) 。但是不管你对 Reddit 有多了解，安装一些额外的 Chrome 扩展会让你有更好的体验。
 

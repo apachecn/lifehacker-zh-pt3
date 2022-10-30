@@ -1,6 +1,6 @@
 # 我是 Jet.com 总统丽莎·兰德斯曼，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-jet-com-president-Liza-lands man-and-this-is-how-I-w-1818580728](https://lifehacker.com/im-jet-com-president-liza-landsman-and-this-is-how-i-w-1818580728)
+> 原文：<https://lifehacker.com/im-jet-com-president-liza-landsman-and-this-is-how-i-w-1818580728>
 
 Jet.com 总裁丽莎·兰德斯曼最近刚刚从 Jet 首席客户官的职位上被提升。她曾在 Etrade、贝莱德和花旗集团担任高管职务。她也在 [的董事会里走了！项目](http://www.goprojectnyc.org/) ，一个位于纽约市的为贫困儿童提供教育机会的基金会。我们问她是如何完成工作的。
 

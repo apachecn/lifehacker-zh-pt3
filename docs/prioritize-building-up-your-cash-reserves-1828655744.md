@@ -1,6 +1,6 @@
 # 优先建立你的现金储备
 
-> 原文:[https://life hacker . com/prioritize-building-up-your-cash-reserves-1828655744](https://lifehacker.com/prioritize-building-up-your-cash-reserves-1828655744)
+> 原文：<https://lifehacker.com/prioritize-building-up-your-cash-reserves-1828655744>
 
 正如我们已经 [覆盖了](https://twocents.lifehacker.com/you-cant-time-a-market-correction-but-dont-freak-out-1828552350) 一样，当前牛市的寿命令人担忧。这一切总有一天会结束，一些经济学家 [预测到 2020 年底会出现衰退](https://nabe.com/NABE/Surveys/Outlook_Surveys/June_2018_Outlook_Survey_Summary_v2.aspx) 。假设这是真的，你有大约两年的时间让你的财务恢复正常。你应该优先考虑什么？
 

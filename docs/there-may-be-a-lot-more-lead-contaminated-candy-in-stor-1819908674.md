@@ -1,6 +1,6 @@
 # 商店里的含铅糖果可能比我们想象的要多得多
 
-> 原文:[https://gizmodo . com/there-may-a-lot-more-more-than-lead-contracted-in-stor-1819908674](https://gizmodo.com/there-may-be-a-lot-more-lead-contaminated-candy-in-stor-1819908674)
+> 原文：<https://gizmodo.com/there-may-be-a-lot-more-lead-contaminated-candy-in-stor-1819908674>
 
 你可能想等着那块糖。加州的一项新研究发现，在 2001 年至 2014 年期间，该州公共卫生部门发布的含铅糖果警报比任何其他食源性污染物都多。
 

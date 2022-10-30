@@ -1,6 +1,6 @@
 # 如何在不神经崩溃的情况下修复车头灯
 
-> 原文:[https://jalopnik . com/how-to-restore-heads-without having-a-neural-brea-1826231412](https://jalopnik.com/how-to-restore-headlights-without-having-a-nervous-brea-1826231412)
+> 原文：<https://jalopnik.com/how-to-restore-headlights-without-having-a-nervous-brea-1826231412>
 
 如果你的车前灯起雾了，你会怎么做？嗯，你 [问一个干净的人](mailto:joliekerr@gmail.com) ！
 

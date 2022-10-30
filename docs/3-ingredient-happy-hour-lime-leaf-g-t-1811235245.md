@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:酸橙叶 G&T
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-lime-leaf-g-t-1811235245](https://lifehacker.com/3-ingredient-happy-hour-lime-leaf-g-t-1811235245)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-lime-leaf-g-t-1811235245>
 
 快乐(急需的)周末，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们对备受喜爱的杜松子酒&补品做了一个小小的改动。
 

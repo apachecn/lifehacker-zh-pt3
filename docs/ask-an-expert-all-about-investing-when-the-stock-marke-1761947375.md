@@ -1,6 +1,6 @@
 # 问一个专家:当股票市场不可预测的时候，投资是最重要的
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-investing-when-the-stock-market-1761947375](https://lifehacker.com/ask-an-expert-all-about-investing-when-the-stock-marke-1761947375)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-investing-when-the-stock-marke-1761947375>
 
 所以你终于存了一些钱，并想用它，但金融市场似乎每天都在来回波动。在一个稳定的市场中做出投资决定已经够有压力的了！那么，当市场不可预测时，你如何开始投资呢？
 

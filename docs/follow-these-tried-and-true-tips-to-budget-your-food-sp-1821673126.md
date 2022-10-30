@@ -1,6 +1,6 @@
 # 用这些屡试不爽的建议来预算你 2018 年的食物支出
 
-> 原文:[https://life hacker . com/follow-thes-try-and-true-tips-budget-your-food-sp-1821673126](https://lifehacker.com/follow-these-tried-and-true-tips-to-budget-your-food-sp-1821673126)
+> 原文：<https://lifehacker.com/follow-these-tried-and-true-tips-to-budget-your-food-sp-1821673126>
 
 食品支出一直是我勒紧裤腰带预算的首选。不是每个人都在为可以削减的奢侈品花钱，但是每个人都在吃饭，而且几乎每个人都可以少花一点钱。
 

@@ -1,6 +1,6 @@
 # Safari 高级用户指南
 
-> 原文:[https://life hacker . com/the-power-user-s-guide-to-safari-1790770952](https://lifehacker.com/the-power-user-s-guide-to-safari-1790770952)
+> 原文：<https://lifehacker.com/the-power-user-s-guide-to-safari-1790770952>
 
 苹果的 Safari 网络浏览器往往会受到不公正的指责，因为它非常无聊，而且每台 Mac 都有，但多年来，苹果已经悄悄地让它变得非常有用。另外，Safari 比你想象的更受欢迎。如果你现在正在 Safari 中阅读这篇文章，下面是如何充分利用你的经历。
 

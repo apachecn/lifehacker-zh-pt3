@@ -1,6 +1,6 @@
 # Circle 是我一直想要的互联网家长控制
 
-> 原文:[https://life hacker . com/circle-is-the-parental-control-for-the-internet-ive-alw-1747520805](https://lifehacker.com/circle-is-the-parental-control-for-the-internet-ive-alw-1747520805)
+> 原文：<https://lifehacker.com/circle-is-the-parental-control-for-the-internet-ive-alw-1747520805>
 
 为人父母通常意味着管理一个小网络。这很有挑战性，因为没有一种内置的方法可以在您家人使用的所有平板电脑、笔记本电脑和其他设备上应用相同的家长控制。这就是 [圈](https://meetcircle.com/) 的用武之地。它可以帮助您轻松管理每个家庭成员的内容和屏幕时间。
 

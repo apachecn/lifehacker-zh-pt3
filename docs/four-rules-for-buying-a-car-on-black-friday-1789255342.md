@@ -1,6 +1,6 @@
 # 黑色星期五买车的四大法则
 
-> 原文:[https://jalopnik . com/four-rules-for-buy-a-car-on-black-Friday-1789255342](https://jalopnik.com/four-rules-for-buying-a-car-on-black-friday-1789255342)
+> 原文：<https://jalopnik.com/four-rules-for-buying-a-car-on-black-friday-1789255342>
 
 你可以想象，这是今年。这一年，你走进经销商，仍然充满了感恩节火鸡，并敲定了一个新的或二手车一生的交易。可悲的是，事情没那么简单。如果你要在这个季节最繁忙的购物日与人群作战，这里有一些规则要遵守。
 

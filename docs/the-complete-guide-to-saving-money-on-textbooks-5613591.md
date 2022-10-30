@@ -1,6 +1,6 @@
 # 教科书省钱完全指南
 
-> 原文:[https://life hacker . com/the-complete-guide-to-saving money-on-textbooks-5613591](https://lifehacker.com/the-complete-guide-to-saving-money-on-textbooks-5613591)
+> 原文：<https://lifehacker.com/the-complete-guide-to-saving-money-on-textbooks-5613591>
 
 随着学生贷款债务达到历史最高水平，教科书的高成本伤害更大。今年，通过正确的方式购买课本，为自己省下一大笔钱。
 

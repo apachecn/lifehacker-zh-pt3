@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 9 日至 16 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-9-to-16-1790159904](https://lifehacker.com/this-weeks-most-popular-posts-december-9th-to-16th-1790159904)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-9th-to-16th-1790159904>
 
 本周，我们学习了如何在酒吧打架中用自己的方式说话，查看了帮助你理财的最佳免费在线课程，尝试了夜间摄影，试用了“远程医疗”应用程序，看看它们能做什么和不能做什么，等等。这里回顾一下。
 

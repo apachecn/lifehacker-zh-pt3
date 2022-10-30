@@ -1,6 +1,6 @@
 # SNES 经典是体验任天堂黄金时代的最佳方式——如果你能得到的话
 
-> 原文:[https://gizmodo . com/snes-classic-is-the-best-way-to-experience-nintendos-go-1818811285](https://gizmodo.com/snes-classic-is-the-best-way-to-experience-nintendos-go-1818811285)
+> 原文：<https://gizmodo.com/snes-classic-is-the-best-way-to-experience-nintendos-go-1818811285>
 
 任天堂在 20 世纪 80 年代和 90 年代创造了一份遗产，并在接下来的历史中密切守护着这份遗产。简而言之，支撑这个游戏巨头度过各种硬件失败的不是其知识产权的价值(数量巨大)——而是怀旧。
 

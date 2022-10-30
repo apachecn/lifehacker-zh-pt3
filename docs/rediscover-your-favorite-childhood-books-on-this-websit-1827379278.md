@@ -1,6 +1,6 @@
 # 在这个网站上重新发现你最喜欢的童年书籍
 
-> 原文:[https://life hacker . com/re discover-your favorite-children-books-on-this-websit-1827379278](https://lifehacker.com/rediscover-your-favorite-childhood-books-on-this-websit-1827379278)
+> 原文：<https://lifehacker.com/rediscover-your-favorite-childhood-books-on-this-websit-1827379278>
 
 那本书叫什么来着？你知道的。从我们小时候开始。这是一本 [儿童章节书](http://w1.loganberrybooks.com/stumpthebookseller/?p=5280) 关于一个家庭搬进旧校舍的故事？
 

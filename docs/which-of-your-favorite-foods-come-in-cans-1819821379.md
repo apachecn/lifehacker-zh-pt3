@@ -1,6 +1,6 @@
 # 你最喜欢的罐头食品是什么？
 
-> 原文:[https://life hacker . com/你最喜欢的罐头食品是哪一种-1819821379](https://lifehacker.com/which-of-your-favorite-foods-come-in-cans-1819821379)
+> 原文：<https://lifehacker.com/which-of-your-favorite-foods-come-in-cans-1819821379>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周，我想和你们谈谈罐头和罐子，以及里面所有好吃的东西。
 

@@ -1,6 +1,6 @@
 # 如何让荧光笔看起来像自己的美肤
 
-> 原文:[https://life hacker . com/how-to-make-highlight-look-like-your own-beautiful-sk-1825600824](https://lifehacker.com/how-to-make-highlighter-look-like-your-own-beautiful-sk-1825600824)
+> 原文：<https://lifehacker.com/how-to-make-highlighter-look-like-your-own-beautiful-sk-1825600824>
 
 大多数人化妆是为了让自己看起来更好；“更好”大致翻译成“更漂亮”，几乎总是“更年轻”的代名词。清新、年轻的光泽 一直是化妆的理想结果，最近突出的爆炸意味着比以往任何时候都更容易实现。
 

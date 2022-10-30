@@ -1,6 +1,6 @@
 # “医生”80%的健康建议是未经证实的
 
-> 原文:[https://life hacker . com/80%的医生建议未经证实-1823264411](https://lifehacker.com/80-percent-of-health-advice-on-the-doctors-is-unprove-1823264411)
+> 原文：<https://lifehacker.com/80-percent-of-health-advice-on-the-doctors-is-unprove-1823264411>
 
 当 [上的医生](https://www.thedoctorstv.com/doctors) 上的医生推荐某种治疗或饮食或补充时，你会觉得*的一些*道理很可能会向他们推荐，对吗？但是对他们的建议以及奥兹医生节目的调查发现，大部分建议可能不值得注意。
 

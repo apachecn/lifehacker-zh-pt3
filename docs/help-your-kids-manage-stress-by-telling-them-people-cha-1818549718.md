@@ -1,6 +1,6 @@
 # 告诉你的孩子人是会变的，帮助他们管理压力
 
-> 原文:[https://life hacker . com/help-your-kids-manage-stress-by-telling-them-people-cha-1818549718](https://lifehacker.com/help-your-kids-manage-stress-by-telling-them-people-cha-1818549718)
+> 原文：<https://lifehacker.com/help-your-kids-manage-stress-by-telling-them-people-cha-1818549718>
 
 青春期是艰难的时期。青少年敏锐地意识到人际关系和社会地位，但他们还没有心理和情感上的毅力让社会斗争从他们的背上滚下来。他们也没有生活经验知道挫折或失败是暂时的，可以克服。
 

@@ -1,6 +1,6 @@
 # 为什么有些职业离婚率较高
 
-> 原文:[https://life hacker . com/why-some-professional-has-high-or-low-离婚率-1819769679](https://lifehacker.com/why-some-professions-have-higher-or-lower-divorce-rates-1819769679)
+> 原文：<https://lifehacker.com/why-some-professions-have-higher-or-lower-divorce-rates-1819769679>
 
 统计学家 Nathan Yau 最近检查了人口普查局从 2015 年开始的 5 年美国社区调查的数据，并计算了哪些职业的离婚率最高和最低 。想要稳定的婚姻？嫁给一个精算师，这个领域有 17%的离婚率。然而，博彩经理和调酒师的婚姻记录不太好，分别为 53%和 52%。
 

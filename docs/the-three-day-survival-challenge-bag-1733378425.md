@@ -1,6 +1,6 @@
 # 三天生存挑战包
 
-> 原文:[https://life hacker . com/the-three-day-survival-challenge-bag-1733378425](https://lifehacker.com/the-three-day-survival-challenge-bag-1733378425)
+> 原文：<https://lifehacker.com/the-three-day-survival-challenge-bag-1733378425>
 
 为周末的生存之旅打包一个背包与仅仅去露营有很大的不同。Reader Pack Config 展示了他们的背包，为为期三天的丛林作战课程做好了准备。
 

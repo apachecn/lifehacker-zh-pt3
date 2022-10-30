@@ -1,6 +1,6 @@
 # 用一周中的货架准备你孩子的校服
 
-> 原文:[https://life hacker . com/prep-your-kids-school-equipment-with-days-the-week-she-1802783055](https://lifehacker.com/prep-your-kids-school-outfits-with-days-of-the-week-she-1802783055)
+> 原文：<https://lifehacker.com/prep-your-kids-school-outfits-with-days-of-the-week-she-1802783055>
 
 每天早上让孩子们出门可能是一件困难的事情，尤其是当他们的清单上有一项任务是挑选一套服装的时候。这个决定意义重大——他想穿他的迪诺内衣，*不，等等*，他的蝙蝠侠内裤，*嘿，昨天有人洗衣服了吗？*、*、T5】哦看，现在他又一丝不挂了。*
 

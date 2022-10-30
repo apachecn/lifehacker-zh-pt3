@@ -1,6 +1,6 @@
 # 管理你的注意力而不是你的时间
 
-> 原文:[https://life hacker . com/manage-your-attention-而不是-your-time-1821986992](https://lifehacker.com/manage-your-attention-instead-of-your-time-1821986992)
+> 原文：<https://lifehacker.com/manage-your-attention-instead-of-your-time-1821986992>
 
 “我太忙了！”“我时间不够！”"要是一天有更多的时间就好了。"奇怪的是，不知所措和忙碌的感觉很少与完成大量工作同时发生。也许问题不在于你没有足够的时间。而是你不够重视。
 

@@ -1,6 +1,6 @@
 # 如何开始木工并制作自己的碗和把手
 
-> 原文:[https://life hacker . com/how-to-start-wood turning-and-make-your-own-bowls-and-ha-1736408035](https://lifehacker.com/how-to-start-woodturning-and-make-your-own-bowls-and-ha-1736408035)
+> 原文：<https://lifehacker.com/how-to-start-woodturning-and-make-your-own-bowls-and-ha-1736408035>
 
 木工是一个巨大的爱好，可以持续一生，但随着你技能的增长，对更大更贵工具的需求也在增长。尝试一下木工的专业技能，你就可以用一些基本的工具在不到一个小时的时间内完成项目。
 

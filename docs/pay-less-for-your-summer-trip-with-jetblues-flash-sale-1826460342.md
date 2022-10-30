@@ -1,6 +1,6 @@
 # 通过捷蓝航空的闪购活动，为您的夏季旅行节省开支
 
-> 原文:[https://life hacker . com/pay-less-for-your ' s summer-trip with jetblues-flash-sale-1826460342](https://lifehacker.com/pay-less-for-your-summer-trip-with-jetblues-flash-sale-1826460342)
+> 原文：<https://lifehacker.com/pay-less-for-your-summer-trip-with-jetblues-flash-sale-1826460342>
 
 如果你还没有预订夏季旅行，你还有几个小时可以利用捷蓝航空的 [夏季](https://www.jetblue.com/deals/sale-into-summer/) 活动，抢购单程低至 34 美元的机票。
 

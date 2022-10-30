@@ -1,6 +1,6 @@
 # 看看被不公平诽谤的金枪鱼砂锅的辉煌
 
-> 原文:[https://the take out . com/looke-the-premium-of-the-illuminance-the-una-casse-1822583331](https://thetakeout.com/behold-the-splendor-of-the-unfairly-maligned-tuna-casse-1822583331)
+> 原文：<https://thetakeout.com/behold-the-splendor-of-the-unfairly-maligned-tuna-casse-1822583331>
 
 *在* [**仓促的美食**](https://thetakeout.com/tag/hasty-gourmet) *，*外卖*的作者提供可靠的食谱，只需很少的配料和最少的努力，就值得在晚宴上享用。*
 

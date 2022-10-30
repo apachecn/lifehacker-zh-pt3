@@ -1,6 +1,6 @@
 # 如何把你喜欢的任何酒精变成美味的冰棍
 
-> 原文:[https://life hacker . com/how-to-turn-any-alcohol-you-like-to-tasty-frozen-pops-1782920583](https://lifehacker.com/how-to-turn-any-alcohol-you-like-into-tasty-frozen-pops-1782920583)
+> 原文：<https://lifehacker.com/how-to-turn-any-alcohol-you-like-into-tasty-frozen-pops-1782920583>
 
 酒精冰棒是一个伟大的概念，但由于乙醇的冰点较低，这并不像将一些酒倒入冰棒模具并扔进冰箱那么简单。但不要让这阻止你做出美味的冰冻烈酒。你所需要做的就是关注 ABV。
 

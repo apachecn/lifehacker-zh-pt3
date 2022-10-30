@@ -1,6 +1,6 @@
 # 在你的浴室里放一个砧板来平衡小柜台
 
-> 原文:[https://life hacker . com/keep-a-cutting-board-in-your ' s television-to-balance-sm-1820734946](https://lifehacker.com/keep-a-cutting-board-in-your-bathroom-to-balance-out-sm-1820734946)
+> 原文：<https://lifehacker.com/keep-a-cutting-board-in-your-bathroom-to-balance-out-sm-1820734946>
 
 你认为砧板属于厨房吗？拓展你的思维！扩大你的浴室柜台空间！在浴室里放一个砧板。
 

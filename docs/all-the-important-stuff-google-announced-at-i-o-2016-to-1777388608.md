@@ -1,6 +1,6 @@
 # 谷歌今天在 I/O 2016 上宣布的所有重要内容
 
-> 原文:[https://life hacker . com/all-the-important-stuff-Google-announced-at-I-o-2016-to-1777388608](https://lifehacker.com/all-the-important-stuff-google-announced-at-i-o-2016-to-1777388608)
+> 原文：<https://lifehacker.com/all-the-important-stuff-google-announced-at-i-o-2016-to-1777388608>
 
 今天，谷歌抛出了一个新闻集群炸弹，推出了 Android VR，一个新的谷歌助手，和一个类似亚马逊 Echo 的谷歌 Home hub。这是今天主题演讲中最酷的东西。
 

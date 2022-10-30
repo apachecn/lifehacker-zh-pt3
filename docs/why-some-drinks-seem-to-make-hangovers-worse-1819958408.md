@@ -1,6 +1,6 @@
 # 为什么有些饮料似乎会让宿醉更严重
 
-> 原文:[https://life hacker . com/why-some-drinks-see-make-宿醉更糟-1819958408](https://lifehacker.com/why-some-drinks-seem-to-make-hangovers-worse-1819958408)
+> 原文：<https://lifehacker.com/why-some-drinks-seem-to-make-hangovers-worse-1819958408>
 
 宿醉太可怕了。没有人想得这种病，但是完全避免这种病的唯一方法就是不喝酒，这对于那些想喝点鸡尾酒的人来说也不是一件有趣的事情。
 

@@ -1,6 +1,6 @@
 # 同性伴侣们，今晚就这么做吧:为了更好的性生活，玩“比较游戏”
 
-> 原文:[https://life hacker . com/do-this-tonight-同性伴侣-玩比较-1738935731](https://lifehacker.com/do-this-tonight-same-sex-couples-play-the-comparison-1738935731)
+> 原文：<https://lifehacker.com/do-this-tonight-same-sex-couples-play-the-comparison-1738935731>
 
 今天我们有一个任务给那些和你一样两腿之间有同样事情的人睡觉的人。这是一个简单的游戏，可以帮助你更好地了解你们每个人在卧室里喜欢什么。
 

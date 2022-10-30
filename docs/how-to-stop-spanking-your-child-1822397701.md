@@ -1,6 +1,6 @@
 # 如何停止打孩子的屁股
 
-> 原文:[https://life hacker . com/how-to-stop-spanking-your-child-1822397701](https://lifehacker.com/how-to-stop-spanking-your-child-1822397701)
+> 原文：<https://lifehacker.com/how-to-stop-spanking-your-child-1822397701>
 
 我只记得小时候打过一次屁股。我们家的规矩是，父母上班时，我的保姆格洛丽亚是老板。好吧，在这种情况下，我不服从和不尊重她(当然，我记得打屁股，而不是确切的进攻)。当我父亲回家后，他认为我需要被打一顿。我被带进备用的卧室，屁股上挨了一拳。我爸问疼不疼。
 

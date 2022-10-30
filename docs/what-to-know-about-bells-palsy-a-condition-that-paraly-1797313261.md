@@ -1,6 +1,6 @@
 # 关于贝尔氏麻痹，一种使你半边脸瘫痪的疾病，你该知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-about-bells-palla-a-condition-that-paralyi-1797313261](https://lifehacker.com/what-to-know-about-bells-palsy-a-condition-that-paraly-1797313261)
+> 原文：<https://lifehacker.com/what-to-know-about-bells-palsy-a-condition-that-paraly-1797313261>
 
 安吉丽娜·朱莉 [在名利场采访](http://www.vanityfair.com/hollywood/2017/07/angelina-jolie-cover-story) 中透露，她去年患上了贝尔氏麻痹，导致她一侧面部瘫痪。这种情况可能会突然出现，但往往会在几周或几个月内自行消失。(朱莉后来康复了。)
 

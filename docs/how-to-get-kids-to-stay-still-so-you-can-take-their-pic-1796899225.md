@@ -1,6 +1,6 @@
 # 如何让孩子们保持不动，这样你就可以给他们拍照了
 
-> 原文:[https://life hacker . com/how-to-get-kids-to-stay-so-you-can-take-thes-pic-1796899225](https://lifehacker.com/how-to-get-kids-to-stay-still-so-you-can-take-their-pic-1796899225)
+> 原文：<https://lifehacker.com/how-to-get-kids-to-stay-still-so-you-can-take-their-pic-1796899225>
 
 给孩子拍照可能会很难——首先，你必须记住如何拍出一张好照片，然后你必须与坐立不安的对象打交道。作为编辑摄影的负责人，肖恩·甘姆与 [zulily](http://zulily.com/) 的内部团队合作，协调每周平均 91 个孩子的摄影作品。他给了我们一些建议，让孩子们保持不动，这样你就能拍出好照片。
 

@@ -1,6 +1,6 @@
 # 为什么你应该让你的孩子在纹身店穿耳洞
 
-> 原文:[https://life hacker . com/get-your-kids-at-a-tattoo-shop-the-1796634137](https://lifehacker.com/get-your-kids-ears-pierced-at-a-tattoo-shop-because-the-1796634137)
+> 原文：<https://lifehacker.com/get-your-kids-ears-pierced-at-a-tattoo-shop-because-the-1796634137>
 
 我 10 岁的时候打了耳洞。我姑姑带我去商场的克莱尔商店，在那里我浏览了一个诞生石耳环的展示，挑了一对闪闪发光的水晶耳环，然后坐在椅子上，拥抱了这只巨大的安慰熊，一名年轻的员工用穿孔枪瞄准了我的耳垂。三十秒后，我穿了耳洞！
 

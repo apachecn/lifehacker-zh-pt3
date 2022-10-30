@@ -1,6 +1,6 @@
 # 2017 年最具争议的帖子
 
-> 原文:[https://life hacker . com/the-most-contractive-posts-of-2017-1821611568](https://lifehacker.com/the-most-controversial-posts-of-2017-1821611568)
+> 原文：<https://lifehacker.com/the-most-controversial-posts-of-2017-1821611568>
 
 在互联网上不可能让每个人都满意，但有时你会触动网上的神经，事情会变得有点激烈。以下是 2017 年让你热血沸腾的一些帖子。
 

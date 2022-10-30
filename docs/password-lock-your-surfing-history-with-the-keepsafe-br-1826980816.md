@@ -1,6 +1,6 @@
 # 使用 Keepsafe 浏览器用密码锁定您的网上冲浪记录
 
-> 原文:[https://life hacker . com/password-lock-your-surfing-history-with-the-keep safe-br-1826980816](https://lifehacker.com/password-lock-your-surfing-history-with-the-keepsafe-br-1826980816)
+> 原文：<https://lifehacker.com/password-lock-your-surfing-history-with-the-keepsafe-br-1826980816>
 
 iOS，Android: Keepsafe，这是一家专注于隐私应用的公司，如[iMessage](https://itunes.apple.com/us/app/blur-share-disappearing-private-photos/id1140575779?mt=8)Blur 和 Private Photo Vault([iOS](https://itunes.apple.com/us/app/private-photo-vault-pic-safe/id417571834?mt=8)， [Android](https://play.google.com/store/apps/details?id=com.enchantedcloud.photovault&hl=en_US) )，本周推出了一款用于私人浏览网页的新应用。这款浏览器名为 keep safe Browser([iOS](https://itunes.apple.com/us/app/keepsafe-browser/id1376495230?ls=1&mt=8)， [Android](https://play.google.com/store/apps/details?id=com.getkeepsafe.browser&referrer=adjust_reftag%3DcVtLTVxM8lJiA%26utm_source%3Dkswebsite%26utm_campaign%3Dandroid%2Bproduct%2Bpage) )，它可以防止第三方追踪者窥探你的手机网页浏览，并带有内置的广告拦截器，让你在浏览网页时拥有更多隐私。
 

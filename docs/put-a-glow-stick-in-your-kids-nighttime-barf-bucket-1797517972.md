@@ -1,6 +1,6 @@
 # 在你孩子的夜间呕吐桶里放一根荧光棒
 
-> 原文:[https://life hacker . com/put-a-glow-stick-in-your-kids-night-barf-bucket-1797517972](https://lifehacker.com/put-a-glow-stick-in-your-kids-nighttime-barf-bucket-1797517972)
+> 原文：<https://lifehacker.com/put-a-glow-stick-in-your-kids-nighttime-barf-bucket-1797517972>
 
 有个生病的孩子很难。有一个呕吐的生病的孩子是困难和混乱的。有一个生病的孩子在黑暗中呕吐是很难的，肮脏的，可怕的。
 

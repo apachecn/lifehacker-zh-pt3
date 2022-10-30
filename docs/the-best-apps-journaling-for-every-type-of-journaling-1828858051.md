@@ -1,6 +1,6 @@
 # 适合各种类型日志的最佳应用
 
-> 原文:[https://life hacker . com/the-best-apps-journaling-for-every-type-of-journaling-1828858051](https://lifehacker.com/the-best-apps-journaling-for-every-type-of-journaling-1828858051)
+> 原文：<https://lifehacker.com/the-best-apps-journaling-for-every-type-of-journaling-1828858051>
 
 通常，当我们想到写日记时，想到的是老式的纸笔方法。但是当然，现在每个活动都有一个数字版本，并且有大量优秀的应用程序和软件可以将你的记忆保存在一个地方。有几乎无穷无尽的选项可供选择，所以我们总结了目前可用的最佳选项，这取决于您希望如何使用它们以及您的目标是什么。
 

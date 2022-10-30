@@ -1,6 +1,6 @@
 # 使用您的飞行常客里程帮助在边境失散的家庭
 
-> 原文:[https://life hacker . com/use-your-frequent-flyer-miles-to-help-families-separate-1828161339](https://lifehacker.com/use-your-frequent-flyer-miles-to-help-families-separate-1828161339)
+> 原文：<https://lifehacker.com/use-your-frequent-flyer-miles-to-help-families-separate-1828161339>
 
 如果你经常旅行，并且有尚未使用的里程，可以考虑将其捐赠给一个组织，该组织可以使用这些里程让在美墨边境失散的家人团聚。
 

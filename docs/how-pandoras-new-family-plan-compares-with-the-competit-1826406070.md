@@ -1,6 +1,6 @@
 # 潘多拉的新家庭计划与竞争对手相比如何
 
-> 原文:[https://life hacker . com/how-pandoras-new-family-plan-comparison-the-competit it-1826406070](https://lifehacker.com/how-pandoras-new-family-plan-compares-with-the-competit-1826406070)
+> 原文：<https://lifehacker.com/how-pandoras-new-family-plan-compares-with-the-competit-1826406070>
 
 本周，潘多拉公布了一项新的家庭计划，允许同一家庭的六个不同成员以一个价格使用这项服务。“家庭计划”的概念在音乐流媒体领域并不新鲜；Spotify 和 Apple Music 都有类似的服务，价格都是每月 15 美元。
 

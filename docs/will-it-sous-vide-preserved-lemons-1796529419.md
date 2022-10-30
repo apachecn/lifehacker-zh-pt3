@@ -1,6 +1,6 @@
 # 它会腐烂吗？柠檬脯
 
-> 原文:[https://life hacker . com/will-it-sous-vide-preserved-lemons-1796529419](https://lifehacker.com/will-it-sous-vide-preserved-lemons-1796529419)
+> 原文：<https://lifehacker.com/will-it-sous-vide-preserved-lemons-1796529419>
 
 欢迎来到本周的 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏，我通常用我的沉浸式循环器在那里制作你想要我做的任何东西。本周早些时候，我在做一个超级秘密和令人兴奋的视频项目，所以我决定为本周的专栏做一个快速而简单的实验，看看我是否能快速做出通常需要几周时间才能做出的酸甜调味品。
 

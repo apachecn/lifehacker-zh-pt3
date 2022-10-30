@@ -1,6 +1,6 @@
 # 如何停止成为一个懒惰的垃圾
 
-> 原文:[https://life hacker . com/how-to-stop-be-a-lazy-piece-a-garbage-1795260080](https://lifehacker.com/how-to-stop-being-a-lazy-piece-of-garbage-1795260080)
+> 原文：<https://lifehacker.com/how-to-stop-being-a-lazy-piece-of-garbage-1795260080>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到艰难的爱。
 

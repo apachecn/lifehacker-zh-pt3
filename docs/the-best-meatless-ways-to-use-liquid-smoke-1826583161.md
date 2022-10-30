@@ -1,6 +1,6 @@
 # 使用熏液的最佳无肉方法
 
-> 原文:[https://life hacker . com/the-best-meat-less-way-to-use-liquid-smoke-1826583161](https://lifehacker.com/the-best-meatless-ways-to-use-liquid-smoke-1826583161)
+> 原文：<https://lifehacker.com/the-best-meatless-ways-to-use-liquid-smoke-1826583161>
 
 熏液是一种添加剂，它能在不吸烟的情况下给食物带来一种烧焦的木头味道，这种添加剂被认为是“欺骗”和“肮脏”的，但如果用一只精致的手来使用，它可以产生一些美味的效果..我喜欢我的 [公寓里的液体烟——被批准的无烟、腌制排骨](https://lifehacker.com/you-can-make-these-smoky-sous-vide-ribs-without-a-gril-1826330999) ，但它还有其他巧妙的用途，这些都与肉无关。
 

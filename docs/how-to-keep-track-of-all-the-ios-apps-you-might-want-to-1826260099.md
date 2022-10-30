@@ -1,6 +1,6 @@
 # 如何跟踪您以后可能想要下载的所有 iOS 应用程序
 
-> 原文:[https://life hacker . com/how-to-keep-track-of-all-the-IOs-apps-you-may-want-to 1826260099](https://lifehacker.com/how-to-keep-track-of-all-the-ios-apps-you-might-want-to-1826260099)
+> 原文：<https://lifehacker.com/how-to-keep-track-of-all-the-ios-apps-you-might-want-to-1826260099>
 
 有多少次你在 App Store 上看到一个应用程序，然后想“我应该买那个，但是也许以后吧”？你甚至可以推迟下载免费应用程序——有些东西可能会引起你的兴趣，但你可能会因为各种原因而不想立即下载到你的 iPhone 或 iPad 上。
 

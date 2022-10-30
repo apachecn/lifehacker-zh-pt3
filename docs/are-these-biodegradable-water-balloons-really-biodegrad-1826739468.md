@@ -1,6 +1,6 @@
 # 这些‘可生物降解’的水球真的是可生物降解的吗？
 
-> 原文:[https://life hacker . com/is-这些-可生物降解-水球-真的-生物降解-1826739468](https://lifehacker.com/are-these-biodegradable-water-balloons-really-biodegrad-1826739468)
+> 原文：<https://lifehacker.com/are-these-biodegradable-water-balloons-really-biodegrad-1826739468>
 
 如何在 1987 年装满一个水球:站在浴室的水槽旁，小心地拉着水龙头周围的气球唇(有 30%的可能性气球会在这一点上撕裂)，打开水，看着气球膨胀，试图在气球的绝对最大尺寸时关闭水(如果你能在它破裂前让它长得像胡桃南瓜一样大，你就是夏天的英雄)，将气球的颈部缠绕在你的手指上，直到它们变蓝，系紧它，然后放入桶中。继续前进到二号气球。
 

@@ -1,6 +1,6 @@
 # 如果你的报税人出错了该怎么办
 
-> 原文:[https://life hacker . com/what-do-if the-your-tax-preparer-make-a-mistake-1823992244](https://lifehacker.com/what-to-do-if-your-tax-preparer-makes-a-mistake-1823992244)
+> 原文：<https://lifehacker.com/what-to-do-if-your-tax-preparer-makes-a-mistake-1823992244>
 
 如果你雇佣了一个税务筹划者，你这么做可能很大程度上是因为它提供了内心的平静，通过保证所有复杂的扣除和费用都被计算在内——没有人愿意与 IRS 打交道，除非绝对必要。但有时即使是专业人士也会搞砸。
 

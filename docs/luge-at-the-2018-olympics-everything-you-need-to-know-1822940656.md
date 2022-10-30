@@ -1,6 +1,6 @@
 # 2018 年奥运会上的雪橇:你需要知道的一切
 
-> 原文:[https://life hacker . com/luge-at-the-2018-Olympics-everything-you-need-to-know-1822940656](https://lifehacker.com/luge-at-the-2018-olympics-everything-you-need-to-know-1822940656)
+> 原文：<https://lifehacker.com/luge-at-the-2018-olympics-everything-you-need-to-know-1822940656>
 
 雪橇在平昌快速驶过。男子单打比赛已经结束，美国队的克里斯·马泽获得银牌。周二和周三将揭晓女子单打和双打冠军，周四是团体接力赛。所以在准备阶段，雪橇到底是什么？
 

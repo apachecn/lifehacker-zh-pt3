@@ -1,6 +1,6 @@
 # 良好反馈的六个品质
 
-> 原文:[https://life hacker . com/the-six-qualities-of-good-feedback-1776302054](https://lifehacker.com/the-six-qualities-of-good-feedback-1776302054)
+> 原文：<https://lifehacker.com/the-six-qualities-of-good-feedback-1776302054>
 
 不管你以什么为生，总有一天，你会和别人交流你对别人工作的感受。表面上，提供反馈听起来很容易。然而，当你处于困境时——无论是分享你对新网站设计的想法，还是在 360 度评估中对同事的看法——我们被要求提供反馈的时候可能会很艰难。
 

@@ -1,6 +1,6 @@
 # 你的胆固醇值到底意味着什么
 
-> 原文:[https://life hacker . com/what-your-cholestery-numbers-really-mean-1824201588](https://lifehacker.com/what-your-cholesterol-numbers-really-mean-1824201588)
+> 原文：<https://lifehacker.com/what-your-cholesterol-numbers-really-mean-1824201588>
 
 低密度脂蛋白曾经是“坏胆固醇”，高密度脂蛋白是“好胆固醇”。这是 13 年前我在研究生院脂类课上学到的有趣的故事，但科学从那时起已经发生了变化。例如，高 HDL 不再是自动好的。让我们来看看你的胆固醇值到底意味着什么。
 

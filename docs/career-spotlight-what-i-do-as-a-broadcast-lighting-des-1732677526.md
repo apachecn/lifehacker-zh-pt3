@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名广播灯光设计师做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-broadcast-lighting-des-1732677526](https://lifehacker.com/career-spotlight-what-i-do-as-a-broadcast-lighting-des-1732677526)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-broadcast-lighting-des-1732677526>
 
 如果你以前从未在电影布景上花过时间，你可能会惊讶于灯光设计上花了多少心思。设计师不只是出现和按一下开关——这是一个复杂的规划过程，直接影响广播、电影或表演的情绪。
 

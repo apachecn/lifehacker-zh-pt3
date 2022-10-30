@@ -1,6 +1,6 @@
 # 如何清洁特别脏的浴室
 
-> 原文:[https://deadspin . com/how-to-clean-a-extra-evil-1730514191](https://deadspin.com/how-to-clean-an-extra-foul-bathroom-1730514191)
+> 原文：<https://deadspin.com/how-to-clean-an-extra-foul-bathroom-1730514191>
 
 朱莉·克尔是清洁专家和建议专栏作家。她每隔一周就会来这里[](http://deadspin.com/tag/ask-a-clean-person)**帮助回答你最肮脏的问题。你脏吗？查看* [*角污档案*](http://joliekerr.kinja.com/the-squalor-archive-1477136378) *寻求帮助。你还脏吗？* [*电邮她*](https://mail.google.com/mail/?view=cm&fs=1&tf=1&to=joliekerr@gmail.com) *。**
 

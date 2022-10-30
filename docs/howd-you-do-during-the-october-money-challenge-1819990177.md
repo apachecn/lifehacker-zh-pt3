@@ -1,6 +1,6 @@
 # 你在十月的金钱挑战中表现如何？
 
-> 原文:[https://life hacker . com/howd-you-do-in-October-money-challenge-1819990177](https://lifehacker.com/howd-you-do-during-the-october-money-challenge-1819990177)
+> 原文：<https://lifehacker.com/howd-you-do-during-the-october-money-challenge-1819990177>
 
 是时候结束另一场金钱挑战了，伙计们！10 月份，我们向你发出挑战，通过清理你的衣柜和 [出售你的垃圾](https://twocents.lifehacker.com/october-s-money-challenge-clean-out-your-closets-for-c-1819076711) 来赚点外快。如果你参与了，我们想知道结果如何。
 

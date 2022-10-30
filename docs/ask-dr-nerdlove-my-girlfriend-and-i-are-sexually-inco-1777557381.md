@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我和我的女朋友在性方面是不相容的
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-and-I-is-sexual-inco-1777557381](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-and-i-are-sexually-inco-1777557381)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-and-i-are-sexually-inco-1777557381>
 
 你们好，所有令人毛骨悚然的爱侣们，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是《萨科维亚协议》涵盖的唯一一个约会建议专栏。
 

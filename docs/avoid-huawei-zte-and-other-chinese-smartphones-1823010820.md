@@ -1,6 +1,6 @@
 # 避开华为、中兴和其他中国智能手机
 
-> 原文:[https://life hacker . com/avoid-Huawei-ZTE-and-other-Chinese-smarts-1823010820](https://lifehacker.com/avoid-huawei-zte-and-other-chinese-smartphones-1823010820)
+> 原文：<https://lifehacker.com/avoid-huawei-zte-and-other-chinese-smartphones-1823010820>
 
 如果你正在寻找一款新的智能手机，六位美国情报负责人建议你应该避免购买中国制造商华为或中兴的智能手机。当然，他们有漂亮的屏幕和不错的价位，但智能手机不仅仅是尺寸。此外，它们可能会带来网络安全风险。
 

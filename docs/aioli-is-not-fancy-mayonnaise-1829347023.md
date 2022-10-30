@@ -1,6 +1,6 @@
 # 蛋黄酱不是“花式蛋黄酱”
 
-> 原文:[https://life hacker . com/aioli-is-not-fancy-蛋黄酱-1829347023](https://lifehacker.com/aioli-is-not-fancy-mayonnaise-1829347023)
+> 原文：<https://lifehacker.com/aioli-is-not-fancy-mayonnaise-1829347023>
 
 似乎，为了重塑蛋黄酱的品牌，各种时尚食品公司坚持将各种奶油调味品称为“蛋黄酱”，我拒绝袖手旁观，任其发展。蛋黄酱是*而不是*，因为有些人会让你相信“花式蛋黄酱”Aioli 是它自己的，非常具体的东西，而且很神奇。
 

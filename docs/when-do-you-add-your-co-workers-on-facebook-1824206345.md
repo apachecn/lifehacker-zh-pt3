@@ -1,6 +1,6 @@
 # 你什么时候在脸书上添加你的同事？
 
-> 原文:[https://life hacker . com/when-do-you-add-your-co-workers-on-Facebook-1824206345](https://lifehacker.com/when-do-you-add-your-co-workers-on-facebook-1824206345)
+> 原文：<https://lifehacker.com/when-do-you-add-your-co-workers-on-facebook-1824206345>
 
 决定何时和谁在脸书交友可能会很有压力。在工作场所做出这样的决定在各种层面上都令人担忧。什么时候同事会赢得脸书友谊？
 

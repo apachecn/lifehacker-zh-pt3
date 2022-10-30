@@ -1,6 +1,6 @@
 # 把服务放在你的婴儿登记簿上
 
-> 原文:[https://life hacker . com/put-services-on-your-baby-registry-1827846200](https://lifehacker.com/put-services-on-your-baby-registry-1827846200)
+> 原文：<https://lifehacker.com/put-services-on-your-baby-registry-1827846200>
 
 我们以前写过，给新父母最好的礼物是服务，而不是东西 。但你的朋友和家人可能没有意识到这一点，所以在你的婴儿送礼会上，他们会递给你一顶饰有小鸭子的帽子，你的新包裹会戴着它在 Instagram 上拍一张可爱的照片，然后再也不会看到它。他们本意是好的，但可能需要——也可能会感激——一些指导。
 

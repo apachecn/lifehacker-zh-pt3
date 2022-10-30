@@ -1,6 +1,6 @@
 # 通过这本词典了解宜家产品名称的实际含义
 
-> 原文:[https://life hacker . com/learn-what-IKEA-product-names-actually-mean-with this-d-1819620412](https://lifehacker.com/learn-what-ikea-product-names-actually-mean-with-this-d-1819620412)
+> 原文：<https://lifehacker.com/learn-what-ikea-product-names-actually-mean-with-this-d-1819620412>
 
 宜家产品有各种各样有趣的名字。有些是瑞典语单词，有些是以地名命名的，有些只是由其他单词混合而成的杜撰名称。这本字典把它们都列出来了。
 

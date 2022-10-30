@@ -1,6 +1,6 @@
 # 在家带孩子时如何完成工作
 
-> 原文:[https://life hacker . com/how-to-get-work-done-when you-home-a-baby-1823152539](https://lifehacker.com/how-to-get-work-done-when-youre-home-with-a-baby-1823152539)
+> 原文：<https://lifehacker.com/how-to-get-work-done-when-youre-home-with-a-baby-1823152539>
 
 我不会粉饰这一点。一边照顾婴儿一边努力工作通常是一团糟。你累坏了。你无法形成连贯的思想。你一直都有负罪感，因为你一边工作一边想着你的孩子，一边想着你的工作。你依赖于那个全能的午睡，但它是不可预测的，即使它发生了，也有一百件家务等着你去做。你会觉得你在两个不同的世界里有两个不同的老板——其中一个还不停地要牛奶。
 

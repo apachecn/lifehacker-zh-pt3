@@ -1,6 +1,6 @@
 # 如何禁用谷歌地图中的餐厅推荐
 
-> 原文:[https://life hacker . com/how-to-disable-restaurant-recommendations-in-Google-map-1828108958](https://lifehacker.com/how-to-disable-restaurant-recommendations-in-google-map-1828108958)
+> 原文：<https://lifehacker.com/how-to-disable-restaurant-recommendations-in-google-map-1828108958>
 
 最近几个月，谷歌地图相当执着地让我知道哪里有它认为我应该去尝试的餐馆，或者我家附近新开的餐馆——我讨厌这样。事实证明，我真的不需要这个应用程序来告诉我周围发生了什么，随着每个热门的提示我越来越恼火。
 

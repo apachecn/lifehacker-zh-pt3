@@ -1,6 +1,6 @@
 # 如何为您的三星智能手机获取 Android P 的新“最近应用”布局
 
-> 原文:[https://life hacker . com/how-to-get-Android-PS-new-recent-apps-layout-for-your-s-1827113803](https://lifehacker.com/how-to-get-android-ps-new-recent-apps-layout-for-your-s-1827113803)
+> 原文：<https://lifehacker.com/how-to-get-android-ps-new-recent-apps-layout-for-your-s-1827113803>
 
 Android P 有一个全新的应用切换器，可以将传统的垂直视图改变为更直观的水平布局。虽然大多数 Android 用户必须等到 Android P 出现在他们的设备上才能获得新的外观，但三星已经通过其 Good Lock 应用程序为 Galaxy S7，S8，S9 和 Note 8 用户提供了新的外观。
 

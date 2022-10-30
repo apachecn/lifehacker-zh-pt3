@@ -1,6 +1,6 @@
 # 在你的新亚马逊 Echo 上启用的第一个 Alexa 技能
 
-> 原文:[https://life hacker . com/the-first-Alexa-skills-to-enable-on-your-new-Amazon-ech-1796841634](https://lifehacker.com/the-first-alexa-skills-to-enable-on-your-new-amazon-ech-1796841634)
+> 原文：<https://lifehacker.com/the-first-alexa-skills-to-enable-on-your-new-amazon-ech-1796841634>
 
 所以，你在黄金时段买了一台亚马逊 Echo，但除了问它一些愚蠢的问题、设置定时器和掷骰子之外，你不知道该用它做什么。在你归还之前，要知道你还可以用这个智能音箱做很多其他的事情。
 

@@ -1,6 +1,6 @@
 # 如果你是在家工作的父母，为什么你应该考虑日托
 
-> 原文:[https://life hacker . com/send-your-kids-to-day-care-if-you-work-from-home-1823200599](https://lifehacker.com/send-your-kids-to-day-care-if-you-work-from-home-1823200599)
+> 原文：<https://lifehacker.com/send-your-kids-to-day-care-if-you-work-from-home-1823200599>
 
 我有三个孩子，我在家工作。甚至当我有一个或两个孩子的时候，那个“你是做什么的？”你和半陌生人的谈话总是演变成他们对我能兼顾孩子和工作的赞赏。有时候他们问我是怎么做到的；有时他们会说“我试过了，但是太难了。”人们。停下来。我有一个秘密，那就是*日托*。
 

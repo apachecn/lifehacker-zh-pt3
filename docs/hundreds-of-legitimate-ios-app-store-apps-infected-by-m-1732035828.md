@@ -1,6 +1,6 @@
 # 数百个合法的 iOS 应用程序被恶意软件感染，从应用程序商店中删除
 
-> 原文:[https://life hacker . com/数百-合法-IOs-app-store-apps-infected-by-m-1732035828](https://lifehacker.com/hundreds-of-legitimate-ios-app-store-apps-infected-by-m-1732035828)
+> 原文：<https://lifehacker.com/hundreds-of-legitimate-ios-app-store-apps-infected-by-m-1732035828>
 
 苹果周日宣布，其 App Store 上的数百款合法应用受到了恶意软件的感染。该公司已经删除了受感染的版本。如果您仍然安装了它们，最好现在就停止使用它们。
 

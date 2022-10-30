@@ -1,6 +1,6 @@
 # 如何像专业人士一样烤人
 
-> 原文:[https://life hacker . com/how-to-bake-someone-like-a-pro-1825661960](https://lifehacker.com/how-to-roast-someone-like-a-pro-1825661960)
+> 原文：<https://lifehacker.com/how-to-roast-someone-like-a-pro-1825661960>
 
 除非你本周末在阿巴拉契亚小径徒步旅行，否则你可能知道米歇尔·沃尔夫(Michelle Wolf)在周六晚上的白宫记者晚宴上发表了标准的“烤肉”，并发表了一些讽刺特朗普政府和媒体的精选台词。从人们的反应来看，你会觉得沃尔夫整晚都在嘲笑莎拉·哈克比·桑德斯的长相，这是情有可原的
 

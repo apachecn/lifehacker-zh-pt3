@@ -1,6 +1,6 @@
 # 如何使用脸书找到 WiFi 热点
 
-> 原文:[https://life hacker . com/how-to-find-a-wifi-hotspot-using-Facebook-1796565825](https://lifehacker.com/how-to-find-a-wifi-hotspot-using-facebook-1796565825)
+> 原文：<https://lifehacker.com/how-to-find-a-wifi-hotspot-using-facebook-1796565825>
 
 如果你出门在外，需要无线网络，现在脸书可以帮你找到。该社交网络的“查找 WiFi”功能最初只在少数几个国家可用，现在全球都可以使用。有了它，您可以定位可用的热点和附近的企业，这样您就可以快速找到您附近的地点。
 

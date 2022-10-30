@@ -1,6 +1,6 @@
 # 为了打字更快，在你的键盘上放一个凸起
 
-> 原文:[https://life hacker . com/for-fast-touch-typing-put-a-bump-on-your-keyboard-1796456723](https://lifehacker.com/for-faster-touch-typing-put-a-bump-on-your-keyboard-1796456723)
+> 原文：<https://lifehacker.com/for-faster-touch-typing-put-a-bump-on-your-keyboard-1796456723>
 
 我的 MacBook 有一个设计糟糕的键盘问题，我知道苹果不会为我解决这个问题。在较旧的 MacBook 键盘上，箭头键大小相同，顶部箭头键的左右两侧有两个空白空间，提供了一个触觉参考点，并在全尺寸键和半尺寸箭头键之间提供了清晰的轮廓。在最新的 MacBooks 上，左右箭头键是全尺寸键，去掉了那个方便的空白空间。
 

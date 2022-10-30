@@ -1,6 +1,6 @@
 # 动员你的民主党朋友在下一次选举中用这个应用程序投票
 
-> 原文:[https://life hacker . com/mobilize-your-Democrat-friends-to-vote-in-the-next-elec-1828680868](https://lifehacker.com/mobilize-your-democrat-friends-to-vote-in-the-next-elec-1828680868)
+> 原文：<https://lifehacker.com/mobilize-your-democrat-friends-to-vote-in-the-next-elec-1828680868>
 
 如果说去年的总统选举教会了我们什么，那就是投票很重要。不管你的政治倾向是什么，投票都很重要，我们都应该鼓励我们的朋友和家人去投票。现在有了一个应用程序。
 

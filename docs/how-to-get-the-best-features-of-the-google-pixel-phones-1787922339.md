@@ -1,6 +1,6 @@
 # 如何立即获得谷歌 Pixel 手机的最佳功能
 
-> 原文:[https://life hacker . com/how-to-get-the-best-features-of-the-Google-pixel-phones-1787922339](https://lifehacker.com/how-to-get-the-best-features-of-the-google-pixel-phones-1787922339)
+> 原文：<https://lifehacker.com/how-to-get-the-best-features-of-the-google-pixel-phones-1787922339>
 
 谷歌的新 Pixel 手机有一些很棒的新功能。谷歌的新智能助手，照片和视频的无限云存储，等等都是卷进来的。不过，通过一点巧妙的调整，在 Pixel 问世之前，你就可以在手机上获得大部分最大、最好的功能。
 

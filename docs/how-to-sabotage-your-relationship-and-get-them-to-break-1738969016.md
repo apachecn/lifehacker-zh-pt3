@@ -1,6 +1,6 @@
 # 如何破坏你们的关系，让他们和你分手
 
-> 原文:[https://life hacker . com/how-to-desrupt-your-relationship and-get-them-break-1738969016](https://lifehacker.com/how-to-sabotage-your-relationship-and-get-them-to-break-1738969016)
+> 原文：<https://lifehacker.com/how-to-sabotage-your-relationship-and-get-them-to-break-1738969016>
 
 我们很清楚是什么让关系成功，也让关系失败。如果你太懦弱，不敢自己和别人分手，下面是如何反其道而行之，让他们和你分手。
 

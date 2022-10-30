@@ -1,6 +1,6 @@
 # 你应该喂你的狗无谷物食物吗？
 
-> 原文:[https://life hacker . com/should-you-feed-your-dog-grain-free-food-1828133121](https://lifehacker.com/should-you-feed-your-dog-grain-free-food-1828133121)
+> 原文：<https://lifehacker.com/should-you-feed-your-dog-grain-free-food-1828133121>
 
 部分(不是全部！在几只食用了无谷物狗粮的狗患上了一种罕见的犬类心脏病后，无谷物狗粮正受到美国食品和药物管理局的额外审查。你不必仅仅因为它不含谷物就放弃你的狗最喜欢的食物，但值得看看你为什么选择它，它是否真的是最好的选择。
 

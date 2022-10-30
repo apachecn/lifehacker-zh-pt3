@@ -1,6 +1,6 @@
 # 这个工具可以让你一次检查大量的亚马逊产品评论
 
-> 原文:[https://life hacker . com/this-tool-let-you-examine-tons-of-Amazon-product-revie-1821018875](https://lifehacker.com/this-tool-lets-you-examine-tons-of-amazon-product-revie-1821018875)
+> 原文：<https://lifehacker.com/this-tool-lets-you-examine-tons-of-amazon-product-revie-1821018875>
 
 想花一大笔钱买那个闪亮的新玩意儿吗？好吧，你可能想先看看一些亚马逊的评论，这样你就知道你要做什么了。如果挖掘数百篇评论听起来像是一件苦差事，这个免费工具会让它变得简单。
 

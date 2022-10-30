@@ -1,6 +1,6 @@
 # 如何让你的宠物在飞机上存活
 
-> 原文:[https://life hacker . com/how-to-keep-your-pet-alive-on-a plane-1794722108](https://lifehacker.com/how-to-keep-your-pet-alive-on-a-plane-1794722108)
+> 原文：<https://lifehacker.com/how-to-keep-your-pet-alive-on-a-plane-1794722108>
 
 又是一周，又是一场联合公关的灾难。这次， [一只巨大的宠物兔子死在了从伦敦飞往奥黑尔的](https://www.nytimes.com/2017/04/26/us/united-airlines-rabbit.html?smprod=nytcore-iphone&smid=nytcore-iphone-share&_r=0) 联合航班上，航空公司的...不太清楚发生了什么。这一消息足以让任何负责任的宠物主人停下来问自己:“当他或她不得不乘坐货运飞机时，我如何才能最好地保护我的宠物？确保我的宝贝 1)活下去，2)尽可能舒适的最佳做法是什么？”
 

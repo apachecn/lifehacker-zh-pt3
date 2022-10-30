@@ -1,6 +1,6 @@
 # 制造宜家自行车是一件值得经历的痛苦
 
-> 原文:[https://gizmodo . com/building-the-IKEA-bike-is-a-pain-worth-throug-1792804502](https://gizmodo.com/building-the-ikea-bike-is-a-pain-worth-suffering-throug-1792804502)
+> 原文：<https://gizmodo.com/building-the-ikea-bike-is-a-pain-worth-suffering-throug-1792804502>
 
 自从我上次组装宜家家具以来，已经有一年时间了。这是为我的全新公寓设计的，尽管我出了一身汗，手上还有点皮，但我还是省了一大笔钱——这就是用宜家家居用品装饰你的家的好处。现在，你最喜欢的瑞典家具品牌正在出售为每个人制造的自行车，这也是一种痛苦的经历。
 

@@ -1,6 +1,6 @@
 # 如何在你孩子的假日音乐会中幸存下来
 
-> 原文:[https://life hacker . com/how-to-survive-your-childs-holiday-concert-1820618503](https://lifehacker.com/how-to-survive-your-childs-holiday-concert-1820618503)
+> 原文：<https://lifehacker.com/how-to-survive-your-childs-holiday-concert-1820618503>
 
 日光渐暗，气温下降，雪花飞舞。这是疯狂购物、牢骚满腹的家庭聚会和超级儿童音乐会的季节。
 

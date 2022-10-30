@@ -1,6 +1,6 @@
 # 你可以用一次性电话号码做五件有用的事情
 
-> 原文:[https://life hacker . com/five-useful-things-you-can-do-with-burner-phone-numbe-1787635006](https://lifehacker.com/five-useful-things-you-can-do-with-a-burner-phone-numbe-1787635006)
+> 原文：<https://lifehacker.com/five-useful-things-you-can-do-with-a-burner-phone-numbe-1787635006>
 
 当你想到“一次性”电话号码时，你可能会想到间谍和间谍。但是有很多理由普通人会想要一个一次性号码，和一些应用程序，让你创建你需要的。这里有一些方法，你可以专业地使用一次性号码，保护你的隐私，甚至杀死垃圾短信。
 

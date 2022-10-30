@@ -1,6 +1,6 @@
 # 使用 Twitter 的新书签功能保存你想稍后阅读的推文
 
-> 原文:[https://life hacker . com/save-tweets-you-want-to-read-la ter-new-bo-1823415060](https://lifehacker.com/save-tweets-you-want-to-read-later-with-twitters-new-bo-1823415060)
+> 原文：<https://lifehacker.com/save-tweets-you-want-to-read-later-with-twitters-new-bo-1823415060>
 
 我在推特上花了很多时间。至少一天一次，大多数时候，我关注的一个朋友或某人会发一些我想了解但没有时间去了解的信息。
 

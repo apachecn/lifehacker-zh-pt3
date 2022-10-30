@@ -1,6 +1,6 @@
 # 你如何复活浸泡过的薯条？
 
-> 原文:[https://the take out . com/how-do-you-revive-soggy-French-fries-1798255274](https://thetakeout.com/how-do-you-revive-soggy-french-fries-1798255274)
+> 原文：<https://thetakeout.com/how-do-you-revive-soggy-french-fries-1798255274>
 
 你昨晚在从酒吧回家的路上买的那些薯条正合你的口味——金黄香脆，里面松软。但是今天早上剩菜堆在你的厨房桌子上？湿漉漉的，潮湿的，悲伤的，注定要被扔进垃圾桶。
 

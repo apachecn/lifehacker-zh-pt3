@@ -1,6 +1,6 @@
 # 我是 Katia Beauchamp，Birchbox 的联合创始人兼首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-katia-beauchamp-birch box-co-founder-and-CEO-and-th-1795889433](https://lifehacker.com/im-katia-beauchamp-birchbox-co-founder-and-ceo-and-th-1795889433)
+> 原文：<https://lifehacker.com/im-katia-beauchamp-birchbox-co-founder-and-ceo-and-th-1795889433>
 
 卡蒂亚·比彻姆(Katia Beauchamp)是美容电子商务网站 Birchbox 的联合创始人兼首席执行官，该网站提供产品样品订阅箱服务。自 2010 年成立以来，Birchbox 已经在全球范围内获得了超过 100 万的用户，客户总数达到 400 万。Fashionista.com 称 Birchbox 为美容订阅盒子现象的“”卡蒂亚和她的丈夫以及一对双胞胎男孩住在纽约。这是她工作的方式。
 

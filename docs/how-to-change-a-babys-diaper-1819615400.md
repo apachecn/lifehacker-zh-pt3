@@ -1,6 +1,6 @@
 # 如何给婴儿换尿布
 
-> 原文:[https://life hacker . com/how-to-change-a-babys-diaper-1819615400](https://lifehacker.com/how-to-change-a-babys-diaper-1819615400)
+> 原文：<https://lifehacker.com/how-to-change-a-babys-diaper-1819615400>
 
 这是产后疼痛诊所的第二部分，这是一个关于管理新生儿和婴儿护理带来的疼痛的多部分系列。
 

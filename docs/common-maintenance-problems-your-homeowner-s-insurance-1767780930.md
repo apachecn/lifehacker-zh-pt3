@@ -1,6 +1,6 @@
 # 你的房屋保险不包括的常见维修问题
 
-> 原文:[https://life hacker . com/common-maintenance-problems-your-homeowner-s-insurance-1767780930](https://lifehacker.com/common-maintenance-problems-your-homeowner-s-insurance-1767780930)
+> 原文：<https://lifehacker.com/common-maintenance-problems-your-homeowner-s-insurance-1767780930>
 
 购买你的第一套房子会带来很多惊喜 。虽然大多数买家准备注册房主保险，但他们往往高估了他们的覆盖范围。有很多意想不到的事情你的房屋保险没有覆盖，在紧急情况下，你不想措手不及。以下是一些不包括在您的策略中的常见事件。
 

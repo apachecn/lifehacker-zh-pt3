@@ -1,6 +1,6 @@
 # 如何避免“不可阻止的”总统警报
 
-> 原文:[https://life hacker . com/how-to-avoid-an-unblocked-presidential-alert-1829135000](https://lifehacker.com/how-to-avoid-an-unblockable-presidential-alert-1829135000)
+> 原文：<https://lifehacker.com/how-to-avoid-an-unblockable-presidential-alert-1829135000>
 
 总统有权向美国几乎每一部手机发送不可屏蔽的短信， [这一系统的测试定于东部时间 2018 年 10 月 3 日下午 2 点 18 分](https://www.fema.gov/emergency-alert-test) 。但是即使从技术上来说你不能选择退出，还是有一些事情你可以尝试。
 

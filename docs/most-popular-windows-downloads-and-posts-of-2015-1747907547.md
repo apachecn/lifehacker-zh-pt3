@@ -1,6 +1,6 @@
 # 2015 年最受欢迎的 Windows 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-windows-downloads-and-post-of-2015-1747907547](https://lifehacker.com/most-popular-windows-downloads-and-posts-of-2015-1747907547)
+> 原文：<https://lifehacker.com/most-popular-windows-downloads-and-posts-of-2015-1747907547>
 
 Windows 10 今年掀起了巨大的波澜，增加了大量新的改进，清理了许多旧功能，我们提到过它是免费的吗？以下是我们在该平台有史以来最大的几年里发布的最好的 Windows 帖子。
 

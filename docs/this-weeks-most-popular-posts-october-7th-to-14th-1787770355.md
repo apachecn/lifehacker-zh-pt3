@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 7 日至 14 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 7 日至 14 日-1787770355](https://lifehacker.com/this-weeks-most-popular-posts-october-7th-to-14th-1787770355)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-7th-to-14th-1787770355>
 
 本周，我们学习了一次性手机的一些不那么邪恶的用途，用树莓 Pi 构建了我们自己的亚马逊 Echo，解决了最常见的硬拉错误，欺骗了一种让谷歌助手在任何 Android 牛轧糖手机上运行的方法，等等。这里回顾一下。
 

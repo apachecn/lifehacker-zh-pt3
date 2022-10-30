@@ -1,6 +1,6 @@
 # 对 401(k)最大的抱怨
 
-> 原文:[https://life hacker . com/the-maximum-complaints-about-401-k-s-1791310050](https://lifehacker.com/the-biggest-complaints-about-401-k-s-1791310050)
+> 原文：<https://lifehacker.com/the-biggest-complaints-about-401-k-s-1791310050>
 
 为退休储蓄很像去看牙医。我们都知道应该去做，但是很容易拖延，因为很痛苦，很无聊。尽管投资令人生畏，但 401(k)是一个很好的开始，也是一个很好的储蓄动力 。然而，401(k)计划远非完美。
 

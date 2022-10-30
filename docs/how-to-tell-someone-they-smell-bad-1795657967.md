@@ -1,6 +1,6 @@
 # 如何告诉别人他们身上有臭味
 
-> 原文:[https://life hacker . com/how-to-tell-someone-smooth-bad-1795657967](https://lifehacker.com/how-to-tell-someone-they-smell-bad-1795657967)
+> 原文：<https://lifehacker.com/how-to-tell-someone-they-smell-bad-1795657967>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到艰难的爱。
 

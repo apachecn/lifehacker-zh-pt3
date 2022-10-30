@@ -1,6 +1,6 @@
 # 我需要一辆便宜的车来处理我的架子鼓！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-price-ride-the-can-handle-my-drum-set-what-c-1823020964](https://jalopnik.com/i-need-a-cheap-ride-that-can-handle-my-drum-set-what-c-1823020964)
+> 原文：<https://jalopnik.com/i-need-a-cheap-ride-that-can-handle-my-drum-set-what-c-1823020964>
 
 Dan 是一名周末鼓手，他一直摇着一辆 2006 年的雪佛兰 Malibu Maxx(如果你需要，谷歌一下，我们可以等)，这辆车越来越旧，现在失去了一些节奏。是时候升级了。他想要一种既能处理他的装备，又不贵又不太大的东西。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 你现在就可以在你的安卓手机上玩这个总部琐事山寨版了
 
-> 原文:[https://life hacker . com/you-can-play-this-HQ-trivia-knock off-on-your-Android-ph-1821256887](https://lifehacker.com/you-can-play-this-hq-trivia-knockoff-on-your-android-ph-1821256887)
+> 原文：<https://lifehacker.com/you-can-play-this-hq-trivia-knockoff-on-your-android-ph-1821256887>
 
 Android:在短短的几个月内，HQ Trivia 已经从一个很酷的新应用发展成为一个成熟的现象，每天吸引成千上万的玩家多次通过回答现场琐事问题来赢得一些现金。尽管取得了所有这些成功，你仍然不能没有 iOS 设备玩游戏，但谢天谢地，对于所有的 [安卓](https://lifehacker.com/save-your-battery-and-sanity-by-modifying-your-android-1820980053) 粉丝来说，已经有了一个替代选择——而且相当不错。
 

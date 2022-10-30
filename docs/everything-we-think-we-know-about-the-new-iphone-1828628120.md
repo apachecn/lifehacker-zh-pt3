@@ -1,6 +1,6 @@
 # 关于新 iPhone 我们所知道的一切[更新]
 
-> 原文:[https://gizmodo . com/everything-we-think-we-know-the-new-iphone-1828628120](https://gizmodo.com/everything-we-think-we-know-about-the-new-iphone-1828628120)
+> 原文：<https://gizmodo.com/everything-we-think-we-know-about-the-new-iphone-1828628120>
 
 每年九月，孩子们回到学校，苹果邀请一群记者进入一个黑暗的房间，在那里揭示 iPhones 的未来。这是全球疯狂抢购的开始，排队购买只需少量升级的新苹果设备。我们的时间到了。你感兴趣吗？你害怕吗？你准备好花比你以前花在手机上更多的钱了吗？
 

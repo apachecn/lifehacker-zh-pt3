@@ -1,6 +1,6 @@
 # 你不需要每月进行乳房自我检查
 
-> 原文:[https://life hacker . com/you-dont-need-to-perform-monthly-breast-self-examinations-1819695299](https://lifehacker.com/you-dont-need-to-perform-monthly-breast-self-exams-1819695299)
+> 原文：<https://lifehacker.com/you-dont-need-to-perform-monthly-breast-self-exams-1819695299>
 
 由于我的平价医疗法案健康保险计划的改变，我今年换了一个新的 OB-GYN。当我去做年度健康女性检查时，我的新医生告诉我，不再推荐手动乳房检查——这是我在以前每次产科 GYN 预约时都会接受的。
 

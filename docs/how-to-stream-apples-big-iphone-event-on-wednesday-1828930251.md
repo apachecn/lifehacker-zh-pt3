@@ -1,6 +1,6 @@
 # 如何在周三直播苹果的大型 iPhone 活动
 
-> 原文:[https://life hacker . com/how-to-stream-apple-big-iphone-event-on-third-1828930251](https://lifehacker.com/how-to-stream-apples-big-iphone-event-on-wednesday-1828930251)
+> 原文：<https://lifehacker.com/how-to-stream-apples-big-iphone-event-on-wednesday-1828930251>
 
 苹果公司将于 9 月 12 日，也就是本周三，举行一年一度的 9 月活动。如果你没有被邀请参加这个特别的聚会(像我们一样)，苹果公司会直播所有的活动，这样你就可以在家跟进了...或者在办公室...或者当你正在做一个大项目的时候。以下是你需要知道的关于周三活动的一切:
 

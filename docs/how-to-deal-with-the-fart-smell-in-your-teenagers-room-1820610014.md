@@ -1,6 +1,6 @@
 # 如何处理你少年房间里的屁味
 
-> 原文:[https://life hacker . com/how-to-deal-the-fart-smooth-1820610014](https://lifehacker.com/how-to-deal-with-the-fart-smell-in-your-teenagers-room-1820610014)
+> 原文：<https://lifehacker.com/how-to-deal-with-the-fart-smell-in-your-teenagers-room-1820610014>
 
 朱莉·可儿是清洁专家、建议专栏作家，也是《纽约时报》畅销书《我的男友在我的手提包里呕吐》的作者...还有其他你不能问玛莎的事。她的旗舰专栏“问一个干净的人”于 2011 年首次推出。在《后代》杂志上，我们推出了一个新版本，聚焦于养育子女和它带来的所有混乱。
 

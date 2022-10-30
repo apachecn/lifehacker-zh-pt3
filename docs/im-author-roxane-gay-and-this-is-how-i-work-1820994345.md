@@ -1,6 +1,6 @@
 # 我是作家罗珊妮·盖伊，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-author-roxane-gay-and-this-is-how-I-work-1820994345](https://lifehacker.com/im-author-roxane-gay-and-this-is-how-i-work-1820994345)
+> 原文：<https://lifehacker.com/im-author-roxane-gay-and-this-is-how-i-work-1820994345>
 
 罗珊妮·盖伊在过去七年里出版了五本书，都广受好评，都深刻地阐述了界定我们社会的社会问题，如女权主义、种族、身体形象、种族和性暴力以及移民经历。三——她的散文集[](https://www.amazon.com/Bad-Feminist-Essays-Roxane-Gay-ebook/dp/B00G2AGV14/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-author-roxane-gay-and-this-is-how-i-work-1820994345&asc_source=&tag=kinjalifehackerlink-20)*、短篇小说集 [*【难缠的女人】*](https://www.amazon.com/Difficult-Women-Roxane-Gay/dp/0802125395/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-author-roxane-gay-and-this-is-how-i-work-1820994345&asc_source=&tag=kinjalifehackerlink-20) 、回忆录 [*【饥饿】*](https://www.amazon.com/Hunger-Memoir-Body-Roxane-Gay/dp/0062362593/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-author-roxane-gay-and-this-is-how-i-work-1820994345&asc_source=&tag=kinjalifehackerlink-20)——都是全国畅销书。* 
 

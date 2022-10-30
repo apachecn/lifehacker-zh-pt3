@@ -1,6 +1,6 @@
 # 飞机黑匣子是如何工作的，虚拟流行明星，以及 DIY Dorito 调料
 
-> 原文:[https://life hacker . com/how-airplane-black-boxes-work-virtual-pop-stars-and-d-1782448669](https://lifehacker.com/how-airplane-black-boxes-work-virtual-pop-stars-and-d-1782448669)
+> 原文：<https://lifehacker.com/how-airplane-black-boxes-work-virtual-pop-stars-and-d-1782448669>
 
 本周，我们考虑另一种未来，在所有的东西上涂上奶酪玉米片，用飞机黑匣子弄脏自己，当然，也给你一点灵感，让你的一周有个好的开始。
 

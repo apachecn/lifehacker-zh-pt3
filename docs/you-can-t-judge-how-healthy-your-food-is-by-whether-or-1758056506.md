@@ -1,6 +1,6 @@
 # 你不能通过食物是否腐烂来判断它有多健康
 
-> 原文:[https://life hacker . com/you-can-t-judge-how-health-you-food-by-when-or-1758056506](https://lifehacker.com/you-can-t-judge-how-healthy-your-food-is-by-whether-or-1758056506)
+> 原文：<https://lifehacker.com/you-can-t-judge-how-healthy-your-food-is-by-whether-or-1758056506>
 
 每一种生物，无论多么高贵，最后都会被微生物吃掉。 [是生命的轮回](https://www.youtube.com/watch?v=GibiNy4d4gc) ！那么，我们如何解释构成麦当劳汉堡或 Twinkie 的植物和动物呢？为什么*他们*不腐烂？事实证明，它们并不像脸书病毒迷因让你相信的那样不朽。
 

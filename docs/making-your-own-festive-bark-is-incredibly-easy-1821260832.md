@@ -1,6 +1,6 @@
 # 制作自己的薄荷树皮非常简单
 
-> 原文:[https://life hacker . com/making-your-own-festive-bark-is-exceibly-easy-1821260832](https://lifehacker.com/making-your-own-festive-bark-is-incredibly-easy-1821260832)
+> 原文：<https://lifehacker.com/making-your-own-festive-bark-is-incredibly-easy-1821260832>
 
 活泼的、布满糖果的巧克力树皮是一种假日美食，总是受到人们的热情欢迎。(Williams Sonoma 的薄荷口味产品 每磅能卖 30 美元，比有机肋眼牛排还贵。)然而，没有理由在树皮上花一大笔钱，因为它可以在你的厨房里不费吹灰之力就制作出来。
 

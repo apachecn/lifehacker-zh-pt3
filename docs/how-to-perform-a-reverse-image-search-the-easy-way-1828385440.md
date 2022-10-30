@@ -1,6 +1,6 @@
 # 如何以最简单的方式执行反向图像搜索
 
-> 原文:[https://life hacker . com/how-to-perform-a-reverse-image-search-the-easy-way-1828385440](https://lifehacker.com/how-to-perform-a-reverse-image-search-the-easy-way-1828385440)
+> 原文：<https://lifehacker.com/how-to-perform-a-reverse-image-search-the-easy-way-1828385440>
 
 如果你在互联网上偶然发现了一张图片——也许是在你最喜欢的社交媒体网站上——你想了解更多，你可以随时询问负责该帖子的人。很有可能他们只是从其他地方抄袭了这张图片，并不知道它来自哪里。但是没关系。你也可以自己承担侦探工作，有很多资源帮你解决。
 

@@ -1,6 +1,6 @@
 # 如果 DACA 终结了，你应该知道
 
-> 原文:[https://life hacker . com/heres-what-to-know-if-daca-ends-1798678783](https://lifehacker.com/heres-what-to-know-if-daca-ends-1798678783)
+> 原文：<https://lifehacker.com/heres-what-to-know-if-daca-ends-1798678783>
 
 据报道 ，川普总统预计将结束奥巴马时代保护年轻无证移民免于被驱逐出境的计划。根据“童年抵美延期行动(DACA)”计划，成千上万的“梦想者”在童年时抵达美国，其中许多人几乎不记得自己的出生国，他们被暂时允许在美国合法工作。
 

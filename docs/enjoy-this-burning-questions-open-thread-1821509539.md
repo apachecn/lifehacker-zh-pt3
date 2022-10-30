@@ -1,6 +1,6 @@
 # 享受这个燃烧的问题开放线程
 
-> 原文:[https://life hacker . com/enjoy-this-burning-questions-open-thread-1821509539](https://lifehacker.com/enjoy-this-burning-questions-open-thread-1821509539)
+> 原文：<https://lifehacker.com/enjoy-this-burning-questions-open-thread-1821509539>
 
 嘿大家好！因为假期的关系，本周我没有新的建议给你，所以现在是时候打开评论，讨论你的想法了。我们聊聊吧。
 

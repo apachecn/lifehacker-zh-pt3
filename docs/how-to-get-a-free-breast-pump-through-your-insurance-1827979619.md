@@ -1,6 +1,6 @@
 # 如何通过你的保险获得免费吸奶器
 
-> 原文:[https://life hacker . com/how-to-get-a-free 吸奶器通过你的保险-1827979619](https://lifehacker.com/how-to-get-a-free-breast-pump-through-your-insurance-1827979619)
+> 原文：<https://lifehacker.com/how-to-get-a-free-breast-pump-through-your-insurance-1827979619>
 
 没有任何声音能像吸奶器有节奏的嗡嗡声一样把我带回到初为人父母的阴霾中。起初在我看来像是现代刑具的东西很快变成了让我女儿接受母乳喂养的必要工具——它增加了我的奶水供应，减轻了压力，并让我在不得不回去工作时(或者根本就不在家，没有婴儿)建立一个冰箱。
 

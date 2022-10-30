@@ -1,6 +1,6 @@
 # 《魔法中的性别歧视:聚会》阅读清单
 
-> 原文:[https://life hacker . com/the-sex ism-in-magic-the-gathering-reading-list-1822939072](https://lifehacker.com/the-sexism-in-magic-the-gathering-reading-list-1822939072)
+> 原文：<https://lifehacker.com/the-sexism-in-magic-the-gathering-reading-list-1822939072>
 
 “你看起来不像一个魔术玩家”，这是对《魔术:聚会游戏社区》中的女性的一个熟悉的评论，也是一个元过滤器帖子的标题(由用户 Fizz 发布)，该帖子汇编了六篇关于游戏玩家和创作者中的性别和性别歧视的文章。引用的作品探讨了现实中的性别歧视、性别和身份表征，以及幻想艺术中的性别差异。
 

@@ -1,6 +1,6 @@
 # 动物园管理员的迷你组织者
 
-> 原文:[https://life hacker . com/the-zoo keepers-mini-organizer-177555591](https://lifehacker.com/the-zookeepers-mini-organizer-1775555591)
+> 原文：<https://lifehacker.com/the-zookeepers-mini-organizer-1775555591>
 
 做一名动物园管理员是一份相当特殊的工作。在日常携带中，阅读弗朗兹·加西亚分享他在工作中随身携带的迷你组织器。
 

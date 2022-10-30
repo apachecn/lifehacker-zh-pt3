@@ -1,6 +1,6 @@
 # 打造记忆的迷你斜挎包
 
-> 原文:[https://life hacker . com/a-minimal-messenger-bag-for-making-memories-1818964822](https://lifehacker.com/a-minimal-messenger-bag-for-making-memories-1818964822)
+> 原文：<https://lifehacker.com/a-minimal-messenger-bag-for-making-memories-1818964822>
 
 如果你和我一样，有在包里塞满无关物品的习惯，你就会知道在这些杂物中找到你需要的必需品有多难。这就是为什么 [阿尔夫·阿尔滕多夫](http://altendorf.radiofabrik.at/)[奥地利](http://www.radiofabrik.at/) 广播电台的总经理，在外出和在诸如 [【威尼斯】](https://www.flickr.com/photos/alfaltendorf/37271493731/in/dateposted/) 到 [塞舌尔](https://www.flickr.com/photos/alfaltendorf/34775915036/in/dateposted/) 这样的地方走动时都带着相当轻便的行头。你找不到工作用的笔记本电脑，甚至找不到偶尔玩玩的平板电脑——只是休闲一天的必需品。这是他的皮革斜挎包里的东西:
 

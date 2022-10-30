@@ -1,6 +1,6 @@
 # 在 macOS High Sierra 中您需要了解的所有功能
 
-> 原文:[https://life hacker . com/all-the-features-you-need-know-on-MAC OS-high-四儿-1818846615](https://lifehacker.com/all-the-features-you-need-to-know-about-macos-high-sier-1818846615)
+> 原文：<https://lifehacker.com/all-the-features-you-need-to-know-about-macos-high-sier-1818846615>
 
 苹果新的桌面操作系统 High Sierra 正式发布，供你下载。相比苹果的 iOS 11 更新， [增加了一大堆新功能](https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209) 像 [增强现实](https://lifehacker.com/how-to-get-started-using-apple-s-arkit-augmented-realit-1797690723)；iPad 上的新 dock 和改进的多任务支持；高塞拉的改进大多是引擎盖下。你不会发现许多华而不实的附加功能，但你会注意到你日常使用的各种服务的升级，这些升级应该会让你的 macOS 体验更快、更安全。
 

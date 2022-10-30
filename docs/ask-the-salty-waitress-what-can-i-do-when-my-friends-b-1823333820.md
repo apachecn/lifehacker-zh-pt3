@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:当我的朋友表现得像傻瓜一样时，我能做什么？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-when-my-friends-b-1823333820](https://thetakeout.com/ask-the-salty-waitress-what-can-i-do-when-my-friends-b-1823333820)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-what-can-i-do-when-my-friends-b-1823333820>
 
 * * *
 

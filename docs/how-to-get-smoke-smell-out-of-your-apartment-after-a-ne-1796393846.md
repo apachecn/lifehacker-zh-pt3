@@ -1,6 +1,6 @@
 # 附近发生火灾后，如何清除公寓里的烟味
 
-> 原文:[https://life hacker . com/how-to-get-out-of-smoke-smoke-of-a-ne-1796393846](https://lifehacker.com/how-to-get-smoke-smell-out-of-your-apartment-after-a-ne-1796393846)
+> 原文：<https://lifehacker.com/how-to-get-smoke-smell-out-of-your-apartment-after-a-ne-1796393846>
 
 仅仅因为你的公寓没有着火，并不意味着你不需要事后做大量的清洁工作。
 

@@ -1,6 +1,6 @@
 # 如何在 macOS 上满足你对俄罗斯方块的渴望
 
-> 原文:[https://life hacker . com/how-to-satisfy-your-Tetris-cravings-on-MAC OS-1824179936](https://lifehacker.com/how-to-satisfy-your-tetris-cravings-on-macos-1824179936)
+> 原文：<https://lifehacker.com/how-to-satisfy-your-tetris-cravings-on-macos-1824179936>
 
 苹果记者约翰·格鲁伯 最近哀叹道，苹果电脑上根本没有俄罗斯方块游戏。他并不是说没有任何*好的*游戏。根据 Gruber 的说法，没有任何俄罗斯方块游戏。他在 Mac App Store 上找不到一款正式的俄罗斯方块游戏，也找不到任何俄罗斯方块的复制品，来满足他对游戏的怀旧之情:
 

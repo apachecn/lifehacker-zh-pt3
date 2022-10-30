@@ -1,6 +1,6 @@
 # 关于老茧，你皮肤的天然(有时是痛苦的)盔甲
 
-> 原文:[https://life hacker . com/all-about-calls-your-skin-s-natural-and-times-1770939556](https://lifehacker.com/all-about-calluses-your-skin-s-natural-and-sometimes-1770939556)
+> 原文：<https://lifehacker.com/all-about-calluses-your-skin-s-natural-and-sometimes-1770939556>
 
 胼胝，你手上和脚上那些结痂增厚的皮肤区域，部分是盔甲，部分是负担。体操运动员痴迷于剃光它们；跑步者担心如何保持体能。通过一些聪明的管理，有可能拥有不会给你带来问题的快乐、坚韧的皮肤。
 

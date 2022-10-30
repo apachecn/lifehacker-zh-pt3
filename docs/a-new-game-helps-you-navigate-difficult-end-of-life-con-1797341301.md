@@ -1,6 +1,6 @@
 # 一款新游戏帮助你应对艰难的临终对话
 
-> 原文:[https://life hacker . com/a-new-game-helps-you-navigate-different-end-of-life-con-1797341301](https://lifehacker.com/a-new-game-helps-you-navigate-difficult-end-of-life-con-1797341301)
+> 原文：<https://lifehacker.com/a-new-game-helps-you-navigate-difficult-end-of-life-con-1797341301>
 
 称之为真理的新游戏。玩家们围着桌子回答他们蓝色小册子里的问题，但是这些问题并不能让他们谈论他们在毛伊岛裸泳的经历。相反，这些问题旨在引发艰难的对话，可能是痛苦的对话，可能是他们已经回避太久的对话。
 

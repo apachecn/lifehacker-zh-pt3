@@ -1,6 +1,6 @@
 # 拱廊工作和娱乐空间
 
-> 原文:[https://life hacker . com/the-arcade-work-and-play-space-1781920010](https://lifehacker.com/the-arcade-work-and-play-space-1781920010)
+> 原文：<https://lifehacker.com/the-arcade-work-and-play-space-1781920010>
 
 在 Flickr，[tadashiman](https://www.flickr.com/photos/25597111@N06/)分享了这些他工作、玩耍和创作的美丽照片，我们爱得不能再爱了。立式拱廊机柜、双显示器设置和立体音响？我们倒下了。
 

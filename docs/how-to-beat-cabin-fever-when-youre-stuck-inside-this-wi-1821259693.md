@@ -1,6 +1,6 @@
 # 这个冬天，当你被困在室内时，如何战胜幽居病
 
-> 原文:[https://life hacker . com/how-to-beat-cabin-fever-when-you-stick-in-this-wi-1821259693](https://lifehacker.com/how-to-beat-cabin-fever-when-youre-stuck-inside-this-wi-1821259693)
+> 原文：<https://lifehacker.com/how-to-beat-cabin-fever-when-youre-stuck-inside-this-wi-1821259693>
 
 在东海岸，冬天终于到来了:今天早上，气温为 22 度，风寒指数为 9。好冷啊！对于一些人来说，冬天的第一次冰冻是双重压抑——我们接近一年中最短的一天，这意味着我们没有得到足够的阳光，*和*天气太冷了，不能出去做些运动和呼吸新鲜空气。
 

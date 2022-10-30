@@ -1,6 +1,6 @@
 # 餐厅员工，你希望顾客对你的工作了解多少？
 
-> 原文:[https://life hacker . com/restaurant-workers-what-you-wish-customers-know-on-1820093935](https://lifehacker.com/restaurant-workers-what-do-you-wish-patrons-knew-about-1820093935)
+> 原文：<https://lifehacker.com/restaurant-workers-what-do-you-wish-patrons-knew-about-1820093935>
 
 我相信每个人都应该在某个时候在餐馆工作，只是为了让他们知道它是什么样的，但这永远不会发生。那么，让我们来解释一下餐饮服务行业鲜为人知的来龙去脉。如果你在餐馆工作，或者曾经在餐馆工作过，你希望顾客知道哪些事情，让你的生活变得轻松一点？
 

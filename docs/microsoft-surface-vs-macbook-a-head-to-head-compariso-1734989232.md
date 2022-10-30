@@ -1,6 +1,6 @@
 # 微软 Surface Book 与 MacBook Pro:势均力敌的对比
 
-> 原文:[https://gizmodo . com/Microsoft-surface-vs-macbook-a-head-to-head-compariso-1734989232](https://gizmodo.com/microsoft-surface-vs-macbook-a-head-to-head-compariso-1734989232)
+> 原文：<https://gizmodo.com/microsoft-surface-vs-macbook-a-head-to-head-compariso-1734989232>
 
 微软凭借其最新设备 Surface Pro 4 和 Surface Book 引起了巨大轰动。这些昂贵的产品旨在与苹果在高端产品上的传统霸主地位直接竞争。但这些最新产品与苹果相比表现如何呢？
 

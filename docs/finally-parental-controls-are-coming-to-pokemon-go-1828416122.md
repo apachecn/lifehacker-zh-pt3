@@ -1,6 +1,6 @@
 # 最后，家长控制将进入 Pokémon Go
 
-> 原文:[https://life hacker . com/finally-parental-controls-coming-to-pokemon-go-1828416122](https://lifehacker.com/finally-parental-controls-are-coming-to-pokemon-go-1828416122)
+> 原文：<https://lifehacker.com/finally-parental-controls-are-coming-to-pokemon-go-1828416122>
 
 妈妈们和爸爸们感谢《神奇宝贝 Go》让他们的孩子探索大自然——即使这意味着他们要带着屏幕。现在，父母将能够更好地管理孩子在游戏中的隐私。
 

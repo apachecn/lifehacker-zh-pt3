@@ -1,6 +1,6 @@
 # 用这个工具快速找到任何主要城市的时髦社区
 
-> 原文:[https://life hacker . com/quick-find-the-faster-neighborhoods-in-any-city-with-1818681545](https://lifehacker.com/quickly-find-the-hipster-neighborhoods-in-any-city-with-1818681545)
+> 原文：<https://lifehacker.com/quickly-find-the-hipster-neighborhoods-in-any-city-with-1818681545>
 
 当你第一次参观一个城镇时，了解那里的情况会很困难。尤其是如果你要搬到一个新的地方，很难判断一个社区是否比另一个更适合你，或者你是偶然(或有意)租到了镇上最时髦的社区。现在，有一个应用程序。或者网站，实际上。
 

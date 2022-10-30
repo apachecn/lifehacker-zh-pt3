@@ -1,6 +1,6 @@
 # 为什么你总是带着 20 美元的小面额钞票
 
-> 原文:[https://life hacker . com/why-you-should-always-carry-20-in-small-bills-1821502622](https://lifehacker.com/why-you-should-always-carry-20-in-small-bills-1821502622)
+> 原文：<https://lifehacker.com/why-you-should-always-carry-20-in-small-bills-1821502622>
 
 在信用卡、借记卡、移动支付应用甚至比特币之间，完全无现金正变得前所未有的容易。不幸的是，这样做会让许多依赖小额现金小费的人受到冷落。现金为王，尤其是在节假日前后。
 

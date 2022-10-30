@@ -1,6 +1,6 @@
 # 在注册 Equifax 的“免费”信用监测之前，请三思
 
-> 原文:[https://life hacker . com/think-two-before-sign-up-for-equifaxs-free-credit-1802747105](https://lifehacker.com/think-twice-before-signing-up-for-equifaxs-free-credit-1802747105)
+> 原文：<https://lifehacker.com/think-twice-before-signing-up-for-equifaxs-free-credit-1802747105>
 
 在周四 [宣布影响 1.43 亿客户的](http://lifehacker.com/equifax-hackers-might-have-your-social-security-and-cre-1802159442#_ga=2.36725984.1509632032.1504712511-772366027.1496423220) 安全事件后，Equifax 以道歉的方式向客户提供一年的免费信用监控。信用监测可能看起来像一个好交易(免费是免费的，对不对？)，但是如果您是受安全漏洞影响的客户之一，您可能需要在注册之前三思。
 

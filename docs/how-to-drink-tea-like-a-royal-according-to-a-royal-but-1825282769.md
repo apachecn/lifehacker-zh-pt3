@@ -1,6 +1,6 @@
 # 如何像皇家一样喝茶，根据皇家管家
 
-> 原文:[https://life hacker . com/how-to-drink-tea-like-a-royal-by-a-royal-but-1825282769](https://lifehacker.com/how-to-drink-tea-like-a-royal-according-to-a-royal-but-1825282769)
+> 原文：<https://lifehacker.com/how-to-drink-tea-like-a-royal-according-to-a-royal-but-1825282769>
 
 皇家婚礼就在眼前。虽然那天肯定会倒很多香槟，但喝茶也是皇室一天的一大部分——这是有规定的。
 

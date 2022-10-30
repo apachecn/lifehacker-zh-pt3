@@ -1,6 +1,6 @@
 # 如何了解股市调整
 
-> 原文:[https://life hacker . com/what-to-know-about-a stock-market-correction-1822870142](https://lifehacker.com/what-to-know-about-a-stock-market-correction-1822870142)
+> 原文：<https://lifehacker.com/what-to-know-about-a-stock-market-correction-1822870142>
 
 昨天收盘时，标准普尔 500 跌入调整区域，从 1 月 26 日的高点下跌了 10%多一点(目前为止，股票今天上涨了)。
 

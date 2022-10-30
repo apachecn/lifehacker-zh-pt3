@@ -1,6 +1,6 @@
 # 除了寻找错别字，如何校对你的简历
 
-> 原文:[https://life hacker . com/how-to-校对你的简历---- 1763302079](https://lifehacker.com/how-to-proofread-your-resume-beyond-looking-for-typos-1763302079)
+> 原文：<https://lifehacker.com/how-to-proofread-your-resume-beyond-looking-for-typos-1763302079>
 
 你的简历不仅是你职业生涯的总结，也是你下一个绝佳机会的门票。所以，是的，这是件大事。考虑到这一点，在你使用它做任何事情之前，有一双额外的眼睛来检查它以确保它处于最佳状态是一个好主意。
 

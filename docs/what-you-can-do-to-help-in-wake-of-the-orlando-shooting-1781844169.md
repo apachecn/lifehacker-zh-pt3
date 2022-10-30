@@ -1,6 +1,6 @@
 # 奥兰多枪击案发生后，你能做些什么
 
-> 原文:[https://life hacker . com/what-you-can-do-to-help-in-wake-of-the-Orlando-shooting-1781844169](https://lifehacker.com/what-you-can-do-to-help-in-wake-of-the-orlando-shooting-1781844169)
+> 原文：<https://lifehacker.com/what-you-can-do-to-help-in-wake-of-the-orlando-shooting-1781844169>
 
 今天凌晨在奥兰多， [50 人被枪杀，另有 53 人受伤](http://gawker.com/reports-gunman-opens-fire-and-takes-hostages-at-lgbt-c-1781830988) 在奥兰多的一家夜总会。不管你是不是本地人，以下是你可以提供帮助的方法，或者至少找一个守夜的人，和志同道合的人在一起，或者寻求一点平静。
 

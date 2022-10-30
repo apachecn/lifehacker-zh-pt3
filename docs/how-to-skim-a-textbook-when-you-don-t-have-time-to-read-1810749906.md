@@ -1,6 +1,6 @@
 # 没时间看的时候如何略读课本
 
-> 原文:[https://life hacker . com/how-to-skim-a-textbook-when you ' s not-time to-read-1810749906](https://lifehacker.com/how-to-skim-a-textbook-when-you-don-t-have-time-to-read-1810749906)
+> 原文：<https://lifehacker.com/how-to-skim-a-textbook-when-you-don-t-have-time-to-read-1810749906>
 
 我既是学生又是老师，我完全理解。课本枯燥难读。但是如果你没有时间像你应该做的那样 去 [阅读整章，实际上有一个比只是把第一段看几遍更好的解决办法。](http://lifehacker.com/yes-you-actually-need-to-read-your-textbooks-not-just-1803135073#_ga=2.151054074.2125327266.1505145742-255842443.1487643310) 
 

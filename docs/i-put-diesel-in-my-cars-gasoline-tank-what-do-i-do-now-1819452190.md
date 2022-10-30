@@ -1,6 +1,6 @@
 # 我在我的汽车油箱里放了柴油！我现在该怎么办？
 
-> 原文:[https://jalopnik . com/I-put-diesel-in-my-cars-gasket-tank-what-do-I-do-now-1819452190](https://jalopnik.com/i-put-diesel-in-my-cars-gasoline-tank-what-do-i-do-now-1819452190)
+> 原文：<https://jalopnik.com/i-put-diesel-in-my-cars-gasoline-tank-what-do-i-do-now-1819452190>
 
 谢天谢地，这是一个罕见的问题，但也是一个可怕的问题:一个不知情的司机意外地将柴油倒入他们的汽油动力车，不知何故绕过了不同大小的喷嘴。这对你的引擎来说是灾难性的，所以如果发生了，下面是接下来要做的。
 

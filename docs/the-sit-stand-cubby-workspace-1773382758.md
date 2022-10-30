@@ -1,6 +1,6 @@
 # 坐站式小隔间工作空间
 
-> 原文:[https://life hacker . com/the-sit-stand-cubby-workspace-1773382758](https://lifehacker.com/the-sit-stand-cubby-workspace-1773382758)
+> 原文：<https://lifehacker.com/the-sit-stand-cubby-workspace-1773382758>
 
 也许你工作时喜欢坐着，或者你更喜欢站着，或者也许你喜欢两者兼而有之的灵活性，Jayson S 的这种坐着/站着的工作空间。它位于一个小房间里，有足够的空间来做这两件事，以及记录一些播客和空间来传播和完成工作。
 

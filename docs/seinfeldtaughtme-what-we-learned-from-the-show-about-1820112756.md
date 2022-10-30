@@ -1,6 +1,6 @@
 # #SeinfeldTaughtMe:我们从这个节目中学到了什么
 
-> 原文:[https://life hacker . com/seinfeldtaughtme-what-we-learn-from the show-about-1820112756](https://lifehacker.com/seinfeldtaughtme-what-we-learned-from-the-show-about-1820112756)
+> 原文：<https://lifehacker.com/seinfeldtaughtme-what-we-learned-from-the-show-about-1820112756>
 
 目前在推特上流行的标签[#宋飞传时间](https://twitter.com/hashtag/SeinfeldTaughtMe?src=tren) ，表明开创性的 NBC 情景喜剧*宋飞传*是生活窍门，或者至少是生活建议和愚蠢的人类技巧的一个令人惊讶的好来源。以下是一些最有用的经验。
 

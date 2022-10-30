@@ -1,6 +1,6 @@
 # 如何参加一个分时度假介绍只是为了免费的礼物
 
-> 原文:[https://life hacker . com/how-to-attend-a-time share-presentation-just-for-the-fre-1739071798](https://lifehacker.com/how-to-attend-a-timeshare-presentation-just-for-the-fre-1739071798)
+> 原文：<https://lifehacker.com/how-to-attend-a-timeshare-presentation-just-for-the-fre-1739071798>
 
 分时度假和 T2 骗局这两个词经常联系在一起是有原因的:在大多数情况下，购买分时度假是一个糟糕的财务决策。因为他们臭名昭著的名声，分时度假公司用免费赠品诱惑你，比如晚餐券，音乐会门票，或者美妙的假期。你所要做的就是在一场紧张、高压的演讲中生存下来。如果你喜欢玩火，这里有一些技巧可以让你在不屈服的情况下到达另一边——并且带着你的免费礼物。
 

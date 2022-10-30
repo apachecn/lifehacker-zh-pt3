@@ -1,6 +1,6 @@
 # 当您的航班出现问题时，要求赔偿的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-ask-for-compensation-when-something-go-1826535807](https://lifehacker.com/the-best-ways-to-ask-for-compensation-when-something-go-1826535807)
+> 原文：<https://lifehacker.com/the-best-ways-to-ask-for-compensation-when-something-go-1826535807>
 
 虽然大多数航班顺利起飞，但恼人的事情还是会发生。延误、改道、坏掉的托盘桌、故障的娱乐控制台以及不稳定的无线网络都会让一次普通的飞行变成一次不愉快的经历。当不好的事情发生时，考虑像这样要求赔偿。
 

@@ -1,6 +1,6 @@
 # 转基因食品标签即将出现，但这个词将是“生物工程”
 
-> 原文:[https://life hacker . com/GMO-food-labels-are-coming-but-the-word-will-be-bioeng-1826305309](https://lifehacker.com/gmo-food-labels-are-coming-but-the-word-will-be-bioeng-1826305309)
+> 原文：<https://lifehacker.com/gmo-food-labels-are-coming-but-the-word-will-be-bioeng-1826305309>
 
 到 2020 年，许多用基因工程生产的食品将不得不在标签上注明。本月早些时候，美国农业部 [宣布了他们对规则和相关标识](https://www.regulations.gov/document?D=AMS_FRDOC_0001-1709) 的提议，通过完全不使用字母 G-M-O，巧妙地避开了转基因生物标签争议。
 

@@ -1,6 +1,6 @@
 # 单人玩的超级有趣的棋盘游戏
 
-> 原文:[https://life hacker . com/board-games-that-super-fun-to-play-solo-1770363470](https://lifehacker.com/board-games-that-are-super-fun-to-play-solo-1770363470)
+> 原文：<https://lifehacker.com/board-games-that-are-super-fun-to-play-solo-1770363470>
 
 掷骰子的声音，在棋盘上移动棋子的感觉，以及手中纸牌的感觉，这些都让棋盘游戏变得如此神奇。如果你不能获得足够的体验，或者不能和一群人一起玩 ，这些游戏很适合你自己玩，无论何时。
 

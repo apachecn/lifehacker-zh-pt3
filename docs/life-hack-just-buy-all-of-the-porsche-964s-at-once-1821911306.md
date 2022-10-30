@@ -1,6 +1,6 @@
 # 生活帮:一次买下所有的保时捷 964
 
-> 原文:[https://jalopnik . com/life-hack-just-buy-the-all-of-the-Porsche-964s-once-1821911306](https://jalopnik.com/life-hack-just-buy-all-of-the-porsche-964s-at-once-1821911306)
+> 原文：<https://jalopnik.com/life-hack-just-buy-all-of-the-porsche-964s-at-once-1821911306>
 
 如果你整天都在为买哪辆 964 代保时捷 911 而苦恼，前往阿米莉亚岛的 RM 苏富比“保时捷专属” [系列](https://rmsothebys.com/en/search#/?SortBy=Default&SearchTerm=Exclusively%20Porsche%20-%20The%20964%20Collection&Category=All%20Categories&IncludeWithdrawnLots=false&Auction=&OfferStatus=All%20availability&AuctionYear=&Model=Model&Make=Make&FeaturedOnly=false&Collection=All%20Lots&WithoutReserveOnly=false&page=1&pageSize=0) 正好给了你一个简单的答案。964 各方面都很好，所以你应该全部买下。
 

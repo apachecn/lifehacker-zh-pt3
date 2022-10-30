@@ -1,6 +1,6 @@
 # 通过三个简单的步骤创造你自己的“花园香料”
 
-> 原文:[https://life hacker . com/create-your-very-own-garden-spicer-in-three-easy-step-1795172401](https://lifehacker.com/create-your-very-own-garden-spicer-in-three-easy-step-1795172401)
+> 原文：<https://lifehacker.com/create-your-very-own-garden-spicer-in-three-easy-step-1795172401>
 
 我喜欢一个好的、有主题的草坪装饰品——尤其是如果它可以作为某种稻草人来履行双重职责的话——所以我很自然地对一位杰出的女性所称的“花园香料”非常着迷
 

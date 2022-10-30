@@ -1,6 +1,6 @@
 # 成年后在儿童区买什么(因为便宜很多)
 
-> 原文:[https://life hacker . com/what-to-buy-in-the-kids-section-when-you-a-grown-b-1812294928](https://lifehacker.com/what-to-buy-in-the-kids-section-when-youre-a-grownup-b-1812294928)
+> 原文：<https://lifehacker.com/what-to-buy-in-the-kids-section-when-youre-a-grownup-b-1812294928>
 
 当浏览商店的儿童区时，无论你是为自己的孩子还是为别人的孩子购物，你可能会看到一件商品，然后突然想，“嘿，这可能适合我”
 

@@ -1,6 +1,6 @@
 # 用菜板快速剥下一头大蒜
 
-> 原文:[https://life hacker . com/quick-peel-a-head-with-a-cutting-board-1825026677](https://lifehacker.com/quickly-peel-a-head-of-garlic-with-a-cutting-board-1825026677)
+> 原文：<https://lifehacker.com/quickly-peel-a-head-of-garlic-with-a-cutting-board-1825026677>
 
 剥大蒜有许多“巧妙”的方法，但我一直喜欢用我的刀的平面压碎丁香，而不是用 [试图将两个碗放在一起，同时挥舞着](https://lifehacker.com/our-top-five-garlic-tips-tested-1791039906) ，即使我有一整个头要剥。我并不是特别想改进这种方法，直到我注意到一把锅铲同时 [在做红酱](https://skillet.lifehacker.com/heres-what-your-tomato-sauce-is-missing-1824287735) 。
 

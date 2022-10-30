@@ -1,6 +1,6 @@
 # 当一个朋友想去参加吓人的游乐设施，但你害怕了
 
-> 原文:[https://life hacker . com/my-friend-wants-to-go-on-thrill-fair-rides-but-im-terrif-1826045655](https://lifehacker.com/my-friend-wants-to-go-on-scary-fair-rides-but-im-terrif-1826045655)
+> 原文：<https://lifehacker.com/my-friend-wants-to-go-on-scary-fair-rides-but-im-terrif-1826045655>
 
 这个星期，我们有一个人想和他的朋友一起去游乐场，但是他害怕乘坐他的朋友兴奋的所有激烈的游乐设施。他应该振作起来系好安全带，还是在他把玉米热狗扔在你的鞋子上之前找到出路？
 

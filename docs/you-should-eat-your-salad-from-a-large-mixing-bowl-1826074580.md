@@ -1,6 +1,6 @@
 # 你应该用一个大碗搅拌沙拉
 
-> 原文:[https://life hacker . com/you-should-eat-your-salad-from-a-large-mixing-bowl-1826074580](https://lifehacker.com/you-should-eat-your-salad-from-a-large-mixing-bowl-1826074580)
+> 原文：<https://lifehacker.com/you-should-eat-your-salad-from-a-large-mixing-bowl-1826074580>
 
 我的饮食可能更倾向于“浣熊”而不是“兔子”，但我实际上是一个热情的沙拉消费者。这不是因为我非常喜欢吃对我有益的东西，不；因为好的沙拉是味道和质地的完美结合。为了最好地利用新鲜风味游行，沙拉应该用非常大的搅拌碗食用。
 

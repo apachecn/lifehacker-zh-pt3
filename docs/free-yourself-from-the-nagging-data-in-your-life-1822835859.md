@@ -1,6 +1,6 @@
 # 把自己从生活中的“唠叨数据”中解放出来
 
-> 原文:[https://life hacker . com/free-your-your-life-in-the-fabring-data-1822835859](https://lifehacker.com/free-yourself-from-the-nagging-data-in-your-life-1822835859)
+> 原文：<https://lifehacker.com/free-yourself-from-the-nagging-data-in-your-life-1822835859>
 
 我们设备屏幕上显示的数字和图标应该是有用的；它们告诉我们还剩多少电池，我们有多少未读邮件，以及我们何时需要更新一些东西。但更多的时候，这些数据只是在唠叨我们，不断地戳我们，就像一个想要妈妈注意的蹒跚学步的孩子。不一定非要那样。
 

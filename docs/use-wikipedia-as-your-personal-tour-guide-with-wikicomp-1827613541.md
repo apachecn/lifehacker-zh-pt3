@@ -1,6 +1,6 @@
 # 使用维基百科作为您的个人指南
 
-> 原文:[https://life hacker . com/use-Wikipedia-as-your-personal-tour-guide-with-wiki comp-1827613541](https://lifehacker.com/use-wikipedia-as-your-personal-tour-guide-with-wikicomp-1827613541)
+> 原文：<https://lifehacker.com/use-wikipedia-as-your-personal-tour-guide-with-wikicomp-1827613541>
 
 旅行中我最喜欢的一部分是有机会了解新的领域。我不是一个真正的旅游指南的人，所以我通常依靠徒步旅行、路边的牌匾以及与我遇到的人的交谈来收集关于一个地区的信息。本周，我偶然发现了一个应用程序，我认为它也有可能成为我的旅行应用程序库，名为。
 

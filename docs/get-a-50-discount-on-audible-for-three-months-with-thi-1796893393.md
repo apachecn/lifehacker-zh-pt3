@@ -1,6 +1,6 @@
 # 用这个技巧在三个月内获得 Audible 的 50%折扣
 
-> 原文:[https://life hacker . com/get-a-50-discount-on-audible-with-thi-1796893393](https://lifehacker.com/get-a-50-discount-on-audible-for-three-months-with-thi-1796893393)
+> 原文：<https://lifehacker.com/get-a-50-discount-on-audible-for-three-months-with-thi-1796893393>
 
 如果你喜欢有声读物， [可听绝对值得一试](https://lifehacker.com/most-popular-audiobook-service-audible-1689489712) 。但它的订阅价格结构让一些人望而却步。这里有一个简单的方法，只要你还在免费试用期内，就可以 50%享受三个月的服务。
 

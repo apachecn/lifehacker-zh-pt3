@@ -1,6 +1,6 @@
 # 下面是转换到信用合作社有多容易
 
-> 原文:[https://life hacker . com/heres-how-easy-to-switch-a-credit-union-1796022111](https://lifehacker.com/heres-how-easy-it-is-to-switch-to-a-credit-union-1796022111)
+> 原文：<https://lifehacker.com/heres-how-easy-it-is-to-switch-to-a-credit-union-1796022111>
 
 信用社 [与大银行](https://lifehacker.com/the-differences-between-banks-and-credit-unions-1748879210) 有一些不同之处，这可能使它们成为更有吸引力的选择。问题是，转换似乎是一个巨大的痛苦。我们已经 [告诉你如何做](http://twocents.lifehacker.com/how-to-painlessly-switch-banks-1537247659) ，但是事情是这样的:大多数信用合作社都有“开关工具包”，让转移你的钱变得非常简单。
 

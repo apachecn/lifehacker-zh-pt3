@@ -1,6 +1,6 @@
 # 使用流媒体对抗焦虑和抑郁的游戏玩家
 
-> 原文:[https://kotaku . com/the-gamer-who-uses-streaming-to-fight-anxiety-depre-1735508548](https://kotaku.com/the-gamer-who-uses-streaming-to-fight-anxiety-and-depre-1735508548)
+> 原文：<https://kotaku.com/the-gamer-who-uses-streaming-to-fight-anxiety-and-depre-1735508548>
 
 在我们开始谈话之前，米滕茨将军问我，我们是否可以站着接受采访。“对我来说，现在，我有一个巨大的焦虑发作，”他解释说，而坐立不安。站立和走动有所帮助。一点点。
 

@@ -1,6 +1,6 @@
 # 早点登记以免激怒那些把你拖下飞机的神
 
-> 原文:[https://life hacker . com/check-in-early-to-satisfy-the-drag-you-off-the-plane-go-1794176857](https://lifehacker.com/check-in-early-to-appease-the-drag-you-off-the-plane-go-1794176857)
+> 原文：<https://lifehacker.com/check-in-early-to-appease-the-drag-you-off-the-plane-go-1794176857>
 
 即使你已经买了机票，不想离开，航空公司也有权把你赶下超售的飞机。据联合航空的员工称，一台“计算机”挑选了一名自称是医生的男子，他需要在早上为病人看病，然后被拖下本周末飞往 T2 的 T3 航班。电脑怎么知道选谁？航空公司的政策提供了一些线索。
 

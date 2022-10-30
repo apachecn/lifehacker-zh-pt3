@@ -1,6 +1,6 @@
 # 2018 年秋季推出的每一款大型游戏
 
-> 原文:[https://kotaku . com/every-big-game-out-in-fall-2018-1829276193](https://kotaku.com/every-big-game-coming-out-in-fall-2018-1829276193)
+> 原文：<https://kotaku.com/every-big-game-coming-out-in-fall-2018-1829276193>
 
 秋天可能是最糟糕的季节，原因有很多——学校开学了，白天变短了，人们变得痴迷于把南瓜放在任何东西里——但新发布的视频游戏绝对不是其中之一。
 

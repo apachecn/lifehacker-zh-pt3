@@ -1,6 +1,6 @@
 # 我厌倦了向父母借车！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-厌倦了从我父母那里借车-什么车-sh-1828710199](https://jalopnik.com/im-tired-of-borrowing-cars-from-my-parents-what-car-sh-1828710199)
+> 原文：<https://jalopnik.com/im-tired-of-borrowing-cars-from-my-parents-what-car-sh-1828710199>
 
 弗兰克自称是千禧一代，一直借父母的车四处走动。是时候让他有自己的车了，但是要负担得起，可靠，与众不同。他应该买什么车？
 

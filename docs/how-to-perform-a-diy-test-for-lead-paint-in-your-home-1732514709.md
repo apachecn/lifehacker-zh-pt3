@@ -1,6 +1,6 @@
 # 如何在家中对含铅涂料进行 DIY 测试
 
-> 原文:[https://life hacker . com/how-to-perform-a-DIY-test-for-lead-paint-in-your-home-1732514709](https://lifehacker.com/how-to-perform-a-diy-test-for-lead-paint-in-your-home-1732514709)
+> 原文：<https://lifehacker.com/how-to-perform-a-diy-test-for-lead-paint-in-your-home-1732514709>
 
 在改造旧房子之前，你必须检查它的含铅油漆。以下是如何自己管理测试，以及如何处理结果。
 

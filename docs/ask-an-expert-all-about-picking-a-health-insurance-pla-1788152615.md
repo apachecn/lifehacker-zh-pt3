@@ -1,6 +1,6 @@
 # 问专家:选择一个适合你的健康保险计划
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-picking-a-health-insurance-PLA-1788152615](https://lifehacker.com/ask-an-expert-all-about-picking-a-health-insurance-pla-1788152615)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-picking-a-health-insurance-pla-1788152615>
 
 11 月快到了， [开放招生](https://www.policygenius.com/health-insurance/learn/obamacare-enrollment/) 也快到了。这意味着是时候评估你的医疗保健计划并考虑你的选择了，但了解不同保险单的细节可能会感到不知所措。
 

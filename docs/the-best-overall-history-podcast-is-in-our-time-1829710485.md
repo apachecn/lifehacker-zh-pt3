@@ -1,6 +1,6 @@
 # 最好的历史播客是“在我们的时代”
 
-> 原文:[https://life hacker . com/the-best-overall-history-podcast-is-in-our-time-1829710485](https://lifehacker.com/the-best-overall-history-podcast-is-in-our-time-1829710485)
+> 原文：<https://lifehacker.com/the-best-overall-history-podcast-is-in-our-time-1829710485>
 
 你应该多听一段历史播客。但如果你只能选一个，那就选《我们的时代》中的[](https://www.bbc.co.uk/programmes/b006qykl)*，这是一档受人尊敬的 BBC 广播节目和播客，每集涵盖不同的主题。这是你对很多事情都有所了解的最好机会。这是找出你真正感兴趣的历史的最好方法，以便进一步学习。* 
 

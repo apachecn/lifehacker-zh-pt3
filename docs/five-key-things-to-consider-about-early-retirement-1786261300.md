@@ -1,6 +1,6 @@
 # 提前退休要考虑的五个关键因素
 
-> 原文:[https://life hacker . com/five-key-things-to-consider-about-early retirement-1786261300](https://lifehacker.com/five-key-things-to-consider-about-early-retirement-1786261300)
+> 原文：<https://lifehacker.com/five-key-things-to-consider-about-early-retirement-1786261300>
 
 走上提前退休的道路，无论你是处于职业生涯的中期，希望能少活几年，还是处于职业生涯的早期，希望能少活一二十年，就像在不平的地面上跑一场很长的长跑。你可以在脑海中看到令人惊叹的终点线，但首先还有很多地方要走，一些意想不到的事情可能会发生。
 

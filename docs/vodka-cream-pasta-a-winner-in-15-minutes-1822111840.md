@@ -1,6 +1,6 @@
 # 伏特加奶油意大利面，15 分钟后的赢家
 
-> 原文:[https://the take out . com/vodka-cream-pasta-a-winner-in-15-minutes-1822111840](https://thetakeout.com/vodka-cream-pasta-a-winner-in-15-minutes-1822111840)
+> 原文：<https://thetakeout.com/vodka-cream-pasta-a-winner-in-15-minutes-1822111840>
 
 *在* [**仓促的美食**](https://thetakeout.com/tag/hasty-gourmet) *，*外卖*的作者提供可靠的食谱，只需很少的配料和最少的努力，就值得在晚宴上享用。*
 

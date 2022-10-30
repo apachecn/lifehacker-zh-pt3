@@ -1,6 +1,6 @@
 # 来自我们读者的最佳檀香山和夏威夷旅游贴士
 
-> 原文:[https://life hacker . com/the-best-檀香山和夏威夷旅游提示-from-our-reade-1826274726](https://lifehacker.com/the-best-honolulu-and-hawaii-travel-tips-from-our-reade-1826274726)
+> 原文：<https://lifehacker.com/the-best-honolulu-and-hawaii-travel-tips-from-our-reade-1826274726>
 
 大家好！(“Aloha，Lifehacker！”)本周，我们得到了去檀香山和夏威夷其他地方旅行的绝佳建议。去看看这个评论帖 中“员工”标签下的所有最佳提示 [，或者只是浏览下面的亮点。](https://lifehacker.com/tell-us-your-honolulu-travel-tips-1826149142) 
 

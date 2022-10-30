@@ -1,6 +1,6 @@
 # 新的超级用户网络浏览器 Vivaldi 的截图之旅
 
-> 原文:[https://life hacker . com/a-screen-tour-of-vivaldi-the-new-power-user-we b-br-1770875531](https://lifehacker.com/a-screenshot-tour-of-vivaldi-the-new-power-user-web-br-1770875531)
+> 原文：<https://lifehacker.com/a-screenshot-tour-of-vivaldi-the-new-power-user-web-br-1770875531>
 
 厌倦了 Chrome？厌倦了不能自定义 Safari 的事实？希望 Firefox 稍微好一点？基于 Chromium 的新浏览器 Vivaldi 希望通过一个高度可定制的超级用户浏览器，利用你对无聊、现代、普通浏览器的厌恶。让我们看看它是如何堆积起来的。
 

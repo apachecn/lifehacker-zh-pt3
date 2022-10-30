@@ -1,6 +1,6 @@
 # 为什么给需要额外费用的汽车加普通汽油不会给你省钱
 
-> 原文:[https://jalopnik . com/why-put-regular-gas to-a car-the-need-premium-w-1796463139](https://jalopnik.com/why-putting-regular-gas-into-a-car-that-needs-premium-w-1796463139)
+> 原文：<https://jalopnik.com/why-putting-regular-gas-into-a-car-that-needs-premium-w-1796463139>
 
 使用普通汽油是否会损坏一辆需要优质汽油的汽车，这个问题似乎永远不会消失。我见过这个问题撕裂家庭，伴随着抽泣和相互指责——这并不美好。这就是为什么我联系了一个真正的燃料系统工程师来彻底解决这个永恒的问题。
 

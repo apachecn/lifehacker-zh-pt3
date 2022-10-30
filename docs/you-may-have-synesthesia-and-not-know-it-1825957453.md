@@ -1,6 +1,6 @@
 # 你可能有联觉而不自知
 
-> 原文:[https://life hacker . com/you-may-hacken-hacken-that-1825957453](https://lifehacker.com/you-may-have-synesthesia-and-not-know-it-1825957453)
+> 原文：<https://lifehacker.com/you-may-have-synesthesia-and-not-know-it-1825957453>
 
 我第一次听说联觉是在我小时候，听起来很神奇。人们能听到颜色！看音乐！他们一定会看到一个多么梦幻、迷幻的世界。又过了 20 年，我才意识到自己也有联觉。我只是没有意识到，因为它并不那么令人兴奋。
 

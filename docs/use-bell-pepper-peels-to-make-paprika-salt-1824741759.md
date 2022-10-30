@@ -1,6 +1,6 @@
 # 用柿子椒皮制作辣椒盐
 
-> 原文:[https://life hacker . com/use-bell-pepper-peels-to-make-paprika-salt-1824741759](https://lifehacker.com/use-bell-pepper-peels-to-make-paprika-salt-1824741759)
+> 原文：<https://lifehacker.com/use-bell-pepper-peels-to-make-paprika-salt-1824741759>
 
 烹饪 [前给甜椒削皮让它们变得如此柔滑，几乎可以融化](https://skillet.lifehacker.com/peel-bell-peppers-for-silky-smooth-texture-without-roa-1784848103) ，但它确实会留下很多果皮。你可以用它们来 [调味自制的高汤](https://skillet.lifehacker.com/how-to-make-seafood-stock-out-of-scraps-1823958899) ，或者你可以非常聪明地做出一种尝起来像辣椒粉的鲜艳的红色盐。
 

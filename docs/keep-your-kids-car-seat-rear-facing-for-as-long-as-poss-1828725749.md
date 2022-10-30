@@ -1,6 +1,6 @@
 # 让你的孩子的汽车座椅尽可能朝后
 
-> 原文:[https://life hacker . com/keep-your-kids-car-seat-rear-facing-as-long-as-poss-1828725749](https://lifehacker.com/keep-your-kids-car-seat-rear-facing-for-as-long-as-poss-1828725749)
+> 原文：<https://lifehacker.com/keep-your-kids-car-seat-rear-facing-for-as-long-as-poss-1828725749>
 
 美国儿科学会发布了一个 [新建议](http://www.aappublications.org/news/2018/08/30/passengersafety083018) :“儿童应该尽可能长时间地坐在后向汽车座椅上**，直到他们的汽车安全座椅的极限。”** 
 

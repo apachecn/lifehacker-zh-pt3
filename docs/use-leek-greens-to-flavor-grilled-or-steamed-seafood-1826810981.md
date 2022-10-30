@@ -1,6 +1,6 @@
 # 用韭菜给烧烤或蒸海鲜调味
 
-> 原文:[https://life hacker . com/use-leek-greens-to-调味-烧烤-或-清蒸-海鲜-1826810981](https://lifehacker.com/use-leek-greens-to-flavor-grilled-or-steamed-seafood-1826810981)
+> 原文：<https://lifehacker.com/use-leek-greens-to-flavor-grilled-or-steamed-seafood-1826810981>
 
 韭菜很快成为我最喜欢的韭菜。它们不仅在煎炸 时发出奇怪的砰砰声，还可以用来给鱼和其他海鲜注入微妙、独特的味道。
 

@@ -1,6 +1,6 @@
 # 如何创建一个匿名的协作谷歌表
 
-> 原文:[https://life hacker . com/how-to-create-a-anonymous-collaborative-Google-sheet-1821990886](https://lifehacker.com/how-to-create-an-anonymous-collaborative-google-sheet-1821990886)
+> 原文：<https://lifehacker.com/how-to-create-an-anonymous-collaborative-google-sheet-1821990886>
 
 在一篇即将发表的新文章中， [作家莫伊拉·多内根披露了](https://www.thecut.com/2018/01/moira-donegan-i-started-the-media-men-list.html) 她创建了 [“低劣媒体人”名单](https://jezebel.com/the-protection-racket-1819404377) ，这是一个匿名的谷歌工作表电子表格，列出了那些攻击、骚扰或以其他方式对待他们的女同事的杰出媒体人。这份名单一夜之间像病毒一样传播开来，并帮助结束，或者至少中断了几名性骚扰者的职业生涯。虽然有几份拷贝保存了下来，但在多纳根关闭它之前，原始名单只持续了 12 个小时，只列出了 70 个人。无关:以下是如何创建自己的匿名协作 Google Sheet，出于什么原因，谁知道呢！
 

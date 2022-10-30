@@ -1,6 +1,6 @@
 # 我的女朋友嫉妒我的女朋友
 
-> 原文:[https://life hacker . com/my-女朋友嫉妒我的女朋友-1825150962](https://lifehacker.com/my-girlfriend-is-jealous-of-my-girl-friend-1825150962)
+> 原文：<https://lifehacker.com/my-girlfriend-is-jealous-of-my-girl-friend-1825150962>
 
 这个星期我们有一个男人有一个女性最好的朋友，但是他的女朋友开始嫉妒了。
 

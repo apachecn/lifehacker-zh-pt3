@@ -1,6 +1,6 @@
 # 情人节生存指南
 
-> 原文:[https://life hacker . com/the-valentines-day-survival-guide-5759423](https://lifehacker.com/the-valentines-day-survival-guide-5759423)
+> 原文：<https://lifehacker.com/the-valentines-day-survival-guide-5759423>
 
 情人节是庆祝爱情的美好时光；它也可能是等待发生的地狱般的灾难。以下是如何度过情人节的方法，让它成为你真正想要记住的夜晚——不管你有没有人陪你度过。
 

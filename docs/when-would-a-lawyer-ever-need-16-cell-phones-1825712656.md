@@ -1,6 +1,6 @@
 # 律师什么时候会需要 16 部手机？
 
-> 原文:[https://life hacker . com/when-a-lawyer-ever-need-16-phones-1825712656](https://lifehacker.com/when-would-a-lawyer-ever-need-16-cell-phones-1825712656)
+> 原文：<https://lifehacker.com/when-would-a-lawyer-ever-need-16-cell-phones-1825712656>
 
 上周，联邦检察官从唐纳德·特朗普的律师迈克尔·科恩那里缴获了 16 部手机 ，这让我们许多人不禁好奇，什么样的律师会需要 16 部手机，而且都可能与工作有关？所以我们问了一些律师。
 

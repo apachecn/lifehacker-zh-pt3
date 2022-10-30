@@ -1,6 +1,6 @@
 # 用几个色调应用程序设置正确的情绪
 
-> 原文:[https://life hacker . com/set-the-right-mood-with-some-hue-apps-1820224917](https://lifehacker.com/set-the-right-mood-with-a-few-hue-apps-1820224917)
+> 原文：<https://lifehacker.com/set-the-right-mood-with-a-few-hue-apps-1820224917>
 
 飞利浦自己的 Hue iOS 和 Android 应用程序是非常简单的工具，用于配置飞利浦智能灯和配件，安排在特定时间发生的操作，并将传感器与灯和预设场景相结合，这样你就再也不用碰灯开关了。但该应用程序在定制选项方面有所限制，当涉及到表达你丰富多彩的时尚感(或让你的灯光在晚上显示正确的红色色调)时，可能会令人沮丧。你可以抱怨你的智能灯只是有点智能，或者你可以花几块钱买一些色调友好的应用程序，为你的灯、传感器和开关解锁新的功能、控制和更多定制选项。
 

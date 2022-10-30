@@ -1,6 +1,6 @@
 # HIBR 枕头让您保持凉爽，可能是您购买的最后一个枕头
 
-> 原文:[https://life hacker . com/the-hibr-pillow-keep-you-cool-may-be the last-pillow-1740059761](https://lifehacker.com/the-hibr-pillow-keeps-you-cool-may-be-the-last-pillow-1740059761)
+> 原文：<https://lifehacker.com/the-hibr-pillow-keeps-you-cool-may-be-the-last-pillow-1740059761>
 
 对我来说，找到合适的枕头有点像神话般的探索。我想要结实的、有支撑力的东西，但要有足够的付出。我也希望它能让我保持头脑冷静。很长一段时间，我以为我永远也找不到它了——后来我尝试了 HIBR 枕头，它改变了游戏规则。它并不完美...但是已经很接近了。
 

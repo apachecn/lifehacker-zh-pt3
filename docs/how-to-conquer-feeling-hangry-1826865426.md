@@ -1,6 +1,6 @@
 # 如何克服“饥饿”的感觉
 
-> 原文:[https://life hacker . com/how-to-conquel-feeling-hangry-1826865426](https://lifehacker.com/how-to-conquer-feeling-hangry-1826865426)
+> 原文：<https://lifehacker.com/how-to-conquer-feeling-hangry-1826865426>
 
 饥饿对我们的情绪有一种奇怪的影响。即使是最好的人也可能在开始感到胃部有熟悉的疼痛时变得有点不安、易怒和暴躁。当然，一个解决办法是吃。但是当这不是一个选项时，有另一种方法可以避免变成一个糟糕的士力架广告。
 

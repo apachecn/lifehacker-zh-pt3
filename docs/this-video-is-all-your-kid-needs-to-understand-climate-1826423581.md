@@ -1,6 +1,6 @@
 # 这个视频是你的孩子理解气候科学所需要的
 
-> 原文:[https://gizmodo . com/this-video-is all-your-kid-need-to-know-climate-1826423581](https://gizmodo.com/this-video-is-all-your-kid-needs-to-understand-climate-1826423581)
+> 原文：<https://gizmodo.com/this-video-is-all-your-kid-needs-to-understand-climate-1826423581>
 
  [https://gizmodo.com/embed/inset/iframe?id=youtube-video-931drXJDqT4&start=0](https://gizmodo.com/embed/inset/iframe?id=youtube-video-931drXJDqT4&start=0) 
 

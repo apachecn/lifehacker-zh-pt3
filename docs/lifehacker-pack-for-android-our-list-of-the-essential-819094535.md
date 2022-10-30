@@ -1,6 +1,6 @@
 # Android 版 Lifehacker Pack:我们的基本 Android 应用列表
 
-> 原文:[https://life hacker . com/life hacker-pack-for-Android-our-list-of-essential-819094535](https://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535)
+> 原文：<https://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535>
 
 Play Store 中有超过 200 万个应用程序，Android 是世界上最大的应用程序商店之一。很快它们甚至会成为你最喜欢的 Chromebooks 上的。在今年的年度 Lifehacker Pack 中，我们挑选了你可能需要的每一类应用程序的必备下载。
 

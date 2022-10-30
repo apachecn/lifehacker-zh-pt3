@@ -1,6 +1,6 @@
 # 追踪埃隆·马斯克的特斯拉跑车前往火星
 
-> 原文:[https://life hacker . com/track-elon-musks-Tesla-roadster-on-its-way-to-mars-with-1823122697](https://lifehacker.com/track-elon-musks-tesla-roadster-on-its-way-to-mars-with-1823122697)
+> 原文：<https://lifehacker.com/track-elon-musks-tesla-roadster-on-its-way-to-mars-with-1823122697>
 
 本月早些时候，埃隆·马斯克(Elon Musk)的 SpaceX 成功发射了该公司迄今最强大的火箭猎鹰重型(Falcon Heavy)。里面是一辆红色的特斯拉 Roadster 跑车，内置摄像头用于捕捉它看到的东西，还有一本艾萨克·阿西莫夫的科幻系列丛书，还有一架刻有 6000 名 SpaceX 员工名字的飞机。汽车的目的地:火星。
 

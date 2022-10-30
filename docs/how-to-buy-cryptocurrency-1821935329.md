@@ -1,6 +1,6 @@
 # 如何购买加密货币
 
-> 原文:[https://lifehacker.com/how-to-buy-cryptocurrency-1821935329](https://lifehacker.com/how-to-buy-cryptocurrency-1821935329)
+> 原文：<https://lifehacker.com/how-to-buy-cryptocurrency-1821935329>
 
 所以你准备买一些 [加密货币](https://lifehacker.com/consider-these-digital-currency-exchange-alternatives-t-1821787464) 。也许你一直在研究 [区块链科技](https://gizmodo.com/whats-the-blockchain-and-why-does-bitcoin-depend-on-it-1698025216) ，你确信它真的是未来。或者，你可能看到一个朋友通过比特币变得富有，但你仍在为自己没有这么做而自责。
 

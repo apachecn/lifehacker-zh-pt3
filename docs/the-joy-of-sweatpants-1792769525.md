@@ -1,6 +1,6 @@
 # 运动裤的快乐
 
-> 原文:[https://lifehacker.com/the-joy-of-sweatpants-1792769525](https://lifehacker.com/the-joy-of-sweatpants-1792769525)
+> 原文：<https://lifehacker.com/the-joy-of-sweatpants-1792769525>
 
 我最近买了一条运动裤。它们是柔软的。它们是温暖的。它们很舒服。我从童年起就没有穿过，甚至没有想过要穿运动裤，而是从早到晚选择牛仔裤，但我后来重新发现了一个只有穿软裤的人才知道的舒适世界。我建议你也这样做。
 

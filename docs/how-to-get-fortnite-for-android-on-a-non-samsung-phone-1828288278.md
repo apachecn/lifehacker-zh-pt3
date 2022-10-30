@@ -1,6 +1,6 @@
 # 如何在非三星手机上安装安卓版堡垒之夜
 
-> 原文:[https://life hacker . com/how-to-get-fort nine-on-a-non-Samsung-phone-1828288278](https://lifehacker.com/how-to-get-fortnite-for-android-on-a-non-samsung-phone-1828288278)
+> 原文：<https://lifehacker.com/how-to-get-fortnite-for-android-on-a-non-samsung-phone-1828288278>
 
 上周，Epic Games 宣布将堡垒之夜引入安卓系统，这是第一款专为三星用户提供的游戏。这种排他性应该只持续“几天”，现在看来，测试版也开始向非三星用户开放。
 

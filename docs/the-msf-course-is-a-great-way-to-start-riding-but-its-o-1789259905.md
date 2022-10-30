@@ -1,6 +1,6 @@
 # 无国界医生组织的课程是开始骑行的好方法，但这只是开始
 
-> 原文:[https://jalopnik . com/the-MSF-course-is-a-great-way-to-start-riding-but-its-o-1789259905](https://jalopnik.com/the-msf-course-is-a-great-way-to-start-riding-but-its-o-1789259905)
+> 原文：<https://jalopnik.com/the-msf-course-is-a-great-way-to-start-riding-but-its-o-1789259905>
 
 [摩托车安全基础](http://www.msf-usa.org/Default.aspx) 课程，对于那些不了解情况的人来说，最好可以概括为摩托车驾驶培训。在某些州，它会免除你执照考试的技能部分。在其他情况下，它会降低你的保险费率。总之，这是一个学习如何在准安全的环境中操作这些古怪装置的基本原理的好方法。但是不要搞错，它不会真的让你为在街上骑车做好准备。
 

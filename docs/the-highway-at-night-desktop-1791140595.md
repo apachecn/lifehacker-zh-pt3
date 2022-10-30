@@ -1,6 +1,6 @@
 # 夜晚的高速公路桌面
 
-> 原文:[https://life hacker . com/the-highway-at-night-desktop-1791140595](https://lifehacker.com/the-highway-at-night-desktop-1791140595)
+> 原文：<https://lifehacker.com/the-highway-at-night-desktop-1791140595>
 
 读者 [塞巴斯蒂安](http://kinja.com/sebastianerz) 向我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 提交了这个漂亮的桌面，壁纸和几个有品味的皮肤的结合是一个坚实，锐利的外观。他是这样设计的。
 

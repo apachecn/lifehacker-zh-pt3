@@ -1,6 +1,6 @@
 # 舒适的角落工作空间
 
-> 原文:[https://lifehacker.com/the-cozy-corner-workspace-1788085717](https://lifehacker.com/the-cozy-corner-workspace-1788085717)
+> 原文：<https://lifehacker.com/the-cozy-corner-workspace-1788085717>
 
 redditor[China town rocks](https://www.reddit.com/user/chinatownrocks)刚刚建造了他们的第一台 PC，并组装了他们的第一个工作空间！然而，你不会通过看这些照片来了解它——一切都很好，这是激发你自己空间的一个很好的组合。这里还有一些照片。
 

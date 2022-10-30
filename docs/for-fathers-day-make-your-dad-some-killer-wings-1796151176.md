@@ -1,6 +1,6 @@
 # 父亲节，给你爸爸做些黑仔鸡翅
 
-> 原文:[https://life hacker . com/for-father-day-make-your dad-some-killer-wings-1796151176](https://lifehacker.com/for-fathers-day-make-your-dad-some-killer-wings-1796151176)
+> 原文：<https://lifehacker.com/for-fathers-day-make-your-dad-some-killer-wings-1796151176>
 
 欢迎回到*周日食物*！上周，我以美味鸡尾酒的名义点燃了水果和蔬菜。今天，我想退一步，抱怨一下父亲节。
 

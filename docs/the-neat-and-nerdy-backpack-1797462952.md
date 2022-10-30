@@ -1,6 +1,6 @@
 # 整洁而书呆子气的背包
 
-> 原文:[https://life hacker . com/the-neat-and-nerdy-backpack-1797462952](https://lifehacker.com/the-neat-and-nerdy-backpack-1797462952)
+> 原文：<https://lifehacker.com/the-neat-and-nerdy-backpack-1797462952>
 
 当你整天不在家时，无论是工作还是探险，你都需要为每一个可能的意外事件做好准备。也许你会带一个额外的电池组，或者一些便携式娱乐设备。如果你想完成一些真正的工作，也许你有一堆电缆，或者一台笔记本电脑。
 

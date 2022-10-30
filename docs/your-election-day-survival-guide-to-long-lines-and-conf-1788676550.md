@@ -1,6 +1,6 @@
 # 你的选举日生存指南长队和混乱的选票
 
-> 原文:[https://life hacker . com/your-election-day-survival-guide-to-long-lines-and-conf-1788676550](https://lifehacker.com/your-election-day-survival-guide-to-long-lines-and-conf-1788676550)
+> 原文：<https://lifehacker.com/your-election-day-survival-guide-to-long-lines-and-conf-1788676550>
 
 如果你今天准备去投票，你应该做好准备。知道你的选票上有什么，带些可以阅读的东西(或者一个外置电池组)，准备好排长队。这里有一个视频指南来帮助你完成它。
 

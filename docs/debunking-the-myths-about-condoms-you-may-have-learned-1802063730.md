@@ -1,6 +1,6 @@
 # 很多学校教的避孕套“事实”都是错的
 
-> 原文:[https://life hacker . com/debunk-the-myths-on-the-comes-you-may-hacked-learned-1802063730](https://lifehacker.com/debunking-the-myths-about-condoms-you-may-have-learned-1802063730)
+> 原文：<https://lifehacker.com/debunking-the-myths-about-condoms-you-may-have-learned-1802063730>
 
 朋友们，你们被骗了。我的意思是，可能在很多方面，但特别是如果你有任何种类的性负面健康课程。今天，我们将对你可能已经知道的关于避孕套的所有错误和误导的“事实”进行澄清。
 

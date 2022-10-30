@@ -1,6 +1,6 @@
 # 提交工作申请后你可能会犯的三个错误
 
-> 原文:[https://life hacker . com/three-job-application-missons-you-may-make-after-ALR-1789837315](https://lifehacker.com/three-job-application-mistakes-you-might-make-after-alr-1789837315)
+> 原文：<https://lifehacker.com/three-job-application-mistakes-you-might-make-after-alr-1789837315>
 
 在某些方面，点击“提交”按钮申请工作是一种宣泄。你已经付出了很多努力来美化你的简历和求职信，坦率地说，你对整件事已经没什么感觉了。问题是，对许多人来说，仅仅过了几分钟，他们就开始思考他们可能做错的所有事情。
 

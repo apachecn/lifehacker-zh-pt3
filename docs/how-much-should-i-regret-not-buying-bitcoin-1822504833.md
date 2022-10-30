@@ -1,6 +1,6 @@
 # 不买比特币该后悔到什么程度？
 
-> 原文:[https://gizmodo . com/how-more-should-I-revenue-not-buying-bit coin-1822504833](https://gizmodo.com/how-much-should-i-regret-not-buying-bitcoin-1822504833)
+> 原文：<https://gizmodo.com/how-much-should-i-regret-not-buying-bitcoin-1822504833>
 
 第一笔比特币交易是由一个买了两个披萨的人完成的。这样的安排价值超过今天的1 亿美元。后悔从一开始就被烤成了比特币。去年，不知何故，比特币的价格上涨了 1000%以上。这个数字后来有所下降，但在撰写本文时，一个比特币的价值仍在 1.1 万美元左右。
 

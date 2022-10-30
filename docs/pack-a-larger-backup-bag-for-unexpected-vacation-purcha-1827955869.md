@@ -1,6 +1,6 @@
 # 为意外的假期购物准备一个更大的“备用包”
 
-> 原文:[https://life hacker . com/pack-a-large-backup-bag-for-unexpected-vacation-purcha-1827955869](https://lifehacker.com/pack-a-larger-backup-bag-for-unexpected-vacation-purcha-1827955869)
+> 原文：<https://lifehacker.com/pack-a-larger-backup-bag-for-unexpected-vacation-purcha-1827955869>
 
 这些天来，我倾向于每个月至少有两周去旅行，这意味着，除了其他事情，我已经成为一个执着于行李箱的专家。我确切地知道我需要为一周的外出打包什么，以及如何打包，以便它们都可以舒适地放在我的随身行李中，这样我就可以避免在门口托运行李。我的武器库中最近增加的最大的东西:一个薄薄的行李袋，我在打包之前放在我的随身行李的底部。
 

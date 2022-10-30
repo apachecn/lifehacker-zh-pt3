@@ -1,6 +1,6 @@
 # 使用 FDA 的新应用程序搜索可靠的药物信息
 
-> 原文:[https://life hacker . com/search-for-reliable-drug-info-using-the-FDA-new-app-1824053792](https://lifehacker.com/search-for-reliable-drug-info-using-the-fdas-new-app-1824053792)
+> 原文：<https://lifehacker.com/search-for-reliable-drug-info-using-the-fdas-new-app-1824053792>
 
 说到在网上搜索医疗信息，互联网可能是一个…大杂烩。本周，美国联邦药品管理局(Federal Drug Administration)发布了一款应用程序，可以让你的医生订户(或你在电视上看到的另一种药物)更容易找到新药的信息，而且更加可靠。
 

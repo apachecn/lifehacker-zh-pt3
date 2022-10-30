@@ -1,6 +1,6 @@
 # 这里有一个来自 Jughead 的浪漫小贴士
 
-> 原文:[https://life hacker . com/heres-a-great-romance-tip-from-jug head-all-places-1820123385](https://lifehacker.com/heres-a-great-romance-tip-from-jughead-of-all-places-1820123385)
+> 原文：<https://lifehacker.com/heres-a-great-romance-tip-from-jughead-of-all-places-1820123385>
 
 在最近一期的*阿奇*衍生剧*中，漫画的主角爱上了一个女孩。猪头有 [被规范认定为无性](https://www.avclub.com/after-75-years-of-archie-comics-jughead-is-the-hero-20-1798255044) ，所以他很震惊也很困惑。他不知道这个女孩长什么样；他只见过她穿成巨型芝士汉堡。所以他的朋友贝蒂敦促他采取行动——但是要有礼貌，有礼貌。对于一个因生姜而陷入三角恋的年轻女子，贝蒂有一个很好的建议*
 

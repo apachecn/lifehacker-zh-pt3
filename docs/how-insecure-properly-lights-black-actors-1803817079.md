@@ -1,6 +1,6 @@
 # 如何不安全适当点燃黑人演员
 
-> 原文:[https://life hacker . com/how-insecurity-proper-lights-black-actors-1803817079](https://lifehacker.com/how-insecure-properly-lights-black-actors-1803817079)
+> 原文：<https://lifehacker.com/how-insecure-properly-lights-black-actors-1803817079>
 
 几十年来，照片和视频设备的设计和测试只考虑了白人。照亮较深的肤色与照亮较浅的肤色采用不同的方法。HBO 的《不安全的 T1》的摄影导演艾娃·伯克夫斯基告诉 Mic [她的团队如何为该剧的黑人演员](https://mic.com/articles/184244/keeping-insecure-lit-hbo-cinematographer-ava-berkofsky-on-properly-lighting-black-faces) 打光，Mic 记者泽维尔·哈丁展示了下面的一些技巧。
 

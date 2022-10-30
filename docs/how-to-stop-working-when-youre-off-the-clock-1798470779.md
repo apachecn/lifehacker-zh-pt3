@@ -1,6 +1,6 @@
 # 下班后如何停止工作
 
-> 原文:[https://life hacker . com/how-to-stop-working-when you-off-the-clock-1798470779](https://lifehacker.com/how-to-stop-working-when-youre-off-the-clock-1798470779)
+> 原文：<https://lifehacker.com/how-to-stop-working-when-youre-off-the-clock-1798470779>
 
 几周前，我去爱达荷州的乡下露营了几天。这次旅行完全是偶然的，它结束了我 10 年来第一次真正意义上的脱离互联网。
 

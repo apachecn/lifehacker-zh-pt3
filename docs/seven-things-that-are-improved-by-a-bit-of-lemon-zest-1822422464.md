@@ -1,6 +1,6 @@
 # 用柠檬皮彻底改善这些食物
 
-> 原文:[https://life hacker . com/seven-things-that-be-improved-by-bit-of-lemon-zest-1822422464](https://lifehacker.com/seven-things-that-are-improved-by-a-bit-of-lemon-zest-1822422464)
+> 原文：<https://lifehacker.com/seven-things-that-are-improved-by-a-bit-of-lemon-zest-1822422464>
 
 在美味的菜肴上挤一点新鲜的柠檬汁可以增加一点亮度，并有助于平衡任何过于浓郁的味道，但还有另一部分柠檬你应该洒在你的烹饪生活中:果皮，或者，如果你是一个普通的赤脚伯爵或伯爵夫人，“zest”
 

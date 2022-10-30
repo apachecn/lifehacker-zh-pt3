@@ -1,6 +1,6 @@
 # 下定决心，不要说教
 
-> 原文:[https://life hacker . com/make-resolutions-without-moralization-1821658054](https://lifehacker.com/make-resolutions-without-moralizing-1821658054)
+> 原文：<https://lifehacker.com/make-resolutions-without-moralizing-1821658054>
 
 “自我提升”是一个棘手的决议框架。我们认为这句话是理所当然的，但它真正在说什么呢？改变生活习惯会改善你自己？这意味着你的选择具有道德价值，给一些习惯贴上“好”的标签，给另一些贴上“坏”的标签。最终，你的生活方式选择会影响你作为一个人的内在价值。老实说，那很糟糕。
 

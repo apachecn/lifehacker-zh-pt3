@@ -1,6 +1,6 @@
 # 你应该用便宜的啤酒做饭
 
-> 原文:[https://life hacker . com/you-should-to-cooking with the 廉价啤酒-1822914299](https://lifehacker.com/you-should-be-cooking-with-cheap-beer-1822914299)
+> 原文：<https://lifehacker.com/you-should-be-cooking-with-cheap-beer-1822914299>
 
 便宜的啤酒名声不好，但是这些天我越来越倾向于选择它而不是高档的。与浓烈的 IPAs 不同，普通的 lagers 不会与食物竞争，也不会让我宿醉，而且用它们做饭绝对是一种享受。
 

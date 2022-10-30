@@ -1,6 +1,6 @@
 # 使用 Mozilla 的最新工具保护您的数据安全
 
-> 原文:[https://life hacker . com/keep-your-data-secure-with-mozillas-newest-tools-1829304577](https://lifehacker.com/keep-your-data-secure-with-mozillas-newest-tools-1829304577)
+> 原文：<https://lifehacker.com/keep-your-data-secure-with-mozillas-newest-tools-1829304577>
 
 Mozilla 最近在数据安全和隐私方面大做文章，我们对此表示赞赏。每当你注册一项新服务或在网上闲逛时，保护你的信息免受他人窥探(和攻击)应该是你的首要考虑。看到关于浏览器和新安全措施的好消息令人耳目一新，不像其他公司最近的努力。
 

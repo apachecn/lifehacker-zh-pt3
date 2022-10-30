@@ -1,6 +1,6 @@
 # 制作并冷冻你自己的法式面包披萨
 
-> 原文:[https://life hacker . com/make-and-freeze-your-own-French-bread-pizzas-1828553815](https://lifehacker.com/make-and-freeze-your-own-french-bread-pizzas-1828553815)
+> 原文：<https://lifehacker.com/make-and-freeze-your-own-french-bread-pizzas-1828553815>
 
 我们都有自己喜欢的冷冻方便食品。有些人偷热口袋。其他 [卷饼](https://lifehacker.com/make-two-weeks-worth-of-breakfasts-with-one-sheet-pan-1819690171) 。我一直对法式面包披萨情有独钟。除了热口袋——它肯定是在实验室里创造的——你可以自己制作和冷冻这些便利的东西。
 

@@ -1,6 +1,6 @@
 # 如何安装 Safari 测试版并最终获得收藏夹图标
 
-> 原文:[https://life hacker . com/how-to-install-the-safari-beta-and-finally-get-favicons-1826713056](https://lifehacker.com/how-to-install-the-safari-beta-and-finally-get-favicons-1826713056)
+> 原文：<https://lifehacker.com/how-to-install-the-safari-beta-and-finally-get-favicons-1826713056>
 
 苹果公司本周为运行 macOS High Sierra 的人和运行 macOS Mojave 测试版的开发者提供了 Safari 技术预览版 58。如果您已经在运行以前的 Safari 技术预览版，那么您可以从 Mac App Store 的“更新”标签中更新您的版本。如果你不是，你可以直接在 这里 [下载。](https://developer.apple.com/safari/download/) 
 

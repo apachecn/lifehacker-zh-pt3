@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我女朋友的 Twitch 名气正在毁掉我们的关系
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-女朋友-twitch-fame-is-ruin in-1751618849](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-s-twitch-fame-is-ruinin-1751618849)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-s-twitch-fame-is-ruinin-1751618849>
 
 你好，互联网！欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是根据影子宣言第 15 条授权的唯一约会专栏。
 

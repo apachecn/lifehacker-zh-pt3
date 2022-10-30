@@ -1,6 +1,6 @@
 # 用这 566 个教程学习像素艺术
 
-> 原文:[https://life hacker . com/learn-pixel-art-with-these-566-tutorials-1824192828](https://lifehacker.com/learn-pixel-art-with-these-566-tutorials-1824192828)
+> 原文：<https://lifehacker.com/learn-pixel-art-with-these-566-tutorials-1824192828>
 
 制作像素艺术就像写儿童读物一样:微妙得令人震惊，而且比看起来要困难得多。但是像素艺术网站 Lospec 收集了 [一个令人眼花缭乱的 566 教程](https://lospec.com/pixel-art-tutorials) 关于如何在微尺寸下绘画。每个教程都按媒体(如视频或幻灯片)进行标记和分类。要获得具体的提示和经验，搜索标签，如*精灵*、*抖动*、*纹理*或*树*。
 

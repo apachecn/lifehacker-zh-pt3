@@ -1,6 +1,6 @@
 # 在腌制或腌泡蔬菜之前，先把它们烤熟
 
-> 原文:[https://life hacker . com/grill-vegetables-before-pickle-or-marinating-them-1828057997](https://lifehacker.com/grill-vegetables-before-pickling-or-marinating-them-1828057997)
+> 原文：<https://lifehacker.com/grill-vegetables-before-pickling-or-marinating-them-1828057997>
 
 没错，发酵泡菜总是比快速泡菜更美味，但是据《美食》报道，马克·比特曼通过先烤蔬菜来增加烟熏的深度。
 

@@ -1,6 +1,6 @@
 # 为了更好的健康，做一个小小的改变，而不是一个决心
 
-> 原文:[https://life hacker . com/make-one-of-these-small-changes-for better-health-inste-1790710017](https://lifehacker.com/make-one-of-these-small-changes-for-better-health-inste-1790710017)
+> 原文：<https://lifehacker.com/make-one-of-these-small-changes-for-better-health-inste-1790710017>
 
 既然假期的混乱已经过去，我们很多人都发誓要为自己的健康做出改变——但我们知道雄心勃勃的决心并不总是那么顺利 。所以不要说你会“减肥”或者“吃得更好”，试着做一两个简单具体的改变。
 

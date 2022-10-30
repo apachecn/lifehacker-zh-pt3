@@ -1,6 +1,6 @@
 # 太多的大麻会导致恶心和呕吐
 
-> 原文:[https://life hacker . com/太多的杂草会引起恶心和呕吐-1825238436](https://lifehacker.com/too-much-weed-can-cause-nausea-and-vomiting-1825238436)
+> 原文：<https://lifehacker.com/too-much-weed-can-cause-nausea-and-vomiting-1825238436>
 
 杂草以其缓解恶心的能力而闻名，但对于大量吸烟的人来说，它可能会产生相反的效果。这种鲜为人知的情况被称为(CHS)，包括一阵阵的极度恶心、呕吐和胃痛，可以通过热水淋浴暂时缓解。
 

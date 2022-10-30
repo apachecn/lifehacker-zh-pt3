@@ -1,6 +1,6 @@
 # 我的车被偷了，我想要一些有趣的 4WD！应该买什么车？
 
-> 原文:[https://jalopnik . com/my-car-get-stopped-and-I-want-some-fun-with-4wd-wh-1787905635](https://jalopnik.com/my-car-got-stolen-and-i-want-something-fun-with-4wd-wh-1787905635)
+> 原文：<https://jalopnik.com/my-car-got-stolen-and-i-want-something-fun-with-4wd-wh-1787905635>
 
 蔡斯不得不面对所有车主的终极噩梦。他去找他的车，却发现车不见了。令人欣慰的是，他并不热衷于他的旧跨界车，无论如何，他想得到一些有趣的东西，仍然可以应付雪。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 2017 年最佳技术职位
 
-> 原文:[https://life hacker . com/the-best-tech-posts-of-2017-1821537498](https://lifehacker.com/the-best-tech-posts-of-2017-1821537498)
+> 原文：<https://lifehacker.com/the-best-tech-posts-of-2017-1821537498>
 
 从管理你的订阅的应用程序到当电池经历了更好的日子时让你的手机保持活力的方法，你可以用来充分利用你日常使用的技术的技巧和窍门都在这里，2017 年充满了它们。以 Lifehacker 今年的一些最佳技术帖子开始 2018 年。
 

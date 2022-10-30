@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 21 日至 28 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 21 日至 28 日-1788302159](https://lifehacker.com/this-weeks-most-popular-posts-october-21st-to-28th-1788302159)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-21st-to-28th-1788302159>
 
 我们在 Lifehacker 上的第七届年度 [邪恶周](http://lifehacker.com/welcome-to-lifehackers-seventh-annual-evil-week-1788085206) 就这样结束了，我们走在实用与有害之间，为你带来生活阴暗面的提示。巧合(或者不是？)这也是科技界繁忙的一周，微软和苹果都发布了新设备。这里回顾一下。
 

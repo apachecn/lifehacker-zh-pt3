@@ -1,6 +1,6 @@
 # 如何在没有电视的情况下观看格莱美
 
-> 原文:[https://life hacker . com/how-to-stream-the-Grammys-without-a-TV-1822479229](https://lifehacker.com/how-to-stream-the-grammys-without-a-tv-1822479229)
+> 原文：<https://lifehacker.com/how-to-stream-the-grammys-without-a-tv-1822479229>
 
 今年格莱美改变了地点，在纽约市举行，而不是他们通常的家乡洛杉矶。他们也比正常情况来得早一点。虽然该节目通常在 2 月中旬举行，但今年它将在本周末举行，以避免与冬季奥运会竞争。
 

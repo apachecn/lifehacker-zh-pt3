@@ -1,6 +1,6 @@
 # 如果你不喜欢 MacBook 的新键盘，试试 Haptic Touchbar 应用
 
-> 原文:[https://life hacker . com/if-you-hate-the-macbook-s-new-keyboard-try-the-haptic-1819445308](https://lifehacker.com/if-you-hate-the-macbook-s-new-keyboard-try-the-haptic-1819445308)
+> 原文：<https://lifehacker.com/if-you-hate-the-macbook-s-new-keyboard-try-the-haptic-1819445308>
 
 MacBook Pro 的 Touchbar 是笔记本电脑的一个两极分化。许多人称赞它的多功能性， [，而其他人则哀叹苹果键盘上我们已经熟悉并喜欢的传统快捷键](https://gizmodo.com/the-macbook-pros-touch-bar-is-a-gimmick-thats-not-worth-1788931016) 的取消。因为没有触觉指示你是否按了 Touchbar 上的一个键，所以当你发现自己在你认为没有对准的 Escape 键应该敲的地方敲了一下却没有得到响应，这有点令人沮丧。在这种情况下，你应该检查一下 [触觉触摸条](https://www.haptictouchbar.com/) 应用程序，从你的手指获得一点反馈。
 

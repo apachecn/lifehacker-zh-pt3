@@ -1,6 +1,6 @@
 # 便宜的衣服太贵了:买质量好的吧
 
-> 原文:[https://life hacker . com/便宜-衣服-太贵-买质量-而不是-1751019637](https://lifehacker.com/cheap-clothes-are-too-expensive-buy-quality-instead-1751019637)
+> 原文：<https://lifehacker.com/cheap-clothes-are-too-expensive-buy-quality-instead-1751019637>
 
 高质量的衣服更耐穿，更舒适，穿着时让你看起来和感觉都很好。最重要的是，你可以在任何地方找到质量。归结起来就是买一些不那么平庸的东西，然后用这些钱买一些永恒的好东西。
 

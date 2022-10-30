@@ -1,6 +1,6 @@
 # 如何和有毒的工作朋友分手
 
-> 原文:[https://life hacker . com/how-to-break-up-a-toxic-work-friend-1819009561](https://lifehacker.com/how-to-break-up-with-a-toxic-work-friend-1819009561)
+> 原文：<https://lifehacker.com/how-to-break-up-with-a-toxic-work-friend-1819009561>
 
 工作场所是有趣的小生态系统。你把所有的时间都花在工作上，与从保安到同桌的每个人发展复杂的关系，但偶尔，这些脆弱的工作友谊会走向失败。
 

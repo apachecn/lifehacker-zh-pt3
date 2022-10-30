@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我是不是应该打算在餐厅和人分手？
 
-> 原文:[https://the take out . com/ask-the-salty-waste-I-should-plan-to-1825666551](https://thetakeout.com/ask-the-salty-waitress-should-i-plan-to-break-up-with-1825666551)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-should-i-plan-to-break-up-with-1825666551>
 
 * * *
 

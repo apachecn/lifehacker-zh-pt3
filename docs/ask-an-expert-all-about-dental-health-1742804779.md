@@ -1,6 +1,6 @@
 # 请教专家:关于牙齿健康的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-dental-health-1742804779](https://lifehacker.com/ask-an-expert-all-about-dental-health-1742804779)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-dental-health-1742804779>
 
 来跟马克·伯亨博士打个招呼吧。B 博士从一个更广阔的视角来看待口腔健康，而不仅仅是牙齿护理——毕竟你的口腔是你身体的一部分，但它经常被当作一个独立的生态系统来讨论。
 

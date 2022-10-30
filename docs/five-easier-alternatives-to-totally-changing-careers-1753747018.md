@@ -1,6 +1,6 @@
 # 彻底改变职业的五个更简单的选择
 
-> 原文:[https://life hacker . com/five-easy-alternatives-to-total-change-careers-1753747018](https://lifehacker.com/five-easier-alternatives-to-totally-changing-careers-1753747018)
+> 原文：<https://lifehacker.com/five-easier-alternatives-to-totally-changing-careers-1753747018>
 
 做任何类型的职业改变都是艰难的。在某些情况下，这几乎是不可能的——不管你记住多少关于追随激情的励志名言。但是你仍然可以在不转行的情况下做出改变。
 

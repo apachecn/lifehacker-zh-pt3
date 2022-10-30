@@ -1,6 +1,6 @@
 # 捣碎的黄瓜是更好的沙拉
 
-> 原文:[https://life hacker . com/smashed-cummings-make-better-salads-1826458158](https://lifehacker.com/smashed-cucumbers-make-better-salads-1826458158)
+> 原文：<https://lifehacker.com/smashed-cucumbers-make-better-salads-1826458158>
 
 清爽的冷黄瓜沙拉是你在夏天想要的一切，打碎黄瓜——而不是切片——会让这道菜更好吃。
 

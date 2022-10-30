@@ -1,6 +1,6 @@
 # 这就是路上那些奇怪的黑色管子的用途
 
-> 原文:[https://jalopnik . com/heres-whats-whats-the-sovereign-the-sovereign-black-tubes-in-the-road-1824997739](https://jalopnik.com/heres-what-those-weird-black-tubes-in-the-road-are-for-1824997739)
+> 原文：<https://jalopnik.com/heres-what-those-weird-black-tubes-in-the-road-are-for-1824997739>
 
 我一直在想管子。具体来说，你经常会发现一些奇怪的黑色管子横在马路上。那些管子是干什么用的？他们在追踪什么？它们是如何工作的？
 

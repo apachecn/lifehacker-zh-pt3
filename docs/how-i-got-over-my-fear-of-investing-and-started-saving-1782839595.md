@@ -1,6 +1,6 @@
 # 我是如何克服对投资的恐惧并开始为未来储蓄的
 
-> 原文:[https://life hacker . com/how-I-got-over-my-fear-of-investment-and-start-saving-1782839595](https://lifehacker.com/how-i-got-over-my-fear-of-investing-and-started-saving-1782839595)
+> 原文：<https://lifehacker.com/how-i-got-over-my-fear-of-investing-and-started-saving-1782839595>
 
 从小到大，我认为投资是超级富豪做的事情，因为他们有花不完的钱。这吓到了我，但我想我永远都不用担心它。事实证明，投资对我们其他人来说也是如此，如果你想增加你的净资产，这一点实际上很重要——即使你不是亿万富翁。
 

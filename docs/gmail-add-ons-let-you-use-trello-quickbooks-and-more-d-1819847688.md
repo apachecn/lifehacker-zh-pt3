@@ -1,6 +1,6 @@
 # Gmail 插件让您可以直接在 Gmail 中使用 Trello、Quickbooks 等
 
-> 原文:[https://life hacker . com/Gmail-add-ons-let-you-use-trello-quickbooks-and-more-d-1819847688](https://lifehacker.com/gmail-add-ons-let-you-use-trello-quickbooks-and-more-d-1819847688)
+> 原文：<https://lifehacker.com/gmail-add-ons-let-you-use-trello-quickbooks-and-more-d-1819847688>
 
 每天早上，我做的第一件事就是在电脑上启动 Gmail。虽然我在工作中使用大量不同的工具，但一切都是从我的电子邮件开始的——它有点像是完成所有事情的枢纽。从今天开始，Gmail 甚至可以成为一个枢纽，这要归功于 Gmail 插件 T3 的推出。
 

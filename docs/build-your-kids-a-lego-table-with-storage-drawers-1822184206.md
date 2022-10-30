@@ -1,6 +1,6 @@
 # 为你的孩子打造一个带储物抽屉的乐高桌
 
-> 原文:[https://life hacker . com/build-your-kids-a-Lego-table-with storage-drawers-1822184206](https://lifehacker.com/build-your-kids-a-lego-table-with-storage-drawers-1822184206)
+> 原文：<https://lifehacker.com/build-your-kids-a-lego-table-with-storage-drawers-1822184206>
 
 如果你有喜欢乐高的孩子，你可能会在踩到乐高积木后痛得大叫。那些东西到处都是。这里有一个来自 [杂工的女儿](https://www.thehandymansdaughter.com/diy-lego-table/) 的 DIY 解决方案。使用宜家 Lack 拉克边桌、Trofast 储物盒和一些底板，你可以打造一张带抽屉的游戏桌，用来存放物品。
 

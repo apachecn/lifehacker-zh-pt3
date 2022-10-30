@@ -1,6 +1,6 @@
 # 如何找到最快的免费公共 Wifi 热点
 
-> 原文:[https://life hacker . com/how-to-find-the-fast-a-free-public-wifi-hotspots-1828470769](https://lifehacker.com/how-to-find-the-fastest-free-public-wifi-hotspots-1828470769)
+> 原文：<https://lifehacker.com/how-to-find-the-fastest-free-public-wifi-hotspots-1828470769>
 
 我经常出差，这意味着我会花很多时间在公共 wifi 热点上工作。在连接了数百个不同的咖啡店、餐馆和酒店酒吧之后，我可以告诉你一个普遍的事实:所有的公共 wifi 并不都是平等的。
 

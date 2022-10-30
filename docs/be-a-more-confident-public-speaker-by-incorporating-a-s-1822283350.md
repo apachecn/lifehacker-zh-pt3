@@ -1,6 +1,6 @@
 # 在演讲中加入一个故事，成为一个更自信的公众演讲者
 
-> 原文:[https://life hacker . com/be-a-more-confidence-public-speaker-by-incorporated-a-s-1822283350](https://lifehacker.com/be-a-more-confident-public-speaker-by-incorporating-a-s-1822283350)
+> 原文：<https://lifehacker.com/be-a-more-confident-public-speaker-by-incorporating-a-s-1822283350>
 
 公开演讲是艰难的。即使是那些一直做公开演讲的人，仍然会感到有点怯场。虽然描绘房间里每个人的古老技巧肯定会有所帮助(或伤害，取决于你是谁)， *Fast Company* [有另一个应对困难的公共演讲事件的想法](https://www.fastcompany.com/40517079/want-to-be-a-more-confident-speaker-tell-a-story) :融入一个故事。
 

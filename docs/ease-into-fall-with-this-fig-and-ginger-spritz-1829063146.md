@@ -1,6 +1,6 @@
 # 用这种无花果和姜汁汽水让秋天变得轻松
 
-> 原文:[https://life hacker . com/ease-into fall with this-fig-and-ginger-spritz-1829063146](https://lifehacker.com/ease-into-fall-with-this-fig-and-ginger-spritz-1829063146)
+> 原文：<https://lifehacker.com/ease-into-fall-with-this-fig-and-ginger-spritz-1829063146>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们脱去夏日的外衣，带着熟透的无花果和辛辣的生姜，进入凉爽的天气。(在鸡尾酒中加入生姜是我能想到的最接近于在鸡尾酒中加入南瓜香料的方法。)
 

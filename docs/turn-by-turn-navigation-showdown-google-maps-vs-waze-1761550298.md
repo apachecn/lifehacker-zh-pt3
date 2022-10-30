@@ -1,6 +1,6 @@
 # 逐圈导航摊牌:谷歌地图 vs. Waze
 
-> 原文:[https://life hacker . com/turn-by-turn-navigation-摊牌-Google-maps-vs-waze-1761550298](https://lifehacker.com/turn-by-turn-navigation-showdown-google-maps-vs-waze-1761550298)
+> 原文：<https://lifehacker.com/turn-by-turn-navigation-showdown-google-maps-vs-waze-1761550298>
 
 你不会真的认为即时路线导航应用程序之间会有那么大的差异，但只要看一眼谷歌地图和 Waze 就能看出它们有多么不同。他们可能都属于同一家公司，但他们的工作方式完全不同。
 

@@ -1,6 +1,6 @@
 # 关于大众 3.0 升 V6 柴油发动机回购和维修，你需要知道的一切
 
-> 原文:[https://jalopnik . com/everything-you-need-know-on-volkswagens-3-0-liter-1791924703](https://jalopnik.com/everything-you-need-to-know-about-volkswagens-3-0-liter-1791924703)
+> 原文：<https://jalopnik.com/everything-you-need-to-know-about-volkswagens-3-0-liter-1791924703>
 
 本周早些时候，美国联邦贸易委员会宣布对大约 8 万辆在排放测试中作弊的、奥迪和保时捷 3.0 升 V6 柴油车的车主达成和解。这是你需要知道的关于和解的一切。
 

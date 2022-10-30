@@ -1,6 +1,6 @@
 # 备份你的照片，这样像 Photobucket 这样的公司就不能拿着它们勒索了
 
-> 原文:[https://life hacker . com/back-up-your-photos-so-companies-like-photobucket-cant-1796726043](https://lifehacker.com/back-up-your-photos-so-companies-like-photobucket-cant-1796726043)
+> 原文：<https://lifehacker.com/back-up-your-photos-so-companies-like-photobucket-cant-1796726043>
 
 你是尘土，你将归于尘土，除非你每年向 Photobucket 支付 400 美元。成立 14 年的照片托管网站 [最近停止让外部网站免费展示其照片](https://www.theverge.com/2017/7/4/15919224/photobucket-broken-images-amazon-ebay-etsy-paid-update) ，此举让 [立即在博客、主页、易贝和亚马逊列表](https://www.buzzfeed.com/katienotopoulos/photobucket-just-killed-a-chunk-of-internet-history) 上爆出图片，激怒了长期用户。一些用户甚至连下载自己的照片都有困难，这给他们上了一堂昂贵的课:永远不要相信第三方网站会永远保存你的照片。
 

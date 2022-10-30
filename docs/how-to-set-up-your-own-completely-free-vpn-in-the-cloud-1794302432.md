@@ -1,6 +1,6 @@
 # 如何在云中搭建自己完全免费的 VPN
 
-> 原文:[https://life hacker . com/how-to-set-up-your-own-complete-free-VPN-in-the-cloud-1794302432](https://lifehacker.com/how-to-set-up-your-own-completely-free-vpn-in-the-cloud-1794302432)
+> 原文：<https://lifehacker.com/how-to-set-up-your-own-completely-free-vpn-in-the-cloud-1794302432>
 
 虚拟专用网络(VPN) [是给你的浏览增加安全](https://lifehacker.com/why-you-should-be-using-a-vpn-and-how-to-choose-one-5940565) 的好方法，同时还能防止窥探( [包括你的互联网服务提供商](http://lifehacker.com/why-is-everyone-talking-about-vpns-1793768312) )，但是 [VPN 提供商是出了名的粗略](https://lifehacker.com/how-do-i-know-if-my-vpn-is-trustworthy-508866499) 。你可以做一些研究来找到一个好的。或者你可以在 10 分钟内自己做。
 

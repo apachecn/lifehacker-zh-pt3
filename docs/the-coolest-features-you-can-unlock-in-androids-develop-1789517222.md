@@ -1,6 +1,6 @@
 # 你可以在 Android 的开发者选项中解锁最酷的功能
 
-> 原文:[https://life hacker . com/the-cool-features-you-can-unlock-in-androids-develop-1789517222](https://lifehacker.com/the-coolest-features-you-can-unlock-in-androids-develop-1789517222)
+> 原文：<https://lifehacker.com/the-coolest-features-you-can-unlock-in-androids-develop-1789517222>
 
 Android 的开发者选项菜单是一个秘密的调整宝库，喜欢冒险的用户可以尝试。如果你想在你的 SD 卡上安装*任何*应用程序，加速窗口动画，甚至节省一些电池寿命，下面是如何解锁和使用这个隐藏菜单。
 

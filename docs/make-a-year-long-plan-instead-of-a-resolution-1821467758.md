@@ -1,6 +1,6 @@
 # 制定一年的计划，而不是一个决议
 
-> 原文:[https://life hacker . com/make-a-year-long-plan-to-a-resolution-1821467758](https://lifehacker.com/make-a-year-long-plan-instead-of-a-resolution-1821467758)
+> 原文：<https://lifehacker.com/make-a-year-long-plan-instead-of-a-resolution-1821467758>
 
 忘记一月吧——你认为自己明年十二月会怎样？决心失败了，但是为你的爱好或习惯制定一年的计划会有更长久、更甜蜜的回报。
 

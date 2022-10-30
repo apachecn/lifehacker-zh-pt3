@@ -1,6 +1,6 @@
 # 把棍子变成完美的野营锅架
 
-> 原文:[https://life hacker . com/turn-a-stick-into-the-perfect-camping-pot-holder-1798709535](https://lifehacker.com/turn-a-stick-into-the-perfect-camping-pot-holder-1798709535)
+> 原文：<https://lifehacker.com/turn-a-stick-into-the-perfect-camping-pot-holder-1798709535>
 
 如果你不小心，在篝火上烧水很容易被烫伤。这个聪明的锅架可以帮你省点事，只需要你有一把刀和一根棍子。
 

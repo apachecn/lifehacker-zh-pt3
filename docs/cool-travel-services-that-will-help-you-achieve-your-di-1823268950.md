@@ -1,6 +1,6 @@
 # 酷旅行服务，帮助您实现您的数字游牧梦想
 
-> 原文:[https://life hacker . com/cool-travel-services-that-will-help-you-achieve-you-di-1823268950](https://lifehacker.com/cool-travel-services-that-will-help-you-achieve-your-di-1823268950)
+> 原文：<https://lifehacker.com/cool-travel-services-that-will-help-you-achieve-your-di-1823268950>
 
 进行远程工作并不一定意味着穿着睡衣坐在家里，你也可以把这个世界看成一个数字流浪者！虽然完全有可能自己计划你的旅行，但数字游牧服务让这变得容易得多。象征性收费，他们为你预订住宿、交通、计划行程，并确保你有一个良好的工作场所和体面的互联网。
 

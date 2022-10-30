@@ -1,6 +1,6 @@
 # 冬奥会最怪异的运动，解释
 
-> 原文:[https://life hacker . com/the-winter-Olympics-vergeist-sports-explained-1822843488](https://lifehacker.com/the-winter-olympics-weirdest-sports-explained-1822843488)
+> 原文：<https://lifehacker.com/the-winter-olympics-weirdest-sports-explained-1822843488>
 
 2018 年冬季奥运会已经开始，是时候为我们的运动员加油了。问题是，很难知道在这些事件中到底发生了什么。为什么一下子有那么多人在滑冰？冰壶到底是什么*？冰上舞蹈和花样滑冰一样吗？那位女士有枪吗？* 
 

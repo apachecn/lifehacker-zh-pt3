@@ -1,6 +1,6 @@
 # 请教专家:如何整理你的家，让它变得井井有条
 
-> 原文:[https://life hacker . com/ask-an-expert-how-to-declutter-your-home and-get-organ-1757799468](https://lifehacker.com/ask-an-expert-how-to-declutter-your-home-and-get-organ-1757799468)
+> 原文：<https://lifehacker.com/ask-an-expert-how-to-declutter-your-home-and-get-organ-1757799468>
 
 如果你和我一样，你家的组织风格是“昨天洗好的衣服扔在椅子上，周围都是废弃的亚马逊盒子。”我们都有太多的东西塞满了我们的家，造成了一个既不讨人喜欢也不舒适的混乱场景。我自己的懒惰承受不住，甚至从哪里开始？
 

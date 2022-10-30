@@ -1,6 +1,6 @@
 # 如何不让自拍让鼻子看起来更大
 
-> 原文:[https://life hacker . com/how-to-keep-self ie-from-making your nose-look-bigger-1824196092](https://lifehacker.com/how-to-keep-selfies-from-making-your-nose-look-bigger-1824196092)
+> 原文：<https://lifehacker.com/how-to-keep-selfies-from-making-your-nose-look-bigger-1824196092>
 
 官方消息:自拍绝对会让你的鼻子看起来比实际大 30%。这是根据最近的一项研究得出的结论，该研究比较了从不同距离拍摄的人们脸部照片。但是不要担心你这个自拍迷，有一个简单的方法可以解决这个问题。
 

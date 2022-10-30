@@ -1,6 +1,6 @@
 # 如果你在乎自己的隐私，就停止使用 WhatsApp
 
-> 原文:[https://life hacker . com/stop-use-whatsapp-if-you-care-your-privacy-1825719172](https://lifehacker.com/stop-using-whatsapp-if-you-care-about-your-privacy-1825719172)
+> 原文：<https://lifehacker.com/stop-using-whatsapp-if-you-care-about-your-privacy-1825719172>
 
 隐私一直是即时通讯应用 WhatsApp 的关键功能和热门卖点。公司联合创始人简·库姆在政府严密监控下的苏联长大，他 [承诺](https://blog.whatsapp.com/529/Setting-the-record-straight) 在 2014 年脸书收购 WhatsApp 后保护用户数据。现在，随着 [Koum 被淘汰](https://www.facebook.com/jan.koum/posts/10156227307390011) ，或许是时候抛弃 WhatsApp 了，免得那个承诺也随之而去。
 

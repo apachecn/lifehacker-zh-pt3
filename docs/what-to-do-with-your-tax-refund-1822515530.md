@@ -1,6 +1,6 @@
 # 如何处理你的退税
 
-> 原文:[https://life hacker . com/what-to-do-with-your-tax-refund-1822515530](https://lifehacker.com/what-to-do-with-your-tax-refund-1822515530)
+> 原文：<https://lifehacker.com/what-to-do-with-your-tax-refund-1822515530>
 
 所以你已经提交了你的 2017 年税，你将获得退款。恭喜你。(早点做对你有好处——你不太可能以那种方式得到。)根据美国国税局的统计，平均收入超过 3000 美元，算是一笔小小的意外之财。
 

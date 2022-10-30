@@ -1,6 +1,6 @@
 # 这道奶酪砂锅是一道又粘又热的杰作
 
-> 原文:[https://life hacker . com/this-cheese-plate-砂锅-is-a-gooey-hot-masterious-1828255068](https://lifehacker.com/this-cheese-plate-casserole-is-a-gooey-hot-masterpiece-1828255068)
+> 原文：<https://lifehacker.com/this-cheese-plate-casserole-is-a-gooey-hot-masterpiece-1828255068>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅菜。今天我们要上我最喜欢的一道菜——奶酪——变成一道热菜。
 

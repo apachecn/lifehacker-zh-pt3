@@ -1,6 +1,6 @@
 # 为什么我爸妈的 iPhones 都同步了？
 
-> 原文:[https://life hacker . com/why-are-my-parents-iphone-all-synchronized-up-1826129918](https://lifehacker.com/why-are-my-parents-iphones-all-synchronized-up-1826129918)
+> 原文：<https://lifehacker.com/why-are-my-parents-iphones-all-synchronized-up-1826129918>
 
 有时，我们这些精通技术的人会帮助那些对他们的小工具和设备不太了解的人。在本周的 Tech 911 中，我们来看看一个非常常见的家庭情况:一个女儿，父母，两部 iPhones，一个账户，很多困惑。
 

@@ -1,6 +1,6 @@
 # 情侣间最好和最差的锻炼
 
-> 原文:[https://life hacker . com/the-best and-worst-to-do-a-couple-1821918717](https://lifehacker.com/the-best-and-worst-workouts-to-do-as-a-couple-1821918717)
+> 原文：<https://lifehacker.com/the-best-and-worst-workouts-to-do-as-a-couple-1821918717>
 
 年前和老公一起上舞蹈课的时候，教官告诉我们，班里任何一对情侣都要分头和别人跳。“我们倾向于对我们的伴侣说一些我们不会对其他人说的话，”我记得她说过。“就像，‘亲爱的，你做错了。’”
 

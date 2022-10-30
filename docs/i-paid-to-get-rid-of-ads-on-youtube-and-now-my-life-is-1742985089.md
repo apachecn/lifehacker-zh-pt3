@@ -1,6 +1,6 @@
 # 我花钱摆脱了 YouTube 上的广告，现在我的生活变得更好了
 
-> 原文:[https://life hacker . com/I-payed-to-get-off-ads-on-YouTube-and-now-my-life-is-1742985089](https://lifehacker.com/i-paid-to-get-rid-of-ads-on-youtube-and-now-my-life-is-1742985089)
+> 原文：<https://lifehacker.com/i-paid-to-get-rid-of-ads-on-youtube-and-now-my-life-is-1742985089>
 
 上个月， [谷歌推出了 YouTube Red](http://lifehacker.com/google-introduces-youtube-red-a-subscription-for-ad-fr-1737842088#_ga=1.131020362.431406394.1415821409) ，这是 YouTube 的一个付费层，可以删除广告，还有其他一些很酷的功能。从发布那天起我就一直在使用它，我原以为它会稍微减少一些烦恼，但实际上它改变了我看待和享受互联网的方式。
 

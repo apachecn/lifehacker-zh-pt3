@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我需要这家餐馆的手机禁令豁免
 
-> 原文:[https://the take out . com/I-need-exempt-from-restaurant-s-cell-phone-ban-1829001162](https://thetakeout.com/i-need-exemption-from-restaurant-s-cell-phone-ban-1829001162)
+> 原文：<https://thetakeout.com/i-need-exemption-from-restaurant-s-cell-phone-ban-1829001162>
 
 > 亲爱的 Salty，我听说更多的餐馆禁止在餐桌上使用手机，事实上，我和我妻子喜欢的一家餐馆刚刚开始这样做。现在前门附近有一个标志，菜单上有一个小纸条，写着:“我们恭敬地要求客人不要在用餐时使用手机发短信或打电话。请享受这种体验。”
 > 

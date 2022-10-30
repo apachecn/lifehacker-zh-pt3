@@ -1,6 +1,6 @@
 # 提前研究这两件事，做一个负责任、安全的游客
 
-> 原文:[https://life hacker . com/be-a-responsible-safe-tourism-by-research-this-two-1796965661](https://lifehacker.com/be-a-responsible-safe-tourist-by-researching-these-two-1796965661)
+> 原文：<https://lifehacker.com/be-a-responsible-safe-tourist-by-researching-these-two-1796965661>
 
 我们都见过不幸的度假出错的故事，关于某人去度假，而 [发生了不幸的事情](https://lifehacker.com/the-countries-actually-most-dangerous-for-tourists-1794002926#_ga=2.43190630.210335740.1500300428-1313785359.1499701416) ，从独自被困在荒野到被骗局欺骗。例如，最近有一个关于冰岛居民受够了游客，他们对该国崎岖的地形毫无准备，将自己置于危险之中，并给当地人带来严重的麻烦。其中一些事件纯粹是运气不好，但通常情况下，只要提前做一点计划，它们是可以很容易避免的。
 

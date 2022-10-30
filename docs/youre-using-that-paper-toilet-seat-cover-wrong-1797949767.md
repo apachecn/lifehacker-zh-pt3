@@ -1,6 +1,6 @@
 # 你用错了那个纸马桶盖
 
-> 原文:[https://life hacker . com/you-use-that-paper-马桶圈盖-错误-1797949767](https://lifehacker.com/youre-using-that-paper-toilet-seat-cover-wrong-1797949767)
+> 原文：<https://lifehacker.com/youre-using-that-paper-toilet-seat-cover-wrong-1797949767>
 
 有些人蹲在公共厕所上，因为他们有钢铁般的四肢。有些人只是光着屁股坐在布满风疹的座位上，因为显然他们不像理智的人那样害怕细菌。对我们其他人来说，有马桶盖。是的，你可以用 TP 覆盖座椅，但当你真的需要去的时候，仔细撕扯、倾斜和放置纸张长度以实现完美覆盖可能会有点乏味——这是什么，macramé？
 

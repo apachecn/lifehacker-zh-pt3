@@ -1,6 +1,6 @@
 # 如何一劳永逸地停止冲动消费
 
-> 原文:[https://life hacker . com/how-to-stop-expense-impulsive-only-all-1793105876](https://lifehacker.com/how-to-stop-spending-impulsively-once-and-for-all-1793105876)
+> 原文：<https://lifehacker.com/how-to-stop-spending-impulsively-once-and-for-all-1793105876>
 
 你已经 [试图遏制你的消费问题](https://lifehacker.com/march-s-money-challenge-kick-your-spending-weakness-1792796665) 。你冻结了你的信用卡。你不会去百思买、马歇尔百货、丝芙兰或其他消费疲软最严重的地方。然而，不知何故，你仍然搞砸了你每个月的预算。是时候彻底控制你的冲动消费了。
 

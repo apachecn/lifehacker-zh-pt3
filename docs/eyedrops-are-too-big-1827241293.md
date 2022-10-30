@@ -1,6 +1,6 @@
 # 眼药水太大了
 
-> 原文:[https://lifehacker.com/eyedrops-are-too-big-1827241293](https://lifehacker.com/eyedrops-are-too-big-1827241293)
+> 原文：<https://lifehacker.com/eyedrops-are-too-big-1827241293>
 
 我们需要更小的滴管。正如 ProPublica 报道的那样，眼药水太大了，含有的液体多到可能塞不进你的眼睛。幸运的是，一种适配器可能正在路上，它不会浪费你一半昂贵的青光眼药物。
 

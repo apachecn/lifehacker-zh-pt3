@@ -1,6 +1,6 @@
 # 30 天瑜伽的最佳指南
 
-> 原文:[https://life hacker . com/the-best-guides-for-30-days-yoga-1821707598](https://lifehacker.com/the-best-guides-for-30-days-of-yoga-1821707598)
+> 原文：<https://lifehacker.com/the-best-guides-for-30-days-of-yoga-1821707598>
 
 一月是你想要建立或提升到下一个水平的任何习惯的完美游乐场。热爱瑜伽的人有一个受欢迎的选择:开始每天练习。这里有一些 30 天瑜伽挑战的最佳指南，以及一些如何保持可控的技巧。
 

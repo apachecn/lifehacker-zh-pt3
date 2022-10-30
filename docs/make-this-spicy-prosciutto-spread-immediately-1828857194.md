@@ -1,6 +1,6 @@
 # 让这种辛辣的意大利熏火腿立即传播开来
 
-> 原文:[https://life hacker . com/make-this-辣味熏火腿-立即传播-1828857194](https://lifehacker.com/make-this-spicy-prosciutto-spread-immediately-1828857194)
+> 原文：<https://lifehacker.com/make-this-spicy-prosciutto-spread-immediately-1828857194>
 
 很少有菜肴——或时刻——不能通过添加脂肪、盐和热量来改善，这可能解释了 [nduja](http://www.academiabarilla.com/the-italian-food-academy/meats-charcuterie/nduja.aspx) 的流行，这是一种辛辣的、几乎完全红色的猪肉 salumi 出现在各地的菜单上。
 

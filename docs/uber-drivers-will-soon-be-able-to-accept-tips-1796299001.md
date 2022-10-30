@@ -1,6 +1,6 @@
 # 优步的司机很快就可以接受小费了
 
-> 原文:[https://life hacker . com/Uber-drivers-will-soon-be-able-to-accept-tips-1796299001](https://lifehacker.com/uber-drivers-will-soon-be-able-to-accept-tips-1796299001)
+> 原文：<https://lifehacker.com/uber-drivers-will-soon-be-able-to-accept-tips-1796299001>
 
 也许 [太少太晚](https://www.usatoday.com/story/tech/news/2017/06/21/yes-uber-has-lost-ridership-lyft-during-crisis/103063700/) ，但是在优步的所有争议中，最近导致其首席执行官辞职，优步已经决定 [允许所有美国司机接受小费](https://www.uber.com/drive/resources/how-tips-work/) 。这对司机和乘客来说意味着什么。
 

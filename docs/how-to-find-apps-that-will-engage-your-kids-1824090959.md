@@ -1,6 +1,6 @@
 # 如何找到能吸引孩子的应用
 
-> 原文:[https://life hacker . com/how-to-find-apps-that-engage-your-kids-1824090959](https://lifehacker.com/how-to-find-apps-that-will-engage-your-kids-1824090959)
+> 原文：<https://lifehacker.com/how-to-find-apps-that-will-engage-your-kids-1824090959>
 
 儿童科技让父母陷入了一种永久的不确定状态:新东西出现的速度比我们能够确定它对年轻人大脑的影响的速度还要快。成千上万的应用程序被吹捧为教育性的，但这到底意味着什么呢？应用商店或谷歌 Play 商店的评论不会给你一个直截了当的答案。通常，最受赞誉的产品只是那些让小阿玛亚或雨果保持最长时间光荣沉默的产品。
 

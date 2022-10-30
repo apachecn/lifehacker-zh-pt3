@@ -1,6 +1,6 @@
 # 如何规避大多数航空公司的隐性费用
 
-> 原文:[https://life hacker . com/how-to-around-most-airlines-hidden-fees-1782372680](https://lifehacker.com/how-to-get-around-most-airlines-hidden-fees-1782372680)
+> 原文：<https://lifehacker.com/how-to-get-around-most-airlines-hidden-fees-1782372680>
 
 坐飞机比过去便宜了。经通货膨胀调整后，1955 年从洛杉矶到堪萨斯城的机票为 575 美元，相比之下今天只需几百美元。如今航班更便宜了，但是 [几乎所有航班都要额外收费](https://lifehacker.com/the-most-common-hidden-airline-fees-all-in-one-list-1599316486) 。以下是如何绕过那些费用，尤其是那些隐藏的费用。
 

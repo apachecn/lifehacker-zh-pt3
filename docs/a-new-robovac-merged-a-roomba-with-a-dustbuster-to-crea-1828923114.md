@@ -1,6 +1,6 @@
 # 一种新的 Robovac 将 Roomba 与除尘器结合起来，创造了一种潜在的除尘机器
 
-> 原文:[https://gizmodo . com/a-new-robo vac-merged-a-roomba-with-a-dust buster-to-crea-1828923114](https://gizmodo.com/a-new-robovac-merged-a-roomba-with-a-dustbuster-to-crea-1828923114)
+> 原文：<https://gizmodo.com/a-new-robovac-merged-a-roomba-with-a-dustbuster-to-crea-1828923114>
 
 即使花了 950 美元买了新的自动清空 Roomba ，你家里仍有很多地方需要另一台吸尘器来清理。这是所有机器人吸尘器的共同问题——除了新的 [珊瑚一号](https://www.coralrobots.com/) 。这个 robovac 内置了一个可移动的手动吸尘器，可以用来清洁地板受限的机器人无法清洁的任何地方，如楼梯或架子。
 

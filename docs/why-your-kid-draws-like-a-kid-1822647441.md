@@ -1,6 +1,6 @@
 # 为什么你的孩子像个孩子一样画画
 
-> 原文:[https://life hacker . com/why-your-kid-drawing-like-a-kid-1822647441](https://lifehacker.com/why-your-kid-draws-like-a-kid-1822647441)
+> 原文：<https://lifehacker.com/why-your-kid-draws-like-a-kid-1822647441>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-nzO5ViO_y8Y&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-nzO5ViO_y8Y&start=0) 
 

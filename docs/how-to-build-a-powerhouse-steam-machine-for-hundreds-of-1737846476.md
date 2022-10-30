@@ -1,6 +1,6 @@
 # 如何少花数百美元建造一个发电站蒸汽机
 
-> 原文:[https://life hacker . com/how-to-build-a-power house-steam-machine-for-which-of-1737846476](https://lifehacker.com/how-to-build-a-powerhouse-steam-machine-for-hundreds-of-1737846476)
+> 原文：<https://lifehacker.com/how-to-build-a-powerhouse-steam-machine-for-hundreds-of-1737846476>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Woan1RAUkE8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Woan1RAUkE8&start=0) 
 

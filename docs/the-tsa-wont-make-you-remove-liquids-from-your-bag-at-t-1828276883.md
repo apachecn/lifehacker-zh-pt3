@@ -1,6 +1,6 @@
 # 在这些机场，美国运输安全管理局不会让你从包里拿出液体
 
-> 原文:[https://life hacker . com/the-TSA-wot-make-you-remove-liquids-from-you-bag-at-t-1828276883](https://lifehacker.com/the-tsa-wont-make-you-remove-liquids-from-your-bag-at-t-1828276883)
+> 原文：<https://lifehacker.com/the-tsa-wont-make-you-remove-liquids-from-your-bag-at-t-1828276883>
 
 如果你没有 TSA Pre，那么通过机场安检最烦人的部分之一就是必须拿出你所有的液体。尽管我是飞行常客，但我过去总是忘记把化妆品或其他一些小东西放在我的自封袋里，这导致我不得不重新检查我的包，并受到 TSA 代理的严厉批评。
 

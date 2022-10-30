@@ -1,6 +1,6 @@
 # 如果您的孩子有特殊需求，如何更轻松地通过机场安检
 
-> 原文:[https://life hacker . com/how-to-get-through-airport-security-more-easy-if-your-1825098494](https://lifehacker.com/how-to-get-through-airport-security-more-easily-if-your-1825098494)
+> 原文：<https://lifehacker.com/how-to-get-through-airport-security-more-easily-if-your-1825098494>
 
 飞行几乎总是会带来一些焦虑，但对于带着有特殊需求的孩子(如自闭症)旅行的父母来说，一想到要在繁忙的机场穿越感官飓风，就会感到恐惧。人群、队伍、扬声器里的公告、脱鞋的命令、自发的搜身——这些往往让人受不了。但是一位妈妈在社交媒体上分享了一个可以为家庭减轻大量压力的建议:在你旅行之前，打电话给 TSA Cares (855-787-2227)安排一名 [乘客支持专家](https://www.tsa.gov/travel/passenger-support) 护送你通过安检。
 

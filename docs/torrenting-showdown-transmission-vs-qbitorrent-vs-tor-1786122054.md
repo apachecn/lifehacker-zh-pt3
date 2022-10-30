@@ -1,6 +1,6 @@
 # torrenting 摊牌:传输 vs qbittorrent vs
 
-> 原文:[https://life hacker . com/torrenting-摊牌-transmission-vs-qbi torrent-vs-tor-1786122054](https://lifehacker.com/torrenting-showdown-transmission-vs-qbitorrent-vs-tor-1786122054)
+> 原文：<https://lifehacker.com/torrenting-showdown-transmission-vs-qbitorrent-vs-tor-1786122054>
 
 BitTorrent 客户端的数量比我们可能比较的要多，但一些最受欢迎的——也是最好的——最近因为低俗的广告和不良行为而受到关注。是时候看看我们最喜欢的几款游戏了，看看它们怎么样，哪些值得你下载，哪些值得你信任。
 

@@ -1,6 +1,6 @@
 # 益智药和“智能”药物的效果如何？
 
-> 原文:[https://life hacker . com/how-effective-are-noolotics-and-smart-drugs-1784648058](https://lifehacker.com/how-effective-are-nootropics-and-smart-drugs-1784648058)
+> 原文：<https://lifehacker.com/how-effective-are-nootropics-and-smart-drugs-1784648058>
 
 想象一下，你可以服用一粒药丸来加速你的思维过程，增强你的记忆，让你更有效率。如果这听起来像终极生活帮，你并不孤单。有一些药物可以保证这一点，但是它们是否有效还很复杂。以下是最受欢迎的认知增强剂，以及科学对它们的实际评价。
 

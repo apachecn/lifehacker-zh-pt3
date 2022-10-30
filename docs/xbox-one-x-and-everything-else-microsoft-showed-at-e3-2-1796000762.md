@@ -1,6 +1,6 @@
 # Xbox One X 和微软在 E3 2017 上展示的所有东西
 
-> 原文:[https://kotaku . com/Xbox-one-x-and-everything-else-Microsoft-show-at-E3-2-1796000762](https://kotaku.com/xbox-one-x-and-everything-else-microsoft-showed-at-e3-2-1796000762)
+> 原文：<https://kotaku.com/xbox-one-x-and-everything-else-microsoft-showed-at-e3-2-1796000762>
 
 微软正式公布了他们强大的新主机 499 美元的 Xbox One X. WITNESS，拉开了他们 2017 年 E3 新闻发布会的序幕。
 

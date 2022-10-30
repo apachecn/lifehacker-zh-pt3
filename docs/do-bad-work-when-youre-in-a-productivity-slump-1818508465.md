@@ -1,6 +1,6 @@
 # 当你处于生产力低谷时，做“糟糕的工作”
 
-> 原文:[https://life hacker . com/do-bad-work-when-you-in-a-productivity-slump-1818508465](https://lifehacker.com/do-bad-work-when-youre-in-a-productivity-slump-1818508465)
+> 原文：<https://lifehacker.com/do-bad-work-when-youre-in-a-productivity-slump-1818508465>
 
 处理焦虑或抑郁已经够有挑战性了，但是试图同时变得有效率是完全不可能的，就像逆水行舟。有一些小的生产力技巧会有所帮助。
 

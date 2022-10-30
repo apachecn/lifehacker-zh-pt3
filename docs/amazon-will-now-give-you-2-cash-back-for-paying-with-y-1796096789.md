@@ -1,6 +1,6 @@
 # 如果你用借记卡付款，亚马逊现在会给你 2%的现金返还
 
-> 原文:[https://life hacker . com/Amazon-will-now-give-you-2-cash-back-for-pay-with-y-1796096789](https://lifehacker.com/amazon-will-now-give-you-2-cash-back-for-paying-with-y-1796096789)
+> 原文：<https://lifehacker.com/amazon-will-now-give-you-2-cash-back-for-paying-with-y-1796096789>
 
 亚马逊想奖励你从他们那里买东西，但是有一个条件:你必须使用你的借记卡，并将现金转入亚马逊账户。这并不复杂，但这里有你应该知道的关于新的 [亚马逊重装](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/amazon-will-now-give-you-2-cash-back-for-paying-with-y-1796096789&asc_source=&node=15452216011&tag=kinjalifehackerlink-20) 程序。
 

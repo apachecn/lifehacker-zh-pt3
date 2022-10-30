@@ -1,6 +1,6 @@
 # 它会腐烂吗？脱骨鸡爪
 
-> 原文:[https://life hacker . com/will-it-sous-vide-fall-off-the-bone-鸡爪-1792466608](https://lifehacker.com/will-it-sous-vide-fall-off-the-bone-chicken-feet-1792466608)
+> 原文：<https://lifehacker.com/will-it-sous-vide-fall-off-the-bone-chicken-feet-1792466608>
 
 你好，热爱美食的朋友们，欢迎回到非常温柔的一集 [*它会被分开吗？*](http://lifehacker.com/tag/will-it-sous-vide#_ga=1.149509310.949419976.1446553382) ，每周专栏我用我的沉浸循环器(大部分时间)在那里做任何你想让我做的事。
 

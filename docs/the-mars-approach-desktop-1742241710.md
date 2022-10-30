@@ -1,6 +1,6 @@
 # 火星接近桌面
 
-> 原文:[https://lifehacker.com/the-mars-approach-desktop-1742241710](https://lifehacker.com/the-mars-approach-desktop-1742241710)
+> 原文：<https://lifehacker.com/the-mars-approach-desktop-1742241710>
 
 这个拱形 Linux 桌面有一张火星在黑暗中漂浮的美丽照片，但这并不是它有趣的地方——透明的终端窗口和资源指示器完善了实际上非常高效的设置。以下是如何让它成为你自己的。
 

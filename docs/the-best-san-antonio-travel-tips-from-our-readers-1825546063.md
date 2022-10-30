@@ -1,6 +1,6 @@
 # 来自我们读者的最佳圣安东尼奥旅行建议
 
-> 原文:[https://life hacker . com/the-best-San-Antonio-travel-tips-from-our-readers-1825546063](https://lifehacker.com/the-best-san-antonio-travel-tips-from-our-readers-1825546063)
+> 原文：<https://lifehacker.com/the-best-san-antonio-travel-tips-from-our-readers-1825546063>
 
 我们有 [圣安东尼奥旅游小贴士](https://lifehacker.com/tell-us-your-san-antonio-travel-tips-1825428625) ！首先，虽然你不必走遍整个阿拉莫，但至少在附近的时候看一看。“在它前面拍照，”T5 B1 gdon 5 T6 T7 说，“然后在后面的院子里走走，看看历史展览、纪录片和现场历史演示。有就不要排队进去。”下一步该做什么，以及更多，在本周的《黑客你的城市》中。
 

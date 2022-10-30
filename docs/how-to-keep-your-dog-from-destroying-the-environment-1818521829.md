@@ -1,6 +1,6 @@
 # 如何让你的狗不破坏环境
 
-> 原文:[https://life hacker . com/how-to-keep your dog-from-destroying-the-environment-1818521829](https://lifehacker.com/how-to-keep-your-dog-from-destroying-the-environment-1818521829)
+> 原文：<https://lifehacker.com/how-to-keep-your-dog-from-destroying-the-environment-1818521829>
 
 狗是人类最好的朋友，给他们周围的人带来无限的快乐，也是互联网上仅存的好内容。它们也是环境的巨大负担。是的，我在这里是一个十足的讨厌鬼，我要告诉你们，那些善良的男孩女孩和可爱的毛皮脸有一个巨大的碳爪印，导致更多的温室气体被排放到我们的空气中，有毒物质流入我们的水域，有毒化学物质进入我们的嘴里。根据 ASPCA 的数据，美国有大约 7800 万只宠物狗，大约每四个美国人就有一只，所有的食物、垃圾和护理都是地球上的垃圾。
 

@@ -1,6 +1,6 @@
 # 20 世纪 50 年代《黑人旅行者绿皮书》如何帮助黑人出行
 
-> 原文:[https://life hacker . com/how-the-negro-traveler-s-green-book-help-black-people-1818994434](https://lifehacker.com/how-the-negro-traveler-s-green-book-helped-black-people-1818994434)
+> 原文：<https://lifehacker.com/how-the-negro-traveler-s-green-book-helped-black-people-1818994434>
 
 20 世纪 50 年代，黑人在美国度假是危险的。在吉姆·克劳时代发生的司空见惯的歧视意味着黑人旅行者很难找到一个可以住宿的酒店房间，或者一个可以吃饭的餐馆。他们经常遭遇敌意、拒绝服务或更糟的情况。所以当像我这样的兄弟想要出城时，这意味着要拿一本绿皮书——一本为黑人旅行者提供如何安全游览这个国家的指南，以及安全度假目的地的指南。
 

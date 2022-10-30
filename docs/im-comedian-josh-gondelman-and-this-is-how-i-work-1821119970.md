@@ -1,6 +1,6 @@
 # 我是喜剧演员乔希·冈德尔曼，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-comedian-Josh-gondel man-and-this-how-I-work-1821119970](https://lifehacker.com/im-comedian-josh-gondelman-and-this-is-how-i-work-1821119970)
+> 原文：<https://lifehacker.com/im-comedian-josh-gondelman-and-this-is-how-i-work-1821119970>
 
 乔什·冈德尔曼从不关机。 [作者](https://www.amazon.com/You-Blew-Awkward-Already-Ruined/dp/0147515807?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-comedian-josh-gondelman-and-this-is-how-i-work-1821119970&asc_source=&tag=kinjalifehackerlink-20) ， [单口相声](https://rooftopcomedy.bandcamp.com/album/physical-whisperhttps://open.spotify.com/album/78eoHhm0Estn7kX4uwsWCP) ，，[现代宋飞高音](https://twitter.com/seinfeldtoday) ，以及为*编剧的上周今晚与约翰·奥利弗*总是在忙些什么。然而，他似乎比任何努力工作的喜剧演员都更理智、更快乐、更有爱心。
 

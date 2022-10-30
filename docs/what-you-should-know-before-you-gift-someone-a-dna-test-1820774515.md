@@ -1,6 +1,6 @@
 # 在给别人做 DNA 测试之前，你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-before-you-gift-someone-a-DNA-test-1820774515](https://lifehacker.com/what-you-should-know-before-you-gift-someone-a-dna-test-1820774515)
+> 原文：<https://lifehacker.com/what-you-should-know-before-you-gift-someone-a-dna-test-1820774515>
 
 公司甚至不能保证我们的密码和信用卡号码等简单数据的安全，那么我们应该把我们最私人的数据:我们的 DNA 信任他们吗？当你将一管唾液邮寄给一家个人基因组公司时，这正是你正在做的事情，结果表明数据并不像你想象的那样隐私。
 

@@ -1,6 +1,6 @@
 # 如何停止在洗涤过程中毁坏你的衣服
 
-> 原文:[https://life hacker . com/how-to-take-better-care-your-cloth-and-stop-destro-1793448959](https://lifehacker.com/how-to-take-better-care-of-your-clothes-and-stop-destro-1793448959)
+> 原文：<https://lifehacker.com/how-to-take-better-care-of-your-clothes-and-stop-destro-1793448959>
 
 理论上来说，在质量 上花更多的钱是更好的 [，但这只有在质量项目持续的情况下才是真的。我过去有一个坏习惯，就是不加思索地把衣服从洗衣篮扔到烘干机里。如果你买质量，这是一个昂贵的错误。以下是如何更好地打理衣服的方法。](http://lifehacker.com/cheap-clothes-are-too-expensive-buy-quality-instead-1751019637)
 

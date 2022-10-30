@@ -1,6 +1,6 @@
 # 如何玩天缘:非常特别版，有(或没有)亚马逊回声
 
-> 原文:[https://life hacker . com/how-to-play-skyrim-very-special-edition-with-or-with o-1826729640](https://lifehacker.com/how-to-play-skyrim-very-special-edition-with-or-witho-1826729640)
+> 原文：<https://lifehacker.com/how-to-play-skyrim-very-special-edition-with-or-witho-1826729640>
 
 哦贝塞斯达，你这个巨魔，你。我这样说是充满爱意的，因为该公司周日在 E3 新闻发布会上展示的预告片是对其大获成功的《上古卷轴》系列的认可。如果你还不明白的话，这个笑话是，贝塞斯达已经把这个系列的最新作品 *Skyrim* 放到了几乎所有的现代平台上——除了你的 TI-83 计算器和 [你的汽车](https://www.youtube.com/watch?v=BAnJc8mL-iA) (有点)。那么，为什么不为亚马逊的 Echo 设备也开发一个 Skyrim 版本呢？
 

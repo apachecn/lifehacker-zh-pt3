@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我的同事不会停止否定我
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-co-worker-won-t-stop-negging-me-1819222631](https://kotaku.com/ask-dr-nerdlove-my-coworker-won-t-stop-negging-me-1819222631)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-coworker-won-t-stop-negging-me-1819222631>
 
 大家好，你们这些快乐闪亮的互联网变态们，欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是仅存的约会建议专栏。
 

@@ -1,6 +1,6 @@
 # 青少年欺凌者想让我们相信他们有很多性生活
 
-> 原文:[https://life hacker . com/青少年恶霸想让我们相信他们拥有很多](https://lifehacker.com/teenage-bullies-want-us-to-believe-they-have-lots-of-se-1821603519)
+> 原文：<https://lifehacker.com/teenage-bullies-want-us-to-believe-they-have-lots-of-se-1821603519>
 
 根据一项新的研究报告，青少年欺凌者比非欺凌者有更多的性行为。随着性骚扰恶霸充斥新闻和我们的许多工作场所，虐待和操纵他人的人会有更多的性行为，这似乎既可悲又真实。但是这项研究告诉我们更多的是加拿大青少年对调查的反应，而不是一些人类性行为的普遍真理。
 

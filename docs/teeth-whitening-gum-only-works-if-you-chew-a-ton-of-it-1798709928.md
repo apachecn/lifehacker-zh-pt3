@@ -1,6 +1,6 @@
 # 牙齿美白口香糖只有当你嚼很多的时候才有效果
 
-> 原文:[https://life hacker . com/tooth-whitening-gum-only-works-if-you-choke-on-t-it-1798709928](https://lifehacker.com/teeth-whitening-gum-only-works-if-you-chew-a-ton-of-it-1798709928)
+> 原文：<https://lifehacker.com/teeth-whitening-gum-only-works-if-you-chew-a-ton-of-it-1798709928>
 
 你只是偶尔嚼口香糖吗？如果是这样，并且你认为买一包像 Orbit White 这样的“美白”口香糖没有坏处，你应该知道你的牙齿不会变得更白，除非你不断地咀嚼这些东西。
 

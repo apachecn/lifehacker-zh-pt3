@@ -1,6 +1,6 @@
 # 你的投资“交叉点”如何激励你继续储蓄
 
-> 原文:[https://life hacker . com/how-your-investing-crossover-point-can-inspire-you-to-k-1825293718](https://lifehacker.com/how-your-investing-crossover-point-can-inspire-you-to-k-1825293718)
+> 原文：<https://lifehacker.com/how-your-investing-crossover-point-can-inspire-you-to-k-1825293718>
 
 通过像 401(k)这样的投资工具为退休储蓄的一个复杂问题是，需要很长时间才能达到市场似乎确实为你服务的地步。
 

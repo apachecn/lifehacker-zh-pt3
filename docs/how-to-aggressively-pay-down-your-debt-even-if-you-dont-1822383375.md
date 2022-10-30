@@ -1,6 +1,6 @@
 # 如何积极偿还债务，即使你没有赚很多钱
 
-> 原文:[https://life hacker . com/how-to-aggressive-pay-down-your-debt-even-if you-dont-1822383375](https://lifehacker.com/how-to-aggressively-pay-down-your-debt-even-if-you-dont-1822383375)
+> 原文：<https://lifehacker.com/how-to-aggressively-pay-down-your-debt-even-if-you-dont-1822383375>
 
 德克萨斯州奥斯汀 29 岁的自由作家卡拉·佩雷斯(Kara Perez)直到 25 岁时有人在闲聊中提到 IRA，她才知道 IRA 是什么。
 

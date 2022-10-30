@@ -1,6 +1,6 @@
 # 从 Chrome 地址栏映射任何内容
 
-> 原文:[https://life hacker . com/map-any-from-the-chrome-address-bar-1797731855](https://lifehacker.com/map-anything-from-the-chrome-address-bar-1797731855)
+> 原文：<https://lifehacker.com/map-anything-from-the-chrome-address-bar-1797731855>
 
 在桌面上用谷歌地图查找路线有点笨拙。你必须选择出发地点、目的地和交通方式。但是如果你在 Chrome 上，你可以建立三个快捷方式来直接从地址栏获得方向，而不需要点击一下。
 

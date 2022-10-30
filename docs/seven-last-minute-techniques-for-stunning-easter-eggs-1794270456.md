@@ -1,6 +1,6 @@
 # 制作精美复活节彩蛋的七种最后技巧
 
-> 原文:[https://life hacker . com/seven-last-minute-techniques-for-using-Easter-eggs-1794270456](https://lifehacker.com/seven-last-minute-techniques-for-stunning-easter-eggs-1794270456)
+> 原文：<https://lifehacker.com/seven-last-minute-techniques-for-stunning-easter-eggs-1794270456>
 
 我真的认为这些都是 Pinterest 的失败。有这么多华丽的复活节彩蛋技巧——和这么多失败的 Pinterest 技巧——我很震惊这七个居然真的有用。(不过，这些天然染料 就不一样了。)其中六种非常简单，一种是指甲油大理石花纹，结果喜忧参半——但当它起作用时，效果好得令人瞠目结舌。
 

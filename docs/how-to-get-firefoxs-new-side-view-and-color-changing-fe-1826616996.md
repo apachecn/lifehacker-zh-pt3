@@ -1,6 +1,6 @@
 # 如何获得火狐新的侧视图和变色功能
 
-> 原文:[https://life hacker . com/how-to-get-Firefox s-new-side-view-and-color-changing-Fe-1826616996](https://lifehacker.com/how-to-get-firefoxs-new-side-view-and-color-changing-fe-1826616996)
+> 原文：<https://lifehacker.com/how-to-get-firefoxs-new-side-view-and-color-changing-fe-1826616996>
 
 Firefox 本周通过其测试试点计划推出了一些新功能，其中两个引起了我们的注意:一个新的侧视图，允许你在同一个窗口并排查看两个网站 Firefox Color，允许你积极定制浏览器的颜色。
 

@@ -1,6 +1,6 @@
 # 我有 200，000 美元可以花在舒适快捷的东西上！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-have-200-000-to-spend-something-and-f-1825914916](https://jalopnik.com/i-have-200-000-to-spend-on-something-comfortable-and-f-1825914916)
+> 原文：<https://jalopnik.com/i-have-200-000-to-spend-on-something-comfortable-and-f-1825914916>
 
 卢克驾驶一辆 2016 款梅赛德斯 S550，这是一辆既快速又豪华的车，但像任何有动力和雄心的人一样，他想要更多。我不能说我责怪他，特别是因为他有一个健康的预算来取代它。他应该买什么车？
 

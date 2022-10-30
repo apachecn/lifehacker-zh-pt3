@@ -1,6 +1,6 @@
 # 你需要了解李斯特菌，最大的食源性妊娠威胁
 
-> 原文:[https://life hacker . com/what-you-need-know-on-listeria-the-big-food b-1764983273](https://lifehacker.com/what-you-need-to-know-about-listeria-the-biggest-foodb-1764983273)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-listeria-the-biggest-foodb-1764983273>
 
 李斯特菌现在出现在星巴克的三明治里。但这还不是全部:仅在过去的 60 天里，由威胁胎儿的微生物引起的召回还包括三文鱼、哈密瓜和两种品牌的奶酪。你如何避免在如此随机的地方出现的东西？
 

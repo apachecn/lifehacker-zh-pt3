@@ -1,6 +1,6 @@
 # 用这个机器人轻松分配办公室秘密圣诞老人
 
-> 原文:[https://life hacker . com/assign-office-secret-Santas-the-easy-way-with this-slac-1820904937](https://lifehacker.com/assign-office-secret-santas-the-easy-way-with-this-slac-1820904937)
+> 原文：<https://lifehacker.com/assign-office-secret-santas-the-easy-way-with-this-slac-1820904937>
 
 拥有一个办公室秘密圣诞老人会很有趣。然而，负责组织一个办公室秘密圣诞老人显然不好玩。根据你办公室的大小，让所有人聚在一起抽签本身就是一件苦差事，当你这样做时，很有可能以某种方式，在选择日休假的那个人会设法自己抽签，而你不得不从头再来一遍。
 

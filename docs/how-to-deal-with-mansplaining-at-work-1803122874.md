@@ -1,6 +1,6 @@
 # 如何应对工作中的抱怨
 
-> 原文:[https://life hacker . com/how-to-deal-with-man plaining-in-work-1803122874](https://lifehacker.com/how-to-deal-with-mansplaining-at-work-1803122874)
+> 原文：<https://lifehacker.com/how-to-deal-with-mansplaining-at-work-1803122874>
 
 “人工解释”这个术语相对较新，但这个概念由来已久。如果你不熟悉的话，这个术语指的是某人(通常是男人，因此是男人)以一种居高临下或居高临下的方式向某人(通常是女性)解释某事。如果你是一名女性，那么这种事情即使不是每天发生，也有可能每周都会发生。然而，弄清楚该怎么做可能有点挑战性。
 

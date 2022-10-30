@@ -1,6 +1,6 @@
 # 干草堆是整个季节中最简单的两种配料的甜点
 
-> 原文:[https://life hacker . com/hay stacks-is-the-easy-two-ingredient-decoming-you-1820889680](https://lifehacker.com/haystacks-are-the-easiest-two-ingredient-confection-you-1820889680)
+> 原文：<https://lifehacker.com/haystacks-are-the-easiest-two-ingredient-confection-you-1820889680>
 
 如果说我年轻时有什么圣诞甜点，那就是干草堆。既不是糖果也不是饼干，这种不起眼的、几乎太简单的食物根本就不会让人上瘾。
 

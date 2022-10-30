@@ -1,6 +1,6 @@
 # 深蹲练习你不需要深蹲架来做
 
-> 原文:[https://life hacker . com/squat-exercises-you-done-the-squat-the-squat-rack-to-do-1788021024](https://lifehacker.com/squat-exercises-you-don-t-need-the-squat-rack-to-do-1788021024)
+> 原文：<https://lifehacker.com/squat-exercises-you-don-t-need-the-squat-rack-to-do-1788021024>
 
 今天是深蹲日，你兴奋地向杠铃展示谁是老大，但只有一个问题:深蹲架都被占用了。你可以成为一名优秀的团队成员并要求加入，或者你可以尝试这些不用深蹲架就能做的深蹲变化(在某些情况下，根本不用健身房。)
 

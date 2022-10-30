@@ -1,6 +1,6 @@
 # 使用捆绑式安全带的初学者指南
 
-> 原文:[https://life hacker . com/the-beginners-guide-to-use-a-strap-on-1797402479](https://lifehacker.com/the-beginners-guide-to-using-a-strap-on-1797402479)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-using-a-strap-on-1797402479>
 
 捆绑销售的一大好处是任何人都可以使用它们。如果你有阴茎，你可以用捆绑式的。如果你没有阴茎，你可以用绑带。你可以用捆绑带来渗透任何性别的伴侣，颠覆刻板的性别角色，或者扮演这些角色。你可以用它来取乐，也可以用它来应对勃起或高潮的挑战。你可以使用绑带进行阴道性交、、口交、手淫或自慰。
 

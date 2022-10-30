@@ -1,6 +1,6 @@
 # 圣诞周日摊牌:圣诞老人与坎卜斯
 
-> 原文:[https://life hacker . com/Christmas-Sunday-摊牌-Santa-vs-kram pus-1790479485](https://lifehacker.com/christmas-sunday-showdown-santa-vs-krampus-1790479485)
+> 原文：<https://lifehacker.com/christmas-sunday-showdown-santa-vs-krampus-1790479485>
 
 每个人都知道圣诞老人、他的精灵和他的驯鹿团队，他们把玩具带给全世界的孩子们。然而，他的黑暗对手坎卜斯一直隐藏在暗处，管教坏孩子。今天，我们把它们都带到了聚光灯下，来比较这两个由来已久的圣诞数字。
 

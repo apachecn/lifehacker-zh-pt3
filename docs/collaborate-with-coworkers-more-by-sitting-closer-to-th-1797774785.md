@@ -1,6 +1,6 @@
 # 坐得离同事更近，与他们更好地合作
 
-> 原文:[https://life hacker . com/collaborate-with-co-workers-more-by-seating-closer-to-th-1797774785](https://lifehacker.com/collaborate-with-coworkers-more-by-sitting-closer-to-th-1797774785)
+> 原文：<https://lifehacker.com/collaborate-with-coworkers-more-by-sitting-closer-to-th-1797774785>
 
 在一次绩效评估中，一位主管问我为什么不和一位住在纽约的同事(我在旧金山)在项目上多合作。我们有空闲时间、电子邮件和常去的地方，但最终真正的答案只是“因为他住在全国各地。”不管你的虚拟工具有多好，与在你办公室外工作的人联系会变得很复杂。现在有科学可以支持这个理论。
 

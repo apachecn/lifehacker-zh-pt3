@@ -1,6 +1,6 @@
 # 如何用 Windows 中的任何东西制作 GIF，包括应用程序和游戏
 
-> 原文:[https://life hacker . com/how-to-turn-any-part of-your-windows-desktop-to-a-gif-1825787640](https://lifehacker.com/how-to-turn-any-part-of-your-windows-desktop-into-a-gif-1825787640)
+> 原文：<https://lifehacker.com/how-to-turn-any-part-of-your-windows-desktop-into-a-gif-1825787640>
 
 Gif。姬芙。无论你的发音偏好如何，使用各种应用和服务都可以很容易地创造出这个单词。自从我开始在 Lifehacker 工作以来，我发现用一个小的动画形象来展示一些关键的功能或设置，有时更容易展示，而不是讲述。因此，我开始制作很多 gif，这是我在 Windows 上使用的应用程序。
 

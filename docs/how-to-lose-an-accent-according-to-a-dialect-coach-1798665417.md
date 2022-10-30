@@ -1,6 +1,6 @@
 # 如何失去一个口音，根据蔻驰方言
 
-> 原文:[https://life hacker . com/how-to-lose-a-accent-to-a-dialect-coach-1798665417](https://lifehacker.com/how-to-lose-an-accent-according-to-a-dialect-coach-1798665417)
+> 原文：<https://lifehacker.com/how-to-lose-an-accent-according-to-a-dialect-coach-1798665417>
 
 [演员兼配音教练艾米·乔·杰克森](http://amyjojackson.com/amy-jackson-coaching.htm) 曾为*的《穿裘皮的维纳斯》*、*的《亨利四世》*以及*的《古怪的靴子》*的百老汇制作提供咨询。作为一名经验丰富的演员，杰克逊教授演员和非演员如何减少不想要的口音或获得想要的口音，他的作品包括*《拉莱米计划》**《走进森林》**《第十二夜》*和*《洛基恐怖秀》*。我们和她谈了她的过程，在不贬低不同方言和遗产的情况下增加可理解性的挑战，以及个人辅导之外的资源。
 

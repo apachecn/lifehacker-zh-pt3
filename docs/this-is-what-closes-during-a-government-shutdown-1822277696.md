@@ -1,6 +1,6 @@
 # 这是在政府关门期间关闭的
 
-> 原文:[https://life hacker . com/this-is-what-is-closed-due-a-government-shut down-1822277696](https://lifehacker.com/this-is-what-closes-during-a-government-shutdown-1822277696)
+> 原文：<https://lifehacker.com/this-is-what-closes-during-a-government-shutdown-1822277696>
 
 你可能已经听说了，参议院无法就一项临时拨款措施达成一致，该措施将使政府在周五午夜的最后期限前保持开放，这意味着我们正式处于政府关闭状态。
 

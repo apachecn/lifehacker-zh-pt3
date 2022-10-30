@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我害怕结婚
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-m-fear-to-marriage-1747400158](https://kotaku.com/ask-dr-nerdlove-i-m-afraid-to-get-married-1747400158)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-m-afraid-to-get-married-1747400158>
 
 你好，互联网！欢迎来到 [《向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问》，这是唯一的约会专栏，也是 111 号金库的唯一幸存者，为后核废墟带来爱情建议。
 

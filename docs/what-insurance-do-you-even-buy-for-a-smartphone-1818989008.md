@@ -1,6 +1,6 @@
 # 你甚至会为智能手机买什么保险？
 
-> 原文:[https://gizmodo . com/what-insurance-do-you-even-buy-for-a-smart phone-1818989008](https://gizmodo.com/what-insurance-do-you-even-buy-for-a-smartphone-1818989008)
+> 原文：<https://gizmodo.com/what-insurance-do-you-even-buy-for-a-smartphone-1818989008>
 
 如果你打算为一部智能手机支付高达四位数的，那么你要确保你的投资得到很好的保护——这通常意味着在购买手机的同时购买一些保险。花时间选择你的保险可以比你想象的节省更多的钱。
 

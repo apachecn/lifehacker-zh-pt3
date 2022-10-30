@@ -1,6 +1,6 @@
 # 使用这个旅行应用程序，在到达机场之前检查安全线
 
-> 原文:[https://life hacker . com/check-security-lines-before-you-get-to-airport-with-1822420414](https://lifehacker.com/check-security-lines-before-you-get-to-the-airport-with-1822420414)
+> 原文：<https://lifehacker.com/check-security-lines-before-you-get-to-the-airport-with-1822420414>
 
 没有什么比有时间赶到机场，却碰上蜿蜒的 [安检线](https://lifehacker.com/the-start-to-finish-guide-to-getting-through-airport-se-1777166539) 更糟糕的了，这条安检线长得足以让你误机。你总是可以提前到达，但这样你就有可能轻松通过安检，并在候机厅浪费几个小时，把钱花在高价小吃上。
 

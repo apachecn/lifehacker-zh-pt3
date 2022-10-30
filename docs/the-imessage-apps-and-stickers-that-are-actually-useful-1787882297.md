@@ -1,6 +1,6 @@
 # 实际上有用的 iMessage 应用程序和贴纸
 
-> 原文:[https://life hacker . com/the-imessage-apps-and-sticker-that-is-actual-used-1787882297](https://lifehacker.com/the-imessage-apps-and-stickers-that-are-actually-useful-1787882297)
+> 原文：<https://lifehacker.com/the-imessage-apps-and-stickers-that-are-actually-useful-1787882297>
 
 在 iOS 10 中， [苹果更新了其信息应用](https://lifehacker.com/how-to-master-the-new-messages-app-in-ios-10-1786543589) ，增加了大量新功能。其中一个功能，一个专门用于信息的应用程序商店，得到了用户的响亮的“meh”和“万岁！”来自品牌。不过，好消息是，并非所有这些应用都是糟糕的品牌贴纸包。事实上，有一些真正有用的。
 

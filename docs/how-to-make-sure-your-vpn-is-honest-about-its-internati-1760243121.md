@@ -1,6 +1,6 @@
 # 如何确保您的 VPN 对其国际出口服务器诚实
 
-> 原文:[https://life hacker . com/how-to-assure-your-VPN-is-honest-on-its-internati-1760243121](https://lifehacker.com/how-to-make-sure-your-vpn-is-honest-about-its-internati-1760243121)
+> 原文：<https://lifehacker.com/how-to-make-sure-your-vpn-is-honest-about-its-internati-1760243121>
 
 使用 VPN 的最好理由之一是绕过流媒体电影和其他内容的讨厌的位置限制，但在你付钱给一个承诺在几十个国家提供服务器的 VPN 之前，请确保他们说的是实话。信任，但要核实。
 

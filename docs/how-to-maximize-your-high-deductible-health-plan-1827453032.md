@@ -1,6 +1,6 @@
 # 如何最大限度地提高您的高免赔额健康计划
 
-> 原文:[https://life hacker . com/how-to-maximized-your-high-discount-health-plan-1827453032](https://lifehacker.com/how-to-maximize-your-high-deductible-health-plan-1827453032)
+> 原文：<https://lifehacker.com/how-to-maximize-your-high-deductible-health-plan-1827453032>
 
 如果你有一个高免赔额的健康计划(HDHP)，最终需要急诊或计划手术，使你接近或超过你的免赔额，考虑一下你可以在该计划年度增加哪些其他程序或护理，正如卡罗琳·麦克拉纳汉为 [福布斯](https://www.forbes.com/sites/carolynmcclanahan/2018/06/26/manipulating-your-high-deductible-health-care-plan/#36ae440a1efe) 解释的那样。“通过以深思熟虑的方式处理您的医疗保健，您可能能够将一系列护理‘预装’到一年中，并且只需要满足一个大的免赔额。”
 

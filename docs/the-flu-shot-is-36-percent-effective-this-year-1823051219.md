@@ -1,6 +1,6 @@
 # 今年流感疫苗的有效率为 36%
 
-> 原文:[https://life hacker . com/the-flu-shot-is-36 %-今年有效-1823051219](https://lifehacker.com/the-flu-shot-is-36-percent-effective-this-year-1823051219)
+> 原文：<https://lifehacker.com/the-flu-shot-is-36-percent-effective-this-year-1823051219>
 
 经过几个月对流感疫苗在澳大利亚对一种流感的 10%的有效性的焦虑之后，我们终于有了这个季节它在美国做得如何的数字。一般人预防流感 有 36%的效率，8 岁以下儿童有 59%的效率。这些数字不是很好的 T4，但是比零好得多。
 

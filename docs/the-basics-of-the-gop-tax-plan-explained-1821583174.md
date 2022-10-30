@@ -1,6 +1,6 @@
 # 共和党税收计划的基础，解释
 
-> 原文:[https://life hacker . com/the-basics-of-the-GOP-tax-plan-explained-1821583174](https://lifehacker.com/the-basics-of-the-gop-tax-plan-explained-1821583174)
+> 原文：<https://lifehacker.com/the-basics-of-the-gop-tax-plan-explained-1821583174>
 
 12 月 22 日，美国总统唐纳德·特朗普(Donald Trump)给美国人民带来了一份巨大而美丽的圣诞礼物 ，他签署了一项税收计划，该计划将使大大小小的企业主受益，并在 2018 年给个体纳税人一点喘息的机会。
 

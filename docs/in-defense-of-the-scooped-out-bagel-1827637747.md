@@ -1,6 +1,6 @@
 # 为挖出的百吉饼辩护
 
-> 原文:[https://life hacker . com/in-defense-of-the-scoed-out-bagel-1827637747](https://lifehacker.com/in-defense-of-the-scooped-out-bagel-1827637747)
+> 原文：<https://lifehacker.com/in-defense-of-the-scooped-out-bagel-1827637747>
 
 如果你第一次去纽约，第一次吃百吉饼，那一定会让你兴奋和惊叹。面包师是如何做出这种内部耐嚼、外部松脆的难以置信的质地混搭的？把这幅杰作挖出来，留下一具悲伤空洞的尸体，这看起来似乎很可笑。如果我是你，我就不会...但我知道。
 

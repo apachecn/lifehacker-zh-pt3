@@ -1,6 +1,6 @@
 # 这些是美国主要航空公司的行李和座位费
 
-> 原文:[https://life hacker . com/know-the-airline-行李和座位费-for-major-u-1829459066](https://lifehacker.com/know-the-airline-baggage-and-seat-fees-for-the-major-u-1829459066)
+> 原文：<https://lifehacker.com/know-the-airline-baggage-and-seat-fees-for-the-major-u-1829459066>
 
 因为坐飞机不是很不愉快或不够贵，2018 年，四大国内航空公司提高了托运行李费，包括美国航空公司、达美航空公司、捷蓝航空公司和联合航空公司。
 

@@ -1,6 +1,6 @@
 # 互联网档案馆带回 HyperCard
 
-> 原文:[https://life hacker . com/internet-archive-brings-back-hypercard-1797821417](https://lifehacker.com/internet-archive-brings-back-hypercard-1797821417)
+> 原文：<https://lifehacker.com/internet-archive-brings-back-hypercard-1797821417>
 
 HyperCard 是影响了网络发明的图形超链接 Mac 应用程序，是由苹果工程师比尔·阿特金森 [在 30 年前的这个周末经历了一次“酸旅”](https://www.youtube.com/watch?v=INdByDjhClU) 后发明的。现在 [互联网档案馆把它带了回来](https://blog.archive.org/2017/08/11/hypercard-on-the-archive-celebrating-30-years-of-hypercard/) 有超过 3000 个 hypercard“书库”的集合，你可以在你的浏览器中浏览。每个堆栈都在早期 Macintosh 电脑的归档模拟器中打开。
 

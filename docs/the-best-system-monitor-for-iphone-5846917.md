@@ -1,6 +1,6 @@
 # iPhone 的最佳系统显示器
 
-> 原文:[https://life hacker . com/the-best-system-monitor-for-iphone-5846917](https://lifehacker.com/the-best-system-monitor-for-iphone-5846917)
+> 原文：<https://lifehacker.com/the-best-system-monitor-for-iphone-5846917>
 
 乍一看，系统显示器在你的 iPhone 上可能不像在台式电脑上那么有用，但它们可以包含大量有用的数据。这包括详细的电池寿命故障、存储空间、数据速度等。对于普通用户来说，我们最喜欢的 iPhone 系统显示器是 Omnistat。
 

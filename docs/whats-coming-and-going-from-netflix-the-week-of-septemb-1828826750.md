@@ -1,6 +1,6 @@
 # 2018 年 9 月 24 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-septemb-1828826750](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1828826750)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1828826750>
 
 杰弗里·赖特和亚历山大·斯卡斯加德发生在一个遥远的阿拉斯加村庄的“悲惨的神秘事件”中？我们开始吧！《守住黑暗》由杰瑞姆y·索尼尔(*蓝色废墟*)执导，将于周五首映。我还没有看到*一条时间的皱纹*(周二)可能不会看，因为这会毁了我对这本书的珍贵回忆(查尔斯华莱士！)，不过听说对孩子很有好处。
 

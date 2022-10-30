@@ -1,6 +1,6 @@
 # 用这些变化让你的木板更坚硬
 
-> 原文:[https://life hacker . com/make-your-planks-hard-with these-variations-1825042857](https://lifehacker.com/make-your-planks-harder-with-these-variations-1825042857)
+> 原文：<https://lifehacker.com/make-your-planks-harder-with-these-variations-1825042857>
 
 Plank 可能不容易，但是很简单。不过，如果你觉得无聊，还有其他的方法！当我们进入第二周的 [我们的木板挑战赛](https://vitals.lifehacker.com/this-april-were-doing-planks-1824171421) 时，这里有一些变化可以尝试。
 

@@ -1,6 +1,6 @@
 # 如何使用脸书的新贪睡功能
 
-> 原文:[https://life hacker . com/how-to-use-face books-new-snooze-feature-1821346556](https://lifehacker.com/how-to-use-facebooks-new-snooze-feature-1821346556)
+> 原文：<https://lifehacker.com/how-to-use-facebooks-new-snooze-feature-1821346556>
 
 几年前我的一个前男友结婚了。我们的分手是友好的，我们都和许多相同的人保持着朋友关系。这意味着当他的婚礼周末到来时，我的脸书 feed 被他的预演晚宴、婚礼和招待会的照片淹没了。是的，我为他高兴，但还不够高兴，我想看(字面上)一千张我没有参与的节日活动的照片。
 

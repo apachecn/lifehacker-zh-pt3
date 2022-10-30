@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我被困在一段被虐待的关系中
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-m-trapped-in-a-abuse-relationshi-1826142880](https://kotaku.com/ask-dr-nerdlove-i-m-trapped-in-an-abusive-relationshi-1826142880)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-m-trapped-in-an-abusive-relationshi-1826142880>
 
 大家好，Twitterhord 的所有火热的性猫鼬，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一的约会建议专栏，那才是真正的金刚。本周，我们将解决你的约会困境，冲破你的阻碍，帮助你一路走到爱情的尽头。
 

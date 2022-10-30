@@ -1,6 +1,6 @@
 # 如何从 DOCX 文件中抢救嵌入的图像
 
-> 原文:[https://life hacker . com/how-to-rescue-embedded-images-from-a-docx-file-1827888815](https://lifehacker.com/how-to-rescue-embedded-images-from-a-docx-file-1827888815)
+> 原文：<https://lifehacker.com/how-to-rescue-embedded-images-from-a-docx-file-1827888815>
 
 "如果将. docx 文件重命名为。zip 你可以打开它，”推特 [SwiftOnSecurity](https://twitter.com/swiftonsecurity/status/1013130217135755265?s=12) ，安全专业人士/泰勒·斯威夫特恶搞账号。然后，您可以抓取嵌入到文档中的图像和视频，全部作为单独的文件。Swift 的追随者们有更多从不同文件格式中拯救数据的绝佳技巧。例如，您可以使用 Swift 的方法打开一个损坏的。docx 文件:
 

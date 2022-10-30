@@ -1,6 +1,6 @@
 # 体育转播“你的孩子”的比赛
 
-> 原文:[https://life hacker . com/sports cast-your-kids-fights-1825042485](https://lifehacker.com/sportscast-your-kids-fights-1825042485)
+> 原文：<https://lifehacker.com/sportscast-your-kids-fights-1825042485>
 
 听你的孩子吵架是一种克制的练习。你想跳进去，大声说出妈妈或爸爸的声音，提醒他们你没有给他们兄弟姐妹的礼物，这样他们就可以整天尖叫着谁的奶酪饼干更奶酪。然而，正如我们所知，有很好的理由让孩子参与一些健康的冲突。
 

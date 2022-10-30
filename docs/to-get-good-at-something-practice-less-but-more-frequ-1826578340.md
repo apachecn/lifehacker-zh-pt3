@@ -1,6 +1,6 @@
 # 要想擅长某事，少练，但要多练
 
-> 原文:[https://life hacker . com/to-get-good-at-something-practice-less-but-frequ-1826578340](https://lifehacker.com/to-get-good-at-something-practice-less-but-more-frequ-1826578340)
+> 原文：<https://lifehacker.com/to-get-good-at-something-practice-less-but-more-frequ-1826578340>
 
 所有的音乐家都有不同的方法来达到他们的最佳状态，但是无论你如何练习，都不可避免地会包括一些跑步音阶的版本。当灵感来袭时，保持足够好的状态是非常乏味的。不幸的是，这已经转化为许多在键盘前受压的孩子们悲惨的下午。但是我们现在是成年人了。让我们练习聪明，而不是努力。
 

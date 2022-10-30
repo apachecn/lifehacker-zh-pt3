@@ -1,6 +1,6 @@
 # 问咸的女服务员:把我的免费水杯装满苏打水有错吗？
 
-> 原文:[https://thetakeout . com/error-to-fill-free-water-cup-with-soda-water-1827722935](https://thetakeout.com/wrong-to-fill-free-water-cup-with-soda-water-1827722935)
+> 原文：<https://thetakeout.com/wrong-to-fill-free-water-cup-with-soda-water-1827722935>
 
 > 亲爱的咸味女服务员:在过去的两年里，我一直在泡温泉，主要是因为它就像水一样，只是因为碳酸化而变得更加有趣和充实。这真的帮助我减少了低糖汽水的消耗和晚餐时随机的周中啤酒。
 > 

@@ -1,6 +1,6 @@
 # 我是 Gloveworx 的创始人 Leyon Azubuike，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-gloveworx-founder-leyon-azubuike-and-this-is-how-I-1826146651](https://lifehacker.com/im-gloveworx-founder-leyon-azubuike-and-this-is-how-i-1826146651)
+> 原文：<https://lifehacker.com/im-gloveworx-founder-leyon-azubuike-and-this-is-how-i-1826146651>
 
 每一个一夜成名都需要多年的努力。拳击教练莱翁·阿祖布克(Leyon Azubuike)第一次尝试开设健身房并没有成功，但他回去做私人教练，再次尝试。现在，他的健身房 [Gloveworx](https://www.gloveworx.com/) ，在洛杉矶有两家分店，并很快扩展到纽约。我们和他谈了他的职业道路，他的咖啡替代品，以及他如何在管理一个不断增长的业务的同时仍然开办私人培训课程。
 

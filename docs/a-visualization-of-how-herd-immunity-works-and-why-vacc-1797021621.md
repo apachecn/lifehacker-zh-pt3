@@ -1,6 +1,6 @@
 # 群体免疫是如何工作的，以及为什么疫苗如此重要
 
-> 原文:[https://life hacker . com/a-visualization-of-how-herd-immunity-works-and-why-vacc-1797021621](https://lifehacker.com/a-visualization-of-how-herd-immunity-works-and-why-vacc-1797021621)
+> 原文：<https://lifehacker.com/a-visualization-of-how-herd-immunity-works-and-why-vacc-1797021621>
 
 通过阻断疾病的传播链，群体免疫保护了我们当中最脆弱的人群，包括新生儿和无法接种疫苗的病人。但是为了让它发挥作用，社区中一定比例的人必须接种疫苗。
 

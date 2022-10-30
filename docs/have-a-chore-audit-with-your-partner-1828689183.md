@@ -1,6 +1,6 @@
 # 和你的伴侣一起做“家务审计”
 
-> 原文:[https://life hacker . com/have-a-Jerry-audit-with-your-partner-1828689183](https://lifehacker.com/have-a-chore-audit-with-your-partner-1828689183)
+> 原文：<https://lifehacker.com/have-a-chore-audit-with-your-partner-1828689183>
 
 让夫妻分开的并不总是什么大事。通常，这些都是日常的事情，你觉得你应该能够摆脱的事情，但试图这样做只会让你更加愤怒，所以你在沉默中酝酿怨恨，直到有一天早上，一些不相关的烦恼让你爆发出这样的话:“你总是忘记扔掉包装，为什么我必须为你做，我不是你的母亲！”呃，还有人去过吗？
 

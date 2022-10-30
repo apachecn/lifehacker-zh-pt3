@@ -1,6 +1,6 @@
 # 你饮料里的柠檬块可能很脏
 
-> 原文:[https://life hacker . com/that-the-lemon-wedge-in-your-drink-is-possibly-1820336248](https://lifehacker.com/that-lemon-wedge-in-your-drink-is-probably-filthy-1820336248)
+> 原文：<https://lifehacker.com/that-lemon-wedge-in-your-drink-is-probably-filthy-1820336248>
 
 你饮料中的柠檬块名声不好，证据似乎很明显:餐馆里没有人洗柠檬的外层，但他们会把柠檬块扔到你的杯子里，有时会让柠檬皮浸泡在饮料里。据《赫芬顿邮报》报道，几项研究在酒吧和餐馆的柠檬角上发现了各种细菌 。那么你点的饮料应该总是包括“请不要加柠檬”吗？
 

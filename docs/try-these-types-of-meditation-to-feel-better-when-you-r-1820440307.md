@@ -1,6 +1,6 @@
 # 当你生病时，尝试这些类型的冥想会让你感觉更好
 
-> 原文:[https://life hacker . com/try-thes-types-of-the-mostation-to-feel-better-when-you-r-1820440307](https://lifehacker.com/try-these-types-of-meditation-to-feel-better-when-you-r-1820440307)
+> 原文：<https://lifehacker.com/try-these-types-of-meditation-to-feel-better-when-you-r-1820440307>
 
 没有人喜欢感冒和流感带来的打喷嚏、发烧和疼痛，但不幸的是，一旦你生病了，你所能做的就是等待。在获得大量的液体和更多的休息之间，你可以尝试一些正念冥想来帮助你找到一些精神和情绪上的放松。
 

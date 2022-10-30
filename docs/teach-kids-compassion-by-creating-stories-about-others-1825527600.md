@@ -1,6 +1,6 @@
 # 教孩子同情心的一个窍门
 
-> 原文:[https://life hacker . com/teach-kids-sipathy-by-creating-stories-about-others-1825527600](https://lifehacker.com/teach-kids-compassion-by-creating-stories-about-others-1825527600)
+> 原文：<https://lifehacker.com/teach-kids-compassion-by-creating-stories-about-others-1825527600>
 
 很容易得出结论，人普遍很烂。不是吗？有让你插队的司机，有在你耐心排队时不知从哪里冒出来偷走托盘上最后一份好市多样品的女士，有连续三年忘记你生日的“朋友”。我明白为什么我们认为其他人没有努力。
 

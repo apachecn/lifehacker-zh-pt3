@@ -1,6 +1,6 @@
 # 如何退出网飞的新广告
 
-> 原文:[https://life hacker . com/how-to-opt-out-of-netflixs-new-ads-1828542917](https://lifehacker.com/how-to-opt-out-of-netflixs-new-ads-1828542917)
+> 原文：<https://lifehacker.com/how-to-opt-out-of-netflixs-new-ads-1828542917>
 
 到现在为止，你可能已经听说网飞已经开始在你疯狂观看的剧集之间播放预告片了。因此，当你在等待下一集《橙色是新的黑色》播出时，你可能会看到一则《富勒之家》的广告。
 

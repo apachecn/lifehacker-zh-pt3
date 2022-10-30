@@ -1,6 +1,6 @@
 # 用鲍比·伯恩斯庆祝父亲节
 
-> 原文:[https://life hacker . com/prosper-father-day with-a-bobby-burns-1826864425](https://lifehacker.com/celebrate-fathers-day-with-a-bobby-burns-1826864425)
+> 原文：<https://lifehacker.com/celebrate-fathers-day-with-a-bobby-burns-1826864425>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周日是父亲节，我的父亲( [一如既往](https://skillet.lifehacker.com/3-ingredient-happy-hour-the-scotchy-rob-roy-1797734190) )希望我“多写一些关于苏格兰威士忌的东西”，所以我们将用这款略显花哨的罗布罗伊(Rob Roy)草本变种来表达对他的敬意。
 

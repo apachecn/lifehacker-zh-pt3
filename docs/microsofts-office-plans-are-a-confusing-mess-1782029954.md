@@ -1,6 +1,6 @@
 # 微软的 Office 计划混乱不堪
 
-> 原文:[https://life hacker . com/Microsoft-office-plans-is-a-fuzzy-mess-1782029954](https://lifehacker.com/microsofts-office-plans-are-a-confusing-mess-1782029954)
+> 原文：<https://lifehacker.com/microsofts-office-plans-are-a-confusing-mess-1782029954>
 
 上周，我试图订阅微软办公软件。我期望简单地找到一个包含我所需要的简单价格的办公许可证。相反，我发现微软的 Office 许可极其复杂，这使得任何人都不可能在不超支的情况下得到他们需要的东西。
 

@@ -1,6 +1,6 @@
 # 把聚会吃剩的零食变成格兰诺拉麦片
 
-> 原文:[https://the take out . com/turn-left-party-snack-mix-into-granola-1825623184](https://thetakeout.com/turn-leftover-party-snack-mix-into-granola-1825623184)
+> 原文：<https://thetakeout.com/turn-leftover-party-snack-mix-into-granola-1825623184>
 
 我们都经历过。聚会结束后，你正在打扫卫生，面对着三四碗各种咸脆的小吃，碎成大约一英寸的碎片或小块，被客人彻底挑选成完整的薯片或椒盐卷饼。它们不是面包屑，真的不是，但没有什么值得粘在蘸碗中的，而且如果你试图把一捏转移到你的嘴里，它的大小保证会跑到你衬衫的一半。真的很悲哀，宴会后的碎屑，对于那些做饭的人来说，是一个挑战。除了拿起碗把碎片铲到脸上，还有什么可以处理收集的剩菜吗？
 

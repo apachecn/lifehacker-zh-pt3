@@ -1,6 +1,6 @@
 # 我是一个终于可以买好玩的东西的爸爸:买什么车好呢？
 
-> 原文:[https://jalopnik . com/im-a-dad-who-finally-buy-something-fun-what-car-sh-1787082506](https://jalopnik.com/im-a-dad-who-can-finally-buy-something-fun-what-car-sh-1787082506)
+> 原文：<https://jalopnik.com/im-a-dad-who-can-finally-buy-something-fun-what-car-sh-1787082506>
 
 有一个女儿是一个伟大的，肯定生活的经历。有一个女儿有时意味着买一辆比你想要的更实用的车。现在，迈克的女儿获得了驾照，他准备开始一段新的汽车生活。他应该买什么车？
 

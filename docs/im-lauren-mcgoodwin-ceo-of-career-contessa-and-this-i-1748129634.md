@@ -1,6 +1,6 @@
 # 我是劳伦·麦克古德温，职业竞赛的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Lauren-mcgoodwin-CEO-of-career-contessa-and-this-I-1748129634](https://lifehacker.com/im-lauren-mcgoodwin-ceo-of-career-contessa-and-this-i-1748129634)
+> 原文：<https://lifehacker.com/im-lauren-mcgoodwin-ceo-of-career-contessa-and-this-i-1748129634>
 
 毕业后，在黯淡的就业市场上， [劳伦·麦克古德温](http://www.careercontessa.com/contessas/lauren-mcgoodwin-career-contessa-founder) 需要一些职业指导。她最终在一家大公司找到了一份招聘人员的工作，但仍然觉得年轻女性缺乏职业发展资源——所以她决定自己创业。
 

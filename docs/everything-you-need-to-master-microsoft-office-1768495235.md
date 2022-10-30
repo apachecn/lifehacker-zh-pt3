@@ -1,6 +1,6 @@
 # 掌握 Microsoft Office 所需的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-master-Microsoft-office-1768495235](https://lifehacker.com/everything-you-need-to-master-microsoft-office-1768495235)
+> 原文：<https://lifehacker.com/everything-you-need-to-master-microsoft-office-1768495235>
 
 本周，我们将带您了解如何快速入门、充分利用和掌握 Microsoft Office 中的每个应用程序。也许你错过了一个，或者想要一个快速指南。好吧，给你。
 

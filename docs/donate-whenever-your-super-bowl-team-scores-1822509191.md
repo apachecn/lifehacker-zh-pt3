@@ -1,6 +1,6 @@
 # 每当你的超级碗球队得分时就捐款
 
-> 原文:[https://life hacker . com/duate-only-your ' s super-bowl-team-scores-1822509191](https://lifehacker.com/donate-whenever-your-super-bowl-team-scores-1822509191)
+> 原文：<https://lifehacker.com/donate-whenever-your-super-bowl-team-scores-1822509191>
 
 足球令人担忧。你可能想享受超级碗——为了运动或小吃或中场秀——但也真的讨厌 NFL 或你的球队所代表的许多东西。慢性脑损伤，对和平抗议的不尊重和漠视，对家庭暴力的掩盖，对你讨厌的政客的支持。粉丝能做什么？
 

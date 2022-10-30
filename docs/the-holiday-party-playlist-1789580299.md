@@ -1,6 +1,6 @@
 # 假日派对播放列表
 
-> 原文:[https://life hacker . com/the-holiday-party-playlist-1789580299](https://lifehacker.com/the-holiday-party-playlist-1789580299)
+> 原文：<https://lifehacker.com/the-holiday-party-playlist-1789580299>
 
 终于到了 12 月，这意味着你可能已经准备好了大约 47 个假期派对。这需要做很多准备。使用这个假日系列，将播放列表从待办事项列表中删除。
 

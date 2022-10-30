@@ -1,6 +1,6 @@
 # 《星球大战》和 2017 年其他 24 个最差密码
 
-> 原文:[https://life hacker . com/star wars-and-the-24-the-other-the-2017-1821338872](https://lifehacker.com/starwars-and-the-24-other-worst-passwords-of-2017-1821338872)
+> 原文：<https://lifehacker.com/starwars-and-the-24-other-worst-passwords-of-2017-1821338872>
 
 你知道那些老掉牙的电影场景吗，有人通过环视房间并猜两次来破解他们老板或女朋友或敌人的密码？在现实生活中，这种情况会比正常情况下更多。看看这份 2017 年 25 个最常用、也是最容易被黑客攻击的密码列表。
 

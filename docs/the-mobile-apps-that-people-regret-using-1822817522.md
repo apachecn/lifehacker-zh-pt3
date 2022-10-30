@@ -1,6 +1,6 @@
 # 人们后悔使用的移动应用
 
-> 原文:[https://life hacker . com/the-mobile-apps-the-people-retail-use-1822817522](https://lifehacker.com/the-mobile-apps-that-people-regret-using-1822817522)
+> 原文：<https://lifehacker.com/the-mobile-apps-that-people-regret-using-1822817522>
 
 人们自愿使用 Grindr、Two Dots 和 Reddit。根据手机应用程序和人道技术中心的一项联合调查，他们并不真的对 感到满意。
 

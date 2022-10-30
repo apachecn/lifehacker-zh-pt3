@@ -1,6 +1,6 @@
 # 如何订购你的全食食品杂货(如果你是亚马逊的 Prime 会员)
 
-> 原文:[https://life hacker . com/how-to-order-your-whole-foods-stacking-if-1828194728](https://lifehacker.com/how-to-order-your-whole-foods-groceries-for-pick-up-if-1828194728)
+> 原文：<https://lifehacker.com/how-to-order-your-whole-foods-groceries-for-pick-up-if-1828194728>
 
 如果你是亚马逊的 Prime 会员，你也许可以在全食超市购买食品，而不必真的在全食超市的过道里闲逛，我们都知道这是一次危险的旅行(“我是怎么花了 32 美元买了奶酪蘸酱的？”)。今天，亚马逊 [宣布推出杂货提货](https://media.wholefoodsmarket.com/news/amazon-introduces-grocery-pickup-in-as-little-as-30-minutes-from-select-who) ，已经在萨克拉门托和弗吉尼亚海滩推出，并将在 2018 年到达更多城市。如果它到达你所在的地区，你不用下车就可以买到从农产品到烘焙食品，再到为你要去的晚宴准备的最后一束鲜花( [或者更好，一种特殊的利口酒](https://lifehacker.com/dont-bring-flowers-to-a-party-1825288210) )。
 

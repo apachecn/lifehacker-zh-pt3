@@ -1,6 +1,6 @@
 # 将花园带进你的小空间的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-bring a-garden to-your-small-space-1784409327](https://lifehacker.com/top-10-ways-to-bring-a-garden-into-your-small-space-1784409327)
+> 原文：<https://lifehacker.com/top-10-ways-to-bring-a-garden-into-your-small-space-1784409327>
 
 如果你想为你的家增加一点绿色——无论是为了自然而绿色还是因为你喜欢种植食物而绿色——你不需要太多的空间。这里有一些给你的家或办公室增加一点植物生活的建议，不管它有多大。
 

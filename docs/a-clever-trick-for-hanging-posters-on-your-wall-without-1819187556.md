@@ -1,6 +1,6 @@
 # 无需打孔即可将海报挂在墙上的巧妙方法
 
-> 原文:[https://life hacker . com/a-clever-trick-for-hang-on-wall-posters-on-your-wall-with-non-1819187556](https://lifehacker.com/a-clever-trick-for-hanging-posters-on-your-wall-without-1819187556)
+> 原文：<https://lifehacker.com/a-clever-trick-for-hanging-posters-on-your-wall-without-1819187556>
 
 如果你想贴一些可爱的海报，但你住在宿舍或公寓里，可能会被要求赔偿损失，这种结合小磁铁的方法值得一试。墙上不再有讨厌的洞。
 

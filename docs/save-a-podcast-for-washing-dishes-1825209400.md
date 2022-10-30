@@ -1,6 +1,6 @@
 # 为洗碗保存一个播客
 
-> 原文:[https://life hacker . com/save-a-podcast-for-洗碗-1825209400](https://lifehacker.com/save-a-podcast-for-washing-dishes-1825209400)
+> 原文：<https://lifehacker.com/save-a-podcast-for-washing-dishes-1825209400>
 
 我喜欢洗碗。这是我为数不多的不需要任何脑力劳动的责任之一。你可能不喜欢洗碗。你可以尝试 [让他们沉浸在一种不诚实的拖延行为中](https://lifehacker.com/soaking-dishes-is-a-lie-1825105525) 。有个想法:挑一个你最喜欢的播客，只在洗碗的时候听。
 

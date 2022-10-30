@@ -1,6 +1,6 @@
 # 联邦调查局与苹果的斗争将如何改变智能手机安全的未来
 
-> 原文:[https://life hacker . com/how-the-FBI-s-fight-with-apple-can-change-the-future-1762392996](https://lifehacker.com/how-the-fbi-s-fight-with-apple-could-change-the-future-1762392996)
+> 原文：<https://lifehacker.com/how-the-fbi-s-fight-with-apple-could-change-the-future-1762392996>
 
 昨天，国会听取了一个重要安全案件的证词。联邦调查局想找人帮忙破解一部 iPhone。苹果在其他科技公司的支持下拒绝了。这听起来像是 iPhone 用户关心的孤立问题，但这场斗争的后果将影响我们所有人。
 

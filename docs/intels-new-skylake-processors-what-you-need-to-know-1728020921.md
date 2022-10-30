@@ -1,6 +1,6 @@
 # 英特尔全新 Skylake 处理器:您需要了解的内容
 
-> 原文:[https://gizmodo . com/Intel-new-sky lake-processors-what-you-need-to-know-1728020921](https://gizmodo.com/intels-new-skylake-processors-what-you-need-to-know-1728020921)
+> 原文：<https://gizmodo.com/intels-new-skylake-processors-what-you-need-to-know-1728020921>
 
 停下来。不要购买新的 Windows 笔记本电脑或平板电脑。不要扣动扳机，除非你得到了一笔真正惊人的交易。因为今天，英特尔发布了它的最新处理器——sky lake——你可能想要在你的下一台电脑中安装一个。
 

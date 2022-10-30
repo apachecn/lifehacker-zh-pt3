@@ -1,6 +1,6 @@
 # 没有浪漫的爱情，哪里能找到满足感
 
-> 原文:[https://life hacker . com/where-to-find-fulfillment-without-romantic-love-1819839752](https://lifehacker.com/where-to-find-fulfillment-without-romantic-love-1819839752)
+> 原文：<https://lifehacker.com/where-to-find-fulfillment-without-romantic-love-1819839752>
 
 “最近我对寻找爱情感到有点绝望，”Ask MetaFilter 用户 seraph9 在一篇名为 [“爱情的替代品”的帖子中写道](http://ask.metafilter.com/314703/Alternatives-to-Love) “你最有收获、最充实、最惊艳的非浪漫经历或事业是什么？”受访者列出了丰富多彩的活动，说明生活中除了工作和浪漫还有很多。
 

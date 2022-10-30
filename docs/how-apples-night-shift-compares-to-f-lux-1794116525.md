@@ -1,6 +1,6 @@
 # 苹果的夜班与 F.lux 相比如何
 
-> 原文:[https://life hacker . com/how-apple-night-shift-compare-to-f-lux-1794116525](https://lifehacker.com/how-apples-night-shift-compares-to-f-lux-1794116525)
+> 原文：<https://lifehacker.com/how-apples-night-shift-compares-to-f-lux-1794116525>
 
 苹果最近在 macOS 上增加了夜班功能，它可以根据一天中的时间改变屏幕的色温，希望能帮助你睡得更好。在推出夜班之前，f.lux 是做这件事的首选工具。让我们看看他们是如何比较的。
 

@@ -1,6 +1,6 @@
 # 如何应对令人沮丧的职场官僚主义
 
-> 原文:[https://life hacker . com/how-to-deal-fronting-workplace-officescan-1782896978](https://lifehacker.com/how-to-deal-with-frustrating-workplace-bureaucracy-1782896978)
+> 原文：<https://lifehacker.com/how-to-deal-with-frustrating-workplace-bureaucracy-1782896978>
 
 在大公司办公室工作是福是祸是 T2 T3。一方面，你有大量的资源可以支配——技术帮助、创意团队、导师、库存充足的供应室，以及你需要的任何东西，只需一张订单就能得到。但另一方面，公司环境中的官僚作风很容易抑制新想法，拖慢你需要完成的工作。
 

@@ -1,6 +1,6 @@
 # 如何假装弹钢琴:第一课
 
-> 原文:[https://life hacker . com/how-to-fake-playing-piano-lesson-1-1819456727](https://lifehacker.com/how-to-fake-playing-piano-lesson-1-1819456727)
+> 原文：<https://lifehacker.com/how-to-fake-playing-piano-lesson-1-1819456727>
 
 想象一下，有人刚开始学钢琴。听起来像什么？热十字包子？玛丽有一只小羊羔？我和作曲家杰森·奥伯霍尔特泽(Jason Oberholtzer)坐在一起，上了一堂有趣的钢琴课，重点是发现新的声音，并靠耳朵来演奏，而不是学习特定的歌曲或阅读乐谱。它不会让你进入卡内基音乐厅，但它会让你对创作音乐感到兴奋。
 

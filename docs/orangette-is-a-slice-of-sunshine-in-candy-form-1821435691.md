@@ -1,6 +1,6 @@
 # 桔子是糖果形式的一片阳光
 
-> 原文:[https://life hacker . com/orangette-is-a-slice-of-sunshine-in-candy-form-1821435691](https://lifehacker.com/orangette-is-a-slice-of-sunshine-in-candy-form-1821435691)
+> 原文：<https://lifehacker.com/orangette-is-a-slice-of-sunshine-in-candy-form-1821435691>
 
 我第一次品尝 orangette 的时候——出于好奇做了一批，并有点预期会讨厌它——我的舌头竖起来认出了它。这简直就像是美食版的那些糖渍香橙“切片”，除了*道*更好。Orangette，或蜜饯桔皮，现在是我的首选节日礼物糖果。
 

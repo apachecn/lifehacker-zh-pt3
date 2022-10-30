@@ -1,6 +1,6 @@
 # 当你发现自己被欺骗时该怎么办
 
-> 原文:[https://life hacker . com/1734659354](https://lifehacker.com/what-to-do-when-you-find-out-you-ve-been-cheated-on-1734659354)
+> 原文：<https://lifehacker.com/what-to-do-when-you-find-out-you-ve-been-cheated-on-1734659354>
 
 保守估计表明，欺骗发生在大约一半的关系中。被劈腿可能是一种非常痛苦的经历，在最初发现之后，可能很难知道该做什么。这里有一个全面的，详细的指南来决定是去是留。
 

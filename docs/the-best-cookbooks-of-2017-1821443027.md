@@ -1,6 +1,6 @@
 # 2017 年最佳食谱
 
-> 原文:[https://the take out . com/the-best-cookbooks-of-2017-1821443027](https://thetakeout.com/the-best-cookbooks-of-2017-1821443027)
+> 原文：<https://thetakeout.com/the-best-cookbooks-of-2017-1821443027>
 
 因为 2017 年客观上是糟糕的一年，我开始更好地照顾自己，第一步是尽可能地保护自己不受外界影响。这一年，我经常关掉电视，把手机放在一个遥远的房间里，蜷缩在沙发上看一本烹饪书。
 

@@ -1,6 +1,6 @@
 # iOS 12 中值得尝试的最佳新功能
 
-> 原文:[https://life hacker . com/the-best-new-features-to-try-in-IOs-12-1829117648](https://lifehacker.com/the-best-new-features-to-try-in-ios-12-1829117648)
+> 原文：<https://lifehacker.com/the-best-new-features-to-try-in-ios-12-1829117648>
 
 苹果 iPhone 和 iPad 操作系统的最新版本 iOS 12 已经发布。它有几十个新功能和改进；每个人都有适合自己的东西。
 

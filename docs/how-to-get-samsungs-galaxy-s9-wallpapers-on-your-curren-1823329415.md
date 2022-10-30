@@ -1,6 +1,6 @@
 # 如何在您当前的手机上获得三星的 Galaxy S9 壁纸
 
-> 原文:[https://life hacker . com/how-to-get-samsungs-galaxy-S9-wallpapers-on-your-current-1823329415](https://lifehacker.com/how-to-get-samsungs-galaxy-s9-wallpapers-on-your-curren-1823329415)
+> 原文：<https://lifehacker.com/how-to-get-samsungs-galaxy-s9-wallpapers-on-your-curren-1823329415>
 
 如果你买不起 Galaxy S9 ，有很多方法可以让你的现有设备焕然一新。我们已经向您展示了如何在任何手机上获得三星新的 [自动翻译](https://lifehacker.com/how-to-get-the-galaxy-s9s-translation-feature-on-any-ph-1823307084) 和 [化妆试戴](https://lifehacker.com/get-the-galaxy-s9s-makeup-try-on-feature-on-any-phone-u-1823307779) 功能。现在，您可以将 S9 的专属壁纸添加到列表中。
 

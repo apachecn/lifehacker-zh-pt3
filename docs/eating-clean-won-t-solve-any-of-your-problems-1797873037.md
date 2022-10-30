@@ -1,6 +1,6 @@
 # 吃“干净”不会解决你的任何问题
 
-> 原文:[https://life hacker . com/eating-clean-won-t-solve-any-of-your-problems-1797873037](https://lifehacker.com/eating-clean-won-t-solve-any-of-your-problems-1797873037)
+> 原文：<https://lifehacker.com/eating-clean-won-t-solve-any-of-your-problems-1797873037>
 
 没有人吹嘘吃垃圾食品。健康的饮食 [包括蔬菜，不吃太多的糖](http://vitals.lifehacker.com/the-only-three-things-everybody-agrees-on-when-it-comes-1709039566) ，如果你这样吃，你会对自己吃得“干净”感到满意但是你知道吗？吃得干净是个陷阱。
 

@@ -1,6 +1,6 @@
 # 让你的 AirPods 在你的耳朵里
 
-> 原文:[https://life hacker . com/keep-your-ai rpods-in-your-ear-with this-hack-1821187020](https://lifehacker.com/keep-your-airpods-in-your-ears-with-this-hack-1821187020)
+> 原文：<https://lifehacker.com/keep-your-airpods-in-your-ears-with-this-hack-1821187020>
 
 苹果的一刀切 [AirPods](https://lifehacker.com/use-your-airpods-case-as-an-on-the-go-iphone-stand-1820478755) 的设计可能对大多数人都适用，但如果你有特别大的耳朵，你可能会努力保持你的 [无线耳塞](http://gear.lifehacker.com/ankers-soundbuds-are-your-favorite-cheap-bluetooth-earb-1770741170) 的安全。别担心，你并不孤单——一名苹果粉丝找到了解决这个问题的聪明方法。
 

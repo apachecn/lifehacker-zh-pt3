@@ -1,6 +1,6 @@
 # 以下是你可以用苹果新的 iOS 12 家长控制做的事情
 
-> 原文:[https://life hacker . com/heres-what-you-can-do-with-apple-new-IOs-12-parental-c-1829214019](https://lifehacker.com/heres-what-you-can-do-with-apples-new-ios-12-parental-c-1829214019)
+> 原文：<https://lifehacker.com/heres-what-you-can-do-with-apples-new-ios-12-parental-c-1829214019>
 
 父母们，为了控制你孩子的手机使用量，你们可能不再需要拿着他们的充电器当人质，大声喊出每晚倒计时(*)“再等三分钟！”或者起草详细的技术合同，让你一次看完。至少，如果你用的是苹果设备。新的 iOS 12 家长控制功能已经推出，它们允许你管理孩子的屏幕时间——设置应用程序时间限制，阻止大块的“停机时间”并跟踪他们的日常习惯——所有这些都可以从你自己的手机上完成。下面是你能做的，以及如何去做。*
 

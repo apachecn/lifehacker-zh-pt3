@@ -1,6 +1,6 @@
 # 如何使用谷歌镜头的新功能
 
-> 原文:[https://life hacker . com/how-to-use-Google-lens-new-features-1826294255](https://lifehacker.com/how-to-use-google-lens-new-features-1826294255)
+> 原文：<https://lifehacker.com/how-to-use-google-lens-new-features-1826294255>
 
 谷歌镜头，曾经是一个纯像素的功能，现在是谷歌照片应用的一部分(或 [一个独立的安卓下载](https://play.google.com/store/apps/details?id=com.google.ar.lens) )。在今年的谷歌 I/O 期间，谷歌宣布了谷歌镜头的许多新功能，你现在可以在 iOS 和 Android 上玩它们——假设你的设备现在在其相机应用 中支持镜头(或者独立的镜头应用，如果它不支持)。
 

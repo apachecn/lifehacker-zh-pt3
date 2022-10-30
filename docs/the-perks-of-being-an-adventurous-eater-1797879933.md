@@ -1,6 +1,6 @@
 # 做一个爱冒险的食客的好处
 
-> 原文:[https://life hacker . com/the-perks-of-be-an-darxious-eater-1797879933](https://lifehacker.com/the-perks-of-being-an-adventurous-eater-1797879933)
+> 原文：<https://lifehacker.com/the-perks-of-being-an-adventurous-eater-1797879933>
 
 “我喜欢我喜欢的，”当你一遍又一遍地吃着同样的饭菜时，你对自己说。现在，有偏好没有错，但是你可能会给自己带来严重的伤害。成为一个爱冒险的食客有很多好处。
 

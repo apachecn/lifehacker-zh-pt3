@@ -1,6 +1,6 @@
 # Yelp 对所有参与其中的人来说都很糟糕
 
-> 原文:[https://life hacker . com/yelp-is-dark-for-every-corrupt-1779970188](https://lifehacker.com/yelp-is-awful-for-everyone-involved-1779970188)
+> 原文：<https://lifehacker.com/yelp-is-awful-for-everyone-involved-1779970188>
 
 “你在 Yelp 上的评论正在摧毁我的生意，”他咬紧牙关对我说，“我还要因为你的负面评论忍受多久？”几周前，我接到一个承包商的电话，因为我留下了一篇评论。接下来是一场怪异的情感对话，在骚扰和请求同情之间冒险。
 

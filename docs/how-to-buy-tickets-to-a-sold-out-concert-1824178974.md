@@ -1,6 +1,6 @@
 # 如何购买“售罄”音乐会的门票
 
-> 原文:[https://life hacker . com/how-to-buy-to-a-how-to-a-stock-to-a-small-out-concert-1824178974](https://lifehacker.com/how-to-buy-tickets-to-a-sold-out-concert-1824178974)
+> 原文：<https://lifehacker.com/how-to-buy-tickets-to-a-sold-out-concert-1824178974>
 
 想象一下，你正试图买到镇上最热门的票，而音乐会的票却卖完了。或者也许这是一个你只*喜欢的乐队，但不想花 79 美元外加服务费去看。如果没有 [的技巧手册](https://lifehacker.com/how-to-score-tickets-to-in-demand-events-1823775344) ，Ticketmaster 几乎是不可能被击败的，而且 StubHub 往往比转售市场还要贵。* 
 

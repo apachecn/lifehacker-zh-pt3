@@ -1,6 +1,6 @@
 # 如果你需要延期支付学生贷款，你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-if-you-need-delay-your-student-1792867238](https://lifehacker.com/what-you-should-know-if-you-need-to-delay-your-student-1792867238)
+> 原文：<https://lifehacker.com/what-you-should-know-if-you-need-to-delay-your-student-1792867238>
 
 如果你正与医疗紧急情况、失业或其他金融危机作斗争，偿还学生贷款是不可能的。为了不落后，你可以选择通过 [学生贷款延期或延期](https://studentloanhero.com/featured/deferment-vs-forbearance-student-loans/) 来暂停支付。
 

@@ -1,6 +1,6 @@
 # 现在你可以在另外五家航空公司使用美国运输安全管理局的预检服务
 
-> 原文:[https://life hacker . com/now-you-can-use-TSA-pre-with five-more-airlines-1820577457](https://lifehacker.com/now-you-can-use-tsa-pre-with-five-more-airlines-1820577457)
+> 原文：<https://lifehacker.com/now-you-can-use-tsa-pre-with-five-more-airlines-1820577457>
 
 去年，我终于获得了 TSA PreCheck(和全球入境)，这一举措极大地改变了我的旅行方式。在旧金山，机场的安检线有时会超过一个小时，这意味着我必须至少提前两个小时到达机场，以确保顺利通过。我还得计划好我的飞机装备，确保我穿了袜子，这样我就不会光着脚走在机场恶心的地板上，我也不会穿太多的衣服，以至于在安检时脱下来会有问题。
 

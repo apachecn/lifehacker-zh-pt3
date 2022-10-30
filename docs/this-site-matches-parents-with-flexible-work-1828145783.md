@@ -1,6 +1,6 @@
 # 这个网站为父母匹配弹性工作制
 
-> 原文:[https://life hacker . com/this-site-matches-parents-with-flexible-work-1828145783](https://lifehacker.com/this-site-matches-parents-with-flexible-work-1828145783)
+> 原文：<https://lifehacker.com/this-site-matches-parents-with-flexible-work-1828145783>
 
 这里有一个大胆的统计:43%的高素质女性 [在有了孩子](https://hbr.org/2005/03/off-ramps-and-on-ramps-keeping-talented-women-on-the-road-to-success) 后离开了职场。对于这个阵营中的许多人来说，这并不是因为他们失去了动力，或者他们无法兼顾吸管杯和销售电话，或者他们突然觉得注定要花每一分钟盯着他们的婴儿，就像他们被困在帮宝适广告中一样。更多的时候，是因为我们的传统结构把他们拒之门外。我不断读到这样的报道，有些女性在生理上或心理上还没有准备好就被抛回每周工作 50 小时的岗位，而一旦她们回来，就会遭遇*华盛顿邮报*专栏作家 Amy Nelson 所说的 [“母亲墙】、](https://www.washingtonpost.com/news/posteverything/wp/2018/01/29/i-started-my-own-business-i-still-couldnt-escape-stereotypes-about-working-moms/?utm_term=.7b70c4877e4d) 一种由对职业母亲的歧视而建立的障碍。最终，他们觉得有必要“选择退出”——这种描述从根本上来说是有缺陷的，因为其他选择留在哪里呢？
 

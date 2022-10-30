@@ -1,6 +1,6 @@
 # 在长途骑行中，每小时给孩子一个不同的玩具，给孩子一个惊喜
 
-> 原文:[https://life hacker . com/1825938393](https://lifehacker.com/surprise-your-kid-with-a-different-toy-every-hour-on-lo-1825938393)
+> 原文：<https://lifehacker.com/surprise-your-kid-with-a-different-toy-every-hour-on-lo-1825938393>
 
 父母们，你们听到过这样的建议:当带着小孩进行长途飞行或公路旅行时，一定要带些活动。你确实如此。当年轻的旅行者扣上安全带时，你会交出一个装满好玩的东西的背包或盒子，让他们在旅途中开心，然后幸福地将你的座位放倒。你相信你的工作已经完成了。*假期，我们来了！*
 

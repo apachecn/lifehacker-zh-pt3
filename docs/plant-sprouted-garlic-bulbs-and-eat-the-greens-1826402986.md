@@ -1,6 +1,6 @@
 # 种植发芽的蒜头，吃绿色蔬菜
 
-> 原文:[https://life hacker . com/plant-sprouted-Allium-bulbs-and-eat-the-greens-1826402986](https://lifehacker.com/plant-sprouted-garlic-bulbs-and-eat-the-greens-1826402986)
+> 原文：<https://lifehacker.com/plant-sprouted-garlic-bulbs-and-eat-the-greens-1826402986>
 
 大蒜，一旦发芽，吃起来就太苦了，但这并不意味着你应该扔掉它。把它埋在一点盆栽土里，给它一些阳光，你就可以在一周内吃到美味的蒜苔了。
 

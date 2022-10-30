@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:3 月 25 日至 4 月 1 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-3 月 25 日至 4 月 1 日-1768273885](https://lifehacker.com/this-weeks-most-popular-posts-march-25th-to-april-1st-1768273885)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-march-25th-to-april-1st-1768273885>
 
 这一周都是关于微软的。他们的年度开发者大会带来了对今年晚些时候 Windows 和其他产品的一瞥，而在农场，我们一直在重温他们熟悉和复杂的办公套件。让我们来回顾一下本周的热门帖子。
 

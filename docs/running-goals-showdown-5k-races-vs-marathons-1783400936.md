@@ -1,6 +1,6 @@
 # 跑步对决:5 公里赛跑 vs .马拉松
 
-> 原文:[https://life hacker . com/running-goals-对决-5k-races-vs-marathons-1783400936](https://lifehacker.com/running-goals-showdown-5k-races-vs-marathons-1783400936)
+> 原文：<https://lifehacker.com/running-goals-showdown-5k-races-vs-marathons-1783400936>
 
 一旦你开始关注一场比赛，它会改变你的训练。今天的问题是，我们应该梦想小还是梦想大？你应该尽快瞄准一个快速有趣的 5000 米，还是投身于一场充满勇气和荣耀的马拉松？
 

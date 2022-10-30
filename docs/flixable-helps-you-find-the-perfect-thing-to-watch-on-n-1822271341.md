@@ -1,6 +1,6 @@
 # 灵活帮助您找到在网飞观看的最佳节目
 
-> 原文:[https://life hacker . com/flix able-helps-you-find the perfect-this-to-watch-on-n-1822271341](https://lifehacker.com/flixable-helps-you-find-the-perfect-thing-to-watch-on-n-1822271341)
+> 原文：<https://lifehacker.com/flixable-helps-you-find-the-perfect-thing-to-watch-on-n-1822271341>
 
 大多数网飞用户在他们的观看列表上都有一长串电影和电视节目，但找到要放在列表上的东西可能有点困难。
 

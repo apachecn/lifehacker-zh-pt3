@@ -1,6 +1,6 @@
 # 没人教你的五种有用的烹饪技巧
 
-> 原文:[https://life hacker . com/five-useful-cooking-techniques-no-one-teach-you-1732698868](https://lifehacker.com/five-useful-cooking-techniques-no-one-teaches-you-1732698868)
+> 原文：<https://lifehacker.com/five-useful-cooking-techniques-no-one-teaches-you-1732698868>
 
 我们大多数人都是通过反复试验、食物网络或者在没有人愿意做的情况下被迫自己做饭来学习烹饪的。因此，自然地，没有人生来就知道如何炒鸡肉或焯蔬菜。这里有一些厨师每天都在使用的基本(但很有用)烹饪技巧，但我们其他人很少学会。
 

@@ -1,6 +1,6 @@
 # 你无法预测市场调整的时间，但不要惊慌失措
 
-> 原文:[https://life hacker . com/you-can-time-a-market-correction-but-don ' t-freak-out-1828552350](https://lifehacker.com/you-cant-time-a-market-correction-but-dont-freak-out-1828552350)
+> 原文：<https://lifehacker.com/you-cant-time-a-market-correction-but-dont-freak-out-1828552350>
 
 股市刚刚经历了历史上最长的牛市，这让人们感到恐慌。
 

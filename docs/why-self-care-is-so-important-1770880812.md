@@ -1,6 +1,6 @@
 # 为什么自我保健如此重要
 
-> 原文:[https://life hacker . com/why-self-care-so-important-1770880812](https://lifehacker.com/why-self-care-is-so-important-1770880812)
+> 原文：<https://lifehacker.com/why-self-care-is-so-important-1770880812>
 
 你工作忙得不可开交。你有一大堆项目堆积在家里，你的日历上塞满了过期的任务。为了给这些东西腾出空间，你不吃午饭，不去健身房，完全忘记你的社交生活。当我们有压力时，首先要做的通常是照顾好自己。这只会让事情变得更糟。
 

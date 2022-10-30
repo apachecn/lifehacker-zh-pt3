@@ -1,6 +1,6 @@
 # 切达湾饼干组合让你把红龙虾的精华带回家
 
-> 原文:[https://the take out . com/cheddar-bay-biscuit-mix-let-you-take-the-best-part-of-1822196176](https://thetakeout.com/cheddar-bay-biscuit-mix-lets-you-take-the-best-part-of-1822196176)
+> 原文：<https://thetakeout.com/cheddar-bay-biscuit-mix-lets-you-take-the-best-part-of-1822196176>
 
 作为一个不喜欢小排骨或无限量面包棒的人，我倾向于避免大型连坐餐厅。我很幸运地生活在一个大都市地区，所以当周围有这么多高级意大利餐馆时，我为什么要去橄榄园呢？但是我有一个明显的例外，那就是我一生都致力于某个经常在电视上做广告的连锁店:我真的很喜欢红龙虾。
 

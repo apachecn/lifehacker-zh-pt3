@@ -1,6 +1,6 @@
 # 可重复使用游泳尿布比一次性尿布更容易处理
 
-> 原文:[https://life hacker . com/reusable-swim-diapers-than-disposables-1792140566](https://lifehacker.com/reusable-swim-diapers-are-handier-than-disposables-1792140566)
+> 原文：<https://lifehacker.com/reusable-swim-diapers-are-handier-than-disposables-1792140566>
 
 当你带着婴儿去海滩或游泳池时，你的自然反应可能是抓起一包一次性游泳尿布。但是它们吸收很少甚至没有，所以这有什么意义呢？可重复使用的游泳尿布更有意义。
 

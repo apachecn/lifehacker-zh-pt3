@@ -1,6 +1,6 @@
 # 飞机上的 Wi-Fi 是如何工作的，美国城市名称的不同寻常的起源，以及冰岛的云
 
-> 原文:[https://life hacker . com/how-wi-fi-on-airplanes-works-unregular-origins-of-u-s-c-1789239901](https://lifehacker.com/how-wi-fi-on-airplanes-works-unusual-origins-of-u-s-c-1789239901)
+> 原文：<https://lifehacker.com/how-wi-fi-on-airplanes-works-unusual-origins-of-u-s-c-1789239901>
 
 本周，我们将盘点一些你应该去参观的欧洲美丽的国家公园，了解飞机上的无线网络是如何工作的(除了很差之外)，并探究许多美国城市名称的不同寻常的起源。
 

@@ -1,6 +1,6 @@
 # 狗不会死:用这些重写的书中场景治愈你自己
 
-> 原文:[https://life hacker . com/the-dog-dont-die-heal-yourself-with these-rewritten-1827055719](https://lifehacker.com/the-dog-doesnt-die-heal-yourself-with-these-rewritten-1827055719)
+> 原文：<https://lifehacker.com/the-dog-doesnt-die-heal-yourself-with-these-rewritten-1827055719>
 
 一切都很美好，没有任何东西伤害到狗。电气文学的 Riane Konc 重写了著名的故事《狗死在哪里》，所以这一次狗没有死。对于温柔的灵魂和喜欢文学改编的人来说，这是一种宣泄，比如《简爱》 或 [中的](https://www.youtube.com/channel/UCHCph-_jLba_9atyCZJPLQQ) [*文本，它应该如何结束*](https://www.amazon.com/dp/B00IQOJBPC/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-dog-doesnt-die-heal-yourself-with-these-rewritten-1827055719&asc_source=&tag=kinjalifehackerlink-20) 。新*红蕨生长的地方*节选:
 

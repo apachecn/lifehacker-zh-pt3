@@ -1,6 +1,6 @@
 # 喝不含酒精的啤酒能让我成为更好的跑步者吗？
 
-> 原文:[https://the take out . com/can-drinking-non-alcohol-beer-make-me-a-better-runn-1824088788](https://thetakeout.com/could-drinking-non-alcoholic-beer-make-me-a-better-runn-1824088788)
+> 原文：<https://thetakeout.com/could-drinking-non-alcoholic-beer-make-me-a-better-runn-1824088788>
 
 今年我报名参加了我的第一次半程马拉松。我认为，通过朝着一个目标努力来挑战自己，而不是仅仅坚持我一直以来的例行公事，这将是一件好事。我真的很喜欢跑步，但半程马拉松训练鼓励我更好地跟踪它。我现在更清楚我的步调，我的饮食习惯，以及那些可能让八英里跑在某一天感觉神清气爽，而在另一天感觉痛苦的变量。
 

@@ -1,6 +1,6 @@
 # 你应该在你的速溶锅里做融化的巧克力蛋糕
 
-> 原文:[https://life hacker . com/you-should-make-melted-chocolate-cakes-in-your-instant-1822998333](https://lifehacker.com/you-should-make-molten-chocolate-cakes-in-your-instant-1822998333)
+> 原文：<https://lifehacker.com/you-should-make-molten-chocolate-cakes-in-your-instant-1822998333>
 
 熔融巧克力蛋糕可能在 90 年代有过全盛时期，但如果我停止制作和食用它们，我会被诅咒的。也许是因为这是我第一次为了给另一个人留下深刻印象而做的“奇特”甜点，但我把它们与陈词滥调的浪漫联系在一起，这就是为什么它们是情人节的完美选择。
 

@@ -1,6 +1,6 @@
 # 销售“安心”的婴儿可穿戴设备只是糟糕的医疗设备
 
-> 原文:[https://life hacker . com/baby-wearables-selling-the-peace-of-mind-are-just-bad-med-1791379503](https://lifehacker.com/baby-wearables-selling-peace-of-mind-are-just-bad-med-1791379503)
+> 原文：<https://lifehacker.com/baby-wearables-selling-peace-of-mind-are-just-bad-med-1791379503>
 
 本月早些时候，我们在消费电子展 上看到了一批与婴儿相关的智能新设备首次亮相 [。虽然有些可能会被证明是有用的——我会为像](https://lifehacker.com/the-tech-trends-from-ces-2017-that-will-actually-matter-1790903186) [威洛](https://www.willowpump.com/) 这样的吸奶器而杀人——但其他人更有可能耗尽父母的钱包，而不会提供任何真正有价值的东西。
 

@@ -1,6 +1,6 @@
 # 如何比唐纳德·特朗普更好地硬拉？
 
-> 原文:[https://life hacker . com/how-to-deadlift-better-Donald-trump-Jr-1820373991](https://lifehacker.com/how-to-deadlift-better-than-donald-trump-jr-1820373991)
+> 原文：<https://lifehacker.com/how-to-deadlift-better-than-donald-trump-jr-1820373991>
 
 昨天，小唐纳德·特朗普在 Instagram 上发布了一段视频，他创下了 375 磅的“新的个人硬拉纪录”。令人印象深刻，当然，直到你看到朱尼尔的形式，这是一点也不。
 

@@ -1,6 +1,6 @@
 # 为冬季风暴做准备的正确方法
 
-> 原文:[https://life hacker . com/the-right-way-to-prepare-a winter-storm-1754163256](https://lifehacker.com/the-right-way-to-prepare-for-a-winter-storm-1754163256)
+> 原文：<https://lifehacker.com/the-right-way-to-prepare-for-a-winter-storm-1754163256>
 
 无论是本周末东海岸的暴风雪 还是任何冬季天气，现在你都应该做几件事，以确保当英寸堆积时你感到舒适。让我们来谈谈其中一些最好的，以及当空气变清时，你可以如何应对。
 

@@ -1,6 +1,6 @@
 # 使用 IFTTT 设置自动文本并避免冲突
 
-> 原文:[https://life hacker . com/set-up-automatic-texts-and-avoid-fights-using-if TTT-1820550327](https://lifehacker.com/set-up-automatic-texts-and-avoid-fights-using-ifttt-1820550327)
+> 原文：<https://lifehacker.com/set-up-automatic-texts-and-avoid-fights-using-ifttt-1820550327>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑正在清理媒体杂物(再见，六个月大的*纽约客*期)，戒除我们的 Instagram 瘾，并发现白噪音机器的乐趣。
 

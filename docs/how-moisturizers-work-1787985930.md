@@ -1,6 +1,6 @@
 # 保湿霜的工作原理
 
-> 原文:[https://lifehacker.com/how-moisturizers-work-1787985930](https://lifehacker.com/how-moisturizers-work-1787985930)
+> 原文：<https://lifehacker.com/how-moisturizers-work-1787985930>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-QdNPiW4ZULk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-QdNPiW4ZULk&start=0) 
 

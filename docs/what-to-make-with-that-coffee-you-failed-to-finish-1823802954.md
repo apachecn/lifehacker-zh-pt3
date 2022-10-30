@@ -1,6 +1,6 @@
 # 你没喝完的咖啡该怎么办
 
-> 原文:[https://life hacker . com/what-to-make-with the-coffee-you-failed-to-finish-1823802954](https://lifehacker.com/what-to-make-with-that-coffee-you-failed-to-finish-1823802954)
+> 原文：<https://lifehacker.com/what-to-make-with-that-coffee-you-failed-to-finish-1823802954>
 
 我喜欢咖啡，但我的大脑和身体都很容易被咖啡因淹没，所以我经常发现自己喝了一杯左右的剩余咖啡(人们还这么叫它吗？)到了中午时分。到那时它通常已经不适合饮用了，但是它仍然有它的用途。
 

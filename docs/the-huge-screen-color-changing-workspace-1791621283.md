@@ -1,6 +1,6 @@
 # 巨大的屏幕，变色的工作空间
 
-> 原文:[https://life hacker . com/the-huge-screen-color-changing-workspace-1791621283](https://lifehacker.com/the-huge-screen-color-changing-workspace-1791621283)
+> 原文：<https://lifehacker.com/the-huge-screen-color-changing-workspace-1791621283>
 
 我们最近强调了一系列多显示器设置，但 reader Wayne 的这个单面板工作区展示了一个显示器(尤其是当它很大时)可以像几个显示器一样好看。他提交了他的设置到我们的 [工作区展示和讲述池](https://www.flickr.com/groups/lifehacker-workspace-showandtell/) ，这里还有一些照片。
 

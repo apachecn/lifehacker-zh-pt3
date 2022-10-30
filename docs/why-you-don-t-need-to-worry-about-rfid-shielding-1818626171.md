@@ -1,6 +1,6 @@
 # 为什么你不需要担心 RFID 屏蔽
 
-> 原文:[https://life hacker . com/why-you-don-the-done-to-worry-you-need-to-warning-shielding-1818626171](https://lifehacker.com/why-you-don-t-need-to-worry-about-rfid-shielding-1818626171)
+> 原文：<https://lifehacker.com/why-you-don-t-need-to-worry-about-rfid-shielding-1818626171>
 
 你可能见过宣传 RFID 屏蔽的钱包或背包，这是一种保护性的覆盖物，旨在防止恶意的冒失鬼扫描任何包含嵌入式无线接收器的物品，如某些信用卡和护照。当然，RFID 屏蔽确实可以防止不必要的无线传输，但基于 RFID 的盗窃证据如此之少，再加上当今 RFID 技术中存在的安全措施，这似乎不是一个你需要过于担心的威胁。
 

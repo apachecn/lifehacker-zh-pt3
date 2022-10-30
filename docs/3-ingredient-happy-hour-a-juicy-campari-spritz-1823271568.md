@@ -1,6 +1,6 @@
 # 三种成分的欢乐时光:多汁的金巴利斯普里茨
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-juicy-campari-spritz-1823271568](https://lifehacker.com/3-ingredient-happy-hour-a-juicy-campari-spritz-1823271568)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-juicy-campari-spritz-1823271568>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们正在制作一种华丽、起泡、多汁的饮料来对抗二月的压迫力。
 

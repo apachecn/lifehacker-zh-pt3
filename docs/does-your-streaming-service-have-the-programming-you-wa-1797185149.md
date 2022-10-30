@@ -1,6 +1,6 @@
 # 你的流媒体服务有你想要的节目吗？
 
-> 原文:[https://life hacker . com/do-you-streaming-service-have-the-programming-you-wa-1797185149](https://lifehacker.com/does-your-streaming-service-have-the-programming-you-wa-1797185149)
+> 原文：<https://lifehacker.com/does-your-streaming-service-have-the-programming-you-wa-1797185149>
 
 2017 年，每个公司似乎都希望你切断有线电视的电线，订阅他们的平台。但遗憾的是，并不是你观看的所有节目都能在一个平台上看到。
 

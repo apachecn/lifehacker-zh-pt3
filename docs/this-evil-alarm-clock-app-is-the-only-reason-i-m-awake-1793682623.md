@@ -1,6 +1,6 @@
 # 这个邪恶的闹钟程序是我现在醒着的唯一原因
 
-> 原文:[https://life hacker . com/this-evil-alarm-clock-app-is-the-only-reason-I-m-awake-1793682623](https://lifehacker.com/this-evil-alarm-clock-app-is-the-only-reason-i-m-awake-1793682623)
+> 原文：<https://lifehacker.com/this-evil-alarm-clock-app-is-the-only-reason-i-m-awake-1793682623>
 
 我相信我的梦想。说我在梦到了机场，或者找到了我没有复习的期末考试的房间。当闹钟响起时，我会暂停它:我正在执行一个非常重要的任务，不能被打扰。这就是为什么我需要这个邪恶的，可怕的闹钟应用程序。
 

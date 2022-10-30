@@ -1,6 +1,6 @@
 # 如何提前获得 Galaxy S8 Android 8.0 奥利奥更新
 
-> 原文:[https://life hacker . com/how-to-get-the-galaxy-S8-Android-8-0-Oreo-update-ahead-1821878689](https://lifehacker.com/how-to-get-the-galaxy-s8-android-8-0-oreo-update-ahead-1821878689)
+> 原文：<https://lifehacker.com/how-to-get-the-galaxy-s8-android-8-0-oreo-update-ahead-1821878689>
 
 几个月来，三星一直在 [Galaxy S8 和 Galaxy S8 Plus](https://lifehacker.com/how-to-disable-the-bixby-button-on-your-galaxy-s8-or-no-1819043354) 上测试 [Android 8.0](https://lifehacker.com/heres-when-android-8-0-oreo-is-coming-to-your-current-p-1820786391) 的 [公司宣布](https://www.sammobile.com/news/galaxy-s8-android-8-0-oreo-beta-program-ends-january-15-2018/) 将于 1 月 15 日结束 beta 测试，但你可以通过现在安装泄露的版本提前一周获得正式版本。
 

@@ -1,6 +1,6 @@
 # 为什么基拉韦厄火山的火山灰会严重危害健康
 
-> 原文:[https://gizmodo . com/why-kilauea-s-volcano-ash-is-a-serious-health-hazard-1826072387](https://gizmodo.com/why-kilauea-s-volcanic-ash-is-a-serious-health-hazard-1826072387)
+> 原文：<https://gizmodo.com/why-kilauea-s-volcanic-ash-is-a-serious-health-hazard-1826072387>
 
 当火山 [渗出熔岩](https://earther.com/why-kilaueas-eruption-is-oozing-and-not-exploding-1825824265) 时，人们知道要让开。他们知道火红的东西威胁着他们的家园和生命。但是当火山爆发产生大量的火山灰和气体时呢？那东西也是致命的。
 

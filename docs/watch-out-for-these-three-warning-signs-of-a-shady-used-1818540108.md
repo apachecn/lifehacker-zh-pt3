@@ -1,6 +1,6 @@
 # 警惕这三个可疑二手车经销商的警告信号
 
-> 原文:[https://jalopnik . com/watch-for-this-three-warning-signs-of-a-shady-used-1818540108](https://jalopnik.com/watch-out-for-these-three-warning-signs-of-a-shady-used-1818540108)
+> 原文：<https://jalopnik.com/watch-out-for-these-three-warning-signs-of-a-shady-used-1818540108>
 
 购买二手车可能比购买新车更棘手。谈到二手车，有许多陷阱需要警惕——持续的机械问题、奇怪的气味、收音机预设的可疑选择——但你在哪里买车不应该是其中之一。如果你想从经销商那里找一辆二手车，在你进门之前就要注意这些危险信号。
 

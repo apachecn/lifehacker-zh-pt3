@@ -1,6 +1,6 @@
 # 如何在 Discord 上分享 Spotify 曲目
 
-> 原文:[https://life hacker . com/how-to-share-Spotify-tracks-on-discord-1822640637](https://lifehacker.com/how-to-share-spotify-tracks-on-discord-1822640637)
+> 原文：<https://lifehacker.com/how-to-share-spotify-tracks-on-discord-1822640637>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-VYAJpykiX9k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-VYAJpykiX9k&start=0) 
 

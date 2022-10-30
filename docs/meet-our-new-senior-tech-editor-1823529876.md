@@ -1,6 +1,6 @@
 # 见见我们新的高级技术编辑
 
-> 原文:[https://life hacker . com/meet-our-new-senior-tech-editor-1823529876](https://lifehacker.com/meet-our-new-senior-tech-editor-1823529876)
+> 原文：<https://lifehacker.com/meet-our-new-senior-tech-editor-1823529876>
 
 嗨，生活黑客的读者们。我是大卫·墨菲，Lifehacker 的长期粉丝，现在是它的高级技术编辑。在此之前，我作为 Wirecutter 的一名作家，花了数年时间用 wi-fi 信号照射自己——还包括 wi-fi 扩展器、wi-fi 网状网络、桌面显示器、游戏鼠标和笨重的虚拟现实耳机。你们中的四个读到这篇文章的人可能还记得我，当我还是最大个人电脑公司的助理编辑时，我在一个蹩脚的纸箱里造了一台电脑。啊，回忆。
 

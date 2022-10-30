@@ -1,6 +1,6 @@
 # 我如何阻止自己在餐馆吃得太多
 
-> 原文:[https://life hacker . com/how-I-stop-yourself-in-restaurants-1785695902](https://lifehacker.com/how-i-stop-myself-from-eating-too-much-at-restaurants-1785695902)
+> 原文：<https://lifehacker.com/how-i-stop-myself-from-eating-too-much-at-restaurants-1785695902>
 
 我没有经历过大萧条，尽管我有时吃得好像经历过一样。尽管我渴望保持苗条，但我有一个坏习惯，那就是清理放在我面前的每一口油腻的米饭或所谓的装饰性装饰物。改掉这个习惯让我对自己感觉更好。
 

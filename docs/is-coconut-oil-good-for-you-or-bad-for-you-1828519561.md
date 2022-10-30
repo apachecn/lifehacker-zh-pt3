@@ -1,6 +1,6 @@
 # 椰子油对你有益还是有害？
 
-> 原文:[https://life hacker . com/is-椰子油对你有益还是有害-1828519561](https://lifehacker.com/is-coconut-oil-good-for-you-or-bad-for-you-1828519561)
+> 原文：<https://lifehacker.com/is-coconut-oil-good-for-you-or-bad-for-you-1828519561>
 
 椰子油作为一种健康、天然、甚至神奇的物质享有很高的声誉——尽管，据我们所知，它从未真正做过任何事来赢得这一声誉。现在一位教授 [因为在德国的一次讲座中称](https://www.newsweek.com/coconut-oil-pure-poison-says-harvard-professor-1082046) 为“毒药”而成为头条新闻。关于椰子油，你真正需要了解的是什么？
 

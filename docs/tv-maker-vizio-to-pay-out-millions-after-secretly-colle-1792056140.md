@@ -1,6 +1,6 @@
 # 电视制造商 Vizio 在秘密收集客户数据后支付数百万美元
 
-> 原文:[https://gizmodo . com/TV-maker-vizio-to-pay-out-millions-after secretly-colle-1792056140](https://gizmodo.com/tv-maker-vizio-to-pay-out-millions-after-secretly-colle-1792056140)
+> 原文：<https://gizmodo.com/tv-maker-vizio-to-pay-out-millions-after-secretly-colle-1792056140>
 
 美国联邦贸易委员会 [今天宣布](https://www.ftc.gov/news-events/press-releases/2017/02/vizio-pay-22-million-ftc-state-new-jersey-settle-charges-it?utm_source=govdelivery) 已经与 Vizio 达成和解，该公司指控 Vizio 在其智能电视收集的数据方面误导消费者。Vizio 同意支付 220 万美元的罚款，包括向 FTC 支付 150 万美元，向新泽西州消费者事务部门支付 100 万美元，其中 30 万美元暂停支付。
 

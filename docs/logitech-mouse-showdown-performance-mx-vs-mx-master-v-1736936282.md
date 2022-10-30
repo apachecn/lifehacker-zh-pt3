@@ -1,6 +1,6 @@
 # 罗技鼠标对决:性能 MX vs. MX Master vs. G502 Proteus Core
 
-> 原文:[https://life hacker . com/Logitech-mouse-摊牌-性能-MX-vs-MX-master-v-1736936282](https://lifehacker.com/logitech-mouse-showdown-performance-mx-vs-mx-master-v-1736936282)
+> 原文：<https://lifehacker.com/logitech-mouse-showdown-performance-mx-vs-mx-master-v-1736936282>
 
 曾几何时，罗技的 MX Revolution 是围绕 最受欢迎的 [鼠标，理由很充分:它很舒适，可定制，它的“动量滚动”是救命稻草。现在，它有三个继任者，都有点不同:性能 MX，](http://lifehacker.com/five-best-desktop-mice-5931795) [新的强大的 MX 主](http://lifehacker.com/the-logitech-mx-master-a-fitting-successor-to-one-of-o-1713362467) ，以及 [专注于游戏的 G502 Proteus 核心](http://kotaku.com/logitechs-customizable-12-000-dpi-gaming-mouse-1592743267) 。以下是他们的对比。
 

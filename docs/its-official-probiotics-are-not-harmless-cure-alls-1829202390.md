@@ -1,6 +1,6 @@
 # 官方消息:益生菌不是无害的万灵药
 
-> 原文:[https://life hacker . com/its-official-probiotics-is-not-无害-治愈-all-1829202390](https://lifehacker.com/its-official-probiotics-are-not-harmless-cure-alls-1829202390)
+> 原文：<https://lifehacker.com/its-official-probiotics-are-not-harmless-cure-alls-1829202390>
 
 益生菌受到许多注重健康的人们的喜爱。它们符合自然(总是好，对吗？)和医疗(必须有健康效益)。如果我写了任何关于益生菌的不光彩的东西，我会收到合法的仇恨邮件。一位迷人的绅士称我为“假新闻”，并建议我走出“制药迷雾”，好像大型制药公司和其他大公司不太喜欢通过出售益生菌赚钱 。
 

@@ -1,6 +1,6 @@
 # 如果你讨厌自己的新发型，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-hate-your-new-haircut-1805668882](https://lifehacker.com/what-to-do-if-you-hate-your-new-haircut-1805668882)
+> 原文：<https://lifehacker.com/what-to-do-if-you-hate-your-new-haircut-1805668882>
 
 我们都知道有人剪了一个恐怖的发型...或者我们有自己的孩子。你可以采取一些措施来避免糟糕的发型，但是如果你已经有了一个发型，以下是如何修复它的方法。
 

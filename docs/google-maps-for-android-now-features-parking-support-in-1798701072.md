@@ -1,6 +1,6 @@
 # Android 版谷歌地图现在在 25 个城市提供停车支持
 
-> 原文:[https://life hacker . com/Google-maps-for-Android-now-features-parking-support-in-1798701072](https://lifehacker.com/google-maps-for-android-now-features-parking-support-in-1798701072)
+> 原文：<https://lifehacker.com/google-maps-for-android-now-features-parking-support-in-1798701072>
 
 你(和其他所有人)可能会使用谷歌地图四处走动，叫车共享服务，并找出去哪里吃午饭。Android 地图应用 的 [更新现在增加了搜索停车的选项，使得在某些城市走动更加容易。](https://www.blog.google/products/maps/put-it-park-new-features-google-maps/)
 

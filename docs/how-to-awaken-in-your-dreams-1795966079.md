@@ -1,6 +1,6 @@
 # 如何在梦中醒来
 
-> 原文:[https://life hacker . com/how-to-wake-in-your-dreams-1795966079](https://lifehacker.com/how-to-awaken-in-your-dreams-1795966079)
+> 原文：<https://lifehacker.com/how-to-awaken-in-your-dreams-1795966079>
 
 既然你知道什么是清醒梦，你也知道它的好处和风险，是时候给它一个坚实的尝试了。准备好，oneironauts——我们就要卸下训练轮了。欢迎来到 Lifehacker 第三周的 [**清醒梦工作坊**](http://lifehacker.com/tag/lucid-dream-workshop) 。
 

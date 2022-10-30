@@ -1,6 +1,6 @@
 # 你希望你在大学里做了什么？
 
-> 原文:[https://life hacker . com/what-do-you-wish-you-done-in-college-1828461782](https://lifehacker.com/what-do-you-wish-youd-done-in-college-1828461782)
+> 原文：<https://lifehacker.com/what-do-you-wish-youd-done-in-college-1828461782>
 
 当你在大学时，你可能会觉得每一个选择都将决定你的余生。或者你可以狂欢于你的自由，参加聚会，玩电子游戏，安排上午 11 点上课，这样你就可以睡懒觉了。你可以一次完成所有这些！因此，为了每个即将(或即将)回到大学的人的利益，我们想知道:**你希望自己在大学里做些什么与众不同的事情？**
 

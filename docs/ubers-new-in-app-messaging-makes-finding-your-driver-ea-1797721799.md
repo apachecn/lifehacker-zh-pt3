@@ -1,6 +1,6 @@
 # 优步新的应用内消息让找到你的司机更容易
 
-> 原文:[https://life hacker . com/ubers-new-in-app-messaging-makes-finding-your-driver-ea-1797721799](https://lifehacker.com/ubers-new-in-app-messaging-makes-finding-your-driver-ea-1797721799)
+> 原文：<https://lifehacker.com/ubers-new-in-app-messaging-makes-finding-your-driver-ea-1797721799>
 
 每当我输入我在优步的地址，GPS 就会指引司机到一个街区外的地方。我试着在我的位置放一个大头针，然后就在街上走，但最终决定每当我要求搭车时就给司机发短信，告诉他们我在哪里。
 

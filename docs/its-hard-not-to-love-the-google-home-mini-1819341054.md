@@ -1,6 +1,6 @@
 # 很难不喜欢谷歌 Home Mini
 
-> 原文:[https://gizmodo . com/its-hard-not-love-the-Google-home-mini-1819341054](https://gizmodo.com/its-hard-not-to-love-the-google-home-mini-1819341054)
+> 原文：<https://gizmodo.com/its-hard-not-to-love-the-google-home-mini-1819341054>
 
 几乎不公平的是，世界上大多数人都以亚马逊回声的形式迎接了我们语音控制的未来。当然，这个小玩意很好用，但是它太丑了。谷歌主页更好，但看起来还是有点傻。这就是为什么时尚简约的 [谷歌 Home Mini](https://store.google.com/us/product/google_home_mini) 感觉像是一个启示。
 

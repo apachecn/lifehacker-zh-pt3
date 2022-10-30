@@ -1,6 +1,6 @@
 # 关于新的“诚实”应用程序萨拉哈和 TBH，父母需要知道什么
 
-> 原文:[https://life hacker . com/what-parents-need-know-on-new-honest-apps-Sara-1819122015](https://lifehacker.com/what-parents-need-to-know-about-new-honesty-apps-sara-1819122015)
+> 原文：<https://lifehacker.com/what-parents-need-to-know-about-new-honesty-apps-sara-1819122015>
 
 我们都很好奇 [别人怎么看我们](https://lifehacker.com/why-we-love-ourselves-but-care-more-about-other-peoples-1795894658) 。对于青少年来说，渴望被认可是非常强烈的。有人觉得我很酷吗？我今天穿的衣服是不是太多了？我在旁边有趣吗？两个新的“诚实”应用程序让他们匿名接收他们渴望的同行反馈。
 

@@ -1,6 +1,6 @@
 # 我才 18 岁就已经有两辆不靠谱的车了！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-only-18-and-I-have-two-unreliable-rides-wha-1825739121](https://jalopnik.com/im-only-18-and-i-already-have-two-unreliable-rides-wha-1825739121)
+> 原文：<https://jalopnik.com/im-only-18-and-i-already-have-two-unreliable-rides-wha-1825739121>
 
 内特只有 18 岁，已经过着 [#drivefreeordie](https://www.instagram.com/explore/tags/drivefreeordie/) 的生活，拥有一辆路虎和一辆年久失修的萨博。是时候减少这些汽车的损失，换些真正有用的东西了。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 关于修理自己的汽车，你应该知道的最重要的事情
 
-> 原文:[https://jalopnik . com/the-most-the-important-this-you-should-know-on-fixing-1823513343](https://jalopnik.com/the-most-important-things-you-should-know-about-fixing-1823513343)
+> 原文：<https://jalopnik.com/the-most-important-things-you-should-know-about-fixing-1823513343>
 
 这里有一些好消息:你并不总是受你的经销商或汽车修理店的摆布。如果修理或更换的数量足够少，很有可能你自己就能完成。只是做你的研究，以确保。
 

@@ -1,6 +1,6 @@
 # 使用“我切，你挑”的策略在孩子们之间分配东西
 
-> 原文:[https://life hacker . com/use-the-I-cut-you-pick-strategy-for-division-stuff-b-1797207063](https://lifehacker.com/use-the-i-cut-you-pick-strategy-for-dividing-stuff-b-1797207063)
+> 原文：<https://lifehacker.com/use-the-i-cut-you-pick-strategy-for-dividing-stuff-b-1797207063>
 
 “她还有！”“他的杯子装得更高了！”她的切片更大！" "*这不公平！*
 

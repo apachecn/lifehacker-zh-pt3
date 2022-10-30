@@ -1,6 +1,6 @@
 # 喝不是冷冲泡的冷咖啡是可以的
 
-> 原文:[https://life hacker . com/its-okay-to-drink-cold-coffee-the-not-cold-brew-1796850037](https://lifehacker.com/its-okay-to-drink-cold-coffee-that-isnt-cold-brew-1796850037)
+> 原文：<https://lifehacker.com/its-okay-to-drink-cold-coffee-that-isnt-cold-brew-1796850037>
 
 一段时间以来，冰镇咖啡一直是含咖啡因世界中的冰冷女王，但我认为最终可以安全地承认，它并不适合所有人。它不仅通常比其他咖啡含有更多的咖啡因(这对我们这些有焦虑的小仓鼠心脏的人来说是不好的)，而且它有一种非常独特的味道，不是对所有人都有吸引力，因为不是每个人都喜欢相同的东西。
 

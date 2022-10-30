@@ -1,6 +1,6 @@
 # 比特币不是开始投资的好方法
 
-> 原文:[https://life hacker . com/bit coin-is-a not-a-good-way-to-started-with-investing-1821013547](https://lifehacker.com/bitcoin-is-not-a-good-way-to-get-started-with-investing-1821013547)
+> 原文：<https://lifehacker.com/bitcoin-is-not-a-good-way-to-get-started-with-investing-1821013547>
 
 “我不相信投资，”一个朋友曾经说过。我问她为什么。” [是不是有点像玩彩票？](https://twocents.lifehacker.com/psa-investing-your-money-is-not-the-same-as-gambling-1677649583) 她问道。投资对人们来说已经够吓人的了。扔进像加密货币这样不可预测的东西，人们会完全放弃它。它强化了投资就像购买一堆刮刮乐的观念。
 

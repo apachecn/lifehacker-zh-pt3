@@ -1,6 +1,6 @@
 # 为什么会有人用轨迹球鼠标？
 
-> 原文:[https://gizmodo . com/why-the-hell-why-why-why-why-the-hell-why-want-a-use-a-轨迹球-鼠标-1800564295](https://gizmodo.com/why-the-hell-would-anyone-use-a-trackball-mouse-1800564295)
+> 原文：<https://gizmodo.com/why-the-hell-would-anyone-use-a-trackball-mouse-1800564295>
 
 凭借其巨大的 rolypoly 球和巨大的扶手，这款古老的轨迹球鼠标看起来像是 1996 年的遗留产品。或者可能是 1946 年— [那是轨迹球第一次在电脑中作为输入设备使用](http://www.trackballworld.com/trackball-history.aspx) 。自从鼠标和触控板问世以来，它的受欢迎程度有所下降。而且理由很充分。这些设备占用的空间更少！但问题是:轨迹球还是不错的。不仅仅是好——轨迹球是*棒极了*。如此之好，以至于罗技推出了多年来的第一款轨迹球，这是一件值得庆祝的事情——即使我对我的新宠输入设备有些问题。
 

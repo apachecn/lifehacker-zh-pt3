@@ -1,6 +1,6 @@
 # 看似简单的工作空间
 
-> 原文:[https://life hacker . com/the-daddy-simple-workspace-1771707292](https://lifehacker.com/the-deceptively-simple-workspace-1771707292)
+> 原文：<https://lifehacker.com/the-deceptively-simple-workspace-1771707292>
 
 Redditor [mrrej89](https://www.reddit.com/user/mrrej89) 将这个漂亮的工作区发布到了 Battlestations subreddit 上。乍一看，这很简单，几乎有点无聊，但随后你会更仔细地看细节——从灯到键盘到显示器支架到书架，很简单，但都做得很好，建造得很好。
 

@@ -1,6 +1,6 @@
 # 将你的待办事项列表分为“简单”和“困难”两栏
 
-> 原文:[https://life hacker . com/divide-your-to-do-list 分为容易和困难两栏-1826572785](https://lifehacker.com/divide-your-to-do-list-into-easy-and-hard-columns-1826572785)
+> 原文：<https://lifehacker.com/divide-your-to-do-list-into-easy-and-hard-columns-1826572785>
 
 下面是我们中有多少人列出了我们每天的待办事项清单:早上，在咖啡和晨间错觉的驱使下，我们记下了我们希望在接下来的八个小时(或者，让我们现实一点，11 或 12 个小时)内完成的所有任务。但是，这些清单尽管用意良好，却常常写得杂乱无章。在划掉三分之一的项目之后——电子邮件、日程安排、也许还有一些检查会议——我们会想，嘿，我现在真的很累了，然后在一天结束的时候感觉我们还没有完成任何实质性的事情。
 

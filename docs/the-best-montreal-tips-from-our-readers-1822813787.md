@@ -1,6 +1,6 @@
 # 来自我们读者的最佳蒙特利尔贴士
 
-> 原文:[https://life hacker . com/the-best-Montreal-tips-from-our-readers-1822813787](https://lifehacker.com/the-best-montreal-tips-from-our-readers-1822813787)
+> 原文：<https://lifehacker.com/the-best-montreal-tips-from-our-readers-1822813787>
 
 在这个专栏中，我们总能获得关于酒吧、餐馆和景点的精彩推荐。但本周蒙特利尔居民和常客也给了我们与当地人互动、在城市中导航、甚至从美国进入这个国家的好建议。你可以阅读原帖子 的全部 89 条评论，或者只是下面的几个亮点。
 

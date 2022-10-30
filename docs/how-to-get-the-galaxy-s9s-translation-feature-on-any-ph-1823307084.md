@@ -1,6 +1,6 @@
 # 如何在任何手机上获得 Galaxy S9 的翻译功能
 
-> 原文:[https://life hacker . com/how-to-get-the-galaxy-s9s-translation-feature-on-any-ph-1823307084](https://lifehacker.com/how-to-get-the-galaxy-s9s-translation-feature-on-any-ph-1823307084)
+> 原文：<https://lifehacker.com/how-to-get-the-galaxy-s9s-translation-feature-on-any-ph-1823307084>
 
 今天上午在巴塞罗那举行的世界移动通信大会上，三星发布了其最新旗舰智能手机 Galaxy S9。
 

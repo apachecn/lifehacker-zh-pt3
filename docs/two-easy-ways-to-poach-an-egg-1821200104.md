@@ -1,6 +1,6 @@
 # 两种简单的煮蛋方法
 
-> 原文:[https://life hacker . com/two-easy-ways-to-watch-a egg-1821200104](https://lifehacker.com/two-easy-ways-to-poach-an-egg-1821200104)
+> 原文：<https://lifehacker.com/two-easy-ways-to-poach-an-egg-1821200104>
 
 荷包蛋是早午餐的超级明星，也是沙拉的主角，吃起来像一顿饭，但许多家庭厨师对烹饪过程感到厌倦。如果你害怕把一个生鸡蛋扔进沸腾的水中，放松，这并不像人们所说的那么难。
 

@@ -1,6 +1,6 @@
 # 告诉我们你的奥兰多秘诀
 
-> 原文:[https://lifehacker.com/tell-us-your-orlando-tips-1823656712](https://lifehacker.com/tell-us-your-orlando-tips-1823656712)
+> 原文：<https://lifehacker.com/tell-us-your-orlando-tips-1823656712>
 
 在佛罗里达，你越往南走，就越感觉像北方。电视比喻 将奥兰多命名为该州更具热带风情的城市化地区的北部边缘。(电视比喻还称奥兰多为*欧内斯特拯救圣诞节*和*沙克纳多 3* 的背景。)
 

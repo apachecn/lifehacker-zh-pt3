@@ -1,6 +1,6 @@
 # 遛狗摊牌:经典牵引带与伸缩牵引带
 
-> 原文:[https://life hacker . com/Sunday-摊牌-classic-leashes-vs-retractable-leashe-1797138227](https://lifehacker.com/sunday-showdown-classic-leashes-vs-retractable-leashe-1797138227)
+> 原文：<https://lifehacker.com/sunday-showdown-classic-leashes-vs-retractable-leashe-1797138227>
 
 人类最好的朋友长期以来一直站在我们这一边，在卑微的狗链的一点帮助下。但是，如果你在市场上寻找一条牵引带来驯服你的新宠物，你应该选择哪种牵引带:经典款还是新款？
 

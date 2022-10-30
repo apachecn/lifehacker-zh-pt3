@@ -1,6 +1,6 @@
 # 如何成功地将啤酒和葡萄酒装进行李箱
 
-> 原文:[https://life hacker . com/how-to-successfully-pack-beer and wine-in your suitcase-1820165411](https://lifehacker.com/how-to-successfully-pack-beer-and-wine-in-your-suitcase-1820165411)
+> 原文：<https://lifehacker.com/how-to-successfully-pack-beer-and-wine-in-your-suitcase-1820165411>
 
 有些人去度假时会带回磁铁或明信片。我带了酒回来。很长一段时间，我只是带回啤酒作为礼物或与朋友分享，但最终也演变成了烈酒。当我今年早些时候去苏格兰时，我家的威士忌收藏最终得到了大幅升级，当我从意大利回来时，我的行李箱里塞满了基安蒂酒。
 

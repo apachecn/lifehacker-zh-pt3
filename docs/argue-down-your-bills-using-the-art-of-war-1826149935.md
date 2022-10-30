@@ -1,6 +1,6 @@
 # 用战争的艺术来辩论你的账单
 
-> 原文:[https://life hacker . com/argue-down-your-bills-using-the-art-of-war-1826149935](https://lifehacker.com/argue-down-your-bills-using-the-art-of-war-1826149935)
+> 原文：<https://lifehacker.com/argue-down-your-bills-using-the-art-of-war-1826149935>
 
 中国将军孙子的著作《孙子兵法》不仅是字面上的战术演习，也是心理战。写于公元前五世纪，人们已经找到了各种方法来利用这部大部头著作的建议在 [的日常生活中机动](https://lifehacker.com/applying-lessons-from-sun-tzu-and-the-art-of-war-to-eve-1787621192) 。那么，为什么不用*孙子兵法*来省点钱呢？
 

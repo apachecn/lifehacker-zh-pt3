@@ -1,6 +1,6 @@
 # iOS 11 中你需要了解的所有功能
 
-> 原文:[https://life hacker . com/all-the-features-you-need-to-know-about-in-IOs-11-1818714209](https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209)
+> 原文：<https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209>
 
 iOS 11 上周发布，随着它你的 iPhone 和 iPad ( [只要它其中一款](https://lifehacker.com/these-are-the-devices-that-support-ios-11-and-macos-hig-1804655825) )获得了一大堆新功能。有这么多，浏览它们可能会是一个非常令人生畏的任务，让我们面对它吧，困惑，任务。不确定如何全部学会？我们支持你。我们 Lifehacker 的一群人一直在对操作系统进行测试，并为一些最有趣的新东西写了很多很棒的指南。
 

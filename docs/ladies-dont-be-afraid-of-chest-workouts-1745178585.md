@@ -1,6 +1,6 @@
 # 女士们:不要害怕胸部锻炼
 
-> 原文:[https://life hacker . com/ladies-don ' t-be-畏胸运动-1745178585](https://lifehacker.com/ladies-dont-be-afraid-of-chest-workouts-1745178585)
+> 原文：<https://lifehacker.com/ladies-dont-be-afraid-of-chest-workouts-1745178585>
 
 包括专门的胸部例行锻炼将改善你的上身力量，姿势和信心。不幸的是，许多女士基于被误导的观念，对恐惧给胸部带来的好处不以为然。以下是你需要知道的关于胸部锻炼的知识，以及它们是如何影响你的——咳咳——胸部的。
 

@@ -1,6 +1,6 @@
 # 如何在手机上玩 Game Boy 游戏而不花 80 美元
 
-> 原文:[https://life hacker . com/how-to-play-game-boy-games-on-your phone-with-spend di-1823697483](https://lifehacker.com/how-to-play-game-boy-games-on-your-phone-without-spendi-1823697483)
+> 原文：<https://lifehacker.com/how-to-play-game-boy-games-on-your-phone-without-spendi-1823697483>
 
 尽管 [万乐游戏玩家控制台](https://wanlecases.com/collections/frontpage/products/eightmaze-gamers-console-for-iphone) 的外壳让 iPhone——特别是 iPhone 6 on up——显得有些笨重，但这是保护你的设备的一个聪明的方法，并给你一个可以随身携带的伟大的 Game Boy 模拟器。我的意思是，这种情况下，甚至*看起来*像一个游戏机。当坐在你附近的人看着你对着你的设备 Face ID，翻转它，并开始扔出一些恶心的单色俄罗斯方块动作时，这将成为一些有趣的酒吧谈话。
 

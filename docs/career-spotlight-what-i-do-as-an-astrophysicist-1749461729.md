@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名天体物理学家做什么
 
-> 原文:[https://life hacker . com/career-spot light-I-do-a-a-a-a-天体物理学家-1749461729](https://lifehacker.com/career-spotlight-what-i-do-as-an-astrophysicist-1749461729)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-an-astrophysicist-1749461729>
 
 缩小到足够远，天体物理学实际上是对一切事物的研究:行星、天体以及我们所来自的所有恒星物质。这实际上是一个广泛的主题，可以包括从量子力学和相对论到系外行星和黑洞的任何东西。
 

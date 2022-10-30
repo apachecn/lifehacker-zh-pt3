@@ -1,6 +1,6 @@
 # Squarespace 全新的西村工作空间
 
-> 原文:[https://life hacker . com/square spaces-brand-new-west-village-workspace-1787489474](https://lifehacker.com/squarespaces-brand-new-west-village-workspace-1787489474)
+> 原文：<https://lifehacker.com/squarespaces-brand-new-west-village-workspace-1787489474>
 
 Squarespace 让任何人都可以很容易地建立一个网站，但在这项服务的背后，实际上是一个由富有创造力和才华的人组成的大团队。该公司刚刚搬进纽约市的新公寓，它们看起来棒极了。这是他们新工作区的一些照片。
 

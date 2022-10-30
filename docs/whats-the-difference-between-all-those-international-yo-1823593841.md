@@ -1,6 +1,6 @@
 # 那些国际酸奶有什么区别？
 
-> 原文:[https://the take out . com/what-the-difference-all-that-international-yo-1823593841](https://thetakeout.com/whats-the-difference-between-all-those-international-yo-1823593841)
+> 原文：<https://thetakeout.com/whats-the-difference-between-all-those-international-yo-1823593841>
 
 今天的超市酸奶通道，甚至在美国中部，类似于联合国。有来自希腊、法国、澳大利亚——包装上有可爱的袋鼠——以及从冰岛远道而来的代表。通常，这些听起来很花哨的酸奶价格远高于商店品牌的美国产品。但是这些异域风情有什么区别呢？
 

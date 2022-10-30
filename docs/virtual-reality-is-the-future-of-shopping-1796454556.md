@@ -1,6 +1,6 @@
 # 虚拟现实是购物的未来
 
-> 原文:[https://life hacker . com/virtual-reality-is-the-future-of-shopping-1796454556](https://lifehacker.com/virtual-reality-is-the-future-of-shopping-1796454556)
+> 原文：<https://lifehacker.com/virtual-reality-is-the-future-of-shopping-1796454556>
 
 网上购物正在兴起——它速度快，直接送货上门，有时一夜之间就送到。但是有了网上购物，你会怀念去商店拿东西的经历。进入虚拟现实购物，它试图给你网上购物的便利和在商店里的体验。
 

@@ -1,6 +1,6 @@
 # 不要试图在一次参观中参观完一个博物馆
 
-> 原文:[https://life hacker . com/stop-try-to-see-the-all-a-a-museum-one-visit-1821817889](https://lifehacker.com/stop-trying-to-see-all-of-a-museum-in-one-visit-1821817889)
+> 原文：<https://lifehacker.com/stop-trying-to-see-all-of-a-museum-in-one-visit-1821817889>
 
 说到博物馆，我们的雄心和好奇心往往超出了我们的身体和大脑所能承受的范围。如果你真的想享受参观博物馆的乐趣，计划只看几件展品。
 

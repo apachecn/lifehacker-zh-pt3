@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名产品设计师，我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-a-product-designer-1728031135](https://lifehacker.com/career-spotlight-what-i-do-as-a-product-designer-1728031135)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-product-designer-1728031135>
 
 好的设计平衡了形式、功能和美学，让作品看不见。一件制作精美的物品，如果不履行其功能，就可能毫无用处；同样地，像订书机这样平凡的东西也可以具有美感。这是一种平衡，最好的设计师似乎不费吹灰之力就能做到。
 

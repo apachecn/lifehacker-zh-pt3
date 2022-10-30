@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:做处女会影响我的约会机会吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-is-be-a-virgin-injury-my-dating-c-1788585167](https://kotaku.com/ask-dr-nerdlove-is-being-a-virgin-hurting-my-dating-c-1788585167)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-is-being-a-virgin-hurting-my-dating-c-1788585167>
 
 你好，所有的网络石化性爱眼镜蛇。欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这个专栏把“地狱是”放在 FPS 里。
 

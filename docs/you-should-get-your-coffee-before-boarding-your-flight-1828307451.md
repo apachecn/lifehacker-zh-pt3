@@ -1,6 +1,6 @@
 # 登机前喝杯咖啡
 
-> 原文:[https://life hacker . com/you-should-get-your-coffee-before-boarding-your-flight-1828307451](https://lifehacker.com/you-should-get-your-coffee-before-boarding-your-flight-1828307451)
+> 原文：<https://lifehacker.com/you-should-get-your-coffee-before-boarding-your-flight-1828307451>
 
 空中旅行很累人，通常需要一两杯咖啡或茶，但你可能想在登机前休息一下。空乘人员——我喜欢听取飞机建议的人——不会也不会喝飞机上供应的热咖啡、茶或水，因为这些水来自水龙头，而飞机上的自来水可能很恶心。
 

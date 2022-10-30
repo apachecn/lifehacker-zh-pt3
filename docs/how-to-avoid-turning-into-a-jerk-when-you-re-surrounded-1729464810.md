@@ -1,6 +1,6 @@
 # 当你被混蛋包围时，如何避免变成一个混蛋
 
-> 原文:[https://life hacker . com/how-to-avoid-turning-into-a-jerk-when-you-re-surrounded-1729464810](https://lifehacker.com/how-to-avoid-turning-into-a-jerk-when-you-re-surrounded-1729464810)
+> 原文：<https://lifehacker.com/how-to-avoid-turning-into-a-jerk-when-you-re-surrounded-1729464810>
 
 在零售业工作，我仍然记得我最糟糕的客户之一。他递给我一枚 25 美分的硬币和一张一美元的钞票。我说:“不好意思，一共是*两*二十五。”他拉开两张崭新的钞票，我没注意到它们粘在一起了，他慢慢地数着，“一张...两个。你会说英语吗？你懂数学吗？”我很生气，但我什么也没说。然而，那天我对其他人都很冷淡，直到一个朋友问:“你有什么问题？”问题是:我让那个混蛋把我也变成了一个混蛋。
 

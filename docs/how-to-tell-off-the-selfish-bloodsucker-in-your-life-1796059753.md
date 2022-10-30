@@ -1,6 +1,6 @@
 # 如何指责你生活中自私的吸血鬼
 
-> 原文:[https://life hacker . com/how-to-tell-off the 自私的吸血鬼在你的生活中-1796059753](https://lifehacker.com/how-to-tell-off-the-selfish-bloodsucker-in-your-life-1796059753)
+> 原文：<https://lifehacker.com/how-to-tell-off-the-selfish-bloodsucker-in-your-life-1796059753>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

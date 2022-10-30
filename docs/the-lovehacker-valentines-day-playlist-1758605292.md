@@ -1,6 +1,6 @@
 # Lovehacker 情人节播放列表
 
-> 原文:[https://life hacker . com/the-love hacker-valentines-day-playlist-1758605292](https://lifehacker.com/the-lovehacker-valentines-day-playlist-1758605292)
+> 原文：<https://lifehacker.com/the-lovehacker-valentines-day-playlist-1758605292>
 
 情人节马上就要到了！你已经准备好了你的强力民谣和慢歌，对吧？哦，天哪，你不知道？！别担心。我们掩护你。
 

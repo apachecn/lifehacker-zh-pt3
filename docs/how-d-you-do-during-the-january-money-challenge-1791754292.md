@@ -1,6 +1,6 @@
 # 你在一月的金钱挑战中表现如何？
 
-> 原文:[https://life hacker . com/how-d-you-do-in-January-money-challenge-1791754292](https://lifehacker.com/how-d-you-do-during-the-january-money-challenge-1791754292)
+> 原文：<https://lifehacker.com/how-d-you-do-during-the-january-money-challenge-1791754292>
 
 你没有忘记这件事，是吗？这个月，我们邀请您到 [参加我们的 30 天储蓄挑战](http://twocents.lifehacker.com/the-lifehacker-money-challenge-is-back-1790627747#_ga=1.221028888.1268082208.1431441811) ，其中包括每天多存一点现金，每月总计 465 美元。你成功了吗？
 

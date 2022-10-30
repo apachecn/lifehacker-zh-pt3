@@ -1,6 +1,6 @@
 # 怎么玩 MASH
 
-> 原文:[https://lifehacker.com/how-to-play-mash-1809951633](https://lifehacker.com/how-to-play-mash-1809951633)
+> 原文：<https://lifehacker.com/how-to-play-mash-1809951633>
 
 算命游戏 MASH 被小学生保留了几十年，只需要铅笔、纸和一个朋友。下面是如何玩这个小游戏。
 

@@ -1,6 +1,6 @@
 # 如何拥有更好的性生活，来自《马上就要做爱》的克利奥·斯蒂勒
 
-> 原文:[https://life hacker . com/how-smarts-are-breaking-our-sex-life-life-life-1797819102](https://lifehacker.com/how-smartphones-are-ruining-our-sex-lives-1797819102)
+> 原文：<https://lifehacker.com/how-smartphones-are-ruining-our-sex-lives-1797819102>
 
 在智能手机时代，人们对性和关系的状态有各种各样的绝望——网上约会正在毁掉浪漫！天啊，那个色情短信！
 

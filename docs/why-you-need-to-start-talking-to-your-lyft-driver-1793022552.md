@@ -1,6 +1,6 @@
 # 为什么你需要开始和你的 Lyft 司机交谈
 
-> 原文:[https://life hacker . com/why-you-need-to-start-talking-your-lyft-driver-1793022552](https://lifehacker.com/why-you-need-to-start-talking-to-your-lyft-driver-1793022552)
+> 原文：<https://lifehacker.com/why-you-need-to-start-talking-to-your-lyft-driver-1793022552>
 
 我喜欢 Lyft 或优步等拼车服务的概念，当我旅行或想狂欢时，我会一直使用它们。但这不仅仅是因为它们很方便；我喜欢和司机聊天！我不会用所有的故事、建议和正面碰撞来交换任何东西。
 

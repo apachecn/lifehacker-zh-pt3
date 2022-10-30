@@ -1,6 +1,6 @@
 # 如何让你的朋友同意一个坏主意
 
-> 原文:[https://life hacker . com/how-to-get-your-friends-to-go-by-a bad idea-1794932981](https://lifehacker.com/how-to-get-your-friends-to-go-along-with-a-bad-idea-1794932981)
+> 原文：<https://lifehacker.com/how-to-get-your-friends-to-go-along-with-a-bad-idea-1794932981>
 
 有时候你有一个非常糟糕的想法，但是你需要朋友来帮你实现它。也许是对你有利而对他们不利的事情；或者也许你们都说服自己相信这个明显愚蠢的想法有某种好处。
 

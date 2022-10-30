@@ -1,6 +1,6 @@
 # 城里有一个新的奥巴马医改废除法案(但希望不会太久)
 
-> 原文:[https://life hacker . com/there-s-a-new-Obama care-abuse-bill-in-town-but-hope fu-1816234227](https://lifehacker.com/there-s-a-new-obamacare-repeal-bill-in-town-but-hopefu-1816234227)
+> 原文：<https://lifehacker.com/there-s-a-new-obamacare-repeal-bill-in-town-but-hopefu-1816234227>
 
 国会中的共和党人必须在 9 月 30 日之前通过废除患者保护与平价医疗法案法案，否则这将不会发生。这意味着僵尸特朗普医保再次崛起，至少有一些议员认为它有机会。看看这个账单上有什么，因为你可能想打几个电话。
 

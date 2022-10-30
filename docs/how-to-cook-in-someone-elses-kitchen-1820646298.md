@@ -1,6 +1,6 @@
 # 如何在别人的厨房做饭
 
-> 原文:[https://life hacker . com/how-to-cook-in-someone-elses-kitchen-1820646298](https://lifehacker.com/how-to-cook-in-someone-elses-kitchen-1820646298)
+> 原文：<https://lifehacker.com/how-to-cook-in-someone-elses-kitchen-1820646298>
 
 感恩节越来越近了，随之而来的是一年一度的“哦，天哪，周四我得和另外三个人在奶奶的厨房里做饭”恐慌症。如果你今年在别人的厨房做饭，这里有一些方法可以让你不那么紧张。
 

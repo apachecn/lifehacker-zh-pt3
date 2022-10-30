@@ -1,6 +1,6 @@
 # 为什么你的晨间惯例不起作用，以及如何解决它
 
-> 原文:[https://life hacker . com/why-your ' s morning-routine-not-work-and-how-to-fix-I-1736624996](https://lifehacker.com/why-your-morning-routine-isnt-working-and-how-to-fix-i-1736624996)
+> 原文：<https://lifehacker.com/why-your-morning-routine-isnt-working-and-how-to-fix-i-1736624996>
 
 早起，坐下来吃早餐，写几页日记的想法听起来很棒。但在实践中，它很少能如此干净利落地完成。过了一会儿，你开始多睡一会儿。然后你跳过写作，因为你正赶着去堵车。谁有时间吃早餐呢？
 

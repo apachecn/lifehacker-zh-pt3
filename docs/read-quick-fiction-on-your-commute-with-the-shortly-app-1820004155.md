@@ -1,6 +1,6 @@
 # 使用 Shortly 应用程序在通勤途中阅读短篇小说
 
-> 原文:[https://life hacker . com/read-quick-fiction-on-your-commutation-with the-short-app-1820004155](https://lifehacker.com/read-quick-fiction-on-your-commute-with-the-shortly-app-1820004155)
+> 原文：<https://lifehacker.com/read-quick-fiction-on-your-commute-with-the-shortly-app-1820004155>
 
 iOS/Android:利用通勤时间阅读在理论上是一个崇高的目标，在实践中是一场艰苦的战斗，在拥挤的火车、换乘中断以及以五分钟为增量专注于长篇阅读或大型小说的困难之间。但是，如果你仍然想在上班途中的几分钟休息时间里读点书，看看 Shortly，它为你呈现的故事长度正好适合你的旅行。
 

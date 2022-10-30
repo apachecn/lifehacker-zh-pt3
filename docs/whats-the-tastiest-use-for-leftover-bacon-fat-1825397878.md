@@ -1,6 +1,6 @@
 # 剩下的腊肉脂肪最好吃的用途是什么？
 
-> 原文:[https://the take out . com/what-the-taste-use of-left-bacon-fat-1825397878](https://thetakeout.com/whats-the-tastiest-use-for-leftover-bacon-fat-1825397878)
+> 原文：<https://thetakeout.com/whats-the-tastiest-use-for-leftover-bacon-fat-1825397878>
 
 * * *
 

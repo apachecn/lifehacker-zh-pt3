@@ -1,6 +1,6 @@
 # 感恩节可以用商店里买的东西
 
-> 原文:[https://life hacker . com/its-okay-to-use-store-buddy-to-make-your-thanksgs-1820577962](https://lifehacker.com/its-okay-to-use-store-bought-stuff-to-make-your-thanksg-1820577962)
+> 原文：<https://lifehacker.com/its-okay-to-use-store-bought-stuff-to-make-your-thanksg-1820577962>
 
 离感恩节只有几天了，我已经用尽了火鸡日的双关语。像你们中的许多人一样，我坐下来，提前很好地计划了整个事情，甚至改变了今年我烤火鸡的方式，以减少在厨房的时间，并打开烤箱，增加一些配菜。
 

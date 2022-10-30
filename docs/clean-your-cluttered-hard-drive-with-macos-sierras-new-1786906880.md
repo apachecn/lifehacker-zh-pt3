@@ -1,6 +1,6 @@
 # 使用 macOS Sierra 的新存储管理器清理杂乱的硬盘
 
-> 原文:[https://life hacker . com/clean-your-targeted-hard-drive-with-MAC OS-Sierras-new-1786906880](https://lifehacker.com/clean-your-cluttered-hard-drive-with-macos-sierras-new-1786906880)
+> 原文：<https://lifehacker.com/clean-your-cluttered-hard-drive-with-macos-sierras-new-1786906880>
 
 [MAC OS Sierra](http://lifehacker.com/all-the-new-stuff-in-macos-sierra-1786817117#_ga=1.25885885.1835303237.1411253018)中一个新的、方便的功能会处理一些你可能不太在意的事情:塞满你硬盘的杂乱文件。现在，有一个内置的实用程序取代了那些第三方工具，使查找占用空间的文件、旧应用程序等变得更加容易。
 

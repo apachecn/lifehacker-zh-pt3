@@ -1,6 +1,6 @@
 # Instagram 模特可以教你一两件关于照片中性感的事情
 
-> 原文:[https://life hacker . com/what-we-can-learn-on-looking-good-from-insta gram-mod-1793925954](https://lifehacker.com/what-we-can-learn-about-looking-good-from-instagram-mod-1793925954)
+> 原文：<https://lifehacker.com/what-we-can-learn-about-looking-good-from-instagram-mod-1793925954>
 
  [https://lifehacker.com/embed/inset/iframe?id=instagram-BRl--Bbha0C&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-BRl--Bbha0C&autosize=1) 
 

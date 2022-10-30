@@ -1,6 +1,6 @@
 # 现在你有机会写一集《辛普森一家》
 
-> 原文:[https://life hacker . com/now-s-your-chance-write-a-Simpsons-epison-1825681358](https://lifehacker.com/now-s-your-chance-to-write-a-simpsons-episode-1825681358)
+> 原文：<https://lifehacker.com/now-s-your-chance-to-write-a-simpsons-episode-1825681358>
 
 在喜剧演员 Hari Kondabolu 的纪录片 [*的余波中，Apu*](https://www.avclub.com/the-problem-with-apu-wades-into-a-bigger-issue-the-evo-1820550571) 的问题，以及来自*辛普森一家*的 [怪异的防御反应](https://tv.avclub.com/what-can-you-do-about-apu-the-simpsons-used-to-know-1825114234) ，制片人 Adi Shankar 想要制作一集关于 Apu 的《辛普森一家》*。为了拿到剧本，他正在参加一个电影剧本创作比赛。如果你同意 Shankar 和 Kondabolu 的观点，认为 Apu 是一种严重的刻板印象，那么看看竞赛规则:* 
 

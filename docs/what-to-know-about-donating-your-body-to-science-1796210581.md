@@ -1,6 +1,6 @@
 # 关于向科学捐赠你的身体，你知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-about-done-your body-to-science-1796210581](https://lifehacker.com/what-to-know-about-donating-your-body-to-science-1796210581)
+> 原文：<https://lifehacker.com/what-to-know-about-donating-your-body-to-science-1796210581>
 
 我们都听说过把你的身体捐献给科学，但这到底意味着什么呢？让我们来谈谈当你把你的身体交给进一步的医学研究和教育时会发生什么。(我们不会讨论单个器官或组织的捐赠，这在此处 [讨论。](http://vitals.lifehacker.com/all-the-body-parts-you-can-donate-to-a-good-cause-1789732939#_ga=2.94955548.1681815462.1497821677-370580565.1483402465)
 

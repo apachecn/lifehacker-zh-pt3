@@ -1,6 +1,6 @@
 # 像老板一样发邮件
 
-> 原文:[https://life hacker . com/literal-email-like-a-boss-1820931425](https://lifehacker.com/literally-email-like-a-boss-1820931425)
+> 原文：<https://lifehacker.com/literally-email-like-a-boss-1820931425>
 
 如果你埋在未回复的邮件中，发现自己经常以“抱歉耽搁了”开始回复，就像 BuzzFeed 记者兼创意恶棍凯蒂·诺托普洛斯所做的那样: [马上回复你的邮件，只用几个词](https://www.buzzfeed.com/katienotopoulos/i-tried-emailing-like-your-boss) 。她称之为“像 CEO 一样发电子邮件”，2001 年《T4 时报》的一篇关于高层管理人员倾向于发送简洁、拼写错误的电子邮件的文章中也使用了这个短语。
 

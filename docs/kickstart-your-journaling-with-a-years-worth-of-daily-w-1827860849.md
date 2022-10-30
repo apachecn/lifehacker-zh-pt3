@@ -1,6 +1,6 @@
 # 用一年的每日写作提示来启动你的日志
 
-> 原文:[https://life hacker . com/kickstart-your-journaling-with-a-year-value-of-daily-w-1827860849](https://lifehacker.com/kickstart-your-journaling-with-a-years-worth-of-daily-w-1827860849)
+> 原文：<https://lifehacker.com/kickstart-your-journaling-with-a-years-worth-of-daily-w-1827860849>
 
 写日记可以是一种治疗实践，或者是让你的创造力源源不断的一种方式，尤其是当你把它变成一种日常习惯的时候。但是有时候你就是没有那么多话要说，这就是为什么这些 [日常提示](https://www.lifecapturedinc.com/journaling/) 那么有用。
 

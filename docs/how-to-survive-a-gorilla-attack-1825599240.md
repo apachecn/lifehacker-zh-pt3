@@ -1,6 +1,6 @@
 # 如何在大猩猩袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-gorilla-attack-1825599240](https://lifehacker.com/how-to-survive-a-gorilla-attack-1825599240)
+> 原文：<https://lifehacker.com/how-to-survive-a-gorilla-attack-1825599240>
 
 大猩猩是世界上最大的灵长类动物，可以站起来高达 6 英尺，体重超过 400 磅。它们通常是非常和平的动物——更多的是科科，更少的是金刚——但是一只占统治地位的雄性银背龙拥有几个男人的力量，并且不怕用它来保护自己的队伍。
 

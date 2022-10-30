@@ -1,6 +1,6 @@
 # 精神健康应用程序是如何扰乱我们的大脑的
 
-> 原文:[https://life hacker . com/how-mental-health-apps-what-messing-with-our-heads-1827727989](https://lifehacker.com/how-mental-health-apps-are-messing-with-our-heads-1827727989)
+> 原文：<https://lifehacker.com/how-mental-health-apps-are-messing-with-our-heads-1827727989>
 
 甚至在你下载一个应用程序来帮助你冥想，或管理你的抑郁之前，它就在和你说话。应用程序的营销通常暗示，日常压力应该被视为心理健康问题，你要靠自己(当然是在应用程序的帮助下)解决自己的任何问题。
 

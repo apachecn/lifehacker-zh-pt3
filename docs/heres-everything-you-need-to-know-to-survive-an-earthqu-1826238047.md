@@ -1,6 +1,6 @@
 # 这里是你需要知道的在地震中幸存的一切
 
-> 原文:[https://life hacker . com/heres-everything-you-need-know-to-survive-an-earth qu-1826238047](https://lifehacker.com/heres-everything-you-need-to-know-to-survive-an-earthqu-1826238047)
+> 原文：<https://lifehacker.com/heres-everything-you-need-to-know-to-survive-an-earthqu-1826238047>
 
 地震是暴力的，可怕的，随时都可能发生，但是你可以做很多事情来保护你自己和你的家人。当你开始感到脚底颤抖时，这些建议可以让你远离危险。
 

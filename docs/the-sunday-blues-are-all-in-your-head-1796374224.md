@@ -1,6 +1,6 @@
 # 周日忧郁都在你的脑海里
 
-> 原文:[https://life hacker . com/the-Sunday-blues-are-all-in-your-head-1796374224](https://lifehacker.com/the-sunday-blues-are-all-in-your-head-1796374224)
+> 原文：<https://lifehacker.com/the-sunday-blues-are-all-in-your-head-1796374224>
 
 贤明的接待员和休息室的哲学家一直教导我们，每一天都有它自己的情感。你的一周从周一到周三的驼峰日进展到感谢上帝今天是周五，循环到周日忧郁，也被称为周日恐怖或周日悲伤。你熬过了那个扫兴的周末，因为你知道每个人都在处理它。只是有些人没有。
 

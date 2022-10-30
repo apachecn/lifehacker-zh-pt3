@@ -1,6 +1,6 @@
 # 如果 Windows 10 告诉你不要安装 Chrome 或 Firefox，忽略它
 
-> 原文:[https://life hacker . com/if-windows-10-tell-you-not-to-install-chrome-or-firefo-1829007742](https://lifehacker.com/if-windows-10-tells-you-not-to-install-chrome-or-firefo-1829007742)
+> 原文：<https://lifehacker.com/if-windows-10-tells-you-not-to-install-chrome-or-firefo-1829007742>
 
 据报道，Windows 10 将在安装非边缘浏览器时开始警告用户。测试版测试人员目前正在提前了解微软即将于 2018 年 10 月发布的 Windows Update，一些人已经注意到了一个相当令人讨厌的新内容。
 

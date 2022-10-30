@@ -1,6 +1,6 @@
 # 如何在您的 Galaxy S8 上安装 Android 8.0 奥利奥测试版
 
-> 原文:[https://life hacker . com/how-to-get-the-Android-8-0-Oreo-beta-on-your-galaxy-S8-1820046557](https://lifehacker.com/how-to-get-the-android-8-0-oreo-beta-on-your-galaxy-s8-1820046557)
+> 原文：<https://lifehacker.com/how-to-get-the-android-8-0-oreo-beta-on-your-galaxy-s8-1820046557>
 
 如果你买了 [Pixel 2](https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006) 或者你正在使用一部 [的老款谷歌品牌智能手机](https://lifehacker.com/10-useful-hidden-features-on-google-s-pixel-phone-1789809296) ，你已经拥有了 [Android 8。](http://fieldguide.gizmodo.com/11-things-you-can-do-in-android-oreo-that-you-couldnt-b-1798337832) 0 启动运行。但是对于其他人来说，更新仍然遥不可及。谢天谢地，看起来三星正准备在 [Galaxy S8](https://lifehacker.com/how-to-disable-the-bixby-button-on-your-galaxy-s8-or-no-1819043354) 和 Galaxy S8 Plus 上测试最新版本的 Android。
 

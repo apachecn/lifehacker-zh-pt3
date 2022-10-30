@@ -1,6 +1,6 @@
 # 今晚是“全国断电日”
 
-> 原文:[https://life hacker . com/the-national-day-of-unplugging-starts-tonight-1823647394](https://lifehacker.com/the-national-day-of-unplugging-starts-tonight-1823647394)
+> 原文：<https://lifehacker.com/the-national-day-of-unplugging-starts-tonight-1823647394>
 
 如果你觉得你花太多时间在手机上，这个周末休息一下，参加 [拔](https://www.nationaldayofunplugging.com/) 国庆活动。它是由 [安息日宣言](http://sabbathmanifesto.org/) 的创作者组织的，所以它从今晚日落开始，持续 24 小时。
 

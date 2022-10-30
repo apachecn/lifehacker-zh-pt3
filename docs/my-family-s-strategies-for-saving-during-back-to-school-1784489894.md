@@ -1,6 +1,6 @@
 # 我家在返校季的储蓄策略
 
-> 原文:[https://life hacker . com/my-family-s-strategies-for-saving-during-back-school-1784489894](https://lifehacker.com/my-family-s-strategies-for-saving-during-back-to-school-1784489894)
+> 原文：<https://lifehacker.com/my-family-s-strategies-for-saving-during-back-to-school-1784489894>
 
 这是全国父母的年度传统。夏天开始慢慢过去了。他们从学校收到一封关于他们学生注册的信。他们开始在商店看到“回到学校”的暗示。孩子们穿着几乎太小的衣服，而且是一个夏天玩耍时穿的。
 

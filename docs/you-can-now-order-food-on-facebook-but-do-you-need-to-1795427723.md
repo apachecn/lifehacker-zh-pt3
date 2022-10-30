@@ -1,6 +1,6 @@
 # 你现在可以在脸书上订餐了——但是你真的需要吗？
 
-> 原文:[https://life hacker . com/you-can-now-order-food-on-Facebook-but-do-you-need-to-1795427723](https://lifehacker.com/you-can-now-order-food-on-facebook-but-do-you-need-to-1795427723)
+> 原文：<https://lifehacker.com/you-can-now-order-food-on-facebook-but-do-you-need-to-1795427723>
 
 你不再需要细读多个网站(甚至是纸质菜单)或者在电话上与人交谈来订购外卖和送货。多亏了 Grubhub、Seamless 和 PostMates 等应用程序，订餐比以往任何时候都更容易。现在，脸书正致力于进一步简化这一过程:不用离开应用程序，你就可以在更新状态和随意跟踪小学朋友之间点餐。
 

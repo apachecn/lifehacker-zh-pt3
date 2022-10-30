@@ -1,6 +1,6 @@
 # 入不敷出不是节俭，而是基本的预算
 
-> 原文:[https://life hacker . com/spending-less-than-you-earn-not-frugal-its-basic-budg-1733335102](https://lifehacker.com/spending-less-than-you-earn-isnt-frugal-its-basic-budg-1733335102)
+> 原文：<https://lifehacker.com/spending-less-than-you-earn-isnt-frugal-its-basic-budg-1733335102>
 
 如果你已经控制住了预算，达到了入不敷出的地步，那就太好了！不过，这并不是“节俭”。这只是基本的预算。
 

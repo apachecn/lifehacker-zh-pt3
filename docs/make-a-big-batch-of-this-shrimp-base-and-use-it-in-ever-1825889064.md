@@ -1,6 +1,6 @@
 # 做一大批这种虾基，每餐都用
 
-> 原文:[https://life hacker . com/make-a-big-batch-of-this-shrimp-base-and-use-it-ever-1825889064](https://lifehacker.com/make-a-big-batch-of-this-shrimp-base-and-use-it-in-ever-1825889064)
+> 原文：<https://lifehacker.com/make-a-big-batch-of-this-shrimp-base-and-use-it-in-ever-1825889064>
 
 在这个“即时”设备和餐包的时代，需要一个多小时的食谱通常被优化和简化，或者被完全忽略。但是提取味道需要时间，这种强烈的，虾包装的酱基值得每一分钟。
 

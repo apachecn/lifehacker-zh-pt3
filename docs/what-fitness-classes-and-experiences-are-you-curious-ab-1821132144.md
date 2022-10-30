@@ -1,6 +1,6 @@
 # 有哪些你很好奇的健身课和体验？
 
-> 原文:[https://life hacker . com/what-fitness-classes-and-experiences-are-you-chicken-a b-1821132144](https://lifehacker.com/what-fitness-classes-and-experiences-are-you-curious-ab-1821132144)
+> 原文：<https://lifehacker.com/what-fitness-classes-and-experiences-are-you-curious-ab-1821132144>
 
 我们已经讨论了你第一次参加 WOD 的 [训练会有什么收获，以及如何鼓起勇气第一次参加](https://vitals.lifehacker.com/what-to-know-your-first-time-trying-crossfit-1820799104) [的瑜伽课程](https://lifehacker.com/how-to-get-up-the-nerve-to-go-to-your-first-yoga-class-1814679647) 。当然，外面还有很多！你好奇什么？
 

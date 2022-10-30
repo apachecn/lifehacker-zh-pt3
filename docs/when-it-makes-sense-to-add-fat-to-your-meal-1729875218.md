@@ -1,6 +1,6 @@
 # 当有必要在你的食物中添加额外的脂肪时
 
-> 原文:[https://life hacker . com/when-it-sense-to-add-fat to-your meal-1729875218](https://lifehacker.com/when-it-makes-sense-to-add-fat-to-your-meal-1729875218)
+> 原文：<https://lifehacker.com/when-it-makes-sense-to-add-fat-to-your-meal-1729875218>
 
 既然脂肪是 [克服了它的坏名声](http://lifehacker.com/this-video-breaks-down-the-war-on-fat-and-why-you-need-1704213411) ，出于健康原因将它添加到食物和饮料中越来越流行——无论是为了可疑的好处在你的咖啡中放 [黄油](http://vitals.lifehacker.com/butter-in-your-coffee-and-other-cons-stories-from-a-fi-1724843201) ，还是用“清淡”沙拉酱代替少量培根油脂。但是什么时候增加脂肪是有意义的，什么时候它是一个坏主意？
 

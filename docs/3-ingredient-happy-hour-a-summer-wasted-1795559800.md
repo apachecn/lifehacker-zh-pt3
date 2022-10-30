@@ -1,6 +1,6 @@
 # 三要素快乐时光:浪费的夏天
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-summer-wasted-1795559800](https://lifehacker.com/3-ingredient-happy-hour-a-summer-wasted-1795559800)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-summer-wasted-1795559800>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。最近，我一直在享受一种叫做“皮斯科”的南美白兰地的魅力，所以我想我们可以尝试一种夏天的，但仍然很烈的皮斯科鸡尾酒。
 

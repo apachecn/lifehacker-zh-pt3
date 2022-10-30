@@ -1,6 +1,6 @@
 # 在 Instagram 上举报滥用的 DMs 令人惊讶地困难
 
-> 原文:[https://life hacker . com/reporting-abstract-DMS-on-insta gram-is-surprise-hard-1819916981](https://lifehacker.com/reporting-abusive-dms-on-instagram-is-surprisingly-hard-1819916981)
+> 原文：<https://lifehacker.com/reporting-abusive-dms-on-instagram-is-surprisingly-hard-1819916981>
 
 社交媒体上的骚扰和辱骂真恶心。有时还很糟糕的是:各种平台无力或不愿有效应对这一问题。但有时你必须专注于你能控制的，放下其他的，在这种情况下，这意味着报告骚扰。
 

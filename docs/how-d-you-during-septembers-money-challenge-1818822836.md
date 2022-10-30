@@ -1,6 +1,6 @@
 # 你在九月的金钱挑战中表现如何？
 
-> 原文:[https://life hacker . com/how-d-you-due-septembers-money-challenge-1818822836](https://lifehacker.com/how-d-you-during-septembers-money-challenge-1818822836)
+> 原文：<https://lifehacker.com/how-d-you-during-septembers-money-challenge-1818822836>
 
 放下你的信用卡——今天是九月金钱挑战赛 的最后一天，是时候登记入住了。这个月，我们要求你在餐馆零花费，现在我们想知道:结果如何？
 

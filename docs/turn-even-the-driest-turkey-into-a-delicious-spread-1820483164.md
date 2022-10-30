@@ -1,6 +1,6 @@
 # 将最干燥的火鸡变成美味的酱料
 
-> 原文:[https://life hacker . com/turn-even-the-dry-turn-even-the-disable-spread-1820483164](https://lifehacker.com/turn-even-the-driest-turkey-into-a-delicious-spread-1820483164)
+> 原文：<https://lifehacker.com/turn-even-the-driest-turkey-into-a-delicious-spread-1820483164>
 
 虽然我完全相信你有能力在这个感恩节提供一只湿润可口的火鸡，但错误确实会发生，那只 [热力学噩梦鸟](https://lifehacker.com/choose-taste-over-looks-when-cooking-your-turkey-1820444769) 的部分可能有点干燥。如果你发现自己有一点硬肉，不要绝望；你可以把它变成美味可口的酱料。
 

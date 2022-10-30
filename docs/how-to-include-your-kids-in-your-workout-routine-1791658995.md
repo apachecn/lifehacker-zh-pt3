@@ -1,6 +1,6 @@
 # 如何让你的孩子参与你的日常锻炼
 
-> 原文:[https://life hacker . com/how-to-include-your-kids-in-workout-routine-1791658995](https://lifehacker.com/how-to-include-your-kids-in-your-workout-routine-1791658995)
+> 原文：<https://lifehacker.com/how-to-include-your-kids-in-your-workout-routine-1791658995>
 
 对于一个忙碌的家长来说，孩子可能会成为锻炼的障碍:我如何分散他们的注意力或照看他们，以便我可以进行锻炼？但是孩子们也可以参加很多锻炼——你只需要根据他们的年龄和个性选择正确的方法。
 

@@ -1,6 +1,6 @@
 # 我们正在这里直播谷歌 Pixel 3 的活动
 
-> 原文:[https://gizmodo . com/our-Google-pixel-3-live blog-will-be-right-here-1829620327](https://gizmodo.com/our-google-pixel-3-liveblog-will-be-right-here-1829620327)
+> 原文：<https://gizmodo.com/our-google-pixel-3-liveblog-will-be-right-here-1829620327>
 
 按照惯例，谷歌的大硬件日到了，关于新的 Pixel 手机有太多的泄露，感觉我们几乎已经用过它了。见鬼，有些人 [说他们已经买了一辆](https://gizmodo.com/capping-off-endless-leaks-the-pixel-3-xl-is-already-on-1829577936) 。但不要让一些泄漏破坏了乐趣。仍然会有一些惊喜。
 

@@ -1,6 +1,6 @@
 # 如何品尝葡萄酒，玛丽莎·罗斯
 
-> 原文:[https://life hacker . com/all-about-wine-with-marissa-Ross-1796653751](https://lifehacker.com/all-about-wine-with-marissa-ross-1796653751)
+> 原文：<https://lifehacker.com/all-about-wine-with-marissa-ross-1796653751>
 
 [玛丽莎·罗斯](http://marissaaross.com/) ， [Bon Appétit](http://www.bonappetit.com/?s=marissa-a-ross&qf=contributors_ss) 官方葡萄酒专栏作家，著有《T8】 [葡萄酒》一书。一直以来:自信饮酒的随意指南](https://www.amazon.com/Wine-All-Time-Confident-Drinking/dp/0399574166?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/all-about-wine-with-marissa-ross-1796653751&asc_source=&tag=kinjalifehackerlink-20) ，加入我们的演播室来谈论(还有什么？)酒:如何购买，如何谈论，最重要的是，如何享受饮用。
 

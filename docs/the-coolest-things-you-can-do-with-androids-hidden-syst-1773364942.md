@@ -1,6 +1,6 @@
 # 你可以用 Android 的隐藏系统 UI 调谐器做的最酷的事情
 
-> 原文:[https://life hacker . com/the-cool-things-you-can-do-with-androids-hidden-syst-1773364942](https://lifehacker.com/the-coolest-things-you-can-do-with-androids-hidden-syst-1773364942)
+> 原文：<https://lifehacker.com/the-coolest-things-you-can-do-with-androids-hidden-syst-1773364942>
 
 谷歌在 Android 棉花糖中引入了一个甜蜜的隐藏菜单，称为系统 UI 调谐器。它包含了一大堆巧妙的小调整，比如隐藏状态栏图标或者显示你的电池电量。下面是如何打开它，以及你可以用它做什么。
 

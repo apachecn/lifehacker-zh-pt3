@@ -1,6 +1,6 @@
 # 亚马逊的移动应用让国际购物变得更加容易
 
-> 原文:[https://life hacker . com/amazons-mobile-app-just-made-international-shopping-a-t-1825334011](https://lifehacker.com/amazons-mobile-app-just-made-international-shopping-a-t-1825334011)
+> 原文：<https://lifehacker.com/amazons-mobile-app-just-made-international-shopping-a-t-1825334011>
 
 亚马逊 [周二](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/amazons-mobile-app-just-made-international-shopping-a-t-1825334011&asc_source=&node=17052338011&tag=kinjalifehackerlink-20) 更新了它的移动应用程序，让你在另一个国家购物时更加方便。
 

@@ -1,6 +1,6 @@
 # 在这些适合家庭的古生物遗址挖掘恐龙
 
-> 原文:[https://life hacker . com/dig-up-恐龙-在这些-家庭友好-古生物学-1826011403](https://lifehacker.com/dig-up-dinosaurs-at-these-family-friendly-paleontology-1826011403)
+> 原文：<https://lifehacker.com/dig-up-dinosaurs-at-these-family-friendly-paleontology-1826011403>
 
 寻找一个全家都可以参加的有趣、有教育意义的夏季活动？挖真正的恐龙骨头和其他化石怎么样！这里有几个全国最好的挖掘地点，欢迎想了解古生物学的新来者。
 

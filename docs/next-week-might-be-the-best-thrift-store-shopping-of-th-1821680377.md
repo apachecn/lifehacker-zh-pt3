@@ -1,6 +1,6 @@
 # 下周可能是今年最好的旧货店购物日
 
-> 原文:[https://life hacker . com/next-week-may-be-the-best-three-store-of-th-shopping 1821680377](https://lifehacker.com/next-week-might-be-the-best-thrift-store-shopping-of-th-1821680377)
+> 原文：<https://lifehacker.com/next-week-might-be-the-best-thrift-store-shopping-of-th-1821680377>
 
 如果你在寻找新的东西，但不打算买新的，那么接下来的几周可能是一年中你去当地旧货店的最佳时间。
 

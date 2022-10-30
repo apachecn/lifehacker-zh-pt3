@@ -1,6 +1,6 @@
 # 接受杰夫·贝索斯关于成功的建议，想想 80 岁的你
 
-> 原文:[https://life hacker . com/take-Jeff-be zoss-advice-for-success-and-consider-80-yea-1820579150](https://lifehacker.com/take-jeff-bezoss-advice-for-success-and-consider-80-yea-1820579150)
+> 原文：<https://lifehacker.com/take-jeff-bezoss-advice-for-success-and-consider-80-yea-1820579150>
 
 不可否认，亚马逊创始人杰夫·贝索斯是成功的。贝佐斯最近将比尔·盖茨赶下了世界首富的宝座，他在职业生涯中做出了无数决定，这些决定永远影响着我们的购物方式。
 

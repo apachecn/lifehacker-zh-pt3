@@ -1,6 +1,6 @@
 # 告诉我们你在休斯顿的最佳建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Houston-tips-1820561291](https://lifehacker.com/tell-us-your-best-houston-tips-1820561291)
+> 原文：<https://lifehacker.com/tell-us-your-best-houston-tips-1820561291>
 
 在本周的《黑客你的城市》中，我们将报道德克萨斯州休斯顿这座郁郁葱葱的南方超级城市。就像“拯救一匹马，骑一个牛仔”的歌手一样，休斯顿又大又富有。这个美国第四大城市仍在增长，正在赶上芝加哥。它体积庞大。它有支线公路。它也是美国种族最多样化的大都市，是顶级夜生活、餐馆、运动队、公园和博物馆的所在地(我更喜欢赛·托姆布雷画廊里潦草的壁画)。
 

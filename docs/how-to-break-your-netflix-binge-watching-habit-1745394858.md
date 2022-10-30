@@ -1,6 +1,6 @@
 # 如何打破你狂看网飞的习惯
 
-> 原文:[https://life hacker . com/how-to-break-your ' s --网飞狂看习惯-1745394858](https://lifehacker.com/how-to-break-your-netflix-binge-watching-habit-1745394858)
+> 原文：<https://lifehacker.com/how-to-break-your-netflix-binge-watching-habit-1745394858>
 
 懒散的周日，坐在电视机前放松可能是一项有趣的活动，但是当你狂看《杰西卡·琼斯》的每一集时，你的周末已经过去了。周一你会想，你计划用来装修房子、读书、和朋友出去玩的时间都到哪里去了。
 

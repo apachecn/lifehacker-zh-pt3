@@ -1,6 +1,6 @@
 # 接下来我们应该做什么？
 
-> 原文:[https://life hacker . com/what-should-we-sous-vide-next-1822254895](https://lifehacker.com/what-should-we-sous-vide-next-1822254895)
+> 原文：<https://lifehacker.com/what-should-we-sous-vide-next-1822254895>
 
 各位苏维的朋友、粉丝、家人大家好，欢迎回到另一个为 [*选话题的环节，它会苏维吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，列在那里我用我的沉浸循环器做任何你想让我做的事。
 

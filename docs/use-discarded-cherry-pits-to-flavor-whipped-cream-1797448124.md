@@ -1,6 +1,6 @@
 # 用废弃的樱桃核给鲜奶油调味
 
-> 原文:[https://life hacker . com/use-discarded-cherry-pits-to-flavor-whited-cream-1797448124](https://lifehacker.com/use-discarded-cherry-pits-to-flavor-whipped-cream-1797448124)
+> 原文：<https://lifehacker.com/use-discarded-cherry-pits-to-flavor-whipped-cream-1797448124>
 
 樱桃核可能看起来像是没有第二次生命的厨房垃圾，但正如严肃饮食的斯特拉·帕克斯指出的 ，附着在核上的一点点水果有能力为各种美味佳肴注入味道和颜色。
 

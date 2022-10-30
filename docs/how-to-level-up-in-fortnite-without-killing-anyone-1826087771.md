@@ -1,6 +1,6 @@
 # 如何在堡垒之夜升级而不杀死任何人
 
-> 原文:[https://life hacker . com/how-to-level-up-in-fort nine-without-kill-1826087771](https://lifehacker.com/how-to-level-up-in-fortnite-without-killing-anyone-1826087771)
+> 原文：<https://lifehacker.com/how-to-level-up-in-fortnite-without-killing-anyone-1826087771>
 
 玩 [【堡垒之夜】](https://lifehacker.com/how-to-get-started-in-fortnite-battle-royale-1825520740?rev=1524633988233) 是一件很有趣的事情，当你没有被漏洞填满或者亲吻其他玩家的无限挑战时。找武器？激动人心。砍树吗？以罗恩·斯旺森式的抚慰。在地图上搜寻物品？想想看，当另一个玩家在地图中间用子弹打你的谜语时，不用它们会有多有趣。
 

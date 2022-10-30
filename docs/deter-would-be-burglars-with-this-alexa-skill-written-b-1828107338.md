@@ -1,6 +1,6 @@
 # 阻止潜在的窃贼与前 SNL 作家写的 Alexa 技能
 
-> 原文:[https://life hacker . com/用这个 Alexa-skill-written-b-1828107338](https://lifehacker.com/deter-would-be-burglars-with-this-alexa-skill-written-b-1828107338)
+> 原文：<https://lifehacker.com/deter-would-be-burglars-with-this-alexa-skill-written-b-1828107338>
 
 从小到大，当我们离开家时，我妈妈总是对 NPR 大发脾气。她的想法是，如果一个潜在的窃贼正在探查这个地方，他们会听到广播，要么认为扬声器在房子里，要么至少认为有人在家收听广播。我不确定这个想法有多准确，但是我们的房子从来没有被闯入过，所以我要说这是成功的实践。
 

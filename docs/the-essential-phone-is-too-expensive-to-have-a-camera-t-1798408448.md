@@ -1,6 +1,6 @@
 # 基本手机太贵了，没有这么差的相机
 
-> 原文:[https://gizmodo . com/the-essential-phone 太贵了，不能带相机-t-1798408448](https://gizmodo.com/the-essential-phone-is-too-expensive-to-have-a-camera-t-1798408448)
+> 原文：<https://gizmodo.com/the-essential-phone-is-too-expensive-to-have-a-camera-t-1798408448>
 
 2017 年 8 月，Android 的创始人安迪·鲁宾(Andy Rubin)和他在 Essential Products 的弟子们来到这个凡人的世界，用 PH-1 来为我们增光——这是一款试图纠正现代智能手机设计错误的设备。PH-1，或者更普遍的说法是基本手机，外观上几乎是单片的，由钛和陶瓷的组合锻造而成，旨在承受日常生活的严酷，而不需要被丑陋的塑料外壳所覆盖。好吧，让我们现实一点，手机背后有很多炒作，但所有这些热空气真的有保证吗？嗯，没有。
 

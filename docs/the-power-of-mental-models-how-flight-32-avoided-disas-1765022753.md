@@ -1,6 +1,6 @@
 # 心理模型的力量:32 号航班如何避免灾难
 
-> 原文:[https://life hacker . com/the-power-of-mental-models-how-flight-32-avoid-disas-1765022753](https://lifehacker.com/the-power-of-mental-models-how-flight-32-avoided-disas-1765022753)
+> 原文：<https://lifehacker.com/the-power-of-mental-models-how-flight-32-avoided-disas-1765022753>
 
 2010 年一个阳光明媚的早晨，澳航 32 号航班在新加坡的跑道上滑行，请求开始飞往悉尼的八小时飞行，然后升入明亮的天空。
 

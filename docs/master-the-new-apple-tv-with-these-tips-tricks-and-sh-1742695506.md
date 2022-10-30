@@ -1,6 +1,6 @@
 # 使用这些提示、技巧和快捷方式来掌握新的 Apple TV
 
-> 原文:[https://life hacker . com/master-the-new-apple-TV-with-this-tips-tricks-and-sh-1742695506](https://lifehacker.com/master-the-new-apple-tv-with-these-tips-tricks-and-sh-1742695506)
+> 原文：<https://lifehacker.com/master-the-new-apple-tv-with-these-tips-tricks-and-sh-1742695506>
 
 无论你是否被第四代苹果电视震撼，有很多你可能没有意识到的酷事情你可以用它来做。以下是如何避开苹果电视的一些烦恼，让它成为你的终极家庭娱乐机器。
 

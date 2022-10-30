@@ -1,6 +1,6 @@
 # 为了让你的孩子多做事，少说话
 
-> 原文:[https://life hacker . com/to-get-your-kid-to-do-more-talk-less-1829109545](https://lifehacker.com/to-get-your-kid-to-do-more-talk-less-1829109545)
+> 原文：<https://lifehacker.com/to-get-your-kid-to-do-more-talk-less-1829109545>
 
 你有没有见过父母和一个蹒跚学步的孩子就米饼进行深入的讨论？他们耐心地解释蛀牙的风险、均衡饮食的重要性和晚餐的时间。就在杂货店过道的中间。
 

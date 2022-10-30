@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我女朋友不会把她以前的结婚照扔了
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-won-t-throw-out-her-old-1824012799](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-won-t-throw-out-her-old-1824012799)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-won-t-throw-out-her-old-1824012799>
 
 大家好，各位推特网的狂热粉丝们，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是一个约会建议专栏，是加入 Smash Bros 的最新挑战者。本周，是时候谈谈你从未预料到的管理关系问题了。
 

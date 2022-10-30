@@ -1,6 +1,6 @@
 # 如何像 NASA 宇航员一样解决突发问题
 
-> 原文:[https://life hacker . com/how-to-solve-unexpected-problems-like-a-NASA-Australia-1820589564](https://lifehacker.com/how-to-solve-unexpected-problems-like-a-nasa-astronaut-1820589564)
+> 原文：<https://lifehacker.com/how-to-solve-unexpected-problems-like-a-nasa-astronaut-1820589564>
 
 说到做决定，也许没有什么地方比太空更能做出正确的决定了。当你在地球上空巡航时，一个错误的决定会带来相当严重的后果。
 

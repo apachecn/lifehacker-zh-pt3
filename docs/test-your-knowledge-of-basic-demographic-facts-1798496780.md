@@ -1,6 +1,6 @@
 # 测试你对基本人口统计事实的了解
 
-> 原文:[https://life hacker . com/test-your-knowledge-of-basic-demographic-facts-1798496780](https://lifehacker.com/test-your-knowledge-of-basic-demographic-facts-1798496780)
+> 原文：<https://lifehacker.com/test-your-knowledge-of-basic-demographic-facts-1798496780>
 
 快问，美国 65 岁或以上的人口比例是多少？在最近的一次 [Twitter 测验](https://twitter.com/familyunequal/status/899979524875669508) 中，大多数人都无法正确回答这个或其他几个基本的人口统计学问题。(答案是 15%。)
 

@@ -1,6 +1,6 @@
 # 开立一个子账户，为这个盛大的假期存钱
 
-> 原文:[https://life hacker . com/open-a-subaccount-to-save-for-the-epic-vacation-1818807153](https://lifehacker.com/open-a-subaccount-to-save-for-that-epic-vacation-1818807153)
+> 原文：<https://lifehacker.com/open-a-subaccount-to-save-for-that-epic-vacation-1818807153>
 
 一些银行允许你在你的储蓄账户里开一个储蓄账户。你给这些账户贴上特定的标签，比如*季度税*或者 *2018 意大利之旅*或者*权力的游戏纹身*——无论你存钱是为了什么。把它从你的主账户中分离出来，这样在你存钱的时候更容易看到你的进度。
 

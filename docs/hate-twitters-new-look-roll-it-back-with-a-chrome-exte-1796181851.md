@@ -1,6 +1,6 @@
 # 讨厌 Twitter 的新外观？用铬合金加长件把它卷回去
 
-> 原文:[https://life hacker . com/hate-twitters-new-look-roll-it-back-with-a-chrome-exte-1796181851](https://lifehacker.com/hate-twitters-new-look-roll-it-back-with-a-chrome-exte-1796181851)
+> 原文：<https://lifehacker.com/hate-twitters-new-look-roll-it-back-with-a-chrome-exte-1796181851>
 
 今天，因没有禁止纳粹分子进入其网站而闻名的社交网络 Twitter， [推出了一个重新设计的](https://blog.twitter.com/official/en_us/topics/product/2017/Check-out-our-new-look.html) ，展示了每个人最喜欢的极化设计选择:所有东西都弯曲。你的个人资料照片现在是圆形的而不是方形的，按钮是长方形的，图标看起来很幼稚。
 

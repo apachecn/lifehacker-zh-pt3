@@ -1,6 +1,6 @@
 # 解决拖延难题:最终开始的实地指南
 
-> 原文:[https://life hacker . com/solving-the-delayatory-puzzle-a-field-guide-to-fi-1744297021](https://lifehacker.com/solving-the-procrastination-puzzle-a-field-guide-to-fi-1744297021)
+> 原文：<https://lifehacker.com/solving-the-procrastination-puzzle-a-field-guide-to-fi-1744297021>
 
 你多久会发现自己 [把事情拖到明天](https://lifehacker.com/how-to-motivate-yourself-to-actually-start-that-passion-1695145011) ？“明天”真的会来吗？在*解决拖延难题*中，你将了解是什么导致你拖延，它如何对你的生活产生负面影响，以及一些战胜拖延的实用方法。
 

@@ -1,6 +1,6 @@
 # 厨房工具学校:便携式，强大的浸入式搅拌机
 
-> 原文:[https://life hacker . com/kitchen-tool-school-the-portable-powerful-immersion-b-1782522838](https://lifehacker.com/kitchen-tool-school-the-portable-powerful-immersion-b-1782522838)
+> 原文：<https://lifehacker.com/kitchen-tool-school-the-portable-powerful-immersion-b-1782522838>
 
 我喜欢我的立式混音器，但最近我一直在看另一个设备，我们真的有一些特别的东西。虽然它永远不可能完全取代我心爱的红色凯膳怡，但我发现自己开始用我的浸入式搅拌机(也称为“棒式搅拌机”或“手动搅拌机”)来处理我过去拖着立式搅拌机或食品加工机出去做的事情。
 

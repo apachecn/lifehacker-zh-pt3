@@ -1,6 +1,6 @@
 # iOS 9 实际上让 iPad 可以用于工作
 
-> 原文:[https://life hacker . com/IOs-9-actually-makes-the-ipad-usable-for-work-1729721517](https://lifehacker.com/ios-9-actually-makes-the-ipad-usable-for-work-1729721517)
+> 原文：<https://lifehacker.com/ios-9-actually-makes-the-ipad-usable-for-work-1729721517>
 
 自 2010 年 iPad 上市以来，人们一直在争论 iPad 是一个 [惊人的生产力工具](http://lifehacker.com/how-i-ditched-my-laptop-for-an-ipad-with-a-few-apps-and-1560205540#_ga=1.164503607.968941705.1436971740) ，还是一个游戏和电影的玩具。不过，有了 iOS 9，iPad 的用处就更明显了。
 

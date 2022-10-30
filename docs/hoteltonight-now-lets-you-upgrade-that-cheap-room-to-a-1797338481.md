@@ -1,6 +1,6 @@
 # HotelTonight 现在可以让您将便宜的房间升级为套房
 
-> 原文:[https://life hacker . com/hotel tonight-now-let-you-upgrade-the-cheap-room to-a-1797338481](https://lifehacker.com/hoteltonight-now-lets-you-upgrade-that-cheap-room-to-a-1797338481)
+> 原文：<https://lifehacker.com/hoteltonight-now-lets-you-upgrade-that-cheap-room-to-a-1797338481>
 
 说到最后一刻的旅行， [酒店之夜](https://www.hoteltonight.com/) 可以成为救命稻草。这款应用可以让你在同一天预订酒店房间，而价格只是你提前预订房间的一小部分。本周，它增加了另一个功能:可以选择将最后一刻预订的房间升级为套房。
 

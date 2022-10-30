@@ -1,6 +1,6 @@
 # 如何拍摄植物生长的延时照片
 
-> 原文:[https://life hacker . com/how-to-take-time-lapse-pictures-of-your-plants-growing-1826924509](https://lifehacker.com/how-to-take-time-lapse-pictures-of-your-plants-growing-1826924509)
+> 原文：<https://lifehacker.com/how-to-take-time-lapse-pictures-of-your-plants-growing-1826924509>
 
 植物生命快速向你扑来；不知不觉中，那棵小豆芽已经长成一棵大植株，渴望得到一个更大的花盆。如果你是一个园艺爱好者，对你的植物的生长很感兴趣，这里有一个完美的方法来记录每一次嫩草的生长。
 

@@ -1,6 +1,6 @@
 # 将您的 AirPods 外壳用作随身携带的 iPhone 支架
 
-> 原文:[https://life hacker . com/use-your-ai rpods-case-as-an-on-the-go-iphone-stand-1820478755](https://lifehacker.com/use-your-airpods-case-as-an-on-the-go-iphone-stand-1820478755)
+> 原文：<https://lifehacker.com/use-your-airpods-case-as-an-on-the-go-iphone-stand-1820478755>
 
 如果你有一双 [AirPods](https://lifehacker.com/fast-pair-brings-one-of-apple-s-best-airpod-features-to-1820042148) ，你甚至没有意识到你已经随身携带了一个 [智能手机支架](https://lifehacker.com/make-a-super-quick-phone-or-tablet-stand-out-of-cardboa-1512059509) 。事实证明，当你想休息一下看视频时，无线耳塞套也是支撑你的 iPhone 的完美形状。
 

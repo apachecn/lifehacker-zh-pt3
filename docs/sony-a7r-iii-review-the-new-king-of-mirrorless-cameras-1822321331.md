@@ -1,6 +1,6 @@
 # 索尼 A7R III 评测:无反光镜相机的新王者
 
-> 原文:[https://gizmodo . com/Sony-a7r-iii-review-the-new-king-of-mirror-less-camera-1822321331](https://gizmodo.com/sony-a7r-iii-review-the-new-king-of-mirrorless-cameras-1822321331)
+> 原文：<https://gizmodo.com/sony-a7r-iii-review-the-new-king-of-mirrorless-cameras-1822321331>
 
 三年来，我一直使用索尼 A7ST3作为我的主要相机。它很小巧，在弱光下令人难以置信，但在某些方面，这款相机开始显示出它的年龄，并不真正符合我的所有需求:它仅限于 1200 万像素的照片，没有外部录像机它无法拍摄 4K 视频。由于我想开始打印照片和拍摄更高端的视频，我知道我必须尽快升级，但我一直在等待合适的相机到来。我想我已经找到了 
 

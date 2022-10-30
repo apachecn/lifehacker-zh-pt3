@@ -1,6 +1,6 @@
 # 我如何通过学习焊接来拯救我的宝马 E30 项目
 
-> 原文:[https://jalopnik . com/how-I-saved-my-project-BMW-e30-from-rust-oblivion-by-le-1829478821](https://jalopnik.com/how-i-saved-my-project-bmw-e30-from-rust-oblivion-by-le-1829478821)
+> 原文：<https://jalopnik.com/how-i-saved-my-project-bmw-e30-from-rust-oblivion-by-le-1829478821>
 
 你可能已经注意到我对最近购买的 [宝马 E30 保持沉默。](https://jalopnik.com/i-wanted-a-bmw-e30-so-badly-i-bought-one-full-of-hidden-1827983271#_ga=2.242900615.443110922.1538518981-1505615348.1498085533) 购买一辆老式高速公路巡洋舰的宣传已经几个月没有更新了。我可以告诉你这不是因为 T4，因为我正在享受驾驶它的乐趣。因为我发现了一些灾难性的东西。
 

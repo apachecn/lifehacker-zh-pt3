@@ -1,6 +1,6 @@
 # 我们如何在国家公园计划节俭的家庭度假
 
-> 原文:[https://life hacker . com/how-we-plan-frugal-family-vacations-in-national-parks-1792711003](https://lifehacker.com/how-we-plan-frugal-family-vacations-in-national-parks-1792711003)
+> 原文：<https://lifehacker.com/how-we-plan-frugal-family-vacations-in-national-parks-1792711003>
 
 开始考虑你的旅行永远不会太早，特别是如果你想在一个不错的、整洁的预算下享受世界的美丽。最好的方法之一就是露营，同时，利用提供给美国公民的最好的便宜货之一，我们的国家公园系统。
 

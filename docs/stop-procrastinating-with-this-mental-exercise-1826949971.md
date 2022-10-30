@@ -1,6 +1,6 @@
 # 停止拖延这种精神训练
 
-> 原文:[https://life hacker . com/stop-delaying-with this-mental-exercise-1826949971](https://lifehacker.com/stop-procrastinating-with-this-mental-exercise-1826949971)
+> 原文：<https://lifehacker.com/stop-procrastinating-with-this-mental-exercise-1826949971>
 
 大多数待办事项清单上最困难的任务是看不见的:获得做任何事情的动力。你的任务越重要，你就越害怕开始。根据 YouTube 频道 [How to ADHD](https://www.youtube.com/howtoadhd) 的制作人所说，对付这种情况的一个窍门是一种简单的类似冥想的技巧。
 

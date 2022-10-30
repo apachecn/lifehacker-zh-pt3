@@ -1,6 +1,6 @@
 # 如何在经济上独立并提前退休，维基·罗宾
 
-> 原文:[https://life hacker . com/how-to-been-financial-independent-and-retire-early-1825651509](https://lifehacker.com/how-to-become-financially-independent-and-retire-early-1825651509)
+> 原文：<https://lifehacker.com/how-to-become-financially-independent-and-retire-early-1825651509>
 
 在这一集里，我们采访了畅销书《你的金钱还是你的生活:改变你与金钱的关系并实现财务独立的 9 个步骤 的合著者维基·罗宾。维基已经成为越来越受千禧一代欢迎的金融运动的教母: [火](https://twocents.lifehacker.com/the-basics-of-fire-financial-independence-and-early-re-1820129768#_ga=2.20298744.1970518754.1524514905-1723114163.1524514905) ，代表经济独立，提前退休。她告诉我们，要改变我们与金钱的关系，重新定义丰富、充实的生活到底意味着什么。
 

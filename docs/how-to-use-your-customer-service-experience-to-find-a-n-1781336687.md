@@ -1,6 +1,6 @@
 # 如何利用你的客服经验找到新工作
 
-> 原文:[https://life hacker . com/how-to-use-your-customer-service-experience-to-find-a-n-1781336687](https://lifehacker.com/how-to-use-your-customer-service-experience-to-find-a-n-1781336687)
+> 原文：<https://lifehacker.com/how-to-use-your-customer-service-experience-to-find-a-n-1781336687>
 
 我们中的许多人一开始都在客户服务部工作，作为下一份工作的垫脚石，但想知道如何爬上公司的阶梯可能很难。Quora 上的一位读者最近询问他们如何从客户服务过渡到其他方面。
 

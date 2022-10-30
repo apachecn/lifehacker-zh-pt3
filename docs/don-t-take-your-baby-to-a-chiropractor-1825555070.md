@@ -1,6 +1,6 @@
 # 不要带你的宝宝去看脊椎指压治疗师
 
-> 原文:[https://life hacker . com/don-t-take-your-baby to-a-chiro practor-1825555070](https://lifehacker.com/don-t-take-your-baby-to-a-chiropractor-1825555070)
+> 原文：<https://lifehacker.com/don-t-take-your-baby-to-a-chiropractor-1825555070>
 
 如果你有一个孩子，如果这个孩子有什么问题(似乎总是有问题)，有人会建议你带你的孩子去看脊椎指压治疗师。也许你会听到这个建议，即使没有任何问题。朋友们，不要带你的宝宝去看按摩师。
 

@@ -1,6 +1,6 @@
 # 如何选择中途停留的机场
 
-> 原文:[https://life hacker . com/how-to-choose-a-airport-for-layout-1797419186](https://lifehacker.com/how-to-choose-an-airport-for-a-layover-1797419186)
+> 原文：<https://lifehacker.com/how-to-choose-an-airport-for-a-layover-1797419186>
 
 一些机场比其他机场更适合中途停留，既能降低你的机票费用，又能增加你的整体舒适度和便利性。(还有 [有些机场干脆干脆就干脆不要了，](http://www.businessinsider.com/worst-airports-america-2017-6) 如果可能的话。)例如，当我在檀香山机场消磨了几个小时后，我可以在他们的热带花园(如上所示)放松，而不是在拥挤的等候区或容易被人遗忘的机场酒吧。
 

@@ -1,6 +1,6 @@
 # 使用此附件将 Gmail 附件保存到您的 Dropbox
 
-> 原文:[https://life hacker . com/save-Gmail-attachments-to-your-Dropbox-with the-add-on-1827879371](https://lifehacker.com/save-gmail-attachments-to-your-dropbox-with-this-add-on-1827879371)
+> 原文：<https://lifehacker.com/save-gmail-attachments-to-your-dropbox-with-this-add-on-1827879371>
 
 所有浏览器:谷歌和 Dropbox 目前正在合作开发一款全新的“T2 邮件 Dropbox 插件”，这将使在 Gmail 中直接分享你的 Dropbox 内容变得更加容易。如果你走的是另一条路，直接把文件转储到你的 Dropbox 也容易得多，省去了你不得不打开你的下载文件夹并手动拖动文件的步骤。
 

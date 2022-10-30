@@ -1,6 +1,6 @@
 # 如何玩《西部世界:没有亚马逊回声的迷宫》
 
-> 原文:[https://life hacker . com/how-to-play-west world-the-maze-without-an-Amazon-echo-1827395111](https://lifehacker.com/how-to-play-westworld-the-maze-without-an-amazon-echo-1827395111)
+> 原文：<https://lifehacker.com/how-to-play-westworld-the-maze-without-an-amazon-echo-1827395111>
 
 现在《西部世界》第二季已经结束，在接下来的一两年里，一个令人愉快但有些混乱的系列将冻结运动功能，你可能会对下一步该做什么感到有点迷茫。找另一个节目狂欢？重读甚至更多粉丝理论？开始写一首你最喜欢的 20 世纪 90 年代另类摇滚歌曲的令人愉快的旧时代钢琴翻唱？
 

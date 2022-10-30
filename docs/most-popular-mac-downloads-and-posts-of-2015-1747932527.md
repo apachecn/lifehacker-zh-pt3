@@ -1,6 +1,6 @@
 # 2015 年最受欢迎的 Mac 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-MAC-downloads-and-post-of-2015-1747932527](https://lifehacker.com/most-popular-mac-downloads-and-posts-of-2015-1747932527)
+> 原文：<https://lifehacker.com/most-popular-mac-downloads-and-posts-of-2015-1747932527>
 
 又是一年，这意味着 OS X 的又一次迭代。虽然苹果今年没有在 Mac 上做出任何重大举动，但仍有很多值得谈论的内容。这里是我们过去一年中最好的 Mac 帖子。
 

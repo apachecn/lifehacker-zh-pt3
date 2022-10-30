@@ -1,6 +1,6 @@
 # 这些安卓智能手表正在更新奥利奥
 
-> 原文:[https://life hacker . com/these-Android-smart watches-are-get-the-Oreo-update-1821187859](https://lifehacker.com/these-android-smartwatches-are-getting-the-oreo-update-1821187859)
+> 原文：<https://lifehacker.com/these-android-smartwatches-are-getting-the-oreo-update-1821187859>
 
 上周，谷歌宣布安卓奥利奥 [开始向安卓穿戴设备](https://plus.google.com/+HoiLam/posts/eMzmoxztkpw) 推出。
 

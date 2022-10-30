@@ -1,6 +1,6 @@
 # 当你的孩子在开放水域游泳时，如何保证他们的安全
 
-> 原文:[https://life hacker . com/how-to-keep-your-kids-safe-when-they-swimming-in-open-1827755986](https://lifehacker.com/how-to-keep-your-kids-safe-when-theyre-swimming-in-open-1827755986)
+> 原文：<https://lifehacker.com/how-to-keep-your-kids-safe-when-theyre-swimming-in-open-1827755986>
 
 给孩子上游泳课是明智之举，但你不能在他通过所有安全测试的那一刻就放松。对于一个孩子来说，在游泳池里成为一名熟练的游泳者是一回事(即便如此， [他也不是防溺水的](https://offspring.lifehacker.com/swimming-lessons-can-t-drown-proof-your-toddler-1796262192) )，但是在公开水域是完全不同的另一回事。一份来自 [全球安全儿童](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.safekids.org&data=02%7C01%7CAllie.Wagner%40edelman.com%7C725a4b3f4b334813bd5808d5bb390755%7Cb824bfb3918e43c2bb1cdcc1ba40a82b%7C0%7C0%7C636620775967328374&sdata=9oVt3b71rBCGD4LcyR7rQCw62t6tk%2FYZGLHAOXmcZ8g%3D&reserved=0) 和 [全国安全发生的新报告给出了一些令人担忧的发现，如果你的家人今年夏天将在湖泊、河流或海洋附近闲逛，你应该注意这些发现。](https://na01.safelinks.protection.outlook.com/?url=http%3A%2F%2Fwww.makesafehappen.com&data=02%7C01%7CAllie.Wagner%40edelman.com%7C725a4b3f4b334813bd5808d5bb390755%7Cb824bfb3918e43c2bb1cdcc1ba40a82b%7C0%7C0%7C636620775967328374&sdata=TCWH0IIKs1VTRfzy%2BETW02sxIVY9rQ8j%2Fwzi2lVBGIk%3D&reserved=0) 
 

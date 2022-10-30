@@ -1,6 +1,6 @@
 # 使用谷歌的歌曲制作工具创作自己的原创歌曲
 
-> 原文:[https://life hacker . com/create-your-own-original-tunes-using-Google-song-maker-1823471469](https://lifehacker.com/create-your-own-original-tunes-using-googles-song-maker-1823471469)
+> 原文：<https://lifehacker.com/create-your-own-original-tunes-using-googles-song-maker-1823471469>
 
 谷歌周四发布了一款新的基于浏览器的音乐音序器 ，它允许用户既是的歌曲作者又是制作人，并使用 Chrome 创建他们自己的简单音乐。
 

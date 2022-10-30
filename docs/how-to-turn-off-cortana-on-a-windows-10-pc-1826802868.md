@@ -1,6 +1,6 @@
 # 如何在 Windows 10 PC 上关闭 Cortana
 
-> 原文:[https://life hacker . com/how-to-turn-off-cortana-on-a-windows-10-PC-1826802868](https://lifehacker.com/how-to-turn-off-cortana-on-a-windows-10-pc-1826802868)
+> 原文：<https://lifehacker.com/how-to-turn-off-cortana-on-a-windows-10-pc-1826802868>
 
 如果你使用的是 Windows 10 机器，如果你出于任何原因不打算安装最新的 Windows 更新，你可能需要考虑禁用 Cortana——至少在锁屏上。(一般来说，当你的电脑被锁定时，你真的需要一个智能助手来帮助你吗？)
 

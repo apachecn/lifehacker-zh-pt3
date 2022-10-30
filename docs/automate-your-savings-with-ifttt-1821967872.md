@@ -1,6 +1,6 @@
 # 通过 IFTTT 实现储蓄自动化
 
-> 原文:[https://life hacker . com/automate-your-savings with-if TTT-1821967872](https://lifehacker.com/automate-your-savings-with-ifttt-1821967872)
+> 原文：<https://lifehacker.com/automate-your-savings-with-ifttt-1821967872>
 
 如果你想用理财软件省钱，这条来自评论员 [德鲁-弗格 11](https://twocents.lifehacker.com/1821951201#_ga=2.136725360.1126964250.1515678654-691019473.1512506211) 的建议非常有用:
 

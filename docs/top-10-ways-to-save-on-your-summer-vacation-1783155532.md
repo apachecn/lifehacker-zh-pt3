@@ -1,6 +1,6 @@
 # 暑假省钱的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-save-on-your-summer-vacation-1783155532](https://lifehacker.com/top-10-ways-to-save-on-your-summer-vacation-1783155532)
+> 原文：<https://lifehacker.com/top-10-ways-to-save-on-your-summer-vacation-1783155532>
 
 气温升高了，太阳出来了，我们的思绪飘向了一个美妙的夏日度假，说实话——我们都没有时间或金钱去度假。然而，并不是所有的都失去了。你可以离开，即使是一点点，甚至在预算之内。这里有一些提示可以帮助你开始。
 

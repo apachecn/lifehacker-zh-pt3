@@ -1,6 +1,6 @@
 # 你最喜欢的机场食物是什么？
 
-> 原文:[https://life hacker . com/whats-your-favorite-airport-food-1828161736](https://lifehacker.com/whats-your-favorite-airport-food-1828161736)
+> 原文：<https://lifehacker.com/whats-your-favorite-airport-food-1828161736>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。今天我想谈谈机场食物，不要和飞机上的食物混淆，还有旅行时你喜欢在哪里吃点东西。
 

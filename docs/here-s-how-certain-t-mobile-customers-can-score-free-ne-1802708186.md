@@ -1,6 +1,6 @@
 # 以下是 T-Mobile 客户获得免费网飞的方法
 
-> 原文:[https://life hacker . com/here-s-how-certain-t-mobile-customers-can-score-free-ne-1802708186](https://lifehacker.com/here-s-how-certain-t-mobile-customers-can-score-free-ne-1802708186)
+> 原文：<https://lifehacker.com/here-s-how-certain-t-mobile-customers-can-score-free-ne-1802708186>
 
 只要有合适的计划，T-Mobile 的客户将获得一些免费的视频流优惠。无线运营商的 [最新促销活动](https://newsroom.t-mobile.com/news-and-blogs/tmobile-uncarrier-netflix.htm) 为目前拥有两条或更多线路的 T-Mobile ONE 客户提供免费的标准网飞套餐，即使你已经是网飞的用户。
 

@@ -1,6 +1,6 @@
 # 你应该多久升级一次你的 iPhone？一项实验
 
-> 原文:[https://life hacker . com/你应该多久升级一次你的 iphone-an-experiment-1729328617](https://lifehacker.com/how-often-should-you-upgrade-your-iphone-an-experiment-1729328617)
+> 原文：<https://lifehacker.com/how-often-should-you-upgrade-your-iphone-an-experiment-1729328617>
 
 我是个小玩意迷。我喜欢拥有最新最棒的手机。但是我的妻子更加节俭——她宁愿在升级之前把手机用坏。但是三年升级一次真的比一年升级一次划算吗？我计算了一些数字来找出答案。
 

@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我男朋友的怀孕怪癖让我很反感
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-boy-s-inflation-kink-turns-m-1822808214](https://kotaku.com/ask-dr-nerdlove-my-boyfriend-s-pregnancy-kink-turns-m-1822808214)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-boyfriend-s-pregnancy-kink-turns-m-1822808214>
 
 大家好，各位互联网上的性感小可爱们，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个帮助你度过情人节的约会建议专栏。
 

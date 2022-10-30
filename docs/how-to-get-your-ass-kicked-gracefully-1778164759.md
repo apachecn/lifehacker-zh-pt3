@@ -1,6 +1,6 @@
 # 如何优雅地被踢屁股
 
-> 原文:[https://life hacker . com/how-to-get-your-ass-tucker-1778164759](https://lifehacker.com/how-to-get-your-ass-kicked-gracefully-1778164759)
+> 原文：<https://lifehacker.com/how-to-get-your-ass-kicked-gracefully-1778164759>
 
 每场战斗都有赢家和输家，除非你花时间认真训练，否则很有可能你至少会输一次。但愿这永远不会发生，但如果发生了，这些技巧将帮助你化险为夷，只留下一些擦伤和瘀伤。
 

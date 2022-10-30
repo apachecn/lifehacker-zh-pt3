@@ -1,6 +1,6 @@
 # 如何为 Firefox 设置双重认证
 
-> 原文:[https://life hacker . com/how-to-set-up-two-factor-authentic ation-for-Firefox-1826355850](https://lifehacker.com/how-to-set-up-two-factor-authentication-for-firefox-1826355850)
+> 原文：<https://lifehacker.com/how-to-set-up-two-factor-authentication-for-firefox-1826355850>
 
 Firefox 已经开始推出双因素认证，如果你使用浏览器存储任何密码，你应该现在就启用它。
 

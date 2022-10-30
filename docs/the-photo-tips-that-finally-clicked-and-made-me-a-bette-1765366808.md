@@ -1,6 +1,6 @@
 # 这些摄影技巧最终让我成为了一名更好的摄影师
 
-> 原文:[https://life hacker . com/the-photo-tips-the-finally-clicked-and-make-me-a-bette-1765366808](https://lifehacker.com/the-photo-tips-that-finally-clicked-and-made-me-a-bette-1765366808)
+> 原文：<https://lifehacker.com/the-photo-tips-that-finally-clicked-and-made-me-a-bette-1765366808>
 
 在我的生活中，我尝试过几次摄影，但都失败了。我喜欢拍漂亮照片的想法，但所有的规则、设置和技巧似乎都令人费解。在过去的一年里，一些基本的东西终于在我的脑海中闪现，我“明白”了。下面是为我做的，所以你不必自己去寻找它们。
 

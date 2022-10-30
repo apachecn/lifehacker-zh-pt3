@@ -1,6 +1,6 @@
 # 如何在 Mac 上发布 Instagram 照片
 
-> 原文:[https://life hacker . com/how-to-post-insta gram-photos-from your-computer-1796418253](https://lifehacker.com/how-to-post-instagram-photos-from-your-computer-1796418253)
+> 原文：<https://lifehacker.com/how-to-post-instagram-photos-from-your-computer-1796418253>
 
 Mac:你手机上一些最受欢迎的应用程序很可能有一个网络友好版本。毕竟，脸书和推特都是从网络开始的。但是 Instagram 不同，不完全是网络友好的，这使得如果你更喜欢在桌面上编辑你的照片会很麻烦( [)大屏幕仍然很酷！](http://lifehacker.com/how-using-an-ultrawide-monitor-boosted-my-productivity-1782833923) )而不是你的电话。有一个针对 Windows 10 用户的 Instagram 应用程序，但 Mac 用户运气不好。
 

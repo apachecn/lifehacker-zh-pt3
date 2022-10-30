@@ -1,6 +1,6 @@
 # 科学家证明在威士忌中加水会让它味道更好
 
-> 原文:[https://life hacker . com/scientists-prove-在威士忌中加水-make-it-taste-1797988221](https://lifehacker.com/scientists-prove-adding-water-to-whisky-makes-it-taste-1797988221)
+> 原文：<https://lifehacker.com/scientists-prove-adding-water-to-whisky-makes-it-taste-1797988221>
 
 几乎每次我喝威士忌的时候，我都会争论往里面加水是否合适。一些狂热的朋友总是争辩说，喝威士忌的唯一方法是不掺水，而我却用几滴 H2O 酒毁了它。我认为大多数威士忌加几块冰块或一点点水更好。事实是，你应该享受它，无论你喜欢它，但现在有实际科学来支持我的水主张。
 

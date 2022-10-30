@@ -1,6 +1,6 @@
 # 一个人吃饭时如何购物、烹饪和健康饮食
 
-> 原文:[https://life hacker . com/how-to-shop-cook-and-eat-when-eating-for-one-1749385732](https://lifehacker.com/how-to-shop-cook-and-eat-healthy-when-eating-for-one-1749385732)
+> 原文：<https://lifehacker.com/how-to-shop-cook-and-eat-healthy-when-eating-for-one-1749385732>
 
 除了缺乏烹饪技能之外，独居者还面临着健康饮食的独特挑战。一个人做饭和吃饭就没那么有趣了，而且很少有食物是一包一包的。诀窍是鼓起勇气每周做一次饭，这样你就可以在接下来的几天里享受健康的饮食。
 

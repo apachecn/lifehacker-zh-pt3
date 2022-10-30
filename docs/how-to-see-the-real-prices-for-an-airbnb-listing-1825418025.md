@@ -1,6 +1,6 @@
 # 如何查看 Airbnb 房源的真实价格
 
-> 原文:[https://life hacker . com/how-to-see-the-real-prices-for-an-Airbnb-listing-1825418025](https://lifehacker.com/how-to-see-the-real-prices-for-an-airbnb-listing-1825418025)
+> 原文：<https://lifehacker.com/how-to-see-the-real-prices-for-an-airbnb-listing-1825418025>
 
 [Airbnb](https://www.airbnb.com/) ，你的 UI 太烂了。我说的不是即将到来的假期我可以租的漂亮的房子和公寓的图片和展示；我说的是价格。当我查看房源时，我希望看到实际的每日价格——费用和一切都包含在每日平均价格中，因为我使用 Airbnb 正是因为我试图保持在一定的预算内。
 

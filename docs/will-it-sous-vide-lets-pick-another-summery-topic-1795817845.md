@@ -1,6 +1,6 @@
 # 它会腐烂吗？再挑一个 _ 总结)题目吧！
 
-> 原文:[https://life hacker . com/will-it-sous-vide-let-pick-another-summary-topic-1795817845](https://lifehacker.com/will-it-sous-vide-lets-pick-another-summery-topic-1795817845)
+> 原文：<https://lifehacker.com/will-it-sous-vide-lets-pick-another-summery-topic-1795817845>
 
 朋友们大家好，欢迎回到另一个为 [*挑选话题的环节，它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

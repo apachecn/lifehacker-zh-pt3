@@ -1,6 +1,6 @@
 # 装满的绳袋
 
-> 原文:[https://lifehacker.com/the-fully-packed-rope-bag-1784051518](https://lifehacker.com/the-fully-packed-rope-bag-1784051518)
+> 原文：<https://lifehacker.com/the-fully-packed-rope-bag-1784051518>
 
 有时候，你只是想要一个可以装很多东西的深包。一个典型的例子是，每天都带着读者和设计学生小坂良的包。
 

@@ -1,6 +1,6 @@
 # 褪黑激素如何帮助你睡眠
 
-> 原文:[https://life hacker . com/how-melatonin-help-you-sleep-1774391631](https://lifehacker.com/how-melatonin-helps-you-sleep-1774391631)
+> 原文：<https://lifehacker.com/how-melatonin-helps-you-sleep-1774391631>
 
 如果你睡眠有问题，褪黑激素 是一种受欢迎的简单疗法。它对许多人都有效，没有任何严重的安全问题，并以药丸或橡皮糖的形式出售，每剂几分钱。然而，这也被误解了:褪黑激素不是一种传统的安眠药。
 

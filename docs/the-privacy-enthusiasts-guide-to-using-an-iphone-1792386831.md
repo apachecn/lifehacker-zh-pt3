@@ -1,6 +1,6 @@
 # 隐私爱好者使用 iPhone 指南
 
-> 原文:[https://life hacker . com/the-privacy-发烧友-iphone 使用指南-1792386831](https://lifehacker.com/the-privacy-enthusiasts-guide-to-using-an-iphone-1792386831)
+> 原文：<https://lifehacker.com/the-privacy-enthusiasts-guide-to-using-an-iphone-1792386831>
 
 你的隐私很重要，现在比以往任何时候都更重要的是，似乎每个人都在试图查看你的个人数据。这可能包括广告商、政府或你生活中的某些古怪的偷窥狂。好消息是，你可以对你的 iPhone 做一些事情，让它更加安全和隐私友好，而不会破坏体验。
 

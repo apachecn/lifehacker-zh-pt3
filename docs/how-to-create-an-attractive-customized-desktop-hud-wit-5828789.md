@@ -1,6 +1,6 @@
 # 如何创建一个有吸引力的，定制的桌面 HUD 与雨量计
 
-> 原文:[https://life hacker . com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789](https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789)
+> 原文：<https://lifehacker.com/how-to-create-an-attractive-customized-desktop-hud-wit-5828789>
 
 Rainmeter 是一个强大的工具，让您创建一个美丽的，信息丰富的平视显示器，跟踪您的系统状态，RSS 提要和其他大量的信息。以下是如何使用它来为你的 Windows 桌面制作一个令人敬畏的、类似钢铁侠的 HUD。
 

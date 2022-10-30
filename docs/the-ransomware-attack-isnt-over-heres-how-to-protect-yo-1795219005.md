@@ -1,6 +1,6 @@
 # 勒索软件攻击还没有结束，以下是保护自己的方法
 
-> 原文:[https://life hacker . com/the-ransomware-attack-not-over-heres-how-to-protect-yo-1795219005](https://lifehacker.com/the-ransomware-attack-isnt-over-heres-how-to-protect-yo-1795219005)
+> 原文：<https://lifehacker.com/the-ransomware-attack-isnt-over-heres-how-to-protect-yo-1795219005>
 
 如果你的电脑运行的是微软视窗系统，你需要马上采取这些步骤。
 

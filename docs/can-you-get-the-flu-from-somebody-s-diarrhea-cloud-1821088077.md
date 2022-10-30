@@ -1,6 +1,6 @@
 # 你会从某人的腹泻云中感染流感吗？
 
-> 原文:[https://life hacker . com/can-you-get-the-flu-from-someone-s-drainfluence-cloud-1821088077](https://lifehacker.com/can-you-get-the-flu-from-somebody-s-diarrhea-cloud-1821088077)
+> 原文：<https://lifehacker.com/can-you-get-the-flu-from-somebody-s-diarrhea-cloud-1821088077>
 
 又到了一轮热点问题的时候了，在这个专栏里，我让专家们来回答这些年来你一直在暗暗疑惑的健康问题。今天，我们要谈谈你的同事留在浴室里的难闻气味。
 

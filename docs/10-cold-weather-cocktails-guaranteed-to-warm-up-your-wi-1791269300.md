@@ -1,6 +1,6 @@
 # 10 种寒冷天气鸡尾酒保证温暖你的冬天
 
-> 原文:[https://life hacker . com/10-cold-weather-cocktails-guaranteed to-warm-your-wi-1791269300](https://lifehacker.com/10-cold-weather-cocktails-guaranteed-to-warm-up-your-wi-1791269300)
+> 原文：<https://lifehacker.com/10-cold-weather-cocktails-guaranteed-to-warm-up-your-wi-1791269300>
 
 冬天是呆在室内的最佳时间，依偎在炉火旁，喝酒直到所有恶劣的天气过去。但是伏特加苏打和其他冰镇的 T4 鸡尾酒会让你颤抖，梦想着夏天的海滩时光。取而代之的是，用这些经典的热鸡尾酒来暖身，而不仅仅是掺入热巧克力。
 

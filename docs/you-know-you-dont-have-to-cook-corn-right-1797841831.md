@@ -1,6 +1,6 @@
 # 你知道你不用煮玉米，对吧？
 
-> 原文:[https://life hacker . com/you-know-you-dont-to-cook-corn-right-1797841831](https://lifehacker.com/you-know-you-dont-have-to-cook-corn-right-1797841831)
+> 原文：<https://lifehacker.com/you-know-you-dont-have-to-cook-corn-right-1797841831>
 
 有很多方法可以享受甜玉米，但你知道吗，你甚至不需要煮它？是真的。新鲜的甜玉米吃起来棒极了，不需要加热。
 

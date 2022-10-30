@@ -1,6 +1,6 @@
 # 用 Staples，Whole Foods 等的免费食品庆祝地球日
 
-> 原文:[https://life hacker . com/prosper-earth-day-with-free-stuff-from-staples-whole-1825456573](https://lifehacker.com/celebrate-earth-day-with-free-stuff-from-staples-whole-1825456573)
+> 原文：<https://lifehacker.com/celebrate-earth-day-with-free-stuff-from-staples-whole-1825456573>
 
 星期天是地球日！虽然这一直是一个庆祝地球的日子，也许会考虑对它更好一点，但它也变成了一个零售节日，购物者可以在环保产品和一些免费物品上打折。
 

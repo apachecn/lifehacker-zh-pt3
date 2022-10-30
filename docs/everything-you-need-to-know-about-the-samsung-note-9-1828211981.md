@@ -1,6 +1,6 @@
 # 关于三星 Note 9 你需要知道的一切
 
-> 原文:[https://gizmodo . com/everything-you-need-know-the-Samsung-note-9-1828211981](https://gizmodo.com/everything-you-need-to-know-about-the-samsung-note-9-1828211981)
+> 原文：<https://gizmodo.com/everything-you-need-to-know-about-the-samsung-note-9-1828211981>
 
 去年的 [Galaxy Note 8](https://gizmodo.com/samsung-galaxy-note-8-review-bigger-badder-but-i-sti-1799759566) 是一款完全实心的手机，但它并不令人兴奋。屏幕大小与 Galaxy S8+或T5 S9+相同，电池实际上更小，这让三星感觉很安全。
 

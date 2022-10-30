@@ -1,6 +1,6 @@
 # 我开始对亚马逊 Prime 产生严重怀疑
 
-> 原文:[https://gizmodo . com/im-starting-to-have-serious-questions-Amazon-prime-1827112911](https://gizmodo.com/im-starting-to-have-serious-doubts-about-amazon-prime-1827112911)
+> 原文：<https://gizmodo.com/im-starting-to-have-serious-doubts-about-amazon-prime-1827112911>
 
 再过两周就是我个人的亚马逊黄金日了。这不是亚马逊将 [大量随机垃圾](https://gizmodo.com/the-worst-deals-from-amazon-prime-day-updating-1796794011) 上市的日子。(大约三周后。)我的那一天，就是亚马逊又要收我 120 美元一年会员费的时候。这比公司去年向我收取的费用多了 20 美元，比我五年前注册免费试用 Prime 时忘记取消的费用多了 40 美元。今年，我想我可能会退出。
 

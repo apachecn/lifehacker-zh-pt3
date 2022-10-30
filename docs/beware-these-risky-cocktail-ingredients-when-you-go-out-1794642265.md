@@ -1,6 +1,6 @@
 # 当你出去喝酒时，要小心这些危险的鸡尾酒成分
 
-> 原文:[https://life hacker . com/当心-这些-危险的-鸡尾酒-配料-当你外出时-1794642265](https://lifehacker.com/beware-these-risky-cocktail-ingredients-when-you-go-out-1794642265)
+> 原文：<https://lifehacker.com/beware-these-risky-cocktail-ingredients-when-you-go-out-1794642265>
 
 虽然鸡尾酒并不完全对你有好处——毕竟酒精是一种毒素——有些饮料可能比其他饮料更危险。这些冒险的工艺鸡尾酒配料可以在各地的酒吧里找到。
 

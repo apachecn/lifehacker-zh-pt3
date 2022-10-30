@@ -1,6 +1,6 @@
 # 如何在没有 401(k)的情况下为 20 多岁的退休储蓄
 
-> 原文:[https://life hacker . com/how-to-save for the retirement in your-20-less-a-401-k-1828385008](https://lifehacker.com/how-to-save-for-retirement-in-your-20s-without-a-401-k-1828385008)
+> 原文：<https://lifehacker.com/how-to-save-for-retirement-in-your-20s-without-a-401-k-1828385008>
 
 当你的工作不提供 401(k)时，你如何为退休储蓄？这就是我们本周讨论的内容。
 

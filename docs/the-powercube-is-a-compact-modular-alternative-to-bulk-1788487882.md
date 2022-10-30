@@ -1,6 +1,6 @@
 # PowerCube 是体积庞大的电源板的紧凑型模块化替代产品
 
-> 原文:[https://life hacker . com/the-power cube-is-a-compact-modular-alternative-to-bulk-1788487882](https://lifehacker.com/the-powercube-is-a-compact-modular-alternative-to-bulk-1788487882)
+> 原文：<https://lifehacker.com/the-powercube-is-a-compact-modular-alternative-to-bulk-1788487882>
 
 如果你需要在充电时使用这些小玩意，那么电源板会很大、很笨拙、很难操作。PowerCube 摒弃了笨重的设备，在一个紧凑的封装中为您提供了大量的插座，当您在家中使用设备时，可以轻松地插入设备。这就是我喜欢它的原因，也是我认为你也会喜欢它的原因。
 

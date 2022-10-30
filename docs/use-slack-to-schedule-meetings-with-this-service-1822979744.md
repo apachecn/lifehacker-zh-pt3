@@ -1,6 +1,6 @@
 # 使用此服务使用时差安排会议
 
-> 原文:[https://life hacker . com/use-slack-to-schedule-meetings-with the-service-1822979744](https://lifehacker.com/use-slack-to-schedule-meetings-with-this-service-1822979744)
+> 原文：<https://lifehacker.com/use-slack-to-schedule-meetings-with-this-service-1822979744>
 
 唯一比 [去开会](https://lifehacker.com/how-to-have-a-meeting-that-isnt-a-complete-waste-of-tim-1570834406) 差的就是 [调度他们](https://lifehacker.com/assistant-to-takes-the-hassle-out-of-scheduling-one-on-1572790523#_ga=2.126808075.769681342.1518445498-392757988.1502389723) 。你必须询问每个人是否有空，找到一个合适的时间和地点，发出邀请，然后不断打扰，直到他们回复。据专注于用人工智能解决这一问题的 x.ai 公司称，安排一次会议实际上需要大约 17 分钟。
 

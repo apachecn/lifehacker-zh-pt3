@@ -1,6 +1,6 @@
 # 你的年龄如何影响你的观点
 
-> 原文:[https://life hacker . com/how-your-age-shapes-your-opinions-1821785964](https://lifehacker.com/how-your-age-shapes-your-opinions-1821785964)
+> 原文：<https://lifehacker.com/how-your-age-shapes-your-opinions-1821785964>
 
 我一直渴望有一个“观点百科”来总结维基百科遗漏的主观内容:某个乐队是否被认为是愚蠢的，某个城镇是否被认为是丑陋的，或者是否只有老年人喜欢某本书。约会应用 [仇恨者](https://www.haterdater.com/) ，它根据人们喜欢和讨厌的东西来匹配人们，在它的博客 上实现了这种渴望 [，记录了](https://medium.com/@lovethroughhate/) [克林顿和川普支持者](https://medium.com/@lovethroughhate/trump-vs-clinton-supporters-fca6d7914338) 的意见，或者 [最想要和最不想要的男人](https://medium.com/@lovethroughhate/the-numbers-are-in-attractive-dudes-vs-unattractive-dudes-on-hater-d46833216e8a) 的意见。
 

@@ -1,6 +1,6 @@
 # 如何保护你的狗的爪子免受岩盐的伤害
 
-> 原文:[https://life hacker . com/how-to-protect-your-dog-s-paws-from-rock-salt-1821948435](https://lifehacker.com/how-to-protect-your-dog-s-paws-from-rock-salt-1821948435)
+> 原文：<https://lifehacker.com/how-to-protect-your-dog-s-paws-from-rock-salt-1821948435>
 
 自从最近的雪弹袭击了东海岸，我不得不给我的小狗穿上外套和保护爪子的鞋子。像气球一样的袜子保护他的脚免受人行道上岩盐的伤害，这对狗的爪子来说可不是什么好事。以下是为什么看似无害的除冰剂对你的小狗有害，如果它被小狗的爪子夹住会发生什么，以及如何保护你的宠物的脚免受这种危险的冬季混合。
 

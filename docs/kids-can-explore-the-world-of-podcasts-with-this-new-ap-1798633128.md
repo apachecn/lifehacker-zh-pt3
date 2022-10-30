@@ -1,6 +1,6 @@
 # 孩子们可以通过这个新应用探索播客的世界
 
-> 原文:[https://life hacker . com/kids-can-explore-the-world-of-podcast-with this-new-AP-1798633128](https://lifehacker.com/kids-can-explore-the-world-of-podcasts-with-this-new-ap-1798633128)
+> 原文：<https://lifehacker.com/kids-can-explore-the-world-of-podcasts-with-this-new-ap-1798633128>
 
 有一些为孩子们准备的很棒的新播客。上个周末，我和四岁的儿子在车里听着 [NPR 的《Wow in the World》](http://www.npr.org/podcasts/510321/wow-in-the-world)，了解到涡虫从它们的嘴里吐出粪便这一恶心但有趣的事实，还听了一个新的儿童笑话(奶牛去哪里度假？哞哞的声音。)
 

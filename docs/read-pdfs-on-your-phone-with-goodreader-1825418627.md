@@ -1,6 +1,6 @@
 # 使用 GoodReader 在手机上阅读 pdf
 
-> 原文:[https://life hacker . com/read-pdf-on-your-phone-with good reader-1825418627](https://lifehacker.com/read-pdfs-on-your-phone-with-goodreader-1825418627)
+> 原文：<https://lifehacker.com/read-pdfs-on-your-phone-with-goodreader-1825418627>
 
 iOS:如果地狱存在，我将永远被迫在手机上阅读 pdf 文件。我会捏和放大一些 D&D 的剧本或工作文件，努力在屏幕上显示整个页面，同时让文本足够大以便阅读，然后在下一页上再次做同样的事情。我也不会有 [GoodReader](https://www.goodreader.com/) ，这个强大的可定制的 iPhone 应用程序让 pdf 不那么痛苦，因为 [一个合理的 5 美元](https://itunes.apple.com/app/id777310222?mt=8) 。
 

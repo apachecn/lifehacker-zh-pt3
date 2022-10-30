@@ -1,6 +1,6 @@
 # 考虑每项投资的机会成本
 
-> 原文:[https://life hacker . com/think-the-opportunity-cost-with-every-investment-1825046624](https://lifehacker.com/consider-the-opportunity-cost-with-every-investment-1825046624)
+> 原文：<https://lifehacker.com/consider-the-opportunity-cost-with-every-investment-1825046624>
 
 我们关于金钱的很多想法都围绕着收益:我投资 x 以获得 y %的长期回报；我会买这张沙发，因为它会让我的公寓更明亮，让我更快乐。但是当涉及到财务决策时，考虑你将要放弃什么也是很重要的。
 

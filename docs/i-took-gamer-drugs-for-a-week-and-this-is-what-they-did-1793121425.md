@@ -1,6 +1,6 @@
 # 我服用了一周的游戏药物，这就是他们对我身体的影响
 
-> 原文:[https://kotaku . com/I-take-gamer-drugs 一周，这就是他们所做的 1793121425](https://kotaku.com/i-took-gamer-drugs-for-a-week-and-this-is-what-they-did-1793121425)
+> 原文：<https://kotaku.com/i-took-gamer-drugs-for-a-week-and-this-is-what-they-did-1793121425>
 
 有没有一种我可以服用的药物，可以让我更擅长玩电子游戏？理想情况下，这应该是合法的。不会给我带来任何医疗危险的东西。
 

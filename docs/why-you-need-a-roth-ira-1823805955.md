@@ -1,6 +1,6 @@
 # 为什么你需要罗斯个人退休帐户
 
-> 原文:[https://lifehacker.com/why-you-need-a-roth-ira-1823805955](https://lifehacker.com/why-you-need-a-roth-ira-1823805955)
+> 原文：<https://lifehacker.com/why-you-need-a-roth-ira-1823805955>
 
 关于罗斯个人退休帐户相对于传统个人退休帐户的相对优势，已经有很多笔墨，但让我们重新审视一下罗斯——被 [NerdWallet](https://www.nerdwallet.com/blog/investing/what-is-a-roth-ira/) 称为“退休规划界的金童”——20 岁了。
 

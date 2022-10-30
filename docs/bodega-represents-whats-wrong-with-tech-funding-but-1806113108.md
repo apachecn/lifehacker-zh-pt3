@@ -1,6 +1,6 @@
 # “酒窖”代表了科技投资的问题，但它不会扼杀你真正的酒窖
 
-> 原文:[https://life hacker . com/bodega-presents-what-miss-with-what-out-of-tech-funding-but-1806113108](https://lifehacker.com/bodega-represents-whats-wrong-with-tech-funding-but-1806113108)
+> 原文：<https://lifehacker.com/bodega-represents-whats-wrong-with-tech-funding-but-1806113108>
 
 [Bodega](https://www.bodega.ai/) 的创始人，这个想要取代便利店的新型自动售货机创业公司，大概是没想到互联网会立刻 [并且叫嚣着讨厌他们](https://twitter.com/search?q=Bodega&src=tren) 。但是他们应该有。他们在《快公司》(Fast Company)发布当天文章的标题——[“两个前谷歌员工想让杂货店和家庭小店过时”](https://www.fastcompany.com/40466047/two-ex-googlers-want-to-make-bodegas-and-mom-and-pop-corner-stores-obsolete)——并非不公平。FC 直接引用联合创始人保罗·麦克唐纳的话:“最终，集中的购物场所将不再必要，因为将会有 10 万个杂货店分散开来，其中一个总是离你 100 英尺远。”
 

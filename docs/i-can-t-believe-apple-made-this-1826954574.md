@@ -1,6 +1,6 @@
 # 真不敢相信这是苹果做的
 
-> 原文:[https://gizmodo . com/I-can-t-believe-apple-made-this-1826954574](https://gizmodo.com/i-can-t-believe-apple-made-this-1826954574)
+> 原文：<https://gizmodo.com/i-can-t-believe-apple-made-this-1826954574>
 
 除了 Mojave 中新的黑暗模式用户界面，macOS 下一版本的 [最有用的新增功能之一是 Stacks，这是一种自动将桌面上所有文件分类并排列成整齐小组的功能。](https://gizmodo.com/all-the-new-features-coming-in-macos-10-14-mojave-upda-1826531489) 
 

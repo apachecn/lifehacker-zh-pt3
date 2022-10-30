@@ -1,6 +1,6 @@
 # 我是如何在无人的天空中探索浩瀚的太空中找到平静的
 
-> 原文:[https://life hacker . com/how-I-found-peace-exploring-the-vast of-space-in-no-1785319630](https://lifehacker.com/how-i-found-peace-exploring-the-vastness-of-space-in-no-1785319630)
+> 原文：<https://lifehacker.com/how-i-found-peace-exploring-the-vastness-of-space-in-no-1785319630>
 
 当我还是个孩子的时候，我一个人在房间里最喜欢做的事情就是玩“坠毁的宇宙飞船”我会用乐高搭一艘船，把它撞在我的床上，让我的迷你玩具想办法修好它，然后去下一个房间——呃——星球。现在有一个我成年后可以玩的版本:*无人区*。对我来说， [的经历简直就是治疗性的](https://lifehacker.com/in-defense-of-video-games-more-than-just-an-entertaini-5881205) 。
 

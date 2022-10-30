@@ -1,6 +1,6 @@
 # 如何处理你的旧游戏机
 
-> 原文:[https://kotaku . com/what-do-with-your-old-video-game-consoles-1821603616](https://kotaku.com/what-to-do-with-your-old-video-game-consoles-1821603616)
+> 原文：<https://kotaku.com/what-to-do-with-your-old-video-game-consoles-1821603616>
 
 万岁——圣诞节你得到了一台 Xbox One X。不要纠结于 2013 年制造的 Xbox One 的情感价值，你已经准备好把它扔进垃圾填埋场，开始你新的 4k 生活。不过，问题是:旧游戏机不像你七年级时穿的巴勃罗·哈尼电台司令 t 恤。比起让它们烂在坑里，还有更好的事情要做。
 

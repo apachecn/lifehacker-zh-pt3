@@ -1,6 +1,6 @@
 # 为什么你不应该担心拉克鲁瓦的诉讼
 
-> 原文:[https://the take out . com/lacroix-配料-诉讼-芳樟醇-农药-1829553548](https://thetakeout.com/lacroix-ingredients-lawsuit-linalool-pesticides-1829553548)
+> 原文：<https://thetakeout.com/lacroix-ingredients-lawsuit-linalool-pesticides-1829553548>
 
 LaCroix 苏打水爱好者的一个令人不安的声明(有罪)，一名妇女对该饮料的母公司提起了集体诉讼，声称“广告中宣传的‘全天然’苏打水包括一种用于蟑螂杀虫剂的成分以及其他人工成分，”CBS 费城 T3 说。
 

@@ -1,6 +1,6 @@
 # 停止在社交媒体上发布陌生人的照片
 
-> 原文:[https://life hacker . com/stop-posting-pictures-on-social-media-1827447268](https://lifehacker.com/stop-posting-pictures-of-strangers-on-social-media-1827447268)
+> 原文：<https://lifehacker.com/stop-posting-pictures-of-strangers-on-social-media-1827447268>
 
 未经某人同意就拍下他的照片并把它发布到网上是一件很糟糕的事情。这是侵犯性的，不恰当的，甚至会将他人置于危险之中。在一个有意义的世界里，这不需要更多的解释。这将是社会契约的一个普遍理解的部分。
 

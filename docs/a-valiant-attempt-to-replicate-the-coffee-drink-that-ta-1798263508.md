@@ -1,6 +1,6 @@
 # 试图复制乔的冰镇涡轮咖啡，这种咖啡可以缓解德克萨斯的炎热
 
-> 原文:[https://the take out . com/a-valiant-attempt-to-replicate-the-coffee-drink-that-ta-1798263508](https://thetakeout.com/a-valiant-attempt-to-replicate-the-coffee-drink-that-ta-1798263508)
+> 原文：<https://thetakeout.com/a-valiant-attempt-to-replicate-the-coffee-drink-that-ta-1798263508>
 
 在我去德克萨斯州奥斯汀的一次旅行中，我在体内塞了大量的食物和饮料。但是(从心理上来说)——甚至比[La 烤肉](https://www.labarbecue.com/)[Micklethwaith](http://craftmeatsaustin.com/)[Qui](http://quiaustin.com/)[Uchi](http://uchiaustin.com/)、半打 [墨西哥玉米卷](http://craftmeatsaustin.com/) 和模糊的食品预告片——更让我难以忘怀的是一种鳄梨绿色一位值得信赖的朋友说，去奥斯汀旅行一定要带上乔的冰镇涡轮饮料。这是一个写有“我非常爱你”的咖啡座，它被潦草地写在建筑物的一侧，并在全世界播放。
 

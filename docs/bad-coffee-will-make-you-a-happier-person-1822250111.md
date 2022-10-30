@@ -1,6 +1,6 @@
 # 劣质咖啡会让你成为更快乐的人
 
-> 原文:[https://life hacker . com/bad-coffee-will-make-you-a-hacker-1822250111](https://lifehacker.com/bad-coffee-will-make-you-a-happier-person-1822250111)
+> 原文：<https://lifehacker.com/bad-coffee-will-make-you-a-happier-person-1822250111>
 
 劣质咖啡是最好的咖啡。或者更隐晦地说:你对可接受的咖啡设定的标准越低，你就越快乐。
 

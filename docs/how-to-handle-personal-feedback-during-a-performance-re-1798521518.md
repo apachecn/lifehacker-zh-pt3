@@ -1,6 +1,6 @@
 # 如何在绩效评估期间处理个人反馈
 
-> 原文:[https://life hacker . com/how-to-handle-personal-feedback-in-a-performance-re-1798521518](https://lifehacker.com/how-to-handle-personal-feedback-during-a-performance-re-1798521518)
+> 原文：<https://lifehacker.com/how-to-handle-personal-feedback-during-a-performance-re-1798521518>
 
 绩效评估可能会令人伤脑筋，尤其是如果你不确定你会从老板那里听到什么。如果你的经理给你的反馈更多的是关于你的个性而不是你的工作，你可能很难知道如何回应。以下是如何处理基于个性的反馈，这样你就可以专注于改进你的工作。
 

@@ -1,6 +1,6 @@
 # 检查你孩子的信用记录
 
-> 原文:[https://life hacker . com/check-your-kids-credit-history-1828825411](https://lifehacker.com/check-your-kids-credit-history-1828825411)
+> 原文：<https://lifehacker.com/check-your-kids-credit-history-1828825411>
 
 如果你是一名家长，你可能没有太多考虑过你孩子的信用历史——小奥蒂斯不太可能在镇上刷美国运通信用卡。但是因为孩子们的档案很大程度上被忽略了，身份窃贼把他们视为一个甜蜜的目标。根据益百利公司 的估计，25%的儿童在 18 岁之前会受到身份欺诈或盗窃的影响，受害者往往不知道他们被剥削了，直到他们成为年轻人，突然被拒绝工作，学生贷款和住所。
 

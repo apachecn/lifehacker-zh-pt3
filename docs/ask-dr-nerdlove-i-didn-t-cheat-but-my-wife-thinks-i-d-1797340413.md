@@ -1,6 +1,6 @@
 # 去问 NerdLove 博士:我没有出轨，但我妻子认为我出轨了
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-not-stray-but-my-wife-thought-I-d-1797340413](https://kotaku.com/ask-dr-nerdlove-i-didn-t-cheat-but-my-wife-thinks-i-d-1797340413)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-didn-t-cheat-but-my-wife-thinks-i-d-1797340413>
 
 大家好，各位可怕的皮肤机器，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个对生活中的约会模拟进行完整演练的建议专栏。
 

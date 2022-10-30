@@ -1,6 +1,6 @@
 # 使用 IFTTT 在网上寻找便宜和免费的视频游戏
 
-> 原文:[https://life hacker . com/use-if TTT-to-find-price-and-free-video-games-online-1822971891](https://lifehacker.com/use-ifttt-to-find-cheap-and-free-video-games-online-1822971891)
+> 原文：<https://lifehacker.com/use-ifttt-to-find-cheap-and-free-video-games-online-1822971891>
 
 [如果是这样的话，那么](https://lifehacker.com/the-beginners-guide-to-ifttt-1819624556) 对任何事情都很有用，从 [管理你的储蓄](https://twocents.lifehacker.com/automate-your-savings-with-ifttt-1821967872) 到在 Spotify 上存档你最喜欢的 [歌曲，但是你知道你还可以用它来寻找免费的视频游戏吗？有几十个小程序(IFTTT 的名称是通过该服务使用的触发器和动作的任何组合)旨在帮助您跟踪游戏赠品。](https://lifehacker.com/ifttt-recipe-of-the-week-archive-your-musical-gems-1820345192)
 

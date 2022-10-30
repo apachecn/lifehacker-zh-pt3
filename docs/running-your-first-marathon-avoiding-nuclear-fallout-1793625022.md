@@ -1,6 +1,6 @@
 # 跑你的第一次马拉松，避免核辐射，以及大米变质
 
-> 原文:[https://life hacker . com/running-your ' s first-marathon-avoid-nuclear-decough-1793625022](https://lifehacker.com/running-your-first-marathon-avoiding-nuclear-fallout-1793625022)
+> 原文：<https://lifehacker.com/running-your-first-marathon-avoiding-nuclear-fallout-1793625022>
 
 本周，我们关注了美国参议院投票反对互联网隐私的实际意义，了解了鲜为人知的不新鲜大米的危险，为实际核战争的最坏情况做好了准备，等等。好的一面是，有新的网飞电影。一切都很好！
 

@@ -1,6 +1,6 @@
 # 我是 Baiju Bhatt，Robinhood 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-白驹-巴特-罗宾汉-CEO-这是我的工作方式-1797407595](https://lifehacker.com/im-baiju-bhatt-robinhood-ceo-and-this-is-how-i-work-1797407595)
+> 原文：<https://lifehacker.com/im-baiju-bhatt-robinhood-ceo-and-this-is-how-i-work-1797407595>
 
 与弗拉德·特涅夫(Vlad Tenev)一起，第二代美国人拜朱·巴特(Baiju Bhatt)创立了股票经纪服务 [罗宾汉](https://www.robinhood.com/) ，用户可以通过移动设备交易公开发行的股票，无需支付佣金或维持最低余额。他们的应用程序拥有超过 200 万用户。Baiju 在 27 岁时创办了 Robinhood，这是他与 Vlad 的第三家公司。他是这样工作的。
 

@@ -1,6 +1,6 @@
 # 节俭和廉价的区别:关注价值
 
-> 原文:[https://life hacker . com/the-difference-be-through-and-be-cheap-ca-1740308813](https://lifehacker.com/the-difference-between-being-frugal-and-being-cheap-ca-1740308813)
+> 原文：<https://lifehacker.com/the-difference-between-being-frugal-and-being-cheap-ca-1740308813>
 
 节俭的人和被认为小气的人都想省钱，但是节俭和小气有天壤之别。一切都是为了大局。
 

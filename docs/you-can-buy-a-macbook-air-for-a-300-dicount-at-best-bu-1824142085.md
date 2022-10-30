@@ -1,6 +1,6 @@
 # 立即在百思买购买 MacBook Air，享受 300 美元的折扣
 
-> 原文:[https://life hacker . com/you-can-bu-bu-1824142085](https://lifehacker.com/you-can-buy-a-macbook-air-for-a-300-dicount-at-best-bu-1824142085)
+> 原文：<https://lifehacker.com/you-can-buy-a-macbook-air-for-a-300-dicount-at-best-bu-1824142085>
 
 [苹果](https://lifehacker.com/how-to-get-a-better-price-on-your-apple-watch-trade-ins-1824109008) 从未抽出时间在周二的活动上宣布一款 [新的、更便宜的 MacBook Air](https://www.techradar.com/news/apple-2018-announcements) ，但你仍有机会以折扣价获得该公司的一台 [笔记本电脑](https://lifehacker.com/check-your-macbook-battery-with-this-app-1821916984) 。就在今天，百思买正在削减一系列苹果科技产品的价格，包括当前 MacBook Air 系列的降价 300 美元。
 

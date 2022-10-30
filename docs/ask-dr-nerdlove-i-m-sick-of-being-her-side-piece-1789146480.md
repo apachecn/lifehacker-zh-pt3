@@ -1,6 +1,6 @@
 # 去问 NerdLove 博士吧:我厌倦了做她的配角
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-m-sick-of-be-the-side-piece-1789146480](https://kotaku.com/ask-dr-nerdlove-i-m-sick-of-being-her-side-piece-1789146480)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-m-sick-of-being-her-side-piece-1789146480>
 
 你好，所有你喜欢的网上色情爱好者。欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，你爱情生活的游戏精灵。
 

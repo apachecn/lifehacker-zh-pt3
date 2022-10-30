@@ -1,6 +1,6 @@
 # 安卓 8.0 奥利奥即将登陆你现在的手机
 
-> 原文:[https://life hacker . com/heres-when-Android-8-0-Oreo-is-coming-to-your-current-p-1820786391](https://lifehacker.com/heres-when-android-8-0-oreo-is-coming-to-your-current-p-1820786391)
+> 原文：<https://lifehacker.com/heres-when-android-8-0-oreo-is-coming-to-your-current-p-1820786391>
 
 自谷歌发布 [Android 8.0 奥利奥](https://lifehacker.com/how-to-install-android-oreo-on-your-phone-1798732967) 以来，已经过去了 [三个月](http://fieldguide.gizmodo.com/11-things-you-can-do-in-android-oreo-that-you-couldnt-b-1798337832) ，但除非你正在使用该公司的 [自有设备](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085#_ga=2.157501882.1225073181.1511792732-1313785359.1499701416) ，否则你仍有可能错过最新版本的 Android。
 

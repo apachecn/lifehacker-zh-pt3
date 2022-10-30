@@ -1,6 +1,6 @@
 # 你真正需要的鸡尾酒杯以及你应该在里面放些什么
 
-> 原文:[https://life hacker . com/the-cocktail-glasses-you-really-need and-what-you-sho-1818641174](https://lifehacker.com/the-cocktail-glasses-you-actually-need-and-what-you-sho-1818641174)
+> 原文：<https://lifehacker.com/the-cocktail-glasses-you-actually-need-and-what-you-sho-1818641174>
 
 每个班都有一个更喜欢的术语来形容喝醉。引用阿姆的话，然后马上后悔，“喝醉，喝醉，喝醉。”对于我的一群大学朋友来说，这句话总是“ [”用杯子喝水。](https://www.youtube.com/watch?v=Zm5o_r4Lyc0) “嘿，杰克，我们今晚喝酒吗？”
 

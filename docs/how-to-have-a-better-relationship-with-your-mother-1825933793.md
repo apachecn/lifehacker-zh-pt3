@@ -1,6 +1,6 @@
 # 如何与母亲建立更好的关系
 
-> 原文:[https://life hacker . com/how-to-hacker-1825933793](https://lifehacker.com/how-to-have-a-better-relationship-with-your-mother-1825933793)
+> 原文：<https://lifehacker.com/how-to-have-a-better-relationship-with-your-mother-1825933793>
 
 快到母亲节了，这意味着我们中的许多人将在这一天与母亲交谈——无论是面对面，在 FaceTime 上，还是在电话上。
 

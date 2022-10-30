@@ -1,6 +1,6 @@
 # 如何将尽可能多的波旁威士忌偷偷放进你的节日大餐中
 
-> 原文:[https://life hacker . com/how-to-skill in-your-holi-1820650343](https://lifehacker.com/how-to-sneak-as-much-bourbon-as-possible-into-your-holi-1820650343)
+> 原文：<https://lifehacker.com/how-to-sneak-as-much-bourbon-as-possible-into-your-holi-1820650343>
 
 波旁威士忌有种“假日派对”的味道。无论是以传统方式还是卷进一些波旁酒球，这种黑暗、甜美的灵魂给它参加的每个派对和晚宴带来节日的欢乐。你的假日季节应该包含许多波旁鸡尾酒，是的，但不要忽视布朗酒的烹饪应用。
 

@@ -1,6 +1,6 @@
 # 我是女权主义新闻总监贾米亚·威尔逊，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-feminist-press-director-jamia-Wilson-and-this-is-ho-1821477904](https://lifehacker.com/im-feminist-press-director-jamia-wilson-and-this-is-ho-1821477904)
+> 原文：<https://lifehacker.com/im-feminist-press-director-jamia-wilson-and-this-is-ho-1821477904>
 
 贾米娅·威尔逊(Jamia Wilson)从小就阅读女权主义出版社的书籍，所以她很自豪能成为这家文学出版社的执行董事(领导这家有 47 年历史的出版社的最年轻的人，也是第一位有色人种女性)。当她成为导演时，威尔逊已经是一名直言不讳的活动家和作家，她的作品出现在女权主义出版社的标题[](https://www.feministpress.org/books-n-z/slut)*和 [*中，我仍然相信安妮塔·希尔*](https://www.feministpress.org/books-a-m/i-still-believe) 。我们通过印刷品和视频采访了威尔逊，谈论了她的工作习惯、她的灵感以及媒体促进团队合作的具体方式。*
 

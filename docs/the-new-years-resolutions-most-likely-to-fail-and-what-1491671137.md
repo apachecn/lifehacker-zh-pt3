@@ -1,6 +1,6 @@
 # 最有可能失败的新年决心，该怎么办
 
-> 原文:[https://life hacker . com/the-new-years-resolutions-most-likely-to-fail-and-what-1491671137](https://lifehacker.com/the-new-years-resolutions-most-likely-to-fail-and-what-1491671137)
+> 原文：<https://lifehacker.com/the-new-years-resolutions-most-likely-to-fail-and-what-1491671137>
 
 新年是一个很好的机会来反思我们已经走了多远，我们希望下一步去哪里。问题是，我们中的大多数人会着手制定完全不切实际的计划，最终失败。以下是最常见的失败决心，以及如何去实现它们。
 

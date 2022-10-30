@@ -1,6 +1,6 @@
 # 4 种情况下，专用摄像头仍然会对智能手机产生烟雾
 
-> 原文:[https://gizmodo . com/4-situations-where-a-dedicated-camera-still-smokes-a-sm-1819673527](https://gizmodo.com/4-situations-where-a-dedicated-camera-still-smokes-a-sm-1819673527)
+> 原文：<https://gizmodo.com/4-situations-where-a-dedicated-camera-still-smokes-a-sm-1819673527>
 
 智能手机彻底改变了我们拍照和记录生活的方式——很难记得我们不是一直带着相机的时候。尽管如此方便，尽管我们在过去几年里看到了智能手机摄像头的所有改进 ，专用摄像头还没有消亡。
 

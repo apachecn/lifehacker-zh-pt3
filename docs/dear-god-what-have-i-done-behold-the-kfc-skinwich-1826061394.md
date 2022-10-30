@@ -1,6 +1,6 @@
 # 亲爱的上帝，我都做了些什么:看看肯德基快餐店
 
-> 原文:[https://the take out . com/dear-god-what-I-do-look-the-KFC-skinwich-1826061394](https://thetakeout.com/dear-god-what-have-i-done-behold-the-kfc-skinwich-1826061394)
+> 原文：<https://thetakeout.com/dear-god-what-have-i-done-behold-the-kfc-skinwich-1826061394>
 
 那是 2010 年。肯德基的双降三明治被释放给大众。该国不知道这是否是一个恶作剧。从表面上看，三明治会用炸鸡做小面包，这太荒谬了，让人难以相信。肯德基低估的地方是，美国经常拿戏仿并将其归入合法性。双倍下注变成了一件非常真实、非常成功的事情。
 

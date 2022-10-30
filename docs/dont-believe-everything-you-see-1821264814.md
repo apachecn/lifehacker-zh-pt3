@@ -1,6 +1,6 @@
 # 不要相信你看到的一切
 
-> 原文:[https://life hacker . com/don-believe-everything-you-see-1821264814](https://lifehacker.com/dont-believe-everything-you-see-1821264814)
+> 原文：<https://lifehacker.com/dont-believe-everything-you-see-1821264814>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 

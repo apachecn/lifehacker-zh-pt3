@@ -1,6 +1,6 @@
 # 用 Google Home 和 IFTTT 恶作剧你的朋友
 
-> 原文:[https://life hacker . com/prank-your-friends-with-Google-home-and-if TTT-1819810039](https://lifehacker.com/prank-your-friends-with-google-home-and-ifttt-1819810039)
+> 原文：<https://lifehacker.com/prank-your-friends-with-google-home-and-ifttt-1819810039>
 
 语音助手仍然是愚蠢的计算机，被编程为向你提供问题的答案并控制你的 Spotify 播放列表。但就这一次，当我哥哥过来的时候，我希望我的谷歌主页能帮我讲一两个笑话。毕竟语音助手如果不能帮你烤朋友又有什么用呢？在 IFTTT 的帮助下(如果这那么那)，让你的语音助手说你想说的任何话(在合理的范围内)，对不知情的朋友和家人搞几个恶作剧。或者，如果你是我，让它对你最爱的人进行一些选择性的侮辱。
 

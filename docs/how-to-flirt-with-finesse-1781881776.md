@@ -1,6 +1,6 @@
 # 如何用手腕调情
 
-> 原文:[https://lifehacker.com/how-to-flirt-with-finesse-1781881776](https://lifehacker.com/how-to-flirt-with-finesse-1781881776)
+> 原文：<https://lifehacker.com/how-to-flirt-with-finesse-1781881776>
 
 你可能穿得很好，有一份很酷的工作，并且很美，但是调情才是吸引力的真正魔力所在，尤其是当它涉及到第一印象的时候。事实上，好的调情往往比漂亮的外表更有效，这是任何人都可以学会的。
 

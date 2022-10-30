@@ -1,6 +1,6 @@
 # 青少年现在可以拥有自己的亚马逊账户了
 
-> 原文:[https://life hacker . com/teens-can-now-has-own-Amazon-accounts-1819516660](https://lifehacker.com/teens-can-now-have-their-own-amazon-accounts-1819516660)
+> 原文：<https://lifehacker.com/teens-can-now-have-their-own-amazon-accounts-1819516660>
 
 传统上，需要在亚马逊上购买笔记本或新运动鞋的青少年要么必须让他们的父母为他们代购，要么登录他们父母的账户，在那里妈妈和爸爸的观看历史将被完整地显示出来？ Eww，妈妈！”)亚马逊从未真正对购物的最低年龄做出明确规定，只是在其 [服务条款](https://www.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/teens-can-now-have-their-own-amazon-accounts-1819516660&asc_source=&nodeId=508088&tag=kinjalifehackerlink-20) 中声明，任何 18 岁以下的人“只有在父母或监护人的参与下才能使用亚马逊服务”，并且你必须年满 21 岁才能购买酒类。
 

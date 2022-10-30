@@ -1,6 +1,6 @@
 # 我刚刚花了 5000 美元买了一辆汽车电梯，我非常高兴
 
-> 原文:[https://jalopnik . com/I-just-speed-5000-on-a car-lift-and-I-can-be-happi-1791703186](https://jalopnik.com/i-just-spent-5000-on-a-car-lift-and-i-couldnt-be-happi-1791703186)
+> 原文：<https://jalopnik.com/i-just-spent-5000-on-a-car-lift-and-i-couldnt-be-happi-1791703186>
 
 作为一种爱好，摆弄汽车需要你接受这样一个事实:除非你是托尼·斯塔克，否则你不会拥有与你的抱负相符的设备。然而，花相当于一辆二手本田思域的钱买一套工具，可以让你离梦想中的大师级修补匠更近一步。
 

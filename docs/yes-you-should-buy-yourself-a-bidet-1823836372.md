@@ -1,6 +1,6 @@
 # 是的，你应该给自己买个坐浴盆
 
-> 原文:[https://life hacker . com/yes-you-should-buy-you-self-a-bide-1823836372](https://lifehacker.com/yes-you-should-buy-yourself-a-bidet-1823836372)
+> 原文：<https://lifehacker.com/yes-you-should-buy-yourself-a-bidet-1823836372>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在拥抱我们的咖啡因瘾，尝试我们的蓝色围裙餐，充分利用与工作相关的旅行，并改善我们收件箱的内容。
 

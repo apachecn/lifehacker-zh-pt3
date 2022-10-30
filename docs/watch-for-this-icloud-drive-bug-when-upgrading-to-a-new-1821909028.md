@@ -1,6 +1,6 @@
 # 升级到新 Mac 时，请注意此 iCloud Drive Bug
 
-> 原文:[https://life hacker . com/watch-for-this-I cloud-drive-bug-when-upgrading-to-a-new-1821909028](https://lifehacker.com/watch-for-this-icloud-drive-bug-when-upgrading-to-a-new-1821909028)
+> 原文：<https://lifehacker.com/watch-for-this-icloud-drive-bug-when-upgrading-to-a-new-1821909028>
 
 如果你在假期后从一台 iMac 迁移到另一台(更亮的)iMac(,或者帮助某人设置他们的新 MacBook Pro 以替换他们的旧 MacBook Air，你可能会忍不住使用 iCloud Drive 来移动一些你需要快速访问的重要文件。不幸的是，如果您将文件从运行 Sierra 的 Mac 移动到运行 High Sierra 的 Mac，您的文稿、图像和其他文件可能会在此过程中丢失一些元数据。
 

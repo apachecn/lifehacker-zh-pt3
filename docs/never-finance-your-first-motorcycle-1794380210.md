@@ -1,6 +1,6 @@
 # 永远不要为你的第一辆摩托车融资
 
-> 原文:[https://jalopnik . com/never-finance-your ' s first-motorcycle-1794380210](https://jalopnik.com/never-finance-your-first-motorcycle-1794380210)
+> 原文：<https://jalopnik.com/never-finance-your-first-motorcycle-1794380210>
 
 你已经做了调查。你试驾过各种各样的摩托车。你知道你想要什么。因此，现在你正在检查你的信用评分，看看什么样的利率，你可以开始支付你的第一辆自行车。好主意，对吧？实际上，一点也不。
 

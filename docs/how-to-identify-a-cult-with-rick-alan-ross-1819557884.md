@@ -1,6 +1,6 @@
 # 如何识别邪教，里克·艾伦·罗斯
 
-> 原文:[https://life hacker . com/how-to-identify-a-cult-with-Rick-Alan-Ross-1819557884](https://lifehacker.com/how-to-identify-a-cult-with-rick-alan-ross-1819557884)
+> 原文：<https://lifehacker.com/how-to-identify-a-cult-with-rick-alan-ross-1819557884>
 
 在这一集里，我们讨论了邪教:它们是如何运作的，你如何识别它们，身处其中是什么感觉，以及如何摆脱它们。为此，我们采访了作家丽贝卡·斯托特，她的书《在下雨的日子里:一个父亲，一个女儿，一个邪教 T3》详细描述了她在排外的兄弟会中的童年，这个邪教认为世界由撒旦统治。我们还采访了里克·艾伦·罗斯，他是邪教教育学院的创始人兼执行董事。我们采访了伊丽莎白·段丽阳，一位生物伦理学家和记者，她写了大量关于邪教的文章。 
 

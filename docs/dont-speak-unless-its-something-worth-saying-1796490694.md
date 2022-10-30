@@ -1,6 +1,6 @@
 # 除非是值得说的话，否则不要说话
 
-> 原文:[https://life hacker . com/don-talk-not-speak-that-its-something-worthy-say-1796490694](https://lifehacker.com/dont-speak-unless-its-something-worth-saying-1796490694)
+> 原文：<https://lifehacker.com/dont-speak-unless-its-something-worth-saying-1796490694>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 

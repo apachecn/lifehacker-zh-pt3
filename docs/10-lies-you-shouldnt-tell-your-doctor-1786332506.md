@@ -1,6 +1,6 @@
 # 你不该告诉医生的 10 个谎言
 
-> 原文:[https://gizmodo . com/10-lies-you-should-not-tell-your-doctor-1786332506](https://gizmodo.com/10-lies-you-shouldnt-tell-your-doctor-1786332506)
+> 原文：<https://gizmodo.com/10-lies-you-shouldnt-tell-your-doctor-1786332506>
 
 医生有一个令人讨厌的习惯，就是问很多问题，其中很多问题让我们感到不舒服或不自在。所以我们虚张声势。很多。以下是我们告诉医生的 10 个典型谎言，以及为什么这些看似无害的谎言对我们的健康有害。
 

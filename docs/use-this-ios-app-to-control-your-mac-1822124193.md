@@ -1,6 +1,6 @@
 # 使用此 iOS 应用程序来控制您的 Mac
 
-> 原文:[https://life hacker . com/use-this-IOs-app-to-control-your-MAC-1822124193](https://lifehacker.com/use-this-ios-app-to-control-your-mac-1822124193)
+> 原文：<https://lifehacker.com/use-this-ios-app-to-control-your-mac-1822124193>
 
 iOS/Mac:每当我把我的 MacBook 插到电视上与朋友分享视频时，我就会蹲在地板上，蹲在笔记本电脑前，而其他人则坐在后面尽情享受。由于我偶尔会在家里使用 Mac 来管理流媒体，并经常发现自己通过其 HDMI 端口或 Chromecast 之类的东西将它连接到一些大屏幕上，所以遥控器将是一个救星。不过，我没有带真正的遥控器，而是下载了 Mac 应用的 [遥控器。这款 iOS 应用相当实用，但能让我从 iPhone 或 iPad 上控制 Mac 的几乎所有方面。我可以通过手机启动应用程序，修改系统设置，输入文本，甚至控制流媒体。](https://www.cherpake.com/remote-control-mac/)
 

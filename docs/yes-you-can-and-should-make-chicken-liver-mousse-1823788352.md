@@ -1,6 +1,6 @@
 # 是的，你可以也应该做鸡肝慕斯
 
-> 原文:[https://life hacker . com/yes-you-can-and-should-make-chicken-live-mouse-1823788352](https://lifehacker.com/yes-you-can-and-should-make-chicken-liver-mousse-1823788352)
+> 原文：<https://lifehacker.com/yes-you-can-and-should-make-chicken-liver-mousse-1823788352>
 
 作为一个肉食者，我总是尽可能多的吃任何给定的动物，即使这意味着把它的脸从头骨中取出来。因此，我是以内脏为中心的应用程序的忠实粉丝，尤其是便宜得惊人且容易制作的鸡肝慕斯。
 

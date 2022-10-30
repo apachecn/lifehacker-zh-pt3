@@ -1,6 +1,6 @@
 # 如何像你知道自己在做什么一样点一瓶酒
 
-> 原文:[https://deadspin . com/how-to-order-a-bottle-a-wine-you-know-what-you-1782182362](https://deadspin.com/how-to-order-a-bottle-of-wine-like-you-know-what-youre-1782182362)
+> 原文：<https://deadspin.com/how-to-order-a-bottle-of-wine-like-you-know-what-youre-1782182362>
 
 和朋友出去吃饭很容易变成一件*大事——*在同意一起吃饭后，你必须选择美食、餐馆，以及是否邀请那个几周以来所有人都避之不及的人。决定并没有就此结束。一旦你在餐厅安顿下来，每个人都在享受手里的手工鸡尾酒——除了那个做了整整 30 杯的混蛋——不可避免的事情发生了。有人问了一个可怕的问题:“我们应该买瓶酒吗？”
 

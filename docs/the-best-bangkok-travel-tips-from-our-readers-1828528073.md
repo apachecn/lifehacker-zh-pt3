@@ -1,6 +1,6 @@
 # 来自我们读者的最佳曼谷旅游建议
 
-> 原文:[https://life hacker . com/the-best-Bangkok-travel-tips-from-our-readers-1828528073](https://lifehacker.com/the-best-bangkok-travel-tips-from-our-readers-1828528073)
+> 原文：<https://lifehacker.com/the-best-bangkok-travel-tips-from-our-readers-1828528073>
 
 当你在曼谷的时候，做一次足部按摩。每周在《黑客你的城市》节目中，有一条建议被不断重复，而本周，这条建议就是:每天做足底按摩。本周，我们得到了各种各样的小费 ，远远超出了通常的餐馆推荐。以下是亮点。
 

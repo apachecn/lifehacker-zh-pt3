@@ -1,6 +1,6 @@
 # 男人如何在性爱中持续更长时间
 
-> 原文:[https://life hacker . com/how-men-can-last-longer-in-sex-1829473619](https://lifehacker.com/how-men-can-last-longer-during-sex-1829473619)
+> 原文：<https://lifehacker.com/how-men-can-last-longer-during-sex-1829473619>
 
 学习如何在床上坚持更长时间是男人寻求我的性治疗服务的最常见原因之一。几乎每个男人都担心高潮太快，不管他实际能持续多长时间。幸运的是，有一些简单易行的策略可以让性爱持续更长时间。
 

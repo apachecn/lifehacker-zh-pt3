@@ -1,6 +1,6 @@
 # 用速溶锅烹饪时，何时使用自然快速释放
 
-> 原文:[https://life hacker . com/when-to-use-natural-and-quick-release-when-cooking-with-1821449870](https://lifehacker.com/when-to-use-natural-and-quick-release-when-cooking-with-1821449870)
+> 原文：<https://lifehacker.com/when-to-use-natural-and-quick-release-when-cooking-with-1821449870>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video--hDonz_VPL0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video--hDonz_VPL0&start=0) 
 

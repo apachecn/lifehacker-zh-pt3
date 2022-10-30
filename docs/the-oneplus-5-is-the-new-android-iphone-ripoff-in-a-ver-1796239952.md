@@ -1,6 +1,6 @@
 # OnePlus 5 是新的 Android iPhone 的翻版——以一种非常好的方式
 
-> 原文:[https://gizmodo . com/the-oneplus-5-is-the-new-Android-iphone-ripoff-in-a-ver-1796239952](https://gizmodo.com/the-oneplus-5-is-the-new-android-iphone-ripoff-in-a-ver-1796239952)
+> 原文：<https://gizmodo.com/the-oneplus-5-is-the-new-android-iphone-ripoff-in-a-ver-1796239952>
 
 当我问一加的员工，他们对人们将苹果的新设备 [与 iPhone](http://www.androidpolice.com/2017/06/06/exclusive-this-is-the-oneplus-5/) 相提并论有何看法时，他们似乎有点恼火。当然，这两款手机都采用了双摄像头设计。是的，OnePlus 5 的曲线看起来很像苹果产品。呃，好吧，这手机也很不错。有什么大不了的？
 

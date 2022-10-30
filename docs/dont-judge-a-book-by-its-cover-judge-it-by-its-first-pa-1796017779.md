@@ -1,6 +1,6 @@
 # 不要以封面来判断一本书，要以第一页来判断
 
-> 原文:[https://life hacker . com/don-t-judge-a-book-by-the-cover-judge-that-it-it-first-pa-1796017779](https://lifehacker.com/dont-judge-a-book-by-its-cover-judge-it-by-its-first-pa-1796017779)
+> 原文：<https://lifehacker.com/dont-judge-a-book-by-its-cover-judge-it-by-its-first-pa-1796017779>
 
 [【Recommendmeabook.com】](http://www.recommendmeabook.com/)向你展示一本随机流行书籍的第一页，去掉了识别信息。喜欢的话，揭盖；如果没有，请点按“下一本书”
 

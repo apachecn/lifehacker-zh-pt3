@@ -1,6 +1,6 @@
 # 如何处理不恰当的工作面试问题
 
-> 原文:[https://life hacker . com/how-to-hand-opportunity-job-interview-questions-1797453072](https://lifehacker.com/how-to-handle-inappropriate-job-interview-questions-1797453072)
+> 原文：<https://lifehacker.com/how-to-handle-inappropriate-job-interview-questions-1797453072>
 
 即使没有试图用外交辞令回答不恰当的、侵犯性的或完全违法的问题的额外压力，工作面试也是具有挑战性的。我们 [请你分享](https://www.facebook.com/lifehacker/posts/10154594457411356) 你在脸书被问到的最疯狂的面试问题，好家伙，你们都回答了。为了帮助未来的求职者在这些波涛汹涌的水域中航行，我们选取了你面试中最糟糕和最怪异的经历，并就如何处理它们寻求专家的建议。
 

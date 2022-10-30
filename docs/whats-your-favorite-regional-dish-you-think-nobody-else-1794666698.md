@@ -1,6 +1,6 @@
 # 你认为没人知道的你最喜欢的地方菜是什么？
 
-> 原文:[https://life hacker . com/whats-you-favorite-regional-dish-you-think-nobody-else-1794666698](https://lifehacker.com/whats-your-favorite-regional-dish-you-think-nobody-else-1794666698)
+> 原文：<https://lifehacker.com/whats-your-favorite-regional-dish-you-think-nobody-else-1794666698>
 
 地方美食通常是任何地区最好的隐藏宝石。无论是北达科他州的还是北卡罗来纳州的 [虾和玉米粉](http://www.southernseason.com/recipes/main-courses/crooks-corner-shrimp-and-grits/) ，到处都有自己的食物，我们想听听你的最爱。
 

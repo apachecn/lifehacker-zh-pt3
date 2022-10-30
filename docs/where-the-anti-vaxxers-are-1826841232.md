@@ -1,6 +1,6 @@
 # 反吸血鬼者在哪里
 
-> 原文:[https://life hacker . com/where-the-anti-VAX xers-are-1826841232](https://lifehacker.com/where-the-anti-vaxxers-are-1826841232)
+> 原文：<https://lifehacker.com/where-the-anti-vaxxers-are-1826841232>
 
 一项新的研究 [确定了哲学和宗教疫苗豁免](http://journals.plos.org/plosmedicine/article?id=10.1371/journal.pmed.1002578#pmed-1002578-t002) 的热点:你可以填写的文书(在一些州)代替你的幼儿园孩子接种疫苗。大多数都在农村地区，但是 15 个中等城市人口众多，免税率高，这是一个危险的组合。
 

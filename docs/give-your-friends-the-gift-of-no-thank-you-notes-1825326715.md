@@ -1,6 +1,6 @@
 # 给你的朋友一份“没有感谢信”的礼物
 
-> 原文:[https://life hacker . com/give-your-friends-the-give-the-gift-of-no-than-your-sense-notes-1825326715](https://lifehacker.com/give-your-friends-the-gift-of-no-thank-you-notes-1825326715)
+> 原文：<https://lifehacker.com/give-your-friends-the-gift-of-no-thank-you-notes-1825326715>
 
 给予比接受更好。那么，为什么我们在付出之后还会期待得到什么呢？
 

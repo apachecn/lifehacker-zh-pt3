@@ -1,6 +1,6 @@
 # 在烤架上烹饪章鱼比你想象的要容易得多
 
-> 原文:[https://life hacker . com/cooking-octopus-on-the-grill-way 比 you-thi-1797368199](https://lifehacker.com/cooking-octopus-on-the-grill-is-way-easier-than-you-thi-1797368199)
+> 原文：<https://lifehacker.com/cooking-octopus-on-the-grill-is-way-easier-than-you-thi-1797368199>
 
 欢迎回到 [周日寄托](https://lifehacker.com/tag/sunday-sustenance) ！上周我吃了大约一磅面包和山核桃做 [法式烤吐司](https://lifehacker.com/skip-the-griddle-and-grill-your-french-toast-1796952774) ，所以这周，我在寻找一些清淡的食物。
 

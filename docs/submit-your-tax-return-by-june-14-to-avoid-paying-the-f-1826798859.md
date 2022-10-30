@@ -1,6 +1,6 @@
 # 在 6 月 14 日之前提交你的纳税申报表，以避免支付未申报费
 
-> 原文:[https://life hacker . com/submit-your-tax-return-by-June-14-to-avoid-pay-the-f-1826798859](https://lifehacker.com/submit-your-tax-return-by-june-14-to-avoid-paying-the-f-1826798859)
+> 原文：<https://lifehacker.com/submit-your-tax-return-by-june-14-to-avoid-paying-the-f-1826798859>
 
 如果你还没有申报你的 2017 年税收，在你遭遇 [未申报费用](https://www.irs.gov/newsroom/missed-the-tax-deadline-and-owe-tax-file-by-june-14-to-avoid-higher-late-filing-penalty) 之前，你还有一天的时间去申报。
 

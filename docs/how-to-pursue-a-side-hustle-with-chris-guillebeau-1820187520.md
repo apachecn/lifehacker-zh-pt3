@@ -1,6 +1,6 @@
 # 如何追求一个侧面的骗局，克里斯·吉列博
 
-> 原文:[https://life hacker . com/how-to-purchase-a side-hustle-with-Chris-guillebeau-1820187520](https://lifehacker.com/how-to-pursue-a-side-hustle-with-chris-guillebeau-1820187520)
+> 原文：<https://lifehacker.com/how-to-pursue-a-side-hustle-with-chris-guillebeau-1820187520>
 
 在这一集里，我们讨论副业:那些你在下班后——在晚上或周末——从事的项目，以补充你的收入或满足你的激情。我们的嘉宾包括 [克里斯·吉列博](https://chrisguillebeau.com/) ， [*Side Hustle:从想法到收入 27 天*](https://www.amazon.com/dp/B01MT0J7KF/ref=dp-kindle-redirect?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-pursue-a-side-hustle-with-chris-guillebeau-1820187520&asc_source=&btkr=1&tag=kinjalifehackerlink-20) 的作者，以及记者 [凯瑟琳·巴布-穆吉拉](https://catherinebaabmuguira.contently.com/) ，她在 Quartz 上写了一个关于 [千禧一代和 side hustles](https://qz.com/711773/millennials-are-obsessed-with-side-hustles-because-theyre-all-weve-got/) 的揭露性故事。此外，我们的制作人走上街头，从日常生活中了解人们在做什么样的兼职。
 

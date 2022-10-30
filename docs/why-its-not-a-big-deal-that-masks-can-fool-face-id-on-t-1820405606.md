@@ -1,6 +1,6 @@
 # 为什么口罩能在 iPhone X 上骗过 Face ID 没什么大不了的
 
-> 原文:[https://life hacker . com/why-it ' s not-a-deal-that-masks-can-fool-face-id-on-t-1820405606](https://lifehacker.com/why-its-not-a-big-deal-that-masks-can-fool-face-id-on-t-1820405606)
+> 原文：<https://lifehacker.com/why-its-not-a-big-deal-that-masks-can-fool-face-id-on-t-1820405606>
 
 当苹果首次宣布 iPhone X 的 [Face ID 时，它声称这一新功能比触控 ID 安全得多，甚至连最逼真的面具都骗不了。但事实可能并非如此。](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) 
 

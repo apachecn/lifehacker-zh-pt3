@@ -1,6 +1,6 @@
 # 今年二月我们都在做俯卧撑
 
-> 原文:[https://life hacker . com/were-all-doing-pumps-this-two-1822600541](https://lifehacker.com/were-all-doing-push-ups-this-february-1822600541)
+> 原文：<https://lifehacker.com/were-all-doing-push-ups-this-february-1822600541>
 
 准备好迎接 Lifehacker 健身挑战的新篇章了吗？在一月份，我们在适合我们每个人的水平上做引体向上 。在二月份，我们坚持上半身练习，但是改变了脚本:每天，尝试做至少一个俯卧撑。
 

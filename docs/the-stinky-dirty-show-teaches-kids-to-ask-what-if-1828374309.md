@@ -1,6 +1,6 @@
 # “臭脏秀”教孩子们问:“如果呢？”
 
-> 原文:[https://life hacker . com/the-stinky-dirty-show-teaches-kids-to-ask-what-if-1828374309](https://lifehacker.com/the-stinky-dirty-show-teaches-kids-to-ask-what-if-1828374309)
+> 原文：<https://lifehacker.com/the-stinky-dirty-show-teaches-kids-to-ask-what-if-1828374309>
 
 市里出了点问题。一辆自动倾卸卡车不知不觉地把装满保龄球的箱子扔到了街上——这些球本该送到保龄球馆的。垃圾车 Stinky 和反铲装载机 Dirty 看到这一切，决定自己把球送到目的地。但是怎么做呢？他们尝试不同的策略。如果他们把每一个都放进臭蛋的垃圾桶呢？这要花很长时间。如果他们把它们扔在那里呢？(*那可以，但是卡车会太重而无法移动*。)如果他们把球推到那里呢？(*嗯，现在我们有进展了。)如果他们把它们放进一个巨大的鸟巢里，这样一只巨大的鸟就会认为它们是她的蛋，并用她的嘴来运送它们，那会怎么样？(*嗯嗯，让我们回到头脑风暴*。)* 
 

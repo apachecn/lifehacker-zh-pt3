@@ -1,6 +1,6 @@
 # 如何安全地从孩子的鼻子里取出一个小东西
 
-> 原文:[https://life hacker . com/how-to-safely-get-a-tiny-object-out-of-your-child-s-nos-1795728239](https://lifehacker.com/how-to-safely-get-a-tiny-object-out-of-your-child-s-nos-1795728239)
+> 原文：<https://lifehacker.com/how-to-safely-get-a-tiny-object-out-of-your-child-s-nos-1795728239>
 
 我不知道为什么，但是孩子们有时决定把东西塞到他们的鼻子里。(我自己的孩子还没有试过这个，尽管我们不得不去看医生，在耳朵里放一个乐高玩具。)实际上有一个简单的、海姆利希式的技巧可以安全地将物体取出来，而且通常是有效的。
 

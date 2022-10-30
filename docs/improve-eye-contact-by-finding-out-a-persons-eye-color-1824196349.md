@@ -1,6 +1,6 @@
 # 通过找出一个人眼睛的颜色来改善眼神交流
 
-> 原文:[https://life hacker . com/improve-eye-contact-by-finding-out-a-persons-eye-color-1824196349](https://lifehacker.com/improve-eye-contact-by-finding-out-a-persons-eye-color-1824196349)
+> 原文：<https://lifehacker.com/improve-eye-contact-by-finding-out-a-persons-eye-color-1824196349>
 
 这本书*非语言优势*告诉我们，在人类生存的早期，能够保持目光接触的儿童——因此吸引人们的注意力——最有机会得到喂养和照顾。
 

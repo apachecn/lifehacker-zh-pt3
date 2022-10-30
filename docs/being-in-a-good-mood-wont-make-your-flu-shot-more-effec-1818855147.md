@@ -1,6 +1,6 @@
 # 心情好不会让你的流感疫苗更有效
 
-> 原文:[https://life hacker . com/be-in-a-good-mood-wot-make-your-flu-shot-effect-1818855147](https://lifehacker.com/being-in-a-good-mood-wont-make-your-flu-shot-more-effec-1818855147)
+> 原文：<https://lifehacker.com/being-in-a-good-mood-wont-make-your-flu-shot-more-effec-1818855147>
 
 快到流感季节了，这意味着注射流感疫苗的季节。《纽约时报》指出，好心情可以提高你对疫苗的免疫反应，给你多一个开心去药店的理由。糟糕的是，这个令人感觉良好的标题只是由一些粗略的统计数据支持的。
 

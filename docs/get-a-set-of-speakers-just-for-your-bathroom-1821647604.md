@@ -1,6 +1,6 @@
 # 为你的浴室准备一套扬声器
 
-> 原文:[https://life hacker . com/get-a-set-a-set-of-speakers-just-for-your-浴室-1821647604](https://lifehacker.com/get-a-set-of-speakers-just-for-your-bathroom-1821647604)
+> 原文：<https://lifehacker.com/get-a-set-of-speakers-just-for-your-bathroom-1821647604>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑正在磨练我们的纵横字谜技巧，最终画出正确的眼线，减少标签混乱，并为我们的宠物购买衣服。
 

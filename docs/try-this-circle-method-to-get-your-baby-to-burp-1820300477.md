@@ -1,6 +1,6 @@
 # 试试这个“圆圈法”让宝宝打嗝
 
-> 原文:[https://life hacker . com/try-this-circle-method-to-get-your-baby-to-burp-1820300477](https://lifehacker.com/try-this-circle-method-to-get-your-baby-to-burp-1820300477)
+> 原文：<https://lifehacker.com/try-this-circle-method-to-get-your-baby-to-burp-1820300477>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-6boVy5aF4kg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-6boVy5aF4kg&start=0) 
 

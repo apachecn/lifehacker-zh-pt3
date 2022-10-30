@@ -1,6 +1,6 @@
 # 如何在谷歌地图上分享您的位置(并查看朋友的剩余电池寿命)
 
-> 原文:[https://life hacker . com/how-to-share-your-location-and-see-friends-remaining-b-1828071801](https://lifehacker.com/how-to-share-your-location-and-see-friends-remaining-b-1828071801)
+> 原文：<https://lifehacker.com/how-to-share-your-location-and-see-friends-remaining-b-1828071801>
 
 当你和一大群人一起旅行时，你似乎总是会收到或发出“你们在哪里？!"文本，尤其是在一年中音乐节如火如荼的时候。
 

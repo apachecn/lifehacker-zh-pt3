@@ -1,6 +1,6 @@
 # 如何学会用手走路
 
-> 原文:[https://life hacker . com/how-to-learn-to-walk-on-your-hands-1828634979](https://lifehacker.com/how-to-learn-to-walk-on-your-hands-1828634979)
+> 原文：<https://lifehacker.com/how-to-learn-to-walk-on-your-hands-1828634979>
 
 当我还是个孩子的时候，我认识一些能用手走路的孩子。我认为这是一种几乎任何人都可以做的事情，如果他们愿意尝试学习的话，就像侧手翻或骑自行车一样。我不能，但是，嗯，我只是不想。总有一天我会练习，然后我会成为徒手行走的大师。
 

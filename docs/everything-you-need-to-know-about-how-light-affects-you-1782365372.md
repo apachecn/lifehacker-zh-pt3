@@ -1,6 +1,6 @@
 # 你需要知道的关于光线如何影响睡眠的一切
 
-> 原文:[https://life hacker . com/everything-you-needle-to-know-how-light-affects-you-1782365372](https://lifehacker.com/everything-you-need-to-know-about-how-light-affects-you-1782365372)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-how-light-affects-you-1782365372>
 
 现代生活就是不断创新，摆脱我们的无能。我们不能飞，不能住在 20 层楼高的空中，也不能和新西兰的朋友说话。(buzzkill alert)没有太阳照耀的时候，我们不应该醒着。在我们现在能做的所有事情中，后者可能是最普遍的。如果说我们掌握了什么，那就是轻。在很大程度上，这是个好消息；“白天”的额外时间意味着我们可以有更长的社交时间，完成更多的工作。
 

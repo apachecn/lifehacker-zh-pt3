@@ -1,6 +1,6 @@
 # 如何将你的旧 iPhone 变成一部可爱的简约功能手机
 
-> 原文:[https://life hacker . com/how-to-turn-your-old-iphone-to-a-cute-minimalistic-Fe-1822375239](https://lifehacker.com/how-to-turn-your-old-iphone-into-a-cute-minimalistic-fe-1822375239)
+> 原文：<https://lifehacker.com/how-to-turn-your-old-iphone-into-a-cute-minimalistic-fe-1822375239>
 
 如果你还拥有一部 iPhone 4，它很可能正躺在抽屉里积满灰尘。你可能想过扔掉它，但现在你终于可以用你的 [旧智能手机](https://lifehacker.com/seven-ways-to-reuse-and-get-creative-with-your-old-ipho-5576310) 做些有用的事情了:把它变成一部 [功能手机](https://lifehacker.com/five-best-feature-phones-1518601513) 。
 

@@ -1,6 +1,6 @@
 # TabBank 让创作自己的吉他音乐比以往任何时候都更容易
 
-> 原文:[https://life hacker . com/tab bank-makes-writing-your-own-guitar-music-easy than-1797305500](https://lifehacker.com/tabbank-makes-writing-your-own-guitar-music-easier-than-1797305500)
+> 原文：<https://lifehacker.com/tabbank-makes-writing-your-own-guitar-music-easier-than-1797305500>
 
 虽然用笔和纸写下歌词和吉他和弦非常简单，但 TabBank 让它在你的 iOS 设备上也同样简单。这就像输入文本一样简单。
 

@@ -1,6 +1,6 @@
 # 如何将一罐三文鱼变成美味的小吃
 
-> 原文:[https://life hacker . com/how-to-turn-a-can-of-salmon-to-fancy-canapes-1826967564](https://lifehacker.com/how-to-turn-a-can-of-salmon-into-fancy-canapes-1826967564)
+> 原文：<https://lifehacker.com/how-to-turn-a-can-of-salmon-into-fancy-canapes-1826967564>
 
 金枪鱼可能是市场上最受欢迎的罐装鱼，但它的形象与学校午餐和偶尔的晚餐融化紧密联系在一起。另一方面，罐装三文鱼有能力超越自己的地位，甚至在奇特的情况下也能让人眼花缭乱、心旷神怡。你只需要用一点点尊重来对待它。
 

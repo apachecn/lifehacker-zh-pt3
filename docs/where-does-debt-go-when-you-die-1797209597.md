@@ -1,6 +1,6 @@
 # 你死后债务去了哪里？
 
-> 原文:[https://life hacker . com/1797209597](https://lifehacker.com/where-does-debt-go-when-you-die-1797209597)
+> 原文：<https://lifehacker.com/where-does-debt-go-when-you-die-1797209597>
 
 不幸的是，即使你离开了，你的债务仍然存在。虽然这不一定意味着你的孩子或配偶会继承一个财务烂摊子，但在某些情况下，他们可能要对你留下的一些债务负责。
 

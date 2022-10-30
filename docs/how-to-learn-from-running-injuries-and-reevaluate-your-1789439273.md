@@ -1,6 +1,6 @@
 # 如何从跑步受伤中吸取教训并重新评估你的日常活动
 
-> 原文:[https://life hacker . com/how-to-learn-from-running-injuries-and-re-evaluate-your-1789439273](https://lifehacker.com/how-to-learn-from-running-injuries-and-reevaluate-your-1789439273)
+> 原文：<https://lifehacker.com/how-to-learn-from-running-injuries-and-reevaluate-your-1789439273>
 
 跑步受伤是最严重的。它们会削弱你的动力，迫使你袖手旁观，眼睁睁地看着你辛辛苦苦获得的健康付诸东流。如果你和我一样，你也有过跑步受伤的经历，这很快结束了你的跑步目标。
 

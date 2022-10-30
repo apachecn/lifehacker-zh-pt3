@@ -1,6 +1,6 @@
 # 悬浮教练摊牌:TRX vs 蒙克酒吧 2
 
-> 原文:[https://life hacker . com/suspension-trainer-摊牌-Trx-vs-monk ii-bars-2-1791102713](https://lifehacker.com/suspension-trainer-showdown-trx-vs-monkii-bars-2-1791102713)
+> 原文：<https://lifehacker.com/suspension-trainer-showdown-trx-vs-monkii-bars-2-1791102713>
 
 悬浮训练器就像一个 [健身房，你可以去任何地方](http://thefyslife.com/article/travel-and-work-out-without-weights/) 。TRX 是目前流行的宠儿，被用于家庭和新兵训练营进行体重训练，但 monkii bars 2 在美学和功能方面都让它跑了一圈。两者都为你的锻炼增加了 [和](http://vitals.lifehacker.com/everything-you-need-to-build-your-own-bodyweight-workou-1770226539#_ga=1.163489081.460803763.1483850531) 的多样性，并且 [让你可以在任何地方进行锻炼](http://thefyslife.com/article/travel-and-work-out-without-weights/) ，但是让我们看看它们在重要的类别中表现如何。
 

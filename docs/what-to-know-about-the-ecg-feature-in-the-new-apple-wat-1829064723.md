@@ -1,6 +1,6 @@
 # 关于新款 Apple Watch 中的心电图功能，您需要了解什么
 
-> 原文:[https://life hacker . com/what-to-know-about-the-new-apple-wat-1829064723](https://lifehacker.com/what-to-know-about-the-ecg-feature-in-the-new-apple-wat-1829064723)
+> 原文：<https://lifehacker.com/what-to-know-about-the-ecg-feature-in-the-new-apple-wat-1829064723>
 
 售价 399 美元的新款苹果手表 将能够测量你的心脏电活动，其开创性的心电图或 EKG 功能。(两个首字母缩写都代表“心电图”。)但是有一些重要的警告。
 

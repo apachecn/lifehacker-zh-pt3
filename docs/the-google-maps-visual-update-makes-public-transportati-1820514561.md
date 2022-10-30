@@ -1,6 +1,6 @@
 # 谷歌地图的视觉更新使公共交通更容易找到
 
-> 原文:[https://life hacker . com/the-Google-maps-visual-update-makes-public-transportati-1820514561](https://lifehacker.com/the-google-maps-visual-update-makes-public-transportati-1820514561)
+> 原文：<https://lifehacker.com/the-google-maps-visual-update-makes-public-transportati-1820514561>
 
 谷歌 [正在推出其地图应用](https://blog.google/products/maps/google-maps-gets-new-look/) 的更新，给它一个更新的视觉风格，更容易识别的标记，以及上下文感知的信息。如果你在使用公共交通工具时容易迷失方向，或者在公路旅行中对寻找加油站感到沮丧，更新可以更容易地知道你要去哪里，你周围有什么，如果你错过了你的车站，你会在哪里结束。
 

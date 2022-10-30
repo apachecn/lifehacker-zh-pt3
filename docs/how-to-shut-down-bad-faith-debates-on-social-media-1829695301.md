@@ -1,6 +1,6 @@
 # 如何关闭社交媒体上的恶意“辩论”
 
-> 原文:[https://life hacker . com/how-to-shut-down-bad-faith-defenses-on-social-media-1829695301](https://lifehacker.com/how-to-shut-down-bad-faith-debates-on-social-media-1829695301)
+> 原文：<https://lifehacker.com/how-to-shut-down-bad-faith-debates-on-social-media-1829695301>
 
 他们真的不想和你辩论，那些爬进你的脸书帖子、你的推文和你的博客帖子的评论的随机者(嗨！)要求和你“辩论”我们现在应该都同意的狗屎。你不能用任何有意义的方式去辩论他们，因为他们是没有耳朵的嘴巴。你可以屏蔽它们，或者将你的账户转为私有，但这可能会让你感到沮丧和无力。你如何在离开这种情况时感到满意？
 

@@ -1,6 +1,6 @@
 # 小心泽尔骗局
 
-> 原文:[https://lifehacker.com/watch-out-for-zelle-scams-1825526486](https://lifehacker.com/watch-out-for-zelle-scams-1825526486)
+> 原文：<https://lifehacker.com/watch-out-for-zelle-scams-1825526486>
 
 到目前为止，大多数用户都意识到了像 Venmo 和 PayPal 这样的支付系统的安全弱点:你应该只向你认识的人汇款，你不应该用它来购买产品或服务，你绝对不应该用它来让你不认识的人 支付 [，他们可以在交易完成前简单地取消交易。事实证明，](https://lifehacker.com/how-to-not-get-scammed-when-selling-things-online-1825190225) [Zelle](https://lifehacker.com/zelle-is-your-new-friend-paying-service-1796061030) ，一个最近被银行用来与 Venmo 竞争的支付系统，也有一些严重的漏洞。
 

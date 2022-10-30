@@ -1,6 +1,6 @@
 # 我是诺亚·罗斯鲍姆，每日野兽的首席鸡尾酒记者，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Noah-Roth Baum-chief-cocktail-communicator-at-the-d-1785041679](https://lifehacker.com/im-noah-rothbaum-chief-cocktail-correspondent-at-the-d-1785041679)
+> 原文：<https://lifehacker.com/im-noah-rothbaum-chief-cocktail-correspondent-at-the-d-1785041679>
 
 当你需要喝一杯时，诺亚·罗斯鲍姆是合适的倾诉对象。他是《Liquor.com》的创始编辑，写过关于酒类行业的书籍，并作为首席鸡尾酒记者在《每日野兽》 上开辟了一个新的 [食品和饮料专栏。](http://www.thedailybeast.com/drink-and-food.html)
 

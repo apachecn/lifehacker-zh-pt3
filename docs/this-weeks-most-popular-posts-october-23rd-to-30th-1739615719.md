@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 23 日至 30 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 23 日至 30 日-1739615719](https://lifehacker.com/this-weeks-most-popular-posts-october-23rd-to-30th-1739615719)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-23rd-to-30th-1739615719>
 
 我们的年度邪恶周系列有点黑暗——我们上了一堂关于秘密公开放屁的课，学习了如何远程监控计算机和创建一个无法追踪的消息设备，但也看了一些更无害的技巧。这里回顾一下。
 

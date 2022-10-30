@@ -1,6 +1,6 @@
 # 在你的薪资谈判中，招聘经理在想什么
 
-> 原文:[https://life hacker . com/what-writing-managers-what-thinking-your-salary-ne-1789567837](https://lifehacker.com/what-hiring-managers-are-thinking-during-your-salary-ne-1789567837)
+> 原文：<https://lifehacker.com/what-hiring-managers-are-thinking-during-your-salary-ne-1789567837>
 
 当你的朋友得到工作机会时，告诉他们谈判是很容易的。但是当涉及到你的时候？有一个唠叨的声音在说，“不要做任何可能会毁了这一切的事情。”虽然你会告诉你的朋友深呼吸，放松，但当你觉得自己激动人心的新职位仍悬而未决时，这种反应是很自然的。
 

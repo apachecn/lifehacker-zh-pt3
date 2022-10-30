@@ -1,6 +1,6 @@
 # 面试时没有好答案该怎么说
 
-> 原文:[https://life hacker . com/what-to-say-when-you-don ' t-a-an-inte-1798350516](https://lifehacker.com/what-to-say-when-you-dont-have-a-good-answer-in-an-inte-1798350516)
+> 原文：<https://lifehacker.com/what-to-say-when-you-dont-have-a-good-answer-in-an-inte-1798350516>
 
 面试官通常会请你 分享与你面试的工作相关的具体经验或技能，但是如果你没有经历过确切的情况或者没有使用过他们提到的工具，你可能会出错。以下是要说的内容，这样即使你没有与他们的具体问题相匹配的答案，你也能成为一名优秀的候选人。
 

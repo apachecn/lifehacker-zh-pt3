@@ -1,6 +1,6 @@
 # 在 Message 的 App Store 中查看最酷的东西
 
-> 原文:[https://life hacker . com/what-to-check-out-in-message-s-app-store-1819059597](https://lifehacker.com/what-to-check-out-in-message-s-app-store-1819059597)
+> 原文：<https://lifehacker.com/what-to-check-out-in-message-s-app-store-1819059597>
 
 iOS:如果你生活在你的信息群聊中，你就会知道分享除了自己照片以外的东西有多麻烦。进出其他应用程序，复制和粘贴链接，寻找似乎每次都在不同位置的分享按钮——这可能会令人沮丧。幸运的是，您可以使用 Message 的 App Store 来消除切换应用程序的烦恼，它就在“信息”应用程序中您的文本框旁边。里面有一些有用的工具，有一些可靠的服务，可以帮助你与朋友分享音乐，预订周日早午餐，甚至在你忘记带卡时支付早午餐的费用。
 

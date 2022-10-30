@@ -1,6 +1,6 @@
 # 是时候永久埋葬葬礼自拍了
 
-> 原文:[https://life hacker . com/its-time-to-bury-pierre-self-ties-for-good-1822542273](https://lifehacker.com/its-time-to-bury-funeral-selfies-for-good-1822542273)
+> 原文：<https://lifehacker.com/its-time-to-bury-funeral-selfies-for-good-1822542273>
 
 葬礼是一个记住所爱的人并衷心道别的时刻，而不是吸引别人的注意力。然而，有些人确实是这样做的。仅仅因为你盛装打扮并不意味着一张[#葬礼自拍](https://www.instagram.com/explore/tags/funeralselfie/) 是正当的。
 

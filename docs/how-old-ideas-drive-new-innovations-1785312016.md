@@ -1,6 +1,6 @@
 # 旧思想如何推动新创新
 
-> 原文:[https://life hacker . com/how-old-ideas-drive-new-innovations-1785312016](https://lifehacker.com/how-old-ideas-drive-new-innovations-1785312016)
+> 原文：<https://lifehacker.com/how-old-ideas-drive-new-innovations-1785312016>
 
 2010 年，托马斯·思韦茨决定从头开始制造一台烤面包机。他走进一家商店，买了他能找到的最便宜的烤面包机，然后迅速回家，把它一件一件地拆开。
 

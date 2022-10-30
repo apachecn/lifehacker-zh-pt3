@@ -1,6 +1,6 @@
 # 有史以来最大的水下声音是由什么引起的？
 
-> 原文:[https://gizmodo . com/what-reased-the-loud-the-under-sound-ever-recorded-1827483906](https://gizmodo.com/what-caused-the-loudest-underwater-sound-ever-recorded-1827483906)
+> 原文：<https://gizmodo.com/what-caused-the-loudest-underwater-sound-ever-recorded-1827483906>
 
 1997 年，美国国家海洋和大气管理局的科学家们在记录水下火山活动的声音时，他们听到了一种难以置信的声音——比任何水下探测到的声音都要大——他们最初认为这一定是设备故障。但是另一个水下麦克风收到了同样的噪音...3000 多公里外。
 

@@ -1,6 +1,6 @@
 # 医用大麻帮助了我，而其他任何东西都帮不了我
 
-> 原文:[https://life hacker . com/medical-大麻-help-me-when not-else-can-1770524001](https://lifehacker.com/medical-marijuana-helped-me-when-nothing-else-could-1770524001)
+> 原文：<https://lifehacker.com/medical-marijuana-helped-me-when-nothing-else-could-1770524001>
 
 许多人，也许是大多数人利用大麻的好处来娱乐，也许是因为它很有趣，也许是因为许多政府将这种药物归类为没有医疗益处。今天，我们开始认识到这不是真的。如果你不确定医用大麻如何或为什么会带来重大好处，让我与你分享我的故事。
 

@@ -1,6 +1,6 @@
 # 在家工作时如何对抗孤立
 
-> 原文:[https://life hacker . com/how-to-fight-isolation-when-you-work-from-home-1823220279](https://lifehacker.com/how-to-fight-isolation-when-you-work-from-home-1823220279)
+> 原文：<https://lifehacker.com/how-to-fight-isolation-when-you-work-from-home-1823220279>
 
 尽管你对你的同事不断嘟囔着“那是她说的”翻了翻白眼，尽管每次你在厨房遇到她时都要听 HR 的《猫的故事》中的颂歌很尴尬，但当你开始在家工作时，你开始怀念在办公室里的日常人际交往。周末回顾。午餐搭档。当你穿着和某人相似的服装出现并一起拍照的时候，标签是“办公室双胞胎”。
 

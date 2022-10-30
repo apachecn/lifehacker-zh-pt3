@@ -1,6 +1,6 @@
 # 我是 WhatsApp 产品设计师查理·迪茨，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-whatsapp-product-designer-Charlie-deets-and-this-is-1823558531](https://lifehacker.com/im-whatsapp-product-designer-charlie-deets-and-this-is-1823558531)
+> 原文：<https://lifehacker.com/im-whatsapp-product-designer-charlie-deets-and-this-is-1823558531>
 
 作为 WhatsApp 的首席产品设计师，查理·迪茨每月做出影响超过 15 亿用户的决定。这意味着解决一些不寻常的挑战，比如建立一个即使是文盲用户也能导航的聊天界面。这也意味着将 WhatsApp 的视觉“故事”功能与 Snapchat 和 Instagram 中的类似功能区分开来。
 

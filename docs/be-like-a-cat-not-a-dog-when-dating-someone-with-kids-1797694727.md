@@ -1,6 +1,6 @@
 # 和有孩子的人约会时，要像一只猫，而不是一只狗
 
-> 原文:[https://life hacker . com/be-like-a-cat-not-dog-when-date-someone with-kids-1797694727](https://lifehacker.com/be-like-a-cat-not-a-dog-when-dating-someone-with-kids-1797694727)
+> 原文：<https://lifehacker.com/be-like-a-cat-not-a-dog-when-dating-someone-with-kids-1797694727>
 
 尽管约会可能很复杂(嗯，非常复杂)，但当你把孩子加入到这个等式中时，困惑、情绪和潜在的心痛会增加大约一百倍。如果你的男朋友或女朋友有一个孩子，你不仅仅是在经历一段新的恋情，你还在试图找出你在争夺他或她的注意的人群中的位置，以及如何在不越界的情况下建立联系。
 

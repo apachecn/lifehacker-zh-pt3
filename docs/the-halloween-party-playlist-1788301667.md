@@ -1,6 +1,6 @@
 # 万圣节派对播放列表
 
-> 原文:[https://life hacker . com/the-Halloween-party-playlist-1788301667](https://lifehacker.com/the-halloween-party-playlist-1788301667)
+> 原文：<https://lifehacker.com/the-halloween-party-playlist-1788301667>
 
 万圣节就要到了，这意味着万圣节派对的时间到了。本周的播放列表会为你处理音乐，这样你就可以挂上更多的装饰品，制作你的服装。
 

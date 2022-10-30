@@ -1,6 +1,6 @@
 # 货比三家，寻找更好的机器人护目镜
 
-> 原文:[https://life hacker . com/shop-bound-for-a-better-roboad visor-1823922860](https://lifehacker.com/shop-around-for-a-better-roboadvisor-1823922860)
+> 原文：<https://lifehacker.com/shop-around-for-a-better-roboadvisor-1823922860>
 
 你应该一直关注金融产品的费用和定价，但现在它比以往任何时候都更重要。最新提醒:财富前线(wealth front)以其低费用、被动投资选项而闻名，不久将开始向所有新用户收取 0.25%的咨询费，并将以 0.50%的费用自动将富有的投资者登记到一只新基金中。
 

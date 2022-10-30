@@ -1,6 +1,6 @@
 # 亨特·S·汤普森的最佳生活小贴士
 
-> 原文:[https://life hacker . com/hunter-s-thompsons-best-life-tips-1730089346](https://lifehacker.com/hunter-s-thompsons-best-life-tips-1730089346)
+> 原文：<https://lifehacker.com/hunter-s-thompsons-best-life-tips-1730089346>
 
 亨特·S·汤普森并不完全是众所周知的圣人，人们也不倾向于向这位嗜药、有点疯狂的记者寻求人生建议。然而，通过他的边缘生活方式和与众不同的观点，他提供了许多适用于我们所有人的生活建议。
 

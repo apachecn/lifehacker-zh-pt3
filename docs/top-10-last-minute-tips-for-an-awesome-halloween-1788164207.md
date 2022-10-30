@@ -1,6 +1,6 @@
 # 万圣节前十大提示
 
-> 原文:[https://life hacker . com/top-10-last-minute-tips-for-an-awesome-Halloween-1788164207](https://lifehacker.com/top-10-last-minute-tips-for-an-awesome-halloween-1788164207)
+> 原文：<https://lifehacker.com/top-10-last-minute-tips-for-an-awesome-halloween-1788164207>
 
 万圣节就要到了——比如，你们中的一些人今晚可能会举办怪异的派对，而另一些人可能会把它们留到那天。如果你没有服装、怪异的装饰或者任何准备，这些建议会有帮助。
 

@@ -1,6 +1,6 @@
 # 事实-点击两下就能检查病毒图片
 
-> 原文:[https://life hacker . com/fact-check-that-viral-image-in-two-clicks-1798538832](https://lifehacker.com/fact-check-that-viral-image-in-two-clicks-1798538832)
+> 原文：<https://lifehacker.com/fact-check-that-viral-image-in-two-clicks-1798538832>
 
 像飓风哈维这样的重大新闻事件会产生数以千计的照片，以及数以千计的虚假、过时或断章取义的照片的推文和脸书帖子。这一次最大的赢家是高速公路上鲨鱼的 Photoshop，它在每次重大飓风期间都会出现。
 

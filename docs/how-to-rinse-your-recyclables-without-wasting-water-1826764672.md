@@ -1,6 +1,6 @@
 # 如何冲洗可回收物品而不浪费水
 
-> 原文:[https://life hacker . com/how-to-rinse-your-recycles ables-without-wasted-water-1826764672](https://lifehacker.com/how-to-rinse-your-recyclables-without-wasting-water-1826764672)
+> 原文：<https://lifehacker.com/how-to-rinse-your-recyclables-without-wasting-water-1826764672>
 
 我们告诉你要清洗可回收物品。 “但是浪费的水呢？”你问问。所以我们问了一些科学家。简短的回答是，快速冲洗通常是值得的。长回答也挺有意思的！
 

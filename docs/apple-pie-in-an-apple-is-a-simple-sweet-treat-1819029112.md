@@ -1,6 +1,6 @@
 # 苹果中的苹果派是一种简单的甜食
 
-> 原文:[https://life hacker . com/apple-pie-in-an-apple-is-a-simple-sweet-treat-1819029112](https://lifehacker.com/apple-pie-in-an-apple-is-a-simple-sweet-treat-1819029112)
+> 原文：<https://lifehacker.com/apple-pie-in-an-apple-is-a-simple-sweet-treat-1819029112>
 
 欢迎回到周日营养！我写这篇文章的时候气温是 57 度，这意味着秋天终于来了。在新英格兰，这意味着在接下来的三到四个月里，我们的酒窖和门廊将很快堆满大量的苹果，还有比馅饼更好的用途吗？
 

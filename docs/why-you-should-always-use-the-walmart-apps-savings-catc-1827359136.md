@@ -1,6 +1,6 @@
 # 为什么你应该一直使用沃尔玛应用程序的“储蓄捕捉器”
 
-> 原文:[https://life hacker . com/why-you-should-always-use-the-Walmart-apps-savings-catc-1827359136](https://lifehacker.com/why-you-should-always-use-the-walmart-apps-savings-catc-1827359136)
+> 原文：<https://lifehacker.com/why-you-should-always-use-the-walmart-apps-savings-catc-1827359136>
 
 **iOS，Android:** 我不是一个超级沃尔玛购物者，但如果我是——例如，因为他们有某种 [复古游戏系统](https://lifehacker.com/how-to-buy-a-nes-classic-this-week-1827180078)——我肯定会确保我走进商店，准备好智能手机。你可能会认为沃尔玛的 Android和 iOS应用程序没有什么本质上的特别之处，但它实际上包含了一个聪明的小技巧，随着时间的推移，可以为你的购买节省一大笔现金。
 

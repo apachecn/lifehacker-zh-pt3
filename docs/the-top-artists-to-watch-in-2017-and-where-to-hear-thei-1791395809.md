@@ -1,6 +1,6 @@
 # 2017 年最受关注的艺术家以及在哪里听他们的音乐
 
-> 原文:[https://life hacker . com/the-top-artists-to-watch-in-2017-and-where-to-head the I-1791395809](https://lifehacker.com/the-top-artists-to-watch-in-2017-and-where-to-hear-thei-1791395809)
+> 原文：<https://lifehacker.com/the-top-artists-to-watch-in-2017-and-where-to-hear-thei-1791395809>
 
 新的一年带来了新的歌手、音乐家、作曲家和说唱歌手，他们将永远改变乐坛。这些是今年值得你关注的艺术家。
 

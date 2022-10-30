@@ -1,6 +1,6 @@
 # 《权力的游戏》黑人指南
 
-> 原文:[https://www . the root . com/the-black-persons-guide-to-game-of-thrones-1796847562](https://www.theroot.com/the-black-persons-guide-to-game-of-thrones-1796847562)
+> 原文：<https://www.theroot.com/the-black-persons-guide-to-game-of-thrones-1796847562>
 
 我和一个朋友谈论我的周末计划，我告诉她我可能不会做太多事情，因为我可能会紧张地等待《权力的游戏》第一季的首播。她的回答让我不知所措，彻底震撼了我，让我重新思考我一生中所做的许多选择。
 

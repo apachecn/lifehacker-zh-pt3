@@ -1,6 +1,6 @@
 # 你用错了你的停车灯
 
-> 原文:[https://jalopnik . com/you-use-your-parking-lights-wrong-1822884831](https://jalopnik.com/youre-using-your-parking-lights-wrong-1822884831)
+> 原文：<https://jalopnik.com/youre-using-your-parking-lights-wrong-1822884831>
 
 你知道汽车上最容易被误解的灯是什么吗？停车灯。几乎没有人按照他们最初的意图使用它们，当我意外地*按照他们的意图使用了*时，结果对我来说是一场灾难。再来说说停车灯。
 

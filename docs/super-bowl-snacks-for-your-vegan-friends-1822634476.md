@@ -1,6 +1,6 @@
 # 给你的素食朋友的超级碗小吃
 
-> 原文:[https://life hacker . com/super-bowl-零食给你的素食主义者朋友-1822634476](https://lifehacker.com/super-bowl-snacks-for-your-vegan-friends-1822634476)
+> 原文：<https://lifehacker.com/super-bowl-snacks-for-your-vegan-friends-1822634476>
 
 贾斯汀·汀布莱克(Justin Timberlake)将于本周日举办一场备受关注的演唱会，与任何类型的娱乐消费一样， [你可能想吃点零食](https://www.youtube.com/watch?v=2a1LV1IeG8U) 。如果你是一个像我一样的杂食垃圾熊猫，这是一个简单的任务。但是，如果你不吃动物和它们的副产品，沉迷于咸的，多脂肪的，有味道的狂欢，这是一个超级碗观看传播可能是一个独特的挑战。
 

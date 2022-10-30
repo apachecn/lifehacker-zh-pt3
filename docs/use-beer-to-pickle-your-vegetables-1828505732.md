@@ -1,6 +1,6 @@
 # 用啤酒腌制蔬菜
 
-> 原文:[https://life hacker . com/use-beer-to-泡菜-1828505732](https://lifehacker.com/use-beer-to-pickle-your-vegetables-1828505732)
+> 原文：<https://lifehacker.com/use-beer-to-pickle-your-vegetables-1828505732>
 
 我从来不酷(？)足够被邀请参加大学里的“啤酒聚会”，但我确实喝了很多啤酒，还主持了几次聚会。因为每个与会者通常会带一箱他们喜欢的廉价啤酒，所以第二天早上我经常会发现我的许多瓶瓶罐罐的啤酒散落在我的公寓里。(我的意思是，我喝了，但我希望我也做了一些啤酒泡菜。)
 

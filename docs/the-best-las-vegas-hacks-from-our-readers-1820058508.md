@@ -1,6 +1,6 @@
 # 来自我们读者的最佳拉斯维加斯黑客
 
-> 原文:[https://life hacker . com/the-best-las-Vegas-hacks-from-our-readers-1820058508](https://lifehacker.com/the-best-las-vegas-hacks-from-our-readers-1820058508)
+> 原文：<https://lifehacker.com/the-best-las-vegas-hacks-from-our-readers-1820058508>
 
 拉斯维加斯可能是美国遭受黑客攻击最多的城市。如果你在谷歌上搜索旅游贴士，当你点击“我感觉很幸运”时，你会得到一瓶免费的井威士忌和 20 美元的老虎机现在，互联网上又多了一个以罪恶概念命名的城镇指南。在本周的《黑客入侵你的城市》节目中，我们向《生活黑客》的读者 询问了拉斯维加斯的黑客。以下是最受欢迎的歌曲。
 

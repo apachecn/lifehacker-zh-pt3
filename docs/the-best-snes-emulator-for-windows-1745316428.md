@@ -1,6 +1,6 @@
 # 最好的 SNES 视窗模拟器
 
-> 原文:[https://life hacker . com/the-best-snes-emulator-for-windows-1745316428](https://lifehacker.com/the-best-snes-emulator-for-windows-1745316428)
+> 原文：<https://lifehacker.com/the-best-snes-emulator-for-windows-1745316428>
 
 虽然超级任天堂已经有 25 年的历史了，但它仍然拥有一些有史以来最好的视频游戏。如果你想在你的 Windows 机器上进行 SNES，我们认为最好的模拟器是使用 bsnes 内核进行回溯。
 

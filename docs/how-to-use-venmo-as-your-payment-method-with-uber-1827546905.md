@@ -1,6 +1,6 @@
 # 如何使用 Venmo 作为您在优步的付款方式
 
-> 原文:[https://life hacker . com/how-to-use-venmo-as-your-payment-method-with-Uber-1827546905](https://lifehacker.com/how-to-use-venmo-as-your-payment-method-with-uber-1827546905)
+> 原文：<https://lifehacker.com/how-to-use-venmo-as-your-payment-method-with-uber-1827546905>
 
 优步宣布了一项新的更新，允许用户在使用优步和优步 Eats 时将 Venmo 添加为支付方式。据报道，该功能将在未来几周内推出，但官方发布日期尚未给出。
 

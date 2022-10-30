@@ -1,6 +1,6 @@
 # 腌制的中国茄子是我向厨师要过的唯一一份食谱
 
-> 原文:[https://the take out . com/卤制中国茄子是唯一的食谱 1826406331](https://thetakeout.com/marinated-chinese-eggplant-is-the-only-recipe-ive-ever-1826406331)
+> 原文：<https://thetakeout.com/marinated-chinese-eggplant-is-the-only-recipe-ive-ever-1826406331>
 
 曾经有负罪感 [向厨师要菜谱](https://thetakeout.com/ask-the-salty-waitress-how-do-i-ask-for-a-restaurant-s-1826265906) 。以一种拐弯抹角、荒谬的方式，在家里做这道菜让我感觉好像是在从创造者那里抢生意。然而，我在芝加哥论坛报*做了七年的餐馆评论家，这是我的一次例外。这是我在 [Urban Belly](https://www.urbanbellychicago.com/) 吃的一道腌制的中国茄子配菜，那是一家我认为是中西部的 [Momofuku 面条吧](https://noodlebar-ny.momofuku.com/) 的餐馆。主厨比尔·金(Bill Kim)开的那家餐厅帮助引领了拉面文化在芝加哥的主流化。*
 

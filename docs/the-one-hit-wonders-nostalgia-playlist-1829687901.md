@@ -1,6 +1,6 @@
 # 热门歌曲怀旧播放列表
 
-> 原文:[https://life hacker . com/the-one-hit-wonders-怀旧-播放列表-1829687901](https://lifehacker.com/the-one-hit-wonders-nostalgia-playlist-1829687901)
+> 原文：<https://lifehacker.com/the-one-hit-wonders-nostalgia-playlist-1829687901>
 
 一首歌老了，不代表会引发怀旧。如果让碧昂斯定期轮换，听《恋爱中的疯子》大概不会每次都带你回到 2003 年。但我发现了一种更有可能引发怀旧情绪的音乐:风靡一时的《奇迹》。
 

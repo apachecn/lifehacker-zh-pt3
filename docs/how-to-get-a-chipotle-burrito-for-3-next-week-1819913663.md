@@ -1,6 +1,6 @@
 # 如何用 3 美元买到墨西哥卷饼
 
-> 原文:[https://life hacker . com/how-to-get-a chipotle-for-3-week-1819913663](https://lifehacker.com/how-to-get-a-chipotle-burrito-for-3-next-week-1819913663)
+> 原文：<https://lifehacker.com/how-to-get-a-chipotle-burrito-for-3-next-week-1819913663>
 
 除了装满免费糖果的袋子之外，在这个万圣节装扮自己还可以为你赢得一份打折的墨西哥卷饼。
 

@@ -1,6 +1,6 @@
 # 当你的室友总是吃得像垃圾一样时，如何吃得健康
 
-> 原文:[https://life hacker . com/how-to-eat-healthy-when your-roommate-eat-like-crap-al-1785051660](https://lifehacker.com/how-to-eat-healthy-when-your-roommate-eats-like-crap-al-1785051660)
+> 原文：<https://lifehacker.com/how-to-eat-healthy-when-your-roommate-eats-like-crap-al-1785051660>
 
 如果你想在大学里吃得健康，有很多因素会对你不利:紧张的预算，餐厅有限的选择，当然还有你的朋友和室友。我们已经帮助你 [在预算内吃](http://twocents.lifehacker.com/a-guide-to-planning-meals-when-you-re-on-a-tight-budget-1573204892)[导航大学食堂](https://lifehacker.com/how-to-eat-healthier-in-college-and-avoid-the-freshma-1723166375) 。现在我们会帮你在吃豆人室友身边吃好。
 

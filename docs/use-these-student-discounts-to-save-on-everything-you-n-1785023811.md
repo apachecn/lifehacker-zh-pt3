@@ -1,6 +1,6 @@
 # 利用这些学生折扣来节省你上大学所需的一切
 
-> 原文:[https://life hacker . com/use-these-student-discounts-to-save-on-everything-you-n-1785023811](https://lifehacker.com/use-these-student-discounts-to-save-on-everything-you-n-1785023811)
+> 原文：<https://lifehacker.com/use-these-student-discounts-to-save-on-everything-you-n-1785023811>
 
 你大学的第一年很贵。你需要衣服、课本、小玩意、化妆品、食物，甚至家具和住处。本质上，你父母为你的一生付出的一大堆垃圾。幸运的是，你可爱的学生折扣可以缓解这种转变。
 

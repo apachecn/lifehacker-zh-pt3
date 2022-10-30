@@ -1,6 +1,6 @@
 # 用这个方便的流程图找出撇号放在哪里
 
-> 原文:[https://life hacker . com/figure-out-to-put-where-the-put-the-handy-1822306431](https://lifehacker.com/figure-out-where-to-put-the-apostrophe-with-this-handy-1822306431)
+> 原文：<https://lifehacker.com/figure-out-where-to-put-the-apostrophe-with-this-handy-1822306431>
 
 对我们中的一些人来说，小学语法课并没有被卡住。直到最近，我还能很好地管理我信赖的风格元素，但是互联网对语法的持续攻击偶尔会动摇我的信心。(每次我想打*缰*、*雨*，或者*在位*的时候，我都需要闭上眼睛沉思片刻。)
 

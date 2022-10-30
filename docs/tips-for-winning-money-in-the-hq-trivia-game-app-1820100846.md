@@ -1,6 +1,6 @@
 # 如何在 HQ 琐事游戏 App 中赢钱
 
-> 原文:[https://life hacker . com/tips-for-winning-money-in-the-HQ-trivia-game-app-1820100846](https://lifehacker.com/tips-for-winning-money-in-the-hq-trivia-game-app-1820100846)
+> 原文：<https://lifehacker.com/tips-for-winning-money-in-the-hq-trivia-game-app-1820100846>
 
 如果你还没有开始玩 [HQ 琐事](https://kotaku.com/the-internets-obsessed-with-a-live-trivia-app-1819886541#_ga=2.195821420.1131600261.1509628339-1313785359.1499701416) 你需要 [现在就开始](https://itunes.apple.com/us/app/hq-live-trivia-game-show/id1232278996/) 。免费的 iPhone 应用程序每天提供两次现场琐事，你可以与世界各地的人竞争实际的金钱。
 

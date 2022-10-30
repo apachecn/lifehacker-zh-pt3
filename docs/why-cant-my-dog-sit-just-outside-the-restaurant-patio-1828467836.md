@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:为什么我的狗不能坐在餐厅露台外面？
 
-> 原文:[https://the take out . com/why-cant-my-dog-sit-just-outside-the-restaurant-patio-1828467836](https://thetakeout.com/why-cant-my-dog-sit-just-outside-the-restaurant-patio-1828467836)
+> 原文：<https://thetakeout.com/why-cant-my-dog-sit-just-outside-the-restaurant-patio-1828467836>
 
 > 亲爱的 Salty:我住的镇上有一家餐馆，我以前去过，很喜欢。它在市中心，所以我通常在办完一些事情后去那里。
 > 

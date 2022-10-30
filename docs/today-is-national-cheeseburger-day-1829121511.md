@@ -1,6 +1,6 @@
 # 今天是全国奶酪汉堡日
 
-> 原文:[https://life hacker . com/today-is-national-芝士汉堡-day-1829121511](https://lifehacker.com/today-is-national-cheeseburger-day-1829121511)
+> 原文：<https://lifehacker.com/today-is-national-cheeseburger-day-1829121511>
 
 今天是全国芝士汉堡日，虽然我不太相信这些人为的美食假日——如果你爱自己，每天都是芝士汉堡日——但我确实喜欢一两个。这里有几个地方你可以买到便宜的(或者免费的)汉堡——还有煎饼！)今天:
 

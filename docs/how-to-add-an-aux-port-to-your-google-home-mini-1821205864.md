@@ -1,6 +1,6 @@
 # 如何给你的谷歌迷你主页添加一个辅助端口
 
-> 原文:[https://life hacker . com/how-to-add-an-aux-port-to-your-Google-home-mini-1821205864](https://lifehacker.com/how-to-add-an-aux-port-to-your-google-home-mini-1821205864)
+> 原文：<https://lifehacker.com/how-to-add-an-aux-port-to-your-google-home-mini-1821205864>
 
 [Echo Dot](https://lifehacker.com/the-best-place-for-your-echo-dot-is-actually-on-the-cei-1820916306) 最大的特点(除了 [亚马逊 Alexa 语音控制](https://lifehacker.com/the-first-alexa-skills-to-enable-on-your-new-amazon-ech-1796841634) )可能就是它内置的 aux 端口，这使得它可以很容易地将你的旧扬声器插入冰球形状的设备。不幸的是，谷歌在其类似尺寸的 [家庭迷你](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716) 中没有包括辅助端口，这意味着你需要一个[chrome cast Audio](https://gizmodo.com/chromecast-audio-review-a-cheap-way-to-teach-your-old-1734708179)来连接另一个扬声器——或者你可以尝试自己添加额外的端口。
 

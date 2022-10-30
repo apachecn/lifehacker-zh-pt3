@@ -1,6 +1,6 @@
 # 保存 AirPods 的序列号以替换丢失的部件
 
-> 原文:[https://life hacker . com/save-your-ai rpods-serial-number-to-replace-lost-parts-1823584789](https://lifehacker.com/save-your-airpods-serial-number-to-replace-lost-parts-1823584789)
+> 原文：<https://lifehacker.com/save-your-airpods-serial-number-to-replace-lost-parts-1823584789>
 
 如果你丢失了一个 [AirPods](https://lifehacker.com/keep-your-airpods-in-your-ears-with-this-hack-1821187020) ，苹果会为你提供保护(它只是 [不会便宜](https://gizmodo.com/apple-will-charge-you-70-if-you-lose-an-airpod-1790150664) )，但如果你丢失了 [附带的充电盒](https://lifehacker.com/use-your-airpods-case-as-an-on-the-go-iphone-stand-1820478755) 你可能会遇到一些麻烦。一条 [最近的 Reddit 跟帖](https://www.reddit.com/r/apple/comments/82fkyv/lpt_take_a_screenshot_or_picture_of_your_airpods/) 显示，更换一个丢失的 AirPods 保护套说起来容易做起来难，尤其是当你不记得自己的序列号的时候。
 

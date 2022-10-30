@@ -1,6 +1,6 @@
 # 你应该快速看《权力的游戏》吗？
 
-> 原文:[https://life hacker . com/should-you-speed-watch-game-of-thrones-1797831160](https://lifehacker.com/should-you-speed-watch-game-of-thrones-1797831160)
+> 原文：<https://lifehacker.com/should-you-speed-watch-game-of-thrones-1797831160>
 
 在我们的新系列“观点已被接受”中，特约撰稿人帕特里克·奥斯汀和尼克·道格拉斯讨论了生活窍门、礼仪和最佳实践。在这一集中，我们将讨论“略读”电视节目的价值。你是在包装更多的娱乐，还是在剥夺艺术的价值？尼克认为偶尔浏览一下节目是没问题的。帕特里克认为这是一种罪恶。看我们面对面:
 

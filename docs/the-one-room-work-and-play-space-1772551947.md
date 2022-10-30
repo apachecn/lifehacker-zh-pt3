@@ -1,6 +1,6 @@
 # 一个房间的工作和娱乐空间
 
-> 原文:[https://life hacker . com/the-one-room-work-and-play-space-1772551947](https://lifehacker.com/the-one-room-work-and-play-space-1772551947)
+> 原文：<https://lifehacker.com/the-one-room-work-and-play-space-1772551947>
 
 lorby351 的工作空间藏在客厅的一侧，但这并不意味着它不够整洁、井井有条，不适合安顿下来完成一些真正的工作或娱乐。这里还有一些照片。
 

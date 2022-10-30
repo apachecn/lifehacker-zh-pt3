@@ -1,6 +1,6 @@
 # 未来的黑色赛博朋克播放列表
 
-> 原文:[https://life hacker . com/the-future-noir-cyber punk-playlist-1787250966](https://lifehacker.com/the-future-noir-cyberpunk-playlist-1787250966)
+> 原文：<https://lifehacker.com/the-future-noir-cyberpunk-playlist-1787250966>
 
 现在是 [遥远的未来](https://www.youtube.com/watch?v=AXhYgprPB9o) 。这个世界被霓虹灯、会飞的汽车统治着，一种人工智能可能即将把人类从地球上抹去。不过，至少音乐还不错。
 

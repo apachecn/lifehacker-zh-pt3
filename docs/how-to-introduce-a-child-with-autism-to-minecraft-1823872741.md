@@ -1,6 +1,6 @@
 # 如何向《我的世界》介绍一个自闭症儿童
 
-> 原文:[https://life hacker . com/how-to-introduction-a child with-autism-minecraft-1823872741](https://lifehacker.com/how-to-introduce-a-child-with-autism-to-minecraft-1823872741)
+> 原文：<https://lifehacker.com/how-to-introduce-a-child-with-autism-to-minecraft-1823872741>
 
 很难说清楚为什么患有自闭症的儿童是《我的世界》的最大爱好者，这是一种电脑游戏，在这种游戏中，你可以用类似乐高的积木搭建出无尽的世界。斯图尔特·邓肯是两个孩子的父亲，他认为这是因为这是两个对立面的完美结合。一方面，《我的世界》提供了结构——从水到门到落下的熔岩，一切都表现出他们所需要的某种可预测性。另一方面，它给了玩家无限的自由。没有故事，没有关卡，没有老板给参与者任务来完成。在电脑屏幕的保护下，玩家可以在一个感官友好的空间里做任何他们想做的事情——重现泰姬陵，用火把照亮一所房子，或者藏在一个山洞里。
 

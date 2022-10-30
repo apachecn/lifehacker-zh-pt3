@@ -1,6 +1,6 @@
 # 21 世纪 25 部最佳电影，以及在哪里观看
 
-> 原文:[https://life hacker . com/the-25-21 世纪最佳电影和 where-to-wat-1787365947](https://lifehacker.com/the-25-best-films-of-the-21st-century-and-where-to-wat-1787365947)
+> 原文：<https://lifehacker.com/the-25-best-films-of-the-21st-century-and-where-to-wat-1787365947>
 
 自 2000 年以来，已经有很多优秀的电影上映，但其中一些超越了其他电影，将媒介提升到了一个全新的讲故事水平。根据全球影评人的说法，这是 25 部 21 世纪最好的电影，你可以亲自观看。
 

@@ -1,6 +1,6 @@
 # 在你不在办公室的回复中撒谎，以避免在假期里花时间在手机上
 
-> 原文:[https://life hacker . com/lie-in-your-out-of-office-reply-to-avoid-spending-time-1798144180](https://lifehacker.com/lie-in-your-out-of-office-reply-to-avoid-spending-time-1798144180)
+> 原文：<https://lifehacker.com/lie-in-your-out-of-office-reply-to-avoid-spending-time-1798144180>
 
 度假是为了拔掉插头，但当你把工作放在口袋里随身携带时，拔掉插头可能会很困难。为了远离与工作相关的邮件和信息， [调整你的“不在办公室”回复。](https://lifehacker.com/set-your-out-of-office-email-a-day-early-to-give-yourse-1784844822)T3】
 

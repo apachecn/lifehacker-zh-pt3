@@ -1,6 +1,6 @@
 # 这些常见的购车神话拒绝消亡
 
-> 原文:[https://jalopnik . com/these-common-购车神话-拒绝死亡-1828248263](https://jalopnik.com/these-common-car-buying-myths-refuse-to-die-1828248263)
+> 原文：<https://jalopnik.com/these-common-car-buying-myths-refuse-to-die-1828248263>
 
 互联网为汽车购买者提供了前所未有的公平竞争环境，但是尽管有大量有用的信息，我们仍然会遇到大量关于从经销商处购买的误解。作为一名专业的汽车购买者，我将清理一些最常见的问题，并希望在你下次购物时为你节省一些挫折。
 

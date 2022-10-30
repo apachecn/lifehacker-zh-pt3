@@ -1,6 +1,6 @@
 # 使用 Opera 的广告拦截器保护自己免受加密劫持
 
-> 原文:[https://life hacker . com/protect-you-from-cryptojacking-with-opera-s-ad-blo-1822304630](https://lifehacker.com/protect-yourself-from-cryptojacking-with-opera-s-ad-blo-1822304630)
+> 原文：<https://lifehacker.com/protect-yourself-from-cryptojacking-with-opera-s-ad-blo-1822304630>
 
 [加密货币](https://lifehacker.com/what-to-know-about-the-major-cryptocurrencies-besides-b-1821656104) 的兴起让很多人 [变得富有](https://www.nytimes.com/2018/01/13/style/bitcoin-millionaires.html) ，但这也帮助创造了新一代的 [黑客](https://gizmodo.com/hackers-steal-72-million-in-bitcoin-from-honk-kong-exc-1784757592) 和 [骗子](https://lifehacker.com/why-kodaks-bitcoin-scheme-is-a-scam-you-should-avoid-1821957658) 决心利用这项技术。
 

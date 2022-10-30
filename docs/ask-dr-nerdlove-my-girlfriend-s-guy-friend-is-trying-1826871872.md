@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我女朋友的男朋友试图破坏我们的关系
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-s-guy-friend-is-trying-1826871872](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-s-guy-friend-is-trying-1826871872)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-s-guy-friend-is-trying-1826871872>
 
 你们好，所有光荣的 Twitternet 变态群，欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一一个要移植到 Switch 的约会建议专栏。
 

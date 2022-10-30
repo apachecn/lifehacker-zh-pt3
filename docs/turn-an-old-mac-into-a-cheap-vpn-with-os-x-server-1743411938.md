@@ -1,6 +1,6 @@
 # 用 OS X Server 将旧 Mac 变成廉价的 VPN
 
-> 原文:[https://life hacker . com/turn-an-old-MAC-into-a-cheap-VPN-with-OS-x-server-1743411938](https://lifehacker.com/turn-an-old-mac-into-a-cheap-vpn-with-os-x-server-1743411938)
+> 原文：<https://lifehacker.com/turn-an-old-mac-into-a-cheap-vpn-with-os-x-server-1743411938>
 
 虚拟专用网订阅是要花钱的，而且他们通常需要一点研究来确定他们是否合法 。如果你有一台旧的 Mac，你可以把它变成最简单的 DIY VPN，非常适合在公共 Wi-Fi 上安全浏览或在旅途中从家里的电脑上抓取文件。
 

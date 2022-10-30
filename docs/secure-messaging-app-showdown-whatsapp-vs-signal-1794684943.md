@@ -1,6 +1,6 @@
 # 安全消息应用摊牌:WhatsApp vs. Signal
 
-> 原文:[https://life hacker . com/secure-messaging-app-摊牌-whatsapp-vs-signal-1794684943](https://lifehacker.com/secure-messaging-app-showdown-whatsapp-vs-signal-1794684943)
+> 原文：<https://lifehacker.com/secure-messaging-app-showdown-whatsapp-vs-signal-1794684943>
 
 所以，你对安全、加密的聊天应用感兴趣。你有几个不同的选择，但与任何聊天应用程序一样，你所有的朋友都在使用什么很重要。为此，Signal 和 WhatsApp 无疑是最受欢迎的。以下是他们的对比。
 

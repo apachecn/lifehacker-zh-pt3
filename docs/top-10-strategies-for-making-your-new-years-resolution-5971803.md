@@ -1,6 +1,6 @@
 # 坚持新年决心的 10 大策略
 
-> 原文:[https://life hacker . com/top-10-strategies-for-making-your-new-years-resolution-5971803](https://lifehacker.com/top-10-strategies-for-making-your-new-years-resolution-5971803)
+> 原文：<https://lifehacker.com/top-10-strategies-for-making-your-new-years-resolution-5971803>
 
 2016 年到了，我们大多数人都在争先恐后地制定一些新年计划，坦率地说，我们可能会在 2 月份忘记这些计划。以下是如何制定一个切实可行的决心，让你在今年做得更好。
 

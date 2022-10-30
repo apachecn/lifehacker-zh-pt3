@@ -1,6 +1,6 @@
 # 你应该为你的假日聚会做奶酪球
 
-> 原文:[https://life hacker . com/you-should-make-cheese balls-for-your ' s holiday-party-1820847699](https://lifehacker.com/you-should-make-cheeseballs-for-your-holiday-party-1820847699)
+> 原文：<https://lifehacker.com/you-should-make-cheeseballs-for-your-holiday-party-1820847699>
 
 芝士球真的名不虚传。它们不仅是字面上的奶酪球，而且有一些迷人的老土。就像一件俗气的圣诞毛衣，他们更像是班级里的小丑，而不是班级里的表演——可爱、傻乎乎、迷人而不做作。它们还具有无限的适应性，而且非常容易制作。
 

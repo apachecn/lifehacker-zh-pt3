@@ -1,6 +1,6 @@
 # 如何在 iOS 和 Android 上使用谷歌的新任务应用
 
-> 原文:[https://life hacker . com/how-to-use-Google-new-tasks-app-for-IOs-and-Android-1825548977](https://lifehacker.com/how-to-use-googles-new-tasks-app-for-ios-and-android-1825548977)
+> 原文：<https://lifehacker.com/how-to-use-googles-new-tasks-app-for-ios-and-android-1825548977>
 
 Google Tasks 已经存在将近十年了。虽然数字待办事项清单对保持你的组织性很有帮助，但谷歌的尝试总是让人感觉事倍功半。没有官方的移动应用程序，你不得不求助于第三方应用程序来从智能手机或平板电脑上访问你的任务，或者你不得不在你最喜欢的浏览器上打开移动版的 Gmail 就好像。
 

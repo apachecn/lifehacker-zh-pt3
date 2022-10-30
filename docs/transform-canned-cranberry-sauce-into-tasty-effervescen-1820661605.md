@@ -1,6 +1,6 @@
 # 将罐装蔓越莓酱变成美味的泡腾方块
 
-> 原文:[https://life hacker . com/transform-canned-cranberry-sauce-into-tasty-effervescen-1820661605](https://lifehacker.com/transform-canned-cranberry-sauce-into-tasty-effervescen-1820661605)
+> 原文：<https://lifehacker.com/transform-canned-cranberry-sauce-into-tasty-effervescen-1820661605>
 
 我知道罐装蔓越莓酱的憎恨者是存在的。我不认识他们中的任何一个人，但我知道他们不会被那些小小的波纹线所吸引，也不会被它发出的声音所逗乐。但是即使是他们也会被这些冷冻的凝结的小红莓酱动摇，因为这些小红莓酱是 T2 碳酸化的。
 

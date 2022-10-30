@@ -1,6 +1,6 @@
 # 我等不及要打破三星的第一个“牢不可破”的显示器
 
-> 原文:[https://gizmodo . com/I-cant-wait-to-break-samsungs-first-unbreakable-display-1827888162](https://gizmodo.com/i-cant-wait-to-break-samsungs-first-unbreakable-display-1827888162)
+> 原文：<https://gizmodo.com/i-cant-wait-to-break-samsungs-first-unbreakable-display-1827888162>
 
 三星 [今天骄傲地宣布](https://news.samsung.com/us/samsung-displays-unbreakable-panel-certified-underwriters-laboratories/) 其“牢不可破的智能手机面板”获得了美国保险商实验室(UL)的认证。这意味着这种超耐用显示器更接近于非常有利可图的东西，如军事和汽车合同。但是让我们严肃点。有人会想办法打破这东西，我希望是我。
 

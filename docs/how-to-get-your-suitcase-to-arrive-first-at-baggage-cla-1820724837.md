@@ -1,6 +1,6 @@
 # 如何让您的行李箱首先到达行李认领处
 
-> 原文:[https://life hacker . com/how-to-get-your-trough-to-arrival-cla-1820724837](https://lifehacker.com/how-to-get-your-suitcase-to-arrive-first-at-baggage-cla-1820724837)
+> 原文：<https://lifehacker.com/how-to-get-your-suitcase-to-arrive-first-at-baggage-cla-1820724837>
 
 除非我绝对有必要(阅读: [我带着酒乘飞机](https://lifehacker.com/how-to-successfully-pack-beer-and-wine-in-your-suitcase-1820165411) )，我总是尽我所能在旅行时不必托运行李。除了与移交行李相关的费用，在我看来，整个经历中最糟糕的部分是在长途飞行后不得不等待你的行李箱绕过传送带。那次等待对我来说通常充满了后悔，后悔当初买了那瓶威士忌，把回家的旅程推迟了 20 分钟。
 

@@ -1,6 +1,6 @@
 # 五款最佳通用遥控器
 
-> 原文:[https://life hacker . com/five-best-universal-remote-controls-5901930](https://lifehacker.com/five-best-universal-remote-controls-5901930)
+> 原文：<https://lifehacker.com/five-best-universal-remote-controls-5901930>
 
 如今挑选一个通用遥控器相当棘手。有很多简单的可编程红外发射器，但一些最好的遥控器可以使用蓝牙甚至 Wi-FI 控制其他设备。本周，我们根据你的提名，来看看一些最好的万能遥控器。
 

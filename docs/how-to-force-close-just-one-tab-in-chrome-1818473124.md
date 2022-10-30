@@ -1,6 +1,6 @@
 # 如何强制关闭 Chrome 中的一个标签页
 
-> 原文:[https://life hacker . com/how-to-force-close-just-one-tab-in-chrome-1818473124](https://lifehacker.com/how-to-force-close-just-one-tab-in-chrome-1818473124)
+> 原文：<https://lifehacker.com/how-to-force-close-just-one-tab-in-chrome-1818473124>
 
 这个世界上有两种人:无法组织的圣人...和我们其他人一样，我们的 27 个标签页随时都在 Chrome 中打开。当然，保持所有这些标签打开是它自己的一种组织方式——我把这个留着以后看，我需要那个打开的*作为参考——但是当其中一个页面没有反应，我们需要强制退出 Chrome 时，整个纸牌屋就会倒塌。*
 

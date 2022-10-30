@@ -1,6 +1,6 @@
 # 把你的旅行路线放在你手机的锁屏上
 
-> 原文:[https://life hacker . com/put-your-travel-lineage-on-your-phone-s-lock-screen-1823954583](https://lifehacker.com/put-your-travel-itinerary-on-your-phone-s-lock-screen-1823954583)
+> 原文：<https://lifehacker.com/put-your-travel-itinerary-on-your-phone-s-lock-screen-1823954583>
 
 时不时地，比如当你坐飞机的时候，你需要在手机上不断查找相同的信息。如果这些信息是静态的，也不是特别隐私，你可以截屏，让它成为你的锁屏。那么它就像一个低技术含量的部件，不会在你不方便的时候改变。
 

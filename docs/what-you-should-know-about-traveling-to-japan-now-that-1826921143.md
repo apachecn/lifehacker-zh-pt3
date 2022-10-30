@@ -1,6 +1,6 @@
 # 既然 Airbnb 的法律正在改变，去日本旅行你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-than-1826921143](https://lifehacker.com/what-you-should-know-about-traveling-to-japan-now-that-1826921143)
+> 原文：<https://lifehacker.com/what-you-should-know-about-traveling-to-japan-now-that-1826921143>
 
 现在对日本的 Airbnb 房东或租房者来说不是一个好时机:私人住宅租赁服务最近被迫取消了日本数千个已经预订和支付的预订，这一切都要归功于 6 月 15 日生效的一套新的日本法律。下面是那边正在发生的事情，如果你打算在不久的将来在日本用 Airbnb 租房，你可以做些什么。
 

@@ -1,6 +1,6 @@
 # 准备好写字的袋子
 
-> 原文:[https://lifehacker.com/the-ready-to-write-bag-1767551751](https://lifehacker.com/the-ready-to-write-bag-1767551751)
+> 原文：<https://lifehacker.com/the-ready-to-write-bag-1767551751>
 
 如果你真的想做好在任何地方写作的准备，你需要各种电子设备、书写用具和笔记本。一个恰当的例子是，Lifehacker 的读者 Ezra Hilyer 的书包就是为此而设的。
 

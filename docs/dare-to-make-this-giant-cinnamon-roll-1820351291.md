@@ -1,6 +1,6 @@
 # 敢做这个巨大的肉桂卷
 
-> 原文:[https://life hacker . com/dare-to-make-this-giant-cinnamon-roll-1820351291](https://lifehacker.com/dare-to-make-this-giant-cinnamon-roll-1820351291)
+> 原文：<https://lifehacker.com/dare-to-make-this-giant-cinnamon-roll-1820351291>
 
 每个人都知道肉桂卷是一种美味的放纵。这个食谱预先假定的是…也许它们应该更大？我的意思是比以前大很多。这是可能的，说实话，这也很美。
 

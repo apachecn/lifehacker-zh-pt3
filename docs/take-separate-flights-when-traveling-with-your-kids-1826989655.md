@@ -1,6 +1,6 @@
 # 和孩子一起旅行时，乘坐不同的航班
 
-> 原文:[https://life hacker . com/take-separate-flights-when-traveling-with-your-kids-1826989655](https://lifehacker.com/take-separate-flights-when-traveling-with-your-kids-1826989655)
+> 原文：<https://lifehacker.com/take-separate-flights-when-traveling-with-your-kids-1826989655>
 
 这是出于需要——我们的儿子不想错过一场棒球宴会，所以他和我比我丈夫和女儿晚一天飞去参加家庭聚会。然后事情又发生了:为了一次经济实惠的西班牙之旅，我们从不同的常旅客账户和信用卡奖励计划中拼凑里程，为了让这一切都行得通，我们不得不分开乘坐不同的航空公司。
 

@@ -1,6 +1,6 @@
 # 如何花掉你额外的 FSA 钱
 
-> 原文:[https://life hacker . com/how-to-spend-your-extra-FSA-money-1821055768](https://lifehacker.com/how-to-spend-your-extra-fsa-money-1821055768)
+> 原文：<https://lifehacker.com/how-to-spend-your-extra-fsa-money-1821055768>
 
 关于 [弹性支出账户](https://lifehacker.com/how-to-use-your-flexible-savings-account-to-save-money-5855970) (FSAs)的伟大之处在于，你通过公司留出的大约 30%的金额基本上是*免费的*支出，你通常会因纳税而损失掉这些钱。有什么问题吗？对于大多数计划来说，你必须在年底前花光它，否则你将永远失去它。
 

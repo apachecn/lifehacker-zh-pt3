@@ -1,6 +1,6 @@
 # 这个艾斯·库伯的小把戏会让你的汉堡超级多汁
 
-> 原文:[https://life hacker . com/this-ice-cube-trick-will-make-your-burgers-super-juicy-1794751529](https://lifehacker.com/this-ice-cube-trick-will-make-your-burgers-super-juicy-1794751529)
+> 原文：<https://lifehacker.com/this-ice-cube-trick-will-make-your-burgers-super-juicy-1794751529>
 
 入口即化的多汁汉堡是生活中最大的乐趣之一。如果你的馅饼经常变得又硬又干，这个聪明的方法可能会解决这个问题。
 

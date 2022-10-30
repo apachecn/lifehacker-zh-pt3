@@ -1,6 +1,6 @@
 # 通过你已经有的朋友找到新朋友
 
-> 原文:[https://life hacker . com/find-new-friends-through the-friends-you ' s hacken-hacker-1824264001](https://lifehacker.com/find-new-friends-through-the-friends-you-already-have-1824264001)
+> 原文：<https://lifehacker.com/find-new-friends-through-the-friends-you-already-have-1824264001>
 
 随着年龄的增长，结识新朋友和交好朋友变得越来越难。你变得不那么爱冒险，和重要的人一起陷入舒适的日常生活，你不再有学校强迫你和不同的人群互动。但是，如果你至少有一个朋友，你确实有一个简单的选择来寻找一些新面孔来共度时光。
 

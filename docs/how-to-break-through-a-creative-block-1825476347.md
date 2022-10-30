@@ -1,6 +1,6 @@
 # 如何突破创意障碍
 
-> 原文:[https://life hacker . com/how-to-break-through-a-creative-block-1825476347](https://lifehacker.com/how-to-break-through-a-creative-block-1825476347)
+> 原文：<https://lifehacker.com/how-to-break-through-a-creative-block-1825476347>
 
 无论你是喜欢画画、画画、写作、编舞还是演奏音乐，你可能都熟悉创造性思维，尽管你有动力，但你似乎什么也做不了。为了摆脱这种常规，试着做你最擅长的事，只是很糟糕。
 

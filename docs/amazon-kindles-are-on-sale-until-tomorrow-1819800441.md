@@ -1,6 +1,6 @@
 # 亚马逊 kindle 将持续销售到明天
 
-> 原文:[https://life hacker . com/Amazon-kindles-is-sale-to-tomorrow-1819800441](https://lifehacker.com/amazon-kindles-are-on-sale-until-tomorrow-1819800441)
+> 原文：<https://lifehacker.com/amazon-kindles-are-on-sale-until-tomorrow-1819800441>
 
 亚马逊推出第一款 Kindle 已经有 10 年了，所以该公司正在庆祝电子书阅读器 10 周年纪念日 ，为其设备削减了一些费用，并在 Kindle 图书上做了一些交易。不过，你应该快点。报价将于 10 月 25 日截止。
 

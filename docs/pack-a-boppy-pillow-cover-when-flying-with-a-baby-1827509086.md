@@ -1,6 +1,6 @@
 # 带着婴儿坐飞机时，带上一个厚枕头
 
-> 原文:[https://life hacker . com/pack-a-boppy-pillow-cover-when-flying-with-a-baby-1827509086](https://lifehacker.com/pack-a-boppy-pillow-cover-when-flying-with-a-baby-1827509086)
+> 原文：<https://lifehacker.com/pack-a-boppy-pillow-cover-when-flying-with-a-baby-1827509086>
 
 当我的孩子还是个婴儿的时候，我发现自己和一种叫做 Boppy 的东西有了很深的关系。这是一款无处不在的婴儿产品，是一款旨在帮助哺乳期妈妈哺乳的枕头——你基本上可以像一个四岁的孩子去游泳一样把它戴在身上。尽管它的功能不止于此。当我女儿发烧的时候，我抱着她几个小时，当我给自己喂早餐的时候，我抱着她，当她最终试图坐起来的时候，我的小狗保护了我的胳膊，并阻止她把头撞到木地板上。难怪初为人父母的人想一直带着它，甚至在他们旅行的时候。尤其是旅行的时候。
 

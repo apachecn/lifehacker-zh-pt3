@@ -1,6 +1,6 @@
 # 安卓用户:不管你喜不喜欢，谷歌都在收集你的位置数据
 
-> 原文:[https://life hacker . com/Android-users-Google-s-collecting-your-location-data-w-1820640276](https://lifehacker.com/android-users-google-s-collecting-your-location-data-w-1820640276)
+> 原文：<https://lifehacker.com/android-users-google-s-collecting-your-location-data-w-1820640276>
 
 来自 Quartz 的一项调查显示，谷歌一直在监视其部分用户。这家搜索巨头一直在收集 Android 智能手机用户的位置数据，无论他们是否启用了定位服务。虽然 Android 用户不能禁用它，但看起来他们不用担心太久了。
 

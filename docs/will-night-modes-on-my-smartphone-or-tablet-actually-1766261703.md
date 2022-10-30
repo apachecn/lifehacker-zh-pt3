@@ -1,6 +1,6 @@
 # 智能手机或平板电脑上的“夜间模式”真的能帮助我获得更好的睡眠吗？
 
-> 原文:[https://life hacker . com/will-night-modes-on-my-smart phone-or-table t-actually-1766261703](https://lifehacker.com/will-night-modes-on-my-smartphone-or-tablet-actually-1766261703)
+> 原文：<https://lifehacker.com/will-night-modes-on-my-smartphone-or-tablet-actually-1766261703>
 
 亲爱的 Lifehacker，
 我喜欢在床上使用智能手机和平板电脑。我知道睡前屏幕时间不利于我的睡眠，但像 [苹果的夜班](https://lifehacker.com/all-the-best-new-features-coming-in-ios-9-3-1753024313) 和 [安卓 N 的夜间模式](http://lifehacker.com/the-coolest-features-of-android-n-google-didnt-announce-1764114846) 这样的功能会帮助我获得更好的睡眠，同时让我在床上看书吗？

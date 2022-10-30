@@ -1,6 +1,6 @@
 # 用苹果商店的复活节彩蛋让你的 iPhone 屏幕下雪吧
 
-> 原文:[https://life hacker . com/this-apple-store-app-Easter-egg-make-it-snow-on-your-s-1821373599](https://lifehacker.com/this-apple-store-app-easter-egg-makes-it-snow-on-your-s-1821373599)
+> 原文：<https://lifehacker.com/this-apple-store-app-easter-egg-makes-it-snow-on-your-s-1821373599>
 
 iOS:苹果正在庆祝节日，苹果商店应用程序中有一个复活节彩蛋，可以把你的 iPhone 变成一个雪球。
 

@@ -1,6 +1,6 @@
 # 告诉你的老板你的五年计划
 
-> 原文:[https://life hacker . com/tell-your-boss-your ' s five-plan-1823195111](https://lifehacker.com/tell-your-boss-your-five-year-plan-1823195111)
+> 原文：<https://lifehacker.com/tell-your-boss-your-five-year-plan-1823195111>
 
 对许多人来说，工作不仅仅是一份工作——我们希望得到满足，通常我们希望朝着更好的方向或某种程度的个人成长努力。
 

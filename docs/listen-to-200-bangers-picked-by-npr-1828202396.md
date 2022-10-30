@@ -1,6 +1,6 @@
 # 听听 NPR 挑选的 200 首流行歌曲
 
-> 原文:[https://life hacker . com/listen-to-200-bangers-picked-by-NPR-1828202396](https://lifehacker.com/listen-to-200-bangers-picked-by-npr-1828202396)
+> 原文：<https://lifehacker.com/listen-to-200-bangers-picked-by-npr-1828202396>
 
 通常当我加载一个“热门歌曲”播放列表时，我会跳过一半的歌曲。NPR 的新播放列表[“21 世纪女性最伟大的 200 首歌曲+”中，我几乎什么都没听到](https://www.npr.org/2018/07/30/627395449/turning-the-tables-the-200-greatest-songs-by-21st-century-women-part-1) 每首歌都不错！连乡村歌曲！而且主演都是女性或者非二进制。亮点包括桃子的《去他妈的痛苦》，FKA·斯比格斯的《两周》，阿诺尼的《无人机轰炸我》，邦巴·埃斯特雷奥的《大豆哟》，米茨的《帮助我活着》，利佐的《好得要命》。也有像《跟我私奔》和《单身女士》这样的热门电影这是真正的独唱。
 

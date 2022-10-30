@@ -1,6 +1,6 @@
 # 通过 Expedia 这样的网站预订旅行值得吗？
 
-> 原文:[https://life hacker . com/is-booking-travel-through-a-site-like-Expedia-worth-it-1793278319](https://lifehacker.com/is-booking-travel-through-a-site-like-expedia-worth-it-1793278319)
+> 原文：<https://lifehacker.com/is-booking-travel-through-a-site-like-expedia-worth-it-1793278319>
 
 现在比以往任何时候都更容易找到旅游优惠，通常你可以直接从酒店或航空公司获得最低价格。这就引出了一个问题:第三方旅游网站值得吗？最近，Expedia [加强了他们的积分计划](https://www.expedia.com/rewards/howitworks) ，该计划允许客户通过积分获得旅行奖励。他们并不是第一家提供这种服务的在线旅行社，所以让我们看看他们的表现如何。
 

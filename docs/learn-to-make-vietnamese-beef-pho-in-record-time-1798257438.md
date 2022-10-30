@@ -1,6 +1,6 @@
 # 学会以创纪录的时间制作越南牛肉河粉
 
-> 原文:[https://the take out . com/learn-to-make-Vietnam-beef-pho-in-record-time-1798257438](https://thetakeout.com/learn-to-make-vietnamese-beef-pho-in-record-time-1798257438)
+> 原文：<https://thetakeout.com/learn-to-make-vietnamese-beef-pho-in-record-time-1798257438>
 
 阅读我们对詹姆斯·比尔德获奖作品 [*的作者安德里亚·阮*](http://amzn.to/2kFNc48) 的采访[Pho 食谱](http://www.avclub.com/article/pho-primer-worlds-leading-authority-vietnamese-coo-249788#_ga=2.159818558.2008222399.1534731264-308846628.1493669845) ，在你的大脑准备好一碗热气腾腾的牛肉 Pho 后，在这里学习如何快速而不挑剔地制作它。
 

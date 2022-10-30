@@ -1,6 +1,6 @@
 # 阿龙·沙亚是美国的鹰嘴豆泥之王——听从他的建议吧
 
-> 原文:[https://the take out . com/alon-Shaya-is-Americas-king-of-hummus-heed-his-advice-1826302327](https://thetakeout.com/alon-shaya-is-americas-king-of-hummus-heed-his-advice-1826302327)
+> 原文：<https://thetakeout.com/alon-shaya-is-americas-king-of-hummus-heed-his-advice-1826302327>
 
 好好看看这个人。他叫阿龙·沙亚。也许你也是一名餐厅极客，知道他在新奥尔良钟爱的餐厅——以前的同名餐厅 [【沙亚】](http://www.shayarestaurant.com/) ，现在的 [【萨巴】](https://eatwithsaba.com/) 。在一个有 etouffees、po'boys 和 gumbo z'Herbes 的城市里，Alon Shaya 开了一家新月形城市里最热门的餐馆，供应以色列食物。(看网飞 [*第五集有人喂菲尔*](https://thetakeout.com/somebody-feed-phil-is-the-sweetest-most-joyful-food-sh-1823275276#_ga=2.204552019.239722801.1526827365-700931794.1510626867) 看看为什么。)
 

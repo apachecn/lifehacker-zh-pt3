@@ -1,6 +1,6 @@
 # 当他们最喜欢的球队输了时，如何帮助孩子应对
 
-> 原文:[https://life hacker . com/how-to-help-kids-cope-when ' s favorite-team-loss-1798325714](https://lifehacker.com/how-to-help-kids-cope-when-their-favorite-team-loses-1798325714)
+> 原文：<https://lifehacker.com/how-to-help-kids-cope-when-their-favorite-team-loses-1798325714>
 
 让 Deadspin 的 Drew Magary 告诉它:你孩子的 [最爱的](http://deadspin.com/tag/wyts#_ga=2.109492998.2036980742.1503338833-1066327814.1498537403) [NFL 球队烂](http://deadspin.com/tag/wyts#_ga=2.102153986.2036980742.1503338833-1066327814.1498537403) 。这意味着在即将到来的赛季中，他们几乎肯定会在某个时候拿 L。
 

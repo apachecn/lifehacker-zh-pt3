@@ -1,6 +1,6 @@
 # 每个人都应该知道的最重要的金融术语
 
-> 原文:[https://life hacker . com/the-most-important-financial-terms-every one-should-know-1742329094](https://lifehacker.com/the-most-important-financial-terms-everyone-should-know-1742329094)
+> 原文：<https://lifehacker.com/the-most-important-financial-terms-everyone-should-know-1742329094>
 
 费用比率。优惠利率。摊销。正如 [技术](https://lifehacker.com/the-lifehacker-tech-dictionary-5964240) 一样，金融世界充满了对许多人来说可能听起来陌生的首字母缩写词和术语。因此，我们为您创建了一个金融术语表，解释了重要但常常令人困惑的金钱概念。
 

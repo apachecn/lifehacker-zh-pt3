@@ -1,6 +1,6 @@
 # 性爱、便便和香槟都很棒，但它们对健康的益处被高估了
 
-> 原文:[https://life hacker . com/sex-poop-and-champagne-are-great-but-these-health-be-1796364477](https://lifehacker.com/sex-poop-and-champagne-are-great-but-their-health-be-1796364477)
+> 原文：<https://lifehacker.com/sex-poop-and-champagne-are-great-but-their-health-be-1796364477>
 
 欢迎回到我们的健康新闻综述，前一集*本周该担心什么*。我们把它重新命名为*现实剂量*，因为健康新闻并不总是给你担心的事情。有时候，被夸大的是利益，而不是风险。本周，我们来看一些研究，这些研究似乎是预防癌症和老年痴呆症以及成为一名更好的运动员的关键。
 

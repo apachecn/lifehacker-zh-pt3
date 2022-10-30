@@ -1,6 +1,6 @@
 # 空调会生病吗？
 
-> 原文:[https://gizmodo . com/can-you-get-sick-from-air-conditioning-1827964702](https://gizmodo.com/can-you-get-sick-from-air-conditioning-1827964702)
+> 原文：<https://gizmodo.com/can-you-get-sick-from-air-conditioning-1827964702>
 
 在夏天的高峰期，当仅仅从街角的商店走来走去就需要淋浴和换洗衣服时，空调似乎好得不像是真的。这是现代社会中为数不多的没有严重和明显负面影响的事物之一:它所做的，或者说它似乎做的，只是让事物变得更酷，同时产生一种柔和、催眠的噪音，让人想起童年在室内看动画片的下午。有什么条件？这些东西到底是如何慢慢杀死我们的，就像世界上其他美好的事物一样？
 

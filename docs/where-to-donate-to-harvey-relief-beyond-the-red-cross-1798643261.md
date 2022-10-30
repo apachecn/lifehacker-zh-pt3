@@ -1,6 +1,6 @@
 # 向 Harvey Relief 捐款的地方——红十字会以外
 
-> 原文:[https://life hacker . com/where-to-done-to-Harvey-relief-beyond-the-red-cross-1798643261](https://lifehacker.com/where-to-donate-to-harvey-relief-beyond-the-red-cross-1798643261)
+> 原文：<https://lifehacker.com/where-to-donate-to-harvey-relief-beyond-the-red-cross-1798643261>
 
 红十字会可能是这个国家最知名的紧急救援组织——但是他们不一定是最好的[。对](https://www.washingtonpost.com/news/post-nation/wp/2017/08/28/people-are-urging-donations-for-harvey-relief-efforts-just-not-to-the-red-cross/?utm_term=.e7e204680ff0) [管理不善](http://www.slate.com/articles/business/metropolis/2017/08/don_t_give_money_to_the_red_cross_we_need_a_new_way.html) 的指责已经 [困扰着他们对国家和国际灾难的反应](https://twitter.com/ProPublica/status/902978775368990720) ，他们的知名度(以及简易的短信捐赠系统)可能会让当地和基层组织相形见绌。
 

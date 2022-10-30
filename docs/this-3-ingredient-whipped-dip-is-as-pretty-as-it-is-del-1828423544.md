@@ -1,6 +1,6 @@
 # 这种三种成分的搅打蘸酱既美味又漂亮
 
-> 原文:[https://life hacker . com/this-3-ingredient-whipped-dip-is-as-pretty-as-it-is-del-1828423544](https://lifehacker.com/this-3-ingredient-whipped-dip-is-as-pretty-as-it-is-del-1828423544)
+> 原文：<https://lifehacker.com/this-3-ingredient-whipped-dip-is-as-pretty-as-it-is-del-1828423544>
 
 奶油咸蘸酱吸引了所有人的注意，但将一种食物蘸上另一种食物不应该仅限于美味小吃。甜点蘸酱让吃水果变得更有趣，而且不知何故，它们甚至比洋葱蘸酱更容易做。你所需要的只是一个奶油奶酪和某种电动搅拌器。
 

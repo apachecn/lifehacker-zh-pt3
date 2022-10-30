@@ -1,6 +1,6 @@
 # 去掉草莓，做这个大黄蛋糕
 
-> 原文:[https://life hacker . com/沟渠草莓和制作这个大黄蛋糕-1826429988](https://lifehacker.com/ditch-the-strawberries-and-make-this-rhubarb-cake-1826429988)
+> 原文：<https://lifehacker.com/ditch-the-strawberries-and-make-this-rhubarb-cake-1826429988>
 
 大黄很少在甜点中扮演主角，大多数食谱都依赖草莓来调和其生的、令人不快的酸味。这种经典的搭配虽然美味，但对我来说没有什么意义。大黄在温和烹饪时会发光，但热烤箱会破坏成熟草莓的所有特别之处——那么我们为什么坚持把它们一起烹饪呢？
 

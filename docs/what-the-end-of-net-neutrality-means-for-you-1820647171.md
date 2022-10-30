@@ -1,6 +1,6 @@
 # 网络中立的终结对你意味着什么
 
-> 原文:[https://life hacker . com/what-the-end-of-net-neutral-means-for-you-1820647171](https://lifehacker.com/what-the-end-of-net-neutrality-means-for-you-1820647171)
+> 原文：<https://lifehacker.com/what-the-end-of-net-neutrality-means-for-you-1820647171>
 
 我们 [知道](https://lifehacker.com/the-fccs-new-plan-dismantles-net-neutrality-to-rely-on-1794675979) 即将到来，但周二，FCC 主席 Ajit Pai 宣布了他的计划，将网络中立化，将互联网控制权移交给康卡斯特、& T 和威瑞森(也是 Pai 的前雇主)等服务提供商。
 

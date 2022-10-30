@@ -1,6 +1,6 @@
 # 我从来没有一辆我喜欢的车！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-never-have-a-car-I-loved-what-I-should-buy-1829519013](https://jalopnik.com/i-never-had-a-car-that-i-loved-what-should-i-buy-1829519013)
+> 原文：<https://jalopnik.com/i-never-had-a-car-that-i-loved-what-should-i-buy-1829519013>
 
 杰克刚刚离婚。他有了一份新工作和一个新的开始，所以他正在寻找一个新的旅程。然后他意识到他从未拥有过一辆能让他真正产生共鸣的车。他在卡车和更注重性能的东西之间左右为难。他应该买什么车？
 

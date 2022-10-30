@@ -1,6 +1,6 @@
 # 问一下 NerdLove 博士:我的朋友说我应该“和一个丑陋的女孩约会”
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friends-say-I-should-date-an-1825049442](https://kotaku.com/ask-dr-nerdlove-my-friends-say-i-should-just-date-an-1825049442)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-friends-say-i-should-just-date-an-1825049442>
 
 大家好，即将毁灭的美丽顽童们，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是一个关于体操技巧和空手道绝杀的约会建议专栏。这一周，都是关于挫折和失望。
 

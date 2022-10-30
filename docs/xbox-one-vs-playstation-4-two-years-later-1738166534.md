@@ -1,6 +1,6 @@
 # Xbox One vs. PlayStation 4:两年后
 
-> 原文:[https://life hacker . com/Xbox-one-vs-PlayStation-4-两年后-1738166534](https://lifehacker.com/xbox-one-vs-playstation-4-two-years-later-1738166534)
+> 原文：<https://lifehacker.com/xbox-one-vs-playstation-4-two-years-later-1738166534>
 
 Xbox One 和 PlayStation 4 推出至今已近两年。随着数十种软件更新和价格下降，在这两者之间做出选择比 2013 年困难得多。所以，我们决定现在是时候比较他们了，因为他们已经达到了他们的目标。
 

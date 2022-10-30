@@ -1,6 +1,6 @@
 # 何时以及如何砸碎窗户来营救被锁在高温车里的孩子或宠物
 
-> 原文:[https://life hacker . com/when-and-how-smash-a-window-rescue-a-child-or-pet-1797143361](https://lifehacker.com/when-and-how-to-smash-a-window-to-rescue-a-child-or-pet-1797143361)
+> 原文：<https://lifehacker.com/when-and-how-to-smash-a-window-to-rescue-a-child-or-pet-1797143361>
 
 越来越多的州正在制定法律，允许人们闯入滚烫的汽车去救一个孩子或宠物，而不必面对一定的法律责任。俄勒冈州 [在今年夏天制定了一个](http://www.nuggetnews.com/main.asp?SectionID=5&SubSectionID=5&ArticleID=26200) 。亚利桑那州的 [于 8 月 9 日](http://www.azcentral.com/story/news/politics/politicalinsider/2017/07/07/before-you-break-hot-car-window-kid-dog-inside-read-this-doug-ducey/460569001/) 生效。
 

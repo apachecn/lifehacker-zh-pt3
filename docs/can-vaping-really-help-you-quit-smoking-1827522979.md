@@ -1,6 +1,6 @@
 # Vaping 真的能帮你戒烟吗？
 
-> 原文:[https://life hacker . com/can-vaping-really-help-you-quit-smoking-1827522979](https://lifehacker.com/can-vaping-really-help-you-quit-smoking-1827522979)
+> 原文：<https://lifehacker.com/can-vaping-really-help-you-quit-smoking-1827522979>
 
 几乎可以肯定，Vaping 对健康的危害比吸烟小，因为它不含烧焦的烟叶(香烟中致癌的“焦油”)。但是，如果这个事实导致吸烟者开始抽大麻，但是他们没有戒烟，那么抽大麻有什么好处呢？
 

@@ -1,6 +1,6 @@
 # 如何创建不会无法输入的安全密码
 
-> 原文:[https://life hacker . com/how-to-create-secure-passwords-the-parent-impossible-to-1825048324](https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324)
+> 原文：<https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324>
 
 如何创建 [强密码](https://lifehacker.com/starwars-and-the-24-other-worst-passwords-of-2017-1821338872) ？简单:你敲击键盘几秒钟，直到你得到一大块 50 个字符的胡言乱语，然后你把它复制并粘贴到一个密码管理器中，这样你就不必真的记住它是什么了。
 

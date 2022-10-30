@@ -1,6 +1,6 @@
 # 如何立即在 Windows 10 上下载秋季创造者的更新
 
-> 原文:[https://life hacker . com/how-to-download-the-fall-creator-s-update-on-windows-10-1819645249](https://lifehacker.com/how-to-download-the-fall-creator-s-update-on-windows-10-1819645249)
+> 原文：<https://lifehacker.com/how-to-download-the-fall-creator-s-update-on-windows-10-1819645249>
 
 Windows:你现在可以下载 Windows 10 的下一个重大更新，称为秋季创造者更新。您将能够享受混合现实支持等主要功能，将增强现实带到兼容的 PC 上，以及对手写识别、通过 Cortana 进行语音控制和修改后的用户界面等功能的小幅升级。更新正在逐步向用户推出，但如果你太急于等待轮到你，你可以手动下载(嘿，我不怪你)。
 

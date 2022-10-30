@@ -1,6 +1,6 @@
 # 当你吃饭的时候，尝试这个仪式来更好的自我控制
 
-> 原文:[https://life hacker . com/try-this-ritual-for-more-self-control-when-you-eat-1829132300](https://lifehacker.com/try-this-ritual-for-more-self-control-when-you-eat-1829132300)
+> 原文：<https://lifehacker.com/try-this-ritual-for-more-self-control-when-you-eat-1829132300>
 
 仪式可以帮助我们更好地掌控自己的生活，在会困扰我们的情况下更舒服。一组研究人员现在表示，他们发现一种奇怪的、无意义的饮食习惯可能有助于我们摄入更少的卡路里。
 

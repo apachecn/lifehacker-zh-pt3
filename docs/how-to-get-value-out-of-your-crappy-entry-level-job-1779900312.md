@@ -1,6 +1,6 @@
 # 如何从你糟糕的初级工作中获得价值
 
-> 原文:[https://life hacker . com/how-to-get-value-out-of-your lappy-entry-level-job-1779900312](https://lifehacker.com/how-to-get-value-out-of-your-crappy-entry-level-job-1779900312)
+> 原文：<https://lifehacker.com/how-to-get-value-out-of-your-crappy-entry-level-job-1779900312>
 
 1998 年夏天，我在一个研究实验室值夜班，在那里我一次铲和筛泥土八个小时。我呆在一个温室地下室的小房间里，里面有一个斜槽，泥土被倾倒在里面。我会在手推车上放一个大盆，在上面放一个屏幕附件，然后在上面铲几铲土。然后，我会筛选那些污垢，从屏幕顶部保留一些特定的项目，然后再做一次。再一次。当手推车装满时，我会把它推到电梯，带到种植室，然后取回一辆空的手推车，再次做同样的事情。
 

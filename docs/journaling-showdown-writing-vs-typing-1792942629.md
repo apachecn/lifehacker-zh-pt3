@@ -1,6 +1,6 @@
 # 日记摊牌:写作与打字
 
-> 原文:[https://life hacker . com/journaling-摊牌-写作-打字-1792942629](https://lifehacker.com/journaling-showdown-writing-vs-typing-1792942629)
+> 原文：<https://lifehacker.com/journaling-showdown-writing-vs-typing-1792942629>
 
 杰克·伦敦说每个作家都应该有一个笔记本。“和它一起旅行，一起吃饭，一起睡觉，”伦敦说。"铅笔记号比记忆更持久."这是明智的建议，但话说回来，杰克·伦敦没有谷歌文档、微软 Word 或 OneNote。本周，我们测试经典的人机大战，看看谁更适合写日志。
 

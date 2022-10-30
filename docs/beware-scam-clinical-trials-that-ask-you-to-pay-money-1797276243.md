@@ -1,6 +1,6 @@
 # 当心诈骗“临床试验”,它要求你为未经证实的疗法付费
 
-> 原文:[https://life hacker . com/当心-骗局-临床试验-让你付钱-1797276243](https://lifehacker.com/beware-scam-clinical-trials-that-ask-you-to-pay-money-1797276243)
+> 原文：<https://lifehacker.com/beware-scam-clinical-trials-that-ask-you-to-pay-money-1797276243>
 
 临床试验是我们测试新药物和疗法的方式，它们可以给患者带来好处:如果当前的治疗方法对你无效，你可以帮助测试一种新的治疗方法。作为对成为试验品的感谢，你的医疗费用已经支付，你甚至可能得到一些额外的补偿。
 

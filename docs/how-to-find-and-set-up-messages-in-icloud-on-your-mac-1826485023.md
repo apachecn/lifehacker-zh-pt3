@@ -1,6 +1,6 @@
 # 如何在刚刚发布的 macOS 10.13.5 上查找和设置 iCloud 中的消息
 
-> 原文:[https://life hacker . com/how-to-find-and-set-up-messages-in-I cloud-on-your-MAC-1826485023](https://lifehacker.com/how-to-find-and-set-up-messages-in-icloud-on-your-mac-1826485023)
+> 原文：<https://lifehacker.com/how-to-find-and-set-up-messages-in-icloud-on-your-mac-1826485023>
 
 随着本周早些时候 iOS 11.4 的公开发布，iCloud 中的 Messages 终于为黄金时间做好了准备——而且一点也不早。如果你曾经同时将你的电话号码和多台设备上的信息联系起来，你就必须一遍又一遍地删除每台设备上的相同信息。现在，当你设备上的“信息”应用程序都通过 iCloud 链接时，你在其中一个上做的事情会同步到其他应用程序。节省的时间；挫败感减少。
 

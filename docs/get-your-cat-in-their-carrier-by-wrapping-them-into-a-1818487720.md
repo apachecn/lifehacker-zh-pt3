@@ -1,6 +1,6 @@
 # 把你的猫包在一个“小猫玉米煎饼”里，放进它们的袋子里
 
-> 原文:[https://life hacker . com/get-your-cat-in-they-carrier-by-wrapping-them-a-1818487720](https://lifehacker.com/get-your-cat-in-their-carrier-by-wrapping-them-into-a-1818487720)
+> 原文：<https://lifehacker.com/get-your-cat-in-their-carrier-by-wrapping-them-into-a-1818487720>
 
 你的猫知道发生了什么。即使她看到母舰不跑不躲，她也不可能不战而降。但是战斗会让她紧张，会让你沮丧和抓伤——更不用说去看兽医迟到了。进入小猫卷饼。
 

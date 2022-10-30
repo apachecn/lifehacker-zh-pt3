@@ -1,6 +1,6 @@
 # 一次掌握一件事的科学论证
 
-> 原文:[https://life hacker . com/the-scientific-argument-for-mastering-one-at-a-thin-a-ti-1783872506](https://lifehacker.com/the-scientific-argument-for-mastering-one-thing-at-a-ti-1783872506)
+> 原文：<https://lifehacker.com/the-scientific-argument-for-mastering-one-thing-at-a-ti-1783872506>
 
 包括我在内的许多人都希望改善生活的多个方面。例如，我想用我的写作接触更多的人，在健身房举更重的重量，并开始更持续地练习正念。这些只是一长串目标中的一小部分。
 

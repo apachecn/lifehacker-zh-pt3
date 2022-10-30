@@ -1,6 +1,6 @@
 # 如何做一个更简单，更安全的 Burpee
 
-> 原文:[https://life hacker . com/how-to-do-a-easy-safer-burpee-1826825580](https://lifehacker.com/how-to-do-an-easier-safer-burpee-1826825580)
+> 原文：<https://lifehacker.com/how-to-do-an-easier-safer-burpee-1826825580>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-JweLHK0jRwo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-JweLHK0jRwo&start=0) 
 

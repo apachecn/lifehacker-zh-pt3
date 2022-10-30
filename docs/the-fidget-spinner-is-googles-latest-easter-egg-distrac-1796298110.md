@@ -1,6 +1,6 @@
 # 烦躁旋转器是谷歌最新的复活节彩蛋娱乐工具
 
-> 原文:[https://life hacker . com/the-坐立不安-spinner-is-Google-latest-复活节彩蛋-心烦意乱 c-1796298110](https://lifehacker.com/the-fidget-spinner-is-googles-latest-easter-egg-distrac-1796298110)
+> 原文：<https://lifehacker.com/the-fidget-spinner-is-googles-latest-easter-egg-distrac-1796298110>
 
 在大学学习期间，我偶尔会被厄运缠身，当然，如果我的办公室里有什么神奇宝贝的话，我也不会羞于抓到它们(答案是否定的)。
 

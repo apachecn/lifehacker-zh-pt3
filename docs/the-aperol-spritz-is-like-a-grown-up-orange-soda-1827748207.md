@@ -1,6 +1,6 @@
 # Aperol Spritz 就像一种成熟的橘子汽水
 
-> 原文:[https://life hacker . com/the-aperol-spritz-is-like-a-grown-orange-soda-1827748207](https://lifehacker.com/the-aperol-spritz-is-like-a-grown-up-orange-soda-1827748207)
+> 原文：<https://lifehacker.com/the-aperol-spritz-is-like-a-grown-up-orange-soda-1827748207>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。我听说过，也感觉到，外面的天气很热，所以我想喝一杯有气泡的、略带柑橘味的清爽饮料。
 

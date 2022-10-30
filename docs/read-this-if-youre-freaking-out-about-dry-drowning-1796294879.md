@@ -1,6 +1,6 @@
 # 如果你对“干溺死”感到恐惧，请阅读这篇文章
 
-> 原文:[https://life hacker . com/read-this-if-you-freaking-out-on-dry-dropping-1796294879](https://lifehacker.com/read-this-if-youre-freaking-out-about-dry-drowning-1796294879)
+> 原文：<https://lifehacker.com/read-this-if-youre-freaking-out-about-dry-drowning-1796294879>
 
 本月早些时候，一名儿童在与家人涉水时，在明显吸入水 后一周 [死亡。媒体将这种情况称为“干型溺水”，也称为“继发性”或“延迟性”溺水，即一个人在吸入水后最初似乎没事，但几小时或几天后死亡。](https://www.usatoday.com/story/news/nation-now/2017/06/08/texas-boy-dies-dry-drowning-days-after-swimming/379944001/) 
 

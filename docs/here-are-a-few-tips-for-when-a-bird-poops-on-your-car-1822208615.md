@@ -1,6 +1,6 @@
 # 这里有一些当鸟在你的车上拉屎时的提示
 
-> 原文:[https://jalopnik . com/here-s-when-a bird-poops-on-your car-1822208615](https://jalopnik.com/here-are-a-few-tips-for-when-a-bird-poops-on-your-car-1822208615)
+> 原文：<https://jalopnik.com/here-are-a-few-tips-for-when-a-bird-poops-on-your-car-1822208615>
 
 哦，伙计，当一只鸟在我车上拉屎的时候，我就火冒三丈。我在这里，如此努力地保持它的干净和闪亮，而这个长着羽毛的小杂种认为从头顶飞过并投下一枚导弹是没问题的。幸运的是，你可以做一些事情来轻松清理这些垃圾。
 

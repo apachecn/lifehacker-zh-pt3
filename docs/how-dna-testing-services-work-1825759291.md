@@ -1,6 +1,6 @@
 # 邮寄 DNA 检测服务如何工作
 
-> 原文:[https://life hacker . com/how-DNA-testing-services-work-1825759291](https://lifehacker.com/how-dna-testing-services-work-1825759291)
+> 原文：<https://lifehacker.com/how-dna-testing-services-work-1825759291>
 
 无论你是想了解你的祖先，寻找失散已久的家庭成员，还是想知道你可能遗传了什么样的健康和个人特征，你可能会从向管子里吐痰开始。
 

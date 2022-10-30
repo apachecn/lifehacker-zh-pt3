@@ -1,6 +1,6 @@
 # 使用 Steam 来传输您的桌面而不是游戏
 
-> 原文:[https://life hacker . com/use-steam-to-stream-your-desktop-not-your-games-1818722875](https://lifehacker.com/use-steam-to-stream-your-desktop-instead-of-your-games-1818722875)
+> 原文：<https://lifehacker.com/use-steam-to-stream-your-desktop-instead-of-your-games-1818722875>
 
 狂热的游戏玩家最有可能使用数字市场和多人配对应用 Steam 在大屏幕上玩他们的游戏库， [，即使它只是皇家战争游戏玩家未知的战场](https://kotaku.com/battlegrounds-surpasses-870-000-concurrent-players-on-s-1798473909) 。但 Steam 及其电视友好型流媒体控制台 Steam Link(受到不在家用电脑或 Steam 机器上玩游戏的用户的青睐)不仅仅是在向家中其他设备播放流媒体游戏时有用。它们非常适合远程桌面流，让您可以在家中的任何兼容设备上查看游戏机的桌面。
 

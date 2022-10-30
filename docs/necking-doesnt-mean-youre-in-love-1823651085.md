@@ -1,6 +1,6 @@
 # 亲热并不意味着你恋爱了
 
-> 原文:[https://life hacker . com/necking-stunt-mean-you-in-love-1823651085](https://lifehacker.com/necking-doesnt-mean-youre-in-love-1823651085)
+> 原文：<https://lifehacker.com/necking-doesnt-mean-youre-in-love-1823651085>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-UxYvICy29Pg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-UxYvICy29Pg&start=0) 
 

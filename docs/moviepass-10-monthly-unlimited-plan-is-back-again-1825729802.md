@@ -1,6 +1,6 @@
 # MoviePass 每月 10 美元的无限制计划又回来了
 
-> 原文:[https://life hacker . com/movie pass-10-monthly-unlimited-plan-is-back-again-1825729802](https://lifehacker.com/moviepass-10-monthly-unlimited-plan-is-back-again-1825729802)
+> 原文：<https://lifehacker.com/moviepass-10-monthly-unlimited-plan-is-back-again-1825729802>
 
 MoviePass 最初的“每天看一部电影，每天看一部电影”的无限制订阅又回来了，价格是 10 美元。最重要的是，该公司的首席执行官表示，他们计划在这一次保持它。
 

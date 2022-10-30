@@ -1,6 +1,6 @@
 # 60 秒钟的以色列美食介绍
 
-> 原文:[https://the take out . com/a-60-second-intro-to-Israel-food-1822244419](https://thetakeout.com/a-60-second-intro-to-israeli-food-1822244419)
+> 原文：<https://thetakeout.com/a-60-second-intro-to-israeli-food-1822244419>
 
 有证据表明，以色列食物最近已经成为焦点:洛杉矶的 Freehand 酒店刚刚开设了一家名为 [The Exchange](https://freehandhotels.com/los-angeles/the-exchange/) 的新以色列餐厅；由 Zahav 厨师 Michael Solomonov 主持的名为 [*寻找以色列美食*](http://www.israelicuisinefilm.com/) 的 2016 年纪录片在网飞播出；像纽约的 [努尔](http://nurnyc.com/) 、新奥尔良的 [沙亚](http://www.shayarestaurant.com/) 和洛杉矶的 [Kismet](http://www.kismetlosangeles.com/) 这样的泛中东餐馆赢得了好评。
 

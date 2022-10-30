@@ -1,6 +1,6 @@
 # 掌握油炸绿番茄的许多微妙之处
 
-> 原文:[https://the take out . com/recipe-fried-green-tomatos-1828063799](https://thetakeout.com/recipe-fried-green-tomatoes-1828063799)
+> 原文：<https://thetakeout.com/recipe-fried-green-tomatoes-1828063799>
 
 有些你在餐馆吃的东西似乎永远不会像在家里吃的那么好。完美的例子:油炸绿番茄。我太喜欢它们了，每次我去某个地方，只要菜单上有它们，我就会点它们。然而，我在家里的努力(我必须承认，是基于范妮·弗拉格的小说 [*后面的食谱，在哨卡咖啡馆*](https://www.amazon.com/Fried-Green-Tomatoes-Whistle-Stop/dp/042528655X?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/recipe-fried-green-tomatoes-1828063799&asc_source=&tag=kinjatakeoutlink-20) 炸绿番茄)似乎总是过于沉闷乏味，而不是我喜欢的松脆辛辣的菜。
 

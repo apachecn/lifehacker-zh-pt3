@@ -1,6 +1,6 @@
 # 把你的木板带到下一层
 
-> 原文:[https://life hacker . com/take-your-planks-to-the-next-level-1825384473](https://lifehacker.com/take-your-planks-to-the-next-level-1825384473)
+> 原文：<https://lifehacker.com/take-your-planks-to-the-next-level-1825384473>
 
 在我们的木板挑战中，可能发生了两件事。要么你一直在做同一种木板，也许有所改善，但肯定会感到厌倦。或者，也许你一直在接受我们的建议来改变现状，但你并不确信自己有所好转。
 

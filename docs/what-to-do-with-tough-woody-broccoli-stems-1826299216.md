@@ -1,6 +1,6 @@
 # 如何处理坚硬的木质西兰花茎
 
-> 原文:[https://life hacker . com/what-to-do-with-tough-woody-花椰菜茎-1826299216](https://lifehacker.com/what-to-do-with-tough-woody-broccoli-stems-1826299216)
+> 原文：<https://lifehacker.com/what-to-do-with-tough-woody-broccoli-stems-1826299216>
 
 西兰花坚硬的一端不太受欢迎。我说的不是附在每朵小花上的那一点点“梗”；我说的是那个通常被扔进堆肥里的大木头红客。这些家伙实际上非常容易融入一顿饭；你只需要正确对待他们。
 

@@ -1,6 +1,6 @@
 # 为什么 90 年代的电视是你在家减肥的最佳伴侣
 
-> 原文:[https://life hacker . com/why-90s-TV-is-the-best-companion for you-home-body w-1796007483](https://lifehacker.com/why-90s-tv-is-the-best-companion-for-your-at-home-bodyw-1796007483)
+> 原文：<https://lifehacker.com/why-90s-tv-is-the-best-companion-for-your-at-home-bodyw-1796007483>
 
 我喜欢体重训练。它们高效、有效，而且便宜——不需要健身房会员。我所需要的只是几英尺的地板空间，我已经准备好交替进行深蹲和弓箭步。
 

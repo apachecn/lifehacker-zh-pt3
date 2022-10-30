@@ -1,6 +1,6 @@
 # 季节结束前吃西红柿的各种方法
 
-> 原文:[https://life hacker . com/every-way-to-eat-a-tomato-before-the-seat-over-1785479848](https://lifehacker.com/every-way-to-eat-a-tomato-before-the-season-is-over-1785479848)
+> 原文：<https://lifehacker.com/every-way-to-eat-a-tomato-before-the-season-is-over-1785479848>
 
 我和其他人一样喜欢浆果，但是西红柿才是阳光明媚的季节的真正原因。这些葡萄藤上的宝石有如此多的给予，有时我被所有潜在的美味所淹没。为了最大限度地利用这个季节，这里有一些吃这种美味、香甜、扑鼻的水果的最佳方法。
 

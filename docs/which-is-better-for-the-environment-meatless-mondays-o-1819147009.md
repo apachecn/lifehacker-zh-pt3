@@ -1,6 +1,6 @@
 # 哪个对环境更有利:无肉星期一还是#无肉十月？
 
-> 原文:[https://life hacker . com/哪个对环境更有利-无肉星期一-o-1819147009](https://lifehacker.com/which-is-better-for-the-environment-meatless-mondays-o-1819147009)
+> 原文：<https://lifehacker.com/which-is-better-for-the-environment-meatless-mondays-o-1819147009>
 
 作为一个十年的素食主义者，我支持任何可能减少美国人对动物产品依赖的倡议。虽然我的选择主要是出于动物福利的立场，但我也认识到牲畜，尤其是红肉的影响正在对我们的环境造成损害。
 

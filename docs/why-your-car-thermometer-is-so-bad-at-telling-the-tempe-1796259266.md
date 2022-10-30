@@ -1,6 +1,6 @@
 # 为什么你的汽车温度计不擅长显示温度
 
-> 原文:[https://life hacker . com/why-your-car-thermometer-is so bad-at-telling-the-tempe-1796259266](https://lifehacker.com/why-your-car-thermometer-is-so-bad-at-telling-the-tempe-1796259266)
+> 原文：<https://lifehacker.com/why-your-car-thermometer-is-so-bad-at-telling-the-tempe-1796259266>
 
 有时外面的汽车温度计是如此不准确，以至于它们感觉像随机数发生器。它们基本上是汽车最糟糕的功能，仅次于 [汽车的信息娱乐系统](http://lifehacker.com/why-does-every-car-infotainment-system-look-so-crappy-1794534701#_ga=2.116637574.1251083041.1497974194-672228682.1489692420) 。那是因为它们实际上不是温度计，它们实际上是*热敏电阻*。
 

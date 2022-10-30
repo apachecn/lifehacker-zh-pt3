@@ -1,6 +1,6 @@
 # 抗菌肥皂不再是 FDA 批准的
 
-> 原文:[https://life hacker . com/antibility-soap-is-no-longer-FDA-approved-1786100458](https://lifehacker.com/antibacterial-soap-is-no-longer-fda-approved-1786100458)
+> 原文：<https://lifehacker.com/antibacterial-soap-is-no-longer-fda-approved-1786100458>
 
 一年之内，像 [三氯生](https://en.wikipedia.org/wiki/Triclosan) 这样含有抗菌成分的肥皂将从商店货架上消失。美国 [美国食品药品监督管理局](http://www.fda.gov) 今天宣布了一项规定，不再认为出售给消费者的肥皂中的这些成分是安全有效的。
 

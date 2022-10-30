@@ -1,6 +1,6 @@
 # 如何确定您是否有资格获得新的 iPhone 升级
 
-> 原文:[https://life hacker . com/how-to-find-out-if-you-eligible-the-new-iphone-up-1828996511](https://lifehacker.com/how-to-find-out-if-youre-eligible-for-the-new-iphone-up-1828996511)
+> 原文：<https://lifehacker.com/how-to-find-out-if-youre-eligible-for-the-new-iphone-up-1828996511>
 
 2018 年 iPhone 系列发布会离只有几个小时了，苹果肯定会推出各种令人兴奋的进展。对我们大多数人来说，真正重要的是我们是否能立即得到它。
 

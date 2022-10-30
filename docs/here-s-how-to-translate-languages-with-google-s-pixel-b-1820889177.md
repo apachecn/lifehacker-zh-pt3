@@ -1,6 +1,6 @@
 # 以下是如何用谷歌的 Pixel Buds 翻译语言
 
-> 原文:[https://life hacker . com/here-s-how-to-translate-languages-with-Google-s-pixel-b-1820889177](https://lifehacker.com/here-s-how-to-translate-languages-with-google-s-pixel-b-1820889177)
+> 原文：<https://lifehacker.com/here-s-how-to-translate-languages-with-google-s-pixel-b-1820889177>
 
 谷歌的 Pixel Buds 是该公司首次尝试制作一副蓝牙耳塞。正如大量评论指出的那样，它们并不完美，但它们确实在小小的框架中包含了一些很酷的技巧。最吸引人的功能？他们可以使用谷歌翻译将你的演讲翻译成 40 种不同语言中的一种。但是，仅仅购买精美的耳塞还不足以让你成为一名国际外交官。你还需要合适的手机、应用程序和语言。
 

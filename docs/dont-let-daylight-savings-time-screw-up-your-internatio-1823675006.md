@@ -1,6 +1,6 @@
 # 不要让夏令时毁了你的国际旅行
 
-> 原文:[https://life hacker . com/don ' t-let-daylight-savings-time-screw-up-your-internatio-1823675006](https://lifehacker.com/dont-let-daylight-savings-time-screw-up-your-internatio-1823675006)
+> 原文：<https://lifehacker.com/dont-let-daylight-savings-time-screw-up-your-internatio-1823675006>
 
 到现在为止，你可能已经得到了备忘录 ，美国从今晚开始实行夏令时。你可能没有意识到的是，美国不是唯一实行夏令时的国家，也不是每个人今晚都实行夏令时。
 

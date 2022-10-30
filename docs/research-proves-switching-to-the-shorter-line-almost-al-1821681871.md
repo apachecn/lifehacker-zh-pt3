@@ -1,6 +1,6 @@
 # 研究证明，转到更短的线路几乎总是适得其反
 
-> 原文:[https://life hacker . com/research-proves-switching-to-the shorter-line-almost-al-1821681871](https://lifehacker.com/research-proves-switching-to-the-shorter-line-almost-al-1821681871)
+> 原文：<https://lifehacker.com/research-proves-switching-to-the-shorter-line-almost-al-1821681871>
 
 当你在一个似乎无处可去的杂货店排队时，你不应该换到另一个队列。研究人员称，除非收银员不需要等待就在你旁边开门，否则从一条线跳到另一条线实际上会适得其反。
 

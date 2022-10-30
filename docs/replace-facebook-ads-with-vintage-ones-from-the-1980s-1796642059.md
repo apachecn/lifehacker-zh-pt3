@@ -1,6 +1,6 @@
 # 用 20 世纪 80 年代的经典广告替换脸书的广告
 
-> 原文:[https://life hacker . com/replace-Facebook-ads-with-vintage-one-from-1980-1796642059](https://lifehacker.com/replace-facebook-ads-with-vintage-ones-from-the-1980s-1796642059)
+> 原文：<https://lifehacker.com/replace-facebook-ads-with-vintage-ones-from-the-1980s-1796642059>
 
 我和你一样厌倦了看脸书的烂广告。但是我没有运行标准的广告拦截器，而是用更有趣的东西来代替广告。特别是 80 年代的复古广告。激进。
 

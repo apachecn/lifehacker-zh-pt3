@@ -1,6 +1,6 @@
 # 如何将视频从 SD 卡导入 iPad 或 iPhone
 
-> 原文:[https://life hacker . com/how-to-import-video-from-an-SD-card-to-your-ipad-or-iph-1827022253](https://lifehacker.com/how-to-import-video-from-an-sd-card-to-your-ipad-or-iph-1827022253)
+> 原文：<https://lifehacker.com/how-to-import-video-from-an-sd-card-to-your-ipad-or-iph-1827022253>
 
 当我拍照或拍摄视频时，我喜欢使用一个漂亮的相机，然后将照片导入我的 iPad——这是我专用的照片编辑和社交媒体共享设备。但如果我想从同一个 SD 卡导入视频，这是一个更复杂的过程。这是你怎么做的。
 

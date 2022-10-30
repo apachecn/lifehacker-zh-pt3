@@ -1,6 +1,6 @@
 # 当你把所有的钱都花在鳄梨吐司上时，如何买得起房子
 
-> 原文:[https://life hacker . com/how-to-affordable a house-when you-speaking all-your-mone-1795231082](https://lifehacker.com/how-to-afford-a-house-when-youre-spending-all-your-mone-1795231082)
+> 原文：<https://lifehacker.com/how-to-afford-a-house-when-youre-spending-all-your-mone-1795231082>
 
 如果你是千禧一代，在攒钱买房方面有困难，澳大利亚百万富翁蒂姆·格纳给你一些简单的建议: [停止吃太多鳄梨吐司](http://time.com/money/4778942/avocados-millennials-home-buying/) 。那样的话，你永远也攒不到房子的钱。
 

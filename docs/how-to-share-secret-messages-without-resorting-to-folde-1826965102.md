@@ -1,6 +1,6 @@
 # 如何分享秘密信息而不诉诸“文件夹”
 
-> 原文:[https://life hacker . com/how-to-share-secret-messages-without-诉诸 folde-1826965102](https://lifehacker.com/how-to-share-secret-messages-without-resorting-to-folde-1826965102)
+> 原文：<https://lifehacker.com/how-to-share-secret-messages-without-resorting-to-folde-1826965102>
 
 电子通信仍然可以创建书面线索，正如前特朗普竞选主席保罗·马纳福特最近在得知的那样，他的保释因涉嫌篡改证人而被撤销，当时他正被软禁在家等待两次审判。
 

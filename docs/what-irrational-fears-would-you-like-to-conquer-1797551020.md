@@ -1,6 +1,6 @@
 # 你想征服哪些非理性的恐惧？
 
-> 原文:[https://life hacker . com/what-rational-fears-would-you-like-to-convert-1797551020](https://lifehacker.com/what-irrational-fears-would-you-like-to-conquer-1797551020)
+> 原文：<https://lifehacker.com/what-irrational-fears-would-you-like-to-conquer-1797551020>
 
 每个人都害怕一些事情，有时候那件事情不值得担心。你不理智地害怕什么？
 

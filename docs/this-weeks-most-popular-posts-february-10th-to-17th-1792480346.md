@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 10 日至 17 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 10 日至 17 日-1792480346](https://lifehacker.com/this-weeks-most-popular-posts-february-10th-to-17th-1792480346)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-10th-to-17th-1792480346>
 
 本周，我们探讨了如何在手机上保护您的隐私和个人数据，礼貌地处理令人讨厌的邻居狗，探讨了在家工作时避免成为隐士的方法，等等。这里回顾一下。
 

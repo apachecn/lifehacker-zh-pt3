@@ -1,6 +1,6 @@
 # 使用 Nerdwax 来防止眼镜滑落
 
-> 原文:[https://life hacker . com/use-nerd wax-to-keep-your-glasses-from-slipping-1786318763](https://lifehacker.com/use-nerdwax-to-keep-your-glasses-from-slipping-1786318763)
+> 原文：<https://lifehacker.com/use-nerdwax-to-keep-your-glasses-from-slipping-1786318763>
 
 不让我的眼镜滑下我的脸是一场持续的战斗。这是一个典型的书呆子比喻，对我来说是正确的，我已经失去了与重力的斗争。但是我已经找到了一些帮助，以 [Nerdwax](http://nerdwax.com) 的形式。
 

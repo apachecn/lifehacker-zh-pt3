@@ -1,6 +1,6 @@
 # 打开你手机的关机开关，这样如果被偷了就没用了
 
-> 原文:[https://life hacker . com/turn-on-your-phones-kill-switch-to-detent-dumb-sweets-1797410151](https://lifehacker.com/turn-on-your-phones-kill-switch-to-deter-dumb-thieves-1797410151)
+> 原文：<https://lifehacker.com/turn-on-your-phones-kill-switch-to-deter-dumb-thieves-1797410151>
 
 一部被盗的智能手机可能会毁了任何人的一天，尽管我们智能手机的内置防盗软件似乎在起作用，根据旧金山地区检察官乔治·加森 [的说法，他引用了在智能手机防盗法案通过后，从 2013 年到 2016 年与手机相关的抢劫案](http://sfdistrictattorney.org/anniversary-landmark-legislation-coincides-continuing-decline-violent-smartphone-robberies) 下降了 50%的数据。
 

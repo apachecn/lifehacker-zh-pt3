@@ -1,6 +1,6 @@
 # 职业聚焦:作为一名提词器操作员，我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-tele prompter-operator-1740841075](https://lifehacker.com/career-spotlight-what-i-do-as-a-teleprompter-operator-1740841075)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-teleprompter-operator-1740841075>
 
 要显得毫不费力是很难的。高产值通常可以通过你在一场演出中*看不到的东西来衡量，无论是现场表演还是电视节目，而一个勤奋、必要的幕后工作者就是提词器操作员。*
 

@@ -1,6 +1,6 @@
 # “装扮”你孩子的恐惧，让他们不那么可怕
 
-> 原文:[https://life hacker . com/dress-up-your-kids-fears-to-make-less-friends-1798709783](https://lifehacker.com/dress-up-your-kids-fears-to-make-them-less-scary-1798709783)
+> 原文：<https://lifehacker.com/dress-up-your-kids-fears-to-make-them-less-scary-1798709783>
 
 当小孩子说他们害怕怪物——并且知道 [恐怖症](https://www.verywell.com/what-is-the-fear-of-monsters-2671891) 是学龄前儿童中几乎普遍存在的恐惧——你*不应该*做的事情是忽视他们的恐惧，说些诸如“他们不是真的”之类的话。你在胡思乱想。就是不去想。”相反，帮助他们运用他们生动的想象力来增强能力。
 

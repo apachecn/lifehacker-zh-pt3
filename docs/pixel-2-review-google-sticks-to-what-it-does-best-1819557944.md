@@ -1,6 +1,6 @@
 # Pixel 2 点评:谷歌坚持做自己最擅长的事情
 
-> 原文:[https://gizmodo . com/pixel-2-review-Google-sticks-to-what-it-does-best-1819557944](https://gizmodo.com/pixel-2-review-google-sticks-to-what-it-does-best-1819557944)
+> 原文：<https://gizmodo.com/pixel-2-review-google-sticks-to-what-it-does-best-1819557944>
 
 当谷歌去年发布 Pixel 时，它表明了自己的立场。谷歌硬件将不再被其他公司的品牌和标志所玷污，即使在幕后，谷歌仍然需要这些公司的帮助来实际制造它的手机。尽管的设计几乎令人厌恶地丑陋，缺乏防水和可扩展存储等标准旗舰功能，以及大量供应链问题使其在首次发布一个月后很难实际购买，但仍有亮点，如 Pixel 出色的 HDR 照片模式和完美的 Android 体验。
 

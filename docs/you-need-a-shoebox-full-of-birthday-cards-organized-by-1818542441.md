@@ -1,6 +1,6 @@
 # 你需要一个装满生日贺卡的鞋盒，按月份分类
 
-> 原文:[https://life hacker . com/you-need-a-shoe box-full-of-birthday-cards-organized-by-1818542441](https://lifehacker.com/you-need-a-shoebox-full-of-birthday-cards-organized-by-1818542441)
+> 原文：<https://lifehacker.com/you-need-a-shoebox-full-of-birthday-cards-organized-by-1818542441>
 
 你听说过 [情绪劳动](https://en.wikipedia.org/wiki/Emotional_labor) 吗？自从社会学家 Arlie Hochschild 在 1983 年定义了这个术语以来，这个概念就一直存在。从本质上来说，这就是我们所做的工作，无论是专业的还是个人的，以一种社会可接受的方式来调节和表达我们的情绪——并关心他人的情绪健康。Metafilter 上关于情感劳动的 [史诗般的帖子](http://www.metafilter.com/151267/Wheres-My-Cut-On-Unpaid-Emotional-Labor) 触及了人们(通常是女性)被期望去做的各种事情来维持关系:安排美好的假期和膳食，为他们的家人，通常是他们伴侣的家人，购买合适的礼物，还有——这里是关键——送生日贺卡。
 

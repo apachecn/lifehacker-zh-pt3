@@ -1,6 +1,6 @@
 # 何时注射流感疫苗
 
-> 原文:[https://lifehacker.com/when-to-get-your-flu-shot-1818488166](https://lifehacker.com/when-to-get-your-flu-shot-1818488166)
+> 原文：<https://lifehacker.com/when-to-get-your-flu-shot-1818488166>
 
 这些迹象已经在你的药房里出现了，你的医生可能也在推动它，但是是不是已经到了注射流感疫苗的时候了？
 

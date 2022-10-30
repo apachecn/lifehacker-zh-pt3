@@ -1,6 +1,6 @@
 # 卡尔·博格斯特伦和杰文·韦斯特的《如何发现谎言》
 
-> 原文:[https://lifehacker.com/how-to-detect-bullshit-1803144313](https://lifehacker.com/how-to-detect-bullshit-1803144313)
+> 原文：<https://lifehacker.com/how-to-detect-bullshit-1803144313>
 
 在这一集里，我们将谈论扯淡:它是什么，如何发现它，以及如何把它说出来。首先，特约撰稿人尼克·道格拉斯加入了我们这个激动人心的游戏“两个真相和一个谎言”然后我们采访了卡尔·博格斯特伦和杰文·韦斯特，他们是华盛顿大学的教授，讲授一门叫做“扯淡”的课程。 最后，爱丽丝和职业作家贝丝·斯克沃茨基谈论了为什么我们如此容易受扯淡的影响，她在 Lifehacker 上写了 [扯淡抵制派](http://lifehacker.com/tag/bullshit-resistance-school) 专栏。
 

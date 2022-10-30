@@ -1,6 +1,6 @@
 # 为什么随着年龄的增长，你的智能手机似乎变慢了
 
-> 原文:[https://life hacker . com/why-your-smart phone-as-age-1798440451](https://lifehacker.com/why-your-smartphone-seems-to-slow-down-as-it-ages-1798440451)
+> 原文：<https://lifehacker.com/why-your-smartphone-seems-to-slow-down-as-it-ages-1798440451>
 
 随着年龄的增长，我们大多数人的速度都慢了下来。我们类似于传统的机器，就像旧车或吹风机，随着时间的推移，它们的运行效率越来越低。
 

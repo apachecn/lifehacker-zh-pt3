@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看鲨鱼周
 
-> 原文:[https://life hacker . com/how-to-watch-shark-week-without-cable-1827813597](https://lifehacker.com/how-to-watch-shark-week-without-cable-1827813597)
+> 原文：<https://lifehacker.com/how-to-watch-shark-week-without-cable-1827813597>
 
 这是鲨鱼周！今年其实是鲨鱼周 30 周年(有那么久吗？！)，所以 Discovery 已经有了 [一个相当坚实的鲨鱼内容阵容准备好了](https://www.discovery.com/tv-shows/shark-week/about) 。例如，今晚的阵容以晚上7 点的*盖伊·菲耶里的喂食狂潮*开始，随后是晚上8 点的 s*和晚上9 点的*气颚被猎杀*。*
 

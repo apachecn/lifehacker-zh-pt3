@@ -1,6 +1,6 @@
 # 官方 BB-8 播放列表
 
-> 原文:[https://life hacker . com/the-official-b B- 8-playlist-1764162011](https://lifehacker.com/the-official-bb-8-playlist-1764162011)
+> 原文：<https://lifehacker.com/the-official-bb-8-playlist-1764162011>
 
 当 BB-8 在《原力觉醒》中翻滚时，他偷走了我们所有人的心。如果官方的《星球大战》BB-8 播放列表(是的，真的)有任何暗示的话，他在音乐方面也有相当不错的品味。
 

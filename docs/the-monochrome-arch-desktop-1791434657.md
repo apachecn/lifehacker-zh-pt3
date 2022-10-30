@@ -1,6 +1,6 @@
 # 单色拱形桌面
 
-> 原文:[https://life hacker . com/the-monochrome-arch-desktop-1791434657](https://lifehacker.com/the-monochrome-arch-desktop-1791434657)
+> 原文：<https://lifehacker.com/the-monochrome-arch-desktop-1791434657>
 
 读者 [Linux Jess](http://kinja.com/eyecandylinux) 向我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 提交了这款由 Arch Linux 驱动的单色桌面，我们不禁对其进行了特写。它干净、优雅、易于复制。以下是方法。
 

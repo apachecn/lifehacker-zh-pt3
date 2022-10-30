@@ -1,6 +1,6 @@
 # 如何不像哈维·韦恩斯坦那样抚养你的儿子
 
-> 原文:[https://life hacker . com/how-not-to-raise-your-son-like-Harvey-Weinstein-1819369538](https://lifehacker.com/how-not-to-raise-your-son-like-harvey-weinstein-1819369538)
+> 原文：<https://lifehacker.com/how-not-to-raise-your-son-like-harvey-weinstein-1819369538>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-WFb0EDl-JS8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-WFb0EDl-JS8&start=0) 
 

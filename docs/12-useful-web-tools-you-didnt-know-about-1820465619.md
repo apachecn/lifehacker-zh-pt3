@@ -1,6 +1,6 @@
 # 你不知道的 12 个有用的网络工具
 
-> 原文:[https://gizmodo . com/12-useful-web-tools-you-not-know-about-1820465619](https://gizmodo.com/12-useful-web-tools-you-didnt-know-about-1820465619)
+> 原文：<https://gizmodo.com/12-useful-web-tools-you-didnt-know-about-1820465619>
 
 谷歌并不是唯一一家为网络开发有用应用的公司。如果你知道去哪里找，有很多不是在山景城制作的在线资源。这里有 12 个我们最喜欢的在线应用和网站，值得收藏在你的浏览器书签中，随时可以转换文件、增强照片、制作 gif、选择颜色、传输文档等等。
 

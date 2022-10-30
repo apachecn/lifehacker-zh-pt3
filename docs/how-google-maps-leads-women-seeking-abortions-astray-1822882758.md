@@ -1,6 +1,6 @@
 # 谷歌地图如何将寻求堕胎的女性引入歧途
 
-> 原文:[https://gizmodo . com/how-Google-maps-leads-women-seeking-faulting-astray-1822882758](https://gizmodo.com/how-google-maps-leads-women-seeking-abortions-astray-1822882758)
+> 原文：<https://gizmodo.com/how-google-maps-leads-women-seeking-abortions-astray-1822882758>
 
 如果你在搜索堕胎护理，使用谷歌地图时要小心——你可能会在一个危机怀孕中心而不是一个合法的诊所结束。在这些设施中，工作人员迫使客户“选择生活”，并使用关键字和地图功能在当地一级博弈结果。Gizmodo 和该死的 Joan 已经合伙调查；在他们的网站上阅读 [*访问妊娠危机中心*](https://damnjoan.com/abortionsearch) *是什么感觉，并阅读下面的谷歌地图中搜索堕胎护理时会发生什么。*
 

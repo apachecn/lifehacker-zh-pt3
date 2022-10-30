@@ -1,6 +1,6 @@
 # 谷歌求职可以为你下次找工作节省时间
 
-> 原文:[https://life hacker . com/Google-for-jobs-could-save-you-time on you-next-jobs-se-1796266140](https://lifehacker.com/google-for-jobs-could-save-you-time-on-your-next-job-se-1796266140)
+> 原文：<https://lifehacker.com/google-for-jobs-could-save-you-time-on-your-next-job-se-1796266140>
 
 谷歌今天推出了新的 [Google for Jobs 计划](https://blog.google/products/search/connecting-more-americans-jobs/) ，它将所有主要就业服务网站的工作列表放在一个易于搜索的地方。
 

@@ -1,6 +1,6 @@
 # 如何防止孩子、宠物和其他干扰破坏您的 Skype 会议
 
-> 原文:[https://life hacker . com/how-to-keep-kids-pets-and-other-disruptions-from-de-1793177092](https://lifehacker.com/how-to-keep-kids-pets-and-other-interruptions-from-de-1793177092)
+> 原文：<https://lifehacker.com/how-to-keep-kids-pets-and-other-interruptions-from-de-1793177092>
 
 这个可怜的家伙 在周五成为头条新闻，因为他的孩子打断了 BBC 的视频采访。远程工作者，你可能会有同感。无论是好奇的孩子，吵闹的宠物，还是外面街上的噪音，当分心干扰你的会议时，你很难保持专业。
 

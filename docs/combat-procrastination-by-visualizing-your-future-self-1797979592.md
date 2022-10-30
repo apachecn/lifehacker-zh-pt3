@@ -1,6 +1,6 @@
 # 通过想象未来的自己来对抗拖延症
 
-> 原文:[https://life hacker . com/通过想象自己的未来来战胜拖延症 1797979592](https://lifehacker.com/combat-procrastination-by-visualizing-your-future-self-1797979592)
+> 原文：<https://lifehacker.com/combat-procrastination-by-visualizing-your-future-self-1797979592>
 
 我是典型的拖延女王。如果某件事要到下周才能完成，那么我很可能不会在需要完成的前一天开始做，不管从现在到那时我是否有足够的时间来完成它。随着年龄的增长，我对拖延症有了更好的认识，但这仍然是个问题。现在，研究人员认为他们已经找到了解决办法:想象你成功的未来。
 

@@ -1,6 +1,6 @@
 # 交一个新朋友需要 90 个小时
 
-> 原文:[https://life hacker . com/it-take-take-90-hours-make-a-new-friend-1825145592](https://lifehacker.com/it-takes-90-hours-to-make-a-new-friend-1825145592)
+> 原文：<https://lifehacker.com/it-takes-90-hours-to-make-a-new-friend-1825145592>
 
 你可能知道 [把人加入你的核心圈子](https://lifehacker.com/this-is-how-many-friends-you-need-to-be-happy-1823425885) 需要时间，但是从陌生人变成好友实际上需要多少时间一直是个谜——直到现在。一项新的研究表明，你需要和某人相处至少 90 个小时，他们才会认为你是真正的朋友。
 

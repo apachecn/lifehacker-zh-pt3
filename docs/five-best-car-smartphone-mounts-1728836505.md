@@ -1,6 +1,6 @@
 # 五款最佳车载智能手机支架
 
-> 原文:[https://life hacker . com/five-best-car-smart phone-mounts-1728836505](https://lifehacker.com/five-best-car-smartphone-mounts-1728836505)
+> 原文：<https://lifehacker.com/five-best-car-smartphone-mounts-1728836505>
 
 在你的车里为你的智能手机找到一个完美的支架就像大海捞针一样。有很多选择。有些很便宜，有些很贵，而且有很多你可能不需要的部件和功能。然后还有其他的正好。本周我们将根据你们的提名选出五位最佳选手。
 

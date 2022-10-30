@@ -1,6 +1,6 @@
 # 使用 InspiroBot 创建令人捧腹的虚假励志信息
 
-> 原文:[https://life hacker . com/create-innoury-fake-inspirational-messages-with-inspi-1796535110](https://lifehacker.com/create-hilarious-fake-inspirational-messages-with-inspi-1796535110)
+> 原文：<https://lifehacker.com/create-hilarious-fake-inspirational-messages-with-inspi-1796535110>
 
 我喜欢鼓舞人心的，但是你在人们的 Instagram 账户上发现的大多数愚蠢的废话完全是垃圾。现在你可以用 InspiroBot 生成你自己的*灵感垃圾。* 
 

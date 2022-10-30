@@ -1,6 +1,6 @@
 # 学会比唐纳德·特朗普更好地画纽约的天际线
 
-> 原文:[https://life hacker . com/learn-to-draw-the-NYC-skyline-better-than-Donald-trump-1797276356](https://lifehacker.com/learn-to-draw-the-nyc-skyline-better-than-donald-trump-1797276356)
+> 原文：<https://lifehacker.com/learn-to-draw-the-nyc-skyline-better-than-donald-trump-1797276356>
 
 每一位伟大的艺术家都必须从某个地方开始，而对于唐纳德·特朗普来说，那个地方只是碰巧有一张 8.5 英寸×11 英寸的纸、一支金笔和对纽约市天际线的可怕理解。川普的*超级罕见、非常重要的*城市草图现在被拍卖，它 [可以是你的，出价不到 11，000 美元](http://natedsanders.com/Donald_Trump_Signed_Drawing_of_the_New_York_City_S-LOT46814.aspx) 。
 

@@ -1,6 +1,6 @@
 # 如何免费获得哈利波特电子书
 
-> 原文:[https://life hacker . com/how-to-get-the-the-Harry-Potter-ebook-for-free-1828658933](https://lifehacker.com/how-to-get-the-harry-potter-ebook-for-free-1828658933)
+> 原文：<https://lifehacker.com/how-to-get-the-harry-potter-ebook-for-free-1828658933>
 
 《哈利·波特与魔法石》第一次出现在货架上已经二十年了，*继续吸引、激励并促使公司在八月份开始推广 [邓布利多万圣节服装](https://www.potterybarnkids.com/shop/halloween/harry-potter-collection/?isx=0.0.769) 。如果你还没有向你的孩子介绍魔术，现在可能是时候了。接下来的两周，你可以 [通过 app](https://company.overdrive.com/2018/08/14/attract-new-users-with-the-20th-anniversary-of-harry-potter/) [Libby，by Overdrive](https://meet.libbyapp.com/) 免费阅读 J.K .罗琳经典 。你需要的只是一个图书证号码(如果你没有，你可以通过 Overdrive 的 [即时数字卡](https://resources.overdrive.com/library/apps-features/instant-digital-card/) 服务获得一个)。* 
 

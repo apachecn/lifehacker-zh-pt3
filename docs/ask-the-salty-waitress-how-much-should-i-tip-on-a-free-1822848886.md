@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:一份免费的开胃菜或一轮饮料，我应该给多少小费？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-I-dust-on-a-free-1822848886](https://thetakeout.com/ask-the-salty-waitress-how-much-should-i-tip-on-a-free-1822848886)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-how-much-should-i-tip-on-a-free-1822848886>
 
 * * *
 

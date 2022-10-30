@@ -1,6 +1,6 @@
 # 在每一轮工作面试中最好问的问题
 
-> 原文:[https://life hacker . com/the-best-questions-to-question-to-question-each-round-1792859446](https://lifehacker.com/the-best-questions-to-ask-in-every-job-interview-round-1792859446)
+> 原文：<https://lifehacker.com/the-best-questions-to-ask-in-every-job-interview-round-1792859446>
 
 诚然，在你真正开始工作之前，你永远无法完全确定自己会如何适应与一位 [新老板](https://www.themuse.com/advice/4-strategies-for-dealing-with-a-new-boss-whos-still-getting-the-hang-of-it) 、公司或团队一起工作，但在面试过程中问一些试探性和战略性的问题是收集有关潜在机会的有用信息的最简单方法之一。
 

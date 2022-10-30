@@ -1,6 +1,6 @@
 # 如何保持你的医疗保健，与计划生育
 
-> 原文:[https://life hacker . com/what-to-expect-when-you-expect-your-health care-to-1794310076](https://lifehacker.com/what-to-expect-when-youre-expecting-your-healthcare-to-1794310076)
+> 原文：<https://lifehacker.com/what-to-expect-when-youre-expecting-your-healthcare-to-1794310076>
 
 美国的医疗保健岌岌可危。特朗普的法案未能获得投票，尽管 ACA 仍然存在，但没有人确定随着立法的推进会发生什么。我们正与计划生育协会讨论如何通过健康保险来获得我们需要的医疗服务。
 

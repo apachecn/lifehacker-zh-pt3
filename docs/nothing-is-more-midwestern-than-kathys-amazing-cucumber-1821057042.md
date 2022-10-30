@@ -1,6 +1,6 @@
 # 没有什么比凯西令人惊叹的黄瓜三明治更具中西部特色了
 
-> 原文:[https://the take out . com/nothing-is-more-midwestern-than-kathys-amazing-cucumber-1821057042](https://thetakeout.com/nothing-is-more-midwestern-than-kathys-amazing-cucumber-1821057042)
+> 原文：<https://thetakeout.com/nothing-is-more-midwestern-than-kathys-amazing-cucumber-1821057042>
 
 我妈妈有很多优秀的品质。烹饪从来不是其中之一。并不是她不想做饭，她只是拼命工作——经常上夜班——我们的晚餐往往又快又简单，而且往往是在金宝汤浓缩汤的帮助下制作的。
 

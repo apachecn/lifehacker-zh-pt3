@@ -1,6 +1,6 @@
 # 它会腐烂吗？:我们换个话题吧！
 
-> 原文:[https://life hacker . com/will-it-sous-vide-let-pick-another-topic-1796986547](https://lifehacker.com/will-it-sous-vide-lets-pick-another-topic-1796986547)
+> 原文：<https://lifehacker.com/will-it-sous-vide-lets-pick-another-topic-1796986547>
 
 朋友们大家好，欢迎回到另一个生动的话题选择环节 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，列在那里我用我的沉浸循环器做任何你想让我做的事。
 

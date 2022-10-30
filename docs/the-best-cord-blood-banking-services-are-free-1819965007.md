@@ -1,6 +1,6 @@
 # 最好的脐带血银行服务是免费的
 
-> 原文:[https://life hacker . com/the-best-cord-blood-banking-services-is-free-1819965007](https://lifehacker.com/the-best-cord-blood-banking-services-are-free-1819965007)
+> 原文：<https://lifehacker.com/the-best-cord-blood-banking-services-are-free-1819965007>
 
 像我写这篇文章时一样，在谷歌上搜索“脐带血”，你会发现各种服务都不遗余力地向你乞求你孩子的脐带血，哦，只要几千美元。在一份 [更新的政策声明](https://www.healthychildren.org/English/ages-stages/prenatal/decisions-to-make/Pages/Should-We-Store-Our-Newborns-Cord-Blood.aspx) 中，美国儿科学会说:不要听那些家伙的。有更好的选择，而且是免费的。
 

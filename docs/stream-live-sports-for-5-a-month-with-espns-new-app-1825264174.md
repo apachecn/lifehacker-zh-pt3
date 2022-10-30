@@ -1,6 +1,6 @@
 # 使用 ESPN 的新应用，每月 5 美元即可观看体育直播
 
-> 原文:[https://life hacker . com/stream-live-sports-on-espns-new-app-1825264174](https://lifehacker.com/stream-live-sports-for-5-a-month-with-espns-new-app-1825264174)
+> 原文：<https://lifehacker.com/stream-live-sports-for-5-a-month-with-espns-new-app-1825264174>
 
 本周，ESPN 推出了 ESPN+，这是一种新的直接面向消费者的订阅视频服务，用于播放你最喜爱的体育赛事——每月仅需 5 美元(或每年 49.99 美元)。
 

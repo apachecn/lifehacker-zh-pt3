@@ -1,6 +1,6 @@
 # 日落火眼桌面
 
-> 原文:[https://life hacker . com/the-sunset-fire watch-desktop-1761352592](https://lifehacker.com/the-sunset-firewatch-desktop-1761352592)
+> 原文：<https://lifehacker.com/the-sunset-firewatch-desktop-1761352592>
 
 在 之前，我们已经 [推出了 Firewatch 桌面，但现在游戏推出了，我们看到了更多——谁能怪你呢，游戏的氛围是一个巨大的吸引，风景也很华丽。读者贾迪塔把这一个放在一起。](https://lifehacker.com/the-firewatch-desktop-1690335235)
 

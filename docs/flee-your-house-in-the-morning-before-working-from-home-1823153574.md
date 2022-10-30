@@ -1,6 +1,6 @@
 # 早上离家工作前逃离你的房子
 
-> 原文:[https://life hacker . com/flight-your house-before-work-from-home-1823153574](https://lifehacker.com/flee-your-house-in-the-morning-before-working-from-home-1823153574)
+> 原文：<https://lifehacker.com/flee-your-house-in-the-morning-before-working-from-home-1823153574>
 
 当你在家工作时，早上起床并立即打卡上班是一个简单的习惯。当你还在从眼睛里掏鼻屎的时候就开始一天的工作。
 

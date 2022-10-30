@@ -1,6 +1,6 @@
 # 妨碍司法公正是什么鬼？
 
-> 原文:[https://life hacker . com/到底什么是妨碍司法公正-1822930252](https://lifehacker.com/what-the-hell-is-obstruction-of-justice-1822930252)
+> 原文：<https://lifehacker.com/what-the-hell-is-obstruction-of-justice-1822930252>
 
 “妨碍司法公正”这个词最近经常被提起，尤其是当你看新闻的时候。特朗普 [总统被指控妨碍司法公正](http://thehill.com/homenews/politics-101/373216-what-is-obstruction-of-justice) 关于罗伯特·穆勒可能与俄国勾结的调查，现在众议院情报委员会主席德文·努内斯 [正把矛头指向他](https://www.nytimes.com/2018/02/12/opinion/devin-nunes-obstruction-justice.html) 为 [创建自己的另类新闻网站](https://www.politico.com/story/2018/02/11/devin-nunes-alternative-news-site-402097) 。但是妨碍司法公正是什么意思呢？
 

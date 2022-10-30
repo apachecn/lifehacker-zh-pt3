@@ -1,6 +1,6 @@
 # 探亲时如何给自己争取时间
 
-> 原文:[https://life hacker . com/how-to-get-time to-yourself-visiting-1820394412](https://lifehacker.com/how-to-get-time-to-yourself-when-visiting-relatives-1820394412)
+> 原文：<https://lifehacker.com/how-to-get-time-to-yourself-when-visiting-relatives-1820394412>
 
 即使你不是那种通常需要很多“自我时间”的人，拜访家人也会让人不知所措。在拥挤的房子里，你需要特定的策略来获得独处的时间，而不会显得疏远或对与家人共度时光不感兴趣。
 

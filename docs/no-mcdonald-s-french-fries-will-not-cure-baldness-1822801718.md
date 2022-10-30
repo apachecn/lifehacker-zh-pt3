@@ -1,6 +1,6 @@
 # 不，麦当劳的薯条不会治愈秃顶
 
-> 原文:[https://life hacker . com/no-McDonald-s-French-fries-will-not-cure-baldness-1822801718](https://lifehacker.com/no-mcdonald-s-french-fries-will-not-cure-baldness-1822801718)
+> 原文：<https://lifehacker.com/no-mcdonald-s-french-fries-will-not-cure-baldness-1822801718>
 
 本周，一篇关于在实验室中培养毛囊的技术论文被报道为在麦当劳的煎锅中发现了一种治疗秃顶的方法。一家澳大利亚电视台 [报道](https://www.express.co.uk/life-style/health/914495/Baldness-cure-medicine-treatment-chemical-McDonalds-fries-hair-transplant) “日本科学家称吃麦当劳薯条可以治愈秃顶”。不，不，他们没有。
 

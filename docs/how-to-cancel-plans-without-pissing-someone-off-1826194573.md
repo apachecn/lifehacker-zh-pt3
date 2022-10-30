@@ -1,6 +1,6 @@
 # 如何取消计划而不惹恼别人
 
-> 原文:[https://life hacker . com/how-to-cancel-plans-without-godding-someone-off-1826194573](https://lifehacker.com/how-to-cancel-plans-without-pissing-someone-off-1826194573)
+> 原文：<https://lifehacker.com/how-to-cancel-plans-without-pissing-someone-off-1826194573>
 
 取消社交计划是自我满足的极致——首先你从计划中获得快感，然后你从自由中获得快感。但有时你会让对方感到恼火和背叛。因此，无论何时你取消了和某人的约会，一定要立即和他们制定新的计划，redditor DevotedlyHopeless 在/r/LifeProTips 上的一篇帖子中说。这里有更多的策略可以让你在不犯错的情况下取消约会。
 

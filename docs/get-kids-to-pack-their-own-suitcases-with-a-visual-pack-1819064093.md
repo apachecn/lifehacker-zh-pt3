@@ -1,6 +1,6 @@
 # 让孩子用直观的装箱单打包自己的行李箱
 
-> 原文:[https://life hacker . com/get-kids-to-pack-of-your-own-pitches-with-a-visual-pack-1819064093](https://lifehacker.com/get-kids-to-pack-their-own-suitcases-with-a-visual-pack-1819064093)
+> 原文：<https://lifehacker.com/get-kids-to-pack-their-own-suitcases-with-a-visual-pack-1819064093>
 
 让我四岁的女儿收拾行李去旅行，让她自己决定，她会带上她的毛绒兔子、一件艾尔莎裙子和四颗软糖。她需要一份清楚的装箱单，但她还不识字。这个来自 Reddit 用户 passingglan s 的 [想法会给她很大帮助。](https://www.reddit.com/r/ADHD/comments/731p5n/this_visual_packing_list_enabled_my_kids_to/) 
 

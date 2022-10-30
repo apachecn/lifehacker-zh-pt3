@@ -1,6 +1,6 @@
 # 如何在推特和脸书上隐藏“热门话题”
 
-> 原文:[https://life hacker . com/hide-trending-topics-from-Twitter-and-Facebook-1823243245](https://lifehacker.com/hide-trending-topics-from-twitter-and-facebook-1823243245)
+> 原文：<https://lifehacker.com/hide-trending-topics-from-twitter-and-facebook-1823243245>
 
 [“热门话题”都是扯淡](http://nymag.com/selectall/2018/02/trending-on-social-media-is-worthless.html) ，表示全选。社交媒体网站上的这些小模块充斥着陈词滥调和虚假信息。本周三，YouTube 的趋势页面 [包括一个阴谋论视频](https://www.cnbc.com/2018/02/22/youtube-trending-algorithm-needs-reform.html) ，它声称斯通曼道格拉斯高中争取枪支管制的学生实际上是付费演员。(旁白:他们不是。)
 

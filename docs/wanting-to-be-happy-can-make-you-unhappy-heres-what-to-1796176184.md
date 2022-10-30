@@ -1,6 +1,6 @@
 # 想要快乐会让你不快乐——以下是你应该做的
 
-> 原文:[https://life hacker . com/wanting-to-be-happy-can-make-you-unhappy-heres-what-to-1796176184](https://lifehacker.com/wanting-to-be-happy-can-make-you-unhappy-heres-what-to-1796176184)
+> 原文：<https://lifehacker.com/wanting-to-be-happy-can-make-you-unhappy-heres-what-to-1796176184>
 
 最近在 [*抑郁和焦虑*](http://onlinelibrary.wiley.com/doi/10.1002/da.22653/abstract) 的一项研究发现，想要快乐的社会压力会导致抑郁水平上升。
 

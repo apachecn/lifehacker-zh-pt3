@@ -1,6 +1,6 @@
 # 如何在持续不断的坏消息中保持清醒
 
-> 原文:[https://life hacker . com/how-to-keep your-head in the constant-stream of bad-1747891922](https://lifehacker.com/how-to-keep-your-head-up-in-the-constant-stream-of-bad-1747891922)
+> 原文：<https://lifehacker.com/how-to-keep-your-head-up-in-the-constant-stream-of-bad-1747891922>
 
 尽你最大的努力跟上时事，常常会感觉像淹没在永无止境的坏消息洪流中。信息从四面八方向你涌来，很容易让你筋疲力尽。同情和团结很重要，但做一个知情的公民并不意味着你总是要与船共沉。
 

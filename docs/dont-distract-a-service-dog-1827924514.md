@@ -1,6 +1,6 @@
 # 不要分散服务犬的注意力
 
-> 原文:[https://life hacker . com/dont-distant-a-service-dog-1827924514](https://lifehacker.com/dont-distract-a-service-dog-1827924514)
+> 原文：<https://lifehacker.com/dont-distract-a-service-dog-1827924514>
 
 认识狗很有趣，所以我们知道你为什么想认识所有的狗，甚至是服务犬。但是至关重要的是——拯救生命——你要认识到一只宠物和一只正在工作的狗之间的区别。正如博客 Mashable 解释的那样，如果你引开一只服务犬、、[，你可能会危及它主人的生命](https://mashable.com/2018/07/26/how-to-behave-around-service-dogs/#P0Az_.dvrPqS)、。
 

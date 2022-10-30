@@ -1,6 +1,6 @@
 # 通过评估你的理想找到工作压力的根源
 
-> 原文:[https://life hacker . com/get-to-the-root of the-working-stress by-evaluation-your-ideal-1763525534](https://lifehacker.com/get-to-the-root-of-work-stress-by-evaluating-your-ideal-1763525534)
+> 原文：<https://lifehacker.com/get-to-the-root-of-work-stress-by-evaluating-your-ideal-1763525534>
 
 我们当中没有一个工作的人不应对压力——无论你是企业家、自由职业者、为一家陷入困境的初创公司工作，还是为一家公司打卡上班，工作压力都是不可避免的。但是这种压力从何而来，我们该如何应对呢？
 

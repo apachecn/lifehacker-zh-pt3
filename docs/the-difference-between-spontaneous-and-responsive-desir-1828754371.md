@@ -1,6 +1,6 @@
 # 自发欲望和响应欲望的区别
 
-> 原文:[https://life hacker . com/the-difference-in-自发性和响应性-desir-1828754371](https://lifehacker.com/the-difference-between-spontaneous-and-responsive-desir-1828754371)
+> 原文：<https://lifehacker.com/the-difference-between-spontaneous-and-responsive-desir-1828754371>
 
 当你想到性欲时，你通常只想到一件事——渴望性。但实际上有两种完全不同类型的性欲:自发的欲望和响应的欲望。请继续阅读这两者之间的区别，如何知道你是哪一种，这对你的性生活意味着什么。
 

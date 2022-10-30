@@ -1,6 +1,6 @@
 # 如何用自定义壁纸隐藏 iPhone X 丑陋的凹口
 
-> 原文:[https://life hacker . com/how-to-hide-the-iphone-x-s-ugly-notch-with-a-custom-wal-1820262216](https://lifehacker.com/how-to-hide-the-iphone-x-s-ugly-notch-with-a-custom-wal-1820262216)
+> 原文：<https://lifehacker.com/how-to-hide-the-iphone-x-s-ugly-notch-with-a-custom-wal-1820262216>
 
 如果不是因为那个缺口， [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 的设计可能会很完美。苹果新的[【Face ID】](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)要工作，屏幕顶部的一点边框可能是必要的，但这并不意味着我们不讨厌它的外观。
 

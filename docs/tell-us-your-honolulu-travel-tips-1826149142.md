@@ -1,6 +1,6 @@
 # 告诉我们你的檀香山旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-檀香山旅游提示-1826149142](https://lifehacker.com/tell-us-your-honolulu-travel-tips-1826149142)
+> 原文：<https://lifehacker.com/tell-us-your-honolulu-travel-tips-1826149142>
 
 我去过檀香山一次。这座城市很棒，但我租不到车，有一天我试图乘公交车环游整个瓦胡岛。我错过了一辆公共汽车，结果在郊区一个没有遮荫的公共汽车站坐了一个下午。所以，当你在本周的《黑客你的城市》(Hack Your City)中给出檀香山的旅行建议时，请记住我这个被太阳晒黑的蠢屁股。
 

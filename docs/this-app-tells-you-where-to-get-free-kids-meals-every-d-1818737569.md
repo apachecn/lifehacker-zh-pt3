@@ -1,6 +1,6 @@
 # 这个应用程序告诉你在哪里可以得到免费的儿童餐
 
-> 原文:[https://life hacker . com/this-app-tell-you-where-to-get-free-kids-meals-every-d-1818737569](https://lifehacker.com/this-app-tells-you-where-to-get-free-kids-meals-every-d-1818737569)
+> 原文：<https://lifehacker.com/this-app-tells-you-where-to-get-free-kids-meals-every-d-1818737569>
 
 儿童餐 [通常不是什么让](https://offspring.lifehacker.com/how-to-avoid-the-kids-menu-trap-1797063076) 过于兴奋的事情，但是*免费*儿童餐——那就是另一回事了。我有一些朋友计划他们的几周在提供免费(或超便宜)儿童套餐的餐馆中轮换——在我们的街区，周一是 El Pollo Inka，周二是 Ruby's Diner，周三是 Buffalo Wild Wings，周六是 Baja Fresh。(谁说为人父母不是一件令人兴奋的事？)
 

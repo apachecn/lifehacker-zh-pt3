@@ -1,6 +1,6 @@
 # 如何清理和优化你的苹果电脑
 
-> 原文:[https://life hacker . com/how-to-clean-up-and-optimize-your-slacky-MAC-1794877821](https://lifehacker.com/how-to-clean-up-and-optimize-your-sluggish-mac-1794877821)
+> 原文：<https://lifehacker.com/how-to-clean-up-and-optimize-your-sluggish-mac-1794877821>
 
 您的 Mac 最近运行速度有点慢。启动需要很长时间。你必须删除一些东西才能从会计部的卡拉那里下载附件。任何时候你播放一个视频，它都会锁定几秒钟。让我们解决这一切。
 

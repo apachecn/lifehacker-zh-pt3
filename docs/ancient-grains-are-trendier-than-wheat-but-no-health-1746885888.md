@@ -1,6 +1,6 @@
 # 藜麦等“古老谷物”比小麦更时尚，但并不健康
 
-> 原文:[https://life hacker . com/ancient-grains-than-wheat-but-no-health-1746885888](https://lifehacker.com/ancient-grains-are-trendier-than-wheat-but-no-health-1746885888)
+> 原文：<https://lifehacker.com/ancient-grains-are-trendier-than-wheat-but-no-health-1746885888>
 
 “古谷物”从今年 1 月开始正式成为主流，当时他们有了自己的 [Cheerios 版本](http://www.cheerios.com/Products/Ancient%20Grains.aspx) 。藜麦、斯佩尔特小麦和画眉草之类的食物越来越多，总是暗示它们比无聊的老小麦或玉米更健康。
 

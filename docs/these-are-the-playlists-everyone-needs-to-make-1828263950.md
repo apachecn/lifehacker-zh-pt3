@@ -1,6 +1,6 @@
 # 这些是每个人都需要制作的播放列表
 
-> 原文:[https://life hacker . com/these-is-the-playlists-every-need-to-make-1828263950](https://lifehacker.com/these-are-the-playlists-everyone-needs-to-make-1828263950)
+> 原文：<https://lifehacker.com/these-are-the-playlists-everyone-needs-to-make-1828263950>
 
 某些情绪需要配乐。当你悲伤、兴奋或亲热时，某种音乐可以提升体验，给你的生活增添一种宏伟的电影般的品质。如果你有特殊的音乐品味，播放 Spotify 的预制播放列表并不能满足你的要求。你想要一个定制的播放列表，先在几分钟内制作好，然后经过数年的磨练。以下是你应该为自己准备的五个播放列表。
 

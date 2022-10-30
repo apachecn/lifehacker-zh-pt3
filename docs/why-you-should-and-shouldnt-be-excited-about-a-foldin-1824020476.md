@@ -1,6 +1,6 @@
 # 为什么你应该(或不应该)对折叠式 iPhone 感到兴奋
 
-> 原文:[https://gizmodo . com/why-you-should-and-should-not-excited-on-a-foldin-1824020476](https://gizmodo.com/why-you-should-and-shouldnt-be-excited-about-a-foldin-1824020476)
+> 原文：<https://gizmodo.com/why-you-should-and-shouldnt-be-excited-about-a-foldin-1824020476>
 
 [LG](https://gizmodo.com/lg-g-flex-2-hands-on-back-bent-better-1677472599) ， [三星](https://gizmodo.com/samsungs-flexible-flip-phone-might-be-coming-next-year-1805252364) ，甚至 [联想](https://gizmodo.com/lenovos-folding-tablet-prototype-is-my-dream-gadget-1797186988) 到现在都在尝试把可折叠屏幕的小玩意做成一个东西有一段时间了。但是在一个小小的谣言说苹果可能也在研究一个之后，突然每个人都变得狂热起来？求你了。
 

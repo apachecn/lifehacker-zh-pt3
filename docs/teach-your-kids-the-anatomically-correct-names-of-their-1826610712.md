@@ -1,6 +1,6 @@
 # 教你的孩子正确的身体部位的解剖学名称
 
-> 原文:[https://life hacker . com/teach-your-kids-the-anatomically-correct-names-of-their-1826610712](https://lifehacker.com/teach-your-kids-the-anatomically-correct-names-of-their-1826610712)
+> 原文：<https://lifehacker.com/teach-your-kids-the-anatomically-correct-names-of-their-1826610712>
 
 一位匿名的母亲为《今日》写了一篇题为《如何想象不可想象的事情》的文章。 “这种类型的故事，作为父母，你不忍心看，这意味着你必须看(尽管要提醒你，这是关于性虐待的)。她详细描述了她是如何发现一个保姆和她六岁的儿子玩了一个叫做“私处”的游戏。整件事很可怕，你会想“*永远不要，永远不要，我的孩子，”然而正如作者指出的，三分之一的女孩和六分之一的男孩在他们 18 岁时会成为儿童性虐待的受害者。* 
 

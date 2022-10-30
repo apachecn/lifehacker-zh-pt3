@@ -1,6 +1,6 @@
 # 如何让长途飞行中的经济舱变得舒适
 
-> 原文:[https://life hacker . com/how-to-make-economy-class-tolerable-on-a long-flight-1828631187](https://lifehacker.com/how-to-make-economy-class-tolerable-on-a-long-flight-1828631187)
+> 原文：<https://lifehacker.com/how-to-make-economy-class-tolerable-on-a-long-flight-1828631187>
 
 如果你面临着在拥挤狭窄的经济舱中飞行 10 个多小时的前景，请记住，在安检口他们仍然不能从你那里拿走一些飞行中的奢侈品。
 

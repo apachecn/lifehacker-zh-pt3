@@ -1,6 +1,6 @@
 # 如果网络中立死亡，如何抵制你的互联网服务提供商
 
-> 原文:[https://life hacker . com/how-to-boycit-your-internet-service-provider-if-net-ne-1821337295](https://lifehacker.com/how-to-boycott-your-internet-service-provider-if-net-ne-1821337295)
+> 原文：<https://lifehacker.com/how-to-boycott-your-internet-service-provider-if-net-ne-1821337295>
 
 网络中立还没死，但 FCC 主席 Ajit Pai(以及威瑞森、康卡斯特、AT & T 等互联网提供商)在 [周四投票](https://gizmodo.com/fcc-votes-to-kill-net-neutrality-capping-a-year-of-end-1821257779) 后，向胜利迈出了一大步。然而，如果所有 [计划的异议、上诉和抗议](https://lifehacker.com/1821334744) 都失败了，网络中立真的完蛋了，那可能是时候认真考虑抵制你的互联网提供商~~了，如果他们开始滥用这些新规则下的权力。~~ 
 

@@ -1,6 +1,6 @@
 # 通过苹果新闻“2018 年中期选举”部分获得政治的直接反馈
 
-> 原文:[https://life hacker . com/get-a-direct-feed-of-politics-with-apple-news-2018-midt-1827103639](https://lifehacker.com/get-a-direct-feed-of-politics-with-apple-news-2018-midt-1827103639)
+> 原文：<https://lifehacker.com/get-a-direct-feed-of-politics-with-apple-news-2018-midt-1827103639>
 
 苹果的新闻应用程序，一个在你的 iPhone 和 iPad 上可获得的故事的精选提要，为政治迷(或那些只想快速了解一天的疯狂的人)提供了一个全新的补充。
 

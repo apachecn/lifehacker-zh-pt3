@@ -1,6 +1,6 @@
 # 我有本田预算的保时捷梦想！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-have-Porsche-dreams-on-a-Honda-budget-what-car-shoul-1787147409](https://jalopnik.com/i-have-porsche-dreams-on-a-honda-budget-what-car-shoul-1787147409)
+> 原文：<https://jalopnik.com/i-have-porsche-dreams-on-a-honda-budget-what-car-shoul-1787147409>
 
 乔恩是一名 20 多岁的工程师，他想要一辆能充分利用加州峡谷的迷人汽车，但他不确定是应该挥霍一笔买一辆保时捷，还是买一辆更合理的安全型汽车。他应该买什么车？
 

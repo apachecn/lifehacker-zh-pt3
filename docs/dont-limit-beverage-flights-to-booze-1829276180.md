@@ -1,6 +1,6 @@
 # 如何制作康普茶飞行
 
-> 原文:[https://life hacker . com/don-limit-beverage-flights-to-booze-1829276180](https://lifehacker.com/dont-limit-beverage-flights-to-booze-1829276180)
+> 原文：<https://lifehacker.com/dont-limit-beverage-flights-to-booze-1829276180>
 
 当谈到花式饮料飞行和配对时，酒精似乎有所有的乐趣，但有许多非烈性饮料受益于一点比较和对比。
 

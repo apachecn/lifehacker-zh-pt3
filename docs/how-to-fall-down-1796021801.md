@@ -1,6 +1,6 @@
 # 如何摔倒
 
-> 原文:[https://lifehacker.com/how-to-fall-down-1796021801](https://lifehacker.com/how-to-fall-down-1796021801)
+> 原文：<https://lifehacker.com/how-to-fall-down-1796021801>
 
 你可能不认为绊倒和跌落几英尺会造成很大的伤害，但是你就大错特错了。
 

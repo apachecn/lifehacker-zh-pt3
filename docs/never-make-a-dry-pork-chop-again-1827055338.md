@@ -1,6 +1,6 @@
 # 再也不做干猪排了[更新]
 
-> 原文:[https://life hacker . com/never-make-a-dry-猪排-1827055338](https://lifehacker.com/never-make-a-dry-pork-chop-again-1827055338)
+> 原文：<https://lifehacker.com/never-make-a-dry-pork-chop-again-1827055338>
 
 多汁、烹饪完美的猪排可以媲美上好的牛排，而且猪排比任何牛肉都便宜(除了炖肉和便宜的汉堡)。但猪排很容易煮过头，这可能会吓到胆小的家庭厨师，阻止他们享受这种财政上负责任、难以置信的美味蛋白质。
 

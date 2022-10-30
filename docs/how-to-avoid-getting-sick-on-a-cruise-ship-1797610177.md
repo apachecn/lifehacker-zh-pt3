@@ -1,6 +1,6 @@
 # 如何避免在游轮上生病
 
-> 原文:[https://life hacker . com/how-to-避免在游轮上生病-1797610177](https://lifehacker.com/how-to-avoid-getting-sick-on-a-cruise-ship-1797610177)
+> 原文：<https://lifehacker.com/how-to-avoid-getting-sick-on-a-cruise-ship-1797610177>
 
 游轮被认为是臭名昭著的养病温床， [尤其是“两头发火”的那种](https://lifehacker.com/stop-blaming-food-poisoning-on-the-last-thing-you-ate-1796688099) 。如果你宁愿在旅途中晒晒太阳，喝喝巴哈马奶妈，也不愿意反过来看你的自助晚餐，遵循以下建议。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 6 日至 13 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-1 月 6 日至 13 日-1791165457](https://lifehacker.com/this-weeks-most-popular-posts-january-6th-to-13th-1791165457)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-6th-to-13th-1791165457>
 
 本周，我们舒适地学习了丹麦应对严冬的“hygge”概念，测试了最好的复古游戏控制器，比较了流行的语言学习应用程序，等等。这里回顾一下。
 

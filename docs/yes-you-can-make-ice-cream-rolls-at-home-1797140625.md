@@ -1,6 +1,6 @@
 # 是的，你可以在家做冰淇淋卷
 
-> 原文:[https://life hacker . com/yes-you-can-make-ice cream-rolls-in-home-1797140625](https://lifehacker.com/yes-you-can-make-ice-cream-rolls-at-home-1797140625)
+> 原文：<https://lifehacker.com/yes-you-can-make-ice-cream-rolls-at-home-1797140625>
 
 冰淇淋似乎越来越与光学有关。在一个圆锥体中有一个简单的勺子是不够的；得是鱼嘴里的，或者 [来一整片馅饼](https://www.instagram.com/p/BWnei86AsXW/?taken-by=iceandvice&hl=en) 。冰淇淋卷适合视觉上引人注目的人群，但它们有一种优雅的简单，这是其他 Instagram 上的乳制品甜点所缺乏的。如果你从未看过它们制作的视频，那会非常令人着迷。
 

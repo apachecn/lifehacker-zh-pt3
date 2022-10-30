@@ -1,6 +1,6 @@
 # 如果你的汽车贷款太高，这可能是你自己的错
 
-> 原文:[https://jalopnik . com/its-possible-your-own-fault-if-your-car-payments-to-1762856007](https://jalopnik.com/its-probably-your-own-fault-if-your-car-payments-are-to-1762856007)
+> 原文：<https://jalopnik.com/its-probably-your-own-fault-if-your-car-payments-are-to-1762856007>
 
 汽车贷款的平均支付额几乎是每月 500 美元，贷款拖欠率(T0)和(T1)都处于历史最高水平(T2，T3，T4，T5)。许多行业分析师担心人们负担不起汽车贷款的长期财务后果。但是如果你在努力还款，不要责怪银行或经销商。
 

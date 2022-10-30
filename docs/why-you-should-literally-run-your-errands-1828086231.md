@@ -1,6 +1,6 @@
 # 为什么你真的应该跑腿
 
-> 原文:[https://life hacker . com/why-you-should-run-your-差事-1828086231](https://lifehacker.com/why-you-should-literally-run-your-errands-1828086231)
+> 原文：<https://lifehacker.com/why-you-should-literally-run-your-errands-1828086231>
 
 跑步是一项非常适合懒人的运动。不像团体课程或俱乐部运动队，需要承诺和提前计划来保留(并经常支付)你的位置，你需要的只是一个身体，一双跑鞋和一条路。然而，尽管低门槛的进入打开了我的大门，我有时仍然需要动力去行动。
 

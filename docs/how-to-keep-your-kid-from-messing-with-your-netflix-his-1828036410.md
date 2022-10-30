@@ -1,6 +1,6 @@
 # 如何不让你的孩子弄乱你的网飞历史
 
-> 原文:[https://life hacker . com/how-to-keep your-kid-from-messing with-your -- his-1828036410](https://lifehacker.com/how-to-keep-your-kid-from-messing-with-your-netflix-his-1828036410)
+> 原文：<https://lifehacker.com/how-to-keep-your-kid-from-messing-with-your-netflix-his-1828036410>
 
 与家人共用一个网飞账户的父母知道这种明显的痛苦。哄孩子睡觉后，你坐下来看一部性感的新剧(或者对我来说，是《英国烘焙秀》)，然后电视屏幕上弹出:“因为你看了*拉拉鲁普西:糖果节*，这里是*露娜佩妮*、*我的小马*和*草莓酥饼*！”你的节目！你所有的节目都怎么了？！
 

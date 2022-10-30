@@ -1,6 +1,6 @@
 # 为什么黄油曾经有自己的食物群
 
-> 原文:[https://life hacker . com/why-butter-use-to-have-own-food-group-1818914199](https://lifehacker.com/why-butter-used-to-have-its-own-food-group-1818914199)
+> 原文：<https://lifehacker.com/why-butter-used-to-have-its-own-food-group-1818914199>
 
 现在的孩子都有 [MyPlate](https://www.fns.usda.gov/tn/myplate) 。在我成长的过程中，我们学习了 [食物金字塔](https://www.cnpp.usda.gov/sites/default/files/archived_projects/FGPPamphlet.pdf) 。我的父母将 grub 分为四类食物。但是回顾得更远一点，饮食建议就变得更奇怪了:在 20 世纪 50 年代早期，有七种食物，其中一种是黄油。
 

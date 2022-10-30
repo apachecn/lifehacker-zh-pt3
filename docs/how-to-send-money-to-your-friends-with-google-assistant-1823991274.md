@@ -1,6 +1,6 @@
 # 如何用谷歌助手给朋友汇钱
 
-> 原文:[https://life hacker . com/how-to-send-money-to-your-friends with-Google-assistant-1823991274](https://lifehacker.com/how-to-send-money-to-your-friends-with-google-assistant-1823991274)
+> 原文：<https://lifehacker.com/how-to-send-money-to-your-friends-with-google-assistant-1823991274>
 
 说到朋友间的， [Venmo](https://lifehacker.com/should-you-worry-about-the-security-of-apps-like-venmo-1688958375#_ga=2.122117003.1830393297.1521726272-2116083491.1521480580) 才是王道(这款 app 太受欢迎了，甚至成了动词)。然而，如果你更喜欢通过语音命令使用手机，谷歌的竞争服务 就变得更有吸引力了。该公司周四更新了其人工智能助理应用程序，增加了只用你的声音发送或请求金钱的功能。
 

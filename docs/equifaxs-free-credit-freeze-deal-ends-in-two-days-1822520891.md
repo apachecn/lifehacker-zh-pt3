@@ -1,6 +1,6 @@
 # Equifax 的免费信用冻结协议将在两天后到期
 
-> 原文:[https://life hacker . com/equi faxs-free-credit-freeze-deal-ends-in-two-days-1822520891](https://lifehacker.com/equifaxs-free-credit-freeze-deal-ends-in-two-days-1822520891)
+> 原文：<https://lifehacker.com/equifaxs-free-credit-freeze-deal-ends-in-two-days-1822520891>
 
 如果你想免费冻结你的 Equifax 信用报告，你最好快点做。
 

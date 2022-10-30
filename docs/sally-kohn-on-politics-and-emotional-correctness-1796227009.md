@@ -1,6 +1,6 @@
 # 如何在情感上保持正确，莎莉·科恩
 
-> 原文:[https://life hacker . com/sally-Kohn-on-politics-and-emotional-correction-1796227009](https://lifehacker.com/sally-kohn-on-politics-and-emotional-correctness-1796227009)
+> 原文：<https://lifehacker.com/sally-kohn-on-politics-and-emotional-correctness-1796227009>
 
 本周，我们采访了萨利·科恩:政治评论员、 [专栏作家、](http://www.sallykohn.com/writing/) ，也是我们主要的进步声音之一。
 

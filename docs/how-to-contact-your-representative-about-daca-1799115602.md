@@ -1,6 +1,6 @@
 # 如何联系您的 DACA 代表
 
-> 原文:[https://life hacker . com/how-to-contact-your-representative-about-daca-1799115602](https://lifehacker.com/how-to-contact-your-representative-about-daca-1799115602)
+> 原文：<https://lifehacker.com/how-to-contact-your-representative-about-daca-1799115602>
 
 星期五 [白宫建议](https://www.nbcnews.com/politics/immigration/trump-decision-dreamers-n798151) 川普总统计划结束童年抵美者暂缓行动(DACA)，这是奥巴马政府时期推出的一项保护年轻无证移民免遭驱逐的计划。该项目允许这些年轻人在美国上学或寻求工作许可，期限可延长两年。
 

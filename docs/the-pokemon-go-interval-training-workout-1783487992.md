@@ -1,6 +1,6 @@
 # 神奇宝贝 Go 间歇训练健身程序
 
-> 原文:[https://life hacker . com/the-pokemon-go-interval-training-workout-1783487992](https://lifehacker.com/the-pokemon-go-interval-training-workout-1783487992)
+> 原文：<https://lifehacker.com/the-pokemon-go-interval-training-workout-1783487992>
 
 如果你想成为最好的，前所未有的，你需要保持身材。*神奇宝贝 Go* 已经是 [让人们移动更多的](https://gizmodo.com/sore-legs-become-pandemic-as-pokemon-go-players-acciden-1783402931) ，但是你可能想把事情推进一个档次。这项训练可以让你在打球的时候保持健康，并且可以很容易地根据你所在的地区量身定做。
 

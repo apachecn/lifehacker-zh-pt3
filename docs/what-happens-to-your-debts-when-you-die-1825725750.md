@@ -1,6 +1,6 @@
 # 你死后，你的债务怎么办
 
-> 原文:[https://life hacker . com/what-happens-to-what-what-what-how-to-what-when-what-how-goes-your-duties-when-your die-1825725750](https://lifehacker.com/what-happens-to-your-debts-when-you-die-1825725750)
+> 原文：<https://lifehacker.com/what-happens-to-your-debts-when-you-die-1825725750>
 
 在你能说出的死亡的许多坏处中，你可能会认为一个好处是你再也不用担心你一生中积累的大量债务——根据 2017 年来自Credit.com 的一份报告，平均近 62，000 美元——从天文数字的医疗账单到你负担不起的房屋抵押贷款，再到你数万美元的学生贷款债务。
 

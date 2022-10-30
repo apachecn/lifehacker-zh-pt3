@@ -1,6 +1,6 @@
 # 你把你的芝士汉堡做错了，我再也受不了了
 
-> 原文:[https://deadspin . com/you-are-cheeseing-your-cheeseng-your-cheese 汉堡-all-mist-and-I-can-1797580296](https://deadspin.com/you-are-cheesing-your-cheeseburgers-all-wrong-and-i-can-1797580296)
+> 原文：<https://deadspin.com/you-are-cheesing-your-cheeseburgers-all-wrong-and-i-can-1797580296>
 
 这是烧烤厨师做的一件蠢事:他们在烤架上翻转汉堡，然后，当汉堡完成烹饪时，厨师将奶酪片放在汉堡上面，烧烤的热量可能会有助于奶酪的融化。
 

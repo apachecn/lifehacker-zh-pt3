@@ -1,6 +1,6 @@
 # 带着简单的夏日烈酒到户外饮酒
 
-> 原文:[https://life hacker . com/take-your booze-outdoor-with a simple-summer-spritz-1781648731](https://lifehacker.com/take-your-booze-outdoors-with-a-simple-summer-spritz-1781648731)
+> 原文：<https://lifehacker.com/take-your-booze-outdoors-with-a-simple-summer-spritz-1781648731>
 
 夏季饮酒是最有趣的饮酒方式，而斯普里兹可能是最具夏日气息的饮料。它们又轻又亮，非常好喝，而且可以无限重复播放。它们也非常容易制作，如果你有几个，这很有帮助。
 

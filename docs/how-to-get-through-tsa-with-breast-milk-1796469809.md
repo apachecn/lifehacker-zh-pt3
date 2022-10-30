@@ -1,6 +1,6 @@
 # 如何用母乳过机场安检
 
-> 原文:[https://life hacker . com/how-to-get-through-TSA-with-breast-milk-1796469809](https://lifehacker.com/how-to-get-through-tsa-with-breast-milk-1796469809)
+> 原文：<https://lifehacker.com/how-to-get-through-tsa-with-breast-milk-1796469809>
 
 带着母乳通过机场安检是完全合法的，即使是没有婴儿跟随的 [，](https://www.tsa.gov/travel/special-procedures/traveling-children) 也是如此，但在现实生活中，当你只是一个站在 TSA 代理人面前的家长，要求他让你带着冰冷的人类食物包上飞机时，这些规则并不总是适用。
 

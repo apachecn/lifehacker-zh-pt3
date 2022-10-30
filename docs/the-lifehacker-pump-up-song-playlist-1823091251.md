@@ -1,6 +1,6 @@
 # Lifehacker 的歌曲播放列表
 
-> 原文:[https://life hacker . com/the-life hacker-pump-up-song-playlist-1823091251](https://lifehacker.com/the-lifehacker-pump-up-song-playlist-1823091251)
+> 原文：<https://lifehacker.com/the-lifehacker-pump-up-song-playlist-1823091251>
 
 [我们请你分享你的振奋人心的歌曲](https://lifehacker.com/whats-your-pump-up-song-1822933480) ，这首歌让你准备好像野兽一样碾碎它，你做到了。
 

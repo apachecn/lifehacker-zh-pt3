@@ -1,6 +1,6 @@
 # 你想知道的关于 JD Power Awards 的一切
 
-> 原文:[https://jalopnik . com/everything-you-event-want-to-know-the-JD-power-a-1818818969](https://jalopnik.com/everything-you-ever-wanted-to-know-about-the-jd-power-a-1818818969)
+> 原文：<https://jalopnik.com/everything-you-ever-wanted-to-know-about-the-jd-power-a-1818818969>
 
 认识他的人都叫他戴夫。你可能是通过同名公司 J.D. Power and Associates 认识他的，我以前一直认为那是假的。它不是。这是非常真实的，而且我已经了解到，这是贯穿数万亿美元汽车行业的最搞笑的线索之一。
 

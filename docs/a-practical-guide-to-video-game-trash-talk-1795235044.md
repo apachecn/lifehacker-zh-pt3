@@ -1,6 +1,6 @@
 # 如何说垃圾话
 
-> 原文:[https://kotaku . com/a-practical-guide-to-video-game-trash-talk-1795235044](https://kotaku.com/a-practical-guide-to-video-game-trash-talk-1795235044)
+> 原文：<https://kotaku.com/a-practical-guide-to-video-game-trash-talk-1795235044>
 
 垃圾话在游戏玩家中引起分歧。如果你走得太远，你会冒着让你的朋友哭着回家的风险，并且永远不会再和他们玩另一轮*马里奥派对*。或者，如果你不喜欢冲突，几句关于*马登*的恶语可能会让你对你的好朋友有更坏的看法。一些袖手旁观垃圾认为这是一种健康的、富有表现力的游戏方式。对其他人来说，这是有毒的。
 

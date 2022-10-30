@@ -1,6 +1,6 @@
 # 维基百科中最伟大的“不寻常文章”
 
-> 原文:[https://life hacker . com/the-great-unregular-articles-from-Wikipedia-1827367675](https://lifehacker.com/the-greatest-unusual-articles-from-wikipedia-1827367675)
+> 原文：<https://lifehacker.com/the-greatest-unusual-articles-from-wikipedia-1827367675>
 
 我应该警告你，你将要浪费很多时间去学习无用的琐事。维基百科的贡献者已经编辑了一个“不寻常文章” 的列表——实际上只是关于不寻常事情的文章——单是这个列表就超过了 27000 字。我们已经收集了 80 多张我们最喜欢的照片。
 

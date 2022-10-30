@@ -1,6 +1,6 @@
 # 如何在山洪中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-flash-flood-1795101394](https://lifehacker.com/how-to-survive-a-flash-flood-1795101394)
+> 原文：<https://lifehacker.com/how-to-survive-a-flash-flood-1795101394>
 
 洪水在电视上可能看起来不那么危险，尤其是如果你是一名熟练的游泳运动员。但是暴洪，像最近发生在中西部的[，实际上是非常危险的，它们可以在几乎没有警告的情况下袭击。如果你或你的车被汹涌的洪水冲走，这是你应该做的。](https://gizmodo.com/the-midwest-looks-absolutely-drenched-in-this-new-image-1794912230)
 

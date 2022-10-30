@@ -1,6 +1,6 @@
 # 如何便宜地播放 90 年代的 Nickelodeon 经典
 
-> 原文:[https://life hacker . com/how-to-stream-90s-Nickelodeon-classics-on-the-cheap-1828687552](https://lifehacker.com/how-to-stream-90s-nickelodeon-classics-on-the-cheap-1828687552)
+> 原文：<https://lifehacker.com/how-to-stream-90s-nickelodeon-classics-on-the-cheap-1828687552>
 
 我的千禧一代朋友们，欢呼吧:一船最受欢迎的 Nickelodeon 节目终于可以播放了。
 

@@ -1,6 +1,6 @@
 # iOS 9 的最佳越狱应用和调整
 
-> 原文:[https://life hacker . com/the-best-jail break-apps-and-tweaks-for-IOs-9-1737927710](https://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-9-1737927710)
+> 原文：<https://lifehacker.com/the-best-jailbreak-apps-and-tweaks-for-ios-9-1737927710>
 
 [iOS 9 越狱](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943) ，这意味着是时候开始收集利用其新功能的最佳应用和调整了。这一次有很多非常酷的东西，既增强了 iOS 9 的新功能，又将其中一些功能带到了旧设备上。
 

@@ -1,6 +1,6 @@
 # 如何防止人们窥探你的手机
 
-> 原文:[https://life hacker . com/how-to-keep the people-on-snooping-around-on-your phone-1825919443](https://lifehacker.com/how-to-keep-people-from-snooping-around-on-your-phone-1825919443)
+> 原文：<https://lifehacker.com/how-to-keep-people-from-snooping-around-on-your-phone-1825919443>
 
 有时候你把图片给朋友或者亲戚看，他们就开始粗暴地刷到其他图片。我们有一个解决这个问题的方法。 但是如果他们开始*打开其他应用*呢？上帝啊！听到人们这样做，我很震惊。但是你可以阻止他们。以下是如何启用引导式访问快捷方式，并在人们借用你的手机时轻松将他们锁定在一个应用程序中。你甚至可以用它在一个屏幕上完全冻结你的手机。
 

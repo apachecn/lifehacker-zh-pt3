@@ -1,6 +1,6 @@
 # 在波旁威士忌中加入红薯皮，作为季节性饮品
 
-> 原文:[https://life hacker . com/infuse-bourbon-with-甘薯皮-for-a-seasonable-s-1820276935](https://lifehacker.com/infuse-bourbon-with-sweet-potato-peels-for-a-seasonal-s-1820276935)
+> 原文：<https://lifehacker.com/infuse-bourbon-with-sweet-potato-peels-for-a-seasonal-s-1820276935>
 
 “普通”白土豆的皮可以相对容易地制成美味、香脆的小吃，但无论你怎么处理，红薯皮都有点纤维状，难以下咽。然而，它们确实有一点红薯，可以用来泡一瓶波旁威士忌。
 

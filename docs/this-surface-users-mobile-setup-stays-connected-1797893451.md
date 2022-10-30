@@ -1,6 +1,6 @@
 # 该 Surface 用户的移动设置保持连接
 
-> 原文:[https://life hacker . com/this-surface-users-mobile-setup-stays-connected-1797893451](https://lifehacker.com/this-surface-users-mobile-setup-stays-connected-1797893451)
+> 原文：<https://lifehacker.com/this-surface-users-mobile-setup-stays-connected-1797893451>
 
 尽管增加了一些不便，但在某些方面，鼠标或有线以太网电缆等传统电脑配件比现代配件更优越。一个真正的鼠标可以给你更精细的控制，而以太网电缆可以在 Wi-Fi 不行的时候提供可靠的连接。在这种情况下，随身携带生产力工具是值得的。
 

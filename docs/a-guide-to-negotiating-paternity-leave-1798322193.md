@@ -1,6 +1,6 @@
 # 谈判陪产假指南
 
-> 原文:[https://life hacker . com/a-谈判指南-陪产假-1798322193](https://lifehacker.com/a-guide-to-negotiating-paternity-leave-1798322193)
+> 原文：<https://lifehacker.com/a-guide-to-negotiating-paternity-leave-1798322193>
 
 即将成为父亲是一种缓慢的、不熟悉的情感波动。尽管父亲的情绪不是怀孕期间的主要焦点，但对其进行管理是很重要的。这意味着提前减轻潜在的压力，这样你就可以好好享受你小小的新家庭成员的到来。
 

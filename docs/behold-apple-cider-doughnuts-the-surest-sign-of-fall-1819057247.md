@@ -1,6 +1,6 @@
 # 看苹果酒甜甜圈，秋天最可靠的标志
 
-> 原文:[https://the take out . com/looke-apple-cider-doughnuts-the-sure-sign-of-fall-1819057247](https://thetakeout.com/behold-apple-cider-doughnuts-the-surest-sign-of-fall-1819057247)
+> 原文：<https://thetakeout.com/behold-apple-cider-doughnuts-the-surest-sign-of-fall-1819057247>
 
 芝加哥西北 35 英里处是朗格罗夫，这是一个因其苹果酒甜甜圈而闻名的小镇。在你的城市可以成为代名词的所有事物中，苹果酒甜甜圈是*漂亮的*整洁的。这些甜甜圈在一家名为朗格罗夫苹果屋的商店新鲜出售，它们是一个启示。直到我尝了之后，我才知道在甜甜圈面糊里加入苹果酒是可以的。它们温暖、蓬松、像棉花一样轻，带着苹果和肉桂的秋天味道。
 

@@ -1,6 +1,6 @@
 # 如何通过微小的改变建立改变生活的习惯
 
-> 原文:[https://life hacker . com/how-to-build-life-changing-habits-through-micro-changes-1756011322](https://lifehacker.com/how-to-build-life-altering-habits-through-tiny-changes-1756011322)
+> 原文：<https://lifehacker.com/how-to-build-life-altering-habits-through-tiny-changes-1756011322>
 
 去年我成了一个早起的人，学习了一门新的语言，读了五倍于以前的书。听起来我做了很多事，对吧？但这并不令人畏惧或费力；更确切地说，所有这些结果都来自于长期以来每天做的小事。
 

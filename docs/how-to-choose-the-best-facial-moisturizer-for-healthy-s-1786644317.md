@@ -1,6 +1,6 @@
 # 如何选择最适合健康肌肤的面部润肤霜
 
-> 原文:[https://life hacker . com/how-to-choose-the-best-of-face-moisture-for-healthy-s-1786644317](https://lifehacker.com/how-to-choose-the-best-facial-moisturizer-for-healthy-s-1786644317)
+> 原文：<https://lifehacker.com/how-to-choose-the-best-facial-moisturizer-for-healthy-s-1786644317>
 
 剥落，发痒，受教，看起来单调的皮肤只是没有乐趣。有些人，就像你一样，比其他人更纠结。我们可以在一定程度上归咎于我们的基因，但为了拥有好看的皮肤，我们可以自己做很多事情，比如遵循包括保湿在内的皮肤护理程序。
 

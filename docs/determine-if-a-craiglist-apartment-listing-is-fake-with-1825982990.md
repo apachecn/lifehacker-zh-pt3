@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展来确定 Craiglist 公寓列表是否是假的
 
-> 原文:[https://life hacker . com/determine-if-a-craiglist-apartment-listing-is-fake-with-1825982990](https://lifehacker.com/determine-if-a-craiglist-apartment-listing-is-fake-with-1825982990)
+> 原文：<https://lifehacker.com/determine-if-a-craiglist-apartment-listing-is-fake-with-1825982990>
 
 去年，我和男朋友开始在旧金山寻找新住处。除了拥有竞争异常激烈且价格昂贵的租赁市场之外，这座城市与我们这个规模的大多数其他城市一样，也面临着房源欺诈的巨大问题，尤其是在 Craigslist 上，那里仍然是寻找公寓的“好去处”。本质上，人们会从另一个列表中窃取照片，有时甚至不是旧金山的一个列表，然后将它列在人们希望在城市中生活的地区，这将使它成为一笔相当大的交易。当你发电子邮件给那些想看看这个地方的人时，他们试图让你在你之前交出个人信息和现金，然后他们就消失了。
 

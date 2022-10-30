@@ -1,6 +1,6 @@
 # 像飓风厄玛这样的风暴如何影响旅游保险
 
-> 原文:[https://life hacker . com/how-storms-like-hurricane-irma-affect-travel-insurance-1802731404](https://lifehacker.com/how-storms-like-hurricane-irma-affect-travel-insurance-1802731404)
+> 原文：<https://lifehacker.com/how-storms-like-hurricane-irma-affect-travel-insurance-1802731404>
 
 超级飓风厄玛是 [除了造成延误和航线改变外，还导致数吨巡航和航班取消](http://www.latimes.com/travel/cruises/la-tr-cruises-hurricane-irma-cancellations-20170906-story.html) 。但是你的旅行保险应该涵盖所有这些，对吗？也许吧。也许不是。
 

@@ -1,6 +1,6 @@
 # 准备一份清单，让你的客人有宾至如归的感觉
 
-> 原文:[https://life hacker . com/prep-a-check list-to-make-your-house guests-feel-in-home-1820577770](https://lifehacker.com/prep-a-checklist-to-make-your-houseguests-feel-at-home-1820577770)
+> 原文：<https://lifehacker.com/prep-a-checklist-to-make-your-houseguests-feel-at-home-1820577770>
 
 你已经在客房床上铺了新床单，或者给充气床垫充了气，在浴室里挂了备用毛巾。你整理了房间，储备了咖啡和零食。准备好迎接你的客人了吗？差不多了。
 

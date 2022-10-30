@@ -1,6 +1,6 @@
 # 这些品牌实际上是亚马逊的内部通用系列
 
-> 原文:[https://life hacker . com/these-brands-is-actually-amazons-in-house-generic-line-1827139731](https://lifehacker.com/these-brands-are-actually-amazons-in-house-generic-line-1827139731)
+> 原文：<https://lifehacker.com/these-brands-are-actually-amazons-in-house-generic-line-1827139731>
 
 Amazon Echo、Amazon Tap、Amazon Essentials——这些都是显而易见的亚马逊系列，你可以在与知名品牌进行比较时从中挑选。但是亚马逊有一些新的、不太为人所知的通用标签，你可能会在没有意识到的情况下购买。
 

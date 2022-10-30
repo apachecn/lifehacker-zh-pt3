@@ -1,6 +1,6 @@
 # 如何使用 YouTube 的匿名模式
 
-> 原文:[https://life hacker . com/how-to-use-YouTube es-incognito-mode-1827488307](https://lifehacker.com/how-to-use-youtubes-incognito-mode-1827488307)
+> 原文：<https://lifehacker.com/how-to-use-youtubes-incognito-mode-1827488307>
 
 Android: 有时候你想在 YouTube 上看一段视频，但不想让它出现在你的历史中。对于那些需要卧底的时刻，YouTube 最近增加了一个隐姓埋名模式，可以更容易地不留痕迹地观看视频。
 

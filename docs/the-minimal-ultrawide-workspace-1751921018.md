@@ -1,6 +1,6 @@
 # 最小的超宽工作空间
 
-> 原文:[https://life hacker . com/the-minimal-ultra wide-workspace-1751921018](https://lifehacker.com/the-minimal-ultrawide-workspace-1751921018)
+> 原文：<https://lifehacker.com/the-minimal-ultrawide-workspace-1751921018>
 
 在 [战斗站，subreddit](https://www.reddit.com/r/battlestations/) ， [repens](https://www.reddit.com/user/repens) 拿起一个闪亮的新超宽显示器，想用他的桌子做点儿不同的事情来容纳它。最终结果是这个好看的，最小的，不受干扰的设置。
 

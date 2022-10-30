@@ -1,6 +1,6 @@
 # 昂贵的宠物食品并不比便宜的健康
 
-> 原文:[https://life hacker . com/are-highly-pet-foods-any-health-than-cheap-one-1798641249](https://lifehacker.com/are-expensive-pet-foods-any-healthier-than-cheap-ones-1798641249)
+> 原文：<https://lifehacker.com/are-expensive-pet-foods-any-healthier-than-cheap-ones-1798641249>
 
 宠物食品货架上摆满了包装，声称装有“天然”和“整体”食品，正面有新鲜蔬菜和烤鸡的图片。但是这些食物和最便宜的副产品填充的粗粮没有太大区别。以下是你可以在宠物的食物中找到的东西。
 

@@ -1,6 +1,6 @@
 # 柠檬水没有任何作用
 
-> 原文:[https://life hacker . com/lemon-water-not-do-any-1822932908](https://lifehacker.com/lemon-water-doesn-t-do-anything-1822932908)
+> 原文：<https://lifehacker.com/lemon-water-doesn-t-do-anything-1822932908>
 
 水:提神。柠檬:也很提神。将两者混合，你会得到一种味道清新的可饮用液体。*这就是你得到的全部*。不是解毒药剂，不是新陈代谢促进剂。让我重复一遍:当你把柠檬加入水中，你得到的只是柠檬水。
 

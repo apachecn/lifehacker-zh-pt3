@@ -1,6 +1,6 @@
 # 如何立即在您的威瑞森 Galaxy S8/S8+上安装 Android 奥利奥
 
-> 原文:[https://life hacker . com/how-to-get-Android-Oreo-on-your-Verizon-galaxy-S8-S8-r-1823838657](https://lifehacker.com/how-to-get-android-oreo-on-your-verizon-galaxy-s8-s8-r-1823838657)
+> 原文：<https://lifehacker.com/how-to-get-android-oreo-on-your-verizon-galaxy-s8-s8-r-1823838657>
 
 根据众多消息来源，威瑞森今天正式为 Galaxy S8 和 S8+用户推出安卓系统，这是美国第一家这样做的运营商。如果你还没有收到升级你的操作系统的选项，并且你感到不耐烦，这里有你现在可以得到 Android 奥利奥的方法。
 

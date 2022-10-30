@@ -1,6 +1,6 @@
 # 如果你还有点害怕生菜，如何制作美味的凯撒沙拉
 
-> 原文:[https://life hacker . com/how-to-make-great-Caesar-salads-if-you-still-a little-1825697897](https://lifehacker.com/how-to-make-great-caesar-salads-if-youre-still-a-little-1825697897)
+> 原文：<https://lifehacker.com/how-to-make-great-caesar-salads-if-youre-still-a-little-1825697897>
 
 对于凯撒沙拉爱好者来说，这是艰难的时刻。虽然据报道，食用长叶莴苣是安全的，你肯定它不是来自亚利桑那州的尤马，但对这种特殊的叶子有一点警惕也是完全正常的。好的一面是，这场危机给了我们一个极好的机会，来谈论其他三种制作真正优质凯撒的植物。
 

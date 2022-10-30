@@ -1,6 +1,6 @@
 # 如何处理自己发来的垃圾邮件
 
-> 原文:[https://life hacker . com/how-to-handle-email-spam-from-yourself-1826325674](https://lifehacker.com/how-to-handle-email-spam-from-yourself-1826325674)
+> 原文：<https://lifehacker.com/how-to-handle-email-spam-from-yourself-1826325674>
 
 在本周的 Tech 911 专栏中——我们的常规专栏解决您最紧迫的技术问题(您可以也应该将这些问题发送给我们 [这里](mailto:david.murphy@lifehacker.com?subject=Tech 911))——我们来看看一个有着特殊变化的经典问题:垃圾邮件。
 

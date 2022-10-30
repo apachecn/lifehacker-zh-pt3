@@ -1,6 +1,6 @@
 # 凯特汤实验第三天:烤土豆韭菜汤
 
-> 原文:[https://the take out . com/the-Kate-soup-experiment-day-3-baked-potato-leek-soup-1822165291](https://thetakeout.com/the-kate-soup-experiment-day-3-baked-potato-leek-soup-1822165291)
+> 原文：<https://thetakeout.com/the-kate-soup-experiment-day-3-baked-potato-leek-soup-1822165291>
 
 这一周，外卖*特约撰稿人凯特·伯诺特试图把她最喜欢的菜变成汤。*
 

@@ -1,6 +1,6 @@
 # 如果你的卧室里有一只蝙蝠，你可能需要打一针狂犬病疫苗
 
-> 原文:[https://life hacker . com/if-a-bat-was-in-you-probably-need-a-rabie-1828720417](https://lifehacker.com/if-a-bat-was-in-your-bedroom-you-probably-need-a-rabie-1828720417)
+> 原文：<https://lifehacker.com/if-a-bat-was-in-your-bedroom-you-probably-need-a-rabie-1828720417>
 
 蝙蝠很可爱，也是我们生态系统 的重要成员，但它们也造成了 1997 年至 2006 年间美国 19 起狂犬病死亡中的 17 起。你可能会在不知道的情况下被咬伤，这就是为什么如果你醒来时房间里有一只蝙蝠，卫生部门经常建议你注射狂犬病疫苗。
 

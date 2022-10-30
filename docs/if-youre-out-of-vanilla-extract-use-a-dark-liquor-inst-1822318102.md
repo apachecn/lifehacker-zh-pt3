@@ -1,6 +1,6 @@
 # 如果你没有香草精，用深色的液体代替
 
-> 原文:[https://life hacker . com/if-you-out-of-vanilla-extract-use-a-dark-liquid-inst-1822318102](https://lifehacker.com/if-youre-out-of-vanilla-extract-use-a-dark-liquor-inst-1822318102)
+> 原文：<https://lifehacker.com/if-youre-out-of-vanilla-extract-use-a-dark-liquor-inst-1822318102>
 
 香草是一种无处不在的成分，几乎存在于所有烘焙食品的每一个配方中，但是，除非你用大量的香草提取物制作香草美食，否则你可以加入一点波旁威士忌或黑朗姆酒。
 

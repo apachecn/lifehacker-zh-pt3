@@ -1,6 +1,6 @@
 # 显灵板的真正骗局
 
-> 原文:[https://kotaku . com/the-real-fake ry-of-the-ouija-board-1819805308](https://kotaku.com/the-real-fakery-of-the-ouija-board-1819805308)
+> 原文：<https://kotaku.com/the-real-fakery-of-the-ouija-board-1819805308>
 
 对于占卜板的工作原理有一个简单的解释:它不是鬼魂，而是你对他们的感觉。
 

@@ -1,6 +1,6 @@
 # 有益的、鼓舞人心的锻炼伙伴的四个特征
 
-> 原文:[https://life hacker . com/the-four-traits-of-help-inspired-workout-partners-1783101724](https://lifehacker.com/the-four-traits-of-helpful-inspiring-workout-partners-1783101724)
+> 原文：<https://lifehacker.com/the-four-traits-of-helpful-inspiring-workout-partners-1783101724>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-c-xbDPFnhog&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-c-xbDPFnhog&start=0) 
 

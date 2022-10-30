@@ -1,6 +1,6 @@
 # 在哪里可以找到最好的阵亡将士纪念日销售
 
-> 原文:[https://life hacker . com/where-to-find-the-best-memorial-day-sales-1826259032](https://lifehacker.com/where-to-find-the-best-memorial-day-sales-1826259032)
+> 原文：<https://lifehacker.com/where-to-find-the-best-memorial-day-sales-1826259032>
 
 寻找阵亡将士纪念日周末的交易？像往常一样，你会在这个长周末发现家用商品和电器的好价格，但你会想避开大多数科技产品。
 

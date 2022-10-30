@@ -1,6 +1,6 @@
 # 这个 iOS 相机应用程序带来了业余爱好者的专业
 
-> 原文:[https://life hacker . com/IOs-camera-app-halide-being-out-the-pro-in-features-1796558289](https://lifehacker.com/ios-camera-app-halide-brings-out-the-pro-in-amateurs-1796558289)
+> 原文：<https://lifehacker.com/ios-camera-app-halide-brings-out-the-pro-in-amateurs-1796558289>
 
 iPhone:苹果的默认相机应用是一个多面的照片捕捉工具，使用起来非常简单。从全景到视频到 HDR 图片，你可以捕捉各种各样的图像，但如果你试图拍摄完美的照片，你可能无法达到你想要的粒度。寻求更多控制的摄影师应该看看 [卤化物](http://halide.cam)(4.99 美元)，这是一个非常棒的应用程序，适合那些希望控制触手可及的专业摄影师或想玩媒体原理的业余爱好者。
 

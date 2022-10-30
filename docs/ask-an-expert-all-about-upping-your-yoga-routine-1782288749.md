@@ -1,6 +1,6 @@
 # 问一个专家:关于提升你的瑜伽常规
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-upping your-yoga-routine-1782288749](https://lifehacker.com/ask-an-expert-all-about-upping-your-yoga-routine-1782288749)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-upping-your-yoga-routine-1782288749>
 
 老实说，我对瑜伽一无所知。对于如此无害和健康的东西，如果你从来没有尝试过，并且有自知之明，它也有点吓人。最好的入门方式是什么？如果你已经是一个粉丝了，你如何改进你的套路？
 

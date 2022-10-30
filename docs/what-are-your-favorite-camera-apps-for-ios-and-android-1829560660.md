@@ -1,6 +1,6 @@
 # 你最喜欢的 iOS 和 Android 的相机应用有哪些？
 
-> 原文:[https://life hacker . com/what-are-you favorite-camera-apps-for-IOs-and-Android-1829560660](https://lifehacker.com/what-are-your-favorite-camera-apps-for-ios-and-android-1829560660)
+> 原文：<https://lifehacker.com/what-are-your-favorite-camera-apps-for-ios-and-android-1829560660>
 
 iOS 和 Android 上的相机应用太多了。如果你和我的朋友们一样，你只需要坚持最基本的东西:你的智能手机自带的股票应用。对于愚蠢的自拍，你的宠物偷懒的照片和你的食物的 Instagrams 来说足够好了，对吗？
 

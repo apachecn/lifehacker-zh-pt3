@@ -1,6 +1,6 @@
 # 跳过网飞介绍和这个铬扩展学分
 
-> 原文:[https://life hacker . com/skip-网飞-intros-and-credits-with-this-chrome-extens-1823682722](https://lifehacker.com/skip-netflix-intros-and-credits-with-this-chrome-extens-1823682722)
+> 原文：<https://lifehacker.com/skip-netflix-intros-and-credits-with-this-chrome-extens-1823682722>
 
 没有什么能像一个很长的节目介绍或那些弹出窗口询问你几个小时后是否仍然试图观看该节目的另一集一样扼杀一个良好的网飞狂欢观看会议。
 

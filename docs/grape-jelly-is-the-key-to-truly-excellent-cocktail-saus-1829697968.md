@@ -1,6 +1,6 @@
 # 葡萄果冻是制作真正优质鸡尾酒香肠的关键
 
-> 原文:[https://life hacker . com/grape-jelly-is-the-key to-true-excellent-cocktail-saus-1829697968](https://lifehacker.com/grape-jelly-is-the-key-to-truly-excellent-cocktail-saus-1829697968)
+> 原文：<https://lifehacker.com/grape-jelly-is-the-key-to-truly-excellent-cocktail-saus-1829697968>
 
 有些食物不能“提升”。番茄三明治、简单的香肠肉汁、垃圾食品——这些东西本身已经是最好的版本了。类似地，用康科德葡萄果冻制成的三种成分的鸡尾酒香肠(和肉丸)无法用更好的果酱或果酱来改善——相信我，我已经试过了。
 

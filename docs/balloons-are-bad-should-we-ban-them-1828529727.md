@@ -1,6 +1,6 @@
 # 气球不好——我们应该禁止它们吗？
 
-> 原文:[https://gizmodo . com/balloons-is-bad-should-we-ban-them-1828529727](https://gizmodo.com/balloons-are-bad-should-we-ban-them-1828529727)
+> 原文：<https://gizmodo.com/balloons-are-bad-should-we-ban-them-1828529727>
 
 气球是庆祝、生日和狂喜的同义词。但是现在一些环保主义者正在向他们全面开战。
 

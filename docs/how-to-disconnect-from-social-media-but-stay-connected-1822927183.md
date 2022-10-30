@@ -1,6 +1,6 @@
 # 如何断开与社交媒体的连接，同时保持与世界的联系
 
-> 原文:[https://life hacker . com/how-to-disconnect-from-social-media-but-stay-connected-1822927183](https://lifehacker.com/how-to-disconnect-from-social-media-but-stay-connected-1822927183)
+> 原文：<https://lifehacker.com/how-to-disconnect-from-social-media-but-stay-connected-1822927183>
 
 社交媒体很可怕，社交媒体很神奇。它用引起恐慌的新闻和引起愤怒的热门话题淹没我们；它还让我们与朋友、专业圈子和世界各地的新闻保持联系。但是如果你试图直接从消防水管里喝水，你会被淹死——或者你的头会被重重地撞破。关键是弄清楚社交媒体对你有什么好处，然后从其他地方获得你需要的其他东西。
 

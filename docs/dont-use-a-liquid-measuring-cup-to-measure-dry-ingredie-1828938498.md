@@ -1,6 +1,6 @@
 # 不要用液体量杯来测量干成分
 
-> 原文:[https://life hacker . com/dont-use-a-liquid-measuring-cup-to-measure-dry-ingredie-1828938498](https://lifehacker.com/dont-use-a-liquid-measuring-cup-to-measure-dry-ingredie-1828938498)
+> 原文：<https://lifehacker.com/dont-use-a-liquid-measuring-cup-to-measure-dry-ingredie-1828938498>
 
 从精度上来说，烹饪是一个谱。有些情况下，目测就足够了，比如用大约半杯酒来给平底锅上釉，有些情况下，精确的测量至关重要，比如烘焙精致的糕点或大部分严肃饮食的食谱。按质量测量你的配料(即在厨房秤 上测量 [)会给你最好的、最可重复的结果，但是如果你坚持按体积测量，你必须确保你用的是正确的杯子。](https://lifehacker.com/why-every-kitchen-needs-a-digital-scale-1794969140) 
 

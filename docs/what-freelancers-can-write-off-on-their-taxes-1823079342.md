@@ -1,6 +1,6 @@
 # 自由职业者可以从他们的税收中注销什么
 
-> 原文:[https://life hacker . com/what-freelancers-can-注销他们的税款-1823079342](https://lifehacker.com/what-freelancers-can-write-off-on-their-taxes-1823079342)
+> 原文：<https://lifehacker.com/what-freelancers-can-write-off-on-their-taxes-1823079342>
 
 如果你是一名自由职业者，减税是税收游戏的名称:如果你还没有成立公司，你可以扣除许多业务费用，以降低你的附表 C(或附表 C-EZ)中的应税收入。如果这是你第一次申报个体户税，花这笔钱预约一个 [专业](https://www.irs.gov/newsroom/tips-for-choosing-a-tax-return-preparer) 还是值得的。
 

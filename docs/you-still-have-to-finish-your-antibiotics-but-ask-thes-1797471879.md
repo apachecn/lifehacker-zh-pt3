@@ -1,6 +1,6 @@
 # 你还是要吃完抗生素，但是先问这些问题
 
-> 原文:[https://life hacker . com/you-yell-have-to-finish-you-but-ask-thes-1797471879](https://lifehacker.com/you-still-have-to-finish-your-antibiotics-but-ask-thes-1797471879)
+> 原文：<https://lifehacker.com/you-still-have-to-finish-your-antibiotics-but-ask-thes-1797471879>
 
 你见过抗生素处方上的标签:“除非处方医生另有指示，否则请完成所有药物治疗。”这是多年来的教条，但这一规则实际上可能不是防止抗生素耐药性的最佳方式。但是不要扔掉你那瓶用了一半的青霉素。
 

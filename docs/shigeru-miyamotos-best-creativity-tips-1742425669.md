@@ -1,6 +1,6 @@
 # 宫本茂最佳创意小贴士
 
-> 原文:[https://life hacker . com/shigeru-miya motos-best-creativity-tips-1742425669](https://lifehacker.com/shigeru-miyamotos-best-creativity-tips-1742425669)
+> 原文：<https://lifehacker.com/shigeru-miyamotos-best-creativity-tips-1742425669>
 
 今天是任天堂游戏设计师兼制作人 [宫本茂](https://en.wikipedia.org/wiki/Shigeru_Miyamoto) 的生日，为了庆祝，我们认为是时候看看他对创作过程的一些见解了。
 

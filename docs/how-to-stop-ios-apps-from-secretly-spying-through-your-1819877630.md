@@ -1,6 +1,6 @@
 # 如何阻止 iOS 应用程序通过你的相机偷偷窥探
 
-> 原文:[https://life hacker . com/how-to-stop-IOs-apps-from-secretly-spying-through-your-1819877630](https://lifehacker.com/how-to-stop-ios-apps-from-secretly-spying-through-your-1819877630)
+> 原文：<https://lifehacker.com/how-to-stop-ios-apps-from-secretly-spying-through-your-1819877630>
 
 毫无疑问，你已经让一些 iOS 应用程序 [访问个人数据](https://lifehacker.com/how-apps-use-your-photos-to-track-your-location-1819802266) ，比如你的照片库或联系人列表。但是如果你让他们使用你的相机，他们可能在幕后做了很多你不知道的事情，包括在你不知情的情况下给你拍照。幸运的是，你可以停止偷偷摸摸的数据收集，而不必再去拍照。
 

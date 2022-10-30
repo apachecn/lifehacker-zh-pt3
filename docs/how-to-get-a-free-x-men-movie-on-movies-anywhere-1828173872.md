@@ -1,6 +1,6 @@
 # 如何在任何地方的电影上获得免费的 x 战警电影
 
-> 原文:[https://life hacker . com/how-to-get-a-free-x-men-movie-on-movies-anywhere-1828173872](https://lifehacker.com/how-to-get-a-free-x-men-movie-on-movies-anywhere-1828173872)
+> 原文：<https://lifehacker.com/how-to-get-a-free-x-men-movie-on-movies-anywhere-1828173872>
 
 如果你想知道如何处理你似乎从来没有使用过的那个微软账户，你现在可以将它连接到任何地方的 [电影](https://moviesanywhere.com/) ，在一个地方观看你所有的数字电影，不管你是在哪里购买的。
 

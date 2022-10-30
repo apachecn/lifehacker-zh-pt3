@@ -1,6 +1,6 @@
 # 酿造红茶菌的健康风险，以及如何安全酿造
 
-> 原文:[https://life hacker . com/the-health-risks-of-brewing-kompucha-and-how-to-do-it-1789891831](https://lifehacker.com/the-health-risks-of-brewing-kombucha-and-how-to-do-it-1789891831)
+> 原文：<https://lifehacker.com/the-health-risks-of-brewing-kombucha-and-how-to-do-it-1789891831>
 
 康普茶是一种发酵茶，人们喜欢它的味道，但也喜欢它的益生菌益处，即 [可以支持更健康的消化。](https://lifehacker.com/probiotics-and-prebiotics-what-they-do-for-you-and-how-1750397527) 它非常受欢迎，许多康普茶爱好者走家酿路线来定制他们自己的康普茶。然而，问题是，如果酿造不当，可能会带来严重的食品安全风险。
 

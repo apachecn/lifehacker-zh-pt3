@@ -1,6 +1,6 @@
 # 唐纳德·特朗普是如何缩减你的收入的
 
-> 原文:[https://life hacker . com/heres-how-Donald-trump-is-shrink-your-check-1821327967](https://lifehacker.com/heres-how-donald-trump-is-shrinking-your-paycheck-1821327967)
+> 原文：<https://lifehacker.com/heres-how-donald-trump-is-shrinking-your-paycheck-1821327967>
 
 国会共和党人正计划推动一项非常不受欢迎的税收计划 ，该计划主要惠及企业主和最富有的美国人。
 

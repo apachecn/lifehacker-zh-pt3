@@ -1,6 +1,6 @@
 # 屏幕房地产摊牌:超宽与 4K 显示器
 
-> 原文:[https://life hacker . com/screen-real-estate-摊牌-ultra wide-vs-4k-monitors-1787204873](https://lifehacker.com/screen-real-estate-showdown-ultrawide-vs-4k-monitors-1787204873)
+> 原文：<https://lifehacker.com/screen-real-estate-showdown-ultrawide-vs-4k-monitors-1787204873>
 
 如果你想要最大的桌面屏幕空间，你有两个选择:买一个更大的显示器，或者买一个 4K 显示器。这两种选择都为你提供了更多的空间来展开和工作，并为你的窗口提供了更多的像素，但其中两种是今天许多显示器买家的焦点:超宽和 4K。实际上，让我们看看他们是如何累积的。
 

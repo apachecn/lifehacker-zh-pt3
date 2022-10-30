@@ -1,6 +1,6 @@
 # 用这个公式要求加薪
 
-> 原文:[https://life hacker . com/use-this-formula-to-ask-a-raise-1823616050](https://lifehacker.com/use-this-formula-to-ask-for-a-raise-1823616050)
+> 原文：<https://lifehacker.com/use-this-formula-to-ask-for-a-raise-1823616050>
 
 当你要求加薪时，你会更成功地关注你带来的价值，而不是你自己的需求。 你可能不想脱口而出，“嘿，我有账单要付，你已经三年没扣我工资了”——即使这是真的。那么*怎么做*你说呢？
 

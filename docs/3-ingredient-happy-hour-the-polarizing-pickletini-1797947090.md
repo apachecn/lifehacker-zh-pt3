@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:两极分化的匹克莱蒂尼
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-polarization-pickletini-1797947090](https://lifehacker.com/3-ingredient-happy-hour-the-polarizing-pickletini-1797947090)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-polarizing-pickletini-1797947090>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天我们特别推出一款我已经啜饮了*年*的令人振奋的咸味最爱:两极分化的 Pickletini。
 

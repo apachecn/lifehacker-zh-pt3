@@ -1,6 +1,6 @@
 # 如何处理危机
 
-> 原文:[https://lifehacker.com/how-to-handle-a-crisis-1828967366](https://lifehacker.com/how-to-handle-a-crisis-1828967366)
+> 原文：<https://lifehacker.com/how-to-handle-a-crisis-1828967366>
 
 危机通常是一种不可能的情况。你必须在没有足够信息的情况下立即做出决定。你需要保证人们的安全，但你没有时间或资源来采取通常的安全措施。《卫报》 [最近询问](https://www.theguardian.com/world/2018/sep/09/dont-panic-meet-the-experts-with-a-steady-hand-when-disaster-strikes) 处理过极端情况的人，他们如何知道该做什么。这是他们的建议。
 

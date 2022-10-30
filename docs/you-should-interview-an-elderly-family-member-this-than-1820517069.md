@@ -1,6 +1,6 @@
 # 这个感恩节你应该采访一位年长的家庭成员
 
-> 原文:[https://life hacker . com/you-should-interview-an-earth-family-member-this-than 1820517069](https://lifehacker.com/you-should-interview-an-elderly-family-member-this-than-1820517069)
+> 原文：<https://lifehacker.com/you-should-interview-an-elderly-family-member-this-than-1820517069>
 
 两年前的感恩节，在吃完我祖母安妮住的养老院为我们准备的火鸡午餐后，我拿出我的 iPhone，点了“录音”我的奶奶 88 岁了，她的健康每况愈下，但是她有一个很好的日子，所有的家人都来看她。于是我把椅子挪近她，问了我事先计划好的问题。我想听听她的过去，那些烙在她记忆中的故事，那些塑造了她的时刻。
 

@@ -1,6 +1,6 @@
 # 奇异的芝麻街视频向你展示萨克斯是如何制作的
 
-> 原文:[https://life hacker . com/straighter-old-sesame-street-video-shows-you-how-a-saxopho-1819771818](https://lifehacker.com/bizarre-old-sesame-street-video-shows-you-how-a-saxopho-1819771818)
+> 原文：<https://lifehacker.com/bizarre-old-sesame-street-video-shows-you-how-a-saxopho-1819771818>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-TDlvmvpMaZ0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-TDlvmvpMaZ0&start=0) 
 

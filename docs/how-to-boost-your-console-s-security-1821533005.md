@@ -1,6 +1,6 @@
 # 如何提高游戏主机的安全性
 
-> 原文:[https://life hacker . com/how-to-boost-your-console-s-security-1821533005](https://lifehacker.com/how-to-boost-your-console-s-security-1821533005)
+> 原文：<https://lifehacker.com/how-to-boost-your-console-s-security-1821533005>
 
 无论你的游戏主机，都需要添加密码和双因素认证。您可以通过 Web 浏览器或在控制台上进行操作。抱歉，但你没有借口解释为什么你没有保护你的帐户免受那些试图窃取你的个人信息的人的攻击。
 

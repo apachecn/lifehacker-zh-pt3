@@ -1,6 +1,6 @@
 # 利用 Kayak 新的“旅行集合”功能简化团队度假计划
 
-> 原文:[https://life hacker . com/streamline-group-vacation-planning-with-kayaks-new-trip-1826434038](https://lifehacker.com/streamline-group-vacation-planning-with-kayaks-new-trip-1826434038)
+> 原文：<https://lifehacker.com/streamline-group-vacation-planning-with-kayaks-new-trip-1826434038>
 
 和朋友一起计划旅行可能是一件巨大而痛苦的事情。根据你所在的团队，你可能会遇到一群只想让你自己解决所有问题的人(这样他们就可以在你解决问题时抱怨)，或者一群非常固执己见的朋友，他们对“完美”的目的地和酒店都有自己的想法，以至于没有人能在任何事情上达成一致。今天，Kayak 推出了一款名为[【Trip Huddle】](https://www.kayak.com/mvp)的工具，旨在让这种体验变得更加轻松。
 

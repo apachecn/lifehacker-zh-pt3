@@ -1,6 +1,6 @@
 # 美国运通将允许达美品牌持卡人借用旅行奖励里程
 
-> 原文:[https://life hacker . com/amex-will-let-delta-branded-carders-borrow-travel-r-1803295887](https://lifehacker.com/amex-will-let-delta-branded-cardholders-borrow-travel-r-1803295887)
+> 原文：<https://lifehacker.com/amex-will-let-delta-branded-cardholders-borrow-travel-r-1803295887>
 
 假设你想计划一次史诗般的西班牙之旅，你有 [很多信用卡积分](https://theinventory.com/the-chase-sapphire-preferred-is-still-the-best-travel-r-1792561257) ，但是你*差一点就没有免费航班了。美国运通最近推出了一个解决方案:他们称之为“现在飞，以后赚。”*
 

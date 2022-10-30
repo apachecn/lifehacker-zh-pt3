@@ -1,6 +1,6 @@
 # 2018 年开始写数字笔记
 
-> 原文:[https://life hacker . com/start-writing-digital-notes-in-2018-1823589620](https://lifehacker.com/start-writing-digital-notes-in-2018-1823589620)
+> 原文：<https://lifehacker.com/start-writing-digital-notes-in-2018-1823589620>
 
 你包里有 iPad，桌上有 Surface Pro，还在活页纸上写笔记？不要做动物。现在是 2018 年，是你抛弃纸张拥抱笔记的未来的时候了，一个让你每一笔每一画都做得更多的未来。无论你需要一个将手写转换为文本的应用程序，还是你已经准备好了一个完整的笔记本管理系统，无论何时到了学习(或涂鸦)的时候，都是时候停止四处寻找合适的活页夹了。无论你去哪里，你都可以使用大量的工具来带着你所有的笔记。
 

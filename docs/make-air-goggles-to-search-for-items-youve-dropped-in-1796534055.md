@@ -1,6 +1,6 @@
 # 制作“空中护目镜”来寻找你掉在水里的物品
 
-> 原文:[https://life hacker . com/make-air-goggles-to-search-for-items-you ve-drop-in-1796534055](https://lifehacker.com/make-air-goggles-to-search-for-items-youve-dropped-in-1796534055)
+> 原文：<https://lifehacker.com/make-air-goggles-to-search-for-items-youve-dropped-in-1796534055>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hfBoJTiVETk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hfBoJTiVETk&start=0) 
 

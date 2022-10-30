@@ -1,6 +1,6 @@
 # 关闭“快速启动”来强制 Windows 10 真正关闭
 
-> 原文:[https://life hacker . com/shutting-down-windows-10-sints-actually-shut-down-wind-1825532376](https://lifehacker.com/shutting-down-windows-10-doesnt-actually-shut-down-wind-1825532376)
+> 原文：<https://lifehacker.com/shutting-down-windows-10-doesnt-actually-shut-down-wind-1825532376>
 
 这听起来很奇怪，但当你点击开始菜单上的那个电源按钮来关闭 Windows 10 时，你并没有关闭 Windows 10。当然，Windows 10 会经历关机的过程。你的电脑看起来好像关机了。有点像，但是没有。
 

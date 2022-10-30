@@ -1,6 +1,6 @@
 # Pokémon Go 的新更新将不再适用于旧的 iOS 设备
 
-> 原文:[https://life hacker . com/pokemon-go-s-new-update-will-no-long-work-on-older-io-1821999597](https://lifehacker.com/pokemon-go-s-new-update-will-no-longer-work-on-older-io-1821999597)
+> 原文：<https://lifehacker.com/pokemon-go-s-new-update-will-no-longer-work-on-older-io-1821999597>
 
 iOS:如果在你生活中扮演怪物牧马人的孩子迷上了捕捉奇怪形状的虚构动物(或者如果你自己沉迷于游戏)，你最好希望他们最近有一部手机，可以玩他们最喜欢的游戏。Pokémon Go 开发商 Niantic 宣布了一项即将到来的更新，该更新将纳入苹果的 ARKit，带来更加完美的增强现实体验，但禁止无法运行 iOS 11 的设备玩游戏。抱歉，运动鞋。
 

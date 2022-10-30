@@ -1,6 +1,6 @@
 # 如何充分利用 Mac 的 pdf“预览”
 
-> 原文:[https://life hacker . com/how-to-make-the-most-of-MAC-preview-for-pdf-1827526896](https://lifehacker.com/how-to-make-the-most-of-macs-preview-for-pdfs-1827526896)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-macs-preview-for-pdfs-1827526896>
 
 在一个完美的世界里，我们都有一个功能齐全的免费 PDF 编辑器，它可以做你可能需要的任何事情，只要你有一个重要的文档可以摆弄。
 

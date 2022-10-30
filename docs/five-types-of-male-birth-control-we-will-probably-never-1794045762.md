@@ -1,6 +1,6 @@
 # 我们可能永远不会用到的五种男性节育方法
 
-> 原文:[https://life hacker . com/五型男性节育——我们可能永远不会——1794045762](https://lifehacker.com/five-types-of-male-birth-control-we-will-probably-never-1794045762)
+> 原文：<https://lifehacker.com/five-types-of-male-birth-control-we-will-probably-never-1794045762>
 
 一种新的男性节育方式——Vasalgel，即将进行人体试验——但我们以前听过这个故事。让我们来看看一些因缺乏资金而日渐凋零的男性避孕药。
 

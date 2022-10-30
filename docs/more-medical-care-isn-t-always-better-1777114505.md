@@ -1,6 +1,6 @@
 # 更多的医疗保健并不总是更好
 
-> 原文:[https://life hacker . com/more-medical-care-is-not-always-better-1777114505](https://lifehacker.com/more-medical-care-isn-t-always-better-1777114505)
+> 原文：<https://lifehacker.com/more-medical-care-isn-t-always-better-1777114505>
 
 逃避必要的医疗护理通常是一个坏主意，只有那些懒惰、害怕或试图省钱的人才会这么做。但是太多的医疗保健有其自身的风险。避免某些测试或治疗并选择第二意见而不是更多的访问可能是明智的，一个好的提供商可以帮助你深思熟虑地做出决定。
 

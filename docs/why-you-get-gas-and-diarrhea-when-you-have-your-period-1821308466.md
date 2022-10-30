@@ -1,6 +1,6 @@
 # 为什么你来月经时会胀气和腹泻
 
-> 原文:[https://life hacker . com/why-you-get-gas and-drain-why-you-why-you-get-gas-when you-have-theory-1821308466](https://lifehacker.com/why-you-get-gas-and-diarrhea-when-you-have-your-period-1821308466)
+> 原文：<https://lifehacker.com/why-you-get-gas-and-diarrhea-when-you-have-your-period-1821308466>
 
 欢迎回到燃烧的问题，在这个专栏里，我请专家回答那些你不好意思谈论自己的问题。今天的文章是写给那些发现自己每月花太多时间在浴室的有子宫的人的。
 

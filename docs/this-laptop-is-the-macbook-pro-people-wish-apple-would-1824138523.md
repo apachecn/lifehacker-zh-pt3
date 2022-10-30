@@ -1,6 +1,6 @@
 # 这款笔记本电脑是人们希望苹果制造的 MacBook Pro
 
-> 原文:[https://gizmodo . com/this-laptop-is-the-macbook-pro-people-wish-apple-would-1824138523](https://gizmodo.com/this-laptop-is-the-macbook-pro-people-wish-apple-would-1824138523)
+> 原文：<https://gizmodo.com/this-laptop-is-the-macbook-pro-people-wish-apple-would-1824138523>
 
 因此，我在离家 6000 英里的外国(我不会说他们的语言)独自报道一个贸易展览，我意识到我的 XPS 13 上的电源插头坏了。这是一场灾难。我的笔记本电脑是我的生命线。我需要它来写故事、编辑照片以及与家乡的团队合作。没有它，我真的完蛋了。更糟糕的是，我的工作 XPS 是最后一代不支持 USB-C 充电的产品，因为西班牙根本不在乎戴尔，所以没有替代产品(相信我，我试过)。
 

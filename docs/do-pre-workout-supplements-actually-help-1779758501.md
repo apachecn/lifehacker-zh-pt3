@@ -1,6 +1,6 @@
 # 锻炼前补充真的有帮助吗？
 
-> 原文:[https://life hacker . com/do-pre-workout-supplements-actually-help-1779758501](https://lifehacker.com/do-pre-workout-supplements-actually-help-1779758501)
+> 原文：<https://lifehacker.com/do-pre-workout-supplements-actually-help-1779758501>
 
 锻炼前补充剂对提高你的表现做出了很大的承诺，伴随着这些承诺而来的是高昂的价格。据说你会精力充沛，不容易疲劳，并增加血流量，所有这些都有助于你从锻炼中获得更多。问题是，这些补充剂实际上只是强有力的兴奋剂。
 

@@ -1,6 +1,6 @@
 # 现在是时候给慈善机构捐更多了
 
-> 原文:[https://life hacker . com/nows-the-time-to-give-more-to-charity-1821449709](https://lifehacker.com/nows-the-time-to-give-more-to-charity-1821449709)
+> 原文：<https://lifehacker.com/nows-the-time-to-give-more-to-charity-1821449709>
 
 随着共和党的税收计划似乎直奔总统的办公桌，你可能需要考虑在 2017 年的最后一段时间增加你的慷慨。除了节日捐赠的普遍精神之外，在年底前捐赠也有很好的财务意义。
 

@@ -1,6 +1,6 @@
 # 如果不知道如何编码，如何构建自己的应用程序
 
-> 原文:[https://life hacker . com/how-to-build-your-own-app-if-you-know-how-to-code-1822376541](https://lifehacker.com/how-to-build-your-own-app-if-you-dont-know-how-to-code-1822376541)
+> 原文：<https://lifehacker.com/how-to-build-your-own-app-if-you-dont-know-how-to-code-1822376541>
 
 *在我们的系列**中，我们将为您提供所有您需要知道的信息，帮助您开始并擅长各种在线和离线技术。在这里，我们将通过检查五个软件工具来引导您创建自己的应用程序。*
 

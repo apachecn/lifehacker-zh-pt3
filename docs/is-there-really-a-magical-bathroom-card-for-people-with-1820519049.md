@@ -1,6 +1,6 @@
 # 克罗恩病和结肠炎患者真的有神奇的浴室卡吗？
 
-> 原文:[https://life hacker . com/1820519049](https://lifehacker.com/is-there-really-a-magical-bathroom-card-for-people-with-1820519049)
+> 原文：<https://lifehacker.com/is-there-really-a-magical-bathroom-card-for-people-with-1820519049>
 
 我可能比大多数人更经常谷歌“便便”，所以当我看到推特上到处都是从[【CrohnsandColitis.com】](http://crohnsandcolitis.com)发出的“洗手间请求卡”的定向广告时，我只是有点惊讶。这是世界上每一个卫生间的免费通行证，还是大型制药公司的营销策略？结果是两者都有一点。
 

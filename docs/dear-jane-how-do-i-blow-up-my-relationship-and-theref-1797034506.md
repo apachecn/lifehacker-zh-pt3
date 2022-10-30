@@ -1,6 +1,6 @@
 # 亲爱的简:我如何毁掉我的感情，进而毁掉我的生活？
 
-> 原文:[https://Jezebel . com/dear-Jane-how-do-up-my-relationship-and-theref-1797034506](https://jezebel.com/dear-jane-how-do-i-blow-up-my-relationship-and-theref-1797034506)
+> 原文：<https://jezebel.com/dear-jane-how-do-i-blow-up-my-relationship-and-theref-1797034506>
 
 > 亲爱的简:
 > 

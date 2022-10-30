@@ -1,6 +1,6 @@
 # MoviePass 正在跟踪你的位置
 
-> 原文:[https://life hacker . com/movie pass-is-tracking-your-location-before-and-after-mo-1823549979](https://lifehacker.com/moviepass-is-tracking-your-location-before-and-after-mo-1823549979)
+> 原文：<https://lifehacker.com/moviepass-is-tracking-your-location-before-and-after-mo-1823549979>
 
 我们都在等待另一只鞋掉在超级便宜的，你可以看的电影服务上，它终于来了。在最近的一次演示中，MoviePass 首席执行官承认，该应用程序可以在你看电影之前和之后跟踪你的位置——在数百万人注册该服务之前，这一点没有明确披露。
 

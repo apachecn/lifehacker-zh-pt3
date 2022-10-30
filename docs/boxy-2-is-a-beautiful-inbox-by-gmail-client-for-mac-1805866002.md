@@ -1,6 +1,6 @@
 # Boxy 2 是 Mac 版 Gmail 客户端的一个漂亮的收件箱
 
-> 原文:[https://life hacker . com/boxy-2-is-a-beautiful-inbox-by-Gmail-client-for-MAC-1805866002](https://lifehacker.com/boxy-2-is-a-beautiful-inbox-by-gmail-client-for-mac-1805866002)
+> 原文：<https://lifehacker.com/boxy-2-is-a-beautiful-inbox-by-gmail-client-for-mac-1805866002>
 
 说到电子邮件客户端，有很多选择。在过去的一周里，我一直在使用 Boxy。最初的 [于 2015 年底推出](http://lifehacker.com/boxy-brings-inbox-by-gmail-to-the-mac-desktop-1747090438) ，该公司上周在这个时候推出了第二版，它在原有产品的基础上增加了许多新功能，同时保留了人们对该公司最初产品的喜爱。
 

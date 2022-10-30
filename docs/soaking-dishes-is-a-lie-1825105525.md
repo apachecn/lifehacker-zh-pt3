@@ -1,6 +1,6 @@
 # 你不必浸泡你的盘子
 
-> 原文:[https://lifehacker.com/soaking-dishes-is-a-lie-1825105525](https://lifehacker.com/soaking-dishes-is-a-lie-1825105525)
+> 原文：<https://lifehacker.com/soaking-dishes-is-a-lie-1825105525>
 
 你早上醒来，摇摇晃晃地去厨房煮咖啡，这时你闻到了咖啡的味道。它强劲、可怜，而且来自你的水槽——脏盘子。前一天晚上，你在一些有硬壳的碗和锅里装满了水，假装以后会清理它们，但是你忘记了，现在你后悔了。是时候停止欺骗自己了——是时候停止浸泡了。
 

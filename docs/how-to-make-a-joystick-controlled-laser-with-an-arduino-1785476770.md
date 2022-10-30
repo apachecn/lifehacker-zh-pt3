@@ -1,6 +1,6 @@
 # 如何用 Arduino 制作操纵杆控制的激光器
 
-> 原文:[https://life hacker . com/how-to-make-a-操纵杆控制的激光与 arduino-1785476770](https://lifehacker.com/how-to-make-a-joystick-controlled-laser-with-an-arduino-1785476770)
+> 原文：<https://lifehacker.com/how-to-make-a-joystick-controlled-laser-with-an-arduino-1785476770>
 
 在这个项目中，我们通过将两个伺服系统连接到一个操纵杆来创建一个操纵杆控制的激光器，并将此设置用作激光笔的云台控制器。
 

@@ -1,6 +1,6 @@
 # 二手车租赁正在兴起，但这是明智之举吗？
 
-> 原文:[https://jalopnik . com/used-car-leasing-is-in-the-rise-but-it-a-smart-move-1769089879](https://jalopnik.com/used-car-leasing-is-on-the-rise-but-is-it-a-smart-move-1769089879)
+> 原文：<https://jalopnik.com/used-car-leasing-is-on-the-rise-but-is-it-a-smart-move-1769089879>
 
 随着 2015 年新车销量创下纪录，行业分析师担心二手车市场会出现膨胀，更多汽车以旧换新和停租。为了帮助转移库存，丰田和 Ally Financial 等公司开始为轻度二手车提供租赁计划。
 

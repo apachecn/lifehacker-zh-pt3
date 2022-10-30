@@ -1,6 +1,6 @@
 # 去参加工作面试之前，对自己吹嘘一番
 
-> 原文:[https://life hacker . com/在参加工作面试前自我吹嘘-t-1824262541](https://lifehacker.com/brag-to-yourself-before-you-head-into-a-job-interview-t-1824262541)
+> 原文：<https://lifehacker.com/brag-to-yourself-before-you-head-into-a-job-interview-t-1824262541>
 
 每个人在工作面试前都会紧张，但是有很多方法可以让你振作起来，摆脱紧张。当然你需要对公司做你的 [研究](https://lifehacker.com/research-a-prospective-employer-to-shine-in-the-intervi-30912338) ，对最常见的面试问题做 [练习回答](https://lifehacker.com/prepare-for-a-job-interview-by-writing-three-replies-to-1692538320) 。你准备得越多，你就越有信心。此外，在我可能会紧张但需要留下印象的任何类型的情况之前，我喜欢听我的 [跑步播放列表](https://lifehacker.com/the-lifehacker-pump-up-song-playlist-1823091251) 。你可能也有自己的诀窍。
 

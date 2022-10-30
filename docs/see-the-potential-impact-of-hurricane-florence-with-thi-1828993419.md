@@ -1,6 +1,6 @@
 # 使用此交互式地图查看佛罗伦萨飓风的潜在影响
 
-> 原文:[https://life hacker . com/see-the-potential-impact-of-hurricane-Florence-with-thi-1828993419](https://lifehacker.com/see-the-potential-impact-of-hurricane-florence-with-thi-1828993419)
+> 原文：<https://lifehacker.com/see-the-potential-impact-of-hurricane-florence-with-thi-1828993419>
 
 国家飓风中心预计，当佛罗伦萨飓风本周晚些时候登陆时，它将导致威胁生命的灾难性洪水 ，现在有一种工具可以让我们知道这种影响将是多么灾难性。
 

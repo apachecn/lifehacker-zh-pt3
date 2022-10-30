@@ -1,6 +1,6 @@
 # 如果你的宠物不小心吃了杂草该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-your ' s pet-incident-eat-weed-1828058262](https://lifehacker.com/what-to-do-if-your-pet-accidentally-eats-weed-1828058262)
+> 原文：<https://lifehacker.com/what-to-do-if-your-pet-accidentally-eats-weed-1828058262>
 
 你知道 [不要故意让你的宠物兴奋](https://lifehacker.com/stop-trying-to-get-your-pets-high-1818511881) ，但是有时候你的狗会发现你藏的东西，或者它们在公园里“散步”时偶然发现一个可食用的东西(嘿，这可能会发生)。下面是要做的事情。
 

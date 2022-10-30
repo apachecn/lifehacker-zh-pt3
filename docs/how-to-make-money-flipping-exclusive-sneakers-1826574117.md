@@ -1,6 +1,6 @@
 # 如何赚钱翻转独家运动鞋
 
-> 原文:[https://life hacker . com/how-to-make-money-flipping-exclusive-运动鞋-1826574117](https://lifehacker.com/how-to-make-money-flipping-exclusive-sneakers-1826574117)
+> 原文：<https://lifehacker.com/how-to-make-money-flipping-exclusive-sneakers-1826574117>
 
 新款 YEEZY 500 Super Moon Yellow 将于美国东部时间 6 月 9 日上午 10 点在 adidas.com 和门店发售。几天之内，你可能会在经销商的网站上看到这款售价 200 美元的鞋子，价格可能会高出数百美元。
 

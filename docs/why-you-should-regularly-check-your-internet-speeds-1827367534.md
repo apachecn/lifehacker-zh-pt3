@@ -1,6 +1,6 @@
 # 为什么你应该定期检查你的网速
 
-> 原文:[https://life hacker . com/why-you-should-check-you-internet-speeds-1827367534](https://lifehacker.com/why-you-should-regularly-check-your-internet-speeds-1827367534)
+> 原文：<https://lifehacker.com/why-you-should-regularly-check-your-internet-speeds-1827367534>
 
 [Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
 

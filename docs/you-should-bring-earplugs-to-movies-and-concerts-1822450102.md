@@ -1,6 +1,6 @@
 # 你应该带耳塞去看电影和音乐会
 
-> 原文:[https://life hacker . com/you-should-bring-耳塞去看电影听音乐会-1822450102](https://lifehacker.com/you-should-bring-earplugs-to-movies-and-concerts-1822450102)
+> 原文：<https://lifehacker.com/you-should-bring-earplugs-to-movies-and-concerts-1822450102>
 
 不仅仅是你——表演和电影可能真的很吵。在你的钱包或口袋里带着耳塞听起来像是一个脾气暴躁的老人可能会做的事情，但如果你想在年老时能够抱怨像剧院噪音这样的事情，最好现在就保护你的听力。
 

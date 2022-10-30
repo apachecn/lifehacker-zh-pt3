@@ -1,6 +1,6 @@
 # 如何让你的孩子的午餐变得有趣，即使你没有艺术才能
 
-> 原文:[https://life hacker . com/how-to-make-your-kids-lunch-fun-even-if you-have-zero-1785177152](https://lifehacker.com/how-to-make-your-kids-lunch-fun-even-if-you-have-zero-1785177152)
+> 原文：<https://lifehacker.com/how-to-make-your-kids-lunch-fun-even-if-you-have-zero-1785177152>
 
 如今，父母们似乎把打包午餐当成一项竞技运动，为他们的孩子 制作一些真正艺术的午餐。并非所有的父母都有折纸的天赋，但这并不意味着他们的孩子应该受到平庸表现的影响。遵循这些建议，你会做出一顿真正令人印象深刻的午餐。
 

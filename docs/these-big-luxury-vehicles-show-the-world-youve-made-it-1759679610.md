@@ -1,6 +1,6 @@
 # 这些大型豪华汽车向世界展示了你的成功
 
-> 原文:[https://jalopnik . com/these-big-luxury-vehicles-show-the-world-you-make-it-1759679610](https://jalopnik.com/these-big-luxury-vehicles-show-the-world-youve-made-it-1759679610)
+> 原文：<https://jalopnik.com/these-big-luxury-vehicles-show-the-world-youve-made-it-1759679610>
 
 如果你重视舒适和富裕胜过驾驶的刺激，你会想要驾驶像 [奔驰 S 级](http://buyersguide.jalopnik.com/mercedes-s-class-the-ultimate-buyers-guide-1737909691)[凯迪拉克凯雷德](http://buyersguide.jalopnik.com/cadillac-escalade-the-ultimate-buyers-guide-1746051059?rev=1449181436976) 和其他在炫耀性汽车列表中的汽车。
 

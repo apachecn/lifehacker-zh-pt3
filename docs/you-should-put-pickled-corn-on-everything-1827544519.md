@@ -1,6 +1,6 @@
 # 你应该把腌玉米放在所有的东西上
 
-> 原文:[https://life hacker . com/you-should-put-泡菜玉米-1827544519](https://lifehacker.com/you-should-put-pickled-corn-on-everything-1827544519)
+> 原文：<https://lifehacker.com/you-should-put-pickled-corn-on-everything-1827544519>
 
 也许你以为你会熬过这个夏天，没有我 [谈论](https://skillet.lifehacker.com/you-know-you-dont-have-to-cook-corn-right-1797841831) [玉米](https://skillet.lifehacker.com/make-a-golden-stock-out-of-corn-cobs-1827181520) [然而](https://skillet.lifehacker.com/remove-errant-strings-of-corn-silk-with-a-gripper-pad-1827206286)又来了，但是你想错了，伙计。除了蒸、烤和啃生玉米粒，我现在迷上了腌制新鲜玉米。
 

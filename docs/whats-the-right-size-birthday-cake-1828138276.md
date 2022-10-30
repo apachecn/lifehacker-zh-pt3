@@ -1,6 +1,6 @@
 # 多大的生日蛋糕合适？
 
-> 原文:[https://Jezebel . com/what-the-right-size-birthday-cake-1828138276](https://jezebel.com/whats-the-right-size-birthday-cake-1828138276)
+> 原文：<https://jezebel.com/whats-the-right-size-birthday-cake-1828138276>
 
 每当你想用一个大小合适的纸杯蛋糕以外的东西来庆祝你所爱的人时，这是一个新的问题，因为你永远也不会记得上一次你做了什么，以及它是否有效。所以让我们现在就解决这个问题。
 

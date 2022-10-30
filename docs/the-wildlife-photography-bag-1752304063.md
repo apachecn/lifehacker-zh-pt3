@@ -1,6 +1,6 @@
 # 野生动物摄影包
 
-> 原文:[https://life hacker . com/the-wildlife-photography-bag-1752304063](https://lifehacker.com/the-wildlife-photography-bag-1752304063)
+> 原文：<https://lifehacker.com/the-wildlife-photography-bag-1752304063>
 
 想去野外远足，寻找一些动物和自然的精选照片吗？读者扎卡里·埃斯尼分享了他的书包就是为了做到这一点。
 

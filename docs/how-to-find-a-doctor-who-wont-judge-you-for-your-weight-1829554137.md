@@ -1,6 +1,6 @@
 # 如何找到一个不会以体重来评判你的医生
 
-> 原文:[https://life hacker . com/how-to-find-a-doctor-wot-judge-you-for-you-weight-1829554137](https://lifehacker.com/how-to-find-a-doctor-who-wont-judge-you-for-your-weight-1829554137)
+> 原文：<https://lifehacker.com/how-to-find-a-doctor-who-wont-judge-you-for-your-weight-1829554137>
 
 对超重的耻辱感渗透到生活的许多领域，但在医生那里尤其有害。正如《赫芬顿邮报》最近的一篇文章 所记录的那样，你的医生可能会提出你的体重问题，但不太可能告诉你任何有帮助的事情。
 

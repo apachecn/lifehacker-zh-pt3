@@ -1,6 +1,6 @@
 # 我终于找到了一位使用现代技术的医生
 
-> 原文:[https://life hacker . com/I-终于找到一位使用现代技术的医生-1773175445](https://lifehacker.com/i-finally-found-a-doctor-who-uses-modern-technology-1773175445)
+> 原文：<https://lifehacker.com/i-finally-found-a-doctor-who-uses-modern-technology-1773175445>
 
 当大多数人 [找医生](https://lifehacker.com/how-can-i-find-a-good-doctor-5959213) 时，他们会试图找一个由他们的保险覆盖的人，靠近他们的家或工作单位，也许是别人推荐的。我也在寻找这些东西，但是我真正想要的——我发现很难找到——是一个使用 21 世纪工具的医生，比如电子邮件。
 

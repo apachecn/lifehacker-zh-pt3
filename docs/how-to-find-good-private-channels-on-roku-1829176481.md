@@ -1,6 +1,6 @@
 # 如何在 Roku 上找到好的私人频道
 
-> 原文:[https://life hacker . com/how-to-find-good-private-channels-on-Roku-1829176481](https://lifehacker.com/how-to-find-good-private-channels-on-roku-1829176481)
+> 原文：<https://lifehacker.com/how-to-find-good-private-channels-on-roku-1829176481>
 
 流媒体播放器 Roku 的一个好处是，它允许用户创建自己的私人频道，有点像人们可以在 Spotify 上制作播放列表。和 Spotify 一样，许多这类精心策划的频道都是糟糕的。
 

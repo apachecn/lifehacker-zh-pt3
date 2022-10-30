@@ -1,6 +1,6 @@
 # 脸部瑜伽是真的吗？
 
-> 原文:[https://lifehacker.com/is-face-yoga-for-real-1822669561](https://lifehacker.com/is-face-yoga-for-real-1822669561)
+> 原文：<https://lifehacker.com/is-face-yoga-for-real-1822669561>
 
 面部瑜伽已经存在了几十年，尽管自从上个月发表的一项研究声称发现上过面部瑜伽课的人最终看起来稍微年轻了一点 之后，就有了更多的讨论。但是有足够的理由持怀疑态度。
 

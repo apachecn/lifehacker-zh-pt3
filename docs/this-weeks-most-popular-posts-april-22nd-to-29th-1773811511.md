@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:4 月 22 日至 29 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-April-22-to-29-1773811511](https://lifehacker.com/this-weeks-most-popular-posts-april-22nd-to-29th-1773811511)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-april-22nd-to-29th-1773811511>
 
 本周，我们解释了为什么买房和租房的争论在房屋所有权的问题上是愚蠢的，试图在喝酒后好好睡一觉，然后，当然，学会了用最懒的方式煮一杯像样的咖啡。让我们来回顾一下本周的热门帖子。
 

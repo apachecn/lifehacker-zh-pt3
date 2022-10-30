@@ -1,6 +1,6 @@
 # 关于社会保障你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-social-security-1737691457](https://lifehacker.com/everything-you-need-to-know-about-social-security-1737691457)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-social-security-1737691457>
 
 如果你纳税并计划在你的黄金岁月退休，你可能应该对社会保障略知一二。毫无疑问，你听说过它，也许是在政客们大喊如何解决它的背景下。但是为什么它首先会坏掉，它到底是怎么回事？我们在这里找到了你的答案。
 

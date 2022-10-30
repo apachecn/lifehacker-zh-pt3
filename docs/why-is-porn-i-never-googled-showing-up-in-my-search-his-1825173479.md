@@ -1,6 +1,6 @@
 # 为什么我从未搜索过的色情内容会出现在我的搜索历史中？
 
-> 原文:[https://life hacker . com/why-is porn-I-never-Google-show-up-in-my-search-his-1825173479](https://lifehacker.com/why-is-porn-i-never-googled-showing-up-in-my-search-his-1825173479)
+> 原文：<https://lifehacker.com/why-is-porn-i-never-googled-showing-up-in-my-search-his-1825173479>
 
 对于 [Tech 911](https://lifehacker.com/c/tech-911#_ga=2.256828427.1626577895.1522540410-396842925.1520800403) 来说，没有太奇怪的问题，也没有太小的问题。本周，我们探讨了一位读者的问题，她在谷歌历史中发现了一些她声称从未搜索过的东西...从那以后只会变得更加有趣。
 

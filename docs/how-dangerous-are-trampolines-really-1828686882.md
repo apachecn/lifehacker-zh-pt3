@@ -1,6 +1,6 @@
 # 蹦床到底有多危险？
 
-> 原文:[https://life hacker . com/how-dangerous-are-trampolines-really-1828686882](https://lifehacker.com/how-dangerous-are-trampolines-really-1828686882)
+> 原文：<https://lifehacker.com/how-dangerous-are-trampolines-really-1828686882>
 
 似乎我认识的每个小时候玩过蹦床的人*和*都有摔断腿或胳膊的故事，或者亲眼目睹了一些令人发指的伤害。蹦床在最近几年变得越来越受欢迎，而且它们也变得越来越安全，有了网和弹簧套——所以它们仍然是等待发生的骨折吗？
 

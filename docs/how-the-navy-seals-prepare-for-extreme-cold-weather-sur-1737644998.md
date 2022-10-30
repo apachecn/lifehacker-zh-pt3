@@ -1,6 +1,6 @@
 # 海豹突击队队员海军如何为极端寒冷天气下的生存做准备，你也可以
 
-> 原文:[https://gizmodo . com/how-the-navy-seals-prepare-for-extreme-cold-weather-sur-1737644998](https://gizmodo.com/how-the-navy-seals-prepare-for-extreme-cold-weather-sur-1737644998)
+> 原文：<https://gizmodo.com/how-the-navy-seals-prepare-for-extreme-cold-weather-sur-1737644998>
 
 如果你想学习一个潜在的救生动作，你需要练习。如果你需要了解你的衣服和其他装备是否能够拯救你的生命，你需要测试它。这就是海豹突击队队员海军应对寒冷天气紧急情况的方法。
 

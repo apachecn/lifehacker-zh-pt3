@@ -1,6 +1,6 @@
 # 我们如何工作，2016 年:克莱尔·洛的装备和生产力提示
 
-> 原文:[https://life hacker . com/how-we-work-2016-claire-lowers-gear-and-productivity-1759656333](https://lifehacker.com/how-we-work-2016-claire-lowers-gear-and-productivity-1759656333)
+> 原文：<https://lifehacker.com/how-we-work-2016-claire-lowers-gear-and-productivity-1759656333>
 
 每周，我们都会问一些很酷很有趣的人，他们是如何完成任务的。今天我们出于某种原因问我。我是自由餐饮作家克莱尔·洛，经营着煎锅，这就是我的工作方式。
 

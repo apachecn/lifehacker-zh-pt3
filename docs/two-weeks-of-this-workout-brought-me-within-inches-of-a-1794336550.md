@@ -1,6 +1,6 @@
 # 两周的训练让我差一点就能做一个完美的引体向上
 
-> 原文:[https://life hacker . com/two-weeks of this-workout-being-me-in-a-1794336550](https://lifehacker.com/two-weeks-of-this-workout-brought-me-within-inches-of-a-1794336550)
+> 原文：<https://lifehacker.com/two-weeks-of-this-workout-brought-me-within-inches-of-a-1794336550>
 
 我一直在做我们两周前发布的那个引体向上项目 ，你猜怎么着？*成功了*。开始的时候，我可以做半个引体向上，现在我可以把我的鼻子抬高到杠上。我还把手臂弯曲挂在横杆上的时间增加了一倍多。我是这样做的。
 

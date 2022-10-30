@@ -1,6 +1,6 @@
 # 跑步时无需计算每分钟的步数——你的 iPhone 已经知道了
 
-> 原文:[https://life hacker . com/no-need-to-count-you-running-1818728772](https://lifehacker.com/no-need-to-count-your-steps-per-minute-when-running-you-1818728772)
+> 原文：<https://lifehacker.com/no-need-to-count-your-steps-per-minute-when-running-you-1818728772>
 
 高节奏是良好跑步状态的一部分。大多数职业选手的 [每分钟超过 180 步](https://www.runnersworld.com/race-training/the-great-cadence-debate) ，这是一个非常好的目标。但是你不必用传统的方式数你的步数；你的 iPhone 已经在跟踪你了。
 

@@ -1,6 +1,6 @@
 # 当你变老时，你的阴茎会是什么样子
 
-> 原文:[https://life hacker . com/what-your ' s 阴茎在你变老时看起来像什么-1820332839](https://lifehacker.com/what-your-penis-will-look-like-when-you-get-older-1820332839)
+> 原文：<https://lifehacker.com/what-your-penis-will-look-like-when-you-get-older-1820332839>
 
 大家好，欢迎来到热点问题栏目，在这个栏目中，我们请医生解释你的身体会做或可能会做的怪异事情，或者你担心你的身体可能会做但你可能不想在搜索历史中出现的事情。让我们开始吧。
 

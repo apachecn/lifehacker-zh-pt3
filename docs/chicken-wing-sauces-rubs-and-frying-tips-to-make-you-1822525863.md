@@ -1,6 +1,6 @@
 # 鸡翅酱，摩擦，油炸技巧让你成为派对 MVP
 
-> 原文:[https://the take out . com/chicken-wing-sauce-rubs-and-frying-tips-to-make-you-1822525863](https://thetakeout.com/chicken-wing-sauces-rubs-and-frying-tips-to-make-you-1822525863)
+> 原文：<https://thetakeout.com/chicken-wing-sauces-rubs-and-frying-tips-to-make-you-1822525863>
 
 拥有一份绝版的鸡翅食谱是吹牛的终极权利，因为鸡翅通常在大型社交聚会上被消费。(尽管我们永远不会因为你的单翼放纵而责备你。)当你所有的朋友、家人和同事都聚在游戏周围时，有人碰巧提到你的翅膀有多好，这引发了一场名副其实的称赞多米诺骨牌。两年后，你是最受欢迎的派对嘉宾。准备好赢得朋友和影响他人了吗？从这里开始，然后在评论里告诉我们你的翅膀秘密。
 

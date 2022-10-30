@@ -1,6 +1,6 @@
 # 任天堂 Labo 能把你的孩子变成创造者吗？
 
-> 原文:[https://life hacker . com/can-Nintendo-labo-help-turn-kids-into-makers-1826333887](https://lifehacker.com/can-nintendo-labo-help-turn-kids-into-makers-1826333887)
+> 原文：<https://lifehacker.com/can-nintendo-labo-help-turn-kids-into-makers-1826333887>
 
 每个家长都去过:今天是周六。下雨了，下雪了，或者核冬天了，不管什么原因，你的孩子都不能在外面玩。然后 junior 用那种大孩子的哀叹来打击你:“我*无聊了*”
 

@@ -1,6 +1,6 @@
 # 不要让不愉快的感觉控制你的头脑
 
-> 原文:[https://life hacker . com/don ' t-let-unless-sensations-take-control-of-your-min-1796591853](https://lifehacker.com/dont-let-unpleasant-sensations-take-control-of-your-min-1796591853)
+> 原文：<https://lifehacker.com/dont-let-unpleasant-sensations-take-control-of-your-min-1796591853>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 

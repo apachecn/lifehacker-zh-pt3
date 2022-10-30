@@ -1,6 +1,6 @@
 # 停止教你的学龄前儿童如何阅读
 
-> 原文:[https://life hacker . com/stop-teaching-your-学龄前儿童如何阅读-1820855504](https://lifehacker.com/stop-teaching-your-preschooler-how-to-read-1820855504)
+> 原文：<https://lifehacker.com/stop-teaching-your-preschooler-how-to-read-1820855504>
 
 我女儿盯上我了。当我给她读睡前故事时，有时我会停下来，指着一个单词，用我最有说服力的声音说，“嗯，我不知道这个。加州理工学院。你能帮我吗？”
 

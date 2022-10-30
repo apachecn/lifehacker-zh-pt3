@@ -1,6 +1,6 @@
 # 通过每半小时转换任务来提高你的工作效率
 
-> 原文:[https://life hacker . com/rise-your-productivity-by-switching-tasks-every-Hal-1828942200](https://lifehacker.com/increase-your-productivity-by-switching-tasks-every-hal-1828942200)
+> 原文：<https://lifehacker.com/increase-your-productivity-by-switching-tasks-every-hal-1828942200>
 
 在一个典型的工作日里，有上百件事情需要记录，甚至更多的事情需要完成。试图一次完成所有事情通常意味着你的效率比你希望的要低。例如，你不能在给老板写一封关于你想接手的新项目的电子邮件时，听并理解你同事的陈述——你做一件事或两件事的能力都会受到影响。
 

@@ -1,6 +1,6 @@
 # 2015 年最受欢迎的前十名
 
-> 原文:[https://life hacker . com/most-popular-top-10s-of-of-2015-1750296253](https://lifehacker.com/most-popular-top-10s-of-2015-1750296253)
+> 原文：<https://lifehacker.com/most-popular-top-10s-of-2015-1750296253>
 
 每个周末，我们都会收集关于某个特定主题的最佳指南和帖子。这些是我们 2015 年的十大最佳榜单。
 

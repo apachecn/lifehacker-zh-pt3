@@ -1,6 +1,6 @@
 # 当你从这些机场旅行回来时，做你的全球入境面试
 
-> 原文:[https://life hacker . com/do-your-global-entry-interview-when-you-return-from-a-t-1825433350](https://lifehacker.com/do-your-global-entry-interview-when-you-return-from-a-t-1825433350)
+> 原文：<https://lifehacker.com/do-your-global-entry-interview-when-you-return-from-a-t-1825433350>
 
 Global Entry 是迄今为止我做过的最好的投资之一。我每年至少有六次国际旅行，甚至更多，在我的家乡旧金山机场，海关检查有时需要几个小时。我的第一次环球旅行是在一次从意大利返回的旅途中，我比我的男朋友早了整整一个半小时，他与我同乘一班飞机，在我旁边进入了海关区域。
 

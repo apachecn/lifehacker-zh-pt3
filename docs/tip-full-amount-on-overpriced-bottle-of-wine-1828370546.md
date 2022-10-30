@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我真的需要给一瓶定价过高的酒全额小费吗？
 
-> 原文:[https://the take out . com/tip-full-amount-on-over-priced-bottle-of-wine-1828370546](https://thetakeout.com/tip-full-amount-on-overpriced-bottle-of-wine-1828370546)
+> 原文：<https://thetakeout.com/tip-full-amount-on-overpriced-bottle-of-wine-1828370546>
 
 > *亲爱的咸:快速提问。一般来说，我给小费很大方——几乎总是 18 %- 20 %,如果服务好的话，我会给更多。，很少下来。*
 > 

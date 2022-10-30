@@ -1,6 +1,6 @@
 # 为什么你应该提出加薪而不是奖金的理由
 
-> 原文:[https://life hacker . com/why-you-should-make-the-case for-a-raise-而不是-a-b-1823031236](https://lifehacker.com/why-you-should-make-the-case-for-a-raise-instead-of-a-b-1823031236)
+> 原文：<https://lifehacker.com/why-you-should-make-the-case-for-a-raise-instead-of-a-b-1823031236>
 
 包括苹果 [、美国航空和家得宝](https://www.nytimes.com/interactive/2018/business/dealbook/tax-savings-benefits.html) 在内的公司都因给一些员工发放一次性奖金而成为正面头条，他们将此归功于国会最近通过的减税措施(公司税率从 35%降至 21%)。正如《纽约时报》报道的那样，问题在于奖金取代了实际加薪。
 

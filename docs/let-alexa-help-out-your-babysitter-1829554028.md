@@ -1,6 +1,6 @@
 # 让 Alexa 帮助你的保姆
 
-> 原文:[https://life hacker . com/let-Alexa-help-out-your-保姆-1829554028](https://lifehacker.com/let-alexa-help-out-your-babysitter-1829554028)
+> 原文：<https://lifehacker.com/let-alexa-help-out-your-babysitter-1829554028>
 
 你的保姆刚刚到达，在你必须出发去看你的表演/赶上你的会议/看着你的朋友走过通道之前，你还有 7 分钟。你试图记住他们在接下来几个小时照顾你的后代时可能需要知道的一切，但你一片空白，你的小家伙一直拉着你的衬衫，要汤喝。你告诉你的保姆“给我发短信！”但是你真的不希望在你非常重要的事情中得到一连串的非紧急信息。
 

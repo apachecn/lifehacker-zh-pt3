@@ -1,6 +1,6 @@
 # 当你们分享银行账户时，如何向对方隐瞒礼物
 
-> 原文:[https://life hacker . com/how-to-hide-gifts-from-you-share-bank-1820778860](https://lifehacker.com/how-to-hide-gifts-from-your-partner-when-you-share-bank-1820778860)
+> 原文：<https://lifehacker.com/how-to-hide-gifts-from-your-partner-when-you-share-bank-1820778860>
 
 你可能不想养成对伴侣或配偶隐瞒事情的习惯，但是当你想用礼物给他们一个惊喜时，一点点的秘密是必要的。当你分享财务账户时，很容易破坏惊喜。但是，有一些技巧可以解决这个问题。
 

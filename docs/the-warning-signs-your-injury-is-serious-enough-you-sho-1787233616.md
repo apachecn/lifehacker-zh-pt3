@@ -1,6 +1,6 @@
 # 警告信号你的伤很严重，你应该去看医生
 
-> 原文:[https://life hacker . com/the-warning-signs-you-injury-found-you-sho-1787233616](https://lifehacker.com/the-warning-signs-your-injury-is-serious-enough-you-sho-1787233616)
+> 原文：<https://lifehacker.com/the-warning-signs-your-injury-is-serious-enough-you-sho-1787233616>
 
 显然，如果你摔断了腿，你会直接去最近的急诊室。但是当你扭伤了脚踝，或者膝盖疼痛时，就很难知道该怎么办了。你需要休息和冰敷吗，还是需要检查一下？
 

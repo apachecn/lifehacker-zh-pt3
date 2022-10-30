@@ -1,6 +1,6 @@
 # 看新闻最好的 App 是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-app-for-reading-the-news-1829702550](https://lifehacker.com/whats-the-best-app-for-reading-the-news-1829702550)
+> 原文：<https://lifehacker.com/whats-the-best-app-for-reading-the-news-1829702550>
 
 我们在 Lifehacker 上查看了许多应用程序，最近我们写了相当大的关于 [Android](https://lifehacker.com/the-essential-android-apps-for-2018-1829424567) 和 [iOS](https://lifehacker.com/the-2018-lifehacker-pack-for-ios-the-essential-ios-app-1828788598) 的必备程序的综述。尽管如此，仍然有很多，这可能会使你很难找到最好的应用程序来做你想做的事情。
 

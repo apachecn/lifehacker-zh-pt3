@@ -1,6 +1,6 @@
 # 如何在 OkCupid 上挑选你的代词
 
-> 原文:[https://life hacker . com/how-to-pick-your-代词-on-okcupid-1828982136](https://lifehacker.com/how-to-pick-your-pronouns-on-okcupid-1828982136)
+> 原文：<https://lifehacker.com/how-to-pick-your-pronouns-on-okcupid-1828982136>
 
 如果你对约会应用程序上的性别选项感到沮丧，你可能会有一个在 OkCupid 上受益的新朋友。
 

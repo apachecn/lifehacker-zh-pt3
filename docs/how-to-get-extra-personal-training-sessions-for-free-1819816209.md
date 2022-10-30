@@ -1,6 +1,6 @@
 # 如何免费获得额外的个人培训课程
 
-> 原文:[https://life hacker . com/how-to-get-extra-personal-training-sessions-for-free-1819816209](https://lifehacker.com/how-to-get-extra-personal-training-sessions-for-free-1819816209)
+> 原文：<https://lifehacker.com/how-to-get-extra-personal-training-sessions-for-free-1819816209>
 
 良好的健康确实是无价之宝，但是保持良好的健康水平——尤其是在大城市——可能要花一大笔钱。在纽约，健身房会员费可能高达每月数百美元(咳咳，Equinox)，而一堂 45 分钟的课可能花费你 [、42 美元或更多](https://clients.mindbodyonline.com/asp/main_shop.asp) 。还有个人训练课？忘了它吧:那些每小时超过 100 美元，很容易，而且通常是在健身房每月会员费的基础上。不过，这没什么——因为如果你的牌打得好，你一毛钱都不用付。
 

@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我如何在口交方面变得更好？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-get-better-at-oral-sex-1795381611](https://kotaku.com/ask-dr-nerdlove-how-do-i-get-better-at-oral-sex-1795381611)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-get-better-at-oral-sex-1795381611>
 
 你好，所有互联网上的变态们，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是一个帮助你在犯错之前避免犯错的时间约会建议专栏。
 

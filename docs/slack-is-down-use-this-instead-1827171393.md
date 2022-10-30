@@ -1,6 +1,6 @@
 # 松弛度下降，用这个代替
 
-> 原文:[https://life hacker . com/slack-is-down-use-this-instead-1827171393](https://lifehacker.com/slack-is-down-use-this-instead-1827171393)
+> 原文：<https://lifehacker.com/slack-is-down-use-this-instead-1827171393>
 
 今天早上，由于空闲停机，各地的远程办公室都瘫痪了。如果你的团队错过了群聊，有大量的选项可以快速替换。我个人最喜欢的是 Stride。
 

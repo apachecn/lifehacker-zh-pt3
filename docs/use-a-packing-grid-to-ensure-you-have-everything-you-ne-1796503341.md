@@ -1,6 +1,6 @@
 # 使用一个包装格来确保你有旅行所需的一切
 
-> 原文:[https://life hacker . com/use-a-packing-grid-to-confirm-you-ne-1796503341](https://lifehacker.com/use-a-packing-grid-to-ensure-you-have-everything-you-ne-1796503341)
+> 原文：<https://lifehacker.com/use-a-packing-grid-to-ensure-you-have-everything-you-ne-1796503341>
 
 你上一次去度假并自信地打包了所有需要的东西是什么时候？对我们中的一些人来说，旅行意味着离开家的第一个晚上在沃尔格林或沃尔玛度过，购买本应放在行李箱中的防晒霜或人字拖。
 

@@ -1,6 +1,6 @@
 # 工作和娱乐两用工作空间
 
-> 原文:[https://life hacker . com/the-work-and-play-dual-dual-purpose-workspace-1744405907](https://lifehacker.com/the-work-and-play-dual-purpose-workspace-1744405907)
+> 原文：<https://lifehacker.com/the-work-and-play-dual-purpose-workspace-1744405907>
 
 今天的特色工作区一部分是战斗站，一部分是高效的家庭办公室。总之，这是一个令人印象深刻的设置，有许多小工具值得欣赏。
 

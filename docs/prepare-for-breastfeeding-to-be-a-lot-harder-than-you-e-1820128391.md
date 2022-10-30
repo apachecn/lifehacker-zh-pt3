@@ -1,6 +1,6 @@
 # 为母乳喂养做准备比你想象的要困难得多
 
-> 原文:[https://life hacker . com/prepare-for-母乳喂养比你难多了-e-1820128391](https://lifehacker.com/prepare-for-breastfeeding-to-be-a-lot-harder-than-you-e-1820128391)
+> 原文：<https://lifehacker.com/prepare-for-breastfeeding-to-be-a-lot-harder-than-you-e-1820128391>
 
 一发现我怀孕了，我就开始研究育儿的最佳策略，包括母乳喂养。我开始参加拉车乐联盟会议之前，我的肿块甚至可以看到。我学会了锁定和保持。我从图书馆借了关于母乳喂养的书，去了我能找到的每一个社区母乳喂养活动。我相信，只要有正确的心态和坚定的决心，一切都会好的。
 

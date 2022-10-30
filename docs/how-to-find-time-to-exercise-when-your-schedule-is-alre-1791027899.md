@@ -1,6 +1,6 @@
 # 当你的日程已经排得满满的时候，如何找到时间去锻炼
 
-> 原文:[https://life hacker . com/how-to-find-time-to-exercise-when-your-schedule-is-alre-1791027899](https://lifehacker.com/how-to-find-time-to-exercise-when-your-schedule-is-alre-1791027899)
+> 原文：<https://lifehacker.com/how-to-find-time-to-exercise-when-your-schedule-is-alre-1791027899>
 
 人们很容易对锻炼的想法感到有动力。我们都来跑马拉松吧！然后做一个俯卧撑挑战！但不知何故，我们的很多计划从来没有离开过“想法”阶段。我们都是大忙人，对吧？很难找到时间。
 

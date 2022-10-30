@@ -1,6 +1,6 @@
 # 如何使用 Giphy 在 Instagram 上发布 gif
 
-> 原文:[https://life hacker . com/how-to-post-gifs-on-insta gram-using-giphy-1818593312](https://lifehacker.com/how-to-post-gifs-on-instagram-using-giphy-1818593312)
+> 原文：<https://lifehacker.com/how-to-post-gifs-on-instagram-using-giphy-1818593312>
 
 Instagram 是一个分享各种有趣视觉效果的好地方——除了你最喜欢的 gif。Instagram 不让你上传它们。幸运的是，Giphy 应用程序可以让你在智能手机上做到这一点。
 

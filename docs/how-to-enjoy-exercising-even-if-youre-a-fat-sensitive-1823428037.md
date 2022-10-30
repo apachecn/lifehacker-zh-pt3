@@ -1,6 +1,6 @@
 # 如何享受锻炼，即使你是一个肥胖、敏感的书呆子
 
-> 原文:[https://deadspin . com/how-to-enjoy-exercise-even-you-a-fat-sensitive-1823428037](https://deadspin.com/how-to-enjoy-exercising-even-if-youre-a-fat-sensitive-1823428037)
+> 原文：<https://deadspin.com/how-to-enjoy-exercising-even-if-youre-a-fat-sensitive-1823428037>
 
 作为一名在公共场合表演的超重女性，我讨厌像我这样的女性被简化为我们的身体和我们对自己身体的想法。我基本上拒绝对我的观点发表意见。我一生中的大部分时间都在理智和情感上体验这个世界，而不是身体上；我从未花过多的时间或精力去培养健康的身体形象，也从未真正与身体上的自我憎恨作斗争。现在我已经有规律地锻炼了几个月，这是很长时间以来的第一次，我对这种方法更加怀疑了。这种对身体的疏离感是身体被认为不可接受的人的普遍反应。这是一种针对常见伤害的尝试。
 

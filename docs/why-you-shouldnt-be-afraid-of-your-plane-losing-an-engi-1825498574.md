@@ -1,6 +1,6 @@
 # 为什么你不应该害怕你的飞机失去一个引擎
 
-> 原文:[https://life hacker . com/why-you-should-not-fear-your-plane-lost-an-engi-1825498574](https://lifehacker.com/why-you-shouldnt-be-afraid-of-your-plane-losing-an-engi-1825498574)
+> 原文：<https://lifehacker.com/why-you-shouldnt-be-afraid-of-your-plane-losing-an-engi-1825498574>
 
 西南航空公司 1380 次航班险些坠毁的可怕故事仍然历历在目，但商用飞机失去引擎通常不是什么可怕的事情。不仅很少发生，而且一旦发生，飞行员和飞机都准备好应对。以下是你需要知道的关于这类事件的信息，以及为什么 1380 航班更加严重。
 

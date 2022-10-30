@@ -1,6 +1,6 @@
 # 如何恢复 Chrome 的旧外观——并修复 Windows 上的模糊文本
 
-> 原文:[https://life hacker . com/how-to-return-to-chromes-old-look-and-fix-the-fuzzy-te-1828828207](https://lifehacker.com/how-to-return-to-chromes-old-look-and-fix-the-blurry-te-1828828207)
+> 原文：<https://lifehacker.com/how-to-return-to-chromes-old-look-and-fix-the-blurry-te-1828828207>
 
 谷歌在周二 推出了新版 Chrome 浏览器 [，其外观和感觉都有很大变化。正如任何这种规模的变化一样，并不是所有人都满意。事实上，对于切换浏览器，或者至少恢复到 Chrome 的旧外观，有相当多的抱怨。](https://lifehacker.com/the-best-new-features-to-try-in-chromes-latest-update-1828809071) 
 

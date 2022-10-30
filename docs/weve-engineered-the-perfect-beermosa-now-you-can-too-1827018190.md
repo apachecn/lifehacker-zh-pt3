@@ -1,6 +1,6 @@
 # 我们已经设计出完美的啤酒，现在你也可以了
 
-> 原文:[https://the take out . com/we ve-engineered-the-perfect-beer mosa-now-you-can-too-1827018190](https://thetakeout.com/weve-engineered-the-perfect-beermosa-now-you-can-too-1827018190)
+> 原文：<https://thetakeout.com/weve-engineered-the-perfect-beermosa-now-you-can-too-1827018190>
 
 beermosa 非常容易制作——就像，比方说，一个*mi*mosa 一样容易。啤酒，苍白；橙汁，冷的。把前者加到后者上。啜饮。重复一遍。
 

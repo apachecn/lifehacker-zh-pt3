@@ -1,6 +1,6 @@
 # 如果你的每周发现播放列表很烂，试试这个
 
-> 原文:[https://life hacker . com/if-your-discover-weekly-playlist-sucks-try-this-1823436104](https://lifehacker.com/if-your-discover-weekly-playlist-sucks-try-this-1823436104)
+> 原文：<https://lifehacker.com/if-your-discover-weekly-playlist-sucks-try-this-1823436104>
 
 你的《发现周刊》可能并不差——这个专题如此受欢迎，以至于它成了科技博客 和商业博客 上长篇大论的主题。Spotify 甚至利用 [用户在推特上发布他们有多爱这个功能](https://nutmegcreative.com/blog/spotify/) 来打造一个广告活动。每个星期，每个活跃的 Spotify 用户都会得到一个新的 30 首歌曲的列表，其中超过一半的人会找到新的最爱。但是根据你的 Spotify 习惯，你有可能每周收到一份垃圾发现。下面是正在发生的情况以及如何修复它。
 

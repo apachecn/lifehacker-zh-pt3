@@ -1,6 +1,6 @@
 # 脸书妈咪团体礼仪指南
 
-> 原文:[https://life hacker . com/a-comprehensive-礼仪-参与指南-fa-1797969339](https://lifehacker.com/a-comprehensive-etiquette-guide-for-participating-in-fa-1797969339)
+> 原文：<https://lifehacker.com/a-comprehensive-etiquette-guide-for-participating-in-fa-1797969339>
 
 上周，脸书“上东区妈妈”组织的一名成员(通过律师)向另一名成员发送了一封停止信函，要求她停止在该组织的讨论中诽谤发信人，称其为种族主义者。
 

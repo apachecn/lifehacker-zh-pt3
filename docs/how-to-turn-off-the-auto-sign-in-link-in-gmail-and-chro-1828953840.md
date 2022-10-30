@@ -1,6 +1,6 @@
 # 如何关闭 Gmail 和 Chrome 中的自动登录链接
 
-> 原文:[https://life hacker . com/how-to-off-the-auto-sign-in-link-in-Gmail-and-chro-1828953840](https://lifehacker.com/how-to-turn-off-the-auto-sign-in-link-in-gmail-and-chro-1828953840)
+> 原文：<https://lifehacker.com/how-to-turn-off-the-auto-sign-in-link-in-gmail-and-chro-1828953840>
 
 你可能已经注意到，最新的 Chrome 更新改变了浏览器与你的谷歌账户同步的方式。具体来说，如果你登录或退出 Gmail，你的谷歌账户将自动登录或退出 Chrome。
 

@@ -1,6 +1,6 @@
 # 解除被谷歌浏览器最新更新屏蔽的网页游戏和应用的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-to-un mute-web-games-and-apps-silent-by-g-1825893831](https://lifehacker.com/the-best-way-to-unmute-web-games-and-apps-silenced-by-g-1825893831)
+> 原文：<https://lifehacker.com/the-best-way-to-unmute-web-games-and-apps-silenced-by-g-1825893831>
 
 谷歌对 Chrome 的最新更新对浏览器如何处理自动播放视频进行了重大改变，但它现在导致了各种网络应用和游戏的大量音频问题。
 

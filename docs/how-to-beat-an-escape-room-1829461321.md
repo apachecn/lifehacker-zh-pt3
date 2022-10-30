@@ -1,6 +1,6 @@
 # 如何打败一个密室
 
-> 原文:[https://life hacker . com/how-to-beat-a-escape-room-1829461321](https://lifehacker.com/how-to-beat-an-escape-room-1829461321)
+> 原文：<https://lifehacker.com/how-to-beat-an-escape-room-1829461321>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-zwgaTYOx0RI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-zwgaTYOx0RI&start=0) 
 

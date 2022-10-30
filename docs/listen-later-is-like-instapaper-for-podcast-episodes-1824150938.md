@@ -1,6 +1,6 @@
 # “稍后收听”就像 Instapaper 上的播客节目
 
-> 原文:[https://life hacker . com/listen-la ter-is-like-instapaper-for-podcast-episodes-1824150938](https://lifehacker.com/listen-later-is-like-instapaper-for-podcast-episodes-1824150938)
+> 原文：<https://lifehacker.com/listen-later-is-like-instapaper-for-podcast-episodes-1824150938>
 
 大多数播客应用程序都是围绕查找和订阅节目而构建的，而不是剧集。但是听听笔记， [Lifehacker 最喜欢的播客搜索引擎](https://lifehacker.com/the-best-podcast-search-engine-1818560337) ，现在可以让你建立各种播客剧集的定制播放列表。
 

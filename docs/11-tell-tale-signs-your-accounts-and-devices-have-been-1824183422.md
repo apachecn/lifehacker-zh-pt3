@@ -1,6 +1,6 @@
 # 你的账户和设备被黑的 11 个迹象
 
-> 原文:[https://gizmodo . com/11-tell-tale-signs-your-accounts-and-devices-been-1824183422](https://gizmodo.com/11-tell-tale-signs-your-accounts-and-devices-have-been-1824183422)
+> 原文：<https://gizmodo.com/11-tell-tale-signs-your-accounts-and-devices-have-been-1824183422>
 
 没有人喜欢被黑，一般来说，你越快发现出了问题，就越有可能将损失降到最低。这些是要注意的主要警告信号，它们可能意味着什么，以及一些关于你下一步应该做什么的快速提示。
 

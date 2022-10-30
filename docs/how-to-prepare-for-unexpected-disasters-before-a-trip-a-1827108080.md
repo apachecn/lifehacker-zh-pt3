@@ -1,6 +1,6 @@
 # 出国旅行前如何为突发灾难做准备
 
-> 原文:[https://life hacker . com/how-to-prepare-for-unexpected-disasters-a-trip-a-1827108080](https://lifehacker.com/how-to-prepare-for-unexpected-disasters-before-a-trip-a-1827108080)
+> 原文：<https://lifehacker.com/how-to-prepare-for-unexpected-disasters-before-a-trip-a-1827108080>
 
 旅行是一场狂野的冒险，而让它成为一场冒险的部分原因是它有可能遭遇彻底的灾难。这里有一些建议，告诉你如何为最坏的情况做准备，这样你就可以放松，享受你的旅行所能提供的最好的东西，同时最小化最坏情况的风险。
 

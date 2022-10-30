@@ -1,6 +1,6 @@
 # 你现在可以在苹果电视上观看亚马逊 Prime 视频
 
-> 原文:[https://life hacker . com/you-can-now-watch-Amazon-prime-video-on-your-apple-TV-1821090409](https://lifehacker.com/you-can-now-watch-amazon-prime-video-on-your-apple-tv-1821090409)
+> 原文：<https://lifehacker.com/you-can-now-watch-amazon-prime-video-on-your-apple-tv-1821090409>
 
 自今年年初 WWDC 发布以来，我们就知道亚马逊 Prime Video 将用于苹果电视，但亚马逊和苹果都对具体时间守口如瓶。答案是:本周。
 

@@ -1,6 +1,6 @@
 # 如何阻止应用程序监听你的电视习惯
 
-> 原文:[https://life hacker . com/how-to-stop-apps-from-listing-in-your-TV-habits-1821641648](https://lifehacker.com/how-to-stop-apps-from-listening-in-on-your-tv-habits-1821641648)
+> 原文：<https://lifehacker.com/how-to-stop-apps-from-listening-in-on-your-tv-habits-1821641648>
 
 你刚刚下载的那个一脸无辜的 [手游](https://lifehacker.com/how-to-turn-your-android-or-iphone-into-a-portable-retr-5849961) 可能只是别有用心。《纽约时报》[*的一份新报告显示，在幕后，数百个不同的应用程序可以使用你智能手机的麦克风来判断你在电视上看什么。以下是您需要了解的关于这些窃听应用程序的信息，以及您可以做些什么来阻止它们。*](https://www.nytimes.com/2017/12/28/business/media/alphonso-app-tracking.html) 
 

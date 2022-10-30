@@ -1,6 +1,6 @@
 # 哈佛医学院的桑基夫·乔普拉和吉娜·维尔德告诉我们，如何找到你的目标
 
-> 原文:[https://life hacker . com/how-to-find-your-purpose-with-authors-sanjiv-Chopra-an-1823166961](https://lifehacker.com/how-to-find-your-purpose-with-authors-sanjiv-chopra-an-1823166961)
+> 原文：<https://lifehacker.com/how-to-find-your-purpose-with-authors-sanjiv-chopra-an-1823166961>
 
 在这一集里，我们将采访《两个最重要的日子:如何找到你的目标——过上更快乐、更健康的生活 》的作者桑基夫·乔普拉和吉娜·维尔德。
 

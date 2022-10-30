@@ -1,6 +1,6 @@
 # 我需要对我 20 年的凯美瑞进行一次有趣的升级！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-fun-upgrade-from-my-20-old-Camry-what-ca-1826636547](https://jalopnik.com/i-need-a-fun-upgrade-from-my-20-year-old-camry-what-ca-1826636547)
+> 原文：<https://jalopnik.com/i-need-a-fun-upgrade-from-my-20-year-old-camry-what-ca-1826636547>
 
 乔纳森几年前从纽约搬到了洛杉矶，花 1000 美元买了一辆 1998 年的凯美瑞。这是一个明智和负责任的举动，但旧丰田正在显示它的年龄，是时候做一些新的和有趣的事情了。他应该买什么车？
 

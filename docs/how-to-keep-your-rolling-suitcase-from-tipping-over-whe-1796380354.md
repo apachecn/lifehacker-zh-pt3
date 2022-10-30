@@ -1,6 +1,6 @@
 # 当你的行李箱摇摇晃晃时，如何防止它翻倒
 
-> 原文:[https://life hacker . com/how-to-keep your-rolling 行李箱免于翻倒 whe-1796380354](https://lifehacker.com/how-to-keep-your-rolling-suitcase-from-tipping-over-whe-1796380354)
+> 原文：<https://lifehacker.com/how-to-keep-your-rolling-suitcase-from-tipping-over-whe-1796380354>
 
 赶上 [转机](http://jalopnik.com/why-one-man-is-attempting-to-fly-nine-airports-in-one-d-1785028390) 在大多数情况下意味着逃命(或者至少是你的登机口)，躲避和穿梭于行动缓慢的家庭和塞满行李的高尔夫球车。但是，如果你在洛杉矶国际机场慢跑时发现自己的行李箱在身后晃动，那么减速让它稳定下来就是错误的答案。你可能要考虑动作快一点。
 

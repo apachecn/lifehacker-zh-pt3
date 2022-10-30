@@ -1,6 +1,6 @@
 # 自由职业者如何在个人退休账户之外为退休储蓄
 
-> 原文:[https://life hacker . com/how-freelancers-can-save for the retirement-beyond-an-IRA-1826322820](https://lifehacker.com/how-freelancers-can-save-for-retirement-beyond-an-ira-1826322820)
+> 原文：<https://lifehacker.com/how-freelancers-can-save-for-retirement-beyond-an-ira-1826322820>
 
 所以你是一个自由职业者，你想知道你的退休储蓄选择是什么。除了个人退休帐户，你还能怎样存钱？是时候回答一个额外的读者问题了，因为为什么不呢。
 

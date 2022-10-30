@@ -1,6 +1,6 @@
 # 如何真正削铅笔
 
-> 原文:[https://life hacker . com/fact-checking-the-artificial-pencil-converter-how-to-re-1794042517](https://lifehacker.com/fact-checking-the-artisanal-pencil-sharpener-how-to-re-1794042517)
+> 原文：<https://lifehacker.com/fact-checking-the-artisanal-pencil-sharpener-how-to-re-1794042517>
 
 大卫·里斯 [认为他知道如何削铅笔](https://aeon.co/videos/a-deadpan-treatise-on-the-craft-of-pencil-sharpening-from-a-master-artisan) 。他说，人们已经将 1500 个铅笔尖委托给他的削笔业务。我对使用锋利的铅笔略知一二，让我告诉你，如果你把铅笔送去削尖，那你他妈就是个业余爱好者。
 

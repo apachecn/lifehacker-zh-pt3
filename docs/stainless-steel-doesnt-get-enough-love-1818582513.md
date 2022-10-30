@@ -1,6 +1,6 @@
 # 不锈钢得不到足够的爱
 
-> 原文:[https://life hacker . com/不锈钢-得不到足够的爱-1818582513](https://lifehacker.com/stainless-steel-doesnt-get-enough-love-1818582513)
+> 原文：<https://lifehacker.com/stainless-steel-doesnt-get-enough-love-1818582513>
 
 今天，我们要谈论的是地球上最完美的炊具材料:不锈钢。在你按下评论键之前，我想澄清一下，我不是在贬低铸铁。我绝不会做这种事。我的 12 英寸铸铁煎锅是我非常大、非常重的儿子，我非常爱他(他 7 月份就满 8 岁了，谢谢你的关心)。然而，事实是:不锈钢是你能买到的唯一真正通用的炊具材料，这就是为什么我在所有其他材料中推荐它。
 

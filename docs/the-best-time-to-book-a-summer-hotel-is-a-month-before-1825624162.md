@@ -1,6 +1,6 @@
 # 旅行前一个月预订，享受夏季酒店的最优惠价格
 
-> 原文:[https://life hacker . com/1825624162](https://lifehacker.com/the-best-time-to-book-a-summer-hotel-is-a-month-before-1825624162)一个月前是预订夏季酒店的最佳时间
+> 原文：<https://lifehacker.com/the-best-time-to-book-a-summer-hotel-is-a-month-before-1825624162>一个月前是预订夏季酒店的最佳时间
 
 说到预订酒店，有很多关于什么时候是预订的“最佳”时间的理论。我认识一些人，他们发誓你应该在开始计划旅行时就预订，还有一些人认为在你出发前几天是达成交易的最佳时机。事实上，答案介于两者之间。
 

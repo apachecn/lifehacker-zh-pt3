@@ -1,6 +1,6 @@
 # 让人们真的来参加你的派对的秘密
 
-> 原文:[https://life hacker . com/the-secret-to-get-people-to-actually-come-to-your-p-1820053791](https://lifehacker.com/the-secret-to-getting-people-to-actually-come-to-your-p-1820053791)
+> 原文：<https://lifehacker.com/the-secret-to-getting-people-to-actually-come-to-your-p-1820053791>
 
 你和你的朋友面对面地谈论了你的计划，你制作了一个脸书活动页面并邀请了他们——但是人们似乎仍然对你视而不见。怎么回事？你还是没有让他们觉得简单。
 

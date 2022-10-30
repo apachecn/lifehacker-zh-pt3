@@ -1,6 +1,6 @@
 # 何时对警官说不
 
-> 原文:[https://lifehacker.com/when-to-say-no-to-a-cop-1800955539](https://lifehacker.com/when-to-say-no-to-a-cop-1800955539)
+> 原文：<https://lifehacker.com/when-to-say-no-to-a-cop-1800955539>
 
 首先我要说:白人护士比黑人司机更容易对警察说不。在上周末发布的一段视频中，盐湖城大学医院的护士亚历克斯·伍贝尔斯(Alex Wubbels)拒绝了警察的命令，拒绝为一名昏迷的病人 抽血。伍贝尔有医院的政策支持她，也有她的上司的支持，警察仍然给她戴上手铐，把她扔进警车的后座，直到头脑冷静下来。
 

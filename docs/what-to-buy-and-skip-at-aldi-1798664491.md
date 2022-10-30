@@ -1,6 +1,6 @@
 # 在 ALDI 买什么，跳过什么
 
-> 原文:[https://life hacker . com/what-to-buy-and-skip-at-aldi-1798664491](https://lifehacker.com/what-to-buy-and-skip-at-aldi-1798664491)
+> 原文：<https://lifehacker.com/what-to-buy-and-skip-at-aldi-1798664491>
 
 杂货店正处于一个令人困惑的关头。亚马逊现在是全食超市的爸爸，Publix 不断向北扩张，Trader Joe 的价格不断攀升。感谢上帝，ALDI 一直只有一个目标——保持极低的价格——经过一个多世纪的经营，他们已经把低价格归结为一门科学。
 

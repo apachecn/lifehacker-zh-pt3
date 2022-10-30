@@ -1,6 +1,6 @@
 # 不要把奶酪放在保鲜膜里
 
-> 原文:[https://life hacker . com/quit-storing-your-cheese-in-plastic-wrap-1820773489](https://lifehacker.com/quit-storing-your-cheese-in-plastic-wrap-1820773489)
+> 原文：<https://lifehacker.com/quit-storing-your-cheese-in-plastic-wrap-1820773489>
 
 在奶酪柜台很容易兴奋，这种兴奋会导致购买比一个人在一个晚上能(舒服地)吃的更多的奶酪。因此，一些奶酪必须储存，但不能直接用塑料储存。
 

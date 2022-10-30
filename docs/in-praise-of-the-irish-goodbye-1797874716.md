@@ -1,6 +1,6 @@
 # 赞美爱尔兰再见
 
-> 原文:[https://life hacker . com/in-赞美爱尔兰-再见-1797874716](https://lifehacker.com/in-praise-of-the-irish-goodbye-1797874716)
+> 原文：<https://lifehacker.com/in-praise-of-the-irish-goodbye-1797874716>
 
 没有必要为离开你参加的每个聚会而大惊小怪。走吧，没事的。
 

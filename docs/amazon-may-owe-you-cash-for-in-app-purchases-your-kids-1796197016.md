@@ -1,6 +1,6 @@
 # 你的孩子在 6 年前购买的应用程序内商品，亚马逊可能欠你现金
 
-> 原文:[https://life hacker . com/Amazon-may-own-you-cash-for-purchases-your-kids-1796197016](https://lifehacker.com/amazon-may-owe-you-cash-for-in-app-purchases-your-kids-1796197016)
+> 原文：<https://lifehacker.com/amazon-may-owe-you-cash-for-in-app-purchases-your-kids-1796197016>
 
 不可否认，使用亚马逊的 Kindle 很容易。然而，几年前，进行应用内购买有点太容易了，许多孩子设法在父母的信用卡上积累了高额账单，而没有人意识到，直到为时已晚。
 

@@ -1,6 +1,6 @@
 # 使用最新的 Chrome 更新静音自动播放视频
 
-> 原文:[https://life hacker . com/mute-most-autoplay-videos-with-the-latest-chrome-update-1825354497](https://lifehacker.com/mute-most-autoplay-videos-with-the-latest-chrome-update-1825354497)
+> 原文：<https://lifehacker.com/mute-most-autoplay-videos-with-the-latest-chrome-update-1825354497>
 
 Chrome 66 已经过时了，如果你是那种不在乎你的网络浏览器何时有新的更新的人，你可能要重新考虑这个版本的方法了。虽然你的浏览器会自动更新到 Chrome 66(技术上来说，是 66.0.3359.117)，但你应该现在就手动触发更新 以获得额外的安心。
 

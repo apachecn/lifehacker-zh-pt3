@@ -1,6 +1,6 @@
 # 雄辩的主屏幕
 
-> 原文:[https://lifehacker.com/the-eloquent-home-screen-1740855817](https://lifehacker.com/the-eloquent-home-screen-1740855817)
+> 原文：<https://lifehacker.com/the-eloquent-home-screen-1740855817>
 
 大多数主屏幕设计都用信息和颜色来吸引你。这种主屏幕设计选择了简洁、视觉上有趣的极简设计。
 

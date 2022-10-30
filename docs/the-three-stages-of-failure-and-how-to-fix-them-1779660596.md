@@ -1,6 +1,6 @@
 # 失败的三个阶段以及如何修复它们
 
-> 原文:[https://life hacker . com/the-three-stages-of-failure-and-how-fix-them-1779660596](https://lifehacker.com/the-three-stages-of-failure-and-how-to-fix-them-1779660596)
+> 原文：<https://lifehacker.com/the-three-stages-of-failure-and-how-to-fix-them-1779660596>
 
 生活中最困难的事情之一是知道什么时候继续前进，什么时候继续前进。一方面，毅力和勇气是在任何领域取得成功的关键。任何掌握这门手艺的人都会面临怀疑的时刻，并不知何故找到继续前进的内在决心。
 

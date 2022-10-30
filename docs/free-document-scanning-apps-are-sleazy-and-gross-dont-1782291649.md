@@ -1,6 +1,6 @@
 # 免费的文件扫描应用程序又脏又恶心，不要下载
 
-> 原文:[https://life hacker . com/free-document-scanning-apps-are-sleazy-and-gross-don-1782291649](https://lifehacker.com/free-document-scanning-apps-are-sleazy-and-gross-dont-1782291649)
+> 原文：<https://lifehacker.com/free-document-scanning-apps-are-sleazy-and-gross-dont-1782291649>
 
 移动文档扫描仪可能是你能想到的最无聊的应用程序，所以令人困惑的是，它们也是你能下载的最糟糕、最低级、最混乱的应用程序。应该很简单:扫描收据，数字化笔记，同步到云端，就这样。有用，但不刺激。但是有几十个，几乎都一样。有些是免费的。其他的也就几块钱。大多数都有应用内购买。所有的都很混乱。
 

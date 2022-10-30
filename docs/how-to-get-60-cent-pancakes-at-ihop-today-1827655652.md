@@ -1,6 +1,6 @@
 # 今天如何在 IHOP 买到 60 美分的煎饼
 
-> 原文:[https://life hacker . com/how-to-get-60 cent-煎饼-at-ihop-today-1827655652](https://lifehacker.com/how-to-get-60-cent-pancakes-at-ihop-today-1827655652)
+> 原文：<https://lifehacker.com/how-to-get-60-cent-pancakes-at-ihop-today-1827655652>
 
 在从煎饼换成汉堡(然后又换回来)之后，IHOP 正在庆祝它的 60 周年纪念日。这就是为什么，今天，从早上 7 点到晚上 7 点，全国范围内，顾客可以订购价值 60 美分的煎饼。
 

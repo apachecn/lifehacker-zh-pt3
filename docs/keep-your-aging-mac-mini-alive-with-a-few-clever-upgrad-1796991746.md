@@ -1,6 +1,6 @@
 # 通过一些巧妙的升级，让您老化的 Mac Mini 保持活力
 
-> 原文:[https://life hacker . com/keep-your-aging-MAC-mini-alive-with-少数聪明人-upgrad-1796991746](https://lifehacker.com/keep-your-aging-mac-mini-alive-with-a-few-clever-upgrad-1796991746)
+> 原文：<https://lifehacker.com/keep-your-aging-mac-mini-alive-with-a-few-clever-upgrad-1796991746>
 
 Mac mini 的最新发布已经超过[1000 天了。](https://www.macobserver.com/news/mac-mini-turns-1000-days-old-today/) 这是两年多以来令人难以置信的小而可爱的机器得到了一些人的喜爱，并在 PC 行业的更新换代方面存在了很长时间。如果你有自己喜欢的 Mac mini，并且想继续使用，那么你只需要一点小技巧、一些额外的组件和一些加密狗就可以让它一直运行到下一款 Mac mini 上市...想什么时候都行，真的。
 

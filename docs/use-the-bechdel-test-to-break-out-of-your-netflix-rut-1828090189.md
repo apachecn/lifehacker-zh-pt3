@@ -1,6 +1,6 @@
 # 使用 Bechdel 测试打破你的网飞常规
 
-> 原文:[https://life hacker . com/use-the-bechdel-test-to-break-out-of-your-网飞-rut-1828090189](https://lifehacker.com/use-the-bechdel-test-to-break-out-of-your-netflix-rut-1828090189)
+> 原文：<https://lifehacker.com/use-the-bechdel-test-to-break-out-of-your-netflix-rut-1828090189>
 
 全能的推荐算法以神秘的方式工作，而且不总是最好的。如果你的网飞主页已经变成了一个回音室，一点点角度的改变可以帮助你找到你新喜欢的电影。
 

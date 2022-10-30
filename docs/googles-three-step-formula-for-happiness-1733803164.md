@@ -1,6 +1,6 @@
 # 谷歌的快乐三步公式
 
-> 原文:[https://life hacker . com/Google s-快乐三步公式-1733803164](https://lifehacker.com/googles-three-step-formula-for-happiness-1733803164)
+> 原文：<https://lifehacker.com/googles-three-step-formula-for-happiness-1733803164>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-r8fcqrNO7so&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-r8fcqrNO7so&start=0) 
 

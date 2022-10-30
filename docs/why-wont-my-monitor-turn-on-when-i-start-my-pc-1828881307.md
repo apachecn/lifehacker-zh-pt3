@@ -1,6 +1,6 @@
 # 当我启动电脑时，为什么我的显示器不打开？
 
-> 原文:[https://life hacker . com/why-wont-my-monitor-turn-on-when-I-start-my-PC-1828881307](https://lifehacker.com/why-wont-my-monitor-turn-on-when-i-start-my-pc-1828881307)
+> 原文：<https://lifehacker.com/why-wont-my-monitor-turn-on-when-i-start-my-pc-1828881307>
 
 在本周的[Tech 911](https://lifehacker.com/c/tech-911)——解决你所有技术问题或疑问的专栏中——一位 Lifehacker 读者正在处理你在构建全新的桌面系统后可能面临的更令人烦恼的问题之一:有些东西工作不正常。
 

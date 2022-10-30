@@ -1,6 +1,6 @@
 # 这些逼真的涂色书让你边涂色边学习
 
-> 原文:[https://life hacker . com/these-realistic-colouring-books-let-you-learn-while-you-1796330819](https://lifehacker.com/these-realistic-coloring-books-let-you-learn-while-you-1796330819)
+> 原文：<https://lifehacker.com/these-realistic-coloring-books-let-you-learn-while-you-1796330819>
 
 着色可以是，也可以是一种不需要技巧的艺术表现。但这也是学习的好方法。当你用铅笔冥想的时候，看看这些书，学习解剖学、自然等等。
 

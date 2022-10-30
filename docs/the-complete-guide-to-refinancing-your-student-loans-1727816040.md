@@ -1,6 +1,6 @@
 # 完全指南再融资你的学生贷款
 
-> 原文:[https://life hacker . com/the-complete-guide-to-refilling-your-student-loans-1727816040](https://lifehacker.com/the-complete-guide-to-refinancing-your-student-loans-1727816040)
+> 原文：<https://lifehacker.com/the-complete-guide-to-refinancing-your-student-loans-1727816040>
 
 如果有一种方法可以降低你价格高得离谱的学生贷款的成本呢？这就是再融资的承诺:理想情况下，你可以在贷款期限内节省数千美元的利息。但这不一定是故事的全部。以下是你在再融资前应该考虑的一切。
 

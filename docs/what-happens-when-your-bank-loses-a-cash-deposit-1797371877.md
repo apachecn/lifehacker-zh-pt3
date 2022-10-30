@@ -1,6 +1,6 @@
 # 当你的银行丢失一笔现金存款时会发生什么
 
-> 原文:[https://life hacker . com/what-happens-when-when-when-your bank-lost-a cash-deposit-1797371877](https://lifehacker.com/what-happens-when-your-bank-loses-a-cash-deposit-1797371877)
+> 原文：<https://lifehacker.com/what-happens-when-your-bank-loses-a-cash-deposit-1797371877>
 
 星期五早上我带着我的狗散步的时候，我们在当地的一家酒吧停下来，让我存一些现金。我用了外面的自动取款机，拿到了确认存款的收据，然后继续我的一天。大约下午4 点左右，我出于一个无关的原因去查看我的大通银行账户，发现钱不在那里了。一笔现金存款从我的账户上消失，这是我从未考虑过的可能性。现在怎么办？
 

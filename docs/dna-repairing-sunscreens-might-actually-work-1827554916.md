@@ -1,6 +1,6 @@
 # DNA 修复防晒霜可能真的有用
 
-> 原文:[https://life hacker . com/DNA-repair-sunscreens-powery-actually-work-1827554916](https://lifehacker.com/dna-repairing-sunscreens-might-actually-work-1827554916)
+> 原文：<https://lifehacker.com/dna-repairing-sunscreens-might-actually-work-1827554916>
 
 太阳的紫外线辐射对我们的皮肤细胞很危险，因为它会损害我们的 DNA。这就是为什么阳光照射会导致癌症，也是为什么防晒霜如此重要(即使除了它防止晒伤的能力)。有些防晒霜声称它们可以帮助你的皮肤修复损伤— ，事实证明，它们真的可能(可能！)工作。
 

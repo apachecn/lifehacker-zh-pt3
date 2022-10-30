@@ -1,6 +1,6 @@
 # Airbnb 的家外之家
 
-> 原文:[https://life hacker . com/the-home-away-of-home-office-of-Airbnb-1745511618](https://lifehacker.com/the-home-away-from-home-office-of-airbnb-1745511618)
+> 原文：<https://lifehacker.com/the-home-away-from-home-office-of-airbnb-1745511618>
 
 上图中充满艺术气息的工作空间看起来可以放在任何人的家里，但它实际上是一个办公空间。它是 Airbnb 旧金山总部的一部分。
 

@@ -1,6 +1,6 @@
 # 对 VPN 的误解，盒装葡萄酒的优点，夏季蜱的必然性，以及更多本周的亮点
 
-> 原文:[https://life hacker . com/misconcepts-about-VPN-the-美德-of-boxed-wine-t-1794125706](https://lifehacker.com/misconceptions-about-vpns-the-virtues-of-boxed-wine-t-1794125706)
+> 原文：<https://lifehacker.com/misconceptions-about-vpns-the-virtues-of-boxed-wine-t-1794125706>
 
 本周，我们仔细研究了 VPN，看看它们是否真的是完美的隐私拯救者(它们不是)，学习了一些细致的削铅笔的方法，并在享受高质量盒装葡萄酒的同时进行了创新。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 现在如何试用谷歌助手的新声音
 
-> 原文:[https://life hacker . com/how-to-try-out-Google-assistants-new-voices-now-1825990929](https://lifehacker.com/how-to-try-out-google-assistants-new-voices-now-1825990929)
+> 原文：<https://lifehacker.com/how-to-try-out-google-assistants-new-voices-now-1825990929>
 
 上周，谷歌宣布将为谷歌助手添加六种新的声音，以及一种听起来像约翰·传奇的声音。
 

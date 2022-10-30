@@ -1,6 +1,6 @@
 # 我们的五大大蒜技巧，经过测试
 
-> 原文:[https://life hacker . com/our-top-five-garlic-tips-tested-1791039906](https://lifehacker.com/our-top-five-garlic-tips-tested-1791039906)
+> 原文：<https://lifehacker.com/our-top-five-garlic-tips-tested-1791039906>
 
 大蒜是各种菜肴中不可或缺的成分，但它又粘又臭的特性让剥皮剁碎变得很痛苦。为了让你的生活变得简单一点——也希望少一点粘性——我们收集了最受欢迎的大蒜小贴士，并对每一个都进行了全面的评估。
 

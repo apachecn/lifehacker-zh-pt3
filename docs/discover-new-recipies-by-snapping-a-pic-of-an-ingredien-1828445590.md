@@ -1,6 +1,6 @@
 # 使用此应用程序拍摄一张配料的照片，发现新的食谱
 
-> 原文:[https://life hacker . com/discover-new-recipies-by-snapping-a-pic-of-an-ingredien-1828445590](https://lifehacker.com/discover-new-recipies-by-snapping-a-pic-of-an-ingredien-1828445590)
+> 原文：<https://lifehacker.com/discover-new-recipies-by-snapping-a-pic-of-an-ingredien-1828445590>
 
 我们家正在讨论晚饭到底要做什么。虽然在我们去杂货店之前肯定会有一些膳食计划，但有时我们会遇到一些太好而不能错过的东西，但也不符合本周的食物“计划”。或者我们为这个计划买些东西，然后剩下一大堆需要消耗的东西。不管怎样，都有问题。本周，我偶然发现了一个可以帮助提供一些答案的应用程序。
 

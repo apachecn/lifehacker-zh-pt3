@@ -1,6 +1,6 @@
 # 为什么在加利福尼亚咖啡似乎会致癌
 
-> 原文:[https://life hacker . com/why-coffee-is-to-cause-cancer-in-California-1824286816](https://lifehacker.com/why-coffee-seems-to-cause-cancer-in-california-1824286816)
+> 原文：<https://lifehacker.com/why-coffee-seems-to-cause-cancer-in-california-1824286816>
 
 咖啡是最新一种被警告含有“加州已知的致癌”化学物质的物质。(这种化学物质，丙烯酰胺，是在烘焙咖啡豆时形成的。)但这是一个法律上的指定，而不是一个纯科学的指定。
 

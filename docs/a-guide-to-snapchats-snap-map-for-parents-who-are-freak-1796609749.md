@@ -1,6 +1,6 @@
 # Snapchat 的快照地图指南，适用于吓坏了的父母
 
-> 原文:[https://life hacker . com/a-guide-to-snapchats-snap-map-for-parents-who-freak-1796609749](https://lifehacker.com/a-guide-to-snapchats-snap-map-for-parents-who-are-freak-1796609749)
+> 原文：<https://lifehacker.com/a-guide-to-snapchats-snap-map-for-parents-who-are-freak-1796609749>
 
 让你十几岁的孩子使用社交媒体会让他们感觉好像你突然让他们在《猜火车》[](http://www.imdb.com/title/tt0117951/)**——*有太多事情*可能*发生，毫无疑问，这很可怕。父母们恐慌的最新来源是 Snapchat 的新 [快照地图](https://support.snapchat.com/en-US/article/find-friends-map) ，这是一种让用户实时看到他们的朋友在哪里，并了解他们在做什么的地图。所以乔纳可以看到汉克和米娅在附近上动感单车课，并决定和他们见面。Snapchat 表示，这项功能有助于人们“激发冒险的灵感”* 
 

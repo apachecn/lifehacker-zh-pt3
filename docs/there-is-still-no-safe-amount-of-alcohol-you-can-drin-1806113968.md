@@ -1,6 +1,6 @@
 # 仍然没有怀孕期间饮酒的“安全”量
 
-> 原文:[https://life hacker . com/there-than-than ' s-that ' s-that ' s-are-now-safe-amount of alcohol-you-can-drin-1806113968](https://lifehacker.com/there-is-still-no-safe-amount-of-alcohol-you-can-drin-1806113968)
+> 原文：<https://lifehacker.com/there-is-still-no-safe-amount-of-alcohol-you-can-drin-1806113968>
 
 本周关于怀孕期间饮酒的研究得到了两种说法:根据一些新闻报道，少量饮酒是完全安全的，但在另一些新闻报道中，这是绝对不允许的。抱歉，但这个很扫兴。
 

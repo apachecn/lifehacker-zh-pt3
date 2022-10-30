@@ -1,6 +1,6 @@
 # 寻找 LGBTQ 友好城市，以目的地为荣
 
-> 原文:[https://life hacker . com/find-lgbtq-friendly-cities-with-destination-pride-1822393903](https://lifehacker.com/find-lgbtq-friendly-cities-with-destination-pride-1822393903)
+> 原文：<https://lifehacker.com/find-lgbtq-friendly-cities-with-destination-pride-1822393903>
 
 你不想住在一个不尊重你这个人的地方。由加拿大 PFLAG 公司和广告公司 FCB/SIX 建立的目的地自豪感(Destination Pride)根据城市给予 LGBTQ 人群的法律权利和保护，对世界各地的城市进行排名。虽然它被包装成一个度假评级器，但它在选择长期住宿地时更有用。
 

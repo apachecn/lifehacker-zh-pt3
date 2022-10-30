@@ -1,6 +1,6 @@
 # 土耳其小跑投掷，第 7 周:最后的倒计时
 
-> 原文:[https://life hacker . com/turkey-trot-throwdown-week-7-the-final-count-1789309011](https://lifehacker.com/turkey-trot-throwdown-week-7-the-final-countdown-1789309011)
+> 原文：<https://lifehacker.com/turkey-trot-throwdown-week-7-the-final-countdown-1789309011>
 
 明天是个大日子。(或者这个周末晚些时候，取决于你的比赛安排在什么时候。)不要慌！你受过训练。你的身体准备好了。这里有一些让你做好心理准备的最后提示。
 

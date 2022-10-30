@@ -1,6 +1,6 @@
 # 如何让孩子们(真正地)谈论他们的学校生活
 
-> 原文:[https://life hacker . com/how-to-get-how-to-get-kids-to-really-talk-the-school-day-1819098019](https://lifehacker.com/how-to-get-kids-to-really-talk-about-their-school-day-1819098019)
+> 原文：<https://lifehacker.com/how-to-get-kids-to-really-talk-about-their-school-day-1819098019>
 
 我在学校教了将近 20 年书，所以我和数百名学生和家长一起工作过。在那二十年里，我经常有父母联系我，因为他们很难了解他们孩子上学的细节。“我如何让他或她敞开心扉？”他们会问。
 

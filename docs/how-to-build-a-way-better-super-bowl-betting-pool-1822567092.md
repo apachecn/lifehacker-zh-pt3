@@ -1,6 +1,6 @@
 # 如何建立一个更好的超级碗投注池
 
-> 原文:[https://life hacker . com/how-to-build-a-way-better-super bowl-pool-1822567092](https://lifehacker.com/how-to-build-a-way-better-super-bowl-betting-pool-1822567092)
+> 原文：<https://lifehacker.com/how-to-build-a-way-better-super-bowl-betting-pool-1822567092>
 
 对我们中的一些人来说，烤架的刺激已经足够了。但其他人需要的不仅仅是吹嘘的权利，他们才会觉得赌注很高。进入:友好超级碗投注池。既然目标是让事情变得更有趣，那就让事情变得更有趣一点吧！
 

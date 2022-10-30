@@ -1,6 +1,6 @@
 # 如何与否认 Snopes 的人争论
 
-> 原文:[https://life hacker . com/how-to-defense-a-snopes-denier-1797821378](https://lifehacker.com/how-to-argue-with-a-snopes-denier-1797821378)
+> 原文：<https://lifehacker.com/how-to-argue-with-a-snopes-denier-1797821378>
 
 曾几何时， [Snopes](http://www.snopes.com/) 是互联网上最受信任的流言终结者。无论你在笑什么愚蠢的、有趣的或令人震惊的事情，如果有人发了一个 Snopes 链接，你就不会笑了。你上当了。谢谢，史努比。
 

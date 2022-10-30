@@ -1,6 +1,6 @@
 # 订阅脸书帖子，无需评论即可获得通知
 
-> 原文:[https://life hacker . com/subscribe-to-notifications-on-Facebook-posts-rather-tha-1797563802](https://lifehacker.com/subscribe-to-notifications-on-facebook-posts-rather-tha-1797563802)
+> 原文：<https://lifehacker.com/subscribe-to-notifications-on-facebook-posts-rather-tha-1797563802>
 
 我真的很喜欢在脸书使用群体。我参加了很多不同的写作小组，在那里作家们交换建议，我也参加了一些啤酒小组，在那里人们交换啤酒。有一件事在两个群体中都变得非常明显:很多人并不完全理解脸书是如何运作的。有很多奇怪的冒犯会出现，但最让我困扰的是当人们回复帖子时只有“关注”这个词。
 

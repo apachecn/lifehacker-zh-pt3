@@ -1,6 +1,6 @@
 # 如何检查您网络上的网络中立违规
 
-> 原文:[https://life hacker . com/how-to-check-for-net-neutral-violations-on-your-netw-1822200634](https://lifehacker.com/how-to-check-for-net-neutrality-violations-on-your-netw-1822200634)
+> 原文：<https://lifehacker.com/how-to-check-for-net-neutrality-violations-on-your-netw-1822200634>
 
 网络中立可能会在参议院 卷土重来，但同时你可能会有点担心你的互联网提供商会利用 [FCC 的宽松新规则](https://lifehacker.com/what-the-end-of-net-neutrality-means-for-you-1820647171#_ga=2.76946195.785031894.1516112040-1313785359.1499701416) 。要是有某种服务可以测试你的网络的节流和审查就好了。
 

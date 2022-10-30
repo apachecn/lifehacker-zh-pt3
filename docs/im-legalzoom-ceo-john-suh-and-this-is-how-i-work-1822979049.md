@@ -1,6 +1,6 @@
 # 我是 LegalZoom 首席执行官 John Suh，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-legal zoom-CEO-John-suh-and-this-is-how-I-work-1822979049](https://lifehacker.com/im-legalzoom-ceo-john-suh-and-this-is-how-i-work-1822979049)
+> 原文：<https://lifehacker.com/im-legalzoom-ceo-john-suh-and-this-is-how-i-work-1822979049>
 
 16 年来， [LegalZoom](https://www.legalzoom.com) 填补了免费网络咨询和聘请律师之间的空白；它的服务已经成为许多小企业、企业家、个体承包商和自由职业者的标准服务。在过去的 13 年里，John Suh 一直担任公司的执行主席和首席执行官。我们和他谈了他如何管理公司和处理自己的工作。
 

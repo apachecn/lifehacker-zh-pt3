@@ -1,6 +1,6 @@
 # 我可以用一种奶油代替另一种吗？
 
-> 原文:[https://the take out . com/can-I-substitute-one-type-of-cream-for-other-1825758431](https://thetakeout.com/can-i-substitute-one-type-of-cream-for-another-1825758431)
+> 原文：<https://thetakeout.com/can-i-substitute-one-type-of-cream-for-another-1825758431>
 
 每当我在做奶油酱或甜点时，宇宙就会显示出它残酷的幽默感。烹饪进行到一半时，我打开冰箱发现——再一次——里面没有我食谱中要求的那种精确的奶油。我困惑地盯着淡奶油，想知道它是否和餐桌奶油一样，如果我用它来代替重搅打奶油，我是否完全完蛋了，我不确定这和普通搅打奶油是一回事。
 

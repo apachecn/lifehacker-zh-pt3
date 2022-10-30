@@ -1,6 +1,6 @@
 # 低脂鳄梨并不新鲜，但它们有点毫无意义
 
-> 原文:[https://life hacker . com/low-fat-avocados-arent-new-but-they-kind-of-point l-1819403612](https://lifehacker.com/low-fat-avocados-arent-new-but-they-are-kind-of-pointl-1819403612)
+> 原文：<https://lifehacker.com/low-fat-avocados-arent-new-but-they-are-kind-of-pointl-1819403612>
 
 一家西班牙水果公司 让人们相信他们“发明”了一种低脂肪鳄梨，并称之为“轻鳄梨”然而，正如孩子们所说，这“已经是一件事了”
 

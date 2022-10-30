@@ -1,6 +1,6 @@
 # 来自我们读者的最佳罗马旅行建议
 
-> 原文:[https://life hacker . com/the-best-Roma-travel-tips-from-our-readers-1825729950](https://lifehacker.com/the-best-rome-travel-tips-from-our-readers-1825729950)
+> 原文：<https://lifehacker.com/the-best-rome-travel-tips-from-our-readers-1825729950>
 
 罗马不是一天游览完的。读者 [化名](http://lifehacker.com/1825676741) 说:“记住，你不可能做到所有的事情。“在那里全职生活大约一年半是一个更合理的时间框架。”你没有一年半的时间，所以在你旅行之前，看看这些建议，明智地选择。罗马是个扒手之城，所以要小心。 [也许穿工作服。](https://lifehacker.com/wear-overalls-to-keep-yourself-safe-from-thieves-1825501946)
 

@@ -1,6 +1,6 @@
 # 如何立即在手机上安装 Android P
 
-> 原文:[https://life hacker . com/how-to-get-Android-p-on-your-phone-right-now-1823615465](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465)
+> 原文：<https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465>
 
 抱歉，您的 [全新安卓手机](https://lifehacker.com/preview/the-best-way-to-buy-the-galaxy-s9-is-straight-from-sams-1823326739?rev=1519667070079#_ga=2.216598550.1805348582.1520530393-275916814.1520530392) 已经过时。 [谷歌](https://lifehacker.com/the-google-apps-new-imessage-extension-is-pretty-great-1823553441) 本周早些时候发布了其最新版本的移动操作系统，Android P——是的，基本上是一个颠倒的 Beats 标志——带来了一些很酷的新功能和轻微的视觉变化。
 

@@ -1,6 +1,6 @@
 # 我最喜欢的运动胸罩是一块 40 美元的松紧带
 
-> 原文:[https://life hacker . com/my-new-favorite-sports-bra-is-a-40-piece-of-elastic-1778224593](https://lifehacker.com/my-new-favorite-sports-bra-is-a-40-piece-of-elastic-1778224593)
+> 原文：<https://lifehacker.com/my-new-favorite-sports-bra-is-a-40-piece-of-elastic-1778224593>
 
 一开始我也不相信。当我第一次听说 [Būband](https://buband.ca/) 的时候，我在谷歌上搜索了一篇又一篇评论，寻找可以证明这是一个可笑的垃圾噱头的人。但是我读到的大部分都是正面的，所以我 [告诉你们所有的事情](https://lifehacker.com/buband-adds-support-to-the-sports-bra-you-re-already-we-1772948261) 。我还给自己买了一个，现在呢？我是一个信徒。
 

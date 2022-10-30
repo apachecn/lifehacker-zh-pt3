@@ -1,6 +1,6 @@
 # 哪里可以买到小号男鞋
 
-> 原文:[https://life hacker . com/where-to-buy-small-men-s-shoes-1819078653](https://lifehacker.com/where-to-buy-small-men-s-shoes-1819078653)
+> 原文：<https://lifehacker.com/where-to-buy-small-men-s-shoes-1819078653>
 
 我的脚小得惊人，男式 6 码。在不止一次只穿袜子的公寓聚会上，一个主人都想知道孩子们的鞋子是从哪里来的。虽然我实际上已经避免从男生区购买，但对于脚小的男性，包括跨性别男性，以及穿着中性或传统“男性”服装的女性来说，它们是几个有效的选择之一。
 

@@ -1,6 +1,6 @@
 # 学会热爱葡萄酒，但不要自命不凡
 
-> 原文:[https://life hacker . com/learn-to-love-wine-not-be-snob-it-1749000946](https://lifehacker.com/learn-to-love-wine-without-being-a-snob-about-it-1749000946)
+> 原文：<https://lifehacker.com/learn-to-love-wine-without-being-a-snob-about-it-1749000946>
 
 享受葡萄酒不是你应该感到羞耻的事情。这也不是一张通往往往昂贵和过度的葡萄酒、葡萄酒行话和大品牌世界的单程票。实际上，不用掏空你的银行账户或者学习一门新的语言，就可以很容易地享受黑皮诺和卡本内之间的差异。
 

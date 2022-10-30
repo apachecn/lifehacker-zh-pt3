@@ -1,6 +1,6 @@
 # 你可以不用量杯做这个蛋糕
 
-> 原文:[https://life hacker . com/you-can-make this-cake-with-measure-cups-1809945369](https://lifehacker.com/you-can-make-this-cake-without-measuring-cups-1809945369)
+> 原文：<https://lifehacker.com/you-can-make-this-cake-without-measuring-cups-1809945369>
 
 我喜欢烘焙，但我真的讨厌所有看起来脏的盘子。有搅拌碗、勺子、抹刀和量杯，有时我不想处理所有这些东西。幸运的是，Food52 有一个食谱，可以让你把量杯留在橱柜里，我对此非常着迷。
 

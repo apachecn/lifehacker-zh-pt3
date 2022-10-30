@@ -1,6 +1,6 @@
 # 三种配料的欢乐时光:一杯超级新鲜的菠萝代基里酒
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-super-fresh-菠萝-代基酒-1795963499](https://lifehacker.com/3-ingredient-happy-hour-a-super-fresh-pineapple-daiqui-1795963499)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-super-fresh-pineapple-daiqui-1795963499>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们将制作真正的热带新鲜菠萝代基里酒。
 

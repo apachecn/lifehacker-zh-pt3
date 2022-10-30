@@ -1,6 +1,6 @@
 # 告诉我们你的新加坡旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Singapore-travel-tips-1829070489](https://lifehacker.com/tell-us-your-singapore-travel-tips-1829070489)
+> 原文：<https://lifehacker.com/tell-us-your-singapore-travel-tips-1829070489>
 
 看完《疯狂富裕的亚洲人》后，我*想让*在新加坡做的事情是在国际水域的一艘货船上狂欢，买一套比我家还贵的衣服。我做的*不是*想做的是在教堂里涉过齐踝深的水。但我负担不起这些。疯狂的中产阶级怎么样，我们在新加坡能做什么？
 

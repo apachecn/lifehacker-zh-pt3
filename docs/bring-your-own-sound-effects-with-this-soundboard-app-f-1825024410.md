@@ -1,6 +1,6 @@
 # 使用这个用于 Mac 的声卡应用程序带来您自己的声音效果
 
-> 原文:[https://life hacker . com/bring-your-own-sound-effects-with this-soundboard-app-f-1825024410](https://lifehacker.com/bring-your-own-sound-effects-with-this-soundboard-app-f-1825024410)
+> 原文：<https://lifehacker.com/bring-your-own-sound-effects-with-this-soundboard-app-f-1825024410>
 
 现有的音板应用有很多( [和 sites](https://gizmodo.com/this-incredible-soundboard-website-has-pretty-much-ever-5980409) )，但新的应用 [Farrago](https://rogueamoeba.com/farrago/) 可能是最好的。像 Rogue Amoeba 的大多数应用程序一样，它是一个相当强大的工具，具有智能和友好的界面，你可以在支付 49 美元购买许可证之前免费试用(目前售价为 39 美元)。
 

@@ -1,6 +1,6 @@
 # 定期写作的心理益处
 
-> 原文:[https://life hacker . com/the-psychological-benefits-of-writing-regularly-1783693547](https://lifehacker.com/the-psychological-benefits-of-writing-regularly-1783693547)
+> 原文：<https://lifehacker.com/the-psychological-benefits-of-writing-regularly-1783693547>
 
 当你试图想象一个作家时，我想你们很多人看到的是一个古怪的隐士，在某个小屋的桌子前弓着背，皱巴巴的纸散落一地，专注地写下一部伟大的美国小说。但是写作远不止这些。
 

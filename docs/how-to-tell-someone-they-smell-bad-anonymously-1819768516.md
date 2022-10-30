@@ -1,6 +1,6 @@
 # 如何匿名告诉某人他们身上有臭味
 
-> 原文:[https://life hacker . com/how-to-tell-someone-smooth-anonymous-1819768516](https://lifehacker.com/how-to-tell-someone-they-smell-bad-anonymously-1819768516)
+> 原文：<https://lifehacker.com/how-to-tell-someone-they-smell-bad-anonymously-1819768516>
 
 你怎么能把这个消息告诉一个闻起来很臭的人呢？你 [可以诚实而富有同情心](https://lifehacker.com/how-to-tell-someone-they-smell-bad-1795657967) ，和你的臭爱人坐下来讨论这个话题。但如果你只是想扔下一颗真相炸弹然后逃跑，我们有几个建议。
 

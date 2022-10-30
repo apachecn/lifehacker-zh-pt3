@@ -1,6 +1,6 @@
 # 通过这个交互式波形指南了解声音的基本原理
 
-> 原文:[https://life hacker . com/understand-the-fundamentals-of-sound-with-this-interact-1823071680](https://lifehacker.com/understand-the-fundamentals-of-sound-with-this-interact-1823071680)
+> 原文：<https://lifehacker.com/understand-the-fundamentals-of-sound-with-this-interact-1823071680>
 
 在 2017 年底，我有幸照看了几个小时可爱的孩子，在此期间，他们开始问各种各样的问题(主要是与 *PJ 面具*相关的问题)。一个实际的问题是:“电视是如何发声的？”当我解释声音和空气如何相互作用时，我真正想要的是可以用来向他们展示其确切工作原理的东西——具体来说，我想要这本波形指南。
 

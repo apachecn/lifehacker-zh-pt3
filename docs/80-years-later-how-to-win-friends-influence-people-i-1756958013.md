@@ -1,6 +1,6 @@
 # 80 年后:如何赢得朋友和影响他人是自助的奇怪版本
 
-> 原文:[https://life hacker . com/80-years-late-how-to-win-friends-influence-people-I-1756958013](https://lifehacker.com/80-years-later-how-to-win-friends-influence-people-i-1756958013)
+> 原文：<https://lifehacker.com/80-years-later-how-to-win-friends-influence-people-i-1756958013>
 
 戴尔卡耐基的 [*如何赢得朋友&影响人*](http://www.amazon.com/How-Win-Friends-Influence-People/dp/0671027034/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/80-years-later-how-to-win-friends-influence-people-i-1756958013&asc_source=&ie=UTF8&keywords=how to win friends and influence people&qid=1454454189&s=books&sr=1-1&tag=kinjalifehackerlink-20) 是有史以来最畅销的自助书籍之一。这本书多年来影响了广泛的人群，从 [沃伦巴菲特](http://www.independent.co.uk/news/business/analysis-and-features/warren-buffet-the-secret-of-the-billionaires-success-1622649.html) 到 [查尔斯曼森](http://www.bloomberg.com/bw/articles/2013-07-22/charles-mansons-turning-point-dale-carnegie-classes) 。那两个人，巴菲特和曼森，真正表达了卡内基的书在现代的怪异。让我们深入研究一下。
 

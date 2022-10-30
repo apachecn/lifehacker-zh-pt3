@@ -1,6 +1,6 @@
 # 在你参观一个城市之前，先看看它的子街道
 
-> 原文:[https://life hacker . com/before-you-visit-a-city-read-its-subred dit-1825295848](https://lifehacker.com/before-you-visit-a-city-read-its-subreddit-1825295848)
+> 原文：<https://lifehacker.com/before-you-visit-a-city-read-its-subreddit-1825295848>
 
 美国的每个大城市都有一个活跃在 Reddit 上的论坛，世界上的许多城市也是如此。如果你计划访问这些城市中的任何一个，你甚至不用问，通过挖掘档案就可以了解到许多旅游建议。
 

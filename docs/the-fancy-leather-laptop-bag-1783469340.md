@@ -1,6 +1,6 @@
 # 别致的皮革电脑包
 
-> 原文:[https://life hacker . com/the-fancy-leather-laptop-bag-1783469340](https://lifehacker.com/the-fancy-leather-laptop-bag-1783469340)
+> 原文：<https://lifehacker.com/the-fancy-leather-laptop-bag-1783469340>
 
 如今，标准的公文包款式似乎不那么流行了，但《每日随身携带》的读者泰勒·康迪提醒我们，它们仍然是整理日常用品的好方法，尤其是当包是结实的皮革时。
 

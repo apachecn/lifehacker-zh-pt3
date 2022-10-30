@@ -1,6 +1,6 @@
 # 双重超宽工作空间
 
-> 原文:[https://life hacker . com/the-double-ultra wide-workspace-1784902720](https://lifehacker.com/the-double-ultrawide-workspace-1784902720)
+> 原文：<https://lifehacker.com/the-double-ultrawide-workspace-1784902720>
 
 两台超宽显示器装饰一张桌子可能看起来很多，但当其中一台处于纵向模式以方便阅读和减少滚动时，整个东西都被显示器臂高高举起，以获得一个漂亮、干净的桌子和良好的电缆管理，嗯，我们无法抗拒。这里还有一些照片。
 

@@ -1,6 +1,6 @@
 # 如何解除或取消信贷冻结
 
-> 原文:[https://life hacker . com/how-to-lift-or-cancel-a-credit-freeze-1815696412](https://lifehacker.com/how-to-lift-or-cancel-a-credit-freeze-1815696412)
+> 原文：<https://lifehacker.com/how-to-lift-or-cancel-a-credit-freeze-1815696412>
 
 这个建议你已经听过上百次了:冻结你的信用。在这个似乎每隔一天就有一家不同的公司被黑客入侵的时代，这是保证你财务安全的最简单的方法之一。
 

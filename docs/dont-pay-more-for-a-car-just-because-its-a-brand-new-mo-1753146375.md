@@ -1,6 +1,6 @@
 # 不要因为一辆车是全新的型号就多付钱
 
-> 原文:[https://jalopnik . com/don ' t-pay-more-for-a car-just-as-a-brand-new-mo-1753146375](https://jalopnik.com/dont-pay-more-for-a-car-just-because-its-a-brand-new-mo-1753146375)
+> 原文：<https://jalopnik.com/dont-pay-more-for-a-car-just-because-its-a-brand-new-mo-1753146375>
 
 当一款全新的车型问世，尤其是赢得一堆 [大多是毫无意义的奖项](http://www.thenational.ae/arts-lifestyle/motoring/an-insiders-guide-to-the-world-car-of-the-year-award) 的车型，一些车商会以此为契机，让你多掏钱。根据可用库存，聪明的购物者仍然可以获得很大的优惠。
 

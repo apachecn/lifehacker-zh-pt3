@@ -1,6 +1,6 @@
 # 如何让 Bixby 按钮在您的三星手机上启动其他东西
 
-> 原文:[https://life hacker . com/how-to-make-the-bix by-button-launch-other-on-y-1827603480](https://lifehacker.com/how-to-make-the-bixby-button-launch-something-else-on-y-1827603480)
+> 原文：<https://lifehacker.com/how-to-make-the-bixby-button-launch-something-else-on-y-1827603480>
 
 我爱我的 Note 8。它的速度很快，有一个漂亮的显示屏，比我用过的任何智能手机拍的照片都好。我讨厌 Bixby 按钮。
 

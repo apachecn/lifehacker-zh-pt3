@@ -1,6 +1,6 @@
 # 你最喜欢的 iOS 12 快捷键有哪些？
 
-> 原文:[https://life hacker . com/what-are-your-favorite-IOs-12-shortcut s-1829134540](https://lifehacker.com/what-are-your-favorite-ios-12-shortcuts-1829134540)
+> 原文：<https://lifehacker.com/what-are-your-favorite-ios-12-shortcuts-1829134540>
 
 如果你还没有抢到 [iOS 12](https://lifehacker.com/how-to-get-apples-ios-watchos-and-tvos-updates-today-1829108062) ，你还在等什么？备份你的设备——因为你永远无法确定——并安装新版本的操作系统，以利用苹果公司创造的所有性能改进和新功能。
 

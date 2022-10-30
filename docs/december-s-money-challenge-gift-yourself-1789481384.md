@@ -1,6 +1,6 @@
 # 12 月的金钱挑战:给自己送礼
 
-> 原文:[https://life hacker . com/December-s-money-challenge-gift-yourself-1789481384](https://lifehacker.com/december-s-money-challenge-gift-yourself-1789481384)
+> 原文：<https://lifehacker.com/december-s-money-challenge-gift-yourself-1789481384>
 
 今年，我们挑战你去 [存更多的](http://twocents.lifehacker.com/januarys-money-challenge-no-restaurant-spending-1749975621) ，控制住，甚至 [赚点外快](http://twocents.lifehacker.com/november-s-money-challenge-sell-your-unwanted-stuff-1788424216) 。在今年 [终极金钱挑战](https://lifehacker.com/lifehacker-readers-lets-take-a-money-challenge-togethe-1747419781) 的最后一期，我们希望你给自己一份礼物——节省一部分假期开销。
 

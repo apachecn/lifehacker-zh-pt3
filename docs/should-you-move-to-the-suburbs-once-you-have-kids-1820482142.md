@@ -1,6 +1,6 @@
 # 一旦有了孩子，你应该搬到郊区吗？
 
-> 原文:[https://life hacker . com/should-you-move to the suburban-once-you-hacked-1820482142](https://lifehacker.com/should-you-move-to-the-suburbs-once-you-have-kids-1820482142)
+> 原文：<https://lifehacker.com/should-you-move-to-the-suburbs-once-you-have-kids-1820482142>
 
 我住在洛杉矶郊区。太美了。我可以从我坐的桌子上看到一点海洋。我们有很好的邻居，一流的学校，以及大量的空间(我不敢承认这一点，但我的房子里有一些房间我很少去，因为它们堆满了东西，我肯定会在“下周末”清理掉).人们总是提醒我，我们是“如此幸运”，我甚至无法反驳。这就是梦，它安静、安全、愉快、美好。
 

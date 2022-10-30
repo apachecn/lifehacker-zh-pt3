@@ -1,6 +1,6 @@
 # 收入驱动的学生贷款还款计划适合你吗？
 
-> 原文:[https://life hacker . com/what-to-know-about-income-driven-return-plans-1825175808](https://lifehacker.com/what-to-know-about-income-driven-repayment-plans-1825175808)
+> 原文：<https://lifehacker.com/what-to-know-about-income-driven-repayment-plans-1825175808>
 
 收入驱动的还款是一个很好的选择，对于学生贷款债务高，但工资低的人来说。每月还款额基于您的自由支配收入和家庭规模，并根据四种计划类型(联邦贷款)而有所不同:
 

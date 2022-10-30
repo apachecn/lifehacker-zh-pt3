@@ -1,6 +1,6 @@
 # YouTube 电视终于值了吗？
 
-> 原文:[https://gizmodo . com/is-YouTube-TV-finally-worth-it-1822625519](https://gizmodo.com/is-youtube-tv-finally-worth-it-1822625519)
+> 原文：<https://gizmodo.com/is-youtube-tv-finally-worth-it-1822625519>
 
 准备好，脐带钳。你的生活变得不那么不方便了。YouTube TV [现在可以在 Roku 设备](http://newsroom.roku.com/press-release/press-releases-usa/youtube-tv-now-available-roku-devices) 上运行，这意味着你可以通过机顶盒观看超过 40 个频道的现场娱乐节目。这让 YouTube 电视更有吸引力了吗？当然可以。这让 YouTube 电视价值每月 35 美元吗？啊啊啊啊。
 

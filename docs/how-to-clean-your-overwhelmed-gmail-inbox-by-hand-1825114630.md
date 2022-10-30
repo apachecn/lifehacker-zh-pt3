@@ -1,6 +1,6 @@
 # 如何清理你不堪重负的 Gmail 收件箱(手动)
 
-> 原文:[https://life hacker . com/how-to-clean-your-overhead-Gmail-inbox-hand-1825114630](https://lifehacker.com/how-to-clean-your-overwhelmed-gmail-inbox-by-hand-1825114630)
+> 原文：<https://lifehacker.com/how-to-clean-your-overwhelmed-gmail-inbox-by-hand-1825114630>
 
 很简单，到了适可而止的时候了。如果不是几年的话，我已经推迟了几个月整理我的 Gmail 收件箱的任务。但是当 Lifehacker 告诉我，我们要搞一个春季大扫除周的时候，我就知道是时候了。我不会浪费宝贵的时间去寻找应用程序或工具来完成我的任务。我需要 [罗恩·斯旺森](https://www.youtube.com/watch?v=Hyc1aMtnHJo) 我的收件箱——卷起袖子，投入其中，手动处理这些混乱。
 

@@ -1,6 +1,6 @@
 # 把你最喜欢的化妆品放在你父母家，这样下次你去的时候它们就在那里了
 
-> 原文:[https://life hacker . com/leave-your-favorite-toiletries-at-your-parents-house-so-1821558502](https://lifehacker.com/leave-your-favorite-toiletries-at-your-parents-house-so-1821558502)
+> 原文：<https://lifehacker.com/leave-your-favorite-toiletries-at-your-parents-house-so-1821558502>
 
 六年前，我从北卡罗来纳州搬到了旧金山。我的大多数好朋友仍然住在北卡罗来纳，这意味着一年中有几次我每次至少要去一周，有时更长。开始的几次长途旅行带来了一个难题:我该如何处理洗发水和牙膏之类的东西？
 

@@ -1,6 +1,6 @@
 # 把你的保鲜膜放在冰箱里
 
-> 原文:[https://life hacker . com/you-should-store-your-plastic-wrap-in-the-freezer-1826050137](https://lifehacker.com/you-should-store-your-plastic-wrap-in-the-freezer-1826050137)
+> 原文：<https://lifehacker.com/you-should-store-your-plastic-wrap-in-the-freezer-1826050137>
 
 保鲜膜可能是现存的最令人恼火，但却是必不可少的厨房用品。虽然在餐馆用品店买好东西 会让事情不那么令人恼火，但你存放的地方也会影响处理的难度。
 

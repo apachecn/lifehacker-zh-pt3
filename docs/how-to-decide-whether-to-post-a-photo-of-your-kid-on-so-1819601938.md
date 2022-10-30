@@ -1,6 +1,6 @@
 # 如何决定是否在社交媒体上发布孩子的照片
 
-> 原文:[https://life hacker . com/how-to-decision-your kid-on-so-1819601938](https://lifehacker.com/how-to-decide-whether-to-post-a-photo-of-your-kid-on-so-1819601938)
+> 原文：<https://lifehacker.com/how-to-decide-whether-to-post-a-photo-of-your-kid-on-so-1819601938>
 
 我儿子出生几小时后，他的照片就传遍了互联网。有些帖子是亲戚发的，有些是希望分享我们快乐的朋友发的。没有一张照片是我同意发表的。
 

@@ -1,6 +1,6 @@
 # 通过让孩子预测他们将要阅读的内容来提高他们的阅读理解能力
 
-> 原文:[https://life hacker . com/improve-your-kids-reading-comprehension-by-have-them-1827656301](https://lifehacker.com/improve-your-kids-reading-comprehension-by-having-them-1827656301)
+> 原文：<https://lifehacker.com/improve-your-kids-reading-comprehension-by-having-them-1827656301>
 
 和你的孩子一起阅读很重要。我们都知道这一点。如果你和我一样，你会一头扎进一本书又一本书里。
 

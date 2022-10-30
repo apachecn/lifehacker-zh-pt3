@@ -1,6 +1,6 @@
 # 冬天买一辆性能车可以省下一大笔钱
 
-> 原文:[https://jalopnik . com/you-can-save-the-ton-money-buy-a-performance-car-1790315723](https://jalopnik.com/you-can-save-a-ton-of-money-by-buying-a-performance-car-1790315723)
+> 原文：<https://jalopnik.com/you-can-save-a-ton-of-money-by-buying-a-performance-car-1790315723>
 
 当大多数人在冬天购买汽车时，他们会直奔 SUV 和跨界车，因为“天哪，雪要来了！”但是你不是大多数人，你意识到这个星球有四季，而不仅仅是一季。如果你想买一辆运动型轿车，现在是达成交易的时候了。
 

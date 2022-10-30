@@ -1,6 +1,6 @@
 # 道琼斯指数下跌了，但不要绝望
 
-> 原文:[https://life hacker . com/the-dows-down-但不要绝望-1822741123](https://lifehacker.com/the-dows-down-but-dont-despair-1822741123)
+> 原文：<https://lifehacker.com/the-dows-down-but-dont-despair-1822741123>
 
 [道氏下跌](https://www.reuters.com/article/us-usa-markets-instant/instant-view-u-s-stock-market-crumbles-dow-erases-2018-gains-idUSKBN1FP2NA?utm_campaign=trueAnthem:+Trending+Content&utm_content=5a78ca8304d301644feebdc4&utm_medium=trueAnthem&utm_source=twitter) 。差很多。周一，该指数收盘下跌 1100 点，创下有史以来最大的单日跌幅(当然，考虑到该指数处于有史以来的最高点，这是有道理的)。在周一的最低点，它下跌了近 1600 点，自一月底以来，它已经失去了大约 2200 点。
 

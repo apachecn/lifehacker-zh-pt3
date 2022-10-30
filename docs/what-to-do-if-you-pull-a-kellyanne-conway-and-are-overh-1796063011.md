@@ -1,6 +1,6 @@
 # 如果你模仿凯莉安·康威，却被别人听到说你同事的坏话，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you-pull-a-Kelly Anne-Conway-and-are-overh-1796063011](https://lifehacker.com/what-to-do-if-you-pull-a-kellyanne-conway-and-are-overh-1796063011)
+> 原文：<https://lifehacker.com/what-to-do-if-you-pull-a-kellyanne-conway-and-are-overh-1796063011>
 
 所以上周四，总统顾问凯莉安·康威被人无意中听到嘲笑她在川普白宫的同事 。“不许泄密，你们这些家伙！”她模仿白宫办公厅主任雷恩斯·普利巴斯(显然完全无效)试图阻止本届政府成员向媒体不断泄露信息的做法说道。她的模仿被另一个参加聚会的人无意中听到，他把这个故事发布到推特账户[@ kellyanneliaks](https://twitter.com/KellyanneLeaks)。
 

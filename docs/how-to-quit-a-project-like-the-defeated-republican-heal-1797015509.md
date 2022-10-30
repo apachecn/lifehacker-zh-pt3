@@ -1,6 +1,6 @@
 # 何时退出一个失败的项目，比如共和党的医疗保健法案
 
-> 原文:[https://life hacker . com/how-to-quit-a-project-like-the-failed-Republican-heal-1797015509](https://lifehacker.com/how-to-quit-a-project-like-the-defeated-republican-heal-1797015509)
+> 原文：<https://lifehacker.com/how-to-quit-a-project-like-the-defeated-republican-heal-1797015509>
 
 你永远不会实现你想要的一切。这是一个难以处理的事实，但如果你不这样做，你会把你的生命浪费在不切实际、不必要的项目上:翻新你的整个家，写一本小说，废除和取代奥巴马医改。有时候是时候放弃了，就像昨晚米奇·麦康奈尔在两名参议员放弃支持废除患者保护与平价医疗法案 T3 的法案后所做的那样。
 

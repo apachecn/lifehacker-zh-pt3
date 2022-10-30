@@ -1,6 +1,6 @@
 # 质量效果播放列表
 
-> 原文:[https://lifehacker.com/the-mass-effect-playlist-1791678945](https://lifehacker.com/the-mass-effect-playlist-1791678945)
+> 原文：<https://lifehacker.com/the-mass-effect-playlist-1791678945>
 
 你们看过*的 [新预告片:仙女座](http://io9.gizmodo.com/new-mass-effect-andromeda-trailer-gives-best-look-yet-1791657820)* 吗？如果你没有，去看看吧。如果有，再去看一遍。然后回来放上这个系列所有音乐的播放列表。
 

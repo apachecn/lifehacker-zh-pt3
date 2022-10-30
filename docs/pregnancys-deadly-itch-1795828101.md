@@ -1,6 +1,6 @@
 # 怀孕的致命之痒
 
-> 原文:[https://jezebel.com/pregnancys-deadly-itch-1795828101](https://jezebel.com/pregnancys-deadly-itch-1795828101)
+> 原文：<https://jezebel.com/pregnancys-deadly-itch-1795828101>
 
 在我怀孕的第三个月早期，我有几次夜间瘙痒。当时是纽约的冬天，寒风凛冽，暖气片开得飞快，加上我当时怀孕了，所以我没多想——不舒服是这个领域的通病。
 

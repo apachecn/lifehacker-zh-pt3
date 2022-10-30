@@ -1,6 +1,6 @@
 # 如何用谷歌新的修复中心修复你的谷歌 Pixel
 
-> 原文:[https://life hacker . com/how-to-repair-your-Google-pixel-with-Google-new-repair-1829441677](https://lifehacker.com/how-to-repair-your-google-pixel-with-googles-new-repair-1829441677)
+> 原文：<https://lifehacker.com/how-to-repair-your-google-pixel-with-googles-new-repair-1829441677>
 
 谷歌正处于推出 Pixel 3 和 Pixel 3 XL 的风口浪尖(我们推测)，更多的 Pixel 智能手机意味着更多的设备将遭受跌落、坠落、浸入液体以及 [谁知道还有什么](https://www.youtube.com/watch?v=aYQSWB2EyzY) 。
 

@@ -1,6 +1,6 @@
 # 关于 HDR 的一切，以及为什么它是电视的未来
 
-> 原文:[https://life hacker . com/what-HDR-is-and-why-it-the-future-of-television-1785641937](https://lifehacker.com/what-hdr-is-and-why-it-s-the-future-of-television-1785641937)
+> 原文：<https://lifehacker.com/what-hdr-is-and-why-it-s-the-future-of-television-1785641937>
 
 电视制造商总是在寻找图像质量的下一个飞跃，让看电视感觉像透过水晶般透明的窗户。HDR 是显示技术的最新趋势，它会一直保持下去。这里有你需要知道的关于它如何工作的一切，以及当你购买下一台电视时，为什么你可能要考虑它。
 

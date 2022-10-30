@@ -1,6 +1,6 @@
 # 为什么现在是买二手车的时候
 
-> 原文:[https://life hacker . com/why-now-is-time-to-buy-a-二手车-1795654765](https://lifehacker.com/why-now-is-the-time-to-buy-a-used-car-1795654765)
+> 原文：<https://lifehacker.com/why-now-is-the-time-to-buy-a-used-car-1795654765>
 
 如果你正在寻找一辆划算的汽车，买二手车通常是个不错的选择。一辆仅用了几年的二手车可能已经遭受了贬值的打击，但它的状况应该还不错。多亏了大量的非租赁车辆，现在是一个更好的交易二手车(和新车)的好时机。
 

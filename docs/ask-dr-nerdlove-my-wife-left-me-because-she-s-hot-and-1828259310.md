@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我妻子离开我是因为她很性感，而我不性感
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-wife-left-me-because-she-s-hot-and-1828259310](https://kotaku.com/ask-dr-nerdlove-my-wife-left-me-because-she-s-hot-and-1828259310)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-wife-left-me-because-she-s-hot-and-1828259310>
 
 各位推特启示录的马友们，你们好，欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一的约会建议专栏，是*Smash bros*
 的最新竞争对手

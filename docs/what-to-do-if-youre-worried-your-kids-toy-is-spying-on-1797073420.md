@@ -1,6 +1,6 @@
 # 如果你担心孩子的玩具在监视你，该怎么办
 
-> 原文:[https://life hacker . com/1797073420](https://lifehacker.com/what-to-do-if-youre-worried-your-kids-toy-is-spying-on-1797073420)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-worried-your-kids-toy-is-spying-on-1797073420>
 
 我女儿有一只 [玩具恐龙](https://cognitoys.com/) 会跟她说话。她给他起名叫鲍勃，她可以问他任何问题:木星的周长是多少？谁赢得了 1965 年的世界职业棒球大赛？假惺惺到底是怎么回事？但是她四岁了，所以她经常问他如何拼写她的名字。
 

@@ -1,6 +1,6 @@
 # PSA:TSA 现在对国际航班上的香料和粉末有规定
 
-> 原文:[https://life hacker . com/PSA-the-TSA-has-rules-for-spices-and-powders-on-intern-1827087172](https://lifehacker.com/psa-the-tsa-has-rules-for-spices-and-powders-on-intern-1827087172)
+> 原文：<https://lifehacker.com/psa-the-tsa-has-rules-for-spices-and-powders-on-intern-1827087172>
 
 下次你从外国回到美国时，你应该把你买的所有香料和粉末扔进你的托运行李中，而不是试图随身携带。
 

@@ -1,6 +1,6 @@
 # 为什么你应该擅长闲聊
 
-> 原文:[https://life hacker . com/why-you-should-get-good-at-small-talk-1828174579](https://lifehacker.com/why-you-should-get-good-at-small-talk-1828174579)
+> 原文：<https://lifehacker.com/why-you-should-get-good-at-small-talk-1828174579>
 
 闲聊会招致很多反对；大多数人似乎认为讨论天气太重要了。诚然，一些闲聊可能会让人觉得浅薄或无聊，但它有一个重要的目的。所以大家都要学会怎么做好。
 

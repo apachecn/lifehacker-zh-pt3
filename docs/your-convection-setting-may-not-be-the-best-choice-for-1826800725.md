@@ -1,6 +1,6 @@
 # 你的对流设置可能不是烘焙的最佳选择
 
-> 原文:[https://life hacker . com/your-convection-setting-may-not-the-best-choice-for-1826800725](https://lifehacker.com/your-convection-setting-may-not-be-the-best-choice-for-1826800725)
+> 原文：<https://lifehacker.com/your-convection-setting-may-not-be-the-best-choice-for-1826800725>
 
 如果你有一个对流设置的烤箱——这意味着它配备了一个风扇，使热空气在食物周围循环——它可能很有吸引力，可以用在你的蛋糕，饼干和饼干上，以帮助食物“更均匀地烹饪”然而，根据 [烤好东西的守护神，斯特拉帕克斯](https://www.seriouseats.com/editors/stella-parks) (又名勇敢的骚货)，这可能导致非最优结果。
 

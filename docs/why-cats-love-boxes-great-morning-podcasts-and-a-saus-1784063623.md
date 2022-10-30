@@ -1,6 +1,6 @@
 # 为什么猫喜欢盒子、伟大的早间播客和烤肠机器人
 
-> 原文:[https://life hacker . com/why-cats-love-box-great-morning-podcast-and-a-saus-1784063623](https://lifehacker.com/why-cats-love-boxes-great-morning-podcasts-and-a-saus-1784063623)
+> 原文：<https://lifehacker.com/why-cats-love-boxes-great-morning-podcasts-and-a-saus-1784063623>
 
 在本周的 Brain Buffet 中，我们探究了为什么猫喜欢蜷缩在盒子或其他小空间里，展示了一台分发书籍的自动售货机，看了一些播客来开始你的一天，等等。
 

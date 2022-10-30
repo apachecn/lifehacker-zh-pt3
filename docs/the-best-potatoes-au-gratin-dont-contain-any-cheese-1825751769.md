@@ -1,6 +1,6 @@
 # 最好的脆皮土豆不含任何奶酪
 
-> 原文:[https://life hacker . com/the-best-potatos-au-cristide-don-contain-any-cheese-1825751769](https://lifehacker.com/the-best-potatoes-au-gratin-dont-contain-any-cheese-1825751769)
+> 原文：<https://lifehacker.com/the-best-potatoes-au-gratin-dont-contain-any-cheese-1825751769>
 
 哦，你好。你注意到我了吗？你准备好发表愤怒的评论，谴责我和我最糟糕的拍摄了吗？我理解你的朋友，因为当有人告诉我脆皮土豆不需要任何奶酪时，我也有类似的反应。
 

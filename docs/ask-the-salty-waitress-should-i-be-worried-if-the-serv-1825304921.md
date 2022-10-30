@@ -1,6 +1,6 @@
 # 问那个咸味的女服务员:如果服务员不记下我点的菜，我应该担心吗？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-I-should-if-the-serv-1825304921](https://thetakeout.com/ask-the-salty-waitress-should-i-be-worried-if-the-serv-1825304921)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-should-i-be-worried-if-the-serv-1825304921>
 
 * * *
 

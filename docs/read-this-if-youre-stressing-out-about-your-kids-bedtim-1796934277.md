@@ -1,6 +1,6 @@
 # 如果你对孩子的就寝时间感到紧张，读读这篇文章
 
-> 原文:[https://life hacker . com/read-this-if-you-streak-out-on-your-kids-beddim-1796934277](https://lifehacker.com/read-this-if-youre-stressing-out-about-your-kids-bedtim-1796934277)
+> 原文：<https://lifehacker.com/read-this-if-youre-stressing-out-about-your-kids-bedtim-1796934277>
 
 有很多关于你的孩子应该睡多长时间以及他们应该什么时候睡觉的指导方针。所有的建议都会让晚上的高峰变得更加紧张，尤其是对于那些下班回家，觉得必须在 7:30 或 8 点之前或者任何他们已经决定了合适的就寝时间的时候打卡的父母来说。
 

@@ -1,6 +1,6 @@
 # 你现在可以从你的手机文件 FAFSA
 
-> 原文:[https://life hacker . com/you-can-now-file-fafsa-from-your-phone-1829435594](https://lifehacker.com/you-can-now-file-fafsa-from-your-phone-1829435594)
+> 原文：<https://lifehacker.com/you-can-now-file-fafsa-from-your-phone-1829435594>
 
 今天，2019-2020 学年的联邦财政援助 或 FAFSA[免费申请开放，大学生现在第一次可以选择从手机提交申请。](https://studentaid.ed.gov/sa/fafsa) 
 

@@ -1,6 +1,6 @@
 # 油性皮肤如何让妆容防汗
 
-> 原文:[https://life hacker . com/how-to-keep-up-on-your face-this-summer-1825475556](https://lifehacker.com/how-to-keep-makeup-on-your-face-this-summer-1825475556)
+> 原文：<https://lifehacker.com/how-to-keep-makeup-on-your-face-this-summer-1825475556>
 
 夏天确实是最糟糕的。我讨厌出汗和皮肤发炎，我发现涂防晒霜比戴帽子稍微好一点。当然，我喜欢化妆——但是我的油性皮肤整天自己卸妆，而且在炎热的天气里还要加班。
 

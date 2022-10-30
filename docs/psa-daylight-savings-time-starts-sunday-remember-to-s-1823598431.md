@@ -1,6 +1,6 @@
 # PSA:夏令时从周日开始
 
-> 原文:[https://life hacker . com/PSA-day-savings-time-starts-Sunday-remember-to-s-1823598431](https://lifehacker.com/psa-daylight-savings-time-starts-sunday-remember-to-s-1823598431)
+> 原文：<https://lifehacker.com/psa-daylight-savings-time-starts-sunday-remember-to-s-1823598431>
 
 夏令时今年正式满 100 岁。这一天是 1918 年 3 月 19 日由联邦政府制定的，作为第一次世界大战期间节约煤炭的一种方式。虽然政府在当年晚些时候停止了这一做法，但地方政府在 1966 年再次得到全国认可之前保持了多年的乐趣。
 

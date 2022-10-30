@@ -1,6 +1,6 @@
 # 自由职业经济能赚多少钱？
 
-> 原文:[https://life hacker . com/你在自由职业经济中能赚多少钱-1796313883](https://lifehacker.com/how-much-money-can-you-make-in-the-freelance-economy-1796313883)
+> 原文：<https://lifehacker.com/how-much-money-can-you-make-in-the-freelance-economy-1796313883>
 
 自由职业者、承包商、临时工——不管你怎么称呼我们，据估计，到 2020 年，40%的工人将是自由职业者。虽然我是自愿做自由职业者的(我绝对喜欢)，但我也经历过一些自主创业的重大障碍。对每个人来说，前景并不乐观。对许多人来说，自由职业与其说是机会，不如说是负担。自由职业者的经济是复杂的，所以如果你是其中的一部分，让我们来分析一下。
 

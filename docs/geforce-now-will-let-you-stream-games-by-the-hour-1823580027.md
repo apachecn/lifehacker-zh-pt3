@@ -1,6 +1,6 @@
 # GeForce Now 可以让你按小时播放游戏
 
-> 原文:[https://life hacker . com/geforce-now-will-let-you-stream-by-hour-games-1823580027](https://lifehacker.com/geforce-now-will-let-you-stream-games-by-the-hour-1823580027)
+> 原文：<https://lifehacker.com/geforce-now-will-let-you-stream-games-by-the-hour-1823580027>
 
 你可能有一些超便携笔记本电脑或入门级 MacBook，但这并不意味着你不能享受 3a 视频游戏的乐趣。Nvidia 的游戏流媒体服务 GeForce Now 已经安装在 Shield 机顶盒上，但你可以在 Mac 或 PC 上试用它，并从云中开始流媒体游戏，而无需拥有昂贵的 PC。如果你真的想一整天都玩，那就准备好付额外的钱吧。
 

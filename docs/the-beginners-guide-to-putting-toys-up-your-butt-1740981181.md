@@ -1,6 +1,6 @@
 # 把玩具放在屁股上的初学者指南
 
-> 原文:[https://life hacker . com/the-beginners-guide-to-put-toys-up-your-butt-1740981181](https://lifehacker.com/the-beginners-guide-to-putting-toys-up-your-butt-1740981181)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-putting-toys-up-your-butt-1740981181>
 
 所以你已经用你的手指 完成了 [的小小探索，现在你准备好把你的肛交发挥到下一个水平。有很多奇妙的肛交玩具就等着去你的屁股上玩一趟。以下是关于将异物放入肛门你需要知道的一切。](https://lifehacker.com/the-beginners-guide-to-butt-play-1740349480)
 

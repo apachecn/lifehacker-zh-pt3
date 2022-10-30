@@ -1,6 +1,6 @@
 # 探索科学与艺术思维的神话
 
-> 原文:[https://life hacker . com/exploring-the myth-of-the-scientific-vs-art-mind-1772317368](https://lifehacker.com/exploring-the-myth-of-the-scientific-vs-artistic-mind-1772317368)
+> 原文：<https://lifehacker.com/exploring-the-myth-of-the-scientific-vs-artistic-mind-1772317368>
 
 这是一种刻板印象，但我们许多人都认为科学家有点刻板，没有其他人那么艺术。另一方面，艺术家通常被认为不如我们其他人理性。有时被描述为左脑对右脑——或者简单地说逻辑思维对艺术创造力——这两者经常被视为截然相反的两极。
 

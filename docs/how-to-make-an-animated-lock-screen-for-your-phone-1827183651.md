@@ -1,6 +1,6 @@
 # 如何为你的手机制作一个动画锁屏
 
-> 原文:[https://life hacker . com/how-to-make-a animated-a-lock-screen for your phone-1827183651](https://lifehacker.com/how-to-make-an-animated-lock-screen-for-your-phone-1827183651)
+> 原文：<https://lifehacker.com/how-to-make-an-animated-lock-screen-for-your-phone-1827183651>
 
 动画锁屏是一个可爱的噱头。你的手机有一些默认选项。但如果你想在 Android 或 iOS 上制作自己的应用，你需要一个第三方应用。
 

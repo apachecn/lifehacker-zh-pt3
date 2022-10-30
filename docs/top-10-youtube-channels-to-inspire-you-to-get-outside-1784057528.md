@@ -1,6 +1,6 @@
 # 激励你走出去的十大 YouTube 频道
 
-> 原文:[https://life hacker . com/top-10-YouTube-channels-to-inspire-you-to-get-out-1784057528](https://lifehacker.com/top-10-youtube-channels-to-inspire-you-to-get-outside-1784057528)
+> 原文：<https://lifehacker.com/top-10-youtube-channels-to-inspire-you-to-get-outside-1784057528>
 
 太阳很高，白天很长，天气很热——这意味着这是一个去户外看看美丽的自然空间的好时机。无论是一个巨大的国家公园还是离家更近的绿地，这里有一些渠道可以激励你走出去探索。
 

@@ -1,6 +1,6 @@
 # Linux 版 Lifehacker Pack:我们的基本 Linux 应用列表
 
-> 原文:[https://life hacker . com/life hacker-pack-for-Linux-our-list-of-essential-Li-815376368](https://lifehacker.com/lifehacker-pack-for-linux-our-list-of-the-essential-li-815376368)
+> 原文：<https://lifehacker.com/lifehacker-pack-for-linux-our-list-of-the-essential-li-815376368>
 
 Linux 有如此多的风格，它们的库中有如此棒的应用程序，要找到合适的应用程序来完成任务是很困难的。在我们的年度 Lifehacker Pack for Linux 中，我们强调了提高生产力、通信、媒体管理等的必备下载。
 

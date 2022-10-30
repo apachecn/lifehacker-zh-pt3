@@ -1,6 +1,6 @@
 # 科学证明的插队方式
 
-> 原文:[https://life hacker . com/the-scientific-proven-the-way-to-cut-in-line-1798349347](https://lifehacker.com/the-scientifically-proven-way-to-cut-in-line-1798349347)
+> 原文：<https://lifehacker.com/the-scientifically-proven-way-to-cut-in-line-1798349347>
 
 英国朋友现在不读了。
 。

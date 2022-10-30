@@ -1,6 +1,6 @@
 # 我是希瑟·迪特里克，每日野兽的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-heather-dietrick-the-daily-beast-and-this-I-1825787456](https://lifehacker.com/im-heather-dietrick-ceo-of-the-daily-beast-and-this-i-1825787456)
+> 原文：<https://lifehacker.com/im-heather-dietrick-ceo-of-the-daily-beast-and-this-i-1825787456>
 
 希瑟·迪特里克曾经经营这个地方。迪特里克是 Lifehacker 母公司 Gizmodo Media Group 受人爱戴的总裁，他于 2017 年离职，加入每日野兽担任首席执行官。按照《我如何工作》采访我们过去的和现在的同事的传统，我们和她谈论了在第一修正案定义的法律和商业领域建立职业生涯。
 

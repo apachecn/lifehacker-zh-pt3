@@ -1,6 +1,6 @@
 # 你的情人节歌曲有哪些？
 
-> 原文:[https://life hacker . com/what-your ' s-valentine-day-songs-1822958826](https://lifehacker.com/what-are-your-valentine-s-day-songs-1822958826)
+> 原文：<https://lifehacker.com/what-are-your-valentine-s-day-songs-1822958826>
 
 Spotify 是一个将你的音乐收听习惯转化为公共内容的服务，它分析了数千个以爱情、性、心痛或憎恨情人节为主题的用户播放列表，并制作了四个最常播放的歌曲的前十播放列表。
 

@@ -1,6 +1,6 @@
 # 请 Alexa 或 Google Home 用这个技巧给你的孩子读一个个性化的睡前故事
 
-> 原文:[https://life hacker . com/ask-Alexa-or-Google-home-to-read-your-child-a-personali-1829249795](https://lifehacker.com/ask-alexa-or-google-home-to-read-your-child-a-personali-1829249795)
+> 原文：<https://lifehacker.com/ask-alexa-or-google-home-to-read-your-child-a-personali-1829249795>
 
 如果你想改变你的睡前故事，这个 Alexa 技能可以帮助你。 [简短的睡前故事](https://www.amazon.com/gp/product/B01DJCJTZ2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/ask-alexa-or-google-home-to-read-your-child-a-personali-1829249795&asc_source=&tag=kinjalifehackerlink-20) 会读一个，你猜对了，简短的睡前故事给你的孩子听，用他或她的名字。
 

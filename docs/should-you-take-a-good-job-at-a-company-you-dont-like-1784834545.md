@@ -1,6 +1,6 @@
 # 该不该在自己不喜欢的公司找份好工作？
 
-> 原文:[https://life hacker . com/should-you-take-a-good-job at-a-you-dong-like-company 1784834545](https://lifehacker.com/should-you-take-a-good-job-at-a-company-you-dont-like-1784834545)
+> 原文：<https://lifehacker.com/should-you-take-a-good-job-at-a-company-you-dont-like-1784834545>
 
 我的一个朋友最近面试了一份在很多方面都非常适合她的工作。这个角色完全符合她过去的经历，领导团队鼓舞人心且聪明，团队成员看起来很棒，她的通勤时间会更短！只有一件事阻碍了她:这家公司处于一个她无法兴奋起来的行业。
 

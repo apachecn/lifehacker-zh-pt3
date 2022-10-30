@@ -1,6 +1,6 @@
 # “堕胎逆转”不是一件事
 
-> 原文:[https://life hacker . com/流产-反转-不是东西-1822626972](https://lifehacker.com/abortion-reversal-is-not-a-thing-1822626972)
+> 原文：<https://lifehacker.com/abortion-reversal-is-not-a-thing-1822626972>
 
 典型的药物流产包括两剂药丸。第一种是米非司酮，它阻断了胚胎或胎儿生长发育所需的一种激素。第二种，米索前列醇，引发子宫排出其内容物。但是越来越多的政治运动要求服用第一种药物的人接受“堕胎逆转”手术。
 

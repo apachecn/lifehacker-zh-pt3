@@ -1,6 +1,6 @@
 # 虚拟专用网络，间歇性禁食，被赶下飞机，以及更多本周的亮点
 
-> 原文:[https://life hacker . com/much-ado-about-VPN-intermittent-fasting-diets-getting-1793909177](https://lifehacker.com/much-ado-about-vpns-intermittent-fasting-diets-gettin-1793909177)
+> 原文：<https://lifehacker.com/much-ado-about-vpns-intermittent-fasting-diets-gettin-1793909177>
 
 本周，我们继续通过查看 VPN 来应对国会对互联网隐私的漠视，尝试了令人惊讶的简单禁食饮食，在不发疯的情况下准备了我们的末日用品，等等。这里回顾一下。
 

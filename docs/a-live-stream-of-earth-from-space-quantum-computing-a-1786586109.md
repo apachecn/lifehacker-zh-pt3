@@ -1,6 +1,6 @@
 # 来自太空、量子计算和令人毛骨悚然的历史事件的实时地球流
 
-> 原文:[https://life hacker . com/a-live-stream-of-earth-from-space-quantum-computing-a-1786586109](https://lifehacker.com/a-live-stream-of-earth-from-space-quantum-computing-a-1786586109)
+> 原文：<https://lifehacker.com/a-live-stream-of-earth-from-space-quantum-computing-a-1786586109>
 
 在本周的 Brain Buffet 中，让我们来谈谈量子计算机将如何改变技术，了解醉酒的旅行目的地，历史上超级令人毛骨悚然的事件，政治如何影响黄金价格，并从国际空间站观看地球的直播！
 

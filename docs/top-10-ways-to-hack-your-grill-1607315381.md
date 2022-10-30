@@ -1,6 +1,6 @@
 # 破解烤架的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-hack-your-grill-1607315381](https://lifehacker.com/top-10-ways-to-hack-your-grill-1607315381)
+> 原文：<https://lifehacker.com/top-10-ways-to-hack-your-grill-1607315381>
 
 你的烧烤架:这是典型的户外烹饪器皿，然而它的 [可以比](http://lifehacker.com/hacker-challenge-hack-your-grill-1047412951) 多得多。从清洁你的烤架到升级它的功能，这里有一些我们见过的最好的技巧和窍门来维护你的烤架，让它更上一层楼。
 

@@ -1,6 +1,6 @@
 # 这些啤酒鸡尾酒会让你的夏天充满泡沫
 
-> 原文:[https://life hacker . com/these-beer-cocktails-will-keep-your-summer-sudsy-1796500038](https://lifehacker.com/these-beer-cocktails-will-keep-your-summer-sudsy-1796500038)
+> 原文：<https://lifehacker.com/these-beer-cocktails-will-keep-your-summer-sudsy-1796500038>
 
 调制啤酒鸡尾酒有种独特的夏日气息。将碳酸啤酒与更烈的东西搭配，不仅会产生比一般饮料更大的量，可以让你啜饮一段时间，而且一点额外的酒精会让你在变得臃肿之前发出嗡嗡声。
 

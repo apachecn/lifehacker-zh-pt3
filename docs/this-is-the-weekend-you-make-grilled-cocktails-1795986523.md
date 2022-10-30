@@ -1,6 +1,6 @@
 # 这是你制作烧烤鸡尾酒的周末
 
-> 原文:[https://life hacker . com/this-is-the-weekend-you-make-gricked-cocktails-1795986523](https://lifehacker.com/this-is-the-weekend-you-make-grilled-cocktails-1795986523)
+> 原文：<https://lifehacker.com/this-is-the-weekend-you-make-grilled-cocktails-1795986523>
 
 欢迎回到周日营养！上周，我非常紧张地用搅拌瓶为你们测试咖啡，那么还有什么比通用的解决方案更好的冷静方法呢:酒精。伙计们，这是鸡尾酒周！
 

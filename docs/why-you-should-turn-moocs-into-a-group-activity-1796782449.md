@@ -1,6 +1,6 @@
 # 为什么你应该把 MOOCs 变成一个小组活动
 
-> 原文:[https://life hacker . com/why-you-should-turn-MOOCs-into-a-group-activity-1796782449](https://lifehacker.com/why-you-should-turn-moocs-into-a-group-activity-1796782449)
+> 原文：<https://lifehacker.com/why-you-should-turn-moocs-into-a-group-activity-1796782449>
 
 MOOCs 或大规模开放在线课程非常有用，也非常有趣。但是为什么要他们单独行动呢？把你的下一个在线课程变成一个读书俱乐部式的练习。
 

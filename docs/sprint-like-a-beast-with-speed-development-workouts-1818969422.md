@@ -1,6 +1,6 @@
 # 通过速度发展训练，像野兽一样冲刺
 
-> 原文:[https://life hacker . com/sprint-like-a-beast-with-speed-development-workouts-1818969422](https://lifehacker.com/sprint-like-a-beast-with-speed-development-workouts-1818969422)
+> 原文：<https://lifehacker.com/sprint-like-a-beast-with-speed-development-workouts-1818969422>
 
 当你得知几乎没有长跑运动员完成传统的速度训练时，你会感到惊讶吗？不，您的 [速度跑](https://lifehacker.com/a-step-by-step-guide-to-tempo-runs-1781580399) 、法特莱克锻炼或跑道上的间歇训练不算。我们谈论的是*速度发展*——一种在短跑运动员中更常见的锻炼方式。
 

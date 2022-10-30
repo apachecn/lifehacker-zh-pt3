@@ -1,6 +1,6 @@
 # 如何一步一个引体向上
 
-> 原文:[https://life hacker . com/this-strength-workout-can-get-you-close to you ' s first-1793796371](https://lifehacker.com/this-strength-workout-can-get-you-closer-to-your-first-1793796371)
+> 原文：<https://lifehacker.com/this-strength-workout-can-get-you-closer-to-your-first-1793796371>
 
 如果 [做单个引体向上(或更多)](http://thefyslife.com/article/how-to-do-pull-ups/) 是你人生的目标之一，你很幸运。这里有一个你可以遵循的游戏计划，即使你所能做的只是像一袋肉一样晃来晃去。
 

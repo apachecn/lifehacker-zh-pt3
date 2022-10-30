@@ -1,6 +1,6 @@
 # 如何利用桌面游戏成为更好的作家
 
-> 原文:[https://life hacker . com/how-to-use-desktop-games-to-be-a-better-writer-1788993767](https://lifehacker.com/how-to-use-tabletop-games-to-become-a-better-writer-1788993767)
+> 原文：<https://lifehacker.com/how-to-use-tabletop-games-to-become-a-better-writer-1788993767>
 
 不是每场比赛都是为了赢。随着桌面游戏 的兴起，数十种讲故事的游戏应运而生，挑战你或你的队友创造有趣的故事，而不是互相殴打。如果你想磨练自己的写作技巧，这是一个很好的开始。
 

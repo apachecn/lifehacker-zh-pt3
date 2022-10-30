@@ -1,6 +1,6 @@
 # 真正的成年人从来不会用完纸制品
 
-> 原文:[https://life hacker . com/real-adults-never-run-out-of-paper-products-1823401504](https://lifehacker.com/real-adults-never-run-out-of-paper-products-1823401504)
+> 原文：<https://lifehacker.com/real-adults-never-run-out-of-paper-products-1823401504>
 
 你的家里总是放着最舒适品牌的纸巾、卫生纸、纸巾和餐巾纸吗？很好，别读了。其他人:这是一门如何像成年人一样在家里堆满纸质卫生用品的补救课程。当我发现我的几个年轻朋友*不买纸巾*时，我意识到了这门课的重要性。在你送另一位客人去洗手间擤鼻涕之前，请阅读。
 

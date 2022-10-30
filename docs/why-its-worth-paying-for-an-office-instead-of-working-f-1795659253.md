@@ -1,6 +1,6 @@
 # 为什么花钱买办公室比在家工作更值得
 
-> 原文:[https://life hacker . com/why-it-worth-pay-for-a-office-to-work-f-1795659253](https://lifehacker.com/why-its-worth-paying-for-an-office-instead-of-working-f-1795659253)
+> 原文：<https://lifehacker.com/why-its-worth-paying-for-an-office-instead-of-working-f-1795659253>
 
 我每天的通勤时间大约是 30 分钟，在我的卧室和我的家庭办公室之间慢吞吞地穿梭。虽然我很高兴地说，我可以随时随地选择在 [工作，但有时我对自己的安排又爱又恨。因为在家工作会慢慢让你失去理智。](http://thefyslife.com/freedom-travel-faq/) 
 

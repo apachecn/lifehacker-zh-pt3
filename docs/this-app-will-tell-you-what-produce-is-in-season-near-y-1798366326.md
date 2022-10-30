@@ -1,6 +1,6 @@
 # 这个应用程序会告诉你你附近的时令是什么
 
-> 原文:[https://life hacker . com/this-app-will-tell-you-what-produce-in-season-near-y-1798366326](https://lifehacker.com/this-app-will-tell-you-what-produce-is-in-season-near-y-1798366326)
+> 原文：<https://lifehacker.com/this-app-will-tell-you-what-produce-is-in-season-near-y-1798366326>
 
 水果和蔬菜在当季的高峰期味道最好，但很难准确掌握这些季节的时间，尤其是因为它们因地区而异。幸运的是，现在有一个 [app](https://www.seasonalfoodguide.org/download-app) (还有 [网站](https://www.seasonalfoodguide.org/california/late-august) )可以做到这一点。
 

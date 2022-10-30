@@ -1,6 +1,6 @@
 # Reddit 上最需要改变的隐私设置
 
-> 原文:[https://life hacker . com/the-most-important-privacy-settings-to-change-on-Reddit-1827747540](https://lifehacker.com/the-most-important-privacy-settings-to-change-on-reddit-1827747540)
+> 原文：<https://lifehacker.com/the-most-important-privacy-settings-to-change-on-reddit-1827747540>
 
 [Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
 

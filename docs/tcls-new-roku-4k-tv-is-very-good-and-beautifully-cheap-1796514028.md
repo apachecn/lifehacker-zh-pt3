@@ -1,6 +1,6 @@
 # TCL 新出的 Roku 4K 电视非常好，便宜的漂亮
 
-> 原文:[https://gizmodo . com/tcls-new-Roku-4k-TV-is-very-good-and-beautiful-cheap-1796514028](https://gizmodo.com/tcls-new-roku-4k-tv-is-very-good-and-beautifully-cheap-1796514028)
+> 原文：<https://gizmodo.com/tcls-new-roku-4k-tv-is-very-good-and-beautifully-cheap-1796514028>
 
 TCL P 系列听起来好得令人难以置信。这些 Roku 驱动的 4K 电视价格几乎是类似配套电视机的一半，具有全阵列局部调光、[【HDR】](https://www.cnet.com/news/what-is-hdr-for-tvs-and-why-should-you-care/)和 [杜比视界](https://www.whathifi.com/advice/dolby-vision-hdr-everything-you-need-to-know) 等高端功能。所有这些，一个 55 英寸的型号只会花掉你 650 美元。那么真的好到不真实吗？一点点。但只有一点点。
 

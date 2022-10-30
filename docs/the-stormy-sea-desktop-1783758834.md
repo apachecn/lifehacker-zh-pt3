@@ -1,6 +1,6 @@
 # 暴风雨之海桌面
 
-> 原文:[https://lifehacker.com/the-stormy-sea-desktop-1783758834](https://lifehacker.com/the-stormy-sea-desktop-1783758834)
+> 原文：<https://lifehacker.com/the-stormy-sea-desktop-1783758834>
 
 这个桌面足够简单，Flickr 用户 [jsmorley](https://www.flickr.com/photos/28246402@N06/) 解释说，他们想要的只是个性化一点的东西，而不是超出顶部的东西。最终结果是这个引人注目的桌面，任何人都可以轻松复制。以下是方法。
 

@@ -1,6 +1,6 @@
 # iPhone X 先看:先说 Face ID
 
-> 原文:[https://gizmodo . com/iphone-x-first-look-let-talk-on-the-whole-face-id-1819989200](https://gizmodo.com/iphone-x-first-look-lets-talk-about-that-whole-face-id-1819989200)
+> 原文：<https://gizmodo.com/iphone-x-first-look-lets-talk-about-that-whole-face-id-1819989200>
 
 iPhone X 的[【Face ID】](https://gizmodo.com/face-id-raises-some-scary-questions-here-are-some-answe-1804313075)摄像头模块受到了比苹果预期更多的压力。面部识别安全技术是蒂姆·库克和朋友们主题演讲期间吸引所有人眼球的惊人功能——后来它又被 [反复指为长期传言的 iPhone X 短缺和延迟背后的罪魁祸首](https://gizmodo.com/rumors-say-apples-iphone-x-launch-will-be-screwed-by-de-1819413452) 。那么这是怎么回事呢？
 

@@ -1,6 +1,6 @@
 # 七个语言学家支持的制作强力抗议标语的技巧
 
-> 原文:[https://life hacker . com/seven-languages-backed-tips-for-making-powerful-declaration-1794551494](https://lifehacker.com/seven-linguist-backed-tips-for-making-powerful-protest-1794551494)
+> 原文：<https://lifehacker.com/seven-linguist-backed-tips-for-making-powerful-protest-1794551494>
 
 今天是科学 的 [游行，全国人民走上街头抗议一切反科学的议程和政策。如果你打算表达你的支持，还有时间用这些简单的文字游戏提示做一些令人难忘的标志。](https://www.marchforscience.com/) 
 

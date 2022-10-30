@@ -1,6 +1,6 @@
 # 如何制作肉类爱好者的 Panzanella，伪装成沙拉的披萨
 
-> 原文:[https://the take out . com/recipe-meat-lovers-panzanella-pizza-salad-1828200250](https://thetakeout.com/recipe-meat-lovers-panzanella-pizza-salad-1828200250)
+> 原文：<https://thetakeout.com/recipe-meat-lovers-panzanella-pizza-salad-1828200250>
 
 *欢迎来到*外卖的[***不健康沙拉周***](https://thetakeout.com/tag/unhealthy-salads-week#_ga=2.77976724.1410736182.1533514514-308846628.1493669845) *，因为美国。*
 

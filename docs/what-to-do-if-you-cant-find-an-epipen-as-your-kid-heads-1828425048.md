@@ -1,6 +1,6 @@
 # 当你的孩子回学校时，如果你找不到一支 EpiPen 该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you-kid-heads-1828425048](https://lifehacker.com/what-to-do-if-you-cant-find-an-epipen-as-your-kid-heads-1828425048)
+> 原文：<https://lifehacker.com/what-to-do-if-you-cant-find-an-epipen-as-your-kid-heads-1828425048>
 
 在我女儿下周去幼儿园之前，我的清单上有很多事情要做(呜咽！)就是拿四支 epi pen——一支放在她的教室里，一支用于她的课后计划，一支扔在我的包里，一支让我丈夫随身携带。每 18 个月 就必须获得一个全新的供应 [，这是一种拖累，但这个孩子对花生过敏，普通的肾上腺素自动注射器可以挽救她的生命。幸运的是，我的药店有库存。许多零售商没有。](https://www.washingtonpost.com/news/wonk/wp/2016/09/27/why-epipens-expire-so-quickly/?utm_term=.be6fd9f09a15) 
 

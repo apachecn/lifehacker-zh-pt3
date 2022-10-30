@@ -1,6 +1,6 @@
 # 木工的粉红色工作空间
 
-> 原文:[https://life hacker . com/the-wood workers-pink-workspace-1734988255](https://lifehacker.com/the-woodworkers-pink-workspace-1734988255)
+> 原文：<https://lifehacker.com/the-woodworkers-pink-workspace-1734988255>
 
 今天的特色工作区是一家木材商店，它成功地将“少女”的粉红色墙壁颜色与外观锐利、功能强大的工具结合在一起。
 

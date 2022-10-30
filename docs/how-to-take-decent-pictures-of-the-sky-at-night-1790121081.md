@@ -1,6 +1,6 @@
 # 如何在夜晚拍出像样的天空照片
 
-> 原文:[https://life hacker . com/how-to-take-dear-pictures-of-the-sky-night-1790121081](https://lifehacker.com/how-to-take-decent-pictures-of-the-sky-at-night-1790121081)
+> 原文：<https://lifehacker.com/how-to-take-decent-pictures-of-the-sky-at-night-1790121081>
 
 这看起来很容易，但是拍摄壮丽的夜空需要技巧。你必须带着正确的设备在正确的地方，你的相机需要正确的设置。这需要一些练习，但正确的拍摄是值得的。
 

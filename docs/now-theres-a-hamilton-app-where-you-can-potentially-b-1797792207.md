@@ -1,6 +1,6 @@
 # 现在有一个汉密尔顿的应用程序，你可以(潜在地)购买 10 美元的门票
 
-> 原文:[https://life hacker . com/now-theres-a-Hamilton-app-where-you-can-potential-b-1797792207](https://lifehacker.com/now-theres-a-hamilton-app-where-you-can-potentially-b-1797792207)
+> 原文：<https://lifehacker.com/now-theres-a-hamilton-app-where-you-can-potentially-b-1797792207>
 
 我还没有机会看到汉密尔顿(可能永远不会),因为事实上，门票是出了名的可怕。如果你想看到它，你必须忍受彩票抽奖，像任何彩票一样，提供了一个相当渺茫的成功机会。现在，这部音乐剧增加了另一种抢票方式:应用程序。
 

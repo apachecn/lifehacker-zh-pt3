@@ -1,6 +1,6 @@
 # 创造有史以来最令人振奋的冷水淋浴体验
 
-> 原文:[https://life hacker . com/create-the-most-brancy-shower-experience-ever-1827242963](https://lifehacker.com/create-the-most-bracingly-cold-shower-experience-ever-1827242963)
+> 原文：<https://lifehacker.com/create-the-most-bracingly-cold-shower-experience-ever-1827242963>
 
 我不喜欢住在佛罗里达的许多事情，但我主要的抱怨是我永远无法冷静下来。一年中有四分之三的时间，外出让我变得毫无用处(因为我是一个面色苍白的书呆子)，洗个“冷却”淋浴也没多大帮助，原因很简单，因为水从来没有变得足够冷。最终，我找到了一个完全绕过水温的系统。
 

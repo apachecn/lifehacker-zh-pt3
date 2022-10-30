@@ -1,6 +1,6 @@
 # 感恩节你会遇到的所有食品安全问题，都有了答案
 
-> 原文:[https://life hacker . com/all-the-food-safety-questions-you-ll-have-on-thanksgivi-1744092050](https://lifehacker.com/all-the-food-safety-questions-you-ll-have-on-thanksgivi-1744092050)
+> 原文：<https://lifehacker.com/all-the-food-safety-questions-you-ll-have-on-thanksgivi-1744092050>
 
 感恩节的家庭分歧不仅限于 [餐桌上的政治](http://lifehacker.com/the-guidelines-for-a-rational-political-discussion-with-5904594) :如果你曾经站在厨房里和你奶奶争论火鸡做好了没有，你就会明白我们的意思。因此，我们请来了食品安全专家 [【本·查普曼】](http://yfcs.cals.ncsu.edu/people/benjamin-chapman-ph-d/) 来解决你最有可能出现的争议。
 

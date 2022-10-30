@@ -1,6 +1,6 @@
 # 如何在这个假期不破坏欢乐，给世界带来欢乐
 
-> 原文:[https://gizmodo . com/how-to-bring-joy-to-the-world-by-not-destroying it-this-1821099845](https://gizmodo.com/how-to-bring-joy-to-the-world-by-not-destroying-it-this-1821099845)
+> 原文：<https://gizmodo.com/how-to-bring-joy-to-the-world-by-not-destroying-it-this-1821099845>
 
 假期即将来临。这意味着热巧克力，冬季音乐，以及所有环保主义者试图全年避免的消费习惯。在一年中的这个时候，以环保的方式行事是很困难的。我的意思是，包装纸是如此可爱——碧昂斯总是卖 [她自己的](https://shop.beyonce.com/products/62194-best-revenge-is-your-wrapping-paper) 。
 

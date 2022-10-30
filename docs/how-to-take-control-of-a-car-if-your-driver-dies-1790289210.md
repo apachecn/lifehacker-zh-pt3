@@ -1,6 +1,6 @@
 # 如果你的司机死了，如何控制一辆车
 
-> 原文:[https://jalopnik . com/how-to-take-control-of-a-car-if your-driver-dies-1790289210](https://jalopnik.com/how-to-take-control-of-a-car-if-your-driver-dies-1790289210)
+> 原文：<https://jalopnik.com/how-to-take-control-of-a-car-if-your-driver-dies-1790289210>
 
 几周前，我和我的同事迈克·巴拉班开始学习我所能想象的最难的驾驶技术。我们知道如果你的司机被杀了该怎么办。
 

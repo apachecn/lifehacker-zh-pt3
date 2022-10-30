@@ -1,6 +1,6 @@
 # 如何为‘十月戒酒’而戒酒
 
-> 原文:[https://life hacker . com/how-to-quit-drinking-for-sober-1829427180](https://lifehacker.com/how-to-quit-drinking-for-sober-for-october-1829427180)
+> 原文：<https://lifehacker.com/how-to-quit-drinking-for-sober-for-october-1829427180>
 
 在我 25 岁左右的时候，我有一个每天喝 4 杯啤酒的习惯。那时我正和一个酿酒商约会，我的整个社交生活恰好都和啤酒联系在一起。晚上出去见朋友喝啤酒，或者开几瓶朋友最近旅行带回来的(或者我男朋友刚做的)酒，这就是我们所做的。那四瓶啤酒可能在八个小时内就喝完了，所以我并没有每晚都喝醉，但即使在那时，我也曾有过一段时间反省自己，并采取措施减少饮酒量。
 

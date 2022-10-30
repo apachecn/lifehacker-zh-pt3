@@ -1,6 +1,6 @@
 # 不，你还是不应该在句号后面加两个空格
 
-> 原文:[https://life hacker . com/no-you-still-should-put-two-spaces-after-a period-1825662114](https://lifehacker.com/no-you-still-shouldnt-put-two-spaces-after-a-period-1825662114)
+> 原文：<https://lifehacker.com/no-you-still-shouldnt-put-two-spaces-after-a-period-1825662114>
 
 “万岁！”耶鲁大学社会学家尼古拉斯·a·克里斯塔基斯在推特上写道。“科学证明了我 12 岁时学会的长期练习，即在文本中的句号后使用两个空格。一个空格也没有。”
 

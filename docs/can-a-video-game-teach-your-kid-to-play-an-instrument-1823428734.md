@@ -1,6 +1,6 @@
 # 电子游戏能教你的孩子演奏乐器吗？
 
-> 原文:[https://life hacker . com/can-a-video-game-teach-your-kid-to-play-a-instrument-1823428734](https://lifehacker.com/can-a-video-game-teach-your-kid-to-play-an-instrument-1823428734)
+> 原文：<https://lifehacker.com/can-a-video-game-teach-your-kid-to-play-an-instrument-1823428734>
 
 我用传统的方式学会了弹钢琴——被妈妈拖去听邻居一位老妇人每周一次的课，当我的孩子用手指笨拙地弹奏《爱丽丝》时，我对着乐谱打呵欠。从那以后，音乐教学也发生了变化。已经有一批视频游戏应用程序向儿童介绍钢琴、吉他、鼓和尤克里里等乐器，并通过有趣的挑战，让他们练习——心甘情愿地*。只需将您的 iPad 或其他设备连接到您的乐器，然后观看它们演奏。一个名为 [的应用程序的评论者写道:“我的孩子真的会为谁接下来练习钢琴而争吵。”一位](https://itunes.apple.com/us/app/piano-maestro-by-joytunes/id604699751?mt=8) [优思](https://yousician.com/) 应用的粉丝说:“我必须告诉我的孩子，‘好吧，你*现在必须*停止。’“作为父母，你怎么能不欣赏这种巫术呢？* 
 

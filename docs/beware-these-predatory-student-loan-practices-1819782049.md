@@ -1,6 +1,6 @@
 # 当心这些掠夺性的学生贷款行为
 
-> 原文:[https://life hacker . com/当心-这些-掠夺性-学生贷款-做法-1819782049](https://lifehacker.com/beware-these-predatory-student-loan-practices-1819782049)
+> 原文：<https://lifehacker.com/beware-these-predatory-student-loan-practices-1819782049>
 
 信不信由你，学生贷款服务商 Navient[再次被](http://media.philly.com/documents/Pa.+v.+Navient.pdf) 起诉掠夺性贷款行为，宾夕法尼亚州司法部长乔希·夏皮罗称之为“不公平和欺骗性的”Navient 声称他们没有做错任何事情，但无论如何，这里有一些你应该知道的。
 

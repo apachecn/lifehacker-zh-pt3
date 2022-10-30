@@ -1,6 +1,6 @@
 # 鼻腔喷雾流感疫苗将于今年秋天上市
 
-> 原文:[https://life hacker . com/the-nasal-spray-flu-vaccine-will-back-this-fall-1827053524](https://lifehacker.com/the-nasal-spray-flu-vaccine-will-be-back-this-fall-1827053524)
+> 原文：<https://lifehacker.com/the-nasal-spray-flu-vaccine-will-be-back-this-fall-1827053524>
 
 在过去的几年里，流感疫苗需要注射——这让我的孩子和害怕针头的丈夫非常失望。但是疾病预防控制中心的免疫实践咨询委员会本周批准了一项建议，即鼻喷雾剂应该再次成为一种东西。
 

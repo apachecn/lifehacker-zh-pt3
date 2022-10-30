@@ -1,6 +1,6 @@
 # 2015 年最受欢迎的特色台式机和主屏幕
 
-> 原文:[https://life hacker . com/most-popular-featured-desktops-and-home-screens-of-2015-1747412405](https://lifehacker.com/most-popular-featured-desktops-and-home-screens-of-2015-1747412405)
+> 原文：<https://lifehacker.com/most-popular-featured-desktops-and-home-screens-of-2015-1747412405>
 
 每周，我们都会展示读者提交的定制桌面和主屏幕，展示漂亮的壁纸和出色的定制和 UI 调整。有时它们很有趣，有时它们很实用，有时两者兼而有之，但 2015 年对它们来说都是伟大的一年。下面来看看你最喜欢的。
 

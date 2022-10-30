@@ -1,6 +1,6 @@
 # MacOS High Sierra:电脑的新功能
 
-> 原文:[https://gizmodo . com/MAC OS-high-Sierra-the-new-features-coming-to-your-comp-1795822627](https://gizmodo.com/macos-high-sierra-the-new-features-coming-to-your-comp-1795822627)
+> 原文：<https://gizmodo.com/macos-high-sierra-the-new-features-coming-to-your-comp-1795822627>
 
 苹果今天宣布了其桌面操作系统 macOS(版本 10.13)的全新更新。以下是今年晚些时候苹果电脑推出的一些令人兴奋的新功能。
 

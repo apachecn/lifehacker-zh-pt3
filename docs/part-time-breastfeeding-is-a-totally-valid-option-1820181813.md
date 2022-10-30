@@ -1,6 +1,6 @@
 # 兼职母乳喂养是一个完全有效的选择
 
-> 原文:[https://life hacker . com/part-time-pulsing-is-a-total-valid-option-1820181813](https://lifehacker.com/part-time-breastfeeding-is-a-totally-valid-option-1820181813)
+> 原文：<https://lifehacker.com/part-time-breastfeeding-is-a-totally-valid-option-1820181813>
 
 如果你打算母乳喂养你的孩子，但最终想要或需要给配方奶，你可能会认为你已经改变了团队:你现在是一个配方奶喂养者。但这不是一个全有或全无的选择，兼职母乳喂养有重要的好处。
 

@@ -1,6 +1,6 @@
 # 2018 年全国甜甜圈日在哪里可以获得免费的甜甜圈
 
-> 原文:[https://life hacker . com/where-to-get-free-donuts-today-1826482171](https://lifehacker.com/where-to-get-free-donuts-today-1826482171)
+> 原文：<https://lifehacker.com/where-to-get-free-donuts-today-1826482171>
 
 这是全国油炸圈饼日，可能是公司和他们的脸书账户推动的最重要的虚构节日。你可以在像 Krispy Kreme 和 Dunkin' Donuts 这样的连锁店里买到免费的甜甜圈，还有一些不是以甜甜圈为中心的商店。 [钱](http://time.com/money/5295680/national-donut-day-2018-free-doughnuts/)[人](https://people.com/food/national-donut-day-2018-free-donuts/)[【今日美国】](https://www.usatoday.com/story/money/nation-now/2018/05/30/national-donut-day-2018-get-freebies-and-sweet-treats-june-1/634088002/) 都有列表；我们将它们分为“实际免费”、“有点免费”和“其他”
 

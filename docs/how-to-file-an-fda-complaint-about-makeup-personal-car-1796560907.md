@@ -1,6 +1,6 @@
 # 如何向 FDA 投诉化妆品、个人护理产品甚至纹身
 
-> 原文:[https://life hacker . com/how-to-file-an-FDA-complaint-about-make-personal-car-1796560907](https://lifehacker.com/how-to-file-an-fda-complaint-about-makeup-personal-car-1796560907)
+> 原文：<https://lifehacker.com/how-to-file-an-fda-complaint-about-makeup-personal-car-1796560907>
 
 有成千上万种产品可以涂抹在你的脸上和身上，它们在上市前都没有经过严格的安全测试。这就是为什么知道如果你认为一种产品刺激了你的皮肤，让你产生过敏反应，或者更糟，你可以向 FDA 投诉是很重要的。
 

@@ -1,6 +1,6 @@
 # 排名前 5 的餐厅供应商店必需品
 
-> 原文:[https://life hacker . com/the-top-5-restaurant-supply-store-essentials-ranked-1797727937](https://lifehacker.com/the-top-5-restaurant-supply-store-essentials-ranked-1797727937)
+> 原文：<https://lifehacker.com/the-top-5-restaurant-supply-store-essentials-ranked-1797727937>
 
 在俄勒冈州波特兰市生活了 10 年后，我最近搬到了费城，这里的适应变得轻而易举，原因有二。首先，也是最重要的，费城拥有骨头。第二，除了我的朋友和家人之外，我唯一深深怀念的波特兰事物是杂货店:在 SE Grand 的 Winco、Sheridan Fruit，最亲爱的是 SE 7 的[Cash&Carry](https://www.smartfoodservice.com/)&Stephens。
 

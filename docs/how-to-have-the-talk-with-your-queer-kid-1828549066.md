@@ -1,6 +1,6 @@
 # 如何与你的酷儿“交谈”
 
-> 原文:[https://life hacker . com/how-to-talk-with your-queer-kid-1828549066](https://lifehacker.com/how-to-have-the-talk-with-your-queer-kid-1828549066)
+> 原文：<https://lifehacker.com/how-to-have-the-talk-with-your-queer-kid-1828549066>
 
 我从未和父母谈过话。我们都认为我在进行安全的异性恋性行为，因为我从未向他们暗示过我在做别的事情。所以，你可以想象当我 26 岁出柜时他们有多惊讶。在洛杉矶市中心度过了没有 T2 女人罢工的一天后，我回到家时感觉又热又累。当我妈妈打电话给我，我拿起电话时，我没想到会对她敞开心扉。当她追问我为什么要和交往五年的男朋友分手时，我无意中脱口而出，“我是同性恋。”但这正是我所做的。
 

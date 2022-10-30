@@ -1,6 +1,6 @@
 # 如何利用金发女孩规则在生活和工作中保持动力
 
-> 原文:[https://life hacker . com/how-to-stay-motive-in-life and-work-using the-goldil-1783132075](https://lifehacker.com/how-to-stay-motivated-in-life-and-work-using-the-goldil-1783132075)
+> 原文：<https://lifehacker.com/how-to-stay-motivated-in-life-and-work-using-the-goldil-1783132075>
 
 那是 1955 年，加州阿纳海姆的迪斯尼乐园刚刚开业，一个 10 岁的男孩走进来找工作。当时的劳动法很宽松，这个男孩设法找到了一份工作，以每本 0.5 美元的价格向游客出售旅游指南。
 

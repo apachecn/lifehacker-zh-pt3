@@ -1,6 +1,6 @@
 # 来和纽约的 Lifehacker & Esther Perel 喝一杯，讨论一下男子气概吧
 
-> 原文:[https://life hacker . com/come-have-a-drink-and-talk-a-man ness with-life HAC-1825927655](https://lifehacker.com/come-have-a-drink-and-talk-about-manliness-with-lifehac-1825927655)
+> 原文：<https://lifehacker.com/come-have-a-drink-and-talk-about-manliness-with-lifehac-1825927655>
 
 嘿，周三晚上你到底在做什么？如果你住在纽约地区，而答案不是**“和 Lifehacker 喝一杯，谈谈男子汉气概”**，那么我建议你认真审视一下自己的选择，以及你对河谷镇不自然的热爱，并重新考虑一下。我们将举办第一届 LIVEHACKER 活动，届时将会非常精彩，您可以参加。 [**RSVP 此处。**](https://livehacker.splashthat.com/)T8】
 

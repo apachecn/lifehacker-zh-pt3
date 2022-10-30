@@ -1,6 +1,6 @@
 # 你的心态如何影响你的财务状况
 
-> 原文:[https://life hacker . com/how-your-psychology-affects-your-finance-1821986465](https://lifehacker.com/how-your-psychology-affects-your-finances-1821986465)
+> 原文：<https://lifehacker.com/how-your-psychology-affects-your-finances-1821986465>
 
 货币是一个抽象而复杂的话题，不断涌现的金融产品，如抵押贷款、信用卡和学生贷款，更是让这个话题变得如此。那么，如何最有效地利用你的资源呢？
 

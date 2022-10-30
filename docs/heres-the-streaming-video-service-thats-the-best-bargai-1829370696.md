@@ -1,6 +1,6 @@
 # 这是 2018 年最划算的流媒体视频服务
 
-> 原文:[https://life hacker . com/heres-the-streaming-video-service-thas-the-best-bar Gai-1829370696](https://lifehacker.com/heres-the-streaming-video-service-thats-the-best-bargai-1829370696)
+> 原文：<https://lifehacker.com/heres-the-streaming-video-service-thats-the-best-bargai-1829370696>
 
 感觉好像网飞、Hulu 和 Amazon Prime *希望*你搞不清楚他们在任何给定时间提供了多少图书。流媒体视频聚合器 [Reelgood](https://reelgood.com/) (你所有流媒体视频账户的搜索引擎和启动器)多年来一直在跟踪他们的图书馆，注意到像网飞的和 [增长](https://reelgood.com/blog/netflixs-2018-us-tv-series-catalog-grew-by-29/) 目录这样的事情。现在他们发布了一份 [分析，分析哪种流媒体服务给你带来最大的“性价比”](https://reelgood.com/blog/which-streaming-service-is-the-best-bang-for-your-buck/)——每订阅一美元最值得观看的节目和电影。
 

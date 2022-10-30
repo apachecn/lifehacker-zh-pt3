@@ -1,6 +1,6 @@
 # 为什么工作和健康需要更少的噪音
 
-> 原文:[https://life hacker . com/why-you-need-less-noise for the work and your-health-1792049040](https://lifehacker.com/why-you-need-less-noise-for-work-and-your-health-1792049040)
+> 原文：<https://lifehacker.com/why-you-need-less-noise-for-work-and-your-health-1792049040>
 
 嘘。听到了吗？没有吗？真令人惊讶。很可能，你现在就能听到一些声音:警笛声、风扇的嗡嗡声、背景对话的模糊声、手表的滴答声。我们的世界很少完全沉默——完全的沉默很少让人感到震惊。
 

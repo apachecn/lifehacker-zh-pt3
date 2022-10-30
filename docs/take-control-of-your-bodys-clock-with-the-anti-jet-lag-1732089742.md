@@ -1,6 +1,6 @@
 # 用抗时差计算器控制你的生物钟
 
-> 原文:[https://Jezebel . com/take-control-of-your-body ' s-clock with-the-anti-jet lag-1732089742](https://jezebel.com/take-control-of-your-bodys-clock-with-the-anti-jet-lag-1732089742)
+> 原文：<https://jezebel.com/take-control-of-your-bodys-clock-with-the-anti-jet-lag-1732089742>
 
 长途旅行会耗费你的时间和金钱。事实上，这种旅行还会严重扰乱你的睡眠和精力安排——让你的大脑感觉像发霉的棉花糖——这是雪上加霜。但是有了科学、纪律和数学，时差带来的生物学上的不公平可以被克服。
 

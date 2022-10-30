@@ -1,6 +1,6 @@
 # 如何通过谈论最热门的视频游戏来伪装自己
 
-> 原文:[https://kotaku . com/how-to-fake-way-through-conversations-on-the-ho-1794671717](https://kotaku.com/how-to-fake-your-way-through-conversations-about-the-ho-1794671717)
+> 原文：<https://kotaku.com/how-to-fake-your-way-through-conversations-about-the-ho-1794671717>
 
 你在一个社交聚会上，和你在一起的人开始谈论游戏。你从未玩过的游戏。你听着，笑着，点头，但是你开始想也许你应该说点什么。
 

@@ -1,6 +1,6 @@
 # 如何在不打击你信心的情况下跑完山路
 
-> 原文:[https://life hacker . com/how-to-run-hills-without-压碎你的自信-1783126331](https://lifehacker.com/how-to-run-hills-without-crushing-your-confidence-1783126331)
+> 原文：<https://lifehacker.com/how-to-run-hills-without-crushing-your-confidence-1783126331>
 
 很少有什么事情能像转过一个弯，面对一座巍峨的小山那样，破坏一次好的跑步。你跑得很快！你在飞行，一切都感觉很好，你的跑步应用程序上的机器人女士在你耳边低语着美妙的数字。现在一切都结束了。你必须跋涉。
 

@@ -1,6 +1,6 @@
 # 扔掉瓶子，自己做沙拉酱
 
-> 原文:[https://the take out . com/扔瓶子自己做沙拉酱-1818818479](https://thetakeout.com/toss-the-bottle-and-make-your-own-salad-dressing-1818818479)
+> 原文：<https://thetakeout.com/toss-the-bottle-and-make-your-own-salad-dressing-1818818479>
 
 * * *
 

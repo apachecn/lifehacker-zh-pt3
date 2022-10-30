@@ -1,6 +1,6 @@
 # 科学家如何确定假艺术是假的，物理地图，和经验机器
 
-> 原文:[https://life hacker . com/how-scientists-determine-fake-art-is-fake-a-map-of-phy-1789703899](https://lifehacker.com/how-scientists-determine-fake-art-is-fake-a-map-of-phy-1789703899)
+> 原文：<https://lifehacker.com/how-scientists-determine-fake-art-is-fake-a-map-of-phy-1789703899>
 
 本周，我们来看看研究人员如何确定一件伪造的艺术品实际上是假的，看看一个 61 岁的土豆农民赢得超级马拉松比赛的故事，浏览物理地图，等等。
 

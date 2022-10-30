@@ -1,6 +1,6 @@
 # 如何制作日式冰咖啡
 
-> 原文:[https://life hacker . com/how-to-make-Japanese-style-ice-coffee-1825417068](https://lifehacker.com/how-to-make-japanese-style-iced-coffee-1825417068)
+> 原文：<https://lifehacker.com/how-to-make-japanese-style-iced-coffee-1825417068>
 
 没有什么比一杯冰咖啡更能让炎热的下午变得活跃起来了。问题是，市面上的很多冰咖啡都是不新鲜的，是冷冻后剩下的热煮咖啡，或者是味道完全不同的冷煮咖啡。进入日本冰咖啡——两全其美。
 

@@ -1,6 +1,6 @@
 # 你可能不知道的最佳听觉提示和技巧
 
-> 原文:[https://life hacker . com/the-best-audible-tips-and-tricks-you-may-not-know ABO-1792389233](https://lifehacker.com/the-best-audible-tips-and-tricks-you-might-not-know-abo-1792389233)
+> 原文：<https://lifehacker.com/the-best-audible-tips-and-tricks-you-might-not-know-abo-1792389233>
 
 Audible 是有声读物中最大的名字，但是即使你花了数百个小时听，表面之下还是隐藏着一些技巧。这里有一些最好的方法来获得最大的听觉体验，甚至在这个过程中节省一些钱。
 

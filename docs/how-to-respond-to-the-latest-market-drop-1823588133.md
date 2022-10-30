@@ -1,6 +1,6 @@
 # 如何应对最近的市场下跌
 
-> 原文:[https://life hacker . com/how-to-response-the-latest-market-drop-1823588133](https://lifehacker.com/how-to-respond-to-the-latest-market-drop-1823588133)
+> 原文：<https://lifehacker.com/how-to-respond-to-the-latest-market-drop-1823588133>
 
 加里·科恩辞去唐纳德·特朗普总统首席经济顾问 [钢铝关税](https://twocents.lifehacker.com/heres-who-would-be-bothered-by-trumps-import-tariffs-1823469353) 的职务，导致道琼斯指数周三下跌 300 点。
 

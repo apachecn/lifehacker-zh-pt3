@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展浏览网飞的“秘密类别”
 
-> 原文:[https://life hacker . com/browse-netflixs-secret-categories-with-this-chrome-exte-1828909576](https://lifehacker.com/browse-netflixs-secret-categories-with-this-chrome-exte-1828909576)
+> 原文：<https://lifehacker.com/browse-netflixs-secret-categories-with-this-chrome-exte-1828909576>
 
 寻找关于网飞的完美电影有时会很困难。 [更好地浏览](https://chrome.google.com/webstore/detail/better-browse-for-netflix/olciafpppkdhlcjfmaibelnopafmhmdd?hl=en) 旨在通过将网飞的内容分类到额外的类别中，使这一过程至少变得简单一点。
 

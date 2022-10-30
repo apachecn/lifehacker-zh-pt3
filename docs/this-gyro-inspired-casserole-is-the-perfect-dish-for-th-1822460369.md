@@ -1,6 +1,6 @@
 # 这个受陀螺启发的砂锅是醉酒者的完美菜肴
 
-> 原文:[https://life hacker . com/this-gyro-inspired-砂锅是 th-1822460369](https://lifehacker.com/this-gyro-inspired-casserole-is-the-perfect-dish-for-th-1822460369)
+> 原文：<https://lifehacker.com/this-gyro-inspired-casserole-is-the-perfect-dish-for-th-1822460369>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅造物的专栏。本周，我们制作了一道热菜，灵感来自于一篇精彩绝伦的读者评论:
 

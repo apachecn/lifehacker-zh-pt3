@@ -1,6 +1,6 @@
 # 这是亚马逊降低全食超市价格的幅度
 
-> 原文:[https://life hacker . com/this-is-how-much-Amazon-has-cut-whole-foods-prices-1798489419](https://lifehacker.com/this-is-how-much-amazon-has-cut-whole-foods-prices-1798489419)
+> 原文：<https://lifehacker.com/this-is-how-much-amazon-has-cut-whole-foods-prices-1798489419>
 
 随着亚马逊 [、137 亿美元收购全食超市](http://twocents.lifehacker.com/what-the-amazon-whole-foods-deal-means-for-your-grocery-1796229747) 的交易今天敲定，这些公司承诺购物者将立即看到 [更低的价格](http://lifehacker.com/whole-foods-prices-will-drop-next-week-after-its-purcha-1798427823#_ga=2.89567707.1990548251.1503938033-470695696.1503938033) 。周一，我们走访了加州的一家全食超市，看看他们是否送货上门——他们做到了。
 

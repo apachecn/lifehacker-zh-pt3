@@ -1,6 +1,6 @@
 # 让 Waze 提醒你车里的孩子
 
-> 原文:[https://life hacker . com/make-waze-remind-you-about the child in-you-car-1821303538](https://lifehacker.com/make-waze-remind-you-about-the-child-in-your-car-1821303538)
+> 原文：<https://lifehacker.com/make-waze-remind-you-about-the-child-in-your-car-1821303538>
 
 关于父母将孩子遗忘在车里的新闻故事在炎热的夏天最为集中，但在寒冷的冬天 [孩子也会死于停在车里的低温症](https://www.romper.com/p/how-many-children-die-in-cars-in-winter-compared-to-summer-its-a-year-round-concern-22985) 。所以我要说的是，我们需要全年思考这个可怕的话题。
 

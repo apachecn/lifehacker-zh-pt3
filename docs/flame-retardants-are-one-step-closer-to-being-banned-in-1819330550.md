@@ -1,6 +1,6 @@
 # 阻燃剂离被禁止用于家具和婴儿用品又近了一步
 
-> 原文:[https://life hacker . com/阻燃剂离被禁更近了一步 1819330550](https://lifehacker.com/flame-retardants-are-one-step-closer-to-being-banned-in-1819330550)
+> 原文：<https://lifehacker.com/flame-retardants-are-one-step-closer-to-being-banned-in-1819330550>
 
 你最喜欢的泡沫填充家具中大多都含有阻燃化学物质——直到最近，加州的一项法律甚至要求使用阻燃化学物质。但是它们不能预防火灾，而且会带来健康风险。现在，美国消费品安全委员会离禁止它们更近了一步。
 

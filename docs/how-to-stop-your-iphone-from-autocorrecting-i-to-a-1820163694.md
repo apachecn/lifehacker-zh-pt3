@@ -1,6 +1,6 @@
 # 如何阻止你的 iPhone 自动将“I”修正为“A”
 
-> 原文:[https://life hacker . com/how-to-stop-your-iphone-from-auto correcting-I-to-a-1820163694](https://lifehacker.com/how-to-stop-your-iphone-from-autocorrecting-i-to-a-1820163694)
+> 原文：<https://lifehacker.com/how-to-stop-your-iphone-from-autocorrecting-i-to-a-1820163694>
 
 如果你把你的 iPhone 更新到 iOS 11.1，你可能会注意到一个奇怪的错误:你的 iPhone 或 iPad 会自动把字母 I 更正为 A，旁边还有一个疯狂的符号。
 

@@ -1,6 +1,6 @@
 # 在飞机上看电影时打开隐藏式字幕
 
-> 原文:[https://life hacker . com/turn-on-closed-captioning-when-you-watch-a-a-p-1819457209](https://lifehacker.com/turn-on-closed-captioning-when-you-watch-a-movie-on-a-p-1819457209)
+> 原文：<https://lifehacker.com/turn-on-closed-captioning-when-you-watch-a-movie-on-a-p-1819457209>
 
 我们都经历过。你登上飞机，决心工作或阅读一本书，甚至只是睡觉，但不知何故，你却花了几个小时的旅行时间沉迷于邻居屏幕上的电影。着迷和迷惑，试图尽可能多地捕捉，而不要求你的邻居分享他们的耳机。
 

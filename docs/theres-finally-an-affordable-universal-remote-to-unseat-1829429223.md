@@ -1,6 +1,6 @@
 # 终于有一款价格实惠的万能遥控器取代了罗技
 
-> 原文:[https://gizmodo . com/theres-finally-an-affordable-universal-remote-to-seat-1829429223](https://gizmodo.com/theres-finally-an-affordable-universal-remote-to-unseat-1829429223)
+> 原文：<https://gizmodo.com/theres-finally-an-affordable-universal-remote-to-unseat-1829429223>
 
 找到一个通用遥控器可能是一个考验，很大程度上是因为唯一一家制造适用于所有主要机顶盒、电视和游戏控制台的优秀遥控器的公司，其体验费用也在 150 美元左右。今年早些时候，一架 400 美元的挑战者 面世，这是一次极其糟糕的购买。它定价过高，它的 HDMI 集线器不支持[【HDR】](https://gizmodo.com/what-the-hell-is-hdr-1790991673#_ga=2.116356613.281674085.1538330109-1209856192.1535718869)，而且——好吧，是的，我认为这就是让一个通用遥控器完全没有价值所需要的一切。如果你想要便宜，你不必支持 HDR——但如果你的价格是下一个最好的遥控器的两倍半，你肯定会更好。但是现在这个昂贵的解决方案背后的公司 Caavo 带着新产品 Control Center 回来了，它不仅把价格降到了 100 美元，而且还增加了 HDR。这终于是一个令人兴奋的通用遥控器了。
 

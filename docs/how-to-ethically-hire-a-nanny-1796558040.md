@@ -1,6 +1,6 @@
 # 如何合乎道德地雇佣保姆
 
-> 原文:[https://life hacker . com/how-to-ethically-hire-a-nanny-1796558040](https://lifehacker.com/how-to-ethically-hire-a-nanny-1796558040)
+> 原文：<https://lifehacker.com/how-to-ethically-hire-a-nanny-1796558040>
 
 这个国家令人抓狂的托儿悖论是，日托和保姆真的很贵——[至少比州立大学学费](http://money.cnn.com/2016/09/28/pf/child-care-costs/index.html)——而 [保育员普遍很穷](https://www.theatlantic.com/business/archive/2015/11/childcare-workers-cant-afford-childcare/414496/) 。家政行业在很大程度上不受监管，工人容易受到剥削，这是家政工作植根于奴隶制的直接后果。
 

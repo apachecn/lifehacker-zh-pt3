@@ -1,6 +1,6 @@
 # 如何变得不那么吓人
 
-> 原文:[https://life hacker . com/how-to-less-there-1829553969](https://lifehacker.com/how-to-be-less-intimidating-1829553969)
+> 原文：<https://lifehacker.com/how-to-be-less-intimidating-1829553969>
 
 有人告诉过你你很吓人，但你不知道为什么吗？你可能会在不知不觉中发出“别惹我”的信号。
 

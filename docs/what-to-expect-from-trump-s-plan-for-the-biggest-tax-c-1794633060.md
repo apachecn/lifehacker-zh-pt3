@@ -1,6 +1,6 @@
 # 从特朗普有史以来“最大规模减税”的计划中可以期待什么
 
-> 原文:[https://life hacker . com/what-to-expect-from-trump-s-plan-for-the-big-tax-c-1794633060](https://lifehacker.com/what-to-expect-from-trump-s-plan-for-the-biggest-tax-c-1794633060)
+> 原文：<https://lifehacker.com/what-to-expect-from-trump-s-plan-for-the-biggest-tax-c-1794633060>
 
 周三，特朗普总统将提出一项税收计划，其中包括“可能是我们有史以来最大的减税”以下是他想做的，以及对你的意义。
 

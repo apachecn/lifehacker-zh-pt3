@@ -1,6 +1,6 @@
 # 系统工程学生的书包
 
-> 原文:[https://life hacker . com/the-systems-engineering-students-bag-1796843151](https://lifehacker.com/the-systems-engineering-students-bag-1796843151)
+> 原文：<https://lifehacker.com/the-systems-engineering-students-bag-1796843151>
 
 弄清楚在你的包里放什么是一个挑战。保持你的包整洁是一个完全不同的障碍。系统工程专业的学生马克西米利亚诺·尼科莱蒂 用包包和一些整理工具来控制混乱。
 

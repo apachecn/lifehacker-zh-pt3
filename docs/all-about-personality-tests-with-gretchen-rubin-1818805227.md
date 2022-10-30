@@ -1,6 +1,6 @@
 # 如何找出你的性格类型，与格雷琴鲁宾
 
-> 原文:[https://life hacker . com/all-about-personality-tests-with-gretchen-Rubin-1818805227](https://lifehacker.com/all-about-personality-tests-with-gretchen-rubin-1818805227)
+> 原文：<https://lifehacker.com/all-about-personality-tests-with-gretchen-rubin-1818805227>
 
 在这一集里，我们将谈论性格测试。你知道:那些测试会问你一些关于你的人生哲学、行为或道德的私人问题，然后告诉你你是什么样的人。他们到底透露了多少？我们想要得到它们的欲望又说明了我们什么呢？
 

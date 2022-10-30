@@ -1,6 +1,6 @@
 # 超级简单的自动对焦待办事项列表
 
-> 原文:[https://life hacker . com/the-super-simple-auto focus-to-do-list-1785295828](https://lifehacker.com/the-super-simple-autofocus-to-do-list-1785295828)
+> 原文：<https://lifehacker.com/the-super-simple-autofocus-to-do-list-1785295828>
 
 在过去的六个月里，我的大部分组织和待办事项清单都是用纸笔。在那段时间里，我尝试了不同的模拟系统，并尝试了我自己制作的东西，以找出最适合我的系统。
 

@@ -1,6 +1,6 @@
 # 我是格雷琴·鲁宾，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-gretchen-Rubin-and-this-is-how-I-work-1821300221](https://lifehacker.com/im-gretchen-rubin-and-this-is-how-i-work-1821300221)
+> 原文：<https://lifehacker.com/im-gretchen-rubin-and-this-is-how-i-work-1821300221>
 
 四年前，我们采访了格雷琴·鲁宾，她是畅销书《幸福计划》和《比以前更好的 T2》的作者，她谈到了《T4》和《T5》是如何工作的。从那以后，我们的播客已经升级了两次，第一次是 [谈论幸福](https://lifehacker.com/how-to-hack-happiness-with-gretchen-rubin-1794998732) ，然后是 [谈论性格类型](https://lifehacker.com/all-about-personality-tests-with-gretchen-rubin-1818805227) 。现在，在我如何工作的特别视频中，我们在她的家里了解更多关于她的职业、她的过程和她的工作空间。
 

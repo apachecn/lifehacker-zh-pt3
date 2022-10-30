@@ -1,6 +1,6 @@
 # 将舌头压在上颚来抑制喷嚏
 
-> 原文:[https://life hacker . com/1798509266](https://lifehacker.com/stifle-a-sneeze-by-pressing-your-tongue-on-the-roof-of-1798509266)
+> 原文：<https://lifehacker.com/stifle-a-sneeze-by-pressing-your-tongue-on-the-roof-of-1798509266>
 
 忍住打喷嚏可能是最纯粹、最简单的身体攻击。我们之前已经公布了一些方法(拉你的鼻子，把手指放在鼻子下面，或者咬你的嘴唇)，但是我总是依赖于把我的舌头压在我的上颚上。(也可以用 [挠痒痒代替按](http://health.howstuffworks.com/human-body/systems/nose-throat/why-does-tickling-roof-mouth-with-tongue-stifle-sneeze.htm) 。)
 

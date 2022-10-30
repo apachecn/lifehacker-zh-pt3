@@ -1,6 +1,6 @@
 # 如果你被鬼上身了该怎么办
 
-> 原文:[https://life hacker . com/1825326551](https://lifehacker.com/what-to-do-when-you-ve-been-ghosted-1825326551)
+> 原文：<https://lifehacker.com/what-to-do-when-you-ve-been-ghosted-1825326551>
 
 本周我们有一个家伙在约会应用上遇到了一个不错的女孩，和她进行了一些很棒的谈话，然后一起喝了几杯。然后她永远消失了...
 

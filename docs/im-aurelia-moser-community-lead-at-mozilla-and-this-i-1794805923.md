@@ -1,6 +1,6 @@
 # 我是 Aurelia Moser，Mozilla 的社区负责人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-aurelia-Moser-community-lead-at-Mozilla-and-this-I-1794805923](https://lifehacker.com/im-aurelia-moser-community-lead-at-mozilla-and-this-i-1794805923)
+> 原文：<https://lifehacker.com/im-aurelia-moser-community-lead-at-mozilla-and-this-i-1794805923>
 
 Aurelia Moser 是一名开发人员、教师、作者，同时也是一名制图师。她在 [Mozilla 科学实验室](https://science.mozilla.org/) 与研究人员合作开源项目，同时也是 [女孩开发 It](https://www.girldevelopit.com/chapters/new-york) 的导师。
 

@@ -1,6 +1,6 @@
 # 我因为油炸黄油给我的家庭带来了巨大的耻辱
 
-> 原文:[https://the take out . com/I-have-has-living-big-shaft-on-my-family-for-deep-fry-1821838265](https://thetakeout.com/i-have-brought-great-shame-upon-my-family-for-deep-fryi-1821838265)
+> 原文：<https://thetakeout.com/i-have-brought-great-shame-upon-my-family-for-deep-fryi-1821838265>
 
 庞的名字已经不光彩了。上周，在读到这个奇怪的州博览会食品“油炸黄油”时，我做了一个致命的决定，在我家神圣的房子里复制这道菜。这个决定来之不易。油炸黄油的想法令人深感羞耻。我不屑于平民的垃圾食品。它肯定会抹去我们几代人建立起来的高贵和自尊。最终，我的尊严变得脆弱。
 

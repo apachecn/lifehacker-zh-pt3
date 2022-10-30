@@ -1,6 +1,6 @@
 # 如何在光明节用 Siri、谷歌助手或亚马逊 Alexa 玩 Dreidel
 
-> 原文:[https://life hacker . com/how-to-play-drei del-with-Siri-Google-assistant-or-amaz-1821449943](https://lifehacker.com/how-to-play-dreidel-with-siri-google-assistant-or-amaz-1821449943)
+> 原文：<https://lifehacker.com/how-to-play-dreidel-with-siri-google-assistant-or-amaz-1821449943>
 
 光明节就要结束了，但是即使你今年没有得到任何的礼物，你仍然可以庆祝。只要你能接触到苹果、谷歌或亚马逊的 [人工智能助手](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716) ，你就能享受到一个节日传统的高科技版本: [dreidel](https://lifehacker.com/win-the-game-of-dreidel-by-starting-first-or-change-th-1672787219) 。
 

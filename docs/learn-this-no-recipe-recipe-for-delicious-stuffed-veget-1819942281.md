@@ -1,6 +1,6 @@
 # 用这种没有食谱的食谱，一年四季都可以得到美味的填充蔬菜
 
-> 原文:[https://life hacker . com/learn-this-no-recipe-recipe-for-delicious-filled-veget-1819942281](https://lifehacker.com/learn-this-no-recipe-recipe-for-delicious-stuffed-veget-1819942281)
+> 原文：<https://lifehacker.com/learn-this-no-recipe-recipe-for-delicious-stuffed-veget-1819942281>
 
 作为一名家庭厨师，作为一个吃她买的蔬菜而不是让它们在保鲜盒里液化的人，没有什么比学习没有食谱的烹饪更重要的了。一旦我记住了一些常用的方法，“快速晚餐”就意味着厨房的即兴表演，而不是无缝点菜。
 

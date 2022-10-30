@@ -1,6 +1,6 @@
 # 什么是股票回购？
 
-> 原文:[https://lifehacker.com/whats-a-stock-buyback-1823729567](https://lifehacker.com/whats-a-stock-buyback-1823729567)
+> 原文：<https://lifehacker.com/whats-a-stock-buyback-1823729567>
 
 如果你在过去几十年里一直关注公司投资策略，那么公司现在用共和党税收计划中的额外资金做什么就不足为奇了。少数公司向员工发放了一次性奖金(实际加薪的公司更少)，但更多的额外现金被指定用于股票回购和股息支付。
 

@@ -1,6 +1,6 @@
 # 你可能不知道的六件事是可以商量的
 
-> 原文:[https://life hacker . com/six-things-you-possible-not-know-negotiable-1728357724](https://lifehacker.com/six-things-you-probably-didn-t-know-were-negotiable-1728357724)
+> 原文：<https://lifehacker.com/six-things-you-probably-didn-t-know-were-negotiable-1728357724>
 
 如果你曾经买过车，你可能会讨价还价。我们习惯于在车辆和工资等问题上展示我们的谈判实力，但如果你愿意尝试，还有许多其他费用是完全可以谈判的。以下是其中的六项成本，以及你如何协商这些成本。
 

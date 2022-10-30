@@ -1,6 +1,6 @@
 # 告诉我们你的波特兰或旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-portland-or-travel-tips-1827928079](https://lifehacker.com/tell-us-your-portland-or-travel-tips-1827928079)
+> 原文：<https://lifehacker.com/tell-us-your-portland-or-travel-tips-1827928079>
 
 即使你生活在奥斯汀、布鲁克林、西雅图和旧金山这样的“潮人”城市，你也应该去一趟潮人的首选城市波特兰。这是一个很容易参观的城市，有负担得起的食物和娱乐，可供挥霍的有趣选择，美丽的公园，温和的天气，高效的交通(即使是从机场)，以及游客和当地人的健康融合。在波特兰似乎很难过得不愉快。但是我们能玩得更开心吗？
 

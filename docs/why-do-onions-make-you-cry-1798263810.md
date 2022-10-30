@@ -1,6 +1,6 @@
 # 切洋葱时如何最大限度地减少哭泣
 
-> 原文:[https://the take out . com/why-do-onions-make-you-cry-1798263810](https://thetakeout.com/why-do-onions-make-you-cry-1798263810)
+> 原文：<https://thetakeout.com/why-do-onions-make-you-cry-1798263810>
 
 我们认为洋葱是无害的块根蔬菜，但它们实际上是聪明的球状炸弹，随时准备抵御所有潜在的消费者。它们静静地躺在农民的田里和食品箱里等待，但当饥饿的动物露出牙齿或厨师的刀刃落下时，它们就会突然行动。这是一种常见的攻击。在第一次切割后，洋葱会变成一个可怕的泪腺。但是为什么洋葱会让我们哭呢？我们如何保护自己免受眼泪的冲击？
 

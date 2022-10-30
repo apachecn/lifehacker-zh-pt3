@@ -1,6 +1,6 @@
 # 你需要清理你的 Chrome 扩展
 
-> 原文:[https://life hacker . com/it-s-time-for-you-clean-up-your-chrome-extensions-1819614337](https://lifehacker.com/it-s-time-for-you-to-clean-up-your-chrome-extensions-1819614337)
+> 原文：<https://lifehacker.com/it-s-time-for-you-to-clean-up-your-chrome-extensions-1819614337>
 
 谷歌在其 Chrome 浏览器中增加了一些安全功能，首批变化今天向 Windows 用户推出。此次更新改进了 Chrome 和谷歌的 [Chrome 清理工具](https://www.google.com/chrome/cleanup-tool/) ，该工具可以监控试图修改默认搜索引擎等用户设置的扩展，以及旨在在浏览器窗口插入额外广告的恶意软件。完美的时机，考虑到最近大量的 Chrome 扩展被发现收集用户数据，假冒更受欢迎的 Chrome 扩展，甚至未经用户同意挖掘加密货币。
 

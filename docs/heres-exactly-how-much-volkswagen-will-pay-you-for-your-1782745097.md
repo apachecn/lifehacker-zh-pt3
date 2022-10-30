@@ -1,6 +1,6 @@
 # 这是大众汽车将为你的柴油车支付的确切价格
 
-> 原文:[https://jalopnik . com/heres-exact-how-much-much-much-much-buy-you-for-you-1782745097](https://jalopnik.com/heres-exactly-how-much-volkswagen-will-pay-you-for-your-1782745097)
+> 原文：<https://jalopnik.com/heres-exactly-how-much-volkswagen-will-pay-you-for-your-1782745097>
 
 作为今天早些时候公布的前所未有的 147 亿美元和解协议 的一部分，大众将向受排放作弊丑闻影响的 482，000 辆柴油四缸汽车的车主提供大量现金支付。如果你拥有一台 [大众汽车的氮氧化物排放机](http://jalopnik.com/your-guide-to-dieselgate-volkswagens-diesel-cheating-c-1731857018) ，这里有一步一步的指导你如何计算你欠了多少钱。
 

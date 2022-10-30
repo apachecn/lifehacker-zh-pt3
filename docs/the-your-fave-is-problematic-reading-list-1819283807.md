@@ -1,6 +1,6 @@
 # “你的最爱有问题”阅读清单
 
-> 原文:[https://life hacker . com/the-your-fave-is-problem-reading-list-1819283807](https://lifehacker.com/the-your-fave-is-problematic-reading-list-1819283807)
+> 原文：<https://lifehacker.com/the-your-fave-is-problematic-reading-list-1819283807>
 
 悲惨而熟悉的新闻是，娱乐界的一个有权势的人 [最近被揭露是一个卑鄙的家伙](https://www.nytimes.com/2017/10/08/business/harvey-weinstein-fired.html) 。哈维·韦恩斯坦花了数百万美元收买指控他性侵的女性，参与了数百部伟大的作品，包括*天桥骄子*、*低俗小说*、*英国病人*和*空气芽*。当然，温斯坦很糟糕，他的作品都无法弥补这一点。对一些人来说，问题是一旦一部心爱的作品受到温斯坦的牵连，该如何处理。
 

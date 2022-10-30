@@ -1,6 +1,6 @@
 # 7 个免费的在线工具，不用 Photoshop 就能拯救你的照片
 
-> 原文:[https://gizmodo . com/7-free-online-tools-rescue-your-photos-without-photo-1825347587](https://gizmodo.com/7-free-online-tools-to-rescue-your-photos-without-photo-1825347587)
+> 原文：<https://gizmodo.com/7-free-online-tools-to-rescue-your-photos-without-photo-1825347587>
 
 无论你是在 Instagram 上分享照片，还是参与艺术项目，最终图像的质量都很重要。即使你没有安装 Photoshop 之类的软件，你也可以在一些免费、简单易用的网络应用程序的帮助下，让你的照片达到最佳效果——我们在这里挑选了 7 款最适合你的应用程序。
 

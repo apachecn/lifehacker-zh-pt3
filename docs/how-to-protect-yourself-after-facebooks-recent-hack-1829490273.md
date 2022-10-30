@@ -1,6 +1,6 @@
 # 脸书最近被黑后如何保护自己
 
-> 原文:[https://life hacker . com/how-to-protect-yoursely-after-Facebook-recent-hack-1829490273](https://lifehacker.com/how-to-protect-yourself-after-facebooks-recent-hack-1829490273)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-after-facebooks-recent-hack-1829490273>
 
 可以肯定地说，最近的这次 [脸书访问令牌攻击](https://newsroom.fb.com/news/2018/09/security-update/) 完全是一场混乱——不仅仅是可能迫使你在设备上重新登录你的脸书账户的简单不便。虽然该公司仍在整理细节，并为开发者寻找减轻攻击影响的方法，但你可以做三件事来重新获得对数字生活的更多控制。
 

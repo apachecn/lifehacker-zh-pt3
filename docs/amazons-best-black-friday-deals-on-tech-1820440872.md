@@ -1,6 +1,6 @@
 # 亚马逊的最佳黑色星期五科技交易
 
-> 原文:[https://life hacker . com/amazons-best-black-Friday-deals-on-tech-1820440872](https://lifehacker.com/amazons-best-black-friday-deals-on-tech-1820440872)
+> 原文：<https://lifehacker.com/amazons-best-black-friday-deals-on-tech-1820440872>
 
 黑色星期五 还有一周多一点，我们已经知道周围一些最大的科技公司会有什么样的表现。 [微软](https://lifehacker.com/all-the-best-deals-from-microsoft-s-black-friday-discou-1820399903) 和 [谷歌](https://lifehacker.com/googles-best-deals-for-black-friday-1820409960) 最近透露了他们即将到来的折扣，现在亚马逊 [也在为这个大日子计划什么](http://phx.corporate-ir.net/phoenix.zhtml?c=176060&p=irol-newsArticle&ID=2316712) 提供一个看看。
 

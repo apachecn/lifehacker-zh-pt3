@@ -1,6 +1,6 @@
 # 如何制作一个完美的零食板——即使没有奶酪
 
-> 原文:[https://life hacker . com/how-to-build-a-perfect-snack-board-1829690692](https://lifehacker.com/how-to-build-a-perfect-snack-board-1829690692)
+> 原文：<https://lifehacker.com/how-to-build-a-perfect-snack-board-1829690692>
 
 当谈到以食物为重点的董事会，奶酪和/或熟食通常是明星。这两样东西我都喜欢，但是它们不一定要成为零食板块的焦点，尤其是当有这么多其他类型的零食的时候。
 

@@ -1,6 +1,6 @@
 # 看这干酪酥脆的弗里科煎蛋
 
-> 原文:[https://life hacker . com/looke-the-cheese-crisp-glory-of-frico-fricked-egg-1829470751](https://lifehacker.com/behold-the-cheesy-crispy-glory-of-the-frico-fried-egg-1829470751)
+> 原文：<https://lifehacker.com/behold-the-cheesy-crispy-glory-of-the-frico-fried-egg-1829470751>
 
 我对 [煎蛋](https://skillet.lifehacker.com/fry-herbs-and-seasonings-directly-in-the-white-of-your-1829005431) ，我对 [炸奶酪](https://skillet.lifehacker.com/these-cheese-crisps-are-the-tastiest-one-ingredient-par-1711828422) ，以及我对 [鸡蛋和奶酪](https://skillet.lifehacker.com/these-are-the-cheeses-you-need-in-your-scrambled-eggs-1829447109#_ga=2.203539416.976869809.1538407529-426097860.1521480505) 的喜爱都有据可查，但不知何故——直到这个命运多舛的早晨——我从未在炸奶酪里煎过一个鸡蛋*。老实说，真是个笨蛋。*
 

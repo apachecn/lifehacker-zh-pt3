@@ -1,6 +1,6 @@
 # 如何用新驱动器升级您的计算机
 
-> 原文:[https://life hacker . com/how-to-upgrade-your-computer-a-new-drive-1825299803](https://lifehacker.com/how-to-upgrade-your-computer-with-a-new-drive-1825299803)
+> 原文：<https://lifehacker.com/how-to-upgrade-your-computer-with-a-new-drive-1825299803>
 
 驱动器出现故障。无论你有多少备份，当你正在做重要的事情时，丢失一个驱动器——我的同名定律——真的很痛苦。值得庆幸的是，用一个全新的驱动器替换你的旧驱动器 是你能做的最简单的升级之一。
 

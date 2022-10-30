@@ -1,6 +1,6 @@
 # 用一个小假期来处理你的个人待办事项
 
-> 原文:[https://life hacker . com/take-a-micro-vacation-to-Turk-your-personal-to-do-lis-1826329141](https://lifehacker.com/take-a-micro-vacation-to-tackle-your-personal-to-do-lis-1826329141)
+> 原文：<https://lifehacker.com/take-a-micro-vacation-to-tackle-your-personal-to-do-lis-1826329141>
 
 不管假期有多长，假期的目的是帮助你减轻压力。有时这意味着做点什么，而不是无所事事。如果你有一堆压得你喘不过气来的个人待办事项，利用假期去做那些你似乎从来没有时间去做的事情会对你的幸福有很大帮助。
 

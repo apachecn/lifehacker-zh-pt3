@@ -1,6 +1,6 @@
 # 如何随时在网飞上发现新的东西(不使用网飞)
 
-> 原文:[https://life hacker . com/how-to-find-everything-on-anywhere-any-time-with-1825022403](https://lifehacker.com/how-to-find-everything-new-on-netflix-at-any-time-with-1825022403)
+> 原文：<https://lifehacker.com/how-to-find-everything-new-on-netflix-at-any-time-with-1825022403>
 
 如果你是网飞迷，你现在应该知道该怎么做了:你下班回家，踢掉鞋子，倒出你攒了一周的红酒，点燃网飞。然后，你花 45 分钟浏览服务上的每一部电影或电视节目，以确保你没有错过任何比你已经滚动过的更好的候选内容。
 

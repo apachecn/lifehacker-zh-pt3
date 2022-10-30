@@ -1,6 +1,6 @@
 # 宝丽来的新即时相机拍出可怕的复古照片非常好
 
-> 原文:[https://gizmodo . com/polaroids-new-instant-camera-takes-terrible-retro-photo-1819006906](https://gizmodo.com/polaroids-new-instant-camera-takes-terrible-retro-photo-1819006906)
+> 原文：<https://gizmodo.com/polaroids-new-instant-camera-takes-terrible-retro-photo-1819006906>
 
 宝丽来宣布其自中期以来的第一款全新即拍相机的那个晚上，在包厘街有一个派对。一个小画廊空间里挤满了汗流浃背的艺术学校类型，一排宝丽来相机排列在一面墙上，展示着该公司的设计时间表。著名的宝丽来摄影师瑞安·麦金莱宣布了这款新相机:OneStep 2，这是激发 Instagram 标志的最初 OneStep 相机的继承人。
 

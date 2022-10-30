@@ -1,6 +1,6 @@
 # 游览纽约时，除了时代广场，还能去哪里
 
-> 原文:[https://life hacker . com/where-to-go-not-times-square-when-visiting-NYC-1818842099](https://lifehacker.com/where-to-go-instead-of-times-square-when-visiting-nyc-1818842099)
+> 原文：<https://lifehacker.com/where-to-go-instead-of-times-square-when-visiting-nyc-1818842099>
 
 当我最近建议纽约市的游客跳过时代广场 时，我遭到了不住在纽约的人的愤怒。明确一点:你被允许参观时代广场！但是你是*不被允许去那里，然后告诉每个人纽约是臭的，拥挤的，太昂贵的，并且充满了怪人。这就像去迪斯尼世界，决定佛罗里达的每个人都叫米老鼠。* 
 

@@ -1,6 +1,6 @@
 # 11 月的金钱挑战:卖掉你不想要的东西
 
-> 原文:[https://life hacker . com/November-s-money-challenge-sell-your-wanted-stuff-1788424216](https://lifehacker.com/november-s-money-challenge-sell-your-unwanted-stuff-1788424216)
+> 原文：<https://lifehacker.com/november-s-money-challenge-sell-your-unwanted-stuff-1788424216>
 
 我们还有两个月就要参加我们的 [终极金钱挑战赛](https://lifehacker.com/lifehacker-readers-lets-take-a-money-challenge-togethe-1747419781) 。临近年底，我们将重点放在假日消费上。这个月，我们挑战你清理你的衣橱，扔掉一些垃圾，并在这个过程中赚些钱。
 

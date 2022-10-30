@@ -1,6 +1,6 @@
 # 节奏跑的循序渐进指南
 
-> 原文:[https://life hacker . com/a-step-by-step-guide-to-tempo-runs-1781580399](https://lifehacker.com/a-step-by-step-guide-to-tempo-runs-1781580399)
+> 原文：<https://lifehacker.com/a-step-by-step-guide-to-tempo-runs-1781580399>
 
 有一种锻炼是每个耐力跑者都应该做的。这种“面包和黄油”的锻炼是全能的速度跑。节奏跑对几乎每个跑步者都有好处——从英里跑者到马拉松运动员，节奏几乎无处不在。
 

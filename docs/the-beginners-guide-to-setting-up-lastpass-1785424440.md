@@ -1,6 +1,6 @@
 # 设置 LastPass 的初学者指南
 
-> 原文:[https://life hacker . com/the-beginners-guide-to-setting-up-lastpass-1785424440](https://lifehacker.com/the-beginners-guide-to-setting-up-lastpass-1785424440)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-setting-up-lastpass-1785424440>
 
 你知道你应该使用密码管理器。事实上，你早就想建立一个，但还没有冒险尝试。甚至像 LastPass 这样受欢迎的网站，建立起来似乎也很困难。好消息:开始使用密码管理器比你想象的要容易。
 

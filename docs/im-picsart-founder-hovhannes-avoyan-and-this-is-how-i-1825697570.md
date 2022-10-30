@@ -1,6 +1,6 @@
 # 我是 PicsArt 的创始人 Hovhannes Avoyan，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-picsart-founder-hovhannes-AVO Yan-and-this-is-how-I-1825697570](https://lifehacker.com/im-picsart-founder-hovhannes-avoyan-and-this-is-how-i-1825697570)
+> 原文：<https://lifehacker.com/im-picsart-founder-hovhannes-avoyan-and-this-is-how-i-1825697570>
 
 Hovhannes Avoyan 在他的女儿因将她的艺术上传到网上而被欺负到流泪后，创办了 [PicsArt](https://picsart.com/) ，一个 [应用套件](https://picsart.com/apps/) 和社交网络，用于制作和分享艺术和图片。现在，该网络每月活跃用户超过 1 亿。我们与 Hovhannes 谈论了他的灵感和发展过程，以及他如何将积极的方法应用到自己的公司中。
 

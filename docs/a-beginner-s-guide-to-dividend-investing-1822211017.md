@@ -1,6 +1,6 @@
 # 股息投资初学者指南
 
-> 原文:[https://life hacker . com/a-初学者投资指南-1822211017](https://lifehacker.com/a-beginner-s-guide-to-dividend-investing-1822211017)
+> 原文：<https://lifehacker.com/a-beginner-s-guide-to-dividend-investing-1822211017>
 
 几年前，我终于开了一个个人退休账户 [，或称 IRA](https://lifehacker.com/a-beginner-s-guide-to-opening-an-ira-1607498930) 。(投资的一小步，迈向成熟的一大步。)在建立了我自己的 [投资组合](https://twocents.lifehacker.com/how-to-build-an-easy-beginner-set-and-forget-investm-1686878594) 之后，我注意到了一些有趣的事情。每个季度，我都发现钱“付”进了我的账户。它们被称为红利，红利投资是一种越来越受欢迎的投资策略。
 

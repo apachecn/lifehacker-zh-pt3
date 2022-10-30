@@ -1,6 +1,6 @@
 # 给你讨厌蔬菜的孩子一些冷冻的豌豆冰棍
 
-> 原文:[https://life hacker . com/give-your-kid-who-hate-vegets-some-freezed pea-sicl-1825482856](https://lifehacker.com/give-your-kid-who-hates-vegetables-some-frozen-pea-sicl-1825482856)
+> 原文：<https://lifehacker.com/give-your-kid-who-hates-vegetables-some-frozen-pea-sicl-1825482856>
 
 古往今来，父母们尝试了各种策略让孩子多吃蔬菜——把它们烤成巧克力饼，混合成冰沙，用 [歌曲](https://www.youtube.com/watch?v=ygdgrT6oSUk) 给他们洗脑。但是可能有一种更简单的方法可以让你的孩子在饮食中摄入一些绿色的东西——不需要诡计。简单地端上*冷冻*蔬菜。一些孩子喜欢的食物:冷冻豌豆、冷冻玉米和冷冻毛豆。
 

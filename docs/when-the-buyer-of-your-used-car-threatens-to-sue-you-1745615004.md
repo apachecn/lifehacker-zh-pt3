@@ -1,6 +1,6 @@
 # 当你的二手车买家威胁要起诉你时
 
-> 原文:[https://jalopnik . com/when-the-buyer-of-you ' s-the-buyer of-you-二手车威胁要起诉你 1745615004](https://jalopnik.com/when-the-buyer-of-your-used-car-threatens-to-sue-you-1745615004)
+> 原文：<https://jalopnik.com/when-the-buyer-of-your-used-car-threatens-to-sue-you-1745615004>
 
 我不时会接到认为自己即将被起诉的人的电话。通常是因为他们卖给别人一辆二手车，出了问题。这就是为什么他们没什么可担心的。
 

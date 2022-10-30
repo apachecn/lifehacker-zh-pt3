@@ -1,6 +1,6 @@
 # 制作手机锁屏地图
 
-> 原文:[https://life hacker . com/make-a-map-for-your-phones-lock-screen-1823832028](https://lifehacker.com/make-a-map-for-your-phones-lock-screen-1823832028)
+> 原文：<https://lifehacker.com/make-a-map-for-your-phones-lock-screen-1823832028>
 
 用你重要的另一半的照片作为手机壁纸的问题是，把它换掉会很尴尬。幸运的是，我妻子刚刚把她的锁屏从我的照片换成了我们喜欢的宝宝的照片，所以我把我的换成了阿尔瓦·卡托提供的一个很酷的地图。
 

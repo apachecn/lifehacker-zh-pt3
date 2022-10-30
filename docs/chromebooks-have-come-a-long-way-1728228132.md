@@ -1,6 +1,6 @@
 # Chromebooks 已经走过了漫长的道路
 
-> 原文:[https://life hacker . com/chrome books-have-come-a-long-way-1728228132](https://lifehacker.com/chromebooks-have-come-a-long-way-1728228132)
+> 原文：<https://lifehacker.com/chromebooks-have-come-a-long-way-1728228132>
 
 自推出以来，Chromebooks 已经走过了漫长的道路。虽然它们曾经是笔记本电脑形状的浏览器，但它们已经变得足够强大，可以对抗其他笔记本电脑。我没想到我会喜欢我的 Chromebook，但它已经取代了我的笔记本电脑，完成了我的大部分工作。
 

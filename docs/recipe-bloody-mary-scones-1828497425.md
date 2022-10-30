@@ -1,6 +1,6 @@
 # 如何做血腥玛丽烤饼，一个早午餐游戏改变者
 
-> 原文:[https://thetakeout.com/recipe-bloody-mary-scones-1828497425](https://thetakeout.com/recipe-bloody-mary-scones-1828497425)
+> 原文：<https://thetakeout.com/recipe-bloody-mary-scones-1828497425>
 
 奶油烤饼是一种非常棒的烘焙食品。与黄油烤饼不同，黄油烤饼需要一个伟大的饼干制作师轻轻触摸，这些烤饼使用重奶油作为脂肪，使它们能够超级快速地拉在一起。它们的烘烤时间不到 15 分钟，可以是甜的，也可以是咸的，适合像奶酪、坚果或洋葱这样的强烈口味，或者像柠檬或香草这样的清淡口味。
 

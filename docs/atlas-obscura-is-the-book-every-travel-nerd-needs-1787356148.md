@@ -1,6 +1,6 @@
 # 《地图集·暗箱》是每个旅行迷都需要的书
 
-> 原文:[https://life hacker . com/atlas-obscura-is-the-book-every-travel-nerd-needs-1787356148](https://lifehacker.com/atlas-obscura-is-the-book-every-travel-nerd-needs-1787356148)
+> 原文：<https://lifehacker.com/atlas-obscura-is-the-book-every-travel-nerd-needs-1787356148>
 
 就本质而言，绝大多数旅游书籍都是枯燥乏味的，充斥着枯燥(但有用)的信息。 [*地图集《暗无天日:世界隐藏奇迹探索者指南*](https://www.amazon.com/Atlas-Obscura-Explorers-Worlds-Wonders/dp/0761169083/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/atlas-obscura-is-the-book-every-travel-nerd-needs-1787356148&asc_source=&ie=UTF8&keywords=atlas obscura&qid=1475269822&sr=8-1&tag=kinjalifehackerlink-20) 》，这本新书来自同名网站背后的头脑，它避开了这种方式，它是一本旅行书籍，更多的是旅行的灵感，而不是你到达那里后如何行事的指南。
 

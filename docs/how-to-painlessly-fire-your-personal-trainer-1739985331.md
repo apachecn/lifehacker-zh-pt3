@@ -1,6 +1,6 @@
 # 如何无痛解雇你的私人教练
 
-> 原文:[https://life hacker . com/how-to-无痛解雇你的私人教练-1739985331](https://lifehacker.com/how-to-painlessly-fire-your-personal-trainer-1739985331)
+> 原文：<https://lifehacker.com/how-to-painlessly-fire-your-personal-trainer-1739985331>
 
 解雇某人，即使是健身教练或私人教练，也很难做到。你在这个人身上投入了很多时间和精力。所以当你需要分道扬镳的时候，你实际上感觉就像是在和一个非常亲密的朋友分手。没有人想成为“坏人”，但是如果这个人不再满足你的需求，这里有一些结束事情的方法(你自己也不会觉得自己是个混蛋)。
 

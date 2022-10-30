@@ -1,6 +1,6 @@
 # 为什么自制披萨需要铸铁煎锅
 
-> 原文:[https://life hacker . com/why-you-need-a-cast-iron-skillet-for-made-pizza-1823965908](https://lifehacker.com/why-you-need-a-cast-iron-skillet-for-homemade-pizza-1823965908)
+> 原文：<https://lifehacker.com/why-you-need-a-cast-iron-skillet-for-homemade-pizza-1823965908>
 
 自制披萨的书呆子是一群热情的人；对于一个胆小的新手来说，各种披萨爱好者论坛上大量相互矛盾的信息一点也不令人鼓舞。我在这里告诉你，你不需要在后院建一个砖制烤箱，甚至不需要买一块石头来制作美味的披萨——事实上，你可能已经拥有了你需要的一切。
 

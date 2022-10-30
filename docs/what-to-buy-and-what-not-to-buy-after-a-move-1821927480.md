@@ -1,6 +1,6 @@
 # 搬家后买什么(和不买什么)
 
-> 原文:[https://life hacker . com/what-to-buy-and-what-not-buy-after-a move-1821927480](https://lifehacker.com/what-to-buy-and-what-not-to-buy-after-a-move-1821927480)
+> 原文：<https://lifehacker.com/what-to-buy-and-what-not-to-buy-after-a-move-1821927480>
 
 所以你在你全新的公寓或房子里。一些箱子仍在等待被打开，但你对把这个空间变成一个家感到如此兴奋，以至于你会在亚马逊或 Bed Bath&Beyond 上花上几个小时，比较沙发枕头和装载购物车，看看你可能想要的一切要花多少钱。
 

@@ -1,6 +1,6 @@
 # 避免精疲力尽的四个简单方法
 
-> 原文:[https://life hacker . com/four-simple-remedies-for-avoid-burnout-1785463479](https://lifehacker.com/four-simple-remedies-for-avoiding-burnout-1785463479)
+> 原文：<https://lifehacker.com/four-simple-remedies-for-avoiding-burnout-1785463479>
 
 在为一个慈善机构处理了几个星期高要求的拨款申请后，我筋疲力尽了。当我的老板让我执行简单的任务时，我只能不斥责她。当我的同事和朋友问我新工作怎么样时，我冷嘲热讽地说这是浪费时间。我当时并不知道，但我已经筋疲力尽了。
 

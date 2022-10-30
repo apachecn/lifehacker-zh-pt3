@@ -1,6 +1,6 @@
 # 如果你认为你不需要显卡，这款 80 美元的 GPU 会改变你的想法
 
-> 原文:[https://gizmodo . com/if-you-don-this-80-gp-1794460619](https://gizmodo.com/if-you-dont-think-you-need-a-graphics-card-this-80-gp-1794460619)
+> 原文：<https://gizmodo.com/if-you-dont-think-you-need-a-graphics-card-this-80-gp-1794460619>
 
 近十年来，常识告诉我们，大多数人不需要在电脑中安装独立显卡。游戏玩家需要它们来制作丰富的游戏，如《古墓丽影的崛起》 hum，*一些专业人士，如视频编辑和 3D 设计师，需要它们来消除渲染大型多媒体文件的痛苦。对于其他人来说，显卡更像是一种奢侈品，而不是必要的计算机组件。但是 AMD 80 美元的镭龙 RX 550，一款比你在上面渲染的全新游戏价格略高的显卡，是如此的物有所值，以至于它可能会让你重新考虑显卡是你应该跳过的奢侈品的想法。* 
 

@@ -1,6 +1,6 @@
 # 你如何看待“职业”着装？
 
-> 原文:[https://Jezebel . com/what-do-you-consider-dressing-professional-1778628679](https://jezebel.com/what-do-you-consider-dressing-professionally-1778628679)
+> 原文：<https://jezebel.com/what-do-you-consider-dressing-professionally-1778628679>
 
 如果一位同事或员工穿着宽松的破洞牛仔裤、脏兮兮的运动鞋、她昨天穿的同一件衬衫、卷曲的头发、脏兮兮的未打磨指甲、手臂上挂着最近打破伤风针后的创可贴去上班，你会怎么想？你会评价我吗？我应该买新衣服吗？大概？
 

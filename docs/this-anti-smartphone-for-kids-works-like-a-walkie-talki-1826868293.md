@@ -1,6 +1,6 @@
 # 这款针对儿童的反智能手机就像对讲机一样工作
 
-> 原文:[https://life hacker . com/this-anti-smart phone-for-kids-works-like-a-walkie-talki-1826868293](https://lifehacker.com/this-anti-smartphone-for-kids-works-like-a-walkie-talki-1826868293)
+> 原文：<https://lifehacker.com/this-anti-smartphone-for-kids-works-like-a-walkie-talki-1826868293>
 
 对于父母来说，决定越来越早出现:你应该给你的孩子一部智能手机吗？一方面，你可能担心这会把你的孩子变成一个弯腰驼背的僵尸，或者她会经常分心，或者它会以我们尚不知道的方式扰乱她的大脑，或者其他一些不好的，非常不好的潜在后果。
 

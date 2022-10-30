@@ -1,6 +1,6 @@
 # 谷歌的“灵活采样”改变了谷歌的最佳功能
 
-> 原文:[https://life hacker . com/Google-s-flexible-sampling-change-messes-with-Google-1819075588](https://lifehacker.com/google-s-flexible-sampling-change-messes-with-google-1819075588)
+> 原文：<https://lifehacker.com/google-s-flexible-sampling-change-messes-with-google-1819075588>
 
 好吧，看来小气鬼新闻迷们要完蛋了。搜索巨头谷歌 [决定停止其诡计](http://nymag.com/selectall/2017/10/google-search-hack-to-get-around-paywall-no-longer-works.html) ，该诡计允许免费网站访问者访问本应在付费墙后的文章。
 

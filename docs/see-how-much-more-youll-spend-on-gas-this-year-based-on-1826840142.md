@@ -1,6 +1,6 @@
 # 看看今年你会在汽油上多花多少钱
 
-> 原文:[https://life hacker . com/see-how-more-more-you-wave-on-1826840142](https://lifehacker.com/see-how-much-more-youll-spend-on-gas-this-year-based-on-1826840142)
+> 原文：<https://lifehacker.com/see-how-much-more-youll-spend-on-gas-this-year-based-on-1826840142>
 
 目前全国的天然气价格是自 2014 年 以来最高的 [，这意味着你可能要重新计算你的天然气预算。这个工具根据你的汽车型号告诉你下一年你将在汽油上花多少钱，以及你认为你将行驶多少英里。它还能告诉你与去年相比，你会多花多少钱。](https://www.eia.gov/dnav/pet/pet_pri_gnd_dcus_nus_a.htm) 
 

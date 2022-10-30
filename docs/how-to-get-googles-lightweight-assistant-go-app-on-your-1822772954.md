@@ -1,6 +1,6 @@
 # 如何在你当前的安卓手机上安装谷歌的轻量级“助手围棋”应用程序
 
-> 原文:[https://life hacker . com/how-to-get-Google-lightweight-assistant-go-app-on-your-1822772954](https://lifehacker.com/how-to-get-googles-lightweight-assistant-go-app-on-your-1822772954)
+> 原文：<https://lifehacker.com/how-to-get-googles-lightweight-assistant-go-app-on-your-1822772954>
 
 在过去的一年里， [谷歌](https://lifehacker.com/soon-you-wont-have-to-say-hey-google-to-launch-google-a-1822563826) 一直在推出其最受欢迎的应用程序的轻量级版本，这些应用程序是专门为低价智能手机设计的。在 [Android Go](https://android-developers.googleblog.com/2017/05/whats-new-in-android-o-developer.html) 的旗帜下，我们已经看到了 [YouTube Go](https://lifehacker.com/youtube-go-downloads-videos-for-offline-viewing-saves-1792212046) ，谷歌地图 Go，甚至一个名为 [Files Go](https://lifehacker.com/how-to-use-files-go-googles-new-airdrop-style-file-sha-1820297858) 的全新服务，旨在清理你设备上的存储空间。现在谷歌正在推出其最新的轻量级应用: [助手围棋](https://play.google.com/store/apps/details?id=com.google.android.apps.assistant) 。
 

@@ -1,6 +1,6 @@
 # GNOME 桌面初学者指南
 
-> 原文:[https://life hacker . com/a-初学者-gnome-desktop 指南-1820890109](https://lifehacker.com/a-beginners-guide-to-the-gnome-desktop-1820890109)
+> 原文：<https://lifehacker.com/a-beginners-guide-to-the-gnome-desktop-1820890109>
 
 在所有可用于 Linux 操作系统的桌面中， [GNOME](https://www.gnome.org/) 已经设法成为最高效、稳定和可靠的桌面之一——同时仍然保持令人难以置信的用户友好性。事实上，大多数用户——不管经验如何——几乎不费吹灰之力就能掌握 GNOME。
 

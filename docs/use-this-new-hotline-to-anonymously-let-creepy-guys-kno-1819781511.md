@@ -1,6 +1,6 @@
 # 使用这条热线匿名地让令人毛骨悚然的家伙知道他们正在使你毛骨悚然
 
-> 原文:[https://life hacker . com/use-this-new-hotline-to-anonymous-let-creepy-guys-kno-1819781511](https://lifehacker.com/use-this-new-hotline-to-anonymously-let-creepy-guys-kno-1819781511)
+> 原文：<https://lifehacker.com/use-this-new-hotline-to-anonymously-let-creepy-guys-kno-1819781511>
 
 你有没有在酒吧，或者派对，或者其他地方，和一个很强势的男人在一起？比如他咄咄逼人，咄咄逼人，不愿接受你不感兴趣的微妙信号，还缠着你要电话号码？你有没有试过给他一个错误的号码，只是为了让他走开？
 

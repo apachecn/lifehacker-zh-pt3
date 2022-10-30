@@ -1,6 +1,6 @@
 # 轻松省钱的最佳应用
 
-> 原文:[https://gizmodo . com/the-very-best-apps-for-saving-money-1792171684](https://gizmodo.com/the-very-best-apps-for-saving-money-effortlessly-1792171684)
+> 原文：<https://gizmodo.com/the-very-best-apps-for-saving-money-effortlessly-1792171684>
 
 省钱很好玩！开个玩笑，这真的很烦人，因为这需要很微妙的个人控制和暂时交出你的现金。但是不用担心。你的电脑电话能帮上忙。
 

@@ -1,6 +1,6 @@
 # 现在从优步找回丢失的物品可能要花费你 15 美元
 
-> 原文:[https://life hacker . com/now-get-lost-items-back-from-Uber-could-cost-you-1-1797304249](https://lifehacker.com/now-getting-lost-items-back-from-uber-could-cost-you-1-1797304249)
+> 原文：<https://lifehacker.com/now-getting-lost-items-back-from-uber-could-cost-you-1-1797304249>
 
 下次你把雨伞、书包或手机落在优步时，可能要花 15 美元才能找回来。从今天开始，拼车公司 [允许全国范围内的司机收取统一费用，将你丢失的物品带回给你](http://nymag.com/selectall/2017/07/uber-lost-item-return-fee.html?utm_campaign=nym&utm_source=fb&utm_medium=s1) 。
 

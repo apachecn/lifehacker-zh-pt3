@@ -1,6 +1,6 @@
 # 如果你有时只是想要一个无限制的计划，Google Fi 的新“账单保护”是完美的
 
-> 原文:[https://life hacker . com/Google-fis-new-bill-protection-is-perfect-if-you-only-1822166834](https://lifehacker.com/google-fis-new-bill-protection-is-perfect-if-you-only-1822166834)
+> 原文：<https://lifehacker.com/google-fis-new-bill-protection-is-perfect-if-you-only-1822166834>
 
 对于过去几年的[谷歌 Fi](https://lifehacker.com/how-to-set-up-google-project-fi-on-your-pixel-2-1819980061) 由于其 10 美元/GB 的现收现付定价方案，它一直是常规运营商的一个不错的廉价替代品。但是随着 2017 年 [无限数据回归](https://gizmodo.com/which-unlimited-data-plan-is-the-best-1792476535) ，Google Fi 看起来吸引力下降了很多。现在该公司终于开始反击了。
 

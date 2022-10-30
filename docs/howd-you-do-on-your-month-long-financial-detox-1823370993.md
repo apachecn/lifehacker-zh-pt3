@@ -1,6 +1,6 @@
 # 你为期一个月的财务戒毒怎么样？
 
-> 原文:[https://life hacker . com/howd-you-do-on-your-month-financial-detox-1823370993](https://lifehacker.com/howd-you-do-on-your-month-long-financial-detox-1823370993)
+> 原文：<https://lifehacker.com/howd-you-do-on-your-month-long-financial-detox-1823370993>
 
 今天是二月的最后一天，这意味着是我的发薪日(耶)，也是我们为期 [个月的财务排毒](https://twocents.lifehacker.com/get-ready-for-a-month-long-financial-detox-1822555847) 的结束。如果你跟着做，你坚持你的目标了吗？比你想象的容易还是难？
 

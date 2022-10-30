@@ -1,6 +1,6 @@
 # 你的雇主应该做些什么来支持你的心理健康
 
-> 原文:[https://life hacker . com/what-your-employee-should-do-to-support-your-ment-1819319426](https://lifehacker.com/what-your-employer-should-be-doing-to-support-your-ment-1819319426)
+> 原文：<https://lifehacker.com/what-your-employer-should-be-doing-to-support-your-ment-1819319426>
 
 我们醒着的时候几乎有一半时间在工作(这是一个多么令人沮丧的想法？所以，如果你的工作场所压力很大，或者充满了欺凌者和骚扰者，你的心理健康就会受到影响。今天是世界精神卫生日，世界卫生组织希望你的雇主知道他们能够也应该让你保持精神健康。
 

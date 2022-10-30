@@ -1,6 +1,6 @@
 # 异地恋到底要花多少钱
 
-> 原文:[https://life hacker . com/how-much-it-was-to-be-a-division-rel-1740081945](https://lifehacker.com/how-much-it-actually-costs-to-be-in-a-long-distance-rel-1740081945)
+> 原文：<https://lifehacker.com/how-much-it-actually-costs-to-be-in-a-long-distance-rel-1740081945>
 
 我和我的男朋友保持异地恋已经接近三年了。整个大学期间，我们基本上是形影不离的，但当毕业临近时，我们都获得了惊人的机会——在世界的另一端。
 

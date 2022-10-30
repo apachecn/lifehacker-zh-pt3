@@ -1,6 +1,6 @@
 # 给现代极客的一年约会建议
 
-> 原文:[https://kotaku . com/a-years-value-of-dating-advice-for-modern-geek-1790381883](https://kotaku.com/a-years-worth-of-dating-advice-for-the-modern-geek-1790381883)
+> 原文：<https://kotaku.com/a-years-worth-of-dating-advice-for-the-modern-geek-1790381883>
 
 又一年被记录在案，随之而来的是另外几十个专栏。这样的爱，这样的失落，这样的心碎！这么多糟糕的性生活，这么多有毒的伴侣和嫉妒的前任！有很多事情要弄清楚。
 

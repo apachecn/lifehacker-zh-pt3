@@ -1,6 +1,6 @@
 # 如何在 iOS 和 Android 版 Gmail 中暂停电子邮件
 
-> 原文:[https://life hacker . com/how-to-snooze-emails-in-Gmail-for-IOs-and-Android-1825567194](https://lifehacker.com/how-to-snooze-emails-in-gmail-for-ios-and-android-1825567194)
+> 原文：<https://lifehacker.com/how-to-snooze-emails-in-gmail-for-ios-and-android-1825567194>
 
 iOS/Android:谷歌为其 Gmail 网络应用程序推出了一个巨大的新更新，其中最令人兴奋的功能之一是暂停重要邮件的功能。如果你像我一样是一个 [拖延者](https://lifehacker.com/build-this-flowchart-to-overcome-procrastination-1789952339#_ga=2.211361235.731015111.1524456678-258269408.1513265580) ，但是你更喜欢在智能手机上查看你的电子邮件，你还不算运气不好。iOS 和 Android 的 Gmail 应用程序最近也增加了贪睡功能。
 

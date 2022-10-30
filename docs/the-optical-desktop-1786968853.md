@@ -1,6 +1,6 @@
 # 光学桌面
 
-> 原文:[https://lifehacker.com/the-optical-desktop-1786968853](https://lifehacker.com/the-optical-desktop-1786968853)
+> 原文：<https://lifehacker.com/the-optical-desktop-1786968853>
 
 经常投稿的人 [JonRedcorn2](https://www.flickr.com/photos/134554762@N08/) 在 reg 上切换他的桌面，最近的这个引起了我们的注意。它既对称又有趣，而且没有太多的小部件和工具。以下是你可以得到同样外观的方法。
 

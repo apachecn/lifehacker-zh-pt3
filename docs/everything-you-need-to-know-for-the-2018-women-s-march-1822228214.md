@@ -1,6 +1,6 @@
 # 本周末 2018 年女性游行你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-know for-the-2018-women-s-March-1822228214](https://lifehacker.com/everything-you-need-to-know-for-the-2018-women-s-march-1822228214)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-for-the-2018-women-s-march-1822228214>
 
 已经一年了吗？才一年吗？是啊是啊。这个周末，标志着第一次妇女游行(在很多方面)一周年，世界各地的城市都在举行安可。这是你上街需要知道的。
 

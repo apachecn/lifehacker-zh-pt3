@@ -1,6 +1,6 @@
 # 如何删除你这些年来发表的所有 Emo Tumblr 帖子
 
-> 原文:[https://life hacker . com/how-to-delete-all-of-the-emo-Tumblr-posts-you-made-over-1825572551](https://lifehacker.com/how-to-delete-all-of-the-emo-tumblr-posts-you-made-over-1825572551)
+> 原文：<https://lifehacker.com/how-to-delete-all-of-the-emo-tumblr-posts-you-made-over-1825572551>
 
 可能有一些原因让你想保留你的 [Tumblr](https://www.tumblr.com/) 账户，但删除你所有的帖子。也许你抢到了一个很棒的 Tumblr 用户名或网址，你不想 [放弃它](https://www.tumblr.com/account/delete) ，但是你宁愿人们不知道你在过去几年里对动画 gif 有多着迷，你对亨利·卡维尔的黑暗痴迷，或者你在朝九晚五的工作周中多久发布一次关于猫的帖子。诸如此类的事情。
 

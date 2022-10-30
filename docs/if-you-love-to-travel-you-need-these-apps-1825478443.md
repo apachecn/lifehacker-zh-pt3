@@ -1,6 +1,6 @@
 # 如果你喜欢旅行，你需要这些应用程序
 
-> 原文:[https://life hacker . com/if-you-love-to-travel-you-need-these-apps-1825478443](https://lifehacker.com/if-you-love-to-travel-you-need-these-apps-1825478443)
+> 原文：<https://lifehacker.com/if-you-love-to-travel-you-need-these-apps-1825478443>
 
 除了打包的压力，确保所有电子设备都安全存放在某个地方的压力，记住旅途中为设备充电所需的每根电缆的压力，以及确保宠物喂食和植物浇水的压力，还有应用程序。
 

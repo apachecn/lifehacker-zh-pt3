@@ -1,6 +1,6 @@
 # 如何回收牙刷和牙膏管，如果你坚持的话
 
-> 原文:[https://life hacker . com/how-to-recycle-牙刷和牙膏管-if-yo-1828798695](https://lifehacker.com/how-to-recycle-toothbrushes-and-toothpaste-tubes-if-yo-1828798695)
+> 原文：<https://lifehacker.com/how-to-recycle-toothbrushes-and-toothpaste-tubes-if-yo-1828798695>
 
 取决于你当地的回收中心，你不能把你的牙刷扔进回收站。好吧，你可以，但你只是在给工人们添加垃圾。你也不应该把牙膏管扔进垃圾箱。但是你*可以* [把它们免费邮寄到专门的回收中心](https://www.terracycle.com/en-US/brigades/colgate) ，有高露洁和 TerraCycle 的程序。
 

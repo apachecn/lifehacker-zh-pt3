@@ -1,6 +1,6 @@
 # 不要在感恩节拜访你的家人
 
-> 原文:[https://life hacker . com/don ' t-visit-your-family-on-thanksgiving-1820641311](https://lifehacker.com/dont-visit-your-family-on-thanksgiving-1820641311)
+> 原文：<https://lifehacker.com/dont-visit-your-family-on-thanksgiving-1820641311>
 
 我有一个非常特别的感恩节传统，我每年都忠实地遵守它:当每个人都开始挤上美国铁路公司、公共汽车和高价航班时，我却呆在原地，拒绝去拜访任何人。太棒了。
 

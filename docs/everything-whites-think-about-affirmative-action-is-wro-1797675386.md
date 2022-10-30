@@ -1,6 +1,6 @@
 # 白人对平权法案的所有想法都是错误的
 
-> 原文:[https://www . the root . com/everything-whites-think-about-affirmative-action-is-wro-1797675386](https://www.theroot.com/everything-whites-think-about-affirmative-action-is-wro-1797675386)
+> 原文：<https://www.theroot.com/everything-whites-think-about-affirmative-action-is-wro-1797675386>
 
 在与史蒂夫·班农、斯蒂芬·米勒(Stephen Miller)和贝琪·德沃斯(have long)联合组成川普政府版的高加索复仇者联盟(Caucasian Avengers)后，杰夫·赛辛斯将努力方向转向提升长期被美国教育体系忽视的一个阶层:白人。
 

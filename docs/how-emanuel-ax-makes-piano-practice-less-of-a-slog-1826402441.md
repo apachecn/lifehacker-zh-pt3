@@ -1,6 +1,6 @@
 # 伊曼纽尔·埃克斯如何让钢琴练习不那么辛苦
 
-> 原文:[https://life hacker . com/how-Emanuel-ax-makes-piano-practice-less-of-a-slog-1826402441](https://lifehacker.com/how-emanuel-ax-makes-piano-practice-less-of-a-slog-1826402441)
+> 原文：<https://lifehacker.com/how-emanuel-ax-makes-piano-practice-less-of-a-slog-1826402441>
 
 七次获得格莱美奖的钢琴家伊曼纽尔·埃克斯仍然每天练习乐器四个小时——当你在卡内基音乐厅演奏时，你不只是即兴发挥。有时候，他承认，“这是一种苦差事”，尤其是练习一首新曲子:一些专门为他写的曲子，或者一些他从未听过的曲子。"你得到了音乐，你试着一个音符一个音符地学习它."在接受 Lifehacker 的采访时，Ax 推荐了几种让练习乐器变得更有趣、更有效率的方法。
 

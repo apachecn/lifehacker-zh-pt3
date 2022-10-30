@@ -1,6 +1,6 @@
 # 一场车祸如何让一个人成为世界上最重要的古董儿童座椅收藏家
 
-> 原文:[https://jalopnik . com/how-a-car-crash-turn-one-man-into-the-worlds-foremonly-1820449151](https://jalopnik.com/how-a-car-crash-turned-one-man-into-the-worlds-foremost-1820449151)
+> 原文：<https://jalopnik.com/how-a-car-crash-turned-one-man-into-the-worlds-foremost-1820449151>
 
 你现在看到的荣耀是世界上最大的老式儿童汽车座椅系列之一。相信我们，这比听起来有趣多了。一位名叫斯科特的 Jalopnik 读者在过去 30 年里收集了近 100 个老式汽车座椅，他说，其中一些甚至出现在好莱坞大片中。以下是这些世界级的老式古怪汽车座椅的近景。
 

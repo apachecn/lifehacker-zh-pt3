@@ -1,6 +1,6 @@
 # 使用此应用程序，通过沉浸式学习电视节目和书籍来学习外语
 
-> 原文:[https://life hacker . com/learn-a-foreign-language through-immersion-with-TV-show-1828277607](https://lifehacker.com/learn-a-foreign-language-through-immersion-with-tv-show-1828277607)
+> 原文：<https://lifehacker.com/learn-a-foreign-language-through-immersion-with-tv-show-1828277607>
 
 当你试图学习一门外语时，没有比沉浸其中更好的方法了。毕竟，语言沉浸是我们大多数人小时候学习第一语言的方式。当你周围的一切都是用一种特定的语言写的时候，你很可能要努力去弄清楚。
 

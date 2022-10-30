@@ -1,6 +1,6 @@
 # 赠送随处锻炼的礼物
 
-> 原文:[https://life hacker . com/give-the-give-gift-of-go-anywhere-students-1788546900](https://lifehacker.com/give-the-gift-of-go-anywhere-workouts-1788546900)
+> 原文：<https://lifehacker.com/give-the-gift-of-go-anywhere-workouts-1788546900>
 
 面对现实吧:你不能拖着一个 200 磅的杠铃去参加奶奶的节日派对。幸运的是，一些最好的锻炼装备可以放在背包甚至口袋里——非常适合旅行者或者任何想在任何地方锻炼的人。这些都是我们最喜欢的健身用品，轻便、实用。
 

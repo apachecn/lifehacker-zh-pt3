@@ -1,6 +1,6 @@
 # 如何检查您的信用卡信息是否在最近的 Chipotle 黑客攻击中被盗
 
-> 原文:[https://life hacker . com/how-to-check-if-your ' s credit-card-info-is-the-1795670065](https://lifehacker.com/how-to-check-if-your-credit-card-info-was-stolen-in-the-1795670065)
+> 原文：<https://lifehacker.com/how-to-check-if-your-credit-card-info-was-stolen-in-the-1795670065>
 
 Chipotle [在四月](http://fortune.com/2017/04/25/chipotles-restaurants-hacked/) 宣布他们的支付系统被黑客攻击，客户信用卡信息可能被盗。事实证明，这正是所发生的。
 

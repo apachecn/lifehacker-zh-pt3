@@ -1,6 +1,6 @@
 # 如何观看 NASA 的电离层云实验
 
-> 原文:[https://life hacker . com/how-to-watch-NASA-s-电离层-云-实验-1796033568](https://lifehacker.com/how-to-watch-nasa-s-ionosphere-cloud-experiment-1796033568)
+> 原文：<https://lifehacker.com/how-to-watch-nasa-s-ionosphere-cloud-experiment-1796033568>
 
 如果你在东海岸看到天空中有一些奇怪颜色的云，这可能是科学的错。
 

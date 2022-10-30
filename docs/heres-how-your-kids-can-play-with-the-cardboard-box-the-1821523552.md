@@ -1,6 +1,6 @@
 # 以下是你的孩子如何玩装圣诞礼物的纸箱
 
-> 原文:[https://life hacker . com/heres-how-your-kids-can-play-the-1821523552](https://lifehacker.com/heres-how-your-kids-can-play-with-the-cardboard-box-the-1821523552)
+> 原文：<https://lifehacker.com/heres-how-your-kids-can-play-with-the-cardboard-box-the-1821523552>
 
 承认你预见到了。圣诞老人送给你的孩子一个精心制作的 270 件魔法木制小屋，里面住满了小森林动物的家庭，现在孩子只想玩它进来的盒子。不要试图改变方向——顺其自然。以下是孩子们可以用一个简陋的纸板容器做的 10 件事。当他们都用完了，回收！
 

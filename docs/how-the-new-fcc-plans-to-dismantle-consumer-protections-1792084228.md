@@ -1,6 +1,6 @@
 # 新的联邦通信委员会计划如何取消消费者保护
 
-> 原文:[https://life hacker . com/how-the-new-FCC-plans-disarmament-consumer-protections-1792084228](https://lifehacker.com/how-the-new-fcc-plans-to-dismantle-consumer-protections-1792084228)
+> 原文：<https://lifehacker.com/how-the-new-fcc-plans-to-dismantle-consumer-protections-1792084228>
 
 新总统带来了新的联邦通信委员会。该机构有了一位新主席 ，他在过去几天里已经开始进行重大变革。下面是正在发生的事情以及它如何影响 [网络中立原则](https://lifehacker.com/an-introduction-to-net-neutrality-what-it-is-what-it-5720407) 向前发展。
 

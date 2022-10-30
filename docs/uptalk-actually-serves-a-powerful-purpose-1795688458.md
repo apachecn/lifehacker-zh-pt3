@@ -1,6 +1,6 @@
 # 升调实际上有一个强大的目的
 
-> 原文:[https://life hacker . com/uptalk-actually-serve-a-powerful-purpose-purpose-1795688458](https://lifehacker.com/uptalk-actually-serves-a-powerful-purpose-1795688458)
+> 原文：<https://lifehacker.com/uptalk-actually-serves-a-powerful-purpose-1795688458>
 
 升调过去似乎是一件坏事。“山谷女孩”的演讲模式，即演讲者的陈述以向上的音调结束，使它们听起来像问题，在 20 世纪 70 年代由语言学家 首次发现，并长期被嘲笑为不严肃的标志。1993 年， [*《纽约时报》*作家詹姆斯·戈尔曼](http://www.nytimes.com/1993/08/15/magazine/on-language-like-uptalk.html) 承认它可能有一些用途，但他担心它会被像飞机驾驶员这样的权威人士使用。
 

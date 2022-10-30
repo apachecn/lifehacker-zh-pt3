@@ -1,6 +1,6 @@
 # 为什么这个夏天你应该烧烤你的甜甜圈
 
-> 原文:[https://life hacker . com/why-you-should-grinking-you-doughnuts-this-summer-1795767931](https://lifehacker.com/why-you-should-be-grilling-your-doughnuts-this-summer-1795767931)
+> 原文：<https://lifehacker.com/why-you-should-be-grilling-your-doughnuts-this-summer-1795767931>
 
 今天是全国油炸圈饼日——或者，就像人们喜欢称之为“星期五”，因为如果你足够努力，任何一天都可以是油炸圈饼日。不过说实话，我喜欢任何谈论甜甜圈的机会，并希望利用这个假期让人们了解我最喜欢的夏季甜点:*烤*甜甜圈。
 

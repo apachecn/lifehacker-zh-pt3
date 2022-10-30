@@ -1,6 +1,6 @@
 # 本周我们读到的最好的东西
 
-> 原文:[https://life hacker . com/the-best-this-we-read-this-week-1824001093](https://lifehacker.com/the-best-things-we-read-this-week-1824001093)
+> 原文：<https://lifehacker.com/the-best-things-we-read-this-week-1824001093>
 
 当我们不写关于或 [为什么不应该退出脸书](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) 的文章时，Lifehacker 的员工通常会翻阅他们的 [口袋清单](https://lifehacker.com/read-it-later-showdown-pocket-vs-instapaper-1756021479)[搜索 Reddit](https://lifehacker.com/if-meditation-stresses-you-out-try-this-1823969908) 或了解最新的畅销书。幸运的是，阅读是工作的一大部分。
 

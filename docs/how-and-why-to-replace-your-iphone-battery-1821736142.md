@@ -1,6 +1,6 @@
 # 如何(为什么)更换你的 iPhone 电池
 
-> 原文:[https://life hacker . com/how-and-why-to-replace-your-iphone-battery-1821736142](https://lifehacker.com/how-and-why-to-replace-your-iphone-battery-1821736142)
+> 原文：<https://lifehacker.com/how-and-why-to-replace-your-iphone-battery-1821736142>
 
 有 iPhone 6 或 6s 吗？很可能你正在处理一个稍微慢一点的智能手机，这要感谢 [苹果公司透露](https://gizmodo.com/apple-says-poor-performance-in-aging-iphones-is-part-of-1821475602) 它正在减慢受降级电池影响的 [iOS 设备](https://gizmodo.com/how-to-tell-if-your-iphone-battery-is-screwed-and-what-1821554872) 。该公司此后宣布，将为 iPhone 6 和更高版本的设备提供电池更换。但是不管你是不是某个电源管理混乱的受害者，你都应该更换电池。
 

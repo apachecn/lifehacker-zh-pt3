@@ -1,6 +1,6 @@
 # 漫画书是书
 
-> 原文:[https://lifehacker.com/comic-books-are-books-1822641467](https://lifehacker.com/comic-books-are-books-1822641467)
+> 原文：<https://lifehacker.com/comic-books-are-books-1822641467>
 
 漫画可以发人深省，打破界限，情感复杂，以及没有图片的书籍可以做到的所有事情。任何一个曾经生吞活剥过像 [*安雅的幽灵*](http://www.amazon.com/Anyas-Ghost-Vera-Brosgol/dp/1250040019/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/comic-books-are-books-1822641467&asc_source=&ie=UTF8&keywords=Anya’s Ghost&qid=1449088734&sr=8-1&tag=kinjalifehackerlink-20) 或者[*隐形的 Emmie*](https://www.amazon.com/Invisible-Emmie-Terri-Libenson/dp/0062484931/ref=pd_bxgy_14_img_3?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/comic-books-are-books-1822641467&asc_source=&pd_rd_i=0062484931&pd_rd_r=E2R09D3C52Q422C7PKZ9&pd_rd_w=5Uy2M&pd_rd_wg=GxuW0&psc=1&refRID=E2R09D3C52Q422C7PKZ9&tag=kinjalifehackerlink-20) 或者 [*这样的标题的小朋友，一时间一皱:图文小说*](https://www.amazon.com/Wrinkle-Time-Graphic-Novel/dp/1250056942/ref=pd_bxgy_14_img_2?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/comic-books-are-books-1822641467&asc_source=&pd_rd_i=1250056942&pd_rd_r=E2R09D3C52Q422C7PKZ9&pd_rd_w=5Uy2M&pd_rd_wg=GxuW0&psc=1&refRID=E2R09D3C52Q422C7PKZ9&tag=kinjalifehackerlink-20) 已经可以告诉你这一点了。然而，一些家长可以使用更有说服力的。仍然有一种观点认为漫画不是“真正的”文学，或者他们只是帮助不情愿的读者从图画书过渡到章节书的一个途径。但是他们可以做得更多。这就是为什么所有的孩子都应该探索广阔的漫画世界，如果他们还没有。
 

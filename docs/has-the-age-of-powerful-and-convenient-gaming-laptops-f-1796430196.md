@@ -1,6 +1,6 @@
 # 华硕 Zephyrus 点评:强大便捷的游戏笔记本电脑时代终于到来了吗？
 
-> 原文:[https://gizmodo . com/has-the-age-of-powerful-and-convenient-gaming-laptops-f-1796430196](https://gizmodo.com/has-the-age-of-powerful-and-convenient-gaming-laptops-f-1796430196)
+> 原文：<https://gizmodo.com/has-the-age-of-powerful-and-convenient-gaming-laptops-f-1796430196>
 
 几周前，我冒着 E3 的拥挤人群去见 Nvidia 团队，虽然我表面上是在 PC 上查看命运 2，但我真正想知道的是 [到底什么是 Max-Q 设计](http://gizmodo.com/what-you-need-to-know-about-max-q-nvidias-plan-to-mak-1795658324#_ga=2.128105358.349583501.1498479351-1400882675.1486143502) 。Nvidia 在 5 月份宣布了它的新设计理念，我花了几周时间无法摆脱这只是一个巨大的营销策略的感觉——承认 Nvidia 最强大的 GPU 往往最终成为 [巨大的计算怪物](http://gizmodo.com/nine-days-with-an-absurd-9-000-gaming-laptop-1794290421) 。
 

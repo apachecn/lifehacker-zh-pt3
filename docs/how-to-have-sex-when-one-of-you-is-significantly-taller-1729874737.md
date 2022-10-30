@@ -1,6 +1,6 @@
 # 当你们中的一个明显比另一个高时，如何做爱
 
-> 原文:[https://life hacker . com/how-to-have-sex-when-one of you ' s-martially-higher-1729874737](https://lifehacker.com/how-to-have-sex-when-one-of-you-is-significantly-taller-1729874737)
+> 原文：<https://lifehacker.com/how-to-have-sex-when-one-of-you-is-significantly-taller-1729874737>
 
 我身高五英尺，嫁给了一个六英尺高的人。作为一个小个子，我太熟悉当我试图下来的时候，我的脸卡在腋下或者挤压在乳头上。以下是我学到的当身高差距很大时亲密的方法。
 

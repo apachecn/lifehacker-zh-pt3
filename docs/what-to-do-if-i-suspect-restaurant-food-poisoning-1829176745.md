@@ -1,6 +1,6 @@
 # 问咸女服务员:怀疑某餐厅给我食物中毒了怎么办？
 
-> 原文:[https://the take out . com/what-do-if-I-suspect-restaurant-food-poisoning-1829176745](https://thetakeout.com/what-to-do-if-i-suspect-restaurant-food-poisoning-1829176745)
+> 原文：<https://thetakeout.com/what-to-do-if-i-suspect-restaurant-food-poisoning-1829176745>
 
 > 亲爱的咸味，我就不跟你细说了，但我上周得了一场严重的食物中毒，基本上让我在浴室里呆了 48 小时。我很确定是因为我在意大利餐馆吃的一顿饭；具体来说，我怀疑蛤蜊。
 > 

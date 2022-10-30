@@ -1,6 +1,6 @@
 # 如何减少你对猫的过敏反应
 
-> 原文:[https://life hacker . com/how-to-reduce-your ' s allergy-reaction-to-cats-1828196517](https://lifehacker.com/how-to-reduce-your-allergic-reaction-to-cats-1828196517)
+> 原文：<https://lifehacker.com/how-to-reduce-your-allergic-reaction-to-cats-1828196517>
 
 国际猫日快乐！庆祝的最佳方式是享受当地猫科动物的陪伴。可悲的是，猫过敏阻碍了一些猫崇拜者享受它们可爱的笑脸。但是，即使你非常过敏，你也可以采取一些措施来帮助缓解症状，并享受这些挥发性毛球的每一天。
 

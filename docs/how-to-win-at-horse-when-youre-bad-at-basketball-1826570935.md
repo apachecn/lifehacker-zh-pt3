@@ -1,6 +1,6 @@
 # 当你篮球打得不好时，如何在赛马中获胜
 
-> 原文:[https://life hacker . com/how-to-win-at-horse-when you ' s bad-basketball-1826570935](https://lifehacker.com/how-to-win-at-horse-when-youre-bad-at-basketball-1826570935)
+> 原文：<https://lifehacker.com/how-to-win-at-horse-when-youre-bad-at-basketball-1826570935>
 
 从出生到 34 岁，我一直擅长一项运动，躲避球，因为直到几年前，我从未超过 110 磅。现在我准备好擅长第二项运动:马(篮球比赛，不是动物)。
 

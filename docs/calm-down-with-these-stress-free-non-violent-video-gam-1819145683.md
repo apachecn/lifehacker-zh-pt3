@@ -1,6 +1,6 @@
 # 用这些无压力、非暴力的电子游戏来平静下来
 
-> 原文:[https://life hacker . com/calm-down-with-thes-stress-free-非暴力-video-gam-1819145683](https://lifehacker.com/calm-down-with-these-stress-free-non-violent-video-gam-1819145683)
+> 原文：<https://lifehacker.com/calm-down-with-these-stress-free-non-violent-video-gam-1819145683>
 
 受到来自 [2016 自我保健果酱](https://itch.io/jam/self-care-jam#entries) (其中 [Kotaku 挖掘了最喜欢的](https://kotaku.com/a-self-care-game-for-the-trashfire-that-was-2016-1789693980) )的游戏的启发，MetaFilter 用户最近将 [命名为他们最喜欢的平静视频游戏](http://www.metafilter.com/169741/-games-that-encourage-players-to-take-a-moment-and-breathe) 。有些会很熟悉，但有些是独立开发者的深度切割。大部分不是为了输赢，只是探索，互动，存在。没有一个强迫你在紧张的对决中与其他玩家战斗。如果你对《守望先锋》或《瘟疫公司》感到压力过大，可以试试这些
 

@@ -1,6 +1,6 @@
 # 如何最终开始锻炼(即使你讨厌它)
 
-> 原文:[https://life hacker . com/how-to-finally-start-work-out-even-if-you-hate-it-1729593891](https://lifehacker.com/how-to-finally-start-working-out-even-if-you-hate-it-1729593891)
+> 原文：<https://lifehacker.com/how-to-finally-start-working-out-even-if-you-hate-it-1729593891>
 
 讨厌锻炼并不等同于懒惰。锻炼动机是一个复杂的话题，但是如果离开沙发对你来说是最难的部分，我们已经帮你解决了。以下是最终开始锻炼的方法，不管你有多讨厌它。
 

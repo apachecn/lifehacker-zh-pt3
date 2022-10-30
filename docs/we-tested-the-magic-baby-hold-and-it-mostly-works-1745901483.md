@@ -1,6 +1,6 @@
 # 我们测试了神奇的婴儿抱抱——它(大部分)是有效的
 
-> 原文:[https://life hacker . com/we-tested-the-magic-baby-hold-and-it-most-works-1745901483](https://lifehacker.com/we-tested-the-magic-baby-hold-and-it-mostly-works-1745901483)
+> 原文：<https://lifehacker.com/we-tested-the-magic-baby-hold-and-it-mostly-works-1745901483>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-j2C8MkY7Co8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-j2C8MkY7Co8&start=0) 
 

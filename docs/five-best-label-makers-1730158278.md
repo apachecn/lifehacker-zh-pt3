@@ -1,6 +1,6 @@
 # 五大最佳标签制造商
 
-> 原文:[https://lifehacker.com/five-best-label-makers-1730158278](https://lifehacker.com/five-best-label-makers-1730158278)
+> 原文：<https://lifehacker.com/five-best-label-makers-1730158278>
 
 一个好的标签制作机可以是便携的，手持的，通过 USB 连接到你的电脑上，或者介于两者之间，但它需要打印出可读和持久的好标签，不管它们是在文件柜，你的餐具室，还是你的冰箱里。根据你的推荐，本周我们来看五个最好的。
 

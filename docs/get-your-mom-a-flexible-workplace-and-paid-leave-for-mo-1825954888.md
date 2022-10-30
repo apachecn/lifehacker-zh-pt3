@@ -1,6 +1,6 @@
 # 给你的妈妈一个灵活的工作场所和带薪的母亲节假期
 
-> 原文:[https://life hacker . com/get-your-mom-a-flexible-workplace-and-payed-leave-for-mo-1825954888](https://lifehacker.com/get-your-mom-a-flexible-workplace-and-paid-leave-for-mo-1825954888)
+> 原文：<https://lifehacker.com/get-your-mom-a-flexible-workplace-and-paid-leave-for-mo-1825954888>
 
 在父母生孩子时做出的诸多牺牲中，对工薪家庭来说最紧迫的一项是母亲一生的收入所遭受的财务打击。
 

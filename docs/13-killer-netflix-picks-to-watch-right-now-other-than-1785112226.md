@@ -1,6 +1,6 @@
 # 13 黑仔·网飞选择现在看(除了奇怪的东西)
 
-> 原文:[https://gizmodo . com/13-killer-网飞-picks-to-watch-right-now-than-1785112226](https://gizmodo.com/13-killer-netflix-picks-to-watch-right-now-other-than-1785112226)
+> 原文：<https://gizmodo.com/13-killer-netflix-picks-to-watch-right-now-other-than-1785112226>
 
 现在，宇宙中的每个人都知道,*陌生的事物*是惊人的，值得一遍又一遍地观看。但是也许你需要暂时离开#TeamBarb 和狄摩高根。现在网飞有一些非常棒的类型电影，我们有一些推荐。
 

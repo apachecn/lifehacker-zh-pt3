@@ -1,6 +1,6 @@
 # 如何为任何 macOS 系统偏好设置面板添加 Dock 快捷键
 
-> 原文:[https://life hacker . com/how-to-add-a-dock-shortcut-for-any-MAC OS-system-prefere-1828489793](https://lifehacker.com/how-to-add-a-dock-shortcut-for-any-macos-system-prefere-1828489793)
+> 原文：<https://lifehacker.com/how-to-add-a-dock-shortcut-for-any-macos-system-prefere-1828489793>
 
 如果您经常访问 Mac 上的同一个“系统偏好设置”面板，您可以将快捷方式直接添加到 Dock。下面是方法:
 

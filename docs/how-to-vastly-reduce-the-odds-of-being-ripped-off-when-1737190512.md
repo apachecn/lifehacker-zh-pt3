@@ -1,6 +1,6 @@
 # 购买二手车时如何大大降低被骗的几率
 
-> 原文:[https://jalopnik . com/how-to-大幅降低被盗几率-when-1737190512](https://jalopnik.com/how-to-vastly-reduce-the-odds-of-being-ripped-off-when-1737190512)
+> 原文：<https://jalopnik.com/how-to-vastly-reduce-the-odds-of-being-ripped-off-when-1737190512>
 
 在我 24 年的法律从业生涯中，我和成千上万在购买二手车时被敲竹杠的消费者谈过话。有几个主题我反复听到。我把我所看到的浓缩成几条简单的规则，如果你遵守的话，会对你有所帮助。
 

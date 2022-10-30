@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 15 日至 22 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-15-to-22-1784131323](https://lifehacker.com/this-weeks-most-popular-posts-july-15th-to-22nd-1784131323)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-15th-to-22nd-1784131323>
 
 本周我们继续追逐神奇宝贝，用一些更先进的战术来捕捉你最喜欢的怪物。与此同时，在非增强现实中，我们了解了当前的政治惯例，如何越狱 Kindle，哪些食物对猫来说是危险的，等等。这里回顾一下。
 

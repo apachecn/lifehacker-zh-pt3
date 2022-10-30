@@ -1,6 +1,6 @@
 # 它会腐烂吗？小罐蛋糕
 
-> 原文:[https://life hacker . com/will-it-sous-vide-little-jars-of-cake-1792697992](https://lifehacker.com/will-it-sous-vide-little-jars-of-cake-1792697992)
+> 原文：<https://lifehacker.com/will-it-sous-vide-little-jars-of-cake-1792697992>
 
 你好，sous-vide fam，欢迎回到另一集 [*它会 sous-vide 吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

@@ -1,6 +1,6 @@
 # 有哪些怪异的厨房电器是你离不开的？
 
-> 原文:[https://life hacker . com/what-verged-kitchen-appliance-can-you-not-live-without-1797434642](https://lifehacker.com/what-weird-kitchen-appliance-can-you-not-live-without-1797434642)
+> 原文：<https://lifehacker.com/what-weird-kitchen-appliance-can-you-not-live-without-1797434642>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你所有关于食物的想法、建议、食谱和观点。今天我想了解一下你最喜欢的古怪却又必不可少的厨房工具，即使它们是——gasp—[一次性](http://lifehacker.com/watch-alton-brown-demonstrate-why-unitaskers-have-no-1749470145) 。
 

@@ -1,6 +1,6 @@
 # 如何回答家人经常问的尴尬的私人问题
 
-> 原文:[https://life hacker . com/how-to-answer-the-hangible-private-questions-your-famili-1747202575](https://lifehacker.com/how-to-answer-the-awkward-private-questions-your-famil-1747202575)
+> 原文：<https://lifehacker.com/how-to-answer-the-awkward-private-questions-your-famil-1747202575>
 
 几年前，我带了一个新男朋友去圣诞晚宴。“这是上次那个男生吗？”我叔叔问。这已经够糟了，但是当我告诉他不，他接着说，“每年都是不同的男孩。”圣诞快乐！如果你的家庭和我的一样，他们喜欢问令人痛苦的尴尬问题，这会让假期充满压力。以下是处理方法。
 

@@ -1,6 +1,6 @@
 # 让你的厨房公司在 10 分钟内准备好
 
-> 原文:[https://life hacker . com/get-your-kitchen-company-ready-in-10 分钟-1826263599](https://lifehacker.com/get-your-kitchen-company-ready-in-10-minutes-1826263599)
+> 原文：<https://lifehacker.com/get-your-kitchen-company-ready-in-10-minutes-1826263599>
 
 我喜欢有人陪伴。我甚至不介意意外，最后一分钟，“嘿，我在你的邻居”公司。事实上，如果我在家，我几乎总是准备好接待客人，但我的厨房是另一回事。但即使水槽里有一堆盘子，空气中有一股奇怪的味道，我也能在 10 分钟左右把它收拾好。我是这样做的。
 

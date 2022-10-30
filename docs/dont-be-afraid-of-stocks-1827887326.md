@@ -1,6 +1,6 @@
 # 不要害怕股票
 
-> 原文:[https://lifehacker.com/dont-be-afraid-of-stocks-1827887326](https://lifehacker.com/dont-be-afraid-of-stocks-1827887326)
+> 原文：<https://lifehacker.com/dont-be-afraid-of-stocks-1827887326>
 
 最近的几项调查凸显了千禧一代在财务方面落后于 x 世代和婴儿潮一代的一个容易修复的方式:一些人持有太多现金。
 

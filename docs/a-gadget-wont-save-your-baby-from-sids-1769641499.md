@@ -1,6 +1,6 @@
 # 一个小玩意不会让你的宝宝得婴儿猝死综合症
 
-> 原文:[https://life hacker . com/a-gadget-wot-save-your-baby-from-SIDS-1769641499](https://lifehacker.com/a-gadget-wont-save-your-baby-from-sids-1769641499)
+> 原文：<https://lifehacker.com/a-gadget-wont-save-your-baby-from-sids-1769641499>
 
 我，以及我认识的每一位初为人父母者，都对婴儿猝死综合症(俗称婴儿猝死综合症)感到恐惧。这是导致一个月到一岁大的婴儿死亡的 [头号杀手，每年有 2500 人在睡梦中安详地死去。因此，我们不断检查，看看我们的婴儿是否还在呼吸。](http://kidshealth.org/en/parents/sids.html)
 

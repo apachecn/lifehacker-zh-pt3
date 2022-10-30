@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 15 日至 22 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-1 月 15 日至 22 日-1754331850](https://lifehacker.com/this-weeks-most-popular-posts-january-15th-to-22nd-1754331850)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-15th-to-22nd-1754331850>
 
 本周，我们终于对顶级平板电脑进行了测试，以了解 iPad Pro 与 Surface Pro 4 相比如何，了解了 iOS 9.3 的新功能，了解了发送浪漫短信的注意事项，等等。
 

@@ -1,6 +1,6 @@
 # 购物时帮你省钱的八件小事
 
-> 原文:[https://life hacker . com/eight-little-things-that-will-save-you-r-1790528436](https://lifehacker.com/eight-little-things-that-will-save-you-money-when-you-r-1790528436)
+> 原文：<https://lifehacker.com/eight-little-things-that-will-save-you-money-when-you-r-1790528436>
 
 我有一个小笔记，我不断更新和保存(使用 [Evernote](http://www.evernote.com/) )，里面充满了我学到或想到的小技巧和策略，并希望在某个时候包含在帖子中。最终，我收集了一大堆。这里有八个购物的小策略，让你花更少的钱，买更少你不真正需要的东西。
 

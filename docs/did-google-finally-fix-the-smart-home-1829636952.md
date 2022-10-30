@@ -1,6 +1,6 @@
 # 谷歌最终修好智能家居了吗？
 
-> 原文:[https://gizmodo . com/did-Google-finally-fix-the-smart-home-1829636952](https://gizmodo.com/did-google-finally-fix-the-smart-home-1829636952)
+> 原文：<https://gizmodo.com/did-google-finally-fix-the-smart-home-1829636952>
 
 Home Hub 出现在本周的“谷歌制造”活动上，就像你忘了点的甜点。当然，有很多传言称谷歌将发布自己的触屏家庭设备[。但是在花了几分钟的时间后，我意识到这可能是一种享受。这个小枢纽可能是将整个智能家居概念联系在一起的东西。](https://gizmodo.com/google-has-a-smart-display-now-and-it-s-called-home-hub-1829619683?rev=1539100589459)
 

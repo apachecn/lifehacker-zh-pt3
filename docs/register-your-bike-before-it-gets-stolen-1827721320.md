@@ -1,6 +1,6 @@
 # 在你的自行车被偷之前登记它
 
-> 原文:[https://life hacker . com/register-your-bike-before-that-get-sweet-1827721320](https://lifehacker.com/register-your-bike-before-it-gets-stolen-1827721320)
+> 原文：<https://lifehacker.com/register-your-bike-before-it-gets-stolen-1827721320>
 
 “当你的自行车被偷时，仅仅打电话给警察是没有多大帮助的” ，密尔沃基的自行车主人杰森·麦克道尔说。但是如果你登记你的自行车并记录下它的序列号，当你的自行车丢失时，你可以提醒社区和当地的自行车商店。这使得小偷更难卖掉你的自行车，而你更容易找回它。
 

@@ -1,6 +1,6 @@
 # 关于你孩子学校的正念项目，你应该知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-about-mindfulness-programs-in-your-kid-s-s-1819713137](https://lifehacker.com/what-to-know-about-mindfulness-programs-in-your-kid-s-s-1819713137)
+> 原文：<https://lifehacker.com/what-to-know-about-mindfulness-programs-in-your-kid-s-s-1819713137>
 
 越来越多的学校将正念加入到学生的日常生活中，通常作为快速冥想休息。它们似乎有助于一些孩子缓解压力，但它们是否有效背后的科学是复杂的。
 

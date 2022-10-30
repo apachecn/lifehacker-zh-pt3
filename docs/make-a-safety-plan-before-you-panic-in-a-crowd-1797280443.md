@@ -1,6 +1,6 @@
 # 在人群中惊慌失措之前，制定一个安全计划
 
-> 原文:[https://life hacker . com/make-a-safety plan-before-you-panic-in-a-crowd-1797280443](https://lifehacker.com/make-a-safety-plan-before-you-panic-in-a-crowd-1797280443)
+> 原文：<https://lifehacker.com/make-a-safety-plan-before-you-panic-in-a-crowd-1797280443>
 
 如果你被人群吓到了，你可能都不知道。你可能会紧张或生气。(在我注意到这种模式之前，我已经在农贸市场烦躁了好几年。)而某些拥挤的地方，比如时代广场或空荡荡的体育场，会让任何人感到害怕。正如丽兹·拉斯基博士在《纽约时间》、、[中所说，有一个安全计划](https://www.timeout.com/newyork/blog/we-tested-out-tips-for-calming-down-in-the-middle-of-times-square-072517)、是有帮助的。
 

@@ -1,6 +1,6 @@
 # 如何找到真正有效的感冒药
 
-> 原文:[https://life hacker . com/how-to-find-the-cold-drugs-that-think-the-working-1822637530](https://lifehacker.com/how-to-find-the-cold-medicines-that-actually-work-1822637530)
+> 原文：<https://lifehacker.com/how-to-find-the-cold-medicines-that-actually-work-1822637530>
 
 感冒药和咳嗽药占据了杂货店和药店的整个过道，产品的排列令人眼花缭乱(如果你在那里，那就没什么意思了，因为你已经感到头晕了)。然而，当你意识到很多选择可能不值得的时候，选择正确的包就变得容易了。
 

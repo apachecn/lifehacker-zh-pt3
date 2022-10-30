@@ -1,6 +1,6 @@
 # 今年夏天把冰袋绑在身上
 
-> 原文:[https://life hacker . com/strap-a-ice-pack-to-your body-this-summer-1827389273](https://lifehacker.com/strap-an-ice-pack-to-your-body-this-summer-1827389273)
+> 原文：<https://lifehacker.com/strap-an-ice-pack-to-your-body-this-summer-1827389273>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在从图书馆借阅电子书，从我们的浴室里清理粗糙的马桶刷，探索新的城市，用新的床上用品装饰我们的巢穴。
 

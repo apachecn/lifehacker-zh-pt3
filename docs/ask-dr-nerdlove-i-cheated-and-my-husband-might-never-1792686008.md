@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我出轨了，我丈夫可能永远不会原谅我
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-stressed-and-my-Johnny-may-never-1792686008](https://kotaku.com/ask-dr-nerdlove-i-cheated-and-my-husband-might-never-1792686008)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-cheated-and-my-husband-might-never-1792686008>
 
 你们好，所有的轮眼死亡旅鼠。欢迎来到 [问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，唯一的约会专栏那是 luchadore 戒指之王。
 

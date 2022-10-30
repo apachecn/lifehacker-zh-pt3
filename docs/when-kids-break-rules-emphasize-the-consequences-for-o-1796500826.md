@@ -1,6 +1,6 @@
 # 当孩子违反规则时，强调给他人带来的后果
 
-> 原文:[https://life hacker . com/when-kids-break-rules-emphasis-the-results-for-o-1796500826](https://lifehacker.com/when-kids-break-rules-emphasize-the-consequences-for-o-1796500826)
+> 原文：<https://lifehacker.com/when-kids-break-rules-emphasize-the-consequences-for-o-1796500826>
 
 当我四岁的儿子行为不端时(男孩 T1 也一样)，我有大约 3.7 秒的时间在大脑中浏览一系列可能的父母反应，并选择一个。
 

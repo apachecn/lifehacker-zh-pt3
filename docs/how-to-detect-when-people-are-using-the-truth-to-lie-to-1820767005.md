@@ -1,6 +1,6 @@
 # 如何发现人们在用事实对你撒谎
 
-> 原文:[https://life hacker . com/how-to-detect-when-people ' s-use-the-truth-to-lie 1820767005](https://lifehacker.com/how-to-detect-when-people-are-using-the-truth-to-lie-to-1820767005)
+> 原文：<https://lifehacker.com/how-to-detect-when-people-are-using-the-truth-to-lie-to-1820767005>
 
 谎言有三种类型:省略，即某人坚持事实；委员会，某人陈述不真实的事实；还有 *paltering* ，有人用真实的事实误导你。这并不总是容易察觉，但有一些迹象。
 

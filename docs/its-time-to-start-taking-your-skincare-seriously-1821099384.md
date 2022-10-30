@@ -1,6 +1,6 @@
 # 是时候认真对待你的护肤了
 
-> 原文:[https://life hacker . com/its-time-to-start-take-your skin care-serious-1821099384](https://lifehacker.com/its-time-to-start-taking-your-skincare-seriously-1821099384)
+> 原文：<https://lifehacker.com/its-time-to-start-taking-your-skincare-seriously-1821099384>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑正在完善他们的亚马逊愿望清单，简化我们的流媒体，与失眠作斗争，或者加倍沉迷于冷饮，这取决于你问了谁。
 

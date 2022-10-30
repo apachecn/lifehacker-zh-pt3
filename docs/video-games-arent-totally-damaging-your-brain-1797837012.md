@@ -1,6 +1,6 @@
 # 电子游戏并没有完全损害你的大脑
 
-> 原文:[https://life hacker . com/video-games-arent-total-damage-your-brain-1797837012](https://lifehacker.com/video-games-arent-totally-damaging-your-brain-1797837012)
+> 原文：<https://lifehacker.com/video-games-arent-totally-damaging-your-brain-1797837012>
 
 最近的一项研究发现，玩第一人称射击游戏的人的海马体出现萎缩，这是大脑中负责记忆管理和空间导航的区域。但是玩*使命召唤*真的对你有那么坏吗？如果是的话，每天一剂*超级马里奥 64* 能平衡一切吗？
 

@@ -1,6 +1,6 @@
 # 如何像专业人士一样分享 YouTube 视频
 
-> 原文:[https://life hacker . com/how-to-share-YouTube-videos-like-a-pro-1826994606](https://lifehacker.com/how-to-share-youtube-videos-like-a-pro-1826994606)
+> 原文：<https://lifehacker.com/how-to-share-youtube-videos-like-a-pro-1826994606>
 
 我怀疑你是否考虑过如何分享你找到的最新最棒的 YouTube 视频，因为你可能有一个惯例:点击或点击浏览器地址栏中的视频 URL，复制它，然后粘贴到短信或群聊中。很简单，对吧？
 

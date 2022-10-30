@@ -1,6 +1,6 @@
 # 如何熬过夏天让你痛苦的夏天
 
-> 原文:[https://life hacker . com/how-to-survive the summer-when summer-make you-miserab-1796164224](https://lifehacker.com/how-to-survive-the-summer-when-summer-makes-you-miserab-1796164224)
+> 原文：<https://lifehacker.com/how-to-survive-the-summer-when-summer-makes-you-miserab-1796164224>
 
 根据 Instagram 上所有脚趾伸展在躺椅上的照片，许多人喜欢夏天。他们沐浴在明亮的阳光下，陶醉在炎热中，并不特别介意七月和八月游泳衣里有沙子/防晒霜在眼睛里的感觉；阵亡将士纪念日周末进入视线的那一刻，总是西瓜、帆船和海滩烧烤。
 

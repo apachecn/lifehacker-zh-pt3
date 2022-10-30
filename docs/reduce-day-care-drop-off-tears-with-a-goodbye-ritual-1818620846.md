@@ -1,6 +1,6 @@
 # 用告别仪式减少日托所的眼泪
 
-> 原文:[https://life hacker . com/reduce-day-care-drop-off-tears-with-a-goodbye-ritual-1818620846](https://lifehacker.com/reduce-day-care-drop-off-tears-with-a-goodbye-ritual-1818620846)
+> 原文：<https://lifehacker.com/reduce-day-care-drop-off-tears-with-a-goodbye-ritual-1818620846>
 
 把小孩送到日托所或幼儿园可能会很艰难。可能会有抗议和哀号。你的孩子可能会死死抓住你的腿不放。当我女儿在一岁半的时候开始去日托，她在最初的六个星期里每天都哭。老师们都很棒，我知道她很安全，也受到很好的照顾，但看到她如此悲伤，我很难过。
 

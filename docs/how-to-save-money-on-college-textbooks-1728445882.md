@@ -1,6 +1,6 @@
 # 如何在大学课本上省钱
 
-> 原文:[https://life hacker . com/how-to-save money-on-college-textbooks-1728445882](https://lifehacker.com/how-to-save-money-on-college-textbooks-1728445882)
+> 原文：<https://lifehacker.com/how-to-save-money-on-college-textbooks-1728445882>
 
 大学课本购买对每个学生来说都是一项昂贵的例行公事。但是富有同情心的教授和容易获取信息的工具可以让人们很容易找到削减成本的方法。利用这些工具，用它们来为你的课本开支节省一些钱。
 

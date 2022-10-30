@@ -1,6 +1,6 @@
 # 如何使用 AirPods 听飞机上的电影
 
-> 原文:[https://life hacker . com/how-to-listen-a-in-a-flight-system-with-your-ai rpods-1826049133](https://lifehacker.com/how-to-listen-to-an-in-flight-system-with-your-airpods-1826049133)
+> 原文：<https://lifehacker.com/how-to-listen-to-an-in-flight-system-with-your-airpods-1826049133>
 
 我爱我的蓝牙耳塞，考虑到苹果 [AirPods](https://lifehacker.com/the-gross-but-effective-way-to-clean-your-airpods-1820945258) 的 [暴走成功](https://qz.com/1068001/apples-airpods-generated-a-ton-of-cash-since-they-were-released/) ，我不是一个人。但偶尔我会遇到一种情况，我希望我仍然有一些带 3.5 毫米好电缆的耳机。
 

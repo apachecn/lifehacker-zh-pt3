@@ -1,6 +1,6 @@
 # Twitter 有一些避免《权力的游戏》剧透的建议
 
-> 原文:[https://gizmodo . com/Twitter-has-some-advice-for-avoiding-game-of-thrones-sp-1796962278](https://gizmodo.com/twitter-has-some-advice-for-avoiding-game-of-thrones-sp-1796962278)
+> 原文：<https://gizmodo.com/twitter-has-some-advice-for-avoiding-game-of-thrones-sp-1796962278>
 
 《权力的游戏》最新一季《T2》今晚将在 HBO 首播，你知道这意味着什么。HBO Go 将会崩溃，你今晚将看不到它，你的 Twitter feed 将只是标题为“RIP”的 [瑟曦的照片 Twitter 提供了一个关于静音功能的提醒，还添加了一些关键词，这样你就可以阻止自己被宠坏。](https://io9.gizmodo.com/will-cersei-lannister-survive-game-of-thrones-1796936383) 
 

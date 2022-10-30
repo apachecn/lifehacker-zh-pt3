@@ -1,6 +1,6 @@
 # 这些城市为面临驱逐的居民提供免费法律代理
 
-> 原文:[https://life hacker . com/these-cities-is-provide-free-legal-representation-to-1820344551](https://lifehacker.com/these-cities-are-providing-free-legal-representation-to-1820344551)
+> 原文：<https://lifehacker.com/these-cities-are-providing-free-legal-representation-to-1820344551>
 
 说现任政府一直在推行极其严厉的移民政策是一种委婉的说法。川普甚至废除了童年抵美延期行动(DACA)计划，该计划旨在保护童年时期被带到美国的无证移民。该国经历了危及许多人的大规模袭击，因此，美国各城市现在正共同努力，保护人们免受危险的联邦政策的影响。
 

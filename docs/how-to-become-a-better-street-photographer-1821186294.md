@@ -1,6 +1,6 @@
 # 如何成为更好的街头摄影师
 
-> 原文:[https://life hacker . com/how-to-be-better-street-摄影师-1821186294](https://lifehacker.com/how-to-become-a-better-street-photographer-1821186294)
+> 原文：<https://lifehacker.com/how-to-become-a-better-street-photographer-1821186294>
 
 我已经做了近十年的专业摄影师，但每次出去拍街拍时，我还是会有点紧张。
 

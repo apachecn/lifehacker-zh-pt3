@@ -1,6 +1,6 @@
 # 卢比奥-特朗普育儿假政策只会加剧退休危机
 
-> 原文:[https://life hacker . com/the-rubio-trump-育儿假政策只会恶化-1822856028](https://lifehacker.com/the-rubio-trump-parental-leave-policy-would-only-worsen-1822856028)
+> 原文：<https://lifehacker.com/the-rubio-trump-parental-leave-policy-would-only-worsen-1822856028>
 
 佛罗里达州参议员马尔科·卢比奥和伊万卡·特朗普可能会有一个新的育儿假政策想法，他们希望你考虑一下，据报道，这是基于独立妇女论坛的这个提议 :新父母被给予 12 周的假期，赚取他们正常工资的 45%(相当于社会保障残疾)。对于这项协议，父母放弃六周的社会保障福利，当他们有资格。
 

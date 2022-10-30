@@ -1,6 +1,6 @@
 # 什么是真菌性痤疮，为什么那么多人会突然觉得自己得了？
 
-> 原文:[https://gizmodo . com/什么是真菌-痤疮-为什么这么多人-突然-1827373871](https://gizmodo.com/what-is-fungal-acne-and-why-do-so-many-people-suddenly-1827373871)
+> 原文：<https://gizmodo.com/what-is-fungal-acne-and-why-do-so-many-people-suddenly-1827373871>
 
 你有过这样的经历吗？无论你用什么产品，它都不会消失几个星期，甚至几个月。它是由许多小突起组成的吗？是不是有点痒？
 

@@ -1,6 +1,6 @@
 # 拥抱克隆是你最喜欢的宠物的毛绒复制品
 
-> 原文:[https://life hacker . com/cuddle-clones-is-glossy-replica-of-your-favorite-pets-1758608750](https://lifehacker.com/cuddle-clones-are-plush-replicas-of-your-favorite-pets-1758608750)
+> 原文：<https://lifehacker.com/cuddle-clones-are-plush-replicas-of-your-favorite-pets-1758608750>
 
 每次我看到这个由克隆人搂抱制作的毛绒动物，我都会心花怒放。它和我死去的狗一模一样。除了令人毛骨悚然的因素之外，这个定制的填充动物一直在为我的家人疗伤，并帮助我们保持对我们最喜爱的宠物的记忆更加生动和真实。
 

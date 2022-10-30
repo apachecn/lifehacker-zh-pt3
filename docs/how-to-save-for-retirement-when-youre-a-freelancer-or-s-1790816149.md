@@ -1,6 +1,6 @@
 # 当你是自由职业者或个体户时，如何为退休储蓄
 
-> 原文:[https://life hacker . com/how-to-save for the retirement-when you-a-a-s-1790816149](https://lifehacker.com/how-to-save-for-retirement-when-youre-a-freelancer-or-s-1790816149)
+> 原文：<https://lifehacker.com/how-to-save-for-retirement-when-youre-a-freelancer-or-s-1790816149>
 
 当你从事全职工作，每月收入稳定时，为退休储蓄并不容易。但是如果你是自由职业者，小企业主或者独立承包人呢？为退休储蓄足够的钱会更有挑战性，因为你的收入每个月会有很大的变化。
 

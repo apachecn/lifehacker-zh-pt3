@@ -1,6 +1,6 @@
 # 兴奋过后，如何适应一个新的城市
 
-> 原文:[https://life hacker . com/how-to-adjust-to-a-new-city-after-the-excition-wears-1826120677](https://lifehacker.com/how-to-adjust-to-a-new-city-after-the-excitement-wears-1826120677)
+> 原文：<https://lifehacker.com/how-to-adjust-to-a-new-city-after-the-excitement-wears-1826120677>
 
 因此...你在一个新城市的新生活已经过了六周了。
 

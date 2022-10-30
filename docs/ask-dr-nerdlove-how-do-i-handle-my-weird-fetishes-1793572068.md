@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我如何处理我怪异的恋物癖？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-handle-my-怪异恋物癖-1793572068](https://kotaku.com/ask-dr-nerdlove-how-do-i-handle-my-weird-fetishes-1793572068)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-handle-my-weird-fetishes-1793572068>
 
 大家好，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove#_ga=1.127286861.1796887270.1484784940) ，唯一阻止德古拉复活的交友栏目。
 

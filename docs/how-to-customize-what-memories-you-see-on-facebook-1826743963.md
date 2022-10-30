@@ -1,6 +1,6 @@
 # 如何定制你在脸书看到的记忆
 
-> 原文:[https://life hacker . com/how-to-customize-what-memories-you-see-on-Facebook-1826743963](https://lifehacker.com/how-to-customize-what-memories-you-see-on-facebook-1826743963)
+> 原文：<https://lifehacker.com/how-to-customize-what-memories-you-see-on-facebook-1826743963>
 
 如果你厌倦了在脸书上看到所有这些“今天”的帖子，你会讨厌脸书的最新更新。这家社交网络本周推出了一个新的页面，本质上是其“在这一天”功能的扩展版本，在这里你可以愉快地回忆起一年前的今天你吃的汉堡，或者你发布醉酒自拍的时间。
 

@@ -1,6 +1,6 @@
 # 你应该冷冻你自制的泡菜
 
-> 原文:[https://life hacker . com/you-should-be-frozen-your-自制泡菜-1797867531](https://lifehacker.com/you-should-be-freezing-your-homemade-pickles-1797867531)
+> 原文：<https://lifehacker.com/you-should-be-freezing-your-homemade-pickles-1797867531>
 
 夏天正处于最后的阵痛，这意味着要处理大量的农产品——我是说，品尝和珍惜。罐装和腌制可以帮助解决这个问题，但是你知道什么是超级大饼最难吃的吗？在一个已经很潮湿的厨房里，站在一壶开水前几个小时来消毒和密封光滑的玻璃罐。不，谢谢你。几年前我换成了冰柜泡菜，从那以后再也没有回头。如果你有一些可用的冷冻空间，这是一个很好的技巧。
 

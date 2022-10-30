@@ -1,6 +1,6 @@
 # 如何辨别照片是否被篡改
 
-> 原文:[https://life hacker . com/how-to-tell-if-a-photo-touch-withed-1797049627](https://lifehacker.com/how-to-tell-if-a-photo-has-been-doctored-1797049627)
+> 原文：<https://lifehacker.com/how-to-tell-if-a-photo-has-been-doctored-1797049627>
 
 几乎每张网上的照片都以某种方式进行过编辑，无论是通过裁剪、过滤、压缩、色彩校正，还是其他通常无害的润色。但是很多人试图将篡改过的图像作为真实的图像，导致恶作剧、疯狂的理论，以及不止一次地去 Snopes 进行事实核查。你可以通过帮助你周围的人辨别真假照片来为这个世界做点贡献。方法如下:
 

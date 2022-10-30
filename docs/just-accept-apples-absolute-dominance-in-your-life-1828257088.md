@@ -1,6 +1,6 @@
 # 接受苹果在你生活中的绝对主导地位
 
-> 原文:[https://life hacker . com/just-accept-apple-absolute-dominance-in-your life-1828257088](https://lifehacker.com/just-accept-apples-absolute-dominance-in-your-life-1828257088)
+> 原文：<https://lifehacker.com/just-accept-apples-absolute-dominance-in-your-life-1828257088>
 
 上次我们召集 Lifehacker 员工的 [周升级](https://lifehacker.com/stop-looking-at-twitter-so-much-unless-its-for-puppy-p-1828082794?rev=1533924407515) 时，我们的编辑正在削减 Twitter 和 Taco Bell 上的内容，晒小狗图片，并寻找新的方法来减少我们的咖啡消耗量。
 

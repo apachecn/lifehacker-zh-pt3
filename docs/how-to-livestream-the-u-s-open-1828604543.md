@@ -1,6 +1,6 @@
 # 如何直播美国公开赛
 
-> 原文:[https://life hacker . com/how-to-live stream-the-u-s-open-1828604543](https://lifehacker.com/how-to-livestream-the-u-s-open-1828604543)
+> 原文：<https://lifehacker.com/how-to-livestream-the-u-s-open-1828604543>
 
 美国网球公开赛于周一(8 月 27 日)在纽约正式拉开帷幕。塞雷娜·威廉姆斯休完产假回来了，罗杰·费德勒和诺瓦克·德约科维奇分别在澳大利亚网球公开赛和温布尔登网球公开赛上获得了胜利，所有网坛大牌都在为这一赛事做准备。
 

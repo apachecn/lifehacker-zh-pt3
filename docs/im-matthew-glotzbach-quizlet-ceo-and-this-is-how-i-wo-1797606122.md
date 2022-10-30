@@ -1,6 +1,6 @@
 # 我是 Matthew Glotzbach，Quizlet 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Matthew-glotzbach-quizlet-CEO-and-this-is-how-I-wo-1797606122](https://lifehacker.com/im-matthew-glotzbach-quizlet-ceo-and-this-is-how-i-wo-1797606122)
+> 原文：<https://lifehacker.com/im-matthew-glotzbach-quizlet-ceo-and-this-is-how-i-wo-1797606122>
 
 Matthew Glotzbach 是 Quizlet 的首席执行官，该学习应用程序使用抽认卡、游戏和测试来教授数以千计的科目。他加入 Quizlet 之前在谷歌工作了 12 年，最近在 YouTube 担任产品管理副总裁。在加入 YouTube 之前，他是谷歌应用程序的创始团队成员，并负责谷歌教育应用程序的产品。马特在康奈尔大学学习机械工程，在印第安纳州的韦恩堡长大。我们问他如何经营他的公司和他的生活。
 

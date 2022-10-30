@@ -1,6 +1,6 @@
 # 在美国各地参观这些黑人拥有的咖啡店
 
-> 原文:[https://life hacker . com/visit-these-black-owned-coffee-shops-around-the-us-1825352601](https://lifehacker.com/visit-these-black-owned-coffee-shops-around-the-us-1825352601)
+> 原文：<https://lifehacker.com/visit-these-black-owned-coffee-shops-around-the-us-1825352601>
 
 担心你当地的星巴克会因为你的种族 而报警？想表明你在乎公司如何对待黑人客户？想把你的钱给一个黑人拥有的小企业，而不是一个830 亿美元的公司？ [商业网站 Shoppe 黑名单列出了全美 47 家拥有黑人业主的咖啡馆](https://shoppeblack.us/2018/04/black-owned-coffee-tea-starbucks-alternatives/) 。
 

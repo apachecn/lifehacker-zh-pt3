@@ -1,6 +1,6 @@
 # 你怎么发短信？
 
-> 原文:[https://lifehacker.com/how-do-you-text-1823048632](https://lifehacker.com/how-do-you-text-1823048632)
+> 原文：<https://lifehacker.com/how-do-you-text-1823048632>
 
 没有人喜欢喋喋不休的凯茜，尤其是当对话发生在你的手机上，用明亮的闪烁颜色和响亮的警报要求你的注意。另一方面，你可能不喜欢一大堆文字，更喜欢一次一个想法地接收你的邮件。无论哪种方式，你都必须回复，如果你像 [女孩问男孩](https://www.girlsaskguys.com/other/q1899280-which-type-of-texter-are-you) 描述的两种类型的短信，你会惹恼别人。那么你该如何着手呢？
 

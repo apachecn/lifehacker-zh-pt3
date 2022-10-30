@@ -1,6 +1,6 @@
 # 如何从网飞手表历史记录中删除物品
 
-> 原文:[https://life hacker . com/how-to-delete-your-网飞-history-1825811326](https://lifehacker.com/how-to-delete-your-netflix-history-1825811326)
+> 原文：<https://lifehacker.com/how-to-delete-your-netflix-history-1825811326>
 
 你的网飞观看历史可以是一个祝福，也可以是一个诅咒。该应用程序跟踪你过去看过的内容，这有助于它在你感到无聊并需要一些帮助来决定未来应该看什么时，提供一些更有教育意义的建议，它还可以帮助你记住两周前你偶然发现的一部很棒的电影的名称。
 

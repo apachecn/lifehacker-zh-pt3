@@ -1,6 +1,6 @@
 # 你还需要剪碎你注销的信用卡吗？
 
-> 原文:[https://life hacker . com/do-you-still-need-cut-up-you-cancelled-cards-1793718730](https://lifehacker.com/do-you-still-need-to-cut-up-your-canceled-credit-cards-1793718730)
+> 原文：<https://lifehacker.com/do-you-still-need-to-cut-up-your-canceled-credit-cards-1793718730>
 
 如今，大多数信用卡都有不错的防欺诈保护。如果有人窃取并使用你的卡，大多数发卡机构会很容易对交易提出异议，并标记你的账户。然而，这并不意味着你应该随意使用它。如果你取消你的卡或者它过期了，拿出剪刀(或者碎纸机)。
 

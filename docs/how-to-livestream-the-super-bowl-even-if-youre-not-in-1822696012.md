@@ -1,6 +1,6 @@
 # 如何直播超级碗，即使你不在美国
 
-> 原文:[https://life hacker . com/how-to-live stream-the-super bowl-even-if-you-not-in 1822696012](https://lifehacker.com/how-to-livestream-the-super-bowl-even-if-youre-not-in-1822696012)
+> 原文：<https://lifehacker.com/how-to-livestream-the-super-bowl-even-if-youre-not-in-1822696012>
 
 费城老鹰队将于周日东部时间下午 6:30/太平洋时间下午 3:30 在明尼苏达州明尼阿波利斯的美国银行体育场迎战新英格兰爱国者队。这场比赛将在全国广播公司现场直播，所以观看比赛最简单的方法就是通过有线电视或数字天线收看。如果你没有电视或由于某种原因无法收看 NBC，也有几种方法可以在你的电脑或移动设备上观看大型比赛。
 

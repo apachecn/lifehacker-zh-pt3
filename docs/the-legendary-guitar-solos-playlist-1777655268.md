@@ -1,6 +1,6 @@
 # 传奇吉他独奏播放列表
 
-> 原文:[https://life hacker . com/the-legendary-guitar-solos-playlist-1777655268](https://lifehacker.com/the-legendary-guitar-solos-playlist-1777655268)
+> 原文：<https://lifehacker.com/the-legendary-guitar-solos-playlist-1777655268>
 
 在过去，没有什么比一个能够在独奏中彻底粉碎的吉他手更能震撼人心了。这张播放列表收录了一些有史以来最具传奇色彩的独奏曲。
 

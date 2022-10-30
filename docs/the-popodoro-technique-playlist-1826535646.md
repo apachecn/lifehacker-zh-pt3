@@ -1,6 +1,6 @@
 # 番茄工作法播放列表
 
-> 原文:[https://life hacker . com/the-popodoro-technique-playlist-1826535646](https://lifehacker.com/the-popodoro-technique-playlist-1826535646)
+> 原文：<https://lifehacker.com/the-popodoro-technique-playlist-1826535646>
 
 在 [番茄工作法](https://lifehacker.com/productivity-101-a-primer-to-the-pomodoro-technique-1598992730) 中，你工作 25 分钟，休息 5 分钟，然后重复。(两个小时后，你休息更长时间。)你可以用厨房定时器，你的手机，或者一个 [专门的 app](https://lifehacker.com/tomates-time-management-is-a-super-customizable-pomodor-1794305677) 。在 Popodoro 技术中，你使用音乐而不是计时器——就像 Popjustice 中的 [新 Spotify 播放列表。](https://www.popjustice.com/playlists/presenting-sexenonono-girls-aloud-vs-brian-eno-in-the-ultimate-concentration-and-productivity-playlist/) 
 

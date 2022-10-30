@@ -1,6 +1,6 @@
 # 安装树莓派的最新指南
 
-> 原文:[https://life hacker . com/the-always-update-guide-to-setting-up-your-raspberr-1781419054](https://lifehacker.com/the-always-up-to-date-guide-to-setting-up-your-raspberr-1781419054)
+> 原文：<https://lifehacker.com/the-always-up-to-date-guide-to-setting-up-your-raspberr-1781419054>
 
 所以，你终于拿起了一个树莓，它正坐在你的桌子上，等着你用它做一些令人敬畏的事情。好消息是，设置它是愚蠢的-现在很容易，不到 30 分钟，你就可以在你的 35 美元的小电脑上进行黑客攻击。
 

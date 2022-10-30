@@ -1,6 +1,6 @@
 # 挂载所有内容工作区
 
-> 原文:[https://life hacker . com/the-mounted-everything-workspace-1791140386](https://lifehacker.com/the-mounted-everything-workspace-1791140386)
+> 原文：<https://lifehacker.com/the-mounted-everything-workspace-1791140386>
 
 Lainz 的设置在几个方面是独特的，其中之一是他有一对扬声器安装在显示器上方的显示器臂上。真正提供了整个环绕声的感觉。除此之外，该设置还有一些更好的惊喜。这里还有一些照片。
 

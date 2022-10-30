@@ -1,6 +1,6 @@
 # 对生病的人不该说什么
 
-> 原文:[https://life hacker . com/what-not-to-say-someone-whos-sick-1827665699](https://lifehacker.com/what-not-to-say-to-someone-whos-sick-1827665699)
+> 原文：<https://lifehacker.com/what-not-to-say-to-someone-whos-sick-1827665699>
 
 被诊断患有需要大量医疗干预的严重疾病是一种极度紧张的经历。有很多事情需要处理，作为朋友、家庭成员，甚至是某个经历艰难健康状况的熟人，你希望帮助减轻负担，而不是让它变得更糟。以下是你应该和不应该对生病的人说的话。
 

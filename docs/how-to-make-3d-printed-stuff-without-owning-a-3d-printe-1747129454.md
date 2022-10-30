@@ -1,6 +1,6 @@
 # 如何在没有 3D 打印机的情况下制作 3D 打印材料
 
-> 原文:[https://life hacker . com/how-to-make-3d-printed-stuff-without-owning-a-3d-printe-1747129454](https://lifehacker.com/how-to-make-3d-printed-stuff-without-owning-a-3d-printe-1747129454)
+> 原文：<https://lifehacker.com/how-to-make-3d-printed-stuff-without-owning-a-3d-printe-1747129454>
 
 3D 打印真的很酷，但是我们每个人都有一台 3D 打印的承诺现在看来并不真实。幸运的是，你不需要一个自己的人来将你想象中的作品带入生活。
 

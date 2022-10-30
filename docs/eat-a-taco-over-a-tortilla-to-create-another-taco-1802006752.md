@@ -1,6 +1,6 @@
 # 在玉米粉圆饼上吃一个玉米卷来创造另一个玉米卷
 
-> 原文:[https://life hacker . com/eat-a-taco-over-a-tortilla-to-create-another-taco-1802006752](https://lifehacker.com/eat-a-taco-over-a-tortilla-to-create-another-taco-1802006752)
+> 原文：<https://lifehacker.com/eat-a-taco-over-a-tortilla-to-create-another-taco-1802006752>
 
 我的脏乱差状态很少最终成为一件积极的事情，但事实证明，我的邋遢可以帮我把更多的玉米卷放进嘴里，坦白地说，这是我的整个目标。
 

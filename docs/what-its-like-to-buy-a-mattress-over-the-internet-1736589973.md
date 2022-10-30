@@ -1,6 +1,6 @@
 # 在网上买床垫是什么感觉
 
-> 原文:[https://life hacker . com/what-its-like-to-buy-an-the-internet-1736589973](https://lifehacker.com/what-its-like-to-buy-a-mattress-over-the-internet-1736589973)
+> 原文：<https://lifehacker.com/what-its-like-to-buy-a-mattress-over-the-internet-1736589973>
 
 买新床垫并不好玩。你不得不去一家床垫商店，在床垫上躺上比你想要的时间更长的时间，与售货员讨价还价，然后等待送货员几周后出现。我在网上订购了最后一张床垫。这看起来很疯狂，但效果很好...大部分是。
 

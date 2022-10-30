@@ -1,6 +1,6 @@
 # 不要接受那些在你失败时获利的公司的金钱建议
 
-> 原文:[https://life hacker . com/don-take-money-advice-from-the-profit-when-1794513890](https://lifehacker.com/dont-take-money-advice-from-companies-that-profit-when-1794513890)
+> 原文：<https://lifehacker.com/dont-take-money-advice-from-companies-that-profit-when-1794513890>
 
 接受贷款服务商的金钱建议有点像接受烟草公司的健康建议。这个建议可能是有效的，但可能有更好的来源。也就是说，不从你的坏习惯中获利。
 

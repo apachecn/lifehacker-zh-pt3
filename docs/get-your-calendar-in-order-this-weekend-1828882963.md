@@ -1,6 +1,6 @@
 # 这个周末把你的日程表整理好
 
-> 原文:[https://life hacker . com/get-your-calendar-in-order-this-weekend-1828882963](https://lifehacker.com/get-your-calendar-in-order-this-weekend-1828882963)
+> 原文：<https://lifehacker.com/get-your-calendar-in-order-this-weekend-1828882963>
 
 秋天似乎是一个新的开始，即使在我最后一次踏进教室的几年后。这仍然是新的一年的第二次机会，是让一切井然有序的时候，也是设定一些目标的时候。
 

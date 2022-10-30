@@ -1,6 +1,6 @@
 # 一个月的俯卧撑对你有什么好处？
 
-> 原文:[https://life hacker . com/what-do-a-month-do-of-push-ups-do-for-you 1823385715](https://lifehacker.com/what-did-a-month-of-push-ups-do-for-you-1823385715)
+> 原文：<https://lifehacker.com/what-did-a-month-of-push-ups-do-for-you-1823385715>
 
 我们的 [二月俯卧撑挑战](https://lifehacker.com/were-all-doing-push-ups-this-february-1822600541) 今天结束！你这个月过得怎么样？当初做不到的，现在能做什么？不管你是只加入我们一天，还是整个月都在做推销员，让我们谈谈吧。
 

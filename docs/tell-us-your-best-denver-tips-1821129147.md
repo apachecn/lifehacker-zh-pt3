@@ -1,6 +1,6 @@
 # 告诉我们你最好的丹佛建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Denver-tips-1821129147](https://lifehacker.com/tell-us-your-best-denver-tips-1821129147)
+> 原文：<https://lifehacker.com/tell-us-your-best-denver-tips-1821129147>
 
 如果你问我们，丹佛在那里是相当高的。
 

@@ -1,6 +1,6 @@
 # 通过比当前累积奖金多花 1.5 亿美元赢得强力球
 
-> 原文:[https://life hacker . com/win-power ball-by-spending-1.5 亿比 cu-1821745912](https://lifehacker.com/win-powerball-by-spending-150-million-more-than-the-cu-1821745912)
+> 原文：<https://lifehacker.com/win-powerball-by-spending-150-million-more-than-the-cu-1821745912>
 
 强力球头奖目前位于4.6 亿美元，是有史以来最大的一笔。但是赌注并没有*那么大——即使你买了所有的组合，你也会损失很多。* 
 

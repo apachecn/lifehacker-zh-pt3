@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名私家侦探做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-private-investigator-1766204534](https://lifehacker.com/career-spotlight-what-i-do-as-a-private-investigator-1766204534)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-private-investigator-1766204534>
 
 作为一名私家侦探，不仅仅是坐在车里拿着长长的相机镜头。许多调查人员与公司合作，通常在大型商业交易之前进行彻底的背景和法律调查。他们不是在寻找马耳他之鹰。
 

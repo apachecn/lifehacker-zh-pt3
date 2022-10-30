@@ -1,6 +1,6 @@
 # 对狗最危险的食物，为什么
 
-> 原文:[https://life hacker . com/the-foods ' s is most-dangerous to dogs-and-why-1782885247](https://lifehacker.com/the-foods-that-are-most-dangerous-to-dogs-and-why-1782885247)
+> 原文：<https://lifehacker.com/the-foods-that-are-most-dangerous-to-dogs-and-why-1782885247>
 
 你可能知道你不应该给你的狗喂巧克力——但是也许你的狗进入了你藏糖果的地方，然后出来了。同时，你的兽医更担心你承认喂它葡萄干。迷茫？让我们来看看真正的危险是什么。
 

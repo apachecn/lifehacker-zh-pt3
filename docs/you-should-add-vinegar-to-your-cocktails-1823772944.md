@@ -1,6 +1,6 @@
 # 你应该在鸡尾酒里加醋
 
-> 原文:[https://life hacker . com/you-should-add-醋到你的鸡尾酒-1823772944](https://lifehacker.com/you-should-add-vinegar-to-your-cocktails-1823772944)
+> 原文：<https://lifehacker.com/you-should-add-vinegar-to-your-cocktails-1823772944>
 
 醋是不可或缺的厨房液体。它增加了沙拉酱的亮度，嫩化了腌泡汁中的肉，并减少了油腻菜肴中的油腻以恢复平衡。它也是一种很好的鸡尾酒。
 

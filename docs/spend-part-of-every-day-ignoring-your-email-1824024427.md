@@ -1,6 +1,6 @@
 # 每天花一部分时间忽略你的邮件
 
-> 原文:[https://life hacker . com/spend-part-of-day-ignore-your-email-1824024427](https://lifehacker.com/spend-part-of-every-day-ignoring-your-email-1824024427)
+> 原文：<https://lifehacker.com/spend-part-of-every-day-ignoring-your-email-1824024427>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在安装我们自己的坐浴盆，减少咖啡因的摄入，保护我们免受运动引起的伤害。
 

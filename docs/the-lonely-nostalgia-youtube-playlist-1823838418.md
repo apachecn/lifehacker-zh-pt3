@@ -1,6 +1,6 @@
 # 孤独怀旧 YouTube 播放列表
 
-> 原文:[https://life hacker . com/the-lonely-怀旧-YouTube-playlist-1823838418](https://lifehacker.com/the-lonely-nostalgia-youtube-playlist-1823838418)
+> 原文：<https://lifehacker.com/the-lonely-nostalgia-youtube-playlist-1823838418>
 
 *《纽约客》*[昨天](https://www.newyorker.com/culture/rabbit-holes/the-overwhelming-emotion-of-hearing-totos-africa-remixed-to-sound-like-its-playing-in-an-empty-mall) 刊登了一篇关于在 YouTube 上听 Toto 的《非洲》小版本的情感体验的报道。 [热门视频](https://www.youtube.com/watch?v=D__6hwqjZAs) 模拟听到流行歌曲回荡在空荡荡的商场里的声音。这首歌的效果:
 

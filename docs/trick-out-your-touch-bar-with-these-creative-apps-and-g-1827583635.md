@@ -1,6 +1,6 @@
 # 用这些有创意的应用程序和游戏来装饰你的触控条
 
-> 原文:[https://life hacker . com/trick-out-your-touch-bar-with these-creative-apps-and-g-1827583635](https://lifehacker.com/trick-out-your-touch-bar-with-these-creative-apps-and-g-1827583635)
+> 原文：<https://lifehacker.com/trick-out-your-touch-bar-with-these-creative-apps-and-g-1827583635>
 
 我不知道你怎么样，但我仍然对苹果的 Touch Bar 持观望态度。我得到的最大用处是当我试图按数字键时，无意中点击了浏览器中的虚拟“后退”按钮。那个，而且我主要是用 Touch Bar 来调节我 MacBook 的亮度和音量。(也许我需要 [配置更多有用的按键](https://lifehacker.com/customize-your-macs-touch-bar-with-bettertouchtool-1827125801) 。)
 

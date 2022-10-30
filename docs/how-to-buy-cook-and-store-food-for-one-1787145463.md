@@ -1,6 +1,6 @@
 # 如何为一个人购买、烹饪和储存食物
 
-> 原文:[https://life hacker . com/how-to-buy-cook-and-store-food-for-one-1787145463](https://lifehacker.com/how-to-buy-cook-and-store-food-for-one-1787145463)
+> 原文：<https://lifehacker.com/how-to-buy-cook-and-store-food-for-one-1787145463>
 
 他们说世界是为两个人建造的，食物的世界也不例外。以最少的浪费烹饪你真正想吃的食物，是为一个人烹饪的目标，不用担心:你也可以做到——只需要一点点预先考虑和计划。以下是方法。
 

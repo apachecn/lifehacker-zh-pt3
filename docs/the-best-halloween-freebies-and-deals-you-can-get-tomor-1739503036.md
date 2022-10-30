@@ -1,6 +1,6 @@
 # 明天你能得到的最好的万圣节赠品和交易
 
-> 原文:[https://life hacker . com/the-best-Halloween-freebies-and-deals-you-can-get-tomor-1739503036](https://lifehacker.com/the-best-halloween-freebies-and-deals-you-can-get-tomor-1739503036)
+> 原文：<https://lifehacker.com/the-best-halloween-freebies-and-deals-you-can-get-tomor-1739503036>
 
 快到万圣节了，虽然商家可能不想闻你的脚，但他们肯定想给你点好吃的。如果你去他们家“不给糖就捣蛋”,这里有你一整天能得到的最好的赠品和优惠。
 

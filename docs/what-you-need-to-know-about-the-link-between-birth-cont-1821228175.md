@@ -1,6 +1,6 @@
 # 关于节育和癌症之间的联系，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-the-link-between-birth-cont-1821228175](https://lifehacker.com/what-you-need-to-know-about-the-link-between-birth-cont-1821228175)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-link-between-birth-cont-1821228175>
 
 最近的一项研究证实了乳腺癌和激素避孕之间的联系(包括避孕药，但也包括贴剂、植入物和一些宫内节育器)。给自己两秒钟抓狂，然后深呼吸，我们来讨论。
 

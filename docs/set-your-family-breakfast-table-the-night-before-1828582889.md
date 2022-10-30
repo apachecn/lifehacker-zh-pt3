@@ -1,6 +1,6 @@
 # 前一天晚上摆好你的家庭早餐桌
 
-> 原文:[https://life hacker . com/set-your-family-breakfast-table-the-night-before-1828582889](https://lifehacker.com/set-your-family-breakfast-table-the-night-before-1828582889)
+> 原文：<https://lifehacker.com/set-your-family-breakfast-table-the-night-before-1828582889>
 
 在我从祖母那里学到的所有老派育儿技巧中，有一个非常突出，它是返校后的救命稻草:晚上睡觉前摆桌子。这样，当你家里的任何人醒来时，即使在错开时间，他们也会在家庭餐桌前等着他们——不需要在厨房里跑来跑去打开每个橱柜和抽屉寻找勺子、杯子或葡萄。
 

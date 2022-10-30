@@ -1,6 +1,6 @@
 # 旅行时如何“在家工作”
 
-> 原文:[https://life hacker . com/how-to-work-from-home-while-traveling-1823182256](https://lifehacker.com/how-to-work-from-home-while-traveling-1823182256)
+> 原文：<https://lifehacker.com/how-to-work-from-home-while-traveling-1823182256>
 
 在家工作最大的好处是你不必真的呆在家里。你可以在 [咖啡馆](https://lifehacker.com/how-to-work-on-your-laptop-at-a-coffee-shop-without-bei-1796712438) ，在 [当地酒吧](https://lifehacker.com/why-i-work-at-bars-instead-of-coffee-shops-1823164289) 工作，甚至可以在国家的另一端工作。
 

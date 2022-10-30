@@ -1,6 +1,6 @@
 # 使用“敲击”技术消除压力
 
-> 原文:[https://life hacker . com/1820166831](https://lifehacker.com/eliminate-stress-using-the-tapping-technique-1820166831)
+> 原文：<https://lifehacker.com/eliminate-stress-using-the-tapping-technique-1820166831>
 
 每个人都会有压力，不管是来自工作、伴侣，还是仅仅是阅读新闻。对我来说，我解决压力的典型方法是出去走走，想想别的事情。当我回到我的办公桌或者和我男朋友吵架的时候，一切似乎都没有我去散步之前那么糟糕了。
 

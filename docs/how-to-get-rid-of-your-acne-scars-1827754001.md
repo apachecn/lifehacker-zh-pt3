@@ -1,6 +1,6 @@
 # 如何摆脱你的痤疮疤痕
 
-> 原文:[https://life hacker . com/how-to-get-off-your-acne-scars-1827754001](https://lifehacker.com/how-to-get-rid-of-your-acne-scars-1827754001)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-your-acne-scars-1827754001>
 
 很少有皮肤状况会像痤疮 那样伤害自尊。事实证明，一张满是痛苦伤痕的脸——更不用说来自家人和陌生人的不请自来的、音盲的建议了——有一种驱使人们躲藏的方式。再加上互联网上大量未经证实的关于永久消除痤疮的奇闻轶事，你就有了一个灾难的配方。
 

@@ -1,6 +1,6 @@
 # 玩六度维基百科
 
-> 原文:[https://life hacker . com/play-six-degrees-of-Wikipedia-1823392997](https://lifehacker.com/play-six-degrees-of-wikipedia-1823392997)
+> 原文：<https://lifehacker.com/play-six-degrees-of-wikipedia-1823392997>
 
 十年前，我们 [写了关于维基百科六度的](https://lifehacker.com/play-six-degrees-on-wikipedia-395275) ，这是一个可爱的网页，可以找到任意两个维基百科页面之间的链接路径。现在有了一个新的可视化版本，由不同的开发人员开发，带有更新的数据库。新版 [六度维基百科](https://www.sixdegreesofwikipedia.com/) 将任意两个词条之间的所有最短路径可视化为网络地图。
 

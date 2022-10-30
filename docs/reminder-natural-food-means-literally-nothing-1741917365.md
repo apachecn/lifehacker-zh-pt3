@@ -1,6 +1,6 @@
 # 提醒:“天然”食物实际上毫无意义
 
-> 原文:[https://gizmodo . com/reminder-natural-food-means-literal-nothing-1741917365](https://gizmodo.com/reminder-natural-food-means-literally-nothing-1741917365)
+> 原文：<https://gizmodo.com/reminder-natural-food-means-literally-nothing-1741917365>
 
 一盒粉末奶酪通心粉？自然！一块糖？当然，为什么不呢:自然！一罐七喜？*一切*自然！一包水果零食？充满了自然的味道，朋友。
 

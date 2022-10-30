@@ -1,6 +1,6 @@
 # 它会腐烂吗？伟大的炒鸡蛋规模扩大
 
-> 原文:[https://life hacker . com/will-it-sous-vide-the-great-scrambled-egg-scale-up-1786684634](https://lifehacker.com/will-it-sous-vide-the-great-scrambled-egg-scale-up-1786684634)
+> 原文：<https://lifehacker.com/will-it-sous-vide-the-great-scrambled-egg-scale-up-1786684634>
 
 嘿，大家好，欢迎回到另一部热辣热辣的 [*它会被分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏你告诉我用我的 [Anova 精密炊具](https://anovaculinary.com/) 煮什么。
 

@@ -1,6 +1,6 @@
 # 所有的鸡蛋腌制方法，排名
 
-> 原文:[https://life hacker . com/all-the-ways-to-sous-vide-eggs-ranked-1754844453](https://lifehacker.com/all-the-ways-to-sous-vide-eggs-ranked-1754844453)
+> 原文：<https://lifehacker.com/all-the-ways-to-sous-vide-eggs-ranked-1754844453>
 
 的主要优点是*控制*。有了恒温水浴，你可以大大降低食物煮过头的危险，这使它成为鸡蛋的完美方法，鸡蛋是一种不起眼的食物，如果烹饪得当，它可以超越，但如果煮过头，它会有橡胶和硫磺的味道。
 

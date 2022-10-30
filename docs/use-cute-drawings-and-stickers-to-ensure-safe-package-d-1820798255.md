@@ -1,6 +1,6 @@
 # 使用可爱的图画和贴纸来确保包裹的安全递送
 
-> 原文:[https://life hacker . com/use-cute-drawings-and-sticker-to-assure-safe-package-d-1820798255](https://lifehacker.com/use-cute-drawings-and-stickers-to-ensure-safe-package-d-1820798255)
+> 原文：<https://lifehacker.com/use-cute-drawings-and-stickers-to-ensure-safe-package-d-1820798255>
 
 假期意味着你可能会发送或接收一些包裹，这些精致的( [或活泼的](https://lifehacker.com/you-can-use-the-usps-to-mail-these-animals-but-read-the-1798703848) )包裹在运输过程中可能比普通的 UPS 快递需要更多的爱和关怀。在它上面贴上一堆“易碎”的标签可能会给你一种安全感，但一位前包裹分拣员给你带来了一些坏消息:这些标签不起作用。起作用的是一个稍微引人注目的方法，你可以用来保护你的邮件: [包装装饰品](https://www.reddit.com/r/LifeProTips/comments/7fsr0l/lpt_from_a_former_parcel_sorter_when_sending/) 。
 

@@ -1,6 +1,6 @@
 # 如何用餐车喂饱悲伤的朋友
 
-> 原文:[https://life hacker . com/how-to-feed-a-breaking-friend-a-meal-train-1819814088](https://lifehacker.com/how-to-feed-a-grieving-friend-with-a-meal-train-1819814088)
+> 原文：<https://lifehacker.com/how-to-feed-a-grieving-friend-with-a-meal-train-1819814088>
 
 死亡的环境总是令人惊讶。即使它并不突然，即使它已经被期待了几个星期——甚至几个月——也总是会有缺席和损失的震惊，以及伴随所有细节而来的压倒性的感觉，这些细节需要在悲痛的阵痛中得到关注。正是在这些时刻，人们往往会忽视自己的健康，因为自我照顾往往是在照顾孩子和安排葬礼之后的最后一个优先事项。
 

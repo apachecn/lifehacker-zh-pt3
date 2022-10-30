@@ -1,6 +1,6 @@
 # 用这个 Chrome 扩展保存你在线写的东西
 
-> 原文:[https://life hacker . com/save-what-you-write-online-with this-chrome-extension-1827812225](https://lifehacker.com/save-what-you-write-online-with-this-chrome-extension-1827812225)
+> 原文：<https://lifehacker.com/save-what-you-write-online-with-this-chrome-extension-1827812225>
 
 [不小心丢了所有工作](https://www.youtube.com/watch?v=_GxC4kKD9qA) 比以前难了。应用程序带有自动保存功能，Chrome 会在你关闭一个有未保存工作的标签页之前试图警告你。但是输入太快，或者崩溃，你仍然会丢失很多内容。它可能发生在脸书更新、申请表或博客文章上。但是 Chrome 扩展 [类型表单恢复](https://chrome.google.com/webstore/detail/typio-form-recovery/djkbihbnjhkjahbhjaadbepppbpoedaa?hl=en) 可以保存你写的内容并马上粘贴回去。
 

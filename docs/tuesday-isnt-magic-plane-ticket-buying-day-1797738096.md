@@ -1,6 +1,6 @@
 # 星期二不是神奇的机票购买日
 
-> 原文:[https://life hacker . com/Tuesday-not-magic-plane-ticket-buying-day-1797738096](https://lifehacker.com/tuesday-isnt-magic-plane-ticket-buying-day-1797738096)
+> 原文：<https://lifehacker.com/tuesday-isnt-magic-plane-ticket-buying-day-1797738096>
 
 如果你认为自己是一个聪明、注重预算的旅行者，你可能已经听到过建议，告诉你等到周二 再买机票，因为那是一周中机票最便宜的时候。嗯，现在可能不再是这样了。
 

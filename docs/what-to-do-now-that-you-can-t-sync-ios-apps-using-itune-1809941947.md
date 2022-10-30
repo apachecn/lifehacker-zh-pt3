@@ -1,6 +1,6 @@
 # 现在您不能使用 iTunes 同步 iOS 应用程序，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-now-than-you-can-t-sync-IOs-apps-using-itune-1809941947](https://lifehacker.com/what-to-do-now-that-you-can-t-sync-ios-apps-using-itune-1809941947)
+> 原文：<https://lifehacker.com/what-to-do-now-that-you-can-t-sync-ios-apps-using-itune-1809941947>
 
 如果你一直用电脑来管理 iOS 设备上的应用程序，那么这个时代已经结束了。苹果 iTunes [的最新更新取消了对 iOS 应用商店](https://www.theverge.com/2017/9/12/16298988/apple-itunes-desktop-update-removes-app-store) 的访问，以及管理 iOS 应用的能力，该公司希望你在自己的 iOS 设备上处理所有与应用相关的业务。再见，应用程序同步。
 

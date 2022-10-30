@@ -1,6 +1,6 @@
 # 美国农业部枫糖浆等级指南
 
-> 原文:[https://life hacker . com/a-guide-to-USDA-maple-糖浆-grades-1802726151](https://lifehacker.com/a-guide-to-usda-maple-syrup-grades-1802726151)
+> 原文：<https://lifehacker.com/a-guide-to-usda-maple-syrup-grades-1802726151>
 
 我的父母来自佛蒙特州和缅因州，所以我非常重视枫糖浆。事实上，如此严重，以至于我完全错过了美国农业部 2015 年的重新分级措施 ，因为我还在处理 B I 在 2012 年购买的四加仑等级。当我找不到更多的东西来补充我的存货时，我慌了，打电话给我爸爸，他平静地解释说，B 级现在被称为“A 级黑暗口味，或 A 级丰富的东西或其他。”谢谢爸爸。
 

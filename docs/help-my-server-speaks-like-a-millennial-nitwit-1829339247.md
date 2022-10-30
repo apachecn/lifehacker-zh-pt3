@@ -1,6 +1,6 @@
 # 问咸女服务员:救命！我的服务员说话像个千禧年的傻瓜
 
-> 原文:[https://the take out . com/help-my-server-speaks-like-a-millennial-nitwit-1829339247](https://thetakeout.com/help-my-server-speaks-like-a-millennial-nitwit-1829339247)
+> 原文：<https://thetakeout.com/help-my-server-speaks-like-a-millennial-nitwit-1829339247>
 
 > 亲爱的 Salty:在过去的几年里，我注意到很多服务员(大多在时尚餐厅)用我怎么说呢，互联网蠢驴千年语言跟顾客说话。没有更多的礼仪，如:“食物怎么样？”相反，我们会问:“我们对烤章鱼有兴趣吗？黑仔，对吗？”或者“伙计，你打败了尼格罗尼”上周，一个服务员称我妻子为“伙计”
 > 

@@ -1,6 +1,6 @@
 # 使用 IFTTT 了解政府新闻
 
-> 原文:[https://life hacker . com/use-if TTT-to-stay-informed-on-government-news-1796375048](https://lifehacker.com/use-ifttt-to-stay-informed-on-government-news-1796375048)
+> 原文：<https://lifehacker.com/use-ifttt-to-stay-informed-on-government-news-1796375048>
 
 在今天的政治气候下，很有可能你正在寻找更少的政府主题新闻，而不是更多。然而，如果你想直接从源头上寻找信息，IFTTT(如果这个，那么那个)可以让你非常容易地跟上新的数据访问项目。
 

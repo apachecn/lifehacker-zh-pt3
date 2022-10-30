@@ -1,6 +1,6 @@
 # 儿科医生教孩子善待他人的四点建议
 
-> 原文:[https://life hacker . com/four-tips-from-pediatrics-to-teach-kind-to-kids-1791185067](https://lifehacker.com/four-tips-from-pediatricians-to-teach-kindness-to-kids-1791185067)
+> 原文：<https://lifehacker.com/four-tips-from-pediatricians-to-teach-kindness-to-kids-1791185067>
 
 孩子们在听。在选举期间，仇恨、恐惧和不容忍的信息通过不同媒体传播到各个社区。信息还在继续。当父母观看和聆听这些无处不在的信息时，他们的孩子也在旁边，通过一个不具备辨别负面陈规定型观念和不正确描述的能力的镜头来聆听这些信息。
 

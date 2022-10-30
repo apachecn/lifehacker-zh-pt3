@@ -1,6 +1,6 @@
 # 如何使用 MoviePass 并在夏季大片中获得好座位
 
-> 原文:[https://life hacker . com/how-to-use-movie pass-and still-get-good-seats-at-summer-1826487894](https://lifehacker.com/how-to-use-moviepass-and-still-get-good-seats-at-summer-1826487894)
+> 原文：<https://lifehacker.com/how-to-use-moviepass-and-still-get-good-seats-at-summer-1826487894>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在删除我们令人尴尬的旧推文，让我们自己早起，寻找新的方式获得蔬菜，并从我们的待办事项中删除烦人的任务。
 

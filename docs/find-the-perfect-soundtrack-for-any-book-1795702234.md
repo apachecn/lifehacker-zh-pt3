@@ -1,6 +1,6 @@
 # 为任何一本书寻找完美的配乐
 
-> 原文:[https://life hacker . com/find-the-perfect-soundtrack-for-any-book-1795702234](https://lifehacker.com/find-the-perfect-soundtrack-for-any-book-1795702234)
+> 原文：<https://lifehacker.com/find-the-perfect-soundtrack-for-any-book-1795702234>
 
 当我阅读类型小说时，我喜欢沉浸在故事的世界里。我会经常播放时代音乐或相关的配乐。为了希拉里·曼特尔的都铎文学戏剧《狼厅》，我花了一个多小时仔细研究伊丽莎白时代之前的民间音乐和合唱音乐。我终于找到了一个更简单、更少干扰的解决方案。
 

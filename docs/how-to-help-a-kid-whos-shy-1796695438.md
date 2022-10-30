@@ -1,6 +1,6 @@
 # 如何帮助一个害羞的孩子
 
-> 原文:[https://life hacker . com/how-to-help-a-kid-whos-shy-1796695438](https://lifehacker.com/how-to-help-a-kid-whos-shy-1796695438)
+> 原文：<https://lifehacker.com/how-to-help-a-kid-whos-shy-1796695438>
 
 孩子天生内向是绝对没问题的——安静的孩子 [拥有独特的创造力和智力](http://www.quietrev.com/parenting-quiet-kid-quiz/) 并拥有丰富的内心生活。但是，当一个孩子对她家外面的世界感到害羞和恐惧时，你该怎么办呢？
 

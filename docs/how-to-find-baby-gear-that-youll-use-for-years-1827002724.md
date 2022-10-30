@@ -1,6 +1,6 @@
 # 如何找到你会用很多年的婴儿用品
 
-> 原文:[https://life hacker . com/how-to-find-baby-gear-that-you-use-the-years-1827002724](https://lifehacker.com/how-to-find-baby-gear-that-youll-use-for-years-1827002724)
+> 原文：<https://lifehacker.com/how-to-find-baby-gear-that-youll-use-for-years-1827002724>
 
 作为第一次为人父母的人，我痴迷于产品评级 [，我意识到应该质疑](https://lifehacker.com/dont-judge-a-product-by-the-number-of-reviews-it-has-1798353707) ，我在怀孕期间花了大量时间研究婴儿用品。我需要最可靠的安全襁褓、完美的新生儿浴缸和一部保证会改变我生活的音乐手机。
 

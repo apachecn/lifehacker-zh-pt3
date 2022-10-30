@@ -1,6 +1,6 @@
 # 《好地方》能教会你什么是道德
 
-> 原文:[https://life hacker . com/what-the-good-place-can-teach-you-about-moral-1820184155](https://lifehacker.com/what-the-good-place-can-teach-you-about-morality-1820184155)
+> 原文：<https://lifehacker.com/what-the-good-place-can-teach-you-about-morality-1820184155>
 
 尽管它有古怪的幽默和过度照明的场景，但《好地方》通过教授一些非常真实的哲学，设法解决了生活必须提供的一些最大的道德困境。看着看着，我不禁觉得这个节目是一个优秀的，即使是基础的，道德哲学导论课。这里有几个你将从这个节目中学到的重要概念的例子。
 

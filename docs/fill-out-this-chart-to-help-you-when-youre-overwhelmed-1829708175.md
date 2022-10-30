@@ -1,6 +1,6 @@
 # 当你不知所措的时候，填写这张图表来帮助你
 
-> 原文:[https://life hacker . com/fill-out-this-chart-to-help-you-when-you-when-you-overloaded-1829708175](https://lifehacker.com/fill-out-this-chart-to-help-you-when-youre-overwhelmed-1829708175)
+> 原文：<https://lifehacker.com/fill-out-this-chart-to-help-you-when-youre-overwhelmed-1829708175>
 
 现在是星期二上午 11 点左右，你差不多已经吃完了。你的办公桌上有一大堆文书工作，10 封电子邮件需要回复，还有一两条来自老板的信息，问她什么时候能收到你的项目建议书的更新草案。不要介意你需要记得在回家的路上去杂货店，更新你的工资扣缴 [最后注册那个密码管理系统](https://twocents.lifehacker.com/set-up-your-financial-accounts-like-youre-going-to-be-h-1829620384) 那已经是你的待办事项清单上的一个永久的要点。
 

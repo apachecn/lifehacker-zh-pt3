@@ -1,6 +1,6 @@
 # 它会腐烂吗？美味的木豆
 
-> 原文:[https://life hacker . com/will-it-sous-vide-delicious-dal-1793576516](https://lifehacker.com/will-it-sous-vide-delicious-dal-1793576516)
+> 原文：<https://lifehacker.com/will-it-sous-vide-delicious-dal-1793576516>
 
 欢迎来到温暖舒适的一集 [*对吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

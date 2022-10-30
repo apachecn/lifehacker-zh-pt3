@@ -1,6 +1,6 @@
 # 把客人的外套挂在浴缸上
 
-> 原文:[https://life hacker . com/hang-your-guests-coats-over-the-tub-1824073064](https://lifehacker.com/hang-your-guests-coats-over-the-tub-1824073064)
+> 原文：<https://lifehacker.com/hang-your-guests-coats-over-the-tub-1824073064>
 
 当你有几个客人去公寓时，你没有专用的衣架，外套通常放在床上。但是如果外面是湿的，你有一个漂亮的床罩，拿一些衣架，让客人把他们的外套挂在浴缸上方的浴帘杆上。
 

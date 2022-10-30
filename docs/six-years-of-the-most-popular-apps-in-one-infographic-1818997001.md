@@ -1,6 +1,6 @@
 # 六年来最受欢迎的应用，在一张信息图中
 
-> 原文:[https://life hacker . com/六年来最受欢迎的应用一体化信息图-1818997001](https://lifehacker.com/six-years-of-the-most-popular-apps-in-one-infographic-1818997001)
+> 原文：<https://lifehacker.com/six-years-of-the-most-popular-apps-in-one-infographic-1818997001>
 
 多亏了[【AppAnnie.com】](https://www.appannie.com/en/)和 [Reddit 海报 IrwinRSchyster1](https://www.reddit.com/r/Infographics/comments/72kr25/the_most_popular_apps_by_year_from_20122017_based/) ，我们现在有了一次可视化的应用记忆之旅，有一张信息图显示了从 2012 年到 2017 年每年最受欢迎的应用。
 

@@ -1,6 +1,6 @@
 # 如何用 Purism 的 Librem 笔记本电脑成为一名全面的隐私狂热者
 
-> 原文:[https://gizmodo . com/how-to-be-full-blown-privacy-fanative-with-purisms-1798505852](https://gizmodo.com/how-to-become-a-full-blown-privacy-fanatic-with-purisms-1798505852)
+> 原文：<https://gizmodo.com/how-to-become-a-full-blown-privacy-fanatic-with-purisms-1798505852>
 
 对网上隐私和安全的担忧正日益改变消费者花钱和网上行为的方式。根据一年前进行的一项皮尤研究，86%的互联网用户现在至少已经采取了一些措施来隐藏他们的数字足迹，尽管许多人说如果他们知道如何做，他们会做得更多。
 

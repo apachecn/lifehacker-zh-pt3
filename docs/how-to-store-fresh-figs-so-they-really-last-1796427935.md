@@ -1,6 +1,6 @@
 # 如何储存新鲜无花果，让它们真正持久
 
-> 原文:[https://life hacker . com/how-to-store-fresh-figs-so-they-last-1796427935](https://lifehacker.com/how-to-store-fresh-figs-so-they-really-last-1796427935)
+> 原文：<https://lifehacker.com/how-to-store-fresh-figs-so-they-really-last-1796427935>
 
 新鲜的无花果是奢侈品:它们如此美味，如此昂贵(在我的地盘，Peapod.com 卖 1.17 美元一个)，而且可悲的是寿命如此之短。根据我的经验，太多时候(是我吗？我的冰箱？)当我决定要的时候，我会付现金买一小篮这些紫色的奇迹，当我发现，有时就在第二天，它们就长满了霉菌，我的希望就破灭了。
 

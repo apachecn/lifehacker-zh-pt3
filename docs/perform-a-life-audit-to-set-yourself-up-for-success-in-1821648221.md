@@ -1,6 +1,6 @@
 # 进行人生审计，为 2018 年的成功做好准备
 
-> 原文:[https://life hacker . com/perform-a-life-audit-to-set-up-for-success-in-1821648221](https://lifehacker.com/perform-a-life-audit-to-set-yourself-up-for-success-in-1821648221)
+> 原文：<https://lifehacker.com/perform-a-life-audit-to-set-yourself-up-for-success-in-1821648221>
 
 如果你决心在 2018 年让你的生活井然有序，你需要的只是一支记号笔、一些便利贴、一面空白的墙和一两个小时的空闲时间。
 

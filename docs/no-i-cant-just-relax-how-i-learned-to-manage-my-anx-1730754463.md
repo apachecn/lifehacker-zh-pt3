@@ -1,6 +1,6 @@
 # 不，我不能“只是放松”:我如何学会管理我的焦虑症
 
-> 原文:[https://life hacker . com/no-I-cant-just-relax-how-I-learn-to-manage-my-anx-1730754463](https://lifehacker.com/no-i-cant-just-relax-how-i-learned-to-manage-my-anx-1730754463)
+> 原文：<https://lifehacker.com/no-i-cant-just-relax-how-i-learned-to-manage-my-anx-1730754463>
 
 上周末，我去了亚特兰大最大的极客派对，和其他书呆子一起狂欢。周六，我休息了一会儿，开始抓狂，开始质疑自己作为一个人的价值，哭到筋疲力尽。然后回到派对。这就是我患有焦虑症时的生活。
 

@@ -1,6 +1,6 @@
 # 你现在应该做什么来准备感恩节
 
-> 原文:[https://life hacker . com/what-you-should-be-doing-right-to-prep-for-thanksgi-1820087362](https://lifehacker.com/what-you-should-be-doing-right-now-to-prep-for-thanksgi-1820087362)
+> 原文：<https://lifehacker.com/what-you-should-be-doing-right-now-to-prep-for-thanksgi-1820087362>
 
 不要惊动任何人，但是我们离美国最以食物为中心的节日:怪异的感恩节还有短短的三周。如果你，我亲爱的灵魂，已经决定做主人，那么现在你应该采取一些措施来确保你在火鸡日真正得到放松和享受。
 

@@ -1,6 +1,6 @@
 # 如何加入今天的边境家庭分离抗议活动
 
-> 原文:[https://life hacker . com/how-to-join-todays-抗议家庭分离-at-th-1826829861](https://lifehacker.com/how-to-join-todays-protests-of-family-separations-at-th-1826829861)
+> 原文：<https://lifehacker.com/how-to-join-todays-protests-of-family-separations-at-th-1826829861>
 
 如果你一直对川普政府在边境分离家庭感到无助，你可以在全国各地举行的几十场集会中发表自己的意见**今天**，**6 月 14 日**。草根联盟“家庭同属一家”正在领导一场全国性的活动，反对在美国与墨西哥的边境和其他入境点“残酷、不人道和不公正地将孩子与父母分离”。
 

@@ -1,6 +1,6 @@
 # 使用应用程序让语音邮件变得有趣
 
-> 原文:[https://life hacker . com/use-an-app-to-make-voice mail-fun-1819911426](https://lifehacker.com/use-an-app-to-make-voicemails-fun-1819911426)
+> 原文：<https://lifehacker.com/use-an-app-to-make-voicemails-fun-1819911426>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑正在为各种假期做准备，进行令人印象深刻的 DIY 项目，并重新思考我们的组织策略。
 

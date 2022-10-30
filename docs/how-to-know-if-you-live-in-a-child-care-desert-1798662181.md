@@ -1,6 +1,6 @@
 # 如何判断你是否生活在“育儿沙漠”
 
-> 原文:[https://life hacker . com/how-to-know-if-you-live-a-child-care-desert-1798662181](https://lifehacker.com/how-to-know-if-you-live-in-a-child-care-desert-1798662181)
+> 原文：<https://lifehacker.com/how-to-know-if-you-live-in-a-child-care-desert-1798662181>
 
 在养育孩子的最初几个月，痛苦主要是身体上的:切口、会阴切开术、背痛、疲劳、母乳喂养。但是，一旦你通过了这个特别的地狱般的挑战，其他的挑战就会出现，我说的“挑战”是指这个国家高质量儿童保育的完全荒谬的成本——以及缺乏高质量儿童保育。如果你需要工作，找到一个合格的人来照顾你的孩子会很困难。
 

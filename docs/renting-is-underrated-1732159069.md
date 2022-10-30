@@ -1,6 +1,6 @@
 # 租房被低估了
 
-> 原文:[https://lifehacker.com/renting-is-underrated-1732159069](https://lifehacker.com/renting-is-underrated-1732159069)
+> 原文：<https://lifehacker.com/renting-is-underrated-1732159069>
 
 很多人会告诉你，出租你的房子或公寓是在浪费你的钱，但事实并非总是如此。仅仅因为你还没有准备好买房，并不意味着你不能获得租房者的额外津贴。
 

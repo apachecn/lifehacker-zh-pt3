@@ -1,6 +1,6 @@
 # 如何免费支持你喜欢的创作者
 
-> 原文:[https://life hacker . com/how-to-support-creators-you-love-for-free-1821356137](https://lifehacker.com/how-to-support-creators-you-love-for-free-1821356137)
+> 原文：<https://lifehacker.com/how-to-support-creators-you-love-for-free-1821356137>
 
 支持你喜爱的创作者的最好方式通常是购买他们的作品——这是对他们可以通过他们的艺术谋生的想法的经济支持和支持。但即使你一分钱都没有，你也可以做很多事情来支持你最喜欢的艺术家的事业。(创作者有很多种，支持他们的方式也有很多种——请在评论中补充这个列表中缺少的东西！)
 

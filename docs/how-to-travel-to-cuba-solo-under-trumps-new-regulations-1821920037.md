@@ -1,6 +1,6 @@
 # 特朗普新规下如何独自去古巴旅游
 
-> 原文:[https://life hacker . com/how-to-travel-to-Cuba-solo-under trumps-new-regulations-1821920037](https://lifehacker.com/how-to-travel-to-cuba-solo-under-trumps-new-regulations-1821920037)
+> 原文：<https://lifehacker.com/how-to-travel-to-cuba-solo-under-trumps-new-regulations-1821920037>
 
 由于特朗普在 11 月限制了前往古巴的旅行，你可能会认为美国公民访问古巴再次是非法的，但这根本不是事实。当然，规定变得更加严格了，但是仍然有可能追随海明威的脚步，即使你是一个人去。
 

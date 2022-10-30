@@ -1,6 +1,6 @@
 # 为什么你不应该担心成为一个“完美”的母亲
 
-> 原文:[https://life hacker . com/why-you-should-not-further-be-a-perfect-mo-1778954014](https://lifehacker.com/why-you-shouldnt-worry-so-much-about-being-a-perfect-mo-1778954014)
+> 原文：<https://lifehacker.com/why-you-shouldnt-worry-so-much-about-being-a-perfect-mo-1778954014>
 
 即使我有发展心理学的博士学位，我仍然记得把我刚出生的女儿从医院带回家后的第一个令人害怕的时刻。我不知道该怎么做，也不确定我是否有能力成为她需要我成为的父母。
 

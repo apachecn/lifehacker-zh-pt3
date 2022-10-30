@@ -1,6 +1,6 @@
 # 以下是亚马逊无法修复评论垃圾邮件的原因
 
-> 原文:[https://life hacker . com/heres-why-Amazon-cant-fix-review-spam-1825955852](https://lifehacker.com/heres-why-amazon-cant-fix-review-spam-1825955852)
+> 原文：<https://lifehacker.com/heres-why-amazon-cant-fix-review-spam-1825955852>
 
 正如我们已经 [注意到的](https://lifehacker.com/this-tool-lets-you-examine-tons-of-amazon-product-revie-1821018875) [许多](https://lifehacker.com/when-should-i-trust-online-reviews-1604152436)时代，亚马逊充斥着虚假评论，需要工作(有时 [AI](https://lifehacker.com/this-tool-lets-you-examine-tons-of-amazon-product-revie-1821018875) )来筛选它们。BuzzFeed (这个名字是一个笑话，但却是一个非常悲伤和真实的笑话。)整篇文章同样令人沮丧，因为它基本上阐明了亚马逊评论是多么注定失败。 
 

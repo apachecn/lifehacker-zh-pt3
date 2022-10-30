@@ -1,6 +1,6 @@
 # iPhone 浏览器对决:Chrome vs. Safari
 
-> 原文:[https://life hacker . com/iphone-浏览器-摊牌-chrome-vs-safari-1793167099](https://lifehacker.com/iphone-browser-showdown-chrome-vs-safari-1793167099)
+> 原文：<https://lifehacker.com/iphone-browser-showdown-chrome-vs-safari-1793167099>
 
 Safari 长期以来一直是 iPhone 上的首选浏览器，但在苹果最终在 iOS 8 中向其他浏览器开放了 Safari 的秘密速度增强功能后，现在有可能完全放弃 Safari，转而使用另一种浏览器。Chrome 是最明显的选择。但是值得吗？
 

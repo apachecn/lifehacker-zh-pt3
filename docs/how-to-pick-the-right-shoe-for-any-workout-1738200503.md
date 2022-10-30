@@ -1,6 +1,6 @@
 # 如何为任何锻炼选择合适的鞋子
 
-> 原文:[https://life hacker . com/how-to-pick-the-right-shoe for-any-workout-1738200503](https://lifehacker.com/how-to-pick-the-right-shoe-for-any-workout-1738200503)
+> 原文：<https://lifehacker.com/how-to-pick-the-right-shoe-for-any-workout-1738200503>
 
 在一个更简单的时代，一双运动鞋就足以应付所有的活动:散步、骑自行车、跑步、园艺——只要你说得出，而且鞋子也很合脚。现在，看起来更像是反过来:锻炼必须适合鞋子。如今，对于第一次买鞋的人来说，买鞋可能会让人不知所措，但不要担心:我们会帮你的。
 

@@ -1,6 +1,6 @@
 # 现在你可以使用 LinkedIn 找到一个导师
 
-> 原文:[https://life hacker . com/now-you-can-find-a-mentor-using-LinkedIn-1797553251](https://lifehacker.com/now-you-can-find-a-mentor-using-linkedin-1797553251)
+> 原文：<https://lifehacker.com/now-you-can-find-a-mentor-using-linkedin-1797553251>
 
 一个好的导师可能是一件很好的事情，但很难找到。现在，LinkedIn 正试图通过一项新的辅导功能，将那些寻求导师建议的人与愿意分享建议的专业人士联系起来。本周，它开始在几个选定的地点 推广，并计划很快推广到全国。
 

@@ -1,6 +1,6 @@
 # 如何应对苹果新 iPhone 死机的 iOS Bug
 
-> 原文:[https://life hacker . com/how-to-deal-apple-new-iphone-crashing-IOs-bug-1823040189](https://lifehacker.com/how-to-deal-with-apples-new-iphone-crashing-ios-bug-1823040189)
+> 原文：<https://lifehacker.com/how-to-deal-with-apples-new-iphone-crashing-ios-bug-1823040189>
 
 [苹果](https://lifehacker.com/how-to-ditch-apple-completely-1821082984)[新闻里又出现了](https://lifehacker.com/put-a-coaster-under-your-apple-homepod-to-protect-woode-1823003436) 今天又(又)没什么好理由了。一个新发现的能够让你的 iPhone 或 Mac 电脑崩溃的 bug 正在传播，而且是一个相当严重的 bug。以下是当你的设备成为攻击目标时该怎么做，以及如何保护自己。
 

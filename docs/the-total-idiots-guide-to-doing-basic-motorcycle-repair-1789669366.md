@@ -1,6 +1,6 @@
 # 做基本摩托车维修的傻瓜指南
 
-> 原文:[https://jalopnik . com/the-total-idiots-guide-to-do-basic-motor-repair-1789669366](https://jalopnik.com/the-total-idiots-guide-to-doing-basic-motorcycle-repair-1789669366)
+> 原文：<https://jalopnik.com/the-total-idiots-guide-to-doing-basic-motorcycle-repair-1789669366>
 
 老实说:我是个糟糕的机械师。我的前臂上有一个伤疤，是我上次给我的迷你车换刹车时留下的。我做过的任何维修工作都是财务决策，而不是休闲决策。但是！即使像我这样有着醉酒企鹅般灵巧的人，也能做基本的摩托车保养。
 

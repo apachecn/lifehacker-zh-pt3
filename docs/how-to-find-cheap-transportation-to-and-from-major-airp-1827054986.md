@@ -1,6 +1,6 @@
 # 如何找到往返各大机场的廉价交通工具
 
-> 原文:[https://life hacker . com/how-to-find-cheap-transportation-to-and-from-major-airp-1827054986](https://lifehacker.com/how-to-find-cheap-transportation-to-and-from-major-airp-1827054986)
+> 原文：<https://lifehacker.com/how-to-find-cheap-transportation-to-and-from-major-airp-1827054986>
 
 当你计划你的大旅行时，很容易忘记往返机场的交通。如果你不小心的话，它真的会让你付出代价。幸运的是，所有世界上最繁忙的机场都有负担得起的选择。如果你希望节省一些钱，这些是你应该寻找的交通方式。
 

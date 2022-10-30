@@ -1,6 +1,6 @@
 # 给不玩游戏的朋友十个游戏
 
-> 原文:[https://kotaku . com/ten-games-for-your ' s friends-not-play-games-1823363815](https://kotaku.com/ten-games-for-your-friends-who-don-t-play-games-1823363815)
+> 原文：<https://kotaku.com/ten-games-for-your-friends-who-don-t-play-games-1823363815>
 
 想要与你爱的人分享你的爱好是很自然的，但是电子游戏有时会有基于技能的准入门槛。如果你有朋友想和他们一起玩游戏，但以前没有玩过，这里有几个好地方可以开始。
 

@@ -1,6 +1,6 @@
 # 还记得你用 Sortly 储物的地方吗
 
-> 原文:[https://life hacker . com/remember-where-you-stored-things-with-sortly-1824064150](https://lifehacker.com/remeber-where-you-stored-things-with-sortly-1824064150)
+> 原文：<https://lifehacker.com/remeber-where-you-stored-things-with-sortly-1824064150>
 
 我和我的男朋友住在一个两居室的公寓里，只有两个特别小的壁橱。最接近的大到足以容纳我们的衣服，但当谈到其他东西，人们可能会放在壁橱里，这些东西藏在我们的房子里。
 

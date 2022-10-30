@@ -1,6 +1,6 @@
 # 没有理由不自己做火鸡肉汁
 
-> 原文:[https://life hacker . com/没有理由不自己做火鸡肉汁-1819991230](https://lifehacker.com/there-is-no-reason-to-not-make-your-own-turkey-gravy-1819991230)
+> 原文：<https://lifehacker.com/there-is-no-reason-to-not-make-your-own-turkey-gravy-1819991230>
 
 一份好的火鸡肉汁是成功的感恩节晚餐不可或缺的，但是自己做看起来有点吓人。幸运的是，肉汁是火鸡日菜单上最容易准备的食物之一；你只需要一点耐心(和面粉)。
 

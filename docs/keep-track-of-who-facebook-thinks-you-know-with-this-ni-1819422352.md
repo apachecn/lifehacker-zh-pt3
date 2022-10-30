@@ -1,6 +1,6 @@
 # 用这个漂亮的工具跟踪脸书认为你认识的人
 
-> 原文:[https://gizmodo . com/keep-track-of-who-Facebook-this-ni-1819422352](https://gizmodo.com/keep-track-of-who-facebook-thinks-you-know-with-this-ni-1819422352)
+> 原文：<https://gizmodo.com/keep-track-of-who-facebook-thinks-you-know-with-this-ni-1819422352>
 
 脸书在不断地 [注视着你](https://gizmodo.com/tag/people-you-may-know) 。现在，你可以看着脸书回来。Gizmodo Media Group 的特别项目部正在为那些想研究脸书推荐给他们的朋友的人发布一个工具。它叫做“你可能认识的人督察”要使用该工具:
 

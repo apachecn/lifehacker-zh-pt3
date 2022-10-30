@@ -1,6 +1,6 @@
 # 当我们变老时，我们后悔的最大的时间浪费
 
-> 原文:[https://life hacker . com/the-maximum-wastes-of-time-we-take-old-1755526646](https://lifehacker.com/the-biggest-wastes-of-time-we-regret-when-we-get-older-1755526646)
+> 原文：<https://lifehacker.com/the-biggest-wastes-of-time-we-regret-when-we-get-older-1755526646>
 
 我们花费大量精力寻找节省时间的捷径，当然，这些捷径积少成多。但是当我回头看的时候，我最大的遗憾不是花太多时间在 Twitter 上或者错误地管理我的日常任务。这些都是坏习惯，但是还有更大的、更系统的时间浪费，已经真正成为阻碍。解决这些问题将会节省大量的时间和精力。
 

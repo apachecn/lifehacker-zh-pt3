@@ -1,6 +1,6 @@
 # 你在每台新电脑上都安装了哪些实用程序？
 
-> 原文:[https://life hacker . com/what-utility-apps-do-you-install-on-every-new-computer-1820316436](https://lifehacker.com/what-utility-apps-do-you-install-on-every-new-computer-1820316436)
+> 原文：<https://lifehacker.com/what-utility-apps-do-you-install-on-every-new-computer-1820316436>
 
 有几个大家都知道的程序可以添加到新电脑上:Chrome、Spotify、Dropbox，以及一些工作应用程序，如 Excel 或 Photoshop。但我们中的许多人也有自己喜欢的助手应用程序和实用程序来定制我们的工作流程。
 

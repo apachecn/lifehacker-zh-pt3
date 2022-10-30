@@ -1,6 +1,6 @@
 # 以下是宽带公司“自我监管”的结果
 
-> 原文:[https://life hacker . com/what-happens-when-when-broadband-companies-self-regulate-1794710098](https://lifehacker.com/what-happens-when-broadband-companies-self-regulate-1794710098)
+> 原文：<https://lifehacker.com/what-happens-when-broadband-companies-self-regulate-1794710098>
 
 网络中立就在砧板上，FCC 主席 Ajit Pai 一直在鼓吹的观点是，如果没有政府干预，像互联网服务提供商和无线运营商这样的宽带公司将会自我监管。让我们看看历史是怎么说的。
 

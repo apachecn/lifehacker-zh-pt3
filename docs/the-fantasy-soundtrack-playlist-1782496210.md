@@ -1,6 +1,6 @@
 # 幻想配乐播放列表
 
-> 原文:[https://life hacker . com/the-fantasy-soundtrack-playlist-1782496210](https://lifehacker.com/the-fantasy-soundtrack-playlist-1782496210)
+> 原文：<https://lifehacker.com/the-fantasy-soundtrack-playlist-1782496210>
 
 做一个幻想书呆子的最佳时机。随着《权力的游戏》第六季的结束，花些时间来欣赏我们喜爱的奇幻故事中的伟大音乐传统。
 

@@ -1,6 +1,6 @@
 # 使用谷歌浏览器的任务管理器来找出是什么降低了你的浏览速度
 
-> 原文:[https://life hacker . com/use-Google-chrome-s-task-manager-to-figure-out-of-what-s-s-1823227377](https://lifehacker.com/use-google-chrome-s-task-manager-to-figure-out-what-s-s-1823227377)
+> 原文：<https://lifehacker.com/use-google-chrome-s-task-manager-to-figure-out-what-s-s-1823227377>
 
 冻结网页是 [不断令人沮丧的死标签](https://lifehacker.com/how-to-force-close-just-one-tab-in-chrome-1818473124) 的前身，可能会非常令人沮丧——当你无法准确识别导致速度变慢或随机死标签的原因时就更是如此。如果你想更多地了解哪些窗口或进程对你的内存和处理能力要求过高，科技网站 [Ghacks 建议你使用内置的任务管理器查看谷歌 Chrome 的内部。](https://www.ghacks.net/2018/02/21/use-chromes-task-manager-to-find-out-which-site-or-extension-slows-it-down/)
 

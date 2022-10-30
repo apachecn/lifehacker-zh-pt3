@@ -1,6 +1,6 @@
 # 以下是今晚观看双子座流星雨的方法
 
-> 原文:[https://life hacker . com/here-s-how-to-see-the-geminid-meteor-shower-tonight-1821255201](https://lifehacker.com/here-s-how-to-see-the-geminid-meteor-shower-tonight-1821255201)
+> 原文：<https://lifehacker.com/here-s-how-to-see-the-geminid-meteor-shower-tonight-1821255201>
 
 每年 12 月，当地球穿过 3200 Phaethon 小行星留下的充满碎片的痕迹时，我们这些弱小的人类可以瞥见燃烧的碎片、灰尘和岩石，这就是一年一度的双子座流星雨。今年也不例外，所有这些碎片将在今晚提供一场相当耀眼的灯光秀，根据美国宇航局的说法。
 

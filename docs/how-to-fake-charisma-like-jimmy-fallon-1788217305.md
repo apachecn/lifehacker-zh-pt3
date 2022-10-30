@@ -1,6 +1,6 @@
 # 如何像吉米·法伦一样“伪造”人格魅力
 
-> 原文:[https://life hacker . com/how-to-fake-charisma-like-Jimmy-Fallon-1788217305](https://lifehacker.com/how-to-fake-charisma-like-jimmy-fallon-1788217305)
+> 原文：<https://lifehacker.com/how-to-fake-charisma-like-jimmy-fallon-1788217305>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ncW1MdPr1B8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ncW1MdPr1B8&start=0) 
 

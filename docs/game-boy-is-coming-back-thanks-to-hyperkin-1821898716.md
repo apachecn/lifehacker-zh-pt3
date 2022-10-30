@@ -1,6 +1,6 @@
 # 多亏了 Hyperkin 游戏男孩回来了
 
-> 原文:[https://gizmodo . com/game-boy-is-back-thanks-to-hyperkin-1821898716](https://gizmodo.com/game-boy-is-coming-back-thanks-to-hyperkin-1821898716)
+> 原文：<https://gizmodo.com/game-boy-is-coming-back-thanks-to-hyperkin-1821898716>
 
 随着[【NES】](https://gizmodo.com/the-nes-classic-edition-is-everything-you-want-it-to-be-1788571481)和 [SNES 经典版](https://gizmodo.com/snes-classic-is-the-best-way-to-experience-nintendos-go-1818811285#_ga=2.52312169.1758539802.1515419360-416245376.1515419359) 复古游戏机的销售速度仍然与它们上市的速度一样快，可以肯定任天堂将很快重振其其他一些受欢迎的游戏机。但在 [Game Boy 经典版](https://gizmodo.com/these-are-the-25-games-the-game-boy-classic-edition-sho-1818843497#_ga=2.221226328.1746114267.1515352283-1626665990.1512676959) 有机会成为一个传言之前，外设制造商 [Hyperkin](https://gizmodo.com/tag/hyperkin#_ga=2.56501227.1746114267.1515352283-1626665990.1512676959) 正在发布自己翻拍的经典便携掌机
 

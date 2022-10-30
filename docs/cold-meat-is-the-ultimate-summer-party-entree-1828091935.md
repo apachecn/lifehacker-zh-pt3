@@ -1,6 +1,6 @@
 # 冷肉是夏季派对的终极主菜
 
-> 原文:[https://life hacker . com/cold-meat-is-ultimate-summer-party-entree-1828091935](https://lifehacker.com/cold-meat-is-the-ultimate-summer-party-entree-1828091935)
+> 原文：<https://lifehacker.com/cold-meat-is-the-ultimate-summer-party-entree-1828091935>
 
 很少有什么事情比一次的夏季晚宴更好，也很少有什么事情比为一个人做饭更糟糕。在八月炎热的天气里，当你的客人越来越醉越来越饿的时候，在烧红的烤架上流汗，这是一种非常不愉快的招待体验。
 

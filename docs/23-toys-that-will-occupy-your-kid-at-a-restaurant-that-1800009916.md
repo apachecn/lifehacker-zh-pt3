@@ -1,6 +1,6 @@
 # 23 个玩具会让你的孩子在餐馆里忙个不停(不是 iPad)
 
-> 原文:[https://life hacker . com/23-toys-that-that-1800009916](https://lifehacker.com/23-toys-that-will-occupy-your-kid-at-a-restaurant-that-1800009916)
+> 原文：<https://lifehacker.com/23-toys-that-will-occupy-your-kid-at-a-restaurant-that-1800009916>
 
 在我家，我们有一个禁止孩子去餐馆的规定，这个规定持续了大约两年。这是因为他们要么以闪电般的速度进食——这意味着我们中的一个父母也必须狼吞虎咽，然后带他们到外面去敲树上的棍子——要么以蜗牛般的速度进食，这意味着关门的服务员正在打开空调，并把吉米·巴菲特作为一个微妙的暗示。或者孩子们只是粗暴、易怒或脏乱，这对每个人来说都是不愉快的经历。
 

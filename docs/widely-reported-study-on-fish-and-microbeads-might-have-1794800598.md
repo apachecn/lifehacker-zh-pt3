@@ -1,6 +1,6 @@
 # 广泛报道的关于鱼和微珠的研究可能是伪造的
 
-> 原文:[https://gizmodo . com/four-reported-study-on-fish-and-microbeads-may-have-1794800598](https://gizmodo.com/widely-reported-study-on-fish-and-microbeads-might-have-1794800598)
+> 原文：<https://gizmodo.com/widely-reported-study-on-fish-and-microbeads-might-have-1794800598>
 
 去年发表在 *Science* 上的一篇 [标题](https://gizmodo.com/young-fish-get-hooked-on-plastic-microbeads-1780412133) [抓拍](http://www.independent.co.uk/news/science/fish-microplastic-microbeads-perch-pike-food-marine-pollution-a7063161.html)--[研究](http://science.sciencemag.org/cgi/doi/10.1126/science.aad8828) 警告塑料微珠对鱼类幼体的影响濒临被撤回。在一个涉及缺失数据、劣质研究方法和完全捏造的案例中，这是我们在相当长的一段时间里看到的最令人震惊的科学欺诈案例之一，也是一个有很多指责的案例。
 

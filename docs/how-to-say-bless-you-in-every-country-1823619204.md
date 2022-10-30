@@ -1,6 +1,6 @@
 # 在每个国家如何说“祝福你”
 
-> 原文:[https://life hacker . com/how-to-say-bless-you-in-every-country-1823619204](https://lifehacker.com/how-to-say-bless-you-in-every-country-1823619204)
+> 原文：<https://lifehacker.com/how-to-say-bless-you-in-every-country-1823619204>
 
 看， [我宁愿你不说“祝福你。”](https://lifehacker.com/lets-all-stop-saying-bless-you-1819891678) 但似乎你们大多数人还没有准备好迈出这一步，所以这里有 [Expedia 的指南，告诉你在世界上几乎每个国家如何礼貌地回应喷嚏](https://www.expedia.ca/travelblog/world-responds-sneezing/) 。墨西哥的特别好玩。
 

@@ -1,6 +1,6 @@
 # 如何在孩子的足球比赛中不成为一个愤怒的疯子
 
-> 原文:[https://life hacker . com/how-not-to-be-a-rage-maniac-at-your-kids-soccer-game-1821063621](https://lifehacker.com/how-not-to-be-a-raging-maniac-at-your-kids-soccer-game-1821063621)
+> 原文：<https://lifehacker.com/how-not-to-be-a-raging-maniac-at-your-kids-soccer-game-1821063621>
 
 周六，我会和一群普通人一起玩足球。我们利用任何我们能找到的空地。这在初秋变得更加困难，那时青年足球联盟开始了他们的赛季。当我们看到那些穿着统一制服的孩子向我们走来，旁边是拿着厚厚的战术手册的教练时，我们让开了路。那些人很恶毒。父母更糟糕。
 

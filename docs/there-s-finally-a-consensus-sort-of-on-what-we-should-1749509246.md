@@ -1,6 +1,6 @@
 # 我们应该吃什么终于有了共识
 
-> 原文:[https://life hacker . com/there-s-finally-a-consensus-sort-on-what-we-should-1749509246](https://lifehacker.com/there-s-finally-a-consensus-sort-of-on-what-we-should-1749509246)
+> 原文：<https://lifehacker.com/there-s-finally-a-consensus-sort-of-on-what-we-should-1749509246>
 
 我们之前已经注意到，当谈到营养 时，每个人都同意的只有三件事 [。多亏了营养研究人员的会议，我们可以在这个清单上增加一些东西。](http://vitals.lifehacker.com/the-only-three-things-everybody-agrees-on-when-it-comes-1709039566#_ga=1.253474569.1055861349.1441835238)
 

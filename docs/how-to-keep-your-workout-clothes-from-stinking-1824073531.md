@@ -1,6 +1,6 @@
 # 如何让你的运动服不发臭
 
-> 原文:[https://life hacker . com/how-to-keep your-working-something-your-studting-wonked 1824073531](https://lifehacker.com/how-to-keep-your-workout-clothes-from-stinking-1824073531)
+> 原文：<https://lifehacker.com/how-to-keep-your-workout-clothes-from-stinking-1824073531>
 
 汗湿的衣服很臭，但汗湿的运动服最臭。就像那些合成纤维紧身裤，那些吸汗的袜子，那些“技术”t 恤？唷。这些织物特别容易滋生最难闻的细菌。
 

@@ -1,6 +1,6 @@
 # 如何获得你所有旧漫画的数字版本
 
-> 原文:[https://life hacker . com/how-to-get-digital-versions-of-all-your-old-comics-1821468210](https://lifehacker.com/how-to-get-digital-versions-of-all-your-old-comics-1821468210)
+> 原文：<https://lifehacker.com/how-to-get-digital-versions-of-all-your-old-comics-1821468210>
 
 在你扔掉季节性的万圣节装饰品，为你的装满旧的蜘蛛火腿的长盒子腾出空间之前，考虑一下这个:数字漫画很容易得到，从长远来看肯定会为你节省一些钱(和空间)。听起来有趣吗？以下是如何开始在您的设备上阅读数字漫画。
 

@@ -1,6 +1,6 @@
 # 为什么罐装葡萄酒需要成为你这个夏天的烧烤饮品
 
-> 原文:[https://life hacker . com/why-canned-wine-need-to-be-your-go-BBQ-drink-this-s-1795530740](https://lifehacker.com/why-canned-wine-needs-to-be-your-go-to-bbq-drink-this-s-1795530740)
+> 原文：<https://lifehacker.com/why-canned-wine-needs-to-be-your-go-to-bbq-drink-this-s-1795530740>
 
 就像盒装葡萄酒 一样，罐装葡萄酒被葡萄酒爱好者瞧不起，但这不应该阻止我们这些普通人享受它。事实上，比起瓶装甚至盒装葡萄酒，罐装葡萄酒是一种更方便的夏季户外饮酒选择。
 

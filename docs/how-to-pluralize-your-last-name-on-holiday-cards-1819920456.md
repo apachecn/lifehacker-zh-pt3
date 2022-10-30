@@ -1,6 +1,6 @@
 # 如何在节日贺卡上用复数表示你的姓
 
-> 原文:[https://life hacker . com/how-to-multiplier of your last-name-on-holiday-cards-1819920456](https://lifehacker.com/how-to-pluralize-your-last-name-on-holiday-cards-1819920456)
+> 原文：<https://lifehacker.com/how-to-pluralize-your-last-name-on-holiday-cards-1819920456>
 
 快到万圣节了，这意味着你的节日贺卡已经迟到了。如果你要代表你自己、你的伴侣，也许还有你的孩子写你的年终信，开始考虑你的回信地址。
 

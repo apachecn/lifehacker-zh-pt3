@@ -1,6 +1,6 @@
 # 使用项目 Fi 访问中国被封锁的网站
 
-> 原文:[https://life hacker . com/access-blocked-sites-in-China-with-project-fi-1825395983](https://lifehacker.com/access-blocked-sites-in-china-with-project-fi-1825395983)
+> 原文：<https://lifehacker.com/access-blocked-sites-in-china-with-project-fi-1825395983>
 
 Android:[Project Fi](https://lifehacker.com/google-fis-new-bill-protection-is-perfect-if-you-only-1822166834)已经让你在世界各地 [使用手机变得既便宜又容易](https://thepointsguy.com/2018/01/project-fi-data-fee-cap/) 而不需要在每个国家更换新的 SIM 卡，但是如果你计划去 [中国](https://lifehacker.com/avoid-huawei-zte-and-other-chinese-smartphones-1823010820) 旅行，有一个很大的理由去看看谷歌的服务。
 

@@ -1,6 +1,6 @@
 # 我是作家劳拉·琼，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-writer-Laura-June-and-this-how-I-parent-1827950776](https://lifehacker.com/im-writer-laura-june-and-this-is-how-i-parent-1827950776)
+> 原文：<https://lifehacker.com/im-writer-laura-june-and-this-is-how-i-parent-1827950776>
 
 在她的新回忆录 [*现在我的心满满*](https://www.amazon.com/Now-My-Heart-Full-Memoir/dp/0143130919?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-writer-laura-june-and-this-is-how-i-parent-1827950776&asc_source=&tag=kinjalifehackerlink-20) 中，劳拉·琼写道，成为父母如何帮助她平静地面对自己母亲的记忆、母亲的酗酒以及他们艰难的关系。在这里，她谈到了与女儿塞尔达的生活，从她认为婴儿有时需要独处到母亲让她比以往任何时候都更有创造力。
 

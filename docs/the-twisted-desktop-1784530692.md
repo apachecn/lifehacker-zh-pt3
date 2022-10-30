@@ -1,6 +1,6 @@
 # 扭曲的桌面
 
-> 原文:[https://lifehacker.com/the-twisted-desktop-1784530692](https://lifehacker.com/the-twisted-desktop-1784530692)
+> 原文：<https://lifehacker.com/the-twisted-desktop-1784530692>
 
 距离我们看到 [JonRedcorn2](https://www.flickr.com/photos/134554762@N08/) 的定制桌面已经有一段时间了，但这款桌面如此引人注目，我们无法将目光移开——我们必须突出它。以下是如何让您的电脑拥有相同外观的方法。
 

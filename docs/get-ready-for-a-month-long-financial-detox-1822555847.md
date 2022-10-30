@@ -1,6 +1,6 @@
 # 准备好一个月的财务排毒
 
-> 原文:[https://life hacker . com/get-ready-for-a month-financial-detox-1822555847](https://lifehacker.com/get-ready-for-a-month-long-financial-detox-1822555847)
+> 原文：<https://lifehacker.com/get-ready-for-a-month-long-financial-detox-1822555847>
 
 我们都有一两个可以改变的花钱习惯。
 

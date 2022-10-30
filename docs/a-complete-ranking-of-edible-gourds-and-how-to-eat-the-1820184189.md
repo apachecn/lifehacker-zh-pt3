@@ -1,6 +1,6 @@
 # 可食用葫芦的完整排名，以及如何食用它们
 
-> 原文:[https://life hacker . com/a-complete-ranking-of-食用葫芦和如何吃-1820184189](https://lifehacker.com/a-complete-ranking-of-edible-gourds-and-how-to-eat-the-1820184189)
+> 原文：<https://lifehacker.com/a-complete-ranking-of-edible-gourds-and-how-to-eat-the-1820184189>
 
 朋友们，葫芦的季节又来到了。在我的家里乱扔各种各样的装饰性葫芦 从来都不是我的风格，但当可食用的葫芦开始出现在杂货店时，我的眼睛里闪过一丝狂热的光芒。虽然我希望我能说所有的葫芦都是美丽的，值得爱，但事实是有些比其他的好吃得多。以下是本季度最佳产品的客观排名。
 

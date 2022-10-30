@@ -1,6 +1,6 @@
 # 忘了 Sous Vide 吧，这周我们来看看砂锅菜
 
-> 原文:[https://life hacker . com/forget-sous-vide-this-week-were-to-see-what-will-1818677521](https://lifehacker.com/forget-sous-vide-this-week-were-going-to-see-what-will-1818677521)
+> 原文：<https://lifehacker.com/forget-sous-vide-this-week-were-going-to-see-what-will-1818677521>
 
 你好，欢迎来到*沙锅会吗？*、复古周对 [*的回答会不会 Sous Vide？基本上，我会把你想让我做的任何东西重新想象成砂锅，而不是用我的沉浸式循环器做你想让我做的任何东西。*](https://lifehacker.com/tag/will-it-sous-vide) 
 

@@ -1,6 +1,6 @@
 # 使用这个非官方的 iPhone X 应用程序，让您的 Animoji 视频长度增加一倍
 
-> 原文:[https://life hacker . com/make-your-animo Ji-videos-double-倍长 with this-unoffi-1820256820](https://lifehacker.com/make-your-animoji-videos-twice-as-long-with-this-unoffi-1820256820)
+> 原文：<https://lifehacker.com/make-your-animoji-videos-twice-as-long-with-this-unoffi-1820256820>
 
 iOS:当然， [iPhone X](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 有无边框屏幕和 [面部识别安全](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406) ，但该设备最受关注的功能可能只是。唯一的问题？Animoji 卡在苹果的信息应用程序中，长度限制在 10 秒。
 

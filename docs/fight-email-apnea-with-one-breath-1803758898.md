@@ -1,6 +1,6 @@
 # 一口气战胜“电子邮件窒息症”
 
-> 原文:[https://life hacker . com/fight-email-呼吸暂停-一口气-1803758898](https://lifehacker.com/fight-email-apnea-with-one-breath-1803758898)
+> 原文：<https://lifehacker.com/fight-email-apnea-with-one-breath-1803758898>
 
 你有没有注意到当你等待 Twitter 加载、你的电子邮件刷新或者你的蓝牙设备连接的时候，有一瞬间的屏住呼吸？当你等待技术发挥作用时，你的肌肉会痉挛吗？你的手机突然变成该死的车管所整整六秒钟？
 

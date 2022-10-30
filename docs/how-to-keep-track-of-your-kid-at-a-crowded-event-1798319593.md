@@ -1,6 +1,6 @@
 # 如何在拥挤的活动中跟踪你的孩子
 
-> 原文:[https://life hacker . com/how-to-keep-track-of-your-kid-at-a-crowd-event-1798319593](https://lifehacker.com/how-to-keep-track-of-your-kid-at-a-crowded-event-1798319593)
+> 原文：<https://lifehacker.com/how-to-keep-track-of-your-kid-at-a-crowded-event-1798319593>
 
 我有一个孩子是飞镖运动员。他现在四岁了，所以他比他两三岁的时候好了一点，但是，参观拥挤的博物馆和户外音乐会仍然让我感到一定程度的焦虑。我最近一次可怕的经历是在一个拥挤的公园里，我看到他走进了猴架区，然后我转身对我的另一个孩子说了些什么，然后又转回来，然后...他不见了。这就像一部电影，视角是镜头前后的疯狂摆动:玩耍的孩子，叮当作响的冰淇淋车，还有——没有我儿子的影子。我和我的大儿子分散开来，最终我在公园的另一端发现了他，他正在泥土中快乐地玩耍。有那么一瞬间，我对那些孩子掉进大猩猩笼子的父母产生了新的同情。
 

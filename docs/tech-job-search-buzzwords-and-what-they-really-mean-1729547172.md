@@ -1,6 +1,6 @@
 # 科技求职流行语及其真正含义
 
-> 原文:[https://life hacker . com/tech-job-search-buzz words-and-what-them-really-mean-1729547172](https://lifehacker.com/tech-job-search-buzzwords-and-what-they-really-mean-1729547172)
+> 原文：<https://lifehacker.com/tech-job-search-buzzwords-and-what-they-really-mean-1729547172>
 
 在技术行业找工作很难。在你去打猎之前，你必须有合适的技能、合适的人脉和一份精心制作的简历。你不需要的是那些通常复杂的、半无意义的职位名称和许多职位描述中的流行词汇。让我们来看看几个最常被滥用的，以及它们对现实生活中的人们意味着什么。
 

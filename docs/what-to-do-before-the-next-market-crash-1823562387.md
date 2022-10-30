@@ -1,6 +1,6 @@
 # 在下一次市场崩盘前该做什么
 
-> 原文:[https://life hacker . com/what-to-do-before-the-next-market-crash-1823562387](https://lifehacker.com/what-to-do-before-the-next-market-crash-1823562387)
+> 原文：<https://lifehacker.com/what-to-do-before-the-next-market-crash-1823562387>
 
 抛开这些不谈，在某个时候还会有另一次市场调整(或崩盘)，当它发生时，你需要做好准备。
 

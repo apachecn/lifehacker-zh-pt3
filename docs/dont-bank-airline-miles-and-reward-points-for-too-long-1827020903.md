@@ -1,6 +1,6 @@
 # 不要将航空里程和奖励积分存放太久
 
-> 原文:[https://life hacker . com/don-bank-airline-miles-and-reward-points-for-too-long-1827020903](https://lifehacker.com/dont-bank-airline-miles-and-reward-points-for-too-long-1827020903)
+> 原文：<https://lifehacker.com/dont-bank-airline-miles-and-reward-points-for-too-long-1827020903>
 
 如果你喜欢旅行，并且没有积攒航空里程或信用卡积分，你应该这样做。如果你已经是了，小心你持有它们的时间。为梦想中的假期攒钱听起来可能令人兴奋，但我知道一个词会毁了你所有的计划:贬值。
 

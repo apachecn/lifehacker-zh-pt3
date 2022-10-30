@@ -1,6 +1,6 @@
 # 如果你有东西要还给 LL Bean，现在就做
 
-> 原文:[https://life hacker . com/if-you-have-something-to-return-ll-bean-do-it-now-1822875662](https://lifehacker.com/if-you-have-something-to-return-to-ll-bean-do-it-now-1822875662)
+> 原文：<https://lifehacker.com/if-you-have-something-to-return-to-ll-bean-do-it-now-1822875662>
 
 去年在 LL Bean 买过东西吗？不完全满意吗？现在把它退回去。这家拥有百年历史的户外型商品目录零售商改变了其著名的慷慨退货政策:以前，你可以随时退货，不需要收据；现在你必须保留你的收据，并在一年内取回你的物品 。
 

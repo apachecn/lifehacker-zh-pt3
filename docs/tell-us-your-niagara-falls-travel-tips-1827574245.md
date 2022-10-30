@@ -1,6 +1,6 @@
 # 告诉我们你的尼亚加拉瀑布旅游贴士
 
-> 原文:[https://life hacker . com/tell-us-your-niagara-falls-travel-tips-1827574245](https://lifehacker.com/tell-us-your-niagara-falls-travel-tips-1827574245)
+> 原文：<https://lifehacker.com/tell-us-your-niagara-falls-travel-tips-1827574245>
 
 尼亚加拉瀑布是世界顶级旅游景点之一。这个名字适用于一个美国城市、一个加拿大城市、两个美国瀑布和一个跨越国际边界的瀑布。数百万人从这些瀑布为他们的家提供电力。人们在它们下面划船，在它们上面装桶，并在它们旁边建造里普利的信不信由你。在本周的 [Hack Your City](https://lifehacker.com/c/hack-your-city) 节目中，我们想知道什么时候去旅游，在边境的两边做什么，以及如何最好地体验瀑布本身。(我们还将接受您在附近的尼亚加拉湖上的建议。)
 

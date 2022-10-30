@@ -1,6 +1,6 @@
 # 如何使用优步新推出的“拨打 911”功能
 
-> 原文:[https://life hacker . com/how-to-use-ubers-new-call-911-feature-1826390403](https://lifehacker.com/how-to-use-ubers-new-call-911-feature-1826390403)
+> 原文：<https://lifehacker.com/how-to-use-ubers-new-call-911-feature-1826390403>
 
 我们希望你在优步的骑行是无聊和愉快的，但如果你在旅途中遇到麻烦或经历不安全的情况，拼车服务今天推出了一项新功能，可以轻松地从应用程序本身拨打 911。只需轻点一个按钮，并快速确认，您就可以联系警方报告您卷入的事故(或任何其他值得注意的紧急情况)。
 

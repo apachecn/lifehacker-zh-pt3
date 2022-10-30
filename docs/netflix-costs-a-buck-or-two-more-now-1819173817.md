@@ -1,6 +1,6 @@
 # 网飞现在要多花一两美元
 
-> 原文:[https://life hacker . com/网飞-costs-a-buck-or-two-more-now-1819173817](https://lifehacker.com/netflix-costs-a-buck-or-two-more-now-1819173817)
+> 原文：<https://lifehacker.com/netflix-costs-a-buck-or-two-more-now-1819173817>
 
 网飞 [提高其三级流媒体中的两级](http://www.businessinsider.com/netflix-raising-prices-october-2017-10) 的价格。中间计划允许同时在最多两台设备上播放高清流媒体，将从每月 9.99 美元上涨到每月 10.99 美元。4K 最多可以同时在四个设备上播放流媒体的高价套餐将从 11.99 美元涨到 13.99 美元。最便宜的计划(一个屏幕，标准清晰度)仍然是 7.99 美元。
 

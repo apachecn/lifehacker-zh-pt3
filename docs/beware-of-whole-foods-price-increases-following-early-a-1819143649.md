@@ -1,6 +1,6 @@
 # 当心全食超市在亚马逊早期打折后涨价
 
-> 原文:[https://life hacker . com/当心全食食品价格上涨-遵循-早-1819143649](https://lifehacker.com/beware-of-whole-foods-price-increases-following-early-a-1819143649)
+> 原文：<https://lifehacker.com/beware-of-whole-foods-price-increases-following-early-a-1819143649>
 
 对于我们所有人来说，这是一个令人失望的消息，他们相信在全食超市购物时，我们可以保留部分工资，这要感谢亚马逊的收购似乎带来了立即(和相当大的)降价。 一家研究公司一直在跟踪数据，发现价格从交易的第一天起就开始回升，有些 [甚至比贝佐斯之前的](http://www.grubstreet.com/2017/10/prices-at-whole-foods-are-already-creeping-back-up.html)*还要高。回乔氏吗？* 
 

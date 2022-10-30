@@ -1,6 +1,6 @@
 # 如何理解 iOS 10 的新锁屏
 
-> 原文:[https://life hacker . com/how-to-make-sense-of-IOs-10s-new-lock-screen-1786541529](https://lifehacker.com/how-to-make-sense-of-ios-10s-new-lock-screen-1786541529)
+> 原文：<https://lifehacker.com/how-to-make-sense-of-ios-10s-new-lock-screen-1786541529>
 
 当你启动 iOS 10 时，你首先会注意到的是花哨的新锁屏。这是不同的外观，当你看到熟悉的“滑动解锁”不见了，你可能会有点震惊。还有很多其他的调整。别担心，这些变化大部分都是向好的方向发展。
 

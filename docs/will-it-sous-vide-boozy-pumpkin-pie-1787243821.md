@@ -1,6 +1,6 @@
 # 它会腐烂吗？醉人的南瓜派
 
-> 原文:[https://life hacker . com/will-it-sous-vide-boozy-南瓜馅饼-1787243821](https://lifehacker.com/will-it-sous-vide-boozy-pumpkin-pie-1787243821)
+> 原文：<https://lifehacker.com/will-it-sous-vide-boozy-pumpkin-pie-1787243821>
 
 大家好，欢迎来到一个非常秋天的版本。每周专栏，我用我的沉浸式循环器做你想要我做的任何东西。 [本周](http://skillet.lifehacker.com/will-it-sous-vide-lets-pick-another-topic-1787021344) ，你们都得到了非常时令的当选南瓜派。
 

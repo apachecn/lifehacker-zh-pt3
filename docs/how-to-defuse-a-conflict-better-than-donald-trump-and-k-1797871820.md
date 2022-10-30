@@ -1,6 +1,6 @@
 # 如何比唐纳德·川普和金正恩更好地化解冲突
 
-> 原文:[https://life hacker . com/how-to-defuse-a-conflict-better-Donald-trump-and-k-1797871820](https://lifehacker.com/how-to-defuse-a-conflict-better-than-donald-trump-and-k-1797871820)
+> 原文：<https://lifehacker.com/how-to-defuse-a-conflict-better-than-donald-trump-and-k-1797871820>
 
 很难相信最近的新闻事件实际上淹没了美国和朝鲜之间核战争的威胁，但我们生活在一个有趣的时代。只是 [快速回顾一下](http://www.politico.com/interactives/2017/anatomy-of-a-crisis-the-north-korea-threat/):7 月 28 日，朝鲜测试了一枚射程可达美国的弹道导弹。8 月 8 日，特朗普总统承诺用“火与怒”应对任何威胁。10 日，朝鲜战略导弹部队负责人透露了攻击关岛的计划。8 月 11 日:特朗普表示，军队已经“全副武装”，准备展示武力应对任何威胁。
 

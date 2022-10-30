@@ -1,6 +1,6 @@
 # 用锅炉制造商开始劳动节周末
 
-> 原文:[https://life hacker . com/kick-off-labor-day-weekend-with-a-boiler maker-1828733668](https://lifehacker.com/kick-off-labor-day-weekend-with-a-boilermaker-1828733668)
+> 原文：<https://lifehacker.com/kick-off-labor-day-weekend-with-a-boilermaker-1828733668>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天，我们以一杯饮料开始漫长的周末，就像这个国家的优秀工人一样，完成任务。我说的是锅炉制造商。
 

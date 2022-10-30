@@ -1,6 +1,6 @@
 # 自动驾驶汽车能教会我们如何更好地驾驶
 
-> 原文:[https://life hacker . com/what-self-driving-cars-can-teach-us-about-better-driving-1786843323](https://lifehacker.com/what-self-driving-cars-can-teach-us-about-better-drivin-1786843323)
+> 原文：<https://lifehacker.com/what-self-driving-cars-can-teach-us-about-better-drivin-1786843323>
 
 到目前为止，自动驾驶汽车的驾驶记录比大多数人类更安全。这似乎令人印象深刻，但部分原因是因为我们的驾驶技术太差了。我们很匆忙，我们会生气，我们会冒不必要的风险。在这些领域，自动驾驶汽车可以教给我们一些东西。
 

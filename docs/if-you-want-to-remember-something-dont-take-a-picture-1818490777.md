@@ -1,6 +1,6 @@
 # 如果你想记住什么，就不要拍照
 
-> 原文:[https://life hacker . com/if-you-want-to-remember-something-don-take-a-photo-1818490777](https://lifehacker.com/if-you-want-to-remember-something-dont-take-a-picture-1818490777)
+> 原文：<https://lifehacker.com/if-you-want-to-remember-something-dont-take-a-picture-1818490777>
 
 上个月，我去了旧金山为期三天的音乐节 Outside Lands，来自几乎所有流派的音乐艺术家在金门公园周围的不同舞台上表演。不管播放的是什么类型的音乐，每个舞台都有一个共同点:有人(或很多人)站在舞台附近，举着手机拍照和拍摄视频，挡住了身后所有人的视线。作为一个比较矮的人，我在周末通过某人的手机屏幕观看了绝大多数节目。除了令人讨厌之外，事实证明什么都拍也没什么意义。
 

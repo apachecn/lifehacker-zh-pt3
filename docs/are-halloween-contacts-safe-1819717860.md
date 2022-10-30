@@ -1,6 +1,6 @@
 # 万圣节隐形眼镜安全吗？
 
-> 原文:[https://life hacker . com/are-Halloween-contacts-safe-1819717860](https://lifehacker.com/are-halloween-contacts-safe-1819717860)
+> 原文：<https://lifehacker.com/are-halloween-contacts-safe-1819717860>
 
 接触猫的瞳孔或霓虹的颜色会很有趣，但是你确定你想把一片服装店的塑料放进你的眼睛里吗？我们从美国验光配镜协会 那里得到了一些建议，告诉我们如何在聚会上看起来很酷，而不会引起严重的眼部感染。
 

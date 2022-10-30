@@ -1,6 +1,6 @@
 # 如何变得更聪明、更快、更好，查尔斯·杜希格
 
-> 原文:[https://life hacker . com/Charles-du higg-on-self-motivation-mental-models-and-g-1793445660](https://lifehacker.com/charles-duhigg-on-self-motivation-mental-models-and-g-1793445660)
+> 原文：<https://lifehacker.com/charles-duhigg-on-self-motivation-mental-models-and-g-1793445660>
 
 如果有人知道忙碌和高效的区别，那就是查尔斯·杜希格。这位曾获普利策奖的《纽约时报》记者、《习惯的力量》《T3》《T4》《T5》的作者因研究生产力科学而出名，本周他加入了我们的播客。
 

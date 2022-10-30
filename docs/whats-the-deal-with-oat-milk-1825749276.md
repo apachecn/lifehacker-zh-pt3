@@ -1,6 +1,6 @@
 # 燕麦牛奶是怎么回事？
 
-> 原文:[https://life hacker . com/what-the-deal-with-oat-milk-1825749276](https://lifehacker.com/whats-the-deal-with-oat-milk-1825749276)
+> 原文：<https://lifehacker.com/whats-the-deal-with-oat-milk-1825749276>
 
 在避免食用奶制品的世界里，有许多“牛奶”实际上并不是牛奶，而且它们的数量还在增长。最新的非乳制品灵丹妙药是燕麦牛奶，人们似乎为之疯狂。
 

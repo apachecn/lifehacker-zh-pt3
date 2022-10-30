@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 2 日至 9 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 2 日至 9 日-1735632665](https://lifehacker.com/this-weeks-most-popular-posts-october-2nd-to-9th-1735632665)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-2nd-to-9th-1735632665>
 
 本周，我们学习了“爱情语言”如何帮助你们的关系，看了哪些机器人手机会得到最新的棉花糖更新，改善了我们在现实生活中的性格统计，等等。这是一个回顾。
 

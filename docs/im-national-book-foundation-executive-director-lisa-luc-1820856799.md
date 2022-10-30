@@ -1,6 +1,6 @@
 # 我是国家图书基金会执行董事丽莎·卢卡斯，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-national-book-foundation-executive-director-Lisa-Luc-1820856799](https://lifehacker.com/im-national-book-foundation-executive-director-lisa-luc-1820856799)
+> 原文：<https://lifehacker.com/im-national-book-foundation-executive-director-lisa-luc-1820856799>
 
 自 1950 年以来，国家图书基金会 已经向科尔森·怀特黑德、威廉·福克纳、贝芙莉·克莱瑞和杰斯明·沃德等作家颁发了国家图书奖。该基金会还为读者和作家开设了几个项目，包括 BookUp 课后阅读项目。2016 年 3 月，基金会聘请格尔尼卡出版商 [丽莎·卢卡斯](https://twitter.com/likaluca) 担任执行董事。我们和卢卡斯谈论了她是如何日常管理基金会的。
 

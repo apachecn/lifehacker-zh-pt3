@@ -1,6 +1,6 @@
 # 我需要一辆令人兴奋的汽车，以低于 15，000 美元的价格去完成我的无聊工作！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-exciting-car to-get-me-to-my-boring-job-what-1788762601](https://jalopnik.com/i-need-an-exciting-car-to-get-me-to-my-boring-job-what-1788762601)
+> 原文：<https://jalopnik.com/i-need-an-exciting-car-to-get-me-to-my-boring-job-what-1788762601>
 
 布拉德利 26 岁，像我们其他人一样，他坐在办公桌后，朝九晚五地埋头苦干。所以，他需要在通勤中找到享受。我相信你们很多人都有同感。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 如何在长期关系中拥有美好的性生活，治疗师斯蒂芬·斯奈德
 
-> 原文:[https://life hacker . com/how-to-have-great-sex-in-1824261852](https://lifehacker.com/how-to-have-great-sex-in-a-long-term-relationship-with-1824261852)
+> 原文：<https://lifehacker.com/how-to-have-great-sex-in-a-long-term-relationship-with-1824261852>
 
 在这一集里，我们将与斯蒂芬·斯奈德 对话，他是一位性和夫妻治疗师，也是《值得拥有的 [*【爱情:如何在一段长久的关系中拥有美妙得离谱的性爱】*](https://www.amazon.com/dp/B073Z8CBQ4/ref=dp-kindle-redirect?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-have-great-sex-in-a-long-term-relationship-with-1824261852&asc_source=&btkr=1&tag=kinjalifehackerlink-20) 的作者。我们将讨论为什么你应该在性方面自私，为什么“欲望”的想法会搅乱你的性生活，以及为什么斯蒂芬反对拥抱。
 

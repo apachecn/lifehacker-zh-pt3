@@ -1,6 +1,6 @@
 # 成功准备餐食的 12 个策略
 
-> 原文:[https://life hacker . com/12-strategies-for-a-successful-meal-prep-day-1791791857](https://lifehacker.com/12-strategies-for-a-successful-meal-prep-day-1791791857)
+> 原文：<https://lifehacker.com/12-strategies-for-a-successful-meal-prep-day-1791791857>
 
 一个常见的节省食物开支的策略出现在许多节俭书籍和许多节俭网站上，那就是“用餐准备日”的想法，有时简称为“用餐准备日”，因为人们经常利用周日来做这件事。
 

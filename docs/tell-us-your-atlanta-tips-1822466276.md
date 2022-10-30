@@ -1,6 +1,6 @@
 # 告诉我们你的亚特兰大秘诀
 
-> 原文:[https://lifehacker.com/tell-us-your-atlanta-tips-1822466276](https://lifehacker.com/tell-us-your-atlanta-tips-1822466276)
+> 原文：<https://lifehacker.com/tell-us-your-atlanta-tips-1822466276>
 
 他们把唐纳德·格洛弗秀变成了一座城市。它有很多技巧。如果你需要去一条名为桃树街的街道，确保它绝对是桃树街，而不是其他 70 条名字中带有“桃树”的街道,。当一英寸厚的雪席卷整个城市时，如果你不想被冻成丁字裤，就远离公路。
 

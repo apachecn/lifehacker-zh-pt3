@@ -1,6 +1,6 @@
 # 你的饮料可能会让你的过敏更严重
 
-> 原文:[https://life hacker . com/your-cocktail-may-be-making-your-allergies-worse-1796375639](https://lifehacker.com/your-cocktail-might-be-making-your-allergies-worse-1796375639)
+> 原文：<https://lifehacker.com/your-cocktail-might-be-making-your-allergies-worse-1796375639>
 
 当你和朋友在酒吧时，如果你发现你的过敏症越来越严重，问题可能是你在喝什么。
 

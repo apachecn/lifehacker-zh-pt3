@@ -1,6 +1,6 @@
 # 你的信用卡也可能在 Equifax 黑客攻击中受损
 
-> 原文:[https://life hacker . com/your-credit-cards-may-in-the-1818522666](https://lifehacker.com/your-credit-cards-may-also-have-been-compromised-in-the-1818522666)
+> 原文：<https://lifehacker.com/your-credit-cards-may-also-have-been-compromised-in-the-1818522666>
 
 很难理解 Equifax 数据黑客的程度——数百万个社会安全号码被盗——现在你已经学会监控你的信用和 [冻结你的报告](https://lifehacker.com/everything-you-need-to-know-about-a-credit-freeze-1803139061) 。然而，黑客不仅仅拥有你的个人信息。他们可能也有你的信用卡号码。
 

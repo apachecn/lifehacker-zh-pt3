@@ -1,6 +1,6 @@
 # 不向海关和边境保护局申报食物会让你损失很多时间
 
-> 原文:[https://life hacker . com/not-declaring-food-to-customs and-border-protection-cou-1825954777](https://lifehacker.com/not-declaring-food-to-customs-and-border-protection-cou-1825954777)
+> 原文：<https://lifehacker.com/not-declaring-food-to-customs-and-border-protection-cou-1825954777>
 
 当你进行国际旅行时，在再次进入美国之前，你必须回答问题并申报物品。当海关问你是否有任何食品需要申报时，申报你所有的食品——以防万一。
 

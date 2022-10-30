@@ -1,6 +1,6 @@
 # 春天买你的显卡
 
-> 原文:[https://life hacker . com/buy-your-video-card-in-the-spring-1822372916](https://lifehacker.com/buy-your-video-card-in-the-spring-1822372916)
+> 原文：<https://lifehacker.com/buy-your-video-card-in-the-spring-1822372916>
 
 比特币挖掘越来越受欢迎，这意味着高效挖掘未来货币所需的设备需求很大。不幸的是， [显卡制造商无法满足贪婪的加密货币矿工](https://kotaku.com/the-great-graphics-card-shortage-of-2018-1822346367) 的需求，这意味着你更有可能在你选择的卡上看到“缺货”通知，而不是估计的发货日期。当游戏玩家只想为他们的电脑获得一些额外的马力时，他们该怎么做？在这种情况下，等待几个月是你最好的选择，尤其是当你预算紧张的时候。春天就要来了，根据历史价格数据，那些昂贵的卡片会有折扣。
 

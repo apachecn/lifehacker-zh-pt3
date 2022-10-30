@@ -1,6 +1,6 @@
 # 基本混合饮料，排名
 
-> 原文:[https://deadspin.com/basic-mixed-drinks-ranked-1825603640](https://deadspin.com/basic-mixed-drinks-ranked-1825603640)
+> 原文：<https://deadspin.com/basic-mixed-drinks-ranked-1825603640>
 
 所有思维正常的人都会告诉你，最好的混合饮料，尤其是在夏天，是威士忌姜汁，去他妈的宿醉。不幸的是，我们这里有很多思想错误的人。
 

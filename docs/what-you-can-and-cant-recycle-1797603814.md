@@ -1,6 +1,6 @@
 # 你能回收什么，不能回收什么
 
-> 原文:[https://life hacker . com/what-you-can-and-cant-recycle-1797603814](https://lifehacker.com/what-you-can-and-cant-recycle-1797603814)
+> 原文：<https://lifehacker.com/what-you-can-and-cant-recycle-1797603814>
 
 我们最近在 Lifehacker 的办公室里有了新的回收箱，突然意识到没有人知道关于回收的所有规则。你能回收塑料袋吗？你必须擦洗你的容器吗？那*纸巾呢？*
 

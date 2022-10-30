@@ -1,6 +1,6 @@
 # 为什么资金不足的 2020 年人口普查是一个民权问题
 
-> 原文:[https://life hacker . com/why-the-underfund-2020-census-is-a-civil-rights-issue-1802729730](https://lifehacker.com/why-the-underfunded-2020-census-is-a-civil-rights-issue-1802729730)
+> 原文：<https://lifehacker.com/why-the-underfunded-2020-census-is-a-civil-rights-issue-1802729730>
 
 人口普查遇到了巨大的麻烦。十年一次人口普查，即每十年一次的美国人口统计，资金严重不足。如果资金不足会怎么样？很多人没有被计算在内，所以他们没有得到他们需要的医院、学校、道路、急救服务、医疗保健和社会服务——人口普查数据是每年分配超过 6000 亿美元联邦资金的起点。
 

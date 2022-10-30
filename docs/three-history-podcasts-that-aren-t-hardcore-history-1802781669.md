@@ -1,6 +1,6 @@
 # 三个不是“核心历史”的历史播客
 
-> 原文:[https://life hacker . com/three-history-podcast-that-hardcore-history-1802781669](https://lifehacker.com/three-history-podcasts-that-aren-t-hardcore-history-1802781669)
+> 原文：<https://lifehacker.com/three-history-podcasts-that-aren-t-hardcore-history-1802781669>
 
 我并不反对丹·卡林的“硬核历史”，但它似乎吞噬了历史播客的所有宣传。这是一种耻辱，因为播客格式是一种神奇的方式，可以深入了解 30 小时的法国大革命历史，或者在 12 分钟的叙述中，讲述被腐败的内阁背叛的沃伦·g·哈丁(Warren G. Harding)如何公开将自己的所有情感投射到他的狗拉迪男孩(Laddie Boy)身上。
 

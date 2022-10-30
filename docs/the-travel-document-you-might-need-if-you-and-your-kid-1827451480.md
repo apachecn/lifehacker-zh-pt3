@@ -1,6 +1,6 @@
 # 如果您和您的孩子姓氏不同，请携带此旅行证件
 
-> 原文:[https://life hacker . com/the-travel-document-you-may-need-if-you-you-kid-1827451480](https://lifehacker.com/the-travel-document-you-might-need-if-you-and-your-kid-1827451480)
+> 原文：<https://lifehacker.com/the-travel-document-you-might-need-if-you-and-your-kid-1827451480>
 
 本周，在达拉斯沃斯堡国际机场，一位名叫西尔维娅·阿科斯塔的女士带着她 15 岁的女儿通过海关时，经历了她所说的“女仆的故事时刻”。因为她和她的孩子没有同姓，阿科斯塔声称她被一名海关人员拘留和询问，海关人员责备地说，如果她用她丈夫的姓，“生活会更容易”。她告诉 BuzzFeed 新闻 说，代理人问她是否有任何证据证明站在她身边的女孩是她的女儿，比如出生证明或父亲的便条，但她没有。阿科斯塔说:“我没有这些文件，因为从她还是个婴儿的时候起，我们就经常一起出国旅行，我从来不需要它们。”。
 

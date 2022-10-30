@@ -1,6 +1,6 @@
 # 如何礼貌地避免吃自己不喜欢的食物
 
-> 原文:[https://life hacker . com/how-to-礼貌地离开你不喜欢的食物 1820668287](https://lifehacker.com/how-to-politely-get-out-of-eating-food-you-dont-like-1820668287)
+> 原文：<https://lifehacker.com/how-to-politely-get-out-of-eating-food-you-dont-like-1820668287>
 
 成为一个优雅的晚餐客人意味着找到礼貌的方式来处理事件中棘手的部分——无论是尽量减少尴尬的谈话还是找到正确的方式来传递一道让你胃里翻腾的菜。如果你今年要去别人家参加节日盛宴，这里有一些方法可以拒绝你不想吃的食物而不会显得粗鲁。
 

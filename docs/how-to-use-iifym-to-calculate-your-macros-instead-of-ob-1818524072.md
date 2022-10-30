@@ -1,6 +1,6 @@
 # 如何使用 IIFYM 来计算你的宏，而不是纠结于卡路里
 
-> 原文:[https://life hacker . com/how-to-use-iifym-to-calculate-your-macros-of-o b-1818524072](https://lifehacker.com/how-to-use-iifym-to-calculate-your-macros-instead-of-ob-1818524072)
+> 原文：<https://lifehacker.com/how-to-use-iifym-to-calculate-your-macros-instead-of-ob-1818524072>
 
 "我瘦了 20 磅，我可以想吃什么就吃什么了！"这是吸引成千上万人的营养方法的警笛声，好像它适合你的宏或 IIFYM。健美运动员为了比赛而减肥的方式已经在健身社区和其他地方开始流行。如果选择的自由对你很重要，这可能是一个很好的选择。但首先，把自己从切腹肌的路是用华夫饼干铺成的错觉中解放出来。没那么容易。
 

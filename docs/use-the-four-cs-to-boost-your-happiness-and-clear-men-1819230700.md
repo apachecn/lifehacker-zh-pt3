@@ -1,6 +1,6 @@
 # 使用“四个 c”来提升你的幸福感，清理精神混乱
 
-> 原文:[https://life hacker . com/use-the-four-cs-to-boost-your-happy-and-clear-men-1819230700](https://lifehacker.com/use-the-four-cs-to-boost-your-happiness-and-clear-men-1819230700)
+> 原文：<https://lifehacker.com/use-the-four-cs-to-boost-your-happiness-and-clear-men-1819230700>
 
 如果你曾经发现自己不得不刷新 Twitter，以获得最新的可怕新闻发展——或者陷入了一个恶性循环，无法讨价还价的下午糖果——我们很抱歉成为坏消息的传递者，但你的大脑已经被黑客攻击了。
 

@@ -1,6 +1,6 @@
 # 使用 SongShift 和 STAMP 在 Spotify、Apple 和 Google 之间移动流媒体音乐
 
-> 原文:[https://life hacker . com/move-your-streaming-music-between-Spotify-apple-and-g-1823612996](https://lifehacker.com/move-your-streaming-music-between-spotify-apple-and-g-1823612996)
+> 原文：<https://lifehacker.com/move-your-streaming-music-between-spotify-apple-and-g-1823612996>
 
 iOS/Android: Spotify 非常适合音乐分享和第三方插件。Apple Music 非常适合离线播放。所以我两者兼顾。这感觉有点像共享监护权，但这要容易得多，因为移动应用程序和 [戳](https://freeyourmusic.com) ，它们可以有效地将播放列表从一个服务转移到另一个服务。
 

@@ -1,6 +1,6 @@
 # 节省和管理你的钱的最好的方法
 
-> 原文:[https://life hacker . com/the-best-if TTT-recipes-for-saving-and-managing-your-mon-1762248269](https://lifehacker.com/the-best-ifttt-recipes-for-saving-and-managing-your-mon-1762248269)
+> 原文：<https://lifehacker.com/the-best-ifttt-recipes-for-saving-and-managing-your-mon-1762248269>
 
 如果这样，那么那个( [IFTTT](https://ifttt.com/) )是一个自动化 web 应用程序之间操作的有用工具，但它也可以用于节省和管理您的金钱。你可以用它来找到很棒的交易，甚至帮你分担费用。在本帖中，我们总结了一些利用 IFTTT 理财的最佳方法，并向你展示如何运用它们。
 

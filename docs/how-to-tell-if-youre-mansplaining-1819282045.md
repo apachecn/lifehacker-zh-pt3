@@ -1,6 +1,6 @@
 # 如何辨别你是否在抱怨
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-man spaining-1819282045](https://lifehacker.com/how-to-tell-if-youre-mansplaining-1819282045)
+> 原文：<https://lifehacker.com/how-to-tell-if-youre-mansplaining-1819282045>
 
 男人抱怨已经成为 21 世纪的定义性现象之一，其迂腐的触角触及了一切，从上一次总统竞选到网上关于女性如何无法“理解”里克和莫蒂的即兴表演。 虽然我们已经在指名道姓羞辱我们中间的漫步者方面取得了很大进展，但在这种交流的另一面，抓住自己的行为(并后退一步)对任何人来说都是一个挑战，这些人一生都在假设他们总是有一些有趣和有用的事情要说，尽管所有证据都相反。
 

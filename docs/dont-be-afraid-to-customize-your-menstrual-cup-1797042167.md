@@ -1,6 +1,6 @@
 # 不要害怕定制你的月经杯
 
-> 原文:[https://life hacker . com/don ' t-be-DIY-to-customize-your-parameten-cup-1797042167](https://lifehacker.com/dont-be-afraid-to-customize-your-menstrual-cup-1797042167)
+> 原文：<https://lifehacker.com/dont-be-afraid-to-customize-your-menstrual-cup-1797042167>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-qgdPI7oqmRE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-qgdPI7oqmRE&start=0) 
 

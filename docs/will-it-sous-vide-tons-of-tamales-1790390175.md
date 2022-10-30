@@ -1,6 +1,6 @@
 # 它会腐烂吗？成吨的玉米粉蒸肉
 
-> 原文:[https://life hacker . com/will-it-sous-vide-tons-of-tamales-1790390175](https://lifehacker.com/will-it-sous-vide-tons-of-tamales-1790390175)
+> 原文：<https://lifehacker.com/will-it-sous-vide-tons-of-tamales-1790390175>
 
 各位厨师和食物消费者好，欢迎回到另一集充满乐趣的 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

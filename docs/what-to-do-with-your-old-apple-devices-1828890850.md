@@ -1,6 +1,6 @@
 # 如何处理你的旧苹果设备
 
-> 原文:[https://life hacker . com/what-to-do-with-your-old-apple-devices-1828890850](https://lifehacker.com/what-to-do-with-your-old-apple-devices-1828890850)
+> 原文：<https://lifehacker.com/what-to-do-with-your-old-apple-devices-1828890850>
 
 又到了你一年一度疯狂寻找旧款 iPhone、iPad 或 Apple Watch 原始包装的时候了。毕竟，在你预订苹果本周发布的任何产品之前，这是卖出最高价的最佳方式。
 

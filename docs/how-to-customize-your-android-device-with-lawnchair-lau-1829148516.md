@@ -1,6 +1,6 @@
 # 如何用 Lawnchair Launcher 定制你的 Android 设备
 
-> 原文:[https://life hacker . com/how-to-customize-your-Android-device-with-lawn chair-lau-1829148516](https://lifehacker.com/how-to-customize-your-android-device-with-lawnchair-lau-1829148516)
+> 原文：<https://lifehacker.com/how-to-customize-your-android-device-with-lawnchair-lau-1829148516>
 
 作为 Android 用户最大的好处是，如果你不喜欢你看到的东西，你可以下载一个应用程序来改变你的设备的外观和感觉。也许你不太喜欢三星为其功能丰富的 Galaxy 智能手机换肤的方式，或者你无法忍受 Android Pie 在你的 Pixel 手机上的新手势。试试 lawn chair Launcher Launcher 吧，这是 Pixel launcher 的一个可延展的 DIY 版本。
 

@@ -1,6 +1,6 @@
 # 将你的个人数据排除在谷歌搜索之外
 
-> 原文:[https://life hacker . com/keep-your-personal-data-out-of-Google-search-or-not-1795654253](https://lifehacker.com/keep-your-personal-data-out-of-google-search-or-not-1795654253)
+> 原文：<https://lifehacker.com/keep-your-personal-data-out-of-google-search-or-not-1795654253>
 
 过去几周，谷歌一直在朝着令人毛骨悚然的方向大步前进。上周， [公司想出了](http://www.bbc.com/news/technology-40027706) 如何将现实世界的信用卡交易与自己的广告网络联系起来，以进一步提高其广告平台的有效性。本周，谷歌已经开始在一些用户的搜索页面上进行试验:他们将获取你的个人数据，并将其显示在一些传统搜索数据的旁边，希望你最终能通过他们的经典搜索框找到所有东西。
 

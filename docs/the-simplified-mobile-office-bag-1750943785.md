@@ -1,6 +1,6 @@
 # 简化的移动办公包
 
-> 原文:[https://life hacker . com/the-simplified-mobile-office-bag-1750943785](https://lifehacker.com/the-simplified-mobile-office-bag-1750943785)
+> 原文：<https://lifehacker.com/the-simplified-mobile-office-bag-1750943785>
 
 有时候，你需要在旅途中工作。这样做的最佳方式是只携带你需要的东西，这正是 Carry reader 和 Hard Anywhere 的联合创始人 Benson Chou 所做的。
 

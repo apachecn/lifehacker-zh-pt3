@@ -1,6 +1,6 @@
 # 这个炖肉应该放在你的餐桌上
 
-> 原文:[https://life hacker . com/this-sous-vide-terrine-belong-on-your-charcuterie-boar-1823445363](https://lifehacker.com/this-sous-vide-terrine-belongs-on-your-charcuterie-boar-1823445363)
+> 原文：<https://lifehacker.com/this-sous-vide-terrine-belongs-on-your-charcuterie-boar-1823445363>
 
 我是一个绝对的傻瓜，因为一个好的熟食板，并享受他们所有的产品，从超硬的 salumi 到可涂抹的和搅打的肝慕斯。但是这道菜有一些特别之处，最好的情况是味道、质地和(当然)肉的和谐融合。
 

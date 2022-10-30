@@ -1,6 +1,6 @@
 # 如何让梨频道回到你的 Roku 上
 
-> 原文:[https://life hacker . com/how-to-get-channel-pear-back-on-your-Roku-1820686460](https://lifehacker.com/how-to-get-channel-pear-back-on-your-roku-1820686460)
+> 原文：<https://lifehacker.com/how-to-get-channel-pear-back-on-your-roku-1820686460>
 
 如果你为了省钱 [断了线](https://lifehacker.com/how-to-record-live-tv-when-you-dont-have-cable-1800621701) 却错过了你最喜欢的有线电视频道， [频道梨](https://channelpear.com/) 来帮你了。这个基于云的流媒体应用程序提供直播电视镜头，涵盖从 MSNBC 和 CNN 到 ESPN 和卡通网络的所有内容——尽管它仅限于五个频道，除非你愿意 [支付服务](https://channelpear.com/) 。
 

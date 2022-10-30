@@ -1,6 +1,6 @@
 # 梅西感恩节游行烂透了，没人应该看
 
-> 原文:[https://life hacker . com/the-Macy-s-thanksgiving-day-parade-sucks-nobody-sho-1820666824](https://lifehacker.com/the-macy-s-thanksgiving-day-parade-sucks-and-nobody-sho-1820666824)
+> 原文：<https://lifehacker.com/the-macy-s-thanksgiving-day-parade-sucks-and-nobody-sho-1820666824>
 
 如果你在感恩节早上有空，你应该放松或者做饭。不要打开毫无意义的长达三小时的商业广告，也就是众所周知的梅西感恩节游行。
 

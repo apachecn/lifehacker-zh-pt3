@@ -1,6 +1,6 @@
 # 以下是 2018 年 3 月网飞的动向
 
-> 原文:[https://life hacker . com/here-s-what-s-coming-and-go-from-网飞-in-march-20-1823234405](https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-march-20-1823234405)
+> 原文：<https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-march-20-1823234405>
 
 二月并不轻松，但多亏了网飞流媒体视频服务的苯佐卡因般的力量，我们度过了二月。此外，三月即将来临，带来了新一季的动作片、类似的动作片和一些具有启发性的纪录片形式的原创内容。当你在欣赏新增加的物品时，一定要检查一下今年三月离开网飞的物品清单，哪怕只是为了看几部圣诞电影。
 

@@ -1,6 +1,6 @@
 # 快速回忆起你已经忘记的事情，这样你就不会像杰夫·赛辛斯一样了
 
-> 原文:[https://life hacker . com/quick-ways-to-recall-things-you-forgot-1796093528](https://lifehacker.com/quick-ways-to-recall-things-youve-forgotten-so-you-dont-1796093528)
+> 原文：<https://lifehacker.com/quick-ways-to-recall-things-youve-forgotten-so-you-dont-1796093528>
 
 有些事情很难记住:你在哪里停车，你的整个中学时代，当然，你是否与俄罗斯官员交谈过——特别是如果你在参议院情报委员会面前就关于俄罗斯和 2016 年大选的某项调查作证，就像杰夫·赛辛斯周二在 T2 T3 所做的那样。
 

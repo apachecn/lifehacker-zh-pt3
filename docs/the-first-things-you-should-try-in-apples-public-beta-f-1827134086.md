@@ -1,6 +1,6 @@
 # 你应该在苹果 iOS 12 公测中尝试的第一件事
 
-> 原文:[https://life hacker . com/the-first-things-you-should-try-in-apple-public-beta-f-1827134086](https://lifehacker.com/the-first-things-you-should-try-in-apples-public-beta-f-1827134086)
+> 原文：<https://lifehacker.com/the-first-things-you-should-try-in-apples-public-beta-f-1827134086>
 
 你已经注册了苹果 iOS 的公测计划，你已经下载并安装了 [新的 iOS 12 公测](https://lifehacker.com/how-to-install-the-ios-12-public-beta-right-now-1827116498) ，你的 iPhone 或 iPad 终于重置为最新版本的苹果移动操作系统。您输入您的个人识别码，验证您的设备，然后...现在怎么办？你从哪里开始？
 

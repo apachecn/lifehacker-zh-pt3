@@ -1,6 +1,6 @@
 # 这个应用程序会让你知道你是否赢得了强力球头奖
 
-> 原文:[https://life hacker . com/this-app-will-let-you-know-if-you ve-wind-the-power ball-j-1797783214](https://lifehacker.com/this-app-will-let-you-know-if-youve-won-the-powerball-j-1797783214)
+> 原文：<https://lifehacker.com/this-app-will-let-you-know-if-youve-won-the-powerball-j-1797783214>
 
 我通常不玩强力球，但每当累积奖金超高时，我(像地球上的其他人一样)就会去商店买一两张票。今晚的强力球头奖是 3.56 亿美元，这意味着如果你是一个赌徒(或者即使你不是)，也没有像现在这样的时间去抢票。
 

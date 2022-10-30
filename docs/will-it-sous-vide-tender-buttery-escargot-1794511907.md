@@ -1,6 +1,6 @@
 # 它会腐烂吗？嫩滑的蜗牛
 
-> 原文:[https://life hacker . com/will-it-sous-vide-tender-buttery-蜗牛-1794511907](https://lifehacker.com/will-it-sous-vide-tender-buttery-escargot-1794511907)
+> 原文：<https://lifehacker.com/will-it-sous-vide-tender-buttery-escargot-1794511907>
 
 大家好，欢迎回到非常黄油和美味版的 [*它会被分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

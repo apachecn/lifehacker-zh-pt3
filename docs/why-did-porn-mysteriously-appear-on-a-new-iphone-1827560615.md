@@ -1,6 +1,6 @@
 # 为什么色情片神秘地出现在一部“新”iPhone 上？
 
-> 原文:[https://life hacker . com/why-do-porn-神秘地出现在新 iphone 上-1827560615](https://lifehacker.com/why-did-porn-mysteriously-appear-on-a-new-iphone-1827560615)
+> 原文：<https://lifehacker.com/why-did-porn-mysteriously-appear-on-a-new-iphone-1827560615>
 
 谈到色情，有一种神奇的东西。至少当色情出现在最意想不到的地方时，比如你全新智能手机的网络浏览器。幸运的是，你有我帮你弄清楚他们是怎么到那里的。因为我知道你从来没有敲过，点过，或者输入过任何你不会在修女 面前说 [的东西。](https://www.youtube.com/watch?v=uDcP9uSMra4)
 

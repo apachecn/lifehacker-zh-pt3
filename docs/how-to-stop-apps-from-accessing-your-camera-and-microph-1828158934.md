@@ -1,6 +1,6 @@
 # 如何在 Mojave 中阻止应用程序访问您的摄像头和麦克风
 
-> 原文:[https://life hacker . com/how-to-stop-apps-from-access-your-camera-and-microph-1828158934](https://lifehacker.com/how-to-stop-apps-from-accessing-your-camera-and-microph-1828158934)
+> 原文：<https://lifehacker.com/how-to-stop-apps-from-accessing-your-camera-and-microph-1828158934>
 
 如果你曾经经历过那种怪异的时刻，你一直在聊需要一双新鞋，然后几分钟后在你的社交媒体订阅中看到一则鞋子销售广告，你可能会想知道我们的设备在我们没有意识到的情况下监听了多少。无论您是否遇到过这种情况，隐私和安全是我们所有人都关心的问题，了解我们的设备在做什么非常重要。
 

@@ -1,6 +1,6 @@
 # 在你的车里为你的孩子准备一把牙刷和一套睡衣
 
-> 原文:[https://life hacker . com/keep-a-牙刷和睡衣-for-your kid-in-y-1826541443](https://lifehacker.com/keep-a-toothbrush-and-pair-of-pajamas-for-your-kid-in-y-1826541443)
+> 原文：<https://lifehacker.com/keep-a-toothbrush-and-pair-of-pajamas-for-your-kid-in-y-1826541443>
 
 当我还是个孩子的时候，我记得我坐在我们家用车的后座上，在晚上开车回家的路上，渐渐进入了深度睡眠。没有什么比听到车库门打开，钥匙在点火器上晃来晃去更糟糕的了。"醒醒，"我妈妈会说，轻推我擦了擦已经滚下安全带的口水，剥离我无精打采的身体出了车。在僵尸的多步过程中，我会呜咽着——走进房子，脱掉鞋子，刷牙，洗脸，穿上睡衣，最后倒在床上，这时我通常会完全清醒。
 

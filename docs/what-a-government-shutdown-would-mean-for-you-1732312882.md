@@ -1,6 +1,6 @@
 # 政府关门对你来说意味着什么
 
-> 原文:[https://life hacker . com/what-a-government-shut-be-mean-for-you 1732312882](https://lifehacker.com/what-a-government-shutdown-would-mean-for-you-1732312882)
+> 原文：<https://lifehacker.com/what-a-government-shutdown-would-mean-for-you-1732312882>
 
 如果国会不能在本财年结束的 9 月 30 日之前批准 2016 年预算，美国政府将关闭。这是一种可能的情况，因为立法者只剩下几个工作日来达成协议，而且目前还没有这方面的迹象。关于政府关门对你的影响，你需要知道以下几点。
 

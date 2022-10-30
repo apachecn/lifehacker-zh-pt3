@@ -1,6 +1,6 @@
 # 降雪预报很难
 
-> 原文:[https://lifehacker.com/snow-forecasts-are-hard-1793299442](https://lifehacker.com/snow-forecasts-are-hard-1793299442)
+> 原文：<https://lifehacker.com/snow-forecasts-are-hard-1793299442>
 
 本周东北部有一场暴风雪。或者那场所谓的风暴只是一场小尘暴。看你问谁了。在科罗拉多州的山区长大，我非常清楚这些预测有多么可怕。那是因为雪特别难预测。
 

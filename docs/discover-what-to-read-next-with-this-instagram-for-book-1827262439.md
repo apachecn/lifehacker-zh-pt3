@@ -1,6 +1,6 @@
 # 使用“Instagram for Books”了解下一步要读什么
 
-> 原文:[https://life hacker . com/discover-the-insta gram-for-book-1827262439](https://lifehacker.com/discover-what-to-read-next-with-this-instagram-for-book-1827262439)
+> 原文：<https://lifehacker.com/discover-what-to-read-next-with-this-instagram-for-book-1827262439>
 
 在我的“必读”清单上有一大堆书，但不知何故，每当我去图书馆或书店时，我都会设法挑选一些别的书来代替。
 

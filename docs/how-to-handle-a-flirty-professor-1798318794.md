@@ -1,6 +1,6 @@
 # 如何应付一个轻浮的教授
 
-> 原文:[https://life hacker . com/how-to-hand-a-flirty-professor-1798318794](https://lifehacker.com/how-to-handle-a-flirty-professor-1798318794)
+> 原文：<https://lifehacker.com/how-to-handle-a-flirty-professor-1798318794>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

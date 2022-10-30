@@ -1,6 +1,6 @@
 # 自动化摊牌:IFTTT vs Zapier vs 微软 Flow
 
-> 原文:[https://life hacker . com/automation-摊牌-if TTT-vs-zapier-vs-Microsoft-flow-1782584748](https://lifehacker.com/automation-showdown-ifttt-vs-zapier-vs-microsoft-flow-1782584748)
+> 原文：<https://lifehacker.com/automation-showdown-ifttt-vs-zapier-vs-microsoft-flow-1782584748>
 
 将你使用的所有网络应用程序和服务连接起来，让它们为你一起工作，这是非常流行的，但是两个已经建立的这样做的服务，IFTTT 和 Zapier，现在加入了一个新的重量级人物:Microsoft Flow。是时候比较这三个强大的选项了，看看哪个是最好的，适合谁。
 

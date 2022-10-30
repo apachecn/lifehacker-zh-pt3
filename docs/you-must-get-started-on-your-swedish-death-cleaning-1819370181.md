@@ -1,6 +1,6 @@
 # 你必须开始你的瑞典死亡清洗
 
-> 原文:[https://life hacker . com/you-must-get-started-on-your-Swedish-death-cleaning-1819370181](https://lifehacker.com/you-must-get-started-on-your-swedish-death-cleaning-1819370181)
+> 原文：<https://lifehacker.com/you-must-get-started-on-your-swedish-death-cleaning-1819370181>
 
 令人兴奋的消息:镇上有一个新的组织方法。小心，玛丽·近藤，给 [*让路瑞典死亡清洁的温柔艺术:如何让自己和家人从一生的杂乱*](https://www.amazon.com/Gentle-Art-Swedish-Death-Cleaning/dp/1501173243/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-must-get-started-on-your-swedish-death-cleaning-1819370181&asc_source=&ie=UTF8&keywords=THE GENTLE ART OF SWEDISH DEATH CLEANING&qid=1507746434&sr=8-1&tag=kinjalifehackerlink-20) 。作者玛加丽塔·马格努松“大约 80 岁到 100 岁之间”，开始为她的继承人清理房子和整理事务，她发现这样做很有意义，因此写了一本书。
 

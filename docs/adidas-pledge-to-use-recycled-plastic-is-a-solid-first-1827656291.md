@@ -1,6 +1,6 @@
 # 阿迪达斯承诺使用回收塑料是坚实的第一步
 
-> 原文:[https://gizmodo . com/adidas-pledge-to-use-recycled-plastic-is-a-solid-first-1827656291](https://gizmodo.com/adidas-pledge-to-use-recycled-plastic-is-a-solid-first-1827656291)
+> 原文：<https://gizmodo.com/adidas-pledge-to-use-recycled-plastic-is-a-solid-first-1827656291>
 
 我没有很多运动鞋，但我有一双白色的阿迪达斯。你知道，经典的超级明星。像大多数运动鞋公司一样，阿迪达斯使用大量的原始塑料来制造这些鞋子——当像我这样的穿着者丢弃它们时，最终导致了海洋塑料污染的问题。
 

@@ -1,6 +1,6 @@
 # 为什么吉普牧马人不是你十几岁孩子的第一辆好车
 
-> 原文:[https://jalopnik . com/why-a-jeep-wrangler-not-a-good-first car for your-teen-1826758105](https://jalopnik.com/why-a-jeep-wrangler-isnt-a-good-first-car-for-your-teen-1826758105)
+> 原文：<https://jalopnik.com/why-a-jeep-wrangler-isnt-a-good-first-car-for-your-teen-1826758105>
 
 现在是一年中许多年轻司机获得新车的时候。青少年即将毕业并进入大学，或者如果他们真的幸运的话，第一次开车去他们高中的最后几年。你会看到一大堆关于的文章，虽然这些名单总是有争议，但有一款车你应该尽量避免，也是最受年轻司机青睐的:吉普牧马人。
 

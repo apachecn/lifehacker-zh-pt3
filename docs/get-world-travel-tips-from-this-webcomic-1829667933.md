@@ -1,6 +1,6 @@
 # 从这个网络漫画中获得世界旅行提示
 
-> 原文:[https://life hacker . com/get-world-travel-tips-from-this-web comic-1829667933](https://lifehacker.com/get-world-travel-tips-from-this-webcomic-1829667933)
+> 原文：<https://lifehacker.com/get-world-travel-tips-from-this-webcomic-1829667933>
 
 教科书中最精彩的部分是它们在各处散布的小卡通，以表明学习是有趣的:小学教科书中的愚蠢插图，更成人化文本中的*纽约客*风格的插科打诨，或者 [*中四处玩耍的天使和猛犸象，事情运转的方式*](https://www.amazon.com/Way-Things-Work-Now/dp/0544824385/ref=tmm_hrd_swatch_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-world-travel-tips-from-this-webcomic-1829667933&asc_source=&qid=&sr=&tag=kinjalifehackerlink-20) 。玛拉基·雷·雷朋的是一部关于旅行的网络漫画，就像那些书的卡通版。
 

@@ -1,6 +1,6 @@
 # 你喜欢(或讨厌)iPhone X 的什么？
 
-> 原文:[https://life hacker . com/what-do-you-like-or-hate-on-iphone-x-1820179520](https://lifehacker.com/what-do-you-like-or-hate-about-iphone-x-1820179520)
+> 原文：<https://lifehacker.com/what-do-you-like-or-hate-about-iphone-x-1820179520>
 
 最近发布的 iPhone X 从拿起智能手机 的那一刻起，在 iOS 用户如何与智能手机 [互动方面带来了相当彻底的转变。它有一个相当大的屏幕，面部扫描技术，和一对相机，旨在使你的主题流行而不用携带一个花哨的相机。](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402)
 

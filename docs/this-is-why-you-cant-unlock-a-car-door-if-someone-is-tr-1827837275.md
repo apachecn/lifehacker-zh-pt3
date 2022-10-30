@@ -1,6 +1,6 @@
 # 这就是为什么如果有人同时试图打开车门，你就无法打开车门
 
-> 原文:[https://jalopnik . com/this-is-why-you-can-unlock-a-car-door-if-someone-is-tr-1827837275](https://jalopnik.com/this-is-why-you-cant-unlock-a-car-door-if-someone-is-tr-1827837275)
+> 原文：<https://jalopnik.com/this-is-why-you-cant-unlock-a-car-door-if-someone-is-tr-1827837275>
 
 这是所有汽车行业中最常见的共同经历之一:你在车外，试图进入车内。在你拉把手开门的同时，车内的人正试图打开门锁。随之而来的是一场错误的喜剧，你的每一个动作都抵消了另一个动作，让你俩一遍又一遍地拉手柄或锁按钮，陷入了似乎永无止境的机械僵局。最终，有人喊着让某人放手，噩梦结束了。但是为什么一定要这样呢？这是怎么回事？
 

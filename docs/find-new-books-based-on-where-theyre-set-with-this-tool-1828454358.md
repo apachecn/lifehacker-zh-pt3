@@ -1,6 +1,6 @@
 # 使用此工具根据新书的设置位置来查找新书
 
-> 原文:[https://life hacker . com/find-new-books-based-on-where-they-set-with this-tool-1828454358](https://lifehacker.com/find-new-books-based-on-where-theyre-set-with-this-tool-1828454358)
+> 原文：<https://lifehacker.com/find-new-books-based-on-where-theyre-set-with-this-tool-1828454358>
 
 我住在旧金山的第一个周末，在我家附近找到了一家二手书店，我很快就买了半打以旧金山为背景的书。当我走进商店时，这不是我的本意，但这是一个伟大的决定。
 

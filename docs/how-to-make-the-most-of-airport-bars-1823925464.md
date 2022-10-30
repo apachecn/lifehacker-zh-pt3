@@ -1,6 +1,6 @@
 # 如何充分利用机场酒吧
 
-> 原文:[https://life hacker . com/how-to-make-the-most-the-airport-bar-1823925464](https://lifehacker.com/how-to-make-the-most-of-airport-bars-1823925464)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-airport-bars-1823925464>
 
 我是一个有点紧张的飞行员，所以我总是早早地到达机场，在酒吧里啜饮一些勇气。它帮助我保持冷静，嗯，很难错过一杯好的血腥玛丽。多年来，我学到了一些确保机场酒吧永远是一个好体验的小技巧。
 

@@ -1,6 +1,6 @@
 # 这是为什么经销商不发送书面报价的最疯狂的借口
 
-> 原文:[https://jalopnik . com/this-is-the-most-made-a-dealer-won-t-s-1823542922](https://jalopnik.com/this-is-the-most-insane-excuse-for-why-a-dealer-won-t-s-1823542922)
+> 原文：<https://jalopnik.com/this-is-the-most-insane-excuse-for-why-a-dealer-won-t-s-1823542922>
 
 我代理了数千笔汽车交易，遇到了一些经销商拒绝通过电子邮件发送报价的各种原因。一位读者最近向我提出了一个我最喜欢的狗屁借口:声称通过电子邮件发送价格的经销商是非法的。
 

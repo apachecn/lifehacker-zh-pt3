@@ -1,6 +1,6 @@
 # 如何停止在 LinkedIn 上看到尴尬的约会
 
-> 原文:[https://life hacker . com/how-to-stop-seeing-ungible-tinder-dates-on-LinkedIn-1823957981](https://lifehacker.com/how-to-stop-seeing-awkward-tinder-dates-on-linkedin-1823957981)
+> 原文：<https://lifehacker.com/how-to-stop-seeing-awkward-tinder-dates-on-linkedin-1823957981>
 
 前几天，当我查看我的 LinkedIn 个人资料时，发生了一些奇怪的事情。在“你可能认识的人”部分，我注意到一张模糊的熟悉面孔——那是我通过网上约会认识的人。大约两年前，我们已经约会过*次或者*次，然而她就在那里，被 LinkedIn 令人毛骨悚然的算法 推荐给我。如果这曾经发生在你身上，你可以做些什么来阻止它。
 

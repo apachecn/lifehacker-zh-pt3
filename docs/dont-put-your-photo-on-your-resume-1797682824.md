@@ -1,6 +1,6 @@
 # 不要把你的照片放在简历上
 
-> 原文:[https://life hacker . com/don ' t-put-your-photo-your-resume-1797682824](https://lifehacker.com/dont-put-your-photo-on-your-resume-1797682824)
+> 原文：<https://lifehacker.com/dont-put-your-photo-on-your-resume-1797682824>
 
 当然，你的 LinkedIn 个人资料可能会把你开朗活泼的脸放在前面和中间，邀请人们探索你的职业经历，但不要认为在简历中使用同样的策略会让你在现实世界中找到工作。事实上，一些招聘经理不希望你使用任何图片。
 

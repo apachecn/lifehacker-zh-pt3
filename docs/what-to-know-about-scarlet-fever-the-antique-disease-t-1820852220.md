@@ -1,6 +1,6 @@
 # 关于猩红热，一种呈上升趋势的古老疾病，你该知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-about-猩红热-古董病-t-1820852220](https://lifehacker.com/what-to-know-about-scarlet-fever-the-antique-disease-t-1820852220)
+> 原文：<https://lifehacker.com/what-to-know-about-scarlet-fever-the-antique-disease-t-1820852220>
 
 在过去，猩红热会在城镇肆虐，杀死儿童 。(在小说中，它杀死了四个 [小妇人](http://littlewomen.wikia.com/wiki/Elizabeth_March) 中的一个，并威胁了至少 [一个绒兔主人](https://archive.org/stream/thevelveteenrabb11757gut/11757.txt) 。)这种疾病从未消失过，但现在它在亚洲和英国呈上升趋势。
 

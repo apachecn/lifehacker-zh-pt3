@@ -1,6 +1,6 @@
 # 这些是你今年秋冬应该担心的害虫
 
-> 原文:[https://life hacker . com/these-is-the-pest-you-should-you-should-you-should-on-1820085992](https://lifehacker.com/these-are-the-pests-you-should-worry-about-this-fall-an-1820085992)
+> 原文：<https://lifehacker.com/these-are-the-pests-you-should-worry-about-this-fall-an-1820085992>
 
 像蟑螂、蚂蚁、老鼠和蚊子这样的害虫是令人讨厌的害虫，但通常只在一年中的特定月份出现。然而，由于今年的热浪和暴雨，许多通常在秋天和冬天消失的害虫仍然会在周围寻找家园——你的家。
 

@@ -1,6 +1,6 @@
 # 如何用丹麦的 Hygge 概念度过一个悲惨的冬天
 
-> 原文:[https://life hacker . com/how-to-get-through-a-friend-the-Danish-c-1791001000](https://lifehacker.com/how-to-get-through-a-miserable-winter-with-the-danish-c-1791001000)
+> 原文：<https://lifehacker.com/how-to-get-through-a-miserable-winter-with-the-danish-c-1791001000>
 
 对一些人来说，冬天是一年中神奇的时刻。对于像我一样的其他人来说，这是一个阴沉、寒冷、黑暗的日子，你只需要耐心等待。但是有更好的方法度过冬天。一种心态，包括拥抱冬季月份的独特方面。输入丹麦的“hygge”概念
 

@@ -1,6 +1,6 @@
 # 使用这个工具来判断你的学区实际上有多隔离
 
-> 原文:[https://life hacker . com/use-this-tool-to-tell-how-separated-your-school-distri-1821954942](https://lifehacker.com/use-this-tool-to-tell-how-segregated-your-school-distri-1821954942)
+> 原文：<https://lifehacker.com/use-this-tool-to-tell-how-segregated-your-school-distri-1821954942>
 
 人们可能会认为几十年的社会进步会消除教育中的种族隔离，但经济政策研究所 2013 年的一项研究发现，现在美国学校的种族隔离比 1973 年时更加严重 。这在很大程度上是由于几十年的歧视性住房政策，这使得白人和有色人种住在不同的街区，但这也是由于学区的界限。一般来说，孩子们，尤其是小学生，会去他们的邻居学校，这意味着白人孩子和他们的白人邻居一起上学，黑人孩子和他们的黑人邻居一起上学。
 

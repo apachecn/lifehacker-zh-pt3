@@ -1,6 +1,6 @@
 # 即使你不是小孩，网飞的互动故事也很有趣
 
-> 原文:[https://life hacker . com/netflixs-interactive-stories-is-entertainment-even-if-y-1796299663](https://lifehacker.com/netflixs-interactive-stories-are-entertaining-even-if-y-1796299663)
+> 原文：<https://lifehacker.com/netflixs-interactive-stories-are-entertaining-even-if-y-1796299663>
 
 [周二](https://media.netflix.com/en/company-blog/interactive-storytelling-on-netflix-choose-what-happens-next) ，网飞发布了它的第一个互动故事。就像我们童年时代选择自己的冒险书籍一样，网飞的电视节目让观众选择故事的发展方向，这是有史以来最好的事情。
 

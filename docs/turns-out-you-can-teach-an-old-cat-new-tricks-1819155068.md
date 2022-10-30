@@ -1,6 +1,6 @@
 # 原来你可以教一只老猫新把戏
 
-> 原文:[https://life hacker . com/turns-out-you-can-teach-an-old-cat-new-tricks-1819155068](https://lifehacker.com/turns-out-you-can-teach-an-old-cat-new-tricks-1819155068)
+> 原文：<https://lifehacker.com/turns-out-you-can-teach-an-old-cat-new-tricks-1819155068>
 
 信不信由你，猫是可以训练的。事实上，一项新的研究表明，即使是看起来已经习惯了的老猫也可以被训练。
 

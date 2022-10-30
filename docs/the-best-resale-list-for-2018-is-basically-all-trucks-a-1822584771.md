@@ -1,6 +1,6 @@
 # 2018 年最好的转售名单基本上都是卡车和拉力赛车
 
-> 原文:[https://jalopnik . com/the-best-转售-2018-is-basic-all-trucks-a-1822584771](https://jalopnik.com/the-best-resale-list-for-2018-is-basically-all-trucks-a-1822584771)
+> 原文：<https://jalopnik.com/the-best-resale-list-for-2018-is-basically-all-trucks-a-1822584771>
 
 谈到汽车的总成本，售价只是其中的一部分。你需要考虑转售，以及你的车会损失多少价值。有些下降速度比其他人慢，根据 [*凯利蓝皮书*](https://www.kbb.com/new-cars/best-resale-value-awards/best-resale-top-10-cars/) *，*这些 2018 款卡车、SUV 和全轮驱动轿车将是你最大限度减少折旧的最佳选择。
 

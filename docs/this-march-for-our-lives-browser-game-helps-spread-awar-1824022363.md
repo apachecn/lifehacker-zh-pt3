@@ -1,6 +1,6 @@
 # 这款名为“为我们的生活而游行”的浏览器游戏有助于传播周六游行的意识
 
-> 原文:[https://life hacker . com/this-March-for-our-life-browser-game-helps-spread-awar-1824022363](https://lifehacker.com/this-march-for-our-lives-browser-game-helps-spread-awar-1824022363)
+> 原文：<https://lifehacker.com/this-march-for-our-lives-browser-game-helps-spread-awar-1824022363>
 
 3 月 24 日星期六，全国各地的人们将聚集在一起参加 [为我们的生活](https://marchforourlives.com/) 游行。这个浏览器游戏，*我们生活的游戏*，是为了帮助传播关于抗议的消息，并在周五下午给你一个不错的消遣。
 

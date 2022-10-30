@@ -1,6 +1,6 @@
 # 给你讨厌的父母的孩子的礼物
 
-> 原文:[https://life hacker . com/10-给你讨厌的父母的孩子的礼物-1819809665](https://lifehacker.com/10-gifts-to-give-to-the-kids-of-parents-you-hate-1819809665)
+> 原文：<https://lifehacker.com/10-gifts-to-give-to-the-kids-of-parents-you-hate-1819809665>
 
 当你有了孩子，人们会送你礼物。太精彩了！有可爱的小毯子、快乐的套头衫和可爱的小洋娃娃——都是慷慨的亲戚和朋友送的非常好的礼物。
 

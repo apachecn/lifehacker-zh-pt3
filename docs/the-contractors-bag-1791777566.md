@@ -1,6 +1,6 @@
 # 承包商的包
 
-> 原文:[https://lifehacker.com/the-contractors-bag-1791777566](https://lifehacker.com/the-contractors-bag-1791777566)
+> 原文：<https://lifehacker.com/the-contractors-bag-1791777566>
 
 想知道那个修理东西的承包商带着什么吗？在 Cool Tools，住宅承包商 Paul Abueva 分享他的包。
 

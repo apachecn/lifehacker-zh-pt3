@@ -1,6 +1,6 @@
 # 如何清洁你的游戏机
 
-> 原文:[https://kotaku . com/how-to-clean-your-video-game-consoles-1823232559](https://kotaku.com/how-to-clean-your-video-game-consoles-1823232559)
+> 原文：<https://kotaku.com/how-to-clean-your-video-game-consoles-1823232559>
 
 你的游戏机太脏了。被灰尘呛住，被指纹弄脏或者被昆虫弄得千疮百孔。你的游戏控制器是一场恐怖秀，塑料的缝隙里充满了无法辨认的黏糊糊的东西。让我们清洗它们。
 

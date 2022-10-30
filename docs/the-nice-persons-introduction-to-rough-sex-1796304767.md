@@ -1,6 +1,6 @@
 # 好人对粗暴性爱的介绍
 
-> 原文:[https://life hacker . com/the-nice-persons-introduction-to-rough-sex-1796304767](https://lifehacker.com/the-nice-persons-introduction-to-rough-sex-1796304767)
+> 原文：<https://lifehacker.com/the-nice-persons-introduction-to-rough-sex-1796304767>
 
 你在公共汽车上主动寻找孕妇给你让座。你总是为陌生人开门。你帮助你的朋友拖着一个沙发穿过城市，爬五层楼到他们的新公寓。你是个好人。
 

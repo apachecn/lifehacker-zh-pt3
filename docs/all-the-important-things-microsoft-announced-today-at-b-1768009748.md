@@ -1,6 +1,6 @@
 # 微软今天在 Build 2016 上宣布的所有重要事情
 
-> 原文:[https://life hacker . com/all-the-important-things-Microsoft-announced-today-at-b-1768009748](https://lifehacker.com/all-the-important-things-microsoft-announced-today-at-b-1768009748)
+> 原文：<https://lifehacker.com/all-the-important-things-microsoft-announced-today-at-b-1768009748>
 
 微软的 Build 大会总是充满了关于 Windows、Office、Xbox 和其他微软产品的新闻，Build 2016 也不例外。我们看到了今年夏天最新的 Windows 10 更新，Xbox One 的新功能，以及 Windows 商店的更新。这是我们看到的最好的新东西。
 

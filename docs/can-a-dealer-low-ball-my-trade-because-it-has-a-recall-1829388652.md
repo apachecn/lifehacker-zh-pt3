@@ -1,6 +1,6 @@
 # 交易商可以因为召回而压低我的交易吗？
 
-> 原文:[https://jalopnik . com/can-a-dealer-low-ball-my-trade-because-has-a-recall-1829388652](https://jalopnik.com/can-a-dealer-low-ball-my-trade-because-it-has-a-recall-1829388652)
+> 原文：<https://jalopnik.com/can-a-dealer-low-ball-my-trade-because-it-has-a-recall-1829388652>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。有时人们会陷入困境或者不知道该做什么，所以我决定挑几个问题，试着帮帮他们。
 

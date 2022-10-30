@@ -1,6 +1,6 @@
 # 什么是完美的三明治？
 
-> 原文:[https://life hacker . com/what-makes-a-perfect-sandwich-1795225454](https://lifehacker.com/what-makes-a-perfect-sandwich-1795225454)
+> 原文：<https://lifehacker.com/what-makes-a-perfect-sandwich-1795225454>
 
 周一快乐，欢迎回到 [*今天有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，每周一次的公开讨论，在这里你可以分享你所有关于食物的想法、建议、食谱和观点。本周，我想谈谈夹在两片面包之间的那种不起眼但却非常美味的食物——三明治。
 

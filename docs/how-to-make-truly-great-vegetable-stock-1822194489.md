@@ -1,6 +1,6 @@
 # 如何做出真正美味的蔬菜高汤
 
-> 原文:[https://life hacker . com/how-to-make-true-great-vegetable-stock-1822194489](https://lifehacker.com/how-to-make-truly-great-vegetable-stock-1822194489)
+> 原文：<https://lifehacker.com/how-to-make-truly-great-vegetable-stock-1822194489>
 
 素食和纯素食烹饪应该赞美蔬菜，而不是强迫它们进入肉状的盒子。我会选择“哦，该死，我不知道我喜欢茄子”而不是“这是令人惊讶的美味，但我宁愿在一周的任何一天都吃真正的培根”。
 

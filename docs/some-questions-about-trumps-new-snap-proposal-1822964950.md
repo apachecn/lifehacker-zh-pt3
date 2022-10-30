@@ -1,6 +1,6 @@
 # 关于特朗普新 SNAP 提案的一些问题
 
-> 原文:[https://life hacker . com/some-questions-about-trumps-new-snap-proposal-1822964950](https://lifehacker.com/some-questions-about-trumps-new-snap-proposal-1822964950)
+> 原文：<https://lifehacker.com/some-questions-about-trumps-new-snap-proposal-1822964950>
 
 特朗普政府的 2019 财年预算提案 中包括一项补充营养援助计划的“大胆的新方法”，该计划为低工资工作家庭、低收入老年人和残疾人提供购买食品的援助。
 

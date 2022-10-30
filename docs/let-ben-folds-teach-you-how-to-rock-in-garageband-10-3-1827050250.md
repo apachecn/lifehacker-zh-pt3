@@ -1,6 +1,6 @@
 # 让 Ben Folds 教你如何在 Garageband 10.3 中摇滚
 
-> 原文:[https://life hacker . com/let-Ben-folds-teach-you-how-to-rock in-garageband-10-3-1827050250](https://lifehacker.com/let-ben-folds-teach-you-how-to-rock-in-garageband-10-3-1827050250)
+> 原文：<https://lifehacker.com/let-ben-folds-teach-you-how-to-rock-in-garageband-10-3-1827050250>
 
 苹果公司的免费虚拟音乐工作室 GarageBand 最近更新了它的 Mac 版本，增加了你最喜欢的歌手、词曲作者和摇滚歌手的免费课程。通过这些艺术家课程，正如苹果公司所说，你将能够从周围最好的一些人那里学习一种新的乐器，包括钢琴传奇人物本·福尔兹、现实传奇人物约翰·传奇和其他流行乐队(如可爱的死亡出租车)。
 

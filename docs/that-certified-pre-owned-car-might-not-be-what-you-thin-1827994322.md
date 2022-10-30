@@ -1,6 +1,6 @@
 # “认证二手车”可能不是你想的那样
 
-> 原文:[https://jalopnik . com/that-certified-二手车可能不是你想的那样 1827994322](https://jalopnik.com/that-certified-pre-owned-car-might-not-be-what-you-thin-1827994322)
+> 原文：<https://jalopnik.com/that-certified-pre-owned-car-might-not-be-what-you-thin-1827994322>
 
 购买二手车是让你的钱更有价值的一个好方法，获得一辆有认证的二手车保修可以增加一些额外的保护。但是一些经销商在宣称他们的“认证”汽车时并不总是诚实的。这里有几个应该引起注意的例子。
 

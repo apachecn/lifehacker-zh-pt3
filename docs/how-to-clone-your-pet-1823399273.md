@@ -1,6 +1,6 @@
 # 如何克隆你的宠物
 
-> 原文:[https://lifehacker.com/how-to-clone-your-pet-1823399273](https://lifehacker.com/how-to-clone-your-pet-1823399273)
+> 原文：<https://lifehacker.com/how-to-clone-your-pet-1823399273>
 
 芭芭拉·史翠珊 [最近透露](http://variety.com/2018/film/news/barbra-streisand-oscars-sexism-in-hollywood-clone-dogs-1202710585/) 她的两只毛茸茸的白色 Coton de Tulear 小狗是去年去世的她的狗 Samantha 的克隆。是的，克隆你的狗是一件事，如果你有一大笔钱，你也可以这样做。
 

@@ -1,6 +1,6 @@
 # 如何减少冲动消费
 
-> 原文:[https://life hacker . com/how-to-cut-down-on-impulsive-expansion-1823992010](https://lifehacker.com/how-to-cut-down-on-impulsive-spending-1823992010)
+> 原文：<https://lifehacker.com/how-to-cut-down-on-impulsive-spending-1823992010>
 
 当你冲动地花钱时，它不一定是在奢侈品上。我们买一些相当无聊的东西: [比如家居清洁用品](https://www.thewildwong.com/impulsive-spending/) 。 [研究显示](https://academic.oup.com/jcr/article-abstract/43/6/1031/2687775/Control-Deprivation-Motivates-Acquisition-of) 我们喜欢购买实用、有用的东西，这使得冲动消费更加危险。
 

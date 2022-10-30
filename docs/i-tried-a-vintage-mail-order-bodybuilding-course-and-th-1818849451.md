@@ -1,6 +1,6 @@
 # 我尝试了一个老式的邮购健身课程，这是没有人再做这些的原因
 
-> 原文:[https://life hacker . com/I-tryed-a-vintage-mail-order-body building-course-and-th-1818849451](https://lifehacker.com/i-tried-a-vintage-mail-order-bodybuilding-course-and-th-1818849451)
+> 原文：<https://lifehacker.com/i-tried-a-vintage-mail-order-bodybuilding-course-and-th-1818849451>
 
 “我可以在短短四周内给你巨大的手臂、宽阔的肩膀和巨大的胸部，”一本关于身体的小册子承诺道。这是“世界上最快的力量和肌肉建设系统。”在 20 世纪 50 年代末，它的价格是 20 美元，但今天这个程序在斯塔克中心档案馆 是免费的。我准备好开始了。
 

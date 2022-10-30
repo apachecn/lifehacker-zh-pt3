@@ -1,6 +1,6 @@
 # 如何在这个周末获得免费的巨无霸
 
-> 原文:[https://life hacker . com/how-to-get-a-free-big-MAC-this-weekend-1828095161](https://lifehacker.com/how-to-get-a-free-big-mac-this-weekend-1828095161)
+> 原文：<https://lifehacker.com/how-to-get-a-free-big-mac-this-weekend-1828095161>
 
 麦当劳本周庆祝巨无霸 50 周年。为了庆祝，它昨天开始在商店里分发 MacCoins，一种可以用来购买巨无霸的货币。你可以用真金白银从该公司购买一个巨无霸，这实质上是一个精心制作的“买一送一”促销活动，你仍然有机会利用它。
 

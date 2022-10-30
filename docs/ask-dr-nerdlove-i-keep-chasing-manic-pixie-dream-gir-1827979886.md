@@ -1,6 +1,6 @@
 # 问一下 NerdLove 博士:我一直在追逐“疯狂的梦幻女郎”
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-keep-chasing-manic-pixie-dream-gir-1827979886](https://kotaku.com/ask-dr-nerdlove-i-keep-chasing-manic-pixie-dream-gir-1827979886)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-keep-chasing-manic-pixie-dream-gir-1827979886>
 
 你好，所有后奇点性别的狨猴，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这个唯一的约会建议专栏将在推出两年后在合作式多人游戏中修补 。
 

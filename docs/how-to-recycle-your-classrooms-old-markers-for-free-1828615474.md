@@ -1,6 +1,6 @@
 # 如何免费回收你教室里的旧马克笔
 
-> 原文:[https://life hacker . com/how-to-recycle-your-classrooms-old-markers-for-free-1828615474](https://lifehacker.com/how-to-recycle-your-classrooms-old-markers-for-free-1828615474)
+> 原文：<https://lifehacker.com/how-to-recycle-your-classrooms-old-markers-for-free-1828615474>
 
 如果你或你的孩子今年恰好在一个使用马克笔的教室(阅读:任何类型的教室)，那么克雷奥拉有一个有趣的提议:它将为你回收所有那些旧的马克笔，即使它们不是克雷奥拉制造的。
 

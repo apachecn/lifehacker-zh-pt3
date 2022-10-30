@@ -1,6 +1,6 @@
 # 2018 年 7 月 23 日这一周，网飞发生了什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-23-1827282969](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-23-1827282969)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-23-1827282969>
 
 把你自己锁在房子里，因为*橙色是新的黑色*第六季将于 7 月 27 日星期五带着新的信用序列回到网飞...
 

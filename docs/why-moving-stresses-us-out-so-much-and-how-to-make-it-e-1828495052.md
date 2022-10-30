@@ -1,6 +1,6 @@
 # 为什么搬家会给我们带来如此大的压力——以及如何让它变得更容易
 
-> 原文:[https://life hacker . com/why-moving-stress-us-out-so-much-and-how-to-make it-e-1828495052](https://lifehacker.com/why-moving-stresses-us-out-so-much-and-how-to-make-it-e-1828495052)
+> 原文：<https://lifehacker.com/why-moving-stresses-us-out-so-much-and-how-to-make-it-e-1828495052>
 
 美国人因频繁搬家而臭名昭著，我们中的许多人会在某个时候长途搬家。即使知道这是一个非常普通的冒险，搬家被认为是一个人一生中第三大压力事件，仅次于死亡和离婚。以下是处理方法。
 

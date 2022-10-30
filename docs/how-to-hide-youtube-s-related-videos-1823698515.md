@@ -1,6 +1,6 @@
 # 如何隐藏 YouTube 的相关视频
 
-> 原文:[https://life hacker . com/how-to-hide-YouTube-s-related-videos-1823698515](https://lifehacker.com/how-to-hide-youtube-s-related-videos-1823698515)
+> 原文：<https://lifehacker.com/how-to-hide-youtube-s-related-videos-1823698515>
 
 每次你看一个视频，YouTube 就会在侧边栏显示十几个，其中大多数比你正在看的更奇怪、更糟糕。它们令人讨厌，令人分心，它们可以 [将孩子带到不合适的视频](https://offspring.lifehacker.com/how-to-protect-your-kids-from-disturbing-fake-peppa-pi-1797768331#_ga=2.233948509.2145456661.1520867096-1297080755.1497980211) ，根据 [a *华尔街日报*测试](https://www.wsj.com/articles/how-youtube-drives-viewers-to-the-internets-darkest-corners-1518020478) ，你点击得越多，它们往往变得越极端。以下是隐藏它们的方法。
 

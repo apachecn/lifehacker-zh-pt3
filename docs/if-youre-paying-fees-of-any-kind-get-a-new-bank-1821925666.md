@@ -1,6 +1,6 @@
 # 如果你要支付任何费用，去找一家新银行
 
-> 原文:[https://life hacker . com/if-you-payed-of-any-type-get-a-new-bank-1821925666](https://lifehacker.com/if-youre-paying-fees-of-any-kind-get-a-new-bank-1821925666)
+> 原文：<https://lifehacker.com/if-youre-paying-fees-of-any-kind-get-a-new-bank-1821925666>
 
 在我拥有大通支票账户的第一年左右，我每月支付 25 美元，因为我没有维持他们喜欢的平均每日余额。解决这个问题所需要的只是一个 5 分钟的电话，在电话中我问我是否可以转到一个提供的月余额更低的支票账户。
 

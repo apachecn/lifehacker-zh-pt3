@@ -1,6 +1,6 @@
 # 这个脸书机器人会帮你计划你的死亡
 
-> 原文:[https://life hacker . com/this-Facebook-bot-will-help-you-plan-you-death-1796270672](https://lifehacker.com/this-facebook-bot-will-help-you-plan-your-death-1796270672)
+> 原文：<https://lifehacker.com/this-facebook-bot-will-help-you-plan-your-death-1796270672>
 
 你有没有和你爱的人讨论过如果你使用生命维持系统会发生什么？可能不会，尤其是如果你还年轻的话。一家名为 LifeFolder 的初创公司希望你能更舒服地与脸书信使机器人进行对话。
 

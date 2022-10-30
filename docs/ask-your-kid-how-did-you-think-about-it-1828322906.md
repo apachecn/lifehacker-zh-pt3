@@ -1,6 +1,6 @@
 # 问你的孩子“你是怎么想的？”
 
-> 原文:[https://life hacker . com/ask-your-kid-how-think-it-1828322906](https://lifehacker.com/ask-your-kid-how-did-you-think-about-it-1828322906)
+> 原文：<https://lifehacker.com/ask-your-kid-how-did-you-think-about-it-1828322906>
 
 我逐渐认识到，为人父母就像是一个绑着绳子的攀岩者的保护者——你必须知道什么时候抓紧，什么时候放松。(不，我自己不是攀岩者，但我曾经用 Groupon 上过入门课。)你想确保你的孩子是安全的，而不是做出愚蠢的决定，但你不能在他们的一生中都跟着他们，低声说:“嗯，你确定要这样做吗，伙计？”为了让他们达到新的高度，有时你必须放手。
 

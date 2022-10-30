@@ -1,6 +1,6 @@
 # PSA:父母们，把你们的梳妆台栓在墙上
 
-> 原文:[https://life hacker . com/PSA-parents-bolt-your-dresser-to-a-wall-1803785247](https://lifehacker.com/psa-parents-bolt-your-dresser-to-a-wall-1803785247)
+> 原文：<https://lifehacker.com/psa-parents-bolt-your-dresser-to-a-wall-1803785247>
 
 上周，我看到了另一次家具召回: [在一名四岁儿童在一次涉及倾斜梳妆台的事故中受伤后，Ameriwood Home 召回了 160 万个梳妆台](https://consumerist.com/2017/09/06/1-6m-chests-recalled-for-serious-tip-over-issue-after-child-injured/) 。去年， [宜家召回了 2900 万台梳妆台](https://www.nytimes.com/2016/06/29/business/ikea-recall-tip-over-furniture.html) ，此前至少有 6 名儿童被摔倒的梳妆台砸死。如果您拥有一台 Ameriwood dressers，您可以在此处 找到召回编号 [。](http://www.ameriwood.com/eng/recall-chest) 
 

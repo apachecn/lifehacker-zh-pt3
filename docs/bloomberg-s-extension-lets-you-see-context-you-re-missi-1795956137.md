@@ -1,6 +1,6 @@
 # 彭博的延伸让你看到你错过的背景
 
-> 原文:[https://life hacker . com/Bloomberg-s-extension-let-you-see-context-you-re-missi-1795956137](https://lifehacker.com/bloomberg-s-extension-lets-you-see-context-you-re-missi-1795956137)
+> 原文：<https://lifehacker.com/bloomberg-s-extension-lets-you-see-context-you-re-missi-1795956137>
 
 现在，如果你想知道你在网上读到的某家公司的股价，你必须跳到另一个标签页，进行一些谷歌搜索，然后祈祷出现正确的数字。
 

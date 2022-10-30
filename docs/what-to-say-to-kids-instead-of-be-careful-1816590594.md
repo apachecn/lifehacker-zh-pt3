@@ -1,6 +1,6 @@
 # 对孩子说什么而不是“小心”
 
-> 原文:[https://life hacker . com/what-to-say-to-kids-inst-of-be-小心-1816590594](https://lifehacker.com/what-to-say-to-kids-instead-of-be-careful-1816590594)
+> 原文：<https://lifehacker.com/what-to-say-to-kids-instead-of-be-careful-1816590594>
 
 我经常告诉我四岁的女儿“小心”，以至于我把它缩写成了“caref”这已经成为一种本能。她正要从浴缸里爬出来。]“Caref。”*她在泳池栏杆附近游泳。*]“Caref。”她的膝盖离她小表妹的脸很近。】“Caref。”她在一家服装店里面蹦蹦跳跳。]“Caref！”
 

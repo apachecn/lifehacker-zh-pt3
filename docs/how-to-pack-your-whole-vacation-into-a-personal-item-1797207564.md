@@ -1,6 +1,6 @@
 # 如何将你的整个假期装进一个“个人物品”大小的包里
 
-> 原文:[https://life hacker . com/how-to-pack-your-whole-vacation to-a personal-item-1797207564](https://lifehacker.com/how-to-pack-your-whole-vacation-into-a-personal-item-1797207564)
+> 原文：<https://lifehacker.com/how-to-pack-your-whole-vacation-into-a-personal-item-1797207564>
 
 我刚从巴黎五日游回来，乘坐的是一家廉价航空公司，随身携带要收费。我很便宜，所以这意味着所有的东西都必须放在我前面座位下的一个小包里。朋友们，我做到了。你也可以。
 

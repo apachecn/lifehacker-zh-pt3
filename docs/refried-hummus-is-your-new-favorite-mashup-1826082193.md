@@ -1,6 +1,6 @@
 # 油炸鹰嘴豆泥是你的新宠
 
-> 原文:[https://life hacker . com/refried-hummus-is-your ' s new-favorite-mashup-1826082193](https://lifehacker.com/refried-hummus-is-your-new-favorite-mashup-1826082193)
+> 原文：<https://lifehacker.com/refried-hummus-is-your-new-favorite-mashup-1826082193>
 
 上面的鹰嘴豆泥可能看起来像普通的鹰嘴豆泥。它是米色的。它是奶油的。它上面有很多橄榄油。但是这种鹰嘴豆沙很特别，因为我用冷冻鹰嘴豆做的，给它一种更坚果、更烘烤、稍微更放纵的味道。太神奇了。
 

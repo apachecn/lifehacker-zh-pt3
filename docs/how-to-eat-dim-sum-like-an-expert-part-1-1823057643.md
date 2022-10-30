@@ -1,6 +1,6 @@
 # 如何像专家一样吃点心，第一部分
 
-> 原文:[https://the take out . com/how-to-eat-dim-sum-like-an-expert-part-1-1823057643](https://thetakeout.com/how-to-eat-dim-sum-like-an-expert-part-1-1823057643)
+> 原文：<https://thetakeout.com/how-to-eat-dim-sum-like-an-expert-part-1-1823057643>
 
 只要我活着，没有任何一种食物能像点心一样吸引我，点心是我的家乡香港无处不在的蒸/炸/烤小盘菜肴的传统。因为我们很多广东人在 20 世纪 80 年代和 90 年代决定移民海外，大多数拥有健康华人人口的大都市都会有点心餐厅，所以你可以感谢我们的善举。
 

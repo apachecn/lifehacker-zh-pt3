@@ -1,6 +1,6 @@
 # 使用亚马逊的零件查找器，通过照片找到合适的替换螺母或螺栓
 
-> 原文:[https://life hacker . com/find-the-right-replacement-nut-or-bolt-via photo-using-1827785812](https://lifehacker.com/find-the-right-replacement-nut-or-bolt-via-photo-using-1827785812)
+> 原文：<https://lifehacker.com/find-the-right-replacement-nut-or-bolt-via-photo-using-1827785812>
 
 去年年底，我搬家了，这涉及到把相当多的家具拆开，然后再装回去。因此，这也导致了一些“这些螺丝中的另一个去哪里了？”时刻。
 

@@ -1,6 +1,6 @@
 # 把这个“旅行手提袋”送给你生命中的准父母
 
-> 原文:[https://life hacker . com/pass-down-a-traveling-tote-bag-to-the-new-parents-to-be-1829301807](https://lifehacker.com/pass-down-a-traveling-tote-bag-to-the-new-parents-to-be-1829301807)
+> 原文：<https://lifehacker.com/pass-down-a-traveling-tote-bag-to-the-new-parents-to-be-1829301807>
 
 初为人父母是一种孤立的经历。你并不是简单地给你的生活添加了一个新的拼图——相反，你感觉这个小小的人把你花了几十年拼凑起来的所有现有的拼图都打乱了，现在你必须从头再来。你累了，迷路了，闻起来有点臭。很难记得其他人也去过那里。
 

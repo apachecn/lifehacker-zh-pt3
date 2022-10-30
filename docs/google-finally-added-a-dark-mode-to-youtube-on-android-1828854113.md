@@ -1,6 +1,6 @@
 # 谷歌终于在 Android 上给 YouTube 添加了黑暗模式
 
-> 原文:[https://gizmodo . com/Google-finally-added-a-dark-mode-to-YouTube-on-Android-1828854113](https://gizmodo.com/google-finally-added-a-dark-mode-to-youtube-on-android-1828854113)
+> 原文：<https://gizmodo.com/google-finally-added-a-dark-mode-to-youtube-on-android-1828854113>
 
 Android 9 派 已经推出一个月了，虽然数字健康控制和方便的应用程序操作等东西的增加使谷歌的移动操作系统更加友好，但我不禁认为 Android 9 最明显的疏漏之一是缺乏整个操作系统的黑暗模式。
 

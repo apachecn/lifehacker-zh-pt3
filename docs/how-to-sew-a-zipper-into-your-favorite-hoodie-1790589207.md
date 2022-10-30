@@ -1,6 +1,6 @@
 # 如何给自己喜欢的帽衫缝上拉链
 
-> 原文:[https://life hacker . com/how-to-sew-a-zipped-a-zipper-your favorite-hoodie-1790589207](https://lifehacker.com/how-to-sew-a-zipper-into-your-favorite-hoodie-1790589207)
+> 原文：<https://lifehacker.com/how-to-sew-a-zipper-into-your-favorite-hoodie-1790589207>
 
 套头帽衫很好，但有时你真正想要的是有拉链的——尤其是如果你打算在寒冷的冬天穿上它。进入这个简单的缝纫项目:只有两个接缝和一个切口。最重要的是，正面的图片或文字完全清晰可见。
 

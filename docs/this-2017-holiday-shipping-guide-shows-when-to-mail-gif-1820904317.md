@@ -1,6 +1,6 @@
 # 使用这份 2017 年假日运输指南，确保你的礼物准时到达
 
-> 原文:[https://life hacker . com/this-2017-holiday-shipping-guide-shows-when-to-mail-gif-1820904317](https://lifehacker.com/this-2017-holiday-shipping-guide-shows-when-to-mail-gif-1820904317)
+> 原文：<https://lifehacker.com/this-2017-holiday-shipping-guide-shows-when-to-mail-gif-1820904317>
 
 每个人都知道，当谈到包裹递送时，假期是巨大的。网上购物让你很容易为名单上的每个人准备礼物，直接送到你家门口，当你需要给全国各地的朋友和家人邮寄礼物时，所有这些亚马逊盒子肯定会再次派上用场。
 

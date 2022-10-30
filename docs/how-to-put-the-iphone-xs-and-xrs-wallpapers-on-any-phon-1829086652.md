@@ -1,6 +1,6 @@
 # 如何把 iPhone XS 和 XR 的壁纸放在任何你想要的手机上
 
-> 原文:[https://life hacker . com/how-to-put-the-iphone-xs-and-xrs-wallpapers-on-any-phon-1829086652](https://lifehacker.com/how-to-put-the-iphone-xs-and-xrs-wallpapers-on-any-phon-1829086652)
+> 原文：<https://lifehacker.com/how-to-put-the-iphone-xs-and-xrs-wallpapers-on-any-phon-1829086652>
 
 iPhone XS 和 XR 配备了许多有趣的新实时照片壁纸，以及一些对应于新 iPhone XR 颜色的壁纸:白色、黑色、珊瑚色、红色、蓝色和黄色。
 

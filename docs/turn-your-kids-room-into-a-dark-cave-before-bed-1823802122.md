@@ -1,6 +1,6 @@
 # 睡觉前把你孩子的房间变成一个黑暗的洞穴
 
-> 原文:[https://life hacker . com/turn-your-kids-room-into-a dark-cave-before-bed-1823802122](https://lifehacker.com/turn-your-kids-room-into-a-dark-cave-before-bed-1823802122)
+> 原文：<https://lifehacker.com/turn-your-kids-room-into-a-dark-cave-before-bed-1823802122>
 
 对于年幼的孩子来说，就寝时间通常包括一份精确的清单，包括穿上睡衣，刷牙，读故事，要水，盖好被子，意识到兔子不见了，在房子里疯狂地寻找兔子，再次盖好被子，说*哦，等等！我不得不使用便壶*，再次盖好被子，并给予晚安之吻。然后*接着*，最后，灯光终于熄灭。
 

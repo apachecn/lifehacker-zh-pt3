@@ -1,6 +1,6 @@
 # 使用 Tube 避免意外的 YouTube 疯狂观看会话
 
-> 原文:[https://life hacker . com/avoid-unexpected-YouTube-bing-watching-sessions-with-tu-1825275041](https://lifehacker.com/avoid-unexpected-youtube-bing-watching-sessions-with-tu-1825275041)
+> 原文：<https://lifehacker.com/avoid-unexpected-youtube-bing-watching-sessions-with-tu-1825275041>
 
 YouTube 故意让你看视频容易掉进兔子洞。当然，你是来看 [一个可爱的小狗视频](https://www.youtube.com/watch?v=lCCWQ6ziAyc) ，但是 5 个小时后你仍然在点击它们，因为*人*，小狗很可爱，错过这个完美的视频将是一个悲剧。
 

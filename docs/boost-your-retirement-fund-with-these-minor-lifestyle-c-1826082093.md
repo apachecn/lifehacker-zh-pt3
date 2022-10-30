@@ -1,6 +1,6 @@
 # 通过这些微小的生活方式改变来增加你的退休基金
 
-> 原文:[https://life hacker . com/boost-your-retirement-fund-with these-minor-life style-c-1826082093](https://lifehacker.com/boost-your-retirement-fund-with-these-minor-lifestyle-c-1826082093)
+> 原文：<https://lifehacker.com/boost-your-retirement-fund-with-these-minor-lifestyle-c-1826082093>
 
 关注你的健康是你财务健康的一个重要部分——但是你不需要做出剧烈的改变来获得收益。事实证明，更严格地遵循医生的指示可以让退休基金更健康。
 

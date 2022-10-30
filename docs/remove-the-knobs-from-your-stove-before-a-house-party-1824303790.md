@@ -1,6 +1,6 @@
 # 在家庭聚会前，把你炉子上的旋钮拿掉
 
-> 原文:[https://life hacker . com/remove-the-knobs-from your ' s stove-a-house-party-1824303790](https://lifehacker.com/remove-the-knobs-from-your-stove-before-a-house-party-1824303790)
+> 原文：<https://lifehacker.com/remove-the-knobs-from-your-stove-before-a-house-party-1824303790>
 
 尽你所能让人们呆在客厅里，厨房总是任何家庭聚会中最活跃的地方。如果客人坐在椅子上就好了，但人们喜欢靠着，有些人喜欢靠在炉子上。
 

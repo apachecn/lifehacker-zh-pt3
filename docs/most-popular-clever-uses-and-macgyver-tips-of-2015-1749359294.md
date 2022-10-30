@@ -1,6 +1,6 @@
 # 2015 年最受欢迎的妙用和妙招
 
-> 原文:[https://life hacker . com/most-popular-clever-uses-and-macgyver-tips-of-2015-1749359294](https://lifehacker.com/most-popular-clever-uses-and-macgyver-tips-of-2015-1749359294)
+> 原文：<https://lifehacker.com/most-popular-clever-uses-and-macgyver-tips-of-2015-1749359294>
 
 如果你足够聪明，任何东西都可以成为工具。今年，我们看到了许多聪明的提示和技巧，比任何“MacGyver 崇拜者”都要自豪，但只有少数几个脱颖而出，成为最好的。
 

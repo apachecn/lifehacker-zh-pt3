@@ -1,6 +1,6 @@
 # 你现在可以用 Freedom 应用程序屏蔽分散注意力的 macOS 应用程序
 
-> 原文:[https://life hacker . com/you-can-now-block-distracting-MAC OS-apps-with-the-freed-1820974931](https://lifehacker.com/you-can-now-block-distracting-macos-apps-with-the-freed-1820974931)
+> 原文：<https://lifehacker.com/you-can-now-block-distracting-macos-apps-with-the-freed-1820974931>
 
 macOS: [自由](https://freedom.to/) ， [屏蔽杂念网站](https://lifehacker.com/freedom-blocks-distractions-in-sync-across-every-device-1747878326#_ga=2.37124832.1136386225.1512398802-1297080755.1497980211) 的跨平台 app，刚刚变得更加强大。现在在 macOS 上， [Freedom 可以屏蔽桌面应用](https://freedom.to/blog/whats-new-freedom-1-6-introducing-desktop-app-blocking-mac/) 。
 

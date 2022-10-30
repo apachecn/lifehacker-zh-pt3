@@ -1,6 +1,6 @@
 # 为什么你不应该用微波炉加热煮熟的鸡蛋
 
-> 原文:[https://life hacker . com/why-you-should-never-微波炉煮鸡蛋-1821129281](https://lifehacker.com/why-you-should-never-microwave-a-hard-boiled-egg-1821129281)
+> 原文：<https://lifehacker.com/why-you-should-never-microwave-a-hard-boiled-egg-1821129281>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-qcAuVsX3dTg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-qcAuVsX3dTg&start=0) 
 

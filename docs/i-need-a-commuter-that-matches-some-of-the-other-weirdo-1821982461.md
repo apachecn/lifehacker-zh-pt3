@@ -1,6 +1,6 @@
 # 我需要一个和我的其他古怪的人匹配的通勤者！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-commuter-the-matching-some-of-the-other-cranker-1821982461](https://jalopnik.com/i-need-a-commuter-that-matches-some-of-the-other-weirdo-1821982461)
+> 原文：<https://jalopnik.com/i-need-a-commuter-that-matches-some-of-the-other-weirdo-1821982461>
 
 杰森一生中拥有一些非常独特的(有些人可能会说有问题的)汽车。但现在正在寻找一个坚实的通勤车，有舒适和动力，当然，它还必须有一些性格。他应该买什么车？
 

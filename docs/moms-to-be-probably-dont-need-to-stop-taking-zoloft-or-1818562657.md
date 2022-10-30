@@ -1,6 +1,6 @@
 # 准妈妈们在怀孕期间可能不需要停止服用左洛复或赞安诺
 
-> 原文:[https://life hacker . com/moms-to-be-possible-dont-need-stop-taking-zoloft-or-1818562657](https://lifehacker.com/moms-to-be-probably-dont-need-to-stop-taking-zoloft-or-1818562657)
+> 原文：<https://lifehacker.com/moms-to-be-probably-dont-need-to-stop-taking-zoloft-or-1818562657>
 
 这是一个令人痛苦的处境:你惊恐发作，但你担心在怀孕期间服用抗焦虑药物会伤害你的宝宝。关于这个主题的研究一直参差不齐，但根据一项新的研究，尽管苯二氮卓类药物(抗焦虑药物，如 Xanax)和 SSRI 抗抑郁药物(如左洛复和帕罗西汀)都有一些风险，但女性可能不需要停止服用这些药物。
 

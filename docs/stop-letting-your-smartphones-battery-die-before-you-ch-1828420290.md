@@ -1,6 +1,6 @@
 # 在充电之前，不要让你的智能手机电池耗尽
 
-> 原文:[https://life hacker . com/stop-let-your-smarts-battery-die-before-you-ch-1828420290](https://lifehacker.com/stop-letting-your-smartphones-battery-die-before-you-ch-1828420290)
+> 原文：<https://lifehacker.com/stop-letting-your-smartphones-battery-die-before-you-ch-1828420290>
 
 没有什么比人们做错事“仅仅因为”他们一直在做更让我讨厌的了。在这种情况下，在智能手机上播放电影、游戏或音乐会耗尽所有电池，直到设备关闭，因为这是唯一“安全”的充电方式。
 

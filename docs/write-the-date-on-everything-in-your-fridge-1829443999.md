@@ -1,6 +1,6 @@
 # 在你冰箱里的每样东西上都写上日期
 
-> 原文:[https://life hacker . com/write-the-date-on-everything-in-your-chicken-1829443999](https://lifehacker.com/write-the-date-on-everything-in-your-fridge-1829443999)
+> 原文：<https://lifehacker.com/write-the-date-on-everything-in-your-fridge-1829443999>
 
 大多数剩菜 [在冰箱里可以保存四天](https://lifehacker.com/follow-the-2-4-rule-to-store-and-enjoy-leftovers-safely-5896689) ，但是你真的记得外卖是周五的还是周六的吗？这是昨天的肉丸——或者，等等，是你上周做的那批肉丸吗？养成给你的食物定日期的习惯，你就可以不再怀疑了。
 

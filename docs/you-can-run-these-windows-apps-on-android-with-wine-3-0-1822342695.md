@@ -1,6 +1,6 @@
 # 使用 Wine 3.0 在 Android 上运行这些 Windows 应用程序
 
-> 原文:[https://life hacker . com/you-can-run-these-windows-apps-on-Android-with-wine-3-0-1822342695](https://lifehacker.com/you-can-run-these-windows-apps-on-android-with-wine-3-0-1822342695)
+> 原文：<https://lifehacker.com/you-can-run-these-windows-apps-on-android-with-wine-3-0-1822342695>
 
 有数以百万计的 Android 应用程序可供选择，但如果你想超越 [Google Play](https://lifehacker.com/watch-out-for-this-fake-whatsapp-app-in-the-google-play-1820222637) 所能提供的，那么你很幸运。由于最近的一次更新，你可以使用一个名为 [Wine 3.0](https://www.winehq.org/announce/3.0) 的程序在 Android 上运行 [Windows 7](https://lifehacker.com/lifehackers-complete-guide-to-windows-7-5386953) 应用程序。
 

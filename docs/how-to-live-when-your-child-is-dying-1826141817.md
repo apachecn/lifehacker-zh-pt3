@@ -1,6 +1,6 @@
 # 当你的孩子奄奄一息时，该如何生活
 
-> 原文:[https://life hacker . com/how-to-live-when-your child-dead-1826141817](https://lifehacker.com/how-to-live-when-your-child-is-dying-1826141817)
+> 原文：<https://lifehacker.com/how-to-live-when-your-child-is-dying-1826141817>
 
 当女儿泰勒在 11 岁时被诊断出患有癌症时，苏·马修斯的世界被震动了。在接下来的五年里，这个五口之家陷入了治疗计划、手术、活检结果和他们无法说出的医学术语的旋风之中。然而，尽管如此多的不确定性，马修斯发现他们的日常经历仍在他们的掌控之中。在她的新书 [*把你的头发涂成蓝色:面对儿童癌症*](https://urldefense.proofpoint.com/v2/url?u=https-3A__www.amazon.com_Paint-2DYour-2DHair-2DBlue-2DCelebration_dp_1683507274&d=DwMFAg&c=gOrgfQB8xVH7F0lP7MQhi8CyVXMBvYqNyP3LuSSb8Lw&r=HPCxLiomtfWdCMGveTdiaicY3v2pe99LudFevaTTqNeDSn-BhgilsLtIBmd-OA_Z&m=Hdd6iC1QnhCoptot52ux7CBUVMmafR5qKMz_x1Rw80Y&s=gnmWU5dVqghzluAco6bC27FgO0HE0r878bsv3pGdeXc&e=) *，*中，马修斯详细描述了她的泰勒如何继续她的童年生活——而不是“癌症孩子”——直到她在 16 岁去世。
 

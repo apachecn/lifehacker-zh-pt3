@@ -1,6 +1,6 @@
 # 简单的日出桌面
 
-> 原文:[https://life hacker . com/the-simple-sunrise-desktop-1785229247](https://lifehacker.com/the-simple-sunrise-desktop-1785229247)
+> 原文：<https://lifehacker.com/the-simple-sunrise-desktop-1785229247>
 
 这个桌面来自我们的 [Flickr 桌面展示和展示照片池](https://www.flickr.com/groups/lifehacker-desktop-showandtell/) ，它是一个很好的例子，说明有时忙碌和动态的桌面很棒，而其他时候简单和图标化的桌面也很棒。如果你喜欢这个外观，这里是你需要设置它。
 

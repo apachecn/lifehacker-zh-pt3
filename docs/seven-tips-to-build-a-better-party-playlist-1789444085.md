@@ -1,6 +1,6 @@
 # 打造更好派对播放列表的七个技巧
 
-> 原文:[https://life hacker . com/seven-tips-to-build-a-better-party-playlist-1789444085](https://lifehacker.com/seven-tips-to-build-a-better-party-playlist-1789444085)
+> 原文：<https://lifehacker.com/seven-tips-to-build-a-better-party-playlist-1789444085>
 
 没有音乐就不是派对。无论你是要举办啤酒聚会、高档鸡尾酒会，还是寒冷的假日派对，你都需要一些音乐。这些建立播放列表的建议将确保你的聚会是一个有趣的，难忘的活动。
 

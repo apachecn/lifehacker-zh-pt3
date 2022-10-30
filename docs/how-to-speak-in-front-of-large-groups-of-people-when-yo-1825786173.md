@@ -1,6 +1,6 @@
 # 当你是一个内向的人，这让你害怕时，如何在一大群人面前说话
 
-> 原文:[https://www . the root . com/how-to-the-group-of-people-from-when-yo-1825786173](https://www.theroot.com/how-to-speak-in-front-of-large-groups-of-people-when-yo-1825786173)
+> 原文：<https://www.theroot.com/how-to-speak-in-front-of-large-groups-of-people-when-yo-1825786173>
 
 已经九年了(！！！)多年前，我受邀担任保罗·卡里克·布伦森(Paul Carrick Brunson)在华盛顿特区举办的《现代媒人》直播活动的专题小组成员，也就是说，距离我第一次在众多观众面前发表演讲已经过去了九年。还有，九年前我非常害怕在所有这些人面前出现，我在演出前半小时喝了五杯轩尼诗——一种明显被高估的饮料，人们假装喜欢它，因为图帕克喝了它——只是为了让自己冷静下来。
 

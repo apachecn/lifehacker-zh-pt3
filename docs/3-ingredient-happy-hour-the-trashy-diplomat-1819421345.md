@@ -1,6 +1,6 @@
 # 三要素快乐时光:没用的外交官
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-tray-diplomat-1819421345](https://lifehacker.com/3-ingredient-happy-hour-the-trashy-diplomat-1819421345)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-trashy-diplomat-1819421345>
 
 朋友们，周五快乐，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我正在制作我最喜欢的长期饮用饮料之一:外交官鸡尾酒。
 

@@ -1,6 +1,6 @@
 # 小费测试:注入你自己的杜松子酒的最好方法
 
-> 原文:[https://life hacker . com/tip-tester-the-best-way-infuse-your-own-gin-1760008341](https://lifehacker.com/tip-tester-the-best-way-to-infuse-your-own-gin-1760008341)
+> 原文：<https://lifehacker.com/tip-tester-the-best-way-to-infuse-your-own-gin-1760008341>
 
 像所有注入的烈酒一样，杜松子酒是你可以自己注入的东西。只要你浸泡的酒的主要味道是杜松子酒，那么根据定义，你就做了杜松子酒。但是仅仅因为你可以自己做某事并不意味着你*应该做某事，所以我们开始测试三种不同的 DIY 杜松子酒配方，不需要浴缸。* 
 

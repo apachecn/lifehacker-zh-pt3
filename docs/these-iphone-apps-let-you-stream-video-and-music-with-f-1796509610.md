@@ -1,6 +1,6 @@
 # 这些 iPhone 应用程序可以让你远程与朋友分享视频和音乐
 
-> 原文:[https://life hacker . com/these-iphone-apps-let-you-stream-video-and-music-with-f-1796509610](https://lifehacker.com/these-iphone-apps-let-you-stream-video-and-music-with-f-1796509610)
+> 原文：<https://lifehacker.com/these-iphone-apps-let-you-stream-video-and-music-with-f-1796509610>
 
 iPhone:你最喜欢的艺术家在午夜推出了一张新专辑，你希望你能坐在你最好的朋友旁边，一首接一首地听，为音乐的美妙而激动不已，但不幸的是，你们两个都在不同的地方。通常，你会认为解决办法是把手机放在扬声器上，这样就有一个倾听聚会。但是有一个更好的解决方案:一个应用程序——实际上是几个。
 

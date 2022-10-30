@@ -1,6 +1,6 @@
 # 如何在选举间隙让你的声音在政治中被听到
 
-> 原文:[https://life hacker . com/how-to-make-your-voice-heated-in-politics-1791424641](https://lifehacker.com/how-to-make-your-voice-heard-in-politics-between-electi-1791424641)
+> 原文：<https://lifehacker.com/how-to-make-your-voice-heard-in-politics-between-electi-1791424641>
 
 你不需要等上四年才能对政府的运作方式有下一次发言权。总统得到了大量的报道，但政府中也有大量的日常决策，包括国家和地方决策，这些决策塑造了我们的法律和生活。以下是你如何在选举日再次到来之前让别人听到你的声音。
 

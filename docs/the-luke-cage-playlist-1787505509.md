@@ -1,6 +1,6 @@
 # 卢克·凯奇播放列表
 
-> 原文:[https://lifehacker.com/the-luke-cage-playlist-1787505509](https://lifehacker.com/the-luke-cage-playlist-1787505509)
+> 原文：<https://lifehacker.com/the-luke-cage-playlist-1787505509>
 
 网飞最新的漫威秀*卢克·凯奇*刚刚落幕，它的 [已经风靡](http://www.metacritic.com/tv/marvels-luke-cage) 。它获得好评的众多原因之一是它的杀手级配乐。非常温和的剧透如下。
 

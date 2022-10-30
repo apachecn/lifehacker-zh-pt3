@@ -1,6 +1,6 @@
 # 如何正确清洁你的厨房海绵
 
-> 原文:[https://life hacker . com/how-to-right-clean-your-gross-kitchen-sponge-1797591700](https://lifehacker.com/how-to-properly-clean-your-gross-kitchen-sponge-1797591700)
+> 原文：<https://lifehacker.com/how-to-properly-clean-your-gross-kitchen-sponge-1797591700>
 
 你用厨房海绵擦拭水槽里最恶心的东西，所以它会积累一些非常恶心的细菌是有道理的。但是有可能清洁或消毒海绵吗？是的，事实证明——但这只是一个短期的解决办法。
 

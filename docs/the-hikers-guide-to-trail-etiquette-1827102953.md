@@ -1,6 +1,6 @@
 # 徒步旅行者步道礼仪指南
 
-> 原文:[https://life hacker . com/the-hikers-guide-to-trail-礼仪-1827102953](https://lifehacker.com/the-hikers-guide-to-trail-etiquette-1827102953)
+> 原文：<https://lifehacker.com/the-hikers-guide-to-trail-etiquette-1827102953>
 
 可能感觉在户外没有任何规则，但肯定有你应该遵循的指导方针。无论你是徒步旅行的新手，还是一直对这条路线的该做和不该做感到困惑，这本指南都会让你明白。
 

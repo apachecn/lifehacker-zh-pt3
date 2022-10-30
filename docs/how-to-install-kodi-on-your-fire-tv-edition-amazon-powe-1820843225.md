@@ -1,6 +1,6 @@
 # 如何在亚马逊的“Fire TV Edition”电视上安装 Kodi
 
-> 原文:[https://life hacker . com/how-to-install-kodi-on-your-fire-TV-edition-Amazon-power-1820843225](https://lifehacker.com/how-to-install-kodi-on-your-fire-tv-edition-amazon-powe-1820843225)
+> 原文：<https://lifehacker.com/how-to-install-kodi-on-your-fire-tv-edition-amazon-powe-1820843225>
 
 [亚马逊的 Fire TV 流媒体设备](https://lifehacker.com/4k-set-top-box-showdown-roku-4-vs-shield-tv-vs-fire-1787055398) 和 [Kodi](https://lifehacker.com/home-theater-software-showdown-kodi-vs-plex-1746501974) 的 [半自动](https://www.dailydot.com/debug/what-is-kodi/) 媒体播放器软件多年来一直是一种流行的组合。考虑到这一点，你可能会对那些来自 [Element](https://www.amazon.com/All-New-Element-4K-Ultra-HD-Smart-TV-Fire-TV-Edition-55-Inch/dp/B06XDC9RBJ?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-install-kodi-on-your-fire-tv-edition-amazon-powe-1820843225&asc_source=&tag=kinjalifehackerlink-20) 或 [Westinghouse](http://westinghouseelectronics.com/products/amazon-fire-tv-edition/60-above/wa65ufa1001/) 的新款“[Fire TV Edition](https://gizmodo.com/amazons-cheap-4k-tvs-are-good-enough-for-almost-anyone-1796067835)”电视机虎视眈眈，它们开箱即可运行该公司的电视操作系统。
 

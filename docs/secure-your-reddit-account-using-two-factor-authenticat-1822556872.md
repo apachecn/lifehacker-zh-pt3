@@ -1,6 +1,6 @@
 # 使用双重认证保护您的 Reddit 帐户
 
-> 原文:[https://life hacker . com/secure-your-Reddit-account-using-two-factor-authentic ate-1822556872](https://lifehacker.com/secure-your-reddit-account-using-two-factor-authenticat-1822556872)
+> 原文：<https://lifehacker.com/secure-your-reddit-account-using-two-factor-authenticat-1822556872>
 
 Reddit 已经为 beta 测试人员、版主和第三方应用程序开发人员慢慢推出了双因素身份认证，并在过去几天向所有人提供了这一功能。
 

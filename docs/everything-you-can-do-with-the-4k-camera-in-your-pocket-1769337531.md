@@ -1,6 +1,6 @@
 # 你现在可以用口袋里的 4K 相机做任何事情
 
-> 原文:[https://life hacker . com/everything-you-can-do with-the-4k camera-in-your-pocket-1769337531](https://lifehacker.com/everything-you-can-do-with-the-4k-camera-in-your-pocket-1769337531)
+> 原文：<https://lifehacker.com/everything-you-can-do-with-the-4k-camera-in-your-pocket-1769337531>
 
 你可能已经在口袋里装了一台 4K 相机，却没有意识到这一点。即使你没有 4K 电视来观看这些视频，你现在也可以使用那台相机来制作更好的 1080p 视频。
 

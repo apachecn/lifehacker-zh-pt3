@@ -1,6 +1,6 @@
 # 本科桌面
 
-> 原文:[https://lifehacker.com/the-buncho-desktop-1769966269](https://lifehacker.com/the-buncho-desktop-1769966269)
+> 原文：<https://lifehacker.com/the-buncho-desktop-1769966269>
 
 我们的朋友和经常的桌面贡献者 Dobbie03 已经从 Windows 切换回 Linux，并且兴致勃勃地——他的新 Arch Linux 桌面看起来很锐利。这是很好的定制，以适应他的工作流程，我们喜欢 Java 麻雀(又名 bunchos。)以下是他如何设置这一切的。
 

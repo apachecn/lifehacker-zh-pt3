@@ -1,6 +1,6 @@
 # 为什么 Gmail 一直提示错误的联系人？
 
-> 原文:[https://life hacker . com/why-does-Gmail-keep-suggesting-the-wrong-contact-1826465654](https://lifehacker.com/why-does-gmail-keep-suggesting-the-wrong-contact-1826465654)
+> 原文：<https://lifehacker.com/why-does-gmail-keep-suggesting-the-wrong-contact-1826465654>
 
 我在现实世界中的一个老朋友总是因为在 Twitter 上“发布我不理解的怪异的极客狗屎”而给我带来悲伤。然而，正是他现在求助于 life hacker——特别是科技 911 专栏[——询问他在 Gmail 中的一次恼人经历。](https://lifehacker.com/c/tech-911)
 

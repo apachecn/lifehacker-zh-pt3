@@ -1,6 +1,6 @@
 # 这种自己动手做的大蒜酱比棒约翰的好多了
 
-> 原文:[https://life hacker . com/this-DIY-garlic-sauce-is-way-better-papa-Johns-1826018011](https://lifehacker.com/this-diy-garlic-sauce-is-way-better-than-papa-johns-1826018011)
+> 原文：<https://lifehacker.com/this-diy-garlic-sauce-is-way-better-than-papa-johns-1826018011>
 
 约翰爸爸不会做美味的比萨，但他会做一种令人上瘾的大蒜蘸酱。事实上，有些人( [、弗吉尼亚](https://kinja.com/vksmith) 和我)会说这是菜单上唯一值得加盐的菜，而且它有很好的盐味。如果你和我们一样，也是一个金蒜酱迷，却错过了购买一大罐 [的机会，朋友，不要绝望。我们有一个配方给你，有了配方就意味着你至少不用给这个特定的共和党爸爸你的钱。](http://www.grubstreet.com/2018/05/papa-johns-garlic-sauce-gallon-jugs.html)
 

@@ -1,6 +1,6 @@
 # 用这些工具包和工具赠送 DIY 礼物
 
-> 原文:[https://life hacker . com/give-the-give-give-the-gift-of-DIY with these-kit-and-tools-1788410161](https://lifehacker.com/give-the-gift-of-diy-with-these-kits-and-tools-1788410161)
+> 原文：<https://lifehacker.com/give-the-gift-of-diy-with-these-kits-and-tools-1788410161>
 
 有时候，你能给予的最好的礼物是创造全新事物的能力。对于你生活中的 DIY 者来说，一个坚实的新工具、初学者工具包或组织工具会让他们尽可能开心。
 

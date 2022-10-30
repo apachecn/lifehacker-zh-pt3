@@ -1,6 +1,6 @@
 # 冷冻夏季水果，随时快速制作奶昔
 
-> 原文:[https://life hacker . com/freeze-summer-fruits-for-quick-milk shakes-any-time-1802968057](https://lifehacker.com/freeze-summer-fruits-for-quick-milkshakes-any-time-1802968057)
+> 原文：<https://lifehacker.com/freeze-summer-fruits-for-quick-milkshakes-any-time-1802968057>
 
 欢迎回到周日营养，这个专栏强调如何用尽可能少的工作做出美味的食物。这个夏天过得太快了，我们不能保存最好的部分来享受整个冬天，这真是一个遗憾。转念一想，是的，我们可以，而且我们甚至不需要装任何东西。这个季节我最喜欢的部分是当地丰富的水果和蔬菜。在新英格兰，这意味着蓝莓，樱桃，桃子，甜瓜(是的，甜瓜！)，还有草莓。由于国际贸易，你一年到头都可以买到草莓，但是没有什么比摘下来的草莓更像 T2 了。不过，我个人最喜欢的用途不是果冻、果酱或果盘，而是在奶昔里。这和浆果保存有什么关系呢？用冰块托盘。
 

@@ -1,6 +1,6 @@
 # 劳动节摊牌:汉堡大战热狗
 
-> 原文:[https://life hacker . com/labor-day-摊牌-汉堡 vs 热狗-1798708744](https://lifehacker.com/labor-day-showdown-burger-vs-hot-dogs-1798708744)
+> 原文：<https://lifehacker.com/labor-day-showdown-burger-vs-hot-dogs-1798708744>
 
 烤架上美味肉的油腻滋滋声是每个劳动节周末的主食。但是，当每个人都拿出烧烤架、纸盘和“亲吻厨师”围裙时，一场比木炭煤球更古老的辩论在各地的烧烤师傅和他们饥饿的观众的脑海中肆虐:你想吃汉堡吗？还是热狗？(“两者”当然是一个选项，但不是这次摊牌的目的。)
 

@@ -1,6 +1,6 @@
 # 来自我们读者的最佳储蓄技巧和建议
 
-> 原文:[https://life hacker . com/the-best-savings-tips-and-advice-from our-readers-1821287384](https://lifehacker.com/the-best-savings-tips-and-advice-from-our-readers-1821287384)
+> 原文：<https://lifehacker.com/the-best-savings-tips-and-advice-from-our-readers-1821287384>
 
 超过一半的美国人储蓄账户中的少于 1000 美元。但是我们可以做得更好。
 

@@ -1,6 +1,6 @@
 # 当 Windows 不能删除文件时，Lockhunter 允许您删除文件
 
-> 原文:[https://life hacker . com/lock hunter-let-you-delete-files-when-windows-wont-1825467437](https://lifehacker.com/lockhunter-lets-you-delete-files-when-windows-wont-1825467437)
+> 原文：<https://lifehacker.com/lockhunter-lets-you-delete-files-when-windows-wont-1825467437>
 
 自从我们上次使用 Lockhunter 以来，已经过去了将近十年，这是一个非常有用的 Windows 应用程序，它可以确保您始终能够删除文件资源管理器拒绝删除的文件和文件夹。开发者 Crystal Rich Ltd 继续用有用的功能更新该应用程序，但只是零星地更新:从该应用程序的 3.1 版本到 3.2 版本花了大约 3.5 年的时间。
 

@@ -1,6 +1,6 @@
 # 没有结婚礼物了
 
-> 原文:[https://jezebel.com/no-more-wedding-gifts-1793757954](https://jezebel.com/no-more-wedding-gifts-1793757954)
+> 原文：<https://jezebel.com/no-more-wedding-gifts-1793757954>
 
 理论上，我们在婚礼上送礼物有两个原因:
 

@@ -1,6 +1,6 @@
 # 六个濒危单词，现实生活中的孤独堡垒，以及世界各地的孩子有多少作业
 
-> 原文:[https://life hacker . com/six-endangered-words-a-real-life-fortress-of-lonely-1789536815](https://lifehacker.com/six-endangered-words-a-real-life-fortress-of-solitude-1789536815)
+> 原文：<https://lifehacker.com/six-endangered-words-a-real-life-fortress-of-solitude-1789536815>
 
 本周，我们来看看一些濒危的英语单词，现实生活中孤独的堡垒——如水晶洞，世界各地的孩子有多少家庭作业，等等。
 

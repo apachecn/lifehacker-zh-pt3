@@ -1,6 +1,6 @@
 # 在新电视上更改这些设置以获得更好的画面
 
-> 原文:[https://life hacker . com/change-these-settings-on-your-new-TV-for-a-better-looki-1828253982](https://lifehacker.com/change-these-settings-on-your-new-tv-for-a-better-looki-1828253982)
+> 原文：<https://lifehacker.com/change-these-settings-on-your-new-tv-for-a-better-looki-1828253982>
 
 如果你买了一台全新的电视，花了几个小时拼命把它放在你的家庭娱乐中心(或者贴在墙上)，然后开始看你最喜欢的节目来庆祝...你错过了关键的一步。您的电视机，不管是新的还是旧的，都带有一系列值得探索的设置，以获得最佳画质，或者至少是您满意的画面。
 

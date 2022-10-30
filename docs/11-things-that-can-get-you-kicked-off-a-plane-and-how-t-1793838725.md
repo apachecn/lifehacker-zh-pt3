@@ -1,6 +1,6 @@
 # 11 件可能让你被赶下飞机的事情以及如何处理
 
-> 原文:[https://life hacker . com/11-things-that-can-get-things-that-how-t-1793838725](https://lifehacker.com/11-things-that-can-get-you-kicked-off-a-plane-and-how-t-1793838725)
+> 原文：<https://lifehacker.com/11-things-that-can-get-you-kicked-off-a-plane-and-how-t-1793838725>
 
 谈到飞行，机组人员会尽一切努力让飞行舒适、愉快，最重要的是，让乘客安全。任何阻碍他们工作的人或事都会被清除。比如像这种东西。
 

@@ -1,6 +1,6 @@
 # 机械工程师的口袋大小的包
 
-> 原文:[https://life hacker . com/the-mechanical-engineers-pocket-size-bag-1794596774](https://lifehacker.com/the-mechanical-engineers-pocket-sized-bag-1794596774)
+> 原文：<https://lifehacker.com/the-mechanical-engineers-pocket-sized-bag-1794596774>
 
 不是每个人都需要背包或单肩包。一个典型的例子是，读者 Hamada 的包只有口袋大小，却装满了各种工具。
 

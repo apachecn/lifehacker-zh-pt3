@@ -1,6 +1,6 @@
 # 带什么去大学成为宿舍里的酷小孩
 
-> 原文:[https://life hacker . com/what-to-bring-to-college-to-be-the-cool-kid in-your-dor-1828559756](https://lifehacker.com/what-to-bring-to-college-to-be-the-cool-kid-in-your-dor-1828559756)
+> 原文：<https://lifehacker.com/what-to-bring-to-college-to-be-the-cool-kid-in-your-dor-1828559756>
 
 我第一次去宿舍——那是夏令营，不是大学，但也够近了——我父母给了我一大罐焦糖爆米花，让我分享并帮我交朋友。可悲的是，我没有太多机会打开它:我的室友对玉米过敏。
 

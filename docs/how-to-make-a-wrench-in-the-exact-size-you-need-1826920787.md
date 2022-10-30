@@ -1,6 +1,6 @@
 # 如何制作一把你需要的尺寸的扳手
 
-> 原文:[https://life hacker . com/how-to-make-a-wrench-in-exact-size-you-need-1826920787](https://lifehacker.com/how-to-make-a-wrench-in-the-exact-size-you-need-1826920787)
+> 原文：<https://lifehacker.com/how-to-make-a-wrench-in-the-exact-size-you-need-1826920787>
 
 你有没有遇到过不太适合你扳手的螺栓？你当然有。不管有多大的压力要去适应，硬件总是与期望背道而驰。当你不想再买一件特殊的设备来拆卸一个书架时，可以这么做。
 

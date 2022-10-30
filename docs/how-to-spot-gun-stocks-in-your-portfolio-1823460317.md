@@ -1,6 +1,6 @@
 # 如何在你的投资组合中发现枪支股票
 
-> 原文:[https://life hacker . com/how-to-spot-gun-stocks-in your portfolio-1823460317](https://lifehacker.com/how-to-spot-gun-stocks-in-your-portfolio-1823460317)
+> 原文：<https://lifehacker.com/how-to-spot-gun-stocks-in-your-portfolio-1823460317>
 
 如果你担心你的枪支股票敞口，晨星公司有一份 [新报告](http://news.morningstar.com/articlenet/article.aspx?id=853199) 关于如何发现你的资金是否投资于这些公司以及你可以做的一些事情。(并阅读我们关于 [撤资](https://lifehacker.com/how-to-divest-from-gun-stocks-1823069001) 的通论。)
 

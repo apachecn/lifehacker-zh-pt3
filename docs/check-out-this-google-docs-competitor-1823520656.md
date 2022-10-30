@@ -1,6 +1,6 @@
 # 看看这个谷歌文档的竞争对手
 
-> 原文:[https://life hacker . com/check-out-this-Google-docs-competitor-1823520656](https://lifehacker.com/check-out-this-google-docs-competitor-1823520656)
+> 原文：<https://lifehacker.com/check-out-this-google-docs-competitor-1823520656>
 
 我最喜欢总部位于区块链的谷歌文档的新竞争对手的一点是，它的速度快得多。文档曾经是微软 Word 的轻量级替代品；现在感觉同样缓慢而臃肿。虽然我仍然使用它进行协作，但在我所有的个人写作中，我一直倾向于苹果的 Notes 应用程序；它速度快得多，但是有一些愚蠢的设计选择，比如糟糕的默认字体和亮黄色的链接文本。(我第二喜欢石墨的是它看起来又脆又帅。)
 

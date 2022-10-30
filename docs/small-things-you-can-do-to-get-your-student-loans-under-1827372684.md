@@ -1,6 +1,6 @@
 # 你可以做一些小事来控制你的学生贷款
 
-> 原文:[https://life hacker . com/small-things-you-can-do-to-get your-student-loans-under-1827372684](https://lifehacker.com/small-things-you-can-do-to-get-your-student-loans-under-1827372684)
+> 原文：<https://lifehacker.com/small-things-you-can-do-to-get-your-student-loans-under-1827372684>
 
 偿还学生贷款是一项艰巨的任务，对许多人来说，这就像一个永无止境的财务黑洞。虽然国会似乎并不担心我们的集体债务 [、1.6 万亿美元(而且还在不断增长)](http://collegedebt.com/) ，任何可能的缓解似乎都还很遥远，但你可以做一些小事来减轻你的贷款负担。
 

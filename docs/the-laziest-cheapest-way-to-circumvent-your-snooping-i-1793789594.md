@@ -1,6 +1,6 @@
 # 最懒惰，最便宜的方式来规避你的窥探 ISP
 
-> 原文:[https://life hacker . com/the-lazy-checken-way-goep-your-snooping-I-1793789594](https://lifehacker.com/the-laziest-cheapest-way-to-circumvent-your-snooping-i-1793789594)
+> 原文：<https://lifehacker.com/the-laziest-cheapest-way-to-circumvent-your-snooping-i-1793789594>
 
 [国会决定](https://lifehacker.com/senate-votes-to-let-internet-providers-sell-your-web-hi-1793574677) 你的 ISP 应该被允许出售你的私人浏览数据，但是解决这个问题的方法是 [有点复杂，成本高，或者只是一个痛苦](https://lifehacker.com/why-is-everyone-talking-about-vpns-1793768312) 。一个懒于上网的人会做什么？使用 Opera。
 

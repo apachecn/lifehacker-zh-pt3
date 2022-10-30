@@ -1,6 +1,6 @@
 # 哪个连锁店有最好的外带咖啡？(2018 版)
 
-> 原文:[https://the take out . com/what-chain-has-the-best-to-go-coffee-1822106406](https://thetakeout.com/what-chain-has-the-best-to-go-coffee-1822106406)
+> 原文：<https://thetakeout.com/what-chain-has-the-best-to-go-coffee-1822106406>
 
 像任何工作场所一样，我们的办公室每天早上都充满了含有美国最受欢迎的药物:咖啡因的杯子。咖啡是它的运输工具，我们都有自己的忠诚。因为我们是上班族的办公室，对我们大多数人来说，在外卖店买咖啡更容易。外卖员决定对美国四家最受欢迎的连锁咖啡供应商进行抽样调查，看看是否有最受欢迎的。
 

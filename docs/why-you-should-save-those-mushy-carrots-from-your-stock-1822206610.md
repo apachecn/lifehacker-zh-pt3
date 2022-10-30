@@ -1,6 +1,6 @@
 # 为什么你应该从你的汤锅里保存那些糊状的胡萝卜
 
-> 原文:[https://life hacker . com/why-you-should-save-these-mushy-胡萝卜从你的股票-1822206610](https://lifehacker.com/why-you-should-save-those-mushy-carrots-from-your-stock-1822206610)
+> 原文：<https://lifehacker.com/why-you-should-save-those-mushy-carrots-from-your-stock-1822206610>
 
 汤锅通常是各种厨房垃圾的最终目的地，但一旦液体被抽干，其中一些残渣——即胡萝卜——仍有更多可供使用。
 

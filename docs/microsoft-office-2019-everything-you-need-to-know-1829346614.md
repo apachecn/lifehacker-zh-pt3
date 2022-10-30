@@ -1,6 +1,6 @@
 # 微软 Office 2019:你需要知道的一切
 
-> 原文:[https://life hacker . com/Microsoft-office-2019-everything-you-need-to-know-1829346614](https://lifehacker.com/microsoft-office-2019-everything-you-need-to-know-1829346614)
+> 原文：<https://lifehacker.com/microsoft-office-2019-everything-you-need-to-know-1829346614>
 
 你可能已经注意到，微软本周早些时候开始推出新版微软 Office。这意味着现在有三个版本的微软 Office 上市——Office 2016、Office 365 和全新的 Office 2019。
 

@@ -1,6 +1,6 @@
 # 如何与你的治疗师分手
 
-> 原文:[https://life hacker . com/how-to-break-up-with-your-therapist-1798634232](https://lifehacker.com/how-to-break-up-with-your-therapist-1798634232)
+> 原文：<https://lifehacker.com/how-to-break-up-with-your-therapist-1798634232>
 
 就棘手的谈话而言，告诉治疗师你打算结束治疗，几乎和与重要的另一半分手或辞去一份长期工作一样令人感到压力。
 

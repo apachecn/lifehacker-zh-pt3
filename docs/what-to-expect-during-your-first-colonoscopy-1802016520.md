@@ -1,6 +1,6 @@
 # 在你的第一次结肠镜检查中会发生什么
 
-> 原文:[https://life hacker . com/what-to-expect-in-your ' s first-结肠镜检查-1802016520](https://lifehacker.com/what-to-expect-during-your-first-colonoscopy-1802016520)
+> 原文：<https://lifehacker.com/what-to-expect-during-your-first-colonoscopy-1802016520>
 
 没有多少人对医生在他们的屁股上放一个窥镜的前景感到兴奋，但考虑一下另一种选择:每年有 50，000 人死于结肠直肠癌。杜兰大学胃肠病学副教授、国家结肠直肠癌圆桌会议成员乔丹·卡瑞茨博士说，如果每个人都接受筛查，的人数可能会减少一半。可悲的是，许多人( [约 28%](https://www.ncbi.nlm.nih.gov/pubmed/24196665) ，或三分之一的人，根据疾病控制和预防中心的数据)没有接受筛查——一些人是因为他们缺乏信息和医疗保健，而另一些人知道他们应该接受筛查，但对任何与便便有关的事情感到不安，或担心会很痛苦或尴尬。
 

@@ -1,6 +1,6 @@
 # 随身携带的相机包
 
-> 原文:[https://life hacker . com/the-take-everywhere-camera-bag-1792312160](https://lifehacker.com/the-take-everywhere-camera-bag-1792312160)
+> 原文：<https://lifehacker.com/the-take-everywhere-camera-bag-1792312160>
 
 如果你是一个业余摄影爱好者，无论去哪里都很难随身携带相机。Lifehacker 的读者 Jordon Cooper 的新年决心就是这样，所以他设置了他的相机包，这样他就可以一直带着它。
 

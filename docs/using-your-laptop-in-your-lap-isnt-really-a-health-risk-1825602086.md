@@ -1,6 +1,6 @@
 # 在膝盖上使用笔记本电脑并不会真的有健康风险
 
-> 原文:[https://life hacker . com/use-your-laptop-in-your-laptop-in-lap-is-a-really-a-health-risk-1825602086](https://lifehacker.com/using-your-laptop-in-your-lap-isnt-really-a-health-risk-1825602086)
+> 原文：<https://lifehacker.com/using-your-laptop-in-your-lap-isnt-really-a-health-risk-1825602086>
 
 如果你长时间把一台 [笔记本电脑](https://lifehacker.com/find-the-right-laptop-for-you-with-this-interactive-com-1680756973) 放在腿上，你可能至少担心过一次健康风险——尤其是如果你能感觉到你的笔记本电脑在你的敏感区域附近有点热。
 

@@ -1,6 +1,6 @@
 # 询问你的药剂师关于用现金支付你的处方
 
-> 原文:[https://life hacker . com/ask-your-pharmaceutical-on-pay for your 处方药-1826607583](https://lifehacker.com/ask-your-pharmacist-about-paying-for-your-prescriptions-1826607583)
+> 原文：<https://lifehacker.com/ask-your-pharmacist-about-paying-for-your-prescriptions-1826607583>
 
 你可能认为你的保险在当地药店为你的处方获得了尽可能好的价格，但事实证明这实际上增加了你的自付费用，这要归功于处方“禁言规则”。
 

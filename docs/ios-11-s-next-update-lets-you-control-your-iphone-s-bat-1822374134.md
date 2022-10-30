@@ -1,6 +1,6 @@
 # iOS 11 的下一次更新可以让你控制 iPhone 的电池寿命，但你可能不应该这样做
 
-> 原文:[https://life hacker . com/IOs-11-s-next-update-let-you-control-your-iphone-s-bat-1822374134](https://lifehacker.com/ios-11-s-next-update-lets-you-control-your-iphone-s-bat-1822374134)
+> 原文：<https://lifehacker.com/ios-11-s-next-update-lets-you-control-your-iphone-s-bat-1822374134>
 
 苹果 [即将发布的 iOS 11.3 更新](https://www.apple.com/newsroom/2018/01/apple-previews-ios-11-3/) 为其增强现实软件带来了一些改进，一些新的 animoji，幸运的是，对你的 iPhone 性能的控制更加精细。你可以自己选择是否为了延长电池寿命而降低 iPhone 的性能，推翻苹果之前有争议的决定，即在用户不知情的情况下降低电池退化的 iPhone 的速度。
 

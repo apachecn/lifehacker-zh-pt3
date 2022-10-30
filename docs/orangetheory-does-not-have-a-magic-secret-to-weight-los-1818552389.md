@@ -1,6 +1,6 @@
 # 橙色理论没有减肥的神奇秘密
 
-> 原文:[https://life hacker . com/orange theory-not-have-a-magic-secret-to-weight-los-1818552389](https://lifehacker.com/orangetheory-does-not-have-a-magic-secret-to-weight-los-1818552389)
+> 原文：<https://lifehacker.com/orangetheory-does-not-have-a-magic-secret-to-weight-los-1818552389>
 
 如果你是那种每个周六都躺着 Lululemon，手边放着一瓶 Smartwater 的人，你可能听说过 Orangetheory Fitness。这家总部位于佛罗里达州的特许经营店以其高科技健身空间的橙色照明而闻名，正在发展成为一种比 Soulcycle 更大的运动趋势。该公司已经积累了 700 个位置，自 [到 2015](https://www.inc.com/anna-hensel/2015-inc5000-the-10-fastest-growing-franchise-businesses.html) 年底增加了一倍多。它吸引人的部分原因是声称锻炼的目的是让参与者在洗完澡回家后继续燃烧卡路里。Orangetheory 的网站邀请用户“工作 1 小时。烧 36。”
 

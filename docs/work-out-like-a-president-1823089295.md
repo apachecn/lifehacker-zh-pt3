@@ -1,6 +1,6 @@
 # 像总统一样锻炼
 
-> 原文:[https://lifehacker.com/work-out-like-a-president-1823089295](https://lifehacker.com/work-out-like-a-president-1823089295)
+> 原文：<https://lifehacker.com/work-out-like-a-president-1823089295>
 
 巴拉克奥巴马 [打篮球](http://ftw.usatoday.com/2017/01/president-barack-obama-basketball-how-good-arne-duncan-photos-videos) 。比尔·克林顿和布什夫妇 [喜欢跑步](https://www.runnersworld.com/celebrity-runners/running-mates-running-with-potus) 。即使是唐纳德·特朗普 [也有时间打高尔夫球](https://www.cnn.com/2018/02/14/golf/donald-trump-golf-swing-barack-obama-george-bush-intl/index.html) 。但是如果你想尝试一些更老派的运动，这里有一些历史上总统们最喜欢的运动。
 

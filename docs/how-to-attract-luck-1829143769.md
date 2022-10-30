@@ -1,6 +1,6 @@
 # 如何吸引运气
 
-> 原文:[https://lifehacker.com/how-to-attract-luck-1829143769](https://lifehacker.com/how-to-attract-luck-1829143769)
+> 原文：<https://lifehacker.com/how-to-attract-luck-1829143769>
 
 当你看到那些你因为这样或那样的原因而钦佩的人时，你可能会认为他们成功的某些部分——无论是他们的角落办公室、他们的新电视节目或他们漂亮的老式家具——都可以归结为运气。
 

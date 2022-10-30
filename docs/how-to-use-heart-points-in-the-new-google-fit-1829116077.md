@@ -1,6 +1,6 @@
 # 如何在新的 Google Fit 中使用“Heart Points”
 
-> 原文:[https://life hacker . com/how-to-use-heart-points-in-the-new-Google-fit-1829116077](https://lifehacker.com/how-to-use-heart-points-in-the-new-google-fit-1829116077)
+> 原文：<https://lifehacker.com/how-to-use-heart-points-in-the-new-google-fit-1829116077>
 
 通过最新的重新设计，Google Fit 不再对你一天的步数大惊小怪(尽管数字仍然在那里，用小字印刷)。相反，你应该跟踪你的移动时间和神秘的心脏点。
 

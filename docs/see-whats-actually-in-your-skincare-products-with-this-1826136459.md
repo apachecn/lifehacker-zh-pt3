@@ -1,6 +1,6 @@
 # 用这个搜索引擎看看你的护肤品里到底有什么
 
-> 原文:[https://life hacker . com/see-whats-in-this-1826136459](https://lifehacker.com/see-whats-actually-in-your-skincare-products-with-this-1826136459)
+> 原文：<https://lifehacker.com/see-whats-actually-in-your-skincare-products-with-this-1826136459>
 
 你知道你在皮肤上涂了什么吗？如果没有，你可以使用这个 [产品搜索引擎](https://incidecoder.com/) 来解码你的乳液、面霜和化妆品中有什么。
 

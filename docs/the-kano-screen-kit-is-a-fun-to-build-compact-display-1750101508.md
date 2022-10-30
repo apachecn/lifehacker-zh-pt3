@@ -1,6 +1,6 @@
 # 卡诺屏幕工具包是一个有趣的建立，树莓派紧凑的显示器
 
-> 原文:[https://life hacker . com/the-Kano-screen-kit-is-a-fun-to-build-compact-display-1750101508](https://lifehacker.com/the-kano-screen-kit-is-a-fun-to-build-compact-display-1750101508)
+> 原文：<https://lifehacker.com/the-kano-screen-kit-is-a-fun-to-build-compact-display-1750101508>
 
 我们都被屏幕包围着，但很少有人知道它们到底是如何工作的。如果你想教你的孩子展示如何工作(或者自己学习！)并且你需要一个树莓派的显示器，Kano Screen Kit 是一个价格合理、便携的专用显示器，你可以自己制作。
 

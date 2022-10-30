@@ -1,6 +1,6 @@
 # 获得验证，也许 Twitter 会回复你的骚扰报告
 
-> 原文:[https://life hacker . com/get-verified-and-may-Twitter-will-answer-your-harassm-1819812491](https://lifehacker.com/get-verified-and-maybe-twitter-will-answer-your-harassm-1819812491)
+> 原文：<https://lifehacker.com/get-verified-and-maybe-twitter-will-answer-your-harassm-1819812491>
 
 每个人都知道 Twitter 在打击骚扰 方面是 [可怕的，但每日野兽](https://gizmodo.com/women-explain-why-they-are-boycotting-twitter-1819408539#_ga=2.56342635.1793912554.1508765200-1297080755.1497980211) [最近解释了为什么](https://www.thedailybeast.com/want-nazis-out-of-your-twitter-feed-it-helps-to-be-a-vip) ，引用匿名前员工的话，指责支持团队人手不足，培训不足，以及不允许常识或个人判断的总括响应流程图。他们还透露，来自经过验证的用户的报告被转移到第二个更短的工作队列中。
 

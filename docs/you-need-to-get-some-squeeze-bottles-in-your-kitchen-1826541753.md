@@ -1,6 +1,6 @@
 # 你需要在厨房里放一些挤压瓶
 
-> 原文:[https://life hacker . com/you-need-to-get-some-squeeze-bottles-in-your-kitchen-1826541753](https://lifehacker.com/you-need-to-get-some-squeeze-bottles-in-your-kitchen-1826541753)
+> 原文：<https://lifehacker.com/you-need-to-get-some-squeeze-bottles-in-your-kitchen-1826541753>
 
 控制你的配料让你控制最终的菜肴，挤压瓶可以帮助你成为你烹饪领域的主人。有了它们，你可以把*精确*量的液体配料*精确*放在你想要的地方，*和*它们在餐馆供应店的价格大约是一美元。
 

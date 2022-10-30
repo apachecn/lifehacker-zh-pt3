@@ -1,6 +1,6 @@
 # 当你遇到挫折时，通过向你的孩子寻求帮助来培养韧性
 
-> 原文:[https://life hacker . com/teach-resilience-by-quest-your-kids-when-you-1798496295](https://lifehacker.com/teach-resilience-by-asking-your-kids-for-help-when-you-1798496295)
+> 原文：<https://lifehacker.com/teach-resilience-by-asking-your-kids-for-help-when-you-1798496295>
 
 “失败”是当今育儿中的一个主要流行词:为了培养成功、有韧性的孩子，我们需要让他们失败。如果你的孩子把他的作业或棒球手套忘在家里，不要带给他。如果她正在努力建造一座积木塔，或者之后，一篇学期论文，或者甚至之后(但愿不会)，准时到达她的第一份工作，不要插手。只有通过奋斗，有时是失败，孩子们才能确切地知道他们必须做什么才能成功。
 

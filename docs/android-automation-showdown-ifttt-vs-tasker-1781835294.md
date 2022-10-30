@@ -1,6 +1,6 @@
 # Android 自动化摊牌:IFTTT vs. Tasker
 
-> 原文:[https://life hacker . com/Android-automation-摊牌-ifttt-vs-tasker-1781835294](https://lifehacker.com/android-automation-showdown-ifttt-vs-tasker-1781835294)
+> 原文：<https://lifehacker.com/android-automation-showdown-ifttt-vs-tasker-1781835294>
 
 如果你去剧院的时候，你的手机知道进入飞行模式，或者下班的时候给你的配偶发短信，这不是很酷吗？IFTTT 和 Tasker 可以自动化无数类似的任务，将你的手机变成一个专注的个人助理。今天，我们将他们两个都放在擂台上，看看谁更擅长简化你的生活。
 

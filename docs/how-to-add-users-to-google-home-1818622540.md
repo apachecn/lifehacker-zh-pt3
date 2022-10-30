@@ -1,6 +1,6 @@
 # 如何向 Google Home 添加用户
 
-> 原文:[https://life hacker . com/how-to-add-users-to-Google-home-1818622540](https://lifehacker.com/how-to-add-users-to-google-home-1818622540)
+> 原文：<https://lifehacker.com/how-to-add-users-to-google-home-1818622540>
 
 有时候，在这个疯狂的世界里，我需要的只是一次轻快的散步来理清思绪，耳机里传来一些好听的音乐。但当这种简单的快乐每天早上被我不在家时我的伴侣发出的语音命令打断时，耳机里的音乐就会静音，这可能会有点令人沮丧。当根本原因是我的 [谷歌主页](https://madeby.google.com/home/) 的多重用户偏好时，这尤其令人恼火，这是一个语音助手，表面上是为了让我的生活更轻松一点。
 

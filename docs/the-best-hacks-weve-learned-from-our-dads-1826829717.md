@@ -1,6 +1,6 @@
 # 我们从父亲那里学到的最好的技巧
 
-> 原文:[https://life hacker . com/the-best-hacks-we ve-learned from our-dads-1826829717](https://lifehacker.com/the-best-hacks-weve-learned-from-our-dads-1826829717)
+> 原文：<https://lifehacker.com/the-best-hacks-weve-learned-from-our-dads-1826829717>
 
 Lifehacker 的工作人员是从哪里获得他们无穷无尽的知识来把每件事做得更好的呢？你的第一个猜测可能是遗传，也可能是睿智的父系智慧。
 

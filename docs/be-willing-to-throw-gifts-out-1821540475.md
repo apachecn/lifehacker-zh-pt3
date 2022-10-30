@@ -1,6 +1,6 @@
 # 愿意扔掉礼物
 
-> 原文:[https://life hacker . com/be-willing-to-throw-gifts-out-1821540475](https://lifehacker.com/be-willing-to-throw-gifts-out-1821540475)
+> 原文：<https://lifehacker.com/be-willing-to-throw-gifts-out-1821540475>
 
 如果它还没有发生在你身上，总有一天会的。你拆开一份远房亲戚或者你心爱的伴侣送的礼物，然后……太可怕了。你强颜欢笑，说:“非常感谢，我喜欢。”接下来会发生什么？
 

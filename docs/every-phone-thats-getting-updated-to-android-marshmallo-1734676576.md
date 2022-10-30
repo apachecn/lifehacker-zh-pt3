@@ -1,6 +1,6 @@
 # 每一部升级到安卓棉花糖的手机
 
-> 原文:[https://life hacker . com/every-phone-thas-get-updated-to-Android-marshmallo-1734676576](https://lifehacker.com/every-phone-thats-getting-updated-to-android-marshmallo-1734676576)
+> 原文：<https://lifehacker.com/every-phone-thats-getting-updated-to-android-marshmallo-1734676576>
 
 [安卓棉花糖](https://lifehacker.com/all-the-new-features-of-android-m-1707454646) 今天到货。当然，一些手机可能仍然需要几个月或几年才能获得更新。我们已经收集了关于哪些设备将在何时获得更新的所有信息。
 

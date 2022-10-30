@@ -1,6 +1,6 @@
 # 我有多担心我家狗狗的病菌？
 
-> 原文:[https://life hacker . com/how-do-much-do-do-much-to-worry-my-dogs-germs-1798551776](https://lifehacker.com/how-much-do-i-have-to-worry-about-my-dogs-germs-1798551776)
+> 原文：<https://lifehacker.com/how-much-do-i-have-to-worry-about-my-dogs-germs-1798551776>
 
 狗是毛茸茸的、流口水的、便便的动物，它们会毫不犹豫地嗅出(也许尝出)它们在地上看到的任何未知物体。所以，如果我们想保护我们的健康，我们可以让它们分享我们的家，睡在我们的床上，舔我们的脸吗？
 

@@ -1,6 +1,6 @@
 # 两种填鸡胸肉的方法
 
-> 原文:[https://life hacker . com/two-way-to-stuff-a chicken-breast-1823327524](https://lifehacker.com/two-ways-to-stuff-a-chicken-breast-1823327524)
+> 原文：<https://lifehacker.com/two-ways-to-stuff-a-chicken-breast-1823327524>
 
 鸡胸肉没有特别强烈的个性，但它们是一种非常友好的蛋白质。无论你想要什么口味，你都可以依靠鸡胸肉来提供完美的蛋白质画布，而不会分散注意力或与更大胆、更明显的口味发生冲突。从结构上看，它们非常适合做馅料，是你能想到的几乎任何馅料的完美载体。
 

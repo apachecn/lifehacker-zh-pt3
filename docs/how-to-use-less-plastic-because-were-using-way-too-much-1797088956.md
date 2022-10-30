@@ -1,6 +1,6 @@
 # 如何少用塑料，因为我们用得太多了
 
-> 原文:[https://life hacker . com/how-to-use-less-plastic-because-use-way-too-1797088956](https://lifehacker.com/how-to-use-less-plastic-because-were-using-way-too-much-1797088956)
+> 原文：<https://lifehacker.com/how-to-use-less-plastic-because-were-using-way-too-much-1797088956>
 
 今天，世界上每个人大约有一吨塑料——也就是说，自 1950 年 以来，共生产了 83 亿吨塑料，其中大部分已成为废物，最终被填埋。更糟糕的是，塑料产量正在增加，地球上一半的塑料是在过去 13 年里产生的。但是你可以通过减少塑料消费来减少你自己的影响。以下是你可以采取的八个步骤。
 

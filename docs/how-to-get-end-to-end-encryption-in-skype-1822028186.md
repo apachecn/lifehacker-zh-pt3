@@ -1,6 +1,6 @@
 # 如何在 Skype 中实现端到端加密
 
-> 原文:[https://life hacker . com/how-to-get-end-to-end-end-encryption-in-Skype-1822028186](https://lifehacker.com/how-to-get-end-to-end-encryption-in-skype-1822028186)
+> 原文：<https://lifehacker.com/how-to-get-end-to-end-encryption-in-skype-1822028186>
 
 [【Skype】](https://lifehacker.com/now-you-can-send-friends-cash-using-skype-1797572254)是最受欢迎的消息应用之一，但它从未提供那种在其他服务中成为标准的[WhatsApp](https://lifehacker.com/whatsapp-just-added-live-location-sharing-heres-how-to-1819658511)和 [iMessage](https://lifehacker.com/how-to-prevent-imessages-from-accidentally-appearing-on-1794255706) 。
 

@@ -1,6 +1,6 @@
 # 我是麦克斯·拉夫琴，Affirm 的首席执行官，PayPal 的联合创始人，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-max-lev chin-CEO-of-affirm-and-co-founder-of-paypal-1791439921](https://lifehacker.com/im-max-levchin-ceo-of-affirm-and-co-founder-of-paypal-1791439921)
+> 原文：<https://lifehacker.com/im-max-levchin-ceo-of-affirm-and-co-founder-of-paypal-1791439921>
 
 对任何企业家来说，创办一家公司并实现盈利都是一件值得骄傲的事情，但麦克斯·拉夫琴做得比这多一点。他参与创建了一系列著名且有影响力的创业公司。
 

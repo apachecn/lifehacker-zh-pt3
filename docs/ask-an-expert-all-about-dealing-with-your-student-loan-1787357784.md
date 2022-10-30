@@ -1,6 +1,6 @@
 # 问一个专家:所有关于处理你的学生贷款
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-handling-your student-loan-loan-1787357784](https://lifehacker.com/ask-an-expert-all-about-dealing-with-your-student-loan-1787357784)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-dealing-with-your-student-loan-1787357784>
 
 有可能你正在处理两种情况中的一种:要么你是一名试图找出如何以合理的利率偿还学生贷款的大学毕业生，要么你正处于教育的开始阶段，需要决定在多大程度上依赖贷款。从哪里开始找出你的选择？
 

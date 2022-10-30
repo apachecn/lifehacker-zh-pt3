@@ -1,6 +1,6 @@
 # MoviePass 的竞争对手 Sinemia 现在提供家庭计划
 
-> 原文:[https://life hacker . com/movie pass-competitor-sinemia-now-offers-family-plans-1827047364](https://lifehacker.com/moviepass-competitor-sinemia-now-offers-family-plans-1827047364)
+> 原文：<https://lifehacker.com/moviepass-competitor-sinemia-now-offers-family-plans-1827047364>
 
 当你是一个真正喜欢电影的单身人士时，像 MoviePass 和 Sinemia 这样的公司提供的服务是为你的习惯节省一些钱的简单易行的方法。当你是一个五口之家的一员时，事情就有点复杂了。
 

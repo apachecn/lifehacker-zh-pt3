@@ -1,6 +1,6 @@
 # 当你没有相关工作经验时，简历上应该写些什么
 
-> 原文:[https://life hacker . com/what-to-put-on-when-you-have-no-relevant-wo-1750194488](https://lifehacker.com/what-to-put-on-your-resume-when-you-have-no-relevant-wo-1750194488)
+> 原文：<https://lifehacker.com/what-to-put-on-your-resume-when-you-have-no-relevant-wo-1750194488>
 
 你的梦想工作刚刚发布，你非常兴奋。只有一个问题:你实际上没有相关的工作经验。无论你是转行者还是没有实习经历的应届毕业生，你能在简历上写些什么让你看起来尽可能合格呢？
 

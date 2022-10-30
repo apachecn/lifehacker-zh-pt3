@@ -1,6 +1,6 @@
 # 如何观看肯塔基赛马会(即使没有电视)
 
-> 原文:[https://life hacker . com/how-to-watch-the-Kentucky-derby-even-without-a-TV-1825790225](https://lifehacker.com/how-to-watch-the-kentucky-derby-even-without-a-tv-1825790225)
+> 原文：<https://lifehacker.com/how-to-watch-the-kentucky-derby-even-without-a-tv-1825790225>
 
 被称为“体育界最伟大的两分钟”的今天的肯塔基赛马会不会持续太久。今年比赛的奖金是 200 万美元，时间是由秘书处于 1973 年创造的 1:59 2/5。
 

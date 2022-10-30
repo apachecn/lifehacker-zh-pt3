@@ -1,6 +1,6 @@
 # 如何挑选适合自己的吉他
 
-> 原文:[https://life hacker . com/how-to-pick-the-right-to-you-1823706185](https://lifehacker.com/how-to-pick-the-right-guitar-for-you-1823706185)
+> 原文：<https://lifehacker.com/how-to-pick-the-right-guitar-for-you-1823706185>
 
 准备买一把吉他，但不确定从哪里入手？你能做的最糟糕的事情就是买错了乐器，在你有机会投入之前就爱上了它。这就是我们的切入点。以下是如何找到适合你的 6 弦。
 

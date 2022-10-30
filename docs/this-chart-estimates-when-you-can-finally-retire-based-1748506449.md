@@ -1,6 +1,6 @@
 # 根据你的储蓄率，这张图表估计了你最终可以退休的时间
 
-> 原文:[https://life hacker . com/this-chart-estimates-when you-can finally-retire-based-1748506449](https://lifehacker.com/this-chart-estimates-when-you-can-finally-retire-based-1748506449)
+> 原文：<https://lifehacker.com/this-chart-estimates-when-you-can-finally-retire-based-1748506449>
 
 三个因素会影响你何时经济独立:你开始储蓄的年龄，你储蓄了多少收入，以及你的投资回报。这张图表说明了这些对你何时退休有多重要。
 

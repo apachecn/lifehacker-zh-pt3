@@ -1,6 +1,6 @@
 # 用磁铁吸住窗户，用隐私遮光罩对抗手机窃听器，还有更多本周热门下载
 
-> 原文:[https://life hacker . com/snap-windows-with-magnet-fight-phone-snoopers-with-pri-1793641582](https://lifehacker.com/snap-windows-with-magnet-fight-phone-snoopers-with-pri-1793641582)
+> 原文：<https://lifehacker.com/snap-windows-with-magnet-fight-phone-snoopers-with-pri-1793641582>
 
 每周，我们都会分享一些适用于所有平台的下载，以帮助您完成工作。以下是本周下载量最高的。
 

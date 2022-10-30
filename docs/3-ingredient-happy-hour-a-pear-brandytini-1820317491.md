@@ -1,6 +1,6 @@
 # 三种配料的快乐时光:一个梨白兰地
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-pear-brandytini-1820317491](https://lifehacker.com/3-ingredient-happy-hour-a-pear-brandytini-1820317491)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-pear-brandytini-1820317491>
 
 快乐的星期五，我最好的宝贝们，欢迎回到 [*三种配料的快乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们拥抱秋天的水果，同时用梨白兰地做的马提尼保持优雅。
 

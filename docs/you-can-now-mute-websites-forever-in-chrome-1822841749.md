@@ -1,6 +1,6 @@
 # 你现在可以在 Chrome 中永远屏蔽网站
 
-> 原文:[https://life hacker . com/you-can-now-mute-websites-forever-in-chrome-1822841749](https://lifehacker.com/you-can-now-mute-websites-forever-in-chrome-1822841749)
+> 原文：<https://lifehacker.com/you-can-now-mute-websites-forever-in-chrome-1822841749>
 
 休息吧，我的孩子。CNN 的自动播放视频不能再伤害你了。在最新的 Chrome 公开版中，你可以右击任何标签，选择“屏蔽网站”
 

@@ -1,6 +1,6 @@
 # 如果你在周末做了足够的锻炼，那么在一周中放松是没问题的
 
-> 原文:[https://life hacker . com/slacking-off-the-week-if-you-exercise-en-1797899427](https://lifehacker.com/slacking-off-during-the-week-is-fine-if-you-exercise-en-1797899427)
+> 原文：<https://lifehacker.com/slacking-off-during-the-week-is-fine-if-you-exercise-en-1797899427>
 
 如果你锻炼的最佳时间是在周末，你可能会想，在一周的其余时间放松一下是否可以。答案是肯定的，但前提是你要在这两天内完成一周的锻炼。这也带来了自身的问题。
 

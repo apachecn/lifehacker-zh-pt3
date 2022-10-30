@@ -1,6 +1,6 @@
 # 关于如何在旅行中结识他人的单人旅行指南
 
-> 原文:[https://life hacker . com/a-solo-traveler-s-guide-on-how-to-meet-people-while-tra-1792185394](https://lifehacker.com/a-solo-traveler-s-guide-on-how-to-meet-people-while-tra-1792185394)
+> 原文：<https://lifehacker.com/a-solo-traveler-s-guide-on-how-to-meet-people-while-tra-1792185394>
 
 独自旅行有它的好处:你可以在你想做的时候做你想做的事情，发现关于这个世界和你自己的新的和真实的事情，享受一次令人振奋、专注的旅行体验，不受他人的影响。但是过了一段时间，自言自语，吃另一顿饭，却不能和另一个人分享当天有趣的想法和观察...非常寂寞。
 

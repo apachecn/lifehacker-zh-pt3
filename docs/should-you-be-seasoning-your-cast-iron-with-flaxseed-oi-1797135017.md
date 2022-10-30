@@ -1,6 +1,6 @@
 # 你应该用亚麻籽油给你的铸铁调味吗？
 
-> 原文:[https://life hacker . com/should-you-be-sorting-your-cast-iron with flax seed-oi-1797135017](https://lifehacker.com/should-you-be-seasoning-your-cast-iron-with-flaxseed-oi-1797135017)
+> 原文：<https://lifehacker.com/should-you-be-seasoning-your-cast-iron-with-flaxseed-oi-1797135017>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-UBCX29eo9Zc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-UBCX29eo9Zc&start=0) 
 

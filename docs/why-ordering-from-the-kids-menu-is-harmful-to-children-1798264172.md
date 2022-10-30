@@ -1,6 +1,6 @@
 # 为什么从儿童菜单点菜对儿童有害
 
-> 原文:[https://the take out . com/why-ordering-from-the-kids-menu-is-damage-to-children-1798264172](https://thetakeout.com/why-ordering-from-the-kids-menu-is-harmful-to-children-1798264172)
+> 原文：<https://thetakeout.com/why-ordering-from-the-kids-menu-is-harmful-to-children-1798264172>
 
 对于那些没有为还不识字的人点餐的人来说，这里是儿童菜单的悲哀现实:通心粉和奶酪、鸡腿、烤奶酪、普通汉堡。几乎总是那些东西，不管食物或菜肴的质量。墨西哥餐馆会提供油炸玉米粉饼——老实说，这只是一种南部边境的烤奶酪。意大利餐馆兴高采烈地说他们可以做“黄油奶酪面条”我和妻子——作为一个 4 岁孩子的父母——去过一些餐馆，那里的通心粉和奶酪显然不是盒装的，但这个地方仍然厚颜无耻地收取我们 8 美元。
 

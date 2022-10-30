@@ -1,6 +1,6 @@
 # 如何使用常见家用物品清洁厨房
 
-> 原文:[https://life hacker . com/how-to-clean-your ' s kitchen with common-home-items-1761337061](https://lifehacker.com/how-to-clean-your-kitchen-with-common-household-items-1761337061)
+> 原文：<https://lifehacker.com/how-to-clean-your-kitchen-with-common-household-items-1761337061>
 
 打扫厨房感觉就像与油腻的炉灶进行一场无休止的战斗。不管你打扫得多频繁，还是有更多的表面需要擦拭。但是你可以用普通的家居用品制作有效的清洁溶液，不要用商店买的产品。
 

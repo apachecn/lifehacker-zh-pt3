@@ -1,6 +1,6 @@
 # 如何使用 Venmo 在 Grubhub 上拆分您的送餐账单
 
-> 原文:[https://life hacker . com/how-to-use-venmo-to-split-your-food-delivery-bill-on-gr-1825327164](https://lifehacker.com/how-to-use-venmo-to-split-your-food-delivery-bill-on-gr-1825327164)
+> 原文：<https://lifehacker.com/how-to-use-venmo-to-split-your-food-delivery-bill-on-gr-1825327164>
 
 [Venmo](https://twocents.lifehacker.com/whats-better-apple-pay-cash-vs-google-wallet-vs-venm-1821218263) 方便与朋友分摊账单， [Grubhub](https://lifehacker.com/im-grubhub-cto-maria-belousova-and-this-is-how-i-work-1819373669#_ga=2.161602684.151127572.1523807864-396842925.1520800403) 方便用手机点餐。将这两种服务结合成一个单一的体验似乎是显而易见的，但直到现在它还不是一个选项。
 

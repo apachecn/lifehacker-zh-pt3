@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:那个把红酒洒在我衣服上的笨手笨脚的是不是欠我的？
 
-> 原文:[https://the take out . com/klutz-who-spread-on-my-cloth-own-me 1828851313](https://thetakeout.com/klutz-who-spilled-red-wine-on-my-clothes-owe-me-1828851313)
+> 原文：<https://thetakeout.com/klutz-who-spilled-red-wine-on-my-clothes-owe-me-1828851313>
 
 > 请告诉我在这种情况下我该怎么做。自从上周末那件事发生后，我一直在想这件事，现在仍然很生气。
 > 

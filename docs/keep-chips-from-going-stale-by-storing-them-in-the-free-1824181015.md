@@ -1,6 +1,6 @@
 # 把薯片放在冰箱里可以防止它们变质
 
-> 原文:[https://life hacker . com/keep-chips-from-going-stale-by-storing-they-in-the-free-1824181015](https://lifehacker.com/keep-chips-from-going-stale-by-storing-them-in-the-free-1824181015)
+> 原文：<https://lifehacker.com/keep-chips-from-going-stale-by-storing-them-in-the-free-1824181015>
 
 对于我们大多数人来说，长期储存薯片并不是一件优先考虑的事情，他们往往会在一两天内把整袋薯片都吸完。然而，如果你过于雄心勃勃，买了家庭装，你可能会在一两周内发现自己带着一袋悲伤的、不新鲜的、半满的薯片——也就是说，除非你把它们密封起来，放进冰箱。
 

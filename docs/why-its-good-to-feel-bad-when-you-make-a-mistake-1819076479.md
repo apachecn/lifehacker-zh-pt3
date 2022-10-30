@@ -1,6 +1,6 @@
 # 为什么犯错时感觉不好是件好事
 
-> 原文:[https://life hacker . com/why-its-good-to-feel-bad-when-you-make-a-mission-1819076479](https://lifehacker.com/why-its-good-to-feel-bad-when-you-make-a-mistake-1819076479)
+> 原文：<https://lifehacker.com/why-its-good-to-feel-bad-when-you-make-a-mistake-1819076479>
 
 当你搞砸了，他们说，让它去吧。向前看，忘记它，做了就做了。不，最近的一项研究表明，你需要感觉不好才能学习。
 

@@ -1,6 +1,6 @@
 # 我是贝尔·贝丝·库珀，作家兼企业家，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-belle-Beth-Cooper-作家兼企业家-and-this-1729778895](https://lifehacker.com/im-belle-beth-cooper-writer-and-entrepreneur-and-this-1729778895)
+> 原文：<https://lifehacker.com/im-belle-beth-cooper-writer-and-entrepreneur-and-this-1729778895>
 
 如果你仔细阅读偶尔涉足我们生活的科技出版物，你很可能会看到贝尔·贝丝·库珀 的作品。她的作品在网络上随处可见；在描述自我完善、编码和写作本身的追求时，她声音清晰。
 

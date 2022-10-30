@@ -1,6 +1,6 @@
 # 更聪明、更快、更好:如何将生产力科学应用到你自己的习惯中
 
-> 原文:[https://life hacker . com/smarter-fast-better-how-to-apply-the-science-of-prod-1784777880](https://lifehacker.com/smarter-faster-better-how-to-apply-the-science-of-prod-1784777880)
+> 原文：<https://lifehacker.com/smarter-faster-better-how-to-apply-the-science-of-prod-1784777880>
 
 生产力不仅仅是完成事情。从本质上来说，它是关于对你的时间的足智多谋。在最近一次对作者查尔斯·杜希格 的采访中，他告诉我们，“你可以整天忙忙碌碌，却什么重要的事情也做不了。生产力就是完成重要的事情。”在他的新书中， [*更聪明更快更好，*](https://www.amazon.com/Smarter-Faster-Better-Productive-Business-ebook/dp/B00Z3FRYB0?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/smarter-faster-better-how-to-apply-the-science-of-prod-1784777880&asc_source=&tag=kinjalifehackerlink-20) 杜希格探讨了生产力的这种更全面的含义以及如何实现它。
 

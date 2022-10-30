@@ -1,6 +1,6 @@
 # 哪里可以找到不是“短裤”的女孩短裤
 
-> 原文:[https://life hacker . com/where-to-find-shorts-for-girls-than-parent-shorts-1797990555](https://lifehacker.com/where-to-find-shorts-for-girls-that-arent-short-shorts-1797990555)
+> 原文：<https://lifehacker.com/where-to-find-shorts-for-girls-that-arent-short-shorts-1797990555>
 
 我们想让我们的女儿知道她们无所不能——爬树、踢足球、摘星星。但基于现有的服装选择，我们让他们穿着短裤这样做，短裤会抬高臀部，摩擦大腿内侧。
 

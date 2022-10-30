@@ -1,6 +1,6 @@
 # 如何避免在线度假租赁骗局
 
-> 原文:[https://life hacker . com/how-to-avoid-vacation-rental-scams-online-1826076448](https://lifehacker.com/how-to-avoid-vacation-rental-scams-online-1826076448)
+> 原文：<https://lifehacker.com/how-to-avoid-vacation-rental-scams-online-1826076448>
 
 度假屋租赁是一种有趣的、通常负担得起的、替代酒店的方式，但它们也较少受到监管，更容易被诈骗。骗子们想出了大量的计划，利用不存在的租金和预付现金保证金的漂亮照片，从健忘的度假者身上快速赚钱。这就是为什么你知道如何在网上识别欺诈性的列表是很重要的。
 

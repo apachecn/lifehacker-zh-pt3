@@ -1,6 +1,6 @@
 # 如何建立一个印度香料柜
 
-> 原文:[https://life hacker . com/how-to-build-a-Indian-spice-cabinet-1819366601](https://lifehacker.com/how-to-build-an-indian-spice-cabinet-1819366601)
+> 原文：<https://lifehacker.com/how-to-build-an-indian-spice-cabinet-1819366601>
 
 对于不熟悉印度烹饪的人来说，印度烹饪似乎很复杂，令人费解；各种香料酱的研磨——一点这个，一点那个。但事实是，一旦你掌握了一些基本的香料，印度烹饪就像任何其他菜肴一样简单。
 

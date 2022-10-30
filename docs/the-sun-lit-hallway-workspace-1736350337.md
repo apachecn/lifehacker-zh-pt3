@@ -1,6 +1,6 @@
 # 阳光明媚的走廊工作区
 
-> 原文:[https://life hacker . com/the-sun-lit-hallow-workspace-1736350337](https://lifehacker.com/the-sun-lit-hallway-workspace-1736350337)
+> 原文：<https://lifehacker.com/the-sun-lit-hallway-workspace-1736350337>
 
 走廊可以是工作空间的绝佳地点，只要它足够宽和明亮，就像今天的特色工作空间一样。
 

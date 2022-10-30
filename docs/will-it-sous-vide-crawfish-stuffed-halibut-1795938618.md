@@ -1,6 +1,6 @@
 # 它会腐烂吗？小龙虾酿比目鱼
 
-> 原文:[https://life hacker . com/will-it-sous-vide-crawfish-booted-halibut-1795938618](https://lifehacker.com/will-it-sous-vide-crawfish-stuffed-halibut-1795938618)
+> 原文：<https://lifehacker.com/will-it-sous-vide-crawfish-stuffed-halibut-1795938618>
 
 欢迎来到本周的 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏，我通常用我的沉浸式循环器在那里制作你想要我做的任何东西。
 

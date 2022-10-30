@@ -1,6 +1,6 @@
 # 在塔吉特百货公司用你的旧汽车座椅换一张新的优惠券
 
-> 原文:[https://life hacker . com/trade-in-your-old-car-seat-for-a-a-1825402506](https://lifehacker.com/trade-in-your-old-car-seat-for-a-coupon-for-a-new-one-a-1825402506)
+> 原文：<https://lifehacker.com/trade-in-your-old-car-seat-for-a-coupon-for-a-new-one-a-1825402506>
 
 你知道汽车座椅有有效期吗？是的，那艘装载你最珍贵货物的船可能不再是最安全的选择，所以做一些检查是很重要的。你可以在座椅本身或者用户手册上找到有效期，也可以打电话给制造商。汽车座椅的平均寿命是六年。
 

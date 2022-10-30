@@ -1,6 +1,6 @@
 # 这个夏天如何让你的床尽可能保持凉爽
 
-> 原文:[https://life hacker . com/how-to-keep your bed-your-bed-as-could-cool-possible-this-summer-1826397130](https://lifehacker.com/how-to-keep-your-bed-as-cool-as-possible-this-summer-1826397130)
+> 原文：<https://lifehacker.com/how-to-keep-your-bed-as-cool-as-possible-this-summer-1826397130>
 
 太热的时候很难睡个好觉——既然我们已经开始在新闻中看到“创纪录的高温”标题，是时候想出我们的夜间降温策略了。
 

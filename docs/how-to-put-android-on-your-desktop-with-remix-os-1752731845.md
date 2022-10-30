@@ -1,6 +1,6 @@
 # 如何用 Remix OS 把 Android 放到你的桌面上
 
-> 原文:[https://life hacker . com/how-to-put-Android-on-your-desktop-with-remix-OS-1752731845](https://lifehacker.com/how-to-put-android-on-your-desktop-with-remix-os-1752731845)
+> 原文：<https://lifehacker.com/how-to-put-android-on-your-desktop-with-remix-os-1752731845>
 
 [Remix OS](http://www.jide.com/en/remixos-for-pc) ， [昨天出来的](http://lifehacker.com/remixos-brings-desktop-style-android-to-intel-based-pcs-1752436333) ，是一个杀手级的安卓变种，给安卓带来了一个圆滑的桌面风格界面。现在，你可以把它安装在 u 盘上，在电脑上试用。
 

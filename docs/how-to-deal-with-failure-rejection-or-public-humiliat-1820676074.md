@@ -1,6 +1,6 @@
 # 如何应对失败、拒绝或公开羞辱
 
-> 原文:[https://life hacker . com/how-to-deal-to-deal-failure-rejection-or-public-humi liat-1820676074](https://lifehacker.com/how-to-deal-with-failure-rejection-or-public-humiliat-1820676074)
+> 原文：<https://lifehacker.com/how-to-deal-with-failure-rejection-or-public-humiliat-1820676074>
 
 很少有人会把一篇糟糕的 Yelp 评论变成一个工作项目，但作家 [亚历山德拉·弗兰森](http://www.alexandrafranzen.com/) 已经通过她的新书 [*做到了这一点【你会活下来的】*](https://www.amazon.com/Youre-Going-Survive-soul-crushing-experiences_and/dp/1633536793/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-deal-with-failure-rejection-or-public-humiliat-1820676074&asc_source=&ie=UTF8&keywords=you're going to survive&qid=1511360786&sr=8-1&tag=kinjalifehackerlink-20) 。
 

@@ -1,6 +1,6 @@
 # iOS AR 测量 App 与 Android:哪个更准确？
 
-> 原文:[https://life hacker . com/which-ar-measuring-app-is-more-accurate-1827242756](https://lifehacker.com/which-ar-measuring-app-is-more-accurate-1827242756)
+> 原文：<https://lifehacker.com/which-ar-measuring-app-is-more-accurate-1827242756>
 
 当每个人都开始谈论这个名为“增强现实”的疯狂的智能手机新功能时，我想到了两件事:大多数 AR 应用和游戏都将是噱头 AF，我当然希望有人能开发出一个伟大的测量应用，因为我总是放错我的卷尺。
 

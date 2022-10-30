@@ -1,6 +1,6 @@
 # 这个基于播客的写作课程将让你开始写你的梦想小说
 
-> 原文:[https://life hacker . com/this-podcast-based-writing-course-will-get-you-working-1823612218](https://lifehacker.com/this-podcast-based-writing-course-will-get-you-working-1823612218)
+> 原文：<https://lifehacker.com/this-podcast-based-writing-course-will-get-you-working-1823612218>
 
 蒂姆·克莱尔的 [沙发到 80K 写作播客](http://www.timclarepoet.co.uk/couchto80kwritingbootcamp/) 是一个愉快、紧张、鼓舞人心的八周小说写作之旅。为了获得最好的体验，盲目地走进去；你只需要知道它很好，适合任何经验水平。如果你想知道更多，请继续阅读，但要知道这里是剧透。
 

@@ -1,6 +1,6 @@
 # 如何清理动物骨头，这样你就可以自豪地在家里展示它们了
 
-> 原文:[https://life hacker . com/how-to-clean-animal-bones-so-you-may-delible-displ-1798191351](https://lifehacker.com/how-to-clean-animal-bones-so-that-you-may-proudly-displ-1798191351)
+> 原文：<https://lifehacker.com/how-to-clean-animal-bones-so-that-you-may-proudly-displ-1798191351>
 
 生活是一条蜿蜒的道路，有许多意想不到的弯路。我从没想过会发现自己有一个去了面的冷冻猪头骨，但是，在《T2》的一个特别有野心的部分之后，它会出现吗？ ，那正是我发现自己所拥有的。
 

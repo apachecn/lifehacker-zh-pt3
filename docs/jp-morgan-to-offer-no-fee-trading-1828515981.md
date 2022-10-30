@@ -1,6 +1,6 @@
 # 摩根大通提供免费股票交易
 
-> 原文:[https://life hacker . com/jp-mor gan-to-offer-no-fee-trading-1828515981](https://lifehacker.com/jp-morgan-to-offer-no-fee-trading-1828515981)
+> 原文：<https://lifehacker.com/jp-morgan-to-offer-no-fee-trading-1828515981>
 
 大通的客户下周将获得一项独一无二的新福利:他们可以从银行账户进入一个投资平台，每年至少进行 100 笔免费交易。
 

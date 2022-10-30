@@ -1,6 +1,6 @@
 # 你应该给你的孩子多少数字隐私？
 
-> 原文:[https://life hacker . com/how-much-digital-privacy-you-should-be-giving-you-kids-1821648616](https://lifehacker.com/how-much-digital-privacy-should-you-be-giving-your-kids-1821648616)
+> 原文：<https://lifehacker.com/how-much-digital-privacy-should-you-be-giving-your-kids-1821648616>
 
 似乎几乎每周都有新的研究发表，与上一份关于孩子应该——和不应该——被允许看多长时间屏幕的研究相矛盾。但是假设你已经决定冒险给你的孩子买一部手机、平板电脑或电脑，艰难的选择还没有结束——事实上，它们才刚刚开始。现在，你必须弄清楚允许他们多少数字隐私。
 

@@ -1,6 +1,6 @@
 # 我如何在一个晚上花了不到 100 美元就完全修复了我的吉普车传动系统
 
-> 原文:[https://jalopnik . com/how-I-complete-rebuilding-my-jeeps-transmission-in-one-n-1787048965](https://jalopnik.com/how-i-completely-rebuilt-my-jeeps-transmission-in-one-n-1787048965)
+> 原文：<https://jalopnik.com/how-i-completely-rebuilt-my-jeeps-transmission-in-one-n-1787048965>
 
 我最近买了一辆 1948 年的威利斯 CJ-2A 吉普 ，却发现它的变速器已经被严重的腐蚀损坏了。我确信这个预算的越野项目已经胎死腹中，因为变速箱的零件非常昂贵。然后我用了不到 100 美元，在一个晚上就把 trans 彻底改造了。以下是方法。
 

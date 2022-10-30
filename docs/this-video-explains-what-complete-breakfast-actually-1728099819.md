@@ -1,6 +1,6 @@
 # 这段视频解释了“完整早餐”的真正含义
 
-> 原文:[https://life hacker . com/this-video-explains-what-complete-breakfast-actually-1728099819](https://lifehacker.com/this-video-explains-what-complete-breakfast-actually-1728099819)
+> 原文：<https://lifehacker.com/this-video-explains-what-complete-breakfast-actually-1728099819>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-837yGlLsHVY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-837yGlLsHVY&start=0) 
 

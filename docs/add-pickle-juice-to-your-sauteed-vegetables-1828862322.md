@@ -1,6 +1,6 @@
 # 在炒过的蔬菜中加入泡菜汁
 
-> 原文:[https://life hacker . com/add-pickle-juice-to-your-saute-vegetables-1828862322](https://lifehacker.com/add-pickle-juice-to-your-sauteed-vegetables-1828862322)
+> 原文：<https://lifehacker.com/add-pickle-juice-to-your-sauteed-vegetables-1828862322>
 
 时尚的仿潜水酒吧都是关于 pickleback 的，但在我的日子里，我不得不偷偷尝一口咸盐水，因为它“很奇怪”，而且“泡菜开始变干了。”但是泡菜汁不仅仅是一种保存黄瓜的液体，我很高兴世界开始欣赏它更广泛的烹饪用途。
 

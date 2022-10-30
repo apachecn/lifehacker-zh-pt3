@@ -1,6 +1,6 @@
 # 说“请”和“谢谢”，你们这些忘恩负义的怪物
 
-> 原文:[https://life hacker . com/say-please-and-thank-you-uncertain-monsters-1795905122](https://lifehacker.com/say-please-and-thank-you-you-ungrateful-monsters-1795905122)
+> 原文：<https://lifehacker.com/say-please-and-thank-you-you-ungrateful-monsters-1795905122>
 
 不管你的心情如何，不管在什么地方，不管你在和谁说话，你都应该说这些话。
 

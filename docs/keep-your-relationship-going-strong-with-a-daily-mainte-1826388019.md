@@ -1,6 +1,6 @@
 # 通过每日维护短信保持你们的关系
 
-> 原文:[https://life hacker . com/keep-your-relationship-go-strong-a daily-mainte-1826388019](https://lifehacker.com/keep-your-relationship-going-strong-with-a-daily-mainte-1826388019)
+> 原文：<https://lifehacker.com/keep-your-relationship-going-strong-with-a-daily-mainte-1826388019>
 
 维持一段浪漫的关系没有灵丹妙药或神圣的秘密——每对夫妇都是不同的。但如果有一件事几乎总是能保证有所帮助，那就是更多的交流。是的，即使是愚蠢的，多余的那种也可以。
 

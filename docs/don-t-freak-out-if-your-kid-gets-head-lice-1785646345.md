@@ -1,6 +1,6 @@
 # 如果你的孩子得了头虱，不要害怕
 
-> 原文:[https://life hacker . com/don ' t-freak-out-if-your-kid-get-head-lice-1785646345](https://lifehacker.com/don-t-freak-out-if-your-kid-gets-head-lice-1785646345)
+> 原文：<https://lifehacker.com/don-t-freak-out-if-your-kid-gets-head-lice-1785646345>
 
 如果你听说你的孩子(或他们的一个朋友)有头虱，你的第一反应可能是厌恶、恐慌和想给家里所有东西消毒的冲动。那就太夸张了。头虱不会危害健康，即使是抗药性的“ [”超级虱子](http://www.aol.com/article/2016/08/19/super-lice-crawl-their-way-into-48-states/21455237/) ”也可以通过适当的治疗根除。
 

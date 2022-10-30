@@ -1,6 +1,6 @@
 # 把你的钱当成别人的，建立一个更好的预算
 
-> 原文:[https://life hacker . com/build-a-better-budget-by-thinking-of-your money as-some-some 1821929192](https://lifehacker.com/build-a-better-budget-by-thinking-of-your-money-as-some-1821929192)
+> 原文：<https://lifehacker.com/build-a-better-budget-by-thinking-of-your-money-as-some-1821929192>
 
 给出建议 [比接受建议](https://twocents.lifehacker.com/the-money-advice-i-wish-i-learned-sooner-1795032862https://twocents.lifehacker.com/the-money-advice-i-wish-i-learned-sooner-1795032862) 容易。你告诉你的朋友，她真的需要甩了那个混蛋，但同时，你不能和你自己的混蛋断绝关系。我们大多数人都经历过这种情况，尤其是涉及到金钱的时候。根据最近的一项研究，我们可能高估了自己的钱相对于别人的价值。
 

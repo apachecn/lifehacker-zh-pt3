@@ -1,6 +1,6 @@
 # 自行车电脑摊牌:佳明 Edge 520 vs. Wahoo Elemnt
 
-> 原文:[https://life hacker . com/cycling-computer-摊牌-garmin-edge-520-vs-wahoo-El-1785225385](https://lifehacker.com/cycling-computer-showdown-garmin-edge-520-vs-wahoo-el-1785225385)
+> 原文：<https://lifehacker.com/cycling-computer-showdown-garmin-edge-520-vs-wahoo-el-1785225385>
 
 如果你是一个骑自行车的人，很有可能你已经考虑过买一台 GPS 自行车电脑，这样你就可以一目了然地看到堆积如山的数据，而且你不会每次跟踪你的骑行都损坏你的手机电池。Garmin Edge 520 和 Wahoo Elemnt 是两款最新、最具前瞻性的产品，让我们来比较一下。
 

@@ -1,6 +1,6 @@
 # Mac 用户:你应该把你的 Dock 放在哪里？
 
-> 原文:[https://life hacker . com/MAC-users-where-you-put-your-dock-1797093527](https://lifehacker.com/mac-users-where-should-you-put-your-dock-1797093527)
+> 原文：<https://lifehacker.com/mac-users-where-should-you-put-your-dock-1797093527>
 
 Mac 用户，你好！让我们来讨论一下你的屏幕的哪一边最适合你的 dock。(PC 用户请忽略这一块，不要取笑我们。)
 

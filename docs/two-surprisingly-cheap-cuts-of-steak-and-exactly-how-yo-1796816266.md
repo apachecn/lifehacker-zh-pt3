@@ -1,6 +1,6 @@
 # 两份出奇便宜的牛排——以及你应该如何准备它们
 
-> 原文:[https://life hacker . com/two-surprise-cheap-cuts of steak-and-just-how-yo-1796816266](https://lifehacker.com/two-surprisingly-cheap-cuts-of-steak-and-exactly-how-yo-1796816266)
+> 原文：<https://lifehacker.com/two-surprisingly-cheap-cuts-of-steak-and-exactly-how-yo-1796816266>
 
 我有好消息，也有坏消息。坏消息是，以前有成本意识的肉类切割，如侧腹牛排和裙边牛排，不再那么有成本意识了。(这可能是因为他们已经被大肆宣传为“买得起”事实上，当我最近去购买一些鸡翅时，我非常惊讶地发现它比里贝叶每磅多两美元。里贝耶在打折，但还是。)好消息是，还有一些其他质量好、价格便宜的切肉，用正确的方法，你可以把它们做得非常好吃。
 

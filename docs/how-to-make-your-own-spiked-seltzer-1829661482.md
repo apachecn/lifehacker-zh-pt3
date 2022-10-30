@@ -1,6 +1,6 @@
 # 如何制作你自己的掺入苏打水
 
-> 原文:[https://life hacker . com/how-to-make-your-own-spiked-seltzer-1829661482](https://lifehacker.com/how-to-make-your-own-spiked-seltzer-1829661482)
+> 原文：<https://lifehacker.com/how-to-make-your-own-spiked-seltzer-1829661482>
 
 我在苏打水里加酒精已经有一段时间了，这就是为什么烈性苏打水突然流行让我大吃一惊。任何矿泉水都可以通过添加酒精而变得坚硬，但将一杯酒倒入一罐 Polar 或 La Croix 中不会使它尝起来像白爪子。然而，你可以通过加一点点糖来达到非常接近的效果。
 

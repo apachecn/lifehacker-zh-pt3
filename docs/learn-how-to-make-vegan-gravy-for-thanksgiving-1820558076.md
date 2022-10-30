@@ -1,6 +1,6 @@
 # 学习如何在感恩节制作素食肉汁
 
-> 原文:[https://the take out . com/learn-how-to-make-素食肉汁感恩节大餐-1820558076](https://thetakeout.com/learn-how-to-make-vegan-gravy-for-thanksgiving-1820558076)
+> 原文：<https://thetakeout.com/learn-how-to-make-vegan-gravy-for-thanksgiving-1820558076>
 
 我们知道，并不是所有的感恩节晚餐都需要肉类狂欢。所以在最新一集的《美味肉汁》中！我们征求了芝加哥最著名的素食主义者之一的宝贵意见。
 

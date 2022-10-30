@@ -1,6 +1,6 @@
 # 在紧急情况下做出反应之前进行评估
 
-> 原文:[https://life hacker . com/assesse-before-you-react-in-emergency-situations-1822101307](https://lifehacker.com/assess-before-you-react-in-emergency-situations-1822101307)
+> 原文：<https://lifehacker.com/assess-before-you-react-in-emergency-situations-1822101307>
 
 由于当今世界的现状，以及媒体对悲剧事件的不间断报道，我们在公共场所比以往任何时候都更加紧张。但是，在你思考之前就做出反应，对你自己和他人来说，和感知到的威胁一样危险——尤其是当你在拥挤的环境中。
 

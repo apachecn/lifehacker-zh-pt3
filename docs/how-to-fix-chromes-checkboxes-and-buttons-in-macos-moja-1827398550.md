@@ -1,6 +1,6 @@
 # 如何修复 Chrome 在 macOS Mojave 中的复选框和按钮
 
-> 原文:[https://life hacker . com/how-to-fix-chromes-checkboxes-and-buttons-in-MAC OS-moja-1827398550](https://lifehacker.com/how-to-fix-chromes-checkboxes-and-buttons-in-macos-moja-1827398550)
+> 原文：<https://lifehacker.com/how-to-fix-chromes-checkboxes-and-buttons-in-macos-moja-1827398550>
 
 这是一个非常具体的问题，但也是一个恼人的问题。如果你正在玩苹果 macOS Mojave 的最新公开测试版——就在我们写这篇文章的时候——并且你是 Chrome 的忠实粉丝，你可能想知道你的复选框和(一些)网站按钮去哪里了。
 

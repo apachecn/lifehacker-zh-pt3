@@ -1,6 +1,6 @@
 # 如何做出最好吃的大蒜面包
 
-> 原文:[https://life hacker . com/how-to-make-the-best 大蒜面包-1827395939](https://lifehacker.com/how-to-make-the-best-garlic-bread-1827395939)
+> 原文：<https://lifehacker.com/how-to-make-the-best-garlic-bread-1827395939>
 
 大蒜面包不是一个复杂的概念；它是面包，上面有大蒜。但是，仅仅在这两种成分中，就有很大的变化空间。我已经对辛辣碳水化合物中的面包和大蒜部分进行了修补(然而黄油是不可协商的)，我已经达到了我认为相当理想的情况。
 

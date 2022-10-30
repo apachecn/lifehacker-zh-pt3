@@ -1,6 +1,6 @@
 # 厌倦了男人？观看本周末的 NWSL 决赛
 
-> 原文:[https://life hacker . com/疲倦的男人-观看-这个-周末-nwsl-final-1829210199](https://lifehacker.com/tired-of-men-watch-this-weekends-nwsl-final-1829210199)
+> 原文：<https://lifehacker.com/tired-of-men-watch-this-weekends-nwsl-final-1829210199>
 
 已经过了 [又一个](https://splinternews.com/wall-street-journal-wins-the-award-for-most-appalling-b-1829134326) [悲惨](https://splinternews.com/trump-has-very-very-very-many-things-to-say-about-bre-1829195674) [周](https://jezebel.com/theyre-here-1829060174) 对于存在于这个世界上的人来说，已经不是人了。如果你要躲起来过一个疯狂的周末，对着枕头尖叫，给国会议员打电话，我可以建议你享受一下由全国女子足球联盟提供的 90 分钟无拘无束的女性表演吗？你应得的。
 

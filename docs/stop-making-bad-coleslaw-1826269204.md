@@ -1,6 +1,6 @@
 # 别做难吃的凉拌卷心菜了
 
-> 原文:[https://lifehacker.com/stop-making-bad-coleslaw-1826269204](https://lifehacker.com/stop-making-bad-coleslaw-1826269204)
+> 原文：<https://lifehacker.com/stop-making-bad-coleslaw-1826269204>
 
 快到 [阵亡将士纪念日周末](https://lifehacker.com/your-grilling-tips-and-tricks-for-the-tastiest-memorial-1795588871) 了，你知道这意味着什么:有人会送一碗难吃的凉拌卷心菜到你家，你必须假装喜欢。
 

@@ -1,6 +1,6 @@
 # 根据一位建筑评论家的说法，最好的儿童建筑玩具
 
-> 原文:[https://life hacker . com/the-best-building-toys-for-kids-by-an-archit-1826969269](https://lifehacker.com/the-best-building-toys-for-kids-according-to-an-archit-1826969269)
+> 原文：<https://lifehacker.com/the-best-building-toys-for-kids-according-to-an-archit-1826969269>
 
 建筑评论家亚历山德拉·兰格(Alexandra Lange)在她的新书《童年的设计:物质世界如何塑造独立的孩子 》中解释说，自从大规模生产玩具行业出现以来，在成年人眼中就有好玩具和坏玩具。她写道:“坏玩具就是那种坐在那里，按固定顺序被揉碎和拉扯，一旦散架就毁了的玩具。”。“好玩具可以让孩子们把他们自己的世界拼回一起，用最简单的物理部件来想象城市。”
 

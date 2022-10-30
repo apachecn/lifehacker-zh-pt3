@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:9 月 2 日至 9 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-September-2-to-9-1786406501](https://lifehacker.com/this-weeks-most-popular-posts-september-2nd-to-9th-1786406501)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-september-2nd-to-9th-1786406501>
 
 本周，我们为苹果电脑(Apple jacks)发布最新款 iPhone 而烦恼，对比了顶级 BitTorrent 客户端，考虑了私奔的好处，庆祝了《星际迷航》50 周年，并上了领导力课，等等。
 

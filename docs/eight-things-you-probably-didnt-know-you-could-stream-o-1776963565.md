@@ -1,6 +1,6 @@
 # 你可能不知道可以在 Spotify 上播放的八件事
 
-> 原文:[https://life hacker . com/eight-things-you-possible-not-know-you-can-stream-o-1776963565](https://lifehacker.com/eight-things-you-probably-didnt-know-you-could-stream-o-1776963565)
+> 原文：<https://lifehacker.com/eight-things-you-probably-didnt-know-you-could-stream-o-1776963565>
 
 Spotify 对音乐爱好者来说是必不可少的，但它的 [比](https://lifehacker.com/11-more-awesome-spotify-tips-and-tricks-youre-probably-1750897507) 能提供更多好的音乐。你可以免费播放有声读物、广播剧、语言课、著名演讲等等。
 

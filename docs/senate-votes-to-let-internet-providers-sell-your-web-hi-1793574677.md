@@ -1,6 +1,6 @@
 # 国会刚刚投票允许网络提供商出售你的网络历史
 
-> 原文:[https://life hacker . com/Senate-votes-to-let-internet-providers-sell-your-web-hi-1793574677](https://lifehacker.com/senate-votes-to-let-internet-providers-sell-your-web-hi-1793574677)
+> 原文：<https://lifehacker.com/senate-votes-to-let-internet-providers-sell-your-web-hi-1793574677>
 
 今天，美国参议院以 50 比 48 的投票结果推翻了宽带隐私规则，该规则要求互联网服务提供商在向广告商或其他数据公司出售其网络浏览数据之前，必须获得消费者的同意。
 

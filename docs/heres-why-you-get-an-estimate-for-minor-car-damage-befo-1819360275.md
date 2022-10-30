@@ -1,6 +1,6 @@
 # 这就是为什么在提出保险索赔之前，你会得到一份轻微汽车损坏的估价
 
-> 原文:[https://jalopnik . com/heres-why-you-get-a-estimate-for-minor-car-damage-befo-1819360275](https://jalopnik.com/heres-why-you-get-an-estimate-for-minor-car-damage-befo-1819360275)
+> 原文：<https://jalopnik.com/heres-why-you-get-an-estimate-for-minor-car-damage-befo-1819360275>
 
 没有人想发现自己的车比离开时更糟糕，但事故确实会发生。即使损坏很小，也有几个原因让你在提出索赔前想得到维修报价。
 

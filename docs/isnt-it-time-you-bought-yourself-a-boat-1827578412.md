@@ -1,6 +1,6 @@
 # 你该给自己买条船了吧？
 
-> 原文:[https://life hacker . com/not-it-time-you-buy-you-self-a-boat-1827578412](https://lifehacker.com/isnt-it-time-you-bought-yourself-a-boat-1827578412)
+> 原文：<https://lifehacker.com/isnt-it-time-you-bought-yourself-a-boat-1827578412>
 
 当我们最后一次汇总我们员工的每周升级时，我们的编辑正在加快我们的日常锻炼，从伤病中恢复，富有成效地利用假期时间，并调整我们在厨房的技术。
 

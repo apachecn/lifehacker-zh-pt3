@@ -1,6 +1,6 @@
 # 这是合成机油和普通机油的区别，以及瓶子上数字的含义
 
-> 原文:[https://jalopnik . com/heres-the-difference-in-synthetic-and-normal-motor-1826240884](https://jalopnik.com/heres-the-difference-between-synthetic-and-normal-motor-1826240884)
+> 原文：<https://jalopnik.com/heres-the-difference-between-synthetic-and-normal-motor-1826240884>
 
 上周，我刚刚给我的尼桑 Pao 换了油，在换油的过程中，我被警告了——好几次——我用合成油代替传统油的计划是个糟糕的主意。但是你知道吗？不是的！这让我想到，也许一点油清新剂可能有用。当然不是给你，你*知道*这一切东西。对其他人来说。
 

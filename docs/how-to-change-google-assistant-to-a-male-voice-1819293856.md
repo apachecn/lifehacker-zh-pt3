@@ -1,6 +1,6 @@
 # 如何把谷歌助手改成男声
 
-> 原文:[https://life hacker . com/how-to-change-Google-assistant-to-a-male-voice-1819293856](https://lifehacker.com/how-to-change-google-assistant-to-a-male-voice-1819293856)
+> 原文：<https://lifehacker.com/how-to-change-google-assistant-to-a-male-voice-1819293856>
 
 几年前，在辉煌的六个月里，C-3PO 是我手机上 Waze 的声音。那年 12 月，我从加州开车去北卡罗来纳州，有我最喜欢的机器人给我指路，让整个经历变得愉快多了。我喜欢你可以改变你每天处理的数字助理的声音。当然，这并没有增加任何功能，但是时不时地做些改变会很有趣。现在，你可以在 Android 手机或 Google Home 设置中更改谷歌助手的声音。
 

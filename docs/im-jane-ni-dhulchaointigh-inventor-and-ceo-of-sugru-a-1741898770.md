@@ -1,6 +1,6 @@
 # 我是 Jane Ni Dhulchaointigh，Sugru 的发明者和首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Jane-ni-dhulchaointigh-inventor-and-CEO-of-sugru-a-1741898770](https://lifehacker.com/im-jane-ni-dhulchaointigh-inventor-and-ceo-of-sugru-a-1741898770)
+> 原文：<https://lifehacker.com/im-jane-ni-dhulchaointigh-inventor-and-ceo-of-sugru-a-1741898770>
 
 给孩子一块粘土，他们会忙上一个小时。当给你一个可延展的媒介来表达你的想法时，没有人需要指导，这就是为什么 [Sugru](https://sugru.com/) 只是工作——你不需要知道任何关于设计的东西来使用它。你只是跟着你的直觉走。
 

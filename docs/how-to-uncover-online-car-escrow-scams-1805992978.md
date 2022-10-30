@@ -1,6 +1,6 @@
 # 如何揭露网上汽车托管骗局
 
-> 原文:[https://jalopnik . com/how-to-cover-online-car-escrow-scams-1805992978](https://jalopnik.com/how-to-uncover-online-car-escrow-scams-1805992978)
+> 原文：<https://jalopnik.com/how-to-uncover-online-car-escrow-scams-1805992978>
 
 互联网本来就有欺骗性。虽然我知道你们大多数人认为我是在一艘永远环绕地球的齐柏林飞艇上一个豪华、装饰华丽的船舱里写作的，但事实是我通常是站在一张潮湿的床垫上，塞在一架失事的 Econoline 飞机后面。同样的，一个你信任名字的汽车购买网站实际上可能是一个彻头彻尾的骗局。像这个 [假埃德蒙兹](http://www.edmunds.com.trans.inv-sll.com/vehicle/?post=_it&patch=4615d40a2ddb1f7e&ee=c8046716b1e5a3ec6c546c10afb7ebb0) 网站就是。
 

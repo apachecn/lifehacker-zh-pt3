@@ -1,6 +1,6 @@
 # 一件难看的节日毛衣可以让你在下周免费提前登上阿拉斯加和维京群岛
 
-> 原文:[https://life hacker . com/an-ugly-holiday-sweet-can-score-you-free-early-boar-1821149245](https://lifehacker.com/an-ugly-holiday-sweater-could-score-you-free-early-boar-1821149245)
+> 原文：<https://lifehacker.com/an-ugly-holiday-sweater-could-score-you-free-early-boar-1821149245>
 
 如果你下周要乘坐阿拉斯加航空公司的航班，穿得正式一点(还是随便一点？).仅在 12 月 15 日一天，航空公司允许穿着难看的节日毛衣的顾客免费优先登机。
 

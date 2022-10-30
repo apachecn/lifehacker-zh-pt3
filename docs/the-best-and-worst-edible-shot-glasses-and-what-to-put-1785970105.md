@@ -1,6 +1,6 @@
 # 最好和最差的可食用玻璃杯(以及放什么进去)
 
-> 原文:[https://life hacker . com/the-best and-worth-eat-shot-glasses-and-to-put-1785970105](https://lifehacker.com/the-best-and-worst-edible-shot-glasses-and-what-to-put-1785970105)
+> 原文：<https://lifehacker.com/the-best-and-worst-edible-shot-glasses-and-what-to-put-1785970105>
 
 玻璃杯的首要功能是盛酒，这样你就可以把它放进嘴里。烤棉花糖玻璃杯看起来确实很可爱，但是如果它们在送到我嘴边的时候碎了，我就不开心了。为了看看这些小容器是否值得你花时间，我们做了一大堆，并测试了它们的密封性、味道和组装方便性。我们将从最好的开始，一路努力直到失败。
 

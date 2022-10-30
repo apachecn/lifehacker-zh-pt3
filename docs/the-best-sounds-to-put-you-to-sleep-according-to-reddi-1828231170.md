@@ -1,6 +1,6 @@
 # 据 Reddit 报道，让你入睡的最佳声音
 
-> 原文:[https://life hacker . com/the-best-sounds-to-put you-sleep-by-reddi-1828231170](https://lifehacker.com/the-best-sounds-to-put-you-to-sleep-according-to-reddi-1828231170)
+> 原文：<https://lifehacker.com/the-best-sounds-to-put-you-to-sleep-according-to-reddi-1828231170>
 
 入睡困难，但 [冥想](https://lifehacker.com/how-to-meditate-in-bed-without-using-your-phone-1828094298) 不是你的事吗？[Reddit 上的好心人对聊天式播客和歌曲有一些建议](https://www.reddit.com/r/findareddit/comments/95suvp/a_sub_for_relaxing_things_to_fall_asleep_to/) ，它们的声音能让你进入梦乡。
 

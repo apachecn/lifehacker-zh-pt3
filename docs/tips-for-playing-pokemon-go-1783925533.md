@@ -1,6 +1,6 @@
 # 玩口袋妖怪 go 的小技巧
 
-> 原文:[https://kotaku.com/tips-for-playing-pokemon-go-1783925533](https://kotaku.com/tips-for-playing-pokemon-go-1783925533)
+> 原文：<https://kotaku.com/tips-for-playing-pokemon-go-1783925533>
 
 在《精灵宝可梦 Go》中，成为最棒的人(就像从来没有人做到过一样)出奇的困难。你不能再靠自己的努力成为一个强大的神奇宝贝:你必须走出去探索。我们有一些建议可以帮助你充分利用你的旅程。
 

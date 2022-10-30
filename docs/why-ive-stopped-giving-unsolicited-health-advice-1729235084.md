@@ -1,6 +1,6 @@
 # 为什么我不再主动提供健康建议
 
-> 原文:[https://life hacker . com/why-ive-stopped-giving-unsolived-health-advice-1729235084](https://lifehacker.com/why-ive-stopped-giving-unsolicited-health-advice-1729235084)
+> 原文：<https://lifehacker.com/why-ive-stopped-giving-unsolicited-health-advice-1729235084>
 
 我们主动提供建议的愿望就像患了爆炸性腹泻:在你能控制住它之前，垃圾就涌出来了。当一个朋友与健康有关的事情斗争时，你可能会觉得有道义上的责任去支持他，通常会问“你试过吗？”毕竟，健康是重要的，我们都需要确保相互支持...正确
 

@@ -1,6 +1,6 @@
 # Windows 的最佳 Twitter 客户端
 
-> 原文:[https://life hacker . com/the-best-Twitter-client-for-windows-5809448](https://lifehacker.com/the-best-twitter-client-for-windows-5809448)
+> 原文：<https://lifehacker.com/the-best-twitter-client-for-windows-5809448>
 
 多年来，Windows 的 Twitter 客户端领域已经被淘汰，但仍有少数开发者在努力开发一些杀手级应用。Aeries 是一个令人印象深刻的 Twitter 客户端，能够通过通用的 Windows 应用程序满足专业需求。
 

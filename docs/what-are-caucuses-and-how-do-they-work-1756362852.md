@@ -1,6 +1,6 @@
 # 什么是核心小组，他们如何工作？
 
-> 原文:[https://life hacker . com/what-are-caucus-and-how-do-they-work-1756362852](https://lifehacker.com/what-are-caucuses-and-how-do-they-work-1756362852)
+> 原文：<https://lifehacker.com/what-are-caucuses-and-how-do-they-work-1756362852>
 
 大选前，每个州都有自己的初选和党团会议，今天的爱荷华州党团会议开启了选举季。如果你点头表示“是的，当然，*核心会议*”，但实际上不知道每个人都在谈论什么，这个解释器就是为你准备的。
 

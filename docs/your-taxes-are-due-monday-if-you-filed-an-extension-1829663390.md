@@ -1,6 +1,6 @@
 # 如果你申请延期，你的税款将于周一到期
 
-> 原文:[https://life hacker . com/your-taxes-due-due-day-if-you-filed-an-extension-1829663390](https://lifehacker.com/your-taxes-are-due-monday-if-you-filed-an-extension-1829663390)
+> 原文：<https://lifehacker.com/your-taxes-are-due-monday-if-you-filed-an-extension-1829663390>
 
 拖延者，你的时间到了:如果你没有在 4 月份提交 2017 年的税收，周一是你的延期截止日期。
 

@@ -1,6 +1,6 @@
 # 十大方法最终征服你的大扫除
 
-> 原文:[https://life hacker . com/top-10-ways-to-finally-conquet-your-house cleaning-1735744084](https://lifehacker.com/top-10-ways-to-finally-conquer-your-housecleaning-1735744084)
+> 原文：<https://lifehacker.com/top-10-ways-to-finally-conquer-your-housecleaning-1735744084>
 
 每个人都喜欢一个干净整洁的家，但是打扫很糟糕。大扫除是一件痛苦的事情，小规模的清扫是有意义的，但是谁有时间呢？当你不得不做大扫除 的时候，这里有一些简化大扫除的方法，让小清扫更容易定期进行。
 

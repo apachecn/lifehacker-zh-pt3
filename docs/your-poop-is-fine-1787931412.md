@@ -1,6 +1,6 @@
 # 你的便便很好
 
-> 原文:[https://lifehacker.com/your-poop-is-fine-1787931412](https://lifehacker.com/your-poop-is-fine-1787931412)
+> 原文：<https://lifehacker.com/your-poop-is-fine-1787931412>
 
 你的便便怎么样？颜色对吗？频率如何——你每天做一次吗，有规律吗？不用费心回答(尤其是请不要在评论里回答)。事实是，不管你的答案是什么，你都做得很好。
 

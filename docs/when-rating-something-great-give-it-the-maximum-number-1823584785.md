@@ -1,6 +1,6 @@
 # 当评价某样东西很棒时，给它最高的星数
 
-> 原文:[https://life hacker . com/when-rating-something-great-give-it-the-maximum-number-1823584785](https://lifehacker.com/when-rating-something-great-give-it-the-maximum-number-1823584785)
+> 原文：<https://lifehacker.com/when-rating-something-great-give-it-the-maximum-number-1823584785>
 
 “这家优步/Airbnb/餐厅真的很棒，”你坐下来写评论时心里想。你输入你喜欢的关于旅程/公寓/食物的一切，然后你将光标悬停在星级上。“嗯，”你想，“总有改进的余地！”或者“这很棒，但不是我吃过的最好的一次旅行/住宿/用餐”，然后你给 4/5 或 9/10 颗星。
 

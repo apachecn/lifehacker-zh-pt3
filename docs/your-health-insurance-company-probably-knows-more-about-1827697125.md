@@ -1,6 +1,6 @@
 # 你的健康保险公司可能比你意识到的更了解你
 
-> 原文:[https://life hacker . com/your-health-insurance-company-possible-known-more-about-1827697125](https://lifehacker.com/your-health-insurance-company-probably-knows-more-about-1827697125)
+> 原文：<https://lifehacker.com/your-health-insurance-company-probably-knows-more-about-1827697125>
 
 根据最近 ProPublica 的一份报告，健康保险公司对你的数据感兴趣，他们可能会利用这些数据来提高费率或歧视某些人群——但这很难知道，因为当被问及他们到底在用收集的数据做什么时，公司会变得很奇怪。
 

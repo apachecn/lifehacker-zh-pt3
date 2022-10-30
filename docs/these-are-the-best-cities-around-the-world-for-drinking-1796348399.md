@@ -1,6 +1,6 @@
 # 这些是世界上最适合在街上喝酒的城市
 
-> 原文:[https://life hacker . com/这些是世界上最好的饮酒城市 1796348399](https://lifehacker.com/these-are-the-best-cities-around-the-world-for-drinking-1796348399)
+> 原文：<https://lifehacker.com/these-are-the-best-cities-around-the-world-for-drinking-1796348399>
 
 旅行有太多令人喜爱的地方，但街头饮酒已经迅速成为我在国外最喜欢的活动之一。如果你生活在一个可以合法(也很正常)带着啤酒走在街上的地方，也许你想象不出这有什么大不了的。对我们其余的人来说，这很棒。
 

@@ -1,6 +1,6 @@
 # 用这些厨房工具赠送更好的食物
 
-> 原文:[https://life hacker . com/give-the-give-gift-of-better-eats with-these-kitchen-1742176907](https://lifehacker.com/give-the-gift-of-better-eats-with-these-kitchen-tools-1742176907)
+> 原文：<https://lifehacker.com/give-the-gift-of-better-eats-with-these-kitchen-tools-1742176907>
 
 如果有任何时候需要超级酷，但也许不太必要的厨房用品，那就是假期。当然，你也许可以不做清单上的一些事情，但是你真的想做吗？节日礼物应该是有趣的，以下物品介于“实用”和“你永远不会给自己买，但会提高你生活质量的东西”之间
 

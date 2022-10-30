@@ -1,6 +1,6 @@
 # 坐立不安摊牌:坐立不安微调 vs .坐立不安立方体
 
-> 原文:[https://life hacker . com/Sunday-摊牌-坐立不安-spinner-vs-坐立不安-cube-1797348848](https://lifehacker.com/sunday-showdown-fidget-spinner-vs-fidget-cube-1797348848)
+> 原文：<https://lifehacker.com/sunday-showdown-fidget-spinner-vs-fidget-cube-1797348848>
 
 如果你非常想分散注意力，或者想给你朋友的孩子买一些他们会喜欢但他们的父母可能会讨厌的东西，一个流行的坐立不安玩具是个不错的选择。虽然它们是否真的有助于减少焦虑或提高注意力还存在争议，但坐立不安是一种常见的人类活动，有了一些便于携带的坐立不安玩具，无论你有没有手机，你都会发现自己会分心。
 

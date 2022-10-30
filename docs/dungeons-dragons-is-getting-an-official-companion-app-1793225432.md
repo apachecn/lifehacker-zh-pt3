@@ -1,6 +1,6 @@
 # 《龙与地下城》将有一款官方配套应用
 
-> 原文:[https://kotaku . com/dungons-dragons-is-get-a-official-companion-app-1793225432](https://kotaku.com/dungeons-dragons-is-getting-an-official-companion-app-1793225432)
+> 原文：<https://kotaku.com/dungeons-dragons-is-getting-an-official-companion-app-1793225432>
 
 即将在 PC、平板电脑和手机上推出的 *D & D Beyond* 是第五版 *D & D* 的官方数字伴侣，让玩家和地下城主可以即时访问规则、角色构建器等。这是否意味着我们将停止使用非官方的支持应用程序？不，但是很好。
 

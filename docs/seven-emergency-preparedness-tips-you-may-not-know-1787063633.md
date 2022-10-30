@@ -1,6 +1,6 @@
 # 你可能不知道的七个应急准备技巧
 
-> 原文:[https://life hacker . com/seven-emergency-preparation-tips-you-may-not-know 1787063633](https://lifehacker.com/seven-emergency-preparedness-tips-you-may-not-know-1787063633)
+> 原文：<https://lifehacker.com/seven-emergency-preparedness-tips-you-may-not-know-1787063633>
 
 现在是 [国家准备月](https://www.ready.gov/september) ，这意味着是时候确保你为生活抛给你的一切做好准备了。应急准备不是为世界末日做准备，而是为随时可能扰乱生活的现实事件做好准备。这里有一些鲜为人知的事情，你应该在建立自己和家人的应急计划时去做。
 

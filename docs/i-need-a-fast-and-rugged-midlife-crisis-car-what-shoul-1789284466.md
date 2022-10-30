@@ -1,6 +1,6 @@
 # 我需要一辆快速坚固的中年危机车！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-need-a-fast-and-rugged-middle life-crisis-car-what-shoul-1789284466](https://jalopnik.com/i-need-a-fast-and-rugged-midlife-crisis-car-what-shoul-1789284466)
+> 原文：<https://jalopnik.com/i-need-a-fast-and-rugged-midlife-crisis-car-what-shoul-1789284466>
 
 布鲁斯多年来一直开着一辆小型货车。它能完成任务，但这不是他喜欢开的车。他认为是时候拥有一辆“中年危机”跑车了，但也需要一辆能满足他户外爱好的车。他应该买什么车？
 

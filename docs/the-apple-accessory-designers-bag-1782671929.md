@@ -1,6 +1,6 @@
 # 苹果配件设计师的包
 
-> 原文:[https://life hacker . com/the-apple-accessory-designers-bag-1782671929](https://lifehacker.com/the-apple-accessory-designers-bag-1782671929)
+> 原文：<https://lifehacker.com/the-apple-accessory-designers-bag-1782671929>
 
 为苹果产品制造好的配件意味着从设计的角度密切关注苹果在做什么，并让你的产品符合同样的模式。十二南 是一家保持时尚的知名公司，他们的创意总监分享了他的工具。
 

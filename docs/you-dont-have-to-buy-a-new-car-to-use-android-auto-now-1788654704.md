@@ -1,6 +1,6 @@
 # 你现在不用买新车就能使用 Android Auto，这很棒
 
-> 原文:[https://jalopnik . com/you-dont-have-to-buy-a-new-car-to-use-Android-auto-now-1788654704](https://jalopnik.com/you-dont-have-to-buy-a-new-car-to-use-android-auto-now-1788654704)
+> 原文：<https://jalopnik.com/you-dont-have-to-buy-a-new-car-to-use-android-auto-now-1788654704>
 
 如果你像我一样，需要使用谷歌地图在任何地方导航，包括只有 1.3 英里远的吉米约翰，并且像我一样，你没有驾驶与 Android Auto 兼容的汽车，那么无论如何你都应该现在就下载它。这是因为它现在可以在你的手机上使用，而且非常棒。
 

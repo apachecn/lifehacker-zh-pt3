@@ -1,6 +1,6 @@
 # 2018 年 8 月网飞有什么来往
 
-> 原文:[https://life hacker . com/here-s-what-s-coming-and-go-from-America-in-August-2-1827867454](https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-august-2-1827867454)
+> 原文：<https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-august-2-1827867454>
 
 橙色是新的黑色还没回来，网飞已经告诉我们八月份会有什么了！对于网飞原创来说，这是一个重要的月份，马特·格罗宁的奇幻卡通片*的首映、*的第二季*，以及一部来自迪米特利·马丁的新喜剧特辑。这里是亮点，以及下个月来自网飞的节目、电影和喜剧特辑的完整列表。* 
 

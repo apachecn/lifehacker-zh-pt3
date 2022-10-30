@@ -1,6 +1,6 @@
 # 如何平衡你的财务责任和金钱目标
 
-> 原文:[https://life hacker . com/how-to-balance-you-1828131236](https://lifehacker.com/how-to-balance-your-financial-responsibilities-with-you-1828131236)
+> 原文：<https://lifehacker.com/how-to-balance-your-financial-responsibilities-with-you-1828131236>
 
 当总有其他东西在争夺你有限的资金时，你怎么能达到金钱目标呢？这就是我们本周要考虑的。
 

@@ -1,6 +1,6 @@
 # 现代糖果指南
 
-> 原文:[https://the take out . com/a-guide-to-old-time-candies-for-our-modern-times-1828590400](https://thetakeout.com/a-guide-to-old-timey-candies-for-our-modern-times-1828590400)
+> 原文：<https://thetakeout.com/a-guide-to-old-timey-candies-for-our-modern-times-1828590400>
 
 *欢迎来到* [***老年美食周***](https://thetakeout.com/tag/old-folks-food-week) *，在这里我们复活并庆祝昔日的美味佳肴。*
 

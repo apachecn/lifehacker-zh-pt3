@@ -1,6 +1,6 @@
 # PSA:如果你删除了 Apple Pay Cash，重新安装会很复杂
 
-> 原文:[https://life hacker . com/PSA-if-you-delete-apple-pay-cash-you-cant-reinstall-it-1821186307](https://lifehacker.com/psa-if-you-delete-apple-pay-cash-you-cant-reinstall-it-1821186307)
+> 原文：<https://lifehacker.com/psa-if-you-delete-apple-pay-cash-you-cant-reinstall-it-1821186307>
 
 上周随着 iOS 11.2 的推出，苹果 [正式推出 Apple Pay 现金](https://lifehacker.com/how-to-get-started-with-apples-new-apple-pay-cash-1821168610) 。
 

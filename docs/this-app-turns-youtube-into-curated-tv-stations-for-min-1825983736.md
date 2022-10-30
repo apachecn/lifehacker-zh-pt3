@@ -1,6 +1,6 @@
 # 这款应用将 YouTube 变成了精心策划的电视台，供人们盲目观看
 
-> 原文:[https://life hacker . com/this-app-turns-YouTube-into-策展-TV-stations-for-min-1825983736](https://lifehacker.com/this-app-turns-youtube-into-curated-tv-stations-for-min-1825983736)
+> 原文：<https://lifehacker.com/this-app-turns-youtube-into-curated-tv-stations-for-min-1825983736>
 
 大约一年前，我们开始在我家一次狂看一个节目。我们通常会选择至少有四到五季的节目，然后每当我们想“看什么”的时候，答案总是那个节目的下一集。是的，我们会偏离它去捕捉其他节目的新集，但是拥有“一个节目”有助于消除滚动电视节目和建议以找到一些东西的需要，而我们实际上只是在寻找一些可以在背景中播放的东西。
 

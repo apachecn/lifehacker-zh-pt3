@@ -1,6 +1,6 @@
 # 如何在你附近找到免费的皮肤癌筛查
 
-> 原文:[https://life hacker . com/how-to-find-a-free-skin-cancer-screening-near-you-1825921687](https://lifehacker.com/how-to-find-a-free-skin-cancer-screening-near-you-1825921687)
+> 原文：<https://lifehacker.com/how-to-find-a-free-skin-cancer-screening-near-you-1825921687>
 
 皮肤癌是美国最常见的癌症类型，但它 [可能很难找到皮肤科医生](https://vitals.lifehacker.com/how-to-get-an-appointment-with-a-dermatologist-when-the-1798397585) 来检查你的皮肤。然而，随着夏天的到来，美国皮肤病学会正在组织免费的皮肤癌筛查。
 

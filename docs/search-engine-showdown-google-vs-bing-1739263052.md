@@ -1,6 +1,6 @@
 # 搜索引擎对决:谷歌 vs 必应
 
-> 原文:[https://life hacker . com/search-engine-摊牌-google-vs-bing-1739263052](https://lifehacker.com/search-engine-showdown-google-vs-bing-1739263052)
+> 原文：<https://lifehacker.com/search-engine-showdown-google-vs-bing-1739263052>
 
 多年来，谷歌一直是搜索的代名词，而必应——可怜的必应——很快成了讽刺为什么有人会使用必应的代名词。然而，信不信由你，这两个搜索引擎并不像笑话让你相信的那样不同。
 

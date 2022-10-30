@@ -1,6 +1,6 @@
 # 当你通过苹果的更新计划回收时，你会赚多少钱
 
-> 原文:[https://life hacker . com/how-much-money-you-ll-make-when-you-recycle-through-app-1766610009](https://lifehacker.com/how-much-money-you-ll-make-when-you-recycle-through-app-1766610009)
+> 原文：<https://lifehacker.com/how-much-money-you-ll-make-when-you-recycle-through-app-1766610009>
 
 苹果 [最近推出了](https://lifehacker.com/everything-apple-announced-at-its-iphone-se-event-today-1766168003)[苹果更新计划](http://www.apple.com/recycling/) ，该计划以苹果礼品卡和 good Earth vibes 支付你回收旧 iPhones、iPads、MAC 和其他设备的费用。如果你把你用过的东西送去，这是你可以期待得到的回报。
 

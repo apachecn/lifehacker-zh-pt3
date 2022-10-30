@@ -1,6 +1,6 @@
 # 用肥皂塑造和驯服你的眉毛
 
-> 原文:[https://life hacker . com/use-soap-to-shape-and-tame-your-brows-1826003278](https://lifehacker.com/use-soap-to-shape-and-tame-your-brows-1826003278)
+> 原文：<https://lifehacker.com/use-soap-to-shape-and-tame-your-brows-1826003278>
 
 浓密蓬松的眉毛——你知道，你在 90 年代屈服的那种拒绝再生的眉毛——正在卷土重来。对于我们这些天生眉毛“咩咩”的人来说，近年来泛滥的有色眉毛凝胶是天赐之物:好的凝胶强调你已经有的头发，让你更容易假装你的眉毛天生甜美。
 

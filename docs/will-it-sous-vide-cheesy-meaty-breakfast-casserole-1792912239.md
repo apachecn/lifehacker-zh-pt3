@@ -1,6 +1,6 @@
 # 它会腐烂吗？奶酪多肉的砂锅早餐
 
-> 原文:[https://life hacker . com/will-it-sous-vide-cheesy-meaty-breakfast-sarbang-1792912239](https://lifehacker.com/will-it-sous-vide-cheesy-meaty-breakfast-casserole-1792912239)
+> 原文：<https://lifehacker.com/will-it-sous-vide-cheesy-meaty-breakfast-casserole-1792912239>
 
 朋友们和粉丝们，你们好，欢迎回到另一个俗气的一集 [*它会不会？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

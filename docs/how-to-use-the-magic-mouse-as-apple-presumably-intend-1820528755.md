@@ -1,6 +1,6 @@
 # 如何按照苹果(大概)的意图使用神奇鼠标
 
-> 原文:[https://gizmodo . com/how-to-use-the-magic-mouse-as-apple-postually-intent-1820528755](https://gizmodo.com/how-to-use-the-magic-mouse-as-apple-presumably-intend-1820528755)
+> 原文：<https://gizmodo.com/how-to-use-the-magic-mouse-as-apple-presumably-intend-1820528755>
 
 多年来，我发现人们很容易忽视这款神奇的鼠标——奇怪的是，它光滑的设计缺少了一些部件，而苹果公司作为一家注重人体工程学的公司，肯定想包括这些部件来支撑用户的手掌、拇指和小指。但现在，我在一家公司的真实办公室里的真实办公桌前工作，这家公司默认发放魔法鼠标，当苹果继续这场游戏时，我再也不能视而不见了。
 

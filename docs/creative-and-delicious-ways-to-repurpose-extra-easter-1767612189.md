@@ -1,6 +1,6 @@
 # 创造性和美味的方式重新利用“额外的”复活节糖果
 
-> 原文:[https://life hacker . com/creative-and-delicious-ways-to-re-purpose-extra-Easter-1767612189](https://lifehacker.com/creative-and-delicious-ways-to-repurpose-extra-easter-1767612189)
+> 原文：<https://lifehacker.com/creative-and-delicious-ways-to-repurpose-extra-easter-1767612189>
 
 复活节过去了，兔子来了又走了，但是糖果还在。你可能有一些剩菜，或者你可能——在你无限的智慧中——在清仓通道上买了花生酱鸡蛋和空心巧克力兔。不管怎样，除了吃以外，这里有一些你可以用你的甜蜜收获做的最美味的事情。
 

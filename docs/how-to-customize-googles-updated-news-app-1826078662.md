@@ -1,6 +1,6 @@
 # 如何定制谷歌更新的“新闻”应用
 
-> 原文:[https://life hacker . com/how-to-customize-Google-updated-news-app-1826078662](https://lifehacker.com/how-to-customize-googles-updated-news-app-1826078662)
+> 原文：<https://lifehacker.com/how-to-customize-googles-updated-news-app-1826078662>
 
 iOS/Android:谷歌新闻如今几乎是一个家喻户晓的短语，该公司刚刚发布了对其 [Android](https://play.google.com/store/apps/details?id=com.google.android.apps.magazines&hl=en_US) 和 [iOS](https://itunes.apple.com/us/app/google-news/id459182288?mt=8) 应用的重大更新，增加了大量机器学习。据推测，这将有助于你在应用程序中获得更多相关和有趣的新闻。
 

@@ -1,6 +1,6 @@
 # 如何(真正地)删除你的 iPhone 内置应用
 
-> 原文:[https://life hacker . com/how-to-really-delete-your-iphone s-built-apps-1829204182](https://lifehacker.com/how-to-really-delete-your-iphones-built-in-apps-1829204182)
+> 原文：<https://lifehacker.com/how-to-really-delete-your-iphones-built-in-apps-1829204182>
 
 苹果公司预装在 iPhone 上的应用程序应该是有用的。但是如果你不使用它们，它们只会毫无理由地占用宝贵的存储空间*和*你的主屏幕上的一个点。
 

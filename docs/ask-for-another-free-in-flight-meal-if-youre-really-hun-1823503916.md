@@ -1,6 +1,6 @@
 # 如果你在长途飞行中真的饿了，可以再要一份免费的飞机餐
 
-> 原文:[https://life hacker . com/ask-for-another-free-in-you-really-hun-1823503916](https://lifehacker.com/ask-for-another-free-in-flight-meal-if-youre-really-hun-1823503916)
+> 原文：<https://lifehacker.com/ask-for-another-free-in-flight-meal-if-youre-really-hun-1823503916>
 
 如果你在吃完你的飞行餐后仍然很饿，你可以向乘务员免费再要一份。
 

@@ -1,6 +1,6 @@
 # 我是一个最终需要一辆车的自行车手！我应该买什么？
 
-> 原文:[https://jalopnik . com/im-a-cycler-the-finally-need-a-car-what-should-I-bu-1828384088](https://jalopnik.com/im-a-cyclist-that-finally-needs-a-car-what-should-i-bu-1828384088)
+> 原文：<https://jalopnik.com/im-a-cyclist-that-finally-needs-a-car-what-should-i-bu-1828384088>
 
 帕特里克喜欢汽车，但从未真正需要过。他骑自行车还过得去。现在他有了一份新工作，在 DC 的交通地狱景观中通勤的时间更长了。如果他想活下来，他需要四个轮子和门。他应该买什么车？
 

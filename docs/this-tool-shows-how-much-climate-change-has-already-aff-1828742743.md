@@ -1,6 +1,6 @@
 # 这个工具显示了气候变化已经对你的家乡产生了多大的影响
 
-> 原文:[https://life hacker . com/this-tool-shows-how-amount-climate-change-has-aff-1828742743](https://lifehacker.com/this-tool-shows-how-much-climate-change-has-already-aff-1828742743)
+> 原文：<https://lifehacker.com/this-tool-shows-how-much-climate-change-has-already-aff-1828742743>
 
 你没有想象到:在大多数城市里，酷热的日子真的比你小时候多了。《纽约时报》的一个新工具向你展示自你出生以来你家乡的气候是如何变化的。
 

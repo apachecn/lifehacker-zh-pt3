@@ -1,6 +1,6 @@
 # 用菠萝皮和大米制作提神饮料
 
-> 原文:[https://life hacker . com/make-a-refresh-beverage-out-of-菠萝皮-r-1797239665](https://lifehacker.com/make-a-refreshing-beverage-out-of-pineapple-peels-and-r-1797239665)
+> 原文：<https://lifehacker.com/make-a-refreshing-beverage-out-of-pineapple-peels-and-r-1797239665>
 
 在我吃过的所有垃圾 中，菠萝皮可能是我最喜欢的。你不仅可以用它们来制作 [一杯冰镇茶或者一杯明显是热带风味的杜松子酒](http://skillet.lifehacker.com/make-pineapple-infused-gin-with-the-leftover-peels-like-1795233709) ，而且我注意到这种高贵的废料还可以用来制作另一种奇妙的饮料:*chicha de arroz con pia*
 

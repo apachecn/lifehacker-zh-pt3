@@ -1,6 +1,6 @@
 # 你的 MoviePass 订阅还值得吗？
 
-> 原文:[https://life hacker . com/is-your-movie pass-subscription-still-worth-it-1828359816](https://lifehacker.com/is-your-moviepass-subscription-still-worth-it-1828359816)
+> 原文：<https://lifehacker.com/is-your-moviepass-subscription-still-worth-it-1828359816>
 
 我们正在实时观看电影通行证的死亡。上周，电影票订购服务开始主动关闭自己的棺材，通过 [取消用户取消的](https://lifehacker.com/how-to-stop-moviepass-from-reversing-your-cancellation-1828331003) 和 [限制你可以观看的电影，以及除观看次数外的](https://news.avclub.com/moviepass-is-now-down-to-2-movies-at-a-time-1828311928) 。
 

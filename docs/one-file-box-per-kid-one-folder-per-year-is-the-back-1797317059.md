@@ -1,6 +1,6 @@
 # “一个文件盒，一个文件夹”的返校购物规则
 
-> 原文:[https://life hacker . com/one-file-box-per-kid-one-folder-per-year-the-back-1797317059](https://lifehacker.com/one-file-box-per-kid-one-folder-per-year-is-the-back-1797317059)
+> 原文：<https://lifehacker.com/one-file-box-per-kid-one-folder-per-year-is-the-back-1797317059>
 
 在学年开始的时候，你的孩子带回家的每一份写作作业、证书和艺术品都是一份甜蜜的惊喜，是一份值得珍藏多年的纪念品。但是，很快，你的房子就堆满了文件，现在才 11 月，该死。
 

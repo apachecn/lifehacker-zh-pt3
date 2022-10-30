@@ -1,6 +1,6 @@
 # 苹果 iPhone 日 2017 备忘单:期待什么[更新]
 
-> 原文:[https://gizmodo . com/apple-iphone-day-2017-cheat-sheet-what-to-expect-1800959123](https://gizmodo.com/apple-iphone-day-2017-cheat-sheet-what-to-expect-1800959123)
+> 原文：<https://gizmodo.com/apple-iphone-day-2017-cheat-sheet-what-to-expect-1800959123>
 
 苹果的 iPhone 发布会很快就要开始了，我们期待蒂姆·库克和他的公司发布的不仅仅是一些新手机。这里有一个快速入门。
 

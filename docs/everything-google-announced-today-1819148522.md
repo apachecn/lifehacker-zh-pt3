@@ -1,6 +1,6 @@
 # 谷歌今天宣布的一切
 
-> 原文:[https://gizmodo . com/everything-Google-announced-today-1819148522](https://gizmodo.com/everything-google-announced-today-1819148522)
+> 原文：<https://gizmodo.com/everything-google-announced-today-1819148522>
 
 周三，谷歌 [在旧金山一场低调的活动中宣布了一些新的硬件](https://gizmodo.com/our-google-pixel-2-liveblog-is-right-here-1819135618) 。几乎所有的东西都在活动开始前泄露了，但还是有一些惊喜——有些比其他的更令人兴奋。不可避免的是，有一件事似乎很清楚:谷歌也想成为一家电子产品公司。
 

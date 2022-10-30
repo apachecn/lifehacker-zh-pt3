@@ -1,6 +1,6 @@
 # 实时白板是一个简单的虚拟白板
 
-> 原文:[https://life hacker . com/real time board-is-a-simple-virtual-white board-1825293183](https://lifehacker.com/realtimeboard-is-a-simple-virtual-whiteboard-1825293183)
+> 原文：<https://lifehacker.com/realtimeboard-is-a-simple-virtual-whiteboard-1825293183>
 
 没有哪种虚拟白板对每个人都是完美的，而且每种虚拟白板服务似乎在几年后就停止了。虽然这些年来我们已经推荐了几个，但唯一还在使用的是 [Twiddla](https://www.twiddla.com/) ，它的功能如此丰富，以至于对某些项目来说可能感觉太复杂(和丑陋)。如果是这样，试试更简单的 app[real time board](https://realtimeboard.com/)。如果你的头脑风暴包括在墙上拍打一堆便利贴或索引卡，并四处移动它们，并且你需要在线重建这个过程，RealtimeBoard 是一个简单易学的解决方案，具有免费的协作选项。
 

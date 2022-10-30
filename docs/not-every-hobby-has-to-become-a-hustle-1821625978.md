@@ -1,6 +1,6 @@
 # 不是每个爱好都必须变成一种“骗局”
 
-> 原文:[https://life hacker . com/not-every-hobby-has-to-be-a-hustle-1821625978](https://lifehacker.com/not-every-hobby-has-to-become-a-hustle-1821625978)
+> 原文：<https://lifehacker.com/not-every-hobby-has-to-become-a-hustle-1821625978>
 
 我喜欢侧推。我的爱好——博客、播客、制作喜剧视频，甚至推特——都成了我的工作。我甚至促成了一本名为 [*的书《喧嚣的经济:将你的创造力转化为职业*](https://www.amazon.com/Hustle-Economy-Transforming-Creativity-Career/dp/0762460199?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/not-every-hobby-has-to-become-a-hustle-1821625978&asc_source=&tag=kinjalifehackerlink-20) 》。所以相信我告诉你:你的爱好也是允许完全无用的。
 

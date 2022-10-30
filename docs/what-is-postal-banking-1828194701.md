@@ -1,6 +1,6 @@
 # 什么是邮储银行？
 
-> 原文:[https://lifehacker.com/what-is-postal-banking-1828194701](https://lifehacker.com/what-is-postal-banking-1828194701)
+> 原文：<https://lifehacker.com/what-is-postal-banking-1828194701>
 
 大多数美国人可以依靠直接存款、借记卡和在线账单支付在日常生活中无缝工作。当然，可能会有费用，而且我们大多数人都可以在我们的账户上多花点钱，但是金融系统的机制运作得如此之好，以至于我们甚至想都不用想它们。
 

@@ -1,6 +1,6 @@
 # 这条巴士路线可以让你以不到 90 美元的价格到达英国的五个主要城市
 
-> 原文:[https://life hacker . com/this-bus-route-get-you-to-five-main-city-in-the-uk-1824610193](https://lifehacker.com/this-bus-route-gets-you-to-five-major-cities-in-the-uk-1824610193)
+> 原文：<https://lifehacker.com/this-bus-route-gets-you-to-five-major-cities-in-the-uk-1824610193>
 
 当你可以乘坐飞机、火车或租车时，很容易对巴士旅行不屑一顾，但巴士旅行几乎总是有一个明显的优势:非常便宜。如果你近期要去英国旅行，看看他们的公交路线。花不到 90 美元(不包括机票和住宿)，你就可以游览这个国家的相当大的一部分。
 

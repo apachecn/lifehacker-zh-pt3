@@ -1,6 +1,6 @@
 # 用酒精冰镇汽水在这个夏天降温
 
-> 原文:[https://life hacker . com/cool-down-this-summer-with-alcohol-icy-pops-1797357972](https://lifehacker.com/cool-down-this-summer-with-alcoholic-icy-pops-1797357972)
+> 原文：<https://lifehacker.com/cool-down-this-summer-with-alcoholic-icy-pops-1797357972>
 
 当然，天气热的时候，冰镇鸡尾酒和冰冻饮料会很棒，但是你的夏天真正需要的是酒精冰冻汽水。
 

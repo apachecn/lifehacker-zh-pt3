@@ -1,6 +1,6 @@
 # 如何把你用过的电子产品变成现金
 
-> 原文:[https://life hacker . com/how-to-turn-your-used-electronics-to-cash-1797086158](https://lifehacker.com/how-to-turn-your-used-electronics-into-cash-1797086158)
+> 原文：<https://lifehacker.com/how-to-turn-your-used-electronics-into-cash-1797086158>
 
 你的衣柜里有一台旧的但功能正常的电脑积满灰尘吗？一部你不再用的 iPhone 6？你知道是时候让它们走了，但是处理掉你的旧电子产品可能很难。扔掉它们是不负责任的 ，送人可能很难接受，即使你已经多年没有为它们付钱了。
 

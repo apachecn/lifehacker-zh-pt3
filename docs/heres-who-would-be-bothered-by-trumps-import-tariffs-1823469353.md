@@ -1,6 +1,6 @@
 # 谁会被特朗普的进口关税“困扰”
 
-> 原文:[https://life hacker . com/heres-wheres-who-be-dunked-by-trumps-import-tariffs-1823469353](https://lifehacker.com/heres-who-would-be-bothered-by-trumps-import-tariffs-1823469353)
+> 原文：<https://lifehacker.com/heres-who-would-be-bothered-by-trumps-import-tariffs-1823469353>
 
 特朗普总统昨天宣布，他将在未来一周内提议对钢铁进口征收 25%的关税，对铝产品征收 10%的关税，以帮助国内制造商，这一计划似乎让在白宫工作的几乎所有人都感到惊讶。
 

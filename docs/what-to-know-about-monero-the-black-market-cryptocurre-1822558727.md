@@ -1,6 +1,6 @@
 # 如何了解 Monero，即将成为主流的黑市加密货币
 
-> 原文:[https://life hacker . com/what-to-know-to-know-about-monero-the-black-market-crypto curre-1822558727](https://lifehacker.com/what-to-know-about-monero-the-black-market-cryptocurre-1822558727)
+> 原文：<https://lifehacker.com/what-to-know-about-monero-the-black-market-cryptocurre-1822558727>
 
 周末，我们了解到黑客们正在 [利用 YouTube 广告](http://www.independent.co.uk/life-style/gadgets-and-tech/news/youtube-ads-monero-bitcoin-alternative-hackers-earn-slow-computers-operating-systems-a8183576.html) 接管电脑，并强迫它们开采 [加密货币](https://lifehacker.com/how-to-buy-cryptocurrency-1821935329) 。这些类型的攻击(称为)只会变得越来越常见，但仔细观察这种做法就会发现 [通常与一种特定的货币](https://www.wired.com/story/cryptojacking-has-gotten-out-of-control/)【Monero】相关。
 

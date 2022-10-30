@@ -1,6 +1,6 @@
 # 三星 Dex 令人心碎地接近将手机变成一台成熟的电脑
 
-> 原文:[https://gizmodo . com/Samsung-dex-come-breakently-close-to-turning a-ph-1795028661](https://gizmodo.com/samsung-dex-comes-heartbreakingly-close-to-turning-a-ph-1795028661)
+> 原文：<https://gizmodo.com/samsung-dex-comes-heartbreakingly-close-to-turning-a-ph-1795028661>
 
 三星 Dex 是一款小巧的新智能手机坞站，它小心翼翼地走向一个智能手机成为我们主要电脑的世界。它大约有一个冰球那么大，当连接上 [Galaxy S8](http://gizmodo.com/samsung-galaxy-s8-review-the-prettiest-phone-wins-1794526975) ，一个显示器，一个蓝牙键盘和鼠标时，Dex 将手机变成了一个功能惊人的桌面。这个想法是，你可以把你的手机放在家里、办公室等等的一个坞站里，而不是带着笔记本到处走。
 

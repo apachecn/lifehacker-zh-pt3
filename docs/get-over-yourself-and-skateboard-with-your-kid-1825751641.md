@@ -1,6 +1,6 @@
 # 战胜你自己，和你的孩子一起玩滑板
 
-> 原文:[https://life hacker . com/get-over-your-kid-1825751641](https://lifehacker.com/get-over-yourself-and-skateboard-with-your-kid-1825751641)
+> 原文：<https://lifehacker.com/get-over-yourself-and-skateboard-with-your-kid-1825751641>
 
 我十岁的儿子德克斯特最近吹掉了他在车库里找到的旧滑板上的灰尘，开始沿着车道试探性地跑起来，这让我想起了他蹒跚的第一步。
 

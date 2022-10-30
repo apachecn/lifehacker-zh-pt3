@@ -1,6 +1,6 @@
 # 当你是一个爱上你的同性恋室友的男人时该怎么办
 
-> 原文:[https://life hacker . com/1800210992](https://lifehacker.com/what-to-do-when-you-re-a-man-in-love-with-your-lesbian-1800210992)
+> 原文：<https://lifehacker.com/what-to-do-when-you-re-a-man-in-love-with-your-lesbian-1800210992>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

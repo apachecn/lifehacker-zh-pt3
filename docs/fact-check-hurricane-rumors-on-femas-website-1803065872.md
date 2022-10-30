@@ -1,6 +1,6 @@
 # 事实核查联邦应急管理局网站上的飓风谣言
 
-> 原文:[https://life hacker . com/fact-check-hurricane-rumors-on-femas-website-1803065872](https://lifehacker.com/fact-check-hurricane-rumors-on-femas-website-1803065872)
+> 原文：<https://lifehacker.com/fact-check-hurricane-rumors-on-femas-website-1803065872>
 
 随着厄玛的到来和哈维的余波，开始有大量的#fakenews 流传，从是否可以在酒店养宠物，到是否可以从洪水中感染瘟疫。
 

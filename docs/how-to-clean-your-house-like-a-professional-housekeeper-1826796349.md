@@ -1,6 +1,6 @@
 # 如何像专业管家一样打扫房间
 
-> 原文:[https://life hacker . com/how-to-clean-your house like-a professional-管家-1826796349](https://lifehacker.com/how-to-clean-your-house-like-a-professional-housekeeper-1826796349)
+> 原文：<https://lifehacker.com/how-to-clean-your-house-like-a-professional-housekeeper-1826796349>
 
 在你的生活中会有这样一个时刻，你环顾你的家，并决定你需要专业的干预来解决你多年来忽视“深度清洁”概念所造成或积累的混乱。以下是如何避免到达那一步。
 

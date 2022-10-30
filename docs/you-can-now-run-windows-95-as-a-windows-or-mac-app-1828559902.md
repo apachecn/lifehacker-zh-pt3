@@ -1,6 +1,6 @@
 # 现在，您可以将 Windows 95 作为 Windows 或 Mac 应用程序运行
 
-> 原文:[https://life hacker . com/you-can-now-run-windows-95-as-a-windows-or-MAC-app-1828559902](https://lifehacker.com/you-can-now-run-windows-95-as-a-windows-or-mac-app-1828559902)
+> 原文：<https://lifehacker.com/you-can-now-run-windows-95-as-a-windows-or-mac-app-1828559902>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-lAkuJXGldrM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-lAkuJXGldrM&start=0) 
 

@@ -1,6 +1,6 @@
 # 在这个流感季节，用握手和击掌来交换肘击
 
-> 原文:[https://life hacker . com/trade-handshakes-and-high-fives-for-elbow-bumps-this-fl-1822698171](https://lifehacker.com/trade-handshakes-and-high-fives-for-elbow-bumps-this-fl-1822698171)
+> 原文：<https://lifehacker.com/trade-handshakes-and-high-fives-for-elbow-bumps-this-fl-1822698171>
 
 当你遇到同事或朋友时，问候通常包括某种形式的身体接触。无论是握手，击掌，还是老式的拥抱，在流感季节都是非常危险的，尤其是在这个 T2 T3 流感季节。
 

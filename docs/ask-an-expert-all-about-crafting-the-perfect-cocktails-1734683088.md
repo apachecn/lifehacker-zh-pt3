@@ -1,6 +1,6 @@
 # 问专家:所有关于制作完美鸡尾酒的问题
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-crafting-the-perfect-cocktails-1734683088](https://lifehacker.com/ask-an-expert-all-about-crafting-the-perfect-cocktails-1734683088)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-crafting-the-perfect-cocktails-1734683088>
 
 无论你是自己倒酒还是在酒吧尝试新事物，经典鸡尾酒都有无限的变化。帮助我们了解不同方法和酒的是酒店的饮料总监格兰特·惠勒。
 

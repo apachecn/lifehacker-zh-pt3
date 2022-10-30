@@ -1,6 +1,6 @@
 # 如何避免被美联航的“基础经济”票套牢
 
-> 原文:[https://life hacker . com/how-to-避免被 uniteds-basic-economy-1796374400](https://lifehacker.com/how-to-avoid-getting-stuck-with-uniteds-basic-economy-1796374400)
+> 原文：<https://lifehacker.com/how-to-avoid-getting-stuck-with-uniteds-basic-economy-1796374400>
 
 如果你使用像 Expedia 或 Priceline 这样的第三方旅游网站来寻找低价机票，你可能不想以你看到的最低价购买。联合航空公司的低价“基本经济舱”机票有时比普通机票更难发现。
 

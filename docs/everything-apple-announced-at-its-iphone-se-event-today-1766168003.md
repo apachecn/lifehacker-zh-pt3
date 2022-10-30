@@ -1,6 +1,6 @@
 # 苹果今天在 iPhone SE 发布会上宣布的所有重要的事情
 
-> 原文:[https://life hacker . com/everything-apple-announced-at-its-iphone-se-event-today-1766168003](https://lifehacker.com/everything-apple-announced-at-its-iphone-se-event-today-1766168003)
+> 原文：<https://lifehacker.com/everything-apple-announced-at-its-iphone-se-event-today-1766168003>
 
 苹果公司今天举行了一场特别活动，他们宣布了一款新的更小的 iPhone，一款新的 iPad 型号，以及一些软件更新。让我们来看看接下来会发生什么。
 

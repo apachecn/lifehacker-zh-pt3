@@ -1,6 +1,6 @@
 # 我是哈里·杰克逊，NBC 新闻记者，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-hall ie-Jackson-NBC-news-communicator-and-this-is-1788299366](https://lifehacker.com/im-hallie-jackson-nbc-news-correspondent-and-this-is-1788299366)
+> 原文：<https://lifehacker.com/im-hallie-jackson-nbc-news-correspondent-and-this-is-1788299366>
 
 直播电视新闻一点也不轻松。它融合了快速思考的即兴创作和与复杂技术系统协同完成的新闻研究，所有这些都是为了传递新闻。在选举年，这一点也不容易。
 

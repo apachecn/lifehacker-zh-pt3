@@ -1,6 +1,6 @@
 # 学生贷款宽限期如何运作
 
-> 原文:[https://life hacker . com/how-the-student-loan-grace-period-works-1828485676](https://lifehacker.com/how-the-student-loan-grace-period-works-1828485676)
+> 原文：<https://lifehacker.com/how-the-student-loan-grace-period-works-1828485676>
 
 大多数毕业生在大学毕业后有六个月的宽限期，然后才需要开始支付每月的学生贷款。
 

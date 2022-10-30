@@ -1,6 +1,6 @@
 # Android 的最佳文件管理应用
 
-> 原文:[https://life hacker . com/the-best-file-management-app-for-Android-5825578](https://lifehacker.com/the-best-file-management-app-for-android-5825578)
+> 原文：<https://lifehacker.com/the-best-file-management-app-for-android-5825578>
 
 文件管理器在 Android 上可能不多见，但 Solid Explorer 却脱颖而出。随着先进的功能，管理和浏览您的文件，无论是在您的手机和远程，它是我们最喜爱的新的文件管理器。
 

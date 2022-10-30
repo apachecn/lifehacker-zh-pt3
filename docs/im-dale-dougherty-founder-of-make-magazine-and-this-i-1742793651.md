@@ -1,6 +1,6 @@
 # 我是戴尔·多尔蒂,《Make: Magazine》的创始人，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-dale-dough erty-make-magazine-and-this-I-1742793651](https://lifehacker.com/im-dale-dougherty-founder-of-make-magazine-and-this-i-1742793651)
+> 原文：<https://lifehacker.com/im-dale-dougherty-founder-of-make-magazine-and-this-i-1742793651>
 
 2005 年戴尔·多尔蒂创办了 [Make: Magazine](http://makezine.com/) ，邀请人们将黑客的探索意识带入 DIY 文化。Make 和随后的 [Maker Faire](http://makerfaire.com/) 开创了一个新时代，用技术、老式工艺和鼓励学习事物如何工作来进行实践实验。
 

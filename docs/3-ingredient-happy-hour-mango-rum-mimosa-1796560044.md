@@ -1,6 +1,6 @@
 # 三种成分的欢乐时光:芒果朗姆酒含羞草
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-mango-rum-mimosa-1796560044](https://lifehacker.com/3-ingredient-happy-hour-mango-rum-mimosa-1796560044)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-mango-rum-mimosa-1796560044>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我感受到了一种贝里尼风格的饮料，它更具热带风情，更有酒味，更有朗姆酒味。
 

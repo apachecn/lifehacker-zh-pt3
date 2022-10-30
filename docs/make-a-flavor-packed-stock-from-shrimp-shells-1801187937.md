@@ -1,6 +1,6 @@
 # 用虾壳做一道味道浓郁的汤
 
-> 原文:[https://life hacker . com/make-a-flavor-packed-stock-from-虾壳-1801187937](https://lifehacker.com/make-a-flavor-packed-stock-from-shrimp-shells-1801187937)
+> 原文：<https://lifehacker.com/make-a-flavor-packed-stock-from-shrimp-shells-1801187937>
 
 每当我有机会买虾壳的时候，或者更好的是，正面买，我都会买。去壳然后带着壳煮虾是最好吃的方式，而且在把它们放进嘴里之前剥掉它们的皮是非常令人满意的事情。但是他们的旅程不应该就此结束；贝壳还能给更多。
 

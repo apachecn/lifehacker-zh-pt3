@@ -1,6 +1,6 @@
 # 你的固执是你减肥失败的真正原因
 
-> 原文:[https://life hacker . com/your-nephrase-is-the-real-reason-you-parent-lost-w-1733971532](https://lifehacker.com/your-stubbornness-is-the-real-reason-you-arent-losing-w-1733971532)
+> 原文：<https://lifehacker.com/your-stubbornness-is-the-real-reason-you-arent-losing-w-1733971532>
 
 我见过成千上万的人尝试减肥养生法，失败快的人有一个共同的特点。这不是基因不好，没有时间，也不是对好酒的嗜好。是固执。
 

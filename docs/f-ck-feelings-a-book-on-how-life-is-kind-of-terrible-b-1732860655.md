@@ -1,6 +1,6 @@
 # 该死的感觉:一本关于生活有多糟糕的书，不过没关系
 
-> 原文:[https://life hacker . com/f-CK-feelings-a-book-on-how-life-is-kind-of-terrible-b-1732860655](https://lifehacker.com/f-ck-feelings-a-book-on-how-life-is-kind-of-terrible-b-1732860655)
+> 原文：<https://lifehacker.com/f-ck-feelings-a-book-on-how-life-is-kind-of-terrible-b-1732860655>
 
 自助书籍(和博客)是大生意，因为我们都愿意相信我们能解决自己的问题。在《糟糕的感觉》一书中，迈克尔·班尼特博士和喜剧作家莎拉·班尼特认为，与其解决生活中不可能解决的问题，我们应该学会接受现状，并从现状出发。
 

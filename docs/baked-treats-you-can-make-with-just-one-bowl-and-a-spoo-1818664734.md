@@ -1,6 +1,6 @@
 # 只用一个碗和一把勺子就能做出烘焙美食
 
-> 原文:[https://life hacker . com/baked-treats-you-can-just-one-bowl-a-spoo-1818664734](https://lifehacker.com/baked-treats-you-can-make-with-just-one-bowl-and-a-spoo-1818664734)
+> 原文：<https://lifehacker.com/baked-treats-you-can-make-with-just-one-bowl-and-a-spoo-1818664734>
 
 我喜欢烘焙，但是我的电动手动搅拌器放在一个很高的架子上，即使它放下来，也是如此令人生畏——飞溅，电线缠绕，所有扭曲的部分都要洗。这就是为什么我致力于这两个食谱，它们只需要一个搅拌碗和勺子。
 

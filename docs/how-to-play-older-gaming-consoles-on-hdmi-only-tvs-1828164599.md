@@ -1,6 +1,6 @@
 # 如何在仅支持 HDMI 的电视上玩老式游戏机
 
-> 原文:[https://life hacker . com/how-to-play-older-gaming-consoles-on-HDMI-only-TVs-1828164599](https://lifehacker.com/how-to-play-older-gaming-consoles-on-hdmi-only-tvs-1828164599)
+> 原文：<https://lifehacker.com/how-to-play-older-gaming-consoles-on-hdmi-only-tvs-1828164599>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-GKqcO30SHKs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-GKqcO30SHKs&start=0) 
 

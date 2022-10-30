@@ -1,6 +1,6 @@
 # 如果你认为你的孩子可能有阅读障碍，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-think your ' s child ' s may-be-1827135039](https://lifehacker.com/what-to-do-if-you-think-your-child-may-be-dyslexic-1827135039)
+> 原文：<https://lifehacker.com/what-to-do-if-you-think-your-child-may-be-dyslexic-1827135039>
 
 关于诵读困难有一个普遍的误解——它涉及“逆向阅读”或“镜像阅读”倒写字母并不总是诵读困难的标志 ，许多没有这种障碍的小孩也倒写字母。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:8 月 28 日至 9 月 4 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-August-28-to-9-1728710021](https://lifehacker.com/this-weeks-most-popular-posts-august-28th-to-september-1728710021)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-august-28th-to-september-1728710021>
 
 本周，我们了解了不涉及食物的慢炖锅的一些用途，学习了如何在你认为不灵活的费用上展示我们的谈判实力，评估了最好的通用遥控器，等等。这里回顾一下。
 

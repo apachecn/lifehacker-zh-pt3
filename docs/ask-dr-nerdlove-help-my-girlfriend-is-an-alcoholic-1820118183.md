@@ -1,6 +1,6 @@
 # 求 NerdLove 博士:救命，我女朋友是个酒鬼
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-help-my-friend-is-a-alcohol-1820118183](https://kotaku.com/ask-dr-nerdlove-help-my-girlfriend-is-an-alcoholic-1820118183)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-help-my-girlfriend-is-an-alcoholic-1820118183>
 
 大家好，欢迎来到《新冬克时报》官方约会建议专栏向 NerdLove 博士提问。
 

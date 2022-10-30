@@ -1,6 +1,6 @@
 # 为什么我强迫自己去谈判
 
-> 原文:[https://life hacker . com/why-I-force-self-to-negotiate-1823265001](https://lifehacker.com/why-i-force-myself-to-negotiate-1823265001)
+> 原文：<https://lifehacker.com/why-i-force-myself-to-negotiate-1823265001>
 
 不可否认的是性别工资差距。 [就在那里](https://www.payscale.com/data-packages/gender-pay-gap) :男人的平均付出，女人的平均付出，还有空间。不管你是否相信差距的存在，它都是存在的。否认工资差距的人并不否认差距本身；他们否认它的重要性。他们说，妇女呆在家里带孩子，所以这些数字是有意义的。女人不谈判，所以*当然*有差距。
 

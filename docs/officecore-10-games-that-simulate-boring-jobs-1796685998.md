@@ -1,6 +1,6 @@
 # Officecore: 10 款模拟无聊工作的游戏
 
-> 原文:[https://life hacker . com/office core-10-games-tha-simulate-boring-jobs-1796685998](https://lifehacker.com/officecore-10-games-that-simulate-boring-jobs-1796685998)
+> 原文：<https://lifehacker.com/officecore-10-games-that-simulate-boring-jobs-1796685998>
 
 [*就好像你在工作*](https://pippinbarr.github.io/itisasifyouweredoingwork/) ，这是顽皮的开发者 Pippin Barr 开发的一款新的浏览器游戏，模拟在 Windows 95 中闲逛，点击对话框，敲击键盘，打出报告和电子邮件。取决于你真正的工作，它是一个令人放松的桌面玩具，或者是对你现实生活的可怕模仿。这是一个很好的例子，说明了 officecore 中被忽视的(之前还没有命名的)游戏类型。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:8 月 26 日至 9 月 2 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-August-26-to-9-1786095819](https://lifehacker.com/this-weeks-most-popular-posts-august-26th-to-september-1786095819)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-august-26th-to-september-1786095819>
 
 本周，我们看了看起来聪明但实际上会伤害你的信用的金钱习惯，比较了最初的魔兽世界和它的最新版本，学习了如何做完美的木板，等等。下面回顾一下本周最受欢迎的帖子。
 

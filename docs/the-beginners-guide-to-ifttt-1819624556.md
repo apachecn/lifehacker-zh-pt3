@@ -1,6 +1,6 @@
 # IFTTT 初学者指南
 
-> 原文:[https://life hacker . com/the-初学者指南-ifttt-1819624556](https://lifehacker.com/the-beginners-guide-to-ifttt-1819624556)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-ifttt-1819624556>
 
 *在我们的新系列* [获得 It](https://lifehacker.com/tag/getting-it) *中，我们将为您提供您需要知道的所有信息，帮助您开始并擅长各种在线和离线技术。在这里，我们将为您提供掌握 IFTTT 世界所需的一切知识。*
 

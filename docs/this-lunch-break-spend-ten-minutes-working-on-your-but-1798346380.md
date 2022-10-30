@@ -1,6 +1,6 @@
 # 这个午休时间，花十分钟锻炼你的臀部
 
-> 原文:[https://life hacker . com/this-lunch-break-speak-ten-minutes-on-your-but-1798346380](https://lifehacker.com/this-lunch-break-spend-ten-minutes-working-on-your-but-1798346380)
+> 原文：<https://lifehacker.com/this-lunch-break-spend-ten-minutes-working-on-your-but-1798346380>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-C8X96ItgyOg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-C8X96ItgyOg&start=0) 
 

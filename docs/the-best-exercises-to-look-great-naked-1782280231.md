@@ -1,6 +1,6 @@
 # 裸体看起来很棒的最佳练习
 
-> 原文:[https://life hacker . com/the-best-exercises-to-look-great-naked-1782280231](https://lifehacker.com/the-best-exercises-to-look-great-naked-1782280231)
+> 原文：<https://lifehacker.com/the-best-exercises-to-look-great-naked-1782280231>
 
 强壮健康很好也很重要，但是我们很多人锻炼的原因是为了看起来更好。这些注重美感的锻炼不会让你一夜之间变热，但结合健康的饮食，它们会让你的锻炼物有所值，让你穿上衣服或者不穿衣服都很好看。
 

@@ -1,6 +1,6 @@
 # 隐私爱好者使用 Android 指南
 
-> 原文:[https://life hacker . com/the-privacy-favorites-guide-to-use-Android-1792432725](https://lifehacker.com/the-privacy-enthusiasts-guide-to-using-android-1792432725)
+> 原文：<https://lifehacker.com/the-privacy-enthusiasts-guide-to-using-android-1792432725>
 
 从当地骗子到政府机构，每个人都试图获取你的数据，这是加强你的隐私游戏的最佳时机。幸运的是，Android 上有大量的选项可以保护你的信息、文件和手机的安全。
 

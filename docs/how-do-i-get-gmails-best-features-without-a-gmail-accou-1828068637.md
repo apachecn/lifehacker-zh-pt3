@@ -1,6 +1,6 @@
 # 如果你还在使用旧邮箱，如何获得 Gmail 的最佳功能
 
-> 原文:[https://life hacker . com/how-do-I-get-Gmail-best-features-without-a-Gmail-accou-1828068637](https://lifehacker.com/how-do-i-get-gmails-best-features-without-a-gmail-accou-1828068637)
+> 原文：<https://lifehacker.com/how-do-i-get-gmails-best-features-without-a-gmail-accou-1828068637>
 
 在本周的 Tech 911 专栏中，我们为你最深、最黑暗的技术困惑提供了合理的答案和解释，一位 Lifehacker 读者想知道为什么她不能使用第三方电子邮件客户端(和非 Gmail 地址)访问 Gmail 的一些最佳功能。
 

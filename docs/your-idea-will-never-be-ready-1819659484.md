@@ -1,6 +1,6 @@
 # 你的想法永远不会准备好
 
-> 原文:[https://life hacker . com/your-idea-never-be-ready-1819659484](https://lifehacker.com/your-idea-will-never-be-ready-1819659484)
+> 原文：<https://lifehacker.com/your-idea-will-never-be-ready-1819659484>
 
 我的创造性拖延的一个很大的来源是这种想法，我的想法“还没有准备好”，就像它是树上成熟的水果。但是你知道吗？那是胡说。
 

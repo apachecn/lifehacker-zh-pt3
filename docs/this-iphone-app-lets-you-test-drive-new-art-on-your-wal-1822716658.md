@@ -1,6 +1,6 @@
 # 这款 iPhone 应用可以让你在墙上试驾新艺术
 
-> 原文:[https://life hacker . com/this-iphone-app-let-you-test-drive-new-art-on-your-wal-1822716658](https://lifehacker.com/this-iphone-app-lets-you-test-drive-new-art-on-your-wal-1822716658)
+> 原文：<https://lifehacker.com/this-iphone-app-lets-you-test-drive-new-art-on-your-wal-1822716658>
 
 大约四个月前，我和男朋友一起搬进了新公寓。我们的家具都不是特别好，所以我们决定试着为新地方买些新家具和艺术品。我认为这是一个比我们任何一个人想象的都要大的承诺，并导致了很多“哦，废话。那根本不适合那里”的时刻和比我想象中更多的卷尺测量动作。
 

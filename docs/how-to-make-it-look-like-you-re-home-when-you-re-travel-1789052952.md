@@ -1,6 +1,6 @@
 # 如何让你在旅行时看起来像在家一样
 
-> 原文:[https://life hacker . com/how-to-make-it-like-you-re-travel-1789052952](https://lifehacker.com/how-to-make-it-look-like-you-re-home-when-you-re-travel-1789052952)
+> 原文：<https://lifehacker.com/how-to-make-it-look-like-you-re-home-when-you-re-travel-1789052952>
 
 家庭 [节假日期间盗窃案增加](http://money.cnn.com/2013/12/27/real_estate/christmas-burglaries/) 原因显而易见:你走了，你的房子空空如也，不堪一击。当你不在的时候，你想要 [确保你的家尽可能安全](https://lifehacker.com/how-to-protect-your-home-while-traveling-5827991) 这意味着让它看起来像有人真的在那里，即使你不在。
 

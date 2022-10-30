@@ -1,6 +1,6 @@
 # iOS/Android 本周应用:WideProtect 和数字先生
 
-> 原文:[https://life hacker . com/IOs-Android-app-of-the-week-wide protect-and-Mr-number-1824314011](https://lifehacker.com/ios-android-app-of-the-week-wideprotect-and-mr-number-1824314011)
+> 原文：<https://lifehacker.com/ios-android-app-of-the-week-wideprotect-and-mr-number-1824314011>
 
 有很多应用程序可以用来管理你经常接到的所有烦人的电话——诈骗电话、机器人电话、调查电话，以及其他任何不属于“真人打来的关于我关心的事情的电话”的电话不过，有时候你需要发射核弹。对于 iOS 来说，那就是[wide protect](https://itunes.apple.com/us/app/block-spam-calls-sms-mms/id1171024059?mt=8)(2 美元)。
 

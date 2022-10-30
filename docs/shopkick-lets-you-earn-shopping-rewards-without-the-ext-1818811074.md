@@ -1,6 +1,6 @@
 # Shopkick 让您无需额外努力即可获得购物奖励
 
-> 原文:[https://life hacker . com/shopkick-let-you-earn-shopping-rewards-without-the-ext-1818811074](https://lifehacker.com/shopkick-lets-you-earn-shopping-rewards-without-the-ext-1818811074)
+> 原文：<https://lifehacker.com/shopkick-lets-you-earn-shopping-rewards-without-the-ext-1818811074>
 
 如果你打算花钱，你也可以在花钱的时候获得回报。不过，我从来不喜欢扫描收据或通过购物门户网站获得积分，这就是为什么 Shopkick 是我最喜欢的获得奖励的应用程序之一。
 

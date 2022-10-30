@@ -1,6 +1,6 @@
 # 关于工作与生活的平衡，男人应该向女人学习什么
 
-> 原文:[https://life hacker . com/what-men-should-learn-from-women-about-work-life-balanc-1822593069](https://lifehacker.com/what-men-should-learn-from-women-about-work-life-balanc-1822593069)
+> 原文：<https://lifehacker.com/what-men-should-learn-from-women-about-work-life-balanc-1822593069>
 
 “女人几乎永远不会成为艺术怪物，因为艺术怪物只关心艺术，从不关心世俗的事情，”珍妮·奥菲尔在她的小说《投机部》中写道。“纳博科夫甚至没有自己折伞。维拉替他舔了舔邮票。”相反，女性被迫“平衡”工作和生活。
 

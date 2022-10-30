@@ -1,6 +1,6 @@
 # Trumpcare 回来了
 
-> 原文:[https://lifehacker.com/trumpcare-is-back-1794665414](https://lifehacker.com/trumpcare-is-back-1794665414)
+> 原文：<https://lifehacker.com/trumpcare-is-back-1794665414>
 
 上个月，奥巴马医改法案因太不受欢迎而无法在众议院获得投票 。今天，该法案的新版本又回到了桌面上，这一次，它得到了一些最保守的众议院议员的支持。以下是新法案的内容以及它将如何影响你的医疗保健。
 

@@ -1,6 +1,6 @@
 # 为什么你孩子的大脑会迷上惊喜蛋和粘液视频
 
-> 原文:[https://life hacker . com/why-your-kids-brain-hook-on-surprise-egg-slime-1797278479](https://lifehacker.com/why-your-kids-brain-is-hooked-on-surprise-egg-and-slime-1797278479)
+> 原文：<https://lifehacker.com/why-your-kids-brain-is-hooked-on-surprise-egg-and-slime-1797278479>
 
 我四岁的女儿喜欢看一些很棒的儿童节目，包括 *Noddy Toyland 侦探*、 *Ruby 的工作室*、 *Julie 的休息室*等等 *Daniel Tiger* ，但偶尔她会要求在 iPad 或手机上看 YouTube，当我答应时，她会笑着，眼睛里闪过一丝诡秘的光芒。嗯哦，我会考虑的。今天会发生什么？
 

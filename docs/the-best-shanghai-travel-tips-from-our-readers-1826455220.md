@@ -1,6 +1,6 @@
 # 来自我们读者的最佳上海旅游建议
 
-> 原文:[https://life hacker . com/the-best-Shanghai-travel-tips-from-our-readers-1826455220](https://lifehacker.com/the-best-shanghai-travel-tips-from-our-readers-1826455220)
+> 原文：<https://lifehacker.com/the-best-shanghai-travel-tips-from-our-readers-1826455220>
 
 到目前为止，我们已经在 [Hack Your City](https://lifehacker.com/c/hack-your-city) 上报道过的所有目的地中，上海可能会给西方游客带来最大的惊喜，正如许多读者在周一的 [评论帖](https://lifehacker.com/tell-us-your-shanghai-travel-tips-1826329336#replies) 中描述的那样。这座古城现在是一个科技和金融中心，也是一个受欢迎的旅游目的地，充满了意想不到的并列。
 

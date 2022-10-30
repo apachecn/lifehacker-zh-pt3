@@ -1,6 +1,6 @@
 # 小巧、组织严密的袋子
 
-> 原文:[https://life hacker . com/the-tiny-tight-organized-bag-1793683490](https://lifehacker.com/the-tiny-tightly-organized-bag-1793683490)
+> 原文：<https://lifehacker.com/the-tiny-tightly-organized-bag-1793683490>
 
 有时候，一个小包就是你需要陪伴的全部，还有你剩下的工具。在日常携带中，用户 270Ultimate 分享了他们作为房地产估价师随身携带的包。
 

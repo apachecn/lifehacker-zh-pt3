@@ -1,6 +1,6 @@
 # 什么是“死亡”税？
 
-> 原文:[https://lifehacker.com/whats-the-death-tax-1825563542](https://lifehacker.com/whats-the-death-tax-1825563542)
+> 原文：<https://lifehacker.com/whats-the-death-tax-1825563542>
 
 当你去世的时候，山姆大叔会继承你所有的财产吗？
 

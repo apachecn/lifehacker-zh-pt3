@@ -1,6 +1,6 @@
 # 这就是为什么你应该接受多账户网络浏览
 
-> 原文:[https://life hacker . com/here-s-why-you-should-embrace-multi-account-we b-browsin-1816209401](https://lifehacker.com/here-s-why-you-should-embrace-multi-account-web-browsin-1816209401)
+> 原文：<https://lifehacker.com/here-s-why-you-should-embrace-multi-account-web-browsin-1816209401>
 
 火狐用户每天在工作和个人账户之间来回切换，可能厌倦了登录和退出，或者切换账户。多亏了 Mozilla 新推出的(早该推出的)多账户容器扩展，你不必担心记不清你登录的是哪个账户。如果你不在乎分开工作和个人账户，你仍然可以利用多账户浏览来保护你的隐私或阻止坏习惯。
 

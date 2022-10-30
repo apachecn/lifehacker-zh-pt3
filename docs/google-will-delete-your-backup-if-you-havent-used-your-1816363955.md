@@ -1,6 +1,6 @@
 # 如果你 60 天没有使用你的安卓手机，谷歌会删除你的备份
 
-> 原文:[https://life hacker . com/Google-will-delete-your-backup-if-you-haven-used-your-1816363955](https://lifehacker.com/google-will-delete-your-backup-if-you-havent-used-your-1816363955)
+> 原文：<https://lifehacker.com/google-will-delete-your-backup-if-you-havent-used-your-1816363955>
 
 Android:如果你有一个 Android 设备，你很可能在你的 Google Drive 账户里有一个备份。不幸的是，正如一位用户在 中发现的那样，如果你不碰你的 Android 设备，即使你有足够的空间来存放它，备份也会在 60 天内过期。
 

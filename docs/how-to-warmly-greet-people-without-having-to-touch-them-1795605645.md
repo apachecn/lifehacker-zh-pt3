@@ -1,6 +1,6 @@
 # 如何热情地和人打招呼而不用接触他们
 
-> 原文:[https://life hacker . com/how-to-warehouse-问候他人-1795605645](https://lifehacker.com/how-to-warmly-greet-people-without-having-to-touch-them-1795605645)
+> 原文：<https://lifehacker.com/how-to-warmly-greet-people-without-having-to-touch-them-1795605645>
 
 我讨厌拥抱不认识的人，甚至不怎么认识的人，而且不止我一个人。无论你是珍惜你的个人空间，担心细菌，还是出于任何一个完全合理的原因，只是不想和另一个人有身体接触，你都可以做一些事情，在不打破你的泡泡的情况下，仍然给人以温暖和热情的印象。
 

@@ -1,6 +1,6 @@
 # 通过这个网页游戏了解假新闻
 
-> 原文:[https://life hacker . com/learn-about-fake-news-with the-web-game-1823229554](https://lifehacker.com/learn-about-fake-news-with-this-web-game-1823229554)
+> 原文：<https://lifehacker.com/learn-about-fake-news-with-this-web-game-1823229554>
 
 在剑桥社会心理学教授桑德·范德林登(Sander van der Linden)的十分钟网页游戏 [坏消息](https://www.getbadnews.com/#intro) 中，你扮演一个传播假新闻的狡猾阴谋论者。范德林登告诉快速公司的重点是教人们如何制造和传播虚假信息。 
 

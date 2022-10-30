@@ -1,6 +1,6 @@
 # 如何在谷歌浏览器中添加表情键盘
 
-> 原文:[https://life hacker . com/how-to-add-an-e moji-keyboard-to-Google-chrome-1827187116](https://lifehacker.com/how-to-add-an-emoji-keyboard-to-google-chrome-1827187116)
+> 原文：<https://lifehacker.com/how-to-add-an-emoji-keyboard-to-google-chrome-1827187116>
 
 如今，表情符号是我们常用词汇的一部分，但它们不像在手机上那样容易出现在你的桌面上。也就是说，你*可以*把他们带到那里，这要感谢谷歌开发版 Chrome 的 [金丝雀](https://www.google.com/chrome/browser/canary.html) 中的一个功能。
 

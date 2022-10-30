@@ -1,6 +1,6 @@
 # 什么是协会医疗保健计划？
 
-> 原文:[https://life hacker . com/whats-an-association-health-care-plan-1827050385](https://lifehacker.com/whats-an-association-health-care-plan-1827050385)
+> 原文：<https://lifehacker.com/whats-an-association-health-care-plan-1827050385>
 
 川普政府已经 [扩大了](https://www.dol.gov/sites/default/files/ebsa/temporary-postings/association-health-plans-final-rule.pdf) 获得协会医疗保健计划的机会，此举旨在降低医疗保险成本，但最终可能会对个人市场上的许多人产生相反的影响。
 

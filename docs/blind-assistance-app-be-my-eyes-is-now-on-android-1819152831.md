@@ -1,6 +1,6 @@
 # 盲人辅助应用程序“成为我的眼睛”现已在安卓系统上运行
 
-> 原文:[https://life hacker . com/blind-assistance-app-be-my-eyes-is-now-on-Android-1819152831](https://lifehacker.com/blind-assistance-app-be-my-eyes-is-now-on-android-1819152831)
+> 原文：<https://lifehacker.com/blind-assistance-app-be-my-eyes-is-now-on-android-1819152831>
 
 成为我的眼睛，一个让视力正常的人远程帮助盲人完成视觉任务的应用程序， [现在可以在安卓](https://play.google.com/store/apps/details?id=com.bemyeyes.bemyeyes) 上使用，两年后在 iOS 上使用。 
 

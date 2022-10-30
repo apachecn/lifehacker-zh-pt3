@@ -1,6 +1,6 @@
 # 今年万圣节雕刻一个蜜汁南瓜灯
 
-> 原文:[https://life hacker . com/carve-a-honey dew-jack-o-lantern-this-Halloween-1819974474](https://lifehacker.com/carve-a-honeydew-jack-o-lantern-this-halloween-1819974474)
+> 原文：<https://lifehacker.com/carve-a-honeydew-jack-o-lantern-this-halloween-1819974474>
 
 周末，我和男朋友被邀请去参加一个有益健康的南瓜雕刻聚会。我们没有拖着沉重的葫芦穿过布鲁克林，而是计划在路上简单地抓几个，旁边还有必要的酒和玉米糖。四十分钟后，经过四站，我们仍然两手空空，并意识到我们可悲地高估了南瓜在杂货店和超市的流行程度。我们没有认输，而是即兴发挥。我们在目的地附近的一家街角商店里搜寻了各种选择，买了我们能找到的最像南瓜的东西:意大利面南瓜和蜜露。
 

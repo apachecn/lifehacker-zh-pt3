@@ -1,6 +1,6 @@
 # 达美航空正在通过其应用程序实现自动值机
 
-> 原文:[https://life hacker . com/delta-is-making-check-in-automatic-with-its-app-1819457660](https://lifehacker.com/delta-is-making-check-in-automatic-with-its-app-1819457660)
+> 原文：<https://lifehacker.com/delta-is-making-check-in-automatic-with-its-app-1819457660>
 
 就像软盘图标意味着“保存”或在电子邮件中“抄送”某人，当你一生中没有制作副本时，办理登机手续是模拟过程的遗迹，在数字时代几乎变得毫无意义。你不需要出现在机场，你只需要…上网说你明天会到那里？这是一个已经跟不上时代的协议。
 

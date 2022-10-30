@@ -1,6 +1,6 @@
 # 产后抑郁症并不总是看起来像悲伤
 
-> 原文:[https://life hacker . com/产后抑郁-不总是看起来像-悲伤-1819514784](https://lifehacker.com/postpartum-depression-doesnt-always-look-like-sadness-1819514784)
+> 原文：<https://lifehacker.com/postpartum-depression-doesnt-always-look-like-sadness-1819514784>
 
 当我在看新一季《黑人的 T1》第二集时，我几乎可以听到妈妈们在我的社交媒体频道上发出的集体惊叹声。*他们去了那里。天哪，一个 ABC 家庭情景喜剧真的去了那里。*
 

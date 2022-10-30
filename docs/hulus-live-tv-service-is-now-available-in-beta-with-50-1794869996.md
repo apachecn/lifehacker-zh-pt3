@@ -1,6 +1,6 @@
 # Hulu 的直播电视服务现已推出测试版，有 50 个频道，每月 40 美元
 
-> 原文:[https://gizmodo . com/hulus-live-TV-service-is-now-available-in-beta-with-50-1794869996](https://gizmodo.com/hulus-live-tv-service-is-now-available-in-beta-with-50-1794869996)
+> 原文：<https://gizmodo.com/hulus-live-tv-service-is-now-available-in-beta-with-50-1794869996>
 
 在今天早上的前期演示中，Hulu 展示了其新的直播服务的更多细节，并宣布该服务现在可以从今天开始进行公开测试。感兴趣的用户可以在 [这里报名](http://www.hulu.com/live-tv) 。
 

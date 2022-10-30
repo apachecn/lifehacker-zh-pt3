@@ -1,6 +1,6 @@
 # 当你在问答环节拿着麦克风时，如何不成为那样的人
 
-> 原文:[https://life hacker . com/how-not-to-be the-person-what-you-get-the-mic-at-a-q-1795559190](https://lifehacker.com/how-not-to-be-that-person-when-youve-got-the-mic-at-a-q-1795559190)
+> 原文：<https://lifehacker.com/how-not-to-be-that-person-when-youve-got-the-mic-at-a-q-1795559190>
 
 在任何阅读、放映或小组讨论中，观众的问答都有可能为活动画上圆满的句号，也有可能毁掉它。有那么几分钟，整个房间都被任何一个拿着麦克风并且喜欢他们声音的人所俘虏。不是每个人都配得上这样的权力。下面是如何恰当的处理。
 

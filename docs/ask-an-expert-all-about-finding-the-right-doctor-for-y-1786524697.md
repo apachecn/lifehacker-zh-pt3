@@ -1,6 +1,6 @@
 # 问专家:找到适合你的医生
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-finding-the-right-doctor-for-y-1786524697](https://lifehacker.com/ask-an-expert-all-about-finding-the-right-doctor-for-y-1786524697)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-finding-the-right-doctor-for-y-1786524697>
 
 在你的保险网络中找到一个好医生已经够难了，更不用说一个真正适合你和你的情况的医生了。你如何去寻找一个能满足你需求的医学专家呢？
 

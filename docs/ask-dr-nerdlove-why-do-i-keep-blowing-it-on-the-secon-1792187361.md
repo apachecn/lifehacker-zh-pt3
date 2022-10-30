@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:为什么我第二次约会就一直搞砸？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-why-do-I-keep-blowing-it-on-the-secon-1792187361](https://kotaku.com/ask-dr-nerdlove-why-do-i-keep-blowing-it-on-the-secon-1792187361)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-why-do-i-keep-blowing-it-on-the-secon-1792187361>
 
 你好，所有互联网的狂热爱好者们！欢迎来到 [《向 NerdLove 博士提问》](http://kotaku.com/askdrnerdlove) ，这是德尔托罗唯一测试过的、小岛康誉认可的约会专栏。
 

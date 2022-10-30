@@ -1,6 +1,6 @@
 # 如何知道何时按摩变得不合适
 
-> 原文:[https://life hacker . com/how-to-know-when-a-message-turns-opportunity-1820803842](https://lifehacker.com/how-to-know-when-a-massage-turns-inappropriate-1820803842)
+> 原文：<https://lifehacker.com/how-to-know-when-a-massage-turns-inappropriate-1820803842>
 
 你必须放松警惕才能得到按摩。你很放松，通常至少是半裸的。所以你需要相信你的按摩师不会让你不舒服——或者(更糟糕)对你进行性侵犯。但事与愿违，正如 [180 按摩艳羡客户近日告诉 Buzzfeed](https://www.buzzfeed.com/katiejmbaker/more-than-180-women-have-reported-sexual-assaults-at?utm_term=.yrrgJzErW#.qivzKbAe7)。所以让我们来谈谈当你接受按摩时会有什么期待。
 

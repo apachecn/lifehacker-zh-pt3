@@ -1,6 +1,6 @@
 # 不，你的 iPhone 从来不是只有 200 美元
 
-> 原文:[https://life hacker . com/no-your-iphone-was-never-only-200-1729849011](https://lifehacker.com/no-your-iphone-was-never-only-200-1729849011)
+> 原文：<https://lifehacker.com/no-your-iphone-was-never-only-200-1729849011>
 
 昨天，苹果公司宣布了一款新的 iPhone，但是如果你打算在这个周末预订，你可能会发现它的价格为 650 美元——与许多旧款手机计划的 200 美元相差甚远。我有一些坏消息要告诉你:你的手机从来没有只值 200 美元。
 

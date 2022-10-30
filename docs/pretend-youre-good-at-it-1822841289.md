@@ -1,6 +1,6 @@
 # 假装你很擅长
 
-> 原文:[https://lifehacker.com/pretend-youre-good-at-it-1822841289](https://lifehacker.com/pretend-youre-good-at-it-1822841289)
+> 原文：<https://lifehacker.com/pretend-youre-good-at-it-1822841289>
 
 不久前，我遇到了我的朋友珍妮·劳森，她正在镇上录制她的回忆录的有声读物版本， [*让我们假装这件事从未发生过*](https://www.amazon.com/dp/B0065S8R38/ref=dp-kindle-redirect?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/pretend-youre-good-at-it-1822841289&asc_source=&btkr=1&tag=kinjalifehackerlink-20) 。我问她过得怎么样，她告诉我过得很糟糕——直到她惊慌失措地向她的一位作家朋友寻求建议。
 

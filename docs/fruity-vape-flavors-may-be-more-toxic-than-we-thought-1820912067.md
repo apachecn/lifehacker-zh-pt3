@@ -1,6 +1,6 @@
 # 水果味可能比我们想象的更有毒
 
-> 原文:[https://life hacker . com/fruity-vape-flavors-may-be-more-toxic than we-thought-1820912067](https://lifehacker.com/fruity-vape-flavors-may-be-more-toxic-than-we-thought-1820912067)
+> 原文：<https://lifehacker.com/fruity-vape-flavors-may-be-more-toxic-than-we-thought-1820912067>
 
 当你蒸发时，你不会吸入任何致癌的焦油。但是你正在吸入任何组成你果汁味道的化学物质。事实证明，其中一些味道 [吸入](https://lifehacker.com/are-e-cigarettes-safe-here-s-what-we-know-1721157349) 可能不安全，但我们还没有足够的研究来说明哪些味道不安全。
 

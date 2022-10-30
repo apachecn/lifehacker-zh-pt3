@@ -1,6 +1,6 @@
 # 通过电话进行听力测试
 
-> 原文:[https://life hacker . com/take-a-hearing-test-over-the-phone-1752237934](https://lifehacker.com/take-a-hearing-test-over-the-phone-1752237934)
+> 原文：<https://lifehacker.com/take-a-hearing-test-over-the-phone-1752237934>
 
 有没有想过你的听力没有达到应有的水平？不用等着问你的医生或听力学家，你可以花 5 美元通过固定电话进行听力测试。
 

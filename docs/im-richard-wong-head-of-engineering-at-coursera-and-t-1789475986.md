@@ -1,6 +1,6 @@
 # 我是 Richard Wong，Coursera 的工程主管，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Richard-wong-head-of-engineering-at-coursera-and-t-1789475986](https://lifehacker.com/im-richard-wong-head-of-engineering-at-coursera-and-t-1789475986)
+> 原文：<https://lifehacker.com/im-richard-wong-head-of-engineering-at-coursera-and-t-1789475986>
 
 Coursera 是一个在线教育平台，通过这个平台，你可以选修世界上一些顶级教育机构的课程，涵盖的主题从人文艺术到计算机科学和编码。然而，要让 Coursera 的目录为其 2200 万用户保持运行，同时也为未来进行创新，这需要大量的幕后工作。
 

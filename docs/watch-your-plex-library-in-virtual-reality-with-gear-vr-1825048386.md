@@ -1,6 +1,6 @@
 # 使用 Gear VR 在虚拟现实中观看您的 Plex 库
 
-> 原文:[https://life hacker . com/watch-your-plex-library-in-virtual-reality-with-gear-VR-1825048386](https://lifehacker.com/watch-your-plex-library-in-virtual-reality-with-gear-vr-1825048386)
+> 原文：<https://lifehacker.com/watch-your-plex-library-in-virtual-reality-with-gear-vr-1825048386>
 
 Plex 是在你的房子或公寓中存储和播放所有电影和电视节目的最佳方式之一，但如果你在昏暗的旧笔记本电脑或小电视上观看，电影之夜仍然有点乏味。现在你不用离开沙发就可以在大屏幕上体验 Plex，这要归功于该公司为三星的 Gear VR 开发的新 [虚拟现实](https://lifehacker.com/what-you-need-to-set-up-virtual-reality-on-a-pc-or-ps4-1821648526) 应用程序。
 

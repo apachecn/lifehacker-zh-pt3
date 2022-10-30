@@ -1,6 +1,6 @@
 # 以下是所有被报道有爆炸天窗问题的汽车
 
-> 原文:[https://jalopnik . com/here-are-all-the-cars-reported-have-expanding-sun roo-1819815183](https://jalopnik.com/here-are-all-the-cars-reported-to-have-exploding-sunroo-1819815183)
+> 原文：<https://jalopnik.com/here-are-all-the-cars-reported-to-have-exploding-sunroo-1819815183>
 
 来自世界各地的几十种新型汽车的天窗自发碎裂，让车主们感到困惑并寻求答案。尽管专家也不完全知道为什么会发生这种情况，但我们确实知道哪些汽车受到监管机构的投诉最多。
 

@@ -1,6 +1,6 @@
 # 为什么你应该结束那种分分合合的关系
 
-> 原文:[https://life hacker . com/why-you-should-end-that-on-again-off-again-relationshi-1828666587](https://lifehacker.com/why-you-should-end-that-on-again-off-again-relationshi-1828666587)
+> 原文：<https://lifehacker.com/why-you-should-end-that-on-again-off-again-relationshi-1828666587>
 
 坠入爱河和失恋是一种常见的经历，不幸的是，这经常发生在完全相同的伴侣身上。这被称为“关系循环”，事实证明这是一个比感觉更大的情感能量吸收。
 

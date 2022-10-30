@@ -1,6 +1,6 @@
 # 如何找到可以开避孕药的药店
 
-> 原文:[https://life hacker . com/how-to-find-a pharmacy-that-can-prescribe-避孕药-1826727435](https://lifehacker.com/how-to-find-a-pharmacy-that-can-prescribe-birth-control-1826727435)
+> 原文：<https://lifehacker.com/how-to-find-a-pharmacy-that-can-prescribe-birth-control-1826727435>
 
 药剂师可以在八个州和 DC 的华盛顿州开避孕药的处方，这意味着你可以在没有医生处方的情况下走进药店，然后带着一整年的药片走出来。贴片、针剂和阴道环也可以这样处方。
 

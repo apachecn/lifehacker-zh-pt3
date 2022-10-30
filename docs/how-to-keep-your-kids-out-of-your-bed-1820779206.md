@@ -1,6 +1,6 @@
 # 如何让你的孩子远离你的床
 
-> 原文:[https://life hacker . com/how-to-keep-your-kids-out-of-your-bed-1820779206](https://lifehacker.com/how-to-keep-your-kids-out-of-your-bed-1820779206)
+> 原文：<https://lifehacker.com/how-to-keep-your-kids-out-of-your-bed-1820779206>
 
 就像挂一卷卫生纸的正确方法一样，一个熟睡的孩子的位置是一个可靠的互联网战斗起点。专家们厌倦了争吵。NPR 去年报道称，美国儿科学会的最新指导方针可以归结为:我们不认为孩子应该和成年人睡在一起，但我们知道你会忽视我们，所以不管怎样。
 

@@ -1,6 +1,6 @@
 # 汉语普通话现在可以在语言学习应用 Duolingo 上使用
 
-> 原文:[https://life hacker . com/mandarin-Chinese-is-now-available-on-the-language-learn-1820486948](https://lifehacker.com/mandarin-chinese-is-now-available-on-the-language-learn-1820486948)
+> 原文：<https://lifehacker.com/mandarin-chinese-is-now-available-on-the-language-learn-1820486948>
 
 iOS、Android 和网络上的免费语言学习应用 Duolingo 终于推出了针对英语使用者的中文课程。现在，你可以免费尝试英语母语者最难学的语言之一。
 

@@ -1,6 +1,6 @@
 # 这款新应用可以帮你安排相亲——不需要刷卡或发信息
 
-> 原文:[https://life hacker . com/this-new-app-sets-up-on-blind-dates-no-swing-or-m-1796054362](https://lifehacker.com/this-new-app-sets-you-up-on-blind-dates-no-swiping-or-m-1796054362)
+> 原文：<https://lifehacker.com/this-new-app-sets-you-up-on-blind-dates-no-swiping-or-m-1796054362>
 
 有没有想过不先发信息就和陌生人约会？我也是，但今天发布的一款新的约会应用程序 [First](https://itunes.apple.com/us/app/first-the-first-real-dating-app/id1222111537?ls=1&mt=8) 想让这一切发生。
 

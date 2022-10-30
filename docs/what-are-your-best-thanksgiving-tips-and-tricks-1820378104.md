@@ -1,6 +1,6 @@
 # 你最好的感恩节小贴士和小技巧是什么？
 
-> 原文:[https://life hacker . com/what-are-you ' s best-thanksgiving-tips-and-tricks-1820378104](https://lifehacker.com/what-are-your-best-thanksgiving-tips-and-tricks-1820378104)
+> 原文：<https://lifehacker.com/what-are-your-best-thanksgiving-tips-and-tricks-1820378104>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周我想找出你的最佳建议和技巧，确保火鸡日顺利进行。
 

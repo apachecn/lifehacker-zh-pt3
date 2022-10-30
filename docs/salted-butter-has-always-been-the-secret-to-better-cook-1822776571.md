@@ -1,6 +1,6 @@
 # 咸黄油一直是制作更好饼干的秘诀
 
-> 原文:[https://life hacker . com/salted-butter-has-the-secret-to-better-cook-1822776571](https://lifehacker.com/salted-butter-has-always-been-the-secret-to-better-cook-1822776571)
+> 原文：<https://lifehacker.com/salted-butter-has-always-been-the-secret-to-better-cook-1822776571>
 
 艾莉森·罗曼的咸黄油巧克力块酥饼到处都是。[食者](https://www.eater.com/2017/12/21/16805630/alison-roman-salted-chocolate-chip-shortbread-cookies-recipe-dining-in)[尼龙](https://nylon.com/articles/alison-roman-salted-chocolate-chunk-shortbread-cookies-viral-recipe)[神魂颠倒的厨房](https://smittenkitchen.com/2017/12/salted-butter-chocolate-chunk-shortbread/)[《纽约时报》](https://cooking.nytimes.com/recipes/1019152-salted-chocolate-chunk-shortbread-cookies) 对它们进行了详尽的报道；这些饼干几乎每天都会出现在我的 Instagram discover feed 上。最好的食谱不仅仅是它们各部分的总和，但是大量令人屏息凝神的评论表明，到目前为止，相当多的人过着贫困、没有咸黄油饼干的生活。
 

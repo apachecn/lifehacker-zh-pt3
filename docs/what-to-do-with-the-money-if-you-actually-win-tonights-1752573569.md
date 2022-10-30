@@ -1,6 +1,6 @@
 # 如果你真的赢了今晚的强力球头奖，该如何处理这笔钱
 
-> 原文:[https://life hacker . com/what-do-with the money-if you-actually win-1752573569](https://lifehacker.com/what-to-do-with-the-money-if-you-actually-win-tonights-1752573569)
+> 原文：<https://lifehacker.com/what-to-do-with-the-money-if-you-actually-win-tonights-1752573569>
 
 比起赢得强力球，你更有可能在青蛙雷暴中被闪电击中，但是，嘿，玩亿万富翁总是很有趣的。如果你赢了( [而你赢不了](https://lifehacker.com/winning-the-powerball-lottery-won-t-solve-your-problems-1752378740) )，你应该做几件事来保护和优化你的奖金。
 

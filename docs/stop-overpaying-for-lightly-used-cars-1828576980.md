@@ -1,6 +1,6 @@
 # 停止为轻度二手车支付过高的价格
 
-> 原文:[https://jalopnik . com/stop-over pay-for-lightly 二手车-1828576980](https://jalopnik.com/stop-overpaying-for-lightly-used-cars-1828576980)
+> 原文：<https://jalopnik.com/stop-overpaying-for-lightly-used-cars-1828576980>
 
 我有一条新闻要告诉你们中的一些人:经销商喜欢那些坚持二手车总是比新车更好买的人。大多数情况下可能是这样，但并不总是这样，事实上，一些买家在寻找一些只有几年历史的低里程数的东西时支付了太多。
 

@@ -1,6 +1,6 @@
 # 最好的新年游戏是你为别人制定新年计划的游戏
 
-> 原文:[https://life hacker . com/the-best-new-years-game-the-one-where-you-make-resol-1821469788](https://lifehacker.com/the-best-new-years-game-is-the-one-where-you-make-resol-1821469788)
+> 原文：<https://lifehacker.com/the-best-new-years-game-is-the-one-where-you-make-resol-1821469788>
 
 大约十年前，我参加了一个元旦早午餐聚会。坦白地说，我并不是真的想去。那段时间是我人生的低谷。我刚刚经历了一次分手，感到异常孤独，我想在家里打滚。但是女主人是一个好朋友，她邀请了其他有趣、酷的人去一家好餐馆...所以我拖着虚弱的，有点宿醉的身体去了市中心。
 

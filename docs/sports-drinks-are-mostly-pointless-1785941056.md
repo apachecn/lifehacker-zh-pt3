@@ -1,6 +1,6 @@
 # 运动饮料大多毫无意义
 
-> 原文:[https://life hacker . com/sports-drinks-ways-most-bjectory-1785941056](https://lifehacker.com/sports-drinks-are-mostly-pointless-1785941056)
+> 原文：<https://lifehacker.com/sports-drinks-are-mostly-pointless-1785941056>
 
 运动饮料似乎应该是健康的。运动员支持他们，他们没有像几个货架外的百事可乐一样的“液体糖果”的名声。但是，它们对认真锻炼和偶尔锻炼的人有多大帮助呢？事实证明，不是很好。
 

@@ -1,6 +1,6 @@
 # 专注于这四个概念，最终掌握你的钱
 
-> 原文:[https://life hacker . com/focus-on-this-four-concepts-to-finally-master-your-mon-1783552476](https://lifehacker.com/focus-on-these-four-concepts-to-finally-master-your-mon-1783552476)
+> 原文：<https://lifehacker.com/focus-on-these-four-concepts-to-finally-master-your-mon-1783552476>
 
 任何提高了理财技巧的人都会告诉你:这与规则无关。好吧，规则很重要，但它们远没有你的 [习惯和行为](https://lifehacker.com/the-six-ways-your-financial-behavior-is-manipulated-1722576526) 重要。在探索了自己与金钱的关系并写了五年之后，我明白了它可以归结为四个基本因素:控制、谨慎决策、平衡和足智多谋。
 

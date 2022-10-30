@@ -1,6 +1,6 @@
 # 告诉我们你在西雅图的最佳建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Seattle-tips-1821651629](https://lifehacker.com/tell-us-your-best-seattle-tips-1821651629)
+> 原文：<https://lifehacker.com/tell-us-your-best-seattle-tips-1821651629>
 
 亚马逊、涅槃、便士街机、星巴克、麦克摩尔、*弗雷泽*。没有西雅图，中产阶级白人只会坐在黑暗的房间里吃芹菜。但是西雅图的生活到底是什么样的呢？你如何度过那里的每个季节，你如何在镇上四处走动，你喜欢在哪里喝酒，你在哪里吃到美味的晚餐，你在哪里吃到便宜的 T2 T3 晚餐？哪些游客的最爱是可以跳过的，哪些当地的瑰宝被可笑地忽略了？
 

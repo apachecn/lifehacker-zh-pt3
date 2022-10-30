@@ -1,6 +1,6 @@
 # 在聚会上喝两杯
 
-> 原文:[https://life hacker . com/have-two-drinks-at-a-party-1784669979](https://lifehacker.com/have-two-drinks-at-a-party-1784669979)
+> 原文：<https://lifehacker.com/have-two-drinks-at-a-party-1784669979>
 
 每个人对酒精都有自己的关系和容忍度，但下次你在聚会上，如果你正好喝两杯，你可能会做得很好。如果你发现零杯或一杯酒是适合你的数字，那就坚持这个数字。对于其他人，尝试两个。
 

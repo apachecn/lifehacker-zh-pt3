@@ -1,6 +1,6 @@
 # 氢弹和一般的原子弹有什么区别？
 
-> 原文:[https://life hacker . com/氢弹和 typi-1800008880](https://lifehacker.com/whats-the-difference-between-a-hydrogen-bomb-and-a-typi-1800008880)
+> 原文：<https://lifehacker.com/whats-the-difference-between-a-hydrogen-bomb-and-a-typi-1800008880>
 
 周日，朝鲜引爆了他们声称的氢弹 和武器试验，引起了美国及其盟国的严重关注。但是是什么让氢弹比普通的原子弹更可怕呢？
 

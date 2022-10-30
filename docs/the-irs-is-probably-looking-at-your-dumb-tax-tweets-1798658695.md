@@ -1,6 +1,6 @@
 # 国税局可能正在看你愚蠢的税务推特
 
-> 原文:[https://life hacker . com/the-IRS-is-possible-looking-in-your ' s dumb-tax-tweets-1798658695](https://lifehacker.com/the-irs-is-probably-looking-at-your-dumb-tax-tweets-1798658695)
+> 原文：<https://lifehacker.com/the-irs-is-probably-looking-at-your-dumb-tax-tweets-1798658695>
 
 下次你想发微博说你有多讨厌纳税，或者你用你的 [巨额退税](http://twocents.lifehacker.com/the-irs-will-split-your-tax-refund-for-you-1794177378) 做了什么，你可能要重新考虑一下。 [华盛顿州立大学教授的一篇文章](http://www.jetlaw.org/wp-content/uploads/2017/04/Houser-Sanders_Final.pdf) 研究了美国国税局的数据挖掘和分析程序，并暗示政府机构在他们不知情的情况下参与非法收集公民的社交媒体档案，并利用它来审计可疑活动的纳税人。
 

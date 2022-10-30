@@ -1,6 +1,6 @@
 # 一个人如何导致加密货币价格暴跌
 
-> 原文:[https://life hacker . com/how-one-person-to-1822396438](https://lifehacker.com/how-one-person-caused-the-price-of-cryptocurrencies-to-1822396438)
+> 原文：<https://lifehacker.com/how-one-person-caused-the-price-of-cryptocurrencies-to-1822396438>
 
 众所周知， [比特币](https://lifehacker.com/how-to-store-your-bitcoin-as-securely-as-possible-1821051421) 和 [其他加密货币](https://lifehacker.com/what-to-know-about-the-major-cryptocurrencies-besides-b-1821656104?rev=1514581574792) 的价值可能会 [波动](https://www.investopedia.com/articles/investing/052014/why-bitcoins-value-so-volatile.asp) ，但在[1 月 8 日](https://www.cnbc.com/2018/01/08/cryptocurrency-ripple-crashes-30-percent-in-24-hours-bitcoin-also-dropping.html) 整个市场出现了前所未有的暴跌——至今仍未恢复。当时，有很多因素可以指责，从国家政府的 [秘密监管的威胁](https://techcrunch.com/2018/01/08/china-is-reportedly-moving-to-clampdown-on-bitcoin-miners/) 到 [轻率的主流投资](https://www.bloomberg.com/news/articles/2017-12-20/more-people-are-looking-to-buy-bitcoin-with-their-credit-cards) ，但在这种情况下，比特币价值的下跌可能完全是一个人的功劳。
 

@@ -1,6 +1,6 @@
 # Android 奥利奥正在向 Galaxy Note 8 推出
 
-> 原文:[https://life hacker . com/Android-Oreo-is-rolling-out-to-the-galaxy-note-8-1824242086](https://lifehacker.com/android-oreo-is-rolling-out-to-the-galaxy-note-8-1824242086)
+> 原文：<https://lifehacker.com/android-oreo-is-rolling-out-to-the-galaxy-note-8-1824242086>
 
 安卓奥利奥更新有(终于！)开始推出 Galaxy Note 8。
 

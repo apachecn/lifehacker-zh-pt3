@@ -1,6 +1,6 @@
 # 乳腺癌“意识”忽略了这些痛苦的现实
 
-> 原文:[https://life hacker . com/lesser-known-breast-cancer-facts-you-should-known-1819515378](https://lifehacker.com/lesser-known-breast-cancer-facts-you-should-know-1819515378)
+> 原文：<https://lifehacker.com/lesser-known-breast-cancer-facts-you-should-know-1819515378>
 
 这是乳腺癌宣传月，但我认为我们已经意识到乳腺癌的存在，乳房 x 光检查可以发现它。既然我们被粉色包围着，让我们来看看一些实际上需要更多注意的重要事实:
 

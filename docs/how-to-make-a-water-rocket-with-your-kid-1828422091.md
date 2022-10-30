@@ -1,6 +1,6 @@
 # 如何和你的孩子一起制作水火箭
 
-> 原文:[https://life hacker . com/how-to-make-a-water-rocket-1828422091](https://lifehacker.com/how-to-make-a-water-rocket-with-your-kid-1828422091)
+> 原文：<https://lifehacker.com/how-to-make-a-water-rocket-with-your-kid-1828422091>
 
 如果你没有和你的孩子一起建造和发射过水火箭，你就错过了一个很棒的项目。用价值 10 美元左右的零件、一个气泵和一两个空汽水瓶，你可以度过一个下午，并学习一些初级火箭技术。即使是最疲惫的孩子也会被一个构造合理的水火箭的强大力量和高度所震撼。我保证。
 

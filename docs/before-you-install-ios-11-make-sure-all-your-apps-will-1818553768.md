@@ -1,6 +1,6 @@
 # 在安装 iOS 11 之前，请确保您的所有应用程序都可以工作
 
-> 原文:[https://life hacker . com/before-you-install-IOs-11-assure-all-your-apps-will-1818553768](https://lifehacker.com/before-you-install-ios-11-make-sure-all-your-apps-will-1818553768)
+> 原文：<https://lifehacker.com/before-you-install-ios-11-make-sure-all-your-apps-will-1818553768>
 
 在下载 iOS 11 之前，你应该确保你所依赖的所有应用程序都可以与最新版本的操作系统兼容。
 

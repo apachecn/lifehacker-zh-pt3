@@ -1,6 +1,6 @@
 # 这是今天你能得到免费玉米卷的地方的列表
 
-> 原文:[https://life hacker . com/heres-a-list-of-places-you-can-get-free-tacos-today-1819147453](https://lifehacker.com/heres-a-list-of-places-you-can-get-free-tacos-today-1819147453)
+> 原文：<https://lifehacker.com/heres-a-list-of-places-you-can-get-free-tacos-today-1819147453>
 
 唯一比吃玉米卷更好的事情是吃免费的玉米卷，为了纪念全国玉米卷日(今天，10 月 4 日)，一大堆连锁店正在免费赠送。
 

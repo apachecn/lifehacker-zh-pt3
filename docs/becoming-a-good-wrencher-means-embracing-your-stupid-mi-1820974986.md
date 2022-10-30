@@ -1,6 +1,6 @@
 # 成为一名优秀的业余机械师意味着接受你愚蠢的错误
 
-> 原文:[https://jalopnik . com/becoming-a-good-wrencer-mean-embracing-your-stupid-mi-1820974986](https://jalopnik.com/becoming-a-good-wrencher-means-embracing-your-stupid-mi-1820974986)
+> 原文：<https://jalopnik.com/becoming-a-good-wrencher-means-embracing-your-stupid-mi-1820974986>
 
 上周末，当我扭动我的 800 美元的吉普大旅行车 时，我犯了一个可能会让我损失数百美元的大错误。但这只是我多年来犯的许多错误之一，这是我已经开始接受的那种事情。如果你想陷入痛苦，那么你也应该接受自己的愚蠢。
 

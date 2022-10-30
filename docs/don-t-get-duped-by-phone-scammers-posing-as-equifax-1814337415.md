@@ -1,6 +1,6 @@
 # 不要被冒充 Equifax 的电话诈骗者所欺骗
 
-> 原文:[https://life hacker . com/don-t-get-dupped-by-phone-scammers-pose-as-equifax-1814337415](https://lifehacker.com/don-t-get-duped-by-phone-scammers-posing-as-equifax-1814337415)
+> 原文：<https://lifehacker.com/don-t-get-duped-by-phone-scammers-posing-as-equifax-1814337415>
 
 如果说 [Equifax 数据泄露](http://twocents.lifehacker.com/the-latest-news-on-the-equifax-hack-updating-1812224799#_ga=2.123993354.1275430105.1505050985-167189482.1495477587) 泄露[1.43 亿人的个人信息](http://lifehacker.com/equifax-hackers-might-have-your-social-security-and-cre-1802159442) 还不够，现在骗子们正在利用影响客户的困惑和焦虑。如果接到自称是 Equifax 一部分人的电话， [不要相信](https://consumerist.com/2017/09/14/if-someone-calls-you-from-equifax-to-verify-your-account-its-a-scam/) 。
 

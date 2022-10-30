@@ -1,6 +1,6 @@
 # 用索尼的黑仔 A9 拍摄几乎感觉像作弊
 
-> 原文:[https://gizmodo . com/shooting-with-sonys-killer-a9-almost-feel-like-cheat in-1796131594](https://gizmodo.com/shooting-with-sonys-killer-a9-almost-feels-like-cheatin-1796131594)
+> 原文：<https://gizmodo.com/shooting-with-sonys-killer-a9-almost-feels-like-cheatin-1796131594>
 
 如果你曾经想知道摄影师是如何设法捕捉到令人难以置信的端区接收的准确时刻或一只鸟起飞的瞬间，部分答案是，摄影师的相机也捕捉到了黄金帧前后的垃圾时刻，用非常昂贵的相机以冲锋枪的速度拍摄照片。对于这些专业的体育和自然摄影师来说，有两个被广泛接受的选择:佳能和尼康的顶级相机，它们庞大的机身，令人难以置信的功率，以及最先进的图像传感器。好吧，索尼终于在 A9 中对现任者有了答案。这款全画幅无反光镜相机不仅比尼康和佳能的竞争对手更小、更轻、更便宜，而且在速度方面绝对让他们望尘莫及。
 

@@ -1,6 +1,6 @@
 # 在任何使用该应用程序的 Android 手机上试用三星的 Galaxy S9
 
-> 原文:[https://life hacker . com/try-out-samsungs-galaxy-S9-on-any-Android-phone-using-t-1823595266](https://lifehacker.com/try-out-samsungs-galaxy-s9-on-any-android-phone-using-t-1823595266)
+> 原文：<https://lifehacker.com/try-out-samsungs-galaxy-s9-on-any-android-phone-using-t-1823595266>
 
 如果你一直在考虑购买 Galaxy S9，但不确定你是否准备好咬紧牙关，三星为你创造了一种方法，让你使用当前的设备试驾这款手机。
 

@@ -1,6 +1,6 @@
 # 如何用任何蔬菜制作免煮意大利面酱
 
-> 原文:[https://life hacker . com/how-to-make-no-cook-pasta-sauce-from-basic-any-vege-1828356594](https://lifehacker.com/how-to-make-no-cook-pasta-sauce-from-basically-any-vege-1828356594)
+> 原文：<https://lifehacker.com/how-to-make-no-cook-pasta-sauce-from-basically-any-vege-1828356594>
 
 面条不需要在炉子上煮很长时间才好吃，这就是为什么它们是夏季的不二选择。尽管我很喜欢冷花生面条，但有时我渴望一碗丝滑的意大利面，里面装满了蔬菜和奶酪——而不用花一个小时炖那种酱。
 

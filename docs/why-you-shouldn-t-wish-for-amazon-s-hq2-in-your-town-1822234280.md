@@ -1,6 +1,6 @@
 # 为什么你不应该希望亚马逊的 HQ2 在你的城市
 
-> 原文:[https://life hacker . com/why-you-should-t-wish-for-Amazon-s-hq2-in-you-town-1822234280](https://lifehacker.com/why-you-shouldn-t-wish-for-amazon-s-hq2-in-your-town-1822234280)
+> 原文：<https://lifehacker.com/why-you-shouldn-t-wish-for-amazon-s-hq2-in-your-town-1822234280>
 
 我的家乡匹兹堡在亚马逊的 20 个可能建立第二总部的城市的名单上。我喜欢一家(另一家)热门科技公司认识到我们的城市是一个很棒的地方，但你知道吗？我有点希望我们没有被选中。
 

@@ -1,6 +1,6 @@
 # 告诉我们你最好的洛杉矶黑客
 
-> 原文:[https://life hacker . com/tell-us-your-best-los-Angeles-hacks-1819454725](https://lifehacker.com/tell-us-your-best-los-angeles-hacks-1819454725)
+> 原文：<https://lifehacker.com/tell-us-your-best-los-angeles-hacks-1819454725>
 
 我们已经解决了纽约。芝加哥。旧金山。其中最大的苹果是凤凰。现在到了洛杉矶，这个你可以变成任何东西的城市，蔬菜汁可以变成午餐。从好莱坞山向外看，你几乎可以嗅到各种可能性；他们甚至启动了空气质量预警。
 

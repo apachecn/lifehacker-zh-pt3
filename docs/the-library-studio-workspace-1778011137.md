@@ -1,6 +1,6 @@
 # 图书馆工作室工作区
 
-> 原文:[https://life hacker . com/the-library-studio-workspace-1778011137](https://lifehacker.com/the-library-studio-workspace-1778011137)
+> 原文：<https://lifehacker.com/the-library-studio-workspace-1778011137>
 
 我们喜欢极简的工作空间，但这些家庭办公室的设置看起来和感觉上更像一个书房，而不是其他任何东西，这也非常有吸引力。redditor[formula build](https://www.reddit.com/user/Formulabuild)建造了这个家庭办公室，一边是图书馆，另一边是他所有的乐器。这里还有一些照片。
 

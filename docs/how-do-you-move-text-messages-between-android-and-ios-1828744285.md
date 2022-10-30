@@ -1,6 +1,6 @@
 # 如何在 Android 和 iOS 之间移动短信？
 
-> 原文:[https://life hacker . com/how-do-you-move-text-messages-between-Android-and-IOs-1828744285](https://lifehacker.com/how-do-you-move-text-messages-between-android-and-ios-1828744285)
+> 原文：<https://lifehacker.com/how-do-you-move-text-messages-between-android-and-ios-1828744285>
 
 我们本周将 Tech 911 提升到“硬模式”,因为将数据从一个智能手机平台转移到另一个平台可能会很棘手。在一个完美的世界里，应该有一个快速、易用的解决方案，将你的短信从你离开的平台发送到你要去的平台。确实有——你只需要在正确的时间设置它。
 

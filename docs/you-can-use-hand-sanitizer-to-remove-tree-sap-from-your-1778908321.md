@@ -1,6 +1,6 @@
 # 你可以用洗手液清除汽车上的树液
 
-> 原文:[https://jalopnik . com/you-can-use-hand-sanitizer-to-remove-tree-sap-from-your-1778908321](https://jalopnik.com/you-can-use-hand-sanitizer-to-remove-tree-sap-from-your-1778908321)
+> 原文：<https://jalopnik.com/you-can-use-hand-sanitizer-to-remove-tree-sap-from-your-1778908321>
 
 除了粗略的机械结构、速度限制和有故障的氧气传感器，树液是你的汽车最大的噩梦。一旦它破坏了你原本干净的油漆工作，这些东西就不会脱落。好消息是，实际上有一种简单的方法可以清除植物排泄物。
 

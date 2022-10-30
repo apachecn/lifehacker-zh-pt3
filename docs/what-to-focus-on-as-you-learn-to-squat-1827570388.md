@@ -1,6 +1,6 @@
 # 学习深蹲时应该注意什么
 
-> 原文:[https://life hacker . com/what-to-focus-on-you-learn-to-squat-1827570388](https://lifehacker.com/what-to-focus-on-as-you-learn-to-squat-1827570388)
+> 原文：<https://lifehacker.com/what-to-focus-on-as-you-learn-to-squat-1827570388>
 
 当有人告诉你所有可能出错的事情时——膝盖在脚趾后面——蹲下看起来很复杂！屁股往下一点！抬头！但不要太高！如果你在关注我们的挑战，你可能会比以前做更多的深蹲，所以让我们来谈谈我们是如何做的。
 

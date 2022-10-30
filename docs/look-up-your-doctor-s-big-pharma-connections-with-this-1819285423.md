@@ -1,6 +1,6 @@
 # 用这个工具查找你的医生与大型制药公司的联系
 
-> 原文:[https://life hacker . com/look-up-your-doctor-s-big-pharma-connections-with-this-1819285423](https://lifehacker.com/look-up-your-doctor-s-big-pharma-connections-with-this-1819285423)
+> 原文：<https://lifehacker.com/look-up-your-doctor-s-big-pharma-connections-with-this-1819285423>
 
 制药公司和医疗设备公司出于各种原因向医生和教学医院提供资金。 [ProPublica 去年发现](https://www.propublica.org/article/updated-dollars-for-docs-heres-whats-new) 大多数医生都接受付款，而那些接受付款的医生更有可能开名牌药。报酬会影响你自己医生的判断吗？[Docs 数据库](https://projects.propublica.org/docdollars/) 的美元不能肯定地告诉你，但它至少能说出美元的金额。
 

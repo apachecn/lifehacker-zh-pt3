@@ -1,6 +1,6 @@
 # Lifehacker 正在招聘一名专职作家，来和我们一起工作吧
 
-> 原文:[https://life hacker . com/life hacker-is-hiring-a-staff-writer-come-work-with-us-1829706984](https://lifehacker.com/lifehacker-is-hiring-a-staff-writer-come-work-with-us-1829706984)
+> 原文：<https://lifehacker.com/lifehacker-is-hiring-a-staff-writer-come-work-with-us-1829706984>
 
 你是否对正确的做事方式有强烈的想法，并渴望与世界分享？从如何最好地打包行李箱到手机礼仪的细节，你是否会绞尽脑汁？如果你自己这么说，你会给出令人难以置信的建议吗？你也是一个聪明、好奇、机智、注重细节的作家，想要帮助人们改善生活吗？
 

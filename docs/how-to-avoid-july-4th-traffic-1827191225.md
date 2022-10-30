@@ -1,6 +1,6 @@
 # 如何避开 7 月 4 日的交通
 
-> 原文:[https://life hacker . com/how-to-avoid-July-4-traffic-1827191225](https://lifehacker.com/how-to-avoid-july-4th-traffic-1827191225)
+> 原文：<https://lifehacker.com/how-to-avoid-july-4th-traffic-1827191225>
 
 假日交通正处于高峰期。 H 一天的旅行者通常包括大量通常不开车的人，他们都不可避免地行驶在你需要走才能到达目的地的道路上。
 

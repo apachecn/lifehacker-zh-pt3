@@ -1,6 +1,6 @@
 # 如何驾驶，来自 Jalopnik 的克里斯汀·李
 
-> 原文:[https://life hacker . com/drivers-ed-for-modern-times-1793962348](https://lifehacker.com/drivers-ed-for-modern-times-1793962348)
+> 原文：<https://lifehacker.com/drivers-ed-for-modern-times-1793962348>
 
 每个人似乎都认为自己是一个伟大的车手，但你磨损的保险杠可能不同意。在这个无限杂念的年代，怎样才能学会提高自己的驾驶水平？现在你还需要拥有一辆车吗？我们正在和 [贾洛普尼克](http://jalopnik.com) 作家 [克里斯汀李](https://kinja.com/kristenlee) 谈论城市中的汽车，更安全的驾驶，以及手动变速器的优点。
 

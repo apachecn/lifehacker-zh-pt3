@@ -1,6 +1,6 @@
 # 制作这种注入大麻的奶油甜卷
 
-> 原文:[https://life hacker . com/make-this-vacanoli-cream-1821473613](https://lifehacker.com/make-this-cannabis-infused-cannoli-cream-1821473613)
+> 原文：<https://lifehacker.com/make-this-cannabis-infused-cannoli-cream-1821473613>
 
 奶油甜卷是公认的美味甜点。他们是西西里人，也就是说 [最初是阿拉伯语](https://books.google.com/books?id=gN6ySQnUnfwC&pg=PA370&dq=9781556529542&hl=en&sa=X&ved=0ahUKEwjL1pLAnIjYAhXOYd8KHRPDBQcQ6AEIJTAA#v=onepage&q=Cannoli&f=false) ，然后被那个干旱天堂的矫情的人们所采用和完善。这种甜点航行穿过 [南街海港](https://southstreetseaportmuseum.org/millions-new-york-city-immigration-in-the-20th-century/) (爱丽丝岛时代之前)，停在小意大利的桑树街上，直到今天，这里仍有一些现存的意大利面包店。在西西里岛的巴勒莫，人们称之为 Cannolo，是一种油炸糕点，填满了甜奶酪，上面还有其他美味。
 

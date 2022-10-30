@@ -1,6 +1,6 @@
 # 除了“别哭了”，还能对孩子说什么
 
-> 原文:[https://life hacker . com/what-to-say-to-kids-not-stop-crying-1818734360](https://lifehacker.com/what-to-say-to-kids-instead-of-stop-crying-1818734360)
+> 原文：<https://lifehacker.com/what-to-say-to-kids-instead-of-stop-crying-1818734360>
 
 如果你有孩子，你会哭。他们哭是因为他们的兄弟先到了门口，因为他们试图同时骑两辆摩托车而摔倒，因为他们打扮成蝙蝠侠，但不想被超市里的其他购物者称为蝙蝠侠。哭的理由太多了！当你已经受够了*争吵、打斗和哭泣——尤其是一些你没有时间去做的无聊的事情，比如谁按了电梯按钮——说(或尖叫)“别哭了！”真的很容易* 
 

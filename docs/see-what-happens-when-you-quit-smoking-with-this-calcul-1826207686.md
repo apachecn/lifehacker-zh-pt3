@@ -1,6 +1,6 @@
 # 用这个计算器看看戒烟后会发生什么
 
-> 原文:[https://life hacker . com/see-when-when-when-you-quit-smoking with this-calcul-1826207686](https://lifehacker.com/see-what-happens-when-you-quit-smoking-with-this-calcul-1826207686)
+> 原文：<https://lifehacker.com/see-what-happens-when-you-quit-smoking-with-this-calcul-1826207686>
 
 当你戒烟时， [你的身体开始有不同的功能](https://academic.oup.com/ntr/article/9/3/315/1100099) 。在短期内，你的心率和血压会自我调节。随着时间的推移，你患癌症和心脏病的风险越来越接近不吸烟者。 [这个计算器](https://www.omnicalculator.com/health/smoking-recovery) 可以给你所有这些事情发生的具体日期，如果你现在。
 

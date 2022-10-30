@@ -1,6 +1,6 @@
 # 如何在食品杂货上省钱
 
-> 原文:[https://life hacker . com/how-to-save-money-on-杂货-1826922321](https://lifehacker.com/how-to-save-money-on-groceries-1826922321)
+> 原文：<https://lifehacker.com/how-to-save-money-on-groceries-1826922321>
 
 食品是美国普通家庭继和交通之后最大的支出，根据美国劳工统计局。但是与前两项开支不同，有很多方法可以逐月管理你的杂货预算，以削减额外的费用。
 

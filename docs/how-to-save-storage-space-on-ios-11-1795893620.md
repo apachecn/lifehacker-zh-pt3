@@ -1,6 +1,6 @@
 # 如何在 iOS 11 上节省存储空间
 
-> 原文:[https://life hacker . com/how-to-save-storage-space-on-IOs-11-1795893620](https://lifehacker.com/how-to-save-storage-space-on-ios-11-1795893620)
+> 原文：<https://lifehacker.com/how-to-save-storage-space-on-ios-11-1795893620>
 
 在 2017 年 WWDC 大会上，苹果发布了 iOS 11 ，以及一系列为小型设备节省空间的功能。苹果让 32GB 成为其 iOS 阵容中最小的存储空间，这一点很好，但这仍然不够。成千上万的人已经花时间试图缩小他们的照片、应用程序和其他数据的大小，以节省空间，并在关键时刻满足可怕的“不能拍照”警报。
 

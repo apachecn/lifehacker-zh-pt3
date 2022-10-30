@@ -1,6 +1,6 @@
 # 如何知道使用哪种蛋液
 
-> 原文:[https://life hacker . com/how-to-know-the-egg-wash-to-use-1829507257](https://lifehacker.com/how-to-know-which-egg-wash-to-use-1829507257)
+> 原文：<https://lifehacker.com/how-to-know-which-egg-wash-to-use-1829507257>
 
 如果你是一个糕点师，你可能会时不时地在黄油面团上刷上一层鸡蛋或鸡蛋的一部分，从来没有停下来想一想这是为什么。(或者你确实想知道为什么。我不在你的大脑盒子里。)
 

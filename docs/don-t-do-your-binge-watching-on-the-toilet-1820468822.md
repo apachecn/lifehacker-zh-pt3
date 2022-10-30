@@ -1,6 +1,6 @@
 # 不要在马桶上狂看
 
-> 原文:[https://life hacker . com/don-t-do-your-binge-watching-on-the-toilet-1820468822](https://lifehacker.com/don-t-do-your-binge-watching-on-the-toilet-1820468822)
+> 原文：<https://lifehacker.com/don-t-do-your-binge-watching-on-the-toilet-1820468822>
 
 有时候你只是想要一些隐私，尤其是当你在观看一些必看电视的最新一集时。但是，如果你在休息时间去豪华别墅狂欢，你可能要小心你坐的地方。 [根据一项网飞用户调查](https://media.netflix.com/en/press-releases/when-bingeing-goes-public-private-behaviors-are-exposed-and-social-norms-are-shelved) ，12%的受访者承认在使用公共厕所时会看《网飞》。是啊。(有多少人在自家浴室里看《网飞》？网飞没有说，但我们猜测这是一个更大的百分比。)
 

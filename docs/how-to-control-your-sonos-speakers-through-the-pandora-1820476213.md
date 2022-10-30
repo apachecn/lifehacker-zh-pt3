@@ -1,6 +1,6 @@
 # 如何通过 Pandora 应用程序控制您的 Sonos 扬声器
 
-> 原文:[https://life hacker . com/how-to-control-your-sonos-speakers-through-the-Pandora-1820476213](https://lifehacker.com/how-to-control-your-sonos-speakers-through-the-pandora-1820476213)
+> 原文：<https://lifehacker.com/how-to-control-your-sonos-speakers-through-the-pandora-1820476213>
 
 [潘多拉](https://lifehacker.com/stick-to-the-thumbs-down-button-in-pandora-to-get-a-bet-1792037800#_ga=2.5894577.345158132.1510593808-1167719708.1504278915) 的微调网络电台播放列表和 [Sonos](https://lifehacker.com/how-to-stop-your-sonos-from-collecting-as-much-person-1798403771) 的无线扬声器系统应该是天作之合，但直到今天，这两款产品才真正合得来。现在，两家公司正联手将潘多拉最好的一面带到 Sonos(反之亦然)。
 

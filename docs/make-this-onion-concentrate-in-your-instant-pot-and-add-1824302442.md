@@ -1,6 +1,6 @@
 # 将洋葱浓缩到你的速溶锅中，加入到所有食物中
 
-> 原文:[https://life hacker . com/make-this-onion-concentrate-in-your-instant-pot-and-add-1824302442](https://lifehacker.com/make-this-onion-concentrate-in-your-instant-pot-and-add-1824302442)
+> 原文：<https://lifehacker.com/make-this-onion-concentrate-in-your-instant-pot-and-add-1824302442>
 
 我在 [速食锅](https://lifehacker.com/tag/instant-pot) 里烹饪食物已经有一段时间了，我注意到一个关于洋葱的特定现象:除非你把它们分成厚厚的一大块，否则它们几乎总是会变成糊状，几乎看不到的丝，一眼就能溶解。如果你想让蔬菜发光，这不是很好，但如果你想让你的菜充满洋葱味，这是很棒的。
 

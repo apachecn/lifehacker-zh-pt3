@@ -1,6 +1,6 @@
 # 立即更改您的 Twitter 密码
 
-> 原文:[https://life hacker . com/change-your-Twitter-password-now-1825756672](https://lifehacker.com/change-your-twitter-password-now-1825756672)
+> 原文：<https://lifehacker.com/change-your-twitter-password-now-1825756672>
 
 Twitter，一个为了测试互联网用户能容忍多少废话而建立的社交网络，刚刚宣布它 [不小心以纯文本形式存储了一串密码](https://blog.twitter.com/official/en_us/topics/company/2018/keeping-your-account-secure.html) 。虽然这只是一个内部错误，一切可能都很好，但你现在可能应该更改你的 Twitter 密码了。快乐[密码日](https://www.passwordday.org/)T7】！ 
 

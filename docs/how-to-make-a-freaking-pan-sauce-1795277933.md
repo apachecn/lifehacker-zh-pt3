@@ -1,6 +1,6 @@
 # 如何做一个奇怪的锅酱
 
-> 原文:[https://life hacker . com/how-to-make-a-freaking-pan-sauce-1795277933](https://lifehacker.com/how-to-make-a-freaking-pan-sauce-1795277933)
+> 原文：<https://lifehacker.com/how-to-make-a-freaking-pan-sauce-1795277933>
 
 当我第一次开始为自己和他人做饭时，我认为牛排晚餐是成熟成年人的缩影，尤其是当搭配一瓶单宁强烈的红酒时。我做这顿饭并不差，但有一样东西我总是想不起来:那该死的锅酱。
 

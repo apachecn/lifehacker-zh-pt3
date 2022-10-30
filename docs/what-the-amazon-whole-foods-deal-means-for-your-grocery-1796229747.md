@@ -1,6 +1,6 @@
 # 亚马逊和全食超市的交易对你的食品账单意味着什么
 
-> 原文:[https://life hacker . com/what-the-Amazon-what-the-what-the-what-the-what-the-what-the-Amazon-whole-foods-deal-mean-for-your-杂货店-1796229747](https://lifehacker.com/what-the-amazon-whole-foods-deal-means-for-your-grocery-1796229747)
+> 原文：<https://lifehacker.com/what-the-amazon-whole-foods-deal-means-for-your-grocery-1796229747>
 
 到目前为止，你已经听说了这个消息:亚马逊计划以 137 亿美元收购全食超市。 [的笑话已经结束](http://www.businessinsider.com/amazon-whole-foods-jeff-bezos-jokes-2017-6) ，尘埃落定，现在一个大问题仍然存在:这对你的杂货意味着什么？
 

@@ -1,6 +1,6 @@
 # 这种 DIY 漂浮冷却器意味着你永远不必离开游泳池去拿饮料
 
-> 原文:[https://life hacker . com/this-DIY-floating-cooler-mean-you-never-have-to-leave-1796932185](https://lifehacker.com/this-diy-floating-cooler-means-you-never-have-to-leave-1796932185)
+> 原文：<https://lifehacker.com/this-diy-floating-cooler-means-you-never-have-to-leave-1796932185>
 
 在炎热的夏天，唯一比在游泳池里漂浮更神圣的事情是在游泳池里漂浮，喝着提神的饮料，但是一旦你在甜甜圈形状的浮子里安顿下来，你最不想做的事情就是出去提神饮料。幸运的是，厨房有一个便宜又简单的方法来解决这个夏天的悲伤:你所需要的只是一些游泳池面条。
 

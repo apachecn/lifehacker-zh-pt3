@@ -1,6 +1,6 @@
 # 去优步比在这些城市拥有一辆汽车要便宜
 
-> 原文:[https://life hacker . com/its-beat-to-Uber-beat-own-a car-in-these-city-1826522541](https://lifehacker.com/its-cheaper-to-uber-than-own-a-car-in-these-cities-1826522541)
+> 原文：<https://lifehacker.com/its-cheaper-to-uber-than-own-a-car-in-these-cities-1826522541>
 
 本周，投资公司凯鹏华盈(Kleiner Perkins cau field Byers)[的玛丽·米克尔发布了她的 2018 年度互联网趋势报告](https://lifehacker.com/the-mary-meeker-report-tells-us-almost-everything-about-1826463535) 。里面有很多花边新闻，涵盖了从哪个城市可能成为下一个大型科技中心到人们如何在网上购物的方方面面。它还解决了另一个有趣的话题:在哪里使用拼车服务更好。
 

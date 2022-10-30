@@ -1,6 +1,6 @@
 # 《奇异事物 2》的配乐是很好的工作音乐
 
-> 原文:[https://life hacker . com/the-stranger-things-2-soundtrack-is-good-work-music-1820084914](https://lifehacker.com/the-stranger-things-2-soundtrack-is-good-work-music-1820084914)
+> 原文：<https://lifehacker.com/the-stranger-things-2-soundtrack-is-good-work-music-1820084914>
 
 对于一部恐怖电影来说,*陌生人 2* 感觉非常...富有成效。节奏合成器与其说唤起了洛夫克拉夫特式的怪物，不如说是一台轻轻搅动的超级计算机。这是你工作日的绝佳配乐。 [在 Spotify](https://open.spotify.com/album/2l0rdHb97fQidl9dsOxE6B) 上提示，进入状态。
 

@@ -1,6 +1,6 @@
 # 我需要一辆更大的车来载我的孩子，但我不想放弃乐趣！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-need-a-bigger-car-to-carry my-kids-but-I-don-want-to-1789670524](https://jalopnik.com/i-need-a-bigger-car-to-carry-my-kids-but-i-dont-want-to-1789670524)
+> 原文：<https://jalopnik.com/i-need-a-bigger-car-to-carry-my-kids-but-i-dont-want-to-1789670524>
 
 艾莉是一位单亲妈妈，她明白你不需要一辆大型 SUV 来载着两个孩子。然而，她的大众甲壳虫对于孩子的责任来说有点紧，所以她想要一些更实际的东西——但她拒绝放弃乐趣。她应该买什么车？
 

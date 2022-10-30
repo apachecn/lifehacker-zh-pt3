@@ -1,6 +1,6 @@
 # 问咸味女服务员:服务员对顾客直呼其名有何感受？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-how-do-servers-feel-on-custo-1822934231](https://thetakeout.com/ask-the-salty-waitress-how-do-servers-feel-about-custo-1822934231)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-how-do-servers-feel-about-custo-1822934231>
 
 * * *
 

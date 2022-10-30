@@ -1,6 +1,6 @@
 # 如何用你厨房里已经有的材料制作美味的唇部磨砂膏
 
-> 原文:[https://life hacker . com/how-to-make-gourmet-lip-scrubs-from-stuff-you-has-h-1794886961](https://lifehacker.com/how-to-make-gourmet-lip-scrubs-from-stuff-you-already-h-1794886961)
+> 原文：<https://lifehacker.com/how-to-make-gourmet-lip-scrubs-from-stuff-you-already-h-1794886961>
 
 干燥的嘴唇是一种拖累。它们不仅让接吻变得不那么有趣，让口红更难涂，还令人担忧和痛苦。挑选或咬干斑是一个糟糕的计划——你最终会脱下健康的皮肤——但是一个好的，温和的磨砂膏可以去除角质，丰满，让你的嘴唇变成亲吻的形状。
 

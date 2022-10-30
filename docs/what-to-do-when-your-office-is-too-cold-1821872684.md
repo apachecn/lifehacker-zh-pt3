@@ -1,6 +1,6 @@
 # 当你的办公室太冷时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-when-your ' s office-too-cold-1821872684](https://lifehacker.com/what-to-do-when-your-office-is-too-cold-1821872684)
+> 原文：<https://lifehacker.com/what-to-do-when-your-office-is-too-cold-1821872684>
 
 还记得夏天的时候，你的办公大楼把空调开到很低的温度，你不得不戴上帽子吗？还记得“至少在冬天他们会打开暖气”的想法吗？我们记得在 Lifehacker 的时候。得知我们的办公室冬天也很冷，真是一个有趣的惊喜！现在我们知道“哦，你这个可爱的夏天的孩子”是什么意思了！
 

@@ -1,6 +1,6 @@
 # 为什么你通常不应该申请一家公司的多份工作，应该怎么做
 
-> 原文:[https://life hacker . com/why-you-outly-should-not-apply-to-multiple-jobs-on-one-1788417204](https://lifehacker.com/why-you-usually-shouldnt-apply-to-multiple-jobs-at-one-1788417204)
+> 原文：<https://lifehacker.com/why-you-usually-shouldnt-apply-to-multiple-jobs-at-one-1788417204>
 
 我清楚地记得，在我受雇的日子里，我浏览了各种职位的申请，发现有一个人决定为每一个职位都提交一份申请。这比你想象的要多——老实说，这比我刚开始招聘时的预期还要多。然而，随着我开始审阅越来越多的简历，有一件事变得很明显:在某个地方，有一个人显然在告诉人们，获得雇主关注的最佳方式是尽可能多地申请他们的职位。
 

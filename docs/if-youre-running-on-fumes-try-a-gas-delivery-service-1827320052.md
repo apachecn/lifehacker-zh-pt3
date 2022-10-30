@@ -1,6 +1,6 @@
 # 如果你跑在烟雾中，尝试气体输送服务
 
-> 原文:[https://life hacker . com/if-you-running-on-fuses-try-a-gas-delivery-service-1827320052](https://lifehacker.com/if-youre-running-on-fumes-try-a-gas-delivery-service-1827320052)
+> 原文：<https://lifehacker.com/if-youre-running-on-fumes-try-a-gas-delivery-service-1827320052>
 
 我一直认为“天然气输送”的概念很愚蠢:你可以用所有这些应用程序召唤一辆卡车到你的房子或工作地点，然后为你的汽车加满油，因为你懒得开车到街上的加油站。但我明白，真的。如果你忙得不可开交，根本没有空闲时间来处理像这样的小任务，为什么天然气配送会比两小时的杂货配送更愚蠢呢？
 

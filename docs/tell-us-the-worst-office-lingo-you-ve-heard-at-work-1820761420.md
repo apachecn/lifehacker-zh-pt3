@@ -1,6 +1,6 @@
 # 告诉我们你在工作中听过的最糟糕的办公室行话
 
-> 原文:[https://life hacker . com/tell-us-the-worst-office-lingo-you-ve-heard-in-work-1820761420](https://lifehacker.com/tell-us-the-worst-office-lingo-you-ve-heard-at-work-1820761420)
+> 原文：<https://lifehacker.com/tell-us-the-worst-office-lingo-you-ve-heard-at-work-1820761420>
 
 *《卫报》* 最近的一篇文章哀叹现代职场中空洞的中层管理行话泛滥。从“幻想工程”到“伸出手来”，从“低垂的果实”到“从 30000 英尺的高度看风景”，似乎没有人能逃脱办公室空间*的汹涌潮流*类似废话的东西已经取代了工作场所的直接交流。
 

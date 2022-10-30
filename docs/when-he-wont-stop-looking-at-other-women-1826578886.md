@@ -1,6 +1,6 @@
 # 当他不停地看其他女人的时候
 
-> 原文:[https://life hacker . com/when-he-won-stop-looking-other-women-1826578886](https://lifehacker.com/when-he-wont-stop-looking-at-other-women-1826578886)
+> 原文：<https://lifehacker.com/when-he-wont-stop-looking-at-other-women-1826578886>
 
 本周我们有位女士，她无法忍受她的男朋友盯着其他女人看。她最终会告诉他她的感受并得到她应得的尊重吗？还是他会忙着盯着其他女孩看而看不到她永远离开？
 

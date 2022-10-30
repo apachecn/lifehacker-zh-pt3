@@ -1,6 +1,6 @@
 # 在家的舒适中制作值得外卖的蒙古牛肉
 
-> 原文:[https://the take out . com/make-take-out-worthy-Mongol-beef-from-the-comforts-of-1822862776](https://thetakeout.com/make-takeout-worthy-mongolian-beef-from-the-comforts-of-1822862776)
+> 原文：<https://thetakeout.com/make-takeout-worthy-mongolian-beef-from-the-comforts-of-1822862776>
 
 *在* [**仓促的美食**](https://thetakeout.com/tag/hasty-gourmet) *，*外卖*的作者提供可靠的食谱，只需很少的配料和最少的努力，就值得在晚宴上享用。*T12】
 

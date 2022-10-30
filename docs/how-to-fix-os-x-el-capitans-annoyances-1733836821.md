@@ -1,6 +1,6 @@
 # 如何解决 OS X El Capitan 的烦恼
 
-> 原文:[https://life hacker . com/how-to-fix-OS-x-El-capitans-annoyances-1733836821](https://lifehacker.com/how-to-fix-os-x-el-capitans-annoyances-1733836821)
+> 原文：<https://lifehacker.com/how-to-fix-os-x-el-capitans-annoyances-1733836821>
 
 随着任何新操作系统的发布，你总会发现一些古怪之处。埃尔卡皮坦是一个足够小的更新，它没有很多烦恼，但它们仍然存在。以下是如何修复它的一些更烦人的问题。
 

@@ -1,6 +1,6 @@
 # 为什么在最后一刻取消计划感觉如此之好，以及如何停止
 
-> 原文:[https://life hacker . com/why-it-feel-so-good-to-cancel-plans-last-minute-and-h-1821266932](https://lifehacker.com/why-it-feels-so-good-to-cancel-plans-last-minute-and-h-1821266932)
+> 原文：<https://lifehacker.com/why-it-feels-so-good-to-cancel-plans-last-minute-and-h-1821266932>
 
 在最后一刻取消计划有一种魔力——是的，我听过约翰·木兰尼的笑话。你立刻可以做任何你想做的事情，而不会觉得欠任何人的。真正的自由只有一个可耻的文本之遥。但是，剥落是一个滑坡，会导致一个有害的，相当粗鲁的习惯。这就是为什么当你的夜晚突然空闲下来时，你会有一种如释重负的感觉，以及如何阻止自己成为总是逃避的人。
 

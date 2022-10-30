@@ -1,6 +1,6 @@
 # 卖旧货的最佳地点
 
-> 原文:[https://life hacker . com/the-best-places to-sell-your-jun-1819338691](https://lifehacker.com/the-best-places-to-sell-your-junk-depending-on-the-jun-1819338691)
+> 原文：<https://lifehacker.com/the-best-places-to-sell-your-junk-depending-on-the-jun-1819338691>
 
 这个月，我们挑战你通过 [清理你的衣柜和出售你不想要的垃圾来赚点零花钱。你可能想知道到底在哪里卖这些垃圾。不要把你的旧的、不想要的短裤打成一个结。我们会掩护你的。](https://twocents.lifehacker.com/october-s-money-challenge-clean-out-your-closets-for-c-1819076711) 
 

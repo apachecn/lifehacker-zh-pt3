@@ -1,6 +1,6 @@
 # 用这些惯例来组织你在家工作的一天
 
-> 原文:[https://life hacker . com/structure-your-work-from-home-day-with these-routines-1823158185](https://lifehacker.com/structure-your-work-from-home-day-with-these-routines-1823158185)
+> 原文：<https://lifehacker.com/structure-your-work-from-home-day-with-these-routines-1823158185>
 
 在家工作的便利也是它的诅咒。没有通勤给你时间在上班的路上整理思绪，没有和同事共进午餐。为了让你在家工作的生活有条不紊，你需要建立自己的日常生活。
 

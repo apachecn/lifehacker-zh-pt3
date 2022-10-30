@@ -1,6 +1,6 @@
 # 花时间在家门口创造持久的邻里关系
 
-> 原文:[https://life hacker . com/spend-time-in-your-house-front-to-create-last-nei-1818812570](https://lifehacker.com/spend-time-in-front-of-your-house-to-create-lasting-nei-1818812570)
+> 原文：<https://lifehacker.com/spend-time-in-front-of-your-house-to-create-lasting-nei-1818812570>
 
 "人们什么时候会来？"当我们凝视着外面空荡荡的街道时，我四岁的女儿问我。我们坐在外面车道上的摇椅上。我觉得很可笑。
 

@@ -1,6 +1,6 @@
 # 究竟是什么让 500 美元的路由器物有所值？
 
-> 原文:[https://gizmodo . com/what-earth-makes-a-500-router-worth-it-1794031737](https://gizmodo.com/what-on-earth-makes-a-500-router-worth-it-1794031737)
+> 原文：<https://gizmodo.com/what-on-earth-makes-a-500-router-worth-it-1794031737>
 
 曾几何时，你可以用一个 60 美元的路由器勉强度日，它可以做简单的工作，让你的房子覆盖上一层体面的无线网络。但在 2017 年，一个令人满意的家庭网络不仅仅是一个藏在角落里的廉价盒子。对许多家庭来说，这是一整套路由器系统，它们协同工作到达每一个角落。然而，这些“网状”路由器的设置并不便宜。它们的起价为 250 美元，许多可能高达 500 美元。那么，如果你花同样多的钱购买一台大型路由器，会发生什么呢？我用 Netgear Nighthawk X10 R9000 连接了我在布鲁克林的公寓，想知道答案。
 

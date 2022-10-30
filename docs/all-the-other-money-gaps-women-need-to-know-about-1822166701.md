@@ -1,6 +1,6 @@
 # 女性需要了解的所有其他收入差距
 
-> 原文:[https://life hacker . com/all-the-other-money-gap-women-need-to-know-on-1822166701](https://lifehacker.com/all-the-other-money-gaps-women-need-to-know-about-1822166701)
+> 原文：<https://lifehacker.com/all-the-other-money-gaps-women-need-to-know-about-1822166701>
 
 女人比男人更难理财。不是因为我们不能控制我们的支出，或者我们只是不感兴趣，而是因为在获得与我们的男性朋友和家庭成员同等的财务自由方面存在真实的、结构性的障碍。如果我们想要成功和经济独立，我们将不得不更加努力地工作。
 

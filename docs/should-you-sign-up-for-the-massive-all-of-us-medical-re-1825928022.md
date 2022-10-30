@@ -1,6 +1,6 @@
 # 你应该报名参加大规模的“我们所有人”医学研究吗？
 
-> 原文:[https://life hacker . com/should-you-sign-up-for-massive-all-us-medical-re-1825928022](https://lifehacker.com/should-you-sign-up-for-the-massive-all-of-us-medical-re-1825928022)
+> 原文：<https://lifehacker.com/should-you-sign-up-for-the-massive-all-of-us-medical-re-1825928022>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3Ah23_aa4l0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3Ah23_aa4l0&start=0) 
 

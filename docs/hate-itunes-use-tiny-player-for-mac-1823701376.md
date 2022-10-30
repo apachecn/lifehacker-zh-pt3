@@ -1,6 +1,6 @@
 # 讨厌 iTunes？为 Mac 使用微型播放器
 
-> 原文:[https://life hacker . com/hate-itunes-use-tiny-player-for-MAC-1823701376](https://lifehacker.com/hate-itunes-use-tiny-player-for-mac-1823701376)
+> 原文：<https://lifehacker.com/hate-itunes-use-tiny-player-for-mac-1823701376>
 
 iTunes 很臃肿。如果你只是想像过去一样玩一些 MP3，可以试试 Mac 的小播放器。
 

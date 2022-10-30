@@ -1,6 +1,6 @@
 # 《瑞克和莫蒂》中麦当劳四川酱的 DIY 食谱相当不错
 
-> 原文:[https://life hacker . com/this-DIY-recipe-for-that-McDonalds-Sichuan-sauce-from-1797407452](https://lifehacker.com/this-diy-recipe-for-that-mcdonalds-szechuan-sauce-from-1797407452)
+> 原文：<https://lifehacker.com/this-diy-recipe-for-that-mcdonalds-szechuan-sauce-from-1797407452>
 
 *瑞克和莫蒂*回来了，感谢 [在 4 月](http://www.adultswim.com/videos/rick-and-morty/the-rickshank-rickdemption/) 播出的预告片，对“四川酱”的狂热也回来了，这是一种限量版的鸡块酱，发布来帮助宣传 1998 年迪士尼电影*花木兰*。
 

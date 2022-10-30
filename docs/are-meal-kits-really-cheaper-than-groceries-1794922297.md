@@ -1,6 +1,6 @@
 # 餐包真的比杂货便宜吗？
 
-> 原文:[https://life hacker . com/are-meal-kits-真的比杂货便宜吗-1794922297](https://lifehacker.com/are-meal-kits-really-cheaper-than-groceries-1794922297)
+> 原文：<https://lifehacker.com/are-meal-kits-really-cheaper-than-groceries-1794922297>
 
 蓝色围裙 [声称](http://webcache.googleusercontent.com/search?q=cache:UpxiwFLLUfMJ:try.blueapron.com/bavgsfb/+&cd=1&hl=en&ct=clnk&gl=us&client=ubuntu) 这家杂货店比它的服务“贵 70%”。家庭厨师引用了一个 [电视新闻调查](https://www.homechef.com/skip-the-store?utm_source=facebook&utm_medium=cpc&utm_campaign=FB.PROS.1.F.35.44&voucher=FB30FREE) 发现在食品杂货上略有节余。但后来我看了看我的餐包，发现我每顿饭花了 20 美元，这还不够两个人吃。怎么回事？
 

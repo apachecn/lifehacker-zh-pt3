@@ -1,6 +1,6 @@
 # 你配偶的学生贷款如何影响你
 
-> 原文:[https://life hacker . com/how-your-配偶-学生贷款-影响你-1825223280](https://lifehacker.com/how-your-spouses-student-loans-affect-you-1825223280)
+> 原文：<https://lifehacker.com/how-your-spouses-student-loans-affect-you-1825223280>
 
 千禧一代正在推迟结婚，你听说了吗？虽然一些会说话的人会让你相信智能手机和视频游戏是主要原因，但我认为这更有可能是沉重的学生贷款债务和低薪工作相结合的结果，这是 y 世代许多人的生活。当你几乎无法支付每月学生贷款时，谁愿意为婚礼买单？
 

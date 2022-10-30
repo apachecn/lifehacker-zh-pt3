@@ -1,6 +1,6 @@
 # 我需要一辆能跑得过龙卷风的经济型汽车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-an-affordable-car-can-outrun-a-tornado-wha-1788380072](https://jalopnik.com/i-need-an-affordable-car-that-can-outrun-a-tornado-wha-1788380072)
+> 原文：<https://jalopnik.com/i-need-an-affordable-car-that-can-outrun-a-tornado-wha-1788380072>
 
 伊森搬到了俄克拉荷马州，他的家庭在不断壮大。他不得不放弃他的庞蒂亚克夏至，去追求一些实用的、有趣的东西，以及我只能称之为“俄克拉何马问题”的逃脱龙卷风的能力。他应该买什么车？
 

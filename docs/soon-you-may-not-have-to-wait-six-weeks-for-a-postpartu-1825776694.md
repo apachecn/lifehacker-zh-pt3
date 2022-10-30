@@ -1,6 +1,6 @@
 # 很快，你可能就不用等六个星期去看产后医生了
 
-> 原文:[https://life hacker . com/soon-you-may-not-to-a-postpartu-1825776694](https://lifehacker.com/soon-you-may-not-have-to-wait-six-weeks-for-a-postpartu-1825776694)
+> 原文：<https://lifehacker.com/soon-you-may-not-have-to-wait-six-weeks-for-a-postpartu-1825776694>
 
 在你的孩子出生之前，你会见到你的妇产科医生(或助产士)和他们的工作人员。每月一次的探访变成了两周一次和每周一次，但是一旦孩子出生，你只会得到一句“六周后见”这种情况可能即将改变。
 

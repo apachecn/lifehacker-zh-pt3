@@ -1,6 +1,6 @@
 # 通过对时钟进行颜色编码，让放学后的日常工作变得更容易
 
-> 原文:[https://life hacker . com/make-bedrome-routines-easy-by-color-coding-a-clock-1802975343](https://lifehacker.com/make-bedtime-routines-easier-by-color-coding-a-clock-1802975343)
+> 原文：<https://lifehacker.com/make-bedtime-routines-easier-by-color-coding-a-clock-1802975343>
 
 作为家长，我常常觉得自己就像一个会走的秒表。“再看三分钟电视！”“离刷牙时间还有八分钟！”“离睡觉时间还有 24 分钟！”
 

@@ -1,6 +1,6 @@
 # 均衡器上每个滑块的作用
 
-> 原文:[https://life hacker . com/what-each-slider-on-an-equalizer-does-1818854612](https://lifehacker.com/what-each-slider-on-an-equalizer-does-1818854612)
+> 原文：<https://lifehacker.com/what-each-slider-on-an-equalizer-does-1818854612>
 
 当你通过廉价的耳机或扬声器听音乐时，均衡器将有助于均衡声音。大多数均衡器都带有流派预置，但您也可以手动调整它们。它有助于了解每种频率影响哪种乐器。
 

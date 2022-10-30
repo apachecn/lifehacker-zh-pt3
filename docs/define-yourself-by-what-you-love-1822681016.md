@@ -1,6 +1,6 @@
 # 用你热爱的东西来定义你自己
 
-> 原文:[https://life hacker . com/define-you-you-love-1822681016](https://lifehacker.com/define-yourself-by-what-you-love-1822681016)
+> 原文：<https://lifehacker.com/define-yourself-by-what-you-love-1822681016>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-q5RBG1PadWI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-q5RBG1PadWI&start=0) 
 

@@ -1,6 +1,6 @@
 # 冬奥会选手如何保暖？
 
-> 原文:[https://gizmodo . com/how-do-winter-Olympians-stay-warm-1822914636](https://gizmodo.com/how-do-winter-olympians-stay-warm-1822914636)
+> 原文：<https://gizmodo.com/how-do-winter-olympians-stay-warm-1822914636>
 
 近 3000 名运动员参加了本月的冬季奥运会，可能至少有一对夫妇在诅咒他们决定成为世界级雪橇运动员的那一天: [来自平昌](https://www.nytimes.com/2018/02/08/sports/winter-olympics-cold.html) 的报道列出了零下或接近零下的温度，使今年的比赛成为自 1994 年以来最冷的一次——事实上，在匆忙建造体育场时，韩国的建筑商 [忽略了包括屋顶](http://www.dailymail.co.uk/news/article-5158961/South-Koreas-Winter-Olympics-COLD.html) 。
 

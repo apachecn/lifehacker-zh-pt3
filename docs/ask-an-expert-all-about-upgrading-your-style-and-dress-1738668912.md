@@ -1,6 +1,6 @@
 # 请教专家:提升你的风格，穿得更好
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-upgrading-your-style-and-dress-1738668912](https://lifehacker.com/ask-an-expert-all-about-upgrading-your-style-and-dress-1738668912)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-upgrading-your-style-and-dress-1738668912>
 
 我在生活和工作中的标准制服是 t 恤和牛仔裤，就风格而言，这并不令人着迷。像我这样对着装有挑战的书呆子如何才能学会穿得更好？
 

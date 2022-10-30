@@ -1,6 +1,6 @@
 # 如何在 Twitch 上播放电脑游戏
 
-> 原文:[https://kotaku . com/how-to-stream-PC-games-on-twitch-1821734826](https://kotaku.com/how-to-stream-pc-games-on-twitch-1821734826)
+> 原文：<https://kotaku.com/how-to-stream-pc-games-on-twitch-1821734826>
 
 你是下一个不尊重博士吗？你是你认识的最好的*火箭联盟*球员吗？你没完没了的沙发评论对你的游戏朋友来说是不是太有趣了，以至于他们要求你永远不要停下来？那么，很可能你已经考虑过在 Twitch 上流媒体了。
 

@@ -1,6 +1,6 @@
 # 可能改变你生活的十大 TED 演讲
 
-> 原文:[https://life hacker . com/top-10-ted-talks-that-can-change-your-life-1750618612](https://lifehacker.com/top-10-ted-talks-that-could-change-your-life-1750618612)
+> 原文：<https://lifehacker.com/top-10-ted-talks-that-could-change-your-life-1750618612>
 
 没有比现在更能让我们成长或完善自己的时间了，也没有什么资源像 TED 演讲这样有用。本着这种精神，以下是我们在 Lifehacker 上精选的或者在 TED 上很受欢迎的 10 个 TED 演讲。
 

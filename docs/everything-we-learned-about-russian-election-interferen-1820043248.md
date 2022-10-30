@@ -1,6 +1,6 @@
 # 我们从脸书、推特和谷歌上了解到的关于俄罗斯干涉选举的一切
 
-> 原文:[https://gizmodo . com/everything-we-learn-about-Russian-election-interferen-1820043248](https://gizmodo.com/everything-we-learned-about-russian-election-interferen-1820043248)
+> 原文：<https://gizmodo.com/everything-we-learned-about-russian-election-interferen-1820043248>
 
 推特、脸书和谷歌的代表今天在参议院情报委员会就俄罗斯对他们平台的干扰作证。以下是我们了解到的情况:
 

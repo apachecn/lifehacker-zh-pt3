@@ -1,6 +1,6 @@
 # 你应该购买第三方 iPhone 电源适配器吗？
 
-> 原文:[https://life hacker . com/should-you-buy-a-third-party-iphone-power-adapter-1824262744](https://lifehacker.com/should-you-buy-a-third-party-iphone-power-adapter-1824262744)
+> 原文：<https://lifehacker.com/should-you-buy-a-third-party-iphone-power-adapter-1824262744>
 
 在本周的 [Tech 911](https://lifehacker.com/c/tech-911#_ga=2.256828427.1626577895.1522540410-396842925.1520800403) 上，一位读者来信询问第三方 iPhone 适配器——具体来说，使用第三方适配器会不会让他的设备变成定时炸弹。
 

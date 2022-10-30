@@ -1,6 +1,6 @@
 # 如何建立一个更好的互联网
 
-> 原文:[https://gizmodo . com/how-to-build-a-better-internet-1713735201](https://gizmodo.com/how-to-build-a-better-internet-1713735201)
+> 原文：<https://gizmodo.com/how-to-build-a-better-internet-1713735201>
 
 我每月向时代华纳有线电视公司支付 70 美元的宽带费用，70%的时间都在工作。只是为了好玩，我最近升级到了该公司最好、最快的服务——300 Mbps——你猜怎么着。经过一年的速度测试，我可以自信地说，我没有达到那些速度。永远不会。
 

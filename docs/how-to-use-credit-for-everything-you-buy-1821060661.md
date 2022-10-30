@@ -1,6 +1,6 @@
 # 如何使用信用卡购物
 
-> 原文:[https://life hacker . com/how-to-use-credit-for-everything-you-buy-1821060661](https://lifehacker.com/how-to-use-credit-for-everything-you-buy-1821060661)
+> 原文：<https://lifehacker.com/how-to-use-credit-for-everything-you-buy-1821060661>
 
 大约五年前，我陷入了一些信用卡债务。(总的来说，价值约为 1.4 万美元——我已经全部付清了。)那时我没有挣很多钱；和许多人一样，我用信用卡支付生活必需品(食品杂货)和非绝对必需品，但仍然是我们在事业发展中需要的东西(衣服，新的笔记本电脑)。
 

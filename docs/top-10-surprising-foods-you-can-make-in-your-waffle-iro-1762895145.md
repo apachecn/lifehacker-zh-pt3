@@ -1,6 +1,6 @@
 # 你可以用华夫饼烙铁做出的 10 种令人惊讶的食物
 
-> 原文:[https://life hacker . com/top-10-surprise-foods-you-can-make-in-your-waffle-iro-1762895145](https://lifehacker.com/top-10-surprising-foods-you-can-make-in-your-waffle-iro-1762895145)
+> 原文：<https://lifehacker.com/top-10-surprising-foods-you-can-make-in-your-waffle-iro-1762895145>
 
 是时候掸掉那台被忽视的华夫饼机和华夫饼干了。这里有 10 多种非常适合用华夫饼干机烹饪的食物(不是华夫饼)。
 

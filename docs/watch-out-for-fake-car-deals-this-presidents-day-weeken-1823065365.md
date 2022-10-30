@@ -1,6 +1,6 @@
 # 在这个总统日周末，小心虚假的汽车交易
 
-> 原文:[https://jalopnik . com/watch-for-fake-car-deals-this-presidents-day-weeken-1823065365](https://jalopnik.com/watch-out-for-fake-car-deals-this-presidents-day-weeken-1823065365)
+> 原文：<https://jalopnik.com/watch-out-for-fake-car-deals-this-presidents-day-weeken-1823065365>
 
 由于 2018 年 [被预测为汽车销售放缓的一年](https://jalopnik.com/car-sales-in-2017-weren-t-great-and-the-future-is-looki-1821753824#_ga=2.144027701.1090588317.1518438727-1994775140.1484332562) ，经销商正使出浑身解数让你进入展厅。总统的周末通常是购车的好时机，但是一些所谓的交易并不能真正提供你所期望的省钱。
 

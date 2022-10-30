@@ -1,6 +1,6 @@
 # 如果你打算在日食期间开车，给你一些建议
 
-> 原文:[https://jalopnik . com/some-tips-if-you-plan-on-driving-in-the-solar-eclipse-1797900117](https://jalopnik.com/some-tips-if-you-plan-on-driving-during-the-solar-eclip-1797900117)
+> 原文：<https://jalopnik.com/some-tips-if-you-plan-on-driving-during-the-solar-eclip-1797900117>
 
 嘿书呆子们！8 月 21 日[日全食正向我们走来。准备好一些祭祀未知的神和一般的巫术正在进行。如果你计划在大型活动期间开车兜风，这里有一些小贴士可以帮助你避免任何事故。](http://gizmodo.com/the-best-place-to-view-the-total-solar-eclipse-this-sum-1796448439#_ga=2.189239214.448857232.1502652744-316985032.1443493527)
 

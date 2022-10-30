@@ -1,6 +1,6 @@
 # 在夏洛茨维尔白人至上主义袭击事件后你可以做的六件事
 
-> 原文:[https://life hacker . com/six-things-you-can-do-in-the-wake-the-white-supremac-1797832844](https://lifehacker.com/six-things-you-can-do-in-the-wake-of-the-white-supremac-1797832844)
+> 原文：<https://lifehacker.com/six-things-you-can-do-in-the-wake-of-the-white-supremac-1797832844>
 
 *这幅作品最初出现在劳伦·奥尼尔的电子邮件简讯* [*为非活动家的激进主义*](http://tinyletter.com/activismfornonactivists) *。此处经允许转载。*
 

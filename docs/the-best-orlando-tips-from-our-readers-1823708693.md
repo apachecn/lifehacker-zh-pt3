@@ -1,6 +1,6 @@
 # 来自我们读者的最佳奥兰多小贴士
 
-> 原文:[https://life hacker . com/the-best-Orlando-tips-from-our-readers-1823708693](https://lifehacker.com/the-best-orlando-tips-from-our-readers-1823708693)
+> 原文：<https://lifehacker.com/the-best-orlando-tips-from-our-readers-1823708693>
 
 <extremely-elder-price-in->魔门声音>奥兰多！海洋世界、迪斯尼和打高尔夫球！我们 [向您征集在奥兰多](https://lifehacker.com/tell-us-your-orlando-tips-1823656712) 旅游和生活的建议。(迪士尼世界除外——我们很快就会这么做。)我们收到了 136 条评论；这里有一些最好的。</extremely-elder-price-in-> 
 

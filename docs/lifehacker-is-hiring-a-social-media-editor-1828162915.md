@@ -1,6 +1,6 @@
 # Lifehacker 正在招聘一名社交媒体编辑
 
-> 原文:[https://life hacker . com/life hacker-is-hiring-a-social-media-editor-1828162915](https://lifehacker.com/lifehacker-is-hiring-a-social-media-editor-1828162915)
+> 原文：<https://lifehacker.com/lifehacker-is-hiring-a-social-media-editor-1828162915>
 
 你每天花在推特上的时间比睡觉的时间还多吗？你是一个机智地将最基本的状态更新变成美好事物的脸书忍者吗？你喜欢极客式地研究从如何修拉链到现代礼仪细节的一切细节吗？你是你朋友圈的 MacGyver 吗？
 

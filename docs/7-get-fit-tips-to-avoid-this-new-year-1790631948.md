@@ -1,6 +1,6 @@
 # 今年要避免的 7 个“健身”小贴士
 
-> 原文:[https://gizmodo . com/7-get-fit-tips-to-avoid-this-new-year-1790631948](https://gizmodo.com/7-get-fit-tips-to-avoid-this-new-year-1790631948)
+> 原文：<https://gizmodo.com/7-get-fit-tips-to-avoid-this-new-year-1790631948>
 
 我知道你希望今年身体健康，因为这是最流行的新年决心。很多人也想帮助你，从饮食建议到锻炼建议。他们会告诉你去做一些 [生活方式的改变](http://www.health.com/health/gallery/0,,20766435,00.html) ，去下载 [一个新的应用](http://www.chicagotribune.com/lifestyles/health/sc-cons-0105-fitness-aps-20170103-story.html) ，甚至去买一个 [可穿戴的](http://mashable.com/2017/01/01/best-fitness-tech-for-new-years-resolutions/#AC_3DqDmtOqL) 健身追踪器(顺便说一句，那些 [大概不能用](http://gizmodo.com/that-fitness-tracker-might-actually-make-losing-weight-1786881845#_ga=1.267998222.1471213417.1454946308) )。但是随着大量建议的出现，必然会有不好的建议——那些植根于确认偏差、潮流和除科学证据之外的几乎任何东西的建议。
 

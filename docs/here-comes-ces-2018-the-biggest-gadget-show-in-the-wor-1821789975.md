@@ -1,6 +1,6 @@
 # 世界上最大的电子产品展 CES 2018 来了——期待什么
 
-> 原文:[https://gizmodo . com/here-comes-ces-2018-the-big-gadget-show-in-the-world-1821789975](https://gizmodo.com/here-comes-ces-2018-the-biggest-gadget-show-in-the-wor-1821789975)
+> 原文：<https://gizmodo.com/here-comes-ces-2018-the-biggest-gadget-show-in-the-wor-1821789975>
 
 几天后，超过 175，000 名业内人士、参展商和媒体成员将再次齐聚拉斯维加斯，试图为未来 12 个月的科技发展定下基调。不仅一些世界上最大和最有影响力的公司，如三星、LG、福特和其他公司将出席，拉斯维加斯也将暂时成为比地球上任何其他地方都多的创业公司的所在地，所有人都在争夺可能决定他们羽翼未丰的努力成败的关注。过去的突破包括从 [自动无线吸奶器](https://www.willowpump.com/) 到 [虚拟现实耳机](https://www.vive.com/us/) 的一切，而其他 [大肆宣传的首次亮相](https://jalopnik.com/accidental-billionaire-how-the-outlandish-ambition-of-1820471805) 仍在努力兑现他们的承诺。
 

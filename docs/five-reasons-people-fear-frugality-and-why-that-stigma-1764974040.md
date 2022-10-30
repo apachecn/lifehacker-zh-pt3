@@ -1,6 +1,6 @@
 # 人们害怕节俭的五个原因——以及为什么这种耻辱是错误的
 
-> 原文:[https://life hacker . com/five-reasons-people-fear-节俭和耻辱的原因-1764974040](https://lifehacker.com/five-reasons-people-fear-frugality-and-why-that-stigma-1764974040)
+> 原文：<https://lifehacker.com/five-reasons-people-fear-frugality-and-why-that-stigma-1764974040>
 
 2007 年，当我和莎拉第一次搬进新居时，第一份电费账单令我们震惊。这比我们住在小公寓时习惯的要高得多。我们以前的能源账单大约是每月 80 美元——现在已经超过 300 美元了！
 

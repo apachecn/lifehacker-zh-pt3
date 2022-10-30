@@ -1,6 +1,6 @@
 # 如何观看哈里王子和梅根汗·马克尔的皇家婚礼
 
-> 原文:[https://life hacker . com/how-to-watch-prince-Harry-and-Meghan-markles-wedding-1825782554](https://lifehacker.com/how-to-watch-prince-harry-and-meghan-markles-wedding-1825782554)
+> 原文：<https://lifehacker.com/how-to-watch-prince-harry-and-meghan-markles-wedding-1825782554>
 
 5 月 19 日，梅根汗·马克尔和哈里王子将在温莎城堡内的圣乔治教堂走红毯。
 

@@ -1,6 +1,6 @@
 # 这是太阳能电池板的工作原理
 
-> 原文:[https://life hacker . com/here-s-how-solar-panels-work-1820114664](https://lifehacker.com/here-s-how-solar-panels-work-1820114664)
+> 原文：<https://lifehacker.com/here-s-how-solar-panels-work-1820114664>
 
 本月早些时候，特斯拉首席执行官埃隆·马斯克 [在推特上表示愿意帮助](https://twitter.com/elonmusk/status/915939199718531072) 重建被飓风玛利亚破坏的波多黎各电网。果然不出所料， [公司向圣胡安的儿童医院德尔尼诺医院提供了太阳能电池板和电池存储阵列](https://twitter.com/Tesla/status/922840234143952899?ref_src=twsrc%5Etfw&ref_url=https%3A%2F%2Fwww.theverge.com%2F2017%2F10%2F24%2F16536972%2Ftesla-puerto-rico-hurricane-relief-solar-power-storage) 。
 

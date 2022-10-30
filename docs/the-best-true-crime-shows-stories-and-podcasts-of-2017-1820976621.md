@@ -1,6 +1,6 @@
 # 2017 年最佳真实犯罪节目、故事和播客
 
-> 原文:[https://life hacker . com/the-best-true-crime-shows-stories-and-podcast-of-2017-1820976621](https://lifehacker.com/the-best-true-crime-shows-stories-and-podcasts-of-2017-1820976621)
+> 原文：<https://lifehacker.com/the-best-true-crime-shows-stories-and-podcasts-of-2017-1820976621>
 
 假日季节可能是糖精过量——想想女继承人桑尼·冯·布洛的例子，她在 1982 年的圣诞节庆祝活动后陷入昏迷状态，再也没有醒来。当局指控她的丈夫克劳斯试图通过给她注射胰岛素来谋杀她。克劳斯坚持认为，像我们许多人一样，桑妮只是在节日庆祝活动中吃得太多了——她喝了一杯蛋酒/巴比妥酸盐鸡尾酒。一个陪审团裁定克劳斯有罪。另一个发现他是无辜的。桑尼于 2008 年去世，当时仍处于昏迷状态。一部非常好的电影《命运逆转》就是围绕这一事件拍摄的。这是一部比*《真爱至上》*、*《第 34 街的奇迹》*或我能想到的任何其他圣诞电影都好的电影，也许除了 *Kiss Kiss、Bang Bang* 。
 

@@ -1,6 +1,6 @@
 # 通过告诉自己写得不好来欺骗自己写得好
 
-> 原文:[https://life hacker . com/trick-you-into-writing-well-by-telling-yourself-to 1820146364](https://lifehacker.com/trick-yourself-into-writing-well-by-telling-yourself-to-1820146364)
+> 原文：<https://lifehacker.com/trick-yourself-into-writing-well-by-telling-yourself-to-1820146364>
 
 NaNoWriMo 或任何可怕的最后期限的最大好处之一是，它迫使你快速写作。(你们好，拖延者。)如果你写得很快——如果写得快是你的既定目标——那么你就没有时间去做打断你写作流程的第一件事:想想你写的东西是否好。
 

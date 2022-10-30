@@ -1,6 +1,6 @@
 # 抑郁时如何养活自己
 
-> 原文:[https://life hacker . com/how-to-feed-you-when-you-really-depressed-1823560127](https://lifehacker.com/how-to-feed-yourself-when-youre-really-depressed-1823560127)
+> 原文：<https://lifehacker.com/how-to-feed-yourself-when-youre-really-depressed-1823560127>
 
 抑郁症以一种偷偷摸摸的方式渗透到你生活的方方面面，让你对任何方面都不在乎。是的，这包括食物。吃是生命的先决条件，所以对许多人来说，它是抑郁发作的第一批受害者，这是有悖常理的。
 

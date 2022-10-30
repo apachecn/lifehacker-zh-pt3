@@ -1,6 +1,6 @@
 # 告诉我们你最好的纽约罗切斯特旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-rochester-ny-travel-tips-1829228745](https://lifehacker.com/tell-us-your-best-rochester-ny-travel-tips-1829228745)
+> 原文：<https://lifehacker.com/tell-us-your-best-rochester-ny-travel-tips-1829228745>
 
 腐败已经进入黑客你的城市专栏。纽约州的罗切斯特可能没有匹兹堡、T2、T4、T5、布拉格和明尼苏达州的罗切斯特同名，但它是我的家乡。所以，当读者克里斯·克莱门斯(纽约旅游博客 [探索北部](https://exploringupstate.com/) 的创始人)向我索要《黑掉你的城市》的罗切斯特版时，我就像喝醉了的红翼粉丝一样吃光了一个 [垃圾盘子](http://www.visitrochester.com/blog/post/rochester-garbage-plate/) 。Rochesterians，我想听听你们对参观和居住在布法罗的另一半的建议。
 

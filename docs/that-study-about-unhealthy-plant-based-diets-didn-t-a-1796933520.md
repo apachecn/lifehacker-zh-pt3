@@ -1,6 +1,6 @@
 # 那项关于不健康的“植物性饮食”的研究实际上并没有比较植物性饮食
 
-> 原文:[https://life hacker . com/that-study-about-healthy-plant-based-diets-not-t-a-1796933520](https://lifehacker.com/that-study-about-unhealthy-plant-based-diets-didn-t-a-1796933520)
+> 原文：<https://lifehacker.com/that-study-about-unhealthy-plant-based-diets-didn-t-a-1796933520>
 
 如果你吃植物性饮食，你不会得到一张自动摆脱心脏病的卡片。(绝对有素食垃圾食品这种东西。)但是一项新的研究证实了一些植物性饮食比其他的更好...实际上根本没有比较植物性饮食。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:9 月 4 日至 11 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-9 月 4 日至 11 日-1730060001](https://lifehacker.com/this-weeks-most-popular-posts-september-4th-to-11th-1730060001)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-september-4th-to-11th-1730060001>
 
 这一周都是关于智能手机的:苹果更新的设备，升级你的 iPhone 的最佳时间，将你的手机安装在汽车上，等等。加上我们表达了对铝箔的喜爱。这里回顾一下。
 

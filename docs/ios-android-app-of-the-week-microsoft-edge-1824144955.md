@@ -1,6 +1,6 @@
 # 本周 iOS/Android 应用:微软 Edge
 
-> 原文:[https://life hacker . com/IOs-Android-app-of-the-week-Microsoft-edge-1824144955](https://lifehacker.com/ios-android-app-of-the-week-microsoft-edge-1824144955)
+> 原文：<https://lifehacker.com/ios-android-app-of-the-week-microsoft-edge-1824144955>
 
 如果你以任何身份使用微软的 Edge 浏览器，恭喜你！你非常罕见，以至于像 [Statcounter](http://gs.statcounter.com/browser-market-share) 这样的服务甚至没有把你的浏览器列入前六名。
 

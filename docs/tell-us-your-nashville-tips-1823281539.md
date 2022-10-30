@@ -1,6 +1,6 @@
 # 告诉我们你的纳什维尔建议
 
-> 原文:[https://life hacker . com/tell-us-your-Nashville-tips-1823281539](https://lifehacker.com/tell-us-your-nashville-tips-1823281539)
+> 原文：<https://lifehacker.com/tell-us-your-nashville-tips-1823281539>
 
 纳什维尔有比纽约更好的绰号:卡什维尔、音乐之城、圣经带扣、南方的雅典、1352 名吉他弹奏者的家乡。根据你最喜欢的东西，你会给它起什么名字？对你来说，是什么让它与其他城市不同？
 

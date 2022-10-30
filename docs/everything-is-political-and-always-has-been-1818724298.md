@@ -1,6 +1,6 @@
 # 一切都是政治性的，从来都是
 
-> 原文:[https://life hacker . com/everything-is-political-and-always-hacker 1818724298](https://lifehacker.com/everything-is-political-and-always-has-been-1818724298)
+> 原文：<https://lifehacker.com/everything-is-political-and-always-has-been-1818724298>
 
 周日，大多数钢人队成员都没有参加国歌演奏，此前 [总统川普就国歌演奏期间球员应该做什么发表了意见](http://www.chicagotribune.com/news/nationworld/politics/ct-trump-nfl-anthem-protest-20170922-story.html) 。钢人队教练 [迈克·汤姆林说](https://www.washingtonpost.com/amphtml/news/early-lead/wp/2017/09/24/were-not-going-to-play-politics-steelers-mike-tomlin-says-team-wont-take-the-field-for-anthem/) “我们不会玩政治。”然而，这是不可能的。
 

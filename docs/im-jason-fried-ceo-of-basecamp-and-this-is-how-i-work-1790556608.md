@@ -1,6 +1,6 @@
 # 我是杰森·弗里德，Basecamp 的首席执行官，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Jason-fried-base camp-and-this-how-I-work-1790556608](https://lifehacker.com/im-jason-fried-ceo-of-basecamp-and-this-is-how-i-work-1790556608)
+> 原文：<https://lifehacker.com/im-jason-fried-ceo-of-basecamp-and-this-is-how-i-work-1790556608>
 
 [Basecamp](https://basecamp.com/) 是一款基于网络的项目管理工具，就像它之前的许多其他软件工具和创业公司一样，Basecamp 的创造者为自己打造了它。他们只是需要一种体面的方式来管理项目和协作。只是刚好其他人也想用。
 

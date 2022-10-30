@@ -1,6 +1,6 @@
 # 不要抛弃你的 Galaxy S7，给它一个(Android 8.0)奥利奥吧
 
-> 原文:[https://life hacker . com/don-ditch-your-galaxy-S7-give-it-an-Android-8-0-ore-1825656496](https://lifehacker.com/dont-ditch-your-galaxy-s7-give-it-an-android-8-0-ore-1825656496)
+> 原文：<https://lifehacker.com/dont-ditch-your-galaxy-s7-give-it-an-android-8-0-ore-1825656496>
 
 Android:距离三星推出 [Galaxy S7](https://www.lifehacker.com.au/2017/03/ask-lh-should-i-buy-samsungs-galaxy-s7-or-wait-for-the-s8/) 和 Galaxy S7 Edge 已经过去两年多一点了。如果你还在使用你的设备，你可能会渴望升级到新设备——特别是因为三星仍然没有将 S7 智能手机升级到 [安卓 8.0 奥利奥](https://lifehacker.com/android-oreo-is-rolling-out-to-the-galaxy-note-8-1824242086) 。不过，先不要扔掉你的旧设备；你的曲奇可能比你想象的要快。
 

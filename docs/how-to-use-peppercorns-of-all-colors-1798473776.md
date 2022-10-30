@@ -1,6 +1,6 @@
 # 如何使用各种颜色的胡椒粒
 
-> 原文:[https://life hacker . com/how-to-use-pepper sons-of-all-colors-1798473776](https://lifehacker.com/how-to-use-peppercorns-of-all-colors-1798473776)
+> 原文：<https://lifehacker.com/how-to-use-peppercorns-of-all-colors-1798473776>
 
 在整个烹饪王国，有许多食物搭配得非常好，盐和胡椒可能是最具代表性的。这两者几乎给你去过的每一道菜、每一份食谱、每一张桌子和每一个调味品酒吧增添了光彩。但是为什么呢？不要误解我的意思，黑胡椒有它的位置——我喜欢墨西哥鱼片、黑胡椒伏特加，当然还有松脆的黑胡椒薯片——但还有其他不太常用的胡椒粒，你应该知道它们。外面有一个色彩多样的世界，你应该品尝那道辛辣的彩虹。
 

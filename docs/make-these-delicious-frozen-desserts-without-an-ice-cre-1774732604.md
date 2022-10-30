@@ -1,6 +1,6 @@
 # 不用冰淇淋机制作这些美味的冷冻甜点
 
-> 原文:[https://life hacker . com/make-these-delicious-free-an-ice-cre-1774732604](https://lifehacker.com/make-these-delicious-frozen-desserts-without-an-ice-cre-1774732604)
+> 原文：<https://lifehacker.com/make-these-delicious-frozen-desserts-without-an-ice-cre-1774732604>
 
 天气变暖了，我的思想转向了冰淇淋。自己动手制作冰冻甜点会有额外的满足感，但并不是每个人都有冰淇淋机。让我们来看几个我们最喜欢的冷冻甜点，它们不需要任何特殊设备就可以制作出来。
 

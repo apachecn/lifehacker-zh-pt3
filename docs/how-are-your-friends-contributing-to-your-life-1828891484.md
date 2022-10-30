@@ -1,6 +1,6 @@
 # 你的朋友对你的生活有什么贡献？
 
-> 原文:[https://life hacker . com/how-are-your-friends-contribution-to-your-life-1828891484](https://lifehacker.com/how-are-your-friends-contributing-to-your-life-1828891484)
+> 原文：<https://lifehacker.com/how-are-your-friends-contributing-to-your-life-1828891484>
 
 亲密的朋友是无价的。这并不意味着你不能评估他们的价值。
 

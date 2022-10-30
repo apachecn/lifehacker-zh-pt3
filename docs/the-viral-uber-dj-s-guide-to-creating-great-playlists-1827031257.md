@@ -1,6 +1,6 @@
 # 病毒优步 DJ 的指南创建伟大的播放列表
 
-> 原文:[https://life hacker . com/the-viral-Uber-DJ-s-guide-to-creating-great-playlists-1827031257](https://lifehacker.com/the-viral-uber-dj-s-guide-to-creating-great-playlists-1827031257)
+> 原文：<https://lifehacker.com/the-viral-uber-dj-s-guide-to-creating-great-playlists-1827031257>
 
 每次开派对，我都会花一个小时建立一个播放列表，想象我的客人们都在喘气、跳舞、伸手拿 Shazam。相反，他们忽略音乐，直到有人接管蓝牙扬声器。所以我向大学生 [、Tj·琼斯](https://twitter.com/TEEJUS___) 寻求帮助，他们在今年二月发了一条微博，分享了他们用来给他们所有的优步和 Lyft 乘客分类的 11 个播放列表，比如“ [、安静的苹果、](https://open.spotify.com/user/1233130761/playlist/05WqgKxtpOYCKS2jxpN4mx?si=3slaCRgiTx2R8pTGJEy3-A) 、、[他妈的潮人](https://open.spotify.com/user/1233130761/playlist/16G2C6037YjZ6IDfPpFRiu?si=SSFEDLH-S9a7fcmDYz8IyA)、、、[看起来喜欢说唱的白人帅哥](https://open.spotify.com/user/1233130761/playlist/1vu4qw8WgRXE3PRuGVuHKT?si=rF_HTF9VRveYjTzrrfgxxg)、:
 

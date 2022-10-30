@@ -1,6 +1,6 @@
 # 桌面桌面
 
-> 原文:[https://lifehacker.com/the-desktop-desktop-1786063864](https://lifehacker.com/the-desktop-desktop-1786063864)
+> 原文：<https://lifehacker.com/the-desktop-desktop-1786063864>
 
 我对那些看起来像台式机的台式机情有独钟。亚历克的桌面非常符合要求，实际上看起来像一个桌面，物品放在角落里，但仍然有足够的空间来实际工作，并进行一些定制，使其个性化。
 

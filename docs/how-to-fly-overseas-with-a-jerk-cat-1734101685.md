@@ -1,6 +1,6 @@
 # 如何带着一只蠢猫飞向海外
 
-> 原文:[https://Jezebel . com/how-to-fly-overseas-a-jerk-cat-1734101685](https://jezebel.com/how-to-fly-overseas-with-a-jerk-cat-1734101685)
+> 原文：<https://jezebel.com/how-to-fly-overseas-with-a-jerk-cat-1734101685>
 
 有大量关于带狗进行国际旅行的信息。如果你要去国外，显然你会带上 Fido。但是和猫一起旅行？我们似乎不怎么谈论这个。这是为什么呢？猫不配环游世界吗？我觉得不是！
 

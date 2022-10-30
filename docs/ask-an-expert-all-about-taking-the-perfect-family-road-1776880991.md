@@ -1,6 +1,6 @@
 # 问专家:关于完美的家庭自驾游
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-take-the-perfect-family-road-1776880991](https://lifehacker.com/ask-an-expert-all-about-taking-the-perfect-family-road-1776880991)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-taking-the-perfect-family-road-1776880991>
 
 美好的老式公路旅行是童年最典型的美国部分之一。全家人挤进车里，前往他们的度假目的地，也许去国家公园露营，或者去一些更有趣的地方，比如沃利世界。但是和全家一起旅行并不总是一件简单的事情！
 

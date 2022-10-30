@@ -1,6 +1,6 @@
 # 2018 年 7 月 16 日这一周，网飞发生了什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-16-1827282541](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-16-1827282541)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-16-1827282541>
 
 网飞神秘地对来自新西兰记者兼电影制作人大卫·法里尔的新纪录片《黑暗游客》保持沉默(7 月 20 日)。法瑞尔因探索互联网令人不安的角落而在美国成名——见他 2016 年令人难忘的纪录片[](https://www.hbo.com/documentaries/tickled)*[这是对 YouTube 上被剥削儿童的令人毛骨悚然的探索](https://thespinoff.co.nz/society/21-11-2016/hello-my-name-is-ally-how-children-are-being-exploited-by-youtube-predators/) 。* 
 

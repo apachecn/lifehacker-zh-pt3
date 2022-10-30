@@ -1,6 +1,6 @@
 # 你可以把 GoPro 绑在这辆新的风火轮车上，一起玩你所有的危险特技
 
-> 原文:[https://gizmodo . com/you-can-strap-a-go pro-to-this-new-hot-wheels-car-and-ri-1826496004](https://gizmodo.com/you-can-strap-a-gopro-to-this-new-hot-wheels-car-and-ri-1826496004)
+> 原文：<https://gizmodo.com/you-can-strap-a-gopro-to-this-new-hot-wheels-car-and-ri-1826496004>
 
 从场外观看比赛永远不会像坐在驾驶座上那样有趣，考虑到这一显而易见的智慧，Mattel 与 GoPro 合作开发了一款新的兼容相机的风火轮汽车，让孩子和成年人体验在标志性的橙色塑料跑道上飞驰的感觉。这也是你可能不得不在不毁坏你的车的情况下穿越垂直环路的唯一机会。
 

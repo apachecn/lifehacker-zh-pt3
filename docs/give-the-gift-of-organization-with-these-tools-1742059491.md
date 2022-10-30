@@ -1,6 +1,6 @@
 # 用这些工具给予组织的礼物
 
-> 原文:[https://life hacker . com/give-the-give-gift-of-organization-with these-tools-1742059491](https://lifehacker.com/give-the-gift-of-organization-with-these-tools-1742059491)
+> 原文：<https://lifehacker.com/give-the-gift-of-organization-with-these-tools-1742059491>
 
 如果你知道有人正准备去旅行，想整理一下他们的家，或者为他们混乱的电缆争吵，我们会帮你解决。这些礼物可以帮助你生活中最混乱的人实现组织涅槃。
 

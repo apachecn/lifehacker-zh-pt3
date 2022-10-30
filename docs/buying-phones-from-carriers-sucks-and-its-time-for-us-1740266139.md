@@ -1,6 +1,6 @@
 # 从运营商那里买手机很糟糕，我们是时候停止了
 
-> 原文:[https://life hacker . com/buying-phones-from-carriers-sucks-and-its-time-for-us-1740266139](https://lifehacker.com/buying-phones-from-carriers-sucks-and-its-time-for-us-1740266139)
+> 原文：<https://lifehacker.com/buying-phones-from-carriers-sucks-and-its-time-for-us-1740266139>
 
 多年来，购买手机的唯一正当途径是向你的运营商购买。那些日子已经过去了。现在，在许多情况下，直接买手机并永远抛弃合约同样容易，而且通常更好。
 

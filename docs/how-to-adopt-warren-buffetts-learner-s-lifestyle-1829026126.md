@@ -1,6 +1,6 @@
 # 如何采纳沃伦·巴菲特的“学习者的生活方式”
 
-> 原文:[https://life hacker . com/how-to-adopt-Warren-Buffett-learner-s-life style-1829026126](https://lifehacker.com/how-to-adopt-warren-buffetts-learner-s-lifestyle-1829026126)
+> 原文：<https://lifehacker.com/how-to-adopt-warren-buffetts-learner-s-lifestyle-1829026126>
 
 [Get Ready To...](https://worksmarter.kinja.com)) : title[![](../Images/6df5a12c55ead4b12ad20872c9620c3d.png)](https://worksmarter.kinja.com)[Get Ready To...](https://worksmarter.kinja.com)Running a small business is hard work, but we're here to help. Welcome to Work Smarter, your one-stop-shop for tips and tricks to help small business owners save time and energy.
 

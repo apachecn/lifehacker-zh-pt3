@@ -1,6 +1,6 @@
 # 挑选一些值得期待的东西
 
-> 原文:[https://life hacker . com/pick-something-to-look-forward-to-1827443275](https://lifehacker.com/pick-something-to-look-forward-to-1827443275)
+> 原文：<https://lifehacker.com/pick-something-to-look-forward-to-1827443275>
 
 我们已经讨论过冻结 [支出](https://twocents.lifehacker.com/howd-you-do-on-your-month-long-financial-detox-1823370993) ，允许我们自己不时地购买 [好东西](https://twocents.lifehacker.com/its-ok-to-buy-the-damn-coffee-1825722875) 以及描绘我们的 [金钱目标](https://twocents.lifehacker.com/whats-your-2018-money-goal-1821064068) ，所有这些都有助于让我们以正确的财务心态去 [存钱](https://twocents.lifehacker.com/the-best-advice-for-saving-as-much-as-you-can-1821196524) 。我喜欢的另一个策略是通过挑选一些期待的东西来克服即时满足的冲动。
 

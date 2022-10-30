@@ -1,6 +1,6 @@
 # 哪里可以找到更多样的库存照片
 
-> 原文:[https://life hacker . com/where-to-find-more-diversity-stock-photos-1818506868](https://lifehacker.com/where-to-find-more-diverse-stock-photos-1818506868)
+> 原文：<https://lifehacker.com/where-to-find-more-diverse-stock-photos-1818506868>
 
 很容易找到苗条白人做老套活动的照片——女人独自笑着沙拉 之类的。如果这不是你要找的，我们可以推荐一些打破常规的网站吗？
 

@@ -1,6 +1,6 @@
 # 在简历上列出可衡量的成就，而不仅仅是责任
 
-> 原文:[https://life hacker . com/list-measurable-achievements-on-your-resume-not-jus-1825290597](https://lifehacker.com/list-measurable-accomplishments-on-your-resume-not-jus-1825290597)
+> 原文：<https://lifehacker.com/list-measurable-accomplishments-on-your-resume-not-jus-1825290597>
 
 简单地在简历上列出你过去的工作职责对招聘经理来说，就像说明你精通微软办公套件一样有帮助。如今，雇主们希望看到有分寸的结果。
 

@@ -1,6 +1,6 @@
 # 你可以吃可持续的海鲜而不会讨厌自己——以及应该避免什么
 
-> 原文:[https://life hacker . com/the-sustainable-seafood-you-can-eat-you-not-hatting-your-1795817823](https://lifehacker.com/the-sustainable-seafood-you-can-eat-without-hating-your-1795817823)
+> 原文：<https://lifehacker.com/the-sustainable-seafood-you-can-eat-without-hating-your-1795817823>
 
 海鲜是美味的，海鲜是有趣的，但是吃太多错误的种类，我们的孙子将没有。
 

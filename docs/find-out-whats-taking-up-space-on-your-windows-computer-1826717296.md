@@ -1,6 +1,6 @@
 # 使用 Wiztree 找出占用 Windows 计算机空间的内容
 
-> 原文:[https://life hacker . com/find-out-what-taking-space-on-your-windows-computer-1826717296](https://lifehacker.com/find-out-whats-taking-up-space-on-your-windows-computer-1826717296)
+> 原文：<https://lifehacker.com/find-out-whats-taking-up-space-on-your-windows-computer-1826717296>
 
 Windows:大多数电脑爱好者都知道 [WinDirStat](https://lifehacker.com/windows-app-of-the-week-windirstat-1825098404) ，这是一个非常有用的工具，可以显示哪些文件夹和文件占用了你的硬盘空间。这是一个必须拥有的应用程序，因为你会惊讶——见鬼，*我已经*惊讶过——多少次你可能会在你的桌面上发现一些随机的、三重掩埋的文件夹，它们占用了不适当的空间。
 

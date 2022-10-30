@@ -1,6 +1,6 @@
 # 现在就去你的 PlayStation 上设置两步验证吧
 
-> 原文:[https://kotaku . com/go-set-up-two-step-verification-on-your-PlayStation-rig-1785733056](https://kotaku.com/go-set-up-two-step-verification-on-your-playstation-rig-1785733056)
+> 原文：<https://kotaku.com/go-set-up-two-step-verification-on-your-playstation-rig-1785733056>
 
 今天早上，索尼悄悄地在 PlayStation 网络中添加了两步验证，允许用户为他们的 PS4，PS3 和 Vita 帐户增加一层额外的安全保护。最后。
 

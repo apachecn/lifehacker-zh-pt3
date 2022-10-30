@@ -1,6 +1,6 @@
 # 这个网络应用程序会帮你整理离婚文件
 
-> 原文:[https://life hacker . com/this-we b-app-files-you-diffuse-papers-for-you-1822480295](https://lifehacker.com/this-web-app-files-your-divorce-papers-for-you-1822480295)
+> 原文：<https://lifehacker.com/this-web-app-files-your-divorce-papers-for-you-1822480295>
 
 无论多么友好，离婚都是艰难的——也是昂贵的。决定离婚是一个巨大的决定，随之而来的是另一个大问题:你怎么做？
 

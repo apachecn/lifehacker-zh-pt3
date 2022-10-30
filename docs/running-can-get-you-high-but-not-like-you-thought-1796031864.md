@@ -1,6 +1,6 @@
 # 跑步可以让你兴奋——但不像你想的那样
 
-> 原文:[https://life hacker . com/running-can-get-you-high-not-like-you-though-1796031864](https://lifehacker.com/running-can-get-you-high-but-not-like-you-thought-1796031864)
+> 原文：<https://lifehacker.com/running-can-get-you-high-but-not-like-you-thought-1796031864>
 
 与你(或你的教练)可能相信的相反，内啡肽对你在长跑后感到的头晕目眩的精力充沛没有责任。与这种受欢迎的感觉相关联的是让你真正兴奋的东西:大麻。
 

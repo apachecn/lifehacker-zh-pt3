@@ -1,6 +1,6 @@
 # 使用你的亚马逊 Echo 来玩这些选择你自己的冒险游戏
 
-> 原文:[https://life hacker . com/use-your-Amazon-echo-to-play-these-choose-your-own-adve-1820188207](https://lifehacker.com/use-your-amazon-echo-to-play-these-choose-your-own-adve-1820188207)
+> 原文：<https://lifehacker.com/use-your-amazon-echo-to-play-these-choose-your-own-adve-1820188207>
 
 BBC 周一宣布了一个很酷的新 [亚马逊 Alexa 技能](https://lifehacker.com/the-first-alexa-skills-to-enable-on-your-new-amazon-ech-1796841634) :互动讲故事。“”讲述了一个黑暗搞笑的科幻故事，一路上问你问题，把你置身于行动当中。
 

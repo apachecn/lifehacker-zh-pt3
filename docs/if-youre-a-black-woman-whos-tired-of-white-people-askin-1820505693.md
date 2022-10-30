@@ -1,6 +1,6 @@
 # 如果你是一个厌倦了白人摸你头发的黑人女性，有一个游戏可以满足你
 
-> 原文:[https://www . the root . com/if-you-a-black-woman-whos-fat-of-white-people-askin-1820505693](https://www.theroot.com/if-youre-a-black-woman-whos-tired-of-white-people-askin-1820505693)
+> 原文：<https://www.theroot.com/if-youre-a-black-woman-whos-tired-of-white-people-askin-1820505693>
 
 作为黑人女性，我们偶尔会遇到白人要求摸我们的头发。不管她们是对卷发、卷发还是复杂的发型着迷，在黑人女性的生活中，总有那么一段时间，她会觉得自己像是在一个毛发抚摸动物园里被展示。当别人问你是否可以摸摸你的头发时，你可能会有一种想拍别人手的冲动，但你没有。严格来说，我打过几个人，但那不是头发也不是那里(双关语)。不过，现在有一个游戏可以让你做到这一点。
 

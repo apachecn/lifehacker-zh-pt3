@@ -1,6 +1,6 @@
 # 你真的能用蛋糕粉做饼干吗？
 
-> 原文:[https://life hacker . com/can-you-really-make-cookies-from-cake-mix-1819944907](https://lifehacker.com/can-you-really-make-cookies-from-cake-mix-1819944907)
+> 原文：<https://lifehacker.com/can-you-really-make-cookies-from-cake-mix-1819944907>
 
 欢迎回到周日营养，这个专栏强调如何用尽可能少的工作做出美味的食物。作为一个专门写懒人餐专栏的人，我看到了很多“简单”和“容易”菜肴的食谱和视频..大多数都是从头顶的角度拍摄的，包括太多的 F 级奶酪和牧场调料，甚至不合我的口味，但我在深夜浏览 Imgur 的正常过程中发现了一些东西。
 

@@ -1,6 +1,6 @@
 # 如何选择谁得到最后一份食物
 
-> 原文:[https://life hacker . com/how-to-choose-who-get-the last-piece-food-1821065617](https://lifehacker.com/how-to-choose-who-gets-the-last-piece-of-food-1821065617)
+> 原文：<https://lifehacker.com/how-to-choose-who-gets-the-last-piece-of-food-1821065617>
 
 在晚宴或家庭式外出就餐时，谁得到最后一块食物？在 [这份晚宴指南书*的摘录中，早午餐是地狱*](http://www.wbur.org/hereandnow/2017/12/04/brunch-is-hell) ，Rico Gagliano 和 Brendan Francis Newnam 列出了三个典型的糟糕解决方案(没有人吃，每个人都分享一小口，一个“阿尔法客人”狼吞虎咽)，然后提出了一个机智的五点计划来奖励最后一块。
 

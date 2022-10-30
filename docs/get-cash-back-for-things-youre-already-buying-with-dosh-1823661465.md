@@ -1,6 +1,6 @@
 # 用 Dosh 购买的商品可获得现金返还
 
-> 原文:[https://life hacker . com/get-cash-back-for-things-you-been-buying with-dosh-1823661465](https://lifehacker.com/get-cash-back-for-things-youre-already-buying-with-dosh-1823661465)
+> 原文：<https://lifehacker.com/get-cash-back-for-things-youre-already-buying-with-dosh-1823661465>
 
 在我从一个自由奔放的 20 多岁的人转变为一个老妇人的过程中，我沉迷于现金返还的机会。我肯定不像有些人那样热衷于此，但如果有一个我可以用于零售商的打卡或积分系统，最终让我获得折扣或免费的东西，你可以更好地相信我正在参与。
 

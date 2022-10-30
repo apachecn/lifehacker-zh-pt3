@@ -1,6 +1,6 @@
 # 如何在一辆旧车(或一辆更新、更花哨的车)上设置蓝牙
 
-> 原文:[https://life hacker . com/how-to-set-up-an-older-car-or-a-new-fu-1828220585](https://lifehacker.com/how-to-set-up-bluetooth-in-an-older-car-or-a-newer-fu-1828220585)
+> 原文：<https://lifehacker.com/how-to-set-up-bluetooth-in-an-older-car-or-a-newer-fu-1828220585>
 
 也许你买了一部全新的手机；也许你的手机刚刚经历了一次重大的操作系统更新。无论哪种方式，结果都是一样的:你不能再通过蓝牙将它连接到你的旧车上，这意味着你已经失去了摇滚、用播客充实自己或打免提电话的能力。
 

@@ -1,6 +1,6 @@
 # 新的 Raspberry Pi 操作系统在这里，它看起来很棒
 
-> 原文:[https://life hacker . com/the-new-raspberry-pi-OS-is-here-and-it-looks-great-1787194540](https://lifehacker.com/the-new-raspberry-pi-os-is-here-and-it-looks-great-1787194540)
+> 原文：<https://lifehacker.com/the-new-raspberry-pi-os-is-here-and-it-looks-great-1787194540>
 
 树莓派的主要操作系统 Raspbian 刚刚从 [树莓派基金会](https://www.raspberrypi.org/blog/introducing-pixel/) 获得了全新的外观。它被称为 PIXEL，是 Raspbian 的一个皮肤，使界面现代化，增加了一些新程序，使用起来更加舒适。你甚至可以在你的电脑或者苹果电脑上运行。让我们仔细看看你的 Pi 的新外观。
 

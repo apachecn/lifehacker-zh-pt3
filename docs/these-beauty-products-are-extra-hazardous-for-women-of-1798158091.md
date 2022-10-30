@@ -1,6 +1,6 @@
 # 这些美容产品对有色人种女性来说格外危险
 
-> 原文:[https://life hacker . com/these-beauty-products-is-extra-hazard-for-women-of-1798158091](https://lifehacker.com/these-beauty-products-are-extra-hazardous-for-women-of-1798158091)
+> 原文：<https://lifehacker.com/these-beauty-products-are-extra-hazardous-for-women-of-1798158091>
 
 化妆品公司 [很少为有色人种女性](https://jezebel.com/the-makeup-industrys-frustrating-cycle-of-struggle-and-1782880385) 提供足够的颜色还不够糟糕，一项新的审查发现，有色人种女性还面临个人护理产品不安全化学物质暴露的最大风险。
 

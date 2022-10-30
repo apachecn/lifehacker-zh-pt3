@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 3 日至 10 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 3 日至 10 日-1792219119](https://lifehacker.com/this-weeks-most-popular-posts-february-3rd-to-10th-1792219119)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-3rd-to-10th-1792219119>
 
 本周，我们学习了如何在政治进程中保持活跃，以及如何在电话被关闭的情况下联系国会议员，分享了一些我们失败的生活黑客尝试，讨论了如何在新的关系中处理情人节，等等。这里回顾一下。
 

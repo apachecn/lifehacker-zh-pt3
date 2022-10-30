@@ -1,6 +1,6 @@
 # 为拉通磨刀器辩护
 
-> 原文:[https://life hacker . com/in-defense-of-pull-through-knife-sharpeners-1797860631](https://lifehacker.com/in-defense-of-pull-through-knife-sharpeners-1797860631)
+> 原文：<https://lifehacker.com/in-defense-of-pull-through-knife-sharpeners-1797860631>
 
 一把锋利的刀可以打造一个安全的厨房，但是外面有太多相互冲突的思想流派，学习如何磨自己的刀会让人不知所措。我的哲学是:我是厨师，不是铁匠。我需要一种快速、可靠的磨刀方法，因为我在五金店磨刀时没有备用刀可用，而且我不在乎花几十年时间来掌握磨刀的艺术。因为这个原因，我很喜欢拉式磨刀器。如果你也是，我在这里验证你。
 

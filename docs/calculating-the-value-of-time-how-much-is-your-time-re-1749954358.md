@@ -1,6 +1,6 @@
 # 计算时间的价值:你的时间到底值多少钱？
 
-> 原文:[https://life hacker . com/calculating-the-value-of-time-how-are-1749954358](https://lifehacker.com/calculating-the-value-of-time-how-much-is-your-time-re-1749954358)
+> 原文：<https://lifehacker.com/calculating-the-value-of-time-how-much-is-your-time-re-1749954358>
 
 不是所有时间的使用都是相同的，这个简单的事实可以在生活中产生很大的不同。了解如何最大限度地利用你的时间，首先要知道——确切地说——你的时间值多少钱。以下是如何有条不紊地找出你时间的价值。
 

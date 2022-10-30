@@ -1,6 +1,6 @@
 # 速溶土豆是快速美味汤团的关键
 
-> 原文:[https://life hacker . com/instant-potatos-is-the-key-to-quick-delicious-gnocgh-1797566583](https://lifehacker.com/instant-potatoes-are-the-key-to-quick-delicious-gnocch-1797566583)
+> 原文：<https://lifehacker.com/instant-potatoes-are-the-key-to-quick-delicious-gnocch-1797566583>
 
 欢迎回到周日营养，每周专栏为最懒的工作日提供简单美味的膳食。我们整个星期都有雷暴和洪水警告，这意味着是时候吃终极雨天安慰食品了:汤团。
 

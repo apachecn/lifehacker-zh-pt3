@@ -1,6 +1,6 @@
 # 感恩节我们应该储备什么？
 
-> 原文:[https://life hacker . com/what-should-we-sous-vide-for-thanksgivity-1819974601](https://lifehacker.com/what-should-we-sous-vide-for-thanksgiving-1819974601)
+> 原文：<https://lifehacker.com/what-should-we-sous-vide-for-thanksgiving-1819974601>
 
 各位网友大家好，欢迎回到 [*的另一个选题环节。*](http://lifehacker.com/tag/will-it-sous-vide) ，列在那里我用我的沉浸循环器做任何你想让我做的事。
 

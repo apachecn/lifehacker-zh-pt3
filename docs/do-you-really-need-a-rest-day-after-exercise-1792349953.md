@@ -1,6 +1,6 @@
 # 运动后真的需要休息日吗？
 
-> 原文:[https://life hacker . com/do-you-really-need-a-rest-day of exercise-1792349953](https://lifehacker.com/do-you-really-need-a-rest-day-after-exercise-1792349953)
+> 原文：<https://lifehacker.com/do-you-really-need-a-rest-day-after-exercise-1792349953>
 
 休息日是锻炼计划的标准组成部分，但不是避免自己过度劳累的唯一方法。让我们来看看休息和恢复的区别，以及什么时候你可以变通一下规则。
 

@@ -1,6 +1,6 @@
 # 如何建立一个多合一的复古游戏模拟器
 
-> 原文:[https://life hacker . com/how-to-set-a-all-in-one-retro-game-emulator-with-re-1745863517](https://lifehacker.com/how-to-set-up-an-all-in-one-retro-game-emulator-with-re-1745863517)
+> 原文：<https://lifehacker.com/how-to-set-up-an-all-in-one-retro-game-emulator-with-re-1745863517>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-L_syU_Z6V8k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-L_syU_Z6V8k&start=0) 
 

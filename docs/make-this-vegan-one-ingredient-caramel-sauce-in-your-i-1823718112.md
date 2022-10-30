@@ -1,6 +1,6 @@
 # 在你的速溶壶里做一份单一成分的焦糖酱
 
-> 原文:[https://life hacker . com/make-this-vegan-one-ingredient-caramel-sauce-in-your-I-1823718112](https://lifehacker.com/make-this-vegan-one-ingredient-caramel-sauce-in-your-i-1823718112)
+> 原文：<https://lifehacker.com/make-this-vegan-one-ingredient-caramel-sauce-in-your-i-1823718112>
 
 用慢炖锅或高压锅把一罐甜炼乳变成浓郁的焦糖酱一直是我最喜欢的小把戏。没有混合或测量，但(显然)有很多乳制品。这似乎让我们的素食主义者和乳糖不耐受的朋友们置身于没有焦糖的寒冷中，但我很兴奋地告诉你，你可以用一罐加糖的浓缩*椰子*牛奶做完全相同的事情。
 

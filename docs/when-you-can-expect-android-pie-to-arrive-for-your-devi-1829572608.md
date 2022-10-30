@@ -1,6 +1,6 @@
 # 你什么时候能期待 Android Pie 出现在你的设备上
 
-> 原文:[https://life hacker . com/when-you-can-expect-Android-pie-to-arrive-for-your-devi-1829572608](https://lifehacker.com/when-you-can-expect-android-pie-to-arrive-for-your-devi-1829572608)
+> 原文：<https://lifehacker.com/when-you-can-expect-android-pie-to-arrive-for-your-devi-1829572608>
 
 不像 iOS 每个人都同时收到一个操作系统更新，Android 更新有点…分散。谷歌设备总是首先获得更新，但其他制造商的设备可能需要几周或几个月才能收到更新。
 

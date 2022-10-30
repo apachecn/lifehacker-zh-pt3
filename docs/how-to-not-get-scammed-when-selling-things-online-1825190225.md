@@ -1,6 +1,6 @@
 # 如何在网上卖东西时不被骗
 
-> 原文:[https://life hacker . com/how-to-not-get-scammed-when-selling-things-online-1825190225](https://lifehacker.com/how-to-not-get-scammed-when-selling-things-online-1825190225)
+> 原文：<https://lifehacker.com/how-to-not-get-scammed-when-selling-things-online-1825190225>
 
 如果你已经被春季大扫除迷上了，想要挑选一些你不想要的书，比如说，或者其他物品，你会想要小心你如何(以及向谁)出售你的旧物品。
 

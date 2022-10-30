@@ -1,6 +1,6 @@
 # 三种配料的欢乐时光:冷的热葡萄酒
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-chilly-multed-port-1820903766](https://lifehacker.com/3-ingredient-happy-hour-chilly-mulled-port-1820903766)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-chilly-mulled-port-1820903766>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将一款经典的冬季保暖产品——热葡萄酒进行冷加工。
 

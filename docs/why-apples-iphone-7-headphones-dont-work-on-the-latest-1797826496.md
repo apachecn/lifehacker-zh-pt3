@@ -1,6 +1,6 @@
 # 为什么苹果的 iPhone 7 耳机在最新的 MacBook 上不能用
 
-> 原文:[https://life hacker . com/why-apple-iphone-7-headphones-don-t-work-on-the-latest-1797826496](https://lifehacker.com/why-apples-iphone-7-headphones-dont-work-on-the-latest-1797826496)
+> 原文：<https://lifehacker.com/why-apples-iphone-7-headphones-dont-work-on-the-latest-1797826496>
 
 最近，一个新的工作人员在 Lifehacker 开始工作。她启动了公司配发的全新 MacBook Pro，然后插上耳机，边工作边听音乐。她遇到了和其他急于购买最新产品的苹果铁杆粉丝一样令人困惑的难题:你到底为什么不能在新款 MacBook Pro 上使用 iPhone 7 的 Lightning connector 耳机？
 

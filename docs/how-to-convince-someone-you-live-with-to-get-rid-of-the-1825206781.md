@@ -1,6 +1,6 @@
 # 如何说服和你一起生活的人扔掉他们的东西
 
-> 原文:[https://life hacker . com/how-to-说服与你同居的人摆脱 1825206781](https://lifehacker.com/how-to-convince-someone-you-live-with-to-get-rid-of-the-1825206781)
+> 原文：<https://lifehacker.com/how-to-convince-someone-you-live-with-to-get-rid-of-the-1825206781>
 
 清理旧的或无用的垃圾可能会让你感到高兴和自由，但不是每个人都有这种心态。无论是你的配偶不愿放弃的破旧躺椅，厨房里过多的炊具，还是你的室友挂在你客厅里的一系列奇怪的海报，当需要彻底的春季大扫除时，都有办法妥协。
 

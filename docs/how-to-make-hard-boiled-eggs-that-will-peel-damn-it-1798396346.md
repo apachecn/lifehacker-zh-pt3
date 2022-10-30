@@ -1,6 +1,6 @@
 # 如何使煮鸡蛋，将剥离，该死的
 
-> 原文:[https://life hacker . com/how-to-make-hidden-the-peel-the-damn-it-1798396346](https://lifehacker.com/how-to-make-hard-boiled-eggs-that-will-peel-damn-it-1798396346)
+> 原文：<https://lifehacker.com/how-to-make-hard-boiled-eggs-that-will-peel-damn-it-1798396346>
 
 我爱极了魔鬼蛋，但我过去讨厌做它们。这并不是因为难以得到完美的蛋黄或者硫磺的味道，而是剥鸡蛋的行为几乎总是让我陷入盲目的愤怒。然而，那些日子已经一去不复返了，因为我现在知道了如何制作不会脱皮的水煮蛋。
 

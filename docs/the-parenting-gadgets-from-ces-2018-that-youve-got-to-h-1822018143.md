@@ -1,6 +1,6 @@
 # 你一定听说过的 CES 2018 上的育儿小工具
 
-> 原文:[https://life hacker . com/the-parenting-gadgets-from-ces-2018-that-you ve-got-h-1822018143](https://lifehacker.com/the-parenting-gadgets-from-ces-2018-that-youve-got-to-h-1822018143)
+> 原文：<https://lifehacker.com/the-parenting-gadgets-from-ces-2018-that-youve-got-to-h-1822018143>
 
 科技公司正在努力让妈妈和爸爸的生活变得更轻松，正如今年的 [消费电子展](http://www.ces.tech/) 上的许多创新所展示的那样。这里有五个你应该知道的。准备好在注册表和愿望清单上看到这些东西吧——甚至可能在你自己的家里。未来就是现在。
 

@@ -1,6 +1,6 @@
 # 我们没有想象:科技行业需要更多女性
 
-> 原文:[https://life hacker . com/we-arent-imaging-it-the-tech-industry-needs-more-wom-1743737246](https://lifehacker.com/we-arent-imagining-it-the-tech-industry-needs-more-wom-1743737246)
+> 原文：<https://lifehacker.com/we-arent-imagining-it-the-tech-industry-needs-more-wom-1743737246>
 
 今晚我要给我女儿的女童子军做一个关于科技职业的演讲。我要告诉他们，女性在科技领域做出了惊人的成就。我要告诉他们，在这个竞技场上，他们也可以做他们想做的任何事情。但我会对他们撒谎。
 

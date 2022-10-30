@@ -1,6 +1,6 @@
 # 赫萝重制了主屏幕
 
-> 原文:[https://life hacker . com/the-holo-remastered-home-screen-1731506877](https://lifehacker.com/the-holo-remastered-home-screen-1731506877)
+> 原文：<https://lifehacker.com/the-holo-remastered-home-screen-1731506877>
 
 Android 可能已经将赫萝抛在身后，走向更光明的前景，但并不是所有人都忘记了这一点。这一设计将旧的赫萝蓝 混合在经典的深色背景中，打造出一种时尚的外观。
 

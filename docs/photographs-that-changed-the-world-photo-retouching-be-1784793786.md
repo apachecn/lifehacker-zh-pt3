@@ -1,6 +1,6 @@
 # 改变世界的照片，在 Photoshop 之前修图，为笔记本电脑卖浆果
 
-> 原文:[https://life hacker . com/photos-that-changed-the-world-photos-修图-be-1784793786](https://lifehacker.com/photographs-that-changed-the-world-photo-retouching-be-1784793786)
+> 原文：<https://lifehacker.com/photographs-that-changed-the-world-photo-retouching-be-1784793786>
 
 改变了世界和思想的照片，人们在 Photoshop 出现之前是如何编辑照片的，这是一个很好的提醒，可以备份你自己的照片，嗯，还有一些更漂亮的照片，都在本周的大脑自助餐中。
 

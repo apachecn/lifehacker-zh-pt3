@@ -1,6 +1,6 @@
 # 使用 Labneh 制作最好的冷冻酸奶汽水
 
-> 原文:[https://life hacker . com/use-lab neh-for-the-best 冷冻酸奶-pops-1826577647](https://lifehacker.com/use-labneh-for-the-best-frozen-yogurt-pops-1826577647)
+> 原文：<https://lifehacker.com/use-labneh-for-the-best-frozen-yogurt-pops-1826577647>
 
 在冷冻甜点的等级体系中，冷冻酸奶“冰棍”很少进入我的前 10 名。发明这种方法是为了欺骗孩子们，让他们以为他们在吃“甜点”，这些冰冻的水果棒和酸奶很少达到被认为“放纵”所需的质地和味道。然而，通过将“普通”酸奶换成更稠、更令人满意的酸奶，这一切都解决了。
 

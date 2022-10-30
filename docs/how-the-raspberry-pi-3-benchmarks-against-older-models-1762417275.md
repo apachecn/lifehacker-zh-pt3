@@ -1,6 +1,6 @@
 # Raspberry Pi 3 如何与旧型号进行对比
 
-> 原文:[https://life hacker . com/how-the-raspberry-pi-3-benchmarks-against-older-models-1762417275](https://lifehacker.com/how-the-raspberry-pi-3-benchmarks-against-older-models-1762417275)
+> 原文：<https://lifehacker.com/how-the-raspberry-pi-3-benchmarks-against-older-models-1762417275>
 
 [树莓派 3 于本周发布](https://lifehacker.com/the-raspberry-pi-3-adds-built-in-wi-fi-and-bluetooth-g-1761317416) 虽然它的主要卖点是内置 Wi-Fi 和蓝牙，但它仍然有点慢。那么，让我们来看看它比 Pi 2 和 a Model B+快多少。
 

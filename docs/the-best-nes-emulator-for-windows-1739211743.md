@@ -1,6 +1,6 @@
 # 最好的 NES 视窗模拟器
 
-> 原文:[https://life hacker . com/the-best-nes-emulator-for-windows-1739211743](https://lifehacker.com/the-best-nes-emulator-for-windows-1739211743)
+> 原文：<https://lifehacker.com/the-best-nes-emulator-for-windows-1739211743>
 
 如果你想要怀旧的老式 NES 与高清晰度电视的质量和方便，模拟器可以带你走得很远。如果你想要一个完美的 NES 体验，你会想去 RetroArch 的 Nestopia UE core。
 

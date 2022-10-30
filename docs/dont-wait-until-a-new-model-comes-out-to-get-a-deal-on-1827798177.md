@@ -1,6 +1,6 @@
 # 不要等到一个新的模式出来了，才处理剩余的
 
-> 原文:[https://jalopnik . com/don-t-wait-being-to-a-new-model-out-to-get-a-deal-on-1827798177](https://jalopnik.com/dont-wait-until-a-new-model-comes-out-to-get-a-deal-on-1827798177)
+> 原文：<https://jalopnik.com/dont-wait-until-a-new-model-comes-out-to-get-a-deal-on-1827798177>
 
 有一条老派的购车建议 说，你应该等到一款新车型上市后，再与之前的车型达成交易。换句话说，当全新的 2019 年 Eagle Premier 问世时，你可能会更好地等待，以便在仍然不错的 2018 年 Eagle Premier 上获得一个很好的价格。但是，虽然你可以买到一些不错的二手车，你可能会比你想象的更早开始购物。
 

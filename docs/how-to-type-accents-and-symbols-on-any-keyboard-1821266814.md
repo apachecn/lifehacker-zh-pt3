@@ -1,6 +1,6 @@
 # 如何在任何键盘上键入重音符号和符号
 
-> 原文:[https://life hacker . com/how-to-type-accents-and-symbols-on-any-keyboard-1821266814](https://lifehacker.com/how-to-type-accents-and-symbols-on-any-keyboard-1821266814)
+> 原文：<https://lifehacker.com/how-to-type-accents-and-symbols-on-any-keyboard-1821266814>
 
 无论你是在做西班牙语作业，还是和你说法语的恋人开玩笑，如果你想表达自己的观点而不显得像个傻瓜，掌握外语拼写是非常重要的。由于几乎每个设备上都有改进的键盘控制，现在添加口音很容易。不管你用的是什么手机、笔记本还是台式机，只要你知道去哪里找，你都可以很容易地添加重音符号。
 

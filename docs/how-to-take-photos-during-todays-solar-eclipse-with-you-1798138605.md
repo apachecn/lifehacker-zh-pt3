@@ -1,6 +1,6 @@
 # 如何用智能手机在今天的日食期间拍照
 
-> 原文:[https://life hacker . com/how-to-take-photos-with-you-1798138605](https://lifehacker.com/how-to-take-photos-during-todays-solar-eclipse-with-you-1798138605)
+> 原文：<https://lifehacker.com/how-to-take-photos-during-todays-solar-eclipse-with-you-1798138605>
 
 今天每个人都想捕捉完美的日食照片，但不是每个人都有数千美元的专业摄影设备。原来你可以用你的智能手机拍一些不错的照片。
 

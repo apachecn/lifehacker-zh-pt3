@@ -1,6 +1,6 @@
 # 如何在不爆发的情况下完成跳箱动作
 
-> 原文:[https://life hacker . com/how-do-box-jumps-without-freaking-1828056353](https://lifehacker.com/how-to-do-box-jumps-without-freaking-out-1828056353)
+> 原文：<https://lifehacker.com/how-to-do-box-jumps-without-freaking-out-1828056353>
 
 每一次跳跃都包含着信念的飞跃。你将*很可能*站在盒子的顶部，双脚着地，而不是让它成为那些盒子跳跃失败编译视频中的一个(说真的，不要谷歌)。但是你如何让你的大脑和身体相信会有一次坚实的着陆呢？
 

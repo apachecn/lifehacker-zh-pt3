@@ -1,6 +1,6 @@
 # 用你的信用卡账单作为警钟来评估你的消费
 
-> 原文:[https://life hacker . com/use-your-credit-card-bill-as-a-wake-up-call-to-evaluate-1791525909](https://lifehacker.com/use-your-credit-card-bill-as-a-wake-up-call-to-evaluate-1791525909)
+> 原文：<https://lifehacker.com/use-your-credit-card-bill-as-a-wake-up-call-to-evaluate-1791525909>
 
 这里有一个小练习供你尝试。从你最常用的信用卡中取出你最新的信用卡账单。如果是电子账单就打印出来；否则，就拿起笔，把账单放在你面前的桌子上。
 

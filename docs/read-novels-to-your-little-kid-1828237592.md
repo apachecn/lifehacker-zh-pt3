@@ -1,6 +1,6 @@
 # 给你的小孩读小说
 
-> 原文:[https://life hacker . com/read-novels-to-your-little-kid-1828237592](https://lifehacker.com/read-novels-to-your-little-kid-1828237592)
+> 原文：<https://lifehacker.com/read-novels-to-your-little-kid-1828237592>
 
 绘本对于各个年龄段的读者来说都可以是神奇的， [甚至成年人](https://www.nytimes.com/2018/04/06/books/review/i-got-it-david-wiesner.html) 。但是当谈到给小孩子大声朗读时，我学会了不要忽视章节书和小说。当你的观众的注意力持续时间和一集*粉红猪小妹*一样长时，翻开一本超过 100 页的大部头书可能会令人望而生畏，但是经历这整个故事的经历会是非常有益的。在令人难忘的 Reddit 帖子 中，一位父亲分享了在两个月的时间里给他六岁的儿子读《霍比特人》的感受。
 

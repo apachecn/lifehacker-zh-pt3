@@ -1,6 +1,6 @@
 # 当你情绪低落时，如何完成“不可能完成的任务”
 
-> 原文:[https://life hacker . com/how-to-do-the-impossible-task-when-you-depressed-1828942797](https://lifehacker.com/how-to-do-the-impossible-task-when-youre-depressed-1828942797)
+> 原文：<https://lifehacker.com/how-to-do-the-impossible-task-when-youre-depressed-1828942797>
 
 当你情绪低落时，任何小事——从配药到给自己做三明治——看起来都是不可能的。作家莫莉·巴克斯最近在推特上写了一篇关于她所谓的“不可能的任务”的文章，，如果你曾经和你的心理健康作斗争，你可能很清楚她在说什么。
 

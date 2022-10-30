@@ -1,6 +1,6 @@
 # 在一元店买最好的东西
 
-> 原文:[https://life hacker . com/the-best-things-to-buy-the-doll-store-1774228189](https://lifehacker.com/the-best-things-to-buy-at-the-dollar-store-1774228189)
+> 原文：<https://lifehacker.com/the-best-things-to-buy-at-the-dollar-store-1774228189>
 
 一元店是廉价垃圾和可疑食品的雷区，但也有一些你每天使用的东西的大交易。如果你知道要找什么和要避免什么，你可以把一元店作为你购物的第一站 ，让你的一分钱得到最大的回报。
 

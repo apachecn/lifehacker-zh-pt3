@@ -1,6 +1,6 @@
 # 新的 AppleCare 值得吗？
 
-> 原文:[https://gizmodo . com/is-the-new-apple care-worth-it-1786381413](https://gizmodo.com/is-the-new-applecare-worth-it-1786381413)
+> 原文：<https://gizmodo.com/is-the-new-applecare-worth-it-1786381413>
 
 在 [iPhone 7 兴奋当中](http://gizmodo.com/iphone-7-first-impressions-not-just-the-same-thing-all-1786351450) 昨天( [两个摄像头](http://gizmodo.com/the-iphone-7-is-here-everything-you-need-to-know-1786260590) ！ [丑耳机](http://gizmodo.com/i-stuck-apples-airpods-in-my-ears-and-it-shockingly-was-1786353534) ！ [勇气](http://gizmodo.com/you-dont-need-an-iphone-1786273116) ！)苹果还对其 AppleCare+计划进行了一些更低调的改变。截至昨天，注册 AppleCare+意味着你可以花 29 美元获得一个破碎的 iPhone 屏幕。但是它值这个钱吗？
 

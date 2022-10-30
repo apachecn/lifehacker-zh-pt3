@@ -1,6 +1,6 @@
 # 不要成为反狗人士
 
-> 原文:[https://life hacker . com/don-t-be-an-anti-dog-VAX xer-1797475516](https://lifehacker.com/don-t-be-an-anti-dog-vaxxer-1797475516)
+> 原文：<https://lifehacker.com/don-t-be-an-anti-dog-vaxxer-1797475516>
 
 给狗打疫苗是件好事。没有人希望弗劳尔斯先生死于狂犬病，也不希望他传染给其他宠物或人。(提醒:未经治疗的狂犬病是致命的，而且非常可怕。)但人们很容易被疫苗副作用的谣言吓到，一些人拒绝为他们的宠物注射疫苗。
 

@@ -1,6 +1,6 @@
 # CRISPR 是什么，它到底能做什么？
 
-> 原文:[https://life hacker . com/what-is-crispr-and-what-can-it-really-do-1826000682](https://lifehacker.com/what-is-crispr-and-what-can-it-really-do-1826000682)
+> 原文：<https://lifehacker.com/what-is-crispr-and-what-can-it-really-do-1826000682>
 
 一种叫做 [CRISPR](https://ghr.nlm.nih.gov/primer/genomicresearch/genomeediting) 的 DNA 编辑技术不断出现在新闻中，在一个又一个医学突破中。理论上，CRISPR 可以找到 DNA 中的任何问题区域，将其剪下，并用一组新的核苷酸替换它。但是在现实生活中，这种剪贴工作并不总是简单明了的。
 

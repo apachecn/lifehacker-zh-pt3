@@ -1,6 +1,6 @@
 # 你应该在年初就把你的退休供款用完吗？
 
-> 原文:[https://life hacker . com/should-you-max-out-your-retirement-contributions-early-1827688691](https://lifehacker.com/should-you-max-out-your-retirement-contributions-early-1827688691)
+> 原文：<https://lifehacker.com/should-you-max-out-your-retirement-contributions-early-1827688691>
 
 如果你有办法的话，你应该在年初尽可能早地最大化你的退休金(401(k)计划是 18500 美元，50 岁以下是 5500 美元，401(k)计划是 24500 美元，50 岁以上是 6500 美元)，还是分散？
 

@@ -1,6 +1,6 @@
 # 以不到 20 美元的价格制作一个 DIY GoPro 夹钳支架
 
-> 原文:[https://life hacker . com/make-a-DIY-go pro-clamp-mount-for-under-20-1732266616](https://lifehacker.com/make-a-diy-gopro-clamp-mount-for-under-20-1732266616)
+> 原文：<https://lifehacker.com/make-a-diy-gopro-clamp-mount-for-under-20-1732266616>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-rulu7T1wpSg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-rulu7T1wpSg&start=0) 
 

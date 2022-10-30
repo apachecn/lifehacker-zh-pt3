@@ -1,6 +1,6 @@
 # 如何为超级碗及以后的比赛购买高清电视
 
-> 原文:[https://life hacker . com/how-to-buy-an-HDTV for the super bowl-beyond-1791828845](https://lifehacker.com/how-to-buy-an-hdtv-for-the-super-bowl-and-beyond-1791828845)
+> 原文：<https://lifehacker.com/how-to-buy-an-hdtv-for-the-super-bowl-and-beyond-1791828845>
 
 本周*升级*我们正在升级你的高清电视，正好赶上周日的超级碗！这一切都是关于如何购买一个伟大的电视，为大型比赛，或任何时候你在市场上的一个-加上一个电话为您的节目问题！
 

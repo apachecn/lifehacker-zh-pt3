@@ -1,6 +1,6 @@
 # 如何使用袖珍播客来摆脱你可怕的播客瘾
 
-> 原文:[https://life hacker . com/how-to-use-pocket-casts-to-wrangle-your-terrible-pod cas-1793102283](https://lifehacker.com/how-to-use-pocket-casts-to-wrangle-your-horrible-podcas-1793102283)
+> 原文：<https://lifehacker.com/how-to-use-pocket-casts-to-wrangle-your-horrible-podcas-1793102283>
 
 播客已经成为最好的娱乐形式之一，但很难跟踪你喜欢的，抛弃你不感兴趣的剧集，甚至管理你想听的内容。 [Pocket Casts](https://www.shiftyjelly.com/pocketcasts/) 是帮助你组织播客的最好的应用程序之一，但是你需要对它进行一点试验，让它为你工作。
 

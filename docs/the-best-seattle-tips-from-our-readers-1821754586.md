@@ -1,6 +1,6 @@
 # 来自我们读者的最佳西雅图贴士
 
-> 原文:[https://life hacker . com/the-best-Seattle-tips-from-our-readers-1821754586](https://lifehacker.com/the-best-seattle-tips-from-our-readers-1821754586)
+> 原文：<https://lifehacker.com/the-best-seattle-tips-from-our-readers-1821754586>
 
 我们要求西雅图的小费。我们收到了超过 250 条评论。 如果你很快就要去西雅图，读读原帖“员工”部分的 67 条最佳评论。但是，如果你只是想尝一尝，请阅读下面的精华中的精华。
 

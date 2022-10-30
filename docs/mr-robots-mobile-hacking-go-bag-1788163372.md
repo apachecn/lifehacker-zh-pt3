@@ -1,6 +1,6 @@
 # 机器人先生的移动黑客包
 
-> 原文:[https://life hacker . com/Mr-robots-mobile-hacking-go-bag-1788163372](https://lifehacker.com/mr-robots-mobile-hacking-go-bag-1788163372)
+> 原文：<https://lifehacker.com/mr-robots-mobile-hacking-go-bag-1788163372>
 
 电脑黑客在电视和电影中被完全错误地展示的历史由来已久，但如果有任何展示接近准确，那就是机器人先生。所以，让我们来看看艾略特·奥尔德逊的背包。
 

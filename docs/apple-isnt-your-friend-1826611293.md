@@ -1,6 +1,6 @@
 # 苹果不是你的朋友
 
-> 原文:[https://gizmodo.com/apple-isnt-your-friend-1826611293](https://gizmodo.com/apple-isnt-your-friend-1826611293)
+> 原文：<https://gizmodo.com/apple-isnt-your-friend-1826611293>
 
 一段时间以来，苹果一直稳步将自己定位为反脸书，在针对社交媒体巨头的口头抨击和注重隐私的产品决策之间，耐心善意运动似乎正在发挥作用。不幸的是，苹果不会拯救我们，现在是时候保持警惕了。
 

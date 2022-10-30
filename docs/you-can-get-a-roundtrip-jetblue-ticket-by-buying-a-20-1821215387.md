@@ -1,6 +1,6 @@
 # 你可以通过购买 20 美元的棋盘游戏获得一张往返捷蓝航空的机票[更新:已经卖完了]
 
-> 原文:[https://life hacker . com/you-can-get-a-round trip-JetBlue-ticket-by-buying-a-20-1821215387](https://lifehacker.com/you-can-get-a-roundtrip-jetblue-ticket-by-buying-a-20-1821215387)
+> 原文：<https://lifehacker.com/you-can-get-a-roundtrip-jetblue-ticket-by-buying-a-20-1821215387>
 
 捷蓝航空公司从今天开始销售一款桌面游戏，并附赠一份丰厚的奖品:一张免费的捷蓝航空往返机票。限量版的游戏，叫做打包！显然， [于美国东部时间下午 12 点开始在亚马逊](https://www.amazon.com/dp/B077XNXYXW?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-can-get-a-roundtrip-jetblue-ticket-by-buying-a-20-1821215387&asc_source=&tag=kinjalifehackerlink-20) 短暂发售，售价 19.99 美元。
 

@@ -1,6 +1,6 @@
 # 让你孩子的干了的水彩笔像液体水彩一样复活
 
-> 原文:[https://life hacker . com/bring-your-kids-dry-out-markers-back-to-life-as-liqui-1826263105](https://lifehacker.com/bring-your-kids-dried-out-markers-back-to-life-as-liqui-1826263105)
+> 原文：<https://lifehacker.com/bring-your-kids-dried-out-markers-back-to-life-as-liqui-1826263105>
 
 我们知道我们应该留意莫尼卡·盖勒对笔和记号笔的指导 :“你想按下笔帽，直到你听到它们发出咔嗒声。”但是孩子们忘记了，当他们回来使用它们时，他们很难过。好了好了。干了的马克笔还不需要被送到艺术用品垃圾场。你可以让它们像充满活力的液体水彩画一样复活。
 

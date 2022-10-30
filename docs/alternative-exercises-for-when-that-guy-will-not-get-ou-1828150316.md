@@ -1,6 +1,6 @@
 # 当那个人不愿意从深蹲架上下来时的替代练习
 
-> 原文:[https://life hacker . com/alternative-exercises-for-when the guy-will-not-get-ou-1828150316](https://lifehacker.com/alternative-exercises-for-when-that-guy-will-not-get-ou-1828150316)
+> 原文：<https://lifehacker.com/alternative-exercises-for-when-that-guy-will-not-get-ou-1828150316>
 
 健身房的每个人都有自己的计划，自己的道路。在一个完美的世界里，这些路径都是交叉的，没有任何冲突。一个人跳下跑步机，另一个人跳上去。一个人放下一个重物，另一个人拿起它。记录划痕，这里是真实的世界:健身房对面的五个不同的人在他们不关心的机器上消磨时间，怒视着那个在深蹲架上不停做卷毛的家伙。
 

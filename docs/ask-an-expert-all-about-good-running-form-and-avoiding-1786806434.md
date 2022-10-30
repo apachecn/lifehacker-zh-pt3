@@ -1,6 +1,6 @@
 # 请教专家:良好的跑步状态和避免受伤
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-good-running-form-and-avoiding-1786806434](https://lifehacker.com/ask-an-expert-all-about-good-running-form-and-avoiding-1786806434)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-good-running-form-and-avoiding-1786806434>
 
 作为一个没有经验的跑步者，我不认为我需要知道太多；跑步就像走路，但是更快，对吗？但是，当然，花足够的时间在人行道上，你会很快了解到，除了耐力，还有更多可以避免跑步受伤的方法。你需要注意*如何*跑。
 

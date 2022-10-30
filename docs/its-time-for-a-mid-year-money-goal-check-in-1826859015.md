@@ -1,6 +1,6 @@
 # 是时候进行年中金钱目标检查了
 
-> 原文:[https://life hacker . com/its-time-for-a mid-year-money-goal-check-in-1826859015](https://lifehacker.com/its-time-for-a-mid-year-money-goal-check-in-1826859015)
+> 原文：<https://lifehacker.com/its-time-for-a-mid-year-money-goal-check-in-1826859015>
 
 我们今年刚刚过半，所以让我们花些时间来检查一下我们的 [2018 年金钱目标](https://lifehacker.com/whats-your-2018-money-goal-1821064068) 。
 

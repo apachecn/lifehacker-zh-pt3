@@ -1,6 +1,6 @@
 # 为什么你必须学会和难相处的人一起工作
 
-> 原文:[https://life hacker . com/why-you-must-learn to-work with-did-people-1796307799](https://lifehacker.com/why-you-must-learn-to-work-with-difficult-people-1796307799)
+> 原文：<https://lifehacker.com/why-you-must-learn-to-work-with-difficult-people-1796307799>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 

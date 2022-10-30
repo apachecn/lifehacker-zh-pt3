@@ -1,6 +1,6 @@
 # 这个砂锅里有一整套烤肉
 
-> 原文:[https://life hacker . com/theres-a-whole-cooking-in-this-砂锅-1827321119](https://lifehacker.com/theres-an-entire-cookout-in-this-casserole-1827321119)
+> 原文：<https://lifehacker.com/theres-an-entire-cookout-in-this-casserole-1827321119>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅菜。本周，这个概念就是美国，我们成功地将一次户外烹饪的所有味道融入到一道热菜中。
 

@@ -1,6 +1,6 @@
 # 如何处理你没有订购的亚马逊包裹
 
-> 原文:[https://life hacker . com/what-to-do-with-Amazon-packages-you-not-order-1825205083](https://lifehacker.com/what-to-do-with-amazon-packages-you-didnt-order-1825205083)
+> 原文：<https://lifehacker.com/what-to-do-with-amazon-packages-you-didnt-order-1825205083>
 
 你打开门，发现在你的迎宾垫上，有一个明显标记的来自亚马逊的包裹。问题是，你没有从他们那里订购任何东西，经过仔细检查，很明显这次送货不是给你的。你该怎么办？
 

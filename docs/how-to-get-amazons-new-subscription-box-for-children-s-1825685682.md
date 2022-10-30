@@ -1,6 +1,6 @@
 # 如何获得亚马逊新的儿童书籍订阅箱
 
-> 原文:[https://life hacker . com/how-to-get-amazons-new-subscription-box-for-children-s-1825685682](https://lifehacker.com/how-to-get-amazons-new-subscription-box-for-children-s-1825685682)
+> 原文：<https://lifehacker.com/how-to-get-amazons-new-subscription-box-for-children-s-1825685682>
 
 印刷书籍并没有死亡——有了孩子， [它们正在茁壮成长](https://www.npd.com/wps/portal/npd/us/news/press-releases/2017/npd-reports-growth-in-u-s--print-book-sales-for-the-fourth-consecutive-year/) 。作为父母，这让我很开心。和一个孩子龙卷风一样沉在床上，翻开一本书，读到关于 [一个小女孩救了一只小鸭](https://www.amazon.com/Love-Diane-Adams/dp/1452139970?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-amazons-new-subscription-box-for-children-s-1825685682&asc_source=&tag=kinjalifehackerlink-20) 或者 [一只不会交朋友的豪猪](https://www.amazon.com/gp/product/1524718637?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-amazons-new-subscription-box-for-children-s-1825685682&asc_source=&tag=kinjalifehackerlink-20) 。
 

@@ -1,6 +1,6 @@
 # 宣布你要看手机的原因
 
-> 原文:[https://life hacker . com/announce-the-reason-you-to-look-in-you-phone-1823194762](https://lifehacker.com/announce-the-reason-you-are-about-to-look-at-your-phone-1823194762)
+> 原文：<https://lifehacker.com/announce-the-reason-you-are-about-to-look-at-your-phone-1823194762>
 
 为什么我要看手机？我不知道，因为很多原因。看看我的 J.Crew 订单在运送途中的确切位置。找出在那部电影中扮演厨师的女演员和另一部电影中的男演员的名字。 [看他是否还任](https://www.instagram.com/p/BfZJj5HFKge/?hl=en&taken-by=j.a.k._) 。因为我已经 22 分钟没看了。
 

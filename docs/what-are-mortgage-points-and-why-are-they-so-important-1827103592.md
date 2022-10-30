@@ -1,6 +1,6 @@
 # 什么是房贷积分，为什么这么重要？
 
-> 原文:[https://life hacker . com/what-are-mortgage-points and-why-they-so-important-1827103592](https://lifehacker.com/what-are-mortgage-points-and-why-are-they-so-important-1827103592)
+> 原文：<https://lifehacker.com/what-are-mortgage-points-and-why-are-they-so-important-1827103592>
 
 几周前，我问你关于买房 有哪些 [问题。本周我将攻克一个](https://twocents.lifehacker.com/what-do-you-want-to-know-about-buying-a-house-1825932105#_ga=2.217235027.47977805.1529932552-3846207152.1521480874) [其中几个](https://twocents.lifehacker.com/how-much-to-put-down-for-your-first-house-1827029793?rev=1529937160455#_ga=2.217235027.47977805.1529932552-3846207152.1521480874) 。
 

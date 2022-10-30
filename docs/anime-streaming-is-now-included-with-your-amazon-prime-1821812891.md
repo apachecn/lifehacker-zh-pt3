@@ -1,6 +1,6 @@
 # 您的亚马逊 Prime 会员现在可以享受动漫流媒体服务
 
-> 原文:[https://life hacker . com/anime-streaming-is-now-included-with-your-Amazon-prime-1821812891](https://lifehacker.com/anime-streaming-is-now-included-with-your-amazon-prime-1821812891)
+> 原文：<https://lifehacker.com/anime-streaming-is-now-included-with-your-amazon-prime-1821812891>
 
 亚马逊视频每月 5 美元的动漫附加频道 Anime Strike 已经关闭。但是不要难过！欢呼吧！这只是意味着你现在可以用你的亚马逊 Prime 会员观看一堆很棒的动漫，不需要额外的订阅。
 

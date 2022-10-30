@@ -1,6 +1,6 @@
 # 你应该多久休假一次？
 
-> 原文:[https://life hacker . com/how-frequency-you-should-take-a-vacation-1820263353](https://lifehacker.com/how-frequently-should-you-take-a-vacation-1820263353)
+> 原文：<https://lifehacker.com/how-frequently-should-you-take-a-vacation-1820263353>
 
 我知道，你很忙，你有工作要做，但你也需要花一些时间来充电。所以，你应该为这一年计划一次长假吗？或者你应该把你的时间分散到多个假期中？数量有时能战胜质量。
 

@@ -1,6 +1,6 @@
 # 如何在任何设备上播放每场三月疯狂比赛
 
-> 原文:[https://life hacker . com/how-to-stream-every-March-madness-game-on-any-device-1764858156](https://lifehacker.com/how-to-stream-every-march-madness-game-on-any-device-1764858156)
+> 原文：<https://lifehacker.com/how-to-stream-every-march-madness-game-on-any-device-1764858156>
 
 NCAA 疯狂三月锦标赛今晚开始。你已经得到了 [你的完美支架](https://lifehacker.com/build-the-perfect-march-madness-bracket-with-the-power-1764736543) ，你的零食，你已经准备好为你最喜欢的球队加油了。以下是如何在家或在旅途中，在大屏幕或小屏幕上观看今年 67 场比赛的方法。
 

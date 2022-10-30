@@ -1,6 +1,6 @@
 # 如何从 2017 年的 instagram 照片中挑选出你最喜欢的 9 张照片
 
-> 原文:[https://life hacker . com/how-to-get-a-collage-of-your-best-9-insta gram-photos-fr-1821156836](https://lifehacker.com/how-to-get-a-collage-of-your-best-9-instagram-photos-fr-1821156836)
+> 原文：<https://lifehacker.com/how-to-get-a-collage-of-your-best-9-instagram-photos-fr-1821156836>
 
 每年这个时候，我所有的朋友都开始在 Instagram 上分享他们今年“最好的 9 张”照片。我们都有必要重温那些记忆吗？大概不会。但是他们看起来和分享起来还是很有趣的。
 

@@ -1,6 +1,6 @@
 # 你从杂志封底广告中实际得到了什么
 
-> 原文:[https://life hacker . com/what-you-really-get-from these-the-back-of-magazine-ads-1819010179](https://lifehacker.com/what-you-actually-got-from-those-back-of-magazine-ads-1819010179)
+> 原文：<https://lifehacker.com/what-you-actually-got-from-those-back-of-magazine-ads-1819010179>
 
 在谷歌出现之前的日子里，杂志背面的一个微小而神秘的广告有很大的潜力。卖家可能无法完全描述他们的产品，但如果产品不是很好，这可能对他们有利。以下是 20 世纪 50 年代及以后的一些诱饵调包广告，以及如果你发送这些广告，你会得到什么。
 

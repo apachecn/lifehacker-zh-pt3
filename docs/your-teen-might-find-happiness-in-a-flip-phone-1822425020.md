@@ -1,6 +1,6 @@
 # 你的孩子可能会在翻盖手机中找到快乐
 
-> 原文:[https://life hacker . com/your-teen-may-find-happy-in-a-flip-phone-1822425020](https://lifehacker.com/your-teen-might-find-happiness-in-a-flip-phone-1822425020)
+> 原文：<https://lifehacker.com/your-teen-might-find-happiness-in-a-flip-phone-1822425020>
 
 本周发表的一项研究没有让我们感到惊讶:沉迷于屏幕的青少年不快乐 。主要作者是心理学教授 Jean M. Twenge，他写了 *The Atlantic* piece [“智能手机毁灭了一代人吗？”(简而言之，也许是这样，但这是一个充满希望的迹象，表明青少年自己开始将他们的心理健康问题与他们总是嗡嗡作响的设备联系起来。)Twenge 和她在圣地亚哥州立大学的团队在他们的新研究中发现，最快乐的青少年每天使用数字媒体的时间不到一个小时。他们把时间花在做其他事情上——做运动，看报纸(真的吗？)和从事良好的老式面对面的互动。](https://www.theatlantic.com/magazine/archive/2017/09/has-the-smartphone-destroyed-a-generation/534198/) 
 

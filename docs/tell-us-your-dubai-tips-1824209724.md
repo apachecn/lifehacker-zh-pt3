@@ -1,6 +1,6 @@
 # 告诉我们你的迪拜小贴士
 
-> 原文:[https://lifehacker.com/tell-us-your-dubai-tips-1824209724](https://lifehacker.com/tell-us-your-dubai-tips-1824209724)
+> 原文：<https://lifehacker.com/tell-us-your-dubai-tips-1824209724>
 
 迪拜在地图上很显眼。像许多沙漠城市一样，它有着严格的边界，发达的城市街区与空白的沙地相映成趣。与许多沙漠城市不同，迪拜包括一个直径 6 英里的人造环礁，形状像一张小小的世界地图。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:9 月 9 日至 16 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-September-9-9-to-16-1786684708](https://lifehacker.com/this-weeks-most-popular-posts-september-9th-to-16th-1786684708)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-september-9th-to-16th-1786684708>
 
 本周，苹果手机操作系统的最新升级版 iOS 10 发布了。虽然我们了解了所有的新功能(和贴纸)，但这是一个以小工具为中心的一周，因为我们还讨论了廉价 4K 电视的优点，如何充分利用 GoPro 相机，比较 DIY 电子板等等。
 

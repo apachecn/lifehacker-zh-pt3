@@ -1,6 +1,6 @@
 # 网络电视台加快电视节目播放速度以适应更多的广告
 
-> 原文:[https://life hacker . com/network-television-stations-speed-up-TV-shows-to-fit-in-1797131517](https://lifehacker.com/network-television-stations-speed-up-tv-shows-to-fit-in-1797131517)
+> 原文：<https://lifehacker.com/network-television-stations-speed-up-tv-shows-to-fit-in-1797131517>
 
 如果感觉现在网络电视上的商业广告多了很多，这不仅仅是因为你已经习惯了没有广告的网飞。2013 年 AVS 论坛 上的一个 [帖子发现，TBS 将《T4》和《宋飞正传》的播放速度提高了 7.5%，以播放更多广告。因为侵犯版权，TBS 剧集和原版剧集的对比视频已经被删除，但 YouTube 上有一个 2015 年更新的视频，显示《宋飞正传》的一集速度加快了 9 %:](http://www.avsforum.com/forum/34-hdtv-programming/1490528-tbs-speeds-up-seinfeld-full-7-5-percent-here-proof.html)
 

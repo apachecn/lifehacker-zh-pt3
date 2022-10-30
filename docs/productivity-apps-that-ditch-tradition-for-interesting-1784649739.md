@@ -1,6 +1,6 @@
 # 抛弃传统、追求有趣设计的生产力应用
 
-> 原文:[https://life hacker . com/productivity-apps-that-dition-for-interest-1784649739](https://lifehacker.com/productivity-apps-that-ditch-tradition-for-interesting-1784649739)
+> 原文：<https://lifehacker.com/productivity-apps-that-ditch-tradition-for-interesting-1784649739>
 
 当谈到生产力应用程序时，设计的简单性和熟悉性通常是王道，因为没有人希望每次检查一个新的待办事项应用程序时都要学习一个全新的系统。但有时，应用程序会打破预先写好的生产力规则，做出完全不同的东西。
 

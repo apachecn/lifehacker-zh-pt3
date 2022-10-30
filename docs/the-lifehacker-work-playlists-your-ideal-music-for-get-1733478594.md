@@ -1,6 +1,6 @@
 # Lifehacker 工作播放列表:你完成工作的理想音乐
 
-> 原文:[https://life hacker . com/the-life hacker-work-playlists-your-ideal-music-for-get-1733478594](https://lifehacker.com/the-lifehacker-work-playlists-your-ideal-music-for-get-1733478594)
+> 原文：<https://lifehacker.com/the-lifehacker-work-playlists-your-ideal-music-for-get-1733478594>
 
 我们问你，当你完成工作 并交付成果时，你喜欢听什么音乐 [。以下是 Lifehacker 的读者们精心挑选的六个非常棒的生产力播放列表。](https://lifehacker.com/what-are-your-favorite-tunes-for-getting-work-done-1732880999)
 

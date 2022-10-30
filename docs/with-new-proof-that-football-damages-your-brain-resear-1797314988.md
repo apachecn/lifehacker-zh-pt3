@@ -1,6 +1,6 @@
 # 有新的证据表明足球会损害大脑，研究人员现在也开始关注足球了
 
-> 原文:[https://life hacker . com/with-new-proof-the football-damages-your-brain-research er-1797314988](https://lifehacker.com/with-new-proof-that-football-damages-your-brain-resear-1797314988)
+> 原文：<https://lifehacker.com/with-new-proof-that-football-damages-your-brain-resear-1797314988>
 
 波士顿大学研究已故足球运动员大脑的研究人员本周早些时候发布了关于运动员和长期神经疾病之间潜在联系的新发现，结果令人震惊。
 

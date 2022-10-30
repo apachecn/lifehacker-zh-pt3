@@ -1,6 +1,6 @@
 # 什么是“负”利率，它们对全球经济意味着什么
 
-> 原文:[https://life hacker . com/what-negative-interest-rates-is-and-what-them-mean-1765081522](https://lifehacker.com/what-negative-interest-rates-are-and-what-they-mean-1765081522)
+> 原文：<https://lifehacker.com/what-negative-interest-rates-are-and-what-they-mean-1765081522>
 
 如果一家银行的利率如此之低，他们实际上向你收费把你的钱存在那里会怎么样？如果你可以贷款而不用支付任何利息呢？这就是负利率背后的理念。我们对这个概念有点陌生，这也是为什么它最近成为头条新闻的原因。这里有一个什么是负利率以及我们可以从负利率中得到什么的简要概述。
 

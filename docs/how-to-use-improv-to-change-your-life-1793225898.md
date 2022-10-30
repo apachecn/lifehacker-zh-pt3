@@ -1,6 +1,6 @@
 # 如何利用即兴表演改变你的生活，埃德·赫布斯曼和汉娜·蔡斯
 
-> 原文:[https://life hacker . com/how-to-use-improv-to-change-your-life-1793225898](https://lifehacker.com/how-to-use-improv-to-change-your-life-1793225898)
+> 原文：<https://lifehacker.com/how-to-use-improv-to-change-your-life-1793225898>
 
 在本周的《升级版》中，我们将脱离剧本，谈论即兴喜剧。即使你不认为自己是一个喜剧或戏剧演员，你也可以从即兴表演阶段学到很多东西。
 

@@ -1,6 +1,6 @@
 # 当你的蹩脚室友虐待他们的狗时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-what-what-do-what-what-what-what-what-do-what-what-your-蹩脚的室友-虐狗-1825688524](https://lifehacker.com/what-to-do-when-your-crappy-roommates-abuse-their-dogs-1825688524)
+> 原文：<https://lifehacker.com/what-to-do-when-your-crappy-roommates-abuse-their-dogs-1825688524>
 
 这个星期，我们有一对伤心的狗，它们没有受到很好的对待，还有一个没有主人的人住在同一个家庭，他很关心它们的健康。有没有一种方法可以拯救狗狗免受虐待和忽视？
 

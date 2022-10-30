@@ -1,6 +1,6 @@
 # 这个免费的桌面应用程序提醒你在白天休息一下
 
-> 原文:[https://life hacker . com/this-free-desktop-app-reminds-you-to-take-computer-brea-1821694623](https://lifehacker.com/this-free-desktop-app-reminds-you-to-take-computer-brea-1821694623)
+> 原文：<https://lifehacker.com/this-free-desktop-app-reminds-you-to-take-computer-brea-1821694623>
 
 我们都知道长时间坐着对我们的健康有害，但是记住站起来休息并不是一件容易的事情。
 

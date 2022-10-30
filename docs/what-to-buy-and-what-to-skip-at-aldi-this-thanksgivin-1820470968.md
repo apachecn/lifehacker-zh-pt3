@@ -1,6 +1,6 @@
 # 这个感恩节在 ALDI 买什么(和跳过什么)
 
-> 原文:[https://life hacker . com/what-to-buy-and-skip-at-aldi-this-thanksgivin-1820470968](https://lifehacker.com/what-to-buy-and-what-to-skip-at-aldi-this-thanksgivin-1820470968)
+> 原文：<https://lifehacker.com/what-to-buy-and-what-to-skip-at-aldi-this-thanksgivin-1820470968>
 
 说到季节性产品， [乔氏](https://lifehacker.com/what-to-buy-and-what-to-skip-at-trader-joes-this-than-1820415534) 偏爱“把一整锅意大利面往墙上扔，看粘什么”的产品开发方法。ALDI——被收养的食品连锁店的兄弟姐妹中年长、聪明、谨慎的一个——采取了完全相反的方法。
 

@@ -1,6 +1,6 @@
 # 作为夫妻如何解决大吵大闹
 
-> 原文:[https://life hacker . com/how-to-solve-big-arguments-as-a-couple-1822234242](https://lifehacker.com/how-to-solve-big-arguments-as-a-couple-1822234242)
+> 原文：<https://lifehacker.com/how-to-solve-big-arguments-as-a-couple-1822234242>
 
 我们不愿意承认这一点，但婚姻(或任何长期的同居关系)看起来不像早期的浪漫，更像是商业伙伴关系。正如组织心理学家亚当·格兰特和他的妻子艾莉森·斯威特·格兰特在红皮书中解释的那样， [婚姻生活包含了许多妥协和谈判](http://www.redbookmag.com/love-sex/relationships/a14416124/how-to-negotiate-in-a-relationship/) 。他们提供了四种避免不愉快妥协的谈判技巧。
 

@@ -1,6 +1,6 @@
 # 如何求婚不搞砸
 
-> 原文:[https://life hacker . com/how-to-propose-marriage-without up-1826203644](https://lifehacker.com/how-to-propose-marriage-without-screwing-up-1826203644)
+> 原文：<https://lifehacker.com/how-to-propose-marriage-without-screwing-up-1826203644>
 
 一个婚礼提案值得有点壮观。不是令人讨厌的病毒视频噱头，而是让你的伴侣感到特别的东西。做一些计划是爱的行为。我和一月 雇佣的一月 [的一月谈过，关于当你求婚时该做什么，不该做什么。这些都是你可以自己使用的建议。](https://www.engagedbyjanuary.com/) 
 

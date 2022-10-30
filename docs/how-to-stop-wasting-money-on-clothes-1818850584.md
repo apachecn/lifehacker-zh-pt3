@@ -1,6 +1,6 @@
 # 如何停止在衣服上浪费钱
 
-> 原文:[https://life hacker . com/how-to-stop-waste-money-on-clothing-1818850584](https://lifehacker.com/how-to-stop-wasting-money-on-clothes-1818850584)
+> 原文：<https://lifehacker.com/how-to-stop-wasting-money-on-clothes-1818850584>
 
 你花几个小时试衣服，你花几百(也许更多！)买了那些衣服，然后你打开衣橱，你瞧，你看不到任何值得穿的衣服。这是一个常见的困境，也是一个经济上的浪费。
 

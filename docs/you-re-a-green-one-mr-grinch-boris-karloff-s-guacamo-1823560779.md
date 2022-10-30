@@ -1,6 +1,6 @@
 # 你是绿色的，格林奇先生:波利斯·卡洛夫的鳄梨色拉酱食谱
 
-> 原文:[https://the take out . com/you-re-a-green-one-Mr-Grinch-Boris-Karl off-s-guacamo-1823560779](https://thetakeout.com/you-re-a-green-one-mr-grinch-boris-karloff-s-guacamo-1823560779)
+> 原文：<https://thetakeout.com/you-re-a-green-one-mr-grinch-boris-karloff-s-guacamo-1823560779>
 
 *在* [***名人食谱***](https://thetakeout.com/tag/celebrity-recipes) ***，**中，我们从一位过去或现在深受喜爱的明星那里入手一份最喜欢的食谱。*
 

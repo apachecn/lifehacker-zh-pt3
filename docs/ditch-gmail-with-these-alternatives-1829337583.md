@@ -1,6 +1,6 @@
 # 用这些替代品抛弃 Gmail
 
-> 原文:[https://life hacker . com/ditch-Gmail-with-these-alternatives-1829337583](https://lifehacker.com/ditch-gmail-with-these-alternatives-1829337583)
+> 原文：<https://lifehacker.com/ditch-gmail-with-these-alternatives-1829337583>
 
 不难假设你可能会使用 Gmail——如今，世界上大多数人似乎都在使用 Gmail。这一现实让人们对 Gmail 和谷歌 Chrome 最近的一些隐私和安全相关变化感到震惊。
 

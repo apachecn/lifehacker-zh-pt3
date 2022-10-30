@@ -1,6 +1,6 @@
 # 在餐馆点鸡蛋的综合指南
 
-> 原文:[https://life hacker . com/a-comprehensive-guide-to-ordering-a-eggs-at-a-a-diner-1797272742](https://lifehacker.com/a-comprehensive-guide-to-ordering-eggs-at-a-diner-1797272742)
+> 原文：<https://lifehacker.com/a-comprehensive-guide-to-ordering-eggs-at-a-diner-1797272742>
 
 "你想要你的鸡蛋怎么做？"这不是一个应该让你恐慌的问题，但你可能没有对所有的选择进行鸡蛋练习，尤其是如果你所知道的一切都是混乱的。
 

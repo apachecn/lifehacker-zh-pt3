@@ -1,6 +1,6 @@
 # 香烟应该是非法的
 
-> 原文:[https://life hacker . com/香烟-应该是非法的-1823813265](https://lifehacker.com/cigarettes-should-be-illegal-1823813265)
+> 原文：<https://lifehacker.com/cigarettes-should-be-illegal-1823813265>
 
 昨天，我收到了一封来自美国食品和药物管理局 的电子邮件，其中包含了一段令人不快的声明:“依格瑞特是唯一合法的消费品，如果按预期使用，会杀死一半的长期使用者。”
 

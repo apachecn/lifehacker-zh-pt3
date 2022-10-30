@@ -1,6 +1,6 @@
 # 如何在新款 Pixelbook 笔记本电脑上使用谷歌助手
 
-> 原文:[https://life hacker . com/how-to-use-Google-assistant-on-the-new-pixel book-laptop-1819177653](https://lifehacker.com/how-to-use-google-assistant-on-the-new-pixelbook-laptop-1819177653)
+> 原文：<https://lifehacker.com/how-to-use-google-assistant-on-the-new-pixelbook-laptop-1819177653>
 
 [谷歌的高价新 Pixelbook](https://lifehacker.com/is-googles-new-pixelbook-laptop-worth-the-high-price-ta-1819154127#_ga=2.27932287.233542325.1507127109-472331419.1499788931) 装载了令人印象深刻的功能，从 10 小时的电池寿命到其光滑的铝制框架，但它最大的好处可能是快速方便地访问 [谷歌助手](https://lifehacker.com/how-to-get-google-assistant-on-any-phone-running-androi-1787706402) 。人工智能软件被嵌入到新设备中，根据你如何使用可转换的笔记本电脑-平板电脑混合体，有三种不同的方式来启动它。
 

@@ -1,6 +1,6 @@
 # 通过享用美味的早餐来了解一个新的城市
 
-> 原文:[https://life hacker . com/get-to-know-a-new-city-have-a-nice-breakfast-1820375762](https://lifehacker.com/get-to-know-a-new-city-by-having-a-nice-breakfast-1820375762)
+> 原文：<https://lifehacker.com/get-to-know-a-new-city-by-having-a-nice-breakfast-1820375762>
 
 我住酒店最喜欢的部分是酒店早餐。早餐，或者至少是我传统上吃的早餐，是一些最简单的准备，但我真的很喜欢别人为我炒鸡蛋或煎培根。每次旅行，我都真诚地期待着它。
 

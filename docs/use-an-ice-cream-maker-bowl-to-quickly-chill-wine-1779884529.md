@@ -1,6 +1,6 @@
 # 使用冰淇淋机碗快速冷冻葡萄酒
 
-> 原文:[https://life hacker . com/use-an-ice-cream-maker-bowl-to-quick-chill-wine-1779884529](https://lifehacker.com/use-an-ice-cream-maker-bowl-to-quickly-chill-wine-1779884529)
+> 原文：<https://lifehacker.com/use-an-ice-cream-maker-bowl-to-quickly-chill-wine-1779884529>
 
 从一室公寓搬到一个小房子，我最喜欢的事情之一就是购买一个普通大小的冰箱和一个普通大小的冰柜。(拥有洗碗机紧随其后。)感觉像变了一个女人。我的小公寓冰箱几乎没有空间放冷冻蔬菜，但现在——由于我的标准冰箱顶上冰冷的房地产的尴尬——我可以参加一些活动，如“储备”打折牛排，“个人速冻”和“把我的冰淇淋机碗一直放在冰箱里。”
 

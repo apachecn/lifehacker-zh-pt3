@@ -1,6 +1,6 @@
 # 立即扔掉这些可能被沙门氏菌污染的鸡蛋
 
-> 原文:[https://life hacker . com/throw-away-this-possible-salmonella-stamped-eggs-right-1825293793](https://lifehacker.com/throw-away-these-possibly-salmonella-tainted-eggs-right-1825293793)
+> 原文：<https://lifehacker.com/throw-away-these-possibly-salmonella-tainted-eggs-right-1825293793>
 
 大量鸡蛋正在被召回！事实上， [超过 2 亿个鸡蛋因沙门氏菌爆发而被追踪到北卡罗莱纳州的一个农场](https://www.nytimes.com/2018/04/15/business/egg-recall-salmonella.html) 。这个农场已经停止分发已经导致 22 人患病的鸡蛋。 [*商业内幕*](http://www.businessinsider.com/egg-recall-2018-list-salmonella-2018-4) 报道称，这些鸡蛋主要在沃尔玛和 Food Lion 在九个州销售:科罗拉多州、佛罗里达州、新泽西州、纽约州、北卡罗来纳州、宾夕法尼亚州、南卡罗来纳州、弗吉尼亚州和西弗吉尼亚州。有关受影响品牌的完整名单，包括乡村黎明、食品狮子、华夫饼屋、水晶农场和科伯恩农场，请查看美国食品和药物管理局的网站。
 

@@ -1,6 +1,6 @@
 # 本学年如何在经济上帮助老师和学生
 
-> 原文:[https://life hacker . com/how-to-help-this-school-year-1828524642](https://lifehacker.com/how-to-help-teachers-and-students-this-school-year-1828524642)
+> 原文：<https://lifehacker.com/how-to-help-teachers-and-students-this-school-year-1828524642>
 
 根据美国教育部 的一份 [报告，因为美国是一个绝对有轻重缓急之分的国家，公立学校的老师平均每年要花 479 美元为他们的学生购买学习用品。大约 7%的教师每年花费超过 1000 美元。](https://www.washingtonpost.com/local/education/teachers-shelling-out-nearly-500-a-year-on-school-supplies-report-finds/2018/05/14/af2affae-57b8-11e8-b656-a5f8c2a9295d_story.html?noredirect=on&utm_term=.30b2630d5b5c) 
 

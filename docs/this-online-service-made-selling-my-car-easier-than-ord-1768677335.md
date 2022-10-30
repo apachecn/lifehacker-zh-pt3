@@ -1,6 +1,6 @@
 # 这项在线服务让我卖车比叫外卖更容易
 
-> 原文:[https://jalopnik . com/this-online-service-made-selling-my-car-easy-than-ord-1768677335](https://jalopnik.com/this-online-service-made-selling-my-car-easier-than-ord-1768677335)
+> 原文：<https://jalopnik.com/this-online-service-made-selling-my-car-easier-than-ord-1768677335>
 
 你们都去过那里。是时候买辆新车了，但是你的工作和个人生活并没有给你时间卖掉你的旧车。工作量很大！把它弄干净并详细说明。在出售之前解决它需要的任何小问题。拍一些可能引起别人注意的照片，然后想出如何定价。一家位于西海岸的新公司 Shift 正试图改变这一切。
 

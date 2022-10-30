@@ -1,6 +1,6 @@
 # 什么是清醒梦，我该如何开始？
 
-> 原文:[https://life hacker . com/what-is-lucid-dreaming-and-how-do-I-started-1795552901](https://lifehacker.com/what-is-lucid-dreaming-and-how-do-i-get-started-1795552901)
+> 原文：<https://lifehacker.com/what-is-lucid-dreaming-and-how-do-i-get-started-1795552901>
 
 欢迎来到 Lifehacker 的 [**清明梦工作坊**](http://lifehacker.com/tag/lucid-dream-workshop) 。每周我们都会学到更多关于睡眠科学的神秘领域，梦，以及当我们熟睡时如何“醒来”。
 

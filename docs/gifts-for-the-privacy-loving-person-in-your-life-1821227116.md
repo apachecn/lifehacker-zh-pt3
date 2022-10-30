@@ -1,6 +1,6 @@
 # 给你生活中喜欢隐私的人的礼物
 
-> 原文:[https://life hacker . com/gifts-for-the-privacy-loved-in-your-life-1821227116](https://lifehacker.com/gifts-for-the-privacy-loving-person-in-your-life-1821227116)
+> 原文：<https://lifehacker.com/gifts-for-the-privacy-loving-person-in-your-life-1821227116>
 
 不是每个人都希望家里有一个永远开着的麦克风，不管用你的声音控制你的灯泡有多酷。如果你要给一个人买礼物，他对这个什么都听我们的勇敢新世界感到紧张，那么给他们一些隐私友好的礼物可能会帮助他们放松并享受生活中的小事情。比如有针对性的广告，或者在街角等着的无标记的汽车。
 

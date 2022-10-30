@@ -1,6 +1,6 @@
 # 关于信用合作社的四个神话被揭穿
 
-> 原文:[https://life hacker . com/four-myths-about-credit-unions-debunched-1787164603](https://lifehacker.com/four-myths-about-credit-unions-debunked-1787164603)
+> 原文：<https://lifehacker.com/four-myths-about-credit-unions-debunked-1787164603>
 
 在 2008 年银行业危机和最近富国银行的惨败之间，人们很容易对银行持怀疑态度。如果你不喜欢大银行，还有一个选择:信用合作社。信用合作社已经变得越来越受欢迎，但是对于他们如何工作和他们提供什么仍然有很多误解。
 

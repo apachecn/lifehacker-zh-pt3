@@ -1,6 +1,6 @@
 # 如果您需要日志记录方面的帮助，请使用这些提示
 
-> 原文:[https://life hacker . com/use-these-prompts-if-you-need-help-journaling-1823368749](https://lifehacker.com/use-these-prompts-if-you-need-help-journaling-1823368749)
+> 原文：<https://lifehacker.com/use-these-prompts-if-you-need-help-journaling-1823368749>
 
 像任何习惯一样，写日记说起来容易做起来难。我尝试了很多年(我童年卧室里所有半空的笔记本都可以证明这一点)，直到我在大学出国留学并每天在旅行日志中写作，我才形成了一个持续的习惯。在那段时间里，一些事情就这样发生了，当我回到美国时，我继续保持这种状态，在那里，它从一份我去过的地方和我吃过的食物的目录演变成一个通过感觉工作、扩展问题或随机观察以及为自己设定目标的地方。
 

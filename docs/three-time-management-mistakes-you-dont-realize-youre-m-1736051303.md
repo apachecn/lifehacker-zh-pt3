@@ -1,6 +1,6 @@
 # 你没有意识到你正在犯的三个时间管理错误
 
-> 原文:[https://life hacker . com/three-time-management-missons-you-don-aware-you-m-1736051303](https://lifehacker.com/three-time-management-mistakes-you-dont-realize-youre-m-1736051303)
+> 原文：<https://lifehacker.com/three-time-management-mistakes-you-dont-realize-youre-m-1736051303>
 
 不管你认为自己有多聪明或有多有经验，重要的是要记住，在某些事情上，你永远是个新手。听起来显而易见，但这是经理、企业家和其他商业领袖容易忘记的事情，尤其是当涉及到他们如何管理时间的时候。
 

@@ -1,6 +1,6 @@
 # 使用 Android 版的“YouTube Vanced ”,进入 YouTube 的黑暗模式(并抛弃广告)
 
-> 原文:[https://life hacker . com/get-YouTube es-dark-mode-and-ditch-ads-with-YouTube-van-1827853878](https://lifehacker.com/get-youtubes-dark-mode-and-ditch-ads-with-youtube-van-1827853878)
+> 原文：<https://lifehacker.com/get-youtubes-dark-mode-and-ditch-ads-with-youtube-van-1827853878>
 
 无论出于何种原因，谷歌尚未给其 Android YouTube 应用程序提供期待已久的最终解锁黑暗模式的更新。iOS 用户可以黑暗模式。网络观众可以暗模式。但是安卓呢？它的 [光面](https://youtu.be/8wJa1L1ZCqU?t=1m59s) 或者什么都没有(至少，截至我们写这篇文章的时候)。
 

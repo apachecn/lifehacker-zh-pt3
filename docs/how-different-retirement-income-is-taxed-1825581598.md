@@ -1,6 +1,6 @@
 # 如何对不同的退休收入征税
 
-> 原文:[https://life hacker . com/how-different-retirement-income-is-taed-1825581598](https://lifehacker.com/how-different-retirement-income-is-taxed-1825581598)
+> 原文：<https://lifehacker.com/how-different-retirement-income-is-taxed-1825581598>
 
 我们都梦想有一天，我们可以永远离开无聊的公司工作或不成功的职业，拿着我们的退休储蓄，花更多的时间和家人在一起，或者去旅行，我们已经计划了一辈子。虽然在人生的这个阶段，你会有一百万个关于如何支配时间和金钱的考虑，但还有一个会对你的计划产生重大影响的因素需要考虑:你的退休收入中有多少会被征税。
 

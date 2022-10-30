@@ -1,6 +1,6 @@
 # 你会对你的润唇膏上瘾吗？
 
-> 原文:[https://life hacker . com/can-you-can-additive-to-your-lip-balm-1736727613](https://lifehacker.com/can-you-be-addicted-to-your-lip-balm-1736727613)
+> 原文：<https://lifehacker.com/can-you-be-addicted-to-your-lip-balm-1736727613>
 
 你的嘴唇很干，所以你用一管或一个小罐子或一种奇怪的高尔夫球涂抹一些舒缓的东西。啊，解脱了。但是当它消失的时候，你需要更多。整个冬天循环往复。你是在践行负责任的护肤，还是已经上瘾了？
 

@@ -1,6 +1,6 @@
 # 如何帮助印尼地震和海啸的受害者
 
-> 原文:[https://life hacker . com/how-to-help-victors-of-the-Indonesia-strange-and-tsu-1829497605](https://lifehacker.com/how-to-help-victims-of-the-indonesia-earthquake-and-tsu-1829497605)
+> 原文：<https://lifehacker.com/how-to-help-victims-of-the-indonesia-earthquake-and-tsu-1829497605>
 
 周五，印度尼西亚苏拉威西岛遭受 7.5 级地震袭击，随后是 20 英尺高的海啸。已经确认超过 1200 人死亡，帕卢市需要帮助。
 

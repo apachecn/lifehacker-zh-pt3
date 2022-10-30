@@ -1,6 +1,6 @@
 # 问专家:关于备份你的数据
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-back-up-your-data-1767507745](https://lifehacker.com/ask-an-expert-all-about-backing-up-your-data-1767507745)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-backing-up-your-data-1767507745>
 
 数据存储如此便宜是现代计算的奢侈品。谁能想到你能在口袋里携带数百千兆字节的数据？但是，拥有如此多的数据备份选项也带来了一个问题:哪种存储解决方案最适合您的需求？
 

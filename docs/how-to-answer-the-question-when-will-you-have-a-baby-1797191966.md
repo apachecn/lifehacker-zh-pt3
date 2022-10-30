@@ -1,6 +1,6 @@
 # 如何回答“你什么时候生孩子？”当你不孕的时候
 
-> 原文:[https://life hacker . com/how-to-answer-the-question-when you-have a-baby-1797191966](https://lifehacker.com/how-to-answer-the-question-when-will-you-have-a-baby-1797191966)
+> 原文：<https://lifehacker.com/how-to-answer-the-question-when-will-you-have-a-baby-1797191966>
 
 我曾经听到一个喜剧演员说，“永远不要问一个女人是否怀孕，除非你真的看到一个婴儿的头从她的腿里出来。”明智的建议——可惜没人采纳。我不知道有多少次人们问我是否怀孕了，我是否打算怀孕或者我在等待什么来怀孕。
 

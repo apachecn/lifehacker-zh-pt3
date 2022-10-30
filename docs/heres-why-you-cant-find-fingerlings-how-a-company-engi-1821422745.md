@@ -1,6 +1,6 @@
 # 以下是你找不到小鱼的原因:一家公司如何设计完美的病毒式节日礼物
 
-> 原文:[https://gizmodo . com/heres-why-you-can-fingerlings-how-a-company-engi-1821422745](https://gizmodo.com/heres-why-you-cant-find-fingerlings-how-a-company-engi-1821422745)
+> 原文：<https://gizmodo.com/heres-why-you-cant-find-fingerlings-how-a-company-engi-1821422745>
 
 你见过小鱼。它们是粘在青春期前手指上的彩色猴子、树懒或独角兽。它们的传感器和人工智能允许它们对手势和声音做出反应，因此它们可以聊天、接吻、打鼾，甚至放屁。它们比一个坐立不安的旋转器酷多了，15 美元的价格也差不多。但是如果你现在想买一个，那你可能就不走运了。几乎所有的大型商店都没有鱼苗，它们正在易贝上出售，价格从原来的两倍到高达5000 美元不等。
 

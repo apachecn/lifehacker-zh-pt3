@@ -1,6 +1,6 @@
 # 有了格温的花生酱更好的酱料，就连西兰花也大受欢迎
 
-> 原文:[https://the take out . com/with-Gwen-s-peanut-butter-better-sauce-even-花椰菜 i-1826413956](https://thetakeout.com/with-gwen-s-peanut-butter-better-sauce-even-broccoli-i-1826413956)
+> 原文：<https://thetakeout.com/with-gwen-s-peanut-butter-better-sauce-even-broccoli-i-1826413956>
 
 你知道西兰花被认为是超级食物吗？一位医生甚至建议说 [是你唯一需要吃的蔬菜](http://www.businessinsider.com/all-you-need-is-broccoli-2018-5) 。朴实无华的西兰花(或者，就像我们在这里喜欢说的， [杂耍鲍勃花](https://thetakeout.com/supermarket-gets-kids-to-eat-veggies-by-renaming-them-1826386880) )可能很难卖，如果没有美味的奶酪酱，或一些酱油，或 [斯蒂芬妮·伊扎德著名的烘焙工艺](https://thetakeout.com/stephanie-izard-has-tips-for-becoming-a-top-chef-at-hom-1825533458) ，上面放着米饼。
 

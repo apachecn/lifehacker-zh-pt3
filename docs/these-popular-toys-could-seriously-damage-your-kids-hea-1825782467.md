@@ -1,6 +1,6 @@
 # 这些受欢迎的玩具会严重损害孩子的听力
 
-> 原文:[https://life hacker . com/these-popular-toys-could-serious-damage-your-kids-hea-1825782467](https://lifehacker.com/these-popular-toys-could-seriously-damage-your-kids-hea-1825782467)
+> 原文：<https://lifehacker.com/these-popular-toys-could-seriously-damage-your-kids-hea-1825782467>
 
 你不只是变老了。今天的玩具太吵了。这不仅仅是一个驱使许多父母拿出锤子或喝酒的烦恼——长时间暴露在高分贝的环境中对孩子来说是危险的，甚至可能导致长期的听力损失。
 

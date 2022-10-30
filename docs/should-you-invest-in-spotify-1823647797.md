@@ -1,6 +1,6 @@
 # 你应该购买 Spotify 的股票吗？
 
-> 原文:[https://life hacker . com/should-you-invest-Spotify-1823647797](https://lifehacker.com/should-you-invest-in-spotify-1823647797)
+> 原文：<https://lifehacker.com/should-you-invest-in-spotify-1823647797>
 
 Spotify 计划在未来几周内通过直接在纽交所上市，这激起了投资者的兴趣，他们希望这是下一只热门科技股(多一点网飞，少一点 Snapchat)。那么，该不该投资呢？
 

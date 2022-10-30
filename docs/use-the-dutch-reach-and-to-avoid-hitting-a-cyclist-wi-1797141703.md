@@ -1,6 +1,6 @@
 # 使用“荷兰式伸展”来避免用你的车门撞到骑车人
 
-> 原文:[https://life hacker . com/use-the-Dutch-reach-and-to-avoid-hit-a cycler-wi-1797141703](https://lifehacker.com/use-the-dutch-reach-and-to-avoid-hitting-a-cyclist-wi-1797141703)
+> 原文：<https://lifehacker.com/use-the-dutch-reach-and-to-avoid-hitting-a-cyclist-wi-1797141703>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-GzIf80eSfCg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-GzIf80eSfCg&start=0) 
 

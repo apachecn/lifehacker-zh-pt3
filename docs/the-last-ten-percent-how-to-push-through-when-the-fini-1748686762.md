@@ -1,6 +1,6 @@
 # 最后 10 %:当你接近终点时，如何完成一个项目
 
-> 原文:[https://life hacker . com/the-last-ten-percent-how-to-push-through-when-fini-1748686762](https://lifehacker.com/the-last-ten-percent-how-to-push-through-when-the-fini-1748686762)
+> 原文：<https://lifehacker.com/the-last-ten-percent-how-to-push-through-when-the-fini-1748686762>
 
 还记得当你将 headfirst 投入到你的最新项目中时的兴奋感吗？每扇门都敞开着，机会是无穷无尽的。但是，如果你像大多数人一样，你开始在接近终点线时绊倒。所有让你到达那个位置的动力和驱动力似乎都消失了。
 

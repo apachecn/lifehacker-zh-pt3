@@ -1,6 +1,6 @@
 # 如何看没有有线电视的艾美奖
 
-> 原文:[https://life hacker . com/how-to-watch-the-emmys-without-a-TV-Sunday-1803756576](https://lifehacker.com/how-to-watch-the-emmys-without-a-tv-on-sunday-1803756576)
+> 原文：<https://lifehacker.com/how-to-watch-the-emmys-without-a-tv-on-sunday-1803756576>
 
 如果你目前依赖智能手机、笔记本电脑或某种显示器来看电视，你仍然可以在 9 月 17 日周日通过流媒体播放第 69 届艾美奖奖 来获得你的红地毯修复。
 

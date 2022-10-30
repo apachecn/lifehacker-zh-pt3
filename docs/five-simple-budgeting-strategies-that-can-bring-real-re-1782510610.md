@@ -1,6 +1,6 @@
 # 五个简单的预算策略可以带来真正的结果
 
-> 原文:[https://life hacker . com/five-simple-budgeting-strategies-that-can-bring-real-re-1782510610](https://lifehacker.com/five-simple-budgeting-strategies-that-can-bring-real-re-1782510610)
+> 原文：<https://lifehacker.com/five-simple-budgeting-strategies-that-can-bring-real-re-1782510610>
 
 从我还是个孩子的时候起，我就对数字有着浓厚的兴趣。我父亲喜欢讲这样一个故事:当我七岁的时候，我凭记忆纠正了一个家伙的数学错误——当然，这种纠正对我父亲不利，还花了他一些钱。
 

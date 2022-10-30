@@ -1,6 +1,6 @@
 # 你自制的蔓越莓酱太难吃了
 
-> 原文:[https://life hacker . com/your-manufacturing-cranberry-sauce-sucks-1820651745](https://lifehacker.com/your-homemade-cranberry-sauce-sucks-1820651745)
+> 原文：<https://lifehacker.com/your-homemade-cranberry-sauce-sucks-1820651745>
 
 今天是感恩、家庭和美食的日子。现在请把越橘酱递给我。不，不是自制的垃圾；罐头上的切片凝胶。
 

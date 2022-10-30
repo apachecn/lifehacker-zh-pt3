@@ -1,6 +1,6 @@
 # 这些是所有汽车都需要的功能
 
-> 原文:[https://jalopnik . com/these-is-features-you-think-all-cars-need-1828297963](https://jalopnik.com/these-are-features-you-think-all-cars-need-1828297963)
+> 原文：<https://jalopnik.com/these-are-features-you-think-all-cars-need-1828297963>
 
 今天的汽车是很棒的机器，可以检测到你，司机，何时变得昏昏欲睡，或者提供车载 WiFi，以便你的乘客可以在驾驶时完成一些工作。它们是现代科技的奇迹，但尽管如此，汽车仍然缺少一些关键的特征。
 

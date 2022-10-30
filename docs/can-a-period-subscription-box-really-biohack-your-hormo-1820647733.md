@@ -1,6 +1,6 @@
 # 一个定期订阅盒真的能破坏你的荷尔蒙吗？
 
-> 原文:[https://life hacker . com/can-a-period-subscription-box-really-bio hack-your-hormo-1820647733](https://lifehacker.com/can-a-period-subscription-box-really-biohack-your-hormo-1820647733)
+> 原文：<https://lifehacker.com/can-a-period-subscription-box-really-biohack-your-hormo-1820647733>
 
 现在有一整个部门的 [爆炸订阅盒市场](https://www.forbes.com/sites/richardkestenbaum/2017/08/10/subscription-businesses-are-exploding-with-growth/#198854a56678) 致力于每月的一个非常具体的时间:你的月经。许多公司提供的不仅仅是卫生用品和小吃:他们声称能够帮助调节使用者的荷尔蒙，让他们在精神和身体上都有一个更好的时期。
 

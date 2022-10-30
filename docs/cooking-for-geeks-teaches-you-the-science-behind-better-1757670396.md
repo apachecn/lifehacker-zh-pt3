@@ -1,6 +1,6 @@
 # 为极客烹饪教你更好的烹饪背后的科学
 
-> 原文:[https://life hacker . com/cooking-for-geeks-teaches-you-the-science-behind-better-1757670396](https://lifehacker.com/cooking-for-geeks-teaches-you-the-science-behind-better-1757670396)
+> 原文：<https://lifehacker.com/cooking-for-geeks-teaches-you-the-science-behind-better-1757670396>
 
 如果你不仅对如何让食物变得美味感兴趣，还对为什么某些技术和配料会这样产生效果感兴趣，那就去看看杰夫·波特的《为极客烹饪的 T4》。这本书可以帮助你开始在厨房里做实验，并且 [钻研食物科学](https://lifehacker.com/how-to-improve-your-home-cooking-with-the-power-of-scie-511405909) 成为一名更好的家庭厨师。
 

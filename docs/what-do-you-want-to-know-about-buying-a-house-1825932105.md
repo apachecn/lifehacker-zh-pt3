@@ -1,6 +1,6 @@
 # 买房想了解什么？
 
-> 原文:[https://life hacker . com/what-do-you-want-to-know-about-buying-a house-1825932105](https://lifehacker.com/what-do-you-want-to-know-about-buying-a-house-1825932105)
+> 原文：<https://lifehacker.com/what-do-you-want-to-know-about-buying-a-house-1825932105>
 
 朋友们好。是我，你忠实的个人理财博主，回来问你有什么关于买房的问题。
 

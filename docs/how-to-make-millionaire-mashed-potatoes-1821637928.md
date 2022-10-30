@@ -1,6 +1,6 @@
 # 如何制作百万富翁土豆泥
 
-> 原文:[https://the take out . com/how-to-make-millionaire-土豆泥-1821637928](https://thetakeout.com/how-to-make-millionaire-mashed-potatoes-1821637928)
+> 原文：<https://thetakeout.com/how-to-make-millionaire-mashed-potatoes-1821637928>
 
 我把这些和我的 [鲜味烤牛肉](https://thetakeout.com/an-unconventional-beef-rib-roast-delivers-maximum-umami-1798261148) 一起作为圣诞晚餐，我的妻子，她认为自己是一个马铃薯爱好者，不喜欢夸张，告诉我这是她吃过的最好的土豆泥。我也会这么说。
 

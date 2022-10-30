@@ -1,6 +1,6 @@
 # 你可以使用美国邮政总局来邮寄这些动物——但是首先要阅读规则
 
-> 原文:[https://life hacker . com/you-can-use-the-usps-to-mail-these-but-read-the-1798703848](https://lifehacker.com/you-can-use-the-usps-to-mail-these-animals-but-read-the-1798703848)
+> 原文：<https://lifehacker.com/you-can-use-the-usps-to-mail-these-animals-but-read-the-1798703848>
 
 关于 USPS 的观点可能会因你问谁(或你丢失了什么包裹)而不同，但该机构确实运送几乎任何东西。然而，知道美国邮政总局还愿意运送什么可能会让你吃惊:某些种类的活动物，而且很多。根据你要邮寄的东西，你必须遵循一些不同的规则 ，但是只要你坚持计划，你的小动物应该会平安无事地到达目的地。
 

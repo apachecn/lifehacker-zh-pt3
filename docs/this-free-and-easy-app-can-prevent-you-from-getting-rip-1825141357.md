@@ -1,6 +1,6 @@
 # 这个免费且简单的应用程序可以防止你在汽车经销商那里被敲竹杠
 
-> 原文:[https://jalopnik . com/this-free-and-easy-app-can-prevent-you-get-rip-1825141357](https://jalopnik.com/this-free-and-easy-app-can-prevent-you-from-getting-rip-1825141357)
+> 原文：<https://jalopnik.com/this-free-and-easy-app-can-prevent-you-from-getting-rip-1825141357>
 
 有各种各样的网站、平台和创业公司被认为会“扰乱”整个购车过程，然而每天人们都以糟糕的交易告终。但最强大的工具是买家已经拥有一段时间的东西，他们甚至不必下载它。
 

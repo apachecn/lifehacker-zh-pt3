@@ -1,6 +1,6 @@
 # 如何在不失去理智的情况下驾驶精神航空
 
-> 原文:[https://life hacker . com/how-to-fly-spirit-airlines-without-lost-your-mind-1785714484](https://lifehacker.com/how-to-fly-spirit-airlines-without-losing-your-mind-1785714484)
+> 原文：<https://lifehacker.com/how-to-fly-spirit-airlines-without-losing-your-mind-1785714484>
 
 精神航空 [得到很多废话](https://lifehacker.com/your-least-favorite-airline-spirit-airlines-1652507364) 。很多时候， [那句废话是当之无愧的](http://www.huffingtonpost.com/2015/03/17/spirit-airlines-inappropropriate-ad_n_6886606.html) 。他们已经放弃了对淫秽幽默的 [蹩脚尝试](https://www.yahoo.com/style/spirit-airlines-launches-offensive-69-ad-113965172822.html) *和*他们的首席执行官，这是朝着正确方向迈出的几步，但他们仍然厚颜无耻地廉价，是不舒服的裸机飞行的缩影。问题是，它们的价格非常低。然而，在不丧失理智的情况下乘坐这种廉价、不方便的航班是可能的。
 

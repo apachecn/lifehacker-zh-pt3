@@ -1,6 +1,6 @@
 # 从《纽约时报》的大特朗普税收故事中要知道的关键事情
 
-> 原文:[https://life hacker . com/key-things-to-know from-the-new-York-times-big-trump-ta-1829489709](https://lifehacker.com/key-things-to-know-from-the-new-york-times-big-trump-ta-1829489709)
+> 原文：<https://lifehacker.com/key-things-to-know-from-the-new-york-times-big-trump-ta-1829489709>
 
 根据《纽约时报》[](https://www.nytimes.com/interactive/2018/10/02/us/politics/donald-trump-tax-schemes-fred-trump.html)**刊登的一篇重磅报道，唐纳德·特朗普总统卷入了一些涉及其父亲房地产帝国的见不得人的税务行为，包括“公然欺诈”和逃税。**
 

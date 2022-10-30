@@ -1,6 +1,6 @@
 # 在 Pokémon GO 中升级的最快方法
 
-> 原文:[https://life hacker . com/the-fast-way-to-level up-in-pokemon-go-1827144821](https://lifehacker.com/the-fastest-way-to-level-up-in-pokemon-go-1827144821)
+> 原文：<https://lifehacker.com/the-fastest-way-to-level-up-in-pokemon-go-1827144821>
 
 随着最近发布的《神奇宝贝:让我们去任天堂 Switch》及其与《神奇宝贝:去 T2》互动的功能，玩家们正在集体回归这款手机游戏。如果你正试图回到游戏中，这里有一个快速升级并赶上那些从未放弃的人的窍门。
 

@@ -1,6 +1,6 @@
 # 当找不到皮肤科医生时，如何预约
 
-> 原文:[https://life hacker . com/how-to-get-a 约见皮肤科医生-when-1798397585](https://lifehacker.com/how-to-get-an-appointment-with-a-dermatologist-when-the-1798397585)
+> 原文：<https://lifehacker.com/how-to-get-an-appointment-with-a-dermatologist-when-the-1798397585>
 
 当你需要皮肤科医生的时候，他在哪里？女性健康 最近的 [调查详细说明了能够评估皮肤癌的皮肤科医生的普遍短缺。如果你能预约的话，等待时间可能会长得危险。](http://www.womenshealthmag.com/dermatology-deserts) 
 

@@ -1,6 +1,6 @@
 # 简单的工具条桌面
 
-> 原文:[https://life hacker . com/the-simple-sidebar-desktop-1778987386](https://lifehacker.com/the-simple-sidebar-desktop-1778987386)
+> 原文：<https://lifehacker.com/the-simple-sidebar-desktop-1778987386>
 
 这个 chill，cityside beach 桌面是由读者 [Yuki](https://www.flickr.com/photos/127192490@N06/) 提交给我们的桌面展示和讲述池的，尽管它不是精心制作的，但它看起来仍然很棒。以下是你也可以设置它的方法。
 

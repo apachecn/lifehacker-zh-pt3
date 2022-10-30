@@ -1,6 +1,6 @@
 # 在你的旧东西变成一大堆垃圾之前，把它捐出去
 
-> 原文:[https://life hacker . com/在你的旧东西变成大堆之前捐出去 1822661099](https://lifehacker.com/donate-your-old-stuff-before-it-becomes-a-giant-pile-of-1822661099)
+> 原文：<https://lifehacker.com/donate-your-old-stuff-before-it-becomes-a-giant-pile-of-1822661099>
 
 当我们上周五汇总员工的每周更新时，我们的编辑正在减少我们的 Instagram 习惯，下载电视节目以便在通勤途中观看，投资购买优质厨具，等等。
 

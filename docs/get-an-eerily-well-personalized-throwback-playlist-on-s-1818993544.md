@@ -1,6 +1,6 @@
 # 在 Spotify 上获得一个非常个性化的回归播放列表
 
-> 原文:[https://life hacker . com/get-an-eerry-well-throwback-playlist-on-s-1818993544](https://lifehacker.com/get-an-eerily-well-personalized-throwback-playlist-on-s-1818993544)
+> 原文：<https://lifehacker.com/get-an-eerily-well-personalized-throwback-playlist-on-s-1818993544>
 
 互联网上没有什么是秘密——我们知道这一点。我们在 Zappos 上看到的鞋子的脸书广告，以及在脸书提到的产品的 Instagram 广告。眼睛和算法无处不在。当然，有时会令人毛骨悚然。但今天它很棒，因为这意味着每个人都有一个完美、美丽的 Spotify 播放列表，里面有我们在高中时喜欢的歌曲。
 

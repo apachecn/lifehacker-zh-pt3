@@ -1,6 +1,6 @@
 # 是时候离开你的银行了(以及如何选择一家新银行)
 
-> 原文:[https://life hacker . com/signs-its-time-to-leave-your-bank-and-how-to-choose-a-1749343101](https://lifehacker.com/signs-its-time-to-leave-your-bank-and-how-to-choose-a-1749343101)
+> 原文：<https://lifehacker.com/signs-its-time-to-leave-your-bank-and-how-to-choose-a-1749343101>
 
 我不是一个忠诚的银行客户。在过去的 5 到 6 年里，我换了几次银行，原因是费用、糟糕的客户服务或者其他地方有更好的选择。我不后悔。如果你正在考虑离开你的银行，这里有一些迹象表明是时候咬紧牙关了。
 

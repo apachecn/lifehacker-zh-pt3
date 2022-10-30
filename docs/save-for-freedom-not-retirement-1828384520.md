@@ -1,6 +1,6 @@
 # 为自由而储蓄，而不是退休
 
-> 原文:[https://life hacker . com/save-for-freedom-not-retirement-1828384520](https://lifehacker.com/save-for-freedom-not-retirement-1828384520)
+> 原文：<https://lifehacker.com/save-for-freedom-not-retirement-1828384520>
 
 如果你不能为退休储蓄做好心理准备——你会说，有太多其他的事情要担心，而且我永远也不会退休——那就把储蓄当成给自己自由。
 

@@ -1,6 +1,6 @@
 # 告诉我们你的迪士尼世界旅行小贴士
 
-> 原文:[https://life hacker . com/tell-us-your-Disney-world-travel-tips-1825786306](https://lifehacker.com/tell-us-your-disney-world-travel-tips-1825786306)
+> 原文：<https://lifehacker.com/tell-us-your-disney-world-travel-tips-1825786306>
 
 本周《黑客城市》节目，我们将报道一个主题公园。四个主题公园合而为一，为你们三位一体。我们谈论的是华特·迪士尼世界，这个佛罗里达的复合物包括 Epcot，好莱坞工作室，魔法王国，迪斯尼动物王国，以及其他各种各样的景点。
 

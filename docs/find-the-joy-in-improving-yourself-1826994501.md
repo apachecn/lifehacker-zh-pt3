@@ -1,6 +1,6 @@
 # 在提升自己中找到快乐
 
-> 原文:[https://life hacker . com/find-the-joy-in-improving-yourself-1826994501](https://lifehacker.com/find-the-joy-in-improving-yourself-1826994501)
+> 原文：<https://lifehacker.com/find-the-joy-in-improving-yourself-1826994501>
 
 欢迎回到 [**周中冥想**](https://lifehacker.com/c/mid-week-meditations) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 

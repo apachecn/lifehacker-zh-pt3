@@ -1,6 +1,6 @@
 # 告诉我们你的都柏林旅行小贴士
 
-> 原文:[https://life hacker . com/tell-us-your-Dublin-travel-tips-1825247721](https://lifehacker.com/tell-us-your-dublin-travel-tips-1825247721)
+> 原文：<https://lifehacker.com/tell-us-your-dublin-travel-tips-1825247721>
 
 一个新的黑客你的城市正在冒泡，所以你们所有人，我们将努力分享你们所有的建议
 和神秘的妙语

@@ -1,6 +1,6 @@
 # 解开你的栖息地让我终于开始打扫我的房子
 
-> 原文:[https://life hacker . com/UNF-CK-your-habitat-get-me-to-finally-start-cleaning-my-1791338553](https://lifehacker.com/unf-ck-your-habitat-got-me-to-finally-start-cleaning-my-1791338553)
+> 原文：<https://lifehacker.com/unf-ck-your-habitat-got-me-to-finally-start-cleaning-my-1791338553>
 
 我的办公室一团糟。老实说，我家的很多地方也是如此。我不喜欢打扫卫生，所以我倾向于懒得打扫书。即使他们激励我去打扫，所有的东西都会变脏，那又有什么意义呢？但后来我遇到了[](https://www.amazon.com/dp/1250102952?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/unf-ck-your-habitat-got-me-to-finally-start-cleaning-my-1791338553&asc_source=&linkCode=ogi&psc=1&smid=ATVPDKIKX0DER&tag=kinjalifehackerlink-20&th=1)*。* 
 

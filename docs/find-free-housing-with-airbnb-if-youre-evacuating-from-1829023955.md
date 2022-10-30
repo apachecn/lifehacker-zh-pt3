@@ -1,6 +1,6 @@
 # 如果你要从佛罗伦萨飓风中撤离，可以在 Airbnb 上找到免费住房
 
-> 原文:[https://life hacker . com/find-free-housing-with-Airbnb-if-you-evacuating-from-1829023955](https://lifehacker.com/find-free-housing-with-airbnb-if-youre-evacuating-from-1829023955)
+> 原文：<https://lifehacker.com/find-free-housing-with-airbnb-if-youre-evacuating-from-1829023955>
 
 Airbnb 要求主人免费开放他们的家给正在从佛罗伦萨飓风中撤离的人们，以及已经部署到该地区的救援人员。
 

@@ -1,6 +1,6 @@
 # 如何使用 GIF 作为你的 Tinder 个人资料图片
 
-> 原文:[https://life hacker . com/how-to-use-a-gif-as-your-tinder-profile-pic-1827371732](https://lifehacker.com/how-to-use-a-gif-as-your-tinder-profile-pic-1827371732)
+> 原文：<https://lifehacker.com/how-to-use-a-gif-as-your-tinder-profile-pic-1827371732>
 
 如果你的普通 ol' Tinder 个人资料照片没有得到足够多的人向右滑动，现在你可以用 GIF 代替它。
 

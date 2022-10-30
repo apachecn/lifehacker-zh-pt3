@@ -1,6 +1,6 @@
 # 制作一个情感转盘来帮助孩子表达他们的感受
 
-> 原文:[https://life hacker . com/make-an-emotion-wheel-to-help-kids-express-they-feeling-1798665324](https://lifehacker.com/make-an-emotion-wheel-to-help-kids-express-their-feelin-1798665324)
+> 原文：<https://lifehacker.com/make-an-emotion-wheel-to-help-kids-express-their-feelin-1798665324>
 
 小孩子有很多重大的感受，这些感受会在你说“你想吃草莓酱三明治吗？”时迅速而戏剧性地发生变化。"哦，亲爱的，我们只剩下面包的两端了。"但是他们不能总是用语言表达他们的感情，所以他们经常在发脾气和流泪的时候表达。爸爸妈妈的催促— *冷静下来，我们来谈谈，说说你的感受，你不爽吗？*——只会让他们更加沮丧。
 

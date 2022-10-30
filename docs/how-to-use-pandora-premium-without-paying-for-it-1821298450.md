@@ -1,6 +1,6 @@
 # 如何免费使用潘多拉高级版
 
-> 原文:[https://life hacker . com/how-to-use-Pandora-premium-without-pay-for-it-1821298450](https://lifehacker.com/how-to-use-pandora-premium-without-paying-for-it-1821298450)
+> 原文：<https://lifehacker.com/how-to-use-pandora-premium-without-paying-for-it-1821298450>
 
 自从 [Pandora Premium](https://lifehacker.com/pandora-premium-takes-on-spotify-and-apple-music-with-b-1793217345) 推出以来，这项服务的粉丝们面临着一个选择:坚持免费的广播式服务，或者以每月 10 美元的价格升级到单点流媒体服务。现在， [潘多拉](https://lifehacker.com/how-to-control-your-sonos-speakers-through-the-pandora-1820476213) 正在提供免费进入其高级层的服务——只要你不介意先看几个广告。
 

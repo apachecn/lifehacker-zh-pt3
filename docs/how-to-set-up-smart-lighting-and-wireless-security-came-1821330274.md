@@ -1,6 +1,6 @@
 # 如何设置智能照明和无线安全摄像头
 
-> 原文:[https://life hacker . com/how-to-set-up-smart-lighting-and-wireless-security-come-1821330274](https://lifehacker.com/how-to-set-up-smart-lighting-and-wireless-security-came-1821330274)
+> 原文：<https://lifehacker.com/how-to-set-up-smart-lighting-and-wireless-security-came-1821330274>
 
 是时候把你简单的家升级成智能家居了，各位！这比你想象的要容易得多。我们继续我们的 [家庭黑客](https://lifehacker.com/tag/homehackers#_ga=2.138250103.638236513.1513358144-27973805.1434581949) 视频系列，回顾智能照明、智能开关和无线安全摄像头。
 

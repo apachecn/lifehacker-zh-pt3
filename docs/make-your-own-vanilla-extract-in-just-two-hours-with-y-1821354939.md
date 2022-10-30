@@ -1,6 +1,6 @@
 # 用你的速溶壶，在两个小时内制作你自己的香草精
 
-> 原文:[https://life hacker . com/make-your-own-vanilla-extract-with-y-1821354939](https://lifehacker.com/make-your-own-vanilla-extract-in-just-two-hours-with-y-1821354939)
+> 原文：<https://lifehacker.com/make-your-own-vanilla-extract-in-just-two-hours-with-y-1821354939>
 
 香草精通常是通过将香草豆在酒精中浸泡数周而制成的。但是速溶锅在线性时间面前笑了，有了它，一个小时就能做出香草精。
 

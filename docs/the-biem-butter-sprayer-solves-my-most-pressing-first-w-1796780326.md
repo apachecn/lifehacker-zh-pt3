@@ -1,6 +1,6 @@
 # 比恩黄油喷雾器解决了我最迫切的第一世界问题
 
-> 原文:[https://gizmodo . com/the-biem-butter-sprayer-solves-my-most-pressing-first-w-1796780326](https://gizmodo.com/the-biem-butter-sprayer-solves-my-most-pressing-first-w-1796780326)
+> 原文：<https://gizmodo.com/the-biem-butter-sprayer-solves-my-most-pressing-first-w-1796780326>
 
 我讨厌手上沾有油腻的东西。这包括润肤霜、防晒霜、橄榄油、人造黄油和黄油。直到最近，我还一直过着干烤面包和无味玉米棒的生活，但后来一个只有一个窍门的厨房小工具出现了，它正是我迫切想要的一个窍门。
 

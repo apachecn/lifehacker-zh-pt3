@@ -1,6 +1,6 @@
 # 欢迎来到 Lifehacker 第六届年度邪恶周
 
-> 原文:[https://life hacker . com/welcome-to-life hacker-sixth-annual-evil-week-1738276927](https://lifehacker.com/welcome-to-lifehackers-sixth-annual-evil-week-1738276927)
+> 原文：<https://lifehacker.com/welcome-to-lifehackers-sixth-annual-evil-week-1738276927>
 
 又到了一年中的这个时候:随着万圣节的临近，我们感到有必要释放自己的阴暗面。欢迎来到 Lifehacker 第六届年度邪恶周。
 

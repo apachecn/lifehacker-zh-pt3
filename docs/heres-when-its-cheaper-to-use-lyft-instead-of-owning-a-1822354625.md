@@ -1,6 +1,6 @@
 # 这是使用 Lyft 比拥有一辆汽车更便宜的时候
 
-> 原文:[https://life hacker . com/heres-when-its-cheap-to-use-lyft-to-owning-a-1822354625](https://lifehacker.com/heres-when-its-cheaper-to-use-lyft-instead-of-owning-a-1822354625)
+> 原文：<https://lifehacker.com/heres-when-its-cheaper-to-use-lyft-instead-of-owning-a-1822354625>
 
 拥有一辆汽车比你每月支付的费用要贵得多。你的汽车贷款、保险、、税收、汽油、保养、停车等等都有利息。
 

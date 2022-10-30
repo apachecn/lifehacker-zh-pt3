@@ -1,6 +1,6 @@
 # 让你的周末感觉更长的秘密
 
-> 原文:[https://life hacker . com/the-secret-to-making your-weekends-feel-longer-1795585378](https://lifehacker.com/the-secret-to-making-your-weekends-feel-longer-1795585378)
+> 原文：<https://lifehacker.com/the-secret-to-making-your-weekends-feel-longer-1795585378>
 
 如果周一早上你所能想到的是周末过得有多快，你可能要考虑在未来扩大你的视野。事实证明，过一个充实又不觉得太短的周末的关键是寻找“新鲜感”
 

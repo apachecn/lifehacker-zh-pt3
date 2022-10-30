@@ -1,6 +1,6 @@
 # 钢笔爱好者的日常包
 
-> 原文:[https://lifehacker.com/the-pen-lovers-daily-bag-1744220721](https://lifehacker.com/the-pen-lovers-daily-bag-1744220721)
+> 原文：<https://lifehacker.com/the-pen-lovers-daily-bag-1744220721>
 
 有时候，你只需要一些必需品，然后挑选一些你喜欢的钢笔。Carry 读者 Brook 分享了他的袋子，里面装着他最喜欢的几支钢笔。
 

@@ -1,6 +1,6 @@
 # 使用看板来委派和跟踪家庭杂务
 
-> 原文:[https://life hacker . com/use-a-kanban-to-delegate-and-track-family-family-1797032196](https://lifehacker.com/use-a-kanban-to-delegate-and-track-family-chores-1797032196)
+> 原文：<https://lifehacker.com/use-a-kanban-to-delegate-and-track-family-chores-1797032196>
 
 说到家务，几乎不可能记得你开始做什么，谁应该做什么，还有什么要做。所以你最后得到了一个清理了一半的冰箱，一个可以咳出灰尘团的吸尘器(“鲍勃不是应该清空这个东西吗？!")，还有一种总觉得一切总是歪的感觉。
 

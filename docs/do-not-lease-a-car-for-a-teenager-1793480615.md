@@ -1,6 +1,6 @@
 # 不要为青少年租车
 
-> 原文:[https://jalopnik . com/do-not-lease-a-car-for-a-青少年-1793480615](https://jalopnik.com/do-not-lease-a-car-for-a-teenager-1793480615)
+> 原文：<https://jalopnik.com/do-not-lease-a-car-for-a-teenager-1793480615>
 
 许多父母帮助他们的孩子买车，所以他们中的一些人有了租赁一辆全新汽车而不是购买二手车的想法。虽然这听起来像是获得最新最安全汽车的一种廉价方式，但对于一个新司机来说，这不是最好的解决方案。
 

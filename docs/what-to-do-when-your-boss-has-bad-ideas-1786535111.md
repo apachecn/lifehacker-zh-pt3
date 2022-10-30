@@ -1,6 +1,6 @@
 # 当你的老板有坏主意时该怎么办
 
-> 原文:[https://life hacker . com/当你的老板有坏主意时该怎么办-1786535111](https://lifehacker.com/what-to-do-when-your-boss-has-bad-ideas-1786535111)
+> 原文：<https://lifehacker.com/what-to-do-when-your-boss-has-bad-ideas-1786535111>
 
 我和我以前工作的一个公司的老板以及其他几个市场部的同事一起参加了一个会议。我们会面的目的是讨论我们的整体战略——特别是社交媒体——并确定是否有任何可以精简和简化的地方。我们是一个非常小的部门。因此，如果有任何方法可以节省我们的时间和精力，我们都洗耳恭听。
 

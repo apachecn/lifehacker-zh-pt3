@@ -1,6 +1,6 @@
 # 60 秒钟的孟加拉美食介绍
 
-> 原文:[https://the take out . com/a-60-second-intro-to-Bangladesh-food-1821335403](https://thetakeout.com/a-60-second-intro-to-bangladeshi-food-1821335403)
+> 原文：<https://thetakeout.com/a-60-second-intro-to-bangladeshi-food-1821335403>
 
 本月，脸书发布了其*老大哥*-脸书智商 [*年度话题和趋势报告*](https://scontent-sea1-1.xx.fbcdn.net/v/t39.2365-6/10000000_395392374233010_8180218995706691584_n.pdf?oh=05b23a0e2cff65d1a78bbfed6603718c&oe=5AB7DC12) ，该报告调查了平台上的趋势对话，并预测哪些话题将在 2018 年继续获得关注。调查结果包括:自 2016 年 1 月以来，美国人对孟加拉美食的讨论增长了近 8 倍。Ligaya Nishan 是《纽约时报》的《饥饿城市》专栏作家，最近被评为纽约布朗克斯区的孟加拉餐厅 Neerob，是她评选的 2017 年 十大餐厅之一。但是*什么是*孟加拉菜，它和它的亲戚 [印度菜](https://thetakeout.com/a-cheat-sheet-to-indian-restaurant-menus-1798256742) 有什么区别呢？
 

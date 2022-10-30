@@ -1,6 +1,6 @@
 # 如何要求对枪支管制采取行动
 
-> 原文:[https://life hacker . com/how-to-demand-action-on-gun-control-1823064657](https://lifehacker.com/how-to-demand-action-on-gun-control-1823064657)
+> 原文：<https://lifehacker.com/how-to-demand-action-on-gun-control-1823064657>
 
 令人心碎的头条新闻宣布[在美国发生新的大规模枪击事件已经成为新闻周期中一个非常熟悉的 p](https://www.washingtonpost.com/graphics/2018/national/mass-shootings-in-america/?utm_term=.d271152a4e2b) 艺术，然而，限制枪支的立法似乎几乎没有改变。 感到无助和愤怒？你并不孤独，也不是无助。我采访了母亲要求行动组织的创始人香农·沃茨，了解一些普通公民可以采取的具体步骤。
 

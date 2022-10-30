@@ -1,6 +1,6 @@
 # 这道咸牛肉砂锅最好在喝的时候食用
 
-> 原文:[https://life hacker . com/eat-this-corned-beef-basket-to-seek-up-your-ST-patr-1823839585](https://lifehacker.com/eat-this-corned-beef-casserole-to-soak-up-your-st-patr-1823839585)
+> 原文：<https://lifehacker.com/eat-this-corned-beef-casserole-to-soak-up-your-st-patr-1823839585>
 
 作为一个咸肉、碳水化合物和卷心菜的粉丝，咸牛肉和卷心菜——也被称为新英格兰水煮晚餐——一直是我在圣帕特里克节最喜欢的部分。(你可能认为是喝酒的原因，但只有业余爱好者需要一个“理由”来喝太多威士忌，和一个叫梅根的女孩打架。)
 

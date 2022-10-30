@@ -1,6 +1,6 @@
 # 40 岁以上女性如何度过 20 多岁
 
-> 原文:[https://life hacker . com/how-to-live-in-your-20s-to-women-over-40-1829143994](https://lifehacker.com/how-to-live-in-your-20s-according-to-women-over-40-1829143994)
+> 原文：<https://lifehacker.com/how-to-live-in-your-20s-according-to-women-over-40-1829143994>
 
 有些事情，直到你过了二三十岁，成熟了，有了经验和后见之明，你才会明白。
 

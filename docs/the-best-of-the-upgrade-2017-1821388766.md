@@ -1,6 +1,6 @@
 # 2017 年最佳升级
 
-> 原文:[https://life hacker . com/the-best-of-the-the-upgrade-2017-1821388766](https://lifehacker.com/the-best-of-the-upgrade-2017-1821388766)
+> 原文：<https://lifehacker.com/the-best-of-the-upgrade-2017-1821388766>
 
 对于 Lifehacker 的播客《升级》来说，这是不平凡的一年。在这一集里，我们谈论(并聆听)过去一年里我们最喜欢的时刻。2017 年，我们学会了如何将自己的笨拙转化为社交资产；如何辉煌(在无聊的时候)；如何找到真爱；如何聪明地使用微剂量…等等。多得多。哦，但是我们玩得很开心。
 

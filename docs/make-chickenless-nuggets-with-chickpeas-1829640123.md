@@ -1,6 +1,6 @@
 # 用鹰嘴豆做鸡肉块
 
-> 原文:[https://life hacker . com/make-chicken less-nuggets-with-chicken peas-1829640123](https://lifehacker.com/make-chickenless-nuggets-with-chickpeas-1829640123)
+> 原文：<https://lifehacker.com/make-chickenless-nuggets-with-chickpeas-1829640123>
 
 鸡块吃起来很有趣，但是有些人(大多数是素食者)因为讨厌的动物蛋白而错过了这道美味。这些无鸡肉的鸡块——由组织化的植物蛋白和鹰嘴豆制成——美味可口，同时完全是素食主义者。
 

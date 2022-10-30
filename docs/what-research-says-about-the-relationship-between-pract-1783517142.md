@@ -1,6 +1,6 @@
 # 关于实践和专业知识之间的关系，研究表明了什么
 
-> 原文:[https://life hacker . com/what-research-say-about-the-relationship-pract-1783517142](https://lifehacker.com/what-research-says-about-the-relationship-between-pract-1783517142)
+> 原文：<https://lifehacker.com/what-research-says-about-the-relationship-between-pract-1783517142>
 
 有些人在体育、音乐和象棋等活动上比其他人强得多。就拿篮球大帝来说吧。在过去的这个赛季， [打破了他去年创下的记录](http://www.nytimes.com/interactive/2016/04/16/upshot/stephen-curry-golden-state-warriors-3-pointers.html?_r=0) 超过 40%，库里投中了惊人的 402 个三分球——比他最接近的挑战者多 126 个。
 

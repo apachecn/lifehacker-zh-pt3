@@ -1,6 +1,6 @@
 # 如果方法正确，大脑训练可能真的有效
 
-> 原文:[https://life hacker . com/brain-training-may-actual-if-the-right-met-1819717110](https://lifehacker.com/brain-training-might-actually-work-if-its-the-right-met-1819717110)
+> 原文：<https://lifehacker.com/brain-training-might-actually-work-if-its-the-right-met-1819717110>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vZZPMcs482M&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vZZPMcs482M&start=0) 
 

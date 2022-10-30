@@ -1,6 +1,6 @@
 # 你现在可以得到一笔很好的二手车贷款
 
-> 原文:[https://jalopnik . com/you-can-get-really-deal-on-deep-car-loans-right-no-1797673032](https://jalopnik.com/you-can-get-really-good-deal-on-used-car-loans-right-no-1797673032)
+> 原文：<https://jalopnik.com/you-can-get-really-good-deal-on-used-car-loans-right-no-1797673032>
 
 经销商展厅正在进行一场战斗。现在， [打折力度很大的新车正面临过剩的二手车库存](https://jalopnik.com/inflated-new-car-inventory-could-be-killing-used-car-pr-1794589426) 。这场战斗的赢家可能是你，如果你出牌正确的话。为了帮助转移二手车，汽车制造商和银行为二手车融资提供了极其低廉的利率。
 

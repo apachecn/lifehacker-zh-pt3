@@ -1,6 +1,6 @@
 # 它会腐烂吗？啤酒浸泡香肠派对
 
-> 原文:[https://life hacker . com/will-it-sous-vide-a-beer-powed-香肠派对-1796139323](https://lifehacker.com/will-it-sous-vide-a-beer-soaked-sausage-party-1796139323)
+> 原文：<https://lifehacker.com/will-it-sous-vide-a-beer-soaked-sausage-party-1796139323>
 
 欢迎来到本周的 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏，我通常用我的沉浸式循环器在那里制作你想要我做的任何东西。
 

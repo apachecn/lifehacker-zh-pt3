@@ -1,6 +1,6 @@
 # 你的信用评分并不重要，除非它是坏的
 
-> 原文:[https://life hacker . com/your-credit-score-not-matter-until-it-s-bad-1785050429](https://lifehacker.com/your-credit-score-doesn-t-matter-unless-it-s-bad-1785050429)
+> 原文：<https://lifehacker.com/your-credit-score-doesn-t-matter-unless-it-s-bad-1785050429>
 
 我的信用很好——现在我的分数接近 800 分。太棒了，对吧？当然，除了令人敬畏的信贷实际上已经相当无用，甚至当我最近买了房子。别误会， [*信用不好*对你的财务状况影响很大](https://lifehacker.com/all-the-ways-bad-credit-can-make-your-life-difficult-1740467353) 。奇怪的是，优秀的信用并不重要。
 

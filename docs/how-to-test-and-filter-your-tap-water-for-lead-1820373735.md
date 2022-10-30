@@ -1,6 +1,6 @@
 # 如何检测和过滤自来水中的铅
 
-> 原文:[https://life hacker . com/how-to-test-and-filter-your-tap-water for-lead-1820373735](https://lifehacker.com/how-to-test-and-filter-your-tap-water-for-lead-1820373735)
+> 原文：<https://lifehacker.com/how-to-test-and-filter-your-tap-water-for-lead-1820373735>
 
 理论上，市政供水是安全的。他们被当权者监控，测试和治疗。但是当然，我们知道 [并不总是有效](http://www.theroot.com/flint-an-update-and-a-reminder-that-it-has-been-1-196-1797522326#_ga=2.72091735.530995317.1510068279-1316224162.1502479853) 。即使水源是干净的，旧水管也会在水到达你之前引入铅。或者你从一口井里取水，除了你，没有人会关注它。
 

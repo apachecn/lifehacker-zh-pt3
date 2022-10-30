@@ -1,6 +1,6 @@
 # 在家自制苹果汁——徒手制作
 
-> 原文:[https://life hacker . com/make-apple-juice-in-home with-your-hands-1820141278](https://lifehacker.com/make-apple-juice-at-home-with-your-bare-hands-1820141278)
+> 原文：<https://lifehacker.com/make-apple-juice-at-home-with-your-bare-hands-1820141278>
 
 苹果派、苹果酱、苹果酥、苹果酱——不管你是在摘苹果还是只是在超市进货，这都是非常适合的季节。但是苹果*果汁*呢？尽管它无处不在，但它从未成为家庭厨房的主食。与可以用手或简单工具压榨的软柑橘类水果不同，苹果需要一台合适的冷榨榨汁机……难道不是吗？？？
 

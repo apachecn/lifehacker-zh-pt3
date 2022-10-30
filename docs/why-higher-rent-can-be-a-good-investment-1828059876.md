@@ -1,6 +1,6 @@
 # 为什么更高的租金是一项好的投资
 
-> 原文:[https://life hacker . com/why-higher-rent-can-a-good-investment-1828059876](https://lifehacker.com/why-higher-rent-can-be-a-good-investment-1828059876)
+> 原文：<https://lifehacker.com/why-higher-rent-can-be-a-good-investment-1828059876>
 
 几十年来，拥有一栋房子一直是美国梦的一部分。这是达到一定财富水平的标志，以及随之而来的稳定。对许多人来说，这是一项伟大的投资。
 

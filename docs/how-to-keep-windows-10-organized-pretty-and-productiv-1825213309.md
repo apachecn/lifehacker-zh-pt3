@@ -1,6 +1,6 @@
 # 如何让 Windows 10 保持有序、美观和高效
 
-> 原文:[https://life hacker . com/how-to-keep-windows-10-organized-pretty-and-productivi-1825213309](https://lifehacker.com/how-to-keep-windows-10-organized-pretty-and-productiv-1825213309)
+> 原文：<https://lifehacker.com/how-to-keep-windows-10-organized-pretty-and-productiv-1825213309>
 
 微软视窗可能会变得混乱。这不(总是)是操作系统的错。你下载大量的应用程序和文件，并创建自己的新内容，直到你的“下载”目录看起来像旧内容的垃圾填埋场。你的桌面上满是图标，你看不到你漂亮的壁纸。你的开始菜单看起来像一个应用自助餐。简而言之，你的操作系统是一团糟，但它不是不可修复的。
 

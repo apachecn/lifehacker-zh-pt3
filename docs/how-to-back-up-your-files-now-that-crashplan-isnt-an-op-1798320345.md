@@ -1,6 +1,6 @@
 # 既然 CrashPlan 不可用，如何备份您的文件
 
-> 原文:[https://life hacker . com/how-to-back-up-your-files-now-than-crash plan-not-an-op-1798320345](https://lifehacker.com/how-to-back-up-your-files-now-that-crashplan-isnt-an-op-1798320345)
+> 原文：<https://lifehacker.com/how-to-back-up-your-files-now-that-crashplan-isnt-an-op-1798320345>
 
 今天，最好的云备份服务之一 CrashPlan， [宣布终止对消费者的](https://www.crashplan.com/en-us/consumer/nextsteps/) 支持。《回家的计划》将于 2018 年 10 月 23 日停播。虽然注册或续订 CrashPlan for Home subscription 的选项已经取消，但当前 CrashPlan for Home 用户将免费获得额外 60 天的备份服务。
 

@@ -1,6 +1,6 @@
 # 在顶部总结长邮件，以便更有效地沟通
 
-> 原文:[https://life hacker . com/summary-long-emails-at-top-to-communicate-more-ef-1826571389](https://lifehacker.com/summarize-long-emails-at-the-top-to-communicate-more-ef-1826571389)
+> 原文：<https://lifehacker.com/summarize-long-emails-at-the-top-to-communicate-more-ef-1826571389>
 
 喜剧演员兼作家弗兰奇斯卡·拉姆齐(Franchesca Ramsey)在工作时提供了一个提高效率的小技巧，经理和员工最好将它纳入他们每天的电子邮件日常工作中:在顶部总结冗长的电子邮件，让你的收件人知道他们在做什么。
 

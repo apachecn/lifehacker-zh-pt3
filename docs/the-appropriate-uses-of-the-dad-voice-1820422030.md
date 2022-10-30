@@ -1,6 +1,6 @@
 # 何时使用“爸爸的声音”
 
-> 原文:[https://life hacker . com/the-appropriate-uses-of-the-dad-voice-1820422030](https://lifehacker.com/the-appropriate-uses-of-the-dad-voice-1820422030)
+> 原文：<https://lifehacker.com/the-appropriate-uses-of-the-dad-voice-1820422030>
 
 为人父母的悖论是，你可以执行所有的功能，但仍然觉得自己是个冒名顶替者。换尿布、玩躲猫猫、骑在别人背上——这些看起来都像是演戏。当你成为一个真正的父亲的时候到了。有一天，你会和你的孩子在一起，张开你的嘴，发出爸爸的声音。像守护神一样，它会在空中疾驰，将目标定格在它蹒跚学步的小脚印上。
 

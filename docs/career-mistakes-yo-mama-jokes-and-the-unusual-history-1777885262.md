@@ -1,6 +1,6 @@
 # 职业失误，你妈的笑话，还有香蕉不寻常的历史
 
-> 原文:[https://life hacker . com/career-errors-yo-mama-joins-and-the-normal-history-1777885262](https://lifehacker.com/career-mistakes-yo-mama-jokes-and-the-unusual-history-1777885262)
+> 原文：<https://lifehacker.com/career-mistakes-yo-mama-jokes-and-the-unusual-history-1777885262>
 
 我们对自己的侮辱，香蕉和香蕉调味料的惊人和不寻常的历史，大师的一些吃拉面的技巧，以及更多，都在本周的 Lifehacker Brain 自助餐中！
 

@@ -1,6 +1,6 @@
 # 通过提高自我意识成为更好的领导者
 
-> 原文:[https://life hacker . com/通过提高自我意识成为更好的领导者-1821913275](https://lifehacker.com/become-a-better-leader-by-improving-self-awareness-1821913275)
+> 原文：<https://lifehacker.com/become-a-better-leader-by-improving-self-awareness-1821913275>
 
 当我们想到领导素质时，我们通常会想到团结团队的能力，清晰的愿景，以及让每个团队成员发挥出最佳水平的意愿。我们*不*倾向于想到的是自我意识。自我意识，事实上，有一个新时代的光环——哪个领导人躺在她的麻床罩上，盯着天花板，深入思考她是否真正了解最深处的自我？
 

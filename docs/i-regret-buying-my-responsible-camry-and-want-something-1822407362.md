@@ -1,6 +1,6 @@
 # 后悔买了我负责任的凯美瑞，想要点好玩的！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-retail-buying-my-responsible-Camry-and-want-something-1822407362](https://jalopnik.com/i-regret-buying-my-responsible-camry-and-want-something-1822407362)
+> 原文：<https://jalopnik.com/i-regret-buying-my-responsible-camry-and-want-something-1822407362>
 
 莫希特想做负责任的事，买了一辆 2016 款凯美瑞。这很好，但是拥有一辆无聊的车和一份无聊的工作并不能解决问题。他想要一些能吸引他冒险意识的东西，但又不至于倾家荡产。他应该买什么车？
 

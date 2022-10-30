@@ -1,6 +1,6 @@
 # 洪水过后如何让你的车保持运转
 
-> 原文:[https://jalopnik . com/how-to-keep-your car-running-after-a-flood-1800475164](https://jalopnik.com/how-to-keep-your-car-running-after-a-flood-1800475164)
+> 原文：<https://jalopnik.com/how-to-keep-your-car-running-after-a-flood-1800475164>
 
 飓风哈维给该地区带来数万亿加仑的降雨后，德克萨斯海湾沿岸数十万辆汽车可能报废。如果你的车陷入了洪水——或任何洪水——你可能会认为它需要立即更换。如果你幸运的话，你可以做些事情来挽救它。
 

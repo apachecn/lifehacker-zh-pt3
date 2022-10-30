@@ -1,6 +1,6 @@
 # 如何制作糕点奶油
 
-> 原文:[https://thetakeout.com/how-to-make-pastry-cream-1824293759](https://thetakeout.com/how-to-make-pastry-cream-1824293759)
+> 原文：<https://thetakeout.com/how-to-make-pastry-cream-1824293759>
 
 ***编者按:*** 幸运桃*是一本存在于 2011 年至 2017 年的神奇美食杂志。它深受读者喜爱，被视为作家的目标出版物，并赢得了一系列詹姆斯比尔德奖。在* [*不合时宜地消亡*](https://www.nytimes.com/2017/03/17/dining/lucky-peach-closing.html) *之后，这个网站——以及它曾经发表过的所有故事——消失在数字以太中。本着起死回生的精神(也因为版权归作者所有)，*外卖*将重新发布*幸运桃子*档案中的故事——包括**糕点学校**，作者是詹姆斯·比尔德奖提名的糕点厨师达纳·克里。她的第一篇专栏:糕点奶油 101。*
 

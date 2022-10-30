@@ -1,6 +1,6 @@
 # 民谣金属音乐播放列表
 
-> 原文:[https://lifehacker.com/the-folk-metal-playlist-1792458318](https://lifehacker.com/the-folk-metal-playlist-1792458318)
+> 原文：<https://lifehacker.com/the-folk-metal-playlist-1792458318>
 
 民谣金属是一种非常独特的音乐类型，结合了重金属刺耳的声音和传统的民谣音乐。本周的播放列表庆祝这种火热的融合。
 

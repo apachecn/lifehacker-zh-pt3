@@ -1,6 +1,6 @@
 # 如何为生产力制作完美的播放列表
 
-> 原文:[https://life hacker . com/how-to-craft the perfect-playlist-for-productivity-1740104422](https://lifehacker.com/how-to-craft-the-perfect-playlist-for-productivity-1740104422)
+> 原文：<https://lifehacker.com/how-to-craft-the-perfect-playlist-for-productivity-1740104422>
 
 没有什么比忘记带耳机对我的工作日有更大的负面影响了。像大多数人一样，音乐是我生活中很重要的一部分。我在工作的时候听最多的音乐，在播放列表中筛选，似乎是在永无止境地寻找让我保持状态的完美音乐。
 

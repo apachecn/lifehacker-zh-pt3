@@ -1,6 +1,6 @@
 # 如何评论 FCC 的网络中立提案
 
-> 原文:[https://life hacker . com/how-to-comment-on-the-fccs-net-neutrality-proposal-1796222084](https://lifehacker.com/how-to-comment-on-the-fccs-net-neutrality-proposal-1796222084)
+> 原文：<https://lifehacker.com/how-to-comment-on-the-fccs-net-neutrality-proposal-1796222084>
 
 FCC 提议 [终结网络中立](https://lifehacker.com/the-fccs-new-plan-dismantles-net-neutrality-to-rely-on-1794675979#_ga=2.175460512.303451680.1497830696-1887250931.1497314809) ，这意味着自由开放的互联网可能终结。根据网络中立规则，FCC 要求康卡斯特和 AT & T 等互联网服务提供商对所有网站和互联网服务一视同仁。
 

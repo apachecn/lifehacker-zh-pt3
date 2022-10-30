@@ -1,6 +1,6 @@
 # 在灵活性挑战的最后阶段享受一些灵感
 
-> 原文:[https://life hacker . com/enjoy-some-inspiration-in-the-home stretch-of-our-flexi b-1823949869](https://lifehacker.com/enjoy-some-inspiration-in-the-homestretch-of-our-flexib-1823949869)
+> 原文：<https://lifehacker.com/enjoy-some-inspiration-in-the-homestretch-of-our-flexib-1823949869>
 
 一个月是很短的时间。即使在我们的灵活性挑战结束时，你可能也不会发现你已经取得了很大的进步。但是一点一滴都有帮助，看到多年来一直致力于拉伸运动的人们的进步是令人鼓舞的。
 

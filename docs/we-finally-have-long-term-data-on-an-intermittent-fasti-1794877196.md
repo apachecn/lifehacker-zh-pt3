@@ -1,6 +1,6 @@
 # 我们终于有了间歇性禁食饮食的长期数据
 
-> 原文:[https://life hacker . com/we-finally-have-long-term-data-on-an-intermittent-fasti-1794877196](https://lifehacker.com/we-finally-have-long-term-data-on-an-intermittent-fasti-1794877196)
+> 原文：<https://lifehacker.com/we-finally-have-long-term-data-on-an-intermittent-fasti-1794877196>
 
 如果你对 [、5:2 饮食](https://lifehacker.com/starving-yourself-two-days-a-week-is-actually-not-a-bad-1793788417) 或其他形式的 [间歇禁食](http://vitals.lifehacker.com/how-to-free-yourself-from-food-cravings-with-intermitte-1702108722) 感兴趣，你可能想知道这些饮食是否长期有效。直到最近，我们还没有太多的数据。现在，我们有一点:每隔一天禁食证明交付相同的结果作为定期节食。
 

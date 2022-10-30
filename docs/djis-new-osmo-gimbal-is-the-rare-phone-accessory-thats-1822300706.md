@@ -1,6 +1,6 @@
 # DJI 的新 Osmo 万向节是罕见的手机配件，实际上是值得的
 
-> 原文:[https://gizmodo . com/djis-new-osmo-gimbal-is-the-rare-phone-accessory-thas-1822300706](https://gizmodo.com/djis-new-osmo-gimbal-is-the-rare-phone-accessory-thats-1822300706)
+> 原文：<https://gizmodo.com/djis-new-osmo-gimbal-is-the-rare-phone-accessory-thats-1822300706>
 
 带着 DJI Osmo Mobile 2 在办公室跑来跑去，我有很多问题。具体来说，我反复得到了两个问题。第一个是关于我拿着什么。每次，我都解释说，我放手机的那个奇怪的自拍杆一样的装置是一个机械化的万向节，当我四处移动时，它会自动稳定我的手机，所以我可以拍摄非常流畅的视频片段，看起来像是在专业摄影机稳定器的帮助下拍摄的。然后，我会推 Osmo 手柄上的小操纵杆，使整个手臂旋转，形成一个非常光滑的平底锅，引起令人印象深刻的满足感。这时，人们会问不可避免的第二个问题:这个魔术值多少钱？当我告诉他们这是 130 美元时，我得到了另一组满意的点头。考虑到 Osmo 是多么的光滑，130 美元的价格是非常合理的。这几乎是当今最简单的电话配件了。
 

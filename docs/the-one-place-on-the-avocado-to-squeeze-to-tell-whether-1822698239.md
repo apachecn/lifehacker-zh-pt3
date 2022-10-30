@@ -1,6 +1,6 @@
 # 鳄梨上唯一可以挤压来辨别它是否完全成熟的地方
 
-> 原文:[https://the take out . com/the-one-place-on-the-avocado-squeeze-to-tell-when-1822698239](https://thetakeout.com/the-one-place-on-the-avocado-to-squeeze-to-tell-whether-1822698239)
+> 原文：<https://thetakeout.com/the-one-place-on-the-avocado-to-squeeze-to-tell-whether-1822698239>
 
 你在超市榨鳄梨。它摸起来又硬又软。你心里想:“为什么，是的！这是为我获奖的鳄梨酱准备的完美鳄梨。”然后你回到家，切开鳄梨，惊恐地发现，这个看似完全成熟的鳄梨实际上并不是。你的鳄梨色拉酱是一个糟糕透顶的失败，你的朋友和家人嘲笑你，你陷入深深的沮丧，最终申请个人破产。这就是生活。
 

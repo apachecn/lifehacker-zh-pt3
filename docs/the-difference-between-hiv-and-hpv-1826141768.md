@@ -1,6 +1,6 @@
 # 艾滋病毒和人乳头瘤病毒的区别
 
-> 原文:[https://life hacker . com/the-difference-of-HIV-and-HPV-1826141768](https://lifehacker.com/the-difference-between-hiv-and-hpv-1826141768)
+> 原文：<https://lifehacker.com/the-difference-between-hiv-and-hpv-1826141768>
 
 我们的总统显然不知道人乳头瘤病毒 [和艾滋病](https://www.nbcnews.com/politics/donald-trump/bill-gates-says-trump-asked-difference-between-hiv-hpv-n875286) 的区别，但我不在这里作出判断。你可能记得在性教育课上，如果你认为你有一个愚蠢的问题，你应该问，因为你可能不是唯一一个。
 

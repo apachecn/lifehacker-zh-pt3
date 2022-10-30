@@ -1,6 +1,6 @@
 # 这个闹钟应用程序让你拍一张(好的)照片来关掉它
 
-> 原文:[https://life hacker . com/this-alarm-app-make-you-take-a-good-picture-to-turn-1828167996](https://lifehacker.com/this-alarm-app-makes-you-take-a-good-picture-to-turn-1828167996)
+> 原文：<https://lifehacker.com/this-alarm-app-makes-you-take-a-good-picture-to-turn-1828167996>
 
 **iOS，Android:** 我很确定 Alarmy 是邪恶的，但是完美的，因为一个好的闹钟应该是两部分烦人，一部分有用。你不想*讨厌*每天早上叫醒你的闹钟，但是一个好的闹钟应用程序不应该很容易关掉(诱惑你回去睡觉)。
 

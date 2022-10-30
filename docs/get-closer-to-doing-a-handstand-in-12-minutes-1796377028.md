@@ -1,6 +1,6 @@
 # 在 12 分钟内做一个倒立
 
-> 原文:[https://life hacker . com/get-closer-to-do-a-handstand-in-12-minutes-1796377028](https://lifehacker.com/get-closer-to-doing-a-handstand-in-12-minutes-1796377028)
+> 原文：<https://lifehacker.com/get-closer-to-doing-a-handstand-in-12-minutes-1796377028>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7b-7zdQDy8A&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7b-7zdQDy8A&start=0) 
 

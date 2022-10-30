@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:9 月 16 日至 23 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-9 月 16 日至 23 日-1786997646](https://lifehacker.com/this-weeks-most-popular-posts-september-16th-to-23rd-1786997646)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-september-16th-to-23rd-1786997646>
 
 本周，苹果公司的新闻随着 macOS Sierra 的到来而继续，这一更新包括了不错的(如果说是渐进的)改进。我们还研究了昂贵的房屋维修，通过少量维护就可以避免，处理了雅虎的巨大数据泄露，进入了谷歌新的 Allo 聊天应用程序，等等。
 

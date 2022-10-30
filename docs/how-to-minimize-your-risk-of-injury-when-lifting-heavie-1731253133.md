@@ -1,6 +1,6 @@
 # 当举起更重的重物时，如何降低受伤的风险
 
-> 原文:[https://life hacker . com/how-to-minimize-your ' s risk-when-life-heavie-1731253133](https://lifehacker.com/how-to-minimize-your-risk-of-injury-when-lifting-heavie-1731253133)
+> 原文：<https://lifehacker.com/how-to-minimize-your-risk-of-injury-when-lifting-heavie-1731253133>
 
 有一次，我妈妈看了一段我硬拉 的视频，她害怕我会伤到自己。然而，在现实中，你在做其他体育活动时受伤的可能性一样大(如果不是更大的话)。这并不意味着你应该随心所欲地滥用权力。你仍然需要把安全放在首位，以避免受到严重伤害。以下是方法。
 

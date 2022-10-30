@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:独自用餐的人是不是很讨厌？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-are-solo-diners-a-pain-a-1821334116](https://thetakeout.com/ask-the-salty-waitress-are-solo-diners-a-pain-in-the-a-1821334116)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-are-solo-diners-a-pain-in-the-a-1821334116>
 
 * * *
 

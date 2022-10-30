@@ -1,6 +1,6 @@
 # 双酚 a 无处不在。安全吗？
 
-> 原文:[https://life hacker . com/BPA-is-everywhere-is-it-safe-1748077325](https://lifehacker.com/bpa-is-everywhere-is-it-safe-1748077325)
+> 原文：<https://lifehacker.com/bpa-is-everywhere-is-it-safe-1748077325>
 
 [双酚 A](https://en.wikipedia.org/wiki/Bisphenol_A) 或 BPA，是一种在塑料中发现的化学物质，包括食品包装，它可能会干扰我们细胞的工作方式。我们接触的双酚 a 是否足以伤害我们？我们应该害怕贴着“不含 BPA”标签的替代产品吗？这么说吧...很复杂。
 

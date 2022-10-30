@@ -1,6 +1,6 @@
 # 实际上，使用手机可能会让工作变得更容易
 
-> 原文:[https://life hacker . com/actually-use the-work-phone-may-make-work-easy-1797441688](https://lifehacker.com/actually-using-that-work-phone-might-make-work-easier-1797441688)
+> 原文：<https://lifehacker.com/actually-using-that-work-phone-might-make-work-easier-1797441688>
 
 谁更喜欢电话而不是电子邮件？谁也不是，就是谁。如果为了工作打电话 [引发了一点焦虑](http://lifehacker.com/get-over-your-phone-anxiety-with-cognitive-restructuri-1792448810) ，你并不孤单。TrackMaven 首席执行官艾伦·甘尼特也更喜欢发短信和电子邮件，而不是老式的电话，但他决定效仿更有效率的人的特点，并 [转向可靠的电话](https://www.fastcompany.com/40446728/what-happened-when-i-replied-call-me-to-every-email-i-got-for-a-week) 而不是没有人情味的电子邮件。
 

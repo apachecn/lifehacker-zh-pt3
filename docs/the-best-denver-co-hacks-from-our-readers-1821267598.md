@@ -1,6 +1,6 @@
 # 来自我们读者的最佳丹佛黑客
 
-> 原文:[https://life hacker . com/the-best-Denver-co-hacks-from-our-readers-1821267598](https://lifehacker.com/the-best-denver-co-hacks-from-our-readers-1821267598)
+> 原文：<https://lifehacker.com/the-best-denver-co-hacks-from-our-readers-1821267598>
 
 本周在 [黑你的城市](https://lifehacker.com/c/hack-your-city) 节目中，我们收到了超过 125 条关于科罗拉多州丹佛市的建议。一些主题:有很棒的徒步旅行，和很棒的酿酒厂，但是在你适应海拔高度的时候放松一下。这里有一些最好的建议。 [转到原帖](https://lifehacker.com/tell-us-your-best-denver-tips-1821129147) 求几十更。
 

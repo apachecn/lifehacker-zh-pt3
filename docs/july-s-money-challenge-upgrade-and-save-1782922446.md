@@ -1,6 +1,6 @@
 # 七月的金钱挑战:升级和节省
 
-> 原文:[https://life hacker . com/July-s-money-challenge-upgrade-and-save-1782922446](https://lifehacker.com/july-s-money-challenge-upgrade-and-save-1782922446)
+> 原文：<https://lifehacker.com/july-s-money-challenge-upgrade-and-save-1782922446>
 
 上个月 [我们挑战你们讨价还价](http://twocents.lifehacker.com/how-d-you-do-during-june-s-money-challenge-1782817623) ，你们中的一些人节省了数百。我们印象深刻。这个月，我们有一位客人。 [钱包黑客](https://wallethacks.com/) 的吉姆王加入我们，我们挑战你使用他的 [“升级并保存”策略。](http://wallethacks.com/upgrade-and-save-strategy/)T11】
 

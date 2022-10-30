@@ -1,6 +1,6 @@
 # 在飓风哈维之后，请小心这些骗局
 
-> 原文:[https://life hacker . com/watch-for-the-wake-of-hurricane-harv-1798499977](https://lifehacker.com/watch-out-for-these-scams-in-the-wake-of-hurricane-harv-1798499977)
+> 原文：<https://lifehacker.com/watch-out-for-these-scams-in-the-wake-of-hurricane-harv-1798499977>
 
 哈维是一场前所未有的风暴——首先是飓风，现在是热带风暴——给德克萨斯州海岸带来了巨大的损失和破坏。无论你是否已经受到影响，或者你正在寻求帮助那些已经受到影响的人，在风暴的余波中小心这些骗局。
 

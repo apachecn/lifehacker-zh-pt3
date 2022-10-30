@@ -1,6 +1,6 @@
 # 通过关闭手机上的 Airdrop 来避免陌生人的鸡巴照片
 
-> 原文:[https://life hacker . com/avoid-strangers-dick-pics-by-turning-off-airdrop-on-you-1797826365](https://lifehacker.com/avoid-strangers-dick-pics-by-turning-off-airdrop-on-you-1797826365)
+> 原文：<https://lifehacker.com/avoid-strangers-dick-pics-by-turning-off-airdrop-on-you-1797826365>
 
 守旧派:地铁里的猥琐男在公共场合自娱自乐。新学校:地铁上的猥琐男空投给你一张鸡巴照片。啊，技术的前进！
 

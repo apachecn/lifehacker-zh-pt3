@@ -1,6 +1,6 @@
 # 如何使用 Gmail 从手机发送机密邮件
 
-> 原文:[https://life hacker . com/how-to-send-confidential-emails-from your phone-using-g-1828502055](https://lifehacker.com/how-to-send-confidential-emails-from-your-phone-using-g-1828502055)
+> 原文：<https://lifehacker.com/how-to-send-confidential-emails-from-your-phone-using-g-1828502055>
 
 今年 4 月，谷歌为 Gmail 的桌面版引入了新的保密模式，允许你发送自动过期的电子邮件。这个想法是，如果你使用 Gmail 发送机密信息(让我们面对它，不是最安全的想法)，那么使用机密模式将使这个决定更安全一点。
 

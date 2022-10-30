@@ -1,6 +1,6 @@
 # 我们如何工作，2016 年:希瑟·山田-霍斯利的装备和生产力技巧
 
-> 原文:[https://life hacker . com/how-we-work-2016-heather-yamada-hosleys-gear-and-prod-1759969583](https://lifehacker.com/how-we-work-2016-heather-yamada-hosleys-gear-and-prod-1759969583)
+> 原文：<https://lifehacker.com/how-we-work-2016-heather-yamada-hosleys-gear-and-prod-1759969583>
 
 通常，我们把众所周知的麦克风交给知名的领导者和创造者，但每年的这个时候，我们把它据为己有。我是希瑟，以下是我的工作方式。
 

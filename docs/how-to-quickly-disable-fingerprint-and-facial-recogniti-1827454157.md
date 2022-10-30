@@ -1,6 +1,6 @@
 # 如何快速禁用手机上的指纹和面部识别
 
-> 原文:[https://life hacker . com/how-to-fast-disable-fingerprint and-face-recognition ti-1827454157](https://lifehacker.com/how-to-quickly-disable-fingerprint-and-facial-recogniti-1827454157)
+> 原文：<https://lifehacker.com/how-to-quickly-disable-fingerprint-and-facial-recogniti-1827454157>
 
 用指纹或面部识别打开手机既酷又方便。但是在美国，如果你被逮捕了，启用触控 ID 或 Face ID 基本上可以让警察自由进入你的手机。谢天谢地，iOS 和 Android 允许你用几种不同的方法暂时关闭指纹或人脸识别。
 

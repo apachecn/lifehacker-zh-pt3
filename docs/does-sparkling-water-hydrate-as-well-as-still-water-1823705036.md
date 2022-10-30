@@ -1,6 +1,6 @@
 # 起泡的水和静止的水一样会水合吗？
 
-> 原文:[https://the take out . com/does-sparkling-water-hydrate-as-as-as-still-water-1823705036](https://thetakeout.com/does-sparkling-water-hydrate-as-well-as-still-water-1823705036)
+> 原文：<https://thetakeout.com/does-sparkling-water-hydrate-as-well-as-still-water-1823705036>
 
 我们对苏打水的集体喜爱最近让我们思考了两个问题:第一，现在我们每月食品预算中有百分之多少花在了拉克罗伊上？第二，喝汽水和喝静水一样对我们有好处吗？第一个问题的答案可能令人不安，所以我们将跳过这个问题，专注于第二部分。
 

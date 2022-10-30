@@ -1,6 +1,6 @@
 # 网络中立性“消失”后会发生什么
 
-> 原文:[https://life hacker . com/what-happens-now-than-net-neutrality-is-gone-1826735222](https://lifehacker.com/what-happens-now-that-net-neutrality-is-gone-1826735222)
+> 原文：<https://lifehacker.com/what-happens-now-that-net-neutrality-is-gone-1826735222>
 
 今天标志着网络中立的终结，但不是永久的死亡。你可能以前听说过“网络中立”这个词，但如果你需要复习一下，这里有:网络中立是奥巴马总统任期内推出的一套规则，基本上要求所有互联网内容平等。
 

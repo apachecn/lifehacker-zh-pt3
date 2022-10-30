@@ -1,6 +1,6 @@
 # 如何从 iPhone 切换到 Pixel 2
 
-> 原文:[https://life hacker . com/how-to-switch-from-the-iphone-to-the-pixel-2-1820769729](https://lifehacker.com/how-to-switch-from-the-iphone-to-the-pixel-2-1820769729)
+> 原文：<https://lifehacker.com/how-to-switch-from-the-iphone-to-the-pixel-2-1820769729>
 
 任何使用 iPhone 的人可能都认为很难切换到 Android 设备。但是谷歌最新的智能手机 Pixel 2 通过处理所有烦人的事情，比如复制你的照片或联系人，缓解了切换的焦虑。在从一个操作系统转移到下一个操作系统之前，你需要更改一些设置，但整个过程比导入和导出数据要轻松得多，你可能很难正确识别或移动这些数据(每个人都讨厌 VCF 文件)。
 

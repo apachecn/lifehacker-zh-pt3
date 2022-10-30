@@ -1,6 +1,6 @@
 # 我们的技术编辑用来管理混乱浏览器的 Chrome 扩展
 
-> 原文:[https://life hacker . com/the-chrome-extensions-our-tech-editor-uses-to-manage-a-1823999980](https://lifehacker.com/the-chrome-extensions-our-tech-editor-uses-to-manage-a-1823999980)
+> 原文：<https://lifehacker.com/the-chrome-extensions-our-tech-editor-uses-to-manage-a-1823999980>
 
 我最不擅长整理我的浏览器——绝对最差。我会打开标签页，比如在待办事项列表上添加条目，然后在几周内忘记它们，因为更多的同龄人加入了 Chrome 地址栏上方顶层的派对。
 

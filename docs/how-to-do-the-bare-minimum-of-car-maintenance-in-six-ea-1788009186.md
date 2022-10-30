@@ -1,6 +1,6 @@
 # 如何在六个简单的步骤中完成最基本的汽车保养
 
-> 原文:[https://jalopnik . com/how-do-the-bare-minimum-of-car-maintenance-in-six-ea-1788009186](https://jalopnik.com/how-to-do-the-bare-minimum-of-car-maintenance-in-six-ea-1788009186)
+> 原文：<https://jalopnik.com/how-to-do-the-bare-minimum-of-car-maintenance-in-six-ea-1788009186>
 
 你不需要全面了解一辆车的工作原理来享受它。(虽然我觉得确实有帮助。)正如这段视频所展示的，只要注意几个关键的事情，任何人都可以让自己的车变得更安全，更耐用。
 

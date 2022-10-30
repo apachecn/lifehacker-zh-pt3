@@ -1,6 +1,6 @@
 # 如何在新手机到货前卖掉旧手机
 
-> 原文:[https://life hacker . com/how-to-sell-your-old-phone-before-the-new-one-arrival-1798437219](https://lifehacker.com/how-to-sell-your-old-phone-before-the-new-one-arrives-1798437219)
+> 原文：<https://lifehacker.com/how-to-sell-your-old-phone-before-the-new-one-arrives-1798437219>
 
 每个人都想卖掉他们的旧手机，但这有点令人生畏。处理旧设备是一个巨大的麻烦，尤其是当你必须清理它，停用账户，并找到一个可以为你的设备提供可观现金的地方。这是一件没人愿意处理的苦差事。
 

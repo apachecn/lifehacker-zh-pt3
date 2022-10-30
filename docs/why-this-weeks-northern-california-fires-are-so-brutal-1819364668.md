@@ -1,6 +1,6 @@
 # 为什么本周北加州的大火如此残忍
 
-> 原文:[https://gizmodo . com/why-this-weeks-northern-California-fires-so-残暴-1819364668](https://gizmodo.com/why-this-weeks-northern-california-fires-are-so-brutal-1819364668)
+> 原文：<https://gizmodo.com/why-this-weeks-northern-california-fires-are-so-brutal-1819364668>
 
 世界范围内的火灾季节正在变得越来越长，越来越激烈，这一事实在本周痛苦地提醒了美国人，周日晚上和周一早上引发的一系列野火将加州北部的大片地区变成了世界末日的地狱景象。截至太平洋时间今天上午 8 点，所谓的北部湾大火已经烧毁了17 万英亩的土地，摧毁了 2000 多座建筑，夺走了至少 17 条生命。
 

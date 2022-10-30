@@ -1,6 +1,6 @@
 # 用便宜的浴帘在海滩上做一个幼儿儿童泳池
 
-> 原文:[https://life hacker . com/make-a-cuddle-kiddy-pool-at-a-beach-a-cheap-sh-1828027234](https://lifehacker.com/make-a-toddler-kiddie-pool-at-the-beach-with-a-cheap-sh-1828027234)
+> 原文：<https://lifehacker.com/make-a-toddler-kiddie-pool-at-the-beach-with-a-cheap-sh-1828027234>
 
 理论上来说，海滩似乎是一个带着蹒跚学步的孩子玩耍的好地方。但是当你到达那里，会有巨浪之类的东西。你的孩子渴望在水中嬉戏，但你不能让她。所以她坐在那里，像小海洋奇缘一样渴望地盯着岸边，大嚼着沙滩。
 

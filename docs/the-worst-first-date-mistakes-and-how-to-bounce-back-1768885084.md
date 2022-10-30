@@ -1,6 +1,6 @@
 # 最糟糕的第一次约会错误和如何恢复
 
-> 原文:[https://life hacker . com/the-worst-worst-first-date-missons-and-how-to-bounce-back-1768885084](https://lifehacker.com/the-worst-first-date-mistakes-and-how-to-bounce-back-1768885084)
+> 原文：<https://lifehacker.com/the-worst-first-date-mistakes-and-how-to-bounce-back-1768885084>
 
 网上约会让结识人变得比以往任何时候都容易，但这也意味着一个小小的错误可能意味着第二次约会和某人进入下一场比赛的区别。从忘记带钱包到在错误的时间接吻，第一次约会是一个雷区。以下是一些常见的第一次约会混乱，以及当它们发生在你身上时如何恢复。
 

@@ -1,6 +1,6 @@
 # 如何正确摆放餐桌
 
-> 原文:[https://life hacker . com/how-to-right-set-a-table-1829521390](https://lifehacker.com/how-to-properly-set-a-table-1829521390)
+> 原文：<https://lifehacker.com/how-to-properly-set-a-table-1829521390>
 
 为你的晚宴布置餐桌看起来像是你给那些坚持要帮忙的热切的客人的工作，但它应该被小心和精确地完成。当然，你可以把一个装满塑料叉子的杯子掉在桌子上，但这真的是生活吗？
 

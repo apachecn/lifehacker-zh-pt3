@@ -1,6 +1,6 @@
 # 五款最佳便携式电源板
 
-> 原文:[https://life hacker . com/five-best-portable-电源板-1731719928](https://lifehacker.com/five-best-portable-power-strips-1731719928)
+> 原文：<https://lifehacker.com/five-best-portable-power-strips-1731719928>
 
 无论您是在旅途中工作，还是在咖啡店的图书馆里舒适地使用您的笔记本电脑，您都可以使用一些备用端口。幸运的是，有很多很棒的便携式电源板，最好的甚至有 USB 端口给你的手机或平板电脑充电。本周我们来看五个最好的。
 

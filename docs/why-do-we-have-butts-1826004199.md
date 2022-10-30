@@ -1,6 +1,6 @@
 # 为什么我们有屁股？
 
-> 原文:[https://gizmodo.com/why-do-we-have-butts-1826004199](https://gizmodo.com/why-do-we-have-butts-1826004199)
+> 原文：<https://gizmodo.com/why-do-we-have-butts-1826004199>
 
 什么时候把我们和动物区分开来？是意识的负担，还是知道有一天我们会和所有我们爱过的人一起死去的恐惧？还是我们的大屁股怪怪的？
 

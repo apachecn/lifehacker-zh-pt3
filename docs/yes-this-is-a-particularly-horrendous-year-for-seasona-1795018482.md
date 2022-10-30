@@ -1,6 +1,6 @@
 # 是的，对于季节性过敏来说，今年是特别可怕的一年
 
-> 原文:[https://life hacker . com/yes-这是特别可怕的一年](https://lifehacker.com/yes-this-is-a-particularly-horrendous-year-for-seasona-1795018482)
+> 原文：<https://lifehacker.com/yes-this-is-a-particularly-horrendous-year-for-seasona-1795018482>
 
 这个过敏季节是可怕的，不是吗？在过去的几周里，我愚蠢地打了个喷嚏，至少有趣的是，在纽约，我认识的一半人都挖出了自己的眼睛，用网兜淹死了自己。但是*今年是不是*比往年糟糕，还是我只是个大宝宝？我采访了纽约大学过敏症和免疫学助理教授苏扬·帕特尔(Sujan Patel)，听听他对这个季节是否像看上去那么糟糕的看法。并找出解决的办法。
 

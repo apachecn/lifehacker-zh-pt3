@@ -1,6 +1,6 @@
 # 如何为一小群人做感恩节晚餐
 
-> 原文:[https://life hacker . com/how-to-make-the-感恩节晚餐给一个非常小的人群-1820310548](https://lifehacker.com/how-to-make-thanksgiving-dinner-for-a-very-small-crowd-1820310548)
+> 原文：<https://lifehacker.com/how-to-make-thanksgiving-dinner-for-a-very-small-crowd-1820310548>
 
 对于远离家人的人来说，假日旅行是一场后勤噩梦。我知道斗争。直到今年夏天，我已经在远离家乡的地方住了十年了。
 

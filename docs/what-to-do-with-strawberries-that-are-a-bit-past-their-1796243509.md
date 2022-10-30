@@ -1,6 +1,6 @@
 # 如何处理有点过期的草莓
 
-> 原文:[https://life hacker . com/what-to-do-with-the-bit-past-thes-1796243509](https://lifehacker.com/what-to-do-with-strawberries-that-are-a-bit-past-their-1796243509)
+> 原文：<https://lifehacker.com/what-to-do-with-strawberries-that-are-a-bit-past-their-1796243509>
 
 自己摘草莓是一项危险的游戏。一开始是从灌木丛中采摘浆果的美好、干净的乐趣，但很快就升级为一场疯狂的竞赛，与其他所有人竞争采摘*最多的*和*最好的*浆果，留给我的是被抓伤的四肢、被弄脏的嘴唇和太多的浆果。
 

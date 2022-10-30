@@ -1,6 +1,6 @@
 # 尽管有这项新的研究，我们所知道的关于营养的一切仍然是正确的
 
-> 原文:[https://life hacker . com/Duncan-this-new-study-everything-we-know-on-nutrit-1798681573](https://lifehacker.com/despite-this-new-study-everything-we-know-about-nutrit-1798681573)
+> 原文：<https://lifehacker.com/despite-this-new-study-everything-we-know-about-nutrit-1798681573>
 
 《柳叶刀》杂志本周 发布的一项研究 [发现了高碳水化合物摄入量与死亡风险之间的联系。由此产生的头条新闻是专门为低碳水化合物节食者庆祝，而低脂肪素食者渴望战斗。但是和大多数饮食研究一样，它并不像标题宣称的那样简单。](http://www.thelancet.com/journals/lancet/article/PIIS0140-6736(17)32252-3/fulltext) 
 

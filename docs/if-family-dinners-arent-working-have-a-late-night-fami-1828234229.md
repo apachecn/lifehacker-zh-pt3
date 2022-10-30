@@ -1,6 +1,6 @@
 # 如果家庭聚餐不起作用，那就吃一顿家庭夜宵
 
-> 原文:[https://life hacker . com/if-family-dinters-arent-working-have-a-late-night-fami-1828234229](https://lifehacker.com/if-family-dinners-arent-working-have-a-late-night-fami-1828234229)
+> 原文：<https://lifehacker.com/if-family-dinners-arent-working-have-a-late-night-fami-1828234229>
 
 关于家庭聚餐的重要性已经写了很多。每天都要留出时间，远离工作、家务和 Instagram 通知的干扰，与你的家人分享食物。在这种仪式中长大的孩子将与那些不这样做的孩子有根本的不同——科学 [证实了这一点](https://www.healthychildren.org/English/family-life/family-dynamics/Pages/Mealtime-as-Family-Time.aspx) 。然而，永恒的挑战是找到时间，尤其是当你的父母工作到很晚，或者多个孩子的时间表相互冲突的时候。现实生活看起来不像诺曼·洛克威尔的感恩节画作，而更像是一个高速公路休息站，随时都有人在进进出出。
 

@@ -1,6 +1,6 @@
 # 如果你是一个喜欢 iPhone 的 Windows 用户，你会希望从 Windows 商店获得 iTunes
 
-> 原文:[https://life hacker . com/if-you-an-iphone-loving-windows-user-youll-want-itun-1825606649](https://lifehacker.com/if-youre-an-iphone-loving-windows-user-youll-want-itun-1825606649)
+> 原文：<https://lifehacker.com/if-youre-an-iphone-loving-windows-user-youll-want-itun-1825606649>
 
 在我们开始之前，Windows 用户，让我们开始肯定:*我们使用 Windows。我们都同意 iTunes 的设计很糟糕。如果苹果对其应用进行现代化改造，我们会举办一场派对，但我们讨厌 iTunes 是与我们的 iPhones 和 iPads 同步内容的最佳选择。*
 

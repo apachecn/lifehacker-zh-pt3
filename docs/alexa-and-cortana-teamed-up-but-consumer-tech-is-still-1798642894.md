@@ -1,6 +1,6 @@
 # Alexa 和 Cortana 合作了，但消费技术仍然停留在生态系统战争中
 
-> 原文:[https://life hacker . com/Alexa-and-cortana-teached-but-consumer-tech-is-still-1798642894](https://lifehacker.com/alexa-and-cortana-teamed-up-but-consumer-tech-is-still-1798642894)
+> 原文：<https://lifehacker.com/alexa-and-cortana-teamed-up-but-consumer-tech-is-still-1798642894>
 
 语音接口 Cortana 和 Alexa 将很快能够为一个比另一个做得更好的功能激活彼此， [亚马逊和微软今天宣布](https://www.nytimes.com/2017/08/30/technology/amazon-alexa-microsoft-cortana.html) 。这种合作我们在 [、五大](https://www.nytimes.com/2017/05/10/technology/techs-frightful-five-theyve-got-us.html) 之间看得不够多，也没有任何一家公司真正走出了“拼命拼凑合作伙伴关系，让我们看起来相关”的阶段，进入了“放弃所有不会将客户锁定在我们糟糕的生态系统中的合作”的阶段。
 

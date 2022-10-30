@@ -1,6 +1,6 @@
 # Trumpcare 可能又死了
 
-> 原文:[https://life hacker . com/trump care-is-dead-again-maybe-1818816204](https://lifehacker.com/trumpcare-is-dead-again-maybe-1818816204)
+> 原文：<https://lifehacker.com/trumpcare-is-dead-again-maybe-1818816204>
 
 格雷厄姆-卡西迪医疗保健法案，废除奥巴马医改的最新尝试，已经被否决。离预算对账截止日期只剩三天了，真的真的死了。暂时如此。也许吧。
 

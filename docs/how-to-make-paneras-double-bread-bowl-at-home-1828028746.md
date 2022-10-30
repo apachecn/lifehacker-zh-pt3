@@ -1,6 +1,6 @@
 # 如何在家制作 Panera 的双面包碗
 
-> 原文:[https://life hacker . com/how-to-make-paneras-double-bread-bowl-in-home-1828028746](https://lifehacker.com/how-to-make-paneras-double-bread-bowl-at-home-1828028746)
+> 原文：<https://lifehacker.com/how-to-make-paneras-double-bread-bowl-at-home-1828028746>
 
 汤和汤供应系统继续发展，正如 Jezebel 本周早些时候报道的 ，Panera 正在通过给我们一个汤槽，而不是一个——而是两个——将喝汤的体验转变成一种相当大胆的方式。
 

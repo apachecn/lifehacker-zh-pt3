@@ -1,6 +1,6 @@
 # “定制简历”的真正含义是什么
 
-> 原文:[https://life hacker . com/what-it-really-mean-to-tailor-your-resume-1779491213](https://lifehacker.com/what-it-really-means-to-tailor-your-resume-1779491213)
+> 原文：<https://lifehacker.com/what-it-really-means-to-tailor-your-resume-1779491213>
 
 求职？你可能已经听过很多次这样的建议，让你的简历适合这个职位。但是，你可能不知道如何将它付诸行动。量身定制简历实际上包括哪些内容？你需要做多少改变？你应该关注什么内容？
 

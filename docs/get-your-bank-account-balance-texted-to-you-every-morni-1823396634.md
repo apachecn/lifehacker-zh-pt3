@@ -1,6 +1,6 @@
 # 每天早上把你的银行账户余额短信发给你
 
-> 原文:[https://life hacker . com/get-your-bank-account-balance-texted-to-you every morni-1823396634](https://lifehacker.com/get-your-bank-account-balance-texted-to-you-every-morni-1823396634)
+> 原文：<https://lifehacker.com/get-your-bank-account-balance-texted-to-you-every-morni-1823396634>
 
 每天早上，我醒来都会收到一条短信，显示我的账户余额。我这样做是因为我有超支的倾向，我正在努力抑制这种倾向，我喜欢知道在任何给定的时间我有多少钱。这是一件小事，让我意识到我更大的目标。
 

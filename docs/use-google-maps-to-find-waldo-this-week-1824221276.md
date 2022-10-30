@@ -1,6 +1,6 @@
 # 本周使用谷歌地图寻找瓦尔多
 
-> 原文:[https://life hacker . com/use-Google-maps-to-find-Waldo-this-week-1824221276](https://lifehacker.com/use-google-maps-to-find-waldo-this-week-1824221276)
+> 原文：<https://lifehacker.com/use-google-maps-to-find-waldo-this-week-1824221276>
 
 从今天开始，如果你在手机、Chromebook 或 Google Home 设备上问谷歌助手“沃尔多在哪里？”你实际上会得到一个答案。
 

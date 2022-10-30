@@ -1,6 +1,6 @@
 # 如何，为什么，尝试完全赤脚跑步
 
-> 原文:[https://life hacker . com/how-and-why-to-try-running-total-bare-1814074001](https://lifehacker.com/how-and-why-to-try-running-totally-barefoot-1814074001)
+> 原文：<https://lifehacker.com/how-and-why-to-try-running-totally-barefoot-1814074001>
 
 光脚跑步就像裸泳:当你与环境和身体更紧密地联系在一起时，一些已经很有趣的事情会变得令人兴奋和难忘。当你不穿泳衣时，你会情不自禁地感受到水温的细微差别，注意到你的皮肤，不穿鞋跑步会迫使你关注你周围的世界——倾听你的脚步。
 

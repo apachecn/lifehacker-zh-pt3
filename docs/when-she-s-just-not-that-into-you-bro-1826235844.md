@@ -1,6 +1,6 @@
 # 当她没那么喜欢你的时候，兄弟
 
-> 原文:[https://life hacker . com/when-she-s-just-not-that-into-you-bro-1826235844](https://lifehacker.com/when-she-s-just-not-that-into-you-bro-1826235844)
+> 原文：<https://lifehacker.com/when-she-s-just-not-that-into-you-bro-1826235844>
 
 本周我们有一个大学男生，他不顾一切地坚持与一个他从高中就认识的女孩的异地恋。她是不是无理取闹，不理他了？还是这家伙期望太高了？
 

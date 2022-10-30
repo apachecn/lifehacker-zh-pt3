@@ -1,6 +1,6 @@
 # 如何与你的第一个大学室友找到共同点
 
-> 原文:[https://life hacker . com/how-to-find-common-ground with your ' s first-college-room m-1828806314](https://lifehacker.com/how-to-find-common-ground-with-your-first-college-roomm-1828806314)
+> 原文：<https://lifehacker.com/how-to-find-common-ground-with-your-first-college-roomm-1828806314>
 
 对于大多数大学新生来说，你的室友是第一个你不得不与你没有血缘关系的人分享如此亲密的空间的人。他们*可能*没有兄弟姐妹那么烦人，但是你不会有父母在那里调解纠纷。以下是如何和一个整年都睡在离你三英尺远的地方的人有个好的开始。
 

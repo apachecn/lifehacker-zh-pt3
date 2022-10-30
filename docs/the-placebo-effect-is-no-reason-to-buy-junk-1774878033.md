@@ -1,6 +1,6 @@
 # 安慰剂效应不是购买垃圾食品的借口
 
-> 原文:[https://life hacker . com/the-placebo-effect-is-no-reason-to-buy-junk-1774878033](https://lifehacker.com/the-placebo-effect-is-no-reason-to-buy-junk-1774878033)
+> 原文：<https://lifehacker.com/the-placebo-effect-is-no-reason-to-buy-junk-1774878033>
 
 我们都相信一些我们知道可能不起作用的东西。也许是 [维生素 C](http://lifehacker.com/the-no-bs-guide-to-boosting-your-immunity-and-avoiding-5858209) 当上班的每个人都感冒的时候，或者是 [#bootea 当我们节食的时候](http://vitals.lifehacker.com/instagram-s-viral-weight-loss-teas-are-just-laxatives-1773839010) ，或者是跑步的时候压缩袜子。“就算不行，又有什么坏处？”我们告诉自己。事实是，它不是无害的，我们只是在欺骗自己。
 

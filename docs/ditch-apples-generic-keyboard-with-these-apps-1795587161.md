@@ -1,6 +1,6 @@
 # 放弃苹果的默认键盘，选择其中一个
 
-> 原文:[https://life hacker . com/ditch-apple-generic-keyboard-with these-apps-1795587161](https://lifehacker.com/ditch-apples-generic-keyboard-with-these-apps-1795587161)
+> 原文：<https://lifehacker.com/ditch-apples-generic-keyboard-with-these-apps-1795587161>
 
 就功能而言，苹果的通用预装键盘肯定有所改进，但即使在添加了自己的应用商店、贴纸和应用程序之后，它仍然有点乏味。我喜欢苹果的是它对第三方键盘的支持。你可以放弃通用的产品，下载足够的键盘来实现你想要的每一个可以想象的定制选项。
 

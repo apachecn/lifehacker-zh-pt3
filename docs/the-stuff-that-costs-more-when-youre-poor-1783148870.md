@@ -1,6 +1,6 @@
 # 当你穷的时候那些东西会更贵
 
-> 原文:[https://life hacker . com/the-stuff-that-cost-more-when you-poor-1783148870](https://lifehacker.com/the-stuff-that-costs-more-when-youre-poor-1783148870)
+> 原文：<https://lifehacker.com/the-stuff-that-costs-more-when-youre-poor-1783148870>
 
 少花钱，省下你的钱，然后——噗！—你的财务问题解决了。要是有这么简单就好了。破产本身就够糟糕的了，而且还有一些障碍，使得穷人要想获得经济保障变得格外困难。例如，这里有一些实际上对低收入个人来说花费更多的费用。
 

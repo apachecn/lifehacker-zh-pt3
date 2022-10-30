@@ -1,6 +1,6 @@
 # 麸质是这样的
 
-> 原文:[https://life hacker . com/here-s-the-deal-with-gluten-1796820761](https://lifehacker.com/here-s-the-deal-with-gluten-1796820761)
+> 原文：<https://lifehacker.com/here-s-the-deal-with-gluten-1796820761>
 
 这个世界上有两种人:一种人把麸质说得像魔鬼一样，另一种人不会翻白眼向世界展示他们有多讨厌无麸质标签。面筋值得这么有争议吗？让我们开始吃吧。
 

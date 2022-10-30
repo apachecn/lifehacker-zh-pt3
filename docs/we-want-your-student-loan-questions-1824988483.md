@@ -1,6 +1,6 @@
 # 我们想要你的学生贷款问题
 
-> 原文:[https://life hacker . com/we-want-your-student-loan-questions-1824988483](https://lifehacker.com/we-want-your-student-loan-questions-1824988483)
+> 原文：<https://lifehacker.com/we-want-your-student-loan-questions-1824988483>
 
 我们刚刚完成了 2018 年 的第一个主题周 [，但我们已经开始了下一个主题周——这一次都是关于学生贷款的。](https://lifehacker.com/c/money-talks) 
 

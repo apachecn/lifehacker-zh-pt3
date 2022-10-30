@@ -1,6 +1,6 @@
 # 你的互联网使用也有碳足迹
 
-> 原文:[https://life hacker . com/your-internet-use-has-a-carbon-footprint-too-1825827658](https://lifehacker.com/your-internet-use-has-a-carbon-footprint-too-1825827658)
+> 原文：<https://lifehacker.com/your-internet-use-has-a-carbon-footprint-too-1825827658>
 
 我们如此习惯于使用电脑和手机，以至于它们感觉像是我们大脑的延伸——不仅仅是我，对吗？一个谷歌查询回来的速度就像一个想法一样快，我指尖的信息感觉就像大脑中的信息一样无形。
 

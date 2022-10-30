@@ -1,6 +1,6 @@
 # 开始铁人三项训练前你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-triathlon-training-1822365243](https://lifehacker.com/everything-you-need-to-know-about-triathlon-training-1822365243)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-triathlon-training-1822365243>
 
 如果你只参加三项全能运动中的一项——游泳、骑自行车或跑步——你现在是安全的。但是只要你花上一秒钟，一个想法就开始在你的脑海中萌芽。如果我参加铁人三项会怎么样？它低声细语。*我只需要再学一件事。*
 

@@ -1,6 +1,6 @@
 # 如何把普通绷带变成指尖绷带
 
-> 原文:[https://life hacker . com/how-to-turn-a-regular-绷带变成指尖绷带-1826924101](https://lifehacker.com/how-to-turn-a-regular-bandage-into-a-fingertip-bandage-1826924101)
+> 原文：<https://lifehacker.com/how-to-turn-a-regular-bandage-into-a-fingertip-bandage-1826924101>
 
 如果你的指尖有伤口，当你的浴室急救箱里只有普通的、直的创可贴，而不是专用的指尖绷带时，不要绝望。你只要用剪刀剪两下就可以做一个。下面是方法:
 

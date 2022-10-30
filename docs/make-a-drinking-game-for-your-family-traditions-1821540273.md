@@ -1,6 +1,6 @@
 # 为你的家庭传统制作一个饮酒游戏
 
-> 原文:[https://life hacker . com/make-a-drinking-game-for-your-family-traditions-1821540273](https://lifehacker.com/make-a-drinking-game-for-your-family-traditions-1821540273)
+> 原文：<https://lifehacker.com/make-a-drinking-game-for-your-family-traditions-1821540273>
 
 节日传统的美妙之处在于我们每年都这样做。节日传统的可怕之处在于我们每年都这样做。一场饮酒游戏(或不含酒精的等效物)可能正是你所需要的，为年度会议增添一点情趣——或调味汁。
 

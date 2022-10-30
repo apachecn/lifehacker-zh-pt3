@@ -1,6 +1,6 @@
 # 立即使用 Amazon Prime 来帮助那些需要帮助的人
 
-> 原文:[https://life hacker . com/use-Amazon-prime-now-to-help-the-these-need-1821332895](https://lifehacker.com/use-amazon-prime-now-to-help-those-in-need-1821332895)
+> 原文：<https://lifehacker.com/use-amazon-prime-now-to-help-those-in-need-1821332895>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-8oKl_qDJHt4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-8oKl_qDJHt4&start=0) 
 

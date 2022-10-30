@@ -1,6 +1,6 @@
 # 当你在假期想家的时候该做什么
 
-> 原文:[https://life hacker . com/what-to-do what-when-you-re-feeling-homestic-around-the-holi-1790382270](https://lifehacker.com/what-to-do-when-you-re-feeling-homesick-around-the-holi-1790382270)
+> 原文：<https://lifehacker.com/what-to-do-when-you-re-feeling-homesick-around-the-holi-1790382270>
 
 大多数人与家人、朋友和爱人一起度过假期。如果你在一年中的这个时候远离家人、朋友或爱人，很难不想家。以下是几种应对方法。
 

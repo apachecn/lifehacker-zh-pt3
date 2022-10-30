@@ -1,6 +1,6 @@
 # 三款比 Beats 更好的无线耳机
 
-> 原文:[https://gizmodo . com/we-forced-three-great-wireless-headphones-battle-to-the-1792408883](https://gizmodo.com/we-forced-three-great-wireless-headphones-battle-to-the-1792408883)
+> 原文：<https://gizmodo.com/we-forced-three-great-wireless-headphones-battle-to-the-1792408883>
 
 无线耳机正迅速成为我们这个充斥着软件狗的小玩意世界中的必需品，但选择是无穷无尽的。我们开始寻找一副高品质的无线入耳式耳机，以满足那些想要时髦地逛大街的挑剔的听众。
 

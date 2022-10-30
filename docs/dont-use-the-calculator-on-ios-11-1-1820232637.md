@@ -1,6 +1,6 @@
 # 不要在 iOS 11.1 上使用计算器
 
-> 原文:[https://life hacker . com/don-use-the-calculator-on-IOs-11-1-1820232637](https://lifehacker.com/dont-use-the-calculator-on-ios-11-1-1820232637)
+> 原文：<https://lifehacker.com/dont-use-the-calculator-on-ios-11-1-1820232637>
 
 我们已经知道，对于各种用户来说，iOS 11.1 [让媒体播放口吃](https://lifehacker.com/why-you-still-shouldn-t-download-ios-11-on-an-older-iph-1820122749#_ga=2.237222336.1335679637.1509978748-1297080755.1497980211)[打破锁屏上的音频控制](https://community.spotify.com/t5/iOS-iPhone-iPad/Control-Center-on-iOS-11/m-p/2154041#M82521)[自动将单词“I”修正为无法识别的字符](https://lifehacker.com/how-to-stop-your-iphone-from-autocorrecting-i-to-a-1820163694) 。但还有更多！还坏了计算器 app。
 

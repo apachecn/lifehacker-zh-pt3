@@ -1,6 +1,6 @@
 # 如果您受到 Equifax 黑客攻击的影响该怎么办[更新]
 
-> 原文:[https://life hacker . com/what-to-do-if-you-be-affected-by-equifax-hack-1803081696](https://lifehacker.com/what-to-do-if-you-were-affected-by-the-equifax-hack-1803081696)
+> 原文：<https://lifehacker.com/what-to-do-if-you-were-affected-by-the-equifax-hack-1803081696>
 
 本周早些时候 Equifax 的 [【安全事件】](http://lifehacker.com/equifax-hackers-might-have-your-social-security-and-cre-1802159442) 影响了 1.43 亿美国人。这是一个巨大的数字，这意味着你或你认识的人受到影响的可能性相当高。Equifax 的网站甚至一度为伪造的社会安全号码提供了正面的结果。
 

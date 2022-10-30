@@ -1,6 +1,6 @@
 # 如何查看 Spotify 从您的播放列表中删除了哪些歌曲
 
-> 原文:[https://life hacker . com/how-to-see-which-songs-Spotify-has-removed-from-your-pl-1796511343](https://lifehacker.com/how-to-see-which-songs-spotify-has-removed-from-your-pl-1796511343)
+> 原文：<https://lifehacker.com/how-to-see-which-songs-spotify-has-removed-from-your-pl-1796511343>
 
 Spotify 流媒体播放超过[3000 万首歌曲](https://press.spotify.com/us/about/) ，拥有超过 20 亿个播放列表，这就是为什么有时很难跟踪来来去去的歌曲。如果你曾经注意到你最喜欢的一首歌停止了播放，不要马上责怪算法；这可能意味着该歌曲已从流媒体服务中删除。
 

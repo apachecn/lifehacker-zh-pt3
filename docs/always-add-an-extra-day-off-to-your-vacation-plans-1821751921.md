@@ -1,6 +1,6 @@
 # 总是在你的假期计划中增加额外的一天假期
 
-> 原文:[https://life hacker . com/always-add-a-day-extra-off to-your-vacation-plans-1821751921](https://lifehacker.com/always-add-an-extra-day-off-to-your-vacation-plans-1821751921)
+> 原文：<https://lifehacker.com/always-add-an-extra-day-off-to-your-vacation-plans-1821751921>
 
 即使你度过了一个充满休息和放松的假期，回家的旅程也足以让你筋疲力尽，迷失方向。下次你计划休假的时候，给自己额外的一天时间恢复精力，为重返工作岗位做好准备。
 

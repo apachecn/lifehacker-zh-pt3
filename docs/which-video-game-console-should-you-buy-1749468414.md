@@ -1,6 +1,6 @@
 # 你应该买哪一款游戏机？
 
-> 原文:[https://kotaku . com/which-video-game-console-should-you-buy-1749468414](https://kotaku.com/which-video-game-console-should-you-buy-1749468414)
+> 原文：<https://kotaku.com/which-video-game-console-should-you-buy-1749468414>
 
 上周，我收到了一位读者的电子邮件，其中有一个简单而又具有挑战性的问题:他们应该购买哪一款视频游戏机？
 

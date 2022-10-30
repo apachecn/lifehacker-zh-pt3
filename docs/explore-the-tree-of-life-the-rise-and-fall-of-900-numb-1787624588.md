@@ -1,6 +1,6 @@
 # 探索生命之树，900 个数字的兴衰，以及有史以来采样最多的歌曲
 
-> 原文:[https://life hacker . com/explore-the-tree of life-the-rise-fall-of-900-number-1787624588](https://lifehacker.com/explore-the-tree-of-life-the-rise-and-fall-of-900-numb-1787624588)
+> 原文：<https://lifehacker.com/explore-the-tree-of-life-the-rise-and-fall-of-900-numb-1787624588>
 
 本周我们将观看一些令人难以置信的击剑视频，探索地球上的生命之树，建立一些遗愿清单，并谈论音乐采样的历史。
 

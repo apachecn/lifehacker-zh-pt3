@@ -1,6 +1,6 @@
 # 没人告诉你骑摩托车上下班的事
 
-> 原文:[https://jalopnik . com/what-no-one-tell-you-on-crowd-1774920878](https://jalopnik.com/what-no-one-tells-you-about-commuting-on-a-motorcycle-1774920878)
+> 原文：<https://jalopnik.com/what-no-one-tells-you-about-commuting-on-a-motorcycle-1774920878>
 
 当我穿着平角裤在车库后面离开写汽车、自行车和技术的世界时，有一件事是清楚的:通勤正在发生。如果我要再次忍受这种吸人灵魂的苦差事，我会用两个轮子来做。因此，在风雨无阻地行驶了 9000 英里之后，我想我已经弄明白了以下几点。
 

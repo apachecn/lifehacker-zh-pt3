@@ -1,6 +1,6 @@
 # 如何在旅行时最大限度地延长电池寿命和减少数据使用
 
-> 原文:[https://life hacker . com/how-to-maximized-battery-life-life-life-hacker . com/how-to-maximized-battery-life-life-life-life-minimize-data-usage-wh-1827386148](https://lifehacker.com/how-to-maximize-battery-life-and-minimize-data-usage-wh-1827386148)
+> 原文：<https://lifehacker.com/how-to-maximize-battery-life-and-minimize-data-usage-wh-1827386148>
 
 现在是夏天，我们都有旅游癖。重要的是，你走出去，看看这个世界，但同样重要的是，你的手机已经为你的旅行做好了准备。当你在地图上扔了一个飞镖并买了机票后，试试这些建议来确保你在外出时不会耗尽你智能手机的电池或数据套餐。
 

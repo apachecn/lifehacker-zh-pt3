@@ -1,6 +1,6 @@
 # 如何不加入你孩子学校的家长会
 
-> 原文:[https://life hacker . com/how-to-not-join-your-kids-school-PTA-1823391164](https://lifehacker.com/how-to-not-join-your-kids-school-pta-1823391164)
+> 原文：<https://lifehacker.com/how-to-not-join-your-kids-school-pta-1823391164>
 
 加入你孩子学校的家长教师协会的压力很早就开始了，并经常持续到他们的小学生涯。这种吸引力对于我们这些全职父母或在家工作的父母来说尤其强烈，因为我们认识到我们的时间表比全职在家工作的父母提供了更多的灵活性。
 

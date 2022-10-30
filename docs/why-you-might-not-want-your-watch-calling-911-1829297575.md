@@ -1,6 +1,6 @@
 # 为什么你不想让你的手表打 911
 
-> 原文:[https://life hacker . com/why-you-may-not-want-your-watch-calling-911-1829297575](https://lifehacker.com/why-you-might-not-want-your-watch-calling-911-1829297575)
+> 原文：<https://lifehacker.com/why-you-might-not-want-your-watch-calling-911-1829297575>
 
 如果你摔倒了，站不起来了，新款 Apple Watch 可以呼叫紧急服务。我们 [早些时候报道过](https://lifehacker.com/how-and-why-to-turn-on-your-apple-watch-4s-fall-detec-1829278740#_ga=2.204793623.648745080.1537795909-1456718367.1520458611) 该功能对 65 岁及以上的用户开放，但任何人都可以启用它。但是不管你是什么年龄，你都应该意识到法律后果:Y 你允许警察在没有搜查令的情况下进入你的家，而你可能并不真的希望这样。
 

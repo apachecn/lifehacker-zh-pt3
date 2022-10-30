@@ -1,6 +1,6 @@
 # 如何应对不能运动的焦虑
 
-> 原文:[https://life hacker . com/how-to-deal-of-can ' t-exerce-1801332235](https://lifehacker.com/how-to-deal-with-the-anxiety-of-not-being-able-to-exerc-1801332235)
+> 原文：<https://lifehacker.com/how-to-deal-with-the-anxiety-of-not-being-able-to-exerc-1801332235>
 
 到目前为止，你的常规锻炼就像出门前的呼吸或穿裤子一样成了你的第二天性，但现在*某事*——一次延长的家庭度假或一次受伤——已经把你的日常工作从你身上扯掉了。一天不锻炼已经让你坐立不安了。一周或更长时间不锻炼？哦，不，慌了！
 

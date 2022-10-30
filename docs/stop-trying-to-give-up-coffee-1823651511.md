@@ -1,6 +1,6 @@
 # 不要试图戒掉咖啡
 
-> 原文:[https://life hacker . com/stop-尝试放弃咖啡-1823651511](https://lifehacker.com/stop-trying-to-give-up-coffee-1823651511)
+> 原文：<https://lifehacker.com/stop-trying-to-give-up-coffee-1823651511>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在写感恩日志，制作完美的三明治，并放松回到我们的日常锻炼中。
 

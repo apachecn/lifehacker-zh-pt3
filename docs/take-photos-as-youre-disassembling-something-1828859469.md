@@ -1,6 +1,6 @@
 # 在你拆卸东西的时候拍照
 
-> 原文:[https://life hacker . com/take-photos-as-you-disinstalling-something-1828859469](https://lifehacker.com/take-photos-as-youre-disassembling-something-1828859469)
+> 原文：<https://lifehacker.com/take-photos-as-youre-disassembling-something-1828859469>
 
 任何时候搬家，你都可以选择把宜家家具塞进门里，或者把它拆成便于管理的部件。后一种选择通常更好，但它也有自己的挑战。
 

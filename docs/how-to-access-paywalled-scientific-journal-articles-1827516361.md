@@ -1,6 +1,6 @@
 # 如何获取付费的科学期刊文章
 
-> 原文:[https://life hacker . com/how-to-access-pay walled-scientific-journal-articles-1827516361](https://lifehacker.com/how-to-access-paywalled-scientific-journal-articles-1827516361)
+> 原文：<https://lifehacker.com/how-to-access-paywalled-scientific-journal-articles-1827516361>
 
 任何时候你看到关于一项新研究的引人注目的标题，或者一些营销人员说“研究表明”他们的饮食或产品有一定的效果，很可能他们正在谈论一篇你有很大几率能够获得的期刊论文。
 

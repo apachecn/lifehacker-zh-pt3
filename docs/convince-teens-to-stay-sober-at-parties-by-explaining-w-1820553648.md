@@ -1,6 +1,6 @@
 # 通过解释对他们有什么好处来说服青少年在聚会上保持清醒
 
-> 原文:[https://life hacker . com/通过解释说服青少年在派对上保持清醒-w-1820553648](https://lifehacker.com/convince-teens-to-stay-sober-at-parties-by-explaining-w-1820553648)
+> 原文：<https://lifehacker.com/convince-teens-to-stay-sober-at-parties-by-explaining-w-1820553648>
 
 你可能还记得十几岁时在驾驶课上，看了一盘 VHS 录像带，展示了当你在高速公路上开快车时可能发生的非常、非常糟糕和可怕的事情。人们似乎相信，要培养安全的司机，你需要让他们做几个月的噩梦。我在 80 年代长大，童年充满了这样的恐吓战术——在学校草坪上展示的车祸残留物，D.A.R.E .节目警官关于监狱生活的讲座，以及在我下午所有卡通片之间播出的那个该死的煎蛋广告。
 

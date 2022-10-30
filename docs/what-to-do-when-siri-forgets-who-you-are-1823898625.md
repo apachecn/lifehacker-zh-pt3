@@ -1,6 +1,6 @@
 # 当 Siri 忘记你是谁时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-Siri-forget-who-you-are-1823898625](https://lifehacker.com/what-to-do-when-siri-forgets-who-you-are-1823898625)
+> 原文：<https://lifehacker.com/what-to-do-when-siri-forgets-who-you-are-1823898625>
 
 上周末，当我开车四处转悠时，我向 Siri 询问了回家的路——这是我们经常进行的对话。只是，这一次，Siri 玩懵了:“我不知道你家地址。其实我对你一无所知。”
 

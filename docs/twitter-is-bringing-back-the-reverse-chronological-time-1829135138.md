@@ -1,6 +1,6 @@
 # Twitter 正在带回倒序时间表
 
-> 原文:[https://life hacker . com/Twitter-is-bring-back-the-reverse-chronological-time-1829135138](https://lifehacker.com/twitter-is-bringing-back-the-reverse-chronological-time-1829135138)
+> 原文：<https://lifehacker.com/twitter-is-bringing-back-the-reverse-chronological-time-1829135138>
 
 要么我们进入了另一个现实，Twitter 关心它的用户，要么网上确实发生了一些好的变化:这个社交网站恢复了按时间倒序查看你的时间表的选项。
 

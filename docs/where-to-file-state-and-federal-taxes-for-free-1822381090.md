@@ -1,6 +1,6 @@
 # 在哪里免费申报州税和联邦税
 
-> 原文:[https://life hacker . com/where-to-file-state-and-federal-taxes-for-free-1822381090](https://lifehacker.com/where-to-file-state-and-federal-taxes-for-free-1822381090)
+> 原文：<https://lifehacker.com/where-to-file-state-and-federal-taxes-for-free-1822381090>
 
 这是正式的纳税季节。美国国税局将于 1 月 27 日星期一开始处理个人纳税申报单，这意味着你有几周的时间进行组织。
 

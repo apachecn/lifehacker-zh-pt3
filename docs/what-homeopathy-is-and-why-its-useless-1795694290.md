@@ -1,6 +1,6 @@
 # 什么是“顺势疗法”，为什么它没有用
 
-> 原文:[https://life hacker . com/what-顺势疗法-is-and-why-its-used-1795694290](https://lifehacker.com/what-homeopathy-is-and-why-its-useless-1795694290)
+> 原文：<https://lifehacker.com/what-homeopathy-is-and-why-its-useless-1795694290>
 
 紫锥菊不是顺势疗法。精油、蚊帐或去看脊椎指压治疗师也不是。如果你有一种模糊的感觉，认为顺势疗法是非主流的，我会对它嗤之以鼻，你是对的，但这种怪异比大多数人意识到的还要严重。
 

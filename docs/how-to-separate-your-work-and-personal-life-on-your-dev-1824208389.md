@@ -1,6 +1,6 @@
 # 如何在您的设备上区分工作和个人生活
 
-> 原文:[https://life hacker . com/how-to-separate your-dev-1824208389](https://lifehacker.com/how-to-separate-your-work-and-personal-life-on-your-dev-1824208389)
+> 原文：<https://lifehacker.com/how-to-separate-your-work-and-personal-life-on-your-dev-1824208389>
 
 开始一份新工作既有趣又令人兴奋。如果你幸运的话，你可以把你所做的一切都限制在办公室里。但让我们现实一点:你可能会在家里工作一段时间，在利用公司“你不必亲自出现”政策的同时，要么叙旧，要么啜饮美味的饮料。
 

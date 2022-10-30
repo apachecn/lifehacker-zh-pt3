@@ -1,6 +1,6 @@
 # 你需要一个迷你铸铁锅
 
-> 原文:[https://life hacker . com/you-need-a-mini-cast-iron-pan-1822741657](https://lifehacker.com/you-need-a-mini-cast-iron-pan-1822741657)
+> 原文：<https://lifehacker.com/you-need-a-mini-cast-iron-pan-1822741657>
 
 一个相当流行的烹饪观点是每个人都应该拥有一个铸铁锅 ，但我认为每个人也应该拥有一个*迷你*铸铁锅。像经典的 12 英寸版本一样，mini 有无数的美味用途，从开胃菜到甜点。以下是我的最爱:
 

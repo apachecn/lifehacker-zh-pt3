@@ -1,6 +1,6 @@
 # 帮助你理财的最佳免费在线课程
 
-> 原文:[https://life hacker . com/the-best-free-online-courses-to-help-with-your finance-1790070694](https://lifehacker.com/the-best-free-online-courses-to-help-with-your-finances-1790070694)
+> 原文：<https://lifehacker.com/the-best-free-online-courses-to-help-with-your-finances-1790070694>
 
 你不必一下子 [学会关于金钱的一切](https://lifehacker.com/you-don-t-have-to-learn-everything-about-money-at-once-1788599715) ，但是一门课程可以以合理的节奏教会你很多有用的信息。尤其是如果你 [从未学习过个人金融从](http://lifehacker.com/how-to-manage-your-money-for-those-who-never-learned-g-1703892260#_ga=1.6112179.1860631176.1481668120) 开始，一门课程将帮助你快速掌握基础知识。这里有一些最好的个人理财课程。更好的是，它们都是免费的。
 

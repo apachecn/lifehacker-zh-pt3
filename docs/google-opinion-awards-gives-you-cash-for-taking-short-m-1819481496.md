@@ -1,6 +1,6 @@
 # 谷歌意见奖支付你参加简短的移动调查
 
-> 原文:[https://life hacker . com/Google-opinion-awards-give-you-cash-for-taking-short-m-1819481496](https://lifehacker.com/google-opinion-awards-gives-you-cash-for-taking-short-m-1819481496)
+> 原文：<https://lifehacker.com/google-opinion-awards-gives-you-cash-for-taking-short-m-1819481496>
 
 我觉得当我在大学的时候，我有一种感觉，我会通过填写在线调查赚很多钱。所有这些网站都承诺为我的观点支付数百或数千美元，但事实上只支付了几便士。尽管我知道在我的一生中我已经填写了无数的调查，但我不记得有一次我“兑现”了一个调查账户，即使我做了，我相信那也不会少于几美元。上周，我们在 Lifehacker 这里遇到了谷歌意见奖，我心中的调查狂再次兴奋起来。除了这一次，我在赚钱，我可能会兑现。
 

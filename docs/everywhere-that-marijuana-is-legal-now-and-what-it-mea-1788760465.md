@@ -1,6 +1,6 @@
 # 现在大麻在任何地方都是合法的，这对你意味着什么
 
-> 原文:[https://life hacker . com/everywhere-that-that-that-law-now-and-what-it-mea-1788760465](https://lifehacker.com/everywhere-that-marijuana-is-legal-now-and-what-it-mea-1788760465)
+> 原文：<https://lifehacker.com/everywhere-that-marijuana-is-legal-now-and-what-it-mea-1788760465>
 
 昨晚，在许多其他更重要的投票中，几个州的美国人就是否将娱乐或医疗用途的大麻合法化进行了投票。几乎在所有情况下，投票都通过了。这对你来说意味着什么。
 

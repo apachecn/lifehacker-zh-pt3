@@ -1,6 +1,6 @@
 # 苹果在 iTunes 中恢复了对 iOS 应用程序的支持
 
-> 原文:[https://life hacker . com/apple-brings-back-IOs-app-support-in-itunes-sorta-1819290924](https://lifehacker.com/apple-brings-back-ios-app-support-in-itunes-sorta-1819290924)
+> 原文：<https://lifehacker.com/apple-brings-back-ios-app-support-in-itunes-sorta-1819290924>
 
 苹果最近对其 iTunes 应用的 [12.7 更新](https://lifehacker.com/what-to-do-now-that-you-can-t-sync-ios-apps-using-itune-1809941947) 移除了对 iOS 应用商店和 iOS 应用管理的支持。然而，在用户的强烈抗议后，苹果在 iTunes 12.6.3 中恢复了应用支持。即使你已经升级到 iTunes 12.7，你仍然可以利用 iTunes 12.6.3 的应用友好特性，但如果你坚持使用它，你将不得不错过任何未来的 iTunes 功能。
 

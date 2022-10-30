@@ -1,6 +1,6 @@
 # 如何应对阴茎大小焦虑
 
-> 原文:[https://life hacker . com/how-to-deal-the-阴茎大小焦虑-1827542190](https://lifehacker.com/how-to-deal-with-penis-size-anxiety-1827542190)
+> 原文：<https://lifehacker.com/how-to-deal-with-penis-size-anxiety-1827542190>
 
 很少有话题能像阴茎大小这样引发如此广泛而强烈的焦虑。几乎每个男人——不管他阴茎的实际大小——都担心太小。以下是你需要知道的关于阴茎大小的信息，以及如果你害怕你的阴茎比“正常”的要小该怎么做。
 

@@ -1,6 +1,6 @@
 # 实际上有用的皇家礼仪规则
 
-> 原文:[https://life hacker . com/actually-useful-royal-礼仪-规则-1826146374](https://lifehacker.com/actually-useful-royal-etiquette-rules-1826146374)
+> 原文：<https://lifehacker.com/actually-useful-royal-etiquette-rules-1826146374>
 
 为了准备本周末的皇家婚礼，贴出了一系列礼仪规则，皇室成员和 [婚礼宾客](https://www.thecut.com/2018/05/the-10-most-bizarre-royal-wedding-etiquette-rules.html) 都必须遵守。虽然有些——比如进入一个房间的正确顺序——就像皇室本身一样荒谬而过时，但其他一些对于我们中最不具帝王气质的人来说却是非常正确的。
 

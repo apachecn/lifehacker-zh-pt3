@@ -1,6 +1,6 @@
 # 你可以对自己进行的 10 项简单的时间和精力投资
 
-> 原文:[https://life hacker . com/10-simple-time-and-energy-investments-you-can-make-in-y-1792903275](https://lifehacker.com/10-simple-time-and-energy-investments-you-can-make-in-y-1792903275)
+> 原文：<https://lifehacker.com/10-simple-time-and-energy-investments-you-can-make-in-y-1792903275>
 
 我倾向于认为美好的生活是充满好的投资的生活。如果你利用你的资源(金钱、时间、精力等)。)以一种聪明的方式，他们会给你更多的价值作为回报。
 

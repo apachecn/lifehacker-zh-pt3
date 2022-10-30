@@ -1,6 +1,6 @@
 # 你用过的毛巾有多脏？
 
-> 原文:[https://life hacker . com/how-gross-are-your-used-towels-1826611403](https://lifehacker.com/how-gross-are-your-used-towels-1826611403)
+> 原文：<https://lifehacker.com/how-gross-are-your-used-towels-1826611403>
 
 细菌和你我一样，喜欢浴巾温暖而略带潮湿的怀抱。(嘿，如果你第一次穿上它的时候它不湿润，它*就会变得*湿润。)但这些病菌只是来搂抱的；正常使用浴巾不太可能让你生病。
 

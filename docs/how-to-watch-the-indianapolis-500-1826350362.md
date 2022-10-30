@@ -1,6 +1,6 @@
 # 如何观看印第安纳波利斯 500
 
-> 原文:[https://life hacker . com/how-to-watch-the-Indianapolis-500-1826350362](https://lifehacker.com/how-to-watch-the-indianapolis-500-1826350362)
+> 原文：<https://lifehacker.com/how-to-watch-the-indianapolis-500-1826350362>
 
 印第安纳波利斯 500，以及丹尼卡·帕翠克的退役，将于明天，5 月 27 日举行。比赛报道从东部时间上午 11 点开始，车手正式发动引擎的时间是东部时间下午 12:20。如果你想捕捉所有的高速动作，你有几个不同的选择
 

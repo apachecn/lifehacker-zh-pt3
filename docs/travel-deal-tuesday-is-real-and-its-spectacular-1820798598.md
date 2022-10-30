@@ -1,6 +1,6 @@
 # “周二旅游交易”是真实的，非常壮观
 
-> 原文:[https://life hacker . com/travel-deal-Tuesday-is-real-and-its-壮观-1820798598](https://lifehacker.com/travel-deal-tuesday-is-real-and-its-spectacular-1820798598)
+> 原文：<https://lifehacker.com/travel-deal-tuesday-is-real-and-its-spectacular-1820798598>
 
 在正常情况下， [周二并不是旅游博客 Wisdom 长期以来所说的奇迹般便宜的购票日](https://lifehacker.com/tuesday-isnt-magic-plane-ticket-buying-day-1797738096) 。但是今天不是普通的星期二。 [今天是](https://lifehacker.com/the-best-time-to-buy-a-plane-ticket-is-travel-deal-tues-1820749238) [*旅游交易周二，*](https://lifehacker.com/the-best-time-to-buy-a-plane-ticket-is-travel-deal-tues-1820749238#_ga=2.135972017.1207213418.1511792775-392757988.1502389723) 后网络星期一时期，航空公司倾向于提供重大交易和折扣，根据旅游应用 Hopper 的数据分析。
 

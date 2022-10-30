@@ -1,6 +1,6 @@
 # 要做准确的每月预算，从你想买的东西开始
 
-> 原文:[https://life hacker . com/to-make-accurate-monthly-budgets-start-with-the-things-1818564179](https://lifehacker.com/to-make-accurate-monthly-budgets-start-with-the-things-1818564179)
+> 原文：<https://lifehacker.com/to-make-accurate-monthly-budgets-start-with-the-things-1818564179>
 
 你如何决定每个类别每个月的预算？
 

@@ -1,6 +1,6 @@
 # 腌酸果是你新宠的调味品
 
-> 原文:[https://life hacker . com/腌渍酸果蔓-是你的新宠-调味品-1821105425](https://lifehacker.com/pickled-cranberries-are-your-new-favorite-condiment-1821105425)
+> 原文：<https://lifehacker.com/pickled-cranberries-are-your-new-favorite-condiment-1821105425>
 
 不起眼的、生活在沼泽中的蔓越莓可能是有史以来最未被充分利用的季节性配料。我这么说并没有不尊重蔓越莓酱的意思，但是你可以用这些酸酸的小块做更多的事情，而不仅仅是把它们放在糖水里煮到崩溃。
 

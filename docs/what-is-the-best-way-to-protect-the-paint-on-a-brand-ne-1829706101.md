@@ -1,6 +1,6 @@
 # 保护新车漆面的最好方法是什么？
 
-> 原文:[https://jalopnik . com/什么是保护品牌喷漆的最佳方式-ne-1829706101](https://jalopnik.com/what-is-the-best-way-to-protect-the-paint-on-a-brand-ne-1829706101)
+> 原文：<https://jalopnik.com/what-is-the-best-way-to-protect-the-paint-on-a-brand-ne-1829706101>
 
 作为 Jalopnik 的常驻购车专家和专业购车者，我会收到电子邮件。很多邮件。我决定挑几个问题，试着帮帮大家。本周我们将讨论新车适当的油漆保养，高里程租赁等等。
 

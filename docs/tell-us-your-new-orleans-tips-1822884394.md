@@ -1,6 +1,6 @@
 # 告诉我们你在新奥尔良的建议
 
-> 原文:[https://life hacker . com/tell-us-your-new-Orleans-tips-1822884394](https://lifehacker.com/tell-us-your-new-orleans-tips-1822884394)
+> 原文：<https://lifehacker.com/tell-us-your-new-orleans-tips-1822884394>
 
 让我们直接从新奥尔良 的 [电视比喻页上偷个词牌，摘自记者 A. J. Liebling 的书](http://tvtropes.org/pmwiki/pmwiki.php/UsefulNotes/NewOrleans) [*路易斯安那伯爵*](https://www.goodreads.com/book/show/859198.The_Earl_of_Louisiana) :
 

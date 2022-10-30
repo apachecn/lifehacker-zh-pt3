@@ -1,6 +1,6 @@
 # 让我们现在就结束 GIF/JIF 发音的争论
 
-> 原文:[https://life hacker . com/lets-end-the-gif-jif-innuation-debate-right-now-1796419121](https://lifehacker.com/lets-end-the-gif-jif-pronunciation-debate-right-now-1796419121)
+> 原文：<https://lifehacker.com/lets-end-the-gif-jif-pronunciation-debate-right-now-1796419121>
 
 在过去的八年多里，每周我都会无意中听到这样一句话:“是 GIF，不是 JIF。”"实际上，它是正式的 JIF . "如果论述者在这个问题上受过教育，他们会喋喋不休地支持他们的论点:它是 JIF，因为它的发明者这么说，它就像“长颈鹿；它是 GIF，因为它代表“图形”，就像“礼物”
 

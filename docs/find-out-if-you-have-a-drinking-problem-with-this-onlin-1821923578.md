@@ -1,6 +1,6 @@
 # 用这个在线工具找出你是否有酗酒的问题
 
-> 原文:[https://life hacker . com/find-out-if-you-have-a-a-drinking-this-onlin-1821923578](https://lifehacker.com/find-out-if-you-have-a-drinking-problem-with-this-onlin-1821923578)
+> 原文：<https://lifehacker.com/find-out-if-you-have-a-drinking-problem-with-this-onlin-1821923578>
 
 如果你是一个...热情的饮酒者，你可能想知道社交饮酒在什么时候会成为问题饮酒。但是如果你担心，你不需要成为一个倒下的、昏厥的饮酒者来寻求建议和帮助。
 

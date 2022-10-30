@@ -1,6 +1,6 @@
 # 创伤事件后，考虑心理急救
 
-> 原文:[https://life hacker . com/after-a-traumatic-event-consider-psychological-first-a-1829446189](https://lifehacker.com/after-a-traumatic-event-consider-psychological-first-a-1829446189)
+> 原文：<https://lifehacker.com/after-a-traumatic-event-consider-psychological-first-a-1829446189>
 
 当一些创伤发生时，人们有心理和生理需求。来自拉斯维加斯内华达大学的心理健康专家在去年拉斯维加斯枪击案后自愿提供帮助，他们最近在对话中告诉了什么是好的心理急救。
 

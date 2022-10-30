@@ -1,6 +1,6 @@
 # 告诉我们你的布拉格旅行小贴士
 
-> 原文:[https://life hacker . com/tell-us-your-Prague-travel-tips-1828589770](https://lifehacker.com/tell-us-your-prague-travel-tips-1828589770)
+> 原文：<https://lifehacker.com/tell-us-your-prague-travel-tips-1828589770>
 
 本周,《黑客你的城市》将前往布拉格——卡夫卡的故乡，莫扎特最喜欢的城市，也是《碟中谍》的拍摄地。你会在那里创作出哪些高耸入云的艺术作品？当你创造它们的时候，你会在哪里抓到一个三明治？
 

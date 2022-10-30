@@ -1,6 +1,6 @@
 # 你应该要求带薪病假的科学理由
 
-> 原文:[https://life hacker . com/the-scientific-reason-you-should-demand-payed-病假天数-1826008955](https://lifehacker.com/the-scientific-reason-you-should-demand-paid-sick-days-1826008955)
+> 原文：<https://lifehacker.com/the-scientific-reason-you-should-demand-paid-sick-days-1826008955>
 
 美国公司不知道什么对它有好处——在这种情况下，带薪病假。美国是仅有的三个不要求雇主给带薪病假的工业化国家之一，而雇主经常决定不给带薪病假。截至 2011 年，只有 65%的美国员工带薪病假。
 

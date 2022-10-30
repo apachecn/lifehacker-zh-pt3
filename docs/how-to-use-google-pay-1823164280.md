@@ -1,6 +1,6 @@
 # 如何使用 Google Pay
 
-> 原文:[https://lifehacker.com/how-to-use-google-pay-1823164280](https://lifehacker.com/how-to-use-google-pay-1823164280)
+> 原文：<https://lifehacker.com/how-to-use-google-pay-1823164280>
 
 从 [Apple Pay](https://lifehacker.com/how-to-get-started-with-apples-new-apple-pay-cash-1821168610) 第一次推出到现在已经四年了， [Google 的回应](https://lifehacker.com/google-wallet-gets-new-simpler-app-likely-preparing-f-1729775114) 一直有点乱。现在，该公司终于将其所有不同的应用和服务简化为一个名为 Google Pay 的单一产品，该产品将于今天在美国和英国发布
 

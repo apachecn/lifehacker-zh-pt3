@@ -1,6 +1,6 @@
 # 当心这些银行和投资费用
 
-> 原文:[https://life hacker . com/watch-out-for-these-banking-and-investment-fees-1828158603](https://lifehacker.com/watch-out-for-these-banking-and-investment-fees-1828158603)
+> 原文：<https://lifehacker.com/watch-out-for-these-banking-and-investment-fees-1828158603>
 
 根据美国华尔街网站的一份新报告，美国人一生中的银行和投资费用可能会超过 110 万美元。
 

@@ -1,6 +1,6 @@
 # 如何用屏幕保护器节省几百美元
 
-> 原文:[https://life hacker . com/how-you-can-save a-screen-pr-1821232392](https://lifehacker.com/how-you-can-save-a-few-hundred-dollars-with-a-screen-pr-1821232392)
+> 原文：<https://lifehacker.com/how-you-can-save-a-few-hundred-dollars-with-a-screen-pr-1821232392>
 
 很少有人会购买能真正增加智能手机价值的东西，但有一样东西比任何保险计划都更划算:屏幕保护器。薄薄的一块塑料或玻璃可以保护你的 iPhone X 免受摔成无数碎片的伤害。更好的是，它可以将你的设备的转售价值提高几百美元。
 

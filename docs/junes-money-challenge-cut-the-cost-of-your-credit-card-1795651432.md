@@ -1,6 +1,6 @@
 # 六月的金钱挑战:降低你的信用卡成本
 
-> 原文:[https://life hacker . com/junes-money-challenge-cut-the-cost-of-your-credit-card-1795651432](https://lifehacker.com/junes-money-challenge-cut-the-cost-of-your-credit-card-1795651432)
+> 原文：<https://lifehacker.com/junes-money-challenge-cut-the-cost-of-your-credit-card-1795651432>
 
 有了信用卡利息，你实际上是在还债。这是信用卡公司赚钱的方式。如果你正在偿还任何信用卡债务，这个月，我们要求你打电话要求一个更好的利率。
 

@@ -1,6 +1,6 @@
 # 你必不可少的、不可讨价还价的感恩节菜肴是什么？
 
-> 原文:[https://life hacker . com/what-are-you ' s-must-have-not-negotian-di-1820132739](https://lifehacker.com/what-are-your-must-have-non-negotiable-thanksgiving-di-1820132739)
+> 原文：<https://lifehacker.com/what-are-your-must-have-non-negotiable-thanksgiving-di-1820132739>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周我想和你谈谈感恩节的破事——你知道，那些简单的事情必须摆在桌面上，以免你失去理智。
 

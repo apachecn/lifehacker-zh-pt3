@@ -1,6 +1,6 @@
 # 如何挑选完美的泳镜
 
-> 原文:[https://life hacker . com/how-to-pick-the-perfect-swimming-goggles-1786119542](https://lifehacker.com/how-to-pick-the-perfect-swimming-goggles-1786119542)
+> 原文：<https://lifehacker.com/how-to-pick-the-perfect-swimming-goggles-1786119542>
 
 拥有一副完美的护目镜就像拥有了一种超能力:你可以在水下看得一清二楚，护目镜给人的感觉就像是你自己身体的一部分一样自然。然而，找到完美的一对可能需要一些尝试和错误。当你开始搜索时，以下是你想知道的事情。
 

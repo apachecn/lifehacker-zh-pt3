@@ -1,6 +1,6 @@
 # 蒸汽控制器是我一直在等待的电脑控制器
 
-> 原文:[https://life hacker . com/the-steam-controller-is-the-PC-controller-I-be-wait-1744646981](https://lifehacker.com/the-steam-controller-is-the-pc-controller-ive-been-wait-1744646981)
+> 原文：<https://lifehacker.com/the-steam-controller-is-the-pc-controller-ive-been-wait-1744646981>
 
 我爱我的电脑。我用它来玩游戏，我的客厅里还有一台备用的家庭影院电脑，用来存放我想要的任何东西。我遇到的一个问题是找到一个在沙发上控制我的 HTPC 的好方法。Steam 控制器终于为我解决了这个问题——不仅仅是游戏。
 

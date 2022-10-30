@@ -1,6 +1,6 @@
 # 放松播放列表
 
-> 原文:[https://lifehacker.com/the-relaxation-playlist-1776365688](https://lifehacker.com/the-relaxation-playlist-1776365688)
+> 原文：<https://lifehacker.com/the-relaxation-playlist-1776365688>
 
 当你需要放松时，你想要一些音乐来营造气氛。这个播放列表旨在缓解你的紧张情绪，让你的烦恼烟消云散。
 

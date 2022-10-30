@@ -1,6 +1,6 @@
 # 保持公共 Wi-Fi 网络安全的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-stay-safe-on-public-wi-fi-networks-1791800347](https://lifehacker.com/top-10-ways-to-stay-safe-on-public-wi-fi-networks-1791800347)
+> 原文：<https://lifehacker.com/top-10-ways-to-stay-safe-on-public-wi-fi-networks-1791800347>
 
 免费 Wi-Fi 是一笔意外之财，特别是如果你在图书馆或机场工作，或者如果你只想在手机或笔记本电脑上保存数据。尽管如此，当你出门在外时，你还是得关心安全问题 。以下是如何在任何设备上安全冲浪。
 

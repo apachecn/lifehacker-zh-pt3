@@ -1,6 +1,6 @@
 # 如何升级你的捉人游戏
 
-> 原文:[https://life hacker . com/how-to-upgrade-your-game-of-tag-1819001850](https://lifehacker.com/how-to-upgrade-your-game-of-tag-1819001850)
+> 原文：<https://lifehacker.com/how-to-upgrade-your-game-of-tag-1819001850>
 
 经典的追逐游戏“捉人游戏”现在仍然和过去一样激动人心。如果你有一群人和一个可以奔跑和尖叫的开放空间，这里有一些基本游戏的变体。尝试一下。就是你了。
 

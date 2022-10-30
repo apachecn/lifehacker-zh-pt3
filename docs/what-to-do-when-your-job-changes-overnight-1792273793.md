@@ -1,6 +1,6 @@
 # 当你的工作一夜之间发生变化时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-when-your-job-changes-night-1792273793](https://lifehacker.com/what-to-do-when-your-job-changes-overnight-1792273793)
+> 原文：<https://lifehacker.com/what-to-do-when-your-job-changes-overnight-1792273793>
 
 你在工作中处于最佳状态，一切都感觉正常——然后突然，你发现你的职责清单发生了巨大的变化。我知道这很不和谐。
 

@@ -1,6 +1,6 @@
 # 用眼罩将转发从你的 Twitter 时间表中移除
 
-> 原文:[https://life hacker . com/remove-retweets-from-your-Twitter-timeline-with-blind fo-1824060822](https://lifehacker.com/remove-retweets-from-your-twitter-timeline-with-blindfo-1824060822)
+> 原文：<https://lifehacker.com/remove-retweets-from-your-twitter-timeline-with-blindfo-1824060822>
 
 在其 4 月刊中，一位《大西洋月刊》 [的作者认为“转发是垃圾”](https://www.theatlantic.com/magazine/archive/2018/04/the-case-against-retweets/554078/) 过去，如果你想重复别人在平台上说过的话，你必须创建一条全新的推文，并在前面添加一个“RT ”,而 retweet 按钮的添加使它成为可能，因此人们经常会在没有完全思考这些陈述的情况下分享他人的想法。现在有一种新的工具可以让这一切发生，叫做。
 

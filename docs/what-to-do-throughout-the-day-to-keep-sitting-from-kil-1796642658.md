@@ -1,6 +1,6 @@
 # 整天做什么来避免坐着“杀死”你
 
-> 原文:[https://life hacker . com/1796642658](https://lifehacker.com/what-to-do-throughout-the-day-to-keep-sitting-from-kil-1796642658)
+> 原文：<https://lifehacker.com/what-to-do-throughout-the-day-to-keep-sitting-from-kil-1796642658>
 
 我们都听说过一个坏消息:坐着会杀死你的。这可能有点夸张，毕竟，我们总有一天会死去。但是我们喜欢坐在椅子上的生活方式并没有帮助我们活得更久，这是肯定的。它与从心血管疾病到二型糖尿病甚至癌症的一切都有关联。
 

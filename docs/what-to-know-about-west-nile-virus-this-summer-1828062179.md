@@ -1,6 +1,6 @@
 # 今年夏天应该了解哪些西尼罗河病毒
 
-> 原文:[https://life hacker . com/what-to-know-about-west-Nile-virus-this-summer-1828062179](https://lifehacker.com/what-to-know-about-west-nile-virus-this-summer-1828062179)
+> 原文：<https://lifehacker.com/what-to-know-about-west-nile-virus-this-summer-1828062179>
 
 西尼罗河病毒每年夏季和秋季都有爆发的时候，最近几周，许多州开始报告本季的首例人类病例。关于这种由蚊子传播的疾病，以下是需要了解的内容。
 

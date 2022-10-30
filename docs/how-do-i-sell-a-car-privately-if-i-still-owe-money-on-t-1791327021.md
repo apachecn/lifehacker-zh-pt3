@@ -1,6 +1,6 @@
 # 贷款还欠钱我怎么私下卖车？
 
-> 原文:[https://jalopnik . com/how-do-I-sell-a-car-private-if-I-still-欠钱-on-t-1791327021](https://jalopnik.com/how-do-i-sell-a-car-privately-if-i-still-owe-money-on-t-1791327021)
+> 原文：<https://jalopnik.com/how-do-i-sell-a-car-privately-if-i-still-owe-money-on-t-1791327021>
 
 你通常会通过私下出售而不是卖给经销商来获得更多，但如果你的贷款还有余额，交易就会变得复杂。只要做一点准备，并与买家进行清晰的沟通，你就能成功完成这些额外的步骤。
 

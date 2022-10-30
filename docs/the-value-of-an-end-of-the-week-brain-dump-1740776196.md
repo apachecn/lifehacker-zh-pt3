@@ -1,6 +1,6 @@
 # 周末“头脑风暴”的价值
 
-> 原文:[https://life hacker . com/the-value-of-an-end-of-week-brain-dump-1740776196](https://lifehacker.com/the-value-of-an-end-of-the-week-brain-dump-1740776196)
+> 原文：<https://lifehacker.com/the-value-of-an-end-of-the-week-brain-dump-1740776196>
 
 在一个慵懒的周五下午，我最喜欢做的一件事(我应该在工作，但是我已经提前发了几篇帖子，我的思绪有点乱)是做一次“大脑倾倒”
 

@@ -1,6 +1,6 @@
 # 到目前为止，灵活性挑战进展如何？
 
-> 原文:[https://life hacker . com/hows-the-flexibility-challenge-going-so-far-1823545554](https://lifehacker.com/hows-the-flexibility-challenge-going-so-far-1823545554)
+> 原文：<https://lifehacker.com/hows-the-flexibility-challenge-going-so-far-1823545554>
 
 我们刚刚进入三月健康挑战赛e，锻炼我们的灵活性。这是你的签到线程:进展如何？
 

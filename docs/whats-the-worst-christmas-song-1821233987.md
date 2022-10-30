@@ -1,6 +1,6 @@
 # 最难听的圣诞歌是什么？
 
-> 原文:[https://life hacker . com/whats-the-worst-Christmas-song-1821233987](https://lifehacker.com/whats-the-worst-christmas-song-1821233987)
+> 原文：<https://lifehacker.com/whats-the-worst-christmas-song-1821233987>
 
 最难听的圣诞歌是什么？我们问了我们的脸书粉丝 ，800 多人回答了。各种各样的歌曲都有了名字，比如《我看见三艘船》、《白色圣诞节》、《我看见妈妈亲吻圣诞老人》、《友谊地久天长》、《花栗鼠之歌》和《曼海姆压路机》等。就连甲壳虫乐队也受到了打击。但以下是排名最高的:
 

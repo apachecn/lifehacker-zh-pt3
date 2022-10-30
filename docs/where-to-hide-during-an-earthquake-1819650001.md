@@ -1,6 +1,6 @@
 # 地震时躲到哪里
 
-> 原文:[https://life hacker . com/1819650001](https://lifehacker.com/where-to-hide-during-an-earthquake-1819650001)
+> 原文：<https://lifehacker.com/where-to-hide-during-an-earthquake-1819650001>
 
 地震是大自然更加暴力的力量展示，但是你仍然可以做一些事情来保护你自己和你的家人。当你感觉到地面在晃动时，遵循这些规则。
 

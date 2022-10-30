@@ -1,6 +1,6 @@
 # 食物过敏如何在世界各地安全饮食
 
-> 原文:[https://life hacker . com/how-to-eat-around-the-word-safe-with-food-allergies-1821096650](https://lifehacker.com/how-to-eat-around-the-word-safely-with-food-allergies-1821096650)
+> 原文：<https://lifehacker.com/how-to-eat-around-the-word-safely-with-food-allergies-1821096650>
 
 看世界是一种启发性的经历，但如果你对坚果、麸质、大豆、乳糖、贝类和其他食物过敏，这也可能是一种危险的经历。不过，这并不妨碍你。这里有一些小贴士可以帮助你安全地旅行和饮食。
 

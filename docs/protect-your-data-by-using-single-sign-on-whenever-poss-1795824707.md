@@ -1,6 +1,6 @@
 # 尽可能使用单点登录来保护您的数据
 
-> 原文:[https://life hacker . com/protect-your-data-by-using-single sign-on-anywhere-poss-1795824707](https://lifehacker.com/protect-your-data-by-using-single-sign-on-whenever-poss-1795824707)
+> 原文：<https://lifehacker.com/protect-your-data-by-using-single-sign-on-whenever-poss-1795824707>
 
 没有一家公司，无论是初创公司还是大型企业，拥有完美的安全系统。Chipotle 的支付系统遭到黑客攻击，OneLogin 遭遇数据泄露， [甚至谷歌](http://gizmodo.com/a-huge-and-dangerously-convincing-google-docs-phishin-1794888973) 也遭遇了严重的网络钓鱼攻击，导致数千个账户从一份共享文档中泄露。换句话说，我对向没有安全记录的公司提供任何信息持谨慎态度。
 

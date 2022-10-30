@@ -1,6 +1,6 @@
 # 赶上流媒体单口相声，从纳内特到喜剧阵容
 
-> 原文:[https://www . av club . com/catch-up-with-streaming-stand-up-from-nanette-to-the-c-1827370392](https://www.avclub.com/catch-up-with-streaming-stand-up-from-nanette-to-the-c-1827370392)
+> 原文：<https://www.avclub.com/catch-up-with-streaming-stand-up-from-nanette-to-the-c-1827370392>
 
 啊，夏天——一年中除了电视之外最热的时候。至少，直到网飞设定了到 2018 年底发行 1000 张原创专辑的目标。但是不要害怕:影音俱乐部为那些在内容海洋中漂流的人提供救生圈，从最好的脚本和非脚本系列开始。接下来是在洪水中脱颖而出的喜剧特辑综述。这绝不是一个全面的列表——网飞似乎有意让这几乎不可能——但每一个特别节目，无论是 15 分钟还是 60 分钟，都值得你越来越宝贵的观看时间。
 

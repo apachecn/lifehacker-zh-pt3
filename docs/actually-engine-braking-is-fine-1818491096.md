@@ -1,6 +1,6 @@
 # 实际上，发动机制动是好的
 
-> 原文:[https://jalopnik . com/actually-engine-braking-is-fine-1818491096](https://jalopnik.com/actually-engine-braking-is-fine-1818491096)
+> 原文：<https://jalopnik.com/actually-engine-braking-is-fine-1818491096>
 
 "手动变速器的发动机制动不好吗？"你可以在午餐时问你不感兴趣的朋友。好了， [工程讲解](http://jalopnik.com/tag/engineering-explained) 为你解答！在他的最新视频中，杰森·芬斯克不仅讲述了什么是引擎制动，还讲述了它是否对你的汽车有害。
 

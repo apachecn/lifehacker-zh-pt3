@@ -1,6 +1,6 @@
 # 三种成分的欢乐时光:绝对复古的蚱蜢
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the declarative-retro-grasshoppe-1818977727](https://lifehacker.com/3-ingredient-happy-hour-the-decidedly-retro-grasshoppe-1818977727)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-decidedly-retro-grasshoppe-1818977727>
 
 朋友们，周五快乐，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天，我们用一个明显俗气的产品来结束复古周:甜绿蚱蜢。
 

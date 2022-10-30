@@ -1,6 +1,6 @@
 # 你最好的数据隐私技巧是什么？
 
-> 原文:[https://life hacker . com/what-are-your-best-data-privacy-tricks-1824281675](https://lifehacker.com/what-are-your-best-data-privacy-tricks-1824281675)
+> 原文：<https://lifehacker.com/what-are-your-best-data-privacy-tricks-1824281675>
 
 过去几周对数据隐私来说是巨大的——感谢像 [【脸书】](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) 和 [Grindr](https://gizmodo.com/grindr-shares-users-hiv-statuses-with-third-parties-r-1824259633) 这样的公司解决了他们的问题，像 [苹果](https://gizmodo.com/tim-cook-takes-his-turn-to-dunk-on-facebook-backing-da-1824052120) 这样的公司试图 [推动这个话题更接近](https://lifehacker.com/how-to-use-the-coolest-new-features-in-ios-11-3-1824186946#_ga=2.40506338.179789982.1522675393-2116083491.1521480580) 他们的客户的脑海中，以及更大的监管措施，如欧盟即将执行其[【GDPR](https://gizmodo.com/facebook-conveniently-declares-privacy-principles-ahead-1822516860)。
 

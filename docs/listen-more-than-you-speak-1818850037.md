@@ -1,6 +1,6 @@
 # 多听少说
 
-> 原文:[https://life hacker . com/listen-than-you-speak-1818850037](https://lifehacker.com/listen-more-than-you-speak-1818850037)
+> 原文：<https://lifehacker.com/listen-more-than-you-speak-1818850037>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations#_ga=2.170929957.440406047.1499703745-27973805.1434581949) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 

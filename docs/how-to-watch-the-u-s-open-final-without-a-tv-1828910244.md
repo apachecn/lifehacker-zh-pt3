@@ -1,6 +1,6 @@
 # 没有电视怎么看美网女单决赛
 
-> 原文:[https://life hacker . com/how-to-watch-the-u-s-open-final-without-a-TV-1828910244](https://lifehacker.com/how-to-watch-the-u-s-open-final-without-a-tv-1828910244)
+> 原文：<https://lifehacker.com/how-to-watch-the-u-s-open-final-without-a-tv-1828910244>
 
 在今天的美国网球公开赛女单决赛中，小威廉姆斯将迎战大阪直美。这场比赛将于太平洋时间下午 4 点【T2 时间】/ 下午 1 点【T4 时间】正式开始，并将在 ESPN 播出。
 

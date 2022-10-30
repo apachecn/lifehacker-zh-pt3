@@ -1,6 +1,6 @@
 # 忘记蛇果:这里是你应该在任何事情上使用的苹果
 
-> 原文:[https://life hacker . com/forget-red-delicious-here-the-apple-you-should-us-1732697809](https://lifehacker.com/forget-red-delicious-here-are-the-apples-you-should-us-1732697809)
+> 原文：<https://lifehacker.com/forget-red-delicious-here-are-the-apples-you-should-us-1732697809>
 
 乍一看，苹果似乎很无聊(*这就是导致人类被逐出天堂的水果？)但是一个非常脆、甜而酸的苹果，刚从树上摘下来，是一个美丽的东西——但是每个品种都有它的优点和用途。*
 

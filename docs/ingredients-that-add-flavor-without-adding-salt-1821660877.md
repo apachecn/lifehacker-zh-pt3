@@ -1,6 +1,6 @@
 # 不用加盐就能增加味道的配料
 
-> 原文:[https://life hacker . com/ingredients-that-add-flavor-not-adding-salt-1821660877](https://lifehacker.com/ingredients-that-add-flavor-without-adding-salt-1821660877)
+> 原文：<https://lifehacker.com/ingredients-that-add-flavor-without-adding-salt-1821660877>
 
 适应低钠饮食真的很难。你最好的选择是自己做饭，因为从新鲜的原料开始可以让你最大限度地控制你的毫克数。但是即使你的味蕾会调整，事实仍然是:减少钠会减少味道。
 

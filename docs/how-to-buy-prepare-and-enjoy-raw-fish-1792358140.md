@@ -1,6 +1,6 @@
 # 如何购买、准备和享用生鱼
 
-> 原文:[https://life hacker . com/how-to-buy-prepare-and-enjoy-raw-fish-1792358140](https://lifehacker.com/how-to-buy-prepare-and-enjoy-raw-fish-1792358140)
+> 原文：<https://lifehacker.com/how-to-buy-prepare-and-enjoy-raw-fish-1792358140>
 
 生鱼片、gravlax 和 crudo 等生鱼可能看起来像是你应该只信任专业人士的东西，但是，如果你知道你的东西，你实际上可以在自己家里购买、准备和享受这些生鱼。
 

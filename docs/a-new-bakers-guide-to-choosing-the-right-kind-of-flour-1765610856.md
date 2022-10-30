@@ -1,6 +1,6 @@
 # 选择正确面粉的新面包师指南
 
-> 原文:[https://life hacker . com/a-new-bakers-guide-to-choose-the-right-kind-of-flour-1765610856](https://lifehacker.com/a-new-bakers-guide-to-choosing-the-right-kind-of-flour-1765610856)
+> 原文：<https://lifehacker.com/a-new-bakers-guide-to-choosing-the-right-kind-of-flour-1765610856>
 
 面粉是那些看似简单的成分之一，但仔细观察，它可能是完全神秘的。这种看起来无害的粉末比你想象的要多得多，即使它出现在几乎每个食谱中，也很难知道该买哪种最好的糕点、面包和蛋糕。让我们从最基本的开始，来检查一下这个名副其实的花束。
 

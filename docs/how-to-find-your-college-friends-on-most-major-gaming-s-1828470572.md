@@ -1,6 +1,6 @@
 # 如何在大多数主流游戏服务上找到你的大学朋友
 
-> 原文:[https://life hacker . com/how-to-find-your-college-friends-on-most-major-gaming-s-1828470572](https://lifehacker.com/how-to-find-your-college-friends-on-most-major-gaming-s-1828470572)
+> 原文：<https://lifehacker.com/how-to-find-your-college-friends-on-most-major-gaming-s-1828470572>
 
 当我还在大学的时候，和你的朋友“玩游戏”意味着在公共区域跟踪单一的 PlayStation 2 直到 Madden 玩家放弃它，和那个把他的 Xbox(和 [大屁股公爵](https://www.microsoft.com/en-us/p/hyperkin-duke-wired-controller/8xm0xhx3mk23) )拖到他的宿舍的家伙交朋友，或者加入通过以太网连接的四台 Xbox 一起参加每周一次的 Halo 死亡比赛的团队。
 

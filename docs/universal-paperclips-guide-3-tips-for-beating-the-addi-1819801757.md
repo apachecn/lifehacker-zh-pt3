@@ -1,6 +1,6 @@
 # 通用回形针指南:击败令人上瘾的新点击游戏的 3 个技巧
 
-> 原文:[https://life hacker . com/universal-paper clips-guide-3-tips-for-beating-the-addi-1819801757](https://lifehacker.com/universal-paperclips-guide-3-tips-for-beating-the-addi-1819801757)
+> 原文：<https://lifehacker.com/universal-paperclips-guide-3-tips-for-beating-the-addi-1819801757>
 
 今年最好的视频游戏可能就是 [通用回形针](http://www.decisionproblem.com/paperclips/index2.html) ，一款基于浏览器的点击器，探索未经检查的 [人工智能](https://lifehacker.com/what-makes-an-artificial-intelligence-racist-and-sexist-1796990621) 的危险。这有点像 [FarmVille](https://lifehacker.com/how-the-sunk-cost-fallacy-feeds-farmville-addiction-and-30820219) ，但是你不是在种菜，而是在做回形针——而且(**剧透提醒**)你可能最终会在这个过程中毁灭世界。
 

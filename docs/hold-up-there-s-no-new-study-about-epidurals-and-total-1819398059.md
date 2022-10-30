@@ -1,6 +1,6 @@
 # 等等，没有关于硬膜外分娩和总产程的新研究
 
-> 原文:[https://life hacker . com/hold-up-there-no-new-study-about-epidural-and-total-1819398059](https://lifehacker.com/hold-up-there-s-no-new-study-about-epidurals-and-total-1819398059)
+> 原文：<https://lifehacker.com/hold-up-there-s-no-new-study-about-epidurals-and-total-1819398059>
 
 硬膜外麻醉会延长产程吗？阅读本周的头条新闻，你会认为我们终于一劳永逸地回答了这个问题——硬膜外麻醉被证明没有效果。但是这项研究实际上问的是，如果你已经进行了硬膜外麻醉，并在你推出婴儿时关闭它，会发生什么。
 

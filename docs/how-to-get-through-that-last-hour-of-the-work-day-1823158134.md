@@ -1,6 +1,6 @@
 # 如何度过工作日最后一个小时
 
-> 原文:[https://life hacker . com/how-to-get-through the last-hour-of-work-day-1823158134](https://lifehacker.com/how-to-get-through-that-last-hour-of-the-work-day-1823158134)
+> 原文：<https://lifehacker.com/how-to-get-through-that-last-hour-of-the-work-day-1823158134>
 
 对我来说，工作日有一个可预测的弧线:那些充满可能性和生产力的最初几个小时；午餐；眼神呆滞/昏迷；一两个小时的工作完成后的复兴；然后是最后一个小时，尽量不要点击 [奥运选手与猫冰壶](https://www.youtube.com/watch?v=evNi4_2qHPY) 。
 

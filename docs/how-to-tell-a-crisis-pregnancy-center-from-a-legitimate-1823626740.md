@@ -1,6 +1,6 @@
 # 如何区分“危机妊娠中心”和合法的堕胎诊所
 
-> 原文:[https://life hacker . com/how-to-tell-a-crisis-inflation-center-from-a-legal-1823626740](https://lifehacker.com/how-to-tell-a-crisis-pregnancy-center-from-a-legitimate-1823626740)
+> 原文：<https://lifehacker.com/how-to-tell-a-crisis-pregnancy-center-from-a-legitimate-1823626740>
 
 上周，一名破坏者，可能是一名倡导生命权的活动人士，在一家妇女健康诊所前喷涂了“小黑仔”。有什么问题吗？在一个值得《东方三博士的礼物》的情节转折中，事实证明这家诊所实际上是一个“妊娠危机中心”，或者是一个致力于说服妇女*放弃堕胎的反堕胎手术。中国共产党看起来非常像一个合法的堕胎提供者，甚至成功地愚弄了它所谓的盟友。*
 

@@ -1,6 +1,6 @@
 # 土耳其小跑投掷，第 4 周:增强你的力量
 
-> 原文:[https://life hacker . com/turkey-trot-throwdown-week-4-boost-your-strength-1788248631](https://lifehacker.com/turkey-trot-throwdown-week-4-boost-your-strength-1788248631)
+> 原文：<https://lifehacker.com/turkey-trot-throwdown-week-4-boost-your-strength-1788248631>
 
 厌倦逃跑了吗？我们希望你不是，但不管怎样，这是你的新挑战。我们将进行一项与跑步*而非*相关的小型力量训练。如果你还没有适应寒冷天气的，你甚至可以在室内锻炼。
 

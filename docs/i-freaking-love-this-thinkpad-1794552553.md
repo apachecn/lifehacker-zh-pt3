@@ -1,6 +1,6 @@
 # 我超爱这台 ThinkPad
 
-> 原文:[https://gizmodo . com/I-freaking-love-think pad-1794552553](https://gizmodo.com/i-freaking-love-this-thinkpad-1794552553)
+> 原文：<https://gizmodo.com/i-freaking-love-this-thinkpad-1794552553>
 
 我正拿着联想的 ThinkPad X1 Carbon 在办公室里走来走去，我的同事发现了这个标志。“那是我的第一台电脑，”她满怀深情地说道。ThinkPad 是很多人的第一台电脑。早期的 ThinkPads 像坦克一样制造，运行起来像陀螺一样平稳。如今，这个十年前被 IBM 卖给联想的品牌已经没有了它 90 年代的声望，但它仍然是一个主力——它的第五代 [stellar](http://gizmodo.com/lenovo-thinkpad-x1-carbon-review-what-the-future-of-la-5935723) Carbon 系列是对你曾经喜欢的那个笨重的黑色机器的一切的巧妙改进。
 

@@ -1,6 +1,6 @@
 # 谷歌的备份和同步服务可以保护你的其他数据
 
-> 原文:[https://life hacker . com/Google-s-backup-sync-service-is-here-to-secure-the-re-1796890302](https://lifehacker.com/google-s-backup-sync-service-is-here-to-secure-the-re-1796890302)
+> 原文：<https://lifehacker.com/google-s-backup-sync-service-is-here-to-secure-the-re-1796890302>
 
 如果你没有准备好处理个人数据的意外丢失，谷歌会帮你搞定。It [终于发布了它的备份&同步服务](https://www.blog.google/products/photos/introducing-backup-and-sync-google-photos-and-google-drive/) ，它可以让你将文件从电脑上的任何文件夹或连接的驱动器上传并同步到 Google Drive，而无需四处移动。它不会取代像 Crashplan 这样的全面备份服务，但如果你没有真正的备份计划，它肯定是值得考虑的。
 

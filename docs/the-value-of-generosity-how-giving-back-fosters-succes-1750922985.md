@@ -1,6 +1,6 @@
 # 慷慨的价值:回馈如何促进更多的成功
 
-> 原文:[https://life hacker . com/the-value-of-course-how-feeding-back-fosters-success-1750922985](https://lifehacker.com/the-value-of-generosity-how-giving-back-fosters-succes-1750922985)
+> 原文：<https://lifehacker.com/the-value-of-generosity-how-giving-back-fosters-succes-1750922985>
 
 有时候获得成功的最好方法是先帮助别人。我们能做的帮助别人的小事——帮朋友一个忙，或者在某人运气不好时帮他买单——往往会以积极的方式回归。你自己的慷慨会促进成功。
 

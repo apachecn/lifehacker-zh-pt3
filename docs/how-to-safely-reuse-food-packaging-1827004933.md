@@ -1,6 +1,6 @@
 # 如何安全地重复使用食品包装
 
-> 原文:[https://life hacker . com/how-to-safety-reuse-food-packaging-1827004933](https://lifehacker.com/how-to-safely-reuse-food-packaging-1827004933)
+> 原文：<https://lifehacker.com/how-to-safely-reuse-food-packaging-1827004933>
 
 浪费的包装是资本主义社会不可避免的一部分，但是，由于各种原因，大多数人不能仅仅根据包含它的材料来改变他们的食物选择。这就是我尽可能重复使用食品包装的原因:当然，它减少了浪费，但我也可以免费储存容器。
 

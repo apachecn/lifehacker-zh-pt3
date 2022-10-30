@@ -1,6 +1,6 @@
 # 不要假装你是一个早起的人
 
-> 原文:[https://life hacker . com/stop-appearing-you-a-morning-person-1821808015](https://lifehacker.com/stop-pretending-youre-a-morning-person-1821808015)
+> 原文：<https://lifehacker.com/stop-pretending-youre-a-morning-person-1821808015>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑正在为我们的浴室添加声音设计，尽情地放松，并重新思考我们对家庭度假的期望。
 

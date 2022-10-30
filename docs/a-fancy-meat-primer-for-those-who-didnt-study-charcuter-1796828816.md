@@ -1,6 +1,6 @@
 # 对于那些在高中没有学过屠宰学的人来说，这是一本很棒的肉类入门书
 
-> 原文:[https://life hacker . com/a-fancy-meat-primer-for 那些不学习的人-charcuter-1796828816](https://lifehacker.com/a-fancy-meat-primer-for-those-who-didnt-study-charcuter-1796828816)
+> 原文：<https://lifehacker.com/a-fancy-meat-primer-for-those-who-didnt-study-charcuter-1796828816>
 
 在大卫·布鲁克斯最近的专栏文章《 [我们是如何毁掉美国](https://www.nytimes.com/2017/07/11/opinion/how-we-are-ruining-america.html?_r=1) 》中，Brooks 讲述了一个小故事，生动地说明了美国学校系统在熟食方面还有多远要走:
 

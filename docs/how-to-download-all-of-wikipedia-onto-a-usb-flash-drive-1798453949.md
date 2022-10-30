@@ -1,6 +1,6 @@
 # 如何将所有维基百科下载到 u 盘上
 
-> 原文:[https://life hacker . com/how-to-download-all-of-the-Wikipedia-on-a-USB-flash-drive-1798453949](https://lifehacker.com/how-to-download-all-of-wikipedia-onto-a-usb-flash-drive-1798453949)
+> 原文：<https://lifehacker.com/how-to-download-all-of-wikipedia-onto-a-usb-flash-drive-1798453949>
 
 维基百科可能并不总是最准确的信息来源，但它是我经常感谢的东西之一。通过完整下载，您可以确保该网站始终为您服务，即使您没有网络连接。
 

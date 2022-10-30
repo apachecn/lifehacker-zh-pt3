@@ -1,6 +1,6 @@
 # 如何加入健身房而不被敲竹杠
 
-> 原文:[https://life hacker . com/how-to-join-a-gym-without-get-rip-1750883238](https://lifehacker.com/how-to-join-a-gym-without-getting-ripped-off-1750883238)
+> 原文：<https://lifehacker.com/how-to-join-a-gym-without-getting-ripped-off-1750883238>
 
 健身房会员资格可能是一件痛苦的事情。理论上，加入健身房应该像 [买车](http://lifehacker.com/the-best-techniques-for-negotiating-with-car-dealership-1649443251) 或买房一样:研究，货比三家，问正确的问题。但是许多第一次尝试的人被骗支付了比他们应该支付的多得多的钱。以下是如何避免为健身房会员支付过高费用的方法。
 

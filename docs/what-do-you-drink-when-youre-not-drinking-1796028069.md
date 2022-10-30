@@ -1,6 +1,6 @@
 # 你不喝酒的时候喝什么？
 
-> 原文:[https://life hacker . com/what-do-you-drink-when-you-not-drinking-1796028069](https://lifehacker.com/what-do-you-drink-when-youre-not-drinking-1796028069)
+> 原文：<https://lifehacker.com/what-do-you-drink-when-youre-not-drinking-1796028069>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，每周一次的公开讨论，在这里你可以分享你所有关于食物的想法、建议、食谱和观点。本周我想关注一些可以啜饮的东西，特别是当你戒酒时你会啜饮的东西。
 

@@ -1,6 +1,6 @@
 # 你的“匿名”浏览数据不是很匿名
 
-> 原文:[https://life hacker . com/your-anonymous-browsing-data-is-not-very-anonymous-1797490806](https://lifehacker.com/your-anonymous-browsing-data-is-not-very-anonymous-1797490806)
+> 原文：<https://lifehacker.com/your-anonymous-browsing-data-is-not-very-anonymous-1797490806>
 
 即使你通过打开一个新的匿名窗口来掩盖你的踪迹，你的网页浏览历史可能并不像你想象的那样隐私。关于你在网上做了什么的信息，甚至每个网址，都可能被任何想要的人在网上买到。虽然在大多数情况下，人们出于营销原因进行购买，但他们也可能选择恶意使用他们新发现的知识。
 

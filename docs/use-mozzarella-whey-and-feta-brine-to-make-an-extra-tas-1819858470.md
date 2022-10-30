@@ -1,6 +1,6 @@
 # 使用马苏里拉乳清和羊乳酪盐水制作一批额外美味的米饭
 
-> 原文:[https://life hacker . com/use-mozzarella-wheez-and-feta-brine-to-make-an-extra-tas-1819858470](https://lifehacker.com/use-mozzarella-whey-and-feta-brine-to-make-an-extra-tas-1819858470)
+> 原文：<https://lifehacker.com/use-mozzarella-whey-and-feta-brine-to-make-an-extra-tas-1819858470>
 
 如果你喜欢新鲜的马苏里拉奶酪或羊乳酪，毫无疑问你会发现自己有一两个装着你珍贵奶酪的有点浑浊的水的容器。你可以把这种略带咸味的奶油状液体倒入下水道，或者把它作为美味的烹饪液体。
 

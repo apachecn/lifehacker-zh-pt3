@@ -1,6 +1,6 @@
 # 没人想要你自制的番茄酱
 
-> 原文:[https://life hacker . com/nobody-want-your-自制番茄酱-1827140540](https://lifehacker.com/nobody-wants-your-homemade-ketchup-1827140540)
+> 原文：<https://lifehacker.com/nobody-wants-your-homemade-ketchup-1827140540>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周，我利用我的平台来谈论一些我认为是烧烤季节的祸害的东西——自制的，或者其他花哨的番茄酱。
 

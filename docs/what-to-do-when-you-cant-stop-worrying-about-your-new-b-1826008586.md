@@ -1,6 +1,6 @@
 # 当你无法停止担心你的新宝宝时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-what-what-you-cannot-stop-your-new-b-1826008586](https://lifehacker.com/what-to-do-when-you-cant-stop-worrying-about-your-new-b-1826008586)
+> 原文：<https://lifehacker.com/what-to-do-when-you-cant-stop-worrying-about-your-new-b-1826008586>
 
 几乎所有的父母都担心他们新生儿的健康和安全。事实上，我们被进化地设定为扫描我们的环境，寻找对我们现在负责保护的小生命的任何潜在威胁。你可能会担心你的孩子会在夜间停止呼吸。一辆车可能会跳到人行道上，撞倒你和你的婴儿车。或者，甚至，你可能会做一些伤害你的新生儿的事情，比如在那些尴尬的新生儿海绵浴中淹死她。
 

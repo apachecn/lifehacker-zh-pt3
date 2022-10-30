@@ -1,6 +1,6 @@
 # 举重几组就够了？
 
-> 原文:[https://life hacker . com/how-多少-举重-套-够了-1828875603](https://lifehacker.com/how-many-weightlifting-sets-is-enough-1828875603)
+> 原文：<https://lifehacker.com/how-many-weightlifting-sets-is-enough-1828875603>
 
 你需要举起多少重量才能变得更强壮？一项新的研究表明，这并没有你想象的那么多——但就肌肉尺寸而言，越多越好。
 

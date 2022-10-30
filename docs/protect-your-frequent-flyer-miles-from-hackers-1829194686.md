@@ -1,6 +1,6 @@
 # 保护您的飞行常客里程免受黑客攻击
 
-> 原文:[https://life hacker . com/protect-your-frequent-flyer-miles from hacker-1829194686](https://lifehacker.com/protect-your-frequent-flyer-miles-from-hackers-1829194686)
+> 原文：<https://lifehacker.com/protect-your-frequent-flyer-miles-from-hackers-1829194686>
 
 根据比较各种科技产品的网站 [Comparitech](https://www.comparitech.com/blog/information-security/how-much-are-stolen-frequent-flyer-miles-worth-on-the-dark-web/) 的一份新报告，飞行常客里程是黑暗网络上的热门商品。
 

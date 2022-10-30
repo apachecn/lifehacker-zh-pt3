@@ -1,6 +1,6 @@
 # 如何正确使用浴室防滑垫
 
-> 原文:[https://life hacker . com/how-to-right-use-a-bath-mat-1798488301](https://lifehacker.com/how-to-properly-use-a-bath-mat-1798488301)
+> 原文：<https://lifehacker.com/how-to-properly-use-a-bath-mat-1798488301>
 
 哦，伟大的浴垫，使用你的适当礼仪是什么？我们问了你一些很棒的人 ，这是你告诉我们的。
 

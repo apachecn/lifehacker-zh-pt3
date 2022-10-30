@@ -1,6 +1,6 @@
 # 老虎自拍必须停止
 
-> 原文:[https://life hacker . com/tiger-self ies-have-to-stop-1797479925](https://lifehacker.com/tiger-selfies-have-to-stop-1797479925)
+> 原文：<https://lifehacker.com/tiger-selfies-have-to-stop-1797479925>
 
 为了纪念国际老虎日 ，善待动物组织向 Tinder 的创始人兼主席肖恩·拉德(Sean Rad)发送了一封公开信，要求他禁止在服务上发布老虎照片。这实际上是一个很棒的想法——不仅仅是因为它让你看起来像一个工具。
 

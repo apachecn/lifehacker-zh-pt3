@@ -1,6 +1,6 @@
 # 如何知道什么时候该辞掉你喜欢的工作
 
-> 原文:[https://life hacker . com/how-to-know-when-the-time to-quit-a-job-you-like-1796843063](https://lifehacker.com/how-to-know-when-its-time-to-quit-a-job-you-like-1796843063)
+> 原文：<https://lifehacker.com/how-to-know-when-its-time-to-quit-a-job-you-like-1796843063>
 
 如果你从事的工作至少在某个方面很糟糕，那么至少有一个好处:更容易知道你想辞职。但是如果你喜欢你的团队，有好的福利，体面的薪水，和一个通情达理的经理，你可能会更难决定何时离开。
 

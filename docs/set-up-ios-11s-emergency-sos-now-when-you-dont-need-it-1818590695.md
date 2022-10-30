@@ -1,6 +1,6 @@
 # 不需要的时候现在就设置 iOS 11 的紧急 SOS
 
-> 原文:[https://life hacker . com/set-up-IOs-11s-emergency-SOS-now-when-you-dont-need-it-1818590695](https://lifehacker.com/set-up-ios-11s-emergency-sos-now-when-you-dont-need-it-1818590695)
+> 原文：<https://lifehacker.com/set-up-ios-11s-emergency-sos-now-when-you-dont-need-it-1818590695>
 
 iOS 11 中的紧急求救是你可能永远不会使用的功能之一，但现在设置它是一个好主意，以防你需要它。
 

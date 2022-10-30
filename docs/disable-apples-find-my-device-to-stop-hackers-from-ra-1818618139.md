@@ -1,6 +1,6 @@
 # 如何阻止黑客勒索你的 Mac 或 iPhone[更新]
 
-> 原文:[https://life hacker . com/disable-apple-find-my-device-to-stop-hacker-from-ra-1818618139](https://lifehacker.com/disable-apples-find-my-device-to-stop-hackers-from-ra-1818618139)
+> 原文：<https://lifehacker.com/disable-apples-find-my-device-to-stop-hackers-from-ra-1818618139>
 
 黑客正在利用苹果的 [“找到我”服务](https://support.apple.com/explore/find-my-iphone-ipad-mac-watch) 远程持有设备进行勒索， [报道 MacRumors](https://www.macrumors.com/2017/09/20/hackers-find-my-iphone-remote-mac-lock/) 。在过去的一周里，许多人在推特上发布了账户被盗的消息。双因素认证并不能防止黑客攻击。
 

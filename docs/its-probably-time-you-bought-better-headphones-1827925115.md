@@ -1,6 +1,6 @@
 # 你可能该买更好的耳机了
 
-> 原文:[https://life hacker . com/its-possible-time-you-built-better-headphones-1827925115](https://lifehacker.com/its-probably-time-you-bought-better-headphones-1827925115)
+> 原文：<https://lifehacker.com/its-probably-time-you-bought-better-headphones-1827925115>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在重新思考我们的清洁方法，尝试新的鸡尾酒，改进我们的化妆程序，并展示我们的户外装备。
 

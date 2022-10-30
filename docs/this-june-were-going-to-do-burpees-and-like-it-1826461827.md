@@ -1,6 +1,6 @@
 # 今年六月，我们要做 Burpees，我们会喜欢它的
 
-> 原文:[https://life hacker . com/this-June-were-to-do-burpees-and-like-it-1826461827](https://lifehacker.com/this-june-were-going-to-do-burpees-and-like-it-1826461827)
+> 原文：<https://lifehacker.com/this-june-were-going-to-do-burpees-and-like-it-1826461827>
 
 当然，好吧，波比很难对付，我们讨厌他们。但是它们是一种惊人的全身锻炼，试一试也不会死。也许两个。(或者十个。你知道这是怎么回事。)到月底我们都要变得这么强了！
 

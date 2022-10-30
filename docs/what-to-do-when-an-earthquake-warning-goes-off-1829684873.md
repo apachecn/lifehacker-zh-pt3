@@ -1,6 +1,6 @@
 # 地震警报响起时该做什么
 
-> 原文:[https://life hacker . com/1829684873](https://lifehacker.com/what-to-do-when-an-earthquake-warning-goes-off-1829684873)地震警报响起时该做什么
+> 原文：<https://lifehacker.com/what-to-do-when-an-earthquake-warning-goes-off-1829684873>地震警报响起时该做什么
 
 今年夏天，加州 [开始](http://www.latimes.com/local/lanow/la-me-quake-early-warning-20180829-story.html) 使用地震预警系统，通知市民地震转移将来到他们的地区。理论上，这应该给你一点时间为地球移动做准备。下面是如何利用这些多余的时间。
 

@@ -1,6 +1,6 @@
 # 像素密度极高的工作空间
 
-> 原文:[https://life hacker . com/the-extremely-pixel-dense-workspace-1773391072](https://lifehacker.com/the-extremely-pixel-dense-workspace-1773391072)
+> 原文：<https://lifehacker.com/the-extremely-pixel-dense-workspace-1773391072>
 
 Redditor [jamend](https://www.reddit.com/user/jamend) 热爱屏幕地产，我们也一样。在这张照片中，他摇动着四个显示器，中间是一个 4K 显示器，两侧是两个 1440p 的纵向显示器，上方是一个 4K 电视。最重要的是，这还不是他用来完成工作的全部工具。这里有一个完整的纲要。
 

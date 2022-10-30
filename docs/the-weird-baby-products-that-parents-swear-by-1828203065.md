@@ -1,6 +1,6 @@
 # 父母们深信不疑的怪异婴儿用品
 
-> 原文:[https://life hacker . com/the-verged-baby-products-that-parents-sweet-by-1828203065](https://lifehacker.com/the-weird-baby-products-that-parents-swear-by-1828203065)
+> 原文：<https://lifehacker.com/the-weird-baby-products-that-parents-swear-by-1828203065>
 
 当你成为父母时，你就开始进入现代婴儿用品的怪异世界。每个问题都有“解决”的办法(相信我，在初为人父的混乱中前行的父母会遇到很多问题)。但是你怎么把真正改变世界的创新和噱头分开呢？当你在凌晨 3 点给婴儿喂奶的时候，你会赞美什么？当你喝下一杯咖啡的时候，你会对什么表示善意？
 

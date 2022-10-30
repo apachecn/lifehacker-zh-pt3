@@ -1,6 +1,6 @@
 # 如何让你的花园为冬天做好准备，让它在春天开花
 
-> 原文:[https://life hacker . com/how-to-prepare-to-b-1735123674](https://lifehacker.com/how-to-prepare-your-garden-for-winter-so-its-ready-to-b-1735123674)
+> 原文：<https://lifehacker.com/how-to-prepare-your-garden-for-winter-so-its-ready-to-b-1735123674>
 
 冬天的霜冻即将来临，所以是时候让你的花园为寒冷的气温做好准备了。这里有一些你需要知道的事情来维护你的植物和设备直到春天。
 

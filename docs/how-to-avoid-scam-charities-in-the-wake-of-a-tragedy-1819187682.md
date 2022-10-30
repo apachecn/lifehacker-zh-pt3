@@ -1,6 +1,6 @@
 # 如何在悲剧发生后避免慈善骗局
 
-> 原文:[https://life hacker . com/how-to-avoid-scam-charities-in-the-wake-of-a-a-distress-1819187682](https://lifehacker.com/how-to-avoid-scam-charities-in-the-wake-of-a-tragedy-1819187682)
+> 原文：<https://lifehacker.com/how-to-avoid-scam-charities-in-the-wake-of-a-tragedy-1819187682>
 
 当悲剧发生时，一些人想打开钱包去帮忙，另一些人想在慈善的幌子下把那些钱包里的东西据为己有。就像哈维 T3 飓风过后出现的捐款诈骗一样，新一波欺诈性的筹款者正在掠夺拉斯维加斯枪击案受害者及其家人的潜在捐款人。
 

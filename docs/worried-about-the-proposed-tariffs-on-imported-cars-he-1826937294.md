@@ -1,6 +1,6 @@
 # 担心拟议中的进口汽车关税？这里是你能做的
 
-> 原文:[https://jalopnik . com/journey-about-the-proposed-of-tax of-import-cars-he-1826937294](https://jalopnik.com/worried-about-the-proposed-tariffs-on-imported-cars-he-1826937294)
+> 原文：<https://jalopnik.com/worried-about-the-proposed-tariffs-on-imported-cars-he-1826937294>
 
 你可能听说过唐纳德·川普总统的 [提议对所有进口到美国的汽车征收 25%的关税](https://jalopnik.com/trumps-auto-tariffs-will-mean-higher-car-prices-and-cou-1826759174) 那是*所有的*进口汽车。但你知道特朗普的商务部正在接受对该提案的评论吗？嗯，的确如此，你必须在 6 月 22 日之前对此发表意见。
 

@@ -1,6 +1,6 @@
 # 如何在下雪天完成工作
 
-> 原文:[https://life hacker . com/how-to-get-work-done-a-snow-day-1821747411](https://lifehacker.com/how-to-get-work-done-during-a-snow-day-1821747411)
+> 原文：<https://lifehacker.com/how-to-get-work-done-during-a-snow-day-1821747411>
 
 对孩子们来说，下雪天是最好的日子。没有学校！和白色毛绒绒的东西玩耍！也不用上学！然而，对于在职父母来说，通过短信或电子邮件发出的官方警告可能会引发恐慌。下雪天？不要！你有要填写的报告和要管理的预算，还有上午 11 点的那个非常重要的电话，那个不能被轻微的敲门声和现实生活中的请求打断的电话，“你想堆雪人吗？”
 

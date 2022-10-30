@@ -1,6 +1,6 @@
 # 把你的待办事项清单换成“休息清单”来完成更多的事情
 
-> 原文:[https://life hacker . com/swap-your-to-do-list for-a-break-list-to-get-more-don-1774565496](https://lifehacker.com/swap-your-to-do-list-for-a-break-list-to-get-more-don-1774565496)
+> 原文：<https://lifehacker.com/swap-your-to-do-list-for-a-break-list-to-get-more-don-1774565496>
 
 待办事项清单记录了我们必须完成的任务，但它们几乎没有提供实际的动力。对你的生产力方法做一点小小的调整就能很快解决这个问题。你所需要做的就是开始维护一个“中断列表”,你会发现自己更渴望把事情做完。
 

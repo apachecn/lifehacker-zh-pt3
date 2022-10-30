@@ -1,6 +1,6 @@
 # 这个应用程序可以帮助你在家与交通罚单作斗争
 
-> 原文:[https://life hacker . com/this-app-helps-you-fight-traffic-tickets-from-home-1796682165](https://lifehacker.com/this-app-helps-you-fight-traffic-tickets-from-home-1796682165)
+> 原文：<https://lifehacker.com/this-app-helps-you-fight-traffic-tickets-from-home-1796682165>
 
 你超速行驶了五英里，这时你注意到后面有蓝色的闪光灯。一名警察让你靠边停车，给了你一张超速罚单。你可以像大多数人一样，忍气吞声，付罚单，或者去法院提出异议。幸运的是，有一个应用程序可以让你足不出户就能买到票。
 

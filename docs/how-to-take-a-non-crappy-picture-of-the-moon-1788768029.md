@@ -1,6 +1,6 @@
 # 如何拍摄一张不那么糟糕的月球照片
 
-> 原文:[https://life hacker . com/how-to-take-a-non-lappy-picture-of-moon-1788768029](https://lifehacker.com/how-to-take-a-non-crappy-picture-of-the-moon-1788768029)
+> 原文：<https://lifehacker.com/how-to-take-a-non-crappy-picture-of-the-moon-1788768029>
 
 11 月 14 日，我们将迎来自 1948 年以来最接近的满月，18 年内不会再次发生。如果你想拍一张月球辉煌的照片，请做好准备。以下是如何为下周的超级月亮 拍摄一张 [的照片，这将会给它带来一些公正，甚至可能值得作为壁纸。](https://gizmodo.com/get-ready-for-the-supermoon-of-a-lifetime-1788584842)
 

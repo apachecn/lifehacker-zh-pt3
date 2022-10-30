@@ -1,6 +1,6 @@
 # Trumpcare 对我残疾的弟弟意味着什么？
 
-> 原文:[https://deadspin . com/what-will-trump care-mean-for my-disabled-brother-1793129259](https://deadspin.com/what-will-trumpcare-mean-for-my-disabled-brother-1793129259)
+> 原文：<https://deadspin.com/what-will-trumpcare-mean-for-my-disabled-brother-1793129259>
 
 我哥哥肖恩患有脑瘫。他也听 bebop，喜欢教我们的侄子 Oliver 用“伯爵之声”从 1 数到 10 的好处，当布鲁因斯解雇 Claude Julien 时，他很生气。他每天早上醒来都会煮一壶咖啡，阅读他的新闻订阅，然后开始研究他正在写的关于内战关键战役的论文。我的哥哥肖恩和其他人一样，有兴趣和观点，过着富裕的生活，他从来没有用残疾来定义自己。但美国一直如此。
 

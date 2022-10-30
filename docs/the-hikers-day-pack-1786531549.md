@@ -1,6 +1,6 @@
 # 徒步旅行者的背包
 
-> 原文:[https://lifehacker.com/the-hikers-day-pack-1786531549](https://lifehacker.com/the-hikers-day-pack-1786531549)
+> 原文：<https://lifehacker.com/the-hikers-day-pack-1786531549>
 
 一次来回的徒步旅行看起来很容易，但是为了食物和安全，你仍然需要携带很多装备。读者 J Brew 分享了他们最近的瑞尼尔山之旅。
 

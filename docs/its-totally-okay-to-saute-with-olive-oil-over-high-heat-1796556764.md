@@ -1,6 +1,6 @@
 # 用橄榄油大火炒完全没问题
 
-> 原文:[https://life hacker . com/its-total-okay-to-saute with olive-oil over-high-heat-1796556764](https://lifehacker.com/its-totally-okay-to-saute-with-olive-oil-over-high-heat-1796556764)
+> 原文：<https://lifehacker.com/its-totally-okay-to-saute-with-olive-oil-over-high-heat-1796556764>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-tWE1VRb7r2E&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-tWE1VRb7r2E&start=0) 
 

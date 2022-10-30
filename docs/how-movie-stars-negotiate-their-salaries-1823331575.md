@@ -1,6 +1,6 @@
 # 电影明星如何协商他们的薪水
 
-> 原文:[https://life hacker . com/how-movie-stars-negotiate-their-salary-1823331575](https://lifehacker.com/how-movie-stars-negotiate-their-salaries-1823331575)
+> 原文：<https://lifehacker.com/how-movie-stars-negotiate-their-salaries-1823331575>
 
 电影明星赚很多钱，这一点你可能已经知道了。肯定比我多，也可能比你多。
 

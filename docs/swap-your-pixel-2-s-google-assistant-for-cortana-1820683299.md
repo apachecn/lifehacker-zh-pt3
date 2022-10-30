@@ -1,6 +1,6 @@
 # 把你 Pixel 2 的谷歌助手换成 Cortana
 
-> 原文:[https://life hacker . com/swap-your-pixel-2-s-Google-assistant-for-cortana-1820683299](https://lifehacker.com/swap-your-pixel-2-s-google-assistant-for-cortana-1820683299)
+> 原文：<https://lifehacker.com/swap-your-pixel-2-s-google-assistant-for-cortana-1820683299>
 
 你的谷歌 Pixel 2 有一个非常能干的内置管家，它的形式是 [谷歌助手](https://lifehacker.com/how-to-change-google-assistant-to-a-male-voice-1819293856) 。然而，并不是所有拥有安卓手机的人都全力投入谷歌的生态系统。事实上，有些用户可能是——等等——微软用户。这意味着 Cortana 是他们的虚拟助手。多亏了微软，你可以抛弃谷歌的语音助手，换上一个更适合你的。
 

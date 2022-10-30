@@ -1,6 +1,6 @@
 # 如何让你的 LinkedIn 页面不那么无聊
 
-> 原文:[https://life hacker . com/how-to-make-your-LinkedIn-page-less-boring-1823279927](https://lifehacker.com/how-to-make-your-linkedin-page-less-boring-1823279927)
+> 原文：<https://lifehacker.com/how-to-make-your-linkedin-page-less-boring-1823279927>
 
 找工作总是对耐心和预期管理的一种锻炼。无论你是在寻找一份新工作，试图进入一个不熟悉的行业，还是只想确保你的职业生涯保持最新和有吸引力，毫无疑问，你必须登录 LinkedIn，美化你的个人资料。实话实说:如果你想在面对面面试前给人留下好的第一印象，你目前的个人资料可能不够好，还需要做一些工作。
 

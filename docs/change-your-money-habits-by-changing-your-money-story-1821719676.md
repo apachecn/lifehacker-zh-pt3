@@ -1,6 +1,6 @@
 # 通过改变你的金钱故事来改变你的金钱习惯
 
-> 原文:[https://life hacker . com/change-your-money-story-1821719676](https://lifehacker.com/change-your-money-habits-by-changing-your-money-story-1821719676)
+> 原文：<https://lifehacker.com/change-your-money-habits-by-changing-your-money-story-1821719676>
 
 关于钱，你告诉自己什么？你是一个节约者，还是一个挥霍者，或者你会不惜一切代价避免去想它？
 

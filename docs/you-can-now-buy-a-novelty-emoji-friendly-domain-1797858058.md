@@ -1,6 +1,6 @@
 # 你现在可以购买一个新颖的表情友好的域名
 
-> 原文:[https://life hacker . com/you-can-now-buy-a-novelty-e moji-friendly-domain-1797858058](https://lifehacker.com/you-can-now-buy-a-novelty-emoji-friendly-domain-1797858058)
+> 原文：<https://lifehacker.com/you-can-now-buy-a-novelty-emoji-friendly-domain-1797858058>
 
 我曾经认为我可以通过域名转换致富。Casino.com 在 2003 年卖了 550 万美元，PrivateJet.com 在 2012 年卖了 3018 万美元。从那以后，我放弃了这个概念，选择花时间购买内部笑话的域名，而不是退休计划赌博。虽然我很确定你不会像 Sex.com 那样幸运(1300 万美元),但多亏了 [,你还是能赚到一大笔😁。到](https://xn--f28h.to/?ref=producthunt) ，这是一个由 BetaList 创始人马克·科尔布鲁日创建的网站，提供一种简单的方法来购买基于表情符号的域名，看看哪些已经被抢光了。
 

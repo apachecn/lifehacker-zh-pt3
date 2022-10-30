@@ -1,6 +1,6 @@
 # 调酒师应该嘘人们
 
-> 原文:[https://life hacker . com/bartenders-should-shush-people-1825479385](https://lifehacker.com/bartenders-should-shush-people-1825479385)
+> 原文：<https://lifehacker.com/bartenders-should-shush-people-1825479385>
 
 我喜欢安静的酒吧。我从 21 岁就开始了。这不是一个不寻常的愿望；每当我 8 点多在酒吧，有人(有时甚至不是我！)最后说“对不起，我听不见你说什么。酒吧变得这么吵！”即使是最安静的潜水点也会不时被人们的叫喊声淹没，而每个人都希望这个地方能更安静些。为什么，作为一种文化，我们没能找到一种方法来摆脱这场吵闹的战争？为什么大多数酒吧都这么吵？
 

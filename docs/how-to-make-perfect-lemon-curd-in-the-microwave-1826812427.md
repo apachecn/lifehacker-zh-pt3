@@ -1,6 +1,6 @@
 # 如何在微波炉中制作完美的柠檬凝乳
 
-> 原文:[https://life hacker . com/how-to-make-perfect-lemon-cond-in-the-microwave-1826812427](https://lifehacker.com/how-to-make-perfect-lemon-curd-in-the-microwave-1826812427)
+> 原文：<https://lifehacker.com/how-to-make-perfect-lemon-curd-in-the-microwave-1826812427>
 
 不管你一生中做了多少完美的蛋糕或镜面釉，有些烹饪技术似乎只会招致灾难，尤其是那些依赖于精确温度控制的技术。如果你需要均匀加热一种微妙的物质到一个精确的温度，微波炉可能看起来是一个可怕的选择——但它通常是这项工作的最佳工具。
 

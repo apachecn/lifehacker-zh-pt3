@@ -1,6 +1,6 @@
 # 在每个新的浏览器标签中发现要访问的 Airbnb 位置
 
-> 原文:[https://life hacker . com/discover-Airbnb-locations-to-visit-in-every-new-browser-1828044722](https://lifehacker.com/discover-airbnb-locations-to-visit-in-every-new-browser-1828044722)
+> 原文：<https://lifehacker.com/discover-airbnb-locations-to-visit-in-every-new-browser-1828044722>
 
 Chrome: 如果你是一个旅行迷，或者，更好的是，需要一点灵感来计划你的下一次旅行，你会爱上 Chrome 的扩展“Random bnb”这非常简单，但它很好地提醒了你，世界上有很多你现在可以待的地方，在某些情况下，甚至不需要花一大笔钱就可以获得一次不可思议的经历。你只需要找到他们，这就是随机 bnb 的用武之地。
 

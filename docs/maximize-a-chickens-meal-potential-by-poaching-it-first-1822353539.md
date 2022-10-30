@@ -1,6 +1,6 @@
 # 首先通过水煮来最大化鸡肉的潜力
 
-> 原文:[https://life hacker . com/maximize-a-chickens-meal-potential-by-偷猎第一-1822353539](https://lifehacker.com/maximize-a-chickens-meal-potential-by-poaching-it-first-1822353539)
+> 原文：<https://lifehacker.com/maximize-a-chickens-meal-potential-by-poaching-it-first-1822353539>
 
 如果你在网上读到烹饪，你肯定已经看过几篇吹捧一只不起眼的鸡的多种用途的文章。在这一点上，你知道一只鸡能为你做什么，所以另一个过度规定的，基于鸡肉的膳食计划似乎是不必要的。我的议程很简单:下次你买整只鸡的时候，我希望你把它煮熟。
 

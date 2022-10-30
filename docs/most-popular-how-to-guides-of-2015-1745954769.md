@@ -1,6 +1,6 @@
 # 2015 年最受欢迎的指南
 
-> 原文:[https://life hacker . com/2015 年最受欢迎指南-1745954769](https://lifehacker.com/most-popular-how-to-guides-of-2015-1745954769)
+> 原文：<https://lifehacker.com/most-popular-how-to-guides-of-2015-1745954769>
 
 在 Lifehacker，一步一步的指南是我们的面包和黄油，你似乎喜欢阅读它们，就像我们喜欢写它们一样。以下是年度最佳指南。
 

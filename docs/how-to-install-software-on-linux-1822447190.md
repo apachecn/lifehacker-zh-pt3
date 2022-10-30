@@ -1,6 +1,6 @@
 # 如何在 Linux 上安装软件
 
-> 原文:[https://life hacker . com/how-to-install-software-on-Linux-1822447190](https://lifehacker.com/how-to-install-software-on-linux-1822447190)
+> 原文：<https://lifehacker.com/how-to-install-software-on-linux-1822447190>
 
 所以你已经切换到 Linux 了。或者你在考虑掉包。但是你的问题可能会阻止你完全投入进去。大多数新用户最关心的一个问题是，“有什么软件可用，我如何安装它？”
 

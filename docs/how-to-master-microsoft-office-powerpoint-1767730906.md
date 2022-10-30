@@ -1,6 +1,6 @@
 # 如何掌握 Microsoft Office PowerPoint
 
-> 原文:[https://life hacker . com/how-to-master-Microsoft-office-PowerPoint-1767730906](https://lifehacker.com/how-to-master-microsoft-office-powerpoint-1767730906)
+> 原文：<https://lifehacker.com/how-to-master-microsoft-office-powerpoint-1767730906>
 
 PowerPoint 可以让您快速地将演示文稿放在一起，但是如果您只了解基础知识，您的幻灯片放映可能会枯燥乏味。是时候学习如何自定义模板、添加动画和幻灯片过渡、制作幻灯片注释等等。
 

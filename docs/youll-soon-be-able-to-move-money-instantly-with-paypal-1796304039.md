@@ -1,6 +1,6 @@
 # 你很快就可以用 PayPal 即时转账了
 
-> 原文:[https://life hacker . com/youll-soon-able-to-move money with paypal-1796304039](https://lifehacker.com/youll-soon-be-able-to-move-money-instantly-with-paypal-1796304039)
+> 原文：<https://lifehacker.com/youll-soon-be-able-to-move-money-instantly-with-paypal-1796304039>
 
 当你想到点对点支付时，你可能会想到贝宝。但是，Square Cash 等其他服务有一个很大的优势，那就是即时兑现的能力。 [PayPal 刚刚宣布](https://www.paypal.com/stories/us/transfer-money-instantly-to-your-bank-account-with-paypal) 他们也计划提供这一功能。
 

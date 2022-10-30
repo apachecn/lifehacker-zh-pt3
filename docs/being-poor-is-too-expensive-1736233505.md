@@ -1,6 +1,6 @@
 # 贫穷代价太大
 
-> 原文:[https://life hacker . com/太穷太贵-1736233505](https://lifehacker.com/being-poor-is-too-expensive-1736233505)
+> 原文：<https://lifehacker.com/being-poor-is-too-expensive-1736233505>
 
 有人认为穷很简单。你没有足够的钱买很多东西，所以你被迫少买一些东西。但事实并非如此。当你破产的时候，你不可能做所有能长期改善你预算的小事。贫穷实际上要付出更多的代价。
 

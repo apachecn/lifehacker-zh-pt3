@@ -1,6 +1,6 @@
 # 在 Galaxy S9 上市之前，不要购买新的三星手机
 
-> 原文:[https://life hacker . com/don-buy-a-new-Samsung-phone-unt-the-galaxy-S9-comes-1822033586](https://lifehacker.com/dont-buy-a-new-samsung-phone-until-the-galaxy-s9-comes-1822033586)
+> 原文：<https://lifehacker.com/dont-buy-a-new-samsung-phone-until-the-galaxy-s9-comes-1822033586>
 
 如果你度过了假期，却没有购买新的智能手机 (或者得到一个作为礼物的智能手机)，你可能渴望升级。如果你是苹果粉丝，那就疯狂吧——无论如何，我们可能要到 2018 年底才会看到新的[iPhone](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402)——但如果你是安卓用户，你应该等待，至少等到下个月 Galaxy S9 上市。
 

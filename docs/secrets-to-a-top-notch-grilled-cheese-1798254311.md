@@ -1,6 +1,6 @@
 # 顶级烤奶酪的秘密
 
-> 原文:[https://the take out . com/secrets-to-a-top-notch-cracked-cheese-1798254311](https://thetakeout.com/secrets-to-a-top-notch-grilled-cheese-1798254311)
+> 原文：<https://thetakeout.com/secrets-to-a-top-notch-grilled-cheese-1798254311>
 
 就像《人鬼情未了》对陶器的影响，乔恩·费儒的《T2》《T3》《T4》《厨师》《T5》《T6》《T7》《T8》《T9》对烤奶酪三明治的影响——两部电影都使用了特写镜头和背景音乐，以最性感的方式崇拜一个无生命的物体。 [*厨师*](http://amzn.to/2f2hFEe) 中的那一幕说明了烤奶酪的无穷诱惑力。它将一个简单的三明治充满了童年的怀旧情绪，并使它成为成年人的合法食物，一道值得专业厨师诠释的菜肴。
 

@@ -1,6 +1,6 @@
 # 朋克女王，新浪潮母亲，恐怖之王在流媒体中统治着五月
 
-> 原文:[https://www . av club . com/queens-of-punk-a-new-wave-mother-and-the-king of-horr-1825765718](https://www.avclub.com/queens-of-punk-a-new-wave-mother-and-the-king-of-horr-1825765718)
+> 原文：<https://www.avclub.com/queens-of-punk-a-new-wave-mother-and-the-king-of-horr-1825765718>
 
 *欢迎来到流媒体和再次流媒体，这是一个每月专栏，重点介绍流媒体目录中新出现的电影和电视剧，这些电影和电视剧是影音俱乐部*的工作人员特别感兴趣的，希望也是我们的读者。今年五月有五个新的标题。**
 

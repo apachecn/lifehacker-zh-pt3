@@ -1,6 +1,6 @@
 # 如何在飞机上使用汽车座椅
 
-> 原文:[https://life hacker . com/how-to-use-a-car-seat-on-a-plan-1826957457](https://lifehacker.com/how-to-use-a-car-seat-on-an-airplane-1826957457)
+> 原文：<https://lifehacker.com/how-to-use-a-car-seat-on-an-airplane-1826957457>
 
 带着两岁以下的孩子乘飞机旅行的一个传统好处是，把孩子抱在膝盖上可以节省额外机票的价格。(当然，我们这些曾经以这种方式旅行过的人可能会说，这在当时并不完全是一种额外津贴，但它确实让家庭更负担得起旅行。)
 

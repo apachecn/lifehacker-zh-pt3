@@ -1,6 +1,6 @@
 # 如何在不浪费时间的情况下集体旅行
 
-> 原文:[https://life hacker . com/how-to-a group-your-time-1819398253](https://lifehacker.com/how-to-travel-as-a-group-without-wasting-your-time-1819398253)
+> 原文：<https://lifehacker.com/how-to-travel-as-a-group-without-wasting-your-time-1819398253>
 
 跟团旅行会让人精疲力尽。总有一种危险，你最终会被困在一个没人想去的商店或博物馆里几个小时，因为你们都在礼貌地等待对方浏览完。这是一种形式的 [阿比林悖论](https://en.wikipedia.org/wiki/Abilene_paradox) ，每个人都赞同一个糟糕的计划来取悦对方。在这种情况下，发生这种情况是因为我们不习惯告诉人们“我准备好了，但是我没有*有*要走。”
 

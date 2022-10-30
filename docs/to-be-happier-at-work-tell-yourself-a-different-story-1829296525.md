@@ -1,6 +1,6 @@
 # 要在工作中更快乐，告诉自己一个不同的故事
 
-> 原文:[https://life hacker . com/to-be-happer-in-work-happer-tell-yourself-a-different-story-1829296525](https://lifehacker.com/to-be-happier-at-work-tell-yourself-a-different-story-1829296525)
+> 原文：<https://lifehacker.com/to-be-happier-at-work-tell-yourself-a-different-story-1829296525>
 
 你对自己有什么看法？作为领导？一个不拿任何 b 的人？失败者？
 

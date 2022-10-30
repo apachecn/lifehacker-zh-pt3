@@ -1,6 +1,6 @@
 # 为什么杂草品种不总是符合它们的描述
 
-> 原文:[https://life hacker . com/why-weed-strains-don-always-live-up-to-they-stupid-de-1794498747](https://lifehacker.com/why-weed-strains-dont-always-live-up-to-their-stupid-de-1794498747)
+> 原文：<https://lifehacker.com/why-weed-strains-dont-always-live-up-to-their-stupid-de-1794498747>
 
 如果你曾经去过一个大麻商店，无论是医疗还是娱乐，你都会知道商店里的每一种大麻通常都有听起来可笑的声明。一种可能“非常适合焦虑”，而另一种最适合慢性疼痛。这很可能是一派胡言。
 

@@ -1,6 +1,6 @@
 # 你最糟糕的生活黑客失败的故事
 
-> 原文:[https://life hacker . com/your-worst-life-hacking-failure-stories-1792056343](https://lifehacker.com/your-worst-life-hacking-failure-stories-1792056343)
+> 原文：<https://lifehacker.com/your-worst-life-hacking-failure-stories-1792056343>
 
 上周，读者 [告诉我们他们最大的生活黑客失败](http://lifehacker.com/tell-us-your-biggest-life-hack-failures-1791893009#_ga=1.177347174.27973805.1434581949) ，其中一些真的很壮观。太好了，事实上，我们只是想和你分享一下。你会笑，你会哭，但你最高兴的是你没有亲自尝试这些技巧。
 

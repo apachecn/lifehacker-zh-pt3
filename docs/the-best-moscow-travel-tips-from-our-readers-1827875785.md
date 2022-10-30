@@ -1,6 +1,6 @@
 # 来自我们读者的最佳莫斯科旅行建议
 
-> 原文:[https://life hacker . com/the-best-Moscow-travel-tips-from-our-readers-1827875785](https://lifehacker.com/the-best-moscow-travel-tips-from-our-readers-1827875785)
+> 原文：<https://lifehacker.com/the-best-moscow-travel-tips-from-our-readers-1827875785>
 
 我们得到了 [一大串参观莫斯科](https://lifehacker.com/tell-us-your-best-moscow-travel-tips-1827760053) 的小贴士，其中只有三分之二是关于川普或拿破仑的笑话。转到该主题，查看 Staff 选项卡下的最佳提示，或者查看下面的亮点。
 

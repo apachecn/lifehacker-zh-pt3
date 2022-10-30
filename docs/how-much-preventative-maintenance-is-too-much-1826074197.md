@@ -1,6 +1,6 @@
 # 多少预防性维护是太多了？
 
-> 原文:[https://jalopnik . com/how-much-preventive-maintenance-is-over-much-1826074197](https://jalopnik.com/how-much-preventative-maintenance-is-too-much-1826074197)
+> 原文：<https://jalopnik.com/how-much-preventative-maintenance-is-too-much-1826074197>
 
 现在，我正试图让我的 1979 年吉普切诺基金鹰 上路，我在努力回答一个问题:我应该做多少预防性维护？(因为这个越来越贵了)。
 

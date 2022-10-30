@@ -1,6 +1,6 @@
 # 你如何度过一个充满挑战的假期？
 
-> 原文:[https://life hacker . com/how-do-you-get-through-a-challenge-holiday-season-1821531535](https://lifehacker.com/how-do-you-get-through-a-challenging-holiday-season-1821531535)
+> 原文：<https://lifehacker.com/how-do-you-get-through-a-challenging-holiday-season-1821531535>
 
 众所周知，节日有时既喜庆又难熬。短暂的白天和低温对任何人都没有帮助，这甚至发生在强行欢呼和家庭义务开始之前。
 

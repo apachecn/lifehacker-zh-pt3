@@ -1,6 +1,6 @@
 # 我讨厌 Fitbit 新手表的几乎所有东西——但有一样东西我很喜欢
 
-> 原文:[https://gizmodo . com/the-fitbit-ionics-incredible-battery-life-help-it-over-1818530981](https://gizmodo.com/the-fitbit-ionics-incredible-battery-life-helps-it-over-1818530981)
+> 原文：<https://gizmodo.com/the-fitbit-ionics-incredible-battery-life-helps-it-over-1818530981>
 
 昨天下午一点左右，我的手机和收件箱同时收到了“你的 Fitbit Ionic 电池快没电了”的通知，建议我花点时间给智能手表充电。相反，我参加了几个会议，乘火车回家，带着狗去散步，然后做晚饭。八个小时后，当我再次看手表时，我只损失了百分之三的电池。Fitbit 已经解决了智能手表最关键的问题，它的电池寿命非常长，你可以原谅所有的缺陷。如果每块智能手表充一次电都能坚持这么久，我们将进入一个全新的可穿戴计算时代。
 

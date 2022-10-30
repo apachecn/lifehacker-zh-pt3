@@ -1,6 +1,6 @@
 # 如何将你的旧饮酒游戏改造成适合家庭的儿童游戏
 
-> 原文:[https://life hacker . com/how-to-reinvent-your-old-drinking-games-as-family-frien-1820783888](https://lifehacker.com/how-to-reinvent-your-old-drinking-games-as-family-frien-1820783888)
+> 原文：<https://lifehacker.com/how-to-reinvent-your-old-drinking-games-as-family-frien-1820783888>
 
 冬天来了，父母们正在为不可避免的幽居病做准备。在你被拉去玩另一轮糖果乐园之前，想想家庭游戏之外的事情。我们可能会因此收到一些愤怒的电子邮件，但是你在大学玩的一些经典饮酒游戏——不喝酒——可以成为很棒的儿童游戏。想想吧。它们的美妙之处在于它们的简单性，以及用迅速减少的注意力吸引人群的能力。这既包括幼儿园的孩子，也包括那个喝多了几瓶酒的家伙。
 

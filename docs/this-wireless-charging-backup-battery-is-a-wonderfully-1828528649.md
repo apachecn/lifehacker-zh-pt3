@@ -1,6 +1,6 @@
 # 这种无线充电备用电池是一个非常方便的升级
 
-> 原文:[https://gizmodo . com/this-wireless-charging-backup-battery-is-a-wonderful-1828528649](https://gizmodo.com/this-wireless-charging-backup-battery-is-a-wonderfully-1828528649)
+> 原文：<https://gizmodo.com/this-wireless-charging-backup-battery-is-a-wonderfully-1828528649>
 
 除了让它们变得更小、增加容量或增加更多端口，备用电池没有多少创新空间。但是 Avido 的新 WiBa 电力银行设法将无线充电 压缩到一个便携式电源中，非常方便，现在它可以放在我的智能手机的任何地方。
 

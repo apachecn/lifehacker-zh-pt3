@@ -1,6 +1,6 @@
 # 告诉我们你在北卡罗来纳州夏洛特的旅行小贴士
 
-> 原文:[https://life hacker . com/tell-us-your-Charlotte-NC-travel-tips-1825054177](https://lifehacker.com/tell-us-your-charlotte-nc-travel-tips-1825054177)
+> 原文：<https://lifehacker.com/tell-us-your-charlotte-nc-travel-tips-1825054177>
 
 根据 Wikivoyage 的 [城市](https://en.wikivoyage.org/wiki/Charlotte) 全面指南，夏洛特市的发展速度比看起来要快，它保留了南方的魅力和友好，同时吸引了来自美国各地和世界各地的居民。让我们看看这种魅力如何延伸到游客身上，并听听你游览这座城市的最佳建议。
 

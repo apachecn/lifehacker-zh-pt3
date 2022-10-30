@@ -1,6 +1,6 @@
 # “以防万一”包
 
-> 原文:[https://lifehacker.com/the-just-in-case-bag-1732118590](https://lifehacker.com/the-just-in-case-bag-1732118590)
+> 原文：<https://lifehacker.com/the-just-in-case-bag-1732118590>
 
 做好准备意味着准备好应急物资。在《日常携带》中，读者泰勒·吉诺维斯分享了他的小袋子，当需要时，它可以很容易地放入其他大袋子中。
 

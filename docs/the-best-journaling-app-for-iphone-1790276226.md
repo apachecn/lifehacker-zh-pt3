@@ -1,6 +1,6 @@
 # iPhone 的最佳日志应用
 
-> 原文:[https://life hacker . com/the-best-journaling-app-for-iphone-1790276226](https://lifehacker.com/the-best-journaling-app-for-iphone-1790276226)
+> 原文：<https://lifehacker.com/the-best-journaling-app-for-iphone-1790276226>
 
 写日记表面上看起来似乎很傻，但是写日记是非常有用的 ，它既是你思想的永久记录，也是一种宣泄。不管你打算如何使用日记，我们在 iPhone 上最喜欢的是第一天。
 

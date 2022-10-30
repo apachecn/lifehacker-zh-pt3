@@ -1,6 +1,6 @@
 # 请教专家:备份数据的最佳方式
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-the-best-ways-back-up-your-1793677859](https://lifehacker.com/ask-an-expert-all-about-the-best-ways-to-back-up-your-1793677859)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-the-best-ways-to-back-up-your-1793677859>
 
 “世界备份日”将于 3 月 31 日星期五到来。我并不打算举办一场硬盘派对，但这是一个很好的提醒，提醒我们重新审视自己的数据存储解决方案，考虑新技术和最佳实践。这里提供一些建议的是来自希捷 T3[团队的专家。](http://www.seagate.com/) 
 

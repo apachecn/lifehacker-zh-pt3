@@ -1,6 +1,6 @@
 # 我是如何像艾莉亚·史塔克那样学习剑术的
 
-> 原文:[https://Jezebel . com/how-I-learn-to-sword-fight-like-Arya-stark-1798358840](https://jezebel.com/how-i-learned-to-sword-fight-like-arya-stark-1798358840)
+> 原文：<https://jezebel.com/how-i-learned-to-sword-fight-like-arya-stark-1798358840>
 
 关于击剑，你需要知道的一件事是用剑击中某人的头部是多么令人满足。
 

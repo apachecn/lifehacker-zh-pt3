@@ -1,6 +1,6 @@
 # 如何在 iOS 中切换谷歌地图和苹果地图
 
-> 原文:[https://life hacker . com/how-to-switch-over-Google-maps-and-apple-maps-in-IOs-1828196797](https://lifehacker.com/how-to-switch-between-google-maps-and-apple-maps-in-ios-1828196797)
+> 原文：<https://lifehacker.com/how-to-switch-between-google-maps-and-apple-maps-in-ios-1828196797>
 
 人们通常倾向于为他们的手机选择一个地图应用程序，并坚持使用它，但有时你可能需要在你的 iPhone 上打开另一个应用程序——也许你需要播放你的方向，而不是让谷歌助手大声喊出来。
 

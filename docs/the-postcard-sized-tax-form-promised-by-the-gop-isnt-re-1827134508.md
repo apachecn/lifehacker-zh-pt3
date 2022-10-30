@@ -1,6 +1,6 @@
 # 共和党承诺的明信片大小的税收表格实际上并没有明信片那么大
 
-> 原文:[https://life hacker . com/the-明信片大小的 tax-form-promised-by-the-GOP-nots-re-1827134508](https://lifehacker.com/the-postcard-sized-tax-form-promised-by-the-gop-isnt-re-1827134508)
+> 原文：<https://lifehacker.com/the-postcard-sized-tax-form-promised-by-the-gop-isnt-re-1827134508>
 
 [*《纽约时报》*](https://www.nytimes.com/2018/06/25/your-money/1040-income-tax-postcard.html) 拿到了一份新的明信片大小的标准 1040 表格草案，这是共和党人长期以来梦寐以求的，但这并不是像 [众议院议长保罗·瑞安](https://www.speaker.gov/general/file-your-taxes-form-size-postcard) 和 [财政部长史蒂夫·姆努钦](http://thehill.com/policy/finance/393323-mnuchin-tax-filing-postcard-to-be-released-next-week) 这样的人所承诺的税法简化。
 

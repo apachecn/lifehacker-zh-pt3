@@ -1,6 +1,6 @@
 # 通过保护您的智能手机，向加密迈出一小步
 
-> 原文:[https://life hacker . com/take-baby-steps-to-encryption-by-securing-your-smar-1818635041](https://lifehacker.com/take-baby-steps-toward-encryption-by-securing-your-smar-1818635041)
+> 原文：<https://lifehacker.com/take-baby-steps-toward-encryption-by-securing-your-smar-1818635041>
 
 你的数据，从你去年拍的圣诞派对照片到你提交的报税单(感谢上帝的延期，对吧？)比你想象的要多，这意味着尽可能多地保护它是至关重要的。但是对于没有经验的人来说，加密的想法可能会令人生畏，并且经常涉及到对更深奥的话题的讨论，如[【PGP】](https://lifehacker.com/how-to-encrypt-your-email-and-keep-your-conversations-p-1133495744)、解密密钥以及其他您可能不熟悉的术语。幸运的是，iOS 和 Android 可以轻松保护您的数据，防止恶意黑客和任何人窃取个人信息。
 

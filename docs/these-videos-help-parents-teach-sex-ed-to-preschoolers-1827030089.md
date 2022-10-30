@@ -1,6 +1,6 @@
 # 这些视频帮助父母向学龄前儿童教授性教育
 
-> 原文:[https://life hacker . com/these-videos-help-parents-teach-sex-ed-to-学龄前儿童-1827030089](https://lifehacker.com/these-videos-help-parents-teach-sex-ed-to-preschoolers-1827030089)
+> 原文：<https://lifehacker.com/these-videos-help-parents-teach-sex-ed-to-preschoolers-1827030089>
 
 把一个男孩和一个女孩放在一个浴缸里可以吗？如果你孩子学前班的一个同学过来玩，你发现他们两个从腰部以下都在“玩医生”，你该怎么办？如果你的孩子要求检查你的私处，这让你觉得很奇怪怎么办？
 

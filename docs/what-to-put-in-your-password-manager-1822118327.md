@@ -1,6 +1,6 @@
 # 在你的密码管理器里放什么
 
-> 原文:[https://life hacker . com/what-to-put-in-your-password-manager-1822118327](https://lifehacker.com/what-to-put-in-your-password-manager-1822118327)
+> 原文：<https://lifehacker.com/what-to-put-in-your-password-manager-1822118327>
 
 我们是密码管理器的粉丝，不仅因为它们能帮助你生成和保存更强的密码，还因为它们有更多的锦囊妙计。如果你使用的是 1Password 或 Lastpass 之类的密码管理器，你可以把它作为你的物理保险箱的数字替身(你有一个，对吧？).
 

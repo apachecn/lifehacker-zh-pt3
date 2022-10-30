@@ -1,6 +1,6 @@
 # Akrasia 效应:为什么我们制定计划却不坚持到底
 
-> 原文:[https://life hacker . com/the-akrasia-effect-why-we-make-plans-and-don-follow-t-1752799091](https://lifehacker.com/the-akrasia-effect-why-we-make-plans-and-dont-follow-t-1752799091)
+> 原文：<https://lifehacker.com/the-akrasia-effect-why-we-make-plans-and-dont-follow-t-1752799091>
 
 人类是多产的拖延者。制定计划和在日历上安排日期很容易，但几乎不可避免的是，你会让一些最后期限不知不觉地溜走。比起长期回报，我们的大脑更喜欢即时回报。鉴于这种倾向，我们经常不得不求助于疯狂的策略来完成事情。
 

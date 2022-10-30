@@ -1,6 +1,6 @@
 # 如何清理你的速食锅插件上烧焦的粘性物质
 
-> 原文:[https://life hacker . com/how-to-clean-burned-on-gunk-off-your-instant-pot-insert-1823565725](https://lifehacker.com/how-to-clean-burned-on-gunk-off-your-instant-pot-insert-1823565725)
+> 原文：<https://lifehacker.com/how-to-clean-burned-on-gunk-off-your-instant-pot-insert-1823565725>
 
 把一堆食物密封在高压锅里，比如速溶锅，意味着你不能真正搅拌里面的东西，这有时会导致有点烧焦。这没什么大不了的，但是它会导致一些难看的粘糊糊的东西。幸运的是，这很容易摆脱，你只需要找一个好朋友。
 

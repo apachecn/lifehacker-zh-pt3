@@ -1,6 +1,6 @@
 # 要了解你的青少年，给他们发短信
 
-> 原文:[https://life hacker . com/to-get-through-to-your-tens-text-them-1826757735](https://lifehacker.com/to-get-through-to-your-teens-text-them-1826757735)
+> 原文：<https://lifehacker.com/to-get-through-to-your-teens-text-them-1826757735>
 
 青少年不喜欢和他们的父母交谈。实际上，算了吧。许多人也不怎么和他们的朋友说话，至少不是用他们的声音。青少年喜欢发短信。走进任何青少年出没的地方，你都会看到他们三五成群地围在手机前。有时他们甚至给坐在他们旁边的人发短信。这是一种奇怪的生活方式。
 

@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名心理健康个案经理做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-mental-health-case-man-1734079090](https://lifehacker.com/career-spotlight-what-i-do-as-a-mental-health-case-man-1734079090)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-mental-health-case-man-1734079090>
 
 在心理健康的广泛范围内，有些人有足够的能力独立生活，但需要一点点帮助。提供这种帮助的是心理健康个案经理，他帮助有某些需求的个人处理日常生活。
 

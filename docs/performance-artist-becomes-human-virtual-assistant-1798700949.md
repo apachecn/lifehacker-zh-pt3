@@ -1,6 +1,6 @@
 # 行为艺术家成为人类虚拟助手
 
-> 原文:[https://life hacker . com/performance-artist-becoms-human-virtual-assistant-1798700949](https://lifehacker.com/performance-artist-becomes-human-virtual-assistant-1798700949)
+> 原文：<https://lifehacker.com/performance-artist-becomes-human-virtual-assistant-1798700949>
 
 像 Siri、Alexa、Google Now 这样的虚拟助手还处于尴尬的阶段。它们对于控制你的音响、回答偶尔的琐事问题或提醒你交通状况很有用，但它们仍然没有足够的智能或权限来真正预测你的最大需求。一点也不像有一个真正的人看着你并给你建议。也就是行为艺术家劳伦·麦卡锡承诺的，一次三天。
 

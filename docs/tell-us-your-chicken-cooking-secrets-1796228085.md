@@ -1,6 +1,6 @@
 # 告诉我们你烹饪鸡肉的秘密
 
-> 原文:[https://life hacker . com/tell-us-your-chicken-cooking-secrets-1796228085](https://lifehacker.com/tell-us-your-chicken-cooking-secrets-1796228085)
+> 原文：<https://lifehacker.com/tell-us-your-chicken-cooking-secrets-1796228085>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，每周一次的公开讨论，在这里你可以分享你所有关于食物的想法、建议、食谱和观点。本周我想把重点放在工作狂(工作狂？)厨房的蛋白质:卑微的鸡。
 

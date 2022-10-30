@@ -1,6 +1,6 @@
 # MacOS 的最佳电子邮件客户端
 
-> 原文:[https://life hacker . com/the-best-email-client-for-MAC OS-5811204](https://lifehacker.com/the-best-email-client-for-macos-5811204)
+> 原文：<https://lifehacker.com/the-best-email-client-for-macos-5811204>
 
 电子邮件客户端有各种形状和大小，但当谈到 Mac 上可用的选项时，我们觉得航空邮件对大多数人来说是最好的电子邮件客户端。它易于使用，支持许多不同的电子邮件提供商，具有可靠的搜索功能，等等。
 

@@ -1,6 +1,6 @@
 # 我们有十年的时间来防止一场全面的气候灾难
 
-> 原文:[https://gizmodo . com/we-have-a-decade to-prevent-a-total-climate-disaster-1829585748](https://gizmodo.com/we-have-a-decade-to-prevent-a-total-climate-disaster-1829585748)
+> 原文：<https://gizmodo.com/we-have-a-decade-to-prevent-a-total-climate-disaster-1829585748>
 
 到 2030 年，我们作为 70 亿人的集体将知道我们的命运，或者至少知道我们当中最脆弱的人的命运。周日发布的一份具有里程碑意义的报告为人类及其将全球变暖保持在工业化前水平 1.5 摄氏度以内的追求设定了时钟。
 

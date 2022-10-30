@@ -1,6 +1,6 @@
 # 在您的日历中添加促销活动，这样您就不会忘记它们
 
-> 原文:[https://life hacker . com/add-promos-to-your calendar-so-you-don ' t-forget-about-th-1824153150](https://lifehacker.com/add-promos-to-your-calendar-so-you-dont-forget-about-th-1824153150)
+> 原文：<https://lifehacker.com/add-promos-to-your-calendar-so-you-dont-forget-about-th-1824153150>
 
 当我与亚马逊客户服务团队中一些乐于助人的半机器人进行虚拟聊天时，我心想:我真的应该更好地跟踪我报名参加的促销活动。
 

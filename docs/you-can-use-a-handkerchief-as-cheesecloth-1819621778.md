@@ -1,6 +1,6 @@
 # 你可以用手帕当粗棉布
 
-> 原文:[https://life hacker . com/you-can-use-a-parp-as-cheese cloth-1819621778](https://lifehacker.com/you-can-use-a-handkerchief-as-cheesecloth-1819621778)
+> 原文：<https://lifehacker.com/you-can-use-a-handkerchief-as-cheesecloth-1819621778>
 
 粗棉布是我手头从来没有的东西之一，每次我想做意大利乳清干酪的时候都得重新买。虽然从技术上讲，你可以清洗并重复使用它，但我总是觉得这项任务有点令人沮丧。(当我手洗的时候，它没有完全洗干净，但是在洗衣房里就变得很脏了。)
 

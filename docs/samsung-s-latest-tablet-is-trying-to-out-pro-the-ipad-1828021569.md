@@ -1,6 +1,6 @@
 # 三星最新的平板电脑试图超越 iPad
 
-> 原文:[https://gizmodo . com/Samsung-s-latest-table t-is-trying-out-pro-the-ipad-1828021569](https://gizmodo.com/samsung-s-latest-tablet-is-trying-to-out-pro-the-ipad-1828021569)
+> 原文：<https://gizmodo.com/samsung-s-latest-tablet-is-trying-to-out-pro-the-ipad-1828021569>
 
 如今，平板电脑处境艰难。你是廉价推出本质上是大手机的产品，还是提高价格，寻求额外的功能，如手写笔和键盘支持？在过去的几年里，三星试图通过制造更接近可转换笔记本电脑而不是标准平板电脑的平板电脑来充分利用 Android。对于 2018 年，三星将通过即将推出的 Galaxy Tab S4 变得更大。
 

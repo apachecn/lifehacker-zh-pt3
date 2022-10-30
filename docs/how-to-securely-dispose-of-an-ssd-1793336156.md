@@ -1,6 +1,6 @@
 # 如何安全处置固态硬盘
 
-> 原文:[https://life hacker . com/how-to-securely-dispose-an-SSD-1793336156](https://lifehacker.com/how-to-securely-dispose-of-an-ssd-1793336156)
+> 原文：<https://lifehacker.com/how-to-securely-dispose-of-an-ssd-1793336156>
 
 固态硬盘(SSD) [的工作方式](http://lifehacker.com/how-to-securely-erase-a-solid-state-drive-on-mac-os-x-1580603733) 与硬盘稍有不同，而 [再多的钻孔、消磁或归零](https://lifehacker.com/how-to-erase-and-format-a-hard-drive-1525128357) 实际上也无法正确保护 SSD。如果你需要摆脱固态硬盘，你有几个选择， [加密](https://lifehacker.com/a-beginners-guide-to-encryption-what-it-is-and-how-to-1508196946) 或粉碎。以下是你需要知道的。
 

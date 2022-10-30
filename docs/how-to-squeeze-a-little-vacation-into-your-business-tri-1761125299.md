@@ -1,6 +1,6 @@
 # 如何在你的商务旅行中挤出一点假期
 
-> 原文:[https://life hacker . com/how-to-squeeze a little-vacation to-your business-tri-1761125299](https://lifehacker.com/how-to-squeeze-a-little-vacation-into-your-business-tri-1761125299)
+> 原文：<https://lifehacker.com/how-to-squeeze-a-little-vacation-into-your-business-tri-1761125299>
 
 商务旅行苦乐参半。你去伦敦玩几天，你认为这意味着探索这座城市，但不，你有工作要做。尽管如此，还是有可能腾出一些时间来娱乐。这并不像你想用公司的钱获得一个免费的假期，但是通过一些计划，你可以充分利用你的商务旅行，并且仍然有时间娱乐。
 

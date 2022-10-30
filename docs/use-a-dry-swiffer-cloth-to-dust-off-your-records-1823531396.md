@@ -1,6 +1,6 @@
 # 用一块干抹布擦去唱片上的灰尘
 
-> 原文:[https://life hacker . com/use-a-dry-swiffer-cloth-to-dust-off-your-records-1823531396](https://lifehacker.com/use-a-dry-swiffer-cloth-to-dust-off-your-records-1823531396)
+> 原文：<https://lifehacker.com/use-a-dry-swiffer-cloth-to-dust-off-your-records-1823531396>
 
 如果你是黑胶唱片的拥有者，你可能已经注意到它们往往会吸引灰尘、细毛和喜欢谈论宠物声音优点的人。最后一个我无能为力，但我发现干抹布对去除前两个非常有用。
 

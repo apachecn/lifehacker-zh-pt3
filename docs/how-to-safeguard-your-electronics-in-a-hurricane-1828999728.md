@@ -1,6 +1,6 @@
 # 如何在飓风中保护您的电子产品
 
-> 原文:[https://life hacker . com/how-to-safe-your-electronics-in-a-hurricane-1828999728](https://lifehacker.com/how-to-safeguard-your-electronics-in-a-hurricane-1828999728)
+> 原文：<https://lifehacker.com/how-to-safeguard-your-electronics-in-a-hurricane-1828999728>
 
 应对自然灾害越来越依赖电子通信设备。在毁灭性的风暴过后，你的手机或平板电脑可能是一条真正的生命线——所以它需要实际工作。
 

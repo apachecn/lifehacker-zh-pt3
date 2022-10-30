@@ -1,6 +1,6 @@
 # 婴儿护理必备包
 
-> 原文:[https://life hacker . com/the-baby-care-essentials-bag-1768919061](https://lifehacker.com/the-baby-care-essentials-bag-1768919061)
+> 原文：<https://lifehacker.com/the-baby-care-essentials-bag-1768919061>
 
 如果你要带着宝宝去外面的世界进行一天的短途旅行，你需要一套非常特别的东西。以下是《每日邮报》读者丹·P 带来的内容。
 

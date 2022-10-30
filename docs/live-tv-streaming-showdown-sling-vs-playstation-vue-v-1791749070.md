@@ -1,6 +1,6 @@
 # 直播电视流媒体摊牌:Sling vs Playstation Vue vs DirecTV Now
 
-> 原文:[https://life hacker . com/live-TV-streaming-摊牌-sling-vs-PlayStation-vue-v-1791749070](https://lifehacker.com/live-tv-streaming-showdown-sling-vs-playstation-vue-v-1791749070)
+> 原文：<https://lifehacker.com/live-tv-streaming-showdown-sling-vs-playstation-vue-v-1791749070>
 
 像 Sling、Playstation Vue 和 DirecTV 这样的服务现在可以让你通过互联网观看直播电视，而不必从你的有线电视公司 那里获得 [一个复杂的捆绑包。我们看了一下这三种服务，看看它们是如何相互叠加的。](http://lifehacker.com/the-worst-ways-cable-companies-confuse-you-into-paying-1773089329) 
 

@@ -1,6 +1,6 @@
 # 每当特朗普用 Treespond 说一些关于环境的错误信息时，就种一棵树
 
-> 原文:[https://life hacker . com/plant-a-tree-when-trump-say-something-misinformed-1827957638](https://lifehacker.com/plant-a-tree-whenever-trump-says-something-misinformed-1827957638)
+> 原文：<https://lifehacker.com/plant-a-tree-whenever-trump-says-something-misinformed-1827957638>
 
 如果你对川普总统在气候变化和其他环境问题上的错误想法感到沮丧，现在你可以在他每次使用网站 [Treespond](https://treespond.com/) 发表错误想法时做一些有助于环境的事情。
 

@@ -1,6 +1,6 @@
 # 教女孩们思考她们的身体在做什么，而不是她们看起来怎么样
 
-> 原文:[https://life hacker . com/teach-girls-to-think-what-their-body-do-instead-1797625430](https://lifehacker.com/teach-girls-to-think-about-what-their-bodies-do-instead-1797625430)
+> 原文：<https://lifehacker.com/teach-girls-to-think-about-what-their-bodies-do-instead-1797625430>
 
 你不只是在想象。女孩们在更早的年龄就开始思考自己的理想身材。心理学研究员蕾妮·恩格尔恩在她的书《美丽病态:对外表的文化痴迷如何伤害女孩和女性》中引用了令人愤怒的数据:34%的五岁女孩至少“有时”会刻意限制她们的饮食其中 28%的女孩说她们希望自己的身体看起来像电影和电视中的女性。
 

@@ -1,6 +1,6 @@
 # 借助这款适用于 Windows 10 的独创文件管理器端口，重温 90 年代
 
-> 原文:[https://life hacker . com/revive-the-90s-with this-original-file-manager-port-for-1825114453](https://lifehacker.com/relive-the-90s-with-this-original-file-manager-port-for-1825114453)
+> 原文：<https://lifehacker.com/relive-the-90s-with-this-original-file-manager-port-for-1825114453>
 
 自 20 世纪 90 年代以来，个人电脑已经走过了漫长的道路。我们对重温早期有限的 [Windows 软件](https://www.google.com/search?q=windows+lifehacker&oq=windows+lifehacker&aqs=chrome..69i57j0l5.1778j0j4&sourceid=chrome&ie=UTF-8) 不太感兴趣，但如果你感觉 [怀旧](https://lifehacker.com/the-lonely-nostalgia-youtube-playlist-1823838418) ，微软刚刚发布了其原始文件管理器的旧版本，你现在可以在你现在的电脑上运行。
 

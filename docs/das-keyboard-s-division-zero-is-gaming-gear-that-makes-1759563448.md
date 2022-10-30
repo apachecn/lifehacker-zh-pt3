@@ -1,6 +1,6 @@
 # Das Keyboard 的 Division Zero 是一款让工作变得有趣的游戏设备
 
-> 原文:[https://life hacker . com/das-keyboard-s-division-zero-is-gaming-gear-that-makes-1759563448](https://lifehacker.com/das-keyboard-s-division-zero-is-gaming-gear-that-makes-1759563448)
+> 原文：<https://lifehacker.com/das-keyboard-s-division-zero-is-gaming-gear-that-makes-1759563448>
 
 PC 游戏设备可以很有趣，甚至可以帮助您提高工作效率，但很少能找到为游戏设计的可定制高性能设备，但在完成任务时同样有用。Das Keyboard 的新游戏系列 Division Zero 同时管理这两种游戏，但也有一些警告。
 

@@ -1,6 +1,6 @@
 # 你不能学习你认为你已经知道的东西
 
-> 原文:[https://life hacker . com/you-can-learn-what-you-though-you-think-you-know-know-know 1796095391](https://lifehacker.com/you-cannot-learn-what-you-think-you-already-know-1796095391)
+> 原文：<https://lifehacker.com/you-cannot-learn-what-you-think-you-already-know-1796095391>
 
 欢迎回到 [**周中冥想**](http://lifehacker.com/tag/mid-week-meditations) ，Lifehacker 的每周一次探索斯多葛派智慧之池，以及你如何利用它的水来反思和改善你的生活。
 

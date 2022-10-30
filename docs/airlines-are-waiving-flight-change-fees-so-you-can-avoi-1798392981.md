@@ -1,6 +1,6 @@
 # 航空公司免收航班改签费，这样你就可以避开热带风暴哈维
 
-> 原文:[https://life hacker . com/airlines-are-avoi-so-you-can-avoi-1798392981](https://lifehacker.com/airlines-are-waiving-flight-change-fees-so-you-can-avoi-1798392981)
+> 原文：<https://lifehacker.com/airlines-are-waiving-flight-change-fees-so-you-can-avoi-1798392981>
 
 热带风暴哈维正在向德克萨斯海岸逼近，周五晚上，它将成为强大的飓风 。当地政府正在为紧急情况做准备，但是如果你不在墨西哥湾沿岸，你能做的最好的事情就是远离。
 

@@ -1,6 +1,6 @@
 # 如何在对足球一无所知的情况下通过超级碗李
 
-> 原文:[https://life hacker . com/how-to-fake your way-through 超级碗-李不知情 1791893003](https://lifehacker.com/how-to-fake-your-way-through-super-bowl-li-without-know-1791893003)
+> 原文：<https://lifehacker.com/how-to-fake-your-way-through-super-bowl-li-without-know-1791893003>
 
 超级碗周日举行，亚特兰大猎鹰队和新英格兰爱国者队争夺冠军。无论你对足球一无所知还是今年没有跟上，我们都为你提供了在比赛期间或周一工作时与朋友社交的话题、投注建议等。
 

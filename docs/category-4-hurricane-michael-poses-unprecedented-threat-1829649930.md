@@ -1,6 +1,6 @@
 # 前所未有的“迈克尔”飓风登陆
 
-> 原文:[https://gizmodo . com/category-4-hurricane-Michael-poses-史无前例-threat-1829649930](https://gizmodo.com/category-4-hurricane-michael-poses-unprecedented-threat-1829649930)
+> 原文：<https://gizmodo.com/category-4-hurricane-michael-poses-unprecedented-threat-1829649930>
 
 在击败佛罗伦萨后不到一个月，美国面临另一场历史性的风暴。飓风迈克尔 正以 4 级怪物的身份向佛罗里达州的狭长地带移动。
 

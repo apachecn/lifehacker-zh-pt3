@@ -1,6 +1,6 @@
 # 关于 TaskRabbit 黑客你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-the-task rabbit-hack-1825319011](https://lifehacker.com/what-you-need-to-know-about-the-taskrabbit-hack-1825319011)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-taskrabbit-hack-1825319011>
 
 现在 TaskRabbit 由于某种黑客问题而离线，你将无法使用该服务召唤某人来帮助你完成日常任务。但与房间里隐约可见的大象相比，这只是一件小事:你的账户信息可能已经被泄露了。
 

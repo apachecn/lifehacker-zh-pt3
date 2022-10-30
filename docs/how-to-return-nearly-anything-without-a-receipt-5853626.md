@@ -1,6 +1,6 @@
 # 如何在没有收据的情况下退货
 
-> 原文:[https://life hacker . com/how-to-return-near-any-with-a-receipt-5853626](https://lifehacker.com/how-to-return-nearly-anything-without-a-receipt-5853626)
+> 原文：<https://lifehacker.com/how-to-return-nearly-anything-without-a-receipt-5853626>
 
 无论你收到了一份你真的不喜欢的礼物，还是你很容易丢失收据，没有收据的退货有时会是一个雷区。这里有一些提示和技巧，以确保你拿回你的钱。
 

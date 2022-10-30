@@ -1,6 +1,6 @@
 # “租房就是扔钱”完全是假的
 
-> 原文:[https://life hacker . com/renting-is-through-money-away-is-complete-false-1747050568](https://lifehacker.com/renting-is-throwing-money-away-is-completely-false-1747050568)
+> 原文：<https://lifehacker.com/renting-is-throwing-money-away-is-completely-false-1747050568>
 
 你可能听说过一句古老的谚语“租房就是浪费钱。”这似乎是常识。租的时候什么都不买，买的房子你留着留着。然而，事实远非如此。
 

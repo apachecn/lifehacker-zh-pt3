@@ -1,6 +1,6 @@
 # 如何用 iPhone 拍出更好的烟花照片
 
-> 原文:[https://life hacker . com/how-to-take-better-fireworks-photos-with-your-iphone-1827324154](https://lifehacker.com/how-to-take-better-fireworks-photos-with-your-iphone-1827324154)
+> 原文：<https://lifehacker.com/how-to-take-better-fireworks-photos-with-your-iphone-1827324154>
 
 没有烟花就不是 7 月 4 日的庆祝，没有 Instagram 上充斥着人们可怕的烟花照片也不是 7 月 4 日的第二天。不要像那些人一样。根据这些建议，用你的 iPhone 拍出像样的烟花照片。
 

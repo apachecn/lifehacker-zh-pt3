@@ -1,6 +1,6 @@
 # 你现在就可以应用这些长者的生活见解
 
-> 原文:[https://life hacker . com/you-can-apply-these-elders-life-insights-right-now-1821682652](https://lifehacker.com/you-can-apply-these-elders-life-insights-right-now-1821682652)
+> 原文：<https://lifehacker.com/you-can-apply-these-elders-life-insights-right-now-1821682652>
 
 又是一年，我们又老了一岁。但是不可避免的时间流逝也有光明的一面——我们都在变老，而且老年人比青少年和年轻人有更高的情感幸福感 。我们最快乐的日子不一定要过去。
 

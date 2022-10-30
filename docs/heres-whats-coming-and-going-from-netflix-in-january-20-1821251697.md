@@ -1,6 +1,6 @@
 # 以下是 2018 年 1 月网飞的动向
 
-> 原文:[https://life hacker . com/heres-what-coming-and-away-from -- 1 月 20 日-1821251697](https://lifehacker.com/heres-whats-coming-and-going-from-netflix-in-january-20-1821251697)
+> 原文：<https://lifehacker.com/heres-whats-coming-and-going-from-netflix-in-january-20-1821251697>
 
 新年快到了！如果像 2017 年的过山车一样，在给当地政客打了一整天电话后，你需要一些令人愉快的电影来帮助你减压。这意味着在你等电话的时候看一些好电影。除了一些经典电影外，网飞还提供各种原创内容，非常适合启动你的 2018 年观看 IMDb 电影 100 强的决心。在你错过之前，一定要看看网飞退出的节目和电影。
 

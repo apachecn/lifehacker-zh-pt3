@@ -1,6 +1,6 @@
 # 买隐适美时买什么
 
-> 原文:[https://life hacker . com/what-to-buy-when-you-re-get-invalign-1822677030](https://lifehacker.com/what-to-buy-when-you-re-getting-invisalign-1822677030)
+> 原文：<https://lifehacker.com/what-to-buy-when-you-re-getting-invisalign-1822677030>
 
 假设你成年后需要调整你的牙齿，你的牙齿矫正医生给你安排了隐适美(或竞争对手 ClearCorrect 或 Orthoclear)。他们会给你透明塑料矫正器，一两个病例，也许还有一些固位钉。但是你也应该买这些:
 

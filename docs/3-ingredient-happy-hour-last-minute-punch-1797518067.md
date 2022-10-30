@@ -1,6 +1,6 @@
 # 三要素快乐时光:最后一分钟
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-last-minute-punch-1797518067](https://lifehacker.com/3-ingredient-happy-hour-last-minute-punch-1797518067)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-last-minute-punch-1797518067>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周是《最快乐时光》的特别版，因为我在纽约，所以可以为我的同事调一大碗酒。
 

@@ -1,6 +1,6 @@
 # 我们应该吃三分熟的猪肉
 
-> 原文:[https://the take out . com/we-should-be-eating-middle-same-pork-1828528374](https://thetakeout.com/we-should-be-eating-medium-rare-pork-1828528374)
+> 原文：<https://thetakeout.com/we-should-be-eating-medium-rare-pork-1828528374>
 
 对全熟牛排 的污名并没有延伸到它的白肉表亲猪肉。美国人在烹饪我们的猪排之前不会三思而行，直到它们完全变成白色(接近灰色)，有些人甚至会在吃到粉红色中心的里脊时有点蠕动。但是朋友，那是不对的。为了避免皮鞋猪肉的威胁，我们实际上应该把它煮到三分熟。
 

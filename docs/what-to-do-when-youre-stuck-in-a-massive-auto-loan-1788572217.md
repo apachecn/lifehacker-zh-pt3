@@ -1,6 +1,6 @@
 # 当你陷入巨额汽车贷款时该怎么办
 
-> 原文:[https://jalopnik . com/what-to-do-what-what-what-do-when-you-stick-in-a-massive-auto-loan-1788572217](https://jalopnik.com/what-to-do-when-youre-stuck-in-a-massive-auto-loan-1788572217)
+> 原文：<https://jalopnik.com/what-to-do-when-youre-stuck-in-a-massive-auto-loan-1788572217>
 
 我们都会犯错，有时小错误会导致更大的错误——尤其是在债务方面。很容易摆出一副高高在上的姿态，告诉别人他们应该做什么或不应该做什么；想出解决方案可能要困难得多，这位负债累累的车主需要的是解决办法，而不是更多的判断。
 

@@ -1,6 +1,6 @@
 # 哪里可以免费查询你的信用评分
 
-> 原文:[https://life hacker . com/where-to-check-your-credit-score-free-1825918125](https://lifehacker.com/where-to-check-your-credit-score-for-free-1825918125)
+> 原文：<https://lifehacker.com/where-to-check-your-credit-score-for-free-1825918125>
 
 有了丰富的个人理财应用程序、网站和服务，你不再需要依靠每年从三个主要机构获得的免费信用报告来判断你的财务状况。
 

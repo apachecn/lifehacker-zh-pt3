@@ -1,6 +1,6 @@
 # 你在七月的金钱挑战中表现如何？
 
-> 原文:[https://life hacker . com/how-d-you-do-due-July-s-money-challenge-1797415928](https://lifehacker.com/how-d-you-do-during-july-s-money-challenge-1797415928)
+> 原文：<https://lifehacker.com/how-d-you-do-during-july-s-money-challenge-1797415928>
 
 又是一个月，又是一个挑战。七月的挑战非常简单 :省下你的零钱。如果你参加了，告诉我们你存了多少钱。
 

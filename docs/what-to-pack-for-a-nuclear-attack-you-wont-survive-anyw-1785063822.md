@@ -1,6 +1,6 @@
 # 为核攻击准备什么东西反正你也活不了
 
-> 原文:[https://deadspin . com/what-to-pack-for-a-a-nuclear-attack-you-wot-survive-anyw-1785063822](https://deadspin.com/what-to-pack-for-a-nuclear-attack-you-wont-survive-anyw-1785063822)
+> 原文：<https://deadspin.com/what-to-pack-for-a-nuclear-attack-you-wont-survive-anyw-1785063822>
 
 我大部分时间都在思考两件可怕的事情中的一件:我本可以在大学里玩得更开心，当美国遭到核攻击时会发生什么。(我确实相信这将在我有生之年发生。)核战争和核恐怖主义几乎是世界上最可怕的事情，假装你能活下来可能会给你带来一些内心的平静。作为一个在 DC 和纽约州生活了大半辈子的人——这是两个主要的核打击目标——我对这个问题想了很多。
 

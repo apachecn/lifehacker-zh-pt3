@@ -1,6 +1,6 @@
 # 这个扩展将跟踪你的无意识网页浏览的费用
 
-> 原文:[https://life hacker . com/this-extension-will-track-the-cost-of-your ' s mind-web-1818985777](https://lifehacker.com/this-extension-will-track-the-cost-of-your-mindless-web-1818985777)
+> 原文：<https://lifehacker.com/this-extension-will-track-the-cost-of-your-mindless-web-1818985777>
 
 当然，你需要完成下周的 PowerPoint 演示文稿，但快速检查一下脸书，看看马克是否上传了上周末聚会的照片，这不会有什么坏处。然后从亚马逊快速下单。你真的应该喜欢画廊里的一些照片...很容易在网上浪费几分钟(或几小时)而没有意识到。如果你是一个受虐狂，并且想知道这种无所事事的浏览到底花费了你多少时间和金钱，一个名为“懒惰值得 T2 T3”的火狐和 Chrome 扩展可以帮上忙。它跟踪你的网上冲浪，让你知道什么时候“快速浏览”开始失控。
 

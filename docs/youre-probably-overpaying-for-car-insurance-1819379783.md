@@ -1,6 +1,6 @@
 # 你可能多付了汽车保险
 
-> 原文:[https://life hacker . com/you-possible-over-payed for the car-insurance-1819379783](https://lifehacker.com/youre-probably-overpaying-for-car-insurance-1819379783)
+> 原文：<https://lifehacker.com/youre-probably-overpaying-for-car-insurance-1819379783>
 
 选择汽车保险提供商很像报税。这并不性感或令人兴奋，但你这样做是因为你必须这样做。不过，选择是多种多样的，你只要选择听起来不错或者有最好广告的就行了(...正确).他们中的一些人声称比其他人节省更多的钱，但是你真正节省了多少呢？
 

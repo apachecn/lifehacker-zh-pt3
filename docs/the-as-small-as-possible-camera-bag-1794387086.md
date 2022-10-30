@@ -1,6 +1,6 @@
 # 尽可能小的相机包
 
-> 原文:[https://life hacker . com/the-as-small-as-impossible-camera-bag-1794387086](https://lifehacker.com/the-as-small-as-possible-camera-bag-1794387086)
+> 原文：<https://lifehacker.com/the-as-small-as-possible-camera-bag-1794387086>
 
 有时候，你只需要最简单、最小、最容易的方式来携带相机。在 [对面的](https://oppositelock.kinja.com/) 、 [图集](https://kinja.com/AtlasM) 分享他们的袋子就是为了这个。
 

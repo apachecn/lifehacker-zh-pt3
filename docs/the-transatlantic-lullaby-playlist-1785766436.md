@@ -1,6 +1,6 @@
 # 大西洋彼岸的摇篮曲播放列表
 
-> 原文:[https://life hacker . com/the-trans Atlantic-lumbly-playlist-1785766436](https://lifehacker.com/the-transatlantic-lullaby-playlist-1785766436)
+> 原文：<https://lifehacker.com/the-transatlantic-lullaby-playlist-1785766436>
 
 夏天是旅游的季节。如果你打算出国或回家，你可以在飞机上听点音乐放松一下。这个播放列表将帮助你放松，直到你到达目的地。
 

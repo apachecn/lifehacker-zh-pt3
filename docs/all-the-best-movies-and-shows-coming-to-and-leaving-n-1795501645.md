@@ -1,6 +1,6 @@
 # 所有 2017 年 6 月进出网飞的最佳电影(和节目)
 
-> 原文:[https://life hacker . com/all-the-best-movies-and-shows-coming-to-and-leaving-n-1795501645](https://lifehacker.com/all-the-best-movies-and-shows-coming-to-and-leaving-n-1795501645)
+> 原文：<https://lifehacker.com/all-the-best-movies-and-shows-coming-to-and-leaving-n-1795501645>
 
 你的网飞队列即将进行每月一次的大调整。每个月都会有电视节目和电影从网飞图书馆中被提取出来——这是一个残酷的现实，只有新的内容被添加到平台上才会变得更好。六月也不例外。
 

@@ -1,6 +1,6 @@
 # 把不新鲜的面包变成美味的三种方法
 
-> 原文:[https://life hacker . com/three-ways-to-turn-stable-bread-something-delicious-1796646544](https://lifehacker.com/three-ways-to-turn-stale-bread-into-something-delicious-1796646544)
+> 原文：<https://lifehacker.com/three-ways-to-turn-stale-bread-into-something-delicious-1796646544>
 
 当一条好面包变味了，这很让人难过，但也不完全是悲剧。你可以做几件事来把不新鲜的面包变得如此美味，你可能会故意让好面包变得不新鲜。
 

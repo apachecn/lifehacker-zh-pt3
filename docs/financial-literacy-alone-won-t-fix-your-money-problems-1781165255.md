@@ -1,6 +1,6 @@
 # 光有财务知识不会解决你的金钱问题
 
-> 原文:[https://life hacker . com/financial-literature-alone-won-t-fix-your-money-problems-1781165255](https://lifehacker.com/financial-literacy-alone-won-t-fix-your-money-problems-1781165255)
+> 原文：<https://lifehacker.com/financial-literacy-alone-won-t-fix-your-money-problems-1781165255>
 
 除非你生来富有，否则你可能会遇到金钱问题。财务问题可能是一场斗争，而“财务知识”是培养良好理财习惯的最佳解决方案。创建预算， [学习一些基本规则](https://lifehacker.com/no-matter-what-building-wealth-always-comes-down-to-th-1692215227) ，还有*噗*！我们的钱荒已经解决了。然而，这并不是改善你财务状况的全部。一点也不。
 

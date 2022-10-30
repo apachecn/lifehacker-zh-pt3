@@ -1,6 +1,6 @@
 # 如何拯救你干燥开裂的冬季肌肤
 
-> 原文:[https://life hacker . com/how-to-rescue-your-dry-and-cracked-winter-skin-1822042139](https://lifehacker.com/how-to-rescue-your-dry-and-cracked-winter-skin-1822042139)
+> 原文：<https://lifehacker.com/how-to-rescue-your-dry-and-cracked-winter-skin-1822042139>
 
 快看你的指关节。它们是一场血腥的灾难吗？
 

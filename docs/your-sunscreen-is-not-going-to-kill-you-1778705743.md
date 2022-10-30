@@ -1,6 +1,6 @@
 # 你的防晒霜不会要你的命
 
-> 原文:[https://life hacker . com/your-sun screen-is-not-to-kill-you-1778705743](https://lifehacker.com/your-sunscreen-is-not-going-to-kill-you-1778705743)
+> 原文：<https://lifehacker.com/your-sunscreen-is-not-going-to-kill-you-1778705743>
 
 担心你的防晒霜落在哪里 [环保工作组](https://en.wikipedia.org/wiki/Environmental_Working_Group) 的新 [防晒霜评级](https://www.ewg.org/sunscreen/) ？不要这样。这份清单没有严格的科学依据，任何可能存在的小风险仍然远远大于涂抹防晒霜的好处。
 

@@ -1,6 +1,6 @@
 # 告诉我们你在蒙特利尔的建议
 
-> 原文:[https://life hacker . com/tell-us-your-Montreal-tips-1822679946](https://lifehacker.com/tell-us-your-montreal-tips-1822679946)
+> 原文：<https://lifehacker.com/tell-us-your-montreal-tips-1822679946>
 
 你好！哈哈那只是一个小小的博主玩笑，我不会说法语。我需要说法语才能在蒙特利尔玩得开心吗？当你在这里的时候——呃，为了在蒙特利尔玩得开心，我还需要做什么或不做什么？
 

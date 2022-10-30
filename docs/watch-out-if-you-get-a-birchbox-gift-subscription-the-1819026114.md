@@ -1,6 +1,6 @@
 # 如果你收到一个 Birchbox 礼品订阅，送礼者会得到你的邮寄地址
 
-> 原文:[https://life hacker . com/watch-out-if-you-get-a-birch box-gift-subscription-the-1819026114](https://lifehacker.com/watch-out-if-you-get-a-birchbox-gift-subscription-the-1819026114)
+> 原文：<https://lifehacker.com/watch-out-if-you-get-a-birchbox-gift-subscription-the-1819026114>
 
 希望，任何送你一个 [Birchbox](https://www.birchbox.com/) 礼物订阅的人会是你喜欢和信任的人。但如果他们不是，请注意美容样品订阅箱的赠送系统的这个怪癖。
 

@@ -1,6 +1,6 @@
 # 谷歌地图现在可以告诉你热门餐馆的等待时间
 
-> 原文:[https://life hacker . com/Google-maps-can-now-tell-you-the-wait-times-at-popular-1820218004](https://lifehacker.com/google-maps-can-now-tell-you-the-wait-times-at-popular-1820218004)
+> 原文：<https://lifehacker.com/google-maps-can-now-tell-you-the-wait-times-at-popular-1820218004>
 
 我在旧金山最喜欢的休闲餐厅是一个叫缅甸之恋的缅甸地方。我梦见他们做的浇有发酵茶叶的沙拉，显然，我的很多邻居也是如此。在大多数晚上，餐厅至少要等 45 分钟，有时甚至接近一个半小时。而且他们不接受预订，所以当你到达的时候等待的时间就是它。
 

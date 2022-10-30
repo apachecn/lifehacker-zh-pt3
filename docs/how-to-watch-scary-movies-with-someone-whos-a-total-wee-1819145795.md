@@ -1,6 +1,6 @@
 # 如何和一个彻头彻尾的胆小鬼一起看恐怖电影
 
-> 原文:[https://life hacker . com/how-to-watch-three-movies-someone-a-total-wee-1819145795](https://lifehacker.com/how-to-watch-scary-movies-with-someone-whos-a-total-wee-1819145795)
+> 原文：<https://lifehacker.com/how-to-watch-scary-movies-with-someone-whos-a-total-wee-1819145795>
 
 和一只受惊的猫一起看恐怖电影对双方来说都是一件很糟糕的事情，但是事情不一定是这样的。这些建议会让你恐惧的朋友和家人更容易消化这些恐惧。
 

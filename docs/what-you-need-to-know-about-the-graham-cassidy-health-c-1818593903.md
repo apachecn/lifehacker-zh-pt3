@@ -1,6 +1,6 @@
 # 关于格雷汉姆-卡西迪医疗保健法案(又名僵尸医疗保健法案)，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-the-Graham-Cassidy-health-c-1818593903](https://lifehacker.com/what-you-need-to-know-about-the-graham-cassidy-health-c-1818593903)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-graham-cassidy-health-c-1818593903>
 
 由于预算截止日期，废除奥巴马医改的斗争将在 9 月份结束。就像任何好的戏剧一样，它让我们坐立不安，直到大结局。现在的反派(还是英雄？)，格雷厄姆-卡西迪法案，正在获得动力，可能有机会获得通过。这是里面的内容。
 

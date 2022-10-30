@@ -1,6 +1,6 @@
 # iOS:当你的电池电量低到危险的程度时，如何让你的 iPhone 继续工作
 
-> 原文:[https://life hacker . com/how-to-keep-your-iphone-alive-when-your-batterys-danger-1796898597](https://lifehacker.com/how-to-keep-your-iphone-alive-when-your-batterys-danger-1796898597)
+> 原文：<https://lifehacker.com/how-to-keep-your-iphone-alive-when-your-batterys-danger-1796898597>
 
 过去，当我在城里外出到很晚的时候，我会玩一个令人兴奋的游戏“我的手机能开多久，这样我就可以在回家的路上听音乐了？”我会把手机调到飞行模式，调低亮度，希望它能持续到我回到公寓。
 

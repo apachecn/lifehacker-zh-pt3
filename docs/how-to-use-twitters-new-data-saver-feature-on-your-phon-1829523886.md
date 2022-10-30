@@ -1,6 +1,6 @@
 # 如何在手机上使用 Twitter 的新“数据保存”功能
 
-> 原文:[https://life hacker . com/how-to-use-twitters-new-data-saver-feature-on-your-phon-1829523886](https://lifehacker.com/how-to-use-twitters-new-data-saver-feature-on-your-phon-1829523886)
+> 原文：<https://lifehacker.com/how-to-use-twitters-new-data-saver-feature-on-your-phon-1829523886>
 
 在这一点上，我们大多数人在手机上有一个“无限”的数据计划，所以在很大程度上，我们手机上的应用程序使用多少数据并不重要。你不想要一个不断使用大量数据的应用程序(大多数“无限”计划可能会以节流的速度结束)，但像 Twitter 或脸书这样的东西不会真正显著地移动指针。
 

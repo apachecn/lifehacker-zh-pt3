@@ -1,6 +1,6 @@
 # 如何靠每月 1500 美元在未成年人队混下去
 
-> 原文:[https://deadspin . com/how-to-get-by-the-minors-on-1500-a-month-1784998121](https://deadspin.com/how-to-get-by-in-the-minors-on-1-500-a-month-1784998121)
+> 原文：<https://deadspin.com/how-to-get-by-in-the-minors-on-1-500-a-month-1784998121>
 
 马特·巴累是佐治亚州奥古斯塔市旧金山巨人队的捕手。他似乎不介意和另外三个家伙合租一套两居室。“因为我们有一半时间在路上，所以一个月只有 15 天，”他说。在旅途中，他只和其中一个室友共用一个房间。这种个人空间的缺乏并不特别悲惨，但这与你想象的职业运动员的迷人生活方式相去甚远。
 

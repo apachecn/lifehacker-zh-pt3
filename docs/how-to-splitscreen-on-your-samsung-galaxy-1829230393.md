@@ -1,6 +1,6 @@
 # 如何在三星 Galaxy 上分割屏幕
 
-> 原文:[https://life hacker . com/how-to-split screen-on-your-Samsung-galaxy-1829230393](https://lifehacker.com/how-to-splitscreen-on-your-samsung-galaxy-1829230393)
+> 原文：<https://lifehacker.com/how-to-splitscreen-on-your-samsung-galaxy-1829230393>
 
 对于三星超级用户来说，有一些好消息:由于一个新的名为 MultiStar 的良好锁定插件，你现在可以同时玩网飞和游戏。
 

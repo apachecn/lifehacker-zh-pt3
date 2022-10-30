@@ -1,6 +1,6 @@
 # 龙与地下城背景音乐播放列表
 
-> 原文:[https://life hacker . com/the-地下城-龙-背景-音乐-播放列表-1791140798](https://lifehacker.com/the-dungeons-dragons-background-music-playlist-1791140798)
+> 原文：<https://lifehacker.com/the-dungeons-dragons-background-music-playlist-1791140798>
 
 像 [地下城&龙或者探路者](http://lifehacker.com/tabletop-rpg-showdown-dungeons-dragons-5e-vs-pathfi-1785545326) 这样的桌面游戏在合适的音乐下可以令人难以置信地身临其境。这个播放列表中有你为聚会画一幅画所需要的所有音乐。
 

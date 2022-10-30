@@ -1,6 +1,6 @@
 # 如何明智地对待怀孕和早育
 
-> 原文:[https://life hacker . com/how-to-smart-about-inflation-early mothering-w-1826928492](https://lifehacker.com/how-to-be-smart-about-pregnancy-and-early-motherhood-w-1826928492)
+> 原文：<https://lifehacker.com/how-to-be-smart-about-pregnancy-and-early-motherhood-w-1826928492>
 
 在这一集里，我们将与《像母亲一样的 T1:通过怀孕的科学和文化的女权之旅 的作者安吉拉·加贝斯对话。
 

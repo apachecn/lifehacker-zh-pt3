@@ -1,6 +1,6 @@
 # 你需要知道的关于口红和如何使用它的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-a-1792455600](https://lifehacker.com/everything-you-need-to-know-about-lipstick-and-how-to-a-1792455600)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-lipstick-and-how-to-a-1792455600>
 
 当你想到化妆时，你会想到口红——口红和腮红，可能是。口红是每个人美容日常的基石，也是每个美容包的必需品。这是为数不多的可以单独完成一个外观或成为一个外观的产品之一。有这么多的唇部产品，找到适合你的产品可能是一个挑战，但找到完美的颜色和配方总是，总是值得跑一趟。让我来帮忙！
 

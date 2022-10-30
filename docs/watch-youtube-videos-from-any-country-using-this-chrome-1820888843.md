@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展观看任何国家的 YouTube 视频
 
-> 原文:[https://life hacker . com/watch-YouTube-videos-from-any-country-using-this-chrome-1820888843](https://lifehacker.com/watch-youtube-videos-from-any-country-using-this-chrome-1820888843)
+> 原文：<https://lifehacker.com/watch-youtube-videos-from-any-country-using-this-chrome-1820888843>
 
 从朋友那里获得了 YouTube 上一个音乐视频的链接，却发现自己无法观看，这真是令人沮丧。你可以用一个非常简单的扩展绕过 YouTube 基于位置的限制，坦白地说，每个人都应该安装这个扩展。叫 [F*ck YouTube](https://chrome.google.com/webstore/detail/fck-youtube/mmbfionaddihoimkpiebodbgfmhjolkf) (因为当然是了)。
 

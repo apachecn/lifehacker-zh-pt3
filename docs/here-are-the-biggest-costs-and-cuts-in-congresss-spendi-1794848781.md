@@ -1,6 +1,6 @@
 # 以下是国会支出计划中最大的成本和削减
 
-> 原文:[https://life hacker . com/here-is-the-maximum-costs-cuts-in-congress-spendi-1794848781](https://lifehacker.com/here-are-the-biggest-costs-and-cuts-in-congresss-spendi-1794848781)
+> 原文：<https://lifehacker.com/here-are-the-biggest-costs-and-cuts-in-congresss-spendi-1794848781>
 
 早在三月份，川普提出了一个相当疯狂的预算大纲，即 [将结束一系列重要项目](http://lifehacker.com/these-agencies-would-end-under-trumps-budget-1793351208#_ga=2.75471770.947495714.1493760467-1967309709.1493760467) 。随着国会将于本周批准支出计划，这就是现在的情况。
 

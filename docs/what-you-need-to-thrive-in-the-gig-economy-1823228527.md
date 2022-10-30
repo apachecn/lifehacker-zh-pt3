@@ -1,6 +1,6 @@
 # 在零工经济中你需要什么
 
-> 原文:[https://life hacker . com/what-you-need-to-thrive-in-gig-economy-1823228527](https://lifehacker.com/what-you-need-to-thrive-in-the-gig-economy-1823228527)
+> 原文：<https://lifehacker.com/what-you-need-to-thrive-in-the-gig-economy-1823228527>
 
 如果你能总结一下自由职业者的感受，这与哈佛商学院的一份新报告非常接近:
 

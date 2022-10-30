@@ -1,6 +1,6 @@
 # 告诉我们你的澳大利亚悉尼旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Sydney-Australia-travel-tips-1825964212](https://lifehacker.com/tell-us-your-sydney-australia-travel-tips-1825964212)
+> 原文：<https://lifehacker.com/tell-us-your-sydney-australia-travel-tips-1825964212>
 
 悉尼歌剧院真的存在于灾难电影的全球蒙太奇之外吗？让我们来了解一下！在本周的《黑客城市》节目中，我们将去澳大利亚最大的城市悉尼。
 

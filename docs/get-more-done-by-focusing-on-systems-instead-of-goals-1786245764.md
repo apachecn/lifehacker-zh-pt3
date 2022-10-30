@@ -1,6 +1,6 @@
 # 通过关注系统而不是目标来完成更多工作
 
-> 原文:[https://life hacker . com/get-more-done-by-focusing-on-systems-而不是-goals-1786245764](https://lifehacker.com/get-more-done-by-focusing-on-systems-instead-of-goals-1786245764)
+> 原文：<https://lifehacker.com/get-more-done-by-focusing-on-systems-instead-of-goals-1786245764>
 
 我们都有自己想要在生活中实现的事情——变得更好，建立一个成功的企业，养育一个美好的家庭，写一本畅销书，赢得一个冠军，等等。
 

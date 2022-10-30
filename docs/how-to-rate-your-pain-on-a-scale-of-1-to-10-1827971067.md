@@ -1,6 +1,6 @@
 # 如何从 1 到 10 给你的疼痛打分
 
-> 原文:[https://life hacker . com/how-to-rate-of-a-scale of-1 to-10-1827971067](https://lifehacker.com/how-to-rate-your-pain-on-a-scale-of-1-to-10-1827971067)
+> 原文：<https://lifehacker.com/how-to-rate-your-pain-on-a-scale-of-1-to-10-1827971067>
 
 告诉医疗机构的任何人你受伤了，他们总是想要一个数字。“从 1 到 10 的范围内，疼痛有多严重，”他们问道，“1 代表不痛，10 代表你能想象到的最严重的疼痛？”
 

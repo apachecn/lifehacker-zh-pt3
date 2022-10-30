@@ -1,6 +1,6 @@
 # 这个应用程序将帮助你找到下一个旅行目的地
 
-> 原文:[https://life hacker . com/this-app-will-help-you-find-next-travel-destination-1810807828](https://lifehacker.com/this-app-will-help-you-find-your-next-travel-destinatio-1810807828)
+> 原文：<https://lifehacker.com/this-app-will-help-you-find-your-next-travel-destinatio-1810807828>
 
 Hopper 是 [一个观看航班交易](https://lifehacker.com/hopper-notifies-you-of-airfare-price-drops-on-your-ipho-1682407977) 的有用应用，但他们也希望能够预测你下一步可能想去哪里旅行。他们新的 Flex Watch 功能就像一个数字旅行社，为您的旅行提供个性化建议，为您省钱。
 

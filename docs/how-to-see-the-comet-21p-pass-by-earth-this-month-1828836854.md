@@ -1,6 +1,6 @@
 # 如何看彗星 21P 本月掠过地球
 
-> 原文:[https://life hacker . com/how-to-see-the-comet-21p-pass-by-earth-this-month-1828836854](https://lifehacker.com/how-to-see-the-comet-21p-pass-by-earth-this-month-1828836854)
+> 原文：<https://lifehacker.com/how-to-see-the-comet-21p-pass-by-earth-this-month-1828836854>
 
 彗星 21P/Giacobini Zinner(简称“21P”)正准备近距离掠过地球，如果你幸运的话，你甚至可以亲眼目睹它。
 

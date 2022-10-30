@@ -1,6 +1,6 @@
 # 认识一下 Live OS，它是一个桌面传感器，可以跟踪您的活动
 
-> 原文:[https://life hacker . com/meet-live-OS-a-desk-sensor-the-tracks-your-activity-1796028197](https://lifehacker.com/meet-live-os-a-desk-sensor-that-tracks-your-activity-1796028197)
+> 原文：<https://lifehacker.com/meet-live-os-a-desk-sensor-that-tracks-your-activity-1796028197>
 
 为了提高工作场所的生产率，艾伦椅子和小隔间背后的家具公司赫曼米勒推出了一种桌面传感器，可以收集办公空间使用方式和时间的数据。
 

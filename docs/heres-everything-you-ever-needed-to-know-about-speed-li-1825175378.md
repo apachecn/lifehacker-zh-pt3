@@ -1,6 +1,6 @@
 # 这里是你需要知道的关于速度限制的一切
 
-> 原文:[https://jalopnik . com/heres-everything-you-everything-everything-you-everything-need-to-know-on-speed-Li-1825175378](https://jalopnik.com/heres-everything-you-ever-needed-to-know-about-speed-li-1825175378)
+> 原文：<https://jalopnik.com/heres-everything-you-ever-needed-to-know-about-speed-li-1825175378>
 
 你当然知道你应该遵守张贴的速度限制，但你知道它们最初是如何设定的吗？
 

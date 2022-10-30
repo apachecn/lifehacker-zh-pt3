@@ -1,6 +1,6 @@
 # 看看你的推特粉丝到底有多假
 
-> 原文:[https://life hacker . com/see-exact-how-fake-your-Twitter-followers-are-1829600902](https://lifehacker.com/see-exactly-how-fake-your-twitter-followers-are-1829600902)
+> 原文：<https://lifehacker.com/see-exactly-how-fake-your-twitter-followers-are-1829600902>
 
 我妻子和我的推特粉丝数量差不多——分别是 16k 和 14k 但她的推特数量一直超过我。事实上，根据 Twitter 营销服务 SparkToro 的 SparkScore 工具 的数据，她的一条推文平均获得三倍的转发量，*获得十倍的收藏量。* 
 

@@ -1,6 +1,6 @@
 # 苹果对 MAC 电脑新的外部 GPU 支持对游戏玩家和图形专业人士来说是一个福音
 
-> 原文:[https://gizmodo . com/apple-new-external-GPU-support-for-MAC-is-a-boon-for-1824206108](https://gizmodo.com/apples-new-external-gpu-support-for-macs-is-a-boon-for-1824206108)
+> 原文：<https://gizmodo.com/apples-new-external-gpu-support-for-macs-is-a-boon-for-1824206108>
 
 伴随着昨天对 [iOS 11.3](https://gizmodo.com/you-can-now-download-ios-11-3-to-see-your-terrible-batt-1824183986) 的大更新，苹果也悄悄推出了对 macOS High Sierra 的更新。在新的更新 [(版本 10.13.4](https://support.apple.com/en-us/HT208533) )中包括了许多有帮助的，但不是超级令人兴奋的改进，例如增加了新的隐私图标和数据管理，Safari 中书签的额外排序功能，以及常见的各种错误修复和稳定性增强。如果您没有仔细查看更改日志，您可能会跳过谈论 macOS 新的外部 GPU 支持的那一行。
 

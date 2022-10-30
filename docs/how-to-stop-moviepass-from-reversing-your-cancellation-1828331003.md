@@ -1,6 +1,6 @@
 # 如何阻止 MoviePass 取消您的取消
 
-> 原文:[https://life hacker . com/how-to-stop-movie pass-from-reversing-your-cancellation-1828331003](https://lifehacker.com/how-to-stop-moviepass-from-reversing-your-cancellation-1828331003)
+> 原文：<https://lifehacker.com/how-to-stop-moviepass-from-reversing-your-cancellation-1828331003>
 
 如果您取消了 MoviePass 计划，但希望在当前计划时间用完之前再次使用该计划，则在打开该应用程序时需要小心。Vox 报道称 [MoviePass 已经撤销了一些用户在打开应用程序后](https://www.vox.com/culture/2018/8/14/17687732/moviepass-cant-cancel-opt-in-email-app) 的取消。问题是一个标有“我接受”的模糊按钮
 

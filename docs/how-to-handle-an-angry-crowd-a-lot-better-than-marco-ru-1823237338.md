@@ -1,6 +1,6 @@
 # 如何比马尔科·卢比奥更好地应对愤怒的人群
 
-> 原文:[https://life hacker . com/how-to-hand-an-angry-crowd-a-lot-better-Marco-ru-1823237338](https://lifehacker.com/how-to-handle-an-angry-crowd-a-lot-better-than-marco-ru-1823237338)
+> 原文：<https://lifehacker.com/how-to-handle-an-angry-crowd-a-lot-better-than-marco-ru-1823237338>
 
 昨天，斯通曼道格拉斯高中大规模枪击事件的幸存者在 CNN 市政厅会议上见到了他们的参议员马尔科·卢比奥。(对卢比奥来说)并不顺利。事实上，他和全国步枪协会的女发言人达娜·洛施在论坛上受到了 [的嘲笑和](https://www.nytimes.com/2018/02/21/us/politics/marco-rubio-gun-control-nra.html) 的训话，出席论坛的还有枪击事件的幸存者和一名在大屠杀中遇难的女孩的父亲。《T4 时报》指出，他们很清楚“他们会受到上周大规模枪击事件直接影响的人群的攻击。”
 

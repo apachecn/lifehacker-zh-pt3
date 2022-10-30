@@ -1,6 +1,6 @@
 # 只需十分钟和一把椅子，就能在午休时间锻炼身体
 
-> 原文:[https://life hacker . com/build-fitness-on-your ' s lunch-break-with-just-ten-minutes-1796229682](https://lifehacker.com/build-fitness-on-your-lunch-break-with-just-ten-minutes-1796229682)
+> 原文：<https://lifehacker.com/build-fitness-on-your-lunch-break-with-just-ten-minutes-1796229682>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-t5uj9RCA_Rg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-t5uj9RCA_Rg&start=0) 
 

@@ -1,6 +1,6 @@
 # 告诉我们你的匹兹堡旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Pittsburgh-travel-tips-1828249220](https://lifehacker.com/tell-us-your-pittsburgh-travel-tips-1828249220)
+> 原文：<https://lifehacker.com/tell-us-your-pittsburgh-travel-tips-1828249220>
 
 我有一个来自匹兹堡的好朋友，他从来不说“尹”*【更正:不好意思，“yinz！”]* 总浪费。本周在《黑客你的城市》中，我们将介绍匹兹堡的文化、景点、高质量的生活和苗条的半岛形象。匹兹堡人，你们城市最美好的东西是什么，是大多数人都怀念的？生活黑客健康编辑 [贝丝·斯克沃莱茨基](https://kinja.com/bethskw) 住在匹兹堡，但你能提供一个连她都没听说过的提示吗？
 

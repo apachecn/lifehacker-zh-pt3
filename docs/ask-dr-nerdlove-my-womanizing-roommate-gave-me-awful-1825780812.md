@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我的好色室友给了我糟糕的约会建议
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-women-roommate-give-me-arrest-1825780812](https://kotaku.com/ask-dr-nerdlove-my-womanizing-roommate-gave-me-awful-1825780812)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-womanizing-roommate-gave-me-awful-1825780812>
 
 大家好，欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是攀登 Yggdrasil 高峰的唯一约会建议专栏。
 

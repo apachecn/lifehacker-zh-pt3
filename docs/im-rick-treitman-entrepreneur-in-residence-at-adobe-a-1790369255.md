@@ -1,6 +1,6 @@
 # 我是 Rick Treitman，Adobe 的常驻企业家，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Rick-treitman-entrepreneur-in-resident-at-adobe-a-1790369255](https://lifehacker.com/im-rick-treitman-entrepreneur-in-residence-at-adobe-a-1790369255)
+> 原文：<https://lifehacker.com/im-rick-treitman-entrepreneur-in-residence-at-adobe-a-1790369255>
 
 当你使用一个大软件公司的应用程序时，很容易忘记这些标志背后有个人。里克·特里特曼(Rick Treitman)就是其中之一，他在 Adobe 拥有“常驻企业家”的独特头衔。
 

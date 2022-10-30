@@ -1,6 +1,6 @@
 # 今年让我走出舒适区的四个决心
 
-> 原文:[https://life hacker . com/four-resolutions-that-get-me-out-of-comfort-zone-thi-1749510822](https://lifehacker.com/four-resolutions-that-got-me-out-of-my-comfort-zone-thi-1749510822)
+> 原文：<https://lifehacker.com/four-resolutions-that-got-me-out-of-my-comfort-zone-thi-1749510822>
 
 你的舒适区有什么不可爱的？甚至这个短语本身听起来也不错。我想象一个舒适的角落，在那里我可以独自和满足，远离整个疯狂，不舒服的世界。不幸的是，你也错过了在那个角落的很多很酷的经历，这就是为什么今年，我发誓要强迫自己离开它。
 

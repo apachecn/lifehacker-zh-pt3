@@ -1,6 +1,6 @@
 # 接受你的平庸(我很好！)
 
-> 原文:[https://deadspin . com/accept-your-average-im-fine-1785085412](https://deadspin.com/accept-your-mediocrity-im-fine-1785085412)
+> 原文：<https://deadspin.com/accept-your-mediocrity-im-fine-1785085412>
 
 在你的一生中，有那么一段时间，你会意识到自己是一个相当平庸的人。你可以尝试纠正这种情况的某些方面——锻炼或其他——但是你实际上很难摆脱自己的平庸。(你跑不过它是因为你身材走样了。)
 

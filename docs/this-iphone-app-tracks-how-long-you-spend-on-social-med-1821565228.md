@@ -1,6 +1,6 @@
 # 使用这个 iPhone 应用程序跟踪你在社交媒体上花费的时间
 
-> 原文:[https://life hacker . com/this-iphone-app-tracks-how-long-you-spend-on-social-med-1821565228](https://lifehacker.com/this-iphone-app-tracks-how-long-you-spend-on-social-med-1821565228)
+> 原文：<https://lifehacker.com/this-iphone-app-tracks-how-long-you-spend-on-social-med-1821565228>
 
 你在杂货店排队，所以这似乎是浏览脸书的好时机。但是当你开车回家遇到交通堵塞时，你又做了一次，然后又一次等待晚餐的到来。在你知道之前，你可以在一天中在社交媒体上花费累计的时间，这些时间你永远也不会回来，可以说，这些时间至少有几个小时可以做得更好。
 

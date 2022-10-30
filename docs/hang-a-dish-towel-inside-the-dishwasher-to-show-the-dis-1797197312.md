@@ -1,6 +1,6 @@
 # 在洗碗机里挂一条洗碗巾，展示碗碟是干净的
 
-> 原文:[https://life hacker . com/hang-a-dish-to-show-the-dis-1797197312](https://lifehacker.com/hang-a-dish-towel-inside-the-dishwasher-to-show-the-dis-1797197312)
+> 原文：<https://lifehacker.com/hang-a-dish-towel-inside-the-dishwasher-to-show-the-dis-1797197312>
 
 洗碗机运转完毕后，最好的办法是把所有干净的盘子拿出来放好。最糟糕的事情是拿出几个干净的盘子，然后让其他人过来，搞混了，开始把脏盘子和干净的混在一起。然后盘子需要重新洗，每个人都会为此责怪其他人。
 

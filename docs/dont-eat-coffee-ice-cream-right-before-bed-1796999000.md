@@ -1,6 +1,6 @@
 # 不要在睡觉前吃咖啡冰淇淋
 
-> 原文:[https://life hacker . com/dont-eat-coffee-ice-cream-right-before-bed-1796999000](https://lifehacker.com/dont-eat-coffee-ice-cream-right-before-bed-1796999000)
+> 原文：<https://lifehacker.com/dont-eat-coffee-ice-cream-right-before-bed-1796999000>
 
 咖啡冰淇淋对这个世界来说太好了——它将两种非常好的东西结合在一起，成为一种非常美妙的东西——但是如果你想要高质量的睡眠，你可能不想在睡前吃它。
 

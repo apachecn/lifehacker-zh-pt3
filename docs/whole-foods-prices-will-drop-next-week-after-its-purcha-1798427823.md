@@ -1,6 +1,6 @@
 # 在被亚马逊收购后，全食超市的价格将在下周下降
 
-> 原文:[https://life hacker . com/whole-foods-prices-will-drop-next-week-after-its-purcha-1798427823](https://lifehacker.com/whole-foods-prices-will-drop-next-week-after-its-purcha-1798427823)
+> 原文：<https://lifehacker.com/whole-foods-prices-will-drop-next-week-after-its-purcha-1798427823>
 
 亚马逊对全食超市 [的收购本周获得了联邦贸易委员会](https://www.theverge.com/2017/8/23/16193542/ftc-amazon-whole-foods) 的批准——比任何人预期的如此大规模的交易都要更快更顺利——收购将于 8 月 29 日周一完成。就在那一天，全食超市的一些价格将会下降。
 

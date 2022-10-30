@@ -1,6 +1,6 @@
 # 机场时间是一种受欢迎的不稳定状态
 
-> 原文:[https://life hacker . com/airport-time-is-a-welcome-state-of-limbo-1826421486](https://lifehacker.com/airport-time-is-a-welcome-state-of-limbo-1826421486)
+> 原文：<https://lifehacker.com/airport-time-is-a-welcome-state-of-limbo-1826421486>
 
 对许多人来说，机场是一个充满沮丧和焦虑的地方。但对其他人来说，机场是一个平静的地方，你不存在——没有人存在——我喜欢它。你可以什么都不做，有时，这正是疲惫的旅行者的灵魂所需要的。
 

@@ -1,6 +1,6 @@
 # 如何与女儿的粉红公主相和平共处
 
-> 原文:[https://life hacker . com/how-to-make-peace-yours-pink-princess-PHA-1820280490](https://lifehacker.com/how-to-make-peace-with-your-daughters-pink-princess-pha-1820280490)
+> 原文：<https://lifehacker.com/how-to-make-peace-with-your-daughters-pink-princess-pha-1820280490>
 
 今天早上，我女儿哭了——嗯，她两岁了，所以她每天早上都会为一些事情哭— ,但今天，是因为她不喜欢她的新摩托车头盔。
 

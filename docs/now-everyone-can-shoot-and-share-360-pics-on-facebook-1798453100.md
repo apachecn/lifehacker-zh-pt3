@@ -1,6 +1,6 @@
 # 现在每个人都可以在脸书拍摄和分享 360 张照片
 
-> 原文:[https://life hacker . com/now-every one-can-shot-and-share-360-pics-on-Facebook-1798453100](https://lifehacker.com/now-everyone-can-shoot-and-share-360-pics-on-facebook-1798453100)
+> 原文：<https://lifehacker.com/now-everyone-can-shoot-and-share-360-pics-on-facebook-1798453100>
 
 我痴迷于 360 图片。我是那种讨厌的人，喜欢给我的朋友们看一大张我最近旅行的幻灯片。照片可以很好地展示一个特定的地方，但是 360 度的照片更适合这个任务。有了 360 度的照片，你真的可以向某人展示站在巴黎一个巨大花园的中央，或者站在新加坡一家酒店的屋顶阳台上是什么感觉。脸书允许我上传用 Gear 360 拍摄的照片已经有一年多了，从本周开始，它还为没有 360 度相机的人增加了在应用程序中创建自己的 360 度体验的功能。
 

@@ -1,6 +1,6 @@
 # 你应该掌握的 iPad 手势
 
-> 原文:[https://life hacker . com/the-ipad-gestures-you-should-master-1821817363](https://lifehacker.com/the-ipad-gestures-you-should-master-1821817363)
+> 原文：<https://lifehacker.com/the-ipad-gestures-you-should-master-1821817363>
 
 如果你有一台装有 iOS 11 的 iPad，你可能已经习惯了导航中的新手势。从永远在线的坞站到新的多任务选项，如果你想永远抛弃笔记本电脑，只使用平板电脑，你需要知道如何在屏幕上移动手指。
 

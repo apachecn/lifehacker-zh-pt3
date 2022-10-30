@@ -1,6 +1,6 @@
 # 拱形星云桌面
 
-> 原文:[https://lifehacker.com/the-arch-nebula-desktop-1753224558](https://lifehacker.com/the-arch-nebula-desktop-1753224558)
+> 原文：<https://lifehacker.com/the-arch-nebula-desktop-1753224558>
 
 新年是我们最喜欢的桌面创造者之一 [dobbie03](http://dobbie03.kinja.com/) 的好时机。在这里，他运行的是 Arch Linux，虽然看起来没什么事情，但让我们看看他工作时是什么样子，以及他是如何设置这一切的。
 

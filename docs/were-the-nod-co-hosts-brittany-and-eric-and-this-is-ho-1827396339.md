@@ -1,6 +1,6 @@
 # 我们是《点头》的联合主持人布里特妮和埃里克，这是我们的工作方式
 
-> 原文:[https://life hacker . com/were-the-nod-co-hosts-Brittany-and-Eric-and-this-is-ho-1827396339](https://lifehacker.com/were-the-nod-co-hosts-brittany-and-eric-and-this-is-ho-1827396339)
+> 原文：<https://lifehacker.com/were-the-nod-co-hosts-brittany-and-eric-and-this-is-ho-1827396339>
 
 由布列塔尼·Luse 和埃里克·艾丁斯主持的关于黑人生活和文化的流行 Gimlet 媒体播客 [*The Nod*](http://www.gimletmedia.com/the-nod) ，在结束了第一年的暑假后又回来了。Lus e 和爱丁斯的播客历史比这要长得多，他们在其他 Gimlet 节目中工作，并为有色人种书呆子制作他们的独立播客[](http://www.forcolorednerds.com/)*，该播客已经播放了三年，共 42 集。我们和他们讨论了划分时间、在努力工作时原谅自己，以及可以改变一集的剪辑会议。* 
 

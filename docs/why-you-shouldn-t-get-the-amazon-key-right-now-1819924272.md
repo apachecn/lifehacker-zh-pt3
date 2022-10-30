@@ -1,6 +1,6 @@
 # 为什么你不应该马上获得亚马逊密钥
 
-> 原文:[https://life hacker . com/why-you-should-get-the-Amazon-key-right-now-1819924272](https://lifehacker.com/why-you-shouldn-t-get-the-amazon-key-right-now-1819924272)
+> 原文：<https://lifehacker.com/why-you-shouldn-t-get-the-amazon-key-right-now-1819924272>
 
 本周，亚马逊发布了亚马逊钥匙，这是一种新的选择 ，当你不在家时，给司机一把特殊的数字钥匙，就可以送货上门。在兼容的智能锁和安全摄像头的帮助下，送货司机将能够打开你的前门，走进去递送你的包裹，而你可以通过智能手机观看这一切。如果你重视方便胜过安全，那么无论如何，请自便。但安全风险、隐私担忧和令人毛骨悚然的图像分析细节足以说明，至少在你看到该技术的早期版本如何发挥作用之前，推迟可能是更安全的选择。
 

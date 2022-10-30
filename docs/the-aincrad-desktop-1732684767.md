@@ -1,6 +1,6 @@
 # Aincrad 桌面
 
-> 原文:[https://lifehacker.com/the-aincrad-desktop-1732684767](https://lifehacker.com/the-aincrad-desktop-1732684767)
+> 原文：<https://lifehacker.com/the-aincrad-desktop-1732684767>
 
 看，你可以爱或恨骚，但这个桌面很好看，而且来自频繁的 Jalop 评论者， [jester74](http://kinja.com/jester74) 。这是一个好看的 Linux 桌面，而且设置简单。
 

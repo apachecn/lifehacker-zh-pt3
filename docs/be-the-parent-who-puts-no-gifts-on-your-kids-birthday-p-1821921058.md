@@ -1,6 +1,6 @@
 # 做一个在孩子的生日聚会邀请函上写着“不送礼物”的家长
 
-> 原文:[https://life hacker . com/be-the-parent-who-put-no-gifts-on-your-kids-birthday-p-1821921058](https://lifehacker.com/be-the-parent-who-puts-no-gifts-on-your-kids-birthday-p-1821921058)
+> 原文：<https://lifehacker.com/be-the-parent-who-puts-no-gifts-on-your-kids-birthday-p-1821921058>
 
 做一个颠覆者并不容易。你开辟的任何新道路，都必然会遭到反对。但现在是 2018 年，我只是觉得这是大胆姿态的一年。是时候了。
 

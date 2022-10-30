@@ -1,6 +1,6 @@
 # 灵感桌面
 
-> 原文:[https://lifehacker.com/the-inspirate-desktop-1735177729](https://lifehacker.com/the-inspirate-desktop-1735177729)
+> 原文：<https://lifehacker.com/the-inspirate-desktop-1735177729>
 
 读者 [willemvdm](http://kinja.com/willemvdm) 有一个简单、外观鲜明的桌面，它利用了可用的空间，并在适当的位置放置了一些有用的小部件，提供实际有用的信息。他是这样设计的。
 

@@ -1,6 +1,6 @@
 # 学生的最佳笔记应用
 
-> 原文:[https://life hacker . com/the-best-note-taking-apps-for-students-1784974783](https://lifehacker.com/the-best-note-taking-apps-for-students-1784974783)
+> 原文：<https://lifehacker.com/the-best-note-taking-apps-for-students-1784974783>
 
 无论你是在高中还是大学，你都要花很多时间做笔记。你 [有几个很好的选择来这样做](http://lifehacker.com/five-best-note-taking-applications-30803800#_ga=1.4591547.968941705.1436971740) ，哪一个最适合你在很大程度上取决于你的笔记风格。最好是选择软件并坚持使用，这样你就不用担心以后要移动东西了。以下是如何从一开始就做出正确选择的方法。
 

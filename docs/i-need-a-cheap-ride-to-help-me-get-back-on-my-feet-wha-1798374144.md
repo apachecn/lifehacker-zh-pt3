@@ -1,6 +1,6 @@
 # 我需要一辆便宜的车来帮我重新站起来！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-price-ride-help-me-back-on-my-foot-wha-1798374144](https://jalopnik.com/i-need-a-cheap-ride-to-help-me-get-back-on-my-feet-wha-1798374144)
+> 原文：<https://jalopnik.com/i-need-a-cheap-ride-to-help-me-get-back-on-my-feet-wha-1798374144>
 
 乔经历了一段艰难的时期。去年，他丢了工作，随后又丢了公寓和汽车。但事情正在好转，他需要一辆负担得起且可靠的车，让他重回正轨。他应该买什么车？
 

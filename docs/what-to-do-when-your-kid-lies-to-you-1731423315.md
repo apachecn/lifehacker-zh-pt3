@@ -1,6 +1,6 @@
 # 当你的孩子对你撒谎时该怎么办
 
-> 原文:[https://life hacker . com/1731423315](https://lifehacker.com/what-to-do-when-your-kid-lies-to-you-1731423315)
+> 原文：<https://lifehacker.com/what-to-do-when-your-kid-lies-to-you-1731423315>
 
 一个典型的四岁孩子大约每两个小时说谎一次，根据 [一些研究](http://www.ncbi.nlm.nih.gov/pmc/articles/PMC3788848/) 。一个典型的六岁小孩说谎的次数甚至更多(每小时)！各位家长:对于这种欺骗，我们该怎么办？我们怎样才能与孩子建立信任，防止他们成长为精神病患者？这是我现在正在学习处理的困境。
 

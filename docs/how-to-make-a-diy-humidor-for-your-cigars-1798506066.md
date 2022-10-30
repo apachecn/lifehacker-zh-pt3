@@ -1,6 +1,6 @@
 # 如何为你的雪茄制作一个 DIY 雪茄盒
 
-> 原文:[https://life hacker . com/how-to-make-a-DIY --雪茄保湿盒-1798506066](https://lifehacker.com/how-to-make-a-diy-humidor-for-your-cigars-1798506066)
+> 原文：<https://lifehacker.com/how-to-make-a-diy-humidor-for-your-cigars-1798506066>
 
 如果你是雪茄迷，你需要一个地方来保存它们，这样它们会保持新鲜，随时可以抽。但是一个好的雪茄盒大约要花 100 美元。以下是你如何用更少的钱自己造一个。
 

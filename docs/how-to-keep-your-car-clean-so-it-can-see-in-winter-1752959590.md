@@ -1,6 +1,6 @@
 # 如何保持你的车干净，让它在冬天也能“看得见”
 
-> 原文:[https://jalopnik . com/how-to-keep-your car-clean-so-it-see-in-winter-1752959590](https://jalopnik.com/how-to-keep-your-car-clean-so-it-can-see-in-winter-1752959590)
+> 原文：<https://jalopnik.com/how-to-keep-your-car-clean-so-it-can-see-in-winter-1752959590>
 
 冬天开车，总的来说，是件痛苦的事。这通常从早上刮挡风玻璃和清除积雪开始，这样你就可以看得更清楚，可以开车了。但是你的车呢？许多现代汽车也需要“看”，所有的冰雪都挡在路上。以下是提供帮助的方法。
 

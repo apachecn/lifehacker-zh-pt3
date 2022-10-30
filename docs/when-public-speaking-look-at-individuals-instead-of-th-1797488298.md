@@ -1,6 +1,6 @@
 # 当公开演讲时，看着个人而不是整个团队
 
-> 原文:[https://life hacker . com/when-public-speaking-look-at-individuals-而不是-th-1797488298](https://lifehacker.com/when-public-speaking-look-at-individuals-instead-of-th-1797488298)
+> 原文：<https://lifehacker.com/when-public-speaking-look-at-individuals-instead-of-th-1797488298>
 
 下一次你被要求主持会议、授课或演讲时，这里有一个方法可以引起每个人的注意:看着个人，而不是让你的目光停留在整个群体上。
 

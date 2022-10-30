@@ -1,6 +1,6 @@
 # 我们尝试了马克·扎克伯格在照片中显得更高的技巧
 
-> 原文:[https://life hacker . com/we-tryed-mark-Zuckerberg-tricks-for-looking-taller-in-1797141373](https://lifehacker.com/we-tried-mark-zuckerbergs-tricks-for-looking-taller-in-1797141373)
+> 原文：<https://lifehacker.com/we-tried-mark-zuckerbergs-tricks-for-looking-taller-in-1797141373>
 
 你不觉得马克·扎克伯格很高吗？根据 2010 年《纽约客》的一份简介，他“只有大约 5 英尺 8 英寸，但他看起来更高，因为他挺胸站着，背部挺直，好像被一根绳子支撑着。”*连线*作家 Graham Starr 认为 Zuck 看起来很高还有另一个原因:他把自己的照片放大。
 

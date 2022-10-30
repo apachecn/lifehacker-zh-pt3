@@ -1,6 +1,6 @@
 # 使用此应用程序来查看是否有人在摆弄您的 MacBook
 
-> 原文:[https://life hacker . com/how-to-find-if someone-tampered-with-your macbook-1825688200](https://lifehacker.com/how-to-find-out-if-someone-messed-with-your-macbook-1825688200)
+> 原文：<https://lifehacker.com/how-to-find-out-if-someone-messed-with-your-macbook-1825688200>
 
 确保没有人试图打开、登录或摆弄你的 MacBook 的最好方法是确保他们没有物理接触到你的笔记本电脑。这并不总是可能的。
 

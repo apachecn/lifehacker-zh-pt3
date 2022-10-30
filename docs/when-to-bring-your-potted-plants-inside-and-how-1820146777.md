@@ -1,6 +1,6 @@
 # 何时以及如何把你的盆栽植物带进来
 
-> 原文:[https://life hacker . com/when-to-bring your-pot-plants-in-how-1820146777](https://lifehacker.com/when-to-bring-your-potted-plants-inside-and-how-1820146777)
+> 原文：<https://lifehacker.com/when-to-bring-your-potted-plants-inside-and-how-1820146777>
 
 随着冬天的到来，气温逐渐下降，所以是时候开始考虑什么时候把盆栽植物带进来了。好的，这部分很简单:当夜间温度下降到 45 华氏度时，把你的植物带进来。但是在你这样做之前，确保你做得对。
 

@@ -1,6 +1,6 @@
 # 使用这些密码解锁网飞的隐藏类别
 
-> 原文:[https://gizmodo . com/use-these-secret-codes-to-unlock-netflixs-hidden-catego-1751536273](https://gizmodo.com/use-these-secret-codes-to-unlock-netflixs-hidden-catego-1751536273)
+> 原文：<https://gizmodo.com/use-these-secret-codes-to-unlock-netflixs-hidden-catego-1751536273>
 
 这里有一个已经在 [出现了一段时间](http://gizmodo.com/netflix-has-a-whopping-76-897-ways-to-describe-movies-1493206216) 却可能与你擦肩而过的技巧:网飞工程师添加的秘密类别代码，可以帮助你缩小点播视频的选择范围。从经典战争电影到巴西戏剧，以下是如何深入挖掘网飞图书馆的方法。
 

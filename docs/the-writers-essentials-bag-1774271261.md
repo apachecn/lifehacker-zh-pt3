@@ -1,6 +1,6 @@
 # 作家必备包
 
-> 原文:[https://life hacker . com/the-writers-essentials-bag-1774271261](https://lifehacker.com/the-writers-essentials-bag-1774271261)
+> 原文：<https://lifehacker.com/the-writers-essentials-bag-1774271261>
 
 简单是你在一个包里真正需要的，reader [Crystal C 的](http://crystalchen.kinja.com/) 就是一个很好的例子。里面装着她写作的必需品，既干净又轻便。
 

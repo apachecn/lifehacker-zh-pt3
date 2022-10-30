@@ -1,6 +1,6 @@
 # 如果我们都停止发短信，约会可能会变得更好
 
-> 原文:[https://life hacker . com/dating-may-get-better-if-we-stop-texting-1829632861](https://lifehacker.com/dating-might-get-better-if-we-all-stopped-texting-1829632861)
+> 原文：<https://lifehacker.com/dating-might-get-better-if-we-all-stopped-texting-1829632861>
 
 你能在手机上收到的最令人兴奋的通知之一是来自你暗恋对象/现任 bae 的新消息。最焦虑的感觉之一就是等待通知的到来。如果我们在恋爱关系中完全不发短信会怎么样？
 

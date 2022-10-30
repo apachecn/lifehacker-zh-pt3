@@ -1,6 +1,6 @@
 # 真正值得使用的 Windows 10 应用
 
-> 原文:[https://life hacker . com/the-windows-10-apps-that-actually-value-use-1741930918](https://lifehacker.com/the-windows-10-apps-that-are-actually-worth-using-1741930918)
+> 原文：<https://lifehacker.com/the-windows-10-apps-that-are-actually-worth-using-1741930918>
 
 微软对 Windows 10 的新通用应用 大做文章。虽然一些开发人员赶不上潮流，但也有一些人专门为 Windows 10 开发了新版本的应用程序，值得一看。
 

@@ -1,6 +1,6 @@
 # 为不熟悉枪械的人准备的枪械术语表
 
-> 原文:[https://life hacker . com/a-gun-lingo-glossary-for 那些不熟悉枪支的人-1825427596](https://lifehacker.com/a-gun-lingo-glossary-for-those-unfamiliar-with-firearms-1825427596)
+> 原文：<https://lifehacker.com/a-gun-lingo-glossary-for-those-unfamiliar-with-firearms-1825427596>
 
 最近媒体上有很多枪支术语，比如“弹夹”、“弹壳”和“半自动”但如果你不熟悉枪械，这些术语中的许多可能会让你摸不着头脑。这份常见枪支术语表将有助于理清事情，让你成为对话中知情的一员。
 

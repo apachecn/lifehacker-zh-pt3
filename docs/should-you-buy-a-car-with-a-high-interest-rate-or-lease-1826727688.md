@@ -1,6 +1,6 @@
 # 应该高息买车还是租赁代替？
 
-> 原文:[https://life hacker . com/should-you-buy-a-car with-a-high-interest-or-lease-1826727688](https://lifehacker.com/should-you-buy-a-car-with-a-high-interest-rate-or-lease-1826727688)
+> 原文：<https://lifehacker.com/should-you-buy-a-car-with-a-high-interest-rate-or-lease-1826727688>
 
 你应该满足于汽车贷款的高利率，还是有更好的融资选择？这就是我们这周要看的。
 

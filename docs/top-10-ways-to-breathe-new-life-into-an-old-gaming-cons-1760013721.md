@@ -1,6 +1,6 @@
 # 给旧游戏机注入新生命的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-breathe-new-life-into-a-old-gaming-cons-1760013721](https://lifehacker.com/top-10-ways-to-breathe-new-life-into-an-old-gaming-cons-1760013721)
+> 原文：<https://lifehacker.com/top-10-ways-to-breathe-new-life-into-an-old-gaming-cons-1760013721>
 
 如果你已经玩了一段时间的视频游戏，很有可能你的娱乐中心里至少有一台游戏机不工作，这很糟糕。不要让你的老朋友坐在那里收集灰尘和污垢，给它一个新的生命——或者找一个愿意的人。以下是方法。
 

@@ -1,6 +1,6 @@
 # 我是达斯丁·韦尔奇，视频游戏开发者，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-dusty-Welch-video-game-developer-and-this-is-how-I-1788203395](https://lifehacker.com/im-dusty-welch-video-game-developer-and-this-is-how-i-1788203395)
+> 原文：<https://lifehacker.com/im-dusty-welch-video-game-developer-and-this-is-how-i-1788203395>
 
 达斯丁·韦尔奇是个游戏玩家。他是 [重生娱乐](http://www.respawn.com/) 的首席运营官， [泰坦陨落](http://www.titanfall.com/en_us/) 背后的独立游戏开发工作室。但他开始创造另一个你可能听说过的流行系列:【使命召唤】。
 

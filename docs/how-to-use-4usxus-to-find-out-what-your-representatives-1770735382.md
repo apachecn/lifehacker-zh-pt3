@@ -1,6 +1,6 @@
 # 如何使用 4USXUS 了解你的代表在国会做什么
 
-> 原文:[https://life hacker . com/how-to-use-4 us xus-to-find-out-what-your-representatives-1770735382](https://lifehacker.com/how-to-use-4usxus-to-find-out-what-your-representatives-1770735382)
+> 原文：<https://lifehacker.com/how-to-use-4usxus-to-find-out-what-your-representatives-1770735382>
 
 每个人都听说过关注国会有多重要，尤其是在选举季节，但是我们当中有多少人真正知道如何去做呢？ [4USXUS](https://4usxus.com/) 是我新喜欢的工具，因为它让事情变得简单。或者至少，像政治本身一样简单。
 

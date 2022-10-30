@@ -1,6 +1,6 @@
 # 当你的宝宝在 NICU 时如何保持理智
 
-> 原文:[https://life hacker . com/how-to-stay-sane-when-your ' s baby in-the-NICU-1828298064](https://lifehacker.com/how-to-stay-sane-when-your-baby-is-in-the-nicu-1828298064)
+> 原文：<https://lifehacker.com/how-to-stay-sane-when-your-baby-is-in-the-nicu-1828298064>
 
 Amanda Sloane 在分娩两天后从医院回家，她把刚出生的女儿 Emerie 留在新生儿重症监护室(NICU)。斯隆两手空空地被推出前门时，她经过一个又一个带着新生婴儿离开的轮椅。每次她回来，都会经过一排新的妈妈。
 

@@ -1,6 +1,6 @@
 # 在这些州，你的低信用分数意味着更高的汽车保险费
 
-> 原文:[https://jalopnik . com/your-low-credit-score-mean-higher-car-insurance-paymen-1828354977](https://jalopnik.com/your-low-credit-score-means-higher-car-insurance-paymen-1828354977)
+> 原文：<https://jalopnik.com/your-low-credit-score-means-higher-car-insurance-paymen-1828354977>
 
 车险要简单。如果你是一个安全的司机，你应该比那些更容易发生事故的人支付更少的费用。但是我们都知道事情不是这样的。许多其他因素也决定了你的利率，包括你的信用评分。最近的一项研究表明，取决于你住在哪里，你的保险公司是谁，你的信用会有很大的影响。
 

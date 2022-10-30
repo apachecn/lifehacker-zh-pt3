@@ -1,6 +1,6 @@
 # 你的感恩节晚餐烹饪、服务和清理的完整时间表
 
-> 原文:[https://life hacker . com/your-complete-timeline-for-get-感恩节晚餐-1820414610](https://lifehacker.com/your-complete-timeline-for-getting-thanksgiving-dinner-1820414610)
+> 原文：<https://lifehacker.com/your-complete-timeline-for-getting-thanksgiving-dinner-1820414610>
 
 感恩节晚餐是一场舞会。由于家庭和全国狗展——这只是一个由普瑞纳赞助的饮酒游戏——这是一种我们通常在分心时表演的舞蹈。完成这种特殊舞蹈的关键是要有一个书面的时间表。计划给你自由，因为即使你喝醉了，你也可以看看时间表回到正轨。我不需要记住任何事情，所以我真的很享受我的陪伴。除了有一个书面的攻击计划，还有一些其他的策略你可以用来确保火鸡日顺利进行。
 

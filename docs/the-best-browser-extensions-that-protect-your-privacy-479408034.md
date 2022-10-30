@@ -1,6 +1,6 @@
 # 保护您隐私的最佳浏览器扩展
 
-> 原文:[https://life hacker . com/the-best-browser-extensions-that-protect-your-privacy-479408034](https://lifehacker.com/the-best-browser-extensions-that-protect-your-privacy-479408034)
+> 原文：<https://lifehacker.com/the-best-browser-extensions-that-protect-your-privacy-479408034>
 
 有大量的浏览器扩展承诺保护你的隐私，这导致了一些自然的问题:哪个是最好的？他们都做同样的事情吗？我到底应该下载什么？在本指南中，我们将看看承诺保护您在线隐私的最流行的浏览器扩展，并给你我们的建议。
 

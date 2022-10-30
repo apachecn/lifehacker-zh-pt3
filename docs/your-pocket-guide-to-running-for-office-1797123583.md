@@ -1,6 +1,6 @@
 # 你竞选公职的袖珍指南
 
-> 原文:[https://Jezebel . com/your-pocket-guide-to-running-for-office-1797123583](https://jezebel.com/your-pocket-guide-to-running-for-office-1797123583)
+> 原文：<https://jezebel.com/your-pocket-guide-to-running-for-office-1797123583>
 
 随着唐纳德·川普的几乎全男性俱乐部将美国推向一场宪法危机，数量空前的受够了的女性 [正在考虑竞选](https://www.thecut.com/2017/02/an-unprecedented-number-of-women-plan-to-run-for-office.html) 公职。虽然现在有比以往更多的 [资源和组织](http://theslot.jezebel.com/stop-looking-to-the-left-or-right-after-the-march-500-1791516302#_ga=2.243557639.348316787.1500239671-1083649375.1402934526) 来帮助女性规划这一旅程，但想想仍然令人生畏——现实地说，你甚至从哪里开始呢？
 

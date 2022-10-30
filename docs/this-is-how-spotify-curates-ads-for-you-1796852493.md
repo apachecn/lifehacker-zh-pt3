@@ -1,6 +1,6 @@
 # 这就是 Spotify 为你策划广告的方式
 
-> 原文:[https://life hacker . com/this-is-how-Spotify-curates-ads-for-you-1796852493](https://lifehacker.com/this-is-how-spotify-curates-ads-for-you-1796852493)
+> 原文：<https://lifehacker.com/this-is-how-spotify-curates-ads-for-you-1796852493>
 
 如果你喜欢制作播放列表，你更有可能购买视频游戏。这是 Spotify 为其新工具[Spotify](http://spotify.me)收集的一些 [数据。Me](https://spotifyforbrands.com/us/feature/streaming-habits/) ，帮助品牌利用人们的倾听习惯来预测他们的性格特征，更好地向他们营销产品。
 

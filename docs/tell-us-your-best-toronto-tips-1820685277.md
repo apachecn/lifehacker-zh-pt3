@@ -1,6 +1,6 @@
 # 告诉我们你在多伦多的最佳建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Toronto-tips-1820685277](https://lifehacker.com/tell-us-your-best-toronto-tips-1820685277)
+> 原文：<https://lifehacker.com/tell-us-your-best-toronto-tips-1820685277>
 
 多伦多是我参观的第一个大城市。与我的家乡罗切斯特相比，多伦多基本上就是东京。我喜欢人群的推动，商店的多样性。我穿过街道寻找乐趣，只是为了感受被横扫而过的感觉。我买了不合身的军队多余的外套，只是为了感觉自己是旧货店的一部分，和我在家里看到的任何东西都不一样。这座拥有 270 万人口的多元化城市是加拿大最大的城市，夹在同样大小的芝加哥和坦率地说过于庞大的纽约之间，仍然保持着一点小城镇的友情。
 

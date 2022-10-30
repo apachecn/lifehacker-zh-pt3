@@ -1,6 +1,6 @@
 # 苹果在 MacBook 发布会上宣布的所有真正重要的东西
 
-> 原文:[https://life hacker . com/everything-apple-announced-at-macbook-event-that-AC-1788288852](https://lifehacker.com/everything-apple-announced-at-the-macbook-event-that-ac-1788288852)
+> 原文：<https://lifehacker.com/everything-apple-announced-at-the-macbook-event-that-ac-1788288852>
 
 苹果今天的特别活动聚焦于硬件。大新闻是全新版本的 MacBook，它包括一个花哨的触摸屏来代替功能键，但他们也宣布了一个新的电视应用程序和一些小的 Apple TV 改进。
 

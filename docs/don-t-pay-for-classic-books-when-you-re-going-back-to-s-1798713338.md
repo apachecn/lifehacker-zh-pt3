@@ -1,6 +1,6 @@
 # 当你回到学校时，不要为经典书籍付钱
 
-> 原文:[https://life hacker . com/don-t-pay-for-classic-books-when-you-re-to-s-1798713338](https://lifehacker.com/don-t-pay-for-classic-books-when-you-re-going-back-to-s-1798713338)
+> 原文：<https://lifehacker.com/don-t-pay-for-classic-books-when-you-re-going-back-to-s-1798713338>
 
 如果你要回学校，毫无疑问你已经有了一长串必读材料。无论是像《了不起的盖茨比》这样的经典之作，还是像《T2》这样的晦涩之作，《永别了，武器》(T3)，你都应该避免在支付一学期的教科书费用之外再花更多的钱。如果你正在寻找大量的文学作品，你可以找到大量的免费阅读资源，而且你基本上可以在任何地方阅读，即使你不能走进图书馆。
 

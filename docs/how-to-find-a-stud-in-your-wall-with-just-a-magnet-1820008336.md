@@ -1,6 +1,6 @@
 # 如何只用一块磁铁在你的墙上找到一个饰钉
 
-> 原文:[https://life hacker . com/how-to-find-a-stud-in-your-wall-just-a-magnet-1820008336](https://lifehacker.com/how-to-find-a-stud-in-your-wall-with-just-a-magnet-1820008336)
+> 原文：<https://lifehacker.com/how-to-find-a-stud-in-your-wall-with-just-a-magnet-1820008336>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-B74_uprsRws&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-B74_uprsRws&start=0) 
 

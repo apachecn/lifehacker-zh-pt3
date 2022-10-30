@@ -1,6 +1,6 @@
 # 你会想要反复制作这些调味茶叶蛋
 
-> 原文:[https://life hacker . com/youll-want-to-make-these-调味茶叶蛋 over-and-ove-1798514929](https://lifehacker.com/youll-want-to-make-these-seasoned-tea-eggs-over-and-ove-1798514929)
+> 原文：<https://lifehacker.com/youll-want-to-make-these-seasoned-tea-eggs-over-and-ove-1798514929>
 
 如果你最喜欢的一碗热拉面是调味鸡蛋，你会喜欢的。你会喜欢他们是多么容易，使更多。
 

@@ -1,6 +1,6 @@
 # 这种蓝莓酱适合搭配任何肉类
 
-> 原文:[https://life hacker . com/this-blueberry-pan-sauce-is-good-on-any-meat-1825831945](https://lifehacker.com/this-blueberry-pan-sauce-is-good-on-any-meat-1825831945)
+> 原文：<https://lifehacker.com/this-blueberry-pan-sauce-is-good-on-any-meat-1825831945>
 
 通常，当我想到蓝莓时，我会想到松饼、馅饼和蓝莓之晨——这是一种我从 9 岁到 12 岁都痴迷的谷类食品。这些都是好东西，但我敦促你重新考虑蓝莓，用这种多汁、惊人平衡的潘酱来包裹牛排、排骨和野味。
 

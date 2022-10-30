@@ -1,6 +1,6 @@
 # 用这款 Spotify 关联应用为你的朋友做 DJ
 
-> 原文:[https://life hacker . com/DJ-using-Spotify-with-this-new-app-1822731408](https://lifehacker.com/dj-using-spotify-with-this-new-app-1822731408)
+> 原文：<https://lifehacker.com/dj-using-spotify-with-this-new-app-1822731408>
 
 虽然混音带早已过时，但您可能仍在寻找一种新的方式来与同事分享您的最新周末混音，或者通过一起收听您最喜欢的歌曲来与全国各地的朋友保持联系。现在，你可以使用 JQBX 分享播放列表，为歌曲投票，并通过 Spotify 帐户将你的音乐品味借给每个人。
 

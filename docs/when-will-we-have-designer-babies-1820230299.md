@@ -1,6 +1,6 @@
 # 我们什么时候会有名牌婴儿？
 
-> 原文:[https://gizmodo . com/when-will-we ' s have-designer-babies-1820230299](https://gizmodo.com/when-will-we-have-designer-babies-1820230299)
+> 原文：<https://gizmodo.com/when-will-we-have-designer-babies-1820230299>
 
 在 20 到 40 年内，性将不再是首选的生殖方式。取而代之的是，拥有良好医疗保健的一半人口将——不骗你——拥有从人类皮肤中培育的卵子并与精子受精，然后对大约 100 个胚胎样本的整个基因组进行测序，仔细阅读最重要的部分，并选择最佳模型进行移植。至少这是斯坦福大学法学教授兼生物伦理学家汉克·格里利在《T2:性的终结和人类生殖的未来》中所预言的。除了皮肤生长的人类，我们还要多久才能拥有“设计婴儿”？
 

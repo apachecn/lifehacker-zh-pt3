@@ -1,6 +1,6 @@
 # 总是截图你的登机牌
 
-> 原文:[https://life hacker . com/always-screen-your-登机牌-1828656497](https://lifehacker.com/always-screenshot-your-boarding-pass-1828656497)
+> 原文：<https://lifehacker.com/always-screenshot-your-boarding-pass-1828656497>
 
 您的手机登机牌应该始终离您的主屏幕有一两次点击。你的电子邮件或短信里有它的链接，或者你确定你把它放进了苹果钱包。但是，当你走到美国运输安全管理局的服务台时，机场的无线信号正在减弱，这并不总是足够好的。一直截图。
 

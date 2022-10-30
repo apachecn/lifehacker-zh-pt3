@@ -1,6 +1,6 @@
 # 2018 年 Tech 最佳学生折扣
 
-> 原文:[https://life hacker . com/life hacker-年度最佳学生折扣名单-f-1828461348](https://lifehacker.com/lifehackers-annual-list-of-the-best-student-discounts-f-1828461348)
+> 原文：<https://lifehacker.com/lifehackers-annual-list-of-the-best-student-discounts-f-1828461348>
 
 返校时间最美好的部分不是你突然有作业和一大堆社交日历要处理的时候；这是学生折扣。获得免费或打折的硬件和软件通常要花很多钱，这种感觉很棒，你一定要尽可能多地利用(使用你的大学电子邮件地址)。
 

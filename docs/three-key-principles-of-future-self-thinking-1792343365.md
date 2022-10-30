@@ -1,6 +1,6 @@
 # “未来自我”思考的三个关键原则
 
-> 原文:[https://life hacker . com/three-key-principles-of-future-self-thinking-1792343365](https://lifehacker.com/three-key-principles-of-future-self-thinking-1792343365)
+> 原文：<https://lifehacker.com/three-key-principles-of-future-self-thinking-1792343365>
 
 在我多年研究和思考个人理财问题的过程中，我遇到的最强有力的概念之一是“未来自我”的概念。“未来的自己”和你想象的差不多:它是未来某个时刻的你。这不是对你未来的乐观版本，也不是对你前进方向的悲观版本，而是你尽可能做到的现实。
 

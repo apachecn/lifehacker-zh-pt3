@@ -1,6 +1,6 @@
 # 如何像猫一样思考，幽默作家斯蒂芬·加尼耶
 
-> 原文:[https://life hacker . com/如何像猫一样思考-幽默作家-Stephane-garnier-1825482046](https://lifehacker.com/how-to-think-like-a-cat-with-humorist-stephane-garnier-1825482046)
+> 原文：<https://lifehacker.com/how-to-think-like-a-cat-with-humorist-stephane-garnier-1825482046>
 
 我们本周升级版的嘉宾是作家斯蒂芬·卡尼尔，他的书《如何像猫一样思考》 赞美了采用猫的思维方式的许多优点。
 

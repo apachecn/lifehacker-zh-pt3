@@ -1,6 +1,6 @@
 # 在这些航空公司穿上难看的圣诞毛衣先登机
 
-> 原文:[https://life hacker . com/wear-an-ugly-Christmas-sweet-on-these-airlines-to-boa-1821253372](https://lifehacker.com/wear-an-ugly-christmas-sweater-on-these-airlines-to-boa-1821253372)
+> 原文：<https://lifehacker.com/wear-an-ugly-christmas-sweater-on-these-airlines-to-boa-1821253372>
 
 今年难看的圣诞毛衣不仅适合节日派对。
 

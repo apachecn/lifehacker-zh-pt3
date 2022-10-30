@@ -1,6 +1,6 @@
 # 我们读了 7 本关于孩子和挑食的最受欢迎的书，所以你不必去读
 
-> 原文:[https://life hacker . com/we-read-7-of-the-popular-books-on-kids-and-picky-e-1795660694](https://lifehacker.com/we-read-7-of-the-most-popular-books-on-kids-and-picky-e-1795660694)
+> 原文：<https://lifehacker.com/we-read-7-of-the-most-popular-books-on-kids-and-picky-e-1795660694>
 
 我的孩子挑食，我的大儿子现在七岁，大约两岁的时候，我就一直在为此挣扎。这是他们将永远吃的东西:面包。意大利面。零食，如椒盐卷饼、饼干和酸奶。一些奶酪和肉类。还有甜甜。
 

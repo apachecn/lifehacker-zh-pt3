@@ -1,6 +1,6 @@
 # 教育部最新的学生贷款变化对你意味着什么
 
-> 原文:[https://life hacker . com/what-the-department-of-eds-latest-student-loan-changes-1823794846](https://lifehacker.com/what-the-department-of-eds-latest-student-loan-changes-1823794846)
+> 原文：<https://lifehacker.com/what-the-department-of-eds-latest-student-loan-changes-1823794846>
 
 教育部正在与各州 就他们更严格监管学生贷款服务公司的努力进行斗争，消费者权益倡导者称这可能会增加管理不善和欺骗性贷款行为的机会。
 

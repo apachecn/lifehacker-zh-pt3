@@ -1,6 +1,6 @@
 # 你应该休息多长时间才能获得最大的训练收益
 
-> 原文:[https://life hacker . com/how-long-you-should-between-sets-for-the-maximum-t-1782785683](https://lifehacker.com/how-long-you-should-rest-between-sets-for-the-biggest-t-1782785683)
+> 原文：<https://lifehacker.com/how-long-you-should-rest-between-sets-for-the-biggest-t-1782785683>
 
 集合和练习之间的休息对你健康的影响与 [集合和重复次数](https://lifehacker.com/does-it-matter-how-many-reps-you-do-when-you-work-out-1742905045) 一样大。如果你的休息时间太短，你就剥夺了他们的好处，或者更糟，增加了受伤的风险。如果太长，说明你的 [锻炼不够努力](https://lifehacker.com/more-weight-or-more-reps-which-should-i-focus-on-first-1752080884) 。甜蜜点是基于你为什么锻炼，以及你做了什么运动。
 

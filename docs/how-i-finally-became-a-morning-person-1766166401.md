@@ -1,6 +1,6 @@
 # 我如何最终成为一个早起的人
 
-> 原文:[https://life hacker . com/how-I-finally-been-a-morning-person-1766166401](https://lifehacker.com/how-i-finally-became-a-morning-person-1766166401)
+> 原文：<https://lifehacker.com/how-i-finally-became-a-morning-person-1766166401>
 
 我总是在午饭前起床，但我想成为一个真正的早起者。一只*在太阳之前起床*人。一个*每天午饭前完成 3 小时工作的*人。
 

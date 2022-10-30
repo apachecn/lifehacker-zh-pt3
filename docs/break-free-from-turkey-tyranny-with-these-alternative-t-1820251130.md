@@ -1,6 +1,6 @@
 # 用这些另类的感恩节大餐摆脱火鸡的暴政
 
-> 原文:[https://life hacker . com/break-free-from-turkey-raymond-with-these-alternative-t-1820251130](https://lifehacker.com/break-free-from-turkey-tyranny-with-these-alternative-t-1820251130)
+> 原文：<https://lifehacker.com/break-free-from-turkey-tyranny-with-these-alternative-t-1820251130>
 
 我们北美人正在进入互联网时代的第 21 个感恩节，因此，公开表达你对火鸡的厌恶不再有争议。除了传统之外，真的没有理由在一顿奢华的庆祝餐中加入火鸡。
 

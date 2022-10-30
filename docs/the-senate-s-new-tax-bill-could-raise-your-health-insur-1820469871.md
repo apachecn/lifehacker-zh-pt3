@@ -1,6 +1,6 @@
 # 参议院的新税收法案可能会再次提高你的健康保险费
 
-> 原文:[https://life hacker . com/the-Senate-s-new-tax-bill-can-raise-your-health-insure-1820469871](https://lifehacker.com/the-senate-s-new-tax-bill-could-raise-your-health-insur-1820469871)
+> 原文：<https://lifehacker.com/the-senate-s-new-tax-bill-could-raise-your-health-insur-1820469871>
 
 共和党参议员提出的最新税收法案 包含一个微小的细节，将废除患者保护与平价医疗法案的部分内容。没错，就在我们以为 [特朗普真的死了之后](https://lifehacker.com/trumpcare-is-dead-again-maybe-1818816204) (不过我们从来没有*真的*那样想过，对吧？)下面来一个小一点的，偷偷摸摸的版本。
 

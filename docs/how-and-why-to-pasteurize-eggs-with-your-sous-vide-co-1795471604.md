@@ -1,6 +1,6 @@
 # 如何(为什么)用你的炖锅给鸡蛋消毒
 
-> 原文:[https://life hacker . com/how-and-why-to-basted-eggs with-your-sous-vide-co-1795471604](https://lifehacker.com/how-and-why-to-pasteurize-eggs-with-your-sous-vide-co-1795471604)
+> 原文：<https://lifehacker.com/how-and-why-to-pasteurize-eggs-with-your-sous-vide-co-1795471604>
 
 “我想吃鸡蛋，妈妈，”这句话会让我从正在做的事情中清醒过来，然后跑向厨房。等我四岁的孩子大声说出这句话的时候，他手里已经拿着生鸡蛋了。如果我不够快，他们也会倒在地上。“对不起，妈妈。”
 

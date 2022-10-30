@@ -1,6 +1,6 @@
 # 午餐前休息时，孩子们吃得更好
 
-> 原文:[https://life hacker . com/kids-eat-better-when-success-comes-before-午餐-1818637037](https://lifehacker.com/kids-eat-better-when-recess-comes-before-lunch-1818637037)
+> 原文：<https://lifehacker.com/kids-eat-better-when-recess-comes-before-lunch-1818637037>
 
 根据 2011 年的一项研究，典型的美国小学时间表在中间被打乱，该研究最近在 RedditT3 上重新曝光 [。虽然大多数学校(截至 2006 年超过 95%)在课间休息前吃午餐，但犹他州的一项营养研究发现，当课间休息在午餐前进行时，小学生](https://www.reddit.com/r/todayilearned/comments/70zyhs/til_children_will_on_average_eat_54_more_fruits/) [多吃了 54%的水果和蔬菜](http://www.sciencedirect.com/science/article/pii/S0091743514004599) 。
 

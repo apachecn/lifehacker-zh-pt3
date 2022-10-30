@@ -1,6 +1,6 @@
 # 男朋友是不是偷偷用我的情趣用品？
 
-> 原文:[https://life hacker . com/is-my-boy-friendly-use-my-sex-toys-1820019071](https://lifehacker.com/is-my-boyfriend-secretly-using-my-sex-toys-1820019071)
+> 原文：<https://lifehacker.com/is-my-boyfriend-secretly-using-my-sex-toys-1820019071>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

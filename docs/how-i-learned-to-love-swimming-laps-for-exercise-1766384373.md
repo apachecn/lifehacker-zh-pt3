@@ -1,6 +1,6 @@
 # 我是如何爱上游泳锻炼的
 
-> 原文:[https://life hacker . com/how-I-learn-to-love-swimming-laps-for-exercise-1766384373](https://lifehacker.com/how-i-learned-to-love-swimming-laps-for-exercise-1766384373)
+> 原文：<https://lifehacker.com/how-i-learned-to-love-swimming-laps-for-exercise-1766384373>
 
 游泳健身。听起来很容易:我已经会游泳了。所以有一天，我站在游泳池甲板上，看着所有其他快乐的游泳者，从速度快的运动员到肥胖的老太太，缓慢而稳定地游着。我正要加入他们的行列，但可悲的是我毫无准备。
 

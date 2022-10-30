@@ -1,6 +1,6 @@
 # 观看这个动画师演示“所有 100 种”走路方式
 
-> 原文:[https://life hacker . com/watch-this-animator-demo-all-100-styles-of-wal-1796826116](https://lifehacker.com/watch-this-animator-demonstrate-all-100-styles-of-wal-1796826116)
+> 原文：<https://lifehacker.com/watch-this-animator-demonstrate-all-100-styles-of-wal-1796826116>
 
 动画师凯文·帕里的《100 次行走》是动画师的参考视频，对我们其他人来说也很有趣。如果你真的想用这些走路姿势作为参考，YouTube 上有一个简单的版本，但这个 Twitter 版本动作更快，有一个爽快的配乐。我们最喜欢的是“花童”和“热茶”
 

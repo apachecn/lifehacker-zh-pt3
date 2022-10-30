@@ -1,6 +1,6 @@
 # 英国烘焙大赛能教会我们什么是心流
 
-> 原文:[https://life hacker . com/what-the-great-British-bake-off-can-teach-us-about-flow-1796303807](https://lifehacker.com/what-the-great-british-bake-off-can-teach-us-about-flow-1796303807)
+> 原文：<https://lifehacker.com/what-the-great-british-bake-off-can-teach-us-about-flow-1796303807>
 
 如果你是《英国烘焙大赛》的粉丝，你很可能会注意到节目中弥漫着一种无所不包的平静感，它安抚着观众。与其他烹饪节目不同，参赛者不是“为了胜利而来”，他们是来*烘焙*，*甚至*交朋友的。
 

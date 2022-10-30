@@ -1,6 +1,6 @@
 # 去海滩的时候一定要多带一条手巾
 
-> 原文:[https://life hacker . com/always-bring a-extra-hand-毛巾到海滩-1827298992](https://lifehacker.com/always-bring-an-extra-hand-towel-to-the-beach-1827298992)
+> 原文：<https://lifehacker.com/always-bring-an-extra-hand-towel-to-the-beach-1827298992>
 
 在与沙子的战争中，人类永远不会胜利。你越早认识到去海滩本身就是一个混乱的过程，你就会越喜欢去海滩。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 28 日至 11 月 4 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10-28-to-11-1788581061](https://lifehacker.com/this-weeks-most-popular-posts-october-28th-to-november-1788581061)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-28th-to-november-1788581061>
 
 这一周我们都心不在焉。我们试图找出 iCloud 如此不一致的原因，了解睡眠不足实际上可以逃脱多少惩罚，研究为什么这么多心理学研究都站不住脚，等等。这里回顾一下。
 

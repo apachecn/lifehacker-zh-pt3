@@ -1,6 +1,6 @@
 # 用这些简单的方法和难吃的馅饼说“再见”
 
-> 原文:[https://life hacker . com/say-bye-bye-to-bad-pie-this-easy-fixes-1819738340](https://lifehacker.com/say-bye-bye-to-bad-pie-with-these-easy-fixes-1819738340)
+> 原文：<https://lifehacker.com/say-bye-bye-to-bad-pie-with-these-easy-fixes-1819738340>
 
 欢迎回到周日营养！ [正如我们之前讨论过的](https://skillet.lifehacker.com/apple-pie-in-an-apple-is-a-simple-sweet-treat-1819029112#_ga=2.226991134.22522951.1508090720-949419976.1446553382) ，苹果季终于来了，正好让我迷上了做派。然而，事实证明，虽然我非常热情，但我并不“擅长”做馅饼，在过去的两个月里，我看到了*各种各样的失败。烤过头、裂开的面包皮、潮湿的底部、烧焦的边缘、面包皮里的苹果汤——我都经历过。这并不像你想的那样孤立。这些都是一个人走向完美的过程中常见的 [失败](https://lifehacker.com/why-failure-is-a-useful-kitchen-tool-1797643711) ，我们可以从中吸取教训。所以加入我，让我们开始解决问题。* 
 

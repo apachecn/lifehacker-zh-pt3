@@ -1,6 +1,6 @@
 # 疫情之后要多久才能恢复身材？
 
-> 原文:[https://life hacker . com/what-to-expect-when-when-you-start-out-after-a-1751582922](https://lifehacker.com/what-to-expect-when-you-start-working-out-again-after-a-1751582922)
+> 原文：<https://lifehacker.com/what-to-expect-when-you-start-working-out-again-after-a-1751582922>
 
 休息一段时间后，你终于要回到健身房了。无论你是在家锻炼保持了一点健康，还是完全忘记了锻炼，当你回到健身房时，你都有一些地方可以弥补。
 

@@ -1,6 +1,6 @@
 # 如何安全合法地抗议
 
-> 原文:[https://life hacker . com/how-to-抗议-安全-合法-5859590](https://lifehacker.com/how-to-protest-safely-and-legally-5859590)
+> 原文：<https://lifehacker.com/how-to-protest-safely-and-legally-5859590>
 
 走上街头让人们听到你的声音是美国的一项基本权利，也是我们国家命脉的一部分。无论你是支持还是反对，你都应该在出发前知道你将面临什么。即使你认为这个事件是纯粹和平的，其他人、另一个抗议团体或警察可能都有不同的想法。这里有一些在你出去让别人听到你的声音之前要准备的建议。
 

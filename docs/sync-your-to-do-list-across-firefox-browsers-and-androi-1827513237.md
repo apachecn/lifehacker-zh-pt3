@@ -1,6 +1,6 @@
 # 用 Mozilla 的“备忘录”在火狐浏览器和安卓设备上同步你的待办事项列表
 
-> 原文:[https://life hacker . com/sync-your-to-do-list-cross-Firefox-browsers-and-androi-1827513237](https://lifehacker.com/sync-your-to-do-list-across-firefox-browsers-and-androi-1827513237)
+> 原文：<https://lifehacker.com/sync-your-to-do-list-across-firefox-browsers-and-androi-1827513237>
 
 正如我今天早上早些时候提到的，Mozilla 前几天推出了两个新的应用程序，作为其测试试点计划的一部分:一个用于在你的 Firefox 浏览器和你的 iOS 设备(不久将是 Android)之间同步密码，另一个应用程序(和扩展)用于在你的 Firefox 浏览器和 Android 设备之间同步笔记。
 

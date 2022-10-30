@@ -1,6 +1,6 @@
 # 这些车最有可能行驶超过 20 万英里
 
-> 原文:[https://jalopnik . com/这些是最有可能超过 200 的汽车-1793819071](https://jalopnik.com/these-are-the-cars-that-are-most-likely-to-go-over-200-1793819071)
+> 原文：<https://jalopnik.com/these-are-the-cars-that-are-most-likely-to-go-over-200-1793819071>
 
 许多购买者想得到一辆车，并永远拥有它，因此，他们选择一款以能增加里程而闻名的车型是至关重要的。最近的一项研究发现了哪些汽车最有可能超过 20 万公里大关，一些获胜者令人惊讶。
 

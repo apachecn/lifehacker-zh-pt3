@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:2 月 5 日至 12 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-2 月 5 日至 12 日-1758738003](https://lifehacker.com/this-weeks-most-popular-posts-february-5th-to-12th-1758738003)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-february-5th-to-12th-1758738003>
 
 大赛来了又走了(go team 你做到了！)我们还学到了一些聚会技巧。除了足球基础和派对食物，本周我们还讨论了当你开始约会时要注意的危险信号，为什么纯文本仍然有吸引力，以及 Twitter 的新功能等等。
 

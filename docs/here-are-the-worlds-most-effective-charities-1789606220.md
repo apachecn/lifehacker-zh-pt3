@@ -1,6 +1,6 @@
 # 以下是世界上最有效的慈善机构
 
-> 原文:[https://deadspin . com/here-are-the-world-most-effective-charities-1789606220](https://deadspin.com/here-are-the-worlds-most-effective-charities-1789606220)
+> 原文：<https://deadspin.com/here-are-the-worlds-most-effective-charities-1789606220>
 
 假期到了，这意味着是时候你进行一年一度的慈善捐赠了，不顾一切地试图清洗你黑暗灵魂今年积累的污点。下面是一份经过彻底审查的世界上最有效的救生慈善机构名单。
 

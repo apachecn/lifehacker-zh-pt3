@@ -1,6 +1,6 @@
 # 如何享受老连锁餐厅
 
-> 原文:[https://life hacker . com/how-to-enjoy-old-chain-restaurants-1826760341](https://lifehacker.com/how-to-enjoy-old-chain-restaurants-1826760341)
+> 原文：<https://lifehacker.com/how-to-enjoy-old-chain-restaurants-1826760341>
 
 [IHOP 现在是 IHOB](https://thetakeout.com/ihop-is-now-ihob-an-international-house-of-burgers-1826730029) ，现在是在 [与所有汉堡连锁店](https://www.highsnobiety.com/p/burger-king-trolls-ihop/) 的一场战斗，因为在我们这个破败的世界里，没有什么能保持纯净。幸运的是 [Metafilter](https://www.metafilter.com/174425/Whatever-Happened-To) 最近发现了一个名为 [断链](http://actionsdower.blogspot.com/) 的迷人博客，它回顾了早已过了鼎盛时期的连锁餐厅的剩余位置，如[Lum 的](http://actionsdower.blogspot.com/2018/05/whats-left-of-lums.html) ，以及 [约克牛排馆](http://actionsdower.blogspot.com/2018/05/mideighties-times.html) 。
 

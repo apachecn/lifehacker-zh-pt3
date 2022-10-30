@@ -1,6 +1,6 @@
 # 如何查看谁已离开您的脸书朋友请求挂
 
-> 原文:[https://life hacker . com/how-to-see-who-left-your-Facebook-friend-request-ha-1798512275](https://lifehacker.com/how-to-see-who-has-left-your-facebook-friend-request-ha-1798512275)
+> 原文：<https://lifehacker.com/how-to-see-who-has-left-your-facebook-friend-request-ha-1798512275>
 
 虽然有些人会向他们一天中偶然遇到的每个人发送脸书好友请求，但我倾向于将我在网站上的好友列表仅限于我真正的朋友。这意味着我目前有超过 242 个未决的好友请求，他们来自我 10 年前在婚礼上遇到的那个人，还有我 7 年级时一起坐公交车但从未说过话的那个女孩。
 

@@ -1,6 +1,6 @@
 # 这些保险单不值你的钱
 
-> 原文:[https://life hacker . com/these-insurance-policies-arent-worth-your-money-1796076103](https://lifehacker.com/these-insurance-policies-arent-worth-your-money-1796076103)
+> 原文：<https://lifehacker.com/these-insurance-policies-arent-worth-your-money-1796076103>
 
 在某种程度上，保险是你花钱能买到的最不令人满意的东西。你买它是希望你永远不需要实际使用它(如果你真的使用它，它只会变得更贵)。另一方面，保险*是*令人满意的，因为它让你安心。但是你不需要所有的东西都买保险。
 

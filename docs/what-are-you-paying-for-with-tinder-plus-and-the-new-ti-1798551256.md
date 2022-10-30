@@ -1,6 +1,6 @@
 # 你用 Tinder Plus 和新 Tinder Gold 买什么？
 
-> 原文:[https://life hacker . com/what-you-pay-for-with-tinder-plus-and-the-new-ti-1798551256](https://lifehacker.com/what-are-you-paying-for-with-tinder-plus-and-the-new-ti-1798551256)
+> 原文：<https://lifehacker.com/what-are-you-paying-for-with-tinder-plus-and-the-new-ti-1798551256>
 
 刷卡交友应用 Tinder[刚刚推出了一个新的 iOS 订阅层，名为“Tinder Gold”](http://blog.gotinder.com/introducing-tinder-gold-a-first-class-swipe-experience/)。但这到底是什么？它与已经存在的 Tinder Plus 有何不同？
 

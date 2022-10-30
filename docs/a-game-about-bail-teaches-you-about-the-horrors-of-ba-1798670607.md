@@ -1,6 +1,6 @@
 # 一个关于保释的“游戏”告诉你保释的恐怖
 
-> 原文:[https://life hacker . com/a-game-about-bail-teaches-you-about-of-horses-of-ba-1798670607](https://lifehacker.com/a-game-about-bail-teaches-you-about-the-horrors-of-ba-1798670607)
+> 原文：<https://lifehacker.com/a-game-about-bail-teaches-you-about-the-horrors-of-ba-1798670607>
 
 保释，无论是以金钱还是财产的形式，都是用来确保犯罪嫌疑人返回法庭。你可能不认为简单地支付保释金是一件改变生活的事情，但根据纪录片组织 [【勇敢的新电影](http://www.bravenewfilms.org/) 制作的一个迷你游戏，支付(或不支付)保释金可以显著影响一个人的生活，而不是变得更好。
 

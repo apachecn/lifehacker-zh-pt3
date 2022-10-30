@@ -1,6 +1,6 @@
 # 长途飞行需要打包的基本物品
 
-> 原文:[https://life hacker . com/the-essential-items-to-pack for a long-flight-1755742741](https://lifehacker.com/the-essential-items-to-pack-for-a-long-flight-1755742741)
+> 原文：<https://lifehacker.com/the-essential-items-to-pack-for-a-long-flight-1755742741>
 
 当你开始一次将让你在空中停留几个小时的长途飞行时，带上一个储备充足的包包可以让你从航空旅行的折磨中解脱出来。
 

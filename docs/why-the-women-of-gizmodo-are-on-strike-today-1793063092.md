@@ -1,6 +1,6 @@
 # 为什么 Gizmodo 的妇女今天罢工
 
-> 原文:[https://gizmodo . com/why-the-women-of-gizmodo-is-on-strike-today-1793063092](https://gizmodo.com/why-the-women-of-gizmodo-are-on-strike-today-1793063092)
+> 原文：<https://gizmodo.com/why-the-women-of-gizmodo-are-on-strike-today-1793063092>
 
 今天，Gizmodo 和 io9 的女性将加入我们在融合媒体集团的同事，参加官方的“没有女人的一天” [罢工](http://jezebel.com/heres-what-you-need-to-know-for-tomorrows-womens-strike-1793042140) 。我们相信我们的劳动和存在是有价值的、重要的和必要的；我们还知道，当某样东西不存在时，往往更容易认识到它有多重要。
 

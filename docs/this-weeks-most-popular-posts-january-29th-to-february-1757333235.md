@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 29 日至 2 月 5 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-1 月 29 日至 2 月 1757333235](https://lifehacker.com/this-weeks-most-popular-posts-january-29th-to-february-1757333235)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-29th-to-february-1757333235>
 
 这是一个充满政治和新闻的星期，我们已经尽了最大的努力来理解这一切，以利于我们自己的进步。什么是 [党团](http://lifehacker.com/what-are-caucuses-and-how-do-they-work-1756362852) ？我们应该担心T5】寨卡 T7】吗？ [超级碗](http://lifehacker.com/when-to-start-watching-the-super-bowl-if-you-want-to-av-1757189888) 是什么时候？当我们喝一杯酒，回顾本周的头条新闻时，我们会了解更多。
 

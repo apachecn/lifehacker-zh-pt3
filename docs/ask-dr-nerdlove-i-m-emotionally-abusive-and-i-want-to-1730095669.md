@@ -1,6 +1,6 @@
 # 问 Nerdlove 博士:我有情感虐待倾向，我想停止
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-m-emotionally-abuse-and-I-want-to-1730095669](https://kotaku.com/ask-dr-nerdlove-i-m-emotionally-abusive-and-i-want-to-1730095669)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-m-emotionally-abusive-and-i-want-to-1730095669>
 
 你好，互联网！欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一的约会专栏，也是 Unseelie 协议的签署者。
 

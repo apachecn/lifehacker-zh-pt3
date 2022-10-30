@@ -1,6 +1,6 @@
 # 如何使用咖啡因来提高你的运动成绩
 
-> 原文:[https://life hacker . com/how-to-use-咖啡因提高你的运动表现-1742146534](https://lifehacker.com/how-to-use-caffeine-to-improve-your-athletic-performanc-1742146534)
+> 原文：<https://lifehacker.com/how-to-use-caffeine-to-improve-your-athletic-performanc-1742146534>
 
 咖啡因 [是一种提高运动能力的药物](http://drinks.seriouseats.com/2012/10/is-coffee-a-performance-enhancing-drug-athletes-caffeine.html) 合法、廉价、易得:你可能今天早上就喝了一些。更重要的是，事实上,*确实能让你更擅长运动，这比你能说的许多销售给运动员的补充剂都多。你只需要知道如何有策略地使用它。*
 

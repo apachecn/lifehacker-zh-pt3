@@ -1,6 +1,6 @@
 # 如何直播本赛季的 NFL 足球比赛
 
-> 原文:[https://life hacker . com/how-to-stream-live-NFL-football-games-this-season-1785719985](https://lifehacker.com/how-to-stream-live-nfl-football-games-this-season-1785719985)
+> 原文：<https://lifehacker.com/how-to-stream-live-nfl-football-games-this-season-1785719985>
 
 NFL 常规赛将在几周后拉开帷幕，如果你不想搞砸兔子耳朵、有线电视订阅和地区停电，这意味着是时候考虑你的流媒体选项了。和往年一样，很乱。
 

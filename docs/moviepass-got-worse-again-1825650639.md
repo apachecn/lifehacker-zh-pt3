@@ -1,6 +1,6 @@
 # 电影票价又变得更糟了
 
-> 原文:[https://lifehacker.com/moviepass-got-worse-again-1825650639](https://lifehacker.com/moviepass-got-worse-again-1825650639)
+> 原文：<https://lifehacker.com/moviepass-got-worse-again-1825650639>
 
 【movie pass】，在影院看电影的包月服务，让事情变得越来越复杂。价格忽高忽低。某些电影得到 [禁播](https://www.theverge.com/2018/3/2/17073386/moviepass-limited-access-red-sparrow-death-wish-amc-film-studio-negotiations) 。新订户每月获得 [四部电影](https://lifehacker.com/moviepass-is-struggling-so-use-it-while-you-can-1825407405#_ga=2.14625200.624615268.1525096119-1297080755.1497980211) 。(旧的计划不受每月 30 英镑费率的限制。)而现在的订阅者 [不能多次观看某些电影](https://www.theverge.com/2018/4/27/17291242/moviepass-unlimited-movie-deal-repeat-viewings-theater-blackouts) 。
 

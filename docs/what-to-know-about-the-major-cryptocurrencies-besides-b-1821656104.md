@@ -1,6 +1,6 @@
 # 关于比特币之外的主要加密货币要了解什么
 
-> 原文:[https://life hacker . com/what-to-know-about-the-major-cryptographics-but-b-1821656104](https://lifehacker.com/what-to-know-about-the-major-cryptocurrencies-besides-b-1821656104)
+> 原文：<https://lifehacker.com/what-to-know-about-the-major-cryptocurrencies-besides-b-1821656104>
 
 2017 年是 [加密货币](https://lifehacker.com/automatically-invest-your-spare-change-in-cryptocurrenc-1819028364) 最终成为主流的一年，因为 [比特币](https://lifehacker.com/how-to-get-your-money-out-of-bitcoin-1821536561) 的价值从不到 1000 美元飙升至近 2 万美元，而且 [看起来不像是](http://fortune.com/2017/12/21/bitcoin-price-value-prediction-bubble/) 事情会在 2018 年放缓。
 

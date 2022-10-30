@@ -1,6 +1,6 @@
 # 教你的学龄前儿童如何穿上有“翻转技巧”的夹克
 
-> 原文:[https://life hacker . com/teach-your-学龄前儿童如何穿上夹克 1828497274](https://lifehacker.com/teach-your-preschooler-how-to-put-on-a-jacket-with-the-1828497274)
+> 原文：<https://lifehacker.com/teach-your-preschooler-how-to-put-on-a-jacket-with-the-1828497274>
 
 当你有一个学龄前儿童时，你知道简单的任务可能会很复杂。以穿夹克为例。我总是看到父母站在门口，一边举起小外套和风衣，一边指示:“右臂！不，另一个！好，现在另一只手臂！*拉伸！*你快成功了！明白了。现在按下按钮。”这是一个*过程。*
 

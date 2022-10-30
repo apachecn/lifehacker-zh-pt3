@@ -1,6 +1,6 @@
 # 用这些喷气式飞机上的小玩意和工具作为悠闲旅行的礼物吧
 
-> 原文:[https://life hacker . com/give-the-give-give-the-give-gift-of-yoursely-travel with these-jet-setting-1788518871](https://lifehacker.com/give-the-gift-of-leisurely-travel-with-these-jet-settin-1788518871)
+> 原文：<https://lifehacker.com/give-the-gift-of-leisurely-travel-with-these-jet-settin-1788518871>
 
 旅行是一份很棒的礼物，但是如果你负担不起去波拉波拉岛 5000 美元的旅行，那就退而求其次吧:小玩意！给你名单上的环球旅行者这些有趣的小玩意和工具，让他们的下一次旅行更加愉快。
 

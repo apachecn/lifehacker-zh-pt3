@@ -1,6 +1,6 @@
 # 想尿尿时保护婚纱最简单的方法
 
-> 原文:[https://life hacker . com/the-easy-way-to-protect-a-wear-dress-when-you-nee-1778523828](https://lifehacker.com/the-easiest-way-to-protect-a-wedding-dress-when-you-nee-1778523828)
+> 原文：<https://lifehacker.com/the-easiest-way-to-protect-a-wedding-dress-when-you-nee-1778523828>
 
 在步入婚礼殿堂之前保持婚纱的整洁是一个挑战，尤其是当你盛装打扮的时候...然后你需要去洗手间。幸运的是，保护你的婚纱很容易:你只需要一个大垃圾袋。
 

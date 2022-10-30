@@ -1,6 +1,6 @@
 # Kayak 的秘密“魔术 8 球”将帮助你发现一个廉价的最后一分钟假期
 
-> 原文:[https://life hacker . com/kayaks-secret-magic-8-ball-will-help-you-discover-a-che-1819941120](https://lifehacker.com/kayaks-secret-magic-8-ball-will-help-you-discover-a-che-1819941120)
+> 原文：<https://lifehacker.com/kayaks-secret-magic-8-ball-will-help-you-discover-a-che-1819941120>
 
 你有一点钱，想去周末旅行，但不知道你想去哪里。现在 Kayak 可以帮忙了。该应用程序本周推出了一个新的“Magic 8 Ball”功能，允许你摇动你的 iPhone 或 Android 设备，以获得关于去哪里快速逃离的建议。
 

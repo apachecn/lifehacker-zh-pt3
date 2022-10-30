@@ -1,6 +1,6 @@
 # 找出哪些脸书朋友分享“假新闻”
 
-> 原文:[https://life hacker . com/figure-out-which-Facebook-friends-share-fake-news-1825016350](https://lifehacker.com/figure-out-which-facebook-friends-share-fake-news-1825016350)
+> 原文：<https://lifehacker.com/figure-out-which-facebook-friends-share-fake-news-1825016350>
 
 不管你的政治信仰如何，“假新闻”这个词是最让人难以忍受的——尤其是如果你有几个“ [”难道就不会有人想到孩子们吗？](https://www.youtube.com/watch?v=RybNI0KB1bg)”——那些总是在你的脸书新闻订阅上塞满了为什么人类注定要灭亡的理由的朋友们。
 

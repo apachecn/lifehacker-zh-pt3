@@ -1,6 +1,6 @@
 # 用你的速溶壶在创纪录的时间内制作两人份的芝士蛋糕
 
-> 原文:[https://life hacker . com/make-cheese cake-for-two-in-record-time with-your-instan-1821065475](https://lifehacker.com/make-cheesecake-for-two-in-record-time-with-your-instan-1821065475)
+> 原文：<https://lifehacker.com/make-cheesecake-for-two-in-record-time-with-your-instan-1821065475>
 
 奶酪蛋糕是我在这个地球上最喜欢的甜食之一，但是，作为一个偶尔有乳糖不耐症访客的家庭，我没有在家里制作整个奶酪蛋糕的习惯。然而，有一种方法可以在一个即时锅里做出刚好够两个人吃的芝士蛋糕，*和*大约需要半个小时。
 

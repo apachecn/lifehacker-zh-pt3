@@ -1,6 +1,6 @@
 # 在 macOS Mojave 中可以尝试的最佳功能
 
-> 原文:[https://life hacker . com/the-best-features-to-try-in-MAC OS-mojave-1827517100](https://lifehacker.com/the-best-features-to-try-in-macos-mojave-1827517100)
+> 原文：<https://lifehacker.com/the-best-features-to-try-in-macos-mojave-1827517100>
 
 [macOS Mojave 现在处于公开测试阶段](https://beta.apple.com) ，它有很多很酷的功能，可能不会完全改变你使用 Mac 的方式，但会加快你的部分工作流程，帮助你保持文件有序，并通过可定制的触摸让你微笑。
 

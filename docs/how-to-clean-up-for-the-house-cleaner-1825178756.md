@@ -1,6 +1,6 @@
 # 管家来之前怎么收拾
 
-> 原文:[https://life hacker . com/how-to-clean-up for the-house-cleaner-1825178756](https://lifehacker.com/how-to-clean-up-for-the-house-cleaner-1825178756)
+> 原文：<https://lifehacker.com/how-to-clean-up-for-the-house-cleaner-1825178756>
 
 “为清洁女工打扫卫生”这个古老的比喻并不完全愚蠢:虽然你应该把真正的清洁工作留给你雇来打扫的人，但你也应该打扫卫生——甚至可能做一些抽查。如果这是你的清洁工第一次来你家，你也应该准备一些说明。这会让你们两个都更开心。
 

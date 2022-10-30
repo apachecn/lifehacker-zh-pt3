@@ -1,6 +1,6 @@
 # 如何尽可能长时间地保持手机电池的电量
 
-> 原文:[https://life hacker . com/how-to-keep-your-devices-batteries-alive-as-long-as-po-1823387796](https://lifehacker.com/how-to-keep-your-devices-batteries-alive-as-long-as-po-1823387796)
+> 原文：<https://lifehacker.com/how-to-keep-your-devices-batteries-alive-as-long-as-po-1823387796>
 
 爱它们或恨它们，电池为你所珍视的一切供电，或者至少为你手机里的一切供电。你可能有一部电池充满电的全新 iPhone，或者一部电池老化到需要苹果更换的 iPhone 6([至少是打折的](https://lifehacker.com/how-and-why-to-replace-your-iphone-battery-1821736142) )。当然，所有的电池最终都会退化，但是你可以采取一些预防措施来尽可能长时间地保持电池健康。
 

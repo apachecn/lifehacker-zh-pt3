@@ -1,6 +1,6 @@
 # 如何在 Android 上让垃圾电话自动转到语音信箱
 
-> 原文:[https://life hacker . com/how-to-make-spam-calls-automatically-go-to-voice mail-on-1827600914](https://lifehacker.com/how-to-make-spam-calls-automatically-go-to-voicemail-on-1827600914)
+> 原文：<https://lifehacker.com/how-to-make-spam-calls-automatically-go-to-voicemail-on-1827600914>
 
 尽管我被列在了不要打电话的名单上，我还是设法进入了一个叫“安”的女人试图向我推销健康保险的自动电话名单。安每天至少用全国各地的号码给我打十几次电话(真是个旅行家！)让我知道她所有的交易。每当我逗留足够长的时间与销售代表交谈，以便我可以要求他们不要再给我打电话时，他们立即挂断我的电话。太棒了。
 

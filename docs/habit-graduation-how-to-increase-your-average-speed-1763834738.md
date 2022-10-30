@@ -1,6 +1,6 @@
 # 习惯毕业:如何提高你的“平均速度”
 
-> 原文:[https://life hacker . com/habit-graduation-how-to-increase-your ' s average-speed-1763834738](https://lifehacker.com/habit-graduation-how-to-increase-your-average-speed-1763834738)
+> 原文：<https://lifehacker.com/habit-graduation-how-to-increase-your-average-speed-1763834738>
 
 我有一个朋友叫 [内森·巴里](http://nathanbarry.com/) ，他最近在短短 9 个月内写完了三本书。他是怎么做到的？遵循一个简单的策略。他每天写 1000 字。(也就是两到三页左右。)他连续 253 天每天都这样做。这不是短跑；关键是他的平均速度。
 

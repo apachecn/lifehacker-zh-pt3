@@ -1,6 +1,6 @@
 # 看看十年前大家都在发什么微博
 
-> 原文:[https://life hacker . com/see-what-everybody-are-tweet-before-1826302358](https://lifehacker.com/see-what-everyone-was-tweeting-ten-years-ago-1826302358)
+> 原文：<https://lifehacker.com/see-what-everyone-was-tweeting-ten-years-ago-1826302358>
 
 如果你厌倦了当今 Twitter 的地狱维度，互联网复兴人 [安迪·拜奥](https://twitter.com/waxpancake/status/999699093277442048) 为你提供了链接: [这是你十年前的 Twitter feed 的样子](https://twitter.com/search?f=tweets&vertical=default&q=filter%3Afollows%20until%3A2008-05-25%20-filter%3Areplies&src=typd) (如果你关注了你现在关注的所有人)。当然，你只能看到这些早期已经在 Twitter 上的人的推文。你的旧饲料可能是安静的。大概是书呆子气吧。它可能会让人平静。
 

@@ -1,6 +1,6 @@
 # 你应该把大头菜放在你的比萨饼上
 
-> 原文:[https://life hacker . com/you-should-put-kohlbrabi-on-your-pizza-1823196169](https://lifehacker.com/you-should-put-kohlrabi-on-your-pizza-1823196169)
+> 原文：<https://lifehacker.com/you-should-put-kohlrabi-on-your-pizza-1823196169>
 
 生活教会了我对最糟糕的二月不要抱太大期望，但这个月尤其糟糕。品味突然出现的亮点很重要，即使是很小的亮点，尽管这个月充满了微观和宏观层面的危机，但在数周的策划后，我终于吃到了大头菜披萨。这是我二月的亮点。
 

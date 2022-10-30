@@ -1,6 +1,6 @@
 # 不被黑客攻击的玩家指南
 
-> 原文:[https://kotaku . com/a-gamers-guide-to-not-get-hacked-1825688242](https://kotaku.com/a-gamers-guide-to-not-getting-hacked-1825688242)
+> 原文：<https://kotaku.com/a-gamers-guide-to-not-getting-hacked-1825688242>
 
 如果你玩电子游戏，你是黑客攻击的理想目标。
 

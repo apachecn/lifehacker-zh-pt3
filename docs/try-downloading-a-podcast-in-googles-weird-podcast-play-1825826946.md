@@ -1,6 +1,6 @@
 # 尝试在谷歌怪异的播客播放器中下载播客
 
-> 原文:[https://life hacker . com/try-downloading-a-podcast-in-Google-verged-podcast-play-1825826946](https://lifehacker.com/try-downloading-a-podcast-in-googles-weird-podcast-play-1825826946)
+> 原文：<https://lifehacker.com/try-downloading-a-podcast-in-googles-weird-podcast-play-1825826946>
 
 如果你不喜欢使用 Google Play 音乐来管理和收听播客，我们不会责怪你，你仍然可以在 Android 中获得你的播客，而不必安装第三方应用程序。只需在谷歌上快速搜索你想听的内容， [将节目的快捷方式放到你的主屏幕上](https://lifehacker.com/how-to-use-googles-new-podcast-player-1825479269#_ga=2.17718778.2130151020.1525698930-3846207152.1521480874) ，当你想用一小时又一小时的评论丰富你的生活时，点击它。
 

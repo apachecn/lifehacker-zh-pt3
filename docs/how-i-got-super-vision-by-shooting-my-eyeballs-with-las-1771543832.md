@@ -1,6 +1,6 @@
 # 我是如何用激光射我的眼球而获得超能力的
 
-> 原文:[https://life hacker . com/how-I-got-super-vision-by-shooting-my-eye-with-las-1771543832](https://lifehacker.com/how-i-got-super-vision-by-shooting-my-eyeballs-with-las-1771543832)
+> 原文：<https://lifehacker.com/how-i-got-super-vision-by-shooting-my-eyeballs-with-las-1771543832>
 
 两周前，我花钱让激光射进我的眼睛。第二天我像彼得·帕克一样醒来，被蜘蛛咬了。我不会爬墙，但我看得很清楚，感觉自己像个超级英雄。从小到大，这是我第一次睁开眼睛，看到了自己。我的激光眼科手术的故事不太值得漫画，但这里发生的一切，如果你也想要那些权力。
 

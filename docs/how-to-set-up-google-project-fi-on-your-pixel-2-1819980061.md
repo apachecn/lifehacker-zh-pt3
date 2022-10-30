@@ -1,6 +1,6 @@
 # 如何在你的 Pixel 2 上设置 Google Project Fi
 
-> 原文:[https://life hacker . com/how-to-set-up-Google-project-fi-on-your-pixel-2-1819980061](https://lifehacker.com/how-to-set-up-google-project-fi-on-your-pixel-2-1819980061)
+> 原文：<https://lifehacker.com/how-to-set-up-google-project-fi-on-your-pixel-2-1819980061>
 
 如果你买的是 Pixel 2(或者是 Pixel 2 XL 中的 [等待问题解决](https://lifehacker.com/dont-buy-the-pixel-2-xl-until-google-sorts-out-its-disp-1819772290) )，你可能会在充电完成后马上将其连接到当前的无线运营商。如果你是 [从你的运营商](https://lifehacker.com/so-are-you-going-to-buy-or-lease-your-next-phone-1800676294) 购买手机，这是非常简单的，但是如果你对转换提供商感到好奇，你的新手机里已经有一个了。你可以直接从智能手机上激活 Google Project Fi。
 

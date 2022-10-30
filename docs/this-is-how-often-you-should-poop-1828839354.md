@@ -1,6 +1,6 @@
 # 这是你大便的频率
 
-> 原文:[https://life hacker . com/this-is-how-frequency-you-should-poop-1828839354](https://lifehacker.com/this-is-how-often-you-should-poop-1828839354)
+> 原文：<https://lifehacker.com/this-is-how-often-you-should-poop-1828839354>
 
 啊，浴室很重要。就像性一样，似乎有很多错误的信息在外面传播。此外，和性一样，高数字的报道可能被夸大了。高便便数字，那是。
 

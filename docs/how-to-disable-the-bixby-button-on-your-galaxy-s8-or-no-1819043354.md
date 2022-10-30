@@ -1,6 +1,6 @@
 # 如何禁用 Galaxy S8 或 Note 8 上的 Bixby 按钮
 
-> 原文:[https://life hacker . com/how-to-disable-the-bix by-button-on-your-galaxy-S8-or-no-1819043354](https://lifehacker.com/how-to-disable-the-bixby-button-on-your-galaxy-s8-or-no-1819043354)
+> 原文：<https://lifehacker.com/how-to-disable-the-bixby-button-on-your-galaxy-s8-or-no-1819043354>
 
 我现在用三星的 Note 8 已经一个月左右了。我喜欢手机和相机的显示屏，但我经常被手机的 Bixby 按钮惹恼。手机左侧的专用按钮旨在让您快速使用个人助理。如果你想经常使用它，那就太好了。然而，如果你像我一样笨手笨脚，那么每次你试图降低手机音量，或者从口袋里拿出手机，或者试图拍照时，你都会不小心按下它...几乎任何时候你拿着电话。
 

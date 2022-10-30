@@ -1,6 +1,6 @@
 # 向一个干净的人询问你最恶心的育儿挑战
 
-> 原文:[https://life hacker . com/ask-a-clean-person-about-your ' s mutually-1797985762](https://lifehacker.com/ask-a-clean-person-about-your-most-disgusting-parenting-1797985762)
+> 原文：<https://lifehacker.com/ask-a-clean-person-about-your-most-disgusting-parenting-1797985762>
 
 为人父母是很麻烦的。在《后代》节目中，我们想帮你从字面上清理它。你如何从墙上拿走婴儿食品？当你在烘干机里发现蜡笔时，你会怎么做？你如何进入汽车座椅的又深又黑的缝隙，那里有鼻屎、奶酪屑和不明粘性物质？我们需要知道。这就是为什么我们推出了一个全新的专栏:*为父母问一个干净的人*。
 

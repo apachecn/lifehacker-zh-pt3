@@ -1,6 +1,6 @@
 # Pixel 2 最大的噱头实际上可能是它最好的功能
 
-> 原文:[https://life hacker . com/the-pixel-2s-biggest-Keith-may-been-be-its-best-1819163006](https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006)
+> 原文：<https://lifehacker.com/the-pixel-2s-biggest-gimmick-might-actually-be-its-best-1819163006>
 
 10 月 4 日，谷歌的 [Pixel 2](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085) 活动进行了一个多小时，产品管理高级总监塞布丽娜·埃利斯(Sabrina Ellis)做了一件不同寻常的事情: [她捏了捏新智能手机](https://www.youtube.com/watch?v=5mdk5oz6l3w) 。然后，她没按任何按钮，说了句“自拍”，把手机举在空中，和挤满人的会议室拍了一张合影。
 

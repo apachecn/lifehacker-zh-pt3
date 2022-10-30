@@ -1,6 +1,6 @@
 # 请教专家:关于医用大麻的一切
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-medical-大麻-1771581458](https://lifehacker.com/ask-an-expert-all-about-medical-marijuana-1771581458)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-medical-marijuana-1771581458>
 
 随着医用大麻变得越来越流行，对于我们这些对娱乐用途略知一二的人来说，理解这种药物如何被用于医疗目的可能会感到困惑。今天在这里提供一些指导的是[rach na Patel](http://www.drrachnapatel.com/)博士，一位湾区的医用大麻医生。
 

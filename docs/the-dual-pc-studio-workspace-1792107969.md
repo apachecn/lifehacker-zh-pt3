@@ -1,6 +1,6 @@
 # 双 PC 工作室工作空间
 
-> 原文:[https://life hacker . com/the-dual-PC-studio-workspace-1792107969](https://lifehacker.com/the-dual-pc-studio-workspace-1792107969)
+> 原文：<https://lifehacker.com/the-dual-pc-studio-workspace-1792107969>
 
 读者 Jason 将这个桌面提交给了我们在 Flickr 上的 [特色工作区展示和讲述池，这个双桌面、三显示器的工作区在一个不大的空间里做了很多事情。只需一次快速切换，他就可以从 Mac 电脑转到 PC 电脑。这里还有一些照片。](https://www.flickr.com/groups/lifehacker-workspace-showandtell/) 
 

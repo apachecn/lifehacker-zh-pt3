@@ -1,6 +1,6 @@
 # 如何进入动漫
 
-> 原文:[https://kotaku.com/how-to-get-into-anime-1796989316](https://kotaku.com/how-to-get-into-anime-1796989316)
+> 原文：<https://kotaku.com/how-to-get-into-anime-1796989316>
 
 所以你想进军动漫。系好安全带。从外面看，这似乎是一项巨大、可怕且可能致命的任务。那是因为事实如此。
 

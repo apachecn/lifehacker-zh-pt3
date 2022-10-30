@@ -1,6 +1,6 @@
 # 选择合适订婚戒指的指南
 
-> 原文:[https://deadspin . com/a-guide-to-choose-the-right-engagement-ring-1783286214](https://deadspin.com/a-guide-to-choosing-the-right-engagement-ring-1783286214)
+> 原文：<https://deadspin.com/a-guide-to-choosing-the-right-engagement-ring-1783286214>
 
 几乎在每一段成熟的成人关系中，都会有一段时间你会考虑结婚。你看着你的另一半，想象未来。也许是阳光让他们的眼睛在那一刻闪闪发光的方式，他们在最新一部直奔网飞·亚当·桑德勒的“喜剧”中无耻的大笑，或者也许他们无私地奉献了生命中的几天来护理你，从你最近一次流感中恢复过来，你这个巨大的婴儿。这就是你想从现在开始每天都在一起的人，直到没有日子留给你。
 

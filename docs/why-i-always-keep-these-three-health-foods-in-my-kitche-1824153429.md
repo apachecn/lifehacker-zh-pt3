@@ -1,6 +1,6 @@
 # 为什么我总是在厨房里放这三种“健康食品”
 
-> 原文:[https://life hacker . com/why-I-always-keep-this-three-health-foods-in-my-kitche-1824153429](https://lifehacker.com/why-i-always-keep-these-three-health-foods-in-my-kitche-1824153429)
+> 原文：<https://lifehacker.com/why-i-always-keep-these-three-health-foods-in-my-kitche-1824153429>
 
 我不是人们所说的“健康饮食者”尽管我母亲在家里储备了发芽谷物圣经面包，十几岁的克莱尔干脆不吃面包了，而不是在干燥粗糙的生态系统上做三明治，也就是以西结面包。尽管如此，我妈妈对健康食品店的热爱*确实*让我发现了三种我最喜欢的厨房主食，它们都是由 [一家有点狂热的公司](http://bragg.com/products/bragg-organic-healthy-live-food-products.html) 制造的。
 

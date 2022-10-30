@@ -1,6 +1,6 @@
 # 不幸的是，您仍然需要阅读服务条款文档
 
-> 原文:[https://life hacker . com/you-still-need-to-read-terms-of-service-documents-unfo-1825388590](https://lifehacker.com/you-still-need-to-read-terms-of-service-documents-unfo-1825388590)
+> 原文：<https://lifehacker.com/you-still-need-to-read-terms-of-service-documents-unfo-1825388590>
 
 有人阅读他们购买或注册的任何东西的服务条款吗？我的意思不是“看它一眼，承认它的存在；我的意思是坐下来喝杯咖啡(也许是一个玻璃瓶，这取决于文件有多长),浏览制造商或公司想让你知道的一切。如果你不这样做，我们不会责怪你，但你应该这样做。
 

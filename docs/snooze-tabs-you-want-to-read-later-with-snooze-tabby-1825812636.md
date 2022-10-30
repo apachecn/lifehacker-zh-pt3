@@ -1,6 +1,6 @@
 # 使用此浏览器扩展暂停您希望稍后阅读的标签
 
-> 原文:[https://life hacker . com/snooze-tabs-you-want-to-read-late-with-snooze-tabby-1825812636](https://lifehacker.com/snooze-tabs-you-want-to-read-later-with-snooze-tabby-1825812636)
+> 原文：<https://lifehacker.com/snooze-tabs-you-want-to-read-later-with-snooze-tabby-1825812636>
 
 在一个典型的工作日里，我通常会遇到至少一些我想看的东西，但在那个时刻我真的没有时间。
 

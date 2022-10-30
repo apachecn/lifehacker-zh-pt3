@@ -1,6 +1,6 @@
 # 给你生命中的新父母食物作为礼物，因为他们需要能量
 
-> 原文:[https://life hacker . com/give-the-new-parents in-your-life-the-give-gift-of-food-bec-1793306157](https://lifehacker.com/give-the-new-parents-in-your-life-the-gift-of-food-bec-1793306157)
+> 原文：<https://lifehacker.com/give-the-new-parents-in-your-life-the-gift-of-food-bec-1793306157>
 
 照顾婴儿会消耗体力。他们不仅阻止你睡足你想要的时间，而且，如果你是他们的母亲，他们实际上是在依赖你。因此，让新父母吃饱是非常重要的，提供美味、简单的饭菜是你能为他们做的最好的事情之一。
 

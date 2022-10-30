@@ -1,6 +1,6 @@
 # 摇滚邻居播放列表
 
-> 原文:[https://life hacker . com/the-rock-and-roll-neighborhood-playlist-1757172760](https://lifehacker.com/the-rock-and-roll-neighborhood-playlist-1757172760)
+> 原文：<https://lifehacker.com/the-rock-and-roll-neighborhood-playlist-1757172760>
 
 如果摇滚是一个你可以参观的城镇会怎么样？受《错误的手》 漫画的启发，Spotify 用户 Lee Barry 创建了一个摇滚歌曲播放列表，这些歌曲将共同构成一个超级街区。
 

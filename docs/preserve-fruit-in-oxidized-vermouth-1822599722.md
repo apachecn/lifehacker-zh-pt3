@@ -1,6 +1,6 @@
 # 用氧化苦艾酒保存水果
 
-> 原文:[https://life hacker . com/preserve-fruit-in-oxidated-苦艾酒-1822599722](https://lifehacker.com/preserve-fruit-in-oxidized-vermouth-1822599722)
+> 原文：<https://lifehacker.com/preserve-fruit-in-oxidized-vermouth-1822599722>
 
 如果你喜欢喝马提尼酒或曼哈顿酒，你的酒吧推车上可能会有几瓶苦艾酒。如果你是一个喜欢奇特开胃酒 的人，你可能会有更多。这些强化葡萄酒非常有趣，但是由于其较低的 ABV，它们不会永远持续下去。
 

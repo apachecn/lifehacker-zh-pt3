@@ -1,6 +1,6 @@
 # Kickstarter 现在提供类似 Patreon 的订阅服务
 
-> 原文:[https://life hacker . com/kickstarter-is-now-offing-a-patreon-like-subscription-1820521607](https://lifehacker.com/kickstarter-is-now-offering-a-patreon-like-subscription-1820521607)
+> 原文：<https://lifehacker.com/kickstarter-is-now-offering-a-patreon-like-subscription-1820521607>
 
 众筹网站 Kickstarter 基于订阅的 Drip 可以为艺术家、边缘人和任何有创意的人提供另一种赚钱的方式。
 

@@ -1,6 +1,6 @@
 # 如何改变你的观点，与 CBT 先驱大卫伯恩斯，医学博士
 
-> 原文:[https://life hacker . com/how-to-change-your-perspective-with-CBT-pioneer-David-1829607254](https://lifehacker.com/how-to-change-your-perspective-with-cbt-pioneer-david-1829607254)
+> 原文：<https://lifehacker.com/how-to-change-your-perspective-with-cbt-pioneer-david-1829607254>
 
 你知道那些日子:你在黑暗的情绪中醒来，确信一切都是可怕的，末日即将来临。然后你会有一次谈话，或者读一本书，或者听一首歌，或者经历一些完全改变你心情的事情。你的视角变了。这就是我们在本期节目中与医学博士大卫·伯恩斯谈论的话题。伯恩斯博士是认知行为疗法(CBT)领域的先驱，也是该主题畅销书的作者，包括 [感觉良好:新情绪疗法](https://www.amazon.com/Feeling-Good-New-Mood-Therapy/dp/0380810336?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-change-your-perspective-with-cbt-pioneer-david-1829607254&asc_source=&tag=kinjalifehackerlink-20) 和 [《感觉良好手册](https://www.amazon.com/Feeling-Good-Handbook-David-Burns/dp/0452281326/ref=pd_lpo_sbs_14_t_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-change-your-perspective-with-cbt-pioneer-david-1829607254&asc_source=&psc=1&refRID=RZ3EW45YXNQ4MFDCG9K5&tag=kinjalifehackerlink-20) 。我们还将听到摄影师泰森·惠特利讲述拍出更好照片的五个步骤。爱丽丝和梅丽莎讨论了两本书，这两本书改变了他们对世界的看法。
 

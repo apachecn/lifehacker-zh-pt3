@@ -1,6 +1,6 @@
 # 不要扔掉你的黄油包装纸
 
-> 原文:[https://life hacker . com/don-throw-away-your-butter-wrappers-1818809153](https://lifehacker.com/dont-throw-away-your-butter-wrappers-1818809153)
+> 原文：<https://lifehacker.com/dont-throw-away-your-butter-wrappers-1818809153>
 
 好像我永远都在买黄油。我一点也不抱怨——身边有很多黄油让我感到温暖和安全——但我经常发现自己一天要打开三四根，这取决于我正在进行的项目类型。
 

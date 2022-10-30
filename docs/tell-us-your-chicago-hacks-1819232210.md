@@ -1,6 +1,6 @@
 # 告诉我们你的芝加哥黑客
 
-> 原文:[https://life hacker . com/tell-us-your-Chicago-hacks-1819232210](https://lifehacker.com/tell-us-your-chicago-hacks-1819232210)
+> 原文：<https://lifehacker.com/tell-us-your-chicago-hacks-1819232210>
 
 人们总是将芝加哥与纽约和洛杉矶(美国仅有的两个较大的城市)相提并论，这似乎不公平，但这是一种赞美:它在交通方面胜过洛杉矶，在没有一条水路是超级基金网站方面胜过纽约。当然，大雪纷飞，犯罪率居高不下，有时河水还是绿色的。
 

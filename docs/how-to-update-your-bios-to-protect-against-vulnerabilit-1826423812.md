@@ -1,6 +1,6 @@
 # 如何更新您的 BIOS 以防范漏洞
 
-> 原文:[https://life hacker . com/how-to-update-your-BIOS to protect-against-vulnerabilit-1826423812](https://lifehacker.com/how-to-update-your-bios-to-protect-against-vulnerabilit-1826423812)
+> 原文：<https://lifehacker.com/how-to-update-your-bios-to-protect-against-vulnerabilit-1826423812>
 
 是我，还是我们看到了更多影响系统核心组件的大而可怕的漏洞被披露？就在大约一周前，微软和谷歌宣布了更多问题——[流氓系统寄存器读取和投机商店绕过](https://www.us-cert.gov/ncas/alerts/TA18-141A)——这些都是今年 [主导科技新闻周期](https://www.theregister.co.uk/2018/01/04/intel_amd_arm_cpu_vulnerability/) 的 Spectre 和 Meltdown 漏洞的花哨变种。
 

@@ -1,6 +1,6 @@
 # 如何制作你自己的 Tiki 饮料
 
-> 原文:[https://life hacker . com/how-to-craft-your-very-own-tiki-drink-1818650367](https://lifehacker.com/how-to-craft-your-very-own-tiki-drink-1818650367)
+> 原文：<https://lifehacker.com/how-to-craft-your-very-own-tiki-drink-1818650367>
 
 Tiki 饮料是一种非常有趣的喝醉方式，而且，巧合的是，它是唯一一种让我在公共场合把裤子点着的饮料。(非常感谢，走私者的港湾。)一般来说，它们也比大多数其他鸡尾酒更难在家调制；但是，嘿，这是复古周，如果你相信世界上的复古人士，那时候每个人都在各方面做得更好。
 

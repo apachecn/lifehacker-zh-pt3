@@ -1,6 +1,6 @@
 # 你只需要每年增加 1%的储蓄
 
-> 原文:[https://life hacker . com/you-just-need-to-increase-your savings-one-year-1826984496](https://lifehacker.com/you-just-need-to-increase-your-savings-by-1-a-year-1826984496)
+> 原文：<https://lifehacker.com/you-just-need-to-increase-your-savings-by-1-a-year-1826984496>
 
 人们在整理财务时最常见的问题之一是，当数字如此巨大时，如何可能为退休储蓄足够的钱。生活是昂贵的，每年把你工资的 10%存起来在最好的情况下是痛苦的，在最坏的情况下是不可能的。
 

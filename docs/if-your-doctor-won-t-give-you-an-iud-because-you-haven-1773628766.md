@@ -1,6 +1,6 @@
 # 如果你的医生因为你没有孩子而不给你宫内节育器，你需要一个新的医生
 
-> 原文:[https://life hacker . com/if-your-doctor-won-t-give-you-an-IUD-you-haven-1773628766](https://lifehacker.com/if-your-doctor-won-t-give-you-an-iud-because-you-haven-1773628766)
+> 原文：<https://lifehacker.com/if-your-doctor-won-t-give-you-an-iud-because-you-haven-1773628766>
 
 如果你的妇科医生在过去拒绝了你的宫内节育器的请求，那么可能是时候再做一次尝试了——或者换一个医生。旧的规则说，从未生育过的妇女不应该得到宫内节育器。几年前，这种情况发生了变化，医生们慢慢明白了这一点。
 

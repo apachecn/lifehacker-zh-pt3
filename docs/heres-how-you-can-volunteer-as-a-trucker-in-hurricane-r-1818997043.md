@@ -1,6 +1,6 @@
 # 以下是你如何在遭受飓风蹂躏的波多黎各志愿成为一名卡车司机(更新)
 
-> 原文:[https://jalopnik . com/heres-how-you-can-volunteer-a-1818997043](https://jalopnik.com/heres-how-you-can-volunteer-as-a-trucker-in-hurricane-r-1818997043)
+> 原文：<https://jalopnik.com/heres-how-you-can-volunteer-as-a-trucker-in-hurricane-r-1818997043>
 
 波多黎各的救灾工作正在进行中，来自名人和 [汽车制造商](https://www.bloomberg.com/news/articles/2017-09-28/tesla-is-sending-battery-packs-to-storm-ravaged-puerto-rico) 等的援助源源不断。然而，该岛面临的最大问题之一是缺乏卡车司机，无法从码头运送物资给需要的人。**更新:** NVOAD 和波多黎各组织[Casa puertorriquea](https://www.facebook.com/pg/puertoricanparadechicago/about/?ref=page_internal)都提供了联系方式。
 

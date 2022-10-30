@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我如何处理同事之间的感情问题？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-do-I-handle-my-collaborates-relation-1820534653](https://kotaku.com/ask-dr-nerdlove-how-do-i-handle-my-coworkers-relation-1820534653)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-do-i-handle-my-coworkers-relation-1820534653>
 
 大家好，你们这些贪欲的快乐旅鼠。欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个帮助你超越等级上限的约会建议专栏。
 

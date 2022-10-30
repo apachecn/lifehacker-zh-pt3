@@ -1,6 +1,6 @@
 # 在紧急情况下，将您发出的语音邮件转换为状态更新
 
-> 原文:[https://life hacker . com/turn-your-outgoing-voice mail-into-a-status-update-durin-1809946479](https://lifehacker.com/turn-your-outgoing-voicemail-into-a-status-update-durin-1809946479)
+> 原文：<https://lifehacker.com/turn-your-outgoing-voicemail-into-a-status-update-durin-1809946479>
 
 如果你已经受到飓风厄玛和飓风哈维 T2 T3 的影响，你不想担心远方的亲人试图与你联系，除此之外。这里有一种方法，你可以 [让每个人都知道你的行踪和安全状态](http://lifehacker.com/how-to-stay-safe-during-a-hurricane-1798391969) 只需一个简单的步骤:把它放在你发出的语音邮件中。
 

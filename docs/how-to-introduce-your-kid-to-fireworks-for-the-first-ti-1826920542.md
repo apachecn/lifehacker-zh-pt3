@@ -1,6 +1,6 @@
 # 如何让你的孩子第一次接触烟花
 
-> 原文:[https://life hacker . com/how-to-introduction-your-kid-to-fireworks for-the-first-ti-1826920542](https://lifehacker.com/how-to-introduce-your-kid-to-fireworks-for-the-first-ti-1826920542)
+> 原文：<https://lifehacker.com/how-to-introduce-your-kid-to-fireworks-for-the-first-ti-1826920542>
 
 七月四日的烟火唤起了我们最美好的童年夏日记忆。烧烤和家庭时光，游泳池和萤火虫，火花和熬夜。想要和你的孩子分享这一切是很自然的。
 

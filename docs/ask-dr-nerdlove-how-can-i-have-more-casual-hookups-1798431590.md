@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我怎样才能有更随意的约会？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-how-can-I-have-more-casual-hooks-1798431590](https://kotaku.com/ask-dr-nerdlove-how-can-i-have-more-casual-hookups-1798431590)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-how-can-i-have-more-casual-hookups-1798431590>
 
 大家好，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一的约会建议专栏，其预购仅在凌晨 1 点提供。
 

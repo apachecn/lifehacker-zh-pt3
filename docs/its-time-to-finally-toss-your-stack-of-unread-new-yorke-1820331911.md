@@ -1,6 +1,6 @@
 # 是时候扔掉你那堆未读的《纽约客》了
 
-> 原文:[https://life hacker . com/its-time-to-finally-toss-your-stack-of-unread-new-Yorke-1820331911](https://lifehacker.com/its-time-to-finally-toss-your-stack-of-unread-new-yorke-1820331911)
+> 原文：<https://lifehacker.com/its-time-to-finally-toss-your-stack-of-unread-new-yorke-1820331911>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑正在将更多的植物引入我们的环境，破解代码以制作值得 Instagram 使用的万圣节服装，戒掉咖啡，并清理浏览器杂物。
 

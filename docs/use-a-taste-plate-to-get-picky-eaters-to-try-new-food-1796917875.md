@@ -1,6 +1,6 @@
 # 使用“品尝盘”让挑食者尝试新的食物
 
-> 原文:[https://life hacker . com/use-a-taste-plate-to-get-挑食-to-try-new-food-1796917875](https://lifehacker.com/use-a-taste-plate-to-get-picky-eaters-to-try-new-food-1796917875)
+> 原文：<https://lifehacker.com/use-a-taste-plate-to-get-picky-eaters-to-try-new-food-1796917875>
 
 对于挑食的孩子来说，食物摆放有一个规则:你必须把它们分开。
 

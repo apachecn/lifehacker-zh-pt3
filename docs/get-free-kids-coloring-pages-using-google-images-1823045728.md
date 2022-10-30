@@ -1,6 +1,6 @@
 # 使用谷歌图片获得免费的儿童着色页面
 
-> 原文:[https://life hacker . com/get-free-kids-coloring-pages-using-Google-images-1823045728](https://lifehacker.com/get-free-kids-coloring-pages-using-google-images-1823045728)
+> 原文：<https://lifehacker.com/get-free-kids-coloring-pages-using-google-images-1823045728>
 
 Psssst。想让你的孩子认为你是个巫师吗？我有一个诀窍。
 

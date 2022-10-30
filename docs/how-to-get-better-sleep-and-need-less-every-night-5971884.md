@@ -1,6 +1,6 @@
 # 如何获得更好的睡眠(并且每晚需要更少)
 
-> 原文:[https://life hacker . com/how-to-get-better-sleep-and-need-less-every night-5971884](https://lifehacker.com/how-to-get-better-sleep-and-need-less-every-night-5971884)
+> 原文：<https://lifehacker.com/how-to-get-better-sleep-and-need-less-every-night-5971884>
 
 我们中的许多人每天晚上都在努力获得充足的睡眠，但是我们的睡眠质量好吗？虽然充足的睡眠很重要，但更好的睡眠比更多的睡眠时间更有用。我们和一位睡眠专家坐在一起，通过一堆研究来帮助你获得更好的睡眠，并在这个过程中减少睡眠。以下是方法。
 

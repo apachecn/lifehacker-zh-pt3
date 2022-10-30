@@ -1,6 +1,6 @@
 # 一位 t 恤鉴赏家评论著名的三狼月亮衫
 
-> 原文: [https://lifehacker.com/a-t 恤-鉴赏家-评论-赫赫有名的三狼-m-1738117414](https://lifehacker.com/a-t-shirt-connoisseur-reviews-the-renowned-three-wolf-m-1738117414)
+> 原文：<https://lifehacker.com/a-t-shirt-connoisseur-reviews-the-renowned-three-wolf-m-1738117414>
 
 我是个 t 恤迷。我从未长大成人，所以我几乎每天都穿。而且因为你自找的，我买了山的 [三狼月衫](http://smile.amazon.com/The-Mountain-Three-Short-Sleeve/dp/B002HJ377A?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/a-t-shirt-connoisseur-reviews-the-renowned-three-wolf-m-1738117414&asc_source=&tag=kinjalifehackerlink-20) 复习。还行吧。
 

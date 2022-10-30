@@ -1,6 +1,6 @@
 # 你为什么不准备一小锅蘸酱呢？
 
-> 原文:[https://life hacker . com/why-don-you-sous-vide-a little-pot-of-smores-dip-1818671625](https://lifehacker.com/why-dont-you-sous-vide-a-little-pot-of-smores-dip-1818671625)
+> 原文：<https://lifehacker.com/why-dont-you-sous-vide-a-little-pot-of-smores-dip-1818671625>
 
 朋友们大家好，欢迎回到 [*它会苏威吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。本周，我将从更严肃的摄影爱好中抽身出来，把更多的时间花在室内。
 

@@ -1,6 +1,6 @@
 # 即使落后，也要在今天完成 NaNoWriMo
 
-> 原文:[https://life hacker . com/dirty-tricks-to-finish-nanowrimo-today-even-if-you-re-1820879507](https://lifehacker.com/dirty-tricks-to-finish-nanowrimo-today-even-if-you-re-1820879507)
+> 原文：<https://lifehacker.com/dirty-tricks-to-finish-nanowrimo-today-even-if-you-re-1820879507>
 
 这是写给那些怀疑自己的铁杆小说作家的，他们在本月早些时候承诺在 30 天内写 5 万字，但之后...呃，出了点事。
 

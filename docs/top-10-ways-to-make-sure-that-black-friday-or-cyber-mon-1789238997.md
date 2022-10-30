@@ -1,6 +1,6 @@
 # 确保黑色星期五或网络星期一便宜货真价实的十大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-make-that-black-Friday-or-cyber-mon-1789238997](https://lifehacker.com/top-10-ways-to-make-sure-that-black-friday-or-cyber-mon-1789238997)
+> 原文：<https://lifehacker.com/top-10-ways-to-make-sure-that-black-friday-or-cyber-mon-1789238997>
 
 黑色星期五可能已经结束，但假日购物季才刚刚开始，网络星期一即将来临。但是在你花钱之前——或者即使你已经花了——这里有一些很好的方法来确保你看到的是一笔真正的交易，或者只是一个膨胀然后打折的价格。
 

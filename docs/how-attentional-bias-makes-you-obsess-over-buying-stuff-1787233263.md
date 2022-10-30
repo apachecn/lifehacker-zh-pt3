@@ -1,6 +1,6 @@
 # 注意力偏见如何让你沉迷于购买你不需要的东西
 
-> 原文:[https://life hacker . com/how-attention-bias-make-you-obses-over-buying-stuff-1787233263](https://lifehacker.com/how-attentional-bias-makes-you-obsess-over-buying-stuff-1787233263)
+> 原文：<https://lifehacker.com/how-attentional-bias-makes-you-obsess-over-buying-stuff-1787233263>
 
 每隔几天，我的注意力就会被一些新的东西抓住(或者，有时，一些我已经忘记的旧东西)。可能是电影吧。可能是桌游吧。也许是个新玩意。也许是一本书。不管那是什么，它吸引了我的注意力。
 

@@ -1,6 +1,6 @@
 # 第二个孩子的诅咒是真实的
 
-> 原文:[https://life hacker . com/the-curse-of-the-second-born-child-is-real-1796719357](https://lifehacker.com/the-curse-of-the-second-born-child-is-real-1796719357)
+> 原文：<https://lifehacker.com/the-curse-of-the-second-born-child-is-real-1796719357>
 
 如果你有一个最小或中间的儿子，你会想像老鹰一样看着他们。第二个出生的儿子更有可能被停职，成为少年犯，并进监狱。
 

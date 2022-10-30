@@ -1,6 +1,6 @@
 # 以下是你应该使用蒸馏水的所有方法
 
-> 原文:[https://life hacker . com/here-are-all-the-way-you-be-use-蒸馏水-1821080543](https://lifehacker.com/here-are-all-the-ways-you-should-be-using-distilled-wat-1821080543)
+> 原文：<https://lifehacker.com/here-are-all-the-ways-you-should-be-using-distilled-wat-1821080543>
 
 对于一个对人类生活如此重要的分子来说，当自来水很好的时候，“蒸馏水”的存在有点令人困惑，尤其是如果你不确定该如何处理这种物质。事实证明，这不仅仅是让你在杂货店里迷惑，或者蒸你的衣服。事实证明，有些用例与其说是确定的，不如说是迷信的。
 

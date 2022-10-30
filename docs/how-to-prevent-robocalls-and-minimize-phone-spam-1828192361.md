@@ -1,6 +1,6 @@
 # 如何防止自动电话并最大限度地减少垃圾电话
 
-> 原文:[https://life hacker . com/how-to-prevent-robo calls-and-minimize-phone-spam-1828192361](https://lifehacker.com/how-to-prevent-robocalls-and-minimize-phone-spam-1828192361)
+> 原文：<https://lifehacker.com/how-to-prevent-robocalls-and-minimize-phone-spam-1828192361>
 
 今年似乎是机器人呼叫年。我还没有直接注意到这一点，但许多朋友、同事和互联网发帖者现在似乎比以往任何时候都被扯淡的电话淹没了。我们生活在一个多么伟大的时代，任何一个有自动拨号器的人都可以向那些不想听到虚假的度假优惠或其他废话的人打出数百万个电话。
 

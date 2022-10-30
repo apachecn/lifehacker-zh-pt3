@@ -1,6 +1,6 @@
 # 如何在 Mac 和 iOS 上启用 Safari 收藏夹图标
 
-> 原文:[https://life hacker . com/how-to-enable-safari-favicons-on-MAC-and-IOs-1829148992](https://lifehacker.com/how-to-enable-safari-favicons-on-mac-and-ios-1829148992)
+> 原文：<https://lifehacker.com/how-to-enable-safari-favicons-on-mac-and-ios-1829148992>
 
 苹果于 9 月 17 日为 macOS Sierra 和 High Sierra 用户推出了其 Safari 网络浏览器的最新版本 [、Safari 12](https://developer.apple.com/safari/download/) ，它带来了一系列新的安全功能和方便的小功能——包括图标。
 

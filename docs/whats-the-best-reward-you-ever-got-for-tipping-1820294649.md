@@ -1,6 +1,6 @@
 # 你给小费得到的最好回报是什么？
 
-> 原文:[https://life hacker . com/whats-whats-the-best-reward-you ever-get-for-tipping-1820294649](https://lifehacker.com/whats-the-best-reward-you-ever-got-for-tipping-1820294649)
+> 原文：<https://lifehacker.com/whats-the-best-reward-you-ever-got-for-tipping-1820294649>
 
 给小费的最好理由不是给你自己，而是给你要给小费的人。这是一种示好的方式，有时这也是服务人员获得可维持收入的唯一方式。但是作为一个额外的奖励，如果你给的小费很多，你可能会得到一些不错的折扣、免费赠品或特殊服务。
 

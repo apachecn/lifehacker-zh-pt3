@@ -1,6 +1,6 @@
 # 两部手机，2tb 的移动设置
 
-> 原文:[https://life hacker . com/the-two-phone-2tb-mobile-setup-1798347625](https://lifehacker.com/the-two-phone-two-terabyte-mobile-setup-1798347625)
+> 原文：<https://lifehacker.com/the-two-phone-two-terabyte-mobile-setup-1798347625>
 
 就设备兼容性而言，未来是地狱。除了更新砖设备或使它们过时，你最终需要购买全新的电缆，连接器和兼容设备来保持一切运行(我看着你，USB-C)。这是一件麻烦事，尤其是像耳机 这样简单的东西会引起一系列的麻烦。
 

@@ -1,6 +1,6 @@
 # 国税局网站崩溃后，你有额外的一天来报税
 
-> 原文:[https://life hacker . com/you-have-a-a-day to-file you-tax-1825342803](https://lifehacker.com/you-have-an-extra-day-to-file-your-taxes-1825342803)
+> 原文：<https://lifehacker.com/you-have-an-extra-day-to-file-your-taxes-1825342803>
 
 恭喜那些拖延者，由于国税局的“”页面适时崩溃，你今年有额外的一天来报税。
 

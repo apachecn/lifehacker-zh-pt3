@@ -1,6 +1,6 @@
 # 如何使用亚马逊 Echo 作为您的家庭安全系统
 
-> 原文:[https://life hacker . com/how-to-use-Amazon-echo-as-your-home-security-system-1828331024](https://lifehacker.com/how-to-use-amazon-echo-as-your-home-security-system-1828331024)
+> 原文：<https://lifehacker.com/how-to-use-amazon-echo-as-your-home-security-system-1828331024>
 
 如果你是租房住，你可能无法安装传统的有线安全系统——如果你住在一个小空间里，你可能不需要安装。相反，考虑用 Amazon Echo 设备作为操作的大脑，一点一点地构建自己的安全系统。亚马逊的 Alexa 与字面上的 [成千上万的设备](https://developer.amazon.com/alexa/smart-home/compatible?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-use-amazon-echo-as-your-home-security-system-1828331024&asc_source=&tag=kinjalifehackerlink-20) 集成，增加了便利性*和*安全性，所以你可以挑选你需要的摄像头、锁、灯和传感器，然后在你的 Echo 上启用相关技能。
 

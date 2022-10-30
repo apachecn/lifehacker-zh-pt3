@@ -1,6 +1,6 @@
 # 即食布法罗鸡翅又快又简单，而且非常好吃
 
-> 原文:[https://life hacker . com/instant-pot-buffalo-wings-is-fast-easy-and-very-good-1822565911](https://lifehacker.com/instant-pot-buffalo-wings-are-fast-easy-and-very-good-1822565911)
+> 原文：<https://lifehacker.com/instant-pot-buffalo-wings-are-fast-easy-and-very-good-1822565911>
 
 我的美国同胞们，一年一度的决赛即将来临。我是一个来自纽约州北部的单纯的、热爱足球的女孩，因此，我的口味也很简单:这个星期天，我想吃与我体重相当的布法罗鸡翅，狠狠地盯着一些屁股看，并且——上帝保佑——看着汤姆·布拉迪在全国电视上哭出又大又肥的耻辱眼泪。
 

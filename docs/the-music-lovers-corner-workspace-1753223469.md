@@ -1,6 +1,6 @@
 # 音乐爱好者的角落工作区
 
-> 原文:[https://life hacker . com/the-music-lovers-corner-workspace-1753223469](https://lifehacker.com/the-music-lovers-corner-workspace-1753223469)
+> 原文：<https://lifehacker.com/the-music-lovers-corner-workspace-1753223469>
 
 一台显示器专用于音乐，另一台完全用于完成工作？我们可以接受那个想法。Jan Smedemark 提交了这个尖锐但实用的工作空间，作为音乐爱好者，我们欣赏他的优先事项。
 

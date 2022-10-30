@@ -1,6 +1,6 @@
 # 黑客可能会进入你的 Sonos 扬声器
 
-> 原文:[https://life hacker . com/hackers-may-be-able-to-access-your-sonos-speakers-1821670790](https://lifehacker.com/hackers-might-be-able-to-access-your-sonos-speakers-1821670790)
+> 原文：<https://lifehacker.com/hackers-might-be-able-to-access-your-sonos-speakers-1821670790>
 
 如果你有一段时间没有打开 Sonos 扬声器，现在可能是启动应用程序的好时机。
 

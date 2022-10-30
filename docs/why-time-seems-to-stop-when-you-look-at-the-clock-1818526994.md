@@ -1,6 +1,6 @@
 # 为什么当你看钟的时候时间似乎停止了
 
-> 原文:[https://life hacker . com/why-time-that-stop-when-you-look-the-clock-1818526994](https://lifehacker.com/why-time-seems-to-stop-when-you-look-at-the-clock-1818526994)
+> 原文：<https://lifehacker.com/why-time-seems-to-stop-when-you-look-at-the-clock-1818526994>
 
 你在开一个冗长无聊的会议。你再次抬头看钟，希望时间过得比感觉的要快，但相反，钟的秒针似乎根本不动。不，时钟不只是暂停来嘲弄你，你的大脑在捉弄你。
 

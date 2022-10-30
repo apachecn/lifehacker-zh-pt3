@@ -1,6 +1,6 @@
 # 如何保护你的苹果设备免受 Meltdown 安全漏洞的影响
 
-> 原文:[https://life hacker . com/how-to-protect-your-apple-devices-from-the-meltdown-sec-1821806658](https://lifehacker.com/how-to-protect-your-apple-devices-from-the-meltdown-sec-1821806658)
+> 原文：<https://lifehacker.com/how-to-protect-your-apple-devices-from-the-meltdown-sec-1821806658>
 
 有消息称，由于两个安全缺陷，你的电脑和移动设备中的几乎每一个处理器都容易受到攻击，这两个安全缺陷是 [Meltdown 和](https://gizmodo.com/what-we-know-so-far-about-meltdown-and-spectre-the-dev-1821759062)Spectre——微软和谷歌等公司发布了 [补丁，以加强各自操作系统和设备的安全性](https://lifehacker.com/how-to-protect-yourself-from-meltdown-and-spectre-the-1821781392) 。苹果现在也加入了这个行列， [发布了一份关于其受影响设备的声明](https://support.apple.com/en-us/HT208394) ，并指导用户更新他们的设备。
 

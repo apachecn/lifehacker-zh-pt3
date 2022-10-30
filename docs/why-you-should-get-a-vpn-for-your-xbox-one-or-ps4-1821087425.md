@@ -1,6 +1,6 @@
 # 为什么你应该为你的 Xbox One 或 PS4 安装一个 VPN
 
-> 原文:[https://life hacker . com/why-you-should-get-a-VPN-for-your-Xbox-one-or-ps4-1821087425](https://lifehacker.com/why-you-should-get-a-vpn-for-your-xbox-one-or-ps4-1821087425)
+> 原文：<https://lifehacker.com/why-you-should-get-a-vpn-for-your-xbox-one-or-ps4-1821087425>
 
 在忍受了我和我的室友们在过去几年中喜欢开玩笑的“第一个[【Roku】](https://lifehacker.com/the-best-private-roku-channels-and-how-to-install-them-1700519600)”之后，我最近决定通过我的 [PlayStation 4](https://lifehacker.com/how-to-set-up-an-external-hard-drive-on-your-ps4-1793125365) 来观看我所有的视频。这种体验已经好了一百万倍(不再有延迟、随机崩溃或多年未更新的应用程序设计)，但它也让我思考我是否可以在我的游戏主机上使用一个 [虚拟专用网](http://gear.lifehacker.com/the-best-vpn-service-is-private-internet-access-1794083573) (VPN)来进一步改善事情。
 

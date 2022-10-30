@@ -1,6 +1,6 @@
 # 如果你孩子的汽车座椅安全带松了，找一个任性的啦啦队员
 
-> 原文:[https://life hacker . com/if-your-child-s-car-seat-straps-is-look-for-a-w-1792594844](https://lifehacker.com/if-your-child-s-car-seat-straps-are-loose-look-for-a-w-1792594844)
+> 原文：<https://lifehacker.com/if-your-child-s-car-seat-straps-are-loose-look-for-a-w-1792594844>
 
 孩子们到处制造混乱，汽车座椅也不例外。如果一点食物或一件玩具卡在座椅的释放杆上，这种混乱就会变得非常危险。释放杆是座椅的一个半秘密部分，需要平稳工作以保持带子舒适。
 

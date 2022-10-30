@@ -1,6 +1,6 @@
 # 如何回复(被通缉的)裸照
 
-> 原文:[https://life hacker . com/how-to-reply-a-wanted-nude-pic-1822628193](https://lifehacker.com/how-to-reply-to-a-wanted-nude-pic-1822628193)
+> 原文：<https://lifehacker.com/how-to-reply-to-a-wanted-nude-pic-1822628193>
 
 悄悄地，在你的周围，每天无数次，一个女人把自己的裸照发给她正在交往的男人，男人给了一个很烂的回应，伤害了女人的感情。(想必这也发生在其他性别组合中，但很容易找到对女性这样做的男性！作家梅里特·k 已经将这些糟糕的回答 进行了分类，这样你就可以避免它们，也许会被认为值得更多的裸体。比如:
 

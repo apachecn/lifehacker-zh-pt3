@@ -1,6 +1,6 @@
 # 如何在不接触蜱虫的情况下去除蜱虫
 
-> 原文:[https://life hacker . com/how-to-remove-a-tick-with-touch-it-1796714398](https://lifehacker.com/how-to-remove-a-tick-without-touching-it-1796714398)
+> 原文：<https://lifehacker.com/how-to-remove-a-tick-without-touching-it-1796714398>
 
 如果你发现自己身上有虱子，想要爬出你的皮肤，烧掉它，展示你的骨骼和肌肉，过你的生活，这是完全正常的。因为上次我尝试的时候没有成功，我很高兴地告诉大家*是一种安全、有效、不用动手的去除皮肤上虱子的方法。事实上不止一个。*
 

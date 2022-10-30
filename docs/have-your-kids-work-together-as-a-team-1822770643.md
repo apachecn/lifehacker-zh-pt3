@@ -1,6 +1,6 @@
 # 让你的孩子作为一个团队一起工作
 
-> 原文:[https://life hacker . com/have-your-kids-work-together-as-a team-1822770643](https://lifehacker.com/have-your-kids-work-together-as-a-team-1822770643)
+> 原文：<https://lifehacker.com/have-your-kids-work-together-as-a-team-1822770643>
 
 每个有不止一个孩子的父母可能都知道这个秘密:如果你把家务变成一种竞争，孩子们会做得更快。“看谁能叠最多的 t 恤。准备，出发！”“我想知道谁会先刷牙，先穿上睡衣。*嗯嗯。*走！”“你知道，妈妈可以用按摩。谁能给我一个最神奇的？去吧！”
 

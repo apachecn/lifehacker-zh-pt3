@@ -1,6 +1,6 @@
 # 为什么你需要你的发型师的联系方式
 
-> 原文:[https://life hacker . com/why-you-need-your 发型设计师-联系信息-1824151743](https://lifehacker.com/why-you-need-your-hair-stylists-contact-info-1824151743)
+> 原文：<https://lifehacker.com/why-you-need-your-hair-stylists-contact-info-1824151743>
 
 如果你总是去同一个地方做头发，因为某某人知道如何让你看起来更好，向他们要电话号码或电子邮件。他们可能不会在那个地方呆太久。
 

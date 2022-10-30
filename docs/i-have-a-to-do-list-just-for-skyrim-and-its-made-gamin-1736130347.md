@@ -1,6 +1,6 @@
 # 我有一个 Skyrim 的任务清单，它让游戏变得更好
 
-> 原文:[https://life hacker . com/I-have-a-to-do-list-just-for-skyrim-and-its-made-gamin-1736130347](https://lifehacker.com/i-have-a-to-do-list-just-for-skyrim-and-its-made-gamin-1736130347)
+> 原文：<https://lifehacker.com/i-have-a-to-do-list-just-for-skyrim-and-its-made-gamin-1736130347>
 
 我们都努力提高工作效率。我们梦想有一份精心制作的待办事项清单，让你真正坚持下去。我已经解锁了这项成就，但它不在办公室。我完美的待办事项清单帮助我完成任务...在电子游戏中。
 

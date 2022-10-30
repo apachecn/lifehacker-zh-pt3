@@ -1,6 +1,6 @@
 # 本周在 Roku 上免费观看《亿万富翁》和其他 Showtime 系列节目
 
-> 原文:[https://life hacker . com/Roku-will-give-you-access-to-show time-shows-for-the-NEX-1826037585](https://lifehacker.com/roku-will-give-you-access-to-showtime-shows-for-the-nex-1826037585)
+> 原文：<https://lifehacker.com/roku-will-give-you-access-to-showtime-shows-for-the-nex-1826037585>
 
 全国流媒体日快乐！谁知道流媒体内容需要自己的假期，而这是我们每个晚上都在做的事情？它有一个。
 

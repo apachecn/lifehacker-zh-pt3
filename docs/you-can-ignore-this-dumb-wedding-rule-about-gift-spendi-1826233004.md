@@ -1,6 +1,6 @@
 # 你可以忽略这个愚蠢的关于礼物花费的婚礼规则
 
-> 原文:[https://life hacker . com/you-can-ignore-this-dumb-wedding-rule-on-gift-spendi-1826233004](https://lifehacker.com/you-can-ignore-this-dumb-wedding-rule-about-gift-spendi-1826233004)
+> 原文：<https://lifehacker.com/you-can-ignore-this-dumb-wedding-rule-about-gift-spendi-1826233004>
 
 随着结婚季节进入高潮，你可能想知道为这对幸福的夫妇买一份礼物多少钱合适。幸运的是，你不再需要使用旧的规则来解决它，因为有一个简单的答案:无论你能负担得起。
 

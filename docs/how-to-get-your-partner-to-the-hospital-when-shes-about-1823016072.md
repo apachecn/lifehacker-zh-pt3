@@ -1,6 +1,6 @@
 # 当你的伴侣快要生孩子时，如何带她去医院
 
-> 原文:[https://life hacker . com/how-to-get-your-partner-when-she-about-1823016072](https://lifehacker.com/how-to-get-your-partner-to-the-hospital-when-shes-about-1823016072)
+> 原文：<https://lifehacker.com/how-to-get-your-partner-to-the-hospital-when-shes-about-1823016072>
 
 小圆面包在烤箱里放了九个月，现在已经烤成金黄色了。是时候拿出来了！
 

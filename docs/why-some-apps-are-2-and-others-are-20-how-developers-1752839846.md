@@ -1,6 +1,6 @@
 # 为什么有些应用程序是 2 美元，有些是 20 美元:开发者如何给软件定价
 
-> 原文:[https://life hacker . com/why-some-apps-are-2-and-others-are-20-how-developers-1752839846](https://lifehacker.com/why-some-apps-are-2-and-others-are-20-how-developers-1752839846)
+> 原文：<https://lifehacker.com/why-some-apps-are-2-and-others-are-20-how-developers-1752839846>
 
 决定让一个应用程序免费，另一个五美元，还是让另一个按月订阅，需要考虑很多因素。我们大多数人都看不到这一点，但开发商在选择价格标签时会面临艰难的选择——这些选择可能会让他们变得富有，只是支付他们的账单，或者让他们一文不名。
 

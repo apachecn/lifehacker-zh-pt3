@@ -1,6 +1,6 @@
 # 哪里可以获得 2018 年全国咖啡日的免费咖啡
 
-> 原文:[https://life hacker . com/where-to-get-free-coffee-for-national-coffee-day-2018-1829388472](https://lifehacker.com/where-to-get-free-coffee-for-national-coffee-day-2018-1829388472)
+> 原文：<https://lifehacker.com/where-to-get-free-coffee-for-national-coffee-day-2018-1829388472>
 
 9 月 29 日星期六是全国咖啡日，连锁店提供免费赠品和折扣，从慷慨到吝啬到可笑。这里有最好的交易，所以你可以得到一杯无附加条件的免费咖啡，而不是满足于一袋咖啡豆 25%的折扣(目前李丁丁的“交易”)。
 

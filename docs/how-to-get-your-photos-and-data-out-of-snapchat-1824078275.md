@@ -1,6 +1,6 @@
 # 如何在 Snapchat 中备份照片和数据
 
-> 原文:[https://life hacker . com/how-to-get-your-photos-and-data-out-of-snapchat-1824078275](https://lifehacker.com/how-to-get-your-photos-and-data-out-of-snapchat-1824078275)
+> 原文：<https://lifehacker.com/how-to-get-your-photos-and-data-out-of-snapchat-1824078275>
 
 不完全是 [#deleteFacebook](http://www.businessinsider.com/facebook-free-services-deletefacebook-2018-3) ，但是也有一个 [的成长运动](https://lifehacker.com/its-time-to-stop-using-snapchat-unless-youre-a-teen-1821919274) 把 Snapchat 从智能手机上抹掉。该公司的 [反响不佳的重新设计](https://lifehacker.com/how-to-revert-the-snapchat-app-back-to-the-pre-redesign-1822904222) ，加上最近出现在 app 中的一个 [攻击性广告](https://www.cnn.com/2018/03/15/entertainment/rihanna-snapchat/index.html) ，已经推动更多人完全放弃 Snapchat 包括 [你最喜欢的名人](https://twitter.com/chrissyteigen/status/977582927398584320) 。
 

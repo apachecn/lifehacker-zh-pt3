@@ -1,6 +1,6 @@
 # 这些脸书小组将帮助您掌握速溶壶
 
-> 原文:[https://life hacker . com/these-Facebook-groups-will-help-you-master-the-instant-1821718330](https://lifehacker.com/these-facebook-groups-will-help-you-master-the-instant-1821718330)
+> 原文：<https://lifehacker.com/these-facebook-groups-will-help-you-master-the-instant-1821718330>
 
 速溶壶是这个假日季节赠送和获得的厨房玩具，但它们的黑盒氛围一开始可能有点吓人。如果你对所有这些按钮和功能有点不知所措，只要深呼吸，拥抱一个速溶壶脸书集团的“数字安全”方法。
 

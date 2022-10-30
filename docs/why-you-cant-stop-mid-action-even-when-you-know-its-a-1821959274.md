@@ -1,6 +1,6 @@
 # 为什么你不能中途停止，即使你知道这是一个坏主意
 
-> 原文:[https://life hacker . com/why-you-can-stop-mid-action-even-when-you-know-it-a-1821959274](https://lifehacker.com/why-you-cant-stop-mid-action-even-when-you-know-its-a-1821959274)
+> 原文：<https://lifehacker.com/why-you-cant-stop-mid-action-even-when-you-know-its-a-1821959274>
 
 当你意识到门廊上覆盖着闪闪发光的滑冰时，你走上一步。你的思想想要停止，这样你就不会伤害自己，但是你的身体不会及时得到这个信息。这就是你的大脑在想什么。
 

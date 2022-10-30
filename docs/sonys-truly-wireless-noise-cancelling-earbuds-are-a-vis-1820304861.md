@@ -1,6 +1,6 @@
 # 索尼真正的无线降噪耳塞是未来的愿景
 
-> 原文:[https://gizmodo . com/sonys-true-wireless-noise-cancelling-earbuds-is-a-vis-1820304861](https://gizmodo.com/sonys-truly-wireless-noise-cancelling-earbuds-are-a-vis-1820304861)
+> 原文：<https://gizmodo.com/sonys-truly-wireless-noise-cancelling-earbuds-are-a-vis-1820304861>
 
 当我第一次听到索尼 WF-1000X 的时候，我以为我听错了。索尼制造了一套新的无线耳塞，不仅仅是完全无线的——它们还采用了主动降噪技术。这是无线耳塞行业的第一次，让我第一个告诉你:这太棒了。
 

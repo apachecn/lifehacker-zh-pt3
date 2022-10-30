@@ -1,6 +1,6 @@
 # 紧急避孕和流产药丸的区别
 
-> 原文:[https://life hacker . com/the-difference-in-emergency-contracting-and-abor-1821750144](https://lifehacker.com/the-difference-between-emergency-contraception-and-abor-1821750144)
+> 原文：<https://lifehacker.com/the-difference-between-emergency-contraception-and-abor-1821750144>
 
 在最近的一集*黑镜*中，一个角色(我不说是谁就不算剧透了吧？) [企图结束他人的妊娠](https://www.thedailybeast.com/somebody-please-explain-the-morning-after-pill-to-male-tv-writers) 在她的早餐奶昔中加入紧急避孕药。伙计们，EC 和避孕药是两码事。
 

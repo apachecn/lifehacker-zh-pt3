@@ -1,6 +1,6 @@
 # 这个产品将拯救你的夏天
 
-> 原文:[https://Jezebel . com/this-one-product-will-save-your-summer-1782373238](https://jezebel.com/this-one-product-will-save-your-summer-1782373238)
+> 原文：<https://jezebel.com/this-one-product-will-save-your-summer-1782373238>
 
 尽管温暖的天气带来了新的风格的可能性，那些暴发户也并非没有失败。不合身的无肩带胸罩，露出内裤线条的裙子...都是新的奋斗，不是吗？但是有一个技巧，一个你可能已经知道的技巧，彻底改变了我穿着凉鞋的脚*。* 
 

@@ -1,6 +1,6 @@
 # 为什么我的桌面不会显示在我连接的电视上？
 
-> 原文:[https://life hacker . com/why-wont-my-desktop-show-up-on-my-connected-TV-1825961936](https://lifehacker.com/why-wont-my-desktop-show-up-on-my-connected-tv-1825961936)
+> 原文：<https://lifehacker.com/why-wont-my-desktop-show-up-on-my-connected-tv-1825961936>
 
 每个拥有一台带小显示器的台式电脑的人，或者在客厅里用笔记本电脑工作的人，可能都曾经做过同样的梦:把他们的电脑和他们的大电视连接起来。为什么不呢？电视是一个巨大的显示器，不是吗？当你的 55 英寸(或更大)电视闲置不用时，为什么还要忍受一个小小的显示器或笔记本电脑屏幕呢？
 

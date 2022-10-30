@@ -1,6 +1,6 @@
 # 健身模特是如何拍出这些照片的
 
-> 原文:[https://life hacker . com/how-fitness-models-really-get-these-photo shoot-bodies-1732211876](https://lifehacker.com/how-fitness-models-really-get-those-photoshoot-bodies-1732211876)
+> 原文：<https://lifehacker.com/how-fitness-models-really-get-those-photoshoot-bodies-1732211876>
 
 很明显，你当地杂货店杂志封面上那个赤裸上身、轮廓分明的健身模特处于巅峰状态，但不太清楚他最初是如何变成那种身材的。好吧，剧透警告:如果你关心你的健康或理智，他会做一些你甚至不应该尝试的事情。
 

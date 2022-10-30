@@ -1,6 +1,6 @@
 # 给你喜欢咀嚼的狗的最好玩具
 
-> 原文:[https://life hacker . com/the-best-toy for-your-chew-happy-dog-1827583532](https://lifehacker.com/the-best-toy-for-your-chew-happy-dog-1827583532)
+> 原文：<https://lifehacker.com/the-best-toy-for-your-chew-happy-dog-1827583532>
 
 你想让你的狗快乐，或者至少你想让它心满意足地咀嚼玩具，而不是消灭它——因为这样它就会转向鞋子。这里有一些给你的毁灭者的选择。
 

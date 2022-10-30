@@ -1,6 +1,6 @@
 # 设置 Twitter 的两步认证来使用第三方应用程序
 
-> 原文:[https://life hacker . com/set-up-twitters-two-step-authentic ation-to-work-with-th-1821475351](https://lifehacker.com/set-up-twitters-two-step-authentication-to-work-with-th-1821475351)
+> 原文：<https://lifehacker.com/set-up-twitters-two-step-authentication-to-work-with-th-1821475351>
 
 如果你在 Twitter 账户上设置了双重认证(这是你绝对应该做的，如果你没有，你应该现在就设置)，那么现在你就不必使用短信来访问你的账户了。
 

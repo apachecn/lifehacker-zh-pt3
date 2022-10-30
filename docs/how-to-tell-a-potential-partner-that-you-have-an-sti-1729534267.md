@@ -1,6 +1,6 @@
 # 如何告诉潜在伴侣你有性病
 
-> 原文:[https://life hacker . com/how-to-tell-a-potential-partner-that-you-an-STI-1729534267](https://lifehacker.com/how-to-tell-a-potential-partner-that-you-have-an-sti-1729534267)
+> 原文：<https://lifehacker.com/how-to-tell-a-potential-partner-that-you-have-an-sti-1729534267>
 
 疾病预防控制中心估计，在 25 岁之前，你有 50%的机会感染性病。尽管 [性传播感染](https://en.wikipedia.org/wiki/Sexually_transmitted_infection) 非常普遍，但大多数人还是不愿意与新的性伴侣坦诚地谈论安全性问题。患有性传播感染永远不会是在公园散步，但分享你的状态不必如此令人生畏。
 

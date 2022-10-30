@@ -1,6 +1,6 @@
 # 免费参加哈佛的佛教课程
 
-> 原文:[https://life hacker . com/take-a-Harvard-course-on-buddy-1822929586](https://lifehacker.com/take-a-harvard-course-on-buddhism-for-free-1822929586)
+> 原文：<https://lifehacker.com/take-a-harvard-course-on-buddhism-for-free-1822929586>
 
 如果你曾经对学习佛教感兴趣，现在是一个绝佳的机会。你可以免费在线参加哈佛大学关于佛教信仰、实践和经文的课程。
 

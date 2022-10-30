@@ -1,6 +1,6 @@
 # OnePlus 5T 如何与智能手机竞争
 
-> 原文:[https://life hacker . com/how-the-oneplus-5t-stacks-up-to-its-smart phone-competit-1820514848](https://lifehacker.com/how-the-oneplus-5t-stacks-up-to-its-smartphone-competit-1820514848)
+> 原文：<https://lifehacker.com/how-the-oneplus-5t-stacks-up-to-its-smartphone-competit-1820514848>
 
 一加通过以低廉的价格提供高质量的硬件，在竞争激烈的智能手机市场为自己开拓了一个利基市场。该公司的最新手机 [OnePlus 5T](https://gizmodo.com/here-are-the-3-biggest-upgrades-on-the-new-oneplus-5t-1820507459) 也没有什么不同，提供你期望从最新的苹果或三星设备中获得的技术，但价格只有一半。
 

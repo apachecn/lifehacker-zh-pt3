@@ -1,6 +1,6 @@
 # 给西瓜调味的 5 种美味方法
 
-> 原文:[https://life hacker . com/5-savory-ways-to-season-1795894364](https://lifehacker.com/5-savory-ways-to-season-watermelon-1795894364)
+> 原文：<https://lifehacker.com/5-savory-ways-to-season-watermelon-1795894364>
 
 我不知道这是南方的东西，还是我祖母特有的东西，但我从小就吃很多甜瓜作为甜点，而且总是，总是，总是撒上一点盐。
 

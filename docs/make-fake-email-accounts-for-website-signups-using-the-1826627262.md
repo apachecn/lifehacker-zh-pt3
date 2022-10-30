@@ -1,6 +1,6 @@
 # 使用“一次性电子邮件”扩展为网站注册创建假的电子邮件帐户
 
-> 原文:[https://life hacker . com/make-fake-email-accounts-for-website-signs-using-the-1826627262](https://lifehacker.com/make-fake-email-accounts-for-website-signups-using-the-1826627262)
+> 原文：<https://lifehacker.com/make-fake-email-accounts-for-website-signups-using-the-1826627262>
 
 Chrome 和 Firefox:在注册网站或服务时，你可能有很多理由不想给出真实的电子邮件地址。也许你真的很注重隐私；或者，更有可能的是，你讨厌垃圾邮件，认为知道你真实电子邮件地址的地方越少越好。
 

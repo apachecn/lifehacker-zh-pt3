@@ -1,6 +1,6 @@
 # 使用这款应用程序，您可以在一天内以低廉的价格享用豪华泳池和水疗中心
 
-> 原文:[https://life hacker . com/get-day-access-to-luxury-pools-and-spas-on-the-cheap-wi-1826509176](https://lifehacker.com/get-day-access-to-luxury-pools-and-spas-on-the-cheap-wi-1826509176)
+> 原文：<https://lifehacker.com/get-day-access-to-luxury-pools-and-spas-on-the-cheap-wi-1826509176>
 
 我是梦幻泳池和海滩的超级粉丝，但是一个作家的薪水通常无法支付酒店账单，让他经常住在附属于这些梦幻泳池和海滩的酒店里。day pass 是一个应用程序，让像我这样的穷人可以使用世界各地酒店的健康和健身设施，并支付一天的费用，而不是整晚的住宿。这意味着你可以在一家 600 美元/晚的酒店的游泳池边休息一整天，或者在街上的汽车旅馆 6 号住宿时，进入五星级度假村的专属海滩区。
 

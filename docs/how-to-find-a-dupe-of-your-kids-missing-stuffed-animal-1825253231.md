@@ -1,6 +1,6 @@
 # 如何找到孩子丢失的毛绒玩具的复制品
 
-> 原文:[https://life hacker . com/how-to-find-a-dupe-of-your-kids-missing-buddy-animal-1825253231](https://lifehacker.com/how-to-find-a-dupe-of-your-kids-missing-stuffed-animal-1825253231)
+> 原文：<https://lifehacker.com/how-to-find-a-dupe-of-your-kids-missing-stuffed-animal-1825253231>
 
 “请帮我找到一个失去的‘最好的朋友’的替代者，”一个名叫 piper2010cameron 的人在网上发帖写道。“我到处都找遍了。”对失踪同伴的描述:一只小小的填充老虎，有橙色和黑色的条纹，一个小三角鼻子和一个毛茸茸的白色肚子。然后出现了这句令人心碎的台词:“我可怜的孩子一直在问为什么‘Itsy Bitsy’还没回家，这让我很难过。”
 

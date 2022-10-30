@@ -1,6 +1,6 @@
 # 用一个大的苹果盒子轻智能手机人像照片
 
-> 原文:[https://life hacker . com/light-smart phone-portrait-photos-with-a-big-MAC-box-1810246293](https://lifehacker.com/light-smartphone-portrait-photos-with-a-big-mac-box-1810246293)
+> 原文：<https://lifehacker.com/light-smartphone-portrait-photos-with-a-big-mac-box-1810246293>
 
 如果你正在为你的自拍或智能手机肖像寻找一个便宜又有点味道的照明解决方案，别再犹豫了。巴-达-巴-巴-巴，我喜欢这个巨无霸盒子的灯光魔术。
 

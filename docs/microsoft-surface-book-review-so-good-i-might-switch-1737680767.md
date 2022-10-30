@@ -1,6 +1,6 @@
 # 微软 Surface 书评:太好了，我可能会换回 Windows
 
-> 原文:[https://gizmodo . com/Microsoft-surface-book-review-so-good-I-may-switch-1737680767](https://gizmodo.com/microsoft-surface-book-review-so-good-i-might-switch-1737680767)
+> 原文：<https://gizmodo.com/microsoft-surface-book-review-so-good-i-might-switch-1737680767>
 
 这里有一个疯狂的。在从原始池中爬出来的一系列小工具中，微软雄心勃勃的 Surface Book 感觉像一个标点符号。这是一个出乎意料的转变，至少对我来说，这是一台如此诱人、习惯正在改变的电脑，以至于我在想——嘿，Windows 怎么样？
 

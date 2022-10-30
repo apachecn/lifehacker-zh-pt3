@@ -1,6 +1,6 @@
 # 轻松启用 YouTube 的秘密黑暗主题
 
-> 原文:[https://life hacker . com/enable-YouTube es-secret-dark-theme-the-easy-way-1798137898](https://lifehacker.com/enable-youtubes-secret-dark-theme-the-easy-way-1798137898)
+> 原文：<https://lifehacker.com/enable-youtubes-secret-dark-theme-the-easy-way-1798137898>
 
 大多数情况下，YouTube 的白色背景就可以了。然而，当你坐在黑暗的房间里看视频时，白色背景会让你感觉像是在看太阳(我们都知道这是一个禁忌，因为即将到来的日食)。如果你是一个经常深夜观看 YouTube 的人，实际上有一个隐藏的黑暗模式，你可以打开它，将所有的白色变成黑色，让你的眼睛得到急需的休息，并将你的 YouTube 体验转变为更像电影院的东西。
 

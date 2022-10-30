@@ -1,6 +1,6 @@
 # 如何为你的宠物选择合适的兽医
 
-> 原文:[https://life hacker . com/how-to-pick-the-right for-your pet-1791086990](https://lifehacker.com/how-to-pick-the-right-veterinarian-for-your-pet-1791086990)
+> 原文：<https://lifehacker.com/how-to-pick-the-right-veterinarian-for-your-pet-1791086990>
 
 很久以前，我的猫开始呕吐。经过昂贵的测试和 x 光检查后，结果显示她只是有轻微的甲状腺疾病。这些测试不是一个坏主意，但它们确实让我重新思考我和我的兽医的关系。如果你正在 [寻找新的兽医](https://lifehacker.com/where-to-start-when-youve-decided-you-want-a-dog-1665643067) 或者只是好奇你目前的兽医是否合适，以下是你应该知道的。
 

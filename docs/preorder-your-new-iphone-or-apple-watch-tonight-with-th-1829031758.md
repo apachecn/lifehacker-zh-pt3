@@ -1,6 +1,6 @@
 # 根据以下建议，今晚预订你的新 iPhone 或 Apple Watch
 
-> 原文:[https://life hacker . com/preorder-your-new-iphone-or-apple-watch-tonight-with-th-1829031758](https://lifehacker.com/preorder-your-new-iphone-or-apple-watch-tonight-with-th-1829031758)
+> 原文：<https://lifehacker.com/preorder-your-new-iphone-or-apple-watch-tonight-with-th-1829031758>
 
 如果你打算预订一部新的 iPhone XS 或 Apple Watch Series 4，你今晚将会熬夜。所有三款设备——iPhone XS、iPhone XS Max 和 Apple Watch Series 4——将有资格在 12:01 PT 预订。那是加州时间——，因为在苹果的世界里，条条大路通库比蒂诺。
 

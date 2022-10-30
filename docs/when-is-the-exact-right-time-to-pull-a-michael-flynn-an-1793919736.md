@@ -1,6 +1,6 @@
 # 什么时候才是迈克尔·弗林背叛你同事的最佳时机？
 
-> 原文:[https://life hacker . com/when-the-exact-right-time to-pull-a-Michael-Flynn-an-1793919736](https://lifehacker.com/when-is-the-exact-right-time-to-pull-a-michael-flynn-an-1793919736)
+> 原文：<https://lifehacker.com/when-is-the-exact-right-time-to-pull-a-michael-flynn-an-1793919736>
 
 如果你一直在关注迈克尔·弗林事件的发展，其中 [弗林提出为](http://theslot.jezebel.com/mike-flynn-has-reportedly-offered-to-testify-in-trump-r-1793877556) 特朗普政府与俄罗斯的关系作证，你可能会很好奇。当然，我很好奇弗林要说什么(难道我们不想知道吗！)但也只是好奇他的*战略*:为什么是现在？为什么不是一个月前或者一个月后？也许你问过自己，“如果我是某个邪恶行动的一部分，不管是有组织的犯罪，还是仅仅为了外国势力的利益而合谋调整美国政策，我怎么会知道*确切地说*在“囚徒困境”中拉下拉索并提出作证以换取豁免权的正确时机？”
 

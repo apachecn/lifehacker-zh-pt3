@@ -1,6 +1,6 @@
 # 我们实际使用的生活窍门
 
-> 原文:[https://life hacker . com/the-life-hacks-we-actual-use-1821998820](https://lifehacker.com/the-life-hacks-we-actually-use-1821998820)
+> 原文：<https://lifehacker.com/the-life-hacks-we-actually-use-1821998820>
 
 尽管我们在 Lifehacker 是生活窍门的鉴赏家，但我们不会每天都使用每一条建议。我们也倾向于写那些有趣的尝试，或者那些我们只有在下一个伟大的生活帮出现之前才会感到兴奋的事情。因此，为了获得真正的内幕消息，我调查了我们团队中经受住时间考验的技巧。以下是我们个人的最爱:
 

@@ -1,6 +1,6 @@
 # 我应该使用哪种形式的双因素身份验证？
 
-> 原文:[https://life hacker . com/which-form-of-two-factor-authentic ation-should-I-use-1784769336](https://lifehacker.com/which-form-of-two-factor-authentication-should-i-use-1784769336)
+> 原文：<https://lifehacker.com/which-form-of-two-factor-authentication-should-i-use-1784769336>
 
 双因素认证是保护账户最重要的方式之一。然而，最近一些身份验证方法，如短信，因易受黑客攻击而受到攻击，这破坏了“你知道的东西和你有的东西”的观点我们决定看看最常见的方法，并根据它们的安全性进行排序。
 

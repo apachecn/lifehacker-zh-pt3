@@ -1,6 +1,6 @@
 # 如何购买提供最大保护的烟雾报警器
 
-> 原文:[https://life hacker . com/how-to-buy-a-smoke-alarm-that-provide-the-most-protect-1728679224](https://lifehacker.com/how-to-buy-a-smoke-alarm-that-provides-the-most-protect-1728679224)
+> 原文：<https://lifehacker.com/how-to-buy-a-smoke-alarm-that-provides-the-most-protect-1728679224>
 
 法律要求每个家庭都有烟雾报警器，但并不是所有的烟雾报警器都一样。以下是如何选择适合自己的。
 

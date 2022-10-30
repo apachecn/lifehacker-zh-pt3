@@ -1,6 +1,6 @@
 # iOS 11 最讨厌的功能
 
-> 原文:[https://life hacker . com/IOs-11s-most-oblious-features-1818972474](https://lifehacker.com/ios-11s-most-obnoxious-features-1818972474)
+> 原文：<https://lifehacker.com/ios-11s-most-obnoxious-features-1818972474>
 
 iOS 11 为 iPhone 和 iPad 带来了 [许多令人兴奋的新功能](https://lifehacker.com/all-the-features-you-need-to-know-about-in-ios-11-1818714209) 。也带来了很多相当讨厌的。
 

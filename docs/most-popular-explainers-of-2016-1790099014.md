@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的解释者
 
-> 原文:[https://life hacker . com/most-popular-explainers-of-2016-1790099014](https://lifehacker.com/most-popular-explainers-of-2016-1790099014)
+> 原文：<https://lifehacker.com/most-popular-explainers-of-2016-1790099014>
 
 今年有各种各样的话题需要阐述。我们在街上抓到了神奇宝贝，学会了如何开会和投票，校准了我们新买的 HDR 电视，还服用了一些智能药物。以下是 2016 年最佳解释者。
 

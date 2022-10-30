@@ -1,6 +1,6 @@
 # 如何做出最美味的碳酸冷泡茶
 
-> 原文:[https://life hacker . com/how-to-make-the-most-delicious-carbonated-cold-brew-1796073835](https://lifehacker.com/how-to-make-the-most-delicious-carbonated-cold-brew-1796073835)
+> 原文：<https://lifehacker.com/how-to-make-the-most-delicious-carbonated-cold-brew-1796073835>
 
 作为一个国家，我们似乎不能放过我们的饮料，总是在寻找下一个噱头。我读了这篇文章 [，宣称冰镇啤酒和椰汁是“夏日饮品”，](https://www.sbnation.com/2017/6/12/15782844/cold-brew-coffee-and-coconut-la-croix-is-the-drink-of-the-summer) ，反应是怀疑和无奈的混合。
 

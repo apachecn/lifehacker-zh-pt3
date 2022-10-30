@@ -1,6 +1,6 @@
 # 如何获得生牛奶、最好的鸡蛋和其他有争议的食物
 
-> 原文:[https://life hacker . com/how-to-get-raw-milk-the-best-eggs-and-other-contro-1788213827](https://lifehacker.com/how-to-obtain-raw-milk-the-best-eggs-and-other-contro-1788213827)
+> 原文：<https://lifehacker.com/how-to-obtain-raw-milk-the-best-eggs-and-other-contro-1788213827>
 
 包括食物在内的许多东西，当它们是非法的时候会更有趣一点，我一直认为你应该能够把你想要的任何东西放进你的身体里，因为它是你自己的。虽然食用生乳制品、未冷冻的鸡蛋和马肉在技术上并不违法，但购买这些东西可能有点可疑，我们在这里向你展示如何获得这些商品。
 

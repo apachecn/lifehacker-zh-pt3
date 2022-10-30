@@ -1,6 +1,6 @@
 # 回家过节时在家人的电脑上要做的 10 件事
 
-> 原文:[https://life hacker . com/top-10-things-to-do-on-you-computer-when-you-g-1790003745](https://lifehacker.com/top-10-things-to-do-on-your-familys-computer-when-you-g-1790003745)
+> 原文：<https://lifehacker.com/top-10-things-to-do-on-your-familys-computer-when-you-g-1790003745>
 
 假期旅行几乎总是意味着，如果你是家里懂技术、懂电脑的人，有人会让你看看他们的笔记本电脑、手机或台式机。下次你回家时，用这份建议清单阻止他们。
 

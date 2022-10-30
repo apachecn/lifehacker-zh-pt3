@@ -1,6 +1,6 @@
 # 不买比特币，玩这个比特币交易游戏
 
-> 原文:[https://life hacker . com/inst-of-buying-bit coin-play-this-bit coin-trading-ga-1826671289](https://lifehacker.com/instead-of-buying-bitcoin-play-this-bitcoin-trading-ga-1826671289)
+> 原文：<https://lifehacker.com/instead-of-buying-bitcoin-play-this-bitcoin-trading-ga-1826671289>
 
 到目前为止，我已经损失了超过 30 万美元的比特币。现在我应该告诉你这都是假的，我只是在加密货币交易模拟游戏 [比特币翻转](https://bitcoinflip.app/game/) 中失去了它。但是不，我实际上在比特币便宜的时候买回了价值 400 美元的比特币，然后把它留在 Mt. Gox 在线交易所手中，然后 [失去了它](https://lifehacker.com/only-buy-bitcoin-if-youre-ready-to-lose-it-1820006087) 。然而，我最近还是又买了一个价值 210 美元的比特币，现在已经跌到了 172 美元。这不是投资，这是赌博。如果只是玩比特币翻转游戏，我会做得更好。
 

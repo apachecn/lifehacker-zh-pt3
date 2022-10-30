@@ -1,6 +1,6 @@
 # 如何在脸书黑客攻击中生存
 
-> 原文:[https://life hacker . com/how-to-survive-a-Facebook-hack-1825369416](https://lifehacker.com/how-to-survive-a-facebook-hack-1825369416)
+> 原文：<https://lifehacker.com/how-to-survive-a-facebook-hack-1825369416>
 
 又来了。Radware 的威胁研究小组 [最近宣布](https://blog.radware.com/security/2018/04/stresspaint-malware-campaign-targeting-facebook-credentials/) 超过 40，000 名脸书用户被骗下载了一个“缓解压力绘画”应用程序，通过一封狡猾的钓鱼邮件，当他们在应用程序中假装绘画时，他们的登录凭据和浏览器 cookies 被盗。更糟糕的是，这种攻击足够聪明，可以避免被典型的反病毒应用程序标记出来。
 

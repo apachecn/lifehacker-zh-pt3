@@ -1,6 +1,6 @@
 # 如何构建终极电影和音乐服务器
 
-> 原文:[https://gizmodo . com/how-to-build-the ultimate-movie-and-music-server-1791829599](https://gizmodo.com/how-to-build-the-ultimate-movie-and-music-server-1791829599)
+> 原文：<https://gizmodo.com/how-to-build-the-ultimate-movie-and-music-server-1791829599>
 
 如果你像我一样，你有数百千兆字节的数字媒体文件，从电影、音乐到电视节目，存储在便携式硬盘、旧笔记本电脑和各种 PC 上。如果所有的媒体都可以放在一个地方*并且*可以被你的其他电脑和智能设备轻松访问，那不是很好吗？借助合适的应用和网络连接存储设备，您可以做到这一点。
 

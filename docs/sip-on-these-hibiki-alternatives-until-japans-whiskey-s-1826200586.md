@@ -1,6 +1,6 @@
 # 啜饮这些日比基替代品，直到日本的威士忌短缺结束
 
-> 原文:[https://life hacker . com/sip-on-this-hibiki-alternatives-unt-japans-whiskey-s-1826200586](https://lifehacker.com/sip-on-these-hibiki-alternatives-until-japans-whiskey-s-1826200586)
+> 原文：<https://lifehacker.com/sip-on-these-hibiki-alternatives-until-japans-whiskey-s-1826200586>
 
 上周 [给日本威士忌爱好者](https://kotaku.com/japan-is-running-out-of-whisky-1826032552) 带来了可怕的消息:三得利计划停止销售广受欢迎、价格相当实惠的 Hakushu 12 年单一麦芽威士忌和 Hibiki 17 年混合威士忌。但是不要害怕，哦，喝烈酒的人，还有其他更好的选择。这些威士忌的味道和香气可能不尽相同，但它们肯定会以相似的方式吸引你的味觉。
 

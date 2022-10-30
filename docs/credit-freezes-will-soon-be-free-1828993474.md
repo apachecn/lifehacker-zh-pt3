@@ -1,6 +1,6 @@
 # 信用冻结将很快解除
 
-> 原文:[https://life hacker . com/credit-freezing-will-soon-be-free-1828993474](https://lifehacker.com/credit-freezes-will-soon-be-free-1828993474)
+> 原文：<https://lifehacker.com/credit-freezes-will-soon-be-free-1828993474>
 
 随着Equifax 违规事件一周年纪念日的到来，这里提醒您，由于今年早些时候通过的一项联邦法律，您将能够 [冻结您的信用报告](https://twocents.lifehacker.com/credit-freezes-are-about-to-become-free-1826260411) 并注册为期一年的 [免费欺诈警报，从 9 月 21 日](https://www.consumer.ftc.gov/blog/2018/06/free-credit-freezes-are-coming-soon-0) 开始。
 

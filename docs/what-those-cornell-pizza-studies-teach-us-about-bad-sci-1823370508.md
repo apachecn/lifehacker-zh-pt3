@@ -1,6 +1,6 @@
 # 康奈尔披萨研究告诉我们什么是糟糕的科学
 
-> 原文:[https://life hacker . com/what-thes-Cornell-pizza-studies-teach-us-about-bad-sci-1823370508](https://lifehacker.com/what-those-cornell-pizza-studies-teach-us-about-bad-sci-1823370508)
+> 原文：<https://lifehacker.com/what-those-cornell-pizza-studies-teach-us-about-bad-sci-1823370508>
 
 草率的统计数据和不当的研究行为并不新鲜，但很少有人能清楚地了解可疑数据是如何变成点击标题的。我们现在有了关于康奈尔大学食品科学家布莱恩·万辛克的最新报道，值得花一分钟来看看他被指控使用 的 [欺诈研究技术到底错在哪里。](https://lifehacker.com/some-of-our-best-food-hacks-may-be-wrong-1794125552) 
 

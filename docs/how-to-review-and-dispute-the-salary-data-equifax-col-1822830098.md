@@ -1,6 +1,6 @@
 # 如何查看(并质疑)Equifax 收集的您的工资数据
 
-> 原文:[https://life hacker . com/how-to-review-and-disputed-the-salary-data-equifax-col-1822830098](https://lifehacker.com/how-to-review-and-dispute-the-salary-data-equifax-col-1822830098)
+> 原文：<https://lifehacker.com/how-to-review-and-dispute-the-salary-data-equifax-col-1822830098>
 
 你知道你应该检查你的免费年度信用报告。但是你可以——也应该——要求并查看征信机构收集的你的工资信息。
 

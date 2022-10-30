@@ -1,6 +1,6 @@
 # 如何使用你的活动跟踪器，这样你就不会在年中放弃它
 
-> 原文:[https://life hacker . com/how-to-use-you-activity-tracker-so-you-don-discard-I-1821648898](https://lifehacker.com/how-to-use-your-activity-tracker-so-you-don-t-abandon-i-1821648898)
+> 原文：<https://lifehacker.com/how-to-use-your-activity-tracker-so-you-don-t-abandon-i-1821648898>
 
 事实证明，你们中的一些人[*去年*](https://lifehacker.com/did-you-ever-use-that-fitbit-you-got-last-year-1821598864)*——甚至更早——获得了 Fitbits，并且从那以后一直在使用它们。这是你最好的建议。*
 

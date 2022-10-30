@@ -1,6 +1,6 @@
 # 关于苹果即将推出的 iPhone 8，你应该知道些什么
 
-> 原文:[https://life hacker . com/what-you-should-know-about-apple-s-upcoming-iphone-8-1798639198](https://lifehacker.com/what-you-should-know-about-apple-s-upcoming-iphone-8-1798639198)
+> 原文：<https://lifehacker.com/what-you-should-know-about-apple-s-upcoming-iphone-8-1798639198>
 
 华尔街日报报道称，苹果最早将于 9 月 12 日发布 iPhone 8，虽然这给了你足够的时间 [抛弃你的旧设备](https://lifehacker.com/how-to-sell-your-old-phone-before-the-new-one-arrives-1798437219) 并筹集一些现金购买新设备，但苹果对新 iPhone 8 的实际用途一直保密(咄)。幸运的是，第三方配件制造商的泄露和苹果自己的 iOS 11 操作系统内部的暗示给了我们一个很好的想法。
 

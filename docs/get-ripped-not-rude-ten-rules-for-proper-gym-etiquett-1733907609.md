@@ -1,6 +1,6 @@
 # 被撕裂，而不是粗鲁:正确健身房礼仪的十条规则
 
-> 原文:[https://life hacker . com/get-rip-not-rude-ten-rules-for-proper-gym-etiquett-1733907609](https://lifehacker.com/get-ripped-not-rude-ten-rules-for-proper-gym-etiquett-1733907609)
+> 原文：<https://lifehacker.com/get-ripped-not-rude-ten-rules-for-proper-gym-etiquett-1733907609>
 
 怪人无处不在，但是在健身房里做怪人的人可能会很烦人。你想做的只是平静地举起重物，但它们就在那里，它们在长凳上留下汗湿的屁股印，在电话上大声交谈，设备散落一地。哎呀——这听起来像你吗？以下是如何让健身房成为一个更好的地方。
 

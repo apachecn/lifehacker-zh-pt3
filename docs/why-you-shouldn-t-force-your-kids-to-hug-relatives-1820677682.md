@@ -1,6 +1,6 @@
 # 为什么你不应该强迫你的孩子拥抱亲戚
 
-> 原文:[https://life hacker . com/why-you-should-t-force-you-kids-to-hacker-1820677682](https://lifehacker.com/why-you-shouldn-t-force-your-kids-to-hug-relatives-1820677682)
+> 原文：<https://lifehacker.com/why-you-shouldn-t-force-your-kids-to-hug-relatives-1820677682>
 
 当女童子军向父母发出的节前提醒时，他们的女儿不欠任何人一个拥抱，即使在节日里，这被视为(惨淡)时代的标志。“在性骚扰和同意问题成为新闻的时候，”CNN 新闻 [在文章](http://www.cnn.com/2017/11/21/health/girl-scouts-hugging-consent-family-trnd/index.html) 中这样开头。推特上的反应也将两者联系起来
 

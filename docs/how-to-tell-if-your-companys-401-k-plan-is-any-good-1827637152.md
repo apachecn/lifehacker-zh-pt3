@@ -1,6 +1,6 @@
 # 如何判断你公司的 401(k)计划是否好
 
-> 原文:[https://life hacker . com/how-to-tell-if-your-companies-401-k-plan-is-any-good-1827637152](https://lifehacker.com/how-to-tell-if-your-companys-401-k-plan-is-any-good-1827637152)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-companys-401-k-plan-is-any-good-1827637152>
 
 你开始了一份新工作，在培训视频和介绍新同事的过程中，人力资源部门把公司退休计划的文件塞到你手里。尽管你的招聘人员很棒，但她似乎并不熟悉你的投资方案的细节。那么，你如何知道它是否值得贡献，或者你是否应该寻找另一个帐户？
 

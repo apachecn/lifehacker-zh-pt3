@@ -1,6 +1,6 @@
 # 如何翻译维基百科的发音指南
 
-> 原文:[https://life hacker . com/how-to-translate-Wikipedia s-innuation-guides-1822370400](https://lifehacker.com/how-to-translate-wikipedias-pronunciation-guides-1822370400)
+> 原文：<https://lifehacker.com/how-to-translate-wikipedias-pronunciation-guides-1822370400>
 
 假设你正在维基百科 上查找莫比乌斯带，你想知道它是怎么发音的。维基百科只展示了一些用国际音标书写的精心制作的发音指南。你可以在另一个标签中开始搜索，但是有一个简单的方法可以将发音指南翻译成简单的英语。把鼠标悬停在字母上。
 

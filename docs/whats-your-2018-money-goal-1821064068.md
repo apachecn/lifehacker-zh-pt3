@@ -1,6 +1,6 @@
 # 你 2018 年的金钱目标是什么？
 
-> 原文:[https://life hacker . com/whats-your-2018-money-goal-1821064068](https://lifehacker.com/whats-your-2018-money-goal-1821064068)
+> 原文：<https://lifehacker.com/whats-your-2018-money-goal-1821064068>
 
 我对新年决心持观望态度。我理解这种吸引力——新的一年，新的我——但我也倾向于从更长远的角度考虑。年度目标并不总是对我有效。我想早点退休，成为 X 话题的专家，有一天自己当老板。今年我不会把它们从我的清单上划掉，但这并不意味着我失败了。我每天都在朝着他们努力。
 

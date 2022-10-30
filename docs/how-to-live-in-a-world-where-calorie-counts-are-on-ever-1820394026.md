@@ -1,6 +1,6 @@
 # 如何生活在每个菜单上都有卡路里计数的世界里
 
-> 原文:[https://life hacker . com/how-to-live-in-a-world-where-calorie-counts-on-ever-1820394026](https://lifehacker.com/how-to-live-in-a-world-where-calorie-counts-are-on-ever-1820394026)
+> 原文：<https://lifehacker.com/how-to-live-in-a-world-where-calorie-counts-are-on-ever-1820394026>
 
 今年夏天，卡路里计数本应成为餐厅菜单上的强制性规定，但特朗普的新 FDA 在该规定本应生效前不久阻止了该规定。现在，该机构改变了方针，表示从 2018 年 5 月 开始，卡路里计数将是强制性的——这既是好消息，也是坏消息。
 

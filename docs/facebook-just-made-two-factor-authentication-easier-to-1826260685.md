@@ -1,6 +1,6 @@
 # 脸书只是简化了双因素认证的设置
 
-> 原文:[https://life hacker . com/Facebook-just-made-two-factor-authentic ation-easy-to-1826260685](https://lifehacker.com/facebook-just-made-two-factor-authentication-easier-to-1826260685)
+> 原文：<https://lifehacker.com/facebook-just-made-two-factor-authentication-easier-to-1826260685>
 
 脸书正在简化在你的帐户上设置二元身份验证的过程，并允许那些希望使用第三方身份验证应用程序而不是电话号码的人接收他们的身份验证代码。
 

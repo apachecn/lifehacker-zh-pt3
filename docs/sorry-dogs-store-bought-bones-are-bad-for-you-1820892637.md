@@ -1,6 +1,6 @@
 # 抱歉，狗狗们:商店里买的骨头对你不好
 
-> 原文:[https://life hacker . com/sorry-dogs-store-buyed-bones-is-bad-for-you-1820892637](https://lifehacker.com/sorry-dogs-store-bought-bones-are-bad-for-you-1820892637)
+> 原文：<https://lifehacker.com/sorry-dogs-store-bought-bones-are-bad-for-you-1820892637>
 
 你不应该给你的狗吃剩下的鸡骨头，因为它们会碎成碎片。你不应该给它们大块的生骨头，因为它们可能充满了细菌(如果一开始没有，一旦你的狗把它们拖得满院子都是，它们就会充满细菌。)现在，更多的坏消息:美国食品和药物管理局称商店购买的狗骨零食也是危险的 。
 

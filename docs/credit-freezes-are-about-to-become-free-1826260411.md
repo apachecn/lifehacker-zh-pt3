@@ -1,6 +1,6 @@
 # 信贷冻结即将变得自由
 
-> 原文:[https://life hacker . com/credit-freezing-is-about-to-be-free-1826260411](https://lifehacker.com/credit-freezes-are-about-to-become-free-1826260411)
+> 原文：<https://lifehacker.com/credit-freezes-are-about-to-become-free-1826260411>
 
 看来 [Equifax hack](https://lifehacker.com/tag/equifax-hack) 有好消息了:信用冻结很快就会解除。
 

@@ -1,6 +1,6 @@
 # 如何检查优步或 Lyft 中隐藏的摄像头
 
-> 原文:[https://life hacker . com/start-check-for-camera-when-using-Uber-or-lyft-1827831769](https://lifehacker.com/start-checking-for-cameras-when-using-uber-or-lyft-1827831769)
+> 原文：<https://lifehacker.com/start-checking-for-cameras-when-using-uber-or-lyft-1827831769>
 
 根据圣路易斯邮报 最近的一篇报道，至少有一名为优步和 Lyft 工作的司机在未经乘客同意的情况下直播乘客。Twitch 上的观众一直在对女性乘客进行评级，猜测收入，并谈论拼车服务不知情用户的婚姻和个人生活。
 

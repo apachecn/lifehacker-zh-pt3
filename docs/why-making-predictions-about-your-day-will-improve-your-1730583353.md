@@ -1,6 +1,6 @@
 # 为什么预测你的一天会改善你的前景
 
-> 原文:[https://life hacker . com/why-making-predictions-about-your-day will-improve-your-1730583353](https://lifehacker.com/why-making-predictions-about-your-day-will-improve-your-1730583353)
+> 原文：<https://lifehacker.com/why-making-predictions-about-your-day-will-improve-your-1730583353>
 
 这是一个挑战，你现在就可以尝试。做一个关于某事的预测— *任何事—* 你可以在接下来的二十四小时内亲自验证结果。你的一天会立刻变得更好——*不管你的预测是对还是错。*
 

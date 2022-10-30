@@ -1,6 +1,6 @@
 # 三个伟大的历史播客不是硬核历史
 
-> 原文:[https://life hacker . com/three-more-great-history-podcasts-that-hardcore-1825889264](https://lifehacker.com/three-more-great-history-podcasts-that-aren-t-hardcore-1825889264)
+> 原文：<https://lifehacker.com/three-more-great-history-podcasts-that-aren-t-hardcore-1825889264>
 
 当那些来自商学院的恶霸嘲笑你拿了一个无用的中世纪文学博士学位时，他们没有看到历史播客的世界即将到来。现在坐在你的壁橱里朗读你的博士论文简直酷毙了。因为事实证明，播客是人们了解历史的一种极好的方式，在所有的时间范围内，一次一课。许多历史播客现在已经运行了十多年，在莎拉·柯尼希眼中的*系列*之前，所以你可以立即开始大吃大喝。继 [之后，我们的第一部分](https://lifehacker.com/three-history-podcasts-that-aren-t-hardcore-history-1802781669) ，其中介绍了节目*【真相】*、*犯罪城*和*革命*，这里有三个更优秀的历史播客(不是那一个超级有名的)。
 

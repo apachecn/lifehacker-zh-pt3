@@ -1,6 +1,6 @@
 # 将香草和调味料直接放入蛋清中煎炒
 
-> 原文:[https://life hacker . com/fry-药草-调味料-直接放在你的白衣服里 1829005431](https://lifehacker.com/fry-herbs-and-seasonings-directly-in-the-white-of-your-1829005431)
+> 原文：<https://lifehacker.com/fry-herbs-and-seasonings-directly-in-the-white-of-your-1829005431>
 
 作为一个美食作家和早餐爱好者(在非早餐时间)，我吃过很多鸡蛋。我不知道有没有我不喜欢的食物，但是一个单面煎的鸡蛋，在橄榄油里煎到边缘变脆，在我的清单上排在很高的位置。我不认为在方法上有很大的改进，直到我在 Food52 上看到 Melissa Clark [直接在 whites](https://food52.com/blog/23017-a-game-changing-upgrade-to-fried-eggs) 中油炸草药*。*
 

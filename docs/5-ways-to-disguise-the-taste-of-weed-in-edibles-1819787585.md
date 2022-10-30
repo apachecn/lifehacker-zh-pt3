@@ -1,6 +1,6 @@
 # 如何掩盖食物中的杂草味道
 
-> 原文:[https://life hacker . com/5-掩盖食物中杂草味道的方法-1819787585](https://lifehacker.com/5-ways-to-disguise-the-taste-of-weed-in-edibles-1819787585)
+> 原文：<https://lifehacker.com/5-ways-to-disguise-the-taste-of-weed-in-edibles-1819787585>
 
 你可能是偶尔喜欢吃零食的瘾君子，或者你可能是寻找最美味食物的医疗使用者。你也可能是一个主人或聚会常客，他希望人们能充分享受各种令人陶醉的供品，并希望做出一种味道不像覆盖物的美味菜肴。
 

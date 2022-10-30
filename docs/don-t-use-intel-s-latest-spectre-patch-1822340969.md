@@ -1,6 +1,6 @@
 # 不要用英特尔最新的 Spectre 补丁
 
-> 原文:[https://life hacker . com/don-t-use-Intel-s-latest-spectre-patch-1822340969](https://lifehacker.com/don-t-use-intel-s-latest-spectre-patch-1822340969)
+> 原文：<https://lifehacker.com/don-t-use-intel-s-latest-spectre-patch-1822340969>
 
 担心保护自己免受 Spectre 的安全漏洞攻击？如果你已经 [下载了英特尔修补漏洞](https://gizmodo.com/report-all-intel-processors-made-in-the-last-decade-mi-1821728240) 的更新，准备好马上下载另一个吧。英特尔的软件修复是用户遇到的一些 [随机重启问题的原因](https://newsroom.intel.com/news/intel-security-issue-update-addressing-reboot-issues/) ，该公司敦促消费者和制造商推迟发布当前更新，直到更新完成。
 

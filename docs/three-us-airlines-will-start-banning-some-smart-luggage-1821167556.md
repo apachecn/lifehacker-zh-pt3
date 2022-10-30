@@ -1,6 +1,6 @@
 # 三家美国航空公司将于明年 1 月开始禁止一些智能行李
 
-> 原文:[https://life hacker . com/three-us-airlines-will-start-banning-some-smart-luggage-1821167556](https://lifehacker.com/three-us-airlines-will-start-banning-some-smart-luggage-1821167556)
+> 原文：<https://lifehacker.com/three-us-airlines-will-start-banning-some-smart-luggage-1821167556>
 
 对于喜欢从行李箱中为电子设备充电的人来说，智能行李箱是一场小小的革命。但是——也许可以归咎于三星 Galaxy Note 7 的灵感——航空公司因为担心火灾而禁止使用其中一些行李箱。
 

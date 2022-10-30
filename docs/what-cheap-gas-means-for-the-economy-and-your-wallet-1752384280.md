@@ -1,6 +1,6 @@
 # 廉价天然气对经济(和你的钱包)意味着什么
 
-> 原文:[https://life hacker . com/what-cheap-gas-means-for the economy and the wallet-1752384280](https://lifehacker.com/what-cheap-gas-means-for-the-economy-and-your-wallet-1752384280)
+> 原文：<https://lifehacker.com/what-cheap-gas-means-for-the-economy-and-your-wallet-1752384280>
 
 油价下跌意味着更便宜的天然气，这让我们大多数人都非常高兴。美国汽油的平均价格现在是每加仑 2.05 美元，比一年前低了将近 15 美分。然而，随着时间的推移，廉价天然气并不总是一件好事。它会对经济产生巨大影响，反过来，也会影响你的钱包。
 

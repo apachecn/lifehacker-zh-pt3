@@ -1,6 +1,6 @@
 # 一家营销公司的数据泄露事件使数亿人的个人信息面临风险
 
-> 原文:[https://life hacker . com/exact is-data-breach-has-put-billion-of-peo-1827212089](https://lifehacker.com/exactis-data-breach-has-put-hundreds-of-millions-of-peo-1827212089)
+> 原文：<https://lifehacker.com/exactis-data-breach-has-put-hundreds-of-millions-of-peo-1827212089>
 
 总部位于佛罗里达州的小型营销公司 Exactis 可能已经泄露了美国约 3.4 亿人和企业的个人数据
 

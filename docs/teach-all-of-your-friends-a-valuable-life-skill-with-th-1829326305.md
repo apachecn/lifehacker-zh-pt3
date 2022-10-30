@@ -1,6 +1,6 @@
 # 用这个有用的视频教你所有的朋友一个有价值的生活技能
 
-> 原文:[https://jalopnik . com/teach-all-of-your-friends-a-valued-life-skill with-th-1829326305](https://jalopnik.com/teach-all-of-your-friends-a-valuable-life-skill-with-th-1829326305)
+> 原文：<https://jalopnik.com/teach-all-of-your-friends-a-valuable-life-skill-with-th-1829326305>
 
 你好。你碰巧是地球上的一个人吗？或许是美国公民？如果你是这些事情中的任何一个或全部，很可能你认识一个人，可能是很多人，当他们在公共街道上看到那些可怕的 [圆形“十字路口”](https://jalopnik.com/tag/roundabout) 时，他们沉默不语，不知道该做什么。
 

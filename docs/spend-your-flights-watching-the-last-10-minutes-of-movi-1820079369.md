@@ -1,6 +1,6 @@
 # 在飞机上看最后十分钟的电影
 
-> 原文:[https://life hacker . com/spend-your-flights-watch-the-last-10-minutes of-movi-1820079369](https://lifehacker.com/spend-your-flights-watching-the-last-10-minutes-of-movi-1820079369)
+> 原文：<https://lifehacker.com/spend-your-flights-watching-the-last-10-minutes-of-movi-1820079369>
 
 现在世界上有太多该死的内容了。我是 [远远不是第一个说这个](https://theconcourse.deadspin.com/there-are-too-many-shows-1818669264) 的人，我也肯定 [不会是最后一个](https://kotaku.com/help-theres-too-much-stuff-this-weekend-1819921220)——这只是生活的事实，而且只会越来越糟。虽然你肯定有自己的方式来应对无休止的“优质”节目、电影、书籍、文章和音乐的冲击，但有一个技巧你可能没有充分利用它的潜力:直接跳到结尾。
 

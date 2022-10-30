@@ -1,6 +1,6 @@
 # 如何恢复旧的 iPhoto 图库？
 
-> 原文:[https://life hacker . com/how-do-I-recover-an-old-iphoto-library-1829215169](https://lifehacker.com/how-do-i-recover-an-old-iphoto-library-1829215169)
+> 原文：<https://lifehacker.com/how-do-i-recover-an-old-iphoto-library-1829215169>
 
 多年前的一场灾难仍然困扰着本周的 [Tech 911](https://lifehacker.com/c/tech-911) 写信人。她稍后会解释全部细节，但这让我 [感激复杂的备份设置](https://lifehacker.com/how-do-you-back-up-your-data-in-the-cloud-1828396275) 。不管怎样，让我们去给潜在的技术灾难贴上世界上最大的创可贴。
 

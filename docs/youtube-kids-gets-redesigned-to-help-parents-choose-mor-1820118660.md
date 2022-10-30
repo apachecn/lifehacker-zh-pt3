@@ -1,6 +1,6 @@
 # YouTube Kids 得到了重新设计，以帮助父母选择更适合年龄的内容
 
-> 原文:[https://life hacker . com/YouTube-kids-gets-designed-to-help-parents-choose-mor-1820118660](https://lifehacker.com/youtube-kids-gets-redesigned-to-help-parents-choose-mor-1820118660)
+> 原文：<https://lifehacker.com/youtube-kids-gets-redesigned-to-help-parents-choose-mor-1820118660>
 
 父母(可以理解)不想让他们的孩子看 [无脑废话](https://lifehacker.com/is-youtube-kids-purposely-training-kids-to-watch-youtub-1794607840) 或 [令人不安的卡通](https://offspring.lifehacker.com/how-to-protect-your-kids-from-disturbing-fake-peppa-pi-1797768331) 。重新设计的 YouTube Kids 给了他们更多的控制权。
 

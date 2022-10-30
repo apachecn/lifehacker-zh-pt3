@@ -1,6 +1,6 @@
 # 打开空调，尽量减少汽车污染
 
-> 原文:[https://life hacker . com/minimize-in-your-a-c-1797763128](https://lifehacker.com/minimize-pollution-in-your-car-by-turning-on-your-a-c-1797763128)
+> 原文：<https://lifehacker.com/minimize-pollution-in-your-car-by-turning-on-your-a-c-1797763128>
 
 在糟糕的交通状况下开车(或空转) [不仅仅是吸取灵魂](http://offspring.lifehacker.com/how-to-survive-being-stuck-in-traffic-with-small-kids-t-1795521430#_ga=2.174720034.1807440215.1502457642-1153831064.1487619421) 利用你在这个地球上的宝贵时间， [它还会损害你的身体健康](http://lifehacker.com/long-commutes-are-sucking-the-life-out-of-you-shorteni-5908879#_ga=2.95167516.1807440215.1502457642-1153831064.1487619421) 。如果你开车时把车窗放下，你会暴露在更多的污染物中，尤其是如果你住在烟雾多发区或目前被附近野火的烟雾笼罩的地区。但是你可以通过激活你的汽车的最佳生物舒适度来减轻你周围的空气污染。
 

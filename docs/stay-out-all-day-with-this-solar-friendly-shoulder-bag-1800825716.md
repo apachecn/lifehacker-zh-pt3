@@ -1,6 +1,6 @@
 # 带着这款太阳能单肩包外出一整天
 
-> 原文:[https://life hacker . com/stay-out-all-day with this-solar-friendly-双肩背包-1800825716](https://lifehacker.com/stay-out-all-day-with-this-solar-friendly-shoulder-bag-1800825716)
+> 原文：<https://lifehacker.com/stay-out-all-day-with-this-solar-friendly-shoulder-bag-1800825716>
 
 轻装旅行可能意味着只携带必需品，但如果你在旅途中没有办法补充设备，这可能会使你更难保持联系。这并不意味着你必须放弃每一个舒适或酷的小玩意，只是你需要一些更小的，也许使用一些，比如说，非正统的充电设备来保持自己的电量。
 

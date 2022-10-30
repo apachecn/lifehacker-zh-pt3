@@ -1,6 +1,6 @@
 # 我该如何克服对失败的恐惧？
 
-> 原文:[https://life hacker . com/how-can-I-comprise-my-fear-of-failure-1787365393](https://lifehacker.com/how-can-i-overcome-my-fear-of-failure-1787365393)
+> 原文：<https://lifehacker.com/how-can-i-overcome-my-fear-of-failure-1787365393>
 
 高中时，我们的曲棍球教练是个半神半人。曲棍球在学校非常重要，几乎超越了体育的概念。我们的教练是一位天生的老师，他巧妙地将生活课程融入到几乎每一堂曲棍球课中。还有很多曲棍球课。
 

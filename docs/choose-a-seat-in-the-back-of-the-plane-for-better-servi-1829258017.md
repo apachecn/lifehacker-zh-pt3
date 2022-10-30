@@ -1,6 +1,6 @@
 # 为了更好的服务，请选择飞机后部的座位
 
-> 原文:[https://life hacker . com/choose-a-seat-in-the-back-the-plane-servi-1829258017](https://lifehacker.com/choose-a-seat-in-the-back-of-the-plane-for-better-servi-1829258017)
+> 原文：<https://lifehacker.com/choose-a-seat-in-the-back-of-the-plane-for-better-servi-1829258017>
 
 每当我坐飞机时，我总是选择靠近飞机前部的过道座位，这是我能得到的离飞机前部最近的过道座位。
 

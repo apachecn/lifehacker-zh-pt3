@@ -1,6 +1,6 @@
 # 你可以花钱请人给国会打电话——但你应该这么做吗？
 
-> 原文:[https://life hacker . com/you-can-pay-someone-to-call-congress-but-should-you 1796463453](https://lifehacker.com/you-can-pay-someone-to-call-congress-but-should-you-1796463453)
+> 原文：<https://lifehacker.com/you-can-pay-someone-to-call-congress-but-should-you-1796463453>
 
 给国会议员打电话很难 ，尤其是如果你有电话恐惧症，但这是让别人听到你声音的最有效方法。公民行动网络是一个无党派服务机构，它提供了一个解决方案:他们会为你打电话给国会。
 

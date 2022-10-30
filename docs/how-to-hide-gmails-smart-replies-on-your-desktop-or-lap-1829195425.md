@@ -1,6 +1,6 @@
 # 如何在你的台式机或笔记本电脑上隐藏 Gmail 的“智能回复”
 
-> 原文:[https://life hacker . com/how-to-hide-gmails-smart-replies-on-your-desktop-or-lap-1829195425](https://lifehacker.com/how-to-hide-gmails-smart-replies-on-your-desktop-or-lap-1829195425)
+> 原文：<https://lifehacker.com/how-to-hide-gmails-smart-replies-on-your-desktop-or-lap-1829195425>
 
 Gmail 的智能回复功能现已整合到该服务针对桌面客户端的最新设计更新中，当你不想打出一个真正的回复时，这是一个发送简洁回复的好方法。当然，它们可能会惹恼收件人；你甚至可能会点击错误的回复，无意中告诉你的老板“ [爱它！当他或她要求你这个周末加班时。但是它们不是很方便吗？](https://www.wsj.com/articles/very-interesting-awesome-love-it-gmail-users-confront-chipper-smart-reply-1537282569)
 

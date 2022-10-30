@@ -1,6 +1,6 @@
 # 如何使用液态氨基化合物
 
-> 原文:[https://lifehacker.com/how-to-use-liquid-aminos-1823739581](https://lifehacker.com/how-to-use-liquid-aminos-1823739581)
+> 原文：<https://lifehacker.com/how-to-use-liquid-aminos-1823739581>
 
 如果你曾经见过一个亮黄色的瓶子，上面有两个快乐的老人，你可能想知道布拉格的液态氨基化合物到底是什么。基本上，它是一种未发酵的、类似酱油的产品，完全由大豆和水制成(这意味着它不含小麦),而且非常美味。
 

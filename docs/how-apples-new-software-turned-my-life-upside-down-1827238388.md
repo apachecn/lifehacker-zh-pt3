@@ -1,6 +1,6 @@
 # 苹果的新软件如何颠覆了我的生活
 
-> 原文:[https://gizmodo . com/how-apple-new-software-turned-my life-over-down-1827238388](https://gizmodo.com/how-apples-new-software-turned-my-life-upside-down-1827238388)
+> 原文：<https://gizmodo.com/how-apples-new-software-turned-my-life-upside-down-1827238388>
 
 软件更新令人兴奋。我一直这样告诉我的朋友，当他们没有及时更新时，我会说，“嘿，你错过了好东西！”这也是为什么我有时会下载软件测试版的部分原因。bug 很烦人，但是嘿，功能更好。这种方法最近在我的 macOS 和 iOS 12 上适得其反。出乎意料的是，我认为由此产生的灾难让我成为了一个更好的电脑用户。
 

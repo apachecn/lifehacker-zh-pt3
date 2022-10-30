@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 30 日至 11 月 6 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 30 日至 11 月 1740979154](https://lifehacker.com/this-weeks-most-popular-posts-october-30th-to-november-1740979154)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-30th-to-november-1740979154>
 
 本周，我们探讨了为什么你应该停止购买运营商的手机，测试了一个可以让你保持凉爽的枕头，了解了如何在 iPhone 上获得完美的全谷歌体验，等等。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 为什么不忠不仅仅是性
 
-> 原文:[https://life hacker . com/why-不忠不仅仅是性-1819222047](https://lifehacker.com/why-infidelity-is-about-way-more-than-just-sex-1819222047)
+> 原文：<https://lifehacker.com/why-infidelity-is-about-way-more-than-just-sex-1819222047>
 
 几乎每个人都曾在某个时候遭遇过不忠，无论你是充满负罪感的出轨者、备受打击的被出轨者，还是不知情的(希望是)别人婚外情的第三者。(如果这些事情都没有发生在你身上，那该多好啊！)
 

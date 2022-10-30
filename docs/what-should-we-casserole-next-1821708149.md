@@ -1,6 +1,6 @@
 # 接下来我们应该做什么菜？
 
-> 原文:[https://life hacker . com/what-should-we-砂锅-next-1821708149](https://lifehacker.com/what-should-we-casserole-next-1821708149)
+> 原文：<https://lifehacker.com/what-should-we-casserole-next-1821708149>
 
 大家好，欢迎回到 [*将它砂锅*](https://lifehacker.com/tag/will-it-casserole) ，在这个栏目里我们看到哪些饭菜、菜肴、菜系可以重新想象，改造成砂锅。
 

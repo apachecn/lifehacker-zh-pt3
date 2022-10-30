@@ -1,6 +1,6 @@
 # 使用此应用程序为 Instagram 故事创建自定义贴纸
 
-> 原文:[https://life hacker . com/create-custom-sticker-for-insta gram-stories-with-this-1828759391](https://lifehacker.com/create-custom-stickers-for-instagram-stories-with-this-1828759391)
+> 原文：<https://lifehacker.com/create-custom-stickers-for-instagram-stories-with-this-1828759391>
 
 今年早些时候，我接受了 Instagram 故事的伟大之处。虽然我通常会花大量的时间来捕捉带有完美标题的完美图片，并放在常规的 Instagram 上，但在 Instagram 上，我愿意发布几乎任何东西。如果有选择的话，我也喜欢在我发布的内容中添加贴纸和 gif，有时会被(错误的)人称为过分。
 

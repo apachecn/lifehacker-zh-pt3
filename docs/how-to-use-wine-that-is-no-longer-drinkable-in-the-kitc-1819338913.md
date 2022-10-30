@@ -1,6 +1,6 @@
 # 如何使用厨房里不能再喝的酒
 
-> 原文:[https://life hacker . com/how-to-use-the-now-that ' s-in-the-long-eable-the-kitc-1819338913](https://lifehacker.com/how-to-use-wine-that-is-no-longer-drinkable-in-the-kitc-1819338913)
+> 原文：<https://lifehacker.com/how-to-use-wine-that-is-no-longer-drinkable-in-the-kitc-1819338913>
 
 我知道你们中没有人会把一瓶酒喝完，但有时人们会犯错，一点点“多余”的酒可能会氧化。但是，即使你不能喝，这种现已变酸的发酵葡萄汁也不需要搅拌。
 

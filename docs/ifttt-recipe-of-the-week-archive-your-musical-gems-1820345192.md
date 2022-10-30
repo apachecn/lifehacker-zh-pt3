@@ -1,6 +1,6 @@
 # IFTTT 本周食谱:将你的音乐瑰宝存档
 
-> 原文:[https://life hacker . com/if TTT-recipe-of-the-week-archive-your-musical-gems-1820345192](https://lifehacker.com/ifttt-recipe-of-the-week-archive-your-musical-gems-1820345192)
+> 原文：<https://lifehacker.com/ifttt-recipe-of-the-week-archive-your-musical-gems-1820345192>
 
 IFTTT 是一个应用程序和 web 服务，它使用 if-then 语句来触发您最喜爱的应用程序和设备中的某些操作或活动。如果你不熟悉 IFTTT，一定要看看我们的初学者指南，了解基础知识 。在你掌握了它之后，请继续阅读本周的 IFTTT 食谱，我们的新系列突出了我们能找到的最有用的(或者很酷的)IFTTT 食谱(或者创造！).
 

@@ -1,6 +1,6 @@
 # 和你的共同父母有一个“标记”系统
 
-> 原文:[https://life hacker . com/have-a-tagging-out-system-with-your-co-parent-1826493242](https://lifehacker.com/have-a-tagging-out-system-with-your-co-parent-1826493242)
+> 原文：<https://lifehacker.com/have-a-tagging-out-system-with-your-co-parent-1826493242>
 
 做父母的感觉就像是一个长期的练习，努力不丢掉你的大便。你有时会失败。没关系。你能做的最好的事情就是接受它的发生，并找到减轻爆炸的方法。
 

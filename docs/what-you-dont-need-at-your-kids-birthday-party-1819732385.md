@@ -1,6 +1,6 @@
 # 在你孩子的生日聚会上，你不需要什么
 
-> 原文:[https://life hacker . com/what-you-dont-need-in-your-kids-birthday-party-1819732385](https://lifehacker.com/what-you-dont-need-at-your-kids-birthday-party-1819732385)
+> 原文：<https://lifehacker.com/what-you-dont-need-at-your-kids-birthday-party-1819732385>
 
 生日聚会:孩子们会做白日梦，而他们的父母却常常害怕。在社交媒体出现之前，父母除了在接送孩子的时候粗略浏览一下朋友的活动之外，没有任何东西可以与孩子的聚会进行比较。不是怀旧，但我最喜欢的一些生日是在当地的麦当劳度过的。
 

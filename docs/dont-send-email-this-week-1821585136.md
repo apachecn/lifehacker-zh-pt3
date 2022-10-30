@@ -1,6 +1,6 @@
 # 本周不要发送电子邮件
 
-> 原文:[https://lifehacker.com/dont-send-email-this-week-1821585136](https://lifehacker.com/dont-send-email-this-week-1821585136)
+> 原文：<https://lifehacker.com/dont-send-email-this-week-1821585136>
 
 每个人都取笑那位认为在假期工作会把你变成尤塞恩·博尔特的票务大师兄弟 的表演性鼓舞士气的讲话，但他说对了一件事:大多数人，即使他们回到了办公室，也不会在圣诞节和新年前夕之间努力工作。
 

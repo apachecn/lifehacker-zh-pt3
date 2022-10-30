@@ -1,6 +1,6 @@
 # 停止回答你孩子的问题
 
-> 原文:[https://life hacker . com/stop-answering-your-kids-questions-1822676214](https://lifehacker.com/stop-answering-your-kids-questions-1822676214)
+> 原文：<https://lifehacker.com/stop-answering-your-kids-questions-1822676214>
 
 在你告诉他们你在地理课上得了个 C 或者你曾经认为“在路上”这个词的发音是“Zing”之前，你的孩子会把你视为一台完美的人类知识传播机器。他们会问你很多问题。
 

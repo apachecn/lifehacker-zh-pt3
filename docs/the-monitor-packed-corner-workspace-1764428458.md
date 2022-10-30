@@ -1,6 +1,6 @@
 # 监视器挤满了角落工作区
 
-> 原文:[https://life hacker . com/the-monitor-packed-corner-workspace-1764428458](https://lifehacker.com/the-monitor-packed-corner-workspace-1764428458)
+> 原文：<https://lifehacker.com/the-monitor-packed-corner-workspace-1764428458>
 
 丹，也被称为 [HiTechTLS](https://www.flickr.com/photos/140260474@N02/) ，在他的小公寓里分享这个角落的桌子，设法真正打包设备。他不仅总共有六台显示器，而且只有一台 PC 来驱动所有这些。这是他的装置。
 

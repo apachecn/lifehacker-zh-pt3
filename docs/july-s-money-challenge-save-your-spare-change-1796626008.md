@@ -1,6 +1,6 @@
 # 七月的金钱挑战:节省你的零钱
 
-> 原文:[https://life hacker . com/July-s-money-challenge-save-your-spare-change-1796626008](https://lifehacker.com/july-s-money-challenge-save-your-spare-change-1796626008)
+> 原文：<https://lifehacker.com/july-s-money-challenge-save-your-spare-change-1796626008>
 
 现在是夏天，天气很热，我很确定这意味着假期是你最不想要的事情。然而，现在是时候开始为你所有不可避免的假期开销存钱了，这个月的挑战鼓励你这么做。让我们保留我们的零钱。
 

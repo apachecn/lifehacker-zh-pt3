@@ -1,6 +1,6 @@
 # 2018 年 7 月 30 日这一周，网飞有哪些动向
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of July-30-1827892149](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-30-1827892149)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-july-30-1827892149>
 
 网飞喜欢在月初给我们带来大量新东西，所以当你为夏天过得多快而摇头时——是的，现在已经是八月了——你可以在空调和一堆稍微有趣的新发布中获得冰冷的安慰。
 

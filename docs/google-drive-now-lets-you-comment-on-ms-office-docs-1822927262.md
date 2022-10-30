@@ -1,6 +1,6 @@
 # Google Drive 现在允许你对微软的 Office 文档发表评论
 
-> 原文:[https://life hacker . com/Google-drive-now-let-you-comment-on-ms-office-docs-1822927262](https://lifehacker.com/google-drive-now-lets-you-comment-on-ms-office-docs-1822927262)
+> 原文：<https://lifehacker.com/google-drive-now-lets-you-comment-on-ms-office-docs-1822927262>
 
 Google Drive 协作工具的 [最新更新](https://blog.google/products/g-suite/new-ways-comment-microsoft-files-and-more-google-drive/) 现在意味着你可以评论在微软 Office 中创建的文件，就像你在谷歌文档、工作表和幻灯片中一样——而无需打开第三方应用程序。
 

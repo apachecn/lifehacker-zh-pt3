@@ -1,6 +1,6 @@
 # 将您的 Mac 变成一个简单的录音机
 
-> 原文:[https://life hacker . com/turn-your-MAC-into-a simple-sound-recorder-1826948060](https://lifehacker.com/turn-your-mac-into-a-simple-sound-recorder-1826948060)
+> 原文：<https://lifehacker.com/turn-your-mac-into-a-simple-sound-recorder-1826948060>
 
 Mac:有时候，一个应用不需要做太多就能变得非常有用。而这也正是我喜欢 [简易记录仪](https://itunes.apple.com/us/app/simple-recorder-voice-recorder/id989175722?mt=12) 的原因。顾名思义，它可以让你把你的 Mac 变成一个微型录音机，无论你是想捕捉扬声器发出的噪音，还是想捕捉你正在使用笔记本电脑(我猜是台式机)的任何地方的声音。
 

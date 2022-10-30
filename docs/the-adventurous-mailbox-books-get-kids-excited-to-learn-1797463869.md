@@ -1,6 +1,6 @@
 # 冒险的邮箱书籍让孩子们兴奋地了解其他国家
 
-> 原文:[https://life hacker . com/the-adventured-mailbox-books-get-kids-excited-to-learn-1797463869](https://lifehacker.com/the-adventurous-mailbox-books-get-kids-excited-to-learn-1797463869)
+> 原文：<https://lifehacker.com/the-adventurous-mailbox-books-get-kids-excited-to-learn-1797463869>
 
 如果没有合适的材料，让孩子们阅读世界大事可能会有点困难——因此《卡门·桑迪戈在世界哪里》在 90 年代大受欢迎？对于一个更现代的选择， [*【冒险邮箱】*](https://theadventurousmailbox.com/) 图书系列将阅读小说的娱乐性与该国特有的迷人事实相结合，并为儿童提供了一个社交社区，以了解更多关于更广阔世界的信息。
 

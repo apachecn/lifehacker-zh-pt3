@@ -1,6 +1,6 @@
 # 存在道德上合理的投资吗？
 
-> 原文:[https://life hacker . com/is-there-a this-a this-a-some-a-some-a-ethical-sound-investment-1821744515](https://lifehacker.com/is-there-such-a-thing-as-a-morally-sound-investment-1821744515)
+> 原文：<https://lifehacker.com/is-there-such-a-thing-as-a-morally-sound-investment-1821744515>
 
 今天许多所谓的激进主义的焦点是试图让你花钱。某个品牌的女权主义者会买一个“粉碎父权制”的杯子贴在男人身上，而另一些人沉迷于自我保健，这似乎更像是一个无罪恶感消费的借口，而不是保护一个人心理健康的真正手段。
 

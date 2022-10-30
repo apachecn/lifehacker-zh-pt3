@@ -1,6 +1,6 @@
 # 如何不让斯特拉发告诉所有人你住在哪里
 
-> 原文:[https://life hacker . com/how-to-keep-strava-from-tell-every one-where-you-live-1822516959](https://lifehacker.com/how-to-keep-strava-from-telling-everyone-where-you-live-1822516959)
+> 原文：<https://lifehacker.com/how-to-keep-strava-from-telling-everyone-where-you-live-1822516959>
 
 分享你的跑步和骑行路线是使用 Strava 的全部意义——你可以看看你是否是你的邻居中爬那座大山最快的，或者选择一个朋友最喜欢的跑步路线，看看你如何比较。但本周末，分析师内森·鲁瑟指出，该应用的热门路线热图揭示了关于 [军事基地和驻扎在那里的](https://www.cnn.com/2018/01/28/politics/strava-military-bases-location/index.html) 人员的数据。
 

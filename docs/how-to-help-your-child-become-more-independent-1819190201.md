@@ -1,6 +1,6 @@
 # 如何帮助你的孩子变得更加独立
 
-> 原文:[https://life hacker . com/how-to-help-your-child-been-more-independent-1819190201](https://lifehacker.com/how-to-help-your-child-become-more-independent-1819190201)
+> 原文：<https://lifehacker.com/how-to-help-your-child-become-more-independent-1819190201>
 
 我妈妈喜欢讲我三岁时如何自己做三明治的故事。三！我过去认为这是一个悲伤的故事，是对她非育儿技能的评论，但现在我自己也是一位母亲，我可以看到一线希望:她无意中使我成为一个超级独立的个体。
 

@@ -1,6 +1,6 @@
 # 如果你的振动器被黑了，算不算性犯罪？
 
-> 原文:[https://gizmodo . com/if-your ' s 振动器被黑客攻击是性犯罪-1820007951](https://gizmodo.com/if-your-vibrator-is-hacked-is-it-a-sex-crime-1820007951)
+> 原文：<https://gizmodo.com/if-your-vibrator-is-hacked-is-it-a-sex-crime-1820007951>
 
 在最近一次去柏林的旅行中，亚历克斯·洛马斯的熟人向他提出了一个挑战:你能在野外找到一个支持蓝牙的插头吗？你能在没有主人帮助的情况下打开它吗？洛马斯是英国网络安全公司 [Pen Test Partners](https://www.pentestpartners.com/) 的渗透测试员，他拿出手机，咨询检测应用 LightBlue，很快确定了一个 Lovense Hush， [据称是](https://www.lovense.com/vibrating-butt-plug) “市场上最强大的振动按钮”，洛马斯说它位于一个陌生人的尾部。更重要的是，这种沉默是脆弱的，任何知道怎么做的人都可以入侵。
 

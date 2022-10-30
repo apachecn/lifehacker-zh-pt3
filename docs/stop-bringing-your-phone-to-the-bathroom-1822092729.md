@@ -1,6 +1,6 @@
 # 不要把你的手机带到浴室
 
-> 原文:[https://life hacker . com/stop-bring-your-phone-to-the-洗手间-1822092729](https://lifehacker.com/stop-bringing-your-phone-to-the-bathroom-1822092729)
+> 原文：<https://lifehacker.com/stop-bringing-your-phone-to-the-bathroom-1822092729>
 
 有很多理由让你的手机远离浴室，但保护你的手机免受细菌或潜在掉进厕所的威胁是次要的——尽管，是的，不要把手机放在你的后口袋里，那很危险。但是把手机放在浴室外面的真正原因是正念。
 

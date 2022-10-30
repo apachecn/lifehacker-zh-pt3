@@ -1,6 +1,6 @@
 # 如何在推特和脸书上找工作
 
-> 原文:[https://life hacker . com/how-to-look-on-Twitter-and-Facebook-1821933527](https://lifehacker.com/how-to-look-for-a-job-on-twitter-and-facebook-1821933527)
+> 原文：<https://lifehacker.com/how-to-look-for-a-job-on-twitter-and-facebook-1821933527>
 
 求职已经是一个由多个网站、搜索和提醒组成的复杂的压力迷宫，所以你可能会认为你还需要将搜索范围扩大到社交媒体是个坏消息。但实际上，推特和脸书可能是求职过程中相对令人愉快的一部分。
 

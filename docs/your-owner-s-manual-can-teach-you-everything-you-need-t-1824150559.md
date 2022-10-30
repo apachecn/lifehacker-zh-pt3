@@ -1,6 +1,6 @@
 # 你的用户手册可以教你如何驾驶手动档汽车的所有知识
 
-> 原文:[https://jalopnik . com/your-owner-s-manual-can-teach-you-everything-you-you-need-t-1824150559](https://jalopnik.com/your-owner-s-manual-can-teach-you-everything-you-need-t-1824150559)
+> 原文：<https://jalopnik.com/your-owner-s-manual-can-teach-you-everything-you-need-t-1824150559>
 
 学习如何驾驶手动挡很难。有一个小小的换挡旋钮，上面有奇怪的图案、一些数字和一个“R”，还有三个——是的，三个——踏板。这需要注意很多。但是，如果你坐在一个经销商停车场，开着你的新车，却没有人在那里教你，那就看看你的用户手册吧。
 

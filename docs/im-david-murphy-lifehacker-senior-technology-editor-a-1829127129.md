@@ -1,6 +1,6 @@
 # 我是大卫·墨菲，Lifehacker 的高级技术编辑，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-David-Murphy-life hacker-senior-technology-editor-a-1829127129](https://lifehacker.com/im-david-murphy-lifehacker-senior-technology-editor-a-1829127129)
+> 原文：<https://lifehacker.com/im-david-murphy-lifehacker-senior-technology-editor-a-1829127129>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是大卫·墨菲，这是我的工作方式。
 

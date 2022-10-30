@@ -1,6 +1,6 @@
 # 改变世界的电脑病毒、DIY 水冷手电筒和美食广场
 
-> 原文:[https://life hacker . com/computer-virus-that-changed-the-world-a-DIY-water-co-1787372603](https://lifehacker.com/computer-viruses-that-changed-the-world-a-diy-water-co-1787372603)
+> 原文：<https://lifehacker.com/computer-viruses-that-changed-the-world-a-diy-water-co-1787372603>
 
 本周我们将谈论历史上的英雄，他们实际上是可怕的人，为一星 Yelp 评论者伸张正义，回顾肆虐全球的计算机病毒，等等。
 

@@ -1,6 +1,6 @@
 # 三月健身挑战是关于灵活性的
 
-> 原文:[https://life hacker . com/the-March-fitness-challenge-is-all-about-flexibility-1823426153](https://lifehacker.com/the-march-fitness-challenge-is-all-about-flexibility-1823426153)
+> 原文：<https://lifehacker.com/the-march-fitness-challenge-is-all-about-flexibility-1823426153>
 
 我们过去的两次挑战都是为了变得更强，但这个月我们将做一些不同的事情。我们越来越有弹性了。
 

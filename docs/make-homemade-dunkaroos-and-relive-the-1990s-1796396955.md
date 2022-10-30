@@ -1,6 +1,6 @@
 # 自制邓肯号，重温 20 世纪 90 年代
 
-> 原文:[https://life hacker . com/make-manufacture-dunkaroos-and-life-the-90 年代-1796396955](https://lifehacker.com/make-homemade-dunkaroos-and-relive-the-1990s-1796396955)
+> 原文：<https://lifehacker.com/make-homemade-dunkaroos-and-relive-the-1990s-1796396955>
 
 欢迎回到周日营养！上周我 [为外面的爸爸们调热了一些脆皮烤翅上的](https://skillet.lifehacker.com/for-fathers-day-make-your-dad-some-killer-wings-1796151176) ，但是今天我们要远离炎热和潮湿，去享受童年的回忆。
 

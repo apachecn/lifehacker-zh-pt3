@@ -1,6 +1,6 @@
 # 这个应用程序帮助你回答生活中的大问题
 
-> 原文:[https://life hacker . com/this-app-help-you-answer-the-big-questions-in-life-1818602188](https://lifehacker.com/this-app-helps-you-answer-the-big-questions-in-life-1818602188)
+> 原文：<https://lifehacker.com/this-app-helps-you-answer-the-big-questions-in-life-1818602188>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-q28W7N6Th58&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-q28W7N6Th58&start=0) 
 

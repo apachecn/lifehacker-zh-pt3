@@ -1,6 +1,6 @@
 # 本周如何购买 NES 经典
 
-> 原文:[https://life hacker . com/how-to-buy-a-nes-classic-this-week-1827180078](https://lifehacker.com/how-to-buy-a-nes-classic-this-week-1827180078)
+> 原文：<https://lifehacker.com/how-to-buy-a-nes-classic-this-week-1827180078>
 
 我记得任天堂的 NES 经典游戏第一次推出的时候——那个快乐的 11 月周，每个人都疯狂地打电话给他们能找到的每一家零售商，想要得到一个装在盒子里的漂亮模拟器。
 

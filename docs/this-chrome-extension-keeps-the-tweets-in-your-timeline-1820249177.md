@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展，您的时间线中的推文可以保持在 140 个字符以内
 
-> 原文:[https://life hacker . com/this-chrome-extension-keep-the-tweets-in-your-timeline-1820249177](https://lifehacker.com/this-chrome-extension-keeps-the-tweets-in-your-timeline-1820249177)
+> 原文：<https://lifehacker.com/this-chrome-extension-keeps-the-tweets-in-your-timeline-1820249177>
 
 当每个人都有 140 个字符时，我更喜欢 Twitter。这就是 Twitter 的全部要点:简洁，简明，有力的编辑控制。因此，我一点也不高兴看到该公司宣布所有用户现在都有 280 个字符，我认为这将鼓励表达上的某种马虎——一个直接滑向 logo 溢漏的滑坡。
 

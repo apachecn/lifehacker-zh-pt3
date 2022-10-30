@@ -1,6 +1,6 @@
 # 在这项流媒体服务上观看超过 600 部经典的华纳兄弟电影
 
-> 原文:[https://life hacker . com/watch-over-600-classic-warner-bros-films-on-this-strea-1823356796](https://lifehacker.com/watch-over-600-classic-warner-bros-films-on-this-strea-1823356796)
+> 原文：<https://lifehacker.com/watch-over-600-classic-warner-bros-films-on-this-strea-1823356796>
 
 经典电影流媒体服务 ，刚刚获得了一个更大的旧好莱坞宝石库供你细读。现在华纳兄弟公司有 600 多部电影可供观看，包括一些以前从未在流媒体服务上播放过的电影，如*、*、*和*公民凯恩*。* 
 

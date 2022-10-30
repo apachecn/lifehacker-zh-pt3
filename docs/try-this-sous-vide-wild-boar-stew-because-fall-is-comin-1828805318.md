@@ -1,6 +1,6 @@
 # 尝尝这道炖野猪汤，因为秋天来了
 
-> 原文:[https://life hacker . com/try-this-sous-vide-wild-boar-stew-because-fall-coming-1828805318](https://lifehacker.com/try-this-sous-vide-wild-boar-stew-because-fall-is-comin-1828805318)
+> 原文：<https://lifehacker.com/try-this-sous-vide-wild-boar-stew-because-fall-is-comin-1828805318>
 
 我的祖父吃很多肉——甚至是负鼠——但他不喜欢野猪的肉质。他的炖野猪食谱很简单——用各种蔬菜煮野猪，然后“把肉扔进垃圾桶，保留肉汤。”值得注意的是，他并不完全是这个家庭的厨师，但事实仍然是，如果不小心饲养，野猪可能会很难对付。
 

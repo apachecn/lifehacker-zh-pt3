@@ -1,6 +1,6 @@
 # 掌握奶油冻所需的一切(以及如何制作合适的奶油布丁)
 
-> 原文:[https://the take out . com/master-kashds-and-how-to-make-proper-creme-brulee-1825283752](https://thetakeout.com/master-custard-and-how-to-make-proper-creme-brulee-1825283752)
+> 原文：<https://thetakeout.com/master-custard-and-how-to-make-proper-creme-brulee-1825283752>
 
 蛋羹是一种古老的甜点，由鸡蛋、糖和奶油一起烹制成丝滑的幸福。蛋羹的味道是甜的，有点像鸡蛋，如果没有天鹅绒般的质感，很少有人会想到它。以至于“custardy”是其他柔滑质地的参考点，如史前遗迹——爪爪，一种原产于美洲的水果，通常被称为蛋奶苹果。
 

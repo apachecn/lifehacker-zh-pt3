@@ -1,6 +1,6 @@
 # 鲍勃·罗斯 Ipsum 生成带有快乐小段落的虚拟文本
 
-> 原文:[https://life hacker . com/bob-Ross-ipsum-generates-dummy-text-with-happy-little-p-1743785185](https://lifehacker.com/bob-ross-ipsum-generates-dummy-text-with-happy-little-p-1743785185)
+> 原文：<https://lifehacker.com/bob-ross-ipsum-generates-dummy-text-with-happy-little-p-1743785185>
 
 需要生成一些占位符文本吗？当然，你可以使用标准的拉丁语胡言乱语，但一个更舒缓和有趣的替代方法是这个生成器引用画家鲍勃·罗斯的话。
 

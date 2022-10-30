@@ -1,6 +1,6 @@
 # 你在文法学校学过语法吗？
 
-> 原文:[https://life hacker . com/did-you-learn-grammar-in-grammar-school-1819135198](https://lifehacker.com/did-you-learn-grammar-in-grammar-school-1819135198)
+> 原文：<https://lifehacker.com/did-you-learn-grammar-in-grammar-school-1819135198>
 
 1985 年，全国英语教师委员会，一个肯定没有预见到博客、社交媒体、热门视频和匆忙发送的推文、电子邮件和文本的未来的组织， [发布了一项决议](http://www.ncte.org/positions/statements/grammarexercises#) :
 

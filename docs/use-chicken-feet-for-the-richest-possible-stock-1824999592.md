@@ -1,6 +1,6 @@
 # 用鸡爪做最丰富的汤料
 
-> 原文:[https://life hacker . com/use-chicken-foot-for-the-rich-possible-stock-1824999592](https://lifehacker.com/use-chicken-feet-for-the-richest-possible-stock-1824999592)
+> 原文：<https://lifehacker.com/use-chicken-feet-for-the-richest-possible-stock-1824999592>
 
 好的鸡汤不仅仅是鸡肉味的水。虽然你应该 [目标是让你的股票变得有味道](https://skillet.lifehacker.com/how-to-make-stock-that-isnt-bland-nonsense-1820626531) ，但一只好股票也应该是丰富和令人垂涎的，有一个不会放弃的身体。朋友们，这就是为什么你应该用鸡爪来炒股。
 

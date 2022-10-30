@@ -1,6 +1,6 @@
 # 为什么你一定要校准你的电视
 
-> 原文:[https://life hacker . com/why-you-definitely-need-calibrate-your-TV-1786017660](https://lifehacker.com/why-you-definitely-need-to-calibrate-your-tv-1786017660)
+> 原文：<https://lifehacker.com/why-you-definitely-need-to-calibrate-your-tv-1786017660>
 
 当你在高清电视上丢下几百块时，你希望它开箱即用。然而，不知何故，在 2016 年，我们仍然必须调整颜色设置，调整亮度，并做出其他改变，以获得最佳的照片。这么多年来，电视技术有了很大的进步，但电视仍然需要校准，这怎么可能呢？
 

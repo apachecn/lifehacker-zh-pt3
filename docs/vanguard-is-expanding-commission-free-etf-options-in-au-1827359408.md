@@ -1,6 +1,6 @@
 # 先锋将在 8 月份扩大免佣金的 ETF 期权
 
-> 原文:[https://life hacker . com/vanguard-is-expanding-commission-free-ETF-options-in-au-1827359408](https://lifehacker.com/vanguard-is-expanding-commission-free-etf-options-in-au-1827359408)
+> 原文：<https://lifehacker.com/vanguard-is-expanding-commission-free-etf-options-in-au-1827359408>
 
 先锋集团正在实现投资者最大的愿望之一:对其大部分 ETF 期权进行免佣金交易。
 

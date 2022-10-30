@@ -1,6 +1,6 @@
 # 我妈妈需要一些便宜又别致的东西来塞进一辆 V8！她应该买什么车？
 
-> 原文:[https://jalopnik . com/my-mom-needs-something-chief-to-cram-a-V8-int-1822614070](https://jalopnik.com/my-mom-needs-something-cheap-and-fancy-to-cram-a-v8-int-1822614070)
+> 原文：<https://jalopnik.com/my-mom-needs-something-cheap-and-fancy-to-cram-a-v8-int-1822614070>
 
 内森的妈妈跑得很快，但她的增压黑斑羚跑了。他们有一辆福特 V8，正在考虑换一辆价格适中但有点豪华的车——但也许她对 V8 车的渴望也能在别处找到。他们应该买什么车？
 

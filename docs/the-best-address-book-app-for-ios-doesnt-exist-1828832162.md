@@ -1,6 +1,6 @@
 # 最好的 iOS 地址簿应用并不存在
 
-> 原文:[https://life hacker . com/best-address-book-app-for-IOs-not-exists-1828832162](https://lifehacker.com/the-best-address-book-app-for-ios-doesnt-exist-1828832162)
+> 原文：<https://lifehacker.com/the-best-address-book-app-for-ios-doesnt-exist-1828832162>
 
 作为我们 2018 年更新 Lifehacker(庞大的)基本 iOS 应用列表的一部分，我做了一些挖掘，以找到比苹果默认联系人应用更好的第三方应用来管理你的通讯录。
 

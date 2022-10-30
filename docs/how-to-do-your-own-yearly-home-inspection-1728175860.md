@@ -1,6 +1,6 @@
 # 如何做你自己的年度家庭检查
 
-> 原文:[https://life hacker . com/how-do-your-own-yearly-inspection-1728175860](https://lifehacker.com/how-to-do-your-own-yearly-home-inspection-1728175860)
+> 原文：<https://lifehacker.com/how-to-do-your-own-yearly-home-inspection-1728175860>
 
 在你买房子之前，找一个专业的房屋检查员总是一个好主意——但这不应该是你彻底检查你的房子的唯一一次。这里有一份清单，列出了对你自己的房子或你正在考虑购买的房子进行年度目视检查时需要注意的事项。
 

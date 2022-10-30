@@ -1,6 +1,6 @@
 # 放弃谷歌和脸书集团，转而使用这个
 
-> 原文:[https://life hacker . com/drop-Google-and-Facebook-groups-and-use-this-instead-1823994067](https://lifehacker.com/drop-google-and-facebook-groups-and-use-this-instead-1823994067)
+> 原文：<https://lifehacker.com/drop-google-and-facebook-groups-and-use-this-instead-1823994067>
 
 试图找到最好的工具来组织一群人并分享知识可能是一件痛苦的事情。谷歌团队可能会觉得非常复杂。脸书不在乎你的隐私。如果你还在使用雅虎群组... [为什么是](https://www.bleepingcomputer.com/news/technology/yahoo-groups-plagued-by-downtime-technical-issues-for-almost-a-week/) ？不要考虑三大巨头，考虑一个像 [Groups.io](https://groups.io/) 这样的服务，一个明智的，非常容易使用的免费平台。
 

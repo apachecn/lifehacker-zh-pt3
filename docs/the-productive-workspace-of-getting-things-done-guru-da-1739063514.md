@@ -1,6 +1,6 @@
 # 完成工作大卫·艾伦大师的高效工作空间
 
-> 原文:[https://life hacker . com/the-productive-workspace-of-getting-things-dong-guru-da-1739063514](https://lifehacker.com/the-productive-workspace-of-getting-things-done-guru-da-1739063514)
+> 原文：<https://lifehacker.com/the-productive-workspace-of-getting-things-done-guru-da-1739063514>
 
 把事情做好(GTD)大师大卫·艾伦对高效工作略知一二。这就是为什么我们忍不住偷看他的工作空间设置，它有一个令人耳目一新的模拟和数字工具的组合。
 

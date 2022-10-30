@@ -1,6 +1,6 @@
 # 如何去除咖啡中的咖啡因？
 
-> 原文:[https://the take out . com/how-do-you-remove-咖啡因-from-coffee-1798252806](https://thetakeout.com/how-do-you-remove-caffeine-from-coffee-1798252806)
+> 原文：<https://thetakeout.com/how-do-you-remove-caffeine-from-coffee-1798252806>
 
 茶和咖啡是世界上最受欢迎的两种非水饮料，它们含有大量社会上最常用的药物:咖啡因，这并非巧合。在美国，绝大多数消费者更喜欢早茶；最近的一项皮尤研究显示，超过四分之三的被调查者选择喝咖啡而不是茶。其中，绝大多数人从不点无咖啡因咖啡。尽管如此，这并没有阻止科学完善脱咖啡因的方法，开发一个现代化学奇迹的过程。
 

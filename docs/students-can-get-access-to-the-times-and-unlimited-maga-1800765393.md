@@ -1,6 +1,6 @@
 # 学生可以以每周 1.87 美元的价格获得《泰晤士报》和无限量的杂志
 
-> 原文:[https://life hacker . com/students-can-get-access-to-the-times-and-unlimited-maga-1800765393](https://lifehacker.com/students-can-get-access-to-the-times-and-unlimited-maga-1800765393)
+> 原文：<https://lifehacker.com/students-can-get-access-to-the-times-and-unlimited-maga-1800765393>
 
 可以说，大学是你通过报纸和期刊了解周围世界的最佳时期，但如果你负担不起所有这些出版物，这可能也是最糟糕的时期。如果你目前是大学本科生或研究生，Scribd 现在有一项交易，可以让你更便宜地使用其图书馆，包括订阅《纽约时报》。
 

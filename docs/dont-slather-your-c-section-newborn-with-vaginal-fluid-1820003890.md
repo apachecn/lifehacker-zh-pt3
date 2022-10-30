@@ -1,6 +1,6 @@
 # 现在还不要给剖腹产的新生儿涂太多阴道液
 
-> 原文:[https://life hacker . com/don-slother-your-c-section-新生儿阴道积液-1820003890](https://lifehacker.com/dont-slather-your-c-section-newborn-with-vaginal-fluid-1820003890)
+> 原文：<https://lifehacker.com/dont-slather-your-c-section-newborn-with-vaginal-fluid-1820003890>
 
 如果你正准备分娩，你可能已经读到过通过剖腹产分娩的婴儿被剥夺了婴儿通常在产道中获得的微生物——这些微生物可以预防许多慢性健康问题。在过去的十年里，科学家们已经收集了越来越多的证据证明出生时获得的微生物可能会影响婴儿患哮喘、过敏和肥胖的风险。
 

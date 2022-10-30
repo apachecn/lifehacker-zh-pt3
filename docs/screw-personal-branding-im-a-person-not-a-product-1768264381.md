@@ -1,6 +1,6 @@
 # 去他的“个人品牌”——我是个人，不是产品
 
-> 原文:[https://life hacker . com/screw-personal-branding-im-a-person-not-a-product-1768264381](https://lifehacker.com/screw-personal-branding-im-a-person-not-a-product-1768264381)
+> 原文：<https://lifehacker.com/screw-personal-branding-im-a-person-not-a-product-1768264381>
 
 我有很多身份:作家和编辑，朋友和女儿，未婚夫和伴侣，阿姨，姐姐，小狗的妈妈。我是布鲁克林人，以前是巴法伦人(甚至是巴克内伦人，因为我在那里学习)。我是一名厨师、跑步者、瑜伽练习者、读者，也是烹饪书和旅游指南的爱好者。我是一个城市人，对国家怀有深深的感激之情。我是水瓶座。我可以继续，但我想你已经明白了。有一点我不是？一个品牌。不像苹果或吉普或 Lagunitas，我不是一个希望被收购的产品。令人震惊，但我是非卖品！
 

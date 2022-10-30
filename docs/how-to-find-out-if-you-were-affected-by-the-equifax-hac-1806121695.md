@@ -1,6 +1,6 @@
 # 如何发现您是否受到了 Equifax 黑客的影响
 
-> 原文:[https://life hacker . com/how-to-find-out-if-you-are-affected-by-equifax-HAC-1806121695](https://lifehacker.com/how-to-find-out-if-you-were-affected-by-the-equifax-hac-1806121695)
+> 原文：<https://lifehacker.com/how-to-find-out-if-you-were-affected-by-the-equifax-hac-1806121695>
 
 当你的社会安全号码被泄露时，有许多邪恶的活动需要小心。由于最近的 Equifax 数据泄露事件，您可能想知道如何辨别窃贼是否在使用您窃取的信息。
 

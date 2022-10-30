@@ -1,6 +1,6 @@
 # 当你的伴侣暂时离开时，不要再说你是“单亲”
 
-> 原文:[https://life hacker . com/stop-say-you-a-single-parent-when-your-partner-I-1802236409](https://lifehacker.com/stop-saying-youre-a-single-parent-when-your-partner-i-1802236409)
+> 原文：<https://lifehacker.com/stop-saying-youre-a-single-parent-when-your-partner-i-1802236409>
 
 声明是一个常见的声明:
 

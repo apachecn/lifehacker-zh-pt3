@@ -1,6 +1,6 @@
 # 这里有一个更好的给新生儿洗澡的方法
 
-> 原文:[https://life hacker . com/heres-a-better-way to-1824252740](https://lifehacker.com/heres-a-better-way-to-bathe-your-newborn-1824252740)
+> 原文：<https://lifehacker.com/heres-a-better-way-to-bathe-your-newborn-1824252740>
 
 在电影中，母亲刚生完孩子，护士就把一个健康的新生儿抱在怀里。然而，在现实生活中，婴儿出生时通常看起来比帮宝适广告更像*外星人 3*——他们的头畸形，他们的脸像脾气暴躁的老人，他们被一层白色的薄膜覆盖着。传统的做法是给他们洗个海绵浴。
 

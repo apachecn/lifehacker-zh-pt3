@@ -1,6 +1,6 @@
 # 麦当劳热咖啡诉讼案的真相，人口过剩的解释，以及最初的太空人
 
-> 原文:[https://life hacker . com/the-truth-about-that-the-macdonalds-hot-coffee-over-1790529374](https://lifehacker.com/the-truth-about-that-mcdonalds-hot-coffee-lawsuit-over-1790529374)
+> 原文：<https://lifehacker.com/the-truth-about-that-mcdonalds-hot-coffee-lawsuit-over-1790529374>
 
 在新年的第一次脑力激荡中，我们打破神话，激励你尽最大努力。首先，关于臭名昭著的麦当劳热咖啡诉讼的真相，以及一些关于人类人口过剩的事实。然后看一些工作中的严肃焦点，看一个工艺艺术家，等等。
 

@@ -1,6 +1,6 @@
 # 不要那么努力地想要快乐
 
-> 原文:[https://life hacker . com/stop-trying-so-hard-to-happy-1745239416](https://lifehacker.com/stop-trying-so-hard-to-be-happy-1745239416)
+> 原文：<https://lifehacker.com/stop-trying-so-hard-to-be-happy-1745239416>
 
 归根结底，我们在生活中所做的一切都是为了追求幸福。但是太过努力地想要快乐实际上会让你无法体验真正的满足感。
 

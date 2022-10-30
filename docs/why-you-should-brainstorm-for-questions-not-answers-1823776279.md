@@ -1,6 +1,6 @@
 # 为什么你应该头脑风暴的问题，而不是答案
 
-> 原文:[https://life hacker . com/why-you-should-brainstorm-for-questions-not-answers-1823776279](https://lifehacker.com/why-you-should-brainstorm-for-questions-not-answers-1823776279)
+> 原文：<https://lifehacker.com/why-you-should-brainstorm-for-questions-not-answers-1823776279>
 
 头脑风暴的目标是找到问题的可能解决方案，但是这个过程经常成为直言不讳的人的平台，他们一次又一次地提供相同的观点。取而代之的是:让每个人提出更多关于这个问题的问题，这样你就能更好地理解这个问题到底是什么。麻省理工学院领导中心的执行主任哈尔·格雷格森提出的这种违反直觉的方法，让每个人都思考并参与进来，可以让一场平淡无奇的头脑风暴变得更加有效。
 

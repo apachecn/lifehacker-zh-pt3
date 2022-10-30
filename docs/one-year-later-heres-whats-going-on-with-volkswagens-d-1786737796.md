@@ -1,6 +1,6 @@
 # 一年后，以下是大众汽车柴油作弊危机的进展
 
-> 原文:[https://jalopnik . com/one year-after-heres-what-going-with-volkswagens-d-1786737796](https://jalopnik.com/one-year-later-heres-whats-going-on-with-volkswagens-d-1786737796)
+> 原文：<https://jalopnik.com/one-year-later-heres-whats-going-on-with-volkswagens-d-1786737796>
 
 2015 年 9 月 18 日，美国环境保护署宣布，使用非法的“失效装置”，大众的柴油发动机排放的污染物远远超过联邦和州法规允许的水平。一年后，很少有事情得到解决。以下是这些作弊车的车主需要知道的。
 

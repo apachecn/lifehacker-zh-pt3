@@ -1,6 +1,6 @@
 # 如何入门苹果的 ARKit 增强现实平台
 
-> 原文:[https://life hacker . com/how-to-get-started-using-apple-s-arkit-augmented-realit-1797690723](https://lifehacker.com/how-to-get-started-using-apple-s-arkit-augmented-realit-1797690723)
+> 原文：<https://lifehacker.com/how-to-get-started-using-apple-s-arkit-augmented-realit-1797690723>
 
 大多数人认为， [苹果的新智能手机“iPhone 8”，](http://gizmodo.com/apple-iphone-8-rumor-roundup-everything-we-think-we-kn-1797533947) 将于 2017 年 9 月发布。但是我可以自信地说，公司今年最具突破性的发布实际上发生在今年夏天早些时候，在加州圣何塞举行的 [苹果全球开发者大会(WWDC)](http://gizmodo.com/the-coolest-stuff-apple-announced-today-at-wwdc-2017-1795828823) 。
 

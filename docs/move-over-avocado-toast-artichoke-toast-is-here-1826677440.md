@@ -1,6 +1,6 @@
 # 挪一下鳄梨吐司，朝鲜蓟吐司在这里
 
-> 原文:[https://the take out . com/move-over-avocado-toast-朝鲜蓟-toast-is-here-1826677440](https://thetakeout.com/move-over-avocado-toast-artichoke-toast-is-here-1826677440)
+> 原文：<https://thetakeout.com/move-over-avocado-toast-artichoke-toast-is-here-1826677440>
 
 强大的鳄梨没有显示出它作为酷人中领先的烤面包片配料的放缓迹象。Instagram 上的# avocadotoast 标签有超过 80 万个条目，并且还在增加，我们这些美食媒体继续报道它，热情丝毫未减。就食品时尚而言，这并不坏。一片裹着鳄梨泥的像样的面包是一顿健康美味的早餐，或者是一顿丰盛午餐或清淡晚餐的开始。
 

@@ -1,6 +1,6 @@
 # 当你可以煮鸡蛋的时候，为什么还要去煮它呢？
 
-> 原文:[https://life hacker . com/why-you-ever-pouch-a egg-why-you-ever-when-you-can-soft-boi-1819260383](https://lifehacker.com/why-would-you-ever-poach-an-egg-when-you-could-soft-boi-1819260383)
+> 原文：<https://lifehacker.com/why-would-you-ever-poach-an-egg-when-you-could-soft-boi-1819260383>
 
 做荷包蛋有很多窍门。向水中加入醋，将水打成漩涡，将鸡蛋从杯子中轻轻滑入水中，将鸡蛋放入水中，这样它的动量会将鸡蛋保持在一起。烧开水，用文火煨，一旦鸡蛋煮熟，就把火关了。好吧，这是我的头号荷包蛋秘诀:不要。
 

@@ -1,6 +1,6 @@
 # 如何在新 MacBook Pro 上的 Touch Bar 中添加自定义按钮
 
-> 原文:[https://life hacker . com/how-to-add-custom-buttons-to-the-touch-bar-on-a-new-MAC-1826846971](https://lifehacker.com/how-to-add-custom-buttons-to-the-touch-bar-on-a-new-mac-1826846971)
+> 原文：<https://lifehacker.com/how-to-add-custom-buttons-to-the-touch-bar-on-a-new-mac-1826846971>
 
 我们又回到了另一期苹果主题的 [Tech 911](https://lifehacker.com/c/tech-911) ，在这里，我尽我所能帮助你找出你的电脑、智能手机、设备或生活中存在的问题。
 

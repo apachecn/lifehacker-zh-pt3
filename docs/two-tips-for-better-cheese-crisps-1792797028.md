@@ -1,6 +1,6 @@
 # 做更好的奶酪薯片的两个建议
 
-> 原文:[https://life hacker . com/two-tips-for-better-cheese-crips-1792797028](https://lifehacker.com/two-tips-for-better-cheese-crisps-1792797028)
+> 原文：<https://lifehacker.com/two-tips-for-better-cheese-crisps-1792797028>
 
 [奶酪薯片](https://lifehacker.com/these-cheese-crisps-are-the-tastiest-one-ingredient-par-1711828422)——也被称为“frico”——是一种简单的单一成分小吃，通过油炸小堆奶酪直到它们看起来像花边饼干。它们很美味。它们很脆。它们是吃成堆奶酪的精心制作的借口，而且它们可能是*甚至更好的*。
 

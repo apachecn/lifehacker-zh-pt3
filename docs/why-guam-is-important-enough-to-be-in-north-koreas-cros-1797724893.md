@@ -1,6 +1,6 @@
 # 为什么关岛如此重要以至于成为朝鲜的目标
 
-> 原文:[https://jalopnik . com/why-Guam-is-before-to-be-north-Koreas-cros-1797724893](https://jalopnik.com/why-guam-is-important-enough-to-be-in-north-koreas-cros-1797724893)
+> 原文：<https://jalopnik.com/why-guam-is-important-enough-to-be-in-north-koreas-cros-1797724893>
 
 在美国总统唐纳德·特朗普(Donald Trump)承诺如果继续好战，朝鲜将“火与怒”之后，朝鲜周三发表声明，威胁要对美国在太平洋的领土关岛发动“包围式打击”。这就是为什么平壤认为关岛是一个有价值的目标。
 

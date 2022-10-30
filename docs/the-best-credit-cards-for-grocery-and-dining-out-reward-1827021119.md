@@ -1,6 +1,6 @@
 # 杂货店和外出就餐奖励的最佳信用卡
 
-> 原文:[https://life hacker . com/the-best-信用卡购物和外出就餐奖励-1827021119](https://lifehacker.com/the-best-credit-cards-for-grocery-and-dining-out-reward-1827021119)
+> 原文：<https://lifehacker.com/the-best-credit-cards-for-grocery-and-dining-out-reward-1827021119>
 
 食物是美国家庭的第三大支出 ，这意味着如果你没有最大化你在食品杂货和外出就餐上的现金回报，你可能会错过一笔不小的钱。
 

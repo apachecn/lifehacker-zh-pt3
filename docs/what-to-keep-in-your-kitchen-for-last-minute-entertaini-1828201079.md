@@ -1,6 +1,6 @@
 # 在你的厨房里为最后一分钟的娱乐保留什么
 
-> 原文:[https://life hacker . com/what-keep-in-your-kitchen-last-minute-entertain I-1828201079](https://lifehacker.com/what-to-keep-in-your-kitchen-for-last-minute-entertaini-1828201079)
+> 原文：<https://lifehacker.com/what-to-keep-in-your-kitchen-for-last-minute-entertaini-1828201079>
 
 也许是我身上的南方，但我一直很喜欢客人，甚至是不速之客。我也很喜欢喂人吃饭，但并不总是有时间做饭。因此，我喜欢在厨房里放一大堆美味的小吃和饮料，以防有人饿了(或渴了)过来。
 

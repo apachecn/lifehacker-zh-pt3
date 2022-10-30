@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:取消婚礼还来得及吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-it-a-that-that-a-call-off-the-weddin-1796503986](https://kotaku.com/ask-dr-nerdlove-is-it-too-late-to-call-off-the-weddin-1796503986)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-is-it-too-late-to-call-off-the-weddin-1796503986>
 
 大家好，欢迎来到 [询问 T2 博士，这是唯一一个移植到 SNES 经典的约会建议专栏。本周，我们面临一些困难的情况，问一些尖锐的问题，传递一些严厉的爱。当你的婚礼只有几个星期的时候，你怎么知道你的感觉是简单的临阵退缩还是更多呢？你怎么处理那种挥之不去的感觉，也许，仅仅是也许，你最好的朋友故意破坏你们的关系？](http://kotaku.com/askdrnerdlove) 
 

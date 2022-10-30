@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的 iOS 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-IOs-downloads-and-post-of-2016-1790528325](https://lifehacker.com/most-popular-ios-downloads-and-posts-of-2016-1790528325)
+> 原文：<https://lifehacker.com/most-popular-ios-downloads-and-posts-of-2016-1790528325>
 
 2016 年给我们带来了新的 iPhone 和新的 iOS 10 操作系统，但今年明显的赢家是 *Pokémon Go* 。今年真的有适合每个 iOS 用户的东西。以下是我们在 iOS 上最大的帖子和下载量。
 

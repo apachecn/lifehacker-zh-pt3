@@ -1,6 +1,6 @@
 # 超越截止日期的“It Follows”模型
 
-> 原文:[https://life hacker . com/the-it-follows-model-for-outrunning-deadlines-1821533189](https://lifehacker.com/the-it-follows-model-for-outrunning-deadlines-1821533189)
+> 原文：<https://lifehacker.com/the-it-follows-model-for-outrunning-deadlines-1821533189>
 
 “我喜欢截止日期，”《银河系漫游指南》作者道格拉斯·亚当斯说。"我喜欢它们经过时发出的嗖嗖声。"这里有一个思考长期期限的心理技巧，基于恐怖电影《T2》的小剧透。
 

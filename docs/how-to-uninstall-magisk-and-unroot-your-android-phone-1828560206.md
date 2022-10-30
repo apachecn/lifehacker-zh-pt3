@@ -1,6 +1,6 @@
 # 如何卸载 Magisk 和 Unroot 你的 Android 手机
 
-> 原文:[https://life hacker . com/how-to-uninstall-magisk-and-unroot-your-Android-phone-1828560206](https://lifehacker.com/how-to-uninstall-magisk-and-unroot-your-android-phone-1828560206)
+> 原文：<https://lifehacker.com/how-to-uninstall-magisk-and-unroot-your-android-phone-1828560206>
 
 在你的 Android 智能手机上运行 [Magisk Manager](https://magiskmanager.com/) 的一个好处是 Magisk 可以隐藏特定应用程序的 root 访问权限，如果某个应用程序因为检测到你篡改了你的设备而无法启动，这很有帮助。然而，一些应用程序— [像口袋妖怪 GO](https://forum.xda-developers.com/apps/magisk/magisk-hide-pokemon-t3813961)—现在在运行时会专门检查 Magisk，这破坏了该软件的一个最佳功能。
 

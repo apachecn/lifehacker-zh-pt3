@@ -1,6 +1,6 @@
 # 使用这款 Android 应用程序跟踪您的智能手机使用情况，并减少电池寿命的浪费
 
-> 原文:[https://life hacker . com/track-your-smart phone-usage-and-waste-less-battery-life-1823995782](https://lifehacker.com/track-your-smartphone-usage-and-waste-less-battery-life-1823995782)
+> 原文：<https://lifehacker.com/track-your-smartphone-usage-and-waste-less-battery-life-1823995782>
 
 我已经知道我对我的智能手机 上瘾了，如果你曾经心不在焉地把手伸进口袋，打开屏幕却没有意识到，你可能和我一样上瘾了。这些设备已经变得如此 [深入我们的生活](https://lifehacker.com/ten-tricks-for-checking-your-phone-less-1803137141) 以至于很难说出我们多久检查一次它们，但是一个新的 Android 应用程序可以让你挖掘数据，看看你每天到底浪费了多少时间(以及 [电池寿命](https://lifehacker.com/top-10-ways-to-improve-the-battery-life-on-your-phone-a-1725843518) )。
 

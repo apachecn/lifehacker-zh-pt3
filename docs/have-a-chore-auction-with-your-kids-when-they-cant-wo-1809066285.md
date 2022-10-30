@@ -1,6 +1,6 @@
 # 当你的孩子不能平静地解决问题时，和他们一起进行“家务拍卖”
 
-> 原文:[https://life hacker . com/have-a-a-Jerry-auction-with-your-kids-when-can-wo-1809066285](https://lifehacker.com/have-a-chore-auction-with-your-kids-when-they-cant-wo-1809066285)
+> 原文：<https://lifehacker.com/have-a-chore-auction-with-your-kids-when-they-cant-wo-1809066285>
 
 有了孩子的兄弟姐妹，总是会有关于谁给新的小狗起名字，谁为电影之夜挑选电影，谁成为糖果王国里的绿色姜饼人的争吵，以及其他事情的变化就像一个人可以大喊，“这太不公平了！”父母可以通过举办家务拍卖来帮助他们和平解决争端，而不是感到不安。
 

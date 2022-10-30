@@ -1,6 +1,6 @@
 # 孕育婴儿背后的复杂科学
 
-> 原文:[https://life hacker . com/the-complex-science-behind-when-baby-be-idea-1759896897](https://lifehacker.com/the-complicated-science-behind-when-babies-are-conceive-1759896897)
+> 原文：<https://lifehacker.com/the-complicated-science-behind-when-babies-are-conceive-1759896897>
 
 很有可能你在学校被告知，任何时候发生性行为都有可能怀孕，所以不要发生性行为。但这主要是为了让你把它藏在裤子里而撒的谎——实际上生个孩子没那么容易。
 

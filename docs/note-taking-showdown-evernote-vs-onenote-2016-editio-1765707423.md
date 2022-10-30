@@ -1,6 +1,6 @@
 # 笔记对决:Evernote vs. OneNote (2016 版)
 
-> 原文:[https://life hacker . com/记笔记-摊牌-evernote-vs-onenote-2016-editio-1765707423](https://lifehacker.com/note-taking-showdown-evernote-vs-onenote-2016-editio-1765707423)
+> 原文：<https://lifehacker.com/note-taking-showdown-evernote-vs-onenote-2016-editio-1765707423>
 
 Evernote 和 OneNote 是我们最喜欢的两个工具，但自从我们上次比较这两个应用程序 以来，它们都发生了实质性的变化——在某些方面，不是最好的。这是这两个人现在的位置。
 

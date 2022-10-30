@@ -1,6 +1,6 @@
 # 如何保护自己免受网上约会诈骗
 
-> 原文:[https://life hacker . com/how-to-protect-yoursely from-online-dating-scams-1827106759](https://lifehacker.com/how-to-protect-yourself-from-online-dating-scams-1827106759)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-online-dating-scams-1827106759>
 
 有什么比 [被](https://lifehacker.com/how-to-avoid-being-catfished-while-online-dating-1705354497) 抓了更惨的？被你认为喜欢你的人骗走了钱。爱情骗局正在增加，根据联邦调查局的说法，这些无耻的骗局比其他种类的网络诈骗花费消费者更多的钱。如果你在寻找爱情，以下是你应该注意的。
 

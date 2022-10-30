@@ -1,6 +1,6 @@
 # 我们并不像自己认为的那样思想开放
 
-> 原文:[https://life hacker . com/were-as-open-mind as we-think you-is-1759787196](https://lifehacker.com/were-not-as-open-minded-as-we-think-you-are-1759787196)
+> 原文：<https://lifehacker.com/were-not-as-open-minded-as-we-think-you-are-1759787196>
 
 我们都喜欢认为自己思想开放，但选举季节暴露了我们中最优秀的一面也暴露了最糟糕的一面。即使是我们中最“开放”和“知情”的人也比我们想象的要封闭得多，他们也会公开承认。让我们看看为什么会出现这种情况，以及我们真正可以做些什么。
 

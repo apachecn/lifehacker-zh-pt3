@@ -1,6 +1,6 @@
 # 告诉我们你在印第安纳波利斯的最佳建议
 
-> 原文:[https://life hacker . com/tell-us-your-best-Indianapolis-tips-1821534544](https://lifehacker.com/tell-us-your-best-indianapolis-tips-1821534544)
+> 原文：<https://lifehacker.com/tell-us-your-best-indianapolis-tips-1821534544>
 
 除了一场大型汽车比赛，印第安纳波利斯对于一个超过 80 万人口的城市来说并没有得到足够的关注。让我们给它一些。让我们真正把印第安纳波利斯放在地图上。让我们写一篇关于它的帖子。
 

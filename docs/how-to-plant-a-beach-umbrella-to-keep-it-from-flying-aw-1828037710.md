@@ -1,6 +1,6 @@
 # 如何种一把遮阳伞让它不飞走
 
-> 原文:[https://life hacker . com/how-to-plant a-beach 伞-to-keep it from-flying-aw-1828037710](https://lifehacker.com/how-to-plant-a-beach-umbrella-to-keep-it-from-flying-aw-1828037710)
+> 原文：<https://lifehacker.com/how-to-plant-a-beach-umbrella-to-keep-it-from-flying-aw-1828037710>
 
 夏天还有一个月，如果你一直在海滩上听你对阳光更敏感的朋友说话，或者不得不在太多的场合出去买芦荟，你可能会想到投资一把遮阳伞。在这一点上跟随你的直觉；遮阳伞是对你皮肤未来的巨大投资。但你可能也注意到了，至少有一次，一个周末有人跑下海滩，追逐一把被强风吹得突然逃跑的雨伞。
 

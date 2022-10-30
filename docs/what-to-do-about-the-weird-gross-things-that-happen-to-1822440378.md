@@ -1,6 +1,6 @@
 # 如何应对发生在你怀孕身体上的怪异、恶心的事情
 
-> 原文:[https://life hacker . com/1822440378](https://lifehacker.com/what-to-do-about-the-weird-gross-things-that-happen-to-1822440378)
+> 原文：<https://lifehacker.com/what-to-do-about-the-weird-gross-things-that-happen-to-1822440378>
 
 怀孕的身体——这是一个美丽的东西！这也是一件出汗、胀气、抽筋、疼痛、渗漏、颠簸的事情。没有人说培育一个新的人类是容易的，但很少有人告诉你在这九个月中可能会突然出现的所有奇怪和严重的疾病。以下是它们发生的原因，以及你可以做些什么。
 

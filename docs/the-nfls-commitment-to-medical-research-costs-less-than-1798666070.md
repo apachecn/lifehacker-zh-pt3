@@ -1,6 +1,6 @@
 # NFL 对医学研究的投入比一个优秀的四分卫还少
 
-> 原文:[https://life hacker . com/the-nfls-commitment-to-medical-research-costs-less-1798666070](https://lifehacker.com/the-nfls-commitment-to-medical-research-costs-less-than-1798666070)
+> 原文：<https://lifehacker.com/the-nfls-commitment-to-medical-research-costs-less-than-1798666070>
 
 NFL [本周](http://www.nfl.com/news/story/0ap3000000836554/article/nfl-making-40-million-available-for-medical-research) 宣布，他们将很快奖励科学家 4000 万美元用于脑外伤的医学研究。这已经很多了，如果我有 4000 万美元，我会把它换成金币并试着在里面游泳。但是这对 NFL 来说是一大笔钱吗？
 

@@ -1,6 +1,6 @@
 # 为了孩子，离婚的父母应该在一起吗？
 
-> 原文:[https://life hacker . com/should-离异父母-共度时光-为了他们的 k-1797239066](https://lifehacker.com/should-divorced-parents-spend-time-together-for-their-k-1797239066)
+> 原文：<https://lifehacker.com/should-divorced-parents-spend-time-together-for-their-k-1797239066>
 
 在 Slate 的育儿播客 [“爸爸妈妈在吵架”](http://www.slate.com/articles/podcasts/mom_and_dad_are_fighting/2017/05/slate_s_parenting_podcast_on_the_daddyofive_youtube_channel_and_spending.html) 上，主持人就一个棘手的问题展开了辩论:离婚后，如果孩子要求，你应该花时间和家人在一起吗？
 

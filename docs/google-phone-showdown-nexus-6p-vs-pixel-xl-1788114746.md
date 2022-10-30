@@ -1,6 +1,6 @@
 # 谷歌手机摊牌:Nexus 6P vs. Pixel XL
 
-> 原文:[https://life hacker . com/Google-phone-摊牌-nexus-6p-vs-pixel-XL-1788114746](https://lifehacker.com/google-phone-showdown-nexus-6p-vs-pixel-xl-1788114746)
+> 原文：<https://lifehacker.com/google-phone-showdown-nexus-6p-vs-pixel-xl-1788114746>
 
 谷歌新的 [Pixel 手机在这里](http://lifehacker.com/everything-google-announced-at-its-made-by-google-eve-1787404179) 取代了 Nexus 系列。通常情况下，我们不会让新手机与旧手机竞争，但如果你现在正在购物，或者想替换掉 [一部爆炸的 Galaxy Note 7](http://lifehacker.com/what-to-do-with-your-recalled-galaxy-note-7-device-1786688476) ，这是你的两个最佳选择。让我们看看老一代的守卫者如何对抗谷歌的新硬件游戏，以及真正的价值在哪里。
 

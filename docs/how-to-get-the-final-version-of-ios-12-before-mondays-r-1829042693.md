@@ -1,6 +1,6 @@
 # 如何在周一发布前获得 iOS 12 的最终版本
 
-> 原文:[https://life hacker . com/how-to-get-the-final-version-of-IOs-12-before-Mondays-r-1829042693](https://lifehacker.com/how-to-get-the-final-version-of-ios-12-before-mondays-r-1829042693)
+> 原文：<https://lifehacker.com/how-to-get-the-final-version-of-ios-12-before-mondays-r-1829042693>
 
 iOS 12 的“金主”——应该是 9 月 17 日周一向公众发布的最终版本——现在已经上市。如果你想比其他人早几天拿到新的 iPhone 和 iPad 操作系统——这里的“其他人”，我指的是“不运行操作系统公测版的普通人”——下面是方法。
 

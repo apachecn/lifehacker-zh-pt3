@@ -1,6 +1,6 @@
 # 在国外开车需要专门的租车保险吗？
 
-> 原文:[https://life hacker . com/do-you-need-special-car-rent-insurance-when-driving-a-1823322967](https://lifehacker.com/do-you-need-special-car-rental-insurance-when-driving-a-1823322967)
+> 原文：<https://lifehacker.com/do-you-need-special-car-rental-insurance-when-driving-a-1823322967>
 
 有这么多类型的驾驶保险，无论是你的个人汽车保险还是你的信用卡，当你驾驶一辆租来的汽车时，很难告诉你什么保险包括什么。当你想在国外租车时，事情就变得更复杂了。以下是你需要知道的。
 

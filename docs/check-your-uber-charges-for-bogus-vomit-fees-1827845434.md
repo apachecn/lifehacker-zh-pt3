@@ -1,6 +1,6 @@
 # 检查你的优步费用是否有虚假的“呕吐费”
 
-> 原文:[https://life hacker . com/check-your-Uber-charges-for-bogus-呕吐费-1827845434](https://lifehacker.com/check-your-uber-charges-for-bogus-vomit-fees-1827845434)
+> 原文：<https://lifehacker.com/check-your-uber-charges-for-bogus-vomit-fees-1827845434>
 
 下次你喝优步，尤其是在一夜酒吧狂欢之后，你可能会想事后仔细检查一下你的账单。
 

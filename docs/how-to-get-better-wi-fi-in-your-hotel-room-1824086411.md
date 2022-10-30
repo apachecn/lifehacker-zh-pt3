@@ -1,6 +1,6 @@
 # 如何获得更快的酒店房间 Wi-Fi
 
-> 原文:[https://life hacker . com/how-to-get-better-wi-fi-in-your-hotel-room-1824086411](https://lifehacker.com/how-to-get-better-wi-fi-in-your-hotel-room-1824086411)
+> 原文：<https://lifehacker.com/how-to-get-better-wi-fi-in-your-hotel-room-1824086411>
 
 辛苦旅行一天后，你登记入住酒店。你想做的就是脱掉鞋子，把温度调到你在家里无法忍受的最高温度或最低温度，然后在你应得的休息之前和你的网飞队列打个招呼。然后你意识到一个可怕的事实:你的 wi-fi 连接很糟糕，或者更糟，根本不存在。
 

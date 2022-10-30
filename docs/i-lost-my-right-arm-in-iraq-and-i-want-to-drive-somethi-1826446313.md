@@ -1,6 +1,6 @@
 # 我在伊拉克失去了右臂，我想花 50，000 美元开辆酷车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-lost-my-right-arm-in-Iraq-and-I-want-to-drive-somethi-1826446313](https://jalopnik.com/i-lost-my-right-arm-in-iraq-and-i-want-to-drive-somethi-1826446313)
+> 原文：<https://jalopnik.com/i-lost-my-right-arm-in-iraq-and-i-want-to-drive-somethi-1826446313>
 
 杰森正在寻找他所谓的中年危机车，以补充他的吉普切诺基。挑战在于，对于一个只能使用左臂的人来说，开车必须是一件有趣的事情。他应该买什么车？
 

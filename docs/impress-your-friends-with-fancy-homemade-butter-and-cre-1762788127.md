@@ -1,6 +1,6 @@
 # 用别致的自制黄油和鲜奶油打动你的朋友
 
-> 原文:[https://life hacker . com/impress-your-friends with fancy-made-butter-and-cre-1762788127](https://lifehacker.com/impress-your-friends-with-fancy-homemade-butter-and-cre-1762788127)
+> 原文：<https://lifehacker.com/impress-your-friends-with-fancy-homemade-butter-and-cre-1762788127>
 
 一个人能做的最有吸引力的事情之一是做一些通常被认为是“商店购买”的东西即使鲜奶油是你在厨房里能做的最简单的东西之一，我仍然会遇到一些人对新鲜的鲜奶油感到惊讶。鲜奶油很棒，但如果你真的想让某人大吃一惊，那就做一些更花哨的东西，比如新鲜黄油、鲜奶油或复合黄油。
 

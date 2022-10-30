@@ -1,6 +1,6 @@
 # 爸爸们，休育儿假吧
 
-> 原文:[https://life hacker . com/dads-take-your-育儿假-1826078864](https://lifehacker.com/dads-take-your-parental-leave-1826078864)
+> 原文：<https://lifehacker.com/dads-take-your-parental-leave-1826078864>
 
 [的数字显示](https://www.bloomberg.com/news/articles/2018-04-18/dads-say-they-deserve-parental-leave-even-if-they-don-t-take-it) 许多爸爸认为父亲应该休育儿假来照顾他们的新生儿。但也许他们指的是理论上的*。因为根据人力资源管理协会的最新调查，虽然三分之二的女性使用她们所有的带薪育儿假，但只有 36%的男性这样做。事实上，波尔州立大学的新研究表明，大多数男人在孩子出生后休假不超过一周。这对谁都没有好处。* 
 

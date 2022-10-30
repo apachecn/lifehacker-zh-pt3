@@ -1,6 +1,6 @@
 # 查找所有支持黑暗模式的 Mac 和 iOS 应用程序
 
-> 原文:[https://life hacker . com/find-all-the-MAC-and-IOs-apps-support-dark-mode-1821804227](https://lifehacker.com/find-all-the-mac-and-ios-apps-that-support-dark-mode-1821804227)
+> 原文：<https://lifehacker.com/find-all-the-mac-and-ios-apps-that-support-dark-mode-1821804227>
 
 黑暗模式是一种用黑底白字取代通常的黑底白字显示的功能，对眼睛来说更容易，让你感觉自己拥有比特币。网站 [黑暗模式列表](https://darkmodelist.com/) 列出了支持该功能的 macOS 应用、iOS 应用和网站，并告诉你如何启用每一个。
 

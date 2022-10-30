@@ -1,6 +1,6 @@
 # 通过关注为什么你需要完成一项任务来激发你的动力
 
-> 原文:[https://life hacker . com/boost-your-motivation-by-focusing-why-you-need-to-co-1826041863](https://lifehacker.com/boost-your-motivation-by-focusing-on-why-you-need-to-co-1826041863)
+> 原文：<https://lifehacker.com/boost-your-motivation-by-focusing-on-why-you-need-to-co-1826041863>
 
 当你意识到你需要完成某件事时，你可能会对自己说，“我必须尽快完成这件事”但是这种想法会在两个方面扰乱你的动机:扰乱你的时间感和剥夺你的紧迫感。
 

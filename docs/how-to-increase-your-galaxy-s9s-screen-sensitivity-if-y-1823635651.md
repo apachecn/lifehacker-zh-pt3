@@ -1,6 +1,6 @@
 # 如果你使用屏幕保护，如何提高 Galaxy S9 的屏幕灵敏度
 
-> 原文:[https://life hacker . com/how-to-increase-your-galaxy-s9s-screen-sensitivity-if-y-1823635651](https://lifehacker.com/how-to-increase-your-galaxy-s9s-screen-sensitivity-if-y-1823635651)
+> 原文：<https://lifehacker.com/how-to-increase-your-galaxy-s9s-screen-sensitivity-if-y-1823635651>
 
 如果你在闪亮的新 Galaxy S9 上安装的屏幕保护装置让你与显示器的交互变得有点困难，你知道，如果你不想使用手机，你可以增加屏幕灵敏度，让事情变得更容易一些。
 

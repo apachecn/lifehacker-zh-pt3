@@ -1,6 +1,6 @@
 # 在这个劳动节的周末，你需要知道的关于租赁新车的一切
 
-> 原文:[https://jalopnik . com/everything-you-need-know-on-leasing-a-new-car-thi-1729046488](https://jalopnik.com/everything-you-need-to-know-about-leasing-a-new-car-thi-1729046488)
+> 原文：<https://jalopnik.com/everything-you-need-to-know-about-leasing-a-new-car-thi-1729046488>
 
 劳动节周末不仅标志着夏天的结束(除了在德克萨斯州，那里通常会拖到 11 月中旬)和秋天的开始，也是一年中购买新车的最佳时机之一。你或你认识的人可能会在这个周末做这件事，如果是这样，他们可能会考虑租赁。
 

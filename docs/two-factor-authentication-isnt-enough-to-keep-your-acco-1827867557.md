@@ -1,6 +1,6 @@
 # 两步文本身份验证不足以保护您的帐户安全
 
-> 原文:[https://life hacker . com/two-factor-authentic ation-not-fully-to-keep-your-acco-1827867557](https://lifehacker.com/two-factor-authentication-isnt-enough-to-keep-your-acco-1827867557)
+> 原文：<https://lifehacker.com/two-factor-authentication-isnt-enough-to-keep-your-acco-1827867557>
 
 就在上周，Instagram [证实了](https://techcrunch.com/2018/07/17/instagram-2-factor/) 的报道，称其正在修改账户安全设置，允许用户使用安全应用程序的密码登录，如谷歌认证器，而不是更简单的基于短信的代码。虽然这不是最性感的消息，但很高兴看到这种做法越来越受欢迎:使用基于令牌的应用程序，而不是短信，来验证其他应用程序和服务。
 

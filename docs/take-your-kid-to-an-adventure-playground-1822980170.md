@@ -1,6 +1,6 @@
 # 带你的孩子去冒险游乐场
 
-> 原文:[https://life hacker . com/take-your-kid-to-a-adventure-playground-1822980170](https://lifehacker.com/take-your-kid-to-an-adventure-playground-1822980170)
+> 原文：<https://lifehacker.com/take-your-kid-to-an-adventure-playground-1822980170>
 
 如果你正在寻找一个原始的游乐场，带着你的原始的孩子，一个他们可以走下原色的塑料滑梯并降落在垫子表面的地方，这篇文章可能不适合你。今天，我们谈论的是*冒险游乐场*，在那里你更有可能发现孩子们在废木头上钉钉子，爬上废弃的小船，在泥泞的池塘里漂流，或者用旧罐子和瓶子制作乐器。一些空间看起来像字面上的垃圾场。你已经被警告了。
 

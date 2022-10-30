@@ -1,6 +1,6 @@
 # 它会腐烂吗？:猪头
 
-> 原文:[https://life hacker . com/will-it-sous-vide-the-head-a-pig-1797683697](https://lifehacker.com/will-it-sous-vide-the-head-of-a-pig-1797683697)
+> 原文：<https://lifehacker.com/will-it-sous-vide-the-head-of-a-pig-1797683697>
 
 你好，欢迎来到 [*的*非常*特别版，它会被录像吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的东西的专栏。我们不仅终于做了一道大家期待已久的菜——猪肉馅饼——而且，正如你所看到的，我们还有视频。
 

@@ -1,6 +1,6 @@
 # 如何应对购买后悔
 
-> 原文:[https://life hacker . com/how-to-deal-with-purchase-revenue-1822116653](https://lifehacker.com/how-to-deal-with-purchase-regret-1822116653)
+> 原文：<https://lifehacker.com/how-to-deal-with-purchase-regret-1822116653>
 
 去年年底，我从 Fenty Beauty 购买了两支 Mattemoiselle 口红，这是我们这个时代最重要的千禧一代 、蕾哈娜的化妆品系列。虽然我喜欢蕾哈娜和她的一些其他产品，但我真的真的不喜欢这些口红。它们很难涂抹，不能持久，颜色也不适合我。当我每天在化妆包里看到它们时，我会为我花在它们身上的 36 美元感到内疚(去年我有一个 [和几个其他的购买后悔](https://twocents.lifehacker.com/the-best-things-i-spent-money-on-this-year-1821391840) )。
 

@@ -1,6 +1,6 @@
 # 七种不同女童子军饼干的最佳啤酒搭配
 
-> 原文:[https://life hacker . com/the-best-beer-pairing-for-seven-different-girl-scout-c-1758847748](https://lifehacker.com/the-best-beer-pairings-for-seven-different-girl-scout-c-1758847748)
+> 原文：<https://lifehacker.com/the-best-beer-pairings-for-seven-different-girl-scout-c-1758847748>
 
 你如何把已经很美味的东西变成令人垂涎三尺的体验？啤酒。如果你喜欢女童子军饼干，你也喜欢酿造，你不妨将两者结合起来，啤酒专家朱莉娅·赫兹提供了她的配对建议。
 

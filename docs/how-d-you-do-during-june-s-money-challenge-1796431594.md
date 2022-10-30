@@ -1,6 +1,6 @@
 # 你在六月的金钱挑战中表现如何？
 
-> 原文:[https://life hacker . com/how-d-you-do-due-June-s-money-challenge-1796431594](https://lifehacker.com/how-d-you-do-during-june-s-money-challenge-1796431594)
+> 原文：<https://lifehacker.com/how-d-you-do-during-june-s-money-challenge-1796431594>
 
 又是一个月，又是一场金钱挑战。六月，我们挑战你通过 [协商你的信用卡利率](https://lifehacker.com/junes-money-challenge-cut-the-cost-of-your-credit-card-1795651432) 来更快地摆脱债务。你表现如何？
 

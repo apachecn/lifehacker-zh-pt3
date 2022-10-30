@@ -1,6 +1,6 @@
 # 用 Sugru 为你的孩子做一个防摔相机
 
-> 原文:[https://life hacker . com/make-a-drop-proof-camera-for-your-kid-using-sugru-1797449398](https://lifehacker.com/make-a-drop-proof-camera-for-your-kid-using-sugru-1797449398)
+> 原文：<https://lifehacker.com/make-a-drop-proof-camera-for-your-kid-using-sugru-1797449398>
 
 通过你孩子的眼睛看世界的快照是很有趣的。看着他们跑来跑去，手忙脚乱地拿着你的相机或手机可不是什么好玩的事儿(*不要掉，不要掉，请不要掉*)。
 

@@ -1,6 +1,6 @@
 # 哪些厨房工具和小玩意是你离不开的？
 
-> 原文:[https://life hacker . com/which-kitchen-tools-and-gadgets-can-you-not-live-without-1823733813](https://lifehacker.com/which-kitchen-tools-and-gadgets-can-you-not-live-withou-1823733813)
+> 原文：<https://lifehacker.com/which-kitchen-tools-and-gadgets-can-you-not-live-withou-1823733813>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周我想谈谈你最喜欢的厨房工具、器皿和小玩意。
 

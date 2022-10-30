@@ -1,6 +1,6 @@
 # 如何举办“资源派对”
 
-> 原文:[https://life hacker . com/how-to-throw-a-resource-party-1829311193](https://lifehacker.com/how-to-throw-a-resource-party-1829311193)
+> 原文：<https://lifehacker.com/how-to-throw-a-resource-party-1829311193>
 
 残酷的事实是:一个目标在大脑中停留太久就会开始消散。要从“我希望我能做到”的舒适空间进入“神圣的见鬼，我真的在做”*T3]的令人兴奋的领域，它需要被放在那里。大声说出来。与信任的朋友分享。给定腿。* 
 

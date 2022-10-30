@@ -1,6 +1,6 @@
 # 海信荒谬的 100 寸激光电视让我变成了大屏信徒
 
-> 原文:[https://gizmodo . com/hisenses-alvacy-100 英寸激光电视把我变成了一个大人物-1826678649](https://gizmodo.com/hisenses-absurd-100-inch-laser-tv-turned-me-into-a-big-1826678649)
+> 原文：<https://gizmodo.com/hisenses-absurd-100-inch-laser-tv-turned-me-into-a-big-1826678649>
 
 当讨论大屏幕电视时，尺寸肯定是谈话的主要话题，但在海信的 100 英寸超高清激光电视中，大接近了一个令人思维终结的陈词滥调——我很乐意让它接管我的弱小思维。
 

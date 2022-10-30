@@ -1,6 +1,6 @@
 # 不要买女式 t 恤——买男式衬衫，然后量身定做
 
-> 原文:[https://life hacker . com/don-buy-women-t-shirts-buy-men-shirts-and-tailor-the-the-1794034101](https://lifehacker.com/dont-buy-womens-t-shirts-buy-mens-shirts-and-tailor-the-1794034101)
+> 原文：<https://lifehacker.com/dont-buy-womens-t-shirts-buy-mens-shirts-and-tailor-the-1794034101>
 
 我是“胶囊衣橱”的忠实拥护者，从童年开始，那时它还被称为“没有很多衣服”我一直喜欢 t 恤和牛仔裤，夏天的时候我会换成 t 恤和裙子。这意味着是时候进货了。
 

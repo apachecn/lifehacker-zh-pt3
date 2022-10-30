@@ -1,6 +1,6 @@
 # Lifehacker 正在招聘视频制作人
 
-> 原文:[https://life hacker . com/life hacker-is-hiring-video-producers-1820619955](https://lifehacker.com/lifehacker-is-hiring-video-producers-1820619955)
+> 原文：<https://lifehacker.com/lifehacker-is-hiring-video-producers-1820619955>
 
 你对正确的做事方式有什么强烈的想法，并渴望与世界分享吗？你喜欢极客式地研究从如何修拉链到现代礼仪细节的一切细节吗？你是你朋友圈的 MacGyver 吗？你是不是也是一个聪明、精力充沛、注重细节的视频制作人，他认为拍摄加湿器和除湿机之间的皇家战争是一段美好时光？那我们想和你谈谈。
 

@@ -1,6 +1,6 @@
 # 如果你发现外星人，你会打电话给谁？
 
-> 原文:[https://gizmodo . com/if-you-found-aliens-who-you-call-1822248026](https://gizmodo.com/if-you-find-aliens-who-do-you-call-1822248026)
+> 原文：<https://gizmodo.com/if-you-find-aliens-who-do-you-call-1822248026>
 
 假设你的房子着火了，或者被一群精神病浣熊占领了。你不会犹豫——你拿出手机，打电话给消防队或动物控制中心，然后消防员/浣熊饲养员会被迅速派往你家。这些都是完善的协议，对于维持一个基本上没有火灾、没有野生动物的社会至关重要。
 

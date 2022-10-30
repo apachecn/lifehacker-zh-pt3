@@ -1,6 +1,6 @@
 # 玻璃地球仪和华丽的书桌配件:Ugmonk 工作室的工作空间
 
-> 原文:[https://life hacker . com/glass-globes-and-huarly-desk-accessories-the-ugmonk-1737622521](https://lifehacker.com/glass-globes-and-gorgeous-desk-accessories-the-ugmonk-1737622521)
+> 原文：<https://lifehacker.com/glass-globes-and-gorgeous-desk-accessories-the-ugmonk-1737622521>
 
 Ugmonk 是一家由设计师杰夫·谢尔登(Jeff Sheldon)创办的家族企业，生产皮革鼠标垫、印刷图案和图形 t 恤等产品。正如你所料，谢尔顿的家庭工作室在视觉上令人愉悦。
 

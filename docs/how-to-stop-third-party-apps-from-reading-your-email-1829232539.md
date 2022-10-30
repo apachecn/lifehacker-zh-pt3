@@ -1,6 +1,6 @@
 # 如何阻止第三方应用程序读取你的电子邮件
 
-> 原文:[https://life hacker . com/how-to-stop-third-party-apps-from-reading-your-email-1829232539](https://lifehacker.com/how-to-stop-third-party-apps-from-reading-your-email-1829232539)
+> 原文：<https://lifehacker.com/how-to-stop-third-party-apps-from-reading-your-email-1829232539>
 
 每当你在一家公司的网站上点击那个简单的“登录谷歌”按钮，你就授权该应用程序或服务访问你的一些信息。虽然在某些情况下，这可能只是访问您的姓名和电子邮件地址，但对其他人来说，您也给了该公司阅读您的电子邮件的能力。
 

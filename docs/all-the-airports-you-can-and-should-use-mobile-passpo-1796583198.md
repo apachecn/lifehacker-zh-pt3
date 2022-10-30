@@ -1,6 +1,6 @@
 # 所有你可以(并且应该)使用手机护照的机场
 
-> 原文:[https://life hacker . com/all-the-airports-you-can-and-should-use-mobile-passpo-1796583198](https://lifehacker.com/all-the-airports-you-can-and-should-use-mobile-passpo-1796583198)
+> 原文：<https://lifehacker.com/all-the-airports-you-can-and-should-use-mobile-passpo-1796583198>
 
 如果你经常出国旅行(甚至几年才一次)，那么 Global Entry 可能是你最好的朋友。然而，如果你不经常出国旅行，那么手机护照应用程序可能正是医生(或者在这种情况下是边境管制)所要求的。
 

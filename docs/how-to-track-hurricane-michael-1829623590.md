@@ -1,6 +1,6 @@
 # 如何追踪迈克尔飓风
 
-> 原文:[https://life hacker . com/how-to-track-hurricane-Michael-1829623590](https://lifehacker.com/how-to-track-hurricane-michael-1829623590)
+> 原文：<https://lifehacker.com/how-to-track-hurricane-michael-1829623590>
 
 美国东南部的大部分地区正在为明天早上登陆的飓风迈克尔做准备。当风暴接近佛罗里达海湾海岸时，它的势头一直在稳步增长，预计在它袭击时将达到 3 级强度。
 

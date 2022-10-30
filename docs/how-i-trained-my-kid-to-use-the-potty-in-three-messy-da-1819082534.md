@@ -1,6 +1,6 @@
 # 我是如何在混乱的三天里训练我的孩子使用厕所的
 
-> 原文:[https://life hacker . com/how-I-trained-my-kid-to-use the-potty-in-three-dirty-da-1819082534](https://lifehacker.com/how-i-trained-my-kid-to-use-the-potty-in-three-messy-da-1819082534)
+> 原文：<https://lifehacker.com/how-i-trained-my-kid-to-use-the-potty-in-three-messy-da-1819082534>
 
 在我的职业生涯中,作为一名母亲，我可以夸耀的完美胜利很少——也就是说，它们是:让我的女儿相信冰冻葡萄是完全可以接受的甜点，教她喜欢搅拌，以及连续三天训练她上厕所。最后一个是我最大的意外成功，因为我已经为漫长的厄运做好了充分的准备。
 

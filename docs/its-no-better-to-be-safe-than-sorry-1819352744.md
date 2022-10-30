@@ -1,6 +1,6 @@
 # 安全并不比后悔更好
 
-> 原文:[https://life hacker . com/its-no-better-to-be-safe-than-sorry-1819352744](https://lifehacker.com/its-no-better-to-be-safe-than-sorry-1819352744)
+> 原文：<https://lifehacker.com/its-no-better-to-be-safe-than-sorry-1819352744>
 
 一首你烂熟于心的欢快歌曲的缓慢、忧郁的翻唱有一种微妙的感觉(参见: [安东尼和约翰逊夫妇翻唱碧昂斯的《恋爱中的疯狂》](https://www.youtube.com/watch?v=lAqxRA7h0Ds) )。但是，当一个乐队给他们自己的一首歌以 *MTV 不插电*的待遇时，就像 a-ha 最近发布的他们 20 世纪 80 年代合成流行音乐经典作品《带上我》的原声版一样，这种感觉特别有感染力
 

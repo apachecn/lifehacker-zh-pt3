@@ -1,6 +1,6 @@
 # 使用 WhoSampled 应用程序查找无意中听到的音乐样本
 
-> 原文:[https://life hacker . com/look-up-overhead-music-samples-with-the-who sampled-app-1827397807](https://lifehacker.com/look-up-overheard-music-samples-with-the-whosampled-app-1827397807)
+> 原文：<https://lifehacker.com/look-up-overheard-music-samples-with-the-whosampled-app-1827397807>
 
 [WhoSampled](https://www.whosampled.com/) ，识别音乐样本的服务，最近 [更新了他们的 iOS/Android 应用](https://www.whosampled.com/apps/) 以包括 [Shazam](https://www.shazam.com/) 风格的音乐识别。现在，当你在酒吧或商店里听到一首歌时，你不仅可以查找这首歌，还可以查找它采样的其他音乐。
 

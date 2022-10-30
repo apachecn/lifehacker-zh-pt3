@@ -1,6 +1,6 @@
 # 以下是 2017 年 11 月网飞发生的事情
 
-> 原文:[https://life hacker . com/here-s-what-s-coming-and-go-from-网飞-in-11-1819767328](https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-november-1819767328)
+> 原文：<https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-november-1819767328>
 
 每个月， [网飞都会对其阵容](https://lifehacker.com/here-s-what-s-coming-and-going-from-netflix-in-october-1818589823) 进行调整，为其流媒体服务添加既熟悉又新颖的内容，今年 11 月也不例外。本月，网飞将一些深受喜爱的电影和节目以及一些网飞的原创作品放到了网上目录中。准备好告别一些电影杰作(取决于你问的是谁)，以及一些电影，坦率地说，只应该作为最后的手段播放。
 

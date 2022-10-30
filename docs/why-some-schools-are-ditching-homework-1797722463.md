@@ -1,6 +1,6 @@
 # 为什么有些学校放弃家庭作业
 
-> 原文:[https://life hacker . com/why-some-schools-are-ditching-job-1797722463](https://lifehacker.com/why-some-schools-are-ditching-homework-1797722463)
+> 原文：<https://lifehacker.com/why-some-schools-are-ditching-homework-1797722463>
 
 佛罗里达州的一名督学成为了孩子们的英雄，因为她最近宣布了一项新政策 :全年没有家庭作业。(你听到的那个声音是集体的”*是的！*)
 

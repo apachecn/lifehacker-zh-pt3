@@ -1,6 +1,6 @@
 # 现在你可以用借书证观看标准电影了
 
-> 原文:[https://life hacker . com/now-you-can-stream-criterion-films-with a-library-card-1797516428](https://lifehacker.com/now-you-can-stream-criterion-films-with-a-library-card-1797516428)
+> 原文：<https://lifehacker.com/now-you-can-stream-criterion-films-with-a-library-card-1797516428>
 
 你可以在当地的公共图书馆借到各种媒体，从 [有声读物](http://lifehacker.com/reminder-you-can-get-free-digital-audiobooks-from-your-1793088735) ，到专辑，到实体光盘上的电影。但一些图书馆，如洛杉矶公共图书馆，通过 [Kanopy](https://bklynlibrary.kanopystreaming.com/) 提供流媒体电影，这是一种专门提供独立电影、纪录片和经典电影的视频流媒体服务。现在，Kanopy 正在将其服务扩展到纽约公共图书馆的系统中。
 

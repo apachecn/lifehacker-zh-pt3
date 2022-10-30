@@ -1,6 +1,6 @@
 # 冷冻几勺饼干面团，突发奇想吃新鲜饼干
 
-> 原文:[https://life hacker . com/freeze-scoops-of-cookie-dough-and-have-fresh-cookie-on-1828998135](https://lifehacker.com/freeze-scoops-of-cookie-dough-and-have-fresh-cookies-on-1828998135)
+> 原文：<https://lifehacker.com/freeze-scoops-of-cookie-dough-and-have-fresh-cookies-on-1828998135>
 
 就人间美味而言，一种新鲜、柔软、边缘非常脆的曲奇和黏糊糊的巧克力片是很难与之竞争的。虽然在一个晚上做一打面包师的饼干并没有错，但是你可能是那种有“冲动控制”的人，希望一天只吃一两块饼干。在这种情况下，你能给自己的最好礼物是一袋预先分好份的冷冻饼干面团。
 

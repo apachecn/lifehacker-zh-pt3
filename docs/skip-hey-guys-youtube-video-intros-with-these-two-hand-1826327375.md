@@ -1,6 +1,6 @@
 # 跳过“嘿伙计们！”YouTube 视频介绍使用这两个便捷的热键
 
-> 原文:[https://life hacker . com/skip-hey-guys-YouTube-video-intross-with the-two-hand-1826327375](https://lifehacker.com/skip-hey-guys-youtube-video-intros-with-these-two-hand-1826327375)
+> 原文：<https://lifehacker.com/skip-hey-guys-youtube-video-intros-with-these-two-hand-1826327375>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-dyVkY3Cj0Ls&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-dyVkY3Cj0Ls&start=0) 
 

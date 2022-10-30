@@ -1,6 +1,6 @@
 # 请欣赏 Lifehacker 员工最喜欢的圣诞歌曲
 
-> 原文:[https://life hacker . com/please-enjoy-the-life hacker-staff-favorite-Christmas-s-1821511887](https://lifehacker.com/please-enjoy-the-lifehacker-staffs-favorite-christmas-s-1821511887)
+> 原文：<https://lifehacker.com/please-enjoy-the-lifehacker-staffs-favorite-christmas-s-1821511887>
 
 早上好，圣诞快乐。Lifehacker 的大多数员工今天都休息，但在我们分道扬镳之前，我们就我们最喜欢的圣诞歌曲进行了一次快速而激烈的松弛会议，以便更好地将它们汇编成一个节日，而不是混乱的 Spotify 播放列表。
 

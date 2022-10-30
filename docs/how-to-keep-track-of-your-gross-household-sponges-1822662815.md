@@ -1,6 +1,6 @@
 # 如何记录你的家用海绵总量
 
-> 原文:[https://life hacker . com/how-to-keep-track-of-your-gross-household-海绵-1822662815](https://lifehacker.com/how-to-keep-track-of-your-gross-household-sponges-1822662815)
+> 原文：<https://lifehacker.com/how-to-keep-track-of-your-gross-household-sponges-1822662815>
 
 海绵可能是你家里最恶心的东西了。我这么说是因为我经常拿着地铁杆回家，然后马上吃手抓食物(这有助于塑造性格！)，但还是海绵恶心到我了。从本质上来说，它是一个溃烂的细菌污水池，一个用来清洁脏东西的湿东西，你让它在户外溃烂，同时也吸走了空气中的所有细菌。脏海绵的气味是最糟糕的家居气味之一，它会萦绕在你的手指上，导致我每次接触海绵后都要洗手。这就像猫尿或黑霉——这是糟糕的家务管理的味道。
 

@@ -1,6 +1,6 @@
 # 如何从破坏环境的公司撤资
 
-> 原文:[https://life hacker . com/how-to-deposit-from-the-companies-killing-the-environment men-1829625706](https://lifehacker.com/how-to-divest-from-the-companies-killing-the-environmen-1829625706)
+> 原文：<https://lifehacker.com/how-to-divest-from-the-companies-killing-the-environmen-1829625706>
 
 根据联合国政府间气候变化专门委员会周一发表的一份报告 ，除非人类以一种“没有记录在案的历史先例”的方式改造经济，否则地球将在 [经历“恶化的食物短缺和野火，以及珊瑚礁的大量死亡”。由于政府对任何形式的气候变化倡议都持敌对态度，个人都在想他们能做些什么来帮助这个星球。](https://www.nytimes.com/2018/10/07/climate/ipcc-climate-report-2040.html)
 

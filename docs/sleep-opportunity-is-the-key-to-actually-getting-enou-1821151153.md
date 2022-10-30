@@ -1,6 +1,6 @@
 # “睡眠机会”是获得充足睡眠的关键
 
-> 原文:[https://life hacker . com/sleep-opportunity-is-the-key to-actual-get-enou-1821151153](https://lifehacker.com/sleep-opportunity-is-the-key-to-actually-getting-enou-1821151153)
+> 原文：<https://lifehacker.com/sleep-opportunity-is-the-key-to-actually-getting-enou-1821151153>
 
 你知道 [睡眠黑客](https://lifehacker.com/top-10-tricks-for-getting-better-sleep-5876083) 。你在下午停止摄入咖啡因，避免蓝光照射，也许在睡觉前洗个热水澡，伸个懒腰。然而，即使你在闹钟响之前的几个小时就上床睡觉了，还是不够。
 

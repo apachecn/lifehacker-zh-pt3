@@ -1,6 +1,6 @@
 # 为什么大家都在说 VPN？
 
-> 原文:[https://life hacker . com/why-is-everybody-talking-VPN-1793768312](https://lifehacker.com/why-is-everyone-talking-about-vpns-1793768312)
+> 原文：<https://lifehacker.com/why-is-everyone-talking-about-vpns-1793768312>
 
 昨天， [众议院批准了一项措施](https://lifehacker.com/senate-votes-to-let-internet-providers-sell-your-web-hi-1793574677) ，否决了即将到来的联邦通信委员会的一项裁决，该裁决要求互联网提供商在出售你的浏览数据时必须征得你的同意。现在，每个人都在试图找到一种方法来解决这个问题，虚拟专用网络(VPN)是最流行的方法。但是他们到底是什么？
 

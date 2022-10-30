@@ -1,6 +1,6 @@
 # 你对 NaNoWriMo 有什么计划？
 
-> 原文:[https://life hacker . com/whats-your-plan-for-nanowrimo-1820023495](https://lifehacker.com/whats-your-plan-for-nanowrimo-1820023495)
+> 原文：<https://lifehacker.com/whats-your-plan-for-nanowrimo-1820023495>
 
 [早上好，全国小说写作月](https://nanowrimo.org/) 参与者们！你今天早上做了你的 1667 个单词吗？你今年在写什么？
 

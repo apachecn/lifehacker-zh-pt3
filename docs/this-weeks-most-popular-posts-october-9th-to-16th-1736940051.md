@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 9 日至 16 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 9 日至 16 日 1736940051](https://lifehacker.com/this-weeks-most-popular-posts-october-9th-to-16th-1736940051)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-9th-to-16th-1736940051>
 
 本周，我们学习了如何在压力让你晚上睡不着的时候获得睡眠，为 iPhones 选择了最佳广告拦截器，调整了我们早上的日常工作，查看了 Google Now on Tap，等等。这里回顾一下。
 

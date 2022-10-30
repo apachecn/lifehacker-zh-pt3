@@ -1,6 +1,6 @@
 # 肝脏和洋葱的永恒乐趣
 
-> 原文:[https://the take out . com/recipe-classic-liver-and-onions-1828497549](https://thetakeout.com/recipe-classic-liver-and-onions-1828497549)
+> 原文：<https://thetakeout.com/recipe-classic-liver-and-onions-1828497549>
 
 *欢迎来到* [***老年美食周***](https://thetakeout.com/tag/old-folks-food-week) *，在这里我们复活并庆祝昔日的美味佳肴。*
 

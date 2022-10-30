@@ -1,6 +1,6 @@
 # 如何建立一个树莓派复古游戏机
 
-> 原文:[https://life hacker . com/how-to-turn-your-raspberry-pi-a-retro-game-console-498561192](https://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192)
+> 原文：<https://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192>
 
 [Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
 

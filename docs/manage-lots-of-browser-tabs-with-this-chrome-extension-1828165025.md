@@ -1,6 +1,6 @@
 # 用这个 Chrome 扩展管理大量的浏览器标签
 
-> 原文:[https://life hacker . com/manage-lots-of-browser-tabs-with-this-chrome-extension-1828165025](https://lifehacker.com/manage-lots-of-browser-tabs-with-this-chrome-extension-1828165025)
+> 原文：<https://lifehacker.com/manage-lots-of-browser-tabs-with-this-chrome-extension-1828165025>
 
 如果你在浏览器中完成所有的工作，你最终会在一个窗口中看到几十个标签。你可以为不同的项目打开新的窗口，把标签推来推去，或者像修道士一样训练自己停止打开标签。或者你可以像操作系统一样管理你的浏览器。Chrome 扩展 [Workona](https://workona.com/) 将你的标签组织到命名的窗口中，你可以很容易地在它们之间切换，并保存起来以备后用。这就像是 Chrome 书签和标签排序功能的高级版本。它把你从超负荷的账单中解救出来，而不会因此惩罚你。
 

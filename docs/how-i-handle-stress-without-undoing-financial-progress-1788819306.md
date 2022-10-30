@@ -1,6 +1,6 @@
 # 我如何在不破坏财务进展的情况下应对压力
 
-> 原文:[https://life hacker . com/how-I-handle-stress-without-undo-financial-progress-1788819306](https://lifehacker.com/how-i-handle-stress-without-undoing-financial-progress-1788819306)
+> 原文：<https://lifehacker.com/how-i-handle-stress-without-undoing-financial-progress-1788819306>
 
 在过去的一年里，我的妻子选择了获得硕士学位，不仅是为了提高她的专业技能，也是为了增加她的就业机会和收入。我很高兴她这样做，我完全支持她这样做。我们可以自己支付这个学位的费用，而不需要任何形式的财政援助，我们都非常有信心这个更高的学位在几年内就能收回成本。那么，有什么问题呢？
 

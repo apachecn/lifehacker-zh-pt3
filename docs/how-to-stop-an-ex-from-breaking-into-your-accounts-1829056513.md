@@ -1,6 +1,6 @@
 # 如何阻止前任闯入你的账户
 
-> 原文:[https://life hacker . com/how-to-stop-a-ex-from-breaking-to-your accounts-1829056513](https://lifehacker.com/how-to-stop-an-ex-from-breaking-into-your-accounts-1829056513)
+> 原文：<https://lifehacker.com/how-to-stop-an-ex-from-breaking-into-your-accounts-1829056513>
 
 在本周的 [技术支持专栏](https://lifehacker.com/c/tech-911) 中，我将讨论一个令人不安的问题:如何从不友好的前任手中夺回对你账户的控制权。我希望你以前的爱人不是一个彻头彻尾的精神病患者，或者，至少，不是一个有权进入你账户的精神病患者，但这是一个再熟悉不过的故事。你和某人住在一起，你分享你的希望和你的梦想，他们想办法进入你的账户。(或者，你共享登录凭证，这也是一个非常糟糕的主意。)
 

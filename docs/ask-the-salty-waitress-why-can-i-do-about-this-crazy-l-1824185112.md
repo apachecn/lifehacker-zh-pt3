@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我能对这个疯狂吵闹的餐馆做些什么？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-why-can-do-about-this-crazy-l-1824185112](https://thetakeout.com/ask-the-salty-waitress-why-can-i-do-about-this-crazy-l-1824185112)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-why-can-i-do-about-this-crazy-l-1824185112>
 
 * * *
 

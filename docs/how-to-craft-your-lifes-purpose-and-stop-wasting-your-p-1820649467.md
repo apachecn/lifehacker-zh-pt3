@@ -1,6 +1,6 @@
 # 如何规划你的人生目标，停止在地球上浪费你的宝贵时间
 
-> 原文:[https://life hacker . com/how-to-craft-your-life-purpose-p-1820649467](https://lifehacker.com/how-to-craft-your-lifes-purpose-and-stop-wasting-your-p-1820649467)
+> 原文：<https://lifehacker.com/how-to-craft-your-lifes-purpose-and-stop-wasting-your-p-1820649467>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

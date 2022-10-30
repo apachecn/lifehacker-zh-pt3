@@ -1,6 +1,6 @@
 # 长时间工作和早起不是成功的关键
 
-> 原文:[https://life hacker . com/long-hours-and-earn-the-key-to-success-1829506317](https://lifehacker.com/long-hours-and-early-mornings-arent-the-key-to-success-1829506317)
+> 原文：<https://lifehacker.com/long-hours-and-early-mornings-arent-the-key-to-success-1829506317>
 
 《经济学人》是亿万富翁崇拜的著名敌人，他说媒体(及其消费者)对成功商人 的工作习惯有一种不健康的痴迷，尤其是他们的长时间工作和清晨。社会主义者说:
 通过假装 5:30 起床是这些人变得富有和强大的原因，我们忽略了显而易见的事实

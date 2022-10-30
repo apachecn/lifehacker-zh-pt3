@@ -1,6 +1,6 @@
 # 问一个专家:当市场处于历史高点时，投资的意义何在
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-investing-when-the-market-is-a-1785896753](https://lifehacker.com/ask-an-expert-all-about-investing-when-the-market-is-a-1785896753)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-investing-when-the-market-is-a-1785896753>
 
 市场一直在飙升；标准普尔 500、道琼斯工业平均指数和纳斯达克指数在过去几个月里都创下了历史新高。这对你来说意味着什么？当市场处于历史高点时，你应该改变投资方式吗？
 

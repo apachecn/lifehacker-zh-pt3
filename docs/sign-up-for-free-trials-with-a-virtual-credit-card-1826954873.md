@@ -1,6 +1,6 @@
 # 用虚拟信用卡注册免费试用
 
-> 原文:[https://life hacker . com/sign-up-for-free-trials with a-virtual-credit-1826954873](https://lifehacker.com/sign-up-for-free-trials-with-a-virtual-credit-card-1826954873)
+> 原文：<https://lifehacker.com/sign-up-for-free-trials-with-a-virtual-credit-card-1826954873>
 
 如果你经常忘记设置日历提醒 在免费试用自动续费之前取消免费试用，考虑使用预付卡代替你的信用卡，正如这个 [Redditor 推荐的](https://old.reddit.com/r/lifehacks/comments/8njxrx/free_trial_that_needs_a_credit_card/) 。
 

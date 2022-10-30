@@ -1,6 +1,6 @@
 # 如何在你的音乐消失之前从亚马逊音乐存储中保存它们
 
-> 原文:[https://life hacker . com/how-to-save-your-tunes-from-Amazon-music-storage-before-1821536465](https://lifehacker.com/how-to-save-your-tunes-from-amazon-music-storage-before-1821536465)
+> 原文：<https://lifehacker.com/how-to-save-your-tunes-from-amazon-music-storage-before-1821536465>
 
 亚马逊 [停止其音乐存储服务](https://www.amazon.com/gp/help/customer/display.html?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-save-your-tunes-from-amazon-music-storage-before-1821536465&asc_source=&nodeId=201379330&tag=kinjalifehackerlink-20) ，该服务允许付费用户上传和收听多达 25 万首自己的歌曲。这项服务将于 2019 年 1 月永久关闭，但你应该在忘记最后期限和失去访问个人图书馆的权利之前，将你的音乐拿出来。
 

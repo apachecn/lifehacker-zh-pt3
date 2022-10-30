@@ -1,6 +1,6 @@
 # 为什么我不建议在亚马逊上购买情趣用品
 
-> 原文:[https://life hacker . com/why-I-don-recommend-buying-sex-toys-on-Amazon-1733804821](https://lifehacker.com/why-i-dont-recommend-buying-sex-toys-on-amazon-1733804821)
+> 原文：<https://lifehacker.com/why-i-dont-recommend-buying-sex-toys-on-amazon-1733804821>
 
 如果你曾经在市场上买过性玩具，你可能会考虑通过亚马逊购买。亚马逊在大多数东西上都有不错的价格，如果你有 Prime 的话，尤其诱人。然而，性玩具是一个不同的故事:事实上，大多数时候，最好完全避开亚马逊。原因如下。
 

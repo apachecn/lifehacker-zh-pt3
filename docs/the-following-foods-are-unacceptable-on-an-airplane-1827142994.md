@@ -1,6 +1,6 @@
 # 以下食物在飞机上是不能接受的
 
-> 原文:[https://the take out . com/the-following-foods-on-a-plane-1827142994](https://thetakeout.com/the-following-foods-are-unacceptable-on-an-airplane-1827142994)
+> 原文：<https://thetakeout.com/the-following-foods-are-unacceptable-on-an-airplane-1827142994>
 
 我最近一直在做相当多的空中旅行，这意味着我需要补充我的 Klonopin 处方。但读者们，你们更关心的是，我注意到有些人——咳咳，穿着 polo 衫、坐在 23A 座位上的晒黑的家伙——需要上一堂关于飞机餐礼仪的复习课。
 

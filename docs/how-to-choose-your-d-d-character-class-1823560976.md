@@ -1,6 +1,6 @@
 # 如何选择你的 D&D 人物类
 
-> 原文:[https://kotaku . com/how-to-choose-your-d-d-character-class-1823560976](https://kotaku.com/how-to-choose-your-d-d-character-class-1823560976)
+> 原文：<https://kotaku.com/how-to-choose-your-d-d-character-class-1823560976>
 
 “应该玩什么*龙与地下城*类？”是那种你可以用一个粗略的测验来回答的问题，但那将是一个错误。你欠你自己——也欠你的 *D & D* 地下城主——整体考虑一下角色职业，这可能是你在 *D & D* 游戏中做出的最重要的选择。选择正确的职业意味着你喜欢的角色和你迫不及待想埋在石头堆里的角色之间的差别。为了享受玩 *D & D* 的最佳时光，我们制作了一份指南，帮助您选择适合您的职业。
 

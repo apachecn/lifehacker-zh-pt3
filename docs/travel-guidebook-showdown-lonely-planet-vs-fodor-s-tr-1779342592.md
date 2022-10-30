@@ -1,6 +1,6 @@
 # 旅游指南摊牌:孤独星球 vs .福多的旅行
 
-> 原文:[https://life hacker . com/travel-guide book-摊牌-lonely-planet-vs-fodor-s-tr-1779342592](https://lifehacker.com/travel-guidebook-showdown-lonely-planet-vs-fodor-s-tr-1779342592)
+> 原文：<https://lifehacker.com/travel-guidebook-showdown-lonely-planet-vs-fodor-s-tr-1779342592>
 
 智能手机、Wi-Fi 和 GPS [让旅行变得更加容易](https://lifehacker.com/five-best-travel-planning-apps-1470002139) ，但是当环游世界时，一本实体旅行指南总是一项明智的投资。《孤独星球》和《福多》都已经存在了几十年，但现在是时候决定哪本指南值得你在旅行包里放上那块令人垂涎的地方了。
 

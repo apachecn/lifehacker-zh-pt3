@@ -1,6 +1,6 @@
 # 3D 打印入门的最佳免费资源
 
-> 原文:[https://life hacker . com/the-best-free-resources-for-started-with-3d-pri-1774721138](https://lifehacker.com/the-best-free-resources-for-getting-started-with-3d-pri-1774721138)
+> 原文：<https://lifehacker.com/the-best-free-resources-for-getting-started-with-3d-pri-1774721138>
 
 尽管许多人了解 3D 打印的概念，但很少有人对 3D 设计和打印过程足够了解，以至于能够亲自尝试，并从零开始朝着创建物理对象的方向迈进——无论是个人设计还是设备的替代部件。但是在深入研究之前，有很多免费的资源可供尝试。
 

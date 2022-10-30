@@ -1,6 +1,6 @@
 # 收到别人的邮件怎么办？
 
-> 原文:[https://life hacker . com/what-do-I-do-when-I-receive-someone-elses-email-1822028879](https://lifehacker.com/what-do-i-do-when-i-receive-someone-elses-email-1822028879)
+> 原文：<https://lifehacker.com/what-do-i-do-when-i-receive-someone-elses-email-1822028879>
 
 如果你有一个流行的名字组合，或者只是在工作中收到很多邮件，你肯定会收到一封不是给你的邮件。当然，你可以忽略它，但是有更好的方法来处理它。
 

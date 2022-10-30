@@ -1,6 +1,6 @@
 # 简单的显示器桌面
 
-> 原文:[https://life hacker . com/the-simple-monitor-desktop-1772553065](https://lifehacker.com/the-simple-monitor-desktop-1772553065)
+> 原文：<https://lifehacker.com/the-simple-monitor-desktop-1772553065>
 
 Flickr 用户 [d.chasenelson](https://www.flickr.com/photos/77432423@N06/) 的桌面很简单，只有几个小部件，还有一个简单的渐变壁纸，一点也不会让人分心。当您在第一个屏幕中工作时，它是第二个屏幕的理想选择，或者只是作为一个快速的监控视图，您可以最小化其他要检查的内容。下面是如何设置它。
 

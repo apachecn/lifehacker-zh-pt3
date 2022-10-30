@@ -1,6 +1,6 @@
 # 如何应对自恋的老板
 
-> 原文:[https://life hacker . com/how-to-deal-a-自恋型老板-1795798088](https://lifehacker.com/how-to-deal-with-a-narcissistic-boss-1795798088)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-narcissistic-boss-1795798088>
 
 当川普总统上周四退出巴黎协定时，他将他的决定作为一场电视直播活动，并在玫瑰园举行了爵士乐队表演。他的演讲 [充斥着谎言和夸张](https://gizmodo.com/the-paris-agreement-is-not-an-anti-american-conspiracy-1795740550) ，感觉(就像很多特朗普的演讲一样)像是向被俘虏的观众发表的竞选演讲。
 

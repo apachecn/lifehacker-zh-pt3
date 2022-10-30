@@ -1,6 +1,6 @@
 # 如何使用 Instagram 的新问题功能
 
-> 原文:[https://life hacker . com/how-to-use-instagrams-new-questions-feature-1827512704](https://lifehacker.com/how-to-use-instagrams-new-questions-feature-1827512704)
+> 原文：<https://lifehacker.com/how-to-use-instagrams-new-questions-feature-1827512704>
 
 通过使用 Instagram 故事中的消息功能，人们总是能够联系到他们关注的 Instagram 用户，并收到对他们评论的回复。由于 Instagram 推出了一个新的问题贴纸 ，你现在有了一个更正式(也更有趣)的方式来采访你的追随者、粉丝和朋友。
 

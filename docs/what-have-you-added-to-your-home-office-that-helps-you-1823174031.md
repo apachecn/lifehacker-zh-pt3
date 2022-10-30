@@ -1,6 +1,6 @@
 # 你的家庭办公室增加了哪些有助于工作的东西？
 
-> 原文:[https://life hacker . com/what-had-you-added-to-you-home-office-help-you-1823174031](https://lifehacker.com/what-have-you-added-to-your-home-office-that-helps-you-1823174031)
+> 原文：<https://lifehacker.com/what-have-you-added-to-your-home-office-that-helps-you-1823174031>
 
 恭喜——你获得了在家工作的机会！你可以成为自己办公室的设计师，在这里你可以定制每一个细节，以符合你的审美、工作流程和人体工程学的需求。那很牛逼，但也压力很大。你周围的 [会影响你的工作效率](https://lifehacker.com/five-ways-to-optimize-your-workspace-for-productivity-1784310012) ，所以在你用亚当·桑德勒电影海报装饰你的墙壁，买一个装满奶酪酱的小冰箱之前，最好想清楚。
 

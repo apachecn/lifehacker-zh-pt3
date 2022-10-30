@@ -1,6 +1,6 @@
 # 青少年和老师说堡垒之夜手机正在摧毁一些学校
 
-> 原文:[https://kotaku . com/teens-and-teachers-say-fort nite-mobile-is-destroying-so-1823997450](https://kotaku.com/teens-and-teachers-say-fortnite-mobile-is-destroying-so-1823997450)
+> 原文：<https://kotaku.com/teens-and-teachers-say-fortnite-mobile-is-destroying-so-1823997450>
 
 几个月来，各地的老师 [都听到学生们不停地谈论*【堡垒之夜】、*](https://kotaku.com/teachers-narc-on-students-sneaking-games-into-class-1822629697) 世界最新的痴迷、。虽然这款游戏的流行并不是什么新鲜事，但它在 iOS 上的发布显然只是让事情变得更加激烈。毕竟，堡垒之夜现在是一个巨大的分散注意力的地方，你可以把它带到任何地方。
 

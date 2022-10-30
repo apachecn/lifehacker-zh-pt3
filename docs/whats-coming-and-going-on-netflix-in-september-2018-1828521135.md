@@ -1,6 +1,6 @@
 # 2018 年 9 月网飞有什么来往
 
-> 原文:[https://life hacker . com/whats-coming-and-going-on-2018-9-1828521135](https://lifehacker.com/whats-coming-and-going-on-netflix-in-september-2018-1828521135)
+> 原文：<https://lifehacker.com/whats-coming-and-going-on-netflix-in-september-2018-1828521135>
 
 对网飞来说，这是一个非常好的月份。见鬼，我们甚至不知道美国破坏者回来了，但是那些纪录片发现了另一个案例！根据网飞的说法，这是一个“华盛顿高中令人反胃的神秘事件”！这是世纪假真罪！这个月我们会看到很多有前途的新网飞秀，还有一些经典电影。首先是集锦，然后是主列表:
 

@@ -1,6 +1,6 @@
 # 我需要一辆 30，000 美元的家用车，而且必须是旅行车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-family car-for-30，000 and it-must-be-a-wagon-1829192079](https://jalopnik.com/i-need-a-family-car-for-30-000-and-it-must-be-a-wagon-1829192079)
+> 原文：<https://jalopnik.com/i-need-a-family-car-for-30-000-and-it-must-be-a-wagon-1829192079>
 
 亚伦刚刚搬到洛杉矶，即将有一个孩子。他需要一辆更大的车，但它绝对不能是跨界车，它必须是我们都喜欢的车身风格:旅行车。他应该买什么车？
 

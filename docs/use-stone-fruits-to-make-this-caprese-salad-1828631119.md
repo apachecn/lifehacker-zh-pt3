@@ -1,6 +1,6 @@
 # 用桃子和李子做这道卡布里塞沙拉
 
-> 原文:[https://life hacker . com/use-stone-fruits-to-make-this-capres-salad-1828631119](https://lifehacker.com/use-stone-fruits-to-make-this-caprese-salad-1828631119)
+> 原文：<https://lifehacker.com/use-stone-fruits-to-make-this-caprese-salad-1828631119>
 
 经典的番茄沙拉毫无瑕疵，但奶油奶酪、充满活力的罗勒和少量的油和醋与许多其他水果，尤其是核果类水果相处融洽。
 

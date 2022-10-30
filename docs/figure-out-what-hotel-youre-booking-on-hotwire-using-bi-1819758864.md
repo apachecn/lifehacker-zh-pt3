@@ -1,6 +1,6 @@
 # 用 BidGoggles 找出你在 Hotwire 上预订的酒店
 
-> 原文:[https://life hacker . com/figure-out-what-hot wire-you-booking-using-bi-1819758864](https://lifehacker.com/figure-out-what-hotel-youre-booking-on-hotwire-using-bi-1819758864)
+> 原文：<https://lifehacker.com/figure-out-what-hotel-youre-booking-on-hotwire-using-bi-1819758864>
 
 当你在寻找一家酒店时，Hotwire 是一个不错的起点。只有一个问题:除非你已经付了钱，否则你不知道你到底在订哪家酒店。
 

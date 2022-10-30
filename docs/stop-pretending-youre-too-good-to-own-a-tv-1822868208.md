@@ -1,6 +1,6 @@
 # 不要再假装你太优秀而不能拥有一台电视
 
-> 原文:[https://life hacker . com/stop-consensing-you-too-good-to-own-a-TV-1822868208](https://lifehacker.com/stop-pretending-youre-too-good-to-own-a-tv-1822868208)
+> 原文：<https://lifehacker.com/stop-pretending-youre-too-good-to-own-a-tv-1822868208>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑们正在学习纸质食谱的乐趣，更频繁地捐赠，并与旧的 401(k)s
 打交道

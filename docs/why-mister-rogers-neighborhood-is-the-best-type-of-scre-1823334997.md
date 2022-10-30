@@ -1,6 +1,6 @@
 # 为什么“罗杰斯先生的邻居”是最好的屏幕时间类型
 
-> 原文:[https://life hacker . com/why-mister-Rogers-neighborhood-is-the-best-type-of-scre-1823334997](https://lifehacker.com/why-mister-rogers-neighborhood-is-the-best-type-of-scre-1823334997)
+> 原文：<https://lifehacker.com/why-mister-rogers-neighborhood-is-the-best-type-of-scre-1823334997>
 
 这个周末，我看了《罗杰斯先生的邻居》。(我活着就是为了聚会，我知道。)深受喜爱的儿童节目主演弗雷德·罗杰斯和他妈妈做的许多拉链毛衣( [)！](https://www.rewire.org/pbs/sweaters-sneakers-rogers-neighborhood/) )这个月就满 50 岁了，所以我觉得是时候把我五岁的女儿介绍给这个男人了，他的 [话语仍然能引起共鸣](http://www.slate.com/blogs/browbeat/2013/04/16/look_for_the_helpers_mister_rogers_quote_a_brief_history.html) ，也许现在比以往任何时候都更能引起共鸣。
 

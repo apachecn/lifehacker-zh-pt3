@@ -1,6 +1,6 @@
 # 宿醉助手:营养学家的建议，帮助解决超级碗后的早晨
 
-> 原文:[https://the take out . com/hangover-helper-a-营养师-帮助解决问题的建议 1822705525](https://thetakeout.com/hangover-helper-a-dieticians-advice-to-help-tackle-the-1822705525)
+> 原文：<https://thetakeout.com/hangover-helper-a-dieticians-advice-to-help-tackle-the-1822705525>
 
 ***宿醉助手**是*外卖的*特色节目，讲述如何度过酗酒流感。*
 

@@ -1,6 +1,6 @@
 # 创建一个家庭宠物合同，这样你就不会被所有的脏活累活缠住了
 
-> 原文:[https://life hacker . com/create-a-family-pet-contract-so-you-not-sticked-al-1797966623](https://lifehacker.com/create-a-family-pet-contract-so-youre-not-stuck-with-al-1797966623)
+> 原文：<https://lifehacker.com/create-a-family-pet-contract-so-youre-not-stuck-with-al-1797966623>
 
 我家收养宠物的过程是...出乎意料。一个星期六，当我六岁的儿子和他的表弟以及他最好的学龄前朋友在我们的后院玩耍时，一只黑猫来了。对他们来说，这只猫比我带来的滑水道和冰棍更令人兴奋。他们尖叫着，抚摸着他，围着他转。很快，这只猫开始更频繁地过来，陪我的儿子和他的祖母去学校，并在我们的院子门口附近徘徊。我丈夫开始拿出食物和水。我儿子给这只猫取名为萨米。每个人都开始称萨米为我们的猫。
 

@@ -1,6 +1,6 @@
 # 如何选择合适的网络交换机
 
-> 原文:[https://life hacker . com/how-to-pick-the-right-network-switch-1828694436](https://lifehacker.com/how-to-pick-the-right-network-switch-1828694436)
+> 原文：<https://lifehacker.com/how-to-pick-the-right-network-switch-1828694436>
 
 [Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
 

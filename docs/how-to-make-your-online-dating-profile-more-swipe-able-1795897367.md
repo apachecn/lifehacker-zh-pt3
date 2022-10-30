@@ -1,6 +1,6 @@
 # 如何让你的网上约会档案更容易刷
 
-> 原文:[https://life hacker . com/how-to-make-your-online-dating-profile-more-swipe-able-1795897367](https://lifehacker.com/how-to-make-your-online-dating-profile-more-swipe-able-1795897367)
+> 原文：<https://lifehacker.com/how-to-make-your-online-dating-profile-more-swipe-able-1795897367>
 
 网上约会，因为没有更好的说法，令人筋疲力尽。如果我说我喜欢使用 Tinder、Bumble 之类的东西，那我是在撒谎，但在当今这个时代，没有它们的约会几乎是闻所未闻的。我听到一些人将他们的约会应用程序体验描述为“像视频游戏一样”，这有点令人沮丧，考虑到屏幕上有真实的人与视频相连。
 

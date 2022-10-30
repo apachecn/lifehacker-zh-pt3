@@ -1,6 +1,6 @@
 # 如何在 Windows 中轻松转换 iPhone 的 HEIC 图像
 
-> 原文:[https://life hacker . com/how-to-easy-convert-your-iphone-heic-images-in-windo-1826327599](https://lifehacker.com/how-to-easily-convert-your-iphones-heic-images-in-windo-1826327599)
+> 原文：<https://lifehacker.com/how-to-easily-convert-your-iphones-heic-images-in-windo-1826327599>
 
 Windows:问题来了:HEIF 图像格式，苹果现在在 iOS 11 中以 [HEIC 文件](https://www.phonearena.com/news/Apple-and-iOS-11-could-revolutionize-smartphone-photography-with-next-generation-image-file-format_id98159) 的形式使用，是 JPEG 的一个很好的替代品。HEIC 图像占用更少的空间，并支持大量的额外功能，如深度图和 16 位颜色。太好了。太棒了。
 

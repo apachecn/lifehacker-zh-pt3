@@ -1,6 +1,6 @@
 # 为什么夏季会有这么多航班延误
 
-> 原文:[https://life hacker . com/why-有这么多航班在夏季延误-1796465726](https://lifehacker.com/why-there-are-so-many-flight-delays-in-the-summertime-1796465726)
+> 原文：<https://lifehacker.com/why-there-are-so-many-flight-delays-in-the-summertime-1796465726>
 
 阳光明媚，天空万里无云，夏季天气的其他方面看起来都很完美。那怎么会有这么多航班延误呢？
 

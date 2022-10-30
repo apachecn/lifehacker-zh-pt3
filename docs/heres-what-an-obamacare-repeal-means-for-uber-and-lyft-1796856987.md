@@ -1,6 +1,6 @@
 # 以下是奥巴马医改对优步和 Lyft 司机的意义
 
-> 原文:[https://jalopnik . com/heres-what-an-Obama care-abuse-means-for-Uber-and-lyft-1796856987](https://jalopnik.com/heres-what-an-obamacare-repeal-means-for-uber-and-lyft-1796856987)
+> 原文：<https://jalopnik.com/heres-what-an-obamacare-repeal-means-for-uber-and-lyft-1796856987>
 
 唐·克里里一上线就在患者保护与平价医疗法案注册了医疗保健。克里里在西雅图全职为优步开车，每周工作 50 到 55 个小时，挣 700 美元。由于私人医疗保险的保险费高达 900 美元，他说奥巴马医改的废除将使他失去保险。
 

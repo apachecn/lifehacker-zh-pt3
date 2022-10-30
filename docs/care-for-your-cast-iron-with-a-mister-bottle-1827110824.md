@@ -1,6 +1,6 @@
 # 用一瓶先生酒呵护你的铸铁
 
-> 原文:[https://life hacker . com/care-for-your-cast-iron-with-mister-bottle-1827110824](https://lifehacker.com/care-for-your-cast-iron-with-a-mister-bottle-1827110824)
+> 原文：<https://lifehacker.com/care-for-your-cast-iron-with-a-mister-bottle-1827110824>
 
 清洁后在铸铁上涂一层薄薄的油是保持其美观和功能的重要步骤。直接从瓶子里倒没有错，但是你可能倒得太多，如果你没有完全擦掉多余的，最后会留下粘性的残渣。
 

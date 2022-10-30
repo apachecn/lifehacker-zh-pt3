@@ -1,6 +1,6 @@
 # 让你的朋友放弃电影票，辛尼米亚会给你 10 美元
 
-> 原文:[https://life hacker . com/sinemia-will-give-you-10-if-you-说服你的朋友-1828374954](https://lifehacker.com/sinemia-will-give-you-10-if-you-convince-your-friends-1828374954)
+> 原文：<https://lifehacker.com/sinemia-will-give-you-10-if-you-convince-your-friends-1828374954>
 
 随着 MoviePass 继续挣扎，从今天开始，现有的 Sinemia 客户可以获得一点激励，说服他们的朋友跳槽并加入 Sinemia。该公司的一个新项目为用户提供了 10 美元的积分，每说服一个朋友取消他们的 MoviePass 订阅(或其他电影订阅服务，它们都算在内)，转而订阅 Sinemia。
 

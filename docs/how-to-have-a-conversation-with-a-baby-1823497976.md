@@ -1,6 +1,6 @@
 # 如何与婴儿进行“对话”
 
-> 原文:[https://life hacker . com/how-to-have-a-talk-a-baby-1823497976](https://lifehacker.com/how-to-have-a-conversation-with-a-baby-1823497976)
+> 原文：<https://lifehacker.com/how-to-have-a-conversation-with-a-baby-1823497976>
 
 新父母经常听到这样的建议:你需要和你的宝宝谈谈！一个*批次*！《T2 超级宝宝》一书宣称，每天 30，000 个单词是最佳语言成功的神奇数字。一项 [里程碑式的研究](https://www.aft.org/sites/default/files/periodicals/TheEarlyCatastrophe.pdf) 发现，在三岁前听到 4500 万单词的孩子后来在阅读和数学方面得分最高。甚至还有一个 [可穿戴单词计数器](https://getstarling.versame.com/starling/) ，你可以夹在婴儿的连体衣上，通过应用程序查看你是否达到了每天的单词目标。基本上，一个口头 Fitbit。
 

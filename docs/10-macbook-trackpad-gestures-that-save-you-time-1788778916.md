@@ -1,6 +1,6 @@
 # 节省您时间的 10 种 MacBook 触控板手势
 
-> 原文:[https://life hacker . com/10-macbook-trackpad-gestures-that-save-you-time-1788778916](https://lifehacker.com/10-macbook-trackpad-gestures-that-save-you-time-1788778916)
+> 原文：<https://lifehacker.com/10-macbook-trackpad-gestures-that-save-you-time-1788778916>
 
 如果你有一台 MacBook，你可能很清楚如何在触控板上滚动和右键单击，但你可能不知道如何调用快速查看、通知中心或 Exposè。无论你是 macOS 的新手，还是你根本不想学它们，这些手势都可以让你的生活变得简单一点。
 

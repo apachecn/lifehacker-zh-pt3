@@ -1,6 +1,6 @@
 # 如何给你的 Instagram 故事添加音乐
 
-> 原文:[https://life hacker . com/how-to-add-music-to-your-insta gram-stories-1827261046](https://lifehacker.com/how-to-add-music-to-your-instagram-stories-1827261046)
+> 原文：<https://lifehacker.com/how-to-add-music-to-your-instagram-stories-1827261046>
 
 本周，Instagram 让在你的 Instagram 故事中添加音乐变得更加容易。
 

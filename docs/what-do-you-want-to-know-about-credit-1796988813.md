@@ -1,6 +1,6 @@
 # 关于信用，你想了解什么？
 
-> 原文:[https://life hacker . com/what-do-you-want-to-know-on-credit-1796988813](https://lifehacker.com/what-do-you-want-to-know-about-credit-1796988813)
+> 原文：<https://lifehacker.com/what-do-you-want-to-know-about-credit-1796988813>
 
 不管你喜不喜欢，信用很重要。这不仅仅是申请汽车贷款或者买房子。你的房东检查你的信用。当你申请工作时，你的雇主也可以检查你的信用。账单提供商甚至被允许向信用不良的你收取额外费用。整个系统很混乱，所以告诉我们:你想了解它的什么？
 

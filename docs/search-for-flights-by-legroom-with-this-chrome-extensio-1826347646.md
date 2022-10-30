@@ -1,6 +1,6 @@
 # 使用此 Chrome 扩展按伸腿空间搜索航班
 
-> 原文:[https://life hacker . com/search-for-flights-by-legroom-with this-chrome-extensio-1826347646](https://lifehacker.com/search-for-flights-by-legroom-with-this-chrome-extensio-1826347646)
+> 原文：<https://lifehacker.com/search-for-flights-by-legroom-with-this-chrome-extensio-1826347646>
 
 上周，在我从伦敦飞往旧金山的 11 个小时的飞机上，我坐在一对身高都超过 6 英尺的父子旁边。身高 5 英尺 6 英寸的我的膝盖轻轻拍打着面前的椅背。他们没有机会。
 

@@ -1,6 +1,6 @@
 # 如何抛弃受害者心态，变得更有力量
 
-> 原文:[https://life hacker . com/how-you-can-diction-the-victim-mental-and-be-empow-1738077671](https://lifehacker.com/how-you-can-ditch-the-victim-mentality-and-become-empow-1738077671)
+> 原文：<https://lifehacker.com/how-you-can-ditch-the-victim-mentality-and-become-empow-1738077671>
 
 我们几乎没有一天不抱怨、批评、责备、八卦或与他人比较。我确实为此而挣扎。但有时扮演受害者只会限制我们的实际能力。
 

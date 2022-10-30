@@ -1,6 +1,6 @@
 # 如何开始使用谷歌的新播客应用程序
 
-> 原文:[https://life hacker . com/how-to-get-started-in-Google-new-podcast-app-1826967752](https://lifehacker.com/how-to-get-started-in-googles-new-podcasts-app-1826967752)
+> 原文：<https://lifehacker.com/how-to-get-started-in-googles-new-podcasts-app-1826967752>
 
 Android: 有很多人不需要花里胡哨的东西，只要一个易于理解、设计良好的应用程序就可以了。这是我对谷歌新的播客应用的印象——戏弄了一段时间，终于在昨天提供下载。
 

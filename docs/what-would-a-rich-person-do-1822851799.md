@@ -1,6 +1,6 @@
 # 一个有钱人会怎么做？
 
-> 原文:[https://life hacker . com/what-would-a-rich-person-do-1822851799](https://lifehacker.com/what-would-a-rich-person-do-1822851799)
+> 原文：<https://lifehacker.com/what-would-a-rich-person-do-1822851799>
 
 我的朋友曾经为一个非常忙碌和成功的人做助理，他正在国外旅行。接近他的旅行日期时，他意识到他的护照过期了，并要求她办理更新。经过大量的研究，她报告说:他将不得不花一天时间在政府办公室等待更新。这就是规则。他对着她叹了口气，问道:“一个有钱人会怎么做？”
 

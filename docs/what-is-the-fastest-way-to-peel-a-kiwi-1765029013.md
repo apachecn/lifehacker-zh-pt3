@@ -1,6 +1,6 @@
 # 剥猕猴桃最快的方法是什么？
 
-> 原文:[https://life hacker . com/什么是剥猕猴桃最快的方法-1765029013](https://lifehacker.com/what-is-the-fastest-way-to-peel-a-kiwi-1765029013)
+> 原文：<https://lifehacker.com/what-is-the-fastest-way-to-peel-a-kiwi-1765029013>
 
 我们总是在厨房寻找捷径，以便在准备食物时节省一点时间，今天我们将进行一场友好的比赛，测试一些节省时间的厨房技巧。
 

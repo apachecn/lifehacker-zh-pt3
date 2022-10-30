@@ -1,6 +1,6 @@
 # 你可能不知道的学生健康中心的额外津贴
 
-> 原文:[https://life hacker . com/the-perks-of-student-health-centers-you-may-not-know a b-1785597210](https://lifehacker.com/the-perks-of-student-health-centers-you-may-not-know-ab-1785597210)
+> 原文：<https://lifehacker.com/the-perks-of-student-health-centers-you-may-not-know-ab-1785597210>
 
 根据你上大学的地点，你很有可能每学期都为学生健康服务支付一大笔钱。这些服务和校内诊所不仅仅包括护士或医生的快速就诊。你通常会得到很多你想要利用的其他好处。
 

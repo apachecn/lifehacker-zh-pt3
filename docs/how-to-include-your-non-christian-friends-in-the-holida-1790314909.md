@@ -1,6 +1,6 @@
 # 如何让你的非基督徒朋友也加入节日，而不成为一个无知的混蛋
 
-> 原文:[https://life hacker . com/how-to-include-your non-Christian-friends-in-the-holida-1790314909](https://lifehacker.com/how-to-include-your-non-christian-friends-in-the-holida-1790314909)
+> 原文：<https://lifehacker.com/how-to-include-your-non-christian-friends-in-the-holida-1790314909>
 
 圣诞节到了，它的传统变得既世俗又宗教。然而，如果你有非基督教信仰的朋友，让他们参与寒假的欢乐和精神可能会很棘手。以下是如何在不践踏他人信仰的情况下表达善意。
 

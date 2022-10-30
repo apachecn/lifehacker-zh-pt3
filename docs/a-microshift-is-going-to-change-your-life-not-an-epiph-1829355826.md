@@ -1,6 +1,6 @@
 # “微转变”将会改变你的生活，而不是顿悟
 
-> 原文:[https://life hacker . com/a-microshift-is-go-to-change-your-life-not-an-epiph-1829355826](https://lifehacker.com/a-microshift-is-going-to-change-your-life-not-an-epiph-1829355826)
+> 原文：<https://lifehacker.com/a-microshift-is-going-to-change-your-life-not-an-epiph-1829355826>
 
 有多少人为新的一年设定了目标，准备好早上 5 点起床去健身房，或者彻底戒酒，或者每个周末花两个小时学习演奏一种新乐器？这些人中有多少人失败了？
 

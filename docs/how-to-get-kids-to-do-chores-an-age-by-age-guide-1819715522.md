@@ -1,6 +1,6 @@
 # 如何让孩子做家务:年龄指南
 
-> 原文:[https://life hacker . com/how-to-get-kids-to-doing-does-a-age-by-age-guide-1819715522](https://lifehacker.com/how-to-get-kids-to-do-chores-an-age-by-age-guide-1819715522)
+> 原文：<https://lifehacker.com/how-to-get-kids-to-do-chores-an-age-by-age-guide-1819715522>
 
 当我读到马里兰大学(T2)的一项研究的统计数据时，6 岁到 12 岁的孩子每天只花 24 分钟做家务，比 1981 年下降了 25%，我的第一个想法是，“这些孩子哪来的 24 分钟？”!"
 

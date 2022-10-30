@@ -1,6 +1,6 @@
 # 你离创造完美的巴西莓碗只有 4 步之遥
 
-> 原文:[https://life hacker . com/you-only-4 steps-away-creating-the-perfect-acai-1796110197](https://lifehacker.com/youre-only-4-steps-away-from-creating-the-perfect-acai-1796110197)
+> 原文：<https://lifehacker.com/youre-only-4-steps-away-from-creating-the-perfect-acai-1796110197>
 
 我不太喜欢过于不可分的食物——我倾向于更喜欢激进的米黄色食物——但即使是我也不得不承认，那些彩色的巴西莓冰沙碗有一些非常诱人的东西，它们似乎很受清洁饮食群体的欢迎。
 

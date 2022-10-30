@@ -1,6 +1,6 @@
 # 在你的淋浴间做一个带充气泳池的婴儿浴盆
 
-> 原文:[https://life hacker . com/make-a-baby-tub-in-your-shower-with a-inflated-pool-1829478012](https://lifehacker.com/make-a-baby-tub-in-your-shower-with-an-inflatable-pool-1829478012)
+> 原文：<https://lifehacker.com/make-a-baby-tub-in-your-shower-with-an-inflatable-pool-1829478012>
 
 浴室是婴儿的慰藉之地，在这里他们可以制作泡泡浴胡子，用泡沫字母写下神秘的信息。如果你住的地方没有浴缸，他们仍然可以体验这种魔力——你只需要发挥创意。查看 [这位妈妈的解决方案](https://www.instagram.com/p/Bk0XPWcFlns/?taken-by=fjordlilie) 。她只是在淋浴间里放了一个小充气池。她在 Instagram 上写道:“最棒的是，小家伙们可以随心所欲地泼水，地板保持干燥。”我喜欢你能在关注他们的同时控制住他们。
 

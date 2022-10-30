@@ -1,6 +1,6 @@
 # 对于明天的妇女罢工，以下是你需要知道的
 
-> 原文:[https://Jezebel . com/heres-what-you-need-to-know-for-tomorrow-women-strike-1793042140](https://jezebel.com/heres-what-you-need-to-know-for-tomorrows-womens-strike-1793042140)
+> 原文：<https://jezebel.com/heres-what-you-need-to-know-for-tomorrows-womens-strike-1793042140>
 
 周三是国际妇女节，历史上成功的妇女游行背后的组织者将试图利用这种能量进行总罢工，称为“ [【没有女人的一天】](https://www.womensmarch.com/womensday/) ”根据组织者的说法，目标是承认“各种背景的妇女为我们的社会经济体系增加的巨大价值——同时获得更低的工资，经历更大的不平等，容易受到歧视，性骚扰和工作不安全。”
 

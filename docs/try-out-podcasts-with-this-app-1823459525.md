@@ -1,6 +1,6 @@
 # 使用此应用程序尝试播客
 
-> 原文:[https://life hacker . com/try-out-podcast-with this-app-1823459525](https://lifehacker.com/try-out-podcasts-with-this-app-1823459525)
+> 原文：<https://lifehacker.com/try-out-podcasts-with-this-app-1823459525>
 
 iOS:并不是每个人都像 Lifehacker 的书呆子一样有一个最喜欢的播客列表。如果你是播客的新手，现有的管理播客的应用程序可能会感到不必要的复杂——特别是如果你想要的只是你朋友提到的那个节目的最新一集。如果你不想担心存储缓存和播放列表生成之类的事情，可以看看[‘sodes](http://jaredsinclair.com/sodes/)，这是一个易于使用的播客应用程序。
 

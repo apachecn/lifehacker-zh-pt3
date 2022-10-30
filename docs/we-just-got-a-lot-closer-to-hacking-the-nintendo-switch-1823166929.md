@@ -1,6 +1,6 @@
 # 我们离把任天堂 Switch 黑进一台能用的平板电脑又近了一步
 
-> 原文:[https://life hacker . com/we-just-get-a-lot-closed-hacker-the-Nintendo-switch-1823166929](https://lifehacker.com/we-just-got-a-lot-closer-to-hacking-the-nintendo-switch-1823166929)
+> 原文：<https://lifehacker.com/we-just-got-a-lot-closer-to-hacking-the-nintendo-switch-1823166929>
 
 [【任天堂 Switch】](https://lifehacker.com/if-you-hate-joy-cons-use-an-old-gamecube-controller-on-1819836689)是一款很棒的游戏设备，但(除了流媒体 [Hulu](https://gizmodo.com/its-about-time-the-nintendo-switch-got-a-real-streaming-1820292731) )它没什么别的功能。谢天谢地，如果你愿意黑掉你 300 美元的平板电脑，这种情况可能不会持续太久。
 

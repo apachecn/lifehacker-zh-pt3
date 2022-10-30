@@ -1,6 +1,6 @@
 # 你的 Instagram 帖子可能会提供抑郁的警告信号
 
-> 原文:[https://life hacker . com/your-insta gram-posts-may-offer-warning-signs-of-depresse-1797821497](https://lifehacker.com/your-instagram-posts-may-offer-warning-signs-of-depress-1797821497)
+> 原文：<https://lifehacker.com/your-instagram-posts-may-offer-warning-signs-of-depress-1797821497>
 
 从上瘾到焦虑到欺凌，技术和社交媒体因其对心理健康的负面影响 而不时受到恶评，但这些工具也可以用来帮助那些需要帮助的人。
 

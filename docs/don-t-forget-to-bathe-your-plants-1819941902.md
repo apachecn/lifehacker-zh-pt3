@@ -1,6 +1,6 @@
 # 别忘了给你的植物洗澡
 
-> 原文:[https://life hacker . com/don ' t-forget-bath-your-plants-1819941902](https://lifehacker.com/don-t-forget-to-bathe-your-plants-1819941902)
+> 原文：<https://lifehacker.com/don-t-forget-to-bathe-your-plants-1819941902>
 
 在它们带给你家的诸多好处中， [植物有助于净化空气](https://lifehacker.com/this-graphic-shows-the-best-air-cleaning-plants-accord-1705307836) 。你在回报我吗？
 

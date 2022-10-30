@@ -1,6 +1,6 @@
 # 你现在可以使用谷歌图片搜索来查找食谱
 
-> 原文:[https://life hacker . com/you-can-now-use-Google-image-search-to-find-recipes-1797507669](https://lifehacker.com/you-can-now-use-google-image-search-to-find-recipes-1797507669)
+> 原文：<https://lifehacker.com/you-can-now-use-google-image-search-to-find-recipes-1797507669>
 
 浏览食物图片一直很有趣，但你现在可以在手机上使用谷歌图像搜索，在浏览你最喜欢的食物色情片时轻松找到食谱。
 

@@ -1,6 +1,6 @@
 # 牛奶过了包装日期应该保存多久？[已更新]
 
-> 原文:[https://the take out . com/你应该把牛奶放在纸盒里多长时间-日期-1823081376](https://thetakeout.com/how-long-should-you-keep-milk-past-the-cartons-date-1823081376)
+> 原文：<https://thetakeout.com/how-long-should-you-keep-milk-past-the-cartons-date-1823081376>
 
 众所周知，包装上的最佳食用日期会造成食物浪费，因为消费者看到日期已经过了，就会不假思索地把食物从冰箱里扔出去。但是牛奶和其他食品包装上的日期——只有一个例外——仅仅是指导方针，而不是安全声明。
 

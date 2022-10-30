@@ -1,6 +1,6 @@
 # 你汽车电池端子上的白色和蓝色垃圾是这样的
 
-> 原文:[https://jalopnik . com/heres-the-deal with the white-and-blue the-crap on-your-ca-1796168791](https://jalopnik.com/heres-the-deal-with-that-white-and-blue-crap-on-your-ca-1796168791)
+> 原文：<https://jalopnik.com/heres-the-deal-with-that-white-and-blue-crap-on-your-ca-1796168791>
 
 我敢肯定，任何曾经启动过汽车、更换过汽车电池或制造过小型 12V DIY 乳头折磨设备的人都见过这个:电池端子上有一种粉末状、白色和蓝色，有时可能还有绿色的物质。到底是什么*那个垃圾？是什么原因造成的？你能把它涂在饼干上吃吗？让我们来解决这个问题。*
 

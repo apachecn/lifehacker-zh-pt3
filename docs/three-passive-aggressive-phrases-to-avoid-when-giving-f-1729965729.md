@@ -1,6 +1,6 @@
 # 提供反馈时要避免的三个消极-积极短语
 
-> 原文:[https://life hacker . com/three-passive-aggressive-phrase-to-avoid-when-giving-f-1729965729](https://lifehacker.com/three-passive-aggressive-phrases-to-avoid-when-giving-f-1729965729)
+> 原文：<https://lifehacker.com/three-passive-aggressive-phrases-to-avoid-when-giving-f-1729965729>
 
 为了表示友好，你可能会淡化你的批评，比如说“也许只是我，但是……”虽然这些限定词来自一个好的地方，但收到它的人可能会认为你只是在消极攻击，而不是巧妙地隐藏你真正想说的话。
 

@@ -1,6 +1,6 @@
 # 如何优雅地应对拒绝
 
-> 原文:[https://life hacker . com/how-to-gracefully-deal-with-rejection-1818702428](https://lifehacker.com/how-to-gracefully-deal-with-rejection-1818702428)
+> 原文：<https://lifehacker.com/how-to-gracefully-deal-with-rejection-1818702428>
 
 拒绝是我们在人生的某个阶段都必须面对的事情之一。总会有女人不想和你约会，你得不到晋升，或者著名的篮球运动员不想去你家，因为他们认为你是个混球。
 

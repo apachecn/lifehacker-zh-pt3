@@ -1,6 +1,6 @@
 # Equifax 黑客可能有你的社会保险号和信用卡号
 
-> 原文:[https://life hacker . com/equifax-hackers-may-hackers-have-your-social-security-and-cre-1802159442](https://lifehacker.com/equifax-hackers-might-have-your-social-security-and-cre-1802159442)
+> 原文：<https://lifehacker.com/equifax-hackers-might-have-your-social-security-and-cre-1802159442>
 
 Equifax [周三](https://www.equifaxsecurity2017.com/) 宣布发生“网络安全事件”，影响 1.43 亿美国消费者。今年五月中旬到七月间，黑客能够获得某些 Equifax 文件，包括姓名、社会安全号码、出生日期、地址、信用卡号码和一些驾照号码。
 

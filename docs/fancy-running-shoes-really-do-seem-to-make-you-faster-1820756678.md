@@ -1,6 +1,6 @@
 # 花哨的跑鞋确实能让你跑得更快
 
-> 原文:[https://life hacker . com/fancy-running-shoes-真的看起来能让你跑得更快-1820756678](https://lifehacker.com/fancy-running-shoes-really-do-seem-to-make-you-faster-1820756678)
+> 原文：<https://lifehacker.com/fancy-running-shoes-really-do-seem-to-make-you-faster-1820756678>
 
 对我们大多数人来说，最好的跑步鞋是 [，穿上它跑起来感觉最好的是](https://lifehacker.com/pick-running-shoes-based-on-comfort-to-prevent-foot-inj-1449138178) 。但是鞋类公司声称，某些鞋子——尤其是耐克 250 美元的[Zoom vapor fly 4%](https://www.nike.com/t/zoom-vaporfly-4-unisex-running-shoe-DNTBov7o)——可以帮你节省很多能量，甚至让你跑得更快。现在，我们终于有数据来回答这个问题，看起来耐克不是在虚张声势。
 

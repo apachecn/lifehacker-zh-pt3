@@ -1,6 +1,6 @@
 # 最适合 Skype 的通话记录器是 Ecamm 通话记录器
 
-> 原文:[https://life hacker . com/the-best-call-recorder-for-Skype-is-ecamm-call-recorder-1825962313](https://lifehacker.com/the-best-call-recorder-for-skype-is-ecamm-call-recorder-1825962313)
+> 原文：<https://lifehacker.com/the-best-call-recorder-for-skype-is-ecamm-call-recorder-1825962313>
 
 我是一名记者。(算是吧。)我得经常录电话，以补充我的笔记。当我通过 Skype 打电话时，我使用的是 [Ecamm 通话记录器](http://www.ecamm.com/mac/callrecorder/) ，这是一个简单但功能齐全的 Mac 专用 Skype 扩展。
 

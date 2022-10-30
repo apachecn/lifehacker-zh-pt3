@@ -1,6 +1,6 @@
 # 使用 C.O.A.C.H 加强您的在线安全
 
-> 原文:[https://life hacker . com/strength-your-online-security-with-c-o-a-c-h-1828310041](https://lifehacker.com/strengthen-your-online-security-with-c-o-a-c-h-1828310041)
+> 原文：<https://lifehacker.com/strengthen-your-online-security-with-c-o-a-c-h-1828310041>
 
 你知道你在网上是否“安全”吗？网络安全和隐私是复杂的，风险因人而异:你可能担心被骚扰、被黑，或者你的老板发现你糟糕的旧博客文章，并以此为借口解雇你。 [Crash Override 的自动化网络安全助手](http://www.crashoverridenetwork.com/coach.html) 根据您的需求帮助您保护您的帐户，它一步一步地指导您，使您不会不知所措。
 

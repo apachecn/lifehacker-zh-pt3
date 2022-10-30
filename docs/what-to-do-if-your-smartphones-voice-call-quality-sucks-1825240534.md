@@ -1,6 +1,6 @@
 # 如果你的智能手机语音通话质量很差，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-your-smarts-voice-call-quality-sucks-1825240534](https://lifehacker.com/what-to-do-if-your-smartphones-voice-call-quality-sucks-1825240534)
+> 原文：<https://lifehacker.com/what-to-do-if-your-smartphones-voice-call-quality-sucks-1825240534>
 
 使用智能手机与朋友和家人保持联系的方式有很多，但经典的 [打电话](https://lifehacker.com/how-to-get-your-smartphone-to-screen-potential-scam-cal-1818881172#_ga=2.63991087.1869468182.1523479293-542336946.1523479293) 仍然是很多人的选择。不幸的是， [通话质量](https://lifehacker.com/how-to-make-sure-your-voice-calls-and-audio-chats-are-c-1690302645#_ga=2.63991087.1869468182.1523479293-542336946.1523479293) 并没有完全跟上数字革命，导致了混乱的对话——有时甚至是在高端智能手机上。
 

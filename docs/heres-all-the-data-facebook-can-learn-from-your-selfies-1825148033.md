@@ -1,6 +1,6 @@
 # 以下是脸书可以从你的自拍中了解到的数据
 
-> 原文:[https://life hacker . com/heres-all-the-data-Facebook-can-learn-from-your-self ies-1825148033](https://lifehacker.com/heres-all-the-data-facebook-can-learn-from-your-selfies-1825148033)
+> 原文：<https://lifehacker.com/heres-all-the-data-facebook-can-learn-from-your-selfies-1825148033>
 
 今天《华尔街日报》 [根据脸书的隐私和数据收集政策，列出了当你上传一张照片](http://www.wsj.com/graphics/how-pizza-night-can-cost-more-in-data-than-dollars/) 时，脸书可以获取的所有数据。这个列表说明了我们之前说过的:脸书不需要通过你的麦克风来监视你，因为你已经让它监视你做的其他事情了。
 

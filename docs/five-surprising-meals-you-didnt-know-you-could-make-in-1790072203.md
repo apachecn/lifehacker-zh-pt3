@@ -1,6 +1,6 @@
 # 你不知道用一口锅就能做出五种令人惊讶的食物
 
-> 原文:[https://life hacker . com/1790072203](https://lifehacker.com/five-surprising-meals-you-didnt-know-you-could-make-in-1790072203)
+> 原文：<https://lifehacker.com/five-surprising-meals-you-didnt-know-you-could-make-in-1790072203>
 
 搬进没有洗碗机的公寓让我明白了尽可能少用餐具的重要性。我能用一个烹饪器皿做出的任何东西都是非常珍贵的，但是单锅烹饪比把所有东西都倒进砂锅里更重要。
 

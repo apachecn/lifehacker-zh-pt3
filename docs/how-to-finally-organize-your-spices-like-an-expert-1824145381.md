@@ -1,6 +1,6 @@
 # 如何像专家一样整理你的调料
 
-> 原文:[https://the take out . com/how-to-finally-organize-your-spices-like-an-expert-1824145381](https://thetakeout.com/how-to-finally-organize-your-spices-like-an-expert-1824145381)
+> 原文：<https://thetakeout.com/how-to-finally-organize-your-spices-like-an-expert-1824145381>
 
 我之前提到过，我的丈夫已经逐渐接管了我们家的厨房，在这样做的过程中，他出现了一点滥用药物的问题——与香料有关的滥用药物问题。他甚至有一张我们附近香料店的常客卡，所以现在当我翻箱倒柜时，我可能会发现五六种不同的咖喱粉，或者至少三瓶辣椒粉，有烟熏的，也有其他的。香料在我们小小的厨房里占据了过多的空间；墙上的调料架很久以前就被填满了，我们现在转移到宝贵的橱柜空间和冰箱顶部的*<>*。我在架子上隔离了一小块地方，用来烘烤肉桂、肉豆蔻、香草、小苏打和粉末，但那就像我们现在一样有条理。
 

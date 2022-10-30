@@ -1,6 +1,6 @@
 # 如何为家庭首付存钱
 
-> 原文:[https://life hacker . com/how-to-save-up-for-a home 首付-1741784087](https://lifehacker.com/how-to-save-up-for-a-home-down-payment-1741784087)
+> 原文：<https://lifehacker.com/how-to-save-up-for-a-home-down-payment-1741784087>
 
 你的家可能是你买过的最贵的东西。为首付存几万块钱看起来几乎是不可能的，但是只要有一点计划，你就能实现。
 

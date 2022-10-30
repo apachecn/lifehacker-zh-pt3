@@ -1,6 +1,6 @@
 # 这个月，女孩们可以在微软商店参加免费的编码研讨会
 
-> 原文:[https://life hacker . com/girls-can-take-free-coding-workshop-at-Microsoft-store-1823617466](https://lifehacker.com/girls-can-take-free-coding-workshops-at-microsoft-store-1823617466)
+> 原文：<https://lifehacker.com/girls-can-take-free-coding-workshops-at-microsoft-store-1823617466>
 
 虽然你可以给一个女孩一些关于她为什么应该考虑从事 STEM 职业的统计数据，但让她听听已经在做这项工作的真实女性的意见更令人鼓舞。古语有云:你不能成为你看不见的人。
 

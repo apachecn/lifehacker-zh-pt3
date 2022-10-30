@@ -1,6 +1,6 @@
 # 用玉米棒做高汤
 
-> 原文:[https://life hacker . com/make-a golden-stock-out-of-corn-cobs-1827181520](https://lifehacker.com/make-a-golden-stock-out-of-corn-cobs-1827181520)
+> 原文：<https://lifehacker.com/make-a-golden-stock-out-of-corn-cobs-1827181520>
 
 我对玉米的热爱已经被很好地记录下来了。 [我会把它蒸了吃](https://skillet.lifehacker.com/steam-corn-using-either-of-these-two-easy-very-differe-1826779004) 。 [我要把它吃成奶油状](https://skillet.lifehacker.com/will-it-sous-vide-super-sweet-and-creamy-creamed-corn-1796902814) 。我会剥去金黄色多汁的玉米粒，生吃。一旦我只剩下光秃秃的玉米棒，我会用这些玉米棒做玉米汤。
 

@@ -1,6 +1,6 @@
 # 你在车里放了什么？
 
-> 原文:[https://life hacker . com/what-do-you-keep-in-your-car-1823442855](https://lifehacker.com/what-do-you-keep-in-your-car-1823442855)
+> 原文：<https://lifehacker.com/what-do-you-keep-in-your-car-1823442855>
 
 在我成长的过程中，家里的汽车后备箱里总有一条粉红色的毯子。它占了很大的空间却永远也拆不掉，因为如果车在冬天坏了怎么办？在等待救援时，我们都得挤在毯子下面。开车不盖毯子简直是自找麻烦。
 

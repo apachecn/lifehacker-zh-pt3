@@ -1,6 +1,6 @@
 # 这个推特机器人会像采访名人一样采访你
 
-> 原文:[https://life hacker . com/this-Twitter-bot-will-interview-you-like-you-re-named-1824092409](https://lifehacker.com/this-twitter-bot-will-interview-you-like-you-re-famous-1824092409)
+> 原文：<https://lifehacker.com/this-twitter-bot-will-interview-you-like-you-re-famous-1824092409>
 
 你曾经在淋浴的时候接受过一个假想的电视采访，谈论你所有非常重要的观点吗？你希望更多的人给你贴上“问我任何问题”的标签吗？现在，一个机器人会像采访流行歌星一样采访你，使用英国音乐杂志旧刊中的问题。
 

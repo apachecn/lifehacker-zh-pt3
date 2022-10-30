@@ -1,6 +1,6 @@
 # 如何修车而不自杀
 
-> 原文:[https://jalopnik . com/how-to-work-on-cars-and-not-kill-yourself-1780996774](https://jalopnik.com/how-to-work-on-cars-and-not-kill-yourself-1780996774)
+> 原文：<https://jalopnik.com/how-to-work-on-cars-and-not-kill-yourself-1780996774>
 
 在过去的六、七年里，我一直不停地纠结于汽车。但由于我没有受过任何正规训练，我伤了自己好几次。我被生锈的金属板割伤了，把电池酸液喷到眼睛里，还点着了很多东西。所有这些错误都很常见，但它们是可以避免的。
 

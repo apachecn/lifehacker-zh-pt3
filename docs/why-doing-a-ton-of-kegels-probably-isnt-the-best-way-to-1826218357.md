@@ -1,6 +1,6 @@
 # 凯格尔不是为分娩修复身体的最佳方式
 
-> 原文:[https://life hacker . com/why-do-a-ton-of-kegels-possible-not-the-best way to-1826218357](https://lifehacker.com/why-doing-a-ton-of-kegels-probably-isnt-the-best-way-to-1826218357)
+> 原文：<https://lifehacker.com/why-doing-a-ton-of-kegels-probably-isnt-the-best-way-to-1826218357>
 
 六年前，我和我的一个最好的朋友同时怀孕了，一整天，我们都会给对方发一个词:“凯格尔斯！”这对我们来说是一个提醒——每天 100 次骨盆挤压是我们都听过的建议——作为一种让我们的身体为分娩做好准备的方式。凯格尔运动是盆底肌肉的收缩和放松，几十年来一直是 [帮助分娩更快更轻松](https://www.romper.com/p/do-kegels-help-with-labor-millions-of-women-swear-by-them-31805) 的首选运动。它们太容易做了！美国怀孕协会 [指出](http://americanpregnancy.org/labor-and-birth/kegel-exercises/) 你可以在任何地方做。当你在红灯前停下来时！当你在妇产科 GYN 办公室的候诊室里的时候！在银行的汽车餐厅！我经常在午休时做这些——我很高兴知道，当我吃泰式炒面的时候，我正在不连续地锻炼。
 

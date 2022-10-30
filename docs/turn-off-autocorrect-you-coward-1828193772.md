@@ -1,6 +1,6 @@
 # 关掉自动更正，你这个胆小鬼
 
-> 原文:[https://life hacker . com/turn-off-auto correct-you-coward-1828193772](https://lifehacker.com/turn-off-autocorrect-you-coward-1828193772)
+> 原文：<https://lifehacker.com/turn-off-autocorrect-you-coward-1828193772>
 
 “自动更正”上次让您的生活变得更轻松是什么时候？回想一下，试着想象一下“自动更正”确实找到它的时候。我知道我们只在技术不起作用的时候才注意到它，但如果你想不出一个，那就该接受这个事实了:[就是](https://lifehacker.com/avoid-autocorrect-mistakes-by-typing-an-extra-letter-on-30782448) [坏](https://lifehacker.com/create-fake-contacts-to-fix-ducking-autocorrect-1787538703) 。
 

@@ -1,6 +1,6 @@
 # Android 平板电脑生活黑客包:我们的基本应用列表
 
-> 原文:[https://life hacker . com/life hacker-pack-for-Android-tablets-our-list-of-es-875602288](https://lifehacker.com/lifehacker-pack-for-android-tablets-our-list-of-the-es-875602288)
+> 原文：<https://lifehacker.com/lifehacker-pack-for-android-tablets-our-list-of-the-es-875602288>
 
 今年，当我们得知 Android 平板电脑的应用程序 [也将很快进入 chrome book](http://lifehacker.com/android-apps-for-chrome-os-are-here-and-theyre-the-fut-1782279369)时，我们感到一阵兴奋。在上周的 [第七届年度 Android pack](https://lifehacker.com/lifehacker-pack-for-android-our-list-of-the-essential-819094535) 的后续报道中，我们盘点了在大屏幕上表现最好的应用。
 

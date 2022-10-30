@@ -1,6 +1,6 @@
 # 优步的手语功能可以帮助你与失聪的司机交流
 
-> 原文:[https://life hacker . com/Uber-s-sign-language-feature-helps-you-learn-basic-Phra-1819627029](https://lifehacker.com/uber-s-sign-language-feature-helps-you-learn-basic-phra-1819627029)
+> 原文：<https://lifehacker.com/uber-s-sign-language-feature-helps-you-learn-basic-phra-1819627029>
 
 使用拼车服务时，每个人都有自己的偏好。一些人喜欢健谈的司机或谈话广播，而另一些人则喜欢在到达目的地之前完全安静。如果你的优步司机碰巧是聋子或重听，交流可能会更困难或潜在的尴尬。但该公司通过其乘车共享应用程序和 [优步手语](https://www.uber.com/newsroom/signhello/) 功能，为每位乘客提供一点美国手语课程，让乘客更容易与听力受损的优步司机交流。
 

@@ -1,6 +1,6 @@
 # 这里有一种方法可以修复门把手上那些烦人的划痕
 
-> 原文:[https://jalopnik . com/one-way-to-fix-that-something-tha-1827190416](https://jalopnik.com/one-way-to-fix-those-annoying-scratches-in-your-door-ha-1827190416)
+> 原文：<https://jalopnik.com/one-way-to-fix-those-annoying-scratches-in-your-door-ha-1827190416>
 
 你可能会认为车漆比指甲还坚硬，但你可能也在你的汽车门把手上看到过这些恼人的划痕。我知道我的有一些。这里有一些如何解决这个问题的建议。
 

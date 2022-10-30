@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我被困在另一个国家，想着出轨
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-m-stick-in-another-country-thin-1819715497](https://kotaku.com/ask-dr-nerdlove-i-m-stuck-in-another-country-and-thin-1819715497)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-m-stuck-in-another-country-and-thin-1819715497>
 
 大家好，欢迎来到 [询问书呆子爱博士](http://kotaku.com/askdrnerdlove) ，这是自 2013 年以来唯一一个没有 lootbox 的约会建议专栏。
 

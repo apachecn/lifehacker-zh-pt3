@@ -1,6 +1,6 @@
 # 通过这些创意写作课程，在 NaNoWriMo 上有一个良好的开端
 
-> 原文:[https://life hacker . com/get-a-head-start-on-nanowrimo-with-these-creative-writi-1797861082](https://lifehacker.com/get-a-head-start-on-nanowrimo-with-these-creative-writi-1797861082)
+> 原文：<https://lifehacker.com/get-a-head-start-on-nanowrimo-with-these-creative-writi-1797861082>
 
 如果你打算在今年 11 月为 NaNoWriMo 创作下一部伟大的小说，你可能想先磨练一下自己的手艺。这些在线课程将让你在《船形》中获得创造性写作技能。
 

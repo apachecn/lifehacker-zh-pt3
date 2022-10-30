@@ -1,6 +1,6 @@
 # 这些简单的煎锅让剩菜更有食欲
 
-> 原文:[https://life hacker . com/these-easy-skillet-arepas-is-the-perfect-vehicle-for-l-1819730510](https://lifehacker.com/these-easy-skillet-arepas-are-the-perfect-vehicle-for-l-1819730510)
+> 原文：<https://lifehacker.com/these-easy-skillet-arepas-are-the-perfect-vehicle-for-l-1819730510>
 
 Arepas 是由玉米湿润粉糊(面团)制成的金黄色圆盘，通常会被填满或覆盖，是许多拉丁美洲人的“日常面包”(尤其是如果你来自我的祖国哥伦比亚或邻国委内瑞拉的话)。)虽然从技术上来说不是面包，但它们可以在一天中的任何时候食用，就像发酵的东西一样。它们和一碗热气腾腾的油炸豆子一起端上来，早餐涂上黄油，上面放一个煎鸡蛋或炒鸡蛋，或者塞满各种美食，如鸡肉沙拉或腌烤牛排条。选择是无穷无尽的。
 

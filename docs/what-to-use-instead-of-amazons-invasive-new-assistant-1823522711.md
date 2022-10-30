@@ -1,6 +1,6 @@
 # 用什么代替亚马逊助手，侵入式的意愿列表替代
 
-> 原文:[https://life hacker . com/what-to-use-inst-of-amazons-invasive-new-assistant-1823522711](https://lifehacker.com/what-to-use-instead-of-amazons-invasive-new-assistant-1823522711)
+> 原文：<https://lifehacker.com/what-to-use-instead-of-amazons-invasive-new-assistant-1823522711>
 
 如果你使用亚马逊的 [愿望清单](https://lifehacker.com/best-wishlist-tool-amazon-com-universal-wishlist-5416477#_ga=2.42054181.1215127283.1520195704-258269408.1513265580) 书签来记录你想要购买的所有产品或者 [收到的礼物](https://lifehacker.com/best-wishlist-tool-amazon-com-universal-wishlist-5416477) ，你可能会注意到最近的一个变化。该公司正在逐步淘汰其旧的一键式工具，转而使用更先进(也更具侵入性)的亚马逊助手。
 

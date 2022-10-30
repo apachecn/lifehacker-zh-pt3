@@ -1,6 +1,6 @@
 # 如何帮助你的朋友达到他们的健身目标(不用和他们一起去健身房)
 
-> 原文:[https://life hacker . com/how-to-help-your-friends-reach-they-fitness-goals-wit-1821961007](https://lifehacker.com/how-to-help-your-friends-reach-their-fitness-goals-wit-1821961007)
+> 原文：<https://lifehacker.com/how-to-help-your-friends-reach-their-fitness-goals-wit-1821961007>
 
 结交朋友可以帮助你实现你的健身计划——或者你正在追求的任何目标。但是不一定要一起健身互相帮助(情侣， [松一口气](https://lifehacker.com/the-best-and-worst-workouts-to-do-as-a-couple-1821918717) )。试着用这些来支持你的朋友:
 

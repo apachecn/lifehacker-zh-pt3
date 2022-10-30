@@ -1,6 +1,6 @@
 # 最棒的朋克音乐播放列表
 
-> 原文:[https://life hacker . com/the-great-punk-hits-playlist-1788837772](https://lifehacker.com/the-greatest-punk-hits-playlist-1788837772)
+> 原文：<https://lifehacker.com/the-greatest-punk-hits-playlist-1788837772>
 
 当生活一团糟，你只能尖叫的时候，朋克音乐就在你身边。为了给你一个出口，这个播放列表展示了一些来自朋克流派的最好的音乐。
 

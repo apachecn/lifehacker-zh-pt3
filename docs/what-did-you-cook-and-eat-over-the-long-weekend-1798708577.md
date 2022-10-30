@@ -1,6 +1,6 @@
 # 你在漫长的周末做了什么吃了什么？
 
-> 原文:[https://life hacker . com/what-do-you-cook and-eat-over-long-weekend-1798708577](https://lifehacker.com/what-did-you-cook-and-eat-over-the-long-weekend-1798708577)
+> 原文：<https://lifehacker.com/what-did-you-cook-and-eat-over-the-long-weekend-1798708577>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。今天我想谈谈我们刚刚度过的愉快的三天周末，特别是你在这期间吃了什么。
 

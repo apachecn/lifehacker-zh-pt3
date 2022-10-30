@@ -1,6 +1,6 @@
 # 你绝对应该在感恩节的馅料中加入味噌
 
-> 原文:[https://life hacker . com/you-should-vertible-add-miso-to-your ' s thanksgiving-stu-1820053100](https://lifehacker.com/you-should-definitely-add-miso-to-your-thanksgiving-stu-1820053100)
+> 原文：<https://lifehacker.com/you-should-definitely-add-miso-to-your-thanksgiving-stu-1820053100>
 
 感恩节是碳水化合物含量最高的节日，没有任何一道菜像调料和填料一样符合这种审美。无论你是填料纯粹主义者还是玉米面包调料爱好者，无论你和火鸡一起端上的是哪一堆鸡蛋和肉汤浸泡的烘焙面包，都应该超级美味可口。
 

@@ -1,6 +1,6 @@
 # 如何与家人和朋友分享航空里程
 
-> 原文:[https://life hacker . com/what-to-know-about-sharing-airline-miles-with-family-an-1828223485](https://lifehacker.com/what-to-know-about-sharing-airline-miles-with-family-an-1828223485)
+> 原文：<https://lifehacker.com/what-to-know-about-sharing-airline-miles-with-family-an-1828223485>
 
 如果你想把你的常旅客里程赠送给家人或朋友(或者你自己想接受积分)，有几件事你应该知道，这样你就不会失去很多价值。
 

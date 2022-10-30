@@ -1,6 +1,6 @@
 # 如何从浏览器重新访问 Mac OS X 的每个版本
 
-> 原文:[https://life hacker . com/how-to-review-every-version-of-MAC-OS-x-from-your-brow-1828537876](https://lifehacker.com/how-to-revisit-every-version-of-mac-os-x-from-your-brow-1828537876)
+> 原文：<https://lifehacker.com/how-to-revisit-every-version-of-mac-os-x-from-your-brow-1828537876>
 
 [Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
 

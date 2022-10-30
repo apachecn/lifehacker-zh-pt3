@@ -1,6 +1,6 @@
 # 如何把装满悲伤农产品的冰箱变成晚餐
 
-> 原文:[https://life hacker . com/how-to-turn-a-冰箱-充满悲伤的农产品-变成晚餐-1826919563](https://lifehacker.com/how-to-turn-a-fridge-full-of-sad-produce-into-dinner-1826919563)
+> 原文：<https://lifehacker.com/how-to-turn-a-fridge-full-of-sad-produce-into-dinner-1826919563>
 
 我们都曾在一个工作日的晚上，在去杂货店买东西已经太晚的时候，盯着一个悲伤的空冰箱，希望在我们闭着眼睛的时候，有更高的力量神奇地补充货架。
 

@@ -1,6 +1,6 @@
 # 年底你应该做的一切来优化你的 2015 年税收
 
-> 原文:[https://life hacker . com/everything-you-should-do at the end of the year-to-opti-1746977634](https://lifehacker.com/everything-you-should-do-at-the-end-of-the-year-to-opti-1746977634)
+> 原文：<https://lifehacker.com/everything-you-should-do-at-the-end-of-the-year-to-opti-1746977634>
 
 这应该是一年中最美好的时光，所以税收可能是你最不想考虑的事情。在啜饮蛋奶酒和包装礼物之间，这不是最令人兴奋的事情，但如果你能在 12 月 31 日之前挤出一些税收举措，这将使 4 月的税收季不那么令人头疼。下面是一些年终行动，让你在 2015 年最大限度地利用税收，并保持有条理。
 

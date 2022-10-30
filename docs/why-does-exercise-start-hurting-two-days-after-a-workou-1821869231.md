@@ -1,6 +1,6 @@
 # 为什么锻炼两天后开始疼？
 
-> 原文:[https://gizmodo . com/why-exercise-start-having-two-day after-a-work ou-1821869231](https://gizmodo.com/why-does-exercise-start-hurting-two-days-after-a-workou-1821869231)
+> 原文：<https://gizmodo.com/why-does-exercise-start-hurting-two-days-after-a-workou-1821869231>
 
 如果你今年已经决定开始锻炼，你可能会注意到一个奇怪的现象:你离开健身房时感觉很好，但两天后醒来时却浑身酸痛。这种奇怪的时间差似乎是运动特有的，当你想到它时，有点莫名其妙——就像踢到了你的脚趾，没有任何感觉，然后两天后突然痛得大叫。
 

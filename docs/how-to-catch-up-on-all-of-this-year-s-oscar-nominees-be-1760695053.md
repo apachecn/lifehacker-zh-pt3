@@ -1,6 +1,6 @@
 # 如何在颁奖典礼前了解今年所有的奥斯卡提名
 
-> 原文:[https://life hacker . com/how-to-catch-up-on-all-the-this-year-Oscar-nomineates-be-1760695053](https://lifehacker.com/how-to-catch-up-on-all-of-this-year-s-oscar-nominees-be-1760695053)
+> 原文：<https://lifehacker.com/how-to-catch-up-on-all-of-this-year-s-oscar-nominees-be-1760695053>
 
 本周日，好莱坞的大腕们将齐聚第 88 届奥斯卡金像奖[。如果你想赢得今年的奥斯卡奖，或者只是想看一些今年最受好评的电影，在这里你可以观看今年所有的奥斯卡提名。](http://oscar.go.com/) 
 

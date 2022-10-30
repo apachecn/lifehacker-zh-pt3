@@ -1,6 +1,6 @@
 # 如何挑选和要求好的工作证明
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-picking-good-job-refe-1783602994](https://lifehacker.com/everything-you-need-to-know-about-picking-good-job-refe-1783602994)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-picking-good-job-refe-1783602994>
 
 当一位潜在雇主要求你提供推荐信时，你知道你已经接近面试过程的最后阶段了(这对你很有利)。但是，如果你没有做好准备，你可能会在最后一刻手忙脚乱地寻找一份好的推荐信。你会问谁，最好的联系方式是什么？
 

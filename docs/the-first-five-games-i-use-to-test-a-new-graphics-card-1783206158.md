@@ -1,6 +1,6 @@
 # 我用来测试新显卡的前五款电脑游戏
 
-> 原文:[https://kotaku . com/the-first-five-games-I-use-to-test-a-new-graphics card-1783206158](https://kotaku.com/the-first-five-games-i-use-to-test-a-new-graphics-card-1783206158)
+> 原文：<https://kotaku.com/the-first-five-games-i-use-to-test-a-new-graphics-card-1783206158>
 
 首先，你在新显卡上花费太多。然后，你启动你最有嚼劲、最难玩的电脑游戏，让他们求饶。有那么一瞬间，你的高价购买感觉完全合理。
 

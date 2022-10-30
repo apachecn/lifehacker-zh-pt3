@@ -1,6 +1,6 @@
 # 用 Android 应用程序找回你已经拒绝的通知
 
-> 原文:[https://life hacker . com/bring-back-notifications-you-hacken-with-an-1822236487](https://lifehacker.com/bring-back-notifications-you-already-dismissed-with-an-1822236487)
+> 原文：<https://lifehacker.com/bring-back-notifications-you-already-dismissed-with-an-1822236487>
 
 很多时候，当一个 [通知](https://lifehacker.com/save-your-battery-and-sanity-by-modifying-your-android-1820980053) 在我的手机上弹出时，我可以在一瞬间决定我是否需要立即处理它。但我偶尔会打错电话，刷掉一个重要的提醒，让我翻遍 [Gmail](https://lifehacker.com/top-10-gmail-tips-for-power-users-1787627908) 或 [Twitter](https://lifehacker.com/280-character-tweets-are-now-available-for-everyone-1820231262) 来打出本该是快速回复的内容。
 

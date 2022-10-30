@@ -1,6 +1,6 @@
 # 为什么 GIF 烤面包机是你唯一需要的 GIF 应用
 
-> 原文:[https://life hacker . com/this-app-is-fire-gif-toaster-1823198290](https://lifehacker.com/this-app-is-fire-gif-toaster-1823198290)
+> 原文：<https://lifehacker.com/this-app-is-fire-gif-toaster-1823198290>
 
 每个人都在用同一个应用程序查看脸书、发推文或拍照。无聊。这款名为 Fire 的应用程序旨在让你看看你能在每一个应用商店中找到的一些最好的隐藏宝石，从急需的实用程序和服务到精致的生产力工具。想想杀手级应用程序，但不要那么残忍。有消防 app 吗？发送电子邮件至 patrick.austin@lifehacker.com 的[](mailto:patrick.austin@lifehacker.com)**，让我知道为什么它是你的应用选择。**
 

@@ -1,6 +1,6 @@
 # 搬家时需要更改地址的任何地方
 
-> 原文:[https://life hacker . com/everywhere-you-when-you-mov-1820524607](https://lifehacker.com/everywhere-you-need-to-change-your-address-when-you-mov-1820524607)
+> 原文：<https://lifehacker.com/everywhere-you-need-to-change-your-address-when-you-mov-1820524607>
 
 我们大多数人都知道，你可以通过访问美国邮政网站来更改你在美国邮政署​的地址，但这只负责通过美国邮政到达的邮件。
 

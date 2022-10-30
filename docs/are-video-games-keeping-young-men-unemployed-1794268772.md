@@ -1,6 +1,6 @@
 # 电子游戏让你失业了吗？
 
-> 原文:[https://life hacker . com/are-video-games-keeping-young-men-失业-1794268772](https://lifehacker.com/are-video-games-keeping-young-men-unemployed-1794268772)
+> 原文：<https://lifehacker.com/are-video-games-keeping-young-men-unemployed-1794268772>
 
 视频游戏变得越来越复杂，视觉效果也越来越吸引人，难怪如今越来越多的人被它们吸引 。但是这个引人注目的数字娱乐新时代可能会给失业的年轻人带来黑暗的一面。
 

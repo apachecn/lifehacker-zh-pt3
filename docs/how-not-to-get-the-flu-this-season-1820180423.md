@@ -1,6 +1,6 @@
 # 如何在这个季节不患流感
 
-> 原文:[https://life hacker . com/how-not-to-get-the-flu-this-season-182018 04 23](https://lifehacker.com/how-not-to-get-the-flu-this-season-1820180423)
+> 原文：<https://lifehacker.com/how-not-to-get-the-flu-this-season-1820180423>
 
 我们不会粉饰这一点:很有可能这个冬天你可以做对每一件事，但仍然以可怕的流感结束。
 

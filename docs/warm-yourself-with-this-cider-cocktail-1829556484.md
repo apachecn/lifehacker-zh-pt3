@@ -1,6 +1,6 @@
 # 用这苹果酒鸡尾酒暖暖身子
 
-> 原文:[https://life hacker . com/warm-yourself with this-cider-cocktail-1829556484](https://lifehacker.com/warm-yourself-with-this-cider-cocktail-1829556484)
+> 原文：<https://lifehacker.com/warm-yourself-with-this-cider-cocktail-1829556484>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们制作了第一款读者推荐的鸡尾酒，味道不错。
 

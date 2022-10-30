@@ -1,6 +1,6 @@
 # 让你的孩子忙于这些神奇的 NASA 网站
 
-> 原文:[https://life hacker . com/keep-your-kid-busy-with-thanks-NASA-websites-1827321979](https://lifehacker.com/keep-your-kid-busy-with-these-amazing-nasa-websites-1827321979)
+> 原文：<https://lifehacker.com/keep-your-kid-busy-with-these-amazing-nasa-websites-1827321979>
 
 我写这篇文章的时候，我的孩子已经放学回家了，但是我想他已经在房间另一边的电脑前忙了整整一个小时了。每隔几秒钟，他就会说:“哇哦，这是我见过的最酷的东西了！啊呀啊呀哇！”
 

@@ -1,6 +1,6 @@
 # 根据食品和药物管理局的说法，你过期的 EpiPen 可能没问题
 
-> 原文:[https://life hacker . com/your-expired-epi pen-may-be-fine-by-the-FDA-1828493465](https://lifehacker.com/your-expired-epipen-may-be-fine-according-to-the-fda-1828493465)
+> 原文：<https://lifehacker.com/your-expired-epipen-may-be-fine-according-to-the-fda-1828493465>
 
 拯救生命的肾上腺素自动注射器 短缺。昨晚，我试图在我对花生过敏的孩子回学校之前从药店买一对(她需要一个设备用于她的课堂，一个用于她的课后计划)，但我被告知由于缺乏供应，我只能购买*一个*。
 

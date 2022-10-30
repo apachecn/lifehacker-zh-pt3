@@ -1,6 +1,6 @@
 # 使用此应用程序通过抓拍封面图片来播放黑胶专辑
 
-> 原文:[https://life hacker . com/stream-a-vinyl-album-by-snapping-a-pic-of-the-cover-art-1825800020](https://lifehacker.com/stream-a-vinyl-album-by-snapping-a-pic-of-its-cover-art-1825800020)
+> 原文：<https://lifehacker.com/stream-a-vinyl-album-by-snapping-a-pic-of-its-cover-art-1825800020>
 
 有一段时间，我有点痴迷于购买黑胶唱片。童年时，我妈妈让我拥有住在客厅里的大柜式唱机，一旦我把这个 500 磅重的东西搬进我的房子，我就决心尽可能多地听它。
 

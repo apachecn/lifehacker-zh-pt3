@@ -1,6 +1,6 @@
 # 你的 2016 年愚人节恶作剧剧透
 
-> 原文:[https://life hacker . com/your-2016-愚人节-恶作剧-剧透-1768387907](https://lifehacker.com/your-2016-april-fools-day-prank-spoiler-1768387907)
+> 原文：<https://lifehacker.com/your-2016-april-fools-day-prank-spoiler-1768387907>
 
 今天是愚人节。这意味着你有两个选择:你可以哀叹这一天被用来竞争企业的愚蠢行为，而“恶作剧”这个词已经变得毫无意义，或者你可以和我们一起取笑这些恶作剧。和我一起用我们的年度恶作剧剧透来破坏每个人的乐趣。
 

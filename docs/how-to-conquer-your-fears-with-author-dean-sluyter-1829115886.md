@@ -1,6 +1,6 @@
 # 如何克服你的恐惧，冥想老师迪安·斯鲁特
 
-> 原文:[https://life hacker . com/how-to-conques-your-fear-with-author-dean-sluyter-1829115886](https://lifehacker.com/how-to-conquer-your-fears-with-author-dean-sluyter-1829115886)
+> 原文：<https://lifehacker.com/how-to-conquer-your-fears-with-author-dean-sluyter-1829115886>
 
 本周，我们将深入探讨你害怕的东西——具体的东西，如对蜘蛛和高度的恐惧，以及我们所有人对活着的更概念性的存在主义焦虑。首先，我们采访了 Dean Sluyter，他是新书《更少恐惧:超越恐惧、焦虑、愤怒和成瘾 的作者。然后，R [eddit 播客“无尽的线程”](http://www.wbur.org/endlessthread) 的主持人本·布洛克·约翰逊分享了 Reddit 上最恐怖的故事。但是首先，爱丽丝和梅丽莎要面对她们最害怕的两个问题——你要去听。
 

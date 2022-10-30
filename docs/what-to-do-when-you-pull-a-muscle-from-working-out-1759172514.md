@@ -1,6 +1,6 @@
 # 当你锻炼时拉伤肌肉该怎么办
 
-> 原文:[https://life hacker . com/1759172514](https://lifehacker.com/what-to-do-when-you-pull-a-muscle-from-working-out-1759172514)
+> 原文：<https://lifehacker.com/what-to-do-when-you-pull-a-muscle-from-working-out-1759172514>
 
 拉伤肌肉很糟糕，而弄清楚这是不是真正需要注意的拉伤更糟糕。我们都经历过 [紧张、痉挛、酸痛和全身紧绷](https://lifehacker.com/the-most-common-exercise-injuries-and-how-you-can-avoi-1659615551) ，但这些似乎都会引起不同程度的类似疼痛，这并没有什么帮助。以下是如何判断是否真的是肌肉拉伤，以及你能做些什么的方法。
 

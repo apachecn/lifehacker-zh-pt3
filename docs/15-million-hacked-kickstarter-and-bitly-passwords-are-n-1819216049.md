@@ -1,6 +1,6 @@
 # 来自 1500 万被攻破的 Kickstarter 和 Bitly 账户的信息现已公开[更新]
 
-> 原文:[https://life hacker . com/1500 万黑客-kickstarter-and-bitly-password-is-n-1819216049](https://lifehacker.com/15-million-hacked-kickstarter-and-bitly-passwords-are-n-1819216049)
+> 原文：<https://lifehacker.com/15-million-hacked-kickstarter-and-bitly-passwords-are-n-1819216049>
 
 今天早上，我收到了来自的两个友好提醒，这是一项免费服务，可以跟踪数据泄露并告诉你你的信息是否被暴露。它告诉我，我在 2014 年被攻破的 Kickstarter 和 Bitly 的旧密码现在可以在网上公开获得(尽管加密了)。
 

@@ -1,6 +1,6 @@
 # 让特朗普的推文不那么糟糕的两种方法
 
-> 原文:[https://life hacker . com/two-way-to-make-trumps-tweets-a little-less-worthy-1820436733](https://lifehacker.com/two-ways-to-make-trumps-tweets-a-little-less-awful-1820436733)
+> 原文：<https://lifehacker.com/two-ways-to-make-trumps-tweets-a-little-less-awful-1820436733>
 
 作为一种沟通策略，总统的推特账户是前所未有的，这是一系列意识流公报，让任何想避免战争或继续保留宪法的美国人感到恐惧。但是他在推特上的咆哮，尽管经常如此怪异和疯狂(“covfefe”)，至少是他思维过程的一个窗口。我的意思是，我宁愿知道他在想什么，也不愿不知道。
 

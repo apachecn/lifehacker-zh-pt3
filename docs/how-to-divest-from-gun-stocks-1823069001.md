@@ -1,6 +1,6 @@
 # 如何从枪支股票中撤资
 
-> 原文:[https://life hacker . com/how-to-deposit-from gun-stocks-1823069001](https://lifehacker.com/how-to-divest-from-gun-stocks-1823069001)
+> 原文：<https://lifehacker.com/how-to-divest-from-gun-stocks-1823069001>
 
 在美国又一次大规模枪击事件的余波中，你可能想知道你能为困扰美国的枪支暴力做些什么。你可以 [捐款帮助受害者家属](https://www.gofundme.com/stonemandouglasvictimsfund) ，支持像[Everytown for Gun Safety](https://everytown.org/throwthemout/)这样的组织，在投票给某人 或自己竞选公职时，将枪支安全立法作为你的首要议题。你也可以停止支持那些从流血事件中获利的公司。
 

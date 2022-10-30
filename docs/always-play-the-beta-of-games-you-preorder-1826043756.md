@@ -1,6 +1,6 @@
 # 总是玩你预定的游戏的测试版
 
-> 原文:[https://life hacker . com/always-play-the-beta-of-games-you-preorder-1826043756](https://lifehacker.com/always-play-the-beta-of-games-you-preorder-1826043756)
+> 原文：<https://lifehacker.com/always-play-the-beta-of-games-you-preorder-1826043756>
 
 你真的不应该预订电子游戏[。当游戏到来时，得到一些闪亮的独家物品是不值得赌博的 60 美元的体验，这种体验在发布日充满错误，或者一旦你开始玩，就没有你想象的那么有趣。](https://kotaku.com/stop-preordering-video-games-1713802537)
 

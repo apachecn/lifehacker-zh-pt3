@@ -1,6 +1,6 @@
 # 去休闲餐厅过情人节
 
-> 原文:[https://life hacker . com/go-to-a-casual-restaurant-for-valentine-day-1822807612](https://lifehacker.com/go-to-a-casual-restaurant-for-valentine-s-day-1822807612)
+> 原文：<https://lifehacker.com/go-to-a-casual-restaurant-for-valentine-s-day-1822807612>
 
 具有讽刺意味的是，很难在情人节有一个愉快的约会之夜，因为每个“好”餐馆都用强制性的昂贵套餐取代了他们的正常菜单。一些夫妇实际上喜欢这些晚餐，并有一个有趣的预先包装的约会之夜。其他夫妇喜欢在家做饭，或者干脆不考虑这个节日。但是如果你想在 2 月 14 日过一个典型的“约会之夜”，你的选择会很有限。这就是如何穿越海峡。
 

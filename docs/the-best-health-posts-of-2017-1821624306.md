@@ -1,6 +1,6 @@
 # 2017 年最佳健康岗位
 
-> 原文:[https://life hacker . com/the-best-health-posts-of-2017-1821624306](https://lifehacker.com/the-best-health-posts-of-2017-1821624306)
+> 原文：<https://lifehacker.com/the-best-health-posts-of-2017-1821624306>
 
 今年我们经历了很多，从政治对我们精神健康的影响，到健康供应商试图向我们出售我们不需要的东西。以下是我们 2017 年最佳健康指南、解释者和流言终结者。
 

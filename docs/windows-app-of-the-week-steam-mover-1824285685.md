@@ -1,6 +1,6 @@
 # 本周 Windows 应用:Steam Mover
 
-> 原文:[https://life hacker . com/windows-app-of-the-week-steam-Mover-1824285685](https://lifehacker.com/windows-app-of-the-week-steam-mover-1824285685)
+> 原文：<https://lifehacker.com/windows-app-of-the-week-steam-mover-1824285685>
 
 如果你已经在 Valve 的蒸汽服务上玩了很长时间，你可能听说过 [蒸汽推进器](http://www.traynier.com/software/steammover) 。这是一个很好的工具，可以将你的几千兆字节的 Steam 游戏转移到你系统上的不同硬盘上，以防你的主硬盘空间不足(或爆满)。
 

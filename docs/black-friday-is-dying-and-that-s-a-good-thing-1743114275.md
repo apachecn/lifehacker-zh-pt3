@@ -1,6 +1,6 @@
 # 黑色星期五正在消亡，这是一件好事
 
-> 原文:[https://life hacker . com/black-Friday-is-dying-and-that-s-a-this-the-good-thing-thing-the-this-this-thing-1743114275](https://lifehacker.com/black-friday-is-dying-and-that-s-a-good-thing-1743114275)
+> 原文：<https://lifehacker.com/black-friday-is-dying-and-that-s-a-good-thing-1743114275>
 
 不要误会我的意思，每年的这个时候都会有一些很棒的交易。但是为了买到一台便宜的 55 英寸电视而在大冷天排队？不再需要。黑色星期五已经不是以前的样子了，这是一件好事。
 

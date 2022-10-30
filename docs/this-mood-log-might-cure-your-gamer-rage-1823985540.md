@@ -1,6 +1,6 @@
 # 这篇心情日志可能会治愈你的游戏狂怒
 
-> 原文:[https://life hacker . com/this-mood-log-may-cure-your-gamer-rage-1823985540](https://lifehacker.com/this-mood-log-might-cure-your-gamer-rage-1823985540)
+> 原文：<https://lifehacker.com/this-mood-log-might-cure-your-gamer-rage-1823985540>
 
 多人视频游戏 [会很快中毒](https://kotaku.com/overwatchs-competitive-mode-is-depressing-right-now-1796780238) ，尤其是当你被困在一个由被超越的失败者组成的团队中，而你是唯一一个守卫最后一个占领点的人，而垃圾 6 号只是四处游荡。你向你的朋友或伴侣抱怨，他们会问你为什么还要玩这个游戏，如果它让你如此生气的话。然后你会觉得在这个世界上完全孤独。
 

@@ -1,6 +1,6 @@
 # 让我们解除学校对防晒霜的禁令
 
-> 原文:[https://life hacker . com/let-life-the-school-ban-on-sun screen-1796882992](https://lifehacker.com/lets-lift-the-school-ban-on-sunscreen-1796882992)
+> 原文：<https://lifehacker.com/lets-lift-the-school-ban-on-sunscreen-1796882992>
 
 这是一个炎热的一天，你的孩子很快就会去学校，在一个没有树荫的操场上跑，跳，流汗。所以你送他们一管防晒霜，经常重复使用的说明，和一个拥抱告别，对吗？
 

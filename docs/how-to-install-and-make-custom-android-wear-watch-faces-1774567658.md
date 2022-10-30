@@ -1,6 +1,6 @@
 # 如何安装和定制 Android Wear 手表表盘
 
-> 原文:[https://life hacker . com/how-to-install-and-make-custom-Android-wear-watch-faces-1774567658](https://lifehacker.com/how-to-install-and-make-custom-android-wear-watch-faces-1774567658)
+> 原文：<https://lifehacker.com/how-to-install-and-make-custom-android-wear-watch-faces-1774567658>
 
 如果说我喜欢可穿戴设备的可能性，那就是换上新的表盘。虽然许多公司要么阻止用户定制手表表面，要么要求一些像样的编码技能，但 Android Wear 有一些变通办法——它们很棒。如果你想打造别人没有的属于你自己的定制表盘，请继续阅读。连 iOS 用户都可以！
 

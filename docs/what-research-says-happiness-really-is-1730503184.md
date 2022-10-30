@@ -1,6 +1,6 @@
 # 研究表明幸福到底是什么
 
-> 原文:[https://life hacker . com/what-research-says-happiness-really-is-1730503184](https://lifehacker.com/what-research-says-happiness-really-is-1730503184)
+> 原文：<https://lifehacker.com/what-research-says-happiness-really-is-1730503184>
 
 关于“快乐”到底意味着什么，有很多哲学上的争论，但如果你在寻找具体的答案，它可能会让你失望。以下是科学研究所说的幸福是什么，以及——也许更重要的是——幸福不是什么。
 

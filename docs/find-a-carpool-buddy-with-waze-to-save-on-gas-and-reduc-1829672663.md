@@ -1,6 +1,6 @@
 # 找一个和 Waze 一起拼车的伙伴来节省汽油和减少碳排放
 
-> 原文:[https://life hacker . com/find-a-car pool-buddy-with-waze-to-save on-gas and-reduc-1829672663](https://lifehacker.com/find-a-carpool-buddy-with-waze-to-save-on-gas-and-reduc-1829672663)
+> 原文：<https://lifehacker.com/find-a-carpool-buddy-with-waze-to-save-on-gas-and-reduc-1829672663>
 
 我们都知道，拼车是减少我们对环境影响的一种简单方式，但找到一起拼车的人有时会有点挑战。本周，Waze 推出了一项新功能，将使寻找拼车伙伴变得更加容易。
 

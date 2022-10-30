@@ -1,6 +1,6 @@
 # 如何选择你的第一条举重腰带
 
-> 原文:[https://life hacker . com/how-to-choose-your ' s first-weighting-belt-1774624026](https://lifehacker.com/how-to-choose-your-first-weightlifting-belt-1774624026)
+> 原文：<https://lifehacker.com/how-to-choose-your-first-weightlifting-belt-1774624026>
 
 购买举重腰带就像购买跑鞋一样:你需要知道自己需要什么，并尝试不同的适合度、舒适度和功能性。在你的第一条腰带中，有很多变量需要考虑，所以让我们来帮你理清头绪。
 

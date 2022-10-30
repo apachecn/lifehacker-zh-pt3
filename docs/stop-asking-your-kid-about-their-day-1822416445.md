@@ -1,6 +1,6 @@
 # 不要问你的孩子他们一天过得怎么样
 
-> 原文:[https://life hacker . com/stop-quest-your-kid-on-day 1822416445](https://lifehacker.com/stop-asking-your-kid-about-their-day-1822416445)
+> 原文：<https://lifehacker.com/stop-asking-your-kid-about-their-day-1822416445>
 
 不要问你的孩子那天在学校发生了什么。就是不要。
 

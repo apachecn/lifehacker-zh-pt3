@@ -1,6 +1,6 @@
 # 如何出售、交易或捐赠你不想要的礼品卡
 
-> 原文:[https://life hacker . com/everything-you-don ' t-want-1790570272](https://lifehacker.com/everything-you-can-do-with-gift-cards-you-don-t-want-1790570272)
+> 原文：<https://lifehacker.com/everything-you-can-do-with-gift-cards-you-don-t-want-1790570272>
 
 假设你的乔叔叔不知道你想要什么圣诞礼物，所以他随便给了你一些礼品卡。你很感激这个想法，但是你从来没有在 Bass Pro 商店购物过，赛百味是你最不喜欢的食品连锁店。你不妨看看你还能对那些不要的礼品卡做些什么。
 

@@ -1,6 +1,6 @@
 # 当让你的狗问候另一只狗是一个坏主意
 
-> 原文:[https://life hacker . com/when-let-your-dog-问候另一只狗是个坏主意-1796222127](https://lifehacker.com/when-letting-your-dog-greet-another-dog-is-a-bad-idea-1796222127)
+> 原文：<https://lifehacker.com/when-letting-your-dog-greet-another-dog-is-a-bad-idea-1796222127>
 
 你在遛狗。其他人正在遛狗。你的小狗对认识一个新朋友非常兴奋，很想过去嗅一嗅。但是这并不总是对你的狗或者其他狗最有利。
 

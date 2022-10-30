@@ -1,6 +1,6 @@
 # 你仍然可以向个人退休帐户缴纳 2017 年的税款
 
-> 原文:[https://life hacker . com/you-can-still-contribute to you-IRA for savings on-you-1825171977](https://lifehacker.com/you-can-still-contribute-to-your-ira-for-savings-on-you-1825171977)
+> 原文：<https://lifehacker.com/you-can-still-contribute-to-your-ira-for-savings-on-you-1825171977>
 
 如果你还没有申报 2017 年的税，那么你还有时间通过向你的个人退休帐户缴款来节省一些钱。
 

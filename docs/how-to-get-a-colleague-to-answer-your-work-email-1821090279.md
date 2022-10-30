@@ -1,6 +1,6 @@
 # 如何让同事回复你的工作邮件
 
-> 原文:[https://life hacker . com/how-to-get-a-college-answer-your-work-email-1821090279](https://lifehacker.com/how-to-get-a-colleague-to-answer-your-work-email-1821090279)
+> 原文：<https://lifehacker.com/how-to-get-a-colleague-to-answer-your-work-email-1821090279>
 
 你可能认为发送工作邮件是最糟糕的事情。不是的。这是第二糟糕的。*最糟糕的*是等待别人回复你的工作邮件。有些人就是不回复，不管你怎么跟进。IT 专业人士 Antoinette Maria 写了关于 [这些问题员工之一](https://dev.to/_theycallmetoni/why-the-fk-wont-you-answer-my-email-83a) “亚历克斯”，一个来自另一个团队的联系人，他阻碍了整个项目。
 

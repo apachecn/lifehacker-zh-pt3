@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的采访
 
-> 原文:[https://life hacker . com/2016 年最受欢迎的采访-1790156382](https://lifehacker.com/most-popular-interviews-of-2016-1790156382)
+> 原文：<https://lifehacker.com/most-popular-interviews-of-2016-1790156382>
 
 通常，自我提升的最佳方式是向那些你钦佩的人寻求建议。这就是为什么我们会定期邀请有趣且有成就的人来分享他们最喜欢的工作习惯、工具和保持高效的技巧。以下是我们 2016 年最受欢迎的采访。
 

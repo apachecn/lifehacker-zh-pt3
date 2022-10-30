@@ -1,6 +1,6 @@
 # 今天从 A&W 获得免费的漂浮沙士
 
-> 原文:[https://life hacker . com/get-a-free-root-beer-float-today-from-a-w-1828135467](https://lifehacker.com/get-a-free-root-beer-float-today-from-a-w-1828135467)
+> 原文：<https://lifehacker.com/get-a-free-root-beer-float-today-from-a-w-1828135467>
 
 每一天似乎都是一个新的全国性节日。然而，今天的国定假日带来了一个相当实实在在的好处:免费的根啤酒花车。
 

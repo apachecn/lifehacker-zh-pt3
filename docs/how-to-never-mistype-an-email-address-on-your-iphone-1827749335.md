@@ -1,6 +1,6 @@
 # 如何在你的 iPhone 上永远不要输入错误的电子邮件地址
 
-> 原文:[https://life hacker . com/how-to-never-mist-a-mail-address-on-your-iphone-1827749335](https://lifehacker.com/how-to-never-mistype-an-email-address-on-your-iphone-1827749335)
+> 原文：<https://lifehacker.com/how-to-never-mistype-an-email-address-on-your-iphone-1827749335>
 
 如果你是一个狂热的邮件用户，总是急于用 iPhone 发送邮件，错误往往会频繁发生。iPhone 或 iPad 上的一项 iOS 功能可以帮助你注意到输入错误的电子邮件地址，只需一个简单的邮件设置。
 

@@ -1,6 +1,6 @@
 # 在加州，你可以(和不可以)用娱乐性大麻做什么
 
-> 原文:[https://life hacker . com/what-you-can-and-can-t-do-in-California-with-recrea I-1821738455](https://lifehacker.com/what-you-can-and-can-t-do-in-california-with-recreati-1821738455)
+> 原文：<https://lifehacker.com/what-you-can-and-can-t-do-in-california-with-recreati-1821738455>
 
 嘿，加州人！现在加州终于开始销售娱乐用大麻了，你可能会想“太好了，现在我可以摆脱这张卡了。”但是如果你也在想“太好了，我等不及要喝醉开车去上班了”，你可能需要一个复习课程，了解什么是合法的，什么是不合法的。加州的 64 号提案允许娱乐性使用大麻，但也强加了一些规则来保证每个人外出时的安全。
 

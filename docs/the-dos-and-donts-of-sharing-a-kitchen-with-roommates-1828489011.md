@@ -1,6 +1,6 @@
 # 与室友共用一个厨房的注意事项
 
-> 原文:[https://life hacker . com/the-dos and-donts-of-share-a-kitchen-1828489011](https://lifehacker.com/the-dos-and-donts-of-sharing-a-kitchen-with-roommates-1828489011)
+> 原文：<https://lifehacker.com/the-dos-and-donts-of-sharing-a-kitchen-with-roommates-1828489011>
 
 八月标志着大学城居民熟知的一年中的神奇时刻:大学生的下降。全国各地，成群结队的年轻人正在签署租约，在遗嘱和 IKEAs 中寻找家具，并准备第一次独立生活。上帝帮助我们所有人。
 

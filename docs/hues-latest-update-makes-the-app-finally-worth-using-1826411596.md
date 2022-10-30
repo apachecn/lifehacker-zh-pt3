@@ -1,6 +1,6 @@
 # Hue 的最新更新让这款应用终于值得使用了
 
-> 原文:[https://life hacker . com/hues-latest-update-makes-the-app-finally-value-use-1826411596](https://lifehacker.com/hues-latest-update-makes-the-app-finally-worth-using-1826411596)
+> 原文：<https://lifehacker.com/hues-latest-update-makes-the-app-finally-worth-using-1826411596>
 
 iOS / Android:飞利浦发布了其 Hue 应用程序的重大更新，实际上使其值得使用。我这么说并没有夸大其词。在今天之前，Hue 应用程序一团糟。感觉好像要花很长时间来加载；说得好听点，用户界面很有挑战性；这让我开始寻找最好的第三方应用程序，我可以用它来控制我花哨的色调灯，而没有官方色调应用程序的头痛和压力。
 

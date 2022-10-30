@@ -1,6 +1,6 @@
 # 今天再次在 Chipotle 获得免费的番石榴
 
-> 原文:[https://life hacker . com/get-free-guac-at-chipotle-today-1827992494](https://lifehacker.com/get-free-guac-at-chipotle-today-1827992494)
+> 原文：<https://lifehacker.com/get-free-guac-at-chipotle-today-1827992494>
 
 昨天，Chipotle 非常开心地向其大批新数字用户免费发放鳄梨色拉酱，他们将促销活动延长至今天，8 月 1 日星期三。不需要代码。
 

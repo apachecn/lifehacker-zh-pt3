@@ -1,6 +1,6 @@
 # 以下是你应该等待下载 iOS 11 的原因
 
-> 原文:[https://life hacker . com/here-s-why-you-should-wait-to-download-IOs-11-1818525026](https://lifehacker.com/here-s-why-you-should-wait-to-download-ios-11-1818525026)
+> 原文：<https://lifehacker.com/here-s-why-you-should-wait-to-download-ios-11-1818525026>
 
 iOS 11 现已可供下载，这意味着你可以升级你众多的iOS 设备中的一个，以获得更智能的 Siri、iPad 上的新应用 dock 和改进的多任务支持等功能。这也意味着你将下载主要软件升级的第一个版本，这不是最好的主意，尤其是在发布日。从下载速度缓慢到设备冻结等问题经常困扰新操作系统的第一个版本，第一天出现问题的可能性足以让你考虑等到苹果解决这些问题。
 

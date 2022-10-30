@@ -1,6 +1,6 @@
 # 如何将你的谷歌地图位置图标变成一辆卡通汽车
 
-> 原文:[https://life hacker . com/how-to-turn-your-Google-maps-location-icon-into-a-carto-1826224964](https://lifehacker.com/how-to-turn-your-google-maps-location-icon-into-a-carto-1826224964)
+> 原文：<https://lifehacker.com/how-to-turn-your-google-maps-location-icon-into-a-carto-1826224964>
 
 iOS: [今年早些时候](https://lifehacker.com/how-to-turn-google-maps-into-mario-kart-1823635766?rev=1520575494861) ，谷歌与任天堂联手将 [谷歌地图](https://lifehacker.com/how-to-make-the-most-of-google-maps-1793442153) 变成 [马里奥赛车](https://lifehacker.com/play-mario-kart-in-your-browser-with-this-css-clone-1825856951?rev=1525795900323) ，用一个骑着红色卡丁车的拳头大的水管工取代了应用程序通常的位置图标。这种跨越并没有持续很长时间，但谷歌现在通过对 iOS 上的地图应用程序进行新的更新，带回了一些魔力。
 

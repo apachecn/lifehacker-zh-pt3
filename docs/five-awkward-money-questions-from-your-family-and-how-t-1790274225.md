@@ -1,6 +1,6 @@
 # 来自家人的五个尴尬的金钱问题以及如何处理
 
-> 原文:[https://life hacker . com/five-ungible-money-questions from-your-family-and-how-t-1790274225](https://lifehacker.com/five-awkward-money-questions-from-your-family-and-how-t-1790274225)
+> 原文：<https://lifehacker.com/five-awkward-money-questions-from-your-family-and-how-t-1790274225>
 
 随着假期接近尾声，你的家庭时间即将达到最大限度——这一方面很好，但另一方面也有点痛苦。因为让我们面对它:对于每一个你很高兴赶上的亲戚，你都有另一个人问你不舒服的私人问题——你可能已经在策划如何从玛莎阿姨的困境中毫发无损地出来。难怪心理学专家将假日聚会视为我们许多人压力的合法来源。
 

@@ -1,6 +1,6 @@
 # 碎冰山是做三明治的最佳生菜
 
-> 原文:[https://life hacker . com/crashed-iceberg-is-the-best-生菜三明治-1828834253](https://lifehacker.com/shredded-iceberg-is-the-best-lettuce-for-your-sandwich-1828834253)
+> 原文：<https://lifehacker.com/shredded-iceberg-is-the-best-lettuce-for-your-sandwich-1828834253>
 
 在一个食谱作者寻求风味和/或营养价值最大化的世界里，卷心莴苣并没有获得太多的关注或赞扬。虽然它可能没有芝麻菜的辣味或羽衣甘蓝的维生素含量，但碎冰山实际上是一种三明治绿色。
 

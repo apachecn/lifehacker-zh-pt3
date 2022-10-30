@@ -1,6 +1,6 @@
 # 我是肯·詹宁斯，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-ken-Jennings-and-this-is-how-I-work-1789735737](https://lifehacker.com/im-ken-jennings-and-this-is-how-i-work-1789735737)
+> 原文：<https://lifehacker.com/im-ken-jennings-and-this-is-how-i-work-1789735737>
 
 肯·詹宁斯不是一夜之间变得家喻户晓的。整整 74 个晚上，他成了一个家喻户晓的名字。当然，肯是电视问答节目《危险边缘》最长连胜纪录的保持者！从此成为畅销书作家。
 

@@ -1,6 +1,6 @@
 # 如何和小孩子谈论种族
 
-> 原文:[https://life hacker . com/how-to-talk-to-young-kids-about-race-1797811655](https://lifehacker.com/how-to-talk-to-young-kids-about-race-1797811655)
+> 原文：<https://lifehacker.com/how-to-talk-to-young-kids-about-race-1797811655>
 
 如果说最近的历史教会了父母——尤其是白人父母——什么的话，那就是我们需要更经常、更深入地与孩子谈论种族问题。(我说“尤其是白人父母”是因为有色人种的父母总是和他们的孩子谈论种族。)但有时父母不确定如何或何时开始。
 

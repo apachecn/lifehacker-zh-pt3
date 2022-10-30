@@ -1,6 +1,6 @@
 # 信用卡公司想方设法欺骗你
 
-> 原文:[https://life hacker . com/all-the-way-credit-card-companies-try-to-screw-you-ove-1755287376](https://lifehacker.com/all-the-ways-credit-card-companies-try-to-screw-you-ove-1755287376)
+> 原文：<https://lifehacker.com/all-the-ways-credit-card-companies-try-to-screw-you-ove-1755287376>
 
 阅读几乎所有东西的细则是很重要的，尤其是信用卡。信用卡公司使用一些非常狡猾的策略让你注册。他们用看似合法的诱人提议来诱惑你，但是如果你错过了一点点细节，你就彻底完蛋了。以下是你申请新信用卡时需要特别注意的事项。
 

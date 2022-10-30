@@ -1,6 +1,6 @@
 # 三种成分的欢乐时光:Boulevardier
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-boulevardier-1822006 191](https://lifehacker.com/3-ingredient-happy-hour-the-boulevardier-1822006191)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-boulevardier-1822006191>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将推出标志性的尼格罗尼威士忌的近亲:Boulevardier。
 

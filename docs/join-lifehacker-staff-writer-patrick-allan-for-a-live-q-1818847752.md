@@ -1,6 +1,6 @@
 # 本周五，请加入 Lifehacker 的特约撰稿人帕特里克·艾伦的现场问答节目
 
-> 原文:[https://life hacker . com/join-life hacker-staff-writer-Patrick-Allan-for-a-live-q-1818847752](https://lifehacker.com/join-lifehacker-staff-writer-patrick-allan-for-a-live-q-1818847752)
+> 原文：<https://lifehacker.com/join-lifehacker-staff-writer-patrick-allan-for-a-live-q-1818847752>
 
 嘿，伙计们，我将在美国东部时间周五下午 3 点主持一场现场问答！来问我一些问题，告诉我你有趣的故事，然后和我聊上半个小时。
 

@@ -1,6 +1,6 @@
 # Infinity Dashboard 让您的 Mac 成为有用信息的仓库
 
-> 原文:[https://life hacker . com/infinity-dashboard-makes-your-MAC-a-warehouse-of-used-1826742422](https://lifehacker.com/infinity-dashboard-makes-your-mac-a-warehouse-of-useful-1826742422)
+> 原文：<https://lifehacker.com/infinity-dashboard-makes-your-mac-a-warehouse-of-useful-1826742422>
 
 Mac: Widgets？又旧又破。让你的通知中心充满应用和服务？越塞越没用。至少，如果我需要快速浏览最有意义的数据，我不喜欢上下滚动页面。
 

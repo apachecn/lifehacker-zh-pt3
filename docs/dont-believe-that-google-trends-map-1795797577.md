@@ -1,6 +1,6 @@
 # 不要相信谷歌趋势地图
 
-> 原文:[https://life hacker . com/don-believe-that-Google-trends-map-1795797577](https://lifehacker.com/dont-believe-that-google-trends-map-1795797577)
+> 原文：<https://lifehacker.com/dont-believe-that-google-trends-map-1795797577>
 
 上周，Google Trends 发布了一张地图，上面有美国各州最常拼错的单词:
 

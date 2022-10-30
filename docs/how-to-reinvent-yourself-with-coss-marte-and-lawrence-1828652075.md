@@ -1,6 +1,6 @@
 # 如何重塑自己，与科斯马尔特和劳伦斯·奥唐奈
 
-> 原文:[https://life hacker . com/how-to-reinventin-you-with-Coss-marte-and-Lawrence-1828652075](https://lifehacker.com/how-to-reinvent-yourself-with-coss-marte-and-lawrence-1828652075)
+> 原文：<https://lifehacker.com/how-to-reinvent-yourself-with-coss-marte-and-lawrence-1828652075>
 
 在这一集里，Coss Marte 告诉我们他是如何利用他在监狱里发明的养生法从毒枭变成健身企业家的。然后，我们走出去看看人们是如何重塑自己的，并与电视专家劳伦斯·奥唐奈聊聊他是如何将自己重塑为社会主义者的(以及为什么有些人如此害怕社会主义)。
 

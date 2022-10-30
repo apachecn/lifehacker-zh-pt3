@@ -1,6 +1,6 @@
 # 亚马逊错误地发送了婴儿注册邮件
 
-> 原文:[https://life hacker . com/Amazon-errioly-sent-out-baby-registry-emails-1818594899](https://lifehacker.com/amazon-mistakenly-sent-out-baby-registry-emails-1818594899)
+> 原文：<https://lifehacker.com/amazon-mistakenly-sent-out-baby-registry-emails-1818594899>
 
 你可能感到困惑或惊慌。也许你甚至给你的伴侣发短信，问:“你知道什么我不知道的？!"如果你昨天收到一封来自亚马逊的电子邮件，声称有人在你的婴儿注册表上买了东西，你并不孤单。成千上万的人打开了类似这样的信息:
 

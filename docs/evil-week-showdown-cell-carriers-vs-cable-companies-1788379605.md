@@ -1,6 +1,6 @@
 # 邪恶周摊牌:手机运营商与有线电视公司
 
-> 原文:[https://life hacker . com/evil-week-摊牌-手机运营商-有线电视公司-1788379605](https://lifehacker.com/evil-week-showdown-cell-carriers-vs-cable-companies-1788379605)
+> 原文：<https://lifehacker.com/evil-week-showdown-cell-carriers-vs-cable-companies-1788379605>
 
 是时候结束邪恶周了，还有什么比让两个最邪恶的行业互相对抗更好的方式呢？今天，我们颠倒一下我们通常的脚本，看看谁更糟糕:手机运营商还是有线电视公司。
 

@@ -1,6 +1,6 @@
 # 火星桌面
 
-> 原文:[https://lifehacker.com/the-martian-desktop-1739213811](https://lifehacker.com/the-martian-desktop-1739213811)
+> 原文：<https://lifehacker.com/the-martian-desktop-1739213811>
 
 [安库什](https://www.flickr.com/photos/ankushmenat/) 倾心于*火星人*，我们真的不能怪他。他没有提到他是受这本书的启发还是受电影的启发制作了这个桌面，但不管怎样，我们都喜欢它。下面是如何设置它。
 

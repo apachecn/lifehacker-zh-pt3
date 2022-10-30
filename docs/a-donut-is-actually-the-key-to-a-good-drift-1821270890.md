@@ -1,6 +1,6 @@
 # 学习如何做一个完美的甜甜圈，这样你就可以做一个很好的漂移
 
-> 原文:[https://jalopnik . com/a-donut-is-the-key-to-a-good-drift-1821270890](https://jalopnik.com/a-donut-is-actually-the-key-to-a-good-drift-1821270890)
+> 原文：<https://jalopnik.com/a-donut-is-actually-the-key-to-a-good-drift-1821270890>
 
 如果你梦想着变得非常侧身，但没有勇气尝试让你的车滑离墙壁几英寸，信不信由你，你可以从做油炸圈饼开始。幸运的是，[D 级方程式职业漂流者肯·古希](https://jalopnik.com/tag/ken-gushi#_ga=2.250311046.1431176927.1512283297-773510454.1489696011) 给了我们一些如何创造一个甜蜜的轮胎圈的建议。注意他，你很快就会烧出漂亮的橡胶。
 

@@ -1,6 +1,6 @@
 # 如何应对苹果不一致的提醒系统
 
-> 原文:[https://life hacker . com/how-to-deal-with-apple-s-inconsive-alerts-system-1823355397](https://lifehacker.com/how-to-deal-with-apple-s-inconsistent-alerts-system-1823355397)
+> 原文：<https://lifehacker.com/how-to-deal-with-apple-s-inconsistent-alerts-system-1823355397>
 
 在 iOS 设备或 Mac 电脑上设定提醒有多种方式。你可以询问 Siri，使用你的时钟应用程序，设置提醒，或者设置闹钟。不幸的是，这些都带有一些警告，可能会让你困惑为什么你的手机会在凌晨 3 点响起——或者最终你会因为错过提醒而冲出门去，你以为你的 HomePod 会和你分享。工程师 Dr. Drang 看了看 它是如何工作的，并且发现，嗯，它相当令人困惑。
 

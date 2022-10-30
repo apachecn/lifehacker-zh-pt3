@@ -1,6 +1,6 @@
 # 从耐心开始
 
-> 原文:[https://lifehacker.com/start-with-patience-1787467637](https://lifehacker.com/start-with-patience-1787467637)
+> 原文：<https://lifehacker.com/start-with-patience-1787467637>
 
 耐心是几乎所有好习惯的基础。没有它，你就不能省钱、学习新技能或减肥。耐心也是最难培养的品质之一。
 

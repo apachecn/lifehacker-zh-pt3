@@ -1,6 +1,6 @@
 # 当你参观神圣的空间时，自拍前要三思
 
-> 原文:[https://life hacker . com/when-you-visit-sacred-spaces-think-before-you-self ie-1797108885](https://lifehacker.com/when-you-visit-sacred-spaces-think-before-you-selfie-1797108885)
+> 原文：<https://lifehacker.com/when-you-visit-sacred-spaces-think-before-you-selfie-1797108885>
 
 自拍的兴起导致了社会的裂痕，引发了数量惊人的性别、阶级、年龄、宗教和种族问题。*《连线》*的杰森·帕勒姆在 [“当自拍变成亵渎”，](https://www.wired.com/story/when-the-selfie-turns-sacreligious/) 一篇关于在清真寺和艺术设施等神圣或严肃的地方自拍的文章中探讨了这些问题。
 

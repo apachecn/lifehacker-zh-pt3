@@ -1,6 +1,6 @@
 # 当你的电脑过热时，如何修复“CPU 温度错误”
 
-> 原文:[https://life hacker . com/how-to-fix-a-CPU-temperature-error-when-your-computer-g-1829336876](https://lifehacker.com/how-to-fix-a-cpu-temperature-error-when-your-computer-g-1829336876)
+> 原文：<https://lifehacker.com/how-to-fix-a-cpu-temperature-error-when-your-computer-g-1829336876>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-dA4Zzhbxi7w&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-dA4Zzhbxi7w&start=0) 
 

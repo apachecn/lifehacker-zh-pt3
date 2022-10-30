@@ -1,6 +1,6 @@
 # 如何用你真正需要的设备设置你的家庭酒吧
 
-> 原文:[https://life hacker . com/how-to-set-up-you-the-equipment-you-actu-1797905524](https://lifehacker.com/how-to-set-up-your-home-bar-with-the-equipment-you-actu-1797905524)
+> 原文：<https://lifehacker.com/how-to-set-up-your-home-bar-with-the-equipment-you-actu-1797905524>
 
 除了基本的运动技能和适度的自制力，制作鸡尾酒还需要一些具体的工具，以及我们为什么要这样使用这些工具的知识。这就是为什么我， [一个](https://www.instagram.com/doubledragonpdx/) 类型的调酒师，在这里帮忙。这篇文章按照需要和不需要的不同程度，分为你需要和不需要的东西的清单。但是在我们去购物之前，让我们先来了解一些关于鸡尾酒好坏的基本规则，因为这些规则会影响到列表中的许多选择。
 

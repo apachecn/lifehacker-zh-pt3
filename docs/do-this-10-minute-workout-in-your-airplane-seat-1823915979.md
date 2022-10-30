@@ -1,6 +1,6 @@
 # 在你的飞机座位上做 10 分钟的锻炼
 
-> 原文:[https://life hacker . com/do-this-10 分钟-在你的飞机座位上锻炼-1823915979](https://lifehacker.com/do-this-10-minute-workout-in-your-airplane-seat-1823915979)
+> 原文：<https://lifehacker.com/do-this-10-minute-workout-in-your-airplane-seat-1823915979>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Kxe8I7A5HsY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Kxe8I7A5HsY&start=0) 
 

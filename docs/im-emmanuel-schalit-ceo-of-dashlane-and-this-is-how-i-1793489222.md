@@ -1,6 +1,6 @@
 # 我是艾曼纽·沙利特，Dashlane 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Emmanuel-sch alit-of-dash lane-and-this-is-how-I-1793489222](https://lifehacker.com/im-emmanuel-schalit-ceo-of-dashlane-and-this-is-how-i-1793489222)
+> 原文：<https://lifehacker.com/im-emmanuel-schalit-ceo-of-dashlane-and-this-is-how-i-1793489222>
 
 似乎每天都有新的黑客攻击、漏洞或安全漏洞被发现，而在如何保护自己的问题上，只有一条建议是始终如一的:使用密码管理器。最安全的密码是你自己都不知道的密码。
 

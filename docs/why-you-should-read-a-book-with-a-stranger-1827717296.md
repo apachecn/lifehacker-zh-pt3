@@ -1,6 +1,6 @@
 # 为什么你应该和一个陌生人一起读书
 
-> 原文:[https://life hacker . com/why-you-should-read-a book with-a 陌生人-1827717296](https://lifehacker.com/why-you-should-read-a-book-with-a-stranger-1827717296)
+> 原文：<https://lifehacker.com/why-you-should-read-a-book-with-a-stranger-1827717296>
 
 本周，我和一个陌生人在电话上读了一本书，一点也不尴尬。现在，我有一些大声朗读的经验，因为我和我的妻子每天晚上都给对方读《T2》和《T3》。但是如果你尝试一下 [Audrey](https://readwithaudrey.co.uk/) ，你会很快学会，这是一种将读者配对并给他们一本书的章节的服务，特别格式化为每次通过电话阅读 10 分钟。
 

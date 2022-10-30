@@ -1,6 +1,6 @@
 # 使用这个鬼祟的技巧画出完美的两点透视
 
-> 原文:[https://life hacker . com/use-this-sneaky-trick-to-draw-in-perfect-two-point-pers-1819456844](https://lifehacker.com/use-this-sneaky-trick-to-draw-in-perfect-two-point-pers-1819456844)
+> 原文：<https://lifehacker.com/use-this-sneaky-trick-to-draw-in-perfect-two-point-pers-1819456844>
 
 所有的绘画都是关于技巧和技能的——至少在你把艺术灵感加入其中之前是如此。当你仔细想想，技术和技巧真的只是技巧。
 

@@ -1,6 +1,6 @@
 # 自从你第一次学习急救知识以来，所有的急救知识都发生了变化
 
-> 原文:[https://life hacker . com/all-the-急救材料-自你第一次-l-1742121480](https://lifehacker.com/all-the-first-aid-stuff-thats-changed-since-you-first-l-1742121480)
+> 原文：<https://lifehacker.com/all-the-first-aid-stuff-thats-changed-since-you-first-l-1742121480>
 
 你上一次上急救课是什么时候？“80 年代？”90 后？就像医疗领域的所有事情一样，急救也在不断发展，10 年前你作为第一反应者所学的可能在今天已经完全错误了。让我们来看看过去几年中一些最大的变化。
 

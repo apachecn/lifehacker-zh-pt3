@@ -1,6 +1,6 @@
 # 欺骗你的敌人成为盟友的四种卑鄙方法
 
-> 原文:[https://life hacker . com/four-sneaky-ways-to-trick-your-the-sensing-your-sensing-al-1738663578](https://lifehacker.com/four-sneaky-ways-to-trick-your-enemies-into-becoming-al-1738663578)
+> 原文：<https://lifehacker.com/four-sneaky-ways-to-trick-your-enemies-into-becoming-al-1738663578>
 
 亲近你的朋友，更要亲近你的敌人。你可能不喜欢它们，但这并不意味着它们对你没用——或者至少是远离它们。这里有四个聪明的心理技巧来把他们变成盟友。
 

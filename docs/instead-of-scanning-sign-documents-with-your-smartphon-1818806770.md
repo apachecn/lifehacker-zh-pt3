@@ -1,6 +1,6 @@
 # 用智能手机签署文件，而不是扫描
 
-> 原文:[https://life hacker . com/inst-of-scanning-sign-documents-with-your-smart phon-1818806770](https://lifehacker.com/instead-of-scanning-sign-documents-with-your-smartphon-1818806770)
+> 原文：<https://lifehacker.com/instead-of-scanning-sign-documents-with-your-smartphon-1818806770>
 
 虽然完全数字化的日子似乎越来越近，但有时仍有报纸需要讨厌的真实签名。虽然文件扫描应用程序意味着你不必拥有一台扫描仪或深夜跑去 Kinko，但现有的选项远非完美的 ，现在是你开始利用你的微型掌上电脑的时候了。
 

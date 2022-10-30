@@ -1,6 +1,6 @@
 # 我是 Maker Faire 的联合创始人 Sherry Huss，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-maker-faire-联合创始人-sherry-huss-and-this-is-how-1827018715](https://lifehacker.com/im-maker-faire-co-founder-sherry-huss-and-this-is-how-1827018715)
+> 原文：<https://lifehacker.com/im-maker-faire-co-founder-sherry-huss-and-this-is-how-1827018715>
 
 世界各地的博览会每年吸引超过一百万的游客。当首席创客雪莉·胡斯(Sherry Huss)在 2005 年共同创办第一届创客节时，她已经组织了九年的科技和媒体活动。现在，她已经经营了 12 年的 Maker Faires，管理着一个全球团队，同时还在进行几个副业项目。她向我们详细介绍了她的工作习惯、管理技巧，以及发起和运行每一个集会的过程。
 

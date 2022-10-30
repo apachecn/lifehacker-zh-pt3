@@ -1,6 +1,6 @@
 # 如何为你的第二个孩子保护你的房子
 
-> 原文:[https://life hacker . com/how-to-child proof-your house for your ' s second-kid-1829336081](https://lifehacker.com/how-to-childproof-your-house-for-your-second-kid-1829336081)
+> 原文：<https://lifehacker.com/how-to-childproof-your-house-for-your-second-kid-1829336081>
 
 当我怀我女儿的时候，我丈夫仔细检查了儿童安全清单，确保我们的家不会成为一个相信整个世界都在等待被触摸、攀爬和舔的孩子的危险区域。我们 [在地板上爬行，寻找潜在的危险](https://lifehacker.com/how-to-throw-a-resource-party-1829311193) 。我们 [告别了我们锋利的玻璃茶几](https://offspring.lifehacker.com/get-rid-of-your-coffee-table-1821800590) 。我们 [用螺栓将梳妆台固定在墙上](https://offspring.lifehacker.com/psa-parents-bolt-your-dresser-to-a-wall-1803785247) ，锁好清洁用品柜，并在电源插座上装上安全罩。我女儿现在五岁了，还活着。
 

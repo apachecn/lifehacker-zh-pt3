@@ -1,6 +1,6 @@
 # 我们被一颗巨大的小行星撞击的可能性有多大，录制音乐的演变，以及商标更换狂潮
 
-> 原文:[https://life hacker . com/how-probability-we-to-get-how-probability-to-be-the-e-1791500761](https://lifehacker.com/how-likely-we-are-to-get-hit-by-a-giant-asteroid-the-e-1791500761)
+> 原文：<https://lifehacker.com/how-likely-we-are-to-get-hit-by-a-giant-asteroid-the-e-1791500761>
 
 本周我们谈论标志的变化——如果有人真的喜欢它们，我们被巨大的小行星撞击的可能性有多大，录音音乐从蜡筒到 MP3 的演变，以及 PowerBooks、iBooks 和 MacBooks 的 25 年。*<small></small>*<small>T4】</small>
 

@@ -1,6 +1,6 @@
 # 保护蜜蜂，月桂叶的无用，和五年树莓 Pi 在本周的亮点
 
-> 原文:[https://life hacker . com/protecting-bees-the-徒劳的-of-bay-leaves-and-five-y-1793403061](https://lifehacker.com/protecting-bees-the-futility-of-bay-leaves-and-five-y-1793403061)
+> 原文：<https://lifehacker.com/protecting-bees-the-futility-of-bay-leaves-and-five-y-1793403061>
 
 本周，我们了解了为什么某些种类的野花对最需要它的蜜蜂没有帮助，调查了月桂叶是否真的增加了任何味道，回顾了五年来对树莓派的研究，等等。这里回顾一下。
 

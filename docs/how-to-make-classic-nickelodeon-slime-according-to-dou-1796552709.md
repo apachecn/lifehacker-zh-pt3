@@ -1,6 +1,6 @@
 # 《双重挑战》主持人马克·萨默斯讲述了如何制作经典的尼克儿童频道节目
 
-> 原文:[https://life hacker . com/how-to-make-classic-Nickelodeon-slime-by-dou-1796552709](https://lifehacker.com/how-to-make-classic-nickelodeon-slime-according-to-dou-1796552709)
+> 原文：<https://lifehacker.com/how-to-make-classic-nickelodeon-slime-according-to-dou-1796552709>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-O_YuTMDkWfI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-O_YuTMDkWfI&start=0) 
 

@@ -1,6 +1,6 @@
 # 如何将一顿牛排晚餐变成砂锅菜
 
-> 原文:[https://life hacker . com/how-to-transform-a-all-steak-dinner-1819003745](https://lifehacker.com/how-to-transform-an-entire-steak-dinner-into-a-casserol-1819003745)
+> 原文：<https://lifehacker.com/how-to-transform-an-entire-steak-dinner-into-a-casserol-1819003745>
 
 你好，欢迎来到*会砂锅吗？*复古周对 [*的回答会不会 Sous Vide？基本上，我不是用沉浸式循环器做你想让我做的任何东西，而是把一顿饭做成砂锅。*](https://lifehacker.com/tag/will-it-sous-vide) 
 

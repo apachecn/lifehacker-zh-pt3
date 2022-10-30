@@ -1,6 +1,6 @@
 # Windows 10 S:关于微软新的轻量级操作系统你需要知道什么
 
-> 原文:[https://gizmodo . com/windows-10-s-what-you-need-know-on-Microsoft-ne-1794809488](https://gizmodo.com/windows-10-s-what-you-need-to-know-about-microsofts-ne-1794809488)
+> 原文：<https://gizmodo.com/windows-10-s-what-you-need-to-know-about-microsofts-ne-1794809488>
 
 谷歌 [Chrome 已经变得如此之好，以至于说到负担得起的高质量笔记本电脑](http://gizmodo.com/samsungs-new-chromebook-is-a-nearly-perfect-budget-comp-1792183698#_ga=2.119983311.672853170.1493736297-62593606.1484261959) ，它比廉价的 Windows 设备更划算。因此，微软需要一个轻量级的操作系统来竞争，它真的希望专注于教育的 Windows 10 S 将成为那个操作系统。
 

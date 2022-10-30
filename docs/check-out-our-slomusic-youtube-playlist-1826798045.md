@@ -1,6 +1,6 @@
 # 查看我们的 SloMusic YouTube 播放列表
 
-> 原文:[https://life hacker . com/check-out-our-SLO music-YouTube-playlist-1826798045](https://lifehacker.com/check-out-our-slomusic-youtube-playlist-1826798045)
+> 原文：<https://lifehacker.com/check-out-our-slomusic-youtube-playlist-1826798045>
 
 八年前，音乐家尼克·皮辛格通过让贾斯汀比伯的《U Smile》听起来像环境流行乐队 Sigur Rós。比伯的憎恨者庆祝这一美丽的编辑，从那以后，人们一直将歌曲放慢 800%，1000%，或更多，并将它们上传到 YouTube 和 SoundCloud。这种类型的音乐声音平滑，缺乏可辨的歌词，这使它成为创作的绝佳背景音乐，所以我们在 YouTube 播放列表中收集了一些最好的音乐， [“所有音乐在 1/10 的速度下听起来都很好。”](https://www.youtube.com/playlist?list=PLB49G4a_hTex43dLtVQZZmxAi5oZnmEFi)
 

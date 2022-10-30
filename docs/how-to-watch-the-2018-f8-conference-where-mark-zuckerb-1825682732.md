@@ -1,6 +1,6 @@
 # 如何观看 2018 年 F8 会议，马克·扎克伯格将在会上为数据隐私流汗
 
-> 原文:[https://life hacker . com/how-to-watch-the-2018-F8-conference-where-mark-zuckerb-1825682732](https://lifehacker.com/how-to-watch-the-2018-f8-conference-where-mark-zuckerb-1825682732)
+> 原文：<https://lifehacker.com/how-to-watch-the-2018-f8-conference-where-mark-zuckerb-1825682732>
 
 而你以为 [帽衫让马克扎克伯格汗流浃背](https://www.youtube.com/watch?v=G4XGbZ7IrC8) 。尽管脸书的霸主在上个月的两次不同的国会听证会上回答问题做得很好，但你可以期待扎克在今年 F8 开发者大会的开幕主题演讲中就数据隐私发表一些看法。
 

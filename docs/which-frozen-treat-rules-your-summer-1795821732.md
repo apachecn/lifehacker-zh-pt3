@@ -1,6 +1,6 @@
 # 哪个冰冻甜点主宰你的夏天？
 
-> 原文:[https://life hacker . com/which-frozen-treat-rules-your-summer-1795821732](https://lifehacker.com/which-frozen-treat-rules-your-summer-1795821732)
+> 原文：<https://lifehacker.com/which-frozen-treat-rules-your-summer-1795821732>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，每周一次的公开讨论，在这里你可以分享你所有关于食物的想法、建议、食谱和观点。本周我想谈谈你最喜欢的冷冻食品，从经典的冰淇淋车到成人的格兰尼塔。
 

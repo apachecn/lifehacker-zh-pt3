@@ -1,6 +1,6 @@
 # 我是奥运体操运动员出身的投资者肖恩·约翰逊·伊斯特，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Olympic-体操运动员出身的投资者-Shawn-Johnson-east-1819337174](https://lifehacker.com/im-olympic-gymnast-turned-investor-shawn-johnson-east-1819337174)
+> 原文：<https://lifehacker.com/im-olympic-gymnast-turned-investor-shawn-johnson-east-1819337174>
 
 在北京奥运会上赢得四枚银牌和一枚金牌九年后，肖恩·约翰逊·伊斯特加入了美国消费者新闻与商业频道冒险资本家的投资团队。与此同时，她出版了一本回忆录和一本小说，获得了一个 ESPY 和一个青少年选择奖，并参加了*与星共舞*、*名人学徒*和慈善集*谁想成为百万富翁？我们问她是如何做到这一切的。* 
 

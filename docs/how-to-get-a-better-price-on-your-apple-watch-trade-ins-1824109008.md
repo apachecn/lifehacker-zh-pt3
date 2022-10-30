@@ -1,6 +1,6 @@
 # 如何在你的 Apple Watch 折价交易中获得更好的价格
 
-> 原文:[https://life hacker . com/how-to-get-a-better-price-on-your-apple-watch-trade-ins-1824109008](https://lifehacker.com/how-to-get-a-better-price-on-your-apple-watch-trade-ins-1824109008)
+> 原文：<https://lifehacker.com/how-to-get-a-better-price-on-your-apple-watch-trade-ins-1824109008>
 
 [苹果](https://lifehacker.com/when-you-should-skip-apple-upgrades-1821013599) 让你用旧苹果手表换商店积分变得更加容易。该公司之前开展了一项在线以旧换新计划，现在也将亲自接收你的旧智能手表。更好的是，苹果似乎为面对面的以旧换新支付了比在线以旧换新更多的费用。
 

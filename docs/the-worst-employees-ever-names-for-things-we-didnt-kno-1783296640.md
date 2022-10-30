@@ -1,6 +1,6 @@
 # 有史以来最糟糕的员工，我们不知道有名字的东西的名字，以及童年的欺凌
 
-> 原文:[https://life hacker . com/the-worst-employees-ever-name-for-things-we-not-kno-1783296640](https://lifehacker.com/the-worst-employees-ever-names-for-things-we-didnt-kno-1783296640)
+> 原文：<https://lifehacker.com/the-worst-employees-ever-names-for-things-we-didnt-kno-1783296640>
 
 向人类第一艘星际飞船致敬，在有历史记录之前发生了什么，小时候被欺负如何改变你的成年生活，以及有史以来最糟糕的雇员都在本周的 Lifehacker Brain 自助餐中等待着你。
 

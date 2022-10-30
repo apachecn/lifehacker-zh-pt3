@@ -1,6 +1,6 @@
 # Bobby App 为您跟踪您的订阅
 
-> 原文:[https://life hacker . com/bobby-tracks-you-subscriptions-for-you-1819653915](https://lifehacker.com/bobby-tracks-your-subscriptions-for-you-1819653915)
+> 原文：<https://lifehacker.com/bobby-tracks-your-subscriptions-for-you-1819653915>
 
 iOS:如果你和我一样，在你忘记取消免费试用很久之后，你经历过不想要的订阅从你的支票账户中榨干钱的痛苦。如果你想在不仔细阅读银行对账单的情况下最终处理好你所有的订阅，看看 [鲍比](http://www.bobbyapp.co/) 。这是一个 iOS 应用程序，可以让你跟踪多个订阅，看看你每个月花了多少钱。它唯一需要的是开始前的一些准备工作(以及购买 1.99 美元的应用程序内选项)。
 

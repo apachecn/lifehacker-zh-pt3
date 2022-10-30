@@ -1,6 +1,6 @@
 # 如何使用最后一点凯撒酱
 
-> 原文:[https://life hacker . com/how-to-use-the last-bit of the Caesar-dressing-1826568382](https://lifehacker.com/how-to-use-that-last-bit-of-caesar-dressing-1826568382)
+> 原文：<https://lifehacker.com/how-to-use-that-last-bit-of-caesar-dressing-1826568382>
 
 实话实说:人们不会为罗马人点凯撒沙拉。脆生菜可能是大蒜、柠檬和鲜味的完美空白画布，但凯撒沙拉配料，特别是调料，可以在你最喜欢的野餐沙拉上创造奇迹。
 

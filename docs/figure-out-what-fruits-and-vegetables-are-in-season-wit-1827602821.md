@@ -1,6 +1,6 @@
 # 用这个应用程序找出什么水果和蔬菜是当季的
 
-> 原文:[https://life hacker . com/figure-out-what-fruit-and-vegetables-in-season-wit-1827602821](https://lifehacker.com/figure-out-what-fruits-and-vegetables-are-in-season-wit-1827602821)
+> 原文：<https://lifehacker.com/figure-out-what-fruits-and-vegetables-are-in-season-wit-1827602821>
 
 我们都知道，现在当季的水果和蔬菜会比那些不当季的更好吃，也更实惠，但是请记住什么是当季的水果和蔬菜。
 

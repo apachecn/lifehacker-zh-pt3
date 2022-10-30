@@ -1,6 +1,6 @@
 # 你不需要更多的金钱建议，你只需要你能认同的建议
 
-> 原文:[https://life hacker . com/you-don-t-need-more-money-advice-you-just-need-advice-1793489761](https://lifehacker.com/you-don-t-need-more-money-advice-you-just-need-advice-1793489761)
+> 原文：<https://lifehacker.com/you-don-t-need-more-money-advice-you-just-need-advice-1793489761>
 
 如果你正在读这篇文章，你可能至少对理顺你的财务有点兴趣。也许你已经试过了！也许 [你已经读过一堆建议](https://lifehacker.com/you-probably-dont-need-more-financial-advice-just-make-1787874086) ，但似乎没有一条对你有效。如果这听起来很熟悉，解决办法可能不是去找*更多的*建议。相反，集中精力寻找适合你的建议。
 

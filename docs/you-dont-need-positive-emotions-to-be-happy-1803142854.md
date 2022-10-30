@@ -1,6 +1,6 @@
 # 快乐不需要积极的情绪
 
-> 原文:[https://life hacker . com/you-done-need-positive-emotions-to-be-happy-1803142854](https://lifehacker.com/you-dont-need-positive-emotions-to-be-happy-1803142854)
+> 原文：<https://lifehacker.com/you-dont-need-positive-emotions-to-be-happy-1803142854>
 
 根据一项新的研究，快乐的秘密不是让你的脑袋里一直塞满彩虹和独角兽。它倾向于与你的价值观一致的情绪——甚至是所谓的负面情绪。如果你能找出你最想要的感觉，并在这些感觉到来时尽情享受，你会过得更好。
 

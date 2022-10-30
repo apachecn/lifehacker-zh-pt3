@@ -1,6 +1,6 @@
 # 用这些工具给予组织的礼物
 
-> 原文:[https://life hacker . com/give-the-give-gift-of-organization-with these-tools-1788595648](https://lifehacker.com/give-the-gift-of-organization-with-these-tools-1788595648)
+> 原文：<https://lifehacker.com/give-the-gift-of-organization-with-these-tools-1788595648>
 
 如果你不确定给已经拥有一切的人买什么，给他们一些工具，他们可以用它们来保持一切井井有条。无论他们是喜欢旅行、烹饪，还是只是保持一个整洁的家，这些礼物都是完美的。
 

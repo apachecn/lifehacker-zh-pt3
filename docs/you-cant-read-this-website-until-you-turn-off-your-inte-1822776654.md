@@ -1,6 +1,6 @@
 # 除非您关闭互联网，否则您无法阅读此网站
 
-> 原文:[https://life hacker . com/you-cant-read-this-website-unt-you-turn-off-your-inte-1822776654](https://lifehacker.com/you-cant-read-this-website-until-you-turn-off-your-inte-1822776654)
+> 原文：<https://lifehacker.com/you-cant-read-this-website-until-you-turn-off-your-inte-1822776654>
 
 【The Disconnect】是一本以短篇小说、文章和诗歌为特色的新杂志，只在网上发行。但是你不能在上网的时候读它。在你断开手机或电脑与互联网的连接之前，网络杂志会隐藏在警告通知后面。(当你访问一个页面时，整个杂志就会加载。编辑克里斯·博林说:“这不是反对现代化的勒德分子的战斗口号。”。这是“正在进行的实验”
 

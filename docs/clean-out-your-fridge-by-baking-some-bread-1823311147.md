@@ -1,6 +1,6 @@
 # 烤些面包来清理你的冰箱
 
-> 原文:[https://life hacker . com/clean-out-of-your ' s-from-baking-some-bread-1823311147](https://lifehacker.com/clean-out-your-fridge-by-baking-some-bread-1823311147)
+> 原文：<https://lifehacker.com/clean-out-your-fridge-by-baking-some-bread-1823311147>
 
 如果你在过去五年左右的时间里碰巧访问了 Pinterest，你肯定会看到一个或十个三种成分、不揉面包的配方。这些食谱广受欢迎是有原因的。这些面包不仅令人印象深刻，因为它们需要大量的工作，而且它们是你想从冰箱中清除的任何零碎物品的绝佳载体，从几盎司的奶酪到孤独的水果和蔬菜。
 

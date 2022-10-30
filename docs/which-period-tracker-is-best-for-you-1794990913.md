@@ -1,6 +1,6 @@
 # 月经追踪摊牌:哪个时期追踪器最适合你？
 
-> 原文:[https://life hacker . com/which-period-tracker-is-best-for-you-1794990913](https://lifehacker.com/which-period-tracker-is-best-for-you-1794990913)
+> 原文：<https://lifehacker.com/which-period-tracker-is-best-for-you-1794990913>
 
 有这么多不同的时期跟踪应用程序，因为有这么多不同的理由使用一个程序:也许你想留意生育期 [，这样你就可以怀孕](https://lifehacker.com/the-pros-and-cons-of-using-a-fertility-app-to-try-to-ge-1785341014) ，或者也许你想每天跟踪你的情绪和症状，这样你就可以在你的周期同步时发现你是否头痛或感觉暴躁。所以我们今天不会宣布赢家，而是告诉你在我们看来，三个最好的时期追踪器的利与弊。
 

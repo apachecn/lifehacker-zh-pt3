@@ -1,6 +1,6 @@
 # 健身房人多如何健身
 
-> 原文:[https://life hacker . com/how-to-work out-when-the-gym-拥挤-1750419523](https://lifehacker.com/how-to-work-out-when-the-gym-is-crowded-1750419523)
+> 原文：<https://lifehacker.com/how-to-work-out-when-the-gym-is-crowded-1750419523>
 
 这是一年中最不愉快的时候来一次平静的锻炼。本周，一群群渴望锻炼的人将挤满全国的体育馆，来实现他们的决心。无论你是一个新手，还是一个想按计划出汗的普通人，以下是如何应对或摆脱人群的方法。
 

@@ -1,6 +1,6 @@
 # 浏览器扩展有助于将“埃隆·马斯克”改为“格莱姆斯的男朋友”
 
-> 原文:[https://www . av club . com/browser-extension-helply-changes-elon-musk-to-gri-1825921472](https://www.avclub.com/browser-extension-helpfully-changes-elon-musk-to-gri-1825921472)
+> 原文：<https://www.avclub.com/browser-extension-helpfully-changes-elon-musk-to-gri-1825921472>
 
 如果你也一直在与认知失调作斗争，格莱姆斯，一个去除流派的音乐家，他创造了几个世界级的唱片和 EPs，也创造了有史以来最好的音乐视频之一[，现在正在与埃隆·马斯克约会，一个非常不酷的富人，有人曾把他描述为现实世界的托尼·斯塔克，他现在似乎痴迷于实现这一描述，包括像](https://www.youtube.com/watch?v=JtH68PJIQLE) [这样的老掉牙的企业，销售大型火焰喷射器](https://sploid.gizmodo.com/elon-musk-would-like-to-sell-you-a-flamethrower-1822496000) 并声称他将 [很诡异。Grimes 是一个非常古怪的人，她已经形成了自己的视听风格，现在她穿着特斯拉标志的项链出现在大都会歌剧院。这不应该。](https://news.avclub.com/elon-musk-says-he-is-building-a-checks-notes-cyborg-1825565531) 
 

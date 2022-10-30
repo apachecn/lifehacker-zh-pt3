@@ -1,6 +1,6 @@
 # 没有核武器:没有微波炉我怎么活得好好的
 
-> 原文:[https://the take out . com/no-nukes-how-I-live-just-fine-without a-microwave-1822444003](https://thetakeout.com/no-nukes-how-i-live-just-fine-without-a-microwave-1822444003)
+> 原文：<https://thetakeout.com/no-nukes-how-i-live-just-fine-without-a-microwave-1822444003>
 
 当我告诉妈妈我没有为一年前搬进的房子买微波炉时，她犹豫了，然后提出给我寄钱买一台微波炉。体贴的同事们也自愿带头发起众筹运动。
 

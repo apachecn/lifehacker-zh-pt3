@@ -1,6 +1,6 @@
 # 我是 FreshBooks 的联合创始人迈克·麦克德蒙特，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-fresh books-联合创始人-Mike-mcderment-and-this-is-ho-1825693501](https://lifehacker.com/im-freshbooks-co-founder-mike-mcderment-and-this-is-ho-1825693501)
+> 原文：<https://lifehacker.com/im-freshbooks-co-founder-mike-mcderment-and-this-is-ho-1825693501>
 
 发票服务 [FreshBooks](https://www.freshbooks.com/) 是面向自由职业者和创业者的软件佳能的一部分。从 [2009](https://lifehacker.com/freshbooks-takes-the-hassle-out-of-invoicing-5400673) 到 [2018](https://twocents.lifehacker.com/how-to-budget-as-a-freelancer-1823156864) 的 Lifehacker 推荐中都有显示，在给多个客户开账单时，这仍然是保持理智的最佳方式之一。两年前，该公司推出了一个全新的版本，这个版本是以比尔·斯普林的名字秘密开发的。我们与 FreshBooks 联合创始人兼首席执行官迈克·麦克德蒙特(Mike McDerment)讨论了打造自己公司最大竞争对手的问题。
 

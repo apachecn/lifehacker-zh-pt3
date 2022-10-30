@@ -1,6 +1,6 @@
 # 维基百科是世界各地的旅游指南
 
-> 原文:[https://life hacker . com/wikivoyage-is-the-travel-guide-to-everywhere-1823713768](https://lifehacker.com/wikivoyage-is-the-travel-guide-to-everywhere-1823713768)
+> 原文：<https://lifehacker.com/wikivoyage-is-the-travel-guide-to-everywhere-1823713768>
 
 在每周的 [Hack Your City](https://lifehacker.com/c/hack-your-city) 节目中，当我向 Lifehacker 的读者们征求旅行建议时，我尽量加入一些当地的色彩。所以我查了一下 [维基百科](https://en.wikivoyage.org/) ，这个旅行维基比维基百科更像一个现实生活中的 [银河系漫游指南](https://en.wikipedia.org/wiki/The_Hitchhiker%27s_Guide_to_the_Galaxy) 。
 

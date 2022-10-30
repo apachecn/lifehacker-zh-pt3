@@ -1,6 +1,6 @@
 # 我们的个人理财作家所信赖的理财软件
 
-> 原文:[https://life hacker . com/the-money-apps-a-personal-finance-writer-sweets-by-1823696312](https://lifehacker.com/the-money-apps-a-personal-finance-writer-swears-by-1823696312)
+> 原文：<https://lifehacker.com/the-money-apps-a-personal-finance-writer-swears-by-1823696312>
 
 作为一名个人理财作家，我不断测试新的理财应用和程序，寻找最有用、最易用的工具。虽然我没有尝试市场上的每一款应用，但有几款非常突出，我在日常生活中使用它们来管理我的财务。
 

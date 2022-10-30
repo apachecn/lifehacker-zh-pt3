@@ -1,6 +1,6 @@
 # 你应该做那个病毒肉棒吗？
 
-> 原文:[https://life hacker . com/should-you-make the-virtual-meat-stick-recipe-1829152738](https://lifehacker.com/should-you-make-that-viral-meat-stick-recipe-1829152738)
+> 原文：<https://lifehacker.com/should-you-make-that-viral-meat-stick-recipe-1829152738>
 
 有好的黑客， [也有坏的黑客](https://lifehacker.com/these-coca-cola-hacks-are-as-pointless-as-they-are-ente-1827480241) ，在这个在线出版物中，我们喜欢给你好的“uns”。一个好的黑客应该让一个人的生活更容易，无论是通过以新的方式使用一个普通的对象，简化一个过程，还是解决一个你不知道自己遇到的问题。我不确定这种 DIY 挤压机*肉类*的那些标准。
 

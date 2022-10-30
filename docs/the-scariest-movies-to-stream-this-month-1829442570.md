@@ -1,6 +1,6 @@
 # 本月最恐怖的电影
 
-> 原文:[https://life hacker . com/the-terrible-movies-to-stream-this-month-1829442570](https://lifehacker.com/the-scariest-movies-to-stream-this-month-1829442570)
+> 原文：<https://lifehacker.com/the-scariest-movies-to-stream-this-month-1829442570>
 
 现在是十月，你知道这意味着什么——是时候让网飞充满僵尸、令人毛骨悚然的玩偶、鬼魂、恐怖分子和心理折磨了。
 

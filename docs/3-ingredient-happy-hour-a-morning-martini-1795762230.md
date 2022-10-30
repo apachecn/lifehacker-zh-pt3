@@ -1,6 +1,6 @@
 # 三种配料的欢乐时光:一杯早晨马丁尼
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-morning-martini-1795762230](https://lifehacker.com/3-ingredient-happy-hour-a-morning-martini-1795762230)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-morning-martini-1795762230>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我想谈谈早晨饮料，特别是早晨杜松子酒。
 

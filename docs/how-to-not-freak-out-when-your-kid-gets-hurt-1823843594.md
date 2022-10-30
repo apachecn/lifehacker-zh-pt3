@@ -1,6 +1,6 @@
 # 当你的孩子受伤时，如何不抓狂
 
-> 原文:[https://life hacker . com/how-to-not-freak-out-when your-kid-beat-1823843594](https://lifehacker.com/how-to-not-freak-out-when-your-kid-gets-hurt-1823843594)
+> 原文：<https://lifehacker.com/how-to-not-freak-out-when-your-kid-gets-hurt-1823843594>
 
 孩子们经常摔倒，他们也经常受伤。这是一个特性，不是一个 bug。在你能走之前你必须先爬，在你能跑之前你必须先走，在你的大脑能想出如何操作你的四肢之前你必须被你笨拙的脚绊倒五千次。
 

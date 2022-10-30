@@ -1,6 +1,6 @@
 # 中彩票如何匿名
 
-> 原文:[https://life hacker . com/how-to-stay-anonymous-when you-win-the-lottery-1822868057](https://lifehacker.com/how-to-stay-anonymous-when-you-win-the-lottery-1822868057)
+> 原文：<https://lifehacker.com/how-to-stay-anonymous-when-you-win-the-lottery-1822868057>
 
 我们都幻想中彩票，对吗？新车，船，还有...诉讼、掠夺者和破产？中奖的彩票并不一定是幸福生活的彩票，这正是一月份 5.6 亿美元强力球头奖得主不想公开自己名字的原因 。但是她所居住的新罕布什尔州不允许中奖者匿名领取奖金，所以在一月份她提起了诉讼，试图保护她的身份。
 

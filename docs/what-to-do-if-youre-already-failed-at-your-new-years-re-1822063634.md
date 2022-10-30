@@ -1,6 +1,6 @@
 # 如果你的新年决心已经失败了，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you-years-re-1822063634](https://lifehacker.com/what-to-do-if-youre-already-failed-at-your-new-years-re-1822063634)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-already-failed-at-your-new-years-re-1822063634>
 
 很有可能你已经决定放弃你的新年决心。
 

@@ -1,6 +1,6 @@
 # 如何让盲人更容易看到你的推文
 
-> 原文:[https://life hacker . com/how-to-make-your-tweets-more-accessible-to-the blind-1821784471](https://lifehacker.com/how-to-make-your-tweets-more-accessible-to-the-blind-1821784471)
+> 原文：<https://lifehacker.com/how-to-make-your-tweets-more-accessible-to-the-blind-1821784471>
 
 你的推特上可能有很多图片。照片、视频和 gif 可以为一条推文增加很多内容，但对于看不到它们的视障人士来说可能会令人沮丧。
 

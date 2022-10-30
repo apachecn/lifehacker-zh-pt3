@@ -1,6 +1,6 @@
 # 到 35 岁时，你需要存多少钱
 
-> 原文:[https://life hacker . com/how-mud-money-you-35-1826106733](https://lifehacker.com/how-much-money-you-need-to-save-by-the-time-youre-35-1826106733)
+> 原文：<https://lifehacker.com/how-much-money-you-need-to-save-by-the-time-youre-35-1826106733>
 
 在 Twitter 上，一些人正在 [热议 MarketWatch](https://twitter.com/MarketWatch/status/995381403830243328) 一篇最初发表于一月份的文章，该文章称，到你 35 岁时，你应该有双倍的薪水。
 

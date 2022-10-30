@@ -1,6 +1,6 @@
 # iPhone 的最佳日历应用
 
-> 原文:[https://life hacker . com/the-best-calendar-app-for-iphone-5833969](https://lifehacker.com/the-best-calendar-app-for-iphone-5833969)
+> 原文：<https://lifehacker.com/the-best-calendar-app-for-iphone-5833969>
 
 你在 iPhone 上有大量的日历选项，很多都是免费的，但说到最好的，我们推荐 fantastic 2，即使你要花 5 美元才能使用它。
 

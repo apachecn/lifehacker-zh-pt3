@@ -1,6 +1,6 @@
 # 职业聚焦:作为皮特的咖啡烘焙师我做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-peets-coffee-roast master-1777098061](https://lifehacker.com/career-spotlight-what-i-do-as-peets-coffee-roastmaster-1777098061)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-peets-coffee-roastmaster-1777098061>
 
 我喜欢一杯好咖啡。我不是鉴赏家——[我不为我的酿造方法](http://lifehacker.com/good-coffee-for-lazy-people-1773462342) 大惊小怪，但我有一个“方法”这一点就说明了一些事情。在咖啡店之外，追求一杯完美的咖啡已经变得越来越普遍，人们精心选择咖啡豆和酿造方法，使他们的早餐咖啡味道浓郁。这在厨房柜台上没什么问题，但你如何将这种奉献精神带到大规模运营中呢？
 

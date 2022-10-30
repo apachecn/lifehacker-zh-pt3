@@ -1,6 +1,6 @@
 # 微软 Windows 10 十月更新中最酷的东西
 
-> 原文:[https://life hacker . com/how-to-make-the-most-of-Microsoft-windows-10-October-u-1829524192](https://lifehacker.com/how-to-make-the-most-of-microsofts-windows-10-october-u-1829524192)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-microsofts-windows-10-october-u-1829524192>
 
 微软针对 Windows 10 的十月大更新来了。如果微软还没有把它推广到你的 Windows 机器上，你可以 [强制手动更新](https://blogs.windows.com/windowsexperience/2018/10/02/how-to-get-the-windows-10-october-2018-update/) ，只需点击你的开始按钮，键入单词“检查”，并选择“检查更新”选项。单击 Windows Update 下的灰色“检查更新”框，它应该会出现。
 

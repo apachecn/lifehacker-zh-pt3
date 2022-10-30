@@ -1,6 +1,6 @@
 # 如何在黑色星期五不做混蛋
 
-> 原文:[https://kotaku . com/how-to-not-a-jerk-on-black-Friday-1789315397](https://kotaku.com/how-to-not-be-a-jerk-on-black-friday-1789315397)
+> 原文：<https://kotaku.com/how-to-not-be-a-jerk-on-black-friday-1789315397>
 
 黑色星期五是零售业的大决战，甚至有适合的名字。在那邪恶的一天，资本主义的武装士兵在当地的游戏商店前进，他们的脑海里只有一件事:花更少的钱买新的东西。
 

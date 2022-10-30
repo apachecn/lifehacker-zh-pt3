@@ -1,6 +1,6 @@
 # 帮助你克服拖延症的四个问题
 
-> 原文:[https://life hacker . com/four-questions-to-help-you-克服拖延症-1784833178](https://lifehacker.com/four-questions-to-help-you-overcome-procrastination-1784833178)
+> 原文：<https://lifehacker.com/four-questions-to-help-you-overcome-procrastination-1784833178>
 
 拖延症就像你脑海中的一个声音，给了你几个看似合理的理由来避免做某事。通常很难提出反驳来克服它。因此，与其对着那个告诉你推迟某事的声音大喊大叫，为什么不问它一个问题呢？
 

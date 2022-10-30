@@ -1,6 +1,6 @@
 # 在观看比赛的同时，进行这种受奥运会启发的锻炼
 
-> 原文:[https://life hacker . com/do-this-Olympics-inspired-when-you-watch-the-g-1784858470](https://lifehacker.com/do-this-olympics-inspired-workout-while-you-watch-the-g-1784858470)
+> 原文：<https://lifehacker.com/do-this-olympics-inspired-workout-while-you-watch-the-g-1784858470>
 
 观看世界级的竞争对手激发了我们内心的运动员精神。当然，当你坐在沙发上吃零食的时候，你可以设置一个提醒来锻炼身体。但是为什么不立即利用这个灵感呢？尝试这些受奥运会启发的训练，这样你就可以在观看比赛时像冠军一样保持健康。
 

@@ -1,6 +1,6 @@
 # 把你的紧急信息放在你孩子的车座上
 
-> 原文:[https://life hacker . com/put-your-emergency-information-on-your-kids-car-seat-1823593452](https://lifehacker.com/put-your-emergency-information-on-your-kids-car-seat-1823593452)
+> 原文：<https://lifehacker.com/put-your-emergency-information-on-your-kids-car-seat-1823593452>
 
 我们希望你永远不会有和你的孩子一起遭遇严重车祸的经历。但是做好准备是有好处的，这个来自父母的建议可以帮助紧急救援人员进行救援。
 

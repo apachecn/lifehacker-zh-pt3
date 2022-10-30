@@ -1,6 +1,6 @@
 # 如何在冬天跑步而不冻死
 
-> 原文:[https://life hacker . com/how-to-run-outdoor-in-the-winter-1745499007](https://lifehacker.com/how-to-run-outdoors-in-the-winter-1745499007)
+> 原文：<https://lifehacker.com/how-to-run-outdoors-in-the-winter-1745499007>
 
 户外运动现在比以往任何时候都更重要，但严寒的天气一开始可能看起来有点令人不快。幸运的是，冬季跑步并不像看起来那么艰难。有了合适的装备，当你在冬日仙境中慢跑时，你的手指和耳朵可以保持温暖。
 

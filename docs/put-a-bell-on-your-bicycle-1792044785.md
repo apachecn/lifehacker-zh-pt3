@@ -1,6 +1,6 @@
 # 在你的自行车上放个铃铛
 
-> 原文:[https://life hacker . com/put-a-bell-on-your-bicycle-1792044785](https://lifehacker.com/put-a-bell-on-your-bicycle-1792044785)
+> 原文：<https://lifehacker.com/put-a-bell-on-your-bicycle-1792044785>
 
 没有什么比给自行车装个铃铛更傻的了。一旦你这样做了，它只能带领下坡进入一个 [头盔镜](https://www.amazon.com/Bike-Peddler-Cycling-Eyeglass-Original/dp/B000C17M26/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/put-a-bell-on-your-bicycle-1792044785&asc_source=&ie=UTF8&keywords=helmet mirror&qid=1486143822&s=sporting-goods&sr=1-2&tag=kinjalifehackerlink-20)[车把流苏](https://www.amazon.com/Bike-Handlebar-Streamers-Attachment-Handlebars/dp/B00C3OALJQ?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/put-a-bell-on-your-bicycle-1792044785&asc_source=&tag=kinjalifehackerlink-20)[高能见度脚踝带](https://www.amazon.com/High-Visibility-Reflective-Ankle-Bands/dp/B0006ZK8CO/ref=pd_sim_468_4?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/put-a-bell-on-your-bicycle-1792044785&asc_source=&psc=1&refRID=3XYTRP5ND0KNY4VS04MH&tag=kinjalifehackerlink-20) 的世界。但是你应该在你的自行车上放一个铃铛。它让你和你周围的人生活更轻松。
 

@@ -1,6 +1,6 @@
 # 称体重的时候不需要看数字
 
-> 原文:[https://life hacker . com/you-don-t-need-to-see-numbers-when-you-weigh-you-weight-you-you-weight-you-weigh-1821779411](https://lifehacker.com/you-don-t-need-to-see-numbers-when-you-weigh-yourself-1821779411)
+> 原文：<https://lifehacker.com/you-don-t-need-to-see-numbers-when-you-weigh-yourself-1821779411>
 
 我们中的一些人对数字过于着迷。也许我们大多数人。不幸的是，如果你每天早上站在体重秤上计算你是否在减肥，你面前就有一个数字*。如果比平时低一点，恭喜你！如果没有，那么，你现在很失败，不是吗？* 
 

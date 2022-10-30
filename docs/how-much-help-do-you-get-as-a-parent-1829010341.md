@@ -1,6 +1,6 @@
 # 作为父母，你得到了多少帮助？
 
-> 原文:[https://life hacker . com/how-much-help-do-you-get-a-parent-1829010341](https://lifehacker.com/how-much-help-do-you-get-as-a-parent-1829010341)
+> 原文：<https://lifehacker.com/how-much-help-do-you-get-as-a-parent-1829010341>
 
 在她的书《是的一年》中，珊达·瑞姆斯写道，她在高中的“每个早晨”都试图让自己的头发看起来像惠特尼·休斯顿的头发。“我生命中的很多时间都被热卷发棒、一瓶发胶和烧伤的指尖占据了，”她描述道。但是她从来没有做对过。直到她成年后，她才知道惠特尼戴着假发。
 

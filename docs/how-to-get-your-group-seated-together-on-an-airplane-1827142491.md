@@ -1,6 +1,6 @@
 # 如何让你的团队在飞机上坐在一起
 
-> 原文:[https://life hacker . com/how-to-get-your-group-seated-together-on-a-plant-1827142491](https://lifehacker.com/how-to-get-your-group-seated-together-on-an-airplane-1827142491)
+> 原文：<https://lifehacker.com/how-to-get-your-group-seated-together-on-an-airplane-1827142491>
 
 即使你提前预订了航班，有时你也很难在旅伴旁边找到座位。
 

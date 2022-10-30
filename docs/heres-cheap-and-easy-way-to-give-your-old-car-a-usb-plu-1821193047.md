@@ -1,6 +1,6 @@
 # 这里有一个便宜又简单的方法，可以给你的旧车换一个看起来不错的 USB 插头
 
-> 原文:[https://jalopnik . com/heres-cheap-and-easy-way-give-your-old-car-a-USB-plu-1821193047](https://jalopnik.com/heres-cheap-and-easy-way-to-give-your-old-car-a-usb-plu-1821193047)
+> 原文：<https://jalopnik.com/heres-cheap-and-easy-way-to-give-your-old-car-a-usb-plu-1821193047>
 
 你可以花几块钱为你汽车的 12 伏点烟器插头买一个 USB 适配器。但是如果你多花一点点时间和金钱，你可以拥有一个看起来足够干净的充电端口，就像是从工厂出来的一样。
 

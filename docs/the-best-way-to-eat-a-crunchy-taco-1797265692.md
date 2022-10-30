@@ -1,6 +1,6 @@
 # 吃松脆玉米卷的最好方法
 
-> 原文:[https://life hacker . com/the-best-way-to-eat-a-crunchy-taco-1797265692](https://lifehacker.com/the-best-way-to-eat-a-crunchy-taco-1797265692)
+> 原文：<https://lifehacker.com/the-best-way-to-eat-a-crunchy-taco-1797265692>
 
 如果你不小心的话，一个硬壳的墨西哥玉米卷在你的手里咬几口后就会碎掉。诀窍是以正确的方式拿着它，一边吃一边从两边咬。
 

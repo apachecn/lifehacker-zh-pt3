@@ -1,6 +1,6 @@
 # 使用这个即兴喜剧规则来避免争论
 
-> 原文:[https://life hacker . com/use-this-improv-comedy-rule-to-avoid-arguments-1824111501](https://lifehacker.com/use-this-improv-comedy-rule-to-avoid-arguments-1824111501)
+> 原文：<https://lifehacker.com/use-this-improv-comedy-rule-to-avoid-arguments-1824111501>
 
 在喜剧即兴创作中，“是且”的原则意味着首先你同意你搭档的前提，然后你再补充。没有这一基本原则，场景就无法进行。虽然将“是”和“是”应用到现实生活中有点像商业世界的陈词滥调，但我发现这是一个很好的方法，可以将潜在的争论转变为愉快的玩笑，让每个人都在同一个团队中。
 

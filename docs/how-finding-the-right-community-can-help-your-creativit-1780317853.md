@@ -1,6 +1,6 @@
 # 寻找合适的社区如何帮助你发挥创造力
 
-> 原文:[https://life hacker . com/how-finding-the-right-community-can-help-your-creativit-1780317853](https://lifehacker.com/how-finding-the-right-community-can-help-your-creativit-1780317853)
+> 原文：<https://lifehacker.com/how-finding-the-right-community-can-help-your-creativit-1780317853>
 
 梵高现在可能被广泛认为是有史以来最有影响力和最具创造力的艺术家之一，但他孤独终老，身无分文。为什么？因为 100 年前，他的油画被视为一个反社会的隐士的幻觉原创作品。直到多年以后，当其他艺术家和评论家为艺术定义了一种新的审美标准时，他的作品才被认为是创造性的杰作。
 

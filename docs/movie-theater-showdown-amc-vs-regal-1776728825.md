@@ -1,6 +1,6 @@
 # 电影院摊牌:AMC vs. Regal
 
-> 原文:[https://life hacker . com/movie-theater-摊牌-amc-vs-regal-1776728825](https://lifehacker.com/movie-theater-showdown-amc-vs-regal-1776728825)
+> 原文：<https://lifehacker.com/movie-theater-showdown-amc-vs-regal-1776728825>
 
 暑期电影季正式开始了。当你在家看完预告片后，你会想找一个周围最好的影院来体验你想看的电影。以下是两家最大的连锁影院(以及两个你最明显的选择。)君威和 AMC，对比一下。
 

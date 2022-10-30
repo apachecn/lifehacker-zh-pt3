@@ -1,6 +1,6 @@
 # 你永远不应该问的闲聊问题
 
-> 原文:[https://life hacker . com/the-small-talk-questions-you-should-never-ask-1795578480](https://lifehacker.com/the-small-talk-questions-you-should-never-ask-1795578480)
+> 原文：<https://lifehacker.com/the-small-talk-questions-you-should-never-ask-1795578480>
 
 结婚最大的好处就是爱管闲事的熟人不再问你:“那你们俩什么时候结婚？”最糟糕的是，他们开始问你，“那么你们两个什么时候开始要孩子？”
 

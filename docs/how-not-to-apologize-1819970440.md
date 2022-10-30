@@ -1,6 +1,6 @@
 # 如何不道歉
 
-> 原文:[https://lifehacker.com/how-not-to-apologize-1819970440](https://lifehacker.com/how-not-to-apologize-1819970440)
+> 原文：<https://lifehacker.com/how-not-to-apologize-1819970440>
 
 伙计，在过去的几周里，我们见证了一场名副其实的性骚扰指控的海啸，对吧？虽然一些被告保持沉默或断然否认任何罪责，但其他人很快就道歉了。
 

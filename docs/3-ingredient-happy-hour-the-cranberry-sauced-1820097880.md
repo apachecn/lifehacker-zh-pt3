@@ -1,6 +1,6 @@
 # 三种配料的欢乐时光:蔓越莓酱
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-cranberry-sacked-1820097880](https://lifehacker.com/3-ingredient-happy-hour-the-cranberry-sauced-1820097880)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-cranberry-sauced-1820097880>
 
 快乐星期五，我的 lushes，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单而美味的酒水。本周，我将带着感恩节真正的英雄之一融入节日气氛:果冻蔓越莓酱。
 

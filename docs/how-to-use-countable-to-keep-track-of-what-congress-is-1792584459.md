@@ -1,6 +1,6 @@
 # 如何使用 Countable 来跟踪国会正在进行的工作
 
-> 原文:[https://life hacker . com/how-to-use-countable-to-keep-track-of-congress-is-1792584459](https://lifehacker.com/how-to-use-countable-to-keep-track-of-what-congress-is-1792584459)
+> 原文：<https://lifehacker.com/how-to-use-countable-to-keep-track-of-what-congress-is-1792584459>
 
 联系你在国会的代表是在选举间隙让你的声音在政治中被听到的最好方法之一。但是因为他们要处理这么多的问题，要对这么多的法案进行投票，所以很难知道什么时候有重要的事情发生。 [可数](https://www.countable.us/) 给你一张路线图。
 

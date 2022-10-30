@@ -1,6 +1,6 @@
 # 每月安排一个个人盘点日
 
-> 原文:[https://life hacker . com/schedule-a-personal-inventory-day-month-1821807681](https://lifehacker.com/schedule-a-personal-inventory-day-each-month-1821807681)
+> 原文：<https://lifehacker.com/schedule-a-personal-inventory-day-each-month-1821807681>
 
 与制定新年决心同样重要的是，弄清楚我们如何实现它们，不要陷入工作中而忘记照顾自己。在记者安·弗莱德曼和科技女性黑手党的联合创始人阿米纳图·索乌主持的播客 [给你的女朋友](http://www.callyourgirlfriend.com/episodes#/level-up-2018/) 打电话上，人权技术专家 [萨布丽娜·赫尔西·伊萨](http://beingbrina.com/) 建议每个月安排一个个人盘点日，定期盘点你的时间都花在了哪里。
 

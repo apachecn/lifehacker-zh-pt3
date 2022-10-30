@@ -1,6 +1,6 @@
 # 你的冰箱里总是放着什么东西？
 
-> 原文:[https://life hacker . com/what-items-is-always-stocked-in your ' s 冰箱-1797601212](https://lifehacker.com/what-items-are-always-stocked-in-your-fridge-1797601212)
+> 原文：<https://lifehacker.com/what-items-are-always-stocked-in-your-fridge-1797601212>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你所有关于食物的想法、建议、食谱和观点。本周我想谈谈你是如何储存冰箱的，重点是那些你不可或缺的食物、饮料和调味品。
 

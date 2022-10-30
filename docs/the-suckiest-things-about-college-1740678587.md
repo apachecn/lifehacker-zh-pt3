@@ -1,6 +1,6 @@
 # 大学最糟糕的事情
 
-> 原文:[https://life hacker . com/the-suckiest-things-about-college-1740678587](https://lifehacker.com/the-suckiest-things-about-college-1740678587)
+> 原文：<https://lifehacker.com/the-suckiest-things-about-college-1740678587>
 
 大学应该是很棒的。每个人都不断提醒你，这将是你一生中最美好的时光。而且可以！但是在第一年，这种期望可能会让你面对一个糟糕的现实:开始上大学也可能很糟糕。
 

@@ -1,6 +1,6 @@
 # 如何将杂草与食物搭配
 
-> 原文:[https://life hacker . com/how-to-pair-weed-food-1800660059](https://lifehacker.com/how-to-pair-weed-with-food-1800660059)
+> 原文：<https://lifehacker.com/how-to-pair-weed-with-food-1800660059>
 
 大麻最大的好处之一就是它能让一切都变得美味可口。虽然在高处吃东西并没有什么错误的方式，但是你可以用它来获得彻头彻尾的美食家，我们将告诉你怎么做。
 

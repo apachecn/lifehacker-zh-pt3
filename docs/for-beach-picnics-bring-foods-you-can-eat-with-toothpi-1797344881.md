@@ -1,6 +1,6 @@
 # 去海滩野餐，带上可以用牙签吃的食物
 
-> 原文:[https://life hacker . com/for-beach-野餐-带食物-你可以用牙膏吃-1797344881](https://lifehacker.com/for-beach-picnics-bring-foods-you-can-eat-with-toothpi-1797344881)
+> 原文：<https://lifehacker.com/for-beach-picnics-bring-foods-you-can-eat-with-toothpi-1797344881>
 
 海滩野餐听起来总是令人愉快的，但是，除非你想要湿漉漉的三明治和满嘴的沙子，否则需要一些计划。在只生活在有海岸的州之后，我已经发展出一个成功的策略，让沙子远离我的食物和嘴巴。
 

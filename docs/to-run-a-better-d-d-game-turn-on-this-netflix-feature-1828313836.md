@@ -1,6 +1,6 @@
 # 若要运行更好的 D&D 游戏，请启用此网飞功能
 
-> 原文:[https://life hacker . com/to-run-a-better-d-d-game-turn-on-this-网飞-feature-1828313836](https://lifehacker.com/to-run-a-better-d-d-game-turn-on-this-netflix-feature-1828313836)
+> 原文：<https://lifehacker.com/to-run-a-better-d-d-game-turn-on-this-netflix-feature-1828313836>
 
 运行一个龙与地下城游戏，或者任何桌面角色扮演游戏，需要告诉你的玩家他们看到了什么。玩家依靠你来给他们一种气氛和氛围的感觉，并且指出任何有趣的或者与他们的任务相关的事情。但是他们也需要你给他们留有提问和探索的空间。一个好的游戏大师学会如何足够详细地描述一个场景，但不要太详细。redditor non _ player on r/RPG 说，学习这种技能的一种方法是在观看电影和电视节目时打开音频描述。
 

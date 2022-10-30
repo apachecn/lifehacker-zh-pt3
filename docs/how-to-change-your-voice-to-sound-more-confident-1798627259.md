@@ -1,6 +1,6 @@
 # 如何改变自己的声音让自己听起来更自信
 
-> 原文:[https://life hacker . com/how-to-change-your-voice-to-sound-more-confidential-1798627259](https://lifehacker.com/how-to-change-your-voice-to-sound-more-confident-1798627259)
+> 原文：<https://lifehacker.com/how-to-change-your-voice-to-sound-more-confident-1798627259>
 
 我们都知道，在工作中被视为自信但不自大，会对我们的职业生涯产生积极影响。从与老板的一对一会谈到给整个团队做演示，你的声音是自信项目中最重要的部分之一。以下是如何调整你的声音，让你说话的方式和你说的内容一样有影响力
 

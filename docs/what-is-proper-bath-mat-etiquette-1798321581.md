@@ -1,6 +1,6 @@
 # 什么是适当的浴垫礼仪？
 
-> 原文:[https://life hacker . com/what-is-proper-bath-mat-礼仪-1798321581](https://lifehacker.com/what-is-proper-bath-mat-etiquette-1798321581)
+> 原文：<https://lifehacker.com/what-is-proper-bath-mat-etiquette-1798321581>
 
 好了，来说一个很严肃的话题:浴垫。使用它们有对错之分吗？
 

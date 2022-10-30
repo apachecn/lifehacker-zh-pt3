@@ -1,6 +1,6 @@
 # 不，你的麦片里没有除草剂
 
-> 原文:[https://life hacker . com/no-your ' s gratey ' s not-full-of-weed killer-1828424844](https://lifehacker.com/no-your-cereal-is-not-full-of-weedkiller-1828424844)
+> 原文：<https://lifehacker.com/no-your-cereal-is-not-full-of-weedkiller-1828424844>
 
 环境工作组知道如何像演奏该死的钢琴一样演奏媒体。他们把我们都在使用的健康物品分类——防晒霜、化妆品、蔬菜、现在的谷物——并把它们分为“安全”和“有毒”两类。他们暗示，你最好知道区别。
 

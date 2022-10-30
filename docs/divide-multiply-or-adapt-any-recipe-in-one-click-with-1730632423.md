@@ -1,6 +1,6 @@
 # 使用此计算器，只需点击一下鼠标，即可对任何配方进行除法、乘法或调整
 
-> 原文:[https://life hacker . com/divide-multiply-or-adapt-any-recipe-in-one-click-with-1730632423](https://lifehacker.com/divide-multiply-or-adapt-any-recipe-in-one-click-with-1730632423)
+> 原文：<https://lifehacker.com/divide-multiply-or-adapt-any-recipe-in-one-click-with-1730632423>
 
 假设你有一个很棒的蛋糕食谱，但是你只有圆形的蛋糕盘。或者你有一个很棒的意大利面沙拉食谱，但只提供 2 份，而不是你需要的 7 份。你可以自己做大量的数学计算，或者你可以使用我们漂亮的计算器来计算你的食谱。
 

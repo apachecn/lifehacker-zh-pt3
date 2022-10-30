@@ -1,6 +1,6 @@
 # 如何给阅读你简历的机器人留下深刻印象
 
-> 原文:[https://life hacker . com/how-to-impress-the-robot-reading-your-resume-1829204828](https://lifehacker.com/how-to-impress-the-robot-reading-your-resume-1829204828)
+> 原文：<https://lifehacker.com/how-to-impress-the-robot-reading-your-resume-1829204828>
 
 当你和你梦想中的公司的招聘经理一起完善你的简历和求职信时，你可能会感兴趣地知道，他们甚至可能永远不会看你的申请，因为机器人会在他们有机会之前就扔掉它。
 

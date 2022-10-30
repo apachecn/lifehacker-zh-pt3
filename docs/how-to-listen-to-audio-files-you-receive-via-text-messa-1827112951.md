@@ -1,6 +1,6 @@
 # 如何在 iPhone 上收听通过短信接收的音频文件
 
-> 原文:[https://life hacker . com/how-to-listen-to-audio-files-you-receive-via-text-messa-1827112951](https://lifehacker.com/how-to-listen-to-audio-files-you-receive-via-text-messa-1827112951)
+> 原文：<https://lifehacker.com/how-to-listen-to-audio-files-you-receive-via-text-messa-1827112951>
 
 **iOS:** 你知道什么容易吗？通过 iPhone 短信向您的朋友发送音频文件。你知道什么不容易吗？通过 iPhone 短信收听音频文件。有更好的方法。
 

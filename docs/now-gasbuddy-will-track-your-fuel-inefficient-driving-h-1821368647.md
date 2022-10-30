@@ -1,6 +1,6 @@
 # 使用 GasBuddy 追踪您的低油耗驾驶习惯
 
-> 原文:[https://life hacker . com/now-gasbuddy-will-track-your ' s fuel-efficient-driving-h-1821368647](https://lifehacker.com/now-gasbuddy-will-track-your-fuel-inefficient-driving-h-1821368647)
+> 原文：<https://lifehacker.com/now-gasbuddy-will-track-your-fuel-inefficient-driving-h-1821368647>
 
 不管你住在哪里，汽油都很贵。GasBuddy 是人们多年来用来寻找最便宜的加油地点的应用程序之一，现在它有了一个新功能，可以帮助你让燃料持续更长时间。
 

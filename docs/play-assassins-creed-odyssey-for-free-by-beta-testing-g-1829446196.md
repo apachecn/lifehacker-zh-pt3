@@ -1,6 +1,6 @@
 # 通过测试谷歌的云流媒体服务免费玩《刺客信条奥德赛》
 
-> 原文:[https://life hacker . com/play-assassins-creed-odyssey-for-free-by-beta-testing-g-1829446196](https://lifehacker.com/play-assassins-creed-odyssey-for-free-by-beta-testing-g-1829446196)
+> 原文：<https://lifehacker.com/play-assassins-creed-odyssey-for-free-by-beta-testing-g-1829446196>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-sE53eSbzxoU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-sE53eSbzxoU&start=0) 
 

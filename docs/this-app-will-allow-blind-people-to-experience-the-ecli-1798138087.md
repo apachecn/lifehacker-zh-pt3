@@ -1,6 +1,6 @@
 # 这个应用程序将允许盲人体验日食
 
-> 原文:[https://life hacker . com/this-app-will-allow-blind-people-experience-the-ecli-1798138087](https://lifehacker.com/this-app-will-allow-blind-people-to-experience-the-ecli-1798138087)
+> 原文：<https://lifehacker.com/this-app-will-allow-blind-people-to-experience-the-ecli-1798138087>
 
 当日食在周一发生时，数百万人将聚集在美国观看。然而，对于那些看东西有困难的人来说，欣赏日食就有点困难了。当你看不见的时候，你会做什么？这是天体物理学家亨利·特蕾·温特今年早些时候开始思考的问题，当时一位盲人朋友请他描述一下日食将会是什么样子。他的解决方案是:一款允许视力受损者通过声音体验日食的应用程序。
 

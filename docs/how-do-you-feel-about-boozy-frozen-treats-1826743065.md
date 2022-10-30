@@ -1,6 +1,6 @@
 # 你觉得冷冻烈酒怎么样？
 
-> 原文:[https://life hacker . com/how-do-you-feel-on-boozy-freezed-treats-1826743065](https://lifehacker.com/how-do-you-feel-about-boozy-frozen-treats-1826743065)
+> 原文：<https://lifehacker.com/how-do-you-feel-about-boozy-frozen-treats-1826743065>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。今天我想和你们谈谈最夏日的噱头:冷冻酒精。
 

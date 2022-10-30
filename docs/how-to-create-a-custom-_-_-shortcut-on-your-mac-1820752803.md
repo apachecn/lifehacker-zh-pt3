@@ -1,6 +1,6 @@
 # 如何在 Mac 上创建自定\_(ツ)_/快捷方式
 
-> 原文:[https://life hacker . com/how-to-create-a-custom-_-_-shortcut-on-your-MAC-1820752803](https://lifehacker.com/how-to-create-a-custom-_-_-shortcut-on-your-mac-1820752803)
+> 原文：<https://lifehacker.com/how-to-create-a-custom-_-_-shortcut-on-your-mac-1820752803>
 
 任何和我一起在 Slack 或其他消息客户端上呆过的人都知道，我喜欢使用耸肩表情符号。不是普通表情符号，这个是:\_(ツ)_/
 

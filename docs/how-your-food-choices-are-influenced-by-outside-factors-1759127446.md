@@ -1,6 +1,6 @@
 # 你的食物选择如何受到外界因素的影响
 
-> 原文:[https://life hacker . com/how-your-food-choices-are-affected-by-outside-factors-1759127446](https://lifehacker.com/how-your-food-choices-are-influenced-by-outside-factors-1759127446)
+> 原文：<https://lifehacker.com/how-your-food-choices-are-influenced-by-outside-factors-1759127446>
 
 遵循健康的饮食可能很难。从决定什么时候吃什么到你实际上在你的盘子里放多少食物，普通人每天会做出 200 多个与食物相关的决定，其中大部分是自动的。这些自动选择——被一些专家称为 [【无意识进食】](http://mindlesseating.org/)——发生在我们吃和喝的时候，而没有有意识地考虑吃什么或吃多少食物。我们会一直吃着一碗薯条，直到过了饱腹点，因为它们就在我们面前。
 

@@ -1,6 +1,6 @@
 # 热巧克力的秘密，洒了
 
-> 原文:[https://the take out . com/hot-chocolate-secrets-spreaded-1798255658](https://thetakeout.com/hot-chocolate-secrets-spilled-1798255658)
+> 原文：<https://thetakeout.com/hot-chocolate-secrets-spilled-1798255658>
 
 因为我们住在芝加哥，这里的冬天很冷，我们宁愿不去外面冒险，而是呆在家里做热巧克力泡沫杯。我们对瑞士小姐速食食品不满意，所以我们询问了一些我们最喜欢的厨师的意见，以及我们的内部员工，他们中的一些人是毫不掩饰的热巧克力爱好者。请在下面的评论区留下你的建议。
 

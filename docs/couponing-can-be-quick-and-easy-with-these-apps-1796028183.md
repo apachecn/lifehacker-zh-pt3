@@ -1,6 +1,6 @@
 # 有了这些应用程序，优惠券就变得又快又简单
 
-> 原文:[https://life hacker . com/couponing-can-be-quick-and-easy-with these-apps-1796028183](https://lifehacker.com/couponing-can-be-quick-and-easy-with-these-apps-1796028183)
+> 原文：<https://lifehacker.com/couponing-can-be-quick-and-easy-with-these-apps-1796028183>
 
 与真人秀节目 所说的 [相反，优惠券并不一定要走极端。没有必要在垃圾箱里翻找传单，或者一周花 20 个小时剪报。这里有一些最好的应用程序，可以让你轻松快捷地用优惠券省钱。](https://www.tlc.com/tv-shows/extreme-couponing/) 
 

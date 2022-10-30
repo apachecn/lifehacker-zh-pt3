@@ -1,6 +1,6 @@
 # 主板为什么要有电池？
 
-> 原文:[https://life hacker . com/why-do-motherboards-have-batteries-1825773436](https://lifehacker.com/why-do-motherboards-have-batteries-1825773436)
+> 原文：<https://lifehacker.com/why-do-motherboards-have-batteries-1825773436>
 
 在本周的 Tech 911 中，一位读者写信来寻求一些明确性，而不是解决设备损坏或硬件故障的问题。这位读者可能正在摆弄他的主板，突然有了一个想法:如果我的电脑有电源，为什么我的主板有电池？
 

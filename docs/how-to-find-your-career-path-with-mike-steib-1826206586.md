@@ -1,6 +1,6 @@
 # 如何找到你的职业道路，与迈克·斯泰伯
 
-> 原文:[https://life hacker . com/how-to-find-your-career-path with-Mike-steib-1826206586](https://lifehacker.com/how-to-find-your-career-path-with-mike-steib-1826206586)
+> 原文：<https://lifehacker.com/how-to-find-your-career-path-with-mike-steib-1826206586>
 
 在最新一期节目中，XO 集团首席执行官、《职业宣言:发现你的使命，创造非凡人生》 的作者迈克·斯泰伯(Mike Steib)谈到了弄清你的目标，承担适当的风险，并找到一份令人满意的职业。
 

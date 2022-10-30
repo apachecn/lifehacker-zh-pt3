@@ -1,6 +1,6 @@
 # 不太脏不太干净的衣服放在哪里
 
-> 原文:[https://life hacker . com/where-to-put-where-to-put-this-not-court-dirty-and-not-q-1820842469](https://lifehacker.com/where-to-put-clothes-that-are-not-quite-dirty-and-not-q-1820842469)
+> 原文：<https://lifehacker.com/where-to-put-clothes-that-are-not-quite-dirty-and-not-q-1820842469>
 
 你会怎么处理一条可以再穿几次的牛仔裤？你只穿了一个小时的 t 恤怎么样？一件不够脏，不能洗，但也不干净的运动衫？事实证明，这些都是 [Ask 元过滤器](http://ask.metafilter.com/316074/What-do-YOU-do-with-clothes-worn-but-not-dirty#inline-4564503) 上的燃题，人们意见强烈。
 

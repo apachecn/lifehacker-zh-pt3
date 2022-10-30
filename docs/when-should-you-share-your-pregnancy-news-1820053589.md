@@ -1,6 +1,6 @@
 # 你应该什么时候分享你怀孕的消息？
 
-> 原文:[https://life hacker . com/when-should-you-share-you-contemption-news-1820053589](https://lifehacker.com/when-should-you-share-your-pregnancy-news-1820053589)
+> 原文：<https://lifehacker.com/when-should-you-share-your-pregnancy-news-1820053589>
 
 分享怀孕消息的传统准则是，你应该等到仪式性的第 12 或 13 周，即最焦虑的头三个月的终点 [，此时大多数妊娠损失被诊断为](http://americanpregnancy.org/pregnancy-complications/miscarriage/) 。这条规则真正的意思是:*不要太激动。但是如果你真的流产了呢？你独自面对你的悲剧，一个你没有造成的悲剧，一个许多人都经历过的悲剧。*
 

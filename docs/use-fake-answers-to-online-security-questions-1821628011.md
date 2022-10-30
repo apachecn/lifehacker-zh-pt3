@@ -1,6 +1,6 @@
 # 对在线安全问题使用假答案
 
-> 原文:[https://life hacker . com/use-fake-answers-to-online-security-questions-1821628011](https://lifehacker.com/use-fake-answers-to-online-security-questions-1821628011)
+> 原文：<https://lifehacker.com/use-fake-answers-to-online-security-questions-1821628011>
 
 网上银行账户、新电子邮件地址或健康保险应用的注册过程都涉及一些额外的安全措施，以保护这些账户中的宝贵数据。不幸的是，他们让你回答的安全问题并不完全安全。你母亲的娘家姓已经不再有用了，根据《纽约时报》的报道，如果有人获取了你的个人信息，你可能会失去你的信用评分。现在是时候加强你的安全问题，以防止坏人进入你的帐户。
 

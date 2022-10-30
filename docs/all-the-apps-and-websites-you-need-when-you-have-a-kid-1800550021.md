@@ -1,6 +1,6 @@
 # 当你有一个食物过敏的孩子时，你需要的所有应用程序和网站
 
-> 原文:[https://life hacker . com/all-the-apps-and-websites-you-need-when you-have-a-kid-1800550021](https://lifehacker.com/all-the-apps-and-websites-you-need-when-you-have-a-kid-1800550021)
+> 原文：<https://lifehacker.com/all-the-apps-and-websites-you-need-when-you-have-a-kid-1800550021>
 
 食物过敏正在上升，影响着今天每个教室的多个孩子，包括我的女儿。根据 [最近疾控中心](https://www.foodallergy.org/facts-and-stats) 的数据，每三分钟就有一次急诊*是因为食物过敏。更令人不安的是，从 20 世纪 90 年代末到 2000 年代中期，相关的儿童住院率增加了两倍，同时，我孩子这一代的过敏症增加了 50%。虽然专家们仍然没有找到这种可怕的慢性疾病的原因，也没有找到确切的治疗方法，但有一个可靠的工具*是*，作为一名家长，我发现它有助于让过敏人群更加安全，并让像我这样的孩子茁壮成长:技术。* 
 

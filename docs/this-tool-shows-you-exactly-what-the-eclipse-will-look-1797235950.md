@@ -1,6 +1,6 @@
 # 这个工具向你展示了你所在地区的日食将会是什么样子
 
-> 原文:[https://life hacker . com/this-tool-show-you-exact-the-eclipse-will-look-1797235950](https://lifehacker.com/this-tool-shows-you-exactly-what-the-eclipse-will-look-1797235950)
+> 原文：<https://lifehacker.com/this-tool-shows-you-exactly-what-the-eclipse-will-look-1797235950>
 
 8 月 21 日将会有一场日食，但是在 [预订日全食](http://lifehacker.com/how-and-where-to-watch-the-solar-eclipse-in-august-1796176093) 路径上的酒店可能已经太晚了(那里月亮的影子会完全遮住太阳。)那么你在家会看到什么呢？这个工具告诉你会发生什么。
 

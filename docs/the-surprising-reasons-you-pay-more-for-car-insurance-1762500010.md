@@ -1,6 +1,6 @@
 # 你花更多钱买汽车保险的令人惊讶的原因
 
-> 原文:[https://life hacker . com/the-surprise-reasons-you-pay-more-for-car-insurance-1762500010](https://lifehacker.com/the-surprising-reasons-you-pay-more-for-car-insurance-1762500010)
+> 原文：<https://lifehacker.com/the-surprising-reasons-you-pay-more-for-car-insurance-1762500010>
 
 在高中，成绩好的话车险更便宜。到了 25 岁，你的保费又变了。汽车保险公司根据他们认为你的责任程度和你发生事故的可能性来确定保险费率。很公平，但是他们使用的一些标准有点出乎意料。
 

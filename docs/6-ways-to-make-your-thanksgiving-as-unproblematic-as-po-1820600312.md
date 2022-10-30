@@ -1,6 +1,6 @@
 # 让你的感恩节尽可能没有问题的 6 种方法
 
-> 原文:[https://www . the root . com/6-ways-to-make-your-thanksgiving-as-problem-as-po-1820600312](https://www.theroot.com/6-ways-to-make-your-thanksgiving-as-unproblematic-as-po-1820600312)
+> 原文：<https://www.theroot.com/6-ways-to-make-your-thanksgiving-as-unproblematic-as-po-1820600312>
 
 啊，感恩节。每个人最喜欢的官方但非官方的节日。零售商真的不知道该怎么办，因为他们往往会从万圣节营销闪电战直接跳到圣诞节营销过度曝光，但现在这并不重要。重要的是，感恩节是一个介于两者之间的节日，主要是为了让我们几乎毫不掩饰地狼吞虎咽到死，而我就是为了它而来。
 

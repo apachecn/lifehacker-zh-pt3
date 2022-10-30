@@ -1,6 +1,6 @@
 # 使用谷歌航班寻找廉价机票的最佳技巧
 
-> 原文:[https://life hacker . com/the-best-tips-for-finding-beat-fly-with-Google-fli-1756974585](https://lifehacker.com/the-best-tips-for-finding-cheap-airfare-with-google-fli-1756974585)
+> 原文：<https://lifehacker.com/the-best-tips-for-finding-cheap-airfare-with-google-fli-1756974585>
 
 [谷歌航班](https://www.google.com/flights/) 是 [预订旅行的坚实工具](https://lifehacker.com/most-popular-cheap-travel-booking-site-google-flights-1715015133) 。你可能已经熟悉了它的基本功能，比如寻找最优惠的机票价格和浏览灵活的日期，这样可以节省你的金钱和时间。然而，还有一些其他鲜为人知的功能可以帮助你从旅行预算中挤出更多。
 

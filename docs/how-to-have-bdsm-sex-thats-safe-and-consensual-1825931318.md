@@ -1,6 +1,6 @@
 # 如何进行安全自愿的 BDSM 式性爱
 
-> 原文:[https://life hacker . com/how-to-have-bdsm-sex-thas-safe-and-concept-1825931318](https://lifehacker.com/how-to-have-bdsm-sex-thats-safe-and-consensual-1825931318)
+> 原文：<https://lifehacker.com/how-to-have-bdsm-sex-thats-safe-and-consensual-1825931318>
 
 本周，纽约司法部长埃里克·施奈德曼被四名女性指控在性行为中实施人身攻击。施奈德曼回应说，他被指控的殴打、窒息和扇耳光是古怪的“角色扮演”的一部分。这四名女性都说她们从未同意参与这些类型的行为。(施耐德曼后来辞去了职务。)
 

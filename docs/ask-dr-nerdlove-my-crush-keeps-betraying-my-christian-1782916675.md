@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我的暗恋对象一直背叛我的基督教价值观
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-crush-keeping-sustain-listing-my-Christian-1782916675](https://kotaku.com/ask-dr-nerdlove-my-crush-keeps-betraying-my-christian-1782916675)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-crush-keeps-betraying-my-christian-1782916675>
 
 你好，你喜欢互联网的 swamis。欢迎来到史前文化提供的约会建议专栏 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问。
 

@@ -1,6 +1,6 @@
 # 亚马逊的儿童阅读应用程序现在是免费的
 
-> 原文:[https://life hacker . com/amazons-read-along-app-for-kids-is-now-free-1828091216](https://lifehacker.com/amazons-read-along-app-for-kids-is-now-free-1828091216)
+> 原文：<https://lifehacker.com/amazons-read-along-app-for-kids-is-now-free-1828091216>
 
 你知道那些看起来像是你在偷窥短信对话的视频吗？他们的满意度各不相同，但很难拒绝。这就是亚马逊急流 背后的概念，这是一款面向 5-12 岁儿童的聊天式讲故事应用。当故事通过文本气泡展开时，年轻读者会跟着阅读。该应用程序之前每月收费 2.99 美元，但现在在 iOS、Android 和亚马逊 Fire 设备上是免费的。
 

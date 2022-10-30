@@ -1,6 +1,6 @@
 # 如何在您的 Amazon Echo 上设置多个语音配置文件
 
-> 原文:[https://life hacker . com/how-to-set-up-multi-voice-profiles-on-your-Amazon-EC-1819474600](https://lifehacker.com/how-to-set-up-multiple-voice-profiles-on-your-amazon-ec-1819474600)
+> 原文：<https://lifehacker.com/how-to-set-up-multiple-voice-profiles-on-your-amazon-ec-1819474600>
 
 我喜欢问 Alexa 我的下一次会议是什么时候，或者我一天的日程安排是什么。到目前为止，只有一个问题:我的男朋友不能使用相同的功能，因为亚马逊要求你使用相同的日历和电子邮件帐户。如果你有一个简单的家庭日历，那很好，但是当你是一个有两个忙碌的人的家庭时，它就不起作用了。
 

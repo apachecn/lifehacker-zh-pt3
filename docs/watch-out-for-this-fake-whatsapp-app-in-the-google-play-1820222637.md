@@ -1,6 +1,6 @@
 # 小心谷歌 Play 商店的这个假冒的 WhatsApp 应用
 
-> 原文:[https://life hacker . com/watch-out-for-this-fake-whatsapp-in-the-Google-play-1820222637](https://lifehacker.com/watch-out-for-this-fake-whatsapp-app-in-the-google-play-1820222637)
+> 原文：<https://lifehacker.com/watch-out-for-this-fake-whatsapp-app-in-the-google-play-1820222637>
 
 廉价消息服务 WhatsApp 如此受欢迎，以至于超过 100 万人从 Google Play 下载了一个虚假更新。
 

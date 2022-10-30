@@ -1,6 +1,6 @@
 # 阅读摊牌:二手 Kindle 与没用的平装本
 
-> 原文:[https://life hacker . com/Sunday-摊牌-二手-kindle-vs-垃圾-平装-1796563044](https://lifehacker.com/sunday-showdown-used-kindle-vs-trashy-paperback-1796563044)
+> 原文：<https://lifehacker.com/sunday-showdown-used-kindle-vs-trashy-paperback-1796563044>
 
 阅读可能是基础，但这并不意味着我们应该经常阅读。每个人都至少有一摞他们局促不安地盯着看的书，知道他们已经几个月，甚至几年没有读过或者打开过了。
 

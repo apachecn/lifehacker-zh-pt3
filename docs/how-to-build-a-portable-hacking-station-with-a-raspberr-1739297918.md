@@ -1,6 +1,6 @@
 # 如何用一个树莓派和 Kali Linux 构建一个便携式黑客站
 
-> 原文:[https://life hacker . com/how-to-build-a-portable-hacking-station-with-a-raspberr-1739297918](https://lifehacker.com/how-to-build-a-portable-hacking-station-with-a-raspberr-1739297918)
+> 原文：<https://lifehacker.com/how-to-build-a-portable-hacking-station-with-a-raspberr-1739297918>
 
 [、破解 Wi-Fi 密码](http://lifehacker.com/how-to-crack-a-wi-fi-password-5953047) 、 [、欺骗账户](http://lifehacker.com/how-to-tap-your-network-and-see-everything-that-happens-1649292940#_ga=1.63072039.968941705.1436971740) 和 [测试网络](http://lifehacker.com/know-your-network-the-complete-guide-5833254) 是否有漏洞都很有趣，但如果你想在路上表演，你需要一个方便携带的装备。输入 [卡莉 Linux](http://www.kali.org/) 和 [树莓派](https://www.raspberrypi.org/) 。
 

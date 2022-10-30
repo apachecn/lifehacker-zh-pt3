@@ -1,6 +1,6 @@
 # 储物爱好者的日常包包
 
-> 原文:[https://life hacker . com/the-storage-发烧友-daily-bag-1797138975](https://lifehacker.com/the-storage-enthusiasts-daily-bag-1797138975)
+> 原文：<https://lifehacker.com/the-storage-enthusiasts-daily-bag-1797138975>
 
 如果你要移动大量文件或者需要随身携带整个媒体库，有时老式的 sneakernet 是最好的方法。对于一些文件来说，闪存驱动器很好，但如果你真的想携带一些数据，外置驱动器是一个不错的选择。
 

@@ -1,6 +1,6 @@
 # 这是每个人的性生活次数(和种类)
 
-> 原文:[https://life hacker . com/here-s-how-much-muth-every-have-1795561168](https://lifehacker.com/here-s-how-much-sex-everybody-is-having-1795561168)
+> 原文：<https://lifehacker.com/here-s-how-much-sex-everybody-is-having-1795561168>
 
 花一分钟想想你第一次做爱是什么时候，你做了多少次，你认为其他人比你做得多还是少。如果这个思维实验让你对自己做的多或少感到尴尬，放松。很有可能，你比你想象的更正常。
 

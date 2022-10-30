@@ -1,6 +1,6 @@
 # 关于你的马桶刷，不要再骗自己了
 
-> 原文:[https://life hacker . com/stop-living-your toilet-brush-1827219742](https://lifehacker.com/stop-lying-to-yourself-about-your-toilet-brush-1827219742)
+> 原文：<https://lifehacker.com/stop-lying-to-yourself-about-your-toilet-brush-1827219742>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在用伏特加更新我们的衣服，计划大大小小的假期，欢迎新的四条腿的朋友进入我们的生活。
 

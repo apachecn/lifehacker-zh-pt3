@@ -1,6 +1,6 @@
 # 最好的 USB 3.0 优盘是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-USB-3-0-flash-drive-1732693448](https://lifehacker.com/whats-the-best-usb-3-0-flash-drive-1732693448)
+> 原文：<https://lifehacker.com/whats-the-best-usb-3-0-flash-drive-1732693448>
 
 USB 闪存驱动器可能看起来像是古老的历史，但它们比以前更便宜，比以前更小，比以前更快。本周，我们很想知道你认为哪些是携带你需要但不信任云的文件的最佳选择。
 

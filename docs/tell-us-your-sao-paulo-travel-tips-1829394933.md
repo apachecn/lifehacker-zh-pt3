@@ -1,6 +1,6 @@
 # 告诉我们你的圣保罗旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Sao-Paulo-travel-tips-1829394933](https://lifehacker.com/tell-us-your-sao-paulo-travel-tips-1829394933)
+> 原文：<https://lifehacker.com/tell-us-your-sao-paulo-travel-tips-1829394933>
 
 好吧，我很确定电影*巴西*夸大了一些事情，比如巴西可能不是一个有管道癖的未来反乌托邦，现在我想起来，那部电影似乎根本不发生在巴西！好了，我的开场白结束了。让我们来谈谈这个南美最大城市的旅行小贴士，这个城市被游客们称为“被低估了”，他们忽视了它，而更喜欢里约热内卢和萨尔瓦多。
 

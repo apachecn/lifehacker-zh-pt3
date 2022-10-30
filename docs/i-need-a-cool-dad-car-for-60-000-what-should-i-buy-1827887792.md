@@ -1,6 +1,6 @@
 # 我需要一辆 60，000 美元的“酷爸爸”车！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-a-cool-dad-car-for-60，000-what-should-I-buy-1827887792](https://jalopnik.com/i-need-a-cool-dad-car-for-60-000-what-should-i-buy-1827887792)
+> 原文：<https://jalopnik.com/i-need-a-cool-dad-car-for-60-000-what-should-i-buy-1827887792>
 
 萨姆有一辆 2005 年的 Mini Cooper S，这是一辆不错的小车，但对于一个正在成长的家庭来说不太实用。他想要运动、有趣、实用的东西，并且有一个相当健康的预算来完成这个任务。他应该买什么车？
 

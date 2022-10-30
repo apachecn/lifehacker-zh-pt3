@@ -1,6 +1,6 @@
 # 如何查看 Publix 鸡招标潜艇是否在出售
 
-> 原文:[https://life hacker . com/how-to-see-if-publix-chicken-tender-subs-is-sale-1829298478](https://lifehacker.com/how-to-see-if-publix-chicken-tender-subs-are-on-sale-1829298478)
+> 原文：<https://lifehacker.com/how-to-see-if-publix-chicken-tender-subs-are-on-sale-1829298478>
 
 当你住在纽约时，你会开始欣赏某些在一个正常运转的城市里你永远不会注意到的东西。例如，清新的空气，或者在不到半小时内旅行三英里的能力。
 

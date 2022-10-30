@@ -1,6 +1,6 @@
 # 翻译工具对决:谷歌翻译 vs 微软翻译
 
-> 原文:[https://life hacker . com/translation-tool-摊牌-Google-translate-vs-microso-1787836106](https://lifehacker.com/translation-tool-showdown-google-translate-vs-microso-1787836106)
+> 原文：<https://lifehacker.com/translation-tool-showdown-google-translate-vs-microso-1787836106>
 
 无论你是环球旅行者、语言学生还是企业主，像 Google Translate 和 Microsoft Translator 这样的工具可以让世界上的每个人更容易相互理解。尽管两者都可以翻译文本、语音和图像，但它们仍然各有各的怪癖。所以请登上决战列车！下一站:翻译站。
 

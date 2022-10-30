@@ -1,6 +1,6 @@
 # 如何快速冷却鸡尾酒杯
 
-> 原文:[https://life hacker . com/how-to-quick-a-cocktail-glass-1828688227](https://lifehacker.com/how-to-quickly-chill-a-cocktail-glass-1828688227)
+> 原文：<https://lifehacker.com/how-to-quickly-chill-a-cocktail-glass-1828688227>
 
 关注小事的能力是所有真正熟练的主持人都具备的素质。一个放橄榄核的小碗，浴室里的香味蜡烛，冰镇的鸡尾酒杯都表明你关心客人的舒适度和他们的整体派对体验。
 

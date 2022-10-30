@@ -1,6 +1,6 @@
 # 行业术语可能损害你简历的三种情况
 
-> 原文:[https://life hacker . com/three-situations-when-industry-行话-可能伤害你的-r-1754992349](https://lifehacker.com/three-situations-when-industry-jargon-might-hurt-your-r-1754992349)
+> 原文：<https://lifehacker.com/three-situations-when-industry-jargon-might-hurt-your-r-1754992349>
 
 即使你所在的领域没有任何术语，当你在一个行业工作足够长的时间后，你会倾向于发展出某种解释事物的方式。但是当涉及到你的简历时，使用深奥的语言有时只会阻碍你的吸引力而不是帮助。
 

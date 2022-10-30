@@ -1,6 +1,6 @@
 # 普通的白醋是你需要的洗碗英雄
 
-> 原文:[https://life hacker . com/plain-white-醋是洗碗英雄-你需要-1825145938](https://lifehacker.com/plain-white-vinegar-is-the-dishwashing-hero-you-need-a-1825145938)
+> 原文：<https://lifehacker.com/plain-white-vinegar-is-the-dishwashing-hero-you-need-a-1825145938>
 
 脂肪让食物变得美味，但油腻的食物在用餐结束后很久还会留在空气中——以及盘子上。如果你厌倦了在你发誓很干净的盘子上发现浮油，你应该在喷雾瓶里装满醋，并把它放在厨房水槽附近。
 

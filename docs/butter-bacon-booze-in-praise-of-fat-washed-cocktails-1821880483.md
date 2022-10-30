@@ -1,6 +1,6 @@
 # 黄油、培根、酒:赞美去脂鸡尾酒
 
-> 原文:[https://the take out . com/butter-bacon-booze-in-赞歌-洗脂-鸡尾酒-1821880483](https://thetakeout.com/butter-bacon-booze-in-praise-of-fat-washed-cocktails-1821880483)
+> 原文：<https://thetakeout.com/butter-bacon-booze-in-praise-of-fat-washed-cocktails-1821880483>
 
 一想到喝一杯脂肪饮料，可能就会想起《T2》《朋友》《T3》《T4》《T5》中的一集，罗斯为了得到分分合合的女友瑞秋的原谅，同意喝下一大杯不知名的油腻物质。这一集所描绘的行为非常恶心。但是在 2007 年，唐·李——曼哈顿 [酒吧的前调酒师，请不要告诉](http://pdtnyc.com/)——将饮用脂肪的想法与美国最受欢迎的消遣之一:酒结合起来，使其变得美味。多亏了李和他的同事们的创新，洗脂的概念出现在了纽约的饮食界，反过来，也出现在了美国其他热爱熏肉和黄油的地方。
 

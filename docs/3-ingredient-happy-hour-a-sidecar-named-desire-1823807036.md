@@ -1,6 +1,6 @@
 # 三要素快乐时光:一个名为欲望的边车
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-sidecar-named-desire-1823807036](https://lifehacker.com/3-ingredient-happy-hour-a-sidecar-named-desire-1823807036)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-sidecar-named-desire-1823807036>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们的特色是玛吉·霍夫曼的 [*一瓶鸡尾酒*](https://www.amazon.com/One-Bottle-Cocktail-Recipes-Ingredients-Single/dp/0399580042?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/3-ingredient-happy-hour-a-sidecar-named-desire-1823807036&asc_source=&tag=kinjalifehackerlink-20) 中的一款鸡尾酒，这本书非常符合本专栏的审美。
 

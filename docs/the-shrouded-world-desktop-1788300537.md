@@ -1,6 +1,6 @@
 # 笼罩的世界桌面
 
-> 原文:[https://life hacker . com/the-covered-world-desktop-1788300537](https://lifehacker.com/the-shrouded-world-desktop-1788300537)
+> 原文：<https://lifehacker.com/the-shrouded-world-desktop-1788300537>
 
 读者 [Alec](http://kinja.com/stranaha2) 向我们的 [桌面展柜](http://kinja.com/tag/desktop-showcase) 提交了这款桌面，除了一张惊艳的壁纸，就是一台定制的整整齐齐的 Mac。他是这样安排一切的。
 

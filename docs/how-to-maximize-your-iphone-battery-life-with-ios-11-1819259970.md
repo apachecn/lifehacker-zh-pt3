@@ -1,6 +1,6 @@
 # 如何用 iOS 11 最大化你的 iPhone 电池寿命
 
-> 原文:[https://life hacker . com/how-to-maximize-your-iphone-battery-life-with-IOs-11-1819259970](https://lifehacker.com/how-to-maximize-your-iphone-battery-life-with-ios-11-1819259970)
+> 原文：<https://lifehacker.com/how-to-maximize-your-iphone-battery-life-with-ios-11-1819259970>
 
 iPhone 电池是那种不管能用多久都不够长的东西。甚至有一个完整的行业建立在为我们的智能手机和平板电脑销售备用电池的基础上，以便在电池耗尽时让它们继续工作。
 

@@ -1,6 +1,6 @@
 # 问专家:所有关于最大化你的信用卡旅行奖励
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-maximizing-your-card-tr-1764344578](https://lifehacker.com/ask-an-expert-all-about-maximizing-your-credit-card-tr-1764344578)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-maximizing-your-credit-card-tr-1764344578>
 
 通过在日常开支中谨慎使用正确的信用卡，你可以不费吹灰之力积累航空里程和其他旅行奖励。事实上，RichmondSavers.com 的 [的 Brad Barrett 说，如果你打对了牌，你几乎可以免费旅行。](http://www.richmondsavers.com/)
 

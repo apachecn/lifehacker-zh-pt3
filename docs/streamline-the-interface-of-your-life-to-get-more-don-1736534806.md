@@ -1,6 +1,6 @@
 # 简化你生活的“界面”,完成更多工作
 
-> 原文:[https://life hacker . com/streamline-the-interface-of-your-life-to-get more-don-1736534806](https://lifehacker.com/streamline-the-interface-of-your-life-to-get-more-don-1736534806)
+> 原文：<https://lifehacker.com/streamline-the-interface-of-your-life-to-get-more-don-1736534806>
 
 每当你使用智能手机或网站时，你都在使用用户界面。它旨在帮助你做你想做的事情:检查你的信息，阅读文章，查找信息，完成任务。我们日常生活中的日常事务也像一个界面。我们只是不常去想。
 

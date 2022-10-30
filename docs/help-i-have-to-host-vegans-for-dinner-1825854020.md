@@ -1,6 +1,6 @@
 # 救命啊！晚餐我得招待素食者
 
-> 原文:[https://the take out . com/help-I-have-to-host-vegans-for-晚餐-1825854020](https://thetakeout.com/help-i-have-to-host-vegans-for-dinner-1825854020)
+> 原文：<https://thetakeout.com/help-i-have-to-host-vegans-for-dinner-1825854020>
 
 所以你邀请了你的素食朋友过来，但是你不知道他们能吃什么。首先，深呼吸，用一把奶酪和一片猪肉让自己平静下来，我想每个肉食者在他们的厨房里都会有旋转烤肉叉。
 

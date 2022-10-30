@@ -1,6 +1,6 @@
 # 我仍然对所有东西都使用纯文本，我喜欢这样
 
-> 原文:[https://life hacker . com/I-still-use-plain-text-for-everything-and-I-love-it-1758380840](https://lifehacker.com/i-still-use-plain-text-for-everything-and-i-love-it-1758380840)
+> 原文：<https://lifehacker.com/i-still-use-plain-text-for-everything-and-i-love-it-1758380840>
 
 在 Lifehacker 中，纯文本一直是最受欢迎的，但多年来，大多数人已经远离它，转而青睐专门的待办应用、笔记应用、写作应用或其他任何应用。我仍然使用纯文本来处理几乎所有的事情，但是从来没有想过*为什么*我会这样做。我想得越多，就越意识到除了时髦的功能，纯文本仍然是可移植性和简单性的王。
 

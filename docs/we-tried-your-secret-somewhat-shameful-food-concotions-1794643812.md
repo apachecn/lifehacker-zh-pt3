@@ -1,6 +1,6 @@
 # 我们尝试了你的秘密，有点可耻的食物混合物
 
-> 原文:[https://life hacker . com/we-tryed-your-secret-somethically-honest-food-congotions-1794643812](https://lifehacker.com/we-tried-your-secret-somewhat-shameful-food-concotions-1794643812)
+> 原文：<https://lifehacker.com/we-tried-your-secret-somewhat-shameful-food-concotions-1794643812>
 
 还记得几周前，当我问你们最奇怪的，有点可耻的，秘密的饮食习惯 时吗？原来，你们这些人是垃圾天才，能够让我大开眼界，发现吃奶酪通心粉、速食拉面和垃圾食品的令人兴奋的新方法。
 

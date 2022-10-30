@@ -1,6 +1,6 @@
 # 我是 DoorDash 的首席执行官许宏涛，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-door dash-CEO-Tony-Xu-and-this-is-how-I-work-1821196705](https://lifehacker.com/im-doordash-ceo-tony-xu-and-this-is-how-i-work-1821196705)
+> 原文：<https://lifehacker.com/im-doordash-ceo-tony-xu-and-this-is-how-i-work-1821196705>
 
 许宏涛是移民的孩子，在去斯坦福之前，他在他妈妈的餐馆工作，并在麦肯锡、易贝和 Square 工作。2013 年，他开始了食品配送服务 [DoorDash](https://www.doordash.com/) ，起初他自己负责配送。现在，他的公司雇佣了 500 名员工，与超过 20 万名送货人员一起工作，并在 600 个城市开展业务。我们和托尼谈了他是如何经营的。
 

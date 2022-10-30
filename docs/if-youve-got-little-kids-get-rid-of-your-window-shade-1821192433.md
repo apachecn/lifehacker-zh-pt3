@@ -1,6 +1,6 @@
 # 如果你有小孩，现在就扔掉你的窗帘绳
 
-> 原文:[https://life hacker . com/if-you-have-get-off-your-window-shade-1821192433](https://lifehacker.com/if-youve-got-little-kids-get-rid-of-your-window-shade-1821192433)
+> 原文：<https://lifehacker.com/if-youve-got-little-kids-get-rid-of-your-window-shade-1821192433>
 
 全国儿童医院伤害研究和政策中心的一组研究人员在 [*儿科*](http://pediatrics.aappublications.org/content/early/2017/12/07/peds.2017-2359) 发表了一份新报告，记录了 26 年来因窗帘绳造成的死亡和受伤人数。结果令人震惊:在那几年里，271 名儿童，或者说每个月大约有一名儿童，死于被窗绳勒死。急诊室医生、该研究的合著者之一加里·史密斯博士说，这个数字可能低估了真正的危险，因为国家电子伤害监测系统数据库没有记录在非急诊室接受治疗或根本没有接受医疗护理的儿童的受伤和死亡情况。
 

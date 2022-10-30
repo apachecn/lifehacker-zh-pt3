@@ -1,6 +1,6 @@
 # 如何预测和准备裁员
 
-> 原文:[https://life hacker . com/how-to-predict-and-prepare-for-裁员-1822215771](https://lifehacker.com/how-to-predict-and-prepare-for-layoffs-1822215771)
+> 原文：<https://lifehacker.com/how-to-predict-and-prepare-for-layoffs-1822215771>
 
 没有人能免于裁员。无论你是高管还是初级员工，裁员都可能会在你职业生涯的某个阶段影响你。由于顾问和自由职业者有多种收入来源，他们有一点缓冲，但当他们的行业受到影响时，他们也会受到影响。(没有什么比一个月失去四个客户更糟糕的了。)
 

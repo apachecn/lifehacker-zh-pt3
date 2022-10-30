@@ -1,6 +1,6 @@
 # 如何让你的孩子感到内疚(以一种好的方式)
 
-> 原文:[https://life hacker . com/how-to-make-your-kid-feel-in-a-good way-1820774754](https://lifehacker.com/how-to-make-your-kid-feel-guilty-in-a-good-way-1820774754)
+> 原文：<https://lifehacker.com/how-to-make-your-kid-feel-guilty-in-a-good-way-1820774754>
 
 内疚是一种糟糕的情绪，我们大多数人都试图避免这种情绪，要么通过不做我们会感到羞耻的事情(偷糖果，欺骗我们的配偶)，要么通过合理化我们的行为，以便可以安全地忽略内疚(我需要一个奖励；配偶对我很刻薄)。但是罪恶感实际上是一种有用的、必要的感觉，它帮助我们成长为有良知的完整的人。
 

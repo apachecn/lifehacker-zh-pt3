@@ -1,6 +1,6 @@
 # 介绍土耳其小跑:让我们一起跑
 
-> 原文:[https://life hacker . com/introducing-the-turkey-trot-throw down-let-s-run-togeth-1787445111](https://lifehacker.com/introducing-the-turkey-trot-throwdown-let-s-run-togeth-1787445111)
+> 原文：<https://lifehacker.com/introducing-the-turkey-trot-throwdown-let-s-run-togeth-1787445111>
 
 如果你已经打算开始跑步，或者更认真地对待你的跑步，今天是你的幸运日。我们将在未来七周内发起新的挑战，目标是让你做好准备，在感恩节周末跑完你的第一个或最快的 5 公里。
 

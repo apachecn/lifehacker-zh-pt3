@@ -1,6 +1,6 @@
 # 生活黑客:索引
 
-> 原文:[https://lifehacker.com/lifehacker-the-index-1524507989](https://lifehacker.com/lifehacker-the-index-1524507989)
+> 原文：<https://lifehacker.com/lifehacker-the-index-1524507989>
 
 欢迎来到生活黑客！不管这是你第一次还是第一千次来这里，你可能会想浏览一下我们的档案。这里有一个有用的帖子、类别和技巧的索引，可以帮助你找到你想要的东西。
 

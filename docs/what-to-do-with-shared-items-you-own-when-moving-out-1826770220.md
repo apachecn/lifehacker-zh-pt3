@@ -1,6 +1,6 @@
 # 搬出去后，如何处理你拥有的“共享”物品
 
-> 原文:[https://life hacker . com/what-do-with-shared-items-you-own-what-do-what-what-to-do-with-out-1826770220](https://lifehacker.com/what-to-do-with-shared-items-you-own-when-moving-out-1826770220)
+> 原文：<https://lifehacker.com/what-to-do-with-shared-items-you-own-when-moving-out-1826770220>
 
 这个星期，我们有一个家伙要搬进他自己的地方，带着他买的东西。问题是，他的老室友使用了其中的一些东西，并且没有给他们太多时间去适应。有什么好的方法来处理这种情况吗？
 

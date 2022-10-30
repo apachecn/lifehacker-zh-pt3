@@ -1,6 +1,6 @@
 # 在没有电子设备的情况下，如何让孩子在机场长时间延误时保持娱乐
 
-> 原文:[https://life hacker . com/9-ways-to-keep-kids-entertain-in-a-long-airport-d-1820246991](https://lifehacker.com/9-ways-to-keep-kids-entertained-during-a-long-airport-d-1820246991)
+> 原文：<https://lifehacker.com/9-ways-to-keep-kids-entertained-during-a-long-airport-d-1820246991>
 
 嘿，快到机场旺季了！一年中的这个时候，你花大量的时间排队等待机场安检人员的咆哮，等待脱鞋，然后...有时等待，等待，再等待。当你没有孩子的时候，这并不完全是理想的，但是对于我们这些带着蹒跚学步的孩子的人来说，这是地狱的特殊延伸。所以，有准备的父母计划了足够多的活动，让小科里亚和托托参与进来——最重要的是不要抱怨或尖叫——长达 11 个小时。
 

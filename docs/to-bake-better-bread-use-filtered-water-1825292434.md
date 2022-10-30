@@ -1,6 +1,6 @@
 # 要烘焙更好的面包，使用过滤水
 
-> 原文:[https://life hacker . com/to-bake-better-bread-use-filtered-water-1825292434](https://lifehacker.com/to-bake-better-bread-use-filtered-water-1825292434)
+> 原文：<https://lifehacker.com/to-bake-better-bread-use-filtered-water-1825292434>
 
 烘焙漂亮的面包需要熟练地操作三个大的、混乱的变量:技术、设备和配料。拙劣的技术是大多数不合格结果的原因，但厨房条件或原料供应的突然变化甚至会让经验丰富的面包师陷入困境。如果你的面包莫名其妙地开始发臭，你的水可能就是罪魁祸首。
 

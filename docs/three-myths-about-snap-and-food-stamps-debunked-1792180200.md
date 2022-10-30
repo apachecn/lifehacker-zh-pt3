@@ -1,6 +1,6 @@
 # 关于 SNAP 和“食品券”的三个神话被揭穿
 
-> 原文:[https://life hacker . com/three-myths-about-snap-and-food-stamps-debucked-1792180200](https://lifehacker.com/three-myths-about-snap-and-food-stamps-debunked-1792180200)
+> 原文：<https://lifehacker.com/three-myths-about-snap-and-food-stamps-debunked-1792180200>
 
 如果你相信某些迷因和谣言，这可能听起来像是参加 [补充营养援助计划](https://www.fns.usda.gov/snap/supplemental-nutrition-assistance-program-snap) (SNAP)，更好的名字是 [以前的名字](https://en.wikipedia.org/wiki/Supplemental_Nutrition_Assistance_Program) ，食品券计划的人，正在用纳税人的钱购买大量垃圾食品，享受额外的现金，而我们其余的人必须为我们的钱工作。不过，这不是真的。
 

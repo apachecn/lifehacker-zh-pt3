@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:接近女性从根本上来说是不道德的吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-is-approxing-women-basely-un-1821331835](https://kotaku.com/ask-dr-nerdlove-is-approaching-women-fundamentally-un-1821331835)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-is-approaching-women-fundamentally-un-1821331835>
 
 你们好，所有的爆炸床眼镜蛇，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个约会建议专栏，当你在排队等待*最后的绝地*时，它会给你需要的爱情建议。
 

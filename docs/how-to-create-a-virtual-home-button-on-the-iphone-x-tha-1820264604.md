@@ -1,6 +1,6 @@
 # 如何在 iPhone X 上创建一个真正有效的虚拟 Home 键
 
-> 原文:[https://life hacker . com/how-to-create-a-virtual-home-button-on-the-iphone-x-tha-1820264604](https://lifehacker.com/how-to-create-a-virtual-home-button-on-the-iphone-x-tha-1820264604)
+> 原文：<https://lifehacker.com/how-to-create-a-virtual-home-button-on-the-iphone-x-tha-1820264604>
 
 使用 [iPhone X](https://lifehacker.com/what-do-you-like-or-hate-about-iphone-x-1820179520) 意味着 [重新学习几乎所有你知道的关于在 iOS 中导航的东西](https://lifehacker.com/iphone-x-tips-and-tricks-you-need-to-know-right-now-1820086402) 。这是因为苹果移除了 [Home 键](https://lifehacker.com/use-this-hidden-feature-when-your-iphones-buttons-are-b-1819959579) ，用一系列新的滑动和手势取代了那种漂亮的触觉输入。
 

@@ -1,6 +1,6 @@
 # 你打算怎么处理 YouTube 上的儿童视频？
 
-> 原文:[https://life hacker . com/what-you-to-do-about-youtubes-kid-videos-1820224127](https://lifehacker.com/what-are-you-going-to-do-about-youtubes-kid-videos-1820224127)
+> 原文：<https://lifehacker.com/what-are-you-going-to-do-about-youtubes-kid-videos-1820224127>
 
 当父母让他们的孩子看 YouTube 视频时，通常不是因为他们处于放松的精神状态，想给孩子提供一些丰富的可教的时刻。很多内容基本上是 [【蹒跚学步的裂缝】](http://www.scarymommy.com/youtube-surprise-toy-reviews-toddler-crack/) 一系列狂躁、无意识的剪辑 [，让小观众在爸爸妈妈需要休息的时候疯狂地](https://lifehacker.com/why-your-kids-brain-is-hooked-on-surprise-egg-and-slime-1797278479) (和幸福地安静)。
 

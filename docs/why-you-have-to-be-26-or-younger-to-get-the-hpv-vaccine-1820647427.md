@@ -1,6 +1,6 @@
 # 为什么你必须在 26 岁或 26 岁以下才能接种 HPV 疫苗
 
-> 原文:[https://life hacker . com/why-you have-to-be-26 or-you-you-be-you-you-be-you-be-you-you-be-you-be-you-be-you-be-you-you-be-you-you-be-you-be-you-you-be-you-be-you-be-you-you-you-you-be-you-you-be-you-you-you-you-you-be-you-you-you-you-be-you-you-you-you](https://lifehacker.com/why-you-have-to-be-26-or-younger-to-get-the-hpv-vaccine-1820647427)
+> 原文：<https://lifehacker.com/why-you-have-to-be-26-or-younger-to-get-the-hpv-vaccine-1820647427>
 
 我们有了抗癌疫苗，这真是太神奇了。由于宫颈癌是由人类乳头瘤病毒(人乳头瘤病毒)引起的，因此接种疫苗保护你免受这种病毒的感染会大大降低你患宫颈癌或阴茎、肛门或咽喉癌的几率。但是在美国，你只有在足够年轻的时候才能得到它。
 

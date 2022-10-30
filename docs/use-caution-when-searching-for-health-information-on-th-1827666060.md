@@ -1,6 +1,6 @@
 # 搜索这些主题的健康信息时要小心
 
-> 原文:[https://life hacker . com/use-caution-when-search-for-health-information-on-th-1827666060](https://lifehacker.com/use-caution-when-searching-for-health-information-on-th-1827666060)
+> 原文：<https://lifehacker.com/use-caution-when-searching-for-health-information-on-th-1827666060>
 
 当你有一个问题，不知道去哪里时，谷歌健康信息是不可抗拒的。有些话题会引导你找到合法的信息，但对其他人来说，你的问题的真正答案被隐藏在伪科学和阴谋论的结果中。
 

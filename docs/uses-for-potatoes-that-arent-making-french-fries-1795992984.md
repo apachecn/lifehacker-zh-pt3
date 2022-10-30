@@ -1,6 +1,6 @@
 # 不做薯条的土豆的用途
 
-> 原文:[https://life hacker . com/uses-for-potatos-the-parent-make-French-fries-1795992984](https://lifehacker.com/uses-for-potatoes-that-arent-making-french-fries-1795992984)
+> 原文：<https://lifehacker.com/uses-for-potatoes-that-arent-making-french-fries-1795992984>
 
 最近发表在《美国临床营养学杂志》上的一项研究发现，吃炸薯条或其他油炸土豆制品会增加你的死亡风险。在这项研究中，研究人员在家里观察了 4400 名年龄在 45 岁到 79 岁之间的人，他们在八年的时间里一直吃土豆。到研究结束时，已有 236 人去世，他们大多是吃炸薯条的人。
 

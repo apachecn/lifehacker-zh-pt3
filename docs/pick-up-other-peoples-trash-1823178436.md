@@ -1,6 +1,6 @@
 # 捡别人的垃圾
 
-> 原文:[https://life hacker . com/pick-up-other-peoples-trash-1823178436](https://lifehacker.com/pick-up-other-peoples-trash-1823178436)
+> 原文：<https://lifehacker.com/pick-up-other-peoples-trash-1823178436>
 
 我喜欢捡地上的垃圾。我喜欢从街上抓起别人的垃圾扔进垃圾箱。我想你也会的。
 

@@ -1,6 +1,6 @@
 # 本周要担心什么:椰子油、薯条和其他你吃的东西
 
-> 原文:[https://life hacker . com/what-to-worry-the-week-椰子油薯条-and-1796182110](https://lifehacker.com/what-to-worry-about-this-week-coconut-oil-fries-and-1796182110)
+> 原文：<https://lifehacker.com/what-to-worry-about-this-week-coconut-oil-fries-and-1796182110>
 
 科学的新进展如何彻底改变了我们对营养的认识？这个星期，只是一点点。我们正在看三项关于土豆、椰子油和素食的研究。
 

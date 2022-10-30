@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:7 月 8 日至 15 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-July-8-to-15-1783732067](https://lifehacker.com/this-weeks-most-popular-posts-july-8th-to-15th-1783732067)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-july-8th-to-15th-1783732067>
 
 本周，世界为《精灵宝可梦 Go》疯狂，我们就在那里与你一起找出如何节省电池寿命，保存数据，并在保持安全的同时抓住它们。但我们也“抓住”了其他话题，比如在工作中学习，不发疯地招待你的父母，等等。
 

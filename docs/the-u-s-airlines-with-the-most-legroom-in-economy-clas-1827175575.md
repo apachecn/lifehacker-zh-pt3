@@ -1,6 +1,6 @@
 # 经济舱伸腿空间最大的美国航空公司
 
-> 原文:[https://life hacker . com/the-u-s-airlines-with the-most-the-u-s-leg room-in-economy class-1827175575](https://lifehacker.com/the-u-s-airlines-with-the-most-legroom-in-economy-clas-1827175575)
+> 原文：<https://lifehacker.com/the-u-s-airlines-with-the-most-legroom-in-economy-clas-1827175575>
 
 商用飞机逐渐变得越来越局促。大约 20 年前，平均座位间距——每个座位之间的距离——大约为 34 到 35 英寸。现在更接近 30 或 31 英寸。如果你打算坐经济舱，腿部空间对你来说很重要，那就去看看这些航空公司和飞机。
 

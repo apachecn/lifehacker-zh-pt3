@@ -1,6 +1,6 @@
 # 如何辨别优质熟食店
 
-> 原文:[https://life hacker . com/how-to-spot-quality-charcuterie-1823903392](https://lifehacker.com/how-to-spot-quality-charcuterie-1823903392)
+> 原文：<https://lifehacker.com/how-to-spot-quality-charcuterie-1823903392>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-LnA7Au-DLUM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-LnA7Au-DLUM&start=0) 
 

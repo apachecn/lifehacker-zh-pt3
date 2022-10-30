@@ -1,6 +1,6 @@
 # 如何在几乎任何情况下生存
 
-> 原文:[https://gizmodo . com/how-to-survive-pretty-much-any-1730713320](https://gizmodo.com/how-to-survive-pretty-much-anything-1730713320)
+> 原文：<https://gizmodo.com/how-to-survive-pretty-much-anything-1730713320>
 
 生存是准备、知识、工具和运气的组合。本周我们将探索这种做法，作为开始，这里有一些你需要经历几乎任何事情的技巧。
 

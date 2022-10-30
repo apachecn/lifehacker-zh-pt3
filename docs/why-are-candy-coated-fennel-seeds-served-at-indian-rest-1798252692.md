@@ -1,6 +1,6 @@
 # 为什么印度餐馆会供应糖衣茴香籽？
 
-> 原文:[https://the take out . com/why-are-candy-coated-fennel-seeds-served-in-Indian-rest-1798252692](https://thetakeout.com/why-are-candy-coated-fennel-seeds-served-at-indian-rest-1798252692)
+> 原文：<https://thetakeout.com/why-are-candy-coated-fennel-seeds-served-at-indian-rest-1798252692>
 
 吃印度食物可能涉及一定程度的礼仪。当琳琅满目的波提菜(vindaloo)和比亚尼(biryani)被摆放在一篮篮帕拉塔(paratha)旁边时——有节奏地一个接一个——用餐者有条不紊地在沉默中上菜和分享，主要通过用手指指着一份食物进行交流，表明该吃那份了。
 

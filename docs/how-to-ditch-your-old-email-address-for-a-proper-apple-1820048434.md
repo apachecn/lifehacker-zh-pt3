@@ -1,6 +1,6 @@
 # 如何抛弃旧的电子邮件地址，使用正确的 Apple ID 登录
 
-> 原文:[https://life hacker . com/how-to-dick-your-old-email-address for a-proper-apple-1820048434](https://lifehacker.com/how-to-ditch-your-old-email-address-for-a-proper-apple-1820048434)
+> 原文：<https://lifehacker.com/how-to-ditch-your-old-email-address-for-a-proper-apple-1820048434>
 
 如果你厌倦了在登录苹果账户时必须输入的旧的“[【An1mari99@yahoo.com】](mailto:An1mari99@yahoo.com)”电子邮件地址，一些好消息:根据苹果更新的支持文档 ，你终于可以更改你的 Apple ID 用户名 [。](https://support.apple.com/en-us/HT202667)
 

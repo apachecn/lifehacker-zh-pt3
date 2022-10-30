@@ -1,6 +1,6 @@
 # 这些应该是 2018 年最安全的汽车
 
-> 原文:[https://jalopnik . com/这些应该是 2018 年最安全的汽车-1821106211](https://jalopnik.com/these-are-supposed-to-be-the-safest-cars-of-2018-1821106211)
+> 原文：<https://jalopnik.com/these-are-supposed-to-be-the-safest-cars-of-2018-1821106211>
 
 许多 2018 年款汽车是安全的，但 62 辆汽车被评为特别擅长保护乘客。其中，15 种被认为是最安全的。
 

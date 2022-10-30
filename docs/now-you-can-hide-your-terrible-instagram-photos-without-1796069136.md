@@ -1,6 +1,6 @@
 # 现在你可以隐藏你糟糕的 Instagram 照片，而不用删除它们
 
-> 原文:[https://life hacker . com/now-you-can-hide-your-terrible-insta gram-photos-without-1796069136](https://lifehacker.com/now-you-can-hide-your-terrible-instagram-photos-without-1796069136)
+> 原文：<https://lifehacker.com/now-you-can-hide-your-terrible-instagram-photos-without-1796069136>
 
 由于 Instagram 的最新更新，你现在可以隐藏你不太讨人喜欢的自拍照，而不会真正忘记它们有多糟糕。
 

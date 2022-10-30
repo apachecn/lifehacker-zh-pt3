@@ -1,6 +1,6 @@
 # 在整洁的浏览器中自动打开 YouTube 链接
 
-> 原文:[https://life hacker . com/automatically-open-YouTube-links-in-an-uncomined-view-1825389630](https://lifehacker.com/automatically-open-youtube-links-in-an-uncluttered-view-1825389630)
+> 原文：<https://lifehacker.com/automatically-open-youtube-links-in-an-uncluttered-view-1825389630>
 
 如果你喜欢使用替代网站观看 YouTube 视频(像极简主义者，我们 [最近报道过](https://lifehacker.com/avoid-unexpected-youtube-bing-watching-sessions-with-tu-1825275041) ，或者*更多的*极简主义者 [Surprise.ly](http://surprise.ly/v/?RPS-Cq4uMFs) ，我们 [很久以前报道过](https://lifehacker.com/suprise-ly-shares-links-to-clutter-free-youtube-videos-1513284946) ，那么你可以设置一个 Chrome 扩展来在你每次点击 YouTube 链接时重定向你。
 

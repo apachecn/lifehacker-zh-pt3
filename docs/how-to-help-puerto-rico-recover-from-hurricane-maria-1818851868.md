@@ -1,6 +1,6 @@
 # 如何帮助波多黎各从飓风玛丽亚中恢复——并让美国政府做同样的事情[更新]
 
-> 原文:[https://life hacker . com/how-to-help-Puerto-Rico-recover-from-hurricane-Maria-1818851868](https://lifehacker.com/how-to-help-puerto-rico-recover-from-hurricane-maria-1818851868)
+> 原文：<https://lifehacker.com/how-to-help-puerto-rico-recover-from-hurricane-maria-1818851868>
 
 我们不可能都是皮特保罗，他 [派他的私人飞机](http://www.cnn.com/2017/09/27/health/pitbull-sends-plane-for-cancer-patients-trnd/index.html) 去波多黎各运送癌症患者到大陆接受护理。但是普通人有很多方法可以帮助支持遭受飓风蹂躏的岛屿上的救援工作。
 

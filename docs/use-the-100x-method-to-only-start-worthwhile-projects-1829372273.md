@@ -1,6 +1,6 @@
 # 使用 100 倍方法只开始有价值的项目
 
-> 原文:[https://life hacker . com/use-the-100 x-method-to-only-start-worthy-projects-1829372273](https://lifehacker.com/use-the-100x-method-to-only-start-worthwhile-projects-1829372273)
+> 原文：<https://lifehacker.com/use-the-100x-method-to-only-start-worthwhile-projects-1829372273>
 
 “我做过的最成功的事情都有一个共同点:我至少做过 100 次，”作家乔希·斯佩克特说。他将这一观察变成了一个原则: [如果你想开始一个项目，无论如何都要承诺 100 次迭代](https://medium.com/an-idea-for-you/only-do-it-if-youre-willing-to-do-it-100-times-506a564798ca) 。
 

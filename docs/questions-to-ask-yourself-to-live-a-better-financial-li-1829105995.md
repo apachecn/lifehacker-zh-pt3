@@ -1,6 +1,6 @@
 # 让自己过上更好的财务生活的问题
 
-> 原文:[https://life hacker . com/questions-to-questions-questions-questions-question-question-to-question-yourself-live-a better-financial-Li-1829105995](https://lifehacker.com/questions-to-ask-yourself-to-live-a-better-financial-li-1829105995)
+> 原文：<https://lifehacker.com/questions-to-ask-yourself-to-live-a-better-financial-li-1829105995>
 
 如果你在读 TwoCents，那么你可能是在寻找过上更好财务生活的建议。你可能想对你的钱更负责任，或者学习如何更好地投资，或者只是每天提醒你照看你的钱。
 

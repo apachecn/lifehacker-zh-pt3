@@ -1,6 +1,6 @@
 # 为什么你会有夜惊，如何让他们停止
 
-> 原文:[https://life hacker . com/why-you-get-night-terrorists-and-how-to-make-these-stop-1789601972](https://lifehacker.com/why-you-get-night-terrors-and-how-to-make-them-stop-1789601972)
+> 原文：<https://lifehacker.com/why-you-get-night-terrors-and-how-to-make-them-stop-1789601972>
 
 没有什么比看着你爱的人在夜里失控更可怕的了——即使他们不记得了。更可怕的是从你爱的人或室友那里听到有人是你。那些是夜惊，而且不是普通的噩梦。以下是它们发生的原因和时间，以及如何阻止它们。
 

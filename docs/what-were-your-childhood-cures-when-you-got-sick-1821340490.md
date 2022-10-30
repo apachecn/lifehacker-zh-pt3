@@ -1,6 +1,6 @@
 # 当你生病时，你的童年疗法是什么？
 
-> 原文:[https://life hacker . com/what-are-what-your ' s childhood-cures-when-when-you-hacked-when-you-hacked-when-when-when-you-hacken-1821340490](https://lifehacker.com/what-were-your-childhood-cures-when-you-got-sick-1821340490)
+> 原文：<https://lifehacker.com/what-were-your-childhood-cures-when-you-got-sick-1821340490>
 
 如果生病有一个亮点，那就是即使你是首席执行官或绿巨人，淹没在尼奎尔和鼻涕抹布中的脆弱状态经常会让你想起那些曾经照顾过你的人。作为一个孩子，你的妈妈，爸爸，奶奶露露或其他亲爱的照顾者做了什么让你感觉更好？让你嚼蒜瓣吗？给你生鸡蛋、糖和伏特加的混合物？让你连续看*星球大战*七个小时？你的家人现在也使用同样的药物吗？
 

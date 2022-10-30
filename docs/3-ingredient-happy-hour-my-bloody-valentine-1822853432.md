@@ -1,6 +1,6 @@
 # 三要素快乐时光:我的血腥情人节
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-my-bloody-valentine-1822853432](https://lifehacker.com/3-ingredient-happy-hour-my-bloody-valentine-1822853432)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-my-bloody-valentine-1822853432>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。情人节很快就要到了，但我决定用邪恶的血橙来为这个节日增色，而不是做一杯有气泡和玫瑰香味的鸡尾酒。
 

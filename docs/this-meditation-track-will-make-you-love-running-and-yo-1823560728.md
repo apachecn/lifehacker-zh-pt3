@@ -1,6 +1,6 @@
 # 这条冥想轨道会让你爱上跑步和你自己
 
-> 原文:[https://life hacker . com/this-mostation-track-will-make-you-love-running-and-yo-1823560728](https://lifehacker.com/this-meditation-track-will-make-you-love-running-and-yo-1823560728)
+> 原文：<https://lifehacker.com/this-meditation-track-will-make-you-love-running-and-yo-1823560728>
 
 iOS/Android:我跑步的时候内心独白听起来像是好教练和坏教练的争论。一个声音告诉我要放松，找到我的最佳速度，不要看表，只要找到正确的努力程度。然后另一个声音插嘴说:“哦，看看你，跑得这么慢，你已经累了！你吸！”
 

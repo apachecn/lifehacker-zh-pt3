@@ -1,6 +1,6 @@
 # 如何制作阿拉巴马白烧烤酱，熏鸡最好的朋友
 
-> 原文:[https://the take out . com/Alabama-white-BBQ-sauce-is-smoked-chicken-s-best-friend-1798264121](https://thetakeout.com/alabama-white-bbq-sauce-is-smoked-chicken-s-best-friend-1798264121)
+> 原文：<https://thetakeout.com/alabama-white-bbq-sauce-is-smoked-chicken-s-best-friend-1798264121>
 
 牛肉统治了德克萨斯的烧烤，排骨是孟菲斯和堪萨斯城的首选蛋白质，猪肩肉是卡罗莱纳州的宗教神灵。然而，烤鸡受到了冷遇(除非你把定制的加州披萨上的黏糊糊的东西也算在内，这是不应该的)。也就是说，除非你发现自己在阿拉巴马州北部，我们国家的熏鸡文化跳动的心脏。
 

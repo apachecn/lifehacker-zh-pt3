@@ -1,6 +1,6 @@
 # Goodreads 可以告诉你电子书什么时候上市
 
-> 原文:[https://life hacker . com/goodreads-can-tell-you-when-ebooks-go-sale-1823010144](https://lifehacker.com/goodreads-can-tell-you-when-ebooks-go-on-sale-1823010144)
+> 原文：<https://lifehacker.com/goodreads-can-tell-you-when-ebooks-go-on-sale-1823010144>
 
 你可以获得 Goodreads“想读”清单上所有书籍的销售提醒。每当其中一个在 Kindle、iBooks、Nook、Google Play 或 Kobo 上打折时，你都会收到一封电子邮件。(这只适用于电子书，不适用于纸质书。)
 

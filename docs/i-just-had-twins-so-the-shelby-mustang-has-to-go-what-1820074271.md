@@ -1,6 +1,6 @@
 # 我刚生了双胞胎，所以谢尔比野马必须被淘汰！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-just-have-twins-so-the-shelby-mustang-has-to-go-what-1820074271](https://jalopnik.com/i-just-had-twins-so-the-shelby-mustang-has-to-go-what-1820074271)
+> 原文：<https://jalopnik.com/i-just-had-twins-so-the-shelby-mustang-has-to-go-what-1820074271>
 
 克里斯托弗有一辆 2011 款谢尔比野马，奇迹般地没有卷入任何汽车和咖啡事故。现在他有双胞胎和汽车座椅，野马不能很好地混合，所以他需要有四个门的快速的东西。他应该买什么车？
 

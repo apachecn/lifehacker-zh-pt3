@@ -1,6 +1,6 @@
 # 为什么我喜欢这款老人手机[更新]
 
-> 原文:[https://life hacker . com/why-I-love-this-mobile-carrier-for-old-persons-1823732082](https://lifehacker.com/why-i-love-this-mobile-carrier-for-old-people-1823732082)
+> 原文：<https://lifehacker.com/why-i-love-this-mobile-carrier-for-old-people-1823732082>
 
 消费者手机网站上的库存照片都是老年人的特写。按钮很大。对美国退休人员协会的成员有一个特殊待遇。我 33 岁了，我爱这家电话公司。
 

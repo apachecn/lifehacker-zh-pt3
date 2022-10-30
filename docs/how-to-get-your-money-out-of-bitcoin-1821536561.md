@@ -1,6 +1,6 @@
 # 如何将你的钱从比特币中取出
 
-> 原文:[https://life hacker . com/how-to-get-your money-out-of-bit coin-1821536561](https://lifehacker.com/how-to-get-your-money-out-of-bitcoin-1821536561)
+> 原文：<https://lifehacker.com/how-to-get-your-money-out-of-bitcoin-1821536561>
 
 在过去一年从不到 1000 美元上涨到近 20，000 美元后， [比特币](https://lifehacker.com/only-buy-bitcoin-if-youre-ready-to-lose-it-1820006087) [今天早上惊人地暴跌](https://gizmodo.com/bitcoin-crashed-and-took-the-whole-market-down-with-it-1821529613#_ga=2.139600755.1129508123.1513736573-1167719708.1504278915) ，跌至每比特币 11，000 美元，然后反弹到 13，000 美元多一点。这个消息让大量的加密货币投资者吓得屁滚尿流。由于活动增加，它甚至使流行的数字货币交易所比特币基地 [暂时下线](https://www.theverge.com/2017/12/22/16810614/coinbase-trading-buy-sell-unavailable-bitcoin-price-drop) 。
 

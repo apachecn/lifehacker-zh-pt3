@@ -1,6 +1,6 @@
 # 你应该得到什么样的有线电视服务？
 
-> 原文:[https://gizmodo . com/what-streaming-TV-service-should-you-get-1818782017](https://gizmodo.com/what-streaming-tv-service-should-you-get-1818782017)
+> 原文：<https://gizmodo.com/what-streaming-tv-service-should-you-get-1818782017>
 
 剪掉脐带一直是流媒体视频的承诺，我们终于到了流媒体电视比付费有线电视订阅更好的地步。事实上，根据最近的一份报告，61%的年轻人将流媒体作为他们看电视的主要方式。但随着近年来付费服务的激增，选择使用哪种服务可能是一件非常痛苦的事情。我们是来帮忙的。
 

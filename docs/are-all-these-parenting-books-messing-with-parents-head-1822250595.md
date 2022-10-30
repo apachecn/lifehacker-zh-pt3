@@ -1,6 +1,6 @@
 # 这些育儿书是不是都把家长搞糊涂了？
 
-> 原文:[https://life hacker . com/are-all-this-parenting-books-messing-with-parents-head-1822250595](https://lifehacker.com/are-all-these-parenting-books-messing-with-parents-head-1822250595)
+> 原文：<https://lifehacker.com/are-all-these-parenting-books-messing-with-parents-head-1822250595>
 
 我桌上有一大堆育儿书籍。他们中的一些人告诉我，我在抚养我的孩子方面做得很棒(那些书，我喜欢翻来翻去地看)。其他人告诉我，我把一切都搞砸了，从睡觉时间到屏幕时间。为了我的工作，我狼吞虎咽地吃下了它们，但也因为我的一部分一直在寻找那种可以坚持的东西——那种来自某个偏远村庄的刚刚发现的哲学，那里所有的孩子都快乐而乐于助人(永远不会叫你“湿漉漉的肚子妈妈”)，那种经过科学验证的技术，它将让我每天多睡五个小时，那种声音会说，“哦，亲爱的，你是说你一直在没有指导手册的情况下做父母吗？*给你*我在一个似乎有无数问题的阶段寻找答案。
 

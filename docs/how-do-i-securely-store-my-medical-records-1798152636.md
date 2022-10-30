@@ -1,6 +1,6 @@
 # 我如何安全地存储我的医疗记录？
 
-> 原文:[https://life hacker . com/how-do-I-securely-store-my-medical-records-1798152636](https://lifehacker.com/how-do-i-securely-store-my-medical-records-1798152636)
+> 原文：<https://lifehacker.com/how-do-i-securely-store-my-medical-records-1798152636>
 
 ### **亲爱的生活黑客:**
 

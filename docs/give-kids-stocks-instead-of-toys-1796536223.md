@@ -1,6 +1,6 @@
 # 给孩子股票而不是玩具
 
-> 原文:[https://life hacker . com/give-kids-stocks-而不是-toys-1796536223](https://lifehacker.com/give-kids-stocks-instead-of-toys-1796536223)
+> 原文：<https://lifehacker.com/give-kids-stocks-instead-of-toys-1796536223>
 
 孩子们有太多的东西，任何一位父母都会说，她一直在等着孩子匆匆忙忙去上学，这样她就可以把所有孤独的、没碰过的玩具从她刚刚近藤的空间偷偷带走，放进当地的捐赠箱。
 

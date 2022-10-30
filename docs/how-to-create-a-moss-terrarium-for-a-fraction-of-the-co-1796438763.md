@@ -1,6 +1,6 @@
 # 如何用那些花哨工具的一小部分成本来制作一个苔藓玻璃容器
 
-> 原文:[https://life hacker . com/how-to-create-a-moss-terrium-for-a-fraction-of-the-co-1796438763](https://lifehacker.com/how-to-create-a-moss-terrarium-for-a-fraction-of-the-co-1796438763)
+> 原文：<https://lifehacker.com/how-to-create-a-moss-terrarium-for-a-fraction-of-the-co-1796438763>
 
 自维多利亚女王执政以来，玻璃鱼缸迎来了最重要的时刻。在 19 世纪晚期，一种流行的展示植物的方式，terrariums，在维多利亚时代被称为“Wardian Cases ”,是一种精心制作的物品，可以占据整个边桌。如今，更小、更简单的迭代排列在时尚商店的橱窗上，出现在礼品指南上，在布鲁克林，甚至启发了一家名为“细枝”的玻璃器皿商店。
 

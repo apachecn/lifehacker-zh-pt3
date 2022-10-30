@@ -1,6 +1,6 @@
 # 欺骗自己一劳永逸摆脱杂乱的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-trick-into-avoid-and-get-1730258060](https://lifehacker.com/top-10-ways-to-trick-yourself-into-avoiding-and-getting-1730258060)
+> 原文：<https://lifehacker.com/top-10-ways-to-trick-yourself-into-avoiding-and-getting-1730258060>
 
 对我们许多人来说，处理杂乱是一场持续的战斗。即使我们没有直接去想那些乱七八糟的东西，它们也会悄悄靠近我们，消耗我们的精神 ，浪费我们的时间和金钱 。一场狂欢式的清理会议不足以永远远离杂乱；我们必须改变我们的思维习惯。以下是看待杂乱的十种新方法。
 

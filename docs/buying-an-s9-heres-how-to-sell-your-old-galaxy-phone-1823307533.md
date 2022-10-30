@@ -1,6 +1,6 @@
 # 买一台 S9？以下是如何出售你的旧 Galaxy 手机
 
-> 原文:[https://life hacker . com/buying-an-S9-heres-how-to-sell-your-old-galaxy-phone-1823307533](https://lifehacker.com/buying-an-s9-heres-how-to-sell-your-old-galaxy-phone-1823307533)
+> 原文：<https://lifehacker.com/buying-an-s9-heres-how-to-sell-your-old-galaxy-phone-1823307533>
 
 如果在看到新的 Galaxy S9 后，你决定在你的生活中需要一部手机，有很多方法可以使用你的 Galaxy S8、S7 或 iPhone 等。作为筹集现金购买的一种方式。
 

@@ -1,6 +1,6 @@
 # 如何定制自己的口罩
 
-> 原文:[https://life hacker . com/how-to-customize-your-own-face-masks-1797276689](https://lifehacker.com/how-to-customize-your-own-face-masks-1797276689)
+> 原文：<https://lifehacker.com/how-to-customize-your-own-face-masks-1797276689>
 
 面膜可能很贵，但是在脸上敷上某种东西会(有希望)改变你的皮肤质地——让你感觉自己像一个高级水疗中心的顾客——这种体验令人难以置信地满足。幸运的是，大多数面具都有自己动手制作的版本，可以用家居用品来制作，价格要便宜得多。下面是我们的 DIY 面膜选择指南，包括要避免的成分和每种成分的作用:
 

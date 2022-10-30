@@ -1,6 +1,6 @@
 # 直接从电脑的搜索栏查看世界杯比分
 
-> 原文:[https://life hacker . com/check-world-cup-scores-direct-from-your-computers-sea-1826893221](https://lifehacker.com/check-world-cup-scores-directly-from-your-computers-sea-1826893221)
+> 原文：<https://lifehacker.com/check-world-cup-scores-directly-from-your-computers-sea-1826893221>
 
 世界杯正式开始了。如果你想在电脑上观看所有的动作，我们已经在 [详细介绍了如何在](https://lifehacker.com/how-to-watch-the-world-cup-even-without-a-tv-1826811241) 中实现。
 

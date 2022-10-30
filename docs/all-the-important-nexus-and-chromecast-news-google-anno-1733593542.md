@@ -1,6 +1,6 @@
 # 谷歌今天宣布的所有重要的 Nexus 和 Chromecast 新闻
 
-> 原文:[https://life hacker . com/all-the-important-nexus-and-chrome cast-news-Google-anno-1733593542](https://lifehacker.com/all-the-important-nexus-and-chromecast-news-google-anno-1733593542)
+> 原文：<https://lifehacker.com/all-the-important-nexus-and-chromecast-news-google-anno-1733593542>
 
 今天，谷歌举行了一场活动，宣布其最新的 Nexus 硬件。不过，这不仅仅是手机的问题。以下是谷歌今天分享的一些最重要、最有趣的事情。
 

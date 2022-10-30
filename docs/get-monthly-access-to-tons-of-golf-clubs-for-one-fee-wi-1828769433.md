@@ -1,6 +1,6 @@
 # 使用此应用程序，只需支付一笔费用，即可每月访问大量高尔夫球场
 
-> 原文:[https://life hacker . com/get-monthly-access-to-tons-of-golf-clubs-for-one-fee-wi-1828769433](https://lifehacker.com/get-monthly-access-to-tons-of-golf-clubs-for-one-fee-wi-1828769433)
+> 原文：<https://lifehacker.com/get-monthly-access-to-tons-of-golf-clubs-for-one-fee-wi-1828769433>
 
 如果你是一个高尔夫球爱好者，那么你应该知道成为一个拥有像样球场的俱乐部的一员可能会有点…昂贵。 [GolfPass](http://www.golfpass.co/) 是一种基于移动应用的新的月度会员/订阅服务，允许您支付一次费用，就可以访问其网络中的所有高尔夫球场。
 

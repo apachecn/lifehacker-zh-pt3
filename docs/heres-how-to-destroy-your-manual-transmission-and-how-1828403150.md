@@ -1,6 +1,6 @@
 # 以下是如何摧毁你的手动变速器(以及如何让它持久)
 
-> 原文:[https://jalopnik . com/heres-how-to-destroy-your-manual-transmission-and-how-1828403150](https://jalopnik.com/heres-how-to-destroy-your-manual-transmission-and-how-1828403150)
+> 原文：<https://jalopnik.com/heres-how-to-destroy-your-manual-transmission-and-how-1828403150>
 
 我想知道的很简单:如何在不弄坏手动挡的情况下驾驶它，因为修理费很贵，我得到的每一条建议都是废话。所以我打电话给一个拉力冠军，找出什么会在一个下午的时间里把你的车炸掉，什么会让它永远开下去。
 

@@ -1,6 +1,6 @@
 # 现在，学生们每月只需花 5 美元就可以在 Hulu 和 Spotify Premium 上得分
 
-> 原文:[https://life hacker . com/now-students-can-score-Hulu-and-Spotify-premium-for-jus-1802344039](https://lifehacker.com/now-students-can-score-hulu-and-spotify-premium-for-jus-1802344039)
+> 原文：<https://lifehacker.com/now-students-can-score-hulu-and-spotify-premium-for-jus-1802344039>
 
 如果你目前正在上学，Spotify 和 Hulu 刚刚宣布了一项非常棒的交易。这两家公司同时提供 Hulu 和 Spotify Premium，每月仅售 4.99 美元。 *The Verge* notes [这已经是 Spotify 的学生计划](https://www.theverge.com/2017/9/7/16263938/spotify-hulu-student-deal-announced) 的费用，所以他们基本上免费赠送 Hulu。
 

@@ -1,6 +1,6 @@
 # 你可以用亚马逊 Echo 做的七件最好的事情
 
-> 原文:[https://life hacker . com/the-seven-best-things-you-can-do-an-Amazon-echo-1766989219](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219)
+> 原文：<https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219>
 
 亚马逊 EchoT3[让我们第一次真正看到了智能家居的未来。它并不完美，但无论你是想得到一个回音，听到人们谈论“Alexa”，还是不确定你拥有的是什么能力，这里有一些你可以用它做的最好的事情。](http://amazon.com/echo?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219&asc_source=&tag=kinjalifehackerlink-20) 
 

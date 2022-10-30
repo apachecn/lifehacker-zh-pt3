@@ -1,6 +1,6 @@
 # 如何在冬季道路上的致命黑冰中生存
 
-> 原文:[https://life hacker . com/how-to-survive-deadly-black-ice-on-winter-roads-1821258841](https://lifehacker.com/how-to-survive-deadly-black-ice-on-winter-roads-1821258841)
+> 原文：<https://lifehacker.com/how-to-survive-deadly-black-ice-on-winter-roads-1821258841>
 
 几乎不可能看到黑冰，它几乎可以在路上的任何地方形成，并有可能使你的车辆倾斜到迎面而来的车流中。这是坏消息。以下是你如何在假期上路时发现讨厌的黑冰并避免事故的方法。
 

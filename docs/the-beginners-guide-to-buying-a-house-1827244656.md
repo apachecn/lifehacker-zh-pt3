@@ -1,6 +1,6 @@
 # 买房入门指南
 
-> 原文:[https://life hacker . com/the-初学者买房指南-1827244656](https://lifehacker.com/the-beginners-guide-to-buying-a-house-1827244656)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-buying-a-house-1827244656>
 
 如果你是第一次买房，你可能对这个过程仍有无数疑问，首先，嗯，到底是怎么有人还能买得起房子。
 

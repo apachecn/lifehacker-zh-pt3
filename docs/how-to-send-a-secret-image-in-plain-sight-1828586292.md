@@ -1,6 +1,6 @@
 # 如何在众目睽睽之下发送秘密图像
 
-> 原文:[https://life hacker . com/how-to-send-a secret-image-in-plain-sight-1828586292](https://lifehacker.com/how-to-send-a-secret-image-in-plain-sight-1828586292)
+> 原文：<https://lifehacker.com/how-to-send-a-secret-image-in-plain-sight-1828586292>
 
 出于从“T2”到超级间谍的各种原因，你可能偶尔会想给某人发送一张秘密图片。虽然有很多应用程序可以用来发送消失的图像，但[**Cammeleon**](https://itunes.apple.com/app/id1399892809)是一个很酷的小 iOS 应用程序，可以让你在图像中隐藏图像*。*
 

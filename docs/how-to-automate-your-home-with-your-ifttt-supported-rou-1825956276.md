@@ -1,6 +1,6 @@
 # 如何使用支持 IFTTT 的路由器实现家居自动化
 
-> 原文:[https://life hacker . com/how-to-automated-your-if TTT-supported-rou-1825956276](https://lifehacker.com/how-to-automate-your-home-with-your-ifttt-supported-rou-1825956276)
+> 原文：<https://lifehacker.com/how-to-automate-your-home-with-your-ifttt-supported-rou-1825956276>
 
 我热爱自动化；我知道。我只是觉得走进我的房子，让我的智能灯立即拉出一些丰富多彩的场景，这是有史以来最有趣的事情——更不用说当某些事情发生时，我可以创建所有荒谬的配置来改变它们的颜色和亮度，从“我收到了一条推特”到“都午夜了，你为什么还醒着去睡觉。”
 

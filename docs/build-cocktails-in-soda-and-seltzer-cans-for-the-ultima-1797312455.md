@@ -1,6 +1,6 @@
 # 用苏打水和矿泉水瓶调制鸡尾酒，打造终极外带饮料
 
-> 原文:[https://life hacker . com/build-cocktails-in-soda-and-seltzer-can-for-the-ultima-1797312455](https://lifehacker.com/build-cocktails-in-soda-and-seltzer-cans-for-the-ultima-1797312455)
+> 原文：<https://lifehacker.com/build-cocktails-in-soda-and-seltzer-cans-for-the-ultima-1797312455>
 
 上周末，当我在俄勒冈海岸闲逛时，我突然很想在沙滩上喝一杯 kalimotxo 酒，但绝不想带着酒杯去海滩。所以，我没有喝红 Solo 杯，而是倒了大约半罐可乐——留着以后用——并用红酒填满了现在的空余空间。
 

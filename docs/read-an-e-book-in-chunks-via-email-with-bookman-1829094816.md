@@ -1,6 +1,6 @@
 # 通过电子邮件和 Bookman 一起阅读电子书
 
-> 原文:[https://life hacker . com/read-an-e-book-in-chunks-via-email-with-bookman-1829094816](https://lifehacker.com/read-an-e-book-in-chunks-via-email-with-bookman-1829094816)
+> 原文：<https://lifehacker.com/read-an-e-book-in-chunks-via-email-with-bookman-1829094816>
 
 理论上，阅读电子书是一个容易的命题。你可以在手机上(以及无数其他设备上)访问电子书，所以你应该可以随时拿起它们读一两页。除非你不知道。
 

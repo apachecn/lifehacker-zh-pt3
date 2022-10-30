@@ -1,6 +1,6 @@
 # 你从未谈论过的专业领域是什么？
 
-> 原文:[https://life hacker . com/what-area-of-professional-do-you-never-get-to-talk-1828996931](https://lifehacker.com/what-area-of-expertise-do-you-never-get-to-talk-about-1828996931)
+> 原文：<https://lifehacker.com/what-area-of-expertise-do-you-never-get-to-talk-about-1828996931>
 
 今天，Ask Reddit 用户正在互相谈论 [哪些专业领域是他们在正常生活中永远不会谈论的](https://old.reddit.com/r/AskReddit/comments/9f6ok8/what_is_a_subject_that_you_have_extensive/) 。主题包括火箭科学、连环杀手、口袋妖怪 Go 元战略、NFL(作为一名外籍人士)和罗马历史的“R 级部分”。我们希望从 Lifehacker 的读者那里听到同样的消息，只是有一点小小的改变。
 

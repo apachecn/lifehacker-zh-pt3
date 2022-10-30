@@ -1,6 +1,6 @@
 # 基准是如何工作的，以及何时应该关注它们
 
-> 原文:[https://life hacker . com/how-benchmarks-work-and-when-you-should-notice-t-1792579167](https://lifehacker.com/how-benchmarks-work-and-when-you-should-pay-attention-t-1792579167)
+> 原文：<https://lifehacker.com/how-benchmarks-work-and-when-you-should-pay-attention-t-1792579167>
 
 当你买一个新的小玩意时，你会想要一个速度最快、功能最强大的。基准测试可以帮助您找出哪些设备拥有最大的能力，但有时它们只是一种干扰。
 

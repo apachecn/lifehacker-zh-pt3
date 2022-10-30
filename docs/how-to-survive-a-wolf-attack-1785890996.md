@@ -1,6 +1,6 @@
 # 如何在狼的袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-wolf-attack-1785890996](https://lifehacker.com/how-to-survive-a-wolf-attack-1785890996)
+> 原文：<https://lifehacker.com/how-to-survive-a-wolf-attack-1785890996>
 
 当太阳开始下山时，你开始穿过树林返回营地。突然，一组属于咆哮的狼的锋利牙齿出现在你面前——而且它并不孤单。你应该这么做。
 

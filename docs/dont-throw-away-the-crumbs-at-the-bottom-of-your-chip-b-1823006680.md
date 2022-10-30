@@ -1,6 +1,6 @@
 # 不要扔掉薯条袋底部的面包屑
 
-> 原文:[https://life hacker . com/don ' t-throw-the-crumbs-at-the-bottom of-your-chip-b-1823006680](https://lifehacker.com/dont-throw-away-the-crumbs-at-the-bottom-of-your-chip-b-1823006680)
+> 原文：<https://lifehacker.com/dont-throw-away-the-crumbs-at-the-bottom-of-your-chip-b-1823006680>
 
 如果说我们从 [LadyDoritoGate](https://skillet.lifehacker.com/heres-a-lady-dip-for-your-lady-chips-1822769865) 身上学到了什么，那就是女人们讨厌把薯片屑倒进她们张大的嘴里。但也许这与撑场面无关；也许这些精明的女人把面包屑留给了聪明、美味的用途。
 

@@ -1,6 +1,6 @@
 # 2017 年最佳、最差和最怪异的电视剧指南，你可能永远不会看
 
-> 原文:[https://Jezebel . com/a-guide-to-all-the-best-worth-and-vertical-2017-TV-pil-1795346227](https://jezebel.com/a-guide-to-all-the-best-worst-and-weirdest-2017-tv-pil-1795346227)
+> 原文：<https://jezebel.com/a-guide-to-all-the-best-worst-and-weirdest-2017-tv-pil-1795346227>
 
 随着我们最喜爱的节目开始进入空白(*新女孩，丑闻，女孩*)，新的节目再次在这里哭着等待批准。今年的电视剧试播集——主要由 [白人男性](http://variety.com/2017/tv/news/new-2017-18-tv-shows-no-diversity-1202436493/) 领衔主演——包括军事剧、医疗剧、 *Will & Grace* 和一部我们不需要的路西法制作的*生活大爆炸* [衍生剧](http://jezebel.com/golden-age-of-television-my-ass-1795333872) 。
 

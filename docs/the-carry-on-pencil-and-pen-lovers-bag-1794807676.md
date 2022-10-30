@@ -1,6 +1,6 @@
 # 随身携带的铅笔和钢笔爱好者包
 
-> 原文:[https://life hacker . com/the-carry-on-pencil and-pen-lovers-bag-1794807676](https://lifehacker.com/the-carry-on-pencil-and-pen-lovers-bag-1794807676)
+> 原文：<https://lifehacker.com/the-carry-on-pencil-and-pen-lovers-bag-1794807676>
 
 每个人都希望在飞行时身边有一套不同的工具，但读者卡尔·马尔多纳多分享了他在不同的建筑项目中飞行时所带的工具。正如你所料，这里有一个漂亮的铅笔盒。
 

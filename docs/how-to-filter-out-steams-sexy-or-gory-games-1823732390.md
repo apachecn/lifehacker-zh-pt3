@@ -1,6 +1,6 @@
 # 如何过滤掉 Steam 的性感或者血淋淋的游戏
 
-> 原文:[https://life hacker . com/how-to-filter-out-steams-sexy-or-gory-games-1823732390](https://lifehacker.com/how-to-filter-out-steams-sexy-or-gory-games-1823732390)
+> 原文：<https://lifehacker.com/how-to-filter-out-steams-sexy-or-gory-games-1823732390>
 
 在 Valve 的 Steam 服务的“新趋势”列表中，我似乎看到的都是我知道我永远不会玩的游戏——包括那些怪异的性感游戏、糟糕透顶的早期访问游戏和其他古怪的游戏。
 

@@ -1,6 +1,6 @@
 # 中情局认可的公文包录音机
 
-> 原文:[https://life hacker . com/the-CIA-approved-公文包-记录器-1738693293](https://lifehacker.com/the-cia-approved-briefcase-recorder-1738693293)
+> 原文：<https://lifehacker.com/the-cia-approved-briefcase-recorder-1738693293>
 
 虽然如今随身携带录音机要容易得多，但在 20 世纪 50 年代，记录绝密对话要困难得多。这是中情局的解决方案。
 

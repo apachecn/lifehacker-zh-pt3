@@ -1,6 +1,6 @@
 # 如果你今天过得不好，试试“1-2-3 策略”
 
-> 原文:[https://life hacker . com/if-you-have-a-tough-day-try-the-1-2-3-strategy-1827238273](https://lifehacker.com/if-youre-having-a-tough-day-try-the-1-2-3-strategy-1827238273)
+> 原文：<https://lifehacker.com/if-youre-having-a-tough-day-try-the-1-2-3-strategy-1827238273>
 
 我们都经历过——你的一天过得很糟糕，感觉永远不会结束。最糟糕的是，感觉你做什么都没办法让它变好。但这并不完全正确。这个策略不会解决你所有的问题，但它是一个创造性的方法，可以让你度过艰难的一天。
 

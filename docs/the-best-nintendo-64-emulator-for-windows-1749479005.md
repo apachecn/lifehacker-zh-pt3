@@ -1,6 +1,6 @@
 # 最好的任天堂 64 视窗模拟器
 
-> 原文:[https://life hacker . com/the-best-Nintendo-64-emulator-for-windows-1749479005](https://lifehacker.com/the-best-nintendo-64-emulator-for-windows-1749479005)
+> 原文：<https://lifehacker.com/the-best-nintendo-64-emulator-for-windows-1749479005>
 
 当然，马里奥赛车 8 可能有 30 个角色和气垫船，但现在经典的马里奥赛车 64 有些怀旧。如果你想重温童年的游戏，模拟器是一个不错的选择。
 

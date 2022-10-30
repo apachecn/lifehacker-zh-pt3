@@ -1,6 +1,6 @@
 # 大学新生需要了解他们的学生贷款
 
-> 原文:[https://life hacker . com/what-college-新生-需要了解他们的学生-1828459368](https://lifehacker.com/what-college-freshmen-need-to-know-about-their-student-1828459368)
+> 原文：<https://lifehacker.com/what-college-freshmen-need-to-know-about-their-student-1828459368>
 
 当你上课的时候，你的学生贷款可能是你脑海中最后一件事，赶着去联谊会和走廊那头的那个人去弄清楚，但是现在有一些你应该做的事情会让你在毕业时领先一步。
 

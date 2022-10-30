@@ -1,6 +1,6 @@
 # 如何在 Xbox One 上运行向后兼容的 Xbox 360 游戏
 
-> 原文:[https://kotaku . com/how-to-run-backward-compatible-Xbox-360-games-on-Xbox-1742260424](https://kotaku.com/how-to-run-backwards-compatible-xbox-360-games-on-xbox-1742260424)
+> 原文：<https://kotaku.com/how-to-run-backwards-compatible-xbox-360-games-on-xbox-1742260424>
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-B44UlITPun8&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-B44UlITPun8&start=0) 
 

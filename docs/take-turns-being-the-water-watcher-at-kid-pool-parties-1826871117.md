@@ -1,6 +1,6 @@
 # 在儿童泳池派对上轮流做“看水人”
 
-> 原文:[https://life hacker . com/轮流在儿童泳池派对上看水-1826871117](https://lifehacker.com/take-turns-being-the-water-watcher-at-kid-pool-parties-1826871117)
+> 原文：<https://lifehacker.com/take-turns-being-the-water-watcher-at-kid-pool-parties-1826871117>
 
 夏天到了，虽然在游泳池里戏水对孩子们来说是一项很棒的活动，但父母必须时刻保持警惕。在泳池派对上，很容易坐下来放松。有人来了，有人在交谈，你会想，“这里有很多成年人，有人在看着我的孩子。”
 

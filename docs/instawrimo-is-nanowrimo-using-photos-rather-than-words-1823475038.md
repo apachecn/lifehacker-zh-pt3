@@ -1,6 +1,6 @@
 # InstaWrimo 是用照片代替文字的 NaNoWriMo
 
-> 原文:[https://life hacker . com/insta wrimo-is-nanowrimo-using-photos-而不是-words-1823475038](https://lifehacker.com/instawrimo-is-nanowrimo-using-photos-rather-than-words-1823475038)
+> 原文：<https://lifehacker.com/instawrimo-is-nanowrimo-using-photos-rather-than-words-1823475038>
 
 每年 11 月， [NaNoWriMo 都会邀请作家和准作家](https://lifehacker.com/whats-your-plan-for-nanowrimo-1820023495#_ga=2.268777009.1992027257.1519751615-1914111652.1515610632) 在一个月内完成一部小说。这个挑战我已经尝试了至少六次，只完成了一次。尽管我的成功率有限，但我总是在第二年再试一次，因为坦率地说，这是一项非常有趣的练习，即使我并不总是能完成。
 

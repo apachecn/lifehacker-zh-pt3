@@ -1,6 +1,6 @@
 # 问那个刻薄的女服务员:我能给服务员留个电话号码吗？
 
-> 原文:[https://the take out . com/ask-the-salty-waste-I-can-leave-a-server-my-number-1823011330](https://thetakeout.com/ask-the-salty-waitress-can-i-leave-a-server-my-number-1823011330)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-can-i-leave-a-server-my-number-1823011330>
 
 * * *
 

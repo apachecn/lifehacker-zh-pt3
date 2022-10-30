@@ -1,6 +1,6 @@
 # 当你的丈夫对游戏比对性更感兴趣时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-when-your ' s-going-than-s-1825507714](https://lifehacker.com/what-to-do-when-your-husband-is-more-into-gaming-than-s-1825507714)
+> 原文：<https://lifehacker.com/what-to-do-when-your-husband-is-more-into-gaming-than-s-1825507714>
 
 本周我们有一位新婚妇女，她的丈夫玩了太多的电子游戏，这影响了他们的性生活。游戏结束了？
 

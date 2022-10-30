@@ -1,6 +1,6 @@
 # 以下是免费修理你坏掉的电动门锁的方法
 
-> 原文:[https://jalopnik . com/heres-how-to-fix-your-broken electric-door-lock-for-fre-1822020333](https://jalopnik.com/heres-how-to-fix-your-broken-electric-door-lock-for-fre-1822020333)
+> 原文：<https://jalopnik.com/heres-how-to-fix-your-broken-electric-door-lock-for-fre-1822020333>
 
 除非你开着 80 年代的 econobox 到处跑，否则你的车里很可能有电动门锁。和任何事情一样，这些电锁最终会磨损，你只能用一把实体钥匙来开门。恐怖啊！
 

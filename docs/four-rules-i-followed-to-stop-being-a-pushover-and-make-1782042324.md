@@ -1,6 +1,6 @@
 # 我遵循的四条规则让我不再是一个容易被说服的人，让我自己变得更强大
 
-> 原文:[https://life hacker . com/four-rules-I-followed-to-stop-be-a-pushover-and-make-1782042324](https://lifehacker.com/four-rules-i-followed-to-stop-being-a-pushover-and-make-1782042324)
+> 原文：<https://lifehacker.com/four-rules-i-followed-to-stop-being-a-pushover-and-make-1782042324>
 
 你知道那些 [为一切事情道歉](https://lifehacker.com/how-to-stop-apologizing-for-everything-you-do-1746770762) 的人，你给他们指出来，然后他们为道歉而道歉？对，就是我。我一生都很容易被说服，但随着年龄的增长，我越来越难受。我最终决定做点什么。
 

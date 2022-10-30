@@ -1,6 +1,6 @@
 # 预付借记卡用完了不要扔掉
 
-> 原文:[https://life hacker . com/don-throw-out-of-预付费借记卡-when-they-done-1821658180](https://lifehacker.com/dont-throw-out-prepaid-debit-cards-when-theyre-done-1821658180)
+> 原文：<https://lifehacker.com/dont-throw-out-prepaid-debit-cards-when-theyre-done-1821658180>
 
 如果你在假期收到了一张预付借记卡，首先，恭喜你。第二，很抱歉我似乎要给你添麻烦了，但是:即使卡里的余额用完了，也要保存它。
 

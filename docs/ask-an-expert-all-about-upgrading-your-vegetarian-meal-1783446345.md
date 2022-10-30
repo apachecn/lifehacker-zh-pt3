@@ -1,6 +1,6 @@
 # 问专家:关于升级你的素食计划
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-upgrade-your-素食-1783446345](https://lifehacker.com/ask-an-expert-all-about-upgrading-your-vegetarian-meal-1783446345)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-upgrading-your-vegetarian-meal-1783446345>
 
 如果你最近决定只吃素食或纯素食，学习如何不用动物产品制作你最喜欢的菜肴可能会是一个烹饪减速带。但是，只要稍微计划一下饮食，改变以植物为基础的生活方式会很有趣也很容易。
 

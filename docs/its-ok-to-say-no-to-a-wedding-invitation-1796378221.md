@@ -1,6 +1,6 @@
 # 拒绝婚礼邀请是可以的
 
-> 原文:[https://life hacker . com/its-ok-to-say-no-a-婚礼邀请-1796378221](https://lifehacker.com/its-ok-to-say-no-to-a-wedding-invitation-1796378221)
+> 原文：<https://lifehacker.com/its-ok-to-say-no-to-a-wedding-invitation-1796378221>
 
 《锥子》的但丁·乔丹说，你不必对每一个婚礼邀请都答应 。虽然乔丹的目标人群是那些希望在每场婚礼上都能对 T4 说不的人，但这对于我们这些喜欢偶尔见证两个朋友宣布他们的爱情，然后吃晚餐的人来说也是一个好建议。
 

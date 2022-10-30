@@ -1,6 +1,6 @@
 # 通过使用这款应用程序与现场的人交谈来验证新闻故事
 
-> 原文:[https://life hacker . com/this-app-let-you-verify-a-news-story-by-talking-to-som-1825624611](https://lifehacker.com/this-app-lets-you-verify-a-news-story-by-talking-to-som-1825624611)
+> 原文：<https://lifehacker.com/this-app-lets-you-verify-a-news-story-by-talking-to-som-1825624611>
 
 过去的一年导致了许多关于“假新闻”的指控，以及我们大多数人在相信之前努力去验证我们读到的是真的。一个新的应用程序试图通过使用人工智能和人工验证来弥合发现新闻和验证其真实性之间的差距。
 

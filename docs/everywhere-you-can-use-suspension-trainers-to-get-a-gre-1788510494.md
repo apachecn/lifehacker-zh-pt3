@@ -1,6 +1,6 @@
 # 所有不寻常的地方，你都可以使用悬浮训练器来获得很好的锻炼
 
-> 原文:[https://life hacker . com/everywhere-you-can-use-suspension-trainers-to-get-a-GRE-1788510494](https://lifehacker.com/everywhere-you-can-use-suspension-trainers-to-get-a-gre-1788510494)
+> 原文：<https://lifehacker.com/everywhere-you-can-use-suspension-trainers-to-get-a-gre-1788510494>
 
 当我旅行时，能够进行力量训练是我的第二要务(第一要务是拥有良好的互联网)，但我不能总是指望找到健身房。所以不管我在哪里，我已经开始依赖我的悬浮训练器和 MacGyver 式的感觉来进行我的 [力量训练](http://thefyslife.com/article/strength-bodyweight-workout-travel/) 。你也可以这样做。
 

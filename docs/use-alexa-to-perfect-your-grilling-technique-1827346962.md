@@ -1,6 +1,6 @@
 # 使用 Alexa 来完善你的烧烤技术
 
-> 原文:[https://life hacker . com/use-Alexa-to-perfect-your-grinding-technique-1827346962](https://lifehacker.com/use-alexa-to-perfect-your-grilling-technique-1827346962)
+> 原文：<https://lifehacker.com/use-alexa-to-perfect-your-grilling-technique-1827346962>
 
 说到汉堡和热狗，我们大多数人都知道正确的烧烤方法。即使你不这样做，只要你注意你正在做的事情，就很难把它们完全搞砸。
 

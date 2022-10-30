@@ -1,6 +1,6 @@
 # 移民食物天才的颂歌
 
-> 原文:[https://Jezebel . com/an-ode-to-the genius-of-migrate-food-1829442559](https://jezebel.com/an-ode-to-the-genius-of-immigrant-food-1829442559)
+> 原文：<https://jezebel.com/an-ode-to-the-genius-of-immigrant-food-1829442559>
 
 **底特律**——与底特律“复兴”(即中产阶级化和种族隔离)的无休止的故事并行的是关于其 [新兴的](https://www.nytimes.com/2014/10/12/travel/in-detroit-revitalizing-taste-by-taste.html) [餐馆](https://www.washingtonpost.com/lifestyle/food/one-of-the-countrys-poorest-cities-is-suddenly-becoming-a-food-mecca/2016/01/04/82631234-ad80-11e5-b820-eea4d64be2a1_story.html?utm_term=.336f365d13a5) 场景的故事，这本身就是近年来重塑这座城市的惊人发展和企业资金流入的标志。
 

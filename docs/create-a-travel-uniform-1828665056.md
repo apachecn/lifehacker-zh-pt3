@@ -1,6 +1,6 @@
 # 制作旅行制服
 
-> 原文:[https://lifehacker.com/create-a-travel-uniform-1828665056](https://lifehacker.com/create-a-travel-uniform-1828665056)
+> 原文：<https://lifehacker.com/create-a-travel-uniform-1828665056>
 
 对我来说，打包可能是一个长达数周的过程。我的机票一订好(有时更早),我就开始考虑我可能需要的每一件衣服和配饰，以免我被困在一个寒冷的餐馆里，没有外套，或者去一个时髦的酒吧，没有一件标志性的东西。当然，这很有趣，但也不是最有效的利用时间的方式。
 

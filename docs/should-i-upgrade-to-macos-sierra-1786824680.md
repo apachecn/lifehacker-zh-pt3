@@ -1,6 +1,6 @@
 # 我应该升级到 macOS Sierra 吗？
 
-> 原文:[https://life hacker . com/should-I-upgrade-to-MAC OS-Sierra-1786824680](https://lifehacker.com/should-i-upgrade-to-macos-sierra-1786824680)
+> 原文：<https://lifehacker.com/should-i-upgrade-to-macos-sierra-1786824680>
 
 亲爱的 Lifehacker，
 [Sierra 今天推出了一些新功能](https://lifehacker.com/all-the-new-stuff-in-macos-sierra-1786817117) ，比如 Siri，看起来相当棒。当然，这似乎是一个足够小的升级，但这并不意味着事情不会变坏。你一直在用，你觉得呢？我应该升级，还是等待？

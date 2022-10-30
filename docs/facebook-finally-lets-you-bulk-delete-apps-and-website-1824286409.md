@@ -1,6 +1,6 @@
 # 批量删除脸书上的应用和网站登录
 
-> 原文:[https://life hacker . com/Facebook-finally-let-you-bulk-delete-apps-and-website-1824286409](https://lifehacker.com/facebook-finally-lets-you-bulk-delete-apps-and-website-1824286409)
+> 原文：<https://lifehacker.com/facebook-finally-lets-you-bulk-delete-apps-and-website-1824286409>
 
 大多数人定期使用他们的脸书账户登录网站和应用程序，但在该公司最近的 [隐私丑闻](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) 之后，很明显这样做会将你的个人数据置于风险之中。值得称赞的是，脸书多年来已经可以删除这些登录，但这一直是一个繁琐的一次一个的过程——直到现在。
 

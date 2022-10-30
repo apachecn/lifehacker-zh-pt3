@@ -1,6 +1,6 @@
 # 我是 Brian Fox，Bash Shell 的作者，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Brian-fox-author-of-the-bash-shell-and-this-is-how-1820510600](https://lifehacker.com/im-brian-fox-author-of-the-bash-shell-and-this-is-how-1820510600)
+> 原文：<https://lifehacker.com/im-brian-fox-author-of-the-bash-shell-and-this-is-how-1820510600>
 
 布莱恩·福克斯是开源软件的巨人。作为理查德·斯托尔曼 [自由软件基金会](http://www.fsf.org/) 的第一名员工，他编写了几个核心 GNU 组件，包括 [GNU Bash shell](https://www.gnu.org/software/bash/) 。现在，他是全国投票官员协会的董事会成员，也是兰花实验室的联合创始人，该实验室为中国防火墙后的用户提供不受审查的私人互联网接入。我们和他谈论了他的职业生涯以及他是如何工作的。
 

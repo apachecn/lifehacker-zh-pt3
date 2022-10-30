@@ -1,6 +1,6 @@
 # 在你的方便面里煮一个鸡蛋
 
-> 原文:[https://life hacker . com/poach-a egg-right-in-your-instant-ramen-1826540837](https://lifehacker.com/poach-an-egg-right-in-your-instant-ramen-1826540837)
+> 原文：<https://lifehacker.com/poach-an-egg-right-in-your-instant-ramen-1826540837>
 
 速食拉面可能是最完美的廉价食品。它本身很好，但是总有创造性的方法把它变成更好的东西 。我最喜欢做的事情是在煮拉面的时候往锅里打一个鸡蛋。
 

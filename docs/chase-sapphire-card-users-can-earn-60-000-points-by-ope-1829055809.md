@@ -1,6 +1,6 @@
 # 大通蓝宝石卡用户可以通过开立支票账户获得 60，000 积分
 
-> 原文:[https://life hacker . com/chase-sapphire-card-users-can-earn-60-000 points-by-ope-1829055809](https://lifehacker.com/chase-sapphire-card-users-can-earn-60-000-points-by-ope-1829055809)
+> 原文：<https://lifehacker.com/chase-sapphire-card-users-can-earn-60-000-points-by-ope-1829055809>
 
 为了吸引更富有的千禧一代客户，大通银行向开立银行账户的蓝宝石卡持有者提供 60，000 点奖励积分，在旅游理财报告中价值高达 900 美元。
 

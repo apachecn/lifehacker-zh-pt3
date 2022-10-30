@@ -1,6 +1,6 @@
 # 你第一次上芭蕾课会有什么期待
 
-> 原文:[https://life hacker . com/what-to-expect-your ' s first-time-at-barre-class-1820296803](https://lifehacker.com/what-to-expect-your-first-time-at-barre-class-1820296803)
+> 原文：<https://lifehacker.com/what-to-expect-your-first-time-at-barre-class-1820296803>
 
 我最近尝试了我的第一堂 barre 课，这要感谢 [Classpass](https://classpass.com/) 的魔力，它让我很容易地进入一个新的工作室，尝试一些你从未做过的事情。我的印象是:这是一个很好的锻炼，但也有点...好吧，没有什么好的方式来表达。无聊。
 

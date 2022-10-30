@@ -1,6 +1,6 @@
 # 为了让你的孩子接受你的建议，让别人给他们提建议
 
-> 原文:[https://life hacker . com/to-get-your-kids-to-take-your-advice-have-someone-1828004963](https://lifehacker.com/to-get-your-kids-to-take-your-advice-have-someone-else-1828004963)
+> 原文：<https://lifehacker.com/to-get-your-kids-to-take-your-advice-have-someone-else-1828004963>
 
 在育儿播客 [*上，什么新鲜的地狱:笑着面对母亲*](https://www.whatfreshhellpodcast.com/) *，*联合主持人艾米·威尔逊讲述了一个童年的故事，她喜欢在尿布里便便“直到相当成熟的晚年”她知道她不应该这样做，她的妈妈和爸爸*知道她知道*，但是他们让她停下来的努力不起作用。所以他们最终带她去看了医生。接下来发生了什么:
 

@@ -1,6 +1,6 @@
 # 准备好参加会议的摄像师包
 
-> 原文:[https://life hacker . com/the-conventi on-ready-videographer-bag-1784656940](https://lifehacker.com/the-convention-ready-videographer-bag-1784656940)
+> 原文：<https://lifehacker.com/the-convention-ready-videographer-bag-1784656940>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-_PZxFAav0bI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-_PZxFAav0bI&start=0) 
 

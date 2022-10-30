@@ -1,6 +1,6 @@
 # 如何屏蔽你社交媒体订阅中所有令人烦恼的故事
 
-> 原文:[https://life hacker . com/how-to-block-all-the-trouble-stories-in-your-social-m-1820807735](https://lifehacker.com/how-to-block-all-the-troubling-stories-in-your-social-m-1820807735)
+> 原文：<https://lifehacker.com/how-to-block-all-the-troubling-stories-in-your-social-m-1820807735>
 
 周六周日，我不看任何媒体，社交或者其他。那些日子真好！这就像是大脑的温泉疗法。但不幸的是，我的大脑沉迷于社交媒体，所以到了周一，我会点击和滑动，并对横梁上出现的每一条可怕的信息感到震惊。如果有一种方法可以与家人和朋友保持联系，甚至是最少的新闻，而不必被迫看到脸书边栏扔在你面前的每一件可怕的事情，这不是很好吗？
 

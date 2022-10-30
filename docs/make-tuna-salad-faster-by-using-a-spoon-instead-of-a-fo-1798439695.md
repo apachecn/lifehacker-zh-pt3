@@ -1,6 +1,6 @@
 # 用勺子代替叉子做金枪鱼沙拉会更快
 
-> 原文:[https://life hacker . com/make-tuna-salad-fast-by-use-a-spoon-to-a-fo-1798439695](https://lifehacker.com/make-tuna-salad-faster-by-using-a-spoon-instead-of-a-fo-1798439695)
+> 原文：<https://lifehacker.com/make-tuna-salad-faster-by-using-a-spoon-instead-of-a-fo-1798439695>
 
 我对金枪鱼沙拉的偏好非常简单:大黄蜂水中的纯白长鳍金枪鱼(没有“大块光”，没有油，没有星芒)，每罐一汤匙蛋黄酱(Hellmann's)，仅此而已。我偶尔会疯狂地添加刺山柑，或者一点儿 [凤尾鱼酱来提鲜味](http://lifehacker.com/make-better-tuna-salad-with-these-two-umami-boosting-in-1782377745) ，但绝对不要洋葱或芹菜。我确信你自己的金枪鱼口味与我的大相径庭，这是理所应当的——当你处理像鱼罐头和蛋黄酱这样有争议的食物时，你会遇到很多强烈的意见。但是大多数金枪鱼沙拉爱好者都同意的一件事是你捣碎配料的工具——你用叉子，对吗？我想建议一个更快的选择。
 

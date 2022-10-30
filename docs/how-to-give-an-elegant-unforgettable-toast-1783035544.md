@@ -1,6 +1,6 @@
 # 如何发表优雅、难忘的祝酒词
 
-> 原文:[https://life hacker . com/how-to-give-an-elegant-toast-1783035544](https://lifehacker.com/how-to-give-an-elegant-unforgettable-toast-1783035544)
+> 原文：<https://lifehacker.com/how-to-give-an-elegant-unforgettable-toast-1783035544>
 
 不管怎样，祝酒词是很难忘记的。它要么是一个重要事件的亮点，要么是人们多年后谈论的尴尬混乱。无论你是在婚礼上，还是在一个美好的晚餐上为某人的成功祝酒，以下是如何给出一个优雅的祝酒词并让你看起来很棒。
 

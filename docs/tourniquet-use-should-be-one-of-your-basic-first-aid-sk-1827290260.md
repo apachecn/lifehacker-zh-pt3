@@ -1,6 +1,6 @@
 # 止血带的使用应该是你的基本急救技能之一
 
-> 原文:[https://life hacker . com/止血带-use-should-to-one-of-your-basic-急救-sk-1827290260](https://lifehacker.com/tourniquet-use-should-be-one-of-your-basic-first-aid-sk-1827290260)
+> 原文：<https://lifehacker.com/tourniquet-use-should-be-one-of-your-basic-first-aid-sk-1827290260>
 
 有一些你希望永远不需要使用的技能，但拥有它们可能是生死攸关的事情:欢迎来到出血控制。
 

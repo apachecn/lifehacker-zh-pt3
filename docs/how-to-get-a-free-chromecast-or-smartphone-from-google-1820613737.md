@@ -1,6 +1,6 @@
 # 如何通过 Project Fi 从谷歌获得免费的 Chromecast 或智能手机
 
-> 原文:[https://life hacker . com/how-to-get-a-free-chrome cast-or-smart phone-from-Google-1820613737](https://lifehacker.com/how-to-get-a-free-chromecast-or-smartphone-from-google-1820613737)
+> 原文：<https://lifehacker.com/how-to-get-a-free-chromecast-or-smartphone-from-google-1820613737>
 
 谷歌 [取消](https://lifehacker.com/googles-project-fi-cell-phone-service-is-now-available-1763329453) [项目 Fi](https://lifehacker.com/how-to-set-up-google-project-fi-on-your-pixel-2-1819980061) 的 推荐要求已经有一段时间了，向任何人开放其简单廉价的手机服务计划——假设你有合适的智能手机。但在接下来的几周里，该公司正在推动其客户再次传播这一信息，并提供一些科技产品作为回报。
 

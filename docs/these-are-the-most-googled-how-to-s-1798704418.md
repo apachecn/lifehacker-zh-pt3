@@ -1,6 +1,6 @@
 # 这些是谷歌搜索最多的“如何做”
 
-> 原文:[https://life hacker . com/these-is-Google-to-s-1798704418](https://lifehacker.com/these-are-the-most-googled-how-to-s-1798704418)
+> 原文：<https://lifehacker.com/these-are-the-most-googled-how-to-s-1798704418>
 
 谷歌上最常见的“如何”搜索词是“如何打领带”最常见的“如何修理”搜索是“如何修理一扇门”，根据谷歌对 2004 年至 2017 年全球最受欢迎的“如何修理”[的新视觉细分。](http://how-to-fix-a-toilet.com/) 
 

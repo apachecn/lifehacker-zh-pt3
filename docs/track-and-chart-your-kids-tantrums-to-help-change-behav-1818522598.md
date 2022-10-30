@@ -1,6 +1,6 @@
 # 跟踪并记录你孩子的脾气，以帮助改变行为
 
-> 原文:[https://life hacker . com/track-and-chart-your-kids-tantrums-to-help-change-behav-1818522598](https://lifehacker.com/track-and-chart-your-kids-tantrums-to-help-change-behav-1818522598)
+> 原文：<https://lifehacker.com/track-and-chart-your-kids-tantrums-to-help-change-behav-1818522598>
 
 睡眠习惯。生育能力。每天步数。耗水量。所有这些都有追踪器。所以，当我读到凯瑟琳·皮尔曼博士给苦苦挣扎的父母的建议时，我可能并不感到惊讶，然而它却让我大吃一惊。当你试图改变孩子的行为，而你不确定你所做的是否奏效时，她建议收集一些数据并进行分析。
 

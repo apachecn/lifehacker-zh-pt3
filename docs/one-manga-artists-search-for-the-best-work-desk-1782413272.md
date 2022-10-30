@@ -1,6 +1,6 @@
 # 一位漫画家对最佳办公桌的追求
 
-> 原文:[https://kotaku . com/one-manga-artists-search-for-the-best-work-desk-1782413272](https://kotaku.com/one-manga-artists-search-for-the-best-work-desk-1782413272)
+> 原文：<https://kotaku.com/one-manga-artists-search-for-the-best-work-desk-1782413272>
 
 我想他已经找到了。最后。
 

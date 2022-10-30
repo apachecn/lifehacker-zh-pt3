@@ -1,6 +1,6 @@
 # 当你的朋友比你挣钱多的时候该怎么办(反之亦然)
 
-> 原文:[https://life hacker . com/what-do-when-your-friends-make-way-more-money-1735106541](https://lifehacker.com/what-to-do-when-your-friends-make-way-more-money-than-y-1735106541)
+> 原文：<https://lifehacker.com/what-to-do-when-your-friends-make-way-more-money-than-y-1735106541>
 
 我们喜欢认为我们的友谊足够强大，足以处理像财务差异这样愚蠢的事情。但事实是，钱会让事情变得尴尬，尤其是当你们中的一个人挣得比另一个人少(或多)很多的时候。以下是如何处理可能出现的最常见问题。
 

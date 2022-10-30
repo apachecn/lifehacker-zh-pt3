@@ -1,6 +1,6 @@
 # 在你的盐窖里放一把勺子，成为一个更好的厨师
 
-> 原文:[https://life hacker . com/become-a-better-cook-by-keep-a-勺子在你的盐里-ce-1825301490](https://lifehacker.com/become-a-better-cook-by-keeping-a-spoon-in-your-salt-ce-1825301490)
+> 原文：<https://lifehacker.com/become-a-better-cook-by-keeping-a-spoon-in-your-salt-ce-1825301490>
 
 作为一个对氯化钠这种光荣的矿物质毫无悔意的懦夫，我坚信任何一个对烹饪认真的人都需要一个容易找到的盐窖。没有其他成分能像盐一样改变你感知味道的方式；虽然它很少是食谱中唯一的调味料，但正确使用它是最重要的。
 

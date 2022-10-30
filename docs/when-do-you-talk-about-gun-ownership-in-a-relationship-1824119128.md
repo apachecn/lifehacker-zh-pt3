@@ -1,6 +1,6 @@
 # 什么时候你会在恋爱中谈论枪支所有权？
 
-> 原文:[https://life hacker . com/when-do-you-talk-when-you-talk-the-gun-ownership-1824119128](https://lifehacker.com/when-do-you-talk-about-gun-ownership-in-a-relationship-1824119128)
+> 原文：<https://lifehacker.com/when-do-you-talk-about-gun-ownership-in-a-relationship-1824119128>
 
 有些人遇到问题，需要合格的专业人士给予微妙的建议。其他人只需要在网上随便找一个人踢他们的牙齿(当然，要诚实)。我是后者。欢迎回到 [彪悍的爱情](http://lifehacker.com/tag/tough-love#_ga=2.269169905.1295021153.1516057126-819016074.1513967708) 。
 

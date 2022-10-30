@@ -1,6 +1,6 @@
 # 比尔·奈关于让孩子对科学感兴趣的建议
 
-> 原文:[https://life hacker . com/bill-nyes-tips-for-get-kids-excited-on-science-1825596596](https://lifehacker.com/bill-nyes-tips-for-getting-kids-excited-about-science-1825596596)
+> 原文：<https://lifehacker.com/bill-nyes-tips-for-getting-kids-excited-about-science-1825596596>
 
 比尔·奈，90 年代的电视偶像，帮助 kid-me 理解浮力和动量等主题的老师，以帮助大众更容易了解科学为使命的人，回来了。(并不是说他曾经离开过— [他一直非常非常忙。](https://lifehacker.com/im-bill-nye-and-this-is-how-i-work-1680700332) )这几天，奈正在与任天堂合作，帮助宣传刚刚发布的 [任天堂 Labo](https://labo.nintendo.com/) 并为他的网飞秀第三季的首映做准备*比尔·奈拯救世界。在小学科学课时间迅速减少的时候，我问我们最喜欢的理科男生，父母可以做些什么来让孩子们对他最喜欢的科目感兴趣。*
 

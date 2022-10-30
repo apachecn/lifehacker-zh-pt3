@@ -1,6 +1,6 @@
 # 如何以旧换新或出售旧 iPhone
 
-> 原文:[https://life hacker . com/how-to-trade-or-sell-your-old-iphone for-a-new-one-1818511593](https://lifehacker.com/how-to-trade-in-or-sell-your-old-iphone-for-a-new-one-1818511593)
+> 原文：<https://lifehacker.com/how-to-trade-in-or-sell-your-old-iphone-for-a-new-one-1818511593>
 
 你已经看上了新的 iPhone 8 或 iPhone X，但只有一个问题:你仍然与你的 iPhone 7 或 iPhone 6 保持着潜在的契约关系，需要在下单前想出如何有效地分手。
 

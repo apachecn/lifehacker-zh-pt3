@@ -1,6 +1,6 @@
 # 为什么总有关于巧克力的新研究
 
-> 原文:[https://life hacker . com/why-there-s-always-a-new-study-about-chocolate-1819679562](https://lifehacker.com/why-there-s-always-a-new-study-about-chocolate-1819679562)
+> 原文：<https://lifehacker.com/why-there-s-always-a-new-study-about-chocolate-1819679562>
 
 你对巧克力，也许是黑巧克力，是否有一个模糊的概念，认为它对你有好处？这对你的心脏健康还是有好处的。在某种程度上，你知道糖果实际上不是健康食品，但似乎总有标题说它是。
 

@@ -1,6 +1,6 @@
 # 脸书想要彻底改革它的新闻订阅——我把我的清空了
 
-> 原文:[https://gizmodo . com/Facebook-wants-to-overwhate-its-news-feed-I-made-mine-em-1822014878](https://gizmodo.com/facebook-wants-to-overhaul-its-news-feed-i-made-mine-em-1822014878)
+> 原文：<https://gizmodo.com/facebook-wants-to-overhaul-its-news-feed-i-made-mine-em-1822014878>
 
 “我们需要重新聚焦系统，”马克·扎克伯格在昨天接受*《纽约时报》* 采访时解释了他计划对脸书的新闻订阅做出的巨大改变。“我们希望确保我们的产品不仅有趣，而且对人们有益。”
 

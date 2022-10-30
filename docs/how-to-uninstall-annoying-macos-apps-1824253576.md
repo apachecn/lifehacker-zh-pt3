@@ -1,6 +1,6 @@
 # 如何卸载烦人的 macOS 应用
 
-> 原文:[https://life hacker . com/how-to-uninstall-angry-MAC OS-apps-1824253576](https://lifehacker.com/how-to-uninstall-annoying-macos-apps-1824253576)
+> 原文：<https://lifehacker.com/how-to-uninstall-annoying-macos-apps-1824253576>
 
 我对国际象棋一直不感兴趣，但因为 macOS 似乎认为这款游戏对我的操作系统至关重要，所以我被禁止卸载它。不能拖到垃圾桶里；你不能命令删除它。除非你有点创意，否则你会永远呆在取景器里盯着它看。
 

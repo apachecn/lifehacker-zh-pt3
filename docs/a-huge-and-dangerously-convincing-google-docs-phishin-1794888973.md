@@ -1,6 +1,6 @@
 # 一个危险的令人信服的谷歌文档钓鱼骗局正在疯狂传播[更新]
 
-> 原文:[https://gizmodo . com/a-巨大且危险地令人信服-Google-docs-phishin-1794888973](https://gizmodo.com/a-huge-and-dangerously-convincing-google-docs-phishin-1794888973)
+> 原文：<https://gizmodo.com/a-huge-and-dangerously-convincing-google-docs-phishin-1794888973>
 
 哦，上帝，一个黑客带着一个新的( [)但熟悉的](http://gizmodo.com/beware-of-this-dangerously-convincing-google-docs-phish-1546278702) )谷歌文档钓鱼骗局逍遥法外，记者(以及其他许多人)成了众矢之的。
 

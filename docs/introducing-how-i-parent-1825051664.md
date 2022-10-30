@@ -1,6 +1,6 @@
 # 介绍“我如何为人父母”
 
-> 原文:[https://lifehacker.com/introducing-how-i-parent-1825051664](https://lifehacker.com/introducing-how-i-parent-1825051664)
+> 原文：<https://lifehacker.com/introducing-how-i-parent-1825051664>
 
 受 Lifehacker 的 [*【我如何工作】*](https://lifehacker.com/c/how-i-work) *系列的启发，我们推出了一个新的后代专栏“我如何为人父母”。我们将邀请爸爸妈妈分享他们的日常生活，以及他们做事情的最佳技巧和惯例。这个专栏源于我们脸书小组* [*的一名成员的想法，她今天向我们讲述了她如何在事业和抚养两个孩子之间找到平衡。为人父母没有放之四海而皆准的模式——以下是一些人是如何做到的。*](https://www.facebook.com/groups/2018785615043946/)
 

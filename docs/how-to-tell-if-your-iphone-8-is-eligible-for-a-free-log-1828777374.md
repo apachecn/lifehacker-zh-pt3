@@ -1,6 +1,6 @@
 # 如何判断您的 iPhone 8 是否有资格获得免费的主板更换
 
-> 原文:[https://life hacker . com/how-to-tell-if-your-iphone-8-is-eligible-for-a-free-log-1828777374](https://lifehacker.com/how-to-tell-if-your-iphone-8-is-eligible-for-a-free-log-1828777374)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-iphone-8-is-eligible-for-a-free-log-1828777374>
 
 如果你有一部似乎有问题的 iPhone 8，它可能需要一个新的逻辑板。上周晚些时候，苹果公司透露，故障逻辑板可能导致随机重启、屏幕冻结和有缺陷的启动启动，从而阻止 iPhone 8 正常开机。如果这些问题听起来像是你正在处理的事情，你可以免费获得手机维修。
 

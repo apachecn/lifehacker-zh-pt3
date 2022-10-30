@@ -1,6 +1,6 @@
 # 你的生活帮只是有员工
 
-> 原文:[https://life hacker . com/your-life-hack-is-just-having-staff-1821436906](https://lifehacker.com/your-life-hack-is-just-having-staff-1821436906)
+> 原文：<https://lifehacker.com/your-life-hack-is-just-having-staff-1821436906>
 
 我将选择我在《华尔街日报》上看到的一个故事，但仅仅是因为它是有钱有势的人提供的一整类建议的典型，他们大多数是白人。这是 2016 年的一篇第一人称文章，作者是 1-800-get-JUNK 的创始人布莱恩·斯库达莫尔(Brian Scudamore)，名为 [“为什么这位首席执行官每周五都休假。”斯库达莫尔解释说，他在周五“充电”，周一“只是思考”他提供了以下职业建议:](https://blogs.wsj.com/experts/2016/06/03/why-this-ceo-takes-every-friday-off/) 
 

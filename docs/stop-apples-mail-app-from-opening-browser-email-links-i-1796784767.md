@@ -1,6 +1,6 @@
 # 只需一个简单的步骤，就可以阻止苹果的邮件应用打开浏览器邮件链接
 
-> 原文:[https://life hacker . com/stop-apple-mail-app-from-opening-browser-email-links-I-1796784767](https://lifehacker.com/stop-apples-mail-app-from-opening-browser-email-links-i-1796784767)
+> 原文：<https://lifehacker.com/stop-apples-mail-app-from-opening-browser-email-links-i-1796784767>
 
 在 MacOS 中，在您使用的任何浏览器中点按电子邮件或“mailto”链接都会自动打开默认的电子邮件应用程序 Apple Mail。Stack Exchange 用户 Randy Marsh [建议快速更改设置](https://apple.stackexchange.com/questions/235598/how-can-i-disable-mail-app-when-i-click-on-an-email-address) 以阻止邮件意外启动。
 

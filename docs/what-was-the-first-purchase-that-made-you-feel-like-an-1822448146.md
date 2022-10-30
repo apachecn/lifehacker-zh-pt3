@@ -1,6 +1,6 @@
 # 第一次购买让你觉得自己像个成年人的东西是什么？
 
-> 原文:[https://life hacker . com/what-the-first-purchase-that-make-you-feel-like-an-1822448146](https://lifehacker.com/what-was-the-first-purchase-that-made-you-feel-like-an-1822448146)
+> 原文：<https://lifehacker.com/what-was-the-first-purchase-that-made-you-feel-like-an-1822448146>
 
 直到我大学毕业后搬到纽约，远离家人和大多数朋友，我才真正觉得自己是个成年人。尤其是当我不得不用实习生每小时 15 美元的工资装修自己的公寓时(我妈妈从密歇根开车到纽约送我去过新生活时，她的 SUV 只能装这么多)。首先:在我的新硬木地板上睡了几个晚上后，我买了自己的床垫，行李箱和几箱厨房设备散落在地上。
 

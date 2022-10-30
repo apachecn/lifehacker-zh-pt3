@@ -1,6 +1,6 @@
 # 使用 Otter 实时创建可搜索的音频转录
 
-> 原文:[https://life hacker . com/create-searchable-audio-transcriptions-in-real-time-wit-1825875205](https://lifehacker.com/create-searchable-audio-transcriptions-in-real-time-wit-1825875205)
+> 原文：<https://lifehacker.com/create-searchable-audio-transcriptions-in-real-time-wit-1825875205>
 
 iOS/Android:作为一名记者，有一部分是我绝对鄙视的:抄写。每当我采访人们的时候，我总是把采访录音下来，这样我就可以回去以后再听。这是一个很好的想法，因为我可以在没有笔记本电脑的情况下与人交谈，就像他们是真正的人一样，但这是一个坏主意，因为之后，我必须一次重温四个单词的采访，因为这是我在听录音时可以输入的数量，然后我必须暂停事情，以便我可以赶上。真的，我记录采访，因为那也是 IRL 发生的事情，所以如果我依靠自己的技能，我永远不会有任何引用。现在，一个名为 [水獭语音提示](https://itunes.apple.com/us/app/otter-voice-meeting-notes/id1276437113?mt=8) 的应用程序提供了一种解决这个问题的方法。
 

@@ -1,6 +1,6 @@
 # 你应该忽略的关于虱子的 8 个误区
 
-> 原文:[https://life hacker . com/you-going-to-get-a-tick-this-summer-good-Lu-1793895235](https://lifehacker.com/youre-probably-going-to-get-a-tick-this-summer-good-lu-1793895235)
+> 原文：<https://lifehacker.com/youre-probably-going-to-get-a-tick-this-summer-good-lu-1793895235>
 
 不管你住在哪里，你都有可能住在虱子多的地方。这些寄生的蜘蛛喜欢爬到我们的身体上，探索一会儿，然后安顿下来，把它们的小脑袋埋进我们的皮肤里。它们可以传播像莱姆病这样的疾病，这使得它们除了简单的恶心之外，还是一个安全问题。但是围绕虱子现象已经产生了许多神话——包括一旦它们附着在身上如何去除它们的糟糕建议。所以让我们来了解真相。
 

@@ -1,6 +1,6 @@
 # 我是尼克·道格拉斯，Lifehacker 的特约撰稿人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-nick-Douglas-life hacker-staff-writer-and-this-is-h-1829166381](https://lifehacker.com/im-nick-douglas-lifehacker-staff-writer-and-this-is-h-1829166381)
+> 原文：<https://lifehacker.com/im-nick-douglas-lifehacker-staff-writer-and-this-is-h-1829166381>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。而“我们”就是“我”，这个系列的现任编辑。我是尼克·道格拉斯，这就是我的工作方式。
 

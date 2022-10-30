@@ -1,6 +1,6 @@
 # 问专家:关于做感恩节晚餐
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-cooking-感恩节晚餐-1789220634](https://lifehacker.com/ask-an-expert-all-about-cooking-thanksgiving-dinner-1789220634)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-cooking-thanksgiving-dinner-1789220634>
 
 本周是感恩节，全国各地的许多家庭和朋友将聚集在厨房，为烹饪火鸡的最佳方法而争论不休。往里塞还是往外塞？油炸的？？
 

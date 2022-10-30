@@ -1,6 +1,6 @@
 # 使用 iOS 版的“到达”功能跟踪您收到的包裹
 
-> 原文:[https://life hacker . com/track-your-incoming-packages-with-arrive-for-IOs-1828017925](https://lifehacker.com/track-your-incoming-packages-with-arrive-for-ios-1828017925)
+> 原文：<https://lifehacker.com/track-your-incoming-packages-with-arrive-for-ios-1828017925>
 
 iOS: 这些天我们都收到了很多邮件。虽然你可以注册主要运输公司的各种包裹跟踪服务，包括个人跟踪更新(如果你只关心偶尔在路上的包裹)，但我发现最简单的方法是使用像 Arrive 这样的应用程序在一个地方跟踪我的所有包裹。
 

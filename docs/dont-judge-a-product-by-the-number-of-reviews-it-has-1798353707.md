@@ -1,6 +1,6 @@
 # 不要根据评论的数量来判断一个产品
 
-> 原文:[https://life hacker . com/don ' t-judge-a-product by-number of-reviews-it-1798353707](https://lifehacker.com/dont-judge-a-product-by-the-number-of-reviews-it-has-1798353707)
+> 原文：<https://lifehacker.com/dont-judge-a-product-by-the-number-of-reviews-it-has-1798353707>
 
 在亚马逊上，在价格合理的宝石和垃圾之间进行筛选可能是一项艰巨的任务，所以难怪我们大多数人依赖产品评论来帮助我们缩小选择范围。我们中最细心的人(比如我)甚至会去看看*许多*评论如何帮助确定一个给定的项目有多好和受欢迎。
 

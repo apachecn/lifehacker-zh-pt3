@@ -1,6 +1,6 @@
 # 如果你在接受政府援助，可以在亚马逊 Prime 上获得很大的折扣
 
-> 原文:[https://life hacker . com/get-a-major-discount-on-Amazon-prime-if-you-on-govern-1795863470](https://lifehacker.com/get-a-major-discount-on-amazon-prime-if-youre-on-govern-1795863470)
+> 原文：<https://lifehacker.com/get-a-major-discount-on-amazon-prime-if-youre-on-govern-1795863470>
 
 如果你目前正在参加政府援助项目，比如贫困家庭临时援助(TANF)，你现在可以以每月 6 美元的价格获得完整的亚马逊 Prime 会员资格。
 

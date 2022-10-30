@@ -1,6 +1,6 @@
 # 我是卡洛斯·沃森，OZY 媒体的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Carlos-Watson-CEO-of-ozy-media-and-this-is-how-I-w-1789566473](https://lifehacker.com/im-carlos-watson-ceo-of-ozy-media-and-this-is-how-i-w-1789566473)
+> 原文：<https://lifehacker.com/im-carlos-watson-ceo-of-ozy-media-and-this-is-how-i-w-1789566473>
 
 卡洛斯·沃森本质上是一名记者。他是从他的父亲那里得到这个消息的，他的父亲在牙买加农村长大，发现这个消息是他灵感的来源。卡洛斯在电视和新闻领域成就了自己的事业，在过去的三年里，他一直在用[【OZY Media】](http://www.ozy.com/)追求自己的媒体愿景。
 

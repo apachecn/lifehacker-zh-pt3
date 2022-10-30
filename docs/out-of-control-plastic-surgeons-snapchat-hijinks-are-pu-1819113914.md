@@ -1,6 +1,6 @@
 # 失控的整形外科医生的 Snapchat Hijinks 将患者置于危险之中
 
-> 原文:[https://life hacker . com/out-of-control-plastic-surgeries-snapchat-hijinks-are-pu-1819113914](https://lifehacker.com/out-of-control-plastic-surgeons-snapchat-hijinks-are-pu-1819113914)
+> 原文：<https://lifehacker.com/out-of-control-plastic-surgeons-snapchat-hijinks-are-pu-1819113914>
 
 整形外科医生可以通过社交媒体获得大量业务，但一些外科医生将娱乐方面发挥到了极致:例如，在手术过程中在镜头前跳舞，或像婴儿一样抱着某人的切除组织。美国整形外科医生协会想要打击。
 

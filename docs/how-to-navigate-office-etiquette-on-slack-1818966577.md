@@ -1,6 +1,6 @@
 # 如何在闲暇时驾驭办公室礼仪
 
-> 原文:[https://life hacker . com/how-to-navigate-office-礼仪-休闲-1818966577](https://lifehacker.com/how-to-navigate-office-etiquette-on-slack-1818966577)
+> 原文：<https://lifehacker.com/how-to-navigate-office-etiquette-on-slack-1818966577>
 
 聊天软件 Slack 完全有可能在组成其 500 万每日用户的的一些工人、朋友和关系不明的人当中，实现了其 [宣称的目的](https://slack.com/about) “让工作更简单、更愉快、更有效率”以我个人的经验来看，它有时会实现这些目标中的一个或另一个，尽管很少同时实现。
 

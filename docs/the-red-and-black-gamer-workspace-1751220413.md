@@ -1,6 +1,6 @@
 # 红色和黑色玩家工作区
 
-> 原文:[https://life hacker . com/the-red-and-black-gamer-workspace-1751220413](https://lifehacker.com/the-red-and-black-gamer-workspace-1751220413)
+> 原文：<https://lifehacker.com/the-red-and-black-gamer-workspace-1751220413>
 
 我不确定 Flickr 用户 Jason T. Lewis 是不是游戏玩家。但我很确定他是个游戏玩家，从红色的灯光、桌面壁纸和战斗站的装备来看。
 

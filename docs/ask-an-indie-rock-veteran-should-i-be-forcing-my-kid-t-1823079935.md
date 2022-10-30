@@ -1,6 +1,6 @@
 # 问一个独立摇滚老手:我应该强迫我的孩子练习他们的乐器吗？
 
-> 原文:[https://www . av club . com/ask-an-indie-rock-veterian-should-I-be-forcing-my-kid-t-1823079935](https://www.avclub.com/ask-an-indie-rock-veteran-should-i-be-forcing-my-kid-t-1823079935)
+> 原文：<https://www.avclub.com/ask-an-indie-rock-veteran-should-i-be-forcing-my-kid-t-1823079935>
 
 ## 在我们 8 岁的女儿的要求下，我们开始给她上吉他课。她喜欢这些课程，但要让她练习却很困难。 [***你提到你母亲将你置于“情感枪口”下***](https://www.avclub.com/ask-an-indie-rock-veteran-how-important-are-drugs-to-a-1822679365#_ga=2.140723698.1909068072.1519053885-1186843869.1506957065) ***让你继续弹钢琴，而你现在对此心存感激。我想我是在努力寻找一种平衡，一方面不做让孩子讨厌乐器的专横家长，另一方面确保他们能公平对待乐器。“每个孩子都是不同的，你需要找到最适合你和孩子的方式”没有加分本质上，我只是在寻求适用于所有孩子的万无一失的局外人育儿建议——但具体来说，是我的。***
 ***—布拉德***

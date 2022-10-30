@@ -1,6 +1,6 @@
 # 如何处理断电(或即将断电)的电源
 
-> 原文:[https://life hacker . com/how-to-dead-or-dying-power-supply-1826603283](https://lifehacker.com/how-to-deal-with-a-dead-or-dying-power-supply-1826603283)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-dead-or-dying-power-supply-1826603283>
 
 [Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
 

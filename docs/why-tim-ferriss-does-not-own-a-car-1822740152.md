@@ -1,6 +1,6 @@
 # 为什么蒂姆·费里斯没有汽车
 
-> 原文:[https://life hacker . com/why-Tim-ferriss-does-not-own-a-car-1822740152](https://lifehacker.com/why-tim-ferriss-does-not-own-a-car-1822740152)
+> 原文：<https://lifehacker.com/why-tim-ferriss-does-not-own-a-car-1822740152>
 
 最近，Tim Ferriss 访问了我们的播客工作室来记录升级。我们告诉他，这就是他想从他那里得到的一切，但后来我们拿出相机，锁上了门。(哦，我们在开玩笑。就像他无论如何也不能撞开任何一扇由凡人建造的门。这可能是他下一本书的主题。)
 

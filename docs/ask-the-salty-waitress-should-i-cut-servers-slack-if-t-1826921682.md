@@ -1,6 +1,6 @@
 # 问刻薄的女服务员:如果服务员在假日工作，我应该放他们一马吗？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-should-I-cut-servers-slack-if-t-1826921682](https://thetakeout.com/ask-the-salty-waitress-should-i-cut-servers-slack-if-t-1826921682)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-should-i-cut-servers-slack-if-t-1826921682>
 
 > 亲爱的咸:父亲节那天，我们带爸爸去了他最喜欢的一家餐馆。这是一个当地的地方，通常有友好的服务和真正的意大利美食。因为是父亲节，所以比往常更忙。
 > 

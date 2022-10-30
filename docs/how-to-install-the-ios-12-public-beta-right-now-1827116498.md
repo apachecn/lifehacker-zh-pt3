@@ -1,6 +1,6 @@
 # 如何马上安装 iOS 12 公测版
 
-> 原文:[https://life hacker . com/how-to-install-the-IOs-12-public-beta-right-now-1827116498](https://lifehacker.com/how-to-install-the-ios-12-public-beta-right-now-1827116498)
+> 原文：<https://lifehacker.com/how-to-install-the-ios-12-public-beta-right-now-1827116498>
 
 测试日快乐！苹果终于向非开发者群体发布了 iOS 12——假设你没有用诡计让你的非付费用户 [在几周前注册了测试版](https://lifehacker.com/how-to-get-apples-mac-iphone-watch-and-tv-betas-witho-1826578952#_ga=2.119799819.2007615953.1529957659-524386510.1512754476) 。
 

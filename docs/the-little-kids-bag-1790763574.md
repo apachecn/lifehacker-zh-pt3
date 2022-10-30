@@ -1,6 +1,6 @@
 # 小孩的包
 
-> 原文:[https://lifehacker.com/the-little-kids-bag-1790763574](https://lifehacker.com/the-little-kids-bag-1790763574)
+> 原文：<https://lifehacker.com/the-little-kids-bag-1790763574>
 
 小孩子也会随身携带包，这就是为什么 Flickr 用户包配置分享他们儿子的包，里面装满了小孩子需要的所有东西。
 

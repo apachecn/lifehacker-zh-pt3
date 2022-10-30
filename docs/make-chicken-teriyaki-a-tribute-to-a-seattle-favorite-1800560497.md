@@ -1,6 +1,6 @@
 # 制作红烧鸡肉，向西雅图人的最爱致敬
 
-> 原文:[https://the take out . com/make-chicken-teriyaki-a-tribute-to-a-Seattle-favorite-1800560497](https://thetakeout.com/make-chicken-teriyaki-a-tribute-to-a-seattle-favorite-1800560497)
+> 原文：<https://thetakeout.com/make-chicken-teriyaki-a-tribute-to-a-seattle-favorite-1800560497>
 
 作为一个西雅图的孩子，我喜欢我的家乡与红烧鸡的关系， [红烧鸡对于翡翠城](http://food.avclub.com/the-teriyaki-shop-seattle-s-unspoken-obsession-1798251785) 就像芝士牛排对于费城和 po'boys 对于新奥尔良一样——一种富含碳水化合物、不加掩饰的肉类，是劳动者的午餐。
 

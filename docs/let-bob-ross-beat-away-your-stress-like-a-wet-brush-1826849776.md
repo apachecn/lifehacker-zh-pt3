@@ -1,6 +1,6 @@
 # 让鲍勃·罗斯像湿刷子一样赶走你的压力
 
-> 原文:[https://life hacker . com/let-bob-Ross-beat-away-your stress-like-a-wet-brush-1826849776](https://lifehacker.com/let-bob-ross-beat-away-your-stress-like-a-wet-brush-1826849776)
+> 原文：<https://lifehacker.com/let-bob-ross-beat-away-your-stress-like-a-wet-brush-1826849776>
 
 有时候，最好也是唯一的放松方式是打开一瓶(或一罐)你最喜欢的饮料，把灯光调暗一点(或者点上一两支 [或二十支](https://www.youtube.com/watch?v=m_t59BGR8C8) )，播放一些鲍勃·罗斯的视频。
 

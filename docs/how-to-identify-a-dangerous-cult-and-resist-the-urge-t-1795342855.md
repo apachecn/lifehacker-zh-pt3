@@ -1,6 +1,6 @@
 # 如何识别危险的邪教
 
-> 原文:[https://life hacker . com/how-to-identify-a-dangerous-cult-resist-the-urge-t-1795342855](https://lifehacker.com/how-to-identify-a-dangerous-cult-and-resist-the-urge-t-1795342855)
+> 原文：<https://lifehacker.com/how-to-identify-a-dangerous-cult-and-resist-the-urge-t-1795342855>
 
 它的开始是天真的:也许新同事邀请你在他的独立摇滚乐队中演奏贝斯。一个朋友的朋友邀请你参加免费的素食早午餐。你婆婆想和你分享一个改变人生的家居商机。然而，接受错误的提议，你可能会发现自己双眼无神，身穿长袍，围着燃烧的五角星跳舞，迎来第七个血之赎罪时代。
 

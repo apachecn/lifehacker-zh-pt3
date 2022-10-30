@@ -1,6 +1,6 @@
 # 这些是五年来拥有最便宜的 2018 款汽车
 
-> 原文:[https://jalopnik . com/这些是最便宜的 2018-拥有五年的汽车-1822830428](https://jalopnik.com/these-are-the-cheapest-2018-cars-to-own-for-five-years-1822830428)
+> 原文：<https://jalopnik.com/these-are-the-cheapest-2018-cars-to-own-for-five-years-1822830428>
 
 众所周知，拥有一辆汽车不仅仅是购买价格的问题。税费、保险、注册费、汽油费和维修费，以及其他费用，这意味着在拥有多年后，新车的价格有时几乎无关紧要。 [*凯利蓝皮书*](https://mediaroom.kbb.com/2018-02-07-Kelley-Blue-Book-Names-2018-5-Year-Cost-To-Own-Award-Winners) 是来帮忙的，计算这些额外成本的数字，并宣布一些赢家和输家。
 

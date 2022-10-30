@@ -1,6 +1,6 @@
 # 如何成为对环境负责的技术用户
 
-> 原文:[https://life hacker . com/how-to-be-a-a-how-an-environmental-responsible-technology-use-1824996679](https://lifehacker.com/how-to-be-an-environmentally-responsible-technology-use-1824996679)
+> 原文：<https://lifehacker.com/how-to-be-an-environmentally-responsible-technology-use-1824996679>
 
 技术是不可避免的，无论是你口袋里的 [智能手机](https://lifehacker.com/ten-tricks-for-checking-your-phone-less-1803137141) ，你桌上的 [电脑](https://lifehacker.com/top-10-things-to-do-on-your-familys-computer-when-you-g-1790003745) ，还是你收件箱里的 [电子邮件](https://lifehacker.com/literally-email-like-a-boss-1820931425) 。不幸的是，所有这些小工具和应用程序也对环境产生了相当可怕的影响。
 

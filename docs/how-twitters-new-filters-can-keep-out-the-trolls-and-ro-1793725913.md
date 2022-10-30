@@ -1,6 +1,6 @@
 # Twitter 的新过滤器如何将巨魔和臭鸡蛋拒之门外
 
-> 原文:[https://life hacker . com/how-twitters-new-filters-can-keep-out-the-trolls-and-ro-1793725913](https://lifehacker.com/how-twitters-new-filters-can-keep-out-the-trolls-and-ro-1793725913)
+> 原文：<https://lifehacker.com/how-twitters-new-filters-can-keep-out-the-trolls-and-ro-1793725913>
 
 我爱 Twitter，尽管我的回复中充满了称我为白痴的人。我用它来跟踪新闻和开愚蠢的玩笑，但是如果没有一大群匿名的垃圾邮件通知，我几乎不能在推特上谈论政治。现在 Twitter 终于给用户提供了一些新工具，让他们知道你的提及。
 

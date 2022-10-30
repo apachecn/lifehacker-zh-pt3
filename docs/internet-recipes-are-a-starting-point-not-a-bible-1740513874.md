@@ -1,6 +1,6 @@
 # 互联网食谱是一个起点，而不是一本圣经
 
-> 原文:[https://life hacker . com/internet-recipes-are-a-start-point-not-a-bible-1740513874](https://lifehacker.com/internet-recipes-are-a-starting-point-not-a-bible-1740513874)
+> 原文：<https://lifehacker.com/internet-recipes-are-a-starting-point-not-a-bible-1740513874>
 
 学习烹饪通常始于在网上找到一些食谱，然后在厨房里尝试。很好，但不要就此打住。互联网食谱是一个很好的起点，但它们也有局限性。以下是其中的一些，告诉你如何超越它们，在厨房中发挥真正的创造力。
 

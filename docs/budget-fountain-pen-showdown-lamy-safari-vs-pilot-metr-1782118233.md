@@ -1,6 +1,6 @@
 # 预算钢笔摊牌:拉米野生动物园与试点大都会
 
-> 原文:[https://life hacker . com/budget-fountain-pen-摊牌-Lamy-safari-vs-pilot-metr-1782118233](https://lifehacker.com/budget-fountain-pen-showdown-lamy-safari-vs-pilot-metr-1782118233)
+> 原文：<https://lifehacker.com/budget-fountain-pen-showdown-lamy-safari-vs-pilot-metr-1782118233>
 
 没有什么比得上用自来水笔写字，虽然它们可能很贵，但你不必花很多钱去拥有一支钢笔。只需不到 25 美元，你就可以拥有一支可替换笔芯的钢笔，非常适合艺术、写日记或时髦地记笔记。让我们来看看你能买到的两个最好的、最容易买到的预算方案。
 

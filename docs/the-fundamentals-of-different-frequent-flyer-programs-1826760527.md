@@ -1,6 +1,6 @@
 # 不同常旅客计划的基础
 
-> 原文:[https://life hacker . com/the-fundamentals-of-different-frequent flyer-programs-1826760527](https://lifehacker.com/the-fundamentals-of-different-frequent-flyer-programs-1826760527)
+> 原文：<https://lifehacker.com/the-fundamentals-of-different-frequent-flyer-programs-1826760527>
 
 跟踪不同航空公司的常旅客计划以获得最佳交易可能是一份全职工作(事实上，对少数旅游博客来说也是如此)。规则在不断变化，积分会过期，累积里程不会像以前那样多。
 

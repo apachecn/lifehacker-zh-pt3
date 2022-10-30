@@ -1,6 +1,6 @@
 # 它会腐烂吗？漂亮的葡萄酒煮梨
 
-> 原文:[https://life hacker . com/will-it-sous-vide-pretty-wine-水煮梨-1790595878](https://lifehacker.com/will-it-sous-vide-pretty-wine-poached-pears-1790595878)
+> 原文：<https://lifehacker.com/will-it-sous-vide-pretty-wine-poached-pears-1790595878>
 
 你好，友好的朋友们，欢迎今年的最后一期 [*它会苏维吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

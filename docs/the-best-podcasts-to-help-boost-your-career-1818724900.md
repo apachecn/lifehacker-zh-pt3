@@ -1,6 +1,6 @@
 # 帮助你提升事业的最佳播客
 
-> 原文:[https://life hacker . com/the-best-podcast-to-help-boost-your-career-1818724900](https://lifehacker.com/the-best-podcasts-to-help-boost-your-career-1818724900)
+> 原文：<https://lifehacker.com/the-best-podcasts-to-help-boost-your-career-1818724900>
 
 在上下班途中，或者当你在跑腿或做家务时，播客是一种很好的打发时间的方式。如果你想让你的职业生涯更上一层楼，你可以通过听职业类节目来让这段时间更有成效。以下是每个职业阶段的播客，帮助你获得成功。
 

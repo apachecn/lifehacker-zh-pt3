@@ -1,6 +1,6 @@
 # 你 2018 年的健身目标是什么？
 
-> 原文:[https://life hacker . com/what-your ' s fitness-goals-for-2018-1821469720](https://lifehacker.com/what-are-your-fitness-goals-for-2018-1821469720)
+> 原文：<https://lifehacker.com/what-are-your-fitness-goals-for-2018-1821469720>
 
 一月是重新开始健身的好时机。即使你不相信那些自负的决心，对我们许多人来说，新年是几个月来第一次我们没有被节日和年终压力淹没。是时候开始新的目标了！会是什么呢？
 

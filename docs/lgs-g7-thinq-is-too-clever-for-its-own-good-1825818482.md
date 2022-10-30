@@ -1,6 +1,6 @@
 # LG 的 G7 ThinQ 聪明过头了
 
-> 原文:[https://gizmodo . com/LGS-G7-thinq-is too-clever-for-its-good-1825818482](https://gizmodo.com/lgs-g7-thinq-is-too-clever-for-its-own-good-1825818482)
+> 原文：<https://gizmodo.com/lgs-g7-thinq-is-too-clever-for-its-own-good-1825818482>
 
 在*搏击俱乐部*中，有一个场景是在第一次见到泰勒·德登后，叙述者开了一个玩笑，说你在飞机上遇到的人是单服朋友。然后，甚至在给他的邻座一个回应的机会之前，他开始解释他机智的措辞。但在他说完之前，德顿干巴巴地反驳道:“哦，不，我明白了。非常聪明。你觉得怎么样？”
 

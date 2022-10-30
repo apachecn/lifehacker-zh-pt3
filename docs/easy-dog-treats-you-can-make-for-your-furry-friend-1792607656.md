@@ -1,6 +1,6 @@
 # 你可以为你毛茸茸的朋友制作简单的狗狗零食
 
-> 原文:[https://life hacker . com/easy-dog-treats-you-can-make-for-your friedy-friend-1792607656](https://lifehacker.com/easy-dog-treats-you-can-make-for-your-furry-friend-1792607656)
+> 原文：<https://lifehacker.com/easy-dog-treats-you-can-make-for-your-furry-friend-1792607656>
 
 狗是生活中非常重要的一部分，它们应该得到善待。当然，有很多商店购买的选择，但最近的召回事件让我警惕起来，看到宠物零食中的每一种成分也让人放心。不像一些人类的糖果，狗的零食非常容易制作，我们已经为你最喜欢的毛茸茸的朋友收集了一堆简单美味的食物。
 

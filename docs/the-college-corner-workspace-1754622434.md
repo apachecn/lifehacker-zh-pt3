@@ -1,6 +1,6 @@
 # 大学角落工作区
 
-> 原文:[https://life hacker . com/the-college-corner-workspace-1754622434](https://lifehacker.com/the-college-corner-workspace-1754622434)
+> 原文：<https://lifehacker.com/the-college-corner-workspace-1754622434>
 
 乍看之下，它可能看起来很大，因为照片中有大量的设备，但 [亚当](https://www.flickr.com/photos/132735587@N06/) 是一名大学生，这是他的房间。巧妙利用垂直空间，你就拥有了一个适合工作和娱乐的角落。
 

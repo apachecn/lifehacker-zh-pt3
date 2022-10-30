@@ -1,6 +1,6 @@
 # 如何在索尼的 PlayStation 4 上添加好友
 
-> 原文:[https://life hacker . com/how-to-add-friends-on-Sony-s-PlayStation-4-1821179360](https://lifehacker.com/how-to-add-friends-on-sony-s-playstation-4-1821179360)
+> 原文：<https://lifehacker.com/how-to-add-friends-on-sony-s-playstation-4-1821179360>
 
 如果你要回家(或呆在家里)度假，那么所有的休息时间会给你足够的时间和你的朋友们玩几局《命运 2》。如果你真的知道如何玩它们，那就更容易了。索尼为您提供了多种方式，通过您可能已经在使用的服务向您的 PlayStation 4 添加朋友。此外，它还缓解了用一个游戏控制器管理长邮件和游戏手柄的朋友列表的问题。有一个简单的方法可以确保你拥有所有你需要的在线朋友来度过假期，并可能提高你在命运 2 中的排名，它不需要向你认识的每个人发送消息，要求一个 [12 位数字代码](https://lifehacker.com/how-to-add-friends-to-your-nintendo-switch-1820984706) 或使用 D-pad 正确拼写每个人的电子邮件地址。
 

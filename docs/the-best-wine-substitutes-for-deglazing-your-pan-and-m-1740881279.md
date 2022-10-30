@@ -1,6 +1,6 @@
 # 最好的葡萄酒替代品，为您的锅(和更多)
 
-> 原文:[https://life hacker . com/the-best-wine-substitutes-for-de glazing-your-pan-and-m-1740881279](https://lifehacker.com/the-best-wine-substitutes-for-deglazing-your-pan-and-m-1740881279)
+> 原文：<https://lifehacker.com/the-best-wine-substitutes-for-deglazing-your-pan-and-m-1740881279>
 
 和我之前的茱莉亚·切尔德一样，我喜欢用葡萄酒做菜，并发现葡萄酒作为佐料和配料一样好用。但偶尔我会发现酒架是空的。这很不幸，但是你的餐具室里已经有一些很好的替代品，非常适合脱釉。
 

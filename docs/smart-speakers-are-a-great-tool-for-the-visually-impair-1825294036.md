@@ -1,6 +1,6 @@
 # 智能扬声器是视障人士的绝佳工具
 
-> 原文:[https://life hacker . com/smart-speakers-are-a-great-tool for the-visual-defense-1825294036](https://lifehacker.com/smart-speakers-are-a-great-tool-for-the-visually-impair-1825294036)
+> 原文：<https://lifehacker.com/smart-speakers-are-a-great-tool-for-the-visually-impair-1825294036>
 
 [触摸屏](https://lifehacker.com/why-would-i-want-a-touch-screen-pc-5978694) 已经成为我们许多人与数字世界互动的主要方式，但对于视觉障碍者来说，它们并不是很好的选择。智能手机的显示屏很小，需要精确的控制，它们的屏幕在不活动一会儿后就会关闭，如果你的视力不好，这使得它们很难使用。在这些情况下， [智能音箱](https://lifehacker.com/how-to-protect-your-privacy-on-your-smart-home-devices-1823181500) 可能是更有用的设备。
 

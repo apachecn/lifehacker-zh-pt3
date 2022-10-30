@@ -1,6 +1,6 @@
 # 第一次约会打破僵局和了解某人的最好方法
 
-> 原文:[https://life hacker . com/the-best-ways-to-break-the-ice-and-know-someone-1736039897](https://lifehacker.com/the-best-ways-to-break-the-ice-and-get-to-know-someone-1736039897)
+> 原文：<https://lifehacker.com/the-best-ways-to-break-the-ice-and-get-to-know-someone-1736039897>
 
 大多数第一次约会与其说是试图擦出火花，不如说是感受对方是谁。无论这是你的第一次约会，还是你在一段新关系的早期阶段感到停滞不前，这里有克服闲聊的最佳技巧和诀窍，这样你们两个都可以走出自己的外壳。
 

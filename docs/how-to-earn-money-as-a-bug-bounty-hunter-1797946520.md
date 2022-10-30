@@ -1,6 +1,6 @@
 # 作为一个 Bug 赏金猎人如何挣钱
 
-> 原文:[https://life hacker . com/how-to-earn-money-as-a-bug-bounty-hunter-1797946520](https://lifehacker.com/how-to-earn-money-as-a-bug-bounty-hunter-1797946520)
+> 原文：<https://lifehacker.com/how-to-earn-money-as-a-bug-bounty-hunter-1797946520>
 
 你是一名程序员还是想兼职赚点钱的白帽黑客？昆虫赏金猎人可能是你的最佳选择。
 

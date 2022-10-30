@@ -1,6 +1,6 @@
 # 穿着你所有的衣服以避免托运行李费是一个坏主意
 
-> 原文:[https://life hacker . com/weaking-all-the-your-clothing-to-avoid-the-avoid-checked-bag-fees-1822176715](https://lifehacker.com/wearing-all-of-your-clothing-to-avoid-checked-bag-fees-1822176715)
+> 原文：<https://lifehacker.com/wearing-all-of-your-clothing-to-avoid-checked-bag-fees-1822176715>
 
 一名试图从冰岛飞往英国的男子最近被拒绝登机 [，原因是他为了逃避托运行李的费用，一次穿了所有的衣服](https://www.washingtonpost.com/news/dr-gridlock/wp/2018/01/16/a-man-tried-to-board-a-flight-wearing-everything-he-packed-british-airways-gave-him-the-boot/?utm_term=.2d621cfd539a) 。这是一次可怕的旅行黑客尝试。 [他声称，登机口人员事先说会没事的](https://twitter.com/RYAN_HAWAII/status/951088947777671168) ，但即使他们让他登机，他也会很惨。请不要试图这样做，人们。
 

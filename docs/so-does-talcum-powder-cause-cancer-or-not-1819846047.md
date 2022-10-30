@@ -1,6 +1,6 @@
 # 那么，爽身粉到底会不会致癌呢？
 
-> 原文:[https://life hacker . com/so-do-do-滑石粉-致癌-或-不-1819846047](https://lifehacker.com/so-does-talcum-powder-cause-cancer-or-not-1819846047)
+> 原文：<https://lifehacker.com/so-does-talcum-powder-cause-cancer-or-not-1819846047>
 
 两名患有癌症的女性——其中一名已经去世——[最近在与爽身粉制造商](http://www.cnn.com/2017/10/23/health/johnson-and-johnson-talcum-powder-trial-verdict-overturned/index.html) 的诉讼中败诉，此前法官判定她们没有证明爽身粉导致了她们的癌症。那么这种东西到底会不会致癌呢？原来这是一个很难回答的问题。
 

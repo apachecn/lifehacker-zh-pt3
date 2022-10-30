@@ -1,6 +1,6 @@
 # 试试“Cheerio”方法，轻松教你的孩子系鞋带
 
-> 原文:[https://life hacker . com/try-the-cheerio-method-to-easy-teach-your-kids-to-tie-1820216614](https://lifehacker.com/try-the-cheerio-method-to-easily-teach-your-kids-to-tie-1820216614)
+> 原文：<https://lifehacker.com/try-the-cheerio-method-to-easily-teach-your-kids-to-tie-1820216614>
 
 我七岁的儿子不热衷于学习系鞋带。他在灵巧方面没有任何问题...他只是很容易在做他不擅长的事情时感到沮丧(当你七岁时，这是一大堆事情)。所以我一直哄着他和我一起练习，耐心地等待他回心转意——并继续购买 velcro 的运动鞋。
 

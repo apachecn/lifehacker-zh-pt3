@@ -1,6 +1,6 @@
 # 我是 Morra Aarons-Mele，《躲在浴室里》的作者，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-morra-aarons-mele-author-of-hiding-in-the-浴室-1826545087](https://lifehacker.com/im-morra-aarons-mele-author-of-hiding-in-the-bathroom-1826545087)
+> 原文：<https://lifehacker.com/im-morra-aarons-mele-author-of-hiding-in-the-bathroom-1826545087>
 
 作家兼“隐士企业家”莫拉·阿伦斯-梅勒认为，成功不仅仅属于外向者。在一个雄心勃勃和充满压力的商业领域，Aarons-Mele 在不破坏自己的情况下寻求卓越方面积累了专业知识。她向我们讲述了她的“啊哈时刻”，她的在家工作时间表，以及她一年两次列出的两份清单。
 

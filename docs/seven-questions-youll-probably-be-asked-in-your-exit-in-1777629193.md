@@ -1,6 +1,6 @@
 # 离职面谈中你可能会被问到的七个问题
 
-> 原文:[https://life hacker . com/seven-questions-you-may-be-asked in-you-exit-in-1777629193](https://lifehacker.com/seven-questions-youll-probably-be-asked-in-your-exit-in-1777629193)
+> 原文：<https://lifehacker.com/seven-questions-youll-probably-be-asked-in-your-exit-in-1777629193>
 
 你做到了。你鼓起勇气，提前两周提出辞职。你已经准备好度过最后几个工作日，向你的同事告别，然后踏上寻找更好的工作的道路。你确信自己已经度过了面试过程中最艰难的部分，这时，人力资源部门突然联系你，询问你离职面试的时间。
 

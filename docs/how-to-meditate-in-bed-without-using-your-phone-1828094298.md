@@ -1,6 +1,6 @@
 # 如何不用手机在床上冥想
 
-> 原文:[https://life hacker . com/how-to-mountain-bed-with-use your-phone-1828094298](https://lifehacker.com/how-to-meditate-in-bed-without-using-your-phone-1828094298)
+> 原文：<https://lifehacker.com/how-to-meditate-in-bed-without-using-your-phone-1828094298>
 
 当你只想关掉大脑睡觉时，冥想应用程序是完美的。一个引导性的声音，或者像下雨一样平静的声音，有助于填补寂静，这样你的思想就不会悄悄进入。最好的策略是让你昏昏欲睡。(你可以寻找专注于睡眠的冥想曲目，但我犯了为此滥用顶空介绍课程的错误。嘿，这是个自由的国家。)
 

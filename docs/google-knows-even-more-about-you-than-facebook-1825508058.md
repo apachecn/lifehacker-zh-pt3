@@ -1,6 +1,6 @@
 # 谷歌比脸书更了解你的私生活
 
-> 原文:[https://life hacker . com/Google-known-even-more-than-Facebook-1825508058](https://lifehacker.com/google-knows-even-more-about-you-than-facebook-1825508058)
+> 原文：<https://lifehacker.com/google-knows-even-more-about-you-than-facebook-1825508058>
 
 脸书对我们所有人都了如指掌，但它并不是唯一一家囤积每个人私人数据的公司。谷歌对我们的了解和脸书一样多(如果不是更多的话)，这应该会给你带来麻烦，即使这些数据还没有被肆无忌惮地——至少据我们所知没有。
 

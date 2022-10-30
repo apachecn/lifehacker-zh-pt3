@@ -1,6 +1,6 @@
 # 你的笔记本电脑比 30 年前的苹果 IIe 还慢的一个原因
 
-> 原文:[https://gizmodo . com/the-one-way-your-laptop-be-a-30-ye-1821608743](https://gizmodo.com/the-one-way-your-laptop-is-actually-slower-than-a-30-ye-1821608743)
+> 原文：<https://gizmodo.com/the-one-way-your-laptop-is-actually-slower-than-a-30-ye-1821608743>
 
 你是否有过这样一种困扰的感觉:你的电脑比以前慢了？或者您的全新笔记本电脑似乎比您曾经拥有的旧塔式 PC 慢得多？曾在谷歌和微软工作过的计算机工程师丹·卢(Dan Luu)也有同样的感受，所以他做了我们其他人不会做的事情:他决定测试一系列计算设备 ，从 1977 年生产的台式机到今年生产的电脑和平板电脑。他了解到，这种困扰的感觉是正确的——在过去的 30 年里，计算机实际上以一种特殊的方式变得更慢了。
 

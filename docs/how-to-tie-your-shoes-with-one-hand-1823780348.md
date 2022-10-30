@@ -1,6 +1,6 @@
 # 如何单手系鞋带
 
-> 原文:[https://life hacker . com/how-to-tie your-shoe-with-one-hand-1823780348](https://lifehacker.com/how-to-tie-your-shoes-with-one-hand-1823780348)
+> 原文：<https://lifehacker.com/how-to-tie-your-shoes-with-one-hand-1823780348>
 
 我们大多数人都学会了用双手以某种方式系鞋带。一个关于兔子进洞之类的故事？随便啦。你不需要两只手来讲这个故事。以下是美国残奥会运动员团队 [梅根·艾辛](https://www.teamusa.org/para-track-and-field/athletes/Megan-Absten) 在一场大型比赛前如何用一只手穿上鞋子。
 

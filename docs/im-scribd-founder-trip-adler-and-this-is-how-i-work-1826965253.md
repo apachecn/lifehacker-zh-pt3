@@ -1,6 +1,6 @@
 # 我是 Scribd 创始人特里普·阿德勒，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-scribd-founder-trip-Adler-and-this-is-how-I-work-1826965253](https://lifehacker.com/im-scribd-founder-trip-adler-and-this-is-how-i-work-1826965253)
+> 原文：<https://lifehacker.com/im-scribd-founder-trip-adler-and-this-is-how-i-work-1826965253>
 
 我们最后一次与 Trip Adler 交谈是在 2014 年，关于将 Scribd 从文件托管服务扩展到电子书订阅服务的。自那以后，Scribd 一直保持增长。(是的，即使有 [图书馆电子书存在](https://lifehacker.com/google-results-now-include-your-local-librarys-ebooks-1819619447) ，它仍然有用)。我们与阿德勒讨论了创业的二进制路径，为即兴会议留出空间，以及他个人的阅读习惯。
 

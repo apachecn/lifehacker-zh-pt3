@@ -1,6 +1,6 @@
 # 旅行时如何大便
 
-> 原文:[https://life hacker . com/how-to-poop-when-you-re-traveling-1823690140](https://lifehacker.com/how-to-poop-when-you-re-traveling-1823690140)
+> 原文：<https://lifehacker.com/how-to-poop-when-you-re-traveling-1823690140>
 
 旅行真的会让你筋疲力尽——除了便便。它会伴随你好几天，让你的假期变得不那么愉快。以下是导致便秘的原因，以及你可以做些什么来防止这种情况发生。
 

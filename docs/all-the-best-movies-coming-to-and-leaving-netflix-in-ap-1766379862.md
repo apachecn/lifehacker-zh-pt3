@@ -1,6 +1,6 @@
 # 2016 年 4 月进出网飞的所有最佳电影
 
-> 原文:[https://life hacker . com/all-the-best-movies-coming-and-away-in-AP-1766379862](https://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-ap-1766379862)
+> 原文：<https://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-ap-1766379862>
 
 正如冬天让位于春天，电影在网飞来来去去。在这一过程中，我们已经有了经典之作，如 2001 年的《T1》、《T2》、《发条橙》、《T4》、《不夜城》和《日落大道》等。即将上映的是*《查理的天使:全速前进*、*闪电舞*和*卢旺达酒店*。
 

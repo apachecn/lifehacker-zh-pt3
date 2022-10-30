@@ -1,6 +1,6 @@
 # 在新的一年里，和你的伴侣玩得更开心
 
-> 原文:[https://life hacker . com/have-more-fun-with-your-partner-in-the-new-year-1821743176](https://lifehacker.com/have-more-fun-with-your-partner-in-the-new-year-1821743176)
+> 原文：<https://lifehacker.com/have-more-fun-with-your-partner-in-the-new-year-1821743176>
 
 我们大多数人都下定决心只改善自己:我们发誓不吃糖，每周锻炼三天，掸去简历上的灰尘，真正开始找工作。总的来说，决心往往非常注重意志力、减肥和自我保健。
 

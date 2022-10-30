@@ -1,6 +1,6 @@
 # 如何制作尊重蔬菜的素食汉堡
 
-> 原文:[https://life hacker . com/how-to-make-veggie-burgers-the-honour-the-vegetables-1827869835](https://lifehacker.com/how-to-make-veggie-burgers-that-honor-the-vegetables-1827869835)
+> 原文：<https://lifehacker.com/how-to-make-veggie-burgers-that-honor-the-vegetables-1827869835>
 
 我要说的话可能会让你不高兴，如果是这样，我真诚地道歉。我认为牛肉还可以。
 

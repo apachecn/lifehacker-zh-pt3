@@ -1,6 +1,6 @@
 # 高中生的日常书包
 
-> 原文:[https://life hacker . com/the-high-schoolers-daily-bag-1785307387](https://lifehacker.com/the-high-schoolers-daily-bag-1785307387)
+> 原文：<https://lifehacker.com/the-high-schoolers-daily-bag-1785307387>
 
 现在是返校季，所以这意味着是时候整理好你的背包了。读者丹尼尔·格列柯分享了他的书包就是为了做到这一点。
 

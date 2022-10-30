@@ -1,6 +1,6 @@
 # 为一周中的每一天设置不同的闹钟
 
-> 原文:[https://life hacker . com/set-a-different-alarm-for-the-day-of-the-week-1827493988](https://lifehacker.com/set-a-different-alarm-for-every-day-of-the-week-1827493988)
+> 原文：<https://lifehacker.com/set-a-different-alarm-for-every-day-of-the-week-1827493988>
 
 每周三， [这个 YouTube 系列](https://www.youtube.com/watch?v=9K4-jllrPrE&list=PLy3-VH7qrUZ5IVq_lISnoccVIYZCMvi-8) 都会增加一个新的音乐视频，视频中一只尖叫的青蛙在说“今天是周三，我的兄弟们。”难道这些周三歌曲中的一首不会比“Radar (Default)”更能让你在周三早上醒来吗？你能做到的，伙计们。
 

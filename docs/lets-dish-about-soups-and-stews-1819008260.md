@@ -1,6 +1,6 @@
 # 让我们来尝尝汤和炖菜吧
 
-> 原文:[https://life hacker . com/let-dish-about-soups-and-stews-1819008260](https://lifehacker.com/lets-dish-about-soups-and-stews-1819008260)
+> 原文：<https://lifehacker.com/lets-dish-about-soups-and-stews-1819008260>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。现在已经是秋天了，这意味着我的思想已经转向了温暖舒适的菜肴，特别是汤。
 

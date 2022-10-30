@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我能把一时冲动变成一段感情吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-can-I-turn-a-fling-into-a-relationshi-1738102026](https://kotaku.com/ask-dr-nerdlove-can-i-turn-a-fling-into-a-relationshi-1738102026)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-can-i-turn-a-fling-into-a-relationshi-1738102026>
 
 你好，互联网！欢迎来到 [问问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一的约会专栏，也是银河系最后的、最好的和平希望。
 

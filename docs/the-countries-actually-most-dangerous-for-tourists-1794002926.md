@@ -1,6 +1,6 @@
 # 对游客来说最危险的国家
 
-> 原文:[https://life hacker . com/the-countries-其实对游客来说最危险-1794002926](https://lifehacker.com/the-countries-actually-most-dangerous-for-tourists-1794002926)
+> 原文：<https://lifehacker.com/the-countries-actually-most-dangerous-for-tourists-1794002926>
 
 这个世界可能是一个危险的地方，尤其是对粗心的旅行者来说。美国国务院尽最大努力提醒游客注意的风险，但这些警告并不总是清晰的。事实证明，发布旅游警告最多的国家并不总是最危险的。
 

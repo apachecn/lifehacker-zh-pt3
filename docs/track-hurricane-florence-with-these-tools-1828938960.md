@@ -1,6 +1,6 @@
 # 用这些工具追踪佛罗伦萨飓风
 
-> 原文:[https://life hacker . com/track-hurricane-Florence-with-these-tools-1828938960](https://lifehacker.com/track-hurricane-florence-with-these-tools-1828938960)
+> 原文：<https://lifehacker.com/track-hurricane-florence-with-these-tools-1828938960>
 
 预计飓风佛罗伦萨最早将于本周四在大西洋沿岸登陆。虽然沿海的弗吉尼亚州、北卡罗来纳州和南卡罗来纳州预计将受到最严重的打击，但居住在东海岸的任何人都应该密切关注风暴的进展。
 

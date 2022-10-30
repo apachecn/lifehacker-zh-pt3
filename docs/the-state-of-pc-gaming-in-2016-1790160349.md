@@ -1,6 +1,6 @@
 # 2016 年 PC 游戏的状况
 
-> 原文:[https://kotaku . com/the-state-of-PC-gaming-in-2016-1790160349](https://kotaku.com/the-state-of-pc-gaming-in-2016-1790160349)
+> 原文：<https://kotaku.com/the-state-of-pc-gaming-in-2016-1790160349>
 
 2016 年是又一个表明 PC 游戏在许多方面处于游戏前沿的一年。如此多的游戏最流行的趋势——游戏机上早期访问的扩散(不管是好是坏)，万物中的生存游戏元素*，多平台 mod，电子竞技和虚拟现实——都始于 PC。尽管它启发了其他平台，但 PC 游戏本身今年也发生了演变，既取得了长足的进步，也出现了丑陋的溢出。* 
 

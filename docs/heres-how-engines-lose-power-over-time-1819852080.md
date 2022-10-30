@@ -1,6 +1,6 @@
 # 这是发动机如何随着时间的推移失去动力的
 
-> 原文:[https://jalopnik . com/heres-how-engines-lose-power-over-time-1819852080](https://jalopnik.com/heres-how-engines-lose-power-over-time-1819852080)
+> 原文：<https://jalopnik.com/heres-how-engines-lose-power-over-time-1819852080>
 
 一旦你的车离开工厂，并适当地磨合，它可能会以库存的形式产生最大的动力。这是因为，随着时间的推移，某些部件会磨损；这是如何发生的。
 

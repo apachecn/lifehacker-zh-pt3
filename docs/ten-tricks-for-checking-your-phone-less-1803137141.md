@@ -1,6 +1,6 @@
 # 少检查手机的十招
 
-> 原文:[https://life hacker . com/ten-tricks-for-check-your-phone-less-1803137141](https://lifehacker.com/ten-tricks-for-checking-your-phone-less-1803137141)
+> 原文：<https://lifehacker.com/ten-tricks-for-checking-your-phone-less-1803137141>
 
 电话成瘾最令人沮丧的是，与实际的物质滥用不同，解决方案不是完全停止使用它。相反，我们必须找到负责任地使用这项技术的方法，与那些公然设计来窃取我们时间的应用程序作斗争。
 

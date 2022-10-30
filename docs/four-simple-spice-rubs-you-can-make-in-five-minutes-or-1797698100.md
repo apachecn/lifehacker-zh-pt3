@@ -1,6 +1,6 @@
 # 你可以在五分钟或更短时间内做四次简单的香料按摩
 
-> 原文:[https://life hacker . com/four-simple-spice-rubs-you-can-make-in-five-minutes-or-1797698100](https://lifehacker.com/four-simple-spice-rubs-you-can-make-in-five-minutes-or-1797698100)
+> 原文：<https://lifehacker.com/four-simple-spice-rubs-you-can-make-in-five-minutes-or-1797698100>
 
 调味不足的肉是一种犯罪。那只可怜的、头脑简单的鸡为你献出了生命，而每只鸡腿一茶匙无盐的柠檬胡椒就是你的全部计划？天哪，芭芭拉，放尊重点。感谢上帝的香料摩擦，它通过快速赋予他们接触的所有东西复杂的味道来防止不当调味的罪行。
 

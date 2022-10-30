@@ -1,6 +1,6 @@
 # 拥有房子最可怕的九件事
 
-> 原文:[https://deadspin . com/the-nine-scare-ass-things-on-owning-a house-1795849602](https://deadspin.com/the-nine-scariest-ass-things-about-owning-a-house-1795849602)
+> 原文：<https://deadspin.com/the-nine-scariest-ass-things-about-owning-a-house-1795849602>
 
 我拥有一栋房子，而拥有房子是一项终身工程。在任何给定的时刻，房子都有需要解决的问题。项目总是有的，有些房主喜欢有这样的项目。他们喜欢不断地收拾东西，并倾向于美化和培育房子像它是一个孩子。我不是那些房主中的一员。我是一个极度懒惰的人。如果由我决定，我会让房子保持原样，带着一个没有家具的客厅和塞满东西的水槽死去。
 

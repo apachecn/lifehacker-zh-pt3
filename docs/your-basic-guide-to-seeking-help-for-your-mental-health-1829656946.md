@@ -1,6 +1,6 @@
 # 寻求心理健康帮助的基本指南
 
-> 原文:[https://life hacker . com/your-basic-guide-to-seeking-help-for-your-mental-health-1829656946](https://lifehacker.com/your-basic-guide-to-seeking-help-for-your-mental-health-1829656946)
+> 原文：<https://lifehacker.com/your-basic-guide-to-seeking-help-for-your-mental-health-1829656946>
 
 今天是世界精神卫生日，今年的焦点是年轻人。因此，我们认为这是一个与你们所有人——无论年轻与否——联系的好时机，以确保你们得到所需的帮助。
 

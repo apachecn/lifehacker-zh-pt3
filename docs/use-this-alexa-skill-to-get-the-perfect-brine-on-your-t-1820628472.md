@@ -1,6 +1,6 @@
 # 使用这种 Alexa 技能来获得感恩节火鸡的完美盐水
 
-> 原文:[https://life hacker . com/use-this-Alexa-skill-to-get-the-perfect-brine-on-your-t-1820628472](https://lifehacker.com/use-this-alexa-skill-to-get-the-perfect-brine-on-your-t-1820628472)
+> 原文：<https://lifehacker.com/use-this-alexa-skill-to-get-the-perfect-brine-on-your-t-1820628472>
 
 如果你在这个感恩节被火鸡税缠住了，你吓坏了，亚马逊来帮你了。多亏了莫顿盐公司的一项新的 [Alexa 技能](https://lifehacker.com/the-first-alexa-skills-to-enable-on-your-new-amazon-ech-1796841634) ，乐意在网上卖给你一只火鸡的同一家公司也能教你如何准备它。
 

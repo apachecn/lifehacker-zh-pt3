@@ -1,6 +1,6 @@
 # 不要让人亲吻你的新生儿
 
-> 原文:[https://life hacker . com/even-if-you-feel-like-a-jerk-don ' t-been-people-kiss-you-1797246899](https://lifehacker.com/even-if-you-feel-like-a-jerk-dont-let-people-kiss-your-1797246899)
+> 原文：<https://lifehacker.com/even-if-you-feel-like-a-jerk-dont-let-people-kiss-your-1797246899>
 
 在注意到他们刚出生的女儿昏昏欲睡，吃不下东西后，她的父母尼科尔和谢恩·西弗里特赶紧把她送到医院。在那里，不到两周之后， [婴儿玛丽安娜](http://people.com/human-interest/mom-newborn-died-meningitis-speaks-out/?utm_campaign=peoplemag&utm_source=facebook.com&utm_medium=social&xid=socialflow_facebook_peoplemag)死亡。她的葬礼在星期一举行。
 

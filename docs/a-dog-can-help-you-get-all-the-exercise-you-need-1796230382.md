@@ -1,6 +1,6 @@
 # 一只狗可以帮助你得到你需要的所有锻炼
 
-> 原文:[https://life hacker . com/a-dog-can-help-you-get-all-the-exercise-you-need-1796230382](https://lifehacker.com/a-dog-can-help-you-get-all-the-exercise-you-need-1796230382)
+> 原文：<https://lifehacker.com/a-dog-can-help-you-get-all-the-exercise-you-need-1796230382>
 
 事实证明，遛狗也算是一种合法的运动——有助于长寿的运动。狗真的是人类最好的朋友。
 

@@ -1,6 +1,6 @@
 # 如何让死去的花朵复活
 
-> 原文:[https://life hacker . com/how-to-revival-dead-flowers-1795580892](https://lifehacker.com/how-to-revive-dead-flowers-1795580892)
+> 原文：<https://lifehacker.com/how-to-revive-dead-flowers-1795580892>
 
 你下班回家，路过最可爱的绣球花。在当地的小酒馆里，两杆 6 美元的价格非常便宜，不容错过。你把它们带回家，放在盛有水的花瓶里，几个小时后就把它们忘掉。接下来，你知道，完美的蓝色小花瓣卷了进来，整个东西都下垂了，你几个小时前刚买的活泼的花正在迅速枯萎。
 

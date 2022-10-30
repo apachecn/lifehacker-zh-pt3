@@ -1,6 +1,6 @@
 # 如何通过重新设计的“探索”标签在谷歌地图上获得餐馆推荐
 
-> 原文:[https://life hacker . com/how-to-get-restaurant-recommendations-on-Google-maps-wi-1827207660](https://lifehacker.com/how-to-get-restaurant-recommendations-on-google-maps-wi-1827207660)
+> 原文：<https://lifehacker.com/how-to-get-restaurant-recommendations-on-google-maps-wi-1827207660>
 
 谷歌地图为你提供你要去的地方的方向，但现在它也可以指导你尝试城里所有最好的墨西哥玉米卷。
 

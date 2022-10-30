@@ -1,6 +1,6 @@
 # 如何通过交叉训练提高你的跑步水平
 
-> 原文:[https://life hacker . com/how-to-improve-your ' s running with cross-training-1786578652](https://lifehacker.com/how-to-improve-your-running-with-cross-training-1786578652)
+> 原文：<https://lifehacker.com/how-to-improve-your-running-with-cross-training-1786578652>
 
 你听到的让新手跑得更快的最常见的解决方案是跑更多(或更难)的速度训练。这种策略只能部分发挥作用，它不是突破性能平台的长期解决方案。
 

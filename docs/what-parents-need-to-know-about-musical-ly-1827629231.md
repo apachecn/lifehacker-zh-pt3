@@ -1,6 +1,6 @@
 # 关于抖音，父母需要知道什么
 
-> 原文:[https://life hacker . com/what-parents-need-know-on-musical-ly-1827629231](https://lifehacker.com/what-parents-need-to-know-about-musical-ly-1827629231)
+> 原文：<https://lifehacker.com/what-parents-need-to-know-about-musical-ly-1827629231>
 
 它最初是一个对口型应用 Musical.ly，然后在 2018 年更名为抖音，然后因非法收集儿童数据而被处以570 万美元的罚款。今天，它是儿童和青少年中最受欢迎的社交媒体平台之一。
 

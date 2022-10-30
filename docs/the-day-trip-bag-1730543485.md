@@ -1,6 +1,6 @@
 # 一日游包
 
-> 原文:[https://lifehacker.com/the-day-trip-bag-1730543485](https://lifehacker.com/the-day-trip-bag-1730543485)
+> 原文：<https://lifehacker.com/the-day-trip-bag-1730543485>
 
 开始一天的探索意味着你需要准备一个包，里面装满你需要的所有东西。对于日常随身读物 Brandon Tran 来说，这意味着一台相机和一些小工具。
 

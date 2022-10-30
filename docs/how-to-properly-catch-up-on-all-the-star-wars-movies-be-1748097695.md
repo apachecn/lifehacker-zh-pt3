@@ -1,6 +1,6 @@
 # 如何在原力觉醒之前正确地看完所有的星球大战电影
 
-> 原文:[https://life hacker . com/how-to-right-catch-up-on-all-the-star-wars-movies-be-1748097695](https://lifehacker.com/how-to-properly-catch-up-on-all-the-star-wars-movies-be-1748097695)
+> 原文：<https://lifehacker.com/how-to-properly-catch-up-on-all-the-star-wars-movies-be-1748097695>
 
 《星球大战》第七部电影本周上映！)如果你感觉有点落后，不要担心:下面是如何在最新一部电影上映前赶上前几部电影的方法。
 

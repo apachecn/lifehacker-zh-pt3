@@ -1,6 +1,6 @@
 # 你现在就可以制作简单、可食用的 DIY 礼物
 
-> 原文:[https://life hacker . com/easy-eatable-DIY-gifts-you-can-make-now-1820834807](https://lifehacker.com/easy-edible-diy-gifts-you-can-make-now-1820834807)
+> 原文：<https://lifehacker.com/easy-edible-diy-gifts-you-can-make-now-1820834807>
 
 一份可食用的礼物可以让人感觉到被爱，只有美味的自制食物才能做到这一点。它们也不会留下任何杂物，从已经成为假日季同义词的强制购买消费品的海洋中提供了一个受欢迎的休息。以防你看不出来，我是你的超级粉丝。
 

@@ -1,6 +1,6 @@
 # 需要一间办公室吗？利用同事在任何地方寻找空间
 
-> 原文:[https://life hacker . com/need-an-office-on-the-quick-use-co-worker-to-find-a-spa-1823618599](https://lifehacker.com/need-an-office-on-the-quick-use-coworker-to-find-a-spa-1823618599)
+> 原文：<https://lifehacker.com/need-an-office-on-the-quick-use-coworker-to-find-a-spa-1823618599>
 
 在传统办公室工作有它的好处。无限量的咖啡、精选的小吃和一台真正的复印机可以极大地提高你的工作效率。如果你没有传统的工作场所，或者你计划在假期完成一些工作——让你的旅伴“高兴”——考虑一下 [同事](https://www.coworker.com/) 。
 

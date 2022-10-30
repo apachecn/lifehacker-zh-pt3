@@ -1,6 +1,6 @@
 # 如何锁定和解锁您的大通信用卡
 
-> 原文:[https://life hacker . com/how-to-lock-and-unlock-your-chase-credit-card-1829387673](https://lifehacker.com/how-to-lock-and-unlock-your-chase-credit-card-1829387673)
+> 原文：<https://lifehacker.com/how-to-lock-and-unlock-your-chase-credit-card-1829387673>
 
 如果你曾经暂时丢失了信用卡，惊慌失措地取消了账户，Chase 现在为信用卡用户提供了另一种选择:你可以通过手机或电脑锁定和解锁信用卡。这项功能现已面向信用卡推出，将于今年晚些时候面向借记卡持有者推出。
 

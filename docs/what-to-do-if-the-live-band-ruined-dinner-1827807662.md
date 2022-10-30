@@ -1,6 +1,6 @@
 # 问咸女服务员:如果现场乐队毁了晚餐怎么办？
 
-> 原文:[https://the take out . com/what-do-if-the-live-band-wrested-dinner-1827807662](https://thetakeout.com/what-to-do-if-the-live-band-ruined-dinner-1827807662)
+> 原文：<https://thetakeout.com/what-to-do-if-the-live-band-ruined-dinner-1827807662>
 
 > 亲爱的咸味:上个周末，我和朋友去了城里一家新开的日本餐馆。我没有读过任何关于它举办现场音乐的东西，但是在我和我的朋友们坐下后大约 30 分钟，一个三人组的音乐家开始表演。他们坐得离我们的桌子太近，这使得谈话很困难，尤其是当其中一个人开始唱歌的时候。
 > 

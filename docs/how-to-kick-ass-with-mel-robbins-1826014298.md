@@ -1,6 +1,6 @@
 # 如何踢屁股，与梅尔罗宾斯
 
-> 原文:[https://life hacker . com/how-to-kick-ass-with-Mel-Robbins-1826014298](https://lifehacker.com/how-to-kick-ass-with-mel-robbins-1826014298)
+> 原文：<https://lifehacker.com/how-to-kick-ass-with-mel-robbins-1826014298>
 
 梅尔·罗宾斯(Mel Robbins)是一位励志演说家，也是《T2》《5 秒法则》《T4》《T5》的作者。她也是新的 Audible 原创歌曲《 [与梅尔·罗宾斯](https://www.audible.com/ep/mel-robbins?ref=mrq_mel_aud_prvan&source_code=MRQORWS04091800YG) 一起踢屁股》的主持人在这一集里，我们谈论动机，驯服我们头脑中的负面声音，以及我们如何踢自己的屁股从优秀变得伟大。
 

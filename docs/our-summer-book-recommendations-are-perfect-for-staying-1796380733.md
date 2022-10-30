@@ -1,6 +1,6 @@
 # 我们的夏季书籍推荐非常适合待在室内
 
-> 原文:[https://life hacker . com/our-summer-book-recommendations-is-perfect-for-stay-1796380733](https://lifehacker.com/our-summer-book-recommendations-are-perfect-for-staying-1796380733)
+> 原文：<https://lifehacker.com/our-summer-book-recommendations-are-perfect-for-staying-1796380733>
 
 海滩阅读最糟糕的地方是海滩。你被尖叫的孩子和海鸥包围着。沙子进入书页，阳光烘烤你的皮肤，让你的 iPad 无法阅读。你绝对会被排球打到眼镜。取而代之的是，打开空调，穿上毛衣，试着阅读 Lifehacker 编辑团队的室内夏日读物。
 

@@ -1,6 +1,6 @@
 # 如何设置智能家居集线器和水传感器
 
-> 原文:[https://life hacker . com/how-to-set-a-smart-home-hub-and-water-sensor-1821097747](https://lifehacker.com/how-to-set-up-a-smart-home-hub-and-water-sensor-1821097747)
+> 原文：<https://lifehacker.com/how-to-set-up-a-smart-home-hub-and-water-sensor-1821097747>
 
 如果您正在寻找一套自己的智能家居系统，而又不需要花费太多，我们可以为您提供帮助。在我们的新视频系列 [家庭黑客](https://lifehacker.com/tag/homehackers) 的第一集中，我们将介绍智能家庭中枢选项，并向您展示如何设置水传感器。
 

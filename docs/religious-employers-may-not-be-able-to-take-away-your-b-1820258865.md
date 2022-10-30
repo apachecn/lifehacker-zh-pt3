@@ -1,6 +1,6 @@
 # 宗教雇主可能无法取消你的节育措施
 
-> 原文:[https://life hacker . com/religious-employees-may-not-able-to-take-away-your-b-1820258865](https://lifehacker.com/religious-employers-may-not-be-able-to-take-away-your-b-1820258865)
+> 原文：<https://lifehacker.com/religious-employers-may-not-be-able-to-take-away-your-b-1820258865>
 
 早在 10 月份，当总统 [签署了一项关于节育覆盖面](https://vitals.lifehacker.com/your-employer-can-now-force-your-insurance-to-stop-cove-1819228861#_ga=2.206055313.388405443.1509986974-2091290795.1509344142) 的行政命令时，我们认为——T4 和他可能也认为——这将允许宗教雇主拒绝为他们的员工提供避孕覆盖面。圣母院也是这么想的。但似乎我们都错了。
 

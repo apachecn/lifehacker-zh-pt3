@@ -1,6 +1,6 @@
 # 我是贝丝·夏皮罗，车轮上的城市膳食的执行董事，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-Beth-Shapiro-city mealties-on-whe-1827970015](https://lifehacker.com/im-beth-shapiro-executive-director-of-citymeals-on-whe-1827970015)
+> 原文：<https://lifehacker.com/im-beth-shapiro-executive-director-of-citymeals-on-whe-1827970015>
 
 城市餐车每年为纽约市的老年居民提供超过 300 万份餐食，填补了政府项目遗漏的周末和节假日等空白。自 2011 年以来，贝丝·夏皮罗一直是该非营利组织的执行董事，监督从筹款到交付的每个步骤，跟上人口老龄化和其他不断变化的需求。我们和她谈了管理一个有这么多风险的组织。
 

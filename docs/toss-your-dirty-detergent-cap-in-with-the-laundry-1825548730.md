@@ -1,6 +1,6 @@
 # 把你的脏洗涤剂帽和衣物一起扔进去
 
-> 原文:[https://life hacker . com/toss-your-dirty-detergent-cap-in-the-洗衣房-1825548730](https://lifehacker.com/toss-your-dirty-detergent-cap-in-with-the-laundry-1825548730)
+> 原文：<https://lifehacker.com/toss-your-dirty-detergent-cap-in-with-the-laundry-1825548730>
 
 在你洗了几次衣服后，你的洗涤剂量杯会变得粘糊糊的。如果你厌倦了，你可以在下次洗衣服的时候彻底清洗一下。
 

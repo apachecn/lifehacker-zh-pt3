@@ -1,6 +1,6 @@
 # 使用 Slack 的内置提醒功能来掌握任务
 
-> 原文:[https://life hacker . com/use-slacks-built-in-reminder-feature-to-stain-top-of-1823685965](https://lifehacker.com/use-slacks-built-in-reminder-feature-to-stay-on-top-of-1823685965)
+> 原文：<https://lifehacker.com/use-slacks-built-in-reminder-feature-to-stay-on-top-of-1823685965>
 
 Slack 装载了大量大多数普通用户都没有意识到的功能。其中我最喜欢的是/ 提醒功能。
 

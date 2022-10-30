@@ -1,6 +1,6 @@
 # 在这个友好的人工智能机器人的帮助下检测剽窃
 
-> 原文:[https://life hacker . com/detect-抄袭-借助这个友好的 ai-bot-1797728466](https://lifehacker.com/detect-plagiarism-with-the-help-of-this-friendly-ai-bot-1797728466)
+> 原文：<https://lifehacker.com/detect-plagiarism-with-the-help-of-this-friendly-ai-bot-1797728466>
 
 下一部与简·奥斯汀 200 年前的杰作《爱玛》同名的热门文学作品根本不是一本书，而是一部完全现代的人工智能。
 

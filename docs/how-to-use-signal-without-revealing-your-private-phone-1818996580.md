@@ -1,6 +1,6 @@
 # 如何在不泄露私人电话号码的情况下使用信号
 
-> 原文:[https://life hacker . com/how-to-use-signal-without-expose-your-private-phone-1818996580](https://lifehacker.com/how-to-use-signal-without-revealing-your-private-phone-1818996580)
+> 原文：<https://lifehacker.com/how-to-use-signal-without-revealing-your-private-phone-1818996580>
 
 [信号](https://lifehacker.com/signal-the-encrypted-chat-app-is-now-available-on-des-1787103250) 使 [加密](https://lifehacker.com/secure-messaging-app-showdown-whatsapp-vs-signal-1794684943) 为大众所用，但安全消息服务也留下了一点个人信息暴露:你的私人电话号码。
 

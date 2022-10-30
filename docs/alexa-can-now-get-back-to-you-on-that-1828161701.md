@@ -1,6 +1,6 @@
 # Alexa 现在可以“就此回复你”
 
-> 原文:[https://life hacker . com/Alexa-can-now-get-back-to-you-on-that-1828161701](https://lifehacker.com/alexa-can-now-get-back-to-you-on-that-1828161701)
+> 原文：<https://lifehacker.com/alexa-can-now-get-back-to-you-on-that-1828161701>
 
 鉴于询问事实是亚马逊 Echo 这样的智能音箱最常用的功能，Alexa 用户大概很熟悉“对不起，我不知道那个”这句话
 

@@ -1,6 +1,6 @@
 # 使用 Hopper 的新“秘密票价”获得高达 35%的航班折扣
 
-> 原文:[https://life hacker . com/hoppers-new-secret-fares-offer-flight-discounts-as-high-1825693294](https://lifehacker.com/hoppers-new-secret-fares-offer-flight-discounts-as-high-1825693294)
+> 原文：<https://lifehacker.com/hoppers-new-secret-fares-offer-flight-discounts-as-high-1825693294>
 
 从今天开始，旅游应用 Hopper 将 [提供国际航班的秘密票价](https://www.hopper.com/corp/announcements/introducing-secret-fares) ，这是该网站独有的新功能，据称它将提供比你在其他网站(包括其他机票折扣店)上找到的机票便宜 35%的机票。
 

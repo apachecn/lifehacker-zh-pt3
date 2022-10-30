@@ -1,6 +1,6 @@
 # 如何掌握看起来很忙的艺术
 
-> 原文:[https://life hacker . com/how-to-master-the-art-of-looking-busy-5952456](https://lifehacker.com/how-to-master-the-art-of-looking-busy-5952456)
+> 原文：<https://lifehacker.com/how-to-master-the-art-of-looking-busy-5952456>
 
 看起来很忙有坏名声。有时候你必须看起来很忙，这样你才能真正做重要的事情。以下是如何欺骗别人，让他们相信你已经排满了日程，这样你就有了喘息的空间来真正完成任务。
 

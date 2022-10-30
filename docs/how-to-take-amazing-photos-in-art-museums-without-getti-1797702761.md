@@ -1,6 +1,6 @@
 # 如何在艺术博物馆拍出惊艳的照片而不被踢出去
 
-> 原文:[https://life hacker . com/how-to-take-amazing-photos-in-art-museums-without-getti-1797702761](https://lifehacker.com/how-to-take-amazing-photos-in-art-museums-without-getti-1797702761)
+> 原文：<https://lifehacker.com/how-to-take-amazing-photos-in-art-museums-without-getti-1797702761>
 
 参观艺术博物馆最棒的事情之一是能够看到触动和激励你的作品，这让你有理由想拍一张照片。但是，许多博物馆都有限制摄影的规定，你最不想做的事情就是被踢出去或者为了一张照片而损坏艺术品。
 

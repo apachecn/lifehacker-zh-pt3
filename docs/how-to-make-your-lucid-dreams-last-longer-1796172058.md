@@ -1,6 +1,6 @@
 # 如何让你的清醒梦持续更久
 
-> 原文:[https://life hacker . com/how-to-make-your-lucid-dreams-last-longer-1796172058](https://lifehacker.com/how-to-make-your-lucid-dreams-last-longer-1796172058)
+> 原文：<https://lifehacker.com/how-to-make-your-lucid-dreams-last-longer-1796172058>
 
 在做梦的时候变得清醒实际上是容易的部分，oneironauts。现在我们要学习如何抓住它，让我们的夜间冒险持续下去。欢迎来到我们第四周的 [**清明梦工作坊**](http://lifehacker.com/tag/lucid-dream-workshop) 。
 

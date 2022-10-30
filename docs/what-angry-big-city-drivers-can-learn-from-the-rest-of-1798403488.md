@@ -1,6 +1,6 @@
 # 愤怒的大城市司机能从我们其他人身上学到什么
 
-> 原文:[https://jalopnik . com/what-angry-big-city-drivers-can-learn-the-rest-of-the-others-of-1798403488](https://jalopnik.com/what-angry-big-city-drivers-can-learn-from-the-rest-of-1798403488)
+> 原文：<https://jalopnik.com/what-angry-big-city-drivers-can-learn-from-the-rest-of-1798403488>
 
 我在俄亥俄州东北部长大，在那里，开车就像大多数非城市化和地铁化的世界一样，只是生活的一部分，就像拉屎一样。而且——想想看，这和中西部的排便没有什么不同——俄亥俄州人倾向于开得很慢，而鸣笛几乎是闻所未闻的，速度限制也普遍得到遵守。这在很大程度上是因为各级政府的警察在无事可做的情况下，热情地监督司机的行为，无论是速度，还是转向灯，或者仅仅是车牌快过期了。
 

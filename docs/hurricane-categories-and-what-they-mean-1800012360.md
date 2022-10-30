@@ -1,6 +1,6 @@
 # 飓风类别及其含义
 
-> 原文:[https://life hacker . com/hurricane-categories-and-what-them-mean-1800012360](https://lifehacker.com/hurricane-categories-and-what-they-mean-1800012360)
+> 原文：<https://lifehacker.com/hurricane-categories-and-what-they-mean-1800012360>
 
 如果你住在海岸附近，你可能一直在咬指甲，因为厄玛从热带风暴升级为飓风，并且类别数量攀升。厄玛现在是 5 级飓风，但是分类到底意味着什么呢？
 

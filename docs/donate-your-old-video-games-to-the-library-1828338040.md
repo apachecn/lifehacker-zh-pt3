@@ -1,6 +1,6 @@
 # 把你的旧电子游戏捐给图书馆
 
-> 原文:[https://life hacker . com/duate-your-old-video-games-to-library-1828338040](https://lifehacker.com/donate-your-old-video-games-to-the-library-1828338040)
+> 原文：<https://lifehacker.com/donate-your-old-video-games-to-the-library-1828338040>
 
 当你厌倦了拍摄《孤岛惊魂 5》中的末日预报员时，与其以你支付的一小部分转卖游戏，或者让它在接下来的 26 年里在你的车库里积灰，为什么不把它捐赠给你当地的图书馆，过一个无聊的儿童节呢？在 Reddit 的 [游戏社区](https://www.reddit.com/r/gaming/comments/974ctd/sick_of_gamestops_ridiculous_tradein_offers_i/) 中，digital_russ 分享了他在“厌倦了 GameStop 荒谬的折价优惠”后是如何做到的
 

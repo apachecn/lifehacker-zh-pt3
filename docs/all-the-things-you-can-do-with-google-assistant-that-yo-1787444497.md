@@ -1,6 +1,6 @@
 # 你可以用谷歌助手做所有你以前不能做的事情
 
-> 原文:[https://life hacker . com/all-the-things-you-that-yo-178744497](https://lifehacker.com/all-the-things-you-can-do-with-google-assistant-that-yo-1787444497)
+> 原文：<https://lifehacker.com/all-the-things-you-can-do-with-google-assistant-that-yo-1787444497>
 
 谷歌新的谷歌助手昨天出现在该公司 [硬件活动](http://lifehacker.com/everything-google-announced-at-its-made-by-google-eve-1787404179) 的每一个环节。谷歌不太清楚 Assistant 与 [Google Now](http://lifehacker.com/top-10-awesome-features-of-google-now-1577427243) ，或 [Now On Tap](http://lifehacker.com/google-now-on-tap-is-cool-but-its-not-that-useful-yet-1736479584) ，或 [谷歌的语音命令](http://lifehacker.com/everything-you-didnt-know-you-could-do-with-google-voi-512727229) 有何不同。为了理清思路，这里有一些 Assistant 最好的新功能，以及它如何融入你的谷歌生活。
 

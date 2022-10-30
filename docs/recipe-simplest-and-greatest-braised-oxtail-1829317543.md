@@ -1,6 +1,6 @@
 # 红烧牛尾的美味怎么说都不为过
 
-> 原文:[https://the take out . com/recipe-simple-and-great-red-oxtail-1829317543](https://thetakeout.com/recipe-simplest-and-greatest-braised-oxtail-1829317543)
+> 原文：<https://thetakeout.com/recipe-simplest-and-greatest-braised-oxtail-1829317543>
 
 牛尾又多瘤又肥硕，骨髓盘突出，让许多家庭烹饪者望而却步。但是请站出来，你最喜欢的秋季焖菜来了。
 

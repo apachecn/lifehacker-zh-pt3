@@ -1,6 +1,6 @@
 # 不要在办公桌上吃午饭
 
-> 原文:[https://life hacker . com/stop-eating-chief-on-your-desk-1797192073](https://lifehacker.com/stop-eating-lunch-at-your-desk-1797192073)
+> 原文：<https://lifehacker.com/stop-eating-lunch-at-your-desk-1797192073>
 
 在办公桌上吃午餐似乎是个好主意。毕竟，你完成了更多的工作，向你的同事展示了你有多努力，而且你还能吃足够的食物来维持你余下的工作日，对吗？
 

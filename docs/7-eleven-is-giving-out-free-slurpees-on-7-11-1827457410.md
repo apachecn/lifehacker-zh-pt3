@@ -1,6 +1,6 @@
 # 7 月 11 日，7-11 正在发放免费的思乐冰
 
-> 原文:[https://life hacker . com/7-eleven-is-giving-out-free-slurpees-on-7-11-1827457410](https://lifehacker.com/7-eleven-is-giving-out-free-slurpees-on-7-11-1827457410)
+> 原文：<https://lifehacker.com/7-eleven-is-giving-out-free-slurpees-on-7-11-1827457410>
 
 7 月 11 日星期三，7 月 11 日 11 点至 7 点，7-11 便利店将免费发放思乐冰，作为该连锁店一年一度的[7-11 日](https://lifehacker.com/7-eleven-turns-free-slurpee-day-into-a-whole-week-of-fr-1717097078) 。你甚至可以在临时特色风味中得到一个，嘎吱船长的嘎吱浆果。接下来的五天，7-11 在垃圾食品上进行不同的“买 X 送 Y”交易:
 

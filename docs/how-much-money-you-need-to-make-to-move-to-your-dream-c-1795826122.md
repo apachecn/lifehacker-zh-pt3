@@ -1,6 +1,6 @@
 # 你需要赚多少钱才能搬到你梦想中的城市
 
-> 原文:[https://life hacker . com/how-more-money-you-need-to-move to-your dream-c-1795826122](https://lifehacker.com/how-much-money-you-need-to-make-to-move-to-your-dream-c-1795826122)
+> 原文：<https://lifehacker.com/how-much-money-you-need-to-make-to-move-to-your-dream-c-1795826122>
 
 尽管物价贵得离谱，但像纽约、洛杉矶和旧金山这样的城市人口也非常多，而且还在不断增长。当然，这些城市都很棒，可以提供很多东西——但是如果你想搬到 T2，你应该挣多少钱呢？
 

@@ -1,6 +1,6 @@
 # 如何用任何奶酪制作多汁的露西
 
-> 原文:[https://life hacker . com/how-to-make-a-juicy-Lucy-any-cheese-1827842827](https://lifehacker.com/how-to-make-a-juicy-lucy-with-any-cheese-1827842827)
+> 原文：<https://lifehacker.com/how-to-make-a-juicy-lucy-with-any-cheese-1827842827>
 
 有汉堡，然后有以汉堡为主题的项目，金智敏露西 T2 T3——又名多汁露西或多汁路易西(我是这样拼写的)——是 T4 非常美味的项目。这个多肉的奇迹不是在汉堡肉饼上融化奶酪，而是在里面保存着融化的自由奶酪宝藏。
 

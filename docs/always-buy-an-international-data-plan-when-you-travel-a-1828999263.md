@@ -1,6 +1,6 @@
 # 当你出国旅行时，一定要购买国际数据套餐
 
-> 原文:[https://life hacker . com/always-buy-an-international-data-plan-when-you-travel-a-1828999263](https://lifehacker.com/always-buy-an-international-data-plan-when-you-travel-a-1828999263)
+> 原文：<https://lifehacker.com/always-buy-an-international-data-plan-when-you-travel-a-1828999263>
 
 上周 [出现了一个故事](https://thepointsguy.com/news/how-a-facebook-post-saved-two-travelers-lives/) 关于一对夫妇在巴厘岛旅行，在回酒店的路上发生了摩托车事故。他们带有本地 SIM 卡的手机没电了，而他们寻求帮助的唯一方式就是用一部绑定了美国 SIM 卡的手机在脸书上发帖——脸书的一个帖子帮助他们寻求帮助并最终幸存下来。
 

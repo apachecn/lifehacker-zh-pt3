@@ -1,6 +1,6 @@
 # 潮湿气候摄影包
 
-> 原文:[https://life hacker . com/the-weather-climate-photography-bag-1793452239](https://lifehacker.com/the-humid-climate-photography-bag-1793452239)
+> 原文：<https://lifehacker.com/the-humid-climate-photography-bag-1793452239>
 
 气候比你想象的更重要，对于摄影师多米尼克·邓科姆来说，这意味着保护他的设备免受巴哈马潮湿海滩的影响。他用很酷的工具分享他的设置。
 

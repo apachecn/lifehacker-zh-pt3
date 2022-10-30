@@ -1,6 +1,6 @@
 # 遵循杰夫·贝索斯的“两块披萨法则”来开更有成效的会议
 
-> 原文:[https://life hacker . com/follow-Jeff-be zos-two-pizza-rule-for-more-productive-1797824738](https://lifehacker.com/follow-jeff-bezos-two-pizza-rule-for-more-productive-1797824738)
+> 原文：<https://lifehacker.com/follow-jeff-bezos-two-pizza-rule-for-more-productive-1797824738>
 
 没有蛋糕的聚会只是一个会议，但是没有免费披萨的会议一点都不好玩。这就是为什么我很高兴听到亚马逊的首席执行官杰夫·贝索斯在开会时有一个“两块披萨的规则”。
 

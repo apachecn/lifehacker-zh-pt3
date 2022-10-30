@@ -1,6 +1,6 @@
 # 去给你的孩子上骑自行车课吧
 
-> 原文:[https://life hacker . com/go-ahead-and-get-your-kid-1826072747](https://lifehacker.com/go-ahead-and-get-bike-riding-lessons-for-your-kid-1826072747)
+> 原文：<https://lifehacker.com/go-ahead-and-get-bike-riding-lessons-for-your-kid-1826072747>
 
 你可能会把教你的孩子如何骑自行车视为一种成年礼，一种神圣的经历，这种经历在小阿黛尔或布雷迪踏上青春自由之路的那一刻达到高潮。太好了。但是你也可能带着恐惧看待这个任务——你所能想象的只有你的背痛，你的孩子的眼泪和周围的痛苦。对于后一类人来说，给你的孩子报名参加自行车骑行课程并不丢人。
 

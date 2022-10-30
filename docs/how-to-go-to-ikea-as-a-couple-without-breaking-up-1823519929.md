@@ -1,6 +1,6 @@
 # 如何以情侣身份去宜家而不分手
 
-> 原文:[https://life hacker . com/how-to-go-IKEA-as-情侣不分手-1823519929](https://lifehacker.com/how-to-go-to-ikea-as-a-couple-without-breaking-up-1823519929)
+> 原文：<https://lifehacker.com/how-to-go-to-ikea-as-a-couple-without-breaking-up-1823519929>
 
 一段关系真正的力量不是在环境轻松的时候经受考验，而是在环境恶劣的时候。周末， [我和我的搭档](https://www.instagram.com/savagegazelle/) 踏上了考验我们勇气的旅程。我们沟通、妥协和对彼此表现出耐心的能力让我们一起度过了艰难的考验，但有一点是肯定的:和你的另一半一起去宜家不是开玩笑。
 

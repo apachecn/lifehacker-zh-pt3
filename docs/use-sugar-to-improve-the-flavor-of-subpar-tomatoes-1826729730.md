@@ -1,6 +1,6 @@
 # 在不合格的西红柿上撒糖来改善它们的味道
 
-> 原文:[https://life hacker . com/use-sugar-improve-the-flavor-sub-tomatos-1826729730](https://lifehacker.com/use-sugar-to-improve-the-flavor-of-subpar-tomatoes-1826729730)
+> 原文：<https://lifehacker.com/use-sugar-to-improve-the-flavor-of-subpar-tomatoes-1826729730>
 
 除了圣女果——它们几乎全年都很好——我尽量避免至少在 7 月前购买西红柿，因为过早购买通常会导致失望。但我并不完美，前几天我不小心买了几个。正如人们所预料的那样，它们在调味部门有点乏善可陈。
 

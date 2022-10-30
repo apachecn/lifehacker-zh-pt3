@@ -1,6 +1,6 @@
 # 夏令时的真实历史
 
-> 原文:[https://life hacker . com/the-real-history of daylight-saving-time-1823611526](https://lifehacker.com/the-real-history-of-daylight-saving-time-1823611526)
+> 原文：<https://lifehacker.com/the-real-history-of-daylight-saving-time-1823611526>
 
 快到 [时间了](https://lifehacker.com/psa-daylight-savings-time-starts-sunday-remember-to-s-1823598431) 为 [夏令时](https://en.wikipedia.org/wiki/Daylight_saving_time) ，但是谁想出了这种诡异的做法？为什么呢？如果你只是回答“本杰明·富兰克林”和“帮助农民”，你可能应该看看这个。
 

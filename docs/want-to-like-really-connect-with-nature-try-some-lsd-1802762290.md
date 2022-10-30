@@ -1,6 +1,6 @@
 # 想真正接触大自然吗？试试迷幻药
 
-> 原文:[https://life hacker . com/want-to-like-true-connect-with-nature-try-some-LSD-1802762290](https://lifehacker.com/want-to-like-really-connect-with-nature-try-some-lsd-1802762290)
+> 原文：<https://lifehacker.com/want-to-like-really-connect-with-nature-try-some-lsd-1802762290>
 
 有没有想过为什么嬉皮士这么喜欢树？根据发表在《精神药理学杂志》上的 的一项研究，这可能要归功于他们在《燃烧的人》中吃的那一把蘑菇，该研究发现，一个人的迷幻剂消费体验与他们感知的与自然的联系之间存在(或许并不令人惊讶)的关系。
 

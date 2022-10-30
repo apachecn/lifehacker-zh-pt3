@@ -1,6 +1,6 @@
 # 男人们，不要每次自拍都做这个表情
 
-> 原文:[https://life hacker . com/men-stop-making-this-face-in-every-self ie-1829058473](https://lifehacker.com/men-stop-making-this-face-in-every-selfie-1829058473)
+> 原文：<https://lifehacker.com/men-stop-making-this-face-in-every-selfie-1829058473>
 
 为什么那么多男青年在所有的自拍里都是一个模糊的脸？为什么他们都扬起眉毛，紧闭双唇，就像上班族在星期二互相问候一样？他们在隐藏什么？他们感觉如何？ [Vox 问了其中一小撮](https://www.vox.com/the-goods/2018/9/14/17827822/selfie-trends-men-male-facial-expression) ，得到了一些极好的自嘲答案。例如，自拍爱好者马克斯·莱维兹克说:
 

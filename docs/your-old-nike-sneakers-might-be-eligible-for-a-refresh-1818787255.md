@@ -1,6 +1,6 @@
 # 你的旧耐克运动鞋可能有资格获得更新或退款
 
-> 原文:[https://life hacker . com/your-old-Nike-spooles-may-be-eligible-for-a-refresh-1818787255](https://lifehacker.com/your-old-nike-sneakers-might-be-eligible-for-a-refresh-1818787255)
+> 原文：<https://lifehacker.com/your-old-nike-sneakers-might-be-eligible-for-a-refresh-1818787255>
 
 在你生命中的某个时刻，你有可能拥有一双耐克运动鞋。标志性的 swoosh 标志自 20 世纪 70 年代就已存在，公司本身的历史甚至更长。但是，即使是最忠实于品牌的消费者也可能会发现他们的运动鞋比预期的要早一点坏掉，如果是这样的话，由于耐克相当慷慨的退货政策，你也许可以挽救它们(或者至少获得一些商店信用)。
 

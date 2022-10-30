@@ -1,6 +1,6 @@
 # 使用 Fing 应用程序轻松识别网络上的所有设备
 
-> 原文:[https://life hacker . com/IOs-Android-app-of-the-week-fing-network-scanner-1825205516](https://lifehacker.com/ios-android-app-of-the-week-fing-network-scanner-1825205516)
+> 原文：<https://lifehacker.com/ios-android-app-of-the-week-fing-network-scanner-1825205516>
 
 你的网络上有什么？你总是可以打开你的路由器的网络接口来了解连接了哪些设备，但是你可能只会得到一个 MAC 地址和分配的 IP 的列表——不是很有帮助。应用程序 Fing-Network Scanner([iOS](https://itunes.apple.com/us/app/fing-network-scanner/id430921107?mt=8)， [Android](https://play.google.com/store/apps/details?id=com.overlook.android.fing&hl=en_GB) )是一个很好的免费方法，可以更好地了解路由器必须处理的所有设备。
 

@@ -1,6 +1,6 @@
 # 总统的夏季播放列表
 
-> 原文:[https://life hacker . com/the-presidents-summer-playlist-1785173914](https://lifehacker.com/the-presidents-summer-playlist-1785173914)
+> 原文：<https://lifehacker.com/the-presidents-summer-playlist-1785173914>
 
 美国总统不是每天都会掉一盘混音带，但当它发生时，我们会倾听。本周的特色播放列表直接来自国家最高办公室，给你的夏天一个完美的配乐。
 

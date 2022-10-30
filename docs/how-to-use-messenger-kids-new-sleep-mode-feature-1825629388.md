@@ -1,6 +1,6 @@
 # 如何使用 Facebook Messenger 儿童版的新“睡眠模式”功能
 
-> 原文:[https://life hacker . com/how-to-use-messenger-kids-new-sleep-mode-feature-1825629388](https://lifehacker.com/how-to-use-messenger-kids-new-sleep-mode-feature-1825629388)
+> 原文：<https://lifehacker.com/how-to-use-messenger-kids-new-sleep-mode-feature-1825629388>
 
 如果你的孩子正在使用脸书的儿童专用 Messenger Kids 应用程序，现在有一个新功能可以帮助父母更好地控制这种使用:小睡。
 

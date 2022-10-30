@@ -1,6 +1,6 @@
 # 拿一个不锈钢锅
 
-> 原文:[https://deadspin.com/get-a-stainless-steel-pan-1796845793](https://deadspin.com/get-a-stainless-steel-pan-1796845793)
+> 原文：<https://deadspin.com/get-a-stainless-steel-pan-1796845793>
 
 抽象地说，也就是说，如果你是一个非常富有的人，有一大群仆人来照顾除了你选择自己处理的那些人类生活的部分之外的所有事情，因此不必担心清洁和维护之类的事情，最好的锅应该是一个调味良好的铸铁锅。它可以承受很大的温度范围，它基本上不粘，它可以从炉子到烤箱来回移动而不会融化或什么的。太棒了。
 

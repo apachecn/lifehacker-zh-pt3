@@ -1,6 +1,6 @@
 # 如何用 Google Home 管理多个日历
 
-> 原文:[https://life hacker . com/how-to-management-multiple-calendars-with-Google-home-1820653306](https://lifehacker.com/how-to-manage-multiple-calendars-with-google-home-1820653306)
+> 原文：<https://lifehacker.com/how-to-manage-multiple-calendars-with-google-home-1820653306>
 
 [【Google Home】](https://lifehacker.com/preview/google-knocks-30-off-its-home-mini-smart-speaker-for-b-1820409960)，搜索巨头对 [的回应，亚马逊的 Echo 音箱](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219) ，推出时至少有一个明显的遗漏:访问和管理多个日历的能力。考虑到如此多的人使用谷歌自己的日历应用程序 来组织他们的生活，这一点尤其令人惊讶，但是，谢天谢地，该公司现在似乎正在推出一个逾期的更新。
 

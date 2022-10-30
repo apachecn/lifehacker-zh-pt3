@@ -1,6 +1,6 @@
 # 装满笔记本的单肩包
 
-> 原文:[https://life hacker . com/the-notebook-packed-shoulder-bag-1787092149](https://lifehacker.com/the-notebook-packed-shoulder-bag-1787092149)
+> 原文：<https://lifehacker.com/the-notebook-packed-shoulder-bag-1787092149>
 
 有时候，你只是想要一个简单的包，几个笔记本，几个写作用具。《每日邮报》的读者约瑟夫·德科默分享了他的袋子里装的就是这些东西。
 

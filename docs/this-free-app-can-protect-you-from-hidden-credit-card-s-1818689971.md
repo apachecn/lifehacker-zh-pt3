@@ -1,6 +1,6 @@
 # 这个免费的应用程序可以保护你免受隐藏的信用卡骗子
 
-> 原文:[https://life hacker . com/this-free-app-can-protect-you-from-hidden-credit-card-s-1818689971](https://lifehacker.com/this-free-app-can-protect-you-from-hidden-credit-card-s-1818689971)
+> 原文：<https://lifehacker.com/this-free-app-can-protect-you-from-hidden-credit-card-s-1818689971>
 
 每当你把卡放进加油站或自动提款机时，你就冒着信息被窃取的风险。
 

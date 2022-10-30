@@ -1,6 +1,6 @@
 # 人们喜欢争夺的技术决策
 
-> 原文:[https://life hacker . com/the-tech-decisions-the-people-love-to-fight-over-1829142215](https://lifehacker.com/the-tech-decisions-that-people-love-to-fight-over-1829142215)
+> 原文：<https://lifehacker.com/the-tech-decisions-that-people-love-to-fight-over-1829142215>
 
 技术的身份政治是真实的。我们变得痴迷于为我们的生活提供动力的设备，它们可以驱使我们与任何喜欢竞争产品、平台或服务的人进行激烈的争论——无论多么荒谬。
 

@@ -1,6 +1,6 @@
 # 说真的，是时候放弃富国银行了
 
-> 原文:[https://life hacker . com/serious-its-time-to-drop-wells-Fargo-1825573626](https://lifehacker.com/seriously-its-time-to-drop-wells-fargo-1825573626)
+> 原文：<https://lifehacker.com/seriously-its-time-to-drop-wells-fargo-1825573626>
 
 富国银行就是搞不定。上周，该银行因“不公平”的保险行为被消费者金融保护局罚款 10 亿美元 。现在， [*《华尔街日报》*](https://www.wsj.com/articles/wells-fargos-401-k-practices-probed-by-labor-department-1524757138) 报道称，美国劳工部正在调查这家银行业巨头是否一直在将低成本计划的 401(k)参保者推入更昂贵的个人退休账户。
 

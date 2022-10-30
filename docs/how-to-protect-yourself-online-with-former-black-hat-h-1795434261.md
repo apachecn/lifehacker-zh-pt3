@@ -1,6 +1,6 @@
 # 如何在网上保护自己，前黑帽黑客赫克托·蒙塞古尔
 
-> 原文:[https://life hacker . com/how-to-protect-yoursely-online-with-former-black-hat-h-1795434261](https://lifehacker.com/how-to-protect-yourself-online-with-former-black-hat-h-1795434261)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-online-with-former-black-hat-h-1795434261>
 
 在本周的升级节目中，我们采访了犀牛实验室的评估服务主管赫克托·蒙塞古尔。
 

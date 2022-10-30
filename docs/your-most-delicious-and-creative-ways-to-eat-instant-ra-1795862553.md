@@ -1,6 +1,6 @@
 # 你最美味和最有创意的速食拉面吃法
 
-> 原文:[https://life hacker . com/your-most-delicious-and-creative-ways-to-eat instant-ra-1795862553](https://lifehacker.com/your-most-delicious-and-creative-ways-to-eat-instant-ra-1795862553)
+> 原文：<https://lifehacker.com/your-most-delicious-and-creative-ways-to-eat-instant-ra-1795862553>
 
 上周，我问了你所有关于 [的问题，你最喜欢用什么方法来给无限重复的即食拉面](https://lifehacker.com/what-are-your-favorite-instant-ramen-upgrades-1795729162) 增添活力，而你，我的朋友们，没有让我失望。
 

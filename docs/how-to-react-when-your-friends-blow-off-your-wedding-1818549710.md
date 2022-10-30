@@ -1,6 +1,6 @@
 # 当你的朋友取消你的婚礼时，你该如何反应
 
-> 原文:[https://life hacker . com/当你的朋友取消你的婚礼时如何反应-1818549710](https://lifehacker.com/how-to-react-when-your-friends-blow-off-your-wedding-1818549710)
+> 原文：<https://lifehacker.com/how-to-react-when-your-friends-blow-off-your-wedding-1818549710>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

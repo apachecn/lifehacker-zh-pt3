@@ -1,6 +1,6 @@
 # 11 本有助于他们理解种族平等斗争的儿童读物
 
-> 原文:[https://life hacker . com/11-kids-books-that-help-these-the-strugg-1797940769](https://lifehacker.com/11-kids-books-that-will-help-them-understand-the-strugg-1797940769)
+> 原文：<https://lifehacker.com/11-kids-books-that-will-help-them-understand-the-strugg-1797940769>
 
 我的孩子在一所多元化的学校，他们的老师致力于定期、坦诚地讨论美国历史、民权和美国正在进行的争取社会公正的斗争。我尽可能多地与他们讨论时事，而不吓到他们——我的大儿子对战争产生了并非不合理的恐惧——我用我认为他们可以理解的术语来描述种族问题(现在我们的语言主要是关于为什么有些人对有色人种“好”，有些人对有色人种“不好”，以及关于选举权、学校融合和安全的适龄对话)。但是我需要一些帮助，当我需要帮助时，我总是求助于书籍。到了*的时候，我童年最喜欢的人往往都是白人，当然也不会涉及任何种族公正问题(事实上，正如我为 [Vox](https://www.vox.com/2015/7/10/8901109/childrens-books-racist-sexist) 所写的那样，有时是明显的种族歧视)。* 
 

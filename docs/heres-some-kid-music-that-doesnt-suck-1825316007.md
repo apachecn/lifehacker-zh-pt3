@@ -1,6 +1,6 @@
 # 这里有一些不烂的儿童音乐
 
-> 原文:[https://life hacker . com/heres-some-kid-music-that-suck-1825316007](https://lifehacker.com/heres-some-kid-music-that-doesnt-suck-1825316007)
+> 原文：<https://lifehacker.com/heres-some-kid-music-that-doesnt-suck-1825316007>
 
 如果你是一位家长，突然被推入了儿童音乐的世界，我很抱歉。外面的大多数东西都是令人麻木的糟糕。没人想听《艾尔文与花栗鼠》 [唱](https://www.youtube.com/watch?time_continue=1&v=El-VVtqC8VY) “火辣身材，摇滚派对”，或者《手指家庭》的另一个版本，或者一个关于一个小孩带回家一只小大黄蜂然后吃掉它的曲子(为什么？).五年后，光是在我家就有无数次的回放，我们最终能让《让它去吧》*离开吗？*
 

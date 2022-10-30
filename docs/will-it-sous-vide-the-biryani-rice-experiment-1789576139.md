@@ -1,6 +1,6 @@
 # 它会腐烂吗？比尔亚尼大米实验
 
-> 原文:[https://life hacker . com/will-it-sous-vide-the-biryani-rice-experiment-1789576139](https://lifehacker.com/will-it-sous-vide-the-biryani-rice-experiment-1789576139)
+> 原文：<https://lifehacker.com/will-it-sous-vide-the-biryani-rice-experiment-1789576139>
 
 大家好，猫猫们，欢迎回到被称为 [*的情绪过山车，它会被分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

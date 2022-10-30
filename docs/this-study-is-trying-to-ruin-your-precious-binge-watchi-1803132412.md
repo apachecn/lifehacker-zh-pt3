@@ -1,6 +1,6 @@
 # 这项研究试图破坏你宝贵的疯狂观看
 
-> 原文:[https://life hacker . com/this-study-is-try-trust-your-precious-binge-watch I-1803132412](https://lifehacker.com/this-study-is-trying-to-ruin-your-precious-binge-watchi-1803132412)
+> 原文：<https://lifehacker.com/this-study-is-trying-to-ruin-your-precious-binge-watchi-1803132412>
 
 狂看电视是美国新的最受欢迎的消遣。我的意思是，有什么比在沙发上扑通一声看完一天的电视节目更好的呢？但是一项研究试图破坏每个人的魔力。
 

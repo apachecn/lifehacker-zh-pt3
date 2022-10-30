@@ -1,6 +1,6 @@
 # 如何让 Alexa 成为 Android 上的默认语音助手
 
-> 原文:[https://life hacker . com/how-to-make-Alexa-the-default-voice-assistant-on-androi-1825824562](https://lifehacker.com/how-to-make-alexa-the-default-voice-assistant-on-androi-1825824562)
+> 原文：<https://lifehacker.com/how-to-make-alexa-the-default-voice-assistant-on-androi-1825824562>
 
 安卓:几乎每一款新的安卓设备都自带 [谷歌助手](https://lifehacker.com/soon-you-wont-have-to-say-hey-google-to-launch-google-a-1822563826#_ga=2.252155338.2130151020.1525698930-3846207152.1521480874) 作为你默认的人工智能管家，但是如果你更喜欢 [亚马逊的 Alexa](https://lifehacker.com/the-first-alexa-skills-to-enable-on-your-new-amazon-ech-1796841634#_ga=2.252155338.2130151020.1525698930-3846207152.1521480874) 呢？当你寻求帮助时，很容易改变哪个机器人助手会做出响应。
 

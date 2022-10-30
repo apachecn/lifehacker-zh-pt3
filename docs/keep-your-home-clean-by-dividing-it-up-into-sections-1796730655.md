@@ -1,6 +1,6 @@
 # 把你的家分成几个部分来保持干净
 
-> 原文:[https://life hacker . com/keep-your-home-clean-by-divide-up-to-sections-1796730655](https://lifehacker.com/keep-your-home-clean-by-dividing-it-up-into-sections-1796730655)
+> 原文：<https://lifehacker.com/keep-your-home-clean-by-dividing-it-up-into-sections-1796730655>
 
 不管你的家有多大或多小，如果你天生不是一个爱整洁的人，那么保持它的干净会是一个挑战。我住在旧金山的一套一居室公寓里，这意味着不需要太多的杂乱就能让我的住处看起来完全失控。除了空间问题，我还有一个更大的问题，那就是我天生就是一个邋遢的人。有一段时间，我认为我注定要生活在一片混乱中——直到我开始分段清洁。
 

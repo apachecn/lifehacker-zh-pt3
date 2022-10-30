@@ -1,6 +1,6 @@
 # 2016 年 11 月进出网飞的所有最佳电影
 
-> 原文:[https://life hacker . com/all-the-best-movies-coming-and-leaving-in-no-1788146609](https://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-no-1788146609)
+> 原文：<https://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-no-1788146609>
 
 随着冬天的到来，网飞又看了一系列电影。这一次，你会看到吉尔摩女孩的回归，一些斯蒂芬·金的经典作品，等等。
 

@@ -1,6 +1,6 @@
 # 你拿错了你宝宝的汽车座椅
 
-> 原文:[https://life hacker . com/you-carrying-you-babys-car-seat-all-wrong-1796645479](https://lifehacker.com/youre-carrying-your-babys-car-seat-all-wrong-1796645479)
+> 原文：<https://lifehacker.com/youre-carrying-your-babys-car-seat-all-wrong-1796645479>
 
 我们都知道如何携带婴儿汽车座椅，对不对？你把你的胳膊穿过把手，放在你手肘的内侧弯处，让它垂下来。然后，你可以服用一片止痛药来缓解手腕、脖子和背部疼痛，这些疼痛是由以一个尴尬的角度拖动至少 20 磅引起的。
 

@@ -1,6 +1,6 @@
 # 来自我们读者的最佳迪士尼世界旅行建议
 
-> 原文:[https://life hacker . com/the-best-Disney-world-travel-tips-from-our-readers-1825901636](https://lifehacker.com/the-best-disney-world-travel-tips-from-our-readers-1825901636)
+> 原文：<https://lifehacker.com/the-best-disney-world-travel-tips-from-our-readers-1825901636>
 
 本周我们黑了一个主题公园而不是一个城市，有一个坦率地令人生畏的 [275 条评论](https://lifehacker.com/tell-us-your-disney-world-travel-tips-1825786306) 充满了游览迪士尼世界的小贴士。(我会喜欢一些关于在迪士尼世界*生活*的建议；也许下次吧。)这里有一些最好的。
 

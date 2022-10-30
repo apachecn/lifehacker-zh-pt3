@@ -1,6 +1,6 @@
 # 阅读阿尔伯特·爱因斯坦关于幸福生活的建议
 
-> 原文:[https://life hacker . com/read-Albert-einsteins-advice-for-a-happy-life-1819938971](https://lifehacker.com/read-albert-einsteins-advice-for-a-happy-life-1819938971)
+> 原文：<https://lifehacker.com/read-albert-einsteins-advice-for-a-happy-life-1819938971>
 
 1921 年，阿尔伯特·爱因斯坦获得了诺贝尔物理学奖。不久后，他去日本做了一次巡回演讲，在日本，他决定开始给人们一些建议，而不是现金， [*石英*报道](https://qz.com/1109535/read-albert-einsteins-handwritten-advice-on-living-a-happy-life/) 。
 

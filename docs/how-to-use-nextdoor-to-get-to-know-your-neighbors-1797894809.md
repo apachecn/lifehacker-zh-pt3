@@ -1,6 +1,6 @@
 # 如何使用 Nextdoor 了解你的邻居
 
-> 原文:[https://life hacker . com/how-to-use-next door-to-know-your-neighbors-1797894809](https://lifehacker.com/how-to-use-nextdoor-to-get-to-know-your-neighbors-1797894809)
+> 原文：<https://lifehacker.com/how-to-use-nextdoor-to-get-to-know-your-neighbors-1797894809>
 
 不是所有人都很容易认识住在我们上面、下面或旁边的人。当你们只是简单地打了个招呼，就很难向邻居寻求帮助或建议。就像脸书方便与远方的朋友和家人联系一样，社交网络让你很容易与你的社区联系起来。
 

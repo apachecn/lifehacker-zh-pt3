@@ -1,6 +1,6 @@
 # 六月书友开放线程:死后还有生命吗？
 
-> 原文:[https://life hacker . com/June-book-club-open-thread-is-there-life-after-death-1827284492](https://lifehacker.com/june-book-club-open-thread-is-there-life-after-death-1827284492)
+> 原文：<https://lifehacker.com/june-book-club-open-thread-is-there-life-after-death-1827284492>
 
 欢迎您的 [六月书友](https://lifehacker.com/our-june-book-club-pick-is-1826549082) 开帖。欢迎你对玛丽·罗奇的《T4 幽灵:科学解决来世》有任何想法。请记住，这完全是为了好玩——本书涉及的许多话题(宗教、死亡、伪科学)都有争议，但是，用福克斯新闻频道评论家和民主党领导人的话说，让我们 [保持文明](https://www.cnn.com/2018/07/01/politics/civility-in-the-civil-rights-era/index.html) 。
 

@@ -1,6 +1,6 @@
 # 如何用厨房废料制作香蒜酱
 
-> 原文:[https://life hacker . com/how-to-make-pesto-from the kitchen-scrap-1797207686](https://lifehacker.com/how-to-make-pesto-from-kitchen-scraps-1797207686)
+> 原文：<https://lifehacker.com/how-to-make-pesto-from-kitchen-scraps-1797207686>
 
 就美味的免煮酱汁而言，很难胜过香蒜酱。你可以把它涂在面包上，拌在烤蔬菜上，淋在鱼上，或者用作意大利面酱。虽然它通常是由新鲜的罗勒制成，但实际上它可以由几乎任何绿色的东西制成，包括厨房废料。
 

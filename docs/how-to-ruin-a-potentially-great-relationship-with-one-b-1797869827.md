@@ -1,6 +1,6 @@
 # 如何用一个弥天大谎毁掉一段潜在的美好关系
 
-> 原文:[https://life hacker . com/how-to-ruin-a-potential-great-relationship-with-one-b-1797869827](https://lifehacker.com/how-to-ruin-a-potentially-great-relationship-with-one-b-1797869827)
+> 原文：<https://lifehacker.com/how-to-ruin-a-potentially-great-relationship-with-one-b-1797869827>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

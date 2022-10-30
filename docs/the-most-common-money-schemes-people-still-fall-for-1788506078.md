@@ -1,6 +1,6 @@
 # 人们仍会上当的最常见的理财计划
 
-> 原文:[https://life hacker . com/the-most-common-money-schemes-people-still-fall-for-1788506078](https://lifehacker.com/the-most-common-money-schemes-people-still-fall-for-1788506078)
+> 原文：<https://lifehacker.com/the-most-common-money-schemes-people-still-fall-for-1788506078>
 
 他们说每分钟都会有傻瓜诞生，但是当你把钱给他们的时候，那些见不得人的企业善于让你相信你是个天才，而不是傻瓜。许多这类机构专门针对那些希望改善财务状况的人，这无疑是雪上加霜。你知道要远离 [假国税局税吏](https://lifehacker.com/the-irs-says-tax-email-scams-are-on-the-rise-1760658895) 和尼日利亚王子，但是有一些不太明显、完全合法的骗局人们总是会上当。
 

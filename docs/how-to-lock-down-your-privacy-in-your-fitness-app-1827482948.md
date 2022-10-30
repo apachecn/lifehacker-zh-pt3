@@ -1,6 +1,6 @@
 # 如何在你的健身应用中锁定你的隐私
 
-> 原文:[https://life hacker . com/how-to-lock-down-your-privacy-in-your-fitness-app-1827482948](https://lifehacker.com/how-to-lock-down-your-privacy-in-your-fitness-app-1827482948)
+> 原文：<https://lifehacker.com/how-to-lock-down-your-privacy-in-your-fitness-app-1827482948>
 
 谁知道你上周跑哪去了？如果你注重隐私，也许只有你...还有你的跑步 app。但是我们的健身应用分享的信息往往比我们意识到的要多。Strava 应用程序和现在的极地流[已经发布了泄露潜在敏感军事地点的地图。](https://gizmodo.com/workout-data-from-fitness-app-used-to-identify-governme-1827429832) 
 

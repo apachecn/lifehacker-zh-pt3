@@ -1,6 +1,6 @@
 # 这是用于简单费用追踪的最佳 iOS 应用程序
 
-> 原文:[https://life hacker . com/this-is-the-best-the-IOs-app-for-simple-expense-tracking-1797431693](https://lifehacker.com/this-is-the-best-ios-app-for-simple-expense-tracking-1797431693)
+> 原文：<https://lifehacker.com/this-is-the-best-ios-app-for-simple-expense-tracking-1797431693>
 
 iOS:我从来都不擅长理财。但现在我即将成为一名父亲，我突然发现有必要知道这一切将走向何方。是的，有很多广受好评的预算和费用跟踪应用程序 ，比如 [Mint](http://twocents.lifehacker.com/an-intermediates-guide-to-getting-more-out-of-mint-1696389687) 和 [你需要预算(YNAB)](https://lifehacker.com/budgeting-software-showdown-mint-vs-you-need-a-budget-1764607246) 。我和妻子用前者做家庭预算，它的功能很棒——允许我们按类别查看日常支出，设置自动账单支付，跟踪我们的收入，并计划储蓄。
 

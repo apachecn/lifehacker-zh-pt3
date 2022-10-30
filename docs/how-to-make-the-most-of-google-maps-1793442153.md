@@ -1,6 +1,6 @@
 # 如何充分利用谷歌地图
 
-> 原文:[https://life hacker . com/how-to-make-the-most-of-Google-maps-1793442153](https://lifehacker.com/how-to-make-the-most-of-google-maps-1793442153)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-google-maps-1793442153>
 
 谷歌地图无疑是 Android 和 iPhone 上最好的导航应用之一，但考虑到我们大多数人在开车时使用它，很容易错过它的一些功能。无论你是谷歌地图的新手还是老手，让我们来看看充分利用它的最佳方式。
 

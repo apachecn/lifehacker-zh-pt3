@@ -1,6 +1,6 @@
 # 我是马特·伊顿，艺术家和策展人，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-matt-eaton-artist-and-curator-and-this-how-I-wo-1787168036](https://lifehacker.com/im-matt-eaton-artist-and-curator-and-this-is-how-i-wo-1787168036)
+> 原文：<https://lifehacker.com/im-matt-eaton-artist-and-curator-and-this-is-how-i-wo-1787168036>
 
 马特·伊顿 是底特律的一名艺术家——但他自己的艺术往往被放在第二位。作为 [红牛艺术之家](http://www.redbullhouseofart.com/) 的总监和策展人，Matt 是年轻、崭露头角的艺术家的倡导者，帮助他们发挥才华，推广他们的作品。
 

@@ -1,6 +1,6 @@
 # 苹果酒入门——啤酒和葡萄酒之间清爽提神的桥梁
 
-> 原文:[https://the take out . com/a-primer-on-cider-the-crisp-refresh-bridge-between-1798405219](https://thetakeout.com/a-primer-on-cider-the-crisp-refreshing-bridge-between-1798405219)
+> 原文：<https://thetakeout.com/a-primer-on-cider-the-crisp-refreshing-bridge-between-1798405219>
 
 *欢迎来到* [***饮酒之门***](https://thetakeout.com/c/gateways-to-drinkery) *，这里的*外卖*提供了我们最喜欢的酒的入门课程，以及一些关于从哪里开始饮用它们的建议。*
 

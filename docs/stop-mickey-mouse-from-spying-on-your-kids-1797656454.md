@@ -1,6 +1,6 @@
 # 阻止米老鼠偷窥你的孩子
 
-> 原文:[https://life hacker . com/stop-Mickey-mouse-from-spuring-on-your-kids-1797656454](https://lifehacker.com/stop-mickey-mouse-from-spying-on-your-kids-1797656454)
+> 原文：<https://lifehacker.com/stop-mickey-mouse-from-spying-on-your-kids-1797656454>
 
 好像它们还没有嫁接到你童年记忆的重要部分(去你的朗朗上口的经典，埃尔顿·约翰和菲尔·柯林斯)，家庭中更多屏幕的出现只意味着你的孩子有更多的鼠标。
 

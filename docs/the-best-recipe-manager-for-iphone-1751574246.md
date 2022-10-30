@@ -1,6 +1,6 @@
 # iPhone 的最佳食谱管理器
 
-> 原文:[https://life hacker . com/the-best-recipe-manager-for-iphone-1751574246](https://lifehacker.com/the-best-recipe-manager-for-iphone-1751574246)
+> 原文：<https://lifehacker.com/the-best-recipe-manager-for-iphone-1751574246>
 
 管理一大堆食谱过去就像拿出一盒索引卡一样简单。现在事情变得更聪明了，但这也意味着它们变得更复杂了。为了在你的 iPhone 上将你所有的食谱整理成一个合理的顺序，我们喜欢辣椒粉。
 

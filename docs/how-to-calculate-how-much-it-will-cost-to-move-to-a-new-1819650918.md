@@ -1,6 +1,6 @@
 # 如何计算搬到一个新城市要花多少钱
 
-> 原文:[https://life hacker . com/how-to-calculate-how-much-it-cost-to-a-new-1819650918](https://lifehacker.com/how-to-calculate-how-much-it-will-cost-to-move-to-a-new-1819650918)
+> 原文：<https://lifehacker.com/how-to-calculate-how-much-it-will-cost-to-move-to-a-new-1819650918>
 
 假设你的目标是一座新城市，你准备好打包行李，离开道奇，在这个国家的另一个地方开始新的生活。(甚至是全世界！) [摆脱道奇是昂贵的](https://lifehacker.com/moving-on-a-tight-budget-7-ways-to-save-a-ton-of-money-1654205924) ，但很容易得到一个大概的成本。
 

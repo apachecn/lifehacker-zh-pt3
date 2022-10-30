@@ -1,6 +1,6 @@
 # 如何正确地将头发向后抹油
 
-> 原文:[https://life hacker . com/how-to-grease-your-hair-back-right-1818706660](https://lifehacker.com/how-to-grease-your-hair-back-properly-1818706660)
+> 原文：<https://lifehacker.com/how-to-grease-your-hair-back-properly-1818706660>
 
 没有什么比油光光的头发更能让人想起 50 年代的风格了。如果你想让自己看起来准备好了，或者开始一段音乐，伙计们，你可以这么做。
 

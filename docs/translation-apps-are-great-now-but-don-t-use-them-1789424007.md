@@ -1,6 +1,6 @@
 # 翻译应用现在很棒，但是不要用
 
-> 原文:[https://life hacker . com/translation-apps-are-great-now-but-don-use-them-1789424007](https://lifehacker.com/translation-apps-are-great-now-but-don-t-use-them-1789424007)
+> 原文：<https://lifehacker.com/translation-apps-are-great-now-but-don-t-use-them-1789424007>
 
 由于像神经网络学习 这样花哨的新升级 [，像谷歌翻译和微软翻译这样的翻译应用比以往任何时候都好。他们可以翻译你想要的任何东西。但是你不应该在旅行的时候依靠它们。事实上，我认为你应该尽可能少地使用它们——如果要用的话。](https://lifehacker.com/what-neural-networks-artificial-intelligence-and-mach-1789259060) 
 

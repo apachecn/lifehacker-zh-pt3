@@ -1,6 +1,6 @@
 # 包装齐全的科技包
 
-> 原文:[https://lifehacker.com/the-fully-packed-tech-bag-1754988102](https://lifehacker.com/the-fully-packed-tech-bag-1754988102)
+> 原文：<https://lifehacker.com/the-fully-packed-tech-bag-1754988102>
 
 每隔一段时间，你只需要尽可能多的把科技装进你的包里。举个例子，读者本·德雷珀的包，里面有你可能需要的所有东西。
 

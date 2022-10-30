@@ -1,6 +1,6 @@
 # 为什么初为人父母者需要暂时不看新闻(以及他们应该做些什么)
 
-> 原文:[https://life hacker . com/why-new-parents-need-take-a-break-from-the-news-and-1794861319](https://lifehacker.com/why-new-parents-need-to-take-a-break-from-the-news-and-1794861319)
+> 原文：<https://lifehacker.com/why-new-parents-need-to-take-a-break-from-the-news-and-1794861319>
 
 在我的孩子出生后的几个月里，新闻循环会让我陷入焦虑和恐惧的漩涡。宾州州立大学性虐待丑闻和纽敦枪击案让我瘫痪了好几天——我在换尿布的时候哭，在浴缸里哭，在推着婴儿车走在街上哭。可能是什么(仅仅！)可怕的学龄前儿童现在变得无能为力。为了我自己的心理健康，我不得不停止阅读新闻和看社交媒体。
 

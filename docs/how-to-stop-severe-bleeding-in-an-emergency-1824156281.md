@@ -1,6 +1,6 @@
 # 如何在紧急情况下止住大出血
 
-> 原文:[https://life hacker . com/how-to-stop-severe-bleeding-in-a-emergency-1824156281](https://lifehacker.com/how-to-stop-severe-bleeding-in-an-emergency-1824156281)
+> 原文：<https://lifehacker.com/how-to-stop-severe-bleeding-in-an-emergency-1824156281>
 
 当有人受到枪伤之类的外伤时，通常不是外伤本身杀死他们，而是失血。为了纪念 [止血日](https://www.stopthebleedday.org/)(3 月 31 日)，全国各地的医院和学校都在举办紧急止血的免费课程。 [找一个离你近的](https://cms.bleedingcontrol.org/class/search) ，或者继续读下去，了解每个人都应该知道的基本知识。
 

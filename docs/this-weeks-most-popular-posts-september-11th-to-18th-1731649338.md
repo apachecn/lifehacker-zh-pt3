@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:9 月 11 日至 18 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-9 月 11 日至 18 日-1731649338](https://lifehacker.com/this-weeks-most-popular-posts-september-11th-to-18th-1731649338)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-september-11th-to-18th-1731649338>
 
 本周我们看了 iOS 9 的所有新功能，了解了患有焦虑症是什么样的，和亨特·S·汤普森一起乘坐了蝙蝠之国，等等。这里回顾一下。
 

@@ -1,6 +1,6 @@
 # 如何护理一个没有背部和颈部疼痛的婴儿
 
-> 原文:[https://life hacker . com/how-to-nurse-a baby-no-back and-neck-pain-1820445452](https://lifehacker.com/how-to-nurse-a-baby-without-back-and-neck-pain-1820445452)
+> 原文：<https://lifehacker.com/how-to-nurse-a-baby-without-back-and-neck-pain-1820445452>
 
 *这是* [*产后疼痛诊所*](https://lifehacker.com/tag/postpartum-pain-clinic) *的第五部分，这是一个关于管理新生儿和婴儿护理带来的疼痛的多部分系列。*
 

@@ -1,6 +1,6 @@
 # 使用 Hulu 应用程序的新擦洗功能，找到您正在寻找的确切视频时刻
 
-> 原文:[https://life hacker . com/find-the-exact-video-moment-you-seeing-with-the-1826197019](https://lifehacker.com/find-the-exact-video-moment-youre-looking-for-with-the-1826197019)
+> 原文：<https://lifehacker.com/find-the-exact-video-moment-youre-looking-for-with-the-1826197019>
 
 大多数在线视频播放器都有某种清除器(底部的栏可以让你跳过你正在看的任何东西)，但如果你使用智能手机，实际上试图使用该工具来找到准确的位置通常是一件麻烦事，不值得。大多数时候，你最好只是重新看你最喜欢的节目的前半部分，而不是试图从你停下的地方重新开始。
 

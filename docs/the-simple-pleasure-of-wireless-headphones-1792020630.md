@@ -1,6 +1,6 @@
 # 无线耳机的简单乐趣
 
-> 原文:[https://life hacker . com/the-simple-please-of-wireless-headphones-1792020630](https://lifehacker.com/the-simple-pleasure-of-wireless-headphones-1792020630)
+> 原文：<https://lifehacker.com/the-simple-pleasure-of-wireless-headphones-1792020630>
 
 我不是一个音响发烧友，但我确实喜欢方便。和舒适。当你只是想用耳机淹没地铁的声音，却发现自己像杂草一样被电线缠住，或者当声音被所述电线的沙沙的听诊器振动所控制时，这是非常不方便的。完全没有电线更方便。如果你也是一个方便的粉丝，也许你应该尝试一些无线蓝牙耳机。
 

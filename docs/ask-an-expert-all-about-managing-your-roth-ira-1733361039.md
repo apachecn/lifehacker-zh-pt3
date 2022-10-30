@@ -1,6 +1,6 @@
 # 问专家:关于管理你的罗斯个人退休帐户
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-managing-your-Roth-IRA-1733361039](https://lifehacker.com/ask-an-expert-all-about-managing-your-roth-ira-1733361039)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-managing-your-roth-ira-1733361039>
 
 上周 [我们了解了为什么罗斯个人退休帐户如此受欢迎](http://twocents.lifehacker.com/why-everyone-is-obsessed-with-the-roth-ira-1732437777#_ga=1.119850440.1720946729.1390842781) ，但你们中的许多人仍然对如何最好地利用自己的退休帐户有着广泛的疑问。因此，我们和来自 [华尔街](https://www.nerdwallet.com/) 的朋友们一起回来提供一些答案！
 

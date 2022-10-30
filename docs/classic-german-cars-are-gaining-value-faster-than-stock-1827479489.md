@@ -1,6 +1,6 @@
 # 报告显示，德国经典汽车的增值速度快于股票和债券
 
-> 原文:[https://jalopnik . com/classic-german-cars-be-gain-value-fast-than-stock-1827479489](https://jalopnik.com/classic-german-cars-are-gaining-value-faster-than-stock-1827479489)
+> 原文：<https://jalopnik.com/classic-german-cars-are-gaining-value-faster-than-stock-1827479489>
 
 德国南德意志银行的银行家们建议投资老式汽车，这并不难理解为什么:保时捷 911 在 13 年里增值了 683%，根据[](https://www.bloomberg.com/news/articles/2018-07-09/vintage-porsches-683-gain-fuels-returns-in-carmakers-homeland)*的说法，轻松击败了德国股票指数 DAX。其他 30 年以上的德国汽车也跑赢了德国股指。*
 

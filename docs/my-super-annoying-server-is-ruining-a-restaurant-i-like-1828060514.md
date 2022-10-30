@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:我超级讨厌的服务员正在毁掉一家我喜欢的餐厅
 
-> 原文:[https://the take out . com/my-super-angry-server-is-ruining-a-restaurant-I-like-1828060514](https://thetakeout.com/my-super-annoying-server-is-ruining-a-restaurant-i-like-1828060514)
+> 原文：<https://thetakeout.com/my-super-annoying-server-is-ruining-a-restaurant-i-like-1828060514>
 
 > 亲爱的 Salty:我们小区有一家比较新的 brewpub，我和妻子去过几次。这是一个闲逛的好地方，他们有有趣又好喝的啤酒，风景也很棒。我们遇到的问题是，有一个服务器，我们总是与谁非常不愉快结束。
 > 

@@ -1,6 +1,6 @@
 # 赠送高级应用和网络服务
 
-> 原文:[https://life hacker . com/give-the-gift-of-premium-apps-and-web-services-1741966193](https://lifehacker.com/give-the-gift-of-premium-apps-and-web-services-1741966193)
+> 原文：<https://lifehacker.com/give-the-gift-of-premium-apps-and-web-services-1741966193>
 
 订阅亚马逊 Prime 可能不是最有趣的事情，但它和许多其他优质网络服务一样，是任何人都可以欣赏的伟大礼物。这里有一些我们最喜欢的节日礼物。
 

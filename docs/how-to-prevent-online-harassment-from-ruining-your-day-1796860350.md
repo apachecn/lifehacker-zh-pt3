@@ -1,6 +1,6 @@
 # 如何防止网络骚扰影响你的生活
 
-> 原文:[https://life hacker . com/how-to-prevent-online-骚扰毁了你的一天-1796860350](https://lifehacker.com/how-to-prevent-online-harassment-from-ruining-your-day-1796860350)
+> 原文：<https://lifehacker.com/how-to-prevent-online-harassment-from-ruining-your-day-1796860350>
 
 众所周知，人们在互联网上很刻薄，如果你以任何可感知的方式在网上生活，你很可能会经历某种网上骚扰，这很可能很糟糕。然而，你可以采取一些措施来恢复元气。
 

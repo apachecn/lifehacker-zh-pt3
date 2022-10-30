@@ -1,6 +1,6 @@
 # 为什么你应该关注食物中添加的糖
 
-> 原文:[https://life hacker . com/why-you-should-care-in-your-food-1778901107](https://lifehacker.com/why-you-should-care-about-added-sugars-in-your-food-1778901107)
+> 原文：<https://lifehacker.com/why-you-should-care-about-added-sugars-in-your-food-1778901107>
 
 当新的食品标签在一两年后推出时，20 盎司的百事可乐将不得不说它含有你每日所需添加糖量的 130%。酸奶将不得不喊出它们添加的糖，所以我们不能欺骗自己说这些都来自水果。食品公司反对这种改变，但是他们失败了。
 

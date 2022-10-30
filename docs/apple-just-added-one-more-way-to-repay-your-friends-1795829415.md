@@ -1,6 +1,6 @@
 # 苹果只是增加了一种回报朋友的方式
 
-> 原文:[https://life hacker . com/apple-just-added-one-more-way to-return-your-friends-1795829415](https://lifehacker.com/apple-just-added-one-more-way-to-repay-your-friends-1795829415)
+> 原文：<https://lifehacker.com/apple-just-added-one-more-way-to-repay-your-friends-1795829415>
 
 在苹果 2017 年 WWDC 大会上，Craig Federighi(又名 Hair Force One)宣布了 Apple Pay 的一些不错的升级——这些升级使其与 Venmo、Square、脸书和谷歌直接竞争。
 

@@ -1,6 +1,6 @@
 # 做填充的馕口袋，一周都吃
 
-> 原文:[https://life hacker . com/make-filled-naan-pockets-and-eat-whole-week-1798734691](https://lifehacker.com/make-stuffed-naan-pockets-and-eat-them-all-week-1798734691)
+> 原文：<https://lifehacker.com/make-stuffed-naan-pockets-and-eat-them-all-week-1798734691>
 
 欢迎回到 [*周日寄托*](http://lifehacker.com/tag/sunday-sustenance) ，专栏重点介绍慵懒日子的简餐。我最近开始为自己做面包，这是我在厨房里经历过的最令人紧张但又最自由的经历之一。有太多可怕的失败点，当你闻到烤箱里传来的美味时，所有这些都被遗忘了。或者，在某些情况下，从烤架上。
 

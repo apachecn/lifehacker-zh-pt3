@@ -1,6 +1,6 @@
 # 谷歌移除 YouTube 应用后，如何在 Fire TV 上观看 YouTube
 
-> 原文:[https://life hacker . com/how-to-watch-YouTube-on-your-fire-TV-after-Google-remov-1821506823](https://lifehacker.com/how-to-watch-youtube-on-your-fire-tv-after-google-remov-1821506823)
+> 原文：<https://lifehacker.com/how-to-watch-youtube-on-your-fire-tv-after-google-remov-1821506823>
 
 亚马逊和谷歌在过去的几个月里一直在为而争斗，看起来两家公司不会很快达成协议。本月早些时候，谷歌宣布计划从 1 月 1 日起，从亚马逊的 [Fire TV 流媒体设备](https://lifehacker.com/how-to-control-your-fire-tv-with-alexa-voice-commands-1820886580) 中撤出其 [YouTube](https://offspring.lifehacker.com/what-are-you-going-to-do-about-youtubes-kid-videos-1820224127) 应用程序，以及 [Echo Show](https://gizmodo.com/the-amazon-echo-show-is-the-best-dumb-smart-machine-in-1796380588) 。谢天谢地，有一个解决方案在等着我们。
 

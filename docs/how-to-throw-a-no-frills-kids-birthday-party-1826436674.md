@@ -1,6 +1,6 @@
 # 如何举办一个简单的孩子生日派对
 
-> 原文:[https://life hacker . com/how-to-throw-a-non-friedly-kids-birthday-party-1826436674](https://lifehacker.com/how-to-throw-a-no-frills-kids-birthday-party-1826436674)
+> 原文：<https://lifehacker.com/how-to-throw-a-no-frills-kids-birthday-party-1826436674>
 
 你孩子的生日聚会就要到了！你想好要把宠物动物园放在哪里了吗？1000 只蝴蝶准备好放生了吗？你记得预定了孩子最喜欢的乐队，并把派对命名为[孩子的名字]-chella 吗？你*确认过*跳伞巨魔会在美人鱼激光表演后出现，对吗？
 

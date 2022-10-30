@@ -1,6 +1,6 @@
 # 颜色代码线和端口，以避免混淆
 
-> 原文:[https://life hacker . com/color-code-cords-and-ports-to-avoid-focus-1797828580](https://lifehacker.com/color-code-cords-and-ports-to-avoid-confusion-1797828580)
+> 原文：<https://lifehacker.com/color-code-cords-and-ports-to-avoid-confusion-1797828580>
 
 我承认，当我试图记住我所有的科技产品的电线在哪个插槽时，我有点沮丧。
 

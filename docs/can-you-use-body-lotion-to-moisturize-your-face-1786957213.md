@@ -1,6 +1,6 @@
 # 可以用身体乳给脸保湿吗？
 
-> 原文:[https://life hacker . com/can-you-use-body-loop-to-moisture-you-face-1786957213](https://lifehacker.com/can-you-use-body-lotion-to-moisturize-your-face-1786957213)
+> 原文：<https://lifehacker.com/can-you-use-body-lotion-to-moisturize-your-face-1786957213>
 
 我的大学室友和我有两种非常不同的护肤方法。她会在脸上抹上一些身体乳液，就像她胳膊和腿上剩下的乳液一样，直接从奶瓶中取出。同时，我用 [专用面部保湿剂](https://lifehacker.com/how-to-choose-the-best-facial-moisturizer-for-healthy-s-1786644317) 保湿。我认为她弊大于利，但她的方法并没有我想象的那么有害。
 

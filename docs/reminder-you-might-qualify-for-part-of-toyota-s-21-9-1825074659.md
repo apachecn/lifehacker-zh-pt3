@@ -1,6 +1,6 @@
 # 提醒:你可能有资格获得丰田 2190 万美元歧视和解金的一部分
 
-> 原文:[https://jalopnik . com/reminder-you-may-qualify-for-part-of-Toyota-s-21-9-1825074659](https://jalopnik.com/reminder-you-might-qualify-for-part-of-toyota-s-21-9-1825074659)
+> 原文：<https://jalopnik.com/reminder-you-might-qualify-for-part-of-toyota-s-21-9-1825074659>
 
 注意:如果你是非裔美国人、亚洲人或太平洋岛民，在 2011 年 1 月至 2016 年 8 月期间购买了一辆丰田汽车，并向丰田汽车信贷公司(Toyota Motor Credit Company)提供了贷款，你可能有权获得 2190 万美元的和解基金。
 

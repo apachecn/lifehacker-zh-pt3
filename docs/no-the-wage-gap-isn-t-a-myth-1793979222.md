@@ -1,6 +1,6 @@
 # 不，工资差距不是一个神话
 
-> 原文:[https://life hacker . com/no-the-wage-gap-not-a myth-1793979222](https://lifehacker.com/no-the-wage-gap-isn-t-a-myth-1793979222)
+> 原文：<https://lifehacker.com/no-the-wage-gap-isn-t-a-myth-1793979222>
 
 今天是同工同酬日，这一天致力于让人们意识到工资差距。自 60 年代以来，差距已经缩小，但仍有进步，尤其是考虑到反对者仍然认为差距不存在。
 

@@ -1,6 +1,6 @@
 # 破纪录的食物获胜后，20 世纪的彩色照片和三分钟的环球旅行会发生什么
 
-> 原文:[https://life hacker . com/what-happens-to-record-breaking-food-after-wins-col-1791299666](https://lifehacker.com/what-happens-to-record-breaking-food-after-it-wins-col-1791299666)
+> 原文：<https://lifehacker.com/what-happens-to-record-breaking-food-after-it-wins-col-1791299666>
 
 本周，我们将看看世界上最大的汉堡、披萨或其他创纪录的食物在创下这些纪录后会发生什么，在宇宙中快速旅行，看看世界上最早的一些生活彩色照片，并在可怕的时期保持生产力。
 

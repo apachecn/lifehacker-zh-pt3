@@ -1,6 +1,6 @@
 # 用告别仪式帮助你的孩子度过艰难的过渡期
 
-> 原文:[https://life hacker . com/help-your-tuckly-a-far-1829181419](https://lifehacker.com/help-your-toddler-through-a-tough-transition-with-a-far-1829181419)
+> 原文：<https://lifehacker.com/help-your-toddler-through-a-tough-transition-with-a-far-1829181419>
 
 当你的孩子该放下一些大事情的时候，这种挣扎是真实的。这些小暴君是日常的恶魔，放弃长期舒适的物品(或任何在沙盒中找到的旧东西)通常不容易。然而，我明白了，如果你创造一个仪式来庆祝你的小家伙的初露头角的独立，一个给他们一种目标感、自豪感和善意的仪式，这出戏将会被放弃。真的。
 

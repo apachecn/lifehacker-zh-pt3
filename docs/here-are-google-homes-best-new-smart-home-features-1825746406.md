@@ -1,6 +1,6 @@
 # 以下是 Google Home 最好的智能家居新功能
 
-> 原文:[https://life hacker . com/here-are-Google-homes-best-new-smart-home-features-1825746406](https://lifehacker.com/here-are-google-homes-best-new-smart-home-features-1825746406)
+> 原文：<https://lifehacker.com/here-are-google-homes-best-new-smart-home-features-1825746406>
 
 在家庭自动化的战斗中，亚马逊 Echo 可能已经领先了一步，但谷歌 home 正在快速追赶。谷歌 [周四](https://www.blog.google/products/assistant/turning-your-house-smart-home-google-assistant/) 宣布，其智能音箱和智能助手现在可以控制来自各大品牌的 5000 多台设备(年初为 1500 台)。
 

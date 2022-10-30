@@ -1,6 +1,6 @@
 # 使用 PlusPrivacy Chrome 扩展锁定您的社交媒体数据
 
-> 原文:[https://life hacker . com/lock-down-your-social-media-data-with-the-plus privacy-c-1823961552](https://lifehacker.com/lock-down-your-social-media-data-with-the-plusprivacy-c-1823961552)
+> 原文：<https://lifehacker.com/lock-down-your-social-media-data-with-the-plusprivacy-c-1823961552>
 
 大多数有联系的人使用至少一家主要科技公司的服务，如果不是大多数的话。虽然它们通常会让你很容易地找出你与他们和其他第三方服务共享的数据，但有时你需要一个大的红色警告标志，如 [PlusPrivacy](https://plusprivacy.com/) 。
 

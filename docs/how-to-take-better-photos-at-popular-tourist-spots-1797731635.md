@@ -1,6 +1,6 @@
 # 如何在热门旅游景点拍出更好的照片
 
-> 原文:[https://life hacker . com/how-to-take-better-photos-in-popular-tourism-spots-1797731635](https://lifehacker.com/how-to-take-better-photos-at-popular-tourist-spots-1797731635)
+> 原文：<https://lifehacker.com/how-to-take-better-photos-at-popular-tourist-spots-1797731635>
 
 你正在度假，你在一个著名的旅游景点拿出相机，每个人和他们的母亲都在那里一遍又一遍地拍摄同一张照片。你是如何让快门的每一次点击都算数的？
 

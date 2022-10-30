@@ -1,6 +1,6 @@
 # 男性如何帮助阻止工作中的性骚扰
 
-> 原文:[https://life hacker . com/how-men-can-help-stop-性骚扰-1819508163](https://lifehacker.com/how-men-can-help-stop-sexual-harassment-at-work-1819508163)
+> 原文：<https://lifehacker.com/how-men-can-help-stop-sexual-harassment-at-work-1819508163>
 
 工作场所性骚扰对女性的影响远远大于男性，但男性有责任终止这种行为。当然，除此之外，*不要骚扰女性*，我们需要为她们挺身而出，特别是(不幸的是)因为我们比受害者本身更有可能被倾听和尊重。《时尚先生》有一个关于注意、处理和报告性骚扰的 [指南](http://www.esquire.com/lifestyle/money/a12843978/how-to-stop-sexual-harassment-workplace/) ，包括如何将投诉上报给上级、人力资源甚至媒体。
 

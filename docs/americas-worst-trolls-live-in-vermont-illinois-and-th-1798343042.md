@@ -1,6 +1,6 @@
 # 美国最糟糕的巨魔住在伊利诺斯州郊区佛蒙特州和南部
 
-> 原文:[https://life hacker . com/Americas-worst-trolls-live-in-Vermont-Illinois-and-th-1798343042](https://lifehacker.com/americas-worst-trolls-live-in-vermont-illinois-and-th-1798343042)
+> 原文：<https://lifehacker.com/americas-worst-trolls-live-in-vermont-illinois-and-th-1798343042>
 
 我们这些在网上写作的人往往对标准的网络巨魔有一个非常具体的心理图像。他们典型的住所包括一个木质镶板的地下室，通常在父母家中。他们的制服是没有洗过的毛巾布，他们的皮肤是史前深海鱼的半透明白色。然而，很少被考虑的是他们实际上在这个国家的什么地方。
 

@@ -1,6 +1,6 @@
 # 在梅森罐子里烤炒鸡蛋，作为一周的便携式早餐
 
-> 原文:[https://life hacker . com/bake-scred-eggs-in-mason-jars-for-a-portable-breakf-1797783190](https://lifehacker.com/bake-scrambled-eggs-in-mason-jars-for-a-portable-breakf-1797783190)
+> 原文：<https://lifehacker.com/bake-scrambled-eggs-in-mason-jars-for-a-portable-breakf-1797783190>
 
 欢迎回到周日营养栏目，这是一个每周专栏，为平日里最懒的人提供简单美味的膳食。周日似乎是我们大多数人做早餐的一天，我们经常在一周中错过它。让我们从现在开始纠正这一点。
 

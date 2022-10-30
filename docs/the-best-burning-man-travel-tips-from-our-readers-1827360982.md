@@ -1,6 +1,6 @@
 # 来自我们读者的最佳燃烧人旅行提示
 
-> 原文:[https://life hacker . com/the-best-burning-man-travel-tips-from-our-readers-1827360982](https://lifehacker.com/the-best-burning-man-travel-tips-from-our-readers-1827360982)
+> 原文：<https://lifehacker.com/the-best-burning-man-travel-tips-from-our-readers-1827360982>
 
 本周 [Hack Your City](https://lifehacker.com/c/hack-your-city) 去了黑岩城，每年八月为火人节填满的季节性定居点。读者给出了在高温、灰尘和超负荷感觉下生存的建议。老实说，这听起来像字面上的地狱，但人们似乎在那里过得很愉快！ [阅读原帖](https://lifehacker.com/tell-us-your-burning-man-travel-tips-1827249190#_ga=2.54087336.1801715520.1530796309-1297080755.1497980211) 所有评论，或捕捉以下精彩内容。
 

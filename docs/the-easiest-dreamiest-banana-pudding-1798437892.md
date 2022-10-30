@@ -1,6 +1,6 @@
 # 最简单、最梦幻的香蕉布丁
 
-> 原文:[https://life hacker . com/the-easy-dream iest-banana-pudding-1798437892](https://lifehacker.com/the-easiest-dreamiest-banana-pudding-1798437892)
+> 原文：<https://lifehacker.com/the-easiest-dreamiest-banana-pudding-1798437892>
 
 朋友们大家好，欢迎回到 [*它会苏威吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。鉴于我们上一次的腌鱼冒险有点——我们应该说——激烈，我想我应该把这个星期献给一件稍微容易一点而且不那么多肉的东西:香蕉布丁。
 

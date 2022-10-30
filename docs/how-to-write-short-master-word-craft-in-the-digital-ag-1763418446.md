@@ -1,6 +1,6 @@
 # 如何写短篇:掌握数字时代的文字技巧
 
-> 原文:[https://life hacker . com/how-to-write-short-master-word-craft-in-the-digital-ag-1763418446](https://lifehacker.com/how-to-write-short-master-word-craft-in-the-digital-ag-1763418446)
+> 原文：<https://lifehacker.com/how-to-write-short-master-word-craft-in-the-digital-ag-1763418446>
 
 不管你认同与否，每个人都是作家。在社交网络、约会档案、博客和大多数工作的日常任务之间，写作是一项基本技能。在《如何写短篇[](http://www.amazon.com/How-Write-Short-Craft-Times/dp/0316204323/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-write-short-master-word-craft-in-the-digital-ag-1763418446&asc_source=&rawdata=[r|http://lifehacker.com/preview/how-to-write-short-master-word-craft-in-the-digital-ag-1763418446?rev=1457400583024[t|link[p|1763418446[a|0316204323[au|602884910&tag=kinjalifehackerlink-20)*一书中，作者罗伊·彼得·克拉克阐述了在我们这个科技驱动的世界里，简短写作的价值，并向你展示了如何正确写作。* 
 

@@ -1,6 +1,6 @@
 # 如果你是一个努力达到高潮的女人，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-a-woman-fights-1798420491](https://lifehacker.com/what-to-do-if-youre-a-woman-who-struggles-to-orgasm-1798420491)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-a-woman-who-struggles-to-orgasm-1798420491>
 
 几个月前，我写了一篇文章 [给与性高潮](http://lifehacker.com/what-to-do-if-youre-a-guy-who-struggles-to-orgasm-1796068634#_ga=2.56391016.2119250726.1503930417-672228682.1489692420) 斗争的男人。今天，我回来分享我对女性的建议。如果你准备好获得你的第一次高潮，或者学习如何和伴侣一起达到高潮，这是你的游戏计划。
 

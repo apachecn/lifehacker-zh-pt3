@@ -1,6 +1,6 @@
 # 你将如何品味夏天的最后一点时光？
 
-> 原文:[https://life hacker . com/how-you-shave-the-last-bit of summer-1797826590](https://lifehacker.com/how-will-you-savor-the-last-bit-of-summer-1797826590)
+> 原文：<https://lifehacker.com/how-will-you-savor-the-last-bit-of-summer-1797826590>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。夏天(很遗憾)即将结束，所以我想借此机会谈谈你最喜欢的夏季美食时刻，以及你打算如何品尝这个季节的最后一点时光。
 

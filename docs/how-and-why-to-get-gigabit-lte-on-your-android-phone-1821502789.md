@@ -1,6 +1,6 @@
 # 如何(以及为什么)在您的 Android 上获得千兆 LTE
 
-> 原文:[https://life hacker . com/how-and-why-to-get-gigabit-LTE-on-your-Android-phone-1821502789](https://lifehacker.com/how-and-why-to-get-gigabit-lte-on-your-android-phone-1821502789)
+> 原文：<https://lifehacker.com/how-and-why-to-get-gigabit-lte-on-your-android-phone-1821502789>
 
 Android:我们不断听说[【5G】](https://gizmodo.com/what-is-5g-and-how-will-it-make-my-life-better-1760847799)，这种超高速网络将取代我们目前的 [LTE](https://lifehacker.com/everything-you-need-to-know-about-4g-mobile-broadband-5706644) 服务，但与此同时，现在有一种方法可以让你的智能手机获得更快的数据传输速度。你需要的只是合适的 [安卓手机](https://lifehacker.com/heres-when-android-8-0-oreo-is-coming-to-your-current-p-1820786391#_ga=2.161611836.1405014119.1513607291-392757988.1502389723) 和高通的 [千兆 LTE](https://www.qualcomm.com/products/snapdragon/gigabit) 。
 

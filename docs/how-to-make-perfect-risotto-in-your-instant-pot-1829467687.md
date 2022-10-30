@@ -1,6 +1,6 @@
 # 如何在你的速溶锅里做出完美的意大利调味饭
 
-> 原文:[https://life hacker . com/how-to-make-perfect-in-your-instant-pot-1829467687](https://lifehacker.com/how-to-make-perfect-risotto-in-your-instant-pot-1829467687)
+> 原文：<https://lifehacker.com/how-to-make-perfect-risotto-in-your-instant-pot-1829467687>
 
 不要让它花哨的名声欺骗了你:意大利调味饭是无与伦比的垃圾餐。不管你的冰箱里有什么零碎食物，很有可能它们被埋在浸泡过肉汤的奶酪米饭里会很好吃。意大利调味饭是无限可调的，*只是*足够新奇，让你觉得特别，在你的速溶锅的帮助下，一切都不可能搞砸。
 

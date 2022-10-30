@@ -1,6 +1,6 @@
 # 如何用慢跑推车进行体面的锻炼
 
-> 原文:[https://life hacker . com/how-to-get-a 体面的用慢跑推车锻炼-1798637736](https://lifehacker.com/how-to-get-a-decent-workout-with-a-jogging-stroller-1798637736)
+> 原文：<https://lifehacker.com/how-to-get-a-decent-workout-with-a-jogging-stroller-1798637736>
 
 慢跑推车是一个令人向往的购买。你想，我在看孩子，我需要一些锻炼，我就买这个平稳滚动的婴儿车，很快，一个简单的，离家近的锻炼。
 

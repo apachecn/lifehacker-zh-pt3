@@ -1,6 +1,6 @@
 # 9 素食感恩节大餐肉食者不会讨厌(食谱不超过 100 字)
 
-> 原文:[https://the take out . com/9-素食-感恩节-sides-肉食者-习惯-憎恨-1820505879](https://thetakeout.com/9-vegetarian-thanksgiving-sides-meat-eaters-wont-hate-1820505879)
+> 原文：<https://thetakeout.com/9-vegetarian-thanksgiving-sides-meat-eaters-wont-hate-1820505879>
 
 感恩节大餐的肉非常多。鸡汤溜进土豆泥，或者抱子甘蓝蘸点培根油。你知道，即使是看起来像蔬菜的菜肴也常常含有隐蔽的成分，这使得它们成为素食者的禁区。为了寻找真正的无肉但仍然 100%美味的感恩节大餐，我们咨询了一些专家。
 

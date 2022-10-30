@@ -1,6 +1,6 @@
 # 内向者培养外向者指南
 
-> 原文:[https://life hacker . com/the-introperty-s-guide-to-raising-an-exportant-1826489237](https://lifehacker.com/the-introvert-s-guide-to-raising-an-extrovert-1826489237)
+> 原文：<https://lifehacker.com/the-introvert-s-guide-to-raising-an-extrovert-1826489237>
 
 作为一个与内向者结婚的内向者，我认为我们的儿子当然会是一个内向者。
 

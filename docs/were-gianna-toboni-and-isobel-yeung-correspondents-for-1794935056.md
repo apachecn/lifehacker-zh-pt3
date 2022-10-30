@@ -1,6 +1,6 @@
 # 我们是 Gianna Toboni 和 Isobel Yeung，HBO 的 VICE 记者，这是我们的工作方式
 
-> 原文:[https://life hacker . com/were-gianna-to boni-and-Isobel-yeung-communicator-for-1794935056](https://lifehacker.com/were-gianna-toboni-and-isobel-yeung-correspondents-for-1794935056)
+> 原文：<https://lifehacker.com/were-gianna-toboni-and-isobel-yeung-correspondents-for-1794935056>
 
 一些记者在办公桌后度过他们的职业生涯。这是一种很好的工作方式，取决于节拍，但并不适合所有人。Gianna Toboni 和 Isobel Yeung 不是这样，他们作为 HBO 的 [VICE 的记者周游世界。](http://www.hbo.com/vice) 
 

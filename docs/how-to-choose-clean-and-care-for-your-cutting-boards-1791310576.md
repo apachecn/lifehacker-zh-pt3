@@ -1,6 +1,6 @@
 # 如何选择、清洁和保养砧板
 
-> 原文:[https://life hacker . com/how-to-choose-clean-and-care-for-your-the-cutting-boards-1791310576](https://lifehacker.com/how-to-choose-clean-and-care-for-your-cutting-boards-1791310576)
+> 原文：<https://lifehacker.com/how-to-choose-clean-and-care-for-your-cutting-boards-1791310576>
 
 如果你做任何量的烹饪，你都需要切、剁、切片，这意味着你需要一个表面来进行所有的切、剁、切片。砧板有各种各样的材料，选择合适的材料会有很大的不同。
 

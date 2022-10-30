@@ -1,6 +1,6 @@
 # 如何在你的速食锅里煮一杯米饭
 
-> 原文:[https://life hacker . com/how-to-cook-a-single-cup of-rice-in-your instant-pot-1798322749](https://lifehacker.com/how-to-cook-a-single-cup-of-rice-in-your-instant-pot-1798322749)
+> 原文：<https://lifehacker.com/how-to-cook-a-single-cup-of-rice-in-your-instant-pot-1798322749>
 
 我是我的速溶锅的忠实粉丝。有了这个多功能的奇迹，我可以做出完美的可剥鸡蛋、松软的米饭和超级美味的高汤，而且我可以在很短的时间内完成。这也是一个很好的工具，可以批量生产几乎任何东西，但是，作为一个独居的人，我并不总是想要一件东西批量生产。
 

@@ -1,6 +1,6 @@
 # 它会腐烂吗？面包布丁自助早餐
 
-> 原文:[https://life hacker . com/will-it-sous-vide-a-bread-布丁-早餐-自助餐-1790166621](https://lifehacker.com/will-it-sous-vide-a-bread-pudding-breakfast-buffet-1790166621)
+> 原文：<https://lifehacker.com/will-it-sous-vide-a-bread-pudding-breakfast-buffet-1790166621>
 
 你好，我的摄影爱好者朋友们，欢迎回到温暖舒适的 [*版本，它会摄影吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

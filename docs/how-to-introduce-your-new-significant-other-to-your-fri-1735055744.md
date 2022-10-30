@@ -1,6 +1,6 @@
 # 如何向你的朋友介绍你的另一半
 
-> 原文:[https://deadspin . com/how-to-introduction-your-new-significant-other to-your-fri-1735055744](https://deadspin.com/how-to-introduce-your-new-significant-other-to-your-fri-1735055744)
+> 原文：<https://deadspin.com/how-to-introduce-your-new-significant-other-to-your-fri-1735055744>
 
 嘿，看看你！你已经和一个人约会了很长时间，而且是半认真的，是时候停止向你的朋友隐瞒他或她了。所以让我们来介绍一下。啊啊啊！有点紧张完全可以理解。这些人互相喜欢是很重要的！
 

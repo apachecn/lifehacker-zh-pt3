@@ -1,6 +1,6 @@
 # 现在是 2018 年，我实际上很关心这台喷墨打印机
 
-> 原文:[https://gizmodo . com/its-2018-and-I-really-care-this-inkjet-printer-1829280193](https://gizmodo.com/its-2018-and-i-actually-care-about-this-inkjet-printer-1829280193)
+> 原文：<https://gizmodo.com/its-2018-and-i-actually-care-about-this-inkjet-printer-1829280193>
 
 惠普 Tango X，一款小巧的家用打印机，实际上非常酷。不，现在不是 1999 年，我也不会在我妈妈厨房角落里的 Gateway 台式机上写这篇文章。这真的是一个令人兴奋的喷墨打印机。说实话。我发誓！
 

@@ -1,6 +1,6 @@
 # 如何应对悲伤
 
-> 原文:[https://lifehacker.com/how-to-cope-with-grief-1828258625](https://lifehacker.com/how-to-cope-with-grief-1828258625)
+> 原文：<https://lifehacker.com/how-to-cope-with-grief-1828258625>
 
 许多人想知道如何与正在经历损失的人交谈，如何最好地给予支持，以及如何恰当地表示哀悼。但是当悲伤袭击你的时候，它不仅是痛苦的，而且在一系列新的情绪中导航是极其困难的。
 

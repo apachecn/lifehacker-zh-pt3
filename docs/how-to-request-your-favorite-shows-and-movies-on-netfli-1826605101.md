@@ -1,6 +1,6 @@
 # 如何在网飞上点播你最喜欢的节目和电影
 
-> 原文:[https://life hacker . com/how-to-request-your favorite-shows-and-movies-on-netfli-1826605101](https://lifehacker.com/how-to-request-your-favorite-shows-and-movies-on-netfli-1826605101)
+> 原文：<https://lifehacker.com/how-to-request-your-favorite-shows-and-movies-on-netfli-1826605101>
 
 新闻本周一直在传播网飞秘密请求功能，该功能允许用户建议当前无法流媒体播放的电影和电视节目。请求页面隐藏在网飞帮助中心，这可能是大多数用户之前不知道它的原因。
 

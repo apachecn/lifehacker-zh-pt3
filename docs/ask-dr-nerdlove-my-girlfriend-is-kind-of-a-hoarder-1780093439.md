@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我的女朋友是一个囤积者
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-a-kind-of-a-a-囤积者-1780093439](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-is-kind-of-a-hoarder-1780093439)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-is-kind-of-a-hoarder-1780093439>
 
 大家好，欢迎来到 [向 NerdLove 博士](http://kotaku.com/askdrnerdlove) 咨询，约会建议专栏提供了你最新关系更新的补丁说明。
 

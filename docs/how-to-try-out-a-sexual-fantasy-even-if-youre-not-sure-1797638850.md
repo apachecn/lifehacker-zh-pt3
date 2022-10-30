@@ -1,6 +1,6 @@
 # 如何尝试性幻想——即使你不确定你会喜欢它
 
-> 原文:[https://life hacker . com/how-to-try-out-a-sexual-fantasy-even-if-you-not-certain-1797638850](https://lifehacker.com/how-to-try-out-a-sexual-fantasy-even-if-youre-not-sure-1797638850)
+> 原文：<https://lifehacker.com/how-to-try-out-a-sexual-fantasy-even-if-youre-not-sure-1797638850>
 
 幻想有许多不同的强度。有些是如此引人注目，你必须采取行动。但其他幻想属于另一类:激起你的好奇心，但也让你有点紧张的幻想。也许这是一个萦绕在你脑海深处的幻想，你不确定你是否想要实现它。也可能是某个合作伙伴提出了你之前没有想到的东西。当你的感觉不是很强烈时，很难知道你是否应该尝试一下。
 

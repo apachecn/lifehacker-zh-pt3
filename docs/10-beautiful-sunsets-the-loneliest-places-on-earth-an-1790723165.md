@@ -1,6 +1,6 @@
 # 10 个美丽的日落，地球上最孤独的地方，以及互联网如何穿越海洋
 
-> 原文:[https://life hacker . com/10-beautiful-sunsets-the-lonely-places-on-earth-1790723165](https://lifehacker.com/10-beautiful-sunsets-the-loneliest-places-on-earth-an-1790723165)
+> 原文：<https://lifehacker.com/10-beautiful-sunsets-the-loneliest-places-on-earth-an-1790723165>
 
 本周我们将盘点 10 个你绝对应该去看看的美丽日落，谈论互联网如何跨越整个海洋并让你保持联系，看看你能远离任何其他人多远，等等。
 

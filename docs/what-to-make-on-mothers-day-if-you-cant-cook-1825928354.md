@@ -1,6 +1,6 @@
 # 母亲节不会做饭做什么
 
-> 原文:[https://life hacker . com/1825928354](https://lifehacker.com/what-to-make-on-mothers-day-if-you-cant-cook-1825928354)
+> 原文：<https://lifehacker.com/what-to-make-on-mothers-day-if-you-cant-cook-1825928354>
 
 母亲节很快就要到了，随之而来的是对为你生命中的母亲形象精心准备的某种早午餐的期待。如果你是那种拥有一颗伟大的心却没有真正的厨房技能的后代/伴侣，不要担心，你仍然可以在自己舒适的家里为妈妈做一顿美味的早餐。
 

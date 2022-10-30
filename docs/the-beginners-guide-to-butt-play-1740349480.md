@@ -1,6 +1,6 @@
 # 屁股游戏初学者指南
 
-> 原文:[https://life hacker . com/the-beginners-guide-to-butt-play-1740349480](https://lifehacker.com/the-beginners-guide-to-butt-play-1740349480)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-butt-play-1740349480>
 
 你有一个屁股，但是(嘿)你可能会忽略它。你的屁股有能力体验令人瞠目结舌的快感，所以是时候抛开你对肛门探索的任何负面反应了。无论你是否被禁忌所阻碍，对疼痛感到紧张，或者只是不理解这种吸引力，我们都在这里说服你为什么你的屁股值得呵护。
 

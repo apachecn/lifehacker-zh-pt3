@@ -1,6 +1,6 @@
 # 如何回收和捐赠你剩余的日蚀眼镜
 
-> 原文:[https://life hacker . com/how-to-recycle-and-捐出你剩余的 eclipse-glasses-1798226149](https://lifehacker.com/how-to-recycle-and-donate-your-leftover-eclipse-glasses-1798226149)
+> 原文：<https://lifehacker.com/how-to-recycle-and-donate-your-leftover-eclipse-glasses-1798226149>
 
 现在日食已经结束，你下一次拿出那副性感的纸眼镜将是 2024 年。与其把它们扔进垃圾桶或用来进一步塞满你的抽屉，不如这样处理你的眼镜
 

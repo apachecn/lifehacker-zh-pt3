@@ -1,6 +1,6 @@
 # 嗨的时候看什么
 
-> 原文:[https://life hacker . com/what-to-watch-when-you-high-1827831634](https://lifehacker.com/what-to-watch-when-youre-high-1827831634)
+> 原文：<https://lifehacker.com/what-to-watch-when-youre-high-1827831634>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-m_0qHRwU_sQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-m_0qHRwU_sQ&start=0) 
 

@@ -1,6 +1,6 @@
 # 2018 年 9 月 3 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-septemb-1828648971](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1828648971)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1828648971>
 
 *黑豹。*周二。如果你还需要别的东西看的话， [*【次世代】*](http://www.netflix.com/title/80988892)*(9 月 7 日星期五)，一部由约翰·卡拉辛斯基、杰森·苏戴奇斯和查琳·易主演的动画电影《机器人大战恶霸》看起来很有趣。它的口号是“友谊是最终的升级”，刚刚得到 AirPods 的我对此有异议——但这部电影可能还是不错的。* 
 

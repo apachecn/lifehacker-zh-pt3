@@ -1,6 +1,6 @@
 # 哦，克拉姆，所有忠实的朋友们:美国人应该采纳的 7 个全球圣诞食物传统
 
-> 原文:[https://the take out . com/o-crumb-all-ye-faithful-7-global-Christmas-food-tradi-1798255544](https://thetakeout.com/o-crumb-all-ye-faithful-7-global-christmas-food-tradi-1798255544)
+> 原文：<https://thetakeout.com/o-crumb-all-ye-faithful-7-global-christmas-food-tradi-1798255544>
 
 某些菜肴是美国圣诞餐桌上必不可少的——火腿、土豆泥、馅饼、姜饼。但为什么不是婴儿背排骨呢？捣碎的虾？为什么没有圣诞辣椒面？
 

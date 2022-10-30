@@ -1,6 +1,6 @@
 # 奶酪蛋黄酱是你需要做的调味品
 
-> 原文:[https://life hacker . com/cheese-mayo-is-the-sorcing-you-need-to-make-1827517234](https://lifehacker.com/cheese-mayo-is-the-condiment-you-need-to-make-1827517234)
+> 原文：<https://lifehacker.com/cheese-mayo-is-the-condiment-you-need-to-make-1827517234>
 
 说到汉堡，我更喜欢简单的东西。一个薄薄的碎馅饼，一个融化的奶酪，可能还有一点洋葱，西红柿和泡菜。我不需要煎蛋、鳄梨或超厚培根。然而，我非常喜欢奶酪蛋黄酱的想法，坦率地说，它进一步简化了我已经很简单的汉堡。
 

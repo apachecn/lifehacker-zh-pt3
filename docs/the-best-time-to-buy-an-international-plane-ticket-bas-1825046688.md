@@ -1,6 +1,6 @@
 # 买国际机票的最佳时机，基于 100 万机票
 
-> 原文:[https://life hacker . com/the-best-time-to-buy-a-international-fly-ticket-bas-1825046688](https://lifehacker.com/the-best-time-to-buy-an-international-plane-ticket-bas-1825046688)
+> 原文：<https://lifehacker.com/the-best-time-to-buy-an-international-plane-ticket-bas-1825046688>
 
 上周末我们分享了[CheapAir.com](http://CheapAir.com)的 2018 年机票研究结果。在的研究中 it [查看了 9.17 亿张不同的机票](https://lifehacker.com/the-best-time-to-buy-fights-based-on-917-million-airfa-1824233023) 并做出一些决定，如果你想得到一笔好交易，什么时候是购买的“正确”时间。
 

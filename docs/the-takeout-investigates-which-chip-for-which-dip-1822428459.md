@@ -1,6 +1,6 @@
 # 外卖调查:哪个芯片适合哪个蘸料？
 
-> 原文:[https://the take out . com/the-take out-investigations-which-chip-for-which-dip-1822428459](https://thetakeout.com/the-takeout-investigates-which-chip-for-which-dip-1822428459)
+> 原文：<https://thetakeout.com/the-takeout-investigates-which-chip-for-which-dip-1822428459>
 
 一些作者在这篇文章的开头会说，对于你喜欢哪种筹码，没有什么规则可言。但是那些作者可能错了。当然有规则。
 

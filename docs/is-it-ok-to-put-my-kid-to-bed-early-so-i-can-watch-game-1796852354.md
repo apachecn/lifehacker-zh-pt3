@@ -1,6 +1,6 @@
 # 为了看《权力的游戏》,可以让我的孩子早点睡觉吗？
 
-> 原文:[https://life hacker . com/is-it-ok-to-put-my-kid-to-bed-so-I-can-watch-game-1796852354](https://lifehacker.com/is-it-ok-to-put-my-kid-to-bed-early-so-i-can-watch-game-1796852354)
+> 原文：<https://lifehacker.com/is-it-ok-to-put-my-kid-to-bed-early-so-i-can-watch-game-1796852354>
 
 *《权力的游戏》*周日回归。你已经有了做 [乌鸦老式](https://www.buzzfeed.com/emmacooke24/drink-like-a-khaleesi?utm_term=.cbdyNB8vl#.uwAg3z2X1) 的配料，你的一碗 [巨狼周](http://www.songofspiceandfire.com/2013/05/dire-wolf-chow.html) 的零食，还有你的谁想杀谁的家人以及出于什么原因的小抄。现在你所需要的就是让你的孩子去睡觉，这样你就可以发现冬天带来了什么。
 

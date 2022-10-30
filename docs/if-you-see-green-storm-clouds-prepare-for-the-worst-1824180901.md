@@ -1,6 +1,6 @@
 # 如果你看到绿色的风暴云，做好最坏的打算
 
-> 原文:[https://life hacker . com/if-you-see-green-storm-clouds-prepare-for the worst-1824180901](https://lifehacker.com/if-you-see-green-storm-clouds-prepare-for-the-worst-1824180901)
+> 原文：<https://lifehacker.com/if-you-see-green-storm-clouds-prepare-for-the-worst-1824180901>
 
 你看到那边绿色翻滚的风暴云了吗？那些是坏的。不是因为你会被带到某个讨厌的音乐世界——不，因为那些云意味着风暴特别讨厌和危险。这甚至可能意味着龙卷风即将来临。
 

@@ -1,6 +1,6 @@
 # 壁挂式工作空间
 
-> 原文:[https://life hacker . com/the-wall-mounted-workspace-1785810872](https://lifehacker.com/the-wall-mounted-workspace-1785810872)
+> 原文：<https://lifehacker.com/the-wall-mounted-workspace-1785810872>
 
 Alex 的工作空间之所以引人注目，不仅仅是因为他有一个非常漂亮的超宽办公桌和一张宽敞的办公桌，还因为所有东西都是壁挂式的。显示器安装在一堵隔墙上，电缆在后面，到处都是斜向照明，是的，他的电脑也安装在墙上，在一个丙烯酸的盒子里。
 

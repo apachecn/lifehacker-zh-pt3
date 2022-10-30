@@ -1,6 +1,6 @@
 # 完美的温度是 74 度
 
-> 原文:[https://Jezebel . com/the-perfect-temperature-is-74 degrees-1827572516](https://jezebel.com/the-perfect-temperature-is-74-degrees-1827572516)
+> 原文：<https://jezebel.com/the-perfect-temperature-is-74-degrees-1827572516>
 
 一切都是愚蠢的，我们也是。欢迎来到 [*耶洗别有史以来最愚蠢的夏天*](https://jezebel.com/tag/jezebels-stupidest-summer-ever) *，这是一个长达一季的庆典，庆祝我们最糟糕、最白痴的想法和观点。*
 

@@ -1,6 +1,6 @@
 # 我们最喜欢的省钱吃法
 
-> 原文:[https://life hacker . com/our-favor-ways-to-eat-cheap-1827026121](https://lifehacker.com/our-favorite-ways-to-eat-cheaply-1827026121)
+> 原文：<https://lifehacker.com/our-favorite-ways-to-eat-cheaply-1827026121>
 
 吃是活在身体里不可避免的一个方面，而且可能很贵。在这里，我们总结了我们最喜欢的更便宜的烹饪、饮食甚至饮料的方式，但看不到花生酱和果冻三明治(尽管这些都很好)。
 

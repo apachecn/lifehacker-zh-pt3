@@ -1,6 +1,6 @@
 # 公开求婚前要考虑什么
 
-> 原文:[https://life hacker . com/1829259242](https://lifehacker.com/what-to-consider-before-proposing-in-public-1829259242)
+> 原文：<https://lifehacker.com/what-to-consider-before-proposing-in-public-1829259242>
 
 如果你已经在计划一个惊喜的公开提议，你可能会陷得太深，不知道这可能不是一个好主意。然而，如果你愿意暂停，也许在安排快闪舞会之前，先看一下这个清单。
 

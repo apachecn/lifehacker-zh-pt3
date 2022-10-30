@@ -1,6 +1,6 @@
 # OS X El Capitan 中的绝密功能
 
-> 原文:[https://life hacker . com/top-secret-features-in-OS-x-El-capitan-1733413916](https://lifehacker.com/top-secret-features-in-os-x-el-capitan-1733413916)
+> 原文：<https://lifehacker.com/top-secret-features-in-os-x-el-capitan-1733413916>
 
 OS X El Capitan 没有很多标志性的功能，这意味着大多数很酷的东西都在引擎盖下。让我们来看看一些鲜为人知的特性。
 

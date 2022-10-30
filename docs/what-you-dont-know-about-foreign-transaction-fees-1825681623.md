@@ -1,6 +1,6 @@
 # 你不知道的国外交易费
 
-> 原文:[https://life hacker . com/what-you-not-know-about-foreign-transaction-fees-1825681623](https://lifehacker.com/what-you-dont-know-about-foreign-transaction-fees-1825681623)
+> 原文：<https://lifehacker.com/what-you-dont-know-about-foreign-transaction-fees-1825681623>
 
 根据个人理财网站 WalletHub 进行的一项调查 ，超过一半的信用卡持有者不知道他们的信用卡是否收取国外交易费。这可能是一个代价高昂的错误。
 

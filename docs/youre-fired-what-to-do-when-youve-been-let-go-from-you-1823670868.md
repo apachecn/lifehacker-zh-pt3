@@ -1,6 +1,6 @@
 # 你被解雇了！当你被解雇时该做什么
 
-> 原文:[https://www . the root . com/you-fired-what-do when-you-have-go-from-you 1823670868](https://www.theroot.com/youre-fired-what-to-do-when-youve-been-let-go-from-you-1823670868)
+> 原文：<https://www.theroot.com/youre-fired-what-to-do-when-youve-been-let-go-from-you-1823670868>
 
 上周，有人告诉我，我的职位正在被取消。这是过去两年中第二次发生这种情况。第一次，是在非常不同的情况下；老实说，从一个给我带来真正的情感和精神压力的工作中解脱出来是一种解脱。这一次，在闷闷不乐了一天之后，我只能问:“好吧，宇宙，下一步是什么？”
 

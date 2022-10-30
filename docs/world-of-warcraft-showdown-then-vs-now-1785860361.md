@@ -1,6 +1,6 @@
 # 魔兽世界对决:那时对现在
 
-> 原文:[https://life hacker . com/world-of-war craft-down-then-now-1785860361](https://lifehacker.com/world-of-warcraft-showdown-then-vs-now-1785860361)
+> 原文：<https://lifehacker.com/world-of-warcraft-showdown-then-vs-now-1785860361>
 
 *魔兽世界*最新资料片 [*军团*](http://us.battle.net/wow/en/legion/) 本周二滴。这款游戏在 2004 年为 MMORPGs 设定了标准，并为现代 MMO 搭建了舞台。它的用户数量已经动摇，但是大多数游戏仍然希望他们能有一点点 WoW 的成功..今天，我们来看看这个游戏是如何随着时间的推移而演变的，以及它是如何与它以前的影子相叠加的。
 

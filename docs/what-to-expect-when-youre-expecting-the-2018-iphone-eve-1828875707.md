@@ -1,6 +1,6 @@
 # 当你期待 2018 年的 iPhone 发布会时会期待什么[更新]
 
-> 原文:[https://gizmodo . com/what-to-expect-when-you-expect-the-2018-iphone-eve-1828875707](https://gizmodo.com/what-to-expect-when-youre-expecting-the-2018-iphone-eve-1828875707)
+> 原文：<https://gizmodo.com/what-to-expect-when-youre-expecting-the-2018-iphone-eve-1828875707>
 
 在不到一周的时间里，一群狂热的灵魂将涌入苹果公司位于库比蒂诺园区的史蒂夫·乔布斯剧院，观看蒂姆·库克和他的朋友们宣布...*某事*。现在是 9 月份，可以肯定的是 iPhone 将会是其中之一。但是苹果公司还会有什么样的 iPhones 和其他产品呢？
 

@@ -1,6 +1,6 @@
 # 这些在线服务提供不看医生的节育服务
 
-> 原文:[https://life hacker . com/these-online-services-offer-节育-无访-1790510793](https://lifehacker.com/these-online-services-offer-birth-control-without-visit-1790510793)
+> 原文：<https://lifehacker.com/these-online-services-offer-birth-control-without-visit-1790510793>
 
 如果你服用避孕药，并且厌倦了仅仅为了获得处方配药的批准而去看医生，或者你想开始但找不到你信任的医生，有一个更好的方法。这些应用和网站是你的后盾。
 

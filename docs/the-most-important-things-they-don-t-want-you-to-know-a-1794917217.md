@@ -1,6 +1,6 @@
 # 关于医疗保健法案，他们不想让你知道的最重要的事情
 
-> 原文:[https://life hacker . com/the-most-the-important-things-they-want-to-know-a-1794917217](https://lifehacker.com/the-most-important-things-they-don-t-want-you-to-know-a-1794917217)
+> 原文：<https://lifehacker.com/the-most-important-things-they-don-t-want-you-to-know-a-1794917217>
 
 早上好！还记得那个糟糕透顶的医疗保健法案吗？甚至那些为废除 ACA 而奔走的人都无法通过它。 [又回来了](https://lifehacker.com/trumpcare-is-back-1794665414) ，今天又到期投票了。
 

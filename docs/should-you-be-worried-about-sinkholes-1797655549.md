@@ -1,6 +1,6 @@
 # 你应该担心天坑吗？
 
-> 原文:[https://life hacker . com/should-you-should-should-1797655549](https://lifehacker.com/should-you-be-worried-about-sinkholes-1797655549)
+> 原文：<https://lifehacker.com/should-you-be-worried-about-sinkholes-1797655549>
 
 佛罗里达州目前有一个饥饿的天坑，在过去的一个月里吞噬了七户人家——这是过去 30 年来最大的一次。这是一个令人不安的景象，但是你到底应该担心多少呢？
 

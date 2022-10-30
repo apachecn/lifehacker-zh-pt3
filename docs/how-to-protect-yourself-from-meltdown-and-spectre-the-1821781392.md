@@ -1,6 +1,6 @@
 # 如何保护自己免受 Meltdown 和 Spectre(最新的处理器安全缺陷)的影响
 
-> 原文:[https://life hacker . com/how-to-protect-yourself-meltdown-and-spectre-the-1821781392](https://lifehacker.com/how-to-protect-yourself-from-meltdown-and-spectre-the-1821781392)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-meltdown-and-spectre-the-1821781392>
 
 几乎你所有的设备中都有一对安全漏洞，这可能会让黑客窃取密码和其他个人信息。Spectre 和 Meltdown 这两个漏洞利用了设备微处理器设计中的实际缺陷。你的电脑、智能手机和其他设备可能会在未来几年受到影响或变慢，但在找到长期解决方案的同时，公司已经提供了补丁，至少可以部分保护你免受眼前的威胁。
 

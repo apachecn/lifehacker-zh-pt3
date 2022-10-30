@@ -1,6 +1,6 @@
 # 无人机的白天外出包
 
-> 原文:[https://lifehacker.com/the-drones-day-out-bag-1761977014](https://lifehacker.com/the-drones-day-out-bag-1761977014)
+> 原文：<https://lifehacker.com/the-drones-day-out-bag-1761977014>
 
 玩无人机很有趣，但仅仅因为它有趣并不意味着你不应该做好准备。读者 Uthor 分享了他们在玩四轴飞行器时随身携带的包。
 

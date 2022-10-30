@@ -1,6 +1,6 @@
 # 2018 年春季推出的每一款大型游戏
 
-> 原文:[https://kotaku . com/every-big-game-out-in-spring-2018-1823956886](https://kotaku.com/every-big-game-coming-out-in-spring-2018-1823956886)
+> 原文：<https://kotaku.com/every-big-game-coming-out-in-spring-2018-1823956886>
 
 春天来了，是从积压的冬眠中走出来，玩一些新的电子游戏的最佳时间。这是本季最大的几款。
 

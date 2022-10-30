@@ -1,6 +1,6 @@
 # 用这些锻炼工具和小玩意来赠送健身的礼物
 
-> 原文:[https://life hacker . com/give-the-give-gift-of-fitness with-these-working-tools-and-g-1742334240](https://lifehacker.com/give-the-gift-of-fitness-with-these-workout-tools-and-g-1742334240)
+> 原文：<https://lifehacker.com/give-the-gift-of-fitness-with-these-workout-tools-and-g-1742334240>
 
 无论你是去健身房、小径还是在路上，一些精心挑选的配件可以让你的锻炼变得很好，也很棒。这里有一些我们最喜欢的礼物送给你生活中的运动员。
 

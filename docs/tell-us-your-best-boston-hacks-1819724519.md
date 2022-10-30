@@ -1,6 +1,6 @@
 # 告诉我们你最好的波士顿黑客
 
-> 原文:[https://life hacker . com/tell-us-your-best-Boston-hacks-1819724519](https://lifehacker.com/tell-us-your-best-boston-hacks-1819724519)
+> 原文：<https://lifehacker.com/tell-us-your-best-boston-hacks-1819724519>
 
 波士顿是新英格兰的砖砌心脏，居住着大学势利者、口音浓重的城里人、殖民时代王朝的后裔、咄咄逼人的司机、更咄咄逼人的棒球迷，以及我肯定没有从谷歌搜索“波士顿刻板印象”中找到的其他人。它渗透着美国的传统；用阿伦·索尔金的话说，它比它所在的国家还要古老，它用它所有的建筑、街道和街区的名字来提醒你这一点。东北恶劣的气候可以使人变得冷酷无情，也可以让他们团结起来对抗恶劣天气。
 

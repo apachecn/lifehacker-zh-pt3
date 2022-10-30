@@ -1,6 +1,6 @@
 # 远程监控他人电脑的三种方法
 
-> 原文:[https://life hacker . com/three-way-to-remote-monitor-someone-else-computer-1739406855](https://lifehacker.com/three-ways-to-remotely-monitor-someone-elses-computer-1739406855)
+> 原文：<https://lifehacker.com/three-ways-to-remotely-monitor-someone-elses-computer-1739406855>
 
 偷窥别人的电脑是不好的。就像“进监狱”一样糟糕。然而，也有一些非常有限的例外，比如监视你的孩子或员工。如果你属于这一类(或者只是想知道有人可能是如何监视你的)，这里有一些方法。
 

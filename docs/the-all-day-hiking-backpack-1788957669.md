@@ -1,6 +1,6 @@
 # 全天徒步旅行背包
 
-> 原文:[https://life hacker . com/the-all-day-hicking-backpack-1788957669](https://lifehacker.com/the-all-day-hiking-backpack-1788957669)
+> 原文：<https://lifehacker.com/the-all-day-hiking-backpack-1788957669>
 
 今天要长途跋涉吗？Pack Config 与我们分享了一份装载清单，其中包含了您长途跋涉所需的一切。
 

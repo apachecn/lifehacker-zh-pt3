@@ -1,6 +1,6 @@
 # 如果你只喝啤酒，最好的葡萄酒是什么
 
-> 原文:[https://life hacker . com/the-best-wines-to-drink-if-you-only-drink-beer-1829445467](https://lifehacker.com/the-best-wines-to-drink-if-you-only-drink-beer-1829445467)
+> 原文：<https://lifehacker.com/the-best-wines-to-drink-if-you-only-drink-beer-1829445467>
 
 啤酒。人们喜欢喝它。
 

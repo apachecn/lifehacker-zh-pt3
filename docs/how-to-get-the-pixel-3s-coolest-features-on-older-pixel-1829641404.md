@@ -1,6 +1,6 @@
 # 如何在旧的 Pixel 型号上获得 Pixel 3 最酷的功能
 
-> 原文:[https://life hacker . com/how-to-get-the-pixel-3s-cool-features-on-older-pixel-1829641404](https://lifehacker.com/how-to-get-the-pixel-3s-coolest-features-on-older-pixel-1829641404)
+> 原文：<https://lifehacker.com/how-to-get-the-pixel-3s-coolest-features-on-older-pixel-1829641404>
 
 经过数周的传言，谷歌正式推出了像素 3 和像素 3 T2 T3 XL，不出所料，它们在 T4 配备了新功能和硬件，这不仅使它们比谷歌过去的像素智能手机有了明显的升级，也比他们的许多竞争对手有了明显的升级。
 

@@ -1,6 +1,6 @@
 # 用这个技巧悄悄地关上酒店的门
 
-> 原文:[https://life hacker . com/use-this-trick-to-close-a-hotel-door-quiet-1828439471](https://lifehacker.com/use-this-trick-to-close-a-hotel-door-quietly-1828439471)
+> 原文：<https://lifehacker.com/use-this-trick-to-close-a-hotel-door-quietly-1828439471>
 
 当我旅行时，我通常喜欢在外面呆到很晚，早上尽可能多睡一会儿。另一方面，我的男朋友喜欢在早上 7 点起床，开始新的一天。当我真正醒来的时候，他已经有时间吃早餐，探索酒店周围的区域，并舒适地在他的笔记本电脑上等待我最终加入生活。
 

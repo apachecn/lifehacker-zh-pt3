@@ -1,6 +1,6 @@
 # 这些又冷又辣的面条会抚慰你出汗的灵魂
 
-> 原文:[https://life hacker . com/these-cold-spiral-noodles-would-抚慰你出汗的灵魂-1827369037](https://lifehacker.com/these-cold-spicy-noodles-will-soothe-your-sweaty-soul-1827369037)
+> 原文：<https://lifehacker.com/these-cold-spicy-noodles-will-soothe-your-sweaty-soul-1827369037>
 
 对我来说，夏天就是辣花生面的代名词，自从我被允许自己做意大利面以来，每年夏天我都会做这种面条。我如此爱它们，以至于它们几乎让我觉得忍受恶劣的潮湿闷热是值得的。差不多了。
 

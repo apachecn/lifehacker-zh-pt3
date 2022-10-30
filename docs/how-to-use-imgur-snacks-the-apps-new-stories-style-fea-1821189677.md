@@ -1,6 +1,6 @@
 # 如何使用 Imgur 零食，该应用程序的新故事风格的功能
 
-> 原文:[https://life hacker . com/how-to-use-imgur-snacks-the-apps-new-stories-style-FEA-1821189677](https://lifehacker.com/how-to-use-imgur-snacks-the-apps-new-stories-style-fea-1821189677)
+> 原文：<https://lifehacker.com/how-to-use-imgur-snacks-the-apps-new-stories-style-fea-1821189677>
 
 [Snapchat](https://vitals.lifehacker.com/out-of-control-plastic-surgeons-snapchat-hijinks-are-pu-1819113914) 也许发明了故事格式，但没多久互联网的其他人 [就抢走了这个创意](https://lifehacker.com/instagram-stories-apes-snapchat-lets-you-draw-stuff-on-1784704876#_ga=2.151982137.1834116780.1512924647-1167719708.1504278915) 。现在，就连 Imgur，这个最初为 Reddit 提供图片托管服务的 meme haven，也推出了一个名为 [小吃](https://blog.imgur.com/2017/12/06/discover-the-magic-of-the-internet-on-imgur/) 的新功能，来呈现自己的故事。
 

@@ -1,6 +1,6 @@
 # 我在一个偏僻的地方上大学！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-go-to-college-in-the-middle-out-of-what-car-shou-1827359595](https://jalopnik.com/i-go-to-college-in-the-middle-of-nowhere-what-car-shou-1827359595)
+> 原文：<https://jalopnik.com/i-go-to-college-in-the-middle-of-nowhere-what-car-shou-1827359595>
 
 虽然一些大学生在校园里不需要汽车，但伊玛妮去的学校相当偏僻，她需要一辆车来帮助她四处走动，并帮助她享受其他一些活动。她应该买什么车？
 

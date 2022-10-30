@@ -1,6 +1,6 @@
 # 你被分手最乱的一次是什么时候？
 
-> 原文:[https://life hacker . com/what-the-messy-time-you ' s-hacked-1822992314](https://lifehacker.com/whats-the-messiest-time-youve-been-broken-up-with-1822992314)
+> 原文：<https://lifehacker.com/whats-the-messiest-time-youve-been-broken-up-with-1822992314>
 
 今天是 2 月 14 日，一个为爱而生的日子， [晚饭前做爱](https://lifehacker.com/if-your-valentines-plans-include-sex-and-dinner-do-the-1822800140) ，纸红心和 [火锅为两个](https://skillet.lifehacker.com/the-easiest-way-to-make-cheese-and-chocolate-fondue-for-1822965466) 。这是一个下班后奔向霍尔马克的日子，因为你又忘记给你的女朋友买贺卡了，这是一个和朋友们一起为你永远的单身状态表示同情的日子。也许这是你忽略的一天。对一些人来说，这是心碎和痛苦的一天，特别是如果你正在从最近的分手中恢复过来。
 

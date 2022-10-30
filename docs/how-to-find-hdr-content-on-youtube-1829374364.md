@@ -1,6 +1,6 @@
 # 如何在 YouTube 上找到 HDR 的内容
 
-> 原文:[https://life hacker . com/how-to-find-HDR-content-on-YouTube-1829374364](https://lifehacker.com/how-to-find-hdr-content-on-youtube-1829374364)
+> 原文：<https://lifehacker.com/how-to-find-hdr-content-on-youtube-1829374364>
 
 iPhone XS 和 XS Max 是最新支持 Youtube 上高动态范围(HDR)视频的设备，这对那些拥有这两款设备的人来说是个好消息。如果您不熟悉 HDR，它是一种具有扩展对比度的视频格式，与非 HDR(标准动态范围，或 SDR)视频相比，它使颜色更准确、更鲜艳。
 

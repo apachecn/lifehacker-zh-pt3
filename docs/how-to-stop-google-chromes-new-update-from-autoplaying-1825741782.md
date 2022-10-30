@@ -1,6 +1,6 @@
 # 如何阻止谷歌 Chrome 新更新自动播放视频
 
-> 原文:[https://life hacker . com/how-to-stop-Google-chromes-new-update-from-autoplay-1825741782](https://lifehacker.com/how-to-stop-google-chromes-new-update-from-autoplaying-1825741782)
+> 原文：<https://lifehacker.com/how-to-stop-google-chromes-new-update-from-autoplaying-1825741782>
 
 所以你刚刚安装了谷歌 Chrome，或者你已经清空了你的缓存和历史记录，因为你想在你的电脑上节省一些空间或者修复一些涉及 cookies 的网站问题。你打开你最喜欢的网站，突然，一个声音从你的扬声器里响起。可怕的自动播放视频回来了。
 

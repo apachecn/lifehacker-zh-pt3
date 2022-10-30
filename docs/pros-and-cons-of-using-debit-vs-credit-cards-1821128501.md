@@ -1,6 +1,6 @@
 # 信用卡和借记卡的利弊
 
-> 原文:[https://life hacker . com/使用借记卡与信用卡的利弊-1821128501](https://lifehacker.com/pros-and-cons-of-using-debit-vs-credit-cards-1821128501)
+> 原文：<https://lifehacker.com/pros-and-cons-of-using-debit-vs-credit-cards-1821128501>
 
 根据 Chime 2015 年的一份报告，近 70%的千禧一代 [更喜欢借记卡而不是信用卡](https://www.chimebank.com/2015/10/01/2015-millennial-money-mindset-report/) ，而 Transunion [报告称](https://www.creditcards.com/credit-card-news/transunion-millennials-gen-xers-card-study.php) 他们比老一代人拥有更少的银行发行的和私人标签卡。
 

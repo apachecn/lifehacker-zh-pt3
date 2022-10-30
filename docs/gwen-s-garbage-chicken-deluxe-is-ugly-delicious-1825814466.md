@@ -1,6 +1,6 @@
 # 格温的垃圾鸡豪华版丑的好吃
 
-> 原文:[https://the take out . com/Gwen-s-garbage-chicken-deluxe-is-ugly-delicious-1825814466](https://thetakeout.com/gwen-s-garbage-chicken-deluxe-is-ugly-delicious-1825814466)
+> 原文：<https://thetakeout.com/gwen-s-garbage-chicken-deluxe-is-ugly-delicious-1825814466>
 
 我不喜欢太多的电器，但我绝对喜欢我的炖锅。老实说，我曾经有点害怕它， [*这就是我们-* 风格](https://thetakeout.com/will-a-crockpot-kill-this-is-us-beloved-jack-1822417678#_ga=2.170452324.550687182.1525656153-700931794.1510626867) ，直到相当多的无火灾事件的使用使我相信，拥抱瓦罐生活不会失去什么，反而会得到一切。这在孩子们小的时候特别有用:我可以在早上第一件事就是把辣椒或炖肉之类的晚餐扔进魔法器具。一整天，我都会像老的轻松广告中的女士一样，挥动着网球拍，微笑着说，“我在清理我的烤箱！”除了我的是，“我在做晚饭！”当我清扫玩具或最终让孩子们睡午觉时。我从未对它有过任何幻想，就像那种带计时器的大家伙；我的瓦罐在塔吉特百货打折时卖 25 美元。
 

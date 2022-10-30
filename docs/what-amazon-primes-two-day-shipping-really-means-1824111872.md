@@ -1,6 +1,6 @@
 # 亚马逊 Prime 的“两天发货”到底意味着什么
 
-> 原文:[https://life hacker . com/what-Amazon-primes-two-day-shipping-really-means-1824111872](https://lifehacker.com/what-amazon-primes-two-day-shipping-really-means-1824111872)
+> 原文：<https://lifehacker.com/what-amazon-primes-two-day-shipping-really-means-1824111872>
 
 Amazon Prime 的两天免费送货是一笔不错的交易，但这并不意味着你会在订购两天后收到订单。迷茫？我也是，我最近的库存订单花了将近一个星期才到我手里。
 

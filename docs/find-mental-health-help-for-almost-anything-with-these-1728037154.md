@@ -1,6 +1,6 @@
 # 通过这些热线和团体，几乎可以找到任何精神健康方面的帮助
 
-> 原文:[https://life hacker . com/find-mental-health-help-for-almost-everything-things-1728037154](https://lifehacker.com/find-mental-health-help-for-almost-anything-with-these-1728037154)
+> 原文：<https://lifehacker.com/find-mental-health-help-for-almost-anything-with-these-1728037154>
 
 如果你认为自己有心理健康问题，但不准备 [去找治疗师](http://lifehacker.com/how-do-i-select-a-therapist-or-counselor-5874359) (或者不确定你的 [保险是否涵盖一个](http://lifehacker.com/how-to-tell-if-your-health-insurance-covers-mental-heal-1625153418) )，一个开始寻求帮助的好地方是互助小组或热线。
 

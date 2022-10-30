@@ -1,6 +1,6 @@
 # 不要让你的职业缺点在工作中阻碍你
 
-> 原文:[https://life hacker . com/don-let-your-professional-defenses-hold-you-back-a-1784474462](https://lifehacker.com/dont-let-your-professional-shortcomings-hold-you-back-a-1784474462)
+> 原文：<https://lifehacker.com/dont-let-your-professional-shortcomings-hold-you-back-a-1784474462>
 
 你在职业生涯中走得越远，就越难发现——然后采取措施——你个人和职业上的缺点。这是为什么呢？你如何找出自己的弱点，然后解决它们？
 

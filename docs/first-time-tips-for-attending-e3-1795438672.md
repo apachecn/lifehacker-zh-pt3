@@ -1,6 +1,6 @@
 # 参加 E3 的第一时间提示
 
-> 原文:[https://kotaku . com/first-time-tips-for-attending-E3-1795438672](https://kotaku.com/first-time-tips-for-attending-e3-1795438672)
+> 原文：<https://kotaku.com/first-time-tips-for-attending-e3-1795438672>
 
 上周，我收到一封来自一位名叫本的读者的电子邮件。“我只是想知道你和你的团队对今年首次前往 E3 的人有什么建议，因为它现在对公众开放，”本写道。“有什么注意事项吗？他们会分发大量的赃物吗？任何提示将不胜感激！我超级兴奋，超级紧张！我一直梦想着能去那里！”
 

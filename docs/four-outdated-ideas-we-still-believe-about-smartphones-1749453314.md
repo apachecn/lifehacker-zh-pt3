@@ -1,6 +1,6 @@
 # 广告商仍在推销智能手机的四个过时想法
 
-> 原文:[https://life hacker . com/four-outsided-ideas-we-been-believe-on-smart phones-1749453314](https://lifehacker.com/four-outdated-ideas-we-still-believe-about-smartphones-1749453314)
+> 原文：<https://lifehacker.com/four-outdated-ideas-we-still-believe-about-smartphones-1749453314>
 
 有时候，广告商是误导人的。这是他们的工作。一开始只是一个小小的误导，让你去买东西，最终会像滚雪球一样变成一个无处不在的神话，以至于我们都认为它是真的。以下是你对智能手机的一些看法，没有其他原因，仅仅是因为营销主管认为这是一个好主意。
 

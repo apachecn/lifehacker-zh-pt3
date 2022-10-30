@@ -1,6 +1,6 @@
 # 大年三十 11:58 玩什么开始 2018 年的小康吧
 
-> 原文:[https://life hacker . com/what-to-play-at-11-58-new-years-eve-to-start-2018-off-r-1821586066](https://lifehacker.com/what-to-play-at-11-58-new-years-eve-to-start-2018-off-r-1821586066)
+> 原文：<https://lifehacker.com/what-to-play-at-11-58-new-years-eve-to-start-2018-off-r-1821586066>
 
 从 10 倒数开始新的一年是 ***所以*** 2016。相反，今年为什么不用一些稍微不同的东西来倒数 2017 年的最后时刻…比如一部电影。
 

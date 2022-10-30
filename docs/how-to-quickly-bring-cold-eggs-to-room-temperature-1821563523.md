@@ -1,6 +1,6 @@
 # 如何快速将冷鸡蛋带至室温
 
-> 原文:[https://life hacker . com/how-to-quick-bring-cold-eggs-to-room-temperature-1821563523](https://lifehacker.com/how-to-quickly-bring-cold-eggs-to-room-temperature-1821563523)
+> 原文：<https://lifehacker.com/how-to-quickly-bring-cold-eggs-to-room-temperature-1821563523>
 
 很多食谱都要求食材处于室温——你可能已经掌握了快速软化黄油的艺术，但是当你的鸡蛋在冰箱里冷藏，你准备烘烤，而你的食谱希望它们处于室温时，你该怎么办？
 

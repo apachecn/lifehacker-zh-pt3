@@ -1,6 +1,6 @@
 # 如何直播今晚的 NCAA 冠军赛
 
-> 原文:[https://life hacker . com/how-to-stream-tonights-NCAA-championship-game-1824266257](https://lifehacker.com/how-to-stream-tonights-ncaa-championship-game-1824266257)
+> 原文：<https://lifehacker.com/how-to-stream-tonights-ncaa-championship-game-1824266257>
 
 今晚比利亚诺瓦队将和密西根队争夺 NCAA 冠军。比赛于 TBS 时间晚 9:20ET/晚 6:20PT 正式开始。
 

@@ -1,6 +1,6 @@
 # 阿波罗让 Reddit 对 iOS 用户来说很美
 
-> 原文:[https://life hacker . com/Apollo-makes-Reddit-beautiful-for-IOs-users-1828712487](https://lifehacker.com/apollo-makes-reddit-beautiful-for-ios-users-1828712487)
+> 原文：<https://lifehacker.com/apollo-makes-reddit-beautiful-for-ios-users-1828712487>
 
 克里斯蒂安·塞利格创造了 [阿波罗](https://itunes.apple.com/app/id979274575) ，这是一款苹果公司自己也能想象出来的优雅的 iOS 版 Reddit 应用。设计很漂亮，可用性也是顶尖的(而且比 [Reddit 的官方 app](https://itunes.apple.com/us/app/reddit-trending-news/id1064216828?mt=8) 好多了)。它甚至为你所有的夜间 meme 发布和 [GIF 观看](https://www.reddit.com/r/AnimalsBeingJerks/) 提供了一个黑暗模式。
 

@@ -1,6 +1,6 @@
 # 不要因为脸书的股票下跌而恐慌
 
-> 原文:[https://life hacker . com/don-panic-because-of-face books-drop-1827916186](https://lifehacker.com/dont-panic-because-of-facebooks-drop-1827916186)
+> 原文：<https://lifehacker.com/dont-panic-because-of-facebooks-drop-1827916186>
 
 周四，脸书的股票 [下跌了 19%](https://www.cnbc.com/2018/07/26/facebook-on-pace-for-biggest-one-day-loss-in-value-for-any-company-sin.html)，该公司告诉投资者，在 [剑桥分析](https://gizmodo.com/inside-cambridge-analytica-few-knew-how-soon-the-end-w-1825863109) 违规事件之后，用户增长放缓，这是目前困扰这家科技巨头的众多丑闻之一(它也没有达到收入预期)。这 19%的跌幅相当于市值减少了 1190 亿美元，据彭博报道，“这是美国上市公司有史以来最大的单日市值损失”。
 

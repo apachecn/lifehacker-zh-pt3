@@ -1,6 +1,6 @@
 # 一个普通人的基本手机指南，这个夏天最热门的小玩意
 
-> 原文:[https://gizmodo . com/a-normal-persons-guide-to-the-essential-phone-the-most-1797961321](https://gizmodo.com/a-normal-persons-guide-to-the-essential-phone-the-most-1797961321)
+> 原文：<https://gizmodo.com/a-normal-persons-guide-to-the-essential-phone-the-most-1797961321>
 
 在智能手机的世界里，人们怀着对 Kendrick Lamar 专辑的崇敬，焦急地期待着这款必不可少的手机。为什么？安卓的创造者安迪·鲁宾是整件事的幕后黑手。2014 年抛弃谷歌后，鲁宾 [跑去开面包店](https://www.yelp.com/biz/voyageur-du-temps-los-altos) (YUM！)，但他回到了小玩意的世界，以“ [给智能手机](https://www.essential.com/blog/why-I-started-essential) 重新注入激情，不管这意味着什么。它甚至还没有推出，人们就称他的新设备 [为反 iPhone](http://gizmodo.com/preview/essential-phone-a-normal-persons-guide-to-the-most-hyp-1797961321?rev=1503022930531) 。
 

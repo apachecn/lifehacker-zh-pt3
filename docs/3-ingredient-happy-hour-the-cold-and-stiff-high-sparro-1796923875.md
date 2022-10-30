@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:冰冷僵硬的高麻雀
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-cold-and-stiff-high-sparro-1796923875](https://lifehacker.com/3-ingredient-happy-hour-the-cold-and-stiff-high-sparro-1796923875)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-cold-and-stiff-high-sparro-1796923875>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们在为一个非常紧张的节目的季首播做准备，这个节目就是*权力的游戏*。
 

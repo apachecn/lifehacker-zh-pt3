@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下播放 NCAA 周日选集
 
-> 原文:[https://life hacker . com/how-to-stream-the-ncaas-selection-Sunday-without-cable-1823683681](https://lifehacker.com/how-to-stream-the-ncaas-selection-sunday-without-cable-1823683681)
+> 原文：<https://lifehacker.com/how-to-stream-the-ncaas-selection-sunday-without-cable-1823683681>
 
 今天是选择日！今晚，将有 68 支队伍参加今年的三月疯狂锦标赛，为我们所有人铺平道路，开始策划如何填写周一早上办公室游泳池的括号。
 

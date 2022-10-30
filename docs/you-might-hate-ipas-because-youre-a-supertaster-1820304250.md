@@ -1,6 +1,6 @@
 # 你可能讨厌 IPAs，因为你是一个超级味觉者
 
-> 原文:[https://life hacker . com/you-may-hate-IPAS-因为你是超级大师-1820304250](https://lifehacker.com/you-might-hate-ipas-because-youre-a-supertaster-1820304250)
+> 原文：<https://lifehacker.com/you-might-hate-ipas-because-youre-a-supertaster-1820304250>
 
 许多人喜欢在漫长的一周后痛饮几杯像印度淡色啤酒这样的啤酒，但超级味觉者却不喜欢。事实上，他们根本无法忍受啤酒的味道。如果这听起来很熟悉，你自己可能也是一个超级高手。
 

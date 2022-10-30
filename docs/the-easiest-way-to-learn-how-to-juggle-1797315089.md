@@ -1,6 +1,6 @@
 # 学习变戏法最简单的方法
 
-> 原文:[https://life hacker . com/the-easy-way-to-learn-how-to-杂耍-1797315089](https://lifehacker.com/the-easiest-way-to-learn-how-to-juggle-1797315089)
+> 原文：<https://lifehacker.com/the-easiest-way-to-learn-how-to-juggle-1797315089>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OiVSDqT7nNw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OiVSDqT7nNw&start=0) 
 

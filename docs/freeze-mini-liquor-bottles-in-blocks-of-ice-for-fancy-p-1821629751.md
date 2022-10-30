@@ -1,6 +1,6 @@
 # 将迷你酒瓶放入冰块中冷冻，以备派对时享用
 
-> 原文:[https://life hacker . com/freeze-mini-liquid-bottles-in-blocks-of-ice-for-fancy-p-1821629751](https://lifehacker.com/freeze-mini-liquor-bottles-in-blocks-of-ice-for-fancy-p-1821629751)
+> 原文：<https://lifehacker.com/freeze-mini-liquor-bottles-in-blocks-of-ice-for-fancy-p-1821629751>
 
 新年前夜是纵情畅饮的时间，没有什么比分发小瓶烈酒更特别的了，这些小瓶烈酒冻在适合柯林斯酒杯的冰块里。这是一个非常“酒瓶服务”的派对把戏，执行起来也没那么难。
 

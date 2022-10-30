@@ -1,6 +1,6 @@
 # 维基解密刚刚公布了大量所谓的中情局黑客文件
 
-> 原文:[https://gizmodo . com/Wikileaks-刚刚抛弃了一吨所谓的中情局黑客-docu-1793042726](https://gizmodo.com/wikileaks-just-dumped-a-ton-of-alleged-cia-hacking-docu-1793042726)
+> 原文：<https://gizmodo.com/wikileaks-just-dumped-a-ton-of-alleged-cia-hacking-docu-1793042726>
 
 又来了，胶鞋。维基解密称，他们获得了大量中情局文件 ，这些文件与中情局的网络战努力有关。维基解密声称，其中的信息揭示了秘密的中情局黑客工具，可以接管 iPhones，Android 手机，电视和几乎任何类型的计算机。这很可怕——如果你相信维基解密所说的是真的。
 

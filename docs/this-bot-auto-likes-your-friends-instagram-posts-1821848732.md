@@ -1,6 +1,6 @@
 # 这个机器人会自动喜欢你朋友的 Instagram 帖子
 
-> 原文:[https://life hacker . com/this-bot-auto-likes-your-friends-insta gram-posts-1821848732](https://lifehacker.com/this-bot-auto-likes-your-friends-instagram-posts-1821848732)
+> 原文：<https://lifehacker.com/this-bot-auto-likes-your-friends-instagram-posts-1821848732>
 
 我白天会发一些微博，我的男朋友几乎总是第一个给我发赞，有时在我发消息的第二秒，赞的通知就出现了。
 

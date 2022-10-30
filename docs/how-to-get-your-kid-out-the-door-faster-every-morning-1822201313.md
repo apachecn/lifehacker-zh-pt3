@@ -1,6 +1,6 @@
 # 如何让你的孩子每天早上更快出门
 
-> 原文:[https://life hacker . com/how-to-get-your kid-out-of-child-fast-each-1822201313](https://lifehacker.com/how-to-get-your-kid-out-the-door-faster-every-morning-1822201313)
+> 原文：<https://lifehacker.com/how-to-get-your-kid-out-the-door-faster-every-morning-1822201313>
 
 早上让孩子们出门有两种方式:他们早起然后磨蹭，迫使他们在最后一分钟争抢；或者他们晚起，迫使他们在最后一分钟争抢。我知道很少有人能准时、平静地到达学校或日托所——也许是那些开始时间晚、通勤路程短的人？但在上周我们家一次特别壮观的晚起聚会(晚起、早餐一次吃一块面包屑、无所事事、忘记带背包)之后，我决定四处寻找一些节省时间的小窍门。这里有七个:
 

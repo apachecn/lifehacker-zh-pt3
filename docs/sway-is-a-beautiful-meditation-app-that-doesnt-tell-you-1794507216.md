@@ -1,6 +1,6 @@
 # Sway 是一个漂亮的冥想应用，它不会告诉你该想什么
 
-> 原文:[https://life hacker . com/sway-is-a-beautiful-mostation-app-that-not-tell-you-1794507216](https://lifehacker.com/sway-is-a-beautiful-meditation-app-that-doesnt-tell-you-1794507216)
+> 原文：<https://lifehacker.com/sway-is-a-beautiful-meditation-app-that-doesnt-tell-you-1794507216>
 
 如果一个冥想应用没有要求你专注于你的呼吸会怎么样？如果你不必听别人的声音告诉你该想什么，那会怎么样？一款新的冥想应用 Sway 采用了不同的方法。
 

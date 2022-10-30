@@ -1,6 +1,6 @@
 # 使用“警官”来保持商务会议的主题
 
-> 原文:[https://life hacker . com/use-a-police-officer-to-keep-business-meetings-on-topic-1826353422](https://lifehacker.com/use-a-police-officer-to-keep-business-meetings-on-topic-1826353422)
+> 原文：<https://lifehacker.com/use-a-police-officer-to-keep-business-meetings-on-topic-1826353422>
 
 当你在开工作会议时，被邀请的人越多，整个事情就越容易偏离轨道，这就是为什么每次会议都需要一个会议“警察”来保持话题。
 

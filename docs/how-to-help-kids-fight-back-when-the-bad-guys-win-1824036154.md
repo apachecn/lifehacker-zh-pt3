@@ -1,6 +1,6 @@
 # 当坏人获胜时，如何帮助孩子们反击
 
-> 原文:[https://life hacker . com/how-to-help-kids-fight-back-when-the-bad-goods-win-1824036154](https://lifehacker.com/how-to-help-kids-fight-back-when-the-bad-guys-win-1824036154)
+> 原文：<https://lifehacker.com/how-to-help-kids-fight-back-when-the-bad-guys-win-1824036154>
 
 在超级碗橄榄球赛中爱国者队击败猎鹰队的那天，我们举行了我儿子的四岁生日聚会。众所周知，那天 [坏人赢了](https://deadspin.com/tom-brady-seals-status-as-greatest-player-ever-as-natio-1792027725) 。我儿子吃了巧克力蛋糕，所以派对没有被毁了。尽管如此，他还是时不时地提起这件事。我的孩子并不独特。一次又一次，研究表明，无论是在我们的记忆中还是此时此地，人们都强调消极而不是积极。
 

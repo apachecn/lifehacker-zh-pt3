@@ -1,6 +1,6 @@
 # 我成为 984 女童子军两届饼干销量冠军的秘密
 
-> 原文:[https://the take out . com/my-secret-to-being-the-2-time-top-cookie-seller-of-g-1822090446](https://thetakeout.com/my-secret-to-becoming-the-2-time-top-cookie-seller-of-g-1822090446)
+> 原文：<https://thetakeout.com/my-secret-to-becoming-the-2-time-top-cookie-seller-of-g-1822090446>
 
 我不擅长卖东西。
 

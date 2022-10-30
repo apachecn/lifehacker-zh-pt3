@@ -1,6 +1,6 @@
 # 侧栏主屏幕
 
-> 原文:[https://lifehacker.com/the-side-bar-home-screen-1739494778](https://lifehacker.com/the-side-bar-home-screen-1739494778)
+> 原文：<https://lifehacker.com/the-side-bar-home-screen-1739494778>
 
 大多数主屏幕都是简单的图标页面，但很少冒险使用手势。这种设计有明亮、生动的小部件，在屏幕左侧有滑入式侧边栏。
 

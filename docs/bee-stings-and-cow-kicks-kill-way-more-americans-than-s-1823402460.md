@@ -1,6 +1,6 @@
 # 蜜蜂蜇伤和牛踢伤杀死的美国人比鲨鱼还多
 
-> 原文:[https://gizmodo . com/bee-stings-and-cow-kicks-way-than-s-1823402460](https://gizmodo.com/bee-stings-and-cow-kicks-kill-way-more-americans-than-s-1823402460)
+> 原文：<https://gizmodo.com/bee-stings-and-cow-kicks-kill-way-more-americans-than-s-1823402460>
 
 根据的一项新研究，美国每年约有 200 人死于与动物的偶遇，该研究发现，每年超过 100 万次的急诊室就诊和大约 20 亿美元的医疗支出可归因于与问题动物的偶遇。
 

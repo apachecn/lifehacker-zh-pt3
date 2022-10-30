@@ -1,6 +1,6 @@
 # 如何在假期得到一个任天堂 Switch
 
-> 原文:[https://life hacker . com/how-to-get-a-Nintendo-switch-in-time for the holidays-1810378288](https://lifehacker.com/how-to-get-a-nintendo-switch-in-time-for-the-holidays-1810378288)
+> 原文：<https://lifehacker.com/how-to-get-a-nintendo-switch-in-time-for-the-holidays-1810378288>
 
 尽管任天堂 Switch 早在三月份就上市了，但它们仍在疯狂销售，几乎找不到。如果你希望在假期前得到一个，这里是你需要知道的。
 

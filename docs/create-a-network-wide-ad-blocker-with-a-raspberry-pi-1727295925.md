@@ -1,6 +1,6 @@
 # 用树莓派创建一个网络广告拦截器
 
-> 原文:[https://life hacker . com/create-a-network-wide-blocker-with-a-raspberry-pi-1727295925](https://lifehacker.com/create-a-network-wide-ad-blocker-with-a-raspberry-pi-1727295925)
+> 原文：<https://lifehacker.com/create-a-network-wide-ad-blocker-with-a-raspberry-pi-1727295925>
 
 你有在电脑上屏蔽广告的软件，但如果你想屏蔽所有设备上的广告——从智能手机到平板电脑——你需要更强大的软件。进入 Pi-Hole，这是一个树莓 Pi 图像，可以在路由器级别阻止各种广告。
 

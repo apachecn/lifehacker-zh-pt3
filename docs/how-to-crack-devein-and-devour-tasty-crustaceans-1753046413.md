@@ -1,6 +1,6 @@
 # 如何打破，开膛，吞食美味的甲壳类动物
 
-> 原文:[https://life hacker . com/how-to-crack-devein-and-吞吃-美味-甲壳类动物-1753046413](https://lifehacker.com/how-to-crack-devein-and-devour-tasty-crustaceans-1753046413)
+> 原文：<https://lifehacker.com/how-to-crack-devein-and-devour-tasty-crustaceans-1753046413>
 
 我喜欢甲壳类动物。龙虾、对虾、螃蟹和小龙虾是我们美丽的海洋中最美味的食物，但所有这些贝壳和腿会让它们变得令人生畏。知道如何吃它们是一项重要的技能，我们收集了一些最好的教程来教你。
 

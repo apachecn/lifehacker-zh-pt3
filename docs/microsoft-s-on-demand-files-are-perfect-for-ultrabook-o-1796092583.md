@@ -1,6 +1,6 @@
 # 微软的按需文件非常适合超极本所有者、存储吝啬者
 
-> 原文:[https://life hacker . com/Microsoft-s-on-demand-files-is-perfect-for-ultra book-o-1796092583](https://lifehacker.com/microsoft-s-on-demand-files-are-perfect-for-ultrabook-o-1796092583)
+> 原文：<https://lifehacker.com/microsoft-s-on-demand-files-are-perfect-for-ultrabook-o-1796092583>
 
 微软的文件同步功能进一步模糊了本地存储和云存储之间的区别，让你可以像对待离线文件一样对待在线文件。
 

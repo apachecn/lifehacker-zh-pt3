@@ -1,6 +1,6 @@
 # 著名作家的最佳生产力习惯
 
-> 原文:[https://life hacker . com/the-best-productivity-habits-of-named-writers-1787729922](https://lifehacker.com/the-best-productivity-habits-of-famous-writers-1787729922)
+> 原文：<https://lifehacker.com/the-best-productivity-habits-of-famous-writers-1787729922>
 
 与我们浪漫化的观念相反，作家不会整天无所事事，喝着咖啡和苏格兰威士忌，等待灵感的出现。像任何其他工作一样，他们必须遵守纪律，富有成效。虽然那需要大量的咖啡，但也需要努力工作。以下是一些著名作家是如何埋头苦干的。
 

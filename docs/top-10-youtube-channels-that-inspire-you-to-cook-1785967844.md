@@ -1,6 +1,6 @@
 # 激发你烹饪灵感的十大 YouTube 频道
 
-> 原文:[https://life hacker . com/top-10-YouTube-channels-the-inspire-you-to-cook-1785967844](https://lifehacker.com/top-10-youtube-channels-that-inspire-you-to-cook-1785967844)
+> 原文：<https://lifehacker.com/top-10-youtube-channels-that-inspire-you-to-cook-1785967844>
 
 我看 YouTube 就像很多人看电视一样。我也喜欢烹饪节目，所以本周我把这两个节目放在一起分享一些很棒的 YouTube 频道，它们将帮助你走进厨房，做出美味的食物。
 

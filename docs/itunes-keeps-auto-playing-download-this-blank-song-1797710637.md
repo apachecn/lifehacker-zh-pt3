@@ -1,6 +1,6 @@
 # iTunes 保持自动播放？下载这首空白歌曲
 
-> 原文:[https://life hacker . com/itunes-keeps-auto-playing-download-this-blank-song-1797710637](https://lifehacker.com/itunes-keeps-auto-playing-download-this-blank-song-1797710637)
+> 原文：<https://lifehacker.com/itunes-keeps-auto-playing-download-this-blank-song-1797710637>
 
 iTunes 用户都知道，每当你把手机插到车里，或者无所事事地按下播放键时，那种令人恼火的感觉:你的曲库里的第一首歌开始播放，感觉不太像音乐，更像闹钟，你赶紧把它关掉。然后你就再也不想扮演阿黛尔或者艾比路或者“没有阳光”iTunes 毒害了你的思想。
 

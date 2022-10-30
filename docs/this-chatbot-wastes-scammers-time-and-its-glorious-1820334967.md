@@ -1,6 +1,6 @@
 # 这个聊天机器人浪费骗子的时间，很光荣
 
-> 原文:[https://life hacker . com/this-chatbot-wastes-scammers-time-and-its-glorious-1820334967](https://lifehacker.com/this-chatbot-wastes-scammers-time-and-its-glorious-1820334967)
+> 原文：<https://lifehacker.com/this-chatbot-wastes-scammers-time-and-its-glorious-1820334967>
 
 在某个时候，我们都曾被一个尼日利亚王子、失散多年的叔叔或某个无法获得银行账户的家伙联系过，并承诺如果我们只进行一次小额电汇，明早我们的账户就会有数百万。
 

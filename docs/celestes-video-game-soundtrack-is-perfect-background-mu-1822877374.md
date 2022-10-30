@@ -1,6 +1,6 @@
 # 塞莱斯特的视频游戏配乐是完成工作的完美背景音乐
 
-> 原文:[https://life hacker . com/celestes-video-game-soundtrack-is-perfect-background-mu-1822877374](https://lifehacker.com/celestes-video-game-soundtrack-is-perfect-background-mu-1822877374)
+> 原文：<https://lifehacker.com/celestes-video-game-soundtrack-is-perfect-background-mu-1822877374>
 
 有一种 [的流行理论](https://lifehacker.com/the-best-music-to-work-or-study-to-could-be-video-game-1542298206#_ga=2.191941290.1863304622.1517840759-830867226.1510769673) 认为，当你需要工作或学习时，视频游戏的配乐会成为很棒的 [背景音乐](https://lifehacker.com/deepfocus-mixes-ambient-background-noise-with-music-1791191454#_ga=2.191941290.1863304622.1517840759-830867226.1510769673) 。这个想法是，音乐旨在激励你而不分散你的注意力，但事实并非总是如此。许多视频游戏的配乐可能会过头，令人讨厌，或者只是很糟糕——然后还有 [Celeste](https://kotaku.com/celeste-the-kotaku-review-1822420606) 。
 

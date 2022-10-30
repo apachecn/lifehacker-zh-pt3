@@ -1,6 +1,6 @@
 # 如何变得更坚强，幸存者的莱斯·斯特劳德
 
-> 原文:[https://life hacker . com/how-to-be-tough-with survivor mans-les-stroud-1829447402](https://lifehacker.com/how-to-be-tougher-with-survivormans-les-stroud-1829447402)
+> 原文：<https://lifehacker.com/how-to-be-tougher-with-survivormans-les-stroud-1829447402>
 
 本周我们和热播电视剧《幸存者》的创作者和主演 [莱斯·斯特劳德](http://www.lesstroud.ca/) 聊聊爱丽丝和专职作家尼克·道格拉斯与莱斯谈论了如何成为生存专家，以及他发现几乎不可能忍受的生存的一个方面。我们的老朋友，离婚律师 [詹姆斯·j·塞克斯顿](https://lifehacker.com/how-to-save-your-relationship-with-divorce-lawyer-jame-1825292713) 也加入了我们。詹姆斯告诉了我们发展厚脸皮的五个步骤——也就是情感上的。另外，一个新的部分！
 

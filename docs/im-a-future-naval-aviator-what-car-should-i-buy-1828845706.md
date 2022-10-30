@@ -1,6 +1,6 @@
 # 我是未来的海军飞行员！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-a-future-naval-aviator-what-car-should-I-buy-1828845706](https://jalopnik.com/im-a-future-naval-aviator-what-car-should-i-buy-1828845706)
+> 原文：<https://jalopnik.com/im-a-future-naval-aviator-what-car-should-i-buy-1828845706>
 
 米奇(没有照片)将加入海军，成为一名军官，最终成为一名飞行员。很自然，他需要速度，但也想要 25，000 美元左右的户外探险用品。他应该买什么车？
 

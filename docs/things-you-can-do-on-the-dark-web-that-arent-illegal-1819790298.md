@@ -1,6 +1,6 @@
 # 你可以在黑暗网络上做的不违法的事情
 
-> 原文:[https://life hacker . com/things-you-can-do-on-the-dark-web-than-parent-launch-1819790298](https://lifehacker.com/things-you-can-do-on-the-dark-web-that-arent-illegal-1819790298)
+> 原文：<https://lifehacker.com/things-you-can-do-on-the-dark-web-that-arent-illegal-1819790298>
 
 [暗网](http://fieldguide.gizmodo.com/how-to-search-the-deep-web-safely-1770828854) 不仅仅是为了 [购买毒品和雇佣刺客](https://www.businessinsider.com.au/tor-silk-road-deep-web-2013-3#the-hidden-wiki-catalogs-several-tor-sites-that-would-otherwise-be-impossible-to-find-it-shows-you-a-number-of-sites-claiming-to-offer-things-for-sale-both-legal-and-illegal-1) 。这是一个存在于主流互联网文化之外的庞大的网站和社区网络，在不违反任何法律的情况下，黑暗网络上有很多事情可以做——从读书俱乐部到危机准备。
 

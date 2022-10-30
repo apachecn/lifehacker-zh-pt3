@@ -1,6 +1,6 @@
 # 用数学的力量构建完美的疯狂三月支架
 
-> 原文:[https://life hacker . com/build-the-perfect-March-madness-bracket-with-the-power-1764736543](https://lifehacker.com/build-the-perfect-march-madness-bracket-with-the-power-1764736543)
+> 原文：<https://lifehacker.com/build-the-perfect-march-madness-bracket-with-the-power-1764736543>
 
 NCAA 刚刚发布了 [官方三月疯狂锦标赛括号](http://www.ncaa.com/interactive-bracket/basketball-men/d1) ，唯一将你与完美括号分开的是一点数学驱动的逻辑。是时候赢得办公室赌局了。
 

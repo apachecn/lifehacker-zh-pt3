@@ -1,6 +1,6 @@
 # 短途旅行包
 
-> 原文:[https://lifehacker.com/the-short-hike-bag-1788663354](https://lifehacker.com/the-short-hike-bag-1788663354)
+> 原文：<https://lifehacker.com/the-short-hike-bag-1788663354>
 
 在森林里进行一次短暂的旅行并不需要太多的准备，但是你还是不想空手而归。《每日随身携带》的读者 Ben's go back 让他需要的所有东西都变得触手可及，随时随地都可以拿到。
 

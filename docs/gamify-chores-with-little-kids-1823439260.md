@@ -1,6 +1,6 @@
 # 和小孩一起玩家务
 
-> 原文:[https://life hacker . com/gamify-whaterials-with little-kids-1823439260](https://lifehacker.com/gamify-chores-with-little-kids-1823439260)
+> 原文：<https://lifehacker.com/gamify-chores-with-little-kids-1823439260>
 
 我知道，杂务就是杂务。但是，让我们来听听玛丽·波平斯(Mary Poppins)的话:“在每一项必须完成的工作中，都有乐趣的成分。”为了把自己从日常家务维护的苦差事中解救出来，你必须找到那个元素。
 

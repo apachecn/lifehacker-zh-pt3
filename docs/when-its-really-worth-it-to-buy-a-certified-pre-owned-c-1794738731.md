@@ -1,6 +1,6 @@
 # 当购买一辆经过认证的二手车确实值得的时候
 
-> 原文:[https://jalopnik . com/when-its-real-value-it-to-buy-a-certified-pre-owned-c-1794738731](https://jalopnik.com/when-its-really-worth-it-to-buy-a-certified-pre-owned-c-1794738731)
+> 原文：<https://jalopnik.com/when-its-really-worth-it-to-buy-a-certified-pre-owned-c-1794738731>
 
 现在是购买二手车的好时机。对于精打细算的买家来说，二手车型通常会让你物有所值，但花更多钱买一辆经过“认证”的二手车值得吗？这完全取决于车辆和市场。
 

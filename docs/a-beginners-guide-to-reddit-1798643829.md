@@ -1,6 +1,6 @@
 # Reddit 初学者指南
 
-> 原文:[https://life hacker . com/a-初学者指南-reddit-1798643829](https://lifehacker.com/a-beginners-guide-to-reddit-1798643829)
+> 原文：<https://lifehacker.com/a-beginners-guide-to-reddit-1798643829>
 
 2005 年，两名刚毕业的大学生创办了一个网站，想法很简单:他们让网络社区决定什么有新闻价值，什么没有新闻价值，让他们发布自己的链接和信息。然后，他们会允许网站用户对这些帖子进行投票，他们的想法是最好的会上升到顶部。
 

@@ -1,6 +1,6 @@
 # 如何保护自己免受掠夺性发薪日贷款
 
-> 原文:[https://life hacker . com/how-to-protect-yourself from-掠夺性发薪日贷款-1822295550](https://lifehacker.com/how-to-protect-yourself-from-predatory-payday-loans-1822295550)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-predatory-payday-loans-1822295550>
 
 对于那些被银行贷款拒绝的经济脆弱的人来说，发薪日贷款可能是获得钱来支付账单和必需品的最后手段。这使得他们进行掠夺性操作的时机已经成熟，这种操作需要延续债务陷阱以保持盈利。
 

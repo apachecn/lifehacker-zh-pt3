@@ -1,6 +1,6 @@
 # 给你的孩子一个密码，帮助他们摆脱困境
 
-> 原文:[https://life hacker . com/give-your-kid-a secret-code-to-help-them-out-of-STI-1828472123](https://lifehacker.com/give-your-kid-a-secret-code-to-help-them-get-out-of-sti-1828472123)
+> 原文：<https://lifehacker.com/give-your-kid-a-secret-code-to-help-them-get-out-of-sti-1828472123>
 
 无论你如何抚养孩子，他们都会发现自己处于困境。你知道这些时刻——他们不想在那里，但他们也不想因为逃避而看起来不酷。你提醒他们可以随时以任何理由打电话给你寻求帮助，这很好，但一旦他们处于压力之下，这一提议往往会落空。你需要一个更具体的计划。
 

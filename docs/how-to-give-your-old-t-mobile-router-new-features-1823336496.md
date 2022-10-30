@@ -1,6 +1,6 @@
 # 如何给你的旧 T-Mobile 路由器添加新功能
 
-> 原文:[https://life hacker . com/how-to-give-your-old-t-mobile-router-new-features-1823336496](https://lifehacker.com/how-to-give-your-old-t-mobile-router-new-features-1823336496)
+> 原文：<https://lifehacker.com/how-to-give-your-old-t-mobile-router-new-features-1823336496>
 
 在 2018 年得到一个路由器意味着你有一大堆选项可以选择。高端游戏路由器、网状路由器和电力线网络设备都非常昂贵，或者是为特定的使用情况而设计的。然而，如果你和我一样，你已经有了一个 T-Mobile 提供的功能相当强大的路由器。该公司的 CellSpot 路由器，更名为华硕 RT-AC68U，可以从 T-Mobile 本身或通过该设备的各种经销商获得。它很便宜，很受欢迎，但与 RT-AC68U 相比，它运行一些过时的网络软件。好消息是，你可以自己修改软件 [多亏了来自湾区技术专家的亚历山大·奥列什金的这个指南](http://www.bayareatechpros.com/ac1900-to-ac68u/) ，它将带你完成 Cellspot 路由器的固件更新过程。它会使你的保修失效，但是如果你便宜地得到了一个翻新的 Cellspot 路由器，你可能根本不在乎。
 

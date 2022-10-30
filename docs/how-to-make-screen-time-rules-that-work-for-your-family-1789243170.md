@@ -1,6 +1,6 @@
 # 如何制定适合你家庭的屏幕时间规则
 
-> 原文:[https://life hacker . com/how-to-make-screen-time-rules-the-work-for-your-family-1789243170](https://lifehacker.com/how-to-make-screen-time-rules-that-work-for-your-family-1789243170)
+> 原文：<https://lifehacker.com/how-to-make-screen-time-rules-that-work-for-your-family-1789243170>
 
 不久前，儿科医生建议将孩子花在手机和平板电脑上的时间限制在一天一到两个小时，初学走路的孩子一点时间都没有。这种情况已经改变，现在父母应该确保孩子 [和他们的设备](https://lifehacker.com/pediatricians-now-agree-screen-time-isn-t-so-bad-1734698505) 有一个健康的关系。你从哪里开始？以下是完成这项任务的几种方法。
 

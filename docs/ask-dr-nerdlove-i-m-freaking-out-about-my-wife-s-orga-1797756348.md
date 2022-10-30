@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我对我妻子的高潮感到恐惧
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-I-m-freaking-out-on-my-wife-s-orga-1797756348](https://kotaku.com/ask-dr-nerdlove-i-m-freaking-out-about-my-wife-s-orga-1797756348)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-i-m-freaking-out-about-my-wife-s-orga-1797756348>
 
 你好，所有 Noosphere 的石化猫鼬们，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个帮助你为爱情生活找到完美战利品的约会建议专栏。
 

@@ -1,6 +1,6 @@
 # 既然减税已经生效，如何更新你的 W-4
 
-> 原文:[https://life hacker . com/how-to-update-your-w-4-now-the-tax-cut-is-taking-1823622341](https://lifehacker.com/how-to-update-your-w-4-now-that-the-tax-cuts-are-taking-1823622341)
+> 原文：<https://lifehacker.com/how-to-update-your-w-4-now-that-the-tax-cuts-are-taking-1823622341>
 
 过去一个月左右，你可能已经注意到由于最近的减税，工资略有上升。正如我们之前写的，这意味着你要检查你的雇主是否从你的薪水中扣下了正确的金额。现在，这更容易做到，因为美国国税局发布了其 [预扣计算器](http://time.com/money/5186230/irs-tax-tool-2018-federal-withholding/) 的新版本。
 

@@ -1,6 +1,6 @@
 # 这是什么“炸弹旋风”即将“爆炸”东海岸？
 
-> 原文:[https://gizmodo . com/what ' s this-bomb-cyclone-about-blast-the-east-1821736336](https://gizmodo.com/what-is-this-bomb-cyclone-thing-about-to-blast-the-east-1821736336)
+> 原文：<https://gizmodo.com/what-is-this-bomb-cyclone-thing-about-to-blast-the-east-1821736336>
 
 炸弹。他们是这个国家的集体意识。
 

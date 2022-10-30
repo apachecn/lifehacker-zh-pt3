@@ -1,6 +1,6 @@
 # 通过同步在开放式办公室计划中生存
 
-> 原文:[https://life hacker . com/survive-an-open-office-plan-by-syncing-up-1826985858](https://lifehacker.com/survive-an-open-office-plan-by-synching-up-1826985858)
+> 原文：<https://lifehacker.com/survive-an-open-office-plan-by-synching-up-1826985858>
 
 开放式办公室是一个圆形监狱地狱。它们可能会让合作变得更容易，它们可能会帮助你的老板把更多的员工塞进一个更小的空间，但它们会让你听到同事发出的每一个细小的声音。(你也可以看到和闻到它们！)最明显的应对机制——耳机、电话亭、躲在会议室——依赖于封闭这种开放性。但是有一个策略，来自 Fast Company 的播客*最有效率的人的秘密*，涉及到与你的同事进行真正的交流。 
 

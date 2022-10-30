@@ -1,6 +1,6 @@
 # 亚马逊 Prime 日是 7 月 16 日(大概)
 
-> 原文:[https://life hacker . com/Amazon-prime-day-is-July-16-possible-1827051848](https://lifehacker.com/amazon-prime-day-is-july-16-probably-1827051848)
+> 原文：<https://lifehacker.com/amazon-prime-day-is-july-16-probably-1827051848>
 
 在你的日历上做好标记，准备好你的钱包——或者，如果你试图不花钱，你的网站屏蔽:亚马逊一年一度的网上交易盛会即将来临。最近有消息透露，这一切都发生在 7 月 16 日星期一。
 

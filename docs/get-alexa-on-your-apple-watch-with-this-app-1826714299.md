@@ -1,6 +1,6 @@
 # 用这个应用程序在你的苹果手表上安装 Alexa
 
-> 原文:[https://life hacker . com/get-Alexa-on-your-apple-watch-with-this-app-1826714299](https://lifehacker.com/get-alexa-on-your-apple-watch-with-this-app-1826714299)
+> 原文：<https://lifehacker.com/get-alexa-on-your-apple-watch-with-this-app-1826714299>
 
 如果你想在 Apple Watch 上使用语音助手，你几乎只能使用 Siri 美妙的音调。本周，一款新应用为你的手腕带来了另一款受欢迎的助手:Alexa。
 

@@ -1,6 +1,6 @@
 # 看看 Sinemia，MoviePass 的竞争对手
 
-> 原文:[https://life hacker . com/movie pass-competitor-is-now-offing-25-in-free-food-w-1827555750](https://lifehacker.com/moviepass-competitor-is-now-offering-25-in-free-food-w-1827555750)
+> 原文：<https://lifehacker.com/moviepass-competitor-is-now-offering-25-in-free-food-w-1827555750>
 
 MoviePass 的竞争对手 Sinemia 本周让注册其服务变得更有吸引力:它现在每月为每次订阅提供 25 美元的免费[【Restaurant.com】](http://resturant.com)礼券。
 

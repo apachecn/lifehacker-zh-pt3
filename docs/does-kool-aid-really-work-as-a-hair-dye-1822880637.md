@@ -1,6 +1,6 @@
 # Kool-Aid 真的可以用作染发剂吗？
 
-> 原文:[https://the take out . com/does-kool-aid-really-work-as-a-hair-dye-1822880637](https://thetakeout.com/does-kool-aid-really-work-as-a-hair-dye-1822880637)
+> 原文：<https://thetakeout.com/does-kool-aid-really-work-as-a-hair-dye-1822880637>
 
 下雪天:这两个词让父母感到恐惧，也让孩子们同样感到高兴。随着芝加哥在最近的暴风雪中无所顾忌，我们的公立学校系统几年来第一次关闭，我女儿的放学后玩耍日延长到了通宵，我很感激有一份工作，如果需要的话，我可以在家工作(不像我丈夫，他在黎明前就出门了)。
 

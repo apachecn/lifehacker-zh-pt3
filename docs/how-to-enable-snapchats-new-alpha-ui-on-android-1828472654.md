@@ -1,6 +1,6 @@
 # 如何在 Android 上启用 Snapchat 的新 Alpha UI
 
-> 原文:[https://life hacker . com/how-to-enable-snapchats-new-alpha-ui-on-Android-1828472654](https://lifehacker.com/how-to-enable-snapchats-new-alpha-ui-on-android-1828472654)
+> 原文：<https://lifehacker.com/how-to-enable-snapchats-new-alpha-ui-on-android-1828472654>
 
 自 2017 年该公司首次进行重大更新以来，Android Snapchat 用户一直在等待这款流行的社交媒体应用程序的更快、更稳定的版本。新版本终于接近全面发布，由于 XDA 开发者米沙·拉赫曼的一些出色工作，一些 Android 用户现在可以试用新版 Snapchat 的 Alpha 版本。如果你对 Snapchat 这个速度更快的新版本感到好奇，并且不想等待，下面是如何在手机上安装它的方法:
 

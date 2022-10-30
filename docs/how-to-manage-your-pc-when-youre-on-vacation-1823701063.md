@@ -1,6 +1,6 @@
 # 度假时如何管理您的电脑
 
-> 原文:[https://life hacker . com/how-to-manage-your-PC-when-you-voice-1823701063](https://lifehacker.com/how-to-manage-your-pc-when-youre-on-vacation-1823701063)
+> 原文：<https://lifehacker.com/how-to-manage-your-pc-when-youre-on-vacation-1823701063>
 
 即使冒着惹怒所有参加拔掉 电源的国庆节的人的风险，我也希望我在度假的时候开着电脑。但当我周六深夜结束为期一周的全国旅行回到 Lifehacker 总部时，我犯了一个致命的错误。回到家，我打开行李，刷牙，喂猫。我没有想到打开我的台式电脑，让它在一夜之间通过大量的更新，这将为我节省大量的时间。
 

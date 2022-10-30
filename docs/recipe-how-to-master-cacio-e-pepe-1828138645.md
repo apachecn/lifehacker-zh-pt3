@@ -1,6 +1,6 @@
 # 如何掌握 cacio e pepe，这个看似困难的意大利面典范
 
-> 原文:[https://the take out . com/recipe-how-to-master-cacio-e-Pepe-1828138645](https://thetakeout.com/recipe-how-to-master-cacio-e-pepe-1828138645)
+> 原文：<https://thetakeout.com/recipe-how-to-master-cacio-e-pepe-1828138645>
 
 我第一次尝试做 cacio e pepe 的时候，我认为这是最容易做的意大利面，除了味蕾不健全的小孩需要的无酱意大利面和黄油。我的意思是，它的大部分成分都在它的名字里:cacio 在许多意大利方言里是“奶酪”,“pepe”是胡椒。会有多难呢？
 

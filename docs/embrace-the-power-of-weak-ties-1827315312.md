@@ -1,6 +1,6 @@
 # 拥抱“弱关系”的力量
 
-> 原文:[https://life hacker . com/embrace-the-power-of-weak-ties-1827315312](https://lifehacker.com/embrace-the-power-of-weak-ties-1827315312)
+> 原文：<https://lifehacker.com/embrace-the-power-of-weak-ties-1827315312>
 
 当涉及到让你的生活变得有条不紊或争取下一次晋升时，你可能会依赖你的朋友或家人的支持、建议和鼓励。但是正如梅格·乔伊在《定义的十年[](https://www.amazon.com/Defining-Decade-Your-Twenties-Matter/dp/0446561754?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/embrace-the-power-of-weak-ties-1827315312&asc_source=&tag=kinjalifehackerlink-20)*中所写的那样，如果你真的想拓宽视野并获得成功，你最好去找一个老同事或熟人。*
 

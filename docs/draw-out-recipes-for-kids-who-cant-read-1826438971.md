@@ -1,6 +1,6 @@
 # 为不识字的孩子画食谱
 
-> 原文:[https://life hacker . com/draw-out-recipes-for-kids-an-uncle-read-1826438971](https://lifehacker.com/draw-out-recipes-for-kids-who-cant-read-1826438971)
+> 原文：<https://lifehacker.com/draw-out-recipes-for-kids-who-cant-read-1826438971>
 
 你双手握拳，心跳加速，你可以感觉到自己内心的微观管理者出现了:在准备晚餐时，你的学龄前儿童刚刚走到你面前，问:“妈妈，我可以帮你做饭吗？”
 

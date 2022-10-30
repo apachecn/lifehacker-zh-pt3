@@ -1,6 +1,6 @@
 # 是时候在社交媒体上解除好友和关注了
 
-> 原文:[https://life hacker . com/its-time-to-un friend-and-un follow-on-social-media-1819340121](https://lifehacker.com/its-time-to-unfriend-and-unfollow-on-social-media-1819340121)
+> 原文：<https://lifehacker.com/its-time-to-unfriend-and-unfollow-on-social-media-1819340121>
 
 Twitter 正在推出 280 个字符的推文，这意味着我们将能够从我们关注的人那里获得两倍的信息。
 

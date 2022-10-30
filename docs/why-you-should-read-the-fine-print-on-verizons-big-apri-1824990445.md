@@ -1,6 +1,6 @@
 # 为什么你应该阅读威瑞森 4 月 5 日大“交易”的细则
 
-> 原文:[https://life hacker . com/why-you-should-read-the-fine-print-on-Verizon-big-apri-1824990445](https://lifehacker.com/why-you-should-read-the-fine-print-on-verizons-big-apri-1824990445)
+> 原文：<https://lifehacker.com/why-you-should-read-the-fine-print-on-verizons-big-apri-1824990445>
 
 这是交易。关于即将到来的 [威瑞森晋升](http://www.anrdoezrs.net/links/8335291/type/dlg/sid/kinjadeals-breakout /https://www.verizonwireless.com/) 有很多媒体报道。从明天开始，威瑞森将提供一些有趣的交易，你可以利用这些交易以低廉的价格买到一部旗舰智能手机。然而，对于你的特殊情况，它们可能不是最好的交易。原因如下。
 

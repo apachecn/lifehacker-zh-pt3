@@ -1,6 +1,6 @@
 # 让你的孩子多读书，把书面朝外放
 
-> 原文:[https://life hacker . com/get-your-kid-to-read-more-by-display-books-face-out-1829105407](https://lifehacker.com/get-your-kid-to-read-more-by-displaying-books-face-out-1829105407)
+> 原文：<https://lifehacker.com/get-your-kid-to-read-more-by-displaying-books-face-out-1829105407>
 
 到了选择阅读书籍的时候，孩子们通常会去找以前最喜欢的书。这不是一件坏事——一遍又一遍地重复同样的故事是有好处的。 但有可能他们只是不知道书架深处还藏着什么。
 

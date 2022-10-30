@@ -1,6 +1,6 @@
 # 什么会让你真的去看电影？
 
-> 原文:[https://life hacker . com/what-would-make-you-actually-to-the-movies-1821605002](https://lifehacker.com/what-would-make-you-actually-go-to-the-movies-1821605002)
+> 原文：<https://lifehacker.com/what-would-make-you-actually-go-to-the-movies-1821605002>
 
 人们越来越少去看电影了。收入增加了，但上座率下降了，影院感到了压力。2017 年夏季票房是该行业十年来票房收入最差的一年， [*综艺*报道](http://variety.com/2017/film/news/summer-box-office-2017-worst-decade-1202548272/) ，销售额比 2016 年夏季下降了 14.6%。
 

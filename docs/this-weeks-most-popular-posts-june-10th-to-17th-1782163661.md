@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:6 月 10 日至 17 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-June-10-to-17-1782163661](https://lifehacker.com/this-weeks-most-popular-posts-june-10th-to-17th-1782163661)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-june-10th-to-17th-1782163661>
 
 本周，苹果展示了其操作系统的最新更新，而 E3 则让我们一瞥新的游戏机和游戏。与此同时，在 terra firma 上，我们学习了调情的技巧，破产实际上意味着什么，并比较了流行的冥想应用。我知道*这个周末我会*把这些应用程序投入使用。
 

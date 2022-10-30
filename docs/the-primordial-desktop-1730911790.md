@@ -1,6 +1,6 @@
 # 原始桌面
 
-> 原文:[https://lifehacker.com/the-primordial-desktop-1730911790](https://lifehacker.com/the-primordial-desktop-1730911790)
+> 原文：<https://lifehacker.com/the-primordial-desktop-1730911790>
 
 麦肯齐 的桌面是一个美丽的树木繁茂的休养地，只要看着它就能降低你的压力水平——这使它成为工作桌面或第二屏幕的完美选择。下面是如何设置它。
 

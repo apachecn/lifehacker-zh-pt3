@@ -1,6 +1,6 @@
 # 毕业时当心检查账户费用
 
-> 原文:[https://life hacker . com/feel-check-account-fees-when you-graduate-1819295129](https://lifehacker.com/beware-checking-account-fees-when-you-graduate-1819295129)
+> 原文：<https://lifehacker.com/beware-checking-account-fees-when-you-graduate-1819295129>
 
 对于大多数学生来说，当他们毕业的时候，金钱问题变得很现实 。在 [确保你的学生贷款被正确使用](https://twocents.lifehacker.com/make-sure-your-extra-student-loan-payment-is-applied-co-1709667429) 以跟上一堆新的开支之间，你学会了在财务上保持警惕。另一个需要注意的货币问题？支票账户费用。
 

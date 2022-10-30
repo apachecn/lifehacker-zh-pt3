@@ -1,6 +1,6 @@
 # 如何向你的伴侣提出性要求，让他们热情地答应
 
-> 原文:[https://life hacker . com/how-to-quest-your partner for sex-so-they ll-emotia stica-1727214612](https://lifehacker.com/how-to-ask-your-partner-for-sex-so-theyll-enthusiastica-1727214612)
+> 原文：<https://lifehacker.com/how-to-ask-your-partner-for-sex-so-theyll-enthusiastica-1727214612>
 
 让我们面对现实吧:夫妻在开始性生活时会变得懒惰。这里有谁没有尝试过通过笨拙地摸索他们的伴侣，或者脱口而出，“我想已经有一段时间了。我们应该这样做吗？”这可能感觉更容易，但也可能感觉非常不近人情。让我们来谈谈如何以一种让你的伴侣真的想答应的方式开始性生活。
 

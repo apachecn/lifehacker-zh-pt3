@@ -1,6 +1,6 @@
 # 在枪伤后拨打 911 可能不是去医院最快的方式
 
-> 原文:[https://life hacker . com/calling-911-may-not-a-fast-way to-the-hospital-1818999152](https://lifehacker.com/calling-911-may-not-be-the-fastest-way-to-the-hospital-1818999152)
+> 原文：<https://lifehacker.com/calling-911-may-not-be-the-fastest-way-to-the-hospital-1818999152>
 
 一项新的研究 表明，在枪伤或刺伤后，有时人们最好把自己拖进朋友的福特金牛座的后座，告诉他去最近的医院，而不是打 911 等救护车。
 

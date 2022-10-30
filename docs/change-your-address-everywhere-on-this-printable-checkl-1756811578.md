@@ -1,6 +1,6 @@
 # 当你搬家时，请在这张可打印的清单上更改你的地址
 
-> 原文:[https://life hacker . com/change-your-address-everywhere-on-this-printable-checkl-1756811578](https://lifehacker.com/change-your-address-everywhere-on-this-printable-checkl-1756811578)
+> 原文：<https://lifehacker.com/change-your-address-everywhere-on-this-printable-checkl-1756811578>
 
 当你改变你的地址时，你可以让你的邮件转发一会儿，但最终你需要让很多地方知道这种老式的方式。我们整理了一份清单来帮助你记住它们。
 

@@ -1,6 +1,6 @@
 # 今年你如何投资自己？
 
-> 原文:[https://life hacker . com/how-are-you-how-investing-in-you-you-this-year-1828021163](https://lifehacker.com/how-are-you-investing-in-yourself-this-year-1828021163)
+> 原文：<https://lifehacker.com/how-are-you-investing-in-yourself-this-year-1828021163>
 
 在过去的一周里，在一个压力特别大的日子里，当我想向一个我知道会听的人抱怨时，我做了我一直做的事情:我打电话给我爸爸。我很幸运，我们的关系是这样的，我可以倾诉在纽约市的工作或日常生活，他会认真倾听，并提供父亲般的智慧或他 20 多岁时的故事，以及他是如何想出这一切的，而没有(太多)评判。
 

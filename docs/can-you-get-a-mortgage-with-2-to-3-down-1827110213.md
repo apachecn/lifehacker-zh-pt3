@@ -1,6 +1,6 @@
 # 首付 2 到 3 成能拿到房贷吗？
 
-> 原文:[https://life hacker . com/2-3-down-1827110213](https://lifehacker.com/can-you-get-a-mortgage-with-2-to-3-down-1827110213)您可以获得抵押贷款吗
+> 原文：<https://lifehacker.com/can-you-get-a-mortgage-with-2-to-3-down-1827110213>您可以获得抵押贷款吗
 
 昨天我们谈到了你的第一套房子 首付要多少 [和什么，确切地说，](https://twocents.lifehacker.com/how-much-to-put-down-for-your-first-house-1827029793#_ga=2.40097761.2139163616.1529932080-594046802.1524762060) [抵押贷款折扣点](https://twocents.lifehacker.com/what-are-mortgage-points-and-why-are-they-so-important-1827103592) 都有。今天我们来看另一个抵押贷款问题，特别是这个来自 s[ome dough](https://twocents.lifehacker.com/1825950447)的问题:
 

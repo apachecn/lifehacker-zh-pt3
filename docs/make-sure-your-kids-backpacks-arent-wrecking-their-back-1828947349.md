@@ -1,6 +1,6 @@
 # 如何保护孩子的背部免受过重背包的伤害
 
-> 原文:[https://life hacker . com/确保你的孩子背包不要弄坏他们的背-1828947349](https://lifehacker.com/make-sure-your-kids-backpacks-arent-wrecking-their-back-1828947349)
+> 原文：<https://lifehacker.com/make-sure-your-kids-backpacks-arent-wrecking-their-back-1828947349>
 
 在我孩子上幼儿园的第一天照了强制性的前门照片后，我注意到她的背包看起来有点下垂。
 

@@ -1,6 +1,6 @@
 # 现在你可以通过谷歌快速搜索来比较手机规格
 
-> 原文:[https://life hacker . com/now-you-can-compare-phone-specs-with-a-quick-Google-sea-1820221377](https://lifehacker.com/now-you-can-compare-phone-specs-with-a-quick-google-sea-1820221377)
+> 原文：<https://lifehacker.com/now-you-can-compare-phone-specs-with-a-quick-google-sea-1820221377>
 
 想买一部新手机吗？谷歌只是让你更容易找到你应该买哪一个。
 

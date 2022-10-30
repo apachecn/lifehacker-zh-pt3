@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 18 日至 25 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-11 月 18 日至 25 日-1789364738](https://lifehacker.com/this-weeks-most-popular-posts-november-18th-to-25th-1789364738)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-18th-to-25th-1789364738>
 
 感谢上帝，随着这一年的结束和装饰的增加，我们已经渡过了火鸡卢比孔河。不仅仅是准备我们本周的假日盛宴，我们还学习了神经网络和人工智能，讨论了令人不快的约会习惯重影，等等。这里回顾一下。
 

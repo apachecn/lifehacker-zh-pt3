@@ -1,6 +1,6 @@
 # 使用这个 Chrome 扩展与远方的朋友同步网飞流
 
-> 原文:[https://life hacker . com/sync-网飞-streams-with-far-away-friends-using-this-c-1824048081](https://lifehacker.com/sync-netflix-streams-with-far-away-friends-using-this-c-1824048081)
+> 原文：<https://lifehacker.com/sync-netflix-streams-with-far-away-friends-using-this-c-1824048081>
 
 几年前(实际上是现在的 7 岁——哎呀！)我搬到了另一个国家，一个远离我的家人和大多数朋友的时区。穿越这个国家带来了许多挑战，但最大的挑战是朋友的事情。从一个相当大的朋友网络到知道几年前在一个聚会上和我一起出去的一个家伙引起了一些严重的 FOMO，当时我家乡的朋友们出去或者有一个电影之夜。
 

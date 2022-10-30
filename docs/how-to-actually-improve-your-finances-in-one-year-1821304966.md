@@ -1,6 +1,6 @@
 # 如何在一年内真正改善你的财务状况
 
-> 原文:[https://life hacker . com/how-to-really-improve-your finance-one-year-1821304966](https://lifehacker.com/how-to-actually-improve-your-finances-in-one-year-1821304966)
+> 原文：<https://lifehacker.com/how-to-actually-improve-your-finances-in-one-year-1821304966>
 
 为孩子的大学和退休存钱，从股市中获得回报——所有这些都需要数年才能完成。但是你可以在一年内完成一些财务目标，这些目标也会带来很大的不同。
 

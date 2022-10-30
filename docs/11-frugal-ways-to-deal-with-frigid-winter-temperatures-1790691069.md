@@ -1,6 +1,6 @@
 # 应对寒冷冬天的 11 种节俭方法
 
-> 原文:[https://life hacker . com/11-节俭应对寒冬的方法-1790691069](https://lifehacker.com/11-frugal-ways-to-deal-with-frigid-winter-temperatures-1790691069)
+> 原文：<https://lifehacker.com/11-frugal-ways-to-deal-with-frigid-winter-temperatures-1790691069>
 
 几天前，一场真正的寒流席卷了我们的地区，气温降至华氏零下 20 度。考虑到这一天我们家的每个成员都有一些事情要做，这意味着我们都暴露在寒冷的环境中。
 

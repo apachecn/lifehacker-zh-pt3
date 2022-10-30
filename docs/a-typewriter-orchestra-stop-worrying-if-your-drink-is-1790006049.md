@@ -1,6 +1,6 @@
 # 打字机乐队，不要担心你的饮料是否有男子气概，是否是地球上最好的
 
-> 原文:[https://life hacker . com/a-typewriter-orchestra-stop-warning-if-your-drink-is-1790006049](https://lifehacker.com/a-typewriter-orchestra-stop-worrying-if-your-drink-is-1790006049)
+> 原文：<https://lifehacker.com/a-typewriter-orchestra-stop-worrying-if-your-drink-is-1790006049>
 
 在本周的 Brain Buffet 节目中，我们将了解波士顿打字机管弦乐团的行动，一个关于混音文化的新播客，来自*行星地球*庆祝其 10 周年的最佳场景，等等。
 

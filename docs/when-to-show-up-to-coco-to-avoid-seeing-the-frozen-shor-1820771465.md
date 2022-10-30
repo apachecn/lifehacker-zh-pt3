@@ -1,6 +1,6 @@
 # 什么时候向可可展示，以避免看到每个人都讨厌的冷冻短裤
 
-> 原文:[https://life hacker . com/when-to-show-up-to-coco-to-avoid-see-the-frozen-shor-1820771465](https://lifehacker.com/when-to-show-up-to-coco-to-avoid-seeing-the-frozen-shor-1820771465)
+> 原文：<https://lifehacker.com/when-to-show-up-to-coco-to-avoid-seeing-the-frozen-shor-1820771465>
 
 过去的这个周末，我决定带两个四岁的孩子——我女儿和她的朋友——去看皮克斯的新电影《可可》。但在离开家之前，我碰巧看到了那些推文。许许多多的推文。关于这部电影之前播放的 21 分钟长的*冰冻*“花絮”，有警告、抗议和愤怒引发的请愿。它被称为*奥拉夫的冷冻冒险*，根据那些忍受过它的人，它是糟糕的。折磨人。“除了表现圣诞节最糟糕的商业化元素之外，歌曲乏善可陈，情节令人痛苦地老套，奥拉夫讨厌得像狗屎，”一位观众在推特上写道。 [另一个人写道](https://twitter.com/PerryFellow/status/934299383226609664) :“连我 6 岁的女儿都喜欢——”“这有多长？？！“许多人说，他们非常困惑、不安或愤怒，以至于差点走出剧院。
 

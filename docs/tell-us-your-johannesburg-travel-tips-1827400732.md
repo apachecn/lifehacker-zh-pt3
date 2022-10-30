@@ -1,6 +1,6 @@
 # 告诉我们你的约翰内斯堡旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Johannesburg-travel-tips-1827400732](https://lifehacker.com/tell-us-your-johannesburg-travel-tips-1827400732)
+> 原文：<https://lifehacker.com/tell-us-your-johannesburg-travel-tips-1827400732>
 
 南非约翰内斯堡 的 Wikivoyage 页面上写道，通过仰望这座城市的两座塔楼希尔布劳和布里克斯顿，你可以找到你所在的城镇的哪个部分。在 [Hack Your City](https://lifehacker.com/c/hack-your-city) 节目中，这种导航技巧——在智能手机时代不那么重要，但仍有助于游客找到自己的方向——对我们来说太糟糕了。
 

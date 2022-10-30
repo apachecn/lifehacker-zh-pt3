@@ -1,6 +1,6 @@
 # 不要在脸书迷因中泄露你的信息
 
-> 原文:[https://life hacker . com/don ' t-give-out-of-your-information-a-a-Facebook-meme-1826137624](https://lifehacker.com/dont-give-out-your-information-in-a-facebook-meme-1826137624)
+> 原文：<https://lifehacker.com/dont-give-out-your-information-in-a-facebook-meme-1826137624>
 
 听着，我们都因为参与了一两个不明智的迷因而感到内疚，在你的身份被盗之前，这都是有趣的游戏。
 

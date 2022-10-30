@@ -1,6 +1,6 @@
 # 春季出游省钱的 10 大方法
 
-> 原文:[https://life hacker . com/top-10-way-to-save-money on your-spring-away-1764496050](https://lifehacker.com/top-10-ways-to-save-money-on-your-spring-getaway-1764496050)
+> 原文：<https://lifehacker.com/top-10-ways-to-save-money-on-your-spring-getaway-1764496050>
 
 春天是旅游的最佳时间之一。天气很好，对每个去春假的人来说，旅游优惠比比皆是。你不需要花很多钱来享受这个季节(或任何其他季节，就此而言),有了这十个省钱的旅行建议。
 

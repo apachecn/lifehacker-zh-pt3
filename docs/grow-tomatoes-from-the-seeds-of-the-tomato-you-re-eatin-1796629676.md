@@ -1,6 +1,6 @@
 # 用你正在吃的西红柿的种子来种植西红柿
 
-> 原文:[https://life hacker . com/grow-tomatos-from-the-seeds-of-the-tomato-you-re-eating in-1796629676](https://lifehacker.com/grow-tomatoes-from-the-seeds-of-the-tomato-you-re-eatin-1796629676)
+> 原文：<https://lifehacker.com/grow-tomatoes-from-the-seeds-of-the-tomato-you-re-eatin-1796629676>
 
 西红柿有许多出名的理由。一种用作蔬菜的水果，它是 Boyardee 主厨牛肉馄饨罐头的第一种成分，学校自助餐厅的湿漉漉的披萨涂上大量酱汁的原因是 [被归类为蔬菜](http://www.nbcnews.com/id/45306416/ns/health-diet_and_nutrition/t/pizza-vegetable-congress-says-yes/#.WVwbXdPyvOQ) 。
 

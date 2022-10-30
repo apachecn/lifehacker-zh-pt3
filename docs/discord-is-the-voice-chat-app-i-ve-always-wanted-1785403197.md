@@ -1,6 +1,6 @@
 # Discord 是我一直想要的语音聊天应用
 
-> 原文:[https://life hacker . com/discord-is-the-voice-chat-app-I-ve-always-wanted-1785403197](https://lifehacker.com/discord-is-the-voice-chat-app-i-ve-always-wanted-1785403197)
+> 原文：<https://lifehacker.com/discord-is-the-voice-chat-app-i-ve-always-wanted-1785403197>
 
 [不和](https://discordapp.com/) 是聊天现场的新人，但却引起了不小的轰动。该应用程序为群组提供语音和文本聊天，重点是游戏。然而，它太可爱了，我已经开始在日常聊天中使用它了。
 

@@ -1,6 +1,6 @@
 # 如何破解你的 iPhone:最新指南[iOS 9]
 
-> 原文:[https://life hacker . com/how-to-jailbreak-your-iphone-the-always-update-GUI-5771943](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943)
+> 原文：<https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-5771943>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-0b6XjF_Y0qY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-0b6XjF_Y0qY&start=0) 
 

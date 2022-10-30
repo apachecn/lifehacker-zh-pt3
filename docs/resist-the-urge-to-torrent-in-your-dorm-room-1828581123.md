@@ -1,6 +1,6 @@
 # 忍住在大学宿舍里滔滔不绝的冲动
 
-> 原文:[https://life hacker . com/resist-the-urge-to-torrent-in-your-dorf-room-1828581123](https://lifehacker.com/resist-the-urge-to-torrent-in-your-dorm-room-1828581123)
+> 原文：<https://lifehacker.com/resist-the-urge-to-torrent-in-your-dorm-room-1828581123>
 
 啊，大学。探索个人兴趣、自我认同和疯狂的高速互联网连接的时间。虽然你可能会被诱惑将你的大学网络用于邪恶的目的，因为你现在可以以比你父母家更快的速度 BitTorrent 任何你想要的东西，但想想这是否值得。没有什么比因为 BitTorrent、你在黑暗网络上的交易或你正在做的任何其他疯狂的事情而被逮捕更能毁掉你的一天了。
 

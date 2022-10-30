@@ -1,6 +1,6 @@
 # 如何把自己的自拍变成贴纸
 
-> 原文:[https://life hacker . com/how-to-turn-your-self-ties-to-stickers-1828668706](https://lifehacker.com/how-to-turn-your-selfies-into-stickers-1828668706)
+> 原文：<https://lifehacker.com/how-to-turn-your-selfies-into-stickers-1828668706>
 
 **Android/iOS:** 谷歌正式推出了其 Gboard 虚拟键盘的 7.5 版本，随之而来的是一个全新的功能，让你可以根据你的面部创建个性化的贴纸，可以用于短信和任何支持贴纸的应用程序。
 

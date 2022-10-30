@@ -1,6 +1,6 @@
 # 如何激励自己每天早上锻炼
 
-> 原文:[https://life hacker . com/how-to-motivate-yourself-exercise-every-morning-1827028412](https://lifehacker.com/how-to-motivate-yourself-to-exercise-every-morning-1827028412)
+> 原文：<https://lifehacker.com/how-to-motivate-yourself-to-exercise-every-morning-1827028412>
 
 早在我注意到每天早上打嗝对健康有好处之前，我就注意到了另一件事:我真的，真的，不想起床。因为一旦我下了床，我就不得不去打嗝。
 

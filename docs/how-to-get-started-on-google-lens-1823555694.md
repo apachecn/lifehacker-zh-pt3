@@ -1,6 +1,6 @@
 # 如何开始使用谷歌镜头
 
-> 原文:[https://life hacker . com/how-to-get-started-on-Google-lens-1823555694](https://lifehacker.com/how-to-get-started-on-google-lens-1823555694)
+> 原文：<https://lifehacker.com/how-to-get-started-on-google-lens-1823555694>
 
 Android:兴奋起来吧，那些没有像素的 Android 粉丝们。自从谷歌护目镜 推出以来，已经过去了将近 10 年，这款应用程序可以让你通过拍摄照片来了解更多关于现实世界的物体。当谷歌去年在谷歌镜头中推出该技术的一个大幅改进版本时，它基本上放弃了这款应用，但只有 Pixel 用户才能玩点击识别。
 

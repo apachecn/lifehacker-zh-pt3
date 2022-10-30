@@ -1,6 +1,6 @@
 # 拥有美国电话电报公司电子邮件的 Flickr 和 Tumblr 用户将无法访问他们的账户
 
-> 原文:[https://life hacker . com/Flickr-and-Tumblr-users-with-at-t-emails-is-about-to-l-1796428637](https://lifehacker.com/flickr-and-tumblr-users-with-at-t-emails-are-about-to-l-1796428637)
+> 原文：<https://lifehacker.com/flickr-and-tumblr-users-with-at-t-emails-are-about-to-l-1796428637>
 
 据科技博客 Techcrunch 报道，由于雅虎和美国电话电报公司 [终止合作关系，威瑞森旗下的社交媒体平台 Tumblr 以及一系列其他雅虎服务可能会将用户锁定在他们的账户之外。如果你是 Tumblr、Flickr 或任何其他雅虎服务的普通用户，并且拥有 AT & T 提供的电子邮件地址，它将于 6 月 30 日停止对这些网站的服务。](https://techcrunch.com/2017/06/25/take-the-oath/)
 

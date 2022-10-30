@@ -1,6 +1,6 @@
 # 麻疹在欧洲呈上升趋势，并且刚刚造访了纽约
 
-> 原文:[https://life hacker . com/麻疹正在欧洲兴起并刚刚被访问过的纽约市-1823315511](https://lifehacker.com/measles-is-on-the-rise-in-europe-and-just-visited-nyc-1823315511)
+> 原文：<https://lifehacker.com/measles-is-on-the-rise-in-europe-and-just-visited-nyc-1823315511>
 
 多亏了麻疹疫苗，麻疹不再是一种常见的儿童疾病，这种疫苗通常是通过一种叫做 MMR 的组合注射来实施的。在美国，我们很幸运，超过 90%的人已经注射了 ，并且这种疾病没有在正常的循环中传播。但是现在还不要放松——细菌会传播。
 

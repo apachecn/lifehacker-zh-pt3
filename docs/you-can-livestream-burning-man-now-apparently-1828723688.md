@@ -1,6 +1,6 @@
 # 显然，您现在可以直播火人节了
 
-> 原文:[https://life hacker . com/you-can-live stream-burning-man-now-apparent-1828723688](https://lifehacker.com/you-can-livestream-burning-man-now-apparently-1828723688)
+> 原文：<https://lifehacker.com/you-can-livestream-burning-man-now-apparently-1828723688>
 
 如果你的劳动节计划不包括和其他七万人一起把瓶装水和机器人主题的艺术装置拖进内华达沙漠，不要担心——你可以在舒适的沙发上观看所有的活动。
 

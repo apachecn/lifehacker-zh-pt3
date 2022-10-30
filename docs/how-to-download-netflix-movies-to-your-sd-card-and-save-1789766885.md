@@ -1,6 +1,6 @@
 # 如何将网飞电影下载到您的 SD 卡并节省手机空间
 
-> 原文:[https://life hacker . com/how-to-download-网飞-movies-to-your-SD-card-and-save-1789766885](https://lifehacker.com/how-to-download-netflix-movies-to-your-sd-card-and-save-1789766885)
+> 原文：<https://lifehacker.com/how-to-download-netflix-movies-to-your-sd-card-and-save-1789766885>
 
 庆幸的是，你可以 [下载网飞电影和电视剧](http://lifehacker.com/netflix-adds-offline-viewing-for-phones-and-tablets-1789512369) 离线观看。不幸的是，默认情况下，它只下载到你的内置存储器，这可能导致一些缓慢，混乱的手机。如果你想用 SD 卡上的额外空间来看那些奇怪的东西，以下是方法。
 

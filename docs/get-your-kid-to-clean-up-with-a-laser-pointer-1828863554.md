@@ -1,6 +1,6 @@
 # 让你的孩子用激光笔打扫卫生
 
-> 原文:[https://life hacker . com/get-your-kid-to-clean-up with a-laser-pointer-1828863554](https://lifehacker.com/get-your-kid-to-clean-up-with-a-laser-pointer-1828863554)
+> 原文：<https://lifehacker.com/get-your-kid-to-clean-up-with-a-laser-pointer-1828863554>
 
 小孩子很像猫——热衷于简单的追求。(如果有机会，他们会一直在厕所里玩，但那是另一回事了。)如果你是父母，为什么不让他们的自然倾向为更大的利益服务呢？
 

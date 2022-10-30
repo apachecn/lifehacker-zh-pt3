@@ -1,6 +1,6 @@
 # 盐曲帮助你的食物成为最好的自己
 
-> 原文:[https://life hacker . com/shio-koji-helps-your-food-be-its-best-self-1826640401](https://lifehacker.com/shio-koji-helps-your-food-be-its-best-self-1826640401)
+> 原文：<https://lifehacker.com/shio-koji-helps-your-food-be-its-best-self-1826640401>
 
 “万能调味料”这个词在我看来总是有点夸张。除非我们谈论的是盐，否则很少有调味料能真正增强它们所接触到的一切，但盐尾曲接近了。
 

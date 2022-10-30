@@ -1,6 +1,6 @@
 # 用这种想象克服对湍流的恐惧
 
-> 原文:[https://life hacker . com/用这种可视化克服对湍流的恐惧-1827105024](https://lifehacker.com/overcome-fear-of-turbulence-with-this-visualization-1827105024)
+> 原文：<https://lifehacker.com/overcome-fear-of-turbulence-with-this-visualization-1827105024>
 
 我讨厌飞机旅行。我知道，我知道，这是最安全的旅行方式，汽车要危险得多，blar de blar，但是当我系好安全带，我们起飞的时候——进入*天空*，那不是人类应该去的地方——我能想到的就是我被困在一个 [银色闪闪发光的死亡机器](https://www.goodreads.com/quotes/273826-the-plane-had-lost-power-in-all-three-engines-dropped) 里。
 

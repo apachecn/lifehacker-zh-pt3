@@ -1,6 +1,6 @@
 # 用这些更好的替代品取代你的草坪
 
-> 原文:[https://life hacker . com/replace-your-lawn with these-superior-alternatives-1795768174](https://lifehacker.com/replace-your-lawn-with-these-superior-alternatives-1795768174)
+> 原文：<https://lifehacker.com/replace-your-lawn-with-these-superior-alternatives-1795768174>
 
 本周早些时候，我们建议你 [停止割草](https://lifehacker.com/stop-mowing-your-lawn-1795653861) 。根据美国环保署的数据，美国草坪护理消耗了几乎三分之一的美国家庭用水，产生了 4%的美国空气污染。再加上这是个讨厌鬼。
 

@@ -1,6 +1,6 @@
 # 如何真正使用可重复使用的购物袋
 
-> 原文:[https://life hacker . com/how-to-really-use-your-reusable-杂货袋-1821390104](https://lifehacker.com/how-to-actually-use-your-reusable-grocery-bags-1821390104)
+> 原文：<https://lifehacker.com/how-to-actually-use-your-reusable-grocery-bags-1821390104>
 
 可重复使用的购物袋是环保的，但 [只有在你实际使用它们的时候，很多时候](https://www.wired.com/2016/06/banning-plastic-bags-great-world-right-not-fast/) 。你可能不会使用你从银行或全食超市得到的那些蹩脚的“可重复使用”的袋子，它们就放在你的橱柜里，直到你最终把它们扔掉。
 

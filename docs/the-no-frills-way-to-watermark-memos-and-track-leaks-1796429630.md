@@ -1,6 +1,6 @@
 # 给备忘录加水印和追踪漏洞的简单方法
 
-> 原文:[https://life hacker . com/the-no-free-frill-way-to-watermark-memos-and-track-leaks-1796429630](https://lifehacker.com/the-no-frills-way-to-watermark-memos-and-track-leaks-1796429630)
+> 原文：<https://lifehacker.com/the-no-frills-way-to-watermark-memos-and-track-leaks-1796429630>
 
 假设你需要向一群人发送一条私人消息，但你害怕其中一个人会将消息泄露到其他地方，而你不知道是谁。 [快进实验室有一个粗略的现成解决方案](http://blog.fastforwardlabs.com/2017/06/23/fingerprinting-documents-with-steganography.html) ，它将暴露任何公开复制和粘贴你的信息的人，而不让他们知道他们已经被抓了。
 

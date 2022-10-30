@@ -1,6 +1,6 @@
 # Equifax 黑客的最新消息[更新]
 
-> 原文:[https://life hacker . com/the-latest-news-on-the-equifax-hack-updating-1812224799](https://lifehacker.com/the-latest-news-on-the-equifax-hack-updating-1812224799)
+> 原文：<https://lifehacker.com/the-latest-news-on-the-equifax-hack-updating-1812224799>
 
 上周，信用报告机构 Equifax 遭遇了自间谍哈里特(Harriet)的作文笔记本被同学偷走以来，全球最严重的数据泄露事件之一。在可怕的后果中，当消费者开始考虑他们的个人信息可能被窃取的消息时，该公司的反应却令人恼火地不透明。他们的 [报复](http://lifehacker.com/equifax-is-waiving-their-credit-freeze-fees-for-30-days-1805663077#_ga=2.101612673.1492850696.1505141120-672228682.1489692420) 的尝试一直缓慢而混乱，他们的 [为事件](https://www.equifaxsecurity2017.com/) 建立的贫血网站很少更新，并受到技术问题的困扰，他们的公共关系大多局限于推特回复 。
 

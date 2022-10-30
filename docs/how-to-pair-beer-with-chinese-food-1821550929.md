@@ -1,6 +1,6 @@
 # 如何将啤酒与中餐搭配
 
-> 原文:[https://life hacker . com/how-to-pair-beer-Chinese-food-1821550929](https://lifehacker.com/how-to-pair-beer-with-chinese-food-1821550929)
+> 原文：<https://lifehacker.com/how-to-pair-beer-with-chinese-food-1821550929>
 
 有时庆祝节日的最好方式是喝一杯啤酒，吃一些美味的中国菜。但是，你应该喝什么啤酒配什么菜呢？
 

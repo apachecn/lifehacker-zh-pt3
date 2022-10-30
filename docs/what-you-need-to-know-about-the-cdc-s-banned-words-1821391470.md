@@ -1,6 +1,6 @@
 # 关于疾病预防控制中心的“禁用”词，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-the-CDC-s-banned-words-1821391470](https://lifehacker.com/what-you-need-to-know-about-the-cdc-s-banned-words-1821391470)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-cdc-s-banned-words-1821391470>
 
 周五， [《华盛顿邮报》](https://www.washingtonpost.com/national/health-science/cdc-gets-list-of-forbidden-words-fetus-transgender-diversity/2017/12/15/f503837a-e1cf-11e7-89e8-edec16379010_story.html?utm_term=.49c670b5d240) 报道称，疾病预防控制中心官员告诉工作人员在预算文件中保留七个术语:胎儿、多样性、跨性别、弱势、权利、基于科学和基于证据。这些话对大多数科学家来说是就事论事，但对政治家来说，它们是政治性的。
 

@@ -1,6 +1,6 @@
 # 用这些视频修复一个糟糕的教育(或增加一个好的教育)
 
-> 原文:[https://life hacker . com/fix-a-bad-education-or-augment-a-good-one with this-1807992040](https://lifehacker.com/fix-a-bad-education-or-augment-a-good-one-with-these-1807992040)
+> 原文：<https://lifehacker.com/fix-a-bad-education-or-augment-a-good-one-with-these-1807992040>
 
 有些人接受了很好的高中教育。但是我们中的一些人被送到了一所福音派基督教学校，在那里我们了解到进化论是一个谎言，哥伦布是一个很酷的人，而天主教徒是假装的。对于我们以及任何怀疑自己的教育可能需要修正主义更新的人来说，有免费的 YouTube 频道 [速成班](https://www.youtube.com/user/crashcourse/featured) 。
 

@@ -1,6 +1,6 @@
 # 如何给桃子去核
 
-> 原文:[https://lifehacker.com/how-to-pit-a-peach-1796987521](https://lifehacker.com/how-to-pit-a-peach-1796987521)
+> 原文：<https://lifehacker.com/how-to-pit-a-peach-1796987521>
 
 桃子可能有点粘人，尤其是在把它们从核里取出来的时候，但是你可以做一些事情来让这个有趣的任务变得简单一些。
 

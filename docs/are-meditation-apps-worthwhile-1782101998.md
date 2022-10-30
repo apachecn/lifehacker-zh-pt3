@@ -1,6 +1,6 @@
 # 付费冥想应用值得吗？
 
-> 原文:[https://life hacker . com/are-冥想-应用-值得-1782101998](https://lifehacker.com/are-meditation-apps-worthwhile-1782101998)
+> 原文：<https://lifehacker.com/are-meditation-apps-worthwhile-1782101998>
 
 冥想应用程序可以帮助你在一天中抽出时间来冥想，可以教你如何冥想或向你介绍新技术。它们的范围从简单的计时器到广泛的系列课程和订阅教程。让我们看几个，他们能为你做什么。
 

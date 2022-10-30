@@ -1,6 +1,6 @@
 # 游戏软件摊牌:罗技游戏 vs. Razer Synapse
 
-> 原文:[https://life hacker . com/gaming-software-download-Logitech-gaming-vs-Razer-syn-1741284196](https://lifehacker.com/gaming-software-showdown-logitech-gaming-vs-razer-syn-1741284196)
+> 原文：<https://lifehacker.com/gaming-software-showdown-logitech-gaming-vs-razer-syn-1741284196>
 
 罗技和雷蛇都有一些非常棒的游戏外设。无论你是在玩游戏还是 [完成真正的工作](http://lifehacker.com/why-i-started-using-gaming-peripherals-to-get-real-work-1705459320) ，它们都是很好的选择。他们使用的软件有一些微小但重要的区别。这是它们之间的对比。
 

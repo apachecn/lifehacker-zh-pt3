@@ -1,6 +1,6 @@
 # 做一份(部分)可口的圣诞早餐，以避免糖过量
 
-> 原文:[https://life hacker . com/make-a-part-savious-Christmas-breakfast-to-avoid-sug-1821539852](https://lifehacker.com/make-a-partly-savory-christmas-breakfast-to-avoid-sug-1821539852)
+> 原文：<https://lifehacker.com/make-a-partly-savory-christmas-breakfast-to-avoid-sug-1821539852>
 
 今天，当我把一些好玩的糖果放进圣诞袜的时候，我对自己说，哦，当我买肉桂卷的时候，我也应该买一些蛋奶酒，那会很好。一想到那个圣诞节的早晨，我就觉得恶心。
 

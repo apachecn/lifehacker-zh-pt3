@@ -1,6 +1,6 @@
 # LG 的 G7 ThinQ 用一系列巧妙的技巧挑战最好的 Android 手机
 
-> 原文:[https://gizmodo . com/LGS-G7-thinq-challenges-the-best-Android-phones-with-a-1825689978](https://gizmodo.com/lgs-g7-thinq-challenges-the-best-android-phones-with-a-1825689978)
+> 原文：<https://gizmodo.com/lgs-g7-thinq-challenges-the-best-android-phones-with-a-1825689978>
 
 LG 移动是墨守成规的。在过去两年半的时间里，其智能手机部门已经公布了总计超过 15 亿美元的亏损，该公司陷入困境的一个重要原因是其旗舰手机的销售不佳。当你回望 2016 年的时候， [LG G5](https://gizmodo.com/lg-g5-review-a-timid-attempt-to-put-the-gadget-back-in-1770037825) 从一开始就注定了。它有一个平淡无奇的设计和一个半生不熟的附加系统，需要人们关掉手机，取出电池才能切换模式。然后在 2017 年，LG 发布了[【G6】](https://gizmodo.com/the-lg-g6-is-too-damn-simple-1793815568)，它的攻击性要小得多，但与 [Galaxy S8 等竞争对手相比，在功能和风格上有所欠缺。](https://gizmodo.com/samsung-galaxy-s8-review-the-prettiest-phone-wins-1794526975)T15】
 

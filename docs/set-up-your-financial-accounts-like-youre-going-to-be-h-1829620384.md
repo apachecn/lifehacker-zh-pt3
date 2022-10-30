@@ -1,6 +1,6 @@
 # 设置你的金融账户，就像你会被黑客攻击一样
 
-> 原文:[https://life hacker . com/set-up-your-financial-accounts-like-you-to-be-h-1829620384](https://lifehacker.com/set-up-your-financial-accounts-like-youre-going-to-be-h-1829620384)
+> 原文：<https://lifehacker.com/set-up-your-financial-accounts-like-youre-going-to-be-h-1829620384>
 
 仅在过去一周，[【Experian】](https://twocents.lifehacker.com/check-your-credit-report-after-experians-credit-freeze-1829556105)和 [谷歌](https://www.theguardian.com/technology/2018/oct/08/google-plus-security-breach-wall-street-journal) 都经历了(或泄露，在谷歌的情况下)不同严重程度的安全漏洞，潜在地暴露了人们的私人信息。更别提 Equifax 和去年发生的数千起其他违规事件了。
 

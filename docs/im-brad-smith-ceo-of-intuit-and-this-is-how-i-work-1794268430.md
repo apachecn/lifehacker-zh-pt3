@@ -1,6 +1,6 @@
 # 我是 Brad Smith，Intuit 的首席执行官，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Brad-Smith-of-intuit-and-this-is-how-I-work-1794268430](https://lifehacker.com/im-brad-smith-ceo-of-intuit-and-this-is-how-i-work-1794268430)
+> 原文：<https://lifehacker.com/im-brad-smith-ceo-of-intuit-and-this-is-how-i-work-1794268430>
 
 布拉德·史密斯会空手道。不是“商业空手道”或任何关于团队合作的过度夸张的比喻；他真的教空手道。或者至少在他成为 Intuit 董事长兼首席执行官之前是这样。
 

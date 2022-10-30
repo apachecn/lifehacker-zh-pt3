@@ -1,6 +1,6 @@
 # 在此获取 2018 年 9 月的 Apple Keynote Bingo 卡片
 
-> 原文:[https://life hacker . com/get-your-apple-keynote-bingo-cards-for-September-2018-r-1828986150](https://lifehacker.com/get-your-apple-keynote-bingo-cards-for-september-2018-r-1828986150)
+> 原文：<https://lifehacker.com/get-your-apple-keynote-bingo-cards-for-september-2018-r-1828986150>
 
 。吃苹果宾果游戏的时间到了。当我在库比蒂诺勋爵工作时，在一次主题演讲中，我们都坐在会议室里吃甜甜圈，通过群发信息吃零食，并为我们更大团队中被选中出席活动的成员欢呼。我们没有玩宾果游戏。
 

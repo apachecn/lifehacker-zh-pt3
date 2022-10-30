@@ -1,6 +1,6 @@
 # 为什么更长的假期不一定是更好的假期
 
-> 原文:[https://life hacker . com/why-a-long-vacation-not-Beijing-a-between-vacatio-1818662450](https://lifehacker.com/why-a-longer-vacation-isnt-necessarily-a-better-vacatio-1818662450)
+> 原文：<https://lifehacker.com/why-a-longer-vacation-isnt-necessarily-a-better-vacatio-1818662450>
 
 “啊，就是这个。”是我们度假都想感叹的感叹。完全放松，完全享受，那种纯粹的度假感觉。但事实可能会证明，追求一个度假理想——无论是完美的日落、预先计划的旅行，还是只是期待在现实生活中看到大峡谷——正是如何最大限度地利用你的假期。
 

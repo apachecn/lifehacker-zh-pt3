@@ -1,6 +1,6 @@
 # 下载你的保险公司的应用程序，这样你就可以随时了解你的保单信息
 
-> 原文:[https://life hacker . com/download-your-insurance-companies-app-so-you-always-have-1819489189](https://lifehacker.com/download-your-insurance-companys-app-so-you-always-have-1819489189)
+> 原文：<https://lifehacker.com/download-your-insurance-companys-app-so-you-always-have-1819489189>
 
 我们大多数人都会在手套箱里保存一份汽车保险信息的副本。这是那些你可能一拿到就记得藏在那里的东西之一，但是如果你像我一样，如果你因为任何原因不得不把它拿走，你也很可能不小心忘记把它还回去。最糟糕的是，你不会意识到它不见了，直到你遇到事故或类似情况，需要它的时候…现在。或者更糟的是，你遭遇了一场事故，信息被销毁或随车拖走。
 

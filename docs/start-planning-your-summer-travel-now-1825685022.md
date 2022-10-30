@@ -1,6 +1,6 @@
 # 现在就开始计划你的夏季旅行吧
 
-> 原文:[https://life hacker . com/start-planning-your-summer-travel-now-1825685022](https://lifehacker.com/start-planning-your-summer-travel-now-1825685022)
+> 原文：<https://lifehacker.com/start-planning-your-summer-travel-now-1825685022>
 
 夏季旅行可能会非常昂贵，因为越来越多的人选择公路和天空，但你的假期不一定要花一大笔钱。预算旅行的首要规则是提前计划并在合适的时间预订。这很重要，所以现在就开始组织你的夏季行程吧。
 

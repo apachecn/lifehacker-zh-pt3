@@ -1,6 +1,6 @@
 # 为什么每个人都建议你应该在你还可以的时候使用宫内节育器
 
-> 原文:[https://life hacker . com/why-every-are-suggest-you-should-get-an-IUD-while-1788976312](https://lifehacker.com/why-everyone-is-suggesting-you-should-get-an-iud-while-1788976312)
+> 原文：<https://lifehacker.com/why-everyone-is-suggesting-you-should-get-an-iud-while-1788976312>
 
 你可能已经听到有人建议，如果你想确保自己在接下来的四年里都有避孕措施，你应该现在就预约宫内节育器植入。这是因为一月将带来一个新的政治时代，保险公司如何覆盖节育可能会发生变化。
 

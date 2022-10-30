@@ -1,6 +1,6 @@
 # 现在每个人都可以使用 280 个字符的推文
 
-> 原文:[https://life hacker . com/280-character-tweets-is-now-available-for-every one-1820231262](https://lifehacker.com/280-character-tweets-are-now-available-for-everyone-1820231262)
+> 原文：<https://lifehacker.com/280-character-tweets-are-now-available-for-everyone-1820231262>
 
 经过短暂的试用，Twitter 从今天开始正式向所有人发布 280 个字符的推文。从现在开始，你应该可以使用 Twitter 的网站和移动应用程序发布双倍数量的消息。
 

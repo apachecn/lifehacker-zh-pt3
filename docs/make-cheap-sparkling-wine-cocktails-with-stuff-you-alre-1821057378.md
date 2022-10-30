@@ -1,6 +1,6 @@
 # 用你厨房里已经有的东西制作便宜的起泡酒鸡尾酒
 
-> 原文:[https://life hacker . com/make-cheap-wine-cocktail-with-stuff-you-alre-1821057378](https://lifehacker.com/make-cheap-sparkling-wine-cocktails-with-stuff-you-alre-1821057378)
+> 原文：<https://lifehacker.com/make-cheap-sparkling-wine-cocktails-with-stuff-you-alre-1821057378>
 
 香槟鸡尾酒可能是最具庆祝性的鸡尾酒，但将真正的大写 c 香槟与掩盖味道的添加剂混合在一起有点浪费。然而，这并不意味着你不应该享受气泡饮料。事实上——加上一瓶价格合理的气泡酒——你可以用你厨房里已经有的东西做出美味、廉价和喜庆的酒。
 

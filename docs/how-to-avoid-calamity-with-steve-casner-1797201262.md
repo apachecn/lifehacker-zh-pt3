@@ -1,6 +1,6 @@
 # 如何避免灾难，史蒂夫·卡斯纳
 
-> 原文:[https://life hacker . com/how-to-avoid-disaster-with-Steve-cas ner-1797201262](https://lifehacker.com/how-to-avoid-calamity-with-steve-casner-1797201262)
+> 原文：<https://lifehacker.com/how-to-avoid-calamity-with-steve-casner-1797201262>
 
 本周，我们采访了《小心:我们容易受伤的头脑的用户指南 》一书的作者史蒂夫·卡斯纳。史蒂夫是美国国家航空航天局的研究心理学家，他研究我们在日常活动中受伤的方式和原因:无论是切菜、爬梯子，还是在街上行走。我们发现了如何保持安全，而不是整天躲在床上——以及为什么我们应该接受我们的坏态度。
 

@@ -1,6 +1,6 @@
 # 如何(以及为什么)打开 Apple Watch 4 的跌倒检测功能
 
-> 原文:[https://life hacker . com/how-and-why-to-turn-on-your-apple-watch-4s-fall-detec-1829278740](https://lifehacker.com/how-and-why-to-turn-on-your-apple-watch-4s-fall-detec-1829278740)
+> 原文：<https://lifehacker.com/how-and-why-to-turn-on-your-apple-watch-4s-fall-detec-1829278740>
 
 苹果为其新的 Apple Watch Series 4 宣布的更令人惊讶的功能之一是该设备的跌倒检测功能。不，它不能阻止你摔倒，但是如果你伤得很重，它可以帮助你更容易地提醒别人你需要帮助。
 

@@ -1,6 +1,6 @@
 # 你应该动用你的退休账户买房吗？
 
-> 原文:[https://life hacker . com/should-you-raid-your retirement-account-to-buy-a-house-1827446373](https://lifehacker.com/should-you-raid-your-retirement-account-to-buy-a-house-1827446373)
+> 原文：<https://lifehacker.com/should-you-raid-your-retirement-account-to-buy-a-house-1827446373>
 
 房子值你的退休储蓄吗？这是一位读者本周困惑的问题。
 

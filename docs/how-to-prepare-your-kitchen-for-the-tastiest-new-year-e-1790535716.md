@@ -1,6 +1,6 @@
 # 如何准备你的厨房迎接最美味的新年
 
-> 原文:[https://life hacker . com/how-to-prepare-your kitchen for the taste-year-e-1790535716](https://lifehacker.com/how-to-prepare-your-kitchen-for-the-tastiest-new-year-e-1790535716)
+> 原文：<https://lifehacker.com/how-to-prepare-your-kitchen-for-the-tastiest-new-year-e-1790535716>
 
 在家做饭和吃饭是省钱和吃得有营养的最好方法之一，但是你需要一个干净整洁的厨房来有效地做到这一点。有一个整洁的冰箱和餐具室会让你更容易看到*到底*你有什么，这意味着你能做出更好的饭菜，*和*浪费更少的食物和金钱。这里是我们让你的厨房在新的一年保持战斗状态的最佳建议。
 

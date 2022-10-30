@@ -1,6 +1,6 @@
 # 玛丽·米克尔报告告诉了我们关于科技世界的几乎一切
 
-> 原文:[https://life hacker . com/the-Mary-meeker-report-tell-us-almost-everything-about-1826463535](https://lifehacker.com/the-mary-meeker-report-tells-us-almost-everything-about-1826463535)
+> 原文：<https://lifehacker.com/the-mary-meeker-report-tells-us-almost-everything-about-1826463535>
 
 如果有人让你描述整个全球技术格局，你可能只会摇摇头，宣布这项任务不可能完成。但凯鹏华盈(Kleiner Perkins Caufield & Byers)的玛丽·米克尔每年都会这么做。她的报告已经发布，详细介绍了从全球智能手机出货量，到我们上网的时间，再到中国作为全球主要科技中心的发展。
 

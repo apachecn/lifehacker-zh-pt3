@@ -1,6 +1,6 @@
 # 用这些规则简化你的厨房台面
 
-> 原文:[https://life hacker . com/streamline-your ' s kitchen-counter top-with these-rules-1796236035](https://lifehacker.com/streamline-your-kitchen-countertop-with-these-rules-1796236035)
+> 原文：<https://lifehacker.com/streamline-your-kitchen-countertop-with-these-rules-1796236035>
 
 对于我们这些住在厨房不太宽敞的房子里的人来说，柜台空间是一个宝贵的东西，很难决定谁可以在户外闲逛。基本上，你的工作台面是一个工作空间，这意味着你需要*空间来工作*，把每一个设备都拿出来会有点拥挤。
 

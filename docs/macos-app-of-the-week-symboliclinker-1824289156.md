@@ -1,6 +1,6 @@
 # macOS 本周应用:SymbolicLinker 熟料
 
-> 原文:[https://life hacker . com/MAC OS-app-of-the-week-symbol clink-1824289156](https://lifehacker.com/macos-app-of-the-week-symboliclinker-1824289156)
+> 原文：<https://lifehacker.com/macos-app-of-the-week-symboliclinker-1824289156>
 
 正因为我们如此喜欢 Windows 上的符号链接——谢谢，[Steam Mover](https://lifehacker.com/windows-app-of-the-week-steam-mover-1824285685#_ga=2.155168696.1626577895.1522540410-396842925.1520800403)——我们将向你展示一个方便的 macOS 应用程序，它也可以让你在苹果的操作系统上设置符号链接。
 

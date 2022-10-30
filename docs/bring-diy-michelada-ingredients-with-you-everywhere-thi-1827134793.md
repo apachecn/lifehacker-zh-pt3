@@ -1,6 +1,6 @@
 # 这个夏天，带着自己动手制作的米开朗琪罗食材，随处可见
 
-> 原文:[https://life hacker . com/bring-DIY-michelada-ingredients-with-you-everywhere-thi-1827134793](https://lifehacker.com/bring-diy-michelada-ingredients-with-you-everywhere-thi-1827134793)
+> 原文：<https://lifehacker.com/bring-diy-michelada-ingredients-with-you-everywhere-thi-1827134793>
 
 在最近的一个夏日周日，我和朋友梅根在酒吧喝一杯 Modelo，感叹这不是 michelada。我试着点了一杯，但酒保告诉我他们没有，虽然冰镇啤酒很提神，但我想在里面加点香料、辣酱和酸橙。
 

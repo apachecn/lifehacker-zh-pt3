@@ -1,6 +1,6 @@
 # 节省 100 万美元的最快方法
 
-> 原文:[https://life hacker . com/1829372702](https://lifehacker.com/the-fastest-way-to-save-1-million-1829372702)
+> 原文：<https://lifehacker.com/the-fastest-way-to-save-1-million-1829372702>
 
 读一篇关于个人理财的文章，你就会知道复利是尽早开始储蓄和投资的最重要的原因之一。理论上来说。你听说过，如果你在 20 多岁开始投资，你会比 30 多岁时多赚几十亿美元。或者类似的东西。
 

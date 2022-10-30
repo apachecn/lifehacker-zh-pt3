@@ -1,6 +1,6 @@
 # 如何在 MacOS Sierra 中使用 Siri 进行免提操作
 
-> 原文:[https://life hacker . com/how-to-go-hands-free-with-Siri-in-MAC OS-Sierra-1786858883](https://lifehacker.com/how-to-go-hands-free-with-siri-in-macos-sierra-1786858883)
+> 原文：<https://lifehacker.com/how-to-go-hands-free-with-siri-in-macos-sierra-1786858883>
 
 [Siri 是 macOS Sierra](http://lifehacker.com/all-the-new-stuff-in-macos-sierra-1786817117) 中具有里程碑意义的新功能，但不幸的是，你必须点击图标或键盘快捷键才能与电脑对话。由于“嘿 Siri”是 iOS 上最好的功能之一，这是一个败笔。好在你也可以把它黑进你的 Mac 电脑。
 

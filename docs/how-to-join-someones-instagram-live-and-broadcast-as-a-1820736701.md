@@ -1,6 +1,6 @@
 # 如何加入某人的 Instagram 直播并作为嘉宾直播
 
-> 原文:[https://life hacker . com/how-to-join-someones-insta gram-live-and-broadcast-as-a-1820736701](https://lifehacker.com/how-to-join-someones-instagram-live-and-broadcast-as-a-1820736701)
+> 原文：<https://lifehacker.com/how-to-join-someones-instagram-live-and-broadcast-as-a-1820736701>
 
 Instagram Live 不一定是单行道。如果击碎那个心脏按钮还不够，如果评论还不能满足你的互动需求，现在你可以自己加入进来。
 

@@ -1,6 +1,6 @@
 # 植物蛋白比动物蛋白对你更好吗？
 
-> 原文:[https://life hacker . com/is-plant-protein-better-to-you-than-animal-protein-1827628766](https://lifehacker.com/is-plant-protein-better-for-you-than-animal-protein-1827628766)
+> 原文：<https://lifehacker.com/is-plant-protein-better-for-you-than-animal-protein-1827628766>
 
 我们都需要蛋白质，但肉类并不是唯一能找到蛋白质的地方。那些用植物蛋白替代动物蛋白的人通常会吃得更健康，但是在假设植物蛋白总是更健康之前，你需要知道一些事情。
 

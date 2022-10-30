@@ -1,6 +1,6 @@
 # 如何克服你内心的疑虑并完成任务
 
-> 原文:[https://life hacker . com/how-to-over-your-inner-dialogue-of-question-get-ST-1754102855](https://lifehacker.com/how-to-overcome-your-inner-dialogue-of-doubt-and-get-st-1754102855)
+> 原文：<https://lifehacker.com/how-to-overcome-your-inner-dialogue-of-doubt-and-get-st-1754102855>
 
 当你试图开始一件新的事情时，你内心的对话会放大你的自我怀疑，最终你会在开始前放弃。这种消极的自省会完全阻碍你的生产力。幸运的是，你可以花一秒钟来摆脱你的头脑，把事情做好。
 

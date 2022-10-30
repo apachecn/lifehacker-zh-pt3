@@ -1,6 +1,6 @@
 # 什么时候可以取消婚礼、葬礼和其他重大事件？
 
-> 原文:[https://life hacker . com/when-it-ok-to-blow-off-婚丧嫁娶及其他-1819444512](https://lifehacker.com/when-is-it-ok-to-blow-off-weddings-funerals-and-other-1819444512)
+> 原文：<https://lifehacker.com/when-is-it-ok-to-blow-off-weddings-funerals-and-other-1819444512>
 
 在一个理想的世界里，也许你喜欢花大部分空闲时间参加你最亲近的人的婚礼、生日和其他生命周期事件。但是生活、工作和地理界限经常会成为障碍，这使得为每一个亲密的朋友和家庭成员出席每一个里程碑事件成为一个棘手的命题。
 

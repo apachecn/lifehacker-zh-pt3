@@ -1,6 +1,6 @@
 # 当你应该或不应该关注每月汽车付款
 
-> 原文:[https://jalopnik . com/when-you-should and-should-not-focus on-monthly-car-payme-1788184365](https://jalopnik.com/when-you-should-and-shouldnt-focus-on-monthly-car-payme-1788184365)
+> 原文：<https://jalopnik.com/when-you-should-and-shouldnt-focus-on-monthly-car-payme-1788184365>
 
 说到买车， [关注总费用而不是月供](https://jalopnik.com/its-probably-your-own-fault-if-your-car-payments-are-to-1762856007) 的建议已经有一段时间了。但人们是习惯的动物，得到帮助，但陷入每月付款的心态。然而，做这件事有正确和错误的方法。
 

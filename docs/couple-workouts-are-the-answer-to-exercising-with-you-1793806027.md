@@ -1,6 +1,6 @@
 # “夫妻锻炼”是和你的伴侣一起锻炼的答案
 
-> 原文:[https://life hacker . com/情侣健身是与你一起锻炼的答案 1793806027](https://lifehacker.com/couple-workouts-are-the-answer-to-exercising-with-you-1793806027)
+> 原文：<https://lifehacker.com/couple-workouts-are-the-answer-to-exercising-with-you-1793806027>
 
  [https://lifehacker.com/embed/inset/iframe?id=instagram-BOv_QDahWGo&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-BOv_QDahWGo&autosize=1) 
 

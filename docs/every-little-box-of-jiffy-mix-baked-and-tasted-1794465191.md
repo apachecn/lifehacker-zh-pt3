@@ -1,6 +1,6 @@
 # 每一盒 Jiffy 混合，烘焙和品尝
 
-> 原文:[https://life hacker . com/every-little-box-of-jiffy-mix-baked-and-taste-1794465191](https://lifehacker.com/every-little-box-of-jiffy-mix-baked-and-tasted-1794465191)
+> 原文：<https://lifehacker.com/every-little-box-of-jiffy-mix-baked-and-tasted-1794465191>
 
 Jiffy 烘焙混合物是标志性的，可爱的，但你可能只用过一两种——其中一种可能是玉米松饼混合物。但是还有许多其他的混合食品可以探索，因为我是一个专注的食品调查记者，我决定测试所有我能找到的小蓝盒子。
 

@@ -1,6 +1,6 @@
 # 所有你需要知道的关于购买或租赁汽车阵亡将士纪念日周末
 
-> 原文:[https://jalopnik . com/everything-you-need-know-on-buying-a-c-1778671998](https://jalopnik.com/everything-you-need-to-know-about-buying-or-leasing-a-c-1778671998)
+> 原文：<https://jalopnik.com/everything-you-need-to-know-about-buying-or-leasing-a-c-1778671998>
 
 阵亡将士纪念日拉开了夏季的序幕，你们中的一些人将利用假期来购买新的坐骑。这个周末可能是一个抓住一些销售的好机会，所以这里有一些我们的顶级技巧来获得一笔好交易。
 

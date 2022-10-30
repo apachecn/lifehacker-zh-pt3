@@ -1,6 +1,6 @@
 # 了解一家公司有多关爱家庭
 
-> 原文:[https://life hacker . com/find-out-how-family-friendly-a-company-is-1824029780](https://lifehacker.com/find-out-how-family-friendly-a-company-is-1824029780)
+> 原文：<https://lifehacker.com/find-out-how-family-friendly-a-company-is-1824029780>
 
 养家对员工好， [对事业好](https://www.forbes.com/sites/georgenehuang/2017/02/28/the-business-case-for-paid-family-leave-at-your-company/#5f4349f24eae) 。父母或未来的父母希望，T4 需要，为理解这一点的公司工作，但是诸如育儿假和儿童保育津贴等福利，以及当你知道如何照顾一个新人时有一些弹性时间的机会，通常不会在面试中讨论。稍加研究，你可能会发现一家公司家庭政策的基本情况，但很难了解全貌。招聘网站的确扩大了它的数据点，给潜在的员工更多的洞察力。
 

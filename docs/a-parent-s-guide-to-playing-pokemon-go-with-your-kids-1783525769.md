@@ -1,6 +1,6 @@
 # 与孩子一起玩神奇宝贝 Go 的家长指南
 
-> 原文:[https://life hacker . com/a-parent-s-guide-to-playing-pokemon-go-with-your-kids-1783525769](https://lifehacker.com/a-parent-s-guide-to-playing-pokemon-go-with-your-kids-1783525769)
+> 原文：<https://lifehacker.com/a-parent-s-guide-to-playing-pokemon-go-with-your-kids-1783525769>
 
 虽然《精灵宝可梦 Go》面向成年人和青少年，但很多父母也和他们的孩子一起玩。昨天我帮幼儿园安装了它，我们花了一个下午在公园里寻找皮卡丘。有一些安全问题，但也有很多锻炼和学习的潜力。
 

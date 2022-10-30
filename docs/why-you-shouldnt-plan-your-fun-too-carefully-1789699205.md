@@ -1,6 +1,6 @@
 # 为什么你不应该太仔细地计划你的乐趣
 
-> 原文:[https://life hacker . com/why-you-should-not-plan-you-fun-too-careful-1789699205](https://lifehacker.com/why-you-shouldnt-plan-your-fun-too-carefully-1789699205)
+> 原文：<https://lifehacker.com/why-you-shouldnt-plan-your-fun-too-carefully-1789699205>
 
 你有没有发现自己害怕一项你提前几天或几周就迫不及待安排好的休闲活动？几年前，当我回土耳其旅行时，我第一次发现自己这样做了。我兴奋地计划会见一些老朋友。但令我惊讶的是，随着日期的临近，我开始对这些期待已久的团聚感到不情愿和不热情。
 

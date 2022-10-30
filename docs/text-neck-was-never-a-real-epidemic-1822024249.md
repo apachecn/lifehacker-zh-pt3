@@ -1,6 +1,6 @@
 # 短信脖子从来就不是真正的流行病
 
-> 原文:[https://life hacker . com/text-neck-was-never-a-real-epidemic-1822024249](https://lifehacker.com/text-neck-was-never-a-real-epidemic-1822024249)
+> 原文：<https://lifehacker.com/text-neck-was-never-a-real-epidemic-1822024249>
 
 不到十年前，人们开始伸长脖子看手机，这种毁灭性的流行病首次被发现，你是否深受其害？然后你有了“短信脖子”，一种几乎可以肯定从一开始就不存在的疾病。
 

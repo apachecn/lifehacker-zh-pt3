@@ -1,6 +1,6 @@
 # 看看这些元素周期表中每一个元素的免费课程
 
-> 原文:[https://life hacker . com/check-out-these-free-lessons-on-every-single-element-on-1825503122](https://lifehacker.com/check-out-these-free-lessons-on-every-single-element-on-1825503122)
+> 原文：<https://lifehacker.com/check-out-these-free-lessons-on-every-single-element-on-1825503122>
 
 你知道铍对 X 射线是透明的吗？或者钇存在于月球岩石和防弹玻璃中？或者说锔是以皮埃尔和玛丽·居里的名字命名的？还是因为钽被用于手机，对它的需求变得如此巨大，以至于中非爆发了战争？我做到了，因为我一直在点击 TED-Ed 平台 上的 [这个互动图表，它的特色是关于元素周期表中每一个元素的免费课程。去吧。问我任何关于 hassium 的事。【*疯狂地评论哈苏姆。*](http://ed.ted.com/periodic-videos) 
 

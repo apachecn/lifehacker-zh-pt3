@@ -1,6 +1,6 @@
 # 三种成分的欢乐时光:茱莉亚·切尔德最受欢迎的马提尼
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-Julia-childs-favorite-martini-1824272131](https://lifehacker.com/3-ingredient-happy-hour-julia-childs-favorite-martini-1824272131)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-julia-childs-favorite-martini-1824272131>
 
 朋友们，周五快乐，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。我要去法国上烹饪课 [这里](https://en.wikipedia.org/wiki/La_Pitchoune) ，所以我想我要用茱莉亚·切尔德最喜欢的鸡尾酒来庆祝:颠倒的马提尼。
 

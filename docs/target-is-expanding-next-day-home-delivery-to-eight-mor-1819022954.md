@@ -1,6 +1,6 @@
 # Target 正在将次日送货上门服务扩展到另外八个城市
 
-> 原文:[https://life hacker . com/target-is-expanding-next-day-home-delivery-to-eight-mor-1819022954](https://lifehacker.com/target-is-expanding-next-day-home-delivery-to-eight-mor-1819022954)
+> 原文：<https://lifehacker.com/target-is-expanding-next-day-home-delivery-to-eight-mor-1819022954>
 
 塔吉特百货的店内提货已经是现代生活的一大福利，尤其是对我们这些住在经常人满为患、人满为患的商店附近的人来说。但是塔吉特百货正在建立一个更加方便的网上购物选项，塔吉特百货，提供居家必需品的次日送达服务。
 

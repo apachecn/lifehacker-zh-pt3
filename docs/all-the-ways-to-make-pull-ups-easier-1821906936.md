@@ -1,6 +1,6 @@
 # 如何让引体向上变得更容易
 
-> 原文:[https://life hacker . com/all-the-ways-to-make-pull-easy-1821906936](https://lifehacker.com/all-the-ways-to-make-pull-ups-easier-1821906936)
+> 原文：<https://lifehacker.com/all-the-ways-to-make-pull-ups-easier-1821906936>
 
 从零个引体向上到一个引体向上 的 [旅程是漫长而艰难的，有时似乎难以逾越。一旦你到了那里，胜利就转瞬即逝:你尝试的每一套都包含一个微不足道的代表。无论哪种方式，你都需要一些方法来实现这个崇高的练习。](https://lifehacker.com/january-s-fitness-challenge-grab-onto-that-pull-up-bar-1821717656) 
 

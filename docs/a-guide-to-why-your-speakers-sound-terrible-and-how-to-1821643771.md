@@ -1,6 +1,6 @@
 # 为什么你的音箱声音很难听，如何升级
 
-> 原文:[https://gizmodo . com/a-guide-to-why-your-speakers-sound-terrible and-how-to-1821643771](https://gizmodo.com/a-guide-to-why-your-speakers-sound-terrible-and-how-to-1821643771)
+> 原文：<https://gizmodo.com/a-guide-to-why-your-speakers-sound-terrible-and-how-to-1821643771>
 
 你的手机有一个，你的笔记本电脑有一个，你在房间的角落里有一个智能的告诉你天气——但是好的演讲者和一般的演讲者有什么不同呢？为什么你可能会考虑升级你的电视或电脑的音频功能，如果你这样做，你应该寻找什么？
 

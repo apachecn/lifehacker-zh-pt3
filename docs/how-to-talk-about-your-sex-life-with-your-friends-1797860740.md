@@ -1,6 +1,6 @@
 # 如何和朋友谈论你的性生活
 
-> 原文:[https://life hacker . com/how-to-talk-about-your-sex-life-friends-1797860740](https://lifehacker.com/how-to-talk-about-your-sex-life-with-your-friends-1797860740)
+> 原文：<https://lifehacker.com/how-to-talk-about-your-sex-life-with-your-friends-1797860740>
 
 和朋友谈性是一把双刃剑。一方面，能够公开和诚实地谈论性，对于与你的性发展健康的关系是至关重要的。有时候你只是需要朋友的建议。另一方面，你的性生活通常是你和伴侣 a 的共同之处，他们对你向你的朋友透露什么没有发言权。当你想到你的一个伙伴分享你的信息时，你会再三考虑是否要把所有有趣的细节透露给你的朋友，对吗？
 

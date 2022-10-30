@@ -1,6 +1,6 @@
 # 如何做出正宗的爱尔兰咖啡
 
-> 原文:[https://life hacker . com/how-to-make-a-authentic-Irish-coffee-1823860927](https://lifehacker.com/how-to-make-an-authentic-irish-coffee-1823860927)
+> 原文：<https://lifehacker.com/how-to-make-an-authentic-irish-coffee-1823860927>
 
 几年前我去都柏林旅行时，一天下午，我在酒吧和一群老年爱尔兰妇女成了朋友。在谈话的某个时候，我发现我从来没有喝过真正的爱尔兰咖啡。几秒钟后，他们确定我手里有一个，我就上钩了。
 

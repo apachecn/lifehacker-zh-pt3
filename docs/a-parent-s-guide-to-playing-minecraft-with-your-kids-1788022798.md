@@ -1,6 +1,6 @@
 # 和孩子一起玩《我的世界》的家长指南
 
-> 原文:[https://life hacker . com/a-parent-s-guide-to-play-minecraft-with-your-kids-1788022798](https://lifehacker.com/a-parent-s-guide-to-playing-minecraft-with-your-kids-1788022798)
+> 原文：<https://lifehacker.com/a-parent-s-guide-to-playing-minecraft-with-your-kids-1788022798>
 
 当你的孩子对一个流行现象表现出兴趣时，通常没什么好理解的——你只是帮他们打开视频，把玩具放在他们的生日愿望清单上。但是当你的孩子回家后坚持说他们需要 T1 来扮演《我的世界》，这就有点棘手了。你还需要学习。
 

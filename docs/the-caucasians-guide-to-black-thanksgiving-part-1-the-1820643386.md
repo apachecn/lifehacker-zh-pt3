@@ -1,6 +1,6 @@
 # 高加索人的黑色感恩节指南，第 1 部分:宾客名单
 
-> 原文:[https://www . the root . com/the-Caucasians-guide-to-black-感恩节-part-1-the-1820643386](https://www.theroot.com/the-caucasians-guide-to-black-thanksgiving-part-1-the-1820643386)
+> 原文：<https://www.theroot.com/the-caucasians-guide-to-black-thanksgiving-part-1-the-1820643386>
 
 根‘正在努力满足我们高加索选民的好奇心，作为这一努力的一部分，我们决定让你一窥美国黑人的一些文化习俗。非裔美国人社区最古老和最受欢迎的传统之一是被称为黑色感恩节的仪式。
 

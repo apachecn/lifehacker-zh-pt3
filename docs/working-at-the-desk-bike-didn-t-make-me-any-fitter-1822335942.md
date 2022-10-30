@@ -1,6 +1,6 @@
 # 在这辆台式自行车上工作并没有让我变得更健康
 
-> 原文:[https://gizmodo . com/work-in-the-desk-bike-not-make-me-any-fitter-1822335942](https://gizmodo.com/working-at-the-desk-bike-didn-t-make-me-any-fitter-1822335942)
+> 原文：<https://gizmodo.com/working-at-the-desk-bike-didn-t-make-me-any-fitter-1822335942>
 
 我坐在桌子前，叫卖，摇晃，打字，寻找“区域”你看，这个区域是一个省略号。这是当你深入一个项目，忙于忽视你周围的环境，集中注意力于手头的任务。
 

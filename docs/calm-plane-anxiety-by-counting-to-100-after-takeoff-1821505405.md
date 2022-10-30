@@ -1,6 +1,6 @@
 # 通过在起飞时数到 100 来缓解飞机焦虑
 
-> 原文:[https://life hacker . com/calm-plane-anxiety-by-counting-to-100-after-起飞-1821505405](https://lifehacker.com/calm-plane-anxiety-by-counting-to-100-after-takeoff-1821505405)
+> 原文：<https://lifehacker.com/calm-plane-anxiety-by-counting-to-100-after-takeoff-1821505405>
 
 如果你是一个焦虑的乘客，这里有一个方法可以让你在飞行开始时平静下来:数到 100。
 

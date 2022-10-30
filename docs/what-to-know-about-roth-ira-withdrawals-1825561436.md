@@ -1,6 +1,6 @@
 # 这是关于罗斯个人退休帐户提款的规定
 
-> 原文:[https://life hacker . com/what-to-know-about-Roth-IRA-取款-1825561436](https://lifehacker.com/what-to-know-about-roth-ira-withdrawals-1825561436)
+> 原文：<https://lifehacker.com/what-to-know-about-roth-ira-withdrawals-1825561436>
 
 与传统退休账户相比，罗斯个人退休账户提供免税增长和更灵活的提款规则，使其成为个人金融作家和博客作者的热门储蓄产品。但是要充分利用它们，你需要确切地知道那些的提款规则是什么，它们可能会变得很复杂。
 

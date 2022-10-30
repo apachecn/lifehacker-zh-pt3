@@ -1,6 +1,6 @@
 # 每周在脸书网上免费播放一场 MLB 比赛
 
-> 原文:[https://life hacker . com/stream-an-MLB-game-on-Facebook-1825447668](https://lifehacker.com/stream-an-mlb-game-for-free-every-week-on-facebook-1825447668)
+> 原文：<https://lifehacker.com/stream-an-mlb-game-for-free-every-week-on-facebook-1825447668>
 
 如果你想在本赛季晚些时候观看你最喜欢的 MLB 队的客场比赛，你可能必须前往脸书。
 

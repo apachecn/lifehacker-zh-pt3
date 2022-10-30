@@ -1,6 +1,6 @@
 # 如何从脸书删除您的电话联系人
 
-> 原文:[https://life hacker . com/how-to-delete-your-phone-contacts-from-Facebook-1824074511](https://lifehacker.com/how-to-delete-your-phone-contacts-from-facebook-1824074511)
+> 原文：<https://lifehacker.com/how-to-delete-your-phone-contacts-from-facebook-1824074511>
 
 脸书的可怕、恐怖、不好、非常糟糕的一周 [继续](https://lifehacker.com/how-to-find-out-everything-facebook-knows-about-you-1824022899) 。尽管社交网络的“联系人导入”功能已经存在了很长很长时间，但你可能已经忘记了。如果你想阻止脸书通过收集你的朋友的数据——或者更糟的是，你的通话数据记录——来填补空白，很容易关闭你的设备。
 

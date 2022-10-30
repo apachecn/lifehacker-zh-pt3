@@ -1,6 +1,6 @@
 # 如何保护你的孩子免受 YouTube 上令人不安的假粉红猪小妹视频的影响
 
-> 原文:[https://life hacker . com/how-to-protect-your-kids from-disturning-fake-peppa-pi-1797768331](https://lifehacker.com/how-to-protect-your-kids-from-disturbing-fake-peppa-pi-1797768331)
+> 原文：<https://lifehacker.com/how-to-protect-your-kids-from-disturbing-fake-peppa-pi-1797768331>
 
 我对*粉红猪小妹*很酷。Peppa 是一个迷人的不完美的猪孩子，而猪爸爸，尽管属于陈词滥调的糊涂父亲类型，却让我咯咯地笑。还有谁能抗拒乔治对恐龙先生的一根筋的执念？当我四岁的女儿要求看英国学前卡通片时，我没有太多抗议，对我来说，找到一系列剧集的最快方法是抓起 iPad，在 YouTube 上键入“粉红猪小妹”。
 

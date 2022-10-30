@@ -1,6 +1,6 @@
 # 与你的伴侣建立一个信息渠道，在那里你不能谈论家务或你的孩子
 
-> 原文:[https://life hacker . com/start-a-messaging-channel-with-you-partner-where-you-c-1819655875](https://lifehacker.com/start-a-messaging-channel-with-your-partner-where-you-c-1819655875)
+> 原文：<https://lifehacker.com/start-a-messaging-channel-with-your-partner-where-you-c-1819655875>
 
 在长期的同居关系中，有时当你收到伴侣发来的短信或邮件时，你的第一反应会从甜蜜的眩晕变成现在。你的在线信息渠道变成了日程确认和日常任务提醒的运行列表——这是必要的，但非常不浪漫。
 

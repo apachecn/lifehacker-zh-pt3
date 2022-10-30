@@ -1,6 +1,6 @@
 # 任何沙拉都可以是夏卷
 
-> 原文:[https://life hacker . com/any-salad-can-a-summer-roll-1828337886](https://lifehacker.com/any-salad-can-be-a-summer-roll-1828337886)
+> 原文：<https://lifehacker.com/any-salad-can-be-a-summer-roll-1828337886>
 
 关于夏季卷有一些非常令人满意的东西。虽然我喜欢好吃的蛋卷、春卷或任何其他油炸卷状食品，但更轻、更凉爽、更耐嚼的夏卷是我经常渴望的，尤其是在这些出汗较多的月份。
 

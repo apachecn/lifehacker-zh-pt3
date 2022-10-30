@@ -1,6 +1,6 @@
 # 停止犯这些 401(k)错误
 
-> 原文:[https://life hacker . com/stop-making-these-401-k-errors-1826189548](https://lifehacker.com/stop-making-these-401-k-mistakes-1826189548)
+> 原文：<https://lifehacker.com/stop-making-these-401-k-mistakes-1826189548>
 
 如果你已经承诺为你的 401(k)计划做出贡献——太好了！在为健康退休做准备方面，你走在了很多人的前面。
 

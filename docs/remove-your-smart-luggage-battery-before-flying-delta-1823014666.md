@@ -1,6 +1,6 @@
 # 乘坐达美航空之前，请取出您的智能行李电池
 
-> 原文:[https://life hacker . com/remove-your-smart-luggage-battery-before-flight-delta-1823014666](https://lifehacker.com/remove-your-smart-luggage-battery-before-flying-delta-1823014666)
+> 原文：<https://lifehacker.com/remove-your-smart-luggage-battery-before-flying-delta-1823014666>
 
 如果你有一个智能行李箱，并计划登上达美航班，那么你必须在登机前取下电池——即使你计划携带它。
 

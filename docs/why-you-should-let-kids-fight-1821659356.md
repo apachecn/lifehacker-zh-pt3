@@ -1,6 +1,6 @@
 # 为什么你应该让孩子打架
 
-> 原文:[https://life hacker . com/why-you-should-let-kids-fight-1821659356](https://lifehacker.com/why-you-should-let-kids-fight-1821659356)
+> 原文：<https://lifehacker.com/why-you-should-let-kids-fight-1821659356>
 
 孩子们有很多事情要争——最后一个恐龙块，谁更高，谁将成为 Juniper 的本周最佳朋友。在美国，父母往往会恼怒地回应这些童年的争吵，进入裁判模式，强迫孩子 [分享](https://lifehacker.com/what-to-say-to-little-kids-instead-of-share-1819753096) 或 [道歉](https://offspring.lifehacker.com/what-to-say-to-little-kids-instead-of-say-sorry-1819288365) 或在房间的对面休息一下。我们想要和平，我们现在就想要...*请问？*
 

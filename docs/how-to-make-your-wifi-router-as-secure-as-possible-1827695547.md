@@ -1,6 +1,6 @@
 # 如何让你的 Wifi 路由器尽可能安全
 
-> 原文:[https://life hacker . com/how-to-make-your-wifi-router-as-secure-as-possible-1827695547](https://lifehacker.com/how-to-make-your-wifi-router-as-secure-as-possible-1827695547)
+> 原文：<https://lifehacker.com/how-to-make-your-wifi-router-as-secure-as-possible-1827695547>
 
 [Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
 

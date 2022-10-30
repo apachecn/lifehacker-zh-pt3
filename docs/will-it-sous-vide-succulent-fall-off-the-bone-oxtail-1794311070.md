@@ -1,6 +1,6 @@
 # 它会腐烂吗？多汁的去骨牛尾
 
-> 原文:[https://life hacker . com/will-it-sous-vide-lucent-fall-off-the-bone-oxtail-1794311070](https://lifehacker.com/will-it-sous-vide-succulent-fall-off-the-bone-oxtail-1794311070)
+> 原文：<https://lifehacker.com/will-it-sous-vide-succulent-fall-off-the-bone-oxtail-1794311070>
 
 问候我最喜欢的人，欢迎回到非常丰富的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

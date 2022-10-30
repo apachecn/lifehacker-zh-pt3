@@ -1,6 +1,6 @@
 # 避孕药影响你性生活的所有方式，不管是好是坏
 
-> 原文:[https://life hacker . com/all-the-ways-避孕药-能影响你的性别-li-1733400811](https://lifehacker.com/all-the-ways-birth-control-pills-can-affect-your-sex-li-1733400811)
+> 原文：<https://lifehacker.com/all-the-ways-birth-control-pills-can-affect-your-sex-li-1733400811>
 
 大约有 1000 万美国妇女 服用某种形式的避孕药，而且理由很充分:避孕药是最有效的避孕方法之一。但是扰乱你的荷尔蒙会以积极和消极的方式改变你的性生活。作为一名服药者或服药者的伴侣，以下是你需要知道的。
 

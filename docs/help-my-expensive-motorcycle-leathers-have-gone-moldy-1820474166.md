@@ -1,6 +1,6 @@
 # 救命啊！我昂贵的摩托车皮革发霉了
 
-> 原文:[https://jalopnik . com/help-my-bigged-motor-leaders-have-goed-molded-1820474166](https://jalopnik.com/help-my-expensive-motorcycle-leathers-have-gone-moldy-1820474166)
+> 原文：<https://jalopnik.com/help-my-expensive-motorcycle-leathers-have-gone-moldy-1820474166>
 
 你刚把你心爱的摩托车皮革从仓库里拿出来，却发现它们长满了霉菌，这让你很害怕。你是做什么的？嗯，你问一个干净的人！
 

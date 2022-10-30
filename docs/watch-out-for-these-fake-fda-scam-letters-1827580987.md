@@ -1,6 +1,6 @@
 # 小心这些伪造的 FDA 诈骗信
 
-> 原文:[https://life hacker . com/watch-for-these-fake-FDA-scam-letters-1827580987](https://lifehacker.com/watch-out-for-these-fake-fda-scam-letters-1827580987)
+> 原文：<https://lifehacker.com/watch-out-for-these-fake-fda-scam-letters-1827580987>
 
 如果你从非法网上药店购买了药物，你可能有很多理由担心——但 FDA 的警告信不应该是其中之一。FDA [向非法药店发送令人厌恶的信件](https://www.fda.gov/ICECI/EnforcementActions/WarningLetters/ucm278624.htm) ，而不是典型的给顾客。这意味着，如果你收到一封来自“食品和药物管理局”的信，有人试图欺骗你。
 

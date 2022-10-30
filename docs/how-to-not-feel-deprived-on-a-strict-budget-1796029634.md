@@ -1,6 +1,6 @@
 # 如何在严格的预算下不感到被剥夺
 
-> 原文:[https://life hacker . com/how-to-not-feel-disked-on-strict-budget-1796029634](https://lifehacker.com/how-to-not-feel-deprived-on-a-strict-budget-1796029634)
+> 原文：<https://lifehacker.com/how-to-not-feel-deprived-on-a-strict-budget-1796029634>
 
 破产很糟糕，当全世界都认为你破产是因为你在奢侈品上花了太多钱时，那就更糟糕了。当你挣扎着度过难关，把预算削减到最低限度时，鳄梨吐司是你最不想吃的东西。然而，你经常被诱惑去放弃和挥霍。这里有一个关于如何保持精神状态的建议。
 

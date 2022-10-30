@@ -1,6 +1,6 @@
 # 谷歌航班现在预测航班延误
 
-> 原文:[https://life hacker . com/Google-flights-now-predicts-flight-delays-1822570570](https://lifehacker.com/google-flights-now-predicts-flight-delays-1822570570)
+> 原文：<https://lifehacker.com/google-flights-now-predicts-flight-delays-1822570570>
 
 你已经在机场等了两个小时，你已经打了预防针，准备登机了。只有一个问题:*没有平面*。我们都经历过。航班延误是一个巨大的头痛问题，谷歌航班刚刚更新了一些功能，以帮助缓解这一痛苦。
 

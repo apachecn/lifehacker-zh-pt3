@@ -1,6 +1,6 @@
 # 减少无用的观点，解放你的思想
 
-> 原文:[https://life hacker . com/free-your-mind by-hacken-less-used-opinions-1820235528](https://lifehacker.com/free-your-mind-by-having-fewer-useless-opinions-1820235528)
+> 原文：<https://lifehacker.com/free-your-mind-by-having-fewer-useless-opinions-1820235528>
 
 上周，我去见了作者，当时他正在为*海龟们进行巡回售书。这是一个充满激情的演讲的有趣夜晚，他的哥哥汉克打扮成海龟教授(真的)，可疑的建议，甚至音乐，但格林说的一些话真的让我印象深刻。* 
 

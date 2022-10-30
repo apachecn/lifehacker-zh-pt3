@@ -1,6 +1,6 @@
 # 如何用 ABS 刹车在雪地上停车
 
-> 原文:[https://jalopnik . com/how-to-stop-on-snow-by-ABS-brakes-1790269905](https://jalopnik.com/how-to-stop-on-snow-with-abs-brakes-1790269905)
+> 原文：<https://jalopnik.com/how-to-stop-on-snow-with-abs-brakes-1790269905>
 
 防抱死刹车对于日常驾驶来说是天赐之物，但今年冬天当你在积雪覆盖的道路上行驶时会发生什么呢？ABS 真的能帮助你更好地停止吗？嗯，有也有没有。原来你确实需要一些技巧。
 

@@ -1,6 +1,6 @@
 # 让孩子们录下他们自己的动员视频，防止他们在下车时流泪
 
-> 原文:[https://life hacker . com/have-kids-record-your-own-pep-talk-video-to-prevent-te-1828081346](https://lifehacker.com/have-kids-record-their-own-pep-talk-video-to-prevent-te-1828081346)
+> 原文：<https://lifehacker.com/have-kids-record-their-own-pep-talk-video-to-prevent-te-1828081346>
 
 我的孩子们去了很多很棒的日托所、夏令营和其他地方，在那里他们尽情享受了几个小时，然后回家后大谈他们玩得有多开心。但是当第二天早上要送他们回家的时候，他们会忘记这一切，并且 [会为不得不离开我](https://lifehacker.com/reduce-day-care-drop-off-tears-with-a-goodbye-ritual-1818620846) 而哭泣。一个有用的东西:自拍视频。
 

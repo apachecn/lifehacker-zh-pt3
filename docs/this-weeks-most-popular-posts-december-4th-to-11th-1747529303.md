@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 4 日至 11 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-4-to-11-1747529303](https://lifehacker.com/this-weeks-most-popular-posts-december-4th-to-11th-1747529303)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-4th-to-11th-1747529303>
 
 本周我们做了一些先发制人的工作来避免精疲力尽，学习了如何处理你的家人可能会在假期问的那些吵闹的问题(嗨，妈妈！)，比较了最好的家庭影院应用，等等。这里回顾一下。
 

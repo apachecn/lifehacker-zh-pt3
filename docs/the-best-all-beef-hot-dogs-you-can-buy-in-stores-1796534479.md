@@ -1,6 +1,6 @@
 # 你能在商店里买到的最好的全牛肉热狗
 
-> 原文:[https://life hacker . com/the-best-all-beef-hot-dogs-you-buy-in-stores-1796534479](https://lifehacker.com/the-best-all-beef-hot-dogs-you-can-buy-in-stores-1796534479)
+> 原文：<https://lifehacker.com/the-best-all-beef-hot-dogs-you-can-buy-in-stores-1796534479>
 
 坦率地说，一些热狗品牌就是比其他的好。以下是纽约时报食品部 推荐的品牌 [。](https://www.nytimes.com/pages/dining/index.html) 
 

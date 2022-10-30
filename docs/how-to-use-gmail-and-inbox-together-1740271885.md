@@ -1,6 +1,6 @@
 # 如何一起使用 Gmail 和收件箱
 
-> 原文:[https://gizmodo . com/how-to-use-Gmail-and-inbox-together-1740271885](https://gizmodo.com/how-to-use-gmail-and-inbox-together-1740271885)
+> 原文：<https://gizmodo.com/how-to-use-gmail-and-inbox-together-1740271885>
 
 谷歌为网络开发了两个非常好的电子邮件客户端，Android 和 iOS，但你不必在它们之间做出选择。这两个应用程序可以一起使用，利用两者的最佳功能来处理您的收件箱。这里有一些关于如何做而不陷入完全混乱的提示。
 

@@ -1,6 +1,6 @@
 # 如何了解谷歌新推出的 Wear OS 智能手表手势
 
-> 原文:[https://life hacker . com/what-to-know-the-new-wear-OS-smart watch-gestures-1828693375](https://lifehacker.com/what-to-know-about-the-new-wear-os-smartwatch-gestures-1828693375)
+> 原文：<https://lifehacker.com/what-to-know-about-the-new-wear-os-smartwatch-gestures-1828693375>
 
 如果你喜欢手腕上的小谷歌，是时候开始痴迷地检查软件更新了。据谷歌称，Wear OS 用户将在下个月内获得的重大更新，将在你的智能手表上添加(并改变)手势控制，增强谷歌助手，并使跟踪你的健康更容易。
 

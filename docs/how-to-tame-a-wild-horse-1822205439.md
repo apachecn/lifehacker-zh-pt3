@@ -1,6 +1,6 @@
 # 如何驯服一匹野马
 
-> 原文:[https://lifehacker.com/how-to-tame-a-wild-horse-1822205439](https://lifehacker.com/how-to-tame-a-wild-horse-1822205439)
+> 原文：<https://lifehacker.com/how-to-tame-a-wild-horse-1822205439>
 
 想知道马是如何从狂野、自由的动物变成人们最忠实的旅行伙伴的吗？抓住你的套索，戴上你的牛仔帽，准备好成为一名马语者。我的意思是，你可能永远不需要驯服你自己的马，但如果你做了，这就是主人是如何做的。
 

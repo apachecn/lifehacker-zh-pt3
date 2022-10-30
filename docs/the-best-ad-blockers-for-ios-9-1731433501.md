@@ -1,6 +1,6 @@
 # iPhone 的最佳广告拦截器
 
-> 原文:[https://life hacker . com/the-best-ad-blocker-for-IOs-9-1731433501](https://lifehacker.com/the-best-ad-blockers-for-ios-9-1731433501)
+> 原文：<https://lifehacker.com/the-best-ad-blockers-for-ios-9-1731433501>
 
 iOS 9 为 Safari 引入了“内容拦截器”。这些功能主要是作为广告拦截器，但也可以用来阻止跟踪数据和其他元素。经过数周的测试和研究，我们选择了 1Blocker 作为迄今为止的最佳产品。
 

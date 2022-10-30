@@ -1,6 +1,6 @@
 # 不要付钱给任何人来“帮助”你的学生贷款
 
-> 原文:[https://life hacker . com/don-pay-any one-help-your-student-loans-1825888355](https://lifehacker.com/dont-pay-anyone-to-help-you-with-your-student-loans-1825888355)
+> 原文：<https://lifehacker.com/dont-pay-anyone-to-help-you-with-your-student-loans-1825888355>
 
 当心任何向你收取费用以换取减少学生贷款付款、为你支付贷款、转换还款计划、合并贷款或申请贷款豁免的公司，因为这很可能是一个骗局。
 

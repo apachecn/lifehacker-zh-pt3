@@ -1,6 +1,6 @@
 # 我希望我能早点学会的理财建议
 
-> 原文:[https://life hacker . com/the-money-advice-I-wish-I-learned-faster-1795032862](https://lifehacker.com/the-money-advice-i-wish-i-learned-sooner-1795032862)
+> 原文：<https://lifehacker.com/the-money-advice-i-wish-i-learned-sooner-1795032862>
 
 还记得上周，当我问你们大家 [你们希望早点得到什么理财建议](https://lifehacker.com/what-money-advice-do-you-wish-youd-gotten-sooner-1794801502) ？你们分享了一些很棒的答案，但你们中的许多人说，这不是关于你*何时得到*建议的，而是关于你*何时决定真正采纳它的。*
 

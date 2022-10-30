@@ -1,6 +1,6 @@
 # 等待期确实能减少枪支死亡
 
-> 原文:[https://life hacker . com/waiting-periods-really-do-reduce-gun-deaths-1819612145](https://lifehacker.com/waiting-periods-really-do-reduce-gun-deaths-1819612145)
+> 原文：<https://lifehacker.com/waiting-periods-really-do-reduce-gun-deaths-1819612145>
 
 一项 [新枪支研究](https://psmag.com/news/new-evidence-shows-waiting-periods-for-gun-purchases-can-save-lives?utm_content=bufferc42c1&utm_medium=social&utm_source=facebook.com&utm_campaign=buffer) 得出的有趣结论:在枪支购买开始和销售结束之间设定一个等待期，可以显著减少枪支暴力造成的死亡。这项研究发表在美国国家科学院学报[](http://www.pnas.org/content/early/2017/10/11/1619896114)**上，研究显示，在等待期为 3 至 14 天的 17 个州(包括哥伦比亚特区)，持枪杀人案减少了约 17%，即每年 750 人死亡。**
 

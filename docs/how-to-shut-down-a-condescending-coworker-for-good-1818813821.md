@@ -1,6 +1,6 @@
 # 如何让居高临下的同事永远闭嘴
 
-> 原文:[https://life hacker . com/how-to-shut-down-a-纡尊降贵的同事-1818813821](https://lifehacker.com/how-to-shut-down-a-condescending-coworker-for-good-1818813821)
+> 原文：<https://lifehacker.com/how-to-shut-down-a-condescending-coworker-for-good-1818813821>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到 [彪悍的爱情](http://lifehacker.com/tag/tough-love) 。
 

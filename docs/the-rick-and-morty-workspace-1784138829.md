@@ -1,6 +1,6 @@
 # 里克和莫蒂工作室
 
-> 原文:[https://life hacker . com/the-Rick-and-morty-workspace-1784138829](https://lifehacker.com/the-rick-and-morty-workspace-1784138829)
+> 原文：<https://lifehacker.com/the-rick-and-morty-workspace-1784138829>
 
 Redditor [marsem](https://www.reddit.com/user/marsem) 的白木工作间看起来干净整洁，井井有条，摆放着一些很棒的设备，那边是瑞克和莫蒂吗？为什么是的，是的。这里还有一些照片。
 

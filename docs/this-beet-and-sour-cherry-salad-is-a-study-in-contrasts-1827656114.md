@@ -1,6 +1,6 @@
 # 这种甜菜和酸樱桃沙拉是一种对比研究
 
-> 原文:[https://life hacker . com/this-beet-and-acid-cherry-salad-is-a-study-in-contrasts-1827656114](https://lifehacker.com/this-beet-and-sour-cherry-salad-is-a-study-in-contrasts-1827656114)
+> 原文：<https://lifehacker.com/this-beet-and-sour-cherry-salad-is-a-study-in-contrasts-1827656114>
 
 把钱花在成熟的酸樱桃上是一个严肃的承诺。对我来说，樱桃派的承诺并没有超过在变成汤之前去核和/或冷冻几磅非常昂贵的水果的压力，这似乎是一夜之间发生的——但显然，腌甜菜沙拉的承诺确实如此。
 

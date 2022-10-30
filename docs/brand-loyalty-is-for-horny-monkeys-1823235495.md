@@ -1,6 +1,6 @@
 # 品牌忠诚度是给好色的猴子的
 
-> 原文:[https://life hacker . com/brand-loyalty-is-for-horn-monkeys-1823235495](https://lifehacker.com/brand-loyalty-is-for-horny-monkeys-1823235495)
+> 原文：<https://lifehacker.com/brand-loyalty-is-for-horny-monkeys-1823235495>
 
 我们都认为自己是唯一不会被名人和性感模特的广告所迷惑的人。但是这里有一个特别丢脸的例子来证明品牌忠诚度有多愚蠢:科学家们把阿迪达斯的标志放在一只好色的猴子 旁边，训练猴子爱上这个标志。
 

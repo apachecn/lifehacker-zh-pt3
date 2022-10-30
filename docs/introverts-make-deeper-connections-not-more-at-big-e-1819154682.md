@@ -1,6 +1,6 @@
 # 内向者:在大型活动中建立更深层次的联系，而不是更多
 
-> 原文:[https://life hacker . com/intrinters-make-deep-connections-not-more-at-big-e-1819154682](https://lifehacker.com/introverts-make-deeper-connections-not-more-at-big-e-1819154682)
+> 原文：<https://lifehacker.com/introverts-make-deeper-connections-not-more-at-big-e-1819154682>
 
 风险投资家亨特·沃克在外向的工作中是一个内向的人。为了最大限度地利用会议和行业聚会等大型活动，他不太注重拓展人脉，而是更注重加深人脉。他学会了将自己的目标从“在会议上与每个人见面”改为“进行五到十次有意义的对话”两者都是有用的方法，但后者更适合他的个性，正如他在一篇中型文章 中解释的那样。
 

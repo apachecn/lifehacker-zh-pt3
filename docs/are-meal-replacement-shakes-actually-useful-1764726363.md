@@ -1,6 +1,6 @@
 # 代餐奶昔真的有用吗？
 
-> 原文:[https://life hacker . com/are-meal-replacement-shakes-其实有用-1764726363](https://lifehacker.com/are-meal-replacement-shakes-actually-useful-1764726363)
+> 原文：<https://lifehacker.com/are-meal-replacement-shakes-actually-useful-1764726363>
 
 亲爱的生活黑客，
 我有一个同事*信誓旦旦地说*是 Shakeology 的代餐奶昔。看到一个 30 份装的集装箱竟然要 130 美元，我惊呆了！有什么理由相信这些奶昔真的对她有帮助吗？更好的是，我能说服她用其他的选择吗？我担心她在喝一种非常昂贵的时尚饮料。

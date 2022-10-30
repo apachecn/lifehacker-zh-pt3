@@ -1,6 +1,6 @@
 # 作为经销商的现金购买者，你应该知道什么
 
-> 原文:[https://jalopnik . com/what-you-should-know-about-be-a-cash-buyer-at-deal-1737301990](https://jalopnik.com/what-you-should-know-about-being-a-cash-buyer-at-a-deal-1737301990)
+> 原文：<https://jalopnik.com/what-you-should-know-about-being-a-cash-buyer-at-a-deal-1737301990>
 
 如果你从私人卖家那里买车，如果你带着现金成交，你可能更有可能得到你想要的价格。然而，如果你从经销商那里买车，现金并不总是王道。
 

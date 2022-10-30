@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:9 月 18 日至 25 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-9 月 18 日至 25 日-1733015446](https://lifehacker.com/this-weeks-most-popular-posts-september-18th-to-25th-1733015446)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-september-18th-to-25th-1733015446>
 
 本周，我们了解了政府关闭可能会对我们产生的影响，查看了为 iOS 9 更新的一些最好的应用程序，分享了一些经常被忽视的烹饪技巧，等等。这里回顾一下。
 

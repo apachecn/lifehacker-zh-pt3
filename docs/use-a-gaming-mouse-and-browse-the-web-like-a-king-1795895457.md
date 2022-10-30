@@ -1,6 +1,6 @@
 # 使用游戏鼠标，像国王一样浏览网页
 
-> 原文:[https://life hacker . com/use-a-gaming-mouse-and-browse-the-web-like-a-king-1795895457](https://lifehacker.com/use-a-gaming-mouse-and-browse-the-web-like-a-king-1795895457)
+> 原文：<https://lifehacker.com/use-a-gaming-mouse-and-browse-the-web-like-a-king-1795895457>
 
 我使用 Mac 已经十年了，但我一直讨厌苹果的默认一键鼠标，我也从来没有对触控板手势感到舒服过。我是在家庭版 Amiga 上用三键鼠标长大的。几年后，我喜欢上了滚轮、轨迹球和带拇指按钮的鼠标，但我还想要更多。
 

@@ -1,6 +1,6 @@
 # Twitter 增加了更多静音选项，以帮助阻止滥用账户
 
-> 原文:[https://life hacker . com/Twitter-adds-more-muting-options-to-help-keep-abuse-a-1796816582](https://lifehacker.com/twitter-adds-more-muting-options-to-help-keep-abusive-a-1796816582)
+> 原文：<https://lifehacker.com/twitter-adds-more-muting-options-to-help-keep-abusive-a-1796816582>
 
 Twitter 本周增加了一些新的静音过滤器，希望让这个平台对用户来说更安全、更舒适。
 

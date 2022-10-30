@@ -1,6 +1,6 @@
 # 你仍然可以去古巴——方法如下
 
-> 原文:[https://life hacker . com/you-can-still-visit-Cuba-heres-how-1796223945](https://lifehacker.com/you-can-still-visit-cuba-heres-how-1796223945)
+> 原文：<https://lifehacker.com/you-can-still-visit-cuba-heres-how-1796223945>
 
 川普总统 [最近宣布，美国将重新实施对古巴](https://www.nytimes.com/2017/06/15/us/politics/cuba-trump-obama.html?hp&action=click&pgtype=Homepage&clickSource=story-heading&module=first-column-region&region=top-news&WT.nav=top-news&_r=0)*的旅行限制，部分取消了川普之前的政策变化。那么，你还能去古巴吗？看情况。* 
 

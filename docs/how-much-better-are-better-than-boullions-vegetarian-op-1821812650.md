@@ -1,6 +1,6 @@
 # 比肉汤的素食选择好多少？
 
-> 原文:[https://the take out . com/how-more-better-be-better-bollions-素食者-op-1821812650](https://thetakeout.com/how-much-better-are-better-than-boullions-vegetarian-op-1821812650)
+> 原文：<https://thetakeout.com/how-much-better-are-better-than-boullions-vegetarian-op-1821812650>
 
 肉汤基地世界的地震式转变，如果这样的事情存在的话，作为速食股票的首选品牌， [的出现比肉汤](https://www.betterthanbouillon.com/default.aspx) 更好吗？家庭厨师似乎很喜欢它——我也是粉丝之一——因为不同于粉状立方体(人工品尝)或盒装汤料(占用大量货架空间，很快用完),“比肉汤好”的便利之处在于，你可以从罐子里舀一茶匙粘性物质，加入热水，这样做出来的汤味道相当干净自然。我们总是在冰箱里放几罐它的牛肉和鸡汤(不亚于 [*厨师画报*同意](https://www.cooksillustrated.com/articles/149-the-truth-about-beef-broth) 这是好东西的独立权威)。
 

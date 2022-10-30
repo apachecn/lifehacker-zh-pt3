@@ -1,6 +1,6 @@
 # 如何偷偷把更多的储蓄放进你的预算
 
-> 原文:[https://life hacker . com/how-to-skill-to-more savings to-your budget-1787412433](https://lifehacker.com/how-to-sneak-more-savings-into-your-budget-1787412433)
+> 原文：<https://lifehacker.com/how-to-sneak-more-savings-into-your-budget-1787412433>
 
 我们都有存钱的困难。也许你想存更多的钱，但是你的预算已经很紧张了，每一份薪水在存入银行之前就已经花光了。也许你正在为一个目标而努力，比如为度假存钱或者还清信用卡。不管是什么问题，这里有一些方法和工具可以帮助你节省更多的预算。
 

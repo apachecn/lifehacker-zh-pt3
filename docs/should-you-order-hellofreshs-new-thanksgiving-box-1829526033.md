@@ -1,6 +1,6 @@
 # 你应该订购 HelloFresh 的新感恩节礼盒吗？
 
-> 原文:[https://life hacker . com/should-you-order-hello freshs-new-thanksgiving-box-1829526033](https://lifehacker.com/should-you-order-hellofreshs-new-thanksgiving-box-1829526033)
+> 原文：<https://lifehacker.com/should-you-order-hellofreshs-new-thanksgiving-box-1829526033>
 
 我们刚刚进入十月，所以现在是开始为感恩节疯狂的时候了。(如果你是加拿大人，我知道要快得多，很抱歉，帮不了你。)充分利用大家对火鸡日的焦虑，HelloFresh 推出了他们的第一个感恩节盒子。
 

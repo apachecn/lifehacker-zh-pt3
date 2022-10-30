@@ -1,6 +1,6 @@
 # 你打盹，你赢了:睡眠不足如何阻碍你减肥
 
-> 原文:[https://life hacker . com/you-snooze-you-win-how-a-less-of-sleep-can-back-1736338596](https://lifehacker.com/you-snooze-you-win-how-a-lack-of-sleep-can-hold-back-1736338596)
+> 原文：<https://lifehacker.com/you-snooze-you-win-how-a-lack-of-sleep-can-hold-back-1736338596>
 
 在小学，我们被告知“你打盹，你就输了。”现在，作为成年人，我们知道睡眠很重要，但当生活变得忙碌时，我们往往首先切断睡眠。这确实是我们的损失。事实上，糟糕的睡眠可能是你减肥失败的一个重要原因。原因如下。
 

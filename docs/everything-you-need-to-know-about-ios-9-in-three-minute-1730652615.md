@@ -1,6 +1,6 @@
 # 三分钟内你需要知道的关于 iOS 9 的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-know-on-IOs-9-in-three-minute-1730652615](https://lifehacker.com/everything-you-need-to-know-about-ios-9-in-three-minute-1730652615)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-ios-9-in-three-minute-1730652615>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-g0GPa5mWDa0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-g0GPa5mWDa0&start=0) 
 

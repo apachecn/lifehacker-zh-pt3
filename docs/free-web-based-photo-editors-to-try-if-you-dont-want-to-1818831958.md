@@ -1,6 +1,6 @@
 # 如果你不想为 PicMonkey 付费，可以试试免费的网络图片编辑器
 
-> 原文:[https://life hacker . com/free-web-based-photo-editors-to-try-if-you-dont-want-to-1818831958](https://lifehacker.com/free-web-based-photo-editors-to-try-if-you-dont-want-to-1818831958)
+> 原文：<https://lifehacker.com/free-web-based-photo-editors-to-try-if-you-dont-want-to-1818831958>
 
 上周，我最喜欢的网络图片编辑器开始向用户收费。事实证明，PicMonkey 也是我的许多 Lifehacker 同事的最爱。它很简单，重量轻，并且像调整照片大小或创建拼贴画(我们经常做的事情)这样的小编辑超级简单。多年来，我几乎每天都在使用它，一天多次。
 

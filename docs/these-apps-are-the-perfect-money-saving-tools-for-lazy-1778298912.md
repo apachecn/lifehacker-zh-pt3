@@ -1,6 +1,6 @@
 # 对于像我这样的懒人来说，这些应用程序是完美的省钱工具
 
-> 原文:[https://life hacker . com/these-apps-is-the-perfect-money-saving-tools-for-lazy-1778298912](https://lifehacker.com/these-apps-are-the-perfect-money-saving-tools-for-lazy-1778298912)
+> 原文：<https://lifehacker.com/these-apps-are-the-perfect-money-saving-tools-for-lazy-1778298912>
 
 我不擅长存钱，我讨厌学习个人理财，而且在购买我想要的东西时，我倾向于“及时行乐”的心态。幸运的是，一些自动储蓄应用程序帮我做了大部分困难的事情，让我对自己的钱有了更强的掌控。
 

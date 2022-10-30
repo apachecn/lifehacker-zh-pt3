@@ -1,6 +1,6 @@
 # 你真的能在飞机上托运一罐啤酒吗？
 
-> 原文:[https://life hacker . com/can-you-really-check-a-single-can-beer-on-a-flight-1797301753](https://lifehacker.com/can-you-really-check-a-single-can-of-beer-on-a-flight-1797301753)
+> 原文：<https://lifehacker.com/can-you-really-check-a-single-can-of-beer-on-a-flight-1797301753>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-aolfacO-BKk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-aolfacO-BKk&start=0) 
 

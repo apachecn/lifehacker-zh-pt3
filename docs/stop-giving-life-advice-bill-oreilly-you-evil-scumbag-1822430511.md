@@ -1,6 +1,6 @@
 # 别再给人生提建议了，比尔·奥雷利，你这个邪恶的卑鄙小人
 
-> 原文:[https://life hacker . com/stop-giving-life-advice-bill-oreilly-you-evil-卑鄙小人-1822430511](https://lifehacker.com/stop-giving-life-advice-bill-oreilly-you-evil-scumbag-1822430511)
+> 原文：<https://lifehacker.com/stop-giving-life-advice-bill-oreilly-you-evil-scumbag-1822430511>
 
 几周前，Lifehacker 团队以著名的每日提示网站的身份，讨论了比尔·奥雷利偶尔发布的 [【每日提示】推文](https://twitter.com/search?l=&q=%22tip%20of%20the%20day%22%20from%3Abilloreilly&src=typd) 。我放弃了这个作品，因为还有什么好说的呢？小费很少。但是另一个该死的东西溜进了我的饲料里:
 

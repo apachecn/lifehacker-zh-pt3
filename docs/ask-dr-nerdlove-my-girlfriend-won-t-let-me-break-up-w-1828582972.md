@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:女朋友不让我和她分手
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-friend-won-t-let-me-break-up-w-1828582972](https://kotaku.com/ask-dr-nerdlove-my-girlfriend-won-t-let-me-break-up-w-1828582972)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-girlfriend-won-t-let-me-break-up-w-1828582972>
 
 大家好，即将毁灭的香水肉袋们，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一一个为你的爱情生活添加新游戏的约会建议专栏。
 

@@ -1,6 +1,6 @@
 # 你第一次上蹦床健身课要知道什么
 
-> 原文:[https://life hacker . com/what-to-know-your ' s first-time-in trampoline-fitness-class-1822847562](https://lifehacker.com/what-to-know-your-first-time-at-trampoline-fitness-clas-1822847562)
+> 原文：<https://lifehacker.com/what-to-know-your-first-time-at-trampoline-fitness-clas-1822847562>
 
 不可否认，在蹦床上弹跳很有趣，但这能在多大程度上转化为健身课呢？事实证明*很有趣——但是不停地弹跳并不容易。以下是我第一次学到的东西:*
 

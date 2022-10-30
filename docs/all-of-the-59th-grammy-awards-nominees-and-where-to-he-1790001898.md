@@ -1,6 +1,6 @@
 # 第 59 届格莱美金像奖所有被提名者，在哪里听到他们
 
-> 原文:[https://life hacker . com/all-of-the-59 格莱美奖提名人-and-where-to-he-1790001898](https://lifehacker.com/all-of-the-59th-grammy-awards-nominees-and-where-to-he-1790001898)
+> 原文：<https://lifehacker.com/all-of-the-59th-grammy-awards-nominees-and-where-to-he-1790001898>
 
 第 59 届格莱美金像奖 [提名名单已经公布](https://www.grammy.com/nominees) ，名单上挤满了一大堆好歌、纪录片和音乐视频。本指南将帮助您快速了解今年的最佳声音。
 

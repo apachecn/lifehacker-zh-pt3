@@ -1,6 +1,6 @@
 # 优惠券和交易搜索实际上如何让你花更多的钱
 
-> 原文:[https://life hacker . com/how-couponing-and-deal-hunting-actually-make-you-spend-1763655156](https://lifehacker.com/how-couponing-and-deal-hunting-actually-make-you-spend-1763655156)
+> 原文：<https://lifehacker.com/how-couponing-and-deal-hunting-actually-make-you-spend-1763655156>
 
 如果你曾经去过购物中心，你就会知道那里有一些超级便宜的东西。有一次，我发现了一条 1 美元的紫色长裤。“但是这些不是让我看起来像绿巨人吗？”我问我的朋友。“嗯，它们只要一美元，所以你*有*可以买，”她坚持道。我们离开购物中心，告诉自己我们省了很多钱，但实际上，我们损失了 50 美元。另外，我们有满满一袋子几个月后才会讨厌的难看衣服。
 

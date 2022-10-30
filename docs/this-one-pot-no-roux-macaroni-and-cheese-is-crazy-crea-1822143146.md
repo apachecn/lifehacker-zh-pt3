@@ -1,6 +1,6 @@
 # 这种一锅无面糊的通心粉和奶酪非常奶油
 
-> 原文:[https://life hacker . com/this-one-pot-no-Roux-macaroni-and-cheese-is-crazy-crea-1822143146](https://lifehacker.com/this-one-pot-no-roux-macaroni-and-cheese-is-crazy-crea-1822143146)
+> 原文：<https://lifehacker.com/this-one-pot-no-roux-macaroni-and-cheese-is-crazy-crea-1822143146>
 
 我是一个吃通心粉机会均等的人。我喜欢烤的。我喜欢用面糊做的。我甚至喜欢从蓝色盒子里拿出来。你可能认为卡夫的便利是无可匹敌的，但你错了。这个自制的食谱只需要 15 分钟就可以完成，只需要一个锅(你不用把锅里的水倒掉)，而且没有面糊。
 

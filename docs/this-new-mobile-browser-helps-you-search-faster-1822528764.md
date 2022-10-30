@@ -1,6 +1,6 @@
 # 使用这款新的移动浏览器加快搜索速度
 
-> 原文:[https://life hacker . com/this-new-mobile-browser-helps-you-search-faster-1822528764](https://lifehacker.com/this-new-mobile-browser-helps-you-search-faster-1822528764)
+> 原文：<https://lifehacker.com/this-new-mobile-browser-helps-you-search-faster-1822528764>
 
 iOS/Android:我讨厌手机浏览。当我打开 Safari 时，我通常会尝试快速搜索一些东西，然后回到我的其他应用程序。最近我一直在尝试移动浏览器，它今天为 iOS 和 Android 公开发布，它使搜索速度快得多。
 

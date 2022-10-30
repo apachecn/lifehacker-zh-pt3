@@ -1,6 +1,6 @@
 # 战斗绳索，以及你可以用它们进行的强大力量训练
 
-> 原文:[https://life hacker . com/battle-ropes-and-the-powerful-strength-workouts-you-ca-1784713633](https://lifehacker.com/battle-ropes-and-the-powerful-strength-workouts-you-ca-1784713633)
+> 原文：<https://lifehacker.com/battle-ropes-and-the-powerful-strength-workouts-you-ca-1784713633>
 
 想象你自己砰地一声，荡来荡去，拉着，移动一根沉重的，超大号的绳子，然后不到一分钟，你就感觉你的胳膊，肺和身体都着火了。战斗绳索就像它们听起来一样厉害，它们是对你常规健身程序的一种新颖和具有挑战性的改变。
 

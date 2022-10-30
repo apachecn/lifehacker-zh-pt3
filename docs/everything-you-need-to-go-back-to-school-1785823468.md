@@ -1,6 +1,6 @@
 # 你回学校所需的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-back-school-1785823468](https://lifehacker.com/everything-you-need-to-go-back-to-school-1785823468)
+> 原文：<https://lifehacker.com/everything-you-need-to-go-back-to-school-1785823468>
 
 无论你是第一次去上大学(祝贺你！)或者第二次、第三次或最后一次回来——或者回到高中或初中，我们的返校综述有你需要的一切，让你尽可能平稳地过渡。
 

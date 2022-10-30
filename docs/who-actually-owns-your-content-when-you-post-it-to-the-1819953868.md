@@ -1,6 +1,6 @@
 # 当你把内容发布到网上时，谁真正拥有你的内容
 
-> 原文:[https://gizmodo . com/you-post-the-1819953868](https://gizmodo.com/who-actually-owns-your-content-when-you-post-it-to-the-1819953868)
+> 原文：<https://gizmodo.com/who-actually-owns-your-content-when-you-post-it-to-the-1819953868>
 
 感谢网络的奇迹，你可以在几秒钟内将你的内容上传到数百万观众面前——但这并不一定意味着一旦你的狗的照片直播了，你仍然拥有它。在你最喜欢的社交网络上签署条款和条件可能意味着放弃你孩子生日派对视频的版权，或者你度假时拍摄的甜蜜快照的版权。所以这里是你需要知道的关于网络版权的事情，以及在你最喜欢的社交网络上发帖是如何影响你对所发帖内容的所有权的。
 

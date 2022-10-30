@@ -1,6 +1,6 @@
 # 如何问候服务犬
 
-> 原文:[https://life hacker . com/the-best-way-to-greet-a-service-dog-1819163977](https://lifehacker.com/the-best-way-to-greet-a-service-dog-1819163977)
+> 原文：<https://lifehacker.com/the-best-way-to-greet-a-service-dog-1819163977>
 
 服务犬有一项重要的工作要做，但这并不影响它们的可爱。如果你想和一只服务犬打招呼或抚摸它，请遵循以下指导方针，以正确的方式问候它们。
 

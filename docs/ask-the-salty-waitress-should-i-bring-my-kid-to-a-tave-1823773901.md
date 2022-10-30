@@ -1,6 +1,6 @@
 # 问刻薄的女服务员:我应该带我的孩子去酒馆吗？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-I-should-bring-my-kid-a-tave-1823773901](https://thetakeout.com/ask-the-salty-waitress-should-i-bring-my-kid-to-a-tave-1823773901)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-should-i-bring-my-kid-to-a-tave-1823773901>
 
 * * *
 

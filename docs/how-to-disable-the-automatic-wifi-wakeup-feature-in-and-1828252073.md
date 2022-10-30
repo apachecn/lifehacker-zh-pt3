@@ -1,6 +1,6 @@
 # 如何禁用 Android Pie 中的自动 Wifi 唤醒功能
 
-> 原文:[https://life hacker . com/how-to-disable-the-automatic-wifi-wake-feature-in-and-1828252073](https://lifehacker.com/how-to-disable-the-automatic-wifi-wakeup-feature-in-and-1828252073)
+> 原文：<https://lifehacker.com/how-to-disable-the-automatic-wifi-wakeup-feature-in-and-1828252073>
 
 如果你已经更新到 Android 9 Pie，你可能已经注意到，当你靠近信号强的熟悉网络时，你的智能手机现在会自动打开你的 wifi 连接——如果你已经关闭了它。这项功能首次出现在 Android Oreo 中，现在在 Android Pie 中默认打开。
 

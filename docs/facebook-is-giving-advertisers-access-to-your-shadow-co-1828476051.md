@@ -1,6 +1,6 @@
 # 脸书允许广告商获取你的影子联系信息
 
-> 原文:[https://gizmodo . com/Facebook-is-giving-advertisers-access-to-your-shadow-co-1828476051](https://gizmodo.com/facebook-is-giving-advertisers-access-to-your-shadow-co-1828476051)
+> 原文：<https://gizmodo.com/facebook-is-giving-advertisers-access-to-your-shadow-co-1828476051>
 
 上周，我在脸书上做了一个广告，目标是一位名叫艾伦·米斯洛夫的计算机科学教授。Mislove 研究了隐私在社交网络中的作用，并有一个理论认为脸书让广告商通过令人惊讶的方式收集联系信息来接触用户。我帮助他测试这个理论，用脸书之前告诉我行不通的方式瞄准他。我让广告显示在一个脸书账户上，这个账户与艾伦·米斯洛夫办公室的固定电话号码相连，米斯洛夫从未向脸书提供过这个号码。他在几小时内就看到了广告。
 

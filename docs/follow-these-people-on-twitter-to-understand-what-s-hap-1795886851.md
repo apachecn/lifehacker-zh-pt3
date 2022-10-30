@@ -1,6 +1,6 @@
 # 在 Twitter 上关注这些人，了解医疗保健正在发生什么
 
-> 原文:[https://life hacker . com/follow-this-people-on-Twitter-to-understand-what-s-hap-1795886851](https://lifehacker.com/follow-these-people-on-twitter-to-understand-what-s-hap-1795886851)
+> 原文：<https://lifehacker.com/follow-these-people-on-twitter-to-understand-what-s-hap-1795886851>
 
 一开始，有奥巴马医改。自一月份以来，我们已经看到了“废除和取代”、“废除和修复”，一份美国医疗保健法案草案，众议院的一次接近投票，两项新的修正案，众议院的一次实际投票，现在又有关于参议院重写的传言，这应该会在任何一天公开。
 

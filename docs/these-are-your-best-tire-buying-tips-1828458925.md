@@ -1,6 +1,6 @@
 # 这些是你最好的轮胎购买建议
 
-> 原文:[https://jalopnik . com/these-is-your ' s best-tire-buying-tips-1828458925](https://jalopnik.com/these-are-your-best-tire-buying-tips-1828458925)
+> 原文：<https://jalopnik.com/these-are-your-best-tire-buying-tips-1828458925>
 
 起初，购买轮胎可能是一件令人生畏的事情。尤其是如果你以前从未做过。有无数的选择，然后你必须决定哪一个适合你的驾驶风格和当地条件。不要害怕！Jalopnik 社区是来帮忙的。
 

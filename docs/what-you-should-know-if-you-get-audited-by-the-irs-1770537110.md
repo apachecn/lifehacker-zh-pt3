@@ -1,6 +1,6 @@
 # 如何躲过国税局的审计
 
-> 原文:[https://life hacker . com/what-you-should-know-if-you-get-audited-by-IRS-1770537110](https://lifehacker.com/what-you-should-know-if-you-get-audited-by-the-irs-1770537110)
+> 原文：<https://lifehacker.com/what-you-should-know-if-you-get-audited-by-the-irs-1770537110>
 
 很有可能，你不会被审计。除非你的收入*真的*、、[高，否则你被选中参加审计](https://lifehacker.com/your-chances-of-getting-audited-by-the-irs-this-year-1769133597)、的几率不到 1%。但是，如果真的发生了，你要做好准备。从组织你的信息到了解你的权利，这里有一个从国税局审计中幸存下来的指南。
 

@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:11 月 25 日至 12 月 2 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-11-25-to-decembe-1789574714](https://lifehacker.com/this-weeks-most-popular-posts-november-25th-to-decembe-1789574714)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-november-25th-to-decembe-1789574714>
 
 本周，我们深入探讨了虚假在线新闻以及如何揭穿它，讨论了为什么你在国外时可能会想要放弃翻译应用程序而选择常用语手册，查看了你应该避免的常见假日骗局，等等。这里回顾一下。
 

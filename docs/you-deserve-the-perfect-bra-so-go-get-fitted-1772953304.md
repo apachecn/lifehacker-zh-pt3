@@ -1,6 +1,6 @@
 # 你值得拥有完美的胸罩，所以去试穿吧
 
-> 原文:[https://Jezebel . com/you-worth-the-perfect-bra-so-go-get-fitted-1772953304](https://jezebel.com/you-deserve-the-perfect-bra-so-go-get-fitted-1772953304)
+> 原文：<https://jezebel.com/you-deserve-the-perfect-bra-so-go-get-fitted-1772953304>
 
 上周五，在意识到我所有的旧胸罩都已经穿得近乎透明，或者染上了旧内衣特有的那种经典的污垢之后，我发现自己有了一个购买新胸罩的任务。
 

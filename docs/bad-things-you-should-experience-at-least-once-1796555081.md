@@ -1,6 +1,6 @@
 # 坏事你至少应该经历一次
 
-> 原文:[https://life hacker . com/bad-things-you-should-experience-at-only-once 1796555081](https://lifehacker.com/bad-things-you-should-experience-at-least-once-1796555081)
+> 原文：<https://lifehacker.com/bad-things-you-should-experience-at-least-once-1796555081>
 
 [“每个人都应该经历一次的坏事是什么？”](https://www.reddit.com/r/AskReddit/comments/6kety7/whats_a_bad_thing_everyone_should_experience_once/)Redditor tyga 23 问道。和/r/AskReddit 用户有一些很棒的答案。所有这些经历都有助于建立同理心，给你一个教训，或者帮助你欣赏生活中的美好事物。
 

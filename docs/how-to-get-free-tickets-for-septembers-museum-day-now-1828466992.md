@@ -1,6 +1,6 @@
 # 如何获得九月份“博物馆日”的免费门票
 
-> 原文:[https://life hacker . com/how-to-get-free-tickets-September-museum-day-now-1828466992](https://lifehacker.com/how-to-get-free-tickets-for-septembers-museum-day-now-1828466992)
+> 原文：<https://lifehacker.com/how-to-get-free-tickets-for-septembers-museum-day-now-1828466992>
 
 9 月 22 日，作为史密森尼年度博物馆日的一部分，全国各地的博物馆都将免费开放。虽然门票是免费的，但是你仍然需要一张票才能进去，而且这些票的供应量会有些有限。
 

@@ -1,6 +1,6 @@
 # 苹果的新 iPhone 没有耳机插孔，这对你的汽车意味着什么？
 
-> 原文:[https://jalopnik . com/apple-s-new-iphone-not-have-a-headphone-jack-what-1786330098](https://jalopnik.com/apple-s-new-iphone-doesn-t-have-a-headphone-jack-what-1786330098)
+> 原文：<https://jalopnik.com/apple-s-new-iphone-doesn-t-have-a-headphone-jack-what-1786330098>
 
 3.5 毫米耳机插孔是各种音频传输设备几十年来的标准，所以我们的许多设备——包括我们的汽车——都是为了适应它们而制造的。但是现在 [苹果正在去掉他们 iPhone 7 上无处不在的插孔，](https://gizmodo.com/an-insanely-long-list-of-ways-to-deal-with-the-iphone-h-1786067822) 这是一件大事。这对于你的汽车音响系统来说意味着什么。
 

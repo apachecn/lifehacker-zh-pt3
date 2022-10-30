@@ -1,6 +1,6 @@
 # 如何制作美味多汁的火鸡汉堡
 
-> 原文:[https://life hacker . com/how-to-make-a-flavorful-juicy-turkey-burger-1827922857](https://lifehacker.com/how-to-make-a-flavorful-juicy-turkey-burger-1827922857)
+> 原文：<https://lifehacker.com/how-to-make-a-flavorful-juicy-turkey-burger-1827922857>
 
 火鸡汉堡是汉堡世界的蛋白煎蛋卷。众所周知，它是干燥、平淡和毫无性感可言的，我几乎看不出在汉堡周这个最神圣的一周谈论它们有什么意义。
 

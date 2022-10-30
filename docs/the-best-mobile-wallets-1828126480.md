@@ -1,6 +1,6 @@
 # 最好的移动支付系统
 
-> 原文:[https://lifehacker.com/the-best-mobile-wallets-1828126480](https://lifehacker.com/the-best-mobile-wallets-1828126480)
+> 原文：<https://lifehacker.com/the-best-mobile-wallets-1828126480>
 
 根据 [《消费者报告》](https://www.consumerreports.org/digital-payments/mobile-p2p-payment-services-review/) 有史以来第一份移动支付系统排名，Apple Pay 是在支付认证以防止欺诈和数据隐私方面排名最高的点对点支付(P2P)系统。
 

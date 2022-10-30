@@ -1,6 +1,6 @@
 # 如何知道你是否准备好开始马拉松训练
 
-> 原文:[https://life hacker . com/how-to-know-if-you-re-ready-to-start-a-mar-1791124012](https://lifehacker.com/how-to-know-if-you-re-ready-to-start-training-for-a-mar-1791124012)
+> 原文：<https://lifehacker.com/how-to-know-if-you-re-ready-to-start-training-for-a-mar-1791124012>
 
 没有什么比一个雄心勃勃的目标更能集中你的训练了，跑马拉松绝对符合这个要求。许多普通人已经完成了 26.2 英里的比赛，但这需要时间、计划，当然还有适当的健康水平。以下是如何知道马拉松对你来说是否是一个现实的目标。
 

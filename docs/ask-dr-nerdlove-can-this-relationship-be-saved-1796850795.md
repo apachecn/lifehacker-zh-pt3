@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:这段感情还有救吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-can-this-relationship-be-save-1796850795](https://kotaku.com/ask-dr-nerdlove-can-this-relationship-be-saved-1796850795)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-can-this-relationship-be-saved-1796850795>
 
 你好，所有你的后奇点高潮——智力圈的羚羊们，欢迎来到 [询问 NerdLove](http://kotaku.com/askdrnerdlove) 博士，这是唯一的约会建议专栏，帮助你快速度过尴尬的约会岁月，直接进入关系成功的最后阶段。
 

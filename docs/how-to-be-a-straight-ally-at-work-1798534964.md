@@ -1,6 +1,6 @@
 # 如何成为工作中的忠实盟友
 
-> 原文:[https://life hacker . com/how-to-be-a-straight-ally-at-work-1798534964](https://lifehacker.com/how-to-be-a-straight-ally-at-work-1798534964)
+> 原文：<https://lifehacker.com/how-to-be-a-straight-ally-at-work-1798534964>
 
 人权运动 2014 年的一项研究发现，53%的 LGBT 人士 在工作中仍然闭门不出。工作场所包容性倡导组织 [Catalyst](http://www.catalyst.org/) 的营销总监奥黛丽·加林(Audrey Gallien)表示，即使企业试图提供一个包容性的环境，个人“仍然必须面对‘充分发挥自我’的人际风险”——换句话说，他们冒着与经理、团队成员或客户的关系恶化的风险。
 

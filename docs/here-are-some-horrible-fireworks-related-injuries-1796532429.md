@@ -1,6 +1,6 @@
 # 以下是一些有史以来最严重的烟火相关伤害
 
-> 原文:[https://gizmodo . com/here-is-some-some-some-worthy-fireworks-related-injuries-1796532429](https://gizmodo.com/here-are-some-horrible-fireworks-related-injuries-1796532429)
+> 原文：<https://gizmodo.com/here-are-some-horrible-fireworks-related-injuries-1796532429>
 
 又到了一年中的这个时候——我们美国人决定炸掉一些东西来庆祝我们国家的诞生。但碰巧的是，人类和爆炸并没有相处得很好——而且从来没有。
 

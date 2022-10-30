@@ -1,6 +1,6 @@
 # 财务自由对你意味着什么？
 
-> 原文:[https://life hacker . com/what-do-financial-freedom-mean-to-you-1823713333](https://lifehacker.com/what-does-financial-freedom-mean-to-you-1823713333)
+> 原文：<https://lifehacker.com/what-does-financial-freedom-mean-to-you-1823713333>
 
 有一批痴迷于个人理财的人给自己贴上了 FI/RE 的标签，这是财务独立和提前退休的简称。他们将日常生活开支削减到最低，同时积极赚钱和投资，所有这些都是为了在平均退休年龄(62 岁)之前退休。对他们来说，储蓄比大房子、外出就餐和奢侈的假期更令人愉快和满足。
 

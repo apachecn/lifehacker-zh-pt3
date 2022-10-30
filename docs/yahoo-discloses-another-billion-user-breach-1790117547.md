@@ -1,6 +1,6 @@
 # 雅虎披露另一个十亿用户入侵
 
-> 原文:[https://life hacker . com/Yahoo-discloses-another-billion-user-breach-1790117547](https://lifehacker.com/yahoo-discloses-another-billion-user-breach-1790117547)
+> 原文：<https://lifehacker.com/yahoo-discloses-another-billion-user-breach-1790117547>
 
 雅虎今天下午宣布，黑客在 2013 年的一次攻击中窃取了超过 10 亿用户账户的数据。据信，这次攻击与他们在九月 宣布的 [*和其他* 2013 年的漏洞是分开的。](https://lifehacker.com/500-million-yahoo-accounts-hacked-change-your-password-1786958537) 
 

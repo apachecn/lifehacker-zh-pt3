@@ -1,6 +1,6 @@
 # 照明设计师和玻璃艺术家的照明工作区
 
-> 原文:[https://life hacker . com/the-illuminated-workspace-of-a-lighting-designer-and-GL-1733588950](https://lifehacker.com/the-illuminated-workspace-of-a-lighting-designer-and-gl-1733588950)
+> 原文：<https://lifehacker.com/the-illuminated-workspace-of-a-lighting-designer-and-gl-1733588950>
 
 照明是任何房间最重要的元素之一。在今天的特色工作区，灯是装饰品和灵感——由玻璃艺术家兼灯具设计师艾莉森·伯格设计。
 

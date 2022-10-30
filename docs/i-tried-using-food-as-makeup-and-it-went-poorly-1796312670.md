@@ -1,6 +1,6 @@
 # 我试着用食物来化妆，但效果不佳
 
-> 原文:[https://life hacker . com/I-tryed-using-food-as-make-up-and-it-go-poor-1796312670](https://lifehacker.com/i-tried-using-food-as-makeup-and-it-went-poorly-1796312670)
+> 原文：<https://lifehacker.com/i-tried-using-food-as-makeup-and-it-went-poorly-1796312670>
 
 耶女士是一个非常有创意的 YouTube 名人 ，她以不同寻常的烹饪视频而闻名，但她最近的视频显示，这位有进取心的互联网明星将食物*放在她的脸周围*，而不是里面。
 

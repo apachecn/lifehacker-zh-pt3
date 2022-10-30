@@ -1,6 +1,6 @@
 # 如何在 Trader Joe's 花不到 10 美元做一顿两人晚餐
 
-> 原文:[https://life hacker . com/1797444208](https://lifehacker.com/how-to-make-dinner-for-two-by-spending-less-than-10-at-1797444208)
+> 原文：<https://lifehacker.com/how-to-make-dinner-for-two-by-spending-less-than-10-at-1797444208>
 
 Trader Joe's 是一家非常独特的杂货店，虽然你不能真的在那里购物，但它确实有它的优点。除了有 [美味的小吃](http://skillet.lifehacker.com/why-i-buy-all-of-my-plane-snacks-from-trader-joes-1793461509) 和 [混合调料](http://skillet.lifehacker.com/this-everything-bagel-seasoning-is-quite-literally-my-1793624935) 之外，他们还有大量的食物和配料，可以让你以不到 10 美元的价格组装一顿快速美味的两人工作日晚餐。
 

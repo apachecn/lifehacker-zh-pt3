@@ -1,6 +1,6 @@
 # 为了更幸福的婚姻，在婚礼上少花钱
 
-> 原文:[https://life hacker . com/for-a-happy-marriage-spend-on-your wedding-1822915359](https://lifehacker.com/for-a-happier-marriage-spend-less-on-your-wedding-1822915359)
+> 原文：<https://lifehacker.com/for-a-happier-marriage-spend-less-on-your-wedding-1822915359>
 
 已婚夫妇做出的第一个重要决定是...*如何*结婚。里兹酒店的黑领带？在海边野餐？后院聚餐？研究表明，一场便宜但出席人数众多的婚礼可能会让你过得更好。 [家庭研究所的教授兼研究员斯科特·史丹利和加莱纳·k·罗迪斯](https://ifstudies.org/blog/planning-a-wedding-say-yes-to-the-guests-and-spend-less-on-the-dress) 报告称，虽然婚礼费用一直在上涨，但宾客数量却一直在下降。
 

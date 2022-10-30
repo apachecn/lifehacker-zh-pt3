@@ -1,6 +1,6 @@
 # 如何制作你自己的苦味酒，在每杯鸡尾酒上印上签名章
 
-> 原文:[https://life hacker . com/how-to-make-your-own-bitters-for-a-signature-stamp-on-e-1728365345](https://lifehacker.com/how-to-make-your-own-bitters-for-a-signature-stamp-on-e-1728365345)
+> 原文：<https://lifehacker.com/how-to-make-your-own-bitters-for-a-signature-stamp-on-e-1728365345>
 
 任何配得上边缘盐的酒吧都应该至少储备几瓶苦味酒。当然，你可以不用它们做鸡尾酒，但你也可以不用盐或胡椒 [烤鸡](http://skillet.lifehacker.com/the-best-way-to-truss-a-chicken-for-juicy-meat-and-cris-1726807481) 。像这些日常调味料一样，鸡尾酒苦味剂几乎可以为任何饮料增添风味和深度，自制鸡尾酒可以让你为每一杯鸡尾酒打上独特的印记。
 

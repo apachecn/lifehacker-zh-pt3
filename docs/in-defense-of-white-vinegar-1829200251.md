@@ -1,6 +1,6 @@
 # 为白醋辩护
 
-> 原文:[https://life hacker . com/in-defense-of-white-醋-1829200251](https://lifehacker.com/in-defense-of-white-vinegar-1829200251)
+> 原文：<https://lifehacker.com/in-defense-of-white-vinegar-1829200251>
 
 醋的世界很广，很野，有点侵略性。在健康狂热者吹捧 ACV 的 [所谓的治愈特性，以及更有爱好者的更精致的口味(如雪利酒醋)之间，普通的蒸馏白醋并不太受烹饪的喜爱。](https://lifehacker.com/apple-cider-vinegar-isnt-the-miracle-elixir-its-cracked-1798501504)
 

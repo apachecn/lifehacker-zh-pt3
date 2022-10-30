@@ -1,6 +1,6 @@
 # 使用 iOS AR 应用程序重新装饰你的公寓
 
-> 原文:[https://life hacker . com/use-IOs-ar-apps-to-help-re correct-your-apartment-1822193960](https://lifehacker.com/use-ios-ar-apps-to-help-redecorate-your-apartment-1822193960)
+> 原文：<https://lifehacker.com/use-ios-ar-apps-to-help-redecorate-your-apartment-1822193960>
 
 [苹果 iOS 11 版 ARKit](https://lifehacker.com/how-to-get-started-using-apple-s-arkit-augmented-realit-1797690723)让开发者相对容易地利用该公司的增强现实功能，并让消费者有机会与覆盖在你实际环境之上的虚拟世界互动。 [增强现实游戏](https://gizmodo.com/pokemon-go-s-new-ar-mode-finally-puts-apple-s-arkit-to-1821464209) 无疑是展示其多种用途的最炫方式，但一些最好的增强现实应用根本不是游戏。这些用于 iOS 的 AR 工具为您提供了所需的工具，让您可以在家中建立一些秩序感，规划未来(根据今年春天您将购买什么沙发)，并开始一些家庭装修项目，而无需举起锤子。
 

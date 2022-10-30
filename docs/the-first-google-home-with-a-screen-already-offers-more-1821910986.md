@@ -1,6 +1,6 @@
 # 第一个带屏幕的 Google Home 已经比亚马逊的 Echo Show 提供了更多的隐私
 
-> 原文:[https://life hacker . com/the-first-the-Google-home-a-screen-always-offers-1821910986](https://lifehacker.com/the-first-google-home-with-a-screen-already-offers-more-1821910986)
+> 原文：<https://lifehacker.com/the-first-google-home-with-a-screen-already-offers-more-1821910986>
 
 [亚马逊](https://lifehacker.com/the-best-place-for-your-echo-dot-is-actually-on-the-cei-1820916306) 可能是第一个提供智能家居显示器的 [Echo Show](https://gizmodo.com/the-amazon-echo-show-is-the-best-dumb-smart-machine-in-1796380588) ，但是 [谷歌](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716#_ga=2.27966780.1017631282.1515423304-1313785359.1499701416) 刚刚在一个关键领域击败了对手:隐私。
 

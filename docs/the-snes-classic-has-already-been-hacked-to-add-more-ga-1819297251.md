@@ -1,6 +1,6 @@
 # SNES 经典已经被黑客攻击增加了更多的游戏
 
-> 原文:[https://life hacker . com/the-snes-classic-has-has-happed-to-add-more-ga-1819297251](https://lifehacker.com/the-snes-classic-has-already-been-hacked-to-add-more-ga-1819297251)
+> 原文：<https://lifehacker.com/the-snes-classic-has-already-been-hacked-to-add-more-ga-1819297251>
 
 任天堂怀旧风格的《超级 NES 经典》发布还不到两周，但已经被黑客攻击增加了更多游戏、自定义背景等等。
 

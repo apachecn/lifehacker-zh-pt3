@@ -1,6 +1,6 @@
 # 当某人病得很重时，除了说“你是个斗士”之外，还能说什么
 
-> 原文:[https://life hacker . com/what-to-say-inst-of-you-a-fighter-when-someone-I-1797199066](https://lifehacker.com/what-to-say-instead-of-youre-a-fighter-when-someone-i-1797199066)
+> 原文：<https://lifehacker.com/what-to-say-instead-of-youre-a-fighter-when-someone-i-1797199066>
 
 当我们听到我们认识或钦佩的人患有癌症或其他可怕的诊断的可怕消息时，我们往往会做这件事。我们把他们改造成勇敢的战士，准备战斗和征服邪恶疾病的力量。他们突然成了英雄。战士们。这对他们来说可能会感到奇怪，因为就在不久前，他们还是普通人，有时勇敢，有时害怕得要命，试图像其他人一样驾驭生活的曲折。
 

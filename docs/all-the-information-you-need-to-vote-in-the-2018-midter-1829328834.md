@@ -1,6 +1,6 @@
 # 2018 年中期选举投票所需的所有信息
 
-> 原文:[https://life hacker . com/all-the-information-you-need-to-vote in-the-2018-midter-1829328834](https://lifehacker.com/all-the-information-you-need-to-vote-in-the-2018-midter-1829328834)
+> 原文：<https://lifehacker.com/all-the-information-you-need-to-vote-in-the-2018-midter-1829328834>
 
 11 月 6 日是中期选举，你登记了吗？
 

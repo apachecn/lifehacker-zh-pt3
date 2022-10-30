@@ -1,6 +1,6 @@
 # 关于窒息游戏，父母需要知道什么
 
-> 原文:[https://life hacker . com/what-parents-need-know-on-choking-game-1823919823](https://lifehacker.com/what-parents-need-to-know-about-the-choking-game-1823919823)
+> 原文：<https://lifehacker.com/what-parents-need-to-know-about-the-choking-game-1823919823>
 
 有人称之为“好孩子的高潮”。“儿童和青少年正在玩所谓的‘窒息游戏’——一种他们为了瞬间的快感而勒死自己或朋友的活动——他们认为这比买酒或大麻更便宜、更快、更容易、更合法。这款游戏有许多不同的名字，并不新鲜，但在这个愚蠢的青少年在社交媒体上挑战的时代，医院再次警告父母关于它的。
 

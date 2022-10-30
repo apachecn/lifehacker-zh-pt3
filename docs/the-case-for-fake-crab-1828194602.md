@@ -1,6 +1,6 @@
 # 假螃蟹的案例
 
-> 原文:[https://lifehacker.com/the-case-for-fake-crab-1828194602](https://lifehacker.com/the-case-for-fake-crab-1828194602)
+> 原文：<https://lifehacker.com/the-case-for-fake-crab-1828194602>
 
 仿蟹——也被称为“krab”、“kay-rab”、“假蟹”和“krab sticks”——是鱼(通常是阿拉斯加鳕鱼)和淀粉的混合物，其形状和颜色类似于螃蟹的腿。它基本上是海洋的午餐肉，而且味道出奇的好。(我曾经直接从包装里吃，就像我吃所有的午餐肉一样，我不后悔。)
 

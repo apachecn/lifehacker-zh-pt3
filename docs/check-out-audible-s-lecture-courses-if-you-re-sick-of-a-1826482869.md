@@ -1,6 +1,6 @@
 # 如果你厌倦了有声读物，可以看看 Audible 的讲座课程
 
-> 原文:[https://life hacker . com/check-out-audible-s-lecture-courses-if-re-sick-of-a-1826482869](https://lifehacker.com/check-out-audible-s-lecture-courses-if-you-re-sick-of-a-1826482869)
+> 原文：<https://lifehacker.com/check-out-audible-s-lecture-courses-if-you-re-sick-of-a-1826482869>
 
 订购了音频服务，但不确定接下来要听什么？我很了解这种感觉。直到最近，我的学分开始堆积，以至于我想取消我的订阅。你考虑过一些有教育意义的事情吗？
 

@@ -1,6 +1,6 @@
 # 关于黑色星期五和网络星期一你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-know-on-black-Friday and-cybe-5962841](https://lifehacker.com/everything-you-need-to-know-about-black-friday-and-cybe-5962841)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-black-friday-and-cybe-5962841>
 
 又一个感恩节来了又走了，这意味着黑色星期五、网络星期一和接下来的礼品购物月到了。以下是你需要知道的关于如何充分利用今年的交易的一切。
 

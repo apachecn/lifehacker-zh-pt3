@@ -1,6 +1,6 @@
 # 桌面 RPG 对决:龙与地下城 5E vs 探路者
 
-> 原文:[https://life hacker . com/desktop-RPG-摊牌-龙与地下城-5e-vs-pathfi-1785545326](https://lifehacker.com/tabletop-rpg-showdown-dungeons-dragons-5e-vs-pathfi-1785545326)
+> 原文：<https://lifehacker.com/tabletop-rpg-showdown-dungeons-dragons-5e-vs-pathfi-1785545326>
 
 当谈到角色扮演游戏时，有两个巨人占据主导地位:*地下城&龙族第五版*和*探路者角色扮演游戏*。他们有很多相似之处，但两个游戏都带来了非常不同的东西。无论你是一个经验丰富的游戏玩家，还是从未接触过 d20，这里有你需要知道的一切，以做出正确的选择。
 

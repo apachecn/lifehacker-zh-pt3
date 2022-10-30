@@ -1,6 +1,6 @@
 # 只吃拉面会得坏血病吗？
 
-> 原文:[https://life hacker . com/can-you-get-suck-by-eating-nothing-but-ramen-1825960531](https://lifehacker.com/can-you-get-scurvy-from-eating-nothing-but-ramen-1825960531)
+> 原文：<https://lifehacker.com/can-you-get-scurvy-from-eating-nothing-but-ramen-1825960531>
 
 似乎每个人都认识认识在大学里得了坏血病的人。他们说，有个家伙一个月只吃拉面。或比萨饼，根据一份来自 Lifehacker 职员的报告。或粥，据 [一个流传已久的苏格兰传说](https://www.snopes.com/fact-check/sole-food/) 。
 

@@ -1,6 +1,6 @@
 # 电子书阅读器摊牌:亚马逊 Kindles，对比
 
-> 原文:[https://life hacker . com/ereader-摊牌-亚马逊-kindles-comparated-1773881849](https://lifehacker.com/ereader-showdown-amazon-kindles-compared-1773881849)
+> 原文：<https://lifehacker.com/ereader-showdown-amazon-kindles-compared-1773881849>
 
 亚马逊设法创造了四种不同型号的 Kindle 电子书阅读器。这四种型号都有自己的优势和劣势，所以如果你想买一个或者升级一个，让我们来看看，让你的购买决定更容易一点。
 

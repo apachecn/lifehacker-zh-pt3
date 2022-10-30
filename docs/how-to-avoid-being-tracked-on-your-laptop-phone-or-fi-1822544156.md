@@ -1,6 +1,6 @@
 # 如何避免被笔记本电脑、手机或健身追踪器追踪
 
-> 原文:[https://gizmodo . com/how-to-avoid-on-your-laptop-phone-or-fi-1822544156](https://gizmodo.com/how-to-avoid-being-tracked-on-your-laptop-phone-or-fi-1822544156)
+> 原文：<https://gizmodo.com/how-to-avoid-being-tracked-on-your-laptop-phone-or-fi-1822544156>
 
 今天，我们都被比以往更多的小工具跟踪，并且以 [可能不会立即明显](https://gizmodo.com/fitness-apps-anonymized-data-dump-accidentally-reveals-1822506098) 的方式；但是，对你的笔记本电脑、智能手机，甚至你的健身追踪器可以收集的关于你的数据进行限制是可能的——特别是，你在哪里，你在用你的设备做什么。
 

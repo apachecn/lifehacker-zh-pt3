@@ -1,6 +1,6 @@
 # 像在智能手机上一样在任何电脑上使用 Instagram
 
-> 原文:[https://life hacker . com/use-insta gram-on-any-computer-like-you-would-on-a-smart-1797184613](https://lifehacker.com/use-instagram-on-any-computer-like-you-would-on-a-smart-1797184613)
+> 原文：<https://lifehacker.com/use-instagram-on-any-computer-like-you-would-on-a-smart-1797184613>
 
 与脸书和 Twitter 不同，Instagram 缺乏桌面体验。如果用户通过电脑登录，照片共享网络会限制他们可以发布、查看和参与的内容。
 

@@ -1,6 +1,6 @@
 # 使用这个修改过的谷歌搜索网址来避免剧透
 
-> 原文:[https://life hacker . com/use-this-modified-Google-search-URL-to-avoid-剧透-1825513671](https://lifehacker.com/use-this-modified-google-search-url-to-avoid-spoilers-1825513671)
+> 原文：<https://lifehacker.com/use-this-modified-google-search-url-to-avoid-spoilers-1825513671>
 
 我们很抱歉，查姆·加滕伯格。The Verge 记者 [最近在尝试对全新*战神*游戏中的一个角色进行无害搜索时，学到了关于谷歌自动完成功能威力的严酷一课](https://www.theverge.com/2018/4/24/17277218/god-of-war-spoilers-google-autocomplete-youtube-algorithm-ps4) 。*威猛！*剧透，就在自动完成字段。他甚至没有达到(剧透)的结果。
 

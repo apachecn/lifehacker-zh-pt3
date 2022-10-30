@@ -1,6 +1,6 @@
 # 看看你能否用这个工具在你的洛杉矶后院建造一个老奶奶公寓
 
-> 原文:[https://life hacker . com/see-if-you-can-build-a-granny-flat-in-your-l-a-backyar-1823522648](https://lifehacker.com/see-if-you-can-build-a-granny-flat-in-your-l-a-backyar-1823522648)
+> 原文：<https://lifehacker.com/see-if-you-can-build-a-granny-flat-in-your-l-a-backyar-1823522648>
 
 在洛杉机，后院 [附属住宅单元](http://planning.lacounty.gov/adu/) (ADU)，或“老奶奶公寓”，是许多家庭的常见附加物。这些一居室公寓/客房可能很难建造，尤其是如果你不知道你的地块的分区要求。这个工具会有所帮助。
 

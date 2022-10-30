@@ -1,6 +1,6 @@
 # 单点流媒体就在这里，和有线电视一样贵
 
-> 原文:[https://life hacker . com/a-la-carte-streaming-is-here-and-it-s-just-as-expensiv-1769410396](https://lifehacker.com/a-la-carte-streaming-is-here-and-it-s-just-as-expensiv-1769410396)
+> 原文：<https://lifehacker.com/a-la-carte-streaming-is-here-and-it-s-just-as-expensiv-1769410396>
 
 多年来，我们要求能够只为我们想要的有线电视频道付费。现在，在网飞、Hulu、亚马逊 Prime、HBO Now、Sling TV、 [、新人 Starz](https://lifehacker.com/starz-launches-streaming-service-with-original-shows-b-1769126984) 和一大堆其他网站之间，你可以抛弃有线电视，只为你喜欢的内容付费。尽管这不会给你省很多钱。
 

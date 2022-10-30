@@ -1,6 +1,6 @@
 # 如何制作自己的巨无霸调味酱
 
-> 原文:[https://life hacker . com/how-to-make-your-own-big-MAC-sauce-1798501807](https://lifehacker.com/how-to-make-your-own-big-mac-sauce-1798501807)
+> 原文：<https://lifehacker.com/how-to-make-your-own-big-mac-sauce-1798501807>
 
 麦当劳的巨无霸调味酱是最具标志性的调味品之一，但它没有理由仅限于麦当劳的肉饼，即使它们是“全牛肉”虽然官方“ [泄露的配方](https://www.thesun.co.uk/living/4306616/mcdonalds-secret-big-mac-sauce-recipe-has-been-leaked-online-and-heres-how-you-can-make-it-at-home/) ”是一长串油、玉米糖浆、稳定剂、乳化剂、调味剂和防腐剂——正如大多数大规模生产的酱料一样——你可以用普通的配料做出非常相似(同样标志性)的东西。
 

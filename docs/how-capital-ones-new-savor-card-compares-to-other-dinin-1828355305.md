@@ -1,6 +1,6 @@
 # Capital One 的新品味卡与其他餐饮奖励卡相比如何
 
-> 原文:[https://life hacker . com/how-capital-ones-new-savor-card-comparison-to-other-dinin-1828355305](https://lifehacker.com/how-capital-ones-new-savor-card-compares-to-other-dinin-1828355305)
+> 原文：<https://lifehacker.com/how-capital-ones-new-savor-card-compares-to-other-dinin-1828355305>
 
 Capital One 更新了其 Savor 卡上的奖励，新的产品对经常外出就餐或在杂货店花费很多的人来说很有吸引力(考虑到食物是普通美国人的第三大支出，这是我们很多人的第三大支出)。
 

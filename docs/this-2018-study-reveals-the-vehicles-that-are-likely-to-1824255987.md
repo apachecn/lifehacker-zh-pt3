@@ -1,6 +1,6 @@
 # 这项 2018 年的研究揭示了可能行驶超过 20 万英里的车辆
 
-> 原文:[https://jalopnik . com/this-2018-study-reveals-the-vehicles-that-likely-to 1824255987](https://jalopnik.com/this-2018-study-reveals-the-vehicles-that-are-likely-to-1824255987)
+> 原文：<https://jalopnik.com/this-2018-study-reveals-the-vehicles-that-are-likely-to-1824255987>
 
 拥有一辆汽车最明智的方法是尽可能长时间地使用它。当我们在 [*《消费者报告》*](https://jalopnik.com/these-are-the-2018-cars-consumer-reports-says-will-make-1823932567) 的朋友们预测哪些车型将超过 20 万英里大关时，来自*[*isee cars*](https://www.iseecars.com/longest-lasting-cars-2018-study)的一项新研究揭示了一个不同的列表——一个由卡车和 SUV 主导的列表。* 
 

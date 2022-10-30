@@ -1,6 +1,6 @@
 # 你是如何熬过长途飞行的？
 
-> 原文:[https://life hacker . com/how-do-you-survive-long-flights-1828522049](https://lifehacker.com/how-do-you-survive-long-flights-1828522049)
+> 原文：<https://lifehacker.com/how-do-you-survive-long-flights-1828522049>
 
 在接下来的几个月里，有几次超过六个小时的旅行，我一直在记如何在长途飞行中生存下来。我已经有几年没有进行国际旅行了，虽然我在大学和高中的整个旅程中或多或少都能小睡一会儿，但我偷偷怀疑这次不会那么容易入睡。
 

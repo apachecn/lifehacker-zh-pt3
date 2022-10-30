@@ -1,6 +1,6 @@
 # 如何为你的手机选择最好的浏览器
 
-> 原文:[https://gizmodo . com/how-to-pick-the-best-for-your phone-1819261780](https://gizmodo.com/how-to-pick-the-best-browser-for-your-phone-1819261780)
+> 原文：<https://gizmodo.com/how-to-pick-the-best-browser-for-your-phone-1819261780>
 
 也许你从第一次打开手机就一直在使用同一个浏览器，或者也许你每周都要在两个浏览器之间切换:手机上的浏览器和桌面上的一样多，而且每个浏览器的运行方式都略有不同。下面，我们浏览了所有主流浏览器——从 Chrome 和 Safari 这样的老浏览器到 Puffin 这样的新浏览器。
 

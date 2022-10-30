@@ -1,6 +1,6 @@
 # 为什么超低里程的老爷车是最难拥有的车
 
-> 原文:[https://jalopnik . com/why-ultra low-mileage-classic-cars-is-the-worst-cars-t-1829472051](https://jalopnik.com/why-ultra-low-mileage-classic-cars-are-the-worst-cars-t-1829472051)
+> 原文：<https://jalopnik.com/why-ultra-low-mileage-classic-cars-are-the-worst-cars-t-1829472051>
 
 今天早上我看到一则汽车销售广告，通常我会对那种汽车非常感兴趣。这是 1964 年大众甲壳虫 的 [广告，它处于*难以置信的*形状。它还卖到了绝对疯狂的 100 万美元，即使对于像我这样的甲虫迷来说，这也和用活黄蜂制成的牙膏一样疯狂。为什么这只甲虫能卖到一百万美元？因为时钟上只有 22 英里。这也是为什么这将是一个悲惨的汽车拥有。](https://www.hemmings.com/classifieds/cars-for-sale/volkswagen/beetle/2171078.html?refer=saturday)
 

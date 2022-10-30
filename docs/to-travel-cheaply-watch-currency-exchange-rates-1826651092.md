@@ -1,6 +1,6 @@
 # 要想便宜地旅行，关注货币汇率
 
-> 原文:[https://life hacker . com/to-travel-lily-watch-currency-exchange-rates-1826651092](https://lifehacker.com/to-travel-cheaply-watch-currency-exchange-rates-1826651092)
+> 原文：<https://lifehacker.com/to-travel-cheaply-watch-currency-exchange-rates-1826651092>
 
 奢侈旅游网站 [的匿名主编安德鲁·哈珀](https://www.andrewharper.com/) 说，节省旅行费用就是灵活性。他告诉 Lifehacker 一些可靠的方法来观察豪华旅行的折扣，其中一种方法会让你觉得自己是宇宙的完全主人，你已经知道了，因为我们在标题中破坏了它。
 

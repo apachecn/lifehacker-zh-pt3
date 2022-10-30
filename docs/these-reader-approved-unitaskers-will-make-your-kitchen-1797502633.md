@@ -1,6 +1,6 @@
 # 这些读者认可的 Unitaskers 将使你的厨房变得更加舒适
 
-> 原文:[https://life hacker . com/these-reader-approved-unitaskers-will-make-your-kitchen-1797502633](https://lifehacker.com/these-reader-approved-unitaskers-will-make-your-kitchen-1797502633)
+> 原文：<https://lifehacker.com/these-reader-approved-unitaskers-will-make-your-kitchen-1797502633>
 
 单一功能的厨房电器 [通常不会得到大量的喜爱](http://lifehacker.com/watch-alton-brown-demonstrate-why-unitaskers-have-no-1749470145) ，但是当我们问你们大家最喜欢的时候，你们有一些*非常热情的产品推荐。有些是我以前最喜欢的，但你们中的一些人设法推荐了一些我们从未听说过的东西。下面是我们最喜欢的一些。*
 

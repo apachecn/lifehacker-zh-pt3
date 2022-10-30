@@ -1,6 +1,6 @@
 # 获得复古游戏补丁的最佳网站
 
-> 原文:[https://life hacker . com/the-best-web-sites-to-get-your-retro-gaming-fix-1823765757](https://lifehacker.com/the-best-web-sites-to-get-your-retro-gaming-fix-1823765757)
+> 原文：<https://lifehacker.com/the-best-web-sites-to-get-your-retro-gaming-fix-1823765757>
 
 准备好直接在你的网络浏览器中重温一些复古游戏了吗？如果你在工作中感到无聊，你的思绪突然飘到你小时候花在敲打 [任天堂电源垫](https://www.youtube.com/watch?v=ErzuU78v60M) 上的那些小时，不要担心。你可以回到你的年轻时代，而不必离开你的办公桌。看看这些神奇的网站，让你在浏览器中播放所有经典音乐——不需要模拟器应用程序或光盘。
 

@@ -1,6 +1,6 @@
 # 你的 Instagram 数据转储中有什么，如何获取
 
-> 原文:[https://life hacker . com/whats-in-your-insta gram-data-dump-and-how-to-get-it-1825777655](https://lifehacker.com/whats-in-your-instagram-data-dump-and-how-to-get-it-1825777655)
+> 原文：<https://lifehacker.com/whats-in-your-instagram-data-dump-and-how-to-get-it-1825777655>
 
 所有很酷的服务都在获取数据转储——你点击设置菜单中某处的那个小链接，就会触发服务向你发送它从你那里收集的所有数据(理论上，还有你用它做的所有事情)。
 

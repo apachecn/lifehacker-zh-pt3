@@ -1,6 +1,6 @@
 # 欣赏这张可以看到日食的华夫饼屋位置图
 
-> 原文:[https://life hacker . com/map-waffle-house-locations-with-view-of-the-solar-ECL-1797759367](https://lifehacker.com/map-waffle-house-locations-with-views-of-the-solar-ecl-1797759367)
+> 原文：<https://lifehacker.com/map-waffle-house-locations-with-views-of-the-solar-ecl-1797759367>
 
 即将到来的日全食对天文学家来说是一件大事，但这个大日子的前奏是制图师的梦想。从简单的斜线 [到全食路径](http://lifehacker.com/how-and-where-to-watch-the-solar-eclipse-in-august-1796176093) 到 [历史云量](https://apod.nasa.gov/apod/ap170131.html) 到 [人群预测“车道”，](https://static1.squarespace.com/static/53c358b6e4b01b8adb4d5870/t/592119dd37c581b43fd30fc6/1495341609494/Chart+of+eclipse+visitation.jpg?format=1000w) 地理学家、制图员和数据可视化爱好者正忙着为天文爱好者提供重要信息...以及一些可能不太重要的信息。
 

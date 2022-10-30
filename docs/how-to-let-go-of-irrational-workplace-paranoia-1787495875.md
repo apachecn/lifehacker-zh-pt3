@@ -1,6 +1,6 @@
 # 如何放下非理性的职场偏执
 
-> 原文:[https://life hacker . com/how-to-let-go-of-unrational-workplace-paranoid-1787495875](https://lifehacker.com/how-to-let-go-of-irrational-workplace-paranoia-1787495875)
+> 原文：<https://lifehacker.com/how-to-let-go-of-irrational-workplace-paranoia-1787495875>
 
 在工作中所有让你担心的事情中，最糟糕的是你自己制造的问题。当消极的事情发生，而你发现自己在等待它们再次发生时，尤其如此。让我给你举几个例子。
 

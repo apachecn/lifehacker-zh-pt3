@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:帮帮忙，我迷上了 Twitch 流光
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-help-ive-get-a-crush-on-a-twitch-str-1793128075](https://kotaku.com/ask-dr-nerdlove-help-ive-got-a-crush-on-a-twitch-str-1793128075)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-help-ive-got-a-crush-on-a-twitch-str-1793128075>
 
 你们好，所有的轮眼死亡旅鼠，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，唯一一个在翡翠城动漫展的四天中幸存下来的约会专栏。
 

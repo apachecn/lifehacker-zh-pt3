@@ -1,6 +1,6 @@
 # 当你是一个带着早起孩子的夜猫子家长时，如何生存
 
-> 原文:[https://life hacker . com/how-to-survive-when-you-a-an-ea-1819137827](https://lifehacker.com/how-to-survive-when-youre-a-night-owl-parent-with-an-ea-1819137827)
+> 原文：<https://lifehacker.com/how-to-survive-when-youre-a-night-owl-parent-with-an-ea-1819137827>
 
 在父母的圈子里，没有什么比睡觉更能引发话题了——是否要同床共枕，是否要睡火车，以及为什么这个孩子不能一觉睡到天亮？但是，即使你已经过了这些阶段，你的孩子已经挣扎了相当长的一段时间，仍然有孩子醒得特别早。
 

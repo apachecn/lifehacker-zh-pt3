@@ -1,6 +1,6 @@
 # 使用此应用程序修复您的 Touch Bar
 
-> 原文:[https://life hacker . com/fix-your-touch-bar-with this-app-1823463782](https://lifehacker.com/fix-your-touch-bar-with-this-app-1823463782)
+> 原文：<https://lifehacker.com/fix-your-touch-bar-with-this-app-1823463782>
 
 MacBook Pro 的 Touch Bar 并没有那么有用。当然，它的功能会根据你所在的应用程序而变化，但如果你像我一样，希望有第二个可以定制的屏幕，你不是唯一一个失望的人。但是，您可以下载第三方应用程序[2 触摸](https://two-touch.herokuapp.com/) 来创建一些定制的快捷方式，这些快捷方式将启动您最喜爱的应用程序和服务。2Touch 可以预装任何情况下您需要的所有东西，几乎触手可及，它可能是一款可以让您重新养成实际触摸 Touch Bar 的习惯的应用。
 

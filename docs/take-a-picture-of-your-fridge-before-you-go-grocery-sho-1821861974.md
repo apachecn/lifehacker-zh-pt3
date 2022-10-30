@@ -1,6 +1,6 @@
 # 去杂货店购物前，给你的冰箱拍张照
 
-> 原文:[https://life hacker . com/在去杂货店之前给你的冰箱拍张照-sho-1821861974](https://lifehacker.com/take-a-picture-of-your-fridge-before-you-go-grocery-sho-1821861974)
+> 原文：<https://lifehacker.com/take-a-picture-of-your-fridge-before-you-go-grocery-sho-1821861974>
 
 我和我的男朋友是非常糟糕的购物者。我们总是试图去杂货店买“一周的饭菜”，但是当我们讨论房子里还有什么食物可以用来做这顿饭时，膳食计划很快就变得复杂起来。
 

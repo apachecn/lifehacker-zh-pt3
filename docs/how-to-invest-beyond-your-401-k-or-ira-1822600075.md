@@ -1,6 +1,6 @@
 # 如何在 401(k)或个人退休账户之外投资
 
-> 原文:[https://life hacker . com/how-to-invest-beyond-your-401-k-or-IRA-1822600075](https://lifehacker.com/how-to-invest-beyond-your-401-k-or-ira-1822600075)
+> 原文：<https://lifehacker.com/how-to-invest-beyond-your-401-k-or-ira-1822600075>
 
 许多投资建议都围绕着你的退休:向 401(k)计划缴纳多少钱，每个年龄你应该存多少钱，传统个人退休帐户和 Roths 之间的区别，等等。但是，为了短期目标(或者仅仅是因为)，还有很多其他的投资方式。
 

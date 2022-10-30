@@ -1,6 +1,6 @@
 # 如何度过假期分手
 
-> 原文:[https://life hacker . com/如何处理假期分手-1789727386](https://lifehacker.com/how-to-handle-a-breakup-during-the-holidays-1789727386)
+> 原文：<https://lifehacker.com/how-to-handle-a-breakup-during-the-holidays-1789727386>
 
 无论在一年中的什么时候分手都很糟糕，但在假期里尤其糟糕。当所有人都在庆祝的时候，你却在孤独和心碎中挣扎。无论你是分手的给予方还是接受方，以下是如何在假期应对这种损失的方法。
 

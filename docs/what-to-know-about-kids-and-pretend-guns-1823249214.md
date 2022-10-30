@@ -1,6 +1,6 @@
 # 关于孩子和假枪该知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-about-kids-and-fake-guns-1823249214](https://lifehacker.com/what-to-know-about-kids-and-pretend-guns-1823249214)
+> 原文：<https://lifehacker.com/what-to-know-about-kids-and-pretend-guns-1823249214>
 
 我女儿最近告诉我在幼儿园玩假枪的一个规则:“你可以开枪打人。但是你得先问他们行不行。他们必须答应。”
 

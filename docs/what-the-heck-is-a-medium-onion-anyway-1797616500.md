@@ -1,6 +1,6 @@
 # “中等”洋葱到底是什么？
 
-> 原文:[https://life hacker . com/what-heck-a-medium-onion-anyway-1797616500](https://lifehacker.com/what-the-heck-is-a-medium-onion-anyway-1797616500)
+> 原文：<https://lifehacker.com/what-the-heck-is-a-medium-onion-anyway-1797616500>
 
 当你开始烹饪时，精确地测量每样东西*可能是一个大问题，这就是为什么初学烹饪的人可能会对列出模糊数量的食谱感到厌烦，如“一撮盐”或“一个中等洋葱”虽然“pinch”已经非常标准化了——它被认为是 1/8 茶匙——但是一个“中等”的洋葱就有点难以确定了。*
 

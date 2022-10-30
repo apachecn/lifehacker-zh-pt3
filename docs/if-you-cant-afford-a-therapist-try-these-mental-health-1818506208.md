@@ -1,6 +1,6 @@
 # 如果你负担不起治疗师的费用，试试这些心理健康资源
 
-> 原文:[https://life hacker . com/if-you-affordable-a-therapy-try-these-mental-health-1818506208](https://lifehacker.com/if-you-cant-afford-a-therapist-try-these-mental-health-1818506208)
+> 原文：<https://lifehacker.com/if-you-cant-afford-a-therapist-try-these-mental-health-1818506208>
 
 如果你有心理健康问题，但负担不起(或抽不出时间来)一对一的治疗，有许多替代选择仍然可以让你接触到有执照的治疗师。还有丰富的自我保健资源可以补充治疗。作家蒂芙尼·霍华德 [在这篇推特帖子](https://twitter.com/OnlineWithTiff1/status/908851180884959238) — [中列出了他们的名单，下面是重新格式化后的一份易于阅读的名单](https://tttthreads.com/t/908851180884959238) 。
 

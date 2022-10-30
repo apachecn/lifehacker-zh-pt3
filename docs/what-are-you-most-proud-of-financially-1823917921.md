@@ -1,6 +1,6 @@
 # 财务上你最引以为豪的是什么？
 
-> 原文:[https://life hacker . com/1823917921](https://lifehacker.com/what-are-you-most-proud-of-financially-1823917921)
+> 原文：<https://lifehacker.com/what-are-you-most-proud-of-financially-1823917921>
 
 担心你的财务状况感觉像是一份全职工作，这就是为什么每隔一段时间花点时间 [认识到你的成就](https://lifehacker.com/how-to-counteract-the-what-else-mindset-1823772012#_ga=2.58952173.1381054269.1521460655-2200349181.1521485486) (大大小小)是很重要的。当你达到一个重要的里程碑时，开立一个罗斯个人退休帐户，或者只是更加关注你的钱去了哪里，以及你做了什么来赚更多的钱——在我们进入下一个目标之前，花时间承认我们在金钱上的成功是很重要的。
 

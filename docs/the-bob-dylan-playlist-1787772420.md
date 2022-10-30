@@ -1,6 +1,6 @@
 # 鲍勃·迪伦的播放列表
 
-> 原文:[https://lifehacker.com/the-bob-dylan-playlist-1787772420](https://lifehacker.com/the-bob-dylan-playlist-1787772420)
+> 原文：<https://lifehacker.com/the-bob-dylan-playlist-1787772420>
 
 今天，美国词曲作者鲍勃·迪伦被授予 [诺贝尔文学奖](https://www.nobelprize.org/nobel_prizes/literature/laureates/2016/) ，成为首位获此殊荣的音乐人。因此，这是重温他影响深远的作品的绝佳时机。您可以从这个播放列表开始。
 

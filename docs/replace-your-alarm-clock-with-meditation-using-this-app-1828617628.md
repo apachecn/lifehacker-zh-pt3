@@ -1,6 +1,6 @@
 # 使用这个应用程序，用冥想代替你的闹钟
 
-> 原文:[https://life hacker . com/replace-your-alarm-clock with-mostation-using-this-app-1828617628](https://lifehacker.com/replace-your-alarm-clock-with-meditation-using-this-app-1828617628)
+> 原文：<https://lifehacker.com/replace-your-alarm-clock-with-meditation-using-this-app-1828617628>
 
 我们都知道被闹钟叫醒是最糟糕的起床方式，尽管可以说是最有效的。
 

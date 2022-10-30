@@ -1,6 +1,6 @@
 # 这个应用程序可以为你选择最好的照片
 
-> 原文:[https://life hacker . com/this-app-can-choose-you-best-photos-for-you 1796369992](https://lifehacker.com/this-app-can-choose-your-best-photos-for-you-1796369992)
+> 原文：<https://lifehacker.com/this-app-can-choose-your-best-photos-for-you-1796369992>
 
 Android:如果你的手机存储空间不足，你可能想开始从手机中删除一些低质量的照片，或者用类似 [谷歌照片](http://lifehacker.com/how-the-new-google-photos-makes-your-picture-library-aw-1708189976) 的应用程序进行备份。照片应用 [EyeEm](http://eyeem.com/) 周三宣布了一项更新，该应用使用人工智能来挑选出你最好的照片。
 

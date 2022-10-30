@@ -1,6 +1,6 @@
 # 教孩子给挥之不去的恐惧起绰号
 
-> 原文:[https://life hacker . com/teach-kids-to-nickname-the-words-the-wound-away-1821202419](https://lifehacker.com/teach-kids-to-nickname-the-fears-that-wont-go-away-1821202419)
+> 原文：<https://lifehacker.com/teach-kids-to-nickname-the-fears-that-wont-go-away-1821202419>
 
 当我听到生活在焦虑中的成年人(在美国有 4000 万人生活在)说，唯一有帮助的事情不是试图完全摆脱焦虑，而是学会接受焦虑会一直存在，也许永远存在。他们开始把它看作只是一件事，既不好也不坏。在最近一集的 [欢闹的抑郁世界](https://www.apmpodcasts.org/thwod/2017/12/the-holiday-coping-mechanism-spectacular/) 播客中，一位嘉宾说她通过给它取名“史蒂夫”来处理她的焦虑，然后把史蒂夫想象成这个偶尔出现的傻朋友。所以每当她的焦虑表现出来，她可以说，“哦，史蒂夫。别说了。”
 

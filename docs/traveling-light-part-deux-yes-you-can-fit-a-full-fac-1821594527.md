@@ -1,6 +1,6 @@
 # 轻装旅行，第 2 部分:是的，你可以在最小的空间里装下整张脸
 
-> 原文:[https://www . the root . com/traveling-light-part-deux-yes-you-can-fit-a-full-fac-1821594527](https://www.theroot.com/traveling-light-part-deux-yes-you-can-fit-a-full-fac-1821594527)
+> 原文：<https://www.theroot.com/traveling-light-part-deux-yes-you-can-fit-a-full-fac-1821594527>
 
 这是我的化妆盒。它没有名字，尽管它应该有，因为我们已经一起环游世界很多年了。现在，让我们称她为克莱尔——在这一点上，可能是克莱尔八世。但她总是一个简单、清晰的桶形箱子，尺寸大约为 4×5×8 英寸，带有双拉链顶部，最大限度地提高了运输安全管理局要求的透明度和容量，并允许我的液体在必要时站立。
 

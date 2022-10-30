@@ -1,6 +1,6 @@
 # 摄入蛋白质最简单、最美味的方法
 
-> 原文:[https://life hacker . com/the-easy-taste-ways-load-up-on-protein-1800944104](https://lifehacker.com/the-easiest-tastiest-ways-to-load-up-on-protein-1800944104)
+> 原文：<https://lifehacker.com/the-easiest-tastiest-ways-to-load-up-on-protein-1800944104>
 
 对于每天的午餐，无论你摄入多少蛋白质都没问题。但是如果你想锻炼肌肉，或者如果你想在减肥的同时保持较高的蛋白质摄入量，如果不大口喝下大量的冰沙，很难在饮食中摄入足够的蛋白质。别担心，我是来帮忙的。
 

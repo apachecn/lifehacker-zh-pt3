@@ -1,6 +1,6 @@
 # 堵住双因素身份认证的安全漏洞
 
-> 原文:[https://life hacker . com/plug-the-security-holes-in-your-two-factor-authenticati-1798403323](https://lifehacker.com/plug-the-security-holes-in-your-two-factor-authenticati-1798403323)
+> 原文：<https://lifehacker.com/plug-the-security-holes-in-your-two-factor-authenticati-1798403323>
 
 周二，Techcrunch 作家约翰·比格斯 [的电话号码被一名黑客](https://techcrunch.com/2017/08/23/i-was-hacked/?ncid=rss) 窃取，该黑客控制了比格斯的 T-Mobile SIM 卡，授权他使用比格斯的电话号码来验证他的身份。Biggs 在他的帐户上正确地使用了基于 SMS 的双因素身份验证，但是忘记了为他的无线运营商帐户添加额外的安全层。攻击他的人继续将他锁定在账户之外，并试图以比特币索要赎金。
 

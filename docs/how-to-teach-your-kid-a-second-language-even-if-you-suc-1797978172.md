@@ -1,6 +1,6 @@
 # 如何教你的孩子第二语言，即使你学得不好
 
-> 原文:[https://life hacker . com/how-to-teach-you-kid-a-second-language-even-if-you-suc-1797978172](https://lifehacker.com/how-to-teach-your-kid-a-second-language-even-if-you-suc-1797978172)
+> 原文：<https://lifehacker.com/how-to-teach-your-kid-a-second-language-even-if-you-suc-1797978172>
 
 教一个孩子第二语言的想法听起来很吓人。如果你自己对这门语言生疏了(比如说，从 11 年级开始你就没有掌握过西班牙语动词的变化)，这似乎是不可能的。
 

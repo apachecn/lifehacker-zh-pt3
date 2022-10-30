@@ -1,6 +1,6 @@
 # 如何在没有配料的情况下制作优质热巧克力
 
-> 原文:[https://life hacker . com/how-to-make-superior-hot-chocolate-with-a mix-1821603231](https://lifehacker.com/how-to-make-superior-hot-chocolate-without-a-mix-1821603231)
+> 原文：<https://lifehacker.com/how-to-make-superior-hot-chocolate-without-a-mix-1821603231>
 
 我有好消息和坏消息。坏消息是，你一直在购买不必要的热巧克力，但好消息是，你将学习两种不同的方法来制作丰富、可饮用的巧克力，用于舒适的寒冷天气，并且你将使用你厨房里可能已经有的东西来做。
 

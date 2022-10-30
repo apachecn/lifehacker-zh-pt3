@@ -1,6 +1,6 @@
 # 当你惊恐发作时，如何恢复镇静
 
-> 原文:[https://life hacker . com/how-to-recurve-your-distance-when-you-happen-1737315657](https://lifehacker.com/how-to-regain-your-composure-when-youre-having-a-panic-1737315657)
+> 原文：<https://lifehacker.com/how-to-regain-your-composure-when-youre-having-a-panic-1737315657>
 
 上周，我第一次经历了惊恐发作。然而，最可怕的是，我完全不知道该做什么。如果你曾经发现自己处于类似的情况，这里有一些应对恐慌发作的技巧，为将来做准备，并在别人需要的时候帮助他们。
 

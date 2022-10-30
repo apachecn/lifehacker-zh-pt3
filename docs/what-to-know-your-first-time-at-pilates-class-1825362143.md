@@ -1,6 +1,6 @@
 # 在你的第一堂普拉提课之前要知道什么
 
-> 原文:[https://life hacker . com/what-to-know-your ' s first-time-pilates-class-1825362143](https://lifehacker.com/what-to-know-your-first-time-at-pilates-class-1825362143)
+> 原文：<https://lifehacker.com/what-to-know-your-first-time-at-pilates-class-1825362143>
 
 我们中的许多人在某个时候都做过一点普拉提；普拉提式的动作在很多结合瑜伽或体重练习的锻炼中都能找到。但是，走进一个真正的普拉提工作室，发现自己与这位著名的改革家面对面是另一回事。
 

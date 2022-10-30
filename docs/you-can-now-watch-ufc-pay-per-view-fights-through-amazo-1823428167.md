@@ -1,6 +1,6 @@
 # 你现在可以通过亚马逊观看 UFC 付费比赛
 
-> 原文:[https://life hacker . com/you-can-now-watch-ufc-pay-per-view-fights-through-amazo-1823428167](https://lifehacker.com/you-can-now-watch-ufc-pay-per-view-fights-through-amazo-1823428167)
+> 原文：<https://lifehacker.com/you-can-now-watch-ufc-pay-per-view-fights-through-amazo-1823428167>
 
 要观看一场大型 UFC 比赛，你通常只有两个选择:成为有线电视或卫星电视订户并支付额外费用，或者前往拥挤的体育酒吧，希望你能找到一个座位，而不是挨着一个想开始自己打架的人。现在，亚马逊正在为那些想呆在家里的插队者出售 UFC 付费套餐。
 

@@ -1,6 +1,6 @@
 # iOS:微软取消了 Word Flow 键盘——以下是替代它的内容
 
-> 原文:[https://life hacker . com/IOs-Microsoft-kills-word-flow-keyboard-heres-what-to-r-1797429143](https://lifehacker.com/ios-microsoft-kills-word-flow-keyboard-heres-what-to-r-1797429143)
+> 原文：<https://lifehacker.com/ios-microsoft-kills-word-flow-keyboard-heres-what-to-r-1797429143>
 
 当你在 iPhone 上安装微软的 Word Flow 键盘时，你可能会认为它是一个应用程序或扩展。原来，这是一个“实验”， [一个现在已经“完成”的实验，](https://m.windowscentral.com/microsofts-word-flow-keyboard-ios-no-more) 你需要换一个新的键盘。
 

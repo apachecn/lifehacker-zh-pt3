@@ -1,6 +1,6 @@
 # macOS 本周应用:安非他命
 
-> 原文:[https://life hacker . com/MAC OS-app-of-the-week-安非他明-1825108890](https://lifehacker.com/macos-app-of-the-week-amphetamine-1825108890)
+> 原文：<https://lifehacker.com/macos-app-of-the-week-amphetamine-1825108890>
 
 去吧，让你的坏笑话从你的系统中消失。我们会等的。一旦你完成，我们建议尽快安装安非他明。这个应用程序是一个超级小的下载，就像给你的 macOS 机器 [咖啡因药丸](https://www.youtube.com/watch?v=bflYjF90t7c) 。一旦激活，你的系统将停止进入睡眠状态。
 

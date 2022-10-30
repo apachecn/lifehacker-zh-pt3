@@ -1,6 +1,6 @@
 # 为什么在 Android 和 iOS 之间做出选择仍然很重要
 
-> 原文:[https://gizmodo . com/why-choice-between-Android-and-IOs-still-matters-1822976032](https://gizmodo.com/why-choosing-between-android-and-ios-still-matters-1822976032)
+> 原文：<https://gizmodo.com/why-choosing-between-android-and-ios-still-matters-1822976032>
 
 点燃一部 [iPhone X](https://gizmodo.com/i-hate-how-much-i-love-the-iphone-x-1820086867) 和一部 [Galaxy Note 8](https://gizmodo.com/samsung-note-8-the-return-of-the-original-jumbo-phone-1798321067) 你可能不会认为在 Android 和 iOS 之间有太多选择。他们提供相同的应用程序，在相同的网格中，有相似的通知和快速设置方法，在游戏的这个阶段，你可能会对你选择的移动操作系统感到满意，并坚持下去。真的有理由转行吗？嗯，是的——还是有一些！
 

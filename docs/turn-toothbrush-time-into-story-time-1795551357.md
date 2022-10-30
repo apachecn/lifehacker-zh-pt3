@@ -1,6 +1,6 @@
 # 把刷牙时间变成故事时间
 
-> 原文:[https://life hacker . com/turn-brush-time-into-story-time-1795551357](https://lifehacker.com/turn-toothbrush-time-into-story-time-1795551357)
+> 原文：<https://lifehacker.com/turn-toothbrush-time-into-story-time-1795551357>
 
 我讨厌超过十秒钟，除了我自己的想法什么都没有。当我走过三个街区时，我会听播客。我一边尿尿一边看推特。我最讨厌的就是刷牙和牙线。我不能拿手机，不能说话，不能对着镜子欣赏自己，因为我口吐白沫。作为一个成年人我都受不了，所以想象一下对于一个孩子来说有多难。
 

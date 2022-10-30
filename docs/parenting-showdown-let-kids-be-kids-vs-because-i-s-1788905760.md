@@ -1,6 +1,6 @@
 # 育儿摊牌:“让孩子做孩子”vs .“因为我这么说。”
 
-> 原文:[https://life hacker . com/parenting-down-let-kids-be-kids-vs-cause-I-s-1788905760](https://lifehacker.com/parenting-showdown-let-kids-be-kids-vs-because-i-s-1788905760)
+> 原文：<https://lifehacker.com/parenting-showdown-let-kids-be-kids-vs-because-i-s-1788905760>
 
 不管你有没有孩子，你可能对养育孩子有自己的看法。妈妈和爸爸应该严格执行规定吗，不管他们的孩子喜不喜欢？还是让孩子玩得开心更重要，即使这意味着有时会违反规则？
 

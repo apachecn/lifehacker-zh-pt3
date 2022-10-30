@@ -1,6 +1,6 @@
 # 如何在厨房使用玫瑰水
 
-> 原文:[https://life hacker . com/how-to-use-rose-water-in-the-kitchen-1822930000](https://lifehacker.com/how-to-use-rose-water-in-the-kitchen-1822930000)
+> 原文：<https://lifehacker.com/how-to-use-rose-water-in-the-kitchen-1822930000>
 
 情人节是一个无法逃脱象征意义的节日，除了心形之外，玫瑰是与 2 月 14 日联系在一起的最容易辨认的爱情象征。当然，你可以送一打左右，但是如果你喜欢你的礼物更容易食用，可以考虑在你的烹饪中加入一点玫瑰水。
 

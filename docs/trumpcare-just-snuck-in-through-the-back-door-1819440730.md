@@ -1,6 +1,6 @@
 # Trumpcare 刚刚从后门溜了进来
 
-> 原文:[https://life hacker . com/trump care-just-skilled-in-three-door-1819440730](https://lifehacker.com/trumpcare-just-snuck-in-through-the-back-door-1819440730)
+> 原文：<https://lifehacker.com/trumpcare-just-snuck-in-through-the-back-door-1819440730>
 
 在废除患者保护与平价医疗法案的 900 次尝试失败后(这个数字可能有点小，这是漫长的一年)，特朗普总统昨天采取了两项可能摧毁保险市场的行动。*先别慌*。你目前的保险仍然有效，你仍然可以为明年购买“奥巴马医保”计划。但这预示着一些非常坏的消息。
 

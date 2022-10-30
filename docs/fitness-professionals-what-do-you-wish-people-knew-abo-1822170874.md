@@ -1,6 +1,6 @@
 # 健身专家:你希望人们对你的工作了解多少？
 
-> 原文:[https://life hacker . com/fitness-professionals-what-do-you-wish-people-known-ABO-1822170874](https://lifehacker.com/fitness-professionals-what-do-you-wish-people-knew-abo-1822170874)
+> 原文：<https://lifehacker.com/fitness-professionals-what-do-you-wish-people-knew-abo-1822170874>
 
 要成为一个更好的顾客——或者至少是一个不太令人讨厌的顾客——了解另一边是什么样的会有所帮助。让我们来教育未来的希望变得健康的受训者吧！如果你是健身教练或班级教练，或者曾经是，我们希望听到你的声音。
 

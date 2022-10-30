@@ -1,6 +1,6 @@
 # 如何避免巨型猪草，这种植物会导致严重烧伤
 
-> 原文:[https://life hacker . com/how-to-avoid-giant-hog weed-the-plant-that-cause-sever-1826987399](https://lifehacker.com/how-to-avoid-giant-hogweed-the-plant-that-causes-sever-1826987399)
+> 原文：<https://lifehacker.com/how-to-avoid-giant-hogweed-the-plant-that-causes-sever-1826987399>
 
 不要碰这株植物。如果你的皮肤沾上了树液，树液中的化学物质会攻击你皮肤细胞中的 DNA，使你对阳光敏感。事实上，它是如此敏感，以至于正常的日晒会让你出现类似晒斑的皮疹，需要几周或几个月才能消失。
 

@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我的男人经常手淫。喜欢，很多
 
-> 原文:[https://kotaku . com/ask-dr-nerdlove-my-guy-jerks-off-a-lot-like-a-lot-1772266795](https://kotaku.com/ask-dr-nerdlove-my-guy-jerks-off-a-lot-like-a-lot-1772266795)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-guy-jerks-off-a-lot-like-a-lot-1772266795>
 
 你好，互联网！欢迎来到 [向 NerdLove](http://kotaku.com/askdrnerdlove) 博士提问，这是唯一一个提供生活中约会常见问题的约会建议专栏。
 

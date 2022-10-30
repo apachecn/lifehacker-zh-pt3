@@ -1,6 +1,6 @@
 # 由于电脑故障，美国航空公司数千架假日航班没有飞行员
 
-> 原文:[https://jalopnik . com/1820846017](https://jalopnik.com/thousands-of-holiday-flights-on-american-airlines-have-1820846017)
+> 原文：<https://jalopnik.com/thousands-of-holiday-flights-on-american-airlines-have-1820846017>
 
 据代表飞行员的工会称，美国航空公司在线调度系统的故障导致 12 月数千航班无人驾驶，并有可能被取消。 [*路透社*](https://www.reuters.com/article/us-american-airline-workers/union-says-over-15000-american-air-flights-in-december-have-no-pilots-assigned-idUSKBN1DT2R8?il=0) 报道称，可能有超过 15000 个航班受到影响，这些航班都处于主要的假日旅游时段。
 

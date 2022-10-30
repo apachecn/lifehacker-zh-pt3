@@ -1,6 +1,6 @@
 # 如何开始使用 Ubuntu Linux 发行版
 
-> 原文:[https://life hacker . com/how-to-get-started-with-un buntu-on-Linux-1820484286](https://lifehacker.com/how-to-get-started-with-unbuntu-on-linux-1820484286)
+> 原文：<https://lifehacker.com/how-to-get-started-with-unbuntu-on-linux-1820484286>
 
 自从 20 世纪 90 年代中期 问世以来，Linux 操作系统已经从一个小众受众发展成为广泛流行，这是有充分理由的。曾几何时，安装过程是一个挑战，即使对于那些有丰富经验的人来说也是如此。然而，现代的 Linux 已经走了很长的路。为此，大多数 Linux 发行版的安装就像安装应用程序一样简单。如果能安装微软 Office 或 Adobe Photoshop，就可以安装 Linux。
 

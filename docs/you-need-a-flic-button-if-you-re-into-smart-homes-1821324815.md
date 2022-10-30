@@ -1,6 +1,6 @@
 # 如果你喜欢智能家居，你需要一个 Flic 按钮
 
-> 原文:[https://life hacker . com/you-need-a-flic-button-if-you-re-into-smart-homes-1821324815](https://lifehacker.com/you-need-a-flic-button-if-you-re-into-smart-homes-1821324815)
+> 原文：<https://lifehacker.com/you-need-a-flic-button-if-you-re-into-smart-homes-1821324815>
 
 如果你曾经想按下床头柜下面的一个按钮，关掉所有的灯，锁上门，播放你最喜欢的 12 小时的箱型风扇声音，这样你就可以入睡，你应该考虑弄一个 [Flic 按钮](https://flic.io/) 。这是一个 35 美元的按钮，连接到你的智能手机上，让你触发无限数量的自动化操作，无论是在网络上还是在现实世界中。
 

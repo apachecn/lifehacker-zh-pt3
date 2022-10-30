@@ -1,6 +1,6 @@
 # 这是我们期待已久的两分钟刷牙播客
 
-> 原文:[https://life hacker . com/heres-the-两分钟刷牙播客-we ve-be-1823550399](https://lifehacker.com/heres-the-two-minute-tooth-brushing-podcast-weve-been-1823550399)
+> 原文：<https://lifehacker.com/heres-the-two-minute-tooth-brushing-podcast-weve-been-1823550399>
 
 嘴里含着刷子站在水槽边两分钟时间太长了。如果你不使用带自动定时器的电动刷子，你应该做什么，看秒表吗？我之前报道过 [缺乏好的刷牙应用](https://vitals.lifehacker.com/tooth-brushing-apps-all-suck-1788875091#_ga=2.129662348.1217697998.1520348530-1504134289.1520020527)；有一个适合孩子的，就是这样。但是 Gimlet 用一个名为 [Chompers](https://www.gimletmedia.com/chompers) 的两分钟节目拯救了这个世界。
 

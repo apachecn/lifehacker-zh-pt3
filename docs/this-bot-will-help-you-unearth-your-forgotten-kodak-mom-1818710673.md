@@ -1,6 +1,6 @@
 # 这个机器人将帮助你发掘你被遗忘的“柯达瞬间”
 
-> 原文:[https://life hacker . com/this-bot-will-help-you-out-of-you-forgot-Kodak-mom-1818710673](https://lifehacker.com/this-bot-will-help-you-unearth-your-forgotten-kodak-mom-1818710673)
+> 原文：<https://lifehacker.com/this-bot-will-help-you-unearth-your-forgotten-kodak-mom-1818710673>
 
 在一年的时间里，我拍了数千张照片，要么在脸书或 Instagram 上分享，要么留在智能手机的相机胶卷里等死。虽然我的想法是在某个时候回去看看它们，但说实话这很少发生。我最接近的一次是当谈话中出现一些事情时，我记得我在几年前拍了一张照片，然后我在谷歌照片或我的脸书照片库中搜索，看是否能找到它，我大概有 50%的时间会这样做。现在，柯达有了一个新的应用程序和脸书机器人，专门用来帮助你挖掘那些你捕捉到但后来忘记了的美好记忆。
 

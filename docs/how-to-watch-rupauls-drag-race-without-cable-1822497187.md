@@ -1,6 +1,6 @@
 # 如何在没有有线电视的情况下观看鲁保罗的飙车比赛
 
-> 原文:[https://life hacker . com/how-to-watch-rupauls-drag-race-without-cable-1822497187](https://lifehacker.com/how-to-watch-rupauls-drag-race-without-cable-1822497187)
+> 原文：<https://lifehacker.com/how-to-watch-rupauls-drag-race-without-cable-1822497187>
 
 如果你想看鲁保罗的飙车比赛，在没有有线电视订阅的情况下找到它会是一个挑战。该节目之前可以在 Hulu 和 Logo 的网站上看到，但自从切换到 VH1 后，该节目就从这两个网站上消失了。
 

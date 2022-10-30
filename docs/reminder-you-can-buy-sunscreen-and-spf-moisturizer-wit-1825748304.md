@@ -1,6 +1,6 @@
 # 提醒:你可以用你的 FSA/HSA 的钱买防晒霜和 SPF 润肤霜
 
-> 原文:[https://life hacker . com/reminder-you-can-buy-sun-and-SPF-moister-wit-1825748304](https://lifehacker.com/reminder-you-can-buy-sunscreen-and-spf-moisturizer-wit-1825748304)
+> 原文：<https://lifehacker.com/reminder-you-can-buy-sunscreen-and-spf-moisturizer-wit-1825748304>
 
 纽约的气温高达 90 度，这意味着人们终于脱下了他们的皮大衣和单调的黑色冬装，换上了不那么单调的黑色夏装 g。随着层层叠叠的去除，一年一度的提醒也随之而来，出门前要涂上厚厚的防晒霜。
 

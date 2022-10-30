@@ -1,6 +1,6 @@
 # 如何在你的速溶锅里煮几只鸡腿
 
-> 原文:[https://life hacker . com/how-to-cook-a-情侣鸡腿-in-your-instant-1798556562](https://lifehacker.com/how-to-cook-a-couple-of-chicken-thighs-in-your-instant-1798556562)
+> 原文：<https://lifehacker.com/how-to-cook-a-couple-of-chicken-thighs-in-your-instant-1798556562>
 
 速食锅是快速烹饪大锅烤肉和整只鸡的好工具，但是有时候——尤其是你一个人住的时候——你不想要整只鸡。有时候你只想吃几条大腿，不管怎么说，这是鸡肉中最好的部分。
 

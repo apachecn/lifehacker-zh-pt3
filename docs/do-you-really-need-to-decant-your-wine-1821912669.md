@@ -1,6 +1,6 @@
 # 你真的需要把酒倒出吗？
 
-> 原文:[https://life hacker . com/do-you-really-need-to-circulate-your-wine-1821912669](https://lifehacker.com/do-you-really-need-to-decant-your-wine-1821912669)
+> 原文：<https://lifehacker.com/do-you-really-need-to-decant-your-wine-1821912669>
 
 如果你刚刚接触葡萄酒，你可能听说过一些你不熟悉的工艺，比如倾析和充气。但是你需要为那些东西烦恼吗？不要害怕，未来的葡萄酒势利小人这就是你需要知道的一切。
 

@@ -1,6 +1,6 @@
 # 如何在一个充满加工食品的世界里健康饮食
 
-> 原文:[https://life hacker . com/how-to-eat-healthy-in-a-world-filled-with-processed-foo-1764023851](https://lifehacker.com/how-to-eat-healthy-in-a-world-filled-with-processed-foo-1764023851)
+> 原文：<https://lifehacker.com/how-to-eat-healthy-in-a-world-filled-with-processed-foo-1764023851>
 
 想象一顿有益健康的饭菜:大量的蔬菜，也许是一些熏肉或自由放养的鸡蛋，在家里从头开始精心烹制。快速计算一下，在过去的一周里，你吃了多少顿这样的饭。接近零？你并不孤单。
 

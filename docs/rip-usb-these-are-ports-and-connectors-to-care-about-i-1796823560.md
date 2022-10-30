@@ -1,6 +1,6 @@
 # RIP USB:这些是 2017 年要关心的端口和连接器
 
-> 原文:[https://life hacker . com/rip-USB-this-is-ports-and-connectors-to-care-on-I-1796823560](https://lifehacker.com/rip-usb-these-are-ports-and-connectors-to-care-about-i-1796823560)
+> 原文：<https://lifehacker.com/rip-usb-these-are-ports-and-connectors-to-care-about-i-1796823560>
 
 我们不想打断你，但过去 20 年来你用来连接相机、控制器和其他小发明的传统 USB 端口对这个世界来说并不长久。整个队伍被一些很好的选择所取代，尽管他们都有各自的优缺点。如果你想在今年升级你的设备，这里有你需要熟悉的端口，以跟上当今的技术。
 

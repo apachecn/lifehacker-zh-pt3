@@ -1,6 +1,6 @@
 # Lifehacker 正在招聘一名高级科技作家
 
-> 原文:[https://life hacker . com/life hacker-is-hiring-a-senior-tech-writer-1820893406](https://lifehacker.com/lifehacker-is-hiring-a-senior-tech-writer-1820893406)
+> 原文：<https://lifehacker.com/lifehacker-is-hiring-a-senior-tech-writer-1820893406>
 
 Watch
 

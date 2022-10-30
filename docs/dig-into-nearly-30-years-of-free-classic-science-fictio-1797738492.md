@@ -1,6 +1,6 @@
 # 挖掘近 30 年的免费经典科幻小说
 
-> 原文:[https://life hacker . com/dig-into-近 30 年的免费经典科学小说-1797738492](https://lifehacker.com/dig-into-nearly-30-years-of-free-classic-science-fictio-1797738492)
+> 原文：<https://lifehacker.com/dig-into-nearly-30-years-of-free-classic-science-fictio-1797738492>
 
 如果你是雷·布雷德伯里、艾萨克·阿西莫夫和罗伯特·A·海因莱因等经典科幻小说的粉丝，你很幸运。Archive.org 现在有大量收集的杂志 [*银河科幻*](https://en.wikipedia.org/wiki/Galaxy_Science_Fiction) 供你免费阅读。
 

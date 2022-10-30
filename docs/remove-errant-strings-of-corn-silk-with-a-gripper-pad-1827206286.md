@@ -1,6 +1,6 @@
 # 用叼纸牙垫去除错误的玉米须
 
-> 原文:[https://life hacker . com/remove-errant-strings-of-corn-silk-with-a-gripper-pad-1827206286](https://lifehacker.com/remove-errant-strings-of-corn-silk-with-a-gripper-pad-1827206286)
+> 原文：<https://lifehacker.com/remove-errant-strings-of-corn-silk-with-a-gripper-pad-1827206286>
 
 如果你带着壳煮玉米，你应该这样做，剥壳不是一个大问题，因为所有的东西都会滑下来。但是，如果你需要在这些多汁的核仁还是生的时候吃——也许是腌制它们，或者撒在沙拉上——去除这些小丝可能会有点令人沮丧。
 

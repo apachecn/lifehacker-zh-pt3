@@ -1,6 +1,6 @@
 # Vanilla 是一个更便宜的 Mac 菜单栏清理工具
 
-> 原文:[https://life hacker . com/vanilla-is-a-price-clean-up-tool-for-the-MAC-menu-bar-1827296452](https://lifehacker.com/vanilla-is-a-cheaper-cleanup-tool-for-the-mac-menu-bar-1827296452)
+> 原文：<https://lifehacker.com/vanilla-is-a-cheaper-cleanup-tool-for-the-mac-menu-bar-1827296452>
 
 MacOS:我们喜欢 [酒保](https://www.macbartender.com/) ，这款 15 美元的应用可以让你隐藏你选择的菜单栏项目。但是有一个更简单、更便宜的应用程序可以做同样的事情。 [香草](https://matthewpalmer.net/vanilla/) 隐藏你的菜单栏项目，只需 5 美元。而且可以免费试用。
 

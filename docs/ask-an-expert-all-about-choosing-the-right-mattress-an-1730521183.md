@@ -1,6 +1,6 @@
 # 请教专家:选择合适的床垫和获得更好的睡眠
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-choose-the-right-床垫-an-1730521183](https://lifehacker.com/ask-an-expert-all-about-choosing-the-right-mattress-an-1730521183)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-choosing-the-right-mattress-an-1730521183>
 
 当你购买新床垫时，有很多因素需要考虑:你想找到完美的硬度，这将有助于你获得良好的睡眠，并确定一个预算，提供你需要的东西(而不打破银行)。你如何找到适合你的快乐媒介？
 

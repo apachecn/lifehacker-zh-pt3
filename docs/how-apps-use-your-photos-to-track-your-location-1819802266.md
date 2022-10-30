@@ -1,6 +1,6 @@
 # 应用程序如何使用您的照片来跟踪您的位置
 
-> 原文:[https://life hacker . com/how-apps-use-your-photos-to-track-your-location-1819802266](https://lifehacker.com/how-apps-use-your-photos-to-track-your-location-1819802266)
+> 原文：<https://lifehacker.com/how-apps-use-your-photos-to-track-your-location-1819802266>
 
 如果你担心应用程序跟踪你的位置，这不足以限制你的位置共享。你也需要限制共享胶卷。如果你曾经让一个应用程序访问你的相机胶卷——拍照、存储截图或任何给定的原因——你也让它看到了所有这些照片的拍摄地点。iOS 开发人员和安全作家 Felix Krause 开发了一个应用程序来演示这个后门:
 

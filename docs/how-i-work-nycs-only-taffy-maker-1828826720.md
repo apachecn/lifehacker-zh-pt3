@@ -1,6 +1,6 @@
 # 我的工作方式:纽约唯一的太妃糖制造商
 
-> 原文:[https://life hacker . com/how-I-work-nycs-only-taffy-maker-1828826720](https://lifehacker.com/how-i-work-nycs-only-taffy-maker-1828826720)
+> 原文：<https://lifehacker.com/how-i-work-nycs-only-taffy-maker-1828826720>
 
 "呃，盐水太妃糖有点恶心。"多年前，当一位同事建议玛丽莎·吴(Marisa Wu)自己制作一些时，她也是这么想的。但后来她研究并发现了如何烹饪由真正的原料调味的太妃糖，而不是实验室创造的化学物质。现在，吴经营着一家受欢迎的高端太妃糖品牌“咸道太妃糖”，这里的香蕉味尝起来像真香蕉(而且是用真香蕉制成的)，每种配方都经过仔细校准，并在古董设备上制作。吴给我们看了太妃糖工厂的视频，并在工厂的桌子上谈论了她的小企业的生产、营销和其他方面。
 

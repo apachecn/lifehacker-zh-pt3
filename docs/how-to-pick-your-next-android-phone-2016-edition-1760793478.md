@@ -1,6 +1,6 @@
 # 如何选择你的下一部安卓手机:2016 版
 
-> 原文:[https://life hacker . com/how-to-pick-your-next-Android-phone-2016-edition-1760793478](https://lifehacker.com/how-to-pick-your-next-android-phone-2016-edition-1760793478)
+> 原文：<https://lifehacker.com/how-to-pick-your-next-android-phone-2016-edition-1760793478>
 
 本年度最大的智能手机贸易展——世界移动通信大会 于本周举行，三星和 LG 等公司在那里展示他们希望你购买的热门新手机。所有这些都让我们看到了 Android 手机在 2016 年将如何发展，以及你在购买下一部智能手机之前应该寻找什么。
 

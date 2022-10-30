@@ -1,6 +1,6 @@
 # 在 Instagram 上研究你的假期
 
-> 原文:[https://life hacker . com/research-your-vacation-on-insta gram-1824022452](https://lifehacker.com/research-your-vacation-on-instagram-1824022452)
+> 原文：<https://lifehacker.com/research-your-vacation-on-instagram-1824022452>
 
 每次我去度假，都会被拍照的人包围。但我最近才意识到，这种假期烦恼可能是有用的:在你预订酒店、露营地、餐桌或博物馆门票之前，在 Instagram 上查找这个地方。不是这个地方的官方记录，而是在那个地方拍摄的所有照片。(只需在 Instagram 中运行搜索，点击带有地图大头针图标的结果。)
 

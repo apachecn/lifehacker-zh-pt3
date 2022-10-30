@@ -1,6 +1,6 @@
 # 在你 20 多岁和 30 岁出头的时候，应该了解哪些关于金钱的知识
 
-> 原文:[https://life hacker . com/what-to-know-what-to-know-about money in your-20-30 出头-1828308837](https://lifehacker.com/what-to-know-about-money-in-your-20s-and-early-30s-1828308837)
+> 原文：<https://lifehacker.com/what-to-know-about-money-in-your-20s-and-early-30s-1828308837>
 
 所以，在现实世界中，你只能靠自己，有全职工作和 401(k)来匹配。你已经 [为自己建立了不错的信用评分](https://twocents.lifehacker.com/how-to-boost-your-credit-or-build-it-up-from-nothing-1797485359) ，你正在 [关注你的学生贷款](https://twocents.lifehacker.com/small-things-you-can-do-to-get-your-student-loans-under-1827372684) ，你想知道你还能做些什么来最大化你的财务。
 

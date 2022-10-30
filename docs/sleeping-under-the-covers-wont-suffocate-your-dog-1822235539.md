@@ -1,6 +1,6 @@
 # 盖着被子睡觉不会让你的狗窒息
 
-> 原文:[https://life hacker . com/sleeping-under-the-covers-won-suggested-your-dog-1822235539](https://lifehacker.com/sleeping-under-the-covers-wont-suffocate-your-dog-1822235539)
+> 原文：<https://lifehacker.com/sleeping-under-the-covers-wont-suffocate-your-dog-1822235539>
 
 你的狗应该和你一起睡在床上吗？这是一个有争议的问题。即使是一只小狗也能占据很多床的空间，一些训练员会说让你的狗睡在板条箱里或自己的床上会设定一个重要的界限，有助于它们的行为。但另一方面:依偎。
 

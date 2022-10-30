@@ -1,6 +1,6 @@
 # 这两种配料可以把几乎任何水果变成沙拉
 
-> 原文:[https://life hacker . com/things-two-ingredients-可以把几乎任何水果变成 a-1819150232](https://lifehacker.com/these-two-ingredients-can-turn-almost-any-fruit-into-a-1819150232)
+> 原文：<https://lifehacker.com/these-two-ingredients-can-turn-almost-any-fruit-into-a-1819150232>
 
 西瓜和羊乳酪沙拉已经成为夏季的标志。咸羊乳酪与甜瓜形成了鲜明的对比，而新鲜薄荷则增添了一层深度和精致。我也喜欢在我的碗里放一点红洋葱，为了更强烈的辣味，斯科特·科南特该死。
 

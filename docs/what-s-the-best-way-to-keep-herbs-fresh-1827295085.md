@@ -1,6 +1,6 @@
 # 保持草药新鲜的最好方法是什么？
 
-> 原文:[https://the take out . com/what-s-the-best-way-keep-herbers-fresh-1827295085](https://thetakeout.com/what-s-the-best-way-to-keep-herbs-fresh-1827295085)
+> 原文：<https://thetakeout.com/what-s-the-best-way-to-keep-herbs-fresh-1827295085>
 
 如果你足够幸运，有足够的空间和园艺技能让草本植物从春天一直长到秋天，那么恭喜你。我们其余的人忍受着在杂货店购买那些塑料外壳、4 美元一片的草药碎片的屈辱，然后祈祷它们在我们的厨房里能保持好 12 个小时以上。农贸市场的草药也是如此。那么，让这些珍贵的蔬菜保持更长时间新鲜的最好方法是什么呢？
 

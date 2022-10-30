@@ -1,6 +1,6 @@
 # 战略性地使用时事通讯，在你生日那天获得一次免费的酒吧爬行
 
-> 原文:[https://life hacker . com/strategically-use-newslettes-to-get-a-free-bar-crawl-o-1798537056](https://lifehacker.com/strategically-use-newsletters-to-get-a-free-bar-crawl-o-1798537056)
+> 原文：<https://lifehacker.com/strategically-use-newsletters-to-get-a-free-bar-crawl-o-1798537056>
 
 任何人都不应该在生日那天自己买饮料。除了从热心的朋友那里得到免费赠品，如果你订阅了他们的时事通讯，很多酒吧会给你一两杯免费的生日饮料。如果你提前计划，你可以把免费的饮料变成免费的酒吧爬行。
 

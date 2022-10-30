@@ -1,6 +1,6 @@
 # 如何在 Windows 10 中免费查看 HEVC 或 HEIC 文件
 
-> 原文:[https://life hacker . com/how-to-view-hevc-or-heic-files-in-windows-10-for-free-1827094768](https://lifehacker.com/how-to-view-hevc-or-heic-files-in-windows-10-for-free-1827094768)
+> 原文：<https://lifehacker.com/how-to-view-hevc-or-heic-files-in-windows-10-for-free-1827094768>
 
 **Windows:** 本周的特色 Windows 应用程序本身并不是一个真正的应用程序，但它是一个非常有用的扩展，如果你有任何一种可以拍摄和存储的设备，你都会想从 Windows Store 中获得它。HEIC 图像。
 

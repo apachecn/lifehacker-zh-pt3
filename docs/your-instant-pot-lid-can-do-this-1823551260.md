@@ -1,6 +1,6 @@
 # 你的速溶锅盖可以做到这一点
 
-> 原文:[https://life hacker . com/your-instant-pot-lid-can-do-this-1823551260](https://lifehacker.com/your-instant-pot-lid-can-do-this-1823551260)
+> 原文：<https://lifehacker.com/your-instant-pot-lid-can-do-this-1823551260>
 
 我讨厌处理滚烫的、滴着冷凝水的锅盖；这让他们无法优雅地放下。到目前为止，我的速溶壶盖是最大的罪魁祸首——但再也不是了，我的朋友们。
 

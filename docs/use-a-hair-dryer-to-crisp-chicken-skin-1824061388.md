@@ -1,6 +1,6 @@
 # 用吹风机把鸡皮弄脆
 
-> 原文:[https://life hacker . com/use-a-dryer-to-crisp-chicken-skin-1824061388](https://lifehacker.com/use-a-hair-dryer-to-crisp-chicken-skin-1824061388)
+> 原文：<https://lifehacker.com/use-a-hair-dryer-to-crisp-chicken-skin-1824061388>
 
 即使你通常不使用它们来吹干头发，吹风机在处理一些不同的任务时也是有用的。本周,《纽约客》美食记者海伦·罗斯纳在网络上又掀起了一场波澜，她分享了另一个:脆皮鸡皮。
 

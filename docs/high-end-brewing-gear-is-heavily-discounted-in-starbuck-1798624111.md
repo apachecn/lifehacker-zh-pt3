@@ -1,6 +1,6 @@
 # 在星巴克的清仓大甩卖中，高端酿造设备大打折扣
 
-> 原文:[https://life hacker . com/high-end-brewing-gear-in-Starbuck-1798624111](https://lifehacker.com/high-end-brewing-gear-is-heavily-discounted-in-starbuck-1798624111)
+> 原文：<https://lifehacker.com/high-end-brewing-gear-is-heavily-discounted-in-starbuck-1798624111>
 
 星巴克的网上商店将于 10 月 1 日关闭，但不要悲伤——他们的清仓大甩卖值得庆祝。(你仍然可以在商店里买到品牌马克杯之类的东西。)
 

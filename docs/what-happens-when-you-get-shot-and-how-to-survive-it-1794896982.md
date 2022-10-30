@@ -1,6 +1,6 @@
 # 当你中枪时会发生什么，如何幸存下来
 
-> 原文:[https://life hacker . com/what-happens-when-when-when-you-get-shot-and-how-to-survive-it-1794896982](https://lifehacker.com/what-happens-when-you-get-shot-and-how-to-survive-it-1794896982)
+> 原文：<https://lifehacker.com/what-happens-when-you-get-shot-and-how-to-survive-it-1794896982>
 
 如果你害怕被枪击，你并不孤单，不幸的是，你的恐惧是合理的。在美国，每天大约有 100 人死于枪支。更糟糕的是，枪和它们发射的子弹并不是好莱坞标榜的超精确武器。它们很脏，而且会造成很多你看不到的伤害。这就是如果你挨了一枪会发生的事情，以及你能做些什么来拯救你或其他人的生命。
 

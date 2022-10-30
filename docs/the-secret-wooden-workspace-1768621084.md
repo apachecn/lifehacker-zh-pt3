@@ -1,6 +1,6 @@
 # 秘密木质工作空间
 
-> 原文:[https://life hacker . com/the-secret-wooden-workspace-1768621084](https://lifehacker.com/the-secret-wooden-workspace-1768621084)
+> 原文：<https://lifehacker.com/the-secret-wooden-workspace-1768621084>
 
 [史蒂文·威尔克](https://www.flickr.com/photos/stevenwilke/) 的地下室视频制作和编辑工作室是木质镶板，全部手工设计和建造，看起来棒极了。他把地下室的空间拉回到墙壁上来建造他梦想中的工作空间，最终的成品清晰可见。
 

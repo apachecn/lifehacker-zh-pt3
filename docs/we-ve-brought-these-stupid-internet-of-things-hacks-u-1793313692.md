@@ -1,6 +1,6 @@
 # 这些愚蠢的“物联网”黑客是我们自找的
 
-> 原文:[https://life hacker . com/we-ve-bring-things-internet-of-things-hacks-u-1793313692](https://lifehacker.com/we-ve-brought-these-stupid-internet-of-things-hacks-u-1793313692)
+> 原文：<https://lifehacker.com/we-ve-brought-these-stupid-internet-of-things-hacks-u-1793313692>
 
 无论是报道不多的关于 [黑掉三星电视](https://www.wired.com/2017/03/worried-cia-hacked-samsung-tv-heres-tell/) 的故事，还是令人悲伤的关于 [黑掉泰迪熊](https://arstechnica.com/security/2017/02/creepy-iot-teddy-bear-leaks-2-million-parents-and-kids-voice-messages/) 的爆笑故事，甚至是更多关于窃听微波炉 的 [离奇说法，真实的、虚假的、夸大的关于我们选择用来连接互联网的设备可能发生的所有事情的报道都占据了新闻。我们给自己带来了这个愚蠢的未来。](http://theslot.jezebel.com/kellyanne-when-asked-about-trump-wiretapping-claims-b-1793211096) 
 

@@ -1,6 +1,6 @@
 # 最佳播客搜索引擎
 
-> 原文:[https://life hacker . com/the-best-podcast-search-engine-1818560337](https://lifehacker.com/the-best-podcast-search-engine-1818560337)
+> 原文：<https://lifehacker.com/the-best-podcast-search-engine-1818560337>
 
 查找播客很容易；找到相关剧集就更难了。如果你想找到，比如说，保罗·F·汤普金斯所有的客串，或者关于俄国革命的播客片段，试试播客搜索引擎 [收听笔记](https://www.listennotes.com/) 。
 

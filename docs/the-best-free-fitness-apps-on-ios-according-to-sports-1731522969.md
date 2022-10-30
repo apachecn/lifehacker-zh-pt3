@@ -1,6 +1,6 @@
 # 运动科学家称，iOS 上最好的免费健身应用
 
-> 原文:[https://life hacker . com/the-best-free-fitness-apps-on-IOs-by-sports-1731522969](https://lifehacker.com/the-best-free-fitness-apps-on-ios-according-to-sports-1731522969)
+> 原文：<https://lifehacker.com/the-best-free-fitness-apps-on-ios-according-to-sports-1731522969>
 
 iOS 应用商店充满了免费的健身应用，承诺提供完美的、有科学依据的锻炼。然而，最近的一项调查表明，这些应用程序中的大部分都不符合美国运动医学院制定的指导方针。这些是最接近的。
 

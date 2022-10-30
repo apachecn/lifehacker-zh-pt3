@@ -1,6 +1,6 @@
 # 永远不要因为藏了多余的东西而不小心把牙刷忘在家里了
 
-> 原文:[https://life hacker . com/never-incidential-leave-your-brush-in-home-again-1797167459](https://lifehacker.com/never-accidentally-leave-your-toothbrush-at-home-again-1797167459)
+> 原文：<https://lifehacker.com/never-accidentally-leave-your-toothbrush-at-home-again-1797167459>
 
 说到打包，我已经把我的日常工作简化到一门完美的科学，我可以在 15 分钟或更短的时间内打包好两周的国际旅行，并且不会忘记我需要的任何东西。除了我的牙刷。那是我每次旅行都会不小心落下的东西——直到这个星期，我带了三个，这多亏了我以前的一点计划。
 

@@ -1,6 +1,6 @@
 # 关于 iPhone X 上的 Face ID，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-on-the-iphone-x-1804641406](https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-face-id-on-the-iphone-x-1804641406>
 
 iPhone X 的全屏显示可能是你注意到这款新设备的第一件事，但苹果升级的前置摄像头也值得你关注。也许更是如此。
 

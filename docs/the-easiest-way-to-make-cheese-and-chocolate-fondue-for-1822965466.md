@@ -1,6 +1,6 @@
 # 制作两人份奶酪巧克力火锅的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-way-to-make-the-easy-way-for-1822965466](https://lifehacker.com/the-easiest-way-to-make-cheese-and-chocolate-fondue-for-1822965466)
+> 原文：<https://lifehacker.com/the-easiest-way-to-make-cheese-and-chocolate-fondue-for-1822965466>
 
 无论是用奶酪还是巧克力做的，火锅都有一种俗气、挑剔的名声。尽管它很俗气，但是用粘稠的、融化的巧克力或者黑色的液体巧克力蘸着吃，会是一顿有趣的、挑逗的、令人惊讶的低能量的饭。
 

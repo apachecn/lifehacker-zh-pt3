@@ -1,6 +1,6 @@
 # 如何建立自己的家庭防辐射避难所
 
-> 原文:[https://life hacker . com/how-to-build-your-own-family-offset-shelter-1818854562](https://lifehacker.com/how-to-build-your-own-family-fallout-shelter-1818854562)
+> 原文：<https://lifehacker.com/how-to-build-your-own-family-fallout-shelter-1818854562>
 
 回到 50 年代和 60 年代，如果你没有自己的防辐射掩体，你的家就不完整。这个经典的教育视频告诉你如何建立自己的。
 

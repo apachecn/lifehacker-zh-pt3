@@ -1,6 +1,6 @@
 # 在你死后，信用卡仍然收取利息
 
-> 原文:[https://life hacker . com/credit-cards-still-charge-interest-after you die-1827929097](https://lifehacker.com/credit-cards-still-charge-interest-after-you-die-1827929097)
+> 原文：<https://lifehacker.com/credit-cards-still-charge-interest-after-you-die-1827929097>
 
 有句话说，当你死的时候，你不能带走任何东西。至于你的债务，那是因为它们在地球上不断积累。
 

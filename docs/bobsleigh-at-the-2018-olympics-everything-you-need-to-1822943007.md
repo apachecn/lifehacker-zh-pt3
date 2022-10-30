@@ -1,6 +1,6 @@
 # 2018 年奥运会上的有舵雪橇:你需要知道的一切
 
-> 原文:[https://life hacker . com/bobsleigh-at-the-2018-Olympics-everything-you-need-to-1822943007](https://lifehacker.com/bobsleigh-at-the-2018-olympics-everything-you-need-to-1822943007)
+> 原文：<https://lifehacker.com/bobsleigh-at-the-2018-olympics-everything-you-need-to-1822943007>
 
 对于那些关注奥运会的人来说，本周是参加雪橇比赛的好时机，因为训练赛将于周四开始。如果你对奥林匹克“有舵雪橇”的了解都是从观看凉爽的跑道开始和结束的，那么你可以再多学一点。
 

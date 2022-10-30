@@ -1,6 +1,6 @@
 # 停用脸书以避免尴尬
 
-> 原文:[https://life hacker . com/deactivate-Facebook-避免尴尬-1822666357](https://lifehacker.com/deactivate-facebook-to-avoid-embarrassment-1822666357)
+> 原文：<https://lifehacker.com/deactivate-facebook-to-avoid-embarrassment-1822666357>
 
 随着 [脸书终于开始收缩](https://gizmodo.com/actually-mark-zuckerberg-is-glad-you-re-using-facebook-1822607598) ，不经常使用它已经变得很正常了。如果你一周只查看一两次，你可能会发现你妈妈五天前在一张尴尬的照片或政治迷因中给你加了标签，而你所有的朋友都蜂拥而至。我有个主意:暂时关闭脸书。真的很简单——[这是脸书的指令](https://www.facebook.com/help/214376678584711?helpref=faq_content)——而且你不会丢失任何数据。
 

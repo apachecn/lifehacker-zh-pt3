@@ -1,6 +1,6 @@
 # 用 2-3-1 技巧写出更强的句子
 
-> 原文:[https://life hacker . com/write-strong-sentences-with-the-2-3-1-trick-1821298844](https://lifehacker.com/write-stronger-sentences-with-the-2-3-1-trick-1821298844)
+> 原文：<https://lifehacker.com/write-stronger-sentences-with-the-2-3-1-trick-1821298844>
 
 在我主修英语的六个学期中，这是我学到的最好的东西:当有疑问时，将句子中最好的部分放在最后，次好的放在开头，其余的放在中间。所以按照最好的顺序，那就是 2，然后 3，然后 1。
 

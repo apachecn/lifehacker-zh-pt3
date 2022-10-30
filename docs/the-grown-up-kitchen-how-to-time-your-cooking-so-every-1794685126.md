@@ -1,6 +1,6 @@
 # 成人厨房:如何安排烹饪时间，让每样东西都准备好
 
-> 原文:[https://life hacker . com/the-grown-kitchen-how-to-time your-cooking-so-every-1794685126](https://lifehacker.com/the-grown-up-kitchen-how-to-time-your-cooking-so-every-1794685126)
+> 原文：<https://lifehacker.com/the-grown-up-kitchen-how-to-time-your-cooking-so-every-1794685126>
 
 当准备一顿“正餐”时——你知道，那种有蛋白质和至少两面的食物——我很少在实际烹饪中挣扎。我可以烹饪一只鸡，捣碎一些土豆，烤一盘西兰花，没有任何问题，但对这一切进行计时，以便所有东西都同时上桌——热的和准备好的——是给我带来麻烦的。
 

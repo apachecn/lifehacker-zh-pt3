@@ -1,6 +1,6 @@
 # 您的一项 Equifax 黑客保护即将到期
 
-> 原文:[https://life hacker . com/one-of-your-equifax-hack-protections-expires-soon-1821184336](https://lifehacker.com/one-of-your-equifax-hack-protections-expires-soon-1821184336)
+> 原文：<https://lifehacker.com/one-of-your-equifax-hack-protections-expires-soon-1821184336>
 
 还记得那个 [大规模 Equifax 安全漏洞](https://lifehacker.com/equifax-is-waiving-their-credit-freeze-fees-for-30-days-1805663077) 吗？如果你在你的信用报告上放了一个 90 天的欺诈警告，它可能马上就要到期了。
 

@@ -1,6 +1,6 @@
 # 我是弗吉尼亚·k·史密斯，Lifehacker 的执行编辑，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Virginia-k-Smith-life hacker-managing-editor-and-t-1829115144](https://lifehacker.com/im-virginia-k-smith-lifehacker-managing-editor-and-t-1829115144)
+> 原文：<https://lifehacker.com/im-virginia-k-smith-lifehacker-managing-editor-and-t-1829115144>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是弗吉尼亚·k·史密斯，这就是我的工作方式。
 

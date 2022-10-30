@@ -1,6 +1,6 @@
 # 查看您的哪些 WhatsApp 联系人一直在与这款令人毛骨悚然的新应用聊天[已更新]
 
-> 原文:[https://life hacker . com/see-which-of-your ' s whatsapp-contacts-has-chatting-1824149613](https://lifehacker.com/see-which-of-your-whatsapp-contacts-have-been-chatting-1824149613)
+> 原文：<https://lifehacker.com/see-which-of-your-whatsapp-contacts-have-been-chatting-1824149613>
 
 [脸书一直在监视我们](https://lifehacker.com/facebook-isn-t-recording-your-conversations-but-it-may-1820193946) ，推而广之，它旗下的公司也是如此，比如 [Instagram](https://lifehacker.com/how-to-clean-up-your-instagram-explore-feed-1824030593) 和 [WhatsApp](https://lifehacker.com/watch-out-for-this-fake-whatsapp-app-in-the-google-play-1820222637) 。现在，一个应用程序正在扭转局面，让你使用他们悄悄收集的所有数据来监视你自己的 WhatsApp 朋友和联系人。
 

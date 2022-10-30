@@ -1,6 +1,6 @@
 # 不要丢球:防止宿醉你的新年夜
 
-> 原文:[https://www . the root . com/don-drop-the-ball-proof-your-new-years-eve-1821645612](https://www.theroot.com/dont-drop-the-ball-hangover-proof-your-new-years-eve-1821645612)
+> 原文：<https://www.theroot.com/dont-drop-the-ball-hangover-proof-your-new-years-eve-1821645612>
 
 期待新年前夜的放纵吗？提前计划:有一种聪明的新型抗宿醉维生素补充剂叫做 Over EZ 。它的设计是为了在你前一天晚上喝了太多酒后，帮助你减轻早晨的痛苦。诚然，如果你喝多了，Over EZ 不会阻止你喝醉，感觉兴奋或受损，但它确实会让你在治疗潜在的宿醉方面有所帮助。
 

@@ -1,6 +1,6 @@
 # 在多林哥学习夏威夷语和纳瓦霍语
 
-> 原文:[https://life hacker . com/learn-the-Hawaiian-and-Navajo-languages-on-duo lingo-1829555019](https://lifehacker.com/learn-the-hawaiian-and-navajo-languages-on-duolingo-1829555019)
+> 原文：<https://lifehacker.com/learn-the-hawaiian-and-navajo-languages-on-duolingo-1829555019>
 
 刚好赶上 [土著民族日](https://en.wikipedia.org/wiki/Indigenous_Peoples%27_Day) ， [Duolingo](https://www.duolingo.com/) 正在推出两门针对濒危土著语言的课程，这两门课程都是由母语人士创作的。从今天开始，你可以使用该应用程序学习夏威夷土著人和 Diné人(更广为人知的是纳瓦霍族)所说的语言。
 

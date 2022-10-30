@@ -1,6 +1,6 @@
 # 给饮酒者的鸡尾酒:容易获得，甚至不是遥远的手工鸡尾酒
 
-> 原文:[https://life hacker . com/cocktails-for-drinkers-accessible-not-even-remote-a-1766948146](https://lifehacker.com/cocktails-for-drinkers-accessible-not-even-remotely-a-1766948146)
+> 原文：<https://lifehacker.com/cocktails-for-drinkers-accessible-not-even-remotely-a-1766948146>
 
 手工鸡尾酒运动已经变得有点激烈，尽管我不是在抱怨，但许多人都觉得它变得有点珍贵，因为有了浸剂、奇特的糖浆和本地草药酊剂。在为饮酒者准备的 [*鸡尾酒*](https://www.amazon.com/dp/1581573545?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/cocktails-for-drinkers-accessible-not-even-remotely-a-1766948146&asc_source=&linkCode=ogi&psc=1&smid=ATVPDKIKX0DER&tag=kinjalifehackerlink-20&th=1) 中，作者詹妮弗·麦卡特尼给了你需要的指导，让你“在你的厨房柜台上调制一杯好的、僵硬的鸡尾酒”，不需要搅混。
 

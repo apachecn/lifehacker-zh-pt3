@@ -1,6 +1,6 @@
 # 电影院应该有休息时间
 
-> 原文:[https://life hacker . com/movie-theaters-should-has-intermissions-1819443812](https://lifehacker.com/movie-theaters-should-have-intermissions-1819443812)
+> 原文：<https://lifehacker.com/movie-theaters-should-have-intermissions-1819443812>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Mw91RJ_m_7g&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Mw91RJ_m_7g&start=0) 
 

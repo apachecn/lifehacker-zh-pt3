@@ -1,6 +1,6 @@
 # 通过这项服务，从当地人的角度体验一座新城市
 
-> 原文:[https://life hacker . com/experience-a-new-city-through-the-eyes-of-a-local-with-1827434272](https://lifehacker.com/experience-a-new-city-through-the-eyes-of-a-local-with-1827434272)
+> 原文：<https://lifehacker.com/experience-a-new-city-through-the-eyes-of-a-local-with-1827434272>
 
 旅行中我最喜欢的一部分是结识新朋友，探索新的文化。当你不知道去哪里见那些人或者有那些独特的文化经历时，事情会变得有点困难。
 

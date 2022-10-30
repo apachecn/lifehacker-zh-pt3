@@ -1,6 +1,6 @@
 # 如何处理你的孩子晕车
 
-> 原文:[https://jalopnik . com/how-to-hand-your kid-car-sick-1711292540](https://jalopnik.com/how-to-handle-your-kid-getting-car-sick-1711292540)
+> 原文：<https://jalopnik.com/how-to-handle-your-kid-getting-car-sick-1711292540>
 
 有时候你会得到一个警告，类似于“Daaaad，我感觉不好。”或者你可能只是在活动开始前听到微弱的流水声。一颗炸弹即将在你的后座爆炸，通常是一些鸡块、PB&J 和果汁饮料的组合。这不是是否的问题，而是何时的问题。
 

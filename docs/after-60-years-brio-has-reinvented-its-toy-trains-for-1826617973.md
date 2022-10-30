@@ -1,6 +1,6 @@
 # 60 年后，布里奥重新发明了面向未来的玩具火车
 
-> 原文:[https://gizmodo . com/after-60-years-brio-a-reinvested-its-toy-trains-for-1826617973](https://gizmodo.com/after-60-years-brio-has-reinvented-its-toy-trains-for-1826617973)
+> 原文：<https://gizmodo.com/after-60-years-brio-has-reinvented-its-toy-trains-for-1826617973>
 
 布里奥的磁性木制火车就像乐高积木或风火轮汽车一样是标志性的玩具。传统上，儿童动力，几年前电动马达被引入该线，但今年 [布里奥列车](https://www.brio.us/) 正在升级，具有智能功能，允许它们与轨道和玩具互动。不过，先不要惊慌失措；布里奥的智能科技玩具不会剥夺你的孩子的想象力驱动的冒险。
 

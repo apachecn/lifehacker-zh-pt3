@@ -1,6 +1,6 @@
 # 日食是什么时候？
 
-> 原文:[https://lifehacker.com/what-time-is-the-eclipse-1798154920](https://lifehacker.com/what-time-is-the-eclipse-1798154920)
+> 原文：<https://lifehacker.com/what-time-is-the-eclipse-1798154920>
 
 今天的日食会持续几个小时，取决于你在哪里。西海岸早上 9 点左右，东海岸下午 1 点左右开始出现第一缕曙光。如果你在全食的路径上——月亮挡住了 100%的太阳——黑暗的时刻只会持续几分钟。您可以在这里 查找您所在位置 [的准确时间。](https://www.vox.com/science-and-health/2017/7/25/16019892/solar-eclipse-2017-interactive-map) 
 

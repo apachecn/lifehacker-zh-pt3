@@ -1,6 +1,6 @@
 # 使用 iHEARu 应用程序避免嘈杂的餐厅
 
-> 原文:[https://life hacker . com/this-app-helps-you-avoid-or-find-loud-restaurants-1822903871](https://lifehacker.com/this-app-helps-you-avoid-or-find-loud-restaurants-1822903871)
+> 原文：<https://lifehacker.com/this-app-helps-you-avoid-or-find-loud-restaurants-1822903871>
 
 出去吃午餐或晚餐是和朋友叙旧的好方法，当然，除非你偶然选择了镇上最吵的餐馆进行长达一小时的聚会。
 

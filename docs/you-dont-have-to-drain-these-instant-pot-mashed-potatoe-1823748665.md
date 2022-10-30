@@ -1,6 +1,6 @@
 # 你不必把这些速溶马铃薯泥沥干
 
-> 原文:[https://life hacker . com/you-dont-to-drain-this-instant-pot-massed-potatoe-1823748665](https://lifehacker.com/you-dont-have-to-drain-these-instant-pot-mashed-potatoe-1823748665)
+> 原文：<https://lifehacker.com/you-dont-have-to-drain-these-instant-pot-mashed-potatoe-1823748665>
 
 我最喜欢用速溶锅(或任何高压锅)烹饪的东西之一是块根蔬菜，否则会花更长的时间。土豆肯定属于这一类，特别是因为你可以完全在速溶锅里制作完美的奶油土豆泥，不需要排水。
 

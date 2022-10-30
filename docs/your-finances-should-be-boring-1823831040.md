@@ -1,6 +1,6 @@
 # 你的财务应该很无聊
 
-> 原文:[https://life hacker . com/your-financies-should-be-boring-1823831040](https://lifehacker.com/your-finances-should-be-boring-1823831040)
+> 原文：<https://lifehacker.com/your-finances-should-be-boring-1823831040>
 
 每个人都想在尽可能不费力的情况下学习致富的技巧和诀窍。在从事我们热爱的工作的同时，我们如何在不牺牲任何生活奢侈品的情况下为房子、退休、偿还债务而生活？
 

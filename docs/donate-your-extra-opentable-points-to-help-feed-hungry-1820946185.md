@@ -1,6 +1,6 @@
 # 捐赠您额外的 OpenTable 点数来帮助饥饿的孩子
 
-> 原文:[https://life hacker . com/donate-your-extra-opentable-points-to-help-feed-hungry-1820946185](https://lifehacker.com/donate-your-extra-opentable-points-to-help-feed-hungry-1820946185)
+> 原文：<https://lifehacker.com/donate-your-extra-opentable-points-to-help-feed-hungry-1820946185>
 
 出于某种原因，我总是我们组里预订晚餐的人。我讨厌排队，所以每当我的一群朋友建议我们出去吃饭时，我通常会自愿预订，通常是通过 OpenTable，我在那里的大多数预订都可以获得 100 分。
 

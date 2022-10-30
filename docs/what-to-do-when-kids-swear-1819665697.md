@@ -1,6 +1,6 @@
 # 当孩子说脏话时该怎么办
 
-> 原文:[https://life hacker . com/what-do-when-kids-sweet-1819665697](https://lifehacker.com/what-to-do-when-kids-swear-1819665697)
+> 原文：<https://lifehacker.com/what-to-do-when-kids-swear-1819665697>
 
 孩子们话很多。当已经过了就寝时间 18 分钟，父母们仍在剖析电影《我的小马》中的比喻时，他们通常会点头或轻笑，或者露出呆滞的表情，但时不时地，他们会听到一句话，然后倒吸一口凉气。
 

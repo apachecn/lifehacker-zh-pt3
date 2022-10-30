@@ -1,6 +1,6 @@
 # 忘记南瓜，在这个感恩节做一个红薯馅饼吧
 
-> 原文:[https://life hacker . com/forget-pumpkin-and-make-a-sweet-potato-pie-this-thanksgs-1820083902](https://lifehacker.com/forget-pumpkin-and-make-a-sweet-potato-pie-this-thanksg-1820083902)
+> 原文：<https://lifehacker.com/forget-pumpkin-and-make-a-sweet-potato-pie-this-thanksg-1820083902>
 
 在接下来的几周里，没有哪种馅饼会比南瓜派更受讨论、报道和炒作。将会有关于使用新鲜南瓜而不是罐装南瓜的辩论，关于面皮和全麦饼干的争论，以及各种南瓜品种的仔细、详细的比较。我建议你跳过这些，做一个红薯馅饼。
 

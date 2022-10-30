@@ -1,6 +1,6 @@
 # 用这个金钱测验来测试你孩子的理财能力
 
-> 原文:[https://life hacker . com/test-your-kids-financial-savvy-with this-money-quick-1795818650](https://lifehacker.com/test-your-kids-financial-savvy-with-this-money-quiz-1795818650)
+> 原文：<https://lifehacker.com/test-your-kids-financial-savvy-with-this-money-quiz-1795818650>
 
 消费者金融保护局(CFPB)一直让那些利用客户的大银行[发薪日贷款机构](https://www.consumerfinance.gov/about-us/blog/weve-proposed-rule-protect-consumers-payday-debt-traps/) 头疼，但他们一直是消费者和金融知识的优秀倡导者。
 

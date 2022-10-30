@@ -1,6 +1,6 @@
 # 使用谷歌快递在好市多购物，无需会员
 
-> 原文:[https://life hacker . com/use-Google-express-to-shop-at-Costco-without-a-members sh-1820735023](https://lifehacker.com/use-google-express-to-shop-at-costco-without-a-membersh-1820735023)
+> 原文：<https://lifehacker.com/use-google-express-to-shop-at-costco-without-a-membersh-1820735023>
 
 有两件事阻止我去好市多购物:我没有会员卡，也没有车把我的东西运回家。如果你也有类似的遭遇，谷歌快递的 [和](https://support.google.com/express/answer/4561693?hl=en)可以同时解决这两个问题。
 

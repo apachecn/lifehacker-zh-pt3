@@ -1,6 +1,6 @@
 # 如何购买汽车而不被经销商永远跟踪
 
-> 原文:[https://jalopnik . com/how-to-shop for-a car-without-dealers-fore-1796753270](https://jalopnik.com/how-to-shop-for-a-car-without-dealers-stalking-you-fore-1796753270)
+> 原文：<https://jalopnik.com/how-to-shop-for-a-car-without-dealers-stalking-you-fore-1796753270>
 
 买车是一件痛苦的事。为了明智地购物，你真的应该通过电话和电子邮件与经销商沟通。问题是一旦他们有了这些信息，你很可能会收到大量的电话和电子邮件——包括在你买完车之后。
 

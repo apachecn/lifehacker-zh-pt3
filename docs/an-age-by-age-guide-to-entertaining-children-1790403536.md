@@ -1,6 +1,6 @@
 # 娱乐儿童的年龄指南
 
-> 原文:[https://life hacker . com/an-age-by-age-guide-to-entertainment-children-1790403536](https://lifehacker.com/an-age-by-age-guide-to-entertaining-children-1790403536)
+> 原文：<https://lifehacker.com/an-age-by-age-guide-to-entertaining-children-1790403536>
 
 在我有自己的孩子之前，在家庭聚会上，在年轻人面前，我总是感到尴尬。当然，我想让 T1 和别人的孩子一起玩，或者甚至知道如果一个朋友需要我照看他们的孩子，如何让他们忙起来，但是我不知道怎么做。事实证明，如果你知道一些好的破冰者，这份工作并不难。
 

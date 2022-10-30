@@ -1,6 +1,6 @@
 # 观看乔治·卢卡斯搞砸之前的《星球大战》三部曲
 
-> 原文:[https://life hacker . com/watch-the-original-star-wars-trilogy-as-it-as-that-that-is-that-before-the-that-that-that-is-that-be-the-it-that-been-g-1747927284](https://lifehacker.com/watch-the-original-star-wars-trilogy-as-it-was-before-g-1747927284)
+> 原文：<https://lifehacker.com/watch-the-original-star-wars-trilogy-as-it-was-before-g-1747927284>
 
 自 1997 年以来，乔治·卢卡斯一心想毁掉《星球大战》三部曲。每一次新的发行——在影院、DVD 和蓝光上——都比上一次多了。这个粉丝自制版的原三部曲是你能看的最好的星球大战版本。
 

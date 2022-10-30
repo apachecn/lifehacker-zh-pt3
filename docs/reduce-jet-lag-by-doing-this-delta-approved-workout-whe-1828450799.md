@@ -1,6 +1,6 @@
 # 着陆时做这项航空公司认可的锻炼来减少时差
 
-> 原文:[https://life hacker . com/reduce-jet-lag-by-do-this-delta-approved-workout-whe-1828450799](https://lifehacker.com/reduce-jet-lag-by-doing-this-delta-approved-workout-whe-1828450799)
+> 原文：<https://lifehacker.com/reduce-jet-lag-by-doing-this-delta-approved-workout-whe-1828450799>
 
 当你旅行到一个不同的时区时，时差有时会是一件很难处理的事情。从纯粹的“在一个小座位上坐很长时间”的角度来看，长途飞行对你的身体来说是很困难的。当你加上一个巨大的时间变化，旅程会对你的身体造成更大的伤害。
 

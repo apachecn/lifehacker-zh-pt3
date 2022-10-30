@@ -1,6 +1,6 @@
 # 在答辩所有
 
-> 原文:[https://life hacker . com/in-defense-of-reply-all-1828694980](https://lifehacker.com/in-defense-of-replying-all-1828694980)
+> 原文：<https://lifehacker.com/in-defense-of-replying-all-1828694980>
 
 这些天来，我们的收件箱里塞满了垃圾邮件，远远超过了实际指定的“垃圾邮件”文件夹。有我们发誓已经退订的时事通讯，来自政客的令人毛骨悚然的个人信息，来自脸书的绝望的关注请求，现在，由于没有人要求的最新 Gmail 更新，像“嘿，凯特，已经五天了！为什么你没有回复那个公关代表，他仍然不知道你五个月前被解雇了？”
 

@@ -1,6 +1,6 @@
 # 随着飓风伊尔玛继续增强，佛罗里达州宣布进入紧急状态
 
-> 原文:[https://gizmodo . com/Florida-declarate-state-as-hurricane-irma-c-1799951691](https://gizmodo.com/florida-declares-state-of-emergency-as-hurricane-irma-c-1799951691)
+> 原文：<https://gizmodo.com/florida-declares-state-of-emergency-as-hurricane-irma-c-1799951691>
 
 随着快速增强的飓风伊尔玛(现为 5 级风暴)预计将横扫加勒比海，然后向北转向美国海岸，佛罗里达州所有县都已宣布进入紧急状态。
 

@@ -1,6 +1,6 @@
 # 它会腐烂吗？一袋中的三餐
 
-> 原文:[https://life hacker . com/will-it-sous-vide-three-whole-means-in-a-bag-1787768799](https://lifehacker.com/will-it-sous-vide-three-whole-meals-in-a-bag-1787768799)
+> 原文：<https://lifehacker.com/will-it-sous-vide-three-whole-meals-in-a-bag-1787768799>
 
 大家好，欢迎回到 [*会不会苏威？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏，我用我的沉浸式循环器做任何你想让我做的疯狂(可食用)的东西。
 

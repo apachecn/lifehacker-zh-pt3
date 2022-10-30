@@ -1,6 +1,6 @@
 # 阅读这些 Redditors 适得其反的育儿技巧
 
-> 原文:[https://life hacker . com/read-these-redditors-parenting-tricks-that-back-effected-1829624269](https://lifehacker.com/read-these-redditors-parenting-tricks-that-backfired-1829624269)
+> 原文：<https://lifehacker.com/read-these-redditors-parenting-tricks-that-backfired-1829624269>
 
 操纵你的孩子的问题是他们会反过来操纵你。在一个向 Reddit 提问的帖子中，数千人分享了 [起反作用的](https://www.reddit.com/r/AskReddit/comments/9mebpv/parents_of_reddit_what_lessons_have_to_tried_to/) 父母教训的故事。他们都教自己的课程，主要是孩子们每次都会给你惊喜。
 

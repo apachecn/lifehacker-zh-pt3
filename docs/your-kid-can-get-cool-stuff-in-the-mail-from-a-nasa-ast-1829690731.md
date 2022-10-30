@@ -1,6 +1,6 @@
 # 你的孩子可以从美国宇航局的宇航员那里收到很酷的邮件
 
-> 原文:[https://life hacker . com/your-kid-can-get-cool-stuff-in-the-mail-a-NASA-ast-1829690731](https://lifehacker.com/your-kid-can-get-cool-stuff-in-the-mail-from-a-nasa-ast-1829690731)
+> 原文：<https://lifehacker.com/your-kid-can-get-cool-stuff-in-the-mail-from-a-nasa-ast-1829690731>
 
 作为一个成年人，看到有你名字的蜗牛邮件是一种拖累(比尔，比尔，比尔，来自一个叫加里，比尔的房地产经纪人的明信片)，但作为一个孩子，这可能是一种刺激。现在想象一下，作为一个痴迷太空的孩子，瞥一眼回邮地址，上面写着“美国国家航空航天局总部”——也就是 NASA。哇哦。
 

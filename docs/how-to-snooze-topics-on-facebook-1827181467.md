@@ -1,6 +1,6 @@
 # 如何平息脸书的话题
 
-> 原文:[https://life hacker . com/how-to-snooze-topics-on-Facebook-1827181467](https://lifehacker.com/how-to-snooze-topics-on-facebook-1827181467)
+> 原文：<https://lifehacker.com/how-to-snooze-topics-on-facebook-1827181467>
 
 我们都有一些经常出现在脸书新闻订阅中的话题，我们不想看到。也许你正试图回避世界杯的细节，直到你回家用 DVR 观看那天早上的比赛，或者你终于达到了政治对话的临界点，想假装特朗普不存在一个下午。不管你的理由是什么，现在你可以屏蔽这些话题，这要感谢脸书的一个新功能“关键词打盹”
 

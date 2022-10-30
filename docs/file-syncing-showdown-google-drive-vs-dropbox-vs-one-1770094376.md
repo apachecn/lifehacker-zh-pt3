@@ -1,6 +1,6 @@
 # 文件同步对决:Google Drive vs . Dropbox vs . one Drive
 
-> 原文:[https://life hacker . com/file-syncing-摊牌-Google-drive-vs-Dropbox-vs-one-1770094376](https://lifehacker.com/file-syncing-showdown-google-drive-vs-dropbox-vs-one-1770094376)
+> 原文：<https://lifehacker.com/file-syncing-showdown-google-drive-vs-dropbox-vs-one-1770094376>
 
 无论是工作还是娱乐，访问像样的云存储几乎是必不可少的，但每个人似乎都有一个最佳选择。让我们来分析一下三个最流行的文件同步服务，看看哪一个是至高无上的。
 

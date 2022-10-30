@@ -1,6 +1,6 @@
 # 如何为你的孩子设置智能手机限制
 
-> 原文:[https://life hacker . com/how-to-set-smart phone-limits-for-your-kids-1798154097](https://lifehacker.com/how-to-set-smartphone-limits-for-your-kids-1798154097)
+> 原文：<https://lifehacker.com/how-to-set-smartphone-limits-for-your-kids-1798154097>
 
 很少有青春期的经历能像获得一部手机那样令人自由。
 

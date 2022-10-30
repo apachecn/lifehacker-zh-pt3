@@ -1,6 +1,6 @@
 # 使用谷歌与书籍“对话”
 
-> 原文:[https://life hacker . com/use-Google-to-talk-to-books-1825294207](https://lifehacker.com/use-google-to-talk-to-books-1825294207)
+> 原文：<https://lifehacker.com/use-google-to-talk-to-books-1825294207>
 
 如果你曾经想与印刷页面进行更深入的对话，或者浏览文学图书馆寻找你许多问题的答案，谷歌的 [与书籍](https://books.google.com/talktobooks/) 对话工具是一种有趣的小方法。这不是针对书籍 的 [谷歌搜索*，但它确实为你的问题提供了比传统搜索更多的对话式答案。*](https://books.google.com/)
 

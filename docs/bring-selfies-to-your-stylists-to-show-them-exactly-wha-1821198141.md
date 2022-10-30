@@ -1,6 +1,6 @@
 # 把自拍带给你的造型师，向他们展示你想要的样子
 
-> 原文:[https://life hacker . com/bring-self ies-to-your-stylists-to-show-them-wha-1821198141](https://lifehacker.com/bring-selfies-to-your-stylists-to-show-them-exactly-wha-1821198141)
+> 原文：<https://lifehacker.com/bring-selfies-to-your-stylists-to-show-them-exactly-wha-1821198141>
 
 下次你理发或修眉时，不要犯试图描述你想要什么的错误。与其说“只是修剪一下”并希望你的造型师知道那是什么意思，不如拿出一张自拍，让你的造型师看看你想要的样子。
 

@@ -1,6 +1,6 @@
 # 我是时尚技术学院院长乔伊斯·f·布朗，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-fashion-institute-of-technology-president-Joyce-f-b-1825863385](https://lifehacker.com/im-fashion-institute-of-technology-president-joyce-f-b-1825863385)
+> 原文：<https://lifehacker.com/im-fashion-institute-of-technology-president-joyce-f-b-1825863385>
 
 今年，Joyce F. Brown 博士庆祝了她担任纽约时装技术学院院长 20 周年，该学院是 SUNY 艺术与商学院，其知名校友包括设计师 Calvin Klein 和，Grace Chen，以及《Elle》杂志主编。在成为第一位担任基金会主席的女性和非洲裔美国人之前，她是纽约市立大学副校长、纽约市负责公共和社区事务的副市长以及临床心理学教授。我们与布朗博士谈论了她是如何来到这里的，她是如何工作的，以及如何在学术环境中做决定。
 

@@ -1,6 +1,6 @@
 # 我需要一辆负担得起的探险车去穿越国家！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-an-affordable-adventure-vehicle-to-travel-cross-1822187998](https://jalopnik.com/i-need-an-affordable-adventure-vehicle-to-travel-cross-1822187998)
+> 原文：<https://jalopnik.com/i-need-an-affordable-adventure-vehicle-to-travel-cross-1822187998>
 
 尼古拉斯变聪明了，决定离开纽约。他想和女朋友进行一次越野公路旅行，看看风景，结交新朋友，找一个新的住处。但是他需要合适的车去旅行，他应该买什么呢？
 

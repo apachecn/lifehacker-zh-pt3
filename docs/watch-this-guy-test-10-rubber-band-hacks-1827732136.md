@@ -1,6 +1,6 @@
 # 看这个家伙测试 10 个橡皮筋黑客
 
-> 原文:[https://life hacker . com/watch-this-guy-test-10-rubber-band-hacks-1827732136](https://lifehacker.com/watch-this-guy-test-10-rubber-band-hacks-1827732136)
+> 原文：<https://lifehacker.com/watch-this-guy-test-10-rubber-band-hacks-1827732136>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-BME9CxLZajY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-BME9CxLZajY&start=0) 
 

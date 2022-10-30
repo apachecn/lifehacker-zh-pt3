@@ -1,6 +1,6 @@
 # 如何打破你的亚马逊 Prime 瘾
 
-> 原文:[https://gizmodo . com/how-to-break-your-Amazon-prime-addiction-1823082365](https://gizmodo.com/how-to-break-your-amazon-prime-addiction-1823082365)
+> 原文：<https://gizmodo.com/how-to-break-your-amazon-prime-addiction-1823082365>
 
 现在每个人都有一个主要帐户，不是吗？它几乎成了一种事后的想法——一年一次(或一个月一次)支付的公共事业账单，以换取快速交付、一个网飞复制品、一个 Kindle 借阅图书馆和其他一些零碎的东西。但是质数真的是这样一个简单的问题吗？也许你厌倦了给世界上最富有的人付钱，或者你渴望切断连接你和亚马逊机器的绳索。也许你已经成为月租费上瘾者，准备挣脱束缚。不管你的理由是什么，以下是如何从亚马逊 Prime 继续前进的方法。
 

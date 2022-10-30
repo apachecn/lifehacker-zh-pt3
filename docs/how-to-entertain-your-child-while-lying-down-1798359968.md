@@ -1,6 +1,6 @@
 # 如何在躺下的时候娱乐你的孩子
 
-> 原文:[https://life hacker . com/how-to-entertainment-your child-while ly-1798359968](https://lifehacker.com/how-to-entertain-your-child-while-lying-down-1798359968)
+> 原文：<https://lifehacker.com/how-to-entertain-your-child-while-lying-down-1798359968>
 
 “休息一下，”当我女儿开始走路并希望我陪她玩的时候，我会告诉她，在这里，然后在那里，然后回到这里，然后又在那里，一整天，每天。这孩子从未学会休息。
 

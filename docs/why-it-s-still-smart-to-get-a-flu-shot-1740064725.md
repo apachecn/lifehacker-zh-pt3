@@ -1,6 +1,6 @@
 # 为什么注射流感疫苗仍然是明智的
 
-> 原文:[https://life hacker . com/why-it-s-still-smart-to-get-a-flu-shot-1740064725](https://lifehacker.com/why-it-s-still-smart-to-get-a-flu-shot-1740064725)
+> 原文：<https://lifehacker.com/why-it-s-still-smart-to-get-a-flu-shot-1740064725>
 
 每年都有一种新的流感疫苗，以匹配四处传播的特定流感病毒株。今年的注射只是一个不错的匹配，对正在传播的菌株有 30%的有效性。(不要相信流传的 10%的数字；是 [基于一个误解](https://whyy.org/articles/vaccine-years-flu-effective-portrayed-cdc-says/) 。)即便如此，注射流感疫苗仍然是*的一个好赌注。*
 

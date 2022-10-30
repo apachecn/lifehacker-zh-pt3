@@ -1,6 +1,6 @@
 # 如果你重新映射你的按键绑定，你在堡垒之夜的表现会少很多
 
-> 原文:[https://kotaku . com/you-will-suck-at-fort nite-a-lot-less-if-you-remap-your-1826423345](https://kotaku.com/you-will-suck-at-fortnite-a-lot-less-if-you-remap-your-1826423345)
+> 原文：<https://kotaku.com/you-will-suck-at-fortnite-a-lot-less-if-you-remap-your-1826423345>
 
 你在 PC 上的堡垒之夜表现很差吗？当你不小心把自己锁进了一个砖盒监狱时，你是否被其他玩家一起魔法建造惊人堡垒的能力所迷惑？这里有一个窍门:重新映射你该死的键绑定。
 

@@ -1,6 +1,6 @@
 # 做一杯邦加垃圾绿奶昔，给自己留一杯邦加绿
 
-> 原文:[https://the take out . com/make-buncha-crap-green-smoothie-and-save-yoursely-a-bun-1826230867](https://thetakeout.com/make-buncha-crap-green-smoothie-and-save-yourself-a-bun-1826230867)
+> 原文：<https://thetakeout.com/make-buncha-crap-green-smoothie-and-save-yourself-a-bun-1826230867>
 
 “这狗屎贵啊。”
 

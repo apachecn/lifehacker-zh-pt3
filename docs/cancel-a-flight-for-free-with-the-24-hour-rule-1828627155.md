@@ -1,6 +1,6 @@
 # 根据 24 小时规则免费取消航班
 
-> 原文:[https://life hacker . com/cancel-a-flight-with-the-24-hour-rule-1828627155](https://lifehacker.com/cancel-a-flight-for-free-with-the-24-hour-rule-1828627155)
+> 原文：<https://lifehacker.com/cancel-a-flight-for-free-with-the-24-hour-rule-1828627155>
 
 如果你在寻找航班(比方说，你的 [下一次长途旅行](https://lifehacker.com/how-to-survive-a-long-flight-1828550879#_ga=2.58434156.714183275.1535370395-2143091789.1530640859))，你会想知道航空公司的取消政策的详细内容，如果你在购买机票后需要更改或取消的话。
 

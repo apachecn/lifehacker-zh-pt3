@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:1 月 20 日至 27 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-January-20-to-27-1791698958](https://lifehacker.com/this-weeks-most-popular-posts-january-20th-to-27th-1791698958)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-january-20th-to-27th-1791698958>
 
 本周，我们与 Alexa 进行了交谈，了解了可以添加到亚马逊 Echo 中的最佳技能，查看了您可能不知道的 Google Play 音乐功能，选择退出搜索网站，等等。这里回顾一下。
 

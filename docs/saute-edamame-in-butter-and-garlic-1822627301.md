@@ -1,6 +1,6 @@
 # 黄油蒜茸炒毛豆
 
-> 原文:[https://life hacker . com/saute-edame-in-butter-and-大蒜-1822627301](https://lifehacker.com/saute-edamame-in-butter-and-garlic-1822627301)
+> 原文：<https://lifehacker.com/saute-edamame-in-butter-and-garlic-1822627301>
 
 蒸毛豆，撒上一点盐，是很好的小吃或开胃菜，但是用黄油和大蒜炒过的 edmame，*然后*撒上一些调料，是不可能停止吃的。
 

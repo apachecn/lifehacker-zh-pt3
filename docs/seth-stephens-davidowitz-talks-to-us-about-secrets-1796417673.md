@@ -1,6 +1,6 @@
 # 如何发现人们的秘密，赛斯·斯蒂芬斯-大卫·多威茨
 
-> 原文:[https://life hacker . com/Seth-Stephens-davidowitz-talks-to-us-about-secrets-1796417673](https://lifehacker.com/seth-stephens-davidowitz-talks-to-us-about-secrets-1796417673)
+> 原文：<https://lifehacker.com/seth-stephens-davidowitz-talks-to-us-about-secrets-1796417673>
 
 我们生活在一个充满秘密的时代。无论是医疗保健法案，俄罗斯与我们最近选举的秘密联系，还是我们都说过的谎言，秘密困扰着我们所有人。在这一集的升级中，Seth Stephens-Davidowitz，《每个人都撒谎:大数据，新数据，以及互联网能告诉我们关于我们到底是谁 的作者解释了互联网能告诉我们关于我们隐藏的偏见，恐惧和恋物癖的事情。我们还与我们的生活黑客作家讨论了 Reddit 上的一个帖子，其中 [Redditors 共享秘密，如果泄露，将会毁掉人们的生活](https://www.reddit.com/r/AskReddit/comments/t0ynr/throwaway_time_whats_your_secret_that_could/) 。精神病学家艾琳·沃希特访问工作室，讨论保守秘密的心理影响。我们的制作人走上街头，找出我们为别人保守了什么样的秘密。
 

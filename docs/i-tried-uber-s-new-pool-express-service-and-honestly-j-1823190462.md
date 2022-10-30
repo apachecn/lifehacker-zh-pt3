@@ -1,6 +1,6 @@
 # 我尝试了优步新推出的“拼车快递”服务，老实说，坐公交车就行了
 
-> 原文:[https://gizmodo . com/I-tryed-Uber-s-new-pool-express-service-and-truly-j-1823190462](https://gizmodo.com/i-tried-uber-s-new-pool-express-service-and-honestly-j-1823190462)
+> 原文：<https://gizmodo.com/i-tried-uber-s-new-pool-express-service-and-honestly-j-1823190462>
 
 优步周三宣布，它将推出一款新产品:，这是一款针对通勤者的拼车服务。优步不会喜欢这种比较，但老实说，就把它当成一个公共汽车站。
 

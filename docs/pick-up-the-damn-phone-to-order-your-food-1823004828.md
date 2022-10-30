@@ -1,6 +1,6 @@
 # 拿起该死的电话来点餐
 
-> 原文:[https://life hacker . com/pick-the-damn-phone-to-order-your-food-1823004828](https://lifehacker.com/pick-up-the-damn-phone-to-order-your-food-1823004828)
+> 原文：<https://lifehacker.com/pick-up-the-damn-phone-to-order-your-food-1823004828>
 
 资本主义下没有道德消费——即使是 [小熊软糖也不安全](http://fortune.com/2017/10/27/haribo-gummy-candy-slave-mdoer/)——但我想大多数人会尽可能地尝试道德饮食。如果你是那种人，你应该把手机里那些超级方便的送货 app 都删了。
 

@@ -1,6 +1,6 @@
 # 慢煮你的早餐，让早晨更加放松
 
-> 原文:[https://life hacker . com/slow-cook-your-breakfast-to-make-more-relaxing-1818663393](https://lifehacker.com/slow-cook-your-breakfast-to-make-mornings-more-relaxing-1818663393)
+> 原文：<https://lifehacker.com/slow-cook-your-breakfast-to-make-mornings-more-relaxing-1818663393>
 
 这是一个如此吸引人的幻想:你在阳光普照的卧室醒来，闻到爱你的人正在做美味的早餐。但是，一个转折！如果那个人是昨晚的你呢！这要么是时间旅行，要么你有一个慢炖锅，并提前计划。
 

@@ -1,6 +1,6 @@
 # 如何抵消“还有什么”的心态
 
-> 原文:[https://life hacker . com/how-to-counter-the-otherwise-mind-1823772012](https://lifehacker.com/how-to-counteract-the-what-else-mindset-1823772012)
+> 原文：<https://lifehacker.com/how-to-counteract-the-what-else-mindset-1823772012>
 
 对于我们中的许多人来说，在待办事项列表上打勾是一个永无止境的循环，是我们衡量生产力和自我价值的关键方式。在我们检查完旧的东西之前，我们不断地添加新的东西。
 

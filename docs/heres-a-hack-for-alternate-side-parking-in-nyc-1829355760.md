@@ -1,6 +1,6 @@
 # 这里有一个在纽约交替停车的窍门
 
-> 原文:[https://jalopnik . com/heres-a-hack-for-alternate-side-parking-in-NYC-1829355760](https://jalopnik.com/heres-a-hack-for-alternate-side-parking-in-nyc-1829355760)
+> 原文：<https://jalopnik.com/heres-a-hack-for-alternate-side-parking-in-nyc-1829355760>
 
 确切地说，我不能说我推荐这样做，但这是人们做的事情。
 

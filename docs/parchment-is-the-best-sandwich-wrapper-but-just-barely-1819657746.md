@@ -1,6 +1,6 @@
 # 羊皮纸是最好的三明治包装纸，但也仅仅如此
 
-> 原文:[https://life hacker . com/羊皮纸-是最好的三明治包装纸-但只是-勉强-1819657746](https://lifehacker.com/parchment-is-the-best-sandwich-wrapper-but-just-barely-1819657746)
+> 原文：<https://lifehacker.com/parchment-is-the-best-sandwich-wrapper-but-just-barely-1819657746>
 
 做三明治有很多种方法，包三明治也有很多种方法。但是哪种三明治包装纸能最好地保持你的棕色午餐新鲜呢？包装材料真的那么重要吗？
 

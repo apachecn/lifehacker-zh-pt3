@@ -1,6 +1,6 @@
 # 如何解决 iPhone XS 的连接问题
 
-> 原文:[https://life hacker . com/how-to-fix-connectivity-issues-on-your-iphone-xs-1829340414](https://lifehacker.com/how-to-fix-connectivity-issues-on-your-iphone-xs-1829340414)
+> 原文：<https://lifehacker.com/how-to-fix-connectivity-issues-on-your-iphone-xs-1829340414>
 
 没有什么比缓慢的数据速度更令人沮丧的了，尤其是在崭新的设备上，这些设备被认为比早期版本的 要好得多。不幸的是，自从 iPhone XS 和 XS Max 上周五上市以来，用户们报告了 wifi 和蜂窝连接问题，包括测试速度比他们更换的 iPhone 慢。
 

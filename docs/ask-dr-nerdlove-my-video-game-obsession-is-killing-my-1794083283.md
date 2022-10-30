@@ -1,6 +1,6 @@
 # 问问 NerdLove 博士:我对电子游戏的痴迷正在扼杀我的约会生活
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-my-video-game-obscence-is-killing-my-1794083283](https://kotaku.com/ask-dr-nerdlove-my-video-game-obsession-is-killing-my-1794083283)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-my-video-game-obsession-is-killing-my-1794083283>
 
 各位网友大家好，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，唯一一个月光下做绅士小偷的交友栏目。
 

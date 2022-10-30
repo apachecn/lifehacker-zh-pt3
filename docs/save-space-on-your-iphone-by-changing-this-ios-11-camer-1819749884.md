@@ -1,6 +1,6 @@
 # 通过更改此 iOS 11 相机设置来节省 iPhone 空间
 
-> 原文:[https://life hacker . com/save-space-on-your-iphone-by-changing-this-IOs-11-camer-1819749884](https://lifehacker.com/save-space-on-your-iphone-by-changing-this-ios-11-camer-1819749884)
+> 原文：<https://lifehacker.com/save-space-on-your-iphone-by-changing-this-ios-11-camer-1819749884>
 
 在 iOS 11 中，苹果推出了 HEIF 格式的照片。HEIF 代表“高效图像格式”，允许你在手机上拍摄的照片被压缩到尽可能小的尺寸而不损失质量。更小的尺寸意味着你可以在 iPhone 空间耗尽之前拍摄更多的照片(或者你是一个摄影爱好者的事实不会阻止你下载应用程序)。
 

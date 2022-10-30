@@ -1,6 +1,6 @@
 # 如何在老式的 Airport Express 上通过 AirPlay 2 播放音乐
 
-> 原文:[https://life hacker . com/how-to-stream-music-via-airplay-2-on-your-old-school-ai-1828689478](https://lifehacker.com/how-to-stream-music-via-airplay-2-on-your-old-school-ai-1828689478)
+> 原文：<https://lifehacker.com/how-to-stream-music-via-airplay-2-on-your-old-school-ai-1828689478>
 
 苹果可能已经正式停产了 [Airport Express](https://en.wikipedia.org/wiki/AirPort_Express) 网络扩展器，以及其 wifi 硬件 的 [，但它昨天发布了 Airport Express 的重大固件更新。只要您有第二代 Airport Express(2012 年 6 月发布)，更新就可以让您通过 AirPlay 2 直接流化到连接的扬声器。](https://gizmodo.com/say-goodbye-to-apples-airport-routers-for-real-this-ti-1825588759)
 

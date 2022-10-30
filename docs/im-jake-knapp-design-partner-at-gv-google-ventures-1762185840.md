@@ -1,6 +1,6 @@
 # 我是杰克·纳普，谷歌风投公司的设计合伙人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Jake-knapp-design-partner-at-gv-Google-ventures-1762185840](https://lifehacker.com/im-jake-knapp-design-partner-at-gv-google-ventures-1762185840)
+> 原文：<https://lifehacker.com/im-jake-knapp-design-partner-at-gv-google-ventures-1762185840>
 
 如果你不关注硅谷的日常运作，你可能不会意识到谷歌不仅仅收购初创公司——它们还深度参与风险投资。GV 是 Alphabet Inc .的风险投资部门，自成立以来，他们已经向有前途的公司投入了超过 20 亿美元。
 

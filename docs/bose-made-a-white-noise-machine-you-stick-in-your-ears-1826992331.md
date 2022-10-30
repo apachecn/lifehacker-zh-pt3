@@ -1,6 +1,6 @@
 # Bose 做了一个白噪音机器你把它塞在耳朵里
 
-> 原文:[https://gizmodo . com/bose-made-a-white-noise-machine-you-stick-in-you-ear-1826992331](https://gizmodo.com/bose-made-a-white-noise-machine-you-stick-in-your-ears-1826992331)
+> 原文：<https://gizmodo.com/bose-made-a-white-noise-machine-you-stick-in-your-ears-1826992331>
 
 Bose 的最新耳机旨在帮助你做一件事:睡眠。在尝试了 Bose 的“ sleepbuds”、 [(今天售价 250 美元](https://www.bose.com/en_us/products/wellness/noise_masking_sleepbuds/noise-masking-sleepbuds.html) )之后，我认为屏蔽噪音的耳塞可能会让不眠之夜变得更加罕见。而且，这意味着你可以不用带着塞在头骨里的不舒服的耳塞睡觉了。
 

@@ -1,6 +1,6 @@
 # 为非偏执狂准备世界末日
 
-> 原文:[https://life hacker . com/doomsday-prep-for-non-paranoid-people-1793870107](https://lifehacker.com/doomsday-prep-for-non-paranoid-people-1793870107)
+> 原文：<https://lifehacker.com/doomsday-prep-for-non-paranoid-people-1793870107>
 
 自 11 月 8 日以来，你的噩梦是什么？也许你的潜意识和我一样，会在凌晨 3 点至 5 点进行一项我称之为“恐慌镇”的练习，半清醒、模糊地在脑海中背诵任何可能对国家、对你个人或对你的未来造成灾难性后果的事情...几乎任何人。这是有趣的两个小时！然后我看了新闻。
 

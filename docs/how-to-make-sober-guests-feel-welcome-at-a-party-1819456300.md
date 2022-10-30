@@ -1,6 +1,6 @@
 # 如何让清醒的客人在聚会上感到受欢迎
 
-> 原文:[https://life hacker . com/how-to-make-sober-guests-feel-welcome-in-a-party-1819456300](https://lifehacker.com/how-to-make-sober-guests-feel-welcome-at-a-party-1819456300)
+> 原文：<https://lifehacker.com/how-to-make-sober-guests-feel-welcome-at-a-party-1819456300>
 
 当你计划一个以喝酒为特色的聚会时，你能做的最糟糕的事情之一就是不邀请你清醒的朋友。*哦，他们不喝酒，我不想让他们不舒服*。让他们自己做决定吧。你可以做很多事情来确保清醒的客人在聚会上感到受欢迎和舒适，即使其他人在喝酒。
 

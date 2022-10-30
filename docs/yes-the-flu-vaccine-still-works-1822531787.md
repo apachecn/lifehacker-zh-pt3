@@ -1,6 +1,6 @@
 # 是的，流感疫苗仍然有效
 
-> 原文:[https://life hacker . com/yes-the-flu-vaccine-still-works-1822531787](https://lifehacker.com/yes-the-flu-vaccine-still-works-1822531787)
+> 原文：<https://lifehacker.com/yes-the-flu-vaccine-still-works-1822531787>
 
 今年的流感季节是一个特别糟糕的季节，也许当你听说有些人已经接种了流感疫苗，但仍然感染了流感时，你会感到沮丧。(这种情况每年都会发生，但当它发生在你或你认识的人身上时，似乎更真实。)但是流感疫苗*仍然有效*。以下是你需要知道的。
 

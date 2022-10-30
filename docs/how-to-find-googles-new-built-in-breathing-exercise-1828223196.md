@@ -1,6 +1,6 @@
 # 如何找到谷歌新的内置呼吸练习
 
-> 原文:[https://life hacker . com/how-to-find-Google-new-built-in-breathing-exercise-1828223196](https://lifehacker.com/how-to-find-googles-new-built-in-breathing-exercise-1828223196)
+> 原文：<https://lifehacker.com/how-to-find-googles-new-built-in-breathing-exercise-1828223196>
 
 谷歌给了我们 [最好的电子邮件服务](https://lifehacker.com/tag/gmail)[最好的地图应用](https://lifehacker.com/tag/google-maps)[之一最好的人工智能助手](https://lifehacker.com/all-the-things-you-can-do-with-google-assistant-that-yo-1787444497)[最好的搜索引擎](https://lifehacker.com/the-tiny-essential-google-tricks-for-way-better-search-1826791031) 。现在，他们也进入了正念游戏。
 

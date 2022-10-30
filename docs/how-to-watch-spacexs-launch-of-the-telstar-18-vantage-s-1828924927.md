@@ -1,6 +1,6 @@
 # 如何观看 SpaceX 今晚发射 Telstar 18 Vantage 卫星
 
-> 原文:[https://life hacker . com/how-to-watch-spacexs-launch-of-the-telstar-18-vantage-s-1828924927](https://lifehacker.com/how-to-watch-spacexs-launch-of-the-telstar-18-vantage-s-1828924927)
+> 原文：<https://lifehacker.com/how-to-watch-spacexs-launch-of-the-telstar-18-vantage-s-1828924927>
 
 Space X 今晚将发射一颗大型通信卫星进入轨道，然后将尝试将火箭的第一级降落在海洋中的无人驾驶飞船上。虽然所有的情节都将发生在佛罗里达，但你也可以在网上观看。
 

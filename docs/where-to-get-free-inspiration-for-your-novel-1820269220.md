@@ -1,6 +1,6 @@
 # 从哪里获得免费的小说灵感
 
-> 原文:[https://life hacker . com/where-to-get-free-inspiration-for-your-novel-1820269220](https://lifehacker.com/where-to-get-free-inspiration-for-your-novel-1820269220)
+> 原文：<https://lifehacker.com/where-to-get-free-inspiration-for-your-novel-1820269220>
 
 纳米瑞莫怎么样了？你的硬盘上有 20%的小说吗？如果没有，也许你在思考该写些什么方面有困难。幸运的是，在 nanowrimo.org 的上有一个地方，充满了可供窃取的成熟想法。
 

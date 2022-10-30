@@ -1,6 +1,6 @@
 # 第一次约会穿牛仔裤
 
-> 原文:[https://life hacker . com/wear-jeans-on-the-first-date-1825021633](https://lifehacker.com/wear-jeans-on-the-first-date-1825021633)
+> 原文：<https://lifehacker.com/wear-jeans-on-the-first-date-1825021633>
 
 在第一次约会中脱颖而出的压力很大，这种压力不可避免地会影响到你的着装选择。但是在你第一次去见某人之前，没有必要换一套愚蠢的服装。舒适、休闲的日常用品，比如一条好的牛仔裤，就是你所需要的。
 

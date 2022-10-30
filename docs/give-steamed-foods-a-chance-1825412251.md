@@ -1,6 +1,6 @@
 # 给蒸的食物一个机会
 
-> 原文:[https://life hacker . com/give-steam-foods-a-chance-1825412251](https://lifehacker.com/give-steamed-foods-a-chance-1825412251)
+> 原文：<https://lifehacker.com/give-steamed-foods-a-chance-1825412251>
 
 蒸蔬菜很难让人兴奋。如果做得不好，它们的范围从完全不起眼到非常恶心——但如果做得好，它们绝对是超凡脱俗的。当我们终于进入春夏生产旺季时，我认为这种被低估的技术值得重新审视。
 

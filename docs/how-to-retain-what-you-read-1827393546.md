@@ -1,6 +1,6 @@
 # 如何记住你读过的东西
 
-> 原文:[https://life hacker . com/how-to-retain-what-you-read-1827393546](https://lifehacker.com/how-to-retain-what-you-read-1827393546)
+> 原文：<https://lifehacker.com/how-to-retain-what-you-read-1827393546>
 
 想想你去年读过的一本书。你还记得多少？你能列出你从中学到的十件事吗？你还记得你去年读过什么书吗？回到学校，你实际上必须记住你读过的东西。测验、学期论文和读书报告都是帮助你记住这些信息的方法。因此，工程师罗伯特·希顿发明了一种像学生一样阅读一本书的三步法。(如果你*是*学生，这可能比你现在的习惯要好。)
 

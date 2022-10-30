@@ -1,6 +1,6 @@
 # 告诉我们你在华盛顿最好的黑客
 
-> 原文:[https://life hacker . com/tell-us-your-best-Washington-d-c-hacks-1820347103](https://lifehacker.com/tell-us-your-best-washington-d-c-hacks-1820347103)
+> 原文：<https://lifehacker.com/tell-us-your-best-washington-d-c-hacks-1820347103>
 
 我们在本专栏中黑掉了几个工业城镇，比如 [洛杉机](https://lifehacker.com/the-best-l-a-hacks-from-our-readers-1819663204) 和 [拉斯维加斯](https://lifehacker.com/the-best-las-vegas-hacks-from-our-readers-1820058508) 。现在是军事工业综合体城市的时候了。华盛顿特区的人员流动率很高，名声也不太好。但在政治之外，华盛顿是一个美丽的城市，有各种各样的文化、美食和活跃的音乐现场。
 

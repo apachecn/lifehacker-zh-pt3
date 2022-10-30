@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我和前任走得太近了吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-am-I-too-close-with-my-ex-1821651196](https://kotaku.com/ask-dr-nerdlove-am-i-too-close-with-my-ex-1821651196)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-am-i-too-close-with-my-ex-1821651196>
 
 大家好，欢迎来到 [向 NerdLove 博士](http://kotaku.com/askdrnerdlove) 提问，这是唯一一个从 Thimbleweed Park 直播给你的约会建议专栏。
 

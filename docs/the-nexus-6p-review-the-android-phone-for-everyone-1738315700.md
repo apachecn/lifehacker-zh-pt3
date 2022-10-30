@@ -1,6 +1,6 @@
 # Nexus 6P 评论:适合所有人的安卓手机
 
-> 原文:[https://gizmodo . com/the-nexus-6p-review-the-Android-phone-for-every one-1738315700](https://gizmodo.com/the-nexus-6p-review-the-android-phone-for-everyone-1738315700)
+> 原文：<https://gizmodo.com/the-nexus-6p-review-the-android-phone-for-everyone-1738315700>
 
 几年来，谷歌设计的 Nexus 手机一直在击败第三方设计的手机，因为它们使用了不受限制的安卓系统。凭借 6P，Nexus 终于获得了华丽的硬件，以匹配其强大软件的光泽。这是几乎每个人都应该购买的 Android 手机。
 

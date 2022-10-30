@@ -1,6 +1,6 @@
 # NaNoWriMo 最好的写作 App 是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-writing-tool-for-nanowrimo-1820076327](https://lifehacker.com/whats-the-best-writing-tool-for-nanowrimo-1820076327)
+> 原文：<https://lifehacker.com/whats-the-best-writing-tool-for-nanowrimo-1820076327>
 
 你的小说的前 1667 个单词有谷歌文档吗？你手机上的便条？或者，也许你花了第一天的 NaNoWriMo 精心组织一个空大纲在 Scrivener？这里有一些业余小说家信誓旦旦的写作工具。
 

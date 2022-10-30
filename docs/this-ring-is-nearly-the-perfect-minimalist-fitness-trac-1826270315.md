@@ -1,6 +1,6 @@
 # 这款戒指几乎是完美的简约健身追踪器
 
-> 原文:[https://life hacker . com/this-ring-is-near-the-perfect 极简健身-trac-1826270315](https://lifehacker.com/this-ring-is-nearly-the-perfect-minimalist-fitness-trac-1826270315)
+> 原文：<https://lifehacker.com/this-ring-is-nearly-the-perfect-minimalist-fitness-trac-1826270315>
 
 我对手表或腕带不感兴趣，但在过去的几周里，我一直在手指上戴着一个健身追踪器。它知道我睡了多长时间，检测我何时行走或跑步，我所要做的就是像戴珠宝一样戴着它，然后忘掉它。
 

@@ -1,6 +1,6 @@
 # 如何使用 Firefox 59 阻止网站弹出通知
 
-> 原文:[https://life hacker . com/how-to-block-website-popup-notifications-using-Firefox-1823803319](https://lifehacker.com/how-to-block-website-popup-notifications-using-firefox-1823803319)
+> 原文：<https://lifehacker.com/how-to-block-website-popup-notifications-using-firefox-1823803319>
 
 上周有三天的时间，我每次都收到推送通知发了一个故事。虽然我肯定喜欢我的太空故事，但我不是一个狂热爱好者。当我不小心误点击了一个询问我是否想要它们的推送通知时，这些通知就开始了，然后我懒得去改变它，直到它变得如此烦人，我再也无法忍受。
 

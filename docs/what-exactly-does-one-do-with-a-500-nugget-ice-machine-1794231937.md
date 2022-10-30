@@ -1,6 +1,6 @@
 # 一台 500 美元的冰块制冰机到底能做什么？
 
-> 原文:[https://life hacker . com/what-exact-do-one-a-500-nugget-ice-machine-1794231937](https://lifehacker.com/what-exactly-does-one-do-with-a-500-nugget-ice-machine-1794231937)
+> 原文：<https://lifehacker.com/what-exactly-does-one-do-with-a-500-nugget-ice-machine-1794231937>
 
 如果你是块冰的粉丝，块冰也被称为“音速冰”或“好冰”，那么我有一些相当令人兴奋的消息要告诉你。多亏了 FirstBuild 的聪明头脑，你现在可以不用离开你舒适的家就能得到一些。台面制冰机叫欧泊 ，挺圆滑的。
 

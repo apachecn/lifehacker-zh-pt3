@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的 Android 下载和帖子
 
-> 原文:[https://life hacker . com/most-popular-Android-downloads-and-post-of-2016-1790382198](https://lifehacker.com/most-popular-android-downloads-and-posts-of-2016-1790382198)
+> 原文：<https://lifehacker.com/most-popular-android-downloads-and-posts-of-2016-1790382198>
 
 2016 年对于安卓粉丝来说是激动人心的一年。谷歌发布终于加入分屏模式的安卓牛轧糖，一对全新的 Pixel 手机上街，我们有没有提到 *Pokémon Go* 出来了？以下是我们今年最大的 Android 帖子和下载量。
 

@@ -1,6 +1,6 @@
 # 为什么我在酒吧而不是咖啡店工作
 
-> 原文:[https://life hacker . com/why-I-work-in-bar-而不是-coffee-shop-1823164289](https://lifehacker.com/why-i-work-at-bars-instead-of-coffee-shops-1823164289)
+> 原文：<https://lifehacker.com/why-i-work-at-bars-instead-of-coffee-shops-1823164289>
 
 在家工作是一件非常惬意的事情。我不需要穿真正的衣服，我独自控制恒温器，我唯一的同事是一只年老的猎犬。但是缺乏人际交往会让人变得有点怪异，所以我每天至少一次尝试走出去，融入人群。大多数人通过去最近的咖啡馆来达到这个目的；我更喜欢酒吧。
 

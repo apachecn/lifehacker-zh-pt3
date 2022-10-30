@@ -1,6 +1,6 @@
 # 三要素快乐时光:黑色星期五
 
-> 原文:[https://life hacker . com/three-ingredient-happy-hour-the-black-Friday-1820660088](https://lifehacker.com/three-ingredient-happy-hour-the-black-friday-1820660088)
+> 原文：<https://lifehacker.com/three-ingredient-happy-hour-the-black-friday-1820660088>
 
 快乐的黑色星期五，我的宝贝们，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。现在，你已经熬过了感恩节晚餐，为此，你应该喝一杯。
 

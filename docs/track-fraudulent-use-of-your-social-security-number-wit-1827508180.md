@@ -1,6 +1,6 @@
 # 跟踪欺诈使用您的社会安全号码与资本一的信用明智的工具
 
-> 原文:[https://life hacker . com/track-fraud-use-of-your-social-security-number-wit-1827508180](https://lifehacker.com/track-fraudulent-use-of-your-social-security-number-wit-1827508180)
+> 原文：<https://lifehacker.com/track-fraudulent-use-of-your-social-security-number-wit-1827508180>
 
 Capital One 的 [Credit Wise](https://creditwise.capitalone.com/home) 是一款免费的信用跟踪工具，现在如果有人使用你的社会安全号码申请新的信用额度或开立另一个金融账户，它会提醒你。
 

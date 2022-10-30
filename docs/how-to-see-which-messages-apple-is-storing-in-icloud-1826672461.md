@@ -1,6 +1,6 @@
 # 如何查看 Apple 正在 iCloud 中储存哪些信息
 
-> 原文:[https://life hacker . com/how-to-see-which-messages-apple-is-storing-in-I cloud-1826672461](https://lifehacker.com/how-to-see-which-messages-apple-is-storing-in-icloud-1826672461)
+> 原文：<https://lifehacker.com/how-to-see-which-messages-apple-is-storing-in-icloud-1826672461>
 
 嗨！在本周的 [Tech 911](https://lifehacker.com/c/tech-911) 专栏中，我们试图解决你最迫切和最令人挠头的技术问题(你绝对应该把这些问题发给我们 [*这里*](mailto:david.murphy@lifehacker.com?subject=Tech%20911) )，我大胆地超越了专栏设置的范围，来看看一个既及时又适用于大多数苹果粉丝的问题。
 

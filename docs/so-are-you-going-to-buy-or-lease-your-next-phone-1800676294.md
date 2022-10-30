@@ -1,6 +1,6 @@
 # 那么，你打算购买还是租赁你的下一部手机？
 
-> 原文:[https://life hacker . com/so-你打算购买还是租赁你的下一部手机-1800676294](https://lifehacker.com/so-are-you-going-to-buy-or-lease-your-next-phone-1800676294)
+> 原文：<https://lifehacker.com/so-are-you-going-to-buy-or-lease-your-next-phone-1800676294>
 
 如果你已经用了一段时间同样的手机，你可能会有升级的冲动，即使现在的价格是天文数字。最便宜的[iPhone 7](https://www.apple.com/shop/buy-iphone/iphone-7)649 美元。三星的 [新款 Galaxy Note 8](http://gizmodo.com/samsung-galaxy-note-8-review-bigger-badder-but-i-sti-1799759566) 为 930 美元。因此，随着即将到来的 iPhone 8 据传首次亮相时将花费 1000 美元，问题是这样的:你应该花数百美元直接购买你的手机，还是租赁你的设备才是今后的出路？根据你对最新设备的需求程度，你旅行的频率，或者你有多少可支配收入，每种方法都有好处和坏处，尽管这两种方法都可以让你在你想要的时间内获得一部漂亮的手机。
 

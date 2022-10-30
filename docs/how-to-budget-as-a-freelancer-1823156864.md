@@ -1,6 +1,6 @@
 # 作为自由职业者如何做预算
 
-> 原文:[https://life hacker . com/how-to-budget-as-a-a-freelancer-1823156864](https://lifehacker.com/how-to-budget-as-a-freelancer-1823156864)
+> 原文：<https://lifehacker.com/how-to-budget-as-a-freelancer-1823156864>
 
 所以，你是一个自由职业者，早上 [离开他们的房子](https://lifehacker.com/flee-your-house-in-the-morning-before-working-from-home-1823153574) ，向你的室友解释你 [需要完成工作](https://lifehacker.com/how-to-explain-to-the-people-you-live-with-that-youre-w-1823147921) 并学习什么时候 [实际上*停止*工作](https://lifehacker.com/structure-your-work-from-home-day-with-these-routines-1823158185) 。现在，是时候让你的自由职业者的财务井然有序了。
 

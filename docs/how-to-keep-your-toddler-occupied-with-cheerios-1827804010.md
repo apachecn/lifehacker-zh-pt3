@@ -1,6 +1,6 @@
 # 如何让你的孩子吃麦片
 
-> 原文:[https://life hacker . com/how-to-keep-your ' s teached-with Cheerios-1827804010](https://lifehacker.com/how-to-keep-your-toddler-occupied-with-cheerios-1827804010)
+> 原文：<https://lifehacker.com/how-to-keep-your-toddler-occupied-with-cheerios-1827804010>
 
 你需要为晚餐准备一些东西，但是你不耐烦的孩子不会让你做。我去过那里。如果你能给她一个项目，一些能占用她 12-16 分钟的事情。嘿，你在储藏室里看到了什么？一盒麦片？哦，是的。这就行了。
 

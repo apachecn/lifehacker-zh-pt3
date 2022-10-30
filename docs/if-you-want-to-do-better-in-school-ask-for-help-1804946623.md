@@ -1,6 +1,6 @@
 # 如果你想在学校做得更好，寻求帮助
 
-> 原文:[https://life hacker . com/if-you-want-to-do-better-in-school 求助-1804946623](https://lifehacker.com/if-you-want-to-do-better-in-school-ask-for-help-1804946623)
+> 原文：<https://lifehacker.com/if-you-want-to-do-better-in-school-ask-for-help-1804946623>
 
 学习可能感觉像一项孤独的活动——回顾我的学生时代，我记得独自坐在书桌前，只有我的课本、荧光笔、可乐罐和不断扩大的自我怀疑。如果我不理解一个概念，或者找不到答案，我会拼命地在书页里搜索，想着也许有我错过的线索。如果看起来仍然没有希望，我会睡觉，合理化，也许不知何故，启示会出现在我的梦里。(通常不会。)
 

@@ -1,6 +1,6 @@
 # 如何鼓起勇气去上你的第一堂瑜伽课
 
-> 原文:[https://life hacker . com/how-to-up the nerve to-go-your ' s first yoga class-1814679647](https://lifehacker.com/how-to-get-up-the-nerve-to-go-to-your-first-yoga-class-1814679647)
+> 原文：<https://lifehacker.com/how-to-get-up-the-nerve-to-go-to-your-first-yoga-class-1814679647>
 
 如果你从未练过瑜伽，它看起来很吓人。人们灵活、健康、穿着时尚——等等，我可能想到的是 Lululemon 广告，而不是真正的瑜伽课。事实证明，即使你是新手，你也可以在瑜伽课上有很好的体验，我们询问了瑜伽教练是如何做到的。
 

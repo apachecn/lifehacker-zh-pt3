@@ -1,6 +1,6 @@
 # Chanctonbury 环形旅行包
 
-> 原文:[https://life hacker . com/the-chanctonbury-ring-hike-bag-1796637908](https://lifehacker.com/the-chanctonbury-ring-hike-bag-1796637908)
+> 原文：<https://lifehacker.com/the-chanctonbury-ring-hike-bag-1796637908>
 
 当你在野外时，做好准备会有所帮助。这不仅仅意味着穿上登山鞋，带上零食。这意味着打包一个能让你以最小的浪费和最大的效率通过的袋子。为了准备一天的徒步旅行 到香克顿伯里环山堡，纳特·瓦格斯塔夫展示了他的包，里面装满了一次伟大徒步旅行的必需品。此外，他有一些兴奋剂补丁。
 

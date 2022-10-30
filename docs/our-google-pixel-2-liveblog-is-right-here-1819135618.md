@@ -1,6 +1,6 @@
 # 我们的谷歌 Pixel 2 直播博客就在这里
 
-> 原文:[https://gizmodo . com/our-Google-pixel-2-live blog-is-right-here-1819135618](https://gizmodo.com/our-google-pixel-2-liveblog-is-right-here-1819135618)
+> 原文：<https://gizmodo.com/our-google-pixel-2-liveblog-is-right-here-1819135618>
 
 你准备好迎接惊喜了吗？！开玩笑的。暗示谷歌将在周三的谷歌制造活动上发布 Pixel 2 和 Pixel 2 XL 智能手机以及新的谷歌 Home Mini、新的 Chromebook 和新的 Daydream 耳机。
 

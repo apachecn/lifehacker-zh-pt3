@@ -1,6 +1,6 @@
 # 如何处理家中宠物的死亡
 
-> 原文:[https://life hacker . com/how-to-dead-of-your-family-pet-1821967074](https://lifehacker.com/how-to-deal-with-the-death-of-your-family-pet-1821967074)
+> 原文：<https://lifehacker.com/how-to-deal-with-the-death-of-your-family-pet-1821967074>
 
 当我 11 岁的时候，我想成为一名兽医。整天和动物玩耍似乎是一件有趣的事情。大约在这个时候，比利·周发布了流行说唱歌曲， [“我们没有放火。”](https://www.youtube.com/watch?v=eFTLKWw542g) 在这部电影中，乔尔咆哮着讲述了一系列发生在 20 世纪的可怕事件，一度将“外债” [“伯尼·戈茨”](https://en.wikipedia.org/wiki/1984_New_York_City_Subway_shooting) 与“无家可归的老兵”押韵听到这里，我想，*哦不！我不想成为一个无家可归的兽医！*
 

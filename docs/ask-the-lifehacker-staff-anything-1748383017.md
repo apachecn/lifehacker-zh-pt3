@@ -1,6 +1,6 @@
 # 问 Lifehacker 的员工任何事情
 
-> 原文:[https://life hacker . com/ask-the-life hacker-staff-any-1748383017](https://lifehacker.com/ask-the-lifehacker-staff-anything-1748383017)
+> 原文：<https://lifehacker.com/ask-the-lifehacker-staff-anything-1748383017>
 
 你对 Lifehacker 团队有什么痒的问题吗？想知道最新、最棒的键盘快捷键或关于如何使用活页夹来支撑你的假期的建议吗？Lifehacker 的工作人员在这里回答您的问题！
 

@@ -1,6 +1,6 @@
 # 这个应用程序可以让你付费下载流媒体电影
 
-> 原文:[https://life hacker . com/this-app-let-you-download-your-streaming-movies-for-a-1818851598](https://lifehacker.com/this-app-lets-you-download-your-streaming-movies-for-a-1818851598)
+> 原文：<https://lifehacker.com/this-app-lets-you-download-your-streaming-movies-for-a-1818851598>
 
 iOS/Android:有时你有几个小时可以消磨，在网飞的队列中有一堆节目和电影——但你在飞机上，或者你的连接很差，不可能播放流媒体。你应该做什么——独自思考？不含 [PlayOn 云](https://www.playon.tv/cloud) ，付费流媒体录像机。其独特的视频录制方法允许无罪恶感的离线或云视频存储，但它需要你做一些规划，以确保你可以顺利地获得你下载的电影。
 

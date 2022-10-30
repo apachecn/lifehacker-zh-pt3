@@ -1,6 +1,6 @@
 # 我是佐拉首席执行官马善琳，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-zola-CEO-shan-Lyn-ma-and-this-is-how-I-work-1823592848](https://lifehacker.com/im-zola-ceo-shan-lyn-ma-and-this-is-how-i-work-1823592848)
+> 原文：<https://lifehacker.com/im-zola-ceo-shan-lyn-ma-and-this-is-how-i-work-1823592848>
 
 婚礼是一个项目，他们受益于一个好的项目管理工具。我们采访了 [的 CEO 佐拉](https://www.zola.com/wedding) ，Lifehacker 读者 [最喜欢的婚礼地点](https://lifehacker.com/five-best-gift-registry-sites-1639740117) 之一。在经历了给人买结婚礼物的压力后，马珊琳共同创立了佐拉；她的联合创始人 Nobu Nakaguchi 经历了建立婚礼登记处的压力。马在接受 Lifehacker 采访时谈到了如何管理公司，如何组织自己的生活，以及如何让自己变得无关紧要。
 

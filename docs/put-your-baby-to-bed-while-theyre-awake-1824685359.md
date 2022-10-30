@@ -1,6 +1,6 @@
 # 当你的宝宝醒着的时候，让他们上床睡觉
 
-> 原文:[https://life hacker . com/把你的宝宝放在床上，当他们醒着的时候-1824685359](https://lifehacker.com/put-your-baby-to-bed-while-theyre-awake-1824685359)
+> 原文：<https://lifehacker.com/put-your-baby-to-bed-while-theyre-awake-1824685359>
 
 我以前演过忍者大逃亡。我坐在婴儿房里的滑翔机上，给她喂奶，直到她的眼皮慢慢合上，然后我会小心翼翼地，小心翼翼地，把一个孩子的定时炸弹放进她的婴儿床里，悄悄溜出门去。我会如释重负地呼出一口气，给我的丈夫一个无声的击掌，坚持通用的育儿口头禅:“只要管用。”
 

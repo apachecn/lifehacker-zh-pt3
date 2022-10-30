@@ -1,6 +1,6 @@
 # 如何选择一个与众不同的旅游目的地(不被骗)
 
-> 原文:[https://life hacker . com/how-to-choose-a-off-beat-travel-destination-without-ge-1730525614](https://lifehacker.com/how-to-choose-an-offbeat-travel-destination-without-ge-1730525614)
+> 原文：<https://lifehacker.com/how-to-choose-an-offbeat-travel-destination-without-ge-1730525614>
 
 如果你想去看埃菲尔铁塔或大峡谷，有大量写得很好的旅游指南可以帮助你。如果你想要更另类的东西，你可能只能靠自己了。幸运的是，有大量的资源可以帮助你计划一次更有趣、更有创意的旅行，而不会后悔没去过。
 

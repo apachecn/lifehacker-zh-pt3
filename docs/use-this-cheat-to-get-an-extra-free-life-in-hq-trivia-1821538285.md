@@ -1,6 +1,6 @@
 # 使用这个作弊手段在 HQ 琐事中获得额外的免费生活
 
-> 原文:[https://life hacker . com/use-this-check-to-get-a-extra-free-life-in-HQ-trivia-1821538285](https://lifehacker.com/use-this-cheat-to-get-an-extra-free-life-in-hq-trivia-1821538285)
+> 原文：<https://lifehacker.com/use-this-cheat-to-get-an-extra-free-life-in-hq-trivia-1821538285>
 
 我已经玩了 [HQ 琐事](https://lifehacker.com/tips-for-winning-money-in-the-hq-trivia-game-app-1820100846) 一个多月了，仍然没有任何表现。我通常不能通过第 4 或第 5 个问题(12 个中的一个)，但是有一次我通过了第 11 轮，多亏了一点好运气和额外的生命。
 

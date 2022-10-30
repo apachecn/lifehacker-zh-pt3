@@ -1,6 +1,6 @@
 # 一个喝醉的天文学家，一瓶 2500 年的啤酒，一座比马丘比丘还古老的失落的城市
 
-> 原文:[https://life hacker . com/a-醉酒天文学家-a-2500 岁-brew-and-a-lost-1788970889](https://lifehacker.com/a-drunken-astronomer-a-2-500-year-old-brew-and-a-lost-1788970889)
+> 原文：<https://lifehacker.com/a-drunken-astronomer-a-2-500-year-old-brew-and-a-lost-1788970889>
 
 本周我们来看看测谎仪(又名测谎仪)测试是否真的有效，看看今天真的应该制作的青铜时代的啤酒，一个你可能不知道名字的天文学家，等等！
 

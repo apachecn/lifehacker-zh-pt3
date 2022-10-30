@@ -1,6 +1,6 @@
 # 如果您在其他地方兑换了代码，如何在 iTunes Store 上获得 4K 的电影
 
-> 原文:[https://life hacker . com/how-to-get-a-4k-movie-on-the-itunes-store-if-you-redempt-1828060243](https://lifehacker.com/how-to-get-a-4k-movie-on-the-itunes-store-if-you-redeem-1828060243)
+> 原文：<https://lifehacker.com/how-to-get-a-4k-movie-on-the-itunes-store-if-you-redeem-1828060243>
 
 下次你购买电影时，如果它带有“兑换此代码以在你最喜欢的平台上获得数字版本”的通知，请确保你选择了正确的服务，如果你想在尽可能多的其他流媒体服务上获得最高质量的视频。
 

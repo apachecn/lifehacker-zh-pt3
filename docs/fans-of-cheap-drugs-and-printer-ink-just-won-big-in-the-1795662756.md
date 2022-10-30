@@ -1,6 +1,6 @@
 # 廉价药物和打印机墨水的拥趸们刚刚在最高法院大获全胜
 
-> 原文:[https://gizmodo . com/fans-of-cheap-drugs and-printer-ink-just-won-the-big-in-the-the-the-1795662756](https://gizmodo.com/fans-of-cheap-drugs-and-printer-ink-just-won-big-in-the-1795662756)
+> 原文：<https://gizmodo.com/fans-of-cheap-drugs-and-printer-ink-just-won-big-in-the-1795662756>
 
 本周二，一桩骇人听闻的案件 [在美国最高法院达成了一个出人意料的积极结果](http://www.ipwatchdog.com/2017/05/30/supreme-court-lexmark-sales-exhausted-patent-rights/id=83824/) 。 *Impression Products，Inc .诉 Lexmark International，Inc.* 一家小企业和一家国际公司之间长达七年的对峙，颠覆了消费者权益的世界，尤其是对科技和制药公司而言。你猜怎么着:小家伙赢了。
 

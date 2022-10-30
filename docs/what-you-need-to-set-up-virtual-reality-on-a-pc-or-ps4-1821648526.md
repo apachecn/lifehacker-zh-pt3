@@ -1,6 +1,6 @@
 # 在 PC 或 PS4 上设置虚拟现实需要什么
 
-> 原文:[https://life hacker . com/what-you-need-to-set-up-virtual-reality-on-a-PC-or-ps4-1821648526](https://lifehacker.com/what-you-need-to-set-up-virtual-reality-on-a-pc-or-ps4-1821648526)
+> 原文：<https://lifehacker.com/what-you-need-to-set-up-virtual-reality-on-a-pc-or-ps4-1821648526>
 
 得到一个虚拟现实耳机可能会成为一份令人印象深刻的圣诞礼物，但除非你有足够的计算能力来使用它，否则就把它当成一个非常昂贵的镇纸。根据为耳机供电的系统，无论是 PC 还是 PS4，以下是如何为虚拟现实做准备的方法。
 

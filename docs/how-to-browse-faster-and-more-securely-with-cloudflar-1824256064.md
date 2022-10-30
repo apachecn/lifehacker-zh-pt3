@@ -1,6 +1,6 @@
 # 如何使用 Cloudflare 的新 DNS 更快(更安全)地浏览
 
-> 原文:[https://life hacker . com/how-to-browse-with-cloud flar-1824256064](https://lifehacker.com/how-to-browse-faster-and-more-securely-with-cloudflar-1824256064)
+> 原文：<https://lifehacker.com/how-to-browse-faster-and-more-securely-with-cloudflar-1824256064>
 
 Cloudflare 本周末宣布了一项全新的 DNS 服务——当然是在愚人节——因为它的推出日期与你用来访问它的 IP 地址相关联:1.1.1.1。四个一。明白了吗？4/1?
 

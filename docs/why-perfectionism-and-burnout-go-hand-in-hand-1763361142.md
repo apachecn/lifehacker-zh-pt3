@@ -1,6 +1,6 @@
 # 为什么完美主义和倦怠相伴而生
 
-> 原文:[https://life hacker . com/why-完美主义-和倦怠-携手并进-1763361142](https://lifehacker.com/why-perfectionism-and-burnout-go-hand-in-hand-1763361142)
+> 原文：<https://lifehacker.com/why-perfectionism-and-burnout-go-hand-in-hand-1763361142>
 
 完美主义通常被视为一种美德——尤其是在工作场所——但研究表明，自我施加的压力表现完美只会导致最终的倦怠。完美不是你衡量成功的标准。
 

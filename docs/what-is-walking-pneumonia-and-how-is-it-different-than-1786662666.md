@@ -1,6 +1,6 @@
 # 什么是行走性肺炎，它与普通肺炎有什么不同？
 
-> 原文:[https://life hacker . com/what-is-walking-pneumonia-and-how-it-different-than-1786662666](https://lifehacker.com/what-is-walking-pneumonia-and-how-is-it-different-than-1786662666)
+> 原文：<https://lifehacker.com/what-is-walking-pneumonia-and-how-is-it-different-than-1786662666>
 
 行走性肺炎听起来可能很可怕，但它只是意味着一种轻微的肺炎病例——患者正在四处“行走”,而不是躺在床上或医院里。据估计，每年有 400 万到 500 万人患类似的肺部感染，希拉里只是其中之一。
 

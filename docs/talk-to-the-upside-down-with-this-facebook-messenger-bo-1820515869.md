@@ -1,6 +1,6 @@
 # 用这个 Facebook Messenger 机器人和颠倒的人说话
 
-> 原文:[https://life hacker . com/talk-to-the-nappy-with this-Facebook-messenger-bo-1820515869](https://lifehacker.com/talk-to-the-upside-down-with-this-facebook-messenger-bo-1820515869)
+> 原文：<https://lifehacker.com/talk-to-the-upside-down-with-this-facebook-messenger-bo-1820515869>
 
 无论你是想在不牺牲公寓押金的情况下体验*陌生事物*的精神，还是想和 SmarterChild (RIP AIM)聊聊天，都有一款聊天机器人可以满足你。
 

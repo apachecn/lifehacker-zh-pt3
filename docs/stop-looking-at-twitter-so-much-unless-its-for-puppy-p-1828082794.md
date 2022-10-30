@@ -1,6 +1,6 @@
 # 不要老看推特(除非是为了小狗图片)
 
-> 原文:[https://life hacker . com/stop-looking-in-Twitter-so-much-unt-it-for-puppy-p-1828082794](https://lifehacker.com/stop-looking-at-twitter-so-much-unless-its-for-puppy-p-1828082794)
+> 原文：<https://lifehacker.com/stop-looking-at-twitter-so-much-unless-its-for-puppy-p-1828082794>
 
 上次我们召集 Life hacker 员工的 [每周更新](https://lifehacker.com/its-probably-time-you-bought-better-headphones-1827925115?rev=1533313506721) 时，我们的编辑们正在购买一批新耳机，改善我们的网络安全，想办法熬过夏季高温，并改善我们的睡眠习惯。
 

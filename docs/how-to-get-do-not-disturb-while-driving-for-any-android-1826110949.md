@@ -1,6 +1,6 @@
 # 如何为任何安卓手机设置“开车时请勿打扰”模式
 
-> 原文:[https://life hacker . com/how-to-get-do-not-disturn-while-driving-for-any-Android-1826110949](https://lifehacker.com/how-to-get-do-not-disturb-while-driving-for-any-android-1826110949)
+> 原文：<https://lifehacker.com/how-to-get-do-not-disturb-while-driving-for-any-android-1826110949>
 
 Android:在一个完美的世界中，我们在开车时都会忽略我们的手机，但令人悲伤的事实是，有些人就是无法抗拒新短信或脸书通知的多巴胺增加。
 

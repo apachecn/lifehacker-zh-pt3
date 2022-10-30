@@ -1,6 +1,6 @@
 # 我是 Elana Karp，Plated 餐厅的主厨，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-elana-Karp-head-chef-at-plated-and-this-how-I-w-1825665750](https://lifehacker.com/im-elana-karp-head-chef-at-plated-and-this-is-how-i-w-1825665750)
+> 原文：<https://lifehacker.com/im-elana-karp-head-chef-at-plated-and-this-is-how-i-w-1825665750>
 
 关于我的工作方式，我们喜欢找那些工作特别有挑战性的人。通过邮寄服务制作食谱似乎很有挑战性:每个食谱都必须取悦大众，易于掌握，并且使用可以在全国范围内大量运输并分成小份的配料。在 [镀](https://www.plated.com/) (去年被杂货公司 Albertsons 收购)，那份工作属于埃拉娜·卡普。我们和她谈论了制作和测试食谱、拍摄视频指南以及她不断发展的烹饪生涯。
 

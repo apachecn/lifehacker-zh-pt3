@@ -1,6 +1,6 @@
 # 如何避免儿童菜单陷阱
 
-> 原文:[https://life hacker . com/how-to-avoid-the-kids-menu-trap-1797063076](https://lifehacker.com/how-to-avoid-the-kids-menu-trap-1797063076)
+> 原文：<https://lifehacker.com/how-to-avoid-the-kids-menu-trap-1797063076>
 
 儿童菜单。当我读到选择无味的通心粉和奶酪、普通的比萨盘和干白肉鸡腿时，我不能说我很兴奋，但我已经接受了这些选择，作为家庭用餐体验的一部分——孩子需要吃东西，父母想偶尔坐在餐馆里，听着成人聊天的声音和他们塞进包里“以防万一”的 iPad 上播放的丹尼尔·泰格(Daniel Tiger)的音乐。
 

@@ -1,6 +1,6 @@
 # 如果你在工作中犯了大错该怎么办
 
-> 原文:[https://life hacker . com/1796485584](https://lifehacker.com/what-to-do-if-you-make-a-big-mistake-at-work-1796485584)
+> 原文：<https://lifehacker.com/what-to-do-if-you-make-a-big-mistake-at-work-1796485584>
 
 犯一个大到足以让你被解雇的错误是没有人想遇到的情况，但是知道如何反应可以让你免于失业。如果你发现自己处在这样一个糟糕的境地，你可以这么做。
 

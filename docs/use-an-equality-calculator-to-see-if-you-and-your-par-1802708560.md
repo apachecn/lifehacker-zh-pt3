@@ -1,6 +1,6 @@
 # 使用“平等计算器”来看看你和你的伴侣是否平等地分担了养育子女的责任
 
-> 原文:[https://life hacker . com/use-an-equality-calculator-to-see-if-you-and-your-par-1802708560](https://lifehacker.com/use-an-equality-calculator-to-see-if-you-and-your-par-1802708560)
+> 原文：<https://lifehacker.com/use-an-equality-calculator-to-see-if-you-and-your-par-1802708560>
 
 我想有一些夫妇觉得他们对半分家务和照顾孩子，并且一直都很快乐，每天晚上都给对方做足部按摩。但对我认识的大多数人来说，每天都是打地鼠、障碍赛和鞭打的结合，特别令人疲惫不堪。在鞭打过程中，如果你认为自己承担了过多的责任，你很难不感到愤怒。
 

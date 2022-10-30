@@ -1,6 +1,6 @@
 # 买衣服的两天试穿规则
 
-> 原文:[https://life hacker . com/the-two-day-try-on-rule-for-health-shopping-1796859687](https://lifehacker.com/the-two-day-try-on-rule-for-clothes-shopping-1796859687)
+> 原文：<https://lifehacker.com/the-two-day-try-on-rule-for-clothes-shopping-1796859687>
 
 看到这条裙子了吗？我最近在买了差不多 48 小时后退货了。我以为我能成功，但事实上我看起来像个奇特的海盗。
 

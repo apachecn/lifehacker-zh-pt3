@@ -1,6 +1,6 @@
 # 10 家在线服装零售商的退货政策非常棒
 
-> 原文:[https://life hacker . com/10-online-clothing-retailers-with-awesome-return-polici-1796414751](https://lifehacker.com/10-online-clothing-retailers-with-awesome-return-polici-1796414751)
+> 原文：<https://lifehacker.com/10-online-clothing-retailers-with-awesome-return-polici-1796414751>
 
 在商店买衣服——曾经是唯一的购物方式——现在似乎已经过时了。当你有无限多的互联网可供选择时，为什么要把自己限制在仅仅一个设计师，甚至是一个商场里所有的选择呢？但是尽管网上购物很方便，选择也很多，我还是更喜欢浏览货架，通常一些朋友会鼓励我试穿除了黑色以外的任何颜色。
 

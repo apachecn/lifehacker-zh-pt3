@@ -1,6 +1,6 @@
 # 谷歌地图正在向当地导游赠送廉价电影票
 
-> 原文:[https://life hacker . com/Google-maps-is-giving-away-cheap-tickets-to-local-1825568840](https://lifehacker.com/google-maps-is-giving-away-cheap-movie-tickets-to-local-1825568840)
+> 原文：<https://lifehacker.com/google-maps-is-giving-away-cheap-movie-tickets-to-local-1825568840>
 
 在过去的三年里，谷歌一直通过其 [当地导游项目](https://lifehacker.com/google-will-now-reward-local-guides-for-contributing-to-1742542560) 用地图评论和内容来换取小福利。评价足够多的餐厅或上传足够多的当地热点照片，您可以获得从打折的数字电影租赁到三个月免费的 Google Play 音乐的奖励。
 

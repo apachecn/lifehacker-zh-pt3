@@ -1,6 +1,6 @@
 # iOS 10 十大秘密功能
 
-> 原文:[https://life hacker . com/top-10-secret-features-in-IOs-10-1786630631](https://lifehacker.com/top-10-secret-features-in-ios-10-1786630631)
+> 原文：<https://lifehacker.com/top-10-secret-features-in-ios-10-1786630631>
 
 [iOS 10 挤满了新功能](https://lifehacker.com/all-the-new-features-in-ios-10-in-two-minutes-1786554385) ，但最好的 [往往藏在引擎盖下](http://lifehacker.com/all-the-hidden-awesome-stuff-in-ios-10-apple-didnt-ann-1782060175) 。这里有一些我们最喜欢的鲜为人知的新功能，苹果没有宣传，否则你必须挖掘才能找到。
 

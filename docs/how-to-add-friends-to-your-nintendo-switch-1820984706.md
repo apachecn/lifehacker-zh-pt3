@@ -1,6 +1,6 @@
 # 如何将朋友添加到您的任天堂 Switch
 
-> 原文:[https://life hacker . com/how-to-add-friends-to-your ' s Nintendo-switch-1820984706](https://lifehacker.com/how-to-add-friends-to-your-nintendo-switch-1820984706)
+> 原文：<https://lifehacker.com/how-to-add-friends-to-your-nintendo-switch-1820984706>
 
 游戏机最有趣的方面之一是可以和朋友一起玩。不幸的是，一些主要的游戏公司很难找到朋友并将其添加到您的潜在多人游戏好友列表中。如果你正在使用任天堂的 Switch 与你的游戏伙伴互动，以下是如何让你的朋友加入你的朋友列表，并处理任天堂可怕的“朋友代码”系统。
 

@@ -1,6 +1,6 @@
 # 如何让你的爱车重新变漂亮
 
-> 原文:[https://jalopnik . com/how-to-make-your-cars-face-pretty-again-1794126301](https://jalopnik.com/how-to-make-your-cars-face-pretty-again-1794126301)
+> 原文：<https://jalopnik.com/how-to-make-your-cars-face-pretty-again-1794126301>
 
 当你每天使用汽车时，几乎不可能保持车漆的完美。似乎不管你做什么，高速公路的碎片、停车场的混乱和太阳的紫外线都会对你的骄傲和快乐造成伤害。除了去一趟专业的喷漆室，似乎没有什么比这更好的解决你汽车外观老化的方法了。
 

@@ -1,6 +1,6 @@
 # 如果你开启双因素认证，堡垒之夜现在会给你奖励
 
-> 原文:[https://kotaku . com/fort nite-now-give-a-reward-if-you-turn-on-two-fact-1828553198](https://kotaku.com/fortnite-now-gives-you-a-reward-if-you-turn-on-two-fact-1828553198)
+> 原文：<https://kotaku.com/fortnite-now-gives-you-a-reward-if-you-turn-on-two-fact-1828553198>
 
 我避免了数百万下载堡垒之夜的人陷入的分心。我不怎么玩。但我确实收到电子邮件，告诉我有人试图入侵我的账户，并最终采取了一些措施。
 

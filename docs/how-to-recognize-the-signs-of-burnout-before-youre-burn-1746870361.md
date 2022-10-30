@@ -1,6 +1,6 @@
 # 如何在你筋疲力尽之前识别出疲惫的迹象
 
-> 原文:[https://life hacker . com/how-to-recognize-the-signs-of-burn-before you-burn-1746870361](https://lifehacker.com/how-to-recognize-the-signs-of-burnout-before-youre-burn-1746870361)
+> 原文：<https://lifehacker.com/how-to-recognize-the-signs-of-burnout-before-youre-burn-1746870361>
 
 一旦你意识到你已经筋疲力尽了，你可以把自己从悬崖上拉回来 ，但是最好一开始就不要去那里。幸运的是，这些迹象通常就在你面前:你只是不想看到它们，或者你实际上太忙了*没有意识到它们。如果你保持警惕，你就能在精疲力竭严重到你几乎不能起床工作之前切断它。*
 

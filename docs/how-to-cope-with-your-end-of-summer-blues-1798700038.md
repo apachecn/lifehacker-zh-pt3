@@ -1,6 +1,6 @@
 # 如何应对你的夏末忧郁
 
-> 原文:[https://life hacker . com/how-to-应付你的夏末忧郁-1798700038](https://lifehacker.com/how-to-cope-with-your-end-of-summer-blues-1798700038)
+> 原文：<https://lifehacker.com/how-to-cope-with-your-end-of-summer-blues-1798700038>
 
 这个周末，你们中的许多人将会上传今夏最后一张沙滩自拍。你感到苦乐参半。或者只是苦涩。夏天结束了，我们都知道这意味着什么:欢乐时光结束了，冬天来了。从现在开始，当我们每天在上下班的路上与寒风搏斗时，日光将会变得几乎为零。你能听到狼在门外嚎叫吗？
 

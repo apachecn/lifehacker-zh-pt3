@@ -1,6 +1,6 @@
 # 为什么我们都应该对吃木炭感到兴奋？
 
-> 原文:[https://life hacker . com/why-we-be-should-to-eat-carbon-1797918814](https://lifehacker.com/why-are-we-all-supposed-to-be-excited-to-eat-charcoal-1797918814)
+> 原文：<https://lifehacker.com/why-are-we-all-supposed-to-be-excited-to-eat-charcoal-1797918814>
 
 有两种黑色食物:一种承认它们富含木炭，好像这是你应该想要的东西，另一种则不然。(还有第三类，由其他成分制成的食物，如 [【黑芝麻】](http://www.supernummy.com/black-sesame-gelato/) ，但这种情况比较少见。)
 

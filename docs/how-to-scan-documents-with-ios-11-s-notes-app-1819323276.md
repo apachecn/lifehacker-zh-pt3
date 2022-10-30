@@ -1,6 +1,6 @@
 # 如何用 iOS 11 的 Notes 应用扫描文档
 
-> 原文:[https://life hacker . com/how-to-scan-documents-with-IOs-11-s-notes-app-1819323276](https://lifehacker.com/how-to-scan-documents-with-ios-11-s-notes-app-1819323276)
+> 原文：<https://lifehacker.com/how-to-scan-documents-with-ios-11-s-notes-app-1819323276>
 
 iOS: iOS 11 新内置的文档扫描功能既是一种节省时间的方式，也是一种捕捉信息的便捷方式。它可以很容易地将真实世界的文档附加到您的数字音乐中，而无需从一个应用程序切换到另一个应用程序。它不会取代任何专用的文件扫描应用程序，但如果你想要的只是一个可以随时随地导出的签名文件，它是购买文件扫描应用程序的一个很好的替代选择。
 

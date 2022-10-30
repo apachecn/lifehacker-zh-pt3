@@ -1,6 +1,6 @@
 # 使用 Opera 新的“一触式”安卓浏览器单手浏览网页
 
-> 原文:[https://life hacker . com/browse-the-web-one-hand-with-operas-new-one-touch-a-1825636157](https://lifehacker.com/browse-the-web-one-handed-with-operas-new-one-touch-a-1825636157)
+> 原文：<https://lifehacker.com/browse-the-web-one-handed-with-operas-new-one-touch-a-1825636157>
 
 Opera 本周发布了一款新的网络浏览器，让单手在手机上浏览网页变得更加容易。
 

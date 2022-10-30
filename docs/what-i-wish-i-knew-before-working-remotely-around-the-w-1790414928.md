@@ -1,6 +1,6 @@
 # 在世界各地远程工作之前，我希望知道什么
 
-> 原文:[https://life hacker . com/what-I-wish-I-know-before-work-remote-around-the-w-1790414928](https://lifehacker.com/what-i-wish-i-knew-before-working-remotely-around-the-w-1790414928)
+> 原文：<https://lifehacker.com/what-i-wish-i-knew-before-working-remotely-around-the-w-1790414928>
 
 在过去的 14 个月里，我只回家过两次。其他的 12 天是在 [在](http://thefyslife.com/article/how-to-meet-people-while-traveling-solo/) 星球上游荡度过的，在 [东京、香港、巴黎、巴塞罗纳以及更多的](https://www.youtube.com/watch?v=bi-G7QtDL00) 用我的笔记本电脑工作。这听起来很棒，我当然很荣幸这样做，但我很快意识到，虽然有回报，但也带来了真正的、严重的精神和身体健康挑战。
 

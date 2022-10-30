@@ -1,6 +1,6 @@
 # 我是一个渴望冒险的城市作家:我应该买什么车？
 
-> 原文:[https://jalopnik . com/im-a-city-bound-writer-with-a-渴求冒险-wha-1785595979](https://jalopnik.com/im-a-city-bound-writer-with-a-thirst-for-adventure-wha-1785595979)
+> 原文：<https://jalopnik.com/im-a-city-bound-writer-with-a-thirst-for-adventure-wha-1785595979>
 
 罗斯 30 多岁，来自布鲁克林，是 T2 Atlas ObscuraT5 网站的战略和营销总监，该网站致力于让人们走出去探索世界，并报告他们的发现。为了实现公司的使命，她想要一辆价格合理、性能可靠的汽车或卡车，带她离开这座城市。Rose 应该买什么？
 

@@ -1,6 +1,6 @@
 # 在感恩节教孩子们掠夺性资本主义
 
-> 原文:[https://life hacker . com/teach-kids-about-predatory-capitalism-on-thanksgiving-1820686965](https://lifehacker.com/teach-kids-about-predatory-capitalism-on-thanksgiving-1820686965)
+> 原文：<https://lifehacker.com/teach-kids-about-predatory-capitalism-on-thanksgiving-1820686965>
 
 今天是感恩节。孩子们已经画出了他们的手，加了一个喙，把纸袋变成了美国土著人的服装，并在五月花号上涂了颜色。好吧。现在只要教他们关于美国土著民族的种族灭绝。
 

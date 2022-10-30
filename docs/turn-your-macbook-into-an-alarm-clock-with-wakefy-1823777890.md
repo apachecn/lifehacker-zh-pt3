@@ -1,6 +1,6 @@
 # 使用 Wakefy 将您的 MacBook 变成闹钟
 
-> 原文:[https://life hacker . com/turn-your-macbook 变成带唤醒功能的闹钟-1823777890](https://lifehacker.com/turn-your-macbook-into-an-alarm-clock-with-wakefy-1823777890)
+> 原文：<https://lifehacker.com/turn-your-macbook-into-an-alarm-clock-with-wakefy-1823777890>
 
 如果你依靠几个不同的闹钟在早上起床——智能灯在某个时间点亮，智能扬声器放在远处，以及你可信赖的智能手机闹钟 macOS 应用程序 [Wakefy](https://wakefy.com/) 为你的唤醒武器库增加了另一个工具。它并不完美，但它表现得足够好，我们会考虑把它加入我们的早间系列。
 

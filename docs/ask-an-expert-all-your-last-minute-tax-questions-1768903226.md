@@ -1,6 +1,6 @@
 # 问专家:你所有最后一刻的税务问题
 
-> 原文:[https://life hacker . com/ask-an-expert-all-your-last-minute-tax-questions-1768903226](https://lifehacker.com/ask-an-expert-all-your-last-minute-tax-questions-1768903226)
+> 原文：<https://lifehacker.com/ask-an-expert-all-your-last-minute-tax-questions-1768903226>
 
 我不会过多考虑我的税收，直到最后期限开始逼近——它已经逼近了！对于我们这些一直拖拖拉拉的人来说，是时候整理好我们的文件，最后坐下来报税了。来自 [华尔街](https://www.nerdwallet.com/) 的金融专家朋友们将为您提供一些指导。
 

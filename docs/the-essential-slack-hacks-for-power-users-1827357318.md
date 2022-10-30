@@ -1,6 +1,6 @@
 # 超级用户必备的松弛技巧
 
-> 原文:[https://life hacker . com/the-essential-slack-hacks-for-power-users-1827357318](https://lifehacker.com/the-essential-slack-hacks-for-power-users-1827357318)
+> 原文：<https://lifehacker.com/the-essential-slack-hacks-for-power-users-1827357318>
 
 懈怠是否让你的生活变得不守规矩？不间断的协作、交谈和过度的沟通是否让你无法真正完成任何事情？我们也是。
 

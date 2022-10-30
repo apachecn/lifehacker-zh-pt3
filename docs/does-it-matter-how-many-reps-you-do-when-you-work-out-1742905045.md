@@ -1,6 +1,6 @@
 # 你锻炼的时候做多少次很重要吗？
 
-> 原文:[https://life hacker . com/do-it-matter-how-reps-you-do-when you-work-out-1742905045](https://lifehacker.com/does-it-matter-how-many-reps-you-do-when-you-work-out-1742905045)
+> 原文：<https://lifehacker.com/does-it-matter-how-many-reps-you-do-when-you-work-out-1742905045>
 
 所以，你的训练需要你做 4 组 5 个重复的练习，之后做 3 组 8 个重复的练习，并且——哦，谢天谢地——只需要 2 组 50 个重复就可以完成了。嗯，嘿，好消息是这些销售代表的数字不仅仅是基于一个想看你发怒的虐待狂。以下是它们的区别以及它们对您的意义。
 

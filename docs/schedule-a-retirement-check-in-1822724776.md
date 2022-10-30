@@ -1,6 +1,6 @@
 # 安排退休登记
 
-> 原文:[https://life hacker . com/schedule-a-retirement-check-in-1822724776](https://lifehacker.com/schedule-a-retirement-check-in-1822724776)
+> 原文：<https://lifehacker.com/schedule-a-retirement-check-in-1822724776>
 
 你知道你应该为退休存钱，但是你真正存了多少呢？你最后一次检查你的储蓄是什么时候？
 

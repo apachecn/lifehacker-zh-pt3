@@ -1,6 +1,6 @@
 # 这里是你需要知道的在山洪中生存的一切
 
-> 原文:[https://life hacker . com/heres-everything-you-need-know-to-survive-a-flash-fl-1826733229](https://lifehacker.com/heres-everything-you-need-to-know-to-survive-a-flash-fl-1826733229)
+> 原文：<https://lifehacker.com/heres-everything-you-need-to-know-to-survive-a-flash-fl-1826733229>
 
 山洪可能会毫无征兆地袭来，所以做好准备是有好处的。不需要太多时间，雨水就会从毛毛雨升级为致命的紧急情况。万一你周围的旱地变成了一条汹涌的河流，这些小贴士可以让你不被冲走。
 

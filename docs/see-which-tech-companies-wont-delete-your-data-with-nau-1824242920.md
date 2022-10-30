@@ -1,6 +1,6 @@
 # 用淘气榜看看哪些科技公司不会删除你的数据
 
-> 原文:[https://life hacker . com/see-which-tech-companies-wot-delete-your-data-with-nau-1824242920](https://lifehacker.com/see-which-tech-companies-wont-delete-your-data-with-nau-1824242920)
+> 原文：<https://lifehacker.com/see-which-tech-companies-wont-delete-your-data-with-nau-1824242920>
 
 随着最近几周围绕脸书 的所有 [安全问题，我们可能都更加关注我们使用什么样的网络服务，以及他们拥有多少关于我们的信息(如果你没有这样做，你应该这样做)。](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) 
 

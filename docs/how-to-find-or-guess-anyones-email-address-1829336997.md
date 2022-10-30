@@ -1,6 +1,6 @@
 # 如何找到或猜测任何人的电子邮件地址
 
-> 原文:[https://life hacker . com/how-to-find-or-guess-any ones-email-address-1829336997](https://lifehacker.com/how-to-find-or-guess-anyones-email-address-1829336997)
+> 原文：<https://lifehacker.com/how-to-find-or-guess-anyones-email-address-1829336997>
 
 我曾经讨厌不请自来的电子邮件，直到我收到不请自来的短信、电话、Twitter 短信、脸书信息和 LinkedIn 邀请。现在我认为电子邮件是直接联系陌生人的最礼貌的方式。在这种情况下，我推荐 [这本查找任何人的电子邮件地址](https://www.blurbiz.io/blog/the-most-complete-guide-to-finding-anyones-email) 的详尽指南。
 

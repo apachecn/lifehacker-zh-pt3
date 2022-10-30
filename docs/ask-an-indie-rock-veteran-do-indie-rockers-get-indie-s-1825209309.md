@@ -1,6 +1,6 @@
 # 问一个独立摇滚老手:独立摇滚者有独立跟踪者吗？
 
-> 原文:[https://www . av club . com/ask-an-indie-rock-veterian-do-indie-rockers-get-indie-s-1825209309](https://www.avclub.com/ask-an-indie-rock-veteran-do-indie-rockers-get-indie-s-1825209309)
+> 原文：<https://www.avclub.com/ask-an-indie-rock-veteran-do-indie-rockers-get-indie-s-1825209309>
 
 ## 独立摇滚歌手会有独立跟踪者吗？似乎在一个独立乐队中的平易近人会特别吸引很多人，试图成为你的朋友。
 ***—凯文·奥斯丁***

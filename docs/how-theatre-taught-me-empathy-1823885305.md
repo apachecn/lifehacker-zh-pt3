@@ -1,6 +1,6 @@
 # 戏剧如何教会我感同身受
 
-> 原文:[https://life hacker . com/how-theatre-teached-me-empathy-1823885305](https://lifehacker.com/how-theatre-taught-me-empathy-1823885305)
+> 原文：<https://lifehacker.com/how-theatre-taught-me-empathy-1823885305>
 
 戏剧给了我很多东西。在这个地方，我怪异的习惯和愚蠢的声音变成了独特的工具。表演也让我打破了我的外壳，不再害怕别人对我的看法，这反过来帮助我学会接受和做我自己。但最重要的是，戏剧教会了我如何更好地理解他人。
 

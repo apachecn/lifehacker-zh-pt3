@@ -1,6 +1,6 @@
 # 玛丽·近藤现在为人父母了，是的，她的孩子已经会叠袜子了
 
-> 原文:[https://life hacker . com/Marie-kondo-is-now-a-parent-and-yes-她的学步孩子-is-al-1797729824](https://lifehacker.com/marie-kondo-is-now-a-parent-and-yes-her-toddler-is-al-1797729824)
+> 原文：<https://lifehacker.com/marie-kondo-is-now-a-parent-and-yes-her-toddler-is-al-1797729824>
 
 人们对清洁大师玛丽·近藤(Marie Kondo)创造的“改变生活”的整理方法 KonMari method 最大的批评之一是，如果你有孩子，这种方法就不太管用。
 

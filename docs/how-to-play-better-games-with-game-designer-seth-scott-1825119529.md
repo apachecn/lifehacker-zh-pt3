@@ -1,6 +1,6 @@
 # 如何玩更好的游戏，游戏设计师塞思·斯科特和 YouTuber 布莱恩·刘易斯
 
-> 原文:[https://life hacker . com/how-to-play-better-games-with-game-designer-Seth-Scott-1825119529](https://lifehacker.com/how-to-play-better-games-with-game-designer-seth-scott-1825119529)
+> 原文：<https://lifehacker.com/how-to-play-better-games-with-game-designer-seth-scott-1825119529>
 
 我们本周的嘉宾是视频游戏设计师和 Seth Scott，他是任天堂 Switch[膜](https://www.nintendo.com/games/detail/membrane-switch) 的创造者，以及 YouTuber Brian Lewis，他是《魔法:收集建议频道 [托利亚社区学院](https://www.youtube.com/user/tolariancommunity/featured) 的创造者。我们讨论如何使用聚会游戏和卡牌游戏作为破冰船、创造力的渠道和全面发展的爱好。
 

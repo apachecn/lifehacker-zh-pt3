@@ -1,6 +1,6 @@
 # 这种精致的古巴自由酒比你大学时代的朗姆酒和可乐好多了
 
-> 原文:[https://life hacker . com/this-refined-Cuba-libre-be-way-better-the-rum-co-1828586133](https://lifehacker.com/this-refined-cuba-libre-is-way-better-than-the-rum-co-1828586133)
+> 原文：<https://lifehacker.com/this-refined-cuba-libre-is-way-better-than-the-rum-co-1828586133>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们制作了让我第一次真正可怕的大学宿醉的饮料:朗姆酒和可乐。
 

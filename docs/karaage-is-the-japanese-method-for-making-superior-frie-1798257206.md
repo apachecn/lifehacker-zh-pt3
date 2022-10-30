@@ -1,6 +1,6 @@
 # Karaage 是日本制作高级炸鸡的方法
 
-> 原文:[https://the take out . com/Kara age-is-the-Japanese-method-for-making-superior-frie-1798257206](https://thetakeout.com/karaage-is-the-japanese-method-for-making-superior-frie-1798257206)
+> 原文：<https://thetakeout.com/karaage-is-the-japanese-method-for-making-superior-frie-1798257206>
 
 日本人与炸鸡的关系让我印象深刻的是消费的频率——比偶尔的放纵更频繁。在美国，每天吃炸鸡被视为暴食行为。在日本，同样的做法受到了更温和的评判。
 

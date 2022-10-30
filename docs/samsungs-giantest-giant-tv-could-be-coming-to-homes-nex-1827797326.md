@@ -1,6 +1,6 @@
 # 三星最大的巨型电视明年可能会进入家庭
 
-> 原文:[https://gizmodo . com/samsungs-giant test-giant-TV-could-to-be-to-homes-NEX-1827797326](https://gizmodo.com/samsungs-giantest-giant-tv-could-be-coming-to-homes-nex-1827797326)
+> 原文：<https://gizmodo.com/samsungs-giantest-giant-tv-could-be-coming-to-homes-nex-1827797326>
 
 在 CES 2018 上，三星展示了“ [”墙](https://gizmodo.com/samsungs-new-tv-is-just-a-giant-wall-1821862286) ，“一款 146 英寸的 4K 电视，使用 MicroLED 显示技术，使电视比目前任何可用的电视都大。根据韩国先驱报*的 [报道，三星视觉显示业务总裁韩正熙声称一款消费版的 Wall 正在研发中，价格会比想要 12 英尺宽电视的人所期望的要便宜一点。](http://www.koreaherald.com/view.php?ud=20180720000652)*
 

@@ -1,6 +1,6 @@
 # 躺在飞机座位上的人不是你的敌人
 
-> 原文:[https://life hacker . com/the-person-躺椅座不是你的-en-1823808027](https://lifehacker.com/the-person-reclining-their-airplane-seat-is-not-your-en-1823808027)
+> 原文：<https://lifehacker.com/the-person-reclining-their-airplane-seat-is-not-your-en-1823808027>
 
 你前面的飞机乘客粗鲁地斜靠在你已经狭窄的腿部空间里。你发牢骚，消极-积极地踢他们的座位。他们对你大喊:他们累了，他们只想在飞行途中睡觉，所以忍受吧，伙计！你们谁是这里的坏人？迈克·鲁格内塔说，两者都不是。坏人是航空公司，是哪个 [唆使你们两个打](https://d.rip/mikerugnetta/posts/RHJvcFBvc3QtMjA5MQ) 。
 

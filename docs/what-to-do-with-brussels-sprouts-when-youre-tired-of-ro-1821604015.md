@@ -1,6 +1,6 @@
 # 当你厌倦了烤球芽甘蓝时，该怎么做
 
-> 原文:[https://life hacker . com/what-do-with-the-Brussels-breakers-when-you-fat-of-ro-1821604015](https://lifehacker.com/what-to-do-with-brussels-sprouts-when-youre-tired-of-ro-1821604015)
+> 原文：<https://lifehacker.com/what-to-do-with-brussels-sprouts-when-youre-tired-of-ro-1821604015>
 
 一个完美的烤，轻微烧焦的芽甘蓝是一个非常令人愉快的东西，但一个单一的准备方法可能会变得疲劳。好在吃这些十字花科美味的方法不止一种。这里有一些我们最喜欢的。
 

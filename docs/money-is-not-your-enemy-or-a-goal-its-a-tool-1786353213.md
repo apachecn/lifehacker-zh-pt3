@@ -1,6 +1,6 @@
 # 金钱不是你的敌人或目标，它是一种工具
 
-> 原文:[https://life hacker . com/money-is not-your-敌国或-a-goal-a-tool-1786353213](https://lifehacker.com/money-is-not-your-enemy-or-a-goal-its-a-tool-1786353213)
+> 原文：<https://lifehacker.com/money-is-not-your-enemy-or-a-goal-its-a-tool-1786353213>
 
 我们大多数人都没有健康的金钱关系。我们认为它是敌人——不断阻碍我们的东西，或者我们认为它是一个目标，可以解决我们所有问题的东西。现实中，钱只是一个工具。意识到这一点以一些有趣的方式改变了我的习惯。
 

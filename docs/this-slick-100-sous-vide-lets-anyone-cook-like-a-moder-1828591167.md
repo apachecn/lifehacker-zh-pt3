@@ -1,6 +1,6 @@
 # 这款售价 100 美元的精巧视频可以让任何人以低廉的价格像现代厨师一样烹饪
 
-> 原文:[https://gizmodo . com/this-slick-100-sous-vide-let-any one-cook-like-a-moder-1828591167](https://gizmodo.com/this-slick-100-sous-vide-lets-anyone-cook-like-a-moder-1828591167)
+> 原文：<https://gizmodo.com/this-slick-100-sous-vide-lets-anyone-cook-like-a-moder-1828591167>
 
 食物可能味道很好，但高级餐厅通常会使用一些技巧，不费吹灰之力就能做出完美的饭菜。也许这些设备中最著名的是 sous vide，一种被美化的浸入式加热器，它将水保持在精确的温度，以便均匀地烹饪食物，通常是真空密封袋中的肉类。家用电视已经面市好几年了，但是 Anova Precision Cooker Nano 感觉像是这些设备发展的逻辑终点。对于烹饪爱好者来说，真空吸尘器不再是一种昂贵的或者看起来很奇怪的设备。这只是你期望在家庭厨房里看到的另一个负担得起的工具。
 

@@ -1,6 +1,6 @@
 # 怀疑论者购买(或不购买)4K 电视指南
 
-> 原文:[https://gizmodo . com/a-怀疑论者-购买或不购买 4k 电视指南-1744272556](https://gizmodo.com/a-skeptics-guide-to-buying-or-not-buying-a-4k-tv-1744272556)
+> 原文：<https://gizmodo.com/a-skeptics-guide-to-buying-or-not-buying-a-4k-tv-1744272556>
 
 五年前，我花了大约 500 美元 ，买下了我心爱的电视机，一台(当时)非常薄的 32 英寸三星 [。今天，你可以花 500 美元](http://gizmodo.com/why-is-my-smart-home-so-fucking-dumb-1684949715) 买到一台 50 英寸的 4K 电视 [。真正的问题是:你到底该不该买一台 4K 电视？](http://www.amazon.com/Sceptre-U508CV-UMK-50-Inch-Glass-Ultra/dp/B00S4HI7CO?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/a-skeptics-guide-to-buying-or-not-buying-a-4k-tv-1744272556&asc_source=&tag=kinjagizmodolink-20)
 

@@ -1,6 +1,6 @@
 # 如何使用 Waze 避免在公路旅行中支付通行费
 
-> 原文:[https://life hacker . com/use-waze-to-avoid-payed-tolls-on-road-trips-1819043840](https://lifehacker.com/use-waze-to-avoid-paying-tolls-on-road-trips-1819043840)
+> 原文：<https://lifehacker.com/use-waze-to-avoid-paying-tolls-on-road-trips-1819043840>
 
 我搬到旧金山的那个周末，我决定在最后一刻开车去圣罗莎的俄罗斯河酿酒厂，庆祝我终于把所有的东西都搬走了。酿酒厂生产我最喜欢的 IPAs 之一，在酿酒厂之外很难找到，所以我想去为我的新家买点食物。这是个好主意。直到我走近一个收费站，意识到我没有任何现金，需要掉头。
 

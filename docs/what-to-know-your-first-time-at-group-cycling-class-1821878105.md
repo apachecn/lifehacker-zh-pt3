@@ -1,6 +1,6 @@
 # 你第一次上团体自行车课时应该知道什么
 
-> 原文:[https://life hacker . com/what-to-know-your ' s first-time-in-group-cycling-class-1821878105](https://lifehacker.com/what-to-know-your-first-time-at-group-cycling-class-1821878105)
+> 原文：<https://lifehacker.com/what-to-know-your-first-time-at-group-cycling-class-1821878105>
 
 准备好尝试集体单车课了吗？你需要安装你的自行车，并学习如何连接你的鞋子，但一旦你上了马鞍，教练会告诉你到底如何工作。以下是你第一次需要知道的。
 

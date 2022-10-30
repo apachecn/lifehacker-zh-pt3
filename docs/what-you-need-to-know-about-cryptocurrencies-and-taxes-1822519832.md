@@ -1,6 +1,6 @@
 # 关于加密货币和税收，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-about-cryptographics-and-taxes-1822519832](https://lifehacker.com/what-you-need-to-know-about-cryptocurrencies-and-taxes-1822519832)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-cryptocurrencies-and-taxes-1822519832>
 
 如果你在 2017 年拥有任何一种 [比特币](https://lifehacker.com/how-to-buy-bitcoin-with-a-credit-card-and-why-you-proba-1822457092) (或任何一种 [其他流行的加密货币](https://lifehacker.com/preview/beyond-bitcoin-your-guide-to-the-other-major-cryptocur-1821656104?rev=1514581574792#_ga=2.119160141.5515566.1517238763-258269408.1513265580) )，你可能会赚很多钱。现在，随着 [税收季即将来临](https://twocents.lifehacker.com/tell-us-how-you-do-your-taxes-1822412578#_ga=2.119160141.5515566.1517238763-258269408.1513265580) ，你可能会想知道所有这些数字货币会如何影响你的税收。
 

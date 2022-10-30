@@ -1,6 +1,6 @@
 # 玩蜘蛛侠的小技巧
 
-> 原文:[https://kotaku.com/tips-for-playing-spider-man-1828885153](https://kotaku.com/tips-for-playing-spider-man-1828885153)
+> 原文：<https://kotaku.com/tips-for-playing-spider-man-1828885153>
 
 你可能听说了今天有一个新的蜘蛛侠游戏。你可能也听说过 [很不错的](https://kotaku.com/spider-man-the-kotaku-review-1828796781) 。对于那些决定自己尝试这个小游戏的人，我可以提供一些指导。
 

@@ -1,6 +1,6 @@
 # 用马桶坐垫吸干你的油性皮肤
 
-> 原文:[https://life hacker . com/use-马桶座圈盖-去吸干你的油性皮肤-1796415643](https://lifehacker.com/use-toilet-seat-covers-to-blot-your-oily-skin-1796415643)
+> 原文：<https://lifehacker.com/use-toilet-seat-covers-to-blot-your-oily-skin-1796415643>
 
 如果你是那种用吸墨纸吸干脸上汗水或油的人，你可能会想知道哪种是最好的。最贵的好吗？你应该买闻起来像花的床单吗？或者你应该干脆放弃吸油纸，而选择手帕或永远带着露珠的光泽？
 

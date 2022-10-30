@@ -1,6 +1,6 @@
 # 父母在孩子必需品上省钱的五种方法
 
-> 原文:[https://life hacker . com/five-way-parents-can-save-money-on-kid-essentials-1791935114](https://lifehacker.com/five-ways-parents-can-save-money-on-kid-essentials-1791935114)
+> 原文：<https://lifehacker.com/five-ways-parents-can-save-money-on-kid-essentials-1791935114>
 
 几年前，当我丈夫和我有了第一个孩子时，我们觉得经济上有所准备。我们不得不动用积蓄来支付生育治疗和相关的医疗费用，但我一直在做自由作家和编辑来弥补这一损失。当我们的小男孩出生时，我们的银行账户状况良好。我们是三口之家。
 

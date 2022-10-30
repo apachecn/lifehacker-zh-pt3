@@ -1,6 +1,6 @@
 # 我是严肃饮食的 j·肯吉·洛佩兹·阿尔特，这就是我的工作方式
 
-> 原文:[https://life hacker . com/im-j-kenji-Lopez-alt-of-serious-eats-and-this-how-1733069398](https://lifehacker.com/im-j-kenji-lopez-alt-of-serious-eats-and-this-is-how-1733069398)
+> 原文：<https://lifehacker.com/im-j-kenji-lopez-alt-of-serious-eats-and-this-is-how-1733069398>
 
 J.Kenji López-Alt 是食品实验室[的作者，这是一个关于严肃饮食的专栏，现在是一本用科学的眼光探索烹饪的书的作者。事实上，纽约时报](http://www.seriouseats.com/the-food-lab) [刚刚称 Kenji](http://www.nytimes.com/2015/09/30/dining/cookbook-review-the-food-lab-j-kenji-lopez-alt.html) 为“网络烹饪之王”
 

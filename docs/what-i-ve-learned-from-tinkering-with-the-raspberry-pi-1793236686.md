@@ -1,6 +1,6 @@
 # 五年来我摆弄树莓派的经验告诉我
 
-> 原文:[https://life hacker . com/what-I-ve-learn-from-tamping-the-raspberry-pi-1793236686](https://lifehacker.com/what-i-ve-learned-from-tinkering-with-the-raspberry-pi-1793236686)
+> 原文：<https://lifehacker.com/what-i-ve-learned-from-tinkering-with-the-raspberry-pi-1793236686>
 
 [Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
 

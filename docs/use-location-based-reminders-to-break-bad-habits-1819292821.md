@@ -1,6 +1,6 @@
 # 使用基于位置的提醒来打破坏习惯
 
-> 原文:[https://life hacker . com/use-location-based-reminders-to-break-bad-habits-1819292821](https://lifehacker.com/use-location-based-reminders-to-break-bad-habits-1819292821)
+> 原文：<https://lifehacker.com/use-location-based-reminders-to-break-bad-habits-1819292821>
 
 你(傻瓜):“提醒是为了好事。”我(睿智):“提醒是为了坏事。”
 

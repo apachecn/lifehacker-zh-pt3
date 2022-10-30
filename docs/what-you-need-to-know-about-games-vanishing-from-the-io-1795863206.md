@@ -1,6 +1,6 @@
 # 关于游戏从 iOS 应用商店消失，你需要知道什么
 
-> 原文:[https://kotaku . com/what-you-neving-from-the-io-1795863206](https://kotaku.com/what-you-need-to-know-about-games-vanishing-from-the-io-1795863206)
+> 原文：<https://kotaku.com/what-you-need-to-know-about-games-vanishing-from-the-io-1795863206>
 
 苹果即将推出的 iOS 11 将结束对 32 位游戏的支持，今年秋天将推出。这意味着开发人员正急于用 64 位基础设施更新他们的游戏，可悲的是，几个不幸的游戏将从 iOS 应用商店中消失。
 

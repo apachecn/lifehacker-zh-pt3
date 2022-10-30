@@ -1,6 +1,6 @@
 # 自助值机屏幕是机场细菌滋生最多的地方
 
-> 原文:[https://life hacker . com/the-self-check-in-screen-is-the-most-germ-bordered-part-1822695406](https://lifehacker.com/the-self-check-in-screen-is-the-most-germ-infested-part-1822695406)
+> 原文：<https://lifehacker.com/the-self-check-in-screen-is-the-most-germ-infested-part-1822695406>
 
 在与一种我称之为流感的疾病进行了一场特别艰苦的斗争后，我变得相当痴迷于注意我在公共场所接触的东西。每当我坐飞机的时候，我都会随身携带抗菌湿巾(这是我多年来养成的习惯)，在飞机上一落座，我就会立即擦拭我的托盘桌、安全带和扶手。事实证明，在登机前，我可能应该更加关注我在实际机场里接触到的东西。
 

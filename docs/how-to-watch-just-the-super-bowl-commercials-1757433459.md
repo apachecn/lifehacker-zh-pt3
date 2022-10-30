@@ -1,6 +1,6 @@
 # 如何只看超级碗广告
 
-> 原文:[https://life hacker . com/how-to-watch-just-the-super bowl-commercial-1757433459](https://lifehacker.com/how-to-watch-just-the-super-bowl-commercials-1757433459)
+> 原文：<https://lifehacker.com/how-to-watch-just-the-super-bowl-commercials-1757433459>
 
 老实说，你看超级碗是为了广告。好了，现在你不必让自己经历所有的哨子、旗帜和 [其他你并不真正理解的体育用品](https://lifehacker.com/how-to-fake-your-way-through-super-bowl-li-without-know-1791893003) 。你可以在网上播放它们——有些甚至在大赛前*——让所有那些公司为花费 500 万美元 播出一个 30 秒的广告而感到愚蠢。* 
 

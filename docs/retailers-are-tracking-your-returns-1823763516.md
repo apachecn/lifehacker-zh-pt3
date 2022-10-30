@@ -1,6 +1,6 @@
 # 零售商正在跟踪你的退货
 
-> 原文:[https://life hacker . com/retailers-is-tracking-your-returns-1823763516](https://lifehacker.com/retailers-are-tracking-your-returns-1823763516)
+> 原文：<https://lifehacker.com/retailers-are-tracking-your-returns-1823763516>
 
 像亚马逊这样的零售商近年来一直在改变他们的退货和换货政策，以更吸引顾客。虽然这对购物者来说很方便，但也可能招致滥用和欺诈。
 

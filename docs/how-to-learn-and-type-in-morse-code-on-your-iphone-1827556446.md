@@ -1,6 +1,6 @@
 # 如何在你的 iPhone 上学习和输入莫尔斯电码
 
-> 原文:[https://life hacker . com/how-to-learn-and-type-in-your-iphone-1827556446](https://lifehacker.com/how-to-learn-and-type-in-morse-code-on-your-iphone-1827556446)
+> 原文：<https://lifehacker.com/how-to-learn-and-type-in-morse-code-on-your-iphone-1827556446>
 
 Watch
 

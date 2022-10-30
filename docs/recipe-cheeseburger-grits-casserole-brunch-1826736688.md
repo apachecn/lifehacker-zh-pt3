@@ -1,6 +1,6 @@
 # 奶酪汉堡砂锅早午餐是如此的错误和正确
 
-> 原文:[https://the take out . com/recipe-芝士汉堡-粗燕麦粉-砂锅-早午餐-1826736688](https://thetakeout.com/recipe-cheeseburger-grits-casserole-brunch-1826736688)
+> 原文：<https://thetakeout.com/recipe-cheeseburger-grits-casserole-brunch-1826736688>
 
 对一群人来说，夏季早午餐可能有点令人生畏。所有这些菜，很多都必须趁热端上来，才能达到最佳美味(我们正看着你呢，鸡蛋)，而且都是在早上做的，因为我们很多人都不是最有效率的。在你的食谱中放一些提前做好的砂锅菜可以让早午餐生活更容易管理，但也会变得有点无聊。你的基本烤鸡蛋或杂碎棕色砂锅菜美味可口，但相当典型。如果你想做一些更流行的东西，一些你的客人可能从未见过的东西，该怎么办？
 

@@ -1,6 +1,6 @@
 # 如何在你当前的手机上获得 Android P 的新蓝牙音量控制
 
-> 原文:[https://life hacker . com/how-to-get-Android-PS-new-bluetooth-volume-controls-on-1825361546](https://lifehacker.com/how-to-get-android-ps-new-bluetooth-volume-controls-on-1825361546)
+> 原文：<https://lifehacker.com/how-to-get-android-ps-new-bluetooth-volume-controls-on-1825361546>
 
 Android:看起来谷歌终于在下一次大更新中为 Android 添加了一个缺失已久的功能。当 [Android P](https://lifehacker.com/how-to-get-android-p-on-your-phone-right-now-1823615465) 在今年秋天到来时，你将(最终)能够为你的各种蓝牙设备设置不同的默认音量。
 

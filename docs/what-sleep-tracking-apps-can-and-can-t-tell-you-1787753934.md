@@ -1,6 +1,6 @@
 # 哪些睡眠追踪应用程序能告诉你什么，不能告诉你什么
 
-> 原文:[https://life hacker . com/what-sleep-tracking-apps-can-and-can-t-tell-you-1787753934](https://lifehacker.com/what-sleep-tracking-apps-can-and-can-t-tell-you-1787753934)
+> 原文：<https://lifehacker.com/what-sleep-tracking-apps-can-and-can-t-tell-you-1787753934>
 
 活动追踪器和睡眠追踪应用程序会很高兴地给你关于睡眠的统计数据:例如，你在床上睡了多长时间，以及睡眠质量是否良好。但是你不能只看这些数字的表面，其中一些是完全错误的。
 

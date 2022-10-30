@@ -1,6 +1,6 @@
 # 为什么你应该在宽限期内支付学生贷款
 
-> 原文:[https://life hacker . com/why-you-you-g-1826640345](https://lifehacker.com/why-you-should-make-student-loan-payments-during-your-g-1826640345)
+> 原文：<https://lifehacker.com/why-you-should-make-student-loan-payments-during-your-g-1826640345>
 
 当你大学毕业时(或者降到半职以下)，在你开始偿还贷款之前，你有六个月的宽限期。对许多人来说，这是天赐之物:你有望在首次还款到期前找到财务立足点，减轻你对金钱的焦虑。但有一个重要的原因是，即使在这 6 个月的间隔期内，你也应该还款。
 

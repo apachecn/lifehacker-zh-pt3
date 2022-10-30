@@ -1,6 +1,6 @@
 # iPhone 有无线充电功能。现在怎么办？
 
-> 原文:[https://life hacker . com/the-iphone-has-wireless-charging-now-what-1807826997](https://lifehacker.com/the-iphone-has-wireless-charging-now-what-1807826997)
+> 原文：<https://lifehacker.com/the-iphone-has-wireless-charging-now-what-1807826997>
 
 感应充电标准被几乎所有主要制造商采用仅用了五年时间，但苹果公司最终将 Qi 感应充电(也称为无线充电)添加到其移动设备中。当然，迟到总比不到好，但人们需要关心有没有另一种方式给他们的设备充电，或者那根超长的电缆够好吗？无线充电是否物有所值，或者潜在的兼容性问题？
 

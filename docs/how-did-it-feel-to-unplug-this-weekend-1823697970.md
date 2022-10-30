@@ -1,6 +1,6 @@
 # 这个周末拔掉电源是什么感觉？
 
-> 原文:[https://life hacker . com/how-do-it-feel-to-plug-this-weekend-1823697970](https://lifehacker.com/how-did-it-feel-to-unplug-this-weekend-1823697970)
+> 原文：<https://lifehacker.com/how-did-it-feel-to-unplug-this-weekend-1823697970>
 
 我们想听听你的不插电周末过得怎么样——你是 [参加了全国不插电日](https://lifehacker.com/the-national-day-of-unplugging-starts-tonight-1823647394) 还是只是设法抵挡了一两次手机的警笛声。
 

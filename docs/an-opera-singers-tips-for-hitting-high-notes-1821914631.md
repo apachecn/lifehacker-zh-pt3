@@ -1,6 +1,6 @@
 # 一位歌剧演唱家的高音技巧
 
-> 原文:[https://life hacker . com/an-opera-singers-tips-for-hit-high-notes-1821914631](https://lifehacker.com/an-opera-singers-tips-for-hitting-high-notes-1821914631)
+> 原文：<https://lifehacker.com/an-opera-singers-tips-for-hitting-high-notes-1821914631>
 
 在去年秋天的大都会歌剧院，在一场名为“消灭天使”的演出中，女高音奥德丽·卢娜唱了一首高音 ，创下了大都会歌剧院有史以来最高音符的新纪录。你可能更熟悉“高音 C”这个短语，这是大都会歌剧院一个非常典型的高音——高音 A 要高出几个音。这是露娜在节目中唱的第一首歌。她花了几年时间把声音练到那个音高。所以我们问她是怎么做到的。
 

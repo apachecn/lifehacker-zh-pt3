@@ -1,6 +1,6 @@
 # 什么是区块链？
 
-> 原文:[https://lifehacker.com/what-is-blockchain-1822094625](https://lifehacker.com/what-is-blockchain-1822094625)
+> 原文：<https://lifehacker.com/what-is-blockchain-1822094625>
 
 突然间，无处不在。这项技术于 2008 年发明，一年后推出时为比特币提供动力，目前正被用于从 [版权保护](https://lifehacker.com/why-kodaks-bitcoin-scheme-is-a-scam-you-should-avoid-1821957658#_ga=2.186086191.785031894.1516112040-1313785359.1499701416) 到性同意( [是的，真的是](https://gizmodo.com/men-try-to-redefine-sexual-consent-with-blockchain-1821964907#_ga=2.186086191.785031894.1516112040-1313785359.1499701416) )的一切事情。
 

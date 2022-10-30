@@ -1,6 +1,6 @@
 # 加入我们的夏季读书俱乐部
 
-> 原文:[https://lifehacker.com/join-our-summer-book-club-1826459594](https://lifehacker.com/join-our-summer-book-club-1826459594)
+> 原文：<https://lifehacker.com/join-our-summer-book-club-1826459594>
 
 我 2018 年的目标之一是拓展我的阅读视野。我读了很多最近的小说(事实上，当我不在工作的时候，我几乎只看小说)，但是我很想给其他类型的小说一个机会。
 

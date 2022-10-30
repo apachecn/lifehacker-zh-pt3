@@ -1,6 +1,6 @@
 # 你可能从未考虑过的工作，瑜伽对健康的益处，以及杀死寨卡蚊子的广告牌
 
-> 原文:[https://life hacker . com/jobs-you-possible-never-consider-the-health-benefits-1776587368](https://lifehacker.com/jobs-you-probably-never-considered-the-health-benefits-1776587368)
+> 原文：<https://lifehacker.com/jobs-you-probably-never-considered-the-health-benefits-1776587368>
 
 一些周一早上的灵感，你的指导顾问可能从未建议过的职业选择，瑜伽的真正健康益处(不需要昂贵的裤子)，等等，都在本周的 Lifehacker Brain 自助餐中！
 

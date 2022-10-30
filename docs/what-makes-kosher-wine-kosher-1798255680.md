@@ -1,6 +1,6 @@
 # 什么使犹太葡萄酒犹太？
 
-> 原文:[https://the take out . com/what-makes-kosher-wine-kosher-1798255680](https://thetakeout.com/what-makes-kosher-wine-kosher-1798255680)
+> 原文：<https://thetakeout.com/what-makes-kosher-wine-kosher-1798255680>
 
 对于大多数美国人来说，犹太葡萄酒是一种甜得令人恶心的糖浆饮料，尝起来好像比实际的葡萄含有更多的高果糖玉米糖浆。这是一种奇怪的联系，因为酒——就像在许多宗教中一样——自圣经时代以来就为犹太教的仪式提供了支柱。事实上，你并没有看到许多犹太葡萄酒在[*【葡萄酒鉴赏家】*评分](http://www.winespectator.com/display/show/id/scoring-scale) 中得到 95 分，这可能会让一个好奇的非犹太人想知道，到底是什么让犹太葡萄酒“犹太化”？此外，为什么它从来没有赢得那些更有鉴赏力的人的青睐，就像纳帕谷的葡萄酒那样？
 

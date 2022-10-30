@@ -1,6 +1,6 @@
 # “吃完”一道菜意味着什么
 
-> 原文:[https://life hacker . com/what-it-mean-to-finish a-dish-1797691879](https://lifehacker.com/what-it-means-to-finish-a-dish-1797691879)
+> 原文：<https://lifehacker.com/what-it-means-to-finish-a-dish-1797691879>
 
 如果你看过相当多的烹饪节目，你很可能会被某个著名的厨师指示用少量的油、少量的盐或一些新鲜切碎的香草来“完成”你的菜肴。“完成”一道菜，这与抛光一道菜完全不同，只是意味着添加那些额外的装饰来帮助食物发光，成为最好的自己
 

@@ -1,6 +1,6 @@
 # 当有人需要发泄时，如何做一个好的倾听者
 
-> 原文:[https://life hacker . com/how-to-be-a-good-listener-when-someone-need-to-vent-1749934054](https://lifehacker.com/how-to-be-a-good-listener-when-someone-needs-to-vent-1749934054)
+> 原文：<https://lifehacker.com/how-to-be-a-good-listener-when-someone-needs-to-vent-1749934054>
 
 让别人发泄他们的沮丧会让你成为一个好朋友，一个关心的家庭成员，一个安慰的重要的另一半。然而，做一个好的倾听者通常需要比在他们咆哮时点头多一点的努力。你需要让你关心的人感到舒适，被理解，被认可。
 

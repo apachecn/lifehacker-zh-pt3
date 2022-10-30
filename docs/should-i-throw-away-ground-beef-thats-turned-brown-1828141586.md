@@ -1,6 +1,6 @@
 # 如果我的碎牛肉已经变成棕色，我应该把它放下吗？
 
-> 原文:[https://the take out . com/should-I-throw-away-ground-beef-that-that-turned-brown-1828141586](https://thetakeout.com/should-i-throw-away-ground-beef-thats-turned-brown-1828141586)
+> 原文：<https://thetakeout.com/should-i-throw-away-ground-beef-thats-turned-brown-1828141586>
 
 作为一个渴望成为卡罗尔·布雷迪的母亲，我几乎每次离开杂货店都会带上至少一磅用保鲜膜包着的瘦牛肉。知道未来几天我没有晚餐计划，这个小包裹是我简单晚餐的门票，比如牛肉酱、墨西哥玉米卷、辣椒、肉卷。但是，随着我忙碌的日子一天天过去，有时我会忘记那个包，直到我再次把它拿出来，它已经从健康的红色变成了暗褐色。还可以吃吗？
 

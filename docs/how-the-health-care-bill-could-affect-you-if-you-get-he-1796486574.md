@@ -1,6 +1,6 @@
 # 如果你通过工作获得医疗保险，医疗保健法案会对你产生怎样的影响
 
-> 原文:[https://life hacker . com/how-the-health-care-bill-can-effect-you-if-you-get-he-1796486574](https://lifehacker.com/how-the-health-care-bill-could-affect-you-if-you-get-he-1796486574)
+> 原文：<https://lifehacker.com/how-the-health-care-bill-could-affect-you-if-you-get-he-1796486574>
 
 我们已经听说了很多关于[2200 万人将在](https://www.cbo.gov/system/files/115th-congress-2017-2018/costestimate/52849-hr1628senate.pdf) [更好的保健和解法案](https://www.budget.senate.gov/imo/media/doc/SENATEHEALTHCARE.pdf) 下失去 的保险，以及在个人市场上将花费多少额外的保险。但是如果你有工作保险呢？原来你也不能免受法案的影响。到处都是坏消息。
 

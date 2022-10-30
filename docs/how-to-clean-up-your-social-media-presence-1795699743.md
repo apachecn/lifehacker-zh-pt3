@@ -1,6 +1,6 @@
 # 如何清理你的社交媒体形象
 
-> 原文:[https://life hacker . com/how-to-clean-up-your-social-media-presence-1795699743](https://lifehacker.com/how-to-clean-up-your-social-media-presence-1795699743)
+> 原文：<https://lifehacker.com/how-to-clean-up-your-social-media-presence-1795699743>
 
 每年花 100 美元，你就可以购买一个小工具，来筛选你的社交媒体账户中令人尴尬的帖子，这些帖子可能会破坏你获得工作或进入大学的机会。初创公司 BrandYourself 提供了在线声誉管理软件 ，可以让你“最大限度地减少负面搜索结果，建立正面的网络形象”
 

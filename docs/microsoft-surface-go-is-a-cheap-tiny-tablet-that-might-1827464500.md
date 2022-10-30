@@ -1,6 +1,6 @@
 # 微软 Surface Go 是一款廉价的微型平板电脑，可能会击败 iPad
 
-> 原文:[https://gizmodo . com/Microsoft-surface-go-is-a-price-tiny-table t-that-might-1827464500](https://gizmodo.com/microsoft-surface-go-is-a-cheap-tiny-tablet-that-might-1827464500)
+> 原文：<https://gizmodo.com/microsoft-surface-go-is-a-cheap-tiny-tablet-that-might-1827464500>
 
 很难找到一款价格低于 500 美元的微软 Windows 设备。有一些未经加工的钻石——牺牲显示质量或形式或速度来降低价格的设备。然而，直到今天，还没有明确的赢家。微软的新 Surface Go 可能会改变这一点。
 

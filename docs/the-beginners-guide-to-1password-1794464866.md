@@ -1,6 +1,6 @@
 # 1 密码初学者指南
 
-> 原文:[https://life hacker . com/the-初学者指南-1password-1794464866](https://lifehacker.com/the-beginners-guide-to-1password-1794464866)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-1password-1794464866>
 
 如今，使用密码管理器基本上是互联网安全 101，但这并没有减少它们的威胁。如果你从来没有使用过密码管理器，它们很烦人，使用起来很麻烦，而且一眼看上去就让人困惑。1 密码是最容易使用的选项之一，但这并不意味着您不需要一些帮助来设置它。
 

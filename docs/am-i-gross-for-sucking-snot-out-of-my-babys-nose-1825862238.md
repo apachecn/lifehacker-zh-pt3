@@ -1,6 +1,6 @@
 # 我从宝宝鼻子里吸鼻涕很恶心吗？
 
-> 原文:[https://deadspin . com/am-I-gross-for-sucking-snot-out-of-my-babys-nose-1825862238](https://deadspin.com/am-i-gross-for-sucking-snot-out-of-my-babys-nose-1825862238)
+> 原文：<https://deadspin.com/am-i-gross-for-sucking-snot-out-of-my-babys-nose-1825862238>
 
 亲爱的利，当我的孩子们还小，还不会擤鼻涕的时候，我就用嘴从他们的鼻子里吸过鼻涕。我把它吐出来，为了记录。我很恶心吗？
 

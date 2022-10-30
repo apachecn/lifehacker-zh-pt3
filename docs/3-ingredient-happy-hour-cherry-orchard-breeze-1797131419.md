@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:樱桃园微风
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-cherry-orchard-breeze-1797131419](https://lifehacker.com/3-ingredient-happy-hour-cherry-orchard-breeze-1797131419)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-cherry-orchard-breeze-1797131419>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。这个周末，我将前往海边，为西北太平洋地区更新一款经典而俗气的鸡尾酒。
 

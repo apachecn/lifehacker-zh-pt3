@@ -1,6 +1,6 @@
 # 如何让你的孩子对 STEM 感兴趣(不强迫他们)
 
-> 原文:[https://life hacker . com/how-to-get-your-kids-interest-stem-without forcin-1751361598](https://lifehacker.com/how-to-get-your-kids-interested-in-stem-without-forcin-1751361598)
+> 原文：<https://lifehacker.com/how-to-get-your-kids-interested-in-stem-without-forcin-1751361598>
 
 希望你的孩子在学校接受科学、技术、工程和数学方面的良好教育，但这些课程可能不足以培养大多数孩子对这些领域的终身兴趣。然而，作为父母，我们有很多简单的方法来培养孩子对 STEM 学科的学习和探索的热爱。
 

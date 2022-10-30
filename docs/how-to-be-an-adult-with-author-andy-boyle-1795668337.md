@@ -1,6 +1,6 @@
 # 如何成为一个成年人，作者安迪·博伊尔
 
-> 原文:[https://life hacker . com/how-to-be-a-adult-with-author-Andy-Boyle-1795668337](https://lifehacker.com/how-to-be-an-adult-with-author-andy-boyle-1795668337)
+> 原文：<https://lifehacker.com/how-to-be-an-adult-with-author-andy-boyle-1795668337>
 
 在本周的升级节目中，我们采访了安迪·博伊尔，他是《初学者成年期:没人费心告诉你的所有生活秘密 》的作者。《初学者指南》是一本有趣的书，里面充满了生活建议，从约会到求职，再到“不要看起来像个傻瓜”安迪 也是一名喜剧演员、网络开发者和演说家，也是一只名叫提比略的毛绒猫的主人。他和我们一起来到演播室，谈论他希望自己年轻时就知道的所有事情。
 

@@ -1,6 +1,6 @@
 # 世界最佳青少年参加微软 Office 世界锦标赛
 
-> 原文:[https://life hacker . com/worlds-best-tens-competite-in-Microsoft-office-world-cha-1797942461](https://lifehacker.com/worlds-best-teens-compete-in-microsoft-office-world-cha-1797942461)
+> 原文：<https://lifehacker.com/worlds-best-teens-compete-in-microsoft-office-world-cha-1797942461>
 
 今年 7 月，我们向 2017 年微软 Office 全国冠军征集软件技巧，这是一群 [迷人的青少年，他们在使用 PowerPoint、Word 和 Excel](http://lifehacker.com/microsoft-offices-teen-champions-share-their-best-trick-1796680111#_ga=2.253454729.1263597711.1502718840-1297080755.1497980211) 方面表现最佳。The Verge 最近 [跟随这些青少年参加了在加州举行的世界锦标赛](https://www.theverge.com/2017/8/16/16152310/microsoft-office-specialist-mos-world-championship-2017) ，在那里他们在一场胜过拼字比赛的比赛中测试他们的办公室技能。
 

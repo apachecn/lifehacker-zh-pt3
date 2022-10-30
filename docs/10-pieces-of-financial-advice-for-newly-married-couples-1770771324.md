@@ -1,6 +1,6 @@
 # 给新婚夫妇的 10 条财务建议
 
-> 原文: [https://lifehacker.com/10 条给新婚夫妇的财务建议-1770771324](https://lifehacker.com/10-pieces-of-financial-advice-for-newly-married-couples-1770771324)
+> 原文：<https://lifehacker.com/10-pieces-of-financial-advice-for-newly-married-couples-1770771324>
 
 几周前，我参加了一场婚礼，在那里我认识新郎大约 20 年了。我不是伴郎之一，也不认识他们所有人，但我和他们在一起呆过一段时间。新郎向他们介绍我是作家，常见的问题接踵而至:你写什么？在哪里出版？你明白了。当意识到我是一名个人金融作家时，他们中的一个笑着问我这个百万美元的问题。
 

@@ -1,6 +1,6 @@
 # 如何使用 Alexa 为你的吉他调音
 
-> 原文:[https://life hacker . com/how-to-tune-your-guitar-using-Alexa-1827875391](https://lifehacker.com/how-to-tune-your-guitar-using-alexa-1827875391)
+> 原文：<https://lifehacker.com/how-to-tune-your-guitar-using-alexa-1827875391>
 
 我想我一生中至少拥有十个吉他调音师。我想严格来说，我仍然拥有十个，因为我还没有正式摆脱他们中的任何一个。我也不能告诉你一个人现在在哪里。
 

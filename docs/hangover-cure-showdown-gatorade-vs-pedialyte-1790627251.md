@@ -1,6 +1,6 @@
 # 宿醉治疗摊牌:佳得乐 vs Pedialyte
 
-> 原文:[https://life hacker . com/hangover-cure-摊牌-佳得乐-vs-pedialyte-1790627251](https://lifehacker.com/hangover-cure-showdown-gatorade-vs-pedialyte-1790627251)
+> 原文：<https://lifehacker.com/hangover-cure-showdown-gatorade-vs-pedialyte-1790627251>
 
 你今天感觉怎么样？有点昏昏沉沉？恶心？你向自己保证过再也不喝酒了吗？如果这听起来很熟悉，那么你可能是来寻找解酒方法的。Pedialyte 和 Gatorade 是两种流行的民间疗法，声称有一些科学依据。让我们看看它们是否真的有效。
 

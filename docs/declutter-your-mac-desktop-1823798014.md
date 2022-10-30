@@ -1,6 +1,6 @@
 # 整理您的 Mac 桌面
 
-> 原文:[https://life hacker . com/de clutter-your-MAC-desktop-1823798014](https://lifehacker.com/declutter-your-mac-desktop-1823798014)
+> 原文：<https://lifehacker.com/declutter-your-mac-desktop-1823798014>
 
 MacOS:有些人保持电脑桌面整洁。有些人乐于保持桌面凌乱。对于那些想要一个干净的桌面却又难以维护的人来说，有 [清理器](https://itunes.apple.com/us/app/declutter-organize-desktop/id950644971?mt=12) 。
 

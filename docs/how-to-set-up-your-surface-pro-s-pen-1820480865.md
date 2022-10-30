@@ -1,6 +1,6 @@
 # 如何设置 Surface Pro 的手写笔
 
-> 原文:[https://life hacker . com/how-to-set-up-your-surface-pro-s-pen-1820480865](https://lifehacker.com/how-to-set-up-your-surface-pro-s-pen-1820480865)
+> 原文：<https://lifehacker.com/how-to-set-up-your-surface-pro-s-pen-1820480865>
 
 微软 Surface 系列笔记本电脑、台式机和可变形笔记本都配备了可选的 Surface Pen，这是微软的手写笔，可以让您书写、绘制和注释文档和图像。它开箱即用，但如果你发现自己对它的功能感到沮丧，你可以定制它来适应你的写作和绘画习惯。
 

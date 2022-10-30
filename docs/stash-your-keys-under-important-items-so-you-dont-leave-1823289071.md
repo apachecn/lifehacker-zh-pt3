@@ -1,6 +1,6 @@
 # 把你的钥匙藏在重要的物品下面，这样你就不会把它们落下了
 
-> 原文:[https://life hacker . com/stash-your-keys-under-important-items-so-you-not-leave-1823289071](https://lifehacker.com/stash-your-keys-under-important-items-so-you-dont-leave-1823289071)
+> 原文：<https://lifehacker.com/stash-your-keys-under-important-items-so-you-dont-leave-1823289071>
 
 如果你早上匆忙出门时不小心把重要的东西忘在家里，试着把钥匙藏在你不想忘记的东西下面。
 

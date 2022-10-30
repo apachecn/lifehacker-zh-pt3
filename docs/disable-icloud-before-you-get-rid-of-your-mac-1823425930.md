@@ -1,6 +1,6 @@
 # 在处理您的 Mac 之前，请停用 iCloud
 
-> 原文:[https://life hacker . com/disable-I cloud-before-you-get-out-of-your-MAC-1823425930](https://lifehacker.com/disable-icloud-before-you-get-rid-of-your-mac-1823425930)
+> 原文：<https://lifehacker.com/disable-icloud-before-you-get-rid-of-your-mac-1823425930>
 
 使用 iCloud 来监控您的 Apple 设备的位置是一种跟踪您的东西的简单方法，当它落入坏人之手时，可以将其锁定。在卖掉那台老化的 iMac 之前，记得跟 iCloud 说再见。设计师布兰登·穆里根(Brenden Mulligan)登录了他的 iCloud 账户， [发现一个老朋友在等着他](https://medium.com/@mulligan/how-i-sold-an-old-mac-and-unknowingly-tracked-its-location-for-over-3-years-9a35cd3ca4cf) 在他的设备列表中:他近三年前卖掉的 iMac。Mulligan 已经格式化并重置了机器，所以上面没有他的数据的痕迹，但设备仍然与他的 iCloud 帐户相关联，仍然让他与售出的 iMac 进行交互，这要感谢 Find My Mac 及其防盗工具。他可能已经从机器上删除了所有的数据，但事实证明还有更多的事情要做。
 

@@ -1,6 +1,6 @@
 # 如何使用 Alexa 向慈善机构捐款
 
-> 原文:[https://life hacker . com/how-to-due-to-charity-using-Alexa-1824265044](https://lifehacker.com/how-to-donate-to-charity-using-alexa-1824265044)
+> 原文：<https://lifehacker.com/how-to-donate-to-charity-using-alexa-1824265044>
 
 亚马逊今天为智能助理推出了一项新功能，允许你使用语音捐款 5 美元至 5000 美元。要捐赠，你只需要说，“Alexa，向美国心脏协会捐赠[X 美元]。”你不必启用任何特殊技能来实现它。
 

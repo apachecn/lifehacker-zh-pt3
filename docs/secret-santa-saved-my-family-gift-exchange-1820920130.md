@@ -1,6 +1,6 @@
 # 秘密圣诞老人拯救了我的家庭礼物交换
 
-> 原文:[https://life hacker . com/secret-Santa-saved-my-family-gift-exchange-1820920130](https://lifehacker.com/secret-santa-saved-my-family-gift-exchange-1820920130)
+> 原文：<https://lifehacker.com/secret-santa-saved-my-family-gift-exchange-1820920130>
 
 我的家人不擅长交换礼物。我们倾向于买礼物太晚(“圣诞快乐，这是你一月份会得到的东西的打印件！”)或者误判了对方的口味。我们在匹配预算方面有困难——我需要在表姐的新男友身上花和我妈妈一样多的钱吗？如果我今年不回家过圣诞节，我真的需要邮寄一打不同的礼物吗？有一年我忘了包括一个家庭成员，让所有人都很尴尬。
 

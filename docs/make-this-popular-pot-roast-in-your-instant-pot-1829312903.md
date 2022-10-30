@@ -1,6 +1,6 @@
 # 用你的速溶锅做这道受欢迎的炖肉
 
-> 原文:[https://life hacker . com/make-this-popular-pot-bake-in-your-instant-pot-1829312903](https://lifehacker.com/make-this-popular-pot-roast-in-your-instant-pot-1829312903)
+> 原文：<https://lifehacker.com/make-this-popular-pot-roast-in-your-instant-pot-1829312903>
 
 几年前，“密西西比烤肉”开始流行。作为密西西比州人和炖肉的狂热爱好者，我很好奇，因为我不知道我们作为一个州有官方的烤肉。我问我的母亲、父亲、做烤肉的祖母和几个阿姨，他们是否听说过这个食谱。他们没有。
 

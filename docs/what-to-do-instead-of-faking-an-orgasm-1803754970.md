@@ -1,6 +1,6 @@
 # 除了假装高潮还能做什么
 
-> 原文:[https://life hacker . com/what-to-do-inst-fake-a-高潮-1803754970](https://lifehacker.com/what-to-do-instead-of-faking-an-orgasm-1803754970)
+> 原文：<https://lifehacker.com/what-to-do-instead-of-faking-an-orgasm-1803754970>
 
 假装高潮对任何人都没有好处。对你来说感觉不满足；如果说有什么不同的话，那就是它降低了你的体验，因为你更专注于令人信服地假装，而不是享受自己。它不能帮助你的伴侣了解你真正需要什么来感受快乐，更不用说达到高潮了。从更广泛的意义上来说，假装性高潮会导致对性高潮实际运作方式的不切实际的期望。总的来说，我们所有的伪装都在制造一种幻觉，以为性高潮很容易就能自然发生。
 

@@ -1,6 +1,6 @@
 # 我是卡洛琳·英格波恩，托卡博卡的主席兼首席运营官，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-Caroline-Inge born-president-and-COO-of-toca-boca-a-1828930318](https://lifehacker.com/im-caroline-ingeborn-president-and-coo-of-toca-boca-a-1828930318)
+> 原文：<https://lifehacker.com/im-caroline-ingeborn-president-and-coo-of-toca-boca-a-1828930318>
 
 卡罗琳·英格博恩是 Toca BocaT3 的总裁兼首席运营官，该公司围绕孩子们玩耍的方式设计数字玩具。(我五岁的孩子喜欢在 [的 Toca 发廊](https://tocaboca.com/app/toca-hair-salon-3/) ，在 [的 Toca 宠物医生](https://tocaboca.com/app/toca-pet-doctor/) 中给鸽子包扎伤口，在 [的 Toca 厨房](https://tocaboca.com/app/toca-kitchen-2/) 中制作怪异的奶昔混合物。Ingeborn 从瑞典移居美国，帮助开设了该公司的旧金山办事处，他认为游戏行业有责任创造更具包容性的产品。她告诉我们如何平衡她的事业，如何做一个蹒跚学步的孩子的母亲，一个即将出生的孩子。以下是她为人父母的方式。
 

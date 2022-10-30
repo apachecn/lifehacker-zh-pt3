@@ -1,6 +1,6 @@
 # 哄骗孩子们在晚上 8 点用网飞倒计时迎接新年
 
-> 原文:[https://life hacker . com/trick-kids-into-ring-in-the-new-year-in-pm-8-ne-1821386599](https://lifehacker.com/trick-kids-into-ringing-in-the-new-year-at-8-pm-with-ne-1821386599)
+> 原文：<https://lifehacker.com/trick-kids-into-ringing-in-the-new-year-at-8-pm-with-ne-1821386599>
 
 这是 12 月 31 日为人父母的巨大疑虑:舞会在午夜落下，但你的孩子需要在 8:30 上床睡觉。你是做什么的？由于科技和孩子们对时间概念的脆弱理解，你可以打开一个假的倒计时。
 

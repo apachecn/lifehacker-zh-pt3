@@ -1,6 +1,6 @@
 # 根据施虐者的说法，如何控制谈话
 
-> 原文:[https://life hacker . com/how-to-control-a-conversation-on-a-dominatri-1828427895](https://lifehacker.com/how-to-control-a-conversation-according-to-a-dominatri-1828427895)
+> 原文：<https://lifehacker.com/how-to-control-a-conversation-according-to-a-dominatri-1828427895>
 
 不管你是否对施虐者的服务感兴趣，你必须承认控制另一个人需要很多技巧。即使是他们要求的。
 

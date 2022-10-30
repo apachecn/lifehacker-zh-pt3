@@ -1,6 +1,6 @@
 # 使用这些超级便宜的开发板来控制你的谷歌助手小工具
 
-> 原文:[https://life hacker . com/use-these-super-cheap-development-boards-to-control-you-1820973711](https://lifehacker.com/use-these-super-cheap-development-boards-to-control-you-1820973711)
+> 原文：<https://lifehacker.com/use-these-super-cheap-development-boards-to-control-you-1820973711>
 
 如果你的 [智能家居](https://lifehacker.com/how-to-build-a-smart-connected-home-with-stringify-1763921515) 小玩意不能用一个 [语音指令](https://lifehacker.com/preview/how-to-control-your-fire-tv-with-alexa-voice-commands-1820886580) 来控制，那它到底算不算智能？
 

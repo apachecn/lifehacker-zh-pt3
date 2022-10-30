@@ -1,6 +1,6 @@
 # 有人让我相信，iPhone 钱包并不是世界上最愚蠢的想法
 
-> 原文:[https://gizmodo . com/someone-confident-me-an-iphone-wallet-case-not-the-1825247384](https://gizmodo.com/someone-convince-me-that-an-iphone-wallet-case-isnt-the-1825247384)
+> 原文：<https://gizmodo.com/someone-convince-me-that-an-iphone-wallet-case-isnt-the-1825247384>
 
 对我来说，钱包手机壳总是看起来很荒谬。我错了吗？
 

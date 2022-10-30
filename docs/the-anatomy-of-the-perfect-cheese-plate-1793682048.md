@@ -1,6 +1,6 @@
 # 如何制作完美的奶酪盘
 
-> 原文:[https://life hacker . com/the-anatomy of the-perfect-cheese-plate-1793682048](https://lifehacker.com/the-anatomy-of-the-perfect-cheese-plate-1793682048)
+> 原文：<https://lifehacker.com/the-anatomy-of-the-perfect-cheese-plate-1793682048>
 
 一个奶酪盘可以是很多东西。一份聚会拼盘，一份小吃，甚至一顿饭——一个奶酪盘可以包含所有这些甚至更多。它不需要任何烹饪，但制作一盘完美和谐的美味乳制品是一个微妙的平衡行为，需要一些预先考虑。
 

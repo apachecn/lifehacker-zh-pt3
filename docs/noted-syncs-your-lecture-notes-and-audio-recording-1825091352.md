@@ -1,6 +1,6 @@
 # 将您的课堂笔记和录音与“笔记”应用程序同步
 
-> 原文:[https://life hacker . com/noted-syncs-your-clash-notes-and-audio-recording-1825091352](https://lifehacker.com/noted-syncs-your-lecture-notes-and-audio-recording-1825091352)
+> 原文：<https://lifehacker.com/noted-syncs-your-lecture-notes-and-audio-recording-1825091352>
 
 作为一名记者，我每到一个地方都会做很多笔记。录音对于不遗漏任何东西来说是很好的，但有一点对我来说几乎是普遍适用的:我想找到的采访部分总是我太关注那个人说话的部分，以至于我没有注意到时间代码。
 

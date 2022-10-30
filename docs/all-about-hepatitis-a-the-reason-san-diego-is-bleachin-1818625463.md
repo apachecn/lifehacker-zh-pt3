@@ -1,6 +1,6 @@
 # 所有关于甲型肝炎，圣地亚哥漂白街道的原因
 
-> 原文:[https://life hacker . com/all-about-hepatitis-a-the-reason-San Diego-is-bleachin-1818625463](https://lifehacker.com/all-about-hepatitis-a-the-reason-san-diego-is-bleachin-1818625463)
+> 原文：<https://lifehacker.com/all-about-hepatitis-a-the-reason-san-diego-is-bleachin-1818625463>
 
 在圣地亚哥，最近几个月有 16 人死于甲型肝炎，超过 400 人感染了这种疾病 。甲型肝炎是一种攻击肝脏的病毒，它在适当的情况下很容易传播。以下是你需要知道的。
 

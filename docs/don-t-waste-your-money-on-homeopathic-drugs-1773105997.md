@@ -1,6 +1,6 @@
 # 不要把钱浪费在顺势疗法的“药物”上
 
-> 原文:[https://life hacker . com/don-t-把你的钱浪费在顺势疗法药物上-1773105997](https://lifehacker.com/don-t-waste-your-money-on-homeopathic-drugs-1773105997)
+> 原文：<https://lifehacker.com/don-t-waste-your-money-on-homeopathic-drugs-1773105997>
 
 当你或你的孩子生病时，你所关心的只是缓解，你会对药瓶做出的任何承诺感到振奋。但是有些包装根本没有药物，只有顺势疗法的“药方”他们的制造商在法律上被允许对你撒谎，说这些产品能治病，尽管他们绝对肯定不能。
 

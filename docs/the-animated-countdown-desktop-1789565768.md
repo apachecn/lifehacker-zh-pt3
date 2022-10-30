@@ -1,6 +1,6 @@
 # 动画倒计时桌面
 
-> 原文:[https://life hacker . com/the-animated-count down-desktop-1789565768](https://lifehacker.com/the-animated-countdown-desktop-1789565768)
+> 原文：<https://lifehacker.com/the-animated-countdown-desktop-1789565768>
 
 [ravenclawwit](http://kinja.com/ravenclawwit) 的桌面太漂亮了，不能忽略。中心的时钟是一个令人敬畏的赛博朋克和*继续说话，没有人爆炸*挑战的结合——但它只是时间。这是所有设置的方式。
 

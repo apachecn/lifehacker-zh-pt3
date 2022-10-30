@@ -1,6 +1,6 @@
 # 用马香波就行了
 
-> 原文:[https://deadspin.com/just-use-the-horse-shampoo-1821045149](https://deadspin.com/just-use-the-horse-shampoo-1821045149)
+> 原文：<https://deadspin.com/just-use-the-horse-shampoo-1821045149>
 
 关于头发的问题是:你必须一直清洁和护理它。这是一个不用动脑筋的过程，当你像我一样有一头又长又厚的头发时，这个过程变得相当烦人。
 

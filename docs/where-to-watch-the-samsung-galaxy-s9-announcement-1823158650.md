@@ -1,6 +1,6 @@
 # 在哪里观看三星 Galaxy S9 发布会
 
-> 原文:[https://life hacker . com/where-to-watch-the-Samsung-galaxy-S9-announcement-1823158650](https://lifehacker.com/where-to-watch-the-samsung-galaxy-s9-announcement-1823158650)
+> 原文：<https://lifehacker.com/where-to-watch-the-samsung-galaxy-s9-announcement-1823158650>
 
 [2 月 25 日](https://gizmodo.com/here-s-everything-we-know-about-samsung-s-galaxy-s9-so-1822880635) ，三星定于与 S8 和 S8+的继任者 S9+一起公布三星 Galaxy S9。如果你想买一部新的 Android 智能手机，并且想要一部真正带耳机插孔的，你应该看看即将推出的产品。这也会帮助你决定是否要卖掉你的旧手机来支付这笔费用。这里是实时观看的地方:
 

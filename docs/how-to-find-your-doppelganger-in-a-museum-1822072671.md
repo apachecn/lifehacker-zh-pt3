@@ -1,6 +1,6 @@
 # 如何在博物馆找到你的重身幽灵
 
-> 原文:[https://life hacker . com/how-to-find-your dopper-in-a-museum-1822072671](https://lifehacker.com/how-to-find-your-doppelganger-in-a-museum-1822072671)
+> 原文：<https://lifehacker.com/how-to-find-your-doppelganger-in-a-museum-1822072671>
 
 如果你的脸书博客本周充斥着人们将自己与博物馆里的肖像相比较的照片，你并不孤单。这个迷因始于那些实际上自己发现了碰巧看起来像他们的艺术作品的人，现在已经扩展到那些上传艺术作品照片的人，如果你从远处看 if 并稍微眯着眼睛看，这些照片看起来有点像他们。
 

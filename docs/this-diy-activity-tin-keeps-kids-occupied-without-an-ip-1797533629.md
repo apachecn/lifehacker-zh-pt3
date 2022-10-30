@@ -1,6 +1,6 @@
 # 这个 DIY 活动罐可以让孩子们在没有 iPad 的情况下保持忙碌
 
-> 原文:[https://life hacker . com/this-DIY-activity-tin-keep-kids-occupy-without-an-IP-1797533629](https://lifehacker.com/this-diy-activity-tin-keeps-kids-occupied-without-an-ip-1797533629)
+> 原文：<https://lifehacker.com/this-diy-activity-tin-keeps-kids-occupied-without-an-ip-1797533629>
 
 很难与 iPads 和手机的便利性竞争，让孩子们在汽车、飞机、餐馆、等候室和任何其他地方忙碌，“我很无聊！”经常被听到。但是只要稍微计划一下，你就可以为这些情况准备一个活动罐。
 

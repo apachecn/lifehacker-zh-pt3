@@ -1,6 +1,6 @@
 # 在动用应急基金之前，你应该问自己什么
 
-> 原文:[https://life hacker . com/1823892218](https://lifehacker.com/what-to-ask-yourself-before-dipping-into-your-emergency-1823892218)
+> 原文：<https://lifehacker.com/what-to-ask-yourself-before-dipping-into-your-emergency-1823892218>
 
 你知道手头有现金以备不时之需很重要，但是什么时候可以动用名副其实的应急基金呢？有些场景非常明显是紧急情况——你丢了工作，房租到期了——但其他场景可能是不确定的。
 

@@ -1,6 +1,6 @@
 # 来自我们读者的最佳纽约罗切斯特旅行建议
 
-> 原文:[https://life hacker . com/the-best-rochester-ny-travel-tips-from-our-readers-1829341553](https://lifehacker.com/the-best-rochester-ny-travel-tips-from-our-readers-1829341553)
+> 原文：<https://lifehacker.com/the-best-rochester-ny-travel-tips-from-our-readers-1829341553>
 
 哇，我真的没想到我的家乡罗切斯特会有这么多提示。我们罗彻斯特人已经习惯了失败:奥运会的投标，柯达和施乐的工作，我们的区号给了布法罗的那些混蛋。但本周我们是赢家，分享了超过 140 条关于游览和居住在北部最伟大城市的建议。所有提示，请阅读原帖 下的 [五线谱标签。关于亮点，请阅读下文。](https://lifehacker.com/tell-us-your-best-rochester-ny-travel-tips-1829228745) 
 

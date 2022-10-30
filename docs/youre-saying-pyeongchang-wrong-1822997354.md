@@ -1,6 +1,6 @@
 # 你说“平昌”是错的
 
-> 原文:[https://life hacker . com/you-saying-pyeongchang-error-1822997354](https://lifehacker.com/youre-saying-pyeongchang-wrong-1822997354)
+> 原文：<https://lifehacker.com/youre-saying-pyeongchang-wrong-1822997354>
 
 如果你一直在观看奥运会，你可能已经听到评论员谈论了很多关于韩国主办城市平昌的事情。你可能已经听到他们把这个词搞砸了。
 

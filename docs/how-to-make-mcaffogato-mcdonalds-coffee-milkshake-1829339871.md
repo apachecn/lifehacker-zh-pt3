@@ -1,6 +1,6 @@
 # 如何制作麦当劳最经典的菜单
 
-> 原文:[https://the take out . com/how-to-make-mcaffogato-麦当劳-咖啡-奶昔-1829339871](https://thetakeout.com/how-to-make-mcaffogato-mcdonalds-coffee-milkshake-1829339871)
+> 原文：<https://thetakeout.com/how-to-make-mcaffogato-mcdonalds-coffee-milkshake-1829339871>
 
 成为有用的人是人生最大的乐趣之一。提供服务。履行自己的职责。要知道在那个时刻，你，确切地说是你，必须走向这个世界，去完成一件事，让所有人变得更好。读者，我今天被允许体验这种快乐。我曾走到我家附近的一家麦当劳，点了一份 [菜单——黑掉的 Affogato](https://thetakeout.com/wait-you-can-order-a-mcaffogato-1829303740) ，是新闻类的。
 

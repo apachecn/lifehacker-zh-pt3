@@ -1,6 +1,6 @@
 # 没有 6 级飓风这种东西
 
-> 原文:[https://life hacker . com/there-s-no-the-some-the-this-a-a-category-6-hurricane-1801853612](https://lifehacker.com/there-s-no-such-thing-as-a-category-6-hurricane-1801853612)
+> 原文：<https://lifehacker.com/there-s-no-such-thing-as-a-category-6-hurricane-1801853612>
 
 飓风等级从 1 级(76 英里/小时的风)到 5 级(157 英里/小时及以上)。没有 6 级，即使是像厄玛这样破纪录的风暴也没有。
 

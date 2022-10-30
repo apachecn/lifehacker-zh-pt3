@@ -1,6 +1,6 @@
 # 预订航班的最佳时间，基于 9.17 亿张机票
 
-> 原文:[https://life hacker . com/the-best-time-to-buy-fights-based-9.17 亿-airfa-1824233023](https://lifehacker.com/the-best-time-to-buy-fights-based-on-917-million-airfa-1824233023)
+> 原文：<https://lifehacker.com/the-best-time-to-buy-fights-based-on-917-million-airfa-1824233023>
 
 任何购买过机票的人都会告诉你，购买机票有“正确”和“错误”的时间。
 

@@ -1,6 +1,6 @@
 # 在孩子生日派对后发送感谢视频
 
-> 原文:[https://life hacker . com/send-thank-you-videos-after-your-kids-birthday-party-1825114942](https://lifehacker.com/send-thank-you-videos-after-your-kids-birthday-party-1825114942)
+> 原文：<https://lifehacker.com/send-thank-you-videos-after-your-kids-birthday-party-1825114942>
 
 我百分之百支持感谢卡，无论是在理论上还是在实践中。而且还？生活，伙计。在你的孩子有一个生日聚会之后，你必须得到卡片，追踪每个客人的邮寄地址，找到邮票，如果你足够多余让孩子自己写笔记，监督这个项目几天。(“Makenzie 怎么拼？哦不，我搞砸了。我要重新开始。”)是一个*过程*。我注意到许多父母现在都跳过了感谢卡，而是群发“感谢光临！”我明白，但对我来说，这有点不近人情。
 

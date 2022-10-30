@@ -1,6 +1,6 @@
 # 如何尽快开始跟踪您的 iPhone X 交付
 
-> 原文:[https://life hacker . com/how-to-start-tracking-your-iphone-x-delivery-as-soon-as-1819975250](https://lifehacker.com/how-to-start-tracking-your-iphone-x-delivery-as-soon-as-1819975250)
+> 原文：<https://lifehacker.com/how-to-start-tracking-your-iphone-x-delivery-as-soon-as-1819975250>
 
 [iPhone X](https://lifehacker.com/how-to-buy-an-iphone-x-this-week-1819812194) 就要到了，如果你是 [实际上已经预订了本周发货的](https://lifehacker.com/manufacturers-are-struggling-to-make-apples-face-id-cam-1819851796#_ga=2.52728747.247215533.1509382731-472331419.1499788931) ，你的新智能手机可能已经在运输途中了。如果您仍然没有跟踪号码，但您的订单将于 11 月 3 日到达，现在有几种方法可以跟踪它。
 

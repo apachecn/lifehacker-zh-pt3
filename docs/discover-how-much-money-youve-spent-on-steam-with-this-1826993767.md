@@ -1,6 +1,6 @@
 # 用这个工具发现你在 Steam 上花了多少钱
 
-> 原文:[https://life hacker . com/discover-how-amount-money-you-speed-on-steam-this-1826993767](https://lifehacker.com/discover-how-much-money-youve-spent-on-steam-with-this-1826993767)
+> 原文：<https://lifehacker.com/discover-how-much-money-youve-spent-on-steam-with-this-1826993767>
 
 有没有想过这些年你在 Steam 游戏上花了多少钱？你可能不想真的知道，但你可能很好奇。现在多亏了 Valve 的 [外部资金使用](https://help.steampowered.com/en/accountdata/AccountSpend) 追踪器，你终于可以感受到 Steam 对你的财务健康造成的长期损害了。点开那个链接，原来是 *VentureBeat* 发现的。
 

@@ -1,6 +1,6 @@
 # 在日本寻找适合纹身的温泉、健身房和酒店
 
-> 原文:[https://kotaku . com/find-tattoo-friendly-hot-springs-gyms-and-hotels-in-ja-1826564114](https://kotaku.com/find-tattoo-friendly-hot-springs-gyms-and-hotels-in-ja-1826564114)
+> 原文：<https://kotaku.com/find-tattoo-friendly-hot-springs-gyms-and-hotels-in-ja-1826564114>
 
 在日本，很多温泉、公共泳池、运动俱乐部、酒店都不会让客人带永久墨水。一个新网站帮助那些有纹身的人找到欢迎场所。
 

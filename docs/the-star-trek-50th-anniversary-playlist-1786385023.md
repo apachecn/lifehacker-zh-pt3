@@ -1,6 +1,6 @@
 # 《星际迷航》50 周年播放列表
 
-> 原文:[https://life hacker . com/the-star-trek-50 周年纪念-playlist-1786385023](https://lifehacker.com/the-star-trek-50th-anniversary-playlist-1786385023)
+> 原文：<https://lifehacker.com/the-star-trek-50th-anniversary-playlist-1786385023>
 
 《星际迷航》第一集于 1966 年 9 月 8 日播出。今天，为了庆祝该系列的 50 周年纪念，我们推出了这个创新系列的所有标志性音乐的播放列表。
 

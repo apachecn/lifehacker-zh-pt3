@@ -1,6 +1,6 @@
 # 如何在蜜蜂、大黄蜂或黄蜂袭击中幸存
 
-> 原文:[https://life hacker . com/how-to-survive-a-bee-a-hornet-or-wasp-attack-1787062848](https://lifehacker.com/how-to-survive-a-bee-hornet-or-wasp-attack-1787062848)
+> 原文：<https://lifehacker.com/how-to-survive-a-bee-hornet-or-wasp-attack-1787062848>
 
 你后院那些嗡嗡作响的昆虫不仅仅是你烧烤时的一个麻烦。从数量上看，它们是一个可怕的威胁。如果你是许多对蜜蜂、黄蜂和黄蜂过敏的人中的一员，那么即使是很少的几种也会很危险。以下是如何避免被蜂拥而至，以及如果被蛰了该怎么做。
 

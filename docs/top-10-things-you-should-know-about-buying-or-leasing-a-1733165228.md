@@ -1,6 +1,6 @@
 # 买车或租车时你应该知道的 10 件事
 
-> 原文:[https://life hacker . com/top-10-things-you-should-know-on-buying-or-leasing-a-1733165228](https://lifehacker.com/top-10-things-you-should-know-about-buying-or-leasing-a-1733165228)
+> 原文：<https://lifehacker.com/top-10-things-you-should-know-about-buying-or-leasing-a-1733165228>
 
 无论从情感上还是经济上，买车都是一件大事。你最不想做的事情就是在你把车开出停车场或者感觉自己被经销商骗了的时候有买家的懊悔。让我们来帮你总结 10 大购车技巧。
 

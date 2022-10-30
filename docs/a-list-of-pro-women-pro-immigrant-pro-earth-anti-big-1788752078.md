@@ -1,6 +1,6 @@
 # 需要你支持的支持女性、支持移民、支持地球、反对偏见的组织名单
 
-> 原文:[https://Jezebel . com/a-list-of-pro-women-pro-migration-pro-earth-anti-big-1788752078](https://jezebel.com/a-list-of-pro-women-pro-immigrant-pro-earth-anti-big-1788752078)
+> 原文：<https://jezebel.com/a-list-of-pro-women-pro-immigrant-pro-earth-anti-big-1788752078>
 
 唐纳德·特朗普一直公开鼓吹性侵犯、伊斯兰恐惧症、仇外心理和暴力种族主义。周三清晨，美国 [投票](http://theslot.jezebel.com/donald-trump-has-been-elected-president-of-the-united-s-1788623620) 选举他为我们的总统。
 

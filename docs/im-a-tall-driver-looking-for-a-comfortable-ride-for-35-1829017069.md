@@ -1,6 +1,6 @@
 # 我是一个高个子司机，想花 35，000 美元买一辆舒适的车。应该买什么车？
 
-> 原文:[https://jalopnik . com/im-a-tall-driver-looking-a-comfort-ride-for-35-1829017069](https://jalopnik.com/im-a-tall-driver-looking-for-a-comfortable-ride-for-35-1829017069)
+> 原文：<https://jalopnik.com/im-a-tall-driver-looking-for-a-comfortable-ride-for-35-1829017069>
 
 大卫是一个长途通勤的旅行推销员，但他的公司将为他的新车买单。问题是他很高，需要一些舒适的东西，但不能超过 35，000 美元的价格上限。他应该买什么车？
 

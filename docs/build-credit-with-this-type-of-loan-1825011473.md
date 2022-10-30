@@ -1,6 +1,6 @@
 # 用这些小额分期贷款建立信用
 
-> 原文:[https://life hacker . com/build-credit-with the-type-of-loan-1825011473](https://lifehacker.com/build-credit-with-this-type-of-loan-1825011473)
+> 原文：<https://lifehacker.com/build-credit-with-this-type-of-loan-1825011473>
 
 如果你的信用很差或者没有信用，你可能没有资格申请信用卡、个人贷款等账户。—这可能有助于建造它。这是美国信用体系的诸多挫折之一，但是有一些不为人知的方法来改善它。
 

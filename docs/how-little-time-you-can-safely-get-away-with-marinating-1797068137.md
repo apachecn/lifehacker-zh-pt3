@@ -1,6 +1,6 @@
 # 腌酸橘汁腌鱼能安全逃脱的时间有多短
 
-> 原文:[https://life hacker . com/how-little-time-you-can-get-away-with-marinating-1797068137](https://lifehacker.com/how-little-time-you-can-safely-get-away-with-marinating-1797068137)
+> 原文：<https://lifehacker.com/how-little-time-you-can-safely-get-away-with-marinating-1797068137>
 
 当我们的主编发给我一份酸橘汁腌鱼的食谱时，我很兴奋，因为酸橘汁腌鱼结合了我最喜欢的两项夏季活动:吃海鲜，而不是烹饪。然而，当我读到食谱时，我有点吃惊，因为它建议将美丽的新鲜海鲈鱼放在酸性腌泡汁中*两个小时*。
 

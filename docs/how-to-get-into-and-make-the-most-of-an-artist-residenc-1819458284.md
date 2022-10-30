@@ -1,6 +1,6 @@
 # 如何在艺术家驻地被接受
 
-> 原文:[https://life hacker . com/how-to-get-to-the-most-a-artist-residenc-1819458284](https://lifehacker.com/how-to-get-into-and-make-the-most-of-an-artist-residenc-1819458284)
+> 原文：<https://lifehacker.com/how-to-get-into-and-make-the-most-of-an-artist-residenc-1819458284>
 
 去年八月，我对天堂进行了一次短暂的访问。我很早就醒了，沿着一条布满鲜花的小路快速散步，穿过一条河去吃早餐。喝过咖啡后，我去了我的工作室，这是一个舒适的房间，有书架、桌子和阅读用的扶手椅，有一扇窗户可以俯瞰那条河，河的潺潺声强调了几个小时的写作。我 12 点去吃午饭，然后在太阳下懒洋洋地躺在阿迪朗达克椅上看会儿书。之后，也许我会去远足，或者去上瑜伽课，或者回到我的工作室。然后是晚餐，接着是更多的写作，然后是阅读或艺术家讲座，然后去镇上喝几杯。
 

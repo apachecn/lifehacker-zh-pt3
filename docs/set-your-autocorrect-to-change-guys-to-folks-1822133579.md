@@ -1,6 +1,6 @@
 # 将“自动更正”设置为将“Guys”改为“乡亲”
 
-> 原文:[https://life hacker . com/set-your-auto correct-to-change-guys-to-乡亲-1822133579](https://lifehacker.com/set-your-autocorrect-to-change-guys-to-folks-1822133579)
+> 原文：<https://lifehacker.com/set-your-autocorrect-to-change-guys-to-folks-1822133579>
 
 你用“guys”作为男女通用代词吗？如果你曾经想知道这是否可以(如果你*实际上是在对一群男女混合的人群讲话)，下面是来自洛杉矶的威尔写给 1 月 12 日的播客 [和像这些](https://itunes.apple.com/us/podcast/with-friends-like-these/id1207507389?mt=2) 一样的朋友的提问“你认为在今天的语言中，*男人*这个词已经达到了中性的地位吗？”*
 

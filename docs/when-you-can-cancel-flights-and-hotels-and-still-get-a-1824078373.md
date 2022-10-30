@@ -1,6 +1,6 @@
 # 当你可以取消航班和酒店，仍然可以获得全额退款
 
-> 原文:[https://life hacker . com/when-you-can-cancel-of-flights and-hotels-and-still-get-a-1824078373](https://lifehacker.com/when-you-can-cancel-flights-and-hotels-and-still-get-a-1824078373)
+> 原文：<https://lifehacker.com/when-you-can-cancel-flights-and-hotels-and-still-get-a-1824078373>
 
 当你旅行时，事情并不总是按照计划进行，这可能是一个大问题，原因有很多，其中最主要的是改变计划通常意味着支付费用。让我们把钱放在你的口袋里。以下是在取消航班或酒店预订时你需要知道的。
 

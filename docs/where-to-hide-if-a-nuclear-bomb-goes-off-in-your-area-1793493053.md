@@ -1,6 +1,6 @@
 # 如果一枚核弹在你的区域爆炸，你该躲到哪里
 
-> 原文:[https://life hacker . com/1793493053](https://lifehacker.com/where-to-hide-if-a-nuclear-bomb-goes-off-in-your-area-1793493053)
+> 原文：<https://lifehacker.com/where-to-hide-if-a-nuclear-bomb-goes-off-in-your-area-1793493053>
 
 这是我希望你永远不需要但无论如何都应该知道的建议。核攻击是每个人最可怕的噩梦，其直接后果甚至比爆炸本身还要糟糕。如果你在最初的爆炸中幸存下来，你应该这么做。
 

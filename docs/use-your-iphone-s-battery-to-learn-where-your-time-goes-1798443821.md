@@ -1,6 +1,6 @@
 # 使用你的 iPhone 电池来了解你的时间去了哪里
 
-> 原文:[https://life hacker . com/use-your-iphone-s-battery-to-learn-where-your-time-goes-1798443821](https://lifehacker.com/use-your-iphone-s-battery-to-learn-where-your-time-goes-1798443821)
+> 原文：<https://lifehacker.com/use-your-iphone-s-battery-to-learn-where-your-time-goes-1798443821>
 
 我们都做过。我们坐在沙发上，手里拿着手机，下定决心只喜欢几张 Instagram 上背包里的狗狗照片和鼓舞人心的书法作品。三个小时后，你意识到你什么也没做，除了 [让自己感到有点难过](http://lifehacker.com/wanting-to-be-happy-can-make-you-unhappy-heres-what-to-1796176184) (顺便说一下，你的书法作品还不错)。多亏了大量的时间管理应用程序，你可以很容易地跟踪你在电脑上花的时间，但你的 iPhone 上没有多少，主要是因为 [安全原因](https://inthemoment.io/faq) 。
 

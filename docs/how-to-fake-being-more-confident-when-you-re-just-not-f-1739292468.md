@@ -1,6 +1,6 @@
 # 当你感觉不到自信时，如何假装更加自信
 
-> 原文:[https://life hacker . com/how-to-fake-be-more-confidence-when you-re-just-not-f-1739292468](https://lifehacker.com/how-to-fake-being-more-confident-when-you-re-just-not-f-1739292468)
+> 原文：<https://lifehacker.com/how-to-fake-being-more-confident-when-you-re-just-not-f-1739292468>
 
 自信可以是 [一种令人羡慕的品质](https://lifehacker.com/how-to-build-your-confidence-and-why-it-matters-1442414831) 。完全相信自己和自己的能力会给你勇气去冒险，去完成伟大的事情。但是自信并不总是来得容易，它会随着你的心情来来去去。好消息是:你可以很容易地伪造它。
 

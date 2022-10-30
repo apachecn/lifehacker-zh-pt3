@@ -1,6 +1,6 @@
 # 为快乐的露营者将 s'mores 和可丽饼结合在一起
 
-> 原文:[https://the take out . com/recipe-breakfast-s mores-crepes-1829094337](https://thetakeout.com/recipe-breakfast-smores-crepes-1829094337)
+> 原文：<https://thetakeout.com/recipe-breakfast-smores-crepes-1829094337>
 
 一些烹饪组合是如此完美，它们可以在各种配置下工作。培根、生菜和西红柿是完美的三明治，也是美味的意大利面(用生菜代替芝麻菜)。巧克力和花生酱的搭配在冰淇淋中和在糖果棒中一样有效。烤奶酪和番茄汤可以 [改编成鸡蛋笃](https://thetakeout.com/eggs-benedict-with-grilled-cheese-and-tomato-soup-holla-1825280982) 。
 

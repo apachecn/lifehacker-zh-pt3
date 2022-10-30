@@ -1,6 +1,6 @@
 # 这种高耸蓬松的薄煎饼的秘密是蛋黄酱
 
-> 原文:[https://life hacker . com/the-secret-to-this-towering-fluffy-pancake-is-mayonnai-1820351459](https://lifehacker.com/the-secret-to-this-towering-fluffy-pancake-is-mayonnai-1820351459)
+> 原文：<https://lifehacker.com/the-secret-to-this-towering-fluffy-pancake-is-mayonnai-1820351459>
 
 我需要先澄清一下:蛋黄酱基本上是鸡蛋和油。你会被吓到的，但是记住:鸡蛋和油。
 

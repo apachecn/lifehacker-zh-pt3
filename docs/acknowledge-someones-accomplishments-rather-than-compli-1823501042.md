@@ -1,6 +1,6 @@
 # 承认某人的成就，而不是称赞他们
 
-> 原文:[https://life hacker . com/acknowledge-someones-achievements-而不是-compli-1823501042](https://lifehacker.com/acknowledge-someones-accomplishments-rather-than-compli-1823501042)
+> 原文：<https://lifehacker.com/acknowledge-someones-accomplishments-rather-than-compli-1823501042>
 
 我们都会在某个时候发出赞美，通常是为了表达对他人的积极情感。
 

@@ -1,6 +1,6 @@
 # 2018 年 9 月 10 日这一周，网飞有哪些活动
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of-septemb-1828806642](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1828806642)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-septemb-1828806642>
 
 朋友们，网飞这个星期为我们做得很好。我们不仅幸运地拥有了新一季的《美国野蛮人》和《T2 骑士》，而且我们还拥有一部具有良好血统的网飞原著:泰德·汤普森 2014 年备受好评的小说《T4》被妮可·哈罗芬瑟(*够了，* 1996 年的代表作*行走和说话*)改编成了一部故事片，主演包括本·门德尔森、康妮·布里登和艾迪·法尔科。
 

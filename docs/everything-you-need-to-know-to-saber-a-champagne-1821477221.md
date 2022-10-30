@@ -1,6 +1,6 @@
 # 你需要知道的所有关于香槟的知识
 
-> 原文:[https://the take out . com/everything-you-need-to-know-saber-a-champagne-1821477221](https://thetakeout.com/everything-you-need-to-know-to-saber-a-champagne-1821477221)
+> 原文：<https://thetakeout.com/everything-you-need-to-know-to-saber-a-champagne-1821477221>
 
 在聚会上宣布你要开一瓶香槟，人们会转过头来。宣布你打算用剑来做这件事，人群肯定会聚集起来。
 

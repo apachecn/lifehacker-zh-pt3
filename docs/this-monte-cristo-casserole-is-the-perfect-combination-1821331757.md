@@ -1,6 +1,6 @@
 # 这款基督山砂锅是美味和甜蜜的完美结合
 
-> 原文:[https://life hacker . com/this-Monte-cristo-砂锅-is-the-perfect-combination-1821331757](https://lifehacker.com/this-monte-cristo-casserole-is-the-perfect-combination-1821331757)
+> 原文：<https://lifehacker.com/this-monte-cristo-casserole-is-the-perfect-combination-1821331757>
 
 你好，欢迎来到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅造物的专栏。今天我们要把我最喜欢的三明治之一变成一种奶酪火腿三明治。
 

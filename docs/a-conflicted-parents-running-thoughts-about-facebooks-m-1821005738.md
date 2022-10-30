@@ -1,6 +1,6 @@
 # 一位矛盾的家长对脸书《信使报》的思考
 
-> 原文:[https://life hacker . com/a-conflicted-parents-running-thoughts-about-face books-m-1821005738](https://lifehacker.com/a-conflicted-parents-running-thoughts-about-facebooks-m-1821005738)
+> 原文：<https://lifehacker.com/a-conflicted-parents-running-thoughts-about-facebooks-m-1821005738>
 
 本周一， [脸书推出了 Messenger Kids](https://offspring.lifehacker.com/how-to-sign-your-child-up-for-facebooks-new-messenger-k-1820971864) ，这是一款针对幼儿的 Messenger 版本。以下是我的跑步思路:
 

@@ -1,6 +1,6 @@
 # 使用这些行为金融技巧省钱
 
-> 原文:[https://life hacker . com/save-money-using-these-behavioral-finance-tricks-1823767864](https://lifehacker.com/save-money-using-these-behavioral-finance-tricks-1823767864)
+> 原文：<https://lifehacker.com/save-money-using-these-behavioral-finance-tricks-1823767864>
 
 我们都知道自动化储蓄和制定消费规则可以帮助我们省钱。但是来自杜克大学高级后见之明中心 [普通分币实验室](http://new.advanced-hindsight.com/commoncents-lab/) 的 [新报告](http://new.advanced-hindsight.com/wp-content/uploads/2018/03/Common-Cents-Lab-2017-Annual-Report.pdf) 为如何破解行为金融学以将更多的钱放进我们的口袋(或者更确切地说，银行账户)提供了新的见解。
 

@@ -1,6 +1,6 @@
 # 数字工作场所的 10 条职业礼仪规则
 
-> 原文:[https://life hacker . com/10-数字工作的职业礼仪规则-1770329574](https://lifehacker.com/10-rules-of-professional-etiquette-for-the-digital-work-1770329574)
+> 原文：<https://lifehacker.com/10-rules-of-professional-etiquette-for-the-digital-work-1770329574>
 
 当你独自一人时，很容易忘记礼貌。从开会迟到到忘记像“请”和“谢谢”这样简单的事情，否则礼貌和行为良好的人在缺乏面对面接触的情况下可能会表现得像个十足的混蛋。孤立是罪魁祸首，但你不必成为牺牲品。
 

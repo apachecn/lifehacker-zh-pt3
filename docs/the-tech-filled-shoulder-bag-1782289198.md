@@ -1,6 +1,6 @@
 # 充满科技感的单肩包
 
-> 原文:[https://life hacker . com/the-tech-filled-双肩背包-1782289198](https://lifehacker.com/the-tech-filled-shoulder-bag-1782289198)
+> 原文：<https://lifehacker.com/the-tech-filled-shoulder-bag-1782289198>
 
 作为一名技术支持管理员，意味着你需要接触各种各样的小工具。举个例子，读者克里斯·法内尔分享了他的包，里面装满了各种各样的小东西。
 

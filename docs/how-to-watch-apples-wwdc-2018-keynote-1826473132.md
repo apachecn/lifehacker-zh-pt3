@@ -1,6 +1,6 @@
 # 如何观看苹果 WWDC 2018 主题演讲
 
-> 原文:[https://life hacker . com/how-to-watch-apple-wwdc-2018-keynote-1826473132](https://lifehacker.com/how-to-watch-apples-wwdc-2018-keynote-1826473132)
+> 原文：<https://lifehacker.com/how-to-watch-apples-wwdc-2018-keynote-1826473132>
 
 苹果全球开发者大会，也被称为 WWDC，于周一正式开幕。顾名思义，年会的中心是为你的 iPhone、iPad、Apple Watch 和 Mac 开发应用和服务的开发者。
 

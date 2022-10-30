@@ -1,6 +1,6 @@
 # 如何从工作狂老板那里要回你的时间
 
-> 原文:[https://life hacker . com/how-to-get-your-time-back from-a-workalogic-boss-1829437013](https://lifehacker.com/how-to-get-your-time-back-from-a-workaholic-boss-1829437013)
+> 原文：<https://lifehacker.com/how-to-get-your-time-back-from-a-workaholic-boss-1829437013>
 
 一个好老板变坏的方式有很多，其中之一就是老板没有意识到他们自己疯狂的步伐是他们的员工无法赶上的。然而，你有希望重新设定界限。
 

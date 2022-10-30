@@ -1,6 +1,6 @@
 # 回旋镖终于来 iOS 了[更新]
 
-> 原文:[https://life hacker . com/boomerang-finally-comes-to-IOs-1819695969](https://lifehacker.com/boomerang-finally-comes-to-ios-1819695969)
+> 原文：<https://lifehacker.com/boomerang-finally-comes-to-ios-1819695969>
 
 Watch
 

@@ -1,6 +1,6 @@
 # 以下是如何把你的车从厚厚的积雪中弄出来的方法
 
-> 原文:[https://jalopnik . com/heres-how-to-get-your car-unstuck-from-deep-snow-1756401464](https://jalopnik.com/heres-how-to-get-your-car-unstuck-from-deep-snow-1756401464)
+> 原文：<https://jalopnik.com/heres-how-to-get-your-car-unstuck-from-deep-snow-1756401464>
 
 胆量。荣耀。*撞锤*。这就是菲亚特克莱斯勒所有卡车广告中荒谬低沉的旁白所说的话，试图说服你放下蛋白质、指甲和生鸡蛋奶昔，前往当地的 Ram 经销商，为自己买一辆大男子主义卡车。但是你知道是什么让那些大卡车看起来很傻吗？一点结晶水。这个周末我发现了。
 

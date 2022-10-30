@@ -1,6 +1,6 @@
 # 如何制作适合中西部老派人士的培根裹炖肉牛排
 
-> 原文:[https://the take out . com/recipe-牛排-鸟-培根-裹-锅-烤-1829428925](https://thetakeout.com/recipe-steak-birds-bacon-wrapped-pot-roast-1829428925)
+> 原文：<https://thetakeout.com/recipe-steak-birds-bacon-wrapped-pot-roast-1829428925>
 
 让我们从一个显而易见的陈述开始:牛排鸟是一道菜的疯狂名字。
 

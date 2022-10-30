@@ -1,6 +1,6 @@
 # 互联网隐私为以前从未考虑过互联网隐私的人解释
 
-> 原文:[https://Jezebel . com/internet-privacy-explained-for-people of-never-th-1794112859](https://jezebel.com/internet-privacy-explained-for-people-who-have-never-th-1794112859)
+> 原文：<https://jezebel.com/internet-privacy-explained-for-people-who-have-never-th-1794112859>
 
 上个月，共和党人把你的互联网隐私放在砧板上，周一，特朗普把斧子扔了出去。这似乎不是一件小事，但后来美国轰炸了叙利亚，现在每个人都在嘀咕工作中的恐慌发作和接触特朗普头部大小的应激性溃疡之间的“核战争”。如果你能够停止过度换气，你可能会想收听最新一集的 *Big Time Dicks，*，其中乔安娜和我解释了(用通俗的语言)互联网隐私的废除对你意味着什么，以及一旦你的数据失去控制会发生什么。
 

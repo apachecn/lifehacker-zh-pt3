@@ -1,6 +1,6 @@
 # 当你是一个内向的人时，如何处理办公室的快乐时光
 
-> 原文:[https://life hacker . com/intrinsic-here-s-how-to-hand-office-happy-hour-1820546307](https://lifehacker.com/introverted-here-s-how-to-handle-office-happy-hour-1820546307)
+> 原文：<https://lifehacker.com/introverted-here-s-how-to-handle-office-happy-hour-1820546307>
 
 在工作中严守秘密是非常自然的，尤其是如果你是办公室里的新人。但是办公室友谊不仅仅取决于准时出现或者完成一个小组项目。它还包括参加与工作相关的社交活动，通常包括偶尔下班后和同事一起喝酒。如果你是一个内向的人， [FastCompany 有一些指导方针](https://www.fastcompany.com/40492706/3-times-you-should-say-yes-to-office-happy-hour) ，告诉你什么时候应该(或不应该)参加办公室的欢乐时光活动。
 

@@ -1,6 +1,6 @@
 # moleskine 生产力应用程序让组织变得简单有趣
 
-> 原文:[https://life hacker . com/moleskines-productivity-app-makes-organization-easy-and-f-1826215478](https://lifehacker.com/moleskines-productivity-app-makes-organizing-easy-and-f-1826215478)
+> 原文：<https://lifehacker.com/moleskines-productivity-app-makes-organizing-easy-and-f-1826215478>
 
 在我生命的大部分时间里，除了自己的记忆，我设法保持相对有条理，但最近我开始使用苹果的 [提醒](https://lifehacker.com/turn-apples-reminders-into-a-quality-gtd-app-1464442575) 应用程序来跟踪主要的工作任务和个人琐事。它完成了工作，但使用起来并不令人兴奋。直到我测试了 [Moleskin](https://lifehacker.com/inside-the-offices-of-moleskine-5594252#_ga=2.86059480.1369191435.1526907270-1723114163.1524514905) e 的优秀 iOS 生产力应用程序 [动作](https://us.moleskine.com/actions/p1230) ，我才意识到**乐趣**是一个选项。
 

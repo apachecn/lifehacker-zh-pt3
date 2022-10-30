@@ -1,6 +1,6 @@
 # 通过调换利口酒和柑橘来调整你的玛格丽塔酒
 
-> 原文:[https://life hacker . com/tweak-your-margarita-by-switching-up-the-liquic-and-ci-1828084211](https://lifehacker.com/tweak-your-margarita-by-switching-up-the-liqueur-and-ci-1828084211)
+> 原文：<https://lifehacker.com/tweak-your-margarita-by-switching-up-the-liqueur-and-ci-1828084211>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天我们将一起玩一款酸甜可口的三种配料图标:玛格丽塔酒。
 

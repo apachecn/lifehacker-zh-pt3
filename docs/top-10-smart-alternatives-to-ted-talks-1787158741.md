@@ -1,6 +1,6 @@
 # TED 演讲的 10 大明智选择
 
-> 原文:[https://life hacker . com/top-10-smart-alternatives-to-ted-talks-1787158741](https://lifehacker.com/top-10-smart-alternatives-to-ted-talks-1787158741)
+> 原文：<https://lifehacker.com/top-10-smart-alternatives-to-ted-talks-1787158741>
 
 TED 演讲很棒，但是有一点它们看起来都太相似了，或者说很难应付过去。如果你仍然喜欢不时地享受一个聪明的、引人入胜的演讲，但你已经受够了 TED，这里有一些提升你大脑的替代方法。
 

@@ -1,6 +1,6 @@
 # 通过提前问自己这些问题，停止在会议中浪费时间
 
-> 原文:[https://life hacker . com/stop-waste-time-in-question-yourself-these-1824586635](https://lifehacker.com/stop-wasting-time-in-meetings-by-asking-yourself-these-1824586635)
+> 原文：<https://lifehacker.com/stop-wasting-time-in-meetings-by-asking-yourself-these-1824586635>
 
 除非你非常幸运(或者只是非常年轻)，否则你很可能已经放弃了生命中宝贵的时间去参加会议，这些会议要么开得太久，要么根本就不需要召开。
 

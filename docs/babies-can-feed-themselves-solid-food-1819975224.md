@@ -1,6 +1,6 @@
 # 婴儿可以自己喂固体食物
 
-> 原文:[https://life hacker . com/babies-can-feed-self-solid-food-1819975224](https://lifehacker.com/babies-can-feed-themselves-solid-food-1819975224)
+> 原文：<https://lifehacker.com/babies-can-feed-themselves-solid-food-1819975224>
 
 这是我的育儿吹牛:我从来没有买过任何婴儿食品。我从来没有在我的墙上扔过一团绿色的豌豆泥。我从来没有玩过“飞机”游戏，把勺子往我女儿紧闭的嘴里扔。我从来没有求过她吃东西。
 

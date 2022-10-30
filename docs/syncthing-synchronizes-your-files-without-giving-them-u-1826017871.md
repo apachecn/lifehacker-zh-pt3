@@ -1,6 +1,6 @@
 # 使用 Syncthing 同步您的文件，而无需将它们交给第三方服务
 
-> 原文:[https://life hacker . com/sync thing-synchronizes-your-files-without-giving-them-u-1826017871](https://lifehacker.com/syncthing-synchronizes-your-files-without-giving-them-u-1826017871)
+> 原文：<https://lifehacker.com/syncthing-synchronizes-your-files-without-giving-them-u-1826017871>
 
 Dropbox、Google Drive 或任何你用来将文件备份到云并在你的多台台式机和笔记本电脑之间保持同步的流行服务本身没有任何问题。然而，数据隐私正变得越来越重要，如果你准备好从这些类型的服务中跳出来，我们不会质疑你。
 

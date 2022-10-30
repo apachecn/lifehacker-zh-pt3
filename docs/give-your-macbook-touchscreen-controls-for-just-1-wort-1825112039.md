@@ -1,6 +1,6 @@
 # 给你的 MacBook 配备一个价值 1 美元的触摸屏控制器
 
-> 原文:[https://life hacker . com/give-your-macbook-touch-controls-for-just-1-wort-1825112039](https://lifehacker.com/give-your-macbook-touchscreen-controls-for-just-1-wort-1825112039)
+> 原文：<https://lifehacker.com/give-your-macbook-touchscreen-controls-for-just-1-wort-1825112039>
 
 苹果仍然拒绝发布触摸屏 [MacBook](https://lifehacker.com/dont-buy-an-apple-laptop-until-the-new-macbook-air-come-1823519381) (不， [Touch Bar](https://lifehacker.com/fix-your-touch-bar-with-this-app-1823463782) 不算)，但一群开发者想出了的巧妙解决方案。使用一些令人印象深刻的人工智能软件和大约一美元价值的硬件，该团队能够为苹果笔记本电脑带来基本的触摸屏控制。
 

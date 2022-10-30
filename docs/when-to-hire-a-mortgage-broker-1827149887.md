@@ -1,6 +1,6 @@
 # 何时雇用抵押贷款经纪人
 
-> 原文:[https://life hacker . com/when-to-hire-a-mortgage-broker-1827149887](https://lifehacker.com/when-to-hire-a-mortgage-broker-1827149887)
+> 原文：<https://lifehacker.com/when-to-hire-a-mortgage-broker-1827149887>
 
 假设你自己正在做一些抵押贷款研究——你已经和一位财务规划师谈过了，并准备在购房过程中迈出下一步。乔恩想知道:
 

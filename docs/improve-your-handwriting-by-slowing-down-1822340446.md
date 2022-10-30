@@ -1,6 +1,6 @@
 # 通过放慢速度来改善你的书写
 
-> 原文:[https://life hacker . com/improve-your-written-by-slowing-1822340446](https://lifehacker.com/improve-your-handwriting-by-slowing-down-1822340446)
+> 原文：<https://lifehacker.com/improve-your-handwriting-by-slowing-down-1822340446>
 
 时不时地，你必须手写一些东西，让别人读:一张便条、一张通知、一张生日贺卡。而且，如果你像许多人一样，我们从他们那里收到了便条、通知或生日贺卡，有时会显得难以辨认。我们已经介绍了许多提高你书法的方法，但是在你尝试之前，先试着*放慢速度*。
 

@@ -1,6 +1,6 @@
 # 如何和孩子谈论爱人的疾病
 
-> 原文:[https://life hacker . com/how-to-talk to-your kid-a-love-tiers-disease-1825540187](https://lifehacker.com/how-to-talk-to-your-kid-about-a-loved-ones-illness-1825540187)
+> 原文：<https://lifehacker.com/how-to-talk-to-your-kid-about-a-loved-ones-illness-1825540187>
 
 我公公近 10 年前被确诊为帕金森病。他的颤抖是显而易见的，我女儿知道有什么东西让她爸爸的手颤抖。多年来，我妻子和我选择就此打住，因为她没有明显的其他症状，她也没有问。
 

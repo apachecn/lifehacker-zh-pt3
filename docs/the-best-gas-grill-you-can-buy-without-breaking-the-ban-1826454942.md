@@ -1,6 +1,6 @@
 # 你能买到的最好的燃气烧烤架，而不用倾家荡产
 
-> 原文:[https://gizmodo . com/the-best-gas-grill-you-buy-without-break-the-ban-1826454942](https://gizmodo.com/the-best-gas-grill-you-can-buy-without-breaking-the-ban-1826454942)
+> 原文：<https://gizmodo.com/the-best-gas-grill-you-can-buy-without-breaking-the-ban-1826454942>
 
 阳光明媚，鸟儿欢唱，你对肉有着无法满足的渴望。烧烤季节已经正式到来，我的朋友们——所以我花了上个月的时间，改变烤肉、蔬菜和面包，以寻找你能以 500 美元或更少的价格获得的最好的燃气烤架。
 

@@ -1,6 +1,6 @@
 # 如何让你的孩子远离广告
 
-> 原文:[https://lifehacker.com/how-to-ad-proof-your-kid-1821464530](https://lifehacker.com/how-to-ad-proof-your-kid-1821464530)
+> 原文：<https://lifehacker.com/how-to-ad-proof-your-kid-1821464530>
 
 当 Cracker Jack 决定将 [的“奖品”换成二维码](https://gizmodo.com/the-cracker-jack-prize-is-now-a-qr-code-1772582642#_ga=2.151703792.873517275.1513707728-21963309.1506530761) 时，它感到不祥。现在，孩子们没有找到一张小小的棒球卡，或者近年来一个不太酷的临时纹身，而是被引导到一个手机游戏，让他们在社交媒体上与朋友分享自己的棒球主题照片，上面有 Cracker Jack 标志。所有这些都是纯净的。如果我们不能用一种经典的零食来保护孩子们免受广告的追踪、分析和轰炸，还有可能吗?*用*做广告吗？
 

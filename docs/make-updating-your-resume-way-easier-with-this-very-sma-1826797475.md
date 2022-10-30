@@ -1,6 +1,6 @@
 # 用这个聪明的提示让更新你的简历变得更容易
 
-> 原文:[https://life hacker . com/make-updating-your-resume-way-easy with this-very-SMA-1826797475](https://lifehacker.com/make-updating-your-resume-way-easier-with-this-very-sma-1826797475)
+> 原文：<https://lifehacker.com/make-updating-your-resume-way-easier-with-this-very-sma-1826797475>
 
 你正在找一份新工作，所以是时候更新你的旧简历了。但是当你试图描述你的上一个位置时，你会盯着天空想，“等等，我到底做了什么？”那么，谁比雇主本身更能描述你的角色的职责呢？
 

@@ -1,6 +1,6 @@
 # 如何打开 Twitter 的新夜间模式
 
-> 原文:[https://life hacker . com/how-to-turn-on-twitters-new-night-mode-1801280598](https://lifehacker.com/how-to-turn-on-twitters-new-night-mode-1801280598)
+> 原文：<https://lifehacker.com/how-to-turn-on-twitters-new-night-mode-1801280598>
 
 当你坐在黑暗的会议室或舒适的床上准备睡觉时，打开笔记本电脑看 Twitter 就像直视太阳一样。有时白色背景很棒，而其他时候，稍微暗一点的颜色会是一个受欢迎的变化。
 

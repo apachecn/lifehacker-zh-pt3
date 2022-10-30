@@ -1,6 +1,6 @@
 # 特朗普的银行放松管制对你意味着什么
 
-> 原文:[https://life hacker . com/what-trumps-banking-de regulations-mean-for-you-1826484981](https://lifehacker.com/what-trumps-banking-deregulations-mean-for-you-1826484981)
+> 原文：<https://lifehacker.com/what-trumps-banking-deregulations-mean-for-you-1826484981>
 
 本周，美联储的联邦监管机构提议撤销沃克尔规则(Volcker Rule)的第，这是川普政府正在实施的放松银行业监管的又一举措。
 

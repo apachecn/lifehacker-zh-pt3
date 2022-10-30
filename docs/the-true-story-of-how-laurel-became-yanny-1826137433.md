@@ -1,6 +1,6 @@
 # 劳雷尔变成燕妮的真实故事
 
-> 原文:[https://life hacker . com/the-true-story-of-the-how-the-true-story-of-the-how-laurel-been-yanny-1826137433](https://lifehacker.com/the-true-story-of-how-laurel-became-yanny-1826137433)
+> 原文：<https://lifehacker.com/the-true-story-of-how-laurel-became-yanny-1826137433>
 
 开头，[月桂夹](https://gizmodo.com/is-this-voice-saying-yanny-or-laurel-heres-the-only-re-1826053448) 表示月桂除了月桂什么也不是。 [这里是片段](https://soundcloud.com/vocabularycom/laurel-original-recording) 的原始版本，由一位为 Vocabulary.com 工作的歌剧演唱家录制。很有可能，你也会听到劳雷尔。让我们将其与病毒片段进行比较，我们会看到到底发生了什么变化，以及为什么我们中的一半人听到的病毒片段是 yanny。
 

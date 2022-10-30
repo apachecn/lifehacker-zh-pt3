@@ -1,6 +1,6 @@
 # 通过机场安检时，拿出你的平板电脑和电子阅读器
 
-> 原文:[https://life hacker . com/start-拔出你的平板电脑和电子阅读器-when-you-g-1797406894](https://lifehacker.com/start-pulling-out-your-tablets-and-e-readers-when-you-g-1797406894)
+> 原文：<https://lifehacker.com/start-pulling-out-your-tablets-and-e-readers-when-you-g-1797406894>
 
 如果你在过去几年里坐过飞机，你会知道美国运输安全管理局希望你拿出你的笔记本电脑，把它放在一个单独的箱子里进行安全检查。现在他们想让你在平板电脑、电子阅读器甚至游戏机上也这么做。
 

@@ -1,6 +1,6 @@
 # 一月的金钱挑战:没有餐馆消费
 
-> 原文:[https://life hacker . com/januarys-money-challenge-no-restaurant-expansion-1749975621](https://lifehacker.com/januarys-money-challenge-no-restaurant-spending-1749975621)
+> 原文：<https://lifehacker.com/januarys-money-challenge-no-restaurant-spending-1749975621>
 
 我们已经给了你很多管理你的钱的技巧、工具和诀窍。现在是时候将这些技巧运用到 Lifehacker 终极金钱挑战赛中了。
 

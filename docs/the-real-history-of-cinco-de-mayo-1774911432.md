@@ -1,6 +1,6 @@
 # 五月五日节的真实历史
 
-> 原文:[https://life hacker . com/the-real-history-of-cinco-de-mayo-1774911432](https://lifehacker.com/the-real-history-of-cinco-de-mayo-1774911432)
+> 原文：<https://lifehacker.com/the-real-history-of-cinco-de-mayo-1774911432>
 
 五月五日节是墨西哥的一个小节日，它已经成为一个巨大的美国传统。但是为什么我们在 5 月 5 日庆祝墨西哥文化呢？不，这绝对不是“墨西哥独立日”
 

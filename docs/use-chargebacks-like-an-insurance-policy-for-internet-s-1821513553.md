@@ -1,6 +1,6 @@
 # 像网上购物的保险单一样使用退款
 
-> 原文:[https://life hacker . com/use-charge backs-like-an-insurance-policy-for-internet-s-1821513553](https://lifehacker.com/use-chargebacks-like-an-insurance-policy-for-internet-s-1821513553)
+> 原文：<https://lifehacker.com/use-chargebacks-like-an-insurance-policy-for-internet-s-1821513553>
 
 于是你从点了东西。或者阿里巴巴。或者一些你从未听说过的粗略网站，因为它有你想要的运动鞋，而其他地方没有。你知道这可能是一个好得难以置信的信号…但你真的很想要这双运动鞋，所以你还是愚蠢地输入了你的签证号码。
 

@@ -1,6 +1,6 @@
 # 全国的青少年今晚可以免费观看限制级的八年级节目
 
-> 原文:[https://Jezebel . com/teens-cross-the-country-can-see-the-r-rated-content-in-1828187853](https://jezebel.com/teens-across-the-country-can-see-the-r-rated-content-in-1828187853)
+> 原文：<https://jezebel.com/teens-across-the-country-can-see-the-r-rated-content-in-1828187853>
 
 八年级是少有的描述青少年令人畏缩的荣耀的作品之一。粉刺并没有被掩盖，“赞”和“uuuuhs”泛滥成灾，影片中 90%的演员一直粘在他们的智能手机上，试用 Snapchat 滤镜。这部电影绝对应该被它所描绘的观众看到，尽管鉴于这部电影令人惊讶的 R 级，许多青少年可能没有机会。
 

@@ -1,6 +1,6 @@
 # 想念远方的朋友？用这个应用程序举办一个自发的虚拟聚会
 
-> 原文:[https://life hacker . com/missing-far-away-friends-throw-a-自发性-虚拟-p-1796588633](https://lifehacker.com/missing-far-away-friends-throw-a-spontaneous-virtual-p-1796588633)
+> 原文：<https://lifehacker.com/missing-far-away-friends-throw-a-spontaneous-virtual-p-1796588633>
 
 如果你可以在任何时候举办一个虚拟派对，让你来自世界各地的朋友都可以参加，那会怎么样？这就是 Houseparty 背后的想法，一款为自发对话而设计的 [iOS](https://itunes.apple.com/us/app/houseparty-group-video-chat/id1065781769) 和 [Android](https://play.google.com/store/apps/details?id=com.herzick.houseparty) (点击链接下载)视频聊天应用。
 

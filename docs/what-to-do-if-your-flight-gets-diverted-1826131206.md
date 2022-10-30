@@ -1,6 +1,6 @@
 # 如果你的航班改变航线该怎么办
 
-> 原文:[https://life hacker . com/1826131206](https://lifehacker.com/what-to-do-if-your-flight-gets-diverted-1826131206)
+> 原文：<https://lifehacker.com/what-to-do-if-your-flight-gets-diverted-1826131206>
 
 我将在苏格兰度过这一周，我的旅程于周二早上 5 点开始，由于东海岸的天气，我直到周四早上 9 点才到达爱丁堡(T2)。当我从三藩市飞往 JFK 的航班因为临近的天气不允许降落时，这个问题出现了，这个问题迫使飞机转向费城并停留了 3 个小时，这 3 个小时正好是我飞往爱丁堡的航班起飞的时间。最好的消息？下一趟航班是在第二天晚上 7 点(T4 时间)才起飞的。
 

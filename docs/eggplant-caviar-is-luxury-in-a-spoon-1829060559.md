@@ -1,6 +1,6 @@
 # 茄子鱼子酱是勺子里的奢侈品[更新]
 
-> 原文:[https://life hacker . com/guillenger-caviar-is-luxury-in-a-spoon-1829060559](https://lifehacker.com/eggplant-caviar-is-luxury-in-a-spoon-1829060559)
+> 原文：<https://lifehacker.com/eggplant-caviar-is-luxury-in-a-spoon-1829060559>
 
 我对茄子的爱是强烈的，纯粹的，而且，根据很多人的说法，是不正常的。我不明白。在最好的情况下，这种华丽的茄科植物简直就是可食用的丝——有什么不让人喜欢的呢？
 

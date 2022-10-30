@@ -1,6 +1,6 @@
 # iOS 11 充满了微小的设计不一致
 
-> 原文:[https://life hacker . com/IOs-11-is-full-of-tiny-design-consistencies-1818539659](https://lifehacker.com/ios-11-is-full-of-tiny-design-inconsistencies-1818539659)
+> 原文：<https://lifehacker.com/ios-11-is-full-of-tiny-design-inconsistencies-1818539659>
 
 在 [黑客正午](https://hackernoon.com/dive-into-the-details-of-ios-11-is-apple-still-detail-oriented-fe70af065a7d) 结束时，设计师兼 iOS 11 beta 测试员刘威煌详细列举了他在苹果最新手机操作系统中注意到的无数设计错误。
 

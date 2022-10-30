@@ -1,6 +1,6 @@
 # 如何让宝宝睡在酒店房间里
 
-> 原文:[https://life hacker . com/how-to-get-your-baby-to-sleep-in-a-hotel-room-1821267422](https://lifehacker.com/how-to-get-your-baby-to-sleep-in-a-hotel-room-1821267422)
+> 原文：<https://lifehacker.com/how-to-get-your-baby-to-sleep-in-a-hotel-room-1821267422>
 
 作为父母，你通常不会记得有孩子之前的生活有多简单，除非你尝试做一些基本的事情，比如住酒店。在和孩子在一起之前，你可以走进房间，放下你的东西，爬上床，看几个小时的瑞茜·威瑟斯彭电影马拉松，同时吃着火辣辣的奇多(或者，你知道，做你喜欢的事情*)。当你有一个在非常特殊的条件下按照非常特殊的时间表睡觉的婴儿(阳光是邪恶的！)，住酒店可能是一种折磨。(注意:如果你有一个在怪物卡车秀上能像木头一样打盹的婴儿，并且相信是父母创造了婴儿微妙的睡眠习惯，看，我是...太累了，打不动了。)* 
 

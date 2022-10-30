@@ -1,6 +1,6 @@
 # 请不要冻结您的 Surface Pro 4 来修复闪烁的屏幕
 
-> 原文:[https://life hacker . com/please-don-t-freeze-your-surface-pro-4-to-fix-the-flick-1822667278](https://lifehacker.com/please-don-t-freeze-your-surface-pro-4-to-fix-the-flick-1822667278)
+> 原文：<https://lifehacker.com/please-don-t-freeze-your-surface-pro-4-to-fix-the-flick-1822667278>
 
 如果你的 [Surface Pro 4](https://lifehacker.com/pro-tablet-showdown-ipad-pro-vs-surface-pro-4-1753293972) 开始出现问题，你并不孤单。 [超过一千人](https://flickergate.com/) 报告了微软制造的 [设备](https://lifehacker.com/how-to-set-up-your-surface-pro-s-pen-1820480865) 的屏幕闪烁到几乎无法使用的程度，一些人甚至采取了 [冻结小工具](https://www.theverge.com/2018/2/1/16958954/microsoft-surface-pro-4-screen-flickering-issues-flickergate) 以使其再次工作。一个人 [声称](https://twitter.com/AlexMcUK/status/956868299958181888) 他们将 Surface Pro 4 放在冰箱里 10 分钟后，就可以使用 30 分钟。
 

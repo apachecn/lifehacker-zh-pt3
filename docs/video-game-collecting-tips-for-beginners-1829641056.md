@@ -1,6 +1,6 @@
 # 为初学者收集视频游戏技巧
 
-> 原文:[https://kotaku . com/video-game-collecting-tips-for-初学者-1829641056](https://kotaku.com/video-game-collecting-tips-for-beginners-1829641056)
+> 原文：<https://kotaku.com/video-game-collecting-tips-for-beginners-1829641056>
 
 几乎没有人会在某天早上醒来，突然决定要成为一名电子游戏收藏家。以我的经验来看，这更像是一件循序渐进的事情:你一开始会买一些你想放在身边的旧游戏，然后再买几个，接下来你就会知道，你的娱乐室里已经有了一整套 Kay-Bee 玩具。
 

@@ -1,6 +1,6 @@
 # 下一次日食是什么时候？
 
-> 原文:[https://life hacker . com/下次日食是什么时候-1798159043](https://lifehacker.com/when-is-the-next-solar-eclipse-1798159043)
+> 原文：<https://lifehacker.com/when-is-the-next-solar-eclipse-1798159043>
 
 如果你错过了今天的日食，不要担心，还会有更多的。有些看起来会更有趣。把这当成你未来的日食计划指南。
 

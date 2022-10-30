@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:12 月 23 日至 30 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-December-23-to-30-1790628077](https://lifehacker.com/this-weeks-most-popular-posts-december-23rd-to-30th-1790628077)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-december-23rd-to-30th-1790628077>
 
 一年的最后一周就像一个漫长的周日下午，我们利用这段安静的时间来看看哪里可以观看 2016 年的最佳电影，预示着 CyanogenMod 的结束，评估汽车黑客的威胁，等等。这里回顾一下。
 

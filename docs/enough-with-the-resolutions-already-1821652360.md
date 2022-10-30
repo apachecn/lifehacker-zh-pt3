@@ -1,6 +1,6 @@
 # 决议已经够多了
 
-> 原文:[https://life hacker . com/with the resolutions-always-1821652360](https://lifehacker.com/enough-with-the-resolutions-already-1821652360)
+> 原文：<https://lifehacker.com/enough-with-the-resolutions-already-1821652360>
 
 今天和昨天没什么不同。你可能在今天早上醒来的时候就有了“今年真的要做些改变”的大计划，但是你知道吗？没用的。为什么？因为你已经决定，等到新的一年，让自己焕然一新，这才是正确的做法。
 

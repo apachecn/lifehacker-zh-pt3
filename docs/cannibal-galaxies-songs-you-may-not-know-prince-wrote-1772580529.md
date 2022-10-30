@@ -1,6 +1,6 @@
 # 食人星系，你可能不知道普林斯写的歌，还有一些独特的厨房秘籍
 
-> 原文:[https://life hacker . com/食人族-星系-歌曲-你可能不知道的王子-写信-1772580529](https://lifehacker.com/cannibal-galaxies-songs-you-may-not-know-prince-wrote-1772580529)
+> 原文：<https://lifehacker.com/cannibal-galaxies-songs-you-may-not-know-prince-wrote-1772580529>
 
 在 11 首你可能不知道他实际上写的歌曲中记住王子，所有关于互相吞噬的星系，莎士比亚的度假目的地，无聊的科学，以及本周版的 Brain Buffet 中的更多内容！
 

@@ -1,6 +1,6 @@
 # 使用这个简单的 URL 来管理您的 iOS 订阅
 
-> 原文:[https://life hacker . com/use-this-easy-URL-to-manage-your-IOs-subscriptions-1824267035](https://lifehacker.com/use-this-easy-url-to-manage-your-ios-subscriptions-1824267035)
+> 原文：<https://lifehacker.com/use-this-easy-url-to-manage-your-ios-subscriptions-1824267035>
 
 苹果并不容易找出你在 iOS 上订阅了哪些应用程序— [go figure](https://slate.com/technology/2018/02/apples-app-store-is-becoming-a-major-revenue-source-for-apple.html) 。事实上，仅仅记住去哪里查看你的订阅(如果需要的话，取消它们)通常需要去你最喜欢的搜索引擎。或者，至少，它做到了。
 

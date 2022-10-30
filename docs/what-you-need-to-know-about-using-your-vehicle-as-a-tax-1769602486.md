@@ -1,6 +1,6 @@
 # 你需要知道什么关于使用你的汽车作为税收减免
 
-> 原文:[https://jalopnik . com/what-you-need-to-know-about-use-your-vehicle-as-a-tax-1769602486](https://jalopnik.com/what-you-need-to-know-about-using-your-vehicle-as-a-tax-1769602486)
+> 原文：<https://jalopnik.com/what-you-need-to-know-about-using-your-vehicle-as-a-tax-1769602486>
 
 在美国，报税截止日期还有一周多一点。如果你是那种等到最后一分钟才行动的人，以下是你的车可能遇到的情况。
 

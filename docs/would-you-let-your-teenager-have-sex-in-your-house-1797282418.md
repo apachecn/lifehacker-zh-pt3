@@ -1,6 +1,6 @@
 # 你会让你的孩子在你家做爱吗？
 
-> 原文:[https://life hacker . com/would-you-let-you-you-your-future-sex in your house-1797282418](https://lifehacker.com/would-you-let-your-teenager-have-sex-in-your-house-1797282418)
+> 原文：<https://lifehacker.com/would-you-let-your-teenager-have-sex-in-your-house-1797282418>
 
 啊，夏天——炎热、荷尔蒙和无聊导致糟糕的决定。本月， [四名青少年因涉嫌在马萨诸塞州科德角的海滩上发生性行为而被捕](http://www.dailymail.co.uk/news/article-4673562/Four-teens-sex-sea-dozens-cheered-beach.html) 。太阳出来了，岸边挤满了不期望看到那种景色的家庭。据新闻报道，围观者称公开展示的 [【恶心】](http://www.capecodtimes.com/news/20170705/police-arrest-teens-after-report-of-sex-at-dennis-beach) 。
 

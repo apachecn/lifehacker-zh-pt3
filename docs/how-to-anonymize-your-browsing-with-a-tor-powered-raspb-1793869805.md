@@ -1,6 +1,6 @@
 # 如何使用 Tor 驱动的 Raspberry Pi 热点匿名浏览
 
-> 原文:[https://life hacker . com/how-to-anonymous-your-browsing-with-a-tor-powered-raspb-1793869805](https://lifehacker.com/how-to-anonymize-your-browsing-with-a-tor-powered-raspb-1793869805)
+> 原文：<https://lifehacker.com/how-to-anonymize-your-browsing-with-a-tor-powered-raspb-1793869805>
 
 如果你一直在考虑尝试 Tor 来匿名化你所有的网络浏览，你可以 [下载一个浏览器](https://www.torproject.org/projects/torbrowser.html.en') 并尝试一下，但是制作你自己的高度便携的代理更有趣，你可以随时随地轻松连接到它。进入树莓 Pi。
 

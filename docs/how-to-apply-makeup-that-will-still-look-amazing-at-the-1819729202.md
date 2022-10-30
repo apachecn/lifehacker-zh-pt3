@@ -1,6 +1,6 @@
 # 如何化妆才能在比赛结束后看起来依然惊艳
 
-> 原文:[https://life hacker . com/how-to-apply-that-will-still-look-amazing-at-the-the-1819729202](https://lifehacker.com/how-to-apply-makeup-that-will-still-look-amazing-at-the-1819729202)
+> 原文：<https://lifehacker.com/how-to-apply-makeup-that-will-still-look-amazing-at-the-1819729202>
 
 当我第一次参加障碍赛跑时，我想象着胜利地冲过终点线，脸上挂着灿烂的笑容，洋溢着成功的喜悦。事实上，那是一个汗流浃背、潮湿异常的温暖日子，但在我的比赛照片中，我看起来棒极了。我的秘密？我跑进来满脸化妆。
 

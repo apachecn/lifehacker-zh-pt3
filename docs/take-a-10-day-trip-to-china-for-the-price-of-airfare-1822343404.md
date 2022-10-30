@@ -1,6 +1,6 @@
 # 花 10 天的机票价格去中国旅行
 
-> 原文:[https://life hacker . com/take-a-10-day-trip-to-China for-the-price-of-fleet-1822343404](https://lifehacker.com/take-a-10-day-trip-to-china-for-the-price-of-airfare-1822343404)
+> 原文：<https://lifehacker.com/take-a-10-day-trip-to-china-for-the-price-of-airfare-1822343404>
 
 Groupon 目前提供从美国 16 个主要城市出发，价格在 750 美元至 1020 美元(含 100 美元费用)之间的 [京沪 10 日游，比往返机票的价格高不了多少。这笔交易包括酒店住宿和大约一半的早餐和午餐。它还包括一些导游，无论好坏。一个人去要 380 美元的费用，所以这是夫妻交易的最佳选择。](https://www.groupon.com/deals/ga-rewards-travel-china-beijing-shanghai-suzhou-hangzhou-wuxi-6)
 

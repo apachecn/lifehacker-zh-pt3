@@ -1,6 +1,6 @@
 # 当所有的卡通坏蛋都有外国口音时，孩子们能学到什么
 
-> 原文:[https://life hacker . com/what-kids-learn-when-all-the-cartoon-bad-hacker-fore-1822041166](https://lifehacker.com/what-kids-learn-when-all-the-cartoon-bad-guys-have-fore-1822041166)
+> 原文：<https://lifehacker.com/what-kids-learn-when-all-the-cartoon-bad-guys-have-fore-1822041166>
 
 经过去年的网络大混乱之后，证实了*狮子王* [的刀疤和木法沙确实是兄弟](http://time.com/4920182/the-lion-king-mufasa-scar-brothers/) 。我很高兴事情解决了。现在唯一令人挠头的是:为什么 Scar 有英国口音，而周围没有其他狮子有英国口音？他是在英国狮子寄宿学校受的教育吗？看了一大堆英国猫电影？最有可能的原因是这样的:电影人经常用外国口音和不标准的方言给“坏”角色配音。
 

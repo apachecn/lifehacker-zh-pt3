@@ -1,6 +1,6 @@
 # 如何将杂草和酒配对
 
-> 原文:[https://lifehacker.com/how-to-pair-weed-and-wine-1804641618](https://lifehacker.com/how-to-pair-weed-and-wine-1804641618)
+> 原文：<https://lifehacker.com/how-to-pair-weed-and-wine-1804641618>
 
 随着大麻变得越来越合法，它正在摆脱其不光彩的名声，并进入一个更优雅的角色。时髦的人现在可以享用非常时髦的壶，他们中的一些人甚至将它与葡萄酒搭配。
 

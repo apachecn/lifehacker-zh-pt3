@@ -1,6 +1,6 @@
 # 你需要多少朋友才会快乐？
 
-> 原文:[https://life hacker . com/多少朋友你需要快乐-1827316848](https://lifehacker.com/how-many-friends-do-you-need-to-be-happy-1827316848)
+> 原文：<https://lifehacker.com/how-many-friends-do-you-need-to-be-happy-1827316848>
 
 我们是天生的社会动物，相互依赖，所以我们会自动寻找他人来建立牢固的关系。但是你的生活中需要多少朋友呢？实际上你能有几个？
 

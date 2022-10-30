@@ -1,6 +1,6 @@
 # 用火狐的新扩展防止脸书监视你
 
-> 原文:[https://life hacker . com/keep-Facebook-from-spying-on-you-with-Firefox-new-exte-1824119891](https://lifehacker.com/keep-facebook-from-spying-on-you-with-firefoxs-new-exte-1824119891)
+> 原文：<https://lifehacker.com/keep-facebook-from-spying-on-you-with-firefoxs-new-exte-1824119891>
 
 你无法阻止脸书追踪你在社交网络上做的一切(当然，除非你 [删除你的账号](https://lifehacker.com/dont-delete-facebook-just-be-smarter-on-facebook-1823922407) ，但是有一种方法可以阻止它追踪你一旦离开公司的 [围墙花园](https://lifehacker.com/a-month-inside-apples-walled-garden-its-not-as-bad-a-1304272986) 去了哪里。你需要的只是 Mozilla 新的火狐浏览器扩展: [脸书容器](https://blog.mozilla.org/firefox/facebook-container-extension/) 。
 

@@ -1,6 +1,6 @@
 # 如果你的 Snapchat Streak 消失了该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-your-snapchat-streak-消失-1829331970](https://lifehacker.com/what-to-do-if-your-snapchat-streak-disappears-1829331970)
+> 原文：<https://lifehacker.com/what-to-do-if-your-snapchat-streak-disappears-1829331970>
 
 Watch
 

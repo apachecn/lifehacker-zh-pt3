@@ -1,6 +1,6 @@
 # 问 NerdLove 博士:我应该告诉我的女朋友我的初夜给了一个性工作者吗？
 
-> 原文:[https://kotaku . com/ask-dr-nerd love-should-I-tell-my-friend-I-lost-my-1786955810](https://kotaku.com/ask-dr-nerdlove-should-i-tell-my-girlfriend-i-lost-my-1786955810)
+> 原文：<https://kotaku.com/ask-dr-nerdlove-should-i-tell-my-girlfriend-i-lost-my-1786955810>
 
 你好，你这腐败的色情触角，欢迎来到 [问博士 NerdLove](http://kotaku.com/askdrnerdlove) ，第一个参加对打的约会建议专栏。本周我们将谈论性、性羞耻以及当我们开始忙碌时泛滥成灾的强烈情绪。
 

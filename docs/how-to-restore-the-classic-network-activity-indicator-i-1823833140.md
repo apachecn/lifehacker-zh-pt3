@@ -1,6 +1,6 @@
 # 如何在 Windows 10 中恢复经典的网络活动指示器
 
-> 原文:[https://life hacker . com/how-to-restore-the-classic-network-activity-indicator-I-1823833140](https://lifehacker.com/how-to-restore-the-classic-network-activity-indicator-i-1823833140)
+> 原文：<https://lifehacker.com/how-to-restore-the-classic-network-activity-indicator-i-1823833140>
 
 几周前，当我重新安装 Windows 10 时，一个想法出现了:我怀念以前闪烁的网络活动指示器，它曾经让你可以轻松确认你的连接是否正常(鼠标悬停时，可以知道你下载了多少数据)。)
 

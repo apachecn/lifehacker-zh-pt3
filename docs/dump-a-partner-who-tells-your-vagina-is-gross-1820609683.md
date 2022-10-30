@@ -1,6 +1,6 @@
 # 甩掉一个告诉你你的阴道很恶心的伴侣
 
-> 原文:[https://life hacker . com/dump-a-partner-who-tell-your-vagina-is-gross-1820609683](https://lifehacker.com/dump-a-partner-who-tells-your-vagina-is-gross-1820609683)
+> 原文：<https://lifehacker.com/dump-a-partner-who-tells-your-vagina-is-gross-1820609683>
 
 你有多少次对自己说，“我的阴道棒极了”？跟进问题:你一生中收到过多少关于你阴道和外阴的*负面*信息？如:太毛，太臭，还是太松？
 

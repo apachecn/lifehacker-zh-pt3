@@ -1,6 +1,6 @@
 # 活动家贾米娅·威尔逊关于公开演讲的 3 个建议
 
-> 原文:[https://life hacker . com/activity-jamia-wilsons-3-tips-on-public-speaking-1821498141](https://lifehacker.com/activist-jamia-wilsons-3-tips-on-public-speaking-1821498141)
+> 原文：<https://lifehacker.com/activist-jamia-wilsons-3-tips-on-public-speaking-1821498141>
 
 Watch
 

@@ -1,6 +1,6 @@
 # 用这个新工具算出你的房子在 Airbnb 上能赚多少钱
 
-> 原文:[https://life hacker . com/1797682122](https://lifehacker.com/figure-out-how-much-your-home-would-earn-on-airbnb-with-1797682122)
+> 原文：<https://lifehacker.com/figure-out-how-much-your-home-would-earn-on-airbnb-with-1797682122>
 
 Airbnb 喜欢将他们的产品包装成一种全球社区，将旅行者和主人联系起来，获得改变生活的体验。但是我们知道你向陌生人 开放你的公寓或备用卧室的真正原因:为了得到报酬！然而，在你拿出客用亚麻制品，开始拍摄准备上市的照片之前，你必须做一些数学计算。你住的地方合适的价格是多少？
 

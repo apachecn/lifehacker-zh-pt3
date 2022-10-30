@@ -1,6 +1,6 @@
 # 如何避开 OkCupid 愚蠢的新“实名”政策
 
-> 原文:[https://life hacker . com/how-to-around-ok cupid-stubid-new-real-name-policy-1821632068](https://lifehacker.com/how-to-get-around-okcupids-stupid-new-real-name-policy-1821632068)
+> 原文：<https://lifehacker.com/how-to-get-around-okcupids-stupid-new-real-name-policy-1821632068>
 
 在线约会服务 OkCupid [最近对他们的平台](https://theblog.okcupid.com/an-open-letter-on-why-were-removing-usernames-addressed-to-the-worst-ones-we-ve-ever-seen-dd017c75d49a) 做了两个大的改变，其中一个涉及用户名。简而言之，你再也不能躲在类似于“甜心宝贝 37”或“StudddMuffin96”的 AIM 屏幕名称后面了没错，他们现在要实名。幸运的是，有一个简单的方法仍然保持你的匿名。
 

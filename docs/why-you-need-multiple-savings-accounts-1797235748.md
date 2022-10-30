@@ -1,6 +1,6 @@
 # 为什么你需要多个储蓄账户
 
-> 原文:[https://life hacker . com/why-you-need-multiple-savings-accounts-1797235748](https://lifehacker.com/why-you-need-multiple-savings-accounts-1797235748)
+> 原文：<https://lifehacker.com/why-you-need-multiple-savings-accounts-1797235748>
 
 你知道把钱存起来是一个好主意，但是尽管这看起来违反直觉，把所有的钱都放在同一个地方会让你的预算比它需要的更复杂。直截了当地说，为什么不注册多个储蓄账户，把你的储蓄分作特定用途呢？
 

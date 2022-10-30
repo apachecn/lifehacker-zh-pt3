@@ -1,6 +1,6 @@
 # 为什么我们应该害怕朝鲜的核攻击，解释说
 
-> 原文:[https://www . the root . com/why-we-should-fear-a-north-Korean-nuclear-attack-expla-1818763114](https://www.theroot.com/why-we-should-fear-a-north-korean-nuclear-attack-expla-1818763114)
+> 原文：<https://www.theroot.com/why-we-should-fear-a-north-korean-nuclear-attack-expla-1818763114>
 
 随着平壤和华盛顿在朝鲜弹道导弹和核试验问题上的紧张局势不断升级，军控专家正在就美国防御全面核攻击的能力展开非常冷静的辩论。
 

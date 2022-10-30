@@ -1,6 +1,6 @@
 # 所有 2017 年 8 月进出网飞的最佳电影和节目
 
-> 原文:[https://life hacker . com/all-the-best-movies-and-shows-coming-to-and-leaving . net-1797190582](https://lifehacker.com/all-the-best-movies-and-shows-coming-to-and-leaving-net-1797190582)
+> 原文：<https://lifehacker.com/all-the-best-movies-and-shows-coming-to-and-leaving-net-1797190582>
 
 夏天的新鲜感正在消失，我们在有空调的室内度过了更多的时间。这意味着有更多时间赶上网飞。我们已经想出了看电视节目 的有效方法——现在剩下的就是想出看什么了。
 

@@ -1,6 +1,6 @@
 # 年底前获得免费的 Windows 10 升级
 
-> 原文:[https://life hacker . com/get-your-free-windows-10-upgrade-before-the-end-of-the-1820215794](https://lifehacker.com/get-your-free-windows-10-upgrade-before-the-end-of-the-1820215794)
+> 原文：<https://lifehacker.com/get-your-free-windows-10-upgrade-before-the-end-of-the-1820215794>
 
 微软的 Windows 10 升级计划于去年 7 月停止向公众开放，但如果你是该公司辅助技术功能 的用户，你仍然可以免费升级到 Windows 10。幸运的是，微软对这个术语的定义相当宽泛，这意味着如果你依赖隐藏字幕(甚至键盘快捷键)等功能，你仍然有资格免费升级。报价将于 12 月 31 日截止。
 

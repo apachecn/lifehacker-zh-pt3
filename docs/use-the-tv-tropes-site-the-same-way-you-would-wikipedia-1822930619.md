@@ -1,6 +1,6 @@
 # 像使用维基百科一样使用电视比喻网站
 
-> 原文:[https://life hacker . com/use-the-TV-tropes-site-the-same-way-you-would-Wikipedia-1822930619](https://lifehacker.com/use-the-tv-tropes-site-the-same-way-you-would-wikipedia-1822930619)
+> 原文：<https://lifehacker.com/use-the-tv-tropes-site-the-same-way-you-would-wikipedia-1822930619>
 
 维基百科非常擅长展示冷酷无情的事实，但它读起来就像是电脑写的一样。很难找到一个主题的“氛围”。相反，尝试电视比喻。虽然这个专门的维基主要关注电影、电视节目和视频游戏等娱乐，但它也收集关于现实世界中的人、地方和现象的 [【有用笔记】](http://tvtropes.org/pmwiki/pmwiki.php/Main/UsefulNotes) 。
 

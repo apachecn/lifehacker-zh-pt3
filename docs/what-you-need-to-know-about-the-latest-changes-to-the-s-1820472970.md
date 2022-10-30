@@ -1,6 +1,6 @@
 # 关于参议院税收法案的最新变化，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-the-s-1820472970](https://lifehacker.com/what-you-need-to-know-about-the-latest-changes-to-the-s-1820472970)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-the-latest-changes-to-the-s-1820472970>
 
 本周，参议院正忙于修改一项税收法案，该法案将对我们现有的税收法规 进行大规模修改。虽然一切都还没有确定下来(预计将在感恩节后通过参议院)，但在最近一轮的修订中，已经有了一些值得注意的变化。
 

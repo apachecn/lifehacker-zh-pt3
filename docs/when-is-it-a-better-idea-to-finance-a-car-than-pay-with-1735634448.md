@@ -1,6 +1,6 @@
 # 什么时候贷款买车比用现金付款更好？
 
-> 原文:[https://jalopnik . com/when-it-a-better-idea to-finance-a-car with-pay-with-1735634448](https://jalopnik.com/when-is-it-a-better-idea-to-finance-a-car-than-pay-with-1735634448)
+> 原文：<https://jalopnik.com/when-is-it-a-better-idea-to-finance-a-car-than-pay-with-1735634448>
 
 大家好，欢迎来到*给道格的信*，这是你们每周的 *Jalopnik* 专栏，在这里人们来信，我一边敲着键盘听 Jimmy Eat World 组合的音乐，一边公开嘲笑他们。
 

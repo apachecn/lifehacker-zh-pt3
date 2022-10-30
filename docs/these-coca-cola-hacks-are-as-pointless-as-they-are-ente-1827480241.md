@@ -1,6 +1,6 @@
 # 这些可口可乐的“黑客”既无意义又有趣
 
-> 原文:[https://life hacker . com/these-coca-cola-hacks-as-无谓，因为他们是 ente-1827480241](https://lifehacker.com/these-coca-cola-hacks-are-as-pointless-as-they-are-ente-1827480241)
+> 原文：<https://lifehacker.com/these-coca-cola-hacks-are-as-pointless-as-they-are-ente-1827480241>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-S41ovMZ03x8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-S41ovMZ03x8&start=0) 
 

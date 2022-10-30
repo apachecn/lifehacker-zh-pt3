@@ -1,6 +1,6 @@
 # 如何在一元店安全购物并省钱
 
-> 原文:[https://life hacker . com/how-to-shop-the-dollar-ST-1774245035](https://lifehacker.com/how-to-shop-safely-and-save-more-money-at-the-dollar-st-1774245035)
+> 原文：<https://lifehacker.com/how-to-shop-safely-and-save-more-money-at-the-dollar-st-1774245035>
 
 一元店很便宜，但是在那里浪费钱比你想象的要容易。如果没有敏锐的眼光，你最终会得到损坏的商品，难吃的食物，以及最好的商品。每个一元店都是不同的，但是这些策略会帮你省钱并保证你的安全。
 

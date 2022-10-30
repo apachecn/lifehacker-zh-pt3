@@ -1,6 +1,6 @@
 # 我吃了一堆素食奶酪，实际上非常好吃
 
-> 原文:[https://life hacker . com/I-ate-a-bunch-a-vegan-cheese-and-it-is-actually-quit-1731244460](https://lifehacker.com/i-ate-a-bunch-of-vegan-cheese-and-it-was-actually-quit-1731244460)
+> 原文：<https://lifehacker.com/i-ate-a-bunch-of-vegan-cheese-and-it-was-actually-quit-1731244460>
 
 无论从哪个角度来看，我都不是素食主义者，但是住在俄勒冈州的波特兰让我对素食主义有点好奇。有别致的纯素食餐馆、纯素食品尝菜单和“手工”纯素食食品，奶酪是最受欢迎的。
 

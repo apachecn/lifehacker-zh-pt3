@@ -1,6 +1,6 @@
 # 为什么这个周末你需要去火星看看
 
-> 原文:[https://life hacker . com/why-you-need-check-out-mars-this-weekend-1827921089](https://lifehacker.com/why-you-need-to-check-out-mars-this-weekend-1827921089)
+> 原文：<https://lifehacker.com/why-you-need-to-check-out-mars-this-weekend-1827921089>
 
 从本周末开始，你将能够看到又大又亮的火星——比 2003 年以来更亮的。这是不容错过的。
 

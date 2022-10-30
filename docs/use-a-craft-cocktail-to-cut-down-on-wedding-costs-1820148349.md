@@ -1,6 +1,6 @@
 # 提供一杯手工鸡尾酒来降低婚礼费用
 
-> 原文:[https://life hacker . com/use-a-craft-cocktail-to-cut-down-on-wedding-costs-1820148349](https://lifehacker.com/use-a-craft-cocktail-to-cut-down-on-wedding-costs-1820148349)
+> 原文：<https://lifehacker.com/use-a-craft-cocktail-to-cut-down-on-wedding-costs-1820148349>
 
 当你计划婚礼时，你想要完美的一天，包括为你的客人提供庆祝饮料。然而，满座的酒吧会打破你的预算，仅仅提供葡萄酒和啤酒可能会让一些人失望。为了两全其美，为你的客人提供一杯手工鸡尾酒。
 

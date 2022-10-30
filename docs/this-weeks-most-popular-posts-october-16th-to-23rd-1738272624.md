@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:10 月 16 日至 23 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-10 月 16 日至 23 日-1738272624](https://lifehacker.com/this-weeks-most-popular-posts-october-16th-to-23rd-1738272624)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-october-16th-to-23rd-1738272624>
 
 本周，我们研究了贫穷带来的额外成本，学习了如何应对恐慌发作，想知道谷歌是否使用疯狂的 Libs 来命名他们的产品，等等。下面回顾一下本周最受欢迎的帖子。
 

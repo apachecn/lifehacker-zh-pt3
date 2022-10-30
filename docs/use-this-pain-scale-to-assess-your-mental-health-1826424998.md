@@ -1,6 +1,6 @@
 # 使用这个“疼痛量表”来评估你的心理健康
 
-> 原文:[https://life hacker . com/use-this-pain-scale-assessment-your-mental-health-1826424998](https://lifehacker.com/use-this-pain-scale-to-assess-your-mental-health-1826424998)
+> 原文：<https://lifehacker.com/use-this-pain-scale-to-assess-your-mental-health-1826424998>
 
 如果你曾经在医院接受手术恢复，你知道医疗服务提供者会要求你从 1 到 10 对你的疼痛进行“评级”,如果你需要的话，他们可以给你止痛。但评估心理健康困扰并没有简单的 1-10 分，因为心理健康不像身体疼痛那样简单。但尽管如此，患有抑郁症、焦虑症或其他疾病的人可能会发现，看看这个""心理健康疼痛量表来评估他们每天的感受是有帮助的。
 

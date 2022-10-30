@@ -1,6 +1,6 @@
 # 南极风景桌面
 
-> 原文:[https://life hacker . com/the-南极-风景-桌面-1791621546](https://lifehacker.com/the-antarctic-landscape-desktop-1791621546)
+> 原文：<https://lifehacker.com/the-antarctic-landscape-desktop-1791621546>
 
 读者赛法利过去曾向我们的 [桌面展示区](http://kinja.com/tag/desktop-showcase) 提交过桌面，但这是一个全新的外观，我们喜欢它。如果你也喜欢它——或者只是喜欢其中的南极风景——以下是如何让你的电脑也有同样的外观。
 

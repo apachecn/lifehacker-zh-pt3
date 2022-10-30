@@ -1,6 +1,6 @@
 # 你所有的消费者保护都在消亡
 
-> 原文:[https://life hacker . com/all-your-consumer-protections-is-dying-1827049784](https://lifehacker.com/all-your-consumer-protections-are-dying-1827049784)
+> 原文：<https://lifehacker.com/all-your-consumer-protections-are-dying-1827049784>
 
 就像一部乏味的连环杀手电影中，一群朋友在一个偏僻的小屋里，你的消费者保护一次一个地被悄悄扼杀，你跑来跑去试图 [扑灭其他火灾](https://twocents.lifehacker.com/how-to-not-get-scammed-when-donating-to-charity-1827017641) 。
 

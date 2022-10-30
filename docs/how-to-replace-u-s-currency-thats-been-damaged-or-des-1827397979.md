@@ -1,6 +1,6 @@
 # 如何替换已经损坏(或毁坏)的美国货币
 
-> 原文:[https://life hacker . com/how-to-replace-u-s-currency-that-be-damaged-or-des-1827397979](https://lifehacker.com/how-to-replace-u-s-currency-thats-been-damaged-or-des-1827397979)
+> 原文：<https://lifehacker.com/how-to-replace-u-s-currency-thats-been-damaged-or-des-1827397979>
 
 任何曾经把钱包放进洗衣机的人都想知道如何处理一沓破钞。你当地的银行可以更换一些破损的钞票，但是如果你的 [应急现金](https://lifehacker.com/where-and-how-to-safely-hide-cash-in-your-home-5313540) 已经被石化、烧脆、部分消化或者严重损坏，你就需要求助专业人士了。
 

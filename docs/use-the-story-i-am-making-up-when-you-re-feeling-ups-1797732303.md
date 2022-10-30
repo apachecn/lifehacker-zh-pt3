@@ -1,6 +1,6 @@
 # 当你对某人感到不安时，用“我正在编的故事…”
 
-> 原文:[https://life hacker . com/use-the-story-I-am-making-when-you-re-feeling-ups-1797732303](https://lifehacker.com/use-the-story-i-am-making-up-when-you-re-feeling-ups-1797732303)
+> 原文：<https://lifehacker.com/use-the-story-i-am-making-up-when-you-re-feeling-ups-1797732303>
 
 在我夏天去的海滩上，一群妈妈和她们的孩子在树荫下扎营，就像我和我的孩子一样。今年夏天，我对他们中的一些人有了些许了解——足以打招呼，交换防晒霜和保姆的信息，聊我们的工作等等。
 

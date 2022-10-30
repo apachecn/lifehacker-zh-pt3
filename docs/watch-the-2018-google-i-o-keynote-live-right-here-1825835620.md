@@ -1,6 +1,6 @@
 # 在这里观看 2018 年谷歌 I/O 主题演讲
 
-> 原文:[https://gizmodo . com/watch-the-2018-Google-I-o-keynote-live-right-here-1825835620](https://gizmodo.com/watch-the-2018-google-i-o-keynote-live-right-here-1825835620)
+> 原文：<https://gizmodo.com/watch-the-2018-google-i-o-keynote-live-right-here-1825835620>
 
  [https://gizmodo.com/embed/inset/iframe?id=youtube-video-ogfYd705cRs&start=0](https://gizmodo.com/embed/inset/iframe?id=youtube-video-ogfYd705cRs&start=0) 
 

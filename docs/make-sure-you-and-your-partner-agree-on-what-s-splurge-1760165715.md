@@ -1,6 +1,6 @@
 # 在合并财务之前，确保你和你的伴侣就什么值得挥霍达成一致
 
-> 原文:[https://life hacker . com/make-assure-you-and-partner-agree-on-what-s-spluge-1760165715](https://lifehacker.com/make-sure-you-and-your-partner-agree-on-what-s-splurge-1760165715)
+> 原文：<https://lifehacker.com/make-sure-you-and-your-partner-agree-on-what-s-splurge-1760165715>
 
 每个人对什么是可以挥霍的都有不同的想法，所以在你和你的伴侣或配偶一起理财，甚至分摊费用之前，要对什么是可以花更多的钱，什么是不重要的达成共识。
 

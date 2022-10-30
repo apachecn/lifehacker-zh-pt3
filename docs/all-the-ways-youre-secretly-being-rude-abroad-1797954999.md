@@ -1,6 +1,6 @@
 # 你在国外偷偷摸摸无礼的所有方式
 
-> 原文:[https://life hacker . com/all-the-ways-you-secretly-be-rude-foreign-1797954999](https://lifehacker.com/all-the-ways-youre-secretly-being-rude-abroad-1797954999)
+> 原文：<https://lifehacker.com/all-the-ways-youre-secretly-being-rude-abroad-1797954999>
 
 当你在世界各地旅行时，你可能希望尊重你遇到的每一种文化。但你会惊讶地发现，在不知情的情况下变得粗鲁是多么容易。
 

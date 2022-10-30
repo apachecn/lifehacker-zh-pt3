@@ -1,6 +1,6 @@
 # 问那个咸味十足的女服务员:我能拿我旁边桌子上的这些混蛋怎么办？
 
-> 原文:[https://the take out . com/1827978671](https://thetakeout.com/what-can-i-do-about-these-jerks-seated-next-to-me-1827978671)
+> 原文：<https://thetakeout.com/what-can-i-do-about-these-jerks-seated-next-to-me-1827978671>
 
 > 亲爱的 Salty:上周一个真正的混蛋毁了我的生日晚餐，现在我在想我能做些什么来阻止它。
 > 

@@ -1,6 +1,6 @@
 # 如何戒掉那个上瘾的应用
 
-> 原文:[https://life hacker . com/how-to-quit-that-additive-app-1821745028](https://lifehacker.com/how-to-quit-that-addictive-app-1821745028)
+> 原文：<https://lifehacker.com/how-to-quit-that-addictive-app-1821745028>
 
 我不知道你怎么想，但我听到很多人说，他们想在 2018 年戒掉现代技术的一些特别上瘾的方面。也许你想一劳永逸地把《糖果粉碎》从手机里删掉。也许你只想每天查看一次 Twitter。也许你想停止仇恨-阅读一个提要或论坛，也许你想退出 insta gram-跟踪你的前任，也许你只是想花更多的时间与屏幕以外的东西互动。
 

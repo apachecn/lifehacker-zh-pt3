@@ -1,6 +1,6 @@
 # 告诉我们你的上海旅游小贴士
 
-> 原文:[https://life hacker . com/tell-us-your-Shanghai-travel-tips-1826329336](https://lifehacker.com/tell-us-your-shanghai-travel-tips-1826329336)
+> 原文：<https://lifehacker.com/tell-us-your-shanghai-travel-tips-1826329336>
 
 我喜欢也是动词的城市。但与过去西海岸的水手被下药并被迫服役不同，我们大多数人都是自愿前往上海的。我们需要你对游览(或居住)这个世界上人口最多的城市的最佳建议。上海，一个古老而又充满未来感的城市，中国的金融中心，坐落在中国的东海岸，环太平洋的西部边缘。打个比方，我们现在都去那里。
 

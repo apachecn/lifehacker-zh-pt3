@@ -1,6 +1,6 @@
 # 让你的食物“味道”更好的五个小窍门
 
-> 原文:[https://life hacker . com/five-mind-tricks-that ll-make-your food-taste-better-1727820633](https://lifehacker.com/five-mind-tricks-thatll-make-your-food-taste-better-1727820633)
+> 原文：<https://lifehacker.com/five-mind-tricks-thatll-make-your-food-taste-better-1727820633>
 
 如果你担心你的烹饪技术会给别人留下深刻印象，或者你第一次尝试新的食谱，有一些心理技巧你可以用在别人身上，让你的饭菜看起来比实际上更好。这里有五种最有效的方法。
 

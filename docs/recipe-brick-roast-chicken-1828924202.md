@@ -1,6 +1,6 @@
 # 要做最脆的烤鸡，用一块砖，它会慢慢变黄
 
-> 原文:[https://the take out . com/recipe-brick-bake-chicken-1828924202](https://thetakeout.com/recipe-brick-roast-chicken-1828924202)
+> 原文：<https://thetakeout.com/recipe-brick-roast-chicken-1828924202>
 
 古老的烤鸡考验着家庭厨师的勇气。这是新手厨师升级到烹饪 202 级 的第一道 [菜之一。](https://thetakeout.com/perfect-roast-chicken-requires-salt-and-time-or-a-whol-1798256513)
 

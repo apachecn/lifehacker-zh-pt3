@@ -1,6 +1,6 @@
 # 如何向你的孩子介绍龙与地下城
 
-> 原文:[https://life hacker . com/how-to-introduction-your-kid-龙与地下城-1822920357](https://lifehacker.com/how-to-introduce-your-kid-to-dungeons-dragons-1822920357)
+> 原文：<https://lifehacker.com/how-to-introduce-your-kid-to-dungeons-dragons-1822920357>
 
 很久以前，我是一个叫甘道夫的巫师。诚然，这是一个缺乏想象力的名字，但它来自一个刚刚读完《指环王》三部曲的青少年。作为甘道夫，我知道一些常用的保护和攻击法术，还会说矮人语。我宣布我的结盟是合法的，很自然地，然后继续我寻找黄金和魔法宝藏的生意。
 

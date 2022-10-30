@@ -1,6 +1,6 @@
 # 七喜烹饪初探
 
-> 原文:[https://life hacker . com/an-exploration-into-cooking-with-7-up-1818869361](https://lifehacker.com/an-exploration-into-cooking-with-7-up-1818869361)
+> 原文：<https://lifehacker.com/an-exploration-into-cooking-with-7-up-1818869361>
 
 中世纪的烹饪往往会联想到明胶“沙拉”、砂锅菜和 [滥用香蕉](https://www.google.com/search?q=mid+century+banana+recipes&source=lnms&tbm=isch&sa=X&ved=0ahUKEwifpYTb3cbWAhVO52MKHdTMB8YQ_AUICygC&biw=1366&bih=637#imgrc=cBGqoYeVAURdYM:) 的画面，但你听说过用 pop 烹饪的好消息吗？事实证明，苏打——尤其是七喜——除了饮用之外，实际上还有广泛的烹饪用途，我们将探索三种最受欢迎的食谱。
 

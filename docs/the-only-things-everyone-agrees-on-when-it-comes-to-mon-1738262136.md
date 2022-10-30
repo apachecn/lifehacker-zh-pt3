@@ -1,6 +1,6 @@
 # 关于钱，大家唯一达成一致的是
 
-> 原文:[https://life hacker . com/the-only-things-every one-concess-on-come-to-mon-1738262136](https://lifehacker.com/the-only-things-everyone-agrees-on-when-it-comes-to-mon-1738262136)
+> 原文：<https://lifehacker.com/the-only-things-everyone-agrees-on-when-it-comes-to-mon-1738262136>
 
 个人理财就像 [营养](http://vitals.lifehacker.com/the-only-three-things-everybody-agrees-on-when-it-comes-1709039566) :这个领域的专家似乎在任何事情上都无法达成一致，无论是 [设立应急基金](https://lifehacker.com/money-advice-not-everyone-agrees-on-emergency-funds-1589580471) 还是 [提前还清你的房贷](http://twocents.lifehacker.com/money-advice-the-experts-don-t-agree-on-paying-off-you-1607494999) 。尽管有各种相反的观点，但是大多数人至少在五个基本原则上是一致的。
 

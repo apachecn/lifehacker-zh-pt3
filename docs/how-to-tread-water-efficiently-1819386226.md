@@ -1,6 +1,6 @@
 # 如何高效踩水
 
-> 原文:[https://life hacker . com/how-to-tread-water-efficient-1819386226](https://lifehacker.com/how-to-tread-water-efficiently-1819386226)
+> 原文：<https://lifehacker.com/how-to-tread-water-efficiently-1819386226>
 
 简单地在水中漂浮看起来很容易，但如果你没有漂浮设备，这实际上是非常困难的，踩水对于任何计划在水上或水上度过时间的人来说都是一项重要的安全技能。这是在紧急情况下尽可能长时间做这件事的最好方法。
 

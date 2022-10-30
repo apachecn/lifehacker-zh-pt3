@@ -1,6 +1,6 @@
 # 如何快速算出你一年有多少零花钱
 
-> 原文:[https://life hacker . com/how-to-quick-out-how-how-much-amount-money-youll-1821096242](https://lifehacker.com/how-to-quickly-figure-out-how-much-spending-money-youll-1821096242)
+> 原文：<https://lifehacker.com/how-to-quickly-figure-out-how-much-spending-money-youll-1821096242>
 
 我们很多人按月做预算，这意味着我们经常多花一个月，并告诉自己下个月会补上。(然后下个月到了，我们告诉自己再下个月补上，以此类推。)
 

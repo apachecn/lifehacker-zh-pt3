@@ -1,6 +1,6 @@
 # 一年中买东西的最佳时间
 
-> 原文:[https://life hacker . com/the-best-time-to-buy-that-what-year-5973864](https://lifehacker.com/the-best-time-to-buy-anything-during-the-year-5973864)
+> 原文：<https://lifehacker.com/the-best-time-to-buy-anything-during-the-year-5973864>
 
 一点计划可以为你全年的购物节省一大笔钱。这是你今年购买所有东西的最佳时机的全面、最新的指南。
 

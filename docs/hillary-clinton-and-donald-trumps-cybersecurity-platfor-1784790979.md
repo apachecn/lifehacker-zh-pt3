@@ -1,6 +1,6 @@
 # 希拉里·克林顿和唐纳德·特朗普的网络安全平台比较
 
-> 原文:[https://life hacker . com/Hillary-Clinton-and-Donald-trump-cyber security-platform-1784790979](https://lifehacker.com/hillary-clinton-and-donald-trumps-cybersecurity-platfor-1784790979)
+> 原文：<https://lifehacker.com/hillary-clinton-and-donald-trumps-cybersecurity-platfor-1784790979>
 
 似乎每天都有另一个 [黑客](http://lifehacker.com/tag/hacked)[密码窃取](http://lifehacker.com/5-million-gmail-passwords-leaked-check-yours-now-1632983265) ，或者 [泄露。政府机构和私营公司都经常受到攻击，攻击者只是寻找敏感数据出售，或者是寻找有价值信息的外国行为者。仅此一点就足以让总统候选人至少有一个受过教育、知情的网络安全政策。让我们看看他们的平台，看看他们有没有。](http://lifehacker.com/check-if-your-data-was-leaked-in-the-ashley-madison-hac-1725180477) 
 

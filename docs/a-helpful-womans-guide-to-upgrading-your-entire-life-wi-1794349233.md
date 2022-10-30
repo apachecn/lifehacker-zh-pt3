@@ -1,6 +1,6 @@
 # 用自制大麻小熊软糖提升你整个生活的有益女性指南
 
-> 原文:[https://Jezebel . com/a-help-womens-guide-to-upgrading-your-all-life-wi-1794349233](https://jezebel.com/a-helpful-womans-guide-to-upgrading-your-entire-life-wi-1794349233)
+> 原文：<https://jezebel.com/a-helpful-womans-guide-to-upgrading-your-entire-life-wi-1794349233>
 
 我也曾经像你一样:吃一口有大麻的食物，然后就他妈的抓狂。第一次吃巧克力饼时，我做了任何一个理智的 15 岁孩子都会做的事情:我断定它们不起作用，吃了半锅，等了两个小时，然后看着整个房间翻转过来，感觉从我的果冻腿上消失了。两个朋友不得不陪我走到浴室，另一个几乎是消防员的人把我背回家。后来在大学里发生了一件事，我提前 45 分钟下了公交车，在黑暗中走了很长一段路，因为一块绿色的饼干不适合我。也许有几起这样的事件。
 

@@ -1,6 +1,6 @@
 # 使用此应用程序检查您的 MacBook 电池
 
-> 原文:[https://life hacker . com/check-your-macbook-battery-with the-app-1821916984](https://lifehacker.com/check-your-macbook-battery-with-this-app-1821916984)
+> 原文：<https://lifehacker.com/check-your-macbook-battery-with-this-app-1821916984>
 
 你已经在计划给你的旧 iPhone 换电池，这样它就不会随机关机了，那么为什么不对你的 MacBook 做同样的事情呢？根据你使用笔记本电脑的时间长短，电池可以随时更换。在决定是否需要更换电池之前，你可以自己研究系统，或者咨询第三方应用程序以获得更深入的信息，从而确定电池的健康状况(或者预约苹果商店)。
 

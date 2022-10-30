@@ -1,6 +1,6 @@
 # 如何在接受联邦调查时不失去你的衬衫
 
-> 原文:[https://life hacker . com/how-not-to-lost-when-you-under-federal-inv-1818839606](https://lifehacker.com/how-not-to-lose-your-shirt-when-youre-under-federal-inv-1818839606)
+> 原文：<https://lifehacker.com/how-not-to-lose-your-shirt-when-youre-under-federal-inv-1818839606>
 
 一般来说，人们工作是为了赚钱。但是如果你为白宫工作，你必须做好准备，将来你可能最终需要请律师。那会变得...价格昂贵。比如，50 万美元贵，据 [彭博政坛](https://www.bloomberg.com/news/articles/2017-09-20/for-trump-aides-caught-in-russia-probe-legal-bills-and-paranoiahttps:/www.bloomberg.com/politics/articles/2017-09-20/for-trump-aides-caught-in-russia-probe-legal-bills-and-paranoia?ex_cid=SigDig) 。作家 Shannon Pettypiece 报道了迈克尔·卡普托(Michael Caputo)的故事，他担任了特朗普的竞选主席四个月，现在已经有 3 万美元的法律账单。现在，如果你可以像特朗普总统报道的那样，用你的竞选资金支付法律费用，那么法律费用可能不会那么严重，但如果你是一名低级行政助理呢？理论上，你可能会被迫动用孩子的大学基金或退休储蓄。
 

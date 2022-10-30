@@ -1,6 +1,6 @@
 # 向慈善机构捐款时如何不被骗
 
-> 原文:[https://life hacker . com/how-to-not-get-scammed-when-doning-to-charity-1827017641](https://lifehacker.com/how-to-not-get-scammed-when-donating-to-charity-1827017641)
+> 原文：<https://lifehacker.com/how-to-not-get-scammed-when-donating-to-charity-1827017641>
 
 由于川普政府的“零容忍”移民政策，估计有 2300 名儿童 与其父母分离。尽管特朗普总统周三签署了一项行政命令 [，扭转了他在分离家庭问题上的立场](https://www.nytimes.com/2018/06/20/us/politics/trump-immigration-children-executive-order.html) (零容忍政策仍然有效，这意味着人们仍然会被起诉)，但它 [不会让那些已经分离的人重新团聚](https://www.texastribune.org/2018/06/20/separated-families-immigration-trump-guarantee-reunification/) 。
 

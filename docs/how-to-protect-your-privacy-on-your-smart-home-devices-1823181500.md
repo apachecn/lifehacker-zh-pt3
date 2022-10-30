@@ -1,6 +1,6 @@
 # 如何保护智能家居设备上的隐私
 
-> 原文:[https://life hacker . com/how-to-protect-your-privacy-on-your-smart-home-devices-1823181500](https://lifehacker.com/how-to-protect-your-privacy-on-your-smart-home-devices-1823181500)
+> 原文：<https://lifehacker.com/how-to-protect-your-privacy-on-your-smart-home-devices-1823181500>
 
 智能音箱使用起来很酷，很方便，也很有趣，但在隐私方面，它们还有很多不足之处。如果你有一个 [亚马逊 Echo](https://lifehacker.com/the-seven-best-things-you-can-do-with-an-amazon-echo-1766989219) 、一个 [谷歌主页](https://lifehacker.com/should-you-buy-a-new-google-home-speaker-1819148716) ，或者一个 [HomePod](https://lifehacker.com/put-a-coaster-under-your-apple-homepod-to-protect-woode-1823003436) ，如果你担心保护你的个人数据，有一堆设置和功能需要调整。
 

@@ -1,6 +1,6 @@
 # 为什么我们在运动中会头痛
 
-> 原文:[https://life hacker . com/why-we-get-hearts-from-exercise-1771938843](https://lifehacker.com/why-we-get-headaches-from-exercise-1771938843)
+> 原文：<https://lifehacker.com/why-we-get-headaches-from-exercise-1771938843>
 
 头痛 [的发生有无数的原因](https://lifehacker.com/the-best-remedies-for-common-headaches-5982052) :脱水、眼睛疲劳、 [前一天晚上喝了一点点](http://vitals.lifehacker.com/why-we-get-hangovers-when-we-drink-alcohol-1766020167) 以及锻炼。是的，锻炼也是，它们和其他头痛一样烦人。以下是运动性头痛和常规性头痛的区别，以及如何最好地治疗或避免它们。
 

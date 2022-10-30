@@ -1,6 +1,6 @@
 # 你现在可以在安卓系统上发送 iMessages 信息，只要你有一台 Mac 电脑
 
-> 原文:[https://life hacker . com/you-can-now-send-imessages-on-Android-as-long-as-you-h-1822160827](https://lifehacker.com/you-can-now-send-imessages-on-android-as-long-as-you-h-1822160827)
+> 原文：<https://lifehacker.com/you-can-now-send-imessages-on-android-as-long-as-you-h-1822160827>
 
 如果不是因为 [iMessage](https://lifehacker.com/how-to-prevent-imessages-from-accidentally-appearing-on-1794255706) ，几年前我就会 [抛弃我的 iPhone](https://lifehacker.com/how-to-ditch-apple-completely-1821082984) 换成 Android，但是因为我的家人(和我的大多数朋友)都使用 iOS 设备，我被锁在了苹果的世界里。否则，我会错过 iMessage 的群聊(我知道这很可悲，但这是事实)。
 

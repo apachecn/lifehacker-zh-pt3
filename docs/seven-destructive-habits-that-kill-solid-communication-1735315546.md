@@ -1,6 +1,6 @@
 # 扼杀稳固沟通的七个破坏性习惯
 
-> 原文:[https://life hacker . com/seven-destructive-habits-that-kill-solid-communication-1735315546](https://lifehacker.com/seven-destructive-habits-that-kill-solid-communication-1735315546)
+> 原文：<https://lifehacker.com/seven-destructive-habits-that-kill-solid-communication-1735315546>
 
 你的伴侣犯了大错，忘记按时付房租。你被罚了滞纳金。要做的实际的事情？想出一个解决办法，这样就不会再发生了。但是你很生气，所以相反，你批评你的伴侣，于是一场争吵爆发了。批评是破坏健康交流的七个常见习惯之一。
 

@@ -1,6 +1,6 @@
 # 你能离技术多远？
 
-> 原文:[https://gizmodo . com/how-far-you-can-away-from-technology-1827282605](https://gizmodo.com/how-far-can-you-get-away-from-technology-1827282605)
+> 原文：<https://gizmodo.com/how-far-can-you-get-away-from-technology-1827282605>
 
 每个人都会时不时地——或者在每一天的每一刻——希望自己能以某种方式逃离科技。社会的崩溃、十年前你几乎不认识的人的周末活动、糟糕的迷因、糟糕的电视等等，无时无刻不被淹没，这最终并不有趣。你可以砸碎你的手机，或者删除那些明显对你的精神健康有害的应用程序，但人们会因此而怨恨你，此外，你实际上不会逃避任何东西:你可以在着火的大楼里闭上眼睛，但你仍然会感觉到火焰。
 

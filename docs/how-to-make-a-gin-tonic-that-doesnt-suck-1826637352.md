@@ -1,6 +1,6 @@
 # 如何制作一种不难吃的杜松子酒
 
-> 原文:[https://life hacker . com/how-to-make-a gin-tonic-that-not-suck-1826637352](https://lifehacker.com/how-to-make-a-gin-tonic-that-doesnt-suck-1826637352)
+> 原文：<https://lifehacker.com/how-to-make-a-gin-tonic-that-doesnt-suck-1826637352>
 
 在像杜松子酒这样简单的酒里，酒精应该会真正发光。太多时候，令人作呕的蹩脚滋补品掩盖了其伴侣的植物品质，使 G&T 没有应有的清爽。幸运的是，长期鸡尾酒作家 [露营英语](http://www.alcademics.com/about-alcademics.html)——字面意思是 [写了一本关于饮料的书](http://www.alcademics.com/tonic-water-aka-gt-wtf-by-camper-english.html)——有一些关于如何调整你的滋补品并确保你的 G & T 充分发挥潜力的建议。
 

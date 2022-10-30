@@ -1,6 +1,6 @@
 # T-Mobile 现在可以让你在不计入数据的情况下传输视频
 
-> 原文:[https://gizmodo . com/t-mobile-now-let-you-stream-video-without-it-counting-1741734406](https://gizmodo.com/t-mobile-now-lets-you-stream-video-without-it-counting-1741734406)
+> 原文：<https://gizmodo.com/t-mobile-now-lets-you-stream-video-without-it-counting-1741734406>
 
 T-Mobile 的整个“无载体”事件，即 CEO John Legere 登上舞台并放下他的手机竞争对手的一系列偶然事件，已经持续了几年。但在第十场比赛中，T-Mo 大获全胜。告别视频流，远离你的数据。
 

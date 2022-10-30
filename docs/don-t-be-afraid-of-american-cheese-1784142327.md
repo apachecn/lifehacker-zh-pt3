@@ -1,6 +1,6 @@
 # 不要害怕美国奶酪
 
-> 原文:[https://life hacker . com/don-t-be-fear-of-American-cheese-1784142327](https://lifehacker.com/don-t-be-afraid-of-american-cheese-1784142327)
+> 原文：<https://lifehacker.com/don-t-be-afraid-of-american-cheese-1784142327>
 
 美国奶酪名声不好，尤其是在美食家和注重健康的人中间。你可能会听到声称它是由“塑料”或“化学物质”制成的，但事实证明这并不可怕。美国奶酪只是混合了融盐和牛奶等普通配料的奶酪。
 

@@ -1,6 +1,6 @@
 # RIP，微软画图
 
-> 原文:[https://lifehacker.com/rip-microsoft-paint-1797193660](https://lifehacker.com/rip-microsoft-paint-1797193660)
+> 原文：<https://lifehacker.com/rip-microsoft-paint-1797193660>
 
 你用来编辑图像的第一个应用程序[MS Paint 可能会在 Windows 10](https://www.theguardian.com/technology/2017/jul/24/microsoft-paint-kill-off-after-32-years-graphics-editing-program) 的未来更新中被取消，取而代之的是新的应用程序 Paint 3D。微软在 Windows 10 的下一次秋季更新中将 32 岁的应用程序列在 [【弃用功能】](https://support.microsoft.com/en-us/help/4034825/features-that-are-removed-or-deprecated-in-windows-10-fall-creators-up) 下，一个小 X 标志着一个时代的结束。
 

@@ -1,6 +1,6 @@
 # 任天堂 Switch 网络适配器确实有助于在线游戏
 
-> 原文:[https://kotaku . com/the-Nintendo-switch-network-adapter-really-helps-o-1797435922](https://kotaku.com/the-nintendo-switch-network-adapter-really-helps-with-o-1797435922)
+> 原文：<https://kotaku.com/the-nintendo-switch-network-adapter-really-helps-with-o-1797435922>
 
 如果你喜欢多人游戏，你可能已经听说过如何使用有线连接进行游戏。这款交换机和之前的 Wii U 一样，甚至没有以太网端口——但你可以解决这个问题。
 

@@ -1,6 +1,6 @@
 # 如何选择和使用最好的洗面奶来保持健康漂亮的皮肤
 
-> 原文:[https://life hacker . com/how-to-choose-and-use-the best-face-wash for-healthy-g-1762299731](https://lifehacker.com/how-to-choose-and-use-the-best-face-wash-for-healthy-g-1762299731)
+> 原文：<https://lifehacker.com/how-to-choose-and-use-the-best-face-wash-for-healthy-g-1762299731>
 
 我曾经认为我妈妈的 20 分钟护肤养生法是矫枉过正，但也许她是对的。她的脸看起来很迷人，她的皮肤在晚年也很健康。现在我长大了，也研究了这个话题，我意识到你洗脸的方式对你皮肤的健康和外观有很大影响，即使是多年以后。
 

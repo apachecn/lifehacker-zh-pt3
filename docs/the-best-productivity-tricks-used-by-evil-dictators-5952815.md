@@ -1,6 +1,6 @@
 # 邪恶独裁者使用的最佳生产力技巧
 
-> 原文:[https://life hacker . com/the-best-productivity-tricks-used-by-evil-dictionors-5952815](https://lifehacker.com/the-best-productivity-tricks-used-by-evil-dictators-5952815)
+> 原文：<https://lifehacker.com/the-best-productivity-tricks-used-by-evil-dictators-5952815>
 
 历史上充满了邪恶的独裁者，虽然他们也有不好的品质，但不可否认的是，他们在完成任务方面很有效率。尽管他们本性邪恶，我们还是可以从他们身上学到一些东西。
 

@@ -1,6 +1,6 @@
 # 如何通过三个简单的步骤与世界各地的朋友一起玩桌面游戏
 
-> 原文:[https://life hacker . com/how-to-run-a-desktop-game-with-friends-around-the-world-1784682717](https://lifehacker.com/how-to-run-a-tabletop-game-with-friends-around-the-worl-1784682717)
+> 原文：<https://lifehacker.com/how-to-run-a-tabletop-game-with-friends-around-the-worl-1784682717>
 
 和好朋友围坐在一张桌子旁是玩桌面 RPG 游戏的最好方式，比如 [*地下城&龙*](http://dnd.wizards.com/) ，但这并不总是一个选项。如果你的朋友已经搬走，住在海外，或者不想忍受交通堵塞，无论你的团队在哪里，都有很多方法让游戏之夜发生。
 

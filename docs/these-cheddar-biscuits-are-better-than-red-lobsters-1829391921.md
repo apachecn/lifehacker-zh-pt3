@@ -1,6 +1,6 @@
 # 这些切达饼干比红龙虾的好吃
 
-> 原文:[https://life hacker . com/these-cheddar-饼干-比红龙虾更好-1829391921](https://lifehacker.com/these-cheddar-biscuits-are-better-than-red-lobsters-1829391921)
+> 原文：<https://lifehacker.com/these-cheddar-biscuits-are-better-than-red-lobsters-1829391921>
 
 除非你缺乏味蕾和爱心，否则你可能会喜欢面包篮。一个好的免费面包，在饭前提供，不仅仅是增进你的食欲；它培养忠诚。例证:我会去红龙虾。那些奶酪味、咸味、味道浓烈的切达湾饼干值得去海鲜连锁店，但你其实可以在家里做，而且你可以做得更好。
 

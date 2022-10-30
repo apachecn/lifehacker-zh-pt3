@@ -1,6 +1,6 @@
 # 使用化妆海绵进行无混乱的经期性爱
 
-> 原文:[https://life hacker . com/use-a-costing-sponge-for-mess-free-period-sex-1797313388](https://lifehacker.com/use-a-makeup-sponge-for-mess-free-period-sex-1797313388)
+> 原文：<https://lifehacker.com/use-a-makeup-sponge-for-mess-free-period-sex-1797313388>
 
 Watch
 

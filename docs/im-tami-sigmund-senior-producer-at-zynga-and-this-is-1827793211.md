@@ -1,6 +1,6 @@
 # 我是塔米·西格蒙德，Zynga 的高级制作人，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-塔米-西格蒙德-zynga 高级制作人-and-this-is-1827793211](https://lifehacker.com/im-tami-sigmund-senior-producer-at-zynga-and-this-is-1827793211)
+> 原文：<https://lifehacker.com/im-tami-sigmund-senior-producer-at-zynga-and-this-is-1827793211>
 
 塔米·西格蒙德是社交游戏开发商 Zynga 的高级制作人，该公司为我们带来了 *FarmVille* 、 *Words With Friends 2* 、 *Zynga Poker 和 CSR Racing 2。作为一个在过去 11 年里一直制作视频游戏的人，她希望帮助游戏行业成为一个对边缘化游戏爱好者更具包容性的地方。她告诉我们如何平衡她的事业，如何成为一个有着一个 2 岁半男孩的奇怪的单身母亲。以下是她为人父母的方式。*
 

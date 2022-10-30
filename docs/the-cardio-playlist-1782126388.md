@@ -1,6 +1,6 @@
 # 有氧运动播放列表
 
-> 原文:[https://lifehacker.com/the-cardio-playlist-1782126388](https://lifehacker.com/the-cardio-playlist-1782126388)
+> 原文：<https://lifehacker.com/the-cardio-playlist-1782126388>
 
 当你开始一天的有氧运动时，没有什么比高能播放列表更能让你做好准备了。今天的播放列表非常适合你下次跑步时使用。
 

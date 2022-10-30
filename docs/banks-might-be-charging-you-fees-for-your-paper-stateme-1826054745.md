@@ -1,6 +1,6 @@
 # 停止向银行支付纸质对账单
 
-> 原文:[https://life hacker . com/banks-may-be-charging-you-paper-state me-1826054745](https://lifehacker.com/banks-might-be-charging-you-fees-for-your-paper-stateme-1826054745)
+> 原文：<https://lifehacker.com/banks-might-be-charging-you-fees-for-your-paper-stateme-1826054745>
 
 我们都讨厌透支和自动提款机费用，这些费用平均每年花费消费者 150 美元，但还有一项你可能都没有意识到的银行费用:选择纸质对账单而不是电子对账单要支付 1 到 5 美元。
 

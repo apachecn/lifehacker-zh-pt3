@@ -1,6 +1,6 @@
 # iPhone 推特应用摊牌:推特机器人 vs .推特
 
-> 原文:[https://life hacker . com/iphone-Twitter-app-摊牌-tweet bot-vs-Twitter-1780456218](https://lifehacker.com/iphone-twitter-app-showdown-tweetbot-vs-twitter-1780456218)
+> 原文：<https://lifehacker.com/iphone-twitter-app-showdown-tweetbot-vs-twitter-1780456218>
 
 iPhone 有几十个 Twitter 客户端，但官方 Twitter 应用和第三方 Tweetbot 是最受欢迎的两个。一个是免费的，另一个相当贵，要 9.99 美元。下面我们来挖掘一下两者的主要区别，看看体验上的差异是否值得成本上的差异。
 

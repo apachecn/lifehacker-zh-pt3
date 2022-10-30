@@ -1,6 +1,6 @@
 # 你的信用评分从急剧下降中恢复需要多长时间
 
-> 原文:[https://life hacker . com/how-long-it-take-it-your ' s credit-score-from-a-d-1827178418](https://lifehacker.com/how-long-it-takes-your-credit-score-to-recover-from-a-d-1827178418)
+> 原文：<https://lifehacker.com/how-long-it-takes-your-credit-score-to-recover-from-a-d-1827178418>
 
 你的信用评分从“软查询”中反弹需要多长时间？这就是蒂芙尼想知道的本周金钱星期一:
 

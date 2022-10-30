@@ -1,6 +1,6 @@
 # 大多数包装纸是可回收的，所以不要扔掉
 
-> 原文:[https://life hacker . com/PSA-most-wrapping-paper-is-recycled-don-throw-it-a-1821572339](https://lifehacker.com/psa-most-wrapping-paper-is-recyclable-dont-throw-it-a-1821572339)
+> 原文：<https://lifehacker.com/psa-most-wrapping-paper-is-recyclable-dont-throw-it-a-1821572339>
 
 当你在今天的庆祝活动后打扫卫生的时候，记住现在大多数包装纸实际上是可回收的。
 

@@ -1,6 +1,6 @@
 # 如何准备被解雇，来自世界各地的早餐，以及来自太空的极光
 
-> 原文:[https://life hacker . com/how-to-prepare-to-get-fired-from-aroun-1773700503](https://lifehacker.com/how-to-prepare-to-get-fired-breakfast-foods-from-aroun-1773700503)
+> 原文：<https://lifehacker.com/how-to-prepare-to-get-fired-breakfast-foods-from-aroun-1773700503>
 
 在本周的 Brain Buffet 中，如果你即将在工作中被解雇，你应该做什么，为什么 2016 年似乎有这么多名人去世，谷歌新的硬件部门，等等。
 

@@ -1,6 +1,6 @@
 # 您的亚马逊订单可能会将您挡在可信旅行者计划之外
 
-> 原文:[https://life hacker . com/your-Amazon-order-may-lock-you-out-of-trusted-travele-1821964978](https://lifehacker.com/your-amazon-order-might-lock-you-out-of-trusted-travele-1821964978)
+> 原文：<https://lifehacker.com/your-amazon-order-might-lock-you-out-of-trusted-travele-1821964978>
 
 你不会认为网上购物会给你带来海关方面的麻烦，但如果你不小心在亚马逊上订购了假冒商品，那就有可能。如果你计划做很多旅行，你可能想从现在开始仔细检查你的订单。
 

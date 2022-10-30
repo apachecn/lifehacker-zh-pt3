@@ -1,6 +1,6 @@
 # 如何使用 Windows 10 的‘游戏栏’向全世界广播你可怕的堡垒之夜技能
 
-> 原文:[https://life hacker . com/how-to-use-windows-10s-game-bar-to-broadcast-your-Terri-1826300406](https://lifehacker.com/how-to-use-windows-10s-game-bar-to-broadcast-your-terri-1826300406)
+> 原文：<https://lifehacker.com/how-to-use-windows-10s-game-bar-to-broadcast-your-terri-1826300406>
 
 我承认，我从未真正使用过 Windows 10 的游戏栏，因为我可能是最不应该在网上公布自己游戏习惯的人。我在堡垒之夜很糟糕，我在永恒之柱中最小/最大，我玩了很多被遗忘领域的闲置冠军——不完全是最性感的游戏，除非你喜欢看我点击所有的东西。
 

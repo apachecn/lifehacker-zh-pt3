@@ -1,6 +1,6 @@
 # 如果你拖欠学生贷款该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-default-on-your student-loans-1828946224](https://lifehacker.com/what-to-do-if-you-default-on-your-student-loans-1828946224)
+> 原文：<https://lifehacker.com/what-to-do-if-you-default-on-your-student-loans-1828946224>
 
 对于一定比例的借款人来说，拖欠学生贷款已经成为不可避免的事情:根据城市研究所 的一份报告，每年有 100 万借款人拖欠贷款——定义为在近一年内没有还款——预计到 2023 年将有 40%左右的借款人违约。
 

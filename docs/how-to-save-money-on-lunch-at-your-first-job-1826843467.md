@@ -1,6 +1,6 @@
 # 第一份工作如何节省午餐费用
 
-> 原文:[https://life hacker . com/how-to-save money on-your ' s chief-job-1826843467](https://lifehacker.com/how-to-save-money-on-lunch-at-your-first-job-1826843467)
+> 原文：<https://lifehacker.com/how-to-save-money-on-lunch-at-your-first-job-1826843467>
 
 作为一名刚毕业的大学生，在开始你的第一份“真实世界的工作”的同时试图预算你的开支可能会相当困难。对大多数人来说，大学的花费比毕业后的生活要便宜，所以很容易掉链子，最终花掉比你预期更多的钱。
 

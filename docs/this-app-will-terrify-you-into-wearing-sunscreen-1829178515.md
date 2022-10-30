@@ -1,6 +1,6 @@
 # 这个应用会吓得你涂防晒霜
 
-> 原文:[https://life hacker . com/this-app-will-恐吓你穿防晒霜-1829178515](https://lifehacker.com/this-app-will-terrify-you-into-wearing-sunscreen-1829178515)
+> 原文：<https://lifehacker.com/this-app-will-terrify-you-into-wearing-sunscreen-1829178515>
 
 防晒霜不仅仅是为了防止晒伤。随着时间的推移，特别是在浅色皮肤上，阳光是皱纹、增厚和褐色斑点的主要原因。还好， [一款好的广谱防晒霜会保护你](https://vitals.lifehacker.com/all-your-sunscreen-questions-answered-1827579794#_ga=2.224701593.262633695.1537192409-1456718367.1520458611) ，这个 app 模拟的到底是多少。
 

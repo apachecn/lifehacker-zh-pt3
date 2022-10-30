@@ -1,6 +1,6 @@
 # 当你有太多事情要做时的五个建议
 
-> 原文:[https://life hacker . com/five-tips-for-when-you just-have-to-do-that-do-1790714627](https://lifehacker.com/five-tips-for-when-you-just-have-too-much-to-do-1790714627)
+> 原文：<https://lifehacker.com/five-tips-for-when-you-just-have-too-much-to-do-1790714627>
 
 要做的事情太多，时间不够。对于很多人来说，这是一个永恒的问题，但在假期里似乎尤为明显。假日活动、购物、旅游、探亲...事情往往会堆积在我们已经忙碌的生活之上。
 

@@ -1,6 +1,6 @@
 # 如何阻止 iOS 应用窃取你的 Apple ID 密码
 
-> 原文:[https://life hacker . com/how-to-stop-IOs-apps-from-stealing-your-apple-id-passwo-1819978731](https://lifehacker.com/how-to-stop-ios-apps-from-stealing-your-apple-id-passwo-1819978731)
+> 原文：<https://lifehacker.com/how-to-stop-ios-apps-from-stealing-your-apple-id-passwo-1819978731>
 
 iOS:安全研究员费利克斯·克劳斯(Felix Krause)这个月正在扼杀它，如果“它”是指 iPhone 用户的安全感的话。我们最近报道了他的两个安全警告:如果你允许一个应用程序使用你的相机，它也可以 [跟踪你的位置](https://lifehacker.com/how-apps-use-your-photos-to-track-your-location-1819802266) 甚至 [偷偷拍照和视频](https://lifehacker.com/how-to-stop-ios-apps-from-secretly-spying-through-your-1819877630) 。现在他指出，如果你不小心， [任何应用程序都可能轻易窃取你的苹果 ID](https://krausefx.com/blog/ios-privacy-stealpassword-easily-get-the-users-apple-id-password-just-by-asking) 。
 

@@ -1,6 +1,6 @@
 # 2016 年 2 月进出网飞的所有最佳电影
 
-> 原文:[https://life hacker . com/all-the-best-movies-coming-and-leaving-网飞-in-fe-1755729392](https://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-fe-1755729392)
+> 原文：<https://lifehacker.com/all-the-best-movies-coming-to-and-leaving-netflix-in-fe-1755729392>
 
 几个月来了又走了，网飞的标题选择也是如此。本月，网飞将推出《满屋再世》和《卧虎藏龙》续集等原创电影。随着新游戏的出现，其他游戏也随之消失，所以趁你还能看的时候，看看《T2》、《终结者》、《T4》和《拆弹部队》。
 

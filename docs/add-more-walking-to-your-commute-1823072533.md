@@ -1,6 +1,6 @@
 # 在上下班的路上多走几步路
 
-> 原文:[https://life hacker . com/add-more-walking-to-your commute-1823072533](https://lifehacker.com/add-more-walking-to-your-commute-1823072533)
+> 原文：<https://lifehacker.com/add-more-walking-to-your-commute-1823072533>
 
 上周五，当我们汇总员工的每周更新时，我们的编辑们屈服于 Glossier 的吸引力，重新体验了 Snuggie，减少了饮酒，并增强了我们的家庭 wifi。
 

@@ -1,6 +1,6 @@
 # 三月的金钱挑战:消除你的消费弱点
 
-> 原文:[https://life hacker . com/March-s-money-challenge-kick-your-spending-weakness-1792796665](https://lifehacker.com/march-s-money-challenge-kick-your-spending-weakness-1792796665)
+> 原文：<https://lifehacker.com/march-s-money-challenge-kick-your-spending-weakness-1792796665>
 
 我们正在帮助读者通过 [《生活黑客终极金钱挑战》](http://twocents.lifehacker.com/the-lifehacker-money-challenge-is-back-1790627747) 全年省钱。这个月，我们将带回去年的最爱之一: [踢你的消费弱点](http://twocents.lifehacker.com/march-s-money-challenge-curb-impulse-spending-1762052680) 。
 

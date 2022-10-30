@@ -1,6 +1,6 @@
 # 你的支票账户里有多少钱？
 
-> 原文:[https://life hacker . com/how-Dow-money-do-do-mud-do-mud-more-money-1821097143](https://lifehacker.com/how-much-money-do-you-keep-in-your-checking-account-1821097143)
+> 原文：<https://lifehacker.com/how-much-money-do-you-keep-in-your-checking-account-1821097143>
 
 我的支票账户通常存有我一个月内已经/将要花费的金额。但我这样做并没有什么特别的原因，主要是因为我是一个住在纽约的 25 岁的作家，我很幸运我可以存一点钱，还能支付所有的账单。
 

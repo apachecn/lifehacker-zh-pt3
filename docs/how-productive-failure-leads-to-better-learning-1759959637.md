@@ -1,6 +1,6 @@
 # 富有成效的失败如何带来更好的学习
 
-> 原文:[https://life hacker . com/how-productive-failure-leads-to-better-learning-1759959637](https://lifehacker.com/how-productive-failure-leads-to-better-learning-1759959637)
+> 原文：<https://lifehacker.com/how-productive-failure-leads-to-better-learning-1759959637>
 
 当你看着自己创造的东西，觉得自己的作品糟透了，你知道那种沮丧的感觉吗？当你在学习一项新技能时，你需要意识到允许自己变得糟糕——在一段时间内——最终会促进更好的学习。
 

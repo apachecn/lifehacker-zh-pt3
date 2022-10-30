@@ -1,6 +1,6 @@
 # 如何不用等待招聘信息就能找到你的理想工作
 
-> 原文:[https://life hacker . com/how-to-find your dream-job-without-waiting-a listin-1822464583](https://lifehacker.com/how-to-find-your-dream-job-without-waiting-for-a-listin-1822464583)
+> 原文：<https://lifehacker.com/how-to-find-your-dream-job-without-waiting-for-a-listin-1822464583>
 
 让我们不要美化它:找工作可能是可怕的。有点像找房子。或者寻找伴侣。你必须从许多没有吸引力的选项中筛选出一颗未加工的宝石。但是，有更好、更有效、更明智的方法来找到吸引人的工作，而不需要让人耳目一新或变得可怕。
 

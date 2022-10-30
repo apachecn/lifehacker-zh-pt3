@@ -1,6 +1,6 @@
 # 用这个三点计划谈判任何事情
 
-> 原文:[https://life hacker . com/negotiate-any-this-point-plan-1796789088](https://lifehacker.com/negotiate-anything-with-this-three-point-plan-1796789088)
+> 原文：<https://lifehacker.com/negotiate-anything-with-this-three-point-plan-1796789088>
 
 谈判是一个混乱、紧张的过程。但是 redditor B1aze688 把它分解成三个基本要素 :你想要的交易，你会接受的交易，如果你两样都得不到你会怎么做。在你了解这三点之前，千万不要参加谈判。
 

@@ -1,6 +1,6 @@
 # 如果我今天从大学毕业，我的职业生涯会有什么不同
 
-> 原文:[https://life hacker . com/what-id-do-different-in-my-career-if-I-graduate-1784057225](https://lifehacker.com/what-id-do-differently-in-my-career-if-i-graduated-from-1784057225)
+> 原文：<https://lifehacker.com/what-id-do-differently-in-my-career-if-i-graduated-from-1784057225>
 
 刚刚过去的五月，一个我非常尊敬的人大学毕业了。毕业没几天，他问了我一个很简单的问题:*如果你处在我的位置，重新从大学毕业，你会有什么不同的做法？*
 

@@ -1,6 +1,6 @@
 # 求职面试中要注意的四个危险信号
 
-> 原文:[https://life hacker . com/four-red-flags-to-watch-out for the-job-interview-1773447368](https://lifehacker.com/four-red-flags-to-watch-out-for-in-job-interviews-1773447368)
+> 原文：<https://lifehacker.com/four-red-flags-to-watch-out-for-in-job-interviews-1773447368>
 
 这一天终于来了:你终于 [在你梦寐以求的公司](https://www.themuse.com/advice/how-to-keep-your-cool-when-you-interview-with-your-dream-company) 面试了，为了你梦寐以求的工作！这是一个完美的行业，这个角色与你的技能和背景几乎完全匹配。此外，它会让你继续你的 [五年计划](https://www.themuse.com/advice/5-reasons-why-you-should-take-your-5year-planand-throw-it-away) 。一切都好，对吧？也许不是。
 

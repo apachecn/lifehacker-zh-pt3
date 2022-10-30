@@ -1,6 +1,6 @@
 # 用这个“父母的鼻子”来看看童年的危险是否真实存在
 
-> 原文:[https://life hacker . com/find-out-if-a-childhood-danger-is-the-this-snopes-1826779649](https://lifehacker.com/find-out-if-a-childhood-danger-is-real-with-this-snopes-1826779649)
+> 原文：<https://lifehacker.com/find-out-if-a-childhood-danger-is-real-with-this-snopes-1826779649>
 
 从儿童被 [花园软管水](http://www.khon2.com/news/local-news/health-officials-warn-parents-dont-let-your-kids-drink-from-the-garden-hose_20180104063707690/901538824) 毒死到 [在弹跳屋中暑](https://www.cbsnews.com/news/sky-high-temperatures-inside-bounce-houses-pose-health-risk/) 再到几乎可以肯定成为宜家 人口贩卖的 [目标的新闻报道，父母时刻保持警惕，保护他们娇嫩的孩子免受随时可能潜伏的诸多危险是至关重要的。](https://foreverymom.com/family-parenting/mom-of-3-posts-warning-to-other-parents-ikea-diandra-toyos/)
 

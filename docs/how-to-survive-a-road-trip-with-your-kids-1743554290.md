@@ -1,6 +1,6 @@
 # 如何和孩子一起度过长途汽车旅行
 
-> 原文:[https://deadspin . com/how-to-survive-a-road-trip with-your-kids-1743554290](https://deadspin.com/how-to-survive-a-road-trip-with-your-kids-1743554290)
+> 原文：<https://deadspin.com/how-to-survive-a-road-trip-with-your-kids-1743554290>
 
 每年的这个时候。是时候去拜访那些奇怪的、遥远的亲戚了，他们住在奇怪的、遥远的地方，塔吉特百货公司、好市多超市和全食超市都被调换了。是时候滚下数百英里亲爱的老艾克的八车道美国梦，离开一个郊区地狱般的另一个。假期家庭自驾游时间到了。
 

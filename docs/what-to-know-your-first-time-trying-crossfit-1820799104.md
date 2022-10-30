@@ -1,6 +1,6 @@
 # 你第一次尝试 Crossfit 时应该知道什么
 
-> 原文:[https://life hacker . com/what-to-know-your ' s first-time-crossfit-1820799104](https://lifehacker.com/what-to-know-your-first-time-trying-crossfit-1820799104)
+> 原文：<https://lifehacker.com/what-to-know-your-first-time-trying-crossfit-1820799104>
 
 Crossfit 的高强度训练是一个两极分化的讨论话题。看起来 Crossfit 俱乐部的第一条规则是你必须永远不要停止谈论 Crossfit 俱乐部，另一方面，这项运动(例行公事？纪律？爱好？)也有讨厌它的人。因此，让我们花一分钟时间，为那些感兴趣但不确定他们将进入什么领域以及是否值得的人打开天窗说亮话。
 

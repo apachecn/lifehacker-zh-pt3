@@ -1,6 +1,6 @@
 # 认真对待单腿深蹲的力量和平衡
 
-> 原文:[https://life hacker . com/get-serious-about-strength-and-balance-with one-leg-1750422621](https://lifehacker.com/get-serious-about-strength-and-balance-with-one-legged-1750422621)
+> 原文：<https://lifehacker.com/get-serious-about-strength-and-balance-with-one-legged-1750422621>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Ecxt4TtVlFQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Ecxt4TtVlFQ&start=0) 
 

@@ -1,6 +1,6 @@
 # 如何使用 Airbnb 住在任何地方
 
-> 原文:[https://life hacker . com/how-to-use-Airbnb-to-live-anywhere-1788145276](https://lifehacker.com/how-to-use-airbnb-to-live-anywhere-1788145276)
+> 原文：<https://lifehacker.com/how-to-use-airbnb-to-live-anywhere-1788145276>
 
 我很感激，在一个现在不可或缺的旅游资源如谷歌地图、猫途鹰、WiFi 和 Airbnb 存在的时代，我可以做我的流浪者。他们让我所做的一切成为可能。有了 Airbnb，我只需点击几个按钮，就可以在不同的国家建立一个新的家，而且我不必为一个酒店房间付出太多。毫无疑问，Airbnb 是我甜蜜旅行中一颗多汁的大樱桃。
 

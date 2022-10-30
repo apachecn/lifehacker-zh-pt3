@@ -1,6 +1,6 @@
 # 让我们做一个甜点砂锅
 
-> 原文:[https://life hacker . com/let-make-a-des 甜品-砂锅-1827447987](https://lifehacker.com/lets-make-a-dessert-casserole-1827447987)
+> 原文：<https://lifehacker.com/lets-make-a-dessert-casserole-1827447987>
 
 你好，欢迎回到 [*会砂锅吗？*](https://skillet.lifehacker.com/you-deserve-a-hot-and-cheesy-pierogi-casserole-1819722125?rev=1508528101066#) ，我把你的美味概念重新想象成美味的砂锅菜。上周的 [烧烤砂锅](https://lifehacker.com/theres-an-entire-cookout-in-this-casserole-1827321119) 是我一直以来的最爱之一，但现在是时候继续前进了，我认为我们应该转向一些甜食。
 

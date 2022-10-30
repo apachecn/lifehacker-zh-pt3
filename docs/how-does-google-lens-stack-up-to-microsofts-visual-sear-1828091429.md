@@ -1,6 +1,6 @@
 # 谷歌镜头-必应视觉搜索对决
 
-> 原文:[https://life hacker . com/how-does-Google-lens-stack-up-to-Microsoft-visual-sear-1828091429](https://lifehacker.com/how-does-google-lens-stack-up-to-microsofts-visual-sear-1828091429)
+> 原文：<https://lifehacker.com/how-does-google-lens-stack-up-to-microsofts-visual-sear-1828091429>
 
 感觉谷歌已经在“将你的相机对准它以了解更多”技术上占据了市场一段时间，首先是通过它的翻译应用程序，让你用智能手机的相机瞄准外语标志并即时接收翻译，现在是通过 [镜头](https://www.blog.google/products/google-lens/google-lens-real-time-answers-questions-about-world-around-you/) ，它扩展了这项技术，为你提供关于你已经拍摄(或即将拍摄)的照片中物体的大量信息。
 

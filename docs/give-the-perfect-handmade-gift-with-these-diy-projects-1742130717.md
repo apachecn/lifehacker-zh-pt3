@@ -1,6 +1,6 @@
 # 用这些 DIY 项目送出完美的手工礼物
 
-> 原文:[https://life hacker . com/give-the-perfect-manufactured-give-this-DIY-projects-1742130717](https://lifehacker.com/give-the-perfect-handmade-gift-with-these-diy-projects-1742130717)
+> 原文：<https://lifehacker.com/give-the-perfect-handmade-gift-with-these-diy-projects-1742130717>
 
 在许多方面，你自己做的礼物比你在商店里买到的任何礼物都要好。你可以为你的收件人定制它们，炫耀你的技能，通常还能省下一点钱，同时还能送上一份贴心的、令人难忘的礼物。这里有一些有用的个性化礼物，你可以自己动手做。
 

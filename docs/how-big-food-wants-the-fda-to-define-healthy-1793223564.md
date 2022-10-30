@@ -1,6 +1,6 @@
 # 大型食品公司希望美国食品和药物管理局如何定义“健康”
 
-> 原文:[https://life hacker . com/how-big-food-wants-the-FDA-to-define-healthy-1793223564](https://lifehacker.com/how-big-food-wants-the-fda-to-define-healthy-1793223564)
+> 原文：<https://lifehacker.com/how-big-food-wants-the-fda-to-define-healthy-1793223564>
 
 坚果、鸡蛋和鳄梨等高脂肪食品的生产商很高兴他们的产品正在克服他们作为饮食恶棍的历史。的美国食品药品监督管理局 [想要重新定义“健康”这个词，](http://vitals.lifehacker.com/the-fda-wants-to-know-what-you-think-healthy-means-1787183344#_ga=1.171251043.255842443.1487643310) 这些食物可能会加入这个俱乐部。
 

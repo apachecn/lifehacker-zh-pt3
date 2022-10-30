@@ -1,6 +1,6 @@
 # 使用这些应用程序可以轻松地向保释基金捐款
 
-> 原文:[https://life hacker . com/use-these-apps-to-easy-duate-to-bail-funds-1820935748](https://lifehacker.com/use-these-apps-to-easily-donate-to-bail-funds-1820935748)
+> 原文：<https://lifehacker.com/use-these-apps-to-easily-donate-to-bail-funds-1820935748>
 
 现金保释是司法系统中不成比例地伤害低收入人群的(许多)因素之一。这是改革和行动主义的一个热点问题，两个新的应用程序可以帮助你为这项事业做出贡献。
 

@@ -1,6 +1,6 @@
 # 用披萨刀切你刚学会走路的孩子的食物
 
-> 原文:[https://life hacker . com/cut-your-tubbles-food with a pizza-cutter-1826001312](https://lifehacker.com/cut-your-toddlers-food-with-a-pizza-cutter-1826001312)
+> 原文：<https://lifehacker.com/cut-your-toddlers-food-with-a-pizza-cutter-1826001312>
 
 当你为一个蹒跚学步的孩子准备一顿饭时，你不能被刀的低效所困扰，这种工具需要你用双手将食物切成安全、易处理的小块。不，外面有更好的生活，你可以打开厨房抽屉，拿起一把披萨刀来打开它。
 

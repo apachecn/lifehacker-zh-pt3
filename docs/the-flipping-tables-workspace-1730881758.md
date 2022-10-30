@@ -1,6 +1,6 @@
 # 翻转表格工作区
 
-> 原文:[https://life hacker . com/the-flipping-tables-workspace-1730881758](https://lifehacker.com/the-flipping-tables-workspace-1730881758)
+> 原文：<https://lifehacker.com/the-flipping-tables-workspace-1730881758>
 
 有些人喜欢把 [励志海报](http://lifehacker.com/the-inspirational-workspace-1609671537) 或 [全家福照片](http://lifehacker.com/the-gallery-wall-workspace-510669002) 挂在工作间上方。但对鲍勃·茹伊(Bob Jouy)来说并非如此，他的主工作区墙壁只是展示了翻转桌子的表情符号。
 

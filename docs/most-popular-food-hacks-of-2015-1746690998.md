@@ -1,6 +1,6 @@
 # 2015 年最受欢迎的美食
 
-> 原文:[https://life hacker . com/most-popular-food-hacks-of-2015-1746690998](https://lifehacker.com/most-popular-food-hacks-of-2015-1746690998)
+> 原文：<https://lifehacker.com/most-popular-food-hacks-of-2015-1746690998>
 
 烹饪技巧不仅仅是给美食家的。我们每天都在吃饭(除非你是机器人)，更好的烹饪意味着更健康的食物，更美味的饭菜，甚至可能节省一些现金。以下是我们 2015 年的最佳美食秘诀。
 

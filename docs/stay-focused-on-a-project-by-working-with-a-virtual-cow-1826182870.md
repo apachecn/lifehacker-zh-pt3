@@ -1,6 +1,6 @@
 # 通过与数字伙伴配对，提高在家工作的效率
 
-> 原文:[https://life hacker . com/stay-focus-on-a-work-by-a-virtual-cow-1826182870](https://lifehacker.com/stay-focused-on-a-project-by-working-with-a-virtual-cow-1826182870)
+> 原文：<https://lifehacker.com/stay-focused-on-a-project-by-working-with-a-virtual-cow-1826182870>
 
 在家工作很辛苦。不可避免的是，每当你坐下来做一个大项目时，你会想起你真的需要洗一堆衣服，或者打扫浴室，或者做任何你实际上不需要做的事情。
 

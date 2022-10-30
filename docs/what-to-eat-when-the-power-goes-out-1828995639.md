@@ -1,6 +1,6 @@
 # 停电了吃什么
 
-> 原文:[https://life hacker . com/1828995639](https://lifehacker.com/what-to-eat-when-the-power-goes-out-1828995639)
+> 原文：<https://lifehacker.com/what-to-eat-when-the-power-goes-out-1828995639>
 
 忘了牛奶和鸡蛋吧:如果停电了，你最不想要的就是一冰箱的易腐食品。取而代之的是，我们应该储备些什么，以及如何为断电做好准备。
 

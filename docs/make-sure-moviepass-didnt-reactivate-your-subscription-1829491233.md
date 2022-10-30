@@ -1,6 +1,6 @@
 # 确保 MoviePass 没有重新激活您的订阅
 
-> 原文:[https://life hacker . com/make-sure-movie pass-not-reactivate-your-subscription-1829491233](https://lifehacker.com/make-sure-moviepass-didnt-reactivate-your-subscription-1829491233)
+> 原文：<https://lifehacker.com/make-sure-moviepass-didnt-reactivate-your-subscription-1829491233>
 
 如果您取消了 MoviePass 订阅，请检查您的电子邮件和垃圾邮件文件夹中是否有主题为“MoviePass 更新” 的电子邮件，因为 MoviePass 可能在未经您允许的情况下重新打开了您的订阅，您需要选择退出。
 

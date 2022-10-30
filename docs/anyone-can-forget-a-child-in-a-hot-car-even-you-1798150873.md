@@ -1,6 +1,6 @@
 # 任何人都可以忘记一个在炎热的汽车里的孩子——即使是你
 
-> 原文:[https://life hacker . com/任何人都可以忘记一个坐在热车里的孩子——即使是你——1798150873](https://lifehacker.com/anyone-can-forget-a-child-in-a-hot-car-even-you-1798150873)
+> 原文：<https://lifehacker.com/anyone-can-forget-a-child-in-a-hot-car-even-you-1798150873>
 
 我们都见过令人揪心的标题:“儿童因车内过热而死亡。”很可能，不管我们是不是父母，我们都对这种新闻有一些负面的反应，并想知道任何一种照顾者怎么会忘记一个孩子仍然被扣在汽车的后座上，而只是把他们留在那里？
 

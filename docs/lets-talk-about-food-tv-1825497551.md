@@ -1,6 +1,6 @@
 # 我们来谈谈美食电视
 
-> 原文:[https://lifehacker.com/lets-talk-about-food-tv-1825497551](https://lifehacker.com/lets-talk-about-food-tv-1825497551)
+> 原文：<https://lifehacker.com/lets-talk-about-food-tv-1825497551>
 
 大家好，欢迎回到 [*有什么好吃的？*](http://lifehacker.com/tag/whats-cooking) ，这是一个开放的话题，你可以在这里分享你对所有食物相关的想法、建议、食谱和观点。本周我想谈谈电视，特别是那些与烹饪和饮食有关的节目。(我还想说一下*割喉厨房*，更多的是复仇，但还是算的。)
 

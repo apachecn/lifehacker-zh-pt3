@@ -1,6 +1,6 @@
 # 本周末从 iTunes 上以巨大的折扣购买大量电影
 
-> 原文:[https://life hacker . com/buy-tons-at-a-big-discount-from-itunes-this-1827937794](https://lifehacker.com/buy-tons-of-movies-at-a-huge-discount-from-itunes-this-1827937794)
+> 原文：<https://lifehacker.com/buy-tons-of-movies-at-a-huge-discount-from-itunes-this-1827937794>
 
 如果你想在这个周末看一场精彩的电影来逃避炎热，苹果公司目前正在经营一笔相当惊人的交易，涉及近 900 种产品，可能会帮助你实现这个梦想，[*besappletv*报道](https://www.bestappletv.com/news/apple-discounts-almost-900-essentials-movies-in-itunes/) 。
 

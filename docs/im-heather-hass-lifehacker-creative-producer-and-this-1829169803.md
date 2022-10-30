@@ -1,6 +1,6 @@
 # 我是 Heather Hass，Lifehacker 创意制作人，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-heather-hass-life hacker-creative-producer-and-this-1829169803](https://lifehacker.com/im-heather-hass-lifehacker-creative-producer-and-this-1829169803)
+> 原文：<https://lifehacker.com/im-heather-hass-lifehacker-creative-producer-and-this-1829169803>
 
 每周，我们都会分享我们最喜欢的专家的快捷方式、工作空间和生产力提示。本周，我们将来到 Lifehacker 的幕后。我是希瑟·哈斯，这就是我的工作方式。
 

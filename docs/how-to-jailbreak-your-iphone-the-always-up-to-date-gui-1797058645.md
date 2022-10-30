@@ -1,6 +1,6 @@
 # 如何越狱你的 iPhone:永远最新的指南[iOS 10]
 
-> 原文:[https://life hacker . com/how-to-jailbreak-your-iphone-the-always-update-GUI-1797058645](https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-1797058645)
+> 原文：<https://lifehacker.com/how-to-jailbreak-your-iphone-the-always-up-to-date-gui-1797058645>
 
 破解你的 iOS 设备 一直是修补者和想要从 iPhone 或 iPad 获得更多功能的用户的一种消遣，尽管这种做法最近已经不再受欢迎。然而，解锁你的设备的过程从来不会停滞不前，所以我们在这里让你知道如何越狱你的设备。
 

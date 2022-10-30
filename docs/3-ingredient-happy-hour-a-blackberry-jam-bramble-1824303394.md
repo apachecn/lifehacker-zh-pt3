@@ -1,6 +1,6 @@
 # 三种配料的欢乐时光:黑莓果酱树莓
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-a-blackberry-jam-bramble-1824303394](https://lifehacker.com/3-ingredient-happy-hour-a-blackberry-jam-bramble-1824303394)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-a-blackberry-jam-bramble-1824303394>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。我这周在牛津，所以我想我们应该做一个精简版的非常英国的黑莓黑莓手机。
 

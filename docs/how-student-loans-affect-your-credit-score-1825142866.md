@@ -1,6 +1,6 @@
 # 学生贷款如何影响你的信用评分
 
-> 原文:[https://life hacker . com/how-student-loans-affect-your-credit-score-1825142866](https://lifehacker.com/how-student-loans-affect-your-credit-score-1825142866)
+> 原文：<https://lifehacker.com/how-student-loans-affect-your-credit-score-1825142866>
 
 我不会假装还清学生贷款是一种积极的财务体验，但对借款人来说有一点点好消息:如果你每月按时支付账单，你会看到你的信用评分稳步上升。如你所知，你将会在很长一段时间内支付你的学生贷款，信用记录的长度是你得分的一个重要部分，支付记录也是如此。所以，多年来按时还清这些债务能给你带来动力。
 

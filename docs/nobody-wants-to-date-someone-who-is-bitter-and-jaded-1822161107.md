@@ -1,6 +1,6 @@
 # 没有人想和一个痛苦而疲惫的人约会
 
-> 原文:[https://life hacker . com/nobody-want-to-date-someone-someone-the-bitter-and-jade-1822161107](https://lifehacker.com/nobody-wants-to-date-someone-who-is-bitter-and-jaded-1822161107)
+> 原文：<https://lifehacker.com/nobody-wants-to-date-someone-who-is-bitter-and-jaded-1822161107>
 
 如果你已经在约会现场呆了很长时间，你开始对这一切感到沮丧和失望，也许是时候后退一步，做一些调整了。我们把自己的感受投射给别人；人们在一英里之外就能感觉到你的消极观点，这会毁掉任何事情解决的机会。这似乎违反直觉，但你越是表现得好像事情永远不会有结果，你可能会孤独越久。
 

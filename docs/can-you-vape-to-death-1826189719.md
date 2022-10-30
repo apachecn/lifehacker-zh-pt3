@@ -1,6 +1,6 @@
 # 你会窒息而死吗？
 
-> 原文:[https://gizmodo.com/can-you-vape-to-death-1826189719](https://gizmodo.com/can-you-vape-to-death-1826189719)
+> 原文：<https://gizmodo.com/can-you-vape-to-death-1826189719>
 
 我从未想过我会看到这一天，但 va ping——尼古丁输送方法的宝石软呢帽——开始看起来不那么荒谬了。或者至少不那么荒谬。十几岁的青少年仍然很有趣。但与此同时，也有真正的、有资质的医生在为 vaping 作为传统吸烟的可行替代方案辩护。一位名叫 [的医生在接受《纽约客》](https://www.newyorker.com/magazine/2018/05/14/the-promise-of-vaping-and-the-rise-of-juul) 采访时声称，如果 10%的吸烟人口改用电子烟，将会挽救 660 万人的生命。当然，我们仍然不清楚长期风险可能是什么——一些研究表明，电子烟蒸汽可能是[含砷和铅](https://gizmodo.com/e-cig-vapor-tested-positive-for-lead-and-arsenic-in-new-1823235170) 。因此，如果我们都要转而使用 vaping，至少在短期内，知道它是否可能杀死你可能是有用的。
 

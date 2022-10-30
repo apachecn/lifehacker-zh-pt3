@@ -1,6 +1,6 @@
 # 如何防止家人和朋友窥探你的笔记本电脑和手机
 
-> 原文:[https://gizmodo . com/how-to-keep-you-on-snooping-yo-1822441499](https://gizmodo.com/how-to-keep-your-family-and-friends-from-snooping-on-yo-1822441499)
+> 原文：<https://gizmodo.com/how-to-keep-your-family-and-friends-from-snooping-on-yo-1822441499>
 
 当涉及到我们的手机和笔记本电脑时，我们中的许多人比以往任何时候都更加安全，但是有一种威胁你可能无法防范——你自己家里的人。无论你是担心爱管闲事的室友、笨手笨脚的孩子，还是可怕的兄弟姐妹，这些都是确保你的东西保持隐私的步骤。
 

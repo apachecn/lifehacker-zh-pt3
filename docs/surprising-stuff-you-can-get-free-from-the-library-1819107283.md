@@ -1,6 +1,6 @@
 # 吉他、3D 打印和其他你可以从图书馆免费得到的令人惊讶的东西
 
-> 原文:[https://life hacker . com/surprise-stuff-you-can-get-from-library-1819107283](https://lifehacker.com/surprising-stuff-you-can-get-free-from-the-library-1819107283)
+> 原文：<https://lifehacker.com/surprising-stuff-you-can-get-free-from-the-library-1819107283>
 
 你可能知道你当地的图书馆不仅提供书籍，还提供 DVD、CD、杂志、 [流媒体电影](https://lifehacker.com/now-you-can-stream-criterion-films-with-a-library-card-1797516428) ，以及 [电子书](https://lifehacker.com/how-to-load-up-your-ereader-with-ebooks-for-free-5856977#_ga=2.22293883.1161899640.1506969953-1297080755.1497980211) 。但它也可能提供一些更令人惊讶的物理项目。
 

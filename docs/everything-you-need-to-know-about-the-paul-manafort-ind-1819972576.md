@@ -1,6 +1,6 @@
 # 关于保罗·马纳福特的起诉你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-need-to-know-the-Paul-manafort-ind-1819972576](https://lifehacker.com/everything-you-need-to-know-about-the-paul-manafort-ind-1819972576)
+> 原文：<https://lifehacker.com/everything-you-need-to-know-about-the-paul-manafort-ind-1819972576>
 
 特朗普总统的竞选主席保罗·马纳福特(Paul Manafort)周一早上被起诉，并被命令向当局自首。根据《纽约时报》[](https://www.nytimes.com/2017/10/30/us/politics/paul-manafort-indicted.html)*的报道，他被指控“通过海外空壳公司转移数百万美元，并用这些钱购买豪车、房地产、古董和昂贵的西装”他的同伙里克·盖茨也被指控。《纽约时报》指出，这代表着“特别顾问调查的重大升级，给特朗普上任第一年蒙上了阴影。”*
 

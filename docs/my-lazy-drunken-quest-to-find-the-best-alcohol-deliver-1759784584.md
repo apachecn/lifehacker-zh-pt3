@@ -1,6 +1,6 @@
 # 我的懒惰，醉酒寻找最好的酒精输送应用程序
 
-> 原文:[https://gizmodo . com/my-lazy-fucked-quest-to-find-the-best-alcohol-deliver-1759784584](https://gizmodo.com/my-lazy-drunken-quest-to-find-the-best-alcohol-deliver-1759784584)
+> 原文：<https://gizmodo.com/my-lazy-drunken-quest-to-find-the-best-alcohol-deliver-1759784584>
 
 我喜欢喝酒。其实我喜欢喝酒多过喜欢动。就像，移动我的身体。有一次取消健身房会员资格时，我用了同样的话。他们不让我在电话里取消，所以当我最终去了健身房，被问及为什么要退出时，我只是说我喜欢喝酒多过喜欢运动。销售人员不知道该如何回答。
 

@@ -1,6 +1,6 @@
 # 该是你尝试用核桃制作自己的墨水的时候了
 
-> 原文:[https://life hacker . com/is-it-time-you-tryed-you-hand-at-making-DIY-ink-1819720551](https://lifehacker.com/is-it-time-you-tried-your-hand-at-making-diy-ink-1819720551)
+> 原文：<https://lifehacker.com/is-it-time-you-tried-your-hand-at-making-diy-ink-1819720551>
 
 上周五，当我们总结我们员工的每周更新时，我们的编辑正在探索正念冥想，给我们的生活增加额外的锻炼，并调整我们的娱乐习惯。
 

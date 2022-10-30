@@ -1,6 +1,6 @@
 # 如何立即获得 Windows 10 Spring Creators 更新
 
-> 原文:[https://life hacker . com/how-to-get-the-windows-10-spring-creators-update-right-1824715285](https://lifehacker.com/how-to-get-the-windows-10-spring-creators-update-right-1824715285)
+> 原文：<https://lifehacker.com/how-to-get-the-windows-10-spring-creators-update-right-1824715285>
 
 渴望得到微软 Windows 10 的春季创造者更新吗？如果您不能等待预定的更新，您有两个选择——一个简单的方法和一个更复杂的方法。
 

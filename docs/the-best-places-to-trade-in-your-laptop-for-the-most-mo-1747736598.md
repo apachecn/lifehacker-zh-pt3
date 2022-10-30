@@ -1,6 +1,6 @@
 # 以旧换新的最佳地点
 
-> 原文:[https://life hacker . com/the-best-places to-trade-in-your-the-most-mo-1747736598](https://lifehacker.com/the-best-places-to-trade-in-your-laptop-for-the-most-mo-1747736598)
+> 原文：<https://lifehacker.com/the-best-places-to-trade-in-your-laptop-for-the-most-mo-1747736598>
 
 准备好升级那台旧电脑了吗？有几个网站会让你用笔记本电脑换取现金或礼品卡，甚至支付运费。我研究了一些比较受欢迎的地方，你可以用你的笔记本电脑交易，看看哪些地方最划算。
 

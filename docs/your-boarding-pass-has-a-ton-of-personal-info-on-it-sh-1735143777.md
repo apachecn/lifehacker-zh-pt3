@@ -1,6 +1,6 @@
 # 你的登机牌上有大量的个人信息:粉碎它
 
-> 原文:[https://life hacker . com/your-boarding-pass-has-ton-of-personal-info-on-it-sh-1735143777](https://lifehacker.com/your-boarding-pass-has-a-ton-of-personal-info-on-it-sh-1735143777)
+> 原文：<https://lifehacker.com/your-boarding-pass-has-a-ton-of-personal-info-on-it-sh-1735143777>
 
 当你坐飞机回家时，你可能会忍不住扔掉你的登机牌。然而，这份文件包含了大量关于你的个人信息，其中一些并不明显。把它撕碎。
 

@@ -1,6 +1,6 @@
 # 如何使用 CloudReady 将旧笔记本电脑变成 Chromebook
 
-> 原文:[https://life hacker . com/turn-your-old-laptop-to-a-chrome book-with-cloud ready-1740556796](https://lifehacker.com/turn-your-old-laptop-into-a-chromebook-with-cloudready-1740556796)
+> 原文：<https://lifehacker.com/turn-your-old-laptop-into-a-chromebook-with-cloudready-1740556796>
 
 如果你已经有一段时间没有使用 Chromebook 了，那么它们已经走过了的漫长道路。但是你不需要为了运行 Chrome 操作系统而花钱买一台新的笔记本电脑。你可以将它安装在几乎任何装有 CloudReady 应用程序的笔记本电脑上。
 

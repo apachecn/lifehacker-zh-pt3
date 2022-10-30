@@ -1,6 +1,6 @@
 # 如何停止嫉妒同事的成功
 
-> 原文:[https://life hacker . com/how-to-stop-be-success-1796898482](https://lifehacker.com/how-to-stop-being-jealous-of-your-colleagues-success-1796898482)
+> 原文：<https://lifehacker.com/how-to-stop-being-jealous-of-your-colleagues-success-1796898482>
 
 “艺术家们请注意:有时你的朋友会取得成功，你会嫉妒，即使你不想这样，”作家兼 [恐龙漫画](http://www.qwantz.com/) 创作者瑞安·诺斯在 [励志推特帖子](https://twitter.com/ryanqnorth/status/885514597771468801) 中说道。他有两条应对嫉妒的建议，适用于任何嫉妒过同事的人
 

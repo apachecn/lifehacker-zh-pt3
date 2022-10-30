@@ -1,6 +1,6 @@
 # 乘车共享摊牌:优步 vs. Lyft
 
-> 原文:[https://life hacker . com/ride-sharing-摊牌-uber-vs-lyft-1735886651](https://lifehacker.com/ride-sharing-showdown-uber-vs-lyft-1735886651)
+> 原文：<https://lifehacker.com/ride-sharing-showdown-uber-vs-lyft-1735886651>
 
 优步和 Lyft 的拼车服务都可以让你轻松地用手机搭车，在几分钟内到达你要去的地方，并自动支付旅程费用，而不需要现金或信用卡。我们决定找出搭顺风车的最佳方式。
 

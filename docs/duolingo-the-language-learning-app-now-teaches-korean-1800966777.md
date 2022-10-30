@@ -1,6 +1,6 @@
 # 语言学习应用 Duolingo 现在教授韩语
 
-> 原文:[https://life hacker . com/duo lingo-the-language-learning-app-now-teaches-Korean-1800966777](https://lifehacker.com/duolingo-the-language-learning-app-now-teaches-korean-1800966777)
+> 原文：<https://lifehacker.com/duolingo-the-language-learning-app-now-teaches-korean-1800966777>
 
 Duolingo 最近在其应用程序中添加了一个很棒的日语课程，现在他们又推出了另一个很棒的韩语课程。对东亚语言感兴趣的好时机！
 

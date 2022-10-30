@@ -1,6 +1,6 @@
 # 当面试官想让你谈谈你自己时，该怎么说
 
-> 原文:[https://life hacker . com/1798731416](https://lifehacker.com/what-to-say-when-an-interviewer-wants-you-to-talk-about-1798731416)
+> 原文：<https://lifehacker.com/what-to-say-when-an-interviewer-wants-you-to-talk-about-1798731416>
 
 众所周知，求职面试压力很大。虽然你不可能准备好面试官会问你的每一个问题，但有几个问题你可以做好准备，这些问题可能会为接下来一个小时的面试定下基调。有人可能会问你的第一个问题是:“说说你自己吧。”
 

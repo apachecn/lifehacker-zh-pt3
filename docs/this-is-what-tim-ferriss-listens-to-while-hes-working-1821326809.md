@@ -1,6 +1,6 @@
 # 这是蒂姆·费里斯工作时听的
 
-> 原文:[https://life hacker . com/this-is-what-the-Tim-ferriss-listen-while-hes-work-1821326809](https://lifehacker.com/this-is-what-tim-ferriss-listens-to-while-hes-working-1821326809)
+> 原文：<https://lifehacker.com/this-is-what-tim-ferriss-listens-to-while-hes-working-1821326809>
 
 虽然我们中的一些人需要修道般的安静来完成任何与工作相关的事情，但很多人发现音乐有助于他们集中注意力。在我们与蒂姆·菲利斯 的 [升级剧集中，他告诉了我们他一整天都在听的歌曲。这里有一个纲要:](https://lifehacker.com/how-to-hack-your-life-with-tim-ferriss-1820972778)
 

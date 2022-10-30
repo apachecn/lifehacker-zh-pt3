@@ -1,6 +1,6 @@
 # 如何阻止你的智能电视跟踪你
 
-> 原文:[https://life hacker . com/how-to-stop-your-smart-TV-from-tracking-you-1827401614](https://lifehacker.com/how-to-stop-your-smart-tv-from-tracking-you-1827401614)
+> 原文：<https://lifehacker.com/how-to-stop-your-smart-tv-from-tracking-you-1827401614>
 
 如果你有一台智能电视，那么很有可能是桑巴电视，这种技术允许营销人员跟踪你正在观看的内容，以便他们可以向你发送与你的兴趣相关的广告(并提供节目推荐)。
 

@@ -1,6 +1,6 @@
 # 我需要一些便宜的东西，这样我就可以学习驾驶手动挡！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-something-cheap-so-I-can-learn-to-drive-stick-w-1819870737](https://jalopnik.com/i-need-something-cheap-so-i-can-learn-to-drive-stick-w-1819870737)
+> 原文：<https://jalopnik.com/i-need-something-cheap-so-i-can-learn-to-drive-stick-w-1819870737>
 
 布兰登今年 31 岁，一直后悔没有学会如何驾驶手动变速器。他想买一个便宜、有趣、有三个踏板的搅拌器来学习我们很多人都非常珍惜的技能。他应该买什么车？
 

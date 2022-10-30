@@ -1,6 +1,6 @@
 # 如何使用处方止痛药而不上瘾
 
-> 原文:[https://life hacker . com/how-to-use-处方药-止痛药-无药可救-add-1766834234](https://lifehacker.com/how-to-use-prescription-painkillers-without-getting-add-1766834234)
+> 原文：<https://lifehacker.com/how-to-use-prescription-painkillers-without-getting-add-1766834234>
 
 从标题来看，处方止痛药听起来很吓人。一些服用这些药物的人转而服用海洛因，一些人死于过量服用。问题如此严重，以至于美国食品和药物管理局已经强制要求使用关于滥用风险的黑盒警告标签 。但同时，这些药物是控制疼痛的常用和有用的工具。
 

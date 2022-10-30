@@ -1,6 +1,6 @@
 # 我需要一辆时尚又运动的车，可以传给我的孩子！我应该买什么？
 
-> 原文:[https://jalopnik . com/I-need-a-style-and-sport-car-the-I-can-hand-down-to 1793319714](https://jalopnik.com/i-need-a-stylish-and-sporty-car-that-i-can-hand-down-to-1793319714)
+> 原文：<https://jalopnik.com/i-need-a-stylish-and-sporty-car-that-i-can-hand-down-to-1793319714>
 
 保罗住在南加州，在那里形象就是一切。他想要时尚和运动的东西，但不要太夸张或太快，因为他打算几年后给女儿。他应该买什么车？
 

@@ -1,6 +1,6 @@
 # 这是你学习修理汽车的方法
 
-> 原文:[https://jalopnik . com/heres-how-you-can-learn-to-fix-cars-1728657805](https://jalopnik.com/heres-how-you-can-learn-to-fix-cars-1728657805)
+> 原文：<https://jalopnik.com/heres-how-you-can-learn-to-fix-cars-1728657805>
 
 很多人想学修车，但不知道怎么修。不要害怕，干净的人们，因为我们有办法让你像我们一样变得又油腻又难闻！
 

@@ -1,6 +1,6 @@
 # 机顶盒对决:Apple TV vs. Nexus Player vs. Roku 4
 
-> 原文:[https://life hacker . com/set-top-box-摊牌-apple-TV-vs-nexus-player-vs-ROK-1754810806](https://lifehacker.com/set-top-box-showdown-apple-tv-vs-nexus-player-vs-rok-1754810806)
+> 原文：<https://lifehacker.com/set-top-box-showdown-apple-tv-vs-nexus-player-vs-rok-1754810806>
 
 制造机顶盒的公司几乎和你发誓总有一天会去看的电视节目一样多。今天，我们来看看其中的三款:苹果电视、Nexus 播放器和 Roku 4。
 

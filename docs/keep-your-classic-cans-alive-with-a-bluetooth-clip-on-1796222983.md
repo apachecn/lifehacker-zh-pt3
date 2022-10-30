@@ -1,6 +1,6 @@
 # 用蓝牙夹住，让你的经典罐头保持活力
 
-> 原文:[https://life hacker . com/keep-your-classic-cans-alive-with-a-bluetooth-clip-on-1796222983](https://lifehacker.com/keep-your-classic-cans-alive-with-a-bluetooth-clip-on-1796222983)
+> 原文：<https://lifehacker.com/keep-your-classic-cans-alive-with-a-bluetooth-clip-on-1796222983>
 
 我的一副 [Grado SR80e 耳机](http://lifehacker.com/headphone-showdown-grado-sr80e-vs-audio-technica-ath-m-1744161005) 是我最珍贵的财产之一。我喜欢躺在我的沙发上听专辑《今日》(我准备好了 [4:44](http://thegrapevine.theroot.com/jay-z-to-drop-new-album-4-44-on-june-30-1796218730) )。但多亏了苹果勇敢的决定，取消了耳机插孔，我不能在没有 Lightning 适配器的情况下将我的 SR80s 插入 iPhone 7，因为它，我还没有从我的 iPhone 6 升级。
 

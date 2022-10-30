@@ -1,6 +1,6 @@
 # 用这杯肮脏的姜味马提尼变得辛辣无比
 
-> 原文:[https://life hacker . com/get-彻头彻尾的辣配这个脏姜马丁尼-1828262002](https://lifehacker.com/get-downright-spicy-with-this-dirty-ginger-martini-1828262002)
+> 原文：<https://lifehacker.com/get-downright-spicy-with-this-dirty-ginger-martini-1828262002>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。今天我们带来了我长期以来最喜欢的两样东西——生姜和马丁尼酒——并将它们结合在一起，制成了我的新的最喜欢的东西。
 

@@ -1,6 +1,6 @@
 # 紧急避孕选择的基本指南
 
-> 原文:[https://life hacker . com/a-basic-guide-to-your-emergency-避孕-选项-1767668047](https://lifehacker.com/a-basic-guide-to-your-emergency-contraception-options-1767668047)
+> 原文：<https://lifehacker.com/a-basic-guide-to-your-emergency-contraception-options-1767668047>
 
 如果避孕套破了，如果你漏了一片药，如果你被袭击了，你担心会生孩子，你可能还有时间阻止怀孕。你必须迅速行动(几天内)，你有三种选择:非处方药片、处方药片或铜宫内节育器。这些中的任何一种，及时服用，都有很好的机会防止怀孕。
 

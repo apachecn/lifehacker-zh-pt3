@@ -1,6 +1,6 @@
 # 土耳其小跑投掷，第 2 周:数你的节奏
 
-> 原文:[https://life hacker . com/turkey-trot-throwdown-week-2-count-your-cadence-1787715892](https://lifehacker.com/turkey-trot-throwdown-week-2-count-your-cadence-1787715892)
+> 原文：<https://lifehacker.com/turkey-trot-throwdown-week-2-count-your-cadence-1787715892>
 
 你已经设定了目标，希望现在已经跑了几圈。(如果不是，那就是 [再出发](http://vitals.lifehacker.com/everything-you-need-to-know-to-start-running-1787655831) 也不迟！)现在是时候仔细看看*你是如何*跑步的了。现在修正你的形式，将来你就能跑得更快更顺。我们从简单的事情开始:数一数你每分钟走了多少步。
 

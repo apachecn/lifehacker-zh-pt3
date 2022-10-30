@@ -1,6 +1,6 @@
 # 打开顽固开心果的最简单方法
 
-> 原文:[https://life hacker . com/the-two-easy-ways-open-a-concerned-a-开心果-1793674910](https://lifehacker.com/the-two-easiest-ways-to-open-a-stubborn-pistachio-1793674910)
+> 原文：<https://lifehacker.com/the-two-easiest-ways-to-open-a-stubborn-pistachio-1793674910>
 
 大多数开心果很容易打开，但每个袋子都有一些顽固分子:那些外壳上只有最小开口的坚果，就像令人讨厌的假笑。不过，没必要为了进去而弄坏你的指甲或牙齿！我们有两种简单的方法来解决棘手的问题。
 

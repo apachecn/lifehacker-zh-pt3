@@ -1,6 +1,6 @@
 # 如何回到(或开始)魔兽世界:艾泽拉斯之战
 
-> 原文:[https://life hacker . com/how-to-get-back-to-or-start-world-of-war craft-batt-1828304676](https://lifehacker.com/how-to-get-back-into-or-start-world-of-warcraft-batt-1828304676)
+> 原文：<https://lifehacker.com/how-to-get-back-into-or-start-world-of-warcraft-batt-1828304676>
 
 今天对于暴雪娱乐公司的大型多人在线游戏《魔兽世界》来说是个大日子。该游戏的第七个资料片将于下午 3 点(太平洋时间)正式对北美玩家开放，确保许多极客今晚将跳过晚餐——或订购——因为他们在睡觉前狼吞虎咽地吃尽可能多的内容。
 

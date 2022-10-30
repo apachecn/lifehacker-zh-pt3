@@ -1,6 +1,6 @@
 # Lifehacker 金钱挑战赛又回来了！
 
-> 原文:[https://life hacker . com/the-life hacker-money-challenge-is-back-1790627747](https://lifehacker.com/the-lifehacker-money-challenge-is-back-1790627747)
+> 原文：<https://lifehacker.com/the-lifehacker-money-challenge-is-back-1790627747>
 
 欢迎来到第二届年度生活黑客终极金钱挑战赛。在考虑了您的反馈后，我们决定再次挑战您，在全年中每月设定一个新的财务目标。这个月的？30 天储蓄挑战。
 

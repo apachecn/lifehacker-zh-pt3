@@ -1,6 +1,6 @@
 # 如何为你的房子选择合适的壁纸
 
-> 原文:[https://life hacker . com/how-to-choose-the-right-the-wallpaper-for-your house-1739118197](https://lifehacker.com/how-to-choose-the-right-wallpaper-for-your-house-1739118197)
+> 原文：<https://lifehacker.com/how-to-choose-the-right-wallpaper-for-your-house-1739118197>
 
 你记得的祖母家那种亮黄色墙纸的日子已经一去不复返了。是时候再给壁纸一次机会，作为油漆的替代品了。以下是如何选择最适合你家的壁纸。
 

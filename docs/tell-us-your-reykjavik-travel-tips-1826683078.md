@@ -1,6 +1,6 @@
 # 告诉我们你的雷克雅未克旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Reykjavik-travel-tips-1826683078](https://lifehacker.com/tell-us-your-reykjavik-travel-tips-1826683078)
+> 原文：<https://lifehacker.com/tell-us-your-reykjavik-travel-tips-1826683078>
 
 我们都有一个不停谈论雷克雅未克的朋友吗？“哦，我想念雷克雅未克。雷克雅未克改变了我的生活。也许我会搬到雷克雅未克。你知道吗，由于火山活动，我被困在雷克雅未克两个月了。”我们明白了，朋友，你非常老练，像冰岛人一样裹着毛皮。现在给我们一些旅行建议，同时你也可以找到其他一些有百年历史的欧洲首都来“发现”
 

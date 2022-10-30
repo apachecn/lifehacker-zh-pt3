@@ -1,6 +1,6 @@
 # 我们测试了 Pinterest 的天然复活节彩蛋染料配方
 
-> 原文:[https://life hacker . com/we-tryed-Pinterest-s-natural-Easter-egg-dye-recipes-1794226854](https://lifehacker.com/we-tried-pinterest-s-natural-easter-egg-dye-recipes-1794226854)
+> 原文：<https://lifehacker.com/we-tried-pinterest-s-natural-easter-egg-dye-recipes-1794226854>
 
 真的可以用蔬菜下脚料等土有机的东西做出彩虹所有颜色的染料吗？大量 Pinterest 帖子声称你可以。我们想确定一下。所以我们测试了一些食谱，发现有些效果很好，而有些只是给你不同深浅的棕色。
 

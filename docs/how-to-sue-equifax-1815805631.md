@@ -1,6 +1,6 @@
 # 如何起诉 Equifax
 
-> 原文:[https://lifehacker.com/how-to-sue-equifax-1815805631](https://lifehacker.com/how-to-sue-equifax-1815805631)
+> 原文：<https://lifehacker.com/how-to-sue-equifax-1815805631>
 
 Watch
 

@@ -1,6 +1,6 @@
 # 帮助你保持专注的七种方法
 
-> 原文:[https://life hacker . com/seven-methods-to-help-you-stay-focused-1792791055](https://lifehacker.com/seven-methods-to-help-you-stay-focused-1792791055)
+> 原文：<https://lifehacker.com/seven-methods-to-help-you-stay-focused-1792791055>
 
 现在有多少事情在争夺你的注意力？你的电话？邮件？懈怠？推特？似乎还在不断增长的烦人的待办事项清单？现代科技给了我们这么多令人惊奇的东西，但其中一个令人尴尬的副作用一直是，不管我们愿不愿意，它都有能力干扰我们。
 

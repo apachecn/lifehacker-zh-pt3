@@ -1,6 +1,6 @@
 # 用这款奶昔快速制作香蕉布丁
 
-> 原文:[https://life hacker . com/get-a-quick-香蕉布丁-fix-with this-milk shake-1827489850](https://lifehacker.com/get-a-quick-banana-pudding-fix-with-this-milkshake-1827489850)
+> 原文：<https://lifehacker.com/get-a-quick-banana-pudding-fix-with-this-milkshake-1827489850>
 
 如果说生活在南方有什么让我怀念的话，那就是能够大摇大摆地走进杂货店，买一盒塑料蛤壳状的像样的香蕉布丁。现在，如果我想要一个好的' T0 ' un，我必须自己做，这需要更多的等待，我无法忍受。
 

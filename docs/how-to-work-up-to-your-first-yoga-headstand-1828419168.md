@@ -1,6 +1,6 @@
 # 如何练习你的第一个瑜伽倒立
 
-> 原文:[https://life hacker . com/how-to-work-up-to-your ' s first yoga-倒立-1828419168](https://lifehacker.com/how-to-work-up-to-your-first-yoga-headstand-1828419168)
+> 原文：<https://lifehacker.com/how-to-work-up-to-your-first-yoga-headstand-1828419168>
 
 倒立很难，但是 [我在进步](https://vitals.lifehacker.com/how-to-approach-handstands-when-youre-still-kinda-scare-1828256190) 。既然我们这个月的重点是 [颠倒过来](https://lifehacker.com/let-s-get-upside-down-for-the-august-fitness-challenge-1828029407) ，不管你喜欢什么方式，我想我也应该尝试一些瑜伽倒立。我今天做了第一次倒立！
 

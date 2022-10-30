@@ -1,6 +1,6 @@
 # 将手机交给某人之前，放大照片
 
-> 原文:[https://life hacker . com/zoom-on-photos-before-hand-someone-1795587203](https://lifehacker.com/zoom-in-on-photos-before-handing-someone-your-phone-1795587203)
+> 原文：<https://lifehacker.com/zoom-in-on-photos-before-handing-someone-your-phone-1795587203>
 
 当你把手机递给某人给他们看照片时，你应该相信他们不会去翻看你的相机胶卷。但是我们生活在一个堕落的世界。违反借手机礼仪最严重的是年长的亲戚和姻亲——同样是那些最害怕看到你的裸体，或者更糟糕的是，你的 20 张自拍的人。
 

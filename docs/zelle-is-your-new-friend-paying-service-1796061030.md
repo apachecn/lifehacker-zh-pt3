@@ -1,6 +1,6 @@
 # Zelle 是你的新朋友付费服务
 
-> 原文:[https://life hacker . com/zelle-is-your ' s new-friend-paying-service-1796061030](https://lifehacker.com/zelle-is-your-new-friend-paying-service-1796061030)
+> 原文：<https://lifehacker.com/zelle-is-your-new-friend-paying-service-1796061030>
 
 你可能已经习惯了在晚上外出后用你最喜欢的朋友支付应用程序支付你的朋友。对他们来说不幸的是，像 Venmo 和 Square 这样的单一用途支付应用可能会面临来自他们最大的威胁:实际银行的竞争。
 

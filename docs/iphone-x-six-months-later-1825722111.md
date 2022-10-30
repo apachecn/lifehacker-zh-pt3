@@ -1,6 +1,6 @@
 # iPhone X:六个月后
 
-> 原文:[https://gizmodo.com/iphone-x-six-months-later-1825722111](https://gizmodo.com/iphone-x-six-months-later-1825722111)
+> 原文：<https://gizmodo.com/iphone-x-six-months-later-1825722111>
 
 iPhone X 发布已经六个月了，有一点是成立的:它仍然很贵。然而，尽管我恨我自己 [买了一部 1000 美元的手机](https://gizmodo.com/im-going-to-buy-the-iphone-x-and-i-hate-myself-for-it-1804418016) ，尽管我恨我自己 [喜欢它](https://gizmodo.com/i-hate-how-much-i-love-the-iphone-x-1820086867) ，与 iPhone X 相处半年揭示了一些新的真相。第一，当 Jony Ive [说 Face ID 比看起来更重要时，他是对的。第二，苹果对卓越质量控制的把握正在下滑。第三，一旦你爱上了 iPhone X，就没有回头路了。](https://9to5mac.com/2017/10/11/jony-ive-interview-iphone-x/)
 

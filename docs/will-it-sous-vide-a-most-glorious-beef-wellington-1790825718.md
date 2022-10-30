@@ -1,6 +1,6 @@
 # 它会腐烂吗？最棒的威灵顿牛肉
 
-> 原文:[https://life hacker . com/will-it-sous-vide-a-most-glorious-beef-Wellington-1790825718](https://lifehacker.com/will-it-sous-vide-a-most-glorious-beef-wellington-1790825718)
+> 原文：<https://lifehacker.com/will-it-sous-vide-a-most-glorious-beef-wellington-1790825718>
 
 你好，烹饪烹饪的朋友们，欢迎回到非常放纵的一集 [*它会烹饪吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

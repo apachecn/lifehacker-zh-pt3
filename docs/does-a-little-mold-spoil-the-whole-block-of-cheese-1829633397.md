@@ -1,6 +1,6 @@
 # 一点霉菌会糟蹋整块奶酪吗？
 
-> 原文:[https://the take out . com/does-a little-mold-spoil-the-whole-block of-cheese-1829633397](https://thetakeout.com/does-a-little-mold-spoil-the-whole-block-of-cheese-1829633397)
+> 原文：<https://thetakeout.com/does-a-little-mold-spoil-the-whole-block-of-cheese-1829633397>
 
 我可能不应该对这个事实感到惊讶:我看到一篇文章说 [如果你在面包上发现一块霉菌](https://thetakeout.com/last-call-can-you-cut-out-the-mold-from-your-bread-and-1829207004) ，你必须扔掉整个面包，因为霉菌的“触角”很可能已经侵入了整个面包。带着惊慌，我把这个消息告诉了我的丈夫，他说他在五年级的时候就知道了(不，应该注意的是，这导致他更快地扔掉发霉的面包)。当我在五年级的时候，我正在学习耶稣在十字架的车站跌倒了多少次(三次)，而不是这种潜在的救命的防霉信息。
 

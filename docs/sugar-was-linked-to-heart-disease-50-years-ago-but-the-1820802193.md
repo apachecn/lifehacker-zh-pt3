@@ -1,6 +1,6 @@
 # 50 年前，糖与心脏病有关联，但该行业掩盖了这一点
 
-> 原文:[https://life hacker . com/sugar-50 年前-but-the-1820802193](https://lifehacker.com/sugar-was-linked-to-heart-disease-50-years-ago-but-the-1820802193)
+> 原文：<https://lifehacker.com/sugar-was-linked-to-heart-disease-50-years-ago-but-the-1820802193>
 
 糖对我们的健康有害，不仅仅是因为甜食含有大量的卡路里。大量的研究表明，相同卡路里的糖和其他食物对我们的身体会产生非常不同的影响。新的研究表明，糖业试图隐藏这些发现。
 

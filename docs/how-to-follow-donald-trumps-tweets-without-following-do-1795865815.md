@@ -1,6 +1,6 @@
 # 如何关注唐纳德·特朗普的推文而不关注唐纳德·特朗普
 
-> 原文:[https://life hacker . com/how-to-follow-Donald-trump-tweets-without-follow-do-1795865815](https://lifehacker.com/how-to-follow-donald-trumps-tweets-without-following-do-1795865815)
+> 原文：<https://lifehacker.com/how-to-follow-donald-trumps-tweets-without-following-do-1795865815>
 
 去年 12 月，德莫斯行动政策分析师肖恩·麦克埃尔韦在推特上写道:“很可能在我的余生中，我没有一天不想起唐纳德·川普，这太可怕了。”。也许有一天我们会比我们想象中的特朗普活得长，但现在他是不可能逃脱的。鉴于他对制造新闻的推特的偏好，甚至有必要关注一下现代美国最令人讨厌的总统的个人推特账户。但是有办法不用关注@RealDonaldTrump 就可以关注推文。
 

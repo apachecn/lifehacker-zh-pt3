@@ -1,6 +1,6 @@
 # 每个人都在撒谎如何让你的肚子变平
 
-> 原文:[https://life hacker . com/everybody-is lie-about-how to flat your-body-1819778439](https://lifehacker.com/everybody-is-lying-about-how-to-flatten-your-belly-1819778439)
+> 原文：<https://lifehacker.com/everybody-is-lying-about-how-to-flatten-your-belly-1819778439>
 
 核心锻炼会增强你的腹肌，但它们对身体上的脂肪层 毫无作用。同样，没有任何腿部运动能让你的大腿更苗条。这就是所谓的“减少斑点”，不管你从头条和推特上看到什么关于收缩你的特定身体部位——从展平你的腹部到做一些“惊人的”锻炼纤细的手臂——斑点锻炼可以很好地增强你的肌肉，但将达不到它们不科学的承诺。
 

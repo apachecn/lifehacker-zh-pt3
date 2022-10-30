@@ -1,6 +1,6 @@
 # 苹果 iPhone 发布会上的 5 个重要声明
 
-> 原文:[https://life hacker . com/the-5-announcements-from-apple-iphone-event-that-actual-1829008155](https://lifehacker.com/the-5-announcements-from-apples-iphone-event-that-actua-1829008155)
+> 原文：<https://lifehacker.com/the-5-announcements-from-apples-iphone-event-that-actua-1829008155>
 
 苹果今天早些时候举行了一年一度的 9 月活动，宣布了一款新的 iPhone(实际上是几款)，一款新的 Apple Watch，以及一些其他好东西。
 

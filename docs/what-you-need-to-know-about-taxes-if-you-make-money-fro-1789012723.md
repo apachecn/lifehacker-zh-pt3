@@ -1,6 +1,6 @@
 # 如果你想从零工经济中赚钱，你需要了解什么税收
 
-> 原文:[https://life hacker . com/what-you-need-know-on-tax-if-you-make-money-fro-1789012723](https://lifehacker.com/what-you-need-to-know-about-taxes-if-you-make-money-fro-1789012723)
+> 原文：<https://lifehacker.com/what-you-need-to-know-about-taxes-if-you-make-money-fro-1789012723>
 
 如果你想在 之外赚取额外的 [现金，从](https://lifehacker.com/the-complete-guide-to-making-money-in-your-spare-time-1291903155) [Airbnb](https://www.airbnb.com/) 到 [Lyft](https://www.lyft.com/) 到 [Etsy](https://www.etsy.com/) 有很多选择。你可能听说过这被称为演出、共享或按需经济。不管你怎么称呼它，如果你以这种方式获得任何收入，你都必须考虑税收。以下是你需要知道的。
 

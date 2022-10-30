@@ -1,6 +1,6 @@
 # 对待第一次约会，就像他们可能是特别的一样
 
-> 原文:[https://life hacker . com/treat-first-dates-like-they-can-be-special-1827920194](https://lifehacker.com/treat-first-dates-like-they-could-be-special-1827920194)
+> 原文：<https://lifehacker.com/treat-first-dates-like-they-could-be-special-1827920194>
 
 明智的做法是，不要在第一次约会时给自己太多压力，以免产生过高的期望。你只会让自己紧张，可能会让你的约会对象不舒服。但是，我们是否在另一个方向走得太远了？是时候停止把第一次约会当成煎锅上的第一块薄饼了。不要喂关系狗。
 

@@ -1,6 +1,6 @@
 # 一劳永逸地克服你的耳机和电线杂乱
 
-> 原文:[https://life hacker . com/conquer-your-headphone-and-cord-clutter-only-for-al-1818995219](https://lifehacker.com/conquer-your-headphone-and-cord-clutter-once-and-for-al-1818995219)
+> 原文：<https://lifehacker.com/conquer-your-headphone-and-cord-clutter-once-and-for-al-1818995219>
 
 上次我们登记员工的每周更新时，我们的编辑正在 DIY 水獭汽水，穿着盐水凉鞋四处泼水，为即将到来的寒冷月份装载舒适的配件。
 

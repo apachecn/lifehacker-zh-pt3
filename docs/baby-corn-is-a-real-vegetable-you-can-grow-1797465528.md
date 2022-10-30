@@ -1,6 +1,6 @@
 # 小玉米是一种你可以种植的真正的蔬菜
 
-> 原文:[https://life hacker . com/baby-corn-is-a-real-vegetable-you-can-grow-1797465528](https://lifehacker.com/baby-corn-is-a-real-vegetable-you-can-grow-1797465528)
+> 原文：<https://lifehacker.com/baby-corn-is-a-real-vegetable-you-can-grow-1797465528>
 
 我发誓这些照片不是假的。我在后院种玉米，很容易。你所要做的，就是种植真正的玉米。
 

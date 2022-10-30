@@ -1,6 +1,6 @@
 # 如何在飞机上挑选最舒适、最宽敞的座位
 
-> 原文:[https://life hacker . com/how-to-pick-the-most-comfort-wide-seats-on-an-1824287468](https://lifehacker.com/how-to-pick-the-most-comfortable-spacious-seats-on-an-1824287468)
+> 原文：<https://lifehacker.com/how-to-pick-the-most-comfortable-spacious-seats-on-an-1824287468>
 
 如果有人知道如何让飞机乘坐更舒适，那就是飞行员。那架飞机是他们的办公室，他们知道所有的秘密。这里有一些来自专业飞行员的建议，告诉你如何让天空对你更友好一点。
 

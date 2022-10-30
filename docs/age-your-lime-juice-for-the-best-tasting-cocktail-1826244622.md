@@ -1,6 +1,6 @@
 # 陈化你的酸橙汁，调制出味道最好的鸡尾酒
 
-> 原文:[https://life hacker . com/age-your-lime-juice-for-the-best-tasting-cocktail-1826244622](https://lifehacker.com/age-your-lime-juice-for-the-best-tasting-cocktail-1826244622)
+> 原文：<https://lifehacker.com/age-your-lime-juice-for-the-best-tasting-cocktail-1826244622>
 
 新鲜的酸橙汁是许多优质饮料的关键成分，我一直认为你希望它越新鲜越好。事实证明，这种想法是愚蠢的。为了品尝最好的饮料，你需要让你的果汁陈酿一段时间——最好是 4 到 10 个小时。
 

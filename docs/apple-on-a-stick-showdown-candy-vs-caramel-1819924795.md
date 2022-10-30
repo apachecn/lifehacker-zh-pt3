@@ -1,6 +1,6 @@
 # 苹果棒对决:糖果大战焦糖
 
-> 原文:[https://life hacker . com/apple-on-a-stick-down-candy-vs-caramel-1819924795](https://lifehacker.com/apple-on-a-stick-showdown-candy-vs-caramel-1819924795)
+> 原文：<https://lifehacker.com/apple-on-a-stick-showdown-candy-vs-caramel-1819924795>
 
 一个苹果挂在棍子上，包裹着某种含糖的粘性物质，是一种令人愉快的秋季美食。苹果有两种最常见的选择，一种是鲜红色的糖衣，另一种是浓郁的焦糖色，显然一种比另一种更好。
 

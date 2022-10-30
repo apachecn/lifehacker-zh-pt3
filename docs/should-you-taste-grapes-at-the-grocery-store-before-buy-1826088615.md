@@ -1,6 +1,6 @@
 # 在购买之前，你应该在杂货店品尝葡萄吗？
 
-> 原文:[https://the take out . com/should-you-taste-in-the-secretary-store-before-buy-1826088615](https://thetakeout.com/should-you-taste-grapes-at-the-grocery-store-before-buy-1826088615)
+> 原文：<https://thetakeout.com/should-you-taste-grapes-at-the-grocery-store-before-buy-1826088615>
 
 像许多在办公室工作的人一样，我们洋葱公司经常使用 Slack，从“那篇文章到底在哪里？”(使用更好的语言)，投票决定每周员工会议的午餐应该吃什么。(还有，要追踪 [可爱狗狗的 Instagrams](https://thetakeout.com/last-call-it-s-friday-so-here-are-some-dog-instagrams-1825786453) 和各种穆勒调查更新。)然而，偶尔，我们松散的思路会出一点差错，上周就发生了这种情况，多达几十条消息、几千个单词和几个宝贵的工作时间。
 

@@ -1,6 +1,6 @@
 # 用玩具装饰你孩子的生日蛋糕
 
-> 原文:[https://life hacker . com/用玩具装饰你的孩子的生日蛋糕-1829537087](https://lifehacker.com/decorate-your-kids-birthday-cake-with-toys-1829537087)
+> 原文：<https://lifehacker.com/decorate-your-kids-birthday-cake-with-toys-1829537087>
 
 当我还是个孩子的时候，生日蛋糕有简单的装饰:一些糖霜，蜡烛，也许还有用 3 号红色食用染料手写的贵宾的名字。但是时代变了。如今，似乎没有一个孩子的派对是完整的，没有一个充满糖分的杰作，比如闪亮的独角兽头像或闪电麦昆赛车。虽然这一趋势可能对 Instagram 照片有利，但对父母的预算来说却是个坏消息。
 

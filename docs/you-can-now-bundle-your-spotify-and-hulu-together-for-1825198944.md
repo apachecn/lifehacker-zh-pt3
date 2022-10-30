@@ -1,6 +1,6 @@
 # 你现在可以以每月 12.99 美元的价格将 Spotify 和 Hulu 捆绑在一起
 
-> 原文:[https://life hacker . com/you-can-now-bundle-your-Spotify-and-Hulu-for-1825198944](https://lifehacker.com/you-can-now-bundle-your-spotify-and-hulu-together-for-1825198944)
+> 原文：<https://lifehacker.com/you-can-now-bundle-your-spotify-and-hulu-together-for-1825198944>
 
 如果你已经是 Spotify 的高级客户，我们为你提供了一个交易:现在你可以以每月 12.99 美元 的价格获得 Spotify 和 Hulu 有限商业计划 [。](https://www.spotify.com/us/hulu/premium-intro/) 
 

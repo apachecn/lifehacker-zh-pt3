@@ -1,6 +1,6 @@
 # 2018 年相当于平衡你的支票簿是多少？
 
-> 原文:[https://life hacker . com/whats-the-2018-equivalent-of-balancing-your ' s checkbook-1825328695](https://lifehacker.com/whats-the-2018-equivalent-of-balancing-your-checkbook-1825328695)
+> 原文：<https://lifehacker.com/whats-the-2018-equivalent-of-balancing-your-checkbook-1825328695>
 
 过去，你每个月都会拿着银行对账单、收据和支票登记簿坐下来，确保你所有的存款和取款都有条不紊。
 

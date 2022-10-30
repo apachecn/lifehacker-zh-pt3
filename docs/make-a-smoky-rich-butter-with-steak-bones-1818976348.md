@@ -1,6 +1,6 @@
 # 用牛排骨头做一道烟熏味浓郁的黄油
 
-> 原文:[https://life hacker . com/make-a-smoky-rich-butter-with the steak-bones-1818976348](https://lifehacker.com/make-a-smoky-rich-butter-with-steak-bones-1818976348)
+> 原文：<https://lifehacker.com/make-a-smoky-rich-butter-with-steak-bones-1818976348>
 
 牛排一直是我最喜欢的蛋白质，我更喜欢带骨的那种。但是，一旦肉吃完了，马丁尼酒喝完了，扔掉骨头似乎总是有点令人难过，因为骨头太小了，做不出可观的肉汤。
 

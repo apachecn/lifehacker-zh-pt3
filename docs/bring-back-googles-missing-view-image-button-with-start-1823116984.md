@@ -1,6 +1,6 @@
 # 如何找回谷歌丢失的“查看图片”按钮
 
-> 原文:[https://life hacker . com/bring-back-Google-missing-view-image-button-with-start-1823116984](https://lifehacker.com/bring-back-googles-missing-view-image-button-with-start-1823116984)
+> 原文：<https://lifehacker.com/bring-back-googles-missing-view-image-button-with-start-1823116984>
 
 如果你经常使用谷歌的图片搜索，那么你可能会注意到 [公司最近从搜索结果中移除了“查看图片”按钮](https://www.lifehacker.com.au/2018/02/what-happened-to-google-image-search-and-why-you-can-no-longer-view-images-directly/) 。
 

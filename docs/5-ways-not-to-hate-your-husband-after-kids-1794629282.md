@@ -1,6 +1,6 @@
 # 有了孩子后不恨你丈夫的 5 种方法
 
-> 原文:[https://life hacker . com/5-ways-not-hate-your-waves-after-children-1794629282](https://lifehacker.com/5-ways-not-to-hate-your-husband-after-kids-1794629282)
+> 原文：<https://lifehacker.com/5-ways-not-to-hate-your-husband-after-kids-1794629282>
 
 自从我结婚以来，我的“爱的语言”已经成为从地板上捡起你的垃圾的爱的语言——因为没有什么比像 1950 年代的家庭主妇那样在某人身后打扫卫生更快地扼杀浪漫或性欲。然而，这是许多异性恋新父母的准则:女人，不管她是否工作，都将承担抚养孩子和家务的大部分劳动(大部分是看不见的)。在有孩子之前，我们可能已经有了平等的关系；我们可能会预计，有了孩子后，我们会享受到一种原始的公平分工，但当真正的孩子出生时——嗯，这可能就像一颗炸弹在你的婚姻中爆炸。
 

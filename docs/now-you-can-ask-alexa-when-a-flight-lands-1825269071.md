@@ -1,6 +1,6 @@
 # 现在你可以问 Alexa 航班什么时候着陆
 
-> 原文:[https://life hacker . com/now-you-can-ask-Alexa-when-a-flight-lands-1825269071](https://lifehacker.com/now-you-can-ask-alexa-when-a-flight-lands-1825269071)
+> 原文：<https://lifehacker.com/now-you-can-ask-alexa-when-a-flight-lands-1825269071>
 
 从机场接人是一项复杂的工作。如果你朋友的航班延误了，那么你可能会花更多的时间在机场的手机停车场，如果航班提前到达，你要去接的人可能会花更多的时间在路边。
 

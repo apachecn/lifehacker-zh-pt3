@@ -1,6 +1,6 @@
 # 有毒的万圣节糖果不是东西
 
-> 原文:[https://life hacker . com/poised-万圣节-糖果不是东西-1819963358](https://lifehacker.com/poisoned-halloween-candy-is-not-a-thing-1819963358)
+> 原文：<https://lifehacker.com/poisoned-halloween-candy-is-not-a-thing-1819963358>
 
 每年万圣节前夕，这些警示性的报道似乎都会重新浮出水面:“不要让你的小食尸鬼和男孩们被有毒的糖果所欺骗，这些糖果可能会杀死他们！请继续关注 11 点的新闻报道。”我从小就听到过同样的警告，当我试图通过一个塑料大鸟面罩呼吸时。
 

@@ -1,6 +1,6 @@
 # “斯堪的纳维亚电影”和其他冰上驾驶技巧的秘密
 
-> 原文:[https://jalopnik . com/secrets-of-the-Scandinavia-flick-and-other-ice-driving-1823342444](https://jalopnik.com/secrets-of-the-scandinavian-flick-and-other-ice-driving-1823342444)
+> 原文：<https://jalopnik.com/secrets-of-the-scandinavian-flick-and-other-ice-driving-1823342444>
 
 加拿大的冬天让你想到曲棍球、热巧克力或者...根本不出门。但如果你有一辆 [2018 款保时捷 911 C4S](https://jalopnik.com/tag/porsche-911) 和一个冰冻的刹车垫，相信我，冒着严寒是值得的。
 

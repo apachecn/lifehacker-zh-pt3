@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:冬天的汽酒
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-winter-was sail-spritz-1821311690](https://lifehacker.com/3-ingredient-happy-hour-winter-wassail-spritz-1821311690)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-winter-wassail-spritz-1821311690>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。继续我的趋势，把冬天的温暖变成寒冷的啜饮，我想向你介绍我的朋友，冬天的 Wassail Spritz。
 

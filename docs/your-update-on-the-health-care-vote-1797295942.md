@@ -1,6 +1,6 @@
 # 你对医疗改革投票的最新报道
 
-> 原文:[https://life hacker . com/your-update-on-the-health-care-vote-1797295942](https://lifehacker.com/your-update-on-the-health-care-vote-1797295942)
+> 原文：<https://lifehacker.com/your-update-on-the-health-care-vote-1797295942>
 
 自周二 以来，参议院已经否决了两项不同的共和党医疗保健法案。一个是参议院 ACA 的替代者，BCRA；另一个是“废除和延迟”法案。《纽约时报》有一个 [细目表，列出了谁投了什么](https://www.nytimes.com/interactive/2017/07/25/us/politics/senate-votes-repeal-obamacare.html?_r=1) 。但是还有更多的。
 

@@ -1,6 +1,6 @@
 # 它会腐烂吗？美味的鳄鱼咬伤
 
-> 原文:[https://life hacker . com/will-it-sous-vide-tasty-gator-bites-1794729955](https://lifehacker.com/will-it-sous-vide-tasty-gator-bites-1794729955)
+> 原文：<https://lifehacker.com/will-it-sous-vide-tasty-gator-bites-1794729955>
 
 大家好，欢迎回到非常精彩的 [*版本，它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我*通常*用我的沉浸循环器做任何你想让我做的事。
 

@@ -1,6 +1,6 @@
 # 使用 Botlist 查找有用的机器人来改善您的生活
 
-> 原文:[https://life hacker . com/find-help-bots-to-improve-your-life with-botlist-1796806590](https://lifehacker.com/find-helpful-bots-to-improve-your-life-with-botlist-1796806590)
+> 原文：<https://lifehacker.com/find-helpful-bots-to-improve-your-life-with-botlist-1796806590>
 
 Slack 和 Facebook Messenger 等消息服务只是你可以玩机器人的几个地方，机器人是在应用程序或平台内提供服务的程序。有了 [Botlist](http://botlist.co) ，你可以找到一个机器人来满足你对各种服务的需求，包括可以节省你通勤时间的机器人，帮助你转换文件的机器人，以及通过帮助你记录菜肴来让你节食的机器人。
 

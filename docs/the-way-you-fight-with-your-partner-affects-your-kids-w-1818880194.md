@@ -1,6 +1,6 @@
 # 你和伴侣吵架的方式会影响孩子的健康
 
-> 原文:[https://life hacker . com/the-way-you-fight-with-you-partner-affects-your-kids-w-1818880194](https://lifehacker.com/the-way-you-fight-with-your-partner-affects-your-kids-w-1818880194)
+> 原文：<https://lifehacker.com/the-way-you-fight-with-your-partner-affects-your-kids-w-1818880194>
 
 所有的夫妻都会有分歧，但是一项新的研究表明，你如何处理这些分歧会对你孩子的幸福产生深远的影响。亚利桑那大学 [的研究人员在三个“波”中调查了父母的冲突和孩子的幸福](https://uanews.arizona.edu/story/parents-how-you-manage-conflict-has-impact-your-kids) ，从怀孕开始到孩子三岁结束。研究生 Olena Kopystynska 和她的同事在一篇将发表在《家庭心理学杂志》上的论文中总结道，虽然“建设性的”冲突可能是有益的，甚至是有益的，但“破坏性的”冲突会侵蚀儿童的情感安全感。
 

@@ -1,6 +1,6 @@
 # 如何抢救一本水毁的书
 
-> 原文:[https://life hacker . com/how-to-salvage-a-water-damaged-book-1819045436](https://lifehacker.com/how-to-salvage-a-water-damaged-book-1819045436)
+> 原文：<https://lifehacker.com/how-to-salvage-a-water-damaged-book-1819045436>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-S9_fwmdCyzo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-S9_fwmdCyzo&start=0) 
 

@@ -1,6 +1,6 @@
 # 下午 2 点 18 分，你的手机会发出一声巨响
 
-> 原文:[https://life hacker . com/expect-a-loud-noise-from-your-cell-phone-at-2-18-pm-1829489066](https://lifehacker.com/expect-a-loud-noise-from-your-cell-phone-at-2-18-pm-1829489066)
+> 原文：<https://lifehacker.com/expect-a-loud-noise-from-your-cell-phone-at-2-18-pm-1829489066>
 
 今天下午 2 点 18 分，无论你在哪里，做好准备迎接一声巨响。不，没什么事；只是 P 居民(和联邦紧急事务管理署)给你发信息。
 

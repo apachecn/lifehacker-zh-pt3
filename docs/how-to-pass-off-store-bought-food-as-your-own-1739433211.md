@@ -1,6 +1,6 @@
 # 如何将商店买的食物冒充为自己的
 
-> 原文:[https://life hacker . com/how-to-pass-off-store-bud-food-as-your own-1739433211](https://lifehacker.com/how-to-pass-off-store-bought-food-as-your-own-1739433211)
+> 原文：<https://lifehacker.com/how-to-pass-off-store-bought-food-as-your-own-1739433211>
 
 从现在起到 1 月 2 日，你将被邀请参加许多家庭聚会、鸡尾酒会和晚宴。如果你热爱烹饪，制作和带来一些东西不会是一个问题，但如果你有一个年轻的 [谢尔·霍洛维茨](https://twentyishdotcom.files.wordpress.com/2014/08/clueless-honey-you-tried.gif?w=500&h=281) 的烘焙技能，你可能需要撒谎。我说的“撒谎”是指“买一些你没有做的食物，假装你做了。”这不诚实，也不公正，甚至也不容易，但这是可以做到的。
 

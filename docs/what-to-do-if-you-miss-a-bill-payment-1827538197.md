@@ -1,6 +1,6 @@
 # 如果您错过了账单支付，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-miss-a-bill-payment-1827538197](https://lifehacker.com/what-to-do-if-you-miss-a-bill-payment-1827538197)
+> 原文：<https://lifehacker.com/what-to-do-if-you-miss-a-bill-payment-1827538197>
 
 错误时有发生。错过(或跳过)一两次账单支付并不是世界末日，但如果你不迅速解决它，它可能会产生严重的后果——包括费用、更高的利率、信用评分上的污点、扣发工资或收债人的来访。
 

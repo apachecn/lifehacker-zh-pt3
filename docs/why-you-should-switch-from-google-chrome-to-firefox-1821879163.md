@@ -1,6 +1,6 @@
 # 为什么你应该从谷歌浏览器转向火狐浏览器
 
-> 原文:[https://life hacker . com/why-you-should-switch-from-Google-chrome-to-Firefox-1821879163](https://lifehacker.com/why-you-should-switch-from-google-chrome-to-firefox-1821879163)
+> 原文：<https://lifehacker.com/why-you-should-switch-from-google-chrome-to-firefox-1821879163>
 
 自首次亮相以来，Chrome 越来越受欢迎，尽管其曾经辉煌的声誉最近受到了一些打击。 [纯 Chrome 网站的例子越来越常见](https://www.theverge.com/2018/1/4/16805216/google-chrome-only-sites-internet-explorer-6-web-standards) ，让人想起微软的 ie 浏览器统治网络浏览器市场的日子。它也被证明是一个 [巨大的内存猪](https://lifehacker.com/why-chrome-uses-so-much-freaking-ram-1702537477) ，当用户创建越来越多的标签时，会降低机器的速度。如果你正在寻找 2018 年的改变，为什么不从你的浏览器开始呢？抛弃 Chrome，转而使用其长期竞争对手 Mozilla Firefox。它与 Chrome 一样快，如果不是更快的话，并且集成了一些工具来增强你的在线隐私，同时使你更容易分享和保存你在网上找到的一切。
 

@@ -1,6 +1,6 @@
 # 以下是 Chrome 新安全警告的实际含义
 
-> 原文:[https://life hacker . com/heres-what-chromes-new-security-warnings-actually-mean-1827836754](https://lifehacker.com/heres-what-chromes-new-security-warnings-actually-mean-1827836754)
+> 原文：<https://lifehacker.com/heres-what-chromes-new-security-warnings-actually-mean-1827836754>
 
 Chrome 粉丝可能已经注意到他们的浏览器今天有了一点变化。假设你运行的是 Chrome 的最新版本 68， [现在每当你打开一个以 http://而不是 https://开头的网站时，你都会在地址栏看到一个大大的“不安全”按钮](https://www.troyhunt.com/why-no-https-heres-the-worlds-largest-websites-not-redirecting-insecure-requests/) 。(值得一提的是，我使用的是 Chrome 版本 67.0.3396.99，每当页面有数据输入字段时，它也会在那里弹出。)
 

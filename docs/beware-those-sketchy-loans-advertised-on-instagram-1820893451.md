@@ -1,6 +1,6 @@
 # 当心那些在 Instagram 上做广告的粗略贷款
 
-> 原文:[https://life hacker . com/feel-these-sketchy-loans-advertised-on-Instagram-1820893451](https://lifehacker.com/beware-those-sketchy-loans-advertised-on-instagram-1820893451)
+> 原文：<https://lifehacker.com/beware-those-sketchy-loans-advertised-on-instagram-1820893451>
 
 我们之前已经警告过读者，像 Affirm 这样的新的、狡猾的信贷公司想要用整合到在线购物页面的现场贷款取代信用卡。尽管这些公司口口声声说要帮助消费者，但它们只不过是友好的高利贷者，换了个牌子，提供“优质体验”，但仍然危险，甚至具有掠夺性。现在，《T4》T5 栏目记者苏西·卡格尔深入报道了《申明》 ，权衡利弊，评估公司高管和发言人的说法。
 

@@ -1,6 +1,6 @@
 # 如何在没有排气扇的情况下去除厨房异味
 
-> 原文:[https://life hacker . com/how-to-de-stinked-your ' s kitchen-no-a exhaust-fan-1796024592](https://lifehacker.com/how-to-de-stink-your-kitchen-without-an-exhaust-fan-1796024592)
+> 原文：<https://lifehacker.com/how-to-de-stink-your-kitchen-without-an-exhaust-fan-1796024592>
 
 如果你的厨房没有排气扇，你可能会觉得你不得不放弃烹饪某些食物，这些食物往往会在气味上逗留。幸运的是，你的油炸和高温炙烤的日子还没有过去，因为有几个策略可以让你在吃了一顿特别辛辣的饭后除臭和提神。
 

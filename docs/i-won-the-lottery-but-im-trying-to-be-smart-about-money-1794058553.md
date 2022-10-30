@@ -1,6 +1,6 @@
 # 我中了彩票，但我在努力理财！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-win-the-lottery-but-im-try-to-smart-on-money-1794058553](https://jalopnik.com/i-won-the-lottery-but-im-trying-to-be-smart-about-money-1794058553)
+> 原文：<https://jalopnik.com/i-won-the-lottery-but-im-trying-to-be-smart-about-money-1794058553>
 
 尼克很自然地中了彩票，他正在考虑买什么样的车来挥霍金钱。但是尼克没有赢得数百万美元，所以他想要一些适中的，但仍然相当不错的东西。他应该买什么车？
 

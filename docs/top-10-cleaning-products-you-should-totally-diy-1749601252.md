@@ -1,6 +1,6 @@
 # 你应该完全 DIY 的 10 大清洁产品
 
-> 原文:[https://life hacker . com/top-10-cleaning-products-you-should-total-DIY-1749601252](https://lifehacker.com/top-10-cleaning-products-you-should-totally-diy-1749601252)
+> 原文：<https://lifehacker.com/top-10-cleaning-products-you-should-totally-diy-1749601252>
 
 当你自己制作洗涤剂和其他清洁溶液时，你不仅可以控制你使用的成分，还可以节省一大笔钱。无论如何，这些原料通常已经放在你家里了。这里有 10 种你完全可以自己制作的清洁产品和工具。
 

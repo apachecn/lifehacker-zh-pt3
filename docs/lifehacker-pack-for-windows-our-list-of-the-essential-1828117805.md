@@ -1,6 +1,6 @@
 # 2018 年必备的 Windows 应用
 
-> 原文:[https://life hacker . com/life hacker-pack-for-windows-our-list-of-essential-1828117805](https://lifehacker.com/lifehacker-pack-for-windows-our-list-of-the-essential-1828117805)
+> 原文：<https://lifehacker.com/lifehacker-pack-for-windows-our-list-of-the-essential-1828117805>
 
 市面上有如此多的 Windows 应用程序，以至于为你的台式机或笔记本电脑挑选一个最好的、最必须安装的软件令人望而生畏。我们仔细研究了几页的推荐、无数的论坛帖子和大量的评论，得出了今年的 Lifehacker Pack for Windows，这是一份涵盖四个类别的软件冠军名单:生产力；互联网和通信；音乐、照片和视频；和公用事业。
 

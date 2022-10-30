@@ -1,6 +1,6 @@
 # 炒韭菜放在炒鸡蛋里很好吃
 
-> 原文:[https://life hacker . com/fried-leek-greens-is-excellent-on-炒鸡蛋-1825902069](https://lifehacker.com/fried-leek-greens-are-excellent-on-scrambled-eggs-1825902069)
+> 原文：<https://lifehacker.com/fried-leek-greens-are-excellent-on-scrambled-eggs-1825902069>
 
 韭菜的绿色部分没有得到足够的爱。几乎每一个含有韭菜的食谱都告诉你，你不需要它们，它们太硬了，不值得你吃。这都是假的。虽然它们比白人同类更难对付，但在那些难以分解的细胞壁中，它们有很多味道，*和*它们是鸡蛋早餐的配料。
 

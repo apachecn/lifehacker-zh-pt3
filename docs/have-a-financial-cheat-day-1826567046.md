@@ -1,6 +1,6 @@
 # 度过一个财务欺诈日
 
-> 原文:[https://life hacker . com/have-a-financial-cheat-day-1826567046](https://lifehacker.com/have-a-financial-cheat-day-1826567046)
+> 原文：<https://lifehacker.com/have-a-financial-cheat-day-1826567046>
 
 坚持严格的财务计划就像遵循健康的饮食一样。你这样做是因为你知道这会让你现在感觉很好，并为你的未来做好准备。
 

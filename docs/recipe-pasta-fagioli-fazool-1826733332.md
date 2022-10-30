@@ -1,6 +1,6 @@
 # 可怜那些不喜欢意大利面的傻瓜
 
-> 原文:[https://the take out . com/recipe-pasta-fagioli-fazool-1826733332](https://thetakeout.com/recipe-pasta-fagioli-fazool-1826733332)
+> 原文：<https://thetakeout.com/recipe-pasta-fagioli-fazool-1826733332>
 
 如果你像我一样(来自新泽西州，姓氏以元音结尾)，你很可能是吃着“意大利面 fazool”长大的，早在我们发现它实际上是“意大利面 fagioli”之前——技术上是意大利面 e fagioli 或“意大利面和豆子”那不勒斯人有他们自己的一组方言，称之为“fasule”，因此是意大利-美国发音。
 

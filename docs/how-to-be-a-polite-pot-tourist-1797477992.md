@@ -1,6 +1,6 @@
 # 如何做一个有礼貌的大麻游客
 
-> 原文:[https://life hacker . com/how-to-be-a-pleative-pot-tourism-1797477992](https://lifehacker.com/how-to-be-a-polite-pot-tourist-1797477992)
+> 原文：<https://lifehacker.com/how-to-be-a-polite-pot-tourist-1797477992>
 
 上周末，我买了一些大麻。不是从朋友的朋友的朋友那里，而是从科罗拉多州博尔德的一家药房。博尔德和科罗拉多的其他地方一样，有娱乐性的大麻药房，在那里你可以合法地购买大麻。很酷。
 

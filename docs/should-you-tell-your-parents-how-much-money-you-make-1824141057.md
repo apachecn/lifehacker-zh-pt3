@@ -1,6 +1,6 @@
 # 你应该告诉你的父母你挣多少钱吗？
 
-> 原文:[https://life hacker . com/should-you-tell-you-parents-how-much-money-you-make-1824141057](https://lifehacker.com/should-you-tell-your-parents-how-much-money-you-make-1824141057)
+> 原文：<https://lifehacker.com/should-you-tell-your-parents-how-much-money-you-make-1824141057>
 
 我得到第一份工作后做的第一件事就是给父母打电话。我分析了利弊，阐述了它将如何有助于我的职业生涯，并惊叹于我不知何故在新闻业找到了一份全职工作，有福利和一切。这似乎好得令人难以置信。
 

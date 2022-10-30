@@ -1,6 +1,6 @@
 # 一个团体的 25%可以改变每个人的行为
 
-> 原文:[https://life hacker . com/25-of-a-group-can-change-everyones-behavior-1828589265](https://lifehacker.com/25-of-a-group-can-change-everyones-behavior-1828589265)
+> 原文：<https://lifehacker.com/25-of-a-group-can-change-everyones-behavior-1828589265>
 
 在 [【引爆点】理论](https://www.newyorker.com/magazine/1996/06/03/the-tipping-point) 的一个非常简单的版本中，一篇新论文称，在 10 到 10 万人的群体中， [只需 25-31%的群体就能为整个群体树立新的行为规范](http://coglode.com/gem/the-25-percent-rule) 。这一发现仅来自一项使用在线参与者的研究，因此其结果不应被夸大，但它至少显示了一种一致的模式，即少数群体成员如何改变大多数人的想法。
 

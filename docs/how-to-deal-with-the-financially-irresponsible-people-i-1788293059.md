@@ -1,6 +1,6 @@
 # 如何应对生活中在财务上不负责任的人
 
-> 原文:[https://life hacker . com/how-to-deal-the-financial-不负责任的人-i-1788293059](https://lifehacker.com/how-to-deal-with-the-financially-irresponsible-people-i-1788293059)
+> 原文：<https://lifehacker.com/how-to-deal-with-the-financially-irresponsible-people-i-1788293059>
 
 对于那些试图过上或保持财务责任生活的人来说，最大的挑战之一就是在他们的生活中存在财务上不负责任的人。有些人利用社会压力来说服你做出错误的消费选择或养成不良的财务习惯。有人利用他们与你的关系来说服你给他们钱。有些人会问你借钱，却从来不还。你甚至可能有人会直接动用你的资金，并把它们用于不必要的用途。
 

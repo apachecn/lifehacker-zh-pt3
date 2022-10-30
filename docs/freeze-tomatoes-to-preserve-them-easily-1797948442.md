@@ -1,6 +1,6 @@
 # 冷冻西红柿以便于保存
 
-> 原文:[https://life hacker . com/freeze-tomatos-to-preserve-them-easy-1797948442](https://lifehacker.com/freeze-tomatoes-to-preserve-them-easily-1797948442)
+> 原文：<https://lifehacker.com/freeze-tomatoes-to-preserve-them-easily-1797948442>
 
 浪费一个好的西红柿是一件可怕的事情，但是罐装看起来像是一件令人出汗的家务。幸运的是，厨房有一个快速简单的方法不用加热就能保存它们:冷冻。
 

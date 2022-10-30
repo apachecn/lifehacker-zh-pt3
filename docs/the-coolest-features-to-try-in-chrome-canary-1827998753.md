@@ -1,6 +1,6 @@
 # Chrome Canary 中最酷的功能
 
-> 原文:[https://life hacker . com/the-cool-features-to-try-in-chrome-canary-1827998753](https://lifehacker.com/the-coolest-features-to-try-in-chrome-canary-1827998753)
+> 原文：<https://lifehacker.com/the-coolest-features-to-try-in-chrome-canary-1827998753>
 
 谷歌 Chrome 的标准版或“ [稳定版](https://www.chromestatus.com/features/schedule) ”提供了大量方便的定制和生活质量改善，但如果你想在其他人之前获得最新的实验功能，你会想看看 [Chrome 金丝雀](https://www.google.com/chrome/canary/) 。
 

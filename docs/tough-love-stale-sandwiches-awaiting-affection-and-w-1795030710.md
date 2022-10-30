@@ -1,6 +1,6 @@
 # 艰难的爱:不新鲜的三明治，等待爱情，写一条出路
 
-> 原文:[https://life hacker . com/tough-love-stale-sandwich-waiting-emotion-and-w-1795030710](https://lifehacker.com/tough-love-stale-sandwiches-awaiting-affection-and-w-1795030710)
+> 原文：<https://lifehacker.com/tough-love-stale-sandwiches-awaiting-affection-and-w-1795030710>
 
 你有问题，我有建议。这个建议不是糖衣——事实上，它是无糖的，甚至可能有点苦。欢迎来到艰难的爱。
 

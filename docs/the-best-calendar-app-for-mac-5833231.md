@@ -1,6 +1,6 @@
 # 适用于 Mac 的最佳日历应用
 
-> 原文:[https://life hacker . com/the-best-calendar-app-for-MAC-5833231](https://lifehacker.com/the-best-calendar-app-for-mac-5833231)
+> 原文：<https://lifehacker.com/the-best-calendar-app-for-mac-5833231>
 
 你的 Mac 附带了一个完美的日历应用程序，但它缺乏高级功能、查看日历的多种方式以及外部服务集成。除此之外，我们喜欢幻想。
 

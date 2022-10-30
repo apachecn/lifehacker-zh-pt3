@@ -1,6 +1,6 @@
 # 2018 年必备的 Mac 应用
 
-> 原文:[https://life hacker . com/life hacker-pack-for-MAC-my-list-of-essential-MAC-635303836](https://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836)
+> 原文：<https://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836>
 
 有很多很棒的应用程序可以安装在你的 Mac 上——毫无疑问。从*必备*应用中分离出令人惊奇的应用是困难的部分，我们不希望你花几个小时分析 Mac 应用商店(或浏览网页)来找到最好和最有用的应用。我们列出了四个类别的冠军:生产力；互联网和通信；音乐、照片和视频；和公用事业。
 

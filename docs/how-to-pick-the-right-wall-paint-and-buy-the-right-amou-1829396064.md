@@ -1,6 +1,6 @@
 # 如何挑选合适的墙面漆并购买适量的墙面漆
 
-> 原文:[https://life hacker . com/how-to-pick-the-right-wall-paint-and-buy-the-right-amou-1829396064](https://lifehacker.com/how-to-pick-the-right-wall-paint-and-buy-the-right-amou-1829396064)
+> 原文：<https://lifehacker.com/how-to-pick-the-right-wall-paint-and-buy-the-right-amou-1829396064>
 
 Watch
 

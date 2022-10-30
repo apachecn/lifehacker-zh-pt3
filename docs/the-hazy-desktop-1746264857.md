@@ -1,6 +1,6 @@
 # 模糊的桌面
 
-> 原文:[https://lifehacker.com/the-hazy-desktop-1746264857](https://lifehacker.com/the-hazy-desktop-1746264857)
+> 原文：<https://lifehacker.com/the-hazy-desktop-1746264857>
 
 晴朗的天空是最理想的，但是乔格尔梅斯特 成功地将这个朦胧的城市景观变成了一个非凡的桌面。如果你喜欢这个造型，这里有一些你需要的东西，让它成为你自己的风格。
 

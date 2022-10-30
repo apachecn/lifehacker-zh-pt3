@@ -1,6 +1,6 @@
 # 如何阻止别人的情绪让你情绪低落
 
-> 原文:[https://life hacker . com/how-to-stop-other-people-emotions-from-bring-you-do-1740969184](https://lifehacker.com/how-to-stop-other-peoples-emotions-from-bringing-you-do-1740969184)
+> 原文：<https://lifehacker.com/how-to-stop-other-peoples-emotions-from-bringing-you-do-1740969184>
 
 移情是 [拥有](https://lifehacker.com/why-empathy-is-your-most-important-skill-and-how-to-pr-1505011685) 的一项了不起的技能，但太多的移情会让你被他人的负面情绪淹没。以下是如何停止吸收你周围其他人的感受，同时仍然是一个善解人意的人。
 

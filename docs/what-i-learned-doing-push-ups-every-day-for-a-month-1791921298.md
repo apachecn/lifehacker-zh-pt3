@@ -1,6 +1,6 @@
 # 一个月来每天做俯卧撑我学到了什么
 
-> 原文:[https://life hacker . com/what-I-learned-doing-俯卧撑-每天一个月-1791921298](https://lifehacker.com/what-i-learned-doing-push-ups-every-day-for-a-month-1791921298)
+> 原文：<https://lifehacker.com/what-i-learned-doing-push-ups-every-day-for-a-month-1791921298>
 
 一月初，我偶然看到一个你可能看过的视频:一个年轻女子 [做俯卧撑 100 天](https://www.youtube.com/watch?v=gu_1L6XJM-c) 。她开始“骨瘦如柴”，但变得更强。我想这么做。我做到了，你也可以。
 

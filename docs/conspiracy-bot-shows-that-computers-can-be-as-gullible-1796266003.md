@@ -1,6 +1,6 @@
 # 阴谋机器人表明，计算机可以像人类一样容易受骗
 
-> 原文:[https://life hacker . com/阴谋论-bot-shows-that-computers-can-as-glible-1796266003](https://lifehacker.com/conspiracy-bot-shows-that-computers-can-be-as-gullible-1796266003)
+> 原文：<https://lifehacker.com/conspiracy-bot-shows-that-computers-can-be-as-gullible-1796266003>
 
 计算机现在相信阴谋论。 [*新调查*的 Francis Tseng 训练了一个机器人](https://thenewinquiry.com/you-probably-think-this-bot-is-about-you/) 来识别照片中的模式，并在相似的照片之间画出链接，形成那种在*国土*剧集的最后一幕或 Reddit 的首页看到的阴谋论图。这是一个提醒我们人类容易受骗的可爱把戏(嘿，也许那些照片*和*匹配！)，而且我们训练出来替我们思考的机器最终也会同样容易受骗。
 

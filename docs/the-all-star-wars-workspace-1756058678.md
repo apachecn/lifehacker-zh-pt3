@@ -1,6 +1,6 @@
 # 全明星工作区
 
-> 原文:[https://life hacker . com/the-all-star-wars-workspace-1756058678](https://lifehacker.com/the-all-star-wars-workspace-1756058678)
+> 原文：<https://lifehacker.com/the-all-star-wars-workspace-1756058678>
 
 卡罗琳娜真的很爱《星球大战》，我们也不能怪她。我们也不能因为这个令人惊叹的黑白工作区而责怪她，这里挤满了主题合适的人物、玩具和一些其他惊喜，以及充满了坚实的技术。
 

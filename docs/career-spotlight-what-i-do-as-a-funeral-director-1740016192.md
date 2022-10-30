@@ -1,6 +1,6 @@
 # 职业聚焦:我作为一名丧葬承办人做什么
 
-> 原文:[https://life hacker . com/career-spot light-what-I-do-as-a-葬礼导演-1740016192](https://lifehacker.com/career-spotlight-what-i-do-as-a-funeral-director-1740016192)
+> 原文：<https://lifehacker.com/career-spotlight-what-i-do-as-a-funeral-director-1740016192>
 
 亲人去世后做安排是人生不可避免的一部分，对有些人来说也是一份工作。葬礼承办人帮助悲痛的家庭驾驭令人生畏的，也许是意想不到的死亡官僚主义。
 

@@ -1,6 +1,6 @@
 # 播种西红柿是浪费时间(和味道)
 
-> 原文:[https://life hacker . com/seeding-tomatos-is-a-waste-of-time-and-flavor-1828862333](https://lifehacker.com/seeding-tomatoes-is-a-waste-of-time-and-flavor-1828862333)
+> 原文：<https://lifehacker.com/seeding-tomatoes-is-a-waste-of-time-and-flavor-1828862333>
 
 [旺季西红柿](https://lifehacker.com/every-way-to-eat-a-tomato-before-the-season-is-over-1785479848) 只需要盐、胡椒和*也许*一点点橄榄油就能真正发光。那么，为什么新鲜的番茄酱配方需要你去皮、去核、去籽，或者用其他方式去破坏这种美丽的配料呢？
 

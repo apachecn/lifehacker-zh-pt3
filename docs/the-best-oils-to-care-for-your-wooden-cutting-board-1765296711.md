@@ -1,6 +1,6 @@
 # 护理木制砧板的最佳油
 
-> 原文:[https://life hacker . com/the-best-oils-to-care-for-your-wood-cut-board-1765296711](https://lifehacker.com/the-best-oils-to-care-for-your-wooden-cutting-board-1765296711)
+> 原文：<https://lifehacker.com/the-best-oils-to-care-for-your-wooden-cutting-board-1765296711>
 
 当我第一次得到我的木制砧板时，我很高兴使用它，但也非常肯定我会毁了一切。我最终克服了它，但如果我有 Food 52 的全面指导来照顾这些东西，我会更快克服它。
 

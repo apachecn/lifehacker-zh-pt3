@@ -1,6 +1,6 @@
 # 如何在没有苹果帮助的情况下更换你的 iPhone 6 Plus 电池
 
-> 原文:[https://life hacker . com/how-to-replace-your-iphone-6-plus-battery-without-apple-1821991918](https://lifehacker.com/how-to-replace-your-iphone-6-plus-battery-without-apple-1821991918)
+> 原文：<https://lifehacker.com/how-to-replace-your-iphone-6-plus-battery-without-apple-1821991918>
 
 如果你还在用一部 [iPhone 6 加](https://lifehacker.com/whats-the-best-iphone-6-or-6-plus-case-1643884748) ，很有可能你的 [电池寿命](https://lifehacker.com/how-to-check-your-iphone-s-battery-life-1821645625) 相当糟糕。为我们几乎所有技术提供动力的 [锂电池](https://lifehacker.com/smartphone-battery-myths-explained-1735327089) 随着时间的推移会磨损，给大多数人留下三个选择:更换电池，购买新设备，或者受苦。
 

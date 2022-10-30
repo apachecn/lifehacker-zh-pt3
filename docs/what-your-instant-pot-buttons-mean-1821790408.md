@@ -1,6 +1,6 @@
 # 你的即时锅按钮意味着什么
 
-> 原文:[https://life hacker . com/what-your-instant-pot-buttons-mean-1821790408](https://lifehacker.com/what-your-instant-pot-buttons-mean-1821790408)
+> 原文：<https://lifehacker.com/what-your-instant-pot-buttons-mean-1821790408>
 
 速溶锅是一种非常安全、独立、多锅合一的产品，因此非常方便用户使用，但它的用户界面并不十分直观。有很多按钮，试图凭直觉知道它们到底做了什么会让人有一点感觉...有压力。
 

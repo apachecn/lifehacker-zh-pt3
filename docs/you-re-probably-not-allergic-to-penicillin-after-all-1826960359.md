@@ -1,6 +1,6 @@
 # 你可能对青霉素不过敏
 
-> 原文:[https://life hacker . com/you-re-possible-not-allergy to penicillin-after-1826960359](https://lifehacker.com/you-re-probably-not-allergic-to-penicillin-after-all-1826960359)
+> 原文：<https://lifehacker.com/you-re-probably-not-allergic-to-penicillin-after-all-1826960359>
 
 我大半辈子都以为自己对青霉素过敏。我小时候吃过一剂这种东西，得过荨麻疹，一位同样过敏的家庭成员教我在填写的每张医疗表格上寻找过敏部分，并确保在那一行写上“青霉素”。
 

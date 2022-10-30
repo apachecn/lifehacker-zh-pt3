@@ -1,6 +1,6 @@
 # 如何观看今晚的龙首流星雨
 
-> 原文:[https://life hacker . com/how-to-see-the-dragonid-meteor-showers-tonight-1829608065](https://lifehacker.com/how-to-see-the-draconid-meteor-showers-tonight-1829608065)
+> 原文：<https://lifehacker.com/how-to-see-the-draconid-meteor-showers-tonight-1829608065>
 
 一年一度的龙座流星雨的最佳观赏时间是 10 月 8 日星期一，也就是今晚，最佳能见度出现在傍晚时分。欢迎光临秋季派对。
 

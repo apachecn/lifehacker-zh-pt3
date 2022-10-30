@@ -1,6 +1,6 @@
 # 如何度过除夕的危险
 
-> 原文:[https://life hacker . com/how-to-survive-the-risks-of-new-years-eve-5871932](https://lifehacker.com/how-to-survive-the-perils-of-new-years-eve-5871932)
+> 原文：<https://lifehacker.com/how-to-survive-the-perils-of-new-years-eve-5871932>
 
 除夕夜可能是一年中最棒的派对之夜，但也可能是压力最大的一夜，从丢失手机到危险得多的开车回家。这里有一些你现在可以做的事情来保持新年的安全和理智。
 

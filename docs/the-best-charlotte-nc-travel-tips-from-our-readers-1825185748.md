@@ -1,6 +1,6 @@
 # 来自我们读者的最佳北卡罗来纳州夏洛特旅行提示
 
-> 原文:[https://life hacker . com/the-best-Charlotte-NC-travel-tips-from-our-readers-1825185748](https://lifehacker.com/the-best-charlotte-nc-travel-tips-from-our-readers-1825185748)
+> 原文：<https://lifehacker.com/the-best-charlotte-nc-travel-tips-from-our-readers-1825185748>
 
 读者 [Jeebs](http://lifehacker.com/1825102902) 是 [我们北卡罗来纳州夏洛特旅游贴士](https://lifehacker.com/tell-us-your-charlotte-nc-travel-tips-1825054177) 的最大撰稿人之一。这可能是一个低门槛，但友好的夏洛特读者(包括一些来自/r/Charlotte 的 [redditors)留下了超过 100 条评论，列出了他们城市的最佳之处。以下是他们的最佳建议。](https://www.reddit.com/r/Charlotte/comments/8ayrwo/lifehacker_is_looking_for_charlotte_nc_travel_tips/) 
 

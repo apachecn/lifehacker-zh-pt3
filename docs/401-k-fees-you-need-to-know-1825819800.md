@@ -1,6 +1,6 @@
 # 你需要知道的 401(k)费用
 
-> 原文:[https://life hacker . com/401-k-fees-you-need-to-know 1825819800](https://lifehacker.com/401-k-fees-you-need-to-know-1825819800)
+> 原文：<https://lifehacker.com/401-k-fees-you-need-to-know-1825819800>
 
 选择投资退休计划时，您需要考虑您的目标、不同基金的相关风险以及这些基金的长期表现。但是你也需要跟踪你的共同基金经理收取的费用——即使是看似无关紧要的百分比也会对你的底线产生巨大的影响。
 

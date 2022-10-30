@@ -1,6 +1,6 @@
 # 亚马逊便宜的 4K 电视对几乎任何人来说都足够好
 
-> 原文:[https://gizmodo . com/amazons-cheap-4k 电视对几乎任何人来说都足够好-1796067835](https://gizmodo.com/amazons-cheap-4k-tvs-are-good-enough-for-almost-anyone-1796067835)
+> 原文：<https://gizmodo.com/amazons-cheap-4k-tvs-are-good-enough-for-almost-anyone-1796067835>
 
 还记得 4k 曾经很贵吗？那些日子很快就要结束了，如果你需要证据，只要看看亚马逊新推出的经济型电视就知道了，这款电视由西屋和 Element 品牌生产。它们拥有亚马逊优秀的 Fire 电视机顶盒的所有智能，以及价格质量比，这使得它们对几乎所有不愿意贷款观看更高质量游戏的人都有吸引力。
 

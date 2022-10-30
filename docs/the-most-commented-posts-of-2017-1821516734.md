@@ -1,6 +1,6 @@
 # 2017 年评论最多的帖子
 
-> 原文:[https://life hacker . com/the-most-commented-posts-of-2017-1821516734](https://lifehacker.com/the-most-commented-posts-of-2017-1821516734)
+> 原文：<https://lifehacker.com/the-most-commented-posts-of-2017-1821516734>
 
 今年，和往年一样，我们为您提供了黑客服务。你告诉了我们你对这些黑客的看法。已经过了...活泼。的确，如果没有我们的评论者，Lifehacker 就不会有今天。以下是 2017 年评论最多的 10 个帖子。
 

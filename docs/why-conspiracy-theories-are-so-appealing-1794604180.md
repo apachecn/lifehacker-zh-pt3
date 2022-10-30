@@ -1,6 +1,6 @@
 # 为什么阴谋论如此吸引人
 
-> 原文:[https://life hacker . com/why-阴谋论-如此吸引人-1794604180](https://lifehacker.com/why-conspiracy-theories-are-so-appealing-1794604180)
+> 原文：<https://lifehacker.com/why-conspiracy-theories-are-so-appealing-1794604180>
 
 戴上你的锡纸帽，用一块胶带盖住你的网络摄像头，等待即将到来的蜥蜴人，因为现在是一些阴谋论的时候了。超过一半的美国成年人相信至少一种古怪的理论，但是为什么这些荒谬而复杂的想法如此吸引人呢？
 

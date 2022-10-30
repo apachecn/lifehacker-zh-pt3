@@ -1,6 +1,6 @@
 # 你现在可以通过图片搜索易贝
 
-> 原文:[https://life hacker . com/you-can-now-search-ebay-by-image-1819928512](https://lifehacker.com/you-can-now-search-ebay-by-image-1819928512)
+> 原文：<https://lifehacker.com/you-can-now-search-ebay-by-image-1819928512>
 
 搜索易贝需要信心——相信卖家会用你用来描述你想要的东西的关键词来列出他们的商品。有时你对“绿松石”的构成有不同的看法有时你有一张你想要的图片，但不知道某个款式的名字。现在你只需要那张照片了。
 

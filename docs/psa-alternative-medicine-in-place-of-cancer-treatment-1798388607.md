@@ -1,6 +1,6 @@
 # PSA:替代药物代替癌症治疗可能是致命的
 
-> 原文:[https://life hacker . com/PSA-alternative-medicine-in-place-of-cancer-treatment-1798388607](https://lifehacker.com/psa-alternative-medicine-in-place-of-cancer-treatment-1798388607)
+> 原文：<https://lifehacker.com/psa-alternative-medicine-in-place-of-cancer-treatment-1798388607>
 
 癌症很可怕。化疗和放疗很可怕。相比之下，草药和特殊饮食似乎更友好和令人欣慰，但我们现在有明确的证据表明，使用替代疗法治疗癌症的人更有可能死亡。
 

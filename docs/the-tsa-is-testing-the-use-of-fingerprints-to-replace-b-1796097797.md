@@ -1,6 +1,6 @@
 # 美国运输安全管理局正在测试用指纹代替登机牌
 
-> 原文:[https://life hacker . com/the-TSA-is-testing-the-use-of-fingerprints-to-replace-b-1796097797](https://lifehacker.com/the-tsa-is-testing-the-use-of-fingerprints-to-replace-b-1796097797)
+> 原文：<https://lifehacker.com/the-tsa-is-testing-the-use-of-fingerprints-to-replace-b-1796097797>
 
 周二，TSA 宣布了一项试点计划，使用新的生物识别技术，用快速指纹扫描取代登机牌和身份证。
 

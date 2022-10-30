@@ -1,6 +1,6 @@
 # 一个盲品测试来决定最好的商店购买的巧克力饼干
 
-> 原文:[https://the take out . com/store-buyed-chocolate-chip-cookies-taste-test-1829665212](https://thetakeout.com/store-bought-chocolate-chip-cookies-taste-test-1829665212)
+> 原文：<https://thetakeout.com/store-bought-chocolate-chip-cookies-taste-test-1829665212>
 
 *欢迎来到* [***巧克力曲奇周***](https://thetakeout.com/tag/chocolate-chip-cookie-week) *，庆祝美国最具代表性和广受喜爱的舒适食品之一。*
 

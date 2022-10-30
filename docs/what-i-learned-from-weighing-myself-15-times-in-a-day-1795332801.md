@@ -1,6 +1,6 @@
 # 我从一天称 15 次体重中学到了什么
 
-> 原文:[https://life hacker . com/what-I-learn-from-weighting-yourself-15 times-in-day-1795332801](https://lifehacker.com/what-i-learned-from-weighing-myself-15-times-in-a-day-1795332801)
+> 原文：<https://lifehacker.com/what-i-learned-from-weighing-myself-15-times-in-a-day-1795332801>
 
 天平是变化无常的:当我们撒尿或做出汗的锻炼时，我们就会减肥。当我们吃或喝或穿上毛衣时，体重就会增加。但是这种波动对我们看到的数字有多大影响呢？为了找到答案，我一天之内称了 15 次体重。
 

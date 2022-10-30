@@ -1,6 +1,6 @@
 # 搜救包
 
-> 原文:[https://life hacker . com/the-search-and-rescue-pack-1764813141](https://lifehacker.com/the-search-and-rescue-pack-1764813141)
+> 原文：<https://lifehacker.com/the-search-and-rescue-pack-1764813141>
 
 搜索和救援工作不是一件容易的事情，当你的工作是出去救人时，你不仅需要为自己，也需要为其他人准备合适的装备。读者 Zany Z 的分享他的包。
 

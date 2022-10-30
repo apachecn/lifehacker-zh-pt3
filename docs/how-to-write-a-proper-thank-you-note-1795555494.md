@@ -1,6 +1,6 @@
 # 如何写一封合适的感谢信
 
-> 原文:[https://life hacker . com/how-to-write-a-proper-thank-you-note-1795555494](https://lifehacker.com/how-to-write-a-proper-thank-you-note-1795555494)
+> 原文：<https://lifehacker.com/how-to-write-a-proper-thank-you-note-1795555494>
 
 几个月前，当我不在镇上时，一个朋友自愿帮我照看狗。到家后，我对她的服务表示感谢，并递给她一个信封，里面装着几张钞票。信封里缺少的东西可能就是我们和她所观察的野生动物的区别:一张感谢信。
 

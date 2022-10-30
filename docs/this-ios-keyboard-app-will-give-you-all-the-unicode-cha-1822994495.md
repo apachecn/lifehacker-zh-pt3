@@ -1,6 +1,6 @@
 # 这个 iOS 键盘应用程序会给你所有你需要的 Unicode 字符
 
-> 原文:[https://life hacker . com/this-IOs-keyboard-app-will-give-you-all-the-unicode-cha-1822994495](https://lifehacker.com/this-ios-keyboard-app-will-give-you-all-the-unicode-cha-1822994495)
+> 原文：<https://lifehacker.com/this-ios-keyboard-app-will-give-you-all-the-unicode-cha-1822994495>
 
 iOS: [Unicode 创建的表情符号](https://lifehacker.com/finding-the-right-emoji-can-be-hard-but-these-apps-mak-1819324984) 现在可能很流行，但当你需要在文档或完全诙谐的文本消息中访问更多晦涩的标点符号、重音字符和货币符号时，它们就没什么用了。不要像复制和粘贴动物一样复制和粘贴互联网搜索结果，使用[Unicode](https://jordanhipwell.com/UniChar/)，这是一个 iOS 键盘应用程序，它将 Unicode 的其余更传统的字符和符号(甚至盲文！)当你需要它们的时候，就在前面和中央。
 

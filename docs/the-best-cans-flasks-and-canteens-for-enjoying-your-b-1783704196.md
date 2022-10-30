@@ -1,6 +1,6 @@
 # 在户外享受美酒的最佳罐子、烧瓶和水壶
 
-> 原文:[https://life hacker . com/the-best-can-flags-and-canters-for-happy-your-b-1783704196](https://lifehacker.com/the-best-cans-flasks-and-canteens-for-enjoying-your-b-1783704196)
+> 原文：<https://lifehacker.com/the-best-cans-flasks-and-canteens-for-enjoying-your-b-1783704196>
 
 在阳光下享受食物和饮料是夏天的众多礼物之一，但这并不总是像把一堆东西扔进冷藏箱，然后拖到海滩、公园或草地上那么简单。酒精饮料，它们的玻璃容器和废话，提出了一个特别的挑战，但我们将向你展示最好的方法让你的酒变得更开放。
 

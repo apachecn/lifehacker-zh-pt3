@@ -1,6 +1,6 @@
 # 如何判断自己是否加入了邪教
 
-> 原文:[https://life hacker . com/how-to-figure-if-you-in-a-cult-1819678625](https://lifehacker.com/how-to-figure-out-if-youre-in-a-cult-1819678625)
+> 原文：<https://lifehacker.com/how-to-figure-out-if-youre-in-a-cult-1819678625>
 
 从局外人的角度来看，什么是邪教，什么不是邪教似乎很明显。不是邪教:你的新书群。邪教:你的第二个堂兄加入的那个组织，那里所有的女人都被重新命名为 Meadow，并与他们未露面的领导人杰里米订婚。简单！
 

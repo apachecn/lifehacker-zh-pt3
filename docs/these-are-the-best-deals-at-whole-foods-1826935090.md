@@ -1,6 +1,6 @@
 # 这些是全食超市最划算的交易
 
-> 原文:[https://life hacker . com/these-is-the-best-deals-at-whole-foods-1826935090](https://lifehacker.com/these-are-the-best-deals-at-whole-foods-1826935090)
+> 原文：<https://lifehacker.com/these-are-the-best-deals-at-whole-foods-1826935090>
 
 全食超市从来不以价格优惠著称——我猜，人们喜欢琳琅满目的冷榨果汁和 [芦笋水](https://www.eater.com/2015/8/3/9090797/whole-foods-asparagus-water-wtf)——但是，自从贝佐斯收购以来，某些商品的价格已经大幅下降，并且一直保持在低位。
 

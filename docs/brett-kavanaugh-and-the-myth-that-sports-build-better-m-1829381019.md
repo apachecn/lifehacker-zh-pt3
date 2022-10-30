@@ -1,6 +1,6 @@
 # 布雷特·卡瓦诺和运动造就更好男人的神话
 
-> 原文:[https://Jezebel . com/Brett-kavanaugh-and-the-myth-the-sports-build-better-m-1829381019](https://jezebel.com/brett-kavanaugh-and-the-myth-that-sports-build-better-m-1829381019)
+> 原文：<https://jezebel.com/brett-kavanaugh-and-the-myth-that-sports-build-better-m-1829381019>
 
 布雷特·卡瓦诺(Brett Kavanaugh)周四需要表现出某种男子气概，所以他谈到了体育。他是高中篮球队的队长。他也踢足球，进攻*和*防守。他举重。他参加田径比赛。他支持其他妇女参加体育运动。他是他女儿青年篮球队的教练。他甚至去过这项自称为美国消遣的运动中最具标志性的体育场 之一 [。此外，他甚至不再提及性别平等法第九章，该法律迫使大学提供更多的女性运动项目。他是个很有运动精神的人。卡瓦诺将他的高中谈话描述为直接来自电影的东西:“我们谈论生活、足球、学校和女孩。”](https://en.wikipedia.org/wiki/Fenway_Park)
 

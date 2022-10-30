@@ -1,6 +1,6 @@
 # 用冻干水果给你的糖霜上色
 
-> 原文:[https://life hacker . com/use-free-dry-fruit-to-color-your-frosting-1829365246](https://lifehacker.com/use-freeze-dried-fruit-to-color-your-frosting-1829365246)
+> 原文：<https://lifehacker.com/use-freeze-dried-fruit-to-color-your-frosting-1829365246>
 
 虽然我不是独角兽食品的最大粉丝，但不可否认色彩鲜艳的甜点的美丽。我对小瓶装的人造食用色素没有任何特别的疑虑，但是，多亏了斯特拉·帕克斯 ，我最近成了用粉碎的冻干水果给甜食上色的超级粉丝。
 

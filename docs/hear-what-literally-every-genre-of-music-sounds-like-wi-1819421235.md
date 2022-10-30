@@ -1,6 +1,6 @@
 # 用这个工具听听几乎每一种音乐类型的声音
 
-> 原文:[https://life hacker . com/hear-what-literal-every-genre-of-music-sounds-like-wi-1819421235](https://lifehacker.com/hear-what-literally-every-genre-of-music-sounds-like-wi-1819421235)
+> 原文：<https://lifehacker.com/hear-what-literally-every-genre-of-music-sounds-like-wi-1819421235>
 
 有很多不同类型的音乐。喜欢，*很多*。不相信我？看看这个吸时间的工具，叫做一次一个噪音。
 

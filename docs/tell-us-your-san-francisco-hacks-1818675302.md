@@ -1,6 +1,6 @@
 # 告诉我们你的旧金山黑客
 
-> 原文:[https://life hacker . com/tell-us-your-San-Francisco-hacks-1818675302](https://lifehacker.com/tell-us-your-san-francisco-hacks-1818675302)
+> 原文：<https://lifehacker.com/tell-us-your-san-francisco-hacks-1818675302>
 
 旧金山是一个真正立体的城市。由于它的每个海拔都以不同的方式被殖民，自然层有时反映了社区的社会层，就像名为 Nob Hill 的社区。
 

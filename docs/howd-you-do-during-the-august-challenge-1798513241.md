@@ -1,6 +1,6 @@
 # 你在八月挑战中表现如何？
 
-> 原文:[https://life hacker . com/howd-you-do-at-August-challenge-1798513241](https://lifehacker.com/howd-you-do-during-the-august-challenge-1798513241)
+> 原文：<https://lifehacker.com/howd-you-do-during-the-august-challenge-1798513241>
 
 这个月，我们向你发出挑战，通过寻找一个更便宜的方案来节省你的手机费用 。怎么样了？
 

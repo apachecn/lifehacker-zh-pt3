@@ -1,6 +1,6 @@
 # 十大 DIY 项目将教会你大量科技知识
 
-> 原文:[https://life hacker . com/top-10-DIY-projects-that-teach-you-ton-about-tec-1788967047](https://lifehacker.com/top-10-diy-projects-that-will-teach-you-a-ton-about-tec-1788967047)
+> 原文：<https://lifehacker.com/top-10-diy-projects-that-will-teach-you-a-ton-about-tec-1788967047>
 
 DIY 并不总是做事情最简单的方式，但它通常是最有启发性和教育意义的方式。本周，让我们来看看一些伟大的 DIY 技术项目，这些项目将教会你很多你可能每天都在使用的工具，并保护你的隐私，让你在这个过程中控制自己的数据。
 

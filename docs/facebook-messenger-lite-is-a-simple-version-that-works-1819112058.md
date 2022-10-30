@@ -1,6 +1,6 @@
 # Facebook Messenger Lite 是一个简单的版本，即使在不稳定的数据连接下也能工作
 
-> 原文:[https://life hacker . com/Facebook-messenger-lite-is-a-simple-version-that-works-1819112058](https://lifehacker.com/facebook-messenger-lite-is-a-simple-version-that-works-1819112058)
+> 原文：<https://lifehacker.com/facebook-messenger-lite-is-a-simple-version-that-works-1819112058>
 
 曾几何时，脸书的 Messenger 应用程序只是给你的朋友发送聊天消息的一种方式。多年来，这个社交网络已经为这款应用加载了一些功能，比如发送 gif、与朋友玩游戏，甚至发送现金。这款应用有自己的私人助理，现在，当你打开它的时候，你还会看到你朋友的故事。这是大量的信息，所有这些信息都需要相当大的带宽才能在手机上工作和显示。
 

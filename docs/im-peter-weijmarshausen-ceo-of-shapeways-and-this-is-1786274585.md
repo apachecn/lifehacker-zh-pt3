@@ -1,6 +1,6 @@
 # 我是 Shapeways 的首席执行官 Peter Weijmarshausen，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Peter-weijmarshausen-CEO-of-shapeways-and-this-is-1786274585](https://lifehacker.com/im-peter-weijmarshausen-ceo-of-shapeways-and-this-is-1786274585)
+> 原文：<https://lifehacker.com/im-peter-weijmarshausen-ceo-of-shapeways-and-this-is-1786274585>
 
 你可能会认为 3D 打印机是 DIY 爱好者创造边缘有点粗糙的塑料物品的利基设备。 [Shapeways](http://shapeways.com) 不同。他们使用工业机器将高分辨率 3D 打印带给大众。
 

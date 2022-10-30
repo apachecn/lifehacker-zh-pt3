@@ -1,6 +1,6 @@
 # Chrome/Firefox 本周扩展:语法上
 
-> 原文:[https://life hacker . com/chrome-Firefox-extension-of-the-week-grammarly-1824182620](https://lifehacker.com/chrome-firefox-extension-of-the-week-grammarly-1824182620)
+> 原文：<https://lifehacker.com/chrome-firefox-extension-of-the-week-grammarly-1824182620>
 
 即使你是下一个斯蒂芬·金或乔治·r·r·马丁——如果你是后者，请试着写得更快——每个人都需要写作的帮手。这就是为什么世界上有编辑，文字编辑，语法教练，一千万本关于写作的书，最重要的是，可以帮助你提高写作水平的浏览器扩展。
 

@@ -1,6 +1,6 @@
 # 你可以在火鸡吃完很久以后再用蔓越莓酱
 
-> 原文:[https://life hacker . com/you-can-use-cranberry-sauce-long-after-the-turkey-is-go-1821480716](https://lifehacker.com/you-can-use-cranberry-sauce-long-after-the-turkey-is-go-1821480716)
+> 原文：<https://lifehacker.com/you-can-use-cranberry-sauce-long-after-the-turkey-is-go-1821480716>
 
 一罐吃了一半的果冻蔓越莓酱是一种令人悲伤的景象，但没有理由扔掉这种又酸又甜的物质，即使你吃了最后一点火鸡。
 

@@ -1,6 +1,6 @@
 # 2016 年圣地亚哥动漫展的最大赢家和最大输家
 
-> 原文:[https://gizmodo . com/圣地亚哥最大赢家和最大输家-com-1784289188](https://gizmodo.com/the-biggest-winners-and-baddest-losers-of-san-diego-com-1784289188)
+> 原文：<https://gizmodo.com/the-biggest-winners-and-baddest-losers-of-san-diego-com-1784289188>
 
 另一个动漫展结束了，在四天的明亮灯光，重大新闻和崇高的角色扮演之后。有一些令人惊叹的时刻——也有一些失败了，而且失败得很厉害。以下是我们列出的 2016 年圣地亚哥动漫展的最大赢家，以及最大的输家。
 

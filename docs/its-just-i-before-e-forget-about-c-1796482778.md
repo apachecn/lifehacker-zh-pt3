@@ -1,6 +1,6 @@
 # 只是“I 在 E 之前”——忘了 C 吧
 
-> 原文:[https://life hacker . com/its-just-I-before-e-fore-fore-fore-fore-fore-fore-forget-about-c-1796482778](https://lifehacker.com/its-just-i-before-e-forget-about-c-1796482778)
+> 原文：<https://lifehacker.com/its-just-i-before-e-forget-about-c-1796482778>
 
 我们都知道这个规则:“I 在 E 之前，C 之后除外...除了"...哦...一些事情。好消息:你可以忘记一切，除了“我在 E 之前”的部分。即使这样也只能帮助你猜对四分之三。
 

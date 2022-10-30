@@ -1,6 +1,6 @@
 # 试着不听音乐跑步
 
-> 原文:[https://lifehacker.com/try-running-without-music-1829324975](https://lifehacker.com/try-running-without-music-1829324975)
+> 原文：<https://lifehacker.com/try-running-without-music-1829324975>
 
 跑步有两个主要的好处:它是一种伟大而有效的锻炼形式，也是一种迷失在大自然中的方式，可以花 45 分钟到一个小时(或者不管你跑步有多长)几乎不受干扰地思考。
 

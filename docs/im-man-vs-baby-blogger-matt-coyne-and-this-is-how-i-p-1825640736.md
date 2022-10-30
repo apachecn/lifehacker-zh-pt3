@@ -1,6 +1,6 @@
 # 我是“男人与婴儿”博客作者马特·科因，这就是我为人父母的方式
 
-> 原文:[https://life hacker . com/im-man-vs-baby-blogger-matt-coy ne-and-this-is-how-I-p-1825640736](https://lifehacker.com/im-man-vs-baby-blogger-matt-coyne-and-this-is-how-i-p-1825640736)
+> 原文：<https://lifehacker.com/im-man-vs-baby-blogger-matt-coyne-and-this-is-how-i-p-1825640736>
 
 一天晚上，在他三个月大的儿子查理睡觉的时候，马特·科因打开了脸书，并键入了一篇文章，列出了他作为一个新父亲的观察——他在换尿布时基本上就像一个一级方程式维修站的工作人员，婴儿服装上的纽扣是多么邪恶(他更喜欢“根据脱衣舞女的裤子”撕去的 velcro)，以及他最近唯一能够阅读的文学作品是半本关于吸奶器的小册子(“我在关于‘乳头困惑’的段落中一直睡着”)。这个有趣而诚实的帖子在网上疯传，这促使科因开了一个博客 [男人 vs 婴儿](http://www.man-vs-baby.co.uk/) ，这促使他根据这个博客写了一本书。 [*【男人 vs .婴儿:现实生活中养育子女的混乱和喜剧*](https://www.amazon.com/Man-vs-Baby-Real-Life-Parenting/dp/1501187414?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-man-vs-baby-blogger-matt-coyne-and-this-is-how-i-p-1825640736&asc_source=&tag=kinjalifehackerlink-20) 在英国成为畅销书，并刚刚在美国发行
 

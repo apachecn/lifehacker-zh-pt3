@@ -1,6 +1,6 @@
 # 我是 Slack 的首席技术官 Cal Henderson，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-slack-CTO-cal-Henderson-and-this-is-how-I-work-1803819796](https://lifehacker.com/im-slack-cto-cal-henderson-and-this-is-how-i-work-1803819796)
+> 原文：<https://lifehacker.com/im-slack-cto-cal-henderson-and-this-is-how-i-work-1803819796>
 
 卡尔·亨德森是领先的工作场所信息平台 Slack 的联合创始人兼首席技术官，亨德森的团队在试图开发一款名为 Glitch 的在线游戏时发明了该平台。这并不是亨德森和他的 Slack 联合创始人斯图尔特·巴特菲尔德第一次着手开发游戏，并以创业告终。21 世纪初，亨德森加入了巴特菲尔德的团队，开发了游戏《永无止境》(Neverending)，并由此诞生了照片分享网站 Flickr。他从事编程(在 [、iamcal.com](http://www.iamcal.com/)写博客)已经 15 年了。
 

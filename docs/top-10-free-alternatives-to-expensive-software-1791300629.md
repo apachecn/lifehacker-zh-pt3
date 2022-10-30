@@ -1,6 +1,6 @@
 # 昂贵软件的 10 大免费替代品
 
-> 原文:[https://life hacker . com/top-10-免费替代昂贵软件-1791300629](https://lifehacker.com/top-10-free-alternatives-to-expensive-software-1791300629)
+> 原文：<https://lifehacker.com/top-10-free-alternatives-to-expensive-software-1791300629>
 
 除非你有一家公司为你购买许可证，否则像 Photoshop、Pro Tools、Maya 甚至 Windows 这样的工具可能会严重侵蚀你的钱包。这里有一些比通常昂贵的应用程序更实惠的选择，可以帮助你停止烦恼，完成更多工作。
 

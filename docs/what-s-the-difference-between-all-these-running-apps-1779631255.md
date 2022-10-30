@@ -1,6 +1,6 @@
 # 这些正在运行的应用有什么不同？
 
-> 原文:[https://life hacker . com/what-s-the-difference-of-all-this-running-apps-1779631255](https://lifehacker.com/what-s-the-difference-between-all-these-running-apps-1779631255)
+> 原文：<https://lifehacker.com/what-s-the-difference-between-all-these-running-apps-1779631255>
 
 自从几年前我们选择 [我们最喜欢的跑步应用](http://lifehacker.com/five-best-smartphone-running-apps-5929709#_ga=1.136968624.107957586.1458579463) 以来，发生了很多变化。现在有大量的应用程序可以将你的数据保存在云中，并让你与脸书的朋友分享跑步记录，但它们各不相同，你可能很难选择一款适合你的。下面是如何选择。
 

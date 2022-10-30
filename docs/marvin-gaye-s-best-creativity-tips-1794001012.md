@@ -1,6 +1,6 @@
 # 马文·盖最佳创意小贴士
 
-> 原文:[https://life hacker . com/Marvin-gaye-s-best-creativity-tips-1794001012](https://lifehacker.com/marvin-gaye-s-best-creativity-tips-1794001012)
+> 原文：<https://lifehacker.com/marvin-gaye-s-best-creativity-tips-1794001012>
 
 也许最出名的是像*这样的专辑，我是通过小道消息*和*知道发生了什么事*，但是当你走近一看，你会看到一个与抑郁症作斗争的艺术家，他以某种方式找到了一种方法来发布一些来自摩城的最伟大的灵魂音乐。
 

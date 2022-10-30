@@ -1,6 +1,6 @@
 # 你不需要复杂的工具来清洗辣椒
 
-> 原文:[https://life hacker . com/you-dont-need-fancy-tools-to-clean-peppers-1821269592](https://lifehacker.com/you-dont-need-fancy-tools-to-clean-peppers-1821269592)
+> 原文：<https://lifehacker.com/you-dont-need-fancy-tools-to-clean-peppers-1821269592>
 
 任何种类的辣椒都让人头疼。形状不规则，充满苦涩的肋骨，大约有 12 到 85 万颗微小的种子进入你厨房的黑暗角落，希望有一天被人类学家发现，他们宣称“他们就像我们一样！”
 

@@ -1,6 +1,6 @@
 # 你错过了国际男人节
 
-> 原文:[https://life hacker . com/you-missed-international-men-s-day-1823621094](https://lifehacker.com/you-missed-international-men-s-day-1823621094)
+> 原文：<https://lifehacker.com/you-missed-international-men-s-day-1823621094>
 
 国际男人节是 11 月 19 日。你错过了，可能是因为公司认为迎合男性不如迎合女性有利可图。(大纲说的没错: [国际妇女节是品牌的](https://theoutline.com/post/3624/international-womens-day-brands) 。他们用粉红啤酒、女性化标志和口惠平等来庆祝它。)
 

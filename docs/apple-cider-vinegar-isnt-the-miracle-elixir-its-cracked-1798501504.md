@@ -1,6 +1,6 @@
 # 苹果醋并不像人们所说的那样是灵丹妙药
 
-> 原文:[https://life hacker . com/apple-苹果醋-非奇迹-灵丹妙药-破解-1798501504](https://lifehacker.com/apple-cider-vinegar-isnt-the-miracle-elixir-its-cracked-1798501504)
+> 原文：<https://lifehacker.com/apple-cider-vinegar-isnt-the-miracle-elixir-its-cracked-1798501504>
 
 几十年来，苹果醋一直是一种多用途的民间药物，被吹捧为消毒剂，补充皮肤和头发的天然方法，以及具有各种益处的超级食物。一般来说，科学已经支持了醋的一些用途，但是可观察到的结果却很糟糕。
 

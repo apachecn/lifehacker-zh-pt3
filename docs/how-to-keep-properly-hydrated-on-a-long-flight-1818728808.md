@@ -1,6 +1,6 @@
 # 如何在长途飞行中保持适当的水分
 
-> 原文:[https://life hacker . com/how-to-keep-right-hydrated-on-a long-flight-1818728808](https://lifehacker.com/how-to-keep-properly-hydrated-on-a-long-flight-1818728808)
+> 原文：<https://lifehacker.com/how-to-keep-properly-hydrated-on-a-long-flight-1818728808>
 
 飞行会让你脱水——很多。你可能知道在飞行前、飞行中和飞行后喝水是个好主意，但是多少才够呢？
 

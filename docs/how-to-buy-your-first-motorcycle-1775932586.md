@@ -1,6 +1,6 @@
 # 如何购买你的第一辆摩托车
 
-> 原文:[https://jalopnik . com/how-to-buy-your ' s first-motor-1775932586](https://jalopnik.com/how-to-buy-your-first-motorcycle-1775932586)
+> 原文：<https://jalopnik.com/how-to-buy-your-first-motorcycle-1775932586>
 
 20 世纪 70 年代，我是一家本田摩托车经销商的销售员。一天，一个小孩和他的父亲来买 CB360。这孩子是个长满斑点、单音节词的小畜生，不停地抽鼻子，两只眼睛瞪得圆圆的。老人的下巴歪向一边，好像他过去的某个人决定要揍他一顿。
 

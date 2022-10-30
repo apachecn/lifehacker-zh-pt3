@@ -1,6 +1,6 @@
 # 无人区三显示器工作区
 
-> 原文:[https://life hacker . com/the-no-mans-sky-triple-monitor-workspace-1785228959](https://lifehacker.com/the-no-mans-sky-triple-monitor-workspace-1785228959)
+> 原文：<https://lifehacker.com/the-no-mans-sky-triple-monitor-workspace-1785228959>
 
 [洛克](https://www.flickr.com/photos/142453651@N02/) 的工作空间不是设计师的，也不是超级花哨的，它看起来就像一个我们任何人都乐意称之为自己的家庭办公室。但他确实有三个显示器，上面贴着无人区壁纸，一把舒适的椅子，一个小冰箱，还有弹吉他和发挥创造力的空间。这就是我们喜欢它的原因。
 

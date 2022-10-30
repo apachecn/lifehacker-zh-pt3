@@ -1,6 +1,6 @@
 # 一个失明的天文学家，如何对待你的生活，以及荒谬的运动趋势
 
-> 原文:[https://life hacker . com/a-blind-astronomist-what-do-your-life-and-ridi-1781776972](https://lifehacker.com/a-blind-astronomer-what-to-do-with-your-life-and-ridi-1781776972)
+> 原文：<https://lifehacker.com/a-blind-astronomer-what-to-do-with-your-life-and-ridi-1781776972>
 
 一个失明的天文学家，如何决定你大学毕业后的生活，被盗最多的书，以及更多的在我们的 Lifehacker Brain Buffet 开始你的一周！
 

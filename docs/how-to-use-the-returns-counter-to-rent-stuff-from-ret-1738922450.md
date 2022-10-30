@@ -1,6 +1,6 @@
 # 如何使用退货柜台从零售店“租赁”商品
 
-> 原文:[https://life hacker . com/how-to-use-the-ret-counter-to-rent-stuff-from-ret-1738922450](https://lifehacker.com/how-to-use-the-returns-counter-to-rent-stuff-from-ret-1738922450)
+> 原文：<https://lifehacker.com/how-to-use-the-returns-counter-to-rent-stuff-from-ret-1738922450>
 
 商店不喜欢你买了打算退货的东西，但说实话:我们大多数人至少考虑过一次或两次。如果你想玩退货系统，那就做对了。以下是方法。
 

@@ -1,6 +1,6 @@
 # 您的处方药可能在过期后仍然有效
 
-> 原文:[https://life hacker . com/your-处方药-may-stay-effective-well-beyond-1797126587](https://lifehacker.com/your-prescription-drugs-may-stay-effective-well-beyond-1797126587)
+> 原文：<https://lifehacker.com/your-prescription-drugs-may-stay-effective-well-beyond-1797126587>
 
 你头痛欲裂，但你唯一的药六个月前就过期了。你应该拿走还是扔掉？陪审团仍未做出裁决，但最近的一项调查发现，大多数药物在超过标示的有效期后仍然有效，尽管它没有建议消费者继续服用过期药物。他们测试的一些药物确实过期了，但是大多数药物在上市日期 5.5 年后过期，有些甚至在上市日期 20 年后仍有效。
 

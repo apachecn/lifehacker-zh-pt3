@@ -1,6 +1,6 @@
 # 三种成分的烤布里干酪点心非常美味
 
-> 原文:[https://the take out . com/3-ingredient-baked-brie-pastry-is-fancy-as-heck-1825659828](https://thetakeout.com/3-ingredient-baked-brie-pastry-is-fancy-as-heck-1825659828)
+> 原文：<https://thetakeout.com/3-ingredient-baked-brie-pastry-is-fancy-as-heck-1825659828>
 
 感谢上帝，随着天气转暖，派对季节也临近了。你可能手头上有你的朋友们期待从你的聚会中得到的通常的备用食物，所以如果没有你经典的七层蘸酱和空心菜面包，他们会很失望。
 

@@ -1,6 +1,6 @@
 # 发型师:你希望人们对你的工作了解多少？
 
-> 原文:[https://life hacker . com/hair-stylists-what-you-wish-people-know-on-your-1825468952](https://lifehacker.com/hair-stylists-what-do-you-wish-people-knew-about-your-1825468952)
+> 原文：<https://lifehacker.com/hair-stylists-what-do-you-wish-people-knew-about-your-1825468952>
 
 顾客可能经常显得粗鲁或缺乏同情心，因为他们不理解一项工作的全部内容。让我们给他们一些急需的见解。如果你曾经剪过、染过、穿过或设计过头发，我们希望收到你的来信。
 

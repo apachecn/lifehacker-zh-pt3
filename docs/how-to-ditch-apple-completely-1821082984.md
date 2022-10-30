@@ -1,6 +1,6 @@
 # 如何彻底抛弃苹果
 
-> 原文:[https://life hacker . com/how-to-ditch-apple-completely-1821082984](https://lifehacker.com/how-to-ditch-apple-completely-1821082984)
+> 原文：<https://lifehacker.com/how-to-ditch-apple-completely-1821082984>
 
 苹果不断给我们说再见的理由。iOS 11 是[bug](https://www.google.com/search?q=ios+11+calcultor+lifehacker&oq=ios+11+calcultor+lifehacker&aqs=chrome..69i57j0l5.6333j0j4&sourceid=chrome&ie=UTF-8)为 [地狱](https://lifehacker.com/how-to-stop-your-iphone-from-autocorrecting-i-to-a-1820163694) ，随着 [最近的错误](https://lifehacker.com/how-to-fix-that-ios-bug-thats-been-making-your-iphone-c-1820953494) 使得 iPhones 手机几乎无法使用，而最新版本的 macOS 也短暂地向 Mac 机主暴露了一个 [重大漏洞](https://lifehacker.com/how-to-patch-the-macos-high-sierra-password-flaw-1820838996) 。至于 iPhone X，对于一部 iPhone 来说，它可能相当时尚，但苹果仍在追赶其竞争对手安卓系统。
 

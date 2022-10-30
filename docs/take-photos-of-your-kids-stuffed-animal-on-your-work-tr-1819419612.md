@@ -1,6 +1,6 @@
 # 在你出差的时候，给你孩子的毛绒玩具拍照
 
-> 原文:[https://life hacker . com/take-photos-of-your-kids-buddy-animal-on-your-work-tr-1819419612](https://lifehacker.com/take-photos-of-your-kids-stuffed-animal-on-your-work-tr-1819419612)
+> 原文：<https://lifehacker.com/take-photos-of-your-kids-stuffed-animal-on-your-work-tr-1819419612>
 
 当你有年幼的孩子时，经常出差会很困难(虽然偶尔出差也是一种幸福，amirite？).一位名叫亨特的父亲在他不在的时候找到了一种与女儿联系的甜蜜方式。
 

@@ -1,6 +1,6 @@
 # 是的，你实际上需要阅读你的课本，而不仅仅是浏览一下寻找答案
 
-> 原文:[https://life hacker . com/yes-you-actually-need-to-read-your-textbooks-not-just-1803135073](https://lifehacker.com/yes-you-actually-need-to-read-your-textbooks-not-just-1803135073)
+> 原文：<https://lifehacker.com/yes-you-actually-need-to-read-your-textbooks-not-just-1803135073>
 
 我明白了——教科书是很厚的书，感觉它们作为防御武器比引人入胜的读物更有用。但实际阅读它们仍然很重要，而不是把它们当作“寻找潜在测试答案”的单词搜索。
 

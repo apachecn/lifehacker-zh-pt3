@@ -1,6 +1,6 @@
 # 如何在这个月每天获得一个免费的温蒂芝士汉堡
 
-> 原文:[https://life hacker . com/how-to-get-a-free-wendys-cheese burg-every-day-this-mo-1829027843](https://lifehacker.com/how-to-get-a-free-wendys-cheeseburger-every-day-this-mo-1829027843)
+> 原文：<https://lifehacker.com/how-to-get-a-free-wendys-cheeseburger-every-day-this-mo-1829027843>
 
 喜欢芝士汉堡和糖霜？我们已经为你找到了交易！9 月份，温迪快餐通过其手机应用 中的优惠券，购买温迪菜单 [中的任何其他项目，即可免费获得一份戴夫单人芝士汉堡。](https://www.wendys.com/wendys-app) 
 

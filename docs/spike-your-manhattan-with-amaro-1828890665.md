@@ -1,6 +1,6 @@
 # 在你的曼哈顿中加入 Amaro
 
-> 原文:[https://life hacker . com/spike-your-Manhattan-with-amaro-1828890665](https://lifehacker.com/spike-your-manhattan-with-amaro-1828890665)
+> 原文：<https://lifehacker.com/spike-your-manhattan-with-amaro-1828890665>
 
 周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将根据奥黛丽·桑德斯的小意大利鸡尾酒制作一款木质草本曼哈顿风格的饮料。
 

@@ -1,6 +1,6 @@
 # 旅行时如何打包更美味的食物
 
-> 原文:[https://life hacker . com/how-to-make-flying-or-driving-a-more-tasty-experience-1742257240](https://lifehacker.com/how-to-make-flying-or-driving-a-more-tasty-experience-1742257240)
+> 原文：<https://lifehacker.com/how-to-make-flying-or-driving-a-more-tasty-experience-1742257240>
 
 你们中的许多人将在这个假期旅行，这意味着飞机、火车(可能不是)和汽车，当你朝着目的地飞奔时，你可能会饿。旅行时吃东西并不难，但是以一种令人愉快的方式旅行时吃东西却很棘手。以下是如何让这种体验变得更加美味的方法。
 

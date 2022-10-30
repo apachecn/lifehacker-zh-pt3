@@ -1,6 +1,6 @@
 # 松露油里还是没有松露
 
-> 原文:[https://life hacker . com/there-are-parent-any-throuffle-in-truffle-oil-1818514311](https://lifehacker.com/there-still-arent-any-truffles-in-truffle-oil-1818514311)
+> 原文：<https://lifehacker.com/there-still-arent-any-truffles-in-truffle-oil-1818514311>
 
 我附近有一家相当受欢迎的当地汉堡连锁店，拒绝制作非松露品种的薯条。它们并不可怕，但它们令人难以忍受，而且它们掩盖了你碰巧正在吃的任何东西的味道。它们也不是用真正的松露做的。
 

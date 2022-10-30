@@ -1,6 +1,6 @@
 # 一切你可以“Ok 谷歌”，学会爱怀疑，和所有年龄的职业建议
 
-> 原文:[https://life hacker . com/everything-you-can-ok-Google-learn-to-love-question-an-1769953751](https://lifehacker.com/everything-you-can-ok-google-learn-to-love-doubt-an-1769953751)
+> 原文：<https://lifehacker.com/everything-you-can-ok-google-learn-to-love-doubt-an-1769953751>
 
 地球上生命的起源，当拖延成为一个真正的问题时，怀疑的福音，一个完整的“Ok Google”命令列表，Mac 上的游戏，等等都在本周的 Lifehacker Brain Buffet 中。
 

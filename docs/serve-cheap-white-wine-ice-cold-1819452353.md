@@ -1,6 +1,6 @@
 # 供应便宜的冰镇白葡萄酒
 
-> 原文:[https://life hacker . com/serve-cheap-white-wine-ice-cold-1819452353](https://lifehacker.com/serve-cheap-white-wine-ice-cold-1819452353)
+> 原文：<https://lifehacker.com/serve-cheap-white-wine-ice-cold-1819452353>
 
 我们已经给了你很多方法来 [快速冷藏白酒](https://www.google.com/search?q=site%3Alifehacker.com+chill+wine) 。但是你应该冷却多少呢？《T4 时报》的解释道:
 

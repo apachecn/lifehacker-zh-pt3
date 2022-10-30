@@ -1,6 +1,6 @@
 # 你可能会犯的四个常见求职错误
 
-> 原文:[https://life hacker . com/four-common-job-search-missons-you-may-be-making-1746689580](https://lifehacker.com/four-common-job-search-mistakes-you-might-be-making-1746689580)
+> 原文：<https://lifehacker.com/four-common-job-search-mistakes-you-might-be-making-1746689580>
 
 当你在求职申请中犯了一个大错误时，你通常会知道。你忘了附上你的简历。你发错版本了。你将求职信发送给克里斯·艾伦先生，然后意识到克里斯很有可能是女性。但是其他时候你不知道你在犯错误。
 

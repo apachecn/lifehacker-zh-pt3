@@ -1,6 +1,6 @@
 # 十月是硬拉节
 
-> 原文:[https://lifehacker.com/october-is-for-deadlifts-1829438935](https://lifehacker.com/october-is-for-deadlifts-1829438935)
+> 原文：<https://lifehacker.com/october-is-for-deadlifts-1829438935>
 
 欢迎回来，朋友们！在我们的 [健身挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 中，我们已经进行了大量的体重练习，上个月我们开始了一些 [跑步或步行](https://vitals.lifehacker.com/preview/how-to-measure-your-progress-in-running-1829391989) 。这个月我们将去健身房做一些举重运动——但是不要担心，即使你没有健身房会员，我们也会为你提供选择。
 

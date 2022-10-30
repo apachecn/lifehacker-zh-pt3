@@ -1,6 +1,6 @@
 # 如何注意和避免网上的黑暗模式
 
-> 原文:[https://life hacker . com/how-to-note-and-avoid-dark-patterns-online-1827734449](https://lifehacker.com/how-to-notice-and-avoid-dark-patterns-online-1827734449)
+> 原文：<https://lifehacker.com/how-to-notice-and-avoid-dark-patterns-online-1827734449>
 
 你有没有注意到在线账户注册非常容易，但是关闭起来却非常困难？有时关闭账户选项就在你认为它应该在的地方，但其他时候你必须找到它，点击一个又一个菜单，直到你最终发现你不能在线关闭它，你实际上必须打电话。
 

@@ -1,6 +1,6 @@
 # 你从小说中学到的最好的生活窍门是什么？
 
-> 原文:[https://life hacker . com/what-is-the-best-life-hacks-you-learn-from-fiction-1797874041](https://lifehacker.com/what-are-the-best-life-hacks-youve-learned-from-fiction-1797874041)
+> 原文：<https://lifehacker.com/what-are-the-best-life-hacks-youve-learned-from-fiction-1797874041>
 
 我最喜欢的心理技巧之一来自喜剧演员史蒂夫·马丁的中篇小说《女店员》。这是一本说谎指南。主角米拉贝勒在一次聚会上说，有效的谎言有三个基本要素:
 

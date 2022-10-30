@@ -1,6 +1,6 @@
 # 这个方便的 iPhone X 镜头套件让你更接近真正的相机
 
-> 原文:[https://gizmodo . com/this-handy-iphone-x-lens-kit-get-you-even-closer-a-1825670716](https://gizmodo.com/this-handy-iphone-x-lens-kit-gets-you-even-closer-to-a-1825670716)
+> 原文：<https://gizmodo.com/this-handy-iphone-x-lens-kit-gets-you-even-closer-to-a-1825670716>
 
 让我们面对现实吧，当你花 700 美元买一部旗舰手机时，其中很大一部分钱都花在了相机上。有些人可能会说这是胡说八道，但对于其他人来说，谁不想拥有一个真正的相机的麻烦或额外费用，这真的不是那么荒谬。然而，即使是拥有 [、双](https://gizmodo.com/i-hate-how-much-i-love-the-iphone-x-1820086867) 甚至 [三摄像头设置](https://gizmodo.com/huaweis-triple-camera-p20-pro-is-too-cool-for-america-1825647834#_ga=2.9473077.1241363147.1525090562-3254418773.1522168809) 的花哨手机，手机仍然缺乏可互换镜头的灵活性。
 

@@ -1,6 +1,6 @@
 # 它会腐烂吗？非常美味的牛舌
 
-> 原文:[https://life hacker . com/will-it-sous-vide-total-tasty-beef-tongue-1787509667](https://lifehacker.com/will-it-sous-vide-totally-tasty-beef-tongue-1787509667)
+> 原文：<https://lifehacker.com/will-it-sous-vide-totally-tasty-beef-tongue-1787509667>
 
 你们好，我美丽的宝贝们，欢迎回到另一期美味的 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) 每周专栏，在这里我用我的沉浸式循环器制作你想要我做的任何东西。
 

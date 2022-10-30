@@ -1,6 +1,6 @@
 # 一天中给出建设性批评的最佳时间
 
-> 原文:[https://life hacker . com/the-best-time-of-day-to-give-constructive-critical-1829177739](https://lifehacker.com/the-best-time-of-day-to-give-constructive-criticism-1829177739)
+> 原文：<https://lifehacker.com/the-best-time-of-day-to-give-constructive-criticism-1829177739>
 
 建设性的批评是工作场所不可避免的弊端之一:没有人喜欢给予批评，当然也没有人乐于接受批评，但这是我们职业和生活成长的重要组成部分。除了给予的时候要温柔和互相尊重，还有一个更重要的因素要考虑，这样才能让对方尽可能好的接受:时机。
 

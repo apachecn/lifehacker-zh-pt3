@@ -1,6 +1,6 @@
 # 谷歌的整个硬件让我很困惑
 
-> 原文:[https://gizmodo . com/Google s-whole-hardware-thing-the-hell-out-1821588783](https://gizmodo.com/googles-whole-hardware-thing-is-confusing-the-hell-out-1821588783)
+> 原文：<https://gizmodo.com/googles-whole-hardware-thing-is-confusing-the-hell-out-1821588783>
 
 在编制今年最佳和最差电子产品榜单时，我注意到一个非常令人难过的事实:谷歌同时上榜。在全力投入硬件游戏的第二年，谷歌设法创造出如此糟糕的耳塞，以至于把它们放在充电盒里需要一段视频解释，还有一台如此神奇的笔记本电脑，我花了很多时间在论坛上策划如何在上面加载一个更有用的操作系统。在这两个小工具之间的巨大鸿沟中，隐藏着谷歌今年宣布的所有其他东西，这些硬件一起描绘了一幅令人困惑的画面。谷歌你到底在干什么？
 

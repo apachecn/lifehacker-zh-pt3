@@ -1,6 +1,6 @@
 # 绿卡流程中增加了当面面试
 
-> 原文:[https://life hacker . com/in-person-interview-added-to-green-card-process-1798612632](https://lifehacker.com/in-person-interview-added-to-green-card-process-1798612632)
+> 原文：<https://lifehacker.com/in-person-interview-added-to-green-card-process-1798612632>
 
 获得绿卡已经是一个复杂的，有时甚至令人困惑的过程。美国公民和移民服务局(USCIS)现在为两种绿卡增加了面对面的面试。
 

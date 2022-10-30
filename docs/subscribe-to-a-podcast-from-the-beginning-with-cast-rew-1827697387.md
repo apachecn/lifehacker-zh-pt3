@@ -1,6 +1,6 @@
 # 使用 Cast Rewinder 从头开始订阅播客
 
-> 原文:[https://life hacker . com/subscribe-to-a-podcast-from-beginning-with-cast-rew-1827697387](https://lifehacker.com/subscribe-to-a-podcast-from-the-beginning-with-cast-rew-1827697387)
+> 原文：<https://lifehacker.com/subscribe-to-a-podcast-from-the-beginning-with-cast-rew-1827697387>
 
 我有一个坏的播客习惯。我不断发现伟大的，长期运行的播客，并下载他们的整个积压。现在我已经排好了 32 集 128 集的队。也许我应该使用 [Cast Rewinder](https://rewind.website/) ，它一次给你发送一个旧的播客片段。
 

@@ -1,6 +1,6 @@
 # 除了酒吧，第一次约会还能去哪里
 
-> 原文:[https://life hacker . com/除了酒吧第一次约会去哪里-1819758639](https://lifehacker.com/where-to-go-on-a-first-date-besides-a-bar-1819758639)
+> 原文：<https://lifehacker.com/where-to-go-on-a-first-date-besides-a-bar-1819758639>
 
 尽管每个人都想坠入爱河(和上床)，但第一次约会有一个相当糟糕的名声。可能是因为这是一个高风险、高回报的提议；它们有可能让你的生活充满魔力，或者让你后悔离开这个家。没有办法保证你和你的第一次约会之间的化学反应(甚至基本的人类礼貌)，但你至少可以计划一个好的地点来发现你是否讨厌对方。
 

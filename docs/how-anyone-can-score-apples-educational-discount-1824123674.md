@@ -1,6 +1,6 @@
 # 任何人都可以获得苹果的教育折扣
 
-> 原文:[https://life hacker . com/how-any one-can-score-apple-educational-discount-1824123674](https://lifehacker.com/how-anyone-can-score-apples-educational-discount-1824123674)
+> 原文：<https://lifehacker.com/how-anyone-can-score-apples-educational-discount-1824123674>
 
 你是教育家吗？你可能训练你的猫玩捡东西，但这并不一定让你有资格享受苹果硬件的教育折扣。是吗？
 

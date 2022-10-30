@@ -1,6 +1,6 @@
 # 2016 年最受欢迎的特色工作区
 
-> 原文:[https://life hacker . com/most-popular-featured-work spaces-of-2016-1790294388](https://lifehacker.com/most-popular-featured-workspaces-of-2016-1790294388)
+> 原文：<https://lifehacker.com/most-popular-featured-workspaces-of-2016-1790294388>
 
 每周，我们都会重点介绍令人惊叹的工作站、战斗站、办公场所以及其他人们工作、娱乐、放松和完成工作的高科技场所。让我们回顾一下过去一年中你最喜欢的歌曲。
 

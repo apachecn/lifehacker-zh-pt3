@@ -1,6 +1,6 @@
 # 问专家:关于购买你的第一套房子
 
-> 原文:[https://life hacker . com/ask-an-expert-all-about-buying your-first-home-1784258818](https://lifehacker.com/ask-an-expert-all-about-buying-your-first-home-1784258818)
+> 原文：<https://lifehacker.com/ask-an-expert-all-about-buying-your-first-home-1784258818>
 
 对许多人来说，买房是一个人生目标，众所周知的栅栏也是一个重大的财务决定。你如何知道你是否准备购买？你应该提前做哪些财务上的动作？不管怎样，今年的房价会是怎样的？
 

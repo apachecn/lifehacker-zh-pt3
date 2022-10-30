@@ -1,6 +1,6 @@
 # 每周升级:我们如何让两个推特机器人成为朋友
 
-> 原文:[https://life hacker . com/weekly-upgrades-how-we-make-two-Twitter-bots-become-fr-1797333972](https://lifehacker.com/weekly-upgrades-how-we-made-two-twitter-bots-become-fr-1797333972)
+> 原文：<https://lifehacker.com/weekly-upgrades-how-we-made-two-twitter-bots-become-fr-1797333972>
 
 Watch
 

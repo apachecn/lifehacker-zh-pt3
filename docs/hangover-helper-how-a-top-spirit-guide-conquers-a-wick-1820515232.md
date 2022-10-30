@@ -1,6 +1,6 @@
 # 解酒助手:顶级精神导师如何战胜邪恶的葡萄酒流感
 
-> 原文:[https://the take out . com/hangover-helper-how-a-top-spirit-guide-conques-a-wick-1820515232](https://thetakeout.com/hangover-helper-how-a-top-spirit-guide-conquers-a-wick-1820515232)
+> 原文：<https://thetakeout.com/hangover-helper-how-a-top-spirit-guide-conquers-a-wick-1820515232>
 
 ***是*****外卖的*每周专题节目，讲述如何度过酗酒流感。***
 

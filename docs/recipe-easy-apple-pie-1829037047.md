@@ -1,6 +1,6 @@
 # 你所喜欢的不到一小时就烤好的苹果派
 
-> 原文:[https://thetakeout.com/recipe-easy-apple-pie-1829037047](https://thetakeout.com/recipe-easy-apple-pie-1829037047)
+> 原文：<https://thetakeout.com/recipe-easy-apple-pie-1829037047>
 
 我一整年都在等待这个时刻:苹果旺季。苹果酒洋基蜡烛已购买。来自 Bath & Body Works 的苹果洗手液骄傲地站在水槽边。(我甚至没有夸张；如果你现在进入我的家，你会知道这些事实是真的。)和往常一样，我买的苹果多得不知道该怎么办。
 

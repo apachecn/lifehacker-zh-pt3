@@ -1,6 +1,6 @@
 # 防南极录音包
 
-> 原文:[https://life hacker . com/the-antarctica-proof-audio-recording-bag-1793010830](https://lifehacker.com/the-antarctica-proof-audio-recording-bag-1793010830)
+> 原文：<https://lifehacker.com/the-antarctica-proof-audio-recording-bag-1793010830>
 
 南极洲是地球上最极端的地方之一，音频设备是众所周知的挑剔。那么，音频工程师会带些什么呢？《每日电讯报》读者尼里欧分享了他为即将到来的旅行准备的装备。
 

@@ -1,6 +1,6 @@
 # 如何获得捐赠卵子的报酬
 
-> 原文:[https://life hacker . com/how-to-get-payed-to-捐出你的卵子-1797725922](https://lifehacker.com/how-to-get-paid-to-donate-your-eggs-1797725922)
+> 原文：<https://lifehacker.com/how-to-get-paid-to-donate-your-eggs-1797725922>
 
 大学校园里，捐赠卵子的广告传单散落在社区公告牌上。 [“助人为乐赚八千”](https://static1.squarespace.com/static/56461b65e4b0d7b3369f7fea/t/572cdcc3f8baf3d0b64640ee/1462557904318/egg_ad_3.png) 是一个 [典型的](https://www.google.com/search?client=ubuntu&biw=1237&bih=625&tbm=isch&q=egg+donation+flyer&spell=1&sa=X&ved=0ahUKEwj31fvQ2MvVAhVI54MKHYKnBoQQvwUIJCgA) 承诺。但是即使卵子捐赠报酬很高，并且不需要任何经验(年轻实际上是一个优势)，这个决定也不是那么容易。你的健康和生育能力可能面临风险，这种经历可能在情感上具有挑战性，实际的补偿可能会有所不同。
 

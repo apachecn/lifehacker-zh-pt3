@@ -1,6 +1,6 @@
 # 让 Alexa 解决你孩子的争端
 
-> 原文:[https://life hacker . com/let-Alexa-settle-your-kids-disputes-1823717619](https://lifehacker.com/let-alexa-settle-your-kids-disputes-1823717619)
+> 原文：<https://lifehacker.com/let-alexa-settle-your-kids-disputes-1823717619>
 
 作为父母，你经常听说生活中的巨大不公
 

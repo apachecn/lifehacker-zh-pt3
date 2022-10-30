@@ -1,6 +1,6 @@
 # 我们的苹果 iPhone 活动直播博客就在这里
 
-> 原文:[https://gizmodo . com/our-apple-iphone-event-live blog-will-be-right-here-1828972409](https://gizmodo.com/our-apple-iphone-event-liveblog-will-be-right-here-1828972409)
+> 原文：<https://gizmodo.com/our-apple-iphone-event-liveblog-will-be-right-here-1828972409>
 
 三重威胁 iPhone 日即将到来，伙计们，这感觉像是很多信息。今年，苹果似乎将发布三款新的 iPhone，以及一系列其他产品升级。还有一个很大的机会，一些或几个东西会涉及到金色。
 

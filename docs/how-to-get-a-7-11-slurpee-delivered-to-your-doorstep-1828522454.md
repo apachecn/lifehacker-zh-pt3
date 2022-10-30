@@ -1,6 +1,6 @@
 # 如何让 7-11 思乐冰送货上门
 
-> 原文:[https://life hacker . com/how-to-get-a-7-11-slurpee-delivered-your-stake-1828522454](https://lifehacker.com/how-to-get-a-7-11-slurpee-delivered-to-your-doorstep-1828522454)
+> 原文：<https://lifehacker.com/how-to-get-a-7-11-slurpee-delivered-to-your-doorstep-1828522454>
 
 有时候你真的需要思乐冰——至少如果你在纽约的话。
 

@@ -1,6 +1,6 @@
 # 让你的孩子点披萨
 
-> 原文:[https://life hacker . com/let-your-kid-order-the-pizza-1823751326](https://lifehacker.com/let-your-kid-order-the-pizza-1823751326)
+> 原文：<https://lifehacker.com/let-your-kid-order-the-pizza-1823751326>
 
 女儿两岁的一天下午，我去日托所接她，她的老师迫不及待地告诉我这个消息。
 

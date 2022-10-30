@@ -1,6 +1,6 @@
 # 用果汁腌制你的块根类蔬菜
 
-> 原文:[https://life hacker . com/sous-vide-your-root-vegetables-with-fruit-juice-1822239917](https://lifehacker.com/sous-vide-your-root-vegetables-with-fruit-juice-1822239917)
+> 原文：<https://lifehacker.com/sous-vide-your-root-vegetables-with-fruit-juice-1822239917>
 
 朋友们大家好，欢迎回到 [*它会苏威吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。今天，我们暂时停止了对肉类的追求，把我们的电视目光聚焦在一些友好的块根类蔬菜上。
 

@@ -1,6 +1,6 @@
 # 购买前使用无人机模拟器进行练习
 
-> 原文:[https://life hacker . com/use-a-drone-simulator-to-practice-before-you-buy-1796720408](https://lifehacker.com/use-a-drone-simulator-to-practice-before-you-buy-1796720408)
+> 原文：<https://lifehacker.com/use-a-drone-simulator-to-practice-before-you-buy-1796720408>
 
 没有人想买一架 500 美元的业余无人机，却发现自己是个糟糕的飞行员，尤其是考虑到一次糟糕的转弯或坠毁会让你的投资化为乌有。买之前先在模拟器上练习一下，安全起见(也可以在朋友面前炫耀一下)。
 

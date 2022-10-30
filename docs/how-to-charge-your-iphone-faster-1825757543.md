@@ -1,6 +1,6 @@
 # 如何更快地给 iPhone 充电
 
-> 原文:[https://life hacker . com/how-to-charge-your-iphone-faster-1825757543](https://lifehacker.com/how-to-charge-your-iphone-faster-1825757543)
+> 原文：<https://lifehacker.com/how-to-charge-your-iphone-faster-1825757543>
 
 今天的“我看到它才会相信”iPhone 谣言关注的不是 iPhone 本身，而是它的充电器——你会在它的 [精心制作的包装](https://gizmodo.com/apples-packaging-is-so-good-because-it-employs-a-dedica-5879097) 中找到最重要的配件。据猜测，苹果据称正在考虑将 iPhone 9 或 iPhone X2 的默认充电器从 5W 提高到 18W。
 

@@ -1,6 +1,6 @@
 # 白色乙烯基桌面
 
-> 原文:[https://lifehacker.com/the-white-vinyl-desktop-1739650765](https://lifehacker.com/the-white-vinyl-desktop-1739650765)
+> 原文：<https://lifehacker.com/the-white-vinyl-desktop-1739650765>
 
 我们已经在唱片和唱机周围看到了一些很棒的台式机 ，但是我喜欢这个，因为我有同样的壁纸。我没有与 [本 K](http://kinja.com/alivethroudeath) 相同的小部件，虽然我可能会很快更正。他是这样安排一切的。
 

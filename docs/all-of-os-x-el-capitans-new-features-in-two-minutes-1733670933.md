@@ -1,6 +1,6 @@
 # 两分钟内完成 OS X El Capitan 的所有新功能
 
-> 原文:[https://life hacker . com/all-of-OS-x-El-capitans-new-features-in-two-minutes-1733670933](https://lifehacker.com/all-of-os-x-el-capitans-new-features-in-two-minutes-1733670933)
+> 原文：<https://lifehacker.com/all-of-os-x-el-capitans-new-features-in-two-minutes-1733670933>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZP5JOlzCGWk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZP5JOlzCGWk&start=0) 
 

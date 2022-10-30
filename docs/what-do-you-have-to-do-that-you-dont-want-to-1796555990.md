@@ -1,6 +1,6 @@
 # 你“不得不”做什么你不想做的事？
 
-> 原文:[https://life hacker . com/what-do-you-have-do-that-you-done-want-to-1796555990](https://lifehacker.com/what-do-you-have-to-do-that-you-dont-want-to-1796555990)
+> 原文：<https://lifehacker.com/what-do-you-have-to-do-that-you-dont-want-to-1796555990>
 
 你有没有觉得自己被所有的责任压垮了？有时候感觉有无数的小事你必须去做:你必须去上班，付煤气费，锻炼身体，给你的祖母打电话。你不得不遛狗、买杂货、交税、用牙线剔牙——你每天都要做无数的行政工作，这些都是维持生活所必需的。
 

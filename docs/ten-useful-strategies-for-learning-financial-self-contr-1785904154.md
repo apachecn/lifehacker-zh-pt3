@@ -1,6 +1,6 @@
 # 学习财务自控的十个有用策略
 
-> 原文:[https://life hacker . com/ten-useful-strategies-for-learning-financial-self-contr-1785904154](https://lifehacker.com/ten-useful-strategies-for-learning-financial-self-contr-1785904154)
+> 原文：<https://lifehacker.com/ten-useful-strategies-for-learning-financial-self-contr-1785904154>
 
 如果你和我一样，你会难以置信地在一天中被诱惑几次，把钱花在你并不真正需要的东西上。
 

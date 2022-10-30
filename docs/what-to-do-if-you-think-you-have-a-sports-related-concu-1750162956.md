@@ -1,6 +1,6 @@
 # 如果你认为自己患有与运动相关的脑震荡，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-if-you-think-you-have-a-sports-concu-1750162956](https://lifehacker.com/what-to-do-if-you-think-you-have-a-sports-related-concu-1750162956)
+> 原文：<https://lifehacker.com/what-to-do-if-you-think-you-have-a-sports-related-concu-1750162956>
 
 脑震荡不只是 NFL 球员的专利。它们可能发生在参加 [周末体育联赛](http://vitals.lifehacker.com/fun-sports-you-can-start-as-an-adult-1697785955) 的时候，甚至是不幸滑倒。如果你知道如何发现脑震荡以及哪里可以找到好的治疗方法，你就可以避免进一步受伤的风险。
 

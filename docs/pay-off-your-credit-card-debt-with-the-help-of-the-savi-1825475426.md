@@ -1,6 +1,6 @@
 # 在储蓄应用 Digit 的帮助下还清你的信用卡债务
 
-> 原文:[https://life hacker . com/pay-off-your ' s-the-help of-the-savi-1825475426](https://lifehacker.com/pay-off-your-credit-card-debt-with-the-help-of-the-savi-1825475426)
+> 原文：<https://lifehacker.com/pay-off-your-credit-card-debt-with-the-help-of-the-savi-1825475426>
 
 储蓄应用 [Digit](https://digit.co/) 增加了一项新功能，帮助用户在偿还信用卡债务方面取得进展。
 

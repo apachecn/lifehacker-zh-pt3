@@ -1,6 +1,6 @@
 # 这个应用程序可以帮助你找到一家有冰淇淋机的麦当劳
 
-> 原文:[https://life hacker . com/this-app-helps-you-a-McDonalds-a-working-ice cream-1820366750](https://lifehacker.com/this-app-helps-you-a-mcdonalds-with-a-working-ice-cream-1820366750)
+> 原文：<https://lifehacker.com/this-app-helps-you-a-mcdonalds-with-a-working-ice-cream-1820366750>
 
 我会从麦当劳的菜单上点两样东西:薯条和冰淇淋。有一段时间，当需要紧急奶昔时，麦当劳是我最接近的选择(是的，有时会有奶昔紧急情况)。这一切都很好，直到有时我深夜或中午跑步结束时发现冰淇淋机坏了...又来了。现在有了一个应用程序。
 

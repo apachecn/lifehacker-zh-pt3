@@ -1,6 +1,6 @@
 # 全屏以延长 MacBook 糟糕的电池寿命
 
-> 原文:[https://life hacker . com/go-full screen-to-boost-your-macbooks-bad-battery-life-1797750960](https://lifehacker.com/go-fullscreen-to-boost-your-macbooks-bad-battery-life-1797750960)
+> 原文：<https://lifehacker.com/go-fullscreen-to-boost-your-macbooks-bad-battery-life-1797750960>
 
 苹果最新的 MacBook Pro refresh 有相当多的批评者，这是有充分理由的——省略传统 USB 端口、与苹果自己的 Lightning-only 耳机不兼容以及移除磁性 MagSafe 连接器等变化让长期用户感到不满，尽管苹果高管菲尔·席勒坚持认为公布的变化是笔记本的未来。
 

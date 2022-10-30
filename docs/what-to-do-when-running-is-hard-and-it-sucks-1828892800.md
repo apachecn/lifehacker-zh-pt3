@@ -1,6 +1,6 @@
 # 当跑步很难并且很糟糕的时候该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-when-running-is-hard and-sucks-1828892800](https://lifehacker.com/what-to-do-when-running-is-hard-and-it-sucks-1828892800)
+> 原文：<https://lifehacker.com/what-to-do-when-running-is-hard-and-it-sucks-1828892800>
 
 我唯一一次想在马拉松博览会上买一件衬衫，上面有一句很贴切的话:“我喜欢跑步...除了在我做的时候。”
 

@@ -1,6 +1,6 @@
 # 50 岁可能是你一生中最不快乐的时候
 
-> 原文:[https://life hacker . com/your-50-将可能是你最不开心的时候 1821196778](https://lifehacker.com/your-50s-will-probably-be-the-most-unhappy-time-of-your-1821196778)
+> 原文：<https://lifehacker.com/your-50s-will-probably-be-the-most-unhappy-time-of-your-1821196778>
 
 每个人的生活都充满了起起落落，但新的研究表明，当谈到我们的总体满意度时，每个人的生活都遵循一种特定的模式。到了中年，我们似乎都很沮丧。
 

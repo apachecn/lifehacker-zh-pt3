@@ -1,6 +1,6 @@
 # 永远不要以天气和其他更好讲故事的规则开始故事
 
-> 原文:[https://life hacker . com/never-start-a story-with-the-weather-and-other-rules-f-1824196884](https://lifehacker.com/never-start-a-story-with-the-weather-and-other-rules-f-1824196884)
+> 原文：<https://lifehacker.com/never-start-a-story-with-the-weather-and-other-rules-f-1824196884>
 
 成为一个善于讲故事的人可以提高你在工作中的表达能力，提升你的社交技能，让你总体上更讨人喜欢。但这不是每个人天生就有的能力。如果你不确定如何讲述吸引观众的故事，这些简单的注意事项会给你一个好的开始。
 

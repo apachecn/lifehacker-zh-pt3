@@ -1,6 +1,6 @@
 # 问那个咸咸的女服务员:如果我们的食物总是吃不完，我们能不能付了饮料钱就走？
 
-> 原文:[https://the take out . com/ask-the-salt-waste-if-our-food-is-take-forever-1825829733](https://thetakeout.com/ask-the-salty-waitress-if-our-food-is-taking-forever-1825829733)
+> 原文：<https://thetakeout.com/ask-the-salty-waitress-if-our-food-is-taking-forever-1825829733>
 
 * * *
 

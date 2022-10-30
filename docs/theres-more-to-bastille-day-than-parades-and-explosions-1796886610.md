@@ -1,6 +1,6 @@
 # 巴士底日不仅仅是游行和爆炸——这是特朗普此行的前奏
 
-> 原文:[https://life hacker . com/there-than-to-Bastille-day than-游行和爆炸-1796886610](https://lifehacker.com/theres-more-to-bastille-day-than-parades-and-explosions-1796886610)
+> 原文：<https://lifehacker.com/theres-more-to-bastille-day-than-parades-and-explosions-1796886610>
 
 今天是法国的巴士底日，特朗普总统在那里庆祝。但是为什么呢？这个节日到底是为了什么？
 

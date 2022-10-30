@@ -1,6 +1,6 @@
 # 为这个光明节的成人 Dreidel 游戏制作大麻巧克力酱
 
-> 原文:[https://life hacker . com/make-大麻巧克力凝胶成人游戏-1821264436](https://lifehacker.com/make-cannabis-infused-chocolate-gelt-for-an-adult-game-1821264436)
+> 原文：<https://lifehacker.com/make-cannabis-infused-chocolate-gelt-for-an-adult-game-1821264436>
 
 Dreidel 是老姐版的赌博，或者说我从小就这么认为！ [正如历史所记载的](https://forward.com/culture/326379/the-true-history-of-the-dreidel/) ，它从爱尔兰一路穿越欧洲，在成为意第绪语和希伯来语的最爱之前。一个有四条规则的陀螺很酷，但是玩一点增强巧克力可以帮助你进入野蛮状态。制作自己的大麻巧克力硬币比听起来容易得多，并且不需要任何特殊的工具。
 

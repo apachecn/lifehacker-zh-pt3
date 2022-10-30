@@ -1,6 +1,6 @@
 # 苹果刚刚泄露了 iOS 11，看起来我们将获得一部“iPhone X”
 
-> 原文:[https://gizmodo . com/apple-just-leaved-IOs-11-and-looking-like-be-going-an-1802936703](https://gizmodo.com/apple-just-leaked-ios-11-and-looks-like-were-getting-an-1802936703)
+> 原文：<https://gizmodo.com/apple-just-leaked-ios-11-and-looks-like-were-getting-an-1802936703>
 
 惊喜！周五晚上，iOS 11 的金主版本在网上泄露，用户在 Reddit 上传播了软件 的 [链接。它充满了关于即将到来的系列产品的细节，这些产品是为该公司 9 月 12 日的活动准备的，包括苹果似乎准备完全跳过发布 7S 系列，直接转向 iPhone 8。](https://www.reddit.com/user/frenchfriedcat)
 

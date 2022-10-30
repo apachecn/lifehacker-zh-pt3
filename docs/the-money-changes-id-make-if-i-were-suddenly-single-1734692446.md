@@ -1,6 +1,6 @@
 # 如果我突然单身了，我会在金钱上有所改变
 
-> 原文:[https://life hacker . com/the-money-changes-id-make-if-I-are-when-single-1734692446](https://lifehacker.com/the-money-changes-id-make-if-i-were-suddenly-single-1734692446)
+> 原文：<https://lifehacker.com/the-money-changes-id-make-if-i-were-suddenly-single-1734692446>
 
 一位读者最近问我，对于已经走上经济独立之路的单身人士来说，什么样的生活策略是有用的。我很幸运结婚成家，但这让我思考:如果我突然又单身了，没有妻子和孩子，有我现在的经济状况，我会怎么做？
 

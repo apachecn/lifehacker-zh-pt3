@@ -1,6 +1,6 @@
 # 这是今年夏天制作血腥玛丽最简单、最新鲜的方法
 
-> 原文:[https://life hacker . com/this-is-the-easy-fresh-way-make a-bloody-Mary-1826671554](https://lifehacker.com/this-is-the-easiest-freshest-way-to-make-a-bloody-mary-1826671554)
+> 原文：<https://lifehacker.com/this-is-the-easiest-freshest-way-to-make-a-bloody-mary-1826671554>
 
 血腥玛丽是一种四季皆宜的饮料，但当室外温度开始上升时，啜饮粘稠、像汤一样的混合物会有一些不愉快。为了战胜炎热，同时享受你最喜欢的美味早午餐鸡尾酒，完全跳过混合，用新鲜的番茄泥做你自己的。
 

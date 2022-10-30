@@ -1,6 +1,6 @@
 # 用乒乓球来判断你的圣诞树是否需要水
 
-> 原文:[https://life hacker . com/use-a-ping-pong-ball-to-tell-if-your-圣诞树-nee-1820960029](https://lifehacker.com/use-a-ping-pong-ball-to-tell-if-your-christmas-tree-nee-1820960029)
+> 原文：<https://lifehacker.com/use-a-ping-pong-ball-to-tell-if-your-christmas-tree-nee-1820960029>
 
 饱满的圣诞树看起来很棒，但是浇水的时候会很痛苦。
 

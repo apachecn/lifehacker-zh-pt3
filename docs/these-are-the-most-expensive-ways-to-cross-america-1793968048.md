@@ -1,6 +1,6 @@
 # 这些是穿越美国最昂贵的方式
 
-> 原文:[https://jalopnik . com/这些是穿越美国最昂贵的方式-1793968048](https://jalopnik.com/these-are-the-most-expensive-ways-to-cross-america-1793968048)
+> 原文：<https://jalopnik.com/these-are-the-most-expensive-ways-to-cross-america-1793968048>
 
 你有没有坐上出租车，想知道如果你让司机一直开下去，直到他们开不动为止，要花多少钱？你当然有。如果你住在美国，我敢肯定你或者在某个时候穿过这个国家，或者至少对此感到好奇。你有没有想过最昂贵的方法是什么？我当然有，所以我做了这张图表。
 

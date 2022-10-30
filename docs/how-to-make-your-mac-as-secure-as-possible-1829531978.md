@@ -1,6 +1,6 @@
 # 如何让您的 Mac 尽可能安全
 
-> 原文:[https://life hacker . com/how-to-make-your-MAC-as-secure-as-possible-1829531978](https://lifehacker.com/how-to-make-your-mac-as-secure-as-possible-1829531978)
+> 原文：<https://lifehacker.com/how-to-make-your-mac-as-secure-as-possible-1829531978>
 
 [Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
 

@@ -1,6 +1,6 @@
 # 懒人的好咖啡
 
-> 原文:[https://life hacker . com/good-coffee-for-lazy-people-1773462342](https://lifehacker.com/good-coffee-for-lazy-people-1773462342)
+> 原文：<https://lifehacker.com/good-coffee-for-lazy-people-1773462342>
 
 我喜欢咖啡。我每天都喝。我喜欢在家尝试新的酿造方法。说到我每天喝的咖啡，我也很懒。我不愿意经历大多数咖啡鉴赏家为“完美”的杯子建议的荒谬步骤。考虑到这一点，这里是我多年来得到的一些建议，尽可能方便地做出一杯好咖啡。
 

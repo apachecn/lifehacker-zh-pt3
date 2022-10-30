@@ -1,6 +1,6 @@
 # 如何挑选一个好的传家宝番茄
 
-> 原文:[https://life hacker . com/how-to-pick a-good-传家宝番茄-1828331564](https://lifehacker.com/how-to-pick-a-good-heirloom-tomato-1828331564)
+> 原文：<https://lifehacker.com/how-to-pick-a-good-heirloom-tomato-1828331564>
 
 我很担心西红柿，尤其是漂亮精致的传家宝。我等了一整年，梦想着最简单、最美味的番茄三明治，当那一刻到来时，我会立刻抓狂。毕竟我不想挑错*的*番茄。
 

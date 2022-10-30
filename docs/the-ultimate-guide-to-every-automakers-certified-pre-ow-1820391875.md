@@ -1,6 +1,6 @@
 # 每个汽车制造商认证二手车项目的终极指南
 
-> 原文:[https://jalopnik . com/the-ultimate-guide-to-every-automobile makers-certified-pre-ow-1820391875](https://jalopnik.com/the-ultimate-guide-to-every-automakers-certified-pre-ow-1820391875)
+> 原文：<https://jalopnik.com/the-ultimate-guide-to-every-automakers-certified-pre-ow-1820391875>
 
 购买一辆 [认证的二手车](https://jalopnik.com/what-is-a-certified-pre-owned-car-1595837186?rev=1510585208152) 是获得二手车价值的好方法，同时也能最大限度地降低风险。认证保修范围和持续时间因品牌而异，这个方便的指南在你购买下一辆车时会非常有用。
 

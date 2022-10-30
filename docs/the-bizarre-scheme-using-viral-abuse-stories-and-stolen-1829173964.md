@@ -1,6 +1,6 @@
 # 利用病毒滥用故事和偷来的照片在 Twitter 上销售减肥药的离奇计划
 
-> 原文:[https://gizmodo . com/the-strange-scheme-using-viral-abuse-stories-and-stocked-1829173964](https://gizmodo.com/the-bizarre-scheme-using-viral-abuse-stories-and-stolen-1829173964)
+> 原文：<https://gizmodo.com/the-bizarre-scheme-using-viral-abuse-stories-and-stolen-1829173964>
 
 本周末，一名 Twitter 用户分享了一个近乎超现实的令人不安的故事。在一条 32 条推文中，阿什利讲述了与一名男友的虐待关系，该男友强迫她吃东西，直到给她造成痛苦——似乎是为了他自己的性快感。
 

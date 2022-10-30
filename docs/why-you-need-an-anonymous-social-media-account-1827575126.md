@@ -1,6 +1,6 @@
 # 为什么你需要一个匿名的社交媒体账户
 
-> 原文:[https://life hacker . com/why-you-need-a-anonymous-social-media-account-1827575126](https://lifehacker.com/why-you-need-an-anonymous-social-media-account-1827575126)
+> 原文：<https://lifehacker.com/why-you-need-an-anonymous-social-media-account-1827575126>
 
 上网从来没有这么尴尬过。人们在 [私人飞机上租用 10 分钟的时间用于‘阿克](http://nymag.com/selectall/2017/10/you-can-rent-a-grounded-private-jet-to-take-instagram-photos.html) 。最无伤大雅、最善意的帖子可能会引发愤怒。你不能在飞机上与人交谈，否则它会成为一个病毒故事，导致 [骚扰](https://lifehacker.com/stop-posting-pictures-of-strangers-on-social-media-1827447268) 。总统 [推特](https://twitter.com/realdonaldtrump/status/971006379375972354?lang=en) 。
 

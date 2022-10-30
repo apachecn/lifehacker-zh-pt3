@@ -1,6 +1,6 @@
 # 我是妮可·康尼夫，斯卡豪斯的设计经理，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-Nicole-conniff-design-manager-at-scare house-and-th-1819714505](https://lifehacker.com/im-nicole-conniff-design-manager-at-scarehouse-and-th-1819714505)
+> 原文：<https://lifehacker.com/im-nicole-conniff-design-manager-at-scarehouse-and-th-1819714505>
 
 匹兹堡最著名的鬼屋景点之一，ScareHouse ，赢得了全国媒体的关注，并得到了奇幻恐怖片导演吉尔莫·德尔·托罗的称赞。我们的姐妹网站 Jezebel 写了一篇关于 [的文章，她是 ScareHouse 景点“地下室”的设计者我们采访了 ScareHouse 的另一位领导者:设计经理妮可·康尼夫，她于 2009 年开始在这家公司担任化妆师和演员。她也是匹兹堡文艺复兴节的长期摊贩，在那里她出售自己定制的化妆舞会面具、玻璃器皿和蜡烛。我们问她如何工作。](https://jezebel.com/whats-the-ethical-limit-of-a-boundary-pushing-haunted-h-1738996015#_ga=2.33148667.456900507.1508420589-1297080755.1497980211) 
 

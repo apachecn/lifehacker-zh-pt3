@@ -1,6 +1,6 @@
 # 寻找适合你的基金会的速成班
 
-> 原文:[https://life hacker . com/a-crash-course-in-finding-the-right-foundation-for-you-1790689232](https://lifehacker.com/a-crash-course-in-finding-the-right-foundation-for-you-1790689232)
+> 原文：<https://lifehacker.com/a-crash-course-in-finding-the-right-foundation-for-you-1790689232>
 
 找到合适的基金会并不容易。有这么多选择，几乎不可能知道从哪里开始。如果你缩小你从粉底中寻找的范围，覆盖的程度和你想要的完成的类型，它会让你更容易找到完美的粉底。
 

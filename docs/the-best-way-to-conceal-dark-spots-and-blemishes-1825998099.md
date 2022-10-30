@@ -1,6 +1,6 @@
 # 隐藏黑斑和瑕疵的最佳方法
 
-> 原文:[https://life hacker . com/the-best-way-to-hidden-dark-spot-and-missions-1825998099](https://lifehacker.com/the-best-way-to-conceal-dark-spots-and-blemishes-1825998099)
+> 原文：<https://lifehacker.com/the-best-way-to-conceal-dark-spots-and-blemishes-1825998099>
 
 如果有一种化妆技术可以区分专业人士和业余爱好者，那就是肤色。令人信服地用化妆品伪造完美的皮肤需要色彩理论、照明、皮肤类型和化妆品配方的工作知识——更不用说大量的经验了。
 

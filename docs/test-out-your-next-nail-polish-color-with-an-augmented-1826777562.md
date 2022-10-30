@@ -1,6 +1,6 @@
 # 用增强现实应用测试你下一款指甲油的颜色
 
-> 原文:[https://life hacker . com/test-out-your ' s next-nail-polish-color-with-an-augmented-1826777562](https://lifehacker.com/test-out-your-next-nail-polish-color-with-an-augmented-1826777562)
+> 原文：<https://lifehacker.com/test-out-your-next-nail-polish-color-with-an-augmented-1826777562>
 
 **iOS / Android:** 几周前我做了指甲，感觉棒极了，但我强烈推荐你在去沙龙之前尝试一下 Wanna Nails([【iOS】](https://itunes.apple.com/us/app/wanna-nails-mani-shopping/id1334108416?mt=8)、 [Android](https://play.google.com/store/apps/details?id=by.wanna.apps.wnails&ref=producthunt) )，这样你就不会在颜色选择上瞎摸了。如果你更喜欢自己动手做指甲保养，你可以避免购买你讨厌的颜色。让增强现实的力量帮助你用手指轻敲就能预览指甲上的不同颜色。
 

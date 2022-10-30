@@ -1,6 +1,6 @@
 # 后院烧烤播放列表
 
-> 原文:[https://life hacker . com/the-后院-烧烤-播放列表-1778935062](https://lifehacker.com/the-backyard-barbecue-playlist-1778935062)
+> 原文：<https://lifehacker.com/the-backyard-barbecue-playlist-1778935062>
 
 阵亡将士纪念日快到了！如果你是有一个长周末的幸运儿之一，你可能已经准备好烧烤来庆祝了。今天的播放列表会有所帮助。
 

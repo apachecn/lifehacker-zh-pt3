@@ -1,6 +1,6 @@
 # 不规则的主屏幕
 
-> 原文:[https://lifehacker.com/the-irregular-home-screen-1735541919](https://lifehacker.com/the-irregular-home-screen-1735541919)
+> 原文：<https://lifehacker.com/the-irregular-home-screen-1735541919>
 
 今天的主屏幕设计保持干净，简单的卡片显示你的议程，时间和天气，以及一些方便的关键应用程序的快捷方式。
 

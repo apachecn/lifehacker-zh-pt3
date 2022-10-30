@@ -1,6 +1,6 @@
 # 没关系，瑜伽垫不会影响你的生育能力
 
-> 原文:[https://life hacker . com/its-okay-yoga-mats-arent-messing-with-your-fertility-1798515817](https://lifehacker.com/its-okay-yoga-mats-arent-messing-with-your-fertility-1798515817)
+> 原文：<https://lifehacker.com/its-okay-yoga-mats-arent-messing-with-your-fertility-1798515817>
 
 即使没有暗示你练瑜伽是罪魁祸首的头条新闻，不孕症也够糟糕的了。最近的一项研究发现，某些阻燃化学物质可能会让你更难有孩子，但尽管有向下的狗股票照片，瑜伽垫没有参与这项研究。
 

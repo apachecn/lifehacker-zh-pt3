@@ -1,6 +1,6 @@
 # 工作的时候听费拉·库蒂的音乐
 
-> 原文:[https://life hacker . com/listen-to-fela-kuti-while you-work-1825424812](https://lifehacker.com/listen-to-fela-kuti-while-you-work-1825424812)
+> 原文：<https://lifehacker.com/listen-to-fela-kuti-while-you-work-1825424812>
 
 超级巨星 [【费拉·库蒂】](https://felakuti.bandcamp.com/)——或者仅仅是费拉——的非洲音乐是强有力的、政治性的，并且如此有影响力，以至于费拉的声音被融入了过去四十多年的流行、摇滚和嘻哈音乐中。这也是很棒的音乐。
 

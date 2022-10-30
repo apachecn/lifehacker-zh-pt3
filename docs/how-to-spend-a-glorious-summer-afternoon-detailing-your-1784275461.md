@@ -1,6 +1,6 @@
 # 如何度过一个美好的夏日午后，以正确的方式装饰您的爱车
 
-> 原文:[https://jalopnik . com/how-to-spend-a-glory-summer-午-detailing-your-1784275461](https://jalopnik.com/how-to-spend-a-glorious-summer-afternoon-detailing-your-1784275461)
+> 原文：<https://jalopnik.com/how-to-spend-a-glorious-summer-afternoon-detailing-your-1784275461>
 
 生活中很少有事情能给我带来用超细纤维毛巾擦刚打过蜡的汽车的那种触感，尤其是在夏天。我试着一年两次给我的车做详细的保养，一次是在第一次降雪和路面结冰之前的深秋或初冬，另一次是在夏天。下面是正确的做法。
 

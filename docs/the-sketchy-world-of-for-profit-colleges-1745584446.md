@@ -1,6 +1,6 @@
 # 营利性大学的粗略世界
 
-> 原文:[https://life hacker . com/the-sketchy-world-of-profit-of-profit-colleges-1745584446](https://lifehacker.com/the-sketchy-world-of-for-profit-colleges-1745584446)
+> 原文：<https://lifehacker.com/the-sketchy-world-of-for-profit-colleges-1745584446>
 
 营利性大学最近得到了很多关注，但不是好的那种。他们被起诉，政府官员公开反对他们，报道揭露了他们的黑幕。如果一所营利性大学在你的考虑范围之内，你应该三思而后行，知道自己将要进入什么样的学校。
 

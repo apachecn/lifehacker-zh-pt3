@@ -1,6 +1,6 @@
 # 在线备份对抗:CrashPlan 与 Backblaze
 
-> 原文:[https://life hacker . com/online-backup-face off-crash plan-vs-backblaze-1768101631](https://lifehacker.com/online-backup-faceoff-crashplan-vs-backblaze-1768101631)
+> 原文：<https://lifehacker.com/online-backup-faceoff-crashplan-vs-backblaze-1768101631>
 
 您不想考虑备份:您希望它们在后台自动发生在您所有的计算机上。您希望从任何位置、任何设备、任何操作系统访问这些备份。为此有两个优秀的服务: [CrashPlan](http://www.code42.com/crashplan/) 和 [Backblaze](https://www.backblaze.com) 。两者都很受欢迎，我们过去都推荐过。我们来对比一下。
 

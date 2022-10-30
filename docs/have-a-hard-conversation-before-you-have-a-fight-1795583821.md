@@ -1,6 +1,6 @@
 # 在吵架之前，先进行一次艰难的对话
 
-> 原文:[https://life hacker . com/have-a-hard-conversation-before-you-have-a-fight-1795583821](https://lifehacker.com/have-a-hard-conversation-before-you-have-a-fight-1795583821)
+> 原文：<https://lifehacker.com/have-a-hard-conversation-before-you-have-a-fight-1795583821>
 
 我不喜欢冲突，但我喜欢记仇。我很容易陷入这样的模式:注意到爱人令人讨厌或沮丧的行为，告诉自己我并不真的感到烦恼，希望它会消失，变得越来越烦躁，然后在讨论其他事情时把它作为弹药。
 

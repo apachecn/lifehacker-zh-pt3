@@ -1,6 +1,6 @@
 # 日本炖牛肉有着浓郁的鲜味和深深的魔力
 
-> 原文:[https://the take out . com/Japanese-beef-stew-is-umami-rich-and-deep-magic-1825091647](https://thetakeout.com/japanese-beef-stew-is-umami-rich-and-deeply-magical-1825091647)
+> 原文：<https://thetakeout.com/japanese-beef-stew-is-umami-rich-and-deeply-magical-1825091647>
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 

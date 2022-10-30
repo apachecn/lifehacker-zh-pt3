@@ -1,6 +1,6 @@
 # 我是定量未来学家艾米·韦伯，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-quantitative-futurist-Amy-Webb-and-this-is-how-I-wo-1826957435](https://lifehacker.com/im-quantitative-futurist-amy-webb-and-this-is-how-i-wo-1826957435)
+> 原文：<https://lifehacker.com/im-quantitative-futurist-amy-webb-and-this-is-how-i-wo-1826957435>
 
 未来学家艾米·韦伯从今天开始领导 [未来今天研究所](https://futuretodayinstitute.com/) ...是未来。这听起来没有我们希望的那么深刻，但是韦伯的作品*是*深刻的。自从 Webb 在 2006 年创立 Future Today 以来，它已经为包括微软、美国运通、Univision (Lifehacker 目前的母公司)、白宫和美联储在内的客户分析了文化和技术趋势。她还出版了 [两本书](https://www.amazon.com/default/e/B008J35QIG/ref=sr_ntt_srch_lnk_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/im-quantitative-futurist-amy-webb-and-this-is-how-i-wo-1826957435&asc_source=&tag=kinjalifehackerlink-20) 并接受了 TED 演讲 [“我是如何黑掉约会的。”](https://www.ted.com/talks/amy_webb_how_i_hacked_online_dating) 我们和她谈论了完美的随身包、世界各地媒体技术的差异，以及她所在的机构用来有效分散工作日的方法。
 

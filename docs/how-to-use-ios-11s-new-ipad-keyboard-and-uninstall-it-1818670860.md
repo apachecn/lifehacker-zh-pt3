@@ -1,6 +1,6 @@
 # 如何使用 iOS 11 的新 iPad 键盘(讨厌就卸载)
 
-> 原文:[https://life hacker . com/how-to-use-IOs-11s-new-ipad-keyboard-and-uninstall-it-1818670860](https://lifehacker.com/how-to-use-ios-11s-new-ipad-keyboard-and-uninstall-it-1818670860)
+> 原文：<https://lifehacker.com/how-to-use-ios-11s-new-ipad-keyboard-and-uninstall-it-1818670860>
 
 如果你已经在 iPad 上安装了 iOS 11，那么你可能已经体验过该操作系统的新键盘功能——按键。基本上，苹果采用了常规键盘，并在每个字母上覆盖了数字和符号。
 

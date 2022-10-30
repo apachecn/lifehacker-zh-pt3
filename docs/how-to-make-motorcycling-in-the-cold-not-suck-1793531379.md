@@ -1,6 +1,6 @@
 # 如何让寒冷中的摩托车不让人难受
 
-> 原文:[https://jalopnik . com/how-to-make-the-cold-not-suck-1793531379](https://jalopnik.com/how-to-make-motorcycling-in-the-cold-not-suck-1793531379)
+> 原文：<https://jalopnik.com/how-to-make-motorcycling-in-the-cold-not-suck-1793531379>
 
 是的，三月就要过去了，但是信不信由你，现在有很多地方仍然很冷。这不应该阻止你骑自行车。当你在冰点以下的气温骑着摩托车外出时，从人们那里得到的怀疑的目光有一种超满足感。他们显然认为你疯了，你确实疯了。但是有了合适的装备，你几乎全年都可以骑行。
 

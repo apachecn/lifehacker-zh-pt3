@@ -1,6 +1,6 @@
 # 做一个超级炸弹洋葱蘸酱，不要搅拌
 
-> 原文:[https://life hacker . com/make-a-super-bomb-onion-dip-without-a-mix-1795872077](https://lifehacker.com/make-a-super-bomb-onion-dip-without-a-mix-1795872077)
+> 原文：<https://lifehacker.com/make-a-super-bomb-onion-dip-without-a-mix-1795872077>
 
 带薯条和蘸酱去户外以食物为中心的聚会可能看起来有点逃避——但是，如果你自己做蘸酱，你可能会被冠以非官方的野餐零食之王。
 

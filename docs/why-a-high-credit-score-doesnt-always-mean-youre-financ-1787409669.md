@@ -1,6 +1,6 @@
 # 为什么高信用评分并不总是意味着你财务健康
 
-> 原文:[https://life hacker . com/why-a-high-credit-score-not-always-mean-you-financ-1787409669](https://lifehacker.com/why-a-high-credit-score-doesnt-always-mean-youre-financ-1787409669)
+> 原文：<https://lifehacker.com/why-a-high-credit-score-doesnt-always-mean-youre-financ-1787409669>
 
 很少有数字比强大的信用评分更能让你对自己的理财技巧感到自豪。这是有充分理由的:贷方使用信用评分来决定一切，从你的抵押贷款利率到你是否有资格获得最丰厚的信用卡奖励。
 

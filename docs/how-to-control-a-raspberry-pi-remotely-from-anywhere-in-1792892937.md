@@ -1,6 +1,6 @@
 # 如何从世界任何地方远程控制树莓派
 
-> 原文:[https://life hacker . com/how-to-control-a-raspberry-pi-remote-anywhere-in-1792892937](https://lifehacker.com/how-to-control-a-raspberry-pi-remotely-from-anywhere-in-1792892937)
+> 原文：<https://lifehacker.com/how-to-control-a-raspberry-pi-remotely-from-anywhere-in-1792892937>
 
 你是否希望在旅途中也能使用你的树莓派？也许你已经安装了一个家庭安全摄像头，你正在运行一个私人的《我的世界》服务器，或者你正在使用你的 Pi 进行一些你自己制造的疯狂的网络设备。无论您原因是什么，远程访问树莓 Pi 都比您想象的要容易。以下是方法。
 

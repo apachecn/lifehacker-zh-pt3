@@ -1,6 +1,6 @@
 # 父母与非父母之间的友谊指南
 
-> 原文:[https://life hacker . com/a-父母与非父母之间的友谊指南-1797623743](https://lifehacker.com/a-guide-to-friendship-between-parents-and-non-parents-1797623743)
+> 原文：<https://lifehacker.com/a-guide-to-friendship-between-parents-and-non-parents-1797623743>
 
 从许多互联网上的咆哮来看(“没有孩子的人永远不会明白的 10 件事”，“为什么爸爸妈妈自私和烦人”)，你会认为父母和非父母是完全不同的物种。婴儿出生的那一刻会发生一些事情——曾经看起来很容易的成人友谊变得充满了障碍(“你说*什么意思*你只能在下午 4:45 吃晚饭？”"你为什么从来不接我的电话？"或者“对不起，我没时间听你升职/婆媳问题/最近休假——宝宝哭了”)。
 

@@ -1,6 +1,6 @@
 # 它会腐烂吗？光荣的感恩节聚会
 
-> 原文:[https://life hacker . com/will-it-sous-vide-glorious-感恩节-sides-1789074625](https://lifehacker.com/will-it-sous-vide-glorious-thanksgiving-sides-1789074625)
+> 原文：<https://lifehacker.com/will-it-sous-vide-glorious-thanksgiving-sides-1789074625>
 
 你好，我最亲爱的，欢迎回到另一个节日的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏我用我的沉浸循环器在那里制作任何你想让我做的东西。
 

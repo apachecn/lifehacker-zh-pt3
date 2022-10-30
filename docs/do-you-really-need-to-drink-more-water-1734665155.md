@@ -1,6 +1,6 @@
 # 你真的需要多喝水吗？
 
-> 原文:[https://life hacker . com/do-you-really-need-to-drink-more-water-1734665155](https://lifehacker.com/do-you-really-need-to-drink-more-water-1734665155)
+> 原文：<https://lifehacker.com/do-you-really-need-to-drink-more-water-1734665155>
 
 你可以吃得好，锻炼身体，但是为了完善你作为一个做出健康选择的人的身份，你可能会觉得你需要一天几次排空一个大水瓶。突突 H <sub>2</sub> O 的好处是 [万千](http://greatist.com/health/health-benefits-water) 和 [传说中的](http://www.webmd.com/diet/6-reasons-to-drink-water) ，但它们是真实的吗？
 

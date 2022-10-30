@@ -1,6 +1,6 @@
 # 像时空之神一样调整你的洗碗机架高度
 
-> 原文:[https://life hacker . com/adjust-your-top-diswomen-rack-height-like-a-god-of-ti-1822510698](https://lifehacker.com/adjust-your-top-dishwasher-rack-height-like-a-god-of-ti-1822510698)
+> 原文：<https://lifehacker.com/adjust-your-top-dishwasher-rack-height-like-a-god-of-ti-1822510698>
 
 这不是梦。你的洗碗机的顶部架子(可能)是可调节的。无论你总是把它放在什么高度，那只是多种选择中的一种。去，调整一下。现在你可以把你的平底锅和大盘子放在底部的架子上，或者你可以把高脚杯和餐具放在顶部的架子上。您甚至可以完全移除顶部机架。你是奇异博士；你是尼奥；你是能快速画出迷宫的盗梦空间女士。
 

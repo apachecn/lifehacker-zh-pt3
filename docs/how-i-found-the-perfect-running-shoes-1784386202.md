@@ -1,6 +1,6 @@
 # 我如何找到完美的跑鞋
 
-> 原文:[https://life hacker . com/how-I-found-the-perfect-running-shoes-1784386202](https://lifehacker.com/how-i-found-the-perfect-running-shoes-1784386202)
+> 原文：<https://lifehacker.com/how-i-found-the-perfect-running-shoes-1784386202>
 
 我有一款最喜欢的跑鞋。只要打折，我就买，不管货架上有什么，我都不会想去试别的。但是适合我的鞋并不适合所有人。这是我的探索的样子——也是你找到自己的探索需要知道的。
 

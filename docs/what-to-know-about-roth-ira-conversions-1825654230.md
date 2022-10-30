@@ -1,6 +1,6 @@
 # 什么知道罗斯个人退休帐户转换
 
-> 原文:[https://life hacker . com/what-to-know-about-Roth-IRA-conversions-1825654230](https://lifehacker.com/what-to-know-about-roth-ira-conversions-1825654230)
+> 原文：<https://lifehacker.com/what-to-know-about-roth-ira-conversions-1825654230>
 
 就在减税和就业法案通过后，我写了一篇关于罗斯个人退休帐户如何比以往任何时候都更好看的文章 多亏了较低的税率。然而，一个缺点是，罗斯个人退休帐户有收入限制:如果你在 2018 年修改后的调整后总收入为 120，000 美元，你可以缴纳的金额开始逐步减少，如果你的总收入为 135，000 美元，你就完全没有资格(对于单一报税人)。总的来说，这不是一个坏问题——和大多数税收规则一样，高收入人群仍然有办法向 Roth 捐款。
 

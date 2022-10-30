@@ -1,6 +1,6 @@
 # 如何获得诺贝尔奖提名
 
-> 原文:[https://life hacker . com/how-to-get-nomined-a-nobel-prize-1829606446](https://lifehacker.com/how-to-get-nominated-for-a-nobel-prize-1829606446)
+> 原文：<https://lifehacker.com/how-to-get-nominated-for-a-nobel-prize-1829606446>
 
 2018 的 [决赛诺奖得主已经揭晓，非你莫属。你如何获得自己的诺贝尔奖(包括一百万美元和一枚奖牌)？嗯，为此你必须对物理、化学、医学或经济学领域有重大贡献；在令人印象深刻的文学生涯中达到顶峰；或者在*这个好地方*等级上执行人道主义行为。但是如果你想获得提名，你可以请求提名委员会的人提名你。](https://www.nytimes.com/2018/10/08/business/economic-science-nobel-prize.html) 
 

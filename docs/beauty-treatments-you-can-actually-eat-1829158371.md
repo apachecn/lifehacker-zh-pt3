@@ -1,6 +1,6 @@
 # 花一天时间做你能吃的美容产品
 
-> 原文:[https://the take out . com/beauty-treatments-you-can-actually-eat-1829158371](https://thetakeout.com/beauty-treatments-you-can-actually-eat-1829158371)
+> 原文：<https://thetakeout.com/beauty-treatments-you-can-actually-eat-1829158371>
 
 美食与美景相伴已久。一种共生的关系，滋润的手牵手在一起。我们放入体内的东西往往会在体外找到位置。走进任何一家 Ulta 或 Sephora，你都会看到吹嘘其食品用途的美容产品:鳄梨制成的保湿霜、海藻爽肤水和咖啡浸泡的眼部精华液。Pinterest 和美容论坛是自制 DIY 美容食谱的圣地，声称你的厨房是你获得均匀、丰满皮肤的全部所需。但是这能在周日完成吗？
 

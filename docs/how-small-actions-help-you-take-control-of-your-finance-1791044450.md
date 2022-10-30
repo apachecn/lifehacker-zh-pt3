@@ -1,6 +1,6 @@
 # 小行动如何帮助你控制你的财务
 
-> 原文:[https://life hacker . com/how-small-actions-help-you-take-control-of-you-finance-1791044450](https://lifehacker.com/how-small-actions-help-you-take-control-of-your-finance-1791044450)
+> 原文：<https://lifehacker.com/how-small-actions-help-you-take-control-of-your-finance-1791044450>
 
 去年，我想写一本书。这似乎是一项不可能完成的任务。但我想，“如果我能写一篇长博客，我肯定能写一章，”所以我一章一章地写。在我知道之前，我完成了整件事。小小的行动会带来很大的不同，我们的财务也是如此。
 

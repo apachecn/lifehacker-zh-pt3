@@ -1,6 +1,6 @@
 # 旅行时如何避免 ATM 诈骗
 
-> 原文:[https://life hacker . com/how-to-avoid-ATM-fraud-when-you-travel-1827834545](https://lifehacker.com/how-to-avoid-atm-fraud-when-you-travel-1827834545)
+> 原文：<https://lifehacker.com/how-to-avoid-atm-fraud-when-you-travel-1827834545>
 
 旅行本身就包含一些安全风险，因为安全的一部分是了解事情是如何运作的，所以你可以识别出什么是粗略的。去一个新的城市，你可能会陷入出租车骗局，被扒窃——或者你的钱被自动取款机偷走。我们采访了云安全公司 [Radware](https://www.radware.com/) 的安全研究员 [丹尼尔·史密斯](https://blog.radware.com/bios/daniel-smith/) ，了解如何在旅行时避开简陋的自动取款机。
 

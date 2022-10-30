@@ -1,6 +1,6 @@
 # 你的电影院秘诀是什么？
 
-> 原文:[https://life hacker . com/what-your ' s movie-theater-hacks-1820683176](https://lifehacker.com/what-are-your-movie-theater-hacks-1820683176)
+> 原文：<https://lifehacker.com/what-are-your-movie-theater-hacks-1820683176>
 
 去剧院是一种很好的方式，从技术上讲，你可以花两个小时和你爱的人在一起，而不必和他们互动。但这也是一个机会，通过温和地欺骗刚刚拯救了你的懒惰星期五的电影院，来真正坚持下去。
 

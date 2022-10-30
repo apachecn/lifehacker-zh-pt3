@@ -1,6 +1,6 @@
 # 11 个你可能不会用到的更棒的 Spotify 技巧和窍门
 
-> 原文:[https://life hacker . com/11-more-awesome-Spotify-tips-and-tricks-you-possible-1750897507](https://lifehacker.com/11-more-awesome-spotify-tips-and-tricks-youre-probably-1750897507)
+> 原文：<https://lifehacker.com/11-more-awesome-spotify-tips-and-tricks-youre-probably-1750897507>
 
 即使你每天听 Spotify，也有很多你可能不知道的功能。无论你是想炫耀你正在听的歌曲，完全隐藏你的收听活动，还是想充分利用像 Discover Weekly 这样的新功能，这里有一些很棒的 Spotify 功能，就在你的眼皮底下。
 

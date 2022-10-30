@@ -1,6 +1,6 @@
 # 当你的工作让你周围都是垃圾食品时，你是如何健康饮食的？
 
-> 原文:[https://life hacker . com/how-do-you-eat-healthy-when-you-work-arounds-you-wit-1819557700](https://lifehacker.com/how-do-you-eat-healthy-when-your-work-surrounds-you-wit-1819557700)
+> 原文：<https://lifehacker.com/how-do-you-eat-healthy-when-your-work-surrounds-you-wit-1819557700>
 
 我曾经在面包店工作过。如果饼干坏了，我们就不能卖了，所以我自然会尽可能用最美味的方式处理掉证据。有时候我会在甜甜圈里放糖霜，它闻起来很香，最后会剩下一些糖霜。尝一点没关系，对吧？
 

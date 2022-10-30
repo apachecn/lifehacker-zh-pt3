@@ -1,6 +1,6 @@
 # 如何支持孩子的老师
 
-> 原文:[https://life hacker . com/how-to-be-support-of-your-kids-teacher-1797860821](https://lifehacker.com/how-to-be-supportive-of-your-kids-teacher-1797860821)
+> 原文：<https://lifehacker.com/how-to-be-supportive-of-your-kids-teacher-1797860821>
 
 作为一名教师的亲戚，我看到了伴随着我妹妹蜜琪拉职业生涯的喜悦和胜利的高潮，也看到了当她似乎处于情绪疲惫的边缘时的低谷。
 

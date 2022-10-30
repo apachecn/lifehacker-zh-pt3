@@ -1,6 +1,6 @@
 # 摇滚到不同年代和不同地点的精选流媒体音乐
 
-> 原文:[https://life hacker . com/rock-out-to-curated-streaming-music-from-different-dec-1825427918](https://lifehacker.com/rock-out-to-curated-streaming-music-from-different-dec-1825427918)
+> 原文：<https://lifehacker.com/rock-out-to-curated-streaming-music-from-different-dec-1825427918>
 
 如果你想找一些 20 世纪 50 年代在加拿大流行的果酱来开始你的周末——或者只是想随机分类按时代和地点分类的流行歌曲——网站 [Radiooooo](http://radiooooo.com/) 是一个很好的互动之旅。
 

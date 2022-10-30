@@ -1,6 +1,6 @@
 # 当你父母去世时，如何处理他们的东西
 
-> 原文:[https://life hacker . com/how-to-deal-that-what-to-deal-when-your parents-style-1818537528](https://lifehacker.com/how-to-deal-with-your-parents-stuff-when-they-die-1818537528)
+> 原文：<https://lifehacker.com/how-to-deal-with-your-parents-stuff-when-they-die-1818537528>
 
 亲人去世后，清理他们的家会遭遇三重痛苦:这是一系列情感上、身体上和经济上难以承受的家务。让整个任务变得更糟糕的是，很难知道从哪里开始——你应该先扔掉床，然后在工作的时候没有地方睡觉吗？折腾锅碗瓢盆，期间靠外卖？关于保留、捐赠、回收、丢弃或出售什么的决定可能是漫长而令人沮丧的，尤其是对于那些对你父母来说是珍宝但对你来说不是的物品:将原创艺术品、宗教物品或某人心爱的小雕像收藏扔进垃圾填埋场似乎是一种罪过...但是你还能用它做什么呢？
 

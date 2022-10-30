@@ -1,6 +1,6 @@
 # 使用此 Android 应用程序恢复您意外拒绝的通知
 
-> 原文:[https://life hacker . com/restore-notifications-you-incidential-discovered-with-t-1819979372](https://lifehacker.com/restore-notifications-you-accidentally-dismissed-with-t-1819979372)
+> 原文：<https://lifehacker.com/restore-notifications-you-accidentally-dismissed-with-t-1819979372>
 
 Android:你多久会瞥一眼你的 [手机的锁屏](https://lifehacker.com/stop-turning-off-your-lock-screen-use-android-smart-lo-1778662354) ，快速浏览一列 [通知](https://lifehacker.com/hack-your-notification-badges-to-encourage-good-habits-1819139456) 然后毫不犹豫地把它们都打发掉？如果你像我一样，那几乎是每天早上。而如果你和我一样，经常会在几秒钟后找不到重要通知的时候后悔这么做。
 

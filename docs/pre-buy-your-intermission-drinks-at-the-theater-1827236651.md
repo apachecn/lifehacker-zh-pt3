@@ -1,6 +1,6 @@
 # 在剧院预购幕间饮料
 
-> 原文:[https://life hacker . com/pre-buy-your-intermission-drinks-at-theater-1827236651](https://lifehacker.com/pre-buy-your-intermission-drinks-at-the-theater-1827236651)
+> 原文：<https://lifehacker.com/pre-buy-your-intermission-drinks-at-the-theater-1827236651>
 
 一晚上的现场戏剧表演可能比看最新的大片更令人兴奋和迷人，在演出前和幕间休息时喝一杯好的鸡尾酒会让这个夜晚更加有趣。这里是去剧院酒吧点饮料的最佳方式。
 

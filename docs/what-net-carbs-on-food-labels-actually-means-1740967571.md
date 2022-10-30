@@ -1,6 +1,6 @@
 # 食品标签上的“净碳水化合物”实际上意味着什么
 
-> 原文:[https://life hacker . com/what-net-carbs-on-food-labels-actually-means-1740967571](https://lifehacker.com/what-net-carbs-on-food-labels-actually-means-1740967571)
+> 原文：<https://lifehacker.com/what-net-carbs-on-food-labels-actually-means-1740967571>
 
 无数的低碳水化合物产品被宣传为“零净碳水化合物”，但仔细看看营养标签就会发现大多数“取消”的碳水化合物来自 [膳食纤维或](https://lifehacker.com/the-difference-between-sugar-and-sugar-alcohols-1700561078) 糖醇。这个魔法对卡路里和碳水化合物计数器意味着什么？没有营销让你相信的那么多。
 

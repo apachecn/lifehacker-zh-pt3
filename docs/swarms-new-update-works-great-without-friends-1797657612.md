@@ -1,6 +1,6 @@
 # Swarm 的新更新在没有朋友的情况下也能很好地工作
 
-> 原文:[https://life hacker . com/swarms-new-update-works-great-without-friends-1797657612](https://lifehacker.com/swarms-new-update-works-great-without-friends-1797657612)
+> 原文：<https://lifehacker.com/swarms-new-update-works-great-without-friends-1797657612>
 
 Foursquare 的 [Swarm 5.0](https://www.swarmapp.com/) 昨天在 iOS 上发布，而 [即将在 Android](https://medium.com/foursquare-direct/say-hello-to-the-new-swarm-5-0-1f18bdda28da) 上发布，它有着更干净的外观和更好的场地分类。最重要的是，它淡化了社交签到 app 的大部分社交元素，强化了它的单人福利。这是个好消息，因为单独使用 Swarm 可能会更有用。
 

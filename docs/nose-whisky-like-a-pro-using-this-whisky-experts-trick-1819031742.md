@@ -1,6 +1,6 @@
 # 像专业人士一样使用这种专家技巧
 
-> 原文:[https://life hacker . com/nose-whisky-like-a-pro-using-this-whisky-experts-trick-1819031742](https://lifehacker.com/nose-whisky-like-a-pro-using-this-whisky-experts-trick-1819031742)
+> 原文：<https://lifehacker.com/nose-whisky-like-a-pro-using-this-whisky-experts-trick-1819031742>
 
 当你品尝威士忌时，嗅，把你的威士忌拿到鼻子前嗅一嗅的动作，是很多人跳过的一步，但他们不应该这么做。闻你的酒可以帮助你挑选味道和香味，这是你单独啜饮时无法察觉的。这是整个过程的重要部分。
 

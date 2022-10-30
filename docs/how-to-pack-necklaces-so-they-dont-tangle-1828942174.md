@@ -1,6 +1,6 @@
 # 如何包装项链使它们不纠缠在一起
 
-> 原文:[https://life hacker . com/how-to-pack-项链-所以他们不要纠结-1828942174](https://lifehacker.com/how-to-pack-necklaces-so-they-dont-tangle-1828942174)
+> 原文：<https://lifehacker.com/how-to-pack-necklaces-so-they-dont-tangle-1828942174>
 
 项链几乎是我佩戴的唯一一种珠宝——我的手对于戒指来说太随意了，我的耳垂拒绝耳环！——但是精致、缠结的链条使得为旅行打包它们不仅仅是有点烦人。除非你想在旅途中解开项链，否则把它们放在包里——即使是有单独隔层的包——也是行不通的。
 

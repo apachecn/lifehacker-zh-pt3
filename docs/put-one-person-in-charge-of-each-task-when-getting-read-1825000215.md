@@ -1,6 +1,6 @@
 # 准备旅行时，让一个人负责每项任务
 
-> 原文:[https://life hacker . com/put-one-person-charge-of-each-task-when-get-read-1825000215](https://lifehacker.com/put-one-person-in-charge-of-each-task-when-getting-read-1825000215)
+> 原文：<https://lifehacker.com/put-one-person-in-charge-of-each-task-when-getting-read-1825000215>
 
 正如 Palazzo 先生 10 年级历史课上的那个失败的小组项目告诉我的那样，有时我们在团队中工作得不是最好的。除了课堂项目，这也是为家庭旅行做准备。通常在飞机起飞前的一两个晚上，我和丈夫会决定是“打包时间”，同时开始为我们自己和女儿把东西放进行李箱。然后，就像钟表一样，我们会意识到我们忘记了一些非常重要的东西，比如牙膏或儿童内衣。
 

@@ -1,6 +1,6 @@
 # 当买一张单程机票值得时
 
-> 原文:[https://life hacker . com/when-it-pay-to-buy-a-one-way-fly-ticket-1828295999](https://lifehacker.com/when-it-pays-to-buy-a-one-way-plane-ticket-1828295999)
+> 原文：<https://lifehacker.com/when-it-pays-to-buy-a-one-way-plane-ticket-1828295999>
 
 据《纽约时报》[](https://www.nytimes.com/2018/06/27/travel/one-way-airfares.html)*报道，单程票正成为国际旅行者越来越实惠的选择。* 
 

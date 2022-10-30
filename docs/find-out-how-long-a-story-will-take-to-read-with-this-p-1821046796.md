@@ -1,6 +1,6 @@
 # 使用这个口袋应用程序扩展，了解阅读一个故事需要多长时间
 
-> 原文:[https://life hacker . com/find-out-how-long-a-story-with this-p-1821046796](https://lifehacker.com/find-out-how-long-a-story-will-take-to-read-with-this-p-1821046796)
+> 原文：<https://lifehacker.com/find-out-how-long-a-story-will-take-to-read-with-this-p-1821046796>
 
 被困在拥挤的地铁上，没有空间去争论一本真正的书，我经常会拿出我的智能手机来看我保存在口袋阅读应用程序中的文章。不幸的是，不确定这是一篇 400 字还是 14000 字的文章意味着命运决定了我是否能在下火车步行去上班之前读完我正在读的东西。如果你也有同样的情况，可以考虑使用 [Minute Pocket](https://minute-pocket.com/) ，这种服务既可以整理你口袋里的文章，也可以提供每篇文章的预计阅读时间。
 

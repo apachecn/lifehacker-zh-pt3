@@ -1,6 +1,6 @@
 # 不要再为了摆脱多余的零钱而付钱了
 
-> 原文:[https://life hacker . com/stop-payed-to-get-off-your-spare-change-1825239527](https://lifehacker.com/stop-paying-to-get-rid-of-your-spare-change-1825239527)
+> 原文：<https://lifehacker.com/stop-paying-to-get-rid-of-your-spare-change-1825239527>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在计划假期，放松回到锻炼中，并将我们的空闲时间花在一些职业发展上。
 

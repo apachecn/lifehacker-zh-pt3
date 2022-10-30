@@ -1,6 +1,6 @@
 # 移动电影制作人的包
 
-> 原文:[https://lifehacker.com/the-mobile-filmmakers-bag-1792042743](https://lifehacker.com/the-mobile-filmmakers-bag-1792042743)
+> 原文：<https://lifehacker.com/the-mobile-filmmakers-bag-1792042743>
 
 有时候，你需要带着你的工作。如果你是一名电影制作人，这意味着你需要携带足够数量的设备，不多也不少。举个例子，读者 [亚历克斯·莫伦的](http://www.auralmotion.com) 包。
 

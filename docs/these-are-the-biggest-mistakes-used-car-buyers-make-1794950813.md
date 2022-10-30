@@ -1,6 +1,6 @@
 # 这些是二手车买家犯的最大错误
 
-> 原文:[https://jalopnik . com/these-is-the-maximum-missons-二手车买家-make-1794950813](https://jalopnik.com/these-are-the-biggest-mistakes-used-car-buyers-make-1794950813)
+> 原文：<https://jalopnik.com/these-are-the-biggest-mistakes-used-car-buyers-make-1794950813>
 
 现在是购买二手车 的好时机，但与购买新车相比，购买一辆优质二手车可能是一个令人生畏的过程。要以合适的价格买到合适的汽车，需要考虑的因素还很多。以下是二手车购买者最常犯的一些错误。
 

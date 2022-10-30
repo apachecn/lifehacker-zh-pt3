@@ -1,6 +1,6 @@
 # 扔掉你孩子的储物箱
 
-> 原文:[https://life hacker . com/get-rid-of-your-kids-storage-bins-1825143053](https://lifehacker.com/get-rid-of-your-kids-storage-bins-1825143053)
+> 原文：<https://lifehacker.com/get-rid-of-your-kids-storage-bins-1825143053>
 
 我很感激许多储物盒、篮子和箱子，里面装了我孩子的大量玩具。它们很漂亮——我们有几件梭织长筒袜。它们很大。最棒的是，我能够在客人到来之前快速地把东西扔进去，让我的房子立刻看起来像是直接从西榆树目录上撕下来的——或者至少看起来像是费希尔·普莱斯没有吐在里面。我处理杂物的一贯方法是买更多漂亮的垃圾桶。现在我意识到这些容器必须扔掉。
 

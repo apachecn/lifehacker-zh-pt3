@@ -1,6 +1,6 @@
 # 如何通过威瑞森免费获得六个月的 Apple Music
 
-> 原文:[https://life hacker . com/how-to-get-6 个月免费苹果音乐-通过 v-1828234905](https://lifehacker.com/how-to-get-six-months-of-apple-music-for-free-through-v-1828234905)
+> 原文：<https://lifehacker.com/how-to-get-six-months-of-apple-music-for-free-through-v-1828234905>
 
 威瑞森宣布，其三个无限数据计划中的任何一个计划的客户都可以获得 6 个月的免费苹果音乐 。如果你已经订阅了苹果的流媒体音乐服务，不要担心，你也包括在内。
 

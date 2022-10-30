@@ -1,6 +1,6 @@
 # 如何从头开始设置您的新 iPad
 
-> 原文:[https://life hacker . com/how-to-set-up-your-new-ipad-from scratch-1821219370](https://lifehacker.com/how-to-set-up-your-new-ipad-from-scratch-1821219370)
+> 原文：<https://lifehacker.com/how-to-set-up-your-new-ipad-from-scratch-1821219370>
 
 恭喜你，新 iPad 的骄傲拥有者！毫无疑问，你想开始滑动、敲击、消费和创造任何你内心渴望的东西，尤其是如果你已经有了一支苹果铅笔。但是，在你进入应用程序商店并充满你的平板电脑之前，你会想要事先改变一些设置，即使只是为了防止你的手机数据枯竭，电池电量不足，以及你的隐私被侵犯。
 

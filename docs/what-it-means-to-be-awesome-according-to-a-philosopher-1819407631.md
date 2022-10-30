@@ -1,6 +1,6 @@
 # 根据一位哲学家的说法，令人敬畏意味着什么
 
-> 原文:[https://life hacker . com/what-it-mean-to-be-awesome-by-a-philosopher-1819407631](https://lifehacker.com/what-it-means-to-be-awesome-according-to-a-philosopher-1819407631)
+> 原文：<https://lifehacker.com/what-it-means-to-be-awesome-according-to-a-philosopher-1819407631>
 
 在你生命中的某个时刻，你可能说过某人要么很棒，要么很烂。我知道我有。但是从哲学的角度来看，这意味着什么呢？一位哲学家认为这完全是关于社交场合中的思想开放。
 

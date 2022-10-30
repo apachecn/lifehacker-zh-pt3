@@ -1,6 +1,6 @@
 # 如何看超级蓝血月
 
-> 原文:[https://life hacker . com/how-to-see-the-super-blue-blood-moon-next-week-1822457914](https://lifehacker.com/how-to-see-the-super-blue-blood-moon-next-week-1822457914)
+> 原文：<https://lifehacker.com/how-to-see-the-super-blue-blood-moon-next-week-1822457914>
 
 2018 年上天真的是使出浑身解数了。周三，有机会看到一个相当惊人的月亮三连胜:超级，蓝色和血液。
 

@@ -1,6 +1,6 @@
 # 从观众的心率来看，苹果发布会最激动人心的时刻
 
-> 原文:[https://life hacker . com/the-most-excited-moments-of-apple-s-event-as-tell-by-1806314314](https://lifehacker.com/the-most-exciting-moments-of-apple-s-event-as-told-by-1806314314)
+> 原文：<https://lifehacker.com/the-most-exciting-moments-of-apple-s-event-as-told-by-1806314314>
 
 在昨天的活动中，Apple Watch 的心率监测功能备受瞩目:新手表 [将监测更多与心跳相关的指标](http://mashable.com/2017/09/12/apple-watch-series-3-heart-study/#9dheIq2r2Sqc) ，苹果将与 AmWell 和 Stanford 合作进行一项医学研究。但与此同时，心率应用程序 [心电图](http://cardiogr.am/about/) 正在悄悄跟踪用户对当天公告的反应。
 

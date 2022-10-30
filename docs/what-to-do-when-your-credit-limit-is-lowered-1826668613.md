@@ -1,6 +1,6 @@
 # 当你的信用额度降低时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-when-your ' s credit-limit-lowered-1826668613](https://lifehacker.com/what-to-do-when-your-credit-limit-is-lowered-1826668613)
+> 原文：<https://lifehacker.com/what-to-do-when-your-credit-limit-is-lowered-1826668613>
 
 债权人几乎可以在任何时候以任何理由降低你的信用额度，只要你的用户协议允许。这种情况发生在信用良好和信用不良的人身上，发生在那些在银行工作了十年或不到一年的人身上。换句话说，这可能发生在任何人身上，但如果你逾期付款、有应收账款或申请破产，你尤其面临风险。
 

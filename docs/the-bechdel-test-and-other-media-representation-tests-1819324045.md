@@ -1,6 +1,6 @@
 # 贝克德尔测试和其他媒体再现测试解释说
 
-> 原文:[https://life hacker . com/the-bechdel-test-and-other-media-representation-tests-1819324045](https://lifehacker.com/the-bechdel-test-and-other-media-representation-tests-1819324045)
+> 原文：<https://lifehacker.com/the-bechdel-test-and-other-media-representation-tests-1819324045>
 
 在《T4》的最新一集《T2》中，客串明星艾莉森·贝克德尔描述了她著名的电影测试:两个女性角色是否至少有一次不是关于男人的对话？玛吉马上提起荷马，挑起贝赫德尔的失败动画，以方便利用的形式显示在这里:
 

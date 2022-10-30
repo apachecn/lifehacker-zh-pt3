@@ -1,6 +1,6 @@
 # 大卫·克洛科特最好的人生课程
 
-> 原文:[https://life hacker . com/Davy-crocketts-best-life-lessons-1818968168](https://lifehacker.com/davy-crocketts-best-life-lessons-1818968168)
+> 原文：<https://lifehacker.com/davy-crocketts-best-life-lessons-1818968168>
 
 大卫·克洛科特是一个神话般的美国民间英雄，由于迪士尼的电视迷你剧和主要电影《T2》T3，他在 50 年代和 60 年代非常受欢迎。但克罗克特在历史上是一个非常真实的人，他有很多智慧可以分享。
 

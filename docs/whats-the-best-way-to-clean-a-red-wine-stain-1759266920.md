@@ -1,6 +1,6 @@
 # 清洗红酒污渍的最好方法是什么？
 
-> 原文:[https://life hacker . com/whats-the-best-way to-clean-a red wine-stain-1759266920](https://lifehacker.com/whats-the-best-way-to-clean-a-red-wine-stain-1759266920)
+> 原文：<https://lifehacker.com/whats-the-best-way-to-clean-a-red-wine-stain-1759266920>
 
 没有什么比把一杯红酒洒在白色衣服上更能阻止派对了。每个人都叫嚣着要在污渍凝固之前找到清洁的方法。矿泉水。盐！咒语！但是它们真的有用吗？今天我们来测试几种常用的清洗红酒的方法。
 

@@ -1,6 +1,6 @@
 # 你的生活指南与你绝对鄙视的汽车
 
-> 原文:[https://jalopnik . com/your-guide-to-living-with-a-car-you-absolute-鄙视-1796016396](https://jalopnik.com/your-guide-to-living-with-a-car-you-absolutely-despise-1796016396)
+> 原文：<https://jalopnik.com/your-guide-to-living-with-a-car-you-absolutely-despise-1796016396>
 
 当然，拥有一辆车可能比步行或乘坐你所在城市糟糕透顶的公共交通系统要好。但当你拥有一辆只会激起仇恨和敌意的车时，感觉就不一样了。
 

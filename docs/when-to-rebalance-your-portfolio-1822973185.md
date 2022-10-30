@@ -1,6 +1,6 @@
 # 何时重新平衡你的投资组合
 
-> 原文:[https://life hacker . com/when-to-rebalance-your portfolio-1822973185](https://lifehacker.com/when-to-rebalance-your-portfolio-1822973185)
+> 原文：<https://lifehacker.com/when-to-rebalance-your-portfolio-1822973185>
 
 随着过去一周左右的市场波动，有人质疑何时重新平衡你的投资组合。有人说这不应该妨碍你的长期计划，并且要坚持一年一次。其他人说，重新平衡的时机就在市场上涨或下跌 5%或更多之后。
 

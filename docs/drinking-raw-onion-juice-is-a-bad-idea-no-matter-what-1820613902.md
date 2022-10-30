@@ -1,6 +1,6 @@
 # 不管 4chan 上的人怎么说，喝生洋葱汁都不是个好主意
 
-> 原文:[https://life hacker . com/drinking-raw-onion-juice-is a bad-idea-not-matter-what-1820613902](https://lifehacker.com/drinking-raw-onion-juice-is-a-bad-idea-no-matter-what-1820613902)
+> 原文：<https://lifehacker.com/drinking-raw-onion-juice-is-a-bad-idea-no-matter-what-1820613902>
 
 4chan 的人是最近尝试通过饮用生洋葱汁来提高睾丸激素的人，但他们不是第一个，也可能不会是最后一个。这是一个可怕的，可怕的，不好的，非常糟糕的主意。
 

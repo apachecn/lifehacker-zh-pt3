@@ -1,6 +1,6 @@
 # 当你期待 2018 年 WWDC 奥运会时，你会期待什么
 
-> 原文:[https://gizmodo . com/what-to-expect-when-you-expecting-wwdc-2018-1826455289](https://gizmodo.com/what-to-expect-when-youre-expecting-wwdc-2018-1826455289)
+> 原文：<https://gizmodo.com/what-to-expect-when-youre-expecting-wwdc-2018-1826455289>
 
 你知道接下来会发生什么，对吧？没有吗？我们准备好给你的 iPhone 充电，掏空你的钱包，更新你的开发者账户，因为苹果的全球开发者大会就在眼前。今年，WWDC 2018 将于 6 月 4 日星期一至 6 月 8 日星期五在加利福尼亚州圣何塞的 McEnery 会展中心举行。太平洋时间周一上午 10 点，主题演讲拉开了整个活动的序幕。
 

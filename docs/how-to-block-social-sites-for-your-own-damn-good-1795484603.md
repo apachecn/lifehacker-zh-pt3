@@ -1,6 +1,6 @@
 # 如何为了你自己的利益屏蔽社交网站
 
-> 原文:[https://life hacker . com/how-to-block-social-sites-for-your-own-damn-good-1795484603](https://lifehacker.com/how-to-block-social-sites-for-your-own-damn-good-1795484603)
+> 原文：<https://lifehacker.com/how-to-block-social-sites-for-your-own-damn-good-1795484603>
 
 皇家公共健康学会刚刚发布了一份报告 ，其中包含了你已经知道的关于社交媒体的信息:它对你没有好处。
 

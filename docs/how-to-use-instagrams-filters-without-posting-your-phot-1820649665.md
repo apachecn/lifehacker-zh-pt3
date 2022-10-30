@@ -1,6 +1,6 @@
 # 如何在不发布照片的情况下使用 Instagram 滤镜
 
-> 原文:[https://life hacker . com/how-to-use-instagrams-filters-without-posting-your-phot-1820649665](https://lifehacker.com/how-to-use-instagrams-filters-without-posting-your-phot-1820649665)
+> 原文：<https://lifehacker.com/how-to-use-instagrams-filters-without-posting-your-phot-1820649665>
 
 有时候，智能手机照片要达到完美，只需要 Instagram 的 X-Pro II 滤镜的一个吻。只有一个问题:要利用这个过滤器或应用程序中的任何其他过滤器，你必须承诺在 Instagram 上发布你的照片。
 

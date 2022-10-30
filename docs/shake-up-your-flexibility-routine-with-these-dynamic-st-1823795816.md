@@ -1,6 +1,6 @@
 # 通过这些动态伸展运动，改变你的日常柔韧性
 
-> 原文:[https://life hacker . com/shake-up-your-flexibility-routine-with these-dynamic-ST-1823795816](https://lifehacker.com/shake-up-your-flexibility-routine-with-these-dynamic-st-1823795816)
+> 原文：<https://lifehacker.com/shake-up-your-flexibility-routine-with-these-dynamic-st-1823795816>
 
 保持 30 秒的伸展并不是提高你柔韧性的唯一方法——这只是我们很多人习惯的方式。动态拉伸是另一种方法，将温和的拉伸与经常挑战你的平衡或力量的运动结合起来。
 

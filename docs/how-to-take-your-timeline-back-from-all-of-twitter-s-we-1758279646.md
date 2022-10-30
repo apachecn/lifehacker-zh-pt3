@@ -1,6 +1,6 @@
 # 如何把你的时间线从 Twitter 的所有怪异变化、广告和推广推文中拉回来
 
-> 原文:[https://life hacker . com/how-to-take-your-timeline-back-from-all-of-Twitter-s-we-1758279646](https://lifehacker.com/how-to-take-your-timeline-back-from-all-of-twitter-s-we-1758279646)
+> 原文：<https://lifehacker.com/how-to-take-your-timeline-back-from-all-of-twitter-s-we-1758279646>
 
 Twitter 一直在做大量用户从未要求的改变。从 [到今天的新“最佳”模块](https://lifehacker.com/twitter-begins-rolling-out-algorithmic-timeline-will-b-1758242228) ，再到推广的推文，以及“当你不在的时候”，所有这些都是给那些只想要一个干净的流来阅读的人的。以下是如何把你的时间线拉回来。
 

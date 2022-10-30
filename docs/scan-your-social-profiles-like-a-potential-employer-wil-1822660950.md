@@ -1,6 +1,6 @@
 # 像潜在雇主一样浏览你的社交资料
 
-> 原文:[https://life hacker . com/scan-your-social-profiles-like-a-potential-employee-wil-1822660950](https://lifehacker.com/scan-your-social-profiles-like-a-potential-employer-wil-1822660950)
+> 原文：<https://lifehacker.com/scan-your-social-profiles-like-a-potential-employer-wil-1822660950>
 
 如果你正在找新工作，或者只是想锁定你的社交形象，有一种新工具可以让你更容易找到你可能不想让你未来的老板看到的帖子。
 

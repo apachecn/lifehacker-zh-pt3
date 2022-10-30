@@ -1,6 +1,6 @@
 # 这黑暗而多风暴的一周需要一杯黑暗而多风暴的鸡尾酒
 
-> 原文:[https://life hacker . com/this-dark-and-stormy-week-calls-for-a-dark-n-stormy-COC-1829394772](https://lifehacker.com/this-dark-and-stormy-week-calls-for-a-dark-n-stormy-coc-1829394772)
+> 原文：<https://lifehacker.com/this-dark-and-stormy-week-calls-for-a-dark-n-stormy-coc-1829394772>
 
 各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将让朗姆酒重的黑暗风暴，因为这一周，因为缺乏一个更好的短语，完全扯淡。
 

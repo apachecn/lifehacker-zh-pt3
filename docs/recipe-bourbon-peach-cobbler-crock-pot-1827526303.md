@@ -1,6 +1,6 @@
 # 用瓦罐做波旁桃子馅饼，因为桃子+酒+慢炖锅=甜点
 
-> 原文:[https://the take out . com/recipe-bourbon-peach-cobbler-crock-pot-1827526303](https://thetakeout.com/recipe-bourbon-peach-cobbler-crock-pot-1827526303)
+> 原文：<https://thetakeout.com/recipe-bourbon-peach-cobbler-crock-pot-1827526303>
 
 *欢迎来到* [***慢炖锅周***](https://thetakeout.com/tag/slow-cooker-week) *，其中*外卖*在盛夏使用它最喜欢的冷天厨房电器。*
 

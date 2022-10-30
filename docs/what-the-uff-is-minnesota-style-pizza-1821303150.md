@@ -1,6 +1,6 @@
 # 明尼苏达披萨是什么？
 
-> 原文:[https://the take out . com/what-the-uff-is-Minnesota-style-pizza-1821303150](https://thetakeout.com/what-the-uff-is-minnesota-style-pizza-1821303150)
+> 原文：<https://thetakeout.com/what-the-uff-is-minnesota-style-pizza-1821303150>
 
 我认为自己是披萨艺术的权威学者，但直到 30 分钟前，我还从未听说过明尼苏达风格的披萨。圣保罗先锋出版社 最近在 [*的一篇报道中提到，双子城一家名为*](http://www.twincities.com/2017/12/12/reds-savoy-declares-itself-minnesota-style-pizza/)*[Red ' s Savoy Pizza](http://savoypizza.com/)**的知名连锁店声称拥有一种国家认可的披萨风格——这种披萨风格必须用拉长的上中西部方言合法发音为:“sota-style”。* 
 

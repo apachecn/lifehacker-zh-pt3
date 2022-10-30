@@ -1,6 +1,6 @@
 # 该上路了
 
-> 原文:[https://life hacker . com/time-to-hit-the-ol-dusty-trail-1827373711](https://lifehacker.com/time-to-hit-the-ol-dusty-trail-1827373711)
+> 原文：<https://lifehacker.com/time-to-hit-the-ol-dusty-trail-1827373711>
 
 在 Lifehacker，这是一段非常美好的旅程，但现在是我离开小镇，走向夕阳的时候了。也许你们中的一些人听到我要离开会很难过。也许你们中的一些人很高兴看到我离开。但是我呢？我很高兴能来到这里。
 

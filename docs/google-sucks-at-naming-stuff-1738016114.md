@@ -1,6 +1,6 @@
 # 谷歌不擅长给东西命名
 
-> 原文:[https://life hacker . com/Google-sucks-at-naming-stuff-1738016114](https://lifehacker.com/google-sucks-at-naming-stuff-1738016114)
+> 原文：<https://lifehacker.com/google-sucks-at-naming-stuff-1738016114>
 
 昨天，谷歌 [公布了 YouTube 红](http://lifehacker.com/google-introduces-youtube-red-a-subscription-for-ad-fr-1737842088) 。幸运的是，谷歌并不知道隐姓埋名模式下会发生什么，它显然认为这是一个服务的好名字。这不是谷歌第一次在命名方面做出如此糟糕的选择。
 

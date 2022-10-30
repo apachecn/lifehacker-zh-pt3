@@ -1,6 +1,6 @@
 # 预算软件摊牌:薄荷与你需要一个预算
 
-> 原文:[https://life hacker . com/budgeting-software-摊牌-mint-vs-you-need-a-budget-1764607246](https://lifehacker.com/budgeting-software-showdown-mint-vs-you-need-a-budget-1764607246)
+> 原文：<https://lifehacker.com/budgeting-software-showdown-mint-vs-you-need-a-budget-1764607246>
 
 感谢像 Mint 这样的服务，你需要一个预算，它是如此容易地掌握你的财务状况，以至于你想知道任何人是如何通过简单的电子表格的。今天，我们将比较这两者，以找出谁能从中受益最多。
 

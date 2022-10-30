@@ -1,6 +1,6 @@
 # 你应该用你的投资横财买房子吗？
 
-> 原文:[https://life hacker . com/should-you-use your ' s investing-biddy-to-buy-a house-1826324490](https://lifehacker.com/should-you-use-your-investing-windfall-to-buy-a-house-1826324490)
+> 原文：<https://lifehacker.com/should-you-use-your-investing-windfall-to-buy-a-house-1826324490>
 
 提前提取个人退休帐户资金买房会面临哪些费用和处罚？这是我们本周考虑的问题。
 

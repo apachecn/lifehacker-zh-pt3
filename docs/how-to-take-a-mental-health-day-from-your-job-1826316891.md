@@ -1,6 +1,6 @@
 # 如何从工作中抽出一天的精神健康日
 
-> 原文:[https://life hacker . com/how-to-take-a-a-day of-your-job-1826316891](https://lifehacker.com/how-to-take-a-mental-health-day-from-your-job-1826316891)
+> 原文：<https://lifehacker.com/how-to-take-a-mental-health-day-from-your-job-1826316891>
 
 当你得了流感或扭伤了脚踝时，不仅仅是期望，而且是鼓励。但是精神健康问题有时也需要休息。
 

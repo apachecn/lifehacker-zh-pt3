@@ -1,6 +1,6 @@
 # 在纽约这个讨厌汽车的城市拥有汽车的指南
 
-> 原文:[https://jalopnik . com/a-guide-to-owning-a-car-in-new York-the-city-that-hate 1785043370](https://jalopnik.com/a-guide-to-owning-a-car-in-new-york-the-city-that-hate-1785043370)
+> 原文：<https://jalopnik.com/a-guide-to-owning-a-car-in-new-york-the-city-that-hate-1785043370>
 
 一年多来，我做了一件大多数人认为不可能的事: [我在纽约市](http://jalopnik.com/owning-a-car-in-new-york-is-absolutely-worth-it-1782352176#_ga=1.208362258.1273901456.1445270859)T3 有一辆车。虽然这是一个无可争议的讨厌汽车的地方，但在这里拥有一辆汽车实际上并不是不可能的。这里有几件事可以让它变得更简单。
 

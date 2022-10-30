@@ -1,6 +1,6 @@
 # 本周最受欢迎的帖子:5 月 6 日至 13 日
 
-> 原文:[https://life hacker . com/this-weeks-most-popular-posts-may-6-to-13-1776483552](https://lifehacker.com/this-weeks-most-popular-posts-may-6th-to-13th-1776483552)
+> 原文：<https://lifehacker.com/this-weeks-most-popular-posts-may-6th-to-13th-1776483552>
 
 这一周，我们都在为生活中不可避免的复杂情况做准备。我们听到了没有人告诉你的关于分娩的令人惊讶的事情的故事，检查了高昂的医疗费用，比较了最好的多种工具，开始为夏季炎热做准备，等等。让我们来回顾一下本周的热门帖子。
 

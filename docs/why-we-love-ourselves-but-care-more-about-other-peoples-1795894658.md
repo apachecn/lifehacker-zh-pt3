@@ -1,6 +1,6 @@
 # 为什么我们爱自己却更在乎别人的看法
 
-> 原文:[https://life hacker . com/why-we-love-self-but-care-more-other-people-1795894658](https://lifehacker.com/why-we-love-ourselves-but-care-more-about-other-peoples-1795894658)
+> 原文：<https://lifehacker.com/why-we-love-ourselves-but-care-more-about-other-peoples-1795894658>
 
 欢迎来到**周中冥想**，Lifehacker 每周一次的探索斯多葛派智慧，以及你如何用它来反思和改善你的生活。
 

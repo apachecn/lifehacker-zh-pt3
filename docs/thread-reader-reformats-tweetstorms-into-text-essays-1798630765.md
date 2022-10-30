@@ -1,6 +1,6 @@
 # 线程阅读器将 Tweetstorms 重新格式化为文本文章
 
-> 原文:[https://life hacker . com/thread-reader-reformats-tweet storms-into-text-essays-1798630765](https://lifehacker.com/thread-reader-reformats-tweetstorms-into-text-essays-1798630765)
+> 原文：<https://lifehacker.com/thread-reader-reformats-tweetstorms-into-text-essays-1798630765>
 
 与流行的观点相反，有些推特风暴是好的 ，但是在推特上阅读它们可能会让人头疼。 [线程阅读器](https://tttthreads.com/) 将 tweetstorm 重新格式化为一篇可读的短文，同时保留链接和图片， [like so](https://tttthreads.com/t/901918079483080706) 。你甚至可以把风暴发到 Instapaper 上，以后再看。
 

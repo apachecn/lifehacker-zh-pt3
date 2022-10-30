@@ -1,6 +1,6 @@
 # 如果没有有线电视，去哪里看《权力的游戏》
 
-> 原文:[https://life hacker . com/where-to-watch-game-of-thrones-if-you don ' t-have-cable-1796915856](https://lifehacker.com/where-to-watch-game-of-thrones-if-you-dont-have-cable-1796915856)
+> 原文：<https://lifehacker.com/where-to-watch-game-of-thrones-if-you-dont-have-cable-1796915856>
 
 HBO 的*权力的游戏*第七季将于本周日首播，给你足够的时间来计算在 [你的死亡池](http://lifehacker.com/how-to-organize-a-game-of-thrones-death-pool-1796893792#_ga=2.242204170.903673921.1499692190-167189482.1495477587) 中哪里下注，以及如何在不需要你表哥的男朋友的妈妈的账户信息的情况下观看该剧。这很简单——只要你每月有 15 美元。
 

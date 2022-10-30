@@ -1,6 +1,6 @@
 # 激活网飞的新家长控制
 
-> 原文:[https://life hacker . com/activate-网飞-s-新-家长控制-1823521146](https://lifehacker.com/activate-netflix-s-new-parental-controls-1823521146)
+> 原文：<https://lifehacker.com/activate-netflix-s-new-parental-controls-1823521146>
 
 担心他们的孩子会在网飞上消费一些不适宜的内容的父母已经能够屏蔽所有属于特定等级的内容。现在， [网飞最新更新的](https://media.netflix.com/en/company-blog/introducing-pin-protection-and-other-enhancements-for-informed-viewing) 给了你更多的控制，允许你阻止你的年轻观众观看你认为不适合他们的特定节目，即使它在你选择的分级范围内。不是每个人都希望他们的孩子看《T4》和《陌生人的世界》，不管他们玩多少游戏。为了让他们远离可疑内容，您只需要一个 PIN 和一个您不想让孩子看到的电影列表。
 

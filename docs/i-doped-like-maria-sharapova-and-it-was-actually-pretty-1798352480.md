@@ -1,6 +1,6 @@
 # 我像玛丽亚·莎拉波娃一样服用兴奋剂，这真的很棒
 
-> 原文:[https://deadspin . com/I-doped-like-Maria-Sharapova-and-it-is-actually-pretty-1798352480](https://deadspin.com/i-doped-like-maria-sharapova-and-it-was-actually-pretty-1798352480)
+> 原文：<https://deadspin.com/i-doped-like-maria-sharapova-and-it-was-actually-pretty-1798352480>
 
 我有一些个人消息要分享:我在服用兴奋剂。甚至是兴奋剂。同样的原因导致网球明星玛丽亚·莎拉波娃(Maria Sharapova)被禁止参加职业巡回赛 15 个月，这也是她需要像今天在纽约开始的美国网球公开赛(U.S. Open)这样的比赛提供通配符参赛资格的原因，这样她甚至可以参加比赛。玛丽亚和我，在梅尔多尼亚的姐妹。
 

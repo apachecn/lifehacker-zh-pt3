@@ -1,6 +1,6 @@
 # PC 显卡对决:英伟达 vs. AMD
 
-> 原文:[https://life hacker . com/PC-显卡-摊牌-nvidia-vs-amd-1742203529](https://lifehacker.com/pc-graphics-card-showdown-nvidia-vs-amd-1742203529)
+> 原文：<https://lifehacker.com/pc-graphics-card-showdown-nvidia-vs-amd-1742203529>
 
 组装一台个人电脑最难的部分是挑选零件，尤其是当你周围的每个人似乎都有自己的看法时。没有比 NVIDIA 势利小人和 AMD 粉丝之间的战争更普遍的了。这两家公司到底是怎么回事，该拿哪张牌？
 

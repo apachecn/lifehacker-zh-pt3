@@ -1,6 +1,6 @@
 # 如何表达哀悼而不显得像个混蛋
 
-> 原文:[https://life hacker . com/how-to-proving-non-sounding-like-an-ass-1825924557](https://lifehacker.com/how-to-offer-condolences-without-sounding-like-an-ass-1825924557)
+> 原文：<https://lifehacker.com/how-to-offer-condolences-without-sounding-like-an-ass-1825924557>
 
 如果你不小心，你善意的哀悼会让你听起来像个十足的混蛋。向死者家属表达真诚同情的诀窍是，在表示支持的同时，知道应该避免什么。这是七大禁忌。
 

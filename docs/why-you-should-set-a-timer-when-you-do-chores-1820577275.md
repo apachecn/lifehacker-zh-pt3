@@ -1,6 +1,6 @@
 # 为什么你应该在做家务时设置计时器
 
-> 原文:[https://life hacker . com/why-you-should-set-a timer-when-you-do-that-1820577275](https://lifehacker.com/why-you-should-set-a-timer-when-you-do-chores-1820577275)
+> 原文：<https://lifehacker.com/why-you-should-set-a-timer-when-you-do-chores-1820577275>
 
 那些在需要做的时候平静而愉快地做家务的人，你现在可以不读了。其他人:啊，我知道，对吧？
 

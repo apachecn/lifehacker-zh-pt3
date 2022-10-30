@@ -1,6 +1,6 @@
 # 春天净化你的心灵
 
-> 原文:[https://lifehacker.com/spring-clean-your-psyche-1825214623](https://lifehacker.com/spring-clean-your-psyche-1825214623)
+> 原文：<https://lifehacker.com/spring-clean-your-psyche-1825214623>
 
 当你清理你的 [空间](https://lifehacker.com/how-to-clean-up-for-the-house-cleaner-1825178756) 、你的 [财务](https://twocents.lifehacker.com/refresh-your-finances-this-spring-1825190110) 和你的 [数字生活](https://lifehacker.com/how-to-clean-your-overwhelmed-gmail-inbox-by-hand-1825114630) 的时候，不要忘记你的大脑也会变得杂乱。以下是如何理清事情的方法，这样你最终会更快乐，(精神上)更健康。
 

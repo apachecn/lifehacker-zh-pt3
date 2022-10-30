@@ -1,6 +1,6 @@
 # 如何直播今晚的英仙座流星雨
 
-> 原文:[https://life hacker . com/how-to-live stream-the-perseid-meteor-shower-tonight-1828290082](https://lifehacker.com/how-to-livestream-the-perseid-meteor-shower-tonight-1828290082)
+> 原文：<https://lifehacker.com/how-to-livestream-the-perseid-meteor-shower-tonight-1828290082>
 
 今夏最棒的媒体派对今晚举行。如果你一直在为大事件做准备，却发现今晚你附近的天气不适合观看天空，在线天文台 Slooh 已经为你提供了网络直播，他们将直播主要事件。
 

@@ -1,6 +1,6 @@
 # 不要对辛克莱的锚大喊大叫
 
-> 原文:[https://life hacker . com/stop-呵斥-sinclairs-anchors-1824997578](https://lifehacker.com/stop-yelling-at-sinclairs-anchors-1824997578)
+> 原文：<https://lifehacker.com/stop-yelling-at-sinclairs-anchors-1824997578>
 
 魔鬼耍的最大的花招就是说服你对他的员工大喊大叫。辛克莱广播集团(Sinclair Broadcast Group)最近强迫其 173 家地方电视台的新闻主播 [背诵一份充满特朗普友好谈话要点](http://money.cnn.com/2018/03/07/media/sinclair-broadcasting-promos-media-bashing/index.html) 的脚本，内容涉及假新闻和有偏见的媒体。上周，当 Deadspin(life hacker 的姐妹网站之一)公布了一份可怕的 [主播同步背诵信息](https://deadspin.com/how-americas-largest-local-tv-owner-turned-its-news-anc-1824233490) 的汇编时，这个故事爆发了。公众正在发泄他们的愤怒……对主播们。这正是辛克莱想要你做的。
 

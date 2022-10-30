@@ -1,6 +1,6 @@
 # 最好的 529 个大学储蓄账户
 
-> 原文:[https://life hacker . com/the-best-529-college-savings-accounts-1826391746](https://lifehacker.com/the-best-529-college-savings-accounts-1826391746)
+> 原文：<https://lifehacker.com/the-best-529-college-savings-accounts-1826391746>
 
 529 日快乐！(懂了吗？因为是 5/29？)
 

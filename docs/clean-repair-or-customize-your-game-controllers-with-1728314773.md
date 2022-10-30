@@ -1,6 +1,6 @@
 # 只需少量拆卸，即可清洁、修复或定制您的游戏控制器
 
-> 原文:[https://life hacker . com/clean-repair-or-customize-your-game-controllers-with-1728314773](https://lifehacker.com/clean-repair-or-customize-your-game-controllers-with-1728314773)
+> 原文：<https://lifehacker.com/clean-repair-or-customize-your-game-controllers-with-1728314773>
 
 没有什么比把你的减肥激浪洒在你的控制器上，让它变得粘粘的更能破坏杀戮狂欢了。或者，也许你只是用得太多了，用坏了按钮和拇指棒。不管是哪种情况，许多游戏手柄都非常容易被用户修复。以下是如何打开你的 Xbox 或 PlayStation 控制器并修复其按钮的方法。
 

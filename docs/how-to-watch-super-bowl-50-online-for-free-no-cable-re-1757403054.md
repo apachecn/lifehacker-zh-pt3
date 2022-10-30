@@ -1,6 +1,6 @@
 # 如何免费在线观看超级碗 50 流，不需要有线电视
 
-> 原文:[https://life hacker . com/how-to-watch-super-bowl-50-online-for-free-no-cable-re-1757403054](https://lifehacker.com/how-to-watch-super-bowl-50-online-for-free-no-cable-re-1757403054)
+> 原文：<https://lifehacker.com/how-to-watch-super-bowl-50-online-for-free-no-cable-re-1757403054>
 
 本周日，全国各地的脐带切割者将参加今年最盛大的传统活动:试图找出如何在网上直播超级碗。好吧，我们有你的答案，体育迷们。以下是如何在家中通过互联网将大型比赛传输到任何你想观看的设备上。
 

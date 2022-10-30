@@ -1,6 +1,6 @@
 # 如何禁用脸书上那些烦人的筹款通知
 
-> 原文:[https://life hacker . com/how-to-disable-Facebook-fund raiser-notifications-1826729445](https://lifehacker.com/how-to-disable-facebooks-fundraiser-notifications-1826729445)
+> 原文：<https://lifehacker.com/how-to-disable-facebooks-fundraiser-notifications-1826729445>
 
 我明白了:我们都想为比自己更大的事情做贡献，看到更多的人为慈善事业“捐赠生日”真是太好了。这通常包括在脸书上宣布你的生日快到了，选择一个不太疯狂的数字为最喜欢的慈善机构筹集资金，看着钱滚滚而来——加上一些有用的提醒，因为你的朋友很懒，可能需要一点鼓励来放弃他们的现金。
 

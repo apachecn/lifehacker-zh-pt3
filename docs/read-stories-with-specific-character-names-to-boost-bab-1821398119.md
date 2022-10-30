@@ -1,6 +1,6 @@
 # 阅读有特定人物名字的故事来促进婴儿的大脑发育
 
-> 原文:[https://life hacker . com/read-stories-with-specific-character-names-to-boost-Bab-1821398119](https://lifehacker.com/read-stories-with-specific-character-names-to-boost-bab-1821398119)
+> 原文：<https://lifehacker.com/read-stories-with-specific-character-names-to-boost-bab-1821398119>
 
 我们大多数人都知道，给婴儿朗读是一件非常好的事情——它与 [语言和认知发展](https://doi.org/10.1111/j.1467-8624.2006.00911.x) 联系在一起，帮助 [加强亲子关系](http://apps.who.int/iris/bitstream/10665/42878/1/924159134X.pdf) ，并在我们试图进入我们的 [推荐的每天 3 万词](https://www.education.com/magazine/article/30000_words/) 时给我们一个受欢迎的脚本，而不必再次说唱*新鲜的贝莱尔王子*主题曲。但是为了获得最佳利益，仅仅拿起任何一本纸板书或泰国菜外卖菜单并开始背诵单词可能是不够的。根据一项新的研究，你读的书的类型可能会有很大的不同。
 

@@ -1,6 +1,6 @@
 # 亚马逊 Echo Dot Vs. Google Home Mini:廉价扬声器对决
 
-> 原文:[https://gizmodo . com/Amazon-echo-dot-vs-Google-home-mini-the-cheap-speaker-1820122896](https://gizmodo.com/amazon-echo-dot-vs-google-home-mini-the-cheap-speaker-1820122896)
+> 原文：<https://gizmodo.com/amazon-echo-dot-vs-google-home-mini-the-cheap-speaker-1820122896>
 
 在电子产品的世界里，将某样东西与杰特森一家相提并论已经是老生常谈了。但是，当谈到一个便宜的小盒子，你说话，回答你的问题，控制你的整个家，这种比较太完美了。 [售价 50 美元的亚马逊 Echo Dot](https://gizmodo.com/now-anyone-can-buy-amazons-cheapest-echo-1786614856#_ga=2.245701572.1354727015.1509730032-1764601981.1503686132) 和 [售价 50 美元的谷歌 Home Mini](https://gizmodo.com/its-hard-not-to-love-the-google-home-mini-1819341054#_ga=2.245701572.1354727015.1509730032-1764601981.1503686132) 就是两个这样的盒子。它们不是完美的小玩意，但它们物超所值。
 

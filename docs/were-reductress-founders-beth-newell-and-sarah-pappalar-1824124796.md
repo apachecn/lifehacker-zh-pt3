@@ -1,6 +1,6 @@
 # 我们是 Reductress 创始人贝丝·纽维尔和莎拉·帕帕拉多，这是我们的工作方式
 
-> 原文:[https://life hacker . com/were-reductress-founders-Beth-Newell-and-Sarah-pappalar-1824124796](https://lifehacker.com/were-reductress-founders-beth-newell-and-sarah-pappalar-1824124796)
+> 原文：<https://lifehacker.com/were-reductress-founders-beth-newell-and-sarah-pappalar-1824124796>
 
 很少有网站能以“搞笑假新闻”的形式出名。基本上有洋葱、 [和](http://reductress.com/) 。今天我们要和一个以“女性新闻”为口号的人谈话。女性化。”最近的头条新闻包括“ [如何在每个人都错过你刚才说的话时保持冷静，这真的很好](http://reductress.com/post/how-to-stay-calm-even-though-everyone-missed-what-you-just-said-and-it-was-really-good/) ， [哇！这个美女不会闭嘴接受他妈的恭维](http://reductress.com/post/wow-this-beautiful-woman-wont-shut-up-and-take-the-fucking-compliment/) 。”
 

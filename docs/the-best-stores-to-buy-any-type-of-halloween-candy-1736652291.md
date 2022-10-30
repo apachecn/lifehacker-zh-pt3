@@ -1,6 +1,6 @@
 # 购买任何类型万圣节糖果的最佳商店
 
-> 原文:[https://life hacker . com/the-best-stores-to-buy-any-type-of-Halloween-candy-1736652291](https://lifehacker.com/the-best-stores-to-buy-any-type-of-halloween-candy-1736652291)
+> 原文：<https://lifehacker.com/the-best-stores-to-buy-any-type-of-halloween-candy-1736652291>
 
 我从来没有真正生活在一个吸引了很多不给糖就捣蛋的人的社区，但这并不妨碍我购买万圣节糖果。显然，这是我非常认真对待的一项任务，因为即使没有孩子来我家，我也想尽可能地用我的钱买到美味的时令糖。
 

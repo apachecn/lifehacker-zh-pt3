@@ -1,6 +1,6 @@
 # 更新你的 Tor 浏览器，防止它泄露你的真实 IP 地址
 
-> 原文:[https://life hacker . com/get-tor-s-browser-update-to-stop-leaking-your-real-IP-a-1820190316](https://lifehacker.com/get-tor-s-browser-update-to-stop-leaking-your-real-ip-a-1820190316)
+> 原文：<https://lifehacker.com/get-tor-s-browser-update-to-stop-leaking-your-real-ip-a-1820190316>
 
 某些注重隐私的 [Tor 网络浏览器](https://lifehacker.com/what-is-tor-and-should-i-use-it-1527891029) 的用户应该下载 [该应用程序的最新更新](https://blog.torproject.org/tor-browser-709-released) ，该更新添加了一个临时补丁，以防止浏览器泄露身份信息，即 IP 地址。发现该漏洞的安全研究公司命名为 [的 TorMoil 漏洞，我们称之为](https://www.wearesegment.com/news/the-tormoil-bug-torbrowser-critical-security-vulnerability/) 段，它可以利用浏览器中的一个缺陷来发现用户的真实 IP 地址，从而在匿名浏览器点击特定类型的链接时将其暴露。
 

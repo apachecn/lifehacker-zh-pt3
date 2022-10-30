@@ -1,6 +1,6 @@
 # 你可能用错了开罐器
 
-> 原文:[https://life hacker . com/youve-possible-used-a-can-opener-wrong-1828372815](https://lifehacker.com/youve-probably-been-using-a-can-opener-wrong-1828372815)
+> 原文：<https://lifehacker.com/youve-probably-been-using-a-can-opener-wrong-1828372815>
 
 有些东西是永远不会被一个 app 取代的，一个坚固的手摇开罐器就是其中之一。不幸的是，我们都忙于学习编码或其他什么来练习我们的家务技能，没有人知道如何使用它们。
 

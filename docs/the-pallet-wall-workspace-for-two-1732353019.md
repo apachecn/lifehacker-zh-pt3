@@ -1,6 +1,6 @@
 # 两个人的托盘墙工作空间
 
-> 原文:[https://life hacker . com/the-pallet-wall-workspace-for-two-1732353019](https://lifehacker.com/the-pallet-wall-workspace-for-two-1732353019)
+> 原文：<https://lifehacker.com/the-pallet-wall-workspace-for-two-1732353019>
 
 托盘上的厚木板和一张 10 英尺宽的办公桌让这间家庭办公室与众不同，同时又不破坏极简主义的氛围。
 

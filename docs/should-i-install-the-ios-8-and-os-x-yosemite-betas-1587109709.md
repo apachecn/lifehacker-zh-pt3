@@ -1,6 +1,6 @@
 # 我应该安装 iOS 10 和 MacOS Sierra Betas 吗？
 
-> 原文:[https://life hacker . com/should-I-install-the-IOs-8-and-OS-x-Yosemite-beta-1587109709](https://lifehacker.com/should-i-install-the-ios-8-and-os-x-yosemite-betas-1587109709)
+> 原文：<https://lifehacker.com/should-i-install-the-ios-8-and-os-x-yosemite-betas-1587109709>
 
 亲爱的 Lifehacker，
 我不是开发人员或其他什么人，但我真的对 [iOS 10 和 macOS Sierra](http://lifehacker.com/everything-apple-announced-at-wwdc-that-actually-matter-1781894130) 的新改进感到兴奋。为他们安装测试版安全吗？如果我做了，会有什么样的体验？

@@ -1,6 +1,6 @@
 # 1Password 的更新密码管理器是 Mac 的必备软件
 
-> 原文:[https://life hacker . com/1 passwords-updated-password-manager-is-a-must-have-for-1826379117](https://lifehacker.com/1passwords-updated-password-manager-is-a-must-have-for-1826379117)
+> 原文：<https://lifehacker.com/1passwords-updated-password-manager-is-a-must-have-for-1826379117>
 
 macOS(还有我们写完这个之后， [Windows](https://blog.agilebits.com/2018/05/29/1password-7-for-windows-the-best-ever/) ！):几年前，AgileBits 发布了其杀手级密码管理应用程序 [1Password](https://1password.com/downloads/) 的重大更新，这就是为什么大家对 1Password 7 上周的首次亮相如此兴奋。在这一点上，这个应用程序应该是一个家喻户晓的名字，因为它是我们推荐的创建和存储超级安全的 [密码和密码短语](https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324) 的主要密码管理器之一。
 

@@ -1,6 +1,6 @@
 # 它会腐烂吗？:超甜奶油玉米
 
-> 原文:[https://life hacker . com/will-it-sous-vide-super-sweet-and-creamy-creamed-corn-1796902814](https://lifehacker.com/will-it-sous-vide-super-sweet-and-creamy-creamed-corn-1796902814)
+> 原文：<https://lifehacker.com/will-it-sous-vide-super-sweet-and-creamy-creamed-corn-1796902814>
 
 欢迎来到本周的 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏，我通常用我的沉浸式循环器在那里制作你想要我做的任何东西。
 

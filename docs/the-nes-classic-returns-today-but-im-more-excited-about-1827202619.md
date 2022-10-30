@@ -1,6 +1,6 @@
 # NES 经典今天回归，但我对这个无线控制器更感兴趣
 
-> 原文:[https://gizmodo . com/the-nes-classic-returns-today-but-im-more-excited-about-1827202619](https://gizmodo.com/the-nes-classic-returns-today-but-im-more-excited-about-1827202619)
+> 原文：<https://gizmodo.com/the-nes-classic-returns-today-but-im-more-excited-about-1827202619>
 
 当 NES 经典版首次发布时，我们 [认为 40 美元的 8Bitdo NES30 是微型游戏机的最佳无线控制器替代品](https://gizmodo.com/the-nes-classic-is-so-much-better-with-a-wireless-contr-1791570302#_ga=2.1756849.1469666760.1530188579-1791892859.1530188579) 。但现在任天堂从今天开始再次销售 NES 经典游戏，我对 8Bitdo 的新游戏手柄更感兴趣，这是一个更好的无线替代品，价格更便宜，还有一个专用的“home”按钮。
 

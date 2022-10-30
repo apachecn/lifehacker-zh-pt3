@@ -1,6 +1,6 @@
 # 对着宝宝的脸吹气，让泳池或沐浴时间变得更容易
 
-> 原文:[https://life hacker . com/blow-in-your-babys-face-to-make-pool-or-bath-time-way-e-1821866293](https://lifehacker.com/blow-in-your-babys-face-to-make-pool-or-bath-time-way-e-1821866293)
+> 原文：<https://lifehacker.com/blow-in-your-babys-face-to-make-pool-or-bath-time-way-e-1821866293>
 
 为了帮助你的宝宝在泳池中变得舒适，这里有一个简单的技巧:在浸泡他们之前对着他们的脸吹气。他们会本能地 [大口吸气，屏住呼吸](https://www.youtube.com/watch?v=2ivl82QIWSw) ，这是一个绝佳的机会，让你在一瞬间假装这个孩子是下一个迈克尔·菲尔普斯。
 

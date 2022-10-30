@@ -1,6 +1,6 @@
 # 记住你用这种字体读过的东西
 
-> 原文:[https://life hacker . com/remember-what-you-read-with-this-font-1829554064](https://lifehacker.com/remember-what-youve-read-with-this-font-1829554064)
+> 原文：<https://lifehacker.com/remember-what-youve-read-with-this-font-1829554064>
 
 我们都习惯于略读阅读作业或网络文章中枯燥的部分。但是当澳大利亚皇家墨尔本理工大学的研究人员用一种奇怪的、难以阅读的字体打印信息时，他们发现 [的人更容易记住他们所阅读的](https://www.washingtonpost.com/business/2018/10/05/introducing-sans-forgetica-font-designed-boost-your-memory/?__twitter_impression=true&utm_term=.1bad1f3b4052) 。
 

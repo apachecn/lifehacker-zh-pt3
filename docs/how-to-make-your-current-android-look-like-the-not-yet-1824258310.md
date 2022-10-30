@@ -1,6 +1,6 @@
 # 如何让你现在的安卓看起来像尚未发布的 Pixel 3
 
-> 原文:[https://life hacker . com/how-to-make-your-current-Android-like-the-not-1824258310](https://lifehacker.com/how-to-make-your-current-android-look-like-the-not-yet-1824258310)
+> 原文：<https://lifehacker.com/how-to-make-your-current-android-look-like-the-not-yet-1824258310>
 
 Android:Pixel 3 可能要到 10 月份才会正式发布(谷歌 [通常会在这个时候宣布其最新的旗舰手机](https://lifehacker.com/how-does-google-s-pixel-2-stack-up-to-its-predecessor-1819148085) )，但你现在就可以把传言中的设备带到你目前的 Android 手机上。你需要的只是这个 [发射器](https://lifehacker.com/five-best-android-home-screen-replacements-1554069893) 的最新版本。
 

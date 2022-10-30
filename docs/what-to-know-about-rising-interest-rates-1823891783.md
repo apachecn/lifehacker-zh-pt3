@@ -1,6 +1,6 @@
 # 关于利率上升应该知道什么
 
-> 原文:[https://life hacker . com/what-to-know-about-rising-rates-1823891783](https://lifehacker.com/what-to-know-about-rising-interest-rates-1823891783)
+> 原文：<https://lifehacker.com/what-to-know-about-rising-interest-rates-1823891783>
 
 预计美联储本周将加息 25 个基点(0.25%)，这可能会让你陷入更高的信用卡账单，如果你保持平衡的话。
 

@@ -1,6 +1,6 @@
 # 坏心情可能对你有好处
 
-> 原文:[https://life hacker . com/a-bad-mood-can-be-good-for you-1796057355](https://lifehacker.com/a-bad-mood-can-be-good-for-you-1796057355)
+> 原文：<https://lifehacker.com/a-bad-mood-can-be-good-for-you-1796057355>
 
 美国的心情并不坏。嗯，不比正常情况差。根据盖洛普长期进行的 [“美国情绪”民意调查](http://www.gallup.com/poll/151166/mood-weekly.aspx) ，报告“日常担忧和压力，没有太多快乐和享受”的美国人数量在 2016 年大选后达到四年来的最高水平 13.1%，之后回落到约 9-11%的正常范围。如果你是那 9-11%中的一员，这是令人震惊的。
 

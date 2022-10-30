@@ -1,6 +1,6 @@
 # 尼古拉斯·凯奇定量指南
 
-> 原文:[https://life hacker . com/the-quantitative-guide-to-Nicolas-cage-1825529803](https://lifehacker.com/the-quantitative-guide-to-nicolas-cage-1825529803)
+> 原文：<https://lifehacker.com/the-quantitative-guide-to-nicolas-cage-1825529803>
 
 本周统计新闻网站 FiveThirtyEight 在其 [【好莱坞分类法】](https://fivethirtyeight.com/tag/hollywood-taxonomy/) 系列中发布了最雄心勃勃的演员职业分析，考察了 [尼古拉斯·凯奇电影的五种类型](https://fivethirtyeight.com/features/the-five-types-of-nicolas-cage-movies/) 。到目前为止，该网站将每个演员的作品细分为三四种类型。但是尼古拉斯·凯奇的作品闻名于世，以至于他的同事胡莫为他沮丧的经纪人画了一个小品。他的表演变化如此之大，以至于*社区*在这上面花了整整一个 B 区，以下面的表演达到高潮。所以 FiveThirtyEight 说去他妈的一切， [我们在做五种类型](https://www.theonion.com/fuck-everything-were-doing-five-blades-1819584036) 。
 

@@ -1,6 +1,6 @@
 # 如何收看今晚的国情咨文
 
-> 原文:[https://life hacker . com/how-to-watch-tonights-state-of-the-union-address-1822532196](https://lifehacker.com/how-to-watch-tonights-state-of-the-union-address-1822532196)
+> 原文：<https://lifehacker.com/how-to-watch-tonights-state-of-the-union-address-1822532196>
 
 感谢您在最后一刻选择 Lifehacker 进行“如何观看 SOTU”搜索。你可以选择任何人，但你选择了我们。好了，以下是如何观看总统给评论员留下深刻印象，而不仅仅是尖叫一个小时
 

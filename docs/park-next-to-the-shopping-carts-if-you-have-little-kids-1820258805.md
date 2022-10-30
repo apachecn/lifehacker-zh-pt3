@@ -1,6 +1,6 @@
 # 如果你有小孩，把车停在购物车旁边
 
-> 原文:[https://life hacker . com/park-next-to-the-购物车-如果你有小孩的话-1820258805](https://lifehacker.com/park-next-to-the-shopping-carts-if-you-have-little-kids-1820258805)
+> 原文：<https://lifehacker.com/park-next-to-the-shopping-carts-if-you-have-little-kids-1820258805>
 
 年轻孩子的父母，你可能知道这是决定。在带着你的小家伙们买完牛奶、奶酪条和弹性袋后，你走回你的车，意识到:*废话*。*我该拿这辆购物车做什么？我应该把孩子们留在车里 23 秒*(这是违法的，不要让我开始谈论这个)*还是我应该把他们带到返回容器，然后不得不把他们从里面抱出来，危险地穿过一个繁忙的停车场回到车上？还是说我应该是那个不顾一切把手推车留在车旁的混蛋？*
 

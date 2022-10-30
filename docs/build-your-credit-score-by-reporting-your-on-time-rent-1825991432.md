@@ -1,6 +1,6 @@
 # 通过让这个应用程序报告您的按时租金付款来建立您的信用评分
 
-> 原文:[https://life hacker . com/build-your-credit-score-by-reporting-your-on-time-rent-1825991432](https://lifehacker.com/build-your-credit-score-by-reporting-your-on-time-rent-1825991432)
+> 原文：<https://lifehacker.com/build-your-credit-score-by-reporting-your-on-time-rent-1825991432>
 
 从零开始建立你的信用或者试图从一些使你分数下降的错误中恢复过来需要时间。按时偿还贷款和信用卡是一个很好的方法，但是你的信用评分没有考虑到你可能每个月都要支付的一大笔账单:房租。
 

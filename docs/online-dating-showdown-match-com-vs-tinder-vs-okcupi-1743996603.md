@@ -1,6 +1,6 @@
 # 网上约会摊牌:Match.com vs . Tinder vs . OkCupid
 
-> 原文:[https://life hacker . com/online-dating-摊牌-match-com-vs-tinder-vs-ok cupi-1743996603](https://lifehacker.com/online-dating-showdown-match-com-vs-tinder-vs-okcupi-1743996603)
+> 原文：<https://lifehacker.com/online-dating-showdown-match-com-vs-tinder-vs-okcupi-1743996603>
 
 无论你在哪里，Match.com、Tinder 和 OkCupid 都希望找到你的灵魂伴侣。无论你是在寻找长久的浪漫，还是仅仅为了勾搭，在这场决战的三重奏中，一定会有一种服务适合你。
 

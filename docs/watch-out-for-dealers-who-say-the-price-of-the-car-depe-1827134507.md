@@ -1,6 +1,6 @@
 # 当心那些说汽车价格取决于你的信用的经销商
 
-> 原文:[https://jalopnik . com/当心那些说车价的经销商](https://jalopnik.com/watch-out-for-dealers-who-say-the-price-of-the-car-depe-1827134507)
+> 原文：<https://jalopnik.com/watch-out-for-dealers-who-say-the-price-of-the-car-depe-1827134507>
 
 有些经销商不喜欢玩这个 [整个互联网购物的东西。](https://jalopnik.com/this-is-the-most-insane-excuse-for-why-a-dealer-won-t-s-1823542922) 尽管如此，大多数人知道如果他们拒绝网上报价，他们将失去销售，但有些人会给你发送号码，只是为了试图在以后耍些花招——比如根据你的信用评分改变价格。
 

@@ -1,6 +1,6 @@
 # 如何找回谷歌航班的经典界面
 
-> 原文:[https://life hacker . com/how-to-get-Google-flights-classic-interface-back-1825250612](https://lifehacker.com/how-to-get-google-flights-classic-interface-back-1825250612)
+> 原文：<https://lifehacker.com/how-to-get-google-flights-classic-interface-back-1825250612>
 
 去年年底，谷歌开始让用户尝试其桌面版 [航班](https://www.google.com/flights) 工具的全新界面。我们对这些变化没有任何问题——包括更简单的主屏幕和搜索界面，现在符合该公司 [材料设计指南](https://material.io/guidelines/) 的整体设计，以及一个全新的“航班洞察”栏，当你搜索廉价机票时，它会给你一些有用的指导。
 

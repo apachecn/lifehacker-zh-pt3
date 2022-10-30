@@ -1,6 +1,6 @@
 # 让你相信世界正在崩溃的认知偏见
 
-> 原文:[https://life hacker . com/the-cognitive-bias-that-confident-you-the-world-is-fal-1822620516](https://lifehacker.com/the-cognitive-biases-that-convince-you-the-world-is-fal-1822620516)
+> 原文：<https://lifehacker.com/the-cognitive-biases-that-convince-you-the-world-is-fal-1822620516>
 
 这个世界现在看起来很艰难。如果你打开电视或打开网络浏览器，你几乎肯定会受到坏消息的轰炸。但是这个世界真的注定要毁灭吗？还是你的动物大脑在作弄你？振作起来——事情并不总是像看上去的那样糟糕。
 

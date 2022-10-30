@@ -1,6 +1,6 @@
 # 这些是目前世界上最安全的主要旅游城市
 
-> 原文:[https://life hacker . com/这些是世界上最安全的主要旅游城市-1820765094](https://lifehacker.com/these-are-the-safest-major-cities-in-the-world-to-visit-1820765094)
+> 原文：<https://lifehacker.com/these-are-the-safest-major-cities-in-the-world-to-visit-1820765094>
 
 周游世界不一定意味着冒险和去危险的地方[。世界上有很多大城市比美国的大多数地方安全得多。这里有一些很好的例子。](https://lifehacker.com/the-countries-actually-most-dangerous-for-tourists-1794002926) 
 

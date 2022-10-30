@@ -1,6 +1,6 @@
 # 如何在本周的蒸汽销售中获得最优惠的价格
 
-> 原文:[https://life hacker . com/how-to-get-the-best-deals-week-steam-sale-735529736](https://lifehacker.com/how-to-get-the-best-deals-during-this-weeks-steam-sale-735529736)
+> 原文：<https://lifehacker.com/how-to-get-the-best-deals-during-this-weeks-steam-sale-735529736>
 
 Steam 的年度冬季特卖现在开始了，但在你掏空钱包之前，这里有一些有用的提示，可以确保你的钱花得最值，买到你真正想要的书。
 

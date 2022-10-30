@@ -1,6 +1,6 @@
 # 你需要一个高科技 Dopp 套件
 
-> 原文:[https://lifehacker.com/you-need-a-tech-dopp-kit-1821023553](https://lifehacker.com/you-need-a-tech-dopp-kit-1821023553)
+> 原文：<https://lifehacker.com/you-need-a-tech-dopp-kit-1821023553>
 
 你传统的 dopp 包( [或洗漱包](https://lifehacker.com/establish-a-permanent-toiletries-bag-for-easy-and-speed-5409595) )是一个有用的旅行伴侣。这是你放置牙刷、梳子、除臭剂或其他修饰物品的地方，这些物品是让你看起来不邋遢的必备物品。
 

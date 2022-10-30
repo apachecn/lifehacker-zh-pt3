@@ -1,6 +1,6 @@
 # 小狗喜欢你的婴儿语，但狗不喜欢
 
-> 原文:[https://life hacker . com/puppies-love-your-baby-talk-but-dogs-don-1794355775](https://lifehacker.com/puppies-love-your-baby-talk-but-dogs-dont-1794355775)
+> 原文：<https://lifehacker.com/puppies-love-your-baby-talk-but-dogs-dont-1794355775>
 
 当你第一次见到一只狗时，很难不陷入人们用来和婴儿说话的那种高音调的“咕咕”声。一项新的研究表明，小狗实际上喜欢这种声音，但你可能会浪费你的口舌与年长的狗。
 

@@ -1,6 +1,6 @@
 # 通过删除您的快速查看缓存来修复此 Mac 安全缺陷
 
-> 原文:[https://life hacker . com/fix-this-MAC-security-flaw-by-deleting-your-quick-look-1826954088](https://lifehacker.com/fix-this-mac-security-flaw-by-deleting-your-quick-look-1826954088)
+> 原文：<https://lifehacker.com/fix-this-mac-security-flaw-by-deleting-your-quick-look-1826954088>
 
 今天流传的一份令人不快的新报告很好地提醒了人们，你 Mac 的快速查看功能——尽管它可能有助于通过捣碎空格键来预览文件——[存储关于你连接到系统的加密 USB 驱动器](https://gizmodo.com/one-of-macos-most-useful-features-may-be-making-your-f-1826919516#_ga=2.109195843.775378703.1529327013-1723114163.1524514905) 的内容的信息。
 

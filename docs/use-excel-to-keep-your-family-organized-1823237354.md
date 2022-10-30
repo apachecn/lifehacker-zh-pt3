@@ -1,6 +1,6 @@
 # 使用 Excel 让您的家庭井然有序
 
-> 原文:[https://life hacker . com/use-excel-to-keep-your-family-organized-1823237354](https://lifehacker.com/use-excel-to-keep-your-family-organized-1823237354)
+> 原文：<https://lifehacker.com/use-excel-to-keep-your-family-organized-1823237354>
 
 在我大学毕业后的第一份工作中，我为一位喜欢 Excel 电子表格的老板工作。她认为几乎所有的东西都可以放入“盒子和行”中，在我在那里工作的第一年后，我正式成为了一名皈依者。无论如何，我对组织很感兴趣，那些电子表格单元格向我召唤，用它们的秩序和清晰的承诺引诱我。活动策划物流？我有一个电子表格。为办公室主任预订机票和酒店？电子表格。新财年的目标？电子表格。
 

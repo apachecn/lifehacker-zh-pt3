@@ -1,6 +1,6 @@
 # 防晒霜对决:面霜 vs .喷雾
 
-> 原文:[https://life hacker . com/防晒霜-摊牌-面霜-喷雾-1784495399](https://lifehacker.com/sunscreen-showdown-creams-vs-sprays-1784495399)
+> 原文：<https://lifehacker.com/sunscreen-showdown-creams-vs-sprays-1784495399>
 
 防晒霜就是防晒霜，所以你会认为涂抹的方式并不重要，但是在面霜或乳液和喷雾防晒霜之间进行选择会影响你使用它的可能性，皮肤的覆盖量，甚至你得到的实际保护。让我们来看看在这场防晒霜对决中，哪一种可能更适合你。
 

@@ -1,6 +1,6 @@
 # 17 条简单的规则让你井井有条
 
-> 原文:[https://life hacker . com/17-simple-rules-for-get-organized-and-decluttered-1754586606](https://lifehacker.com/17-simple-rules-for-getting-organized-and-decluttered-1754586606)
+> 原文：<https://lifehacker.com/17-simple-rules-for-getting-organized-and-decluttered-1754586606>
 
 怎样才能让你的生活井井有条？对我们许多人来说，这可能是一个很高的要求，但事实是，我们可以通过使用一些易于遵循的规则，以爆发和爆发的方式完成它。
 

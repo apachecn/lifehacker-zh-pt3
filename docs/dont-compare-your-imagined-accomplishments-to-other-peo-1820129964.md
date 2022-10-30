@@ -1,6 +1,6 @@
 # 不要把你想象的成就和别人的实际成就相比较
 
-> 原文:[https://life hacker . com/don ' t-compare-your-desceived-to-other-peo-1820129964](https://lifehacker.com/dont-compare-your-imagined-accomplishments-to-other-peo-1820129964)
+> 原文：<https://lifehacker.com/dont-compare-your-imagined-accomplishments-to-other-peo-1820129964>
 
 我和一个朋友有一个旧的坏习惯。我们之间有几个被放弃的创意项目，当我们看到一个新的电视节目、电影或书籍与其中一个项目相似时，我们会比较这两个项目。我们指出实际完成的工作中所有的缺陷给我们从未被执行的未被玷污的想法。
 

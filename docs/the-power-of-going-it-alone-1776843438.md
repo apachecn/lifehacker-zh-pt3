@@ -1,6 +1,6 @@
 # 单干的力量
 
-> 原文:[https://life hacker . com/the-power of-go-it-alone-1776843438](https://lifehacker.com/the-power-of-going-it-alone-1776843438)
+> 原文：<https://lifehacker.com/the-power-of-going-it-alone-1776843438>
 
 我喜欢一个人做事情——吃晚餐、 [、玩游戏](https://lifehacker.com/board-games-that-are-super-fun-to-play-solo-1770363470) 、看电影——但对一些人来说，这个想法似乎令人沮丧、悲伤，或者只适合没有人陪伴的人。那是胡说八道。独自做事会让你变得自给自足，给你时间进行诚实的反思，并迫使你学会喜欢自己一点——或者至少弄清楚为什么你不喜欢自己。
 

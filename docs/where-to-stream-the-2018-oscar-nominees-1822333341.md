@@ -1,6 +1,6 @@
 # 在哪里播放 2018 年奥斯卡提名
 
-> 原文:[https://life hacker . com/where-to-stream-the-2018-奥斯卡提名-1822333341](https://lifehacker.com/where-to-stream-the-2018-oscar-nominees-1822333341)
+> 原文：<https://lifehacker.com/where-to-stream-the-2018-oscar-nominees-1822333341>
 
 如果你真的对今天早上宣布的奥斯卡提名感到兴奋，或者如果你迷路了，想追上去，那么许多被提名者——《水的形状》、《三块广告牌》、《幻影线》和《T1》等仍在上映。但是对于你们这些宅在家的人来说，足不出户就能看到几个顶级奖项的提名
 

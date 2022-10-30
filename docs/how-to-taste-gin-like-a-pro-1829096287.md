@@ -1,6 +1,6 @@
 # 如何像专业人士一样品尝杜松子酒
 
-> 原文:[https://life hacker . com/how-to-taste-gin-like-a-pro-1829096287](https://lifehacker.com/how-to-taste-gin-like-a-pro-1829096287)
+> 原文：<https://lifehacker.com/how-to-taste-gin-like-a-pro-1829096287>
 
 杜松子酒现在有一个时刻。对于酿酒厂来说，杜松子酒更容易上手，因为它不需要桶内陈酿。如果你是一家新酒厂，你可以蒸馏杜松子酒，然后几乎立即开始销售，而一家新的威士忌酒厂可能要等几年才能有产品出售。
 

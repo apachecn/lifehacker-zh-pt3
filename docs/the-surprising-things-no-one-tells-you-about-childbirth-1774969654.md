@@ -1,6 +1,6 @@
 # 没人告诉你的关于分娩的令人惊讶的事情
 
-> 原文:[https://life hacker . com/the-surprise-things-no-one-tell-you-about-delivery-1774969654](https://lifehacker.com/the-surprising-things-no-one-tells-you-about-childbirth-1774969654)
+> 原文：<https://lifehacker.com/the-surprising-things-no-one-tells-you-about-childbirth-1774969654>
 
 尽管你可能为孩子的出生做了很多准备，但还是有可能会发生一些意想不到的事情。一些妈妈在生产 时有过 [的辉煌高潮，而另一些妈妈的经历则更加痛苦。从无法控制的便便到需要新鞋，这里有一些你以前可能没听说过的关于分娩的“秘密”。](http://abcnews.go.com/Health/story?id=6120045)
 

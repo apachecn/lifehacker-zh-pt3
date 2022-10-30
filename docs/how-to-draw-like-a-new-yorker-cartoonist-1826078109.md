@@ -1,6 +1,6 @@
 # 如何像纽约客漫画家一样画画
 
-> 原文:[https://life hacker . com/how-to-draw-like-a-new Yorker-cartoon-1826078109](https://lifehacker.com/how-to-draw-like-a-new-yorker-cartoonist-1826078109)
+> 原文：<https://lifehacker.com/how-to-draw-like-a-new-yorker-cartoonist-1826078109>
 
 当你只知道简笔画时，绘画就像一种神秘的力量。你是如何开始学习的？《纽约客》漫画家杰森·卡赞斯坦在这个视频绘画环节向你展示了这一点。
 

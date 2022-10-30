@@ -1,6 +1,6 @@
 # 当青少年的大脑准备好学习时，学校应该推迟开学
 
-> 原文:[https://life hacker . com/schools-should-start-la ter-when-teen-brains-ready-t-1800671670](https://lifehacker.com/schools-should-start-later-when-teen-brains-are-ready-t-1800671670)
+> 原文：<https://lifehacker.com/schools-should-start-later-when-teen-brains-are-ready-t-1800671670>
 
 青少年在课堂上打瞌睡是有原因的，而不仅仅是关于多项式的最后一堂课。他们困了。他们犯困的一个原因是学校太早开学了。
 

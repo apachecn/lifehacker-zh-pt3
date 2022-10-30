@@ -1,6 +1,6 @@
 # 怀孕不会让你成为更好的运动员——它可能会让锻炼更加困难
 
-> 原文:[https://life hacker . com/怀孕并不能让你成为一名更好的运动员，但它会让你成为一名更好的运动员 1794633994](https://lifehacker.com/pregnancy-doesn-t-make-you-a-better-athlete-but-it-doe-1794633994)
+> 原文：<https://lifehacker.com/pregnancy-doesn-t-make-you-a-better-athlete-but-it-doe-1794633994>
 
 塞雷娜·威廉姆斯在赢得澳网冠军时可能已经怀孕，所以《新科学家》问 [她的怀孕是否可能对](https://www.newscientist.com/article/2128439-how-pregnancy-could-affect-an-elite-athlete-like-serena-williams/) 有所帮助——好像她之前的 [38 个主要头衔](https://en.wikipedia.org/wiki/Serena_Williams) 都是侥幸。但这是一个已经流传了一段时间的神话，所以让我们来谈谈怀孕对运动员身体的真正影响。
 

@@ -1,6 +1,6 @@
 # iPhone 8 一周
 
-> 原文:[https://gizmodo.com/one-week-with-the-iphone-8-1818736319](https://gizmodo.com/one-week-with-the-iphone-8-1818736319)
+> 原文：<https://gizmodo.com/one-week-with-the-iphone-8-1818736319>
 
 今年，苹果打破传统，推出了两款全新的 iPhone:iPhone 8 和 iPhone X。这是怎么回事？尽管 iPhone X 看起来很酷，但 iPhone 8 仍然是一款神奇的设备。
 

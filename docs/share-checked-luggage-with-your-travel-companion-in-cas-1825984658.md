@@ -1,6 +1,6 @@
 # 与你的旅伴分享托运行李，以防行李丢失
 
-> 原文:[https://life hacker . com/share-checked-like-with-your-travel-companion-in-cas-1825984658](https://lifehacker.com/share-checked-luggage-with-your-travel-companion-in-cas-1825984658)
+> 原文：<https://lifehacker.com/share-checked-luggage-with-your-travel-companion-in-cas-1825984658>
 
 我经常旅行，所以我已经开始达到一个点，没有太多的旅行“黑客”让我感到惊讶。然而，本周我的一个朋友提出了一个我之前没有想到的建议:和一个朋友一起把你托运的物品分放在两个行李箱里。
 

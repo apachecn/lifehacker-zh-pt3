@@ -1,6 +1,6 @@
 # 有人为您家中的其他插头制作了 MagSafe 连接器
 
-> 原文:[https://gizmodo . com/someone-created-a-mag safe-connector-for-the-rest-of-the-1822866952](https://gizmodo.com/someone-created-a-magsafe-connector-for-the-rest-of-the-1822866952)
+> 原文：<https://gizmodo.com/someone-created-a-magsafe-connector-for-the-rest-of-the-1822866952>
 
 尽管 USB-C 对过去的 USB 连接器来说是一个巨大的进步，但我们仍然对它取代了最近一代苹果 MacBooks 上的 MagSafe 连接器感到失望。我们并没有变得更笨拙，但是这些 [磁性分离插头适配器](https://ilovehandles.com/shop/tug/) 看起来可以减轻被我们的其他电源线绊倒的恐惧。
 

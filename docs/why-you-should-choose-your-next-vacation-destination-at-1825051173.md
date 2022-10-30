@@ -1,6 +1,6 @@
 # 为什么你应该随机选择下一个度假目的地
 
-> 原文:[https://life hacker . com/why-you-should-choose-your next-vacation-destination-at-1825051173](https://lifehacker.com/why-you-should-choose-your-next-vacation-destination-at-1825051173)
+> 原文：<https://lifehacker.com/why-you-should-choose-your-next-vacation-destination-at-1825051173>
 
 当我们最后一次汇总我们员工的每周更新时，我们的编辑正在沉思，对我们的收件箱进行颜色编码，并寻找改进我们早晨咖啡的方法。
 

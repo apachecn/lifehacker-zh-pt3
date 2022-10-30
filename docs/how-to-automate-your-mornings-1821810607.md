@@ -1,6 +1,6 @@
 # 如何自动化你的早晨
 
-> 原文:[https://life hacker . com/how-to-automated-your-morning-1821810607](https://lifehacker.com/how-to-automate-your-mornings-1821810607)
+> 原文：<https://lifehacker.com/how-to-automate-your-mornings-1821810607>
 
 如果你有一个 [几个智能家居配件](https://lifehacker.com/you-need-a-flic-button-if-you-re-into-smart-homes-1821324815) ，你可以为自己建立一个现实世界的播放列表来开始你的一天。让起床变得更有音乐(和温度控制)的体验，毫不犹豫地跟踪你的跑步，甚至在出门前让别人知道你要迟到了。毕竟，早晨应该是轻松的，对吗？
 

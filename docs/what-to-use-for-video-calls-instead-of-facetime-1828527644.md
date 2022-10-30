@@ -1,6 +1,6 @@
 # 群组视频通话使用什么来代替 Facetime
 
-> 原文:[https://life hacker . com/what-to-use-for-video-calls-inst-of-face time-1828527644](https://lifehacker.com/what-to-use-for-video-calls-instead-of-facetime-1828527644)
+> 原文：<https://lifehacker.com/what-to-use-for-video-calls-instead-of-facetime-1828527644>
 
 上周，苹果公司恢复了预计将于今年秋天与 iOS 12 和 macOS Mojave 一同发布的 FaceTime 关键功能之一:群组视频聊天。这项功能可以让你和多达 31 个朋友通过他们的手机和笔记本电脑进行不完全的眼神交流，该功能已于上周从每个操作系统的测试版中删除，据报道，现在将在稍后的日期推出。
 

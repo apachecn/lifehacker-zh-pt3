@@ -1,6 +1,6 @@
 # 如何让你的摩托车在夏天出奇的干净
 
-> 原文:[https://jalopnik . com/how-to-get-your ' s-rally-clean-for-s-1795430275](https://jalopnik.com/how-to-get-your-motorcycle-ridiculously-clean-for-the-s-1795430275)
+> 原文：<https://jalopnik.com/how-to-get-your-motorcycle-ridiculously-clean-for-the-s-1795430275>
 
 在我看来，花在洗摩托车上的时间还不如花在骑摩托车上。但即使是我也会时不时地把水桶和软管拿出来，通常当我的自行车脏得我都看不出它原来是什么颜色的时候。因为我嫉妒它停在车道上的每一分钟，而不是在一些乡村道路上吓我一跳，我做得很好，所以我不必经常这样做。你也可以这么做。
 

@@ -1,6 +1,6 @@
 # 我要拿大众的脏钱去做大事！应该买什么车？
 
-> 原文:[https://jalopnik . com/im-taking-vws-dirty-money-and-blow-it-on-something-b-1787700034](https://jalopnik.com/im-taking-vws-dirty-money-and-blowing-it-on-something-b-1787700034)
+> 原文：<https://jalopnik.com/im-taking-vws-dirty-money-and-blowing-it-on-something-b-1787700034>
 
 阿德里安是成千上万的大众车主中的一员，他们将得到一张巨额支票 ，让他的脏柴油不再上路。但他对普锐斯不感兴趣——他想要实用、大型、四轮驱动的车。他应该买什么车？
 

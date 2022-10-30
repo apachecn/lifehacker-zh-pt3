@@ -1,6 +1,6 @@
 # 在转换到更便宜的电话计划之前，你需要知道什么
 
-> 原文:[https://life hacker . com/what-you-need-to-know-before-switching-a-cheap-pho-1797921317](https://lifehacker.com/what-you-need-to-know-before-switching-to-a-cheaper-pho-1797921317)
+> 原文：<https://lifehacker.com/what-you-need-to-know-before-switching-to-a-cheaper-pho-1797921317>
 
 本月， [我们向你们](https://lifehacker.com/august-s-money-challenge-find-a-cheaper-phone-plan-1797416233) 发出挑战，要求你们削减许多人支付过多的费用:手机服务。不过，在你做出改变之前，除了成本，还有一些因素需要考虑。
 

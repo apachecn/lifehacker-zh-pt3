@@ -1,6 +1,6 @@
 # 使用浴盆让洗碗变得更容易
 
-> 原文:[https://life hacker . com/make-do-doing-the-disease-by-use-a-tub-1826837330](https://lifehacker.com/make-doing-the-dishes-easier-by-using-a-tub-1826837330)
+> 原文：<https://lifehacker.com/make-doing-the-dishes-easier-by-using-a-tub-1826837330>
 
 洗碗——英国人称之为“洗碗”——是在家做饭和自己吃饭最糟糕的部分。尽管我已经开发出了激励自己的小技巧，但很少有什么比简陋的洗碗盆更容易在一个单独的、不可分割的水槽里清洗炊具了。
 

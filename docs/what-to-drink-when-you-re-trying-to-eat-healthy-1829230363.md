@@ -1,6 +1,6 @@
 # 当你想吃得健康时喝什么
 
-> 原文:[https://life hacker . com/what-to-drink-what-when-you-re-try-to-eat-healthy-1829230363](https://lifehacker.com/what-to-drink-when-you-re-trying-to-eat-healthy-1829230363)
+> 原文：<https://lifehacker.com/what-to-drink-when-you-re-trying-to-eat-healthy-1829230363>
 
 酒精并不完全是健康食品，但即使你想吃得更好，也很难拒绝一两杯酒。你如何确保外出过夜不会严重损害你的健康*？以下是你需要知道的。* 
 

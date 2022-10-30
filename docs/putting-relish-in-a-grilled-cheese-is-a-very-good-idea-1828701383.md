@@ -1,6 +1,6 @@
 # 把调味品放在烤奶酪里是一个非常好的主意
 
-> 原文:[https://life hacker . com/put-relish-in-a-gricked-cheese-is-a-very-a-good-idea-1828701383](https://lifehacker.com/putting-relish-in-a-grilled-cheese-is-a-very-good-idea-1828701383)
+> 原文：<https://lifehacker.com/putting-relish-in-a-grilled-cheese-is-a-very-good-idea-1828701383>
 
 我最喜欢的美食文章之一是 Reddit 上一篇题为“你们让我恶心”的帖子标题之后是对 r/GrilledCheese 成员名副其实的严厉批评，他们在三明治中加入了除面包、奶酪和黄油之外的任何东西。这张海报提出了很多好的观点，当我制作上图的三明治时，我思考了每一个观点。虽然我感到有点内疚，但这并不妨碍我享受这位 Reddit 用户最有可能认为是“泡菜熔体”的东西
 

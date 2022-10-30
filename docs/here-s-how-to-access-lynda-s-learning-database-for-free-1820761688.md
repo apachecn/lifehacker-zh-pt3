@@ -1,6 +1,6 @@
 # 如何免费访问琳达的学习数据库
 
-> 原文:[https://life hacker . com/here-s-how-to-access-Lynda-s-learning-database-for-free-1820761688](https://lifehacker.com/here-s-how-to-access-lynda-s-learning-database-for-free-1820761688)
+> 原文：<https://lifehacker.com/here-s-how-to-access-lynda-s-learning-database-for-free-1820761688>
 
 如果你想在新年决心上领先一步，并最终编辑那些家庭照片，学习一种新的编程语言，或掌握 Microsoft Excel，你当地的图书馆可以提供帮助。凭借你的借书证，你可以访问 [琳达](https://www.lynda.com/) 及其教育视频和资源目录——无需订阅。
 

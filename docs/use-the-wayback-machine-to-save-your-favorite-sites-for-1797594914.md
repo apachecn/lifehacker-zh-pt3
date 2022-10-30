@@ -1,6 +1,6 @@
 # 使用 Wayback 机器永远保存您最喜爱的网站
 
-> 原文:[https://life hacker . com/use-the-way back-machine-to-save-your favorite-sites-for-1797594914](https://lifehacker.com/use-the-wayback-machine-to-save-your-favorite-sites-for-1797594914)
+> 原文：<https://lifehacker.com/use-the-wayback-machine-to-save-your-favorite-sites-for-1797594914>
 
 网站在不断变化，随着故事甚至新的布局而更新，这使得找到你多年前读过或看过的东西成为一个挑战。如果你的在线写作是在第三方网站上，他们做的任何事情都可能意味着你在线工作的结束。在当今的政治气候下，记录政治承诺或失误比以往任何时候都更加重要。如果你没有使用 Archive.org 的 [Wayback Machine](http://archive.org) 来挖掘(或保存)旧页面、 [关于你前雇主的推文](https://www.washingtonpost.com/news/the-fix/wp/2017/07/22/read-anthony-scaramuccis-old-tweets-youll-understand-why-he-deleted-them/?utm_term=.2b62243aa3bf) 或图片，你应该养成这个习惯。
 

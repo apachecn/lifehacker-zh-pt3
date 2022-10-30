@@ -1,6 +1,6 @@
 # 为什么我的网络交换机速度一直下降？
 
-> 原文:[https://life hacker . com/why-my-network-switch-keep-dropping-gigabit-speeds-1827227721](https://lifehacker.com/why-does-my-network-switch-keep-dropping-gigabit-speeds-1827227721)
+> 原文：<https://lifehacker.com/why-does-my-network-switch-keep-dropping-gigabit-speeds-1827227721>
 
 虽然感觉我是在 [和自己](https://www.youtube.com/watch?v=epeSCeztN64) 跳舞，但本周的*科技 911* 专栏——你问科技问题，我们提供科技答案——会有点颠倒。我不会回答你通过电子邮件、评论或推特(用 GIF)发给我的问题，而是寻求你的*帮助解决我遇到的一个小问题。相信我，这很有趣。*
 

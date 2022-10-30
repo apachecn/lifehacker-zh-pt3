@@ -1,6 +1,6 @@
 # 当系统对你不利时，如何控制你的财务
 
-> 原文:[https://life hacker . com/how-to-control-your-financies-when the system-works-agai-1750169604](https://lifehacker.com/how-to-control-your-finances-when-the-system-works-agai-1750169604)
+> 原文：<https://lifehacker.com/how-to-control-your-finances-when-the-system-works-agai-1750169604>
 
 你的账单太高了，经济糟糕透了，到处都是债务陷阱 。掌握你的财务状况并不容易，但事实是:如果你真的想改善你的财务状况，关注这些不公正，即使它们是真实的，也不会有帮助。另一方面，掌握控制权比你可能意识到的更有帮助。
 

@@ -1,6 +1,6 @@
 # 如何让那个讨厌的政治人物在假期闭嘴
 
-> 原文:[https://life hacker . com/how-to-get-the-sensative-political-person-闭嘴-du-1744396979](https://lifehacker.com/how-to-get-that-annoying-political-person-to-shut-up-du-1744396979)
+> 原文：<https://lifehacker.com/how-to-get-that-annoying-political-person-to-shut-up-du-1744396979>
 
 每个家庭都有一个亲戚，无法停止强迫每个人接受他们有争议的政治立场。你回家过节，想安安静静地享受一顿美餐，但他们就是不停地谈论什么在毁灭美国。以下是如何处理它们并保持假期完整的方法。
 

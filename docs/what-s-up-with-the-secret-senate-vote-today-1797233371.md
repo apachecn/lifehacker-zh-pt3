@@ -1,6 +1,6 @@
 # 今天参议院的秘密投票是怎么回事？
 
-> 原文:[https://life hacker . com/what-s-up-with-the-secret-Senate-vote-today-1797233371](https://lifehacker.com/what-s-up-with-the-secret-senate-vote-today-1797233371)
+> 原文：<https://lifehacker.com/what-s-up-with-the-secret-senate-vote-today-1797233371>
 
 有传言称，参议院今天将对一项医疗保健法案进行投票表决。哪个法案？那是个秘密。这是你的指南，告诉你投票意味着什么，之后会发生什么。
 

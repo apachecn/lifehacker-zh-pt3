@@ -1,6 +1,6 @@
 # “这肯定比维基百科更有意义”:快速而肮脏的技术解释者
 
-> 原文:[https://life hacker . com/that ----肯定比维基百科更有意义-quick-a-1821433756](https://lifehacker.com/that-certainly-makes-more-sense-than-wikipedia-quick-a-1821433756)
+> 原文：<https://lifehacker.com/that-certainly-makes-more-sense-than-wikipedia-quick-a-1821433756>
 
 昨天，技术专业人士在 Twitter 上发表了一些关于技术和商业概念的快速解释，这是由软件执行官和福音传道者王子阿尼尔·达什
 发起的

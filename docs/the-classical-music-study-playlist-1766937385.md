@@ -1,6 +1,6 @@
 # 古典音乐学习播放列表
 
-> 原文:[https://life hacker . com/the-classic-music-study-playlist-1766937385](https://lifehacker.com/the-classical-music-study-playlist-1766937385)
+> 原文：<https://lifehacker.com/the-classical-music-study-playlist-1766937385>
 
 当需要为考试而临时抱佛脚时，你需要一个播放列表来帮助你保持动力而不分散你的注意力。今天的播放列表有助于选择古典音乐。
 

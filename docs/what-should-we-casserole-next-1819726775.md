@@ -1,6 +1,6 @@
 # 接下来我们应该做什么菜？
 
-> 原文:[https://life hacker . com/what-should-we-砂锅-next-1819726775](https://lifehacker.com/what-should-we-casserole-next-1819726775)
+> 原文：<https://lifehacker.com/what-should-we-casserole-next-1819726775>
 
 大家好，欢迎回到 [*Will It 砂锅*](https://lifehacker.com/tag/will-it-casserole) ， [复古周](https://lifehacker.com/c/retro-week)——在这个受启发的专栏里，我们可以看到哪些饭菜、菜肴和烹饪可以被重新想象和改造成砂锅。
 

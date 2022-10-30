@@ -1,6 +1,6 @@
 # 使用晾衣架防止塑料容器在洗碗机中移动
 
-> 原文:[https://life hacker . com/use-a-drying-rack-to-prevent-plastic-containers-from-mo-1822061120](https://lifehacker.com/use-a-drying-rack-to-prevent-plastic-containers-from-mo-1822061120)
+> 原文：<https://lifehacker.com/use-a-drying-rack-to-prevent-plastic-containers-from-mo-1822061120>
 
 我晚餐会吃大量的泰式咖喱外卖。每一顿美味的饭菜都装在一个塑料汤容器里，尽管事实上我已经有 20 个了，但我总是决定我应该保留它，以防我将来需要用它来储存一些不明物品。
 

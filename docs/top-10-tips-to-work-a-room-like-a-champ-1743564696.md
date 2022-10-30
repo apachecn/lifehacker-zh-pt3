@@ -1,6 +1,6 @@
 # 像冠军一样工作的 10 大秘诀
 
-> 原文:[https://life hacker . com/top-10-tips-to-work-a-room-like-a-champ-1743564696](https://lifehacker.com/top-10-tips-to-work-a-room-like-a-champ-1743564696)
+> 原文：<https://lifehacker.com/top-10-tips-to-work-a-room-like-a-champ-1743564696>
 
 无论你是去办公室参加无聊的假日聚会，还是去参加古怪邻居的家常便饭，聚会——应该很有趣——都会伴随着各种尴尬时刻和压力。这里有 10 种像冠军一样工作的方法。
 

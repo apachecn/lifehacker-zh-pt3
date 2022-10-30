@@ -1,6 +1,6 @@
 # 凯格尔练习:提高高潮的简单技巧
 
-> 原文:[https://life hacker . com/Kegel-exercises-a-simple-technique-for-improving-orgas-1740985279](https://lifehacker.com/kegel-exercises-a-simple-technique-for-improving-orgas-1740985279)
+> 原文：<https://lifehacker.com/kegel-exercises-a-simple-technique-for-improving-orgas-1740985279>
 
 女士们，你想增加高潮的机会吗？你想加强你高潮的强度吗？只需很少的时间或努力？然后让我告诉你所有关于你的凯格尔肌肉。
 

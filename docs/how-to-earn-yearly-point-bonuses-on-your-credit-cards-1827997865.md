@@ -1,6 +1,6 @@
 # 如何在您的信用卡上赚取年度积分奖金
 
-> 原文:[https://life hacker . com/how-to-earn-on-your-credit-cards-1827997865](https://lifehacker.com/how-to-earn-yearly-point-bonuses-on-your-credit-cards-1827997865)
+> 原文：<https://lifehacker.com/how-to-earn-yearly-point-bonuses-on-your-credit-cards-1827997865>
 
 据美国消费者新闻与商业频道 T3 报道， [为了留住那些注册信用卡享受一次性奖励并在不久后取消信用卡的消费者，发卡机构开始提供年度积分奖励。](https://www.cnbc.com/2018/07/30/credit-card-companies-offer-points-for-well-doing-nothing.html) 
 

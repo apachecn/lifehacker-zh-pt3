@@ -1,6 +1,6 @@
 # 如果孩子的行为破坏了你和伴侣的关系，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-your-childs-behavior-is-breaking-your-rela-1798317665](https://lifehacker.com/what-to-do-if-your-childs-behavior-is-ruining-your-rela-1798317665)
+> 原文：<https://lifehacker.com/what-to-do-if-your-childs-behavior-is-ruining-your-rela-1798317665>
 
 “你知道那些美国广播公司的课后特别节目，父母离婚，他们告诉孩子们*这不是你的错*，”佛罗里达三个孩子的母亲凯瑟琳问道。“他们撒谎了。如果我们离婚，那完全是*和*他们的错
 

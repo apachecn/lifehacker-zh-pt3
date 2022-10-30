@@ -1,6 +1,6 @@
 # 手动变速器可能会让你免于收到超速罚单
 
-> 原文:[https://jalopnik . com/a-manual-transmission-may-keep-you-from-get-speed-1793496001](https://jalopnik.com/a-manual-transmission-might-keep-you-from-getting-speed-1793496001)
+> 原文：<https://jalopnik.com/a-manual-transmission-might-keep-you-from-getting-speed-1793496001>
 
 我应该诚实地指出，我们的主编帕特里克·乔治不认为这是一件事。拉斐尔和大卫，我的合著者，也是大便盒的拥有者。所以现在我很好奇这种做法有多普遍。手动挡司机:你曾经换档以防止超速吗？
 

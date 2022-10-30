@@ -1,6 +1,6 @@
 # 为什么你不应该让你的车少油
 
-> 原文:[https://jalopnik . com/why-you-should-not-run-your-car-low-on-gas-1796273605](https://jalopnik.com/why-you-shouldnt-run-your-car-low-on-gas-1796273605)
+> 原文：<https://jalopnik.com/why-you-shouldnt-run-your-car-low-on-gas-1796273605>
 
 有时候，试着尽可能地从油箱里挤出更多的里程是很诱人的。但是你不应该这么做。这段视频展示了燃油泵的内部结构，将帮助你理解为什么。
 

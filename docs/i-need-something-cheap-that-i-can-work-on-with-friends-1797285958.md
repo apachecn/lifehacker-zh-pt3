@@ -1,6 +1,6 @@
 # 我需要一些便宜的东西，我可以和朋友一起工作！应该买什么车？
 
-> 原文:[https://jalopnik . com/I-need-something-cheap-that-I-can-work-on-friends-1797285958](https://jalopnik.com/i-need-something-cheap-that-i-can-work-on-with-friends-1797285958)
+> 原文：<https://jalopnik.com/i-need-something-cheap-that-i-can-work-on-with-friends-1797285958>
 
 Brandon 喜欢在项目车的引擎盖下与朋友一起度过他的业余时间。这个计划的问题是布兰登没有太多的经验，但他和他的朋友们在技巧上的不足将在决心上得到弥补。他应该买什么车？
 

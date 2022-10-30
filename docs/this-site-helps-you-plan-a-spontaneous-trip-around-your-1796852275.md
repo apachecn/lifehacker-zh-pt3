@@ -1,6 +1,6 @@
 # 这个网站帮助你根据你的预算计划一次自发的旅行
 
-> 原文:[https://life hacker . com/this-site-help-you-plan-a-inductive-around-your-1796852275](https://lifehacker.com/this-site-helps-you-plan-a-spontaneous-trip-around-your-1796852275)
+> 原文：<https://lifehacker.com/this-site-helps-you-plan-a-spontaneous-trip-around-your-1796852275>
 
 如果你想利用一些假期，但你不确定你想去哪里，旅行预订网站[Wander](https://www.wanderapp.me/) 让你根据你的整体旅行预算进行搜索。
 

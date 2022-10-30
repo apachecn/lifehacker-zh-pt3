@@ -1,6 +1,6 @@
 # 为什么面条是统治所有人的冬季面条
 
-> 原文:[https://the take out . com/why-spaetzle-is-the-winter-noodle-to-rule-them-all-1821784144](https://thetakeout.com/why-spaetzle-is-the-winter-noodle-to-rule-them-all-1821784144)
+> 原文：<https://thetakeout.com/why-spaetzle-is-the-winter-noodle-to-rule-them-all-1821784144>
 
 面条是我最想吃的食物，尤其是那种又辣又粘的蒜味炒面。但是一旦温度降到冰点以下，就全靠面条了，宝贝。将这些德国鸡蛋面换成意大利面是如此简单的冬季厨房小窍门，以至于我觉得有必要传播他们的福音。
 

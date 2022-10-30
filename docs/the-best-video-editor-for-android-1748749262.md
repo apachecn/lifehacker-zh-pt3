@@ -1,6 +1,6 @@
 # Android 的最佳视频编辑器
 
-> 原文:[https://life hacker . com/the-best-video-editor-for-Android-1748749262](https://lifehacker.com/the-best-video-editor-for-android-1748749262)
+> 原文：<https://lifehacker.com/the-best-video-editor-for-android-1748749262>
 
 哦，*终于*我们可以写这个帖子了。视频编辑已经吸了安卓很久了。太久了。但现在，Adobe Premiere Clip 为 Android 带来了简单易用的视频编辑功能。您可以修剪剪辑，将多个剪辑混合在一起，并添加您自己的声音轨道。虽然不完美，但这是个好的开始。
 

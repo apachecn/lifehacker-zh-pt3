@@ -1,6 +1,6 @@
 # 将您的 CPR 训练与此应用程序结合使用
 
-> 原文:[https://life hacker . com/put-your-CPR-training-to-use-with this-app-1823888138](https://lifehacker.com/put-your-cpr-training-to-use-with-this-app-1823888138)
+> 原文：<https://lifehacker.com/put-your-cpr-training-to-use-with-this-app-1823888138>
 
 iOS/Android:大多数学习 CPR 的人将永远不需要使用它。但是如果有人在你出去吃午饭的时候晕倒在隔壁的餐馆里，难道你不想有这个机会吗？ [脉冲点响应 app](http://www.pulsepoint.org/download/) 会让你知道需要你的技能。
 

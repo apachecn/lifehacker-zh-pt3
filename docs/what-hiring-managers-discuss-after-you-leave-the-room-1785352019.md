@@ -1,6 +1,6 @@
 # 你离开房间后，招聘经理会讨论什么
 
-> 原文:[https://life hacker . com/what-recruiting-managers-discuse-after-you-leave-the-room-1785352019](https://lifehacker.com/what-hiring-managers-discuss-after-you-leave-the-room-1785352019)
+> 原文：<https://lifehacker.com/what-hiring-managers-discuss-after-you-leave-the-room-1785352019>
 
 如果你像我认识的许多人一样，你会担心在你退出面试的那一刻，招聘经理会怎么评价你。因此，你可能会认为他们对你的答案吹毛求疵，只雇佣没有缺点的人。
 

@@ -1,6 +1,6 @@
 # 当你成年后成为一名运动员时应该知道什么
 
-> 原文:[https://life hacker . com/what-to-know-when-when-you-make-a-a-athlete-a-matter-1828949861](https://lifehacker.com/what-to-know-when-you-become-an-athlete-as-an-adult-1828949861)
+> 原文：<https://lifehacker.com/what-to-know-when-you-become-an-athlete-as-an-adult-1828949861>
 
 我是一个久坐不动的书呆子， [厌恶体育课](https://lifehacker.com/how-to-help-kids-who-hate-gym-class-1828849849) ，在我尝试的几项运动中惨败。但是在我二十多岁的时候，我发现了一些我不讨厌的运动形式，在我三十多岁的时候，我开始用“运动员”这个词来形容自己。
 

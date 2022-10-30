@@ -1,6 +1,6 @@
 # 三种成分的快乐时光:手帕朱岳鹏
 
-> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-hanky-panky-1818640347](https://lifehacker.com/3-ingredient-happy-hour-the-hanky-panky-1818640347)
+> 原文：<https://lifehacker.com/3-ingredient-happy-hour-the-hanky-panky-1818640347>
 
 朋友们，周五快乐，欢迎回到 [*三种配料的欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周我们将喝我最喜欢的鸡尾酒，它来自伦敦的美国酒吧，汉克朱岳鹏。
 

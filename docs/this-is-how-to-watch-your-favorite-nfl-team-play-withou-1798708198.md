@@ -1,6 +1,6 @@
 # 这就是如何在没有有线电视的情况下观看你最喜欢的 NFL 球队比赛的方法
 
-> 原文:[https://life hacker . com/this-is-how-to-watch-your favorite-NFL-team-play-without-1798708198](https://lifehacker.com/this-is-how-to-watch-your-favorite-nfl-team-play-withou-1798708198)
+> 原文：<https://lifehacker.com/this-is-how-to-watch-your-favorite-nfl-team-play-withou-1798708198>
 
 季前赛已经开始，2017 年 NFL 赛季将于 9 月 7 日正式开始，届时新英格兰爱国者队将对阵堪萨斯城酋长队 。没有有线电视的 gridiron 比赛粉丝应该仍然能够观看每场比赛，而不必将电视连接到有线电视盒，只要他们做一些研究，并密切跟踪他们球队的日程安排。
 

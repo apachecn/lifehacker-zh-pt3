@@ -1,6 +1,6 @@
 # 一个旅行摄影师的风景如画的包
 
-> 原文:[https://life hacker . com/a-旅游-摄影师-风景如画-包包-1798632249](https://lifehacker.com/a-traveling-photographers-picturesque-bag-1798632249)
+> 原文：<https://lifehacker.com/a-traveling-photographers-picturesque-bag-1798632249>
 
 旅行时，最好的相机往往是你随身携带的相机，但也有一些情况下，你会想要比 iPhone 更好的东西来拍摄高质量的照片。自学成才的摄影师和 Flickr 用户[AJS·皮门特尔](https://www.flickr.com/photos/130455326@N05/33403046271/in/photolist-STHkUT-RZQGEu-R5Qyxt-NJJW2y-P3g929-MAcBgi-MP1UvK-L1Y8zt-JBZCKe-HCD7dz-H82Cvy-Gh4dwh-DwhMXH-D6TboC-CU7zvm-CV2NeF-CyrpHT-AP7hZW-zfw8Lf-zhq33R-yYY5rj-SuTcDq-RaNUTj-NvRXhq-NrDqMq-NyDmam-Na2QaJ-LsoVfM-Gf3k3h-FWhtLq-EDkVt2-Fq2wsX-EwpE3A-D5NzwG-DSLT1u-CN7LSJ-DmLXxw-CUe3xi-BUbu3q-BRWxKz-C8KJBr-BGn1g9-C7bHK4-B7sN3Y-C1mqDr-BQNXeZ-AYxndp-AE5yty-AWzTQS-zZpE7y) 带着他的旅行摄影团队，所以他总是有设备捕捉完美的镜头，无论是风景如画的风景还是肮脏的街头摄影。
 

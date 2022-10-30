@@ -1,6 +1,6 @@
 # 2018 年 8 月 27 日这一周，网飞发生了什么
 
-> 原文:[https://life hacker . com/whats-coming-and-going-from-the-week of the-August-1828554643](https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1828554643)
+> 原文：<https://lifehacker.com/whats-coming-and-going-from-netflix-the-week-of-august-1828554643>
 
 如果你还没有看过《欧扎克》(Ozark)第一季，这部南部哥特式惊悚片由杰森·贝特曼主演，他饰演一个坏坏的但心地善良的父亲，他举家迁往密苏里州，为一个墨西哥卡特尔洗钱，那么在第二季于 8 月 31 日周五落下之前，你有几天时间可以观看这部电影。挺好的！整场秀看起来就像是通过 insta gram“瓦尔登湖”滤镜拍摄的！有许多生意会被描述为“肮脏的环境”，有许多角色会被描述为“丰富多彩”！它的悬念足以分散你的注意力，让你忘记这是劳动节的周末，你最喜欢的季节即将结束。
 

@@ -1,6 +1,6 @@
 # 告诉我们你的明尼阿波利斯-圣保罗旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-Minneapolis-ST-Paul-travel-tips-1828580801](https://lifehacker.com/tell-us-your-minneapolis-st-paul-travel-tips-1828580801)
+> 原文：<https://lifehacker.com/tell-us-your-minneapolis-st-paul-travel-tips-1828580801>
 
 本周你可以买一送一，因为我们正在为明尼苏达州的双城明尼阿波利斯和圣保罗寻找旅游建议。我从来没有去过，但是我注意到当地一家杂志的网站 上的 11 篇文章中有 9 篇都是关于本周你可以在州博览会上吃到的可笑的东西，所以我想我已经恋爱了。
 

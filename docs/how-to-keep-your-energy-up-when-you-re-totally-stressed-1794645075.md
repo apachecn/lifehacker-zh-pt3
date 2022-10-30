@@ -1,6 +1,6 @@
 # 当你完全紧张时，如何保持精力充沛
 
-> 原文:[https://life hacker . com/how-to-keep your-energy-when-re-total-stressed-1794645075](https://lifehacker.com/how-to-keep-your-energy-up-when-you-re-totally-stressed-1794645075)
+> 原文：<https://lifehacker.com/how-to-keep-your-energy-up-when-you-re-totally-stressed-1794645075>
 
 我不知道你怎么想，但是我的世界自从…比方说，去年 11 月以来变得更有压力了。即使没有持续的新闻更新——以及我阅读它们的时间，以及试图将它们游戏化的各种 Twitter 帖子——我的生活中也有很多东西需要管理和平衡:我兼职做编辑，我的第一部小说将于今年 5 月出版，我正在为一些自由写作客户完成任务，我教写作课，我还是一名志愿导师。(这还只是工作上的事情。)
 

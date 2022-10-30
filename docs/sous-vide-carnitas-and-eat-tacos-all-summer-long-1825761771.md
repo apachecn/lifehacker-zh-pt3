@@ -1,6 +1,6 @@
 # 整个夏天都在吃香肠和玉米卷
 
-> 原文:[https://life hacker . com/sous-vide-carnitas-and-eat-tacos-all-summer-long-1825761771](https://lifehacker.com/sous-vide-carnitas-and-eat-tacos-all-summer-long-1825761771)
+> 原文：<https://lifehacker.com/sous-vide-carnitas-and-eat-tacos-all-summer-long-1825761771>
 
 你好，我的宝贝们，欢迎回到 [*它会被分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，我平时用我的沉浸循环器做任何你想让我做的事情的专栏。本周我们将把我们的集体意识转向我最喜欢的墨西哥玉米卷配菜之一:多汁、嫩滑、酥脆的肉卷。
 

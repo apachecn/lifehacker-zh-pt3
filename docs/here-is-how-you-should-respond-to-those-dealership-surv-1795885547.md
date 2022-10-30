@@ -1,6 +1,6 @@
 # 以下是您应该如何回答这些经销商调查
 
-> 原文:[https://jalopnik . com/here-is-how-you-to-response-that-dealery-surv-1795885547](https://jalopnik.com/here-is-how-you-should-respond-to-those-dealership-surv-1795885547)
+> 原文：<https://jalopnik.com/here-is-how-you-should-respond-to-those-dealership-surv-1795885547>
 
 如果你曾经买过车或在汽车经销商处做过服务，你知道在交易后不久，你会接到电话或电子邮件，要求你 [就你的经历进行调查](https://jalopnik.com/how-to-use-the-car-dealership-survey-as-leverage-to-get-1595835486) 。但是如果你给出了一个糟糕的调查，它能在以后反咬你一口吗？
 

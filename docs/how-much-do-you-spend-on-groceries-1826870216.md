@@ -1,6 +1,6 @@
 # 你在食品杂货上花费多少？
 
-> 原文:[https://life hacker . com/how-do-mud-much-you-buddy-1826870216](https://lifehacker.com/how-much-do-you-spend-on-groceries-1826870216)
+> 原文：<https://lifehacker.com/how-much-do-you-spend-on-groceries-1826870216>
 
 你在食品杂货上花费多少？根据美国农业部的数据，美国人每月在食品杂货上的支出高达家庭收入的 33%。 [GoBankingRates](https://www.gobankingrates.com/saving-money/food/average-american-spends-much-groceries-see-stack-up/) 发现女性平均每月在食品杂货上花费 323 美元，而男性平均花费 290 美元。
 

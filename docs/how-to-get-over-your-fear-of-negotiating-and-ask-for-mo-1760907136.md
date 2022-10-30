@@ -1,6 +1,6 @@
 # 如何克服对谈判的恐惧并提出更多要求
 
-> 原文:[https://life hacker . com/how-to-get-over-your-fear-of-negot-of-negot-the-quest-for-mo-1760907136](https://lifehacker.com/how-to-get-over-your-fear-of-negotiating-and-ask-for-mo-1760907136)
+> 原文：<https://lifehacker.com/how-to-get-over-your-fear-of-negotiating-and-ask-for-mo-1760907136>
 
 我的叔叔丹尼曾经帮我买了一辆新的卡罗拉，而我则在一旁敬畏地看着。他是一个无情的谈判野兽。他威胁道。他表现得很生气。他静静地坐着，盯着售货员。最终，我比预期少付了近 5000 美元。谈判是强大的。作为一个胆小的人，这对我来说并不容易，对你来说也不容易。这里有一些最好的方法，即使你害怕这样做。
 

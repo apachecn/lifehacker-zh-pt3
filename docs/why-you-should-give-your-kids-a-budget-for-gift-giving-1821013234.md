@@ -1,6 +1,6 @@
 # 为什么你应该给你的孩子一个送礼的预算
 
-> 原文:[https://life hacker . com/why-you-should-gift-a-budget-1821013234](https://lifehacker.com/why-you-should-give-your-kids-a-budget-for-gift-giving-1821013234)
+> 原文：<https://lifehacker.com/why-you-should-give-your-kids-a-budget-for-gift-giving-1821013234>
 
 假期在我家引起了一些焦虑:我和我丈夫在消费方面都有些散漫，前几个 1 月的信用卡账单大得令人不安，我想知道我们是否陷入了某种蛋酒诱发的狂热。然而，这个假期是不同的:去年一月 [我发誓要让我的财务生活井井有条，并教我的孩子明智的理财](https://lifehacker.com/how-to-teach-your-kids-about-money-when-you-are-a-finan-1794533446) ，而且进展得相当顺利。今年圣诞节，我们第一次为礼物和庆祝活动做了合理的预算。
 

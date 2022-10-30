@@ -1,6 +1,6 @@
 # 财富不会解决你所有的问题
 
-> 原文:[https://life hacker . com/wealth-wont-solve-all-your-problems-1826798717](https://lifehacker.com/wealth-wont-solve-all-your-problems-1826798717)
+> 原文：<https://lifehacker.com/wealth-wont-solve-all-your-problems-1826798717>
 
 欢迎回到 [**周中冥想**](https://lifehacker.com/c/mid-week-meditations) ，Lifehacker 的每周一次的斯多葛派智慧之池探索，以及使用它的水域来反思和改善你的生活的指南。
 

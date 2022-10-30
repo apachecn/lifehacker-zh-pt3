@@ -1,6 +1,6 @@
 # 谷歌封杀的十大服务
 
-> 原文:[https://life hacker . com/top-10-services-Google-killed-off-1792897076](https://lifehacker.com/top-10-services-google-killed-off-1792897076)
+> 原文：<https://lifehacker.com/top-10-services-google-killed-off-1792897076>
 
 谷歌有一段很长的历史来介绍，然后忘记，最后正式扼杀它的产品。最近，这包括谷歌空间，一项我们大多数人一开始都不知道存在的服务。让我们来看看谷歌这些年来取消的一些我们最喜欢的服务。
 

@@ -1,6 +1,6 @@
 # 不要邀请你的伴侣参加朋友聚会
 
-> 原文:[https://life hacker . com/dont-invite-your-partner-to-a-friend-event-1828092990](https://lifehacker.com/dont-invite-your-partner-to-a-friend-event-1828092990)
+> 原文：<https://lifehacker.com/dont-invite-your-partner-to-a-friend-event-1828092990>
 
 当你坠入爱河时，感觉你永远都不想离开你特别的人。和你在一起的每个人都很开心。
 

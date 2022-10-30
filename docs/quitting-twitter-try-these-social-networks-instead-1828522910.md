@@ -1,6 +1,6 @@
 # 退出 Twitter？试试这些社交网络吧
 
-> 原文:[https://life hacker . com/quiting-Twitter-try-these-social-networks-instead-1828522910](https://lifehacker.com/quitting-twitter-try-these-social-networks-instead-1828522910)
+> 原文：<https://lifehacker.com/quitting-twitter-try-these-social-networks-instead-1828522910>
 
 现在推特上最热门的话题之一似乎是要不要离开推特。滥用在“微博”平台上猖獗，每天我都看到有人抱怨其版主没有控制住骚扰和不良行为。作为一个多年来主要写视频游戏的人，我看到我的许多同龄人被误导的游戏玩家的暴民超越，几乎没有保护自己的手段。我也看到(或者至少读到)保守的用户相信 [他们的帖子被平台](https://www.washingtonpost.com/news/politics/wp/2018/07/26/trump-shadow-ban-tweet-a-f-a-q/?utm_term=.227629064d9e) 压制。
 

@@ -1,6 +1,6 @@
 # 如何帮助一个在过渡时期有困难的孩子
 
-> 原文:[https://life hacker . com/how-to-help-a kid-that-time-with-transitions-1822875610](https://lifehacker.com/how-to-help-a-kid-who-has-a-tough-time-with-transitions-1822875610)
+> 原文：<https://lifehacker.com/how-to-help-a-kid-who-has-a-tough-time-with-transitions-1822875610>
 
 即使对成年人来说，从一项活动转向另一项活动也是困难的。当从一些令人愉快的事情(如玩耍或看电视)开始过渡时，对孩子来说尤其具有挑战性。)去做一些不太理想的事情(比如离开一个好玩的地方或者做家务)。当我的儿子蹒跚学步时，他很难在*被送到幼儿园，在*被从幼儿园接回来。他会哭或身体抗拒离开，拒绝进入他的汽车座位。
 

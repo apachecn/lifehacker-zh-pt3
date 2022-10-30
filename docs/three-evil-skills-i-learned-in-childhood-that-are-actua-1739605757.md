@@ -1,6 +1,6 @@
 # 我在童年学到的三个邪恶技能在成年后会派上用场
 
-> 原文:[https://life hacker . com/three-evil-skills-I-learned-in-children-that-are-actual-1739605757](https://lifehacker.com/three-evil-skills-i-learned-in-childhood-that-are-actua-1739605757)
+> 原文：<https://lifehacker.com/three-evil-skills-i-learned-in-childhood-that-are-actua-1739605757>
 
 我学到的第一个邪恶技能是诡计。试图欺骗父母是我最早的记忆之一。我从婴儿床里逃出来，卸下了一根松动的横杆，爬出来后，又把横杆放回去——好像要欺骗我的父母，说我还在里面。
 

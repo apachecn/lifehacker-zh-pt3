@@ -1,6 +1,6 @@
 # Android 的最佳配方管理器
 
-> 原文:[https://life hacker . com/the-best-recipe-manager-for-Android-1757450319](https://lifehacker.com/the-best-recipe-manager-for-android-1757450319)
+> 原文：<https://lifehacker.com/the-best-recipe-manager-for-android-1757450319>
 
 如果你把食谱用电子邮件发给自己，打印出来，或者仍然保留索引卡，有一个更好的方法。拿起你的安卓手机，有一大堆很棒的食谱应用，但是我们有一个我们认为价格合适的功能组合。辣椒粉是你的应用程序。
 

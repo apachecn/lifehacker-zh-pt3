@@ -1,6 +1,6 @@
 # 应该升级到苹果的 iPhone XS 还是 iPhone XR？
 
-> 原文:[https://life hacker . com/should-you-upgrade-to-apple-iphone-xs-or-iphone-xr-1828996251](https://lifehacker.com/should-you-upgrade-to-apples-iphone-xs-or-iphone-xr-1828996251)
+> 原文：<https://lifehacker.com/should-you-upgrade-to-apples-iphone-xs-or-iphone-xr-1828996251>
 
 苹果的大部分观众已经点燃了他们的银行账户，期待着他们本周可以开始预订的所有整洁的新设备。事情就是这样，这也是为什么苹果能够负担得起在硅谷中心建造大型、200 美元的建筑。
 

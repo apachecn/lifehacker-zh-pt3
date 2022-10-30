@@ -1,6 +1,6 @@
 # 敬 ouzo，希腊的甘草味开胃酒(就是别说 opa！)
 
-> 原文:[https://the take out . com/a-toast-to-ouzo-Greeks-甘草味-开胃酒-jus-1820836791](https://thetakeout.com/a-toast-to-ouzo-greeks-licorice-flavored-aperitif-jus-1820836791)
+> 原文：<https://thetakeout.com/a-toast-to-ouzo-greeks-licorice-flavored-aperitif-jus-1820836791>
 
 *欢迎来到* [***饮酒之门***](https://thetakeout.com/c/gateways-to-drinkery) *，这里的*外卖*提供了我们最喜欢的酒的入门课程，以及一些关于从哪里开始饮用它们的建议。*
 

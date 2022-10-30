@@ -1,6 +1,6 @@
 # 招募你的朋友停止网上骚扰
 
-> 原文:[https://life hacker . com/recruit-your-friends-to-stop-online-骚扰-1825041913](https://lifehacker.com/recruit-your-friends-to-stop-online-harassment-1825041913)
+> 原文：<https://lifehacker.com/recruit-your-friends-to-stop-online-harassment-1825041913>
 
 麻省理工学院计算机科学和人工智能实验室的一个研究团队最近发布了一种新工具，提供了一种对抗在线骚扰的新方法:让你信任的朋友帮助你阻止不想要的电子邮件进入你的帐户。
 

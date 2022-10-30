@@ -1,6 +1,6 @@
 # 在啤酒吧喝酒的 5 条规则
 
-> 原文:[https://the take out . com/5-rules-for-better-drinking-a-a-beer-bar-1829304400](https://thetakeout.com/5-rules-for-better-drinking-at-a-beer-bar-1829304400)
+> 原文：<https://thetakeout.com/5-rules-for-better-drinking-at-a-beer-bar-1829304400>
 
 我家里有一冰箱的啤酒，但我仍然会在周五晚上去镇上我最喜欢的酒吧。为什么？酒吧提供的不仅仅是你杯子里的东西:最好的酒吧是避难所，在那里我们可以找到一张友好的脸，一只倾听的耳朵，有时还会得到同情的拍拍背。我不会对你大吹大擂，但对于一个熟悉的酒吧来说，还是有些诗意的。
 

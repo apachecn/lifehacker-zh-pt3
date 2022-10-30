@@ -1,6 +1,6 @@
 # 如何正确地给你的家除冰
 
-> 原文:[https://life hacker . com/how-to-right-de-ice-your-home-1754488734](https://lifehacker.com/how-to-properly-de-ice-your-home-1754488734)
+> 原文：<https://lifehacker.com/how-to-properly-de-ice-your-home-1754488734>
 
 冬季风暴 [带来的不仅仅是雪](https://lifehacker.com/how-to-obsessively-track-this-weekends-snowstorm-1754153944) :它们还会覆盖你的家、车道和人行道，这些危险的冰需要你安全地清除。然而，由于各种不同的融冰喷雾、液体和粉末，事情会变得有点混乱。以下是今年冬天保持家里不结冰的最佳产品和方法。
 

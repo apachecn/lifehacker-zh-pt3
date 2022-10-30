@@ -1,6 +1,6 @@
 # 开始投资前你应该做的 10 件事
 
-> 原文:[https://life hacker . com/10-在你开始投资之前你应该做的事情-1773924039](https://lifehacker.com/10-things-you-should-do-before-you-start-investing-1773924039)
+> 原文：<https://lifehacker.com/10-things-you-should-do-before-you-start-investing-1773924039>
 
 人们经常对通过投资获得丰厚回报的可能性感到兴奋，所以一旦他们手中有了一点现金，他们就准备投资。他们想让他们的钱为他们工作，这完全可以理解。但并不是每个人都准备好了。
 

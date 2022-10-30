@@ -1,6 +1,6 @@
 # 匹兹堡人对环境有哪些了解是特朗普仍需学习的
 
-> 原文:[https://life hacker . com/what-pittsburghers-know-on-the-environment-that-trum-1795741450](https://lifehacker.com/what-pittsburghers-know-about-the-environment-that-trum-1795741450)
+> 原文：<https://lifehacker.com/what-pittsburghers-know-about-the-environment-that-trum-1795741450>
 
 在宣布他打算让美国退出巴黎气候协议 的演讲中，川普总统说他“被选举来代表匹兹堡的公民，而不是巴黎。”然而，当我坐在匹兹堡郊外时，我感觉他并没有为我和我的邻居着想。
 

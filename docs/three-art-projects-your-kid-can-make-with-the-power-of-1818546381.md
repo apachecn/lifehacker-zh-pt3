@@ -1,6 +1,6 @@
 # 3 个利用太阳能的儿童艺术项目
 
-> 原文:[https://life hacker . com/three-art-projects-your-kid-can-make-with-the-power of-1818546381](https://lifehacker.com/three-art-projects-your-kid-can-make-with-the-power-of-1818546381)
+> 原文：<https://lifehacker.com/three-art-projects-your-kid-can-make-with-the-power-of-1818546381>
 
 艺术项目是与孩子建立联系的一种简单方式，并给他们一个展示创造力的机会。更酷的是你的孩子可以利用太阳能做的艺术项目。另外，室外的艺术项目意味着你要清理的垃圾更少了。
 

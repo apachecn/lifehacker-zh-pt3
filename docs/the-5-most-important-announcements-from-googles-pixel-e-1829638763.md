@@ -1,6 +1,6 @@
 # 谷歌 Pixel 事件中最重要的 5 个公告
 
-> 原文:[https://life hacker . com/the-5-most-important-announcements-from-Google-pixel-e-1829638763](https://lifehacker.com/the-5-most-important-announcements-from-googles-pixel-e-1829638763)
+> 原文：<https://lifehacker.com/the-5-most-important-announcements-from-googles-pixel-e-1829638763>
 
 谷歌的活动通常不会像苹果那样声势浩大，但公告对爱好者和任何喜欢闪亮新事物的人来说都一样诱人。今年，在纽约市举行的一次活动中，该公司展示了其新的 Pixel 手机，这是 Pixel 平板电脑(现在装有 Chrome OS)的翻版，一款智能显示屏，以及一系列其他设备，它甚至没有提到过(尽管我们会告诉你)。
 

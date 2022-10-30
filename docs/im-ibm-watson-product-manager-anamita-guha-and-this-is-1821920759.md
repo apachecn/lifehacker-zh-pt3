@@ -1,6 +1,6 @@
 # 我是 IBM Watson 产品经理 Anamita Guha，这是我的工作方式
 
-> 原文:[https://life hacker . com/im-IBM-Watson-product-manager-anamita-guha-and-this-is-1821920759](https://lifehacker.com/im-ibm-watson-product-manager-anamita-guha-and-this-is-1821920759)
+> 原文：<https://lifehacker.com/im-ibm-watson-product-manager-anamita-guha-and-this-is-1821920759>
 
 作为 IBM 的产品经理，Anamita Guha 从事机器人、AR/VR 技术和人工智能方面的工作，包括 Watson，这是最著名的人工智能，没有打包在手机上。她还领导 TEDxSanFrancisco 的分析，并担任 UCSF 临床研究实验室的技术顾问。我们和她聊了聊她的工作习惯，既有深化关系这样的一般，也有彩色编码笔记本这样的具体。
 

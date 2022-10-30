@@ -1,6 +1,6 @@
 # 根据共和党人的说法，吉米·基梅尔的孩子应该做的事情应该得到医疗保健
 
-> 原文:[https://life hacker . com/things-Jimmy-kimmel-s-baby-should-had-do-to-whated-1794846908](https://lifehacker.com/things-jimmy-kimmel-s-baby-should-have-done-to-deserve-1794846908)
+> 原文：<https://lifehacker.com/things-jimmy-kimmel-s-baby-should-have-done-to-deserve-1794846908>
 
 昨晚，深夜节目主持人吉米·基梅尔发表了一段感人肺腑的独白，讲述了他刚出生的儿子出生时有心脏缺陷，仅三天大就接受了救命手术。今天，共和党人正试图获得通过医疗保健法 的投票，这将使像 Kimmel 的孩子这样的人几乎不可能得到他们负担得起的医疗保健。
 

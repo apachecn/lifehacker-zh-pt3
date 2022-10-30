@@ -1,6 +1,6 @@
 # 如何阻止你的假追随者
 
-> 原文:[https://life hacker . com/how-to-block-your fake-followers-1822739611](https://lifehacker.com/how-to-block-your-fake-followers-1822739611)
+> 原文：<https://lifehacker.com/how-to-block-your-fake-followers-1822739611>
 
 数百万 Twitter 用户实际上是欺诈性的机器人，出售给真正的 Twitter 用户，包括许多名人和媒体人物，以夸大他们的统计数据，使他们看起来更有影响力。上周，《纽约时报》调查了最有影响力的机器人卖家之一 ，并打电话给他们的名人客户。在这次事件中，芝加哥太阳时报 [将电影评论家理查德·罗珀](https://chicago.suntimes.com/news/sun-times-statement-roepers-work-to-resume-after-probe-of-twitter-account/) 停职几天。
 

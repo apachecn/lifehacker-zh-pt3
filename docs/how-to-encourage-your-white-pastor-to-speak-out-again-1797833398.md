@@ -1,6 +1,6 @@
 # 如何鼓励你的(白人)牧师公开反对白人至上
 
-> 原文:[https://life hacker . com/how-to-鼓励你的白人牧师再次发言-1797833398](https://lifehacker.com/how-to-encourage-your-white-pastor-to-speak-out-again-1797833398)
+> 原文：<https://lifehacker.com/how-to-encourage-your-white-pastor-to-speak-out-again-1797833398>
 
 夏洛茨维尔的事件发生在周五晚上和周六，到周六晚上，很多美国神父和牧师都在争先恐后地重写他们为第二天早上准备的布道和布道。我偶然看到了这条推特，作者是联合基督教会的司法和见证部执行部长 Traci Blackmon
 

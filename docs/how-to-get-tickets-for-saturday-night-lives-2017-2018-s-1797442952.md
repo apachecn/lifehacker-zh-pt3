@@ -1,6 +1,6 @@
 # 如何获得周六夜现场 2017-2018 赛季的门票
 
-> 原文:[https://life hacker . com/how-to-get-tickets-the-Saturday-night-lives-2017-2018-s-1797442952](https://lifehacker.com/how-to-get-tickets-for-saturday-night-lives-2017-2018-s-1797442952)
+> 原文：<https://lifehacker.com/how-to-get-tickets-for-saturday-night-lives-2017-2018-s-1797442952>
 
 《周六夜现场》的最新一季非常精彩，因其话题性、与特朗普相关的内容而获得了大量新的关注，而《T2》[则是该剧 20 多年来最高的收视率。](http://www.avclub.com/article/saturday-night-live-enjoying-its-highest-ratings-o-249926) 为了获得 2017-2018 赛季的前排座位，现场门票的抽奖活动将于 8 月 1 日至 31 日开放。
 

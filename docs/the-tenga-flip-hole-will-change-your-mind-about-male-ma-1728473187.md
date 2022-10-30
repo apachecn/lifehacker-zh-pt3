@@ -1,6 +1,6 @@
 # Tenga 翻转孔会改变你对男性自慰者的看法
 
-> 原文:[https://life hacker . com/the-tenga-flip-hole-will-change-you-mind-on-male-ma-1728473187](https://lifehacker.com/the-tenga-flip-hole-will-change-your-mind-about-male-ma-1728473187)
+> 原文：<https://lifehacker.com/the-tenga-flip-hole-will-change-your-mind-about-male-ma-1728473187>
 
 男性自慰者在尊重方面处于性玩具图腾柱的底部。许多男人认为它们是不必要的(“我已经得到了我的手，那是免费的”)，许多女人认为它们是“奇怪的”。我完全相信，任何有机会玩到 [Tenga 翻转孔](http://www.tenga-global.com/products/hole/index.php) 的人都会立刻改变主意。
 

@@ -1,6 +1,6 @@
 # 作为父母如何偷偷睡午觉
 
-> 原文:[https://life hacker . com/how-to-skill-in-naps-as-a-parent-1825025372](https://lifehacker.com/how-to-sneak-in-naps-as-a-parent-1825025372)
+> 原文：<https://lifehacker.com/how-to-sneak-in-naps-as-a-parent-1825025372>
 
 你需要小睡一会儿——但你是家长！我们抓住你了。虽然一旦你有了孩子，午睡可能会更有挑战性(好吧，这是一种保守的说法)，但这不是不可能的。你只需要偷偷摸摸就行了。这里有一些偷偷摸摸的方法可以让你睡上一个你非常渴望的午觉。
 

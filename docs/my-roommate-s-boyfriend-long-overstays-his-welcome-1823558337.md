@@ -1,6 +1,6 @@
 # 当你室友的男朋友不受欢迎的时候
 
-> 原文:[https://life hacker . com/my-室友-s-男朋友-长期逗留-不受欢迎-1823558337](https://lifehacker.com/my-roommate-s-boyfriend-long-overstays-his-welcome-1823558337)
+> 原文：<https://lifehacker.com/my-roommate-s-boyfriend-long-overstays-his-welcome-1823558337>
 
 有些人遇到问题，需要合格的专业人士给予微妙的建议。其他人只需要在网上随便找一个人，用他们直率的诚实狠狠揍他们一顿。我是后者。欢迎回到 [彪悍的爱情](http://lifehacker.com/tag/tough-love#_ga=2.269169905.1295021153.1516057126-819016074.1513967708) 。
 

@@ -1,6 +1,6 @@
 # 如何成为一个好的讲故事者
 
-> 原文:[https://life hacker . com/how-to-be-a-good-story teller-1825950426](https://lifehacker.com/how-to-become-a-good-storyteller-1825950426)
+> 原文：<https://lifehacker.com/how-to-become-a-good-storyteller-1825950426>
 
 我们中没有多少人渴望成为飞蛾扑火级别的故事讲述者，但以编好故事而闻名有其社会用途。
 

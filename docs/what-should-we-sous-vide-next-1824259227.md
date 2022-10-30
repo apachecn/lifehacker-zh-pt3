@@ -1,6 +1,6 @@
 # 接下来我们应该做什么？
 
-> 原文:[https://life hacker . com/what-should-we-sous-vide-next-1824259227](https://lifehacker.com/what-should-we-sous-vide-next-1824259227)
+> 原文：<https://lifehacker.com/what-should-we-sous-vide-next-1824259227>
 
 各位网友大家好，欢迎来到全新的 [*选题会，会吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，列在那里我用我的沉浸循环器做任何你想让我做的事。上周的 [prime fib](https://skillet.lifehacker.com/how-to-make-chuck-roast-taste-like-prime-rib-1824215335#_ga=2.34351459.330183707.1522676522-3846207152.1521480874) 取得了圆满成功，但现在我们必须——一如既往——继续我们的下一个项目。
 

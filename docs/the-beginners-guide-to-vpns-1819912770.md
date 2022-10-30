@@ -1,6 +1,6 @@
 # 虚拟专用网初学者指南
 
-> 原文:[https://life hacker . com/the-初学者指南-VPN-1819912770](https://lifehacker.com/the-beginners-guide-to-vpns-1819912770)
+> 原文：<https://lifehacker.com/the-beginners-guide-to-vpns-1819912770>
 
 *在我们的新系列* [获得 It](https://lifehacker.com/c/getting-it) *中，我们将为您提供您需要知道的所有信息，帮助您开始并擅长各种在线和离线技术。在这里，我们将为您提供理解和使用虚拟专用网所需的一切知识。*
 

@@ -1,6 +1,6 @@
 # 阻止 Twitter 把你的 png 变成 jpg
 
-> 原文:[https://life hacker . com/stop-Twitter-from-turning-your-pngs-into-jpgs-1822461989](https://lifehacker.com/stop-twitter-from-turning-your-pngs-into-jpgs-1822461989)
+> 原文：<https://lifehacker.com/stop-twitter-from-turning-your-pngs-into-jpgs-1822461989>
 
 当你在 Twitter 上嵌入任何静态图像时，它会试图将其压缩成 JPEG 格式以节省带宽。对于照片，这通常是好的；JPEG 是为照片设计的。但是数字艺术、信息图和截屏通常在 PNG 图像格式下看起来最好。如果你以 png 格式上传，Twitter 仍然会把它们压缩成 JPEGs 格式，结果可能会很糟糕。以下是解决这个问题的方法。
 

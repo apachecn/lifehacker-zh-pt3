@@ -1,6 +1,6 @@
 # 如何在 Windows 10 中停止 LinkedIn 应用通知
 
-> 原文:[https://life hacker . com/how-to-stop-LinkedIn-app-notifications-in-windows-10-1797024983](https://lifehacker.com/how-to-stop-linkedin-app-notifications-in-windows-10-1797024983)
+> 原文：<https://lifehacker.com/how-to-stop-linkedin-app-notifications-in-windows-10-1797024983>
 
 自从微软收购 LinkedIn 以来，我一直担心有一天屏幕上会弹出通知，把一个我从未见过的人加入我的职业网络。事实证明，这一天已经到来， [LinkedIn 宣布了其 Windows 10 应用程序，该应用程序提供了关于你不关心的任何职业废话的通知。幸运的是，你可以在 Windows 10 操作中心改变需要你关注的应用。](https://blog.linkedin.com/2017/july/17/work-smarter-and-stay-connected-with-new-linkedin-app-windows) 
 

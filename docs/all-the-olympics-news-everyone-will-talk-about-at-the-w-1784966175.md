@@ -1,6 +1,6 @@
 # 今天所有人都会在饮水机旁谈论的奥运新闻
 
-> 原文:[https://life hacker . com/all-the-Olympics-news-every one-will-talk-at-the-w-1784966175](https://lifehacker.com/all-the-olympics-news-everyone-will-talk-about-at-the-w-1784966175)
+> 原文：<https://lifehacker.com/all-the-olympics-news-everyone-will-talk-about-at-the-w-1784966175>
 
 里约奥运会是过去几周每个人都在谈论的大事件。如果你没有时间跟上每件事，我们已经收集了每个人都在这里谈论的大东西，所以你可以很快赶上。
 

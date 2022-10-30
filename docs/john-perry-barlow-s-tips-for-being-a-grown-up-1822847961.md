@@ -1,6 +1,6 @@
 # 约翰·佩里·巴洛给成年人的建议
 
-> 原文:[https://life hacker . com/John-Perry-barlow-s-tips-for-be-a-grown-1822847961](https://lifehacker.com/john-perry-barlow-s-tips-for-being-a-grown-up-1822847961)
+> 原文：<https://lifehacker.com/john-perry-barlow-s-tips-for-being-a-grown-up-1822847961>
 
 昨天，非营利隐私倡导组织电子前沿基金会 [宣布其创始人约翰·佩里·巴洛](https://www.eff.org/deeplinks/2018/02/john-perry-barlow-internet-pioneer-1947-2018) 去世。他 70 岁了。除了他在 EFF 的开创性工作和他作为作词人对感恩而死的贡献([](https://www.youtube.com/watch?v=PLQS1E7ZaqA)*)之外，还有人吗？)，他建立了一套准则，所有成年人都应遵循这套准则。*
 

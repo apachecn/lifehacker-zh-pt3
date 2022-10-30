@@ -1,6 +1,6 @@
 # 使用这个网站自学计算机科学
 
-> 原文:[https://life hacker . com/teach-yourself-computer-science-using-this-site-1824287559](https://lifehacker.com/teach-yourself-computer-science-using-this-site-1824287559)
+> 原文：<https://lifehacker.com/teach-yourself-computer-science-using-this-site-1824287559>
 
 Lifehacker 收集了很多对新手特别有帮助的 [【学习编码】资源](https://lifehacker.com/tag/learn-to-code#_ga=2.60802863.346445762.1522682506-1297080755.1497980211) 。但是，如果你已经做过一点编程或者只上过几门课，并且你想在理论和实践方面得到更全面的教育，那么就从 [自学计算机科学](https://teachyourselfcs.com/) 这个网站开始吧。
 

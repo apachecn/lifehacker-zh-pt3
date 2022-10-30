@@ -1,6 +1,6 @@
 # 你应该非常关注 2020 年人口普查的 8 个理由
 
-> 原文:[https://life hacker . com/8-你应该关心 2020 年人口普查的理由-1795264067](https://lifehacker.com/8-reasons-you-should-care-a-lot-about-the-2020-census-1795264067)
+> 原文：<https://lifehacker.com/8-reasons-you-should-care-a-lot-about-the-2020-census-1795264067>
 
 你关心 2020 年人口普查吗？你应该。我们*所有的*大概应该更关心 2020 年的人口普查，因为人口普查局局长约翰·汤姆逊，负责运行 2020 年人口普查的人， [上周卸任](http://time.com/4774288/census-bureau-john-thompson-resigned/) 。很难夸大这是多么重大的新闻，然而这个故事并没有得到太多的关注——可能是因为还有很多其他的重大新闻，而且，人类的大脑只能处理这么多。
 

@@ -1,6 +1,6 @@
 # 告诉我们你的火人节旅行建议
 
-> 原文:[https://life hacker . com/tell-us-your-burning-man-travel-tips-1827249190](https://lifehacker.com/tell-us-your-burning-man-travel-tips-1827249190)
+> 原文：<https://lifehacker.com/tell-us-your-burning-man-travel-tips-1827249190>
 
 好吧，怪胎们。对于 [高温周](https://lifehacker.com/c/heat-week) ， Hack Your City 要去黑岩城，沙漠一年一度的火人节的举办地，在这里书呆子和嬉皮士们尽情狂欢，搞艺术，吸毒，并免费赠送彼此一切。今年将演唱 e 第 33 届火人节。不管你是从一开始就去了，还是只去了一次，我都想听听你对如何进行一次愉快旅行的建议。
 

@@ -1,6 +1,6 @@
 # 做一份能让你饱腹几个小时的沙拉
 
-> 原文:[https://life hacker . com/make-a-salad-that-will-keep-you-full-hours-1819514097](https://lifehacker.com/make-a-salad-that-will-keep-you-full-for-hours-1819514097)
+> 原文：<https://lifehacker.com/make-a-salad-that-will-keep-you-full-for-hours-1819514097>
 
 “沙拉”这个词并不表示“健康”或缺乏卡路里，但这个词似乎暗示着一种匮乏。午餐带一份沙拉似乎注定了一个下午的饥饿感或紧急自动售货机运行，但仅此而已。我们将告诉你如何制作一份让你吃饱、满意、开心的沙拉。
 

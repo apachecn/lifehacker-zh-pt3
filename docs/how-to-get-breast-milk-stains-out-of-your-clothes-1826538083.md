@@ -1,6 +1,6 @@
 # 如何去除衣服上的母乳污渍
 
-> 原文:[https://life hacker . com/how-to-get-breast-milk-stains-out-of-your-things-1826538083](https://lifehacker.com/how-to-get-breast-milk-stains-out-of-your-clothes-1826538083)
+> 原文：<https://lifehacker.com/how-to-get-breast-milk-stains-out-of-your-clothes-1826538083>
 
 朱莉·可儿是清洁专家、建议专栏作家，也是《纽约时报》畅销书 [的作者...而其他的事情你不能问玛莎](https://www.amazon.com/Boyfriend-Barfed-Handbag-Things-Martha/dp/0142196932?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-breast-milk-stains-out-of-your-clothes-1826538083&asc_source=&rawdata=[r|https://lifehacker.com/tag/ask-a-clean-person[t|link[p|1820770274[a|0142196932[au|5749132966325710983[b|lifehacker&tag=kinjalifehackerlink-20) *。她的旗舰专栏“问一个干净的人”于 2011 年首次推出。在《后代》杂志上，我们推出了一个新版本，聚焦于养育子女和它带来的所有混乱。*
 

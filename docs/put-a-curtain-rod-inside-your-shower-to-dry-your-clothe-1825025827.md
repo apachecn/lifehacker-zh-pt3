@@ -1,6 +1,6 @@
 # 在你的淋浴间里放一根窗帘杆来烘干你的衣服
 
-> 原文:[https://life hacker . com/put-a curtain-rod-in-your-shower-to-dry-your-cloth-1825025827](https://lifehacker.com/put-a-curtain-rod-inside-your-shower-to-dry-your-clothe-1825025827)
+> 原文：<https://lifehacker.com/put-a-curtain-rod-inside-your-shower-to-dry-your-clothe-1825025827>
 
 防止你的运动服发臭的最好方法是 [穿上](https://lifehacker.com/how-to-keep-your-workout-clothes-from-stinking-1824073531) 出汗后，立即冲洗掉*。既然你已经在洗澡了，那就简单了。但是如何处理这些湿透的衣服呢？*
 

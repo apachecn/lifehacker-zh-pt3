@@ -1,6 +1,6 @@
 # 把门开着并不难
 
-> 原文:[https://life hacker . com/holding-the-door-open 并不难 1828363684](https://lifehacker.com/holding-the-door-open-is-not-that-hard-1828363684)
+> 原文：<https://lifehacker.com/holding-the-door-open-is-not-that-hard-1828363684>
 
 不难。感觉很硬！当你正好在别人前面走进一扇门时，你需要为他们把门打开，否则你是不礼貌的。但是，如果他们离你有点太远，他们必须赶紧赶上来，然后(正如 redditor Voldetitty [最近指出的](https://www.reddit.com/r/Showerthoughts/comments/97gbfw/people_holding_open_doors_for_you_is_either_a/) )你实际上很烦人。在某个模糊的距离，有一个从“不要让门开着”到“让门开着”的相变，判断失误会毁掉你的生活长达五秒钟。
 

@@ -1,6 +1,6 @@
 # 如何存放和整理你的庭院工具，以便随时使用
 
-> 原文:[https://life hacker . com/how-to-store-and-organize-your-yard-tools-so-they-rea-1737557706](https://lifehacker.com/how-to-store-and-organize-your-yard-tools-so-theyre-rea-1737557706)
+> 原文：<https://lifehacker.com/how-to-store-and-organize-your-yard-tools-so-theyre-rea-1737557706>
 
 如果你只是把你的庭院工具扔到外面的栅栏上，它们不会持续超过几个季节。以下是如何整理和保养你的庭院工具，让它们在未来的几年里照顾你。
 

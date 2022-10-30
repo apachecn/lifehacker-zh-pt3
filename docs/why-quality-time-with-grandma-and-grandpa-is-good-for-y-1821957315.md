@@ -1,6 +1,6 @@
 # 为什么和爷爷奶奶共度美好时光对孩子有好处
 
-> 原文:[https://life hacker . com/why-quality-time-with-grand-and-外公-y-1821957315](https://lifehacker.com/why-quality-time-with-grandma-and-grandpa-is-good-for-y-1821957315)
+> 原文：<https://lifehacker.com/why-quality-time-with-grandma-and-grandpa-is-good-for-y-1821957315>
 
 上个月，比利时列日大学的研究人员发布了一项的研究，年龄歧视可以在 3 岁的孩子身上看到。这很正常——小孩子会自然地将他们看到的东西分类，并经常根据他们收到的信息给这些类别分配特征(例如，老年人会大喊大叫，希望你离开他们的草坪)。他们往往在 10 到 12 岁左右就不再有年龄歧视的观点，但这有助于给他们一点鼓励。消除他们对老年人刻板印象的一个方法可能很简单:鼓励你的孩子与他们的祖父母进行“有意义的接触”。
 

@@ -1,6 +1,6 @@
 # 别问为什么，但大嘴比利·巴斯很快就会和 Alexa 合作了
 
-> 原文:[https://life hacker . com/don-t-ask-why-but-big-mouth-Billy-bass-will-soon-work-1819025729](https://lifehacker.com/don-t-ask-why-but-big-mouth-billy-bass-will-soon-work-1819025729)
+> 原文：<https://lifehacker.com/don-t-ask-why-but-big-mouth-billy-bass-will-soon-work-1819025729>
 
 在你像我一样兴奋之前，大嘴巴比利·巴斯不会取代我们熟知的 Alexa 之家的黑色圆柱体。但是现在，这个时髦的钓鱼小屋的典范终于与 Alexa 兼容了，因为人们确实需要它。
 

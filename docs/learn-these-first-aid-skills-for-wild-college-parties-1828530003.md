@@ -1,6 +1,6 @@
 # 学习这些野外大学派对的急救技巧
 
-> 原文:[https://life hacker . com/learn-these-急救技能-狂野大学派对-1828530003](https://lifehacker.com/learn-these-first-aid-skills-for-wild-college-parties-1828530003)
+> 原文：<https://lifehacker.com/learn-these-first-aid-skills-for-wild-college-parties-1828530003>
 
 无论你是即将参加他们第一次兄弟会聚会的新生，还是和朋友们有时聚会有点太过火的成年人，知道当事情失去控制时该做什么是很好的。以下是一些可以帮助你帮助他人的顶级技巧和技能:
 

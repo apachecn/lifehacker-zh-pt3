@@ -1,6 +1,6 @@
 # 欢迎参加比赛
 
-> 原文:[https://kotaku.com/welcome-to-compete-1792686796](https://kotaku.com/welcome-to-compete-1792686796)
+> 原文：<https://kotaku.com/welcome-to-compete-1792686796>
 
 欢迎来到 *Compete* ，这是一家由 *Deadspin* 和 *Kotaku* 组成的合资公司，致力于报道电子竞技和竞技游戏中最好的、最差的、最愚蠢的、最激动人心的、最有趣的，以及总的来说最愚蠢的——在这个词的更好和更坏的意义上。我们在这里刚刚起步，但希望这里成为你在互联网或其他地方永远不会读到的那种报道的目的地。
 

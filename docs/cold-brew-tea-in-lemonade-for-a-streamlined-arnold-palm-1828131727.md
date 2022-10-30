@@ -1,6 +1,6 @@
 # 柠檬水冷泡茶给流线型的阿诺德·帕尔默
 
-> 原文:[https://life hacker . com/cold-brew-tea-in-lemonade-for-a-streamlined-Arnold-palm-1828131727](https://lifehacker.com/cold-brew-tea-in-lemonade-for-a-streamlined-arnold-palm-1828131727)
+> 原文：<https://lifehacker.com/cold-brew-tea-in-lemonade-for-a-streamlined-arnold-palm-1828131727>
 
 柠檬水和冰茶是两种提神饮料，当它们混合在一起时，效果会更好。红茶的苦味平衡了柠檬水的甜味，创造出一种含有少量咖啡因的止渴饮料。通常的制作方法需要混合两种饮料，但是你可以通过简单地在柠檬水中冲泡茶*来简化整个过程。*
 

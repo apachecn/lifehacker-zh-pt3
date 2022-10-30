@@ -1,6 +1,6 @@
 # 这张图表显示了你们州政府的资金来源
 
-> 原文:[https://life hacker . com/this-chart-shows-how-your-state-government-1796687109](https://lifehacker.com/this-chart-shows-how-your-state-government-is-funded-1796687109)
+> 原文：<https://lifehacker.com/this-chart-shows-how-your-state-government-is-funded-1796687109>
 
 我们中的大多数人在没有真正理解税收如何运作的情况下付了税 。当然，税收很复杂，但这张方便的图表分解了一个重要的概念:不同的州政府是如何获得资金的。
 

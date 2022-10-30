@@ -1,6 +1,6 @@
 # 如何组织一场权力的游戏死亡池
 
-> 原文:[https://life hacker . com/how-to-organize-a-game-of-thrones-death-pool-1796893792](https://lifehacker.com/how-to-organize-a-game-of-thrones-death-pool-1796893792)
+> 原文：<https://lifehacker.com/how-to-organize-a-game-of-thrones-death-pool-1796893792>
 
 《权力的游戏》第七季首播就要到了。在这个星期天所有的光荣杀戮开始之前，为什么不使观看表演变得更有趣一点呢？
 

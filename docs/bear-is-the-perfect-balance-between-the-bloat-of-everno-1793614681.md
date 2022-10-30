@@ -1,6 +1,6 @@
 # Bear 是 Evernote 的臃肿和纯文本的简单之间的完美平衡
 
-> 原文:[https://life hacker . com/bear-is-the-perfect-balance-of-the-float-of-everno-1793614681](https://lifehacker.com/bear-is-the-perfect-balance-between-the-bloat-of-everno-1793614681)
+> 原文：<https://lifehacker.com/bear-is-the-perfect-balance-between-the-bloat-of-everno-1793614681>
 
 当第一次推出 时，Bear 是 Evernote 和 OneNote 等臃肿的笔记应用程序的有趣替代品，但它仍然太新，难以深入研究。经过几次小的迭代，我确信对于那些厌倦了其他 notes 应用程序的膨胀和那些喜欢纯文本的带回家的简单性的人来说，它是一个有价值的选择。前提是你在苹果的生态系统中。
 

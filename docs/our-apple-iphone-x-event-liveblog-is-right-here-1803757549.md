@@ -1,6 +1,6 @@
 # 我们的苹果 iPhone X 活动直播博客就在这里
 
-> 原文:[https://gizmodo . com/our-apple-iphone-x-event-live blog-is-right-here-1803757549](https://gizmodo.com/our-apple-iphone-x-event-liveblog-is-right-here-1803757549)
+> 原文：<https://gizmodo.com/our-apple-iphone-x-event-liveblog-is-right-here-1803757549>
 
 今天是 iPhone 日！
 

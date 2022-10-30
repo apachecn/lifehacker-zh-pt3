@@ -1,6 +1,6 @@
 # 用谷歌浏览器的消光来调暗你的浏览器
 
-> 原文:[https://life hacker . com/dim-your-browser-with-de luminate-for-Google-chrome-1827295863](https://lifehacker.com/dim-your-browser-with-deluminate-for-google-chrome-1827295863)
+> 原文：<https://lifehacker.com/dim-your-browser-with-deluminate-for-google-chrome-1827295863>
 
 在你最喜欢的网站、应用程序或操作系统上使用“黑暗模式”感觉很棒。它非常适合黑暗的房间或飞机，当你需要节省一点电池，或者你只是厌倦了盯着屏幕看几个小时而眼睛酸痛。
 

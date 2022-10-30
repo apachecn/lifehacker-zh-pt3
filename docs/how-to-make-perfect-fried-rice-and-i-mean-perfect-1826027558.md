@@ -1,6 +1,6 @@
 # 如何做出完美的炒饭(我是说完美)
 
-> 原文:[https://the take out . com/how-to-make-perfect-fried-rice-I-mean-perfect-1826027558](https://thetakeout.com/how-to-make-perfect-fried-rice-and-i-mean-perfect-1826027558)
+> 原文：<https://thetakeout.com/how-to-make-perfect-fried-rice-and-i-mean-perfect-1826027558>
 
 我做的炒饭真的很棒。在你默默地评判我的傲慢之前，要知道:在这种傲慢背后隐藏着我的中国姻亲的智慧。当我第一次和我现在的丈夫约会时，我会飞到西雅图去看望他的父母，我会在 iPad 上做大量的笔记，而他们会尝试教我做他们的家常菜。我非常喜欢他们的食物。我学会了饺子和炒菜以及五香焖牛肉。我学会了如何制作冬至的传统菜肴和健康好运的菜肴。然而，在我所学到的一切中，他们的炒饭成了我的后兜菜。
 

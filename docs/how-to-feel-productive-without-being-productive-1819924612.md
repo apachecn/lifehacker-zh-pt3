@@ -1,6 +1,6 @@
 # 如何在没有效率的情况下感到有效率
 
-> 原文:[https://life hacker . com/how-to-feel-productive-without-be-productive-1819924612](https://lifehacker.com/how-to-feel-productive-without-being-productive-1819924612)
+> 原文：<https://lifehacker.com/how-to-feel-productive-without-being-productive-1819924612>
 
 大多数人对完成某事感兴趣。但也许你不是。也许你只是想*感觉*富有成效，或者高效，或者努力工作，而不需要真的完成一些事情。你不能就这么开始做。首先你需要计划，首先你需要计划计划。
 

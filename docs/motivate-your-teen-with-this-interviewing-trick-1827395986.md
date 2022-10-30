@@ -1,6 +1,6 @@
 # 用这个面试技巧激励你的孩子
 
-> 原文:[https://life hacker . com/motivate-your-teen with this-interview-trick-1827395986](https://lifehacker.com/motivate-your-teen-with-this-interviewing-trick-1827395986)
+> 原文：<https://lifehacker.com/motivate-your-teen-with-this-interviewing-trick-1827395986>
 
 当父母告诉他们的青少年 去做某事时，它让他们想，嗯，不去做。如果你有一个十几岁的孩子，或者你曾经是一个十几岁的孩子，你就会知道这一点。妈妈和爸爸们可以继续施压、唠叨、威胁永远关闭堡垒之夜，但这充其量只能导致短期的顺从。
 

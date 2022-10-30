@@ -1,6 +1,6 @@
 # 提高心算能力的 10 个技巧
 
-> 原文:[https://gizmodo . com/10-tips-to-improve-your-mental-math-ability-1792597814](https://gizmodo.com/10-tips-to-improve-your-mental-math-ability-1792597814)
+> 原文：<https://gizmodo.com/10-tips-to-improve-your-mental-math-ability-1792597814>
 
 计算器很棒，但并不总是很方便。更重要的是，没有人希望被看到在该算出 15%的小费时伸手去用手机计算。这里有 10 个技巧可以帮助你在头脑中处理数字。
 

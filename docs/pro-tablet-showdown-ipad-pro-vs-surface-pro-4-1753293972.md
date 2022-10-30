@@ -1,6 +1,6 @@
 # Pro 平板摊牌:iPad Pro vs. Surface Pro 4
 
-> 原文:[https://life hacker . com/pro-table t-摊牌-ipad-pro-vs-surface-pro-4-1753293972](https://lifehacker.com/pro-tablet-showdown-ipad-pro-vs-surface-pro-4-1753293972)
+> 原文：<https://lifehacker.com/pro-tablet-showdown-ipad-pro-vs-surface-pro-4-1753293972>
 
 苹果的 iPad Pro 和微软的 Surface Pro 4 看起来很像。两款都是大型平板电脑，都可以连接到超薄键盘盖，都提供了用于绘图和记笔记的手写笔。但是在与这些潜在的笔记本电脑替代品相处了一段时间后，我发现它们真的非常不同，尤其是在生产力方面。
 

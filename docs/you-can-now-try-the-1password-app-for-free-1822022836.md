@@ -1,6 +1,6 @@
 # 您现在可以免费试用 1Password 应用程序
 
-> 原文:[https://life hacker . com/you-can-now-try-the-1 password-app-for-free-1822022836](https://lifehacker.com/you-can-now-try-the-1password-app-for-free-1822022836)
+> 原文：<https://lifehacker.com/you-can-now-try-the-1password-app-for-free-1822022836>
 
 iOS:都 2018 年了，你还在所有密码栏里写“1234”啊？多亏了苹果，你现在没有借口和美国其他人共用同一个密码了。该公司的 [在其应用商店中增加了一个名为“免费试用”的新栏目](https://9to5mac.com/2018/01/11/free-trial-app-store-section/) ，可以让你在付钱之前试用一些应用。你应该尝试的第一个？T5 1 密码 T7。
 

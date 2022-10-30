@@ -1,6 +1,6 @@
 # 朝鲜和韩国冲突简史
 
-> 原文:[https://life hacker . com/a-brief-history of the Korean-war-1825653259](https://lifehacker.com/a-brief-history-of-the-korean-war-1825653259)
+> 原文：<https://lifehacker.com/a-brief-history-of-the-korean-war-1825653259>
 
 周五，一名朝鲜领导人有史以来第一次跨过朝鲜非军事区 [与](https://www.nytimes.com/2018/04/27/world/asia/north-korea-south-kim-jong-un.html?mtrref=kinja.com&gwh=F8FADA7D89E23F5B7E7D745D386EF245) 谈论无核化和期待已久的和平。这是一个真正的历史性时刻，但这只是持续了近 70 年的复杂冲突中的最新事件。以下是关于朝鲜战争你应该知道的一切。
 

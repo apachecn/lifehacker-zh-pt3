@@ -1,6 +1,6 @@
 # Instagram 的温和喘息
 
-> 原文:[https://life hacker . com/the-gentle-strait-of-insta gram-1792992794](https://lifehacker.com/the-gentle-respite-of-instagram-1792992794)
+> 原文：<https://lifehacker.com/the-gentle-respite-of-instagram-1792992794>
 
 网上只有一个地方不错。只有一个地方没有增加我的焦虑，实际上减轻了无处不在的时刻在线的恐惧。那个地方是 Instagram。
 

@@ -1,6 +1,6 @@
 # 如果你等不及任天堂的 Labo，就买这些 DIY 科技玩具吧
 
-> 原文:[https://life hacker . com/get-these-DIY-tech-toys-if-you-can-t-wait-to-Nintendo-1822246693](https://lifehacker.com/get-these-diy-tech-toys-if-you-can-t-wait-for-nintendo-1822246693)
+> 原文：<https://lifehacker.com/get-these-diy-tech-toys-if-you-can-t-wait-for-nintendo-1822246693>
 
 任天堂即将推出的 Labo 系列 游戏在很多方面都很新颖:DIY 纸板制作工具包中充满了钓鱼杆、钢琴等配件，甚至还有一个机器人控制、滑轮驱动的背包，搭配与任天堂便携式开关控制台兼容的游戏。低技术硬件搭配模块化开关及其微型 Joy-Con 控制器，为与您的控制台进行交互提供了一种非常创新的方式。它将于 4 月 20 日发布，但如果你的孩子现在渴望接触一些高科技玩具，已经有一些制造商友好的产品旨在让他们的创造力流动起来。有了他们写的代码，也许他们甚至会创造出比纸板做的控制器更实在的东西。
 

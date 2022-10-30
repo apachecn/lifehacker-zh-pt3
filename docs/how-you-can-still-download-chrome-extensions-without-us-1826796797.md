@@ -1,6 +1,6 @@
 # 如何不使用 Chrome 商店继续下载 Chrome 扩展
 
-> 原文:[https://life hacker . com/how-you-can-still-download-chrome-extensions-without-us-1826796797](https://lifehacker.com/how-you-can-still-download-chrome-extensions-without-us-1826796797)
+> 原文：<https://lifehacker.com/how-you-can-still-download-chrome-extensions-without-us-1826796797>
 
 我不记得上一次我没有安装谷歌 Chrome 网络商店的扩展是什么时候了。然而，到目前为止，开发者已经被允许以内嵌下载的方式提供他们的扩展。换句话说，他们可以在网站上放下一个下载按钮，你点击它，就会看到一个典型的安装确认对话框(就好像你正在从 Chrome 网络商店安装扩展一样)，在你知道之前，你已经+1 到扩展了。
 

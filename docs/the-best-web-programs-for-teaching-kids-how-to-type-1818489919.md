@@ -1,6 +1,6 @@
 # 教孩子如何打字的最佳网络程序
 
-> 原文:[https://life hacker . com/the-best-web-programs-for-teaching-kids-how-to-type-1818489919](https://lifehacker.com/the-best-web-programs-for-teaching-kids-how-to-type-1818489919)
+> 原文：<https://lifehacker.com/the-best-web-programs-for-teaching-kids-how-to-type-1818489919>
 
 Gg9fhg y jgy hf f b v nmn
 

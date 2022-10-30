@@ -1,6 +1,6 @@
 # 这款芝士汉堡的脂肪含量少了 1/3，你永远不会注意到其中的区别
 
-> 原文:[https://the take out . com/this-cheese burg-has-1-3-less-fat-and-you-ll-never-not 1823132695](https://thetakeout.com/this-cheeseburger-has-1-3-less-fat-and-you-ll-never-not-1823132695)
+> 原文：<https://thetakeout.com/this-cheeseburger-has-1-3-less-fat-and-you-ll-never-not-1823132695>
 
 [***鲜味问题***](https://thetakeout.com/tag/umami-issues#_ga=2.243902213.1001105705.1512497220-308846628.1493669845) *是外卖对烹饪食物的探索，以浓郁、香醇、神秘的味觉感受* [*被称为鲜味*](https://www.theguardian.com/lifeandstyle/wordofmouth/2013/apr/09/umami-fifth-taste) *。*
 

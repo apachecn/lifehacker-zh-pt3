@@ -1,6 +1,6 @@
 # 我试了一个觅食应用程序，我猜还不错
 
-> 原文:[https://life hacker . com/I-tryed-a-foaming-app-and-it-go-okay-I-guess-1796528131](https://lifehacker.com/i-tried-a-foraging-app-and-it-went-okay-i-guess-1796528131)
+> 原文：<https://lifehacker.com/i-tried-a-foraging-app-and-it-went-okay-i-guess-1796528131>
 
 著名厨师/森林精灵雷内·雷泽皮 [发布了一款名为 VILD 疯](https://munchies.vice.com/en_us/article/bj8w4w/nomas-rene-redzepi-has-launched-a-mobile-foraging-app?utm_source=munchiesfbus)
 的应用程序，帮助你用手机找到“美味的食物”。作为一个喜欢吃好草料的人(看着她的手机)，wilds 马德似乎是一个肯定能提高我生活质量的应用程序，所以我把它下载到这个手机上，然后出发去波特兰东南部的荒野。

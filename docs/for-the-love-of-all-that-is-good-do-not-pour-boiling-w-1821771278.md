@@ -1,6 +1,6 @@
 # 看在上帝的份上，不要把开水倒在你冰冻的车上
 
-> 原文:[https://jalopnik . com/for-the-love of-the-all-the-doe-do-not-pour-boiling-w-1821771278](https://jalopnik.com/for-the-love-of-all-that-is-good-do-not-pour-boiling-w-1821771278)
+> 原文：<https://jalopnik.com/for-the-love-of-all-that-is-good-do-not-pour-boiling-w-1821771278>
 
 今天，美国大部分地区寒冷刺骨，大雪纷飞，肯定会有一些聪明的人在他们结冰的挡风玻璃上放热水。
 

@@ -1,6 +1,6 @@
 # 那项“人类流感”研究是为搞笑而生的
 
-> 原文:[https://life hacker . com/that-man-flu-study-is-created-for-laughts-1821252301](https://lifehacker.com/that-man-flu-study-was-created-for-laughs-1821252301)
+> 原文：<https://lifehacker.com/that-man-flu-study-was-created-for-laughs-1821252301>
 
 听到美国有线电视新闻网[时间](http://time.com/5060429/what-is-man-flu/)[卫报](https://www.theguardian.com/lifeandstyle/2017/dec/11/stop-accusing-men-of-overreacting-man-flu-really-does-exist-claims-doctor) 的报道，你会认为在“男性流感”领域有了重大的医学突破，一劳永逸地回答了男人在面对普通感冒时是否是懦夫的问题。但是人类流感研究来自一个奇怪的愚人节传统，真正的科学家发表半开玩笑的论文，新闻媒体用它们作为点击诱饵。
 

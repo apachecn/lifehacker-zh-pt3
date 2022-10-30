@@ -1,6 +1,6 @@
 # 空手道小子几乎把汽车打蜡做对了
 
-> 原文:[https://jalopnik . com/the-空手道-kid-pretty-much-god-car-washing-right-1827143051](https://jalopnik.com/the-karate-kid-pretty-much-got-car-waxing-right-1827143051)
+> 原文：<https://jalopnik.com/the-karate-kid-pretty-much-got-car-waxing-right-1827143051>
 
 如果你从来没有给汽车打过蜡，不知道从哪里开始，你会怎么做？ [你问一个干净的人](https://jalopnik.com/tag/ask-a-clean-person) ，咄。
 

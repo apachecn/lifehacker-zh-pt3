@@ -1,6 +1,6 @@
 # 健身房人满为患时锻炼身体的五种方法
 
-> 原文:[https://life hacker . com/five-ways-to-working-in-the-gym-when-it ' s crazy-packed-1790783192](https://lifehacker.com/five-ways-to-work-out-in-the-gym-when-its-crazy-packed-1790783192)
+> 原文：<https://lifehacker.com/five-ways-to-work-out-in-the-gym-when-its-crazy-packed-1790783192>
 
 你想锻炼，但是当健身房挤满了人，每台机器和长凳都被占用时，你需要所有的自制力，不要说:“去他的！”出去的时候踢点东西。不要担心:你可能得不到你计划的锻炼，但是用一点小聪明，你的 [仍然可以得到一个好的](https://lifehacker.com/how-to-work-out-when-the-gym-is-crowded-1750419523) 。
 

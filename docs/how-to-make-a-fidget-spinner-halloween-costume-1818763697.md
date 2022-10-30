@@ -1,6 +1,6 @@
 # 如何使一个坐立不安旋转万圣节服装
 
-> 原文:[https://life hacker . com/how-to-make-a-stiggy-spinner-Halloween-costume-1818763697](https://lifehacker.com/how-to-make-a-fidget-spinner-halloween-costume-1818763697)
+> 原文：<https://lifehacker.com/how-to-make-a-fidget-spinner-halloween-costume-1818763697>
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-9mzeqmqdJrA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-9mzeqmqdJrA&start=0) 
 

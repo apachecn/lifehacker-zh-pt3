@@ -1,6 +1,6 @@
 # 到目前为止，我们所知道的关于英特尔最新第八代处理器的一切
 
-> 原文:[https://gizmodo . com/everything-we-known-so-know-about-Intel-newest-8th-gener-1824260389](https://gizmodo.com/everything-we-know-so-far-about-intels-newest-8th-gener-1824260389)
+> 原文：<https://gizmodo.com/everything-we-know-so-far-about-intels-newest-8th-gener-1824260389>
 
 如果您对英特尔第八代酷睿处理器感到困惑，请原谅。早在 2017 年 10 月，我就把这个第八代称为“令人困惑的弗兰肯斯坦式怪物”，现在仍然如此！这一代是在“第八代”的单一总括术语下拼凑起来的微体系结构的大杂烩，处理器在过去的七个月里慢慢地出来了。现在距离上一批 不到一周的时间，又一轮处理器公布了——[。](https://gizmodo.com/rivals-intel-and-amd-got-together-and-made-something-be-1824178636) 
 

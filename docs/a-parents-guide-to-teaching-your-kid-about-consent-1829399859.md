@@ -1,6 +1,6 @@
 # 父母教导孩子同意的指南
 
-> 原文:[https://life hacker . com/a-parents-guide-to-teaching-your-kid-on-consent-1829399859](https://lifehacker.com/a-parents-guide-to-teaching-your-kid-about-consent-1829399859)
+> 原文：<https://lifehacker.com/a-parents-guide-to-teaching-your-kid-about-consent-1829399859>
 
 本周，我们阅读了一个又一个关于性侵犯的令人痛苦的故事。我们听过一个老掉牙的借口“男孩终究是男孩。”我们已经看到不可原谅的行为被当成正常的青少年恶作剧。有一件事已经变得很清楚:无论我们做什么来教我们的孩子关于同意——这是不够的。创造一种同意的文化不是来自一次尴尬的性谈话。这是一个持续的过程，比你想象的要早。以下是如何让同意成为每个年龄段的标准。
 

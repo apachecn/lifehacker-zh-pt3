@@ -1,6 +1,6 @@
 # 泻盐让洗澡变得更舒服，但对你的肌肉没有任何好处
 
-> 原文:[https://life hacker . com/epsom-salts-make-baths-nicer-but-you-1823074799](https://lifehacker.com/epsom-salts-make-baths-nicer-but-they-do-nothing-for-yo-1823074799)
+> 原文：<https://lifehacker.com/epsom-salts-make-baths-nicer-but-they-do-nothing-for-yo-1823074799>
 
 如果你肌肉酸痛，那就去洗个泻盐热水澡，感觉棒极了。这几乎完全是因为你在花时间 [给自己洗个舒服的澡](https://lifehacker.com/how-to-take-the-best-bath-possible-1795702871) 并且关注你刚刚为你做了如此艰苦工作的身体。它能缓解疼痛？抱歉，没有。
 

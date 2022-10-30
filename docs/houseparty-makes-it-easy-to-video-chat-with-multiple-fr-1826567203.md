@@ -1,6 +1,6 @@
 # Houseparty 让您可以轻松地在 Mac 上与多个朋友进行视频聊天
 
-> 原文:[https://life hacker . com/house party-make-it-easy-to-video-chat-multiple-fr-1826567203](https://lifehacker.com/houseparty-makes-it-easy-to-video-chat-with-multiple-fr-1826567203)
+> 原文：<https://lifehacker.com/houseparty-makes-it-easy-to-video-chat-with-multiple-fr-1826567203>
 
 Mac:在(终于)发布其 macOS 应用版本的所有日子里， [Houseparty](https://itunes.apple.com/us/app/houseparty/id1381523962?mt=12) 选择了昨天——苹果全球开发者大会的开始——在苹果台式机和笔记本电脑上掀起一场大的(主题)轰动。虽然苹果宣布 FaceTime 群组聊天可能会让 Houseparty 的帆有些风吹草动，但该应用仍然可以让你非常容易地同时与一群朋友聊天。
 

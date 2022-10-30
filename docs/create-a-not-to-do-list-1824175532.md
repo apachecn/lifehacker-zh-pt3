@@ -1,6 +1,6 @@
 # 创建一个待办事项列表
 
-> 原文:[https://lifehacker.com/create-a-not-to-do-list-1824175532](https://lifehacker.com/create-a-not-to-do-list-1824175532)
+> 原文：<https://lifehacker.com/create-a-not-to-do-list-1824175532>
 
 Watch
 

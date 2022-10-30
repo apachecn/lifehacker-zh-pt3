@@ -1,6 +1,6 @@
 # 作为一个超常发挥者令人惊讶的缺点
 
-> 原文:[https://life hacker . com/the-surprise-down sides-of-be-a-over-achieveier-1733341356](https://lifehacker.com/the-surprising-downsides-of-being-an-overachiever-1733341356)
+> 原文：<https://lifehacker.com/the-surprising-downsides-of-being-an-overachiever-1733341356>
 
 成为办公室的佼佼者可能感觉很好，因为你的老板会拍拍你的背，竖起大拇指。但是在尽你最大的努力和成为一个长期超常发挥者之间有一条细微的界限，这可能会让你失败。这就是为什么你可能要重新考虑“我可以做所有事情”的态度。"
 

@@ -1,6 +1,6 @@
 # 为什么真的圣诞树比假的好
 
-> 原文:[https://life hacker . com/why-real-圣诞树比假的好-1821354742](https://lifehacker.com/why-real-christmas-trees-are-better-than-fake-ones-1821354742)
+> 原文：<https://lifehacker.com/why-real-christmas-trees-are-better-than-fake-ones-1821354742>
 
 在真圣诞树和人造圣诞树之间做出选择很大程度上取决于个人偏好:你是想要那种舒适的松树气味和令人讨厌的清洁工作，还是想要没有人情味但地板上连一根针都没有的内置灯？然而，撇开个人偏好不谈，还有一个人可能会关心:地球母亲。
 

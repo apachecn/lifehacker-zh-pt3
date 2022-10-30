@@ -1,6 +1,6 @@
 # 在公海上抽大麻合法吗？
 
-> 原文:[https://life hacker . com/is-it-legal-to-smoke-weed-on-the-公海-1820012023](https://lifehacker.com/is-it-legal-to-smoke-weed-on-the-high-seas-1820012023)
+> 原文：<https://lifehacker.com/is-it-legal-to-smoke-weed-on-the-high-seas-1820012023>
 
 大麻法很复杂。虽然许多州正在合法化和管理该物质，但联邦政府仍然表示拥有该物质是违法的。但是如果你去海边寻求快感呢？在深蓝里你还会惹上麻烦吗？
 

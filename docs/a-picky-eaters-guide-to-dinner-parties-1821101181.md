@@ -1,6 +1,6 @@
 # 挑食者的晚宴指南
 
-> 原文:[https://life hacker . com/a-挑食者-晚宴指南-1821101181](https://lifehacker.com/a-picky-eaters-guide-to-dinner-parties-1821101181)
+> 原文：<https://lifehacker.com/a-picky-eaters-guide-to-dinner-parties-1821101181>
 
 我是一个秘密的挑食者，以至于在最近的一次朋友聚餐上，我拒绝吃火鸡和其他节日菜肴，而是只吃蘸有辣酱的面包。出于某种原因，我的主人仍然在和我说话，但其他地狱食者应该小心不要步我的后尘。
 
