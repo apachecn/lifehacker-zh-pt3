@@ -1,0 +1,27 @@
+# 通过这本词典了解宜家产品名称的实际含义
+
+> 原文:[https://life hacker . com/learn-what-IKEA-product-names-actually-mean-with this-d-1819620412](https://lifehacker.com/learn-what-ikea-product-names-actually-mean-with-this-d-1819620412)
+
+宜家产品有各种各样有趣的名字。有些是瑞典语单词，有些是以地名命名的，有些只是由其他单词混合而成的杜撰名称。这本字典把它们都列出来了。
+
+Watch
+
+宜家字典 是 Lars Petrus Petrus 的一个项目，他说大多数宜家的名字实际上都很有趣或聪明，所以他想与他人分享这种快乐。这个项目根本不隶属于这个品牌，到处逛逛很有意思。
+
+根据 Petrus 的说法，大多数宜家产品名称主要分为几类，包括正确的瑞典语单词、不正确的瑞典语单词、名字、地理名称，以及一些似乎不属于任何类别的怪异名称。这里有几个例子:
+
+*   托尔斯比:字面意思是“托尔的村庄”挪威附近森林中的瑞典小镇。
+
+*   阿蒙:埃及神瑞神的一个版本。
+
+*   BAGIS :一克朗(0.14 美元)的俚语。也是斯德哥尔摩郊区 Bagarmossen 的俚语。
+
+*   **ZITA** :宫女的守护神。也是斯德哥尔摩最古老的电影院。
+
+*   **BITIG** :构造奇特的笑话词。意思是“咬”,或有利于咬。
+
+*   **MAJBY** :瑞典有 9 个人有这个姓。其他的似乎都不行。
+
+在所有 1362 个宜家产品名称中，Petrus 只少了 130 个左右。点击下面的链接查看完整的词典。
+
+[宜家词典](http://lar5.com/ikea/) 途经[Kottke.org](https://kottke.org/17/10/dictionary-of-ikea-product-name-meanings)

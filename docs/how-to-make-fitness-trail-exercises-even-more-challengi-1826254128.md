@@ -1,0 +1,14 @@
+# 如何让健身步道练习更具挑战性
+
+> 原文:[https://life hacker . com/how-to-make-fitness-trail-exercises-even-more-challengei-1826254128](https://lifehacker.com/how-to-make-fitness-trail-exercises-even-more-challengi-1826254128)
+
+你可以从我们的 [健身步道挑战赛](https://vitals.lifehacker.com/find-a-fitness-trail-and-exercise-like-its-1992-1825718545) 中获得任何级别的锻炼，无论你找到什么装备。我们已经讨论了一些方法，如果你需要的话，你可以修改练习使之更简单，但是现在让我们来谈谈如何获得更大的挑战。
+
+Watch
+
+*   **多跑步。**如果你在两站之间步行或慢跑，试着跑得更快。如果两个站离得很近，每隔几个站就离开小路跑一段额外的距离。
+*   穿上加重背心。一切都会更难，尤其是上拉。
+*   做单腿或单臂运动。单腿跳或蹲的动作很棒。使用更容易的(更高的杠)俯卧撑站来尝试单臂俯卧撑。通过在不同的高度抓住一对吊环，朝着单臂引体向上的方向努力
+*   **蘸啤酒花。**在双杠之间做一个下潜，但是当你向上推的时候， [爆发性地推，尝试向前跳](https://www.youtube.com/watch?v=NNvDjex-oEk) 。光是看着我的手就疼，但这肯定是一种很棒的锻炼。
+
+你有没有找到任何创造性的方法来使用健身路径上的设备，或者使它更具挑战性，或者只是更有趣？

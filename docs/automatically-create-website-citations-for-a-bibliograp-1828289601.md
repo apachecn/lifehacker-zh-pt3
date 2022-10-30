@@ -1,0 +1,15 @@
+# 使用此 Chrome 扩展自动创建参考书目的网站引文
+
+> 原文:[https://life hacker . com/automatically-create-website-citations-for-a-bibliograp-1828289601](https://lifehacker.com/automatically-create-website-citations-for-a-bibliograp-1828289601)
+
+当我在大学时，我最不喜欢写研究论文的部分是弄清楚如何写参考书目。引用资料是乏味的，而且如果你不得不在一些不同的风格中工作的话，会变得混乱。本周，我偶然发现了一个 Chrome 扩展，我希望我在大学时就有，它能帮你处理繁重的工作，至少对网站来说是这样。
+
+Watch
+
+名为 [为我引用这个](https://chrome.google.com/webstore/detail/cite-this-for-me-web-cite/nnnmhgkokpalnmbeighfomegjfkklkle?hl=en) ，它会自动创建 APA、MLA、Chicago 或 Harvard 风格的网站引用，只需快速点击浏览器工具栏上的图标。
+
+当你点击工具栏上的按钮，看着你要在论文中引用的那篇精彩的文章时，你点击图标，一个窗口就会弹出，你可以在不同的风格之间切换，将你选择的风格复制并粘贴到你正在撰写的很可能是一篇出色的研究论文中。
+
+它并不完美。我在 Lifehacker 的几篇文章上试了一下，出于某种原因，它无法找到文章的标题，但其他一切都很好。也就是说，你的材料可能会有所不同，在交给你的教授之前，你仍然应该把你正在复制和粘贴的信息浏览一遍。
+
+对于书籍和视频之类的东西，它也不会给你带来任何好处，你仍然必须自己找出这些东西，但是如果你在网上引用大量的东西，那么它可以使整理参考书目的速度更快一些。

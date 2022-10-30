@@ -1,0 +1,21 @@
+# 使用 Paste 2 保存您在 iOS 和 macOS 上复制的所有内容
+
+> 原文:[https://life hacker . com/save-everything-you-copy-on-IOs-and-MAC OS-with-paste-2-1827475594](https://lifehacker.com/save-everything-you-copy-on-ios-and-macos-with-paste-2-1827475594)
+
+**Mac:** 在更新 [Lifehacker 的 2018](https://lifehacker.com/lifehacker-pack-for-mac-our-list-of-the-essential-mac-635303836)Mac 包时，一些读者注意到我这次没有包含任何剪贴板管理应用。这不是针对个人的；我认为还有其他更有趣的应用程序。
+
+Watch
+
+也就是说，生活黑客读者**卢拉·梅·百老汇**在评论中调出了应用 [粘贴 2](https://pasteapp.me/appstore) 。我检查了一下，虽然它有点贵——完整版 15 美元——但它有一些引人注目的功能，以及免费试用，这使得它值得考虑。
+
+虽然有很多剪贴板管理应用程序可以记录你复制的所有内容，苹果自己的 [连续性](https://support.apple.com/en-us/ht204681) 功能可以让你在所有设备上访问剪贴板的内容，但 Paste 2 将这些功能以及更多功能放在了一个屋檐下。
+
+该应用程序允许你保存你复制的所有内容(或将其限制在特定时间段内，就像你在过去一个月复制的任何内容一样)。你可以通过按 Command + Shift + V 调出你的历史记录，这将在你的屏幕底部打开一个面板，以大卡片的形式显示你复制的所有内容。
+
+我喜欢你可以将这些卡片分类到定制的标签或“图钉板”中，如果你试图将你必看的网站与那些你复制后发给朋友的可爱动物图片(或有趣的 gif)分开的话。你也可以搜索你复制的任何东西，以防你的小项目板变得太大，重新复制和粘贴任何项目都很简单。您甚至可以使用键盘快捷键(Command 和数字 1 到 9)来快速拷贝存储的项目以进行粘贴。
+
+Paste 2 的剪贴板是通用的，iOS 的 app 可以免费下载使用。这款应用的 iPad 版售价 5 美元，这意味着你将花费 20 美元在你所有的苹果设备上安装这款应用。尽管如此，对于一个跨平台、无限制的剪贴板来说，这还不算太坏，您可以将它组织成小部分。
+
+* * *
+
+你有一个你绝对喜欢的 Windows 或 Mac 应用程序(付费或免费)吗？跟我们说说:[](mailto:david.murphy@lifehacker.com?subject=Windows%20App%20of%20the%20Week)**。**

@@ -1,0 +1,20 @@
+# 填满你的谷歌日历，这样别人就不能偷走你的时间了
+
+> 原文:[https://life hacker . com/fill-up-your-Google-calendar-so-other-people-cant-steal-1818662826](https://lifehacker.com/fill-up-your-google-calendar-so-other-people-cant-steal-1818662826)
+
+啊，一本空日历。所有的空闲时间和可能性，所有你要做的事情——直到你的同事*看到*空闲时间，用会议和义务填满它。在这种情况再次发生之前，你必须采取守势。
+
+Watch
+
+你可以比在一天中拉长五个小时的“不要安排”更有策略。 [利用已经列好的清单](http://www.makeuseof.com/tag/block-time-google-calendar/) 把具体的时间段划分出来，以确保一个更平静、更有效率的工作日:
+
+*   开始新一天的 30 分钟
+
+*   会后立即花 15-30 分钟讨论行动事项
+*   2 小时的“深度工作”时间用于集中精力
+
+*   每天 1 小时响应意外的紧急请求
+
+*   每天结束时花 20-30 分钟总结并为明天做好准备
+
+你的日历会看起来很满，但你会知道被封锁的时间是你的。

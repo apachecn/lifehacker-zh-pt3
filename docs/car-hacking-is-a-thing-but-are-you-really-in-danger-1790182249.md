@@ -1,0 +1,60 @@
+# 汽车黑客是一回事，但你真的有危险吗？
+
+> 原文:[https://life hacker . com/car-hacking-is-a-thing-but-you-really-in-danger-1790182249](https://lifehacker.com/car-hacking-is-a-thing-but-are-you-really-in-danger-1790182249)
+
+随着现代汽车变得更加互联，功能更加智能，黑客攻击是一个真正的危险。很少见，但已经在发生了。我们还没有进入“停止引擎”的世界，但是很容易闯入一辆无钥匙进入的汽车 并偷走里面的一切，而车主却不知道车已经解锁。
+
+Watch
+
+坏消息是:闯入你的汽车只是一个问题，无钥匙进入不是唯一的漏洞。但也有一个好消息:你并没有真正的人身危险。然而，无论如何。由于这些“智能”和互联系统中的漏洞，今天的问题包括盗窃和闯入。不过，这并不意味着未来没有问题。
+
+去年，连线作家安迪·格林伯格为一对安全研究人员扮演了碰撞测试假人 ，他们从 10 英里外的
+接管了他驾驶的吉普车
+
+> 当两个黑客远程摆弄空调、收音机和雨刷时，我暗自庆幸自己在压力下的勇气。这时他们切断了传输。
+
+## **你能做些什么来保护你自己(和你的车)**
+
+即使你有一辆别致的、联网的、有应用程序支持的无钥匙进入的汽车，你也不是完全无法抵御这种攻击。教育自己是第一步。水星保险有 [的指引，帮助你找出你的汽车品牌和型号](https://blog.mercuryinsurance.com/how-hackable-is-your-car/) 有多脆弱，你可以利用这些信息来帮助保护你的投资。
+
+#### **保护您的表链**
+
+如今，智能互联汽车最常见的问题是无钥匙进入闯入。为了防止盗窃，专家建议无钥匙进入的车主将钥匙放在冰箱或微波炉(钢结构的电器，像法拉第笼一样)，用铝箔包裹，放在钢盒子里，或购买 RFID 钥匙保护器。
+
+在可用的选项中，RFID 钥匙链保护器可能是最好的，这也不是一种荒谬。极端的温度会损坏电池，当你在凌晨 3 点想喝杯茶时，你真的不想忘记你的表链在微波炉里。你会在市场上找到大量为此目的制作的 RIFD 袋；这与用来保护你的信用卡信息或护照免遭身份盗窃的基本技术是一样的。
+
+#### **取下您的 OBD II 加密狗**
+
+OBD(简称 [车载诊断](https://en.wikipedia.org/wiki/On-board_diagnostics) ) II 加密狗是一些保险公司提供的设备，用于监控你的驾驶习惯，在许多情况下，如果你总体上是一个安全的司机，它会为你提供安全驾驶折扣。它们通过转向柱底部的一个端口(auto mechanics 用于诊断汽车问题的相同端口，如为什么检查发动机灯亮了)连接到您的汽车，并通过蓝牙将信息上传到您的手机(和您的提供商)。拥有一个加密狗可能会帮你省钱，但它也提供了一个额外的访问点。不用的时候，拔掉插头。
+
+#### **抵御网络钓鱼攻击，磨练您的 BS 技能**
+
+如果你能用手机打开和启动汽车，其他人也能。挪威 [的研究人员最近展示了一种网络钓鱼技术](http://www.ibtimes.com/tesla-model-s-hack-oslo-based-security-firm-uses-android-hack-unlock-steal-car-2450833) ，他们可以利用这种技术窃取开走你的车所需的所有信息，只需要一部手机和一个通过公共 WiFi 提供的虚假信息。
+
+网络钓鱼诈骗很有说服力。在这种情况下，研究人员在附近的餐馆推出免费汉堡，作为交换，他们将一个应用程序下载到受害者的智能手机上，然后使用智能手机访问汽车。
+
+<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled Car Hacking Is a Thing, but Are You Really in Danger?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050) [###### 如何提高您的网络钓鱼检测技能并避免电子邮件诈骗](https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050) 
+
+网络钓鱼诈骗——通过伪装成…
+
+[Read more](https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050)</aside>
+
+其他常见的网络钓鱼诈骗包括看似来自您的银行或信用卡公司的电子邮件，或者引诱您点击恶意网站的提议。 [学会识别和避免试图窃取你的密码和个人信息](https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050) 到 [保护自己免受诈骗](https://lifehacker.com/how-to-protect-yourself-from-online-fraud-and-identity-5858197) 。
+
+#### **联系您在国会的代表**
+
+国会有一项法案，由参议员马基(D-MA)和布卢门撒尔(D-CT)发起的 [汽车(间谍车)安全和隐私法案](https://www.congress.gov/bill/114th-congress/senate-bill/1806/all-info) ，提出了联邦标准，要求制造商保护司机的安全和隐私。该法案还要求他们告知车主，他们的汽车提供的安全性超过了法案规定的最低标准。 [联系你在国会的代表](https://lifehacker.com/the-best-ways-to-contact-your-congress-people-from-a-f-1788990839) 让他们知道你支持法案。
+
+## **了解自己的弱点，不要惊慌**
+
+驾驶时接管汽车的功能需要专业技能，这一点并不明显。在美国政府问责局(GAO)的一份报告 中，研究人员指出，虽然真实的威胁肯定是可能的，但它们在很大程度上是理论上的。没有迹象表明，或报道的事件，导致任何人认为汽车被袭击者袭击，控制或关闭。现实世界的风险来自我们上面提到的小偷小摸和风险评估研究。至少在今天，当你开车时，你的车发生故障的可能性几乎是不存在的。
+
+加州大学的专家解释说 [真正的威胁最终必定有某种动机](http://www.autosec.org/pubs/cars-usenixsec2011.pdf) ，而让行驶中的汽车刹车失灵又有什么用呢？一些人推测，恐怖袭击或针对高价值特定目标的袭击可能是未来“汽车黑客”企图背后的动机，但更常见和更可能的危险是闯入、信息窃取或使用窃取的 GPS 数据跟踪公司竞争对手、名人或政治家的行动或模式。
+
+在这种背景下，互联网连接的汽车是非常宝贵的。监控器跟踪发动机性能和维护问题，制造商使用这些信息来改进下一代汽车，保险公司使用这些信息来评估风险。父母可以通过全球定位系统跟踪任性的青少年 ，近距离警报有助于防止事故发生。像 [GM OnStar Advisor 这样的车内援助服务可以在您的路线上找到并预订酒店](https://www.pega.com/insights/articles/omni-channel-omni-device-evolved-crm-iot) 或者在您发生事故时提供帮助。虽然我们可能面临潜在的数据窃取，但利益的交换值得我们去冒险。
+
+* * *
+
+随着车辆发展成为内置诊断、工具、附加设备和来自周围环境的输入的复杂设备，它们变得越来越容易受到黑客攻击。今天的汽车和轻型卡车都装有无线入口点。这种风险现在很小，但绝对是真实的，值得你在购买下一辆车或停放当前的车时考虑。
+
+山姆·伍利的标题插图。照片由[*<small>HighTechDad</small>*](https://www.flickr.com/photos/hightechdad/8381066438)*<small>和</small>*[*<small>BP 63 文森特</small>*](https://commons.wikimedia.org/wiki/File:Driver_free_car.jpg) *<small>组成。</small>*

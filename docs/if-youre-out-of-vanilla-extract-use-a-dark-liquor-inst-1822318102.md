@@ -1,0 +1,11 @@
+# 如果你没有香草精，用深色的液体代替
+
+> 原文:[https://life hacker . com/if-you-out-of-vanilla-extract-use-a-dark-liquid-inst-1822318102](https://lifehacker.com/if-youre-out-of-vanilla-extract-use-a-dark-liquor-inst-1822318102)
+
+香草是一种无处不在的成分，几乎存在于所有烘焙食品的每一个配方中，但是，除非你用大量的香草提取物制作香草美食，否则你可以加入一点波旁威士忌或黑朗姆酒。
+
+Watch
+
+正如艾玛·拉珀鲁克 在 Food52 上解释的那样，注入 pod 的血清的主要工作是提供一点点复杂性和深度。如果你的食谱只需要很少的量——一茶匙或更少——一点深色酒就能达到同样的效果。拉佩鲁克建议使用具有“独特个性”的深色酒精，如波旁酒或朗姆酒，但我迫不及待地想尝试一些苦甜参半的*阿玛里*酒，如西纳尔或诺尼诺。只是一定要加倍剂量；如果你的食谱需要一茶匙，那就用两茶匙。
+
+[拿出香草精？这个替代品大概就在你的厨房](https://food52.com/blog/21349-vanilla-extract-substitute) | Food52

@@ -1,0 +1,9 @@
+# 做熏肉黄油，放在所有东西上
+
+> 原文:[https://life hacker . com/make-bacon-butter-and-put-it-on-everything-1825658580](https://lifehacker.com/make-bacon-butter-and-put-it-on-everything-1825658580)
+
+培根油和黄油是极好的烹饪脂肪。它们价格合理(一个免费赠送培根)，味道很好，而且都促进了大量的褐变。与其在这两种人间美味中做出选择，不如将它们结合起来，创造出一种奇妙的复合黄油。
+
+Watch
+
+老实说，所有最好的复合黄油都含有一种动物脂肪——还记得 [鸡油](https://skillet.lifehacker.com/combine-butter-and-chicken-fat-for-the-tastiest-spread-1786120847) 吗？—但是培根黄油可能是最好的。它略带烟熏的特点意味着它可以简单地涂在吐司或番茄三明治上，但也非常适合烹饪；我的意思是，想想煎饼*一个人*。制作时，只需将一根黄油和两汤匙熏肉油脂混合在一起(都是室温)，搅拌它们，直到你有一个漂亮蓬松的涂抹。一旦吃完，试着用另一种(鸭子)脂肪。任何动物(鸭)脂肪都可以。

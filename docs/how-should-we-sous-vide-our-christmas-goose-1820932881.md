@@ -1,0 +1,9 @@
+# 我们应该如何腌制我们的圣诞鹅？
+
+> 原文:[https://life hacker . com/how-should-we-sous-vide-our-Christmas-goose-1820932881](https://lifehacker.com/how-should-we-sous-vide-our-christmas-goose-1820932881)
+
+好消息，各位:我为我们订购了一只圣诞鹅。这意味着你不会帮我挑选我们为圣诞节准备的东西，但是你可以帮助决定我们如何准备。
+
+Watch
+
+我从来没有煮过鹅，但我知道它们非常肥。我不介意一只油腔滑调的水禽，但我认为这里的关键是刻划皮肤，以帮助呈现所有美妙的鹅油。我想我会像处理火鸡 一样处理它 [，并把深色的肉和浅色的肉分开，但也许肉卷会是一个有趣的项目。我们也可以把皮完全去掉，把它做好，然后做一些鹅皮薯片。然后就是调味的问题。我们是用通常的家禽药草来保持经典，还是尝试一点中国五香粉？这里有很多决定要做，我们只有一次机会，所以让我们在评论中一起想清楚。](https://skillet.lifehacker.com/will-it-sous-vide-a-whole-thanksgiving-turkey-1789112054)

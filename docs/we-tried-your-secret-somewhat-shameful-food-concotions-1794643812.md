@@ -1,0 +1,15 @@
+# 我们尝试了你的秘密，有点可耻的食物混合物
+
+> 原文:[https://life hacker . com/we-tryed-your-secret-somethically-honest-food-congotions-1794643812](https://lifehacker.com/we-tried-your-secret-somewhat-shameful-food-concotions-1794643812)
+
+还记得几周前，当我问你们最奇怪的，有点可耻的，秘密的饮食习惯 时吗？原来，你们这些人是垃圾天才，能够让我大开眼界，发现吃奶酪通心粉、速食拉面和垃圾食品的令人兴奋的新方法。
+
+Watch
+
+阅读你辉煌的，非常诱人的食谱是不够的；我需要用自己的嘴品尝它们，所以我挑选了一些我最喜欢的来测试。这是结果。
+
+### 多萝西酸奶油通心粉和奶酪
+
+桃乐茜其实不是第一个让我注意到这个蓝盒子的人。鉴于我对酸奶油深深的真爱，我知道这是我必须尝试的东西。
+
+<iframe src="https://api.kinja.com/embed/thread/1793910751" height="350" width="640" scrolling="no"></p><p class="sc-77igqf-0 bOfvBY">我准备的几乎和多萝西在她的评论中描述的一模一样，除了我不知何故没有胡椒了。(老实说，我认为我的回忆录的标题将会是<em>总是出一些他妈的主食:克莱尔下层故事</em>。)</p><p class="sc-77igqf-0 bOfvBY">总之。原来酸奶油 mac 还蛮不错的。首先，它甚至比“传统的”制作方法更容易，因为你少了一种成分，而且它有那种奇妙的味道，确实能增强奶酪的味道。它也是超级奶油和完全上瘾，就像酸奶油本身。我给这 5 个煎锅中的 4 个。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><h3 class="sc-1bwb26k-1 kpbNNd" id="h298842">本·a 的融化奶酪放在一个盘子里，上面有辣酱</h3><p class="sc-77igqf-0 bOfvBY">我从七岁开始就喜欢吃盘子里的融化奶酪——我清楚地记得在放学后看《权力流浪者》系列首播时吃了它——它一直保持着。不过我从来没有在上面放过辣酱，所以我很欣赏本的独创性。</p><p><iframe src="https://api.kinja.com/embed/thread/1793795812" height="350" width="640" scrolling="no"/></p><p class="sc-77igqf-0 bOfvBY">有些人可能认为他们不屑于吃盘子里融化的奶酪，但他们不是。没有人是。如果你曾经单独吃过一片奶酪，并没有觉得奇怪，那么你没有理由对吃融化在盘子里的奶酪感到奇怪。至于辣酱？没人应该对吃辣酱感到奇怪。基本上，这是一个美味的款待，它得到了 5 个煎锅中的 3.88。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h298843">戴格洛法西斯的 PB&amp;J 多力多滋</h3><p class="sc-77igqf-0 bOfvBY">把薯片放在三明治上的人很擅长美食，但是戴格洛法西斯主义者用这个瘾君子的梦想把它提升了一个档次:</p><p><iframe src="https://api.kinja.com/embed/thread/1793818712" height="350" width="640" scrolling="no"/></p><p class="sc-77igqf-0 bOfvBY">像所有的花生酱和果冻三明治一样，这很容易做，我很感激。如果说传统的 PB&amp;J 缺少什么，那就是质感，但多力多滋会照顾到这一点。味道方面，都有。你有你的甜果冻。你有美味，奶酪和鲜味。你已经有了丰富的奶油花生酱。</p><p class="sc-77igqf-0 bOfvBY">这是一种非常令人满意的三明治。我给它 4.25 分。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h298844">卢克·德瑞的黄油油炸拉面</h3><p class="sc-77igqf-0 bOfvBY">就在你认为你已经见识了所有的速食拉面技巧的时候，一个英雄出现了，他让你的生活质量变得更好。</p><p><iframe src="https://api.kinja.com/embed/thread/1793687989" height="350" width="640" scrolling="no"/></p><p class="sc-77igqf-0 bOfvBY">我不确定味道包是否应该包括在内，所以我首先尝试了一些用黄油油炸的普通拉面，味道相当不错。</p><p class="sc-77igqf-0 bOfvBY">但是调味包的咸味诱惑不能被忽视，所以我把它和更多的黄油一起倒进了锅里。</p><p class="sc-77igqf-0 bOfvBY">我把它炸得又香又脆——这样面条的软脆形成了鲜明的对比——然后把它铲到我(老实说有点宿醉)的脸上。很好。如果我有一个批评——真的，这是我的错，因为 RookDarkly 没有提到调料包——那就是它有点太咸了，我以后只会用半包。5 个煎锅中的 4.5 个。</p><h3 class="sc-1bwb26k-1 kpbNNd" id="h298845">无聊是无聊的垃圾三明治</h3><p class="sc-77igqf-0 bOfvBY">告诉你一个事实:垃圾邮件是好的。它是咸的。是脂肪。它像梦一样燃烧起来。告诉你另一个事实:这个三明治非常好吃。</p><p><iframe src="https://api.kinja.com/embed/thread/1793712979" height="350" width="640" scrolling="no"/></p><p class="sc-77igqf-0 bOfvBY">我在一个早上做了所有这些菜，考虑到前一天晚上我像一个焦虑的青少年一样抽着丁香烟，喝着苦艾酒，这是完美的时间安排，但结果是我没能吃完所有的东西。</p><p class="sc-77igqf-0 bOfvBY">不过，我最接近这个三明治了。热的油炸垃圾食品一接触就融化了牛皮纸，黄色芥末提供了急需的酸，以防止脂肪和盐过度饱和。对此我没有一句不好的话要说。五个煎锅中的五个。</p><p class="sc-77igqf-0 bOfvBY">总之，我要感谢你们所有人与我和世界其他人分享了你们精彩、奇特的食谱。你们是真正的烹饪英雄。</p> </body> </html></iframe>

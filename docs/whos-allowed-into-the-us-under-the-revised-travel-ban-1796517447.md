@@ -1,0 +1,33 @@
+# 根据修订后的旅行禁令，谁被允许进入美国
+
+> 原文:[https://life hacker . com/whos-allowed-into the-us-under-the-revised-travel-ban-1796517447](https://lifehacker.com/whos-allowed-into-the-us-under-the-revised-travel-ban-1796517447)
+
+周一，最高法院裁定唐纳德·川普旅行禁令的 [部分内容可以接受](https://www.nytimes.com/2017/06/26/us/politics/supreme-court-trump-travel-ban-case.html) ，导致国务院制定了一套新的禁令指导方针，适用于来自伊朗、利比亚、索马里、苏丹、叙利亚和也门的国民，只有少数例外。要从这六个穆斯林占多数的国家前往美国，旅行者必须证明他们与“美国的个人或实体”有“真诚的关系”，这种关系是“在正常过程中形成的，而不是为了逃避”禁令。这些指导方针将从美国东部时间今天晚上 8 点开始实施。
+
+Watch
+
+《纽约时报》将 [制作成一个互动指南](https://www.nytimes.com/interactive/2017/06/29/us/politics/supreme-court-trump-travel-ban.html) ，告诉人们谁可以、谁不可以进入美国。
+
+### 谁被允许
+
+法院裁定，旅行禁令不能适用于与“美国的个人或实体”有“真诚关系”的任何人特朗普政府已经澄清了这意味着什么。 [根据纽约时报](https://www.nytimes.com/2017/06/28/us/politics/homeland-security-prepares-to-issue-travel-restrictions.html?pagewanted=all&hp&action=click&pgtype=Homepage&clickSource=story-heading&module=first-column-region&region=top-news&WT.nav=top-news&_r=0) ，“亲密家庭”包括父母(包括岳父母)、配偶、子女、成年儿子或女儿、女婿、儿媳、兄弟姐妹(包括继兄弟姐妹)。但不包括祖父母、孙子女、姑姑、叔叔、侄女、侄子、表兄弟姐妹、姐夫和嫂子、未婚夫和任何其他大家庭成员。
+
+与一个实体的“真诚”关系可能包括在美国的大学演讲或在美国的一家公司工作。但它免除了公司和非营利组织建立关系的责任——比如称人们为“客户”——以帮助人们避开禁令。
+
+绿卡持有者、双重国籍者、美国公民和外交官将被允许进入美国。外交官包括联合国访客、北约官员、国际代表以及其他持有 A-1 或 A-2 签证的人。
+
+学生和工人将被允许进入美国，不管他们是否有签证。他们已经有资格获得非移民工作签证，因为他们在美国有“真正的”关系。2015 年，来自这六个国家的学生和工人共进行了 13，000 次临时访问。
+
+### 谁可能被允许
+
+游客和商务旅行者需要非移民签证才能去美国。否则，他们需要证明自己与美国的某人或某个实体有“真诚”的关系。
+
+通过工作或家庭身份获得签证的新移民不会被禁止进入美国，但那些通过抽签获得身份的人如果不能证明他们与美国的某人或某个实体有“真实”的关系，就不能进入美国。
+
+难民在 120 天内被禁止进入美国。然而，与美国人有“真诚”关系的难民将被允许入境，已经进入美国的难民将被允许居留。尚不清楚与安置机构有联系的难民是否会被允许进入该国。
+
+### **谁被禁止**
+
+其他任何不符合这些标准的来自这六个国家的人将在接下来的 90 天内被禁止进入美国。
+
+最高法院 [将于秋季](http://www.npr.org/2017/06/27/534528585/supreme-court-will-rule-on-trumps-travel-ban-in-the-fall) 对旅行禁令做出最终裁决。

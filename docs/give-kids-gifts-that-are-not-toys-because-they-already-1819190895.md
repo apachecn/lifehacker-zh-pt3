@@ -1,0 +1,45 @@
+# 给孩子不是玩具的礼物，因为他们已经有太多了
+
+> 原文:[https://life hacker . com/give-kids-gifts-than-than-is-than-that-that-is-that-that-that-that-be-that-that-that-that-that-then-they-believe-that-1819190895](https://lifehacker.com/give-kids-gifts-that-are-not-toys-because-they-already-1819190895)
+
+当孩子们兴高采烈地撕开他们的生日或节日礼物时，父母们准备迎接后果:一个堆满玩具的房子，在他们进入捐赠堆后的 2.7 秒之前，没有人会对这些玩具表示兴趣。循环是真实的。
+
+Watch
+
+当然，他们说你能给孩子最好的礼物是一些 [质量，与他们](http://www.huffingtonpost.com/christella-morris/the-gift-of-not-giving-a-thing_b_4236040.html) 连接的时间，但有时，那个孩子是你孩子班上的一个随机的，你需要把一些东西扔进礼品袋。这里有一些非玩具礼物的想法，孩子们会喜欢，父母也会欣赏。
+
+### **游乐园门票或季票**
+
+你可以选择简单或者迪士尼级别的奢华。对于年幼的孩子来说，去该地区一家游乐咖啡馆的通行证是一个便宜的选择。蹒跚学步的孩子可以在球坑里蹒跚学步，而父母可以享受咖啡和 Wi-Fi。双赢。
+
+还有，总是有用的:动物园、博物馆、水族馆、保龄球馆、剧院演出、溜冰场、体育赛事、电影、迷你高尔夫、游乐园等的门票或通行证。
+
+### 订阅杂志和主题盒子
+
+给孩子一个每月焦急查看邮箱的理由*和*通过赠送杂志订阅帮助印刷媒体生存。这里有一份适合 12 岁以下儿童的 [和](https://www.babble.com/kid/youve-got-mail-subscriptions-theyll-love/) 清单。我的朋友陈伶俐说，她儿子的同学给了他一份动物园杂志的订阅，他“期待着每一份新杂志”
+
+一个更贵的选择是赠送一个包月盒子。每个年龄层和兴趣都有适合的东西—[Bookroo](https://bookroo.com/)[LitJoy 板条箱](https://www.litjoycrate.com/) 和 [文人](https://literatibooks.com/) 用于书籍， [猕猴桃板条箱](https://www.kiwico.com/) 和 [小护照](https://www.littlepassports.com/) 用于学习， [食品搅拌](https://foodstirs.com/) 用于烘焙。
+
+### 歌唱他们名字的歌曲
+
+这张 [个性化埃尔莫 CD](https://www.singalongwithelmo.com/) 在初学走路的孩子中很受欢迎。(当我的孩子还是个婴儿时，只有 Elmo 的声音和“Oppa Gangnam Style”会让她平静下来。)在这张专辑中，Elmo 唱了 63 次这个孩子的名字。我会永远记住它作为我 2014 年的配乐。
+
+### 一个很酷的 DIY 项目的说明和所有材料
+
+许多父母喜欢孩子 DIY 项目的想法，但讨厌收集材料和配料的实际过程(“不，我的储藏室里没有鞑靼奶油！”)如果你为他们工作，这是一种很好的礼物。我的朋友梅丽莎的女儿得到了制作一座自制火山所需的说明和所有材料。“阿德莱德不仅被迷住了，动手能力强，富有创造力，而且这是 40 分钟专注的乐趣——靠她自己！”梅丽莎说。你可以对粘液、缝纫项目或任何东西做同样的事情。如果这个项目是你自己的孩子尝试过并喜欢的，那就更好了。
+
+### 蝴蝶套装
+
+你可能会想先征得父母的同意，因为不是每个人在家里看到一箱爬行动物时都会表现出同样的兴奋，但 [蝴蝶套装](https://www.amazon.com/Insect-Lore-Live-Butterfly-Growing/dp/B00WE1BKDY/ref=pd_sim_21_12?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/give-kids-gifts-that-are-not-toys-because-they-already-1819190895&asc_source=&psc=1&refRID=ZW1DDT7CYZD784X0W9AZ&tag=kinjalifehackerlink-20) 就是这么酷。看毛毛虫变形很有趣，你总是觉得说“变形”很聪明几年前，我四岁的女儿养了一只蝴蝶，现在，即使是现在，每当她在后院看到一只蝴蝶，她都会说:“看，拉拉回来了！”
+
+### **真实工具**
+
+Lifehacker 的评论者 bri451 最近 [讲述了一个很棒的故事](https://offspring.lifehacker.com/1818728669) 关于她小时候收到的最喜欢的礼物之一。
+
+> 有一年圣诞节，大概是我四五岁的时候，姨妈给我和我的三个兄弟每人买了一把锤子和一盒钉子。她还扔了一些旧木托盘到混合物中。我们把太多东西钉在其他东西上。仍然是有史以来最好的圣诞礼物之一
+
+多有趣啊。让孩子接触真正的工具是许多父母回避的事情，但让他们玩棘轮、扳手和锤子也有好处(当然是在他们理解安全规则之后)——它增强了孩子的自我意识，尊重他们的能力，给他们一种成就感 。
+
+### 现金—一美元纸币
+
+如果孩子足够大，能够理解真钱的概念，如果你很着急，10 或 20 张一美元的钞票对任何年龄的孩子来说都是令人兴奋的礼物。

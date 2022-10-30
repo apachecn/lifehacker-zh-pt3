@@ -1,0 +1,23 @@
+# “彩票中奖者”承诺每转发一条微博可获得 5000 美元，这是一个骗局
+
+> 原文:[https://gizmodo . com/the-lottery-winner-promising-5-000 for-every-retweet-I-1822116633](https://gizmodo.com/the-lottery-winner-promising-5-000-for-every-retweet-i-1822116633)
+
+你见过这条 [病毒推文](https://twitter.com/misler_shane/status/952616554319044609) 吗？它看起来像是来自谢恩·米斯勒，一个 20 岁的佛罗里达州彩票中奖者，他承诺给每个转发该账户的人 5000 美元。但这百分之百是假的。
+
+Watch
+
+假推特 [上写着](https://twitter.com/misler_shane/status/952616554319044609) :“嘿伙计们！我中了 4 . 51 亿美元的彩票。借助这个不可思议的机会，我将向转发并喜欢这篇帖子的前 5 万名粉丝返还 5000 美元。这太贵了，我喜欢帮助别人！”
+
+不幸的是，对于那些转发、喜欢和关注这个账号的人来说，整个事情就是一个巨大的骗局。在现实生活中，米斯勒确实赢得了 4.51 亿美元，并选择了一次性付款，税后总额约为 2.11 亿美元。但他不会在推特上免费送钱。
+
+ [https://gizmodo.com/embed/inset/iframe?id=twitter-952026008961548289&autosize=1](https://gizmodo.com/embed/inset/iframe?id=twitter-952026008961548289&autosize=1) 
+
+病毒假账户中使用的照片来自 Missler 的真实 [脸书页面](https://www.facebook.com/shane.missler.5) ，但不是他本人。Missler 的真实推特账号是[@ theshanmissler](https://twitter.com/TheShaneMissler/status/952026008961548289)，于 2016 年 2 月开始使用。这个假账户是几天前创建的。
+
+米斯勒在一份声明中说，他希望“为人类做点好事”，但这并不意味着在 Twitter 上一次向随机的陌生人赠送 5000 美元的百万奖金。
+
+“我打算照顾我的家人，一路上玩得开心，并巩固一条财务成功的道路，以便我可以在未来留下遗产，”米斯勒在一份声明中说。“我一直鼓励追逐梦想，我相信生活就是追求激情。我今年 20 岁，我的旅程才刚刚开始。”
+
+涌现出许多不同的假谢恩·米斯勒账户，每个账户提供不同的金额(这个账户承诺每个 [转发和关注](https://twitter.com/shane_missler/status/952229666093502464)1000 美元)，但它们好得令人难以置信。
+
+俗话说，天下没有免费的午餐。转发假彩票中奖者也没有任何好处。想象一下分发这些钱的后勤工作。你怎么会给五万个不同的人钱？如果有人真的想以这种方式分配资金，他们会因为试图独自操纵 DMs 而发疯。

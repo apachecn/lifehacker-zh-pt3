@@ -1,0 +1,15 @@
+# 三种成分的欢乐时光:Boulevardier
+
+> 原文:[https://life hacker . com/3-ingredient-happy-hour-the-boulevardier-1822006 191](https://lifehacker.com/3-ingredient-happy-hour-the-boulevardier-1822006191)
+
+各位周末快乐，欢迎回到 [*三料欢乐时光*](http://lifehacker.com/tag/3-ingredient-happy-hour) ，每周饮品专栏，提供超级简单又美味的酒水。本周，我们将推出标志性的尼格罗尼威士忌的近亲:Boulevardier。
+
+Watch
+
+尼格罗尼将金巴利酒和甜苦艾酒与杜松子酒搭配，而布雷瓦迪尔则采用辛辣、更具冬季气息的黑麦威士忌(你也可以使用波旁酒，但我认为那有点太甜了)。这种简单的交换产生了一种非常不同的饮料，这是一种什么样的饮料。基本上，这就是我在寒冷的天气里喝坎培里酒的方法，当苏打水看起来太脆了，而尼格罗尼又太瘦了。要自己做一个，你需要:
+
+*   1.5 盎司黑麦威士忌
+*   1 盎司金巴利
+*   1 盎司甜苦艾酒
+
+将所有原料倒入加冰的混合杯，搅拌至完全冷却。滤入双座玻璃杯或大岩石上的低杯，尽情享受。

@@ -1,0 +1,21 @@
+# 使用 Hopper 的新“秘密票价”获得高达 35%的航班折扣
+
+> 原文:[https://life hacker . com/hoppers-new-secret-fares-offer-flight-discounts-as-high-1825693294](https://lifehacker.com/hoppers-new-secret-fares-offer-flight-discounts-as-high-1825693294)
+
+从今天开始，旅游应用 Hopper 将 [提供国际航班的秘密票价](https://www.hopper.com/corp/announcements/introducing-secret-fares) ，这是该网站独有的新功能，据称它将提供比你在其他网站(包括其他机票折扣店)上找到的机票便宜 35%的机票。
+
+Watch
+
+Hopper 表示，折扣是独家的，因为它们是与航空公司特殊合作关系的一部分，由于 Hopper 的移动在线平台，航空公司对这种合作关系持开放态度。这个想法是，如果达美航空在其网站上降低 100 美元，那么美国航空和联合航空可能会看到折扣并与之匹配，开始价格战而不是短暂的讨价还价。
+
+虽然这对消费者来说并不完全是坏事(如果航空公司努力给我最便宜的航班，我个人会很高兴)，但这对航空公司来说并不理想，这意味着他们通常不会这样做，或者至少不会像他们声称的那样通过 Hopper 打折。
+
+“秘密票价”将在 60，000 多条不同的路线上推出，包括巴黎、东京和巴塞罗那等目的地。与其他一些网站不同，当你买便宜货时，你会提前知道你预订的是哪家航空公司，以及你的到达和离开时间，所以你不只是说“给我最便宜的！”旋转轮盘赌。霍普说，在长途航班上，每张机票的折扣可能是 500 美元或更多。
+
+以下是 Hopper 称测试版用户已经购买的一些秘密票价的概要，从折扣的角度来看，这些票价可能是“最好的情况”，但看起来非常诱人:
+
+那么，你现在应该只通过 Hopper 购买航班吗？绝对不行。仅仅因为霍普有一个“秘密票价”并不意味着另一家航空公司的公共票价不会更好。但是，如果你很快就要计划一次国际旅行，看看他们为你想要的目的地提供了什么可能是值得的。
+
+如果你打算什么时候预订，这里有一个关于 [的纲要，当购买](https://lifehacker.com/the-best-time-to-buy-an-international-plane-ticket-bas-1825046688#_ga=2.182575782.1801512596.1525203020-1914111652.1515610632) 的最佳时间可能是基于 100 万美元的机票。
+
+如果你想看看，还没有下载这个应用程序，你可以在这里找到安卓 的 [和 iOS 设备](https://play.google.com/store/apps/details?id=com.hopper.mountainview.play&hl=en_US) 的 [。](https://itunes.apple.com/us/app/hopper-book-flights-hotels/id904052407?mt=8)

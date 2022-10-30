@@ -1,0 +1,19 @@
+# 如何找到能吸引孩子的应用
+
+> 原文:[https://life hacker . com/how-to-find-apps-that-engage-your-kids-1824090959](https://lifehacker.com/how-to-find-apps-that-will-engage-your-kids-1824090959)
+
+儿童科技让父母陷入了一种永久的不确定状态:新东西出现的速度比我们能够确定它对年轻人大脑的影响的速度还要快。成千上万的应用程序被吹捧为教育性的，但这到底意味着什么呢？应用商店或谷歌 Play 商店的评论不会给你一个直截了当的答案。通常，最受赞誉的产品只是那些让小阿玛亚或雨果保持最长时间光荣沉默的产品。
+
+Watch
+
+《屏幕时间的艺术》一书的作者 Anya Kamenetz 在《T2》和《T3》中写道，好的技术可以激发孩子的好奇心，帮助他们学习，如果这是你想要的，那么看看它把你的孩子放在什么位置是很重要的。一个应用程序是否通过闪烁的星星或掌声音效等外部奖励让你的孩子对多巴胺上瘾？还是让你的孩子掌握主动权，按照自己的节奏探索新世界？
+
+Kamenetz 写道，一个有帮助的思考方式是“老虎机与沙盒”她将吃角子老虎机类型的学习应用程序描述为“浅显的、死记硬背的阅读或数学事实搭配鼓励的‘叮’!、‘硬币和笑脸’。”她写道，在教育技术界，这类项目被称为“巧克力西兰花”当然，孩子们可能会学到一些新东西，但他们可能不会记住它，或者不能在其他场合使用它。
+
+专家说，老虎机应用程序的对立面，也是更好的选择，是像沙箱一样构建的应用程序。Kamenetz 将这些描述为开放式的儿童项目，其中“概念从他们的探索中有机地产生。”与其说它们是游戏，不如说它们是数字游乐场。没有真正的规则可循，没有要完成的关卡，也没有获胜的方法。孩子们可以成为导演，而不是被动的参与者。
+
+制作这类应用的公司包括 [Tinybop](https://tinybop.com/) (生物花园，如上图，让孩子们与不同的生物杂交，创造不同的品种)，以及 [Toca Boca](https://tocaboca.com/) 。我五岁的女儿喜欢玩 [Toca Boca](https://tocaboca.com/) 烹饪和美发游戏，我也喜欢屏幕时间结束后我们不必从她小手里撬 iPad。没有声音喊着“干得好！”或者“你做到了！”每三秒钟让她渴望更多。常识媒体也有一个奇妙的 [应用程序列表，帮助孩子们创建媒体](https://www.commonsensemedia.org/blog/new-strategies-to-get-kids-to-create-media-not-just-consume-it) 而不是简单地消费它。 [日记 Zapp](http://www.diaryzapp.com/) 是一个书面和视觉的日记应用程序， [GoldieBlox 和电影机器](https://www.goldieblox.com/products/goldieblox_and_the_movie_machine) 让孩子们制作自己的定格电影， [Duckie Deck 自制乐队](http://duckiedeck.com/apps/homemade-orchestra) 让玩家摆弄家用物品制成的“乐器”。
+
+当然，即使一个应用程序像沙盒一样构建，你仍然需要监控它。和你的孩子一起玩*，一起探索游戏。问一些相关的问题，看看你的孩子创造的酷金字塔或烹饪创意或新的哺乳动物品种。然后，当你完成后，也许去找一个真正的沙箱。*
+
+[“让孩子觉得很棒的应用可能会让你大吃一惊”](http://adage.com/article/digital/makes-app-great-kids-surprise/312687/) |格言

@@ -1,0 +1,18 @@
+# 万圣节隐形眼镜安全吗？
+
+> 原文:[https://life hacker . com/are-Halloween-contacts-safe-1819717860](https://lifehacker.com/are-halloween-contacts-safe-1819717860)
+
+接触猫的瞳孔或霓虹的颜色会很有趣，但是你确定你想把一片服装店的塑料放进你的眼睛里吗？我们从美国验光配镜协会 那里得到了一些建议，告诉我们如何在聚会上看起来很酷，而不会引起严重的眼部感染。
+
+Watch
+
+首先，如果你可以在没有眼科医生处方的情况下购买隐形眼镜，它们是不合法的。不过，实物可能会很贵:我们发现每个镜头的价格从 22 美元到 50 美元不等*[【lens.com】](https://www.lens.com/halloween-contact-lenses/)[AClens](https://www.aclens.com/halloween-type)和 [Wicked Eyez](https://wickedeyez.com/) 。(这些网站都允许你在线订购，但你必须在结账屏幕上提供你的医生信息。)*
+
+*一旦你有了镜片，你就必须知道如何保养它们。如果你每天都戴隐形眼镜，你就已经知道该怎么做了。但是如果你只是挑选一双来搭配服装，这里有一些基本的东西:*
+
+*   *在接触镜片前要洗手。*
+*   *将它们保存在隐形眼镜溶液中，并保持镜片和镜片盒的清洁。*
+*   *不要带着它们睡觉或游泳。*
+*   *看在上帝的份上，不要和你的朋友分享！*
+
+*阅读更多关于 [如何护理你的隐形眼镜和眼睛](https://www.aao.org/eye-health/glasses-contacts/contact-lens-care) 的内容，因为当你脱下僵尸装后，布满血丝的样子就不再酷了。*

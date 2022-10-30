@@ -1,0 +1,35 @@
+# 母乳喂养妈妈的伴侣实际上能有什么帮助
+
+> 原文:[https://life hacker . com/how-partners of-pulsing-moms-can-be-help-1827747383](https://lifehacker.com/how-partners-of-breastfeeding-moms-can-actually-be-help-1827747383)
+
+作者 Catherynne Valente 在《新妈妈母乳喂养指南》中发现了一段话，这本书写于 2002 年，而不是 1952 年，请注意，它写道:“父亲们，如果你的妻子有麻烦或疼痛，介入并调整她的技巧，提醒她成功的母乳喂养是孩子发展和组建新家庭的优先事项！”她的反应？*号*
+
+Watch
+
+她发推特说:
+
+ [https://lifehacker.com/embed/inset/iframe?id=twitter-1019765713593094145&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1019765713593094145&autosize=1) 
+
+父亲和伴侣是母乳喂养成功的关键部分——真的。但是你提供支持的方式会有很大的不同。以下是你如何真正帮助母乳喂养的妈妈(并活下来告诉别人)。
+
+### **知道她的目标**
+
+我和许多新妈妈一样，很难进行母乳喂养。我的女儿不会闭锁，我不得不戴上 [乳头保护罩](https://www.amazon.com/Medela-Contact-Nipple-Shield-24mm/dp/B000067PQ0?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-partners-of-breastfeeding-moms-can-actually-be-help-1827747383&asc_source=&tag=kinjalifehackerlink-20&th=1) ，这让我觉得我的乳头不够用。我们一直不得不用配方奶来补充，我知道这没什么大不了的(说真的，感谢配方奶)，但当时感觉非常失望。每当我的宝宝需要吃饭的时候，那种失败感每两三个小时就会回来。我哭了很多次。我老公当然不想看到我受伤，一直跟我说可以退出。我知道他的提醒是出于关心，但更多的是沮丧而不是帮助。我会说，“我告诉自己我会坚持一个月，所以这就是我要做的。”(五个星期后我终于找到了窍门，最后母乳喂养了 20 个月。)
+
+我的同事贝丝是这样说的:“你是不是去参加马拉松，然后大喊‘别这样！“你还是开车吧，”？“了解伴侣的哺乳目标，这样当事情变得艰难时，你可以支持她的初衷。(当然，确实会出现问题，您经常需要根据需要重新路由，但是您明白这一点，对吗？)
+
+### 成为实用玩家
+
+即使你没有携带食物，你也不是一无是处——远非如此。正如一位名叫詹姆斯的父亲，后代脸书集团的成员，解释说:“就像棒球中的公用事业球员一样，你不必参与比赛，而是帮助促进比赛。”这意味着帮助妈妈创造一个舒适的环境(用枕头支撑她，转动她的热敷和冰袋， [按摩她的乳房](https://vimeo.com/65196007) 如果她有导管堵塞或乳腺炎)，在她要求之前重新装满她的水杯和零食供应，清洗瓶子和泵部件，在她不哺乳时带她出去(如果天气好的话，把孩子放在吊带里，出去散步)，并保持房子整洁。然后到了该喂奶的时候，把宝宝抱给她。
+
+### 给她联系有用的资源
+
+有时候你的伴侣需要外界的帮助，所以让她很容易得到帮助。在你的手机上记下哺乳顾问、导乐或助产士的号码，如果她在挣扎，问她，“你想让我打个电话吗？”对她来说，和一个知道母乳喂养有多难的女朋友交谈(或哭泣)也是有帮助的，所以提醒她关于那个人。(网上母乳喂养社区也可以很棒，尽管以我的经验来看，很难找到一个真正对你的选择不加评判的团体。)基本上就是让她知道她不是一个人。
+
+### 知道事情
+
+知道 [集群喂食](https://kellymom.com/parenting/parenting-faq/fussy-evening/) 是什么。明白 [暴饮暴食](https://kellymom.com/bf/concerns/mother/engorgement/) 会痛得要命。学会 [落魄](https://www.parents.com/advice/babies/breastfeeding/what-is-letdown-and-how-long-does-it-take/) 不是她对你的看法。研究 [不同类型的持有](https://www.babycenter.com/0_positions-and-tips-for-making-breastfeeding-work_8784.bc) 。在这段经历中与她在一起意味着受过教育，能够与她或外部专业人士谈论随之而来的许多问题。
+
+### 听
+
+通常，母乳喂养的妈妈最需要的就是你在旁边听着。你不需要说“积极思考”或“你能行！”或者“你的胸部看起来很大。”听她说，抚摸她的脖子，告诉她她做得很好，你在她身边，你爱她。然后，再抱一次宝宝，让她睡午觉。

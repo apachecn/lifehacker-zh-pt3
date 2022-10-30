@@ -1,0 +1,43 @@
+# 当你没有相关工作经验时，简历上应该写些什么
+
+> 原文:[https://life hacker . com/what-to-put-on-when-you-have-no-relevant-wo-1750194488](https://lifehacker.com/what-to-put-on-your-resume-when-you-have-no-relevant-wo-1750194488)
+
+你的梦想工作刚刚发布，你非常兴奋。只有一个问题:你实际上没有相关的工作经验。无论你是转行者还是没有实习经历的应届毕业生，你能在简历上写些什么让你看起来尽可能合格呢？
+
+Watch
+
+*本帖原载于* [*缪斯*](https://www.themuse.com/advice/what-to-put-on-your-resume-when-you-have-no-relevant-work-experience) *。*
+
+不要担心。你可以包括一些不同的东西，以及一些格式技巧，这将有助于你尽可能地展示自己。
+
+### **相关和可转移的技能**
+
+大多数简历会以相关的工作经验开头(或者如果你是应届毕业生，学历后面会有相关的工作经验)。当相关经验不是你的强项时，这就成了一个问题。但是不要把你简历上的主要内容浪费在只会让招聘人员困惑的事情上，而是从你的相关技能开始。
+
+别告诉我你没有。你认为你能做这份工作一定有原因。你可能从以前不相关的经历中获得了可转移的能力，或者你在学校做学术项目时发展了技能。无论如何，如果你是一个职业改变者，试着在简历的开头用概括你的所有技能。应届毕业生们，把你的 [技能部分](https://www.themuse.com/advice/the-resume-section-that-matters-more-than-youd-think) 从简历底部弹出到你所受教育的正下方。
+
+<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled What to Put on Your Resume When You Have No Relevant Work Experience](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-do-i-get-a-job-when-i-have-no-relevant-experience-5720706) [###### 我没有相关经验怎么找工作？](https://lifehacker.com/how-do-i-get-a-job-when-i-have-no-relevant-experience-5720706) 
+
+亲爱的生活黑客，我在我想工作的领域没有相关的经验，并且我有一个
+
+[Read more](https://lifehacker.com/how-do-i-get-a-job-when-i-have-no-relevant-experience-5720706)</aside>
+
+### **相关方及学术项目**
+
+说到学术项目，有一点很重要，那就是这些项目是公平竞争的，绝对应该写进你的简历。同样的道理也适用于你在工作或学校之外从事的兼职项目。只要你清楚地把这段经历标为项目工作，就没有什么能阻止你把它写进简历——而且你绝对应该这么做！不要认为只有全职的、有报酬的经历才能出现在你的简历中。
+
+一种方法是创建一个“项目”部分。在这里，你可以像写工作经历一样写你的项目工作。想想那些帮助你实现职业兴趣的经历。它是一个班级项目吗？也许你志愿去帮助一些最终激发你新的职业目标的事情——这种经历你可以写进你的简历的“项目”部分。用类似的格式来帮助招聘人员理解这也是一次宝贵的经历，在考虑你是否适合你感兴趣的职位时，应该对其进行评估。
+
+### 一封热情而具体的求职信
+
+好吧，从技术上来说，这不是你简历的一部分，但是我坚信简历一定要和一封有力的求职信结合在一起。如果你没有相关经验或曲折的职业道路，这一点尤为重要。正如职业专家瑞安·卡恩在《T2》T3 中解释的那样，“找到一种方法，将你的激情和生活经历与公司联系起来，然后解释一旦你被录用，这将如何转化为你立即投入工作。你会发现，这种联系正是雇主们希望从应届毕业生身上找到的那种经历。”
+
+对于转行者来说也是如此，但是你也有更多的工作经验。求职信是一个绝佳的机会，让你能够 [将公司的需求和你在职业生涯中积累的](https://www.themuse.com/advice/the-perfect-cover-letter-template-to-show-off-your-skills) 技能联系起来。这里具体点。你真的要向招聘经理解释清楚，解释为什么你的非传统背景甚至可能是一种优势，这样当他们看完你的信时，他们就会很好地理解为什么他们雇佣你是有意义的。
+
+进入一个新的职业是一项艰苦的工作，尤其是现在许多入门级的工作都要求有两三年的经验。克服这一点的诀窍是真正梳理出那些细节，比如相关的技能和相关的附带项目，打破阻止你把它们放在简历前面和中心的简历“规则”。加上一封引人入胜的求职信，再加上人脉和一些运气，你一定会很快引起招聘经理的兴趣。
+
+|缪斯
+
+* * *
+
+张丽莉是麻省理工学院的职业发展专家，在那里她与从本科生到博士的一系列学生一起研究如何实现他们的职业抱负。当她不沉迷于一本新书或电子游戏时，她会思考、谈论或写关于职业的东西。跟着她在推特上沉思[<small>*@ lzhng*</small>](https://twitter.com/lzhng)<small>*。图像由*</small> [<small>*里拉维加*</small>](http://www.shutterstock.com/pic-229059250/stock-vector-job-interview-concept-with-business-cv-resume.html)<small>*(*</small>[<small>*Shutterstock*</small>](http://shutterstock.com)<small>*)。*T39</small>

@@ -1,0 +1,23 @@
+# 使用 WiFi 分析仪查看您的 Wifi 情况到底有多糟糕
+
+> 原文:[https://life hacker . com/see-how-bad-your-wifi-situation-really-is-with-wifi-ana-1826534324](https://lifehacker.com/see-how-bad-your-wifi-situation-really-is-with-wifi-ana-1826534324)
+
+[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+
+Windows:有上百万个小应用程序，它们的特色是 wifi 和分析这两个词的某种组合，或者与这两个词非常接近的东西。有些 app 是付费的；有些是免费的。它们都允许您查看有关您的无线设置(以及您周围的人的无线设置)的信息的不同组合。
+
+Watch
+
+前几天我在浏览 Windows 商店时偶然发现了 [WiFi 分析器](https://www.microsoft.com/store/productId/9NBLGGH33N0N) (免费)，我认为这是一个很棒的简单实用工具，可以查看你家里或公寓的无线状况有多差。
+
+如果我们都生活在一个有些孤立的、几英亩大的区域，只包含我们的 wifi“气泡”，那将是理想的，但现实是，你周围的每个人可能都有一百万个不同的路由器，它们都在一堆无线信道上发送信号。你想要为你的设备提供最好的连接，使用一个没有很多强大的竞争无线网络的频道会有所帮助。
+
+我喜欢 WiFi Analyzer，因为它提供了一个简单的实时图表，显示 Windows 笔记本电脑可以找到的任何无线网络的信号强度(或者台式机，如果你出于任何原因不喜欢使用以太网连接的话)。它甚至会建议您应该为自己的无线网络使用哪些信道(尽管传统观点是 2.4GHz 使用 1、6 或 11，5GHz 使用看起来最不拥挤的信道)。
+
+该应用程序还会为您提供更多关于您当前连接的无线网络的信息，可能是您自己的网络，包括它使用的信道、带宽和协议(如果您需要确认您的 ISP 给你的路由器是一个蹩脚的旧 wireless-n 路由器)。
+
+虽然 WiFi Analyzer 不会为您的笔记本电脑提供更好的连接，但它至少会照亮道路，并可能帮助您将自己的无线网络从 WiFi 拥塞中解放出来。如果你住在公寓楼里，你至少可以对其他人信号的电波拥挤程度一笑置之——欢迎来到无线地狱。(我的建议？只要坚持 5GHz，如果你的设备支持它，它给你足够的范围。)
+
+* * *
+
+你有一个你绝对喜欢的 Windows 应用程序(付费或免费)吗？跟我们说说:[](mailto:david.murphy@lifehacker.com?subject=Windows%20App%20of%20the%20Week)**。**

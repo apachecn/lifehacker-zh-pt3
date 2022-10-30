@@ -1,0 +1,59 @@
+# 如果你住在受野火威胁的地区，如何保持安全
+
+> 原文:[https://life hacker . com/how-to-stay-safe-if-you-live-in-a-wild fire-threat-a-1819406919](https://lifehacker.com/how-to-stay-safe-if-you-live-in-a-wildfire-threatened-a-1819406919)
+
+当你处在一片火海中时，你很难呼吸，更不用说思考了。作为一名经历过科罗拉多斯普林斯毁灭性的沃尔多峡谷和黑森林大火的老兵，我可以证明这一点。对于美国和加拿大的野火来说，这是艰难的一年——尽管许多人现在都在关注加州中部的 10 处活跃的野火，但亚利桑那州、内华达州、俄勒冈州和西弗吉尼亚州也有大火燃烧。
+
+Watch
+
+如果你目前正在处理你所在地区的野火，试图帮助你所爱的人，或者只是提前考虑，我们希望这个安全指南可以提供一些帮助。
+
+### 了解您的野火风险
+
+[国家跨部门消防中心](https://www.nifc.gov/) (NIFC)是评估你个人风险的最佳起点之一——无论火灾在你周围肆虐还是一切都很平静。
+
+在这个网站上，你可以找到 [到国家机构间协调中心](https://www.nifc.gov/nicc/index.htm) 的链接，从那里，直接点击进入你的区域，查看当前燃烧的火灾，反应是什么，以及区域火灾潜力和天气展望。
+
+州和县的网站也可以提供最新的信息。
+
+<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">[![Image for article titled How to Stay Safe If You Live in a Wildfire-Threatened Area](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-can-i-do-to-help-after-a-disaster-5957747) [###### 灾难发生后，我能做些什么来提供帮助？](https://lifehacker.com/what-can-i-do-to-help-after-a-disaster-5957747) 
+
+亲爱的生活黑客，飓风桑迪对我很残酷。现在我的力量恢复了，我开始…
+
+[Read more](https://lifehacker.com/what-can-i-do-to-help-after-a-disaster-5957747)</aside>
+
+### 确保您正在接收本地警报
+
+如今，大多数蜂窝服务提供商都参与了 [无线紧急警报计划](https://www.ctia.org/consumer-tips/how-wireless-emergency-alerts-help-save-lives) 。你不必注册该程序，但你需要确保你的手机上选择了接收这些免费的、位置感知的、类似文本的通知的选项。
+
+当您所在的区域发生火灾时，您将收到当地公共安全官员认为必要的紧急威胁警报。当我们五年前在科罗拉多斯普林斯经历沃尔多峡谷火灾时，收到提醒我们个别社区需要疏散的警报特别有用。
+
+### 准备撤离
+
+我们知道我们应该有一个疏散计划。我们没有，所以我们开始了这个过程，因为我们呼吸着烟雾，整天把电视调到当地新闻。如果我能说一件事的话，那就是我希望我们已经提前把这件事做好了。如果你目前安全，[ready.gov 可以帮你制定一个](https://www.ready.gov/make-a-plan) 的计划。(如果你像我们一样，它可以帮助你快速上手。)
+
+您应该知道答案的问题:
+
+*   如果你不能在家，你会住在哪里？
+*   你的家庭成员有什么特殊需求(医疗需求、饮食需求、残疾等)。)?
+*   如果你有宠物，你将如何管理它们和它们的需求？
+*   你的撤离路线是什么？
+*   你的家人有什么即使分开也要保持沟通的打算？
+*   你需要带什么文件和证件？
+
+*   在撤离前，你需要做些什么来保护你的家？
+
+### 保护你的健康
+
+如果你住在火灾活跃区或从火灾活跃区撤离，你可能会遇到飞溅的火花和灰烬，所以如果你需要在户外，穿防护服和鞋。
+
+除此之外，吸烟成为最大的问题。虽然受野火烟雾威胁最大的是老人、儿童和患有心脏病或肺病的人，但吸入烟雾会影响任何人。 [美国疾病预防控制中心](https://www.cdc.gov/features/wildfires/index.html) (CDC)建议:
+
+*   通过环境保护署的[AirNow.gov](https://www.airnow.gov/index.cfm?action=airnow.main)网站查看空气质量，并建议在户外暴露多少时间对你的特定邮编是安全的；
+*   咨询当地的能见度指南，这样你就知道你的空气中微粒的水平；
+*   如果建议你呆在室内，尽可能保持室内空气清洁，这意味着关闭门窗，关闭空调，关闭新鲜空气入口，或者如果不能，在其他地方寻找庇护；
+*   不要依赖五金店的防尘口罩来保护自己——它们不能捕捉烟雾颗粒。
+
+正如我们今年夏天早些时候报道的，烟雾不仅影响住在附近的人，也影响住在更远的邻近地区的人。如果你能看到烟雾，闻到烟味，眼睛刺痛，或者只是知道你所在地区有野火，你的健康可能会受到影响。
+
+美国环境保护署在其 2016 年 [野火烟雾指南](https://www3.epa.gov/airnow/wildfire_may2016.pdf) 中提供了更多的建议，从如何减少车内烟雾到选择(和使用)合适的呼吸器。

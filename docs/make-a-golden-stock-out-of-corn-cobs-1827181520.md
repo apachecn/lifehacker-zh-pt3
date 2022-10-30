@@ -1,0 +1,21 @@
+# 用玉米棒做高汤
+
+> 原文:[https://life hacker . com/make-a golden-stock-out-of-corn-cobs-1827181520](https://lifehacker.com/make-a-golden-stock-out-of-corn-cobs-1827181520)
+
+我对玉米的热爱已经被很好地记录下来了。 [我会把它蒸了吃](https://skillet.lifehacker.com/steam-corn-using-either-of-these-two-easy-very-differe-1826779004) 。 [我要把它吃成奶油状](https://skillet.lifehacker.com/will-it-sous-vide-super-sweet-and-creamy-creamed-corn-1796902814) 。我会剥去金黄色多汁的玉米粒，生吃。一旦我只剩下光秃秃的玉米棒，我会用这些玉米棒做玉米汤。
+
+Watch
+
+<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Make a Golden Stock Out of Corn Cobs](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-seafood-stock-out-of-scraps-1823958899)</aside>
+
+当大多数蔬菜残渣被扔进我的通用库存袋时，玉米棒被挑了出来。我没有把它们的夏季风味和一堆其他产品混在一起，而是让它们成为明星，用大蒜补充它们，让它们的玉米般的美味闪耀。结果是一种美味的，顺便提一下的纯素食肉汤，给汤、烩饭和酱料增加了一股美味的季节性风味。玉米高汤既可以在炉子上做，也可以在高压锅里做(比如速溶锅)。要做到这一点，你需要:
+
+*   玉米棒(至少 4 个)
+*   足够的水盖住玉米
+*   3 个捣碎的蒜瓣，皮还在
+*   2 茶匙盐
+*   1 片月桂叶
+
+将所有材料放入一个大汤锅(或高压锅)中，加入足够的水，刚好盖住玉米芯。烧开，转小火煨，让它冒泡几个小时，提取玉米精华，至少两个小时，直到你有一个美丽的金色调的芳香的股票。如果你使用高压锅，在高压下煮 45 分钟。
+
+用筛子过滤高汤，去除玉米棒和任何不规则的玉米须，然后搅拌任何需要更多玉米的东西。我认为它是一种特别好的拉面肉汤，但我不会放弃用小杯子啜饮它。

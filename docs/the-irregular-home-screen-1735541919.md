@@ -1,0 +1,18 @@
+# 不规则的主屏幕
+
+> 原文:[https://lifehacker.com/the-irregular-home-screen-1735541919](https://lifehacker.com/the-irregular-home-screen-1735541919)
+
+今天的主屏幕设计保持干净，简单的卡片显示你的议程，时间和天气，以及一些方便的关键应用程序的快捷方式。
+
+Watch
+
+这个主屏幕是为主题设计的。要在您的设备上获得这种外观，请下载。zip，然后按照以下步骤操作:
+
+1.  移动。zip to SD card 0 > my color screen > Themer > Exported > zip(您的初始位置可能会有所不同。)
+2.  打开主题并浏览主题。
+3.  在“类别”下，选择“导出”
+4.  选择“不规则. zip”
+
+你有没有一个很棒的、被调整到遗忘的家或者你自己的锁屏，你想分享吗？把它贴在下面的评论里，或者贴在你自己的 Kinja 博客上，标签是“主屏幕展示”(没有引号)。一定要包括你是如何制作它的描述，这样我们就可以把它作为下一个特色主屏幕。
+
+[不规则](http://mycolorscreen.com/2015/10/02/irregular/) |我的彩屏

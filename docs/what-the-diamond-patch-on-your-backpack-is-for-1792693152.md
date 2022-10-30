@@ -1,0 +1,11 @@
+# 你背包上的钻石补丁是干什么用的
+
+> 原文:[https://life hacker . com/what-the-diamond-patch-on-your-backpack-is-for-1792693152](https://lifehacker.com/what-the-diamond-patch-on-your-backpack-is-for-1792693152)
+
+许多背包都有一些有用的额外功能，如隐藏口袋、可拆卸小袋和钥匙圈，但你可能没有意识到，一些背包前面的钻石补丁实际上可以派上用场。你可以用它来做什么。
+
+Watch
+
+通常被称为睫毛标签或猪嘴，这些补丁是为了容纳那些可能不适合你的包或你想容易获得的东西，如卷起的夹克或水瓶。旅行或户外探险时，你甚至可以用它来存放较大的物品，如一双鞋或手电筒。只需将你想携带的任何东西系在一根细绳上，然后穿过补丁的缝隙。确保你所系的东西是安全的，不要用它来系任何贵重物品，因为当它们系在你包的外面时，更容易被损坏或偷窃。
+
+[你背包上那个钻石贴片有一个很酷的秘密目的](http://www.marieclaire.com/fashion/news/a24925/diamond-patch-backpack-purpose/) |嘉人

@@ -1,0 +1,13 @@
+# 如果你觉得热，就卷起袖子——但不要太紧
+
+> 原文:[https://life hacker . com/roll-up-these-sleeps-if-you-re-hot-but-not-too-tight-1796999648](https://lifehacker.com/roll-up-those-sleeves-if-you-re-hot-but-not-too-tight-1796999648)
+
+虽然一个职业政治家可能会让他们辛勤工作的美国公民 cosplay 下来，但美国普通人可能不会熟练地卷起长袖衬衫，尤其是在外面很热的时候。你可能倾向于卷得更紧，但如果你想保持凉爽，那就没用了。
+
+Watch
+
+根据南加州大学助理教授阿尔伯特·瓦列霍 的说法，将你的前臂暴露在空气中会冷却通过它们的血液，降低你的整体体温，并向你的大脑发送信号，让你感觉更凉爽。但是把袖子卷得稍微紧一点会有相反的效果。“血液将会变得更加困难，” [瓦列霍告诉梅尔](https://melmagazine.com/rolling-up-your-sleeves-too-tightly-stops-you-from-cooling-down-7d73220908f8) 。
+
+作为卷起的牛津衬衫和巴拉克奥巴马的普通人形象的粉丝，我发现这个消息有损我的审美。时尚是痛苦，我非常喜欢我的中世纪风格的袖子。
+
+|梅尔杂志

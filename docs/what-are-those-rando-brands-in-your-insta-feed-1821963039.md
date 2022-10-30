@@ -1,0 +1,19 @@
+# 你 Insta Feed 里的那些 Rando 品牌是什么？
+
+> 原文:[https://life hacker . com/what-than-s-rando-brands-in-your-insta-feed-1821963039](https://lifehacker.com/what-are-those-rando-brands-in-your-insta-feed-1821963039)
+
+下次你的 Instagram 出现广告时，检查一下品牌。很有可能，这实际上是第三方经销商利用 Insta 的算法、内容营销和老式套利让你购买便宜的东西。
+
+Watch
+
+在 [大西洋，](https://www.theatlantic.com/technology/archive/2018/01/the-strange-brands-in-your-instagram-feed/550136/) 阿列克斯·牧歌解释道:
+
+> 一些 Instagram 零售商是有员工和产品的合法品牌。其他的仅仅是中国商品的中间商，建在卧室里，没有资本和存货。所有这些都是由 Instagram 和脸书广告的力量，加上一套基于 Shopify 的电子商务工具促成的。
+
+如今，这是一种非常典型的在线销售方法——中间商销售阿里巴巴的产品，由自由职业者在 UpWork 上直接发货——但 Instagram 版本有一个有趣的变化:零售商可以向有影响力的人支付费用，让他们在自己的订阅源中包含产品广告。因为影响者的全部意义在于*很多人追随他们*，零售商可以在数百万人面前得到他们的产品。
+
+从那里开始，标准的销售压力工具开始应用:有一个(假的)倒计时钟，敦促人们现在购买，跟踪在其他社交媒体网站嵌入相同广告的像素，弹出窗口显示已经购买该产品的(潜在的假)人数。
+
+或者，正如牧歌所说:
+
+> 我喜欢狮子，所以我关注了一个发布狮子照片的 Instagram 账户，他们发布了一个广告，所以我去了一个网页，现在我在互联网上看到了追我的广告，广告是一个狮子手镯。这足以让你渴望去购物中心或从目录上买东西的日子。

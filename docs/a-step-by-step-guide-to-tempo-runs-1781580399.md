@@ -1,0 +1,126 @@
+# 节奏跑的循序渐进指南
+
+> 原文:[https://life hacker . com/a-step-by-step-guide-to-tempo-runs-1781580399](https://lifehacker.com/a-step-by-step-guide-to-tempo-runs-1781580399)
+
+有一种锻炼是每个耐力跑者都应该做的。这种“面包和黄油”的锻炼是全能的速度跑。节奏跑对几乎每个跑步者都有好处——从英里跑者到马拉松运动员，节奏几乎无处不在。
+
+Watch
+
+在大学，当我们训练 8 公里距离时，我们在越野赛中跑节奏跑。我们还在室内和室外赛道的 [基础阶段](http://strengthrunning.com/2015/02/maffetone-method-and-base-training/) 进行了测试(尽管我关注的是 3 公里和 5 公里的距离)。
+
+当然，它们也是长距离跑者为马拉松和更远的距离训练的必需品。如果你不熟悉这种类型的锻炼，有三种流行的定义:
+
+**1。舒适坚硬。**比“中等”速度快，但不完全是“剧烈”速度。如果你有很高的训练年龄，更喜欢凭感觉或感知努力跑步，这可能是对你最有帮助的定义。
+
+**2。你可以跑一个小时的速度。**对于一些跑步者来说，他们的节奏配速与 10 公里配速相似或大致相同。
+
+以我自己为例，看看我在几个距离上的公关进度:
+
+*   10k PR (33:41)配速:每英里 5:25
+*   10 英里 PR (54:50)配速:每英里 5:29
+*   半程马拉松 PR (1:13:38)配速:每英里 5:37
+
+如果“一小时比赛配速”规则是正确的，那么我的节奏配速大约是 5:30-5:35。当我在这个级别比赛时，这正是我在速度训练中跑的速度！
+
+**3。最大心率的 85-90%。**如果你通过心率进行训练(在这里 学习如何计算你的最大心率 [)，这是确保你的速度跑在正确范围内的一个有价值的方法。](http://strengthrunning.com/2012/06/heart-rate-monitor-training/)
+
+更倾向于科学的跑步者知道，速度训练是在或接近你的乳酸门槛时进行的。这是你产生最大量乳酸的速度，你的身体可以从你的肌肉和血流中清除乳酸。换句话说，速度跑是在乳酸门槛下完成的，这是你有氧跑的最快速度。
+
+如果你跑得再快，你就不能清除乳酸盐，你会跑得超过你的极限。然后你会体验到熟悉的酸性肌肉灼烧感和疲劳，这是在一场短距离艰苦比赛结束时的感觉。目标是跨越乳酸门槛，不再跑得更快。
+
+### 为什么节奏跑如此有益？
+
+速度训练如此有用有两个主要原因。
+
+首先，**速度跑提高你的乳酸门槛**。因为你正在以或接近你的门槛配速跑步，你的身体清除乳酸盐的效率会变得更高。
+
+运动科学告诉我们，乳酸门槛配速是跑步表现的一个极好的指标。你在清除乳酸盐的同时跑得越快，你就能跑得越快。
+
+但也有一个重要的精神方面:他们很辛苦，压力很大，精神上很疲劳。**速度训练教你在跑步变得困难时管理自己的情绪**。
+
+正如科罗拉多大学博尔德分校的 [越野赛主教练马克·维特莫尔所说的](https://books.google.com/books?id=ORPgAgAAQBAJ&pg=PA254&lpg=PA254&dq=%22Distance+runners+are+experts+at+pain,+discomfort,+and+fear.+You%E2%80%99re+not+coming+away+feeling+good.+It%E2%80%99s+a+matter+of+how+much+pain+you+can+deal+with+on+those+days.%22&source=bl&ots=6MHFW97ig6&sig=lWiLiW53qYrVSmPRFX8a1xLGR58&hl=en&sa=X&ved=0ahUKEwiThdPMx5vNAhUF5CYKHbtnBYEQ6AEIJDAC#v=onepage&q=%22Distance%20runners%20are%20experts%20at%20pain%2C%20discomfort%2C%20and%20fear.%20You%E2%80%99re%20not%20coming%20away%20feeling%20good.%20It%E2%80%99s%20a%20matter%20of%20how%20much%20pain%20you%20can%20deal%20with%20on%20those%20days.%22&f=false) :
+
+> 长跑运动员是疼痛、不适和恐惧的专家。你不会感觉很好。这是你在那些日子里能承受多少痛苦的问题。
+> 
+> *这不是策略。这只是精神和身体处理不适的老茧。*
+
+速度训练对比赛来说是无情的。他们教你忍受更多的不适，培养的精神韧性。对于跑步者来说，没有比这更有价值的技能了。
+
+### **两种速度跑**
+
+有两种主要类型的速度训练:持续速度跑步和速度节奏重复。
+
+#### **持续速度跑步**
+
+该锻炼包括一个节奏跑的街区。这可能是 20 分钟或 3 英里，但在努力的过程中没有休息或恢复。
+
+一个简单的例子是这样的锻炼:7 英里，3-5 英里的速度。在这里，你有一个 7 英里的跑程，中间 3 英里是速度跑。
+
+持续的速度跑应该限制在 40 分钟左右——更长的时间，努力变得太困难，接近比赛努力。没有进行任何速度跑的跑步者(或者在受伤 或长时间停止训练后恢复跑步的 [)应该从 10-15 分钟的速度跑开始，然后逐渐增加跑步的持续时间。](http://strengthrunning.com/2014/02/return-to-running-after-injury/)
+
+#### 速度重复
+
+这项训练与间歇训练相似，只是它们是按照你的节奏完成的。恢复时间保持在短的 60-90 秒，重复时间通常较长。
+
+一个例子是 7 英里:3 x 英里的节奏，90 秒的慢跑恢复。这项训练与上面提到的持续速度非常相似，除了我们在每个速度英里后包括一个短暂的恢复。
+
+节奏速度的重复可以比节奏速度稍微快一点，因为恢复将有助于清除更多的乳酸盐。尽管最好保守地调整自己的节奏，而不是太快。
+
+许多程序会让你从速度重复发展到持续速度跑。首先，你必须习惯于以速度跑一定的里程(比如说 3 英里),次要目标是让你以速度连续跑 3 英里*。*
+
+### ***何时进行速度训练***
+
+*大多数跑步者应该在 [合理规划的赛季](http://strengthrunning.com/2015/05/how-to-plan-a-season/) 中每 1-2 周进行一次速度跑。*
+
+***5 公里及以下短距离比赛训练？**如果是这样，速度跑最好在赛季初期的基础训练中进行。它们有助于培养耐力，有助于在训练周期的后期支持特定比赛的体能。*
+
+***为 10km 或更长的比赛进行训练？**如果是这样，速度跑最好在赛季中后期进行。尽管它们是有氧运动，但它们要么比你的目标配速慢一点，要么快很多，所以最好在训练周期的后期使用。*
+
+*我的许多跑步者在赛季的大部分时间里都会做一些速度训练。作为基本的“面包和黄油”锻炼，它们有着重大的好处，一周又一周地积累。*
+
+### ***高级速度变化***
+
+*你可能会认为速度跑有点无聊——它们当然会无聊——但是通过一些想象和策略上的改变，速度训练可以提供很大的变化。一种选择被称为*节奏回路*，提供强大的力量和耐力刺激。*
+
+*[循环锻炼](http://strengthrunning.com/2015/09/circuit-workout-video-plus-advanced-circuit/) 是一种混合跑步和力量锻炼的锻炼。这里有一个例子:*
+
+ *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-Zb5MyNZ3IHI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Zb5MyNZ3IHI&start=0)* 
+
+*通过在恢复过程中进行力量训练，当你变得更强壮时，心率会保持高于正常水平。*
+
+*对于各种跑步者来说，这是一项非常棒的锻炼:*
+
+*   *初学跑步者*
+*   *有长期受伤史的跑步者*
+*   *[战士短跑](http://strengthrunning.com/2012/05/how-to-train-for-warrior-dash/) 或其他 OCR 运动员*
+*   *高级跑步者(请务必使用我们的更多 [高级循环锻炼](http://strengthrunning.com/circuit-workout-download/) )*
+
+*另一种更高级的速度跑叫做*乳酸清除跑*。这些类似于持续节奏跑，除了你每 5-8 分钟以大约 5 公里或稍快的速度插入 30-60 秒的间歇跑。*
+
+*激增会将更多的乳酸盐引入血液。当你回到节奏配速时，身体被迫清除乳酸盐，同时仍然以节奏配速跑步。这有助于身体更有效地处理乳酸，最终有助于加快乳酸门槛的速度。*
+
+*由于这种锻炼压力很大，所以最好在训练的中后期每 2-3 周进行一次。*
+
+<aside class="sc-1rh3ayr-6 eaNzNC inset--story branded-item branded-item--lifehacker" data-commerce-source="inset">*[![Image for article titled A Step-by-Step Guide to Tempo Runs](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068) [###### 让你陷入伤病循环的五个跑步错误](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068) 
+
+你的身体不是一台机器，你不应该把它当成一台机器，即使你认为你可以“坚强…
+
+[Read more](https://lifehacker.com/five-running-mistakes-that-keep-you-locked-in-the-injur-1672356068)*</aside>
+
+### ***耐力在等待***
+
+*[建造耐力](http://strengthrunning.com/2014/03/endurance-training/) 并不过分复杂。遵循几个原则，你会跑得更快、更久、更快:*
+
+*   *每周坚持长跑*
+*   *专注于有氧运动，比如节奏跑*
+*   *逐渐地 [跑更高的里程](http://running.competitor.com/2015/07/training/a-smarter-way-to-increase-running-mileage_132282) (但是要有策略地小心增加运动量！)*
+
+*像这样健全的训练，坚持 3-4 个月，你的跑步成绩会扶摇直上。还有从现在开始 1-2 *年*？你几乎认不出自己是个跑步者。你目前的 10 公里配速可能是你明年的半程马拉松配速。*
+
+*聪明地训练，我毫不怀疑你的跑步会达到一个全新的水平。如果你想帮助你的跑步更上一层楼，在这里获得我的免费初学者系列。我认为这将标志着你跑步生涯的一个大转折点。*
+
+*|力量跑*
+
+* * *
+
+*<small>*Jason Fitzgerald 是一名 2:39 马拉松运动员，是 USATF 认证的跑步教练，在*</small> [<small>*力量跑*</small>](http://strengthrunning.com/) <small>*。获取他最新的教练建议和免费的伤病预防课程*</small> [<small>*这里*</small>](http://strengthrunning.com/injury-prevention-ecourse/) <small>*。顶部图像由*</small>[<small>*Mascha Tace*</small>](http://www.shutterstock.com/pic-375617857/stock-vector-city-run-lovely-vector-flat-design-on-fitness-workout-running-woman-with-urban-city-street.html?src=YXhE_bPuNKIjtvtu03XZWw-2-38)<small>*(*</small>[<small>*Shutterstock*</small>](http://shutterstock.com)<small>*)组成。*T51</small>*

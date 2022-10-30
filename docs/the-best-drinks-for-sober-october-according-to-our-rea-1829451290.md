@@ -1,0 +1,19 @@
+# 根据我们的读者，清醒的十月最好的饮料
+
+> 原文:[https://life hacker . com/the-best-drinks-for-sober-October-your-our-rea-1829451290](https://lifehacker.com/the-best-drinks-for-sober-october-according-to-our-rea-1829451290)
+
+现在是清醒的十月，这意味着很多人，出于这样或那样的原因，会有一个月的时间不喝酒。虽然我喜欢成人饮料，但休息一下也是有价值的，我会在这里支持你的努力。
+
+Watch
+
+不喝酒会面临很多挑战——最主要的挑战是找点喝的来代替。在欢乐时光点一杯健怡可乐没有错，但我喜欢感觉更“鸡尾酒”一点的东西。幸运的是，我们的读者有 [一堆关于美味无酒精饮料的好主意](https://lifehacker.com/what-do-you-drink-when-youre-not-drinking-1796028069) ，无论你是在家里还是在外面，你都可以享受。
+
+### 苦味是你最甜蜜的朋友
+
+根据 [curlysue](https://lifehacker.com/what-do-you-drink-when-youre-not-drinking-1796028069) 的说法，“如果你出去了，不想喝酒，或者已经喝了几杯，需要休息一下”，就应该喝含奎宁的苦味酒，我同意。任何提供酒的酒吧都会有一种或多种酒，你可以点任何一种酒配奎宁水或苏打水，再加上酸橙或柠檬片(或者两者都点)。如果你想要一些更圆润的东西，你可以像 [Dr_Eric](https://skillet.lifehacker.com/1796081591) 一样点一杯蔓越莓和苦味酒，让调酒师将它们倒入柑橘苏打或姜汁啤酒中，或者来点真正的花式，至于“ [一只纯莫斯科骡子](https://skillet.lifehacker.com/1796100517#_ga=2.169373673.976869809.1538407529-426097860.1521480505) ”，基本上就是姜汁啤酒和新鲜的酸橙汁。
+
+### 制作 tee-total tiki 饮料
+
+Orgeat——你可以 [制作](https://www.seriouseats.com/recipes/2011/11/how-to-make-orgeat-recipe-almond-syrup-for-cocktails.html) 或购买——是一种杏仁味、橙子味的糖浆，是许多 tiki 鸡尾酒的关键成分，而且(我们很幸运)Boojumhunter 已经推出了几种不含酒精的酒，使用 orgeat 和石榴糖浆给它们带来一些有趣的 tiki 风味:
+
+<iframe src="https://api.kinja.com/embed/thread/1796069759" height="350" width="640" scrolling="no"></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h20457"><br/></h3><h3 class="sc-1bwb26k-1 kpbNNd" id="h20458">大麦和啤酒花不一定要放在啤酒里</h3><p class="sc-77igqf-0 bOfvBY"><span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/1796062316&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/1796062316"> FusilliJerry </a> </span>喜欢把大麦水和 La Croix 混合在一起，制成一种甜甜的西瓜味饮料(每罐苏打水一指就够了)，而 Nicbrews 则热衷于用啤酒花给柠檬水调味。(老实说，我有点尴尬，我自己没有想到这一点，我迫不及待地想跳过所有的东西。)</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p><iframe src="https://api.kinja.com/embed/thread/1796095198" height="350" width="640" scrolling="no"/></p><h3 class="sc-1bwb26k-1 kpbNNd" id="h20459"><br/></h3><h3 class="sc-1bwb26k-1 kpbNNd" id="h20460">使用灌木、酸和花水</h3><p class="sc-77igqf-0 bOfvBY">用新的或“奇特的”口味刺激你的味觉，让你的嘴不会感到无聊，这很好，因为——以我的经验来看——无聊是清醒的敌人。JoshTheBat 喜欢做“快乐苏打”，一种由“冰块、玫瑰糖浆、苏打水和甜炼乳混合而成的印尼饮料<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/1796062876&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/1796062876">爱丽玫瑰</a> </span>将玫瑰水与酸橙汁、苏打水和薄荷混合；到了派对时间，<span><a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/1796061431&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/1796061431">YouMakeMyKinjaComeTrue</a></span>喜欢“用接骨木花糖浆、薄荷和酸橙做一大堆鸡尾酒”，为那些<em>想喝酒的人准备几瓶烈酒。</em></p><p class="sc-77igqf-0 bOfvBY">最后，xMRNUTTYx 非常喜欢将酸灌木(你可以在这里<span> <a class="sc-1out364-0 hMndXN sc-145m8ut-0 fBlGIv js_link" data-ga="[[&quot;Embedded Url&quot;,&quot;Internal link&quot;,&quot;https://skillet.lifehacker.com/make-delicious-sweet-and-sour-shrubs-using-this-easy-ra-1724576518&quot;,{&quot;metric25&quot;:1}]]" href="https://skillet.lifehacker.com/make-delicious-sweet-and-sour-shrubs-using-this-easy-ra-1724576518">学习制作</a> </span>)与苏打水混合，并用不含酒精的香槟制作初榨含羞草鸡尾酒，我不知道还有这种酒。</p><p><iframe src="https://api.kinja.com/embed/thread/1796060746" height="350" width="640" scrolling="no"/></p><p class="sc-77igqf-0 bOfvBY">如果这些对你都不起作用，还有罐装矿泉水。几乎每个评论者都推荐 La Croix 或 Polar，尤其是葡萄柚和橘子口味。樱桃酸橙——装在精致的小罐里——也非常值得你花时间去品尝。另一方面，黑莓黄瓜尝起来像我在 Anthropologie 买的蜡烛。</p> </body> </html></iframe>

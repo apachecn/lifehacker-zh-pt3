@@ -1,0 +1,11 @@
+# 你再也不用坐着看完《纸牌屋》的介绍了
+
+> 原文:[https://life hacker . com/you-don-t-to-sit-through the house of-cards-intro-1793389266](https://lifehacker.com/you-don-t-have-to-sit-through-the-house-of-cards-intro-1793389266)
+
+如果你觉得长长的片头妨碍了你的狂欢之夜，网飞正试图帮你解决这个问题。现在你可以跳过该服务的一些更受欢迎的电视节目的介绍。
+
+Watch
+
+该功能目前仅在网飞网络平台上可用，但它的出现可能意味着网飞如果计划将其引入他们的应用程序。它适用于大多数网飞原版，包括*《纸牌屋》*和最近推出的*《铁拳》*，但 [The Verge 指出，它也出现在第三方节目](http://www.theverge.com/2017/3/17/14959650/netflix-skip-intro-button) 如《广告狂人》中。新的“跳过介绍”功能甚至可以用于一些带有 [冷场](https://en.wikipedia.org/wiki/Cold_open) 的节目，或者在标题序列之前显示的故事预告，如 *The Office* 。
+
+就我个人而言，我喜欢大多数节目的片头，因为它们营造了气氛。我 90%的时间都很喜欢电视剧主题曲。但我过去看那些片头极其冗长乏味的节目时，肯定对它们感到恼火。你会跳过自我介绍吗？

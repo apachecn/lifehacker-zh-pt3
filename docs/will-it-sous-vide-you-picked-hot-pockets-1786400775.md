@@ -1,0 +1,11 @@
+# 它会腐烂吗？你偷了热袋
+
+> 原文:[https://life hacker . com/will-it-sous-vide-you-picked-hot-pockets-1786400775](https://lifehacker.com/will-it-sous-vide-you-picked-hot-pockets-1786400775)
+
+问候和致敬，欢迎回到另一个令人兴奋的一集 [*它会分开吗？*](http://lifehacker.com/tag/will-it-sous-vide) ，每周专栏你告诉我用我的方差分析做什么。
+
+Watch
+
+本周早些时候，在我们的话题选择帖子 中，我试图缩小关注范围，并建议我们尝试一些奇怪或奇特的肉类，如鳄鱼、猪蹄或鸭肉。我以为鸭子会拿走它，但后来出现了一匹黑马，获得了十颗星星和我们的心。
+
+<iframe src="https://api.kinja.com/embed/thread/1786252905" height="350" width="640" scrolling="no"></p><p class="sc-77igqf-0 bOfvBY">如果我的方差分析还有其他更荒谬的用途，我想不出一个，正是这样的时刻让我热爱我的工作。因此，在周三下午(喝了几杯金巴利和苏打水，因为在完全清醒的情况下享受热袋似乎是错误的)，我溜达到 7-11，买了许多意大利辣香肠披萨热袋和一杯健怡可乐塔博(补充能量)。</p><div class="bxm4mm-16 jvTtVq"><div class="bxm4mm-7 BkGlG"><div class="bxm4mm-0 cULvCC"><div class="bxm4mm-4 bxm4mm-5 cbuuRJ"/><div class="bxm4mm-4 bxm4mm-6 jhbXha"/></div></div></div><p class="sc-77igqf-0 bOfvBY">尽管我的饮食习惯就像一个永远喝醉的小孩，但我已经至少有七年没有热口袋了，也许更久。尽管如此，我仍然记得烹饪这种加油站美食的艰难。正如 nobe 在他们的评论中指出的，让整个口袋保持一致的温度始终是一个挑战，这使得它成为 sous videing 的完美候选。(亲提示:热口袋喜欢飘。为了让它们下沉，在潜入水中之前，在袋子里放一把黄油刀。)</p><p class="sc-77igqf-0 bOfvBY">令人惊讶的是，我在 Anova 的网站上找不到 sous vide Hot Pockets 的食谱或资源，在互联网上也找不到。幸运的是，整个事情非常简单:根据热口袋盒，这种面团袋中的食物必须烹饪到内部温度达到 165 华氏度。我把一堆(冷冻的)热口袋扔进塑料袋，把它们浸入 165 度的水浴中，并定期取出来检查口袋两端和中心的内部温度。</p><div id="mgid-container" data-placement="5" class="rpvvqt-0 itgzOV"><div class="mgidMidDesktop" id="M809774ScriptRootC1321831"/><div class="mgidMidMobile" id="M809774ScriptRootC1321833"/></div><p class="sc-77igqf-0 bOfvBY">在前半小时，气温上升得很快，但过了一会儿就慢了下来，从 1 小时开始稳定在 160 度。就味道而言，一个小时的热口袋味道很好，而且仍然有一个相当片状的外壳。</p><p class="sc-77igqf-0 bOfvBY">在 165 度下腌制两个小时后，热口袋的两端和中心的温度仍然顽固地徘徊在 160 度左右，所以我把温度提高了 5 度，让他们再煮 15 分钟。(注意:我验证了我的温度计和方差分析在温度方面是同步的；他们报告了相同的温度，误差在 0.2 度以内，所以浴池温度确实是 165。)<br/></p><p class="sc-77igqf-0 bOfvBY">这使得两端和中间的口袋达到了 165 英镑，但那时酱汁已经渗透到了面包皮的边缘，使它变红，变湿。</p><p class="sc-77igqf-0 bOfvBY">所以最终达到了内部温度，但是以地壳为代价。显然，需要一种混合的方法，所以我把另一个热口袋装袋并浸入水中，在 450 华氏度的烤箱中浸泡一个小时，然后用一分钟完成。</p><p class="sc-77igqf-0 bOfvBY">这可能看起来像一个非常愚蠢的句子，但那个热口袋是我一生中尝过的最好的热口袋。它被均匀地烹饪，黏糊糊的融化的奶酪均匀地分布着，外皮像这种特殊的面团一样酥脆，有着凌乱的渗漏。</p><p class="sc-77igqf-0 bOfvBY">回到那个永恒的问题:<strong>热口袋会被分割吗？</strong></p><p class="sc-77igqf-0 bOfvBY">答案是:是的，我的朋友们，一个热口袋事实上是值得的，但是你必须是一个微波炉三明治的超级粉丝，这才值得。我只在喝醉或兴奋的时候(或者小时候)想要一个热口袋，所以我怀疑我会不会有提前一个小时加热我的水浴的先见之明。但是如果你知道你在一个小时前就想要一个热袋，那就打开你的沉浸式循环器，享受你生命中最棒的辣香肠披萨热袋吧。</p> </body> </html></iframe>

@@ -1,0 +1,11 @@
+# 当你搬家时，请在这张可打印的清单上更改你的地址
+
+> 原文:[https://life hacker . com/change-your-address-everywhere-on-this-printable-checkl-1756811578](https://lifehacker.com/change-your-address-everywhere-on-this-printable-checkl-1756811578)
+
+当你改变你的地址时，你可以让你的邮件转发一会儿，但最终你需要让很多地方知道这种老式的方式。我们整理了一份清单来帮助你记住它们。
+
+Watch
+
+下面，我们做了一个清单，你可以用它来记住所有可能需要知道你更改了地址的地方。到处都有从 [到](https://www.usps.com/) 到 [Costco](http://www.costco.com/) 可能需要邮寄给你的东西。在转发邮件的同时，随着时间的推移，你需要手动更改。有些可能只是简单地在网上更改你的地址，有些可能需要邮寄表格。此外，请记住，如果您在银行机构更改了地址，一些收取月供的地方可能无法收取月供，因为地址信息有时会用于验证您的卡使用情况。为了使这一切更简单，我们整理了这个方便的清单。我们甚至包括了一些额外的行，如果我们没有列出来，你可以写一些东西。
+
+我们还在这里 加入了 PDF 格式的清单 [的打印版。](https://drive.google.com/file/d/0B6P8TDyPzj3NT1lwR1RUbVlUYjg/view?usp=sharing)

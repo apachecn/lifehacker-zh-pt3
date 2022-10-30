@@ -1,0 +1,71 @@
+# 使用 IFTTT 设置自动文本并避免冲突
+
+> 原文:[https://life hacker . com/set-up-automatic-texts-and-avoid-fights-using-if TTT-1820550327](https://lifehacker.com/set-up-automatic-texts-and-avoid-fights-using-ifttt-1820550327)
+
+上周五，当我们汇总员工的每周更新时，我们的编辑正在清理媒体杂物(再见，六个月大的*纽约客*期)，戒除我们的 Instagram 瘾，并发现白噪音机器的乐趣。
+
+Watch
+
+本周，我们要去上芭蕾课，升级我们的软件，创造巧妙的短信快捷方式，并找到创造性的方法让我们的孩子有事可做。
+
+这周你做了哪些升级？请在评论中告诉我们。
+
+<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+#### 为了真正的东西而翘掉 barre 课
+
+我把我的芭蕾课升级成了芭蕾课。在我的城市里有一个真正的芭蕾舞工作室(匹兹堡芭蕾舞剧院)，向公众开放旁听课程。由于我最近在两个不同的工作室尝试了 barre 课程，发现它们既无聊又重复，所以我想我应该尝试一下真实的东西。芭蕾课非常有趣。课程的前半部分都是在障碍训练中练习技巧，这和障碍训练不是同一种燃烧/筋疲力尽的训练，但它肯定会挑战你的身体，同时让你的大脑有事可做。然后我们在地板上做了一些更花哨的动作(跳跃、旋转)。顺便说一下，还有现场钢琴曲。如果你不知道术语，这个课程有点难懂，所以为了获得最佳效果，请提前阅读。不过，我的教练对初学者非常友好，所以我从未感到太失落。
+
+beth skwarecki，健康编辑
+
+</section>
+
+<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+#### 自动化你的日常签到
+
+每天下班的时候，我都会给平时在家办公的伴侣发一条短信。在我回家的路上，我会问她是否需要外界的东西，或者晚餐的情况如何，以防我需要去杂货店买一些必需的食材。我忘记给她发短信的日子通常是冰箱空了的日子，或者是她想让我在回家的路上买瓶苹果酒的日子。所以我利用 IFTTT 来帮助我永远不要忘记那条非常重要的短信。我用我的安卓设备 [创建了一个 IFTTT 小程序](https://lifehacker.com/the-beginners-guide-to-ifttt-1819624556) 在每个工作日的下午 6 点给她发短信，询问我是否需要在回家的路上买些东西。
+
+帕特里克·奥斯汀，专职作家
+
+</section>
+
+<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+#### 投资一个精心设计的鼠标
+
+我五岁的 [罗技 G700](https://www.amazon.com/gp/product/B003VAM32E?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/set-up-automatic-texts-and-avoid-fights-using-ifttt-1820550327&asc_source=&tag=kinjalifehackerlink-20) 终于死了，于是我换成了 [G502](https://www.amazon.com/gp/product/B019OB663A/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/set-up-automatic-texts-and-avoid-fights-using-ifttt-1820550327&asc_source=&tag=kinjalifehackerlink-20) 。当我开始喜欢无线耳机时，我并不真的需要无线鼠标，但我确实需要很多按钮。 [不是为了游戏，而是为了上网浏览。](https://lifehacker.com/use-a-gaming-mouse-and-browse-the-web-like-a-king-1795895457)T11】
+
+尼克·道格拉斯，专职作家
+
+</section>
+
+<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+#### 为“晨报”腾出时间
+
+受到詹姆·格林最近在早报上发表的文章 [，](https://lifehacker.com/why-you-should-write-three-pages-of-garbage-every-morni-1820345218)，的启发，我决定尝试一下这个过程。这个想法是写下三页的任何东西，在早上的第一件事，启动创造性的想法并清理你的头脑。诚然，我更多的是用它来理清思路，作为一个事实上的日志，而不是作为一些更大的创造性项目的补充，但迄今为止，我喜欢它。我没有时间每天都这样做(有时候我觉得写几个简短的涂鸦比因为没有时间写完整的三页而完全跳过要好得多)。但是我发现这是一个很好的方法来组织你的思想，让你集中注意力，即使它开始时只是意识流的废话。
+
+弗吉尼亚·k·史密斯，执行主编
+
+</section>
+
+<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+#### 利用互联网即兴创作一本涂色书
+
+这是一件很简单的事情，但是当我四岁的孩子在我工作的时候走进我的家庭办公室时，我会问她喜欢什么角色，然后我会在谷歌上搜索“ **_** 着色页”，然后打印出来。我第一次打印出米妮老鼠的照片时，她大吃一惊。她跑下楼，喊着她的爸爸，“妈妈可以把*变成任何一个*角色！”现在她认为打印机是某种神奇的巫术神奇装置。最酷的一点是，着色让她在 20 分钟左右的时间里保持忙碌(和安静)。
+
+米歇尔·吴，育儿编辑
+
+</section>
+
+<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+#### 终于把你的书从地板上拿开了
+
+我这周的升级是终于有书架了。我的书以一种非常波西米亚的方式堆放在地板上，这开始弄乱它们的书脊。它们放在架子上确实更好看，现在我有了更多的地板空间。
+
+食品和饮料编辑克莱尔·洛
+
+</section>
