@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-clean-your-dusty-messy-desktop-pc-1825160454>
 
-[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
+
 
 你还记得上次清理你的台式电脑是什么时候吗？我不是说在吃墨西哥卷饼的时候擦掉箱子上的鳄梨酱。我说的是走进去，真正把你那些昂贵的零件(和风扇)上堆积的灰尘都弄掉。对你的系统进行春季大扫除并不难，但这对你的系统的寿命至关重要——而且能让你的电脑看起来不那么难看。
 

@@ -14,7 +14,7 @@
 
 以下是我们保存在工具箱中的来自脸书竞赛的一些其他黑客:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 教“等待手指”
 
@@ -22,9 +22,9 @@
 
 克里斯汀·t。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 做一个玩具公寓
 
@@ -32,9 +32,9 @@
 
 猎人
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### **用 t 恤当抹布**
 
@@ -42,9 +42,9 @@
 
 罗伯·奥。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 给他们加载信息
 
@@ -52,9 +52,9 @@
 
 凯勒·e。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 假装你的孩子是洛基
 
@@ -62,9 +62,9 @@
 
 南希河
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 让你的食物袋做双重任务
 
@@ -72,9 +72,9 @@
 
 杰米 a。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 找到那个旧 iPod
 
@@ -82,6 +82,6 @@
 
 安娜河
 
-</section>
+
 
 加入我们的 [脸书小组](https://www.facebook.com/groups/2018785615043946/) 来讨论更多育儿技巧吧！

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-make-your-wifi-router-as-secure-as-possible-1827695547>
 
-[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+
 
 虽然越来越多的路由器制造商正在让路由器更容易设置和配置——甚至通过方便的小应用程序而不是烦人的基于网络的界面——但大多数人在购买新路由器后可能不会调整许多选项。他们登录，更改他们的 wifi 网络的名称和密码，然后收工。
 

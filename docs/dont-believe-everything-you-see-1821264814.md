@@ -8,13 +8,13 @@
 
 本周的精选来自伟大希腊哲学家的传记作者第欧根尼·拉尔修 。他引用了 [赫拉克利特](https://en.wikipedia.org/wiki/Heraclitus) 中的一段话，讲述了我们如何不能总是相信自己的感官:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 "赫拉克利特称自欺是一种可怕的疾病，视力是一种说谎的感觉。"
 
 杰出哲学家的生活
 
-</section>
+
 
 ### 这意味着什么
 

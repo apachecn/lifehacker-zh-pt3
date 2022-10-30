@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-make-your-mac-as-secure-as-possible-1829531978>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+
 
 在最近一篇名为“ [强化 macOS](https://blog.bejarano.io/hardening-macos.html) 的博客文章中，“Ricard Bejarano 提供了一个广泛的设置列表，您可以调整这些设置以使 macOS 尽可能安全。这是一份全面的任务清单——我们很喜欢——但重要的是，你也要理解他的建议背后的“为什么”。以下是他的一些提示和解释，解释了为什么要这样调整、安装或修改 Mac:
 

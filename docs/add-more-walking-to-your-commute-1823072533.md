@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 通勤时选择风景优美的路线
 
@@ -18,9 +18,9 @@
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 停止对抗你对眼镜的需求
 
@@ -28,9 +28,9 @@
 
 爱丽丝·布拉德利，副主编
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 没有纸盘就不是办公室了
 
@@ -38,9 +38,9 @@
 
 帕特里克·奥斯汀，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 充分利用你的信用卡
 
@@ -48,9 +48,9 @@
 
 乔尔·卡恩，资深视频制作人
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 转向需要更少配件的技术
 
@@ -58,9 +58,9 @@
 
 beth skwarecki，健康编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 扩展您的播客曲目
 
@@ -68,9 +68,9 @@ beth skwarecki，健康编辑
 
 艾丽西娅·亚当奇克，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 当有疑问时，加上贝利的
 
@@ -78,9 +78,9 @@ beth skwarecki，健康编辑
 
 亚当·鲍尔斯，视频制作人
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 伪造日出的效果
 
@@ -88,9 +88,9 @@ beth skwarecki，健康编辑
 
 帕特里克·艾伦，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 做一些对你的认知功能有益的事情
 
@@ -98,9 +98,9 @@ beth skwarecki，健康编辑
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 驯服你那堆杂乱的鞋子
 
@@ -108,4 +108,3 @@ beth skwarecki，健康编辑
 
 食品和饮料编辑克莱尔·洛
 
-</section>

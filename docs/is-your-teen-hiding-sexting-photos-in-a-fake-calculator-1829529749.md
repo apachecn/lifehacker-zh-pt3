@@ -12,7 +12,7 @@
 
 今年早些时候，在警方调查后，苹果 [将流行的私人照片(计算器%)应用程序从应用程序商店](http://private%20photos%20%28calculator%25%29/) 下架。但更多的秘密计算器应用程序存在。以下是一些需要注意的地方:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 假计算器
 
@@ -20,9 +20,9 @@
 
 特点:一个私人浏览器，一个保存你不想在你的地址簿中的联系人的地方
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 秘密计算器
 
@@ -30,9 +30,9 @@
 
 功能:诱饵模式，模式锁，密码和触摸 ID 的额外保护
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 保管库计算器隐藏图片
 
@@ -40,7 +40,7 @@
 
 特点:一个“入侵警报”，捕捉任何输入不正确密码的人的图像
 
-</section>
+
 
 **给父母的一些提示:**
 

@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 把你的工作午餐放在自动驾驶上
 
@@ -18,9 +18,9 @@
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 用正念冥想抵消恐惧
 
@@ -28,9 +28,9 @@
 
 米歇尔·吴，育儿编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 支起你的 iPad，方便阅读
 
@@ -38,9 +38,9 @@
 
 帕特里克·奥斯汀，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 升级到超级英雄睡衣
 
@@ -48,9 +48,9 @@
 
 食品和饮料编辑克莱尔·洛
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 在你的一天中多走一走
 
@@ -58,9 +58,9 @@
 
 beth skwarecki，健康编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 给你的拉面加点辣
 
@@ -68,9 +68,9 @@ beth skwarecki，健康编辑
 
 帕特里克·艾伦，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 利用便宜的电影季节
 
@@ -78,4 +78,3 @@ beth skwarecki，健康编辑
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>

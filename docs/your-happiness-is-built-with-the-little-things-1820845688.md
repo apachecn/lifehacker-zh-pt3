@@ -8,13 +8,13 @@
 
 本周精选来自芝诺，引自第欧根尼·拉尔修。他认为生活中最重要的是小事:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 "幸福是由一小步一小步实现的，但绝非小事."
 
 杰出哲学家的生活 7.1.26
 
-</section>
+
 
 ### 这意味着什么
 

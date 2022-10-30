@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-deal-with-a-dead-or-dying-power-supply-1826603283>
 
-[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)) : title[![](../Images/044fbadc98edfd613c34b7c809fe4420.png)](https://pcbuild.kinja.com)[Lifehacker's Complete Guide to Building a PC](https://pcbuild.kinja.com)Building your own desktop PC is a great, geeky pleasure. We'll show you how to do it and everything you need to know to keep your system properly maintained.
+
 
 所以你在你的 Windows 桌面上哼唱，在你选择的社交媒体服务上与你的朋友聊天，或者填充战锤 40，000: Inquisitor - Martyr(我最近见过的最史诗般的游戏名称之一)中充满漏洞的混乱恶魔。然后，你的系统关闭了。是的，祖茨。
 

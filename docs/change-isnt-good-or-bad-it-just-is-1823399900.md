@@ -8,19 +8,19 @@
 
 本周精选来自马库斯·奥勒留的*沉思*，4.42。他评论了变化的真正本质:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 "事物经历变化不是坏事，事物因变化而继续存在也不是好事。"
 
-</section>
+
 
 下面是另一个版本:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 “事物的变化没有什么坏处，就像坚持一种新的状态没有好处一样。”
 
-</section>
+
 
 ### 这意味着什么
 

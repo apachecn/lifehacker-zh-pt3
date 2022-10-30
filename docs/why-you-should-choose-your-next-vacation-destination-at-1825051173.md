@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 扩展你对度假目的地的想法
 
@@ -18,9 +18,9 @@
 
 Beth skwarecki，健康编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 查找新的工作播放列表
 
@@ -28,9 +28,9 @@ Beth skwarecki，健康编辑
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 投资你自己的发展
 
@@ -38,9 +38,9 @@ Beth skwarecki，健康编辑
 
 艾丽西娅·亚当奇克，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 探索罐装葡萄酒的广阔世界
 
@@ -48,9 +48,9 @@ Beth skwarecki，健康编辑
 
 大卫·墨菲，高级技术编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 把健身当成一场马拉松，而不是短跑
 
@@ -58,9 +58,9 @@ Beth skwarecki，健康编辑
 
 亚当·鲍尔斯，视频制作人
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 从你精心制作的护肤程序中退一步
 
@@ -68,4 +68,3 @@ Beth skwarecki，健康编辑
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-pick-the-right-network-switch-1828694436>
 
-[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+
 
 当路由器上的以太网端口用完时，这很烦人。或者，当您有一个家庭娱乐中心，并希望所有设备都可以有线连接，但您不希望将一束以太网电缆从客厅连接到路由器所在的任何地方。
 

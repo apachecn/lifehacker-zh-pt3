@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 做你自己的万圣节分身
 
@@ -18,9 +18,9 @@
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 获得一个新的，改进的，更便宜的美容程序
 
@@ -28,9 +28,9 @@
 
 食品和饮料编辑克莱尔·洛
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 用绿色植物包围你自己
 
@@ -38,9 +38,9 @@
 
 帕特里克·奥斯汀，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 不需要那种爪哇咖啡
 
@@ -48,9 +48,9 @@
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 分开你的浏览器以保持有序
 
@@ -58,9 +58,9 @@
 
 beth skwarecki，健康编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 利用你的飞机旅行来赶上你的观赏
 
@@ -68,4 +68,3 @@ beth skwarecki，健康编辑
 
 米歇尔·吴，育儿编辑
 
-</section>

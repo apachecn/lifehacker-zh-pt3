@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/the-most-important-privacy-settings-to-change-on-reddit-1827747540>
 
-[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)) : title[![](../Images/ce8fdf9d40d4898cdc1fe3570dd2a22f.png)](https://dataprivacy.kinja.com)[Lifehacker's Complete Guide to Data Privacy](https://dataprivacy.kinja.com)We'll walk you through everything you should do to live the most secure, private life in the digital era.
+
 
 自从 [脸书/剑桥分析公司的重磅炸弹](https://lifehacker.com/how-to-find-out-if-cambridge-analytica-had-your-data-1825155752#_ga=2.186497001.1136229347.1532093993-3846207152.1521480874) 以来，网络隐私就一直在我们所有人的脑海中。但跟踪你的不仅仅是脸书。从 [其他科技巨头](https://lifehacker.com/this-page-lets-you-disable-a-lot-of-googles-activity-tr-1787078927#_ga=2.46237671.1145960556.1532379924-41032638.1522767236) 到大多数 [商店奖励信用卡](https://lifehacker.com/how-you-leak-your-privacy-every-day-and-how-to-stop-1547653862#_ga=2.120346760.1254207931.1532352304-3846207152.1521480874) ，无数公司部署类似的战术——甚至 [你最喜欢(或讨厌)](https://winteriscoming.net/2018/07/24/video-westworld-creator-jonathan-nolan-doesnt-give-shit-twitter-facebook/) 论坛网站，Reddit。
 

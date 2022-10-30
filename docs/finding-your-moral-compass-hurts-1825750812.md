@@ -8,19 +8,19 @@
 
 本周的精选来自爱比克泰德和他的*话语*。在第三本书第 23 章，他建议道德改善不是小菜一碟——也不应该是:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 “哲学家的教室是一所医院；你不应该在快乐中走出来，而是在痛苦中。”
 
-</section>
+
 
 下面是另一个版本:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 “哲学家的学校，伙计，是医生的外科。你不应该在享受了快乐的时光之后离开，而是在遭受了痛苦之后。”
 
-</section>
+
 
 ### 这意味着什么
 

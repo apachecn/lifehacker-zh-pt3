@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 开始一个新的播客来帮你度过通勤
 
@@ -18,9 +18,9 @@
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 为夏天准备好你的户外空间
 
@@ -28,9 +28,9 @@
 
 帕特里克·艾伦，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 删除心爱的应用程序前要小心
 
@@ -38,9 +38,9 @@
 
 大卫·墨菲，高级技术编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 清理一些多余的壁橱空间
 
@@ -48,9 +48,9 @@
 
 克莱尔·洛，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 用多莉·帕顿抚慰自己
 
@@ -58,9 +58,9 @@
 
 亚历克斯·贝德，社会编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 你自己洗衣服吧
 
@@ -68,4 +68,3 @@
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>

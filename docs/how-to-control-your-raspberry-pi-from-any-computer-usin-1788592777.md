@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-control-your-raspberry-pi-from-any-computer-usin-1788592777>
 
-[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
+
 
 售价 35 美元的 Raspberry Pi 是一台非常棒的小电脑，但是如果加上显示器、鼠标和键盘的成本，价格就有点贵了。还好你并不真的需要它们。有了 VNC，您可以从笔记本电脑或台式电脑访问您的 Pi，只需使用您一直使用的鼠标、键盘和显示器，无需重新布线。
 

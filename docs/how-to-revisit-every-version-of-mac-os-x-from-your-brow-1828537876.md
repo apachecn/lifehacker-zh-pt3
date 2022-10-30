@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-revisit-every-version-of-mac-os-x-from-your-brow-1828537876>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+
 
 苹果操作系统中的 Aqua GUI 自 2000 年 3 月进入 OS X 10.0 以来经历了显著的演变，你可能会惊讶于现在一切看起来有多么不同。得益于新推出的 [Aqua 截图库](https://512pixels.net/projects/aqua-screenshot-library/) ，你可以重温多年来 OS X(和 macOS)的每一个版本，查看苹果操作系统的逐步演变——一切都从你的浏览器开始。
 

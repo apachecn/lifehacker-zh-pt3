@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 征服新的健身挑战
 
@@ -18,9 +18,9 @@
 
 beth skwarecki，健康编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 结束你对卫生纸的依赖
 
@@ -28,9 +28,9 @@ beth skwarecki，健康编辑
 
 食品和饮料编辑克莱尔·洛
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 停止忍受干燥的空气
 
@@ -38,9 +38,9 @@ beth skwarecki，健康编辑
 
 大卫·墨菲，高级技术编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 慢慢减少你喝咖啡的习惯
 
@@ -48,9 +48,9 @@ beth skwarecki，健康编辑
 
 亚当·鲍尔斯，视频制作人
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 尽你所能成为最好的地下城主
 
@@ -58,9 +58,9 @@ beth skwarecki，健康编辑
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 保护自己免受与锻炼相关的伤害
 
@@ -68,9 +68,9 @@ beth skwarecki，健康编辑
 
 艾丽西娅·亚当奇克，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 为您的生活增添更多厨房小工具
 
@@ -78,9 +78,9 @@ beth skwarecki，健康编辑
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 延长您的电池寿命
 
@@ -88,4 +88,3 @@ beth skwarecki，健康编辑
 
 艾米丽·利普斯坦，社交媒体编辑
 
-</section>

@@ -8,27 +8,27 @@
 
 本周的精选来自马可·奥勒留的*冥想*。他提供了一些直截了当的建议来避免对物质、头衔和赞美的依恋:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 “虚心接受，轻松放下。”
 
-</section>
+
 
 另一个版本:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 “坦然接受，不骄不躁，淡然处之。”
 
-</section>
+
 
 还有一个:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 “不骄不躁地接受，不执著地放手。”
 
-</section>
+
 
 ### 这意味着什么
 

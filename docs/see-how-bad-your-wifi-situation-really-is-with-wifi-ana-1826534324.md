@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/see-how-bad-your-wifi-situation-really-is-with-wifi-ana-1826534324>
 
-[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+
 
 Windows:有上百万个小应用程序，它们的特色是 wifi 和分析这两个词的某种组合，或者与这两个词非常接近的东西。有些 app 是付费的；有些是免费的。它们都允许您查看有关您的无线设置(以及您周围的人的无线设置)的信息的不同组合。
 

@@ -36,12 +36,12 @@
 
 * * *
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 联系特别项目服务台
 
 本帖由 Gizmodo Media 的 [特别项目组制作。](https://specialprojectsdesk.com) 通过电话、短信、信号或 WhatsApp 联系我们的团队，电话:  ，电子邮件:[【tips@gizmodomedia.com】](mailto:tips@gizmodomedia.com)，或使用 [SecureDrop](https://specialprojectsdesk.com/securedrop/) 安全地联系我们。
 
-</section>
+
 
 * * *

@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 为了“劣质咖啡”和更简单的日常生活而放弃喝茶
 
@@ -18,9 +18,9 @@
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 优先考虑面对面的交流，而不是你的新闻
 
@@ -28,9 +28,9 @@
 
 艾丽西娅·亚当奇克，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 用微小的改变培养一个主要的习惯
 
@@ -38,9 +38,9 @@
 
 帕特里克·奥斯汀，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 制作你自己喜欢的配料
 
@@ -48,9 +48,9 @@
 
 食品和饮料编辑克莱尔·洛
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 新工作，新通勤
 
@@ -58,9 +58,9 @@
 
 乔尔·卡恩，高级视频制作人
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 阻止线缆混乱的趋势
 
@@ -68,9 +68,9 @@
 
 beth skwarecki，健康编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 伪造自然光的效果
 
@@ -78,9 +78,9 @@ beth skwarecki，健康编辑
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 重新认识倾听的重要性
 
@@ -88,4 +88,3 @@ beth skwarecki，健康编辑
 
 米歇尔·吴，育儿编辑
 
-</section>

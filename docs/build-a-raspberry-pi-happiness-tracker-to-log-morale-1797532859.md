@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/build-a-raspberry-pi-happiness-tracker-to-log-morale-1797532859>
 
-[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
+
 
 如果你还在用办公室的饮水机来判断你办公室的士气，你可能需要升级了。有时候记录你的感受就像按一个按钮一样简单。这就是 SEO 专家兼程序员 Katja Budnikov 在她公司的黑客马拉松上建造了一个办公室快乐追踪器 后的成就。
 

@@ -40,13 +40,13 @@
 
 “脸书还可以向用户透露哪些个人信息被用于定向投放广告，帮助用户了解广告商如何使用他们的信息，”Mislove 在电子邮件中说。换句话说，脸书可以告诉我所有这些广告商掌握的我的电子邮件地址或电话号码。不过，对于影子联系信息的参与，脸书可能一直在回避，因为它不想让我知道*脸书*掌握了我的哪些个人信息。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 联系特别项目服务台
 
 本帖由 Gizmodo Media 的 [特别项目组制作。](https://specialprojectsdesk.com) 发邮件至联系我们，或使用 [SecureDrop](https://specialprojectsdesk.com/how-to-contact-our-reporters-using-securedrop-1823763689) 安全联系我们。
 
-</section>
+
 
 广告业当然有更令人毛骨悚然的做法，但令人不安的是，这种情况正在脸书发生，因为它表示让你控制你的广告体验。令人不安的是，脸书正在减少那些希望自己的账户更安全的人的隐私，他们使用自己提供的信息来挖掘广告数据。而且发现影子联系信息的另一种使用方式也很麻烦， [超越好友推荐](https://gizmodo.com/how-facebook-figures-out-everyone-youve-ever-met-1819822691) ，鉴于脸书不让用户看到这些关于自己的信息，也不让他们删除这些信息。
 

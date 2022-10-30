@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 扩展您的流媒体选项
 
@@ -18,9 +18,9 @@
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 投资于你的早晨咖啡仪式
 
@@ -28,9 +28,9 @@ Nespresso(迷你)是我的升级版！我每天只喝一杯咖啡，非常懒，
 
 食品和饮料编辑克莱尔·洛
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 为你未来的自己做一件经济上的好事
 
@@ -38,9 +38,9 @@ Nespresso(迷你)是我的升级版！我每天只喝一杯咖啡，非常懒，
 
 艾丽西娅·亚当奇克，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 戴上触摸屏手套
 
@@ -48,9 +48,9 @@ Nespresso(迷你)是我的升级版！我每天只喝一杯咖啡，非常懒，
 
 帕特里克·艾伦，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 不要追随你最糟糕的脸书朋友
 
@@ -58,9 +58,9 @@ Nespresso(迷你)是我的升级版！我每天只喝一杯咖啡，非常懒，
 
 米歇尔·吴，育儿编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 假日自理双倍下注
 
@@ -68,9 +68,9 @@ Nespresso(迷你)是我的升级版！我每天只喝一杯咖啡，非常懒，
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 为艺术成功做好准备
 
@@ -78,9 +78,9 @@ Nespresso(迷你)是我的升级版！我每天只喝一杯咖啡，非常懒，
 
 beth skwarecki，健康编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### **获得一个值得携带的名片盒**
 
@@ -88,4 +88,3 @@ beth skwarecki，健康编辑
 
 帕特里克·奥斯汀，专职作家
 
-</section>

@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 制作一个 DIY 立式书桌
 
@@ -18,9 +18,9 @@
 
 beth skwarecki，健康编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 给你的轮转增加一些新的阅读材料
 
@@ -28,9 +28,9 @@ beth skwarecki，健康编辑
 
 员工作家艾丽西娅·阿达姆奇克
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 在有压力的时候，阻止自己失控
 
@@ -38,9 +38,9 @@ beth skwarecki，健康编辑
 
 大卫·墨菲，高级技术编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 更换你的肮脏的浴帘衬里已经
 
@@ -48,9 +48,9 @@ beth skwarecki，健康编辑
 
 食品和饮料编辑克莱尔·洛
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 整理你的文档
 
@@ -58,9 +58,9 @@ beth skwarecki，健康编辑
 
 帕特里克·艾伦，特约撰稿人
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 在游泳池度过温暖的周末
 
@@ -68,9 +68,9 @@ beth skwarecki，健康编辑
 
 米歇尔·吴，育儿编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 用更多的肥皂清洗你的肥皂
 
@@ -78,9 +78,9 @@ beth skwarecki，健康编辑
 
 乔尔·卡恩，资深视频制作人
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 为你的网友腾出时间
 
@@ -88,9 +88,9 @@ beth skwarecki，健康编辑
 
 尼克·道格拉斯，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 美白你的牙齿，没有价格过高的条纹
 
@@ -98,4 +98,3 @@ beth skwarecki，健康编辑
 
 弗吉尼亚·k·史密斯，执行主编
 
-</section>

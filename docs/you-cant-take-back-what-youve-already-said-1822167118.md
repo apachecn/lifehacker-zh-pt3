@@ -8,13 +8,13 @@
 
 本周的选择来自花旗集团的芝诺，引自第欧根尼·拉尔修。他提醒我们，话不能不说:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 "与其用舌头绊倒，不如用脚绊倒."
 
 杰出哲学家的生活 7.1.26
 
-</section>
+
 
 ### 这意味着什么
 

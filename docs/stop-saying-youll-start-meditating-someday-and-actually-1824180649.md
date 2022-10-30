@@ -10,7 +10,7 @@
 
 这周你做了哪些升级？请在评论中告诉我们。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### (最后)养成冥想的习惯
 
@@ -18,9 +18,9 @@
 
 *爱丽丝·布拉德利，副主编*
 
-</section>
 
-<section class="q35npn-0 MZtuu">*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
+
+*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
 
 #### *将你的衣橱选择外包给机器人*
 
@@ -28,9 +28,9 @@
 
 *beth skwarecki，健康编辑*
 
-</section>
 
-<section class="q35npn-0 MZtuu">*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
+
+*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
 
 #### *赶上你的播客队列*
 
@@ -38,9 +38,9 @@
 
 *艾丽西娅·亚当奇克，专职作家*
 
-</section>
 
-<section class="q35npn-0 MZtuu">*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
+
+*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
 
 #### *战略性地搭配*
 
@@ -48,9 +48,9 @@
 
 *亚当·鲍尔斯，视频制作人*
 
-</section>
 
-<section class="q35npn-0 MZtuu">*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
+
+*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
 
 #### *换一个不那么荒谬的电话计划*
 
@@ -58,9 +58,9 @@
 
 *尼克·道格拉斯，专职作家*
 
-</section>
 
-<section class="q35npn-0 MZtuu">*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
+
+*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
 
 #### *给你的收件箱标上颜色*
 
@@ -68,9 +68,9 @@
 
 *大卫·墨菲，高级技术编辑*
 
-</section>
 
-<section class="q35npn-0 MZtuu">*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
+
+*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
 
 #### *在你的早餐咖啡中加入更多的东西*
 
@@ -78,4 +78,3 @@
 
 *弗吉尼亚·k·史密斯，执行主编*
 
-</section>

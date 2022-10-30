@@ -4,7 +4,7 @@
 
 尽管我们在 Lifehacker 是生活窍门的鉴赏家，但我们不会每天都使用每一条建议。我们也倾向于写那些有趣的尝试，或者那些我们只有在下一个伟大的生活帮出现之前才会感到兴奋的事情。因此，为了获得真正的内幕消息，我调查了我们团队中经受住时间考验的技巧。以下是我们个人的最爱:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 大声朗读故事
 
@@ -12,11 +12,11 @@
 
 尼克·道格拉斯，专职作家
 
-</section>
 
 
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 每天早上写三页垃圾
 
@@ -24,9 +24,9 @@
 
 弗吉尼亚·史密斯，执行主编
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 手写
 
@@ -34,9 +34,9 @@
 
 米歇尔·吴，育儿编辑
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 让您的钥匙串静音
 
@@ -44,9 +44,9 @@
 
 帕特里克·卢卡斯·奥斯汀，专职作家
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 量出你的糖浆和香料
 
@@ -54,9 +54,9 @@
 
 食品和饮料编辑克莱尔·洛
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 让人觉得牛逼
 
@@ -64,6 +64,6 @@
 
 帕特里克·艾伦，专职作家
 
-</section>
+
 
 至于我自己， [把一个直立的杯子放进洗碗机](https://lifehacker.com/use-an-upright-glass-in-the-dishwasher-as-a-dirty-dish-1777435278) 改善了我的厨房工作流程和我的婚姻；我丈夫和我再也不用互相测验谁最后装了洗碗机，你运行了吗，你确定吗*？如果杯子是满的，它是干净的。每次硬拉的时候，我还会用斯蒂芬妮的小窍门 [来移除重物盘](https://vitals.lifehacker.com/the-quickest-way-to-remove-weights-after-heavy-deadlift-1793423299) 。*

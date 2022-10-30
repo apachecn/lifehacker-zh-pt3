@@ -8,13 +8,13 @@
 
 本周的精选来自 CitiumT3 的 [芝诺，一位希腊哲学家，斯多葛派哲学的创始人。他从公元前 300 年开始在雅典教书，直到公元前 262 年去世。](https://en.wikipedia.org/wiki/Zeno_of_Citium)
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 "我们有两只耳朵和一张嘴，所以我们应该多听少说."
 
 花旗集团的芝诺
 
-</section>
+
 
 不幸的是，很难说他的这句话从何而来。他所有的物理著作都没有保存下来，像这样的引用之所以存在，是因为它们后来被其他哲学家保存了下来。
 
@@ -28,12 +28,12 @@
 
 当你说话时， [只说你知道值得说的话](https://lifehacker.com/dont-speak-unless-its-something-worth-saying-1796490694) 。毕竟，芝诺也说过:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 "与其用舌头绊倒，不如用脚绊倒."
 
 花旗集团的芝诺
 
-</section>
+
 
 生活充满了问题，但如果你学会倾听，你几乎总能听到答案。

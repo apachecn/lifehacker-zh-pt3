@@ -8,19 +8,19 @@
 
 本周精选来自塞内卡的*论心安* (17.8)。他说散步对精神和身体都有滋养作用:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 “到户外散步也有好处，因为户外的空气和新鲜的微风可以振奋我们的精神，使我们精神焕发。”
 
-</section>
+
 
 下面是另一个版本:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 “我们应该在户外漫步，这样我们的心灵可以通过户外的空气和深呼吸得到滋养和恢复。”
 
-</section>
+
 
 ### 这意味着什么
 

@@ -8,19 +8,19 @@
 
 本周精选来自爱比克泰德在他的 [*论述*](http://classics.mit.edu/Epictetus/discourses.html) 。他认为打破习惯有时需要采取相反的行动:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 “既然强烈的习惯会导致我们习惯于只对不在我们意志范围内的事情产生欲望和厌恶，我们就应该用相反的习惯来反对这种习惯……”
 
-</section>
+
 
 下面是另一个版本:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 “无论你想让什么成为习惯，就去实践它；如果你不想让一件事成为习惯，就不要去实践它，而是让自己习惯于别的事情。”
 
-</section>
+
 
 ### **什么意思**
 

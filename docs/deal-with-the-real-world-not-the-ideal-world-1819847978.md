@@ -8,13 +8,13 @@
 
 在 Lifehacker，这是 [*邪恶周*](https://lifehacker.com/c/evil-week) *，这意味着我们正在寻找不太合适的方法来完成任务。我们喜欢认为我们揭示这些策略是为了帮助你做相反的事情，但是如果你是，事实上，邪恶的，你可能会发现这一周对你很有帮助。这取决于你。*
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 忽视应该做的事情的人，他的毁灭比他的保存更快。
 
 尼可罗·马基亚维利，*王子*
 
-</section>
+
 
 ### **什么意思**
 

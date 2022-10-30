@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/get-the-fastest-wifi-on-your-wireless-network-with-wifi-1825489599>
 
-[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+
 
 macOS:知道如何微调无线路由器很重要，因为不是每个路由器都可以自动调整无线网络的设置，为您提供最高质量的连接。此外，一个优秀的 wifi 分析应用程序可以帮助你找出你的房子或公寓中可能需要更多无线支持的区域——通过添加另一个接入点或调整现有配置。
 

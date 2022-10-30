@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-turn-your-raspberry-pi-into-a-retro-game-console-498561192>
 
-[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)) : title[![](../Images/051582a87daf38ca09cf7f704ce5f720.png)](https://raspberrypiguide.kinja.com)[Lifehacker's Complete Guide to Raspberry Pi](https://raspberrypiguide.kinja.com)Everyone wants a tiny little computer that can do it all, but how do you get started? Use this guide to master your brand-new Raspberry Pi.
+
 
 自发布以来，35 美元的 Raspberry Pi 迷你电脑被誉为完美的一体化复古游戏机。现在，这比以往任何时候都容易，而且不需要任何 Linux 知识。以下是如何在 10 分钟内制作自己的复古游戏机。
 

@@ -6,52 +6,52 @@
 
 
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 泥塑面团
 
 如果你在坚硬的表面上洒了亮片，抓一个橡皮泥球，滚动它来捡起那些小斑点。最好的部分:现在你有闪光橡皮泥。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 一个气球
 
 它集清洁和儿童科学演示于一体。吹一个气球，在地毯上摩擦产生静电，然后将它悬停在闪光的地方。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 棉绒滚筒
 
 如果你手头没有，用一些遮蔽胶带缠在手上就可以了。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 抹布
 
 它们对干扫闪光粉(和其他微小颗粒)很有魔力。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 发胶
 
 对于粘在可洗织物上的闪光物，试试喷雾发胶。喷洒闪光区域，让其完全干燥，然后将物品扔进洗衣机(但不要加入其他衣物，以免你想要闪闪发光的一切。)
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 椰子油
 
 对于粘在皮肤上的闪光物，棉球上的一点点椰子油应该可以把它擦干净。卸妆湿巾或婴儿湿巾也可以。
 
-</section>
+
 
 你有我们在这里没有提到的闪光清洁技巧吗？请在评论中告诉我们。

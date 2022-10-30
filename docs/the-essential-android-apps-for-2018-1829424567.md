@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/the-essential-android-apps-for-2018-1829424567>
 
-[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)) : title[![](../Images/e2dcc498f7314a475ad7b9879a9d5584.png)](https://androidos.kinja.com)[Lifehacker's Complete Guide to Android](https://androidos.kinja.com)Don't get overwhelmed by Android's many (many!) settings and apps. Master your Android phone or tablet with our ample collection of guides, tips, and tricks.
+
 
 哪个安卓应用值得在你的新智能手机或平板电脑上占有一席之地？试图找到最好的应用是一个充满挑战的过程，因为谷歌 Play 商店上有数百万个应用可供选择。即使你只是每天浏览谷歌的“顶级免费”或“顶级付费”列表，你也会错过许多数字瑰宝。请允许我们用我们最新更新的 Android 版 Lifehacker Pack 来帮助您。
 

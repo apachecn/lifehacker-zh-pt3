@@ -8,13 +8,13 @@
 
 本周的精选来自罗马哲学家 [小塞内加](https://en.wikipedia.org/wiki/Seneca_the_Younger) 。他认为贫穷是一种精神状态。一个你可以控制的:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 贫穷的不是拥有太少的人，而是渴望更多的人。
 
 信二:关于阅读中的话语，第 6 行。
 
-</section>
+
 
 ### 这意味着什么
 
