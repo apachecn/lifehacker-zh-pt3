@@ -1,6 +1,6 @@
 # 告诉我们你的底特律旅行小贴士
 
-> 原文:https://life hacker . com/tell-us-your-Detroit-travel-tips-1829555993
+> 原文：<https://lifehacker.com/tell-us-your-Detroit-travel-tips-1829555993>
 
 底特律并不是一个特别的旅游目的地。但我们一些最成功的 Hack Your City 选择也不是，像匹兹堡或者 [明尼阿波利斯-圣保罗](https://lifehacker.com/the-best-minneapolis-st-paul-travel-tips-from-our-read-1828691612) 。对于当地人来说，这是一个“黑你的城市”,对于任何在这个城市进行商务旅行或中途停留的人来说也是如此。对底特律来说，这并不完全是辉煌的日子，但该地区有超过 300 万人——他们肯定有事可做。
 

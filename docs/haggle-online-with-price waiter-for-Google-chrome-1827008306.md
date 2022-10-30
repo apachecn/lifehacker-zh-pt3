@@ -1,6 +1,6 @@
 # 用谷歌浏览器的“价格服务员”在线砍价
 
-> 原文:https://life hacker . com/haggle-online-with-price waiter-for-Google-chrome-1827008306
+> 原文：<https://lifehacker.com/haggle-online-with-price waiter-for-Google-chrome-1827008306>
 
 Chrome:[price waiter 扩展](https://chrome.google.com/webstore/detail/pricewaiter/iabgknpjdaencfdokkmapnbjegjbojpg)——一个自己命名价格系统，乍听起来好得令人难以置信——目前只适用于 Chrome。(抱歉，火狐用户。)当你安装扩展时，你可能会注意到...绝对没有，至少一开始没有。
 
